@@ -22,7 +22,7 @@ En songeant à la marionnette cadavre de Sun Tai, Wang Lin ne put s'empêcher de
 
 Wang Lin prit une profonde inspiration pour rassembler ses pensées. Ses yeux s'illuminèrent alors qu'il observait les fissures ramifiées qui l'entouraient. Ne parvenant à déceler aucune aura de Zhou Yi, il allait devoir les inspecter une à une lui-même.
 
-« Le Senior Zhou Zi a été scellé ici par Ling Tianhou; la fissure abritant le sceau doit donc porter l'aura de Ling Tianhou! » Les yeux de Wang Lin se plissèrent tandis que son Sens Divin se déployait pour sonder les failles environnantes.
+« Le Senior Zhou Yi a été scellé ici par Ling Tianhou; la fissure abritant le sceau doit donc porter l'aura de Ling Tianhou! » Les yeux de Wang Lin se plissèrent tandis que son Sens Divin se déployait pour sonder les failles environnantes.
 
 Au bout d'un court instant, Wang Lin fronça les sourcils. Il avait inspecté toutes les fissures alentour, mais n'avait trouvé aucune trace de Zhou Yi.
 
@@ -54,19 +54,19 @@ Le domaine de Ling Tianhou était celui de la tyrannie: utiliser sa propre natur
 
 Progressivement, cette aura impérieuse disparut de ses yeux et de grosses gouttes de sueur s'écoulèrent sur son front. Le regard tyrannique s'évanouit totalement du corps de Wang Lin, laissant son visage livide.
 
-« Le domaine contenu dans l'énergie de l'épée de Ling Tianhou est d'une tyrannie absolue. Tenter d'emprunter ne serait-ce qu'un fragment de ce domaine a failli me blesser. » Wang Lin prit une profonde inspiration tandis que l'énergie spirituelle céleste circulait dans son corps. Il frappa son sac de rangement et l'épée céleste apparut, sa lame en croissant brillant d'un éclat froid.
+« Le domaine contenu dans l'énergie de l'épée de Ling Tianhou est d'une tyrannie absolue. Tenter d'emprunter ne serait-ce qu'un fragment de ce domaine a failli me blesser. » Wang Lin prit une profonde inspiration tandis que l'énergie spirituelle céleste circulait dans son corps. Il frappa son sac de rangement et l'épée céleste apparut, suivie de la lame en croissant, qui brillait d'un éclat froid.
 
 Wang Lin saisit l'épée céleste de la main droite et fit un pas en avant. Il pivota brusquement, libérant une déferlante d'énergie. Un vortex d'énergie d'épée se forma autour de lui, faisant de Wang Lin son centre névralgique.
 
-« Brise! » Dans un rugissement, Wang Lin s'immobilisa soudainement. À cet instant précis, le vortex éclata et l'énergie d'épée jaillit dans toutes les directions. D'innombrables fissures apparurent près des interstices de la falaise. Les craquements se multiplièrent, et bientôt, des fractures couvrirent plus de mille pieds de hauteur le long de la paroi.
+« Brise! » Dans un rugissement, Wang Lin s'immobilisa soudainement. À cet instant précis, le vortex éclata et l'énergie d'épée jaillit dans toutes les directions. D'innombrables fissures apparurent près des interstices de la falaise. Les craquements se multiplièrent, et bientôt, des fractures couvrirent plus de 330 mètres de hauteur le long de la paroi.
 
-« CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme des Marées. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula d'un pouce sous la puissance de l'énergie d'épée de Wang Lin.
+« CRAC! » La voix de Wang Lin tonna comme un coup de tonnerre à travers l'Abîme des Marées. De nouvelles fissures déchirèrent la falaise, provoquant des éboulements massifs. Le flanc de l'Abîme recula de 3,3 centimètres sous la puissance de l'énergie d'épée de Wang Lin.
 
 Ses yeux s'illuminèrent et il réutilisa son énergie. La falaise fut rapidement rabotée. Après quinze minutes, une petite ouverture apparut, d'où émanait une aura très ténue. Cette aura n'appartenait pas à Zhou Yi, mais elle exhalait une tyrannie extrême.
 
-La main droite de Wang Lin traça un sceau et pointa l'ouverture. L'épée céleste s'élança vers la brèche, suivie de près par sa lame en croissant. Des pans entiers de roche s'effondrèrent. En un clin d'œil, une fissure cachée à trente pieds dans la paroi apparut devant lui.
+La main droite de Wang Lin traça un sceau et pointa l'ouverture. L'épée céleste s'élança vers la brèche, suivie de près par sa lame en croissant. Des pans entiers de roche s'effondrèrent. En un clin d'œil, une fissure cachée à 9,9 mètres dans la paroi apparut devant lui.
 
-L'ouverture n'était pas grande, mesurant à peine cinq pieds de haut, et plongeait dans l'obscurité totale. Dès que le Sens Divin de Wang Lin tenta d'y pénétrer, il fut violemment repoussé par un Sens Divin tyrannique.
+L'ouverture n'était pas grande, mesurant à peine 1,65 mètre de haut, et plongeait dans l'obscurité totale. Dès que le Sens Divin de Wang Lin tenta d'y pénétrer, il fut violemment repoussé par un Sens Divin tyrannique.
 
 Le choc projeta le corps de Wang Lin en arrière, qui s'écrasa contre la paroi opposée. Dans un fracas assourdissant, les roches tombèrent tandis que le corps de Wang Lin restait imprimé dans la roche. Le sang afflua et s'échappa du coin de sa bouche.
 

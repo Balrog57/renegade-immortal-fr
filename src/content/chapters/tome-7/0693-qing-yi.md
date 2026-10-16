@@ -60,7 +60,7 @@ Le jeune homme rit: « Sœur de discipline junior Qing Yi, pourquoi ne le serait
 
 Une trace d'agacement apparut sur le visage de la femme, qui détourna la tête.
 
-Le jeune homme laissa échapper un renflement glacial. S'il s'était moqué de Wang Ping, c'est parce que cette femme, d'ordinaire si froide, avait levé la tête pour regarder le garçon.
+Le jeune homme laissa échapper un reniflement glacial. S'il s'était moqué de Wang Ping, c'est parce que cette femme, d'ordinaire si froide, avait levé la tête pour regarder le garçon.
 
 Sans cette femme, comment aurait-il pu manger dans un tel endroit compte tenu de son rang? En voyant son expression, il eut un ricanement méprisant, se retourna et fixa Wang Ping du regard.
 

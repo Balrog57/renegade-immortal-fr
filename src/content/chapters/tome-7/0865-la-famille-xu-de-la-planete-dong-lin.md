@@ -38,7 +38,7 @@ Peu de personnes avaient pu détecter ce contact; ils n'étaient que quatre au t
 
 L'un d'eux venait du Domaine Nord. C'était un homme d'âge moyen au visage pâle. Le plus étrange était sa main droite: il avait six doigts au lieu de cinq, le sixième bifurquant de son pouce!
 
-La deuxième personne venait également du Domaine Nord. C'était un garçon à la tête disproportionnée qui paraissait très irrégulière. Pourtant, un espace vide de trente pieds l'entourait, car personne ne semblait vouloir s'approcher de lui.
+La deuxième personne venait également du Domaine Nord. C'était un garçon à la tête disproportionnée qui paraissait très irrégulière. Pourtant, un espace vide d'environ dix mètres de diamètre l'entourait, car personne ne semblait vouloir s'approcher de lui.
 
 Le garçon affichait un sourire idiot. Après avoir regardé Wang Lin, il se concentra sur l'homme en robe blanche, et son sourire stupide s'intensifia.
 
@@ -120,7 +120,7 @@ Wang Lin sourit et discuta avec le vieil homme. En regardant devant lui, il vit 
 
 Presque chaque recoin du temple était protégé par des restrictions. Wang Lin en découvrit même de nombreuses sur leur chemin. S'il n'avait pas suivi le vieil homme, ces seules barrières auraient suffi à l'arrêter.
 
-En continuant leur progression, ils finirent par atteindre le centre du Temple Céleste du Tonnerre. Il y avait là une immense place pavée de pierres bleues, parcourue par des éclairs. La place était vaste, faisant au moins 10 000 pieds de large, et semblait avoir été formée par un écoulement de foudre. À leur approche, le tonnerre prit la forme d'une gueule béante tentant de les engloutir.
+En continuant leur progression, ils finirent par atteindre le centre du Temple Céleste du Tonnerre. Il y avait là une immense place pavée de pierres bleues, parcourue par des éclairs. La place était vaste, faisant au moins 3 300 mètres de large, et semblait avoir été formée par un écoulement de foudre. À leur approche, le tonnerre prit la forme d'une gueule béante tentant de les engloutir.
 
 Le vieil homme rit et, d'un geste sur son sac de stockage, fit apparaître une multitude de fruits rouges dans sa main. Il les lança dans la gueule qui tentait de les dévorer.
 

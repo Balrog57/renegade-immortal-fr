@@ -16,7 +16,7 @@ Après chaque cristal absorbé, la couleur de l'étoile sur son front devenait p
 
 Bien que son apparence extérieure fût parfaitement normale, l'intérieur de son être avait subi des changements prodigieux. Après avoir absorbé soixante-dix cristaux, son corps était d'une solidité extrême.
 
-Les yeux de Wang Lin s'illuminèrent. Il en déduisit que, dans son état actuel, son corps serait capable de résister aux assauts d'un cultivateur au stade de la Formation Spirituelle.
+Les yeux de Wang Lin s'illuminèrent. Il en déduisit que, dans son état actuel, son corps serait capable de résister aux assauts d'un cultivateur au stade de la Formation du Noyau.
 
 Le temps passa. Désormais, dans l'espace abritant l'héritage de connaissances de l'Ancien Dieu, il ne restait plus aucun cristal de glace bleu. La seule chose qui subsistait était une immense chrysalide d'un bleu sombre.
 
@@ -66,7 +66,7 @@ Il s'agissait de Wang Lin; ces restrictions étaient celles qu'il avait lui-mêm
 
 Bien qu'il ait jugé cet endroit sûr — car il ne se situait pas directement dans le méridien, mais dans l'espace spécial créé par les souvenirs de l'héritage — Wang Lin était d'une prudence extrême et avait laissé de nombreuses mesures de sécurité.
 
-Après avoir franchi les restrictions, son regard se posa sur son ancien corps et ses sacs de rangement. Une expression de regret traversa ses yeux. Le corps devant lui était déjà décomposé. Des traces d'énergie spirituelle s'échappaient de la Formation du Noyau de ce cadavre.
+Après avoir franchi les restrictions, son regard se posa sur son ancien corps et ses sacs de rangement. Une expression de regret traversa ses yeux. Le corps devant lui était déjà décomposé. Des traces d'énergie spirituelle s'échappaient du noyau de ce cadavre.
 
 À côté du corps reposaient quelques sacs de rangement.
 
@@ -74,7 +74,7 @@ Wang Lin soupira. S'il n'avait pas reconstruit un nouveau corps après avoir re�
 
 Il posa sa main droite sur la poitrine de son ancien corps. Le cadavre inanimé commença soudainement à libérer une épaisse énergie spirituelle. Rapidement, des fissures apparurent sur les mains et les pieds du corps avant de se propager. À mesure que les crevasses s'élargissaient, les fluctuations d'énergie s'intensifiaient. Finalement, le corps se brisa complètement, laissant flotter un noyau de la taille d'un poing.
 
-D'innombrables points colorés étaient éparpillés parmi les restes du corps.
+D'innombrables points bleus étaient éparpillés parmi les restes du corps.
 
 En voyant le noyau, il ressentit une pointe de familiarité. Après tout, c'était le noyau qu'il avait lui-même formé; ce lien ne pouvait être rompu par le temps.
 

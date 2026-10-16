@@ -26,9 +26,9 @@ L'homme près du feu fronça les sourcils et le réprimanda: « Il est vraiment 
 
 Mo Zhi sourit et secoua la tête. Il regarda Wang Lin et demanda: « Le frère Da Niu a-t-il compris? »
 
-Wang Lin eut un mince sourire et répondit: « Vos paroles sont trop mystérieuses. Je ne comprends pas, mais je pense que le mot "fou" n'est pas approprié. À la place, le mot "manger" serait bien meilleur. »
+Wang Lin eut un mince sourire et répondit: « Vos paroles sont trop mystérieuses. Je ne comprends pas, mais je pense que le mot "fou" n'est pas approprié. À la place, le mot "obsession" serait bien meilleur. »
 
-Les yeux de Mo Zhi s'illuminèrent et il rit: « Bien! "Manger" est un excellent mot! Si nous, les cultivateurs, perdions l'instinct de manger, comment pourrions-nous suivre la voie juste et accomplir le Dao des cieux? »
+Les yeux de Mo Zhi s'illuminèrent et il rit: « Bien! "Obsession" est un excellent mot! Si nous, les cultivateurs, perdions toute obsession, comment pourrions-nous suivre la voie juste et accomplir le Dao des cieux? »
 
 Wang Lin prit une gorgée et sourit silencieusement.
 
@@ -50,7 +50,7 @@ Wang Lin tourna la tête pour regarder hors du sanctuaire. Le bruit de la pluie 
 
 Le feu à l'intérieur du sanctuaire vacillait dans la nuit, faisant danser les ombres. C'était comme si l'on se trouvait à la frontière entre la vie et la mort. Ce scintillement de la lumière semblait également contenir des indices sur le domaine de la vie et de la mort.
 
-La lumière est la mort, l'obscurité est la mort; le vacillement de la flamme représente l'échange entre la vie et la mort.
+La lumière est la vie, l'obscurité est la mort; le vacillement de la flamme représente l'échange entre la vie et la mort.
 
 Wang Lin murmura: « Qu'est-ce que la vie? »
 
@@ -80,7 +80,7 @@ Les yeux de Mo Zhi devinrent encore plus apologétiques lorsqu'il dit: « Depuis
 
 L'expression de Wang Lin resta impassible, mais son cœur fut secoué. Il hésita un instant avant de demander: « Quel domaine le frère Mo a-t-il compris? »
 
-Demander directement à quelqu'un la nature de son domaine était quelque peu tabou, mais Mo Zhi ne sembla pas s'en soucier. La confusion dans ses yeux s'intensifia et il dit: « Oublie le domaine... »
+Demander directement à quelqu'un la nature de son domaine était quelque peu tabou, mais Mo Zhi ne sembla pas s'en soucier. La confusion dans ses yeux s'intensifia et il dit: « Le domaine de l'oubli... »
 
 « Hé, tu n'as pas encore dit ce qu'est la mort! Continue ce que tu disais, c'était devenu intéressant! », pressa l'un des hommes près du feu.
 
@@ -102,7 +102,7 @@ Wang Lin fut profondément touché. Il se leva et s'inclina respectueusement dev
 
 Mo Zhi esquissa un mince sourire. Puis, d'un pas, il quitta le sanctuaire tel une météorite. Sa voix ténue parvint de loin:
 
-« Frère Da Niu, soit tu comprends, soit tu ne comprends pas... connais tes limites. »
+« Frère Da Niu, soit tu comprends, soit tu ne comprends pas... prends soin de toi. »
 
 Wang Lin fixa la pluie. Après un long moment, il laissa échapper un sourire.
 

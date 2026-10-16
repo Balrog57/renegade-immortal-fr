@@ -17,7 +17,7 @@ La Secte Ciel Nuageux était célèbre pour sa production de pilules dans le pay
 
 Lors de ces petits rassemblements Kai-Ling, on ne trouvait pas de pilules précieuses, seulement des produits standards. Cependant, pour ces jeunes cultivateurs, cela restait une aubaine dont ils ne se lassaient jamais.
 
-Il faut dire qu'une pilule fabriquée par la Secte Ciel Nuageux était au moins 10 % supérieure à celles des autres. Par conséquent, la demande pour leurs produits était immense. De plus, la Secte Ciel Nuageux ne commerçait avec l'extérieur que lors de ces rassemblements Kai-Ling. Ainsi, bien qu'il n'y ait que deux ans d'intervalle entre chaque événement, toutes les sectes du pays de culture Zhao envoyaient de nombreux jeunes disciples.
+Il faut dire qu'une pilule fabriquée par la Secte Ciel Nuageux était bien supérieure à celles des autres. Par conséquent, la demande pour leurs produits était immense. De plus, la Secte Ciel Nuageux ne commerçait avec l'extérieur que lors de ces rassemblements Kai-Ling. Ainsi, bien qu'il n'y ait que deux ans d'intervalle entre chaque événement, toutes les sectes du pays de culture Chu envoyaient de nombreux jeunes disciples.
 
 Mai Guorong était très fier d'avoir été choisi parmi les innombrables disciples de la secte, mais il savait aussi que s'il pouvait participer, c'était grâce à son excellent maître.
 
@@ -61,7 +61,7 @@ Wang Lin le regarda. Il ouvrit la main pour en sortir un morceau de jade. En pla
 
 En entendant le nom de Chu, il eut l'impression de l'avoir déjà entendu quelque part. Après avoir consulté le jade, il situa immédiatement sa position approximative. Le pays de Chu partageait une frontière avec Huo Fen au nord et Xuan Wu à l'est, et possédait même une petite frontière avec la Mer des Démons. Pour le reste, il y avait une chaîne de montagnes appelée les Roches Brisées.
 
-On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison que lorsque Huo Fen passa au 4e rang, ils choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
+On pouvait dire que le pays de culture Chu était très proche de cette chaîne de montagne. Selon les descriptions du jade, ce pays était vaste et abritait de nombreux cultivateurs. En tant que nation de culture, Chu était sur le point d'accéder au rang 4. Cela s'expliquait par la présence de plus de dix personnes au stade avancé de l'Âme Naissante; ces puissants cultivateurs constituaient le cœur du pays. Dès que l'un d'eux parviendrait au stade de la Formation de l'Âme, le pays entier serait élevé au rang 4. C'est d'ailleurs pour cette raison qu'après les bouleversements de Huo Fen, ses cultivateurs choisirent d'envahir Xuan Wu plutôt que Chu. Après tout, comparé à Chu, Xuan Wu était un choix bien plus opportun.
 
 Le jade contenait également des informations sur certaines sectes du pays de Chu. Wang Lin l'examina un instant, puis le rangea. Il regarda Xu Li et demanda: « Collègue cultivateur, dans quelle partie de Chu nous trouvons-nous? »
 
@@ -91,7 +91,7 @@ Mai Guorong hocha vigoureusement la tête. Même si Xu Li n'avait rien dit, il n
 
 Quant à Wang Lin, une fois sa position déterminée, il s'élança en balayant les environs de son sens divin. Selon la carte, la Secte Ciel Nuageux devait se trouver juste devant. Il hocha la tête, satisfait que ce duo maître-disciple ne lui ait pas menti. Lorsqu'il fut à proximité de sa destination, il s'arrêta. Puisque la secte était proche, il décida de trouver un endroit pour s'isoler en culture.
 
-Il s'arrêta sur un versant montagneux, à environ 7 000 ou 8 000 kilomètres de la Secte Ciel Nuageux. Après avoir inspecté les lieux, il tapa sur son sac de rangement et une épée volante en sortit. Il la projeta contre le flanc de la montagne.
+Il s'arrêta sur un versant montagneux, à environ 3 500 ou 4 000 kilomètres de la Secte Ciel Nuageux. Après avoir inspecté les lieux, il tapa sur son sac de rangement et une épée volante en sortit. Il la projeta contre le flanc de la montagne.
 
 Bientôt, une grotte fut creusée dans la paroi de la falaise. Elle fut aménagée selon ses préférences avec deux pièces. Une fois à l'intérieur, Wang Lin réfléchit un instant puis ouvrit la seconde pièce. Après avoir terminé ses préparatifs, il sortit de la grotte et fit sortir son drapeau de restriction de son sac de rangement. Ses mains formèrent des sceaux qu'il pointa vers le drapeau. Celui-ci commença à onduler sans vent et grandit dix fois.
 

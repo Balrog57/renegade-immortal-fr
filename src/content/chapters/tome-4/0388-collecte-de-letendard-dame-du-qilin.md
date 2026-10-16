@@ -73,9 +73,9 @@ La bête spirituelle se mit à sa poursuite. Une quantité massive de fragments 
 
 « Lève-toi! » cria Wang Lin en brandissant l'étendard.
 
-Une masse de gaz noir, de la taille d'un bras, jaillit de l'étendard doré et traversa toute la Montagne du Raffinement des Âmes. De loin, on pouvait voir ce nuage noir s'élancer dans le ciel au-dessus de la montagne avant de commencer à se propager.
+Une masse de gaz noir, de la taille d'un bras, jaillit de l'étendard doré et traversa toute la Montagne de l'Affinement de l'Âme. De loin, on pouvait voir ce nuage noir s'élancer dans le ciel au-dessus de la montagne avant de commencer à se propager.
 
-À cet instant, tous les disciples de la Montagne du Raffinement des Âmes contemplaient le ciel, stupéfaits. Ils avaient déjà entendu les rugissements venant du sous-sol, mais ils étaient si puissants que personne n'avait osé aller vérifier.
+À cet instant, tous les disciples de la Montagne de l'Affinement de l'Âme contemplaient le ciel, stupéfaits. Ils avaient déjà entendu les rugissements venant du sous-sol, mais ils étaient si puissants que personne n'avait osé aller vérifier.
 
 Les anneaux dorés entre les trois montagnes commencèrent à trembler doucement, et une personne sortit du huitième anneau. Cet homme avait les cheveux blancs et le visage sombre. Alors qu'il s'apprêtait à inspecter la situation, il s'arrêta soudainement, comme s'il avait entendu quelque chose. Il se retourna et s'inclina devant les deux anneaux de sang: « Selon les ordres de l'Ancêtre. »
 
@@ -87,9 +87,9 @@ En un clin d'œil, le Qilin qui avait été acculé par la bête spirituelle et 
 
 La bête spirituelle était furieuse. Elle vouait déjà une haine profonde à Wang Lin et, parce qu'il lui avait volé la proie qu'elle s'apprêtait à dévorer, elle chargea vers lui. Bien que Wang Lin ne puisse pas véritablement contrôler la bête, il pouvait encore la sceller. Il pointa le char et d'innombrables chaînes apparurent pour l'immobiliser. Tandis que la bête rugissait de rage, elle fut lentement traînée dans le char, qui reprit sa forme de piège à bêtes.
 
-Wang Lin ne remit pas le piège en place, mais le scella complètement avant de le ranger dans son sac. Il disparut pour réapparaître au sommet de la Montagne du Raffinement des Âmes. À cet instant, le gaz noir surplombant la montagne était extrêmement dense. Wang Lin fixa ce nuage et commença à réfléchir.
+Wang Lin ne remit pas le piège en place, mais le scella complètement avant de le ranger dans son sac. Il disparut pour réapparaître au sommet de la Montagne de l'Affinement de l'Âme. À cet instant, le gaz noir surplombant la montagne était extrêmement dense. Wang Lin fixa ce nuage et commença à réfléchir.
 
-« Le vacarme de cette bataille aurait dû attirer l'attention des cultivateurs de la Formation de l'Âme ou de rang supérieur de la Secte du Raffinement des Âmes, et pourtant, personne n'est venu. Cette affaire est intrigante... » Wang Lin observa les neuf anneaux dorés, puis jeta un regard attentif aux deux anneaux de sang. Bien qu'il n'ait pas encore recouvré toute sa culture, il n'avait aucune crainte. Même si un cultivateur de la Transformation de l'Âme se présentait, il pourrait toujours déchirer l'espace et s'échapper grâce à la boussole stellaire.
+« Le vacarme de cette bataille aurait dû attirer l'attention des cultivateurs de la Formation de l'Âme ou de rang supérieur de la Secte de l'Affinement de l'Âme, et pourtant, personne n'est venu. Cette affaire est intrigante... » Wang Lin observa les neuf anneaux dorés, puis jeta un regard attentif aux deux anneaux de sang. Bien qu'il n'ait pas encore recouvré toute sa culture, il n'avait aucune crainte. Même si un cultivateur de la Transformation de l'Âme se présentait, il pourrait toujours déchirer l'espace et s'échapper grâce à la boussole stellaire.
 
 Il aperçut vaguement, depuis l'un des anneaux de sang, une paire d'yeux antiques empreints de bonté qui posa un regard sur lui avant de disparaître instantanément.
 

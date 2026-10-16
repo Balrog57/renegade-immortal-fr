@@ -6,19 +6,19 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 579 - Ling Tianhous Sword Energy (Part 1)
 slug: lenergie-de-lepee-de-ling-tianhou-partie-1
 ---
-Un ricanement s'échappa d'un palais élégant au cœur de la cité impériale de Sky Demon City.
+Un ricanement s'échappa d'un palais élégant au cœur de la capitale de la Cité du Démon Céleste.
 
 « Se pourrait-il que ce petit morveux veuille défier Mo Lihai en duel avant le début du concours des généraux démons, espérant utiliser les mérites militaires qu'il a acquis en combattant le Pays Démon de Feu pour que je ne puisse pas le refuser? Ce gamin est intéressant, je l'autorise! »
 
 Une autre voix sépulcrale résonna dans le palais. « Cela... Empereur Démon, si les deux d'entre eux donnent un tel exemple, je crains que les autres généraux démons ne... »
 
-« Si quelqu'un d'autre possède 10 000 points de mérite militaire, alors je l'autoriserai également! »
+« Si quelqu'un d'autre possède dix millions de points de mérite militaire, alors je l'autoriserai également! »
 
 «... Oui! »
 
 Peu après, un vieil homme sortit du palais, un parchemin à la main. Il secoua légèrement la tête, puis repartit prestement.
 
-Le jour du concours des généraux démons approchait à grands pas. Toute la cité de Sky Demon était enveloppée d'une atmosphère oppressante, et d'innombrables combats éclataient chaque jour.
+Le jour du concours des généraux démons approchait à grands pas. Toute la Cité du Démon Céleste était enveloppée d'une atmosphère oppressante, et d'innombrables combats éclataient chaque jour.
 
 Wang Lin, assis au bord de la rivière, reposa sa cruche de vin, leva les yeux vers le ciel et murmura pour lui-même: « C’est un jeu! »
 
@@ -28,7 +28,7 @@ Il réfléchit un instant avant de se lever et de s'éloigner lentement.
 
 Nous étions déjà au septième jour; il restait donc encore huit jours avant le concours des généraux démons!
 
-Le crépuscule tombait, et en raison de l'aura oppressante qui régnait sur Sky Demon City, les passants se faisaient rares. Un jeune homme vêtu d'une robe verte marchait lentement vers la demeure de Mo, à une distance de mille pieds.
+Le crépuscule tombait, et en raison de l'aura oppressante qui régnait sur la Cité du Démon Céleste, les passants se faisaient rares. Un jeune homme vêtu d'une robe verte marchait lentement vers la demeure de Mo, à une distance de 330 mètres.
 
 Il portait une grande épée dans le dos et son expression était d'un calme imperturbable tandis qu'il progressait. À mesure qu'il approchait, une subtile énergie spirituelle céleste commença à se diffuser autour de lui.
 
@@ -70,7 +70,7 @@ Les trois vieillards prirent des expressions graves et s'apprêtèrent à utilis
 
 « Qui vous a envoyé?! » Cette voix était empreinte de majesté. Les trois anciens s'écartèrent immédiatement et respectueusement, révélant la silhouette imposante de Mo Lihai.
 
-Lorsque Mo Lihai dévisagea le jeune homme de la Secte de l'Épée Da Lou, ses yeux brillaient comme des flammes ardentes. Son aura était alors encore plus imposante que lorsqu'il avait affronté Wang Lin dans la Cité de l'Ancien Démon.
+Lorsque Mo Lihai dévisagea le jeune homme de la Secte de l'Épée Da Lou, ses yeux brillaient comme des flammes ardentes. Son aura était alors encore plus imposante que lorsqu'il avait affronté Wang Lin dans la Grande Muraille Antique.
 
 Les yeux de l'homme de la Secte de l'Épée Da Lou s'illuminèrent; il s'arrêta et déclara: « Général Démon Mo Fei! »
 
@@ -86,7 +86,7 @@ Un seul mot y était inscrit: Combat!
 
 Mais au moment de se retourner, tout son corps se raidit et il libéra une aura puissante. Cette aura était extrêmement vigoureuse, bien plus que celle qu'il avait dégagée en entrant dans la demeure de Mo.
 
-Ses yeux brillèrent alors qu'il fixait une silhouette mince apparue à mille pieds de lui: « Septième disciple de la Division Pourpre, Wang Lin! »
+Ses yeux brillèrent alors qu'il fixait une silhouette mince apparue à 330 mètres de lui: « Septième disciple de la Division Pourpre, Wang Lin! »
 
 Mo Lihai ne remarqua l'apparition de Wang Lin qu'à cet instant, ce qui le détendit légèrement.
 
@@ -138,7 +138,7 @@ L'illusion d'un immense bélier violet émana du symbole, libérant une aura vio
 
 « Tranchant Final du Bélier! » Alors que l'homme criait, l'énergie spirituelle céleste de son corps jaillit. Il abattit immédiatement sa main droite tandis que la grande épée dans les airs s'élançait. Elle s'abattit sur Wang Lin avec une quantité inimaginable d'énergie d'épée.
 
-L'expression de Mo Lihai changea et il commença aussitôt à reculer. Ses subordonnés firent de même, et en un clin d'œil, ils s'étaient éloignés de plusieurs milliers de pieds.
+L'expression de Mo Lihai changea et il commença aussitôt à reculer. Ses subordonnés firent de même, et en un clin d'œil, ils s'étaient éloignés de plusieurs centaines de mètres.
 
 La lame géante descendit comme la foudre, accompagnée de rugissements tonitruants.
 

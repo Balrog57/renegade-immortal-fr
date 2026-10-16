@@ -8,7 +8,7 @@ slug: combustion
 ---
 En un instant, la vision de Wang Lin se brouilla et son corps s'effondra au sol.
 
-Li Yuan affichait un visage pâle lorsqu'il atterrit à trente mètres de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la rapidité des haut-le-cœur était telle que son corps semblait presque incapable de les supporter.
+Li Yuan affichait un visage pâle lorsqu'il atterrit à trente-trois mètres de Wang Lin. Quant à la femme nommée Ge, elle était livide et commença immédiatement à vomir; la rapidité des haut-le-cœur était telle que son corps semblait presque incapable de les supporter.
 
 Dès qu'il toucha terre, Wang Lin ressentit une douleur fulgurante émanant de la sphère de lumière logée dans sa poitrine. Cette souffrance était si intense qu'elle manqua de le submerger totalement.
 
@@ -20,7 +20,7 @@ Une lueur de férocité passa dans le regard de la femme nommée Ge alors qu'ell
 
 Dès l'apparition de l'arme, d'innombrables spectres surgirent autour d'elle. Ce poignard était un héritage familial hautement toxique: son venin pouvait corroder la chair, et le fantôme scellé en son sein s'avérait extrêmement délétère pour l'âme originelle.
 
-Li Yuan fronça légèrement les sourcils, mais ne l'interrompit pas. Si cette femme l'assassinait ainsi, même si elle atteignait l'endroit convoité, elle ne pourrait jamais parvenir à la destination finale.
+Li Yuan fronça légèrement les sourcils, mais ne l'interrompit pas. Si cette femme le tuait ainsi, cela prouverait que, même s'il atteignait l'endroit convoité, il ne pourrait jamais parvenir à la destination finale.
 
 La femme nommée Ge savait qu'il s'agissait d'une opportunité unique. Si elle la laissait passer, elle n'en aurait peut-être plus jamais l'occasion. Serrant les dents, elle brandit le poignard et s'apprêta à s'élancer.
 
@@ -52,7 +52,7 @@ Wang Lin restait serein. Tout en les suivant, il subissait la douleur intérieur
 
 D'un côté, il lui était reconnaissant de lui avoir offert cette opportunité: malgré l'agonie, son niveau de culture augmentait inexorablement. De l'autre, il éprouvait une haine profonde envers ce vieillard pour lui avoir dérobé la Bête du Tonnerre et s'être joué de lui à deux reprises.
 
-Après un soupir silencieux, Wang Lin concentra son esprit pour réprimer la douleur. Il sentait clairement que son corps subissait une métamorphose depuis l'absorption de la sphère de lumière. C'était comme si celle-ci tentait de condenser le tonnerre au sein de ses membres pour forger un véritable corps de chair et de sang.
+Après un soupir silencieux, Wang Lin concentra son esprit pour réprimer la douleur. Il sentait clairement que son corps subissait une métamorphose depuis l'absorption de la sphère de lumière. C'était comme si celle-ci tentait de faire repasser son corps de tonnerre à un véritable corps de chair et de sang.
 
 Wang Lin ignorait combien de temps ce processus durerait, mais il avait le sentiment qu'une fois la transformation achevée et la douleur dissipée, il franchirait la première étape de sa culture!
 

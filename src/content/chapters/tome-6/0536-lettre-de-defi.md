@@ -70,7 +70,7 @@ Puisque cette personne avait envoyé un tel message, Wang Lin voulait voir quel 
 
 Wang Lin était doté d'une grande intelligence. Si le niveau de culture de cet adversaire était bien supérieur au sien, il retournerait simplement au village pour soigner Treize et éviterait soigneusement cette tribu. Bien qu'une telle possibilité existe, elle était infime. D'après ce que Wang Lin avait observé via le sort utilisé sur Treize, l'individu n'était qu'au stade de la Formation de l'Âme.
 
-Fort de cette pensée, il laissa échapper un renflement glacial et s'élança comme une météorite traversant le ciel.
+Fort de cette pensée, il laissa échapper un reniflement glacial et s'élança comme une météorite traversant le ciel.
 
 La Tribu des Eaux Célestes résidait dans une vaste plaine du nord-ouest du Territoire de l'Esprit Démoniaque. La zone était entourée de terres planes; à l'origine, ce n'était pas un lieu propice à l'habitation, mais une formation ancienne y était établie. Cette formation était extrêmement puissante: une fois activée, tout ce qui se trouvait dans un rayon de cinq kilomètres était protégé. Même durant la nuit des esprits démoniaques, l'intérieur restait parfaitement sûr.
 
@@ -90,7 +90,7 @@ L'Ancien en robe grise hocha la tête et dit: « Vous avez blessé le disciple d
 
 Les yeux du vieillard en robe blanche brillèrent d'une lueur malicieuse: « Que voulez-vous dire par "que devrez-vous faire"? Utilisez simplement la formation pour tuer cet individu! »
 
-L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux: « Ces gens n'étaient pas simples. Presque tous possédaient une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
+L'Ancien en robe grise fronça les sourcils et déclara d'un ton sérieux: « Ces gens n'étaient pas simples. Presque tous possédaient plus d'une étoile d'énergie spirituelle démoniaque et maîtrisaient des sorts démoniaques, particulièrement celui qui menait la troupe. Grâce à ces petits drapeaux, il pouvait contrôler les esprits démoniaques pour attaquer. Au début, ils nous contournaient, mais vous avez manifesté un intérêt pour son drapeau. Non seulement vous les avez tués pour leurs trésors, mais vous avez même laissé le chef s'échapper pour qu'il serve de lettre de défi et attire son protecteur. Vous êtes allé un peu trop loin. »
 
 L'homme en robe blanche rit: « Je suis un garde d'honneur sous les ordres du général de l'aile gauche de la Cité Démoniaque Ancienne. Comment tuer quelques sauvages pourrait-il être excessif? De plus, j'ai déduit que celui qui les dirigeait n'était pas puissant. Pourquoi serait-il encore ici, dans une tribu? S'il était fort, il serait déjà allé à la Cité Démoniaque Ancienne pour obtenir un poste de prestige. Je l'ai attiré ici car je veux obtenir la méthode d'utilisation de ce petit drapeau. S'il vient, tant mieux; sinon, je suivrai la marque que j'ai laissée sur le jeune homme pour la lui voler! »
 

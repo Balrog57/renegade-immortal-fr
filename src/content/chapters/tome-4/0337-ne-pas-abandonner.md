@@ -32,15 +32,15 @@ Parfois, elle levait la tête et voyait Wang Lin cultiver à proximité. Ses yeu
 
 Li Muwan soupira intérieurement.
 
-Après un mois de recherches pour trouver des substituts, Ouyang Zi fut également appelé par Wang Lin. Malheureusement, l'autre alchimiste de rang 6, Tian Yunzi, était mort des années auparavant en tentant d'atteindre le stade de l'Âme Naissante. Avec les trois d'eux étudiant la recette, le processus serait bien plus rapide.
+Après un mois de recherches pour trouver des substituts, Ouyang Zi fut également appelé par Wang Lin. Malheureusement, le dernier alchimiste de rang 5 de la Secte du Ciel Nuageux, Tian Yunzi, était mort des années auparavant en tentant d'atteindre la Formation de l'Âme. Avec trois alchimistes sur cette recette, le processus aurait été bien plus rapide.
 
-Ouyang Zi était passionné par l'alchimie; c'était comme s'il était né pour cela. Lorsqu'il vit la recette de pilule de rang 6, ce fut comme s'il avait trouvé sa raison d'être. Il devint immédiatement un homme possédé, se lançant dans l'étude des substitutions et des combinaisons des 138 ingrédients.
+Ouyang Zi était passionné par l'alchimie; c'était comme s'il était né pour cela. Lorsqu'il vit la recette de pilule de rang 6, ce fut comme s'il avait trouvé sa raison d'être. Il devint immédiatement un homme possédé, se lançant dans l'étude des substitutions et des combinaisons des 137 ingrédients.
 
 Chaque fois qu'un substitut était trouvé, Liu Fei et Song Qing effectuaient des recherches et faisaient acheminer l'ingrédient.
 
 Si la Secte du Ciel Nuageux ne le possédait pas, ils l'achetaient à prix d'or auprès de sectes d'autres pays. Si cela restait impossible, ils recherchaient l'emplacement de l'ingrédient et chargeaient Lu Fei et Tie Yan de le récolter.
 
-Le temps passa rapidement. Deux ans plus tard, sur les 138 ingrédients, il n'en restait plus que trois. Malheureusement, ils n'avaient toujours pas trouvé de substituts pour ces derniers.
+Le temps passa rapidement. Deux ans plus tard, sur les 137 ingrédients, il n'en restait plus que trois. Malheureusement, ils n'avaient toujours pas trouvé de substituts pour ces derniers.
 
 Durant ces deux années, Ouyang Zi avait tout oublié. Il était totalement absorbé par la recette de pilule de rang 6.
 
@@ -68,11 +68,11 @@ Ces scènes du passé surgirent dans son esprit. Il finit le vin en quelques gor
 
 Le regard de Wang Lin se fit grave alors qu'il fixait Ouyang Zi.
 
-Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disant: « Ces trois ingrédients sont éteints, mais j'ai trouvé une combinaison de 37 autres composants qui produiront le même effet. Bien que l'efficacité soit moindre, elle ne devrait pas trop s'écarter de l'original. »
+Ouyang Zi sortit rapidement un morceau de jade. Il le tendit à Wang Lin en disant: « Ces trois ingrédients sont éteints, mais j'ai trouvé une combinaison de 34 autres composants qui produiront le même effet. Bien que l'efficacité soit moindre, elle ne devrait pas trop s'écarter de l'original. »
 
 Wang Lin accepta le jade, le parcourut de son sens divin et en mémorisa instantanément le contenu.
 
-Ouyang Zi ajouta: « Ces ingrédients sont très rares. Le Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de culture de rang 4 pour obtenir le reste. »
+Ouyang Zi ajouta: « Ces ingrédients sont très rares. La Secte du Ciel Nuageux n'en possède que quatre. Nous devrons nous rendre dans un pays de culture de rang 4 pour obtenir le reste. »
 
 Wang Lin se leva. Le jade à la main, il disparut.
 
@@ -120,7 +120,7 @@ Li Muwan se mordit la lèvre inférieure et hocha doucement la tête. Elle s'app
 
 Le retour de Wang Lin poussa Ouyang Zi à se consacrer corps et âme à la raffinage de la pilule de rang 6. Son vœu le plus cher était de réussir une telle prouesse; c'était comme si son âme s'en trouvait embrasée.
 
-Presque tous les ingrédients de substitution avaient été choisis après de longues recherches. Il utilisa plus de 1000 composants pour remplacer les 138 originaux, en calculant scrupuleusement l'effet de chaque élément et le temps nécessaire à leur raffinage.
+Presque tous les ingrédients de substitution avaient été choisis après de longues recherches. Il utilisa près de 1 000 composants pour remplacer les 137 originaux, en calculant scrupuleusement l'effet de chaque élément et le temps nécessaire à leur raffinage.
 
 Sans une expérience inégalée en alchimie, il n'aurait jamais pu y parvenir.
 

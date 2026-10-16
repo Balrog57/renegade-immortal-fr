@@ -106,7 +106,7 @@ Le trou noir formé par ces cent âmes tournait frénétiquement. En un instant,
 
 On y voyait d'immenses édifices qui semblaient poignarder le vide comme des épées, et une intention meurtrière surpuissante recouvrait tout.
 
-Au centre se dressait une tour d'au moins 10 000 pieds de haut. Des chaînes noires pendaient de la tour, la reliant aux bâtiments environnants.
+Au centre se dressait une tour d'au moins trois kilomètres de haut. Des chaînes noires pendaient de la tour, la reliant aux bâtiments environnants.
 
 C'était le Royaume de la Massacre!
 

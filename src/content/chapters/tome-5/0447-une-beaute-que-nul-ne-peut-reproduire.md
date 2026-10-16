@@ -28,7 +28,7 @@ Bien que la section intérieure fût plus restreinte que la section extérieure,
 
 Durant ses jours passés dans la section intérieure, il n'avait toujours pas trouvé la première tombe de Suzaku. Au fil du temps, de plus en plus de cultivateurs et de membres du Clan des Immortels Délaissés pénétraient dans cette zone.
 
-Qian Feng avait vu de ses propres yeux les yeux d'un familier cultivateur de Transformation de l'Âme s'éteindre et mourir, après que quelques membres du Clan des Immortels Délaissés eurent déployé toute leur puissance pour terrasser l'une de ces formes de vie.
+Qian Feng avait vu de ses propres yeux les yeux d'un cultivateur de la Transformation de l'Âme qu'il connaissait s'éteindre et mourir, après que quelques membres du Clan des Immortels Délaissés eurent déployé toute leur puissance pour terrasser l'une de ces formes de vie.
 
 Cette scène avait profondément choqué les témoins.
 
@@ -36,7 +36,7 @@ Qian Feng comprit alors que l'âme originelle de cet homme s'était brisée et q
 
 Tous ceux qui avaient pénétré dans le Tombeau de Suzaku étaient perspicaces et comprirent immédiatement la portée de cet événement. En conséquence, lors des combats contre ces formes de vie, certains commencèrent à se retenir; mais plus ils hésitaient, plus il devenait difficile de l'emporter. C'était un cercle vicieux.
 
-Cela faisait plus d'un demi-mois que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Culture. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
+Cela faisait près de quinze jours que Qian Feng était assis devant cette grotte. Son anxiété grandissait et l'irritait au plus haut point. Il ignorait combien de temps il lui restait avant l'effondrement du Cristal de la Planète de Culture. S'il ne parvenait pas à récupérer son fragment d'âme, la mort serait sa seule issue.
 
 « Zhuque Zi, espèce de vieux sac d'os! Si tu dois mourir, meurs, et basta! Pourquoi faut-il que tout le monde soit entraîné dans ta chute?! » Qian Feng serra les dents et frappa violemment le sol.
 
@@ -60,7 +60,7 @@ Le visage de Qian Feng était livide tandis qu'il scrutait les profondeurs de la
 
 Peu après, un rugissement retentit de l'intérieur et le sol commença à trembler. Le Papillon Rouge surgit de la grotte pour se placer aux côtés de Qian Feng.
 
-Simultanément, une silhouette imposante émergea des ténèbres. C'était un géant de trente mètres de haut dont le corps dégageait une fumée noire. Chaque pas qu'il faisait faisait vaciller la terre.
+Simultanément, une silhouette imposante émergea des ténèbres. C'était un géant de plus de 33 mètres de haut dont le corps dégageait une fumée noire. Chaque pas qu'il faisait faisait vaciller la terre.
 
 Alors que le géant sortait, les yeux de Qian Feng devinrent glacials et il pointa l'entité du doigt. La petite sphère au bout de son doigt fonça vers le colosse.
 
@@ -90,7 +90,7 @@ Wang Lin n'avait pas le temps de vérifier si sa méthode fonctionnait réelleme
 
 « Je suis immortel! Lorsque les fragments d'âme qui me composent s'éteindront, je pourrai en rassembler d'autres pour me reformer! » Le rugissement de Murong Yun résonna depuis l'intérieur de la sphère.
 
-Wang Lin eut un reniflement méprisant et atterrit au pied de la montagne. Il pointa le sol et y creusa un trou d'une profondeur de plusieurs dizaines de mètres.
+Wang Lin eut un reniflement méprisant et atterrit au pied de la montagne. Il pointa le sol et y creusa un trou d'une dizaine de mètres de profondeur.
 
 Il sauta dans la fosse, y déposa la sphère et commença à disposer des restrictions tout autour.
 

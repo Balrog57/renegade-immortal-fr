@@ -10,7 +10,7 @@ Ce rugissement déchira les cieux. Tous les disciples des six autres divisions f
 
 Certains invités affichaient une lueur mystérieuse dans le regard, tandis que certains vieux monstres prenaient des airs pensifs. Même le Saint de l'Épée, Ling Tianhou, laissa paraître un choc à l'apparition de la bête spirituelle.
 
-Wang Lin flotta dans les airs et hurla: « Dévorons-le! »
+Wang Lin flotta dans les airs et hurla: « Dévore-le! »
 
 La bête spirituelle poussa un rugissement et chargea. Sa vitesse était fulgurante alors qu'elle fonçait sur Chen Tao.
 
@@ -18,7 +18,7 @@ Une pointe d'intention de combat brilla dans les yeux de Chen Tao, et sa main tr
 
 Dans un fracas assourdissant, l'onde de choc fit souffrir les oreilles de la plupart des cultivateurs environnants. Chen Tao resta immobile, mais ses vêtements étaient en lambeaux, lui donnant une apparence très débraillée.
 
-Quant à la bête spirituelle, elle fut repoussée de plusieurs centaines de pieds. Elle secoua son corps, poussa un nouveau rugissement et chargea de nouveau avec frénésie. Cette fois, plusieurs chaînes apparurent sur son corps, tendues à l'extrême: une extrémité était reliée à sa carcasse, l'autre au char de guerre.
+Quant à la bête spirituelle, elle fut repoussée de près d'un kilomètre. Elle secoua son corps, poussa un nouveau rugissement et chargea de nouveau avec frénésie. Cette fois, plusieurs chaînes apparurent sur son corps, tendues à l'extrême: une extrémité était reliée à sa carcasse, l'autre au char de guerre.
 
 L'intention de combat dans les yeux de Chen Tao s'intensifia tandis qu'il riait: « Quelle excellente bête! C'est passionnant! »
 
@@ -42,7 +42,7 @@ Lorsque Wang Lin avait obtenu le char de guerre, il en avait aussi reçu l'héri
 
 Aujourd'hui, c'était la première fois qu'il levait le premier des cinq sceaux, augmentant ainsi radicalement sa puissance!
 
-Le Char de Guerre Divin était une relique capable d'égorger des dieux célestes; comment aurait-il pu être faible? Une fois les cinq sceaux libérés, sa puissance serait inimaginable.
+Le Char de Guerre Divin était une relique capable d'abattre les trésors des immortels et des dieux; comment aurait-il pu être faible? Une fois les cinq sceaux libérés, sa puissance serait inimaginable.
 
 Toutefois, avec le niveau de culture actuel de Wang Lin, lever ne serait-ce que le premier sceau était extrêmement périlleux. S'il perdait le contrôle, il subirait un contrecoup dévastateur du char. Mais puisque sa culture avait atteint le stade intermédiaire de la Transformation de l'Âme, il éprouvait une certaine confiance, sans quoi il n'aurait pas pris cette décision si promptement.
 
@@ -50,7 +50,7 @@ Non seulement l'aura de la bête spirituelle changea avec la levée du premier s
 
 La lueur noire glissa le long des chaînes pour pénétrer dans le corps de la bête spirituelle.
 
-Celle-ci poussa un rugissement maniaque et son corps grandit soudainement de plusieurs multiples, passant de quelques dizaines de pieds à plusieurs centaines. Elle se dressa telle une bête titanesque avant de secouer violemment son corps.
+Celle-ci poussa un rugissement maniaque et son corps grandit soudainement de plusieurs multiples, passant d'une centaine de mètres à plus de trois cents mètres. Elle se dressa telle une bête titanesque avant de secouer violemment son corps.
 
 Pour la première fois, Chen Tao, qui se tenait sur elle, vit son expression changer brusquement!
 
@@ -80,7 +80,7 @@ Ce n'est qu'au stade intermédiaire de la Transformation de l'Âme qu'il pouvait
 
 Le petit doigt droit de Wang Lin pointait vers Chen Tao. À cet instant, il n'y avait plus aucune énergie spirituelle céleste dans son corps, et même son aura vitale s'étiolait lentement. Il ne restait plus aucune trace de vie en lui.
 
-Cette scène terrifia la majorité des cultivateurs environnants. Même l'Omniscient prit un air sérieux pour observer de plus près. Le Saint de l'Épée, Ling Tianhou, fixa Wang Lin avec un sourire mystérieux: « Cet enfant n'est pas mauvais! »
+Cette scène stupéfia la majorité des cultivateurs environnants. Même l'Omniscient prit un air sérieux pour observer de plus près. Le Saint de l'Épée, Ling Tianhou, fixa Wang Lin avec un sourire mystérieux: « Cet enfant n'est pas mauvais! »
 
 Parmi les spectateurs, un vieil homme au visage rubicond, portant une immense gourde rouge dans le dos, laissa échapper un rot d'ivrogne en murmurant: « Pourquoi ce sort ressemble-t-il exactement à celui utilisé par ce fou que j'ai croisé en chemin? »
 
@@ -106,7 +106,7 @@ L'intention de combat dans les yeux de Chen Tao s'intensifia; son corps vacilla 
 
 Un bruit fracassant, capable de briser le ciel, résonna devant Chen Tao. Le firmament sembla être déchiré par une tornade et le domaine de la vie et de la mort se dissipa.
 
-Le corps de Wang Lin fut projeté en arrière de plusieurs dizaines de pieds, puis recula encore de plusieurs centaines de pieds avant de cracher une gorgée de sang. L'énergie spirituelle céleste dans son corps était totalement déréglée. Il leva les yeux vers Chen Tao et dit d'un ton sombre: « Je me rends! »
+Le corps de Wang Lin fut projeté en arrière d'une centaine de mètres, puis recula encore de plus de trois cents mètres avant de cracher une gorgée de sang. L'énergie spirituelle céleste dans son corps était totalement déréglée. Il leva les yeux vers Chen Tao et dit d'un ton sombre: « Je me rends! »
 
 Quant à Chen Tao, son expression était redevenue normale alors qu'il baissait ses bras, fixant Wang Lin d'un regard indifférent. Son intention de combat ne faiblit pas, elle s'intensifia même lorsqu'il déclara solennellement: « Une fois que tu auras atteint le stade Ascendant, nous nous battrons à nouveau, Septième Frère! »
 
@@ -124,7 +124,7 @@ L'Omniscient hocha la tête, puis son regard parcourut les cultivateurs présent
 
 De nombreux cultivateurs répondirent poliment, mais la plupart partirent aussitôt. En une seule journée, des dizaines de milliers de rayons de lumière quittèrent la Secte du Destin Céleste pour s'enfoncer dans l'horizon.
 
-Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Omniscient, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer des Esprits Démoniaques de l'Est. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
+Le Saint de l'Épée, Ling Tianhou, sourit et, d'un pas de trente-trois mètres, se transforma en un rayon de lumière pour s'éloigner. En partant, il lança: « Vieux Omniscient, comme convenu, nous nous retrouverons dans trois mois devant la porte de la Mer des Esprits Démoniaques de l'Est. Tu ferais mieux d'avoir déjà choisi les hommes que tu enverras! »
 
 Les yeux de l'Omniscient devinrent sérieux et il hocha la tête. Il se tourna vers Wang Lin et dit: « Wang Lin, suis-moi pour vénérer l'esprit ancestral. Ensuite, Maître t'enseignera un sort interdit et te remettra un trésor de protection. Après cela, tu seras considéré comme mon véritable disciple! »
 

@@ -10,7 +10,7 @@ Situ Nan lui avait expliqué que durant l'étape de la Transformation de l'Âme,
 
 Wang Lin, assis en tailleur sur le sol, sortit sa calebasse, en prit une longue gorgée et commença à cultiver pour progresser vers le stade intermédiaire de l'Établissement des Fondations. S'il avait choisi cet endroit, c'était parce que Situ Nan lui avait affirmé que cela l'aiderait à récupérer.
 
-Le temps s'écoula lentement et, en un clin d'œil, l'échéance pour participer au champ de bataille étranger approcha. De nombreux cultivateurs étaient arrivés aux abords de la vallée de Jue Ming depuis des mois. Ils avaient tous élu les meilleurs emplacements pour surveiller l'unique issue de la vallée.
+Le temps s'écoula lentement et, en un clin d'œil, l'échéance pour participer au champ de bataille étranger approcha. De nombreux cultivateurs étaient arrivés aux abords de la vallée de Jue Ming depuis un mois. Ils avaient tous élu les meilleurs emplacements pour surveiller l'unique issue de la vallée.
 
 À mesure que les effectifs augmentaient, les environs de la vallée de Jue Ming devenaient de plus en plus animés. Bien entendu, dès que des individus porteurs de griefs se croisaient, de violents affrontements éclataient.
 
@@ -20,7 +20,7 @@ Le champ de bataille étranger n'ouvrant ses portes que tous les cent ans, des b
 
 Ce jour-là, d'innombrables cultivateurs s'étaient rassemblés devant la vallée de Jue Ming, venus de toutes les sectes de Zhao. Hormis les très grandes sectes qui disposaient de leurs propres zones, les autres formaient des groupes compacts. Le reste des gens appartenait à de petites familles, de petites sectes ou étaient des cultivateurs indépendants.
 
-Ces petites lignées et ces solitaires n'avaient pas le droit d'entrer dans le champ de bataille étranger. Ils se présentaient là dans l'espoir de profiter de l'occasion: chaque fois que le champ de bataille s'ouvrait, une immense quantité d'énergie spirituelle s'en échappait. En absorber ne serait-ce qu'un peu équivalait à des semaines de culture.
+Ces petites lignées et ces solitaires n'avaient pas le droit d'entrer dans le champ de bataille étranger. Ils se présentaient là dans l'espoir de profiter de l'occasion: chaque fois que le champ de bataille s'ouvrait, une immense quantité d'énergie spirituelle s'en échappait. En absorber ne serait-ce qu'un peu équivalait à plusieurs fois une journée ordinaire de culture.
 
 Voyant que la vallée de Jue Ming était sur le point de s'ouvrir, chacun trouva un endroit pour attendre l'instant fatidique.
 
@@ -72,6 +72,6 @@ Le visage de Xin Hai s'assombrit: « Tant de morts... Bien! Quelle secte les a m
 
 Le premier disciple à genoux hésita. Xin Hai fit un geste de la main et une barrière enveloppa les disciples de la secte Piao Miao. Shangguan Yun leva la tête, moqueur en pensée.
 
-Après avoir bloqué le Sens Divin des autres, Xin Hai fit signe au disciple de parler, et celui-ci finit par tout déballer. En écoutant le récit, Xin Hai fut stupéfait et son regard se glaça. Après un silence, il laissa échapper un reniflement froid: « Restez derrière moi. Je dois voir qui est vraiment ce individu. » Sur ce, d'un revers de main, il fit disparaître la barrière.
+Après avoir bloqué le Sens Divin des autres, Xin Hai fit signe au disciple de parler, et celui-ci finit par tout déballer. En écoutant le récit, Xin Hai fut stupéfait et son regard se glaça. Après un silence, il laissa échapper un reniflement froid: « Restez derrière moi. Je dois voir qui est vraiment cet individu. » Sur ce, d'un revers de main, il fit disparaître la barrière.
 
 Shangguan Yun, sur le côté, demanda: « Pourquoi la cultivatrice Xu Mei n'est-elle pas là? »

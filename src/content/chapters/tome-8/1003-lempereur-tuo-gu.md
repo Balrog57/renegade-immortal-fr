@@ -36,7 +36,7 @@ L'homme d'âge moyen se leva, joignit ses mains et déclara: « Frère Wang, j'a
 
 « J'aimerais demander à Wang Lin de sortir cet esprit de la Terre des Esprits Démoniaques, afin qu'elle puisse entrer dans le cycle de la réincarnation ou rencontrer d'autres opportunités... »
 
-L'expression de l'homme d'âge moyen était sombre alors que sa main droite pointait vers le vide. Un rayon d'énergie d'épée jaillit du palais, et l'Épée Impériale se trouvait au cœur de cette énergie!
+L'expression de l'homme d'âge moyen était sombre alors que sa main droite pointait vers le vide. Un rayon d'énergie d'épée jaillit en direction de la capitale impériale, et l'Épée Impériale se trouvait au cœur de cette énergie!
 
 Wang Lin réfléchit un instant avant de dire lentement: « Pourquoi ne cherchez-vous pas quelqu'un d'autre? »
 
@@ -92,7 +92,7 @@ Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour
 
 Une petite rivière coulait à cent pas de là, enveloppée d'une fine couche de brume. Un pont de pierre reliait les deux rives. Ce pont était l'unique entrée.
 
-« Cet endroit est très étrange. Nous sommes bloqués ici depuis cinq heures. Peu importe mes calculs, je ne parviens pas à saisir la logique de cette restriction. Cependant, j'ai le sentiment que si nous tentons de l'ouvrir par la force, cela déclenchera une réaction en chaîne inimaginable. Nous ne pouvons donc pas agir brutalement. » Maître Hollow Wind hocha la tête vers Wang Lin pour lui expliquer la situation en détail. Il craignait que Wang Lin, ignorant tout des restrictions, n'exige de forcer le passage.
+« Cet endroit est très étrange. Nous sommes bloqués ici depuis dix heures. Peu importe mes calculs, je ne parviens pas à saisir la logique de cette restriction. Cependant, j'ai le sentiment que si nous tentons de l'ouvrir par la force, cela déclenchera une réaction en chaîne inimaginable. Nous ne pouvons donc pas agir brutalement. » Maître Hollow Wind hocha la tête vers Wang Lin pour lui expliquer la situation en détail. Il craignait que Wang Lin, ignorant tout des restrictions, n'exige de forcer le passage.
 
 L'expression de Wang Lin resta neutre tandis que son regard se posait sur le pont de pierre; il ne dit mot.
 

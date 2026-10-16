@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 632 - The Seed to Break Relations With the Omniscient
 slug: la-graine-pour-rompre-les-liens-avec-lomniscient
 ---
-Wu Ma, qui se tenait aux côtés de Cheng Long, affichait une expression abattue et murmura: « Le corps de Shen Hou a déjà été dévoré par ces créatures; même son âme originelle n'a pu s'échapper... »
+Wu Ma, qui se tenait aux côtés de Chen Long, affichait une expression abattue et murmura: « Le corps de Shen Hou a déjà été dévoré par ces créatures; même son âme originelle n'a pu s'échapper... »
 
-Cheng Long laissa poindre une expression amère. Des Douze Épées, outre Wei Yan qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Cupidité jusqu'à cet Abîme des Marées.
+Chen Long laissa poindre une expression amère. Des Douze Épées, outre Mo Yang qui était mort, et Zi Shu et Hai Zhu qui étaient restés à l'extérieur, les neuf autres membres avaient tous suivi Cupidité jusqu'à cet Abîme des Marées.
 
 Cupidité avait affirmé qu'après avoir observé les lieux pendant un certain temps, il en était conclu que le plus grand trésor de la Terre des Esprits Démoniaques se trouvait dans cet Abîme des Marées. Tous, à l'exception de Chen Long, avaient été tentés par ses paroles.
 

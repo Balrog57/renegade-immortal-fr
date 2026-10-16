@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 425 - Boy
 slug: garcon
 ---
-Zhuque Zi réfléchit un instant. Son expression devint très troublée avant qu'il ne laisse échapper un soupir. Il n'avait vraiment pas le courage de tester sa théorie. Il frappa le sol du pied, provoquant une immense fissure dans le ciel, tandis qu'il fixait avec férocité la direction de Pilu.
+Zhuque Zi réfléchit un instant. Son expression devint très troublée avant qu'il ne laisse échapper un soupir. Il n'avait vraiment pas le courage de sonder la véritable force de son adversaire. Il frappa le sol du pied, provoquant une immense fissure dans le ciel, tandis qu'il fixait avec férocité la direction de Pilu.
 
 « Deuxième génération Suzaku… » Zhuque Zi s'envola vers le Mont Suzaku.
 
@@ -60,19 +60,19 @@ Wang Lin sourit amèrement. Il regarda Du Tian et dit: « C'est Situ Nan. »
 
 « Situ Nan? » Du Tian réfléchit longuement, mais aucun expert de ce nom ne lui venait à l'esprit.
 
-Puis Wang Lin ajouta: « Le deuxième génération Suzaku! »
+Puis Wang Lin ajouta: « La deuxième génération de Suzaku! »
 
 Le corps de Du Tian trembla et il recula en titubant, les yeux écarquillés par un choc extrême. Il comprit enfin pourquoi Zhuque Zi avait pris la fuite.
 
-La renommée du deuxième génération Suzaku était immense; à certains égards, elle surpassait même celle du premier.
+La renommée de la deuxième génération de Suzaku était immense; à certains égards, elle surpassait même celle du premier.
 
 Peu après, Du Tian prit une profonde inspiration. Il s'inclina respectueusement devant Situ Nan et dit: « Le cadet Du Tian, de la Secte de Raffinement des Âmes, salue l'Aîné. »
 
 Situ Nan hocha la tête et répondit: « Étant donné que tu as protégé Wang Lin et que tu lui remets le drapeau de l'âme d'un milliard d'âmes, ce vieil homme te promet que, si l'occasion se présente, j'aiderai à ressusciter la Secte de Raffinement des Âmes! » Situ Nan se remémora le passé. Si ce n'avait été pour son ami de la Secte de Raffinement des Âmes, il n'aurait même pas eu le temps de s'échapper dans la perle défiant le ciel lors de la bataille contre les cultivateurs étrangers.
 
-Un sourire apparut sur le visage de Du Tian. Il avait sacrifié toute sa vie pour la Secte de Raffinement des Âmes, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir son secte en vie.
+Un sourire apparut sur le visage de Du Tian. Il avait sacrifié toute sa vie pour la Secte de Raffinement des Âmes, et c'était son souci le plus constant. C'est pour cette raison qu'il était prêt à utiliser ses derniers instants pour se lier d'amitié avec Wang Lin; tout cela afin de trouver un moyen de maintenir sa Secte en vie.
 
-L'arrivée de Zhuque Zi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que le deuxième génération Suzaku s'était personnellement engagé à préserver la Secte de Raffinement des Âmes, Du Tian était apaisé.
+L'arrivée de Zhuque Zi avait plongé Du Tian dans le désespoir; pourtant, les choses avaient changé si vite qu'il avait l'impression d'avoir vécu une éternité. Maintenant que la deuxième génération de Suzaku s'était personnellement engagé à préserver la Secte de Raffinement des Âmes, Du Tian était apaisé.
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
@@ -100,7 +100,7 @@ Un rayon de lumière pourpre et dorée jaillit de son front. Le drapeau de l'âm
 
 Bien que le drapeau de l'âme d'un milliard d'âmes ait perdu ses fragments d'âme, dix âmes primaires et la quatrième âme, il restait le drapeau de l'âme d'un milliard d'âmes!
 
-Ce drapeau de neuf mètres représentait les racines de la Secte de Raffinement des Âmes. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
+Ce drapeau de près de dix mètres représentait les racines de la Secte de Raffinement des Âmes. Il semblait posséder sa propre volonté alors qu'il flottait vers Wang Lin.
 
 Wang Lin leva la main droite et saisit le drapeau, puis il regarda Du Tian qui souriait avec une expression empreinte de mélancolie et de complexité. Il s'agenouilla et se prosterna devant lui.
 
@@ -136,8 +136,8 @@ Sa relation avec Wang Lin était complexe, mais cela n'avait fait que les rappro
 
 C'est pourquoi il ne pouvait pas réclamer la perle défiant le ciel!
 
-Situ Nan renifla et tourna la tête: « Si tu veux me remercier, trouve-moi un corps. Attends un peu, je vais vérifier s'il existe un réceptacle approprié sur cette planète en ce moment. Bien que ce vieil homme ne puisse plus combattre d'ennemis, j'ai toujours mes sorts; trouver un corps devrait être facile. » Sur ces mots, les yeux de Situ Nan brillèrent et son sens divin se propla.
+Situ Nan renifla et tourna la tête: « Si tu veux me remercier, trouve-moi un corps. Attends un peu, je vais vérifier s'il existe un réceptacle approprié sur cette planète en ce moment. Bien que ce vieil homme ne puisse plus combattre d'ennemis, j'ai toujours mes sorts; trouver un corps devrait être facile. » Sur ces mots, les yeux de Situ Nan brillèrent et son sens divin se propagea.
 
 Les yeux de Wang Lin s'illuminèrent: « Zhuque Zi a un disciple nommé Qian Feng. Son corps devrait être de bonne qualité. »
 
-« Le disciple de Zhuque Zi… Oublie ça; je dois quelque chose au premier génération Suzaku. Si tu veux le tuer, cela m'est égal, mais si c'est moi qui le fais, c'est un peu excessif… Hein? Comment un tel corps peut-il exister sur la planète Suzaku? Bien que ce corps ne soit encore qu'un garçon, c'est un matériau de possession de qualité supérieure! Pas mal! Je me fiche qu'il ne soit qu'un gamin, ce garçon est fait pour la possession! » Situ Nan regarda vers l'extrême nord, les yeux pétillants de joie.
+« Le disciple de Zhuque Zi… Oublie ça; je dois quelque chose à la première génération de Suzaku. Si tu veux le tuer, cela m'est égal, mais si c'est moi qui le fais, c'est un peu excessif… Hein? Comment un tel corps peut-il exister sur la planète Suzaku? Bien que ce corps ne soit encore qu'un garçon, c'est un matériau de possession de qualité supérieure! Pas mal! Je me fiche qu'il ne soit qu'un gamin, ce garçon est fait pour la possession! » Situ Nan regarda vers l'extrême nord, les yeux pétillants de joie.

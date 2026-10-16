@@ -32,7 +32,7 @@ Wang Lin restait là, le visage impassible, observant froidement chaque disciple
 
 Parmi les disciples des six autres divisions, il n'en connaissait que trois. L'un d'eux était Sima Rufeng, classé troisième de la Division Bleue. Il se trouvait au sommet du stade avancé de la Transformation de l'Âme et ne lui manquait qu'une étape pour atteindre le stade Ascendant!
 
-L'autre était un homme nommé Wang, de la Division Verte. Lorsqu'il vit le regard de Wang Lin, il afficha une expression d'indifférence. Son niveau de culture était supérieur à celui de Wang Lin; il se trouvait à une demi-étape du stade Ascendant.
+L'autre était un homme nommé Wang, de la Division Verte. Lorsqu'il vit le regard de Wang Lin, il afficha une expression d'indifférence. Son niveau de culture dépassait celui de Sima Rufeng; il se trouvait à une demi-étape du stade Ascendant.
 
 Outre ces deux-là, il y avait une autre personne qui semblait très familière à Wang Lin. C'était l'homme d'âge moyen qui s'était battu contre Chi Hu et qui avait utilisé le cristal d'intention meurtrière.
 
@@ -74,7 +74,7 @@ Une fois que tous les disciples ordinaires des sept divisions furent apparus, le
 
 Wang Lin jeta un coup d'œil et ne parvint même pas à estimer le nombre de personnes présentes. C'était la première fois qu'il pouvait réellement mesurer l'importance de la position de l'Omniscient au sein de la Secte du Destin Céleste.
 
-Peu de temps après, un rayon de lumière arc-en-ciel jaillit soudainement du sanctuaire principal de la Secte du Destin Céleste. Ce rayon traversa le ciel pour rejoindre les disciples. Un vieil homme vêtu d'une robe multicolore marchait lentement sur ce chemin de lumière vers eux.
+Peu de temps après, un rayon de lumière arc-en-ciel jaillit soudainement du sanctuaire principal de la Secte du Destin Céleste. Ce rayon traversa le ciel pour rejoindre les disciples. Un vieil homme vêtu d'une robe blanche marchait lentement sur ce chemin de lumière vers eux.
 
 À cet instant, tous les disciples principaux des sept divisions s'inclinèrent et s'exclamèrent: « Salutations, Maître! »
 
@@ -94,7 +94,7 @@ Dès que l'Omniscient eut prononcé ces mots, un grand silence s'installa, et to
 
 Un long rire, semblant émaner du néant, résonna dans ce silence.
 
-Simultanément, d'innombrables rayons de lumière dorée apparurent soudainement dans un rayon de cinq mille kilomètres. Une fois apparus, ces rayons convergèrent frénétiquement vers un point unique.
+Simultanément, d'innombrables rayons de lumière dorée apparurent soudainement dans un rayon de dix mille kilomètres. Une fois apparus, ces rayons convergèrent frénétiquement vers un point unique.
 
 Alors que la lumière dorée se déplaçait, le ciel entier ressembla à une immense restriction. Cette restriction n'était pas immobile; elle se contractait rapidement.
 
@@ -108,13 +108,13 @@ Parmi les cultivateurs environnants se trouvaient des êtres puissants, mais mê
 
 L'homme portait une robe violette et un blaireau à trois yeux reposait sur son épaule. Les yeux du blaireau étaient également comme des éclairs, observant tout d'un regard glacial.
 
-L'expression de l'Omniscient resta sereine. En voyant cet homme d'âge moyen, il sourit légèrement et dit: « Ainsi, c'est l'Ancien Sun. L'Omniscient salue l'Ancien Sun! Je ne peux croire que l'Ancien Sun ait envoyé un avatar pour la petite célébration de mon centième millénaire. Je suis extrêmement honoré. »
+L'expression de l'Omniscient resta sereine. En voyant cet homme d'âge moyen, il sourit légèrement et dit: « Ainsi, c'est l'Ancien Sun. L'Omniscient salue l'Ancien Sun! Je ne peux croire que l'Ancien Sun ait envoyé un avatar pour la petite célébration de mon dix-millième anniversaire. Je suis extrêmement honoré. »
 
 Le discours de l'Omniscient était respectueux, mais il ne bougea pas d'un pouce. Il était évident qu'il ne faisait preuve que de politesse.
 
 L'homme d'âge moyen ne sembla pas s'en offenser. Après être sorti de la lumière dorée, il fit un geste de la main derrière lui. La lueur dorée s'estompa progressivement pour révéler une épée volante dorée qu'il saisit aussitôt.
 
-« Vieux monstre Omniscient, comment aurais-je pu manquer la célébration de votre centième millénaire?! » L'homme rit en lançant l'épée volante vers l'Omniscient.
+« Vieux monstre Omniscient, comment aurais-je pu manquer la célébration de votre dix-millième anniversaire?! » L'homme rit en lançant l'épée volante vers l'Omniscient.
 
 « Je suis venu dans la précipitation et n'ai pu préparer de dignes cadeaux. Cette épée volante est un trésor céleste de qualité supérieure moyenne et, ayant été raffinée pendant dix mille ans, elle possède une certaine puissance. Je sais que vous appréciez les couleurs de l'arc-en-ciel, et cette épée dorée est d'une nuance jaune terreuse; elle devrait donc vous plaire! »
 

@@ -12,13 +12,13 @@ Le troisième ancêtre hocha la tête et répondit: « C'est mon domaine de la l
 
 « Cette chose s'est séparée de moi et a été trouvée par un petit cultivateur. Je crois que ce dernier se trouve actuellement à l'intérieur du Tombeau Suzaku. Bien que je ne puisse pas détruire le domaine, je peux y apporter quelques modifications mineures. En temps normal, cela n'aurait guère d'importance, mais lors d'une possession, cela fera échouer sa tentative! »
 
-Après avoir fini de parler, le troisième ancêtre pointa son front. La plante sur son front commença à bouger de manière mystérieuse. Des tatouages s'échappèrent de la plante avant de disparaître dans les airs.
+Après avoir fini de parler, le troisième ancêtre pointa son front. La plante sur son front commença à bouger de manière mystérieuse. Des runes s'échappèrent de son front avant de disparaître dans les airs.
 
 Dans le Tombeau Suzaku, Wang Lin monta sur l'autel et l'activa. Il sentit l'autel entamer sa téléportation et il était sur le point de disparaître.
 
-Mais à ce moment précis, une immense quantité de brouillard rose jaillit soudainement du front de Liu Mei, suivie par le cri de Mei Ji.
+Mais à ce moment précis, une immense quantité de brouillard rose jaillit soudainement des sept orifices de Liu Mei, suivie par le cri de Mei Ji.
 
-« Comment est-ce possible?! Une force dotée d'une énergie semblable à la mienne interfère avec ma possession! Comment peut-il en être ainsi... » À sa naissance, Mei Ji avait perdu tous les souvenirs de son créateur; ce n'était donc, de son point de vue, que leur première rencontre.
+« Comment est-ce possible?! Une force dotée d'une énergie semblable à la mienne interfère avec ma possession! Comment peut-il en être ainsi... » Depuis sa naissance, Mei Ji n'avait gardé aucun souvenir du passé; une telle situation était pour elle une première.
 
 Alors qu'elle pénétrait dans le corps de Liu Mei pour briser son domaine, elle ressentit soudain une douleur fulgurante dans son âme. Cette douleur la priva de toute sa puissance et la laissa extrêmement faible.
 
@@ -30,7 +30,7 @@ Aussitôt, une immense quantité de brouillard rose fut aspirée par Liu Mei.
 
 Mei Ji poussa un cri de désespoir. Elle était toujours totalement impuissante. Elle serra les dents et s'écria: « Si je ne peux pas te posséder, alors fusionnons! »
 
-Sur ces mots, Mei Ji utilisa une méthode inconnue qui fit exploser son corps et s'effondrer son âme. Même son puissant domaine de la luxure s'effondra, et tout son être fut absorbé par Liu Mei.
+Sur ces mots, Mei Ji utilisa une méthode inconnue: son âme se mit à émettre une lueur sinistre puis s'effondra dans un bruit sourd. Même son puissant domaine de la luxure s'effondra, et tout son être fut absorbé par Liu Mei.
 
 Tout cela se produisit à une vitesse fulgurante. Lorsque Wang Lin se retourna pour regarder Liu Mei, Mei Ji s'était déjà effondrée.
 
@@ -38,9 +38,9 @@ Tout cela se produisit à une vitesse fulgurante. Lorsque Wang Lin se retourna p
 
 Wang Lin n'eut pas le temps de se téléporter avant que le brouillard rose ne se répande dans toutes les directions. Il dut reculer précipitamment et créer une rafale de vent chargée d'énergie spirituelle céleste pour se protéger.
 
-Cependant, malgré sa vitesse, le brouillard rose ne fut nullement affecté par le vent; il semblait éthéré et se propagea avec rapidité. La dispersion fut si vélocire que, même en reculant, une partie du brouillard pénétra les pores de Wang Lin.
+Cependant, malgré sa vitesse, le brouillard rose ne fut nullement affecté par le vent; il semblait éthéré et se propagea avec rapidité. La dispersion fut si rapide que, même en reculant, une partie du brouillard pénétra les pores de Wang Lin.
 
-Toutefois, la quantité absorbée n'était pas excessive; après avoir activé un peu d'énergie spirituelle céleste, il parvint à expulser la majeure partie du brouillard de son corps. L'expression de Wang Lin devint sombre alors qu'il continuait de reculer jusqu'à pouvoir enfin esquiver la brume.
+Toutefois, la quantité absorbée n'était pas excessive; après avoir activé un peu d'énergie spirituelle céleste, il parvint à réprimer de force le brouillard dans son corps. L'expression de Wang Lin devint sombre alors qu'il continuait de reculer jusqu'à pouvoir enfin esquiver la brume.
 
 « Ce brouillard rose n'est pas un sort; il est issu d'un domaine. C'est pourquoi le vent n'a eu aucun effet sur lui! » Son visage s'assombrit tandis qu'il observait le brouillard qui recouvrait désormais toute la vallée.
 
@@ -62,7 +62,7 @@ Alors que le brouillard l'encerclait, la brume emprisonnée en lui brisa ses sce
 
 Le Domaine des Mille Illusions Impitoyables était déjà au stade intermédiaire de la Transformation de l'Âme. Il ne s'agissait en réalité que de 999 illusions, chacune représentant une vie que Liu Mei avait vécue. La Liu Mei de la Secte Tian Dao n'était qu'un avatar parmi d'autres.
 
-Liu Mei possédait 999 avatars ainsi pour expérimenter 999 illusions différentes; il ne lui en manquait plus qu'une seule pour que son domaine atteigne le stade avancé de la Transformation de l'Âme. Une fois ce stade atteint, il ne lui faudrait que suffisamment de jades célestes pour entreprendre l'épreuve de la vie et de la mort afin d'atteindre le stade Ascendant. Un seul pas pourrait mener à la mort, ou bien vers la divinité d'un cultivateur Ascendant!
+Liu Mei possédait 999 avatars ainsi pour expérimenter 999 illusions différentes; il ne lui en manquait plus qu'une seule pour que son domaine atteigne le stade avancé de la Transformation de l'Âme. Une fois ce stade atteint, il ne lui faudrait que suffisamment de jades célestes pour entreprendre l'épreuve de la vie et de la mort afin d'atteindre le stade Ascendant. Un seul pas pourrait mener à la mort, ou bien franchir le stade Ascendant!
 
 L'apparition de Mei Ji fut une épreuve majeure pour Liu Mei. Sans l'intervention du troisième ancêtre, Liu Mei aurait probablement été possédée, devenant une simple marionnette vouée aux plaisirs charnels. C'est pourquoi, à ses yeux, Wang Lin était méprisable.
 
@@ -88,7 +88,7 @@ Les sourcils de Liu Mei se froncèrent intensément alors qu'elle regardait au l
 
 Le corps de Wang Lin apparut dans une terre désolée de la section intérieure du Tombeau Suzaku. Une fois apparu, il leva les yeux vers le ciel avec une expression tourmentée.
 
-Alors qu'il était entouré par la brume rose, il avait eu l'impression de vivre un rêve. Et lorsque celle-ci s'était dissipée, il avait vu une femme sous lui. À cet instant, son cœur avait éprouvé une douleur pour elle.
+Alors qu'il était entouré par la brume rose, il avait eu l'impression de vivre un rêve. Et lorsque celle-ci s'était dissipée, il avait vu une femme sous lui. À cet instant, son cœur avait été troublé.
 
 « J'ai encore des choses à accomplir, je dois donc mettre de côté la question de Liu Mei pour le moment. Y penser est inutile... Ah! » Wang Lin soupira en touchant l'espace entre ses sourcils, là où se trouvait la Perle Défiant le Ciel.
 
@@ -106,4 +106,4 @@ Ses yeux s'illuminèrent; il choisit une direction et s'élança avec célérit�
 
 Il savait qu'il ne disposait pas de beaucoup de temps. Si le Cristal de la Planète de Culture se brisait, il devrait utiliser la méthode donnée par Situ Nan. Ce cristal était un objet tyrannique, représentant le pouvoir absolu que l'Alliance de Culture accordait aux pays de culture de rang 6.
 
-Une fois que les cultivateurs atteignent le stade Ascendant et ont tenté de trouver leur propre Tao, ils peuvent espérer récupérer leurs fragments d'âme du Cristal de la Planète de Culture. Cependant, aucun des Suzaku n'avait pu récupérer ses fragments. S'ils l'avaient fait, ils auraient perdu leur capacité à utiliser le sceau Suzaku et, par extension, leur titre de Suzaku.
+Seuls les cultivateurs ayant atteint le stade Ascendant pouvaient, lors de l'illumination « entendre le Dao le matin, mourir le soir », avoir une chance de retirer leurs fragments d'âme du Cristal de la Planète de Culture. Cependant, un Suzaku ne devait jamais les retirer: dès qu'il le faisait, il perdait aussitôt le droit d'utiliser le sceau Suzaku et, par extension, son titre de Suzaku.

@@ -67,7 +67,7 @@ Oublions-les un instant. À l'intérieur de l'Abysse des Marées, Wang Lin cheva
 
 La vitesse de Zhou Yi était fulgurante. Après plusieurs jours, ils traversèrent les corridors pour atteindre la fissure située sous le Pays des Démons de Feu. Il ne leur restait plus qu'à s'envoler de là pour quitter l'Abysse des Marées.
 
-La sortie du Pays des Démons de Feu était le seul endroit où il n'y avait aucune résistance lors de l'ascension; au contraire, une force de résistance s'exerçait lors de la descente.
+La sortie du Pays des Démons de Feu était le seul endroit où il n'y avait aucune résistance vers le bas; au contraire, une force s'exerçait vers le haut.
 
 Ici, la vitesse d'un individu semblait être poussée à l'infini par une force, lui permettant de devenir encore plus rapide!
 
@@ -101,7 +101,7 @@ Cependant, peut-être à cause d'un séjour trop prolongé en ces lieux, la natu
 
 Un cri strident retentit du fond de l'essaim. Les deux moustiques en plein combat s'interrompirent un instant, mais leur férocité reprit le dessus. Ils ignorèrent le rugissement et poursuivirent leur lutte.
 
-Le cri strident retentit une seconde fois, et cette fois, l'essaim de moustiques se dispersa pour laisser place à un passage. Une bête moustique d'environ cent pieds de long, parcourue de légères nuances violettes, s'en éleva lentement.
+Le cri strident retentit une seconde fois, et cette fois, l'essaim de moustiques se dispersa pour laisser place à un passage. Une bête moustique d'environ trente-trois mètres de long, parcourue de légères nuances violettes, s'en éleva lentement.
 
 Bien que cette bête fût teintée de violet, la coloration était très ténue.
 

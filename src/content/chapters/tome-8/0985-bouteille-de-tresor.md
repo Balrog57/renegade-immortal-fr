@@ -28,7 +28,7 @@ Wang Lin lui tournait le dos et continuait d'avancer. D'un revers de manches, il
 
 « Senior, Ling Er veut savoir ce qu'était ce géant apparu hier soir. Il... Qu'est-il... » Ling Er était sur le point de faire un pas en avant.
 
-Les yeux de Ta Shan s'illuminèrent et il fit un pas vers elle. Une onde de choc se propagea et frappa Ling Er, la repoussant de plusieurs dizaines de pieds.
+Les yeux de Ta Shan s'illuminèrent et il fit un pas vers elle. Une onde de choc se propagea et frappa Ling Er, la repoussant d'une dizaine de mètres.
 
 Le niveau de culture de Ling Er n'était pas élevé; alors, tandis qu'elle reculait, son visage pâlit. L'énergie spirituelle dans son corps devint instable et, combinée à son anxiété extrême et à sa nuit agitée, l'énergie à l'intérieur de son corps sombra dans un chaos total. Le sang monta à sa gorge et elle cracha une bouchée de sang.
 
@@ -40,7 +40,7 @@ Wang Lin poussa un soupir. Il fronça les sourcils alors que son corps disparais
 
 « Une seule fois. » Wang Lin soupira. Il n'avait contemplé le lever et le coucher du soleil qu'avec Li Muwan durant ses dernières années. Cela était devenu un souvenir éternel pour lui. Depuis lors, il ne l'avait fait avec personne d'autre.
 
-S'il y avait eu une autre exception, c'était à la Secte de la Raffinement de l'Âme, où lui et Liu Mei étaient séparés par un mur tout en contemplant ensemble le coucher du soleil.
+S'il y avait eu une autre exception, c'était à la Secte du Raffinement de l'Âme, où lui et Liu Mei étaient séparés par un mur tout en contemplant ensemble le coucher du soleil.
 
 Ling Er afficha un sourire radieux, hocha la tête et fit sonner les clochettes à son poignet. Un point blanc apparut au loin: une grue blanche qui vola vers elle et resta en suspension au-dessus de Ling Er.
 

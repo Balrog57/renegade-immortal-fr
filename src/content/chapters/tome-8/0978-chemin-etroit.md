@@ -66,11 +66,11 @@ Big Head hésita un instant avant de demander: « Le voyage du Maître s'est-il 
 
 Wang Lin leur adressa un signe de tête et répondit lentement: « Tout s'est bien passé, malgré quelques problèmes. Je suis venu aujourd'hui pour vous emmener trouver une planète où vous pourrez pratiquer en isolement. L'environnement de cette planète est trop rude et ne convient pas à la culture. »
 
-Big Head acquiesça: « Cet endroit n'est effectivement pas adapté à la pratique en isolement. Non seulement il est abandonné, mais il s'effondre par morceaux régulièrement. »
+Big Head acquiesça: « Cet endroit n'est effectivement pas adapté à la pratique en isolement. Non seulement il est abandonné, mais il s'effondre par morceaux toutes les deux heures. »
 
 Wang Lin cessa de perdre son temps en paroles et agita ses manches. Il emmena Big Head et Lei Ji hors de cette planète délaissée pour s'élancer parmi les étoiles.
 
-Parmi les astres, Lei Ji étira ses membres et se prosterna. Dans un rugissement, son corps grandit jusqu'à atteindre mille pieds de hauteur.
+Parmi les astres, Lei Ji étira ses membres et se prosterna. Dans un rugissement, son corps grandit jusqu'à atteindre trois cent trente mètres de hauteur.
 
 Wang Lin atterrit sur le dos de Lei Ji et s'assit. Big Head suivit Wang Lin et se tint à ses côtés comme une sentinelle. Une ombre vacilla derrière lui, et Ta Shan apparut avec une expression indifférente.
 
@@ -90,7 +90,7 @@ Ses yeux s'illuminèrent et il pensa: « Autrefois, ma culture était au début 
 
 « À l'époque, l'Ancêtre de Sang était au stade intermédiaire du Purificateur du Nirvana. Si je retournais dans le passé, je devrais pouvoir l'affronter! Bien que mes chances de victoire restent faibles, si un cultivateur au milieu du Purificateur du Nirvana voulait me tuer, ce ne serait pas aussi facile! »
 
-À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait trois 330 mètres de long et émettait des ondes de fluctuations.
+À cet instant, à environ 5 000 kilomètres de Wang Lin, un objet semblable à un navire avançait lentement. Ce bateau était entièrement noir, mesurait près de cent mètres de long et émettait des ondes de fluctuations.
 
 Une énergie spirituelle dense s'en dégageait, faisant comprendre à quiconque le voyait qu'il ne s'agissait pas d'un objet ordinaire.
 

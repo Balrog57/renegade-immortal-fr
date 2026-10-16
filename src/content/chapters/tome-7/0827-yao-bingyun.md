@@ -70,7 +70,7 @@ Si l'autre personne réapparaissait la première, Wang Lin conserverait l'initia
 
 Wang Lin avait déjà expérimenté cet état de fusion prolongée lorsque Maître Flamespark avait pris le contrôle de son corps. À présent, il serrait les dents pour maintenir cette symbiose avec le monde.
 
-Le temps s'écoulait lentement. Bien que la compréhension de Yao Bingyun fût profonde, elle ne pouvait égaler l'expérience vécue par Wang Lin. Au quinzième jour, elle ne put plus tenir et émergea du vide.
+Le temps s'écoulait lentement. Bien que la compréhension de Yao Bingyun fût profonde, elle ne pouvait égaler l'expérience vécue par Wang Lin. Au seizième jour, elle ne put plus tenir et émergea du vide.
 
 À l'instant même où elle apparut, Wang Lin — qu'elle avait verrouillé par son Sens Divin tout en étant fusionné avec le monde — disparut.
 
@@ -90,9 +90,9 @@ Tout en cultivant, Wang Lin leva sa main droite vers la brume noire. Une âme or
 
 Un instant plus tard, ses yeux brillèrent alors qu'il saisissait une autre âme pour la dévorer à son tour.
 
-Il fit circuler l'énergie dans son corps et poursuivit son absorption. Après six heures et quatre âmes originelles, une puissante vague d'énergie originelle déferla en lui. Il ouvrit les yeux, empreints d'une intention meurtrière, puis sa main droite fit apparaître de nombreuses sacoches de rangement.
+Il fit circuler l'énergie dans son corps et poursuivit son absorption. Après douze heures et quatre âmes originelles, une puissante vague d'énergie originelle déferla en lui. Il ouvrit les yeux, empreints d'une intention meurtrière, puis sa main droite fit apparaître de nombreuses sacoches de rangement.
 
-Ces sacs appartenaient aux personnes qu'il avait éliminées. Sans perdre un instant, Wang Lin effaça le Sens Divin de chacun d'eux et en extraisit tous les trésors. Il les broya tous pour fusionner le liquide obtenu et l'injecter en Ta Shan.
+Ces sacs appartenaient aux personnes qu'il avait éliminées. Sans perdre un instant, Wang Lin effaça le Sens Divin de chacun d'eux et en extrayit tous les trésors. Il les broya tous pour fusionner le liquide obtenu et l'injecter en Ta Shan.
 
 Ces sacs regorgeaient de divers trésors qui, à cet instant, servaient uniquement à réparer le corps de Ta Shan.
 

@@ -16,7 +16,7 @@ Non seulement lui, mais le Deuxième Frère à ses côtés affichait également 
 
 Les yeux de Bai Wei brillèrent d'une lueur mystérieuse; il prit une petite gorgée de son vin et esquissa un léger sourire. Quant à la Quatrième Sœur qui avait emprisonné Wang Lin, elle resta parfaitement calme, sans bouger d'un pouce.
 
-Le Deuxième Frère de la division violette, un homme d'âge moyen, chargea en hurlant: « Aujourd'hui est la grande célébration de mon Secte du Destin Céleste! Quiconque osera gâcher cette fête sera tué sans poser de questions! » Il condamna Wang Lin avant même que celui-ci ne puisse parler. Tout en criant, sa main forma un sceau et il tonna: « Pouvoir de la terre! »
+Le Deuxième Frère de la division violette, un homme d'âge moyen, chargea en hurlant: « Aujourd'hui est la grande célébration de ma Secte du Destin Céleste! Quiconque osera gâcher cette fête sera tué sans poser de questions! » Il condamna Wang Lin avant même que celui-ci ne puisse parler. Tout en criant, sa main forma un sceau et il tonna: « Pouvoir de la terre! »
 
 À la suite de ses paroles, une lumière jaune et terreuse apparut dans sa main. Elle se transforma immédiatement en une masse de terre qui s'élança comme une tornade vers l'aura violette venant de l'est.
 
@@ -36,13 +36,13 @@ L'expression de l'homme d'âge moyen changea et il cria: « Septième Frère, c'
 
 Wang Lin garda un visage impassible en observant les cultivateurs environnants. Tous les regardaient d'un air glacial, et aucun ne semblait avoir l'intention d'intervenir.
 
-« Cultivateurs, aujourd'hui est la compétition pour ma division violette. Si des étrangers osent s'interposer, ne blâmez pas mon Secte du Destin Céleste si nous en tirons les conséquences à l'avenir! » Tandis que Wang Lin parlait froidement, il fit un pas en avant et pressa son index droit vers l'homme d'âge moyen.
+« Cultivateurs, aujourd'hui est la compétition pour ma division violette. Si des étrangers osent s'interposer, ne blâmez pas ma Secte du Destin Céleste si nous en tirons les conséquences à l'avenir! » Tandis que Wang Lin parlait froidement, il fit un pas en avant et pressa son index droit vers l'homme d'âge moyen.
 
 Ce dernier recula précipitamment. Il avait déjà souffert de cette flamme démoniaque par le passé, et la simple vue de celle-ci lui fit immédiatement l'envie de fuir.
 
 À cet instant précis, Zhao Xingsha avança d'un pas sombre et se posta devant l'homme d'âge moyen: « Septième Frère, retourne à ta place! Aujourd'hui n'est pas le jour de la compétition de la division violette! »
 
-Wang Lin da même pas un regard à Zhao Xingsha. Il fit un geste du doigt, projetant la flamme démoniaque. Au moment où elle quitta son index, la flamme grandit soudainement pour devenir une immense fournaise qui colora les nuages de violet.
+Wang Lin ne daigna même jeter un regard à Zhao Xingsha. Il fit un geste du doigt, projetant la flamme démoniaque. Au moment où elle quitta son index, la flamme grandit soudainement pour devenir une immense fournaise qui colora les nuages de violet.
 
 « Une flamme démoniaque! » Des membres de diverses sectes, rompus à ces phénomènes, furent capables d'identifier immédiatement cette flamme.
 
@@ -70,7 +70,7 @@ L'expression de Zhao Xingsha devint très laide et il recula promptement. Non se
 
 Outre ces deux-là, les divers cultivateurs des autres sectes utilisèrent toutes sortes de techniques pour s'enfuir après avoir vu l'explosion de la flamme démoniaque.
 
-La flamme qui avait explosé s'était propagée sur plus de 300 mètres avant de finalement se dissiper. Toutes les tables situées dans ce périmètre furent réduites en cendres, et même les nuages furent totalement consumés, laissant derrière eux un immense vide.
+La flamme qui avait explosé s'était propagée sur plus de 3 kilomètres avant de finalement se dissiper. Toutes les tables situées dans ce périmètre furent réduites en cendres, et même les nuages furent totalement consumés, laissant derrière eux un immense vide.
 
 La silhouette de Wang Lin se déplaça comme l'éclair. Sans un mot, il chargea, l'épée céleste à la main. Il abattit son arme et un rayon d'énergie tranchante de plus de 30 mètres de haut s'abattit sur l'homme d'âge moyen.
 
@@ -88,7 +88,7 @@ La lame en demi-lune fut plus rapide encore. Elle s'engouffra dans la brume noir
 
 Zhao Xingsha regardait Wang Lin avec un sourire narquois, mais ne l'interrompit pas.
 
-Wang Lin da même pas un regard à Zhao Xingsha. Il fit un pas et disparut. Lorsqu'il réapparut, il se trouvait déjà sur la trajectoire de fuite de la brume noire.
+Wang Lin ne daigna même jeter un regard à Zhao Xingsha. Il fit un pas et disparut. Lorsqu'il réapparut, il se trouvait déjà sur la trajectoire de fuite de la brume noire.
 
 Wang Lin dit froidement: « Tu ne t'échapperas pas! »
 
@@ -102,7 +102,7 @@ L'âme originelle poussa un cri et parvint à se téléporter mystérieusement.
 
 Le regard de Wang Lin s'assombrit, puis il fit tournoyer le Fouet des Âmes. Il utilisait ce fouet depuis plusieurs mois et savait qu'il pouvait s'étendre indéfiniment; sa portée était égale à celle de son regard.
 
-Dans un fracas assourdissant, l'âme originelle, située à 300 mètres de là, trembla et fut sur le point de s'effondrer. Une marque profonde apparut sur son dos et une immense quantité d'essence spirituelle céleste en jaillit.
+Dans un fracas assourdissant, l'âme originelle, située à plus de 3 kilomètres de là, trembla et fut sur le point de s'effondrer. Une marque profonde apparut sur son dos et une immense quantité d'essence spirituelle céleste en jaillit.
 
 Le corps de Wang Lin disparut. Lorsqu'il réapparut, il était devant l'âme originelle et la saisit de plein fouet.
 
@@ -110,7 +110,7 @@ L'âme originelle afficha un regard de terreur et s'apprêta à parler, mais Wan
 
 Zhao Xingsha fixa Wang Lin avant de sourire soudainement. « Septième Frère, tu as tué le Deuxième Frère et enfreint une règle majeure de la secte. Anciens de la discipline, veuillez capturer cet homme et le livrer au Maître pour jugement! »
 
-L'expression de Wang Lin resta sereine lorsqu'il répondit froidement: « Quiconque ose s'opposer à moi est mon ennemi! » Sur ces mots, il marcha droit vers Zhao Xingsha!
+L'expression de Wang Lin resta sereine lorsqu'il répondit froidement: « Quiconque ose s'opposer à moi est mon ennemi! » Sur ces mots, il franchit d'un pas plus de 300 mètres et marcha droit vers Zhao Xingsha!
 
 Plusieurs anciens de la discipline figuraient parmi les disciples de la division violette environnants. Après s'être regardés avec hésitation, aucun d'eux n'osa faire le moindre pas en avant.
 
@@ -122,6 +122,6 @@ Zhao Xingsha serra les dents et s'exclama: « Bien! Très bien! » Puis il se to
 
 Tandis que Zhao Xingsha parlait, il forma un sceau et commença à réciter une incantation très complexe.
 
-L'expression de Wang Lin resta imperturbable. Il ouvrit la bouche et le drapeau des âmes d'un milliard d'âmes apparut. D'un coup sec, toutes les âmes primaires restantes surgirent.
+L'expression de Wang Lin resta imperturbable. Il ouvrit la bouche et le drapeau des âmes apparut. D'un coup sec, toutes les âmes primaires restantes surgirent.
 
-Sous les ordres de Wang Lin, ces âmes primaires chargèrent droit sur Zhao Xingsha. Au même moment, Wang Lin lança un objet de sa main droite: le piège à bêtes se transforma en char de guerre et s'écrasa sur le côté.
+Sous les ordres de Wang Lin, ces âmes primaires chargèrent droit sur Zhao Xingsha. Au même moment, Wang Lin lança un objet de sa main droite: le cercle de bronze se transforma en char de guerre et atterrit sur le côté.

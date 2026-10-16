@@ -14,11 +14,11 @@ Wang Lin ne da aucune attention au vieil homme. Il atteignit le char de guerre. 
 
 Cette scène fit plisser les yeux de l'assistance qui observa la scène avec une attention accrue.
 
-À cet instant, les yeux de Xu Liguo tournèrent. Il s'élança immédiatement dans les airs, pointa les membres du Clan des Immortels Délaissés et cria: « Mon maître raffine un trésor! À moins que vous ne passiez sur mon cadavre, vous ne ferez pas le moindre pas dans cette zone! »
+À cet instant, les yeux de Xu Liguo tournèrent. Il s'élança immédiatement dans les airs, pointa les membres du Clan des Immortels Élus et cria: « Mon maître raffine un trésor! À moins que vous ne passiez sur mon cadavre, vous ne ferez pas le moindre pas dans cette zone! »
 
 Ses paroles étaient empreintes de force, d'autant plus que l'expression de Xu Liguo suggérait qu'il préférait mourir plutôt que de laisser quiconque troubler son maître. Il dégageait une aura puissante qui se propageait comme une tempête.
 
-L'ancêtre recula rapidement de quelques pas et dit respectueusement: « Nous ne nous approcherons pas à moins de mille pieds. Nous avons simplement quelques questions... »
+L'ancêtre recula rapidement de quelques pas et dit respectueusement: « Nous ne nous approcherons pas à moins de 330 mètres. Nous avons simplement quelques questions... »
 
 Avant que le vieil homme n'ait pu achever sa phrase, Xu Liguo hurla: « Silence! À moins que vous ne passiez sur mon corps, vous ne perturberez pas mon maître, pas même un peu! Ma vie entière m'a été donnée par mon maître. C'est lui qui m'a sauvé de l'abîme. C'est lui qui m'a enseigné les sorts et m'a permis d'obtenir mon héritage. C'est mon maître qui m'a donné ma puissance actuelle. Si vous voulez troubler mon maître, moi, Xu Liguo, je ne vous le permettrai jamais!!! »
 
@@ -40,7 +40,7 @@ Pendant ce temps, le Char de Guerre Divin sous l'âme originelle de Wang Lin ém
 
 Sous cet éclat noir, quiconque posait les yeux sur Wang Lin en ressentait le frisson.
 
-Cette scène provoqua un immense choc chez les membres du Clan des Immortels Délaissés. Ils étaient incapables de garder leur calme.
+Cette scène provoqua un immense choc chez les membres du Clan des Immortels Élus. Ils étaient incapables de garder leur calme.
 
 Xu Liguo continuait de jouer la comédie de la droiture. Profitant du fait que les autres ne regardaient pas, il jeta un coup d'œil furtif à Wang Lin et pensa: « Qu'est-ce qu'il y a de si extraordinaire? Ton vieux Xu peut faire tout aussi bien. Ce n'est que dévorer des runes; moi, je dévore même des gens! » Xu Liguo était rempli de mépris, mais ses yeux ne manifestaient que du respect. Son visage était empreint d'admiration et son corps en tremblait même.
 
@@ -48,7 +48,7 @@ En apparence, il ressemblait à un serviteur fidèle, transporté par l'exaltati
 
 Lorsque Ta Shan vit l'expression de Xu Liguo, il poussa un soupir et son cœur se troubla davantage. Quant à l'ancêtre, il hocha discrètement la tête, trouvant la loyauté de Xu Liguo tout à fait respectable!
 
-En vérité, ces membres du Clan des Immortels Délaissés vivaient ici sans aucun contact avec l'extérieur depuis bien trop longtemps. Bien qu'ils ne fussent pas stupides, ils n'étaient pas comparables à Xu Liguo.
+En vérité, ces membres du Clan des Immortels Élus vivaient ici sans aucun contact avec l'extérieur depuis bien trop longtemps. Bien qu'ils ne fussent pas stupides, ils n'étaient pas comparables à Xu Liguo.
 
 Xu Liguo était extrêmement rusé et doué pour s'adapter aux changements. Ses près de mille ans d'expérience lui avaient permis de perfectionner son art. Si quelqu'un pouvait facilement percer à jour ses intentions, alors il ne serait pas Xu Liguo.
 
@@ -60,7 +60,7 @@ Les yeux de l'âme originelle de Wang Lin brillèrent d'un éclat vif et les deu
 
 « Char de Guerre Divin, libération du sceau! » Ce message transmis par Sens Divin se propagea comme un coup de tonnerre et toute la lumière noire sembla s'engouffrer dans le corps de Wang Lin. Soudain, d'innombrables épines se mirent à briller et une ombre illusoire prit rapidement forme.
 
-C'était une bête spirituelle haute de près de mille pieds. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Délaissés. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
+C'était une bête spirituelle haute de près de 330 mètres. Dès son apparition, elle poussa un rugissement qui fit pâlir tous les membres du Clan des Immortels Élus. Les plantes entre leurs sourcils clignotèrent frénétiquement et ils ne purent s'empêcher de reculer. Seuls les quelques individus dotés d'une culture puissante purent tenir un instant avant d'être eux aussi contraints de battre en retraite.
 
 Les poils de la puce se hérissèrent et elle poussa des rugissements. De même, le ventre du crapaud tonnerre se gonfla alors qu'il préparait son sortilège le plus puissant.
 

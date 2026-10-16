@@ -66,7 +66,7 @@ Le sixième frère cadet remarqua la situation à son tour, son expression deven
 
 Mais il était trop tard. Les nourritures pour bêtes célestes jaillirent du petit trou et apparurent devant eux en un clin d'œil.
 
-L'expression du troisième frère aîné changea radicalement. Sans la moindre hésitation, il cria: « Deux Mondes de l'Esprit de l'Épée! »
+L'expression du troisième frère aîné changea radicalement. Sans la moindre hésitation, il cria: « Deux Épées descendues en ce monde! »
 
 Son épée s'élança dans les airs et frappa violemment vers le bas. Le sixième frère cadet serra les dents et envoya lui aussi son épée pour trancher la menace.
 

@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 529 - Erased
 slug: efface
 ---
-Alors que la silhouette fantomatique se précipitait, le visage de Wang Lin s'assombrit et, sans un mot, il cracha un rayon de lumière noire. Dans un éclat de lueur sombre, un drapeau de trente pieds apparut dans sa main. Après avoir agité le drapeau, les quelques âmes primaires restantes s'envolèrent.
+Alors que la silhouette fantomatique se précipitait, le visage de Wang Lin s'assombrit et, sans un mot, il cracha un rayon de lumière noire. Dans un éclat de lueur sombre, un drapeau d'une dizaine de mètres apparut dans sa main. Après avoir agité le drapeau, les quelques âmes primaires restantes, dont le fragment d'âme du qilin, s'envolèrent.
 
 La silhouette fantomatique fut surprise et ses yeux spectraux s'illuminèrent. Au lieu de foncer sur Wang Lin, elle changea de cible pour viser les âmes primaires en pleine Transformation de l'Âme.
 
@@ -44,7 +44,7 @@ Doigt Démoniaque!
 
 L'expression de l'homme en robe noire changea radicalement. Incapable de l'esquiver à temps, il leva précipitamment sa main gauche pour former un sceau. Il pressa ensuite ce sceau vers le doigt de Wang Lin afin de stopper sa progression.
 
-Leurs doigts se touchèrent en un instant. Pourtant, ils ne se rencontrèrent pas directement; un espace de sept pouces les séparait!
+Leurs doigts se touchèrent en un instant. Pourtant, ils ne se rencontrèrent pas directement; un espace de dix centimètres les séparait!
 
 Quelque chose d'étrange se jouait dans ces quelques centimètres!
 
@@ -94,7 +94,7 @@ Mais à cet instant précis, l'homme en robe noire fut frappé de stupeur. En re
 
 Cette expression fit trembler son cœur.
 
-Wang Lin ne daigna même pas regarder la sphère et déclara: « Charriot de Guerre Divin, libère-toi! »
+Wang Lin ne daigna même pas regarder la sphère et déclara: « Chariot de Guerre Divin, libère-toi! »
 
 À ces mots, presque instantanément, un rugissement qui perçait les cieux et portait une volonté inflexible jaillit de l'endroit où Wang Lin avait lancé le piège à bêtes.
 
@@ -110,7 +110,7 @@ La bête spirituelle poussa un rugissement. Ses yeux étaient d'une froideur ext
 
 Wang Lin s'était déjà préparé à ce que la bête ne l'obéisse pas. Il laissa échapper un froid reniflement et cracha un seul mot.
 
-Ce mot était d'une complexité extrême, incompréhensible pour quiconque. Cependant, c'était une parole que Wang Lin avait apprise de l'héritage du charriot de guerre laissé par le céleste qui l'avait créé: le Mantra des Neuf Mots!
+Ce mot était d'une complexité extrême, incompréhensible pour quiconque. Cependant, c'était une parole que Wang Lin avait apprise de l'héritage du chariot de guerre laissé par le céleste qui l'avait créé: le Mantra des Neuf Mots!
 
 Ce Mantra des Neuf Mots servait précisément à contrôler cette bête. À chaque sceau libéré, un nouveau mot du mantra pouvait être utilisé!
 

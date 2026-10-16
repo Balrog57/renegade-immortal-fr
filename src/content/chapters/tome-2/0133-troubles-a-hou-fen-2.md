@@ -88,7 +88,7 @@ Sur la planète Suzaku, le nombre de pays de culture est fixe. Si les volcans en
 
 Heureusement, ce genre de catastrophe ne s'était jamais produit. À chaque fois, les volcans avaient été scellés sans encombre. Même en cas d'éruptions mineures, elles n'affectaient que de petites zones et non l'intégralité du pays.
 
-Trois heures plus tard, Wang Lin s'arrêta au-dessus d'une route principale. Si son visage était déjà sombre, il devint livide en voyant ce qui jonchait le chemin.
+Six heures plus tard, Wang Lin s'arrêta au-dessus d'une route principale. Si son visage était déjà sombre, il devint livide en voyant ce qui jonchait le chemin.
 
 Sur la route gisaient des dizaines de cadavres ainsi que plusieurs chevaux morts, éparpillés près d'un chariot.
 

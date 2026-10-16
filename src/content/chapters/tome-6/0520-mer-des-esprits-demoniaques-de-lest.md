@@ -22,11 +22,11 @@ Les douze personnes s'engouffrèrent dans l'ouverture et, alors que le dernier f
 
 « Voici un rayon d'énergie d'épée de ma part, utilisez-le comme sort de survie pour vous douze! » Au moment où Ling Tianhou prononça ces mots, le rayon d'énergie fut respectueusement reçu par le dernier disciple. Ce dernier s'inclina devant le Saint de l'Épée, puis pénétra à son tour.
 
-La cupidité avait déjà quitté l'esprit de Ling Tianhou. Il s'était transformé en ce ultime rayon d'énergie d'épée et avait disparu dans la porte de la Mer des Esprits Démoniaques de l'Est aux côtés des Douze Épées.
+Cupidité avait déjà disparu. Son ombre s'était transformée en ce dernier rayon d'énergie d'épée et avait disparu dans la porte de la Mer des Esprits Démoniaques de l'Est aux côtés des Douze Épées.
 
 Le regard de l'Omniscient restait calme; il lança un regard éloquent à Ling Tianhou et déclara: « Disciples de la Secte du Destin Céleste, entrez! »
 
-Aux côtés de Wang Lin, les dix autres répondirent d'une même voix. Ils se levèrent immédiatement et s'envolèrent vers l'entrée.
+Aux côtés de Wang Lin, les neuf autres répondirent d'une même voix. Ils se levèrent immédiatement et s'envolèrent vers l'entrée.
 
 Cependant, la vitesse de Wang Lin ralentit légèrement et il ne fut pas le premier à entrer. Il attendit que les autres passent devant lui avant de s'avancer.
 
@@ -66,7 +66,7 @@ C'est lui qui y avait établi la Secte de la Grande Épée! Et il l'avait nommé
 
 Ling Tianhou se déplaçait à une vitesse fulgurante, traversant l'atmosphère de la planète pour rejoindre son lieu de culture solitaire situé dans sa partie orientale.
 
-« Je dois utiliser ces 200 ans pour perfectionner l'Épée Céleste. Je vais fusionner neuf esprits de bêtes démoniaques en un seul afin d'affiner cette épée céleste et d'en faire une épée démoniaque. À ce moment-là, mes chances d'obtenir le jeton seront décuplées. » Les yeux du Saint de l'Épée s'illuminèrent alors qu'il disparaissait dans son pavillon personnel.
+« Je dois utiliser ces 200 ans pour perfectionner l'Épée Céleste. Je vais fusionner neuf esprits de bêtes démoniaques en un seul afin d'affiner cette épée céleste et d'en faire une épée démoniaque. À ce moment-là, mes chances d'obtenir le jeton seront doublées. » Les yeux du Saint de l'Épée s'illuminèrent alors qu'il disparaissait dans son pavillon personnel.
 
 Quant à l'Omniscient, dès son retour sur la planète Tian Yun, il se précipita dans la tour aux sept couleurs située au sommet des trois montagnes. Il s'assit à l'intérieur, entouré de plusieurs os de bêtes noires. Ces ossements étaient d'une lissité et d'un éclat extrêmes, dégageant une aura maléfique.
 
@@ -104,4 +104,4 @@ Ce n'est qu'une fois l'Art du Massacre Céleste parvenu à sa pleine maîtrise e
 
 « Enfin, il y a cette grande épée que j'ai aperçue à l'extérieur de la Mer des Esprits Démoniaques de l'Est. Elle était presque identique à la Richesse d'autrefois... » L'éclat dans les yeux de Wang Lin s'intensifia.
 
-« La Richesse possède un sortilège pour contrôler l'épée céleste. Si c'est véritablement elle, alors si je peux la retrouver et apprendre sa technique de contrôle, la puissance de l'épée céleste sera au moins décuplée... »
+« La Richesse possède un sortilège pour contrôler l'épée céleste. Si c'est véritablement elle, alors si je peux la retrouver et apprendre sa technique de contrôle, la puissance de l'épée céleste sera multipliée de plusieurs fois... »

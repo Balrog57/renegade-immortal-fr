@@ -77,7 +77,7 @@ Après avoir tout inspecté, Wang Lin soupira à nouveau. Il trouvait la Secte C
 
 Utiliser du jade pour les pierres de construction, élever des bêtes spirituelles comme du bétail, accorder un tel jardin d'herbes à un simple disciple de neuvième génération... Tout cela témoignait de la puissance colossale de la Secte Ciel Nuageux.
 
-À cet instant, une envie soudaine de dévaliser les entrepôts de pilules de la secte traversa l'esprit de Wang Lin. Il devait y avoir une immense variété de médicaments stockés là-bas; s'il pouvait s'en emparer, il ne manquerait jamais de rien jusqu'à atteindre le stade de la Séparation Spirituelle.
+À cet instant, une envie soudaine de dévaliser les entrepôts de pilules de la secte traversa l'esprit de Wang Lin. Il devait y avoir une immense variété de médicaments stockés là-bas; s'il pouvait s'en emparer, il ne manquerait jamais de rien jusqu'à atteindre le stade de la Formation de l'Âme.
 
 Dès que cette idée lui vint à l'esprit, il la chassa, car cela était impossible tant que son corps principal n'aurait pas atteint le stade de l'Âme Naissante. Ce n'est qu'alors que cela deviendrait envisageable.
 
@@ -149,7 +149,7 @@ Cependant, cela troublait Wang Lin. Il avait la certitude que Zhou Lin le consid
 
 Durant ces deux mois, sa culture passa du 3ème au 8ème niveau. Outre le liquide spirituel, son assiduité en alchimie avait grandement accéléré ses progrès. Bien qu'il soit venu chercher des pilules, il préférait désormais les fabriquer lui-même grâce aux méthodes et matériaux à sa disposition.
 
-Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est primordial, car cette voie est bien plus difficile que la culture elle-même. Pour un débutant, le taux d'échec est extrêmement élevé. Wang Lin avait tenté l'expérience maintes fois et n'avait réussi qu'à quelques reprises.
+Le chemin de l'alchimie est ardu. Au-delà du talent, le travail acharné est primordial, car cette voie est bien plus difficile que la culture elle-même. Pour un débutant, le taux d'échec est extrêmement élevé. Wang Lin avait tenté l'expérience maintes fois et n'avait réussi qu'une seule fois.
 
 Une fois, il avait consommé une grande quantité d'herbes pour forcer la création d'un lot de sept Pilules d'Aide à la Culture. Grâce aux pilules, au liquide spirituel et à sa perle transcendante, il avait pu bondir du 3ème au 8ème niveau en deux mois.
 

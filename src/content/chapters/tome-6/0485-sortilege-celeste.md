@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 485 - Celestial Spell
 slug: sortilege-celeste
 ---
-L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein du drapeau spirituel. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à quelques mètres de là.
+L'âme originelle de la femme fut libérée du sceau dans lequel elle était piégée au sein du drapeau spirituel. Un rayon de lumière violette jaillit de la bouche de Wang Lin et se mua en la silhouette de la femme, à une centaine de mètres de là.
 
 Dès son apparition, elle poussa un rugissement furieux et se jeta sur Wang Lin.
 
@@ -18,7 +18,7 @@ En un seul mot, l'âme originelle de la femme vêtue de robes violettes se dési
 
 Le cœur de Wang Lin trembla et ses pupilles se rétractèrent alors qu'il fixait l'endroit où la femme avait disparu, plongé dans une réflexion silencieuse.
 
-« Vous tous, partez! Wang Lin, reste! » L'Omniscient descendit lentement du ciel et atterrit devant le Pavillon de la Forêt Pourpre.
+« Vous tous, partez! Wang Lin, reste! » L'Omniscient descendit lentement du ciel et atterrit devant le Pavillon de la Forêt Violette.
 
 Bai Wei acquiesça rapidement et respectueusement, puis se retourna pour s'envoler vers l'horizon.
 
@@ -42,9 +42,9 @@ Après l'effondrement du Royaume Céleste, une grande quantité de sorts célest
 
 Quant aux trois sorts de mort que Situ Nan avait enseignés à Wang Lin, il les avait dérivés d'un sort céleste incomplet de qualité inférieure appartenant à Ye Wuyou.
 
-Situ Nan ne pouvait pas le reproduire, il ne pouvait qu'en imiter la structure. Après des années d'étude, il avait réussi à en dériver ces trois sorts de mort. Ces derniers possédaient des attributs démoniaques, car Situ Nan suivait la voie démoniaque.
+Situ Nan ne pouvait pas le reproduire, il ne pouvait qu'en imiter la structure. Après d'innombrables années d'étude, il avait réussi à en dériver ces trois sorts de mort. Ces derniers possédaient des attributs démoniaques, car Situ Nan suivait la voie démoniaque.
 
-L'Omniscient se tint silencieusement devant le Palais de la Forêt Pourpre et fixa longuement le mot « Forêt ».
+L'Omniscient se tint silencieusement devant le Palais de la Forêt Violette et fixa longuement le mot « Forêt ».
 
 Les environs étaient plongés dans un silence total. Wang Lin restait là, aux côtés de l'Omniscient, sans un bruit. Il ignorait quelle était la personnalité de son nouveau maître et ne parvenait pas à percer ses pensées. Cependant, à en juger par l'expression de l'Omniscient, celui-ci ne semblait pas en colère.
 
@@ -58,7 +58,7 @@ Wang Lin acquiesça. Il pensa à la technique utilisée par le Deuxième Frère,
 
 « Repose-toi bien. Dans trois mois aura lieu la célébration de mon anniversaire. De nombreux puissants cultivateurs de la planète Tian Yun et des planètes environnantes seront présents. Je saisirai cette occasion pour annoncer que je te prends comme disciple, afin que les habitants de la planète Tian Yun puissent se faire une idée de toi. Je suppose que très bientôt, ton frère aîné viendra t'en dire plus! » Tandis qu'il parlait, l'Omniscient s'éleva dans les airs et disparut lentement à l'horizon, pas après pas.
 
-Wang Lin salua respectueusement l'Omniscient avant de pénétrer dans le Pavillon de la Forêt Pourpre.
+Wang Lin salua respectueusement l'Omniscient avant de pénétrer dans le Pavillon de la Forêt Violette.
 
 Dans la chambre secrète située au troisième étage du pavillon, Wang Lin poussa un soupir de soulagement et observa les lieux avec une lueur mystérieuse dans les yeux.
 
@@ -76,15 +76,15 @@ Sur le côté est de la division pourpre, posé sur un lit de roches de jade, se
 
 Zhao Xingsha entra dans le pavillon avec une expression sombre. Dès qu'il fut à l'intérieur, il serra le poing avant de frapper violemment dans le vide.
 
-« Wang Lin!! J'ai suivi Maître pendant deux mille ans, je connais donc parfaitement sa personnalité. S'il ne t'a pas emmené directement au temple ancestral et ne t'a pas transmis de technique interdite pour sauver ta vie, c'est qu'il y a une raison! Si je ne m'abuse, c'est là le véritable test de Maître. Si, lors de la célébration d'anniversaire dans trois mois, tu parviens à démontrer ton talent, alors il t'acceptera réellement comme disciple... Cependant, Wang Lin, je ne te laisserai pas cette chance!! »
+« Wang Lin!! J'ai suivi Maître pendant deux mille ans, je connais donc parfaitement sa personnalité. S'il ne t'a pas emmené directement au temple ancestral et ne t'a pas transmis de technique interdite pour sauver ta vie, c'est qu'il y a une raison! Si je ne m'abuse, c'est là le véritable test de Maître. Si, lors de la célébration d'anniversaire dans trois mois, tu parviens à surpasser toute la division pourpre, alors il t'acceptera réellement comme disciple... Cependant, Wang Lin, je ne te laisserai pas cette chance!! »
 
-« Le Pavillon de la Forêt Pourpre m'importe peu, mais la place de disciple direct au sein de la division pourpre m'appartiendra sans aucun doute!!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
+« Le Pavillon de la Forêt Violette m'importe peu, mais la place de disciple direct au sein de la division pourpre m'appartiendra sans aucun doute!!! Le Deuxième Frère est blessé et nourrit certainement une haine que l'on peut exploiter. Quant au Troisième Frère... c'est un homme imprévisible, il pourrait poser problème, mais j'ai encore le moyen de le faire plier. »
 
 « La Quatrième Sœur... son niveau de culture est élevé, mais je saurai naturellement comment la gérer. Le Sixième Frère a déjà atteint le stade d'Ascendant, mais après que sa place a été prise par Sun Yun, il a quitté la Secte du Destin Céleste pour s'entraîner à l'extérieur. S'il revient, je ne pourrai pas faire grand-chose, mais s'il ne revient pas, mon seul adversaire sera Wang Lin!! »
 
 « À l'origine, je ne le considérais pas comme une menace, mais aujourd'hui j'ai vu que ses sorts sont redoutables et ses trésors précieux. Bien que sa culture ne soit qu'au début de la Transformation de l'Âme, il peut menacer quelqu'un au stade avancé de cette même étape. Il est mon plus grand ennemi! Hélas, après toutes ces années, mes blessures ne se sont pas encore guéries; autrement, un simple cultivateur au début de la Transformation de l'Âme ne suffirait pas à attirer mon attention! »
 
-Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait le Pavillon de la Forêt Pourpre avec une expression sinistre.
+Les yeux de Zhao Xingsha brillèrent d'une lueur diabolique alors qu'il fixait le Pavillon de la Forêt Violette avec une expression sinistre.
 
 « Septième Frère, je vais te laisser affronter la Quatrième Sœur en premier! Je ne te tuerai pas, mais je te blesserai si gravement qu'il te faudra des années pour t'en remettre. D'ici là, je serai déjà l'un des sept disciples directs et ma culture sera en voie de rétablissement; tu ne vaudras plus alors mon attention! »
 

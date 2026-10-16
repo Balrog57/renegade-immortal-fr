@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 393 - The power of one word
 slug: le-pouvoir-dun-seul-mot
 ---
-Le regard de Wang Lin devint glacial. Il pointa du doigt cette protubérance et la perle défiant le ciel apparut.
+Le regard de Wang Lin devint glacial. Il pointa du doigt son front et la perle défiant le ciel apparut.
 
-Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal. C'était l'esprit de bois que Wang Lin avait dérobé à l'Ancien du pays Suzaku après son combat contre Papillon Rouge.
+Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée à l'Ancien du mont Suzaku après son combat contre Papillon Rouge.
 
 « Métal, bois, eau, feu et terre; la perle défiant le ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
 
@@ -66,7 +66,7 @@ Après un long moment, ses yeux emplis de mélancolie, il repartit.
 
 « Li Yuanfeng! » Dans la cour devant le palais, le vent hurlant faisait voler la neige.
 
-Une silhouette illusoire avançait lentement à travers la tempête de neige. Elle devint progressivement plus tangible et, lorsqu'elle fut à dix pas des portes du palais, elle révéla l'identité de Wang Lin.
+Une silhouette illusoire avançait lentement à travers la tempête de neige. Elle devint progressivement plus tangible et, lorsqu'elle fut à 33 mètres des portes du palais, elle révéla l'identité de Wang Lin.
 
 Le Wang Lin actuel affichait une expression glaciale en contemplant le Li Yuanfeng stupéfait.
 
@@ -90,7 +90,7 @@ Le palais entier commença à trembler, puis la moitié de l'édifice s'effondra
 
 L'expression des trois Anciens changea radicalement lorsqu'une force puissante les repoussa. L'un des vieillards regarda Wang Lin avec incrédulité et hurla: « Aurais-tu atteint le stade de la Transformation de l'Âme?! »
 
-Wang Lin ne da même pas un regard aux trois autres; son attention était entièrement focalisée sur Li Yuanfeng. À cet instant, il se rua vers lui tel un éclair.
+Wang Lin ne daigna même pas un regard aux trois autres; son attention était entièrement focalisée sur Li Yuanfeng. À cet instant, il se rua vers lui tel un éclair.
 
 Les trois Anciens crièrent aussitôt et apparurent devant Wang Lin pour tenter de l'intercepter.
 
@@ -106,7 +106,7 @@ Un cultivateur au stade intermédiaire de la Formation de l'Âme mourait en un s
 
 Les deux autres restants furent instantanément pétrifiés par la terreur.
 
-Wang Lin ne da même pas un regard aux survivants et reprit sa marche vers Li Yuanfeng.
+Wang Lin ne daigna même pas un regard aux survivants et reprit sa marche vers Li Yuanfeng.
 
 L'expression de Li Yuanfeng était sombre; ses mains formèrent des sceaux qu'il pointa vers les huit blocs géants de glace. Ces derniers se mirent immédiatement en mouvement pour le protéger.
 
@@ -128,7 +128,7 @@ Les yeux de Wang Lin brillèrent d'une intention de combat féroce. Il leva prom
 
 Bang!
 
-La marque descendant du ciel s'effondra instantanément, et l'onde de choc força Li Yuanfeng à reculer de cent pieds. Les yeux de Li Yuanfeng étaient empreints de choc, mais surtout de peur.
+La marque descendant du ciel s'effondra instantanément, et l'onde de choc força Li Yuanfeng à reculer de plus de trente mètres. Les yeux de Li Yuanfeng étaient empreints de choc, mais surtout de peur.
 
 Wang Lin recula de trois pas. Chaque pas provoquait d'innombrables fissures dans le sol.
 

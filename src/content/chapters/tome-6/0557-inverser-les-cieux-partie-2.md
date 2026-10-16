@@ -94,7 +94,7 @@ S'apprêtant à affronter le second assaut de l'esprit de la grotte, elle toucha
 
 Les jades dans la main de Yao Xixue se brisèrent instantanément et une immense lueur rouge sang enveloppa le dragon. Ce dernier perça immédiatement la lumière écarlate et, bien qu'il en ait perdu un peu de son éclat, il frappa la poitrine de Yao Xixue avec une férocité inouïe.
 
-Le visage de Yao Xixue devint subitement livide et elle réprima le sang qui montait à sa gorge. Elle recula de deux pas avant de fixer l'homme d'âge moyen.
+Le visage de Yao Xixue prit subitement une teinte rouge étrange et elle réprima le sang qui montait à sa gorge. Elle recula de deux pas avant de fixer l'homme d'âge moyen.
 
 C'était la quatrième fois qu'elle atteignait cette porte. Elle savait que les jades de sang ne fonctionnaient qu'une seule fois et qu'ils seraient inefficaces contre le second assaut.
 

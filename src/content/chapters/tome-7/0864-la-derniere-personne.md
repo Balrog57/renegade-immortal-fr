@@ -16,7 +16,7 @@ Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvan
 
 Après tout, le nom « Xu Mu » était devenu trop célèbre et celui de « Maître Démon » exhalait encore une odeur de sang. Ce Xu Mu avait toujours été discret, mais il agissait désormais avec une ostentation frappante. Il était clair qu'il visait la première place; autant la lui offrir. Il n'y avait aucun intérêt à rivaliser avec lui et à déclencher une querelle inutile.
 
-Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Earth Flame. Il maintint sa condition physique à son apogée afin de se préparer pour les finales dans le système stellaire d'Allheaven!
+Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Flamme de Terre. Il maintint sa condition physique à son apogée afin de se préparer pour les finales dans le système stellaire d'Allheaven!
 
 Au cours de ces sept jours, Shengong Hu fut le premier à venir le voir. Il n'interrogea pas Wang Lin sur sa culture, il discuta simplement du Dao et repartit avec quelques enseignements. Il s'inclina devant Wang Lin avec respect dans le regard. Bien que son attitude ne fût plus aussi intense qu'auparavant, l'actuel Wang Lin avait désormais gagné son approbation.
 
@@ -48,7 +48,7 @@ Le visage de Nangong Han était marqué par le regret. Il le suivit rapidement e
 
 Les 107 autres participants du Domaine Sud avaient été sélectionnés. Le vieil homme aux robes pourpres sortit une pierre noire et la broya. D'innombrables éclats de lumière cristalline jaillirent et une formation illusoire se matérialisa.
 
-Cette formation était immense, s'étendant sur plus de mille pieds de large. Le vieil homme aux robes pourpres entra le premier, suivi des deux messagers en robes vertes. Ils disparurent à l'intérieur de la formation.
+Cette formation était immense, s'étendant sur environ 330 mètres de large. Le vieil homme aux robes pourpres entra le premier, suivi des deux messagers en robes vertes. Ils disparurent à l'intérieur de la formation.
 
 Les 108 participants restants entrèrent progressivement dans la formation. Wang Lin en faisait partie, tout comme Shengong Hu et Zhan Konglie.
 

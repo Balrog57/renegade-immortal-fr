@@ -22,7 +22,7 @@ Cependant, du point de vue de Wang Lin, bien que le pays Suzaku soit le dirigean
 
 « Je crains que Suzaku n'ait atteint sa fin... » Wang Lin leva la tête et regarda au loin, vers la direction où se trouvait le pays Suzaku.
 
-Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre des centaines d'arènes. Sur chaque arène, des dizaines de combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but: rejoindre la secte intérieure.
+Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre plus d'une centaine d'arènes. Sur chaque arène, des dizaines de combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but: rejoindre la secte intérieure.
 
 Il n'y avait qu'une seule règle: gagner. Ils se souciaient peu de la vie ou de la mort des autres disciples. Si vous en aviez la capacité, vous pouviez tous les tuer sans que cela ne les dérange.
 
@@ -30,9 +30,9 @@ Une rumeur circulait même selon laquelle plus l'on tuait, plus les chances d'in
 
 Cette rumeur resurgissait à chaque début de compétition. Il y a longtemps, un démon s'était frayé un chemin à travers le tournoi en tuant tout sur son passage. Bien qu'il n'ait pas remporté la victoire finale, il finit par être accepté dans la secte intérieure. Cet événement extraordinaire avait fait se répandre la rumeur comme une traînée de poudre.
 
-À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves. Les perdants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition.
+À chaque compétition, moins de la moitié des disciples de la secte extérieure survivaient à la fin des épreuves. Les survivants devaient verser encore plus de pierres spirituelles pour s'assurer de pouvoir participer à la prochaine édition.
 
-Nul ne savait combien de disciples de la secte extérieure étaient morts au fil des ans. Après chaque compétition, le drapeau principal de l'âme de la secte recueillait d'innombrables âmes. La Secte du Raffinement de l'Âme ne cessait de croître en puissance grâce à cette méthode cruelle.
+Nul ne savait combien de disciples de la secte extérieure étaient morts au fil des ans. Après chaque compétition, le drapeau principal de l'âme de la secte recueillait d'innombrables âmes. La Secte de l'Affinement de l'Âme ne cessait de croître en puissance grâce à cette méthode cruelle.
 
 Chaque jour, un grand nombre de disciples mouraient. Les cent arènes de combat étaient inondées de sang. Wang Lin observa attentivement ces derniers jours: chaque fois que quelqu'un mourait, son âme était absorbée par l'arène avant de disparaître.
 
@@ -44,7 +44,7 @@ Un cri monta des disciples environnants, puis un disciple court et gras bondit d
 
 À l'instant où il quitta la scène, le corps du disciple court et gras trembla. Toutes les flammes s'éteignirent et le disciple s'évanouit. Wang Lin ne l'avait pas tué; tuer un junior au stade de l'Établissement des Fondations était tout simplement indigne.
 
-Le temps passa, et de nombreux disciples de la secte extérieure périrent. Après sept jours, outre les cent survivants, 50 % des disciples restants avaient déjà trouvé la mort. Les autres avaient soit abandonné préventivement, soit survécu après des combats où les deux parties furent grièvement blessées.
+Le temps passa, et de nombreux disciples de la secte extérieure périrent. Après sept jours, outre les cent survivants, 50 % des disciples avaient déjà trouvé la mort. Les autres avaient soit abandonné préventivement, soit survécu après des combats où les deux parties furent grièvement blessées.
 
 Durant ces sept jours, quatre personnes parmi les disciples de la secte extérieure captèrent l'attention.
 
@@ -62,7 +62,7 @@ Quant à la dernière personne, c'était Wang Lin lui-même. Il traversait la co
 
 Quant à Liu Mei, il supposait qu'elle avait ses propres desseins. Même sans participer à la compétition, elle trouverait un moyen d'intégrer la secte intérieure.
 
-Le temps s'écoula rapidement et sept jours supplémentaires passèrent. Sur les cent disciples environ, seuls quatre restaient. Par coïncidence, ces quatre survivants étaient précisément ceux qui avaient attiré l'attention de la Secte du Raffinement de l'Âme.
+Le temps s'écoula rapidement et sept jours supplémentaires passèrent. Sur les cent disciples environ, seuls quatre restaient. Par coïncidence, ces quatre survivants étaient précisément ceux qui avaient attiré l'attention de la Secte de l'Affinement de l'Âme.
 
 Vint le jour du combat de Wang Lin. Il se tenait sur l'arène et regarda son adversaire monter sur scène avec un sourire étrange. L'homme qui s'avançait n'était pas un inconnu, mais le cultivateur au visage de boucher de la grotte 743.
 
@@ -80,7 +80,7 @@ L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune h
 
 À ce stade, il ne restait plus que deux prétendants pour cette compétition de la secte extérieure: Wang Lin et le vieil homme nommé Sima. Le combat entre les deux débuta le lendemain.
 
-Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante. De plus, le drapeau de l'âme de la Secte du Raffinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume du Ji.
+Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume du Ji.
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 

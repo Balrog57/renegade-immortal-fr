@@ -12,43 +12,43 @@ Grâce à ce guide, les sectes qui avaient déjà perdu leurs jetons purent expl
 
 La Secte He Huan fut la dernière secte à détenir encore un jeton. La disciple féminine qui dirigeait le groupe ne remit pas l'objet, mais tourna son regard vers la seule autre secte restante: la Vallée Wu Feng.
 
-Le chef de la Vallée Wu Feng était un vieil homme dont l'apparence suggérait qu'il était proche de la mort. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de culture en méditation pour parfaire sa formation.
+Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix ans, au regard perçant. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de culture en méditation pour parfaire sa formation.
 
-Il fixa Wang Lin et ricana: « Petit bâtard, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
+Il fixa Wang Lin et ricana: « Petit morveux, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
 
 Le front du chef de la Secte He Huan se détendit. Après avoir échangé quelques mots avec les membres de sa secte, ils reculèrent tous lentement.
 
 Le regard de Wang Lin balaya le groupe avant de se poser sur l'arrogant vieillard. Puis, sans dire un mot, il frappa son sac de rangement et un grain de riz cyan apparut en suspens dans l'air.
 
-L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. Il était convaincu qu'il aurait pu éliminer ces gens aussi proprement que Wang Lin l'avait fait. À ses yeux, ce dernier cachait sa force, mais il n'atteignait au mieux que le pic du stade avancé de l'Établissement des Fondations. Il était persuadé que son propre niveau de culture était équivalent à celui de Wang Lin. Et puisque, à niveau égal, il détenait l'un des trésors emblématiques de la Vallée Wu Feng — l'Éventail de Foudre Céleste et de Feu Éolien —, sa victoire lui semblait assurée.
+L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. Il était convaincu qu'il aurait pu éliminer ces gens aussi proprement que Wang Lin l'avait fait. À ses yeux, ce dernier cachait sa force, mais il n'atteignait au mieux que le pic du stade avancé de l'Établissement des Fondations. Il était persuadé que son propre niveau de culture était équivalent à celui de Wang Lin. Et puisque, à niveau égal, il détenait l'un des trésors emblématiques de la Vallée Wu Feng — l'Ombrelle de Foudre Céleste et de Feu Éolien —, sa victoire lui semblait assurée.
 
 En voyant que Wang Lin ne sortait qu'un insignifiant petit point de lumière, un sourire condescendant s'étira sur son visage. Il cria à ses disciples: « Reculez tous, et regardez comment je vais détruire cet insolent gamin! »
 
-Il agita la main, et un petit éventail d'environ sept centimètres apparut dans sa paume. De nombreux symboles de flammes dorées ornaient l'objet, lui conférant une beauté singulière.
+Il agita la main, et une petite ombrelle d'environ dix centimètres apparut dans sa paume. De nombreux symboles de flammes dorées ornaient l'objet, lui conférant une beauté singulière.
 
-À ces mots et en voyant l'éventail, les visages des autres disciples de la Vallée Wu Feng changèrent. Ils reculèrent instinctivement; certains s'éloignèrent même de plus de cent pieds avant de se détendre légèrement.
+À ces mots et en voyant l'ombrelle, les visages des autres disciples de la Vallée Wu Feng changèrent. Ils reculèrent instinctivement; certains s'éloignèrent même de plus de dix mètres avant de se détendre légèrement.
 
 Wang Lin fit un mouvement brusque et saisit le stupéfait Li Shan alors qu'il reculait rapidement. Tout en s'éloignant, il utilisa sa technique d'attraction pour diriger le grain de riz vers le vieillard.
 
-Le visage du vieil homme était empreint de dédain. Il frappa l'éventail pour l'ouvrir, et aussitôt, un faisceau de lumière dorée jaillit.
+Le visage du vieil homme était empreint de dédain. Il frappa l'ombrelle pour l'ouvrir, et aussitôt, un faisceau de lumière dorée jaillit.
 
-Soudain, un vent étrange surgit et tourbillonna autour de l'éventail. Les flammes dorées semblèrent alors prendre vie, embrasant instantanément la zone environnante.
+Soudain, un vent étrange surgit et tourbillonna autour de l'ombrelle. Les flammes dorées semblèrent alors prendre vie, embrasant instantanément la zone environnante.
 
 C’est à cet instant précis que le grain cyan percuta la bordure du vent étrange. L'instant d'après, le feu doré enveloppa le grain.
 
 L'expression de Wang Lin resta impassible. Ses pas ne s'arrêtèrent pas tandis qu'il ordonnait mentalement: « Explose! »
 
-Au cœur du vent étrange et des flammes dorées, une lueur cyan jaillit. Lorsque cette lumière atteignit son apogée, elle explosa dans un fracas assourdissant, formant un anneau de lumière cyan qui se propagea telle une vague déferlante.
+Au cœur du vent étrange et des flammes dorées, une lueur cyan jaillit. Lorsque cette lumière atteignit son apogée, elle explosa dans un fracas assourdissant, formant un anneau de lumière bleu profond qui se propagea telle une vague déferlante.
 
 Le spectacle était aussi impétueux que dix mille chevaux au galop. En un instant, la déflagration balaya tout dans un rayon de plus de 300 mètres.
 
 Le vent est normalement intangible, mais sous la puissance du Royaume Ji, il se mua en éclats de glace bleue qui s'écrasèrent au sol. Les flammes dorées suivirent: elles n'eurent même pas le temps de s'éteindre qu'elles furent figées. Pour qui regardait de près, on aurait dit que les flammes brûlaient encore prisonnières de la glace.
 
-Quant au trésor de la Vallée Wu Feng, l'Éventail de Foudre Céleste et de Feu Éolien, il resta figé en position ouverte, recouvert par la glace bleue.
+Quant au trésor de la Vallée Wu Feng, l'Ombrelle de Foudre Céleste et de Feu Éolien, il resta figé en position ouverte, recouvert par la glace bleue.
 
 Le vieillard au stade pseudo-Formation du Noyau n'eut même pas le temps de réagir. Son visage, encore empreint de dédain et de fierté, fut instantanément pétrifié par la glace.
 
-Derrière lui se trouvaient dix-sept disciples de la Vallée Wu Feng. Même ceux qui s'étaient éloignés de plus de cent pieds ne purent s'échapper; ils furent tous transformés en sculptures de glace.
+Derrière lui se trouvaient dix-sept disciples de la Vallée Wu Feng. Même ceux qui s'étaient éloignés de plus de dix mètres ne purent s'échapper; ils furent tous transformés en sculptures de glace.
 
 Dans un rayon de 300 mètres, plus rien de vivant ne subsistait. Tout ce qui respirait fut anéanti. La zone était devenue une terre interdite à toute forme de vie.
 

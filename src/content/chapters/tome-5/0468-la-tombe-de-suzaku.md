@@ -16,7 +16,7 @@ Mo Zhi regarda Wang Lin, secoua la tête et soupira. « Dommage. Puisque frère 
 
 Son regard se posa ensuite sur Yunque Zi.
 
-« Le Clan des Immortels Abandonnés... de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yunque Zi, acceptez-vous? »
+« Le Clan des Immortels Abandonnés... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yunque Zi, acceptez-vous? »
 
 Le cœur d'Yunque Zi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance de la Culture; le Clan des Immortels Abandonnés n'avait aucune chance de s'y opposer.
 
@@ -34,7 +34,7 @@ Après dix respirations, la Tombe de Suzaku avait retrouvé son état initial.
 
 Mo Zhi jeta un dernier regard sur le cristal blanc qu'il tenait, puis le lança dans l'océan. Le cristal s'enfonça rapidement dans les profondeurs et disparut.
 
-Puis, il pointa du doigt le cadavre de Zhuque Zi, et un cristal en forme de cœur jaillit de l'espace entre ses sourcils. De nombreuses fissures profondes marquaient le cristal, comme s'il pouvait se briser à tout instant.
+Puis, il pointa du doigt le cadavre de Zhuque Zi, et un cristal en forme de cœur jaillit du sommet de son crâne. De nombreuses fissures profondes marquaient le cristal, comme s'il pouvait se briser à tout instant.
 
 Mais à cet instant, les fêlures commencèrent mystérieusement à se résorber et, en trois respirations, le cristal fut redevenu parfaitement lisse.
 
@@ -104,7 +104,7 @@ Mo Zhi lança un dernier regard pensif à Wang Lin avant de se retourner, de fai
 
 Wang Lin se retrouva seul.
 
-« J'ai récupéré mes fragments d'âme ainsi que ceux de Wan Er. Le prochain Suzaku est Zhou Wutai, et c'est un homme reconnaissant. Je l'ai aidé; ainsi, même en mon absence, il veillera sur mes connaissances, ce qui me permettra d'avoir l'esprit tranquille. »
+« J'ai récupéré mes fragments d'âme ainsi que ceux de Wan Er. Le prochain Suzaku est Zhou Wutai, et c'est un homme reconnaissant. Je l'ai aidé; ainsi, même en mon absence, il veillera sur mes proches, ce qui me permettra d'avoir l'esprit tranquille. »
 
 C'était la raison pour laquelle il voulait que Zhou Wutai devienne le prochain Suzaku: pour n'avoir aucune inquiétude à se faire à l'avenir.
 
@@ -120,7 +120,7 @@ Ce « rêve » impliquant Liu Mei ne pouvait en rien influencer la résolution d
 
 « Les pertes lors de ce voyage à la Tombe de Suzaku sont trop lourdes. Il ne reste que trois âmes primaires et tous les fragments d'âme ont été détruits... La puissance du drapeau est considérablement affaiblie... Mais avec suffisamment d'âmes, il pourra retrouver sa pleine puissance. Hélas, les âmes errantes ne peuvent être utilisées, sinon la réparation serait bien plus simple! »
 
-« Le Cristal de la Planète de Culture est un objet si précieux que prétendre l'utiliser pour faire évoluer le Domaine Ji doit être un mensonge! Pour l'instant, la priorité est de trouver Xu Liguo. Je dois obtenir cette lame en demi-lune! » Après avoir libéré Xu Liguo, Wang Lin l'avait gardé sous surveillance. Le localisant enfin, il fit un pas, se mua en une fumée verte et s'élança vers lui.
+« Le Cristal de la Planète de Culture est un objet si précieux que prétendre l'utiliser pour faire évoluer le Royaume Ji doit être un mensonge! Pour l'instant, la priorité est de trouver Xu Liguo. Je dois obtenir cette lame en demi-lune! » Après avoir libéré Xu Liguo, Wang Lin l'avait gardé sous surveillance. Le localisant enfin, il fit un pas, se mua en une fumée verte et s'élança vers lui.
 
 L'épisode de la Tombe de Suzaku touchait à sa fin.
 

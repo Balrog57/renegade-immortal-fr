@@ -70,7 +70,7 @@ Le visage de Bai Wei prit une expression féroce et il éclata de rire. « Wang 
 
 « Cependant, moi, cette fourmi, cette expérience de son œuvre, je vais faire quelque chose pour le choquer! Je ne crois pas qu'il puisse prévoir avec certitude cette idée qui vient soudainement de germer dans mon esprit!
 
-« Wang Lin, je connais ma situation mieux que quiconque; il est impossible de me sauver. Cependant, avant de mourir, je veux prendre cet extrême Yang qui a été cultivé pendant des milliers d'années, la chose que le Tout-Voyant attendait tant, et vous la donner. Wang Lin, osez-vous la prendre? »
+« Wang Lin, je connais ma situation mieux que quiconque; il est impossible de me sauver. Cependant, avant de mourir, je veux prendre cet extrême Yang qui a été cultivé pendant mille ans, la chose que le Tout-Voyant attendait tant, et vous la donner. Wang Lin, osez-vous la prendre? »
 
 Bai Wei fixa Wang Lin, et sa voix résonna dans toute la vallée. Les mêmes mots semblèrent surgir de partout dans la vallée pour pénétrer les oreilles de Wang Lin comme des coups de tonnerre.
 

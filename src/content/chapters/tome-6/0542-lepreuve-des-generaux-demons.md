@@ -24,7 +24,7 @@ Wang Lin secoua la tête et dit: « Bien que tu aies utilisé toute ta force pou
 
 Treize fut stupéfait, mais il hocha rapidement la tête et commença à méditer sur ses erreurs.
 
-À ce moment, plus d'une douzaine de soldats démons s'étaient rassemblés autour de Wang Lin. On ne savait pas qui avait donné le signal, mais l'un d'eux poussa un rugissement et chargea avec son arme.
+À ce moment, plusieurs dizaines de soldats démons s'étaient rassemblés autour de Wang Lin. On ne savait pas qui avait donné le signal, mais l'un d'eux poussa un rugissement et chargea avec son arme.
 
 Devant la porte, l'énergie spirituelle démoniaque fut libérée, le sable vola en éclats et une puissante intention meurtrière surgit alors que les soldats démons se précipitaient. Ces soldats étaient tous des vétérans de guerre; ainsi, tant que la différence de niveau de culture n'était pas trop abyssale, même ceux plus puissants qu'eux subissaient la pression de leur aura féroce.
 
@@ -32,7 +32,7 @@ Devant la porte, l'énergie spirituelle démoniaque fut libérée, le sable vola
 
 Son poing frappa l'air, mais bientôt une ondulation commença à se propager depuis son poing comme point central. Les soldats démons qui chargeaient ralentirent instantanément après avoir été frappés par l'onde, comme si l'air autour d'eux s'était solidifié.
 
-Mais soudain, l'ondulation secoua violemment le milieu et tous les soldats démons furent repoussés à une vitesse dix fois supérieure à celle de leur charge initiale.
+Mais soudain, l'ondulation secoua violemment le milieu et tous les soldats démons furent repoussés à une vitesse plusieurs fois supérieure à celle de leur charge initiale.
 
 Tandis qu'ils étaient projetés en arrière, leurs visages devinrent pâles et ils crachèrent de larges bouffées de sang.
 
@@ -74,7 +74,7 @@ Wang Lin acquiesça et dit à Treize et Hu Pao: « Attendez-moi à l'intérieur 
 
 Après un bref inconfort dû au transport, Wang Lin retrouva son calme et observa les lieux vers lesquels il avait été téléporté. Il remarqua immédiatement un bâtiment magnifique qui perçait les cieux.
 
-C'était un palais gigantesque abritant une statue monumentale qui semblait s'élancer vers les heavens. C'était la statue d'un guerrier puissant portant une armure, et elle dégageait une aura démoniaque colossale. Le ciel entier était tourmenté par cette puissance, créant des tourbillons dans les nuages.
+C'était un palais gigantesque abritant une statue monumentale qui semblait s'élancer vers les cieux. C'était la statue d'un guerrier puissant portant une armure, et elle dégageait une aura démoniaque colossale. Le ciel entier était tourmenté par cette puissance, créant des tourbillons dans les nuages.
 
 La femme en robe blanche sortit du réseau de transfert et annonça: « Seigneur général démon, j'ai amené l'individu! »
 
@@ -118,7 +118,7 @@ L'homme afficha un soupçon d'admiration. Sans perdre de temps, il lança un cou
 
 Sa vitesse était fulgurante; en un instant presque imperceptible, il porta dix coups. L'espace environnant commença à montrer des signes d'effondrement, mais la structure spatiale ici était si robuste qu'elle ne céda pas après seulement dix impacts.
 
-« Si tu peux résister à mon Intention de Bataille aux Dix Effondrements, tu pourras devenir un chef de commandement! » Le colosse poussa un rugissement puissant en tendant la main. C'était comme s'il avait plongé dans le néant pour saisir l'espace en train de s'effondrer et pour le projeter sur Wang Lin.
+« Si tu peux résister à mon Intention de Bataille aux Dix Effondrements, tu pourras devenir un commandant en chef! » Le colosse poussa un rugissement puissant en tendant la main. C'était comme s'il avait plongé dans le néant pour saisir l'espace en train de s'effondrer et pour le projeter sur Wang Lin.
 
 Cette Intention de Bataille aux Dix Effondrements n'était pas matérielle, elle faisait partie du vide même. Elle concentrait toute l'aura démoniaque des dix coups du général et était saturée de son intense intention meurtrière.
 

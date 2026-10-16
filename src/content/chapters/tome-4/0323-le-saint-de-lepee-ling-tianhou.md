@@ -18,7 +18,7 @@ Les deux dragons dorés rugissaient avec frénésie, et toutes les épées céle
 
 Les trois dragons encerclaient la femme en robe blanche. Son regard glacial balayait occasionnellement les environs.
 
-D'autres vagues d'épées célestes convergeaient vers ce point. Il ne fallut pas longtemps pour que plus de cent autres s'assemblent dans ce fragment; il s'agissait des plus rapides, ceux qui avaient réussi à suivre la course des épées célestes.
+D'autres vagues d'épées célestes convergeaient vers ce point. Il ne fallut pas longtemps pour que plus de cent cultivateurs s'assemblent dans ce fragment; il s'agissait des plus rapides, ceux qui avaient réussi à suivre la course des épées célestes.
 
 À mesure que les épées affluaient sans fin, de plus en plus de cultivateurs faisaient leur apparition. Presque tous affichaient des signes d'avidité en fixant les dragons dorés entourant la femme. Quiconque pouvait pénétrer dans le royaume céleste était l'élite de sa planète de culture respective. Bien que tous fussent avides, ils parvinrent à se maîtriser, attendant de voir qui serait le premier à passer à l'acte.
 
@@ -30,7 +30,7 @@ La femme en robe blanche répondit calmement: « Ce n'est pas assez. Attends enc
 
 C'est à cet instant précis qu'un rugissement puissant retentit soudainement depuis l'est, empreint de provocation. Les trois dragons dorés tournèrent leurs regards vers cette direction.
 
-Une gigantesque boule de feu fonçait depuis là. L'onde de chaleur précéda la sphale enflammée. L'expression de certains cultivateurs à proximité changea radicalement; ils reculèrent précipitamment pour lui frayer un passage.
+Une gigantesque boule de feu fonçait depuis là. L'onde de chaleur précéda la sphère enflammée. L'expression de certains cultivateurs à proximité changea radicalement; ils reculèrent précipitamment pour lui frayer un passage.
 
 Une fois le chemin dégagé, la boule de feu traversa le vide et explosa dans le ciel au-dessus du fragment. Elle se dispersa en d'innombrables météores projetés dans toutes les directions. Au cœur de l'explosion se trouvait un Qilin entouré de flammes vertes. Il expira deux jets de vapeur blanche par les naseaux tout en fixant les trois dragons dorés.
 
@@ -72,7 +72,7 @@ La femme en robe blanche resta imperturbable. Ses yeux étaient empreints de mé
 
 Une pointe de confusion passa dans les yeux du Qilin. Le visage de l'homme devint renfrogné et une fumée noire apparut sur sa main. Il projeta cette fumée dans la tête du Qilin. Terrifiée, la créature vit son trouble disparaître pour laisser place à une expression de sauvagerie.
 
-La femme secoua la tête: « Ainsi, ce n'est qu'une bête factice qui n'a jamais reçu d'héritage. » Sur ce, elle leva la main et pointa le Qilin.
+La femme secoua la tête: « Ainsi, ce n'est qu'une bête inférieure qui n'a jamais reçu d'héritage. » Sur ce, elle leva la main et pointa le Qilin.
 
 Le Qilin recula instantanément. Sa férocité s'évanouit pour laisser place à une peur panique. Il secoua violemment le vieil homme de sa tête avant de se prosterner au sol, le corps tremblant de tous ses membres. L'homme, désormais flottant dans les airs, affichait un visage profondément troublé.
 

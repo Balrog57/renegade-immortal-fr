@@ -1,6 +1,6 @@
 ---
 n: 800
-title: Le Pouvoir du Désespoir
+title: La Force de Survivre
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 800 - The Power of Desperation
@@ -14,7 +14,7 @@ Cette lutte se nomme « la survie »!
 
 Plus tôt, l'apparition du fragment leur avait donné un espoir de salut; désormais, la ruée vers le réseau de transfert était leur combat pour la vie! Tel un papillon perçant son cocon, ce moment déterminait s'ils allaient vivre ou mourir!
 
-La foi en la vie et la lutte pour survivre avaient rendu fous tous les cultivateurs qui avaient franchi un palier.
+La foi en la vie et la lutte pour survivre avaient rendu fous tous les cultivateurs qui s'étaient précipités à l'intérieur à l'instant où l'écran de lumière s'était brisé.
 
 Les cultivateurs Ascendants avaient eu le courage de défier les cultivateurs Yang Corporel et de prendre l'initiative. Ils en avaient oublié l'abîme infranchissable qui les séparait, ainsi que le respect qu'ils auraient dû témoigner si l'on se trouvait à l'extérieur ou si le Royaume Céleste ne s'effondrait pas.
 
@@ -92,9 +92,9 @@ Mais à cet instant précis, un rayon de lumière argentée, plus rapide que l'�
 
 Pourtant, le rayon argenté était trop rapide. À l'instant même où il dispersait son énergie, la lumière perça sa poitrine.
 
-Le messager cracha une large traînée de sang et fut projeté en arrière. Les yeux de Wang Lin restèrent froids. Ignorant totalement la main formée par le brouillard, il pointa sa main droite vers l'avant et un éclair de tonnerre violet jaillit. Il frappa entre les sourcils du messager en un instant. Le corps du serviteur trembla, puis son enveloppe charnelle et son âme d'origine périrent ensemble!
+Le messager cracha une large traînée de sang et fit quelques pas titubants vers l'avant. Les yeux de Wang Lin restèrent froids. Ignorant totalement la main formée par le brouillard, il pointa sa main droite vers l'avant et un éclair de tonnerre violet jaillit. Il frappa entre les sourcils du messager en un instant. Le corps du messager trembla, puis son âme d'origine fut anéantie avec lui!
 
-À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen. C'était l'un des deux cultivateurs Yang Corporel qui se cachaient parmi la foule. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
+À cet instant, la lumière argentée s'estompa pour révéler un homme d'âge moyen au corps émacié. C'était l'un des deux cultivateurs Yang Corporel qui avaient dissimulé leur niveau de culture et étaient restés sur le fragment de cent pieds. Il joignit les mains en signe de respect envers Wang Lin, puis s'élança pour aider les autres.
 
 Wang Lin hocha légèrement la tête. Il avait déjà percé à jour le niveau de culture des deux Yang Corporel plus tôt; cependant, puisqu'ils avaient payé en jades, il n'avait rien dit et les avait laissés rester.
 

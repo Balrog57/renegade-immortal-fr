@@ -36,9 +36,9 @@ De surcroît, la chose située dans le bassin central lui procurait un sentiment
 
 Ce sentiment ne provenait pas d'un fragment d'âme spécifique, mais d'une familiarité générale.
 
-Après réflexion, Wang Lin pénétra dans la zone des bassins. Cependant, après une centaine de pieds, l'un des bassins dégagea une intention glaciale. L'épée plantée dans le bassin jaillit du sol et vola vers lui.
+Après réflexion, Wang Lin pénétra dans la zone des bassins. Cependant, après une trentaine de mètres, l'un des bassins dégagea une intention glaciale. L'épée plantée dans le bassin jaillit du sol et vola vers lui.
 
-C'était une épée très commune: trois pieds de long, deux doigts de large, entièrement argentée. Sa pointe était dirigée vers Wang Lin, émettant des vagues de bourdonnements métalliques.
+C'était une épée très commune: environ un mètre de long, deux doigts de large, entièrement argentée. Sa pointe était dirigée vers Wang Lin, émettant des vagues de bourdonnements métalliques.
 
 « Dégage! »
 
@@ -112,7 +112,7 @@ Depuis l'intérieur de l'épée céleste, Xu Liguo vit la lame et commença à p
 
 Ses tremblements se répercutèrent sur l'épée céleste, la faisant vibrer légèrement.
 
-La lame de demi-lune apparut aux côtés de l'épée céleste par une méthode mystérieuse. Dans un tintement sec, l'épée céleste fut repoussée, mais sans la moindre égratignure.
+La lame de demi-lune apparut aux côtés de l'épée céleste par une méthode mystérieuse. Dans un tintement sec, l'épée céleste fut repoussée de plusieurs mètres, mais sans la moindre égratignure.
 
 Xu Liguo poussa un cri et vola vers Wang Lin sans hésiter.
 
@@ -126,4 +126,4 @@ Dans un fracas retentissant, l'énergie de l'épée heurta la lame, mais celle-c
 
 « Laissez derrière... son âme... vous, partez... »
 
-Une fois le message transmis, la lame de demi-lune grandit soudainement jusqu'à atteindre cent pieds de haut et projeta une vague d'énergie capable de fendre les cieux.
+Une fois le message transmis, la lame de demi-lune grandit soudainement jusqu'à atteindre une trentaine de mètres de haut et projeta une vague d'énergie capable de fendre les cieux.

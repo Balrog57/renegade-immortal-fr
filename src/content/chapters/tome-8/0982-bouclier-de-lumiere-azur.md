@@ -16,7 +16,7 @@ Dès qu'il toucha la marque, une puissante force répulsive en jaillit. Cette fo
 
 Le bouclier de lumière azur trembla et la marque du dragon brilla intensément. La lueur de la marque atteignit son apogée et se métamorphosa en un dragon d'azur!
 
-Le corps du dragon mesurait 330 mètres de long et occupait plus de la moitié du palais. Ses écailles étaient magnifiques et sa silhouette, enroulée sur elle-même, dégageait une grande dignité. Il ouvrit la gueule, poussa un rugissement et tenta d'engloutir Wang Lin.
+Le corps du dragon mesurait 33 mètres de long et occupait plus de la moitié du palais. Ses écailles étaient magnifiques et sa silhouette, enroulée sur elle-même, dégageait une grande dignité. Il ouvrit la gueule, poussa un rugissement et tenta d'engloutir Wang Lin.
 
 « Espèce de bête maudite! » Les yeux de Wang Lin devinrent froids tandis qu'il tendait sa main droite. Une tempête jaillit et balaya le dragon. Il saisit l'être d'azur et s'apprêta à l'écraser.
 
@@ -36,7 +36,7 @@ Un dragon d'azur était sculpté sur ce fragment. Le relief était si réaliste 
 
 Tenant le fragment, Wang Lin l'examina avec soin. Il y décelait une aura similaire à celle de la marque de l'Oiseau Vermillon entre ses sourcils.
 
-« Les Quatre Sectes Divines possèdent l'Oiseau Vermillon, la Tortue Noire, le Dragon d'Azur et le Tigre Blanc. Cela pourrait-il appartenir à la Secte Divin du Dragon d'Azur? » Après réflexion, il rangea le fragment dans son sac et son regard se posa sur le petit bouclier de lumière azur.
+« Les Quatre Sectes Divines possèdent l'Oiseau Vermillon, la Tortue Noire, le Dragon d'Azur et le Tigre Blanc. Cela pourrait-il appartenir à la Secte Divine du Dragon d'Azur? » Après réflexion, il rangea le fragment dans son sac et son regard se posa sur le petit bouclier de lumière azur.
 
 Privé du dragon, l'aura de Dieu Antique emplissait le bouclier, bien qu'elle ne fût pas flagrante. Wang Lin fronça les sourcils en l'examinant attentivement, puis ses yeux se rétrécirent.
 
@@ -60,7 +60,7 @@ Instantanément, l'aura antique émanant du vortex trembla et fut violemment asp
 
 Simultanément, alors que l'aura de Dieu Antique subissait une mutation brutale, le Sens Divin se détacha d'elle. À cet instant précis, une voix solennelle résonna dans l'esprit de Wang Lin:
 
-« Ce vieil homme est l'Empereur Saint du Dragon d'Azur, et je suis prisonnier du Royaume Céleste de la Pluie. Celui qui me sauvera deviendra le premier de la Lignée du Dragon d'Azur! Transmettez mon message à la Secte Divin du Dragon d'Azur, et les Quatre Sectes Divins accompliront pour vous ce que vous demanderez. L'aura de ce vieil homme décline, et je crains de ne pouvoir tenir beaucoup plus longtemps. J'espère que quelqu'un recevra ce message et viendra me secourir sans tarder! »
+« Ce vieil homme est l'Empereur Saint du Dragon d'Azur, et je suis prisonnier du Royaume Céleste de la Pluie. Celui qui me sauvera deviendra le premier de la Lignée du Dragon d'Azur! Transmettez mon message à la Secte Divine du Dragon d'Azur, et les Quatre Sectes Divines accompliront pour vous ce que vous demanderez. L'aura de ce vieil homme décline, et je crains de ne pouvoir tenir beaucoup plus longtemps. J'espère que quelqu'un recevra ce message et viendra me secourir sans tarder! »
 
 Le corps de Wang Lin trembla. Avant qu'il ne puisse réfléchir davantage, le petit vortex azur disparut et l'aura de Dieu Antique explosa avec fureur.
 
@@ -70,9 +70,9 @@ Dès sa sortie, l'aura de Dieu Antique contenue dans le bouclier jaillit totalem
 
 L'infinie aura de Dieu Antique se déversa et forgea une gigantesque illusion divine qui apparut au monde. Cette silhouette était floue, ses étoiles tournoyant à une vitesse vertigineuse. Il était impossible de déterminer combien d'étoiles ce Dieu Antique possédait!
 
-À cet instant, le bouclier qui n'avait été que de la taille de sa main grandit instantanément pour atteindre des dizaines de pieds. Et de toute évidence, il continuait de croître.
+À cet instant, le bouclier qui n'avait été que de la taille de sa main grandit instantanément pour atteindre une dizaine de mètres. Et de toute évidence, il continuait de croître.
 
-À mesure qu'il s'étendait, une aura colossale se propageait. Le bouclier, parti de sa petite taille, dépassa les mille pieds de large. Puis, une pression inimaginable s'abattit sur le monde.
+À mesure qu'il s'étendait, une aura colossale se propageait. Le bouclier, parti de sa petite taille, dépassa les trois cent trente mètres de large. Puis, une pression inimaginable s'abattit sur le monde.
 
 Au loin, les trois frères Chen avaient déjà remarqué la scène et accouraient. La stupeur se lisait dans leurs yeux; à leurs yeux, Wang Lin était devenu un être d'une puissance incroyable.
 
@@ -92,7 +92,7 @@ Grâce à cette lumière, Ling Er ne ressentit qu'un certain inconfort. Les sour
 
 À l'horizon, un géant était accroupi, et sa silhouette perçait déjà les cieux. Si ce géant se redressait, il lui suffirait d'un pas pour faire s'effondrer la planète entière.
 
-Big Head et sa compagnie sortirent également, pétrifiés par le spectacle. Le corps de Lei Jia trembla et une immense révérence envahit ses yeux alors qu'il contemplait l'illusion derrière le bouclier. Il se souvenait parfaitement que sur la planète Géant Démon, il existait un totem dans le Sanctuaire Royal qui était un objet sacré pour le clan. Cet objet représentait un géant semblable à celui-ci!
+Big Head et sa compagnie sortirent également, pétrifiés par le spectacle. Le corps de Lei Ji trembla et une immense révérence envahit ses yeux alors qu'il contemplait l'illusion derrière le bouclier. Il se souvenait parfaitement que sur la planète Géant Démon, il existait un totem dans le Sanctuaire Royal qui était un objet sacré pour le clan. Cet objet représentait un géant semblable à celui-ci!
 
 Maître Hollow Wind fut le premier à remarquer l'anomalie. Flottant dans les airs, il affichait une expression extrêmement complexe en observant l'immense bouclier aux côtés de Wang Lin. Il avait obtenu ce bouclier en tuant un ennemi. Après l'avoir étudié, il avait été choqué, pressentant un lien avec les Quatre Sectes Divines.
 
@@ -100,9 +100,9 @@ Il n'aurait pas osé l'utiliser si tôt; il ne l'avait sorti que par nécessité
 
 À présent, il ne s'attendait pas à ce que Wang Lin brise le sceau du vortex dès l'obtention de l'objet. En conséquence, il redoutait inconsciemment encore plus Wang Lin.
 
-« Ce Wang Lin n'est pas un homme ordinaire! Ce ne serait pas une telle déshonneur pour mon identité que de le suivre », soupira Maître Hollow Wind.
+« Ce Wang Lin n'est pas un homme ordinaire! Ce ne serait pas un tel déshonneur pour mon identité que de le suivre », soupira Maître Hollow Wind.
 
-L'expression de Wang Lin était grave tandis qu'il fixait le bouclier en pleine expansion. Celui-ci était passé de mille pieds à près de trois mille pieds.
+L'expression de Wang Lin était grave tandis qu'il fixait le bouclier en pleine expansion. Celui-ci était passé de plus de trois cents mètres à près de mille mètres.
 
 Vu de près, le bouclier ressemblait à une muraille. Son aspect était brut, mais nul n'oserait sous-estimer sa puissance!
 

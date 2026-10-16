@@ -36,9 +36,9 @@ Un rayon de lumière apparut à l'horizon et se mua en un jeune homme vêtu de b
 
 Le jeune homme en blanc était Wang Lin. Il s'arrêta et se retourna pour observer les quatre individus. Il ne regarda pas d'abord les deux femmes ni le jeune homme en robe rouge, mais fixa l'homme en noir.
 
-« Le fait qu'il puisse me localiser à moins de 500 kilomètres signifie que sa culture n'est pas faible. À en juger par l'énergie spirituelle céleste qui circule dans son corps, il doit être au début du stade Ascendant! » Les yeux de Wang Lin restèrent calmes tandis qu'il les inspectait un à un, avant de se poser sur l'homme en robe rouge. Il connaissait assez bien cet individu; c'était un disciple de la Division Rouge de la Secte du Destin Céleste.
+« Le fait qu'il puisse me localiser à 500 kilomètres signifie que sa culture n'est pas faible. À en juger par l'énergie spirituelle céleste qui circule dans son corps, il doit être au début du stade Ascendant! » Les yeux de Wang Lin restèrent calmes tandis qu'il les inspectait un à un, avant de se poser sur l'homme en robe rouge. Il connaissait assez bien cet individu; c'était un disciple de la Division Rouge de la Secte du Destin Céleste.
 
-Parmi les quatre, hormis l'homme en noir, les trois autres étaient tous des cultivateurs au sommet du stade de la Transformation de l'Âme. Cependant, l'homme de la Division Rouge était manifestement déjà à mi-chemin du stade Ascendant et pouvait l'atteindre à tout moment. Il craignait probablement l'épreuve de vie ou de mort liée à ce passage, c'est pourquoi il n'avait jamais franchi le pas!
+Parmi les quatre, hormis l'homme en noir, les trois autres étaient tous des cultivateurs au sommet du stade de la Transformation de l'Âme. Cependant, l'homme de la Division Rouge avait manifestement déjà un pied dans le stade Ascendant et pouvait l'atteindre à tout moment. Il craignait probablement l'épreuve de vie ou de mort liée à ce passage, c'est pourquoi il n'avait jamais franchi le pas!
 
 L'homme en robe rouge dit: « Jeune frère, mon nom est Du Jian. » Après une courte réflexion, il réalisa que Wang Lin ne connaissait probablement pas son nom.
 
@@ -72,7 +72,7 @@ L'expression de Wang Lin resta neutre lorsqu'il acquiesça: « Exactement! »
 
 Les yeux de Du Jian se plissèrent: « Jeune frère Wang, l'Abîme des Marées est extrêmement dangereux. Même au stade Ascendant, la tâche sera ardue. Nous quatre nous rendons également dans l'Abîme des Marées. Pourquoi ne pas nous accompagner? Au moins, nous pourrons nous entraider. »
 
-Wang Lin réfléchit un instant. Il connaissait les périls de l'Abîme des Marées. Avant de venir, il avait utilisé le cristal que Bei lui avait donné pour sonder l'intérieur de l'abîme. Certains endroits étaient risqués à traverser, même avec sa culture actuelle.
+Wang Lin réfléchit un instant. Il connaissait les périls de l'Abîme des Marées. Avant de venir, il avait utilisé le cristal que Bei Lou lui avait donné pour sonder l'intérieur de l'abîme. Certains endroits étaient risqués à traverser, même avec sa culture actuelle.
 
 Si Murong Zhuo n'avait pas été parmi eux, Wang Lin aurait refusé sur-le-champ. Cependant, la présence de Murong Zhuo changeait la donne. Bien qu'il ne fût qu'au début du stade Ascendant, le fait d'avoir détecté Wang Lin à 500 kilomètres prouvait ses capacités.
 
@@ -82,7 +82,7 @@ Le visage de Du Jian rayonnait de sourires, mais il ricana intérieurement. Il �
 
 Il se souvenait parfaitement que lors de leur dernière rencontre, Wang Lin n'était qu'un cultivateur au milieu du stade de la Transformation de l'Âme. Pourtant, en seulement un siècle, il avait atteint le début du stade Ascendant. De plus, Wang Lin ne ressemblait pas à quelqu'un qui venait tout juste de franchir ce seuil; il semblait être dans ce stade depuis un certain temps déjà!
 
-« Il doit y avoir une raison pour laquelle ce ploutre venu d'une planète de culture médiocre a pu progresser si vite. S'il a aussi réussi l'épreuve de vie ou de mort du stade Ascendant, je crains que cette affaire ne soit pas simple! De plus, s'il continue sur cette lancée, sa position sera encore plus élevée lorsqu'il partira dans 400 ans. Cela signifie que le rang de sa Division Pourpre augmentera instantanément. »
+« Il doit y avoir une raison pour laquelle ce ploutre venu d'une planète abandonnée a pu progresser si vite. S'il a aussi réussi l'épreuve de vie ou de mort du stade Ascendant, je crains que cette affaire ne soit pas simple! De plus, s'il continue sur cette lancée, sa position sera encore plus élevée lorsqu'il partira dans 400 ans. Cela signifie que le rang de sa Division Pourpre augmentera instantanément. »
 
 La malveillance bouillonnait dans son cœur, mais il n'en laissa rien paraître. Il affichait un sourire empreint de douceur, comme s'il agissait véritablement en frère aîné bienveillant.
 
@@ -92,7 +92,7 @@ Il était l'exact opposé de l'image du ploutre que Du Jian se faisait de lui.
 
 L'expérience de vie de Du Jian était dérisoire comparée à celle de Wang Lin!
 
-Le groupe des cinq cessa de discuter et fonça droit vers les montagnes de la Mer de Nuageuse.
+Le groupe des cinq cessa de discuter et fonça droit vers les montagnes de la Mer de Nuages.
 
 Les nuages emplissaient l'espace, créant l'illusion de montagnes et de mers. Ce spectacle était grandiose et empreint d'une beauté mystérieuse.
 
@@ -122,4 +122,4 @@ Tandis qu'il volait, les yeux de Wang Lin s'illuminèrent et il afficha un souri
 
 Les cinq passèrent rapidement à travers les nuages. Bientôt, un ravin profond apparut devant eux.
 
-Ce ravin était extrêmement vaste; il mesurait plus de cent pieds de large. Quant à sa longueur, elle dépassait les 33 kilomètres, s'étirant à perte de vue dans la brume. Ce gouffre ressemblait à une gueule béante dissimulée dans le sol, comme si un sortilège l'avait sculpté.
+Ce ravin était extrêmement vaste; il mesurait plus de 33 mètres de large. Quant à sa longueur, elle atteignait 3,3 kilomètres, s'étirant à perte de vue dans la brume. Ce gouffre ressemblait à une gueule béante dissimulée dans le sol, comme si un sortilège l'avait tranché.

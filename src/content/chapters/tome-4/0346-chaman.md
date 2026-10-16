@@ -22,7 +22,7 @@ Cependant, à cet instant précis, Wang Lin sortit de la boule de feu. Les flamm
 
 Stupéfait, le sauvage à trois feuilles recula promptement en se transformant en un éclair noir. Comment Wang Lin pouvait-il le laisser s'échapper? Il utilisa aussitôt une technique de téléportation pour tenter de le rattraper.
 
-Quant aux autres sauvages qui les attaquaient, ils avaient tous été balayés par l'Ancien Hu d'un simple revers de manche.
+Quant aux autres sauvages qui les attaquaient, ils avaient tous été tués par l'Ancien Hu d'un simple revers de manche.
 
 Wang Lin revint, la tête du sauvage à trois feuilles à la main, et la jeta au sol. Il lança un regard froid à la femme au voile blanc et dit: « Confrère cultivateur Zi Xin, puisque vous avez pu identifier le rang de ce sauvage, veuillez nous révéler tout ce que vous savez. »
 
@@ -72,7 +72,7 @@ Les yeux de Wang Lin s'illuminèrent. Il ne détectait aucune énergie spirituel
 
 La main droite de l'homme balaya les tatouages sur son corps. Ces derniers se détachèrent et se mirent à tournoyer frénétiquement autour de son bras droit.
 
-De sa main gauche, il pointa rapidement certains tatouages de son bras droit. Les motifs touchés se mirent à briller et s'étendirent brusquement, encerclant une zone d'environ 330 mètres de diamètre.
+De sa main gauche, il pointa rapidement certains tatouages de son bras droit. Les motifs touchés se mirent à briller et s'étendirent brusquement, encerclant une zone d'environ 330 mètres de rayon.
 
 Soudain, les tatouages se resserrèrent et chargèrent vers Wang Lin.
 
@@ -116,7 +116,7 @@ Après avoir réfléchi un instant, Wang Lin rangea la grenouille tonnerre. Il s
 
 Il se rua aussitôt vers là-bas, tel une météorite.
 
-Deux sauvages se trouvaient là. L'un d'eux avait les cheveux blancs et les trois quarts de son corps étaient couverts de tatouages. À ses côtés se tenait un jeune homme dont seulement le quart du corps était marqué.
+Deux sauvages se trouvaient là. L'un d'eux avait les cheveux blancs et les deux tiers de son corps étaient couverts de tatouages. À ses côtés se tenait un jeune homme dont moins d'un quart du corps était marqué.
 
 Devant eux s'étalait une mare de boue d'où émergeaient par intermittence des bulles qui éclataient à la surface.
 

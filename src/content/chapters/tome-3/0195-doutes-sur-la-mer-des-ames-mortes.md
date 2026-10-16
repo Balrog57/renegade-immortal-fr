@@ -32,7 +32,7 @@ Tous les autres cultivateurs démoniaques survivants suivirent le mouvement sans
 
 Une fois dans la faille, Wang Lin réalisa immédiatement qu'ils se trouvaient juste à l'extérieur de la Mer des Âmes. Directement sous eux s'étendait la Mer des Âmes Mortes qu'il avait tenté de pénétrer auparavant.
 
-La Mer des Âmes était scindée en deux: d'un côté la Mer Sanguine, et de l'autre la Mer des Âmes Mortes.
+La Mer des Âmes était scindée en deux: d'un côté la Mer de Sang, et de l'autre la Mer des Âmes Mortes.
 
 Une pensée traversa l'esprit de Wang Lin. Depuis son entrée dans la faille, il s'était montré extrêmement prudent. En observant discrètement les alentours, il vit que le groupe de Dou Mu s'était positionné de manière à l'encercler, lui et l'homme aux cheveux roux.
 
@@ -50,7 +50,7 @@ Le tunnel était si profond que l'on ne pouvait en voir le fond. Un rugissement 
 
 « Tu Si, même ton arme de sauvetage, la Lance Écraseuse d'Étoiles, s'est soumise à moi! Seul moi suis digne de succéder à ton héritage! » lança Ta Sen en frappant de nouveau avec sa lance.
 
-Cette fois, il effectua une entaille verticale qui, croisant la précédente, forma une immense croix. Au centre de cette croix se creusa un gouffre de plusieurs dizaines de pieds de large. Ta Sen s'y engouffra.
+Cette fois, il effectua une entaille verticale qui, croisant la précédente, forma une immense croix. Au centre de cette croix se creusa un gouffre d'une centaine de mètres de large. Ta Sen s'y engouffra.
 
 Une fois l'homme aux cheveux roux passé, la nervosité du groupe de Dou Mu monta d'un cran, mais ils suivirent rapidement ses traces. Wang Lin, les yeux brillants, s'élança à son tour. Parallèlement, les cultivateurs démoniaques survivants poussèrent des cris de joie.
 
@@ -68,7 +68,7 @@ Les pupilles de Wang Lin se contractèrent en observant l'homme. Il se souvint q
 
 Wang Lin cligna des yeux pour reprendre son calme. Derrière lui, il entendit la voix du vieil homme: « Jeune ami, pourquoi ne avances-tu pas? »
 
-Wang Lin ne tourna pas la tête. Depuis qu'ils avaient quitté la Mer Sanguine, les dix anciens cultivateurs le surveillaient de près pour l'empêcher de faire marche arrière.
+Wang Lin ne tourna pas la tête. Depuis qu'ils avaient quitté la Mer de Sang, les dix anciens cultivateurs le surveillaient de près pour l'empêcher de faire marche arrière.
 
 Il n'avait fait que ralentir, et pourtant le vieil homme le questionnait déjà. Wang Lin comprit à quel point cet enjeu était vital pour eux.
 
@@ -90,7 +90,7 @@ La tête massive de la créature émergea de l'eau et fixa l'homme aux cheveux r
 
 Ta Sen fronça les sourcils face à la bête et hurla: « Créature maléfique, ne me reconnais-tu donc pas?! »
 
-La créature, longue de millions de pieds, bougea lentement, faisant déferler les vagues avec violence. Elle fixa Ta Sen et s'exprima soudain en langage humain:
+La créature, longue d'environ dix mille mètres, bougea lentement, faisant déferler les vagues avec violence. Elle fixa Ta Sen et s'exprima soudain en langage humain:
 
 « Ta Sen, tu n'es qu'une conscience maléfique née lorsque le Maître pratiquait la Technique Divine de Transformation d'Encre Fluide. Comment pourrais-je t'oublier? Si tu n'avais pas provoqué cette rébellion au moment le plus critique de sa culture, le Maître ne serait pas mort. »
 
@@ -98,7 +98,7 @@ Ta Sen eut un reniflement méprisant et répondit d'un ton lugubre: « Qu'est-ce
 
 Le regard de la grande créature devint glacial: « Avant de mourir, le Maître m'a chargé de garder l'héritage de connaissances. Sans mon autorisation, nul ne peut y accéder. »
 
-« L'héritage du pouvoir est déjà mien; il ne reste que celui des connaissances. Les souvenirs de Tu Si ne me servent à rien. Tout ce qu'il savait, je le sais aussi. Si les restrictions imposées par la loi de l'héritage n'exigeaient pas la maîtrise des deux héritages pour contrôler pleinement le pouvoir de ce corps, je ne me serais même pas donné cette peine, et je n'aurais pas été piégé par lui dans la Mer Sanguine durant toutes ces années! » rétorqua l'homme aux cheveux roux en frappant avec sa lance.
+« L'héritage du pouvoir est déjà mien; il ne reste que celui des connaissances. Les souvenirs de Tu Si ne me servent à rien. Tout ce qu'il savait, je le sais aussi. Si les restrictions imposées par la loi de l'héritage n'exigeaient pas la maîtrise des deux héritages pour contrôler pleinement le pouvoir de ce corps, je ne me serais même pas donné cette peine, et je n'aurais pas été piégé par lui dans la Mer de Sang durant toutes ces années! » rétorqua l'homme aux cheveux roux en frappant avec sa lance.
 
 Soudain, un cyclone sombre apparut. Il grandit et s'intensifia jusqu'à ce que le vent hurle de rage, chargeant la créature.
 

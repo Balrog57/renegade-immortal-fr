@@ -6,15 +6,15 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 462 - Ye Wuyou
 slug: ye-wuyou
 ---
-Wang Lin laissa échapper un ricanement. Au moment où elle s'apprêtait à se téléporter, il toucha son sac de rangement et plusieurs gravures du domaine temporel s'envolèrent.
+Wang Lin laissa échapper un ricanement. Au moment où elle s'apprêtait à se téléporter, il toucha son sac de rangement et plusieurs sculptures en bois du domaine temporel s'envolèrent.
 
-« Temps! » rugit Wang Lin. Les gravures explosèrent toutes et un puissant domaine temporel jaillit. Bien que le domaine de Liu Mei ait atteint la perfection, ce domaine temporel avait été soigneusement préparé par Wang Lin. Il était trop faible pour blesser Liu Mei ou même la ralentir considérablement, mais dans une situation aussi critique, cela serait fatal!
+« Temps! » rugit Wang Lin. Les gravures explosèrent toutes et un puissant domaine temporel jaillit. Bien que le domaine de Liu Mei ait atteint la perfection, ce domaine temporel avait été soigneusement préparé par Wang Lin. Il était trop faible pour blesser Liu Mei ou même la ralentir plus qu'un bref instant, mais dans une situation aussi critique, cela serait fatal!
 
 Le corps de Liu Mei ralentit, permettant à Wang Lin de se glisser sous elle.
 
 À cet instant précis, les deux énergies d'épée fusionnèrent soudainement pour ne former qu'une seule et descendirent furieusement vers Liu Mei.
 
-Une intention meurtrière embrasa le regard de Wang Lin alors qu'il pointait Liu Mei du doigt. Un fil de gaz restrictif jaillit de son doigt et fonça sur elle.
+Une intention meurtrière embrasa le regard de Wang Lin alors qu'il pointait Liu Mei du doigt. Un fil de qi restrictif jaillit de son doigt et fonça sur elle.
 
 Wang Lin n'attendit même pas d'en voir le résultat; sachant que chaque seconde comptait, il s'élança dans la mer sans l'ombre d'une hésitation. Une fois immergé, il aperçut le palais gigantesque qui émettait une lueur dorée.
 
@@ -24,21 +24,21 @@ Alors qu'il était sur le point de pénétrer dans le palais, une série de rugi
 
 À mesure que l'énergie d'épée se rapprochait, Wang Lin pouvait presque ressentir son aura dévastatrice. Une douleur fulgurante lui transperça soudain le sommet du crâne.
 
-Il serra les dents avec rage. Il voyait qu'il ne restait que 3,3 kilomètres avant le palais, mais l'énergie d'épée était déjà sur ses talons.
+Il serra les dents avec rage. Il voyait qu'il ne restait pas plus de 330 mètres avant le palais, mais l'énergie d'épée était déjà sur ses talons.
 
 Une trace de sang perla au sommet de la tête de Wang Lin et la douleur s'intensifia.
 
-900 pieds, 800 pieds, 700 pieds, 600 pieds...
+297 mètres, 264 mètres, 231 mètres, 198 mètres...
 
 Il se rapprochait sans cesse, mais l'énergie d'épée le surplombait, menaçante. Le rugissement de cette énergie semblait résonner jusque dans son cerveau. Alors qu'il se précipitait vers le palais, Wang Lin cracha une bouchée de sang, toucha son sac de rangement et sortit sa hache.
 
 Dans un rugissement soudain, il fit volte-face et plaça la hache devant lui.
 
-À cet instant, l'énergie d'épée frappa de plein fouet la hache. Le visage de Wang Lin devint livide, il cracha une autre bouchée de sang et son âme originelle fut secouée. Il toucha son sac de rangement et fit jaillir la pagode.
+À cet instant, l'énergie d'épée frappa de plein fouet la hache. Le visage de Wang Lin rougit, il cracha une autre bouchée de sang et son âme originelle fut secouée. Il toucha son sac de rangement et fit jaillir la pagode.
 
 Le domaine de Zhou Yi se propagea rapidement, provoquant l'arrêt soudain de l'énergie d'épée.
 
-Profitant de cette brève suspension, Wang Lin chargea et franchit les cinq 330 mètres restants en un instant pour pénétrer dans le palais.
+Profitant de cette brève suspension, Wang Lin chargea et franchit les 165 mètres restants en un instant pour pénétrer dans le palais.
 
 Dès qu'il eut passé le seuil, l'énergie d'épée trembla puis disparut.
 
@@ -46,7 +46,7 @@ Du sang suintait de la bouche de Wang Lin alors qu'il rangeait la hache et la pa
 
 Grâce à cet afflux d'énergie spirituelle céleste, Wang Lin sentit son corps s'alléger. Cette énergie supprima instantanément toutes ses blessures. Peu de temps après, il se leva et, d'un pas assuré, s'enfonça dans les profondeurs du palais.
 
-Au-dessus de la mer, l'énergie d'épée convergeait vers Liu Mei. Juste au moment où elle allait esquiver, la restriction se referma derrière elle. Son beau visage se crispa; elle serra les dents et cracha une brume blanche. Un ruban blanc dansa au sein de cette brume et, d'un mouvement de fouet, il détruisit la restriction. Ce ruban s'enroula rapidement autour d'elle et la projeta à 33 kilomètres de l'énergie d'épée. Cette dernière manqua sa cible avant de se dissiper.
+Au-dessus de la mer, l'énergie d'épée convergeait vers Liu Mei. Juste au moment où elle allait esquiver, la restriction se referma derrière elle. Son beau visage se crispa; elle serra les dents et cracha une brume blanche. Un ruban blanc dansa au sein de cette brume et, d'un mouvement de fouet, il détruisit la restriction. Ce ruban s'enroula rapidement autour d'elle et la projeta à 3,3 kilomètres de l'énergie d'épée. Cette dernière manqua sa cible avant de se dissiper.
 
 L'homme en armure dorée n'attaquait plus; sa seule mission consistait à garder les lieux et à ne laisser entrer au palais que ceux qui en étaient dignes.
 
@@ -80,7 +80,7 @@ Après un temps indéterminé, Wang Lin aperçut des éclats de sorts au loin. I
 
 Mais ce qu'il vit fit changer son expression. Lorsque son Sens Divin atteignit le bout du couloir, il découvrit une vaste zone ouverte.
 
-Une tour immense trônait au centre de cet espace. Au sommet de la tour se trouvait un trône où siégeait une personne aux longs cheveux noirs.
+Une tour immense trônait au centre de cet espace. Au sommet de la tour se trouvait un trône où siégeait une personne vêtue d'une longue robe rouge sombre, aux longs cheveux dénoués.
 
 Cet individu semblait être un homme d'âge moyen, tout à fait ordinaire en apparence, mais il dégageait une aura majestueuse. Ses yeux étaient clos et aucun signe de vie ne émanait de son corps. C'était manifestement un mort.
 
@@ -88,7 +88,7 @@ Pourtant, son corps émettait une aura terrifiante qui enveloppait toute la zone
 
 Dès que le Sens Divin de Wang Lin perçut cet homme, il ressentit soudain l'impulsion irrésistible de s'incliner devant lui. Il fut contraint d'activer de l'énergie spirituelle céleste pour réprimer cette pulsion. Un pouvoir mystérieux semblait régner ici, capable d'ébranler le cœur de quiconque passait par là.
 
-Devant cet homme flottait un objet: une sphère de lumière violette.
+Devant cet homme flottait un objet: une sphère de lumière violette, de la taille d'un poing.
 
 Cette lueur éclairait l'homme d'âge moyen, projetant une ombre sombre derrière lui.
 
@@ -110,7 +110,7 @@ Les yeux de Wang Lin s'illuminèrent. En projetant son Sens Divin dans la pièce
 
 Wang Lin réfléchit un instant avant d'avancer. Peu après, il atteignit l'extrémité du couloir et pénétra dans la vaste esplanade.
 
-Maintenant qu'il s'y trouvait physiquement, le sentiment de choc était encore plus intense. Face à cette tour de mille pieds de haut, il se sentit soudainement minuscule.
+Maintenant qu'il s'y trouvait physiquement, le sentiment de choc était encore plus intense. Face à cette tour de plusieurs centaines de mètres de haut, il se sentit soudainement minuscule.
 
 Wang Lin prit une profonde inspiration, puis ses yeux s'éclairèrent en apercevant la silhouette de Yunque Zi dans un coin.
 

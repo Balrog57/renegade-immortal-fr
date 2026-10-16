@@ -8,7 +8,7 @@ slug: ta-shan-gardien-celeste
 ---
 Il ouvrit la bouche et le Sceau Céleste s'y engouffra, pour être raffiné par le tonnerre contenu dans son âme originelle.
 
-« Après un certain temps, ce trésor contiendra certainement une partie du tonnerre de mon âme originelle! »
+« Après un certain temps, ce trésor s'imprégnera certainement d'une part de la foudre de mon âme originelle! »
 
 Après avoir avalé le sceau, les yeux de Wang Lin s'illuminèrent; il frappa ensuite son sac de rangement et trois drapeaux violets en sortirent. Les drapeaux s'entrelacèrent, libérant des éclats de restrictions.
 
@@ -62,9 +62,9 @@ Après près de deux mois, Wang Lin organisa les fruits de son voyage dans le Ro
 
 La grenouille tonitruante au sol roula des yeux et bondit avec fracas, suivant la bête moustique.
 
-Lorsqu'ils approchèrent de la zone résidentielle du Clan des Immortels Délaissés, les yeux de Wang Lin se plissèrent. Il vit que tous étaient rassemblés sur la grande place, y compris les femmes et les enfants.
+Lorsqu'ils approchèrent de la zone résidentielle du Clan des Immortels Élus, les yeux de Wang Lin se plissèrent. Il vit que tous étaient rassemblés sur la grande place, y compris les femmes et les enfants.
 
-Au centre de la place se trouvait une plateforme en bois de trente pieds de large. Une personne y était allongée: c'était Ta Shan!
+Au centre de la place se trouvait une plateforme en bois de dix mètres de large. Une personne y était allongée: c'était Ta Shan!
 
 Le visage de Ta Shan était d'un gris cadavérique et ses yeux étaient ternes, comme s'il pouvait mourir à tout instant. Une aura de mort enveloppait son corps; il était évident qu'il touchait à sa fin.
 
@@ -74,7 +74,7 @@ On pouvait dire que Ta Shan fut le premier à résister, mais la conséquence fu
 
 Il avait tenu deux mois, mais aujourd'hui, il avait atteint son terme et ne pouvait plus survivre.
 
-À côté de Ta Shan, l'ancêtre du Clan des Immortels Délaissés était accablé de chagrin. Deux traînées de larmes coulaient sur ses joues.
+À côté de Ta Shan, l'ancêtre du Clan des Immortels Élus était accablé de chagrin. Deux traînées de larmes coulaient sur ses joues.
 
 Le vieil homme murmura doucement: « Petit-fils... » Il ne l'avait pas appelé ainsi depuis bien longtemps.
 
@@ -83,7 +83,7 @@ L'entourage était plongé dans un silence total, mais une puissante tristesse i
 « Ta Shan... »
 « Ta Shan... »
 
-Des murmures s'élevèrent progressivement de la part des membres du clan. Ces voix fusionnèrent pour ne former qu'un seul cri, représentant l'âme entière du Clan des Immortels Délaissés.
+Des murmures s'élevèrent progressivement de la part des membres du clan. Ces voix fusionnèrent pour ne former qu'un seul cri, représentant l'âme entière du Clan des Immortels Élus.
 
 « Ta Shan... »
 
@@ -126,6 +126,6 @@ Une voix après l'autre, jusqu'à ce que cela forme une véritable tempête!
 
 Tandis qu'il méditait, Wang Lin regarda Ta Shan. Après un long moment, il murmura: « Je peux faire en sorte qu'il ne meure pas! »
 
-Bien que sa voix fût douce, lorsqu'elle atteignit les oreilles des membres du Clan des Immortels Délaissés, et particulièrement celles du vieil homme, leurs corps tremblèrent. Les yeux de ce dernier s'emplirent d'espoir et il marcha vers Wang Lin. Il s'agenouilla à 33 mètres de lui, les larmes coulant sur ses joues: « Bienfaiteur, est-ce vrai? »
+Bien que sa voix fût douce, lorsqu'elle atteignit les oreilles des membres du Clan des Immortels Élus, et particulièrement celles du vieil homme, leurs corps tremblèrent. Les yeux de ce dernier s'emplirent d'espoir et il marcha vers Wang Lin. Il s'agenouilla à 33 mètres de lui, les larmes coulant sur ses joues: « Bienfaiteur, est-ce vrai? »
 
 Wang Lin réfléchit un instant et répondit lentement: « J'en suis sûr à 50 %! Cependant, si mon sort réussit, bien que Ta Shan ne meure pas, il deviendra une marionnette sans conscience. S'il parvient à la retrouver, cela dépendra de lui seul. »

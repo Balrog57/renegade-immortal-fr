@@ -6,13 +6,13 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 155 - After Image Sword Cultivation
 slug: cultivation-de-lepee-par-image-remanente
 ---
-Si cette impasse devait se poursuivre, ce serait une catastrophe pour Jie Donglei. Après tout, la formation ne durerait que deux heures, et la moitié du temps s'était déjà écoulée. Il réfléchit intensément à la marche à suivre.
+Si cette impasse devait se poursuivre, ce serait une catastrophe pour Jie Donglei. Après tout, la formation ne durerait qu'une heure, et la moitié du temps s'était déjà écoulée. Il réfléchit intensément à la marche à suivre.
 
 À l'origine, il avait prévu d'utiliser les cultivateurs de la Formation du Noyau pour piéger Wang Lin le temps de préparer son attaque. Cependant, au moment crucial, la peur de la mort avait submergé ces anciens, les forçant à battre en retraite. Sa seule option était désormais d'agir seul, mais il n'avait pas prévu que Wang Lin serait capable de percer les failles de la formation.
 
 Maintenant qu'il était engagé dans cette voie sans retour, il fixa silencieusement Wang Lin du regard.
 
-Wang Lin le dévisagea, puis saisit Li Muwan et recula de 330 mètres supplémentaires. L'expression moqueuse sur son visage s'intensifia. Jie Donglei laissa échapper un soupir. Il remonta sur la tête du dragon et déclara: « Laisse tomber. Ce vieil homme admet sa défaite. » Sur ces mots, il piétina la tête du dragon, et toute l'énergie spirituelle de son corps retourna dans la créature.
+Wang Lin le dévisagea, puis saisit Li Muwan et recula de cent pieds supplémentaires. L'expression moqueuse sur son visage s'intensifia. Jie Donglei laissa échapper un soupir. Il remonta sur la tête du dragon et déclara: « Laisse tomber. Ce vieil homme admet sa défaite. » Sur ces mots, il piétina la tête du dragon, et toute l'énergie spirituelle de son corps retourna dans la créature.
 
 La lumière au fond des yeux du dragon s'intensifia. Tandis que l'énergie spirituelle y affluait, le corps de Jie Donglei trembla et une expression de douleur profonde marqua ses traits.
 
@@ -22,7 +22,7 @@ Les yeux de Wang Lin s'illuminèrent. Il regarda Jie Donglei, puis le jeton, ava
 
 À l'instant même où Wang Lin reculait, une image rémanente de Jie Donglei apparut soudainement à l'endroit précis où il se trouvait, se transformant en un rayon d'énergie d'épée qui fonça sur lui.
 
-La vitesse de Wang Lin était impressionnante, mais elle ne pouvait rivaliser avec celle d'une épée volante. Lorsqu'il eut reculé de 99 mètres, l'épée l'avait déjà atteint. Cette arme était fulgurante; elle n'était guère plus lente qu'une épée de cristal utilisant la téléportation.
+La vitesse de Wang Lin était impressionnante, mais elle ne pouvait rivaliser avec celle d'une épée volante. Lorsqu'il eut reculé de trois cents pieds, l'épée l'avait déjà atteint. Cette arme était fulgurante; elle n'était guère plus lente qu'une épée de cristal utilisant la téléportation.
 
 En un clin d'œil, l'épée volante perça sa poitrine, mais elle fut momentanément stoppée par son gilet en peau de dragon. Les doigts de Wang Lin agrippèrent le corps de l'arme comme des serres.
 
@@ -36,7 +36,7 @@ Jie Donglei afficha un regard de regret alors que son corps se changeait en cend
 
 « C'est... c'était un cultivateur d'épée! » Le visage de Li Muwan était empreint de choc. La scène précédente faisait encore trembler tout son corps.
 
-De nombreux guerriers avaient été des cultivateurs d'épée dans l'Antiquité, mais de nos jours, peu se consacraient exclusivement à la voie de l'épée; ils s'en servaient plutôt comme trésors.
+De nombreux cultivateurs avaient été des cultivateurs d'épée dans l'Antiquité, mais de nos jours, peu se consacraient exclusivement à la voie de l'épée; ils s'en servaient plutôt comme trésors.
 
 La vitesse et la puissance d'un cultivateur d'épée surpassent celles des cultivateurs ordinaires. Bien qu'il existe de multiples méthodes de culture de l'épée, il faut une technique de rang supérieur et une épée d'une qualité exceptionnelle pour véritablement libérer la puissance terrifiante d'un tel combattant.
 
@@ -58,7 +58,7 @@ Wang Lin ne ressentit aucune joie face au trépas de Jie Donglei. Au contraire, 
 
 Pour se protéger, il devait faire comprendre à tous qu'il était un être avec lequel on ne jouait pas et que toute provocation entraînerait des conséquences funestes. La première démonstration de puissance de Wang Lin dans la Mer des Démons s'achevait ainsi.
 
-Cette démonstration fut un succès éclatant. Du moins, dans un rayon d'un million de kilomètres autour de la ville de Nan Dou, nul n'ignorait la montagne de cadavres que Wang Lin avait érigée. Cela suffit à dissuader quiconque de convoiter l'ordre d'exécution.
+Cette démonstration fut un succès éclatant. Du moins, dans un rayon d'un million de lieues autour de la ville de Nan Dou, nul n'ignorait la montagne de cadavres que Wang Lin avait érigée. Cela suffit à dissuader quiconque de convoiter l'ordre d'exécution.
 
 Contemplant les dizaines de milliers de disciples prosternés devant lui, Wang Lin tourna son regard vers la mer intérieure et songea: « Teng Huayuan, que je sois un immortel ou un démon, tant que je peux obtenir ma vengeance, qu'importe si je deviens un roi démon?! »
 
@@ -92,7 +92,7 @@ Puis, après avoir disposé plusieurs formations autour de lui, Wang Lin concent
 
 C'était la première fois que Wang Lin pénétrait dans la perle défiant le ciel après avoir atteint le stade de la Formation du Noyau. Au moment où il y entra, Shang Guanmo, qui gérait la Secte de la Lutte contre le Mal, trembla en sentant que ce démon terrifiant s'était volatilisé.
 
-Pour être plus précis, son essence spirituelle avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
+Pour être plus précis, son essence de sang de l'âme avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
 
 Li Muwan, qui venait de descendre de la tête du dragon, fut surprise en levant les yeux avant de laisser échapper un soupir.
 

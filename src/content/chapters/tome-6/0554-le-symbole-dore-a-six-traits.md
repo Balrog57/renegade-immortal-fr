@@ -8,7 +8,7 @@ slug: le-symbole-dore-a-six-traits
 ---
 « La rumeur prétend que toute la Terre des Esprits Démoniaques était la grotte d'un empereur céleste. Cet endroit aurait-il également pu être créé par lui? » Wang Lin réfléchit un instant et observa les environs. Il cessa de s'interroger pour se calmer et se consacrer à la compréhension de son domaine.
 
-Le domaine de la vie et de la mort s'était déjà fusionné avec son corps avant qu'il n'entre dans la Terre des Esprits Démoniaques. À présent, son cœur était immergé dans son domaine. Sa main gauche était la mort, sa main droite était la vie, et entre les deux coulait le Fleuve de l'Éternité.
+Le domaine de la vie et de la mort s'était déjà fusionné avec son corps avant qu'il n'entre dans la Terre des Esprits Démoniaques. À présent, son cœur était immergé dans son domaine. Sa main gauche était la vie, sa main droite était la mort, et entre les deux coulait le Fleuve de l'Éternité.
 
 Bien qu'immergé dans son domaine, la vigilance de Wang Lin ne faiblissait jamais. Il maintenait une partie de son sens divin circulant autour de lui; si Yao Xixue tentait le moindre mouvement, il serait capable de le détecter instantanément.
 
@@ -78,11 +78,11 @@ Sous le chemin s'étendait un abîme étoilé sans fin. Bien qu'il fût impossib
 
 Les deux individus progressèrent l'un après l'autre à une vitesse fulgurante, suivant la voie vers l'horizon. Ce chemin semblait sans fin. Ils n'avaient pas marqué de pause depuis trois jours, mais la route continuait de s'étirer devant eux.
 
-L'expression de Yao Xixue restait sereine. Elle était venue ici de nombreuses fois et savait qu'ils n'avaient parcouru qu'un quart du trajet.
+L'expression de Yao Xixue restait sereine. Elle était venue ici de nombreuses fois et savait qu'ils n'avaient parcouru qu'un tiers du trajet.
 
 Quelques jours plus tard, une autre plateforme gigantesque apparut sur le Chemin du Dragon Sacré. Un objet se tenait au centre de celle-ci!
 
-Il s'agissait d'une statue d'environ neuf mètres de haut. Cette statue représentait un humain, mais doté d'oreilles et de bras démesurément grands.
+Il s'agissait d'une statue d'environ 9,9 mètres de haut. Cette statue représentait un humain, mais doté d'oreilles et de bras démesurément grands.
 
 Yao Xixue s'arrêta sur le chemin du dragon, jeta un regard à Wang Lin qui la suivait de près et dit: « Cet endroit est le premier sceau! Nous allons chacun briser une couche. Je briserai la première, et tu briseras la seconde! »
 

@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 399 - The ancestor appears
 slug: lancetre-apparait
 ---
-La voix de Wang Lin résonna à l'intérieur du Clan Démon Géant. Dans la partie nord du territoire, à 500 kilomètres sous la surface, une grotte dorée abritait un homme solitaire.
+La voix de Wang Lin résonna à l'intérieur du Clan Démon Géant. Dans la partie nord du territoire, à 3,3 kilomètres sous la surface, une grotte cristalline abritait un homme solitaire.
 
-Ce dernier était assis en position de lotus, absorbé par sa culture. Il possédait une beauté saisissante.
+Ce dernier était assis en position de lotus, absorbé par sa culture. Il avait une allure imposante et des traits bien marqués.
 
 À cet instant, il ouvrit soudainement les yeux. Son regard semblait capable de percer les parois de la grotte pour sonder l'extérieur. Rapidement, ses yeux se glacèrent et il marmonna: « Jeune Wang Lin, je vais te laisser jouir de ton arrogance encore un peu. Une fois ma possession achevée, je te tuerai. Même si tu scelles les membres du Clan Démon Géant, je n'aurai qu'à les désceller. »
 
@@ -30,11 +30,11 @@ Xu Liguo serra les dents et répondit: « Maître, vous ne savez pas à quel poi
 
 L'ancêtre du Clan Démon Géant esquissa un léger sourire: « C’est une chose aisée. Une fois Wang Lin mort, j'invoquerai l'âme de Feng Luan pour que tu puisses la rencontrer. À présent, ce vieil homme doit se retirer en culture fermée, alors retourne à l'intérieur! » Sur ces mots, il tendit la main. Bien qu'un sourire fût toujours sur le visage de Xu Liguo, il maudit intérieurement son sort. Il retourna dans l'épée céleste et fut replacé dans le sac.
 
-« Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne doute pas qu'il me trahira. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper! » ricana l'ancêtre du Clan Démon Géant avant de refermer les yeux pour reprendre sa culture.
+« Cet esprit d'épée est pétri de cupidité humaine. C'est une créature mystérieuse, mais cela le rend facile à manipuler. Je peux lui donner des pierres spirituelles et des cultivatrices, je ne crois pas qu'il puisse me trahir. De plus, cet esprit semble obsédé par l'âme de Feng Luan. Avec elle entre mes mains, il ne pourra jamais m'échapper! » ricana l'ancêtre du Clan Démon Géant avant de refermer les yeux pour reprendre sa culture.
 
 L'âme de Feng Luan était celle d'un trésor qu'il avait acquis par accident un jour.
 
-Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la rencontra pour la première fois, son faible niveau de culture de l'époque l'avait presque hypnotisé. Heureusement, l'âme était endommagée, ce qui lui permit d'échapper au désastre; pourtant, encore aujourd'hui, il en éprouvait une certaine crainte.
+Cette âme était d'une beauté sublime et empreinte de désir. Lorsqu'il la rencontra pour la première fois, même sa fermeté d'esprit d'alors avait failli le faire sombrer. Heureusement, l'âme était endommagée, ce qui lui permit d'échapper au désastre; pourtant, encore aujourd'hui, il en éprouvait une certaine crainte.
 
 Après avoir obtenu l'épée céleste, il avait découvert le caractère mystérieux de Xu Liguo. Pour contrôler totalement l'esprit de l'épée, il avait invoqué l'âme de Feng Luan. Comme il s'y attendait, Xu Liguo s'était jeté sur elle tel un loup affamé, totalement captivé.
 
@@ -48,7 +48,7 @@ La silhouette de Wang Lin disparut et il chargea vers le nord.
 
 Se déplaçant avec le corps d'un Dieu Ancien à trois étoiles, il volait aussi vite que la foudre. En quelques téléportations seulement, il atteignit la partie septentrionale du Clan Démon Géant. Vu d'en haut, l'endroit ressemblait à une vaste plaine herbeuse.
 
-Le regard de Wang Lin était acéré. En déployant son Sens Divin, il sentit que quelque chose clochait. À environ 500 kilomètres sous la surface, une fine barrière déviait doucement son Sens Divin lorsqu'il passait au-dessus. Sans cette proximité, il n'aurait pu la détecter.
+Le regard de Wang Lin était acéré. En déployant son Sens Divin, il sentit que quelque chose clochait. À environ 3,3 kilomètres sous la surface, une fine barrière déviait doucement son Sens Divin lorsqu'il passait au-dessus. Sans cette proximité, il n'aurait pu la détecter.
 
 Un rictus aux lèvres, Wang Lin poussa un rugissement, chargea son poing et frappa le sol de toutes ses forces.
 
@@ -76,7 +76,7 @@ Wang Lin eut un rire sardonique. Loin de reculer, il envoya son propre poing pou
 
 Boum!
 
-L'onde de choc projeta roches et sable dans toutes les directions. L'ancêtre fut repoussé de plusieurs dizaines de pieds, ses os du poing droit fissurés par l'impact. Son visage était marqué par l'incrédulité.
+L'onde de choc projeta roches et sable dans toutes les directions. L'ancêtre fut repoussé d'une dizaine de mètres, ses os du poing droit fissurés par l'impact. Son visage était marqué par l'incrédulité.
 
 Le corps de Wang Lin ne recula que de quelques pas et son bras trembla légèrement. Il sentit une force colossale pénétrer son corps pour tenter de le déchirer, mais celle-ci fut promptement dissipée par son âme originelle.
 
@@ -88,7 +88,7 @@ Mais à l'instant, en échangeant ce coup avec Wang Lin, les os les plus solides
 
 « Quelle est ta méthode de culture?! » demanda l'ancêtre d'un ton sombre en reculant rapidement. Mais Wang Lin était trop rapide; il était déjà devant lui, lançant un autre coup de poing. Cette attaque créa une pression qui le cloua sur place. De fines lignes apparurent soudainement, tentant de l'envelopper.
 
-Les yeux de l'ancêtre s'illuminèrent. En tentant de bouger, son corps craqua sous la pression et les filaments. Il bondit dans les airs et utilisa un coup de pied pour contrer le poing de Wang Lin.
+Les yeux de l'ancêtre s'illuminèrent. En tentant de bouger, la pression et les filaments se brisèrent. Il bondit dans les airs et utilisa un coup de pied pour contrer le poing de Wang Lin.
 
 Bang!
 
@@ -96,7 +96,7 @@ Un nouveau tonnerre assourdissant secoua tout le Clan Démon Géant.
 
 Le visage de l'ancêtre devint cramoisi. Il utilisa la force de l'impact pour s'éloigner rapidement.
 
-Wang Lin ressentit une douleur dans son poing droit et recula de quelques pas avant de s'arrêter. Il prit une profonde inspiration. Cet ancêtre n'avait pas terminé sa possession et pourtant son corps était déjà presque comparable à celui d'un Dieu Ancien à trois étoiles. S'il parvenait à achever sa possession, sa puissance physique ne serait guère inférieure à celle d'un tel dieu.
+Wang Lin ressentit une douleur dans son poing droit et recula d'une dizaine de mètres avant de s'arrêter. Il prit une profonde inspiration. Cet ancêtre n'avait pas terminé sa possession et pourtant son corps était déjà presque comparable à celui d'un Dieu Ancien à trois étoiles. S'il parvenait à achever sa possession, sa puissance physique ne serait guère inférieure à celle d'un tel dieu.
 
 Le visage de l'ancêtre était d'une noirceur absolue. Lorsqu'il avait vu Wang Lin détruire les douze piliers, il avait choisi de rester caché. Mais maintenant que Wang Lin l'avait débusqué, le combat était inévitable.
 

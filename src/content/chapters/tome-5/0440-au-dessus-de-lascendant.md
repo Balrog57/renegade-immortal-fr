@@ -24,27 +24,27 @@ Situ Nan prit une profonde inspiration, laissant transparaître une pointe de re
 
 Les yeux de Wang Lin s'illuminèrent. « Les trois royaumes du Briseur du Nirvana? »
 
-« C'est exact. La première génération de Suzaku, Yu Wuyou, m'a parlé des trois royaumes du Briseur du Nirvana après avoir reçu les récompenses de l'Alliance de la Culture. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
+« C'est exact. La première génération de Suzaku, Ye Wuyou, m'a parlé des trois royaumes du Briseur du Nirvana après avoir reçu les récompenses de l'Alliance de la Culture. S'il ne me l'avait pas dit, je n'en aurais pas eu connaissance avant de devenir le prochain Suzaku. » Situ Nan soupira en se remémorant le passé.
 
-« Les trois royaumes du Briseur du Nirvana: le premier est le royaume du Devin de Nirvana, le deuxième est celui du Purificateur du Nirvana, et le troisième est celui du Briseur du Nirvana. »
+« Les trois royaumes du Briseur du Nirvana: le premier est le royaume du Scruteur du Nirvana, le deuxième est celui du Purificateur du Nirvana, et le troisième est celui du Briseur du Nirvana. »
 
 Wang Lin prit une profonde inspiration, puis fronça les sourcils et demanda: « Et après les trois royaumes du Briseur du Nirvana? Est-ce là le sommet? »
 
 Situ Nan secoua la tête et répondit: « Comment pourrait-ce être aussi simple? Les trois royaumes du Briseur du Nirvana ne sont considérés que comme la deuxième étape pour les cultivateurs. Pourtant, quelqu'un au stade de Briseur du Nirvana peut être considéré comme une puissance majeure au sein de l'Alliance de la Culture. On cherche rarement à s'attirer leurs foudres. La rumeur prétend même que les vieux monstres de l'Alliance de la Culture ont réussi à franchir le stade du Briseur du Nirvana. »
 
-Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous un Devin de Nirvana? »
+Wang Lin réfléchit un instant, puis regarda Situ Nan et demanda: « Êtes-vous un Scruteur du Nirvana? »
 
-Situ Nan eut un sourire amer et dit: « Comment cela pourrait-il être aussi facile? Il existe deux seuils entre le stade d'Ascendant et l'accès au rang de Devin de Nirvana, qui sont les étapes du Nettoyage Yin-Yang.
+Situ Nan eut un sourire amer et dit: « Comment cela pourrait-il être aussi facile? Il existe deux seuils entre le stade d'Ascendant et l'accès au rang de Scruteur du Nirvana, qui sont les étapes du Nettoyage Yin-Yang.
 
-Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transition de l'immatériel vers le corporel, mais une compréhension plus profonde. Je ne peux pas l'expliquer en détail, mais ce n'est qu'une fois que votre domaine aura traversé les étapes du Nettoyage Yin-Yang que vous pourrez devenir un Devin de Nirvana.
+Ces étapes impliquent un changement de domaine. Ce n'est pas une simple transition de l'immatériel vers le corporel, mais une compréhension plus profonde. Je ne peux pas l'expliquer en détail, mais ce n'est qu'une fois que votre domaine aura traversé les étapes du Nettoyage Yin-Yang que vous pourrez devenir un Scruteur du Nirvana.
 
-Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture de porte close afin de devenir un Devin de Nirvana. »
+Avant d'être contraint de me cacher dans la Perle Défiant le Ciel, j'avais touché la limite de l'étape du Nettoyage Yin. Bien que je n'aie pas pu cultiver pendant mon emprisonnement, ma compréhension de mon domaine s'était accrue, et j'ai donc achevé l'étape du Nettoyage Yin. Une fois que j'aurai franchi l'étape du Nettoyage Yang, il ne me restera plus qu'à trouver un endroit pour entrer en culture de porte close afin de devenir un Scruteur du Nirvana. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est le niveau de culture de Zhuque Zi? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Devin de Nirvana? »
+Les yeux de Wang Lin s'illuminèrent et il demanda: « Quel est le niveau de culture de Zhuque Zi? Est-il lui aussi aux étapes du Nettoyage Yin-Yang avant de devenir un Scruteur du Nirvana? »
 
-Une pointe de dédain apparut dans les yeux de Situ Nan, puis il déclara: « Lui? Stade d'Ascendant avancé. Je crains qu'il ne soit même pas qualifié pour atteindre les étapes du Nettoyage Yin-Yang, alors ne parlons même pas de devenir un Devin de Nirvana. Cependant, il est considéré comme une sorte de cultivateur d'Ascendant très spéciale. Bien qu'il soit toujours plus faible que les cultivateurs aux étapes du Nettoyage Yin-Yang, il n'est pas de taille face à un cultivateur d'Ascendant avancé ordinaire. »
+Une pointe de dédain apparut dans les yeux de Situ Nan, puis il déclara: « Lui? Stade d'Ascendant avancé. Je crains qu'il ne soit même pas qualifié pour atteindre les étapes du Nettoyage Yin-Yang, alors ne parlons même pas de devenir un Scruteur du Nirvana. Cependant, il est considéré comme une sorte de cultivateur d'Ascendant très spéciale. Bien qu'il soit toujours plus faible que les cultivateurs aux étapes du Nettoyage Yin-Yang, un cultivateur d'Ascendant avancé ordinaire ne peut pas le vaincre. »
 
-Les yeux de Wang Lin brillèrent et il s'exclama: « Le Sceau de Suzaku de l'Alliance de la Culture! »
+Les yeux de Wang Lin brillèrent et il s'exclama: « Le titre de Suzaku de l'Alliance de la Culture! »
 
 Situ Nan laissa paraître une pointe d'appréciation dans son regard et dit lentement: « Oui, c'est un cultivateur d'Ascendant Titulaire. Il peut être considéré comme un haut niveau d'Ascendant car il maîtrise une technique spéciale de l'Alliance de la Culture.
 
@@ -54,7 +54,7 @@ Cependant, les techniques offertes par l'Alliance de la Culture sont classées a
 
 Malheureusement, le Sceau de Suzaku ne peut être utilisé que si l'on contrôle le Cristal Planétaire de Culture. Une fois que vous maîtrisez les deux, votre force augmentera de façon prodigieuse.
 
-La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement le sceau augmente la vitesse de culture, mais une fois que vous possédez le Cristal Planétaire de Culture, il accroît la compatibilité entre vous et le cristal, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
+La Tactique du Suzaku que chaque génération de Suzaku apprend est ce que la première génération, Ye Wuyou, a réussi à extraire du Sceau de Suzaku. Non seulement la tactique augmente la vitesse de culture, mais une fois que vous possédez le Cristal Planétaire de Culture, il accroît la compatibilité entre vous et le cristal, afin que vous puissiez atteindre la puissance d'un Ascendant Titulaire plus rapidement. »
 
 Wang Lin réfléchit un moment. Ses yeux s'animèrent et il demanda: « Vous avez dit plus tôt que les trésors célestes étaient également classés par rang? »
 

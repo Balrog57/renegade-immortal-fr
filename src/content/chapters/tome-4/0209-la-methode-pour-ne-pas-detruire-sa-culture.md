@@ -24,7 +24,7 @@ Lentement, alors que ses mouvements s'accéléraient, des points lumineux apparu
 
 Bientôt, ces points se multiplièrent et formèrent progressivement la silhouette d'un lotus. Wang Lin poussa un grognement, plaça ses mains de chaque côté de sa poitrine et les poussa lentement vers l'extérieur.
 
-Ces points de lumière s'extirpèrent lentement de son corps. Les lueurs s'entrelacèrent pour dessiner la forme d'un lotus blanc, semblant quitter peu à peu son organisme. Même lorsque les lumières flottèrent à trois centimètres de lui, des filaments lumineux continuaient de relier le lotus à son corps.
+Ces points de lumière s'extirpèrent lentement de son corps. Les lueurs s'entrelacèrent pour dessiner la forme d'un lotus blanc, semblant quitter peu à peu son organisme. Même lorsque les lumières flottèrent à dix centimètres de lui, des filaments lumineux continuaient de relier le lotus à son corps.
 
 De larges perles de sueur apparurent sur le front de Wang Lin. Son corps entier était trempé, mais pour supprimer totalement cette restriction du lotus, il serra les dents et projeta soudainement ses mains vers l'avant.
 
@@ -44,7 +44,7 @@ Cependant, Wang Lin savait que cette simple ruse ne lui ferait gagner qu'un peu 
 
 Il prit une profonde inspiration, puis quitta rapidement la grotte. En sortant, il rangea son drapeau de restriction et s'éclipsa prestement.
 
-Wang Lin savait qu'il ne pouvait pas rester longtemps dans la Mer des Démons, sous peine de subir de graves ennuis. Si tout se déroulait comme prévu, une fois qu'il aurait atteint le stade de l'Âme Naissante, hormis quelques anciens cultivateurs du stade de la Scission de l'Esprit, personne ne pourrait s'opposer à lui.
+Wang Lin savait qu'il ne pouvait pas rester longtemps dans la Mer des Démons, sous peine de subir de graves ennuis. Si tout se déroulait comme prévu, une fois qu'il aurait atteint le stade de l'Âme Naissante, hormis quelques anciens cultivateurs du stade de la Formation de l'Âme, personne ne pourrait s'opposer à lui.
 
 Le seul problème résidait dans la percée vers le stade de l'Âme Naissante, ce qui imposait une légère modification de ses plans.
 
@@ -60,7 +60,7 @@ Il se détourna et pénétra dans le tunnel.
 
 Peu après, ses mains bougèrent pour former de nombreuses restrictions afin de recouvrir entièrement la grotte. Ce n'est qu'ensuite qu'il entra dans la salle de pierre.
 
-La pièce s'était également un peu effondrée, mais alors que Wang Lin et Qiu Siping fuyaient la grotte, il avait accordé une attention particulière à cet endroit en y plaçant secrètement une restriction protectrice. Ainsi, malgré l'effondrement partiel, le réseau de transfert n'avait pas été endommagé. Après avoir soigneusement dégagé les roches, Wang Lin étudia un instant l'artifice, puis sortit une pierre spirituelle incandescente. Cette pierre était d'une clarté cristalline, comme si des nuages y flottaient.
+La pièce s'était également un peu effondrée, mais alors que Wang Lin et Qiu Siping fuyaient la grotte, il avait accordé une attention particulière à cet endroit en y plaçant secrètement une restriction protectrice. Ainsi, malgré l'effondrement partiel, le réseau de transfert n'avait pas été endommagé. Après avoir soigneusement dégagé les roches, Wang Lin étudia un instant l'artifice, puis sortit une pierre spirituelle au reflet violet profond. Cette pierre était d'une clarté cristalline, comme si des nuages y flottaient.
 
 Il s'agissait d'une pierre spirituelle de très haute qualité, extrêmement rare, et indispensable pour activer l'ancien réseau de transfert.
 
@@ -72,7 +72,7 @@ Soudain, un cercle de lumière jaillit du mécanisme et s'éleva dans les airs, 
 
 Une fois Wang Lin disparu, les cercles de lumière cessèrent leur mouvement et retournèrent dans le dispositif, lequel reprit son aspect initial.
 
-Dans une chaîne de montagnes infinie, à des millions de kilomètres de la Mer des Démons, un faisceau de lumière d'une dizaine de pieds de large tomba du ciel, propageant des ondes de choc dans les environs.
+Dans une chaîne de montagnes infinie, à des millions de kilomètres de la Mer des Démons, un faisceau de lumière d'une trentaine de mètres de large tomba du ciel, propageant des ondes de choc dans les environs.
 
 Au cœur de la montagne se trouvait un canyon, et au sein de ce canyon, une petite vallée abritait un réseau de transfert très ancien.
 
@@ -84,7 +84,7 @@ Wang Lin toussa à plusieurs reprises. Il forma un sceau de la main pour créer 
 
 Il leva la tête et scruta les environs. La lumière vive du soleil frappa ses yeux, le faisant cligner des paupières. En observant son nouvel environnement, il comprit qu'il n'était plus dans la Mer des Démons. Les montagnes étaient parées de verdure et des bêtes volantes inconnues planaient dans le ciel.
 
-Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil; même durant ces derniers mois, le ciel était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
+Wang Lin plissa les yeux. Cela faisait longtemps qu'il n'avait pas vu une telle clarté solaire. La Mer des Démons ne connaissait jamais de véritable soleil; même durant ce dernier mois, le ciel était perpétuellement voilé par des nuages noirs déversant une pluie sombre sur la terre.
 
 Il prit une profonde inspiration, se tourna vers le réseau de transfert et sortit son épée empoisonnée. Il en coupa un fragment qu'il rangea dans son sac de rangement. Ce n'est qu'alors qu'il se sentit apaisé.
 

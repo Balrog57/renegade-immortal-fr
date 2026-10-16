@@ -12,7 +12,7 @@ Très peu de gens savaient comment cela avait été accompli, mais le résultat 
 
 À cet instant précis, la renommée du Temple Céleste du Tonnerre atteignit son apogée! Elle surpassait même les quelques lignées possédant des héritages de l'Antiquité, devenant un symbole de puissance pour le système stellaire d'Allheaven.
 
-Profitant de cet émoi, la compétition officielle pour les titres célestes commença!
+Profitant de cet émoi, la compétition officielle des 36 Tian Gang et 72 Di Sha pour les titres célestes commença!
 
 « Le Royaume Céleste s'est effondré et les êtres célestes ont disparu, mais des êtres célestes renaîtront. Les titres que le Temple Céleste du Tonnerre attribuera feront de ces individus des êtres célestes! Les familles de ces 108 personnes seront considérées comme des clans célestes! Il s'agit d'un titre permanent! »
 
@@ -38,7 +38,7 @@ Wang Lin ignorait tout de cela. Il était déjà en culture fermée depuis dix j
 
 Il continuait à raffiner et à absorber la vaste quantité d'énergie originelle de Yao Bingyun. Lentement mais sûrement, cette énergie devenait la sienne!
 
-Pour Wang Lin, Yao Bingyun était semblable à un précieux élixir faisant progresser lentement son niveau de culture. Yao Bingyun possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
+Pour Wang Lin, Yao Bingyun était semblable à un précieux élixir faisant progresser lentement son niveau de culture. Yao Bingyun, au stade intermédiaire du Scruteur du Nirvana, possédait une immense réserve d'énergie originelle. Après dix jours, Wang Lin n'en avait absorbé que 30 %.
 
 Après avoir raffiné et absorbé ces 30 % de l'énergie originelle de Yao Bingyun, la culture de Wang Lin franchit une étape pour atteindre le sommet du stade du Yang Corporel. Il n'était plus qu'à un pas du stade du Scruteur du Nirvana!
 
@@ -48,7 +48,7 @@ Cependant, ce passage était semblable à un goulet d'étranglement. Ce n'était
 
 « Rien au monde ne peut échapper au karma. Le karma est partout, mais tout ceci n'est qu'une illusion. Dès que je tente de saisir la vérité, tout est enveloppé de brume. » Alors qu'il raffinait l'énergie originelle de Yao Bingyun, Wang Lin laissa échapper un soupir. Puis son regard se posa sur Yao Bingyun.
 
-« Karma... Lorsque j'ai obtenu la perle défiant le ciel, c'était la cause karmique; rencontrer Situ Nan était l'effet karmique. Tuer Teng Li était la cause karmique, et le fait que Teng Huayuan ait massacré ma famille fut l'effet karmique... De même, l'action de Teng Huayuan était la cause karmique, et mon massacre du clan Teng en fut l'effet... Il semble que les causes et les effets karmiques s'entrecroisent. Peut-être qu'un effet karmique aujourd'hui deviendra la cause karmique de quelqu'un d'autre demain... »
+« Karma... Lorsque j'ai obtenu la perle défiant le ciel, c'était la cause karmique; rencontrer Situ Nan était l'effet karmique. Tuer Teng Li était la cause karmique, et le fait que Teng Huayuan ait massacré mes parents fut l'effet karmique... De même, l'action de Teng Huayuan était la cause karmique, et mon massacre du clan Teng en fut l'effet... Il semble que les causes et les effets karmiques s'entrecroisent. Peut-être qu'un effet karmique aujourd'hui deviendra la cause karmique de quelqu'un d'autre demain... »
 
 Wang Lin fronça les sourcils et la confusion dans son regard s'intensifia. Le domaine du karma contenait trop de complexités; à ce jour, Wang Lin ne le comprenait toujours pas pleinement. Cela différait du domaine de la vie et de la mort qu'il parvenait à appréhender clairement.
 

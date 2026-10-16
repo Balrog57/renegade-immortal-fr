@@ -48,7 +48,7 @@ Le crapaud émergea de la sacoche et atterrit au sol. Ses yeux exprimaient une n
 
 Une fois les deux bêtes libérées, Wang Lin réfléchit un instant avant de sortir l'épée céleste. D'un coup sec, il la fit vibrer et Xu Liguo fut éjecté de la lame. Ce dernier s'apprêtait à flatter Wang Lin, mais le regard sévère de ce dernier le coupa net.
 
-Wang Lin déclara calmement: « Je vais affiner un trésor. Que personne ne s'approche à moins de mille pieds! »
+Wang Lin déclara calmement: « Je vais affiner un trésor. Que personne ne s'approche à moins de 330 mètres! »
 
 Xu Liguo hocha la tête avec empressement en se tapotant la poitrine, l'air d'un subordonné dévoué: « Maître, soyez tranquille! À moins que l'on ne marche sur mon cadavre, personne ne pourra vous approcher. Moi, Xu Liguo, j'ai consacré ma vie à la loyauté, je vis pour la loyauté. Personne ne peut égaler le grand Xu Liguo... »
 
@@ -78,7 +78,7 @@ Toutefois, la rune se montra très tenace. Au lieu de se briser, elle explosa av
 
 Si Wang Lin s'était trouvé au stade d'Ascendant, son âme originelle n'aurait pas pu supporter un tel assaut; il serait resté enlisé dans une lutte d'usure interminable.
 
-Mais Wang Lin laissa échapper un grognement et une série d'explosions retentit au sein de son âme originelle. Chaque explosion multipliait par dix la puissance du tonnerre en lui. En un instant, le tonnerre dans son âme devint si colossal qu'il entra en collision directe avec la rune engloutie.
+Mais Wang Lin laissa échapper un grognement et une série d'explosions retentit au sein de son âme originelle. Chaque explosion doublait la puissance du tonnerre en lui. En un instant, le tonnerre dans son âme devint si colossal qu'il entra en collision directe avec la rune engloutie.
 
 Dans un fracas assourdissant, la rune qui résistait finit par s'effondrer. À l'instant même de sa défaite, un torrent de tonnerre encore plus puissant se précipita sur ses fragments.
 
@@ -88,7 +88,7 @@ Wang Lin mit moins de temps qu'il n'en faut pour brûler la moitié d'un bâton 
 
 Celle-ci était bien plus puissante, mais grâce à la force de son âme originelle, il parvint à la raffiner complètement, bien que cela lui ait pris le temps de brûler un bâton d'encens entier.
 
-Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Une heure plus tard, le pouvoir mystérieux de ces deux runes résidait désormais dans son âme originelle.
+Il ne s'arrêta pas là. Le regard brillant, il engloutit les troisième et quatrième runes simultanément. Deux heures plus tard, le pouvoir mystérieux de ces deux runes résidait désormais dans son âme originelle.
 
 La cinquième rune fut ensuite dévorée par l'âme du dragon de tonnerre antique. Dès son ingestion, elle libéra une force violente qui se propagea à travers toute l'âme originelle de Wang Lin.
 
@@ -100,14 +100,14 @@ L'âme originelle de Wang Lin étant quelque peu affaiblie, il réintégra son c
 
 Le temps s'écoula. En un clin d'œil, cinq jours passèrent. Le corps de Wang Lin était resté immobile tandis que son âme originelle se rétablissait progressivement. Durant ces cinq jours, Ta Shan et l'Ancêtre s'étaient déplacés deux fois sur les lieux avec un grand groupe de membres du clan.
 
-Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de mille pieds; ils restaient donc à l'écart, errant dans les environs.
+Les hurlements de la bête moustique, le tonnerre du crapaud et l'expression diabolique de Xu Liguo les avaient dissuadés de s'approcher à moins de 330 mètres; ils restaient donc à l'écart, errant dans les environs.
 
-Xu Liguo regarda le Clan des Immortels Délaissés en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
+Xu Liguo regarda le Clan des Immortels Élus en se léchant les lèvres, se remémorant avec nostalgie les jours heureux passés sur la planète Qing Ling.
 
-Tempté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan des Immortels Délaissés ne lui prêta attention.
+Tenté par cette vue, il ne put contenir son envie et tenta d'attirer certains membres situés en bordure de la zone vers l'intérieur. Mais personne au sein du Clan des Immortels Élus ne lui prêta attention.
 
 Tous étaient stupéfaits devant le Char de Guerre Anti-Dieu et discutaient entre eux. Pourtant, même l'Ancêtre, l'homme le plus érudit ici présent, ignorait ce qu'était un tel objet.
 
 Néanmoins, la pression émanant du char faisait trembler leurs esprits.
 
-Ce jour-là, Wang Lin ouvrit les yeux et pointa sa main droite vers ses sourcils. Son âme originelle s'élança une nouvelle fois vers le Char de Guerre Anti-Dieu. Alors qu'elle atteignait la centaine de pieds, un cri retentit depuis l'extérieur de la zone de mille pieds.
+Ce jour-là, Wang Lin ouvrit les yeux et pointa sa main droite vers ses sourcils. Son âme originelle s'élança une nouvelle fois vers le Char de Guerre Anti-Dieu. Alors qu'elle apparaissait à peine, un cri retentit à plus de 330 mètres, depuis l'extérieur de la zone.

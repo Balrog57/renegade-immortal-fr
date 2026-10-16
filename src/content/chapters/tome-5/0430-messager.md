@@ -30,7 +30,7 @@ Yunque Zi regarda calmement la figure et dit: « Dès que tu agiras, Zhuque Zi l
 
 À l'instant où ils s'éloignèrent, les nuages virèrent au rouge et révélèrent lentement la silhouette de Zhuque Zi.
 
-« Yunque! Sors d'ici! » rugit Zhuque Zi, le visage dévoré par la colère. Sa voix se propagea soudainement dans toutes les directions.
+« Yunque! Montre-toi! » rugit Zhuque Zi, le visage dévoré par la colère. Sa voix se propagea soudainement dans toutes les directions.
 
 « Frère aîné, l'affrontement entre nous est inévitable. Puisque nous avons appartenu à la même secte pendant mille ans, je te donne trois mois pour te remettre. Après cela, notre combat aura lieu au pied du mont Suzaku! »
 
@@ -42,7 +42,7 @@ Yunque Zi et la silhouette apparurent lentement quelque part dans le ciel au-des
 
 Yunque Zi regarda l'entité et dit: « Au sein du Clan des Immortels Délaissés, en me comptant, il y a trois chamans à neuf feuilles, un chaman à dix feuilles, et toi, un chaman à onze feuilles. Si nous attaquons tous les cinq ensemble, il ne sera pas difficile de tuer Zhuque Zi! »
 
-« De plus, bien que seuls deux Arbres d'Esprit Ancestraux aient réussi, deux autres chamans à dix feuilles descendront bientôt; avec sept d'entre nous, tuer Zhuque Zi sera encore plus aisé! »
+« De plus, bien que seuls deux Arbres d'Esprit Ancestraux aient réussi, deux autres chamans à dix feuilles descendront d'ici un mois; avec sept d'entre nous, tuer Zhuque Zi sera encore plus aisé! »
 
 « Cependant, Zhuque ne peut pas être tué pour l'instant! »
 
@@ -52,7 +52,7 @@ Les yeux de Yunque Zi s'illuminèrent et il ricana: « Premier Ancêtre, je vais
 
 La figure resta silencieuse.
 
-« Si les choses s'étaient déroulées selon mon plan, nous aurions pu élever un cultivateur pour devenir le prochain Suzaku et poursuivre cette mascarade, ce qui permettrait à notre clan de continuer d'exister. C'était la méthode idéale; cependant, l'Ancêtre a été trop impatient, il vous a tous libérés et a ainsi anéanti tous mes plans. » L'humeur d'Yunque Zi était très sombre.
+« Si les choses s'étaient déroulées selon mon plan, nous aurions pu élever un cultivateur pour devenir le prochain Suzaku et le contrôler peu à peu dans l'ombre, ce qui permettrait à notre clan de continuer d'exister. C'était la méthode idéale; cependant, l'Ancêtre a été trop impatient, il vous a tous libérés et a ainsi anéanti tous mes plans. » L'humeur d'Yunque Zi était très sombre.
 
 « Même mon identité a dû être révélée par vous tous pour prouver que je suis un membre du Clan des Immortels Délaissés. À mes yeux, cela fut inutile! »
 
@@ -68,7 +68,7 @@ Yunque Zi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 « Cependant, ce qui est fascinant, c'est qu'alors que j'étais à l'Alliance des Quatre Sectes, j'ai rencontré un cultivateur nommé Wang Lin. Son talent était ordinaire et il n'avait rien de spécial, et pourtant, il a été capable de comprendre le Domaine de la Vie et de la Mort. Sur un coup de tête, je l'ai fait devenir mon quatrième candidat. »
 
-« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a pris le bras de Papillon Rouge. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhuque Zi. »
+« Au départ, je ne prêtais que peu d'attention à cet homme, mais son évolution ultérieure m'a profondément stupéfié. Au Royaume Céleste, il a tranché un bras à Papillon Rouge. À son retour, son niveau de culture avait grimpé en flèche et il avait même attiré l'attention de Zhuque Zi. Dun Tian, de la Secte de l'Affinement de l'Âme, l'a lui aussi considéré comme son disciple direct et lui a transmis l'Étendard de l'Âme au Milliard d'Âmes. »
 
 « Cet homme possède également trop de secrets; parfois, même moi, je ne parviens pas à le percer. Ainsi, finalement, je l'ai désigné comme exécutant de mon plan Suzaku! »
 
@@ -76,11 +76,11 @@ Yunque Zi reprit lentement: « Premier Ancêtre, si vous voulez que notre clan p
 
 La figure réfléchit un instant avant de lever la tête. Elle fixa froidement Yunque Zi et dit: « Cette explication est encore insuffisante! »
 
-Le regard d'Yunque Zi devint sérieux: « J'ignore dans quelle mesure le Cristal de Culture Planétaire affectera notre Clan des Immortels Délaissés. Si cela arrive, alors tous les membres du clan nés depuis que les cultivateurs ont pris le pouvoir mourront, vous et moi compris. Cette explication est-elle suffisante? »
+Le regard d'Yunque Zi devint sérieux: « J'ignore dans quelle mesure le Cristal de Culture Planétaire affectera notre Clan des Immortels Délaissés. Si cela arrive, alors tous les membres du clan nés au cours des dizaines de milliers d'années passées mourront, vous et moi compris. Cette explication est-elle suffisante? »
 
 La figure réfléchit à nouveau, puis poussa un soupir: « Qui était le premier candidat que tu as choisi? »
 
-Yunque Zi esquissa un faible sourire: « Une fois que le messager aura accompli sa tâche et si rien ne tourne mal, mon premier candidat deviendra le prochain Suzaku! »
+Yunque Zi esquissa un faible sourire: « Une fois que l'exécutant aura accompli sa tâche et si rien ne tourne mal, mon premier candidat deviendra le prochain Suzaku! »
 
 Finalement, la figure demanda: « Pourquoi donner trois mois à Zhuque Zi? »
 
@@ -94,7 +94,7 @@ Les yeux de Wang Lin s'illuminèrent faiblement en regardant le chapeau de paill
 
 Il posa le vin sur la table, s'assit, se versa une coupe et la but d'un trait.
 
-Zhou Wutai afficha un sourire malicieux en prenant le vin, se versant une coupe pleine qu'il goûta, puis il dit: « Le vin est le même qu'autrefois, et l'homme est le même qu'autrefois, mais nos cœurs sont désormais totalement différents. Bien que le décor soit resté inchangé, nous avons tous les deux changé. »
+Zhou Wutai afficha un sourire malicieux en prenant le vin, se versant une coupe pleine qu'il goûta, puis il dit: « Le vin est le même qu'autrefois, et l'homme est le même qu'autrefois, mais nos cœurs sont désormais totalement différents. Le décor, lui, a changé autour de nous. »
 
 Wang Lin resta pensif. Il tint sa coupe sans dire un mot.
 

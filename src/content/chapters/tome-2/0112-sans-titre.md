@@ -56,10 +56,10 @@ Il prit une profonde inspiration, ferma les yeux et projeta son Sens Divin dans 
 
 C'était une fonction que Situ Nan avait découverte après que la perle défiant le ciel eut achevé son Élément Eau: utiliser la lumière environnante pour créer une formation permettant à Wang Lin de circuler librement entre l'espace du rêve et l'extérieur.
 
-Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant de plus de dix mètres de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
+Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ neuf mètres de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
 
-En y regardant de plus près, la forme du géant était très épurée, mais une énergie Yin semblait s'agglutiner autour de lui. Son corps n'était pas solide, particulièrement sa poitrine qui présentait un énorme vide, comme si elle allait se dissiper à tout instant. Des ondes d'énergie spirituelle fluctuaient autour de son corps.
+En y regardant de plus près, les traits du géant étaient ordinaires, mais une énergie Yin semblait s'agglutiner autour de lui. Son corps n'était pas solide, particulièrement sa poitrine qui présentait un énorme vide, comme si elle allait se dissiper à tout instant. Des ondes d'énergie spirituelle fluctuaient autour de son corps.
 
 À cet instant, les yeux du géant étaient clos, son corps irradiait et il ignorait totalement la présence de Wang Lin.
 
-Wang Lin fixa le géant. Ce n'était pas la première fois qu'il voyait l'Âme Naissante de Situ Nan, mais chaque rencontre le laissait stupéfait. Il se demanda que, si son Âme Naissante était déjà d'une telle démesure, quelle devait être la taille réelle du corps de Situ Nan?
+Wang Lin fixa le géant. Ce n'était pas la première fois qu'il voyait l'Âme Naissante de Situ Nan, mais chaque rencontre le laissait stupéfait. Il se demanda si, son Âme Naissante étant déjà d'une telle démesure, quelle devait être la taille réelle du corps de Situ Nan?

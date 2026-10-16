@@ -16,7 +16,7 @@ L'illusion du géant divin s'effondra soudainement en d'innombrables particules 
 
 Cette clarté ne dura que quelques respirations avant de disparaître, laissant place à l'obscurité.
 
-Le bouclier devant Wang Lin avait atteint une hauteur de près de 10 000 pieds. Il ressemblait à une barrière gigantesque séparant le Yin et le Yang! Le bouclier était recouvert d'une lueur azurée diffuse qui rendait les environs brumeux, comme si ce trésor n'était pas censé exister dans ce monde.
+Le bouclier devant Wang Lin avait atteint une hauteur de près de 3 300 mètres. Il ressemblait à une barrière gigantesque séparant le Yin et le Yang! Le bouclier était recouvert d'une lueur azurée diffuse qui rendait les environs brumeux, comme si ce trésor n'était pas censé exister dans ce monde.
 
 Wang Lin prit une profonde inspiration et chargea vers le bouclier. Au loin, Maître Hollow Wind luttait. Il s'était autrefois demandé quelle serait la puissance de ce trésor une fois son sceau levé, mais ce qu'il voyait dépassait désormais son imagination.
 

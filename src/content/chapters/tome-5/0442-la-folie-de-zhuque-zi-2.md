@@ -17,7 +17,7 @@ Le visage de Zhuque Zi devint livide et une aura de mort émana de lui. Lorsqu'i
 
 Une fois qu'une cible a été verrouillée par le sens divin de l'utilisateur, celle du Sceau de Suzaku ne peut plus changer. Il n'avait pas blessé le premier ancêtre, mais il avait tué presque instantanément le cinquième ancêtre. S'il avait visé le premier ancêtre ou Yunque Zi, le Sceau de Suzaku ne les aurait pas tués d'un coup, mais les aurait gravement blessés. C'est pourquoi Zhuque Zi n'avait pas cherché à les atteindre, préférant cibler le relativement faible cinquième ancêtre pour obtenir une élimination inattendue.
 
-Le premier ancêtre fixa Zhuque Zi et prononça, mot pour mot: « Zhuque Zi! »
+Le premier ancêtre fixa Zhuque Zi et prononça, mot pour mot: « Sceau de Suzaku! »
 
 La mort du cinquième ancêtre ne semblait pas affecter ces gens; aucun d'eux ne manifesta la moindre colère.
 
@@ -27,7 +27,7 @@ Une lueur de folie apparut dans les yeux de Zhuque Zi et il éclata de rire. « 
 
 Les yeux d'Yunque Zi restèrent sereins lorsqu'il répondit: « Oh? Expliquez-moi cela. »
 
-Zhuque Zi rit de plus belle. Son regard devint glacial alors qu'il poursuivait: « Le Cristal de la Planète de Culture se trouve dans le Tombeau de Suzaku. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux qui sont nés sur cette planète après la prise de contrôle par le pays de Suzaku mourront! »
+Zhuque Zi rit de plus belle. Son regard devint glacial alors qu'il poursuivait: « Le Cristal de la Planète de Culture se trouve dans le Tombeau de Suzaku. Tout cultivateur au stade de la Transformation de l'Âme peut y entrer à sa guise. Si vous ne le trouvez pas à temps, je ferai exploser le Cristal de la Planète de Culture. Soit l'Alliance de Culture anéantira votre Clan de l'Immortel Délaissé lorsqu'ils viendront enquêter, soit tous ceux de votre Clan nés depuis des dizaines de milliers d'années mourront avec le Cristal! »
 
 Yunque Zi esquissa un léger sourire: « Le Cristal de la Planète de Culture contient les fragments d'âme de chaque cultivateur de la planète. Si vous le détruisez, mon frère, vos propres disciples mourront avec vous! » Sur ces mots, il lança un regard nonchalant vers Qian Feng et Liu Mei.
 
@@ -47,7 +47,7 @@ Du pays de rang 6 de Suzaku jusqu'aux pays de culture de rang 1, même les morte
 
 Ceux qui fuyaient, ceux qui soignaient leurs blessures et ceux qui erraient sans savoir quoi faire ressentirent tous cette douleur de l'âme. Ils avaient l'impression qu'ils s'effondreraient au moindre surcroît de souffrance. Si ce sentiment avait duré une respiration de plus, il aurait pu rendre n'importe qui fou, ou pire, le tuer.
 
-Parmi les mortels, des rois aux simples roturiers, tous sur la planète Suzaku tremblèrent. Cette douleur ne faisait aucune distinction de rang ni de nature; tant que l'on était né après la prise de contrôle par le pays de Suzaku, on ne pouvait y échapper! La flore, la faune et les bêtes démoniaques avaient toutes l'impression que le monde était sur le point de s'effondrer.
+Parmi les mortels, des rois aux simples roturiers, tous sur la planète Suzaku tremblèrent. Cette douleur ne faisait aucune distinction de rang ni de nature; quiconque était né au cours de ces dizaines de milliers d'années ne pouvait y échapper! La flore, la faune et les bêtes démoniaques avaient toutes l'impression que le monde était sur le point de s'effondrer.
 
 Même les membres du Clan de l'Immortel Délaissé qui se précipitaient vers le Mont Suzaku sur le continent de Suzaku ressentirent ce phénomène. Bien que leur ressenti fût bien plus faible, ils avaient la sensation que leur vie tenait à un fil, comme si une simple pression pouvait mettre fin à leur existence.
 

@@ -30,7 +30,7 @@ Une force d'aspiration inimaginable émana de la rivière des Enfers. Les bêtes
 
 Ce n'était pas une seule bête, mais presque toutes. Sous la force de l'aspiration, les bêtes de brume s'effondrèrent en un brouillard épais, comme si elles luttaient pour s'échapper. Cependant, elles ne purent résister et continuèrent d'être englouties par la rivière des Enfers.
 
-À ce moment-là, l'ancêtre du Clan des Immortels Délaissés afficha une expression anxieuse et cria pour arrêter Wang Lin: « Grand Céleste, ne faites pas ça! »
+À ce moment-là, l'ancêtre du Clan des Immortels Élus afficha une expression anxieuse et cria pour arrêter Wang Lin: « Grand Céleste, ne faites pas ça! »
 
 Les yeux de Wang Lin se rétrécirent. À l'appel du vieil homme, il sentit que la brume noire aspirée par la rivière des Enfers n'était pas en train d'être raffinée. Au lieu de cela, elle se rassemblait pour former une silhouette humaine.
 
@@ -38,7 +38,7 @@ Cette figure humaine n'était qu'une ombre emplie de brume, sans apparence préc
 
 Une fois apparue, son expression était totalement floue; seul l'œil droit était net.
 
-L'ancêtre du clan des Immortels Choisis descendit précipitamment du ciel. Non seulement lui, mais les autres membres du clan atterrirent également en hâte. Lorsque le vieil homme vit que la silhouette humaine n'avait qu'un œil droit, il poussa un soupir de soulagement. Il regarda Wang Lin et cria: « Grand Céleste, veuillez revenir pour que je puisse activer le réseau céleste! C'est une bête de brume humanoïde. Tant que le sort qui l'atteint ne la tue pas instantanément, elle ne sera pas blessée par ce même sort une seconde fois! »
+L'ancêtre du Clan des Immortels Élus descendit précipitamment du ciel. Non seulement lui, mais les autres membres du clan atterrirent également en hâte. Lorsque le vieil homme vit que la silhouette humaine n'avait qu'un œil droit, il poussa un soupir de soulagement. Il regarda Wang Lin et cria: « Grand Céleste, veuillez revenir pour que je puisse activer le réseau céleste! C'est une bête de brume humanoïde. Tant que le sort qui l'atteint ne la tue pas instantanément, elle ne sera pas blessée par ce même sort une seconde fois! »
 
 Les yeux de Wang Lin brillèrent et il se retira rapidement. À l'instant même de son retrait, la bête de brume humanoïde à l'œil unique se précipita sur lui.
 
@@ -66,7 +66,7 @@ Dès l'apparition de la grande bête, ses yeux projetèrent une lueur spectrale 
 
 Le regard de Wang Lin était froid alors qu'il pointait son doigt vers la brume pétrifiée, libérant une immense quantité d'énergie originelle. La brume pétrifiée éclata en morceaux, qui eux-mêmes s'effondrèrent pour finalement se désintégrer complètement.
 
-Cette scène fit écarquiller les yeux des membres du Clan des Immortels Délaissés. C'était la première fois qu'ils voyaient une bête de brume humanoïde — qui nécessitait habituellement l'activation d'une formation pour être vaincue — détruite par un seul homme en si peu de temps.
+Cette scène fit écarquiller les yeux des membres du Clan des Immortels Élus. C'était la première fois qu'ils voyaient une bête de brume humanoïde — qui nécessitait habituellement l'activation d'une formation pour être vaincue — détruite par un seul homme en si peu de temps.
 
 Ce qui les choqua davantage encore, c'est que la créature n'avait presque eu aucune chance de résister. Elle fut constamment repoussée avant de finalement rencontrer sa fin.
 
@@ -82,7 +82,7 @@ Le vieil homme prit une profonde inspiration. Le respect dans ses yeux s'intensi
 
 L'expression de Wang Lin resta neutre alors qu'il suivait tranquillement derrière eux.
 
-Cette fois, aucun des membres du Clan des Immortels Délaissés n'osa les interrompre. Les yeux de l'homme corpulent s'illuminèrent et il se redressa. Il prit ensuite quelques respirations profondes avant de s'élancer à leur suite.
+Cette fois, aucun des membres du Clan des Immortels Élus n'osa les interrompre. Les yeux de l'homme corpulent s'illuminèrent et il se redressa. Il prit ensuite quelques respirations profondes avant de s'élancer à leur suite.
 
 Le vieil homme se retourna et cria avec colère: « Ta Shan, vas-tu continuer à être ingrat?! Le Grand Céleste a déjà fait preuve de clémence! »
 
@@ -128,4 +128,4 @@ Plusieurs niveaux d'escaliers descendaient dans l'entrée. À mesure qu'ils prog
 
 Au moment où ils touchèrent le fond, les yeux de Wang Lin se rétrécirent.
 
-Un autre monde s'étendait au bas de l'entrée. Cette zone mesurait environ mille pieds de large et un fourneau de 330 mètres de haut trônait en son centre. La surface du fourneau était couverte d'innombrables marques de tatouages gravées dans la matière.
+Un autre monde s'étendait au bas de l'entrée. Cette zone mesurait environ 330 mètres de large et un fourneau de 33 mètres de haut trônait en son centre. La surface du fourneau était couverte d'innombrables marques de tatouages gravées dans la matière.

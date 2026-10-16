@@ -8,7 +8,7 @@ slug: troisieme-etape
 ---
 L'expression de Qing Shui demeurait indifférente. Il ne daignait pas regarder le Dieu Sanglant, ses yeux fixant la silhouette démoniaque qui émergeait du corps de ce dernier avec une froideur glaciale.
 
-Son œil droit luttait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur neuf mètres et vola vers le Dieu Sanglant.
+Son œil droit luttait d'un éclat écarlate, exhalant une intention meurtrière. D'un seul pas, Qing Shui s'élança. Le brouillard noir dans sa main s'étendit soudainement sur plus de dix mètres et vola vers le Dieu Sanglant.
 
 Le visage du Dieu Sanglant était empreint de férocité alors qu'il pointait la lampe antique du doigt. Il n'était pas le seul à bouger: le démon ancien pointa également la lampe antique.
 
@@ -18,7 +18,7 @@ D'un geste du doigt du Dieu Sanglant, le feu à l'intérieur de la lampe antique
 
 Le démon ancien ressemblait presque trait pour trait à l'ombre démoniaque entourant le Dieu Sanglant. Cependant, son aura d'une puissance inimaginable surpassait de loin celle de cette ombre!
 
-C'était comme comparer un criquet et la pleine lune!
+C'était comme comparer une luciole et la pleine lune!
 
 « C'est son véritable corps! » Les yeux de Wang Lin se refroidirent tandis qu'il comprenait la situation. Ce qui se trouvait dans la lampe antique était le corps réel du démon ancien. Quant aux entités logées dans le Dieu Sanglant et Yao Yun, ce n'étaient que des clones!
 
@@ -76,7 +76,7 @@ Même le Dieu Sanglant, pourtant devenu fou, redressa instantanément la tête, 
 
 Dès que cette figure illusoire se manifesta, elle leva la main et fit un geste désinvolte vers le Dieu Sanglant. Ce dernier cracha immédiatement une grande quantité de sang, et le démon ancien fut expulsé de son corps. Le visage du démon ancien était pétrifié par le choc alors qu'il fixait la silhouette illusoire.
 
-« Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire Allheaven et perturbez la bataille contre le Système Stellaire de l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
+« Démon ancien, je me fiche que vous empruntiez la famille Yao pour restaurer votre corps; cela m'est égal. Cependant, si vous provoquez un massacre dans le Système Stellaire Allheaven et perturbez l'entrée dans le Système Stellaire de l'Alliance, alors je n'hésiterai pas à éteindre votre flamme démoniaque inextinguible! »
 
 La voix de cet être était calme, mais elle portait une aura capable de terrasser les cœurs. À cet instant, Wang Lin eut l'impression d'avoir remonté mille ans en arrière; il ressentait la même sensation qu'un mortel contemplant un puissant cultivateur!
 

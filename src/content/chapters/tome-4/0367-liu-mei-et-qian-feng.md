@@ -106,7 +106,7 @@ Liu Mei réfléchit un instant et répondit: « Cette disciple en a un vague sou
 
 Aucun signe de choc ne passa dans les yeux de Liu Mei. Elle se contenta d'acquiescer sans dire un mot.
 
-« La personne que j'avais préparée pour toi était Zhou Yi de la Secte des Cinq Éléments. Il possédait le domaine de la folie. Si tu avais pu marquer son cœur dao, tu aurais pu dévorer son domaine... Malheureusement, cet homme a disparu dans le Royaume Céleste. »
+« La personne que j'avais préparée pour toi était Zhou Yi de la Secte des Cinq Éléments. Il possédait le domaine de l'amour obsessionnel. Si tu avais pu marquer son cœur dao, tu aurais pu dévorer son domaine... Malheureusement, cet homme a disparu dans le Royaume Céleste. »
 
 Liu Mei resta pensive.
 
@@ -126,7 +126,7 @@ Le vieil homme leva la tête et regarda au loin. Ses yeux semblaient capables de
 
 Liu Mei se leva. Ses vêtements fins collaient à sa peau, révélant une silhouette aux courbes parfaites et exquises.
 
-Elle portait une robe intérieure rose pâle sous une robe blanche qui laissait entrevoir son cou gracieux. Les plis de sa jupe flottaient avec légèreté, tels des reflets de lune splendides sur le sol.
+Elle portait une robe intérieure rose pâle sous une robe blanche qui laissait entrevoir son cou gracieux. Les plis de sa jupe, traînant sur plus d'un mètre, flottaient avec légèreté, tels des reflets de lune splendides sur le sol.
 
 Trois mille mèches de ses cheveux étaient attachées par un ruban, tandis qu'une seule retombait devant sa poitrine. Sa peau était aussi blanche que la neige et le léger fard rouge qui colorait son visage lui donnait une aura charmante et délicate. Elle ressemblait à un magnifique papillon flottant dans le vent, tout en étant aussi froide que la glace...
 

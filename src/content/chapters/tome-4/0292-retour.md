@@ -32,11 +32,11 @@ Il ne faisait aucun doute que Sun Wen était un homme de plaisirs.
 
 Sun Wen frappa son sac de rangement et cinq morceaux de jade s'envolèrent. Il se mordit le doigt, laissa perler une goutte de sang sur les jades, puis les lança en avant.
 
-Soudain, les cinq morceaux de jade jaillirent, formant cinq rayons de lumière dorée qui convergèrent en un motif circulaire. Il entonna quelques incantations étranges et la lueur émise par les jades s'intensifia.
+Soudain, les cinq morceaux de jade jaillirent, formant cinq rayons de lumière scintillante qui convergèrent en un motif circulaire. Il entonna quelques incantations étranges et la lueur émise par les jades s'intensifia.
 
 Après quelques secondes, Sun Wen prit une profonde inspiration, le front perlant de sueur. Il sortit une fiole de jade, en sortit quelques pilules qu'il avala, tout en contemplant les jades avec un air fier.
 
-La lumière dorée des cinq morceaux de jade devint de plus en plus éclatante jusqu'à ce qu'un vortex apparaisse au centre. Le tourbillon dévora la lumière dorée et grandit encore.
+La lumière scintillante des cinq morceaux de jade devint de plus en plus éclatante jusqu'à ce qu'un vortex apparaisse au centre. Le tourbillon dévora la lumière scintillante et grandit encore.
 
 Peu de temps après, toute la lueur disparut, ne laissant que le vortex noir qui semblait totalement déplacé. Des vagues d'air glacial s'en échappaient. Si l'on regardait de plus près, on pouvait apercevoir des armes brisées, des matériaux épars et des cadavres flottant de l'autre côté.
 
@@ -70,13 +70,13 @@ Il n'avait plus du tout envie de faire le fier. Après avoir laissé quelques in
 
 À ses yeux, un cultivateur au stade de la Formation de l'Âme capable de sortir ainsi du champ de bataille étranger devait être quelqu'un de très célèbre.
 
-Lorsque Wang Lin réapparut, il se trouvait au sommet d'une montagne nommée Sky Piercer. Selon les cartes, c'était le plus haut sommet de ce pays.
+Lorsque Wang Lin réapparut, il se trouvait au sommet d'une montagne nommée Brise-Ciel. Selon les cartes, c'était le plus haut sommet de ce pays.
 
 Au sommet, Wang Lin commença à méditer. Après des années d'utilisation, il ne lui restait plus beaucoup de pierres spirituelles de haute qualité, lesquelles étaient très rares à Suzaku. Il décida de ne plus s'en servir pour ses déplacements et de les garder comme ultime recours.
 
 Ce voyage dans le champ de bataille étranger avait été extrêmement fructueux. Il semblait que lorsque son âme originelle s'était formée, son pouvoir de dévoreur d'âmes avait également évolué.
 
-Il se frotta doucement le front avec un léger sourire. Il se sentait très confiant pour ce voyage vers le royaume céleste, tant qu'il ne croisait pas de cultivateurs au stade avancé de la Formation de l'Âme ou ce génie de Xue Yu. Quant aux cultivateurs au stade intermédiaire de la Formation de l'Âme, il était absolument certain de pouvoir les vaincre.
+Il se frotta doucement le front avec un léger sourire. Il se sentait très confiant pour ce voyage vers le royaume céleste, tant qu'il ne croisait pas de cultivateurs au stade avancé de la Formation de l'Âme ou cette prodige de Xue Yu. Quant aux cultivateurs au stade intermédiaire de la Formation de l'Âme, il était absolument certain de pouvoir les vaincre.
 
 Même s'il devait affronter un expert au stade avancé, il serait capable de s'échapper en toute sécurité grâce à toutes les préparations qu'il avait entreprises.
 
@@ -86,7 +86,7 @@ Pour qu'un cultivateur puisse entrer dans le Royaume Céleste de la Pluie, il do
 
 Bien qu'ils ne fussent pas nombreux, leur présence était possible. Et même s'ils devaient restreindre leur puissance au stade de la Formation de l'Âme, ils n'étaient pas des adversaires que des cultivateurs ordinaires de ce stade pourraient affronter. C'est pourquoi Wang Lin s'était tant préparé.
 
-Quant aux légendaires cultivateurs Ascendants qui se montraient rarement, il était très peu probable qu'ils apparaissent dans le Royaume Céleste de la Pluie.
+Quant aux légendaires cultivateurs Ascendants qui se montraient rarement, il était très peu probable qu'ils apparaissent dans le Royaume Céleste de la Pluie, car il n'y en avait sans doute pas plus de cinq sur tout Suzaku.
 
 C'étaient là les déductions de Wang Lin, basées sur ses années de culture, sa connaissance de Suzaku et la difficulté d'atteindre le stade de la Formation de l'Âme. Bien que ce ne fût pas parfaitement exact, on n'en était pas loin.
 
@@ -100,7 +100,7 @@ Wang Lin prit une profonde inspiration. Les bêtes spirituelles et les démons �
 
 Quant aux trois mystérieuses gaines d'épée, elles avaient également été raffinées par son âme originelle.
 
-En plus de tout cela, parmi les dix instruments des anciens cultivateurs, il avait réussi à briser les sceaux de trois d'entre eux au cours des dernières années pour en faire ses propres outils.
+En plus de tout cela, parmi la douzaine d'instruments des anciens cultivateurs, il avait réussi à briser les sceaux de trois d'entre eux au cours des dernières années pour en faire ses propres outils.
 
 Dans son sac de rangement, il ne restait qu'une seule chose dont il ignorait encore la nature exacte: un parchemin obtenu auprès d'un cultivateur quelconque dans la Mer des Démons.
 

@@ -12,7 +12,7 @@ L'aspiration était si intense que ses vêtements et ses cheveux étaient violem
 
 Wang Lin resta en position du lotus pendant sept jours. Durant cette période, il s'habitua à l'intensité de l'aspiration en ce lieu. Ce jour-là, il ouvrit les yeux et fit un pas de plus.
 
-Il s'avança directement dans la zone située à moins de trois mètres de l'ouverture de la fissure.
+Il s'avança directement dans la zone située à moins de 3,3 mètres de l'ouverture de la fissure.
 
 Soudain, la puissante aspiration l'enveloppa. Le corps de Wang Lin bascula légèrement, comme si une paire de mains invisibles tentait de l'entraîner.
 
@@ -20,7 +20,7 @@ L'expression de Wang Lin était sombre alors qu'il s'asseyait lentement. Il ajus
 
 Le flux sanguin dans son corps était presque à l'arrêt. Si ce n'était pas pour l'énergie spirituelle céleste qui circulait en lui, de nombreuses parties de son corps seraient déjà gravement blessées.
 
-« Ce n'est toujours pas suffisant! » Songea Wang Lin un instant avant d'interrompre la circulation de l'énergie spirituelle céleste dans son corps. Dès qu'il le fit, il fut brusquement expulsé de la fissure.
+« Ce n'est toujours pas suffisant! » Songea Wang Lin un instant avant d'interrompre la circulation de l'énergie spirituelle céleste dans son corps. Dès qu'il le fit, il fut brusquement aspiré vers la fissure.
 
 Au moment où son corps atteignit le bord de la crevasse, Wang Lin frappa sa sacoche de stockage. Les sept épées s'envolèrent immédiatement pour former une formation. Elles chutèrent comme des flèches et se plantèrent dans le sol tout autour de lui.
 
@@ -30,9 +30,9 @@ Wang Lin s'assit lentement au cœur de la formation des Sept Étoiles. Il se tro
 
 L'âme originelle de Wang Lin avait déjà été saisie par la force de succion et semblait sur le point d'être arrachée. Cependant, à cet instant, la barrière apparue précédemment se manifesta de nouveau, piégeant son âme originelle à l'intérieur de son corps.
 
-Au-delà de son origine, même son intention de tuer semblait se condenser pour être progressivement aspirée. Cette intention de tuer, issue du Cœur de la Boucherie, se manifestait sous forme de lueurs rouges visibles sous la peau de Wang Lin.
+Outre son âme originelle, même son intention de tuer semblait se condenser pour être progressivement aspirée. Cette intention de tuer, issue du Cœur de la Boucherie, se manifestait sous forme de lignes rouges visibles sous la peau de Wang Lin.
 
-Après un long moment, les yeux de Wang Lin s'illuminèrent et il avança de trois mètres. Les sept épées bougèrent avec lui. La force d'aspiration augmenta à nouveau, et une nouvelle ligne rouge apparut sous sa peau.
+Après un long moment, les yeux de Wang Lin s'illuminèrent et il avança d'environ un mètre. Les sept épées bougèrent avec lui. La force d'aspiration augmenta à nouveau, et une nouvelle ligne rouge apparut sous sa peau.
 
 La puissance du vide encerclait les sept épées, provoquant des explosions de chants d'épée. Les esprits contenus dans les lames en sortirent pour fusionner; ils ne gardèrent pas de forme fixe, changeant constamment de silhouette pour résister à la succion.
 
@@ -46,13 +46,13 @@ Exactement autant que la quantité d'énergie de boucherie!
 
 Les lignes rouges sous la peau de Wang Lin vacillèrent, mais son esprit demeura calme alors qu'il prenait une profonde inspiration. À cet instant, il atteignit le bord de la fissure, mais cela ne suffisait pas encore à expulser l'intention de tuer de son corps; cela servait seulement à l'exposer.
 
-En contemplant le monde d'obscurité au-delà de la fissure, les yeux de Wang Lin s'illuminèrent. Cette lumière lui permit de distinguer, à deux cents mètres de profondeur, un rocher qui émergeait de la paroi. L'ancien réseau de transfert se trouvait sur cette roche.
+En contemplant le monde d'obscurité au-delà de la fissure, les yeux de Wang Lin s'illuminèrent. Cette lumière lui permit de distinguer, à soixante-six mètres de là, plus bas, un rocher qui émergeait de la paroi. L'ancien réseau de transfert se trouvait sur cette roche.
 
 Après quelques calculs silencieux, Wang Lin sauta hors de la fissure. Sa silhouette fendit l'air comme l'éclair alors qu'il chargeait droit vers le grand rocher.
 
 La formation des Sept Étoiles suivit Wang Lin lors de son ascension. La puissante force d'aspiration provenant du fond du puits s'intensifia instantanément, devenant folle.
 
-L'aspiration était ici des milliers de fois plus forte, et en un instant, certaines lignes rouges furent arrachées du corps de Wang Lin. Dès qu'elles quittèrent son corps, elles se mirent à onduler comme si elles luttaient pour leur survie. Cependant, elles se transformèrent aussitôt en une brume rouge qui disparut dans les profondeurs du puits.
+L'aspiration était ici incomparablement plus forte, et en un instant, certaines lignes rouges furent arrachées du corps de Wang Lin. Dès qu'elles quittèrent son corps, elles se mirent à onduler comme si elles luttaient pour leur survie. Cependant, elles se transformèrent aussitôt en une brume rouge qui disparut dans les profondeurs du puits.
 
 Simultanément, la formation des sept épées tourna frénétiquement autour de Wang Lin. La vitesse de rotation atteignit un paroxysme, créant un vortex puissant. Ce tourbillon généra une force de poussée qui ne cessa de croître.
 
@@ -120,7 +120,7 @@ Pourtant, Wang Lin n'était pas pressé. Il continua de comprendre calmement cet
 
 Cinq autres années s'envolèrent en un éclair. Il était là depuis quinze ans... et assis sur ce rocher depuis onze ans.
 
-Son âme originelle était désormais totalement dispersée, fusionnée avec la force d'aspiration.
+Son âme originelle n'était toujours pas entièrement dispersée et ne fusionnait pas encore pleinement avec la force d'aspiration.
 
 Au cours de la dix-septième année de son enfermement, il ouvrit les yeux. Son regard portait les traces de la vicissitude du temps tandis qu'il contemplait calmement l'obscurité.
 

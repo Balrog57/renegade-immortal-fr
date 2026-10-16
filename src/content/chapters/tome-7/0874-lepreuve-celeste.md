@@ -36,7 +36,7 @@ Même les pierres qui s'étaient transformées en cendres et s'étaient dissipé
 
 Après avoir observé ce spectacle, Wang Lin sembla atteindre une forme d'illumination.
 
-« La suivante sera la dernière des trois épreuves: l'épreuve céleste! » Maître Flamespark se tourna vers Lie Yunzi et dit: « Cher Camarade Cultivateur Li Yun, je vous en prie! »
+« La suivante sera la dernière des trois épreuves: l'épreuve céleste! » Maître Flamespark se tourna vers Lie Yunzi et dit: « Cher Camarade Cultivateur Lie Yunzi, je vous en prie! »
 
 Lie Yunzi leva sa main droite et tendit le bras vers le vide. Une fissure apparut, d'où jaillit un air glacial. Puis, Lie Yunzi plongea la main dans la brèche et en retira un parchemin. Ce parchemin était vieux et dégageait une aura antique.
 
@@ -76,7 +76,7 @@ Aussitôt, Zhan Konglie s'éveilla de son état mystérieux. À son réveil, son
 
 Peu de cultivateurs parmi l'assistance, surtout ceux engagés dans la compétition, perçurent le véritable secret. Tous avaient des interprétations divergentes sur la facilité avec laquelle Zhan Konglie avait réussi l'épreuve.
 
-Ensuite, une autre personne s'avança sur la place et fixa le parchemin. Cependant, parmi la douzaine de personnes qui suivirent, huit furent immédiatement renvoyées par Lie Yunzi vers le réseau de transfert. En conséquence, les cultivateurs environnants devinrent encore plus nerveux; ils ne comprenaient absolument pas comment Lie Yunzi jugeait cette troisième épreuve!
+Ensuite, une autre personne s'avança sur la place et fixa le parchemin. Cependant, parmi les dizaines de personnes qui suivirent, huit furent immédiatement renvoyées par Lie Yunzi vers le réseau de transfert. En conséquence, les cultivateurs environnants devinrent encore plus nerveux; ils ne comprenaient absolument pas comment Lie Yunzi jugeait cette troisième épreuve!
 
 Plus Wang Lin observait, plus il devenait sérieux. Tous les cultivateurs éliminés avaient réussi à diviser leur sens divin pour le projeter dans le parchemin. Il semblait que le parchemin possédait sa propre âme et sa propre manière de décider s'il acceptait ou non le sens divin d'un individu.
 
@@ -114,13 +114,13 @@ Xu Ting avait montré une intention meurtrière envers lui à plusieurs reprises
 
 Même Zhan Konglie en éprouva une pointe d'amertume. Il savait que même au sein de la famille, seuls environ dix membres étaient qualifiés pour voir le second parchemin. Quant au troisième, seuls le chef de famille et les deux anciens l'avaient vu; il n'y avait pas de quatrième personne.
 
-Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à Wang Lin. Ce dernier lui rendit son regard avec une expression glaciale. Il fit ensuite quelques pas vers la place. Initialement, un cultivateur nommé Zhao Yido devait passer le test, mais lorsqu'il vit Wang Lin s'avancer, il recula immédiatement, affichant un air embarrassé. Cet homme était celui-là même que Luo Su avait convoqué et que Wang Lin avait chassé d'un simple revers de manche après leur premier combat. En cet instant, il maudit sa malchance et se retira prestement.
+Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à Wang Lin. Ce dernier lui rendit son regard avec une expression glaciale. Il fit ensuite quelques pas vers la place. Initialement, un cultivateur nommé Zhao Tongdao devait passer le test, mais lorsqu'il vit Wang Lin s'avancer, il recula immédiatement, affichant un air embarrassé. Cet homme était celui-là même que Luo Su avait convoqué et que Wang Lin avait chassé d'un simple revers de manche après leur premier combat. En cet instant, il maudit sa malchance et se retira prestement.
 
 L'apparition de Wang Lin attira immédiatement l'attention générale. Après tout, lors de cette compétition pour le titre céleste, son nom avait ébranlé les esprits. Il avait combattu Luo Su à l'épreuve humaine et dévoré l'esprit du tonnerre à l'épreuve terrestre. Tous les cultivateurs attendaient avec impatience la performance de Xu Mu lors de la troisième épreuve!
 
 Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Hormis eux et les vieux monstres sur les tapis de prière représentant l'élite du Système Stellaire Allheaven, tous les autres regardaient avec un sourire.
 
-Seul Blood God laissa échapper un renflement froid. Après réflexion, il posa également son regard sur Wang Lin.
+Seul le Dieu de Sang laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 
 Maître Flamespark sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
 

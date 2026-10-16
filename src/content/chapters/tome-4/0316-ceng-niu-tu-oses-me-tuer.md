@@ -21,7 +21,7 @@ Wang Lin n'en eut qu'un aperçu furtif, et son cœur ne put s'empêcher de tress
 
 « Quel danger! »
 
-Il prit une profonde inspiration. En regardant autour de lui, il vit que Chi Hu ne cultivait plus, mais marchait, hébété, vers le cadavre. Cependant, après quelques mètres, il commença à lutter pour reprendre ses esprits, révélant un visage terrifié.
+Il prit une profonde inspiration. En regardant autour de lui, il vit que Chi Hu ne cultivait plus, mais marchait, hébété, vers le cadavre. Cependant, après une dizaine de mètres, il commença à lutter pour reprendre ses esprits, révélant un visage terrifié.
 
 Même Papillon Rouge afficha une expression de confusion, mais elle restait une femme et son regard s'éclaircit rapidement. Wang Lin, les yeux tremblants, ne quitta pas Papillon Rouge du regard.
 
@@ -85,7 +85,7 @@ L'effondrement des environs s'accéléra à mesure que les failles spatiales se 
 
 Le corps de Wang Lin fonça vers Papillon Rouge comme un éclair. Chi Hu vit la scène et ouvrit la bouche, mais resta muet. S'échapper vivant était sa priorité absolue.
 
-Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à 90 mètres de Papillon Rouge. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
+Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à moins de cent mètres de Papillon Rouge. Le visage de cette dernière changea brusquement. Bien que sa culture se fût partiellement rétablie, elle avait perdu trop de trésors magiques et ses blessures internes l'empêchaient de maintenir la puissance d'une cultivatrice au stade avancé de la Formation de l'Âme. On pouvait dire qu'elle traversait là le point le plus bas de son existence. Elle ne put que hurler: « Ceng Niu, si tu me tues, Suzaku ne te pardonnera jamais! »
 
 « Haha, Papillon Rouge, un génie comme toi ne devrait pas utiliser de telles menaces. » Wang Lin rit en frappant son sac de rangement, faisant apparaître le drapeau de restriction. Il agita l'étendard et un gaz de restriction s'en échappa, s'enroulant autour de lui comme des dragons maléfiques.
 
@@ -101,7 +101,7 @@ Une immense faille spatiale fut déchirée par la puissance de l'arme.
 
 *Whoosh!*
 
-Wang Lin franchit les 90 mètres d'un bond, pointant sa lance de restriction vers la tête de Papillon Rouge.
+Wang Lin franchit les 99 mètres d'un bond, pointant sa lance de restriction vers la tête de Papillon Rouge.
 
 « Ceng Niu, tu es devenu fou?! Cet endroit s'effondre! Si tu ne t'échappes pas maintenant, tu ne sortiras jamais d'ici! » L'expression de Papillon Rouge se décomposa. Elle sortit précipitamment une épée volante blanche pour parer l'attaque.
 

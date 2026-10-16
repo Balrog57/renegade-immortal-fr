@@ -30,7 +30,7 @@ Pa! Pa!
 
 Les coups de fouet incessants rendirent la bête spirituelle furieuse, mais elle ignora les assauts pour poursuivre sa voracité. La bête spirituelle traversa le corps du géant de glace.
 
-Le corps du géant trembla sous l'impact et de multiples fissures apparurent. Des fragments de glace se détachèrent et le géant rétrécit encore une fois; il ne mesurait plus que vingt pieds de haut, et la glace autour de son épaule droite commença à fondre.
+Le corps du géant trembla sous l'impact et de multiples fissures apparurent. Des fragments de glace se détachèrent et le géant rétrécit encore une fois; il ne mesurait plus que 6,6 mètres de haut, et la glace autour de son épaule droite commença à fondre.
 
 La bête spirituelle s'apprêtait à se retourner pour une nouvelle attaque quand Papillon Rouge ouvrit les yeux. La malédiction fut refoulée, ne laissant qu'une unique ligne noire sur son front.
 
@@ -50,9 +50,9 @@ Poursuite!
 
 Le regard de Wang Lin devint glacial; il leva son épée et la traqua!
 
-Le visage de Papillon Rouge était sombre. La bataille d'aujourd'hui était bien plus éprouvante que celle qu'ils avaient menée dans le Royaume Céleste. Elle n'aurait jamais imaginé que ce Ceng Niu aurait acquis une telle puissance en seulement une décennie.
+Le visage de Papillon Rouge était sombre. La bataille d'aujourd'hui était bien plus éprouvante que celle qu'ils avaient menée dans le Royaume Céleste. Elle n'aurait jamais imaginé que ce Ceng Niu aurait acquis une telle puissance en seulement quelques décennies.
 
-En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pour l'éliminer, Ceng Niu ne pouvait que fuir, incapable de lui opposer la moindre résistance. Plus tard, elle n'avait été contrainte que parce qu'il possédait un trésor capable d'effondrer un Fragment Céleste. Elle n'avait jamais considéré Wang Lin comme un adversaire de taille.
+En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pour l'éliminer, Ceng Niu ne pouvait que fuir, incapable de lui opposer la moindre résistance. Plus tard, elle n'avait été contrainte que parce qu'il possédait un trésor capable de faire s'effondrer le Royaume Céleste. Elle n'avait jamais considéré Wang Lin comme un adversaire de taille.
 
 Dans son cœur, ce Ceng Niu n'était pas son égal. Il était faible; un insecte, une simple pierre de passage pour les puissants.
 
@@ -72,7 +72,7 @@ Mais à présent, après tant d'échanges, leur combat atteignait son point de r
 
 Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si Ceng Niu avait eu le pouvoir de la contrôler et que la bête continuait ses assauts, elle était certaine qu'elle aurait perdu sans le Flagellant des Âmes.
 
-À présent, elle n'avait d'autre choix que de fuir. Le Dieu de Glace était extrêmement affaibli. Suite aux dommages subis, il ne mesurait plus que vingt pieds de haut. S'il rétrécissait davantage, il s'effondrerait totalement.
+À présent, elle n'avait d'autre choix que de fuir. Le Dieu de Glace était extrêmement affaibli. Suite aux dommages subis, il ne mesurait plus que 6,6 mètres de haut. S'il rétrécissait davantage, il s'effondrerait totalement.
 
 Elle n'avait vécu une telle fuite que deux fois dans sa vie: la première fois lorsqu'elle avait été acculée par Wang Lin, et la seconde, c'était maintenant.
 
@@ -120,7 +120,7 @@ La silhouette de Li Muwan apparut dans l'orbe, fixant Wang Lin de ses yeux empli
 
 « Haine! » Teng Huayuan déchira l'orbe de lumière et en sortit. Il tenait d'innombrables âmes entre ses mains; les âmes de la famille Wang hurlaient leur agonie.
 
-« Reconnaissance! » Les trois générations de Ceng Daniu apparurent, fixant Wang Lin avec confusion. Il ouvrit la bouche pour parler, mais aucun son ne put sortir.
+« Reconnaissance! » Les trois générations de Da Niu apparurent, fixant Wang Lin avec confusion. Il ouvrit la bouche pour parler, mais aucun son ne put sortir.
 
 Le corps de Wang Lin s'immobilisa et il s'assit en tailleur. Son âme originelle jaillit et proclama: « Sous le cycle de la réincarnation... Domaine de la vie et de la mort! »
 
@@ -134,7 +134,7 @@ Une lame multicolore apparut devant elle.
 
 « Tranchez! »
 
-Les parents de Wang Lin furent fauchés par l'épée, suivis peu après par Li Muwan. La famille de Da Niu fut exterminée par Teng Huayuan, qui disparut lui-même après un coup de lame.
+Les parents de Wang Lin furent fauchés par l'épée, suivis peu après par Li Muwan. Da Niu et son fils furent abattus d'une paume par Teng Huayuan, qui disparut lui-même après un coup de lame.
 
 « Impitoyable! » Papillon Rouge et son avatar semblaient épuisés. Elle pointa alors Wang Lin du doigt.
 
@@ -142,7 +142,7 @@ L'âme originelle de Wang Lin vacilla et ses yeux s'assombrirent. Sa main droite
 
 Wang Lin murmura doucement: « Même une personne impitoyable ne peut échapper au cycle de la réincarnation... Comment les émotions du monde pourraient-elles être si aisément tranchées ou rejetées? Bien que l'épée de l'intelligence soit puissante, elle ne peut percer le cycle de la réincarnation! »
 
-Un gaz noir et blanc fusionna pour engendrer la brume grise du cycle de la réincarnation. Cette brume s'échappa soudainement du parchemin sous la forme d'un pouce gigantesque et s'abattit sur l'avatar de Papillon Rouge.
+Un gaz noir et blanc fusionna pour engendrer la brume grise du cycle de la réincarnation. Cette brume s'échappa soudainement du parchemin sous la forme d'un doigt gigantesque et s'abattit sur l'avatar de Papillon Rouge.
 
 Le corps de l'avatar trembla. Elle secoua la tête, esquissa un sourire amer et dit: « Si j'avais pu atteindre le stade de la Transformation de l'Âme, même le cycle de la réincarnation serait soumis à l'impitoyabilité. Si le cycle de la réincarnation des cieux n'était pas impitoyable, alors il ne s'agirait plus du cycle de la réincarnation des cieux... Quel dommage... »
 

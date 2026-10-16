@@ -20,7 +20,7 @@ D'un seul pas, Wang Lin apparut devant l'homme en un instant. Sa main toucha la 
 
 L'homme corpulent recula de dizaines de pas. Bien qu'aucune blessure ne fût visible, son intérieur était comme en proie à une tempête. Cependant, grâce aux tatouages, la situation n'était pas critique; il se rétablirait après un court repos.
 
-L'homme afficha un visage féroce, poussa un rugissement et frappa sa propre poitrine. Un grondement sourd résonna dans la zone. Simultanément, les tatouages sur son corps commencèrent à s'agiter frénétiquement et s'extirpèrent de sa peau les uns après les autres. Il se retrouva entouré d'innombrables motifs, offrant un spectacle saisissant.
+L'homme afficha un visage féroce, poussa un rugissement et frappa sa propre poitrine. Un grondement sourd résonna dans la zone. Simultanément, les tatouages sur son corps commencèrent à s'agiter frénétiquement et s'extirpèrent de sa peau les uns après les autres. Il se retrouva entouré, dans un rayon d'environ 33 mètres, d'innombrables motifs, offrant un spectacle saisissant.
 
 L'homme chargea soudainement. Les tatouages qui l'entouraient le suivirent dans sa course vers Wang Lin.
 
@@ -36,7 +36,7 @@ Le corps de l'homme fut projeté en arrière dans un fracas retentissant. Il cra
 
 L'ancêtre du Clan des Immortels Élus devint anxieux et s'exclama rapidement: « Haut Céleste, je vous en prie, ne soyez pas en colère et laissez Ta Shan vivre! »
 
-« Inutile! » L'homme corpulent retomba au sol et continua de reculer. Il ne parvint à se stabiliser qu'après avoir parcouru une centaine de pieds. Il poussa un rugissement, ses deux mains formant un sceau, avant de frapper sa poitrine avec acharnement.
+« Inutile! » L'homme corpulent retomba au sol et continua de reculer. Il ne parvint à se stabiliser qu'après avoir parcouru une trentaine de mètres. Il poussa un rugissement, ses deux mains formant un sceau, avant de frapper sa poitrine avec acharnement.
 
 Tous les tatouages autour de lui se mirent à bouger étrangement et furent aspirés rapidement dans son corps. Cependant, ils ne retournèrent pas sur sa peau, mais s'en gonflèrent. Bientôt, ces tatouages formèrent une armure noire autour de lui.
 
@@ -54,7 +54,7 @@ En chargeant, il projeta son poing droit. Ce coup était plus puissant que les d
 
 Lorsque le coup fut lancé, il créa un bang sonique et une aura terrifiante fonça vers Wang Lin. Parallèlement, le gaz noir de l'illusion prit la forme d'un crâne qui esquissa un sourire sinistre, tentant d'engloutir Wang Lin.
 
-L'expression de Wang Lin resta sereine alors qu'il fixait calmement l'homme. Il ouvrit la bouche et un grain de sable s'en échappa. Ce dernier se transforma en un sceau fragmentaire de mille pieds de large qui s'abattit sur l'homme.
+L'expression de Wang Lin resta sereine alors qu'il fixait calmement l'homme. Il ouvrit la bouche et un grain de sable s'en échappa. Ce dernier se transforma en un sceau fragmentaire de 330 mètres de large qui s'abattit sur l'homme.
 
 C'était la première fois que le sceau fragmentaire céleste apparaissait hors du Royaume Céleste. À son apparition, une riche énergie spirituelle céleste emplit l'air. En voyant cela, le vieillard s'agenouilla et commença à vénérer le fragment.
 
@@ -82,7 +82,7 @@ La condensation fut extrêmement rapide et, en un instant, les particules de bru
 
 La brume finit par se condenser et plus de cent bêtes noires féroces apparurent dans le ciel. Ces créatures avaient toutes des apparences distinctes et dégageaient une aura lugubre. Bientôt, de bas rugissements capables de transpercer l'âme retentirent.
 
-L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec de plus de 33 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun prenne position et nettoie cette brume en moins de trente minutes! Ne laissez aucune bête de brume de forme humaine apparaître! »
+L'expression de l'ancêtre du Clan des Immortels Élus devint sombre alors qu'il pressait sa main entre ses sourcils. Un grand pot à bec d'environ 3,3 mètres apparut. Il s'élança dans le ciel et cria: « Que chacun prenne position et nettoie cette brume en moins de quinze minutes! Ne laissez aucune bête de brume de forme humaine apparaître! »
 
 Son corps vacilla et il se précipita aussitôt vers une bête qui venait de surgir. Sa main frappa le pot, et une puissante force d'aspiration jaillit de l'ouverture.
 

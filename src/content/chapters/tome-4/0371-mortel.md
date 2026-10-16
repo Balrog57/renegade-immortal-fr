@@ -12,7 +12,7 @@ Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Gue
 
 L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de tout le continent Suzaku en dessous du stade de la Transformation de l'Âme.
 
-Simultanément, le Mont Suzaku diffusa un message indiquant que Papillon Rouge entrait en culture de méditation pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Papillon Rouge avait connu une percée lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
+Simultanément, le Mont Suzaku diffusa un message indiquant que Papillon Rouge entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Papillon Rouge avait connu une percée lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
 
 Cependant, au fil du temps, les gens découvrirent que Ceng Niu avait disparu.
 
@@ -88,7 +88,7 @@ L'homme pressa le bras du garçon. Après un instant, il esquissa un sourire: «
 
 Le jeune homme réfléchit, puis acquiesça.
 
-En voyant le jeune homme dans cet état, l'homme d'âge moyen soupira. Il l'avait rencontré un mois auparavant alors qu'il allait ramasser du bois en forêt. Le garçon était à l'agonie lorsqu'il l'avait trouvé. Étant médecin et père, il avait décidé de l'accueillir pour le soigner.
+En voyant le jeune homme dans cet état, l'homme d'âge moyen soupira. Il l'avait rencontré un mois auparavant alors qu'il cueillait des plantes médicinales en montagne. Le garçon était à l'agonie lorsqu'il l'avait trouvé. Étant médecin et père, il avait décidé de l'accueillir pour le soigner.
 
 Les blessures étaient terribles. Même ses organes internes étaient déplacés et endommagés. L'homme n'avait aucune certitude de pouvoir le guérir; il s'en en remettait au destin. Pourtant, le corps du jeune homme était étrange. Après dix jours, son état s'améliorait et il finit par se réveiller.
 

@@ -36,7 +36,7 @@ Il sortit une fiole de jade et y enferma le sang. En cet instant, il sentait com
 
 Après avoir rapidement franchi la frontière de Huo Fen, ils purent apercevoir la montagne où l'Union de Huo Fen avait initialement établi sa base. Les quatre bannières de Huo Fen flottaient haut sur le sommet, signifiant que cette zone appartenait à l'Union.
 
-Arrivés sur place, Wang Lin s'arrêta. Après une courte réflexion, il dit: « Je vais vous raccompagner. »
+Arrivés sur place, Wang Lin s'arrêta. Après une courte réflexion, il dit: « Je ne vous accompagnerai pas plus loin. »
 
 Li Muwan se mordit la lèvre inférieure en regardant derrière eux et répondit: « Et si vous me suiviez à la Secte Lou He pour vous y cacher un moment? »
 
@@ -88,7 +88,7 @@ L'expression de Yang Sen changea. Il eut un rictus et s'apprêtait à répliquer
 
 Yang Sen et Feng Luan échangèrent un regard avant de fixer la fleur de prunier dorée sur la tunique du vieil homme.
 
-Le vieil homme fronça les sourcils, impatient. D'un revers de main, il repoussa les trois individus. Un vent puissant les projeta au loin; même les Âmes Naissantes en leur sein semblèrent sur le point d'être expulsées de leurs corps.
+Le vieil homme fronça les sourcils, impatient. D'un revers de main, il repoussa les trois individus. Un vent puissant les projeta à plus d'un millier de kilomètres; même les Âmes Naissantes en leur sein semblèrent sur le point d'être expulsées de leurs corps.
 
 Une fois stabilisés, les visages des trois compères devinrent sombres et Yang Sen demanda: « Quel est votre niveau de culture? »
 
@@ -110,6 +110,6 @@ Les trois se regardèrent, chacun sentant le poids qui pesait sur le cœur de l'
 
 Ayant senti plus tôt l'aura d'un étranger au stade de l'Âme Naissante, ils étaient venus vérifier; ils ne s'attendaient cependant pas à tomber sur un être aussi redoutable.
 
-Le vieil homme errat un moment dans la zone avant de laisser échapper un renflement et de déployer son sens divin. Cette fois, il ne laisserait rien passer. Il scruta soigneusement la région, du sol au ciel.
+Le vieil homme errat un moment dans la zone avant de laisser échapper un reniflement et de déployer son sens divin. Cette fois, il ne laisserait rien passer. Il scruta soigneusement la région, du sol au ciel.
 
 Le sens divin du vieil homme balaya lentement la zone. Il commença à s'étendre de plus en plus, affectant jusqu'à l'Union de Huo Fen. Mais le vieil homme n'en eut cure; il balaya la zone à plusieurs reprises sans pour autant rien trouver.

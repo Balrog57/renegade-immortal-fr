@@ -22,7 +22,7 @@ Les disciples de la Secte de l'Épée Da Lou battirent également en retraite pr
 
 « Compagnon Chen Long, je n'ai même pas la capacité de me sauver moi-même, alors ne comptez pas sur moi! » répondit Wang Lin en secouant la tête avant de disparaître instantanément dans le brouillard. L'épée céleste de Zhou Yi tournait autour de son corps.
 
-« Toi! » Chen Long eut une expression sombre et poussa un soupir. Le Secte du Destin Céleste et la Secte de l'Épée Da Lou étaient comme l'eau et le feu. Il comprenait pourquoi Wang Lin refusait d'aider.
+« Toi! » Chen Long eut une expression sombre et poussa un soupir. La Secte du Destin Céleste et la Secte de l'Épée Da Lou étaient comme l'eau et le feu. Il comprenait pourquoi Wang Lin refusait d'aider.
 
 « Je m'en veux d'avoir tant hésité. Si j'avais décidé plus tôt de me rebeller contre Cupidité, nous n'en serions pas là si nous avions utilisé l'énergie d'épée de notre Maître! » Les yeux de Chen Long étaient empreints de regret.
 
@@ -72,7 +72,7 @@ Au moment où Wang Lin se rapprocha, l'homme ne sentit qu'une brise. Mais cette 
 
 Wang Lin retint la tête, l'énergie d'épée enfermée à l'intérieur. Après avoir rangé l'épée précieuse, il chargea vers sa cible suivante.
 
-Si She contrôlait son épée précieuse, mais il était frustré et le désespoir se lisait dans ses yeux. Il ouvrit grand les paupières, mais ne pouvait voir qu'à sept pieds devant lui. Au-delà, ce n'était que brouillard violet.
+Si She contrôlait son épée précieuse, mais il était frustré et le désespoir se lisait dans ses yeux. Il ouvrit grand les paupières, mais ne pouvait voir qu'à 2,3 mètres devant lui. Au-delà, ce n'était que brouillard violet.
 
 Soudain, sa vue se troubla, comme si une silhouette venait de passer devant lui.
 
@@ -106,7 +106,7 @@ Zhou Yi, témoin de la scène, vit son admiration pour Wang Lin croître. Ce der
 
 Il ignorait que comparé à l'époque où Wang Lin était dans la Mer des Démons, lorsqu'il avait saisi la chance de s'emparer du corps du dragon avant qu'il ne tombe dans le gouffre, cette prouesse n'était rien.
 
-Le brouillard se contractait toujours plus vite; il ne mesurait plus même mille pieds de large.
+Le brouillard se contractait toujours plus vite; il ne mesurait plus même 330 mètres de large.
 
 À l'extérieur du brouillard violet, l'expression de Chen Long était extrêmement sombre. L'énergie d'épée de Ling Tianhou brillait intensément dans sa main. D'innombrables bêtes moustiques l'entouraient et l'assaillaient.
 

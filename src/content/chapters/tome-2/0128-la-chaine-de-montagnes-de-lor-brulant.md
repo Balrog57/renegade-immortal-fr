@@ -8,7 +8,7 @@ slug: la-chaine-de-montagnes-de-lor-brulant
 ---
 Wang Lin agita sa main droite pour ouvrir la porte de pierre et sortit.
 
-À cet instant, le ciel était d’un bleu limpide sur dix mille kilomètres à la ronde. Son corps s'élança et il vola vers un volcan voisin. Dès qu'il eut quitté l'espace du rêve, son sens divin détecta une fluctuation d'élément bois à l'intérieur du cratère.
+À cet instant, le ciel était d’un bleu limpide à perte de vue. Son corps s'élança et il vola vers un volcan voisin. Dès qu'il eut quitté l'espace du rêve, son sens divin détecta une fluctuation d'élément bois à l'intérieur du cratère.
 
 Peu de temps après, Wang Lin arriva à l'embouchure du volcan et scruta l'intérieur. Des vagues de chaleur s'échappaient des profondeurs. Les yeux de Wang Lin s'illuminèrent et il sauta sans la moindre hésitation, utilisant une technique d'attraction pour contrôler sa descente.
 
@@ -16,7 +16,7 @@ La Chaîne de Montagnes de l'Or Brûlant était une cordillère célèbre dans H
 
 Ce fruit est un composant essentiel à la fabrication de la Pilule d'Harmonie Spirituelle. L'énergie spirituelle de ce pays est saturée de l'élément feu; l'absorber sur une longue période nuit gravement au corps des cultivateurs. Ainsi, comme la Pilule d'Harmonie Spirituelle permet de réguler l'énergie spirituelle interne, elle est extrêmement prisée par les cultivateurs locaux.
 
-On peut dire que cette pilule est la plus consommée à Huo Fen. Il existe de nombreuses recettes pour la fabriquer, chacune ayant des degrés d'efficacité variables, mais la plus populaire est celle qui utilise le Fruit de l'Or Brûlant.
+On peut dire que cette pilule est l'une des plus consommées à Huo Fen. Il existe de nombreuses recettes pour la fabriquer, chacune ayant des degrés d'efficacité variables, mais la plus populaire est celle qui utilise le Fruit de l'Or Brûlant.
 
 Ce fruit ne pousse que dans l'embouchure des volcans, et seulement au sein d'un massif volcanique, jamais de manière isolée.
 
@@ -46,7 +46,7 @@ Le jeune homme nommé Zhou déglutit difficilement en fixant la vigne sur l'épa
 
 Si l'on prélève trop de fruits, la racine meurt. Et si la racine meurt, plus aucun Fruit de l'Or Brûlant n'apparaîtra dans ce volcan.
 
-Mais cet individu venait d'arracher la racine entière! Ignorait-il que la racine mourrait deux heures après avoir été déterrée? Furieux de voir que Wang Lin n'était qu'au stade intermédiaire de l'Établissement des Fondations et qu'il osait les ignorer pour emporter la racine, il hurla: « Arrête! Peu importe ta secte, tu vas payer le prix pour avoir détruit la racine du Fruit de l'Or Brûlant! »
+Mais cet individu venait d'arracher la racine entière! Ignorait-il que la racine mourrait quatre heures après avoir été déterrée? Furieux de voir que Wang Lin n'était qu'au stade intermédiaire de l'Établissement des Fondations et qu'il osait les ignorer pour emporter la racine, il hurla: « Arrête! Peu importe ta secte, tu vas payer le prix pour avoir détruit la racine du Fruit de l'Or Brûlant! »
 
 Sur ce, il frappa le cercueil derrière lui et se redressa brusquement. Le couvercle grinça en glissant vers la droite, laissant sortir une main noire. Des volutes de gaz noir s'échappèrent de ses doigts et une odeur de décomposition commença immédiatement à se propager.
 
@@ -64,9 +64,9 @@ Puis, Wang Lin leva nonchalamment la tête pour observer les trois marionnettes 
 
 Seule la marionnette de Zhou Gang ne subit aucun dommage. Elle s'interrompit brusquement dans sa charge. Ses yeux sans émotion brillèrent d'une lueur dorée alors qu'elle fixait Wang Lin avec une expression d'horreur pure. Elle recula précipitamment, tentant de s'enfuir.
 
-Wang Lin ricana intérieurement: « Fais un pas de plus et tu mourras! »
+Wang Lin ricana : « Fais un pas de plus et tu mourras! »
 
-Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Cher compagnon de culture, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas irréparable! »
+Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Cher compagnon de culture, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas impulsif! »
 
 Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice pénétrer son corps. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
 
@@ -90,10 +90,10 @@ Le corps parfait pour un cultivateur de la Formation de l'Âme est celui d'un au
 
 Cependant, la Secte des Cadavres peut résoudre ce problème si le prix est payé. Le corps sera celui d'un expert de la Formation de l'Âme, mais peu importe vos recherches, vous ne saurez jamais d'où il provient.
 
-C'est le plus grand secret de la Secte des Cadavres, et nul n'en connaît la vérité. Une rumeur prétend même que la secte est capable de fournir aux plus grands experts du seul pays de rang 6 des corps parfaitement adaptés.
+C'est le plus grand secret de la Secte des Cadavres, et nul n'en connaît la vérité. Une rumeur prétend même que la secte est capable de fournir aux plus grands experts du seul pays de rang 6, Suzaku, des corps parfaitement adaptés.
 
 C'est une organisation puissante et mystérieuse. Les chefs de chaque sous-secte savent seulement que la secte principale réside dans un pays de culture de rang 5.
 
 Mais le véritable quartier général se trouve-t-il réellement dans un pays de rang 5? Personne n'a la réponse.
 
-Une chose est certaine: personne n'oserait s'en prendre à la Secte des Cadavres dans les pays de rang 4 ou supérieur. Quant aux pays de rang 3 ou moins, tant que la secte n'est pas anéantie, elle ne s'en soucie guère. Après tout, ces régions ne sont pour elle qu'un élevage de corps de bas niveau et un terrain d'affaires lucratif.
+Une chose est certaine: personne n'oserait s'en prendre à la Secte des Cadavres dans les pays de rang 4 ou supérieur. Quant aux pays de rang 3 ou moins, tant qu'on ne touche pas à ses fondements et qu'on ne nuit pas à ses récoltes, elle ne s'en soucie guère. Après tout, ces régions ne sont pour elle qu'un élevage de corps de bas niveau et un terrain d'affaires lucratif.

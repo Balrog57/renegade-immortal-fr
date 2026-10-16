@@ -70,7 +70,7 @@ Durant cette période, personne n'avait quitté le Cimetière des Immortels. Le 
 
 Quant aux corps de Xu Luo et Yun Meng, ils furent également emportés par le Clan des Immortels Délaissés pour d'autres usages.
 
-Qiu Siping ne put résister à la transformation d'un shaman aux six feuilles. Après tout, un tel shaman équivalait à un cultivateur de la Formation de l'Âme. Il finit par devenir une marionnette.
+Qiu Siping ne put résister à l'emprise d'un shaman aux six feuilles. Après tout, un tel shaman équivalait à un cultivateur de la Formation de l'Âme de stade avancé. Il finit par devenir une marionnette.
 
 Hormis la femme au voile blanc et son serviteur, dont les emplacements étaient inconnus, Wang Lin était le seul survivant de leur groupe.
 
@@ -124,7 +124,7 @@ Ses yeux devinrent encore plus froids alors qu'il sortait un second drapeau de r
 
 Le vieil homme observa le drapeau et secoua la tête. « Tu possèdes vraiment une profusion de trésors. Je parie que tu es le disciple direct d'une grande secte là-haut. On sent la pression des cieux sur cet objet. Je crois qu'une fois que tu auras posé cette ultime restriction, elle invoquera ce que vous, les cultivateurs, appelez la "rétribution divine". Si nous étions à la surface, cela pourrait me blesser, mais ceci est le Cimetière des Immortels, un monde différent. La rétribution divine ne peut nous atteindre ici. Tu es libre d'essayer. » Sur ces mots, le vieillard tendit de nouveau la main.
 
-Il ne bougea pas plus vite cette fois-ci, mais il déploya une puissance bien supérieure. Des craquements retentirent tout autour de Wang Lin et des failles spatiales apparurent.
+Il ne bougea pas plus vite cette fois-ci, mais il déploya une puissance bien supérieure. Des craquements retentirent dans un rayon de 330 mètres autour de Wang Lin et des failles spatiales apparurent.
 
 C'était comme si la zone entière était sur le point de s'effondrer.
 

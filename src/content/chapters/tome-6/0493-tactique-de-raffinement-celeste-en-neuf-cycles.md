@@ -16,7 +16,7 @@ Wang Lin accepta le jade, puis il regarda la Quatrième Sœur et hocha la tête 
 
 À moins que ce ne soit absolument nécessaire, il ne voulait pas que leur relation se brise totalement. Après tout, elle était au stade avancé de la Transformation de l'Âme et n'avait manifesté aucune malice envers lui durant tout ce temps. Même il y a trois mois, elle s'était contentée de le sceller avec une restriction sans tenter de lui nuire.
 
-Quant à Bai Wei, il esquissa un léger sourire et dit: « Septième Frère, il semble que la position de véritable disciple de la Division Pourpre te revienne assurément. Ton frère aîné lèvera un toast en ton honneur pour te féliciter d'avance! » Il prit son coupe de vin et en but une gorgée.
+Quant à Bai Wei, il esquissa un léger sourire et dit: « Septième Frère, il semble que la position de véritable disciple de la Division Pourpre te revienne assurément. Ton frère aîné lèvera un toast en ton honneur pour te féliciter d'avance! » Il prit sa coupe de vin et en but une gorgée.
 
 Wang Lin sourit discrètement, puis il prit également sa coupe et but à son tour. Il se leva, joignit les mains et dit: « J'ai encore quelques affaires à régler. Nous nous reverrons demain. »
 
@@ -38,7 +38,7 @@ Après trois mois d'absence, le Pavillon de la Forêt Pourpre était resté inch
 
 Il s'agissait du jade que la Quatrième Sœur lui avait donné, contenant le sort et la restriction.
 
-Une restriction capable de déplacer des dizaines de milliers de kilomètres était une technique salvatrice. Dès qu'il l'avait vue, il avait su qu'il la voulait. Il examina le jade, puis fronça les sourcils.
+Une restriction capable de déplacer des centaines de milliers de kilomètres était une technique salvatrice. Dès qu'il l'avait vue, il avait su qu'il la voulait. Il examina le jade, puis fronça les sourcils.
 
 Peu après, il retira son Sens Divin et afficha une expression pensive.
 
@@ -54,7 +54,7 @@ Wang Lin réfléchit un instant, se leva et fit un pas en avant. À cet instant,
 
 Dès l'apparition de cette lueur, Wang Lin eut la sensation d'être entouré d'eau en mouvement, comme s'il venait de sombrer dans l'océan. Puis, l'espace autour de lui commença à se solidifier.
 
-Il mémorisa soigneusement cette sensation, ses yeux s'illuminèrent et il fit un pas en avant. Normalement, ce pas lui aurait permis de parcourir plusieurs milliers de kilomètres.
+Il mémorisa soigneusement cette sensation, ses yeux s'illuminèrent et il fit un pas en avant. Normalement, ce pas lui aurait permis de parcourir plus d'un millier de kilomètres.
 
 Mais cette fois, cela ne fit que déplacer son corps d'un seul pas.
 
@@ -62,7 +62,7 @@ Les yeux de Wang Lin brillèrent et il fit un autre pas. Il ne s'arrêta pas et 
 
 Au total, sept pas!
 
-Ces sept pas firent flotter Wang Lin encore plus haut. Lorsqu'il se trouva à environ trente centimètres du sol, la lumière argentée autour de lui vacilla puis disparut.
+Ces sept pas firent flotter Wang Lin encore plus haut. Lorsqu'il se trouva à plus de trois mètres du sol, la lumière argentée autour de lui vacilla puis disparut.
 
 À l'instant où la lueur s'éteignit, Wang Lin sentit une puissante force de déchirure se rassembler autour de lui, venant de toutes les directions. À ce moment précis, son corps échappa à son contrôle et disparut.
 
@@ -74,7 +74,7 @@ Il afficha un air exalté en marmonnant: « La puissance de cette grande restric
 
 « Je crains que seuls les cultivateurs Ascendants ne puissent accomplir une téléportation d'une telle distance. »
 
-À cet instant, le cœur de Wang Lin était léger. Il leva la tête vers la lune avant de laisser échapper un rire. D'un mouvement sec, il secoua tout son corps pour faire disparaître la poussière sans laisser de trace.
+À cet instant, le cœur de Wang Lin était léger. Il leva la tête vers la lune avant de laisser échapper un long cri. D'un mouvement sec, il secoua tout son corps pour faire disparaître la poussière sans laisser de trace.
 
 Sous la clarté lunaire, la silhouette de Wang Lin se changea en un rayon de lumière et s'élança vers le ciel.
 
@@ -118,7 +118,7 @@ Une fois le deuxième cycle accompli, la force tranchante augmenta de plus de di
 
 Wang Lin l'observa attentivement pendant longtemps, puis, serrant les dents, il entama le troisième cycle.
 
-Ce troisième tour dura presque une heure entière. Lorsqu'il fut achevé, une quantité colossale d'énergie métallique céleste traversa son corps, et il sentit une douleur déchirante émaner de ses organes.
+Ce troisième tour dura presque deux heures entières. Lorsqu'il fut achevé, une quantité colossale d'énergie métallique céleste traversa son corps, et il sentit une douleur déchirante émaner de ses organes.
 
 L'énergie spirituelle céleste restante dans son corps se déversa rapidement pour apaiser la souffrance. À cet instant, l'énergie ayant accompli les trois cycles n'était plus blanche; elle émettait désormais un éclat doré. Elle s'était totalement distinguée du reste de l'énergie, comme si une hiérarchie stricte s'était imposée. Lorsque l'énergie spirituelle céleste blanche ordinaire rencontrait cette énergie dorée, elle s'écartait comme par crainte.
 

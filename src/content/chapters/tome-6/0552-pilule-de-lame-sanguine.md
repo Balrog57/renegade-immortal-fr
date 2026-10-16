@@ -82,7 +82,7 @@ Le regard de Wang Lin resta fixé sur Yao Xixue jusqu'à ce qu'elle disparaisse 
 
 « Pour obtenir mon aide, elle est prête à en offrir une. Si j'avais été à sa place, je n'aurais certainement pas cédé sans y avoir apporté une modification. »
 
-Un rictus apparut sur les lèvres de Wang Lin: « Yao Xixue, si tu n'étais pas si insouciante, je me serait contenté de te douter, mais maintenant, je suis convaincu que cette Pilule de l'Âme Sanguine cache un loup! »
+Un rictus apparut sur les lèvres de Wang Lin: « Yao Xixue, si tu n'étais pas si insouciante, je me serais contenté de te soupçonner, mais maintenant, je suis convaincu que cette Pilule de l'Âme Sanguine cache un loup! »
 
 Ses yeux s'illuminèrent. Il toucha son sac de rangement, en sortit un ordinaire étendard d'âme, l'agita et cria: « Cao Yidou! »
 

@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 193 - Seal of the Blood Sea
 slug: le-sceau-de-la-mer-de-sang
 ---
-L'expression de Wang Lin était globalement normale, mais il afficha bientôt un sourire glacial et laissa échapper un reniflement méprisant.
+L'expression de Wang Lin était globalement normale, mais il afficha bientôt un sourire glacial et laissa échapper un reniflement méprisant. « Ce n'est pas assez! »
 
 Les yeux de Dou Mu se durcirent. Alors qu'il s'apprêtait à parler, l'homme âgé l'interrompit. Ce dernier fixa Wang Lin et déclara d'une voix lente: « Ce Piège de la Bête Huan Yuan est un trésor légendaire. Si cela ne te satisfait toujours pas, je n'ai rien de meilleur à t'offrir. »
 
@@ -54,7 +54,7 @@ Dou Mu renifla, laissant poindre une intention meurtrière: « Cadet, tes maniè
 
 Le regard de Wang Lin se glaça. Sans même daigner regarder la main géante, il fixa le vieillard.
 
-La main s'immobilisa à trois centimètres du visage de Wang Lin. Le vieillard fit un geste et Dou Mu rétracta son attaque.
+La main s'immobilisa à dix centimètres au-dessus de la tête de Wang Lin. Le vieillard fit un geste et Dou Mu rétracta son attaque.
 
 L'homme âgé fronça les sourcils en lançant un regard sévère à Dou Mu, puis dit lentement: « Que veux-tu? »
 
@@ -84,9 +84,9 @@ Le regard de Wang Lin se posa sur l'homme situé au sommet du pilier céleste. L
 
 Les cultivateurs démoniaques trouvèrent leurs places respectives et fixèrent Wang Lin du regard. Ils étaient tous assis en tailleur, à l'exception de Wang Lin qui était le seul à flotter dans les airs.
 
-Wang Lin balaya la zone du regard. Il y avait au moins mille cultivateurs. Parmi eux, il reconnut le Bossu Meng, Dou Mu Ji, Wang Qingyue, le Magicien Démon Céleste...
+Wang Lin balaya la zone du regard. Il y avait au moins mille cultivateurs. Parmi eux, il reconnut le Bossu Meng, Duanmu Ji, Wang Qingyue, le Magicien Démon Céleste...
 
-Soudain, une faille apparut dans l'espace adjacent à l'homme aux cheveux rouges. Un homme de grande taille en sortit. Dès son apparition, il regarda Wang Lin avec un air d'extase et dit à l'homme aux cheveux rouges: « Maître, c'est lui, le dévoreur d'âmes. » Puis, il s'installa sur un pilier voisin.
+Soudain, une faille apparut dans l'espace adjacent à l'homme aux cheveux rouges. Un homme aux longs cheveux en sortit. Dès son apparition, il regarda Wang Lin avec un air d'extase et dit à l'homme aux cheveux rouges: « Maître, c'est lui, le dévoreur d'âmes. » Puis, il s'installa sur un pilier voisin.
 
 Wang Lin comprit instantanément que cet homme était l'immense Âme Errante.
 
@@ -126,7 +126,7 @@ Dès l'apparition de la sphère, son corps s'effondra pour reprendre sa forme d'
 
 Sans un mot, son Âme du Royaume Ji jaillit rapidement pour envelopper la sphère lumineuse. Celle-ci contenait l'énergie d'âme de l'immense Âme Errante, que Wang Lin put absorber sans la moindre entrave. Après une demi-heure, il l'avait totalement assimilée.
 
-Wang Lin sentit nettement son âme croître de plusieurs ordres de grandeur.
+Wang Lin sentit nettement son âme croître de plusieurs fois.
 
 L'homme aux cheveux rouges réfléchit et ordonna lentement: « Âme Errante, continue. »
 
@@ -148,7 +148,7 @@ L'homme aux cheveux rouges réfléchit et une idée lui traversa l'esprit. Il te
 
 Cette sphère était constituée de l'essence vitale même de l'Âme Errante.
 
-Après avoir consommé cette sphère, Wang Lin sentit la particule de la taille d'un grain de riz croître rapidement jusqu'à atteindre la taille d'un pouce.
+Après avoir consommé cette sphère, Wang Lin sentit la particule de la taille d'un grain de riz croître rapidement jusqu'à atteindre la taille d'un ongle.
 
 Soudain, une sensation étrange envahit son esprit. Son Âme du Royaume Ji se rétracta brusquement pour fusionner avec la sphère de la taille d'un ongle, laquelle disparut dans son front.
 
@@ -170,7 +170,7 @@ Cependant, simultanément, les autres lueurs commencèrent à briller intenséme
 
 Parallèlement, pour compenser les lueurs dévorées, de nouvelles lumières rouges surgissaient de la Mer de Sang et gravitaient autour de l'homme.
 
-Le dévoreur d'âmes, après avoir consommé dix fragments supplémentaires, commença à luire d'un rouge vif; il devait manifestement prendre le temps de digérer et ne pouvait plus dévorer davantage.
+Le dévoreur d'âmes, après avoir consommé plus de dix fragments supplémentaires, commença à luire d'un rouge vif; il devait manifestement prendre le temps de digérer et ne pouvait plus dévorer davantage.
 
 L'homme aux cheveux rouges afficha une expression de douleur intense en jetant un regard vers Wang Lin.
 

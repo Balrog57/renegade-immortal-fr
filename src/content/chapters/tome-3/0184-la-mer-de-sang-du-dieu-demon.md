@@ -22,7 +22,7 @@ Le démon scruta le vide et marmonna pour lui-même: « Le Maître a ordonné qu
 
 À ce moment précis, une âme errante apparut soudainement, mais lorsqu'elle vit ce démon, elle l'ignora simplement et passa son chemin. Le démon ignora également l'âme errante, fixant la direction de cette odeur infecte. Son corps disparut alors qu'il s'élançait vers cette effluve.
 
-La direction vers laquelle le démon se dirigeait était celle où se trouvaient Wang Lin et l'Empereur Antique. Wang Lin regarda calmement l'Empereur Antique, qui était piégé dans la lumière. La lueur provenant de la pagode s'était réduite de 99 mètres à seulement quinze.
+La direction vers laquelle le démon se dirigeait était celle où se trouvaient Wang Lin et l'Empereur Antique. Wang Lin regarda calmement l'Empereur Antique, qui était piégé dans la lumière. La lueur provenant de la pagode s'était réduite de 99 mètres à seulement cinquante mètres.
 
 Depuis que Wang Lin était devenu un dévoreur d'âmes, il avait perdu toutes les émotions propres aux mortels. Il était froid et impitoyable. Alors qu'il s'apprêtait à ordonner aux âmes errantes de lancer une nouvelle attaque, il sentit, via une âme errante sous son contrôle, qu'une violente fluctuation d'âme se dirigeait vers lui depuis le nord-ouest.
 
@@ -82,7 +82,7 @@ Wang Lin réfléchit silencieusement un instant, puis toutes les âmes errantes 
 
 Mais la masse d'âmes errantes attaquant était tout simplement trop grande. Bientôt, la pagode commença à trembler. Puis, dans un fracas, une fissure apparut sur la pagode, la scindant en deux.
 
-À cet instant, le corps de l'Empereur Antique se déplaça soudainement et disparut sans laisser de trace. À dix pieds de là, l'Empereur Antique poussa un cri de douleur et se dévoila. D'innombrables âmes errantes se précipitèrent sur lui pour le consumer rapidement.
+À cet instant, le corps de l'Empereur Antique se déplaça soudainement et disparut sans laisser de trace. À une trentaine de mètres de là, l'Empereur Antique poussa un cri de douleur et se dévoila. D'innombrables âmes errantes se précipitèrent sur lui pour le consumer rapidement.
 
 Au même moment, une âme errante sortit du corps de l'Empereur Antique, portant un sac de rangement. Wang Lin récupéra le sac après que l'âme errante le lui eut remis et s'éclipsa précipitamment.
 
@@ -152,7 +152,7 @@ Alors qu'il n'avait fait que faire un demi-pas, Wang Lin s'arrêta brusquement. 
 
 Duanmu et Wang Qingyue ne firent pas long feu sous l'assaut de Bossu Meng. Ce dernier ouvrit une faille d'où surgit une main démoniaque gigantesque qui empoigna les deux hommes sans qu'ils puissent opposer la moindre résistance. La tête du démon était hérissée d'épines osseuses, et une aura maléfique s'en dégageait, faisant trembler de peur quiconque la croisait.
 
-L'incertitude se lut sur le visage de Wang Lin. Il récupéra les démons Xu Liguo et le second, puis avala une grande gorgée de liquide énergétique spirituel pour utiliser tout son Qi Lin afin de fuir rapidement.
+L'incertitude se lut sur le visage de Wang Lin. Il récupéra les démons Xu Liguo et le second, puis avala une grande gorgée de liquide énergétique spirituel pour utiliser toute son énergie spirituelle afin de fuir rapidement.
 
 Il sentait déjà que Bossu Meng, tel un démon, le poursuivait à une vitesse extrême.
 
@@ -186,7 +186,7 @@ Le message de Wang Lin fut reçu et le Seigneur Démon des Six Désirs ne fit ri
 
 Wang Lin regarda le Seigneur Démon des Six Désirs avec une expression embarrassée tout en calculant silencieusement le temps restant. Le Seigneur Démon des Six Désirs plissa les yeux. N'ayant pas la capacité de Wang Lin à contrôler les âmes errantes, il ignorait l'existence du démon qui fonçait sur lui. En voyant l'hésitation de Wang Lin, bien qu'il ait des doutes, il eut un sourire froid.
 
-S'il n'y avait pas eu autant d'âmes errantes autour de Wang Lin, il aurait déjà attaqué. Mais pour l'instant, ne voulant pas compliquer les choses, il renifla froidement: « Cette fois, je te laisse passer. Je te donne trois secondes pour déguerpir, fuis le plus loin possible! »
+S'il n'y avait pas eu autant d'âmes errantes autour de Wang Lin, il aurait déjà attaqué. Mais pour l'instant, ne voulant pas compliquer les choses, il renifla froidement: « Cette fois, je te laisse passer. Je te donne trois respirations pour déguerpir, fuis le plus loin possible! »
 
 Wang Lin compta secrètement quelques respirations et afficha un sourire étrange. Il murmura: « C'est le moment! » puis regarda immédiatement le Seigneur Démon des Six Désirs en disant: « Merci! »
 
@@ -194,7 +194,7 @@ Aussitôt ses paroles prononcées, il chargea vers le nord-ouest, s'engouffrant 
 
 Le Seigneur Démon des Six Désirs fronça les sourcils. Alors qu'il analysait la situation, son visage pâlit soudainement. Il vit une météorite rouge sang foncer sur lui. En un clin d'œil, elle se trouvait déjà à mille pieds de lui. La silhouette démoniaque gigantesque de Bossu Meng venait d'apparaître.
 
-« Toi... Tu es le Bossu Meng? Tu... tu as consommé une pilule de Transformation de l'Âme? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Bossu Meng, qu'il était déjà au stade avancé de la Formation de l'Âme, n'étant qu'à un pas de la Transformation de l'Âme.
+« Toi... Tu es le Bossu Meng? Tu... tu as consommé une pilule de Transformation de l'Âme? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Bossu Meng, qu'il était déjà au stade avancé de la Transformation de l'Âme, n'étant qu'à un pas du stade supérieur.
 
 La seule façon d'atteindre ce niveau de culture était de consommer une pilule de Transformation de l'Âme!
 

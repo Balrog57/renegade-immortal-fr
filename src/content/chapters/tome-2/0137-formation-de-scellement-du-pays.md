@@ -18,7 +18,7 @@ Au fil du temps, les bêtes de feu commencèrent à rattraper l'arrière-garde. 
 
 Un immense bassin se dressait à la frontière de Huo Fen. Une fois l'armée de cultivateurs arrivée sur place, les chefs des diverses sectes et familles de culture, ainsi que les dix-neuf cultivateurs de l'Âme Naissante, entamèrent une importante réunion secrète.
 
-À l'issue de la rencontre, dix-neuf silhouettes s'envolèrent dans le ciel au-dessus du bassin. L'un des cultivateurs de la Secte Lou He s'écria: « Après de nombreuses années d'études, ma Secte Lou He a déterminé que ce lieu est la terre ancestrale des bêtes de feu, le berceau des esprits de feu. Si nous posons un sceau ici, cela affectera tous les volcans de Huo Fen. Alors, en utilisant la formation de scellement du pays laissée par nos ancêtres il y a plus de mille ans, nous pourrons emprisonner les bêtes de feu à l'intérieur de Huo Fen. »
+À l'issue de la rencontre, dix-neuf silhouettes s'envolèrent dans le ciel au-dessus du bassin. L'un des cultivateurs de la Secte Lou He s'écria: « Après de nombreuses années d'études, ma Secte Lou He a déterminé que ce lieu est la terre ancestrale des bêtes de feu, le berceau des esprits de feu. Si nous posons un sceau ici, cela affectera tous les volcans de Huo Fen. Alors, en utilisant la formation de scellement du pays laissée par nos ancêtres il y a plusieurs milliers d'années, nous pourrons emprisonner les bêtes de feu à l'intérieur de Huo Fen. »
 
 L'un des cultivateurs de l'Âme Naissante de la Secte des Démons démoniaques scruta le sol et renifla: « Si nos ancêtres avaient déjà tout préparé, pourquoi ne les ont-ils pas simplement anéanties à l'époque au lieu de laisser la situation en venir là? »
 
@@ -52,7 +52,7 @@ Tous les volcans traversés par le cercle rouge libérèrent de la fumée. Celle
 
 Après une heure, l'anneau recouvrait tout le pays de Huo Fen tel un bol géant. La formation de scellement du pays était désormais activée.
 
-Une fois la formation déployée, seuls les mortels pouvaient circuler librement. Tout être doté d'énergie spirituelle et situé au stade de la Formation de l'Âme ne pourrait plus franchir la barrière.
+Une fois la formation déployée, seuls les mortels pouvaient circuler librement. Tout être doté de pouvoirs et de niveau inférieur au stade de la Formation de l'Âme ne pourrait plus franchir la barrière.
 
 Alors que le sceau s'opérait, les dix-neuf cultivateurs de l'Âme Naissante des quatre sectes saisirent les corps des cultivateurs indépendants. Ceux qui avaient des familles avaient confié leurs restes à ces derniers, tandis que les autres les avaient remis à la Secte Lou He.
 
@@ -94,9 +94,9 @@ Ignorant Yang Sen, dès que l'écran lumineux eut cédé, tous les cultivateurs 
 
 Cette vaste montagne était désormais entièrement occupée par les quatre sectes. Des dizaines de milliers de disciples se tenaient sur la cime, sous le regard des cultivateurs de l'Âme Naissante, à l'exception de Yang Sen.
 
-Les yeux de l'Ancêtre Song du Sanctuaire du Dieu de la Guerre brillaient comme des éclairs. Sa voix, empreinte d'une intention meurtrière, tonna: « Ceci est une guerre sans bien ni mal. Si nous ne parvenons pas à établir un point d'appui à Xuan Wu d'ici trois mois, nous devrons affronter les bêtes de feu. Les bêtes de feu ne sont pas effrayantes; ce qui est terrifiant, c'est de manquer d'énergie spirituelle pour cultiver! »
+Les yeux de l'Ancêtre Song du Sanctuaire du Dieu de la Guerre brillaient comme des éclairs. Sa voix, empreinte d'une intention meurtrière, tonna: « Ceci est une guerre sans bien ni mal. Si nous ne parvenons pas à établir un point d'appui à Xuan Wu d'ici trois mois, les bêtes de feu briseront la formation pour sortir. Les bêtes de feu ne sont pas effrayantes; ce qui est terrifiant, c'est de manquer d'énergie spirituelle pour cultiver! »
 
-« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte des Démons démoniaques, la Secte Lou He et la Secte des Cadavres forment l'Union Huo Fen. Chaque disciple de l'Union recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
+« À compter de ce jour, le Sanctuaire du Dieu de la Guerre, la Secte des Démons démoniaques, la Secte Lou He et la Secte des Cadavres forment l'Union Huo Fen. Chaque disciple de l'Union au stade de l'Établissement des Fondations recevra un trésor de niveau Formation du Noyau, et chaque disciple de la Formation du Noyau recevra un trésor de niveau Âme Naissante! »
 
 « En temps de guerre, tout ce que vous saisirez vous appartiendra. L'Union ne vous le reprendra pas. Disciples, ceci est une guerre, mais je veux que vous la considériez comme une invasion... une invasion pour la survie! »
 

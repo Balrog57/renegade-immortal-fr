@@ -68,7 +68,7 @@ Le général démon répondit posément: « Dans trois mois, je dois retourner �
 
 Wang Lin réfléchit un instant et hocha la tête.
 
-Le général démon laissa échapper un rire qui balaya toute la tension précédente. Il sourit et dit: « Bien! À partir d'aujourd'hui, moi, Mo Lihai, général de l'aile gauche, je te nomme mon unique vice-général! Si je me classe parmi les trois premiers des généraux démons, je demanderai à l'Empereur Démon de faire de toi un général! »
+Le général démon laissa échapper un rire qui balaya toute la tension précédente. Il sourit et dit: « Bien! À partir d'aujourd'hui, moi, Mo Lihai, général de l'aile gauche, je te nomme mon premier vice-général! Si je me classe parmi les trois premiers des généraux démons, je demanderai à l'Empereur Démon de faire de toi un général! »
 
 « À ce moment-là, tu auras ta propre ville et cent mille soldats démons sous tes ordres. Tu auras certainement un avantage bien plus grand que la plupart des étrangers! » Sur ces mots, il tendit sa main droite et créa un vortex noir.
 
@@ -82,7 +82,7 @@ Bien qu'il soupçût cette paume, cela restait une intuition; tant qu'il ne pour
 
 Malgré son tempérament ouvert, le général démon, ayant atteint ce niveau de culture, n'était pas sot. En réalité, il ne perdrait pas face à Wang Lin en matière d'astuce.
 
-« Je reviendrai dans trois mois! » Le Sens Divin de Wang Lin balaya Treize. Il constata que le garçon n'avait aucune blessure et qu'il était simplement dans le coma. Il saisit Treize, fit un pas dans les airs et disparut par-delà l'horizon.
+« Je reviendrai dans trois mois! » Le Sens Divin de Wang Lin balaya Treize. Il constata que le garçon n'avait aucune blessure et qu'il était simplement inconscient. Il saisit Treize, fit un pas dans les airs et disparut par-delà l'horizon.
 
 Le général démon, les mains derrière le dos, regarda le ciel en secouant la tête. Les cinq individus dont le niveau égalait celui de cultivateurs au stade de la Transformation de l'Âme s'étaient précipités. En observant le combat précédent, ils avaient été totalement absorbés, incapables d'en détacher leur regard pendant un long moment.
 
@@ -92,7 +92,7 @@ L'un d'eux dit: « Général Démon, je suis convaincu que son coup de paume ét
 
 « Même si je sais qu'il y a 90 % de chances que cette paume soit une supercherie, je ne peux me résoudre à prendre ce risque! Même s'il ne sait utiliser que des illusions, le fait qu'il m'ait fait hésiter ainsi prouve qu'il est bel et bien redoutable. Faire passer le réel pour du faux et le faux pour du réel... cet homme ne doit pas être sous-estimé! »
 
-« De plus, il y a un an, face à mon coup de poing des dix effondrements, il avait dû utiliser une technique secrète pour résister jusqu'à sept impacts. Un an plus tard, sa culture a progressé de manière exponentielle. Lui et le commandant Yao ont disparu à peu près au même moment, pourtant lui seul est revenu; il y a là un mystère! Mais cela ne me concerne pas! »
+« De plus, il y a un an, face à mon coup de poing des dix effondrements, il avait dû utiliser une technique secrète pour briser le septième effondrement. Un an plus tard, sa culture a progressé de manière exponentielle. Lui et le commandant Yao ont disparu à peu près au même moment, pourtant lui seul est revenu; il y a là un mystère! Mais cela ne me concerne pas! »
 
 Les paroles du général démon s'adressaient aux cinq subordonnés, mais il murmurait surtout pour lui-même.
 
@@ -100,13 +100,13 @@ Ces derniers restèrent silencieux, levant la tête vers la direction prise par 
 
 Wang Lin flottait dans les airs et déploya son Sens Divin. Il localisa la Prison Sombre à l'intérieur de la ville et apparut devant elle, portant Treize inconscient.
 
-Cette Prison Sombre était souterraine. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
+Cette Prison Sombre était souterraine, sous la Grande Muraille Antique. Bien que des restrictions protégeaient toute la zone, aucune, hormis celles situées dans les profondeurs de la prison, ne pouvait arrêter Wang Lin.
 
 Vu le statut de Hu Pao, il ne pouvait pas être enfermé dans les profondeurs de la prison. Wang Lin déploya son Sens Divin mais ne trouva aucune trace de lui. Il poussa un soupir, puis disparut sans laisser de trace.
 
-Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était décuplée. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu de la Raffinement de l'Âme.
+Wang Lin se déplaçait à une vitesse fulgurante. Sa culture ayant atteint le sommet du stade de la Transformation de l'Âme, sa célérité était décuplée. Bien qu'il portât Treize, il ne lui fallut que peu de temps pour revenir vers la Tribu du Raffinement de l'Âme.
 
-Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu de la Raffinement de l'Âme se dessinait au loin!
+Wang Lin apparut dans un éclair de lumière à des dizaines de kilomètres de la tribu. Devant lui, la Tribu du Raffinement de l'Âme se dessinait au loin!
 
 Bien que la tribu n'ait pas étendu son territoire cette année, tous ses membres s'étaient consacrés avec acharnement à leur culture. Cette zone de 5 kilomètres était entièrement sous le contrôle de la tribu.
 
@@ -120,14 +120,14 @@ Dès son apparition, Wang Lin fit un pas et fonça vers la tribu comme un éclai
 
 Il connaissait bien ces gens; leur devoir était d'assurer la garde extérieure!
 
-Le Sens Divin de Wang Lin s'étendit: sur un rayon de cinquante kilomètres, plus de cent sentinelles étaient en poste!
+Le Sens Divin de Wang Lin s'étendit: sur un rayon de cinquante kilomètres, plusieurs centaines de sentinelles étaient en poste!
 
-Il ne fallut pas longtemps pour que Wang Lin arrive à environ mille pieds de la tribu. C'est là qu'il s'arrêta net. À son arrêt, une puissante rafale de vent le suivit et déferla vers la tribu!
+Il ne fallut pas longtemps pour que Wang Lin arrive à environ 330 mètres de la tribu. C'est là qu'il s'arrêta net. À son arrêt, une puissante rafale de vent le suivit et déferla vers la tribu!
 
 Dès qu'il s'immobilisa, quelqu'un l'aperçut immédiatement. Après un instant de stupeur, leurs yeux s'illuminèrent d'excitation.
 
 « Ancêtre! » Un cri de joie réveilla instantanément les cultivateurs. En un clin d'œil, tous les membres de la tribu se levèrent.
 
-Ouyang Hua se transforma en un nuage de brume noire et traversa la tribu. Il s'arrêta à une dizaine de pieds de Wang Lin et, le visage rayonnant, dit respectueusement: « Bon retour, Ancêtre! »
+Ouyang Hua se transforma en un nuage de brume noire et traversa la tribu. Il s'arrêta à une quarantaine de mètres de Wang Lin et, le visage rayonnant, dit respectueusement: « Bon retour, Ancêtre! »
 
 Au même moment, tous les membres de la tribu s'agenouillèrent et déclarèrent en chœur: « Bon retour, Ancêtre! »

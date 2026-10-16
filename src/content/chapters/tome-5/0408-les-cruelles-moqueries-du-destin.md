@@ -114,7 +114,7 @@ Une puissante force d'aspiration émana de la roue vers Li Muwan.
 
 Wang Lin leva soudainement la tête. Ses yeux devinrent d'une froideur extrême lorsqu'il déclara: « Sans ma permission, oublie que tu n'es même pas la véritable loi céleste; mais même si tu l'étais, ne pense pas pouvoir l'emporter! »
 
-Il pointa son front et la Perle Défiant le Ciel apparut. D'un revers de main, il fit entrer l'Âme Naissante de Li Muwan dans la perle, laquelle retourna aussitôt à l'intérieur de son corps.
+Il pointa son front et la Perle Défiant les Cieux apparut. D'un revers de main, il fit entrer l'Âme Naissante de Li Muwan dans la perle, laquelle retourna aussitôt à l'intérieur de son corps.
 
 L'Émissaire des Cieux lança un regard pensif à Wang Lin, ses yeux empreints de confusion. Puis son corps disparut lentement et, en un clin d'œil, les nuages et la roue s'évanouirent également.
 
@@ -124,11 +124,11 @@ Wang Lin fixa le corps de Zhou Ru et éclata d'un rire fou. Son rire était impr
 
 Wang Lin pointa l'âme de Zhou Ru et la replaça dans son corps. Puis il s'élança dans les airs en riant follement, ne laissant derrière lui que l'écho de ses sanglots déchaînés.
 
-Après le départ de Wang Lin, Little White s'approcha prudemment. Il était initialement scellé par Wang Lin, mais lors du combat contre l'Émissaire des Cieux, le sceau s'était brisé, lui permettant de s'échapper. Ce n'est qu'après avoir vu Wang Lin partir qu'il osa approcher. Ses yeux étaient remplis de tristesse alors qu'il léchait le petit visage de Zhou Ru.
+Après le départ de Wang Lin, Petit Blanc s'approcha prudemment. Il était initialement scellé par Wang Lin, mais lors du combat contre l'Émissaire des Cieux, le sceau s'était brisé, lui permettant de s'échapper. Ce n'est qu'après avoir vu Wang Lin partir qu'il osa approcher. Ses yeux étaient remplis de tristesse alors qu'il léchait le petit visage de Zhou Ru.
 
-Zhou Ru marmonna pour elle-même: « Little White... Arrête tes bêtises, je veux dormir... »
+Zhou Ru marmonna pour elle-même: « Petit Blanc... Arrête tes bêtises, je veux dormir... »
 
-Little White fut surpris. Il laissa échapper un grognement joyeux, puis saisit Zhou Ru par ses vêtements et l'emporta loin de là.
+Petit Blanc fut surpris. Il laissa échapper un grognement joyeux, puis saisit Zhou Ru par ses vêtements et l'emporta loin de là.
 
 Un fou apparut sur la lune. Ses cheveux étaient en bataille et il ne cessait de répéter ces deux mots: « Volonté Céleste ». Chaque fois qu'une bête se dressait sur son chemin, elle mourait.
 

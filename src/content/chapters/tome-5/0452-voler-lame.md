@@ -36,7 +36,7 @@ Dans un fracas retentissant, d'innombrables fissures apparurent sur les tatouage
 
 Le vieil homme voûté poussa un rugissement et chargea vers Wang Lin. Sa main s'étendit, et au centre de sa paume brillait un tatouage très ancien.
 
-Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et le Drapeau de l'Âme d'un Milliard d'Âmes apparut. Même sans attaquer, ce drapeau suffisait à terrifier n'importe quel ennemi.
+Les yeux de Wang Lin s'illuminèrent. Sans un mot, il tendit la main et le Drapeau de l'Âme d'un Milliard d'Âmes apparut. Long d'une dizaine de mètres, ce drapeau suffisait à terrifier n'importe quel ennemi, même sans attaquer.
 
 Le vieil homme voûté ne put s'empêcher de marquer un temps d'arrêt.
 
@@ -54,7 +54,7 @@ Même face à trois ou quatre d'entre eux, il aurait pu s'échapper ou combattre
 
 Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture actuel. Ce Qilin violet était particulièrement terrifiant; le simple fait de le regarder faisait trembler son cœur.
 
-S'ajoutant à cela, d'innombrables fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
+S'ajoutant à cela, des centaines de millions de fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
 Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a cent ans ait déjà atteint le stade de la Transformation de l'Âme et possède ce Drapeau de l'Âme d'un Milliard d'Âmes que le Clan des Immortels Déchus redoutait tant.
 

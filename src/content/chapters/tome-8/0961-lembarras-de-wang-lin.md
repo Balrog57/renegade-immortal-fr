@@ -10,7 +10,7 @@ Wang Lin dit calmement: « Quatrième Sœur, je vous en prie, entrez. »
 
 Une respiration lourde se faisait entendre à l'extérieur du pavillon et, après un long moment, la porte fut poussée. Une belle femme vêtue de violet entra, mordant sa lèvre inférieure.
 
-Bien que l'apparence de cette femme ne fût pas aussi éblouissante que celle de Li Mei, elle demeurait magnifique. Cependant, les traces du passage du temps marquaient son visage, lui donnant un air légèrement vieilli.
+Bien que l'apparence de cette femme ne fût pas aussi éblouissante que celle de Liu Mei, elle demeurait magnifique. Cependant, les traces du passage du temps marquaient son visage, lui donnant un air légèrement vieilli.
 
 Une fois entrée dans la pièce, elle s'assit silencieusement sur une chaise. Elle ne regarda pas Wang Lin; ses yeux vides fixaient l'espace vide devant elle.
 
@@ -20,7 +20,7 @@ Ce sens divin se propagea vers Wang Lin. Sa progression n'était pas rapide; il 
 
 À mesure que le sens divin approchait, les yeux de Wang Lin s'ouvrirent et un rayon de lumière en jaillit. Le sens divin trembla, voulant battre en retraite, mais il fut instantanément figé dans l'air.
 
-Le visage de la femme en violet devint d'une pâleur mortelle. Elle sentait que si son sens divin bougeait le moins que craie, Wang Lin le dévorerait sur-le-champ.
+Le visage de la femme en violet devint d'une pâleur mortelle. Elle sentait que si son sens divin bougeait le moins du monde, Wang Lin le dévorerait sur-le-champ.
 
 Wang Lin fixa la femme en violet et relâcha sa prise sur son sens divin, lui permettant de retourner dans son corps. Rien ne pouvait être caché devant lui. Six sceaux marquaient son corps, scellant sa culture; ce qu'elle révélait au monde extérieur n'était que le stade avancé de la Transformation de l'Âme.
 
@@ -43,7 +43,7 @@ L'expression de Wang Lin resta sereine tandis qu'il contemplait silencieusement 
 
 « Lorsqu'un cultivateur franchit le stade avancé de l'Ascendant pour atteindre le stade Illusoire Yin, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
 
-Le visage de Wang Lin ne trahcit aucune émotion.
+Le visage de Wang Lin ne trahit aucune émotion.
 
 La femme en violet le regarda. Constatant qu'aucune réaction ne venait de lui, son cœur sombra et elle serra les dents: « Je sais que tu ne me crois peut-être pas, mais moi, Zhao Xinmeng, j'ai rejoint le secte à l'âge de sept ans et j'ai cultivé pendant mille ans... »
 
@@ -115,4 +115,4 @@ Wang Lin réfléchit. Cela faisait longtemps qu'il n'était pas revenu; ce serai
 
 Après avoir observé Bai Wei, il ne trouva aucun sceau. Sa culture se situait véritablement au stade intermédiaire de la Transformation de l'Âme.
 
-« D'accord, nous nous retrouverons au pied du Mont Violet aujourd'hui à midi. »
+« D'accord, nous nous retrouverons au pied du Mont Pourpre aujourd'hui à midi. »

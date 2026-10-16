@@ -20,9 +20,9 @@ Actuellement, un homme était assis en position du lotus devant le pavillon des 
 
 La culture de cet homme était totalement dissimulée. À moins d'être un cultivateur de niveau supérieur, il serait très difficile de percer ses secrets. Il restait là, l'expression sereine, comme si rien au monde n'avait d'importance. Pour l'instant, toute son attention était focalisée sur l'objet posé sur ses genoux!
 
-Sur les genoux de cet homme reposait une épée de sept pieds de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
+Sur les genoux de cet homme reposait une épée de 2,3 mètres de long. L'épée était entièrement verte et émanait une lueur fantomatique. Sous la lumière du soleil, la zone environnante se trouvait baignée par cette clarté verdâtre, peignant tout ce qui l'entourait en vert.
 
-Wang Lin se tenait à plusieurs dizaines de mètres du pavillon des trésors, fixant l'homme assis devant lui.
+Wang Lin se tenait à plus d'une centaine de mètres du pavillon des trésors, fixant l'homme assis devant lui.
 
 « La culture de cet homme est au sommet du stade avancé de la Formation de l'Âme, mais une intention d'épée très bien dissimulée réside en lui! »
 
@@ -30,7 +30,7 @@ L'homme d'âge moyen ouvrit les yeux et vit Wang Lin debout non loin de là. Sur
 
 Le regard de Wang Lin se posa sur le front de Zhang Xiangfan, puis il demanda calmement: « Puis-je voir ton épée volante? »
 
-Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise dans une boutique à l'extérieur de la secte, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de sept pieds et libéra des ondes d'hymnes d'épée.
+Zhang Xiangfan fut déconcerté. Il hocha la tête et répondit: « L'épée volante du disciple n'est qu'un objet ordinaire. Je l'ai acquise dans une boutique à l'extérieur de la secte, elle n'a rien de spécial. Si le Septième Ancêtre souhaite la voir, alors je n'y vois aucun inconvénient. » Sur ces mots, il pointa l'espace entre ses sourcils et poussa un rugissement sourd. Une lumière verte jaillit, prit la forme de l'épée de 2,3 mètres et libéra des ondes d'hymnes d'épée.
 
 Le regard de Wang Lin resta impassible tandis qu'il tendait la main. Lorsqu'il saisit l'épée verte, il la tira vers lui pour l'examiner attentivement.
 
@@ -44,11 +44,11 @@ La trace d'intention d'épée sur cette lame était précisément celle que Zhou
 
 À l'époque, Zhou Yi avait poursuivi le Saint de l'Épée Ling Tianhou. Plus de cent ans s'étaient écoulés depuis cet événement.
 
-C'était la première fois qu'il ressentait l'intention d'épée de Zhou Yi. S'il n'avait pas passé une éternité sous la pagode à comprendre le domaine de Zhou Yi, il n'aurait jamais pu identifier d'un simple coup d'œil que cette intention appartenait à ce dernier.
+C'était la première fois qu'il ressentait l'intention d'épée de Zhou Yi. S'il n'avait pas passé de longues années sous la pagode à comprendre le domaine de Zhou Yi, il n'aurait jamais pu identifier d'un simple coup d'œil que cette intention appartenait à ce dernier.
 
 Il n'y avait qu'une infime trace d'intention dans l'épée. Après l'avoir ressentie, Wang Lin réfléchit un instant et frotta la lame volante. L'épée commença soudainement à briller d'un vert éclatant et un rayon de lumière en jaillit. Cette lumière se mua en une étoile verte qui flotta devant Wang Lin.
 
-En contemplant l'étoile, Wang Lin soupira. Il s'en saisit, regarda Zhang Xiangfan qui semblait désemparé, et déclara: « Une trace de l'intention d'épée d'un vieil ami se trouve dans son arme, je la récupère donc. Cependant, je ne te traiterai pas durement. Tiens, prends ce jade. Il contient 18 restrictions; applique-les sur n'importe quelle épée volante, quelle que soit sa qualité, et leur puissance sera multipliée par plusieurs! »
+En contemplant l'étoile, Wang Lin soupira. Il s'en saisit, regarda Zhang Xiangfan qui semblait désemparé, et déclara: « Une trace de l'intention d'épée d'un vieil ami se trouve dans son arme, je la récupère donc. Cependant, je ne te traiterai pas durement. Tiens, prends ce jade. Il contient 18 restrictions; applique-les sur n'importe quelle épée volante d'une qualité allant jusqu'à « supérieure », et leur puissance sera multipliée par plusieurs! »
 
 Sur ces mots, Wang Lin frappa son sac de rangement. Un morceau de jade apparut dans sa main et il le lança à Zhang Xiangfan.
 
@@ -58,7 +58,7 @@ Peu après, il leva brusquement la tête et dit respectueusement: « Merci, Sept
 
 Zhang Xiangfan, fort de sa longue expérience de culture, comprit immédiatement que ces 18 restrictions n'avaient rien de banal. Il s'agissait de 18 restrictions d'attaque, et le plus rare était qu'elles pouvaient être cumulées. Zhang Xiangfan réprima l'excitation qui bouillonnait en lui. Il aurait voulu se retirer en culture fermée dès à présent pour imprimer ces 18 restrictions sur une épée; alors, il n'aurait plus jamais à craindre de cultivateurs au stade avancé de la Formation de l'Âme!
 
-Ces 18 restrictions n'étaient que deux groupes de restrictions que Wang Lin avait étudiés à partir du chapeau de paille de Yunque Zi. Cela était loin d'être suffisant pour permettre au drapeau de restrictions d'atteindre le stade suivant.
+Ces 18 restrictions n'étaient que deux des dix-neuf groupes de restrictions que Wang Lin avait étudiés à partir du chapeau de paille de Yunque Zi. Pour que le drapeau de restrictions atteigne 9 999 groupes, ceux-ci étaient loin de suffire.
 
 Wang Lin ne perdit pas de temps et annonça directement: « Je suis venu récupérer mes jades célestes! »
 
@@ -98,7 +98,7 @@ Peu après, le géant reprit la parole.
 
 Wang Lin fut surpris. Même avec sa force mentale, il ne put s'empêcher d'être ébranlé. Il prit une profonde inspiration et déclara: « Je veux tout retirer! »
 
-« Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler devant Wang Lin.
+« Un total de 123 600 pièces! » Tandis que la voix du géant résonnait, d'innombrables jades célestes jaillirent du corps de la figure pour s'accumuler à une trentaine de mètres devant Wang Lin.
 
 Wang Lin fixa l'amas de jades qui croissait à vue d'œil et sentit sa gorge s'assécher. Il n'aurait jamais imaginé que la Secte du Destin céleste distribue les jades de cette manière.
 
@@ -112,4 +112,4 @@ Il prit une profonde inspiration et ses yeux retrouvèrent leur clarté. Ce n'es
 
 La figure gigantesque dans le ciel disparut lentement pour redevenir ces nuages aux sept couleurs. Des éclats de lumière dorée dans le ciel se reformèrent lentement en un jeton et volèrent vers Wang Lin comme un éclair.
 
-Wang Lin leva la main droite. Au moment où il toucha le jeton, une force invisible le repoussa de plusieurs dizaines de pieds et il disparut de l'endroit.
+Wang Lin leva la main droite. Au moment où il toucha le jeton, une force invisible le repoussa de plus d'une centaine de mètres et il disparut de l'endroit.

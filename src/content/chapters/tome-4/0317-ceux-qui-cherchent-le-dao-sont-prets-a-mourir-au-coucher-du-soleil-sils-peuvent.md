@@ -58,7 +58,7 @@ Wang Lin poussa un soupir secret. Son âme originelle saisit l'autre plume et re
 
 « Les cultivateurs au stade avancé de la Formation de l'Âme sont bien trop difficiles à tuer! » Wang Lin, tenant la plume restante d'une main et le bras tranché de l'autre, chargea rapidement vers l'entrée.
 
-Il avait utilisé toutes ses ressources. Il avait même choisi l'instant où son trésor de protection était épuisé et où elle était à son point le plus vulnérable, mais il n'avait tout de même pas réussi à la terrasser.
+Il avait utilisé toutes ses ressources. Il avait même choisi l'instant où elle était à son point le plus vulnérable pour briser son trésor vital, mais il n'avait tout de même pas réussi à la terrasser.
 
 « Bien que je ne l'aie pas tuée, avec ce bras, je peux lancer d'innombrables malédictions pour m'assurer qu'elle restera à jamais au stade de la Formation de l'Âme! » Les yeux de Wang Lin brillèrent d'une lueur maléfique.
 

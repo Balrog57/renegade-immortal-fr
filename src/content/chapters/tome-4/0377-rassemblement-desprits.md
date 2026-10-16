@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 377 - Gathering Spirits
 slug: rassemblement-desprits
 ---
-Wang Lin observa attentivement la jeune fille alors qu'elle s'élevait vers les quartiers intérieurs de la Secte de l'Affinement des Âmes.
+Wang Lin observa attentivement la jeune fille alors qu'elle s'élevait vers les quartiers intérieurs de la Secte de l'Affinement de l'Âme.
 
 « Cette personne m'est familière... » Wang Lin la dévisagea une nouvelle fois et réfléchit, mais il ne parvint pas à se remémorer où il l'avait déjà vue.
 
@@ -66,7 +66,7 @@ Il faut dire que même des cultivateurs de la Formation du Noyau auraient eu du 
 
 Surtout parce que les éléments redondants ajoutés par-dessus rendaient l'analyse particulièrement ardue.
 
-Après tout, pour que la Secte de l'Affinement des Âmes transforme toute cette montagne en grottes pour les disciples extérieurs, ils avaient dû prendre des mesures pour éviter que ces formations ne soient découvertes.
+Après tout, pour que la Secte de l'Affinement de l'Âme transforme toute cette montagne en grottes pour les disciples extérieurs, ils avaient dû prendre des mesures pour éviter que ces formations ne soient découvertes.
 
 Cependant, l'ancêtre de la Secte n'aurait jamais imaginé qu'un cultivateur de la Formation de l'Âme puisse se retrouver dans la zone réservée aux disciples extérieurs.
 

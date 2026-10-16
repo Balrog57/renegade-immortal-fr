@@ -10,9 +10,9 @@ La Petite Terre des Flammes du Nord se situe à l'extrême nord de la planète. 
 
 Ici, la glace n'a jamais fondu depuis l'arrivée des cultivateurs sur cette planète. Le vent glacial hurle sans relâche et la terre est recouverte de glace. De loin, on peut apercevoir un nuage de brume bleu foncé qui flotte dans la région. Partout où cette brume passe, tout ce qui possède la vie meurt.
 
-Cette brume glaciale est appelée la Brume des Neuf Lieues. Cette mystérieuse puissance naturelle n'apparaît que dans les lieux extrêmement froids.
+Cette brume glaciale est appelée la Brume de Jiuli. Cette mystérieuse puissance naturelle n'apparaît que dans les lieux extrêmement froids.
 
-Outre sa capacité à tout détruire, la Brume des Neuf Lieues a un autre effet: elle aspire ce qu'elle ne peut pas absorber pour le raffiner lentement.
+Outre sa capacité à tout détruire, la Brume de Jiuli a un autre effet: elle aspire ce qu'elle ne peut pas absorber pour le raffiner lentement.
 
 La Petite Terre des Flammes du Nord est immense. Lorsque Xue Yue était ici, ils n'ont pu explorer qu'un tiers de la région avant d'être incapables de progresser davantage; ils finirent par établir leur pays à la frontière de cette zone.
 
@@ -22,21 +22,21 @@ La glace qui s'y trouve n'est pas froide, mais faite de flammes.
 
 C'est un phénomène très rare; le feu existant au cœur de la glace forme une puissance capable d'émerveiller les hommes. C'est ainsi que les cultivateurs de la planète Suzaku nommèrent ce lieu la Petite Terre des Flammes du Nord.
 
-Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort longtemps; la Brume des Neuf Lieues en est l'une. Il y a également la Restriction de la Flamme Sanguine. Elle n'a aucun effet sur les choses dépourvues de sang, mais si un être vivant est touché par sa lumière, son sang se met à bouillir et il meurt dans les dix secondes.
+Il existe dans cette terre des restrictions anciennes qui perdurent depuis fort longtemps; la Brume de Jiuli en est l'une. Il y a également la Restriction de la Flamme Sanguine. Elle n'a aucun effet sur les choses dépourvues de sang, mais si un être vivant est touché par sa lumière, son sang se met à bouillir et il meurt dans les dix secondes.
 
 En plus de cela, il existe une glace capable d'absorber le Sens Divin. Cette glace affaiblit constamment le Sens Divin dès que les deux entrent en contact.
 
-À cet instant, dans les profondeurs de la Petite Terre des Flammes du Nord, reposait le corps d'un garçon enveloppé par la Brume des Neuf Lieues.
+À cet instant, dans les profondeurs de la Petite Terre des Flammes du Nord, reposait le corps d'un garçon enveloppé par la Brume de Jiuli.
 
-Le garçon était très beau, mais son visage exprimait une lutte constante. Il ouvrait occasionnellement la bouche pour expulser un filet de gaz noir qui repoussait la Brume des Neuf Lieues.
+Le garçon était très beau, mais son visage exprimait une lutte constante. Il ouvrait occasionnellement la bouche pour expulser un filet de gaz noir qui repoussait la Brume de Jiuli.
 
 Cependant, dès que la brume était repoussée, elle revenait et affinait lentement le garçon.
 
 Ce garçon était l'enfant démoniaque que le Grand Ancien Sun Tai de la Secte des Cadavres avait libéré contre l'ancêtre du Clan Démon Géant.
 
-Cet enfant démoniaque était très étrange. Autrefois, le corps de l'ancêtre du Clan Démon Géant avait été détruit par lui. L'ancêtre avait alors été contraint de fuir avec son âme originelle et finit par utiliser ce lieu pour piéger l'enfant démoniaque.
+Cet enfant démoniaque était très étrange. Autrefois, le corps de l'ancêtre du Clan Démon Géant avait été détruit par lui. L'ancêtre avait alors été contraint de fuir avec son âme originelle, poursuivi par l'enfant démoniaque, et ce n'est qu'en ce lieu qu'il parvint à s'échapper de justesse.
 
-Si Sun Tai n'avait pas été repoussé par la puissance de la lignée de l'ancêtre du Clan Démon Géant, il aurait pu le contrôler et l'enfant démoniaque n'aurait pas été ainsi piégé.
+Si Sun Tai n'avait pas été téléporté hors de la planète Suzaku par le pouvoir inné de l'ancêtre du Clan Démon Géant, il aurait pu le contrôler et l'enfant démoniaque n'aurait pas été ainsi piégé.
 
 L'origine de cet enfant démoniaque était prodigieuse!
 
@@ -94,9 +94,9 @@ Les yeux de Situ Nan s'illuminèrent. Il s'arrêta, laissa échapper un rire et 
 
 « Avant que mon corps ne soit détruit, je me suis cultivé dans cet endroit pendant très longtemps; j'ai donc une compréhension profonde des restrictions qui régissent ce lieu », révéla Situ Nan d'un air nostalgique, tout en formant un sceau de la main qu'il pointa vers les airs.
 
-Le sol trembla instantanément alors qu'une lumière dorée commençait à s'accumuler avant de s'élancer.
+Le sol trembla instantanément alors qu'une lumière cristalline commençait à s'accumuler avant de s'élancer.
 
-Situ Nan rit en saisissant Wang Lin, puis il se déplaça à mille pieds de là et fixa le quatrième ancêtre.
+Situ Nan rit en saisissant Wang Lin, puis il se déplaça à 330 mètres de là et fixa le quatrième ancêtre.
 
 Au moment où le quatrième ancêtre arriva, tout le ciel fut recouvert d'une lumière blanche. Cette lueur, très brillante, portait une puissance mystérieuse qui frappa le corps du quatrième ancêtre. Une lumière rouge apparut aussitôt sous sa peau.
 
@@ -112,21 +112,21 @@ Situ Nan rit. Loin de l'esquiver, il traversa ces fils pour pénétrer directeme
 
 Il frappa son front, et une plante à neuf feuilles y apparut.
 
-À l'instant où la plante se manifesta, Situ Nan sortit du corps du quatrième ancêtre, libéra toute son aura et cria: « Brume des Neuf Lieues! »
+À l'instant où la plante se manifesta, Situ Nan sortit du corps du quatrième ancêtre, libéra toute son aura et cria: « Brume de Jiuli! »
 
 La brume qui entourait l'enfant démoniaque s'élança rapidement vers Situ Nan, les emprisonna tous les deux et les entraîna vers la flamme de glace où l'enfant était piégé.
 
 Tout se passa à une vitesse fulgurante. En un instant, Situ Nan et le quatrième ancêtre furent encerclés par la brume. Un pilier de flammes glacées se forma autour de chacun d'eux.
 
-À ce moment-là, trois piliers de flammes de glace trônaient au sein de la Brume des Neuf Lieues.
+À ce moment-là, trois piliers de flammes de glace trônaient au sein de la Brume de Jiuli.
 
 Situ Nan afficha un air de joie au milieu des flammes avant de s'en extraire mystérieusement. Il vola vers la flamme de glace où se trouvait l'enfant démoniaque et pénétra dans son corps.
 
-« Wang Lin, cette Brume des Neuf Lieues est une formation naturelle qui constitue pour moi la protection idéale. Je ne mettrai pas longtemps à retrouver ma culture. Je viendrai te retrouver quand j'aurai terminé. Tu devras faire attention à Zhuque Zi entre-temps; ne meurs pas avant mon retour! » La voix de Situ Nan résonna depuis la Brume des Neuf Lieues.
+« Wang Lin, cette Brume de Jiuli est une formation naturelle qui constitue pour moi la protection idéale. Je ne mettrai pas longtemps à retrouver ma culture. Je viendrai te retrouver quand j'aurai terminé. Tu devras faire attention à Zhuque Zi entre-temps; ne meurs pas avant mon retour! » La voix de Situ Nan résonna depuis la Brume de Jiuli.
 
 Wang Lin réfléchit un instant. Il regarda l'enfant au sein de la brume et demanda: « Tu n'as pas besoin que je te garde? »
 
-« Nul besoin; cette Brume des Neuf Lieues est la meilleure des protections! » La voix de Situ Nan trahissait une pointe d'excitation. Après des dizaines de milliers d'années, il allait enfin retrouver un corps. Malgré tout ce qu'il avait traversé, il ne pouvait s'empêcher d'être enthousiaste.
+« Nul besoin; cette Brume de Jiuli est la meilleure des protections! » La voix de Situ Nan trahissait une pointe d'excitation. Après des dizaines de milliers d'années, il allait enfin retrouver un corps. Malgré tout ce qu'il avait traversé, il ne pouvait s'empêcher d'être enthousiaste.
 
 « Cultivateurs étrangers, attendez seulement! Une fois que ce vieux aura recouvré sa culture, je viendrai sans faute vous retrouver pour ma vengeance! »
 

@@ -28,7 +28,7 @@ Peu après, d'innombrables éclairs se rassemblèrent et s'abattirent sur le sol
 
 L'Ancêtre Sanguin observait le fragment à distance. Il pouvait clairement sentir la moitié de son corps de sang sur ce fragment, et l'énergie originelle qu'il contenait était en train d'être rapidement absorbée.
 
-Ce sentiment le poussait à la folie. C'était la première fois qu'il voulait tuer quelqu'un, mais qu'il finissait par aider cette personne à croître par inadvertance.
+Ce sentiment le poussait à la folie. C'était la première fois de sa vie qu'il voulait tuer quelqu'un tout en l'aidant à croître par inadvertance.
 
 Cependant, il craignait de bouger. Il scruta attentivement les nuages surplombant le fragment. Il sentait que la puissance qui s'y tramait grandissait en intensité.
 

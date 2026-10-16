@@ -42,7 +42,7 @@ Le géant poussa un cri de douleur et sa main gauche s'écrasa au sol alors que 
 
 Boum!
 
-Les yeux du géant s'obscurcirent et il s'effondra lentement au sol. Papillon Rouge prit une profonde inspiration et pressa ses doigts contre son front. Elle émergea ensuite du géant de glace pour flotter dans les airs. Son corps actuel était extrêmement affaibli: son trésor de vie était épuisé, son avatar de domaine détruit, son âme originelle gravement blessée et le géant de glace anéanti. En cet instant, elle était aussi vulnérable qu'elle l'avait été dans le Royaume Céleste.
+Les yeux du géant s'obscurcirent et il s'effondra lentement au sol. Papillon Rouge prit une profonde inspiration et pressa ses doigts contre son front. Elle émergea ensuite du géant de glace pour flotter dans les airs. Son corps actuel était extrêmement affaibli: son trésor de vie était détruit, son avatar de domaine détruit, son âme originelle gravement blessée et le géant de glace anéanti. En cet instant, elle était aussi vulnérable qu'elle l'avait été dans le Royaume Céleste.
 
 Mais elle semblait avoir atteint une forme d'illumination et n'éprouvait plus le besoin de combattre. Elle sentait qu'une fois ce sentiment pleinement assimilé, tuer ce Ceng Niu serait aussi simple que de lever la main.
 
@@ -50,7 +50,7 @@ D'innombrables fissures apparurent sur le géant alors qu'il s'écrasait au sol.
 
 Papillon Rouge fit un geste de la main et le fouet d'âme vola vers elle.
 
-Comment Wang Lin pouvait-il la laisser réussir? C'était un trésor qu'il devait s'approprier. La lance se mua rapidement en un fouet noir et enroula le fouet d'âme.
+Comment Wang Lin pouvait-il la laisser réussir? C'était un trésor qu'il devait s'approprier. La lance se transforma en une lueur noire qui enroula le fouet d'âme.
 
 L'expression de Papillon Rouge changea et elle cria: « Oses-tu?! »
 
@@ -100,7 +100,7 @@ Une onde de choc invisible se propagea soudainement, figeant les quatre esprits 
 
 La vitesse de Wang Lin était fulgurante. Il saisit immédiatement l'esprit de métal et, d'un seul pas, maîtrisa l'esprit de bois. Puis, ignorant les deux autres esprits, il se lança à la poursuite de Papillon Rouge.
 
-Papillon Rouge était à plus de mille pieds lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Seule l'utilisation de tous ses trésors, alliée au fait qu'elle possédait une réserve d'énergie spirituelle supérieure à la sienne, lui permettrait de l'achever d'un seul coup!
+Papillon Rouge était à plus de 330 mètres lorsque son visage pâlit. Elle ne s'attendait pas à ce que Ceng Niu possède encore un trésor aussi puissant après un tel combat. Une amertume profonde l'envahit. Quoi qu'il en coûte, elle devait tuer cet homme aujourd'hui. Seule l'utilisation de tous ses trésors, alliée au fait qu'elle possédait une réserve d'énergie spirituelle supérieure à la sienne, lui permettrait de l'achever d'un seul coup!
 
 Ses yeux s'assombrirent et elle ordonna: « Esprit de métal, explose! »
 
@@ -126,7 +126,7 @@ Mais à cet instant précis, une puissance douce descendit du ciel et enveloppa 
 
 Une silhouette apparut silencieusement devant Papillon Rouge: il s'agissait de Gong Sunpo, de Suzaku.
 
-D'un geste nonchalant de la main droite, il repoussa Wang Lin à 330 mètres de distance. Wang Lin fixa Gong Sunpo en réfléchissant intensément.
+D'un geste nonchalant de la main droite, il repoussa Wang Lin à plus de 33 mètres de distance. Wang Lin fixa Gong Sunpo en réfléchissant intensément.
 
 Cette puissance était hors de sa portée, sans oublier qu'il était lourdement blessé.
 

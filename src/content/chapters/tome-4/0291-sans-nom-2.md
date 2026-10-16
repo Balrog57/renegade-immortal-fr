@@ -9,7 +9,7 @@ slug: sans-nom-2
 
 Après avoir placé dix-huit nouveaux ensembles de restrictions différentes sur le drapeau, Wang Lin laissa échapper un soupir. Il avait déjà fait de son mieux. S'il souhaitait continuer, il lui faudrait étudier davantage de restrictions; c'était l'unique moyen d'augmenter la proportion de restrictions purement offensives.
 
-Wang Lin avait déjà pris la décision d'apprendre davantage de restrictions à l'avenir. Dès sa première complétion, le drapeau était déjà si puissant qu'il brûlait d'impatience de voir ce qu'il deviendrait lors de sa seconde complétion. À ce stade, il serait probablement capable de terrasser des cultivateurs de la Transformation de l'Âme.
+Wang Lin avait déjà pris la décision d'apprendre davantage de restrictions à l'avenir. Dès sa première complétion, le drapeau était déjà si puissant qu'il brûlait d'impatience de voir ce qu'il deviendrait lors de sa seconde complétion. À ce stade, il pourrait probablement effrayer des cultivateurs de la Transformation de l'Âme.
 
 En songeant à cela, Wang Lin fut transporté par l'excitation. Il rangea le drapeau achevé et sortit celui qui était endommagé. Après l'avoir examiné, il renonça à y placer la dernière restriction. L'usage principal de ce second drapeau serait d'invoquer la foudre de la rétribution divine.
 
@@ -25,7 +25,7 @@ On pourrait dire que Wang Lin s'était préparé de toutes les manières possibl
 
 Il déploya son Sens Divin tout au long de sa descente, mais ne décela aucune présence. Cela le troubla profondément, car il se souvenait qu'en descendant aussi loin la dernière fois, il avait déjà croisé plusieurs bêtes spirituelles.
 
-Après une courte réflexion, il poursuivit sa descente. Il atteignit bientôt l'endroit où le dragon de dix mille mètres était tombé la fois précédente. Là, Wang Lin hésita. S'il continuait à descendre, il risquait de tomber sur des bêtes désolées. Mais n'ayant rencontré aucune bête spirituelle sur tout le chemin parcouru, il craignait que ce voyage ne soit une perte de temps. Après avoir pesé le pour et le contre, il forma un sceau pour quitter les terres de l'Ancien Dieu.
+Après une courte réflexion, il poursuivit sa descente. Il atteignit bientôt l'endroit où le dragon de trente-trois kilomètres était tombé la fois précédente. Là, Wang Lin hésita. S'il continuait à descendre, il risquait de tomber sur des bêtes désolées. Mais n'ayant rencontré aucune bête spirituelle sur tout le chemin parcouru, il craignait que ce voyage ne soit une perte de temps. Après avoir pesé le pour et le contre, il forma un sceau pour quitter les terres de l'Ancien Dieu.
 
 Après tout, s'aventurer plus loin était bien trop dangereux; Wang Lin ne voulait pas risquer autant pour une simple bête spirituelle. Cependant, au moment même où il formait le sceau, deux yeux semblables à de grandes perles apparurent dans l'obscurité sous lui, puis un dragon rouge surgit soudainement.
 
@@ -71,7 +71,7 @@ Six jours plus tard, le Piège à Bêtes commença à absorber davantage d'éner
 
 Après avoir confirmé les cycles d'aspiration du trésor, Wang Lin se leva et se prépara à quitter les Étoiles Brisées du Chaos. Cependant, la moustique poussa des rugissements anxieux qui attirèrent son attention. Il vola rapidement vers l'origine des lignes dorées et s'arrêta net. Pour une raison quelconque, une fissure de la taille d'un poing était réapparue.
 
-Wang Lin observa la faille, puis son âme originelle quitta son corps pour pénétrer dans la brèche. En un instant, il saisit des dizaines de lignes dorées, mais alors qu'il s'apprêtait à se retirer, une entité des centaines de fois plus épaisse que les lignes dorées s'étira depuis l'objet semblable à un soleil. Dès l'apparition de cette ligne massive, le soleil doré sembla rétrécir d'un cran. Partout où elle passait, les autres lignes dorées l'évitaient. Elle chargea directement vers Wang Lin et, avant même qu'elle ne soit proche, il sentit une force destructrice s'approcher.
+Wang Lin observa la faille, puis son âme originelle quitta son corps pour pénétrer dans la brèche. En un instant, il saisit des dizaines de lignes dorées, mais alors qu'il s'apprêtait à se retirer, une entité des centaines de fois plus épaisse que les lignes dorées s'étira depuis l'objet semblable à un soleil. Dès l'apparition de cette ligne massive, le soleil doré sembla rétrécir de moitié. Partout où elle passait, les autres lignes dorées l'évitaient. Elle chargea directement vers Wang Lin et, avant même qu'elle ne soit proche, il sentit une force destructrice s'approcher.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il étudiait l'objet. Il n'attaqua pas, mais retira promptement son âme originelle dans son corps pour s'échapper au loin. La moustique sembla remarquer quelque chose en fixant les lignes dorées dans la main de Wang Lin et le suivit.
 

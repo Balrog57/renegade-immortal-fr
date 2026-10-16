@@ -13,7 +13,7 @@ Au centre de ce nuage, d'innombrables membres du clan chantaient à l'unisson. L
 
 Cette énergie montait rapidement vers la voûte céleste.
 
-Toutes les deux heures, ces membres du clan épuisaient toute la puissance des tatouages contenus dans leur corps, puis un autre groupe prenait leur relève pour poursuivre le chant.
+Toutes les quatre heures, ces membres du clan épuisaient toute la puissance des tatouages contenus dans leur corps, puis un autre groupe prenait leur relève pour poursuivre le chant.
 
 Ce processus durait depuis plusieurs mois. Ce jour-là, un homme d'âge moyen vêtu d'une robe grise apparut. Il ne portait aucun tatouage sur son corps, à l'exception d'une feuille violette sur sa joue gauche qui émettait une lueur pourpre.
 
@@ -35,7 +35,7 @@ Le vieil homme hocha la tête et se tut.
 
 « Les membres de la Secte des Cadavres sont là. » L'homme d'âge moyen regarda au loin.
 
-Un immense cercueil approchait rapidement de la bordure est du continent Suzaku. Trois personnes étaient assises sur le couvercle. Elles avaient toutes les cheveux blancs. À l'exception de celui du milieu, qui se trouvait au début du stade de Transformation de l'Âme, les deux autres étaient à la fin de la Formation de l'Âme.
+Un immense cercueil, long d'une centaine de mètres, approchait rapidement de la bordure est du continent Suzaku. Trois personnes étaient assises sur le couvercle. Elles avaient toutes les cheveux blancs. À l'exception de celui de devant, qui se trouvait au début du stade de Transformation de l'Âme, les deux autres étaient à la fin de la Formation de l'Âme.
 
 Assis sur ce cercueil qui filait à toute allure, ils arrivèrent en un clin d'œil devant le nuage noir. Les symboles de tatouage dans le nuage scintillèrent pour leur barrer la route.
 
@@ -71,7 +71,7 @@ Son corps émanait une aura bleue, un froid glacial capable de figer toute chose
 
 Le Wang Lin actuel était entièrement nu, translucide et luisant. Ses yeux n'étaient plus limpides, mais empreints d'une aura maléfique.
 
-Les yeux de Qian Feng étaient également emplis de noirceur, mais comparés à ceux de Wang Lin, ils n'étaient qu'un feu de camp face au soleil.
+Les yeux de Qian Feng étaient également emplis de noirceur, mais comparés à ceux de Wang Lin, ils n'étaient que des lucioles face à la pleine lune.
 
 Cette aura maléfique dans le regard de Wang Lin ne pouvait être résumée qu'en un mot: l'arrogance!
 
@@ -135,7 +135,7 @@ Wang Lin finit par dire: « Disparais! »
 
 Zhuque Zi s'enfuit rapidement sans se retourner. En un clin d'œil, il se changea en un rayon de lumière et disparut.
 
-À cent mille kilomètres de là, Zhuque Zi serra les dents et poussa un rugissement vers le ciel.
+À cinquante mille kilomètres de là, Zhuque Zi serra les dents et poussa un rugissement vers le ciel.
 
 « Deuxième génération de Suzaku! Comment peut-il être encore en vie?! Comment peut-il toujours être sur la planète Suzaku?! Comment est-ce possible!?!?! La troisième génération de Suzaku avait comploté contre lui en attirant des cultivateurs étrangers. Comment n'est-il pas mort!?!?! »
 

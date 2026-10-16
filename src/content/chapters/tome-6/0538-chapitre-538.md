@@ -8,7 +8,7 @@ slug: raffinement-pourpre
 ---
 À l'extérieur de la vallée, Wang Lin leva la main droite et la masse terrestre gigantesque s'envola vers le ciel.
 
-Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de trente pieds flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
+Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de trente-trois mètres flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
 
 Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte de la Raffination des Âmes. Puisque tous les habitants de la vallée pratiquaient le sortilège de raffinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
 
@@ -80,7 +80,7 @@ Après plusieurs tentatives, son corps fut trempé de sueur. Ses veines saillaie
 
 « Je refuse d'abandonner! » Il prit une profonde inspiration et continua de cultiver malgré le supplice. Cette fois, alors qu'il absorbait l'énergie spirituelle démoniaque, il eut l'impression qu'une montagne gigantesque s'abattait sur lui; il cracha du sang avant de perdre connaissance.
 
-À l'extérieur de la vallée, la masse terrestre de cinq kilomètres était toujours en cours de raffinage par les flammes, et la lueur verte protégeant le terrain faiblissait peu à peu.
+À l'extérieur de la vallée, la masse terrestre de cinq kilomètres était toujours en cours de raffinage par les flammes depuis trois jours et trois nuits, et la lueur verte protégeant le terrain faiblissait peu à peu.
 
 Au sein de cette zone, le désespoir régnait alors que l'ombre de la mort planait sur eux. Ils regardaient le brasier s'étendre, brûlant jusqu'à leurs derniers espoirs.
 

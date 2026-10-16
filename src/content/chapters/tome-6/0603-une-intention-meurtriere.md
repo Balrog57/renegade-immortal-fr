@@ -120,7 +120,7 @@ Yin Dong se sentit fier en percevant l'intention meurtrière dans l'air. Cependa
 
 Cette puissante intention meurtrière fut immédiatement perçue par Wang Lin, dont les sens étaient exacerbés par son état actuel. Cette aura était si forte qu'elle provoqua, dans l'esprit dément de Wang Lin, une multiplication par plusieurs de son intention de combat.
 
-Il ne ralentit nullement et pressa le pas. Yin Dong laissa échapper un reniflement méprisant et s'apprêtait à exécuter une technique, mais à cet instant précis, Wang Lin leva soudainement la tête. Ses yeux brillaient d'une lueur rouge effrayante alors qu'il levait la main pour pointer l'avant. Instantanément, un éclat noir, issu du doigt de la mort, jaillit.
+Il ne ralentit nullement et pressa le pas. Yin Dong laissa échapper un reniflement méprisant et s'apprêtait à exécuter une technique, mais à cet instant précis, Wang Lin leva soudainement la tête. Ses yeux brillaient d'une lueur rouge effrayante alors qu'il levait la main pour pointer l'avant. Instantanément, un éclat noir large d'une dizaine de mètres, issu du doigt de la mort, jaillit.
 
 Yin Dong n'eut même pas le temps d'esquiver qu'il fut enveloppé par cette lumière noire; son corps se flétrit aussitôt avant de s'effondrer.
 

@@ -10,7 +10,7 @@ L'individu qui se tenait là mesurait plus de 33 mètres de haut. Il dégageait 
 
 Ses cheveux noirs flottaient derrière sa tête sans qu'un souffle de vent ne les agite. Son visage était d'une grande beauté, aux traits tranchants. Il ressemblait à un démon, particulièrement avec son expression impitoyable.
 
-Ses yeux brillaient d'un rouge intense et fixaient le Seigneur Démon des Six Désirs. Après avoir réfléchi un instant, il dit lentement: « Yi Er, tu te souviens encore de ton maître. Très bien. Mais mon nom est désormais le Dieu Démon Ti Su. »
+Ses yeux brillaient d'un rouge intense et fixaient le Seigneur Démon des Six Désirs. Après avoir réfléchi un instant, il dit lentement: « Yi Er, tu te souviens encore de ton maître. Très bien. Mais mon nom est désormais le Dieu Démon Tu Si. »
 
 En entendant ces deux mots, le cœur du Seigneur Démon des Six Désirs fut ébranlé; il n'en croyait pas ses yeux. S'il s'était agi d'un simple homme ressemblant à son maître, il n'aurait pas été aussi bouleversé, mais cet individu l'appelait par un surnom que seuls quelques rares initiés connaissaient. Hormis son maître, le Magicien Démon Céleste, qui d'autre pouvait être?
 
@@ -42,7 +42,7 @@ Dans l'explosion du corps, une brume de sang se dispersa soudainement et envelop
 
 Toutes les techniques du Seigneur Démon des Six Désirs lui avaient été personnellement enseignées. Sa méthode de culture était la Méthode de Culture Démoniaque Céleste Mystérieuse. Les hommes possèdent six désirs innés. Cette méthode consistait à apprendre à contrôler ses propres désirs pour ensuite s'en servir afin d'influencer ceux d'autrui à ses propres fins.
 
-Comparée à la technique de la malédiction mortelle, elle n'était que légèrement moins cruelle. L'aspect crucial de cette méthode était la maîtrise de soi. Si l'on parvenait à contrôler quatre désirs, on atteignait le stade de la Formation de l'Âme; si l'on maîtrisait les six, on atteignait celui de la Transformation de l'Âme.
+Comparée à la technique de la malédiction mortelle, elle n'était que légèrement moins cruelle. L'aspect crucial de cette méthode était la maîtrise de soi. Si l'on parvenait à contrôler quatre désirs, on atteignait le stade de la Transformation de l'Âme; si l'on maîtrisait les six, on atteignait le stade supérieur.
 
 Le Seigneur Démon des Six Désirs avait déjà pris le contrôle de cinq de ses désirs innés. Le dernier, qu'il n'avait pas encore dompté, était l'obsession. Malgré tous ses efforts, il ne parvenait pas à maîtriser ce désir. Sa seule obsession était sa propre culture. Dès son premier jour d'entraînement, il s'était promis d'atteindre le stade de la Transformation de l'Âme.
 
@@ -84,16 +84,16 @@ Wang Lin était presque à la sortie quand son visage se décomposa. Il perçut 
 
 Alors que le Bossu Meng tentait de saisir l'arme, le tourbillon se relâcha brusquement. Dans un bruit sec, huit épines se détachèrent de l'épée et furent projetées vers lui à une vitesse extrême. Si l'on avait analysé la toxine sur l'épée, on aurait constaté qu'elle était dérisoire comparée à celle des épines. Lors de la fabrication de cette arme, Wang Lin avait porté une attention particulière aux 99 épines. Presque toute la toxicité était concentrée dans ces dernières; par conséquent, la dose contenue dans les huit épines projetées était phénoménale.
 
-Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le Poison Wang Ding. Ce poison étant originellement son propre trésor, il ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
+Contre n'importe qui d'autre, l'attaque aurait été fatale. Mais le Bossu Meng était un cultivateur de poison. La toxine principale des épines était le poison du Chaudron du Roi Poison. Ce poison étant originellement son propre trésor, il ne put lui nuire. Lorsqu'il avait été percé par l'épée plus tôt, il n'avait fallu qu'un instant pour qu'il absorbe la substance.
 
 Cependant, même si le poison était inoffensif, la force de percussion des huit épines était comparable à celle de huit épées volantes. N'importe qui d'autre aurait vu sa paume transpercée, mais le corps démoniaque du Bossu Meng avait atteint une dureté inimaginable. Lorsque les épines frappèrent sa main, elles se brisèrent en deux sous l'impact.
 
-Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de 3,3 kilomètres du Bossu Meng.
+Bien que brisées, les épines ralentirent la main qui tendait vers l'arme. À ce moment-là, l'épée volante parvint à s'échapper. Le Bossu Meng ne put saisir que le bord de la lame avant qu'elle ne disparaisse de sa main. Mais sa culture était si puissante qu'en la touchant, il réussit à ternir la couleur de l'épée et à y provoquer une fissure. L'arme disparut rapidement sans laisser de trace, s'éloignant à plus de trois cent trente mètres du Bossu Meng.
 
 Le visage du Bossu Meng s'assombrit. Fixant la direction de l'échappée, il agita la main droite et déchira l'espace. Un Sens Divin extrêmement autoritaire jaillit de la faille, balaya les environs puis enveloppa l'intégralité du troisième essai, tout en contournant soigneusement l'endroit où le dévoreur d'âmes dormait.
 
 « Qu'est-ce que c'est? » lança le Sens Divin par un message froid.
-Le Bossu Meng s'agenouilla immédiatement dès l'apparition de cette présence et dit: « Maître, un cultivateur est trop proche de la sortie. Je sollicite votre aide. »
+Le Bossu Meng s'agenouilla immédiatement dès l'apparition de cette présence et dit: « Messager, un cultivateur est trop proche de la sortie. Je sollicite votre aide. »
 « Très bien », répondit le Sens Divin.
 
 Entendant cela, le Bossu Meng chargea aussitôt vers Wang Lin. Il était certain qu'avec l'aide du messager, ce gamin au stade intermédiaire de la Formation du Noyau ne pourrait jamais atteindre la sortie.
@@ -115,7 +115,7 @@ Cette grande âme errante osait attaquer Wang Lin, qui était lui-même un dévo
 À cet instant, l'attaque de l'âme errante frappa Wang Lin, le laissant stupéfait. Cela surprit grandement l'assaillant.
 « Un dévoreur d'âmes! Tu... tu es un dévoreur d'âmes! » s'exclama l'âme errante. Malgré la surprise dans sa voix, une pointe d'excitation s'en dégageait.
 
-Wang Lin, bien que dubitatif, commença à dévorer l'âme qui pénétrait son corps. L'âme errante retira immédiatement son Sens Divin, mais une partie d'elle avait déjà été absorbée par Wang Lin. Il se lécha les lèvres. Il sentait clairement que son Esprit du Royaume Ji augmentait rapidement, tout en éprouvant un léger regret: s'il avait pu dévorer l'âme entière, sa progression aurait été bien plus prodigieuse.
+Wang Lin, bien que dubitatif, commença à dévorer l'âme qui pénétrait son corps. L'âme errante retira immédiatement son Sens Divin, mais une partie d'elle avait déjà été absorbée par Wang Lin. Il se lécha les lèvres. Il sentait clairement que son Sens Divin du Royaume Ji augmentait rapidement, tout en éprouvant un léger regret: s'il avait pu dévorer l'âme entière, sa progression aurait été bien plus prodigieuse.
 
 Après la fuite de la grande âme, celle-ci utilisa une méthode complexe pour ouvrir une faille et quitter le troisième essai. À ce moment-là, dans la Mer de Sang du Dieu Démon, une fissure apparut dans le ciel par laquelle l'âme surgit. Elle se dirigea rapidement vers le pilier le plus haut qui touchait les cieux. En s'approchant, son esprit prit la forme d'un jeune homme. Il s'agenouilla dans les airs, l'air affaibli mais le visage rayonnant d'excitation.
 
@@ -127,7 +127,7 @@ Simultanément, tous les cultivateurs sur les piliers, ainsi que ceux assis sur 
 « Un dévoreur d'âmes... En es-tu sûr? » La voix de l'homme était basse, mais empreinte d'une majesté écrasante.
 
 L'homme aux cheveux longs formé par l'âme répondit: « Maître, je suis certain que cet individu est un dévoreur d'âmes. Il se trouve près de la sortie du troisième essai. Si vous voulez le capturer, vous devez partir maintenant! »
-« Un dévoreur d'âmes... » Les yeux de l'homme aux cheveux rouges devinrent ternes. D'un geste de la main, il ouvrit une faille de milliers de pieds de long. « Dieu Démon Ti Su, vous tous, allez capturer ce dévoreur d'âmes et ramenez-le! » dit l'homme rougeaud avant de baisser à nouveau la tête et de s'enfoncer dans le silence.
+« Un dévoreur d'âmes... » Les yeux de l'homme aux cheveux rouges devinrent ternes. D'un geste de la main, il ouvrit une faille de plusieurs kilomètres de long. « Dieu Démon Tu Si, vous tous, allez capturer ce dévoreur d'âmes et ramenez-le! » dit l'homme rougeaud avant de baisser à nouveau la tête et de s'enfoncer dans le silence.
 
 Aussitôt, tous les cultivateurs de la Mer de Sang sautèrent de leurs piliers ou du sol pour disparaître dans la faille. La grande âme les suivit également. La mer de sang se retrouva soudainement vide. Seul l'homme aux cheveux rouges resta. De sa main rouge, il écrivit doucement une série de mots sur le sol:
 
@@ -145,4 +145,4 @@ Aussitôt, tous les cultivateurs de la Mer de Sang sautèrent de leurs piliers o
 
 « L'Ancien Dieu Tu Si... cet homme est véritablement un cultivateur d'une immense sagesse. Je l'admire profondément pour avoir conçu une telle méthode.
 
-« Jamais je n'aurais pensé rester piégé dans un tel endroit pendant des milliers d'années... »
+« Jamais je n'aurais pensé rester piégé dans un tel endroit pendant mille ans... »

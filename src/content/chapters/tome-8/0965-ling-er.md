@@ -8,7 +8,7 @@ slug: ling-er
 ---
 Wang Lin ouvrit la porte et vit Maître Yi Chen qui se tenait à l'extérieur avec un sourire.
 
-« Cher cultivateur est trop aimable. Je vous en prie, entrez. » Wang Lin sourit.
+« Cher cultivateur, vous êtes trop aimable. Je vous en prie, entrez. » Wang Lin sourit.
 
 Au nord de cette cour, se dressait un pavillon. Bien que de taille modeste, il était d'une grande beauté. Façonné dans le jade céleste, il disposait d'une formation d'accumulation d'énergie spirituelle afin de garantir un environnement propice à la culture.
 
@@ -30,7 +30,7 @@ Wang Lin esquissa un léger sourire. Avec sa ruse naturelle, il avait immédiate
 
 Autrement, ils n'auraient pas amené une junior de niveau Âme Naissante ici.
 
-Une fois tout le monde installé, Maître Yi Chen appela la jeune fille. Il sourit en la présentant à Wang Lin: « Frère Wang, voici une descendante de ma famille. Cette enfant manque de maturité, mais elle devait être présente. Je vous prie de bien vouloir veiller sur elle à l'avenir. »
+Une fois tout le monde installé, Maître Yi Chen appela la jeune fille. Il sourit en la présentant à Wang Lin: « Frère Wang, voici une descendante de ma famille. Cette enfant manque de maturité, mais elle a insisté pour venir. Je vous prie de bien vouloir veiller sur elle à l'avenir. »
 
 Tout en parlant, il tourna un regard sérieux vers la jeune fille: « Ling Er, voici Senior Wang, un puissant cultivateur. Même ce vieil homme doit lui témoigner le plus grand respect. C'est une chance inouïe pour toi de le rencontrer. »
 
@@ -70,7 +70,7 @@ Sa voix était encore plus mélodieuse qu'auparavant, mais cela n'eut aucun effe
 
 Lorsque Maître Yi Chen vit les clochettes, sa perspicacité lui permit de comprendre immédiatement qu'elles n'étaient pas ordinaires. Il soupira, se leva et joignit les mains devant Wang Lin: « Cher cultivateur Wang, ce vieil homme vous remercie infiniment. »
 
-Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour stocker le Sens Divin afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
+Il se sentait profondément embarrassé. C'était à eux trois d'avoir commis une maladresse, et pourtant, leur junior recevait maintenant de magnifiques présents de la part de l'autre partie. Après s'être rassis, il réfléchit un instant, puis sortit une pierre noire: « Cher cultivateur Wang, veuillez accepter cette Pierre du Ciel Obscur. Lorsque les cultivateurs atteignent notre niveau, nous avons besoin de ces pierres pour y confier notre âme d'origine afin de créer des avatars ou pour préserver des sorts puissants. Si vous refusez, ce vieil homme en éprouvera une grande honte. »
 
 Wang Lin sourit en prenant la pierre et la parcourut de son Sens Divin. Bien que son expression restât neutre, il fut intérieurement impressionné. Cette pierre noire était très étrange, parsemée de minuscules orifices dégageant une force d'aspiration. Non seulement elle pouvait stocker et préserver le Sens Divin, mais elle permettait aussi de préparer un sort à l'avance. Elle était similaire aux talismans du Clan des Immortels Délaissés. De plus, on pouvait créer un avatar illusoire par la simple pensée. C'était un trésor fort pratique.
 
@@ -80,9 +80,9 @@ Bien que ce ne fût pas un objet d'une valeur inestimable, il n'en demeurait pas
 
 Ce dernier se leva, joignit les mains devant Wang Lin et rit: « Le nom de Maître Yi Long n'est rien face au Frère Wang. Vous pouvez simplement m'appeler par mon nom. »
 
-« Et voici mon troisième frère, Zhen Xinghan, surnommé Maître Yi Xing. »
+« Et voici mon troisième frère, Wei Xinghan, surnommé Maître Yi Xing. »
 
-L'homme d'âge moyen en robe violette avait le niveau de culture le plus bas. Bien qu'il fût au stade initial du Scruteur du Nirvana, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement: « Le Frère Wang peut simplement m'appeler par mon nom. »
+L'homme d'âge moyen en robe violette avait le niveau de culture le plus bas. Bien qu'il fût au stade intermédiaire du Scruteur du Nirvana, il était manifestement moins fort que Maître Yi Long. Il se leva et salua respectueusement: « Le Frère Wang peut simplement m'appeler par mon nom. »
 
 « Je me demande quel est le surnom du Frère Wang? » demanda Maître Yi Chen après les présentations.
 
@@ -106,4 +106,4 @@ Le temps s'écoula lentement. Tandis qu'ils discutaient, la lune monta haut dans
 
 « La voie du Dao nous sépare des mortels. Le cultivateur doit apprendre à s'isoler de toute chose pour accomplir le Grand Dao des Cieux. Hélas, bien que ce vieil homme puisse trancher tous les liens, le mot "famille" est une chose que je ne peux couper. »
 
-« Pourquoi devriez-vous la trancher? Les cultivateurs osent défier les cieux eux-mêmes, pourquoi céder à une pensée aussi fugitive? J'ai entendu dire qu'il existe des régions centrées sur la culture familiale; cela signifie donc que ces cultivateurs ont des lignées. Même parmi eux, de puissants êtres ont émergé. Tout n'est qu'une question d'état d'esprit. »
+« Pourquoi devriez-vous la trancher? Les cultivateurs osent défier les cieux eux-mêmes, pourquoi redouter ce lien du cœur? J'ai entendu dire qu'il existe des régions centrées sur la culture familiale; cela signifie donc que ces cultivateurs ont des lignées. Même parmi eux, de puissants êtres ont émergé. Tout n'est qu'une question d'état d'esprit. »

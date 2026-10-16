@@ -48,7 +48,7 @@ Son corps changea progressivement. Ses jambes s'épaissirent et s'allongèrent, 
 
 Aucune douleur ne marquait son visage; il n'y avait que le calme et la colère dans ses yeux.
 
-Son corps grandissait sans cesse. Une demi-heure d'encens plus tard, un géant de plus de trois cents mètres de haut apparut!
+Son corps grandissait sans cesse. Une demi-queue d'encens plus tard, un géant de plus de trois cents mètres de haut apparut!
 
 Son corps dégageait une aura sauvage et sa peau était couverte de runes grossières et subtiles. L'éclat de ces runes lui conférait une majesté inimaginable.
 
@@ -84,13 +84,13 @@ Alors qu'il progressait dans l'espace, ses yeux se plissèrent. Il aperçut plus
 
 Ces rochers étaient communs dans l'espace.
 
-Sans ralentir, il avança et saisit un bloc de trente mètres de large. Dans un rugissement, la pierre fut attirée par une force générée par son énergie spirituelle, et il poursuivit sa route.
+Sans ralentir, il avança et saisit un bloc de 330 mètres de large. Dans un rugissement, la pierre fut attirée par une force générée par son énergie spirituelle, et il poursuivit sa route.
 
 Après son passage, deux cultivateurs sortirent d'un fragment rocheux légèrement plus petit. Ils tremblaient de peur, fixant avec stupéfaction le corps original de Wang Lin disparaître au loin.
 
 « Ceci... Qu'est-ce que c'est que ça... » Les deux hommes se regardèrent. Leurs crânes picotaient alors qu'ils s'enfuyaient précipitamment.
 
-Tout au long de son chemin, chaque fois que Wang Lin croisait ces rochers, il choisissait ceux qui mesuraient environ trente mètres. Il les saisissait et utilisait son énergie spirituelle pour les traîner derrière lui. C'étaient ses armes. Dans ses souvenirs, les Anciens Dieux aux premiers stades de leur culture ne possédaient pas beaucoup de sorts et aimaient utiliser ces pierres comme armes. Cela semblait facile à manier, et plus il en aurait, mieux ce serait!
+Tout au long de son chemin, chaque fois que Wang Lin croisait ces rochers, il choisissait ceux qui mesuraient environ 330 mètres. Il les saisissait et utilisait son énergie spirituelle pour les traîner derrière lui. C'étaient ses armes. Dans ses souvenirs, les Anciens Dieux aux premiers stades de leur culture ne possédaient pas beaucoup de sorts et aimaient utiliser ces pierres comme armes. Cela semblait facile à manier, et plus il en aurait, mieux ce serait!
 
 Wang Lin se dirigea vers la Planète Sanguine, laissant derrière lui une traînée de rochers qui ressemblait à une rivière le suivant. Il portait en lui une intention meurtrière implacable à mesure qu'il approchait!
 

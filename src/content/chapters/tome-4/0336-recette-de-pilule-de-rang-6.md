@@ -50,7 +50,7 @@ Wang Lin sourit. Sans même regarder le jade, il s'écria: « J'offre 20 000 pie
 
 Cela provoqua la stupéfaction générale, mais une voix s'éleva alors du centre de la salle au troisième étage. Une voix féminine annonça: « 30 000 pierres spirituelles de haute qualité. »
 
-Wang Lin fronça les sourcils. Qiu Siping serra les dents et dit: « Frère Wang, j'ai 40 000 pierres spirituelles de haute qualité. »
+Wang Lin fronça les sourcils. Qiu Siping serra les dents et dit: « Frère Wang, j'ai 4 000 pierres spirituelles de haute qualité. »
 
 « Ce n'est pas nécessaire! » répondit calmement Wang Lin.
 

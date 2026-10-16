@@ -10,7 +10,7 @@ slug: un-million-de-massacres
 
 Ses cheveux flottaient dans l'air tandis qu'il progressait dans la brume. Le bruit de ses pas résonnait à chaque enjambée.
 
-La ville dissimulée sous le brouillard était d'un vide effrayant. Il était difficile d'imaginer qu'il y a cent ans, sa population n'était pas moindre que celle de la capitale du Pays des Démons Célestes.
+La ville dissimulée sous le brouillard était d'un vide effrayant. Il était difficile d'imaginer qu'il y a cent ans, sa prospérité n'avait rien à envier à celle de la Ville Démoniaque Céleste.
 
 Pourtant, aujourd'hui, elle était totalement morte!
 
@@ -80,7 +80,7 @@ Ces traînées d'énergie étaient bien plus vigoureuses qu'il y a cent ans. L'a
 
 « Divisez! » Une lueur rouge brilla dans les yeux de Wang Lin. Le cœur du massacre et l'énergie de massacre fusionnèrent, devenant le noyau même de la Voie du Massacre!
 
-Cent filaments d'énergie de massacre couvraient déjà le ciel, mais sur un seul mot de Wang Lin, ils se scindèrent immédiatement en deux. Les cent mille filaments devinrent deux cent mille!
+Cent mille filaments d'énergie de massacre couvraient déjà le ciel, mais sur un seul mot de Wang Lin, ils se scindèrent immédiatement en deux. Les cent mille filaments devinrent deux cent mille!
 
 Et ce n'était pas fini!
 

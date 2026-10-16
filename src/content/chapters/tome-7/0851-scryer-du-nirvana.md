@@ -26,7 +26,7 @@ Malgré cela, sa vitesse surpassait de loin celle des cultivateurs incapables de
 
 Un puissant sentiment de crise envahit les environs. Le regard de Wang Lin se fit froid et son corps vacilla. L'espace dans lequel il se trouvait s'effondra brusquement dans un fracas, propageant une onde de choc. Calme, Wang Lin fixa l'horizon d'un œil glacial.
 
-Il vit un nuage rouge emplir le lointain. En un instant, ce nuage se rassembla devant lui et prit la forme d'un homme d'âge mûr.
+Il vit un nuage rouge emplir le lointain. En un instant, ce nuage se rassembla à environ 330 mètres de lui et prit la forme d'un homme d'âge mûr.
 
 « Es-tu Xu Mu? » L'homme tenait un miroir dans sa main droite et fixait Wang Lin avec froideur.
 
@@ -92,7 +92,7 @@ C'était un visage démoniaque doté de deux cornes. Une fois apparu, il fixa le
 
 Ce cri n'avait aucun son, mais il fit trembler les nuages de tribulation et provoqua l'effondrement d'une partie d'entre eux. Cependant, les fragments qui tombaient se reformaient instantanément à une vitesse encore plus grande.
 
-En un clin d'œil, la zone fut saturée par un nuage de tribulation divine de plus de 100 000 pieds de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
+En un clin d'œil, la zone fut saturée par un nuage de tribulation divine de plus de 33 kilomètres de large. Un éclair rouge descendit du ciel à une vitesse inimaginable.
 
 La douleur sur le visage de Yao Yun s'accentua. L'ombre démoniaque qui l'entourait bondit immédiatement hors de son corps, se précipitant vers l'éclair rouge pour tenter de le dévorer.
 

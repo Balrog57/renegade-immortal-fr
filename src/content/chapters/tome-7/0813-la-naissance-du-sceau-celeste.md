@@ -78,11 +78,11 @@ Il avait placé une quantité indéterminée de Runes de Scellement lorsque le f
 
 Trois jours plus tard, Wang Lin se posa au sol et commença immédiatement à cultiver. Son visage était légèrement pâle. Durant ces trois jours, il avait utilisé son énergie d'origine sans relâche. Même avec sa culture, il avait atteint ses limites.
 
-Le fragment de mille pieds s'était réduit à environ huit cents pieds. Il émettait toujours une lueur dorée, bien que plus sombre désormais.
+Le fragment de 330 mètres s'était réduit à environ 264 mètres. Il émettait toujours une lueur dorée, bien que plus sombre désormais.
 
 Après s'être reposé plusieurs heures, Wang Lin ouvrit les yeux. Son corps se remit en mouvement et il recommença à tracer des runes.
 
-Au fil du temps, Wang Lin prit sept temps de repos. Le fragment passa de mille pieds à cinq cents, puis quatre cents, puis trois cents, jusqu'à n'atteindre plus que 330 mètres de large.
+Au fil du temps, Wang Lin prit sept temps de repos. Le fragment passa de 264 mètres à 165 mètres, puis 130 mètres, puis 100 mètres, jusqu'à n'atteindre plus que 33 mètres de large.
 
 La lumière dorée qu'il dégageait devint encore plus intense. De loin, il ressemblait à un soleil d'or dont l'éclat était éblouissant.
 
@@ -90,15 +90,15 @@ En contemplant son trésor, la fatigue de Wang Lin disparut instantanément. Il 
 
 Cinq jours plus tard, Wang Lin atterrit au sol. Son visage était livide et ses pas étaient instables, mais l'excitation dans son regard avait atteint son paroxysme!
 
-« À partir d'aujourd'hui, ceci est un trésor que j'ai moi-même raffiné. Je l'appellerai le Sceau Céleste! » La voix de Wang Lin résonna dans les cieux. Devant lui se trouvait un sceau de trois pouces qui émettait une lumière aveuglante. Si un mortel l'avait vu, la lueur dorée aurait percé ses yeux et détruit son esprit.
+« À partir d'aujourd'hui, ceci est un trésor que j'ai moi-même raffiné. Je l'appellerai le Sceau Céleste! » La voix de Wang Lin résonna dans les cieux. Devant lui se trouvait un sceau de dix centimètres qui émettait une lumière aveuglante. Si un mortel l'avait vu, la lueur dorée aurait percé ses yeux et détruit son esprit.
 
 Même un cultivateur de bas niveau sentirait son esprit vaciller et une douleur fulgurante envahir son corps, comme s'il était transpercé par d'innombrables épées. Même un cultivateur de culture avancée aurait l'impression que son âme originelle était en train d'être scellée rien qu'en le regardant.
 
-Le petit sceau de trois pouces brillait intensément, chargé d'une riche énergie spirituelle céleste et entouré d'une puissante aura de scellement.
+Le petit sceau de dix centimètres brillait intensément, chargé d'une riche énergie spirituelle céleste et entouré d'une puissante aura de scellement.
 
 Ce sceau fut le fruit d'un mois entier de raffinage. Wang Lin avait approximativement calculé qu'il contenait pas moins de 600 000 Runes de Scellement!
 
-Plus de 600 000 runes avaient été fusionnées dans ce fragment de mille pieds, avant d'être condensées en un sceau de trois pouces. Wang Lin était extrêmement confiant quant à la puissance contenue dans cet objet.
+Plus de 600 000 runes avaient été fusionnées dans ce fragment de 330 mètres, avant d'être condensées en un sceau de dix centimètres. Wang Lin était extrêmement confiant quant à la puissance contenue dans cet objet.
 
 En contemplant le Sceau Céleste, ses yeux s'illuminèrent et sa main se remit à bouger pour y placer des restrictions. L'énergie spirituelle céleste du sceau fut progressivement dissimulée, et même la majeure partie de son aura de scellement fut cachée.
 

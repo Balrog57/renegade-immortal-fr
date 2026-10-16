@@ -18,7 +18,7 @@ Wang Lin resta sur place, regardant froidement Sun Tai disparaître à l'horizon
 
 Le niveau de culture de ce Sun Tai était trop élevé. Ce type d'esclave était une chose que Wang Lin ne voudrait jamais avoir. Il semblait même que Zhou Yi n'ait pas réalisé que Sun Tai possédait une quatrième âme.
 
-Wang Lin pensa secrètement: « Même s'il possède une quatrième âme, si sa troisième âme venait à mourir, son niveau de culture chuterait considérablement. Cela pourrait même laisser une blessure cachée. Si tel est le cas, Sun Tai ne sera pas effrayé par mes simples paroles. » Il se retourna et s'envola vers Chi Hu et la boussole.
+Wang Lin pensa secrètement: « Même s'il possède une quatrième âme, si sa troisième âme venait à mourir, son niveau de culture chuterait considérablement. Cela pourrait même laisser une blessure cachée. Sinon, Sun Tai ne se serait pas laissé effrayer par mes simples paroles. » Il se retourna et s'envola vers Chi Hu et la boussole.
 
 Wang Lin savait que ce qui venait de se passer était extrêmement dangereux. S'il avait hésité un seul instant, il aurait été capturé par Sun Tai.
 
@@ -52,7 +52,7 @@ Wang Lin resta immobile et ne dit mot.
 
 Wang Lin regarda nonchalamment la boussole et dit: « Frère Chi Hu, n'avez-vous apporté qu'une seule boussole stellaire? »
 
-Chi Hu eut un sourire amer. « Frère Ceng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Secte des Démons Géants n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une cultivation en vase clos. »
+Chi Hu eut un sourire amer. « Frère Ceng, la boussole stellaire est un trésor très rare. Même dans tout le Suzaku, il y en a peu. Notre Clan des Démons Géants n'en possédait qu'une depuis notre arrivée sur cette planète, mais je l'ai brisée par ma faute. Quand je rentrerai, je serai certainement puni par une retraite en isolement. »
 
 Wang Lin sourit calmement et dit: « Frère Chi Hu, bien que nous ne nous connaissions pas depuis longtemps, nous avons traversé la vie et la mort ensemble. Je ne vous mentirai pas: je peux réparer cette boussole stellaire. »
 
@@ -104,7 +104,7 @@ La main droite de Wang Lin pointa vers le liquide d'or violet et le fusionna ave
 
 Les symboles complexes sur la boussole commencèrent à briller. Au fil du temps, de plus en plus de runes sur la boussole se mirent à clignoter frénétiquement.
 
-Chi Hu restait extrêmement vigilant, son sens divin déployé. Il pouvait remarquer tout ce qui se passait dans un rayon de 100 mètres autour d'eux. Il n'osait pas le déployer trop loin, car les dangers qui rôdaient dans ce vide étaient trop nombreux. S'il étendait trop son sens divin, cela ne ferait que servir de phare pour guider les créatures de ce lieu.
+Chi Hu restait extrêmement vigilant, son sens divin déployé. Il pouvait remarquer tout ce qui se passait dans un rayon de 330 mètres autour d'eux. Il n'osait pas le déployer trop loin, car les dangers qui rôdaient dans ce vide étaient trop nombreux. S'il étendait trop son sens divin, cela ne ferait que servir de phare pour guider les créatures de ce lieu.
 
 Chi Hu ne regardait absolument pas les sceaux et les techniques utilisés par Wang Lin. Il maintenait une zone de protection de 66 mètres autour de celui-ci où son sens divin n'intervenait pas.
 

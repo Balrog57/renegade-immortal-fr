@@ -20,7 +20,7 @@ Un éclair de froideur passa dans les yeux de Zhou Hai alors qu'il fixait le cul
 
 La lueur bleue de l'œil droit de Zhou Hai s'intensifia, mais à cet instant précis, un reniflement glacial retentit près d'eux.
 
-« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte des Cinq Pois. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un quadragénaire au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des renflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
+« Cela suffit! Nous sommes trois représentants de nos sectes respectives pour traquer le traître de la Secte des Cinq Pois. Nous ne pouvons nous battre entre nous! » L'homme qui venait de parler était un quadragénaire au milieu du stade de la Purification du Nirvana. Après son intervention, Zhou Hai et Zhao Yu se lancèrent des regards hostiles avant de laisser échapper des reniflements froids et de réprimer l'énergie originelle qu'ils s'apprêtaient à déchaîner.
 
 Cet homme d'âge moyen était un disciple central de la puissante secte de rang 6, la Secte du Sort Dao. En raison de la Vieille Femme Poisonneuse, il était extrêmement difficile pour la Secte des Cinq Pois de justifier la situation. Finalement, ils avaient payé un lourd tribut pour clore l'affaire. Ils avaient également dû envoyer des disciples centraux en guise d'otages sous prétexte de rechercher la Vieille Femme Poisonneuse; la véritable raison était de surveiller les membres de la Secte des Cinq Pois.
 
@@ -52,7 +52,7 @@ Si leurs chefs étaient dans cet état, il n'en était rien pour leurs disciples
 
 Li Xiangdong réprima ses pensées et esquissa un sourire de circonstance: « J'ignore les raisons qui amènent les sectes supérieures ici. Si la Secte de l'Origine peut vous être utile, il fera de son mieux pour vous assister. »
 
-Zhou Hai laissa échapper un renflement froid, s'avança et se posta devant un disciple de la Secte de l'Origine. Sa main bougea avec la rapidité de l'éclair et frappa le jeune homme. Le corps du disciple trembla et il cracha du sang avant d'être projeté au loin.
+Zhou Hai laissa échapper un reniflement froid, s'avança et se posta devant un disciple de la Secte de l'Origine. Sa main bougea avec la rapidité de l'éclair et frappa le jeune homme. Le corps du disciple trembla et il cracha du sang avant d'être projeté au loin.
 
 Cette scène soudaine provoqua un changement radical dans les expressions des cultivateurs de la Secte de l'Origine. Xu Yun, le regard chargé de colère, se précipita vers le disciple pour soutenir son corps.
 

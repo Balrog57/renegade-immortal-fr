@@ -48,7 +48,7 @@ Mais après un examen minutieux, on pouvait voir d'innombrables crevasses. Sa pe
 
 À ce moment-là, les yeux de Tu Si brillaient d'un éclat intense, fixant une planète au loin avec un air pensif. Peu après, sa main massive s'étendit légèrement dans un geste de saisie, faisant éclater la planète en poussière, qui disparut parmi les innombrables points lumineux.
 
-De ce nuage de poussière s'échappa une lumière dorée. D'un revers de main, la lumière changea de direction pour voler vers Tu Si. Bientôt, elle se posa dans sa paume et se mua en un pépite d'or.
+De ce nuage de poussière s'échappa une lumière dorée. D'un revers de main, la lumière changea de direction pour voler vers Tu Si. Bientôt, elle se posa dans sa paume et se mua en une pépite d'or d'environ trois mètres.
 
 L'objet était clairement une sorte de matériau. Il ressemblait à de l'or, sans en être. C'était de la pierre, mais pas tout à fait. Il présentait des stries noires. Tout en le tenant, Tu Si fit un autre geste de saisie de l'autre main et une autre planète explosa.
 
@@ -58,17 +58,17 @@ Ensuite, les deux mains de Tu Si s'activèrent et tous les matériaux fusionnèr
 
 Peu après, il ferma puis rouvrit les yeux. À l'instant où ses paupières s'ouvrirent, les huit étoiles sur son front commencèrent à tourner comme si elles étaient vivantes, projetant des rayons de lumière dorée dans le matériau.
 
-Après un long moment, une pyramide carrée aux reflets arc-en-ciel apparut dans sa main.
+Après un long moment, un chaudron carré aux reflets arc-en-ciel apparut dans sa main.
 
-Cette pyramide dégageait une aura de majesté. Un sentiment de puissance capable de détruire le monde s'en échappait, tandis que d'innombrables vortex apparaissaient à proximité. L'âme de Wang Lin ressentit une force d'aspiration en voyant la pyramide; un sentiment de terreur l'envahit alors qu'il la regardait nerveusement.
+Ce chaudron dégageait une aura de majesté. Un sentiment de puissance capable de détruire le monde s'en échappait, tandis que d'innombrables vortex apparaissaient à proximité. L'âme de Wang Lin ressentit une force d'aspiration en voyant le chaudron; un sentiment de terreur l'envahit alors qu'il le regardait nerveusement.
 
-Tu Si observa la pyramide et secoua la tête avec un air de pitié. Il la saisit, l'examina encore un instant, puis la lança vers une planète. Elle disparut à l'intérieur de celle-ci.
+Tu Si observa le chaudron et secoua la tête avec un air de pitié. Il le saisit, l'examina encore un instant, puis le lança vers une planète. Il disparut à l'intérieur de celle-ci.
 
 Tu Si soupira. Son corps s'anima et, après quelques pas, il disparut dans le vide.
 
-Wang Lin avait été témoin de tout ce qui venait de se produire. Tu Si tentait manifestement de créer un artefact. Après avoir utilisé plus de trente planètes comme ressources, Wang Lin aurait espéré que cette pyramide carrée soit un objet légendaire, mais il n'aurait jamais imaginé que Tu Si se contenterait de l'observer un instant avant de la rejeter par déception.
+Wang Lin avait été témoin de tout ce qui venait de se produire. Tu Si tentait manifestement de créer un artefact. Après avoir utilisé plus de trente planètes comme ressources, Wang Lin aurait espéré que ce chaudron carré soit un objet légendaire, mais il n'aurait jamais imaginé que Tu Si se contenterait de l'observer un instant avant de le rejeter par déception.
 
-Si un tel trésor tombait entre les mains d'un cultivateur, celui-ci serait pratiquement invincible. Wang Lin fixa la planète où la pyramide s'était abîmée et soupira intérieurement.
+Si un tel trésor tombait entre les mains d'un cultivateur, celui-ci serait pratiquement invincible. Wang Lin fixa la planète où le chaudron s'était abîmé et soupira intérieurement.
 
 Quant au processus de raffinement du trésor, Wang Lin l'avait vu en entier. Bien qu'il ignorât quels matériaux ou quelles incantations Tu Si avait utilisés, il était convaincu qu'une fois qu'il aurait absorbé tous les cristaux de glace bleus, il en saurait tout.
 
@@ -90,7 +90,7 @@ Il déplaça à nouveau son âme, qui fusionna une fois encore pour reprendre sa
 
 En jetant un coup d'œil au miroir, Wang Lin fut soudain pris d'un frisson. Il fixa le reflet, incapable de prononcer un mot.
 
-Dans le miroir, il voyait cette silhouette semi-transparente. Bien que translucide, on pouvait en distinguer les traits: c'était un visage très ordinaire.
+Dans le miroir, il voyait cette silhouette semi-transparente. Bien que translucide, on pouvait en distinguer les traits: ce n'était pas le visage fin et élégant de Ma Liang, mais un visage très ordinaire.
 
 Wang Lin resta immobile, fixant son reflet avec une émotion complexe. Il se fit la promesse qu'un jour, il retrouverait son ancien corps.
 
@@ -124,11 +124,11 @@ Wang Lin réfléchit et se coupa le bras gauche. Du sang rouge perla de la bless
 
 Il ferma les yeux et, après avoir inspecté son âme, constata qu'elle n'avait subi aucun changement. Au sein de son âme, le cercle de foudre éclatante entourant le noyau du dévoreur d'âmes tournait, et chaque rotation envoyait des ondes qui étendaient la puissance de son âme.
 
-Au sein de son âme, que ce soit la perle transcendante ou le royaume Ji, tout restait inchangé.
+Au sein de son âme, que ce soit la perle défiant le ciel ou le royaume Ji, tout restait inchangé.
 
 Après avoir soigneusement exploré son corps, il ouvrit les yeux et serra les poings.
 
-Wang Lin n'eut aucun mal à se familiariser avec le corps que son âme avait formé, car il s'agissait, après tout, de son corps originel. En bougeant ses poings, son cœur fut envahi par la joie.
+Wang Lin n'eut aucun mal à se familiariser avec le corps que son âme avait formé, car il s'agissait, après tout, de son corps originel. En bougeant ses poings, son cœur se gonfla d'une ardeur héroïque.
 
 Il leva la tête, le regard devenu glacial. Il déclara: « Teng Huayuan, tu as détruit mon corps autrefois, mais j'ai réussi à le reformer. Une fois que j'atteindrai le stade de l'Âme Naissante avec ce corps, je me frayerai un chemin jusqu'à Zhao et je massacrerai toute la famille Teng! Cette haine ne pourra être apaisée que par le sang de votre lignée. Seules les âmes de la famille Teng pourront calmer mon cœur! »
 

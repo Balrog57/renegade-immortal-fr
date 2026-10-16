@@ -32,7 +32,7 @@ Su Jinshi s'était rendu à la Montagne de l'Affinement des Âmes il y a de nomb
 
 Su Jinshi serra les dents et déclara: « Je peux te donner le jade d'extraction des âmes, mais il me manque 300 fragments d'âme pour raffiner ce drapeau en un drapeau de mille âmes. Si tu peux me fournir ces 300 fragments, je te laisserai consulter le jade. »
 
-Wang Lin regarda Su Jinshi. Vu son niveau de culture, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de dix mille âmes qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
+Wang Lin regarda Su Jinshi. Vu son niveau de culture, il jugeait indigne de lui de voler cet objet. Il sortit son drapeau de mille âmes ordinaire qui contenait plus de 2 000 fragments, le secoua, et 300 fragments d'âme s'envolèrent.
 
 Wang Lin tendit la main gauche et les 300 fragments se transformèrent en une perle noire, qu'il dirigea vers Su Jinshi.
 
@@ -52,7 +52,7 @@ Si elle n'en était pas là, cette technique n'aurait pas eu grand intérêt, ma
 
 Cet homme utilisait une méthode occulte pour raffiner l'âme empoisonnée en une pilule, puis y injectait une aura mortelle pour la transformer en un noyau vert. Il nomma cela la Méthode du Noyau Vert, ce qui lui permit d'atteindre le stade de la Formation de l'Âme. Il était considéré comme un génie de son temps.
 
-Un noyau vert et un noyau doré sont très différents. On ne peut posséder qu'un seul noyau doré, mais on peut accumuler de nombreux noyaux verts. En utilisant cette méthode dérivée du poison de l'âme, il avait atteint la Formation de l'Âme en possédant des dizaines de milliers de noyaux verts.
+Un noyau vert et un noyau doré sont très différents. On ne peut posséder qu'un seul noyau doré, mais on peut accumuler de nombreux noyaux verts. En utilisant cette méthode dérivée du poison de l'âme, il avait atteint la Formation de l'Âme en possédant des centaines de milliers de noyaux verts.
 
 Lorsqu'il attaquait, il projetait des milliers de noyaux verts qui explosaient. Sa puissance était telle que même les cultivateurs de la Transformation de l'Âme ne voulaient pas s'y mesurer par légèreté. Après tout, l'explosion de dizaines de milliers de noyaux verts était déjà apocalyptique; si on le poussait dans ses retranchements au point de l'obliger à tous les faire exploser, la déflagration serait tout simplement colossale.
 
@@ -76,13 +76,13 @@ Une fois cela terminé, Wang Lin leva les yeux vers les neuf anneaux dorés et l
 
 « Que mon âme originelle se rétablisse ou non dépendra entièrement de cette journée! Je vais affronter l'ancêtre de la Transformation de l'Âme de la Secte de l'Affinement des Âmes. Ce n'est que sous la pression spirituelle d'un tel cultivateur que mon âme originelle pourra enfin se régénérer! À ce moment-là, j'utiliserai la boussole stellaire pour m'échapper. Même si le cultivateur de la Transformation de l'Âme veut me capturer, il en sera incapable! » Wang Lin prit une profonde inspiration et ses yeux s'embrasèrent d'une intention de combat.
 
-Il se transforma en un rayon de lumière et vola vers les neuf anneaux de lumière. Dans sa main gauche, il tenait le drapeau de dix mille âmes, et dans sa main droite, le drapeau de restriction doté de 999 ensembles de restrictions. Armé de ces deux artefacts, il arriva devant les neuf anneaux dorés.
+Il se transforma en un rayon de lumière et vola vers les neuf anneaux de lumière. Dans sa main gauche, il tenait le drapeau de 100 000 âmes, et dans sa main droite, le drapeau de restriction doté de 999 ensembles de restrictions. Armé de ces deux artefacts, il arriva devant les neuf anneaux dorés.
 
-À l'instant où il approcha, il agita les deux drapeaux. Du drapeau d'âme surgit un Qilin doré. Derrière lui apparurent neuf Qilins noirs, suivis d'innombrables fragments d'âme. En un instant, tout la Secte de l'Affinement des Âmes fut envahi par ces fragments.
+À l'instant où il approcha, il agita les deux drapeaux. Du drapeau d'âme surgit un Qilin doré. Derrière lui apparurent neuf Qilins noirs, suivis d'innombrables fragments d'âme. En un instant, toute la Secte de l'Affinement des Âmes fut envahi par ces fragments.
 
 Les hurlements incessants devinrent le seul son qui régnait en ce monde.
 
-C'était la première fois que Wang Lin utilisait le drapeau de dix mille âmes. Sa puissance dépassait l'entendement. Le Qilin doré poussa un rugissement et chargea les neuf anneaux dorés.
+C'était la première fois que Wang Lin utilisait le drapeau de 100 000 âmes. Sa puissance dépassait l'entendement. Le Qilin doré poussa un rugissement et chargea les neuf anneaux dorés.
 
 Bang! Bang! Bang!
 
@@ -96,7 +96,7 @@ Alors que Wang Lin se tenait au sommet du Qilin, celui-ci hésita un instant mai
 
 Wang Lin lui jeta un regard et hurla: « Dégagez!!! »
 
-Une aura monstrueuse émana de Wang Lin. Cette puissance était bien trop écrasante pour la femme. Après tout, Wang Lin avait retrouvé sa culture au stade de la Formation de l'Âme; il ne lui manquait que son domaine. Ayant combattu Papillon Rouge, sa force de culture surpassait celle de la plupart des gens. Cette femme n'était qu'au début du stade de la Formation de l'Âme; bien qu'il ne puisse prétendre la tuer sans difficulté, ce ne serait pas un exploit pour lui, ayant déjà éliminé plusieurs de ses semblables.
+Une aura monstrueuse émana de Wang Lin. Cette puissance était bien trop écrasante pour la femme. Après tout, Wang Lin avait retrouvé sa culture au stade de la Formation de l'Âme; il ne lui manquait que son domaine. Ayant combattu Papillon Rouge, sa force de culture surpassait celle de la plupart des gens. Cette femme n'était qu'au début du stade de la Formation de l'Âme; il aurait pu la tuer sans peine à son apogée, ce ne serait pas un exploit pour lui, ayant déjà éliminé plusieurs de ses semblables.
 
 Il y avait un abîme entre celui qui avait déjà tué des adversaires de même niveau et celui qui ne l'avait jamais fait.
 
@@ -110,7 +110,7 @@ Wang Lin, debout sur le Qilin doré, déclara calmement: « Vous neuf, faites pl
 
 Wang Lin agita le drapeau de restriction et d'innombrables entraves s'envolèrent. Les restrictions se rassemblèrent pour former une lance noire que Wang Lin projeta en avant. La lance percuta la chaîne, la brisant instantanément; pourtant, elle continua sa course vers le vieillard.
 
-Simultanément, Wang Lin agita le drapeau d'âme. Le Qilin et les dix mille fragments d'âme poussèrent des rugissements. Dès que Wang Lin prononça le mot « dévorer », tous les fragments chargèrent avec fureur.
+Simultanément, Wang Lin agita le drapeau d'âme. Le Qilin et les 100 000 fragments d'âme poussèrent des rugissements. Dès que Wang Lin prononça le mot « dévorer », tous les fragments chargèrent avec fureur.
 
 De loin, on aurait dit qu'une tempête gigantesque s'était levée au cœur de la Secte de l'Affinement des Âmes.
 

@@ -74,7 +74,7 @@ Wudo Chan ne répondit pas, se contentant de fixer froidement Yi Muzi. Il leva l
 
 Il posa son regard sur la bulle et dit calmement: « Peu m'importe ce que fait l'estimé Xuan Bao, mais tant que je serai ici, personne ne pourra entrer! »
 
-Yi Muzi eut une expression sombre et laissa échapper un renflement glacial avant de s'avancer. Sa main droite traça un sceau et une gigantesque bûche apparut devant lui. Cette énorme pièce de bois occupa tout l'espace disponible et s'élança avec fracas.
+Yi Muzi eut une expression sombre et laissa échapper un reniflement glacial avant de s'avancer. Sa main droite traça un sceau et une gigantesque bûche apparut devant lui. Cette énorme pièce de bois occupa tout l'espace disponible et s'élança avec fracas.
 
 « Je ne peux pas gaspiller trop d'énergie originelle ici, je dois terminer ce combat rapidement. Ensuite, j'irai au plus profond du Serpent aux yeux de lune pour accomplir la tâche confiée par le Grand Ancien! »
 

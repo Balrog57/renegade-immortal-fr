@@ -28,7 +28,7 @@ Le corps de l'homme trembla et il laissa échapper un cri avant de tenter de rec
 
 Alors qu'il tenait le prisonnier, Wang Lin s'apprêtait à l'interroger quand son expression changea soudainement et qu'il se retourna. Il vit plus de cent rayons de lumière aux couleurs variées, dégageant une aura terrifiante, fondre sur lui.
 
-En un instant, les rayons de lumière convergèrent et s'arrêtèrent à 3,3 kilomètres de Wang Lin. Les lueurs se dissipèrent, révélant des silhouettes vêtues d'habits grossiers, semblables à l'homme qu'il venait de capturer.
+En un instant, les rayons de lumière convergèrent et s'arrêtèrent à 330 mètres de Wang Lin. Les lueurs se dissipèrent, révélant des silhouettes vêtues d'habits grossiers, semblables à l'homme qu'il venait de capturer.
 
 Il n'y avait aucune femme parmi eux, et la plupart étaient d'âge mûr. Tous fixaient Wang Lin avec une peur dissimulée dans le regard.
 
@@ -54,7 +54,7 @@ Wang Lin réfléchit silencieusement tout en observant le vieillard. L'autre se 
 
 Après mûre réflexion, les yeux de Wang Lin s'illuminèrent et il demanda avec lenteur: « Depuis combien de temps aucun Céleste n'est-il venu? »
 
-L'expression du vieil homme s'assombrit alors qu'il répondait respectueusement: « Cela fait une éternité que le dernier jade céleste n'a été envoyé par le Roi Céleste Carefree. Quant à la durée exacte, ce humble serviteur est incapable de la calculer. »
+L'expression du vieil homme s'assombrit alors qu'il répondait respectueusement: « Cela fait une éternité que le dernier décret céleste n'a été envoyé par le Roi Céleste Carefree. Quant à la durée exacte, ce humble serviteur est incapable de la calculer. »
 
 « Carefree... » Wang Lin comprit soudain pourquoi le vieil homme ne quittait pas sa main droite du regard. Il leva cette main pour exposer pleinement le Tatouage de l'Os de la Bête, fixa le vieillard et demanda: « Connaissez-vous ceci? »
 
@@ -74,7 +74,7 @@ Son regard ne pouvait en voir l'extrémité, mais le parfum de l'herbe porté pa
 
 Au centre de la plaine se dressait un groupe de bâtiments très anciens. Bien qu'ils ne fussent pas en ruines, ils dégageaient une aura d'antiquité profonde.
 
-Cette aura était très ténue, mais ayant acquis une certaine compréhension du sort d'extraction de l'âme, Wang Lin était devenu sensible à ce genre de vibrations. Ses yeux s'illuminèrent; il cessa de voler et regarda vers le bas.
+Cette aura était très ténue, mais ayant acquis une certaine compréhension du sort d'extraction de l'âme, Wang Lin était devenu sensible à ce genre de vibrations. À environ 3,3 kilomètres des bâtiments, ses yeux s'illuminèrent; il cessa de voler et regarda vers le bas.
 
 L'herbe ici ne différait pas de celle de l'extérieur. Cependant, les connaissances de Wang Lin sur les restrictions avaient considérablement progressé grâce à ses expériences dans le Royaume Céleste du Tonnerre et aux enseignements de Li Yuan. En particulier, sa compréhension des restrictions célestes s'était grandement affinée.
 

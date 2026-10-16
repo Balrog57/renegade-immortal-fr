@@ -10,7 +10,7 @@ Wang Lin pressa le Fruit Doré contre son front, et celui-ci s'enfonça en lui. 
 
 « J'ai été trop impatient. Comment l'achèvement de la perle défiant le ciel pourrait-il être aussi simple? Sept cents ans de culture, et malgré ma chance, je n'ai pu compléter que quatre des éléments. Chaque accomplissement était semé d'embûches, je suppose que l'achèvement de ce dernier élément métallique ne sera pas non plus une mince affaire... Je me demande seulement si cette Racine d'Esprit Dorée aura un quelconque effet. »
 
-Wang Lin soupira intérieurement, puis il tendit la main et environ une douzaine de Fruits Dorés s'envolèrent dans les airs.
+Wang Lin soupira intérieurement, puis il tendit la main et environ un tiers des Fruits Dorés s'envolèrent dans les airs.
 
 Le moustique poussa un cri de joie alors qu'il aspirait bruyamment tous les Fruits Dorés. À cet instant, une lumière dorée jaillit soudainement autour de lui et brilla intensément à neuf reprises avant de revenir à la normale.
 
@@ -118,6 +118,6 @@ Qian Qin resta là un long moment avant de ranger le filament. Elle rejoignit sa
 
 Le corps de Wang Lin se déplaçait comme l'éclair. Il ne lui fallut pas longtemps pour franchir une chaîne de montagnes et pénétrer dans les profondeurs de cette terre.
 
-C'est là que le court Ancien de la Secte de l'Épée Da Lou était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À un pouce de ses sourcils flottait une lame en croissant de lune.
+C'est là que le court Ancien de la Secte de l'Épée Da Lou était assis en position du lotus sur un arbre gigantesque, le visage extrêmement pâle. À environ trois centimètres de ses sourcils flottait une lame en croissant de lune.
 
-À un pouce au-dessus de sa tête, l'épée céleste dérivait également. Bien qu'immobile, elle dégageait une puissante énergie d'épée.
+À environ trois centimètres au-dessus de sa tête, l'épée céleste dérivait également. Bien qu'immobile, elle dégageait une puissante énergie d'épée.

@@ -10,15 +10,15 @@ Il chargea rapidement vers la Mer des Diables.
 
 En chemin, Wang Lin ne ralentit nullement. Après avoir traversé plusieurs formations de transfert, il apparut à 5 000 kilomètres d'une ville.
 
-Cette cité se nommait Devil Rebel. C'était l'une des dix villes principales de la Mer des Diables, classée au troisième rang de ces cités majeures. Elle était infiniment plus vaste que n'importe quelle ville que Wang Lin avait vue auparavant.
+Cette cité s'appelait la Cité des Rebelles Démoniaques. C'était l'une des dix villes principales de la Mer des Diables, classée au troisième rang de ces cités majeures. Elle était infiniment plus vaste que n'importe quelle ville que Wang Lin avait vue auparavant.
 
 La carte que possédait Wang Lin contenait quelques descriptions de la ville, mais toutes ces informations dataient d'avant l'invasion de la Mer des Diables. De nombreuses nouvelles puissances s'y étaient mêlées, de sorte que Wang Lin ignorait la situation politique exacte des lieux.
 
 Cependant, son but n'était pas de semer le trouble, mais simplement d'acheter quelques cadeaux pour Li Muwan.
 
-Après avoir payé quelques pierres spirituelles de faible qualité, Wang Lin pénétra dans la ville de Devil Rebel.
+Après avoir payé quelques pierres spirituelles de faible qualité, Wang Lin pénétra dans la Cité des Rebelles Démoniaques.
 
-De nombreux cultivateurs arpentaient les rues, rendant l'endroit très animé. Son chapeau de paille sur la tête, Wang Lin observa les environs et esquissa un sourire. Un imposant bâtiment de cinq étages attira son regard au loin, arborant les trois caractères: « Pavillon du Raffinement des Trésors ».
+De nombreux cultivateurs arpentaient les rues, rendant l'endroit très animé. Son chapeau de paille sur la tête, Wang Lin observa les environs et esquissa un sourire. Un imposant bâtiment de cinq étages attira son regard au loin, arborant les trois caractères: « Pavillon de Raffinage des Trésors ».
 
 Wang Lin réfléchit un instant avant de se diriger vers l'édifice.
 
@@ -28,7 +28,7 @@ Au troisième étage, un homme d'âge moyen lisait un parchemin ancien, savouran
 
 Wang Lin scruta les lieux et répondit: « Une recette de pilule. »
 
-L'homme sourit: « Notre Pavillon du Raffinement des Trésors possède de nombreuses recettes. Quel type recherchez-vous? »
+L'homme sourit: « Notre Pavillon de Raffinage des Trésors possède de nombreuses recettes. Quel type recherchez-vous? »
 
 S'asseyant sur une chaise à côté de lui, Wang Lin déclara: « De rang 5 ou supérieur. »
 
@@ -130,6 +130,6 @@ Sur ces mots, Zhang Bai s'élança vers la secte.
 
 Le hurlement de sa nuée d'insectes était terrifiant.
 
-« Il y a quelques jours, je me suis nourri d'un junior au stade avancé de l'Âme Naissante de la Secte du Ciel Nuageux. Ce dernier prétendait que Wang Lin ne me pardonnerait pas une fois mort. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler? De plus, Chu n'est qu'un pays de culture de rang 3; un expert de la Transformation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal de experts de la Transformation de l'Âme. »
+« Il y a quelques jours, je me suis nourri d'un junior au stade avancé de l'Âme Naissante de la Secte du Ciel Nuageux. Ce dernier prétendait que Wang Lin ne me pardonnerait pas une fois mort. Humph, qui est ce Wang Lin et pourquoi n'en ai-je jamais entendu parler? De plus, Chu n'est qu'un pays de culture de rang 3; un expert de la Transformation de l'Âme ne saurait y exister. Ce Wang Lin n'est qu'un cultivateur de l'Âme Naissante légèrement au-dessus de la moyenne, et je tue tout ce qui se présente. Humph, j'ai même tué pas mal d'experts de la Transformation de l'Âme. »
 
 Zhang Bai ricana: « Après avoir anéanti ce pays de Chu, je massacrerai mon chemin jusqu'à la Vallée Désolée des Neuf Fantômes. Cette fois, je ferai naître le Roi des Insectes. Une fois qu'il aura pénétré en moi, j'atteindrai le stade intermédiaire de la Transformation de l'Âme. Ceng Niu, je veux voir si tu pourras encore me battre à ce moment-là! »

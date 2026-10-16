@@ -30,7 +30,7 @@ Zhou Wutai le regarda avec indifférence. Un léger sourire étira ses lèvres t
 
 La culture de Zhou Wutai n'était qu'un cran en dessous de celle de Wang Lin; il avait un pied dans le royaume de la Formation de l'Âme et avait commencé à acquérir une partie de son domaine. Lorsque la lumière violette apparut, l'homme en noir eut l'impression de revenir à sa jeunesse, à l'époque où il venait d'intégrer la secte et de rencontrer son maître.
 
-Bien qu'il sût que tout cela n'était qu'une illusion, le sentiment était d'un réalisme absolu. Une sensation écrasante envahit son corps. Lorsqu'il retrouva ses esprits, la main droite de Zhou Wutai pressait déjà son front. Accompagné d'une décharge d'énergie spirituelle, l'homme en noir cracha un sang noir et s'effondra, mort.
+Bien qu'il sût que tout cela n'était qu'une illusion, le sentiment était d'un réalisme absolu. Une sensation écrasante envahit son corps. Lorsqu'il retrouva ses esprits, la main droite de Zhou Wutai pressait déjà son front. Accompagné d'une décharge d'énergie spirituelle, l'homme en noir cracha du sang et s'effondra, mort.
 
 Quant à son Âme Naissante, elle était entre les mains de Zhou Wutai. Il la broya sous les yeux de Wang Lin. Par ce geste, il signifiait à Wang Lin qu'il n'était pas responsable de ce carnage. C'était aussi une manière de lui assurer que personne ne serait au courant et qu'il n'aurait pas à tuer d'autres personnes.
 
@@ -40,7 +40,7 @@ Cependant, s'ils avaient été trois, il n'aurait pu qu'espérer une impasse. À
 
 Le corps de Wang Lin redescendit lentement du ciel. Dès qu'il toucha la neige, sa silhouette se rétracta instantanément. Il passa de l'état de démon à celui de mortel, puis à celui d'un vieillard au crépuscule de sa vie.
 
-Il lissa ses vêtements et prit une gorgée de son gourde avant de le lancer vers Zhou Wutai. En cet instant, il ne différait en rien d'un simple mortel.
+Il lissa ses vêtements et prit une gorgée de sa gourde avant de le lancer vers Zhou Wutai. En cet instant, il ne différait en rien d'un simple mortel.
 
 Zhou Wutai rattrapa la gourde, fixant l'atelier de Wang Lin avec une pointe d'effroi. Il se jura qu'il devait faire de Wang Lin un ami, et non un ennemi.
 
@@ -50,11 +50,11 @@ Peu de temps s'était écoulé depuis que Wang Lin avait quitté l'atelier pour 
 
 Il retourna ainsi à son échoppe et s'installa près du poêle. À cet instant, il ressemblait véritablement à un vieil homme, levant ses mains pour chercher la chaleur des braises.
 
-Installé silencieusement dans l'obscurité de la boutique, il fouilla rapidement dans la mémoire de l'Ancien Dieu afin d'y déceler des informations sur les quatre Portes Célestes. Après un long moment, les données commencèrent à s'éclaircir dans son esprit.
+Installé silencieusement dans la boutique, il fouilla rapidement dans la mémoire de l'Ancien Dieu afin d'y déceler des informations sur les quatre Portes Célestes. Après un long moment, les données commencèrent à s'éclaircir dans son esprit.
 
 C'est alors que le bruit de la chute de la neige s'atténua et que la porte fut poussée. Une odeur de poulet rôti s'engouffra dans la pièce.
 
-Au même instant, le vieux décrépit qui ne s'était pas montré depuis longtemps entra en titubant. Une fois à l'intérieur, il referma la porte d'un coup de pied et se précipita vers le poêle aux côtés de Wang Lin en jurant: « En pleine nuit, des gamins se battent dehors! Et l'un d'eux est même tombé sur moi! J'avais enfin trouvé un coin convenable pour dormir. Quelle malchance! »
+Au même instant, le vieux décrépit qui ne s'était pas montré depuis longtemps entra en grelottant. Une fois à l'intérieur, il referma la porte d'un coup de pied et se précipita vers le poêle aux côtés de Wang Lin en jurant: « En pleine nuit, des gamins se battent dehors! Et l'un d'eux est même tombé sur moi! J'avais enfin trouvé un coin convenable pour dormir. Quelle malchance! »
 
 Wang Lin sourit. D'un geste de la main, il fit apparaître une nouvelle gourde de vin et la tendit au vieil homme.
 
@@ -70,13 +70,13 @@ Intrigué, Wang Lin fixa le vieil homme et demanda: « L'Aîné sait-il ce qui s
 
 Le vieil homme redressa fièrement le menton: « Il n'est rien dans ce monde de culture que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance a réussi à dérober un Chaudron de Pluie à un cultivateur de Xue Yu, et ils sont tous là pour le récupérer. Ce n'est qu'une bagatelle. »
 
-« Un Chaudron de Pluie... » Wang Lin réfléchit un instant. Il se souvint soudainement de sa conversation avec le cultivateur aux grandes oreilles, Zhou Wutai, qui avait mentionné la Porte Céleste.
+« Un Chaudron de Pluie... » Wang Lin réfléchit un instant. Il se souvint soudainement que, plus de dix ans auparavant, Zhou Wutai, le cultivateur aux grandes oreilles, avait eu des démêlés avec le prince, et que le terme Chaudron de Pluie y avait été prononcé.
 
 Le vieil homme finit rapidement son morceau de poulet et s'attaqua au cou de l'oiseau: « En parlant de ce Chaudron de Pluie, en réalité, il n'y en a pas qu'un seul. Je ne saurais dire combien exactement, mais celui qui en possède un peut entrer dans le Royaume Céleste une fois la Porte Céleste ouverte. Cela provoque forcément des conflits, mais peu importent les combats, tout est vain: dès que les pays de rang 5 et 6 s'en aperçoivent, cela finit inévitablement entre leurs mains. »
 
 Wang Lin marqua une pause, puis murmura lentement: « La rumeur prétend que les quatre Portes Célestes mènent au Royaume Céleste; il n'est donc pas étonnant qu'ils se disputent ces objets. »
 
-Le vieil homme eut un sourire malicieux: « Quoi, jeune homme? Es-tu ému? Hélas, tous les êtres célestes de l'Antiquité ont disparu. Le Royaume Céleste actuel est désert. »
+Le vieil homme eut un sourire malicieux: « Quoi, jeune homme? Te voilà tenté? Hélas, tous les êtres célestes de l'Antiquité sont morts dans une guerre. Le Royaume Céleste actuel est désert. »
 
 Wang Lin fut stupéfait. Rien de tel n'avait été mentionné dans la mémoire de Tusi. Il marqua un temps d'arrêt avant de demander: « Ils sont tous morts? »
 
@@ -84,11 +84,11 @@ Après avoir terminé le cou du poulet, le vieil homme déchira un large morceau
 
 Le cœur de Wang Lin trembla. Il savait déjà que le monde antique de la culture s'était effondré lors d'une catastrophe, donnant naissance à l'Union de la Culture. Cependant, il n'avait pas imaginé que les êtres célestes eux-mêmes avaient péri.
 
-Remarquant le choc de Wang Lin, le vieil homme afficha un air de fierté. Il finit son repas, laissa échapper un rot et prit une gorgée de vin. S'essuyant négligemment les mains sur ses vêtements, il poursuivit: « Hé hé, choquant, n'est-ce pas? Tous les anciens dieux sont morts, tout comme les anciens êtres célestes. Il ne reste plus beaucoup de cultivateurs de l'ère antique, c'est pourquoi l'Union de la Culture a pu apparaître et se développer à nouveau. »
+Remarquant le choc de Wang Lin, le vieil homme afficha un air de fierté. Il finit son repas, laissa échapper un rot et prit une gorgée de vin. S'essuyant négligemment les mains sur ses vêtements, il poursuivit: « Hé hé, choquant, n'est-ce pas? Tous les anciens dieux sont morts, tout comme les anciens êtres célestes. Il ne reste plus beaucoup de cultivateurs de l'ère antique, c'est pourquoi l'Union de la Culture a pu apparaître et se développer à nouveau, par régions stellaires. »
 
 Wang Lin resta silencieux, digérant le secret que l'homme venait de lui livrer. Après un long moment, il fronça les sourcils: « Si cela est vrai, pourquoi les quatre Portes Célestes existent-elles encore? »
 
-Le vieil homme éclata de rire: « Les anciens êtres célestes ont disparu, mais le Royaume Céleste demeure. Cependant, il est saturé de dangers. En réalité, le Royaume Céleste s'est fragmenté. Les quatre Portes Célestes ne font que relier différentes sections de ce royaume brisé. Mais malgré tout, on y trouve encore de grandes merveilles. La plus importante est le Qi Céleste. »
+Le vieil homme éclata de rire: « Les anciens êtres célestes ont disparu, mais le Royaume Céleste demeure. Cependant, il est balayé par d'innombrables tempêtes. En réalité, le Royaume Céleste s'est fragmenté. Les quatre Portes Célestes ne font que relier différentes sections de ce royaume brisé. Mais malgré tout, on y trouve encore de grandes merveilles. La plus importante est le Qi Céleste. »
 
 « Le Qi Céleste? » L'expression de Wang Lin changea radicalement.
 

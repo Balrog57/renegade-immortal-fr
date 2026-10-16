@@ -8,13 +8,13 @@ slug: bingyun
 ---
 Wang Lin forma des sceaux de ses mains et les pressa contre sa poitrine à plusieurs reprises. Son aura disparut complètement et il laissa une trace de sens divin pour observer ce qui se passait à l'extérieur.
 
-Une aura glaciale remplit rapidement l'espace étroit. La source de cette froideur était un homme svelte, enveloppé par les tentacules.
+Une aura glaciale remplit rapidement l'espace étroit. La source de cette froideur était un homme décharné, enveloppé par les tentacules.
 
 Il s'agissait d'un vieil homme. À l'origine, aucune vitalité ne résidait dans son corps, mais à mesure que l'aura glaciale envahissait la zone, une puissante vague de vitalité déferla en lui.
 
 Cette vitalité était si intense qu'elle fit gonfler le corps du vieillard comme un ballon. Cependant, la chose étrange était que les yeux de l'homme restaient clos, sans le moindre signe d'ouverture.
 
-Lorsque le sens divin de Wang Lin perçut cela, son esprit fut secoué. Grâce à son niveau de culture et à son domaine de la Vie et de la Mort, il pouvait clairement déceler une pointe d'aura mortelle au sein de cette vitalité; toutefois, l'aura de mort était totalement suppressed par la force vitale.
+Lorsque le sens divin de Wang Lin perçut cela, son esprit fut secoué. Grâce à son niveau de culture et à son domaine de la Vie et de la Mort, il pouvait clairement déceler une pointe d'aura mortelle au sein de cette vitalité; toutefois, l'aura de mort était totalement étouffée par la force vitale.
 
 À mesure que la vitalité augmentait, le corps du vieil homme se dilatait de plus en plus. Une série de craquements retentit alors que les os de son corps se brisaient, incapables de résister à une telle force.
 
@@ -30,13 +30,13 @@ Des cris étouffés mais perçants émanèrent de l'intérieur du vieillard. Wan
 
 Les innombrables tentacules se mirent toutes à osciller, comme pour saluer la naissance de leur propre espèce!
 
-L'instant d'après, un objet svelte de six mètres de long jaillit de la fissure dans le corps du vieil homme. Il tordait sans cesse son corps jusqu'à ce que l'enveloppe charnelle finisse par exploser. Il n'y eut ni chair ni sang, seulement une déflagration d'énergie glaciale.
+L'instant d'après, un objet svelte de 6,6 mètres de long jaillit de la fissure dans le corps du vieil homme. Il tordait sans cesse son corps jusqu'à ce que l'enveloppe charnelle finisse par exploser. Il n'y eut ni chair ni sang, seulement une déflagration d'énergie glaciale.
 
-Puis, l'objet de six mètres s'élança. Wang Lin fut stupéfait: c'était un petit Serpent aux yeux de lune!
+Puis, l'objet de 6,6 mètres s'élança. Wang Lin fut stupéfait: c'était un petit Serpent aux yeux de lune!
 
 Ce serpent était manifestement nouveau-né, et tous les tentacules sur son corps étaient transparents. Dès son apparition, il fit brusquement demi-tour pour engloutir le cadavre effondré du vieil homme.
 
-Le corps de l'homme sembla fondre pour être dévoré par le petit serpent. Ce dernier continua d'onduler tout en absorbant l'énergie glaciale environnante. Sa taille passa rapidement de six à trente mètres!
+Le corps de l'homme sembla fondre pour être dévoré par le petit serpent. Ce dernier continua d'onduler tout en absorbant l'énergie glaciale environnante. Sa taille passa rapidement de 6,6 à 33 mètres!
 
 Les tentacules autour de son corps virèrent lentement au rouge sombre et il devint soudainement féroce.
 
@@ -50,7 +50,7 @@ Wang Lin ouvrit les yeux et poussa un soupir de stupéfaction.
 
 « Pas étonnant qu'il y ait tant de serpents aux yeux de lune. D'après les souvenirs de Tu Si, si un serpent aux yeux de lune reste trop longtemps hors du corps d'un Dieu Antique, il mourra sans aucun doute! »
 
-« Pourtant, non seulement ce serpent n'est pas mort, mais il utilise les corps de cultivateurs et de mortels pour engendrer une nouvelle vie; il a presque instauré un cycle biologique... Ce serpent aux yeux de lune doit avoir subi une mutation prodigieuse au fil des âges, sans quoi cela serait impossible! » Wang Lin connaissait bien le serpent aux yeux de lune et pouvait désormais deviner avec certitude l'essentiel de ce qui s'était produit.
+« Pourtant, non seulement ce serpent n'est pas mort, mais il utilise les corps de cultivateurs et de mortels pour engendrer une nouvelle vie; il a presque instauré un cycle biologique... Ce serpent aux yeux de lune doit avoir subi une mutation prodigieuse au fil des âges, sans quoi cela serait impossible! » Wang Lin connaissait bien le serpent aux yeux de lune et pouvait désormais deviner en grande partie ce qui s'était produit.
 
 Il réfléchit silencieusement un instant. Une fois le calme revenu, il projeta à nouveau son sens divin vers la rune gravée sur le fourneau. Dès qu'il enveloppa la rune, le regard de Wang Lin se glaça et son sens divin percuta impitoyablement celui de Cupidité.
 
@@ -100,17 +100,17 @@ Cependant, rien de tout cela n'influa sur Wang Lin, dont le regard resta aussi c
 
 Une immense quantité d'énergie originelle jaillit de son corps par le bout de son doigt pour pénétrer la glace. Un craquement fracassant retentit et une multitude de fissures commencèrent à se propager depuis son doigt vers l'extérieur.
 
-Les fissures s'arrêtèrent à un centimètre du corps de Yao Bingyun, incapables de progresser davantage.
+Les fissures s'arrêtèrent à 3,3 centimètres du corps de Yao Bingyun, incapables de progresser davantage.
 
 Alors que Wang Lin fixait Yao Bingyun derrière sa prison de glace, ses yeux se glacèrent. Encore plus d'énergie originelle afflua vers son doigt pour forcer l'entrée dans la glace.
 
-Tandis que les craquements résonnaient, Wang Lin ne s'interrompit pas. Il continua de circuler autour de Yao Bingyun, pointant différents endroits. Des morceaux de glace tombèrent en masse jusqu'à ce qu'il ne reste plus qu'une fine couche d'un centimètre autour d'elle.
+Tandis que les craquements résonnaient, Wang Lin ne s'interrompit pas. Il continua de circuler autour de Yao Bingyun, pointant différents endroits. Des morceaux de glace tombèrent en masse jusqu'à ce qu'il ne reste plus qu'une fine couche de 3,3 centimètres autour d'elle.
 
 « Cette femme doit faire partie des meilleures de la troisième génération de la famille Yao. Puisque la famille Yao veut ma mort, je la transformerai en Garde Céleste. Même si cela échoue, peu importe! » La détermination de Wang Lin était absolue. Face à un ennemi, il ne connaissait aucune pitié. Même face à une beauté extrême, il n'éprouvait aucune compassion.
 
 De plus, malgré sa splendeur, elle ne pouvait égaler Liu Mei.
 
-« Tout cela est une question de karma. Si vous ne m'aviez pas traqué, cela ne serait pas arrivé aujourd'hui! » Wang Lin ouvrit la bouche et cracha une essence d'énergie originelle qui encercla directement la glace entourant Yao Bingyun. Tandis que l'énergie broyait la glace, sa main droite pointait inlassablement vers elle.
+« Tout cela est une question de karma. Si vous ne m'aviez pas traqué, cela ne serait pas arrivé aujourd'hui! » Wang Lin ouvrit la bouche et cracha une essence d'âme originelle qui encercla directement la glace entourant Yao Bingyun. Tandis que l'énergie broyait la glace, sa main droite pointait inlassablement vers elle.
 
 Les craquements retentirent de nouveau et la protection glacée commença à se briser. En vérité, si son énergie originelle avait été présente lorsqu'elle utilisa ce sortilège, Wang Lin n'aurait pas pu la détruire aussi aisément. Mais parce qu'elle en était privée, elle lui offrait cette opportunité!
 

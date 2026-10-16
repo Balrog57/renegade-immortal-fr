@@ -40,7 +40,7 @@ Wang Lin serrait toujours fermement le trident dans sa main!
 
 « Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Li Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Noire* et *Ciels Clairs*, la tâche aurait été ardue. Cependant, comparés à *Lune Noire* et *Ciels Clairs*, ceux-ci ne sont que de simples tours! » Le Taoïste de l'Eau secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Tueur de Dieux formé par la Bête de Tonnerre.
 
-Son regard balaya le Char de Guerre Tueur de Dieux et il laissa échapper un renflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée.
+Son regard balaya le Char de Guerre Tueur de Dieux et il laissa échapper un reniflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée.
 
 « Ce trésor présente trop de défauts. Puisque je n'en ai pas besoin, je vais le détruire! » Le Taoïste de l'Eau était extrêmement arrogant et possédait une personnalité excentrique. Il aimait détruire les objets que d'autres chérissaient, pourvu qu'ils lui soient inutiles.
 
@@ -64,7 +64,7 @@ Une fois la dissipation terminée, le Char de Guerre Tueur de Dieux aux sept cou
 
 « L'esprit du trésor a préféré s'autodétruire plutôt que d'être capturé par ce vieil homme... » Les yeux du Taoïste de l'Eau devinrent froids alors qu'il leva la main pour frapper. Le Char de Guerre Tueur de Dieux et son esprit furent déchirés.
 
-« Maintenant, voyons si tu possèdes la Perle Défiant le Ciel! » Le Taoïste de l'Eau laissa échapper un renflement froid et se retourna vers Wang Lin. À cet instant, il semblait que le monde tremblait et que toutes les étoiles s'étaient éteintes. Wang Lin et le Taoïste de l'Eau étaient les deux seuls êtres restants. Son regard portait une force pénétrante terrifiante lorsqu'il se posa directement sur Wang Lin.
+« Maintenant, voyons si tu possèdes la Perle Défiant le Ciel! » Le Taoïste de l'Eau laissa échapper un reniflement froid et se retourna vers Wang Lin. À cet instant, il semblait que le monde tremblait et que toutes les étoiles s'étaient éteintes. Wang Lin et le Taoïste de l'Eau étaient les deux seuls êtres restants. Son regard portait une force pénétrante terrifiante lorsqu'il se posa directement sur Wang Lin.
 
 À cet instant précis, le corps de Wang Lin trembla soudainement. Il eut l'impression que son corps était en train d'être déchiré. Même son âme originelle et son esprit semblaient être transpercés. Tous les secrets de son être étaient mis à nu sous ce regard.
 

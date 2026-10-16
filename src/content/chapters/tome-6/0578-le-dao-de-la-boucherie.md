@@ -8,7 +8,7 @@ slug: le-dao-de-la-boucherie
 ---
 Chapitre 578 - Le Dao de la Boucherie!
 
-Au deuxième étage d'un restaurant situé à 10 000 pieds de Wang Lin, de l'autre côté de la rivière, deux hommes étaient assis près de la fenêtre, leurs regards fixés sur lui.
+Au deuxième étage d'un restaurant situé à 3,3 kilomètres de Wang Lin, de l'autre côté de la rivière, deux hommes étaient assis près de la fenêtre, leurs regards fixés sur lui.
 
 Tous deux portaient des robes noires. L'un était plus âgé, tandis que l'autre était un peu plus jeune.
 
@@ -28,7 +28,7 @@ L'énergie de l'épée, chargée d'une puissante intention meurtrière, fonçait
 
 Le bateau sur la rivière, ayant pressenti cette anomalie, accéléra soudainement.
 
-L'énergie de l'épée se rapprocha brusquement et franchit les 10 000 pieds en un instant. Toute l'herbe autour de Wang Lin s'inclina d'un côté, comme sous l'effet d'un vent violent.
+L'énergie de l'épée se rapprocha brusquement et franchit les 3,3 kilomètres en un instant. Toute l'herbe autour de Wang Lin s'inclina d'un côté, comme sous l'effet d'un vent violent.
 
 Les sifflements stridents se mêlaient à la musique de la cithare, créant une harmonie singulière!
 
@@ -46,7 +46,7 @@ Une traînée de gaz gris s'échappa de son corps vers Wang Lin.
 
 Wang Lin ne prit même pas la peine de prêter attention à la trajectoire du Doigt de la Mort et continua d'écouter silencieusement la musique de la cithare.
 
-Dans le restaurant, à 10 000 pieds de là, le jeune homme se leva brusquement et fixa Wang Lin de l'autre côté de la rivière. Après un long moment, il prit une profonde inspiration avant de se rasseoir.
+Dans le restaurant, à 3,3 kilomètres de là, le jeune homme se leva brusquement et fixa Wang Lin de l'autre côté de la rivière. Après un long moment, il prit une profonde inspiration avant de se rasseoir.
 
 Seule l'expression de l'homme plus âgé était restée inchangée.
 
@@ -66,15 +66,15 @@ Tout en parlant, il se leva une nouvelle fois pour faire face à Wang Lin.
 
 Alors que le jeune homme sortait du restaurant, une brise provenant de la rivière fit flotter ses vêtements. Il marcha contre le vent en progressant lentement vers Wang Lin.
 
-Il franchit les 10 000 pieds avec un calme olympien, comme s'il déambulait dans son propre jardin. À chaque pas, la puissance de son aura croissait, comme si elle était destinée à augmenter sans fin.
+Il franchit les 3,3 kilomètres avec un calme olympien, comme s'il déambulait dans son propre jardin. À chaque pas, la puissance de son aura croissait, comme si elle était destinée à augmenter sans fin.
 
-Il s'arrêta à 300 pieds de Wang Lin. Il était alors entièrement enveloppé d'énergie spirituelle démoniaque, mais ce qui était étrange, c'est qu'une part d'énergie spirituelle céleste se mêlait à sa nature démoniaque.
+Il s'arrêta à une centaine de mètres de Wang Lin. Il était alors entièrement enveloppé d'énergie spirituelle démoniaque, mais ce qui était étrange, c'est qu'une part d'énergie spirituelle céleste se mêlait à sa nature démoniaque.
 
 La fusion des énergies céleste et démoniaque créa une aura singulière qui envahit lentement la zone! Il se tenait là tel le maître de cet espace, comme s'il pouvait changer les couleurs du monde d'un simple revers de main.
 
 Wang Lin ne daigna pas le regarder. Le bateau sur la rivière disparut lentement au loin, et les notes de la cithare parvinrent à nouveau à ses oreilles, lui procurant une sensation particulière.
 
-Quant à l'homme situé à 300 pieds, Wang Lin agita négligemment la main, et le Doigt de la Mort réapparut!
+Quant à l'homme situé à une centaine de mètres, Wang Lin agita négligemment la main, et le Doigt de la Mort réapparut!
 
 Le sort se matérialisa sous la forme d'un rayon de lumière noire devant Wang Lin avant de foncer vers le jeune homme tel un éclair.
 
@@ -106,7 +106,7 @@ L'aura puissante qu'il avait déployée en marchant s'était totalement effondr�
 
 Tous les hommes en robe noire qui observaient depuis le premier étage du restaurant furent frappés de stupeur. Bien qu'ils fussent éloignés, ils eurent l'impression d'être sur le lieu même de l'affrontement. La sueur qui perla sur leurs corps trempa instantanément leurs vêtements.
 
-Avec leur niveau de culture, ils ne comprenaient pas comment un regard porté depuis 10 000 pieds pouvait donner la sensation d'une lame contre la gorge et de la mort approchant. C'était comme si cet homme s'était transformé en le Dieu de la Boucherie!
+Avec leur niveau de culture, ils ne comprenaient pas comment un regard porté depuis 3,3 kilomètres pouvait donner la sensation d'une lame contre la gorge et de la mort approchant. C'était comme si cet homme s'était transformé en le Dieu de la Boucherie!
 
 Au deuxième étage, les yeux de l'homme plus âgé s'illuminèrent; il se leva brusquement et fit exploser la table devant lui par réflexe.
 
@@ -122,7 +122,7 @@ Son regard vers Wang Lin devint d'une gravité extrême, une expression qu'il ne
 
 Son expression changea radicalement; renonçant à la téléportation, il se redressa d'un bond. L'énergie spirituelle céleste et démoniaque qu'il libéra provoqua l'effondrement du deuxième étage. Il s'élança hors du restaurant, résolu à fuir coûte que coûte.
 
-Mais il s'immobilisa brusquement dans les airs, une sueur froide trempant tout son corps. Wang Lin se tenait à dix pieds de lui, le regardant calmement.
+Mais il s'immobilisa brusquement dans les airs, une sueur froide trempant tout son corps. Wang Lin se tenait à trois mètres de lui, le regardant calmement.
 
 « Tu as perturbé ma culture et tu prétends encore t'enfuir? »
 
@@ -130,8 +130,8 @@ L'homme plus âgé afficha un sourire amer, ses yeux brillant d'une lueur de fol
 
 Une aura destructrice enveloppa le restaurant en plein effondrement, provoquant une série de grondements assourdissants.
 
-Après la violente explosion, un silence de mort régna dans un rayon de 3,3 kilomètres.
+Après la violente explosion, un silence de mort régna dans un rayon de 330 mètres.
 
-Wang Lin apparut à 1 000 pieds de là. Bien que son expression fût normale, une pointe de mélancolie subsistait dans ses yeux. Il tapota doucement la poussière sur ses vêtements, puis s'éloigna vers l'horizon.
+Wang Lin apparut à 330 mètres de là. Bien que son expression fût normale, une pointe de mélancolie subsistait dans ses yeux. Il tapota doucement la poussière sur ses vêtements, puis s'éloigna vers l'horizon.
 
 Sur la rivière, le corps du jeune homme chutait lentement tandis que des traînées de gaz gris s'échappaient de lui pour poursuivre Wang Lin...

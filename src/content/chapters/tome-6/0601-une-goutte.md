@@ -48,13 +48,13 @@ Cette lueur noire semblait capable d'engloutir la lumière elle-même et, dès s
 
 Sa vitesse était telle qu'il percuta l'os en un éclair. Après une série de craquements sinistres, le bras se brisa, permettant à Xu Liguo de retirer précipitamment l'épée.
 
-Au moment où le bras se fragmenta, un symbole brilla sur le protège-poignet. Les débris d'os noir s'étendirent alors rapidement, formant un halo sombre de 10 000 pieds de large.
+Au moment où le bras se fragmenta, un symbole brilla sur le protège-poignet. Les débris d'os noir s'étendirent alors rapidement, formant un halo sombre d'un rayon de 3,3 kilomètres.
 
 L'énergie spirituelle démoniaque emplit cette zone, érigeant une véritable prison!
 
-De nouveaux symboles apparurent sur le protège-poignet et se mirent à émettre le son d'une cloche. Ce son semblait émaner du bracelet lui-même, mais il résonnait comme s'il provenait des cieux, envahissant l'espace de 10 000 pieds.
+De nouveaux symboles apparurent sur le protège-poignet et se mirent à émettre le son d'une cloche. Ce son semblait émaner du bracelet lui-même, mais il résonnait comme s'il provenait des cieux, envahissant l'espace sur 3,3 kilomètres à la ronde.
 
-Tout cela se produisit en un instant. Ce son était cent fois plus puissant que la Brise du Démon Céleste; la clarté que Wang Lin maintenait grâce à son cœur de massacre commença immédiatement à vaciller.
+Tout cela se produisit en un instant. Ce son était d'innombrables fois plus puissant que la Brise du Démon Céleste; la clarté que Wang Lin maintenait grâce à son cœur de massacre commença immédiatement à vaciller.
 
 Le visage de Wang Lin s'assombrit et, d'un bond, il atteignit les airs. Sa main traça un sceau avant de se transformer en une paume qui s'abattit sur le protège-poignet.
 
@@ -78,7 +78,7 @@ La Danse Démoniaque de la Confusion!
 
 Serrant le protège-poignet de sa main droite, Wang Lin chuta rapidement du ciel pour s'asseoir en position de lotus au sol. L'énergie spirituelle démoniaque parcourut ses méridiens, créant des vagues d'illusions qui secouèrent violemment son âme originelle.
 
-Une lueur spectrale brilla dans les yeux de Wang Lin alors qu'il contemplait les Fruits de l'Ascension Céleste environnants. Sans la moindre hésitation, il agita la main, et tous les fruits situés dans un rayon de 10 000 pieds s'envolèrent des branches pour envahir le ciel.
+Une lueur spectrale brilla dans les yeux de Wang Lin alors qu'il contemplait les Fruits de l'Ascension Céleste environnants. Sans la moindre hésitation, il agita la main, et tous les fruits situés dans un rayon de 3,3 kilomètres s'envolèrent des branches pour envahir le ciel.
 
 Il y en avait pas moins de 10 000. C'était comme si une parcelle du firmament était désormais recouverte de ces fruits violets.
 
@@ -114,7 +114,7 @@ Wang Lin redressa brusquement la tête et la main. Une onde de choc explosa de s
 
 Alors que l'ombre était expulsée dans les airs, Wang Lin chargea vers elle, le regard embrasé par le sang. Il saisit l'entité noire et l'énergie spirituelle céleste de son corps jaillit avec frénésie pour l'engloutir.
 
-L'ombre émit un gémissement misérable en s'effondrant. Elle se transforma en de fins filaments soyeux pour échapper à la poigne de Wang Lin, avant de se reformer à cent pieds de lui, lui lançant un regard venimeux.
+L'ombre émit un gémissement misérable en s'effondrant. Elle se transforma en de fins filaments soyeux pour échapper à la poigne de Wang Lin, avant de se reformer à trente-trois mètres de lui, lui lançant un regard venimeux.
 
 Mais Wang Lin l'ignora totalement. À cet instant, la puissance des fruits était sur le point d'exploser. Toujours sous leur influence, il fit un pas en avant et, sans hésiter, pointa son petit doigt vers l'ombre!
 
@@ -134,7 +134,7 @@ Le corps de l'ombre noire se figea et s'effondra instantanément!
 
 Un rugissement de colère monta de l'armure située dans la tour noire, au sein de l'ancien champ de bataille. Puis une volonté puissante jaillit et fusionna avec le vide.
 
-Une fois le doigt rétracté, la restriction créée par l'énergie démoniaque dans ce rayon de 10 000 pieds disparut.
+Une fois le doigt rétracté, la restriction créée par l'énergie démoniaque dans ce rayon de 3,3 kilomètres disparut.
 
 La main droite de Wang Lin serrait toujours le protège-poignet. Des quantités folles d'énergie démoniaque s'en échappaient alors qu'il tentait de se libérer, mais la poigne de Wang Lin était inflexible. Il cracha une bouffée d'énergie originelle sur l'objet; celle-ci se transforma en un réseau semblable à une toile d'araignée, scellant le protège-poignet.
 

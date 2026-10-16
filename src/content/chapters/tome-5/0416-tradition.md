@@ -16,9 +16,9 @@ Les cheveux de Wang Lin flottaient dans l'air, bien qu'aucun vent ne soufflât. 
 
 Wang Lin leva lentement la tête. Lorsqu'il se redressa, ses yeux projetèrent une lueur dorée avant de retrouver leur calme.
 
-« J'ai terminé... le processus... » Les yeux de Wang Lin se posèrent sur Du Tian, assis dans un coin.
+« J'en ai accompli un tiers... » Les yeux de Wang Lin se posèrent sur Du Tian, assis dans un coin.
 
-Du Tian ouvrit les yeux et sourit: « Bien. Maintenant, suis-moi, je vais t'emmener voler quelques jades célestes. Bien que la guerre plonge tout dans le chaos, rien ne pourra arrêter cette tradition de mon Secte du Raffinement des Âmes. »
+Du Tian ouvrit les yeux et sourit: « Bien. Maintenant, suis-moi, je vais t'emmener voler quelques jades célestes. Bien que la guerre plonge tout dans le chaos, rien ne pourra arrêter cette tradition de ma Secte du Raffinement des Âmes. »
 
 Du Tian rit en déchirant l'espace devant lui, créant un vortex noir dans lequel il s'engouffra.
 
@@ -40,7 +40,7 @@ D'autres types de bêtes venimeuses cohabitaient au sein de l'essaim, mais elles
 
 Tous les cultivateurs de Pilu savaient qu'il ne fallait pas poser le pied dans cet essaim. Ce n'était pas seulement par crainte du danger, mais parce que cette terre était le domaine de la Secte des Insectes Démoniaques.
 
-Le Secte des Insectes Démoniaques était situé dans un marais.
+La Secte des Insectes Démoniaques était située dans un marais.
 
 C'était une secte très étrange. Au lieu d'un hall principal unique, ses bâtiments et ses structures étaient dispersés à travers tout le marécage.
 
@@ -54,7 +54,7 @@ Ce jour-là, deux silhouettes apparurent dans le ciel, à la lisière du marais.
 
 Il s'agissait de Du Tian et Wang Lin.
 
-Du Tian semblait parfaitement connaître les lieux, car il avait conduit Wang Lin directement ici. Il regarda le marais en contrebas et soupira: « Ceng Niu, même s'ils se cachent tous comme des rats, ne méprise pas les membres de la Secte des Insectes Démoniaques. Je peux te dire que ces gens ont dû être extrêmement riches dans leurs vies antérieures. Lorsque mon maître m'a amené ici, la quantité de jades célestes que nous avons volés était plus de trois fois supérieure à ce que nous avions pris aux autres sectes. »
+Du Tian semblait parfaitement connaître les lieux, car il avait conduit Wang Lin directement ici. Il regarda le marais en contrebas et soupira: « Ceng Niu, même s'ils se cachent tous comme des rats, ne méprise pas les membres de la Secte des Insectes Démoniaques. Je peux te dire que ces gens ont dû être extrêmement riches dans leurs vies antérieures. Lorsque mon maître m'a amené ici, la quantité de jades célestes que nous avons volés était presque trois fois supérieure à ce que nous avions pris aux autres sectes. »
 
 Sur ces mots, il tendit la main vers le vide et le Drapeau d'Âmes du Milliard d'Âmes apparut dans sa paume. Dès qu'il s'en saisit, l'aura de Du Tian changea radicalement. Il fixa le marais et agita le drapeau. D'innombrables fragments d'âmes s'envolèrent instantanément pour couvrir la zone. Le ciel changea de teinte et le temps sembla se suspendre.
 

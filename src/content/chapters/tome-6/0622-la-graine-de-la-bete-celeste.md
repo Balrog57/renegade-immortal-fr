@@ -32,7 +32,7 @@ L'expression de Wang Lin resta imperturbable tandis qu'il les fixait froidement.
 
 Soudain, une aura chargée d'énergie spirituelle céleste explosa de leurs corps. Cette énergie fusionna de manière étrange au-dessus d'eux, se transformant en un fantôme céleste qui dégageait des vagues d'énergie spirituelle.
 
-Ce fantôme devint progressivement tangible et prit soudainement l'apparence d'un homme d'âge moyen. Cet homme portait une robe verte, avait de longs cheveux flottants et tenait une longue épée verte à la main.
+Ce fantôme devint progressivement tangible et prit soudainement l'apparence d'un homme d'âge moyen. Cet homme portait une robe d'immortel, avait de longs cheveux flottants et tenait une longue épée verte à la main.
 
 Une aura semblable à la puissance des cieux se dégagea de ce fantôme. À cet instant, tous les cultivateurs environnants s'agenouillèrent et dirent respectueusement: « Les cultivateurs du bas-monde saluent l'Empereur Céleste… »
 
@@ -46,7 +46,7 @@ Soudain, une majesté inimaginable émana de l'homme d'âge moyen. Les yeux du f
 
 Les pupilles de Wang Lin se contractèrent brusquement. Bien que le geste de pointer l'épée ne possédât aucune puissance d'attaque intrinsèque, Wang Lin ressentit un besoin impérieux de reculer. Il eut l'impression que son âme originelle s'effondrerait s'il ne battait pas en retraite!
 
-Cette sensation était extrêmement puissante, mais ce n'était pas une première pour lui. La rétribution divine avait possédé cette même force!
+Cette sensation était extrêmement puissante, mais ce n'était pas une première pour lui. La tribulation divine avait possédé cette même force!
 
 Wang Lin, qui cultivait en défiant les cieux, possédait un cœur Dao d'une fermeté absolue. Il se força à ne pas reculer et, loin de cela, il fit un pas en avant!
 
@@ -102,11 +102,11 @@ Le vieil homme ne se souciait guère de savoir comment Wang Lin pouvait reconna�
 
 « Dévorez-le! » hurla le vieil homme en formant un sceau pointé vers les innombrables filaments bleus.
 
-Des milliers de fils bleus se précipitèrent vers Wang Lin.
+Des centaines de fils bleus se précipitèrent vers Wang Lin.
 
-Wang Lin n'était pas étranger à cette scène. Autrefois, il avait affronté une armée de nourriture pour bêtes célestes des centaines de fois plus vaste. Ici, il n'y en avait qu'un millier, il n'avait donc aucune nervosité.
+Wang Lin n'était pas étranger à cette scène. Autrefois, il avait affronté une armée de nourriture pour bêtes célestes des centaines de fois plus vaste. Ici, il n'y en avait pas même un millier, il n'avait donc aucune nervosité.
 
-Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte de la Raffinement de l'Âme apparut!
+Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte du Raffinement de l'Âme apparut!
 
 Bien que cette bête ne soit que l'âme d'un qilin, elle possédait encore une part de son héritage. En apparaissant, elle poussa un rugissement. Son corps trembla et sa tête massive se fixa instantanément sur la nourriture pour bêtes célestes qui fonçait sur lui.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 203 - Qi Lin City
 slug: la-cite-qi-lin
 ---
-Wang Lin gardait Yun Fei car elle lui était encore utile. Si ce n'avait pas été le cas, afin d'empêcher que la nouvelle de sa sortie des Étoiles Brisées et Chaos ne s'ébruite, il l'aurait déjà envoyée aux enfers et aurait continué à jouer au jeu du chat et de la souris avec Qian Kun.
+Wang Lin gardait Yun Fei car elle lui était encore utile. Si ce n'avait pas été le cas, afin d'empêcher que la nouvelle de sa sortie des Étoiles Brisées et Chaos ne s'ébruite, il l'aurait déjà envoyée aux enfers rejoindre Qian Kun, pour y poursuivre leur jeu du chat et de la souris.
 
 Wang Lin savait que s'il laissait les disciples de Duanmu, du Seigneur Démoniaque des Six Désirs, de Meng le Bossu ou de l'Empereur Ancien savoir qu'il était sorti de la Terre des Dieux Anciens, l'avenir ne lui réserverait que des tourments.
 
@@ -22,11 +22,11 @@ La décision de Zhang Hu avait été de massacrer tous ces mortels, mais Wang Li
 
 Même après tant d'années, chaque fois qu'il y repensait, une douleur lui déchirait le cœur, comme si des millions d'insectes le perçaient de leurs mandibules. Plus d'une fois, il s'était moqué de sa propre ignorance de l'époque, et plus d'une fois, il avait haï sa propre moralité défaillante.
 
-Il ignorait alors que le vieux Ji Mo avait lancé un sort sur le maître de Zhang Hu, lui permettant de voir tout ce qui se produirait après sa mort.
+Il ignorait alors que le vieux Ji Mo avait lancé un sort sur le maître de Zhang Hu, lui permettant de voir tout ce qui s'était produit avant sa mort.
 
 Wang Lin pensait que le problème venait des mortels, car il les avait laissés vivre. En échange, il avait attiré la colère du vieil homme Ji Mo, ce qui avait conduit l'arrière-arrière-petit-fils de Teng Huayuan à le traquer.
 
-Autrement, comment Wang Lin aurait-il pu provoquer un tel désastre en offensant un cultivateur de l'Âme Naissante alors qu'il n'était qu'au stade de la Condensation de Qi? Cet incident avait causé l'extermination complète de sa famille. Des parents, il ne restait que deux feux d'âme.
+Autrement, comment Wang Lin aurait-il pu provoquer un tel désastre en offensant un cultivateur de l'Âme Naissante alors qu'il n'était qu'au stade de l'Établissement des Fondations? Cet incident avait causé l'extermination complète de sa famille. Des parents, il ne restait que deux feux d'âme.
 
 Il était même mort une fois.
 
@@ -62,7 +62,7 @@ Yun Fei remarqua le regard de Wang Lin se poser sur la cité et se hâta de l'in
 
 Wang Lin scruta la ville et ses yeux se fixèrent sur le regard de la bête Qi Lin. Il fut stupéfait.
 
-Il frappa son sac de rangement de la main droite, et un morceau de jade apparut. Ce jade avait été offert à Wang Lin par Li Muwan en cadeau d'adieu; il contenait toutes les informations de la Secte Dou Xie. Après l'avoir examiné, il réalisa que la bête Qi Lin présentait des similitudes avec le dragon vert de la Secte Dou Xie.
+Il frappa son sac de rangement de la main droite, et un morceau de jade apparut. Ce jade avait été offert à Wang Lin par Li Muwan en cadeau d'adieu; il contenait toutes les informations de la Secte de la Lutte contre le Mal. Après l'avoir examiné, il réalisa que la bête Qi Lin présentait des similitudes avec le dragon vert de la Secte de la Lutte contre le Mal.
 
 Bien plus tard, il détourna le regard et commença à flotter nonchalamment vers les montagnes qui entouraient la cité. Yun Fei le suivit rapidement sur son épée volante.
 

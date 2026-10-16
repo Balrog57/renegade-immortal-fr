@@ -78,9 +78,9 @@ L'homme en robe noire afficha un visage de douleur et ses yeux devinrent inject�
 
 Alors que la fumée noire continuait d'envahir son organisme, il finit par ne plus pouvoir résister et poussa un rugissement sauvage vers le ciel.
 
-Sa voix fit trembler les cieux, et la vague d'énergie spirituelle démoniaque fut repoussée par ce cri. De haut, on aurait pu voir qu'aucune énergie démoniaque ne subsistait dans un rayon de mille pieds autour de lui. L'énergie qui s'avançait telle une armée de dix mille chevaux galopants fut contrainte de reculer, créant ainsi une zone morte d'un millier de pieds de large.
+Sa voix fit trembler les cieux, et la vague d'énergie spirituelle démoniaque fut repoussée par ce cri. De haut, on aurait pu voir qu'aucune énergie démoniaque ne subsistait dans un rayon d'environ trois cents mètres autour de lui. L'énergie qui s'avançait telle une armée de dix mille chevaux galopants fut contrainte de reculer, créant ainsi une zone morte d'environ trois cents mètres de large.
 
-C'est à ce moment que Wang Lin rattrapa son adversaire. Il s'arrêta à mille pieds de distance et fixa froidement l'homme en robe noire.
+C'est à ce moment que Wang Lin rattrapa son adversaire. Il s'arrêta à trois cents mètres de distance et fixa froidement l'homme en robe noire.
 
 L'homme, debout au centre de la zone, leva soudain la tête pour défier Wang Lin et articula lentement: « Tu cherches la mort! » Sur ces mots, il leva sa main gauche et pointa Wang Lin du doigt. Des filaments de gaz noir commencèrent à sourdre de sa main comme des tentacules.
 
@@ -88,7 +88,7 @@ L'homme, debout au centre de la zone, leva soudain la tête pour défier Wang Li
 
 Sa douleur s'intensifia, ses yeux devinrent encore plus rouges et des veines saillirent sur tout son corps, lui donnant une apparence monstrueuse. C'était comme si une force mystérieuse et infinie jaillissait de sa poitrine, passait par son bras droit pour alimenter son bras gauche. Les tentacules noirs s'agitèrent frénétiquement jusqu'à former une silhouette spectrale.
 
-Une fois la figure fantomatique apparue, elle poussa un rugissement qui, bien que silencieux, força l'énergie spirituelle démoniaque à reculer de plusieurs dizaines de pieds supplémentaires.
+Une fois la figure fantomatique apparue, elle poussa un rugissement qui, bien que silencieux, força l'énergie spirituelle démoniaque à reculer d'une centaine de mètres supplémentaires.
 
 Wang Lin recula rapidement. Bien qu'il n'en entendît pas le son avec ses oreilles, il percevait ce rugissement avec son âme originelle, comme s'il tentait de déchirer les cieux.
 

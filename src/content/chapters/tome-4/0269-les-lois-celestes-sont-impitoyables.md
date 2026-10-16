@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 269 - The Heavens Dao Are Ruthless
 slug: les-lois-celestes-sont-impitoyables
 ---
-Le vieil homme regarda Wang Lin et dit nonchalamment: « À l'instar de la planète Suzaku, toutes les planètes environnantes formeront également des Rain Dings après un certain temps. »
+Le vieil homme regarda Wang Lin et dit nonchalamment: « À l'instar de la planète Suzaku, toutes les planètes environnantes formeront également des Chaudrons de Pluie après un certain temps. »
 
 Les yeux de Wang Lin restèrent calmes alors qu'il demandait lentement: « Quand les Portes Célestes s'ouvriront-elles? »
 
@@ -22,11 +22,11 @@ Le vieil homme laissa échapper un rire espiègle et dit: « Jeune homme, ce vie
 
 Wang Lin réfléchit un instant. Après un long moment, il prit un morceau de bois et, utilisant son doigt comme un couteau, commença à sculpter.
 
-Cependant, alors qu'il n'en était qu'à l'ébauche grossière, le vieil homme laissa échapper un renflement de mécontentement: « Pas de vêtements! »
+Cependant, alors qu'il n'en était qu'à l'ébauche grossière, le vieil homme laissa échapper un reniflement de mécontentement: « Pas de vêtements! »
 
-Le doigt de Wang Lin s'interrompit. Il esquissa un sourire amer. Après avoir médité un instant, il effaça la sculpture de sa main droite et recommença. Cette fois, son doigt ne s'arrêta plus; il bougeait avec la rapidité du vent. Bientôt, un vieil homme chétif, dont les traits rappelaient presque ceux d'un singe, fut sculpté.
+Le doigt de Wang Lin s'interrompit. Il esquissa un sourire amer. Après avoir médité un instant, il effaça la sculpture de sa main droite et recommença. Cette fois, son doigt ne s'arrêta plus; il bougeait avec la rapidité du vent. Bientôt, un vieil homme nu et chétif, dont les traits rappelaient presque ceux d'un singe, fut sculpté.
 
-Hormis l'aspect farfelu, la sculpture ressemblait trait pour trait au vieil homme. Elle était d'un réalisme saisissant, comme si elle était vivante. Même les rides sur son visage étaient finement détaillées.
+À part l'aura de fureur dévastatrice qu'elle n'avait pas su rendre, la sculpture ressemblait trait pour trait au vieil homme. Elle était d'un réalisme saisissant, comme si elle était vivante. Même les rides sur son visage étaient finement détaillées.
 
 Le vieil homme s'empara rapidement de la sculpture et l'examina avec soin. Plus il la regardait, plus ses sourcils se fronçaient, jusqu'à ce qu'il finisse par lever les yeux vers Wang Lin en disant: « Qu'est-ce que c'est que ça? Cela ne me ressemble pas! Ça ne me ressemble absolument pas! Est-ce ainsi que tu vois ce vieil homme? Ce que tu as sculpté ici est un singe, un singe! Comprends-tu? »
 
@@ -46,7 +46,7 @@ Dès que la sculpture fut achevée, le vieil homme s'en saisit. Il fixa l'œuvre
 
 Le vieil homme contemplait la sculpture d'un air rêveur. Plus il la regardait, plus il l'aimait. Après l'avoir rangée, il regarda Wang Lin avec satisfaction et dit: « Désormais, sculpte-les ainsi. Je dois bien l'avouer, même si la sculpture que tu as faite précédemment diffère un peu de mon apparence, on peut passer outre. Le plus important est que celle-ci ressemble exactement à ce que j'étais quand j'étais jeune. »
 
-Tout en parlant, le vieil homme se leva pour partir. Arrivé à la porte, il s'arrêta soudainement: « Il reste encore 999 sculptures à faire. N'oublie pas de les terminer une fois que tu auras atteint le stade de la Formation de l'Âme. N'oublie pas, ou peu importe où tu iras, ce vieil homme te retrouvera. »
+Tout en parlant, le vieil homme se leva pour partir. Arrivé à la porte, il s'arrêta soudainement: « Il reste encore 99 sculptures à faire. N'oublie pas de les terminer une fois que tu auras atteint le stade de la Formation de l'Âme. N'oublie pas, ou peu importe où tu iras, ce vieil homme te retrouvera. »
 
 Après avoir congédié l'étrange vieillard, Wang Lin ramassa la première sculpture. Il esquissa un sourire et la posa nonchalamment sur une étagère.
 
@@ -94,4 +94,4 @@ Ce phénomène n'avait qu'une seule interprétation: Xue Yu prévoyait d'anéant
 
 Sur la planète Suzaku, une guerre d'anéantissement était rare car le pays Suzaku intervenait pour maintenir l'équilibre, mais ce n'était pas un événement sans précédent. Les anciens registres de l'Alliance des Quatre Sectes mentionnaient quatre guerres d'extermination: trois impliquant des pays de culture de rang 4 et une impliquant un pays de rang 5.
 
-Mais sans exception, toutes ces guerres avaient eu la main de Suzaku. Cela signifiait que Xue Yue avait utilisé diverses méthodes pour amener Suzaku à consentir à ce que Xue Yu déclenche cette guerre.
+Mais sans exception, toutes ces guerres avaient eu la main de Suzaku. Cela signifiait que Xue Yu avait utilisé diverses méthodes pour amener Suzaku à consentir à ce que Xue Yu déclenche cette guerre.

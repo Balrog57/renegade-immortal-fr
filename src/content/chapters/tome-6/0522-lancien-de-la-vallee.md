@@ -52,7 +52,7 @@ Wang Lin, l'expression sereine, était assis en position du lotus face au vieil 
 
 Les prisonniers avaient déjà été libérés et étaient retournés dans la vallée.
 
-La voix d'Ouyang Hua était monocorde lorsqu'il reprit: « Ce vieil homme ne connaît pas l'étendue exacte de ce lieu, mais je sais qu'une cité extrêmement vaste se trouve à 15 millions de kilomètres d'ici. C'est l'Ancienne Cité Démoniaque! C'est là que j'ai commencé mon apprentissage, et c'est là que j'ai acquis ma longue vie. Cultivateur étranger, j'ignore ce que vous cherchez, mais il est certain que ma petite tribu ne pourra vous l'offrir. »
+La voix d'Ouyang Hua était monocorde lorsqu'il reprit: « Ce vieil homme ne connaît pas l'étendue exacte de ce lieu, mais je sais qu'une cité extrêmement vaste se trouve à 15 millions de kilomètres d'ici. C'est la Grande Muraille Antique! C'est là que j'ai commencé mon apprentissage, et c'est là que j'ai acquis ma longue vie. Cultivateur étranger, j'ignore ce que vous cherchez, mais il est certain que ma petite tribu ne pourra vous l'offrir. »
 
 Le regard de Wang Lin resta calme lorsqu'il demanda lentement: « Savez-vous d'où je viens? »
 
@@ -60,7 +60,7 @@ Le regard de Wang Lin resta calme lorsqu'il demanda lentement: « Savez-vous d'o
 
 Wang Lin demanda d'un ton serein: « Avez-vous des nouvelles d'autres étrangers? »
 
-Ouyang Hua répondit sans hésiter: « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Ancienne Cité Démoniaque; vous y trouverez peut-être ce que vous cherchez. »
+Ouyang Hua répondit sans hésiter: « Aucune pour le moment, et j'espère qu'il n'y en aura pas à l'avenir. Étranger, il n'y a rien pour vous ici. J'ai dit ce que j'avais à dire, vous devriez donc partir. Rendez-vous à cette Grande Muraille Antique; vous y trouverez peut-être ce que vous cherchez. »
 
 Wang Lin demanda calmement: « Et cette chose dont vous dites sans cesse que j'en ai besoin? Qu'est-ce que c'est, exactement? »
 
@@ -100,7 +100,7 @@ Dès leur apparition, ces ondes furent attirées par la force mystérieuse produ
 
 À cet instant, la lumière verte commença à se mouvoir de manière étrange. Elle s'éparpilla comme des flammes émeraude et, en un instant, forma une gigantesque illusion verte.
 
-Cette illusion avait une forme humaine mais mesurait des dizaines de pieds de haut. Seule sa silhouette était visible, ses traits demeurant indistincts. La figure était entièrement composée de lumière verte.
+Cette illusion avait une forme humaine mais mesurait une dizaine de mètres de haut. Seule sa silhouette était visible, ses traits demeurant indistincts. La figure était entièrement composée de lumière verte.
 
 Dès que l'illusion apparut, la voix d'Ouyang Hua retentit aussitôt: « Étranger, vous avez attiré cela sur vous! Illusion verte, tuez-le et rapportez son âme en sacrifice pour la Nuit Démoniaque de ce jour! »
 
@@ -110,9 +110,9 @@ Bien que ce ne fût qu'un instant, cela fit plisser les yeux de Wang Lin. Il esq
 
 La main droite de Wang Lin s'étira et des filaments de brouillard noir de restriction s'agitèrent comme des dragons. Si l'on levait les yeux, on voyait le brouillard noir recouvrir la voûte céleste tout entière!
 
-Au milieu des hurlements émanant du brouillard, on aurait dit qu'une armée démoniaque sortait des enfers pour descendre sur terre. Le gaz noir environnant poussa un cri perçant en se rassemblant rapidement autour du bras de Wang Lin.
+Au milieu des hurlements émanant du brouillard, on aurait dit qu'un seigneur démon sortait des enfers pour descendre sur terre. Le gaz noir environnant poussa un cri perçant en se rassemblant rapidement autour du bras de Wang Lin.
 
-Enfin, une lance de neuf mètres de long et aussi épaisse que son bras apparut dans sa main!
+Enfin, une lance d'une dizaine de mètres de long et aussi épaisse que son bras apparut dans sa main!
 
 Des éclairs noirs parcouraient la lance et le tonnerre grondait de l'intérieur, la rendant encore plus redoutable. Une lueur spectrale brillait à la pointe de l'arme; sous le soleil de midi, elle était particulièrement frappante.
 

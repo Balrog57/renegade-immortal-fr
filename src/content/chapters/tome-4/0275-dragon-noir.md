@@ -36,17 +36,17 @@ Parmi eux se trouvaient quatre vieux cultivateurs particulièrement frappants, d
 
 Les quatre levèrent la tête pour contempler les tours de glace en descente. L'un d'eux se redressa soudainement, son corps chétif reprenant brusquement du volume. Des craquements résonnèrent dans sa carcasse tandis que ses os s'élargissaient; les rides de sa peau s'effacèrent et ses muscles se développèrent.
 
-En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yu, de la Secte de l'Âme Noire. Puis-je me permettre de vous demander si vous êtes Papillon Rouge, de Xue Yu? »
+En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'âge moyen d'une grande dignité. Il fixa la femme en blanc d'un regard sérieux et déclara: « Je suis Zhou Yun, de la Secte de l'Âme Noire. Puis-je me permettre de vous demander si vous êtes Papillon Rouge, de Xue Yu? »
 
 Papillon Rouge, le génie de Xue Yu qui avait captivé l'attention de Suzaku, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
-Les yeux de la femme s'illuminèrent et elle répondit: « Ainsi, il s'agit du compagnon de culture Zhou Yu, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
+Les yeux de la femme s'illuminèrent et elle répondit: « Ainsi, il s'agit du compagnon de culture Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
 
-Le sourcil de Zhou Yu se fronça. Cette femme avait répondu à sa question par une autre interrogation. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
+Le sourcil de Zhou Yun se fronça. Cette femme avait répondu à sa question par une autre interrogation. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
 
 Ce geste n'était pas seulement le signal du début des hostilités, mais aussi l'ordre donné aux membres de l'Alliance des Quatre Sectes d'entamer la seconde phase de leur plan.
 
-Zhou Yu ne pouvait plus attendre. Peu importait que cette femme soit Papillon Rouge ou non, il devait tenter le coup.
+Zhou Yun ne pouvait plus attendre. Peu importait que cette femme soit Papillon Rouge ou non, il devait tenter le coup.
 
 Les cultivateurs de la Formation de l'Âme qui l'entouraient s'élancèrent tous vers les cieux.
 
@@ -76,7 +76,7 @@ Simultanément, les neuf figures poussèrent des rugissements alors que neuf dom
 
 Le visage de la femme changea radicalement. Elle agita frénétiquement son éventail pour projeter les plumes, mais il était trop tard. Cette formation mortelle avait été préparée par l'Alliance des Quatre Sectes spécifiquement pour le génie de Xue Yu.
 
-La mort du prodige de Xue Yu marquerait un tournant décisif dans cette guerre. Si elle tombait, Xue Yu perdrait le soutien de Suzaku. Bien que cela puisse irriter la créature, c'était préférable à l'anéantissement total de leur nation.
+La mort du prodige de Xue Yu marquerait un tournant décisif dans cette guerre. Si elle tombait, Xue Yu perdrait le soutien de Suzaku. Bien que cela puisse irriter Suzaku, c'était préférable à l'anéantissement total de leur nation.
 
 Lorsque les neuf assauts se déchaînèrent, de nombreux cultivateurs chargés de maintenir la formation périrent sur le coup. Ce furent eux qui absorbèrent une partie du contre-coup de l'attaque de la femme.
 
@@ -98,7 +98,7 @@ Cette femme n'était peut-être pas le véritable génie.
 
 À la base de chaque pilier de lumière, d'innombrables cultivateurs étaient assis au sol. Les yeux clos, ils déversaient toute leur culture et leur énergie spirituelle dans cette formation.
 
-La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne s'égara dans des secousses si puissantes que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon noir de 33 kilomètres de long.
+La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon noir de 33 kilomètres de long.
 
 Alors que le dragon redressait la tête, la neige et la glace tombèrent de ses écailles, et il fixa les cultivateurs de Xue Yu d'un regard impérial.
 

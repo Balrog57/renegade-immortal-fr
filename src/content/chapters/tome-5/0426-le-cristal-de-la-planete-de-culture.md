@@ -26,7 +26,7 @@ Un léger sourire étira les lèvres de Wang Lin alors qu'il frottait la grosse 
 
 Situ Nan prit le jade. Après l'avoir scanné, son expression changea radicalement. Il finit par dire d'un ton embarrassé: « Laisse tomber... Je n'en veux plus... »
 
-Le jade que Wang Lin lui avait offert contenait des informations sur la planète où l'Ancien Dieu avait trouvé une quantité prodigieuse de bêtes moustiques.
+Le jade que Wang Lin lui avait offert contenait des informations sur la planète où le Dieu Antique avait trouvé une quantité prodigieuse de bêtes moustiques.
 
 Malgré toute sa fierté, le cœur de Situ Nan trembla en découvrant ces données. Il reporta un regard étrange sur la créature.
 
@@ -92,7 +92,7 @@ Il secoua légèrement la tête. En regardant vers l'est, son regard se glaça. 
 
 Derrière eux, on comptait plus de cent cultivateurs de l'Âme Naissante.
 
-Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plus de cent individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
+Dans le ciel au sud du continent de Suzaku, une armée de culture composée de plusieurs centaines d'individus volait vers le sud. L'homme en tête était un homme d'âge mûr, l'Ascendant de la Secte de la Terre Brisée. Il esquissa un sourire amer: « Quelle malchance de me retrouver mêlé à une guerre aussi chaotique... »
 
 Après que Zhuque Zi fut retourné au Mont Suzaku, il se reposa brièvement avant de repartir précipitamment. Cette fois, sa cible se trouvait dans la partie occidentale du continent.
 
@@ -110,7 +110,7 @@ Sans dire un mot, les deux diacres descendirent du cercueil et commencèrent à 
 
 Peu après, ils libérèrent une lueur mystérieuse et spectrale de leurs corps et crièrent: « Ouvrez! »
 
-Le grincement du bois frottant contre le bois emplit l'air tandis que le couvercle glissait lentement pour créer une ouverture. L'ouverture s'élargit progressivement.
+Le grincement du bois frottant contre le bois emplit l'air tandis que le couvercle, long d'une quarantaine de mètres, glissait lentement pour créer une ouverture. L'ouverture s'élargit progressivement.
 
 Un gaz noir s'en échappa, accompagné d'une puanteur de chair putréfiée.
 
@@ -124,4 +124,4 @@ Le couvercle fut soudainement repoussé par une main invisible et s'écrasa au s
 
 Le cinquième ancêtre du Clan des Immortels Délaissés demanda froidement: « Est-ce là le cadavre dont vous parliez? »
 
-L'Ancien Sima esquissa un sourire malicieux: « Cinquième ancêtre, ne me blâmez pas; les ordres et le corps sont venus d'en haut. Je n'ai aucun pouvoir de décision. Toutefois, sur la planète Suzaku, les cadavres de Grands Démons du stade de Transformation de l'Âme se font rares; celui-ci a été transféré d'une autre planète. Les quatre autres cadavres auraient déjà dû être livrés à leurs emplacements respectifs. »
+L'Ancien Sima esquissa un sourire malicieux: « Cinquième ancêtre, ne me blâmez pas; les ordres et le corps sont venus d'en haut. Je n'ai aucun pouvoir de décision. Toutefois, sur la planète Suzaku, les cadavres de Démons Géants du stade de Transformation de l'Âme se font rares; celui-ci a été transféré d'une autre planète. Les quatre autres cadavres auraient déjà dû être livrés à leurs emplacements respectifs. »

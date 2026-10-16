@@ -20,7 +20,7 @@ Après tout, ce cristal était lié à toutes les créatures vivantes de la plan
 
 Bien sûr, si quelqu'un nourrissait une inimitié envers lui, c'était une autre histoire. Tuer tous ceux qui portaient le sang de la famille Teng prouvait que Wang Lin n'était en rien un saint.
 
-Une fois assis, ses yeux s'illuminèrent lorsqu'il regarda vers Qiang Feng. À cet instant, Qian Feng tourna également le regard vers lui et leurs regards se croisèrent.
+Une fois assis, ses yeux s'illuminèrent lorsqu'il regarda vers Qian Feng. À cet instant, Qian Feng tourna également le regard vers lui et leurs regards se croisèrent.
 
 Wang Lin esquissa un sourire glacial avant de détourner les yeux vers l'homme masqué. Cet homme lui était inconnu et Wang Lin ne parvint pas à l'identifier. Enfin, son regard se posa sur le vieil homme étrange qui affichait ce sourire sinistre.
 
@@ -34,7 +34,7 @@ Cette femme était d'une grande beauté; le bas de sa robe ondulait comme des va
 
 Dès que Wang Lin posa les yeux sur elle, son visage s'assombrit. Cette femme n'était autre que Liu Mei!
 
-En réalité, une chose que Liu Mei avait dite était vraie: elle et Wang Lin étaient de même nature. Au plus profond d'eux, chacun cachait un brin de cruauté.
+En réalité, une chose que Liu Mei avait dite était vraie: elle et Wang Lin étaient de même nature. Au plus profond d'eux, chacun cachait un brin d'impitoyabilité.
 
 Wang Lin ne la regarda qu'une fraction de seconde avant de détourner les yeux. Son expression était glaciale, identique à celle qu'il affichait lorsqu'il faisait face à Liu Mei auparavant.
 

@@ -20,7 +20,7 @@ Son regard sembla fusionner avec les ombres d'épées environnantes pour en deve
 
 Ces deux lames, l'une noire et l'autre blanche, lâchèrent un hurlement assourdissant qui rappelait le rugissement des dragons. C'était comme si deux divinités tonnaient vers le ciel. Les deux épées bougèrent soudainement et pointèrent vers Wang Lin, comme si elles s'apprêtaient à se rebeller!
 
-Wang Lin laissa échapper un renflement froid et l'étoile de la loi apparut. Tandis qu'elle tournait, une nouvelle loi se manifesta. Le tonnerre résonna dans le ciel tandis qu'innombrables sphères de foudre apparaissaient et se rassemblaient. De plus, à cet instant précis, un feu bleu enveloppa les deux épées.
+Wang Lin laissa échapper un reniflement froid et l'étoile de la loi apparut. Tandis qu'elle tournait, une nouvelle loi se manifesta. Le tonnerre résonna dans le ciel tandis qu'innombrables sphères de foudre apparaissaient et se rassemblaient. De plus, à cet instant précis, un feu bleu enveloppa les deux épées.
 
 Une intention de combat éclata.
 

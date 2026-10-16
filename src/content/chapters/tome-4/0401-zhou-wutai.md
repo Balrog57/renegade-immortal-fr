@@ -30,9 +30,9 @@ Un fracas capable de briser le ciel et la terre, résonnant jusqu'aux plus haute
 
 Wang Lin sentit la puissance dévastatrice de la hache. Son corps trembla, du sang s'échappa de sa bouche et il recula prestement.
 
-Il recula de mille pieds.
+Il recula de trois cent trente mètres.
 
-L'ancêtre du Clan des Démons Géants cracha une bouchée de sang, mais ses pieds semblaient enracinés au sol, le maintenant immobile. Cependant, son corps se rétracta rapidement pour ne plus atteindre qu'un tiers de sa taille initiale.
+L'ancêtre du Clan des Démons Géants cracha une bouchée de sang, mais ses pieds semblaient enracinés au sol, le maintenant immobile. Cependant, son corps se rétracta rapidement en perdant un tiers de sa taille initiale.
 
 Bien que l'ancêtre actuel ne fût pas encore un sac d'os, il n'avait plus l'apparence de la puissance qu'il affichait auparavant.
 
@@ -42,9 +42,9 @@ Un rugissement jaillit de la bouche de l'ancêtre du Clan des Démons Géants. I
 
 Tout en reculant, le regard de Wang Lin devint glacial. Sa main traça un sceau et il s'écria: « Drapeau de l'Âme Honorée! »
 
-Le ciel s'obscurcit comme si toute la lumière s'était concentrée devant Wang Lin. Un drapeau d'âme de trente pieds de haut, brillant comme une flamme dans les ténèbres, apparut dans sa main.
+Le ciel s'obscurcit comme si toute la lumière s'était concentrée devant Wang Lin. Un drapeau d'âme d'une dizaine de mètres de haut, brillant comme une flamme dans les ténèbres, apparut dans sa main.
 
-Si le mât mesurait trente pieds, la bannière elle-même était bien plus vaste. Elle ondulait dans l'air sans qu'aucun vent ne souffle, parsemée de douze points d'un or violacé.
+Si le mât mesurait une dizaine de mètres, la bannière elle-même était bien plus vaste. Elle ondulait dans l'air sans qu'aucun vent ne souffle, parsemée de douze points d'un or violacé.
 
 Dès l'apparition du drapeau, d'innombrables gémissements fantomatiques s'élevèrent de la terre, tels des spectres errants poussant des cris de ressentiment. Des volutes de gaz noir jaillirent du sol et commencèrent à fuir dans toutes les directions.
 
@@ -98,7 +98,7 @@ D'innombrables fragments d'âmes s'échappèrent du drapeau, guidés par les dou
 
 L'expression de l'ancêtre du Clan des Démons Géants changea radicalement. Il n'avait jamais imaginé que Wang Lin posséderait un tel trésor. Une amertume profonde lui serra le cœur; s'il avait su, il n'aurait jamais entamé ce combat. Utiliser toute sa puissance pour s'enfuir aurait été le meilleur choix.
 
-Cependant, les choses étant allées si loin, il n'avait d'autre choix que de lutter. S'il reculait maintenant, la seule issue serait la mort; autant se donner à fond. Une lueur de folie apparut dans ses yeux. Dans un cri déchirant, il chargea une fois de plus. Avec une vitesse dépassant celle de ses assauts précédents, il leva la hache et hurla: « Bras droit de l'Ancêtre Fondateur, aide-moi à terrasser cet homme! »
+Cependant, les choses étant allées si loin, il n'avait d'autre choix que de lutter. S'il reculait maintenant, la seule issue serait la mort; autant se donner à fond. Une lueur de folie apparut dans ses yeux. Dans un cri déchirant, il chargea une fois de plus. Avec une vitesse dépassant celle de ses assauts précédents, il leva la hache et hurla: « Ancêtre fondateur, protège-moi et aide-moi à terrasser cet homme! »
 
 Un éclair rouge fendit le ciel. Cette foudre était d'un rouge vif et, en traversant l'étendue céleste, elle sembla teindre la terre de sang.
 

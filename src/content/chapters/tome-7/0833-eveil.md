@@ -58,7 +58,7 @@ Un rugissement semblable à une tempête d'éclairs tonnantes jaillit du Serpent
 
 À cet instant, quel que soit leur niveau de culture, ils ressentirent face au Serpent aux yeux de lune une peur irrésistible.
 
-De longs tentacules se déployèrent lentement en oscillant de gauche à droite. Simultanément, une immense déchirure apparut là où se trouvait la tête du serpent.
+D'immenses tentacules de trente-trois kilomètres se déployèrent lentement en oscillant de gauche à droite. Simultanément, une immense déchirure apparut là où se trouvait la tête du serpent.
 
 « Ceci... Qu'est-ce que c'est?! »
 

@@ -36,7 +36,7 @@ L'écran de lumière vacilla et finit par céder, incapable de supporter l'impac
 
 Rien ne bloquait plus le violent impact, qui se propageait désormais librement. Les expressions des cultivateurs environnants changèrent radicalement. Tous les anciens des grandes familles utilisèrent promptement des sorts pour protéger leurs membres.
 
-Cependant, toutes les pierres bleues furent repoussées et éclatèrent même directement en poussière. À cet instant, tout ce qui se trouvait dans un rayon de 100 000 kilomètres sembla basculer dans la catastrophe.
+Cependant, toutes les pierres bleues furent repoussées et éclatèrent même directement en poussière. À cet instant, tout ce qui se trouvait dans un rayon de plusieurs dizaines de milliers de kilomètres sembla basculer dans la catastrophe.
 
 L'homme en robe noire assis sur la pierre rouge affichait un visage pâle, bien que ses yeux brillaient intensément. La pierre rouge sous lui se brisa et il bondit dans les airs. Les cinq lames restantes s'envolèrent pour suivre l'homme à la robe noire.
 
@@ -94,13 +94,13 @@ Une lueur froide traversa les yeux de Wang Lin. Loin de reculer, il fit un pas e
 
 Voyant Wang Lin disparaître une fois de plus, les pupilles de Nangong Han se rétractèrent brusquement. Ses mains formèrent un sceau rapide et il hurla: « Formation des Neuf Lames! » Instantanément, les deux lames illusoires effondrées reprirent forme pour s'unir aux sept autres dans une formation de lames. Ces dernières tournèrent avec frénésie, créant d'innombrables fils argentés qui encerclèrent Nangong Han avant de se disperser rapidement.
 
-La silhouette de Wang Lin apparut à trente pieds de Nangong Han alors que la formation de lames approchait. L'os de bête sur le dos de sa main droite s'illumina et se manifesta aussitôt. Les fils argentés émettent une lueur grise. Profitant de cet instant, Wang Lin réprima ses blessures et disparut sans laisser de trace.
+La silhouette de Wang Lin apparut à environ dix mètres de Nangong Han alors que la formation de lames approchait. L'os de bête sur le dos de sa main droite s'illumina et se manifesta aussitôt. Les fils argentés émettent une lueur grise. Profitant de cet instant, Wang Lin réprima ses blessures et disparut sans laisser de trace.
 
 Nangong Han prit une inspiration glacée et recula précipitamment en criant: « Arrête! Arrête! J'abandonne! Je ne me bats plus. Tu maîtrises la Manipulation Spatiale, comment suis-je censé lutter contre ça?! Arrête! » Il fit volte-face et s'enfuit.
 
 « J'ai déjà déclaré forfait et tu continues de me hanter. J'abandonne, je ne me battrai plus contre toi! » eut un sourire amer Nangong Han. Il n'aurait pas voulu que cela se termine ainsi, mais affronter un cultivateur du stade Scruteur du Nirvana maîtrisant la Manipulation Spatiale le plaçait dans un désavantage trop grand.
 
-En disant cela, l'image de puissance qu'il s'était forgée auprès de cette génération s'effondra instantanément. Wang Lin réapparut à deux cents pieds de lui. Il fronça les sourcils en observant Nangong Han.
+En disant cela, l'image de puissance qu'il s'était forgée auprès de cette génération s'effondra instantanément. Wang Lin réapparut à environ soixante-six mètres de lui. Il fronça les sourcils en observant Nangong Han.
 
 Il avait passé sa vie à combattre, mais il n'avait jamais rencontré un tel individu...
 

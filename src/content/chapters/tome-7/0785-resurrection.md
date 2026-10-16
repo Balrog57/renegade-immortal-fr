@@ -46,7 +46,7 @@ Sous l'effet de ces fluctuations, quatre anciennes restrictions apparurent sur l
 
 L'énergie spirituelle céleste émanait de l'intérieur de ces restrictions. À mesure que la foule s'agrandissait, des maîtres des restrictions se joignirent naturellement à eux. Une fois qu'un accord fut trouvé entre les cultivateurs les plus puissants, les divers experts commencèrent à briser les sceaux.
 
-Les quatre fragments présentant des fluctuations apparurent respectivement aux points cardinaux du Royaume Céleste: est, sud, ouest et nord. À cet instant, sur le fragment occidental, Shengong Hu observait calmement la plaine devant lui. Une ancienne restriction de 33 kilomètres de large, dégageant une riche énergie spirituelle céleste, s'étendait sur la plaine.
+Les quatre fragments présentant des fluctuations apparurent respectivement aux points cardinaux du Royaume Céleste: est, sud, ouest et nord. À cet instant, sur le fragment occidental, Shengong Hu observait calmement la plaine devant lui. Une ancienne restriction de 3,3 kilomètres de large, dégageant une riche énergie spirituelle céleste, s'étendait sur la plaine.
 
 Une multitude de cultivateurs s'était massée à l'extérieur des restrictions, principalement en groupes de trois à cinq. Quelques maîtres des restrictions tentaient déjà de forcer le passage.
 
@@ -62,7 +62,7 @@ Shengong Hu fronça légèrement les sourcils et répondit calmement: « C'est t
 
 Zhan Konglie eut un léger sourire en se tenant aux côtés de Shengong Hu. Son regard se porta sur la restriction au loin alors qu'il demandait: « Mon frère sait-il qui j'ai rencontré en chemin? »
 
-« Je l'ignore! » L'expression de Shengong Hu resta neutre; il n'accordait aucun intérêt aux propos de Zhan Konglie. Il se contentait d'observer la plaine, plongé dans ses pensations.
+« Je l'ignore! » L'expression de Shengong Hu resta neutre; il n'accordait aucun intérêt aux propos de Zhan Konglie. Il se contentait d'observer la plaine, plongé dans ses pensées.
 
 Zhan Konglie connaissait le tempérament de Shengong Hu. Il déclara alors: « C'était Senior! »
 
@@ -86,7 +86,7 @@ Simultanément, un rayon de lumière rouge surgit de l'intérieur du conduit. En
 
 Cette scène macabre terrifia immédiatement les cultivateurs présents qui tentèrent de fuir. Cependant, sous la lumière rouge, ils furent massacrés les uns après les autres. Seule une infime poignée de survivants échappa à ce cataclysme.
 
-Au même instant, la formation du fragment est fut ouverte et une foule de cultivateurs s'y précipita. Le même sort leur attendit. Dès que le premier aperçut le vortex aux cinq couleurs, il se déchira lui-même, et tout le tunnel fut inondé d'une lumière rouge sang.
+Au même instant, la formation du fragment est fut ouverte et une foule de cultivateurs s'y précipita. Le même sort leur attendit. Dès que le premier aperçut le vortex aux cinq couleurs, il explosa de lui-même, et tout le tunnel fut inondé d'une lumière rouge sang.
 
 Mais ce n'était pas fini; la tragédie se répéta sur le fragment sud.
 
@@ -102,7 +102,7 @@ Shengong Hu ne bougea pas, tout comme Zhan Konglie. Ils échangèrent un regard 
 
 « Cette formation a été brisée bien trop facilement! »
 
-Hormis eux deux, plusieurs autres cultivateurs restèrent immobiles. La plupart d'entre eux avaient franchi le sommet du stade avancé de l'Ascendant et se trouvaient au stade de l'Ying Illusoire.
+Hormis eux deux, plusieurs autres cultivateurs restèrent immobiles. La plupart d'entre eux avaient franchi le sommet du stade avancé de l'Ascendant et se trouvaient au stade de l'Yin Illusoire.
 
 Après un long moment, alors que de plus en plus de cultivateurs pénétraient dans le tunnel, une explosion sourde retentit. Des cris de douleur s'élevèrent sans interruption avant que le tunnel ne s'effondre totalement. Tous les cultivateurs à l'intérieur furent désintégrés avec la structure.
 
@@ -114,7 +114,7 @@ Simultanément, neuf fragments du Royaume Céleste du Tonnerre tremblèrent viol
 
 Ces formations, profondément gravées dans la terre, émettaient une puissante lumière rouge. Ce changement soudain et radical plongea les cultivateurs du Royaume Céleste du Tonnerre dans la confusion et l'effroi.
 
-L'un des neuf fragments s'effondra. Ce n'était pas l'usage d'une puissance dépassant le Scruteur du Nirvana, mais une puissance dépassant le Scruteur du Nirvana qui avait jailli de l'intérieur.
+L'un des neuf fragments s'effondra. Ce n'était pas une force venue de l'extérieur qui dépassait le Scruteur du Nirvana, mais une puissance bien supérieure au Scruteur du Nirvana qui avait jailli de l'intérieur.
 
 Le fragment se désintégra strate après strate tandis qu'une aura terrifiante jaillissait de son centre. Parmi les cultivateurs en fuite, certains découvrirent immédiatement que cette aura provenait d'un bras sectionné!
 

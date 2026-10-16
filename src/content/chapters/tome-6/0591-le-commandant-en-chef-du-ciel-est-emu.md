@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 591 - The Heaven Commander-in-Chief Is Moved
 slug: le-commandant-en-chef-du-ciel-est-emu
 ---
-« Cependant, il vous est actuellement impossible de me trancher le bras! » L'homme en armure dorée prit une profonde inspiration avant de regarder Wang Lin en secouant la tête. « Si vous parvenez à le faire sonner quinze fois, alors je jure devant le Démon Céleste que je vous offrirai mon bras! »
+« Cependant, il vous est actuellement impossible de me trancher le bras! » L'homme en armure dorée prit une profonde inspiration avant de regarder Wang Lin en secouant la tête. « Si vous parvenez à le faire sonner quinze fois, alors je jure devant le Démon Céleste que je me trancherai moi-même un bras pour vous! »
 
 « Si vous n'y arrivez pas, alors taisez-vous! Si vous continuez à faire du bruit, ne me reprochez pas de devoir vous traiter durement! » L'homme en armure dorée laissa échapper un reniflement glacial.
 
@@ -22,7 +22,7 @@ Bien entendu, l'issue d'un combat contre lui varierait grandement selon l'heure 
 
 Wang Lin détourna son regard et cessa de prêter attention à l'homme en armure dorée pour se concentrer sur le tambour démoniaque. Il l'avait déjà fait sonner huit fois, et le rebond de la huitième frappe avait brisé près de 3 000 couches de sceaux de vie.
 
-« Même si Mo Lihai ne peut pas entrer, j'ai déjà atteint huit coups. Au plus, je n'ai besoin que d'un coup supplémentaire pour intégrer le top dix et m'arrêter là. Si je cherche à aller plus loin au risque d'être blessé, cela n'en vaudra pas la peine... »
+« Même si Mo Lihai ne peut pas combattre, j'ai déjà atteint huit coups. Au plus, je n'ai besoin que d'un coup supplémentaire pour intégrer le top dix et m'arrêter là. Si je cherche à aller plus loin au risque d'être blessé, cela n'en vaudra pas la peine... »
 
 « Pourtant, lorsque je frappe ce tambour démoniaque, mon esprit est troublé. Je ressens la même sensation que lorsque j'écoute la musique d'une cithare au bord de l'eau... Se pourrait-il que le son de ce tambour aide également mon Dao... »
 
@@ -32,7 +32,7 @@ Wang Lin détourna son regard et cessa de prêter attention à l'homme en armure
 
 *Dong!* La neuvième résonance jaillit du tambour!
 
-Le rebond s'engouffra dans son corps comme un raz-de-marée. C'était une force de défi et, en traversant le corps de Wang Lin, les sceaux de vie qui le protégeaient se brisèrent promptement. 100, 800, 1 000, 2 200, 3 400... jusqu'à ce que plus de 3 600 sceaux de vie se dissipent. Bien que cette force ait été considérablement affaiblie, plus de la moitié de l'énergie résiduelle chargeait toujours vers Wang Lin.
+Le rebond s'engouffra dans son corps comme un raz-de-marée. C'était une force de défi et, en traversant le corps de Wang Lin, les sceaux de vie qui le protégeaient se brisèrent promptement. 100, 800, 1 000, 2 200, 3 400... jusqu'à ce que plus de 3 600 sceaux de vie se dissipent. Bien que cette force ait été considérablement affaiblie, une part de son énergie continuait de charger vers Wang Lin.
 
 Plus de 3 700 sceaux de vie s'effondrèrent totalement, la première fois depuis que Wang Lin les avait obtenus.
 

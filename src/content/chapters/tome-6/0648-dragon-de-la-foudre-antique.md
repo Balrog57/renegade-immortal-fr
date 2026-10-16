@@ -18,7 +18,7 @@ La résistance venant du fond était brisée par ces sphères de foudre. Les yeu
 
 Neuf des sphères de foudre qui l'entouraient s'alignèrent instantanément comme un chapelet de perles. Elles transpercèrent la résistance telle une flèche féroce et volèrent droit sur Wang Lin.
 
-« Foudre... » La tête de Wang Lin tourna soudainement et il frappa son sac de rangement. Le Char de Guerre Divin s'envolâ immédiatement, formant rapidement une sphère d'éclairs dans les airs. Cette sphère se développa brusquement pour se transformer en une puissante bête de foudre!
+« Foudre... » La tête de Wang Lin tourna soudainement et il frappa son sac de rangement. Le Char de Guerre Divin s'envola immédiatement, formant rapidement une sphère d'éclairs dans les airs. Cette sphère se développa brusquement pour se transformer en une puissante bête de foudre!
 
 Il s'agissait d'une bête de foudre céleste. Dès son apparition, elle expira deux brins de gaz vert. Ses yeux étaient parcourus de foudre. Sous son regard, les neuf sphères de tonnerre ne ralentirent pas; au contraire, elles volèrent encore plus vite.
 
@@ -140,7 +140,7 @@ Dès que la lumière apparut, elle se transforma en un dragon vert!
 
 Des éclairs circulaient sur tout le corps du dragon; il était terrifiant! C'était un ancien dragon de la foudre, une créature légendaire. Autrefois, alors que Cupidité n'était qu'au stade de l'Établissement des Fondations, il était tombé d'une falaise et avait trouvé un dragon de la foudre nouveau-né. Il l'avait caché avec soin, et en cas de danger, l'aura du dragon protégeait son maître.
 
-Plus tard, Cupidité avait rapporté un trésor magique délaissé dans une ville ordinaire. Mais après recherches, il s'avéra que ce trésor n'était pas inutile, mais un ancien démon magique. Cupidité l'avait utilisé pour marquer et sceller le dragon de la foudre afin qu'il ne puisse jamais s'éveiller et reste sous son contrôle.
+Plus tard, Cupidité avait rapporté un trésor magique délaissé dans une ville ordinaire. Mais après recherches, il s'avéra que ce trésor n'était pas inutile, mais un ancien artefact démoniaque. Cupidité l'avait utilisé pour marquer et sceller le dragon de la foudre afin qu'il ne puisse jamais s'éveiller et reste sous son contrôle.
 
 Ce n'est qu'une fois parvenu au stade d'Ascendant qu'il l'avait raffiné en sa seconde âme originelle. Cependant, il n'osait pas trop le stimuler de peur qu'il ne s'éveille et ne s'échappe de son emprise.
 
@@ -150,7 +150,7 @@ Le dragon vert ouvrit les yeux et poussa un véritable rugissement draconique!
 
 Wang Lin esquissa un sourire amer. Sans hésiter, il utilisa la force de résistance pour se propulser vers le haut et s'éloigna au maximum de ce dragon vert!
 
-« Cupidité... Cupidité... Cet homme regorge vraiment de trésors, même sa seconde âme originelle est un dragon! Le fourneau que Tu Si a raffiné autrefois est aussi tombé entre ses mains... Son niveau de culture est si élevé qu'on pourrait dire qu'il possède la chance des cieux! » Wang Lin souriait amèrement. Il ignorait que lorsque Cupidité n'avait que huit ans et n'avait même pas commencé sa culture, il avait trouvé un Sceau de Salomon vieux de cinq cents ans en jouant. Il l'avait ramené chez lui et l'avait mangé après l'avoir brisé. Non seulement l'énergie ne l'avait pas tué, mais elle avait posé les fondations de sa culture.
+« Cupidité... Cupidité... Cet homme regorge vraiment de trésors, même sa seconde âme originelle est un dragon! Le fourneau que Tu Si a raffiné autrefois est aussi tombé entre ses mains... Son niveau de culture est si élevé qu'on pourrait dire qu'il possède la chance des cieux! » Wang Lin souriait amèrement. Il ignorait que lorsque Cupidité n'avait que huit ans et n'avait même pas commencé sa culture, il avait trouvé un Sceau de Salomon vieux de cinq cents ans en jouant. Il l'avait ramené chez lui et l'avait fait rôtir avant de l'avaler. Non seulement l'énergie ne l'avait pas tué, mais elle avait posé les fondations de sa culture.
 
 Alors que le dragon vert rugissait, ses yeux froids balayèrent la zone et se fixèrent sur Wang Lin. La haine passée était toujours là. Bien qu'il vienne de s'éveiller, il se souvenait de ce qui lui était arrivé. Son corps se transforma en un rayon de lumière verte et chargea directement vers Wang Lin.
 

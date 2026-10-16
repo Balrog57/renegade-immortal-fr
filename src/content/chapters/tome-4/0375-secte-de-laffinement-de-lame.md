@@ -12,7 +12,7 @@ Wang Lin ferma immédiatement les yeux et se mit à cultiver en silence.
 
 Trois jours plus tard, le ciel s'obscurcit et la neige recouvrit la montagne. De loin, l'ensemble du massif semblait enseveli sous un linceul blanc.
 
-Les flocons de neige qui tombaient vers Wang Lin fondaient à trois pouces de son corps, créant progressivement une marque circulaire d'eau autour de lui. La trace de thé sur son visage n'était plus aussi prononcée qu'auparavant et commençait à s'estomper.
+Les flocons de neige qui tombaient vers Wang Lin fondaient à près d'un mètre de son corps, créant progressivement une marque circulaire d'eau autour de lui. La trace de thé sur son visage n'était plus aussi prononcée qu'auparavant et commençait à s'estomper.
 
 Lorsque Wang Lin ouvrit les yeux, son regard était empreint d'une clarté nouvelle.
 
@@ -26,7 +26,7 @@ Lorsque Wang Lin ouvrit les yeux, son regard était empreint d'une clarté nouve
 
 Après avoir réfléchi un instant, ses yeux s'illuminèrent et il sauta sur la bête moustique. Cette dernière poussa un rugissement joyeux et emporta Wang Lin.
 
-Wang Lin baissa la tête pour regarder le village du Nuage de Feu. Après avoir tué l'homme grand et costaud ainsi que l'autre colosse balafré, la majeure partie de sa colère s'était apaisée. Il tapota la grosse tête du moustique qui, poussant un cri, chargea en avant.
+Wang Lin baissa la tête pour regarder le village des Nuages de Feu. Après avoir tué l'homme grand et costaud ainsi que l'autre colosse balafré, la majeure partie de sa colère s'était apaisée. Il tapota la grosse tête du moustique qui, poussant un cri, chargea en avant.
 
 « Plus lentement! » L'expression de Wang Lin changea. Sa culture n'étant revenue qu'au début de l'Établissement des Fondations, il ne pouvait supporter la vitesse de la bête moustique, dont le niveau se situait vers la fin de l'Âme Naissante.
 
@@ -42,7 +42,7 @@ Comparée aux deux autres grandes sectes de Pilu, la Secte de l'Affinement de l'
 
 La Secte de l'Affinement de l'Âme ne recrutait jamais d'enfants mortels. Il n'existait qu'une seule voie pour devenir un disciple principal: il fallait d'abord intégrer la secte en tant que disciple extérieur.
 
-Tous les trois ans, une compétition opposait les disciples extérieurs pour désigner les nouveaux disciples principaux. Les disciples principaux concouraient également tous les trois ans, mais l'enjeu était différent: l'un d'eux était expulsé. Cela signifiait que même un disciple principal pouvait perdre son statut.
+Tous les trois ans, une compétition opposait les disciples extérieurs pour désigner un seul nouveau disciple principal. Les disciples principaux concouraient également tous les trois ans, mais l'enjeu était différent: l'un d'eux était expulsé. Cela signifiait que même un disciple principal pouvait perdre son statut.
 
 Devenir un disciple extérieur était très simple; il suffisait de payer suffisamment de pierres spirituelles pour obtenir ce rang pendant une certaine période.
 
@@ -52,11 +52,11 @@ Les méthodes de la Secte de l'Affinement de l'Âme étaient très étranges et 
 
 C'est précisément ce qui avait attiré Wang Lin. La carte contenait des informations extrêmement détaillées sur la secte, et il était convaincu que la personne qui lui avait vendu le jade en avait été, un temps, un disciple extérieur.
 
-Pilu était, après tout, un pays de culture de rang 5, et d'innombrables familles de cultivateurs dépendaient des trois grandes sectes. Ces familles envoyaient une multitude de disciples vers les sectes tous les trois ans. Aucun de ces disciples n'obtenait de privilèges spéciaux: à moins d'un talent défiant les cieux, ils devaient tous commencer au bas de l'échelle.
+Pilu était, après tout, un pays de culture de rang 5, et d'innombrables familles de cultivateurs dépendaient des trois grandes sectes. Ces familles envoyaient une multitude de disciples vers les sectes tous les dix à quinze ans. Aucun de ces disciples n'obtenait de privilèges spéciaux: à moins d'un talent défiant les cieux, ils devaient tous commencer au bas de l'échelle.
 
 Après sept jours de voyage sur la bête moustique, Wang Lin arriva près de la Secte de l'Affinement de l'Âme. À environ 500 kilomètres de la secte, il descendit de sa monture et sortit une épée volante ordinaire. Il monta dessus et vola vers la secte.
 
-Peu de temps après, la Secte de l'Affinement de l'Âme apparut à l'horizon, mais à quelques kilomètres de là, une douce lumière bloqua son entrée. Comprenant qu'il s'agissait de la formation défensive de la secte, Wang Lin rangea immédiatement son épée et atterrit.
+Peu de temps après, la Secte de l'Affinement de l'Âme apparut à l'horizon, mais à une vingtaine de kilomètres de là, une douce lumière bloqua son entrée. Comprenant qu'il s'agissait de la formation défensive de la secte, Wang Lin rangea immédiatement son épée et atterrit.
 
 À cet instant précis, un rayon de lumière pourpre et rouge passa derrière lui dans un fracas supersonique. Le vent généré par cette traînée fit frémir toute la forêt environnante.
 
@@ -122,7 +122,7 @@ Wang Lin répondit honnêtement: « Une épée volante qu'un aîné m'a offerte 
 
 « Pas étonnant que Cheveux-Rouge ait été si joyeux! Qian Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu travailles dur, tu pourrais avoir une chance de devenir un disciple principal. » L'homme secoua la tête et retourna dans sa demeure.
 
-À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte de l'Affinement de l'Âme depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 25 kilomètres.
+À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte de l'Affinement de l'Âme depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
 
 À cet instant, le jade émettait une lueur verte.
 

@@ -10,7 +10,7 @@ La brume était très épaisse dans la Mer des Diables, saturée d'énergie Yin.
 
 Quant à Li Muwan, son visage n'était plus pâle mais légèrement rose, et sa peau était douce comme de la soie. Ses vêtements, également imbibés par la brume, révélaient les courbes de son corps exquis et charmant.
 
-Wang Lin jeta un seul regard avant de détourner les yeux. Son cœur ne fut nullement troublé. S'il n'avait pas été pour le fait que Li Muwan pouvait raffiner la Pilule de la Distance Céleste et diverses autres pilules, il ne l'aurait jamais autorisée à le suivre.
+Wang Lin jeta un seul regard avant de détourner les yeux. Son cœur ne fut nullement troublé. S'il n'avait pas été pour le fait que Li Muwan pouvait raffiner la Pilule du Ciel Lointain et diverses autres pilules, il ne l'aurait jamais autorisée à le suivre.
 
 La Mer des Diables était un bassin immense. Après une longue descente, il n'en avait toujours pas aperçu le fond. Cependant, il remarqua que plus il s'enfonçait, plus l'énergie Yin se faisait intense.
 
@@ -26,7 +26,7 @@ Wang Lin ne savait pas depuis combien de temps ils volaient quand il s'arrêta s
 « Sortez, maintenant! »
 
 Trois silhouettes fines et élancées apparurent dans le brouillard. La brume était trop épaisse pour que Wang Lin puisse distinguer leurs traits exacts, bien qu'il fût évident qu'il s'agissait de trois cultivateurs masculins. L'un d'eux cria d'une voix stridente:
-« Arrogant! Cette zone appartient à mon Secte de la Lutte contre le Mal. Si tu es intelligent, laisse la cultivatrice derrière toi, ou alors... »
+« Arrogant! Cette zone appartient à ma Secte de la Lutte contre le Mal. Si tu es intelligent, laisse la cultivatrice derrière toi, ou alors... »
 
 Avant qu'il ne puisse finir sa phrase, Wang Lin laissa échapper un ricanement glacial.
 « Trop bavard! Meurs! »
@@ -38,19 +38,19 @@ Wang Lin avança et s'empara de leurs sacs de rangement. Il jeta ensuite leurs c
 
 Li Muwan était horrifiée par ce qu'elle venait de voir. C'était la première fois qu'elle voyait Wang Lin agir ainsi. Les trois autres étaient au stade intermédiaire de l'Établissement des Fondations, tout comme elle, mais ils s'étaient éteints mystérieusement sans avoir pu opposer la moindre résistance.
 
-Sous le choc, elle fixa le dos de Wang Lin, puis se remémora soudainement ce que son frère, Li Qiqing, avait dit il y a une demi-planche à propos de la grande bataille pour le filon spirituel où des milliers de cultivateurs avaient combattu.
+Sous le choc, elle fixa le dos de Wang Lin, puis se remémora soudainement ce que son frère, Li Qiqing, avait dit il y a une quinzaine de jours à propos de la grande bataille pour le filon spirituel où des milliers de cultivateurs avaient combattu.
 
-Au début de cette bataille, un phénomène étrange frappait les cultivateurs de Xuan Xu. Tous les membres de l'Établissement des Fondations de Xuan Wu mouraient mystérieusement, tombant du ciel.
+Au début de cette bataille, un phénomène étrange frappait les cultivateurs de Xuan Wu. Tous les membres de l'Établissement des Fondations de Xuan Wu mouraient mystérieusement, tombant du ciel.
 
-Si cela n'avait concerné qu'un ou deux individus, ce n'aurait pas été si grave, mais Xuan Wu ne comptait qu'une deux cents personnes à ce stade, et près de la moitié d'entre elles s'étaient éteintes ainsi. Lorsqu'elle en avait entendu parler, elle n'y avait pas cru, pensant à une simple rumeur; mais en voyant la mort de ces trois cultivateurs, elle ne put s'empêcher de repenser à cette histoire.
+Si cela n'avait concerné qu'un ou deux individus, ce n'aurait pas été si grave, mais Xuan Wu ne comptait pas plus de deux cents personnes à ce stade, et près de la moitié d'entre elles s'étaient éteintes ainsi. Lorsqu'elle en avait entendu parler, elle n'y avait pas cru, pensant à une simple rumeur; mais en voyant la mort de ces trois cultivateurs, elle ne put s'empêcher de repenser à cette histoire.
 
 Elle suivit Wang Lin et demanda d'une voix tremblante:
 « Senior... senior frère apprenti, dans l'Union de Huo Fen, de quelle armée faisiez-vous partie? »
 
 Wang Lin ne tourna pas la tête et répondit froidement:
-« La dixième armée. »
+« La dixième brigade. »
 
-À ces mots, ce fut comme si la foudre frappait l'esprit de Li Muwan. Elle se souvenait parfaitement que son frère avait affirmé que la 10e armée était celle qui avait mené cette bataille. Elle était désormais presque certaine que ce jeune homme au regard glacial était responsable du massacre des cultivateurs de l'Établissement des Fondations de Xuan Wu.
+À ces mots, ce fut comme si la foudre frappait l'esprit de Li Muwan. Elle se souvenait parfaitement que son frère avait affirmé que la 10e brigade était celle qui avait mené cette bataille. Elle était désormais presque certaine que ce jeune homme au regard glacial était responsable du massacre des cultivateurs de l'Établissement des Fondations de Xuan Wu.
 
 En y pensant, son dernier vestige de volonté de résister s'évapora totalement. Elle n'avait même plus la force de reculer. Mais à cet instant, elle se souvint soudain d'une description de technique étrange lue à la Secte Lou He et lâcha:
 « La technique que vous venez d'utiliser... était-ce le sort de la mort? »
@@ -94,7 +94,7 @@ Li Muwan serra les dents et s'avança sans mot dire. Elle sortit des drapeaux no
 Après ce travail, elle contracta la mâchoire et sortit un os de bête cristalline bleu. À l'aide de son épée volante, elle le dépeça en morceaux et, après quelques calculs, en plaça un.
 
 Elle continua ainsi jusqu'à ce que les dix-huit fragments de l'os soient en place, trois heures plus tard. Le front de Li Muwan était couvert de sueur. Épuisée, elle déclara:
-« En incluant vos formations, il y a un total de 214 dispositifs. Cependant, ce ne sont que des formations de base qui ne peuvent bloquer que des cultivateurs de l'Établissement des Fondations. J'ai utilisé l'os d'une bête cristalline pour poser la formation aux neuf squelettes. Bien qu'elle ne soit qu'à 30 % de sa puissance faute d'ossements suffisants, elle peut tout de même stopper un cultivateur de la Formation du Noyau pendant une heure. »
+« En incluant vos formations, il y a un total de 214 dispositifs. Cependant, ce ne sont que des formations de base qui ne peuvent bloquer que des cultivateurs de l'Établissement des Fondations. J'ai utilisé l'os d'une bête cristalline pour poser la formation aux neuf squelettes. Bien qu'elle ne soit qu'à 30 % de sa puissance faute d'ossements suffisants, elle peut tout de même stopper un cultivateur de la Formation du Noyau pendant au moins une heure. »
 
 « Je n'ai que ces os de bête cristalline. Si vous voulez une formation plus stable, il nous faudra davantage d'ossements de bêtes spirituelles. »
 
@@ -105,7 +105,7 @@ Li Muwan savait qu'elle ne pouvait lui faire confiance, mais n'ayant d'autre cho
 Une fois les couches de formations franchies et la grotte atteinte, Li Muwan sortit un petit drapeau. Elle l'agita doucement, activant toutes les protections qui libérèrent une brume épaisse. De loin, on ne pouvait rien distinguer; même en s'approchant, on n'apercevrait que la montagne.
 
 À l'intérieur, le regard de Wang Lin sur Li Muwan la fit pâlir davantage. Elle recula de quelques pas et murmura:
-« Senior frère apprenti, dois-je commencer à raffiner la Pilule de la Distance Céleste pour vous? »
+« Senior frère apprenti, dois-je commencer à raffiner la Pilule du Ciel Lointain pour vous? »
 
 Wang Lin secoua la tête:
 « Je n'ose pas consommer les pilules que tu raffines. »
@@ -116,7 +116,7 @@ Les yeux de Li Muwan s'embuèrent immédiatement et elle baissa la tête en sile
 Wang Lin ne fut nullement affecté par sa beauté. Son expression resta impassible lorsqu'il déclara:
 « Je n'aime pas contraindre les gens, je ne te demanderai donc pas trop. Tout ce que j'attends de toi, c'est que tu raffines suffisamment de pilules pour me permettre d'atteindre le stade de la Formation du Noyau. Une fois ce stade atteint, je t'escorterai hors de la Mer des Diables. Mais durant cette période, je veux que tu me remettes ton sang d'essence spirituelle pour garantir qu'aucun incident ne survienne lors de la fabrication des pilules. »
 
-Li Muwan réfléchit un instant, puis hocha la tête. Elle pressa son doigt contre son front et en extraisit une goutte de sang d'essence spirituelle qu'elle tendit à Wang Lin.
+Li Muwan réfléchit un instant, puis hocha la tête. Elle pressa son doigt contre son front et en tira une goutte de sang d'essence spirituelle qu'elle tendit à Wang Lin.
 
 Une fois le sang reçu, Wang Lin lança plusieurs sacs de rangement:
 « Tous les matériaux sont ici. Vois quel type de pilules tu peux raffiner. »
@@ -135,13 +135,13 @@ Wang Lin acquiesça:
 Li Muwan lui sourit pour la première fois. Son sourire était radieux lorsqu'elle affirma avec assurance:
 « Soyez sans crainte, senior frère. J'ai calculé que je peux produire 300 pilules d'Esprit Jaune pour favoriser la culture, 50 pilules d'Évitement du Poison, et divers autres remèdes. Une fois terminé, je vous les remettrai. Senior frère, parmi vos matériaux, le plus précieux est cette vigne de sang de démon. » Elle sortit alors une fine lamelle de bois rouge très ordinaire.
 
-« Cette lamelle est l'un des ingrédients les plus essentiels pour la Pilule de la Distance Céleste. Je n'ai croisé cette vigne que dans les textes anciens. Avec elle, je suis confiante pour raffiner une Pilule de la Distance Céleste; toutefois, son efficacité sera légèrement moindre car je devrai trouver des substituts pour les autres composants. »
+« Cette lamelle est l'un des ingrédients les plus essentiels pour la Pilule du Ciel Lointain. Je n'ai croisé cette vigne que dans les textes anciens. Avec elle, je suis confiante pour raffiner une Pilule du Ciel Lointain; toutefois, son efficacité sera légèrement moindre car je devrai trouver des substituts pour les autres composants. »
 
 Le visage de Wang Lin resta impassible:
 « Je ne m'intéresse pas aux détails du raffinage. » Il marqua une pause et ajouta: « Je compte sortir pendant quelques jours, entre trois jours et deux semaines. Prends soin de toi. »
 
 Il s'apprêtait à partir quand Li Muwan hésita, puis l'interpella rapidement:
-« Senior frère apprenti, lorsque vous sortirez, pourriez-vous me trouver un fourneau à pilules? Mes matériaux sont corrects, et mon fourneau actuel convient aux pilules ordinaires. Mais avec lui, le taux de réussite de la Pilule de la Distance Céleste ne serait que de 50 %. Normalement, on utilise le Fourneau de Fusion Céleste de la Secte pour ce genre de préparation. »
+« Senior frère apprenti, lorsque vous sortirez, pourriez-vous me trouver un fourneau à pilules? Mes matériaux sont corrects, et mon fourneau actuel convient aux pilules ordinaires. Mais avec lui, le taux de réussite de la Pilule du Ciel Lointain ne serait que de 50 %. Normalement, on utilise le Fourneau de Fusion Céleste de la Secte pour ce genre de préparation. »
 
 Wang Lin fronça légèrement les sourcils. Il la regarda, puis partit sans un mot.
 
@@ -150,7 +150,7 @@ Li Muwan soupira intérieurement. Elle n'avait pas voulu mentir, mais elle craig
 Après avoir quitté la grotte, Wang Lin vérifia sa direction et regarda vers le domaine de Zhao. Ses yeux se glacèrent:
 « Teng Huayuan, je suis sur le point d'atteindre la Formation du Noyau. Une fois que j'aurai atteint l'Âme Naissante, je me frayerai un chemin jusqu'à Zhao pour anéantir tout votre clan. Teng Huayuan, ne meurs pas trop vite. Vis et attends mon retour... »
 
-La froideur dans son regard s'estompa. Il fit un pas, activa la technique d'Échappement Terrestre et s'élança vers l'horizon. Son but était de trouver davantage d'ossements de bêtes spirituelles. Selon Li Muwan, seule une quantité accrue permettrait à la formation aux neuf squelettes d'atteindre sa puissance maximale. Wang Lin était pressé d'atteindre la Formation du Noyau et, dans un lieu aussi périlleux que la Mer des Diables, il lui fallait un refuge sûr pour s'assurer de sa progression.
+La froideur dans son regard s'estompa. Il fit un pas, activa la technique d'évasion tellurique et s'élança vers l'horizon. Son but était de trouver davantage d'ossements de bêtes spirituelles. Selon Li Muwan, seule une quantité accrue permettrait à la formation aux neuf squelettes d'atteindre sa puissance maximale. Wang Lin était pressé d'atteindre la Formation du Noyau et, dans un lieu aussi périlleux que la Mer des Diables, il lui fallait un refuge sûr pour s'assurer de sa progression.
 
 Une autre raison était le besoin de crânes de bêtes spirituelles pour fabriquer le fourneau de réaction nécessaire à la technique de raffinage du Sanctuaire du Dieu de la Guerre. Avec les formations et ce fourneau, les ossements étaient devenus une nécessité absolue. Selon le jade de la carte, des bêtes spirituelles rôdaient dans la brume et leurs restes gisaient au fond de la mer.
 
@@ -158,7 +158,7 @@ Cependant, beaucoup avaient déjà été pillés, et malgré sa marche, Wang Lin
 
 Soudain, son expression changea et il recula d'un pas. Une épée volante, traçant un mouvement sinueux, passa près de lui.
 
-Wang Lin, au sommet du stade avancé de l'Établissement des Fondations (stade pseudo-Formation du Noyau), put parfaitement déceler la nature de cet homme d'une cinquantaine d'années qui n'était qu'au début de l'Établissement des Fondations. Le visage de ce dernier était violacé et sa respiration rauque; il était manifeste qu'un puissant poison l'affectait, l'empêchant de contrôler son énergie spirituelle.
+Wang Lin, au sommet du stade avancé de l'Établissement des Fondations (stade pseudo-Formation du Noyau), put parfaitement déceler la nature de cet homme d'une quarantaine d'années qui n'était qu'au début de l'Établissement des Fondations. Le visage de ce dernier était violacé et sa respiration rauque; il était manifeste qu'un puissant poison l'affectait, l'empêchant de contrôler son énergie spirituelle.
 
 À peine l'épée passée, un autre éclat lumineux la poursuivit de près.
 

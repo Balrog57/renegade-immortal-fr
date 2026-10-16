@@ -34,33 +34,33 @@ Bien que cela semblât imperceptible, tout s'était déroulé en un éclair. Dè
 
 L'inquiétude de Wang Lin était immense. D'après ses observations, il fallait trois secondes pour que le réseau et le jade se synchronisent. Ces trois secondes seraient fatales, mais s'il parvenait à tenir bon, il était certain d'être transféré.
 
-La première seconde! Plus d'une douzaine de lignes noires surgirent et foncèrent sur lui comme des flèches. Wang Lin savait qu'il ne pouvait effectuer de grands mouvements, sous peine de faire échouer le transfert. Mais les petits mouvements seraient tout aussi inutiles face à la célérité de ces lignes noires.
+La première seconde! Plusieurs dizaines de lignes noires surgirent et foncèrent sur lui comme des flèches. Wang Lin savait qu'il ne pouvait effectuer de grands mouvements, sous peine de faire échouer le transfert. Mais les petits mouvements seraient tout aussi inutiles face à la célérité de ces lignes noires.
 
 Il avait anticipé cela. Son visage s'assombrit et son front brilla intensément. Un par un, des groupes de quarante-neuf symboles jaillirent de son front.
 
-Wang Lin avait déjà formé vingt et une formations par le passé. En incluant celle qui venait d'être détruite, il disposait de près de mille symboles pour sa protection.
+Wang Lin avait déjà formé vingt et une formations par le passé. En excluant celle qui venait d'être détruite, il disposait de près de mille symboles pour sa protection.
 
-Il entendit le craquement incessant de miroirs se brisant alors que ses symboles protecteurs volaient en éclats durant cette seconde. Tout fut extrêmement rapide: la douzaine de lignes noires parvint à pulvériser plus de neuf cents symboles avant de s'évanouir.
+Il entendit le craquement incessant de miroirs se brisant alors que ses symboles protecteurs volaient en éclats durant cette seconde. Tout fut extrêmement rapide: les dizaines de lignes noires parvinrent à pulvériser près de neuf cents symboles avant de s'évanouir.
 
-À cet instant, loin de se détendre, Wang Lin devint encore plus grave. Il savait que ses préparations n'auraient tenu que jusque-là. Les deux secondes restantes dépendraient entièrement de sa propre volonté. Il lança trois sacs de rangement, et une multitude de trésors magiques apparurent pour flotter autour de lui. À y regarder de près, on en comptait au moins cent.
+À cet instant, loin de se détendre, Wang Lin devint encore plus grave. Il savait que ses préparations n'auraient tenu que jusque-là. Les deux secondes restantes dépendraient entièrement de sa propre volonté. Il lança trois sacs de rangement, et une multitude de trésors magiques apparurent pour flotter autour de lui. À y regarder de près, on en comptait au moins plusieurs centaines.
 
 Wang Lin avait inspecté ses sacs et identifié les objets utilisables. Un homme ordinaire n'oserait jamais contrôler autant de trésors simultanément. Même avec son Sens Divin, l'exercice était périlleux.
 
 La synchronisation entre le réseau et le jade entrait dans sa seconde phase. La première seconde était passée; place à la deuxième.
 
-Les pupilles de Wang Lin se contractèrent brusquement. Il esquissa un sourire amer alors que plus d'une centaine de lignes noires chargeaient vers lui. Il ne lui restait plus que moins de cent symboles, qui furent instantanément anéantis avant même d'avoir pu jouer leur rôle.
+Les pupilles de Wang Lin se contractèrent brusquement. Il esquissa un sourire amer alors que plusieurs centaines de lignes noires chargeaient vers lui. Il ne lui restait plus que moins de cent symboles, qui furent instantanément anéantis avant même d'avoir pu jouer leur rôle.
 
 Peu après, ce fut au tour des trésors magiques. Des explosions retentirent de toutes parts alors que les objets étaient pulvérisés. Wang Lin soupira intérieurement; n'ayant pas eu le temps de les affiner, il ne pouvait en libérer toute la puissance.
 
-Les trésors réussirent néanmoins à stopper plus de la moitié des lignes noires. Les restantes, privées d'obstacle, s'engouffrèrent dans le corps de Wang Lin.
+Les trésors réussirent néanmoins à stopper près de la moitié des lignes noires. Les restantes, privées d'obstacle, s'engouffrèrent dans le corps de Wang Lin.
 
-L'énergie destructrice explosa en lui. Ces déflagrances massives endommagèrent son Sens Divin, mais il tint bon, empêchant son âme d'être annihilée.
+L'énergie destructrice explosa en lui. Ces déflagrations massives endommagèrent son Sens Divin, mais il tint bon, empêchant son âme d'être annihilée.
 
 Il parvint à survivre à cette deuxième seconde. Le visage de Wang Lin était livide alors qu'il fixait le vide et riait avec fureur: « Quelle foutaise que la loi du monde! Venez donc essayer de m'empêcher de rentrer! Je suis déjà mort une fois! Personne ne m'arrêtera cette fois! »
 
 Le Royaume Ji était un domaine d'une nature extraordinaire. Habituellement, le Royaume Ji émane de l'énergie spirituelle; or, Wang Lin n'en possédait plus aucune, et pourtant, son âme commençait à manifester les signes du Royaume Ji.
 
-Dans ce champ de bataille étranger en plein effondrement, un grondement tonitruant déchira l'espace, provoquant la chute de plus de la moitié du domaine. Les innombrables fragments formèrent une multitude de failles spatiales.
+Dans ce champ de bataille étranger en plein effondrement, un grondement tonitruant déchira l'espace, provoquant la chute de la moitié du domaine. Les innombrables fragments formèrent une multitude de failles spatiales.
 
 Une pression colossale émana du vide, forçant les trois voisins de Wang Lin à retourner précipitamment vers le monde de la décadence, n'osant rester un instant de plus.
 
@@ -102,7 +102,7 @@ Mais sous l'assaut extérieur, l'âme de Wang Lin se contracta et le Royaume Ji 
 
 Le Royaume Ji est un domaine pur. S'il se manifeste dans la puissance spirituelle, son développement s'effectue uniquement au sein de l'énergie spirituelle.
 
-De même, puisque le Royaume Ji de Wang Lin résidait désormais dans son âme, son énergie spirituelle n'en serait plus dépourvue, mais son Sens Divin serait capable d'éliminer aisément n'importe qui au même niveau de culture, que ce soit au stade initial, intermédiaire ou avancé. Toutefois, la limite du Royaume Ji se situait au stade tardif de l'Âme Naissante.
+De même, puisque le Royaume Ji de Wang Lin résidait désormais dans son âme, son énergie spirituelle n'aurait plus sa puissance d'antan, mais son Sens Divin serait capable d'éliminer aisément n'importe qui au même niveau de culture, que ce soit au stade initial, intermédiaire ou avancé. Toutefois, la limite du Royaume Ji se situait au stade tardif de l'Âme Naissante.
 
 Un seul cultivateur des temps anciens avait réussi à franchir ce seuil. Aucun autre n'y était parvenu.
 

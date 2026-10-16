@@ -10,7 +10,7 @@ La première personne que Wang Lin avait tuée était son maître, Sun Dazhu!
 
 Alors que sa main s'activait, des copeaux de bois tombaient sur le sol. Peu après, le moment de la mort de Sun Dazhu, ce regard de terreur et de désespoir, fut parfaitement capturé dans la sculpture.
 
-Le cœur de Wang Lin était d'un calme absolu tandis qu'il contemplait l'œuvre de Sun Dazhu. Si Sun Dazhu n'avait pas été si avide du calice de Wang Lin, il ne serait pas mort. C'était le karma. Là où la vie existe, la mort règne également.
+Le cœur de Wang Lin était d'un calme absolu tandis qu'il contemplait l'œuvre de Sun Dazhu. Si Sun Dazhu n'avait pas été si avide de la gourde de Wang Lin, il ne serait pas mort. C'était le karma. Là où la vie existe, la mort règne également.
 
 La deuxième sculpture représentait un homme d'âge moyen. Les yeux de cet homme étaient injectés de sang, ses lèvres très fines et son visage empreint d'une grande méchanceté. À ce stade, il tenait une épée volante à la main; l'arme paraissait d'un tranchant redoutable. Une intention meurtrière émanait de cette sculpture.
 
@@ -38,7 +38,7 @@ Wang Lin n'y prêtait aucune attention. Il était absorbé par ses souvenirs, sc
 
 Progressivement, Wang Lin oublia l'acte même de sculpter pour plonger au plus profond de sa mémoire. Quatre cents ans de souvenirs apparurent dans son esprit, et il les observa comme s'il s'agissait de ceux d'un autre.
 
-Du garçon qu'il était au début, au jeune homme à la Secte Heng Yue, de son manque de talent à la découverte de la perle défiant le ciel, des enseignements de Situ Nan jusqu'à l'expulsion de la Secte Heng Yue de sa montagne.
+Du garçon qu'il était au début, au jeune homme à la Secte Heng Yue, de son manque de talent à la découverte de la perle défiant le ciel, de l'apparition de Situ Nan jusqu'à l'expulsion de la Secte Heng Yue de sa montagne par la Secte Xuan Dao.
 
 Puis il avait quitté la Secte Heng Yue pour cultiver seul. Après cela, il avait retrouvé Zhang Hu, tué le maître de ce dernier et pénétré dans la ville de la famille Teng, avant que Teng Li ne surgisse de nulle part.
 
@@ -46,11 +46,11 @@ Puis il avait quitté la Secte Heng Yue pour cultiver seul. Après cela, il avai
 
 Teng Li, qui l'avait traqué, finit par mourir sous ses coups, marquant le début d'une route semée de conflits. La Secte des Cadavres, puis la Vallée de Jue Ming, et enfin ce moment qui changea radicalement sa vie.
 
-La mort de ses parents. Le sourire de Teng Huayuan, son corps détruit, et Situ Nan aidant son âme à s'échapper vers le champ de bataille étranger.
+La mort de ses parents. L'expression féroce de Teng Huayuan, son corps détruit, et Situ Nan aidant son âme à s'échapper vers le champ de bataille étranger.
 
 Cela mena à quatre cents ans de massacres. Afin d'augmenter son niveau de culture pour pouvoir revenir se venger, il était devenu un homme sans cœur, insensible et sang-froid.
 
-Huo Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
+Huo Fen, la Mer des Démons, et la terre de l'Ancien Dieu. Les scènes de tous ces lieux défilèrent devant ses yeux. L'ordre de tuer dix mille démons en cent jours. Hormis le massacre de la famille Teng, ce fut le moment où il avait tué le plus.
 
 Quant à la terre de l'Ancien Dieu, les souvenirs de Wang Lin concernant Bossu Meng et les autres étaient profonds et difficiles à oublier.
 
@@ -80,7 +80,7 @@ On ne peut dire que l'état d'esprit de Wang Lin avait atteint un point tel qu'i
 
 Wang Lin en était actuellement à ce stade.
 
-Lorsqu'il ouvrit les yeux, d'innombrables sculptures jonchaient sa boutique. Une lueur maléfique brillait dans le regard de Wang Lin. Cette lumière ressemblait étroitement à celle de Ta Sen dans la terre de l'Ancien Dieu.
+Lorsqu'il ouvrit les yeux, d'innombrables sculptures jonchaient sa boutique. Une lueur maléfique brillait dans le regard de Wang Lin. Cette lumière ressemblait étroitement à celle de Tuo Sen dans la terre de l'Ancien Dieu.
 
 Il contempla calmement toutes les sculptures devant lui et leva lentement les mains. Soudain, toutes les pièces de bois se mirent à trembler et convergèrent vers ses paumes. De plus en plus de sculptures volèrent vers lui, mais à cet instant, un vortex noir apparut entre ses mains. Bien que les sculptures s'y engouffrèrent une à une, la taille du vortex ne changea point.
 
@@ -108,13 +108,13 @@ C'était comme si une force mystérieuse dans les cieux l'attirait vers elle.
 
 Ce sentiment signifiait qu'il était sur le point d'atteindre la Formation de l'Âme. Désormais, il n'avait plus besoin de chercher un domaine ou de comprendre les lois célestes; il lui suffisait de trouver un endroit pour s'isoler en culture fermée pendant dix ans pour atteindre ce stade.
 
-Wang Lin s'arrêta au bout du chemin et observa attentivement la rue déserte. Il avait vécu dans cette vieille rue pendant plus de trente ans. Il en avait gravé chaque détail, jusqu'au moindre brin d'herbe, dans son esprit. Une pointe de tristesse lui serra le cœur.
+Wang Lin s'arrêta au bout du chemin et observa attentivement la rue déserte, où neuf maisons sur dix étaient vides. Il avait vécu dans cette vieille rue pendant plus de trente ans. Il en avait gravé chaque détail, jusqu'au moindre brin d'herbe, dans son esprit. Une pointe de tristesse lui serra le cœur.
 
 Après avoir contemplé la scène un long moment, il en fixa l'image dans sa mémoire. Il poussa un soupir et disparut dans la nuit.
 
-Dans une ville située à 5 000 kilomètres au nord, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
+Dans une ville située à 5 000 kilomètres au sud, se trouvait une importante concentration de mortels. Des maisons simples étaient parsemées dans la région, abritant de nombreuses familles.
 
-Ils avaient tous été rassemblés ici pour aider au débloiement de la neige. Da Niu vivait dans l'une de ces demeures.
+Ils avaient tous été rassemblés ici pour aider au déblaiement de la neige. Da Niu vivait dans l'une de ces demeures.
 
 Trente autres personnes partageaient la maison avec lui, rendant ce logement déjà exigu encore plus étouffant. Da Niu fixait le plafond d'un regard vide.
 
@@ -128,6 +128,6 @@ Dans cette rue, on pouvait dire qu'il menait une vie prospère.
 
 Lui et sa femme s'étaient toujours aimés. La vie était empreinte de joie. Il avait même prévu d'arrêter l'oncle Wang de sculpter dans quelques années pour le servir durant ses dernières années de vie.
 
-Dans son esprit, la mort de ses parents lui rappelait l'oncle Wang qui l'avait vu grandir, tel un aîné. Mais cette neige avait tout changé.
+Dans son esprit, la mort de ses parents avait fait de l'oncle Wang, qui l'avait vu grandir, un aîné pour lui. Mais cette neige avait tout changé.
 
-Il ignorait ce qu'il en était de sa femme à cet instant. Lorsqu'il avait appris, il y a quelques mois, que même les femmes étaient mobilisées pour déblayer la neige, il avait été rongé par l'inquiétude. La santé de sa femme n'avait jamais été robuste. Son corps pourrait-il seulement supporter ce froid glacial...
+Il ignorait ce qu'il en était de sa femme à cet instant. Lorsqu'il avait appris, il y a quelques mois, que même les femmes et les enfants étaient mobilisés pour déblayer la neige, il avait été rongé par l'inquiétude. La santé de sa femme n'avait jamais été robuste. Son corps pourrait-il seulement supporter ce froid glacial...

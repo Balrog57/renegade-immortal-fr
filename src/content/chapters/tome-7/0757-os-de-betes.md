@@ -18,7 +18,7 @@ En y songeant, le cœur de Li Yuan s'emballa. L'excitation provoquée par la ten
 
 « Frère Xu, nous... nous essayons en fait de tuer un dieu! »
 
-Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Bien que l'Ancêtre Sanguin ne fût peut-être pas comparable à un général céleste, il aurait tout de même été considéré comme une puissance majeure du Royaume Céleste avant sa destruction.
+Comme l'avait dit Li Yuan, cela revenait presque à tenter d'assassiner une divinité. Bien que l'Ancêtre Sanguin ne fût peut-être pas comparable à un seigneur céleste, il aurait tout de même été considéré comme une puissance majeure du Royaume Céleste avant sa destruction.
 
 Aucun cultivateur de rang inférieur n'aurait osé se dresser contre lui!
 
@@ -40,7 +40,7 @@ Lorsqu'il avait survolé les lieux plus tôt, Li Yuan avait aperçu deux montagn
 
 Fort de cette intuition, Wang Lin retira sa main. Peu de temps après, la première vallée apparut devant eux.
 
-L'entrée de la vallée était vaste, large de plusieurs dizaines de pieds. À première vue, l'intérieur semblait vide, mais une fine couche de brume y régnait, créant un effet d'illusion.
+L'entrée de la vallée était vaste, large d'une dizaine de mètres. À première vue, l'intérieur semblait vide, mais une fine couche de brume y régnait, créant un effet d'illusion.
 
 Arrivés à l'entrée, Wang Lin et Li Yuan s'arrêtèrent pour observer attentivement les lieux.
 
@@ -90,7 +90,7 @@ Li Yuan sourit en saisissant la courte épée. Il regarda Wang Lin en riant: « 
 
 Peu après avoir traversé la première vallée, ils atteignirent l'entrée de la seconde. Celle-ci était bien plus étroite que la précédente.
 
-À mesure qu'ils approchaient, les fissures spatiales devenaient plus fréquentes, les obligeant à une vigilance extrême. Cependant, lorsqu'ils se retrouvèrent à 2,5 kilomètres de la seconde vallée, le passage devint impraticable.
+À mesure qu'ils approchaient, les fissures spatiales devenaient plus fréquentes, les obligeant à une vigilance extrême. Cependant, lorsqu'ils se retrouvèrent à 5 kilomètres de la seconde vallée, le passage devint impraticable.
 
 Les fissures étaient trop nombreuses sur ces derniers kilomètres. Elles surgissaient partout sur le sentier, obstruant chaque voie et rendant toute progression impossible.
 
@@ -102,7 +102,7 @@ Wang Lin prit une profonde inspiration et s'assit en position du lotus. Ses doig
 
 Lorsqu'il pointa le neuvième point, son visage était d'un rouge ardent. Wang Lin se redressa lentement et inspira profondément; la rougeur disparut instantanément.
 
-À cet instant précis, il frappa sa sacoche de rangement et l'Écran des Montagnes et des Rivières apparut. La peinture s'étira brusquement sur plus de 10 000 pieds, comblant les fissures comme si elles étaient recousues.
+À cet instant précis, il frappa sa sacoche de rangement et l'Écran des Montagnes et des Rivières apparut. La peinture s'étira brusquement sur plus de 3 kilomètres, comblant les fissures comme si elles étaient recousues.
 
 Au moment où la peinture se déploya, le garde céleste saisit Wang Lin et le projeta violemment vers l'avant.
 
@@ -112,7 +112,7 @@ Toutefois, les fissures étaient légion. Dès que l'Écran des Montagnes et des
 
 Wang Lin n'avait pu atteindre cette distance qu'en empruntant la force du garde céleste. Avant que cet élan ne s'épuise, il libéra une lueur sanguine et le sort qu'il avait stocké dans son corps explosa, le projetant à une vitesse inimaginable.
 
-Son corps flascha en rouge sang, sa célérité augmentant encore. Il brilla une seconde fois, devenant plus rapide encore. En un clin d'œil, son corps émit neuf éclats de lumière rouge, atteignant une vitesse comparable à la téléportation.
+Son corps flamboya de rouge sang, sa célérité augmentant encore. Il brilla une seconde fois, devenant plus rapide encore. En un clin d'œil, son corps émit neuf éclats de lumière rouge, atteignant une vitesse comparable à la téléportation.
 
 Ce sort d'évasion utilisant la lueur sanguine était le plus rapide qu'il ait appris de l'ancien du Territoire de l'Esprit Démoniaque. Cependant, il ne pouvait être utilisé que si sa culture atteignait le sommet du stade tardif de l'Ascendant, sous peine de voir son corps exploser.
 

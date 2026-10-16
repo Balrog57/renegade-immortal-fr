@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 743 - Li Yuan
 slug: li-yuan
 ---
-Après avoir observé les lieux un instant, Wang Lin se posa. Cette restriction n'était pas très vaste, ne mesurant qu'environ quelques milliers de pieds de large. Ce qui était remarquable, c'est qu'elle s'entremêlait avec la montagne voisine, ce qui la rendait extrêmement bien dissimulée.
+Après avoir observé les lieux un instant, Wang Lin se posa. Cette restriction n'était pas très vaste, ne mesurant qu'environ 330 mètres de large. Ce qui était remarquable, c'est qu'elle s'entremêlait avec la montagne voisine, ce qui la rendait extrêmement bien dissimulée.
 
 Si Wang Lin n'avait pas été certain qu'aucune restriction ne figurait ici auparavant, il aurait facilement pu passer à côté. Cependant, le plus important était l'énergie spirituelle céleste que dégageait cette restriction.
 
@@ -16,7 +16,7 @@ Si Wang Lin n'avait pas été certain qu'aucune restriction ne figurait ici aupa
 
 Wang Lin fronça légèrement les sourcils avant de déployer son Sens Divin, mais ne trouva aucune trace à des kilomètres à la ronde. Il réfléchit un instant et murmura: « Étrange, je perçois clairement l'aura d'une restriction, mais je n'en vois aucune. Serais-je en train d'halluciner... » Ses yeux s'illuminèrent avant de disparaître à l'horizon. Il s'élança vers la limite du fragment et disparut complètement.
 
-Le temps passa lentement. Une heure plus tard, une ondulation apparut sur la restriction située à 330 mètres de la montagne, et deux personnes en sortirent.
+Le temps passa lentement. Deux heures plus tard, une ondulation apparut sur un rocher situé à 33 mètres à droite de la restriction, et deux personnes en sortirent.
 
 Il s'agissait de l'homme et de la femme que Wang Lin avait rencontrés un mois auparavant.
 
@@ -50,13 +50,13 @@ La marionnette était gravée d'inscriptions et de marquages qui émettaient des
 
 L'homme forma des sceaux manuels et murmura pour lui-même. D'un mouvement du doigt, la marionnette de bois commença à bouger lentement. Elle gagna en souplesse jusqu'à ressembler finalement à une personne réelle. Elle bondit dans la restriction et, après avoir fait quelques pas, l'homme s'écria: « Explose! »
 
-Le corps de la marionnette trembla, la lumière blanche s'intensifia et, dans un fracas, elle se désintégra. L'onde de choc se propagea rapidement, brisant la restriction et exposant le trou qui était jusqu'alors caché.
+Le corps de la marionnette trembla, la lumière blanche s'intensifia et, dans un fracas, elle se désintégra. L'onde de choc se propagea rapidement, brisant la restriction et exposant le trou qui était jusqu'alors caché, large d'une dizaine de mètres.
 
 Les yeux de l'homme brillèrent de joie. Il frappa à nouveau son sac de contenance pour en sortir une autre marionnette, laquelle bondit directement dans le trou sous ses ordres.
 
 Peu après, l'extase se lut sur le visage de l'homme, qui se précipita dans la fosse sans aucune hésitation. Dès qu'il fut entré, il poussa un cri de terreur et son âme originelle surgit du trou, pétrifiée par la peur. Cependant, au moment même où elle émergeait, une ombre verte jaillit et la tira violemment vers l'intérieur.
 
-De nouvelles ondulations apparurent sur le rocher à cent pieds de là, et Li Yuan ainsi que la femme en sortirent. En observant le trou, Li Yuan soupira et détourna la tête. Quant à la femme, elle affichait un air d'excitation. Elle s'approcha de l'orifice et y glissa sa main comme pour caresser quelque chose, tout en murmurant doucement: « Sois sage, mange encore une fois et nous changerons de place. Cette fois, je te laisserai assurément te régaler dans le Royaume Céleste du Tonnerre. »
+De nouvelles ondulations apparurent sur le rocher situé à une dizaine de mètres de là, et Li Yuan ainsi que la femme en sortirent. En observant le trou, Li Yuan soupira et détourna la tête. Quant à la femme, elle affichait un air d'excitation. Elle s'approcha de l'orifice et y glissa sa main comme pour caresser quelque chose, tout en murmurant doucement: « Sois sage, mange encore une fois et nous changerons de place. Cette fois, je te laisserai assurément te régaler dans le Royaume Céleste du Tonnerre. »
 
 « Intéressant! » La silhouette de Wang Lin apparut non loin de là. Il n'était jamais parti, mais utilisait une illusion pour se dissimuler et avait assisté à un spectacle fort divertissant.
 

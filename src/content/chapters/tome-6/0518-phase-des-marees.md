@@ -34,7 +34,7 @@ Cependant, le gaz vert commença aussitôt à bouillir avant de se concentrer en
 
 L'espace tout entier trembla soudainement tandis que le gaz vert et les objets flottants convergeaient pour former l'ouverture mystérieuse d'une source.
 
-Cette gueule de source n'était pas statique; elle continuait de croître à mesure que les éléments convergeaient de toutes les directions, s'élargissant et s'élevant jusqu'à dépasser 3,3 kilomètres de hauteur.
+Cette gueule de source n'était pas statique; elle continuait de croître à mesure que les éléments convergeaient de toutes les directions, s'élargissant et s'élevant jusqu'à frôler 3,3 kilomètres de hauteur.
 
 Les yeux du Saint de l'Épée Ling Tianhou brillèrent d'une lueur mystérieuse tandis qu'il murmurait: « Cela a commencé... »
 
@@ -46,7 +46,7 @@ Cette colonne verte ressemblait à un pilier soutenant l'espace lui-même. Elle 
 
 À ce moment précis, Wang Lin afficha une expression de choc. Tandis que la colonne verte gagnait en longueur, une pression semblable à la puissance des cieux commença lentement à s'en dégager.
 
-Cette infime fraction de la puissance céleste fit ressentir à Wang Lin le poids de dix mille montagnes s'abattant sur lui. Des craquements résonnèrent dans son corps, comme si celui-ci allait se briser à tout instant.
+Cette infime fraction de la puissance céleste fit ressentir à Wang Lin le poids de cent mille montagnes s'abattant sur lui. Des craquements résonnèrent dans son corps, comme si celui-ci allait se briser à tout instant.
 
 « Quelle puissance! » Les yeux de Wang Lin trahirent une détermination inflexible. Un gaz gris apparut entre ses sourcils avant de se transformer en un tatouage qui recouvrit rapidement son corps. Grâce à cela, la pression atteignit un seuil qu'il pouvait supporter.
 

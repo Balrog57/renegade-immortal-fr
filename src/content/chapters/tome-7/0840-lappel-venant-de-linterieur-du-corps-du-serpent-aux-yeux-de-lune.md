@@ -48,7 +48,7 @@ L'homme en blanc hocha légèrement la tête et resta immobile, toujours silenci
 
 « La rumeur prétend que Lie Yunzi de la famille Zhan a un tempérament de feu. Une fois, dans une rage folle, il a anéanti treize familles de culture! Sa réputation l'a précédé! » Le Maître Flamespark détourna le regard pour scruter soudainement l'horizon.
 
-Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à moins de cent pieds des cultivateurs avant de se condenser instantanément en une silhouette!
+Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à une quarantaine de mètres des cultivateurs avant de se condenser instantanément en une silhouette!
 
 Il s'agissait d'un vieil homme aux sourcils rouges, vêtu d'une robe écarlate qui semblait imprégnée de sang frais. Son expression était lugubre et, dès son apparition, il ignora tout le monde pour fixer le Serpent aux yeux de lune avec une lueur mystérieuse dans les yeux.
 
@@ -70,7 +70,7 @@ Toujours debout sur le grand fourneau, Wang Lin accéléra pour se précipiter v
 
 « Viens... Viens... »
 
-Wang Lin pressa le pas. Cinq minutes plus tard, l'appel résonna dans son corps comme un coup de tonnerre. C'est alors qu'il vit enfin ce qui l'appelait.
+Wang Lin pressa le pas. Une quinzaine de minutes plus tard, l'appel résonna dans son corps comme un coup de tonnerre. C'est alors qu'il vit enfin ce qui l'appelait.
 
 Ce que Wang Lin découvrit fit violemment trembler son corps et ses pupilles se rétractèrent brusquement!
 
@@ -120,6 +120,6 @@ Simultanément, l'endroit commença à trembler violemment, comme si un événem
 
 Les plus petits serpents situés à l'extérieur du vortex s'élancèrent dans les airs, les traits féroces! Partout, à l'intérieur même du grand serpent, on entendait les hurlements de ses semblables.
 
-Ils étaient trop nombreux. Sous la conduite de huit grands spécimens, ils se mirent en mouvement avec célérité.
+Ils étaient trop nombreux. Sous la conduite de huit grands spécimens de 33 kilomètres de long, ils se mirent en mouvement avec célérité.
 
 Une bataille d'une ampleur inouïe, rarement vue dans n'importe quel système stellaire, venait de s'engager à l'extérieur du Serpent aux yeux de lune!

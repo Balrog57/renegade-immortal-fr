@@ -72,7 +72,7 @@ Dans les airs, ces jades célestes formèrent une pagode. Zhou Yi regarda la dé
 
 Au moment où il toucha la pagode, une force mystérieuse pénétra son corps. Une empreinte supplémentaire venait de marquer son âme originelle.
 
-« Cette pagode contient mon domaine. Si tu trouves un endroit isolé et que tu y déposes cette pagode, elle formera une barrière de 100 mètres de large. À moins qu'un être n'ait un niveau de culture supérieur au mien actuel, personne ne pourra franchir la barrière sans ton consentement. »
+« Cette pagode contient mon domaine. Si tu trouves un endroit isolé et que tu y déposes cette pagode, elle formera une barrière d'un rayon de cinquante kilomètres. À moins qu'un être n'ait un niveau de culture supérieur au mien actuel, personne ne pourra franchir la barrière sans ton consentement. »
 
 Zhou Yi sourit à Wang Lin en désignant son propre front. Un jade rouge de la taille d'un ongle apparut, et il le lança vers Wang Lin.
 
@@ -104,13 +104,13 @@ Zhou Yi dit calmement: « Mon second cadeau pour toi est cet homme. Le Grand Anc
 
 Face à une puissance absolue, le Grand Ancien de la Secte des Cadavres n'avait que deux choix: vivre ou mourir.
 
-L'ancien dit amèrement: « Ma vie ne durera même pas cent ans, comment puis-je être un esclave pendant mille ans? Tu ferais mieux de me tuer! »
+L'ancien dit amèrement: « Ma vie ne durera même pas mille ans, comment puis-je être un esclave pendant mille ans? Tu ferais mieux de me tuer! »
 
 « Si tu veux mourir, je peux t'aider. Avec ma force restante, je peux te transformer en marionnette. Bien que ton niveau de culture diminue, cela sera considéré comme mon second cadeau! » Sur ces mots, Zhou Yi pointa le front de l'ancien.
 
 Il lui suffisait de pointer le front de l'homme pour que ce Grand Ancien de la Secte des Cadavres meure.
 
-Le doigt se rapprochait lentement. Le front de l'ancien était couvert de sueur. L'odeur de la mort s'intensifiait à l'infini. Bien qu'il lui restât moins de cent ans à vivre, s'il parvenait à percer le stade avancé de la Transformation de l'Âme, sa longévité serait prolongée. De plus, avec les méthodes de la Secte des Cadavres, il existait de nombreux moyens de rallonger sa vie.
+Le doigt se rapprochait lentement. Le front de l'ancien était couvert de sueur. L'odeur de la mort s'intensifiait à l'infini. Bien qu'il lui restât moins de mille ans à vivre, s'il parvenait à percer le stade avancé de la Transformation de l'Âme, sa longévité serait prolongée. De plus, avec les méthodes de la Secte des Cadavres, il existait de nombreux moyens de rallonger sa vie.
 
 Au moment où le doigt allait le toucher, il dit amèrement: « J'accepte. »
 

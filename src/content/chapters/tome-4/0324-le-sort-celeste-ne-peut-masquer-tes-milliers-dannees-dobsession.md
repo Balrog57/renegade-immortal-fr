@@ -8,7 +8,7 @@ slug: le-sort-celeste-ne-peut-masquer-tes-milliers-dannees-dobsession
 ---
 La femme vêtue de blanc murmura: « Tu ne peux pas sortir avant que la quatrième épée ne prenne forme! »
 
-D’un revers de main, elle fit s'effondrer l'épée de foudre. Le vieil homme recula et ne parvint à créer que deux cents épées cette fois. Il chargea vers elle, l'excitation dans le regard plus vive que jamais.
+D’un revers de main, elle fit s'effondrer l'épée de foudre. Le vieil homme recula et ne parvint à créer que deux cents écrans de lumière cette fois. Il chargea vers elle, l'excitation dans le regard plus vive que jamais.
 
 À cet instant, la dernière vague d'épées arriva. Un rugissement tonnerre jaillit de l'amas d'armes et le quatrième dragon prit forme.
 
@@ -88,7 +88,7 @@ La tristesse dans les yeux de la femme s'accentua. Elle poussa un soupir et poin
 
 Le vieil homme eut un reniflement méprisant tandis que sa main gauche tendait vers l'arme.
 
-La femme soupira et porta la main à son front. La dernière parcelle d'énergie spirituelle céleste de son corps fut utilisée pour ériger un bouclier autour d'elle afin de repousser le vieil homme.
+La femme soupira et porta la main à son front. La dernière parcelle d'énergie spirituelle céleste de son corps fut utilisée pour ériger un bouclier d'une trentaine de mètres autour d'elle afin de repousser le vieil homme.
 
 Ce dernier poussa un rugissement furieux et abattit violemment l'épée céleste qu'il tenait contre le bouclier. L'écran trembla, mais ne se brisa pas.
 

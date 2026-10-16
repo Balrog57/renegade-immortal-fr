@@ -18,13 +18,13 @@ Une série d'explosions retentit, comme si le tonnerre résonnait entre Wang Lin
 
 Le doigt de Wang Lin s'avança une fois de plus et frappa la lance alors qu'elle se refermait sur lui.
 
-Ce cycle se poursuivit jusqu'à ce que Wang Lin ait reculé de plus de mille pieds. Finalement, la puissance de la lance faiblit et fut finalement annihilée par un fil d'énergie démoniaque émanant de Wang Lin.
+Ce cycle se poursuivit jusqu'à ce que Wang Lin ait reculé de plus de 330 mètres. Finalement, la puissance de la lance faiblit et fut finalement annihilée par un fil d'énergie démoniaque émanant de Wang Lin.
 
 Le visage de Wang Lin était extrêmement pâle et, en raison de sa perte de sang massive, sa respiration était courte. Cependant, au lieu de s'arrêter pour se reposer, il se précipita rapidement.
 
 Il fonçait vers la Vallée Démoniaque, au centre de la capitale!
 
-La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 500 pieds de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Lou. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet dans lequel l'âme de ce dernier était piégée!
+La première étape consistait à briser l'écran démoniaque entourant la capitale. La deuxième consistait à s'approcher à moins de 165 mètres de l'ancien démon pour emprunter son aura et invoquer l'ombre de sang de Bei Lou. La troisième était de pénétrer dans le repaire de l'ancien démon pour s'emparer de l'objet dans lequel l'âme de ce dernier était piégée!
 
 Wang Lin n'avait aucune intention d'assister au combat entre les deux anciens démons à travers le brouillard. Il se déplaça tel un éclair et pénétra dans la terre sacrée du Pays du Démon de Feu: la Vallée Démoniaque!
 
@@ -102,7 +102,7 @@ Mais une autre scène choqua profondément l'esprit de Wang Lin. C'était un Wan
 
 Il sembla remarquer le regard de Wang Lin et se tourna vers lui. Ses yeux étaient entièrement gris!
 
-Tous les Wang Lin issus de ces différentes scènes sortirent de leurs visions et se dispersèrent. Certains avaient les yeux clos en pleine culture; d'autres manifestaient leurs sorts; l'un d'eux utilisait même le sort céleste "Stop"!
+Tous les Wang Lin issus de ces différentes scènes sortirent de leurs visions et se dispersèrent. Certains avaient les yeux clos en pleine culture; d'autres manifestaient leurs sorts; l'un d'eux utilisait même le sort céleste "Arrêt"!
 
 Wang Lin était profondément bouleversé par ce spectacle. Cette scène ne lui était pas étrangère. Autrefois, lorsqu'il choisissait un sort auprès de l'Omniscient, il avait vu la même chose: chaque Omniscient utilisait un sort différent!
 

@@ -64,7 +64,7 @@ La femme soupira et pointa l'air. Le tunnel qui avait disparu réapparut.
 
 « Puisque tu ne veux pas te divertir avec moi, je n'ai d'autre choix que de te laisser partir, mais tu dois laisser derrière toi ce fragment d'âme de domaine. »
 
-Wang Lin recula et dit calmement: « Une fois que j'aurai quitté le Cimetière des Immortèles, je le libérerai. Avec votre puissance, il ne devrait pas être difficile pour vous de le capturer. »
+Wang Lin recula et dit calmement: « Une fois que j'aurai quitté le Cimetière des Immortels, je le libérerai. Avec votre puissance, il ne devrait pas être difficile pour vous de le capturer. »
 
 Sur ces mots, Wang Lin se précipita comme l'éclair vers le tunnel.
 
@@ -116,7 +116,7 @@ Le dragon grogna et chargea Wang Lin avec la rapidité de l'éclair.
 
 Les yeux de Wang Lin s'illuminèrent; il plaça l'épée céleste devant lui pour parer. Le dragon percuta l'arme, et Wang Lin utilisa le recul de l'impact pour atteindre le tunnel de la première couche, avant de disparaître sans laisser de trace.
 
-À cet instant, les dix points du parchemin tournèrent à nouveau et un tatouage de tigre apparut. Il se mua en un tigre noir gigantesque de 3,3 kilomètres de long. Dès son apparition, il abattit sa patte et détruisit la restriction qui bloquait la gueule du dragon.
+À cet instant, les dix points du parchemin tournèrent à nouveau et un tatouage de tigre apparut. Il se mua en un tigre noir gigantesque de 330 mètres de long. Dès son apparition, il abattit sa patte et détruisit la restriction qui bloquait la gueule du dragon.
 
 Le dragon et le tigre poursuivirent aussitôt Wang Lin dans la première couche. Derrière eux, le parchemin libéra une lueur démoniaque et les suivit lentement.
 
@@ -128,7 +128,7 @@ Cet objet était le parchemin qu'il n'arrivait pas à contrôler jusqu'alors.
 
 Voyant le même parchemin que celui de l'ennemi, Wang Lin décida de suivre son instinct et de tester ce rouleau!
 
-Dès que ce parchemin apparut, le dragon et le tigre hésitèrent et n'osèrent s'approcher. Ils s'arrêtèrent à mille pieds de distance et commencèrent à rugir, leurs yeux emplis de suspicion.
+Dès que ce parchemin apparut, le dragon et le tigre hésitèrent et n'osèrent s'approcher. Ils s'arrêtèrent à 330 mètres de distance et commencèrent à rugir, leurs yeux emplis de suspicion.
 
 Les yeux de Wang Lin brillèrent alors qu'il tenait le parchemin et l'ouvrait. Le sien était entièrement noir et ne possédait qu'un seul point violet doré.
 
@@ -136,7 +136,7 @@ Au moment où le parchemin s'ouvrit, le dragon et le tigre cessèrent leurs rugi
 
 La scène était pour le moins étrange.
 
-Les deux parchemins identiques étaient séparés par des milliers de pieds, avec un dragon et un tigre entre eux. Ils fixaient les deux rouleaux, leurs regards empreints de confusion.
+Les deux parchemins identiques étaient séparés par plusieurs centaines de mètres, avec un dragon et un tigre entre eux. Ils fixaient les deux rouleaux, leurs regards empreints de confusion.
 
 À la onzième couche, l'expression de la troisième ancêtre changea radicalement.
 

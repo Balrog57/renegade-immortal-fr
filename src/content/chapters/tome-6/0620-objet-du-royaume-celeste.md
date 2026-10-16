@@ -25,9 +25,9 @@ Seul Sun Yunshan sentit son excitation atteindre son apogée. Il laissa échappe
 
 L'homme en or tremblait et balbutia rapidement: « Se... Senior... Malentendu. Tout ceci est un malentendu... Nous ne sommes ici que pour représenter l'Union de Culture afin de vous inviter à nous rejoindre... »
 
-Sun Yunshan ricana tandis qu'il s'éloignait brusquement du groupe de plus de cent pieds et s'écria: « Frère Wang, leur but était de vous capturer vivant! »
+Sun Yunshan ricana tandis qu'il s'éloignait brusquement du groupe de plus de trente mètres et s'écria: « Frère Wang, leur but était de vous capturer vivant! »
 
-Wang Lin avait vu Sun Yunshan il y de cela bien longtemps. À cet instant, il se contenta d'un signe de tête.
+Wang Lin avait vu Sun Yunshan il y a bien longtemps. À cet instant, il se contenta d'un signe de tête.
 
 Le visage de l'homme en or devint encore plus livide. Puis, son expression se mua en une férocité venimeuse alors qu'il fixait Sun Yunshan et hurlait: « Sun Yunshan, oses-tu trahir l'Ancêtre?! »
 
@@ -85,7 +85,7 @@ Après un long moment, Wang Lin ouvrit les yeux et demanda lentement: « L'Ancê
 
 Sun Yunshan hocha vivement la tête: « C'est exact. L'Ancêtre a dit un jour qu'il l'avait obtenue du Royaume Céleste avant son effondrement, que c'était un objet sacré du Royaume Céleste et que personne, hormis lui, ne pouvait la briser! »
 
-Une lumière mystérieuse brilla dans les yeux de Wang Lin alors qu'il observait l'homme en noir: « Cet homme est un gardien céleste. Cette restriction est une graine céleste... et cet Ancêtre prétend venir du Royaume Céleste... Se pourrait-il que ce soit l'Empereur Céleste Qin Ling... Bien que cette probabilité soit infime, cette restriction n'est certes pas ordinaire. Elle contient une énergie spirituelle céleste infinie; elle provient donc bien du Royaume Céleste! »
+Une lumière mystérieuse brilla dans les yeux de Wang Lin alors qu'il observait l'homme en noir: « Cet homme est un gardien céleste. Cette restriction est une graine céleste... et cet Ancêtre prétend venir du Royaume Céleste... Se pourrait-il que ce soit l'Empereur Céleste Qing Lin... Bien que cette probabilité soit infime, cette restriction n'est certes pas ordinaire. Elle contient une énergie spirituelle céleste infinie; elle provient donc bien du Royaume Céleste! »
 
 Wang Lin réfléchit un instant avant de plonger la main dans le vide pour saisir le gardien céleste. Avec indifférence, il posa sa main sur la tête de l'individu et activa le sort de recherche d'âme!
 

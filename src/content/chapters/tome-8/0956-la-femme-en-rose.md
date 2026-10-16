@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 956 - The Woman in Pink
 slug: la-femme-en-rose
 ---
-Le papillon aux cinq couleurs était d'une beauté saisissante; lorsqu'il battait des ailes, il libérait une poudre multicolore. Un moineau de sang se trouvait à ses côtés. Ce dernier appartenait au Dieu du Sang, mais il avait été capturé par le papillon.
+Le papillon aux cinq couleurs était d'une beauté saisissante; lorsqu'il battait des ailes, il libérait une poudre multicolore. Une hirondelle ensanglantée se trouvait à ses côtés. Elle appartenait au Dieu du Sang, mais avait été capturée par le papillon.
 
 Le papillon aux cinq couleurs s'envola et son aile gauche battit doucement. La tempête qui se précipitait vers lui trembla soudainement!
 
@@ -14,7 +14,7 @@ L'aile gauche du papillon battit une seconde fois.
 
 La puissance de la loi apparut, repoussant l'onde de choc destructrice. C'était comme si une paire de mains invisibles et gigantesques l'avait contrainte au recul.
 
-Lors de la troisième battement de l'aile gauche du papillon, trois autres papillons apparurent et battirent également des ailes. La force de destruction s'accéléra et se rua vers le vortex qui se contractait rapidement.
+Lors du troisième battement de l'aile gauche du papillon, trois autres papillons apparurent et battirent également des ailes. La force de destruction s'accéléra et se rua vers le vortex qui se contractait rapidement.
 
 Au moment même où le vortex était sur le point de disparaître, la force destructrice et cette parcelle de loi émanant du papillon pénétrèrent en son sein.
 
@@ -26,7 +26,7 @@ Dès l'apparition du vortex, des bruits d'explosions retentirent et une quantit�
 
 À cet instant précis, la porte du bâtiment s'ouvrit brusquement, révélant un vieil homme au visage empreint d'une profonde sévérité. Sa vitesse était telle qu'il saisit directement l'âme originelle.
 
-« Grand-père, sauve-moi! » Le jeune homme en robe bleue, qui pouvait à peine garder les yeux ouverts, prononça ces mots avant de sombrer dans le coma. Son âme originelle se dissipait progressivement. Bien qu'elle ne s'était pas totalement effondrée, elle était extrêmement affaiblie.
+« Grand-père, sauve-moi! » Le jeune homme en robe bleue, qui pouvait à peine garder les yeux ouverts, prononça ces mots avant de sombrer dans le coma. Son âme originelle se dissipait progressivement. Bien qu'elle ne se soit pas totalement effondrée, elle était extrêmement affaiblie.
 
 Wang Lin fronça les sourcils. Il sentait que lorsque la puissance du papillon aux cinq couleurs avait pénétré le vortex pour attaquer le jeune homme, un éclat de lumière noire avait dissipé la majeure partie de la force. Bien que cette lumière noire se soit évanouie, le jeune homme en bleu n'était que gravement blessé, et non mort.
 
@@ -40,7 +40,7 @@ Le corps gigantesque de Lei Ji se mua en une montagne et vola à travers les ét
 
 Ils se rapprochaient de plus en plus de la planète Tian Yun.
 
-Dix jours passèrent. Wang Lin contemplait l'espace familier qui s'étendait devant lui. Il savait que non loin de là se trouvait la zone appartenant au pays de culture de rang 7, Tian Yun. Durant ces dix jours, il avait réfléchi à ce qu'il entreprendrait lors de ce voyage sur la planète Tian Yun. Cependant, il méditait encore davantage sur les sceaux manuels qu'l'Estimé Xuan Bao avait utilisés avec les papillons aux quatre couleurs.
+Dix jours passèrent. Wang Lin contemplait l'espace familier qui s'étendait devant lui. Il savait que non loin de là se trouvait la zone appartenant au pays de culture de rang 7, Tian Yun. Durant ces dix jours, il avait réfléchi à ce qu'il entreprendrait lors de ce voyage sur la planète Tian Yun. Cependant, il méditait encore davantage sur les sceaux manuels que l'Estimé Xuan Bao avait utilisés avec les papillons aux quatre couleurs.
 
 À l'époque, il les avait mémorisés avec soin, mais peu importe le nombre de fois où il les avait tentés durant ces dix jours, il n'avait rien ressenti.
 
@@ -58,9 +58,9 @@ Wang Lin progressait lentement, plongé dans ses pensées.
 
 « Après avoir examiné le second Parchemin de Bataille, j'ai acquis une nouvelle parcelle d'énergie originelle... C'est là mon véritable sort de sauvetage! Après tout, l'Omniscient et moi ne nous sommes pas encore ouvertement affrontés. Je reste un disciple de l'Omniscient. De plus, ce qui est plus important, c'est que Huanglong a dit que j'appartenais à la planète Suzaku. Un disciple de la branche de l'Oiseau Vermillon des Quatre Sectes Divines... C'est là une chose qui mérite réflexion... » Wang Lin esquissa un sourire narquois et pressa la zone entre ses sourcils.
 
-Le troisième œil apparut instantanément, avant d'être remplacé par les étoiles du Dieu Ancien. Bientôt, une perle surgit, puis tout disparut, ne laissant qu'une marque rouge dégageant une légère chaleur.
+Le troisième œil apparut instantanément, avant d'être remplacé par les cinq étoiles du Dieu Ancien. Bientôt, une perle surgit, puis tout disparut, ne laissant qu'une marque rouge dégageant une légère chaleur.
 
-« Si Maître Flamespark ne m'avait pas donné suffisamment d'énergie originelle pour atteindre le stade intermédiaire de l'Observateur du Nirvana une fois mon domaine atteint un certain niveau, et si je n'avais pas obtenu l'héritage de Lou Chen pour devenir un Dieu Ancien Royal à 5 étoiles, je n'aurais même pas remarqué cette marque supplémentaire! Cette marque contient la puissance du monde. Lorsque mon Sens Divin s'y concentre, j'entends le cri ténu de l'Oiseau Vermillon... Je ne l'avais pas lors de mon retour sur la planète Suzaku; par conséquent, cela doit être lié au Chef de Secte Huanglong. »
+« Si Maître Flamespark ne m'avait pas donné suffisamment d'énergie originelle pour atteindre le stade intermédiaire du Scruteur du Nirvana une fois mon domaine atteint un certain niveau, et si je n'avais pas obtenu l'héritage de Lou Chen pour devenir un Dieu Ancien Royal à 5 étoiles, je n'aurais même pas remarqué cette marque supplémentaire! Cette marque contient la puissance des flammes du ciel et de la terre. Lorsque mon Sens Divin s'y concentre, j'entends le cri ténu de l'Oiseau Vermillon... Je ne l'avais pas lors de mon retour sur la planète Suzaku; par conséquent, cela doit être lié au Chef de Secte Huanglong. »
 
 Les yeux de Wang Lin s'illuminèrent. La marque de l'Oiseau Vermillon sur son front scintilla et il s'élança en avant.
 
@@ -90,11 +90,11 @@ L'autre vieil homme était massif, tel une montagne de chair. Il était assis su
 
 Le troisième vieil homme, vêtu d'une robe jaune, était aussi maigre qu'un cadavre, mais son corps exhalait une vitalité puissante. Sans aucun disciple, il se tenait seul dans le ciel, l'expression indifférente.
 
-La dernière personne était une femme, d'âge mûr. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura terrestre. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte de l'Épée Da Lou, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
+La dernière personne était une femme, d'âge mûr. Elle ne portait pas de parures; ses vêtements étaient très ordinaires, comme ceux d'une simple villageoise parmi les mortels. Cependant, elle dégageait une aura transcendante. Derrière elle se trouvaient quatre femmes dont la beauté était sans égale! C'était particulièrement frappant pour la femme à gauche, vêtue d'une robe rose, qui était absolument éblouissante. Elles attiraient les regards de la majorité des disciples de la Secte de l'Épée Da Lou, mais les quatre femmes n'y prêtaient aucune attention et regardaient calmement devant elles.
 
 Ling Tianhou déclara: « Omniscient, autrefois votre disciple Wang Lin a pris le jeton, et vous avez alors annoncé qu'un mystère des cieux serait révélé aujourd'hui. Ce vieil homme veut voir ce que vous appelez votre mystère des cieux! »
 
-À l'époque, tous ces vieux monstres avaient envoyé Cupidité pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Cupidité avaient disparu. La situation à la Terre des Esprits Démoniaques étant cruciale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
+À l'époque, tous ces vieux monstres avaient envoyé Cupidité pour retrouver Wang Lin. Cependant, plus aucune nouvelle n'était parvenue, et la plupart des sceaux laissés sur Cupidité avaient disparu. La grotte céleste de l'Abîme des Marées étant d'une importance capitale, les vieux monstres étaient venus chercher l'Omniscient, mus par l'anxiété. Après tout, Wang Lin était un membre de la Secte du Destin Céleste.
 
 À ce moment-là, l'Omniscient avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
 
@@ -110,4 +110,4 @@ L'Omniscient, vêtu de blanc, se tenait calmement dans les airs. À ses côtés,
 
 Dès que l'Omniscient eut fini de parler, Ling Tianhou, les trois autres vieux monstres puissants et la femme magnifique remarquèrent immédiatement quelque chose. À cet instant, tous les regards des cultivateurs convergèrent vers l'horizon. Les quatre femmes derrière la femme d'âge mûr ne cillèrent même pas et fixèrent intensément le point de mire.
 
-« Je me demande à quoi ressemble Wang Lin, celui qui a ébranlé la Terre des Esprits Démoniaques et attiré l'attention de tous les grands cultivateurs d'Allheaven... » Les yeux de la femme en robe rose étaient empreints de curiosité.
+« Je me demande à quoi ressemble Wang Lin, celui dont la renommée a retenti dans l'Abîme des Marées et attiré l'attention de tous les grands cultivateurs de la planète Tian Yun... » Les yeux de la femme en robe rose étaient empreints de curiosité.

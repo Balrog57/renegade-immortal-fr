@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 605 - Demon Guardian
 slug: le-gardien-demoniaque
 ---
-Après avoir traversé la Montagne des Dix Mille Démons, l'origine du grognement glacial devint plus évidente pour Wang Lin. Au bout de plusieurs jours, une étendue désolée et infinie apparut devant lui.
+Après avoir traversé la Montagne des Millions de Démons, l'origine du grognement glacial devint plus évidente pour Wang Lin. Au bout de plusieurs jours, une étendue désolée et infinie apparut devant lui.
 
 D'innombrables débris recouvraient ce désert. Le sol était criblé de fissures et une odeur nauséabonde était portée par le vent.
 
@@ -38,15 +38,15 @@ Il fixa Wang Lin d'un regard sombre et prit la parole pour la première fois: «
 
 Cette sphère fut si rapide qu'elle atteignit le sol en un instant. En explosant, elle libéra le pus qui fusionna avec la terre.
 
-Instantanément, le sol dans un rayon de 3 000 mètres se mit à trembler. Peu après, d'énormes quantités de pus jaillirent de la terre, formant soudainement un encerclement. Une épaisse couche de pus s'éleva rapidement sur le cercle extérieur, créant une muraille redoutable.
+Instantanément, le sol dans un rayon de 3 300 mètres se mit à trembler. Peu après, d'énormes quantités de pus jaillirent de la terre, formant soudainement un encerclement. Une épaisse couche de pus s'éleva rapidement sur le cercle extérieur, créant une muraille redoutable.
 
 Le vieil homme se lécha les lèvres et disparut en un éclair dans le pus. Aussitôt sa disparition, le mur de pus commença à se refermer de toutes parts.
 
 La paroi de pus couvrait le ciel et la terre; en se contractant, elle finit par former une sphère gigantesque.
 
-Le vieil homme réapparut à l'extérieur de cette sphère. Fixant la masse qui se réduisait rapidement, il lança d'une voix rauque: « Wind Song, nul besoin de rester ici, tu peux repartir. Un simple cultivateur ose agir à sa guise en ces lieux... Il n'a aucune chance de survivre à mon Ulcère Céleste et Terre Purulente! »
+Le vieil homme réapparut à l'extérieur de cette sphère. Fixant la masse qui se réduisait rapidement, il lança d'une voix rauque: « Chanson du Vent, nul besoin de rester ici, tu peux repartir. Un simple cultivateur ose agir à sa guise en ces lieux... Il n'a aucune chance de survivre à mon Ulcère Céleste et Terre Purulente! »
 
-Une bourrasque de vent froid souffla et la femme au visage tatoué apparut à trente mètres du vieil homme. Elle observa froidement la sphère de pus qui ne faisait plus que cent pieds de large et déclara d'un ton glacial: « Si cet individu pouvait être tué si facilement, Maître ne nous aurait pas envoyés ici! »
+Une bourrasque de vent froid souffla et la femme au visage tatoué apparut à une quarantaine de mètres du vieil homme. Elle observa froidement la sphère de pus qui ne faisait plus qu'une trentaine de mètres de large et déclara d'un ton glacial: « Si cet individu pouvait être tué si facilement, Maître ne nous aurait pas envoyés ici! »
 
 « Oh? Alors je veux voir comment ce petit cultivateur compte échapper à mon Ulcère Céleste et Terre Purulente! » Le vieil homme maigre sourit, mais son sourire se figea bientôt.
 
@@ -72,7 +72,7 @@ Une série de gémissements et de chocs métalliques résonna rapidement dans le
 
 Le regard du vieil homme devint glacial. Sans même accorder de l'importance aux trois armes, il forma un sceau de la main et hurla: « Terre Purulente! »
 
-Le sol dans un rayon de 3 000 mètres autour de lui commença à secouer. Tandis que la terre tremblait, des anneaux de lumière apparurent et s'étendirent rapidement. Ils ressemblaient à des ulcères poussant sur un visage, mais ils se développaient sur le sol même.
+Le sol dans un rayon de 3 300 mètres autour de lui commença à secouer. Tandis que la terre tremblait, des anneaux de lumière apparurent et s'étendirent rapidement. Ils ressemblaient à des ulcères poussant sur un visage, mais ils se développaient sur le sol même.
 
 Le vieil homme hurla: « Explosez! » À cet instant, son énergie déferla et toutes les plaies surgissant du sol explosèrent simultanément.
 
@@ -80,11 +80,11 @@ C'est alors que Xu Liguo sortit de l'épée céleste pour insulter le vieillard:
 
 À ses yeux, avec son niveau de culture, il n'était pas difficile de capturer une épée à mains nues!
 
-Xu Liguo ricana intérieurement en voyant le vieillard tenter l'approche. Non seulement l'homme ne l'esquivait pas, mais il ralentissait même sa course pour l'attendre.
+Xu Liguo ricana intérieurement en voyant le vieillard tenter l'approche. Loin de se dérober, il ralentissait même l'épée pour attendre que le vieillard la saisisse.
 
 « Ceci... Quel genre d'épée est-ce là?! » Le vieil homme fut stupéfait et battit en retraite précipitamment. Cependant, l'épée céleste le poursuivit. L'arme habitée par l'âme du bélier maléfique décrivit une courbe pour frapper le vieillard dans le dos.
 
-Après l'explosion des plaies terrestres, un épais mur de pus de trente mètres de haut apparut, se propageant en ondulations. Le corps de Wang Lin, imprégné d'énergie spirituelle céleste, flottait dans les airs. Il fit un pas vers le vieil homme, lequel était alors engagé dans un combat acharné contre les deux épées.
+Après l'explosion des plaies terrestres, un épais mur de pus de plus de trente mètres de large apparut, se propageant en ondulations. Le corps de Wang Lin, imprégné d'énergie spirituelle céleste, flottait dans les airs. Il fit un pas vers le vieil homme, lequel était alors engagé dans un combat acharné contre les deux épées.
 
 Le vieil homme poussa un rugissement de rage et invoqua à nouveau le cocon illusoire pour lancer son sort. D'un seul pas, Wang Lin brisa l'espace et apparut au-dessus du vieillard. Ses yeux rouge sang fixèrent le cocon alors qu'il tendait la main droite. Des filaments d'énergie de massacre jaillirent et s'insinuèrent dans l'illusion.
 
@@ -92,31 +92,31 @@ Il referma ensuite sa main et tira brusquement. Un bruit de déchirure retentit 
 
 Puis, il tendit violemment sa main droite.
 
-Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement étouffé s'échappa du vide. Le corps de Wind Song apparut là où le cocon avait explosé. Son visage était pâle, mais son regard était plus sombre encore.
+Le cocon explosa en plein vol. Une masse de pus fut projetée et un gémissement étouffé s'échappa du vide. Le corps de Chanson du Vent apparut là où le cocon avait explosé. Son visage était pâle, mais son regard était plus sombre encore.
 
-La lame en croissant la suivit de près pour l'empaler. Wind Song agita la main et un poignard d'argent apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Wind Song fut elle aussi projetée en arrière de quelques pas.
+La lame en croissant la suivit de près pour l'empaler. Chanson du Vent agita la main et un poignard d'argent apparut dans sa paume. Le choc des métaux retentit alors que la lame en croissant était repoussée, mais Chanson du Vent fut elle aussi projetée en arrière de quelques pas.
 
 Elle venait d'arriver pour contrer la lame et l'explosion du cocon l'avait contrainte à se dévoiler.
 
 Une fois le cocon détruit, le vieil homme cracha du sang, le visage marqué par l'incrédulité. À cet instant précis, le pouce de Wang Lin pressa de nouveau et le Doigt de la Mort réapparut!
 
-Cette fois, la lumière noire jaillit avec une fureur déchaînée. Sa vitesse était telle qu'elle fut déjà à bout portant avant même que le vieil homme ne puisse réagir. Au moment où elle se manifesta, elle se trouvait déjà devant lui. Paniqué, l'homme ouvrit la bouche pour dévorer la lumière noire, mais bien qu'il l'ait engloutie, celle-ci ne se dissipa pas et pénétra directement dans sa gorge.
+Cette fois, la lumière noire jaillit avec une fureur déchaînée. Sa vitesse était telle qu'elle fut déjà à bout portant avant même que le vieil homme ne puisse réagir. Au moment où elle se manifesta, elle se trouvait déjà devant lui. Paniqué, l'homme ouvrit la bouche pour dévorer la lumière noire, mais bien qu'il l'ait engloutie, celle-ci ne se dissipa pas et traversa son corps pour ressortir par son dos.
 
-Au même moment, Wind Song lança son poignard. Le poignard et la lame en croissant entamèrent un duel. Elle se transforma ensuite en une brise glaciale pour charger Wang Lin, qui lui tournait le dos.
+Au même moment, Chanson du Vent lança son poignard. Le poignard et la lame en croissant entamèrent un duel. Elle se transforma ensuite en une brise glaciale pour charger Wang Lin, qui lui tournait le dos.
 
 Le vent était impétueux; elle atteignit Wang Lin presque instantanément.
 
 Wang Lin ne se retourna pas, mais effleura sa sacoche de rangement. Le Fouet de l'Âme apparut dans sa main. Ce long fouet, d'un noir absolu, dégageait une aura capable de faire trembler les âmes mêmes.
 
-Alors que Wind Song s'approchait, le Fouet de l'Âme fendit l'air brusquement. Un fracas retentit, suivi du gémissement misérable de la femme. Projetée hors du vide, elle portait sur le visage la marque rouge d'un coup de fouet. Pour la première fois, ses yeux trahirent une profonde stupeur. À cet instant, elle ne cherchait plus à tuer, mais à fuir de toutes ses forces!
+Alors que Chanson du Vent s'approchait, le Fouet de l'Âme fendit l'air brusquement. Un fracas retentit, suivi du gémissement misérable de la femme. Projetée hors du vide, elle portait sur le visage la marque rouge d'un coup de fouet. Pour la première fois, ses yeux trahirent une profonde stupeur. À cet instant, elle ne cherchait plus à tuer, mais à fuir de toutes ses forces!
 
-L'esprit de Wang Lin ayant perdu toute conscience sous l'effet du Fruit de l'Ascension Céleste, tout ce qu'il faisait procédait par pur instinct. Wind Song recula avec célérité. Pour pouvoir combattre la lame en croissant, sa vitesse était naturellement prodigieuse. Elle s'enfuit si vite qu'elle ne laissait même pas d'ombre derrière elle.
+L'esprit de Wang Lin ayant perdu toute conscience sous l'effet du Fruit de l'Ascension Céleste, tout ce qu'il faisait procédait par pur instinct. Chanson du Vent recula avec célérité. Pour pouvoir combattre la lame en croissant, sa vitesse était naturellement prodigieuse. Elle s'enfuit si vite qu'elle ne laissait même pas d'ombre derrière elle.
 
 Sans même réfléchir, Wang Lin abattit sa paume, et une empreinte de main gigantesque apparut soudainement devant lui. La même empreinte sans nom qui avait réussi à terrifier Mo Lihai!
 
 L'énergie de massacre de Wang Lin s'anima au sein de cette empreinte.
 
-Créant des bourrasques sur son passage, l'empreinte se déplaça à une vitesse inimaginable pour traquer Wind Song. Elle la traversa alors que la femme tentait de fuir. L'énergie de massacre contenue dans la paume pénétra son corps, provoquant son explosion immédiate.
+Créant des bourrasques sur son passage, l'empreinte se déplaça à une vitesse inimaginable pour traquer Chanson du Vent. Elle la traversa alors que la femme tentait de fuir. L'énergie de massacre contenue dans la paume pénétra son corps, provoquant son explosion immédiate.
 
 Une brise légère souffla, faisant flotter les cheveux de Wang Lin. Il continua sa marche, tandis que ses trois armes le suivaient.
 

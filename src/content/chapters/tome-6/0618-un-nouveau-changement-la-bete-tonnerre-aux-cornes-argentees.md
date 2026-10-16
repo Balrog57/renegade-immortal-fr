@@ -8,13 +8,13 @@ slug: un-nouveau-changement-la-bete-tonnerre-aux-cornes-argentees
 ---
 Wang Lin fixait l'animal spirituel. Après que le troisième symbole sanguin eut été imprimé sur lui, l'aura qu'il dégageait terrifiait même Wang Lin.
 
-Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur trois pouces hors de ses orbites.
+Le corps de la bête tremblait violemment et la lumière rouge dans ses yeux devenait de plus en plus intense. Cette lueur était si puissante qu'elle s'étendait sur près d'un mètre hors de ses orbites.
 
-Wang Lin observait la bête avec calme. Malgré sa sérénité apparente, son regard vacillait. Le jade contenant les instructions pour lever les sceaux de la bête en parlait précédemment.
+Wang Lin observait la bête avec calme. Malgré sa sérénité apparente, son regard était perçant. Le jade contenant les instructions pour lever les sceaux de la bête en parlait précédemment.
 
 L'essentiel de la puissance du Char de Guerre Divin résidait dans l'animal spirituel. Chacun des sept sceaux de sang de l'âme originelle pouvait stimuler l'évolution de la bête.
 
-Si les sceaux n'étaient pas levés lorsque cette simulation atteindrait son apogée, l'animal spirituel exploserait et mourrait. Cependant, si le sceau était levé trop tôt, l'évolution de la bête serait interrompue et elle ne pourrait jamais atteindre sa puissance maximale à l'avenir.
+Si les sceaux n'étaient pas levés lorsque cette stimulation atteindrait son apogée, l'animal spirituel exploserait et mourrait. Cependant, si le sceau était levé trop tôt, l'évolution de la bête serait interrompue et elle ne pourrait jamais atteindre sa puissance maximale à l'avenir.
 
 En vérité, aucun des trois Chars de Guerre Divins n'avait été utilisé avant la mort de leur créateur. Selon son plan initial, les trois Chars de Guerre Divins atteindraient la perfection après avoir été activés une première fois.
 
@@ -30,7 +30,7 @@ D'innombrables grains de sable tremblaient sur le sol, comme secoués par une fo
 
 Les yeux de Wang Lin brillèrent comme des torches. L'aura de l'animal spirituel devant lui avait déjà surpassé la force d'un cultivateur Ascendant du stade initial. Elle atteignait progressivement le stade intermédiaire de l'Ascendance et continuait de croître.
 
-Après plusieurs respirations, le corps de la bête se réduisit, passant de 1 000 pieds à 330 mètres de hauteur. Cependant, la lumière rouge émanant de ses yeux s'étendait désormais sur près de sept pieds, et une brume soyeuse entourait son regard.
+Après plusieurs respirations, le corps de la bête se réduisit, passant de 330 mètres à 33 mètres de hauteur. Cependant, la lumière rouge émanant de ses yeux s'étendait désormais sur plus de deux mètres, et une brume soyeuse entourait son regard.
 
 Les yeux de Wang Lin se plissèrent; sa main traça un sceau et une lueur noire apparut dans sa paume. Son regard fut aussi perçant que l'éclair tandis qu'il fixait la bête.
 
@@ -98,7 +98,7 @@ Lorsqu'il était entré dans les Terres de l'Esprit Démoniaque, il était prot�
 
 Après avoir entendu les paroles de l'homme en or, le corps de Sun Yunshan trembla et il dit respectueusement: « Seigneur, ce subordonné... »
 
-Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre union de culture, tu dois obéir à tous les ordres. Si je n'avais pas fait honneur à ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin?! »
+Avant qu'il ne puisse finir, l'homme en or l'interrompit d'un reniflement méprisant. « Inutile de te justifier. Puisque tu as rejoint notre union de culture, tu dois obéir à tous les ordres. Si ce n'était par égard pour ta sœur, penses-tu que tu aurais eu la chance de participer à une telle opportunité de mérite, comme capturer Wang Lin?! »
 
 Sun Yunshan resta silencieux et hocha la tête. Il pensa pour lui-même: « Je ne sais pas si le Wang Lin de ce Clan de l'Affinement des Âmes... est la même personne que celui de la Secte du Destin Céleste... Ah, je réfléchis trop; il est impossible qu'ils soient le même homme. »
 

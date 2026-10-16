@@ -10,7 +10,7 @@ Mais tous les cultivateurs Ascendants ne réussissent pas; le taux de réussite 
 
 Ce n'est qu'après avoir atteint un niveau supérieur à celui des Ascendants, ou si un pays de culture de rang 5 accède au rang 6, que l'on puisse récupérer son fragment d'âme en toute sécurité.
 
-Yunque Zhi n'avait pas pu récupérer son fragment d'âme; en fait, depuis l'arrivée du pays Suzaku, personne n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
+Yunque Zi n'avait pas pu récupérer son fragment d'âme; en fait, depuis des dizaines de milliers d'années, personne sur la planète Suzaku, Clan des Immortels Délaissés compris, n'avait réussi à récupérer le sien. Cela était en grande partie dû au sceau de Situ Nan.
 
 Bien que le sceau sur le Cristal de la Planète de Culture empêchât les futurs Suzaku de contrôler la planète, il empêchait également quiconque de récupérer son fragment d'âme lorsqu'il atteignait le stade Ascendant.
 
@@ -58,15 +58,15 @@ Après une courte réflexion, Wang Lin s'engagea sur le petit sentier entre les 
 
 En progressant, Wang Lin observa la surface des deux montagnes qui bordaient ce passage étroit. Des zones humides marquaient les parois lisses, et parfois, des gouttes d'eau s'en écoulaient.
 
-Après avoir parcouru quelques dizaines de mètres, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
+Après avoir parcouru une centaine de mètres, l'expression de Wang Lin changea: il réalisa que quelque chose clochait! Il examina attentivement les parois rocheuses et ses yeux s'illuminèrent.
 
 « Si cet endroit est humide toute l'année, de la mousse devrait y pousser. Après tout, le reste du lieu ressemble à la planète extérieure. Pourtant, ici, on dirait que l'humidité n'est apparue que récemment! »
 
-La main droite de Wang Lin pointa vers la paroi de l'une des montagnes et son doigt s'y enfonça instantanément, creusant un trou d'un centimètre de profondeur. La moitié superficielle du trou était humide, mais la partie profonde était sèche.
+La main droite de Wang Lin pointa vers la paroi de l'une des montagnes et son doigt s'y enfonça instantanément, creusant un trou de trente-trois centimètres de profondeur. La moitié superficielle du trou était humide, mais la partie profonde était sèche.
 
 Sans la moindre hésitation, Wang Lin recula promptement. En un clin d'œil, il fut hors du sentier; et au moment même où il se retirait, l'eau sur les parois commença à s'agiter. L'humidité jaillit des murs et des milliers de gouttelettes cristallines commencèrent à flotter au-dessus du passage.
 
-C'étaient d'innombrables gouttes d'eau; au moins des dizaines de milliers, et chacune d'elles représentait un fragment d'âme.
+C'étaient d'innombrables gouttes d'eau; au moins des centaines de milliers, et chacune d'elles représentait un fragment d'âme.
 
 Ces gouttelettes se condensèrent pour former une silhouette humaine. L'eau s'agita d'une manière mystérieuse pour finalement prendre l'apparence d'une femme. Cette femme semblait ordinaire, mais elle dégageait une aura étrange. Une fois apparue, elle fixa froidement Wang Lin et déclara lentement: « Tu ne peux pas entrer! »
 
@@ -88,7 +88,7 @@ Wang Lin resta immobile devant l'entrée et réfléchit.
 
 Wang Lin fronça les sourcils. Il resta en retrait un instant et, au moment où il s'apprêtait à partir, son expression changea brusquement et il fit volte-face.
 
-Une douleur fulgurante lui transpercha le cœur. C'était comme si un fragment d'âme se trouvait à l'intérieur, l'appelant faiblement à l'aide.
+Une douleur fulgurante lui transperça le cœur. C'était comme si un fragment d'âme se trouvait à l'intérieur, l'appelant faiblement à l'aide.
 
 « Wan Er! » Wang Lin fut saisi de stupeur et comprit enfin!
 
@@ -96,11 +96,11 @@ Wan Er était à l'intérieur de la Perle Défiant le Ciel, et cette perle rési
 
 Le regard de Wang Lin devint glacial. Cette fois, il n'hésita plus et s'élança vers les profondeurs des deux montagnes.
 
-Dès qu'il pénétra dans le passage, la femme qui l'avait bloqué reprit forme pour lui barrer la route. Elle leva sa main droite et l'agita; aussitôt, une masse compacte de gouttelettes d'eau remplit le sentier.
+Dès qu'il pénétra dans le passage, la femme qui l'avait bloqué reprit forme pour lui barrer la route. Elle leva sa main droite et l'agita; aussitôt, une épaisse vapeur d'eau remplit le sentier.
 
 Les yeux de Wang Lin se firent sombres. Sans un mot, il sortit son épée céleste sans ralentir sa course et la projeta en avant dans un cri. Puis, il plaça sa main gauche entre ses sourcils.
 
-Le corps de Wang Lin trembla un instant tandis que son âme originelle émergeait de lui. Son âme originelle, haute de plus de cent pieds, rattrapa l'épée céleste en un instant et continua sa charge.
+Le corps de Wang Lin trembla un instant tandis que son âme originelle émergeait de lui. Son âme originelle, haute d'une trentaine de mètres, rattrapa l'épée céleste en un instant et continua sa charge.
 
 En un clin d'œil, l'âme originelle de Wang Lin traversa le corps de la femme tandis que l'épée céleste la transperçait.
 

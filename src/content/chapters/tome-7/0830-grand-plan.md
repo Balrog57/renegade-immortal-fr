@@ -10,7 +10,7 @@ La traque ne s'interrompait pas, devenant même plus intense. D'innombrables cul
 
 La silhouette de Wang Lin réapparut dans le vide. Il tituba en surgissant et cracha une nouvelle bouchée de sang, le visage livide. Ses yeux étaient sombres et son intention de tuer s'en trouvait décuplée.
 
-« Si je n'avais pas eu l'Armure de Cuir de l'Ancien Dieu, je serais déjà mort! » Wang Lin fendit l'air sur plusieurs dizaines de pieds avant de fusionner avec le monde pour s'enfuir rapidement.
+« Si je n'avais pas eu l'Armure de Cuir de l'Ancien Dieu, je serais déjà mort! » Wang Lin fendit l'air sur une dizaine de mètres avant de fusionner avec le monde pour s'enfuir rapidement.
 
 L'obstacle devant lui ayant disparu, l'énergie originelle de la zone était redevenue calme. Cependant, Wang Lin ne chercha pas à fuir directement ses poursuivants; il savait que tant que cette femme le traquerait, elle finirait par le rattraper.
 

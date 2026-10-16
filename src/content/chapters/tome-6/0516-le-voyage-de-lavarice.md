@@ -46,13 +46,13 @@ Une série de grondements s'échappa de la matrice alors qu'une force dévastatr
 
 Les vêtements des centaines de disciples furent violemment projetés en arrière dans un fracas de battements de tissu. Leurs visages étaient pâles, mais aucun ne bougea d'un pouce.
 
-Peu après, un arc-en-ciel large de plusieurs centaines de pieds jaillit soudainement vers le haut, perçant les cieux. Des cercles de lumière commencèrent à se propager dans l'éther, et la majeure partie de la voûte céleste de la planète fut recouverte par cette ondulation de lumière.
+Peu après, un arc-en-ciel large d'environ 330 mètres jaillit soudainement vers le haut, perçant les cieux. Des cercles de lumière commencèrent à se propager dans l'éther, et la majeure partie de la voûte céleste de la planète fut recouverte par cette ondulation de lumière.
 
 Les ondulations durèrent la moitié d'un bâton d'encens avant de s'estomper.
 
 Au moment où l'arc-en-ciel fendit le ciel, la jeune fille restée près de la matrice afficha une pointe de fierté. Sa main droite effleura son sac de rangement et un jade apparut dans sa paume.
 
-« Hmph, si vous refusez que je vienne, je n'aurai qu'à vous suivre en secret! J'ai dérobé le Jade de Transfert Mille de mon père; avec lui, je peux vous rattraper. Peut-être trouverai-je même des trésors dans la Mer de l'Est! »
+« Hmph, si vous refusez que je vienne, je n'aurai qu'à vous suivre en secret! J'ai dérobé le Jade de Transfert Guidé de mon père; avec lui, je peux vous rattraper. Peut-être trouverai-je même des trésors dans la Mer de l'Est! »
 
 Dès que le jade apparut, il libéra une lumière blanche qui enveloppa instantanément la jeune fille. Dans un éclair, son corps se mua en un filament de lumière blanche et fusionna avec l'arc-en-ciel.
 
@@ -72,7 +72,7 @@ Même les vieux monstres qui apparaissaient rarement étaient présents devant l
 
 Mais plus ils se montraient imposants, moins les gens osaient les offenser.
 
-Heureusement, ces puissances se connaissaient toutes; ainsi, même si l'un d'eux revendiquait une zone, personne n'osait troubler son calme. À titre d'exemple, la fille de l'Ancêtre Sanguin, Yao Xixue, imposait un respect tel que personne n'avait osé approcher à moins de 1 000 pieds d'elle.
+Heureusement, ces puissances se connaissaient toutes; ainsi, même si l'un d'eux revendiquait une zone, personne n'osait troubler son calme. À titre d'exemple, la fille de l'Ancêtre Sanguin, Yao Xixue, imposait un respect tel que personne n'avait osé approcher à moins de 330 mètres d'elle.
 
 Ce jour-là, il ne restait plus que deux jours avant l'ouverture du portail.
 
@@ -114,11 +114,11 @@ En ce temps-là, à son retour du Royaume Céleste, cet esprit d'épée l'avait 
 
 Cette fois-ci, il comptait utiliser la force de la marée pour entraîner l'esprit d'épée dans les profondeurs abyssales de la mer, afin qu'il n'en ressortît jamais.
 
-« Cet esprit d'épée appartenait à cette générale céleste. Bien qu'il soit puissant, il refuse de m'obéir. Puisqu'il ne m'obéit pas, personne d'autre ne le possédera, surtout pas ce vieux voleur, l'Omniscient! » Ling Tianhou laissa échapper un reniflement méprisant, le visage assombri.
+« Cet esprit d'épée appartenait à cette souveraine céleste. Bien qu'il soit puissant, il refuse de m'obéir. Puisqu'il ne m'obéit pas, personne d'autre ne le possédera, surtout pas ce vieux voleur, l'Omniscient! » Ling Tianhou laissa échapper un reniflement méprisant, le visage assombri.
 
 Alors qu'il était plongé dans ses pensées, son expression changea brusquement. Il fixa le vide, une lumière mystérieuse perçant son regard.
 
-Un immense nuage d'air glacial apparut soudainement dans l'espace. Ce nuage, d'un vert sombre, était peuplé de crânes. On en décomptait une multitude à l'intérieur de cette masse ténébreuse, au moins mille!
+Un immense nuage d'air glacial apparut soudainement dans l'espace. Ce nuage, d'un vert sombre, était peuplé de crânes. On en décomptait une multitude à l'intérieur de cette masse ténébreuse, au moins plusieurs milliers!
 
 Certains crânes portaient encore des lambeaux de chair.
 

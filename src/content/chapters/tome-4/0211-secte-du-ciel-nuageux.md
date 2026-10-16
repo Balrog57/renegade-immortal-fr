@@ -14,7 +14,7 @@ Quant à ce bruit qui courait, certains cultivateurs refusaient d'y croire, tand
 
 La même année, la Secte du Ciel Nuageux parvint à raffiner une pilule Tian Sun. La qualité de cette pilule atteignait le début du cinquième rang. Son effet permettait à un cultivateur de l'Âme Naissante ayant perdu son corps de reconstruire immédiatement un nouveau réceptacle, sans avoir besoin de voler celui d'autrui pour renaître.
 
-Dès l'apparition de cette pilule, la déjà célèbre Secte du Ciel Nuageux gagna encore en renommée. Tous les comtés de rang 4 environnants brûlaient d'obtenir ce remède, mais finalement, la Secte Ju Mo, issue d'un pays de rang 4, l'obtint par un accord secret. Avant de partir, ils placèrent une formation sur la Secte du Ciel Nuageux. Cette formation était si puissante que même des pays de rang 4 ordinaires auraient eu du mal à la briser.
+Dès l'apparition de cette pilule, la déjà célèbre Secte du Ciel Nuageux gagna encore en renommée. Tous les pays de rang 4 environnants brûlaient d'obtenir ce remède, mais finalement, la Secte Ju Mo, issue d'un pays de rang 4, l'obtint par un accord secret. Avant de partir, ils placèrent une formation sur la Secte du Ciel Nuageux. Cette formation était si puissante que même des pays de rang 4 ordinaires auraient eu du mal à la briser.
 
 À la fin de ce mois, la Secte du Ciel Nuageux ouvrit ses portes pour son recrutement, un événement qui n'avait lieu que tous les trente ans.
 
@@ -36,15 +36,15 @@ Lorsque commençait l'événement de recrutement, qui durait dix jours tous les 
 
 Ainsi, tous les cultivateurs errants et les familles de culture du pays de Chu savaient que dès l'apparition de ces mots, la Secte du Ciel Nuageux avait commencé son recrutement. Dès leur disparition, l'événement touchait à sa fin.
 
-Ce matin-là, le ciel était dépourvu de nuages. Des éclats de lumière d'épée volaient de toutes les directions vers la Secte du Ciel Nuageux. Lorsqu'ils atteignirent une distance d'environ 250 kilomètres de la montagne, ils descendirent de leurs épées volantes, révélant de nombreux jeunes gens. Ils étaient tous assez jeunes. Certains voyageaient seuls, tandis que d'autres étaient accompagnés de leurs aînés.
+Ce matin-là, le ciel était dépourvu de nuages. Des éclats de lumière d'épée volaient de toutes les directions vers la Secte du Ciel Nuageux. Lorsqu'ils atteignirent une distance d'environ 500 kilomètres de la montagne, ils descendirent de leurs épées volantes, révélant de nombreux jeunes gens. Ils étaient tous assez jeunes. Certains voyageaient seuls, tandis que d'autres étaient accompagnés de leurs aînés.
 
-Par respect pour la Secte du Ciel Nuageux, presque tous ceux qui souhaitaient s'y joindre descendirent de leurs épées à 250 kilomètres de distance et poursuivirent leur route à pied.
+Par respect pour la Secte du Ciel Nuageux, presque tous ceux qui souhaitaient s'y joindre descendirent de leurs épées à 500 kilomètres de distance et poursuivirent leur route à pied.
 
-Si l'on regardait du ciel à cet instant, on aurait pu voir une multitude d'individus marchant vers la secte dans un rayon de mille kilomètres.
+Si l'on regardait du ciel à cet instant, on aurait pu voir une multitude d'individus marchant vers la secte dans un rayon de cinq cents kilomètres.
 
 Devant la porte de la Secte du Ciel Nuageux se tenaient trois cultivateurs chargés d'organiser le logement et les nécessités pour ceux qui venaient tenter leur chance.
 
-À environ cinq cents kilomètres de l'entrée, un homme et une femme marchaient. L'homme avait environ vingt-sept ou vingt-huit ans. Il avançait d'un pas très calme et serein. Sur ses vêtements était brodée une épée volante pourpre, signe qu'il était déjà disciple interne de la Secte de l'Épée.
+À environ deux cent cinquante kilomètres de l'entrée, un homme et une femme marchaient. L'homme avait environ vingt-sept ou vingt-huit ans. Il avançait d'un pas très calme et serein. Sur ses vêtements était brodée une épée volante pourpre, signe qu'il était déjà disciple interne de la Secte de l'Épée.
 
 À ses côtés marchait une jeune fille de vingt ans. Elle portait une robe violette avec une ceinture assortie. Elle possédait de jolies courbes, tout en dégageant une certaine douceur.
 
@@ -58,13 +58,13 @@ En entendant cela, un éclat froid passa dans les yeux de l'homme. Par crainte d
 
 Les yeux de la jeune fille s'écarquillèrent en apercevant un jeune homme devant eux et elle rit: « Grand frère, regarde! Cet homme porte des vêtements vraiment bizarres. »
 
-L'homme leva les yeux et vit qu'à soixante mètres devant eux, un jeune homme vêtu d'habits très grossièrement confectionnés marchait lentement vers la secte. Il faut dire que tous ceux qui venaient pour le recrutement étaient soit des cultivateurs indépendants, soit issus de familles de culture. Il était impossible pour des mortels d'arriver jusqu'ici.
+L'homme leva les yeux et vit qu'à six cents mètres devant eux, un jeune homme vêtu d'habits très grossièrement confectionnés marchait lentement vers la secte. Il faut dire que tous ceux qui venaient pour le recrutement étaient soit des cultivateurs indépendants, soit issus de familles de culture. Il était impossible pour des mortels d'arriver jusqu'ici.
 
 Il était donc très rare de voir quelqu'un habillé ainsi; c'était manifestement l'apparence d'un simple villageois de montagne.
 
 Comme s'il avait entendu la voix de la jeune fille, le jeune homme se retourna pour les regarder et, sans perdre un instant, détourna son regard pour reprendre sa marche.
 
-Une pointe de surprise traversa le regard de l'homme. Il savait que sa sœur était très séduisante et que, durant le voyage, la plupart des passants ne pouvaient s'empêcher de la dévisager. Surtout depuis qu'ils étaient entrés dans le périmètre des mille kilomètres de la Secte du Ciel Nuageux, chaque rencontre s'attardait sur elle; pourtant, les yeux de ce jeune homme étaient aussi calmes que l'eau dormante et, lorsqu'il avait croisé le regard de sa sœur, aucune émotion n'avait traversé ses yeux.
+Une pointe de surprise traversa le regard de l'homme. Il savait que sa sœur était très séduisante et que, durant le voyage, la plupart des passants ne pouvaient s'empêcher de la dévisager. Surtout depuis qu'ils étaient entrés dans le périmètre des cinq cents kilomètres de la Secte du Ciel Nuageux, chaque rencontre s'attardait sur elle; pourtant, les yeux de ce jeune homme étaient aussi calmes que l'eau dormante et, lorsqu'il avait croisé le regard de sa sœur, aucune émotion n'avait traversé ses yeux.
 
 L'homme projeta son Sens Divin et découvrit que la culture du jeune homme ne se situait qu'aux deuxième ou troisième couches de la Condensation de Qi. Après une brève exploration, il retira son attention.
 
@@ -132,7 +132,7 @@ Peu de temps après, un homme d'âge moyen vêtu d'une robe blanche, ornée de t
 
 Lorsqu'il eut fini de parler, aucune des milliers de personnes sur l'estrade ne bougea. Toutes levèrent les yeux vers lui avec détermination. Parmi elles, quelques cultivateurs de la Formation du Noyau savaient que ces paroles s'adressaient particulièrement à eux.
 
-Après un moment d'attente, l'homme agita sa main droite et une décharge de force jaillit soudainement du centre de l'estrade, repoussant les personnes à proximité pour dégager un espace circulaire de trois mètres de diamètre.
+Après un moment d'attente, l'homme agita sa main droite et une décharge de force jaillit soudainement du centre de l'estrade, repoussant les personnes à proximité pour dégager un espace circulaire d'une trentaine de mètres de diamètre.
 
 Simultanément, une colonne de brume sombre s'éleva du sol. Elle était majestueuse. Cette épaisse colonne de ténèbres semblait être une main gigantesque soutenant la voûte céleste. En s'élevant, elle s'étira si haut vers le ciel que, depuis le bas, on ne pouvait en percevoir le sommet.
 

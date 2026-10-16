@@ -18,7 +18,7 @@ L'homme se versa une coupe, en but une gorgée, puis dit d'une voix lente: « Pa
 
 Le jeune homme n'osait même pas respirer trop fort. Avec sa culture au stade avancé de l'Établissement des Fondations, il était incapable de percer les mystères de ce vieil homme. Cependant, fort de ses nombreuses années d'expérience, il savait que cet homme était au moins un cultivateur au stade intermédiaire de la Formation du Noyau, voire avancé.
 
-« Cette personne est apparue soudainement il y a une demi-lune; elle a tué dix anciens de la Secte de l'Éradication du Mal et, pour une raison inconnue, elle s'est vu attribuer un ordre d'exécution... » Le jeune homme expliqua tout ce qu'il savait avec précision.
+« Cette personne est apparue soudainement il y a une demi-lune; elle a tué dix cultivateurs de la Formation du Noyau de la Secte de la Lutte contre le Mal et, pour une raison inconnue, elle s'est vu attribuer un ordre d'exécution... » Le jeune homme expliqua tout ce qu'il savait avec précision.
 
 Le vieil homme ferma les yeux et agita négligemment la main. Les yeux du jeune homme s'écarquillèrent alors que son corps entier se transformait en une brume de sang, avant qu'un vent étrange ne vienne emporter ce nuage écarlate.
 
@@ -26,7 +26,7 @@ Les cultivateurs de l'auberge étaient pétrifiés. Ils brûlaient de partir, ma
 
 Le vieil homme réfléchit un instant. Il ouvrit les yeux et fixa le cultivateur au stade initial de la Formation du Noyau: « Toi, approche. »
 
-Le corps du cultivateur trembla alors qu'il se levait prestement pour se tenir à un pied du vieil homme. D'une voix chevrotante, il dit respectueusement: « Le junior Xu Mu salue le Senior. Tout ce que le Senior désire, je l'exécuterai. Je jure sur mon propre Noyau Doré que tout ce que je dis est la vérité; je vous en prie, faites preuve de clémence. »
+Le corps du cultivateur trembla alors qu'il se levait prestement pour se tenir à trois mètres du vieil homme. D'une voix chevrotante, il dit respectueusement: « Le junior Xu Mu salue le Senior. Tout ce que le Senior désire, je l'exécuterai. Je jure sur mon propre Noyau Doré que tout ce que je dis est la vérité; je vous en prie, faites preuve de clémence. »
 
 Le vieil homme se versa une coupe de vin. Après avoir bu, il déclara: « Depuis que je suis entré dans cette auberge, chaque fois que cette personne est mentionnée, l'énergie spirituelle de ton corps s'emballe. Je suppose que tu l'as vue en personne. »
 
@@ -48,9 +48,9 @@ Le vieil homme réfléchit un instant, puis se leva. Il laissa échapper une pie
 
 Dès leur départ, les cultivateurs de l'auberge furent envahis par la terreur. Un seul mot résonnait dans leurs esprits: « Cultivateur Âme Naissante! »
 
-Sous la conduite de Xu Mu, le vieil homme atteignit la Secte de l'Éradication du Mal en seulement une demi-heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
+Sous la conduite de Xu Mu, le vieil homme atteignit la Secte de la Lutte contre le Mal en seulement une demi-heure. Il déploya son puissant Sens Divin et localisa Shang Guanmo.
 
-À la stupéfaction de Shang Guanmo, le vieil homme parvint à prélever une autre goutte de son sang d'essence de l'âme pour utiliser le lien entre les deux gouttes afin de traquer Wang Lin. Il relâcha ensuite Xu Mu et repartit à toute allure.
+À la stupéfaction de Shang Guanmo, le vieil homme parvint à prélever une autre goutte de son sang d'essence de l'âme pour utiliser le lien entre les deux gouttes afin de traquer Wang Lin. Il relâcha ensuite Xu Mu et repartit à toute allure vers le sud-ouest.
 
 Quant à Wang Lin, il se déplaçait très rapidement tout en portant Li Muwan. L'épée volante fendait la brume épaisse de la Mer des Démons.
 
@@ -112,6 +112,6 @@ Puis Wang Lin arracha Li Muwan de l'eau, tel une épée transperçant les cieux.
 
 L'épée de cristal oscillait au rythme des vagues, guettant le moment opportun pour frapper.
 
-Une demi-heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ cent mètres de large et progressait dans une direction unique.
+Une demi-heure plus tard, un immense tourbillon apparut en mer. Il mesurait environ trois cents mètres de large et progressait dans une direction unique.
 
 Au centre du tourbillon, un tunnel noir communiquait avec les profondeurs de la Mer des Démons. Une calebasse verte remonta lentement depuis l'intérieur de ce conduit.

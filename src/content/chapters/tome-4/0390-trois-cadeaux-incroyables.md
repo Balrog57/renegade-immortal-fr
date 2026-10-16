@@ -20,7 +20,7 @@ Les yeux de Wang Lin s'illuminèrent, révélant un désir de combat. Il ne parv
 
 Wang Lin reconnut immédiatement ces yeux; c'étaient les mêmes qu'hier. Il fut surpris que ce vieil homme le connaisse. Si Liu Mei avait pu le trouver, il n'était pas étonnant que l'ancêtre de la Transformation de l'Âme de la Secte du Raffinage de l'Âme le connaisse également.
 
-« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami », dit-il, avant de pointer du doigt la Montagne du Raffinage de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour quitter ma Secte du Raffinage de l'Âme. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
+« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami », dit-il, avant de pointer du doigt la Montagne du Raffinage de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte du Raffinage de l'Âme. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
 
 La silhouette exquise de Liu Mei apparut au-dessus de la Montagne du Raffinage de l'Âme. Elle regarda le vieil homme avec une expression charmante et murmura: « Senior, junior a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
 
@@ -30,7 +30,7 @@ Le vieil homme déclara calmement: « Six respirations! »
 
 Liu Mei soupira. Elle mordit sa lèvre inférieure et dit: « Senior, si junior part ainsi, mon maître me punira. Si mon maître demande ce qui s'est passé, je n'aurai d'autre choix que de lui dire la vérité. »
 
-« Quatre respirations! » L'intention meurtrière jaillit du vieil homme. Il tendit la main et l'image d'un drapeau de trente pieds de long apparut dans sa paume.
+« Quatre respirations! » L'intention meurtrière jaillit du vieil homme. Il tendit la main et l'image d'un drapeau de plus de dix mètres de haut apparut dans sa paume.
 
 Bien que ce drapeau ne fût qu'une illusion, une pression écrasante s'en dégageait. Pour la première fois, le visage de Liu Mei changea radicalement.
 
@@ -48,13 +48,13 @@ Ce vieil homme ne l'avait pas expulsée auparavant; il avait choisi de le faire 
 
 Ce n'était pas un petit cadeau!
 
-Le vieil homme rit et déclara: « Cela ne suffit pas pour offenser le pays de Suzaku. L'actuel Suzaku est vieux et ne parvient plus à faire entendre sa voix sur toute la planète. »
+Le vieil homme rit et déclara: « Cela ne suffit pas pour offenser le pays de Suzaku. L'actuel Suzaku est vieux et n'est peut-être plus en mesure de faire obéir tout le pays de Suzaku. »
 
 Wang Lin réfléchit un instant, puis regarda le vieil homme: « Que voulez-vous, Senior? Vous n'avez qu'à me le dire. »
 
 Une lueur d'appréciation brilla dans les yeux du vieil homme: « Ne sois pas si pressé; ce n'était que le premier cadeau. Voici maintenant le second. Ceng Niu, ton âme originelle est presque rétablie. La raison pour laquelle tu es venu me trouver était d'emprunter ma pression pour accélérer ta guérison. Mon second cadeau est de t'aider à recouvrer ta culture! »
 
-Sans attendre la réponse de Wang Lin, ses yeux s'illuminèrent. Une pression plusieurs fois plus puissante que celle de la veine spirituelle apparut soudainement autour du corps de Wang Lin.
+Sans attendre la réponse de Wang Lin, ses yeux s'illuminèrent. Une pression incomparablement plus puissante que celle de la veine spirituelle apparut soudainement autour du corps de Wang Lin.
 
 « Est-ce suffisant? »
 
@@ -98,7 +98,7 @@ Il comprit que si l'ancêtre de la Transformation de l'Âme était prêt à un t
 
 Wang Lin réfléchit un instant, puis le suivit sans mot dire.
 
-À l'extérieur de l'anneau de sang, le vieil homme tendit la main et le drapeau de trente pieds réapparut. Cette fois encore, ce n'était qu'une illusion.
+À l'extérieur de l'anneau de sang, le vieil homme tendit la main et le drapeau de plus de dix mètres réapparut. Cette fois encore, ce n'était qu'une illusion.
 
 « Voici le trésor principal de la Secte du Raffinage de l'Âme: le drapeau des mille millions d'âmes. C'est grâce à ce trésor que, bien que je ne sois qu'au stade avancé de la Transformation de l'Âme, j'ose affronter un cultivateur Ascendant. Je t'expliquerai pourquoi plus tard, mais tant que ce trésor existera, ma Secte du Raffinage de l'Âme ne mourra jamais. Cependant, si ce trésor est brisé, la secte est finie. Maintenant, je vais utiliser la force d'âme contenue dans ce drapeau pour élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. » Le vieil homme fixa Wang Lin d'un regard perçant et cria: « Assieds-toi en position du lotus! »
 

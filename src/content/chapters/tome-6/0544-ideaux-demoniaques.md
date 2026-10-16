@@ -16,7 +16,7 @@ La puissance de cette foi dépassait tout ce que Wang Lin pouvait imaginer. Tand
 
 Un sentiment de frustration surgit involontairement dans son cœur. Cependant, dès que ce sentiment commença à poindre, Wang Lin l'écrasa aussitôt.
 
-Son corps fut projeté en arrière par une force colossale et s'écrasa au sol, à 3,3 kilomètres de là. En touchant terre, il effectua un roulement et ses ongles raclèrent le sol dans un crissement strident. Wang Lin recula de plus de 330 mètres avant de finalement se stabiliser.
+Son corps fut projeté en arrière par une force colossale et s'écrasa au sol, à 3,3 kilomètres de là. En touchant terre, il effectua un roulement et ses ongles raclèrent le sol dans un crissement strident. Wang Lin recula de plus d'une trentaine de mètres avant de finalement se stabiliser.
 
 À cet instant, tout le corps de Wang Lin était recouvert par le symbole sur son front. Ce symbole s'effondra et disparut immédiatement après avoir résisté à la force du quatrième effondrement. Il ne restait désormais que la moitié du symbole sur son front, n'émettant qu'une faible lueur grise.
 
@@ -52,7 +52,7 @@ L'énergie spirituelle démoniaque envahit la zone. L'énergie spirituelle céle
 
 Les cheveux de Wang Lin commencèrent à pousser mystérieusement pour atteindre ses genoux en un clin d'œil. Sa présence n'était plus empreinte de douceur, mais d'une aura de violence pure. Sur son front, six marques démoniaques apparurent.
 
-L'énergie spirituelle démoniaque autour de lui devint extrêmement dense, s'étendant de trois pieds à cent pieds de rayon. Tout dans cette zone fut submergé par une énergie démoniaque en furie. Cette essence devint si compacte qu'elle se mua en étincelles de flammes vertes, se dispersant circulairement sur le sol.
+L'énergie spirituelle démoniaque autour de lui devint extrêmement dense, s'étendant de dix mètres à 330 mètres de rayon. Tout dans cette zone fut submergé par une énergie démoniaque en furie. Cette essence devint si compacte qu'elle se mua en étincelles de flammes vertes, se dispersant circulairement sur le sol.
 
 L'intérieur comme l'extérieur de son corps étaient totalement saturés d'énergie démoniaque. À ce moment, Wang Lin leva soudainement la tête et laissa échapper un rire. Ce rire était empreint d'une aura tyrannique et d'une intention meurtrière effrayante!
 
@@ -62,7 +62,7 @@ Wang Lin fit un pas en avant. Son mouvement n'était pas rapide, mais il marchai
 
 L'éclat doré dans les yeux du général s'intensifia et il s'écria: « Intéressant! Tu es le premier à réaliser une percée sous mon Intention de Combat des Dix Effondrements! Voyons si tu peux supporter ce cinquième effondrement! »
 
-Le cinquième effondrement surgit soudainement du vide sitôt le général achevé de parler. Sa puissance était dix fois supérieure à celle du quatrième. Dès son apparition, des rugissements tonnantes résonnèrent comme si un châtiment divin s'abattait sur les dix mille pieds environnants. Le fracas était tel que toute la Cité Démon Ancienne pouvait l'entendre.
+Le cinquième effondrement surgit soudainement du vide sitôt le général achevé de parler. Sa puissance était dix fois supérieure à celle du quatrième. Dès son apparition, des rugissements tonnants résonnèrent comme si un châtiment divin s'abattait sur un rayon de 3,3 kilomètres alentour. Le fracas était tel que toute la Grande Muraille Antique pouvait l'entendre.
 
 L'expression de Wang Lin resta sombre alors qu'il affrontait le cinquième effondrement avec son Doigt Démoniaque. Son index droit pressa soudainement vers l'avant; toute l'énergie spirituelle démoniaque se concentra à la pointe de son doigt pour se transformer instantanément en une flamme démoniaque!
 
@@ -70,11 +70,11 @@ C'était la première fois que Wang Lin utilisait le véritable pouvoir du Doigt
 
 Wang Lin fit ensuite un pas et s'élança dans les airs. Son index droit fonça directement vers le général démon.
 
-Presque au moment même où le cinquième effondrement apparaissait, il fut stoppé par la flamme démoniaque. Profitant de cet arrêt, Wang Lin chargea avec son Doigt Démoniaque et, après une série de grondements sourds, il perça la barrière. Il n'était plus qu'à cent pieds du général!
+Presque au moment même où le cinquième effondrement apparaissait, il fut stoppé par la flamme démoniaque. Profitant de cet arrêt, Wang Lin chargea avec son Doigt Démoniaque et, après une série de grondements sourds, il perça la barrière. Il n'était plus qu'à trente-trois mètres du général!
 
 Le sixième effondrement survint peu après!
 
-Les mots manquaient pour décrire la puissance du sixième effondrement. Dès son apparition, l'espace de cent pieds séparant Wang Lin du général commença à se décomposer, laissant poindre d'innombrables fissures spatiales. La force du sixième effondrement descendit avec fracas.
+Les mots manquaient pour décrire la puissance du sixième effondrement. Dès son apparition, l'espace de trente-trois mètres séparant Wang Lin du général commença à se décomposer, laissant poindre d'innombrables fissures spatiales. La force du sixième effondrement descendit avec fracas.
 
 Le visage de Wang Lin demeurait sombre, ses yeux brûlant d'intention meurtrière. Il ne retira pas son doigt et continua sa progression. Le sixième effondrement surgit du vide sous la forme d'un anneau de lumière pour se refermer sur lui.
 

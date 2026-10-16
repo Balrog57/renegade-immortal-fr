@@ -20,9 +20,9 @@ Cependant, sa culture avait désormais franchi l'étape du Yang Corporel pour at
 
 Wang Lin détourna le regard et dit calmement: « Tu n'es pas mon adversaire. Compte tenu du fait que nous nous connaissons, recule! »
 
-Zhan Konglie réfléchit en silence tout en observant Wang Lin. Ses yeux étaient empreints d'une émotion complexe lorsqu'il déclara: « Senior, il y a 700 ans, Junior a compris la nature inflexible du tonnerre sur la planète Heavenly Thunder. J'ai fusionné cette inflexibilité dans mon propre corps. Après être revenu chez moi, j'ai cultivé devant la relique laissée par l'ancêtre de ma famille Zhan pour forger mon domaine. Mon domaine est l'intention de bataille inflexible! »
+Zhan Konglie réfléchit en silence tout en observant Wang Lin. Ses yeux étaient empreints d'une émotion complexe lorsqu'il déclara: « Senior, il y a 700 ans, Junior a compris la nature inflexible du tonnerre sur la planète Tonnerre Céleste. J'ai fusionné cette inflexibilité dans mon propre corps. Après être revenu chez moi, j'ai cultivé pendant un siècle devant la relique laissée par l'ancêtre de ma famille Zhan pour forger mon domaine. Mon domaine est l'intention de bataille inflexible! »
 
-« Zhan[1] est mon nom, et c'est aussi mon domaine. Il n'y a que l'intention de bataille! »
+« Zhan est mon nom, et c'est aussi mon domaine. Il n'y a que l'intention de bataille! »
 
 « Grâce à ce domaine, mon niveau de culture a progressé par bonds prodigieux, sans aucun obstacle, jusqu'à ce qu'il y a 400 ans, j'atteigne l'étape du Yang Corporel, mais... Même aujourd'hui, ma culture n'a plus progressé. Senior, ma voie est-elle juste ou fausse?! »
 
@@ -76,15 +76,15 @@ Le regard de Wang Lin se glaça et il fit un pas en avant. Il leva la main droit
 
 Une rafale de vent noir apparut soudainement. Ce vent était infini et envahit toute la zone. L'énergie tranchante qui scellait l'espace fut incapable de lui résister; les lames s'effondrèrent en fragments et furent balayées par le courant!
 
-Le vent noir sifflait, créant un souffle glacial capable d'anéantir toute vie. Deux dragons noirs surgirent immédiatement de la tempête. Chacun mesurait 10 000 pieds de long et, au rythme de leurs mouvements, de puissants grondements faisaient écho dans l'arène. Les rugissements de ces dragons féroces étaient comme la colère des cieux!
+Le vent noir sifflait, créant un souffle glacial capable d'anéantir toute vie. Deux dragons noirs surgirent immédiatement de la tempête. Chacun mesurait 3 300 mètres de long et, au rythme de leurs mouvements, de puissants grondements faisaient écho dans l'arène. Les rugissements de ces dragons féroces étaient comme la colère des cieux!
 
 Une intention meurtrière dense enveloppa les lieux, émanant directement de Wang Lin. Bien que ce sort se nommât « Invoque le Vent », il puisait dans l'énergie originelle de Wang Lin. Son intention meurtrière fusionnait avec le vent noir et son immense intention de bataille!
 
-*Roar!*
+*Grrr!*
 
 Un rugissement sauvage s'échappa des deux dragons noirs. Simultanément, une tempête se déchaîna, balayant les neuf rayons d'énergie et provoquant leur effondrement immédiat!
 
-Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré par le vent noir. Les deux dragons de 10 000 pieds s'enroulaient autour de lui en rugissant sans relâche. Wang Lin, imperturbable, marcha vers l'homme en noir!
+Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré par le vent noir. Les deux dragons de 3 300 mètres s'enroulaient autour de lui en rugissant sans relâche. Wang Lin, imperturbable, marcha vers l'homme en noir!
 
 « Si tu veux combattre, alors combattons! » Une voix si calme qu'elle en était glaciale émana de Wang Lin.
 
@@ -100,7 +100,7 @@ Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré 
 
 « Le sort de la Tempête de Tonnerre de la famille Yao lui ressemble, mais sa puissance est dérisoire en comparaison! »
 
-Les yeux du vieil homme en robe pourpre du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure de Lord Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords de Lord Jie Ji et ce sort céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
+Les yeux du vieil homme en robe pourpre du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure de Lord Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
 
 Les dragons noirs rugissaient et continuaient de projeter un vent glacial tandis que Wang Lin avançait. Le souffle froid se dirigeait vers la pierre rouge où l'homme en noir était assis. Les yeux de ce dernier devinrent encore plus brillants, bien qu'il ne bougât point. Sa main droite traça un sceau, faisant s'élancer quatre des neuf lames dans les airs. Elles s'entrecroisèrent et se mirent à pivoter, engendrant une tempête. Dès que cette tempête de lames apparut, l'espace environnant commença à se fissurer, comme s'il ne pouvait plus supporter la pression.
 

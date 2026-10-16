@@ -10,7 +10,7 @@ La silhouette de Chi Hu se déplaça comme un éclair et arriva presque instanta
 
 Chi Hu ne pouvait détecter que de très faibles fluctuations d'énergie spirituelle. Il était évident que leur culture avait déjà été scellée.
 
-Ces plus de cent membres du clan affichaient tous des expressions amères, mêlées de choc. Bien qu'ils en aient déjà été informés, le subir eux-mêmes leur laissait un goût de défaite bien amer.
+Ces centaines de membres du clan affichaient tous des expressions amères, mêlées de choc. Bien qu'ils en aient déjà été informés, le subir eux-mêmes leur laissait un goût de défaite bien amer.
 
 Chi Hu regarda Wang Lin avec une expression complexe et demanda d'une voix forte: « Ceng Niu, me considères-tu, Chi Hu, comme ton ami? »
 
@@ -48,7 +48,7 @@ Wang Lin observa le vieillard, ferma le poing de sa main droite et lança un cou
 
 Boum!
 
-Dans un fracas assourdissant, le vieil homme fut repoussé de plusieurs pieds. Son visage pâlit, marqué par l'incrédulité. Les autres anciens pourpres virent leurs expressions changer radicalement, maudissant intérieurement la scène.
+Dans un fracas assourdissant, le vieil homme fut repoussé de plus de dix mètres. Son visage pâlit, marqué par l'incrédulité. Les autres anciens pourpres virent leurs expressions changer radicalement, maudissant intérieurement la scène.
 
 Wang Lin n'avait même pas bougé. Il regarda le vieillard et reprit: « Tu n'en es toujours pas digne! »
 
@@ -62,7 +62,7 @@ Wang Lin regarda Chi Hu et hocha lentement la tête.
 
 Les trois anciens pourpres restèrent silencieux. Ils étaient les trois membres les plus puissants du clan après l'ancêtre. S'ils ne pouvaient résister à Wang Lin, il était inutile de compter sur le reste du clan.
 
-Surtout après avoir vu que plus de cent membres avaient été scellés, leur moral s'effondra instantanément.
+Surtout après avoir vu que des centaines de membres avaient été scellés, leur moral s'effondra instantanément.
 
 Chi Hu se tourna vers les trois anciens avec une expression complexe et ordonna: « Trois Anciens, veuillez ouvrir la formation du Passage Céleste du Clan des Démons Géants! Je l'ordonne en tant que Jeune Maître de Secte! »
 
@@ -98,7 +98,7 @@ Les douze piliers noirs émettaient une lueur sombre qui, en réaction à ce cha
 
 Une pointe de tristesse apparut dans les yeux de Wang Lin. Il vit la lutte intérieure dans le regard de Chi Hu. Pourtant, il n'avait que peu de liens avec quiconque et considérait sincèrement Chi Hu comme un ami.
 
-Dans un rayon de 5 000 kilomètres, lui et Chi Hu étaient les seuls à rester debout. Tous les autres étaient assis en tailleur, chantant ce chant singulier.
+Dans un rayon de 33 kilomètres, lui et Chi Hu étaient les seuls à rester debout. Tous les autres étaient assis en tailleur, chantant ce chant singulier.
 
 Chi Hu regarda Wang Lin avec une expression complexe et dit amèrement: « Ceng Niu, je t'ai déçu! Cependant, l'ancêtre est l'espoir de notre clan, et en tant que Jeune Maître de Secte, c'est mon devoir... Même avec le corps de l'ancêtre, il ne peut supporter huit assauts de la formation du Passage Céleste. Ton corps n'est pas aussi robuste que celui des membres de mon clan; tu n'as aucune chance de survie... »
 
@@ -116,7 +116,7 @@ Les yeux de Wang Lin s'illuminèrent. Il apparut soudainement devant l'un des pi
 
 Boum!
 
-Le pilier noir vola en éclats, créant une onde de choc dévastatrice. Le corps de Wang Lin fut repoussé de plusieurs pieds et son poing droit commença à saigner.
+Le pilier noir vola en éclats, créant une onde de choc dévastatrice. Le corps de Wang Lin fut repoussé de plus de dix mètres et son poing droit commença à saigner.
 
 « Le premier pilier! » Les yeux de Wang Lin étincelèrent. Lors de son combat contre Li Yuanfeng, il n'avait pas pu utiliser toute la puissance de son corps de Dieu Ancien à trois étoiles. À cet instant, ses yeux étaient empreints d'une intention de combat pure. Il lécha le sang sur son poing droit et chargea vers le pilier suivant.
 
@@ -138,7 +138,7 @@ Wang Lin poussa un rugissement et se déplaça comme l'éclair pour asséner d'a
 
 « Le dernier pilier. Chi Hu, regarde bien! » Alors que la voix de Wang Lin résonnait dans les cieux, le dernier pilier frappa.
 
-Cette fois, Wang Lin ne lança pas un coup de poing; dans un rugissement, son corps grandit soudainement pour devenir un géant de plus de cent pieds de haut.
+Cette fois, Wang Lin ne lança pas un coup de poing; dans un rugissement, son corps grandit soudainement pour devenir un géant de plus de trente mètres de haut.
 
 Boum!
 
@@ -154,15 +154,15 @@ La fusion de l'avatar et du corps original, l'union d'un cultivateur au stade av
 
 C'était un Dieu Ancien! Un Dieu Ancien à trois étoiles!
 
-Wang Lin avait tout anticipé. S'il continuait à cacher sa force comme auparavant, il ne ferait qu'attirer les ennuis. Il valait mieux utiliser le meurtre de Li Yuanfeng et de l'ancêtre du clan comme exemples pour montrer au monde entier, et particulièrement à Zhuque Zhi, qu'il n'était pas un pion!
+Wang Lin avait tout anticipé. S'il continuait à cacher sa force comme auparavant, il ne ferait qu'attirer les ennuis. Il valait mieux utiliser le meurtre de Li Yuanfeng et de l'ancêtre du clan comme exemples pour montrer au monde entier, et particulièrement à Zhuque Zi, qu'il n'était pas un pion!
 
 Depuis son arrivée dans le pays de Suzaku, Wang Lin ressentait une atmosphère oppressante. Cela était dû au pays et à la montagne de Suzaku. L'apparition de Liu Mei avait agi comme un levier soulevant un coin du brouillard, lui confirmant qu'il était pris dans un complot.
 
 Avec son tempérament, comment aurait-il pu accepter d'être manipulé? C'est pourquoi il n'avait pas hésité à montrer sa pleine puissance. Il ne voulait pas être un pion. Et s'il devait l'être, il serait un pion couvert d'épines, faisant saigner quiconque tenterait de le toucher.
 
-Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhuque Zhi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan des Démons Géants en était l'illustration parfaite.
+Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhuque Zi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan des Démons Géants en était l'illustration parfaite.
 
-Wang Lin avait déjà tout prévu. Il n'avait pas l'intention de rester longtemps à Suzaku; il comptait partir pour la planète Tian Yun une fois qu'il aurait obtenu l'étendard des milliards d'âmes!
+Wang Lin avait déjà tout prévu. Il n'avait pas l'intention de rester longtemps à Suzaku; il comptait partir pour la planète Tian Yun une fois qu'il aurait obtenu le drapeau d'un milliard d'âmes!
 
 « Ancêtre du Clan des Démons Géants, sors de ta cachette! » cria Wang Lin, flottant dans les airs. Sa voix se propagea à travers tout le territoire.
 

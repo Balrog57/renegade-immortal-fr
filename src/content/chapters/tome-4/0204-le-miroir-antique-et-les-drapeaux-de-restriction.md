@@ -9,7 +9,7 @@ slug: le-miroir-antique-et-les-drapeaux-de-restriction
 
 Après avoir posé la restriction, Wang Lin cessa de surveiller Yun Fei. D'un geste de la main, il divisa la grotte en deux, séparant leurs espaces de vie respectifs, et plaça une restriction entre eux.
 
-Assis en tailleur dans la grotte, Wang Lin pointa son doigt entre ses sourcils. Soudain, un fantôme apparut. Cette silhouette floue ne mesurait que huit paumes de large, mais avait la forme d'une bête.
+Assis en tailleur dans la grotte, Wang Lin pointa son doigt entre ses sourcils. Soudain, un fantôme apparut. Cette silhouette floue ne mesurait que la taille d'une paume, mais avait la forme d'une bête.
 
 Ce fantôme était le second démon utilisé par Wang Lin dans la Terre de l'Ancien Dieu.
 
@@ -51,7 +51,7 @@ Le premier était le sac de l'Empereur Antique. Lorsqu'il tenta d'y pénétrer a
 
 Il eut un ricanement méprisant, mit ce sac de côté et passa aux suivants.
 
-Le sac qui l'excitait le plus contenait les dix instruments du groupe de Duomu. D'un geste de la main, les dix objets tombèrent hors du sac. Ils flottèrent devant lui. À l'exception de la lame en demi-lune qui émettait encore une faible lueur, les neuf autres ne brillaient plus.
+Le sac qui l'excitait le plus contenait les dix instruments du groupe de Dou Mu. D'un geste de la main, les dix objets tombèrent hors du sac. Ils flottèrent devant lui. À l'exception de la lame en demi-lune qui émettait encore une faible lueur, les neuf autres ne brillaient plus.
 
 Le Sens Divin de Wang Lin se précipita vers ces neuf instruments, mais dès qu'il les effleura, son expression s'assombrit. Bien que le propriétaire fût mort, un autre Sens Divin imprégnait les objets, empêchant Wang Lin de les utiliser.
 
@@ -67,9 +67,9 @@ Il avait pu ressentir les effets de cet objet durant cette période. Le pouvoir 
 
 Cependant, avec ses seules connaissances, il ignorait son nom. Même grâce aux souvenirs de l'Ancien Dieu, il ne possédait que peu d'informations sur les trésors magiques. Après tout, pour un Ancien Dieu, le corps était la meilleure des armes; ils raffinaient rarement des trésors et, lorsqu'ils le faisaient, ces derniers possédaient une puissance inimaginable.
 
-À présent encore, Wang Lin songeait à la pyramide carrée que Tu Si avait jetée. Après avoir hérité de ses souvenirs, il avait tenté d'en créer de nombreux, mais les ressources nécessaires étaient colossales. Même en utilisant toutes les richesses du système stellaire Suzaku, il ne pourrait en raffiner un seul.
+À présent encore, Wang Lin songeait au chaudron carré que Tu Si avait jeté. Après avoir hérité de ses souvenirs, il avait tenté d'en créer de nombreux, mais les ressources nécessaires étaient colossales. Même en utilisant toutes les richesses du système stellaire Suzaku, il ne pourrait en raffiner un seul.
 
-Il connaissait désormais le nom de cette pyramide: la Pyramide de l'Étoile Mystérieuse. Sa fonction était le scellement. Utilisée correctement, elle pouvait emprisonner n'importe quoi, y compris des planètes entières. Cette pyramide exigeait le moins de matériaux de tous les trésors, mais cela restait relatif.
+Il connaissait désormais le nom de ce chaudron: le Chaudron de l'Étoile Mystérieuse. Sa fonction était le scellement. Utilisée correctement, elle pouvait emprisonner n'importe quoi, y compris des planètes entières. Ce chaudron exigeait le moins de matériaux de tous les trésors, mais cela restait relatif.
 
 Au cours du mois et demi écoulé, en plus de l'étude du miroir, Wang Lin avait commencé à fabriquer des drapeaux de restriction avec des pierres d'encre. Cependant, il lui manquait encore certains composants. C'était la raison de sa sortie: se rendre sur la place de la ville pour tenter de les trouver.
 
@@ -113,7 +113,7 @@ Il demanda: « Puis-je savoir d'où elle provient? »
 
 S'il avait posé cette question au début de sa Formation du Noyau, il n'aurait rien obtenu. Mais avec son niveau actuel, la jeune fille lui répondit avec un sourire: « Vous n'êtes pas le premier à poser la question, Senior. Obtenir une peau aussi complète est extrêmement difficile; elle a été prélevée sur le dragon au moment même de sa mort. »
 
-Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée ici, dans une succursale de Nan Dou à l'extérieur de la Mer des Démons, contre un fourneau à pilules. La rumeur dit que le cultivateur qui l'a échangée est mort près de la Mer des Démons. »
+Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée ici il y a deux cents ans, dans une succursale de Nan Dou à l'extérieur de la Mer des Démons, contre un fourneau à pilules. La rumeur dit que le cultivateur qui l'a échangée est mort près de la Mer des Démons. »
 
 « Dès qu'il a quitté Nan Dou, il fut poursuivi par de nombreux experts de la Formation du Noyau, dont un au stade intermédiaire. Ce cultivateur n'était alors qu'au stade avancé de l'Établissement des Fondations. Normalement, il aurait dû mourir, mais il a réussi à percer le stade de la Formation du Noyau en pleine poursuite et a massacré tous ses traqueurs. Il a même forcé l'expert intermédiaire à utiliser l'Ordre Céleste des Cent Jours des Dix Mille Démons. »
 

@@ -16,7 +16,7 @@ Le visage de Cupidité s'assombrit alors qu'il formait un sceau d'une main et cr
 
 Un cri strident jaillit des profondeurs de l'essaim, et la vaste nuée de moustiques ouvrit immédiatement une brèche. Du centre du groupe, un moustique géant, portant sept aiguilles d'argent plantées dans la tête, s'éleva lentement.
 
-Une lutte intérieure faisait rage dans ses yeux rouges. La bête moustique fixa Cupidité et poussa un rugissement. Cupidité rugit à son tour, et les aiguilles argentées sur sa tête s'enfoncèrent de trois pouces supplémentaires. Le corps du moustique trembla et le combat dans ses yeux devint plus intense encore.
+Une lutte intérieure faisait rage dans ses yeux rouges. La bête moustique fixa Cupidité et poussa un rugissement. Cupidité rugit à son tour, et les aiguilles argentées sur sa tête s'enfoncèrent d'environ dix centimètres supplémentaires. Le corps du moustique trembla et le combat dans ses yeux devint plus intense encore.
 
 Cependant, une trace de résolution apparut soudainement dans son regard alors qu'il poussait un cri puissant empreint de mort! Son regard se déplaça comme l'éclair pour se poser sur la bête moustique de Wang Lin.
 
@@ -56,11 +56,11 @@ Les fragments qui tombaient étaient imprégnés de soif de sang. Ils reformère
 
 Les yeux de Wang Lin brillèrent et il toucha l'espace entre ses sourcils de sa main droite. Une immense quantité d'énergie de massacre jaillit et se concentra sur son bout de doigt. L'énergie de massacre se condensa rapidement: un million devint cent mille, cent mille devinrent mille, et mille ne devinrent plus qu'un seul filament!
 
-Hormis le unique fil qu'il conservait dans son âme originelle, tous les autres avaient été condensés au bout du doigt de Wang Lin en une seule fibre. Ce filament dense d'énergie de massacre jaillit après avoir été projeté par un coup sec de Wang Lin.
+Hormis l'unique fil qu'il conservait dans son âme originelle, tous les autres avaient été condensés au bout du doigt de Wang Lin en une seule fibre. Ce filament dense d'énergie de massacre jaillit après avoir été projeté par un coup sec de Wang Lin.
 
 « L'Esprit d'Épée Brisée de Ling Tianhou et l'Art Céleste du Massacre de l'Omniscient! » Les yeux de Cupidité brillèrent intensément, mais une pointe de dérision s'y nichait. Il recula en disant: « Bien que ces deux sorts soient puissants, votre maîtrise est incomplète. Devant les yeux de ce vieil homme, ils sont tout simplement trop faibles! »
 
-Cupidité frappa sa sacoche de rangement et une petite montagne s'en envola immédiatement. Une fois sortie, elle grandit instantanément pour atteindre plusieurs centaines de pieds de haut et flotta dans les airs.
+Cupidité frappa sa sacoche de rangement et une petite montagne s'en envola immédiatement. Une fois sortie, elle grandit instantanément pour atteindre environ 330 mètres de haut et flotta dans les airs.
 
 Cette montagne était couverte de gravures de runes mystérieuses. À mesure que la montagne se déplaçait, les runes scintillaient, conférant à l'édifice une aura étrange.
 
@@ -76,7 +76,7 @@ Une puissance incomparable se manifesta instantanément. Une fois l'âme de la m
 
 Cependant, l'âme illusoire de la montagne était toujours entre les mains de Cupidité!
 
-« La culture de ce vieil homme ne peut égaler celle du petit Ling Tian ou de ce vieux voleur d'Omniscient, mais les sorts du vieux Cupidité sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre les techniques d'autrui en croyant qu'elles étaient les vôtres! » Les yeux de Cupidité débordaient de mépris alors que sa main droite s'abaissait.
+« La culture de ce vieil homme ne peut égaler celle du vieux Ling Tian ou de ce vieux voleur d'Omniscient, mais les sorts du vieux Cupidité sont sans faille! Vous, juniors, vous n'avez fait qu'apprendre les techniques d'autrui en croyant qu'elles étaient les vôtres! » Les yeux de Cupidité débordaient de mépris alors que sa main droite s'abaissait.
 
 Dans un fracas assourdissant, l'âme de la montagne descendit.
 
@@ -100,11 +100,11 @@ Wang Lin prit une inspiration sifflante. S'il n'avait pas toujours conservé un 
 
 Grâce à l'appui de l'âme de la montagne, Cupidité parvint enfin à échapper au siège des bêtes moustiques. Il éclata d'un rire tonitruant: « Petits juniors, connaissez-vous cette montagne? C'est une montagne du Royaume Céleste! Ce vieil homme l'a extraite et scellée il y a des dizaines de milliers d'années! »
 
-À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de mille pieds à dix pieds, formant une sphère dense de brume pourpre.
+À cet instant précis, le brouillard violet qui se contractait sans cesse était sur le point de disparaître. Il s'était réduit de 330 mètres à 3,3 mètres, formant une sphère dense de brume pourpre.
 
 Aucun son ne s'échappait encore de la sphère, mais Wang Lin savait qu'une personne vivante s'y trouvait: un disciple de la Secte de l'Épée Da Lou!
 
-Dans un bruit sourd, la sphère de dix pieds se rétracta à nouveau pour n'atteindre plus que sept pieds!
+Dans un bruit sourd, la sphère de 3,3 mètres se rétracta à nouveau pour n'atteindre plus que 2,3 mètres!
 
 Un jeton commença progressivement à apparaître au cœur de la brume. Ce jeton, façonné par le brouillard, se condensait rapidement.
 

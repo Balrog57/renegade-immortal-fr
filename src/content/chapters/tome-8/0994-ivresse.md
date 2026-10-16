@@ -8,7 +8,7 @@ slug: ivresse
 ---
 Situ sourit amèrement. Lorsqu'il prit la cruche de vin, il constata qu'elle était vide. Il sortit alors une grande jarre de son sac et brisa le sceau. Il but directement à la source, laissant le vin couler le long du coin de sa bouche.
 
-Après avoir reposé la cruche, il soupira et dit: « Heureusement que ce vieil homme est rusé et a trouvé un moyen extrême de résister à ce poison. J'ai utilisé une cultivatrice comme fournaise de culture. Grâce à une méthode spéciale de double culture, j'ai pu stimuler le Septième Ciel pour le maintenir au premier stade. C'est ainsi que j'ai pu retarder l'échéance jusqu'à aujourd'hui! »
+Après avoir reposé la cruche, il soupira et dit: « Heureusement que ce vieil homme est rusé et a trouvé un moyen extrême de résister à ce poison. J'ai utilisé une cultivatrice comme fournaise de culture. Grâce à une méthode spéciale de double culture, j'ai pu stimuler le poison pour le maintenir au premier stade. C'est ainsi que j'ai pu retarder l'échéance jusqu'à aujourd'hui! »
 
 L'intention meurtrière explosa dans le regard glacial de Wang Lin alors qu'il levait les yeux vers les étoiles. Son intention de tuer envers la planète Feng Luan, qui avait plongé Situ Nan dans cet état, était monstrueuse!
 
@@ -24,7 +24,7 @@ L'expression de Wang Lin changea: « Le Royaume Céleste? Ce poison a-t-il été
 
 Situ Nan acquiesça: « D'après les archives que j'ai trouvées, il a bien été raffiné par le Royaume Céleste de la Pluie. »
 
-Wang Lin réfléchit un instant. Il possédait toujours la pagode de Zhou Yi. À l'intérieur reposait le cadavre du Seigneur Céleste Qing Shuang. Et Qing Shuang était une Seigneur Céleste du Royaume Céleste de la Pluie!
+Wang Lin réfléchit un instant. Il possédait toujours la pagode de Zhou Yi. À l'intérieur reposait le cadavre du Seigneur Céleste Qing Shuang. Et Qing Shuang était un Seigneur Céleste du Royaume Céleste de la Pluie!
 
 « Autrefois, j'ai trouvé divers indices suggérant que dans cette grotte mystérieuse des Terres de l'Esprit Démoniaque se trouve l'Empereur Céleste le plus puissant du passé, l'Empereur Céleste Qing Lin! Ce Qing Lin était le père de Qing Shuang, et il possède peut-être un moyen de la ressusciter. Une fois qu'elle sera revenue à la vie, il sera facile de guérir ce poison! »
 
@@ -38,7 +38,7 @@ Ils recommencèrent à boire et à discuter au sommet jusqu'à l'aube. Après av
 
 Wang Lin fut surpris et se frotta machinalement le nez. Il ne comprenait pas vraiment ce que Situ Nan voulait dire.
 
-« Ne sois pas idiot. Si tu me dis que ta raison de venir sur la planète Water Spirit n'est pas pour ces deux filles, je ne te croirai pas! » Situ Nan afficha un sourire qui n'en était pas un.
+« Ne sois pas idiot. Si tu me dis que ta raison de venir sur la planète Esprit d'Eau n'est pas pour ces deux filles, je ne te croirai pas! » Situ Nan afficha un sourire qui n'en était pas un.
 
 « À l'origine, je voulais emmener ces deux filles pour en faire tes concubines, mais je ne pensais pas que tu serais encore plus rapide que moi. Tu y es déjà allé. Bien que gagner de l'influence par la séduction ne soit pas une mauvaise chose, je dois quand même te gronder. Tu n'es plus un jeune homme et pourtant tu joues encore à ces jeux de cour. Si c'était moi, je les aurais prises directement.
 
@@ -58,7 +58,7 @@ La vie amoureuse de Wang Lin avait été faite de tragédies. Le départ de Li M
 
 Ce genre de vie, solitaire parmi les étoiles, est une chose que l'on ne peut comprendre sans l'avoir vécue soi-même.
 
-Ses interactions avec Liu Mei lui avaient infligé d'immenses souffrances. Il avait passé cent ans à résoudre le ressentiment de Wang Pin, mais cela n'avait pas suffi à dissiper la douleur dans le cœur de Wang Lin.
+Ses interactions avec Liu Mei lui avaient infligé d'immenses souffrances. Il avait passé cent ans à résoudre le ressentiment de Wang Ping, mais cela n'avait pas suffi à dissiper la douleur dans le cœur de Wang Lin.
 
 Il saisit la dernière jarre de vin sur la table et en but une grande gorgée sans retenue. Il la reposa avec fracas et rit: « Situ, tu m'as appris autrefois que le monde de la culture est cruel et régi par la loi de la jungle. Si l'on est négligent un seul instant, on périt. Si l'on veut vivre, il faut devenir impitoyable et féroce. C'est seulement ainsi que l'on acquiert les qualifications pour survivre!
 
@@ -94,7 +94,7 @@ Son rire se perdit dans l'air, chargé de tristesse et de chagrin.
 
 Wang Lin saisit la bouteille et, sans même y regarder, en but une gorgée. En avalant le liquide, il sentit une brûlure lui monter dans la gorge. Puis une chaleur s'accumula dans son abdomen et se propagea à travers tout son corps.
 
-« La culture, la culture... Sais-tu que j'ai autrefois envoyé les cendres d'un vieil ami dans sa ville natale? Sais-tu ce que j'ai entendu, Situ? » Wang Lin reprit la bouteille et but de nouveau. L'amertume emplissait ses yeux.
+« La culture, la culture... Sais-tu que j'ai autrefois envoyé les ossements d'un vieil ami dans sa ville natale? Sais-tu ce que j'ai entendu, Situ? » Wang Lin reprit la bouteille et but de nouveau. L'amertume emplissait ses yeux.
 
 « L'arbre à abricots fleurit en blanc. La fille ne sera pas prise par une famille de taoïstes. L'an dernier, le second Lang monta à la montagne, et un an plus tard, le premier Lang n'était qu'un sac d'os. Le cri de la fille accompagne les morts mais prend le cercueil pour famille... L'arbre à abricots fleurit en blanc et les enfants ne devraient pas être pris par les taoïstes. Si l'on m'interroge sur mon âge, je n'ai toujours pas trouvé mon Dao. Le chien aboie, le chat griffe, effrayant le taoïste qui rentre chez lui. »
 

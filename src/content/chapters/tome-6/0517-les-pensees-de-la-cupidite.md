@@ -44,7 +44,7 @@ L'actuel Chen Tao portait une robe pourpre et dégageait une pression colossale.
 
 Le groupe des dix membres de l'Omniscient se dirigea calmement vers la porte. Chaque cultivateur s'écarta respectueusement, rendant la scène encore plus grandiose que lors de l'arrivée du Saint de l'Épée Ling Tianhou.
 
-En un clin d'œil, le groupe de l'Omniscient atteignit la porte. Ils ne se trouvaient qu'à mille pieds du groupe de Ling Tianhou. Tous les regards étaient braqués sur ces deux groupes.
+En un clin d'œil, le groupe de l'Omniscient atteignit la porte. Ils ne se trouvaient qu'à environ 330 mètres du groupe de Ling Tianhou. Tous les regards étaient braqués sur ces deux groupes.
 
 Outre ces personnes, tous les vieux monstres observaient Ling Tianhou et l'Omniscient avec des expressions de spectateurs attendant un grand spectacle.
 

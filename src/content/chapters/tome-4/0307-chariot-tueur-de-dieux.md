@@ -64,11 +64,11 @@ Une fois apparues, leurs yeux rouges se fixèrent sur Wang Lin avec hostilité. 
 
 Le regard de Wang Lin resta serein alors qu'il reculait d'un pas.
 
-Mais au moment où les trois âmes de bêtes bondirent en avant, d'innombrables chaînes aussi épaisses que des bras apparurent sur elles. Ces chaînes traversèrent même l'essence des âmes et se mirent à briller dès qu'elles s'approchèrent à moins de 10 mètres de Wang Lin.
+Mais au moment où les trois âmes de bêtes bondirent en avant, d'innombrables chaînes aussi épaisses que des bras apparurent sur elles. Ces chaînes traversèrent même l'essence des âmes et se mirent à briller dès qu'elles s'approchèrent à moins d'un mètre de Wang Lin.
 
 Les trois âmes de bêtes poussèrent soudain des rugissements de douleur, leurs corps étant violemment ramenés en arrière par les chaînes pour être immobilisés sur les chars.
 
-Seule la plus grande âme de bête au centre avait réussi à progresser de quelques pieds avant d'être brutalement rappelée.
+Seule la plus grande âme de bête au centre avait réussi à progresser de 33 centimètres avant d'être brutalement rappelée.
 
 Cependant, les trois âmes de bêtes refusaient de céder et commencèrent à se débattre. La grotte trembla comme si elle allait s'effondrer à tout instant.
 

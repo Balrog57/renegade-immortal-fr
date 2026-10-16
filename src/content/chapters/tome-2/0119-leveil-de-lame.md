@@ -10,7 +10,7 @@ Les déchirures spatiales sur le champ de bataille étranger résultent des inno
 
 De l'autre côté des déchirures spatiales s'étend une mer d'étoiles, un lieu saturé d'énergie et peuplé de créatures étranges.
 
-Il n'est pas vrai que personne n'ait jamais réussi à sortir des déchirures. Cependant, les cultivateurs du stade avancé de la Transformation de l'Âme ont été téléportés presque instantanément après leur entrée, avant même que la force d'aspiration n'atteigne sa puissance maximale.
+Il n'est pas vrai que personne n'ait jamais réussi à sortir des déchirures. Cependant, les cultivateurs de la Transformation de l'Âme ont été téléportés presque instantanément après leur entrée, avant même que la force d'aspiration n'atteigne sa puissance maximale.
 
 L'aspect le plus terrifiant des déchirures spatiales sur ce champ de bataille est cette force d'aspiration. Même les cultivateurs de la Transformation de l'Âme éprouvent des difficultés face à elle. L'aspiration est si puissante qu'elle peut jusqu'à arracher l'énergie spirituelle; ne songez donc même pas à vous en échapper.
 
@@ -24,7 +24,7 @@ Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regard
 
 Une hache noire!
 
-Si des membres du Clan des Démons Géants se trouvaient ici, ils reconnaîtraient instantanément cela comme le signe de leur tribu ancestrale.
+Si des membres du Clan des Démons Géants se trouvaient ici, ils reconnaîtraient instantanément cela comme le signe de leur tribu ancestrale. Ce signe désignait un Démon Antique, autrement dit un démon de la haute Antiquité.
 
 Au moment où le corps toucha la lumière, un filet de fumée s'en échappa. Cette fumée prit la forme humaine et, animée par un regard avide, bondit vers la lumière. Il s'agissait d'une créature spéciale vivant dans le champ de bataille étranger: elle dévorait tout, qu'il s'agisse de cadavres, de trésors magiques ou d'âmes.
 
@@ -86,6 +86,6 @@ Après cette rencontre inattendue, Wang Lin explore d'autres directions et déco
 
 Mais la détermination de Wang Lin à revenir était inébranlable. Il eut une idée insensée: il déploya son Sens Divin pour couvrir l'intégralité de son territoire. Plus son Sens Divin s'étendait, plus les perturbations qu'il causait étaient violentes.
 
-Wang Lin surveilla attentivement la zone couverte par son Sens Divin. À sa droite, une déchirure spatiale apparut soudainement. Sans hésiter, Wang Lin envoya une parcelle de son Sens Divin dans la faille. Au moment où elle y pénétra, il coupa brusquement le lien avec cette partie de lui-même. Dès que la déchirure disparut, il perdit tout contact avec ce fragment de son Sens Divin.
+Wang Lin surveilla attentivement la zone couverte par son Sens Divin. En un point de cette zone, une déchirure spatiale apparut soudainement. Sans hésiter, Wang Lin envoya une parcelle de son Sens Divin dans la faille. Au moment où elle y pénétra, il coupa brusquement le lien avec cette partie de lui-même. Dès que la déchirure disparut, il perdit tout contact avec ce fragment de son Sens Divin.
 
 L'expression de Wang Lin ne changea pas tandis qu'il attendait l'apparition de la prochaine déchirure spatiale.

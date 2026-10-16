@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 140 - Sea of Devils
 slug: la-mer-des-diables
 ---
-L'expression de Wang Lin devint troublée; la rupture du réseau de scellement du pays était une bien mauvaise nouvelle pour lui. Une fois que ces bêtes de feu seraient sorties, leur première cible serait lui.
+L'expression de Wang Lin devint troublée; la rupture de la formation de scellement du pays était une bien mauvaise nouvelle pour lui. Une fois que ces bêtes de feu seraient sorties, leur première cible serait lui.
 
 La seule pensée d'être poursuivi par ces bêtes de feu lui glaçait le sang. Il prit immédiatement une décision: il devait obtenir la carte coûte que coûte, et il semblait incapable d'attendre la fin du mois pour obtenir la Pilule du Ciel Lointain.
 
@@ -18,15 +18,15 @@ Yang Xiong était l'un des disciples chargés de patrouiller la zone. Il n'osait
 
 Yang Xiong poussa un soupir en réprimant le poids qui pesait sur son cœur. Alors qu'il s'apprêtait à patrouiller dans la zone nord-ouest, il ressentit soudainement une présence et vola vers la forêt dense du nord. Une fois entré dans les bois, il scruta les environs et dit respectueusement: « Yang Xiong salue le Maître. »
 
-Wang Lin surgit d'un arbre. Il examina Yang Xiong avant de demander: « Où est Zhong Zihong? »
+Wang Lin surgit d'un arbre. Il examina Yang Xiong avant de demander: « Où est Zhou Zihong? »
 
-Yang Xiong fut méfiant, mais n'osa rien dire. Il réfléchit un instant avant de répondre: « Si je me souviens bien, la sœur junior Zhong devrait se trouver dans le troisième escadron de la quatrième armée, mais j'ignore les détails exacts. »
+Yang Xiong fut méfiant, mais n'osa rien dire. Il réfléchit un instant avant de répondre: « Si je me souviens bien, la sœur junior Zhou devrait se trouver dans le troisième escadron de la quatrième armée, mais j'ignore les détails exacts. »
 
-Wang Lin regarda Yang Xiong et déclara: « J'ai déjà restitué l'essence de l'âme de Zhong Zihong. »
+Wang Lin regarda Yang Xiong et déclara: « J'ai déjà restitué l'essence de l'âme de Zhou Zihong. »
 
 Le corps de Yang Xiong trembla et sa respiration devint saccadée, mais il se calma rapidement. Il leva la tête et fixa Wang Lin, la bouche entrouverte comme s'il voulait parler.
 
-D'un ton calme, Wang Lin dit: « Si tu peux faire venir Zhong Zihong ici, je te rendrai ton essence d'âme. »
+D'un ton calme, Wang Lin dit: « Si tu peux faire venir Zhou Zihong ici, je te rendrai ton essence d'âme. »
 
 Les yeux de Yang Xiong devinrent injectés de sang et sa respiration se fit à nouveau haletante. Après un long moment, il murmura: « Ce que le Maître dit est-il vrai? »
 
@@ -34,43 +34,43 @@ Wang Lin fronça les sourcils, mais hocha la tête.
 
 Sans un mot, Yang Xiong sortit un morceau de jade et le plaça sur son front. Wang Lin ne vit le jade briller que quelques instants avant qu'il ne soit lancé. Yang Xiong disparut alors au loin.
 
-Une heure plus tard, le sifflement des épées volantes retentit au loin et une femme d'une grande beauté, aux lèvres rouges, à la peau blanche et aux formes voluptueuses, arriva. Cette personne n'était autre que Zhong Zihong.
+Une demi-heure plus tard, le sifflement des épées volantes retentit au loin et une femme d'une grande beauté, aux lèvres rouges, à la peau blanche et aux formes voluptueuses, arriva. Cette personne n'était autre que Zhou Zihong.
 
 Elle rangea son épée volante et, au moment où elle allait parler, elle aperçut Wang Lin aux côtés de Yang Xiong; son visage pâlit instantanément.
 
-Wang Lin fit un geste de la main et l'essence d'âme vola vers Yang Xiong. Ce dernier, accablé de honte, la rattrapa et s'en alla sans oser croiser le regard de Zhong Zihong.
+Wang Lin fit un geste de la main et l'essence d'âme vola vers Yang Xiong. Ce dernier, accablé de honte, la rattrapa et s'en alla sans oser croiser le regard de Zhou Zihong.
 
-Le visage de Zhong Zihong était livide et elle mordilla sa lèvre rouge. Après un long silence, elle parla, le dos glacé: « L'ancêtre Feng Luan... est ma mère. Dès qu'elle m'a vue, elle a immédiatement remarqué que quelque chose n'allait pas, alors... »
+Le visage de Zhou Zihong était livide et elle mordilla sa lèvre rouge. Après un long silence, elle parla, le dos glacé: « L'ancêtre Feng Luan... est ma mère. Dès qu'elle m'a vue, elle a immédiatement remarqué que quelque chose n'allait pas, alors... »
 
-Wang Lin secoua la tête. Il soupira et dit: « Cette affaire est close, inutile d'en reparler. Zhong Zihong, j'aimerais que tu m'aides pour une chose. »
+Wang Lin secoua la tête. Il soupira et dit: « Cette affaire est close, inutile d'en reparler. Zhou Zihong, j'aimerais que tu m'aides pour une chose. »
 
-Zhong Zihong fut surprise et demanda: « S'agit-il de la carte? »
+Zhou Zihong fut surprise et demanda: « S'agit-il de la carte? »
 
 Wang Lin hocha la tête: « Ma demeure est très loin. Il me sera impossible de la trouver sans carte. »
 
-Zhong Zihong regarda Wang Lin d'un regard complexe et dit: « Aide-moi à tuer deux personnes. »
+Zhou Zihong regarda Wang Lin d'un regard complexe et dit: « Aide-moi à tuer deux personnes. »
 
 Wang Lin haussa un sourcil. « Quel niveau de culture? »
 
-Le regard de Zhong Zihong devint glacial alors qu'elle répondait: « L'une est au milieu du stade de l'Établissement des Fondations, et l'autre est au sommet du stade avancé de l'Établissement des Fondations. »
+Le regard de Zhou Zihong devint glacial alors qu'elle répondait: « L'une est au milieu du stade de l'Établissement des Fondations, et l'autre est au sommet du stade avancé de l'Établissement des Fondations. »
 
 « D'accord! » Wang Lin accepta sans hésiter.
 
-« Tu devrais les connaître. L'une est la précieuse sœur junior de Ma Liang, Xu Si. L'autre est Zhou Au, qui traîne toujours avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici une heure. » Après avoir parlé, Zhong Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
+« Tu devrais les connaître. L'une est la précieuse sœur junior de Ma Liang, Xu Si. L'autre est Zhou An, qui traîne toujours avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici une heure. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
 
-« Ma Liang, c'est la dernière fois que je t'aide... » murmura Zhong Zihong avec mélancolie en s'éloignant lentement.
+« Ma Liang, c'est la dernière fois que je t'aide... » murmura Zhou Zihong avec mélancolie en s'éloignant lentement.
 
-Wang Lin fixa longuement le dos de Zhong Zihong avant de déployer son Sens Divin pour débusquer Xu Si. Il lui avait laissé une trace de son Royaume Ji auparavant, ce qui rendit la tâche aisée.
+Wang Lin fixa longuement le dos de Zhou Zihong avant de déployer son Sens Divin pour débusquer Xu Si. Il lui avait laissé une trace de son Royaume Ji auparavant, ce qui rendit la tâche aisée.
 
 Une fois la position de Xu Si trouvée, Wang Lin fit un pas en avant et s'enfonça sous terre.
 
-Une demi-heure plus tard, il refit surface. Il s'assit en tailleur, attendant le retour de Zhong Zihong.
+Une demi-heure plus tard, il refit surface. Il s'assit en tailleur, attendant le retour de Zhou Zihong.
 
-Une expression étrange marqua son visage lorsqu'il trouva Xu Si et Zhou Au. Les deux se trouvaient dans une zone reculée de la montagne et s'amusaient, leurs deux corps blancs s'entrechoquant dans un bruit de succion.
+Une expression étrange marqua son visage lorsqu'il trouva Xu Si et Zhou An. Les deux se trouvaient dans une zone reculée de la montagne et s'amusaient, leurs deux corps blancs s'entrechoquant dans un bruit de succion.
 
-Wang Lin jeta un seul regard et déposa sur Zhou Au une parcelle de Sens Divin qui s'activerait dans un demi-mois, avant de repartir discrètement.
+Wang Lin jeta un seul regard et déposa sur Zhou An une parcelle de Sens Divin qui s'activerait dans un demi-mois, avant de repartir discrètement.
 
-Après avoir attendu un moment dans la forêt dense, la personne qui arriva n'était pas Zhong Zihong, mais une disciple de Condensation de Qi. Elle lança un morceau de jade dans la forêt et s'enfuit sans même se retourner.
+Après avoir attendu un moment dans la forêt dense, la personne qui arriva n'était pas Zhou Zihong, mais une disciple de Condensation de Qi. Elle lança un morceau de jade dans la forêt et s'enfuit sans même se retourner.
 
 La main droite de Wang Lin bougea et le jade vola rapidement vers lui. Il vérifia l'objet avec son Sens Divin avant de le ranger. Puis, prenant une profonde inspiration, il s'enfonça sous terre et disparut prestement.
 
@@ -132,7 +132,7 @@ L'esprit de Wang Lin tourna à toute vitesse. Il avait initialement prévu de co
 
 Wang Lin avait deux options. La première consistait à retourner à l'Union de Huo Fen. De nombreux cultivateurs puissants s'y trouvaient et ils seraient en sécurité dès leur arrivée. Cependant, ce jeune homme de la Formation du Noyau pourrait ne pas les laisser atteindre une telle distance. Et si Li Muwan changeait d'avis une fois en sécurité, il lui serait très difficile d'obtenir la pilule.
 
-La seconde option était de se rendre à la frontière de Huo Fen. Compte tenu du temps écoulé depuis la rupture du réseau de scellement, les bêtes de feu devaient être en route.
+La seconde option était de se rendre à la frontière de Huo Fen. Compte tenu du temps écoulé depuis la rupture de la formation de scellement, les bêtes de feu devaient être en route.
 
 Wang Lin n'hésita pas et choisit la seconde option.
 
@@ -142,7 +142,7 @@ Le jeune homme continuait sa poursuite. Voyant sa proie s'éloigner davantage, i
 
 La distance entre les deux parties se réduisait, et le visage de Li Muwan devint encore plus livide. Elle n'osait imaginer ce qui arriverait si le jeune homme la rattrapait. Elle en voulait à Wang Lin de ne pas avoir dirigé vers l'Union de Huo Fen, mais elle garda sa colère pour elle, craignant qu'il ne l'abandonne.
 
-L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ trois heures s'étaient écoulées depuis la nouvelle de la rupture du réseau. En ajoutant le temps nécessaire à l'Âme Naissante pour se téléporter et celui parcouru par les bêtes de feu, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
+L'expression de Wang Lin restait calme tandis qu'il calculait précisément le temps. Environ trois heures s'étaient écoulées depuis la nouvelle de la rupture de la formation. En ajoutant le temps nécessaire à l'Âme Naissante pour se téléporter et celui parcouru par les bêtes de feu, celles-ci devaient déjà avoir atteint la frontière de Xuan Wu.
 
 Alors qu'il calculait, son Sens Divin détecta un nuage rouge approchant au loin.
 
@@ -150,7 +150,7 @@ En voyant ce nuage rouge, le jeune homme s'arrêta net et renonça à sa poursui
 
 Le troupeau de bêtes de feu était extrêmement rapide, tout comme la technique d'évasion tellurique de Wang Lin; ainsi, lorsqu'ils se croisèrent, un immense écart fut créé.
 
-Le cœur de Li Muwan battait violemment en observant le nuage rouge. Elle se calma légèrement en remarquant qu'ils s'en éloignaient. Cependant, elle réalisa soudainement quelque chose et cria: « Arrêtez! Vite! Nous devons faire demi-tour pour signaler cela... les bêtes de feu ne sont-elles pas censées être scellées par le réseau? »
+Le cœur de Li Muwan battait violemment en observant le nuage rouge. Elle se calma légèrement en remarquant qu'ils s'en éloignaient. Cependant, elle réalisa soudainement quelque chose et cria: « Arrêtez! Vite! Nous devons faire demi-tour pour signaler cela... les bêtes de feu ne sont-elles pas censées être scellées par la formation? »
 
 Wang Lin la regarda froidement: « Ils le savent déjà, inutile de t'inquiéter. »
 
@@ -198,7 +198,7 @@ Wang Lin répondit froidement: « Je le sais! »
 
 Li Muwan soupira intérieurement et ne dit plus un mot.
 
-Dès leur entrée dans la Mer des Diables, des éclats d'énergie Ying pénétrèrent leurs corps. Cela alerta Wang Lin; il ne s'attendait pas à trouver de l'énergie Ying ici, ce qui le réjouit.
+Dès leur entrée dans la Mer des Diables, des éclats d'énergie yin glaciale pénétrèrent leurs corps. Cela alerta Wang Lin; il ne s'attendait pas à trouver de l'énergie yin glaciale ici, ce qui le réjouit.
 
 Comparée à Huo Fen, la Mer des Diables était comme un bloc de glace, créant un contraste saisissant. C'était la première fois que Li Muwan venait ici. Les légendes qu'elle avait entendues lui revinrent en mémoire, rendant son visage plus pâle encore.
 

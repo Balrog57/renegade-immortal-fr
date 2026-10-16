@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 952 - Trace of Nirvana Cleanser
 slug: trace-de-nettoyant-du-nirvana
 ---
-Cette épée mesurait sept pieds de long et trois pouces de large. La lumière argentée qu'elle émettait était semblable à celle de la lune. Flottant dans la main de Wang Lin, elle laissait échapper des bourdonnements d'épée.
+Cette épée mesurait environ deux mètres trente de long et une dizaine de centimètres de large. La lumière argentée qu'elle émettait était semblable à celle de la lune. Flottant dans la main de Wang Lin, elle laissait échapper des bourdonnements d'épée.
 
 La main droite de Wang Lin la toucha et il y déposa sa marque de Sens Divin.
 
@@ -16,11 +16,11 @@ La longue épée émit un grondement puissant, puis un rayon d'énergie d'épée
 
 Wang Lin fit un pas en avant et tendit les mains. Une autre épée fut saisie dans sa paume et commença à se débattre. Sa lutte était intense, comme si elle éprouvait de l'humiliation à être entre les mains de Wang Lin. En se débattant, l'épée projeta un rayon d'énergie vers le haut.
 
-À cet instant précis, les neuf épées volantes restantes émisrent toutes un hymne d'épée et leur vitesse s'accrut.
+À cet instant précis, les neuf épées volantes restantes émirent toutes un hymne d'épée et leur vitesse s'accrut.
 
 Alors que les neuf épées convergeaient, elles fusionnèrent pour ne former qu'une seule lame féroce qui plongea vers Wang Lin.
 
-Une lueur de froideur passa dans les yeux de Wang Lin et l'épée dans sa main se débattit avec plus de vigueur encore. Il laissa échapper un renflement froid et cessa simplement de la réprimer. Sa main gauche traça des sceaux et des restrictions apparurent sur l'épée. Une fois l'arme scellée, Wang Lin la jeta dans son sac de stockage.
+Une lueur de froideur passa dans les yeux de Wang Lin et l'épée dans sa main se débattit avec plus de vigueur encore. Il laissa échapper un reniflement froid et cessa simplement de la réprimer. Sa main gauche traça des sceaux et des restrictions apparurent sur l'épée. Une fois l'arme scellée, Wang Lin la jeta dans son sac de stockage.
 
 À ce moment-là, l'épée formée par les neuf lames se rapprocha et l'encercla dans une puissante explosion d'énergie d'épée. Wang Lin sentit immédiatement un vent capable de percer le corps et de s'enfoncer directement dans l'âme originelle.
 
@@ -96,7 +96,7 @@ Les mains de l'homme frappèrent le vide devant lui tandis que l'énergie origin
 
 À cet instant précis, une lumière blanche jaillit du sol et un vieil homme vêtu de vert apparut. Il se lécha les lèvres et chargea, le regard brillant d'avidité.
 
-« La raison pour laquelle ce vieux s'est caché si longtemps en refusant l'appel de l'Alliance était d'éviter les ennuis. En présence de Qing Shu, je ne me serais montré sous aucun prétexte et j'aurais cherché une chance de m'enfuir. Mais avec le Maître Empty Fantasy qui combat Xu Mu, cela donne au Maître Dieu Démon une chance de récolter du mérite! »
+« La raison pour laquelle ce vieux s'est caché si longtemps en refusant l'appel de l'Alliance était d'éviter les ennuis. En présence de Qing Shui, je ne me serais montré sous aucun prétexte et j'aurais cherché une chance de m'enfuir. Mais avec le Maître Fantôme Vide qui combat Xu Mu, cela donne au Maître Dieu Démon une chance de récolter du mérite! »
 
 La silhouette du vieil homme était d'une rapidité extrême alors qu'il fonçait sur Wang Lin. Tandis que Wang Lin reculait, ses yeux brillèrent d'une lueur malveillante et ses mains formèrent un sceau. Deux flammes vertes se condensèrent dans ses paumes.
 

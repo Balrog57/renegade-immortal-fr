@@ -17,9 +17,9 @@ Il tendit sa main droite et saisit l'enfant. Sa paume frappa ensuite le garçon,
 
 Le membre du Clan des Démons Géants à ses côtés afficha une expression respectueuse et répondit: « À vos ordres! »
 
-Tout en parlant, il se retourna brusquement et fixa Wang Lin avec une intention meurtrière. Il fit un pas en avant, ferma le poing et s'approcha avec un sourire narquois. Alors qu'il chargeait, la main droite de ce colosse nommé Sun Gouzi forma un sceau et un vaste océan apparut sous ses pieds. Une vague immense s'éleva de l'océan, et le géant sembla arriver en chevauchant cette lame d'eau.
+Tout en parlant, il se retourna brusquement et fixa Wang Lin avec une intention meurtrière. Il fit un pas en avant, ferma le poing et s'approcha avec un sourire narquois. Alors qu'il chargeait, la main droite de ce colosse nommé Sun Gouzi forma un sceau et un vaste océan apparut sous ses pieds. Une vague immense s'éleva de l'océan sur 330 mètres à la ronde, et le géant sembla arriver en chevauchant cette lame d'eau.
 
-« Junior, accepte la mort! » Alors qu'il projetait sa main droite, l'océan parut bouillir pour se concentrer sur son geste. Il se transforma en un dragon de mer qui chargea Wang Lin dans un rugissement.
+« Petit, accepte la mort! » Alors qu'il projetait sa main droite, l'océan parut bouillir pour se concentrer sur son geste. Il se transforma en un dragon de mer qui chargea Wang Lin dans un rugissement.
 
 Au moment où le dragon de mer s'élança, l'odeur saline de l'océan imprégna l'air. Wang Lin garda sa main droite sur le dos du garçon et ne daigna même pas regarder le dragon ou le colosse qui le suivait. Ce dernier n'était qu'au stade initial du Scruteur du Nirvana. Si l'on faisait abstraction du corps de Dieu Ancien Royal à 5 étoiles de Wang Lin, il lui serait facile de terrasser ce géant avec sa seule culture d'énergie originelle!
 
@@ -43,9 +43,9 @@ Dès que l'âme originelle vola hors du corps, Wang Lin la saisit. Sa main telle
 
 Une explosion assourdissante retentit et le corps du géant vola en éclats. Pourtant, sous l'effet de l'étrange attraction des crânes verts, les morceaux ne furent pas dispersés mais totalement absorbés par eux.
 
-Tout cela semblait lent, mais se produisit en un éclair. Du début à la fin, Wang Lin n'avait jamais retiré sa main du dos du garçon. Une épaisse brume noire s'échappa de la tête de l'enfant. L'aura de mort qui le parasitait disparut progressivement, remplacée par une vitalité retrouvée.
+Tout cela semblait lent, mais se produisit en un éclair. Du début à la fin, Wang Lin n'avait jamais retiré sa main du dos du garçon. Une épaisse brume noire s'échappa du dos de l'enfant. L'aura de mort qui le parasitait disparut progressivement, remplacée par une vitalité retrouvée.
 
-« Qui êtes-vous, Seigneur? » Le jeune homme en bleu fut profondément ébranlé par ce spectacle. Il savait qu'aucun cultivateur ordinaire ne pouvait terrasser si facilement un expert au stade initial du Scruteur du Nirvana, d'autant plus que celui-ci possédait le corps d'un membre du Clan des Démons Géants! Pourtant, aux yeux de tous, l'homme devant lui n'était qu'un simple cultivateur au stade initial du Scruteur du Nirvana.
+« Qui êtes-vous, Seigneur? » Le jeune homme en bleu fut profondément ébranlé par ce spectacle. Il savait qu'aucun cultivateur ordinaire ne pouvait terrasser si facilement un expert au stade initial du Scruteur du Nirvana, d'autant plus que celui-ci possédait le corps d'un membre du Clan des Démons Géants! Seul un Purificateur du Nirvana pouvait y parvenir. Pourtant, aux yeux de tous, l'homme devant lui n'était qu'un simple cultivateur au stade initial du Scruteur du Nirvana.
 
 Wang Lin ne répondit pas. Il leva sa main droite et pressa une nouvelle fois le dos du garçon. Cette fois, des traces de brume distordue apparurent! Une fois sa main posée, l'empreinte noire bougea de manière inattendue. Cinq fragments d'âme noirs formèrent alors une paume et tentèrent de dévorer la main de Wang Lin.
 
@@ -57,7 +57,7 @@ Tout cela ne prit que quelques respirations. Wang Lin retira sa main droite, fix
 
 Alors qu'il battait en retraite, le jeune homme en bleu, l'air sombre, cria: « Je suis un disciple interne de la Secte des Cadavres! Tout ceci est un malentendu, j'espère que vous ne poursuivrez pas cette affaire! » En parlant, il forma un sceau de la main droite et un gaz vert jaillit de son corps. Ce dernier s'engouffra dans sa main, qui fut instantanément enveloppée d'une lueur verdâtre.
 
-« Le Secte des Cadavres! » L'expression de Wang Lin changea.
+« La Secte des Cadavres! » L'expression de Wang Lin changea.
 
 Le jeune homme afficha un regard venimeux. Profitant de l'instant d'hésitation de Wang Lin, il agita la main sans vaciller et hurla: « Roue du Dieu Yin des Cinq Fantômes! »
 
@@ -77,6 +77,6 @@ Le corps du géant trembla et une expression amère marqua son visage. Ses mains
 
 L'explosion de l'âme créa une force destructrice qui affecta instantanément tout son être, provoquant l'éclatement de son corps physique. Cette onde de choc ne se dispersa pas; elle se dirigea droit sur Wang Lin. La force destructrice balaya le terrain telle une tempête déchaînée pour tenter de l'arrêter. Derrière ce chaos, on percevait le vortex qui s'estompait et le ricanement du jeune homme en bleu:
 
-« Je me fiche de savoir qui vous êtes, je trouverai votre nom! Vous périrez pour avoir provoqué la Secte des Cadavres! » Sa silhouette disparut progressivement dans l'obscurité.
+« Peu importe qui vous êtes, je trouverai votre nom! Vous périrez pour avoir provoqué la Secte des Cadavres! » Sa silhouette disparut progressivement dans l'obscurité.
 
 Wang Lin resta calme. Au moment où la force de l'explosion déferla sur lui, il frappa son sac de rangement et la troisième Charrette de Guerre Divine, qu'il n'avait pas utilisée depuis longtemps, s'en échappa! Dans un fracas retentissant, elle se métamorphosa en un magnifique papillon.

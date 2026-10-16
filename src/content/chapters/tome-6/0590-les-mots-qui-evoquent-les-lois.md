@@ -28,7 +28,7 @@ Cependant, cet homme n'avait même pas bougé. Il flottait aux côtés du tambou
 
 Ils n'ignoraient pas la silhouette de Wang Lin. Il y a quelques jours, il avait été le premier à blesser gravement un général démon, gravant ainsi son image dans l'esprit de tous.
 
-Cependant, ces ministres, ces dames et divers fonctionnaires de la Cité Démon du Ciel ne pensaient pas que Wang Lin était aussi puissant. À leurs yeux, la raison principale pour laquelle Ao Di avait perdu et avait été gravement blessé était qu'Ao Di était trop faible!
+Cependant, ces ministres, ces dames et divers fonctionnaires de la Cité du Démon Céleste ne pensaient pas que Wang Lin était aussi puissant. À leurs yeux, la raison principale pour laquelle Ao Di avait perdu et avait été gravement blessé était qu'Ao Di était trop faible!
 
 Si ce Wang Lin avait rencontré des gens comme Mo Fei ou Shi Xiao, il aurait sans aucun doute perdu! C'était une certitude partagée par tous.
 
@@ -38,7 +38,7 @@ Cette scène choqua tout le monde!
 
 Certains soupçonnèrent même que le tambour démoniaque soit brisé. Cependant, ils réalisèrent leur erreur en voyant que certains de leurs voisins étaient gravement blessés ou inconscients, et que l'énergie spirituelle démoniaque dans leurs propres corps devenait incontrôlable. La sensation que leur énergie spirituelle démoniaque allait être expulsée de leur corps balaya immédiatement l'idée d'un tambour défectueux.
 
-De plus, la place fissurée au centre du tambour démontrait l'ampleur de l'impact précédent!
+De plus, la place, fissurée en un large cercle de plus d'un kilomètre autour du tambour, démontrait l'ampleur de l'impact précédent!
 
 Être capable de provoquer une telle destruction sur une place renforcée par d'innombrables restrictions ne pouvait être décrit que comme incroyable.
 
@@ -46,7 +46,7 @@ Presque tous les commandants en chef aspirèrent une bouffée d'air froid. Yu Se
 
 La seule générale démon, Xie Lian, portait une armure intégrale. Bien qu'il s'agisse d'une armure complète, elle restait extrêmement révélatrice, mettant en valeur ses courbes magnifiques.
 
-Son gant violet dévoilait ses bras nacrés. Son haut couvrait ses deux pics et laissait apparaître sa taille fine. Un tatouage noir partait de son cou blanc comme neige, descendait le long de sa poitrine et s'étendait jusqu'à sa taille.
+Ses brassards violets dévoilaient ses bras nacrés. Son haut couvrait ses deux pics et laissait apparaître sa taille fine. Un tatouage noir partait de son cou blanc comme neige, descendait le long de sa poitrine et s'étendait jusqu'à sa taille.
 
 Sa protection inférieure était constituée de lames en forme de feuilles qui l'entouraient, couvrant ses fesses rebondies, tandis que ses jambes de jade étaient protégées par des jambières. Elle dégageait une aura de beauté héroïque.
 
@@ -64,7 +64,7 @@ Wang Lin retira sa main droite du tambour avant de se retourner pour faire face 
 
 Wang Lin pointa l'homme en armure dorée du doigt et dit calmement: « Tu as perdu! »
 
-La force de rebond provoquée par la frappe du tambour avait été bloquée par les sceaux de vie entourant le corps de Wang Lin. Cependant, le choc était si puissant qu'il fallut plus de 2 000 couches de sceaux pour neutraliser complètement cette puissance.
+La force de rebond provoquée par la frappe du tambour avait été bloquée par les sceaux de vie entourant le corps de Wang Lin. Cependant, le choc était si puissant qu'il fallut près de 2 000 couches de sceaux pour neutraliser complètement cette puissance.
 
 Les sceaux de vie ne pouvaient être détruits que si l'intégralité des quelque 3 000 sceaux était brisée en un instant! Autrement, ils se régénéraient. C'était là la véritable force des sceaux de vie.
 
@@ -72,7 +72,7 @@ Les sceaux de vie ne pouvaient être détruits que si l'intégralité des quelqu
 
 En entendant les paroles de Wang Lin, le visage de l'homme en armure dorée devint encore plus livide. Il renifla froidement et rétorqua: « J'ai dit que tu ne pouvais pas dépasser cinq coups. Es-tu un imbécile incapable de comprendre le sens de mes paroles?! Tu as frappé cinq fois, cela n'a pas dépassé cinq, donc ce n'est pas ta victoire! »
 
-Après une telle déclaration, certains spectateurs dans les gradins estimèrent que la moralité de ce intendant à l'armure dorée était bien trop basse!
+Après une telle déclaration, certains spectateurs dans les gradins estimèrent que la moralité de cet intendant à l'armure dorée était bien trop basse!
 
 Wang Lin lança un regard glacial à l'homme en armure dorée, puis sa main droite se referma en un poing et frappa le tambour démoniaque derrière lui.
 
@@ -94,7 +94,7 @@ Ce septième coup provoqua des grondements tonitruants dans le ciel, et la voix 
 
 « Sept fois, maintenant! »
 
-Le visage de l'homme en armure dorée se crispa alors qu'il fixait Wang Lin: « Je vais te dénoncer à l'Empereur Démon! »
+Le visage de l'homme en armure dorée se crispa alors qu'il fixait Wang Lin: « Je vais te recommander à l'Empereur Démon! »
 
 Wang Lin secoua la tête et répondit calmement: « Je veux une de tes mains! »
 
@@ -118,7 +118,7 @@ Cette force inimaginable fit soudainement pâlir l'homme en armure dorée. Il re
 
 Les personnes aux alentours étaient toutes sous le choc. Ils n'avaient plus le courage de parler comme auparavant; la place entière était plongée dans un silence anormal!
 
-Hormis quelques individus privilégiés parmi les spectateurs, tous savaient sans aucun doute que si Wang Lin leur avait adressé ces mots à l'instant, ils s'auraient tranché leurs propres bras.
+Hormis quelques individus privilégiés parmi les spectateurs, tous savaient sans aucun doute que si Wang Lin leur avait adressé ces mots à l'instant, ils se seraient tranché leurs propres bras.
 
 Ce son était la puissance des cieux! Ce son était la Loi, les paroles majestueuses et dominantes émanant du firmament!
 

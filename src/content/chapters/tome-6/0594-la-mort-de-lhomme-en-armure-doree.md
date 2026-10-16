@@ -34,7 +34,7 @@ Au moment où l'homme en armure dorée heurta le tambour démoniaque, toute la t
 
 *Dong!* Le tambour résonna!
 
-Le violent rebond s'engouffra sans ménagement dans le corps de l'homme en armure dorée. À l'instant où le tambour sonna, l'homme en armure dorée — le chef intendant doré, Ji Wuxu — explosa en une brume sanglante, dispersée par les ondes sonores.
+Le violent rebond s'engouffra sans ménagement dans le corps de l'homme en armure dorée. À l'instant où le tambour sonna, l'homme en armure dorée — le chef intendant doré, Jin Wuxu — explosa en une brume sanglante, dispersée par les ondes sonores.
 
 Le corps de l'homme en armure dorée vola en éclats et il mourut d'une mort misérable! Même son âme fut brisée par le son du tambour, effaçant ainsi toute trace de son existence dans ce monde!
 
@@ -42,7 +42,7 @@ Cinq coups de tambour prennent un bras, dix coups prennent deux bras, quinze cou
 
 Celui qui l'avait tué n'était pas Wang Lin, mais celui qui l'avait gravement blessé! Si une seule des voix s'était manifestée, il n'aurait pas été si affaibli qu'il ne pouvait plus se défendre; il ne serait pas devenu un mortel.
 
-Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays Démon Céleste en un déchet! Et avec la nature imprévisible de Wang Lin, tout cela lui avait coûté la vie!
+Cependant, ces deux rugissements avaient transformé une puissance extrêmement célèbre du Pays Démon Céleste en un déchet! Et avec le caractère vindicatif de Wang Lin, qui rendait coup pour coup avec des méthodes impitoyables, tout cela lui avait coûté la vie!
 
 Le jeune homme sur le bateau, stupéfait, marmonna: « Mort... Comment cela a-t-il pu finir ainsi... » Puis il remarqua soudainement quelque chose et son regard se glaça. Une intention meurtrière envahit ses yeux alors qu'il scrutait l'horizon, comme si son regard pouvait traverser la Cité Démon Céleste et percer le vide.
 
@@ -60,7 +60,7 @@ Les spectateurs lucides ne regardaient plus Wang Lin avec choc, mais avec respec
 
 Le respect dû aux puissants de la Terre des Esprits Démoniaques!
 
-Parmi les généraux démons, le silence était total. Mo Lihai fixa la silhouette de Wang Lin; il savait désormais qu'il n'y avait plus aucun doute sur son accession au rang de vice-commandant!
+Parmi les généraux démons, le silence était total. Mo Lihai fixa la silhouette de Wang Lin; il savait désormais qu'il n'y avait plus aucun doute sur son accession au rang de commandant!
 
 Le quinzième coup de tambour résonna dans les cieux. Si ce son portait une odeur de sang, il exhalait aussi une tristesse inimaginable. Cette mélancolie se fusionna avec le rythme et fut propagée aux quatre vents par l'instrument.
 
@@ -68,9 +68,9 @@ Le quinzième coup de tambour résonna dans les cieux. Si ce son portait une ode
 
 Ce quinzième coup était plus puissant que les quatorze précédents réunis. Il représentait le Dao de Wang Lin, sa tristesse, l'intégralité de son cœur de Dao, et un véritable chemin de culture défiant les cieux!
 
-Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse des cieux elle-même! Tous les habitants de la Cité Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
+Grâce à l'accompagnement du tonnerre, cette tristesse n'était plus une émotion humaine, mais la tristesse du ciel et de la terre elle-même! Tous les habitants de la Cité Démon Céleste ressentirent ce chagrin et pleurèrent inconsciemment...
 
-Sur le bateau, la femme qui jouait de la cithère, touchée par cette mélancolie, commença à jouer une mélodie empreinte de douceur.
+Sur le bateau, la femme qui jouait de la cithare, touchée par cette mélancolie, commença à jouer une mélodie empreinte de douceur.
 
 Wang Lin leva la tête vers les cieux et murmura: « J'ai conservé mon attachement... »
 

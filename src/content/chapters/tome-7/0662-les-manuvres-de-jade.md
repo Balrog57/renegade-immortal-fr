@@ -12,7 +12,7 @@ Au moment où Wang Lin apparut, trois puissants sens divins se précipitèrent v
 
 Seul le dernier sens divin balaya avec acharnement toute la planète. N'ayant rien trouvé, il laissa échapper un reniflement froid avant de disparaître.
 
-Le renflement froid de cet individu se propagea sur toute la planète et atteignit les oreilles de Wang Lin.
+Le reniflement froid de cet individu se propagea sur toute la planète et atteignit les oreilles de Wang Lin.
 
 La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea: « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire d'Allheaven est intéressant. Une énergie spirituelle si riche, pourtant cette planète de culture n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
 
@@ -34,13 +34,13 @@ Au fil de son vol, son apparence changea lentement. Peu de temps après, ses tra
 
 Presque tous les cultivateurs de haut niveau maîtrisaient ce type de sort de changement d'apparence. Cependant, pour les experts, ce sort présentait trop de faiblesses: il suffisait à un cultivateur de haut niveau de se concentrer un instant pour déceler des indices, et face à des utilisateurs de sorts de vision, l'illusion serait perçue au premier coup d'œil.
 
-Pourtant, Wang Lin était différent. Il n'utilisait pas le sort lui-même; il était lancé par la garde céleste cachée dans son ombre. Peu de gens pourraient ainsi voir clair en lui.
+Pourtant, Wang Lin était différent. Il n'utilisait pas le sort lui-même; il était lancé par le gardien céleste caché dans son ombre. Peu de gens pourraient ainsi voir clair en lui.
 
 Après un court voyage, une ville apparut devant lui. Cette cité était entourée de remparts faits de grandes pierres bleues et dégageait une majesté imposante. Au-dessus de la porte, deux grands caractères étaient inscrits:
 
 « Famille Sun »
 
-Wang Lin rangea son épée volante à l'extérieur de la ville et atterrit. Il épousseta ses vêtements et marcha calmement vers les portes.
+Wang Lin rangea son épée volante à quelques kilomètres de la ville et atterrit. Il épousseta ses vêtements et marcha calmement vers les portes.
 
 Peut-être parce qu'ils avaient remarqué qu'il n'était qu'au stade avancé de la Formation du Noyau, les gardes de la ville ne furent pas trop stricts lors de l'inspection. Ils lui informèrent simplement que des grottes de culture étaient spécialement préparées pour les cultivateurs étrangers. Wang Lin paya les pierres spirituelles pour un séjour temporaire et reçut un jeton. Il pénétra ensuite dans la ville contrôlée par la famille Sun.
 
@@ -50,7 +50,7 @@ Wang Lin ne ressentit aucune gêne en déambulant dans la rue; c'était comme s'
 
 En pénétrant dans le quartier nord de la ville, Wang Lin sentit immédiatement le silence et l'énergie spirituelle dense qui imprégnaient la zone. De nombreuses demeures isolées y étaient protégées par des restrictions.
 
-Une restriction à l'entrée interdisait l'accès aux mortels. Un rocher de trois cents pieds de haut se dressait également, sur lequel pendaient sept ou huit jetons noirs.
+Une restriction à l'entrée interdisait l'accès aux mortels. Un rocher d'environ dix mètres de haut se dressait également, sur lequel pendaient sept ou huit jetons noirs.
 
 Un jeune homme au stade de l'Âme Naissante était assis sous le rocher. Il avait les yeux clos et un souffle chaud s'échappait de ses narines.
 
@@ -60,7 +60,7 @@ Alors qu'il observait la barrière, le jeune homme sous le rocher ouvrit les yeu
 
 L'expression de Wang Lin resta imperturbable tandis qu'il demandait calmement: « Y a-t-il des différences entre elles? »
 
-Le jeune homme afficha un air impatient: « Les chambres supérieures coûtent mille pierres spirituelles de haute qualité, et les inférieures en coûtent cent. »
+Le jeune homme afficha un air impatient: « Les chambres supérieures coûtent mille pierres spirituelles de qualité inférieure par an, et les inférieures en coûtent cent. »
 
 Wang Lin réfléchit un instant avant de sortir cent pierres spirituelles et de les poser. Le jeune homme eut un regard méprisant; d'un revers de manche, il ramassa les pierres, saisit un jeton sur le rocher, le lança vers Wang Lin et déclara: « La cinquième maison à partir de l'ouest, allez! » Sur ce, le jeune homme referma les yeux pour se concentrer sur sa culture.
 
@@ -74,7 +74,7 @@ La demeure semblait simple, mais elle était imprégnée d'énergie spirituelle.
 
 Il n'y avait qu'un lit et un tapis de méditation, ainsi qu'un four à pilules et une salle de culture semi-fermée. Bien que petite, l'endroit était très élégant.
 
-À l'extérieur de la pièce, Wang Lin agita négligemment la main pour parfaire les restrictions de la demeure. Cela les rendit dix fois plus puissantes qu'auparavant. Il s'assit en position du lotus et inspira la dense énergie spirituelle.
+À l'extérieur de la pièce, Wang Lin agita négligemment la main pour parfaire les restrictions de la demeure. Cela les rendit plus de dix fois plus puissantes qu'auparavant. Il s'assit en position du lotus et inspira la dense énergie spirituelle.
 
 Son visage se détendit à mesure que l'énergie emplissait son corps. Peu après, Wang Lin expulsa une bouffée d'air vicié avec un soupçon de regret.
 
@@ -84,13 +84,13 @@ Son visage se détendit à mesure que l'énergie emplissait son corps. Peu aprè
 
 « De plus, une seule goutte m'a permis d'atteindre le stade Ascendant, mais la quantité d'énergie spirituelle céleste requise par la suite est bien plus élevée. En consommer maintenant n'aurait pas le même effet qu'auparavant. Plutôt que de les gaspiller, mieux vaut les garder pour lorsque je serai blessé ou que j'aurai besoin d'une énergie infinie sur une courte période! Compte tenu de cela, ma priorité est d'obtenir suffisamment de jades célestes pour mes besoins quotidiens. »
 
-Le ciel s'obscurcitit à l'extérieur, plongeant la pièce dans la pénombre. Wang Lin agita la main et une bougie s'alluma instantanément dans un crépitement. La chambre fut immédiatement baignée de lumière.
+Le ciel s'obscurcit à l'extérieur, plongeant la pièce dans la pénombre. Wang Lin agita la main et une bougie s'alluma instantanément dans un crépitement. La chambre fut immédiatement baignée de lumière.
 
 Au plafond pendait une perle bleue de la taille d'un poing. La fumée de la bougie monta et fut absorbée par la perle. Rapidement, celle-ci se remplit de fumée et commença à luire.
 
 Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une conception aussi ingénieuse. Il observa la perle bleue qui brillait comme la lune.
 
-Une demi-heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
+Un quart d'heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
 
 « Il y a trois restrictions à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire d'Allheaven est bien supérieur. »
 

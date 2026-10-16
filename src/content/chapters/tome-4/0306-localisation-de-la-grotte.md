@@ -19,17 +19,17 @@ Wang Lin réceptionna le jade et remarqua qu'il était identique à celui de la 
 
 « Lorsque vous entrerez dans le vortex, activez ce jade et il vous mènera au bon fragment. Frère Ceng, je vous attendrai là-bas. » Sur quoi, Chi Hu joignit les mains et s'enfonça dans le vortex.
 
-Wang Lin rangea le jade puis s'assit en tailleur. Il sortit le drapeau de restriction pour s'en entourer. Son âme originelle s'échappa, affichant une expression de douleur, tandis qu'un morceau de jade céleste, de la taille d'un grain de riz, était extorqué de son essence même.
+Wang Lin rangea le jade puis s'assit en tailleur. Il sortit le drapeau de restriction pour s'en entourer. Son âme originelle s'échappa, affichant une expression de douleur, tandis qu'un cristal d'énergie céleste, de la taille d'un grain de riz, était extorqué de son essence même.
 
-Une fois ce jade extrait, son âme originelle s'affaiblit, semblant prête à s'effondrer à tout moment alors qu'elle retournait lentement dans son corps.
+Une fois ce cristal extrait, son âme originelle s'affaiblit, semblant prête à s'effondrer à tout moment alors qu'elle retournait lentement dans son corps.
 
-Après un long moment, Wang Lin ouvrit les yeux, le visage marqué par la fatigue. Il observa le jade céleste avant de le ranger dans sa sacoche de rangement.
+Après un long moment, Wang Lin ouvrit les yeux, le visage marqué par la fatigue. Il observa le cristal d'énergie céleste avant de le ranger dans sa sacoche de rangement.
 
-Avec son niveau de culture actuel, Wang Lin ne pouvait même pas absorber l'énergie spirituelle céleste, et encore moins le jade céleste. Seuls les cultivateurs au stade avancé de la Formation de l'Âme pouvaient tenter d'en absorber pour essayer de percer vers le stade de la Transformation de l'Âme.
+Avec son niveau de culture actuel, Wang Lin ne pouvait même pas absorber l'énergie spirituelle céleste, et encore moins le cristal d'énergie céleste. Seuls les cultivateurs au stade avancé de la Formation de l'Âme pouvaient tenter d'en absorber pour essayer de percer vers le stade de la Transformation de l'Âme.
 
 On pouvait dire que les cultivateurs de la Transformation de l'Âme étaient si rares car peu de gens parvenaient à pénétrer dans le Royaume Céleste pour obtenir suffisamment d'énergie spirituelle céleste.
 
-Certaines sectes, fortes de dizaines de milliers d'années d'histoire, possédaient des réserves de jades célestes, mais seuls leurs élites et leurs Anciens pouvaient les utiliser. La rareté des cultivateurs de la Transformation de l'Âme expliquait pourquoi il y avait encore moins de cultivateurs Ascendants.
+Certaines sectes, fortes de dix mille ans d'histoire, possédaient des réserves de jades célestes, mais seuls leurs élites et leurs Anciens pouvaient les utiliser. La rareté des cultivateurs de la Transformation de l'Âme expliquait pourquoi il y avait encore moins de cultivateurs Ascendants.
 
 Si quelqu'un tentait d'absorber l'énergie spirituelle céleste avant d'atteindre le stade avancé de la Formation de l'Âme, cet objet ne serait plus un trésor, mais un poison.
 
@@ -81,7 +81,7 @@ L'homme réapparut à 330 mètres de Wang Lin. En y regardant de plus près, Wan
 
 Le cultivateur en robe blanche regarda Wang Lin et joignit les mains: « Camarade cultivateur, cela ne vous concerne pas. Veuillez partir », dit-il.
 
-Le jeune homme répliqua promptement: « Camarade cultivateur, cet individu a tenté de me voler mon jade céleste! Si vous m'aidez, nous pourrons nous partager le butin! »
+Le jeune homme répliqua promptement: « Camarade cultivateur, cet individu a tenté de me voler mon cristal d'énergie céleste! Si vous m'aidez, nous pourrons nous partager le butin! »
 
 Les yeux du jeune homme en robe blanche se plissèrent: « Quelles absurdités. C'est toi qui m'as volé! »
 
@@ -89,9 +89,9 @@ Wang Lin fronça les sourcils. Il n'avait aucune intention de s'impliquer dans c
 
 Le visage de Wang Lin s'assombrit. Il se retourna et tonna: « Dégage! N'essaie pas de m'entraîner dans votre querelle. Si tu continues à me suivre, ne me reproche pas d'être impitoyable! »
 
-Le jeune homme afficha un regard malveillant; il sortit un jade céleste et le lança vers Wang Lin avant de s'enfuir: « Puisque tu refuses d'aider, autant t'apporter les ennuis. Je ne veux plus de ce jade! »
+Le jeune homme afficha un regard malveillant; il sortit un cristal d'énergie céleste et le lança vers Wang Lin avant de s'enfuir: « Puisque tu refuses d'aider, autant t'apporter les ennuis. Je ne veux plus de ce cristal! »
 
-Les yeux du cultivateur en robe blanche brillèrent. Son regard passa de l'homme qui s'échappait à Wang Lin, et il vola rapidement vers lui. Wang Lin ne daigna même pas regarder le jade céleste. D'un revers de la main droite, il l'envoya au jeune homme en blanc. Ce dernier fut surpris, puis joignit les mains: « Merci infiniment! Je suis Sima Yun de la Secte Kui Shui. Et vous? »
+Les yeux du cultivateur en robe blanche brillèrent. Son regard passa de l'homme qui s'échappait à Wang Lin, et il vola rapidement vers lui. Wang Lin ne daigna même pas regarder le cristal d'énergie céleste. D'un revers de la main droite, il l'envoya au jeune homme en blanc. Ce dernier fut surpris, puis joignit les mains: « Merci infiniment! Je suis Sima Yun de la Secte Kui Shui. Et vous? »
 
 « Ceng Niu! » lança Wang Lin avant de s'envoler. Il décida de fouiller la zone et de tenter le vortex encore quelques fois. S'il ne trouvait toujours rien, il n'aurait d'autre choix que d'abandonner.
 

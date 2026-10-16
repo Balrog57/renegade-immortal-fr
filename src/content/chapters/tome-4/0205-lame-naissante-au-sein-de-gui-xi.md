@@ -8,7 +8,7 @@ slug: lame-naissante-au-sein-de-gui-xi
 ---
 Dans la Mer des Démons, on ne pouvait apercevoir la lune; seules quelques éclats de lumière lunaire perçaient à travers l'épais brouillard. Mais pour les cultivateurs, ces faibles lueurs suffisaient à leur servir de guide.
 
-Après avoir quitté la grotte, Yun Fei se dirigea rapidement vers une porte gravée dans la montagne qui entourait la ville. En franchissant le passage, elle s'arrêta et vit quelqu'un en sortir. Cette personne portait des vêtements noirs et une cape dorée; son corps semblait entièrement enveloppé de tissu.
+Après avoir quitté la grotte, Yun Fei se dirigea rapidement vers une porte gravée dans la montagne qui entourait la ville. En franchissant le passage, elle s'arrêta et vit quelqu'un en sortir. Cette personne portait des vêtements noirs et une cape; son corps semblait entièrement enveloppé de tissu.
 
 L'individu vêtu de noir jeta un regard vers Yun Fei et, sans dire un mot, fit demi-tour pour quitter la ville. Yun Fei hésita, puis, serrant les dents, elle le suivit promptement.
 
@@ -20,7 +20,7 @@ Wang Lin observait la scène de loin, grâce au second démon. Il ricana de nouv
 
 Cependant, les agissements de Yun Fei étaient si mystérieux ce soir-là que Wang Lin souhaitait découvrir qui elle avait trouvé pour briser la restriction qu'il lui avait imposée.
 
-Une fois l'homme en noir et Yun Fei sortis de la ville, ils se dirigèrent droit vers l'est et s'arrêtèrent devant une montagne enveloppée d'une brume noire. Ils se trouvaient alors à 3 000 miles de la ville de Qi Lin.
+Une fois l'homme en noir et Yun Fei sortis de la ville, ils se dirigèrent droit vers l'est et s'arrêtèrent devant une montagne enveloppée d'une brume noire. Ils se trouvaient alors à 1 500 kilomètres de la ville de Qi Lin.
 
 « Ancêtre, le disciple a amené la personne », déclara l'homme en noir en s'agenouillant sur un genou. Il plaça sa main sur sa poitrine, formant un lotus avec ses doigts, et afficha une expression empreinte d'un profond respect.
 
@@ -28,13 +28,13 @@ Une voix tonnante résonna depuis la montagne: « Tu peux partir. » La brume no
 
 L'homme en noir se redressa et partit sans même se retourner.
 
-Wang Lin se tenait actuellement sur une falaise à 1 000 miles de là. Après avoir vu l'homme partir, il pointa son doigt vers son front et le démon Xu Liguo apparut.
+Wang Lin se tenait actuellement sur une falaise à 500 kilomètres de là. Après avoir vu l'homme partir, il pointa son doigt vers son front et le démon Xu Liguo apparut.
 
 Une fois présent, Xu Liguo reçut les ordres de Wang Lin. Il eut un petit rire et se dirigea vers l'homme en noir.
 
 Yun Fei restait debout devant la brume noire, nerveuse et hésitante. Tout ce qui s'était produit cette nuit n'était pas de son fait.
 
-Durant les jours où Wang Lin était resté enfermé dans sa chambre, Yun Fei avait sollicité de nombreux cultivateurs pour l'aider à lever la restriction, mais tous avaient échoué. Elle avait fini par perdre espoir, quand soudain, l'un des gardes de la ville intermédiaire l'avait abordée pour lui dire qu'une personne pouvait briser cette entrave, moyennant un prix.
+Durant les jours où Wang Lin était resté enfermé dans sa chambre, Yun Fei avait sollicité de nombreux cultivateurs pour l'aider à lever la restriction, mais tous avaient échoué. Elle avait fini par perdre espoir, quand soudain, l'un des gardes de la cité, cultivateur au stade intermédiaire de la Formation du Noyau, l'avait abordée pour lui dire qu'une personne pouvait briser cette entrave, moyennant un prix.
 
 Yun Fei avait alors pesé le pour et le contre. Si cet homme avait un cultivateur au stade intermédiaire de la Formation du Noyau à ses ordres, il ne pouvait être faible. Cependant, cela ne garantissait pas sa capacité à lever la restriction, car dans son esprit, le niveau de culture de Wang Lin avait déjà atteint des sommets inimaginables.
 

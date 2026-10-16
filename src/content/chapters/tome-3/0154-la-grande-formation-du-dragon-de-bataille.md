@@ -18,11 +18,11 @@ L'homme au sommet du dragon fit un geste de la main. Les yeux du dragon s'illumi
 
 Shang Guanmo observa attentivement avant de s'exclamer: « La Grande Formation du Dragon de Bataille! »
 
-Mu Bei expliqua rapidement: « Cette Grande Formation du Dragon de Bataille est la formation de protection de la Secte du Combat contre le Mal. La rumeur prétend que seuls des cultivateurs au niveau de l'Âme Naissante peuvent la briser, mais peu de membres du secte y croient. Après tout, personne dans cette région ne possède une formation aussi puissante. »
+Mu Bei expliqua rapidement: « Cette Grande Formation du Dragon de Bataille est la formation de protection de la Secte du Combat contre le Mal. La rumeur prétend que seuls des cultivateurs au niveau de l'Âme Naissante peuvent la briser, mais peu de membres de la secte y croient. Après tout, personne dans cette région ne possède une formation aussi puissante. »
 
 Wang Lin possédait une certaine expertise en matière de formations et, après l'avoir examinée un instant, Li Muwan déclara soudain: « Ce n'est pas une formation, mais un sortilège incroyable qui canalise les âmes de tous ceux présents sur le dragon vers la personne située au sommet de sa tête, lui conférant ainsi un certain niveau de culture. »
 
-À cet instant, les yeux de l'homme debout sur la tête du dragon s'illuminèrent et il rugit: « Cultivateur portant la marque de punition, je suis Jie Donglei, chef de la Secte du Combat contre le Mal, entouré de mes 13 562 disciples. Puisque le Grand Ancien Qian Kun t'a provoqué, sa mort n'est pas un problème majeur, mais tu as eu l'audace de venir jusqu'ici. Si tu gagnes cette bataille, tout la Secte du Combat contre le Mal se soumettra à toi; mais si tu perds, ne blâme pas ce vieil homme d'avoir pris la pilule de culture. Oses-tu relever le défi? »
+À cet instant, les yeux de l'homme debout sur la tête du dragon s'illuminèrent et il rugit: « Cultivateur portant la marque de punition, je suis Jie Donglei, chef de la Secte du Combat contre le Mal, entouré de mes 13 562 disciples. Puisque le Grand Ancien Qian Kun t'a provoqué, sa mort n'est pas un problème majeur, mais tu as eu l'audace de venir jusqu'ici. Si tu gagnes cette bataille, toute la Secte du Combat contre le Mal se soumettra à toi; mais si tu perds, ne blâme pas ce vieil homme de t'arracher ta pilule de culture. Oses-tu relever le défi? »
 
 Sa voix tonna comme le tonnerre et se propagea dans toute la zone. Les 13 562 disciples hurlèrent à l'unisson, créant une onde sonore qui fendit les nuages du ciel. Partant de la base du dragon pour remonter rapidement vers le sommet, plus de dix mille épées volantes brillèrent, formant des anneaux d'énergie spirituelle. Plus on s'élevait, plus ces anneaux étaient denses, et ceux du sommet dégageaient une pression écrasante.
 
@@ -48,15 +48,15 @@ Le regard de Jie Donglei se posa sur Wang Lin, puis il eut un sourire sardonique
 
 Le visage de Li Muwan pâlit. Elle regarda Wang Lin avec inquiétude. Cependant, en apercevant une pointe de dédain dans les yeux de celui-ci, elle se détendit pour une raison inconnue.
 
-Nan Mu et Nan Bei gémirent intérieurement. Ils pensaient initialement que la victoire de Wang Lin était certaine, mais la situation venait de basculer. Ce qui les attendait désormais, c'était la fureur du chef de secte Jie Donglei; il faut dire que la Secte du Combat contre le Mal employait des méthodes très machiavéliques pour traiter les traîtres.
+Mu Nan et Mu Bei gémirent intérieurement. Ils pensaient initialement que la victoire de Wang Lin était certaine, mais la situation venait de basculer. Ce qui les attendait désormais, c'était la fureur du chef de secte Jie Donglei; il faut dire que la Secte du Combat contre le Mal employait des méthodes très machiavéliques pour traiter les traîtres.
 
 L'essence sanguine de l'âme de Shang Guanmo était entre les mains de Wang Lin; si ce dernier mourait, il mourrait également. Il maudissait secrètement la situation tout en cherchant un moyen de s'en sortir.
 
-Wang Lin ricana intérieurement, bondit en avant et atterrit à 99 mètres devant Jie Donglei, le fixant froidement.
+Wang Lin ricana intérieurement, bondit en avant et atterrit à trois cents pieds devant Jie Donglei, le fixant froidement.
 
-« Tu ne connais donc pas le sort de la mort? Laisse ce vieil homme voir quelle est la puissance de ton sortilège! » Le corps de Jie Donglei disparut pour réapparaître à plus de trois 330 mètres de Wang Lin.
+« Tu ne connais donc pas le sort de la mort? Laisse ce vieil homme voir quelle est la puissance de ton sortilège! » Le corps de Jie Donglei disparut pour réapparaître à plus de trois cents pieds de Wang Lin.
 
-Dès que Jie Donglei disparut, Wang Lin recula jusqu'à être à cinq 330 mètres de lui. Jie Donglei disparut à nouveau et Wang Lin recula encore une fois, atteignant sept cents pieds. À cette distance, il commença à réfléchir.
+Dès que Jie Donglei disparut, Wang Lin recula jusqu'à être à cinq cents pieds de lui. Jie Donglei disparut à nouveau et Wang Lin recula encore une fois, atteignant sept cents pieds. À cette distance, il commença à réfléchir.
 
 Jie Donglei fronça les sourcils en fixant Wang Lin et ricana: « Quel est le sens de tout cela? »
 

@@ -8,7 +8,7 @@ slug: une-paume
 ---
 Wang Lin sentit immédiatement une force inimaginable s'abattre sur lui. Une série de craquements retentit depuis son petit doigt, celui qui portait le « Doigt de l'Inframonde », et la puissance se propagea à travers tout son corps.
 
-Le corps de Wang Lin fut repoussé par cette force, laissant derrière lui deux sillons dans le sol. Il fut projeté en arrière sur trente pieds avant de réussir à se stabiliser d'un pas ferme.
+Le corps de Wang Lin fut repoussé par cette force, laissant derrière lui deux sillons dans le sol. Il fut projeté en arrière sur 9,9 mètres avant de réussir à se stabiliser d'un pas ferme.
 
 Alors que l'onde de choc se propageait, les soldats démoniaques dont la vie avait été fauchée par le Doigt de l'Inframonde furent réduits en poussière.
 
@@ -16,11 +16,11 @@ En plus de cela, tous les bâtiments situés dans un rayon de cinq kilomètres s
 
 Seules les quelques personnes dont la culture était équivalente ou supérieure à celle des cultivateurs de la Transformation de l'Âme purent survivre à cette tempête.
 
-Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éleva des fragments de chair éparpillés pour foncer vers Wang Lin.
+Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éleva des fragments de chair éparpillés pour foncer vers Wang Lin. Quatre nouveaux filaments s'ajoutèrent à celui de Sima Yan : ces cinq gaz, pareils à autant de dragons azurés, tournoyèrent entre les doigts de sa main gauche.
 
 « Quel sort puissant! » Une voix grave résonna devant lui. Une fois la poussière retombée, la silhouette massive du général démoniaque apparut.
 
-Après avoir parlé, son corps vacilla alors qu'il luttait contre sa propre reculée. L'énergie spirituelle démoniaque en lui s'agita frénétiquement pour l'empêcher d'être projeté plus loin. Ses yeux brillaient comme des éclairs lorsqu'il fit un pas en avant, parcourant trente pieds en un instant. Puis, sa paume s'abattit sur le sol. Ce geste créa une rafale de vent telle que la zone de cinq kilomètres environ sembla se transformer en océan.
+Après avoir parlé, son corps vacilla alors qu'il luttait contre sa propre reculée. L'énergie spirituelle démoniaque en lui s'agita frénétiquement pour l'empêcher d'être projeté plus loin. Ses yeux brillaient comme des éclairs lorsqu'il fit un pas en avant, parcourant 9,9 mètres en un instant. Puis, sa paume s'abattit sur le sol. Ce geste créa une rafale de vent telle que la zone de cinq kilomètres environ sembla se transformer en océan.
 
 La mer entière poussa un rugissement sous l'impact de la paume du général démoniaque et chargea vers Wang Lin avec une fureur folle.
 
@@ -80,7 +80,7 @@ Mais à cet instant précis, trois filaments de gaz gris apparurent là où le s
 
 Le général démoniaque écarquilla les yeux et hurla: « Armure, active! »
 
-D'un mot, un rideau d'énergie spirituelle démoniaque apparut à sept pieds devant lui. Les trois filaments de gaz gris percutèrent la barrière et tremblèrent violemment avant d'être repoussés, devenant légèrement plus ternes qu'auparavant.
+D'un mot, un rideau d'énergie spirituelle démoniaque apparut à 2,31 mètres devant lui. Les trois filaments de gaz gris percutèrent la barrière et tremblèrent violemment avant d'être repoussés, devenant légèrement plus ternes qu'auparavant.
 
 Le général démoniaque eut un éclair dans le regard, puis il rit en faisant un pas en avant: « Quel sortilège de symbole puissant! Wang Lin, je t'ai effectivement sous-estimé. Cependant, il semble que ce symbole cache encore bien des choses. Que dirais-tu de tout me montrer et d'engager un véritable combat contre moi? »
 
@@ -92,11 +92,11 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il reculait de plusieurs pas: « U
 
 « Oh? Alors montre-le-moi. Si cela peut réellement me tuer, je serais comblé! » Le général démoniaque créa alors quarante nouvelles vagues qui s'abattirent vers Wang Lin.
 
-« Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays Démon Céleste. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à des centaines de pieds dans les airs et regarda soudainement vers le bas.
+« Si je devais te tuer, je n'aurais plus aucun moyen de rester dans ce Pays Démon Céleste. Regarde attentivement, et tu sauras par toi-même si tu peux supporter ce coup! » Wang Lin ne chercha pas à contrer les quarante vagues. Au lieu de cela, il s'éleva à 330 mètres dans les airs et regarda soudainement vers le bas.
 
 Les yeux du général démoniaque révélèrent une lueur mystérieuse; d'une simple pensée, il fit revenir les quarante vagues vers lui. Elles tourbillonnaient désormais autour de lui comme quarante dragons, et il ressemblait à un Dieu de la Mer Démoniaque!
 
-Suspendu dans les airs, Wang Lin ferma les yeux. Le général démoniaque était bien plus fort qu'il ne l'avait pensé. Le coup de poing de la désintégration n'était qu'une de ses techniques; cette Mer Démoniaque aux Cent Vagues devait être son véritable coup fatal. Quant à savoir si le général possédait d'autres capacités cachées, bien que Wang Lin fût curieux, il ne voulait pas le découvrir!
+Suspendu dans les airs, Wang Lin ferma les yeux. Le général démoniaque était bien plus fort qu'il ne l'avait pensé. L'intention de poing des Dix Effondrements n'était qu'une de ses techniques; cette Mer Démoniaque aux Cent Vagues devait être son véritable coup fatal. Quant à savoir si le général possédait d'autres capacités cachées, bien que Wang Lin fût curieux, il ne voulait pas le découvrir!
 
 Bien que la culture de cet adversaire ne soit qu'au sommet du stade tardif de la Transformation de l'Âme, tout comme celle de Wang Lin, ses sorts étaient bien plus puissants.
 

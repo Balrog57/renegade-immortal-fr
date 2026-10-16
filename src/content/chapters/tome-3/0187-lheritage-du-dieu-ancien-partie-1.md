@@ -12,7 +12,7 @@ S'il parvenait à entrer dans l'espace de la perle défiant le ciel, ses chances
 
 Il n'y avait aucune restriction dans l'espace de la perle défiant le ciel; on pouvait y accéder à tout moment.
 
-Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sortit le sac de rangement de l'Empereur Antique. En y projetant son Sens Divin, il ressentit une force de résistance émaner du sac.
+Wang Lin poussa un soupir de soulagement. D'un geste de la main droite, il sortit le sac de rangement de l'Empereur Antique. En y projetant son Sens Divin, il ressentit une force de résistance émaner du sac. Wang Lin resta impassible : il était clair que la faille spatiale dans laquelle Bossu Meng avait jeté l'Empereur Antique et la gigantesque faille de la sortie du troisième royaume menaient au même endroit.
 
 Le Sens Divin du sac de rangement bloquait celui de Wang Lin. Cela signifiait que l'Empereur Antique était toujours en vie, bien que Wang Lin ne fût pas certain de la situation exacte. À l'époque, le sac de rangement de Bossu Meng avait perdu son Sens Divin, et pourtant, ce dernier semblait toujours vivant.
 
@@ -32,13 +32,13 @@ Bien que la zone fût immense, elle était dépourvue de vie ou de toute restric
 
 Dans le corps du Dieu Ancien, il n'y avait aucune restriction sur le Sens Divin, tout comme dans le monde extérieur. L'âme de Wang Lin s'était considérablement nourrie dans le troisième royaume, en particulier grâce à cette entité massive qui s'apparentait à un dévoreur d'âmes, permettant à son âme de croître par bonds prodigieux.
 
-Lorsqu'il déployait son Sens Divin, celui-ci pouvait s'étendre sur des milliers de milles. Ainsi, il surveillait constamment ses environs tout en volant vers l'avant. Après un long moment, Wang Lin s'arrêta brusquement, le regard figé par la stupeur. Le Qi Lin dans son corps devint violent, comme si une force mystérieuse le tirait, plongeant son énergie spirituelle dans un état d'excitation extrême.
+Lorsqu'il déployait son Sens Divin, celui-ci pouvait s'étendre sur des milliers de milles. Ainsi, il surveillait constamment ses environs tout en volant vers l'avant. Après un long moment, Wang Lin s'arrêta brusquement, le regard figé par la stupeur. Son énergie spirituelle s'agita violemment, comme si une force mystérieuse la tirait, prête à jaillir.
 
-Peu après, grâce à son Sens Divin, il détecta des ondes de Qi bleu foncé déferlant au loin. Ces vagues de Qi s'élevaient à des milliers de pieds et leur longueur était inestimable. Bien que le Qi fût encore très éloigné, le rugissement titanesque qu'il produisait était déjà audible.
+Peu après, grâce à son Sens Divin, il détecta des ondes de Qi bleu foncé déferlant au loin. Ces vagues de Qi s'élevaient à des dizaines de milliers de pieds et leur longueur était inestimable. Bien que le Qi fût encore très éloigné, le rugissement titanesque qu'il produisait était déjà audible.
 
 Quelques secondes plus tard, le Qi se rapprocha dangereusement, faisant fluctuer l'énergie spirituelle avec une violence accrue. Sans un mot, Wang Lin fit volte-face pour s'enfuir. Ces ondes de Qi étaient trop étranges, et leur apparition l'alarma profondément.
 
-Ce qui fit sombrer le cœur de Wang Lin, c'est qu'il perdait le contrôle de l'énergie spirituelle dans son corps. Sous les secousses violentes de cette énergie, sa vitesse diminua considérablement.
+Ce qui fit sombrer le cœur de Wang Lin, c'est qu'il perdait le contrôle de l'énergie spirituelle dans son corps. Sous les secousses violentes de cette énergie, son noyau doré se mit à trembler et sa vitesse diminua considérablement.
 
 La vague de Qi se rapprochait encore. Le rugissement donnait l'impression qu'elle se trouvait juste derrière lui. Malgré la surprise, le regard de Wang Lin resta calme. Sachant qu'il ne pourrait échapper à la vague de Qi à temps, il pointa sa main droite vers son front et fit apparaître la perle défiant le ciel. Le corps de Wang Lin commença rapidement à s'estomper avant de disparaître totalement.
 
@@ -46,11 +46,11 @@ Après environ dix respirations, la vague de Qi rugit en passant là où Wang Li
 
 Après un moment de réflexion, il reprit sa course vers l'avant.
 
-Le Seigneur Démon des Six Désirs apparut à moins de 3,3 kilomètres de la sortie du troisième royaume. La lumière rouge sang qui l'entourait s'estompa, révélant un visage émacié et amer. Dans sa main, il tenait un squelette auquel manquait un bras.
+Le Seigneur Démon des Six Désirs apparut à moins de 3,3 kilomètres de la sortie du troisième royaume. La lumière rouge sang qui l'entourait s'estompa, révélant un visage émacié et amer. Dans sa main, il tenait un squelette auquel manquait la moitié d'un bras.
 
 Des taches dorées parsemaient le squelette, libérant de ténus rayons de lumière d'or.
 
-La majeure partie de sa chair avait été perdue lors de la lutte contre les âmes errantes. Son Âme Naissante était au bord de l'effondrement. D'innombrables âmes errantes saturaient son corps; chaque attaque de ces dernières épuisait considérablement l'endurance du Seigneur Démon des Six Désirs.
+Toute sa chair avait été dévorée lors de la lutte contre les âmes errantes. Son Âme Naissante était au bord de l'effondrement. D'innombrables âmes errantes saturaient son corps; chaque attaque de ces dernières épuisait considérablement l'endurance du Seigneur Démon des Six Désirs.
 
 Désormais, il n'avait même plus la force d'activer la technique d'Évasion du Désir Sanguin. Il ne pouvait qu'attendre silencieusement que les âmes errantes le consument, ou que son maître le rattrape.
 
@@ -130,15 +130,15 @@ Progressivement, la quantité de Qi noir s'accumula jusqu'à couvrir une vaste z
 
 Sa confiance grandissait. Une pointe de surprise apparut sur son visage: il sentait clairement que le Désir de Peur dans le corps du Dieu Ancien était bien plus vaste qu'il ne l'avait imaginé, dépassant largement ses attentes.
 
-Le temps passa lentement. À 330 kilomètres de là, le Magicien Démon Céleste afficha une expression excitée en regardant vers le Seigneur Démon des Six Désirs. Il marmonna pour lui-même: « Absorbe, mon bon disciple, continue d'absorber. Pour le plan de ton maître, tu dois livrer une performance magistrale! »
+Le temps passa lentement. À cent mille milles de là, le Magicien Démon Céleste afficha une expression excitée en regardant vers le Seigneur Démon des Six Désirs. Il marmonna pour lui-même: « Absorbe, mon bon disciple, continue d'absorber. Pour le plan de ton maître, tu dois livrer une performance magistrale! »
 
-Il laissa échapper un sourire étrange. Ses mains se croisèrent, propageant une lumière bleue qui couvrit instantanément tout ce qui se trouvait dans un rayon d'un mille. Une pensée traversa son esprit et son sourire s'élargit: « Bon disciple. Autrefois, le calcul de ton maître était juste. Ta nature démente devait être un obstacle sur ton chemin de culture. Mais je vois maintenant que cette folie sera précisément ce qui permettra au plan de ce vieil homme d'aboutir. »
+Il laissa échapper un sourire étrange. Ses mains se croisèrent, propageant une lumière bleue qui couvrit instantanément tout ce qui se trouvait dans un rayon de dix mille milles. Une pensée traversa son esprit et son sourire s'élargit: « Bon disciple. Autrefois, le calcul de ton maître était juste. Ta nature démente devait être un obstacle sur ton chemin de culture. Mais je vois maintenant que cette folie sera précisément ce qui permettra au plan de ce vieil homme d'aboutir. »
 
-Le temps s'écoulait. La brume noire infinie couvrait désormais une zone d'un mille de rayon. Si le Magicien Démon Céleste ne l'en avait pas empêchée, elle aurait continué à se propager.
+Le temps s'écoulait. La brume noire infinie couvrait désormais une zone de dix mille milles de rayon. Si le Magicien Démon Céleste ne l'en avait pas empêchée, elle aurait continué à se propager.
 
 Après un laps de temps indéterminé, la brume noire se dissipa. Le Seigneur Démon des Six Désirs affichait une lueur de démence; sa culture avait atteint un niveau prodigieux.
 
-« Désir de Cupidité, viens! » hurla-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon d'un mille autour de lui.
+« Désir de Cupidité, viens! » hurla-t-il à nouveau. Peu après, une brume rouge apparut soudainement, couvrant elle aussi un rayon de dix mille milles autour de lui.
 
 Par la suite, le Désir de Rapacité, le Désir de Plaisir, le Désir de Jalousie et le Désir d'Obsession furent tous dévorés par le Seigneur Démon des Six Désirs. Ce que son maître, le Magicien Démon Céleste, avait prédit était vrai: sa plus grande faiblesse était son désir de croître en culture. S'il en avait l'opportunité, il ne la laisserait absolument pas passer.
 

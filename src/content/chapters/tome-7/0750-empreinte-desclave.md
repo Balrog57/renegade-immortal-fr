@@ -12,7 +12,7 @@ L'épée sembla pousser un cri de douleur en chutant du ciel et en se plantant a
 
 Une multitude de débris rocheux s'accumula autour de l'arme et, en un clin d'œil, l'épée se mua en une statue de pierre. À ses côtés, la statue de son propriétaire apparut également.
 
-La silhouette du serviteur se forma lentement au sommet de l'épée à mesure que les pierres brisées s'assemblaient. Bien que ces statues de pierre fussent d'aspect très brut, elles devinrent plus et plus distinctes avec le temps, comme si elles gagnaient en esprit.
+La silhouette du serviteur se forma lentement au sommet de l'épée à mesure que les pierres brisées s'assemblaient. Bien que ces statues de pierre fussent d'aspect très brut, elles devinrent de plus en plus distinctes avec le temps, comme si elles gagnaient en esprit.
 
 Le sceau émanant de la statue de pierre occupait l'esprit de Wang Lin. Une lumière puissante jaillit de ses yeux; c'était comme si la statue prenait vie et que ses yeux de pierre commençaient à manifester une forme d'intelligence.
 
@@ -66,7 +66,7 @@ Avant que sa vie ne s'éteigne, il retourna dans le système Allheaven auprès d
 
 Il utilisa cette épée pour rassembler les âmes, les condensa avec la boussole, puis les scella grâce au parchemin. Alors que la fin de la vie de cet ancêtre approchait, le Royaume Céleste du Tonnerre s'ouvrit. Il emporta ces trois trésors, ainsi que tous les espoirs de la famille Li, dans le Royaume Céleste du Tonnerre.
 
-Hélas, plus aucune nouvelle de l'ancêtre ne parvint. Dès lors, ma famille sombra dans le désespoir et déclinâ encore davantage. Les membres moururent les uns après les autres. L'empreinte d'esclave était comme une malédiction qui persistait cycle après cycle de réincarnation, et ma famille Li ne put jamais s'en libérer... À ce jour, en me comptant, il ne reste plus que trois membres dans la lignée Li... »
+Hélas, plus aucune nouvelle de l'ancêtre ne parvint. Dès lors, ma famille sombra dans le désespoir et déclina encore davantage. Les membres moururent les uns après les autres. L'empreinte d'esclave était comme une malédiction qui persistait cycle après cycle de réincarnation, et ma famille Li ne put jamais s'en libérer... À ce jour, en me comptant, il ne reste plus que trois membres dans la lignée Li... »
 
 La voix de Li Yuan était empreinte d'une immense tristesse. Il se retourna brusquement et ajouta d'un ton sombre: « Ce n'est qu'il y a mille ans que mon père découvrit par hasard l'épée de fer sur une planète de culture isolée! Si cela n'avait été que cela, ce ne serait pas grand-chose. Après tout, tant de temps s'était écoulé que nous ne pouvions affirmer qu'elle appartenait à notre ancêtre.
 
@@ -86,9 +86,9 @@ Sur ces mots, la main droite de Li Yuan s'élança et saisit immédiatement Ge H
 
 Wang Lin fronça les sourcils et dit calmement: « Cher compagnon de culture Li, les querelles entre votre famille et les Ge ne me concernent pas. Pourquoi m'avez-vous amené ici? »
 
-Li Yuan se tourna vers Wang Lin et répondit avec calme: « J'ai observé le combat du frère Xu contre ce cultivateur de l'Illusoire Yin grâce à mes restrictions. L'un des sorts du frère Xu est extrêmement précieux pour moi. Soyez sans crainte, je ne vous demanderai pas votre aide gratuitement. Une fois cette affaire conclue, je vous offrirai la Restriction des 18 Prunes dans son intégralité, ainsi que la Restriction d'Annihilation de ma famille en compensation! Pour l'instant, je demande au frère Xu de ne pas s'impatienter, car je dois d'abord offrir un sacrifice aux âmes de mes ancêtres! »
+Li Yuan se tourna vers Wang Lin et répondit avec calme: « J'ai observé le combat du frère Xu contre ce cultivateur de l'Illusoire Yin grâce à mes restrictions. L'un des sorts du frère Xu est extrêmement précieux pour moi. Soyez sans crainte, je ne vous demanderai pas votre aide gratuitement. Une fois cette affaire conclue, je vous offrirai la Restriction des 18 Prunelles dans son intégralité, ainsi que la Restriction d'Annihilation de ma famille en compensation! Pour l'instant, je demande au frère Xu de ne pas s'impatienter, car je dois d'abord offrir un sacrifice aux âmes de mes ancêtres! »
 
-Les yeux de Li Yuan brillaient d'une haine profonde alors que l'énergie spirituelle céleste jaillissait de son corps pour s'engouffrer en Ge Hong telle une dragon déchaîné. La femme afficha une expression amère, mais ses yeux restaient d'une clarté absolue. Elle s'efforça de lancer un dernier regard vers la statue et, après l'avoir contemplée, elle comprit soudainement quelque chose. Elle ouvrit la bouche pour parler, mais n'en eut jamais l'occasion.
+Les yeux de Li Yuan brillaient d'une haine profonde alors que l'énergie spirituelle céleste jaillissait de son corps pour s'engouffrer en Ge Hong tel un dragon déchaîné. La femme afficha une expression amère, mais ses yeux restaient d'une clarté absolue. Elle s'efforça de lancer un dernier regard vers la statue et, après l'avoir contemplée, elle comprit soudainement quelque chose. Elle ouvrit la bouche pour parler, mais n'en eut jamais l'occasion.
 
 Son corps explosa en une brume de sang qui recouvrit la statue de pierre. Son âme originelle fut absorbée par la statue et disparut à jamais.
 

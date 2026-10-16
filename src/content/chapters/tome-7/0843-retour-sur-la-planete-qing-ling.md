@@ -60,7 +60,7 @@ Le vieil homme hocha rapidement la tête.
 
 Le corps de Wang Lin vacilla et il ne prêta plus attention au Clan des Immortels Délaissés. Il se téléporta au sommet du pic Heng Yun! Tout était tel qu'il l'avait laissé, la grotte était toujours là.
 
-Après être entré dans la grotte, Wang Lin activa immédiatement les formations. La zone entourant le pic Heng Yun fut aussitôt scellée. Puis il s'assit, ferma les yeux et commença sa culture.
+Après être entré dans la grotte, Wang Lin activa immédiatement les formations. La zone de 5 000 kilomètres de rayon autour du pic Heng Yun fut aussitôt scellée. Puis il s'assit, ferma les yeux et commença sa culture.
 
 Quelques heures plus tard, la nuit était déjà tombée. La lumière des étoiles se déversait sur la terre et tout était plongé dans le calme.
 
@@ -68,7 +68,7 @@ Lorsque la lueur lunaire pénétra par l'entrée, elle se refléta sur le sol da
 
 Pourtant, en cet instant, sur sa propre planète de culture, Wang Lin pouvait enfin se détendre pleinement. Il leva les yeux vers le ciel à l'extérieur de la grotte et se mit à méditer. Après un long moment, il détourna son regard et murmura: « La chasse de la famille Yao ne s'arrêtera pas; je ne dispose pas de beaucoup de temps! »
 
-Tout en réfléchissant, Wang Lin frappa son sac de rangement et le grand fourneau apparut, dégageant une aura antique. Les yeux de Wang Lin brillèrent alors qu'il cracha une bouffée d'énergie originelle qui enveloppa l'objet pour commencer à le raffiner.
+Tout en réfléchissant, Wang Lin frappa son sac de rangement et le grand fourneau apparut, dégageant une aura antique. Les yeux de Wang Lin brillèrent alors qu'il cracha une bouffée d'essence de son âme originelle qui enveloppa l'objet pour commencer à le raffiner.
 
 « Plus je raffine ce fourneau, plus ma puissance augmentera! Mais pour l'instant, je dois l'étudier avec soin! » Wang Lin inspira et le grand fourneau rétrécit instantanément. Finalement, il se transforma en un rayon de lumière et fut englouti par Wang Lin.
 
@@ -76,7 +76,7 @@ L'ombre derrière lui vacilla et Ta Shan en sortit. Ta Shan était gravement ble
 
 Après un moment de réflexion, Wang Lin frappa de nouveau son sac de rangement et Yao Bingyun, qu'il avait scellée, apparut devant lui.
 
-Le Fouet du Karma s'enroulait autour de son âme originelle et le drapeau de l'âme enveloppait son corps. Des centaines de milliers de runes dorées la scellaient également. En contemplant Yao Bingyun ainsi prisonnière, les yeux de Wang Lin brillèrent et sa main droite traça un sceau. Les runes dorées autour d'elle s'élevèrent une à une, baignant la grotte de leur éclat.
+Le Fouet d'Âme s'enroulait autour de son âme originelle et le drapeau de l'âme enveloppait son corps. Des centaines de milliers de runes dorées la scellaient également. En contemplant Yao Bingyun ainsi prisonnière, les yeux de Wang Lin brillèrent et sa main droite traça un sceau. Les runes dorées autour d'elle s'élevèrent une à une, baignant la grotte de leur éclat.
 
 Sous les symboles runiques se trouvait le drapeau de l'âme. La main droite de Wang Lin s'étira et le brouillard noir qui entourait le corps de Yao Bingyun se dissipa, exposant totalement son corps.
 

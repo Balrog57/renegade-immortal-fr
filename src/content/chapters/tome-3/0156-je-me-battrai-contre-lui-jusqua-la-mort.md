@@ -8,13 +8,13 @@ slug: je-me-battrai-contre-lui-jusqua-la-mort
 ---
 À l'intérieur de la pièce secrète située dans la tête du dragon, une lumière aux couleurs de l'arc-en-ciel apparut. De plus en plus de lueurs se rassemblèrent soudainement jusqu'à ce que la silhouette de Wang Lin finisse par se matérialiser.
 
-Dès son apparition, le cœur de Shang Guanmo se mit à battre la chamade. Il se demandait quelle technique cette créature maléfique cultivait pour pouvoir dissimuler ainsi totalement sa présence. Auparavant, il avait songé à profiter de ce moment pour échapper au contrôle de Wang Lin, mais désormais, il n'osait plus même en songer.
+Dès son apparition, le cœur de Shang Guanmo se mit à battre la chamade. Il se demandait quelle technique cette créature maléfique cultivait pour pouvoir dissimuler ainsi totalement sa présence. Auparavant, il avait songé à profiter de ce moment pour échapper à la mainmise de plusieurs camps, mais désormais, il n'osait plus même en songer.
 
 Li Muwan toucha l'écaille du dragon comme si elle effectuait un calcul. Elle paraissait très gracieuse et concentrée tandis qu'elle effleurait la surface de l'écaille.
 
 Même les fluctuations de son essence de sang ne l'affectaient pas. Peu à peu, une lueur de compréhension se mit à briller dans ses yeux alors qu'elle contemplait le fragment d'écaille devant elle.
 
-Wang Lin apparut dans la pièce et s'assit en position du lotus avant de sortir son sac de rangement. Après avoir massacré tous ces cultivateurs, il y avait des centaines de Noyaux Dorés à l'intérieur de son sac.
+Wang Lin apparut dans la pièce et s'assit en position du lotus avant de sortir son sac de rangement. Après avoir massacré tous ces cultivateurs, il y avait plus d'une centaine de Noyaux Dorés à l'intérieur de son sac.
 
 En outre, Wang Lin avait récupéré la quasi-totalité des sacs de rangement des cultivateurs décédés. Il les tria rapidement et constata qu'ils contenaient de nombreux trésors et épées volantes. Cependant, à l'exception d'un rouleau, aucun n'était assez remarquable pour captiver son attention.
 
@@ -44,7 +44,7 @@ Les yeux de Wang Lin s'illuminèrent; il posa le rouleau et se leva brusquement.
 
 Le regard de Wang Lin resta fixé sur le sac alors qu'il se désintégrait. Il essaya encore plusieurs fois avant qu'une lueur de compréhension n'apparaisse dans ses yeux.
 
-Bien que le sac de rangement ait été détruit, les objets à l'intérieur ne l'étaient pas. L'espace intérieur du sac était semblable à une voûte infinie dont le sac lui-même servait de verrou. Même si le verrou était brisé, la voûte resterait éternellement close avec ses trésors enfermés.
+Bien que le sac de rangement ait été détruit, les objets à l'intérieur ne l'étaient pas. L'espace intérieur du sac était semblable à une multitude infinie de cases dont le sac lui-même servait de verrou. Même si le verrou était brisé, les cases resteraient éternellement closes avec ses trésors enfermés.
 
 S'il trouvait un moyen de le rouvrir, il ne serait pas impossible de récupérer ce qu'il contenait.
 
@@ -62,11 +62,11 @@ La sueur perla sur le front de Wang Lin. Au moment où le cri avait retenti, il 
 
 Après avoir soigneusement rangé le rouleau, Wang Lin commença à méditer. Après un long moment, il sortit un Noyau Doré de son sac de rangement. Sa couleur s'était déjà assombrie. Il réfléchit encore un peu avant d'en sortir plus d'une centaine. Tous étaient ternes, exhalant une aura de mort.
 
-Autrefois, Wang Lin les aurait dévorés instantanément, mais sur le chemin de la présence, Li Muwan lui avait averti que si dévorer des Noyaux Dorés augmentait son niveau de culture, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes; en absorber trop d'éléments opposés risquait de rendre son énergie spirituelle erratique, le faisant perdre le contrôle et sombrer dans la folie.
+Autrefois, Wang Lin les aurait dévorés instantanément, mais sur le chemin de la présence, Li Muwan lui avait averti que si dévorer des Noyaux Dorés augmentait son niveau de culture, cela corromprait également son énergie spirituelle et désordonnerait ses flux internes. De plus, chaque noyau possédait des propriétés distinctes; en absorber trop d'éléments opposés risquait de déséquilibrer les cinq éléments de son corps, et son esprit serait tantôt clair, tantôt confus.
 
 Après avoir entendu cela, bien qu'il en fût réticent, Wang Lin renonça à l'idée de les consommer directement. Selon Li Muwan, ils n'auraient aucun effet négatif s'ils étaient d'abord raffinés via la méthode des cinq éléments.
 
-Toutefois, ce type de technique de raffinement était considéré comme une méthode démoniaque; elle n'en avait fait que l'écho. Wang Lin réfléchit un instant avant de tous les placer dans un sac de rangement, en attendant de trouver la méthode de raffinage des cinq éléments.
+Toutefois, ce type de technique de raffinement était considéré comme une méthode démoniaque; elle n'en avait entendu parler que de loin, sans en connaître la méthode. Wang Lin réfléchit un instant avant de tous les placer dans un sac de rangement, en attendant de trouver la méthode de raffinage des cinq éléments.
 
 Puis, Wang Lin sortit le tendon de dragon. D'un geste léger, le démon s'envola. Il fit le tour de la pièce une fois avant de regarder Wang Lin d'un air contrarié.
 

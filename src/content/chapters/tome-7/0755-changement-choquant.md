@@ -60,7 +60,7 @@ Wang Lin fut encore plus stupéfait. Ce Sens Divin lui procurait un sentiment fa
 
 Le visage de Li Yuan était livide; il perdit presque l'usage de ses facultés alors qu'il suivait de près Wang Lin.
 
-Les deux n'étaient initialement pas loin du réseau de transfert. En se déplaçant à une vitesse fulgurante, ils s'en rapprochèrent davantage. Cependant, le Sens Divin devint soudainement incontrôlable et la zone située dans un rayon de mille pieds autour d'eux vira brusquement au rouge.
+Les deux n'étaient initialement pas loin du réseau de transfert. En se déplaçant à une vitesse fulgurante, ils s'en rapprochèrent davantage. Cependant, le Sens Divin devint soudainement incontrôlable et la zone située dans un rayon de 330 mètres autour d'eux vira brusquement au rouge.
 
 Des volutes de fumée rouge jaillirent soudainement, prenant l'apparence de spectres. Elles poussèrent des hurlements perçants et chargèrent Wang Lin.
 
@@ -70,19 +70,19 @@ L'astuce de Li Yuan n'était pas inférieure à celle de Wang Lin, il comprit do
 
 Tout en se laissant entraîner par Wang Lin, les mains de Li Yuan s'activèrent avec rapidité et d'innombrables restrictions commencèrent à apparaître. Dès leur apparition, elles tremblèrent et se divisèrent en 18 segments. Une quantité massive de restrictions surgit presque instantanément.
 
-Ce déluge de restrictions stoppa les spectres émanant de la fumée rouge. Wang Lin ne da pas un regard en arrière tandis qu'il tirait Li Yuan vers le bord du réseau de transfert. Il n'était plus qu'à un pas d'entrer dans le dispositif.
+Ce déluge de restrictions stoppa les spectres émanant de la fumée rouge. Wang Lin ne jeta pas un regard en arrière tandis qu'il tirait Li Yuan vers le bord du réseau de transfert. Il n'était plus qu'à un pas d'entrer dans le dispositif.
 
 C'est à cet instant précis qu'un ricanement glacial émana du Sens Divin, suivi d'une voix glaciale qui résonna dans la zone:
 
 « Espace sanglant, condense! »
 
-Dès que ces trois mots furent prononcés, une force commença immédiatement à comprimer cette zone de mille pieds. L'espace se solidifia rapidement, comme s'il tentait de geler tout ce qui se trouvait dans ce périmètre.
+Dès que ces trois mots furent prononcés, une force commença immédiatement à comprimer cette zone de 330 mètres de rayon. L'espace se solidifia rapidement, comme s'il tentait de geler tout ce qui se trouvait dans ce périmètre.
 
 Wang Lin était sur le point de franchir le réseau de transfert. Pourtant, alors qu'il levait le pied pour faire le pas, ce fut comme si une montagne entière avait été arrimée à son dos, ralentissant sa course.
 
-Il ressentit même son corps oppressé par d'innombrables trésors puissants qui semblaient vouloir le clouer sur place. Non seulement Wang Lin, mais Li Yuan éprouva la même sensation.
+Il ressentit même son corps oppressé par d'innombrables forces puissantes qui semblaient vouloir le clouer sur place. Non seulement Wang Lin, mais Li Yuan éprouva la même sensation.
 
-Cette puissance était tout simplement colossale; elle égalait la majesté des cieux. C'était comme si une main invisible était tombée du firmament pour saisir cette zone de mille pieds. Ses cinq doigts se refermaient lentement, comme pour broyer l'espace même.
+Cette puissance était tout simplement colossale; elle égalait la majesté des cieux. C'était comme si une main invisible était tombée du firmament pour saisir cette zone de 330 mètres de rayon. Ses cinq doigts se refermaient lentement, comme pour broyer l'espace même.
 
 Le visage de Wang Lin devint pâle et la sueur froide inonda son front. Il ne pouvait même pas lever la main pour dégainer un trésor magique. Il entrevoyait vaguement une lueur rouge charger vers cet endroit depuis le vide lointain, une silhouette écarlate se condensant rapidement au cœur de cette lumière.
 

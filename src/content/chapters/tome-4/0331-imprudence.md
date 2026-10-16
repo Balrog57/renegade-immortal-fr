@@ -56,7 +56,7 @@ Le regard de Wang Lin devint glacial. Cette froideur n'était apparue que lorsqu
 
 « C'est donc toi qui veux anéantir la Secte Ciel Nuageux... » La voix de Wang Lin était aussi glaciale que les vents des enfers.
 
-Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Wang Lin, capable de saisir le bras de Papillon Rouge, apparut derrière Zhan Bai sans avoir été détecté. Cela terrifia profondément ce dernier.
+Ce vent glacial frappa le corps de Zhan Bai. Pour lui, il était plus froid que n'importe quel souffle qu'il avait jamais ressenti. Wang Lin, capable d'arracher un bras à Papillon Rouge, apparut derrière Zhan Bai sans avoir été détecté. Cela terrifia profondément ce dernier.
 
 Avant même que le combat ne commence, l'idée de s'enfuir lui traversa l'esprit.
 
@@ -90,7 +90,7 @@ La puissance de la lance pouvait ébranler les cieux et la terre.
 
 Bang!
 
-Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard de restriction s'y infiltra violemment. Le cocon s'effondra instantanément, et à cet instant précis, Zhan Bai parvint à se dégager précipitamment. Il cracha une large bouffée de sang.
+Dans un fracas assourdissant, la lance percuta le cocon de chair. Le brouillard de restriction s'y infiltra violemment. Le cocon s'effondra instantanément, et à cet instant précis, Zhan Bai parvint à se dégager précipitamment, en reculant de plus de trente mètres. Il cracha une large bouffée de sang.
 
 D'innombrables asticots grouillaient dans ce sang; la vue en était révoltante.
 
@@ -140,7 +140,7 @@ Les insectes aux côtés de Zhan Bai poussèrent tous des cris misérables avant
 
 Le regard injecté de sang de Zhan Bai trahissait une pointe de terreur profondément enfouie. Il poussa un rugissement et pointa son front. Le mille-pattes réapparut, et un gaz aux couleurs de l'arc-en-ciel émana de son front.
 
-Ce gaz se transforma presque instantanément en un mille-pattes de cent mètres de long. Le plus effrayant était qu'une autre tête se trouvait sous la première, et cette tête ressemblait trait pour trait à Zhan Bai.
+Ce gaz se transforma presque instantanément en un mille-pattes d'environ 330 mètres de long. Le plus effrayant était qu'une autre tête se trouvait sous la première, et cette tête ressemblait trait pour trait à Zhan Bai.
 
 C'était son âme originelle!
 

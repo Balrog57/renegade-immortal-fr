@@ -10,7 +10,7 @@ Se déplaçant avec la fluidité de l'eau, la main de Wang Lin se referma en un 
 
 Cette perception divine s'effondra avant même d'avoir pu résister.
 
-Au moment où la perception divine se dissipa, dans l'imposant bâtiment de Ghost Eye City, un homme d'âge moyen vêtu de violet buvait du thé dans la deuxième pièce à partir de l'est. Soudain, il brisa sa tasse et le thé s'évapora. L'homme pâlit et cracha du sang, ses yeux remplis d'effroi.
+Au moment où la perception divine se dissipa, dans l'imposant bâtiment de la Cité aux Yeux Fantômes, un homme d'âge moyen vêtu de violet buvait du thé dans la deuxième pièce à partir de l'est. Soudain, il brisa sa tasse et le thé s'évapora. L'homme pâlit et cracha du sang, ses yeux remplis d'effroi.
 
 Son rythme cardiaque s'accéléra et il s'exclama: « Serait-ce un Purificateur du Nirvana?! » Son expression changea avant qu'il ne serre les dents et ne disparaisse de la pièce.
 
@@ -26,7 +26,7 @@ Réaliser plusieurs tâches simultanément était trop facile pour des cultivate
 
 « Pas bon! » Le vieil homme jura intérieurement et, d'un revers de manches, chargea hors de la pièce à une vitesse fulgurante.
 
-Une onde de choc parcourut Ghost Eye City alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
+Une onde de choc parcourut la Cité aux Yeux Fantômes alors que l'effondrement de la restriction attirait l'attention de tous les cultivateurs. Tous, de niveaux de culture variés, levèrent les yeux vers le ciel.
 
 L'expression de Wang Lin était calme. Il s'était déjà montré très indulgent. Si les trois d'entre eux n'avaient pas libéré leur perception divine, cela ne serait pas arrivé.
 
@@ -44,7 +44,7 @@ Aucun cultivateur du Scruteur du Nirvana ne pouvait faire cela; pas même un cul
 
 Après tout, puisque l'autre partie était un cultivateur du Purificateur du Nirvana, qu'il s'agisse d'une simple vérification de perception divine ou d'un balayage arrogant, cela restait compréhensible.
 
-S'ils avaient connu son niveau de culture au préalable, ils n'auraient jamais osé l'arrêter. Personne n'oserait remettre en question un Purificateur du Nirvana venu à Ghost Eye City. Même sans invitation, un tel être serait traité comme un hôte d'honneur.
+S'ils avaient connu son niveau de culture au préalable, ils n'auraient jamais osé l'arrêter. Personne n'oserait remettre en question un Purificateur du Nirvana venu à la Cité aux Yeux Fantômes. Même sans invitation, un tel être serait traité comme un hôte d'honneur.
 
 « Sur la planète Tian Yun et toutes les planètes environnantes, les cultivateurs du Purificateur du Nirvana sont extrêmement rares. Chacun d'eux est capable de faire trembler une planète de culture d'un simple pas. Je n'ai jamais entendu parler de quelqu'un nommé Wang Lin. Il a dit qu'il venait de la Secte du Destin Céleste... Se pourrait-il... qu'il soit issu d'une génération plus ancienne des disciples de l'Omniscient? » Les trois se regardèrent, le doute dans les yeux. Cependant, la puissance manifestée par Wang Lin était bel et bien digne d'un Purificateur du Nirvana.
 
@@ -56,7 +56,7 @@ Tous trois affichaient une sincérité totale et admettaient sans cesse leur err
 
 Ils poussèrent tous un soupir de soulagement. Si Wang Lin n'avait pas voulu passer l'éponge, ils n'auraient eu d'autre choix que de tenter de s'enfuir. Provoquer un Purificateur du Nirvana revenait à signer son arrêt de mort.
 
-Maître Yi Chen dit poliment: « Le Camarade Cultivateur Wang est certainement venu à Ghost Eye City pour cette fiole de Jade Violet Liquide. Cependant, il reste encore plusieurs jours avant l'enchère. Le Camarade a-t-il un endroit où loger? Si ce n'est pas le cas, nous trois pouvons vous arranger un logement. »
+Maître Yi Chen dit poliment: « Le Camarade Cultivateur Wang est certainement venu à la Cité aux Yeux Fantômes pour cette fiole de Jade Violet Liquide. Cependant, il reste encore plusieurs jours avant l'enchère. Le Camarade a-t-il un endroit où loger? Si ce n'est pas le cas, nous trois pouvons vous arranger un logement. »
 
 L'homme en robe violette et le vieillard en robe verte lancèrent à Wang Lin des regards accueillants.
 
@@ -66,11 +66,11 @@ Peu importe leur arrogance habituelle, face à un Purificateur du Nirvana, ils n
 
 Maître Yi Chen rit: « Aucun problème. C'est le destin qui nous permet de faire la connaissance du Camarade Cultivateur Wang Lin. » Il fit un geste de la main droite pour l'inviter à les suivre.
 
-Wang Lin se retourna et regarda au loin. À la porte de la ville, Bai Wei le fixait, et derrière lui se tenait Xu Liguo.
+Wang Lin se retourna et regarda au loin. À la porte de la ville, Bai Wei le fixait, et derrière lui se tenait Xu Liguo, sous la forme d'une brume noire.
 
 « Vous deux, venez ici. » La voix de Wang Lin n'était pas forte, mais elle parvint distinctement aux oreilles de Bai Wei.
 
-Bai Wei hésita un instant avant de s'élancer dans les airs. Xu Liguo regarda le dos de Bai Wei avec un air absent et le suivit rapidement.
+Bai Wei hésita un instant avant de s'élancer dans les airs. Xu Liguo regarda le dos de Bai Wei avec fascination et le suivit rapidement.
 
 Lorsque les trois frères virent Bai Wei, ils furent surpris, mais ne dirent rien. Ils se dirigèrent vers la partie est de la ville, vers un magnifique bâtiment de quatre étages entouré d'une cour remplie de jardins rocailleux et de rivières artificielles. L'énergie spirituelle y était extrêmement dense.
 

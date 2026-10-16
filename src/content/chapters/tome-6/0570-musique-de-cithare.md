@@ -16,7 +16,7 @@ Après un long moment, Wang Lin poussa un soupir. Après avoir examiné attentiv
 
 Wang Lin réfléchit longuement, mais sans succès; ses sourcils se froncèrent progressivement.
 
-« Cultiver l'Art du Massacre Céleste est l'une des raisons principales pour lesquelles je suis venu ici. J'ai appris ce sort pour l'utiliser contre Tuo Sen. Tuo Sen est très puissant, j'aurai donc besoin de beaucoup de ressources pour l'affronter... Maintenant que je possède les Pilules d'Âme Sanguine, mes chances de survie sont bien plus grandes si je combine ces deux éléments. Cependant, mes réserves de Pilules d'Âme Sanguine sont limitées, ma priorité reste donc cet Art du Massacre Céleste! »
+« Cultiver l'Art du Massacre Céleste est l'une des raisons principales pour lesquelles je suis venu ici. J'ai appris ce sort pour l'utiliser contre Tuo Sen. Tuo Sen est très puissant, il me faudra donc un grand nombre de sceaux de vie pour lui résister... Maintenant que je possède les Pilules d'Âme Sanguine, mes chances de survie sont bien plus grandes si je combine ces deux éléments. Cependant, mes réserves de Pilules d'Âme Sanguine sont limitées, ma priorité reste donc cet Art du Massacre Céleste! »
 
 Wang Lin songea. Il cultivait l'Art du Massacre Céleste depuis plusieurs années déjà, et la création de ce premier fil d'énergie de massacre signifiait qu'il avait atteint le premier stade. Toutefois, pour maîtriser pleinement ce sort, la difficulté demeurait immense.
 
@@ -80,7 +80,7 @@ Le jour touchait à sa fin et, avant que le ciel ne soit totalement obscurci, un
 
 La lumière stellaire s'imprima dans le regard de Wang Lin et, tandis que la musique s'éloignait progressivement, un sentiment commença à se condenser dans sa poitrine. C'était une profonde solitude qui resta gravée en lui durant un long moment.
 
-Les notes devinrent de plus en plus ténues. Wang Lin leva la main pour presser l'espace entre ses sourcils. C'était comme s'il effleurait Li Muwan à l'intérieur de la Perle Défiant le Ciel, et il murmura: « Wan Er, nous nous retrouvons enfin... C'est ma promesse envers toi... »
+Les notes devinrent de plus en plus ténues. Wang Lin leva la main pour presser l'espace entre ses sourcils. C'était comme s'il effleurait Li Muwan à l'intérieur de la Perle Défiant le Ciel, et il murmura: « Wan Er, nous nous retrouverons... C'est ma promesse envers toi... »
 
 Le bateau s'éloigna lentement, emportant avec lui la silhouette de la femme. Au moment où la musique s'éteignait presque totalement, la femme sembla remarquer quelque chose et se retourna. Elle regarda vers le rivage au loin, mais l'obscurité était trop dense. Pourtant, dans ce noir, elle crut apercevoir une silhouette solitaire s'éloignant lentement.
 

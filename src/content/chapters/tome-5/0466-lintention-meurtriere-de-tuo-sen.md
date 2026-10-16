@@ -36,7 +36,7 @@ La silhouette avait transpercé le cercle, laissant derrière elle une large br�
 
 Lorsque Wang Lin vit cette silhouette, son expression changea et il recula. Cependant, à cet instant précis, des vagues de rires sinistres émanèrent de la figure, d'où surgit une forme rougeoyante.
 
-Dès son apparition, l'individu agita nonchalamment la main vers Wang Lin. Ce dernier cracha une large bouchée de sang et son corps fut projeté comme une météorite. Il ne s'arrêta que 33 kilomètres plus loin, où il vomit une nouvelle fois du sang, cette fois mêlé à des fragments de ses propres organes internes.
+Dès son apparition, l'individu agita nonchalamment la main vers Wang Lin. Ce dernier cracha une large bouchée de sang et son corps fut projeté comme une météorite. Il ne s'arrêta que 3,3 kilomètres plus loin, où il vomit une nouvelle fois du sang, cette fois mêlé à des fragments de ses propres organes internes.
 
 La figure rouge se mua en un homme aux cheveux rouges au corps semi-transparent, et à l'intérieur de ce corps se trouvait un petit singe.
 
@@ -98,13 +98,13 @@ Le regard de Wang Lin devint glacial. D'un geste de la main, il captura l'un des
 
 Quant au corps de Qian Feng, il tomba du ciel pour sombrer dans l'océan. Le sac de rangement de Qian Feng s'envola et fut intercepté par Wang Lin.
 
-Zhuo Wutai et Zi Xin observaient la scène à distance. Ils échangèrent un regard, puis Zhuo Wutai laissa échapper un soupir secret. Finalement, il n'avait pas réussi à transmettre à temps ce qu'il voulait dire à Wang Lin.
+Zhou Wutai et Zi Xin observaient la scène à distance. Ils échangèrent un regard, puis Zhou Wutai laissa échapper un soupir secret. Finalement, il n'avait pas réussi à transmettre à temps ce qu'il voulait dire à Wang Lin.
 
 La haine dans les yeux de Zi Xin s'évanouit. Elle regarda le corps de Qian Feng sombrer et se mit à rire d'un rire d'une monstruosité absolue.
 
-« Qian Feng! » Les yeux de Zi Xin devinrent froids; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs marion apparurent pour assurer sa protection.
+« Qian Feng! » Les yeux de Zi Xin devinrent froids; elle s'assit rapidement et ses mains formèrent un sceau mystérieux. Simultanément, des éclairs de lumière jaillirent de son front et plusieurs cultivateurs-marionnettes apparurent pour assurer sa protection.
 
-« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhuo Wutai afficha une expression complexe en observant Zi Xin.
+« Un fourneau de culture... en fin de compte, qui est le fourneau de qui... Wang Lin, tu n'as toujours pas compris... En tuant Qian Feng, tu as exaucé le vœu de Zi Xin! Hélas, même moi, j'ignore quel genre de sort Yunque Zi a utilisé. Un tel sort est inouï... c'est tout simplement trop étrange. Même avec un fragment de l'héritage du Dragon Vert qui s'est éveillé en moi, je n'ai aucun souvenir d'une telle technique... » Zhou Wutai afficha une expression complexe en observant Zi Xin.
 
 Zi Xin dégageait alors une lumière arc-en-ciel et une aura puissante emplissait son corps. Cette aura était très similaire à celle de Qian Feng.
 
@@ -124,11 +124,11 @@ Cependant, la vitesse de Tuo Sen était bien supérieure.
 
 En un clin d'œil, il rattrapa Wang Lin. Sa voix lugubre lui emboîta les mots:
 
-« Tu ne peux pas t'échapper, Wang Lin. J'ai attendu si longtemps pour dévorer ton héritage d'intelligence... »
+« Tu ne peux pas t'échapper, Wang Lin. J'ai attendu si longtemps pour dévorer ton héritage de mémoire... »
 
 Le visage de Wang Lin s'assombrit. Il agita la main et la hache apparut dans sa poigne. Il se retourna brusquement, concentra toute l'énergie spirituelle céleste de son corps sur l'arme et frappa violemment vers le bas.
 
-Un rayon d'énergie de hache, large de plusieurs centaines de pieds et saturé d'énergie spirituelle céleste, jaillit. Cette attaque semblait capable de fendre les cieux eux-mêmes.
+Un rayon d'énergie de hache, large d'une centaine de mètres ou plus et saturé d'énergie spirituelle céleste, jaillit. Cette attaque semblait capable de fendre les cieux eux-mêmes.
 
 Pourtant, les yeux de la silhouette de Tuo Sen virèrent au rouge; il leva la main et pointa doucement le rayon d'énergie, provoquant son effondrement immédiat.
 

@@ -28,13 +28,13 @@ En repensant à la sensation de son corps se déchirant, le visage de Maître Ho
 
 Maître Hollow Wind comprit que si Wang Lin n'avait pas voulu le tuer, il aurait déjà succombé sous l'effet de ce sort auto-créé.
 
-Tandis que des centaines d'idées traversaient l'esprit de Maître Hollow Wind, Wang Lin réfléchissait également. Le choc que Sundered Night avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Hollow Wind. En fait, il était encore plus stupéfait!
+Tandis que des centaines d'idées traversaient l'esprit de Maître Hollow Wind, Wang Lin réfléchissait également. Le choc que la Nuit Brisée avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Hollow Wind. En fait, il était encore plus stupéfait!
 
-« Ma culture actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade final, mais loin du sommet du stade de fin de Scruteur du Nirvana. La différence entre ma culture et celle d'un Purificateur du Nirvana est immense, alors pourquoi Sundered Night a-t-il pu blesser si facilement Maître Hollow Wind... »
+« Ma culture actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade final, mais loin du sommet du stade de fin de Scruteur du Nirvana. La différence entre ma culture et celle d'un Purificateur du Nirvana est immense, alors pourquoi la Nuit Brisée a-t-elle pu blesser si facilement Maître Hollow Wind... »
 
 Wang Lin continua de méditer sur ce problème.
 
-Tout en réfléchissant, il leva sa main droite et ses yeux brillèrent intensément. Le ressenti de Sundered Night apparut dans son esprit et une lumière dorée jaillit de sa paume. Cette lueur était aussi éclatante que le soleil ardent!
+Tout en réfléchissant, il leva sa main droite et ses yeux brillèrent intensément. Le ressenti de la Nuit Brisée apparut dans son esprit et une lumière dorée jaillit de sa paume. Cette lueur était aussi éclatante que le soleil ardent!
 
 Maître Hollow Wind, terrifié, endurait la douleur pour se relever et battre en retraite. Il ne vit pas que Wang Lin fronça les sourcils.
 
@@ -44,7 +44,7 @@ Maître Hollow Wind poussa un soupir et dit respectueusement: « Je me souviendr
 
 Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre des Esprits Démoniques.
 
-Cependant, après avoir constaté la puissance de Sundered Night et appris qu'il s'agissait d'un sort auto-créé, il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniques pour retrouver sa liberté.
+Cependant, après avoir constaté la puissance de la Nuit Brisée et appris qu'il s'agissait d'un sort auto-créé, il renonça à ces pensées. Il allait désormais se concentrer sur son évasion de la Terre des Esprits Démoniques pour retrouver sa liberté.
 
 Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'en soucia pas outre mesure. Avec sa culture et son expérience, il pouvait en deviner les indices; il estimait que 80 % des paroles de Wang Lin étaient vraies.
 
@@ -58,21 +58,21 @@ Wang Lin regarda calmement Maître Hollow Wind. Ils étaient tous deux des homme
 
 Après avoir salué Wang Lin, Maître Hollow Wind retourna à son palais pour commencer sa culture.
 
-Une fois Maître Hollow Wind parti, Wang Lin fronça les sourcils en observant sa main droite. Après un moment de silence, il utilisa à nouveau Sundered Night et la lumière dorée réapparut.
+Une fois Maître Hollow Wind parti, Wang Lin fronça les sourcils en observant sa main droite. Après un moment de silence, il utilisa à nouveau la Nuit Brisée et la lumière dorée réapparut.
 
 Dès l'apparition de cette lueur, l'énergie d'origine dans le corps de Wang Lin se rua vers sa main telle une meute de chevaux sauvages et incontrôlables.
 
 Les yeux de Wang Lin s'illuminèrent; il agita la main droite, et son énergie d'origine finit par se stabiliser. Cependant, cet instant précis avait presque consommé plus de 10 % de ses réserves d'énergie d'origine.
 
-« Comme auparavant, toute mon énergie d'origine est épuisée lorsque j'utilise le sort... Il me sera impossible de déployer Sundered Night avec la quantité d'énergie que je possède! Pourtant, je n'ai pas consommé d'énergie d'origine et j'ai pu manifester la puissance terrifiante de Sundered Night il y a un instant... » Wang Lin fronça les sourcils.
+« Comme auparavant, toute mon énergie d'origine est épuisée lorsque j'utilise le sort... Il me sera impossible de déployer la Nuit Brisée avec la quantité d'énergie que je possède! Pourtant, je n'ai pas consommé d'énergie d'origine et j'ai pu manifester la puissance terrifiante de la Nuit Brisée il y a un instant... » Wang Lin fronça les sourcils.
 
 « Se pourrait-il que... » Soudain, Wang Lin leva la tête, le regard brillant. Il semblait avoir compris quelque chose.
 
 En un clin d'œil, le jour passa et la nuit revint. Wang Lin resta assis dans son palais, réfléchissant jusque tard dans la nuit. Ce n'est qu'à l'approche de l'aube que ses yeux s'illuminèrent; il se leva et sortit.
 
-Son corps disparut soudainement pour réapparaître au sommet même où il avait compris Sundered Night!
+Son corps disparut soudainement pour réapparaître au sommet même où il avait compris la Nuit Brisée!
 
-La brise marine soufflait, jetant des rafales de froid sur lui. Mais Wang Lin n'en fut nullement perturbé, le regard fixé sur le soleil levant au loin. La compréhension acquise lors de l'usage de Sundered Night emplissait son corps avant de migrer vers sa main droite.
+La brise marine soufflait, jetant des rafales de froid sur lui. Mais Wang Lin n'en fut nullement perturbé, le regard fixé sur le soleil levant au loin. La compréhension acquise lors de l'usage de la Nuit Brisée emplissait son corps avant de migrer vers sa main droite.
 
 À cet instant précis, une lumière dorée jaillit de sa paume. Il n'utilisa aucune énergie d'origine interne. Dès qu'il leva la main, Wang Lin sentit une énergie d'origine infinie provenant du soleil levant converger vers lui. Cela fit soudainement s'étendre la lueur dorée!
 
@@ -96,11 +96,11 @@ Tandis que les restrictions envahissaient la zone, le palais fut totalement scel
 
 Malgré cela, Wang Lin restait un peu inquiet. Il frappa son sac de rangement et une boussole apparut dans sa main! Cette boussole n'était l'apanage que de l'héritier de la Restriction d'Annihilation!
 
-Après y avoir insufflé de l'énergie d'origine, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre cent pieds de large. Elle flotta au-dessus de Wang Lin; quand celui-ci sauta, la boussole descendit pour s'enfoncer dans le sol, et Wang Lin s'assit en son centre.
+Après y avoir insufflé de l'énergie d'origine, l'aiguille se mit à tournoyer. La boussole s'éleva et grandit jusqu'à atteindre une trentaine de mètres de large. Elle flotta au-dessus de Wang Lin; quand celui-ci sauta, la boussole descendit pour s'enfoncer dans le sol, et Wang Lin s'assit en son centre.
 
 « Cela devrait suffire! » Wang Lin frappa à nouveau son sac de rangement et le cadavre argenté apparut devant lui. En l'observant, il réfléchit un instant avant de presser impitoyablement le point entre ses sourcils!
 
-À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex apparut entre ses sourcils, stoppant le doigt de l'homme à un centimètre de sa peau.
+À cet instant, le cadavre féminin ouvrit brusquement les yeux, lançant un regard glacial à Wang Lin. Un vortex apparut entre ses sourcils, stoppant le doigt de l'homme à environ trois centimètres de sa peau.
 
 Un regard féroce traversa les yeux du cadavre et elle recula. Cependant, au moment même de son retrait, la boussole sous elle trembla et pivota. Des restrictions jaillirent de la boussole pour se lier parfaitement à toutes les autres présentes dans la pièce. Si elle en déclenchait une seule, ce serait comme si elle les déclenchait toutes!
 
@@ -110,7 +110,7 @@ Le cadavre féminin était gravement blessé et, bien que son niveau de culture 
 
 L'expression de Wang Lin resta sereine et, alors que les griffes approchaient, un rayon de lumière bleue jaillit de ses yeux. La main de la créature toucha immédiatement cette lueur.
 
-Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à quelques dizaines de pieds de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un rugissement.
+Après avoir poussé un cri déchirant, la femme recula promptement. Malgré la rapidité de son retrait, ses mouvements étaient légers et elle parvint, contre toute attente, à ne toucher aucune des restrictions. Elle s'arrêta à une dizaine de mètres de Wang Lin. Une pointe d'intelligence brilla dans son regard alors qu'elle montrait les dents devant lui en poussant un rugissement.
 
 Ce cadavre féminin était déjà magnifique; ainsi, loin d'inspirer le danger, ce geste lui donnait l'allure d'un chat à cause de ses deux canines saillantes.
 

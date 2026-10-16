@@ -8,13 +8,13 @@ slug: lombre-sanguine-du-demon-ancestral
 ---
 La goutte de sang bleu se transforma en Wang Lin. Il tendit la main dans les airs et son sac de contenance apparut de nulle part. Il enfila ensuite une robe bleue avant de faire un pas et d’enchaîner plusieurs téléportations d'un coup. Il disparut sans laisser de trace.
 
-Sa silhouette réapparut à des dizaines de kilomètres de là, puis il chargea directement vers la capitale du pays des Démons Célestes.
+Sa silhouette réapparut à plusieurs centaines de kilomètres de là, puis il chargea directement vers la capitale du pays des Démons Célestes.
 
 Après que la Pilule de l'Âme Sanguine a absorbé une trace de sens divin et de sang, elle active également une autre capacité pendant une courte période. Au moment de la mort, tout ce qui est lié à l'âme originelle fusionne avec le vide. Une fois ressuscité, on peut utiliser le pouvoir de son âme et de son sang pour récupérer les objets stockés dans ce vide!
 
 Autrefois, Yao Xixue avait utilisé cette fonction!
 
-Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant. Bien que la culture du vieil homme de trente pieds de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
+Autrefois, l'Omniscient avait offert à Wang Lin un trésor salvateur, mais ce trésor ne pouvait résister qu’au choc d'un cultivateur Ascendant. Bien que la culture du vieil homme de neuf mètres de haut fût au stade avancé de l'Ascendant, sa véritable puissance surpassait largement cela.
 
 Il y avait aussi cette existence mystérieuse dans la tour noire; ainsi, même s'il avait utilisé le trésor salvateur, il lui aurait été difficile de rester en vie. C’est pourquoi Wang Lin avait décidé de tenter le tout pour le tout avec la Pilule de l'Âme Sanguine après avoir envisagé d'innombrables possibilités!
 
@@ -48,7 +48,7 @@ Wang Lin n'était plus qu'à une grande téléportation de la capitale du pays d
 
 « Je veux voir jusqu'où tu pourras t'enfuir! »
 
-Un homme imposant portant une armure apparut à 33 kilomètres derrière Wang Lin. Cet homme avait une allure très digne. Ses yeux brillèrent, puis son corps fut enveloppé par une quantité monstrueuse d'énergie démoniaque.
+Un homme imposant portant une armure apparut à 3 300 mètres derrière Wang Lin. Cet homme avait une allure très digne. Ses yeux brillèrent, puis son corps fut enveloppé par une quantité monstrueuse d'énergie démoniaque.
 
 L'expression de Wang Lin changea et il fit un pas en avant. Alors que son corps était sur le point de disparaître, il se retourna pour regarder l'homme imposant. Ce regard faillit le faire s'exclamer:
 

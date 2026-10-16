@@ -12,7 +12,7 @@ Une lueur mystérieuse jaillit soudain des yeux de la silhouette illusoire. Ses 
 
 Une immense quantité de lumière verte surgit subitement de l'herbe et des fleurs qui recouvraient la zone. En un instant, tout ce que le regard pouvait atteindre fut baigné par cette clarté éblouissante.
 
-Tout cela se produisit en un laps de temps extrêmement court. Lorsque Wang Lin vit la silhouette former un sceau, ses yeux se plissèrent. Il ne daigna même pas regarder la lance qu'il venait de projeter et recula immédiatement de plusieurs dizaines de pieds.
+Tout cela se produisit en un laps de temps extrêmement court. Lorsque Wang Lin vit la silhouette former un sceau, ses yeux se plissèrent. Il ne daigna même pas regarder la lance qu'il venait de projeter et recula immédiatement d'une centaine de mètres.
 
 Tandis que Wang Lin se retirait, la lance fonçait vers l'ombre verdoyante avec une rapidité fulgurante.
 
@@ -30,7 +30,7 @@ Cette déduction avait débuté à l'instant même où il avait aperçu l'ancien
 
 « Déjà 57... Je dois continuer. » Les yeux de Wang Lin se plissèrent davantage.
 
-La lance de restrictions continuait sa course vers la silhouette verte. Alors que Wang Lin avait reculé de plusieurs dizaines de pieds, la lance n'était plus qu'à un pas de la figure illusoire.
+La lance de restrictions continuait sa course vers la silhouette verte. Alors que Wang Lin avait reculé d'une dizaine de mètres, la lance n'était plus qu'à un pas de la figure illusoire.
 
 Sa vitesse était telle qu'elle brisait le mur du son. Le souffle créé par sa course se déplaçait encore plus vite que la lance elle-même et percuta la silhouette verte.
 
@@ -40,17 +40,17 @@ Pourtant, au moment même de son effondrement, les lueurs vertes cristallines qu
 
 Mais elles retrouvèrent aussitôt leur éclat!
 
-À cet instant, les lumières vertes situées à des milliers de kilomètres autour de la vallée brillèrent de mille feux. Des rayons de lumière jaillirent de ces amas flottants et s'entrelacèrent les uns aux autres dans le ciel.
+À cet instant, les lumières vertes situées dans un rayon de 3,3 kilomètres autour de la vallée brillèrent de mille feux. Des rayons de lumière jaillirent de ces amas flottants et s'entrelacèrent les uns aux autres dans le ciel.
 
 Tout cela se produisit juste après l'effondrement de la figure verte. Cela fut si rapide qu'il n'y eut aucun répit pour la réaction!
 
-Même avec sa vitesse prodigieuse, la lance n'avait pu progresser que de quelques dizaines de pieds durant cet intervalle.
+Même avec sa vitesse prodigieuse, la lance n'avait pu progresser que d'une dizaine de mètres durant cet intervalle.
 
 Cependant, en un clin d'œil, un changement radical s'opéra sous les yeux de Wang Lin!
 
 Bien que la déduction se poursuive dans son esprit et approchât de sa conclusion, ses yeux restaient rivés sur la formation.
 
-Il put alors voir que la zone de 10 000 pieds entourant la formation était désormais encerclée par d'innombrables couches de lumière verte. Tout le périmètre autour de la vallée était devenu une gigantesque cage émeraude.
+Il put alors voir que la zone d'un rayon de 3,3 kilomètres autour de la formation était désormais encerclée par d'innombrables couches de lumière verte. Tout le périmètre autour de la vallée était devenu une gigantesque cage émeraude.
 
 Wang Lin se trouvait prisonnier de cette cage!
 
@@ -62,7 +62,7 @@ Bien que la lance de restrictions fût détruite, Wang Lin ne parut nullement pe
 
 La véritable raison pour laquelle Wang Lin avait lancé cette lance était que sa déduction touchait à son terme; il pouvait briser la formation à tout instant.
 
-La lance de restrictions était brisée et il se trouvait piégé dans cette cage de lumière verte d'un rayon de 10 000 pieds, mais son expression resta imperturbable.
+La lance de restrictions était brisée et il se trouvait piégé dans cette cage de lumière verte d'un rayon de 3,3 kilomètres, mais son expression resta imperturbable.
 
 Dans l'esprit de Wang Lin, la déduction continuait de converger vers une solution!
 
@@ -78,7 +78,7 @@ Ses yeux brillaient d'un feu fantomatique semblable aux flammes des enfers, capa
 
 Le rire dément d'Ouyang Hua s'éleva de la vallée. « Ah vraiment? Alors laisse ce vieil homme te montrer qui est le véritable impudent ici! Figure verte, tue et collecte! »
 
-Aussitôt dit, la cage verte entourant la vallée commença à se contracter à une vitesse inimaginable. En un clin d'œil, elle n'était plus qu'à quelques dizaines de pieds de Wang Lin.
+Aussitôt dit, la cage verte entourant la vallée commença à se contracter à une vitesse inimaginable. En un clin d'œil, elle n'était plus qu'à une centaine de mètres de Wang Lin.
 
 Tout cela s'était produit dans le temps d'un seul battement de paupière!
 
@@ -92,7 +92,7 @@ Le premier symbole libéra une lumière fantomatique en quittant les yeux de Wan
 
 Alors que la cage de lumière verte se refermait avec frénésie, tout être vivant sur son passage se flétrissait comme dévoré par une force invisible. À mesure qu'elle convergeait vers le centre, l'aura qu'elle dégageait devenait de plus en plus oppressante.
 
-Au terme d'un autre éclair, la lumière verte ne se trouvait plus qu'à neuf mètres de Wang Lin.
+Au terme d'un autre éclair, la lumière verte ne se trouvait plus qu'à une dizaine de mètres de Wang Lin.
 
 Cependant, à cet instant précis, le premier symbole de restriction complet apparut dans les yeux de Wang Lin. Le symbole fusionna avec le vide et se propagea en ondes concentriques. Ces ondulations entrèrent immédiatement en collision avec le filet vert qui se refermait sur lui.
 
@@ -104,7 +104,7 @@ Le crépitement provenant de la cage devint plus intense. Cette fois, des lignes
 
 « 30 ensembles de symboles de restriction! » Les yeux de Wang Lin scintillèrent de nouveau, et cette fois, trente symboles apparurent avant de fusionner rapidement dans le néant.
 
-La cage de lumière verte qui se trouvait à moins de neuf mètres de lui s'effondra instantanément! Elle se mua en d'innombrables étincelles semblables à un ciel étoilé, offrant un spectacle d'un grand mystère.
+La cage de lumière verte qui se trouvait à moins de dix mètres de lui s'effondra instantanément! Elle se mua en d'innombrables étincelles semblables à un ciel étoilé, offrant un spectacle d'un grand mystère.
 
 L'expression de Wang Lin demeura sereine tandis qu'il contemplait la vallée. Simultanément, les étranges ensembles de symboles continuaient de clignoter dans son regard.
 

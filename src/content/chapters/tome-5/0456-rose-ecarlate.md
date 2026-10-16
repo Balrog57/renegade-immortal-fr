@@ -10,7 +10,7 @@ Si Papillon Rouge était là, alors Qian Feng ne devait pas être loin non plus.
 
 Le regard de Wang Lin demeura calme alors qu'il joignit les mains en signe de salut vers Papillon Rouge et lança d'une voix forte: « Cela fait longtemps, chercheuse de voie Papillon Rouge. »
 
-La silhouette rouge sur le sommet non loin de là semblait empreinte d'un profond vide. Elle jeta un regard intense à Wang Lin, puis, en un clin d'œil, disparut du sommet pour réapparaître à mille pieds de lui.
+La silhouette rouge sur le sommet non loin de là semblait empreinte d'un profond vide. Elle jeta un regard intense à Wang Lin, puis, en un clin d'œil, disparut du sommet pour réapparaître à trois cent trente mètres de lui.
 
 Lorsqu'elle fut à sa hauteur, l'image de ses yeux creux et évidés s'imprima dans l'esprit de Wang Lin. Son expression devint très sombre. Il avait entendu ce qui était arrivé à Papillon Rouge et avait même perçu sa présence lors de son combat contre Qian Feng.
 
@@ -20,7 +20,7 @@ Ce que Wang Lin percevait dans les yeux de Papillon Rouge, c'était l'image mêm
 
 L'actuelle Papillon Rouge était toujours belle, mais Wang Lin ne pouvait plus y déceler la fierté et l'arrogance de la fille du ciel qu'elle avait été autrefois.
 
-La Papillon Rouge d'autrefois était le génie de Xue Yue, la fille bénie des cieux, celle qui avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs brefs affrontements avaient fini par mener à leur bataille décisive.
+La Papillon Rouge d'autrefois était le génie de Xue Yue, la fille bénie des cieux, celle qui avait atteint le stade de la Formation de l'Âme en seulement cent ans. Elle considérait Wang Lin comme une simple fourmi, et leurs brefs affrontements avaient fini par mener à leur bataille décisive.
 
 Malgré cela, dans le cœur de Wang Lin, il lui vouait toujours un respect certain. Ce respect était celui que l'on accorde à un adversaire de valeur.
 
@@ -52,7 +52,7 @@ Wang Lin fronça légèrement les sourcils. Il n'était pas pressé de trouver Q
 
 Cependant, maintenant qu'elle était sous ses yeux, la situation était étrange; mais puisque Qian Feng voulait aller l'explorer, il n'avait qu'à le laisser faire.
 
-Les yeux de Papillon Rouge s'illuminèrent et elle fit tournoyer son épée rouge. La lame quitta sa main pour foncer vers la tête de Wang Lin telle une éclair.
+Les yeux de Papillon Rouge s'illuminèrent et elle fit tournoyer son épée rouge. La lame quitta sa main pour foncer vers la tête de Wang Lin tel un éclair.
 
 Wang Lin recula d'un pas, sa main droite effleurant son sac de rangement, et le drapeau de restriction apparut dans sa paume. Il secoua l'étendard, libérant d'innombrables restrictions qui formèrent des boucliers devant lui.
 
@@ -78,11 +78,11 @@ Cette parcelle de conscience qu'elle gardait si précieusement préférait mouri
 
 Wang Lin prit une profonde inspiration et fit face à Papillon Rouge. Sa main droite s'avança, et des filaments de gaz de restriction commencèrent à briller en se concentrant dans sa paume.
 
-Une lance noire de trente pieds se matérialisa dans sa main.
+Une lance noire d'une dizaine de mètres se matérialisa dans sa main.
 
 Tenant la lance d'une seule main, les yeux de Wang Lin brillèrent comme des éclairs; il fixa Papillon Rouge et projeta une estocade.
 
-Le sifflement produit par le mouvement de la lance ressemblait aux hurlements de centaines de fantômes. Ce son, issu de la pointe de l'arme, résonna dans tout le secteur.
+Le sifflement produit par le mouvement de la lance ressemblait aux hurlements de centaines de fantômes. Ce son, issu de la pointe de l'arme, résonna dans tout le secteur, à plusieurs kilomètres à la ronde.
 
 Elle pressa soudainement le fragment de glace rouge contre son front. À cet instant, une lueur écarlate jaillit de son visage et des couches de glace rouge s'étendirent à partir d'elle, formant une armure de cristal.
 
@@ -102,7 +102,7 @@ L'onde de choc résultant de l'impact fut si violente qu'on aurait dit que le ci
 
 Tout cela se joua en un éclair. Au moment où le Fouet de l'Âme percuta la lance, il fut expulsé de la main de la jeune femme. Il fendit l'onde de choc comme un éclair noir pour charger sur Wang Lin.
 
-Dans un fracas, Wang Lin recula brusquement de plus de mille pieds. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet de l'Âme! »
+Dans un fracas, Wang Lin recula brusquement de plus de trois cents mètres. Ses yeux brillaient d'une lueur étrange alors qu'il grommela: « Fouet de l'Âme! »
 
 Ce fouet lui avait appartenu autrefois, mais il avait dû le rendre aussitôt après l'avoir saisi. Maintenant qu'il le revoyait, il ne comptait pas le laisser repartir!
 

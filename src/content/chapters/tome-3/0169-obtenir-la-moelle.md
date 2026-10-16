@@ -10,7 +10,7 @@ C'était comme si le ciel s'effondrait sur eux sous l'effet d'une puissante bour
 
 Ces talismans formèrent une multitude d'écrans de lumière autour de lui. Puis, au moment où le vent s'abattit, il bondit sur le côté.
 
-Simultanément, le Seigneur Démon des Six Désirs et l'Empereur Ancestral cessèrent tout mouvement. Les deux ne perdirent pas de temps en paroles inutiles. L'Empereur Ancestral affichait une expression d'une grande gravité alors qu'il lançait une cloche antique. Dès son apparition, la relique grandit instantanément et se mit à osciller violemment. À chaque tintement, des ondes de choc étaient projetées, faisant éclater les piliers de pierre environnants.
+Simultanément, le Seigneur Démon des Six Désirs et l'Empereur Antique cessèrent tout mouvement. Les deux ne perdirent pas de temps en paroles inutiles. L'Empereur Antique affichait une expression d'une grande gravité alors qu'il lançait une cloche antique. Dès son apparition, la relique grandit instantanément et se mit à osciller violemment. À chaque tintement, des ondes de choc étaient projetées, faisant éclater les piliers de pierre environnants.
 
 Le serpent qui descendait du ciel tordit son corps pour amorcer une rotation et percuta de plein fouet l'onde de choc. Il laissa échapper un rugissement immédiat et cracha une fumée noire.
 
@@ -22,7 +22,7 @@ Le corps du bossu disparut soudainement. Lorsqu'il réapparut, il se trouvait d�
 
 Il se tenait en titubant sur un pilier de pierre, fixant la créature serpentine d'un regard pensif. Des lambeaux de gaz noir s'échappant de la pustule qu'il avait percée étaient aspirés par le crapaud assis sur son épaule.
 
-Les mains du Seigneur Démon des Six Désirs s'activèrent pour former des sceaux tout en récitant un chant mystérieux. Au même moment, l'Empereur Ancestral lança sa cloche, jetant un regard furtif vers Wang Lin.
+Les mains du Seigneur Démon des Six Désirs s'activèrent pour former des sceaux tout en récitant un chant mystérieux. Au même moment, l'Empereur Antique lança sa cloche, jetant un regard furtif vers Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent. Il recula rapidement et, sans la moindre hésitation, sortit son talisman de niveau Âme Naissante. Simultanément, il cracha son épée de cristal. Celle-ci flotta devant lui, sa pointe dirigée vers le Seigneur Démon des Six Désirs.
 
@@ -38,13 +38,13 @@ Sa main droite pointait l'épée noire alors que le Seigneur Démon des Six Dés
 
 Tout cela se produisit en un éclair. À cet instant précis, le serpent entra en collision avec l'onde de choc de la cloche et cracha de nouveau sa fumée noire. Le Seigneur Démon des Six Désirs ordonna: « Va! »
 
-L'épée noire s'élança soudainement et s'abattit sur le cou de la créature serpentine. L'impact provoqua une douleur intense à la bête, qui fit brusquement basculer sa tête, projetant l'épée noire au loin.
+L'épée noire s'élança soudainement et s'abattit sur le haut du crâne de la créature serpentine. L'impact provoqua une douleur intense à la bête, qui fit brusquement basculer sa tête, projetant l'épée noire au loin.
 
 Ce mouvement fit jaillir le sang du nez et de la bouche du jeune homme aux côtés du Seigneur Démon des Six Désirs. Son corps devint d'une faiblesse extrême, et la confusion dans son regard s'accentua.
 
-L'Empereur Ancestral tourna sa main droite, faisant sonner la cloche avec une cadence encore plus rapide. Une salve d'ondes de choc fut ainsi projetée vers la créature.
+L'Empereur Antique tourna sa main droite, faisant sonner la cloche avec une cadence encore plus rapide. Une salve d'ondes de choc fut ainsi projetée vers la créature.
 
-Alors que la créature serpentine repoussait une fois de plus l'épée noire, elle fut frappée par les ondes de choc de la cloche. Elle secoua soudainement son corps, révélant un regard assoiffé de sang avant d'ouvrir la gueule. Alors qu'elle s'ouvrait, capable d'engloutir une petite montagne, une silhouette fantomatique s'en échappa brusquement. L'expression de l'Empereur Ancestral changea et il fit disparaître sa cloche en hâte.
+Alors que la créature serpentine repoussait une fois de plus l'épée noire, elle fut frappée par les ondes de choc de la cloche. Elle secoua soudainement son corps, révélant un regard assoiffé de sang avant d'ouvrir la gueule. Alors qu'elle s'ouvrait, capable d'engloutir une petite montagne, une silhouette fantomatique s'en échappa brusquement. L'expression de l'Empereur Antique changea et il fit disparaître sa cloche en hâte.
 
 Le Sens Divin de Wang Lin était resté focalisé sur la créature serpentine tout au long du combat. Lorsqu'elle avait ouvert la gueule, il avait clairement vu un serpent plus petit s'envoler. Ce dernier avait mordu la cloche avant de se retirer prestement.
 
@@ -66,7 +66,7 @@ Le cœur de Wang Lin trembla. Les techniques de ces cinq individus étaient d'un
 
 La créature serpentine, accablée par la douleur, poussa un rugissement et se tordit frénétiquement. Un vortex commença à se former autour d'elle, aspirant les piliers de pierre environnants vers son corps.
 
-Dès l'apparition du vortex, Duanmu Ji et Wang Qingyue furent les premiers à s'y engouffrer, le visage empreint d'une gravité extrême. Quant à l'Empereur Ancestral, sa mine était plus sombre encore, car le lien avec son trésor avait été rompu.
+Dès l'apparition du vortex, Duanmu Ji et Wang Qingyue furent les premiers à s'en extraire, le visage empreint d'une gravité extrême. Quant à l'Empereur Antique, sa mine était plus sombre encore, car le lien avec son trésor avait été rompu.
 
 Le vortex s'intensifia, et la force de succion obligea tout le monde à reculer précipitamment.
 
@@ -86,7 +86,7 @@ Le Bossu Meng dépassa Wang Lin. Son objectif était le second serpent tapi dans
 
 Li Muwan lui avait dit un jour que, pour ces créatures semblables à des dragons, la partie la plus précieuse n'était pas le noyau, mais la moelle. C'était pour cette moelle que Wang Lin risquait sa vie.
 
-Depuis qu'il avait aperçu la créature, il l'observait secrètement. Selon Li Muwan, l'efficacité de la moelle dépendait de l'âge du dragon. Si celui-ci avait atteint un âge certain, il pouvait grandement favoriser la formation de l'Âme Naissante.
+Depuis qu'il avait aperçu la créature, il l'observait secrètement. Selon Li Muwan, l'efficacité de la moelle dépendait de l'âge du dragon. Si celui-ci avait atteint un âge certain, il pouvait, à un degré variable, favoriser la formation de l'Âme Naissante.
 
 Bien qu'il ignorât si cette créature était véritablement un dragon, même dans le cas contraire, elle appartenait à une lignée similaire. S'il parvenait à obtenir la moelle, elle aurait au moins un certain effet.
 
@@ -108,4 +108,4 @@ Ses yeux brillèrent alors qu'il se déplaçait rapidement vers un autre point: 
 
 C'est à ce moment que le petit serpent intérieur commença à trembler, libérant des lambeaux de gaz noir. Wang Lin esquiva prestement sur le côté et chargea vers la tête du serpent.
 
-Bientôt, il atteignit la tête. Un filament rouge scintillait précisément à la jonction de la tête et du cou. Wang Lin prit une profonde inspiration et mobilisa toute l'énergie spirituelle de son corps. Il frappa son sac de rangement et, soudain, des centaines d'épées volantes apparurent. Son Sens Divin se propagea pour prendre le contrôle de chacune d'elles. Les pointes de toutes les épées furent dirigées vers le filament rouge, l'attaquant avec acharnement.
+Bientôt, il atteignit la tête. Une fine membrane rouge scintillait précisément à la jonction de la tête et du cou. Wang Lin prit une profonde inspiration et mobilisa toute l'énergie spirituelle de son corps. Il frappa son sac de rangement et, soudain, des centaines d'épées volantes apparurent. Son Sens Divin se propagea pour prendre le contrôle de chacune d'elles. Les pointes de toutes les épées furent dirigées vers le filament rouge, l'attaquant avec acharnement.

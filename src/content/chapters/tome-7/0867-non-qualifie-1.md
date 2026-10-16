@@ -22,7 +22,7 @@ Maître Flamespark reprit calmement: « La Pierre de l'Investiture Céleste s'es
 
 « Les trois épreuves du Ciel, de la Terre et de l'Homme. La première épreuve est celle de l'Homme. Si vous pouvez tenir dix respirations, alors vous réussissez! »
 
-« Luo Su, entre dans le lac du tonnerre! » La voix de Maître Thunderspark résonna dans toute la zone tandis qu'un rayon de lumière verte s'approchait. Cette lumière se mua devant tout le monde en un homme d'âge moyen vêtu de robes vertes.
+« Luo Su, entre dans le lac du tonnerre! » La voix de Maître Flamespark résonna dans toute la zone tandis qu'un rayon de lumière verte s'approchait. Cette lumière se mua devant tout le monde en un homme d'âge moyen vêtu de robes vertes.
 
 L'homme joignit les mains en signe de respect et déclara: « Selon les ordres du Seigneur du Temple! » Tout en parlant, il descendit vers la place. Il se tint au sommet de celle-ci, les mains derrière le dos, une trace d'orgueil perçant son expression sereine.
 
@@ -40,7 +40,7 @@ Après les paroles de Luo Su, la majorité des cultivateurs sortis des réseaux 
 
 Luo Su ne perdit pas de temps et pointa négligemment du doigt un cultivateur du Domaine Nord.
 
-Désigné, le cultivateur hésita un instant, mais cette hésitation poussa Luo Su à lâcher un renflement froid avant d'étendre sa main droite. Une main gigantesque apparut et se précipita si vite que même les cultivateurs alentour en sentirent le souffle.
+Désigné, le cultivateur hésita un instant, mais cette hésitation poussa Luo Su à lâcher un reniflement froid avant d'étendre sa main droite. Une main gigantesque apparut et se précipita si vite que même les cultivateurs alentour en sentirent le souffle.
 
 Cette main colossale fendit l'air avec la rapidité de la foudre et saisit le cultivateur en un instant. Elle le traîna sans pitié vers le bas avant de le projeter sur le côté.
 
@@ -56,7 +56,7 @@ Alors que le coup s'approchait, le visage du cultivateur devint d'une pâleur mo
 
 Les yeux de Wang Lin brillèrent comme des torches en observant la scène. Au moment où le poing du géant doré percuta sa cible, le corps du cultivateur trembla et il cracha un flot de sang. L'âme d'origine fut violemment ébranlée, perdant toute netteté. Terrifiée, l'âme d'origine du cultivateur tenta de se rétracter précipitamment.
 
-Luo Su laissa échapper un renflement froid, le géant doré rétracta son poing, recula de quelques pas et se tint à nouveau aux côtés de Luo Su.
+Luo Su laissa échapper un reniflement froid, le géant doré rétracta son poing, recula de quelques pas et se tint à nouveau aux côtés de Luo Su.
 
 « Déchet! Avec une telle culture et une telle force mentale, tu n'es absolument pas qualifié pour participer à cette compétition céleste. Tu n'es pas digne de cela! » L'impatience dans les yeux de Luo Su s'intensifia. Il estimait que tester cet individu était une pure perte de temps.
 
@@ -80,7 +80,7 @@ Peu de temps après, un autre cultivateur, puis un autre, furent désignés par 
 
 À mesure que les cultivateurs atterrissaient un à un, le mot « déchet » était lancé sans relâche. Même ceux qui réussissaient ne pouvaient échapper aux insultes de Luo Su. L'impatience du juge grandissait jusqu'à ce qu'il en vienne à déclencher le coup du géant doré avant même que le participant n'ait touché le sol.
 
-Le temps passa rapidement. Plus de la moitié des cultivateurs avaient été testés et environ 40 % d'entre eux s'étaient qualifiés. L'homme aux six doigts, le garçon à la grosse tête et Nangong Shan, dotés de niveaux de culture élevés, passèrent tous avec succès. Ce n'est que lors de leurs tests que l'expression de Luo Su s'adoucit et qu'il cessa de les traiter de déchets.
+Environ une heure plus tard, plus de la moitié des cultivateurs avaient été testés et environ 40 % d'entre eux s'étaient qualifiés. L'homme aux six doigts, le garçon à la grosse tête et Nangong Han, dotés de niveaux de culture élevés, passèrent tous avec succès. Ce n'est que lors de leurs tests que l'expression de Luo Su s'adoucit et qu'il cessa de les traiter de déchets.
 
 « Toi, descends! » Luo Su pointa un individu dans le ciel. Il s'agissait de Xu Ting, venu de la planète Dong Lin. Ses yeux brillèrent d'une lueur rouge et il afficha un sourire sinistre.
 

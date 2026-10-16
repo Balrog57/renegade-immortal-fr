@@ -15,7 +15,7 @@ Si l'on ne parvient pas à appréhender les cieux, peu importe la quantité d'é
 
 S'il tente de s'en servir par la force, il pourra blesser son ennemi, mais il se blessera lui-même en retour.
 
-Comprendre les cieux et obtenir un domaine est ce qui permet au nourrisson de manier l'arme. C'est l'unique moyen d'acquérir la capacité de wielding ce pouvoir. Ce n'est qu'après avoir compris les cieux que l'on peut exercer cette puissance comme si elle était la sienne.
+Comprendre les cieux et obtenir un domaine est ce qui permet au nourrisson de manier l'arme. C'est l'unique moyen d'acquérir la capacité de manier ce pouvoir. Ce n'est qu'après avoir compris les cieux que l'on peut exercer cette puissance comme si elle était la sienne.
 
 En conséquence, cette étape est appelée Formation de l'Âme.
 
@@ -23,15 +23,15 @@ Une fois que l'on possède la force de manier ce pouvoir, on dépasse largement 
 
 Cependant, cette âme n'est pas le type d'âme ordinaire répertorié dans les annales; c'est un état d'esprit, un changement de cœur, un royaume extrêmement mystérieux. Ce royaume est similaire à l'âme décrite dans les textes, et c'est ainsi que la phase de Formation de l'Âme fut nommée.
 
-Mais le simple fait de posséder ce pouvoir ne suffit pas. Même si un nourrisson a la force de l'employer, il ne peut le faire longtemps. C'est ainsi qu'apparut l'Âme d'Origine. Une fois que le nourrisson grandit, il devient naturellement capable de stocker davantage de puissance: c'est cela, l'Âme d'Origine.
+Mais le simple fait de posséder ce pouvoir ne suffit pas. Même si un nourrisson a la force de l'employer, il ne peut le faire longtemps. C'est ainsi qu'apparut l'Âme Principale. Une fois que le nourrisson grandit, il devient naturellement capable de stocker davantage de puissance: c'est cela, l'Âme Principale.
 
-Pour former une Âme d'Origine, il faut un domaine et un Sens Divin. Ceux-ci fusionnent ensuite pour former l'Âme Naissante, et ainsi, une nouvelle âme naît. C'est l'Âme d'Origine!
+Pour former une Âme Principale, il faut un domaine et un Sens Divin. Ceux-ci fusionnent ensuite pour former une partie de l'Âme Naissante, et ainsi, une nouvelle âme naît. C'est l'Âme Principale!
 
 Quant au pouvoir qui peut être utilisé, il s'agit du pouvoir des cieux. Les cultivateurs de la Formation de l'Âme peuvent invoquer le pouvoir céleste, ce que les cultivateurs de l'Âme Naissante ne peuvent faire. Ce pouvoir des cieux est le domaine. Selon le domaine que l'on comprend des cieux, on sera capable de manifester différentes puissances célestes.
 
-À cet instant, Wang Lin comprit tout. Il regarda lentement la terre devant lui et, après un long moment, son Âme d'Origine redescendit lentement. Son Âme d'Origine retourna dans la grotte et pénétra dans son front, finissant par fusionner de nouveau avec son corps.
+À cet instant, Wang Lin comprit tout. Il regarda lentement la terre devant lui et, après un long moment, son Âme Principale redescendit lentement. Son Âme Principale retourna dans la grotte et pénétra dans son front, finissant par fusionner de nouveau avec son corps.
 
-À ce moment précis, toute l'énergie spirituelle du corps de Wang Lin disparut pour fusionner avec son Âme d'Origine.
+À ce moment précis, toute l'énergie spirituelle du corps de Wang Lin disparut pour fusionner avec son Âme Principale.
 
 Après un long moment, Wang Lin ouvrit lentement les yeux. Son regard évoquait celui d'un nouveau-né, avec une distinction parfaite entre le noir et le blanc, imprégné d'une aura singulière.
 
@@ -79,7 +79,7 @@ Une voix suave résonna dans sa tête: « N'y pense plus. Une fois que tu auras 
 
 L'homme frémit. En levant les yeux, il vit que Wang Lin lui adressait un sourire évanescent.
 
-Wang Lin prit une profonde inspiration et contempla le pays qui s'étendait devant lui. À moins d'un événement exceptionnel, il ne reviendrait pas à Zhao avant qu'un de ses fils n'atteigne le stade avancé de l'Âme Naissante. Son corps s'éleva lentement dans les airs et finit par disparaître dans l'immensité du ciel. Au sol, tous les cultivateurs levèrent la tête, le regard empreint d'une détermination nouvelle. C'était particulièrement vrai pour l'homme d'âge moyen.
+Wang Lin prit une profonde inspiration et contempla le pays qui s'étendait devant lui. À moins d'un événement exceptionnel, il ne reviendrait pas à Zhao avant qu'un habitant de Zhao n'atteigne le stade avancé de l'Âme Naissante. Son corps s'éleva lentement dans les airs et finit par disparaître dans l'immensité du ciel. Au sol, tous les cultivateurs levèrent la tête, le regard empreint d'une détermination nouvelle. C'était particulièrement vrai pour l'homme d'âge moyen.
 
 « J'atteindrai le stade de l'Âme Naissante! Je le ferai! »
 

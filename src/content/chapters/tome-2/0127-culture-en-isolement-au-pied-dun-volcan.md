@@ -6,9 +6,9 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 127 - Closed Door Cultivation at a Volcano
 slug: culture-en-isolement-au-pied-dun-volcan
 ---
-Du début à la fin, Wang Lin ne jeta pas un regard à la jeune femme. Celle-ci contemplait la direction dans laquelle il avait disparu, le regard empreint de confusion. Autrefois, Mai Liang l'avait sans cesse harcelée. Même lorsqu'elle lui criait dessus ou le frappait, il n'en revenait jamais.
+Du début à la fin, Wang Lin ne jeta pas un regard à la jeune femme. Celle-ci contemplait la direction dans laquelle il avait disparu, le regard empreint de confusion. Autrefois, Mai Liang l'avait sans cesse harcelée. Qu'elle le frappe ou lui crie dessus, il ne cessait jamais de la harceler.
 
-Elle et Mai Liang avaient grandi dans le même village. Leurs familles étaient très proches et leurs parents avaient arrangé leur mariage dès leur enfance. Plus tard, ils furent tous deux acceptés au Temple du Dieu de la Guerre. Plus elle regardait Mai Liang, plus elle le voyait comme un simple paysan, ce qui lui inspirait un profond dégoût. Ils étaient déjà fiancés, mais elle cachait soigneusement cette réalité. Elle s'était servie de cet engagement pour tromper Mai Liang et l'inciter à partir sur le champ de bataille étranger, lui faisant miroiter qu'à son retour, elle formerait un couple de culture avec lui.
+Elle et Mai Liang avaient grandi dans le même village. Leurs familles étaient très proches et leurs parents avaient arrangé leur mariage dès leur enfance. Plus tard, ils furent tous deux acceptés au Sanctuaire du Dieu de la Guerre. Plus elle regardait Mai Liang, plus elle le voyait comme un simple paysan, ce qui lui inspirait un profond dégoût. Ils étaient déjà fiancés, mais elle cachait soigneusement cette réalité. Elle s'était servie de cet engagement pour tromper Mai Liang et l'inciter à partir sur le champ de bataille étranger, lui faisant miroiter qu'à son retour, elle formerait un couple de culture avec lui.
 
 Mais voilà que Mai Liang était revenu et l'ignorait totalement. À ce propos, Xu Si éprouvait un sentiment étrange dans son cœur. Conjugué à cette sensation soudaine qui la fit frissonner, ce contraste saisissant laissa son esprit vide.
 
@@ -16,13 +16,13 @@ Quant à Wang Lin, il vola longtemps dans cette terre étrangère de Huo Fen, av
 
 Huo Fen tirait son nom de la multitude de ces volcans, petits et grands. S'ils n'avaient pas été surveillés et scellés par des cultivateurs, ils auraient déjà fait éruption. Dans l'histoire de Huo Fen, il ne s'était jamais produit d'éruption massive, ce qui était en grande partie dû à la vigilance des cultivateurs pour les maintenir sous contrôle.
 
-Après avoir observé les environs, Wang Lin s'éloigna et arriva aux abords d'un village. Celui-ci était très animé et les enfants jouaient dehors. Wang Lin ressentit une vague de douleur dans son cœur. Après un long moment, il entra lentement dans le village.
+Après avoir observé les environs, Wang Lin s'éloigna et arriva aux abords d'un village. Celui-ci était très animé, en pleine saison des travaux des champs, et les enfants jouaient dehors. Wang Lin ressentit une vague de douleur dans son cœur. Après un long moment, il entra lentement dans le village.
 
 Il trouva quelques seaux dans une maison déserte. Une fois remplis d'eau, il s'envola rapidement.
 
 De retour vers les volcans, il découvrit une grotte naturelle. Il la scella immédiatement et utilisa des roches pour ériger des formations défensives. Ce n'est qu'après cela qu'il s'assit en tailleur et commença à cultiver.
 
-Après avoir accompli tout cela, le visage de Wang Lin était d'une pâleur extrême. Il avait subi de lourdes blessures sur le champ de bataille étranger et son sens divin était totalement brisé. Il s'était échappé grâce à ce fragment de Sens Divin du Royaume Ji, puis, faisant fi de ses blessures, il avait utilisé ce fragment pour faciliter sa fuite et sa convalescence.
+Après avoir accompli tout cela, le visage de Wang Lin était d'une pâleur extrême. Il avait subi de lourdes blessures sur le champ de bataille étranger et son sens divin était totalement brisé. Il s'était échappé grâce à ce fragment de Sens Divin du Royaume Ji, puis, faisant fi de ses blessures, il avait utilisé ce fragment pour dissimuler ses blessures et pouvoir quitter les lieux afin de se soigner ailleurs.
 
 Une fois la culture entamée, il prit une profonde inspiration, ferma les yeux pour nourrir son âme, et ses pensées plongèrent dans sa propre conscience.
 
@@ -56,7 +56,7 @@ Le brouillard gris combla les interstices, puis toute la mer de conscience se ca
 
 Dans les profondeurs de l'océan doré, l'éclair rouge reposait, absorbant lentement l'énergie de l'océan.
 
-Wang Lin sentait clairement que son Sens Divin du Royaume Ji grandissait au sein de cet océan. Bien que la progression fût lente, il pressentait que s'il restait en vie, dans des dizaines de milliers d'années, son âme retrouverait sa puissance d'antan.
+Wang Lin sentait clairement que son Sens Divin du Royaume Ji grandissait au sein de cet océan. Bien que la progression fût lente, il pressentait que s'il restait en vie, dans des millions d'années, son âme retrouverait sa puissance d'antan.
 
 Si ce jour venait, alors même les lois du monde ne seraient plus rien à ses yeux. Il pourrait entrer et sortir du monde de la décadence à sa guise.
 
@@ -92,11 +92,11 @@ L'Âme Naissante de Situ Nan était toujours là, mais elle avait rétréci pour
 
 L'Âme Naissante était très terne, semblait léthargique et ses yeux étaient clos. À ses côtés flottaient deux faibles lueurs.
 
-Wang Lin versa deux larmes en s'inclinant devant ces deux lumières. Puis, il s'assit, sortit les quatre seaux, but une grande gorgée d'eau et commença à cultiver.
+Wang Lin versa deux larmes, s'agenouilla devant ces deux lueurs et se prosterna à plusieurs reprises. Puis, il s'assit, sortit les quatre seaux, but une grande gorgée d'eau et commença à cultiver.
 
 Le corps de Wang Lin ne possédait plus aucune trace de culture; il allait donc devoir tout recommencer depuis le stade de la Condensation de Qi. Cependant, que ce soit dans le corps de Wang Lin ou celui de Mai Liang, les deux avaient déjà expérimenté cette étape. Grâce à cela, Wang Lin récupérait sa culture avec facilité.
 
-Le temps s'écoula et, en un clin d'œil, une année passa. Bien qu'une seule année se fût écoulée dans la réalité, sept ans s'étaient passés dans l'espace de rêve.
+Le temps s'écoula et, en un clin d'œil, une année passa. Bien qu'une seule année se fût écoulée dans la réalité, près de sept ans s'étaient passés dans l'espace de rêve.
 
 Durant cette année, que ce soit dans l'espace de rêve ou à l'extérieur, Wang Lin consacra tout son temps à la culture. Il n'en sortait que pour renouveler son eau spirituelle.
 

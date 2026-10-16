@@ -19,7 +19,7 @@ Li Dannan afficha immédiatement une expression respectueuse et demanda: « Aîn
 
 Wang Lin répondit calmement: « Je cherche la pierre de bois du vide. En avez-vous entendu parler? »
 
-« La pierre de bois du vide... » Li Dannan eut un air pensif avant que ses yeux ne s'illuminent: « S'agit-il de la pierre de bois du vide qui possède l'élément bois, mais qui croît comme une pierre et ne gagne qu'un pouce tous les mille ans? »
+« La pierre de bois du vide... » Li Dannan eut un air pensif avant que ses yeux ne s'illuminent: « S'agit-il de la pierre de bois du vide qui possède l'élément bois, mais qui croît comme une pierre et ne gagne que 3,3 centimètres tous les mille ans? »
 
 Wang Lin fut très surpris que cet homme connaisse la pierre de bois du vide. Cela prouvait qu'il en savait long. Cette pierre était l'un des matériaux mentionnés dans les souvenirs de Tu Si pour la fabrication de la boussole stellaire d'un Dieu Ancien.
 
@@ -71,7 +71,7 @@ Une fine couche de lumière entourait la pierre. C'était un sort que tout march
 
 Wang Lin fit un geste de la main. La pierre s'envola instantanément de la main du vieil homme pour atterrir dans celle de Wang Lin. La lumière ne sembla avoir aucun effet et se brisa dès que la pierre de bois du vide eut quitté la main du vendeur.
 
-L'expression du vieil homme changea et il prit une profonde inspiration. Il pensait avoir surestimé la culture de ce jeune homme, mais il l'avait en réalité sous-estimée. Ce jeune homme devait être au moins au stade de la Transformation de l'Âme!
+L'expression du vieil homme changea et il prit une profonde inspiration. Il avait pourtant jugé très haut la culture de ce jeune homme, mais il l'avait en réalité sous-estimée. Ce jeune homme devait être au moins au stade de la Transformation de l'Âme!
 
 Wang Lin examina la pierre de bois du vide. Après avoir confirmé qu'il s'agissait du bon article, il fit un geste pour la ranger dans son propre sac de rangement.
 
@@ -101,7 +101,7 @@ Li Dannan répondit promptement: « L'Aîné l'ignore peut-être, mais la plupar
 
 « On peut même payer pour engager des gardes auprès du seigneur de la ville. Cependant, depuis longtemps, le commerce est intrinsèquement risqué; tout dépend donc du destin. »
 
-Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer des Diables, il avait été traqué à cause du fourneau de pilules.
+Wang Lin sourit. Il se sentait étranger dans ce lieu, mais n'est-ce pas ainsi que les choses allaient toujours? Dans la Mer des Démons, il avait été traqué à cause du fourneau de pilules.
 
 Wang Lin leva les yeux vers le ciel et demanda: « Y a-t-il de l'encre de neige ici? »
 
@@ -113,7 +113,7 @@ Wang Lin détourna le regard et dit calmement: « Oh? Parle-moi d'eux. »
 
 Li Dannan s'exécuta immédiatement: « La boutique du clan Shang est la plus importante de la ville de Ming Mei; elle occupe le premier rang. On raconte qu'elle est soutenue par une planète de culture de rang 7 et qu'elle possède des succursales sur plusieurs planètes commerciales.
 
-« Quiconque achète chez eux est protégé par la boutique jusqu'à ce qu'il se trouve à 50 000 kilomètres de la planète. Si on le demande, ils vous protégeront même jusqu'à votre propre planète de culture! »
+« Quiconque achète chez eux est protégé par la boutique jusqu'à ce qu'il se trouve à 500 000 kilomètres de la planète. Si on le demande, ils vous protégeront même jusqu'à votre propre planète de culture! »
 
 En entendant cela, Wang Lin hocha la tête: « Montre-moi le chemin! »
 

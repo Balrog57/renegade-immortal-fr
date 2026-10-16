@@ -24,11 +24,11 @@ Une lueur mystérieuse brilla dans les yeux de Wang Lin. Il s'était éveillé. 
 
 « La rétribution divine... » Wang Lin prit une inspiration glacée. Il se souvenait encore de la rétribution divine des Terres de l'Esprit Démon. Face à elle une nouvelle fois, ses yeux brillèrent d'un éclat vif.
 
-Dès son éveil, il perçut le chaos qui régnait en lui. Sans cette rétribution divine, son corps aurait explosé bien avant.
+Dès son éveil, il perçut le chaos qui régnait en lui. Si ce chaos n'était pas résolu au plus vite, son corps exploserait de lui-même, sans même que la rétribution divine ait besoin de le tuer.
 
 « Cette rétribution arrive au moment opportun! » Les yeux de Wang Lin s'illuminèrent. C'était la première fois qu'il se réjouissait de l'arrivée d'une telle calamité. Sa main droite pressa le sol et il s'élança dans les airs sans la moindre hésitation.
 
-L'épée céleste à ses côtés poussa immédiatement un cri: « Maître... Maître... emmenez-moi avec vous! Je veux retourner dans le sac de rangement. Cet endroit est terrifiant... »
+Depuis l'épée céleste à ses côtés, Xu Liguo poussa immédiatement un cri: « Maître... Maître... emmenez-moi avec vous! Je veux retourner dans le sac de rangement. Cet endroit est terrifiant... »
 
 Alors que Wang Lin s'élevait, il agita sa main droite. L'épée céleste vola vers lui et fut rangée dans son sac de rangement. La montagne céleste fut également mise de côté.
 
@@ -52,7 +52,7 @@ Une véritable âme originelle est capable de dévorer l'énergie originelle pou
 
 Les anciens cultivateurs cultivaient le Qi, et ce Qi était l'énergie originelle. Une fois cette énergie cultivée assez longtemps, elle formait l'âme originelle!
 
-Les cultivateurs actuels avaient reculé d'une étape. Ce n'est qu'en atteignant la seconde étape que les cultivateurs d'aujourd'hui pourraient rattraper les anciens.
+Les cultivateurs actuels avaient reculé d'une étape. Ce n'est qu'en atteignant le stade Yin Illusoire que les cultivateurs d'aujourd'hui pourraient rattraper les anciens.
 
 À cet instant, une puissante énergie originelle afflua dans son âme, provoquant une mutation fulgurante de celle-ci. Son âme originelle franchissait le pas décisif vers l'étape suivante!
 
@@ -60,9 +60,9 @@ Le sommet du stade avancé de l'Ascendant était enfin brisé!
 
 Au moment de la percée, Wang Lin sembla ressentir son propre Dao! C'était comme si tout dans le monde devenait d'une clarté absolue.
 
-Un rire s'échappa de sa bouche, un rire qui perça les nuages et se propagea vers le monde extérieur.
+Un long cri s'échappa de sa bouche, un cri qui perça les nuages et se propagea vers le monde extérieur.
 
-L'Ancêtre du Sang observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce rire, son expression changea radicalement.
+L'Ancêtre du Sang observait les nuages, espérant que Wang Lin soit terrassé par la rétribution divine. Cependant, en entendant ce cri, son expression changea radicalement.
 
 « Yin Illusoire... » Le visage de l'Ancêtre du Sang s'assombrit et il murmura: « Il semble que la moitié de mon corps de sang contenait assez d'énergie originelle pour qu'il puisse temporairement résister à la rétribution et atteindre le stade Yin Illusoire... Mais cela reste encore... »
 

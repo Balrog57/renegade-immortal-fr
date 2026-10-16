@@ -14,7 +14,7 @@ Lorsqu'il vit le trident entrer dans le trou noir avec l'Omniscient, il ressenti
 
 Ling Tianhou et l'homme en violet se transformèrent en rayons de lumière et foncèrent vers le trou noir. Cependant, ils s'arrêtèrent brusquement.
 
-Alors que Wang Lin s'apprêtait à pénétrer dans le trou noir, il se retourna soudainement pour regarder les étoiles. Le vieil homme sur la calebasse noire et Situ Nan l'avaient devancé en scrutant l'horizon.
+Alors que Wang Lin s'apprêtait à pénétrer dans le trou noir, il se retourna soudainement pour regarder les étoiles. Le vieil homme sur la calebasse et Situ Nan l'avaient devancé en scrutant l'horizon.
 
 Une ondulation apparut, et un vieil homme en émergea. En un seul pas, il arriva devant tout le monde.
 
@@ -28,9 +28,9 @@ Les pupilles de Wang Lin se rétractèrent. Le vieil homme s'était fusionné av
 
 Cette aura était très différente de celle de l'Omniscient. Si l'Omniscient était un océan insondable, ce vieil homme était une montagne colossale perçant les cieux. Son aura puissante se propagea, forçant les cultivateurs les plus faibles à cracher du sang et à battre en retraite immédiatement.
 
-Les yeux de Situ Nan s'illuminèrent et il murmura: « Brisueur de Nirvana! » Il réfléchit un instant avant de ricaner. Ses yeux brillaient de cette arrogance propre à celui qui méprise tout ce qui l'entoure.
+Les yeux de Situ Nan s'illuminèrent et il murmura: « Briseur du Nirvana! » Il réfléchit un instant avant de ricaner. Ses yeux brillaient de cette arrogance propre à celui qui méprise tout ce qui l'entoure.
 
-« Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Brisueur de Nirvana... Ce vieil homme s'est laissé aller à la paresse... »
+« Si je veux m'amuser dans ce monde, j'ai besoin d'une culture capable de le subjuguer. Briseur du Nirvana... Ce vieil homme s'est laissé aller à la paresse... »
 
 Le vieil homme portait une robe dorée et ses cheveux étaient mi-noirs, mi-blancs, dégageant une aura ancestrale. Il regarda Ling Tianhou avec un sourire d'admiration.
 

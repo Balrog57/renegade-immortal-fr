@@ -22,7 +22,7 @@ Une fois la goutte de sang dorée apparue, le corps de Lin Tao parut bien plus a
 
 Wang Lin agita la main. Après avoir capturé le sang, son regard se posa sur le frère aîné Yang.
 
-En voyant Wang Lin accepter la goutte de sang doré, Lin Tao poussa un long soupir de soulagement. Sa vie était sauve. Il était très intelligent et fut sans doute le premier à comprendre que quelque chose n'allait pas: il avait réalisé que Mai Liang était déjà morte et qu'un autre l'avait possédée, mais il n'avait pas osé le mentionner aux deux autres.
+En voyant Wang Lin accepter la goutte de sang doré, Lin Tao poussa un long soupir de soulagement. Sa vie était sauve. Il était très intelligent et fut sans doute le premier à comprendre que quelque chose n'allait pas: il avait réalisé que Mai Liang était déjà mort et qu'un autre l'avait possédé, mais il n'avait pas osé le mentionner aux deux autres.
 
 Lin Tao savait aussi que suivre Wang Lin était son unique chance de survie. Même si Wang Lin ne le tuait pas et le laissait simplement tranquille, il finirait par mourir; ce fut donc une décision qu'il n'eut même pas à peser. Lorsque Wang Lin avait ordonné à l'âme errante de le poursuivre, il avait compris que Wang Lin avait percé son secret, c'est pourquoi il n'avait pas tenté de jouer l'idiot. Cela n'aurait fait qu'accélérer sa perte.
 
@@ -38,11 +38,11 @@ Il n'avait pas été plus lent que Lin Tao pour spéculer sur le fait que les co
 
 Après avoir offert sa goutte de sang, il regarda sa sœur cadette Zhou Zihong d'un air complexe et dit: « Sœur cadette, tu... »
 
-Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Senior... quand vous avez possédé ce corps, Mai Liang était-elle morte ou vivante? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
+Zhou Zihong lui fit signe de se taire. Elle fixa Wang Lin en se mordant la lèvre inférieure et demanda: « Senior... quand vous avez possédé ce corps, Mai Liang était-il mort ou vivant? » Son regard devint soudainement calme alors qu'elle soutenait celui de Wang Lin.
 
 Elle avait voulu poser cette question dès qu'elle avait remarqué que quelque chose n'allait pas chez lui.
 
-Wang Lin la regarda et répondit: « Morte. »
+Wang Lin la regarda et répondit: « Mort. »
 
 Zhou Zihong expira. Peu importait que les paroles de Wang Lin soient vraies ou fausses, elle ne voulait plus poser de questions. Intuitivement, elle sentait qu'il ne mentait pas. Ces trois personnes n'étaient même pas des fourmis à ses yeux; il n'avait donc aucune raison de mentir.
 
@@ -68,7 +68,7 @@ Les trois voisins réfléchirent un instant avant de répondre.
 
 « Nouveau dévoreur d'âmes, il y a une chose que tu ne comprends pas. Une fois né en tant qu'âme, on ne peut plus quitter cet endroit. »
 
-« Une âme errante est aussi un type d'âme. Elles ne sont pas aussi puissantes que les démons, mais tout ce qui possède une âme est leur nourriture, et de même, elles sont notre nourriture. »
+« Une âme errante est aussi un type d'âme. Elles ne sont pas aussi puissantes que nous, mais tout ce qui possède une âme est leur nourriture, et de même, elles sont notre nourriture. »
 
 « Nous, les dévoreurs d'âmes, ne pouvons pas dévorer directement l'âme des mortels. Nous ne pouvons que dévorer les âmes errantes pour gagner en puissance. »
 

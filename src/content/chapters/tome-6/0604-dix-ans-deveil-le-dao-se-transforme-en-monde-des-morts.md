@@ -40,7 +40,7 @@ Dès que les généraux démons s'élancèrent, ils furent balayés par la rivi�
 
 Des exclamations de stupeur jaillirent des généraux démons. Ils ne pouvaient croire que le jeune homme devant eux fût aussi puissant!
 
-Un seul sort avait suffi à piéger la plupart d'entre eux! Bien qu'ils ne puissent pas totalement percer les mystères de ce sort, certains parvinrent à en saisir quelques indices!
+Un seul sort avait suffi à piéger tous les généraux! Bien qu'ils ne puissent pas totalement percer les mystères de ce sort, certains parvinrent à en saisir quelques indices!
 
 Le visage de l'homme d'âge mûr sur le mur changea comme jamais auparavant. Inconsciemment, il recula de quelques pas, le regard empreint d'incrédulité.
 
@@ -86,7 +86,7 @@ Il ouvrit soudainement les yeux et esquissa un sourire lors de l'activation de l
 
 Alors que la formation s'illuminait, une momie desséchée tomba du vide. Les yeux de la momie étaient encore ouverts, empreints d'une immense amertume.
 
-La mort d'un lieutenant était un événement majeur pour n'importe quel pays de la Terre des Esprits Démoniaques. Le rugissement furieux de l'Empereur Démon du Pays du Démon de Feu résonna dans toute la capitale.
+La mort d'un vice-commandant en chef était un événement majeur pour n'importe quel pays de la Terre des Esprits Démoniaques. Le rugissement furieux de l'Empereur Démon du Pays du Démon de Feu résonna dans toute la capitale.
 
 « Fouillez tout! Trouvez ce cultivateur et tuez-le. Peu importe son identité, je veux sa mort! »
 
@@ -94,7 +94,7 @@ Alors que Wang Lin quittait la ville, à la frontière entre le Pays du Démon d
 
 La puissance du Fruit de l'Ascension Céleste en lui était toujours aussi intense. Loin de diminuer son intention de combat, les tueries ne faisaient que l'accroître! Son intention meurtrière s'intensifiait de plus en plus.
 
-Il se transforma en un météore féroce et chargea vers le lieu où il percevait la source des attaques!
+Il se transforma en un météore féroce, franchit la Montagne des Millions de Démons et fonça vers le lieu qu'il percevait!
 
 Au cours des jours suivants, ce grognement glacial ne fut plus entendu. Le corps de Wang Lin s'était déjà rétabli grâce à toute la force vitale qu'il avait puisée dans la terre. En réalité, son corps atteignait son apogée grâce à cette immense énergie de massacre.
 
@@ -122,7 +122,7 @@ Ce vent démoniaque tourbillonna autour du vieil homme avant de prendre la forme
 
 Une fois apparue, elle s'agenouilla et dit doucement: « Gardienne démoniaque Chanson du Vent, présente! » Si Wang Lin avait été là, il aurait remarqué que cette femme ressemblait énormément au Général Démon Xie Lian.
 
-Peu de temps après, la terre trembla dans une série d'explosions. Le sol, à cent pieds devant le vieil homme, explosa soudainement et un bras totalement noir en surgit.
+Peu de temps après, la terre trembla dans une série d'explosions. Le sol, à une trentaine de mètres devant le vieil homme, explosa soudainement et un bras totalement noir en surgit.
 
 Un vieillard très maigre grimpa hors du sol à quatre pattes, tel une bête sauvage. Il tourna la tête vers le vieil homme et sourit: « Gardien démoniaque Démon de la Terre, présent! »
 

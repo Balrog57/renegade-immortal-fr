@@ -10,9 +10,9 @@ slug: transaction
 
 Yao Xixue réfléchit un instant, puis agita la main devant elle. Une lumière blanche enveloppa son corps nu et elle fut bientôt dissimulée sous une robe blanche.
 
-Le temps passa. Wang Lin continua de cultiver à l'intérieur du camp de l'Armée de l'Armure Noire. Après avoir absorbé l'énergie spirituelle démoniaque de plus de 500 soldats démons et du chef de régiment Sun, le cristal démoniaque dans son corps dépassa les 1 000 rangs lorsqu'il finit par tous les fusionner.
+Le temps passa. Wang Lin continua de cultiver à l'intérieur du camp de l'Armée de l'Armure Noire. Après avoir absorbé l'énergie spirituelle démoniaque de 500 soldats démons et du chef de régiment Sun, le cristal démoniaque dans son corps atteignit près de 1 000 rangs lorsqu'il finit par tous les fusionner.
 
-L'absorption d'énergie spirituelle démoniaque avec un cristal démoniaque de plus de 1 000 rangs était plusieurs fois plus rapide qu'auparavant.
+L'absorption d'énergie spirituelle démoniaque avec un cristal démoniaque de près de 1 000 rangs était plusieurs fois plus rapide qu'auparavant.
 
 Wang Lin ne se souciait en rien des affaires du camp militaire. Il passait tout son temps à absorber l'énergie spirituelle démoniaque pour se préparer à percer le stade avancé de la Transformation de l'Âme.
 
@@ -24,7 +24,7 @@ La voix de Yao Xixue résonna dans l'âme originelle de Wang Lin comme un nuage 
 
 Wang Lin réfléchit un instant avant de refermer les yeux et de poursuivre sa culture.
 
-À minuit, sur l'ancienne montagne située à 1 000 kilomètres du camp militaire, Yao Xixue se tenait au sommet, vêtue de blanc, et attendait silencieusement. Le temps passa lentement, et même après que le soleil commença à poindre à l'horizon, Wang Lin n'était toujours pas apparu.
+À minuit, sur l'ancienne montagne située à 500 kilomètres du camp militaire, Yao Xixue se tenait au sommet, vêtue de blanc, et attendait silencieusement. Le temps passa lentement, et même après que le soleil commença à poindre à l'horizon, Wang Lin n'était toujours pas apparu.
 
 L'expression de Yao Xixue devint glaciale et elle laissa échapper un renâclement méprisant. Puis, son corps se transforma en un rayon de lumière blanche et chargea directement vers le camp militaire de Wang Lin. Elle arriva bientôt à l'extérieur du camp et se téléporta directement à l'intérieur. La formation entourant le camp n'eut aucun effet sur elle; après tout, elle était également l'une des commandantes.
 
@@ -46,7 +46,7 @@ Yao Xixue ne daigna même pas regarder Thirteen lorsqu'elle pointa l'air du doig
 
 Juste au moment où Yao Xixue s'apprêtait à pénétrer dans la pagode, les 9 000 soldats démons accoururent. L'un des chefs de régiment cria rapidement: « Commandante Yao, arrêtez-vous! »
 
-Le visage de Yao Xixue était empreint d'une intention meurtrière; elle agita sa main semblable à du jade derrière elle et un rayon de lumière couleur sang apparut. Les 1 000 pieds environnants furent immédiatement encerclés par cette lueur sanglante, bloquant les soldats démons qui accouraient.
+Le visage de Yao Xixue était empreint d'une intention meurtrière; elle agita sa main semblable à du jade derrière elle et un rayon de lumière couleur sang apparut. Dans un rayon d'environ 330 mètres, tout fut immédiatement encerclé par cette lueur sanglante, bloquant les soldats démons qui accouraient.
 
 « J'ai des affaires privées avec votre commandant Wang, ne nous dérangez pas! » Après avoir lancé cela, Yao Xixue entra dans la pagode.
 
@@ -62,7 +62,7 @@ Les fenêtres de la pagode étaient complètement scellées, aucune lumière ne 
 
 Wang Lin était assis en position du lotus dans l'obscurité, son expression dissimulée par les ombres.
 
-La voix de Wang Lin était très froide: « Puisque vous êtes entrée ici, si vous n'avez rien qui puisse m'intéresser, ne me blâmez pas de vous ignorer. »
+La voix de Wang Lin était très froide: « Puisque vous êtes entrée ici, si vous n'avez rien qui puisse m'intéresser, ne me blâmez pas de ne pas faire preuve de galanterie. »
 
 Il avait atteint un moment critique dans sa culture et prévoyait de s'enfermer en méditation pendant plusieurs mois afin d'affiner l'énergie spirituelle démoniaque dans son corps pour atteindre le stade avancé de la Transformation de l'Âme. Ayant été interrompu, il ne lui accorderait naturellement aucune considération.
 
@@ -114,7 +114,7 @@ Wang Lin réfléchit longuement avant de demander: « De quel type de restrictio
 
 Ce que Yao Xixue disait était en grande partie vrai, mais elle omettait un détail crucial: briser cette restriction était une question de vie ou de mort. Si l'on réussissait, on vivait; si l'on échouait, on mourait!
 
-Elle avait échoué quatre fois, ce qui signifiait qu'elle était morte quatre fois et avait consommé quatre Pilules d'Âme de Sang extrêmement précieuses que son père avait risqué sa vie pour obtenir! Il n'en existait que 13, et la majorité était entre ses mains!
+Elle avait échoué quatre fois, ce qui signifiait qu'elle était morte quatre fois et avait consommé quatre Pilules de l'Âme Sanguine extrêmement précieuses que son père avait risqué sa vie pour obtenir! Il n'en existait que 13, et la majorité était entre ses mains!
 
 Wang Lin réfléchit un instant, puis plissa les yeux: « Où cette restriction est-elle située? »
 

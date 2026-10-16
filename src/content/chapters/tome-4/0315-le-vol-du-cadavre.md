@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 315 - Stealing Corpse
 slug: le-vol-du-cadavre
 ---
-Les yeux de Chi Hu devinrent de plus en plus brillants jusqu'à ce qu'il finisse par pousser un rugissement et se redresser. Des craquements résonnèrent dans tout son corps alors qu'il grandissait, atteignant désormais trente pieds de haut.
+Les yeux de Chi Hu devinrent de plus en plus brillants jusqu'à ce qu'il finisse par pousser un rugissement et se redresser. Des craquements résonnèrent dans tout son corps alors qu'il grandissait, atteignant désormais dix mètres de haut.
 
 De nombreuses veines bleues saillaient sur son corps, lui donnant l'apparence d'un dieu démon.
 
@@ -34,7 +34,7 @@ Bang!
 
 La terre trembla, sans toutefois s'effondrer. Il était manifeste que les attaques de Papillon Rouge et de Chi Hu n'étaient encore qu'au stade avancé de la Formation de l'Âme. Cependant, les lois célestes contenues dans ces assauts dépassaient de loin ce qu'un cultivateur de la Formation de l'Âme pouvait normalement manifester.
 
-Le corps de Chi Hu fut projeté en arrière de plusieurs dizaines de pieds tandis qu'il crachait des bouffées de sang. L'image illusoire derrière lui fronça immédiatement les sourcils et forma un sceau. Chi Hu bougea de concert avec elle alors qu'elle entamait une incantation mystérieuse.
+Le corps de Chi Hu fut projeté en arrière de plusieurs dizaines de mètres tandis qu'il crachait des bouffées de sang. L'image illusoire derrière lui fronça immédiatement les sourcils et forma un sceau. Chi Hu bougea de concert avec elle alors qu'elle entamait une incantation mystérieuse.
 
 Soudain, le ciel s'obscurcit, puis une aura mystérieuse émana de certaines failles spatiales pour se rassembler devant Chi Hu. En un clin d'œil, une sphère gigantesque se forma devant lui, dégageant une pression écrasante.
 
@@ -102,7 +102,7 @@ L'abdomen de Zhou Yi fut lacéré par la griffe, ouvrant une large plaie d'où j
 
 « Ting Er, je ne permettrai à personne de te me voler! Je ne le permettrai pas! »
 
-Privé du contrôle de son âme originelle, son corps s'effondra, le sang jaillissant tandis que son visage virait au violet. Pour Ting Er, Zhou Yi était prêt à laisser son propre corps être détruit. Des milliers d'années de compagnonnage, leurs conversations quotidiennes et leurs moments partagés année après année défilèrent devant ses yeux, le faisant sombrer dans la folie.
+Privé du contrôle de son âme originelle, son corps s'effondra, le sang jaillissant tandis que son visage devint blanc comme du papier. Pour Ting Er, Zhou Yi était prêt à laisser son propre corps être détruit. Des milliers d'années de compagnonnage, leurs conversations quotidiennes et leurs moments partagés année après année défilèrent devant ses yeux, le faisant sombrer dans la folie.
 
 Ting Er était sa boussole sensible.
 

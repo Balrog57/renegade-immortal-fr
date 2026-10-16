@@ -52,7 +52,7 @@ L'homme d'âge moyen se leva prestement, prit le panier et répondit: « Mère, 
 
 La vieille femme ouvrit la bouche comme pour répliquer, mais en voyant le vieil homme qui fixait toujours son petit-fils, elle soupira et secoua silencieusement la tête.
 
-Les jours passèrent l'un après l'autre, mais l'homme d'âge moyen ne revint pas de sa périple...
+Les jours passèrent l'un après l'autre, mais l'homme d'âge moyen ne revint pas de son périple...
 
 La vieille femme attendit avec angoisse, jour et nuit, mais ce qui finit par revenir fut un corps mutilé. Elle s'évanouit de chagrin et ne se réveilla plus jamais.
 
@@ -98,7 +98,7 @@ Le regard du garçon s'illumina d'une lueur mystérieuse; il cessa de sculpter e
 
 Un bruit assourdissant retentit dans les cieux, et l'onde de choc balaya toute la brume qui entourait la zone.
 
-La lumière arc-en-ciel commença à vaciller comme une flamme sous le vent. Mais bientôt, elle se mit à briller d'un éclat mystérieux et se reforment. La lumière se transforma en une paire d'yeux qui semblaient pouvoir tout percer, et son regard se posa sur le garçon.
+La lumière arc-en-ciel commença à vaciller comme une flamme sous le vent. Mais bientôt, elle se mit à briller d'un éclat mystérieux et se reforma. La lumière se transforma en une paire d'yeux qui semblaient pouvoir tout percer, et son regard se posa sur le garçon.
 
 Les yeux du garçon devinrent froids; il agita sa main droite et tous les morceaux de bois dans la cour s'élevèrent dans les airs. Ses mains bougeaient avec rapidité, projetant une masse d'ondes de lumière argentée vers les copeaux tombés au sol. En un instant, des sculptures représentant les maisons et les villageois apparurent.
 

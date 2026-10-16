@@ -91,7 +91,7 @@ De retour dans la vallée, l'âme originelle de Wang Lin réintégra son corps e
 
 À l'extérieur de la vallée, l'onde d'énergie démoniaque déferla telle une marée vers les parois de la vallée. La formation qui l'entourait s'illumina instantanément, semblant contenir la pression démoniaque.
 
-Mais l'assaut ne fut pas unique; la pression se sustained durant un long moment. La lumière protectrice commença à vaciller, signe qu'elle ne pourrait bientôt plus résister.
+Mais l'assaut ne fut pas unique; la pression se prolongea durant un long moment. La lumière protectrice commença à vaciller, signe qu'elle ne pourrait bientôt plus résister.
 
 Bien que le calme régnât encore dans la vallée, une tension insoutenable imprégnait l'air.
 
@@ -109,7 +109,7 @@ Soudain, un énorme fracas retentit. Quelqu'un venait de percuter violemment la 
 
 Les habitants de la vallée ressentirent la puissance du choc. De nombreuses femmes et enfants furent réveillés par la secousse.
 
-Loin de la vallée, l'homme en robe noire abattit son épée dans une éclaboussure de sang. Une bête totalement noire, d'un mètre de long et dotée d'une unique corne, venait d'apparaître. Elle fut tranchée en deux presque instantanément par l'homme.
+Loin de la vallée, l'homme en robe noire abattit son épée dans une éclaboussure de sang. Une bête totalement noire, d'environ trois mètres de long et dotée d'une unique corne, venait d'apparaître. Elle fut tranchée en deux presque instantanément par l'homme.
 
 Après avoir tué la créature, l'homme prit une inspiration, captant un filament d'énergie démoniaque émanant du cadavre de la mystérieuse bête.
 

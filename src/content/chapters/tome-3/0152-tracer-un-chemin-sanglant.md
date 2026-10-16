@@ -24,11 +24,11 @@ Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. 
 
 Wang Lin lui lança un regard glacial avant de se retourner et de dire froidement à Mu Nan: « Continue de montrer le chemin. »
 
-Après avoir tué le Premier Ancien de la Secte du Mal, Wang Lin savait qu'il devrait les exterminer. S'il n'avait tué qu'un disciple, cela n'aurait été qu'un incident mineur, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
+Après avoir tué le premier Ancien de la Secte de la Lutte contre le Mal, Wang Lin savait qu'il devrait les exterminer. S'il n'avait tué qu'un disciple, cela n'aurait été qu'un incident mineur, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
 
-Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir la Secte du Mal.
+Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir la Secte de la Lutte contre le Mal.
 
-Seule l'éradication totale de la Secte du Mal lui permettrait d'éviter de nouveaux problèmes à l'avenir. Fort de cette conviction, il saisit Li Muwan et s'élança rapidement. Simultanément, sa technique d'attraction forma deux mains gigantesques qui saisirent Mu Nan et Mu Bei pour les projeter en avant.
+Seule l'éradication totale de la Secte de la Lutte contre le Mal lui permettrait d'éviter de nouveaux problèmes à l'avenir. Fort de cette conviction, il saisit Li Muwan et s'élança rapidement. Simultanément, sa technique d'attraction forma deux mains gigantesques qui saisirent Mu Nan et Mu Bei pour les projeter en avant.
 
 Le visage des deux frères était livide, mais ils n'osèrent émettre la moindre plainte; ils retrouvèrent rapidement leur équilibre et continuèrent de guider le groupe, la tête basse.
 
@@ -64,7 +64,7 @@ Alors qu'ils progressaient, tous les cultivateurs s'écartèrent. Aucun n'avait 
 
 Les dix corps emportés par le tendon de dragon derrière Wang Lin firent frissonner l'assistance. Même s'ils avaient voulu agir, ils auraient hésité devant un tel spectacle.
 
-Cependant, la nouvelle de l'Ordre de la Centaine de Jours du Massacre des Dix Mille Démons s'était propagée trop vite. Bientôt, tout le monde dans un rayon de dix millions de kilomètres autour de Nan Dou en fut informé et commença à se renseigner. Peu à peu, de plus en plus de cultivateurs apparurent dans le ciel.
+Cependant, la nouvelle de l'Ordre de la Centaine de Jours du Massacre des Dix Mille Démons s'était propagée trop vite. Bientôt, tout le monde dans un rayon d'un million de lieues autour de Nan Dou en fut informé et commença à se renseigner. Peu à peu, de plus en plus de cultivateurs apparurent dans le ciel.
 
 En chemin, Wang Lin croisait régulièrement ces individus. En raison de cette affluence, leur vitesse était ralentie. Wang Lin perdit patience. Face à toute cette cupidité qu'il percevait dans leurs regards, il eut envie de tous les massacrer.
 
@@ -82,11 +82,11 @@ Les yeux de Wang Lin devinrent encore plus glacials; il s'arrêta soudainement e
 
 Sur ce, il ferma les yeux. Après une respiration, il les rouvrit, leurs pupilles parcourues d'éclairs rouges. Il passa de la main qui tenait le bras de Li Muwan à celle qui soutenait sa taille. Sans même avoir le temps de savourer cette sensation de douceur, il chargea brusquement en arrière.
 
-Le Sens Divin du Royaume du Ji se propagea avec une intensité folle, et une lumière dorée jaillit de sa bouche avant de disparaître après quelques éclats. C'était la première fois que Wang Lin entamait un massacre à une telle échelle.
+Le Sens Divin du Royaume du Ji se propagea avec une intensité folle, et une lueur cristalline jaillit de sa bouche avant de disparaître après quelques éclats. C'était la première fois que Wang Lin entamait un massacre à une telle échelle.
 
 Éliminer des cultivateurs au stade de l'Établissement des Fondations dans le rayon d'action du Royaume du Ji était aussi simple que d'écraser des fourmis. Après avoir entendu d'innombrables cris de détresse, les cultivateurs restants furent terrifiés et s'enfuirent précipitamment.
 
-Finalement, la majorité des cultivateurs épuisèrent toute leur énergie spirituelle pour courir, mais avant que la plupart ne puissent s'éloigner, un éclair de lumière dorée surgissait et leurs têtes explosaient.
+Finalement, la majorité des cultivateurs épuisèrent toute leur énergie spirituelle pour courir, mais avant que la plupart ne puissent s'éloigner, un éclair de lumière cristalline surgissait et leurs têtes explosaient.
 
 Le visage de Wang Lin était d'une froideur impitoyable. À chaque fois que son regard glacial balayait un cultivateur, celui-ci saignait par tous ses orifices et mourait misérablement.
 
@@ -96,10 +96,10 @@ La vitesse de Wang Lin ne ralentit pas; au contraire, il devint encore plus rapi
 
 À cet instant, aucune trace de cupidité ne subsistait dans l'esprit des cultivateurs environnants. La convoitise avait été remplacée par la terreur pure. À chaque mort, le mot « Punir » devenait de plus en plus rouge, jusqu'à ressembler à une flamme éclatante dans les ténèbres. Il était si rouge qu'on aurait dit qu'il pouvait saigner.
 
-En plus de cela, tous ceux qui tentaient de fuir étaient terrifiés par la lumière dorée. Chaque fois qu'elle apparaissait, quelqu'un mourait d'une mort mystérieuse.
+En plus de cela, tous ceux qui tentaient de fuir étaient terrifiés par la lumière cristalline. Chaque fois qu'elle apparaissait, quelqu'un mourait d'une mort mystérieuse.
 
-En seulement une heure, la majorité des fuyards furent éliminés par l'épée cristalline, et un nombre incalculable de personnes périrent sous le poids du Royaume du Ji de Wang Lin.
+En seulement une demi-heure, la majorité des fuyards furent éliminés par l'épée cristalline, et un nombre incalculable de personnes périrent sous le poids du Royaume du Ji de Wang Lin.
 
 Plus de 1 000 cadavres étaient déjà entremêlés dans le tendon de dragon derrière lui. Le tendon ressemblait à une cape de mort flottant derrière Wang Lin.
 
-À ce moment précis, dans le brouillard à 500 kilomètres de là, se tenaient sept ou huit vieux cultivateurs démoniaques. Aucun d'eux ne parla, mais l'effroi qui se lisait dans leurs yeux devenait de plus en plus manifeste.
+À ce moment précis, dans le brouillard à mille lieues de là, se tenaient sept ou huit vieux cultivateurs démoniaques. Aucun d'eux ne parla, mais l'effroi qui se lisait dans leurs yeux devenait de plus en plus manifeste.

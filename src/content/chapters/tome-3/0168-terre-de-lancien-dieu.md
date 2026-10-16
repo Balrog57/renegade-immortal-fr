@@ -10,7 +10,7 @@ slug: terre-de-lancien-dieu
 
 Le crapaud atterrit au loin, faisant trembler la terre. Bien que Wang Lin soit très éloigné, il pouvait encore ressentir les vibrations du sol. Peu de temps après, le crapaud donna un coup de pattes arrière et disparut de sa vue. Lorsqu'il réapparut, il était déjà tout près.
 
-Le crapaud descendit du ciel comme une petite montagne s'effondrant sur elle-même. Il atterrit à environ 330 mètres d'eux, créant une onde de choc qui propagea la brume dans toutes les directions.
+Le crapaud descendit du ciel comme une petite montagne s'effondrant sur elle-même. Il atterrit à environ cent pieds d'eux, créant une onde de choc qui propagea la brume dans toutes les directions.
 
 Une fois la brume écartée, le crapaud géant fut révélé. D'innombrables pustules couvraient son corps; chacune bougeait lentement et émettait une puissante fluctuation d'énergie spirituelle.
 
@@ -36,7 +36,7 @@ Le Seigneur Démon des Six Désirs fixa froidement le bossu. Rapidement, l'éner
 
 Le Seigneur Démon des Six Désirs répondit froidement: « Je m'occuperai de la seconde moitié du premier essai. »
 
-Le bossu Meng toucha la pustule sur son visage et dit d'une voix rauque: « Contentez-vous de surveiller ce vieux pendant le deuxième essai. »
+Le bossu Meng toucha la pustule sur son visage et dit d'une voix rauque: « Pour le deuxième essai, laissez faire ce vieux bossu! »
 
 Duanmu Ji regarda Wang Qingyue et dit: « Cet homme est Wang Qingyue. Il connaît la technique d'évasion des cinq éléments, ce qui nous sera utile. Ce jeune ami, lui, maîtrise le sortilège de la mort. L'attaque par le Sens Divin du troisième essai dépendra de lui. »
 
@@ -142,7 +142,7 @@ Le bossu Meng laissa échapper un ricanement en les observant. Ayant fini sa con
 
 Duanmu Ji fixa Wang Lin. Après une courte réflexion, il sortit deux pilules et les lança vers lui: « Prends-les! » dit-il d'un ton pesant.
 
-Wang Lin les attrapa et les examina. Elles étaient exactement comme Li Muwan les avait décrites: la plus petite était la pilule de transformation terrestre et la plus grande, la pilule de formation du corps primordial.
+Wang Lin les attrapa et les examina. Elles étaient exactement comme Li Muwan les avait décrites: la plus petite était la pilule de transformation terrestre et la plus grande, la Pilule de Formation de l'Âme Naissante.
 
 Après les avoir soigneusement rangées, Wang Lin entra dans l'anneau sans mot dire. En franchissant le seuil, il eut l'impression de traverser une fine membrane.
 
@@ -150,7 +150,7 @@ Le spectacle qui s'offrit à lui lui coupa le souffle et le laissa stupéfait.
 
 L'endroit ressemblait fort au monde de la décrépitude, un lieu d'obscurité infinie. La seule différence résidait dans les innombrables piliers de pierre géants qui flottaient ici, portés par une force mystérieuse, progressant lentement vers l'avant.
 
-Wang Lin se tenait sur l'un de ces piliers. Le sommet mesurait trois 330 mètres de large et il était seul dessus. Sous lui, rien qu'un vide abyssal.
+Wang Lin se tenait sur l'un de ces piliers. Le sommet mesurait trois cents pieds de large et il était seul dessus. Sous lui, rien qu'un vide abyssal.
 
 En regardant autour de lui, il vit que tous ceux qui étaient entrés étaient dans la même situation: chacun se trouvait isolé sur son propre pilier.
 
@@ -176,7 +176,7 @@ Neuf cornes ornaient sa tête massive, et lorsque la gueule s'ouvrit, la nettet�
 
 Le visage du bossu Meng se décomposa alors qu'il agitait la main pour faire disparaître la lumière, plongeant à nouveau la zone dans le noir.
 
-Après une réflexion rapide, il déclara d'une voix lente: « Au bas mot, c'est une bête désolée, ce qui équivaut à un cultivateur de la Formation de l'Âme au stade avancé! »
+Après une réflexion rapide, il déclara d'une voix lente: « Au bas mot, c'est une bête désolée, ce qui équivaut à un cultivateur de la Formation de l'Âme au stade de la Grande Perfection! »
 
 Le Seigneur Démon des Six Désirs, le visage sombre, répondit calmement: « Ne l'irrite pas. Nous avons pu passer sans encombre la dernière fois; tant que nous restons discrets, tout ira bien. »
 

@@ -36,25 +36,25 @@ Ce genre d'obstacle ne disparaîtrait pas avec le temps. Il lui faudrait une sou
 
 L'automne passa et le printemps revint. Deux autres années s'écoulèrent dans ce monde de glace.
 
-Wang Lin parvint à progresser dans la création des marionnettes de sculptures de glace. Ces dernières dépendaient des veines de sang de neige pour maintenir leur intégrité. Une marionnette dotée de 49 veines de sang de neige pouvait égaler la puissance d'un cultivateur au stade de la Formation du Noyau.
+Wang Lin parvint à progresser dans la création des marionnettes de sculptures de glace. Ces dernières dépendaient des veines de neige pour maintenir leur intégrité. Une marionnette dotée de 49 veines de neige pouvait égaler la puissance d'un cultivateur au stade intermédiaire de la Formation du Noyau.
 
-Pour atteindre la puissance d'un cultivateur à l'Âme Naissante, il faudrait 81 veines de sang de neige, mais avec ces sculptures de glace, plus une marionnette possède de veines, plus elle est difficile à contrôler. De plus, si deux veines entrent en contact, la sculpture explose.
+Pour atteindre la puissance d'un cultivateur à l'Âme Naissante, il faudrait 81 veines de neige, mais avec ces sculptures de glace, plus une marionnette possède de veines, plus elle est difficile à contrôler. De plus, si deux veines entrent en contact, la sculpture explose.
 
-En conséquence, la difficulté augmente de manière exponentielle à chaque veine ajoutée. On comprend ainsi pourquoi il est si complexe d'insérer 81 veines de sang dans une seule sculpture.
+En conséquence, la difficulté augmente de manière exponentielle à chaque veine ajoutée. On comprend ainsi pourquoi il est si complexe d'insérer 81 veines de neige dans une seule sculpture.
 
 C'est la raison pour laquelle Xue Yu produisait si peu de sculptures de glace au stade de l'Âme Naissante.
 
-De surcroît, ces veines de sang provenaient de la Tactique de la Neige et de la Glace. Wang Lin était stupéfait par cette technique.
+De surcroît, ces veines de neige provenaient de la Tactique de la Neige et de la Glace. Wang Lin était stupéfait par cette technique.
 
 Cette Tactique met l'accent sur le raffinement du cœur. Elle utilise la glace comme os et la neige comme cœur pour former une âme de glace et de neige, afin d'atteindre un état de pureté intérieure.
 
 On pourrait la décrire comme extrêmement mystérieuse et instable.
 
-C'est pourquoi les cultivateurs de Xue Yue sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures.
+C'est pourquoi les cultivateurs de Xue Yu sont tous impulsifs, dotés de personnalités capables de basculer radicalement en un instant. Leur but est de suivre leur propre volonté et d'agir selon leurs caprices afin de raffiner leur cœur au point de le rendre impénétrable aux influences extérieures.
 
 Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la culture du Seigneur Démon des Six Désirs.
 
-Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de sang de neige par de pures veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
+Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de neige par de pures veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
 
 En un clin d'œil, Wang Lin passa trois ans dans cette petite ville. En ajoutant l'année passée à voyager, quatre ans s'étaient écoulés.
 
@@ -64,9 +64,9 @@ Il ignorait s'il déclencherait une rétribution divine en atteignant ce stade. 
 
 C'est pourquoi, ce jour-là, Wang Lin sortit de la tour de glace et partit.
 
-Avant son départ, Xue Yu avait publié un décret ordonnant à tous les cultivateurs du stade de la Formation du Noyau et au-delà de se rassembler au temple pour une conférence sur le Dao. La raison en était le retour de l'un des treize cultivateurs partis à Suzuka: il était le seul à avoir réussi à atteindre le stade de la Transformation de l'Âme.
+Avant son départ, Xue Yu avait publié un décret ordonnant à tous les cultivateurs du stade de la Formation du Noyau et au-delà de se rassembler au temple pour une conférence sur le Dao. La raison en était le retour de l'un des treize cultivateurs partis à Suzaku: il était le seul à avoir réussi à atteindre le stade de la Transformation de l'Âme.
 
-Quant à savoir si un seul des treize avait réussi ou si Suzuka avait joué un rôle, cela ne regardait pas les autres.
+Quant à savoir si un seul des treize avait réussi ou si Suzaku avait joué un rôle, cela ne regardait pas les autres.
 
 Wang Lin partit en silence, sans que personne ne s'en aperçoive. Même le cultivateur au stade de la Formation du Noyau que Wang Lin avait piégé avait perdu la mémoire et retrouvé sa position d'origine.
 
@@ -78,7 +78,7 @@ S'il choisissait Zhao, c'était d'abord parce que c'était un lieu reculé, mais
 
 Tout le monde a un foyer. En avait-il un?
 
-Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait de l'autre côté de la Mer des Démons; cet endroit pouvait aussi être considéré comme son foyer...
+Zhao pouvait être considéré comme son foyer, et il y avait une femme qui l'attendait au pays de Chu, de l'autre côté de la Mer des Démons; cet endroit pouvait aussi être considéré comme son foyer...
 
 Il décida donc de retourner à Zhao pour boucler le cycle de sa naissance.
 
@@ -90,7 +90,7 @@ En partant, il laissa une parcelle d'énergie spirituelle dans le corps de la fe
 
 Da Niu ignorait encore que l'oncle Wang, qu'il avait toujours souhaité revoir, était venu lui rendre visite. Le seul regret de Da Niu à sa mort ne serait pas que Xiao Niu n'ait pas été là pour l'accompagner, mais qu'il n'ait jamais pu revoir l'oncle Wang qui l'avait vu grandir. Cet homme mystérieux qui tenait une boutique, pour qui il s'efforçait toujours d'attirer des clients, et qui avait réussi à vendre une sculpture pour dix pièces d'or.
 
-Il confia ces deux sculptures en bois à sa fille, et elles devinrent des héritages familiaux.
+Il confia ces deux sculptures en bois à sa fille, et elles devinrent les trésors de la famille Zeng.
 
 Wang Lin vola vers Zhao. Il y a quarante ans, il parcourait ce même chemin alors qu'il venait d'atteindre le stade de l'Âme Naissante. Aujourd'hui, il empruntait la même route, mais cette fois, il était sur le point d'atteindre la Formation de l'Âme et choisissait un lieu pour accomplir sa percée.
 
@@ -124,7 +124,7 @@ Au bout d'un long moment, des cris retentirent au loin. Quelques hommes robustes
 
 En parlant, ils aperçurent Wang Lin à l'intérieur du temple. Ils s'arrêtèrent tous et se regardèrent avant de s'avancer silencieusement vers l'entrée.
 
-En passant devant lui, l'un d'eux fit un pas vers Wang Lin et sembla vouloir lui tapoter l'épaule de la main droite avec bienveillance. Cependant, un autre membre du groupe laissa échapper un grognement et le poussa pour l'en empêcher.
+En passant devant lui, l'un d'eux fit un pas vers Wang Lin et sembla vouloir lui tapoter l'épaule de la main droite d'un geste en apparence anodin. Cependant, un autre membre du groupe laissa échapper un grognement et le poussa pour l'en empêcher.
 
 L'homme tourna la tête en émit un reniflement avant d'entrer discrètement dans le temple.
 

@@ -26,7 +26,7 @@ Un langage complexe, semblable à celui des humains, s'entremêlait à ce rugiss
 
 Le vieillard en robe rouge pointa le ciel et fusionna avec la formation octogonale. La formation resta suspendue au-dessus du Serpent aux yeux de lune et fit pleuvoir sur lui un tonnerre flamboyant. Simultanément, les éclairs rouges émanant des quatre jeunes restreignaient étroitement les mouvements de la créature.
 
-L'homme en robe noire se métamorphosa en un aigle géant de 3,3 kilomètres. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent aux yeux de lune, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire d'Allheaven!
+L'homme en robe noire se métamorphosa en un aigle géant de 330 mètres. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent aux yeux de lune, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire d'Allheaven!
 
 L'ancêtre de la famille Shengong s'approcha du Serpent aux yeux de lune en un seul pas. En ouvrant les bras, des filaments de tonnerre parcoururent son corps avec frénésie. Le tonnerre jaillissait sous forme de dragons tonnerreux et, bien qu'ils ne fussent pas issus d'un ancien dragon de tonnerre, ils provenaient d'un esprit du tonnerre!
 
@@ -48,7 +48,7 @@ Pour cette opération, presque tout le Domaine Nord avait été évacué par le 
 
 Le rugissement du serpent devint plus intense encore. Les impacts internes et externes lui infligeaient une douleur si aiguë qu'ils le rendaient presque fou. Cela faisait une éternité qu'il n'avait pas souffert ainsi. Hormis cette voix dans sa mémoire, il n'avait jamais connu une telle agonie!
 
-Dans un cri de rage, le Serpent aux yeux de lune expulsa une multitude de petits serpents par sa gueule. Parmi eux, huit mesuraient cent mille pieds de long, accompagnés d'innombrables autres de dix mille ou mille pieds. Tandis que ces subalternes chargeaient, la langue du dieu ancien résonna de leurs bouches. Ce n'était pas seulement le serpent principal qui émettait cette voix divine, mais chaque petit serpent également!
+Dans un cri de rage, le Serpent aux yeux de lune expulsa une multitude de petits serpents par sa gueule. Parmi eux, huit mesuraient 33 kilomètres de long, accompagnés d'innombrables autres de 3,3 kilomètres ou de 330 mètres. Tandis que ces subalternes chargeaient, la langue du dieu ancien résonna de leurs bouches. Ce n'était pas seulement le serpent principal qui émettait cette voix divine, mais chaque petit serpent également!
 
 La colère du Serpent aux yeux de lune était semblable au doigt d'un dieu ancien! Une lumière éclatante apparut devant chaque petit serpent. Cette lueur brilla de plus belle et se condensa rapidement. Bientôt, les doigts du dieu ancien remplirent le firmament! Parmi les étoiles, ces innombrables serpents formèrent une multitude de doigts divins. C'était là l'une des capacités les plus redoutables du Serpent aux yeux de lune!
 
@@ -56,7 +56,7 @@ Le doigt du dieu ancien balaya la zone, prenant le Serpent aux yeux de lune pour
 
 Le sortilège ne s'arrêta pas là. Après avoir libéré les doigts divins, l'énorme corps du serpent trembla violemment et il continua de rugir. Sa masse se contracta frénétiquement, comme s'il voulait absorber toute la vitalité qu'il avait accumulée. Des bruits d'éclatement résonnèrent dans l'espace alors que ses innombrables tentacules se rompaient à la racine!
 
-Une multitude de tentacules se détachèrent de son corps en tourbillonnant. Soudain, des poils poussèrent sur eux et ils se transformèrent tous en Serpents aux yeux de lune de cent mille pieds de long!
+Une multitude de tentacules se détachèrent de son corps en tourbillonnant. Soudain, des poils poussèrent sur eux et ils se transformèrent tous en Serpents aux yeux de lune de 33 kilomètres de long!
 
 Hormis le Dieu du Sang, qui était entré dans le corps du serpent et ne pouvait voir l'extérieur, les six autres étaient pétrifiés. Même les pupilles de Maître Flamespark se rétractèrent, empreintes d'effroi.
 

@@ -78,7 +78,7 @@ Un corps spirituel pourpre flottait devant lui. Ce corps spirituel était celui 
 
 Zhou Yi avait les yeux clos et le visage empreint de confusion. À l'exception de la zone entre ses sourcils, tout son corps était recouvert d'une teinte pourpre. Cette couleur semblait vivante, car elle se tortillait continuellement. Le pourpre sur le visage de Zhou Yi ressemblait à un amas de fils de soie tentant de dévorer la lumière dorée située entre ses sourcils.
 
-Une formation de trente pieds de large couvrait le sol sous Zhou Yi. Des volutes de gaz pourpre s'échappaient de la formation pour pénétrer dans le corps de Zhou Yi.
+Une formation de 9,9 mètres de large couvrait le sol sous Zhou Yi. Des volutes de gaz pourpre s'échappaient de la formation pour pénétrer dans le corps de Zhou Yi.
 
 Quatre épées précieuses étaient plantées aux quatre coins de la formation. La lumière émanant de ces armes fusionnait lentement avec le sol.
 
@@ -106,7 +106,7 @@ Ling Tianhou n'avait pas tout planifié d'avance, mais il était constamment pou
 
 Du point de vue de Ling Tianhou, cet esprit d'épée cherchait la mort et utilisait l'énergie de vie limitée de l'épée céleste avec une frénésie folle. Il faut dire que l'Épée Céleste de la Pluie était le trésor numéro un du Royaume Céleste de la Pluie. Bien qu'il en possédât une, il n'osait pas la sortir devant Zhou Yi, sachant qu'au moment où il le ferait, elle serait instantanément contrôlée par ce dernier.
 
-Bien que Ling Tianhou fût puissant, il avait été blessé par l'empreinte céleste. Cette empreinte était tout simplement trop puissante et sa prestance était sans égale. Ling Tianhou en conclut que ce sort n'était certainement pas l'œuvre d'un simple général céleste; c'était un sortilège de très haute qualité, de ceux que seul l'Empereur Céleste pouvait utiliser!
+Bien que Ling Tianhou fût puissant, il avait été blessé par l'empreinte céleste. Cette empreinte était tout simplement trop puissante et sa prestance était sans égale. Ling Tianhou en conclut que ce sort n'était certainement pas l'œuvre d'un simple Seigneur Céleste; c'était un sortilège de très haute qualité, de ceux que seul l'Empereur Céleste pouvait utiliser!
 
 Un seul doigt avait suffi à le blesser. En ajoutant à cela les attaques suicidaires de Zhou Yi et l'usage constant de l'énergie de vie de l'Épée Céleste de la Pluie, Ling Tianhou s'était retrouvé dans cette situation humiliante.
 

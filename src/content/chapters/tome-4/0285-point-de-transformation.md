@@ -17,7 +17,7 @@ Les cheveux blancs du corps originel devinrent instantanément rouges et son int
 
 Après un long moment, le corps originel finit d'absorber toute l'énergie spirituelle et ouvrit les yeux. Ses pupilles avaient disparu, laissant place à deux masses rouges incandescentes. Avec ses cheveux pourpres, il ne ressemblait plus à un humain, mais plutôt à un démon ancestral.
 
-Wang Lin et son corps originel esquissèrent tous deux un léger sourire. Pourtant, leurs sourires auraient terrifié quiconque les aurait vus: celui du corps originel exhalait un sentiment de supériorité absolue, tandis que celui de l'avatar était empreint d'une soif de sang dévorante.
+Wang Lin et son corps originel esquissèrent tous deux un léger sourire. Pourtant, leurs sourires auraient terrifié quiconque les aurait vus: celui du corps originel était empreint d'une soif de sang dévorante, tandis que celui de l'avatar exhalait une certaine élégance.
 
 Wang Lin frappa son sac de rangement et en sortit plusieurs centaines de bouteilles de pilules; il s'agissait de la majeure partie des remèdes que Li Muwan lui avait donnés autrefois. Dès que ces pilules apparurent, le corps originel ouvrit la bouche. Toutes les bouteilles se brisèrent tandis que les pilules s'engouffraient dans sa bouche, se transformant en énergie spirituelle pour parcourir son corps.
 
@@ -45,7 +45,7 @@ Selon les souvenirs des dieux ancestraux, si un nouveau-né divin n'est pas test
 
 Le corps originel continua de s'enfoncer dans les profondeurs terrestres jusqu'à atteindre un point où la pression serait insupportable, même pour des cultivateurs. Toutefois, grâce à la technique du dieu ancestral, il ne ressentait rien et poursuivait sa descente.
 
-Même Wang Lin ignorait la distance parcourue, mais son corps originel n'avait pas encore atteint le centre de Suzaku; il estima qu'il n'en était qu'au sixième du chemin. Cependant, cela représentait déjà la limite de ses capacités actuelles: s'il continuait ainsi, son corps finirait par s'effondrer.
+Même Wang Lin ignorait la distance parcourue, mais son corps originel n'avait pas encore atteint le centre de Suzaku; il estima qu'il n'en avait parcouru que moins d'un sixième. Cependant, cela représentait déjà la limite de ses capacités actuelles: s'il continuait ainsi, son corps finirait par s'effondrer.
 
 Car, dans les temps anciens, les dieux ancestraux adultes entouraient leurs nouveau-nés d'une goutte de leur sang pour les nourrir et les protéger de la pression colossale du centre planétaire.
 

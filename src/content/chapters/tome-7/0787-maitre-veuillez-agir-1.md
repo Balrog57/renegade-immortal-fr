@@ -50,11 +50,11 @@ Par conséquent, il était impossible pour les cultivateurs de coopérer. La peu
 
 Sans que l'on sache qui déclencha le mouvement, tous les cultivateurs environnants renoncèrent à assiéger l'homme aux cheveux blancs. Au lieu de cela, ils se dispersèrent pour charger la porte céleste en voie de disparition depuis toutes les directions.
 
-L'homme aux cheveux blancs esquissa un sourire sinistre tout en dévorant quelques autres victimes. Puis, sa main traça un sceau et il hurla: « Sort de l'enfer, clones! » En un instant, il se divisa en deux, puis de deux en quatre. Le processus se poursuivit jusqu'à ce qu'il y ait trente-deux exemplaires de lui-même.
+L'homme aux cheveux blancs esquissa un sourire sinistre tout en dévorant quelques autres victimes. Puis, sa main traça un sceau et il hurla: « Sort céleste : Avatars! » En un instant, il se divisa en deux, puis de deux en quatre. Le processus se poursuivit jusqu'à ce qu'il y ait trente-deux exemplaires de lui-même.
 
-Les trente-deux clones s'élancèrent et fusionnèrent immédiatement avec le monde. Lorsqu'ils réapparurent, ils se trouvaient à moins de 33 kilomètres de la porte céleste. Au même moment, des cris de détresse déchirèrent l'air.
+Les trente-deux clones s'élancèrent et fusionnèrent immédiatement avec le monde. Lorsqu'ils réapparurent, ils se trouvaient à moins de 3,3 kilomètres de la porte céleste. Au même moment, des cris de détresse déchirèrent l'air.
 
-Tous les cultivateurs situés dans ce périmètre de dix mille pieds virent leurs corps anéantis par les clones et leurs âmes originelles dévorées. Leur résistance était dérisoire face aux clones; ils mouraient souvent avant même d'avoir pu agir.
+Tous les cultivateurs situés dans ce périmètre de 3,3 kilomètres virent leurs corps anéantis par les clones et leurs âmes originelles dévorées. Leur résistance était dérisoire face aux clones; ils mouraient souvent avant même d'avoir pu agir.
 
 Pourtant, de plus en plus de cultivateurs se précipitaient vers la porte céleste. Après tout, elle représentait leur unique chance de survie.
 
@@ -70,7 +70,7 @@ Sous le fracas de l'explosion, l'homme aux cheveux blancs fronça les sourcils. 
 
 C'était un véritable massacre. Alors que la porte céleste était sur le point de s'évanouir, cette boucherie atteignit son paroxysme. La plupart des cultivateurs se ruaient comme des fous pour tenter de s'échapper, car la porte était leur ultime espoir.
 
-Cependant, avec les trente-deux clones couvrant la zone de dix mille pieds, seuls les cultivateurs au stade Illusoire Yin pouvaient espérer approcher à moins de mille pieds de la porte. Tous les autres périssaient bien avant d'atteindre cette limite. Quant à ceux qui atteignaient ce périmètre de mille pieds, ils subissaient le même sort: ils mouraient dès l'apparition du corps originel de l'homme aux cheveux blancs.
+Cependant, avec les trente-deux clones couvrant la zone de 3,3 kilomètres, seuls les cultivateurs au stade Illusoire Yin pouvaient espérer approcher à moins de 330 mètres de la porte. Tous les autres périssaient bien avant d'atteindre cette limite. Quant à ceux qui atteignaient ce périmètre de 330 mètres, ils subissaient le même sort: ils mouraient dès l'apparition du corps originel de l'homme aux cheveux blancs.
 
 Des éclats de rire sinistres s'échappaient de sa gorge. À force de massacrer et de dévorer, son corps initialement maigre s'épaississait progressivement. On aurait dit que quelque chose bougeait à l'intérieur de lui, ce qui le rendait plus terrifiant encore.
 
@@ -98,6 +98,6 @@ Bien que les cultivateurs au stade Yang Corporel fussent peu nombreux, ceux de S
 
 Grâce à ce mouvement d'éclaireurs, le moral des cultivateurs environnants remonta en flèche; ils s'apprêtaient à rejoindre le siège quand les trente-deux clones de l'homme aux cheveux blancs commencèrent à massacrer la foule.
 
-Certains cherchaient encore à préserver leur vie en profitant de l'occasion pour fuir vers la porte céleste mourante. Beaucoup partageaient cette idée, mais tous furent fauchés par les clones dès qu'ils franchirent la limite des dix mille pieds.
+Certains cherchaient encore à préserver leur vie en profitant de l'occasion pour fuir vers la porte céleste mourante. Beaucoup partageaient cette idée, mais tous furent fauchés par les clones dès qu'ils franchirent la limite des 3,3 kilomètres.
 
 Malgré ce carnage, certains tentaient encore désespérément de rallier la porte céleste. À mesure que de nouveaux arrivants rejoignaient les rangs, la situation atteignit son point de rupture.

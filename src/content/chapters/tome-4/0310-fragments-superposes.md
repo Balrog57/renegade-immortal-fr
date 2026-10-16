@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 310 - Overlapping Fragments
 slug: fragments-superposes
 ---
-Soudain, des rugissements tonitruants emplirent l'espace environnant. Wang Lin prit une profonde inspiration, ses mains s'activant pour parachever une restriction qu'il avait formée entre ses paumes. Il n'avait plus qu'à la lancer dans les airs pour activer le drapeau de restriction, déclenchant ainsi la foudre de la rétribution divine.
+Soudain, des grondements tonitruants emplirent l'espace dans un rayon de cinq kilomètres. Wang Lin prit une profonde inspiration, ses mains s'activant pour parachever une restriction qu'il avait formée entre ses paumes. Il n'avait plus qu'à la lancer dans les airs pour porter le drapeau de restriction à quatre-vingt-dix-neuf groupes, déclenchant ainsi la foudre de la rétribution divine.
 
 L'expression de Papillon Rouge changea radicalement. Elle fixa la restriction dans la main de Wang Lin, puis l'objet noir qui flottait dans le ciel. Un sentiment de danger imminent la submergea, une sensation qu'elle n'avait jamais éprouvée auparavant.
 
@@ -16,7 +16,7 @@ Elle eut le pressentiment que si elle le laissait placer cette restriction, le d
 
 Chi Hu cria: « Compagne cultivatrice Papillon Rouge, vous êtes tous les deux mes invités. Si vous insistez pour continuer l'attaque, cela signifie que vous me manifestez votre hostilité! Je me rangerai naturellement aux côtés du frère Ceng pour riposter. De plus, si je survis pour revenir, je rapporterai sans faute tout ceci à Xi Zu! »
 
-Sur ces mots, une illusion apparut derrière Chi Hu. Il s'agissait d'un géant de trente mètres de haut qui fixait Papillon Rouge de ses yeux verts et glacials.
+Sur ces mots, une illusion apparut derrière Chi Hu. Il s'agissait d'un géant de plus de trente mètres de haut qui fixait Papillon Rouge de ses yeux glacials.
 
 Papillon Rouge ne put s'empêcher d'hésiter. Elle songea que la technique de Ceng Niu n'était guère simple. L'illusion derrière Chi Hu s'était déjà solidifiée; si elle poursuivait le combat, ce fragment risquait fort de s'effondrer. Après un court instant d'indécision, elle pointa le ciel et ordonna aux pétales de la fleur de s'arrêter.
 
@@ -114,4 +114,4 @@ Le corps de Papillon Rouge s'élança dans les airs et fila rapidement vers l'es
 
 Même pour eux trois, un voyage de 150 000 kilomètres prendrait du temps.
 
-Ce jour-là, ils atteignirent enfin la limite des 300 000 kilomètres. À cette bordure orientale du fragment, la terre semblait avoir été déchirée; par-delà le sol se déployait le vide infini.
+Ce jour-là, ils atteignirent enfin la limite des 150 000 kilomètres. À cette bordure orientale du fragment, la terre semblait avoir été déchirée; par-delà le sol se déployait le vide infini.

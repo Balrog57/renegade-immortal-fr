@@ -62,7 +62,7 @@ Si Du Jian ne l'avait pas provoqué, tout aurait été différent; Wang Lin ne l
 
 La culture de Du Jian suivait la volonté des cieux, contrairement à celle de Wang Lin qui se révoltait contre eux. Le temps passa et l'énergie originelle céleste à l'intérieur de son corps devint de plus en plus intense. Bientôt, son âme originelle s'échappa et commença à fusionner avec cette énergie.
 
-Le temps s'écoula. Plus d'une heure passa sans qu'aucune anomalie ne survienne dans l'âme originelle de Du Jian. Cela fit briller les yeux de Wang Lin.
+Le temps s'écoula. Deux heures s'écoulèrent sans qu'aucune anomalie ne survienne dans l'âme originelle de Du Jian. Cela fit briller les yeux de Wang Lin.
 
 La fusion de l'âme originelle de Du Jian dura trois jours. Finalement, au moment où toute l'énergie originelle céleste était sur le point de fusionner avec son âme, un incident survint. Un léger tremblement déclencha instantanément les flammes originelles. L'apparition soudaine de ce feu semblait vouloir consumer l'intégralité de l'âme originelle.
 

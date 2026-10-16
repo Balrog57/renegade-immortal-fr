@@ -40,7 +40,7 @@ Les yeux de Wang Lin s'illuminèrent. Sa main gauche traça un sceau et l'énerg
 
 Sous le mouvement du doigt de Wang Lin, l'arc commença à se densifier jusqu'à devenir un cercle parfait. Une fois le cercle achevé, il fut projeté vers la tasse à thé.
 
-La vitesse de la tasse ralentit et sa trajectoire dévia selon la rotation du cercle. Finalement, elle décrivit une courbe autour de Wang Lin.
+La vitesse de la tasse ralentit et sa trajectoire dévia selon la rotation du cercle. Finalement, elle décrivit une courbe à une dizaine de mètres devant Wang Lin.
 
 Un cri de surprise s'éleva de l'intérieur de la boutique.
 
@@ -82,7 +82,7 @@ Bai Wei sourit et secoua la tête. « Puisque le frère Wang ne souhaite pas s'�
 
 Wang Lin acquiesça, joignit les mains et passa devant les deux hommes. Le cœur de Li Dannan battait la chamade alors qu'il suivait rapidement, craignant que s'il tardait trop, un imprévu ne vienne le blesser.
 
-Le regard de Bai Wei suivit la silhouette de Wang Lin avec une lueur singulière. Il rangea son éventail, frappa sa main droite et déclama: « Les montagnes portent des arbres, les arbres ont des branches; le cœur plaît au seigneur, mais le seigneur l'ignore... »
+Le regard de Bai Wei suivit la silhouette de Wang Lin avec une lueur singulière. Il rangea son éventail, frappa sa main gauche et déclama: « Les montagnes portent des arbres, les arbres ont des branches; le cœur plaît au seigneur, mais le seigneur l'ignore... »
 
 Le jeune homme dont la fondation avait été ruinée observa Bai Wei, une pointe d'étrangeté s'accentuant dans son regard.
 

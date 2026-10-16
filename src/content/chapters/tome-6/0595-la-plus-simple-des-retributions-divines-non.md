@@ -22,7 +22,7 @@ Dès que cette lumière rouge commença sa descente, une aura capable de faire t
 
 Sur la planète Tian Yun, le Tout-Voyant avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux tout pas calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre des Esprits Démoniaques et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
 
-Sur la planète Da Lou, au sein de la Secte de l'Épée Da Lou, le Saint de l'Épée Lin Tianhou se tenait près d'un fourneau de pillage géant, les yeux étincelants.
+Sur la planète Da Lou, au sein de la Secte de l'Épée Da Lou, le Saint de l'Épée Lin Tianhou se tenait près d'un gigantesque fourneau alchimique, les yeux étincelants.
 
 « Cette Pilule de Bonne Fortune Fondamentale nécessite encore quelques pilules auxiliaires... » À cet instant précis, son expression changea brusquement. Il fit un pas et disparut complètement pour réapparaître dans l'espace, au-dessus de la planète. Il observa la lumière rouge avec surprise.
 
@@ -40,11 +40,11 @@ Non seulement ces trois-là, mais de nombreux vieux monstres remarquèrent la de
 
 Rien ne pouvait arrêter la chute de cette lumière rouge. Bien que la porte de la Mer des Esprits Démoniaques Orientale ne fût pas ouverte, la lueur rouge réussit tout de même à la percer.
 
-Sur la place de la cité impériale du Pays des Démons Célestes, Wang Lin flottait en silence. Après que le tambour eut résonné pour la quinzième fois, le domaine à l'intérieur de son corps entama une métamorphose à une vitesse inimaginable.
+Sur la place de la cité impériale du Pays des Démons Célestes, Wang Lin se tenait en silence. Après que le tambour eut résonné pour la quinzième fois, le domaine à l'intérieur de son corps entama une métamorphose à une vitesse inimaginable.
 
 Le stade Ascendant exige que l'on possède suffisamment d'énergie spirituelle céleste et que son cœur Dao soit achevé. Une fois ces deux conditions réunies, elles fusionnent, et cette fusion constitue l'ascension!
 
-C'est la légendaire « Confrontation avec son propre Dao! »
+C'est la légendaire « Entendre le Dao au matin! »
 
 Cette fusion est une collision entre le cœur Dao et l'énergie spirituelle céleste. La collision du corps et de l'âme! Une évolution d'un humain vers un Céleste! C'est l'épreuve mortelle ultime pour atteindre le stade Ascendant! Soit cette collision réussit et l'on devient un cultivateur Ascendant, soit elle échoue et l'on... meurt. Il n'y a pas d'autre issue! Une épreuve de mort!
 
@@ -62,7 +62,7 @@ Autour de la place, tout le monde méditait silencieusement. En une seule journ�
 
 De loin, ce rouge était infini et semblait recouvrir l'immensité du ciel.
 
-L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, grâce au tambour démoniaque et à plusieurs années de patience, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de rétribution divine. »
+L'expression du jeune homme sur le bateau changea soudainement. Puis il laissa échapper un rire amer: « Il semble que j'aie oublié ce détail, mais ce petit gars est un cultivateur. À l'époque, j'avais passé beaucoup de temps dans le lac du dragon et de nombreux Anciens m'avaient aidé. Finalement, en offrant des sacrifices aux anciens démons pendant plusieurs années, j'avais pu dissimuler cette aura défiante pour ne pas provoquer de rétribution divine. »
 
 « Cependant, ceci est un test pour cet enfant. S'il parvient à résister à cette rétribution divine, il ne sera plus affecté par les cieux une fois qu'il atteindra le stade Ascendant... Et d'après ce que je vois, la puissance de cette rétribution n'est pas si grande... »
 
@@ -90,7 +90,7 @@ C'était comme un météore chutant soudainement du firmament pour s'écraser su
 
 L'intention meurtrière des cieux!
 
-La Cité des Démons Célestes, qui vivait actuellement l'été, vit la neige tomber. Les flocons descendaient du ciel, et chaque flocon de neige contenait l'intention meurtrière des cieux!
+La Cité des Démons Célestes, en plein printemps, vit la neige tomber. Les flocons descendaient du ciel, et chaque flocon de neige contenait l'intention meurtrière des cieux!
 
 L'éclair rouge s'abattit au milieu de cette chute de neige.
 
@@ -98,7 +98,7 @@ Il ne restait qu'un seul son dans ce monde: le grondement représentant la colè
 
 Il ne restait qu'une seule couleur dans ce monde: le rouge sang de l'éclair de la rétribution divine!
 
-Il ne restait qu'une seule intention meurtrière dans ce monde: celle des cieux, plus puissante que celle que l'on acquiert après avoir massacré des milliards d'êtres!
+Il ne restait qu'une seule intention meurtrière dans ce monde: celle des cieux, plus puissante que celle que l'on acquiert après avoir massacré cent millions d'êtres!
 
 Les cieux voulaient tuer un homme!
 
@@ -128,7 +128,7 @@ La main gauche de Wang Lin effleura son sac de rangement et une immense quantit�
 
 Wang Lin se tenait au sommet de cette colline, le tambour démoniaque dans le dos. Alors qu'il levait les yeux vers le ciel, une grande quantité d'énergie spirituelle céleste pénétra son corps par ses pieds.
 
-Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire de plus de trente mètres de long, et chargèrent directement l'éclair rouge!
+Les cent Doigts de la Mort fusionnèrent en un seul, se transformant en un rayon de lumière noire de plus de dix mètres de diamètre, et chargèrent directement l'éclair rouge!
 
 « J'ose défier les cieux pour continuer ma culture; garder mes sentiments persistants signifie que je souhaite lutter contre le destin. Rétribution divine, même si tu peux détruire mon corps, tu ne pourras jamais détruire mon cœur Dao! » Les yeux de Wang Lin s'illuminèrent et, à cet instant, la lumière de son regard perça l'éclair rouge pour pénétrer directement dans les nuages écarlates.
 

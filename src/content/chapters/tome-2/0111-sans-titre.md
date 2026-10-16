@@ -32,7 +32,7 @@ Par conséquent, Wang Lin décida de mettre ce temps à profit pour raffiner à 
 
 Ses deux mains formèrent un sceau tandis qu'il projetait de l'énergie spirituelle pour envelopper l'épée volante. Puis, Wang Lin frappa son sac de rangement et en sortit une gourde. L'épée volante était une arme raffinée par son propre sang; il était donc disposé à y consacrer de nombreuses ressources. Il serra les dents et versa un tiers du liquide qui s'y trouvait.
 
-Sous le contrôle de Wang Lin, le liquide spirituel chargé d'énergie Yin flotta dans l'air et se condensa en une unique goutte d'eau. Cette goutte libéra des ondes d'énergie Yin qui couvrirent la grotte de givre.
+Sous le contrôle de Wang Lin, le liquide spirituel chargé d'énergie Yin flotta dans l'air et se condensa en une unique goutte d'eau grosse comme un poing. Cette goutte libéra des ondes d'énergie Yin qui couvrirent la grotte de givre.
 
 Wang Lin pointa la goutte du doigt, et celle-ci se dirigea immédiatement vers l'épée volante. Elle atterrit sur la pointe de la lame et glissa le long de celle-ci jusqu'à la base de la garde. Rapidement, l'épée volante devint cristalline.
 
@@ -62,7 +62,7 @@ Ce que Wang Lin ignorait, c'est que cette épée volante, raffinée par son sang
 
 Une fois que cette évolution atteindrait sa phase finale, l'épée acquerrait la propriété du Royaume Ji et deviendrait d'une puissance redoutable.
 
-Wang Lin testa l'épée et découvrit qu'elle se déplaçait plusieurs fois plus vite qu'auparavant. Lorsqu'il utilisait toute sa puissance, elle était si rapide que ses yeux ne pouvaient plus la suivre. Conjuguée à sa capacité de téléportation, cette épée volante représentait une existence terrifiante.
+Wang Lin testa l'épée et découvrit qu'elle se déplaçait plus vite qu'auparavant. Lorsqu'il utilisait toute sa puissance, elle était si rapide que ses yeux ne pouvaient plus la suivre. Conjuguée à sa capacité de téléportation, cette épée volante représentait une existence terrifiante.
 
 Au minimum, si un cultivateur au stade de la Formation du Noyau, dépourvu de trésor défensif actif, était frappé par l'épée, son salut ne serait pas garanti. C'était là le pouvoir du Royaume Ji appliqué à un trésor magique: il permettait à l'objet de briser ses limites pour atteindre un état extrême.
 
@@ -72,4 +72,4 @@ Le Royaume Ji ne révélerait sa véritable puissance que lorsque Wang Lin brise
 
 L'épée actuelle, petite et verte, était encore plus délicate. Des éclats de glace bleue apparaissaient et disparaissaient sur sa surface, lui conférant un aspect singulier.
 
-Wang Lin rangea à nouveau l'épée volante. Ses yeux s'illuminèrent lorsqu'il calcula le temps écoulé: il avait passé un mois à la raffiner. Il décida de consacrer le mois restant à cultiver à l'intérieur de la perle du ciel révolté. Il était confiant de pouvoir atteindre le stade intermédiaire de l'Établissement des Fondations d'ici la fin du mois.
+Wang Lin rangea à nouveau l'épée volante. Ses yeux s'illuminèrent lorsqu'il calcula le temps écoulé: il avait passé un mois à la raffiner. Il décida de consacrer le mois restant à cultiver à l'intérieur de la perle défiant le ciel. Il était confiant de pouvoir atteindre le stade intermédiaire de l'Établissement des Fondations d'ici la fin du mois.

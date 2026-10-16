@@ -66,7 +66,7 @@ Au fil de sa course, son expression changea. Il leva les yeux, une intention meu
 
 Yao Yunhai affichait un air arrogant tandis que son Sens Divin ravageait la zone durant sa descente. Pourtant, à cet instant, une aura glaciale surgit soudainement, faisant basculer son expression. Il s'arrêta net, et les quelques cultivateurs qui le suivaient furent pris de court.
 
-Des fissures apparurent soudainement derrière ces derniers, d'où s'échappa une aura glaciale. Un Serpent aux yeux de lune de trois cents mètres de long jaillit telle une éclair. La quantité de tentacules s'agitant autour de son corps était terrifiante.
+Des fissures apparurent soudainement derrière ces derniers, d'où s'échappa une aura glaciale. Un Serpent aux yeux de lune de 330 mètres de long jaillit tel un éclair. La quantité de tentacules s'agitant autour de son corps était terrifiante.
 
 Ce serpent était d'une rapidité inouïe. Dès sa sortie, il dévora un cultivateur avant que quiconque ne puisse réagir, puis son corps percuta un autre homme. Ce dernier cracha du sang, les yeux écarquillés par la terreur; il abandonna son corps physique pour tenter de précipiter son âme originelle dans la terre.
 

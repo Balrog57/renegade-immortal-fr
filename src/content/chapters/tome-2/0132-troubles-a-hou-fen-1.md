@@ -22,7 +22,7 @@ Dès que la sueur apparut sur le corps de Sun Youcai, chaque goutte se transform
 
 Sous lui s'étendait un vaste bassin de lave. De nombreuses bulles massives s'y agitaient et, à chaque explosion, des gaz noirs s'en échappaient.
 
-Sun Youcai parvint à braver le danger pour traverser la partie volcanique avant de s'immobiliser, fixant la lave en contrebas avec un regard terrifié.
+Sun Youcai s'apprêtait à braver le danger pour traverser la paroi volcanique d'en face, mais il s'immobilisa, fixant la lave en contrebas avec un regard terrifié.
 
 À cet instant, Wang Lin l'avait rattrapé. Il ne maîtrisait pas la technique d’évasion tellurique, mais son Sens Divin était resté verrouillé sur Sun Youcai tout au long de la poursuite. Remarquant soudain que Sun Youcai s'était arrêté, il sortit le morceau de métal et le pointa vers le sol. Le métal tourna en frappant la terre, creusant un tunnel. Le corps de Wang Lin suivit rapidement le mouvement pour pénétrer dans le bassin de lave où se trouvait Sun Youcai.
 
@@ -36,7 +36,7 @@ Au même moment, Sun Youcai sembla être possédé par ce regard. Il descendit d
 
 Il ne fit que trois pas avant que sa chair et sa peau ne soient totalement consumées, révélant des os noircis par les flammes. Pourtant, Sun Youcai ne manifesta aucune souffrance lorsqu'il sauta dans la lave depuis le rebord du rocher.
 
-Les yeux de Wang Lin s'illuminèrent et il tendit la main. Au moment où Sun Youcai chutait, il attrapa son sac de voyage et recula prestement sans même jeter un regard derrière lui vers la lave.
+Les yeux de Wang Lin s'illuminèrent et il tendit la main. Au moment où Sun Youcai chutait, il attrapa le sac de rangement à sa ceinture et recula prestement sans même jeter un regard derrière lui vers la lave.
 
 Un rugissement retentit derrière Wang Lin et la chaleur environnante intensifia soudainement. Tandis qu'il courait, le tunnel autour de lui vira au rouge. Si quelqu'un avait regardé depuis les hauteurs, il aurait vu tous les volcans, petits et grands, cracher une fumée noire; en particulier l'un des plus imposants. Autour de celui-ci, une lumière rouge visible à l'œil nu se propageait. Tout ce que cette lueur touchait devenait incandescent.
 
@@ -54,7 +54,7 @@ La cage se referma sur lui jusqu'à l'enfermer complètement.
 
 Soudain, des fissures apparurent sur le sol. La terre s'effondra vers l'intérieur, formant un bassin. Une boule de terre noire se forma, emprisonnant Wang Lin à l'intérieur.
 
-Autour de cette sphère, huit bêtes de feu crachaient continuellement des flammes pour en réduire la taille. Rapidement, la boule devint de plus en plus petite, jusqu'à ce que les bêtes s'arrêtent enfin.
+Autour de cette sphère, huit bêtes de feu crachaient continuellement des flammes pour en réduire la taille. Rapidement, la boule devint de plus en plus petite, jusqu'à ce qu'elle ne mesure plus qu'un demi-mètre, et les bêtes cessèrent enfin.
 
 L'une des bêtes de feu saisit la sphère de terre et bondit sur le sol, suivie par les autres. Elles retournèrent bientôt dans la grotte où elles se trouvaient initialement.
 
@@ -78,7 +78,7 @@ Le temps passa lentement et de nouvelles bêtes de feu apparurent, descendant de
 
 Soudain, l'ensemble du lac de lave se mit à trembler. Chaque bête de feu creusa rapidement une ouverture d'où émergea une bête de feu géante. Wang Lin retira promptement son sens divin et commença à observer attentivement.
 
-Une bête de feu normale ne mesurait que trois pieds de haut, mais la tête seule de cette créature géante dépassait déjà les dix pieds. Lentement, une grande partie de son corps apparut. Avec cette masse colossale vint une pression écrasante qui força toutes les petites bêtes de feu à l'immobilité.
+Une bête de feu normale ne mesurait que trois pieds de haut, mais la tête seule de cette créature géante dépassait déjà les cinq pieds. Lentement, une grande partie de son corps apparut. Avec cette masse colossale vint une pression écrasante qui força toutes les petites bêtes de feu à l'immobilité.
 
 Le cœur de Wang Lin fut frappé de stupeur. La puissance de cette bête géante atteignait au moins le stade de l'Âme Naissante. Quant à sa force exacte, il était incapable de la déterminer, n'ayant jamais rencontré de cultivateur de la Formation de l'Âme auparavant.
 
@@ -100,6 +100,6 @@ Un cri glaçant jaillit de l'intérieur de la sphère. Le hurlement persista, ma
 
 La sphère de terre tomba dans le vide et s'enfonça dans la lave. Le cœur de Wang Lin sombra à son tour. Il comprenait désormais qu'il n'était pas le seul être vivant enfermé dans ces sphères. Même sans protection, la sphère ne l'aurait pas tué; au pire, il aurait été plongé dans un sommeil profond.
 
-Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent plus d'une demi-heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
+Par la suite, quatre autres sphères furent projetées vers la boule de feu. Des cris déchirants retentirent à chaque absorption. Les hurlements durèrent près d'une heure. Lorsque la cinquième sphère s'enfonça dans la lave, la sphère de Wang Lin fut brusquement expulsée.
 
 La perle défiant le ciel trembla violemment et, avec une impulsion sans précédent, elle brisa le contrôle de Wang Lin. C'est à ce moment précis que la boule de feu pénétra dans la sphère de terre où il se trouvait.

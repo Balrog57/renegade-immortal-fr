@@ -22,11 +22,11 @@ Tang Yanfeng réfléchit en silence. Après un instant, il déclara calmement: �
 
 « S'ils sont morts, ils sont morts! » L'expression de Tang Yanfeng était glaciale alors qu'il se détournait pour partir. Il renonça même à l'orifice noir situé sous la formation.
 
-La femme hocha la tête et le suivit. Quant au jeune homme qui venait d'atteindre le stade de l'Illusion Yin, il les emboîta rapidement le pas, se félicitant d'avoir pris la bonne décision plus tôt.
+La femme hocha la tête et le suivit. Quant au jeune homme qui venait d'atteindre le stade de l'Yin Illusoire, il les emboîta rapidement le pas, se félicitant d'avoir pris la bonne décision plus tôt.
 
 « Quelqu'un capable d'inspirer une telle crainte au Jeune Maître n'est pas un individu que je peux provoquer! Xu Mu... »
 
-Une fois le groupe de Tang Yanfeng parti, les cultivateurs environnants commencèrent à hésiter. Bien que Wang Lin soit entré dans l'orifice noir, aucun d'eux n'osa s'aventurer dans la zone des 10 000 pieds. Même si la source de la poussière avait disparu, c'était comme si cette zone était véritablement devenue une terre de mort.
+Une fois le groupe de Tang Yanfeng parti, les cultivateurs environnants commencèrent à hésiter. Bien que Wang Lin soit entré dans l'orifice noir, aucun d'eux n'osa s'aventurer dans la zone de 3,3 kilomètres. Même si la source de la poussière avait disparu, c'était comme si cette zone était véritablement devenue une terre de mort.
 
 Après un long moment, ils se retirèrent un à un. Finalement, nul n'osa prendre le risque; après tout, la scène précédente les avait profondément terrifiés.
 
@@ -48,7 +48,7 @@ La voix de Li Yuan trahissait son doute lorsqu'il ajouta rapidement: « Frère X
 
 « Très bien! » En parlant, Wang Lin laissait son sens divin progresser lentement devant eux. Ce tunnel ne comportait aucun embranchement, une seule voie plongeant vers les profondeurs.
 
-Ce passage semblait sans fin. Les deux hommes marchaient depuis plus d'une demi-heure sans voir le bout du tunnel. Li Yuan ne put s'empêcher de s'étonner.
+Ce passage semblait sans fin. Les deux hommes marchaient depuis plus d'une heure sans voir le bout du tunnel. Li Yuan ne put s'empêcher de s'étonner.
 
 « Quelle est la profondeur de ce lieu? Ce tunnel pourrait-il être un fragment superposé? » Habité par ces doutes, Li Yuan accéléra le pas.
 
@@ -98,7 +98,7 @@ Il prit la tête du cortège. Tandis que Li Yuan le suivait, sa main gauche cont
 
 Leur progression n'était pas rapide, mais ils ne s'arrêtèrent pas.
 
-À mesure qu'ils avançaient, la sensation entre les sourcils de Wang Lin devint plus oppressante, lui donnant un air sombre et lugubre. Après une demi-heure, ses yeux s'éclairèrent: son sens divin avait atteint la fin du tunnel.
+À mesure qu'ils avançaient, la sensation entre les sourcils de Wang Lin devint plus oppressante, lui donnant un air sombre et lugubre. Une heure plus tard, ses yeux s'éclairèrent: son sens divin avait atteint la fin du tunnel.
 
 Ayant perçu l'issue, Wang Lin prit une profonde inspiration et s'élança. Un virage se dressait devant eux; il s'arrêta brusquement juste après avoir tourné. Li Yuan le suivit de près. À cet instant, il aperçut la fin grâce à son sens divin et commença à méditer.
 
@@ -126,7 +126,7 @@ Les yeux de Wang Lin se plissèrent et il écrasa directement la restriction. L'
 
 Une fois cela fait, Wang Lin se retourna vers le vortex. Il réfléchit un instant avant de saisir Li Yuan et de reculer lentement.
 
-À peine avait-il reculé de trente pieds que le vortex cessa brusquement de tourner. Une aura ténébreuse s'en échappa et un œil apparut au centre du tourbillon.
+À peine avait-il reculé de moins de dix mètres que le vortex cessa brusquement de tourner. Une aura ténébreuse s'en échappa et un œil apparut au centre du tourbillon.
 
 Simultanément, une voix étrange résonna dans l'esprit de Wang Lin:
 

@@ -66,7 +66,7 @@ Ces paroles déclenchèrent une tempête dans le cœur de Wang Lin!
 
 Il croyait à 70 % ce que Yao Xixue racontait. Ce n'était pas grâce à la beauté de son récit, mais parce qu'elle venait de prononcer ces deux mots: « Qing Lin! »
 
-Wang Lin ne pourrait jamais oublier ce qu'il avait aperçu lorsqu'il était entré dans la grotte avec Yao Xixue. Il avait assemblé les sceaux vitaux pour entendre la voix émanant du vide.
+Wang Lin ne pourrait jamais oublier ce qu'il avait entendu lorsqu'il était entré dans la grotte avec Yao Xixue. Au moment où il assemblait les sceaux vitaux, il avait entendu la voix émanant du vide.
 
 « Je suis Qing Lin... »
 
@@ -112,6 +112,6 @@ Yao Xixue réfléchit un instant et hocha la tête.
 
 « Le Patriarche Sanglant est vraiment rusé. Tant qu'il détient une grotte factice, même sans jeton, il conserve l'initiative. S'il gère bien la situation, dès que le quatrième jeton apparaîtra, il aura naturellement la qualification pour entrer dans la vraie grotte! » Wang Lin marqua une pause, ses yeux s'illuminèrent, et il demanda: « Où ce jeton apparaîtra-t-il après avoir été aspiré dans cet endroit? »
 
-Yao Xixue hésita un instant avant de répondre: « Dans l'Abîme des Marées. Son entrée se trouve à l'intérieur du Pays Démoniaque de la Flamme! »
+Yao Xixue hésita un instant avant de répondre: « Dans l'Abîme des Marées. Son entrée se trouve à l'intérieur du Pays Démon du Feu! »
 
 Wang Lin ne posa plus de questions. Sa main droite s'étira et Yao Xixue fut scellée une fois de plus. Après l'avoir remise dans le sac de stockage, il resta seul dans la tour. Ses yeux émettaient une lueur démoniaque tandis qu'il murmurait pour lui-même: « Il s'avère que ce Domaine des Esprits Démoniaques cachait un tel secret... Mon niveau de culture est bien trop faible par rapport à ces vieux maîtres. Cependant, pourquoi le Tout-Voyant a-t-il été si déterminé à ce que je vienne dans ce Domaine des Esprits Démoniaques... »

@@ -68,7 +68,7 @@ Wang Lin hocha la tête et dit calmement: « D'accord, j'accepte! »
 
 Le vieil homme fixa Wang Lin un long moment avant de demander soudainement: « Ces deux dernières fois où vous avez totalement disparu... comment avez-vous fait? »
 
-Wang Lin soutint son regard sans dire un mot. Un silence pesant s'installa entre eux. Finalement, le vieil homme détourna les yeux et cessa ses interrogations. Il dit froidement: « Allons-y. Il reste moins de six mois avant que cet endroit ne s'ouvre. Si vous tentez de vous échapper en chemin, vous n'aurez pas de seconde chance. Je me contenterai de vous transformer en marionnette. » Puis, il traça rapidement un symbole dans l'air qui s'engouffra dans le corps de Wang Lin.
+Wang Lin soutint son regard sans dire un mot. Un silence pesant s'installa entre eux. Finalement, le vieil homme détourna les yeux et cessa ses interrogations. Il dit froidement: « Allons-y. Il reste moins de six mois avant que cet endroit ne s'ouvre. Si vous tentez de vous échapper en chemin, vous n'aurez pas de seconde chance. Je vous raffinerai sur-le-champ. » Puis, il traça rapidement un symbole dans l'air qui s'engouffra dans le corps de Wang Lin.
 
 « C'est un marqueur de Sens Divin. Cela ne vous fera aucun mal, cela sert uniquement à vous traquer. Une fois arrivés sur place, je vous en libérerai. »
 
@@ -98,7 +98,7 @@ Feng Luan jeta un regard terrifié vers le vieil homme avant de dire calmement: 
 
 Wang Lin articula lentement: « Le junior aimerait consulter le Sentier Divin. »
 
-Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois derniers jours, ils avaient commencé à entrevoir le niveau de culture de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
+Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois dernières années, ils avaient commencé à entrevoir le niveau de culture de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
 
 À ce moment-là, un vieillard au visage rouge sortit de derrière Feng Luan. Il fixa Wang Lin d'un regard sérieux et déclara: « Puisque vous êtes un disciple de mon Sanctuaire du Dieu de la Guerre, il n'y a aucun problème à ce que vous le voyiez. Suivez-moi. » Sur ces mots, il jeta un coup d'œil furtif au vieil homme présent.
 

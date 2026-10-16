@@ -48,7 +48,7 @@ Il projeta la plume en avant; celle-ci se mit soudainement à brûler, dégagean
 
 « Flamme Sainte de Suzaku! » La voix antique de Zhuque Zi tonna.
 
-La plume ardente trembla puis se désintégra subitement. Une vague de feu jaillit du centre de la plume et recouvrit instantanément les 100 kilomètres environnants.
+La plume ardente trembla puis se désintégra subitement. Une vague de feu jaillit du centre de la plume et recouvrit instantanément les 50 kilomètres environnants.
 
 La puissance de cette flamme était inimaginable. Les trois montagnes de la Secte de Raffinement des Âmes furent transformées en un liquide noir et visqueux qui se volatilisa rapidement en gaz.
 
@@ -110,7 +110,7 @@ Les épées rouge et blanche se percutèrent comme des météores. Après une s�
 
 L'être de nuages fixa Zhuque Zi avec un léger sourire. Soudain, son corps se désagrégea pour former huit copies identiques de l'épée. Chacune d'elles recelait une quantité phénoménale d'énergie spirituelle céleste. Les huit épées s'élancèrent simultanément: trois poursuivirent l'Épée de Suzaku, tandis que les cinq autres foncèrent sur Zhuque Zi.
 
-L'expression de Zhuque Zi se crispa alors qu'il reculait de plusieurs centaines de pieds. Il frappa son sac de contenance pour en sortir une gourde et marmonna: « Collecte! »
+L'expression de Zhuque Zi se crispa alors qu'il reculait d'une dizaine de mètres. Il frappa son sac de contenance pour en sortir une gourde et marmonna: « Collecte! »
 
 Une force puissante enveloppa les cinq épées qui, en un éclair, furent piégées à l'intérieur de la gourde.
 
@@ -124,4 +124,4 @@ Le visage de Zhuque Zi changea radicalement et il recula précipitamment.
 
 Ce n'était pas qu'il était impuissant, mais l'âme formée par l'étendard était imprégnée de mort et attaquait sans aucun souci pour sa propre intégrité. Bien qu'il fût certain de pouvoir l'emporter, il serait inévitablement blessé. En temps normal, cela n'aurait eu que peu d'importance, mais son espérance de vie était déjà bien entamée. Une blessure ici réduirait encore davantage ses jours restants.
 
-Un autre enjeu de taille pesait sur lui: le second affrontement avec le Clan des Immortels Délaissés avait déjà commencé. S'il était blessé ici, ce serait une perte tragique.
+Un autre enjeu de taille pesait sur lui: la seconde grande formation du Clan des Immortels Délaissés avait déjà été déployée. S'il était blessé ici, ce serait une perte tragique.

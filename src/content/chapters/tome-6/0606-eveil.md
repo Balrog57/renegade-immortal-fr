@@ -55,7 +55,7 @@ Wang Lin réfléchit longuement avant de dire lentement: « Ainsi, il s'avère q
 
 Un rire arrogant s'échappa de Hu Pao. À cet instant, il avait véritablement les moyens d'être arrogant. La puissance de cent millions de fragments d'âmes était immense!
 
-D'autant plus que ces fragments provenaient tous de ce champ de bataille antique. Avant de mourir, aucun de leurs niveaux de culture n'était faible. Il y avait même des fragments d'âme de niveau général démon, ce qui rendait la chose d'autant plus terrifiante!
+D'autant plus que ces fragments provenaient tous de ce champ de bataille antique. Avant de mourir, aucun de leurs niveaux de culture n'était faible. Il y avait même des fragments d'âme de niveau commandant en chef démon, ce qui rendait la chose d'autant plus terrifiante!
 
 « Avec cet étendard d'âme en main, qui pourra m'arrêter, sinon le Maître qui m'a sauvé? Personne ne peut m'arrêter! Cent millions de fragments n'est pas mon but; mon objectif est un milliard, dix milliards! Je veux qu'un dixième pays démoniaque surgisse dans la Terre des Esprits Démoniaques. Et le premier empereur démon sera moi, Hu Pao! »
 

@@ -42,7 +42,7 @@ Sur ce, son corps flotta dans les airs. Sa main gigantesque descendit vers le ba
 
 Dans la partie nord-ouest de Suzaku, au siège de la Secte des Cadavres, un vieil homme aux cheveux blancs s'éleva vers le ciel. Il poussa un soupir et dit: « Quelle tâche ardue... Comment pourrait-on obtenir facilement le cadavre d'un être céleste? Mon corps va encore devoir se mettre au travail... »
 
-Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de culture de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel au cœur du pays, une femme semblable à une fée des neiges était assise. Elle leva les yeux vers le ciel.
+Au centre de Suzaku se trouvait une contrée entourée par la mer. Ce continent entier appartenait au seul pays de culture de rang 6 de la planète, Suzaku. En ce moment même, sur un immense autel d'une circonférence d'environ trente-trois kilomètres au cœur du pays, une femme semblable à une fée des neiges était assise. Elle leva les yeux vers le ciel.
 
 Sept vieillards l'accompagnaient.
 
@@ -56,7 +56,7 @@ Dès l'instant où le Chaudron de Pluie apparut, il se mit à briller intenséme
 
 Le royaume céleste était brisé et les anciens Célestes étaient morts. L'intégralité du royaume céleste avait été fragmentée lors de la catastrophe survenue il y a fort longtemps.
 
-Les royaumes célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair couvraient chacun quatre systèmes stellaires différents; ainsi, chaque fois qu'un royaume céleste s'ouvrait, des cultivateurs de diverses planètes s'y engouffraient.
+Les royaumes célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair se trouvaient chacun dans une région différente du cosmos, entourée de nombreuses planètes de culture; ainsi, chaque fois qu'un royaume céleste s'ouvrait, des cultivateurs de diverses planètes s'y engouffraient.
 
 Cependant, les royaumes célestes étant divisés en de nombreux fragments, il y avait peu de chances que tous se rejoignent sur la même parcelle.
 
@@ -94,7 +94,7 @@ Il baissa la tête et vit que Suzaku n'était plus qu'une grande sphère, mais �
 
 « Alors, c'est donc ainsi... » Wang Lin sembla comprendre quelque chose.
 
-À cet instant précis, cinq piliers de lumière jaillirent de Suzaku. Trois d'entre eux scrutaient également la planète, comme s'ils avaient eu la même réalisation.
+À cet instant précis, cinq piliers de lumière jaillirent de Suzaku. Deux d'entre eux scrutaient également la planète, comme s'ils avaient eu la même réalisation.
 
 Wang Lin sentit l'énergie céleste qui l'entourait le rapprocher des cinq autres individus jusqu'à ce qu'ils forment un hexagone.
 

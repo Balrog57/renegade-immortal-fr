@@ -6,7 +6,7 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 438 - Lei Ji
 slug: lei-ji
 ---
-Même après avoir entendu le mot « trésor », Wang Lin resta calme. Il avait déjà tué l'ancêtre du Clan des Démons Géants et l'avait scellé une fois. Si cet ancêtre fondateur était libéré et découvrait la vérité, Wang Lin serait la première personne qu'il traquerait. Wang Lin n'en était pas encore au point de ne plus rien craindre.
+Même après avoir entendu le mot « trésor », Wang Lin resta calme. Il avait déjà tué l'ancêtre du Clan des Démons Géants et l'avait scellé une fois. Si cet ancêtre fondateur était libéré et découvrait la vérité, Wang Lin serait la première personne qu'il traquerait. Wang Lin n'était pas encore assez aveuglé par l'appât du gain pour céder.
 
 De plus, l'ancêtre fondateur du Clan des Démons Géants n'avait même pas précisé de quel trésor il s'agissait.
 
@@ -42,7 +42,7 @@ La vitesse de collecte n'avait rien à voir avec ce qui avait été fait précé
 
 La voix de Wang Lin resta calme tandis qu'il achevait de recueillir le sang: « Qui êtes-vous? »
 
-« Je suis le chef de branche du Clan des Démons Géants, Lei Ji! » Cette voix débordait d'un immense orgueil.
+« Je suis le Marquis des Dix Mille Guerriers du Clan des Démons Géants, Lei Ji! » Cette voix débordait d'un immense orgueil.
 
 Wang Lin demanda calmement: « Lei Ji, comment avez-vous été scellé ici? »
 
@@ -94,7 +94,7 @@ Alors qu'il rugissait, son expression se mua en une grimace de douleur tandis qu
 
 Des rangées d'épines terrifiantes et luminescentes apparurent sur son dos. Au sommet de la colonne vertébrale du géant, une plante pourpre, de moitié la taille de son corps, émergea. Simultanément, elle déploya d'innombrables branches qui recouvrirent lentement le colosse.
 
-Une fleur violette... de la taille du géant, s'épanouit. Elle drainait lentement la force vitale du corps du colosse pour croître.
+Une fleur violette... d'environ un tiers de la taille du géant, s'épanouit. Elle drainait lentement la force vitale du corps du colosse pour croître.
 
 Le géant poussa un rugissement amer: « Secte des Cadavres! Si moi, Lei Ji, parviens à me libérer un jour, je ne vous le pardonnerai jamais!!! »
 

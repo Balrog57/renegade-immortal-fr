@@ -10,7 +10,7 @@ Après avoir réfléchi un instant, il jeta un coup d'œil vers la silhouette de
 
 Tous les poils du corps de Wang Lin se hérissèrent et il jura intérieurement. Sans ce vieil homme mystérieux, il se serait déjà échappé. Mais maintenant que son corps de sang avait disparu, il ne pouvait plus fuir.
 
-Sentant le danger imminent, Wang Lin serra les dents. Sachant qu'une fuite était impossible, il fit volte-face et cracha la tablette fragmentaire devant lui pour bloquer l'attaque. Lorsque la sphère de lumière rouge percuta la tablette, celle-ci se mit à trembler violemment.
+Sentant le danger imminent, Wang Lin serra les dents. Sachant qu'une fuite était impossible, il fit volte-face et cracha le sceau fragmentaire devant lui pour bloquer l'attaque. Lorsque la sphère de lumière rouge percuta le sceau, celui-ci se mit à trembler violemment.
 
 Pourtant, elle ne s'effondra pas!
 
@@ -18,11 +18,11 @@ Mais une force puissante s'en échappa et frappa le corps de Wang Lin. Son visag
 
 La crise ne prit pas fin là. La force traversa la tablette, et vague après vague, elle s'abattit sur le corps de Wang Lin. Il cracha du sang à trois reprises consécutives, mais son visage affichait une expression farouche.
 
-« Ce n'est pas si facile de me tuer! » Wang Lin maintint la tablette fragmentaire d'une main et, de l'autre, frappa son sac de contenance, faisant apparaître un écran.
+« Ce n'est pas si facile de me tuer! » Wang Lin maintint le sceau fragmentaire d'une main et, de l'autre, frappa son sac de contenance, faisant apparaître un écran.
 
 Dès son apparition, l'écran trembla et le Tableau des Montagnes et des Rivières déferla soudainement sur le monde, comme si l'univers entier s'était transformé en une peinture de paysages.
 
-Une force impétueuse émana du Tableau des Montagnes et des Rivières. Alors que Wang Lin se tenait au-dessus de celui-ci, il sentit la force qui l'attaquait se dissiper. Puis, l'énergie du tableau s'infiltra dans la tablette fragmentaire pour annuler la puissance interne.
+Une force impétueuse émana du Tableau des Montagnes et des Rivières. Alors que Wang Lin se tenait au-dessus de celui-ci, il sentit la force qui l'attaquait se dissiper. Puis, l'énergie du tableau s'infiltra dans le sceau fragmentaire pour annuler la puissance interne.
 
 « Le Tableau des Montagnes et des Rivières! » Les yeux du jeune homme maléfique se plissèrent, mais un instant plus tard, il ricana: « Une simple copie sans valeur! » Il leva sa main droite et l'abattit impitoyablement. Un craquement sec retentit, puis les cieux et la terre furent immédiatement tordus. Le corps de Wang Lin fut expulsé du Tableau des Montagnes et des Rivières; son visage devint extrêmement pâle et il recula aussitôt après être réapparu.
 
@@ -32,17 +32,17 @@ Alors que le jeune homme maléfique ricanait, il fit un pas en avant pour poursu
 
 Il vit le continent fragmentaire sur lequel ils se trouvaient commencer à trembler violemment. Ce n'était pas seulement une partie du continent, mais l'intégralité du fragment. Les secousses étaient si intenses qu'en un instant presque, d'innombrables montagnes s'effondrèrent, comme si une main géante broyait toutes les reliefs de la surface.
 
-Soudain, la tablette s'éleva dans les airs. Sa progression fut si rapide qu'elle atteignit le jeune homme maléfique en un clin d'œil. Ses yeux se plissèrent et il s'envola immédiatement vers les hauteurs.
+Soudain, le fragment s'éleva dans les airs. Sa progression fut si rapide qu'elle atteignit le jeune homme maléfique en un clin d'œil. Ses yeux se plissèrent et il s'envola immédiatement vers les hauteurs.
 
-Quant à Wang Lin, il rangea ses trésors et recula promptement. Son regard était calme et il ne daigna pas regarder la tablette; au lieu de cela, tout en reculant, il tenta de fusionner avec le monde.
+Quant à Wang Lin, il rangea ses trésors et recula promptement. Son regard était calme et il ne daigna pas regarder le sol; au lieu de cela, tout en reculant, il tenta de fusionner avec le monde.
 
-Des rugissements innombrables de Bêtes du Tonnerre retentirent soudainement au loin. Tandis que la tablette s'élevait, les chaînes reliant ses bords commencèrent à vibrer violemment. Une Bête du Tonnerre trônait au bout de chaque chaîne, et elles continuèrent de rugir en s'élançant vers le ciel.
+Des rugissements innombrables de Bêtes du Tonnerre retentirent soudainement au loin. Tandis que le fragment s'élevait, les chaînes reliant ses bords commencèrent à vibrer violemment. Une Bête du Tonnerre trônait au bout de chaque chaîne, et elles continuèrent de rugir en s'élançant vers le ciel.
 
-C'était l'effort combiné de ces innombrables Bêtes du Tonnerre qui faisait monter la tablette.
+C'était l'effort combiné de ces innombrables Bêtes du Tonnerre qui faisait monter le fragment.
 
-À cet instant, la tablette sur laquelle Wang Lin et le jeune homme maléfique se trouvaient n'était pas la seule à trembler. Au total, quarante-neuf fragments — représentant près de 40 % du Royaume Céleste du Tonnerre — commencèrent à vibrer et à s'élever dans les airs.
+À cet instant, le fragment sur lequel se trouvaient Wang Lin et le jeune homme maléfique n'était pas le seul à trembler. Au total, quarante-neuf fragments — représentant près de 40 % du Royaume Céleste du Tonnerre — commencèrent à vibrer et à s'élever dans les airs.
 
-Ces fragments formèrent une immense formation dont la tablette de Wang Lin était le centre. Il s'agissait d'une structure colossale en forme de fleur de prunier.
+Ces fragments formèrent une immense formation dont le fragment de Wang Lin était le centre. Il s'agissait d'une structure colossale en forme de fleur de prunier.
 
 Les quarante-neuf fragments étaient reliés par des chaînes, et chaque chaîne était tirée par une Bête du Tonnerre qui rugissait et haletait en s'élevant vers les cieux.
 

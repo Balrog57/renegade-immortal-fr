@@ -12,19 +12,19 @@ Sans lever la tête, Wang Lin dit calmement: « Ma force actuelle ne me permet p
 
 Suspendue dans les airs, l'expression de Yao Bingyun se fit sombre. Elle réfléchit longuement en silence avant de murmurer: « Peut-être ai-je mal entendu... » Elle se détourna, les yeux noyés de larmes, et disparut peu à peu dans le ciel.
 
-Du début à la fin, Wang Lin ne leva pas la tête; ses yeux étaient clos, plongé dans sa méditation sur le karma. À l'intérieur de son corps, les poissons yin et yang noirs et blancs tournaient lentement. Ils apparurent derrière lui et se condensèrent en pivotant dans son dos.
+Du début à la fin, Wang Lin ne leva pas la tête; ses yeux étaient clos, plongé dans sa méditation sur le karma. À l'extérieur de son corps, les poissons yin et yang noirs et blancs tournaient lentement. Ils apparurent derrière lui et se condensèrent en pivotant dans son dos.
 
 Chaque rotation créait une force d'aspiration qui engloutissait sans cesse tout ce qui l'entourait. Tout était alors converti en énergie originelle qui pénétrait le corps de Wang Lin, tandis qu'une partie était absorbée par la Perle Défiant le Ciel.
 
 Simultanément, la surface de la Perle Défiant le Ciel se modifia. Une image yin et yang se forma et tourna lentement au sein de l'âme originelle de Wang Lin.
 
-Wang Lin savait que son domaine de karma avait atteint le stade de la petite perfection, lui permettant de devenir corporel. Cela signifiait qu'il avait véritablement franchi la seconde étape avec son domaine et était devenu un cultivateur Scruteur du Nirvana.
+Wang Lin savait que son domaine de karma avait atteint le stade de la petite perfection, et prenait forme hors de son corps. Cela signifiait qu'il avait véritablement franchi la seconde étape avec son domaine et était devenu un cultivateur Scruteur du Nirvana.
 
 S'il le souhaitait, il pouvait provoquer la descente d'une rétribution divine et, une fois celle-ci passée, atteindre le stade initial de Scruteur du Nirvana!
 
 « La seconde étape de la culture comprend les stades Scruteur du Nirvana, Purificateur du Nirvana et Briseur du Nirvana... Ils portent tous le mot Nirvana... D'après ce que j'ai pu observer de la troisième étape, ce n'est qu'en acquérant une compréhension totale du Nirvana et en maîtrisant ses lois que je pourrai enfin atteindre la troisième étape... »
 
-« Les cieux sont infinis et le dao est sans limites. Le chemin du dao ne comporte-t-il que trois étapes...? » Wang Lin resta silencieux lorsqu'il ouvrit les yeux. Son œil gauche contenait le yang et sa main droite contenait le yin. Ils étaient comme le soleil et la lune, et leur aspect était d'une étrange beauté!
+« Les cieux sont infinis et le dao est sans limites. Le chemin du dao ne comporte-t-il que trois étapes...? » Wang Lin resta silencieux lorsqu'il ouvrit les yeux. Son œil gauche contenait le yang et son œil droit contenait le yin. Ils étaient comme le soleil et la lune, et leur aspect était d'une étrange beauté!
 
 À l'ouverture de ses yeux, les poissons yin et yang se mirent à tourner encore plus vite.
 
@@ -52,7 +52,7 @@ Il grimpa étape par étape. Même lorsque ses genoux se brisèrent et que le sa
 
 Le visage du vieil homme Xie était marqué par l'amertume, mais ses yeux brillaient d'un éclat nouveau.
 
-« Les humains sont les poissons, les cieux sont l'eau, le dao est le filet, et le filet est le Créateur! » Ce jour-là, il atteignit enfin le sommet. Là, il vit un homme en pleine culture, dont le regard semblait contenir l'univers entier.
+« Les humains sont les poissons, les cieux sont l'eau, le dao est le filet, et celui qui tient le filet est le Créateur! » Ce jour-là, il atteignit enfin le sommet. Là, il vit un homme en pleine culture, dont le regard semblait contenir l'univers entier.
 
 Bien que le vieil homme Xie fût épuisé et que le sang sur ses genoux ait coagulé, cet instant fut pour lui comme un coup de tonnerre. Un rugissement retentit dans son corps, lui donnant l'impression que son âme quittait son enveloppe charnelle. Pendant un instant, il crut voir une image yin et yang en noir et blanc. Il s'agenouilla immédiatement, tel un adorateur.
 

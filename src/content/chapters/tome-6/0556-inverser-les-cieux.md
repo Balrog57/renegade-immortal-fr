@@ -30,7 +30,7 @@ Yao Xixue continua de reculer, le front couvert d'une sueur parfumée. Elle s'ac
 
 Le symbole disparut au sein de cette lueur écarlate.
 
-L'expression de Yao Xixue était d'une extrême sévérité. Elle venait de consommer 10 % des jades célestes qui étaient censés lui durer des centaines d'années. Au moment où le symbole avait été projeté vers elle, elle avait eu l'impression de faire face à un adversaire de la génération de son père.
+L'expression de Yao Xixue était d'une extrême sévérité. Elle venait de consommer 10 % des jades de sang qui étaient censés lui durer des centaines d'années. Au moment où le symbole avait été projeté vers elle, elle avait eu l'impression de faire face à un adversaire de la génération de son père.
 
 « Wang Lin! » cria Yao Xixue en écrasant un dernier jade de sang. Une fois le symbole disparu, elle se précipita vers la plateforme, en direction de Wang Lin.
 
@@ -40,7 +40,7 @@ Le visage de Yao Xixue s'assombrit et une intention meurtrière perça son regar
 
 Elle lança froidement: « Une seule fois! » Sur ces mots, elle bondit par-dessus Wang Lin et atterrit sur le Chemin du Dragon Révéré pour atteindre la plateforme suivante.
 
-Wang Lin rangea le jade céleste et suivit avec loisir. Il observa Yao Xixue devant lui, le cœur loin d'être apaisé.
+Wang Lin rangea son épée céleste et suivit avec loisir. Il observa Yao Xixue devant lui, le cœur loin d'être apaisé.
 
 « Un simple symbole à trois traits est déjà si puissant... D'après Yao Xixue, il y a un total de 18 couches. Si chaque couche possède un symbole, cela signifie qu'il y en a 18 au total. Quelle sera la puissance d'un symbole à 18 traits... Qu'est-ce que ce symbole exactement? Pourrait-il s'agir d'un sort céleste?! » Wang Lin prit une profonde inspiration et tenta de tracer à nouveau le symbole à trois traits. Hélas, l'énergie spirituelle céleste en son corps ne bougea pas, et le symbole disparut aussi vite qu'il était apparu, dépourvu de toute la puissance précédente.
 

@@ -30,7 +30,7 @@ Ignorant la foule, Yang Xiong murmura à l'oreille de Wang Lin: « Votre maître
 
 Wang Lin leva les yeux vers l'armée de cultivateurs en mouvement perpétuel. Au centre trônait un char de phénix aux cinq couleurs, sur lequel se tenait une femme vêtue d'une robe de cour. Elle sembla remarquer le regard de Wang Lin et lui jeta un coup d'œil.
 
-Wang Lin garda son calme, comprenant la situation. Cette ancêtre Feng Luan était la même femme d'âge moyen qui s'était présentée pour l'Essence de Sang de l'Âme de Zhou Zihong. Après une brève réflexion, il se dirigea vers elle en compagnie de Yang Xiong. En dépassant Xu Si, il lui lança un regard venimeux et y insuffla silencieusement une parcelle de son sens divin.
+Wang Lin garda son calme, comprenant la situation. Cette ancêtre Feng Luan était la même jeune femme qui s'était présentée pour l'Essence de Sang de l'Âme de Zhou Zihong. Après une brève réflexion, il se dirigea vers elle en compagnie de Yang Xiong. En dépassant Xu Si, il lui lança un regard venimeux et y insuffla silencieusement une parcelle de son sens divin.
 
 Ce sens divin s'activerait dans un mois, et la jeune fille mourrait alors. Après les événements survenus à Zhao, Wang Lin avait décidé d'éliminer quiconque nourrirait des intentions malveillantes envers lui, homme ou femme. Il trancherait le bourgeon avant que quoi que ce soit ne puisse éclore. Puisque Xu Si l'avait attaqué la première, elle ne pouvait lui reprocher sa cruauté.
 
@@ -64,11 +64,11 @@ Une heure supplémentaire passa, et les corps des seize bêtes géantes se dissi
 
 À cet instant, toutes les bêtes de feu à l'intérieur de Huo Fen cessèrent tout mouvement et s'agenouillèrent au sol, émettant simultanément des sons plaintifs. Soudain, l'une d'elles s'effondra en tremblant. Si l'on regardait de près, on aurait pu voir une étincelle de lumière rouge sur son front. Son corps se dilata rapidement et, en moins d'une heure, elle atteignit 33 mètres de haut.
 
-Peu après, une bête de feu après l'autre fut touchée par ces étincelles rouges, voyant leur masse croître prodigieusement. En moins de deux heures, toutes les bêtes de feu de Huo Fen semblaient avoir subi une métamorphose. Leur puissance avait été multipliée par dix.
+Peu après, une bête de feu après l'autre fut touchée par ces étincelles rouges, voyant leur masse croître prodigieusement. En moins de deux heures, toutes les bêtes de feu de Huo Fen semblaient avoir subi une métamorphose. Leur puissance avait été multipliée par plus de dix.
 
 Les créatures transformées s'envolèrent dans les airs pour poursuivre l'armée des cultivateurs. De plus en plus de bêtes de feu mutantes rejoignirent la traque, créant un spectacle terrifiant.
 
-Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Sanctuaire du Dieu de la Guerre. L'un des vieillards au visage pâle balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce junior qui a attiré les bêtes de feu ici? »
+Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Sanctuaire du Dieu de la Guerre. L'un des vieillards aux cheveux gris balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce junior qui a attiré les bêtes de feu ici? »
 
 Wang Lin soutint le regard froid du vieillard et hocha la tête.
 

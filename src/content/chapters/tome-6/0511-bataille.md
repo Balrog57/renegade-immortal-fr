@@ -24,7 +24,7 @@ Après ce ricanement, le gaz gris se referma brusquement et perça l'espace dist
 
 La scène était d'une étrangeté absolue. Le corps de Lu Songyi atteignit sa limite avant qu'un fracas ne retentisse: un cultivateur de la Formation de l'Âme de la Secte de l'Épée Da Lou venait d'exploser ainsi.
 
-Bang! Bang! Bang! Le bruit résonnait encore dans la vallée tandis qu'une pluie de chair et de sang s'abattait sur le sol.
+Boum! Boum! Boum! Le bruit résonnait encore dans la vallée tandis qu'une pluie de chair et de sang s'abattait sur le sol.
 
 Une légère brume de sang enveloppa lentement la zone.
 
@@ -60,7 +60,7 @@ Wang Lin retira sa main, regarda Shi Fang et dit: « Répondez à l'une de mes q
 
 Shi Fang éclata d'un rire comme s'il venait d'entendre la chose la plus absurde au monde. Sa main droite forma un sceau et pointa vers le ciel; aussitôt, une puissante énergie d'épée jaillit du fourreau dans son dos. Cette énergie, d'un vert éclatant, monta vers les cieux.
 
-Shi Fang ricana: « Wang Lin, bien que tu sois un cultivateur de la Transformation de l'Âme au stade intermédiaire, nous sommes deux au stade initial et possédons nos trésors d'épée de la secte. Même si tu arrivais à nous tuer, tu en sortirais gravement blessé. Nous verrons comment tu te rendras dans la Mer des Esprits Démoniaques Orientaux quand elle s'ouvrira dans un mois et demi! »
+Shi Fang ricana: « Wang Lin, bien que tu sois un cultivateur de la Transformation de l'Âme au stade intermédiaire, nous sommes deux au stade initial et possédons nos trésors d'épée de la secte. Même si tu arrivais à nous tuer, tu en sortirais gravement blessé. Nous verrons comment tu te rendras dans la Mer des Esprits Démoniaques Orientaux quand elle s'ouvrira dans deux semaines! »
 
 Il avait déjà entendu les rumeurs concernant la liste des élus pour la Mer des Esprits Démoniaques Orientaux. Il savait que le nouveau septième disciple de la Division Pourpre faisait partie de ces privilégiés.
 
@@ -76,7 +76,7 @@ Simultanément, l'ancien se mordit la langue et cracha une importante quantité 
 
 « Dévoration de l'Esprit Céleste! » Une fois le sort prononcé, les yeux de l'ancien s'illuminèrent. Dans un cri retentissant, le sang essentiel doré se mit à bouger de manière occulte et disparut en un clin d'œil.
 
-Au moment de sa disparition, une tête illusoire haute de cent pieds apparut derrière l'ancien. Cette tête, immense et d'un noir verdâtre, était dépourvue de cheveux et ressemblait à un spectre malveillant. Bien qu'illusoire, elle paraissait presque tangible et dégageait une aura glaciale.
+Au moment de sa disparition, une tête illusoire haute d'une trentaine de mètres apparut derrière l'ancien. Cette tête, immense et d'un noir verdâtre, était dépourvue de cheveux et ressemblait à un spectre malveillant. Bien qu'illusoire, elle paraissait presque tangible et dégageait une aura glaciale.
 
 Dès son apparition, la tête poussa un rugissement, s'élança derrière l'ancien et chargea Wang Lin!
 
@@ -114,7 +114,7 @@ Les yeux de la tête fantomatique projetèrent une lueur spectrale et, au moment
 
 Sur ce, le pouce de Wang Lin commença à briller d'un rouge ardent tandis qu'il injectait toute la puissance absorbée des paumes dans la tête. Simultanément, un fragment de la force destructrice du Doigt de la Mort, capable de tout anéantir, pénétra également dans l'entité.
 
-La tête fantomatique commença immédiatement à gonfler. Un cri s'en échappa alors qu'elle tentait de reculer, mais elle ne parcourut que trente pieds avant d'exploser dans un fracas retentissant.
+La tête fantomatique commença immédiatement à gonfler. Un cri s'en échappa alors qu'elle tentait de reculer, mais elle ne parcourut que dix mètres avant d'exploser dans un fracas retentissant.
 
 Le sort de vie de l'ancien trapu fut brisé, faisant pâlir instantanément son visage et le forçant à cracher une large bouchée de sang. Ses yeux étaient emplis de terreur alors qu'il faisait volte-face pour s'enfuir sans l'ombre d'une hésitation.
 

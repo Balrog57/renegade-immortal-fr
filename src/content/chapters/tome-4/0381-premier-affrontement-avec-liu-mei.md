@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 381 - First clash with Liu Mei
 slug: premier-affrontement-avec-liu-mei
 ---
-« La compétition de juin sera la meilleure chance d'intégrer la secte intérieure. La rumeur prétend que le trésor le plus précieux de la Secte de l'Affinement des Âmes est un drapeau spirituel contenant plus de cent millions d'âmes. Au moment où il apparaît, le ciel change de couleur. Il est considéré comme l'un des plus grands trésors de Suzaku. »
+« La compétition de juin sera la meilleure chance d'intégrer la secte intérieure. La rumeur prétend que le trésor le plus précieux de la Secte de l'Affinement de l'Âme est un drapeau spirituel contenant plus de cent millions d'âmes. Au moment où il apparaît, le ciel change de couleur. Il est considéré comme l'un des plus grands trésors de Suzaku. »
 
-« De plus, la Secte de l'Affinement des Âmes se spécialise dans la création de drapeaux spirituels, et toutes leurs techniques sont liées au drapeau sacré de la secte. Bien que d'autres sectes à travers Suzaku sachent également capturer et affiner des âmes, elles ne peuvent rivaliser avec la Secte de l'Affinement des Âmes. Si je peux apprendre leur méthode et affiner un drapeau spirituel en utilisant des âmes errantes, il ne devrait pas être moins puissant que le drapeau de restriction. »
+« De plus, la Secte de l'Affinement de l'Âme se spécialise dans la création de drapeaux spirituels, et toutes leurs techniques sont liées au drapeau sacré de la secte. Bien que d'autres sectes à travers Suzaku sachent également capturer et affiner des âmes, elles ne peuvent rivaliser avec la Secte de l'Affinement de l'Âme. Si je peux apprendre leur méthode et affiner un drapeau spirituel en utilisant des âmes errantes, il ne devrait pas être moins puissant que le drapeau de restriction. »
 
 Les yeux de Wang Lin s'illuminèrent et il agita la main. Une série de restrictions illusoires apparurent sur les murs environnants. Puis, il sortit un jade céleste d'un blanc pur.
 
@@ -54,7 +54,7 @@ Il pensa à Wang Lin. C'était Wang Lin qui l'avait sorti de la terre de l'Ancie
 
 Le temps passa lentement. En un clin d'œil, le printemps s'acheva et juin arriva.
 
-Juin n'avait peut-être aucune signification particulière pour la plupart des gens, mais pour les disciples de la secte extérieure de la Secte de l'Affinement des Âmes à Pilu, c'était une période cruciale.
+Juin n'avait peut-être aucune signification particulière pour la plupart des gens, mais pour les disciples de la secte extérieure de la Secte de l'Affinement de l'Âme à Pilu, c'était une période cruciale.
 
 La compétition entre les disciples de la secte extérieure allait avoir lieu ce mois-ci. À l'issue d'une série de duels, un disciple de la secte extérieure deviendrait un disciple de la secte intérieure.
 
@@ -62,7 +62,7 @@ Wang Lin sortit de sa culture en méditation et ouvrit les yeux. Son regard éta
 
 La marque du thé sur son visage s'était beaucoup estompée et il n'en restait que huit fragments. Ces huit morceaux constituaient également les points clés du sceau de Sun Tai.
 
-Le petit morceau de jade céleste avait été entièrement absorbé par Wang Lin. Sous la pression du jade, une grande partie du domaine du thé et du sceau s'était brisée, mais il ne parvenait toujours pas à les éliminer complètement.
+Le petit morceau de jade céleste avait été entièrement absorbé par Wang Lin. Sous la pression du jade, une grande partie du domaine du thé et du sceau s'était fortement contractée, mais il ne parvenait toujours pas à les éliminer complètement.
 
 Wang Lin murmura: « Sommet du stade avancé de l'Âme Naissante. » Il se leva lentement, prit une profonde inspiration et sortit de la grotte.
 
@@ -116,7 +116,7 @@ Wang Lin ne répondit pas, se contentant de regarder Liu Mei avec calme.
 
 Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que le senior apprenti Wang n'ait un malentendu... »
 
-« Pour que vous puissiez apparaître à la Secte Xuan Dao tout en étant présente ici, à la Secte de l'Affinement des Âmes, je ne crois pas qu'un autre pays que Suzaku puisse accomplir une telle chose! » Wang Lin l'interrompit et se détourna pour partir.
+« Pour que vous puissiez apparaître à la Secte Xuan Dao tout en étant présente ici, à la Secte de l'Affinement de l'Âme, je ne crois pas qu'un autre pays que Suzaku puisse accomplir une telle chose! » Wang Lin l'interrompit et se détourna pour partir.
 
 Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, le senior apprenti Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Senior apprenti Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
 

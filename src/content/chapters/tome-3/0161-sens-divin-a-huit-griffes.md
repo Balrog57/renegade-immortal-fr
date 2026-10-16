@@ -52,7 +52,7 @@ Simultanément, il perçut un sentiment de danger imminent. Wang Lin eut un rict
 
 Le vieil homme suivit la trace de l'essence sanguine et apparut dans les airs, juste au-dessus de sa trajectoire. Il esquissa un sourire avant de frapper le sol, le faisant trembler violemment. Son corps s'enfonça dans la terre grâce au bateau de terre. Cependant, il réapparut bientôt à la surface, tenant l'essence sanguine de Shang Guanmo. Dans un accès de rage, il la broya.
 
-« Tu ne peux pas t'échapper! » hurla le vieil homme en déployant son sens divin. Celui-ci enveloppa tout Xuan Mo, puis il poussa un grognement avant de s'élancer à la poursuite de Wang Lin.
+« Tu ne peux pas t'échapper! » hurla le vieil homme en déployant son sens divin. Celui-ci enveloppa tout Xuan Wu, puis il poussa un grognement avant de s'élancer à la poursuite de Wang Lin.
 
 Alors que Wang Lin voyageait sous terre, il sentit soudain que les environs étaient saturés de fluctuations d'énergie spirituelle. Il savait que le vieil homme était déjà sur ses talons et qu'il ne pourrait pas s'échapper avant trois jours. Après réflexion, il s'élança rapidement vers la surface pour sortir de terre.
 
@@ -70,7 +70,7 @@ Les yeux du vieil homme restèrent rivés sur Wang Lin tandis qu'il répétait, 
 
 Wang Lin réfléchit un instant puis hocha la tête. Il pouvait ressentir l'intention meurtrière du vieil homme. S'il commettait le moindre faux pas, il mourrait sans même avoir de sépulture.
 
-Les yeux du vieil homme se plissèrent. Sans dire un mot, il frappa son sac de rangement et un python vert d'un mètre de long apparut dans sa main.
+Les yeux du vieil homme se plissèrent. Sans dire un mot, il frappa son sac de rangement et un python vert d'une dizaine de mètres de long apparut dans sa main.
 
 Le python tendit la langue tandis que ses yeux noirs fixaient Wang Lin.
 
@@ -80,7 +80,7 @@ Dès que le python toucha terre, il se recroquevilla avant de bondir vers Wang L
 
 La cible de Wang Lin n'était pas le python, mais le vieil homme. Cette fois, il utilisa son royaume du *ji* à son paroxysme.
 
-Au moment où il prononça ce mot, Wang Lin recula brusquement. Le vieil homme sentit son esprit vaciller lorsqu'un rayon d'éclair rouge perça son océ de conscience. Sa conscience devint totalement vide, ne laissant place qu'à un poulpe allongé sur le ventre. Dès que l'éclair rouge pénétra, le poulpe ouvrit la gueule, créant une puissante force d'aspiration qui engloutit immédiatement l'éclair.
+Au moment où il prononça ce mot, Wang Lin recula brusquement. Le vieil homme sentit son esprit vaciller lorsqu'un rayon d'éclair rouge perça son océan de conscience. Sa conscience devint totalement vide, ne laissant place qu'à un poulpe allongé sur le ventre. Dès que l'éclair rouge pénétra, le poulpe ouvrit la gueule, créant une puissante force d'aspiration qui engloutit immédiatement l'éclair.
 
 Mais la puissance du royaume du *ji* était au-delà de toute imagination. Bien que le niveau de culture du vieil homme fût extrêmement élevé, le poulpe frissonna après avoir aspiré l'éclair rouge.
 
@@ -92,15 +92,15 @@ Cependant, des anneaux de lumière blanche apparurent, empêchant l'épée volan
 
 Bientôt, le vieil homme se remit de son choc. Il regarda le python au sol et toucha son front. Fou de rage, il forma un sceau avec ses mains et cria: « Va! »
 
-Une lame émettant une lumière arc-en-ciel apparut devant lui. Cette arme était entièrement faite d'un cristal pur à l'intérieur duquel voyageait la lumière. Suivant les ordres du vieil homme, la lame s'élança en laissant des traînées colorées. Elle perça le sol et poursuivit rapidement Wang Lin.
+Une navette émettant une lumière arc-en-ciel apparut devant lui. Cette arme était entièrement faite d'un cristal pur à l'intérieur duquel voyageait la lumière. Suivant les ordres du vieil homme, la navette s'élança en laissant des traînées colorées. Elle perça le sol et poursuivit rapidement Wang Lin.
 
-En chemin, tandis que la lame traversait la terre, elle semblait se fondre dans l'obscurité pour réapparaître à moins de trente mètres de Wang Lin. Ce dernier sentit sa tête s'engourdir. Sans hésiter, il sortit le talisman que Yang Sen lui avait donné.
+En chemin, tandis que la navette traversait la terre, elle semblait se fondre dans l'obscurité pour réapparaître à moins de trente mètres de Wang Lin. Ce dernier sentit sa tête s'engourdir. Sans hésiter, il sortit le talisman que Yang Sen lui avait donné.
 
-Ce talisman pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante. Au moment où il le lança, la lame frappa.
+Ce talisman pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante. Au moment où il le lança, la navette frappa.
 
-Le talisman s'étendit instantanément pour protéger Wang Lin. Il entra en collision avec la lame et, après une série de craquements stridents, se brisa. La lame fut également repoussée de quelques mètres. De l'impact, une onde de choc se propagea, faisant jaillir la terre à la surface.
+Le talisman s'étendit instantanément pour protéger Wang Lin. Il entra en collision avec la navette et, après une série de craquements stridents, se brisa. La navette fut également repoussée de quelques mètres. De l'impact, une onde de choc se propagea, faisant jaillir la terre à la surface.
 
-Si l'on regardait depuis le ciel, on aurait vu un petit cercle s'étendre alors que la terre volait en éclats, comme si un dragon souterrain était en mouvement.
+Si l'on regardait depuis le ciel, on aurait vu un petit cercle s'étendre jusqu'à plus de trois cents mètres alors que la terre volait en éclats, comme si un dragon souterrain était en mouvement.
 
 Wang Lin fut frappé par l'onde de choc et cracha une bouchée de sang. Il émergea rapidement de terre et évita de justesse le front de l'onde principale.
 

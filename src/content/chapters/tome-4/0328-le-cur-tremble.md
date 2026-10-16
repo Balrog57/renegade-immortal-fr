@@ -48,9 +48,9 @@ Les souvenirs de ses moments avec Wang Lin résonnaient en elle. C'était la seu
 
 À cet instant, deux silhouettes se tenaient devant la cour. Tous deux avaient les cheveux d'un blanc immaculé.
 
-L'un des vieillards secoua la tête et soupira: « Le jeu de cithare de la Maître de secte contient un parfum de mort... hélas... »
+L'un des vieillards secoua la tête et soupira: « Le jeu de cithare de la Maîtresse de secte contient un parfum de mort... hélas... »
 
-« Liu Fei, au cours de ces cent ans, la Maître de secte a échoué trois fois à percer le stade de l'Âme Naissante, malgré la consommation de nombreux élixirs. Si ce n'était pour son désir de revoir cette personne une dernière fois, elle serait morte il y a trente ans lorsqu'elle avait échoué à nouveau... »
+« Liu Fei, au cours de ces cent ans, la Maîtresse de secte a échoué trois fois à percer le stade de l'Âme Naissante, malgré la consommation de nombreux élixirs. Si ce n'était pour son désir de revoir cette personne une dernière fois, elle serait morte il y a trente ans lorsqu'elle avait échoué à nouveau... »
 
 « Song Qing, l'homme dont tu parles... penses-tu qu'il soit encore en vie? » Une figure glaciale traversa l'esprit de Liu Fei, faisant trembler son corps. Même après un siècle, il ne pouvait oublier ce qui s'était produit.
 
@@ -74,7 +74,7 @@ Liu Fei et Song Qing répondirent promptement. Ils échangèrent un regard avant
 
 Li Muwan fixait sa cithare. Elle secoua la tête puis tourna son regard vers les deux hommes.
 
-L'expression de Liu Fei était complexe lorsqu'il prit la parole: « Maître de secte, votre santé est primordiale. Jouer de la cithare est une épreuve pour votre esprit. »
+L'expression de Liu Fei était complexe lorsqu'il prit la parole: « Maîtresse de secte, votre santé est primordiale. Jouer de la cithare est une épreuve pour votre esprit. »
 
 Li Muwan soupira et esquissa un sourire. « Mon corps est déjà trop affaibli. Même sans jouer de la cithare, je ne vivrai pas plus de dix ans. »
 

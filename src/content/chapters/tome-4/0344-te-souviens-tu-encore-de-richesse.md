@@ -34,7 +34,7 @@ Cette arme ne pouvait plus être qualifiée d'épée; elle ressemblait plutôt �
 
 C'était bien Richesse!
 
-Lorsqu'il était à la Secte Heng Yue, son maître lui avait donné un jeton pour choisir une épée volante. Celle qu'il avait choisie fut l'épée la plus ridicule de toute la secte: Richesse!
+Lorsqu'il était à la Secte Heng Yue, son maître lui avait donné un jeton pour choisir une épée volante. Celle qu'il avait choisie fut l'épée la plus ridicule de tout le pays de Zhao: Richesse!
 
 Wang Lin redescendit de la pagode, l'esprit confus. Il se tint à l'extérieur, fixant la grande épée.
 
@@ -110,7 +110,7 @@ Le cœur de Wang Lin se serra en contemplant l'enfant.
 
 *Tu m'as offert une seule larme, et j'ai pu lire tout ce que ton cœur contenait...*
 
-Wang Lin resta ainsi de longues minutes à la regarder. Le temps passait, mais elle ne détourna pas les yeux.
+Wang Lin resta ainsi de longues minutes à la regarder. Le temps passait, mais son regard, lui, ne quittait pas l'enfant.
 
 « Je reviendrai te chercher... » murmura doucement Wang Lin avant de s'éclipser.
 
@@ -120,7 +120,7 @@ Les sanglots cessèrent bientôt, mais la petite fille continuait de regarder ve
 
 ***
 
-Tie Yan était assis en tailleur dans la grotte, montant la garde auprès du bébé. Il s'était habitué à une culture en semi-retraite depuis un an. Il y a six mois, Yu Fei lui avait proposé de prendre la relève, mais il avait refusé.
+Tie Yan était assis en tailleur dans la grotte, montant la garde auprès du bébé. Il s'était habitué à une culture en semi-retraite depuis un an. Il y a six mois, Lu Fei lui avait proposé de prendre la relève, mais il avait refusé.
 
 Depuis qu'il était entré dans le monde de la culture, Tie Yan n'avait rien vécu de semblable que durant cette dernière année. Chaque jour, il étendait son Sens Divin sur tout le village; il connaissait désormais chaque foyer et chaque habitant.
 

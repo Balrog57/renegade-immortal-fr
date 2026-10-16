@@ -22,7 +22,7 @@ La femme fut stupéfaite. Elle était mariée à lui depuis de nombreuses année
 
 « Plus puissant que l'arrière-grand-père... » Les yeux de la femme étaient remplis d'incrédulité lorsqu'elle demanda: « Cet ancêtre immortel est-il toujours en vie? »
 
-L'homme marqua une pause et répondit avec incertitude: « L'arrière-grand-père a vécu plus de deux cents ans. L'ancêtre immortel doit pouvoir vivre bien plus longtemps, il devrait donc être encore en vie... »
+L'homme marqua une pause et répondit avec incertitude: « L'arrière-grand-père a vécu près de deux cents ans. L'ancêtre immortel doit pouvoir vivre bien plus longtemps, il devrait donc être encore en vie... »
 
 Les yeux de la femme s'illuminèrent et elle ajouta rapidement: « Si cet ancêtre peut nous aider, alors Yu Er sera en sécurité. »
 
@@ -40,7 +40,7 @@ La femme demanda aussitôt: « Quoi donc? »
 
 La calèche progressait à vive allure et, trois jours plus tard, ils arrivèrent devant un manoir.
 
-Ce domaine n'était pas très vaste. Il y a deux cents ans, il faisait partie d'un village avant d'être racheté par la famille Wang. Il était resté tel qu'il était autrefois.
+Ce domaine n'était pas très vaste. Il y a deux cents ans, il faisait partie d'un village avant d'être racheté par la famille Wang, qui y fit de grands travaux pour lui donner son aspect actuel.
 
 Une fois la calèche arrêtée, l'homme chauve et corpulent en descendit, l'air épuisé. Il ouvrit la porte et dit respectueusement: « Mon seigneur, nous sommes arrivés. »
 
@@ -56,7 +56,7 @@ Bien qu'ils fussent tous aux cheveux blancs, leurs yeux brillaient encore de vie
 
 L'homme chauve fut saisi d'effroi en voyant ces vieillards. Il eut l'impression que chacun d'eux pourrait le terrasser d'un seul mouvement.
 
-Soudain, son regard se fixa sur l'un des vieux sages. Après avoir reconnu l'objet qu'il tenait, il fut frappé de stupeur et identifia immédiatement l'homme: c'était le premier expert du monde martial.
+Soudain, son regard se fixa sur l'un des vieux sages. Après avoir reconnu l'objet qu'il tenait, il fut frappé de stupeur et identifia immédiatement l'homme: c'était le premier expert du monde martial, célèbre il y a vingt ans.
 
 Sans dire un mot, l'homme s'enfonça dans le manoir. Tout au fond se trouvait une demeure d'apparence très ordinaire.
 

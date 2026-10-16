@@ -50,23 +50,23 @@ Le vent démoniaque chargea et l'énergie s'illumina comme un arc-en-ciel. L'att
 
 La moquerie ne quittait pas les yeux du démon ancien. Face au vent démoniaque, il ouvrit la bouche et le dévora. Puis, en se léchant les lèvres, il dit: « Pas mal. Cette énergie démoniaque peut être considérée comme pure! »
 
-Le regard de Wang Lin restait de glace. À cet instant, il se trouvait à mille pieds du démon ancien et, d'un seul pas, il réduisit la distance de 330 mètres supplémentaires.
+Le regard de Wang Lin restait de glace. À cet instant, il se trouvait à 330 mètres du démon ancien et, d'un seul pas, il réduisit la distance de 33 mètres supplémentaires.
 
-Le démon ancien observa Wang Lin, une lueur mystérieuse dans les yeux. Il bougea soudainement, libérant une explosion d'énergie démoniaque de son immense corps. Cette énergie contenait le Sens Divin du démon ancien et enveloppa rapidement un périmètre de mille pieds autour de lui. Une pression écrasante apparut brusquement dans cette zone.
+Le démon ancien observa Wang Lin, une lueur mystérieuse dans les yeux. Il bougea soudainement, libérant une explosion d'énergie démoniaque de son immense corps. Cette énergie contenait le Sens Divin du démon ancien et enveloppa rapidement un périmètre de 330 mètres autour de lui. Une pression écrasante apparut brusquement dans cette zone.
 
 Des bruits de craquements retentirent à l'intérieur du corps de Wang Lin, puis l'énergie démoniaque qui l'entourait disparut. Il prit une profonde inspiration et dit calmement: « Transformation du Dao! »
 
 Une rivière des enfers s'imposa dans la zone, formant un chemin sous les pieds de Wang Lin. La rivière l'enveloppa tandis que le pouvoir de la réincarnation envahissait les environs.
 
-Les pas de Wang Lin restèrent sereins alors qu'il se rapprochait encore de cent pieds!
+Les pas de Wang Lin restèrent sereins alors qu'il se rapprochait encore de 33 mètres!
 
-Le démon ancien poussa un renflement froid, sa main se transformant en griffe pour frapper Wang Lin. Cette attaque était chargée d'une dense énergie spirituelle démoniaque. Toute l'énergie démoniaque de l'armure se dissipa soudainement pour retourner dans son corps. Puis, les un million de filaments d'énergie meurtrière brillèrent intensément. Wang Lin poussa un rugissement. Au lieu de reculer, il chargea et percuta la griffe du démon ancien.
+Le démon ancien poussa un reniflement froid, sa main se transformant en griffe pour frapper Wang Lin. Cette attaque était chargée d'une dense énergie spirituelle démoniaque. Toute l'énergie démoniaque de l'armure se dissipa soudainement pour retourner dans son corps. Puis, les un million de filaments d'énergie meurtrière brillèrent intensément. Wang Lin poussa un rugissement. Au lieu de reculer, il chargea et percuta la griffe du démon ancien.
 
 Bang!
 
 Un bruit fracassant, capable de déchirer les cieux, résonna dans la zone. La main droite du démon ancien fut projetée en l'air par Wang Lin. Quant à ce dernier, plus de sept cent mille sceaux de vie s'effondrèrent, mais ils se reformèrent tous instantanément.
 
-Il fit un autre pas et franchit encore cent pieds!
+Il fit un autre pas et franchit encore 33 mètres!
 
 La moquerie dans les yeux du démon ancien s'estompa progressivement pour être remplacée par une intention meurtrière glaciale. Lorsqu'il affrontait Wang Lin précédemment, il ne cherchait qu'à s'amuser. Cependant, à cet instant précis, alors que Wang Lin se rapprochait, il sentit que quelque chose clochait.
 
@@ -76,17 +76,17 @@ La moquerie dans les yeux du démon ancien s'estompa progressivement pour être 
 
 Toute la terre recouverte de magma commença à bouillir; des colonnes d'air brûlant s'élancèrent et se rassemblèrent devant le démon ancien. Bientôt, une immense lance apparut devant lui. Cette lance était d'un rouge éclatant. En plus de dégager une dense énergie spirituelle démoniaque, elle irradiait une aura de chaleur surpuissante.
 
-Dès l'apparition de la lance, un profond sentiment de crise envahit le cœur de Wang Lin. Ses yeux s'illuminèrent, mais il ne marqua pas de pause et avança. Après avoir progressé de cent pieds supplémentaires, il toucha l'espace entre ses sourcils de sa main droite. Puis, pointant vers l'avant, il murmura: « Un million de filaments d'énergie meurtrière, ne faites qu'un! »
+Dès l'apparition de la lance, un profond sentiment de crise envahit le cœur de Wang Lin. Ses yeux s'illuminèrent, mais il ne marqua pas de pause et avança. Après avoir progressé de 33 mètres supplémentaires, il toucha l'espace entre ses sourcils de sa main droite. Puis, pointant vers l'avant, il murmura: « Un million de filaments d'énergie meurtrière, ne faites qu'un! »
 
 Les un million de sceaux de vie semblèrent être aspirés par le doigt de Wang Lin. L'énergie vitale fusionna si rapidement qu'il n'en resta plus qu'un seul filament!
 
-Même des êtres comme l'Omniscient auraient été stupéfaits par la quantité d'énergie meurtrière contenue dans ce simple filet de gaz gris. À cet instant, cette énergie se concentra à l'extrémité du doigt de Wang Lin tandis qu'il avançait une fois de plus. Cette fois, il était parvenu à moins de 500 pieds du démon ancien!
+Même des êtres comme l'Omniscient auraient été stupéfaits par la quantité d'énergie meurtrière contenue dans ce simple filet de gaz gris. À cet instant, cette énergie se concentra à l'extrémité du doigt de Wang Lin tandis qu'il avançait une fois de plus. Cette fois, il était parvenu à moins de 165 mètres du démon ancien!
 
-Dès qu'il entra dans le périmètre des 500 pieds, ses yeux s'illuminèrent et il commença à réciter un sort extrêmement complexe. Simultanément, sa main gauche forma un sceau — un sceau qui lui avait été transmis par le Démon Ancien Bei Lou.
+Dès qu'il entra dans le périmètre des 165 mètres, ses yeux s'illuminèrent et il commença à réciter un sort extrêmement complexe. Simultanément, sa main gauche forma un sceau — un sceau qui lui avait été transmis par le Démon Ancien Bei Lou.
 
-Son accord avec Bei Lou stipulait qu'il briserait l'écran démoniaque et utiliserait ce sort une fois entré à moins de 500 pieds de l'autre démon ancien. En accomplissant ces deux étapes, il remplirait la majeure partie de leur pacte. Après tout, il était impossible de vaincre un démon ancien avec la seule puissance de Wang Lin.
+Son accord avec Bei Lou stipulait qu'il briserait l'écran démoniaque et utiliserait ce sort une fois entré à moins de 165 mètres de l'autre démon ancien. En accomplissant ces deux étapes, il remplirait la majeure partie de leur pacte. Après tout, il était impossible de vaincre un démon ancien avec la seule puissance de Wang Lin.
 
-La raison pour laquelle cette guerre avait éclaté était de vider la capitale du Pays des Démons de Feu. Sans la protection des habitants de la capitale, Wang Lin avait pu s'approcher à 500 pieds du démon ancien.
+La raison pour laquelle cette guerre avait éclaté était de vider la capitale du Pays des Démons de Feu. Sans la protection des habitants de la capitale, Wang Lin avait pu s'approcher à 165 mètres du démon ancien.
 
 Au moment où le sceau apparut dans la main gauche de Wang Lin, le sang dans ses veines entra en ébullition. Il cracha alors une importante quantité de sang. Simultanément, des bruits de craquements retentirent dans tout son corps et un brouillard sanguin commença à se former.
 

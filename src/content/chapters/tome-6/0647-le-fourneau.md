@@ -40,7 +40,7 @@ Les éclairs libérés par la deuxième âme originelle de Cupidité percutèren
 
 Les sceaux vitaux apparurent sur le corps de Wang Lin alors qu'il reculait, mais ses yeux brillaient comme des torches.
 
-Après avoir libéré l'énergie de l'épée de son maître, Chen Long s'emparera du jeton sans la moindre hésitation. Ses yeux étaient empreints d'extase. Il s'élança aussitôt vers le haut, cherchant à s'échapper.
+Après avoir libéré l'énergie de l'épée de son maître, Chen Long s'empara du jeton sans la moindre hésitation. Ses yeux étaient empreints d'extase. Il s'élança aussitôt vers le haut, cherchant à s'échapper.
 
 La deuxième âme originelle de Cupidité poussa un rugissement et voulut poursuivre sa proie. Cependant, l'énergie de l'épée de Ling Tianhou était bien trop puissante et contenait même le sens divin de Chen Long, ce qui la rendait facile à contrôler. L'énergie de l'épée bloquait sans cesse la trajectoire de la deuxième âme originelle, la repoussant inlassablement. Celle-ci n'osait point toucher l'énergie de l'épée, sachant qu'elle risquerait d'être gravement blessée; elle ne pouvait donc qu'attendre que celle-ci se dissipe.
 
@@ -110,9 +110,9 @@ Dans un fracas assourdissant, une ouverture se déchira dans la brume. L'épée 
 
 Les yeux de Cupidité s'illuminèrent. Il recula et frappa à nouveau son sac de rangement. Ce geste fit non seulement hésiter Zhou Yi, mais fit également bondir le cœur de Wang Lin.
 
-« Wang Lin, ce vieil homme doit remercier Situ Nan. Sans lui, comment aurais-je été contraint de rester sur la planète déserte de Suzaku pendant des dizaines de milliers d'années? Si ce n'était pour ces millénaires, je n'aurais jamais pu comprendre le fonctionnement de tant de trésors qui m'étaient autrefois inutilisables! » Alors que Cupidité levait la main droite, un écran apparut.
+« Wang Lin, ce vieil homme doit remercier Situ Nan. Sans lui, comment aurais-je été contraint de rester sur la planète déserte de Suzaku pendant dix mille ans? Si ce n'était pour ces millénaires, je n'aurais jamais pu comprendre le fonctionnement de tant de trésors qui m'étaient autrefois inutilisables! » Alors que Cupidité levait la main droite, un écran apparut.
 
-Une fois lancé, l'écran s'élargit jusqu'à atteindre cent pieds de large. Il présentait une peinture à l'encre d'un paysage montagneux. La brume emplissait les cimes, conférant à l'image l'aura d'un monde céleste.
+Une fois lancé, l'écran s'élargit jusqu'à atteindre trente-trois mètres de large. Il présentait une peinture à l'encre d'un paysage montagneux. La brume emplissait les cimes, conférant à l'image l'aura d'un monde céleste.
 
 « Ce vieil homme n'a pas pu trouver la Peinture des Montagnes et des Rivières du Royaume Céleste, mais j'ai trouvé son empreinte sur cet écran. Rassemble-toi pour moi! » Dans un cri de Cupidité, une force d'aspiration massive émana de l'écran.
 

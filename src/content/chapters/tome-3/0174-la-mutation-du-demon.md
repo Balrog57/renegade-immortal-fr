@@ -60,7 +60,7 @@ Wang Lin prit une profonde inspiration et marcha vers le vortex. À ce stade, il
 
 Cependant, l'évasion terrestre n'augmentait la vitesse uniquement lorsqu'on était sous terre. Tant qu'il y avait de la terre sous ses pieds, bien que ce ne fût pas aussi rapide qu'une épée volante, cela restait plus véloce que la course.
 
-Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que son savoir n'était rien comparé à la véritable technique d'évasion terrestre, celle qui, disait-on, permettait de parcourir des dizaines de milliers de kilomètres en quelques respirations.
+Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que son savoir n'était rien comparé à la véritable technique d'évasion terrestre, celle qui, disait-on, permettait de parcourir plusieurs milliers de kilomètres en quelques respirations.
 
 Tout en soupirant, il n'oublia pas de maintenir son Sens Divin déployé pour inspecter les environs. Par chance, de vastes quantités de tornades noires étaient attirées par Bossu Meng. En avançant ainsi, Wang Lin ne rencontra guère de danger.
 

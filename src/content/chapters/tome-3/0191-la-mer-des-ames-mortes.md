@@ -54,7 +54,7 @@ La vitesse de Wang Lin était prodigieuse. Il chargea vers l'ouverture qui se re
 
 Voyant que les ondes s'affaiblissaient et que la sortie lui échappait encore, une idée jaillit. Il but une autre gorgée d'énergie spirituelle liquide. Ses mains formèrent un nouveau sceau tandis qu'il murmurait des incantations. Lorsqu'il relâcha ses mains, une seconde sphère noire apparut.
 
-Il saisit la sphère et la projeta sur le côté. En se brisant, elle permit aux ondes environnantes de reprendre vie et de repousser le brouillard à nouveau. Le temps pressait. Le fardeau pesant sur son corps était immense à chaque utilisation de la technique de Brise de l'Ancien Dieu. Si elle n'était utilisée que trois fois, les dommages restaient supportables, mais au-delà, il risquait de subir de graves séquelles avant d'avoir maîtrisé la Tactique de l'Ancien Dieu.
+Il saisit la sphère et la projeta sur le côté. En se brisant, elle permit aux ondes environnantes de reprendre vie et de repousser le brouillard à nouveau. Le temps pressait. Le fardeau pesant sur son corps était immense à chaque utilisation de la technique de Brise de l'Ancien Dieu. Si elle n'était utilisée que trois fois, les dommages restaient supportables, mais au-delà, il risquait de subir de légères séquelles avant d'avoir maîtrisé la Tactique de l'Ancien Dieu.
 
 La technique de Brise de l'Ancien Dieu reposait sur la Tactique de l'Ancien Dieu, mais pour l'instant, Wang Lin n'en utilisait que l'énergie spirituelle brute pour s'en sortir.
 
@@ -62,7 +62,7 @@ Il continua sa progression. Alors que les ondes ne parvenaient plus à contenir 
 
 Après un bref regard en arrière, il laissa échapper un rire amer avant de se retourner pour repartir. Au fond du brouillard s'étendait une couche continue d'éclairs violets. S'il y était entré par imprudence, sa mort était certaine.
 
-De plus, sous cette couche d'éclairs, il aperçut une mer noire. Dans les eaux rugissantes de cette mer, des créatures semblables à des dragons, mais qui n'en étaient pas, le fixaient à travers le voile pourpre.
+De plus, sous cette couche d'éclairs, il aperçut une mer noire. Dans les eaux rugissantes de cette mer, des créatures semblables à des dragons, longues d'environ trente-trois kilomètres, mais qui n'en étaient pas, le fixaient à travers le voile pourpre.
 
 Ce n'était pas un lieu que Wang Lin pouvait forcer. Il semblait qu'avant même d'entrer dans la Mer des Âmes Mortes, il périrait. Wang Lin possédait une personnalité très décisive: dès qu'il percevait un danger, il se retirait.
 
@@ -96,7 +96,7 @@ C'était la seule explication au comportement frénétique des cultivateurs dém
 
 Une pensée traversa son esprit: pour qui tous ces cultivateurs démoniaques travaillaient-ils?
 
-Le retour de Meng le Bossu d'entre les morts devait cacher un secret stupéfiant. De même pour la capture de Duanmu et de Wang QingYue. Plus il analysait la situation, plus l'image globale se dessinait. Il avait le sentiment de percer le mystère.
+Le retour de Meng le Bossu d'entre les morts devait cacher un secret stupéfiant. De même pour la capture de Duanmu et de Wang Qingyue. Plus il analysait la situation, plus l'image globale se dessinait. Il avait le sentiment de percer le mystère.
 
 Wang Lin fixa la Mer de Sang, l'expression sereine. Quelqu'un au sein du corps de l'Ancien Dieu, capable de contrôler tous ces démoniaques, devait être l'héritier du pouvoir de l'Ancien Dieu. Il s'agissait sans doute de l'homme aux cheveux roux prisonnier de la Mer de Sang.
 
@@ -146,7 +146,7 @@ Bien que le temps s'écoule plus vite dans la Perle Défiant le Ciel, cela aurai
 
 Son noyau tourna selon un motif précis, projetant des vagues d'énergie vers son corps. Les yeux de Wang Lin brillèrent. Ce seul dantian lui permit d'atteindre le sommet du stade intermédiaire de la Formation du Noyau, à un pas du stade avancé.
 
-Sa main droite retourna vers son sac pour en sortir des flacons de pilules immortelles confectionnées par Li MuWan. Il les ingéra une à une. Le temps s'écoulait à toute allure. Dès qu'une pilule était consommée, la technique de Vol d'Énergie Spirituelle l'absorbait intégralement. Juste avant que l'énergie ne se diffuse dans son corps, Wang Lin la redirigeait vers son noyau.
+Sa main droite retourna vers son sac pour en sortir des flacons de pilules immortelles confectionnées par Li Muwan. Il les ingéra une à une. Le temps s'écoulait à toute allure. Dès qu'une pilule était consommée, la technique de Vol d'Énergie Spirituelle l'absorbait intégralement. Juste avant que l'énergie ne se diffuse dans son corps, Wang Lin la redirigeait vers son noyau.
 
 Sa culture progressa ainsi rapidement, le faisant franchir le stade intermédiaire pour atteindre le stade avancé de la Formation du Noyau.
 
@@ -158,7 +158,7 @@ Dès la première gorgée, une chaleur brûlante envahit son corps. La technique
 
 Après avoir absorbé la première dose, il en prit une seconde.
 
-Un jour, deux jours, trois jours... Un mois passa, durant lequel Wang Lin resta en méditation profonde, les yeux clos. La technique de Vol d'Énergie Spirituelle restait active en permanence.
+Un jour, deux jours, trois jours... Trois mois passèrent, durant lesquels Wang Lin resta en méditation profonde, les yeux clos. La technique de Vol d'Énergie Spirituelle restait active en permanence.
 
 Il ne restait plus que dix gouttes de liquide spinal. Le noyau dans son corps avait désormais la taille de deux poings, d'un doré parsemé de reflets rouges. À chaque rotation, ses méridiens étaient parcourus de douleurs lancinantes, mais il n'avait pas encore franchi le stade de l'Âme Naissante.
 
@@ -186,7 +186,7 @@ Wang Lin restait impassible et d'un calme olympien. Alors que la main de Meng te
 
 Wang Lin nota cette hésitation. Il avait la confirmation de ses soupçons. Il ne lui restait plus qu'à vérifier que leur maître était bien l'homme aux cheveux roux prisonnier de la Mer de Sang.
 
-Le visage de Meng le Bossu devint sombre et incertain. Il laissa échapper un renflement méprisant et sa main plongea vers Wang Lin avec une rapidité accrue.
+Le visage de Meng le Bossu devint sombre et incertain. Il laissa échapper un reniflement méprisant et sa main plongea vers Wang Lin avec une rapidité accrue.
 
 Wang Lin affichait une expression d'acier, immobile. Il avait déjà préparé des pièges ici. Si l'un d'eux tentait de le capturer, une faille proche s'ouvrirait pour l'évacuer. Après tout, ils étaient dans le corps de l'Ancien Dieu, et personne n'en connaissait mieux les recoins que lui.
 
@@ -196,7 +196,7 @@ Au moment où la main de Meng allait s'abattre sur lui, une voix glaciale retent
 
 « Arrête! »
 
-À l'instant même, Meng le Bossu eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Il s'arrêta après avoir craché plusieurs bouffées de sang noir, puis s'agenouilla. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Duo Mu. »
+À l'instant même, Meng le Bossu eut l'impression d'être saisi par une main invisible et fut projeté en arrière. Il s'arrêta après avoir craché plusieurs bouffées de sang noir, puis s'agenouilla. Aucune rancœur ne marquait son visage lorsqu'il dit respectueusement: « Salutations, Seigneur Dou Mu. »
 
 Simultanément, tous les autres cultivateurs démoniaques se prosternèrent.
 
@@ -204,4 +204,4 @@ L'homme d'âge moyen qui avait anéanti le plan du Magicien du Démon Céleste a
 
 Wang Lin répondit avec calme.
 
-« Tu es donc bel et bien un Dévoreur d'Âmes. Très bien, suis-moi! » Après avoir parlé, l'homme agita la main dans le vide, ouvrant une faille de plusieurs centaines de pieds de large dans le ciel.
+« Tu es donc bel et bien un Dévoreur d'Âmes. Très bien, suis-moi! » Après avoir parlé, l'homme agita la main dans le vide, ouvrant dans le ciel une faille d'environ 330 mètres de long.

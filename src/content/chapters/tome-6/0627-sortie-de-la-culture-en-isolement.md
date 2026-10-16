@@ -32,7 +32,7 @@ Après tout, quelque chose de singulier émanait de cette petite tribu. Le nuage
 
 Bien entendu, tous les pays démoniaques n'avaient pas jeté leur dévolu sur la Tribu des Raffineurs d'Âmes. Seuls les dirigeants de deux pays l'avaient fait, tandis que les cinq autres concentrèrent leurs efforts sur le Pays du Démon de Feu.
 
-Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au démon ancestral du Pays du Démon du Ciel.
+Les sept autres pays démoniaques n'envoyèrent pas de trop grandes troupes. Après tout, ils n'avaient pas la détermination nécessaire pour engager toutes leurs forces, contrairement au Pays du Démon du Ciel.
 
 À cet instant, le Pays du Démon de l'Eau et le Pays du Démon du Tonnerre envoyèrent chacun un vice-commandant en chef escorté de 100 000 soldats démons. L'un venait du nord et l'autre du sud. Les deux armées encerclèrent ainsi la Tribu des Raffineurs d'Âmes.
 
@@ -44,7 +44,7 @@ Quant au Pays du Démon du Tonnerre, son vice-commandant en chef était un homme
 
 « Ce voyage dans le Pays du Démon du Ciel n'a rien rapporté. Cependant, rapporter ce trésor à l'Empereur Démon est une option tentante! » Les yeux de l'homme s'illuminèrent et il fit un pas en avant. Dans un fracas assourdissant, le sol se brisa sous son poids et la zone calcinée commença à s'étendre.
 
-Le corps de l'homme s'élança rapidement vers le nuage noir. Sa vitesse était prodigieuse; il avait manifestement atteint le stade équivalent d'un cultivateur Ascendant au début de sa progression. En un seul bond, il franchit une immense distance pour arriver à la lisière du nuage noir qui entourait la tribu.
+Le corps de l'homme s'élança rapidement vers le nuage noir. Sa vitesse était prodigieuse; il avait manifestement atteint le stade équivalent d'un cultivateur Ascendant au sommet du stade initial. En un seul bond, il franchit une immense distance pour arriver à la lisière du nuage noir qui entourait la tribu.
 
 Les ondes d'énergie spirituelle démoniaque émanant de son corps formèrent un bouclier invisible qui repoussa le nuage noir.
 
@@ -74,7 +74,7 @@ Les différents généraux démons acquiescèrent à son ordre.
 
 L'homme robuste pénétra d'un pas décidé dans l'enceinte de la tribu. Il affichait un sourire narquois, s'imaginant déjà la panique et la terreur sur les visages de ces primitifs.
 
-Pourtant, au moment où il entra, il fut frappé de stupeur. Sur cette zone de cinquante kilomètres, les membres de la tribu étaient tous assis en position de lotus. Ils le regardaient tous, mais...
+Pourtant, au moment où il entra, il fut frappé de stupeur. Sur une zone de plus de cent kilomètres à la ronde, les membres de la tribu étaient tous assis en position de lotus. Ils le regardaient tous, mais...
 
 Il n'y avait aucune trace de panique dans leurs yeux, contrairement à ce qu'il avait anticipé. Au contraire, leur regard était d'un calme absolu, et ce calme n'avait rien de feint! On y percevait même un profond sarcasme et une froideur glaciale.
 
@@ -132,7 +132,7 @@ Wang Lin ne se précipita pas vers le Pays du Démon de Feu; il se rendit d'abor
 
 « Le jade indiquait 12 symboles, mais il n'y en a que 11 pour l'instant. J'ignore où se cache le dernier... » L'expression de Wang Lin restait neutre tandis qu'il avançait. Il activa ensuite le grand sort de téléportation et se dirigea droit vers le Pays du Démon de Feu.
 
-Les flammes de la guerre dévoraient le Pays du Démon de Feu. Les sept autres nations continuaient de fortifier leurs tours militaires sur son territoire. Le pays était devenu un véritable champ de bataille. Après près de cent ans de conflit, la terre était maculée de rouge. En pénétrant dans le pays, une odeur de sang entêtante frappait les sens.
+Les flammes de la guerre dévoraient le Pays du Démon de Feu. Les sept autres nations continuaient d'envoyer des renforts sur son territoire. Le pays était devenu un véritable champ de bataille. Après près de cent ans de conflit, la terre était maculée de rouge. En pénétrant dans le pays, une odeur de sang entêtante frappait les sens.
 
 Outre l'odeur du sang, d'innombrables cadavres jonchaient le sol. Des effluves de mort s'échappaient des corps, formant une brume grise qui enveloppait tout le Pays du Démon de Feu.
 

@@ -8,11 +8,11 @@ slug: comprendre-la-vérité
 ---
 Maître Yi Chen semblait avoir atteint une certaine illumination. Il tenait sa coupe de vin sans la reposer pendant un long moment.
 
-« Le frère Wang fait-il référence au Système Stellaire Tout-Ciel lorsqu'il évoque les familles cultivatrices? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit: « En parlant du Système Stellaire Tout-Ciel, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
+« Le frère Wang fait-il référence au Système Stellaire d'Allheaven lorsqu'il évoque les familles cultivatrices? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit: « En parlant du Système Stellaire d'Allheaven, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
 
 « La bataille d'Allheaven contre l'Alliance au nord a contraint cette dernière à battre en retraite. Leur puissance ne doit pas être sous-estimée. »
 
-Tandis qu'il parlait, des coups de tonnerre retentirent dans le ciel nocturne et les nuages se rassemblèrent progressivement pour occulter les étoiles. L'humidité envahit la région, puis un éclair qui illumina la nuit s'abattit avec fracas.
+Tandis qu'il parlait, des coups de tonnerre retentirent dans le ciel nocturne et les nuages se rassemblèrent progressivement pour occulter la lune. L'humidité envahit la région, puis un éclair qui illumina la nuit s'abattit avec fracas.
 
 Au même instant, de lourdes gouttes de pluie tombèrent, produisant un bruit d'éclaboussure assourdissant. Une fine couche de brume s'éleva du sol.
 
@@ -34,7 +34,7 @@ Les réactions de Wang Lin firent se regarder les trois frères Chen. Ils ne pou
 
 Une fois que les paroles de Maître Yi Xing eurent dissipé le brouillard dans son esprit, les pensées de Wang Lin devinrent incroyablement claires. Il repensa au comportement de Bai Wei et sembla saisir la situation.
 
-« Il y avait un arbre blanc planté dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur des fleurs n'était pas blanche, mais noire. Elles n'ont duré que trois respirations avant de tomber en poussière... Cela avait surpris beaucoup de gens à l'époque. J'y étais aussi; je pensais qu'il aurait été merveilleux de pouvoir sauver une fleur. »
+« Il y avait un arbre blanc planté dans la montagne arrière; on disait qu'il ne fleurirait jamais, et pourtant, il a fleuri. Cependant, la couleur de la fleur n'était pas blanche, mais noire. Elle n'a duré que trois respirations avant de se dissiper en brume... Cela avait surpris beaucoup de gens à l'époque. J'y étais aussi; je pensais qu'il aurait été merveilleux de pouvoir sauver une fleur. »
 
 « Il y avait un sens caché derrière ses paroles. Cet arbre blanc faisait référence à Bai Wei lui-même! Le fait que l'arbre blanc ne puisse pas fleurir signifie qu'il était initialement un homme, mais qu'il est devenu une femme... Puis il a dit que les fleurs blanches avaient inopinément fleuri, mais qu'au lieu d'être blanches, elles étaient noires. C'est encore plus explicite: il me disait que pour une raison quelconque, le noir et le blanc s'étaient inversés et qu'il était passé du masculin au féminin! »
 
@@ -78,7 +78,7 @@ Sa main droite forma un sceau, il pointa le ciel et ordonna: « Invoquez la plui
 
 Peu après, une force invisible sembla émaner du doigt de Wang Lin. En un instant, toute la pluie située dans un rayon de dizaines de milliers de kilomètres fut enveloppée par cette force et s'immobilisa.
 
-Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les gouttes de pluie restèrent figées dans diverses positions dans l'air. Même si elles n'étaient qu'à un pouce du sol, elles demeuraient immobiles.
+Même la nouvelle pluie formée par les nuages ne tombait plus. Toutes les gouttes de pluie restèrent figées dans diverses positions dans l'air. Même si elles n'étaient qu'à 3,3 centimètres du sol, elles demeuraient immobiles.
 
 Chaque goutte de pluie contenait une force étrange.
 

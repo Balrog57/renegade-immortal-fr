@@ -38,7 +38,7 @@ Bien qu'ils aient déjà vu des gens choisir l'autodestruction pour blesser l'en
 
 L'expérience précédente avait laissé une trace de choc ineffaçable dans leurs cœurs!
 
-Si cela avait été tout, ce ne serait pas si effrayant, mais parmi ceux qui chargeaient se trouvaient les deux cultivateurs Yang Corporel et Wang Lin!
+Si cela avait été tout, ce ne serait pas si effrayant, mais parmi ceux qui chargeaient se trouvaient les cultivateurs de l'Yin Illusoire, les deux cultivateurs Yang Corporel et Wang Lin!
 
 Leur présence, conjuguée à la charge de la foule, fit naître une terreur dans leurs cœurs déjà hésitants, surtout après avoir vu Wang Lin tuer l'un d'eux avec une telle facilité!
 
@@ -70,7 +70,7 @@ Alors que l'homme reculait, il forma un sceau et frappa son sac de stockage. Tro
 
 Lorsque les doigts de Wang Lin pressèrent sur le gaz violet, il ressentit immédiatement une force puissante à l'intérieur. Il ne put s'empêcher de marquer un temps d'arrêt, ses yeux se rétrécissant.
 
-Le messager profita de cet instant pour reculer de nouveau. Un sourire narquois apparut sur les lèvres de Wang Lin; il leva sa main droite et le Tatou d'Os de Bête s'envola aussitôt. Une aura maléfique passa en éclair et une lumière grise apparut au pied du messager.
+Le messager profita de cet instant pour reculer de nouveau. Un sourire narquois apparut sur les lèvres de Wang Lin; il leva sa main droite et le Tatouage d'Os de Bête s'envola aussitôt. Une aura maléfique passa en éclair et une lumière grise apparut au pied du messager.
 
 Le visage de ce dernier devint livide alors que le gaz violet tentait de résister à la lumière grise. À cet instant, Wang Lin se rapprocha et utilisa le sort d'Immobilisation.
 
@@ -80,7 +80,7 @@ Un bruit de craquement retentit aussitôt, puis le corps du messager se fragment
 
 « Je vous en prie, ne me tuez pas, j'utiliserai un trésor puissant... » Avant que l'homme n'ait pu achever sa phrase, les yeux de Wang Lin brillèrent et il s'élança. Il pointa la main droite et le Fouet du Karma jaillit, faisant pousser un gémissement misérable à l'âme originelle emprisonnée dans la brume violette. Wang Lin saisit l'âme originelle et les trois drapeaux. Il cracha ensuite une bouchée d'énergie originelle pour former d'innombrables restrictions afin de sceller les drapeaux ainsi que l'âme originelle, avant de les ranger dans son sac.
 
-À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains Illusions Yin — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
+À ce moment-là, les deux autres messagers qui avaient chargé furent encerclés par les autres cultivateurs. Sous l'assaut conjoint des deux cultivateurs Yang Corporel — soutenus par certains cultivateurs de l'Yin Illusoire — et de nombreux cultivateurs Ascendants, les deux messagers furent contraints de reculer.
 
 C'est à cet instant qu'un éclat argenté jaillit et que du sang jaillit de la poitrine de l'un des messagers. Ses yeux s'éteignirent et son âme originelle s'échappa pour fuir.
 

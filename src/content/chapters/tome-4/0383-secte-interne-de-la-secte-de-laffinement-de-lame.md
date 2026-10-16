@@ -16,7 +16,7 @@ Ces trois auras sont l'aura de la mort, l'aura yin et l'aura du meurtre.
 
 L'aura de la mort provient de l'absorption de l'énergie des cadavres. Bien qu'il s'agisse d'une forme d'énergie yin, elle est imprégnée de mort.
 
-La seconde, l'aura yin, est l'énergie yin issue des âmes féminines. Cette aura yin contient la vie.
+La seconde, l'aura yin, est l'énergie yin issue des femmes. Cette aura yin contient la vie.
 
 Après avoir obtenu ces deux auras, le cultivateur doit les fusionner, puis combiner le résultat avec une troisième aura: l'aura du meurtre! Une fois les trois auras fusionnées, l'individu devra subir une épreuve avec seulement 10 % de chances de survie. Quiconque survivra pourra commencer à utiliser le sortilège de la mort. Mais dès lors qu'un cultivateur entreprend cette voie, il devra endurer une douleur inimaginable chaque jour et affronter un nouveau défi tous les trois ans, avec, pour chacun d'eux, seulement 10 % de chances de survie.
 
@@ -90,9 +90,9 @@ Wang Lin se frotta le nez. Il ne s'en souvenait vraiment absolument pas.
 
 « Ce Ceng Niu a vraiment disparu au moment opportun. Dun Tian, de notre Secte de l'Affinement de l'Âme, allait justement aller lui demander des comptes à ce sujet. » Wang Zhen soupira.
 
-« Le patriarche Du Tian? » Les yeux de Wang Lin s'illuminèrent.
+« Le patriarche Dun Tian? » Les yeux de Wang Lin s'illuminèrent.
 
-« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte de l'Affinement de l'Âme possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Du Tian. »
+« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte de l'Affinement de l'Âme possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. »
 
 Wang Lin leva les yeux. Il pouvait distinguer une faible trace d'aura rouge sang derrière les neuf anneaux dorés.
 
@@ -140,9 +140,9 @@ Le vieil homme eut un ricanement méprisant: « Rien de préoccupant! »
 
 La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte de l'Affinement de l'Âme. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux frères aînés est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
 
-« La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère aîné en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. L'aîné n'est-il toujours pas satisfait? »
+« La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère cadet en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le cadet n'est-il toujours pas satisfait? »
 
-L'expression du vieil homme se crispa: « Quelles absurdités! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé! Je ne compte pas sacrifier deux disciples aînés pour cela! »
+L'expression du vieil homme se crispa: « Quelles absurdités! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé! Mes deux frères aînés, je ne vous raccompagne pas! »
 
 Les deux sens divins éclatèrent d'un rire sonore avant de se dissiper.
 

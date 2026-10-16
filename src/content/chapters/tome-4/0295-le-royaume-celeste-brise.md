@@ -58,7 +58,7 @@ Au centre du palais, Wang Lin s'arrêta, terrifié par la scène qui s'offrait �
 
 Wang Lin fut stupéfait. À la vue de cette trace, il pensa immédiatement à celle qui marquait la Porte Céleste.
 
-La puissance d'une seule empreinte de main avait suffi à dévaster une zone aussi vaste. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais nous parlions ici du Royaume Céleste.
+La puissance d'une seule empreinte de main avait suffi à dévaster une zone de plusieurs kilomètres à la ronde. Wang Lin pensait pouvoir accomplir un tel exploit sur Suzaku, mais nous parlions ici du Royaume Céleste.
 
 Tout dans le Royaume Céleste était bien plus résistant qu'ailleurs, et ce lieu avait été peuplé de cultivateurs au stade de la Formation de l'Âme ou au-delà, ayant pratiqué la culture de l'énergie spirituelle céleste. Si l'on prenait tout cela en compte, cette empreinte était absolument terrifiante.
 
@@ -72,7 +72,7 @@ Lorsqu'il se redressa, les yeux de Wang Lin brillèrent d'une lueur particulièr
 
 Après plusieurs jours de marche, il tomba sur une stèle de pierre brisée sur laquelle quelques mots étaient gravés.
 
-« Offert par le cinquième Empereur Céleste Rain à l'Érudit Céleste Tian Hua... »
+« Offert par le cinquième Empereur Céleste de la Pluie à l'Érudit Céleste Tian Hua... »
 
 La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que l'empereur céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 50000 kilomètres, rendant la culture plusieurs fois plus efficace.
 

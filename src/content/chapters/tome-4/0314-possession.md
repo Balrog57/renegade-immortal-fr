@@ -110,9 +110,9 @@ Soudain, plusieurs filaments de fumée noire s'échappèrent de son corps et s'i
 
 Pour la première fois, Papillon Rouge paniqua. Sachant que lutter était vain, elle leva précipitamment sa main droite pour révéler un bracelet de jade. Sa voix, stridente, cria: « Aîné, connaissez-vous cet objet? »
 
-Les yeux du vieil homme devinrent sérieux. « Le symbole des disciples de base de Suzaku: le Bracelet de la Paix Ouverte. »
+Les yeux du vieil homme devinrent sérieux. « Le symbole des disciples centraux de Suzaku: le Bracelet de la Paix Ouverte. »
 
-Les petits serpents s'étaient déjà infiltrés dans ses orifices et son visage vira au noir verdâtre alors qu'elle luttait pour articuler: « Ce bracelet est lié à mon âme. Si je meurs, il explosera. Le fragment céleste s'effondrera avec moi, et vous ne pourrez pas non plus vous échapper! Même si vous réussissiez, vous n'auriez plus aucune place où vivre sur Suzaku. Ce bracelet représente le statut d'un disciple de base; ils pourront vous retrouver par des moyens spéciaux. À ce moment-là, vous serez traqué par Suzaku! »
+Les petits serpents s'étaient déjà infiltrés dans ses orifices et son visage vira au noir verdâtre alors qu'elle luttait pour articuler: « Ce bracelet est lié à mon âme. Si je meurs, il explosera. Le fragment céleste s'effondrera avec moi, et vous ne pourrez pas non plus vous échapper! Même si vous réussissiez, vous n'auriez plus aucune place où vivre sur Suzaku. Ce bracelet représente le statut d'un disciple central; ils pourront vous retrouver par des moyens spéciaux. À ce moment-là, vous serez traqué par Suzaku! »
 
 Le vieil homme fronça les sourcils. Il renifla et dit: « Petite fille, détends-toi. Je ne te tuerai pas! » Puis, levant la tête vers Zhou Yi, il lança: « Zhou Yi, je vais utiliser le corps de cette fille pour combattre. De cette façon, nos attaques n'excéderont pas ce que ce fragment peut supporter. Tu devrais aussi choisir quelqu'un. »
 

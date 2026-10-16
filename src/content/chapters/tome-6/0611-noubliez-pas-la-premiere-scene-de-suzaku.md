@@ -32,13 +32,13 @@ Un homme sortit du pavillon. Il avait les cheveux et les sourcils rouges, et por
 
 Il lança un regard glacial à la femme en pourpre ainsi qu'aux trois poursuivantes. Fronçant les sourcils, il dit calmement: « Disparaissez! »
 
-L'expression des trois femmes changea instantanément. L'une d'elles s'empressa de dire: « La Secte de l'Eau Céleste de la Planète des Cinq Éléments tente de capturer une traîtresse. Nous espérons que Senior n'interviendra pas! »
+L'expression des trois femmes changea instantanément. L'une d'elles s'empressa de dire: « La Secte de l'Eau Céleste de la Planète des Cinq Éléments tente de capturer une traîtresse. Nous espérons que l'Ancien n'interviendra pas! »
 
 Une lueur de froideur traversa les yeux de l'homme. Il agita ses larges manches, déchaînant une bourrasque de vent qui projeta les trois femmes hors de l'orbite de la planète rouge sang.
 
 « Quel est ton nom? »
 
-« Zi Xin... le nom de cette junior est Zi Xin. Une cultivatrice de la planète de culture de rang 6, Suzaku », répondit la femme en pourpre en fixant l'inconnu. Cet homme avait été capable de repousser ses poursuivantes d'un simple revers de manche. Un tel cultivateur était tout simplement terrifiant.
+« Zi Xin... le nom de cette cadette est Zi Xin. Une cultivatrice de la planète de culture de rang 6, Suzaku », répondit la femme en pourpre en fixant l'inconnu. Cet homme avait été capable de repousser ses poursuivantes d'un simple revers de manche. Un tel cultivateur était tout simplement terrifiant.
 
 ***
 
@@ -71,7 +71,7 @@ Le jeune homme parut surpris avant de cligner des yeux et de sourire: « C'est �
 
 Le vieil homme soupira: « Bien que l'homme qui a servi de modèle à cette statue n'ait cultivé ici que pendant une courte période, il a déclenché, durant ces quelques centaines d'années, une tempête sans précédent sur la planète Suzaku! Certains récits ne se sont propagés qu'après son départ. La rumeur prétend que lorsqu'il n'avait que 200 ans de culture, il parvint à semer un chaos total dans la Mer des Démons. Il sauva une femme magnifique et stupéfia tout la Secte du Ciel Nuageux. Il se fraya un chemin à travers Zhao, créant des fleuves de sang. Toute la famille Teng fut massacrée, et le pays entier devint un cimetière! »
 
-« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a tranché le bras de Papillon Rouge. Il vainquit Liu Mei, affronta Qian Feng et accepta Du Tain de la Secte de la Raffinement de l'Âme comme maître. Il détruisit Xue Yue, tua l'ancêtre du Clan des Démons Géants et acquit sa renommée lors de la bataille contre le Clan des Immortels Abandonnés. Il obtint le Cristal de Suzaku au cœur du Tombeau de Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
+« On raconte qu'il s'est rendu dans le Royaume Céleste et qu'il y a tranché le bras de Papillon Rouge. Il vainquit Liu Mei, affronta Qian Feng et accepta Dun Tian de la Secte du Raffinement de l'Âme comme maître. Il détruisit Xue Yue, tua l'ancêtre du Clan des Démons Géants et acquit sa renommée lors de la bataille contre le Clan des Immortels Abandonnés. Il obtint le Cristal de Suzaku au cœur du Tombeau de Suzaku. Après avoir terrassé de nombreux adversaires, il fut le premier à s'emparer du Cristal! »
 
 « Il aurait pu revendiquer le titre de Suzaku, mais il le refusa pour le céder à l'actuel Suzaku, Zhou Wutai! »
 

@@ -22,7 +22,7 @@ En vérité, Wang Lin avait spéculé que l'Omniscient se préparerait ainsi pou
 
 Tout était un peu trop fluide, comme si chaque chose se déroulait exactement selon le plan de Wang Lin.
 
-Wang Lin observa les lieux familiers de la Secte du Destin Céleste en fronçant les sourcils. Après avoir réfléchi un instant, il descendit vers le Pavillon du Bois Pourpre. Un seul chemin y menait, un sentier bordé de tours de pierre et envahi par une végétation luxuriante.
+Wang Lin observa les lieux familiers de la Secte du Destin Céleste en fronçant les sourcils. Après avoir réfléchi un instant, il descendit vers le Pavillon du Bois Pourpre. Un seul chemin y menait, un sentier bordé de rochers escarpés et envahi par une végétation luxuriante.
 
 C'était alors le coucher du soleil. Le vent soufflait, apportant une fraîcheur mêlée au bruissement des feuilles. On entendait même le murmure de l'eau au loin.
 
@@ -72,7 +72,7 @@ L'homme en bleu répondit brusquement: « Il s'appelle Wang Lin. C'était le sep
 
 La femme fut saisie d'effroi et son expression changea instantanément.
 
-« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans le Domaine des Esprits Démoniaques, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et sept anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
+« Est-ce celui dont les rumeurs disent qu'il a tué d'innombrables personnes dans le Domaine des Esprits Démoniaques, créant une véritable rivière de sang? Celui qui, finalement, fut traqué par Maître et de nombreux anciens, mais qui parvint tout de même à s'échapper? Le démon Wang Lin?! »
 
 Au loin, Wang Lin esquissa un sourire amer. Les commérages étaient une chose redoutable. Au fil des centaines d'années, les rumeurs à son sujet avaient fini par se transformer. Dans un soupir, Wang Lin quitta la Secte du Destin Céleste en empruntant le petit sentier.
 
@@ -106,7 +106,7 @@ Wang Lin posa un doigt et frotta doucement la table, y laissant une trace profon
 
 Une brise légère balaya la pièce. Ce vent passa devant Wang Lin, souleva la poussière de la table, puis parcourut les chaises, le lit, l'étage et le rez-de-chaussée. C'était comme si une tempête avait traversé le pavillon.
 
-Pourtant, ce qui était étrange, c'est que cette tempête n'avait soulevé que la poussière; rien d'autre n'avait bougé. Même les fenêtres pourpres n'avaient émis aucun bruit, comme si elles n'avaient pas été touchées par le vent.
+Pourtant, ce qui était étrange, c'est que cette tempête n'avait soulevé que la poussière; rien d'autre n'avait bougé. Même les fenêtres de papier n'avaient émis aucun bruit, comme si elles n'avaient pas été touchées par le vent.
 
 Après quelques respirations, Wang Lin leva la paume et referma son poing.
 

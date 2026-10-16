@@ -88,7 +88,7 @@ Le géant marmonna quelques mots, puis une main colossale surgit du trou noir po
 
 Après un grondement sourd, le pilier de lumière fut aspiré dans le trou noir et disparut avec lui. L'arc-en-ciel se dispersa dans le ciel et l'immense pression qui pesait sur Zhao s'évanouit.
 
-Le visage du messager corpulent devint disgracieux. Il laissa échapper un renflement glacial, agita ses manches et pénétra dans la tour. De l'intérieur, sa voix sombre résonna:
+Le visage du messager corpulent devint disgracieux. Il laissa échapper un reniflement glacial, agita ses manches et pénétra dans la tour. De l'intérieur, sa voix sombre résonna:
 
 « Les mêmes vieilles règles s'appliquent: les cultivateurs de la Formation du Noyau et de l'Âme Naissante ne sont pas autorisés à participer. Amenez vos cultivateurs de l'Établissement des Fondations; ils constitueront votre principale force de combat. Tout le monde, rentrez chez vous. La bataille commencera dans trois jours. »
 

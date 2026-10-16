@@ -10,11 +10,11 @@ En contemplant Liu Mei, qui descendait du ciel telle une divinité, non seulemen
 
 Seul l'ancêtre de la famille Ran, dont la culture avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui des émois mortels.
 
-« Domaine impitoyable des Dix Mille Illusions! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa culture par bonds prodigieux.
+« Domaine de l'Illusion Cruelle! » L'expression de l'ancêtre de la famille Ran changea radicalement et une flamme commença à brûler en lui. Cette flamme naissait de la fusion de son âme originelle et de son énergie originelle, faisant progresser sa culture par bonds prodigieux.
 
 Il laissa alors échapper un rugissement. Ce cri fut comme un tonnerre grondant à travers les cieux, ébranlant la terre et le firmament.
 
-Les yeux de Sun Xi retrouvèrent leur clarté, et une terreur profonde envahit son cœur. À cet instant précis, il eut l'impression d'affronter sa propre bien-aimée, et il n'eut plus du tout le cœur de porter l'attaque.
+Les yeux de Sun Xi retrouvèrent leur clarté, et une terreur profonde envahit son cœur. À cet instant précis, il eut l'impression d'affronter un membre de sa propre famille, et il n'eut plus du tout le cœur de porter l'attaque.
 
 L'expression de Liu Mei resta neutre alors qu'elle s'approchait, murmurant doucement: « Vous trois n'êtes pas de taille face à moi. Si vous acceptez de revenir avec moi au sein de la famille Huan, vous aurez peut-être une chance de survivre. »
 
@@ -55,7 +55,7 @@ Boum!
 
 L'autodestruction de cultivateurs Ascendants brûlant leur âme originelle et leur corps provoqua une catastrophe planétaire pour la planète Ran Yun.
 
-Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yun s'élevèrent sur des centaines de pieds avant de s'abattre sur les terres, comme si la planète elle-même était en proie à une rage divine. Sous l'impulsion de ces autodestructions, les veines spirituelles de la planète Ran Yun, semblables à de la poudre à canon, commencèrent toutes à exploser.
+Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yun s'élevèrent sur environ 330 mètres avant de s'abattre sur les terres, comme si la planète elle-même était en proie à une rage divine. Sous l'impulsion de ces autodestructions, les veines spirituelles de la planète Ran Yun commencèrent toutes à exploser.
 
 Les âmes originelles et les corps de Sun Xi et Carefree Sanren se dissipèrent. Même au moment de leur agonie, ils n'avaient pas retrouvé la raison.
 

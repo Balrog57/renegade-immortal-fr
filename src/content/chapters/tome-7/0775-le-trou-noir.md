@@ -84,7 +84,7 @@ Wang Lin hocha la tête, mais son expression changea soudainement alors qu'il sc
 
 Wang Lin détourna le regard et tendit sa main droite vers le sol. Une masse considérable de briques s'éleva avant d'exploser en une fine poussière. Wang Lin dispersa ensuite cette poussière dans toutes les directions.
 
-En un instant, la poussière forma un anneau d'un rayon de 10 000 pieds, isolant la zone intérieure du monde extérieur.
+En un instant, la poussière forma un anneau d'un rayon de 3,3 kilomètres, isolant la zone intérieure du monde extérieur.
 
 Les yeux de Wang Lin se fixèrent sur le faisceau mourant et il lâcha d'une voix calme: « Ceux qui entreront mourront! »
 
@@ -104,11 +104,11 @@ Peu après, plusieurs rayons de lumière accoururent de toutes les directions. L
 
 En arrivant, ils virent immédiatement l'anneau de poussière. Ils s'arrêtèrent, n'osant approcher davantage, mais leurs regards restèrent rivés sur le faisceau déclinant, trahissant une immense cupidité.
 
-Cependant, lorsqu'ils aperçurent Wang Lin, leurs expressions changèrent radicalement. Ils pouvaient ressentir l'énergie originelle émanant du corps de Wang Lin, ce qui les fit tous reculer. Aucun n'osa s'approcher à moins de 10 000 pieds.
+Cependant, lorsqu'ils aperçurent Wang Lin, leurs expressions changèrent radicalement. Ils pouvaient ressentir l'énergie originelle émanant du corps de Wang Lin, ce qui les fit tous reculer. Aucun n'osa s'approcher à moins de 3,3 kilomètres.
 
 Wang Lin ne prêta aucune attention à cette foule; Li Yuan non plus. Un instant plus tard, le faisceau disparut.
 
-À l'instant précis où la lumière s'éteignit, un trou noir apparut à la surface de la formation. Des vagues d'énergie spirituelle céleste s'en échappèrent, si puissantes que même ceux situés à 10 000 pieds purent les ressentir distinctement.
+À l'instant précis où la lumière s'éteignit, un trou noir apparut à la surface de la formation. Des vagues d'énergie spirituelle céleste s'en échappèrent, si puissantes que même ceux situés à 3,3 kilomètres purent les ressentir distinctement.
 
 Des regards avides se braquèrent instantanément sur l'obscurité du trou. Une aura de convoitise subtile s'empara de tous les cultivateurs présents dans le périmètre.
 
@@ -118,6 +118,6 @@ Tout cela était dû à l'inconnu! Personne ne savait ce qui se cachait à l'int
 
 C'est alors qu'un rayon d'énergie d'épée, chargé d'énergie originelle, surgit de l'horizon. Il fonça droit vers la lumière, comme si cet anneau n'existait pas!
 
-Les yeux des cultivateurs à 10 000 pieds s'illuminèrent d'une lueur mystérieuse. L'énergie originelle portée par ce rayon signifiait qu'un autre cultivateur du deuxième niveau venait de faire son entrée!
+Les yeux des cultivateurs à 3,3 kilomètres s'illuminèrent d'une lueur mystérieuse. L'énergie originelle portée par ce rayon signifiait qu'un autre cultivateur du deuxième niveau venait de faire son entrée!
 
 Tandis que l'énergie originelle se propageait, une silhouette jaune s'approcha rapidement, portée par un éclat d'épée.

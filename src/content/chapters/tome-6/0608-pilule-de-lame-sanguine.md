@@ -16,7 +16,7 @@ Un éclair d'énergie jaillit du doigt de Wang Lin, libérant l'énergie de l'é
 
 À cet instant, il sembla que le monde entier s'était arrêté. Même le vent, la pluie, le tonnerre, les éclairs et le fleuve des enfers dans le ciel s'estompèrent!
 
-Dès que la lumière de l'épée apparut, le ciel fut soudainement saturé d'énergie de l'épée! Cette énergie était si dense que le fleuve des enfers fut aspiré dans le corps de Wang Lin. Les 130 000 brins d'énergie de la fauche se désintégrèrent et l'âme du fleuve des enfers se fragmenta en 100 millions de morceaux.
+Dès que la lumière de l'épée apparut, le ciel fut soudainement saturé d'énergie de l'épée! Cette énergie était si dense que le fleuve des enfers fut aspiré dans le corps de Wang Lin. Les 130 000 filaments d'énergie de massacre se désintégrèrent et l'âme du fleuve des enfers se fragmenta en 100 millions de morceaux.
 
 Le sortilège du vent, de la pluie, du tonnerre et des éclairs subit le même sort. L'orage noir se brisa instantanément; les gouttes de pluie et les éclairs noirs qu'elles transportaient s'écrasèrent au sol. Même le vortex de vent fut transpercé par l'énergie de l'épée et s'effondra aussitôt.
 
@@ -98,7 +98,7 @@ Wang Lin interrogea une dernière fois Yao Xixue avant de réintégrer son corps
 
 Sans perdre un instant, Wang Lin se mordit le bout du doigt et commença à tracer un symbole complexe dans l'air avec son sang. Une fois le symbole formé, il fusionna rapidement avec la goutte de sang bleu. Wang Lin s'en saisit prestement et la pressa entre ses sourcils.
 
-À ce moment-là, le vieil homme de neuf mètres de haut se rapprochait. Le symbole jaillit alors des sourcils de Wang Lin; il le projeta à des dizaines de milliers de kilomètres, et celui-ci disparut par-delà l'horizon.
+À ce moment-là, le vieil homme de neuf mètres de haut se rapprochait. Le symbole jaillit alors des sourcils de Wang Lin; il le projeta à cinq cents kilomètres, et celui-ci disparut par-delà l'horizon.
 
 Après avoir accompli tout cela, Wang Lin se retourna brusquement, la clarté quittant ses yeux. Ce qui les remplaça fut une intention meurtrière et une soif de combat absolument démentes!
 
@@ -140,4 +140,4 @@ Une formation noire fut mise à nu sur le sol là où la tour trônait autrefois
 
 L'armure dans le ciel descendit, se transforma en fils noirs et enveloppa l'individu. En un instant, l'armure fut portée par cette personne qui, à cet instant précis, ouvrit les yeux!
 
-À des centaines de kilomètres de là, une goutte de sang bleu apparut dans le vide. Dès son apparition, elle s'élança vers l'horizon. Tandis qu'elle volait, la goutte de sang se transforma lentement pour reprendre la silhouette de Wang Lin!
+À cinq cents kilomètres de là, une goutte de sang bleu apparut dans le vide. Dès son apparition, elle s'élança vers l'horizon. Tandis qu'elle volait, la goutte de sang se transforma lentement pour reprendre la silhouette de Wang Lin!

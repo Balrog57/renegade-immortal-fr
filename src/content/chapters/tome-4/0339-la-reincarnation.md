@@ -16,15 +16,15 @@ L'expression du corps original demeura inchangée, comme si cette attaque n'avai
 
 Il se tenait devant Wang Lin et fixait froidement le ciel.
 
-Les yeux dans les nuages rouges disparurent de nouveau, tandis que la masse de nuages pourpres s'intensifiait. Cette fois, une immense quantité de nuages rouges s'engouffra dans la main. La main, autrefois illusoire, se mua en une entité solide, et cinq doigts mortels se formèrent.
+Les yeux dans les nuages rouges disparurent de nouveau, tandis que la masse de nuages pourpres s'intensifiait. Cette fois, une immense quantité de nuages rouges s'engouffra dans la main. La main, autrefois illusoire, se mua en une entité solide, et cinq griffes acérées se formèrent.
 
 Elle attaqua à nouveau!
 
-Cette fois, alors que la main approchait, ses cinq doigts ouvrirent cinq déchirures spatiales qui s'élancèrent pour traquer Wang Lin.
+Cette fois, alors que la main approchait, ses cinq griffes ouvrirent cinq déchirures spatiales qui s'élancèrent pour traquer Wang Lin.
 
 Wang Lin poussa un rugissement. Il frappa son sac et en sortit le drapeau de restriction. Une lance se matérialisa rapidement et il la projeta contre la main.
 
-Simultanément, la rotation des étoiles violettes sur le corps original s'interrompit brusquement, et des craquements sinistres parcoururent tout son être. Il se métamorphosa en un géant de trente pieds, une lueur violette irradiant sous sa peau. Son corps dégageait une aura lugubre.
+Simultanément, la rotation des étoiles violettes sur le corps original s'interrompit brusquement, et des craquements sinistres parcoururent tout son être. Il se métamorphosa en un géant de près de dix mètres de haut, une lueur violette irradiant sous sa peau. Son corps dégageait une aura sauvage et primitive.
 
 Le corps original commençait à ressembler à un Dieu Ancien.
 
@@ -46,9 +46,9 @@ Au moment où elle arriva à sa hauteur, Wang Lin se retourna brusquement. Il co
 
 Bang!
 
-Wang Lin fut projeté en arrière. Il cracha une gorgée de sang qui retomba sur le parchemin avant d'y disparaître. L'Âme Naissante de Li Muwan, qui était presque éteinte, recouvra soudainement une lueur de vie.
+Wang Lin fut projeté en arrière. Il cracha une gorgée de sang qui retomba sur le parchemin avant d'y disparaître. L'Âme Naissante de Li Muwan, qui était presque éteinte, recouvra soudainement une lueur de vie et une volonté tenace.
 
-Il luttait contre le cycle de la réincarnation des cieux pour cette femme.
+Il luttait contre le cycle de la réincarnation des cieux pour que cette femme vive, en accomplissant un acte qui défie le ciel.
 
 La main géante s'étira une fois de plus. Le corps original surgit du sol dans un rugissement. Il s'interposa devant Wang Lin et frappa la main géante de son poing droit.
 
@@ -62,7 +62,7 @@ Bang! Bang! Bang!
 
 À chaque impact, le sang coulait davantage du coin de sa bouche, mais sa volonté de combattre ne cessait de croître.
 
-« Je suis un Dieu Ancien, je suis donc par nature une existence qui défie les cieux! Si vous voulez l'emporter, il faudra passer sur mon cadavre! »
+« Je suis un Dieu Ancien, je suis donc par nature une existence qui défie les cieux! Si vous voulez appliquer la voie de la réincarnation, il faudra d'abord me tuer! »
 
 Une silhouette apparut soudainement derrière le corps original. Ses pieds touchaient le sol, mais sa tête atteignait le ciel. La figure n'était pas debout, mais agenouillée sur une jambe, la tête inclinée comme en plein sommeil.
 
@@ -128,7 +128,7 @@ Ce coup était une punition pour avoir entravé la volonté céleste!
 
 Au moment où le poing s'élança, le corps original arriva. Un rayon de lumière rouge sang chargea depuis la distance et fusionna avec Wang Lin.
 
-Wang Lin et son corps original disparurent soudainement. Ils furent remplacés par une figure de dix pieds de haut aux longs cheveux.
+Wang Lin et son corps original disparurent soudainement. Ils furent remplacés par une figure de 3,3 mètres de haut aux longs cheveux.
 
 L'œil gauche de cet être était semblable à la lune, et son œil droit à celui du soleil. Il était enveloppé d'une aura mêlant le pouvoir du Dieu Ancien et le domaine de la vie et de la mort.
 
@@ -144,7 +144,7 @@ Bang! Bang! Bang!
 
 Le corps de Wang Lin fut projeté violemment et il continuait de cracher du sang. Cependant, il riait durant tout le combat, d'un rire empreint d'arrogance.
 
-« Maintenant qu'elle a été réincarnée avec son Âme Naissante, sa vie est prolongée. Cela respecte les lois des cieux. Tant qu'elle ne pratiquera pas la culture, elle pourra échapper au regard des cieux. Dans dix-neuf ans, quand son Âme Naissante se reformera, vous reviendrez, mais je vous arrêterai à nouveau! »
+« Maintenant qu'elle a été réincarnée avec son Âme Naissante, sa vie est prolongée. Cela respecte les lois des cieux. Tant qu'elle ne pratiquera pas la culture, elle pourra échapper au regard des cieux. Dans dix-neuf ans, quand son âme se sera solidifiée, vous reviendrez, mais je vous arrêterai à nouveau! »
 
 Les yeux dans le nuage rouge contemplèrent calmement Wang Lin un instant avant de disparaître. Le poing géant disparut également. Les nuages rouges se dissipèrent.
 

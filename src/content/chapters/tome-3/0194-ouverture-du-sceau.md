@@ -72,7 +72,7 @@ Une pensée traversa l'esprit de l'homme aux cheveux roux. Il ouvrit soudainemen
 
 Après avoir utilisé ces centaines de personnes comme boucliers, le nombre de fragments à l'extérieur de la barrière avait légèrement diminué. Cependant, la barrière aux cinq couleurs s'affaiblissait et se mit à trembler, comme prête à céder à tout moment.
 
-L'homme aux cheveux roux ne dit rien, mais ses mains saisirent à nouveau une trentaine de personnes. Parmi elles, huit utilisèrent diverses techniques pour s'extirper du groupe et tentèrent désespérément de s'échapper par des failles. Simultanément, quatre individus au sol sautèrent et disparurent dans des brèches spatiales.
+L'homme aux cheveux roux ne dit rien, mais ses mains saisirent à nouveau plus de trois cents personnes. Parmi elles, huit utilisèrent diverses techniques pour s'extirper du groupe et tentèrent désespérément de s'échapper par des failles. Simultanément, quatre individus au sol sautèrent et disparurent dans des brèches spatiales.
 
 Le sourire froid de l'homme aux cheveux roux s'élargit. Il ne tua pas ces cultivateurs immédiatement, mais détourna son regard après les avoir observés un instant. Bien que les tuer fût facile, le retour des fragments d'âme vers lui aurait trop impacté sa barrière. Il n'était pas pressé de les achever.
 

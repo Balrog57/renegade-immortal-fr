@@ -28,15 +28,15 @@ Wang Lin murmura: « Ainsi en est-il! »
 
 À ce moment-là, des bruits de craquement provinrent du lointain. À son retour, Ta Shan tenait dans chaque main une âme originelle et un sac.
 
-Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement ce qui s'était passé durant sa captivité.
+Comme précédemment, Wang Lin utilisa le sort de recherche d'âme sur les deux autres âmes originelles. En combinant les souvenirs des trois, il comprit parfaitement les deux grands événements survenus ces six derniers mois.
 
-Naturellement, il ne laisserait pas partir les âmes originelles de ceux qui l'avaient offensé. Il les jeta dans le drapeau d'âmes afin qu'elles servent de nourriture pour la technique « Appeler le Vent ».
+Naturellement, il ne laisserait pas partir les âmes originelles de ceux qui l'avaient offensé. Il les jeta dans le drapeau d'âmes afin qu'elles servent de nourriture pour la technique « Invoque le Vent ».
 
 Quant aux sacs des trois hommes, Wang Lin les inspecta et y trouva quelques trésors magiques. Il les sortit un par un et les broya. Puis, il cracha de l'énergie originelle essentielle pour les transformer en liquide avant de les fusionner dans le corps de Ta Shan.
 
-La puissance d'un corps de Garde Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste. Cependant, ces trésors avaient disparu depuis bien longtemps.
+La puissance d'un corps de Gardien Céleste provenait principalement de rares trésors célestes mentionnés dans le jade céleste. Cependant, ces trésors avaient disparu depuis bien longtemps.
 
-Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s'en servir de matériaux afin de rendre la Garde Céleste de plus en plus puissante.
+Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s'en servir de matériaux afin de rendre la Gardien Céleste de plus en plus puissante.
 
 Il y avait également deux morceaux de jade dans leurs sacs. D'après leurs souvenirs, ces jades servaient à contacter la famille Yao. On pouvait dire que la famille Yao avait déployé des forces considérables pour s'en prendre à lui.
 
@@ -52,7 +52,7 @@ Il nourrissait de nombreux griefs contre les quatre grandes familles, particuli�
 
 « Cependant, il est possible que puisque mon vrai nom n'a jamais été utilisé et que le nom de Xu Mu est bien plus connu, la famille Yao ait décidé d'utiliser Xu Mu pour l'Ordre Céleste! »
 
-« De même, le jeune maître de la famille Yao qui voulait tuer Li Yun est également mort de ma main. Avec la puissance de la famille Yao, ils doivent posséder des sorts leur permettant de connaître le décès de leurs membres. »
+« De même, le jeune maître de la famille Yao qui voulait tuer Li Yuan est également mort de ma main. Avec la puissance de la famille Yao, ils doivent posséder des sorts leur permettant de connaître le décès de leurs membres. »
 
 « Il est peu probable que ce soit dû au Pavillon des Collections; l'effondrement du Royaume Céleste du Tonnerre rend cela fort improbable. » Tandis qu'il méditait, son cœur était empreint d'une intention meurtrière.
 

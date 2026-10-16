@@ -38,7 +38,7 @@ Bien qu'elle ne puisse remplacer le corps physique, une âme originelle corporel
 
 On peut comparer cela ainsi: l'Âme Naissante est comme un nourrisson, tandis que l'âme originelle est ce même enfant qui grandit pour devenir un jeune homme. Ensuite, le stade de la Transformation de l'Âme apporte un changement mystérieux: le jeune homme devient un adulte puissant, armé de ses propres armes. À ce stade, l'âme originelle est infiniment plus puissante que celle d'un cultivateur au stade de la Formation de l'Âme.
 
-La taille démesurée de l'âme de Situ Nan était le signe qu'il avait transcendé le stade de la Transformation de l'Âme. Même l'âme d'un cultivateur Ascendant possède la même dimension que celle d'un expert en Transformation de l'Âme. Ce n'est qu'en dépassant le stade de l'Ascendant que d'autres mutations surviendraient.
+La taille démesurée de l'âme de Situ Nan était le signe qu'il avait atteint le stade de la Transformation de l'Âme. Même l'âme d'un cultivateur Ascendant possède la même dimension que celle d'un expert en Transformation de l'Âme. Ce n'est qu'en dépassant le stade de l'Ascendant que d'autres mutations surviendraient.
 
 Toutefois, ce niveau était encore bien trop lointain pour que Wang Lin s'en préoccupe.
 
@@ -54,7 +54,7 @@ L'esprit de Wang Lin demeurait parfaitement lucide; il observa donc calmement le
 
 Peu après, lorsque toute l'énergie spirituelle céleste fut absorbée, la sphère devint entièrement dorée. Si on l'extrayait de son corps, elle ressemblerait trait pour trait à un noyau doré.
 
-À cet instant précis, le noyau doré trembla, et des fissures de plus en plus nombreuses apparurent à sa surface. Soudain, dans une explosion de puissance, toute l'énergie spirituelle céleste contenue dans le corps de Wang Lin se projeta vers l'extérieur, expulsant son âme originelle jusqu'à ce qu'elle se retrouve à trois pouces de lui. Il tenta de la ramener, mais une force colossale l'en empêcha.
+À cet instant précis, le noyau doré trembla, et des fissures de plus en plus nombreuses apparurent à sa surface. Soudain, dans une explosion de puissance, toute l'énergie spirituelle céleste contenue dans le corps de Wang Lin se projeta vers l'extérieur, expulsant son âme originelle jusqu'à ce qu'elle se retrouve à environ un mètre de lui. Il tenta de la ramener, mais une force colossale l'en empêcha.
 
 L'âme originelle de Wang Lin flottait désormais au-dessus de son corps. En regardant vers le bas, il pouvait observer chaque mutation de son âme.
 

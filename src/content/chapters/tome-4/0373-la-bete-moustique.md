@@ -14,7 +14,7 @@ Le corps de Wang Lin, du cou jusqu'aux pieds, était immergé dans l'eau. L'éne
 
 Par conséquent, au fil du temps, l'énergie spirituelle à l'intérieur de la cage aquatique devint de plus en plus dense.
 
-Au village de Nuage de Feu, les torches éclairaient les environs même durant la nuit. On percevait des éclats de rire mêlés aux cris de femmes. À cet instant, dans une demeure plutôt luxueuse, un homme massif et corpulent était assis devant une boîte ouverte.
+Au village des Nuages de Feu, les torches éclairaient les environs même durant la nuit. On percevait des éclats de rire mêlés aux cris de femmes. À cet instant, dans une demeure plutôt luxueuse, un homme massif et corpulent était assis devant une boîte ouverte.
 
 À l'intérieur de celle-ci reposait une perle de la taille d'un poing qui émettait une lueur douce.
 
@@ -26,7 +26,7 @@ C'était un sac gris. En le prenant, l'homme sentit qu'il était d'une légèret
 
 « Qu'est-ce que c'est? » L'homme réfléchit un instant avant de déployer toute sa force pour tenter de déchirer le tissu. Malgré tous ses efforts, même jusqu'à ce que les veines de son front saillissent, il ne parvint pas à l'entrouvrir.
 
-« Ceci... ne serait-ce pas la soie du ver de soie céleste? Oui, cela doit l'être; autrement, comment pourrais-je échouer ainsi? La légende raconte que la soie du ver de soie céleste craint par-dessus tout l'eau. Humph, je ne crois pas que je sois incapable de brûler ceci! » L'homme colossale plaça le sac dans la cheminée.
+« Ceci... ne serait-ce pas la soie du ver de soie céleste? Oui, cela doit l'être; autrement, comment pourrais-je échouer ainsi? La légende raconte que la soie du ver de soie céleste craint par-dessus tout l'eau. Humph, je ne crois pas que je sois incapable de brûler ceci! » L'homme colossal plaça le sac dans la cheminée.
 
 Il s'écoula un long moment sans qu'aucun changement ne survienne. L'homme resta stupéfait; il ne ressentait même aucune chaleur émanant du sac.
 
@@ -80,7 +80,7 @@ Le rugissement de la créature terrifia les villageois. Tous s'élancèrent, arm
 
 « Un monstre! »
 
-Wang Lin, dont le corps était encore endolori, fixa froidement le sol et repéra l'homme balafré par des coups de couteau. Il le désigna du doigt, et la bête chargea l'individu de tout son poids.
+Wang Lin, dont le corps était encore endolori, jeta un regard froid et repéra l'homme balafré. Il le désigna du doigt, et la bête chargea l'individu de tout son poids.
 
 Au moment de l'impact, l'homme poussa un cri déchirant avant que son corps ne soit broyé. Même la maison située derrière lui s'effondra sous la violence du choc. Le moustique plana au-dessus de Wang Lin et lança un regard glacial à l'assemblée.
 
@@ -104,7 +104,7 @@ Tous les villageois s'affairèrent, mais la terreur les paralysait au point qu'i
 
 Wang Lin ferma les yeux et se remit à cultiver calmement. La bête moustique fit le tour de lui avant de se poser à ses côtés, jetant par intermittence des regards belliqueux aux villageois.
 
-Les quelque deux cents habitants du village de Nuage de Feu mirent toute leur énergie à creuser une ouverture dans la prison aquatique. Lorsqu'ils eurent terminé, une masse d'eau saumâtre s'en écoula, mais ce qui stupéfia les villageois fut que l'eau ne fut sale qu'au début. À mesure que le débit augmentait, elle devenait limpide et, vers la fin, un parfum délicat s'en dégageait.
+Les quelque deux cents habitants du village des Nuages de Feu mirent toute leur énergie à creuser une ouverture dans la prison aquatique. Lorsqu'ils eurent terminé, une masse d'eau saumâtre s'en écoula, mais ce qui stupéfia les villageois fut que l'eau ne fut sale qu'au début. À mesure que le débit augmentait, elle devenait limpide et, vers la fin, un parfum délicat s'en dégageait.
 
 Au bout d'une journée, l'écoulement cessa progressivement. Les villageois cessèrent leur labeur et contemplèrent Wang Lin avec effroi.
 
@@ -122,11 +122,11 @@ Alors que les villageois s'apprêtaient à fuir, la voix de Wang Lin résonna de
 
 Le scribe gémit intérieurement mais répondit respectueusement.
 
-Ainsi, le village de Nuage de Feu devint plus silencieux qu'il ne l'avait jamais été. Aucun bruit ne s'en échappait; c'était comme si tout le village était mort. Les voyageurs et les escortes qui passaient par là étaient profondément troublés de ne plus voir les célèbres "18 Héros du Village de Nuage de Feu", d'ordinaire si arrogants, depuis deux mois.
+Ainsi, le village des Nuages de Feu devint plus silencieux qu'il ne l'avait jamais été. Aucun bruit ne s'en échappait; c'était comme si tout le village était mort. Les voyageurs et les escortes qui passaient par là étaient profondément troublés de ne plus voir les célèbres "18 Héros du Village des Nuages de Feu", d'ordinaire si arrogants, depuis deux mois.
 
 Un jour, Wang Lin ouvrit les yeux au fond du puits. Toutes ses blessures étaient guéries, mais le domaine et le sceau qui pesaient sur lui ne s'étaient pas affaiblis.
 
-« En deux mois, je n'ai récupéré qu'environ le second stade de la Condensation de Qi. Depuis que le domaine et le sceau ont fusionné, la barrière résultante est devenue trop puissante. Je dois trouver un lieu doté d'une plus grande concentration d'énergie spirituelle. Malheureusement, mon âme originelle est brisée; je parviens à peine à empêcher ses fragments de se dissiper, ce qui m'empêche d'utiliser la perle transcendante. Autrement, avec l'énergie accumulée en son sein, ma récupération serait bien plus rapide. Heureusement, je possède quelques pierres spirituelles de haute qualité, je ne manquerai donc pas de ressources pour le moment. Ma priorité est de restaurer mon âme originelle afin de pouvoir libérer la perle. »
+« En deux mois, je n'ai récupéré qu'environ le second stade de la Condensation de Qi. Depuis que le domaine et le sceau ont fusionné, la barrière résultante est devenue trop puissante. Je dois trouver un lieu doté d'une plus grande concentration d'énergie spirituelle. Malheureusement, mon âme originelle est brisée; je parviens à peine à empêcher ses fragments de se dissiper, ce qui m'empêche d'utiliser la perle défiant le ciel. Autrement, avec l'énergie accumulée en son sein, ma récupération serait bien plus rapide. Heureusement, je possède quelques pierres spirituelles de haute qualité, je ne manquerai donc pas de ressources pour le moment. Ma priorité est de restaurer mon âme originelle afin de pouvoir libérer la perle. »
 
 « Cet endroit n'est pas une veine spirituelle, et pourtant cette eau est chargée d'énergie spirituelle. C'est assez étrange. »
 

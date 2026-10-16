@@ -38,7 +38,7 @@ Trois mois supplémentaires s'écoulèrent avant que la barrière ne cède enfin
 
 Son visage pâlit instantanément. Après un léger mouvement de sa gorge, il cracha une bouffée de sang. Dès qu'il toucha l'air, le sang se figea et frappa le mur, le recouvrant de cristaux de glace couleur pourpre.
 
-Après avoir recraché ce sang, il sortit rapidement huit pierres spirituelles de qualité moyenne qu'il réduisit en poussière. Cette poudre circula promptement autour de lui pour former un symbole étrange.
+Après avoir recraché ce sang, il sortit rapidement huit pierres spirituelles de qualité inférieure qu'il réduisit en poussière. Cette poudre circula promptement autour de lui pour former un symbole étrange.
 
 Le symbole brilla faiblement avant de disparaître. Une épée volante noire apparut alors, fit le tour de Wang Lin et s'immobilisa devant lui. La silhouette du démon émergea lentement de la lame.
 
@@ -142,13 +142,13 @@ Peu importait la profondeur de cette quatorzième vallée ou les secrets qu'elle
 
 Le temps s'écoula, et en un clin d'œil, trois années passèrent.
 
-La catastrophe à Huo Fen fut finalement résolue. Le pays de culture de rang 4 avait envoyé trois cultivateurs au stade de la Formation de l'Âme. Ils avaient passé dix-neuf jours à apprivoiser toutes les bêtes de feu, les raffinant en une seule bête spirituelle de qualité moyenne avant de retourner dans leur pays.
+La catastrophe à Huo Fen fut finalement résolue. Le pays de culture de rang 4 avait envoyé trois cultivateurs au stade de la Formation de l'Âme. Ils avaient passé neuf jours à apprivoiser toutes les bêtes de feu, les raffinant en une seule bête spirituelle de qualité moyenne avant de retourner dans leur pays.
 
 La qualité des bêtes spirituelles varie grandement. Elles sont classées en catégories: anormales, spirituelles, désolées et célestes. Chaque catégorie possède des niveaux élevé, moyen et faible.
 
 L'esprit de feu qui avait été absorbé par la perle défiant le ciel était sur le point de devenir une bête désolée. Selon cette échelle, il se situait au sommet d'une bête spirituelle de haute qualité. Tous ses descendants étaient des bêtes spirituelles de faible qualité, illustrant ainsi l'écart immense entre les niveaux. Si l'esprit de feu n'avait pas été affaibli, il n'aurait pas été si facilement dévoré.
 
-Il faut noter qu'une bête spirituelle de haute qualité équivaut à un cultivateur au sommet du stade de la Formation de l'Âme, une bête de qualité moyenne équivaut à un cultivateur au sommet du stade de l'Âme Naissante, et une bête de début de stade équivaut à un cultivateur au sommet de la Formation du Noyau.
+Il faut noter qu'une bête spirituelle de haute qualité équivaut à un cultivateur au sommet du stade de la Formation de l'Âme, une bête de qualité moyenne équivaut à un cultivateur au sommet du stade de l'Âme Naissante, et une bête de faible qualité équivaut à un cultivateur au sommet de la Formation du Noyau.
 
 Le dragon qui était mort était une bête spirituelle de qualité moyenne.
 
@@ -156,7 +156,7 @@ Bien que les bêtes de feu aient disparu, l'énergie spirituelle résiduelle ren
 
 La lutte contre Xuan Wu se poursuivait, mais les affrontements impliquant des centaines de personnes étaient devenus rares; la plupart des combats ne concernaient plus que quelques dizaines d'individus. Après avoir pris une partie de Xuan Wu, les cultivateurs de Huo Fen n'avaient plus la puissance nécessaire pour progresser davantage, et la situation se stabilisa.
 
-Quant au conflit entre les deux pays, il passa d'une guerre d'extermination à une sorte de terrain d'entraînement pour leurs disciples respectifs. C'était un immense affront pour tous ceux qui étaient tombés au début du conflit.
+Quant au conflit entre les deux pays, il passa d'une guerre d'extermination à une sorte de terrain d'entraînement pour leurs disciples respectifs. C'était une amère ironie pour tous ceux qui étaient tombés au début du conflit.
 
 Quant à Wang Lin, après s'être enfoncé à 100 mètres dans le sol de la quatorzième vallée, il restait assis là tel un vieux moine. Ses battements de cœur ralentirent encore tandis qu'une quantité infinie d'énergie Yin pénétrait son corps pour se répandre dans sa chair et ses os.
 
@@ -168,7 +168,7 @@ Encore six mois passèrent. Les cristaux de glace s'étaient étendus à ses bra
 
 Six mois de plus s'écoulèrent. Tout son corps, hormis sa tête, était devenu un cristal de glace et son cœur avait cessé de battre. Il s'était enfoncé à 3 672 mètres.
 
-Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état d'Underworld requis par la Méthode de culture de l'Ascension des Enfers.
+Deux années supplémentaires passèrent. À la moitié de la troisième année, sa tête se transforma également en cristal de glace. Plus aucun signe de vie ne subsistait chez Wang Lin. Il avait enfin atteint l'état des Sources Jaunes requis par la Méthode de culture de l'Ascension des Enfers.
 
 Son corps était descendu à 7 979 mètres, émergeant dans un espace bleu foncé. Son environnement était jonché d'ossements de bêtes. Pour une raison inconnue, toute la chair de ces créatures avait disparu, ne laissant derrière elle que cette mer de cadavres.
 
@@ -180,7 +180,7 @@ Par la suite, les noyaux froids du Point Ancestral et de la Mer de Qi entrèrent
 
 Il fusionna aisément les deux noyaux froids pour n'en former qu'un seul.
 
-Peu après, ce noyau fusionné descendit vers le dantian. La barrière au niveau du dantian ne tint que trente minutes avant de s'effondrer.
+Peu après, ce noyau fusionné descendit vers le dantian. La barrière au niveau du dantian ne tint qu'un quart d'heure avant de s'effondrer.
 
 Le noyau fusionné s'enfonça et percuta le noyau froid du dantian. Soudain, une déferlante d'énergie Yin, dix fois supérieure à la précédente, jaillit. Cette énergie était extrêmement dense, mais restait encore légèrement inférieure à l'énergie Yin déjà présente dans le corps de Wang Lin. Lentement, les trois noyaux froids finirent par ne former qu'un seul être.
 

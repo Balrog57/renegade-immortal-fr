@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1004 - The Existence in the Depths of the Celestial Cave
 slug: letre-dans-les-profondeurs-de-la-grotte-celeste
 ---
-À cet instant, même les trois frères Chen ouvrirent les yeux. Tandis qu'ils cultivaient, l'énergie spirituelle céleste pénétrait leurs corps. Après un léger froncement de sourcils, Maître Yi Chen se leva et déclara: « Cher cultivateur Wang, cette affaire est inappropriée! Bien que je ne connaisse pas grand-chose aux restrictions, même moi, je peux percevoir l'intention meurtrière qui s'en dégage. Si nous devons les forcer, il vaut mieux attendre que nous ayons récupéré nos forces pour augmenter nos chances de réussite. »
+À cet instant, même les trois frères Chen ouvrirent les yeux. Tandis qu'ils cultivaient, l'énergie spirituelle céleste pénétrait leurs corps. Après un léger froncement de sourcils, Maître Yi Chen se leva et déclara: « Cher cultivateur Wang, cette affaire est inappropriée! Bien que je ne connaisse pas grand-chose aux restrictions, même moi, je peux percevoir l'intention meurtrière qui s'en dégage. Si nous devons les forcer, il nous faudra agir ensemble pour avoir quelque chance de réussir. »
 
 « Aucun problème! » Wang Lin d'un geste de la main interrompit Maître Yi Chen. L'ordre de Wang Lin était absolu pour la femme en argent; elle n'hésita pas et s'avança dans cette zone des cent pas.
 

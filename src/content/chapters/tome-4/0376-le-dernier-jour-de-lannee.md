@@ -8,7 +8,7 @@ slug: le-dernier-jour-de-lannee
 ---
 Un rayon de lumière verte filait au-dessus de la partie orientale de la planète Suzaku. Cependant, cet être ne volait pas avec son corps physique, mais par son âme originelle.
 
-Il était dans un état lamentable; trois entailles de la taille d'un poing marquaient son âme originelle, chacune émettant une lueur argentée.
+Il était dans un état lamentable; trois marques de coups de poing marquaient son âme originelle, chacune émettant une lueur argentée.
 
 Cet individu était l'ancêtre du Clan des Démons Géants. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir en utilisant son âme originelle. Il n'avait même pas eu le temps de se soucier du sort de Wang Lin.
 
@@ -76,7 +76,7 @@ Quant à Wang Lin, il prit le jeton, vola le long de la montagne jusqu'à trouve
 
 Cette grotte n'était pas très vaste. Elle ressemblait beaucoup à celle qu'il utilisait autrefois au sein de la Secte Heng Yue. Elle ne contenait qu'un lit de pierre; il n'y avait même pas de table.
 
-Toutefois, l'énergie spirituelle y était extrêmement dense, plusieurs fois plus que l'extérieur. Elle était même légèrement supérieure à celle du puits du Village Nuage de Feu, qui fonctionnait grâce à trois pierres spirituelles de qualité supérieure presque épuisées.
+Toutefois, l'énergie spirituelle y était extrêmement dense, plusieurs fois plus que l'extérieur. Elle était même légèrement supérieure à celle du puits du Village des Nuages de Feu, qui fonctionnait grâce à trois pierres spirituelles de qualité supérieure presque épuisées.
 
 Bien que l'énergie libérée par des pierres de qualité supérieure soit facile à absorber, elle manquait de vigueur. C'était d'autant plus vrai pour les pierres sur le point de s'épuiser, qui n'avaient plus aucune vitalité. L'énergie spirituelle émanant de la veine spirituelle locale était bien meilleure.
 
@@ -92,13 +92,13 @@ La grotte était devenue semblable à une cuve de vapeur. L'énergie spirituelle
 
 La quantité d'énergie spirituelle en lui augmentait progressivement, mais elle était encore loin de ce qui était nécessaire pour briser le domaine du thé et le sceau. Ces deux obstacles dévoraient l'énergie; ainsi, à mesure que le niveau de culture de Wang Lin progressait, il devenait de plus en plus difficile de les rompre.
 
-Le temps passa lentement. Un mois s'était écoulé depuis que Wang Lin était devenu disciple extérieur de la Secte du Raffinement de l'Âme.
+Le temps passa lentement. Un mois s'était écoulé depuis que Wang Lin était devenu disciple extérieur de la Secte de l'Affinement de l'Âme.
 
 Ce jour-là, Wang Lin ouvrit les yeux. Son regard était plus vif qu'auparavant. Durant ce mois, il avait absorbé l'énergie spirituelle avec une frénésie incroyable. Sur les trois pierres de qualité supérieure, deux s'étaient déjà transformées en poussière et la dernière était sur le point de s'épuiser elle aussi.
 
 Malgré ce gaspillage de ressources, ses progrès étaient considérables. Il avait commencé au stade initial de l'Établissement des Fondations et avait réussi à atteindre le sommet du stade intermédiaire, n'étant plus qu'à un pas du stade avancé.
 
-« C'est encore trop lent. J'ai dû sacrifier tant de pierres de qualité supérieure pour à peine atteindre ce niveau. Il ne me reste que 15 pierres; cela ne suffira jamais », soupira Wang Lin en s'étirant.
+« C'est encore trop lent. J'ai dû sacrifier tant de pierres de qualité supérieure pour à peine atteindre ce niveau. Il ne me reste pas même quinze pierres; cela ne suffira jamais », soupira Wang Lin en s'étirant.
 
 Des craquements résonnèrent dans la pièce alors que d'innombrables fissures apparaissaient sur le lit de pierre, puis sur les murs environnants.
 
@@ -108,7 +108,7 @@ Si cela continuait, les fissures s'agrandiraient encore.
 
 « Je ne peux plus utiliser cette grotte; je dois en changer. » La main de Wang Lin pressa le mur et toutes les fissures se refermèrent instantanément. Même le lit de pierre retrouva son aspect normal sous sa pression.
 
-Cependant, il savait que ce n'était qu'une solution temporaire. Si l'énergie augmentait à nouveau, les fissures réapparaîtraient. Mais tant qu'il s'abstiendrait d'utiliser des pierres de qualité supérieure, il ne risquait pas de éveiller les soupçons.
+Cependant, il savait que ce n'était qu'une solution temporaire. Si l'énergie augmentait à nouveau, les fissures réapparaîtraient. Mais tant qu'il s'abstiendrait d'utiliser des pierres de qualité supérieure, il ne risquait pas d'éveiller les soupçons.
 
 Après réflexion, Wang Lin se leva, ouvrit la porte de la grotte et sortit.
 
@@ -118,7 +118,7 @@ Il songea que passé ce jour, une nouvelle année commencerait. Il se demanda ce
 
 En y pensant, un léger sourire apparut sur les lèvres de Wang Lin. Face au soleil couchant, il prit une profonde inspiration.
 
-Il murmura pour lui-même: « La vie renaît des cendres! » Jadis élevé dans les cieux, il avait été brutalement précipité vers la condition mortelle, mais sa détermination lui avait permis de surmonter l'épreuve.
+Il murmura pour lui-même: « Rescapé du désastre! » Jadis élevé dans les cieux, il avait été brutalement précipité vers la condition mortelle, mais sa détermination lui avait permis de surmonter l'épreuve.
 
 Ce n'est qu'aujourd'hui qu'il pouvait s'en lamenter et prononcer ces mots. En repensant à son parcours depuis la perte de sa culture, un sentiment complexe l'envahit.
 
@@ -126,6 +126,6 @@ Ce dernier jour de l'année représentait la chute de Wang Lin, mais demain, le 
 
 Wang Lin chuchota: « C'est passé... »
 
-À cet instant, la silhouette magnifique d'une jeune fille vola lentement vers la Secte du Raffinement de l'Âme dans la lumière du couchant.
+À cet instant, la silhouette magnifique d'une jeune fille vola lentement vers la Secte de l'Affinement de l'Âme dans la lumière du couchant.
 
 Le regard de Wang Lin se fixa intensément. « Cette personne... me semble familière... »

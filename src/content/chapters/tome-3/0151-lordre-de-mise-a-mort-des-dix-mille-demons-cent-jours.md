@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 151 - Ten Thousand Devil Hundred Day Kill Order
 slug: lordre-de-mise-a-mort-des-dix-mille-demons-cent-jours
 ---
-Wang Lin s'arrêta. Il jeta un coup d'œil au jeton avant que son regard glacial ne se fixe sur Qian Kun. Après avoir aperçu le jeton, Li Muwan hésita, puis l'examina de plus près, terrifiée. Elle s'exclama: « C'est l'Ordre de mise à mort des Dix Mille Démons: Cent jours pour tuer dix mille démons. Je n'arrive pas à croire que la Mer des Démons possède un tel trésor. Je ne l'ai vu que dans des textes anciens. »
+Wang Lin s'arrêta. Il jeta un coup d'œil au jeton avant que son regard glacial ne se fixe sur Qian Kun. Après avoir aperçu le jeton, Li Muwan hésita, puis l'examina de plus près, terrifiée. Elle s'exclama: « C'est l'Ordre de mise à mort des Dix Mille Démons: Cent jours. Je n'arrive pas à croire que la Mer des Démons possède un tel trésor. Je ne l'ai vu que dans des textes anciens. »
 
 Li Muwan expliqua rapidement les détails du jeton à Wang Lin. Sa respiration était saccadée lorsqu'elle eut fini, et une lueur d'effroi brillait dans ses yeux alors qu'elle fixait l'objet.
 
@@ -14,7 +14,7 @@ Qian Kun craignait par-dessus tout que Wang Lin ne reconnaisse pas le jeton. Si 
 
 Cependant, en voyant la jeune fille donner des explications, il finit par se détendre. Il ne croyait pas qu'un homme puisse encore vouloir tuer après avoir appris les conséquences d'un tel ordre de mise à mort. Son cœur s'apaisa et il dit: « Camarade cultivateur, que pensez-vous de ma proposition? Ne soyez pas trop têtu. Si vous me tuez réellement, vous serez marqué par l'ordre de mise à mort, ce qui vous causera d'énormes ennuis. La jeune fille qui vous accompagne sera également entraînée dans votre chute, alors pourquoi agir ainsi? Ai-je tort? »
 
-Wang Lin ne da même pas un regard à Qian Kun. Il se tourna vers Li Muwan et demanda: « Es-tu sûre? Si je tiens cent jours, puis-je obtenir toute sa culture? »
+Wang Lin ne daigna même pas un regard à Qian Kun. Il se tourna vers Li Muwan et demanda: « Es-tu sûre? Si je tiens cent jours, puis-je obtenir toute sa culture? »
 
 Li Muwan prit une profonde inspiration et hocha la tête.
 
@@ -26,11 +26,11 @@ Ce caractère était d'un rouge sang, comme s'il venait d'être extrait d'une ma
 
 Wang Lin leva les yeux vers l'immense caractère « Punir » qui surplombait sa tête, mais son visage resta de marbre. Le tendon de dragon s'étira pour saisir le corps de Qian Kun. En un clin d'œil, Wang Lin saisit Li Muwan et regagna la montagne Wu Ding.
 
-Mu Nan et Mu Bei fixèrent avec stupéfaction le gigantesque caractère rouge « Punir » suspendu dans les airs, ressentant une soudaine pulsion de cupidité. Cependant, celle-ci disparut aussitôt qu'ils se tinrent respectueusement sur la montagne Mu Ding, un frisson leur parcourant l'échine.
+Mu Nan et Mu Bei fixèrent avec stupéfaction le gigantesque caractère rouge « Punir » suspendu dans les airs, ressentant une soudaine pulsion de cupidité. Cependant, celle-ci disparut aussitôt qu'ils se tinrent respectueusement sur la montagne Wu Ding, un frisson leur parcourant l'échine.
 
 Wang Lin les dévisagea froidement et demanda: « Le quartier général de la Secte Dou Xie compte-t-il des cultivateurs de l'Âme Naissante? »
 
-Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Dou Xie, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon de dix millions de kilomètres autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
+Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Dou Xie, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
 
 Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander: « Quel est le niveau de culture du chef de la Secte Dou Xie? »
 
@@ -60,15 +60,15 @@ Wang Lin estima que sa culture de la Formation du Noyau était cent fois plus pu
 
 Mu Nan observait secrètement Wang Lin. L'expression qu'il vit lui glaça le sang et fit battre son cœur plus vite. Il jura intérieurement: « Comment se fait-il que personne ne vienne tuer cet homme? Avec un tel signe au-dessus de sa tête, quelqu'un devrait surgir pour l'éliminer! Si nous le ramenons vraiment, même si nous ne sommes pas tués par lui, le chef de la secte nous tuera. »
 
-Alors qu'il priait, une silhouette émergea du brouillard. Cet homme ressemblait à un monstre. En avançant, il écarta la brume sur son passage. Il avait les cheveux et les yeux noirs, et portait une robe noire. Tout son être dégageait une lueur sombre.
+Alors qu'il priait, une silhouette émergea du brouillard. Cet homme dégageait une présence écrasante. En avançant, il écarta la brume sur son passage. Il avait les cheveux et les yeux noirs, et portait une robe et une épée noires. Tout son être dégageait une lueur sombre.
 
-S'il avait eu un visage élégant, il aurait semblé empreint d'une intention meurtrière; mais malheureusement, cet homme était déjà d'âge mûr, le ventre proéminent et un sourire aux lèvres.
+S'il avait eu le visage froid et les traits tranchants comme une lame, il aurait semblé empreint d'une intention meurtrière; mais malheureusement, cet homme était déjà d'âge mûr, le ventre proéminent, le visage rond et un sourire aux lèvres.
 
-Par conséquent, il n'y avait aucune intention meurtrière. Au contraire, il avait l'air très rusé. Les expressions de Mu Nan et de Mu Bei changèrent instantanément en le voyant, mais une lueur de joie apparut rapidement sur leurs visages.
+Par conséquent, il n'y avait aucune intention meurtrière. Au contraire, il avait un air plutôt comique. Les expressions de Mu Nan et de Mu Bei changèrent instantanément en le voyant, mais une lueur de joie apparut rapidement sur leurs visages.
 
-L'homme gras fixa le caractère au-dessus de la tête de Wang Lin, laissa échapper un grand rire et s'exclama: « Tsk, tsk! L'Ordre de mise à mort des Dix Mille Démons, quelle merveille! Quelle merveille! »
+L'homme gras fixa le caractère au-dessus de la tête de Wang Lin, laissa échapper un grand rire et s'exclama: « Hé hé! L'Ordre de mise à mort des Dix Mille Démons, quelle merveille! Quelle merveille! »
 
-« Cadet, je te donne une demi-heure pour régler tes affaires avant que tu ne meures. Ne tente pas de résister; avec ta simple culture au stade initial de la Formation du Noyau, tu ne fais pas le poids face à moi, le Seigneur Démon au Manteau Noir. » Après avoir parlé, il leva les yeux vers le ciel, les mains derrière le dos, affichant une attitude comme s'il méprisait les cieux eux-mêmes.
+« Cadet, je te donne un quart d'heure pour régler tes affaires avant que tu ne meures. Ne tente pas de résister; avec ta simple culture au stade initial de la Formation du Noyau, tu ne fais pas le poids face à moi, le Seigneur Démon au Manteau Noir. » Après avoir parlé, il leva les yeux vers le ciel, les mains derrière le dos, affichant une attitude comme s'il méprisait les cieux eux-mêmes.
 
 Li Muwan esquissa un sourire en regardant l'arrogant homme gras, puis elle tourna les yeux vers Wang Lin et son sourire s'élargit.
 

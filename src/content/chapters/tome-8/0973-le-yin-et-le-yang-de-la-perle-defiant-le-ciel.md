@@ -60,17 +60,17 @@ Chaque filament d'énergie de massacre représentait une vie. Les millions de pa
 
 Les brins d'énergie de massacre qui l'entouraient abandonnèrent leur poursuite pour reculer. Ils se regroupèrent là où le Clairvoyant pointait son doigt.
 
-En un instant, alors que les filaments fusionnaient, une épée rouge de sept pouces de long et trois pouces de large apparut devant le Clairvoyant!
+En un instant, alors que les filaments fusionnaient, une épée rouge de 2,31 mètres de long et 9,9 centimètres de large apparut devant le Clairvoyant!
 
 L'épée dégageait des volutes de fumée. Le Clairvoyant agita nonchalamment la main et l'arme laissa échapper un chant d'épée qui fit trembler les cieux. L'épée se changea en une ligne rouge et fonça vers l'Épée Céleste Serpentiforme de Ling Tianhou.
 
 Les deux épées accéléraient sans cesse, et le bang sonique provoqué par leur course se propagea sur toute la planète. En un instant, elles entrèrent en collision.
 
-Pourtant, les deux épées ne se touchèrent pas réellement; elles restèrent à sept pouces l'une de l'autre! Des grondements tonitruants jaillirent de cet interstice de sept pouces, et d'innombrables rayons d'énergie d'épée s'entrechoquèrent.
+Pourtant, les deux épées ne se touchèrent pas réellement; elles restèrent à 23,1 centimètres l'une de l'autre! Des grondements tonitruants jaillirent de cet interstice de 23,1 centimètres, et d'innombrables rayons d'énergie d'épée s'entrechoquèrent.
 
 De vastes éclairs se dispersèrent dans toutes les directions.
 
-Une puissance colossale était concentrée dans cet espace de sept pouces. Le Clairvoyant hocha la tête et dit lentement: « Pas mal, votre culture a considérablement progressé... Cependant, si c'est là tout ce que vous avez à offrir aujourd'hui, je vous expulserai de la planète Tian Yun. »
+Une puissance colossale était concentrée dans cet espace de 23,1 centimètres. Le Clairvoyant hocha la tête et dit lentement: « Pas mal, votre culture a considérablement progressé... Cependant, si c'est là tout ce que vous avez à offrir aujourd'hui, je vous expulserai de la planète Tian Yun. »
 
 Ling Tianhou ricana en agitant sa manche, les bras grands ouverts. Il cria: « Moi, Ling Tianhou, je ne cultive que le Dao des épées! Ces dernières années, j'ai atteint l'éveil dans la loi des lames. Robe Grise, j'ignore pourquoi tu acceptes d'être manipulé par lui, mais ton apparition ici signifie que tu as renoncé à notre amitié passée! »
 
@@ -90,7 +90,7 @@ Dès l'apparition de cette arme, des hymnes d'épées dignes de vénération ré
 
 Toutes les épées de la planète commencèrent à vibrer. L'ombre vacilla et perça la lumière noire pour foncer vers l'Épée Céleste Serpentiforme.
 
-L'Épée Céleste Serpentiforme semblait douée d'intelligence; elle brilla d'un éclat rouge et chargea. La distance entre les deux lames passa de sept pouces à trois!
+L'Épée Céleste Serpentiforme semblait douée d'intelligence; elle brilla d'un éclat rouge et chargea. La distance entre les deux lames passa de 23,1 centimètres à 9,9 centimètres!
 
 Au moment où l'ombre s'élança, une déchirure fendit le ciel.
 
@@ -100,7 +100,7 @@ Une fois ses paroles achevées, le Clairvoyant fit un pas en arrière et laissa 
 
 Elle fusionna avec l'épée de massacre, augmentant considérablement sa puissance!
 
-La distance de trois pouces entre les deux épées s'effondra instantanément. Les deux armes, portées par une puissance inimaginable, entrèrent en collision!
+La distance de 9,9 centimètres entre les deux épées s'effondra instantanément. Les deux armes, portées par une puissance inimaginable, entrèrent en collision!
 
 Boom!
 

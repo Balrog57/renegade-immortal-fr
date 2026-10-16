@@ -24,7 +24,7 @@ Zhan Konglie fut également stupéfait. Il ne s'attendait pas à ce que l'intent
 
 « La première fois que je l'ai vu, il était au sommet du stade avancé de l'Ascendant. La deuxième fois, il était au stade Yang Corporel. Et maintenant, la troisième fois... il a atteint le début du Scruteur du Nirvana!! Ne cachait-il donc pas sa culture... » Zhan Konglie était perdu.
 
-« Senior! » À côté de Zhan Konglie, Zhan Yun se leva brusquement, surprise. Elle s'élança rapidement vers Wang Lin et se tint respectueusement à plusieurs dizaines de pieds de lui.
+« Senior! » À côté de Zhan Konglie, Zhan Yun se leva brusquement, surprise. Elle s'élança rapidement vers Wang Lin et se tint respectueusement à une centaine de mètres de lui.
 
 Elle n'était pas la seule; d'autres personnes présentes avaient également été sauvées par Wang Lin. En proie à une vive émotion, elles volèrent vers lui pour s'incliner devant lui.
 
@@ -38,7 +38,7 @@ En voyant ces gens, Wang Lin hocha la tête.
 
 L'expression de Wang Lin resta glaciale tandis qu'il contemplait le vieil homme.
 
-Au même instant, un homme d'âge moyen se tenait à environ mille pieds de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
+Au même instant, un homme d'âge moyen se tenait à environ 330 mètres de Wang Lin. C'était l'un des hommes que Wang Lin avait sauvés du Royaume Céleste du Tonnerre. Après une brève réflexion, il serra les dents, se tourna vers l'Ancien de la famille Tang et déclara: « La famille Chen du Système Stellaire Tout-Ciel, dans le Domaine Sud, recommande Senior Xu Mu pour participer! Je ne sais pas si ma famille Chen en a les qualifications! »
 
 Les yeux du vieil homme nommé Tang s'illuminèrent. Il ne regarda pas l'homme d'âge moyen, mais plutôt l'ancêtre de la famille Chen qui venait de s'exprimer.
 
@@ -92,7 +92,7 @@ L'Ancien de la famille Tang commença à ricaner. Juste au moment où il allait 
 
 « Xu Mu a les qualifications! »
 
-À ces mots, l'expression de l'Ancien Tang changea radicalement. Connaissant l'identité de l'Ancien aux robes violettes, il n'osa répliquer. Il laissa échapper un renflement froid, agita ses manches et emmena Tang Yanfeng avec lui.
+À ces mots, l'expression de l'Ancien Tang changea radicalement. Connaissant l'identité de l'Ancien aux robes violettes, il n'osa répliquer. Il laissa échapper un reniflement froid, agita ses manches et emmena Tang Yanfeng avec lui.
 
 Les membres de la famille Tang s'envolèrent rapidement dans les airs pour suivre le vieil homme et quitter les lieux.
 
@@ -110,7 +110,7 @@ Puisque la famille Tang avait manifesté de l'hostilité envers lui, Wang Lin n'
 
 « Xu Mu! » L'Ancien de la famille Tang était furieux. Une trace de tristesse perçait dans ses yeux tandis qu'il fixait férocement Wang Lin. D'un bond, il chargea droit sur lui.
 
-L'expression de Wang Lin resta imperturbable alors qu'il levait sa main droite. À cet instant, un renflement froid provint du messager aux robes violettes du Temple Céleste du Tonnerre. Le vieil homme ouvrit les yeux pour la première fois, révélant un regard glacial.
+L'expression de Wang Lin resta imperturbable alors qu'il levait sa main droite. À cet instant, un reniflement froid provint du messager aux robes violettes du Temple Céleste du Tonnerre. Le vieil homme ouvrit les yeux pour la première fois, révélant un regard glacial.
 
 « Les combats privés sont interdits durant la compétition. Tang Shan, emmène les membres de ta famille et disparaissez d'ici! Une fois la compétition terminée, si vous souhaitez vous venger, apprenez de la famille Yao et réglez cela par vous-mêmes! »
 
@@ -126,7 +126,7 @@ Une trace d'admiration apparut dans les yeux de l'Ancien aux robes violettes qui
 
 « Quelqu'un ose-t-il relever le défi? » Le regard de l'Ancien parcourut les cultivateurs du Domaine Sud assis sur les pierres rouges. Finalement, ses yeux se posèrent sur un homme.
 
-Cet individu était vêtu de noir et paraissait avoir une quarantaine d'années. Son visage était légèrement pâle et neuf lames étaient plantées dans le sol devant lui!
+Cet individu était vêtu de noir et paraissait avoir une quarantaine d'années. Ses tempes étaient légèrement grisonnantes et neuf lames étaient plantées dans le sol devant lui!
 
 Même lorsque l'intention de combat de Wang Lin atteignit son périmètre, il ne réagit nullement, continuant sa culture en silence. Ce n'est que lorsque Wang Lin révéla sa culture au début du stade Scruteur du Nirvana qu'il leva la tête, laissant transparaître une intention de combat presque imperceptible.
 

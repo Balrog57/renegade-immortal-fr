@@ -92,4 +92,4 @@ Shi: Énergie Spirituelle, Sens Divin!
 
 En comparaison, le royaume de l'énergie spirituelle était beaucoup plus facile d'accès, tandis que le royaume du Sens Divin était bien trop éthéré. Dans l'Antiquité, ceux qui parvenaient à entrer dans le Royaume Shi le faisaient principalement par l'énergie spirituelle. À ce moment-là, l'énergie spirituelle à l'intérieur de leur corps subissait une transformation colossale. Cependant, la durée de présence dans le Royaume Shi était si brève que les bénéfices restaient limités.
 
-Tout cela changea lorsque les archives du Royaume Shi furent laissées par un cultivateur nommé Liu Wen!
+Tout cela changea avec un cultivateur nommé Liu Wen : dans l'Antiquité, on enregistra pour la première fois un tel changement!

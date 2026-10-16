@@ -84,7 +84,7 @@ Alors qu'il survolait silencieusement les lieux, le regard de Wang Lin balaya le
 
 À ce moment-là, un rugissement fracassant retentit à l'horizon lointain. Un nuage rouge qui recouvrait tout chargea vers Wang Lin avec frénésie.
 
-Une bête féroce et massive montait sur le nuage rouge. Cette créature ressemblait à un dragon, mais ce n'en était pas un. Son long corps mesurait des dizaines de milliers de pieds et sa tête était triangulaire. On pouvait dire qu'elle ressemblait à un serpent, mais tout son corps était recouvert de poils.
+Une bête féroce et massive montait sur le nuage rouge. Cette créature ressemblait à un dragon, mais ce n'en était pas un. Son long corps mesurait environ 3,3 kilomètres et sa tête était triangulaire. On pouvait dire qu'elle ressemblait à un serpent, mais tout son corps était recouvert de poils.
 
 Alors que la bête rugissait en se précipitant, le brouillard céleste se fendit comme si une paire de mains invisibles lui ouvrait le passage.
 
@@ -112,7 +112,7 @@ Une malédiction jaillit de la capitale, suivie par un homme vêtu de pourpre qu
 
 « Situ Nan, le Maître de Secte a déjà donné l'ordre! Tu es recherché sur la planète Luanfeng et sur toutes les planètes sous sa juridiction. Tu ne pourras pas t'échapper! »
 
-Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à cette vieille salope que si elle continue de harceler ce vieil homme, je graverai la scène de ses avances sur dix mille pierres de jade et je les disperserai dans tout le Système Stellaire Alliance! Bon sang, me pourchasser pendant près d'un siècle... c'est exaspérant! »
+Cet homme était Situ Nan. Dans un état pitoyable, il cria en retour: « Dis à cette vieille salope que si elle continue de harceler ce vieil homme, je graverai la scène de ses avances sur cent mille pierres de jade et je les disperserai dans tout le Système Stellaire Alliance! Bon sang, me pourchasser pendant près d'un siècle... c'est exaspérant! »
 
 « Hmph! » Les deux femmes fusionnèrent immédiatement les deux sphères de lumière qu'elles tenaient. Les globes se fondirent instantanément pour prendre la forme d'une femme extrêmement séduisante.
 

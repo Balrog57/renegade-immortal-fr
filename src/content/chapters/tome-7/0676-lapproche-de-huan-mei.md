@@ -10,7 +10,7 @@ La partie sud de la planète Mille Illusions appartenait à la famille Huan. Un 
 
 L'eau du bassin avait déjà été retirée par l'ancêtre de la famille Huan, ne laissant derrière lui qu'une profonde fosse dans le sol. Ce dernier flottait actuellement au-dessus du bassin, l'expression empreinte d'une grande gravité.
 
-Sous lui se tenaient des dizaines de milliers de membres de la famille Huan. Tous étaient silencieux; un calme absolu régnait dans un rayon de plusieurs dizaines de kilomètres.
+Sous lui se tenaient des dizaines de milliers de membres de la famille Huan. Tous étaient silencieux; un calme absolu régnait dans un rayon d'une dizaine de kilomètres.
 
 Chaque membre de la famille Huan s'avançait l'un après l'autre vers le bord de la fosse pour s'entailler le bras et laisser couler son sang. Une fois qu'ils avaient versé une quantité suffisante, leur visage pâlissait et ils se retiraient, l'air sombre.
 
@@ -28,7 +28,7 @@ Le regard de l'ancêtre de la famille Huan devint profond et il déclara d'un to
 
 L'ancêtre de la famille Huan dit lentement: « Entre dans le bassin de sang et cultive avec ferveur. »
 
-Liu Mei acquiesça et marcha vers le bassin de sang. En y pénétrant nue, l'odeur du sang l'assaillit. Elle fronça légèrement les sourcils mais s'avança avec détermination. Au fur et à mesure qu'elle progressait, le sang recouvrit ses genoux, sa taille, sa poitrine, pour finalement l'immerger complètement.
+Liu Mei acquiesça et marcha vers le bassin de sang. En y pénétrant pieds nus, l'odeur du sang l'assaillit. Elle fronça légèrement les sourcils mais s'avança avec détermination. Au fur et à mesure qu'elle progressait, le sang recouvrit ses genoux, sa taille, sa poitrine, pour finalement l'immerger complètement.
 
 À l'intérieur du bassin de sang, on ne percevait plus que le vortex; pas même une trace de Liu Mei n'était visible.
 
@@ -86,7 +86,7 @@ Elle n'emmena aucun serviteur et partit seule.
 
 À l'intérieur de la fissure terrestre, Wang Lin détourna son regard du Serpent aux yeux de lune. La stupeur ne quittait pas ses yeux.
 
-« Ce serpent mesure des dizaines de milliers de pieds de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Scruteur du Nirvana. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
+« Ce serpent mesure environ 3,3 kilomètres de long, et sa puissance n'est pas inférieure à celle d'un cultivateur Scruteur du Nirvana. En l'absence de Dieux Anciens, ses capacités offensives ne sont pas exceptionnelles. Tant que je ne prends pas l'initiative de le provoquer, il devrait conserver sa première forme. »
 
 Wang Lin réfléchit un instant. Selon la mémoire du Dieu Ancien, ces parasites qui vivaient en lui possédaient trois formes. La première était celle qu'il venait de voir; elle n'avait aucune capacité offensive.
 

@@ -10,9 +10,9 @@ L'expression de l'All-Voyant s'assombrit et il dit calmement: « Tant qu'il n'a 
 
 « Votre Secte du Destin Céleste veut protéger votre disciple? Est-ce que les disciples de ma Secte de l'Épée Da Lou sont morts pour rien?! Chen Long était le seul survivant parmi les 12 Épées, les autres ont tous été tués par Wang Lin! Ce vieil homme ne s'en prend pas aux faibles; tant que Wang Lin peut résister à trois rayons d'énergie d'épée, cette affaire sera oubliée! Si vous osez me barrer la route, All-Voyant, je risquerai tout pour entrer en guerre contre vous! » Le visage de Ling Tianhou était empreint d'une intention meurtrière. Bien qu'il s'adressât à l'All-Voyant, son regard restait verrouillé sur Wang Lin.
 
-« Ce senior affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à Senior combien de temps il pourrait tenir face à l'énergie d'épée du Saint de l'Épée Ling Tianhou? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
+« Ce senior affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à Senior combien de rayons d'énergie d'épée du Saint de l'Épée Ling Tianhou il pourrait supporter? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
 
-Le vieil homme au corps semblable à une montagne de chair était extrêmement sombre. Il laissa échapper un renflement froid et resta silencieux, mais une lueur d'intention meurtrière traversa ses yeux.
+Le vieil homme au corps semblable à une montagne de chair était extrêmement sombre. Il laissa échapper un reniflement froid et resta silencieux, mais une lueur d'intention meurtrière traversa ses yeux.
 
 Wang Lin esquissa un faible sourire alors que son regard se posait sur Ling Tianhou, et il dit calmement: « Veuillez m'instruire, Saint de l'Épée! »
 
@@ -68,7 +68,7 @@ Quant au vieil homme ressemblant à une montagne de chair, son esprit trembla. I
 
 Ling Tianhou était surnommé le « Saint de l'Épée » et possédait une maîtrise et une intuition exceptionnelles en matière d'armement. En voyant ces 27 épées, ses yeux brillèrent.
 
-« De telles épées volantes, une telle formation... Wang Lin, tu es digne de combattre à mes côtés! » Ling Tianhou agita les mains et les trois épées d'origine restantes derrière lui s'envolèrent. Alors que les quatre épées tournaient, des rayons d'énergie d'épée jaillirent, formant un filet de mort.
+« De telles épées volantes, une telle formation... Wang Lin, tu es digne de m'affronter! » Ling Tianhou agita les mains et les trois épées d'origine restantes derrière lui s'envolèrent. Alors que les quatre épées tournaient, des rayons d'énergie d'épée jaillirent, formant un filet de mort.
 
 Les 27 épées volantes rattrapèrent l'impact de son coup sous le contrôle de Wang Lin. Elles fusionnèrent pour former une tempête dont les épées constituaient le cœur. Une intention d'épée y était contenue, et elles entrèrent en collision avec les quatre épées d'origine tournoyantes de Ling Tianhou.
 
@@ -82,7 +82,7 @@ Sous la force du coup, les quatre épées d'origine de Ling Tianhou furent toute
 
 Cette scène fut un choc pour quiconque la vit!
 
-Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s'étant contenté d'attaquer avec l'énergie pure de ses épées. Ce n'était pas par clémence, mais parce que même si Wang Lin était au stade initial du Purificateur du Nirvana, il ne représentait pas une menace suffisante pour que Ling Tianhou utilise des sorts!
+Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s'étant contenté d'attaquer avec l'énergie pure de ses épées. Ce n'était pas par clémence, mais parce que même si Wang Lin était au stade initial du Scruteur du Nirvana, il ne représentait pas une menace suffisante pour que Ling Tianhou utilise des sorts!
 
 Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria: « Tu es digne que ce vieil homme utilise des sorts! Je ne connais que trois sortilèges: Sacrifice, Trou, Brise! Épée de sacrifice, première phase, invocation par le sang! »
 
@@ -110,7 +110,7 @@ Un grondement intense résonna à travers l'univers. Les sons de l'effondrement 
 
 Si l'All-Voyant n'avait pas bloqué l'onde de choc de cet impact, une grande partie de la planète Tian Yun se serait probablement effondrée. Après le choc, le corps de Wang Lin fut repoussé en arrière. Ses 45 épées n'étaient pas endommagées, mais elles semblaient ternes alors qu'elles tournaient autour de lui.
 
-Face à lui, l'épée formée par Ling Tianhou s'effondra et redevint quatre épées d'origine. Ling Tianhou n'avait pas été repoussé, bien que ses yeux brillassent de plaisir alors qu'il riait: « Wang Lin, la rancune entre toi et la Secte de l'Épée Da Lou est effacée. Ce vieil homme ne te reprendra pas le jeton. Puisque c'est toi qui l'as obtenu, tu as désormais le droit d'entrer dans la grotte céleste! »
+Face à lui, l'épée formée par Ling Tianhou s'effondra et redevint quatre épées d'origine. Ling Tianhou n'avait pas été repoussé, bien que ses yeux brillassent de plaisir alors qu'il riait: « Wang Lin, la rancune entre toi et la Secte de l'Épée Da Lou est effacée. Ce vieil homme ne te reprendra pas le jeton. Puisque c'est toi qui l'as obtenu, c'est ta chance : quand nous irons à la grotte céleste, tu auras ta part! »
 
 Ling Tianhou se détourna et s'éloigna. Les disciples de la Secte de l'Épée Da Lou, encore confus, le suivirent immédiatement. Des rayons d'énergie d'épée disparurent rapidement au loin.
 
@@ -120,7 +120,7 @@ Les environs étaient plongés dans un silence total. Que ce soient les disciple
 
 « Qui aurait cru que Wang Lin possèderait la puissance de combattre Ling Tianhou?! » L'excitation brillait dans les yeux de Bai Wei. Même à cet instant, il peinait à croire ce qu'il venait de voir.
 
-Le visage de Zhao Xingxia était d'une pâleur mortelle et son regard vers Wang Lin était empreint de terreur. Il n'osait plus nourrir la moindre intention malveillante.
+Le visage de Zhao Xingsha était d'une pâleur mortelle et son regard vers Wang Lin était empreint de terreur. Il n'osait plus nourrir la moindre intention malveillante.
 
 Il y avait aussi la quatrième sœur, qui était restée abattue tout ce temps. La confusion dans ses yeux s'évanouit et elle fixa Wang Lin d'un regard mystérieux.
 
@@ -130,7 +130,7 @@ Non seulement eux, mais presque tous ceux qui connaissaient Wang Lin étaient pl
 
 Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Senior, suis-je qualifié? »
 
-Le vieil homme réfléchit silencieusement avant de laisser échapper un renflement froid et de dire à l'All-Voyant: « Camarade cultivateur All-Voyant, j'ai encore une série de pilules à raffiner, je ne vous dérangerai donc plus. »
+Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à l'All-Voyant: « Camarade cultivateur All-Voyant, j'ai encore une série de pilules à raffiner, je ne vous dérangerai donc plus. »
 
 Sur ce, il cria aux quatre disciples qui le portaient: « Retour à la secte! »
 
@@ -142,7 +142,7 @@ La personne qui s'en alla avec lui était le vieil homme maigre. Dès le début,
 
 La dernière à partir fut la belle femme d'âge moyen. Elle regarda Wang Lin et sourit: « Les épées volantes du camarade cultivateur Wang sont imprégnées d'une intention meurtrière. Cependant, un excès d'intention meurtrière peut être difficile à contrôler. Si vous en avez le temps, je vous prie de venir sur la planète Zi Xia. » Sur ce, elle s'inclina devant l'All-Voyant et partit, suivie par les quatre femmes.
 
-Alors qu'elles s'éloignaient, les yeux de la femme en robe rose brillèrent. Elle regarda Wang Lin avec un sourire: « Ma maîtresse excelle dans le raffinage, mais cela ne sera pas donné. »
+Alors qu'elles s'éloignaient, les yeux de la femme en robe rose brillèrent. Elle regarda Wang Lin avec un sourire: « Ma maîtresse excelle dans le raffinage, et ses tarifs ne sont pas élevés. »
 
 « Petite insolente! » La belle femme gloussa et les trois autres femmes rirent également. Seuls quelques rares observateurs remarquèrent que le regard de la femme en robe verte porté sur Wang Lin était très différent.
 

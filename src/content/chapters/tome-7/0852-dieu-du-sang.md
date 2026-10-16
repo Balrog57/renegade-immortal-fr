@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 852 - Blood God
 slug: dieu-du-sang
 ---
-Yao Yun ne da même pas un regard au miroir de bronze. À cet instant, il avait depuis longtemps oublié l'ordre de son ancêtre. Il se tenait la tête et rugissait de douleur sans relâche. L'ombre démoniaque mesurait plus de cent pieds de haut. Elle détourna son regard de l'éclair de la rétribution divine pour fixer froidement Wang Lin.
+Yao Yun ne da même pas un regard au miroir de bronze. À cet instant, il avait depuis longtemps oublié l'ordre de son ancêtre. Il se tenait la tête et rugissait de douleur sans relâche. L'ombre démoniaque mesurait plus de trente mètres de haut. Elle détourna son regard de l'éclair de la rétribution divine pour fixer froidement Wang Lin.
 
 « Un ancien démon! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -42,7 +42,7 @@ L'expression de l'ancien démon devint plus sombre encore. Il fixa Wang Lin d'un
 
 Les yeux de Wang Lin brillèrent et il cracha un gaz blanc. Un objet se trouvait dissimulé dans ce gaz: le Sceau Céleste. Il s'élargit soudainement devant lui et, alors que sa main traçait un sceau, des centaines de milliers de runes furent projetées vers l'ancien démon.
 
-À cet instant précis, le nuage de rétribution divine se condensa à nouveau, formant plus d'une douzaine d'éclairs rouges de plus de 33 mètres de long. L'espace lui-même semblait sur le point de s'effondrer lors de leur descente.
+À cet instant précis, le nuage de rétribution divine se condensa à nouveau, formant plusieurs dizaines d'éclairs rouges, d'une épaisseur proche de dix mètres. L'espace lui-même semblait sur le point de s'effondrer lors de leur descente.
 
 Face à ces centaines de milliers de sceaux et aux éclairs de la rétribution divine, les yeux de l'ancien démon s'illuminèrent. Il murmura quelques mots silencieux et, en un instant, son corps déjà flou devint presque évanescent.
 

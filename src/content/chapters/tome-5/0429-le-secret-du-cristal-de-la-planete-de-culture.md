@@ -15,7 +15,7 @@ Wang Lin fronça les sourcils en attendant que Situ Nan poursuive son récit.
 
 « Cette parcelle est absorbée par le Cristal de la Planète de Culture, et l'Alliance de Culture accorde au pays un contrôle absolu sur le cristal. Héhé, un pays de culture de rang 6 devient ainsi comme un roi grâce à l'existence du Cristal de la Planète de Culture!
 
-« Grâce à cet objet, n'importe quelle génération de Suzaku peut tuer n'importe quel être vivant sur la planète, à moins que cette personne ou cette créature n'ait dépassé le stade Ascendant et ne récupère de force sa parcelle d'âme. Sinon, il n'y a aucun autre moyen.
+« Grâce à cet objet, n'importe quelle génération de Suzaku peut tuer n'importe quel cultivateur né sur la planète, à moins que cette personne n'ait dépassé le stade Ascendant et ne récupère de force sa parcelle d'âme. Sinon, il n'y a aucun autre moyen.
 
 « Cependant, je suppose que le Cristal de la Planète de Culture n'est pas un secret sur beaucoup d'autres planètes; les gens ont dû trouver des moyens de le contrer, sans quoi il y aurait bien plus de pays de rang 6 renversés par leurs propres habitants.
 
@@ -29,7 +29,7 @@ Même avec la force mentale de Wang Lin, l'entendre lui infligea un choc: son ex
 
 Wang Lin demanda d'un ton grave: « Ainsi, si Zhuque Zi prend le contrôle du Cristal de la Planète de Culture, il lui suffira d'une seule pensée pour me tuer? »
 
-Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seul l'actuel Suzaku en possède possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
+Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seul l'actuel Suzaku en a la possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
 
 « Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Domaine Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
 
@@ -67,7 +67,7 @@ En chemin, le ciel était presque entièrement occulté par des nuages noirs. Ce
 
 Plus Wang Lin en voyait, plus son humeur s'assombrissait. Bien qu'il détestât Zhuque Zi, il restait un cultivateur; en chemin, il abattit d'innombrables membres du Clan des Immortels Déchus. Hélas, ils étaient si nombreux qu'il dut renoncer et se fondre dans la masse pour continuer sa route vers Chu.
 
-Presque tous les pays de culture de rang 3 avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Déchus.
+Presque tous les pays de culture de rang 3 ou moins avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Déchus.
 
 Tous les membres du clan s'étaient rassemblés sur le continent Suzaku lorsque la seconde bataille avec le pays de Suzaku éclata!
 

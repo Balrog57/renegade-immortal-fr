@@ -18,7 +18,7 @@ Wang Lin quitta le Pavillon des Trésors et se dirigea vers l'élégant Pavillon
 
 Un jeune érudit était assis à l'intérieur du pavillon. Il tenait un livre ancien et semblait le lire avec grand intérêt. Lorsque le jeune homme remarqua l'entrée de Wang Lin, il posa son ouvrage, se leva et sourit. « Bien que notre boutique ne soit pas vaste, nous possédons une collection assez riche. Je me demande ce que cherche l'ami. »
 
-La culture de cette personne n'était qu'au stade initial de l'Âme Naissante. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon des Trésors; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
+La culture de cette personne n'était qu'au stade initial de la Formation de l'Âme. Lorsqu'il vit Wang Lin, il ne fit preuve d'aucune arrogance, contrairement à la personne du Pavillon des Trésors; au contraire, son accueil fut empreint de simplicité et d'enthousiasme.
 
 Wang Lin esquissa un léger sourire. Il frappa son sac de rangement, et l'épée volante en sortit. Il demanda: « Cher compagnon de culture accepterait-il d'examiner son épée? »
 
@@ -42,7 +42,7 @@ Il ne tenta pas immédiatement d'activer le sort, mais manipula l'épée pour la
 
 « Quelle épée! » En contemplant l'arme volante, les yeux du jeune homme brillaient d'admiration, teintés pourtant d'un soupçon de regret. « Ce niveau d'intégration peut être considéré comme de qualité moyenne. Une énergie spirituelle aussi féroce pourrait même être qualifiée de haute qualité. Malheureusement, sa vitesse ne suit pas celle de l'épée. Quel dommage! Quel dommage! »
 
-Alors qu'il parlait, il activa le sort à l'intérieur de l'épée volante et, à cet instant précis, ses pupilles se rétractèrent brutalement. Il vit l'épée disparaître devant lui pour réapparaître cent pieds plus loin.
+Alors qu'il parlait, il activa le sort à l'intérieur de l'épée volante et, à cet instant précis, ses pupilles se rétractèrent brutalement. Il vit l'épée disparaître devant lui pour réapparaître à trente-trois mètres plus loin.
 
 « Ceci... »
 
@@ -54,7 +54,7 @@ Plus important encore, même pour un cultivateur possédant le niveau requis, à
 
 C'était le domaine de la Vie et de la Mort de Wang Lin qui permettait au sort de téléportation de l'épée de durer indéfiniment. Cependant, si l'équilibre était rompu, le sort finirait par expirer.
 
-Le jeune homme agrippa l'épée volante. Il retourna précipitamment dans la boutique tout en fixant Wang Lin et s'exclama: « Cher compagnon, cette boutique veut cette épée! Est-ce que dix mille pierres d'esprit de haute qualité suffisent? »
+Le jeune homme agrippa l'épée volante. Il retourna précipitamment dans la boutique tout en fixant Wang Lin et s'exclama: « Cher compagnon, cette boutique veut cette épée! Est-ce que cent mille pierres d'esprit de haute qualité suffisent? »
 
 Wang Lin fronça légèrement les sourcils. Le niveau de culture du jeune homme devant lui était trop bas; en utilisant son énergie spirituelle, il ne pouvait n'en exploiter qu'un dixième de la puissance.
 
@@ -90,7 +90,7 @@ Le vieil homme effleura l'épée volante du bout du doigt. Elle libéra un chant
 
 Cette fois, elle se téléporta sur plus de cinq cents kilomètres.
 
-L'instant suivant, l'épée réapparut près du vieil homme et tournoyâ autour de lui. Elle dégageait une énergie spirituelle céleste, et sa féroce énergie d'épée était aussi tendue qu'un arc prêt à décocher.
+L'instant suivant, l'épée réapparut près du vieil homme et tournoya autour de lui. Elle dégageait une énergie spirituelle céleste, et sa féroce énergie d'épée était aussi tendue qu'un arc prêt à décocher.
 
 Plus important encore, des filaments de foudre parcouraient la lame. Le vieil homme fixa l'éclair et réfléchit un instant. Il leva le doigt et toucha la foudre.
 

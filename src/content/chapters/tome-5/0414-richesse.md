@@ -16,7 +16,7 @@ Wang Lin secoua la tête et répondit: « Je ne suis pas votre Ancêtre. »
 
 Le vieil homme prit une profonde inspiration et dit d'un ton respectueux: « Vous êtes devenu l'Ancêtre de tous les cultivateurs de Zhao lorsque vous avez atteint le stade de la Formation de l'Âme, il y a deux cents ans, au sein de la Secte Tian Dao. J'espère que l'Ancêtre ne rejettera pas ce titre. »
 
-Wang Lin laissa échapper un soupir et contempla les terres de Zhao. C'était là qu'il avait grandi. Plus de cinq cents ans s'étaient désormais écoulés, mais il se souvenait encore du passé. Parfois, il lui semblait que ces cinq dernières cent années n'avaient été qu'un rêve.
+Wang Lin laissa échapper un soupir et contempla les terres de Zhao. C'était là qu'il avait grandi. Plus de cinq cents ans s'étaient désormais écoulés, mais il se souvenait encore du passé. Parfois, il lui semblait que ces cinq cents ans n'avaient été qu'un rêve.
 
 « Seigneur Ancêtre, si vous n'êtes pas pressé, veuillez rester quelques jours à la Secte Tian Dao afin que les juniors puissent vous rendre hommage. » Les yeux du vieil homme brillaient de fanatisme et de respect.
 
@@ -28,7 +28,7 @@ Wang Zhuo sourit au vieil homme et lui envoya un message par transmission vocale
 
 « Chen Fengxiao, tu étais un disciple que j'avais personnellement amené à la Secte Tian Dao. À l'époque, tu n'étais qu'un jeune homme, et pourtant, en un clin d'œil, tant d'années ont passé... » soupira Wang Zhuo.
 
-Chen Fengxiao hocha la tête amèrement, tentant encore de assimiler ce qu'il venait d'entendre.
+Chen Fengxiao hocha la tête amèrement, tentant encore d'assimiler ce qu'il venait d'entendre.
 
 Wang Lin séjourna à la Secte Tian Dao.
 

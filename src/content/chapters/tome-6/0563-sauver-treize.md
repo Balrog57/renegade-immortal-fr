@@ -53,7 +53,7 @@ Tandis que Wang Lin volait dans le ciel sous forme de nuage de fumée verte, il 
 
 « Treize et Hu Pao ont été amenés dans cette Cité Démoniaque par ma faute; c'est donc moi qui les ai entraînés dans tout cela... » Wang Lin soupira intérieurement. À l'origine, lorsqu'il était parti, il ne s'attendait pas à s'endormir dans la grotte. En raison d'une suite de circonstances, il avait causé du tort à Treize et Hu Pao.
 
-« Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au pays Sky Demon pour eux signifie défier ces deux puissances!
+« Dans ce monde, certaines choses arrivent et d'autres non. Les cultivateurs aspirent à la longévité et à échapper au destin, pour éviter les calamités et rencontrer la fortune! Treize et Hu Pao ne sont pas proches de moi, et risquer de s'opposer au général démon et au Pays du Démon Céleste pour eux signifie défier ces deux puissances!
 
 « Je devrais être prudent et rester à l'écart du danger. Rien de tout cela n'en vaut la peine!
 
@@ -73,7 +73,7 @@ Dès l'apparition de Wang Lin, un garde près de la porte poussa un cri.
 
 « Intrus, arrête-toi et repars immédiatement! Si tu fais un pas de plus, tu seras tué sans poser de questions! »
 
-Wang Lin leva la tête, son regard devenant glacial. Il prit une profonde inspiration, toucha sa sacoche de rangement, et l'épée céleste s'envolat aussitôt. L'épée tournoyait autour de lui tandis que les rugissements de Xu Liguo émanaient de la lame.
+Wang Lin leva la tête, son regard devenant glacial. Il prit une profonde inspiration, toucha sa sacoche de rangement, et l'épée céleste s'envola aussitôt. L'épée tournoyait autour de lui tandis que les rugissements de Xu Liguo émanaient de la lame.
 
 À l'instant où l'épée céleste apparut, les gardes devant la sixième porte affichèrent une intention meurtrière et fixèrent Wang Lin.
 
@@ -81,7 +81,7 @@ Wang Lin fit un pas, provoquant la charge immédiate des gardes. Tous projetère
 
 Face à cette légion de soldats démons, Wang Lin ne s'interrompit pas et avança pas à pas. L'épée céleste fendait l'air autour de lui; quiconque tentait de l'entraver devait d'abord surmonter la lame.
 
-Une série de gémissements plaintifs résonna dans la zone alors que Wang Lin bondissait sur l'épée céleste pour charger la porte. Il n'avait pas encore stabilisé sa position qu'un rayon d'énergie d'épée jaillit et frappa la sixième porte.
+Une série de gémissements plaintifs résonna dans la zone alors que Wang Lin bondissait sur l'épée céleste pour charger la porte. Il n'avait pas encore stabilisé sa position qu'un rayon d'énergie d'épée long de 33 mètres jaillit et frappa la sixième porte.
 
 Boum!
 
@@ -125,7 +125,7 @@ Mais le temps passa, et le général démon ne montra aucune réaction.
 
 Wang Lin était désormais encerclé de toutes parts par les soldats démons. Jusqu'ici, il avait tenté de ne pas tuer, mais il était maintenant contraint de le faire!
 
-Face à ce siège, Wang Lin leva son pouce et le Doigt de la Mort déploya toute sa puissance. Le ciel et la terre changèrent de couleur, et chaque soldat démon dans un rayon de mille pieds trembla avant que son corps ne se flétrisse. Toute la chair, le sang et l'énergie spirituelle démoniaque furent aspirés dans le pouce de Wang Lin!
+Face à ce siège, Wang Lin leva son pouce et le Doigt de la Mort déploya toute sa puissance. Le ciel et la terre changèrent de couleur, et chaque soldat démon dans un rayon de 330 mètres trembla avant que son corps ne se flétrisse. Toute la chair, le sang et l'énergie spirituelle démoniaque furent aspirés dans le pouce de Wang Lin!
 
 Le corps de Wang Lin fendit l'air comme un éclair vers la quatrième porte. À cet instant, rien ne pouvait le faire hésiter, pas même une demi-seconde.
 
@@ -135,7 +135,7 @@ La quatrième porte s'effondra dans un fracas, et à ce moment précis, une viei
 
 Simultanément, une voix âgée hurla: « Reculez! »
 
-Le pouce de Wang Lin percuta le python d'énergie spirituelle démoniaque. Wang Lin fut contraint de reculer d'un pas, mais le python poussa un cri misérable et son corps s'effrita centimètre par centimètre. Une fois le python anéanti, la vieille silhouette trembla, poussa un gémissement et fut repoussée de plusieurs pas avant de se stabiliser.
+Le pouce de Wang Lin percuta le python d'énergie spirituelle démoniaque. Wang Lin fut contraint de reculer d'un pas, mais le python poussa un cri misérable et son corps s'effrita centimètre par centimètre. Une fois le python anéanti, la vieille silhouette trembla, poussa un gémissement et fut repoussée de plusieurs mètres avant de se stabiliser.
 
 Wang Lin fit un pas et franchit directement la quatrième porte. Outre les innombrables soldats démons devant lui, il y avait aussi un vieil homme aux cheveux blancs!
 
@@ -161,7 +161,7 @@ Face à cette marée de soldats, Wang Lin comprit qu'un homme seul n'avait pas a
 
 Il pouvait tuer un homme, dix, cent, mille ou dix mille individus. Mais une fois ce massacre achevé, toute son énergie spirituelle céleste serait épuisée!
 
-Ses trésors magiques — l'épée céleste, la lame en croissant, le drapeau des restrictions et les fourreaux d'épée — étaient contrôlés par son sens divin pour orchestrer un carnage incessant. Cependant, comparé à ces trésors, l'art du massacre céleste possédait l'avantage ultime: chaque fois qu'il tuait quelqu'un, il gagnait en puissance. Bien que seule une victime sur cent ne produise du gaz gris, l'écart se réduisait à mesure que le nombre de morts augmentait.
+Ses trésors magiques — l'épée céleste, la lame en croissant, le drapeau des restrictions et les fourreaux d'épée — étaient contrôlés par son sens divin pour orchestrer un carnage incessant. Cependant, comparé à ces trésors, l'art du massacre céleste possédait l'avantage ultime: chaque fois qu'il tuait quelqu'un, il gagnait en puissance. Bien qu'il se puisse qu'aucune victime sur cent ne produise de gaz gris, l'écart se réduisait à mesure que le nombre de morts augmentait.
 
 Les yeux de Wang Lin étaient injectés d'une intention meurtrière alors qu'il lançait divers sorts.
 
@@ -169,7 +169,7 @@ Toutefois, les soldats démons étaient trop nombreux et, en fusionnant leur én
 
 Wang Lin frappa sa sacoche de rangement et une grande quantité de jades célestes s'en échappa pour graviter autour de lui. Il aspira rapidement toute l'énergie des jades pour restaurer sa propre énergie spirituelle céleste; ce cycle se répéta, consommant une quantité massive de ressources.
 
-« Doigt démoniaque! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le doigt de la mort, et l'énergie perça les soldats démons, faisant exploser leurs corps.
+« Doigt démoniaque! » Wang Lin n'activa pas l'idéal démoniaque mais utilisa sa culture au sommet de la Transformation de l'Âme pour déclencher le second sort meurtrier! L'énergie spirituelle démoniaque ambiante fut balayée par la puissance du doigt démoniaque. Le doigt de Wang Lin s'abattit tel le doigt de la mort, et, dans un rayon de 330 mètres, l'énergie perça les soldats démons, faisant exploser leurs corps.
 
 Des éclats de lumière rouge sang couvrent le ciel et la terre. Wang Lin s'élança, ouvrant une voie à travers des dizaines de milliers de soldats pour charger directement vers la troisième porte.
 
@@ -179,7 +179,7 @@ Il avait péri sous le coup du doigt démoniaque!
 
 Le dragon de sang créé par le doigt frappa la troisième porte. Après une série de grondements sourds, celle-ci s'effondra!
 
-À travers les décombres, des dizaines de milliers de soldats démons surgirent de la troisième porte. Ils étaient accompagnés de six vieillards aux cheveux blancs qui, dès leur apparition, verrouillèrent Wang Lin du regard.
+À travers les décombres, des dizaines de milliers de soldats démons surgirent de la troisième porte. Ils étaient accompagnés de cinq vieillards aux cheveux blancs qui, dès leur apparition, verrouillèrent Wang Lin du regard.
 
 Wang Lin poussa un soupir. C'était là sa limite face à sa culture actuelle. Aucun des cinq anciens sortant de la porte n'était inférieur à un cultivateur au stade avancé de la Transformation de l'Âme.
 
@@ -191,63 +191,63 @@ Le sort meurtrier suprême que Situ Nan lui avait enseigné. Le sort le plus pui
 
 « Si j'avais des millions de soldats au stade de la Formation du Noyau, des commandants et un général au niveau de culture du commandant en chef, je pourrais combattre un cultivateur Ascendant de fin de stade!
 
-« Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des dizendes de millions de soldats, des généraux démons et quelques commandants. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang! »
+« Il en irait de même si j'avais le pouvoir d'un empereur démoniaque avec des centaines de millions de soldats, des généraux démons et quelques commandants. Je ne craindrais même pas ceux qui ont atteint le stade Yin et Yang! »
 
 Wang Lin soupira face à cette armée et aux cinq anciens dont la puissance égalait celle de cultivateurs au sommet de la Transformation de l'Âme. Il leva alors son petit doigt droit et traça lentement un cercle!
 
-« Monde souterrain! »
+« Inframonde! »
 
 Wang Lin prononça doucement ce seul mot!
 
-Le Doigt du Monde Souterrain, le plus redoutable des trois sorts meurtriers, était d'une puissance infiniment proche d'un sort céleste de bas niveau. Même Situ Nan avait hésité à l'enseigner à Wang Lin!
+Le Doigt de l'Inframonde, le plus redoutable des trois sorts meurtriers, était d'une puissance infiniment proche d'un sort céleste de bas niveau. Même Situ Nan avait hésité à l'enseigner à Wang Lin!
 
 D'un mouvement de doigt, le ciel s'obscurcit brusquement et la foudre tomba. Simultanément, le firmament sembla s'ouvrir comme par deux mains gigantesques, laissant apparaître une immense peinture de montagnes et de rivières qui recouvrit l'horizon.
 
-Ce Doigt du Monde Souterrain activa le domaine de Wang Lin. D'innombrables filaments de gaz gris s'échappèrent du parchemin et se condensèrent à une vitesse inouïe pour former un second Doigt du Monde Souterrain!
+Ce Doigt de l'Inframonde activa le domaine de Wang Lin. D'innombrables filaments de gaz gris s'échappèrent du parchemin et se condensèrent à une vitesse inouïe pour former un second Doigt de l'Inframonde!
 
-Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, ses yeux brillaient d'une intention meurtrière et le gaz gris l'enveloppait. Il se connectait au second Doigt du Monde Souterrain créé par le parchemin de la vie et de la mort.
+Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne soufflât, ses yeux brillaient d'une intention meurtrière et le gaz gris l'enveloppait. Il se connectait au second Doigt de l'Inframonde créé par le parchemin de la vie et de la mort.
 
-Sous l'effet de ce doigt, les dizaines de milliers de soldats démons qui entouraient Wang Lin tremblèrent; des filaments de gaz gris jaillirent du sommet de leurs têtes pour fusionner avec le Doigt du Monde Souterrain issu du parchemin.
+Sous l'effet de ce doigt, les dizaines de milliers de soldats démons qui entouraient Wang Lin tremblèrent; des filaments de gaz gris jaillirent du sommet de leurs têtes pour fusionner avec le Doigt de l'Inframonde issu du parchemin.
 
 Simultanément, Wang Lin s'éleva dans les airs et fusionna avec ce doigt. À cet instant, il ne restait plus qu'une seule chose: un doigt pointé vers l'inframonde!
 
-Après sa fusion avec le Doigt du Monde Souterrain, Wang Lin se rua soudainement vers la deuxième porte.
+Après sa fusion avec le Doigt de l'Inframonde, Wang Lin se rua soudainement vers la deuxième porte.
 
 Les cinq anciens, dont la culture égalait celle de la Transformation de l'Âme au stade avancé, furent terrifiés par la puissance du sort, mais ils serrèrent les dents et activèrent leur énergie spirituelle démoniaque pour bloquer sa progression.
 
-Cependant, ils avaient sous-estimé la force du Doigt du Monde Souterrain. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Sun Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier!
+Cependant, ils avaient sous-estimé la force du Doigt de l'Inframonde. Lorsque Wang Lin était au stade intermédiaire de la Transformation de l'Âme, il avait pu tenir tête à Sun Tao, qui était au stade intermédiaire de l'Ascendant. Bien qu'il eût fini par perdre, il avait infligé une immense surprise à ce dernier!
 
-À présent, la culture de Wang Lin atteignant le sommet du stade avancé de la Transformation de l'Âme, le Doigt du Monde Souterrain était suffisant pour menacer des cultivateurs Ascendants!
+À présent, la culture de Wang Lin atteignant le sommet du stade avancé de la Transformation de l'Âme, le Doigt de l'Inframonde était suffisant pour menacer des cultivateurs Ascendants!
 
 C'était le véritable atout de Wang Lin!
 
 D'un seul coup, les cinq anciens crachèrent du sang. Ils furent projetés en arrière malgré eux et ne purent empêcher Wang Lin d'avancer, même d'un demi-pas.
 
-Avant même que Wang Lin n'atteigne la porte, celle-ci fut pulvérisée par la pression de son Doigt du Monde Souterrain. Derrière la deuxième porte, il n'y avait pas de soldats démons, mais une seule personne!
+Avant même que Wang Lin n'atteigne la porte, celle-ci fut pulvérisée par la pression de son Doigt de l'Inframonde. Derrière la deuxième porte, il n'y avait pas de soldats démons, mais une seule personne!
 
-Cette silhouette était petite, mais ses yeux brillaient comme des éclairs. Au moment où la deuxième porte s'effondra et que le Doigt du Monde Souterrain de Wang Lin se rapprocha, elle poussa un rugissement. Ses mains formèrent des sceaux comme celles d'un cultivateur; les sceaux s'accumulèrent avant qu'elle ne les projette en avant.
+Cette silhouette était petite, mais ses yeux brillaient comme des éclairs. Au moment où la deuxième porte s'effondra et que le Doigt de l'Inframonde de Wang Lin se rapprocha, elle poussa un rugissement. Ses mains formèrent des sceaux comme celles d'un cultivateur; les sceaux s'accumulèrent avant qu'elle ne les projette en avant.
 
-Un son semblable à une tempête balaya la zone alors que le Doigt du Monde Souterrain de Wang Lin s'arrêta à trois pouces de sa main. Une petite sphère se forma entre l'attaque de Wang Lin et la main de cet individu. Cette sphère était d'un blanc pur, parcourue d'éclairs noirs.
+Un son semblable à une tempête balaya la zone alors que le Doigt de l'Inframonde de Wang Lin s'arrêta à 9,9 centimètres de sa main. Une petite sphère se forma entre l'attaque de Wang Lin et la main de cet individu. Cette sphère était d'un blanc pur, parcourue d'éclairs noirs.
 
 La petite silhouette résista pendant trois respirations avant d'être repoussée, laissant deux empreintes profondes dans le sol. Elle ne recula pas par choix, mais fut littéralement expulsée par la force du Doigt de Wang Lin!
 
 Elle dut battre en retraite, car elle savait que si elle continuait à résister, elle ne pourrait pas tenir. Tenter de bloquer l'attaque de force n'aurait pour seul résultat que l'explosion de son propre corps!
 
-Repoussée de plus de trente mètres, elle finit par s'arrêter dans un rugissement. Le Doigt du Monde Souterrain de Wang Lin se trouvait à quelques centimètres d'elle et continuait d'aspirer sa vitalité tel un vortex.
+Repoussée de plus de trois cents mètres, elle finit par s'arrêter dans un rugissement. Le Doigt de l'Inframonde de Wang Lin se trouvait à quelques centimètres d'elle et continuait d'aspirer sa vitalité tel un vortex.
 
 « Commandant Wang! Je suis le premier commandant en chef sous les ordres du général démon. Que voulez-vous exactement?! »
 
 « Je veux rencontrer le général démon! » À peine eut-il fini de parler qu'une masse de gaz gris jaillit des dizaines de milliers de soldats démons derrière lui. Le gaz venait de toutes les directions et s'engouffra rapidement dans son corps.
 
-C'était là la puissance du Doigt du Monde Souterrain!
+C'était là la puissance du Doigt de l'Inframonde!
 
-De grandes quantités de gaz gris pénétrèrent en lui. Wang Lin savait au fond de lui que chaque filament représentait une vie! Avec ce gaz en son sein, la puissance du Doigt du Monde Souterrain atteignit son apogée!
+De grandes quantités de gaz gris pénétrèrent en lui. Wang Lin savait au fond de lui que chaque filament représentait une vie! Avec ce gaz en son sein, la puissance du Doigt de l'Inframonde atteignit son apogée!
 
 La petite silhouette sentit immédiatement cette puissance fulgurante. Son expression changea radicalement tandis qu'elle continuait de reculer.
 
 Cette fois, elle fut projetée jusqu'à la première porte qui, dans un fracas assourdissant, s'effondra!
 
-Au même moment, la petite silhouette cracha une bouchée de sang et fut projetée sur le côté. À cet instant, une haute silhouette émergea de la première porte. Sans dire un mot, il lança un coup de poing direct vers le Doigt du Monde Souterrain de Wang Lin!
+Au même moment, la petite silhouette cracha une bouchée de sang et fut projetée sur le côté. À cet instant, une haute silhouette émergea de la première porte. Sans dire un mot, il lança un coup de poing direct vers le Doigt de l'Inframonde de Wang Lin!
 
 À cet instant précis, Wang Lin ressentit clairement l'intention de combat contenue dans ce coup!
 

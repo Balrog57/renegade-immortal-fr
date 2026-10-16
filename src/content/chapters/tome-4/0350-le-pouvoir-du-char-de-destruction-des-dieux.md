@@ -56,9 +56,9 @@ Tout cela se produisit au moment précis où la brume noire se dissipa. À peine
 
 Le regard du colosse se verrouilla sur Wang Lin. Il se déplaça avec célérité pour lui barrer la route.
 
-La vieille femme, quant à elle, fixa l'Ancien Hu et se lança à sa poursuite. Les six autres chamans de feuilles concentrèrent leurs regards sur Qiu Siping.
+La vieille femme, quant à elle, fixa l'Ancien Hu et se lança à sa poursuite. Un autre chaman à six feuilles porta son regard sur Qiu Siping.
 
-Qiu Siping eut l'impression d'être traqué par une bête féroce. Bientôt, un pouvoir mystérieux enveloppa son corps, le paralysant totalement. Il vit les six chamans lui adresser un sourire sinistre, puis sa vision s'obscurcit alors qu'il perdait connaissance.
+Qiu Siping eut l'impression d'être traqué par une bête féroce. Bientôt, un pouvoir mystérieux enveloppa son corps, le paralysant totalement. Il vit le chaman lui adresser un sourire sinistre, puis sa vision s'obscurcit alors qu'il perdait connaissance.
 
 Sur son front, un tatouage mystérieux et en pleine croissance apparut.
 
@@ -84,7 +84,7 @@ L'expression du colosse restait sombre alors qu'il traquait inlassablement Wang 
 
 Tous deux étaient d'une rapidité fulgurante. En un clin d'œil, ils disparurent tous deux à l'horizon.
 
-Quant au chaman aux six feuilles qui venait de terminer le raffinage de Qiu Siping, il détacha son regard de la direction prise par Wang Lin pour se tourner vers l'Ancien Hu, qui combattait alors la vieille femme. Il se lécha les lèvres en fixant le sac de rangement de l'Ancien Hu. Le sac émettait une lueur jaune, une lumière si vive qu'aucun sac de rangement ne pouvait la dissimuler.
+Quant au chaman aux six feuilles qui venait d'accélérer la croissance du tatouage de Qiu Siping, il détacha son regard de la direction prise par Wang Lin pour se tourner vers l'Ancien Hu, qui combattait alors la vieille femme. Il se lécha les lèvres en fixant le sac de rangement de l'Ancien Hu. Le sac émettait une lueur jaune, une lumière si vive qu'aucun sac de rangement ne pouvait la dissimuler.
 
 Wang Lin portait l'arbre de la réincarnation sur son épaule. Cet arbre était singulier; peu importait ses efforts, il ne parvenait pas à le ranger dans son sac. Si le fruit de la réincarnation était bien dans son sac de rangement, il ne pouvait cependant masquer la lumière jaune qui attirait tous les regards.
 
@@ -98,7 +98,7 @@ La volonté de combat dans ses yeux s'intensifia et il cria: « Chi Mu, guerrier
 
 Le regard de Wang Lin devint glacial et il répliqua: « Wang Lin, cultivateur de la Formation de l'Âme! »
 
-Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à 99 mètres devant lui. Wang Lin sentit immédiatement sa main s'engourdir.
+Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de choc sonore vers Wang Lin. Ce dernier manœuvra l'épée céleste, provoquant une explosion à 10 mètres devant lui. Wang Lin sentit immédiatement sa main s'engourdir.
 
 « Si mon corps originel était ici, je pourrais certainement rivaliser avec cet homme », pensa Wang Lin, les yeux brillants. Il agita la main droite et le piège à bêtes vola vers l'avant.
 

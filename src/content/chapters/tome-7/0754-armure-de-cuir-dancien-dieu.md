@@ -20,15 +20,15 @@ Dans une zone jonchée de débris, Li Yuan s'accroupit, toucha la terre et dit: 
 
 Le fragment sur lequel ils se trouvaient n'était pas très vaste. Vu de loin, la terre était noire et le ciel ténébreux. Aucun tonnerre ne grondait ici, pourtant on pouvait entendre des échos sourds de foudre.
 
-Personne ne se trouvait dans un rayon de dizaines de milliers de kilomètres autour d'eux. Leurs deux silhouettes paraissaient bien solitaires en ce lieu.
+Personne ne se trouvait dans un rayon de cinq mille kilomètres autour d'eux. Leurs deux silhouettes paraissaient bien solitaires en ce lieu.
 
-Li Yuan hocha la tête et sourit. « J'admire votre compréhension des restrictions, Frère Xu. Au cours du mois dernier, chaque fois que j'ai évoqué un sujet, vous avez su en saisir l'essentiel. » Li Yuan prit une poignée de terre et la glissa dans son sac de rangement. Il ajouta ensuite: « Le frère Li devrait également prendre un peu de cette terre de restriction. Une fois que nous aurons quitté le Royaume Céleste du Tonnerre, sa nature pourrait changer en sortant de cet environnement céleste. Si tel est le cas, ce sera un excellent matériau pour fabriquer la boussole de restriction une fois de retour à la famille Li. »
+Li Yuan hocha la tête et sourit. « J'admire votre compréhension des restrictions, Frère Xu. Au cours des dernières semaines, chaque fois que j'ai évoqué un sujet, vous avez su en saisir l'essentiel. » Li Yuan prit une poignée de terre et la glissa dans son sac de rangement. Il ajouta ensuite: « Le frère Xu devrait également prendre un peu de cette terre de restriction. Une fois que nous aurons quitté le Royaume Céleste du Tonnerre, sa nature pourrait changer en sortant de cet environnement céleste. Si tel est le cas, ce sera un excellent matériau pour fabriquer la boussole de restriction une fois de retour à la famille Li. »
 
 « Merci infiniment, Frère Li! » Wang Lin sourit légèrement en s'accroupissant pour prendre une poignée de terre à son tour.
 
 Li Yuan fut pris d'une vive émotion et déclara avec sincérité: « C'est plutôt à moi de vous remercier. Sans vous, je serais déjà mort; et ne parlons même pas du fait que vous m'ayez libéré de l'empreinte d'esclave! »
 
-Il avait retrouvé la raison il y a un mois. Après la confusion initiale, ses souvenirs étaient lentement remontés à la surface de son esprit. En particulier, les actes qu'il avait commis sous le contrôle de l'empreinte d'esclave lui rendaient la paix intérieure difficile à obtenir.
+Il avait retrouvé la raison il y a plus de deux semaines. Après la confusion initiale, ses souvenirs étaient lentement remontés à la surface de son esprit. En particulier, les actes qu'il avait commis sous le contrôle de l'empreinte d'esclave lui rendaient la paix intérieure difficile à obtenir.
 
 Ayant tout compris, il éprouvait une immense gratitude envers Wang Lin. Pour l'exprimer, il partageait sans aucune hésitation ses connaissances sur les restrictions.
 
@@ -36,7 +36,7 @@ Ayant tout compris, il éprouvait une immense gratitude envers Wang Lin. Pour l'
 
 Wang Lin recula de quelques pas et joignit les mains en signe de respect envers Li Yuan. Bien qu'il ne parlât pas, ses yeux témoignaient de la gravité de cette promesse.
 
-La Restriction d'Annihilation était l'une des quatre grandes restrictions, et au cours du mois écoulé, Li Yuan lui en avait expliqué une grande partie. Cette restriction s'apparentait à un sort; et bien qu'il ne s'agisse pas d'un sort céleste, elle lui était comparable!
+La Restriction d'Annihilation était l'une des quatre grandes restrictions, et au cours des dernières semaines, Li Yuan lui en avait expliqué une grande partie. Cette restriction s'apparentait à un sort; et bien qu'il ne s'agisse pas d'un sort céleste, elle lui était comparable!
 
 Pour maîtriser cette restriction, il fallait impérativement l'apprendre dans un lieu de transmission. Dans ce monde, la famille Li en était le seul dépositaire!
 
@@ -50,7 +50,7 @@ Le palais était lui aussi en ruines; il n'en conservait que l'allure digne.
 
 « C'est bien ce que je soupçonnais, » dit Li Yuan avec un sourire amer en se tournant vers Wang Lin.
 
-Wang Lin eut un léger sourire: « La maîtrise des restrictions du Frère Li est vraiment prodigieuse. Ce dernier mois, vous avez été capable de percer les mystères des restrictions instantanément. Bien que la plupart du temps quelqu'un soit déjà passé par là, avec le temps, peut-être trouverons-nous un jour un palais céleste intact! »
+Wang Lin eut un léger sourire: « La maîtrise des restrictions du Frère Li est vraiment prodigieuse. Ces dernières semaines, vous avez été capable de percer les mystères des restrictions instantanément. Bien que la plupart du temps quelqu'un soit déjà passé par là, avec le temps, peut-être trouverons-nous un jour un palais céleste intact! »
 
 « Chacune des quatre anciennes restrictions devient un sortilège surpuissant lorsqu'elle est cultivée à son apogée. Qu'il s'agisse des êtres célestes, des démons qui trônent en haut ou des bêtes mortelles en bas, tous peuvent être scellés! »
 

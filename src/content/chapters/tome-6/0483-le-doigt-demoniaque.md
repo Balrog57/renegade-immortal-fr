@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 483 - Demonic Finger
 slug: le-doigt-demoniaque
 ---
-L'avatar explosa, libérant une aura de folie qui se propagea violemment. La terre et le sable furent projetés dans les airs, et même le Pavillon de la Forêt Pourpre voisin s'effondra partiellement.
+L'avatar explosa, libérant une aura de folie qui se propagea violemment. La terre et le sable furent projetés dans les airs, et même le Pavillon de la Forêt Violette voisin s'effondra partiellement.
 
 L'explosion de l'avatar enveloppa la zone d'un épais nuage de poussière. Sentant la pression environnante s'alléger, la femme s'apprêtait à faire demi-tour pour s'échapper.
 
@@ -36,7 +36,7 @@ Derrière eux se tenait une femme d'une grande beauté, dotée d'une silhouette 
 
 D'innombrables autres lueurs de lumière arrivèrent derrière le groupe. Wang Lin déploya son sens divin et comprit qu'il s'agissait de disciples de la division violette, attirés par l'intensité du combat.
 
-Ces personnes ne s'approchèrent pas, mais restèrent à 33 kilomètres de distance.
+Ces personnes ne s'approchèrent pas, mais restèrent à 3,3 kilomètres de distance.
 
 Peu à peu, les rangs s'épaissirent jusqu'à ce que le ciel entier soit couvert par les disciples de la division violette. Tous leurs regards étaient braqués sur Wang Lin.
 
@@ -78,7 +78,7 @@ L'homme d'âge moyen avait déjà repéré ce sort auparavant. Le voyant de nouv
 
 Une force colossale irradia de lui.
 
-Le pouce de Wang Lin percuta la lumière dorée tandis que l'homme hurlait: « Avatar interdit, retourne! »
+Le pouce de Wang Lin percuta la lumière dorée tandis que l'homme hurlait: « Technique interdite: Retour au Néant! »
 
 En un instant, la lumière dorée sembla s'animer et bouger avec frénésie. Au moment où le pouce de Wang Lin descendit, il forma un double identique qui entra en collision avec le sien.
 
@@ -88,13 +88,13 @@ Wang Lin esquissa un sourire moqueur, retira promptement son pouce et effleura s
 
 Dans un grand « pa », le fouet frappa l'homme d'âge moyen. Son visage devint livide; son âme originelle fut presque arrachée de son corps et sa lumière dorée disparut totalement.
 
-Comprenant qu'un troisième coup approchait, l'homme recula précipitamment.
+Comprenant qu'un troisième coup approchait, l'homme recula précipitamment sur plus d'une centaine de mètres.
 
 Wang Lin le fixa avec un sourire ténu: « Il reste encore une attaque! »
 
 L'expression de l'homme devint sombre. Il poussa un grognement et dégaina une grande épée. D'un mouvement brusque, il libéra une puissante intention d'épée.
 
-« Avec ce pouce, cela fait déjà trois attaques. Comment peut-il y en avoir une autre? Laisse-moi purifier la secte pour le Maître! Wang Lin, accepte ta mort! » Il chargea soudainement en lançant son épée dans les airs: « Formation d'Omniprésence Exponentielle! »
+« Avec ce pouce, cela fait déjà trois attaques. Comment peut-il y en avoir une autre? Laisse-moi purifier la secte pour le Maître! Wang Lin, accepte ta mort! » Il chargea soudainement en lançant son épée dans les airs: « Formation des Dix Directions et Huit Filets! »
 
 Dès que l'épée fut lancée, elle se divisa de 1 en 2, puis de 2 en 4, et ainsi de suite, jusqu'à ce qu'une pluie d'innombrables lames fonce sur Wang Lin.
 
@@ -114,7 +114,7 @@ Le bruit de deux métaux percutant l'un contre l'autre résonna dans la zone. Po
 
 L'homme sourit, puis son corps se mit à trembler avant de se transformer en une brume noire qui fonça sur Wang Lin. Partout où elle passait, la terre se fissurait et la végétation se flétrissait.
 
-Wang Lin recula d'un pas, les yeux étincelants. Il agita la main et le piège à bêtes s'échappa de son poignet pour atterrir au sol et se transformer en Charriot de Guerre Exécuteur.
+Wang Lin recula d'un pas, les yeux étincelants. Il agita la main et le piège à bêtes s'échappa de son poignet pour atterrir au sol et se transformer en Chariot Tueur de Dieux.
 
 Une intention meurtrière envahit le regard de Wang Lin. Cet adversaire avait commencé par cette technique d'avatar interdit; elle était extrêmement puissante, et sans la multitude de trésors dont disposait Wang Lin, il n'aurait pu tenir tête.
 

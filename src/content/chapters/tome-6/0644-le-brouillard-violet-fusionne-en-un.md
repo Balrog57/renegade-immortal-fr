@@ -34,7 +34,7 @@ Au moment où Wang Lin apparut, six regards se posèrent immédiatement sur lui.
 
 « Toi... Wang Lin! » L'un des cinq disciples de la Secte de l'Épée Da Lou le reconnut instantanément.
 
-Une intention meurtrière émana soudainement des disciples de la Secte de l'Épée Da Lou. Leurs relations avec la Secte du Destin Céleste avaient toujours été hostiles, mais rien ne justifiait qu'ils commencent à s'entretuer dès maintenant.
+Une intention meurtrière émana soudainement des disciples de la Secte de l'Épée Da Lou. Leurs relations avec la Secte du Destin Céleste avaient toujours été hostiles, et il suffisait de se rencontrer pour que le combat éclate, sans raison particulière.
 
 Le regard de Wang Lin resta calme tandis qu'il balayait l'assemblée. Son attention ne se fixa pas sur Cupidité, mais passa simplement à côté de lui.
 
@@ -46,9 +46,9 @@ Wang Lin garda une expression neutre en regardant Chen Long. Il ne répondit pas
 
 « Quelle arrogance! Mon frère aîné te pose une question et tu oses ne pas répondre?! » L'impatience de l'un des disciples de la Secte de l'Épée Da Lou, retenu ici depuis cent ans, avait atteint un point de rupture. Profitant de cette opportunité, il s'avança en criant. L'épée précieuse derrière lui vola et, lorsqu'il la mania, une monture équine noire apparut derrière lui!
 
-Le nez du cheval était vert et dégageait une aura maléfique. Il se fondit dans l'épée, fusionnant avec l'énergie de l'arme qui chargeait Wang Lin.
+Le souffle du cheval était vert et dégageait une aura maléfique. Il se fondit dans l'épée, fusionnant avec l'énergie de l'arme qui chargeait Wang Lin.
 
-La culture de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de son secte étaient présents, mais son frère aîné l'était aussi; ils ne le laisseraient naturellement pas subir de défaite.
+La culture de cet homme n'était qu'au stade avancé de la Transformation de l'Âme, mais il n'en avait cure. Non seulement plusieurs membres de sa secte étaient présents, mais son frère aîné l'était aussi; ils ne le laisseraient naturellement pas subir de défaite.
 
 « C'est ainsi que vous traitez vos invités? » Wang Lin ne daigna même pas regarder l'énergie de l'épée et fixa calmement Chen Long. Il était désormais certain que les disciples de la Secte de l'Épée Da Lou étaient piégés. S'ils n'avaient pas été retenus ici depuis longtemps, auraient-ils été aussi impatients?
 
@@ -60,7 +60,7 @@ Un rugissement retentit et le regard de Wang Lin devint glacial. Certains sceaux
 
 Les disciples de la Secte de l'Épée Da Lou se levèrent, prêts à attaquer. Cependant, à cet instant, Chen Long ordonna froidement: « Tous, reculez! »
 
-Tout en parlant, le doigt de Chen Long prit la forme d'une épée. Cette lame perça l'énergie de massacre comme un éclair. Son doigt contenait un sortilège mystérieux qui, après avoir pénétré l'énergie, projeta Wu Ma hors de l'encerclement.
+Tout en parlant, le doigt de Chen Long prit la forme d'une épée. Cette lame perça l'énergie de massacre comme un éclair. Son doigt contenait un sortilège mystérieux qui, après avoir pénétré l'énergie, lui permit de donner un coup de pied à Wu Ma et de le projeter hors de l'encerclement.
 
 Il se retourna, ignorant totalement l'énergie de massacre qui l'entourait, et sourit à Wang Lin: « Camarade cultivateur Wang, mon frère cadet a été imprudent. Je vous prie d'excuser ce spectacle. »
 

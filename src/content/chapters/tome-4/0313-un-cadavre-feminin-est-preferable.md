@@ -40,9 +40,9 @@ Wang Lin déploya son sens divin et ne put détecter le fond de cette fosse. Apr
 
 Peu après l'entrée des trois dans la fosse, l'homme d'âge moyen à la gourde apparut près du trou. Il prit une gorgée, fit un geste de la main et la pagode réapparut. Le corps de la femme en blanc vola hors de la structure et fut saisi par lui.
 
-Il regarda le cadavre, secoua la tête et marmonna pour lui-même: « Tinge Er, ces juniors semblent être venus pour rien. J'ai déjà utilisé ce cercueil de jade pour fabriquer la pagode. Malheureusement, ce cercueil a été presque entièrement vidé par toi en seulement quelques milliers d'années. Tinge Er, sois rassurée; j'irai te chercher davantage de jade céleste. La troisième couche devrait en contenir davantage. »
+Il regarda le cadavre, secoua la tête et marmonna pour lui-même: « Ting Er, ces juniors semblent être venus pour rien. J'ai déjà utilisé ce cercueil de jade pour fabriquer la pagode. Malheureusement, ce cercueil a été presque entièrement vidé par toi en seulement quelques milliers d'années. Ting Er, sois rassurée; j'irai te chercher davantage de jade céleste. La troisième couche devrait en contenir davantage. »
 
-Sur ces mots, il donna un coup de pied au front de la femme, puis fronça soudainement les sourcils. Il agita la main et le cadavre de la femme ainsi que la pagode disparurent alors qu'il levait les yeux vers le ciel.
+Sur ces mots, il déposa un baiser sur le front de la femme, puis fronça soudainement les sourcils. Il agita la main et le cadavre de la femme ainsi que la pagode disparurent alors qu'il levait les yeux vers le ciel.
 
 Il vit les fissures célestes se rejoindre et une silhouette en sortir. Cette personne avait une chevelure d'un blanc immaculé et le visage profondément ridé. Elle jaillit des failles avec une vitesse incroyable.
 
@@ -64,13 +64,13 @@ Le vieillard affichait une expression ravie et songea: « Ainsi, je pourrai acco
 
 Le groupe de Wang Lin descendait la fosse à une vitesse fulgurante. Ils descendaient depuis un temps indéterminé sans voir la fin, mais une force de résistance qui les repoussait vers le haut devenait de plus en plus puissante.
 
-« Nous y sommes presque. Une fois que nous serons descendus, nous atteindrons l'endroit indiqué sur le jade, mais il est scellé par des restrictions. Cependant, avec nous trois, nous devrions pouvoir l'ouvrir d'ici dix jours. » La voix de Chi Hu était empreinte de joie.
+« Nous y sommes presque. Une fois que nous serons descendus, nous atteindrons l'endroit indiqué sur le jade, mais il est scellé par des restrictions. Cependant, avec nous trois, nous devrions pouvoir l'ouvrir en y consacrant quelques jours. » La voix de Chi Hu était empreinte de joie.
 
 Plus les trois descendaient, plus la force de résistance s'intensifiait. Une fois qu'elle eut atteint un certain seuil, leur vitesse commença à ralentir.
 
 Après un long moment, la résistance devint encore plus forte. Wang Lin prit une profonde inspiration et enveloppa son corps d'énergie spirituelle pour contrer la pression.
 
-Il calcula mentalement qu'ils avaient déjà descendu des dizaines de milliers de mètres sans que le fond n'apparaisse. Lorsqu'il déployait son sens divin vers le bas, une force mystérieuse l'empêchait de voir au-delà de mille mètres.
+Il calcula mentalement qu'ils avaient déjà descendu plus de trente-trois kilomètres sans que le fond n'apparaisse. Lorsqu'il déployait son sens divin vers le bas, une force mystérieuse l'empêchait de voir au-delà de trois kilomètres.
 
 Wang Lin jeta un coup d'œil à Papillon Rouge. Le corps de la femme dégageait une lueur bleue et son visage restait impassible. Quant à Chi Hu, la marque de hache sur son front clignotait rapidement. À chaque éclat, la force environnante diminuait légèrement. C'était un phénomène très mystérieux.
 
@@ -80,7 +80,7 @@ Wang Lin sortit son drapeau restrictif. En s'appuyant sur le drapeau pour braver
 
 Au moment où ils émergèrent, une explosion de lumière aveugla Wang Lin. Il se protégea rapidement avec le drapeau restrictif pour bloquer l'éclat, puis observa les environs avec son sens divin. Son expression devint soudainement très étrange.
 
-L'endroit n'était pas vaste, ne mesurant qu'environ 3,3 kilomètres de large. Au centre de cet espace se trouvait effectivement une mare d'eau.
+L'endroit n'était pas vaste, ne mesurant qu'environ 330 mètres de large. Au centre de cet espace se trouvait effectivement une mare d'eau.
 
 Cependant...
 
@@ -90,9 +90,9 @@ Hormis l'absence totale de trésors, l'endroit était identique au lieu indiqué
 
 Chi Hu fixait la scène devant lui, stupéfait, l'esprit totalement vide. Il avait déployé tant d'efforts; même sa boussole avait été sacrifiée pour arriver ici, mais il n'aurait jamais imaginé que...
 
-Papillon Rouge ricana. Elle dit, avec une pointe de colère: « Chi Hu, est-ce là l'endroit dont tu parlais? C'est ici que j'ai gaspillé un pétale de fleur pour entrer? Si tu ne me donnes pas d'explication valable aujourd'hui, je ne te le pardonnerai pas! »
+Papillon Rouge ricana. Elle dit, avec une pointe de colère: « Chi Hu, est-ce là l'endroit dont tu parlais? C'est ici que j'ai gaspillé un stigmate de fleur pour entrer? Si tu ne me donnes pas d'explication valable aujourd'hui, je ne te le pardonnerai pas! »
 
-Wang Lin observa les environs avec une expression singulière et ne put s'empêcher de sourire amèrement. Il n'était pas aussi en colère que Papillon Rouge. Après tout, il n'avait rien perdu lors de ce voyage et avait même trouvé la Pierre Dorée Violette. En fin de compte, il était gagnant.
+Wang Lin observa les environs avec une expression singulière et ne put s'empêcher de sourire amèrement. Il n'était pas aussi en colère que Papillon Rouge. Après tout, il n'avait rien perdu lors de ce voyage et avait même trouvé la Pierre Pourpre Dorée. En fin de compte, il était gagnant.
 
 Pensant cela, il avança pour fouiller soigneusement la zone. Papillon Rouge, les yeux brûlants de rage, commença elle aussi à chercher, espérant débusquer un trésor.
 
@@ -100,7 +100,7 @@ Chi Hu, toujours hébété, marmonna: « Comment est-ce possible... impossible..
 
 Il secoua la tête avec amertume. Se tournant vers Wang Lin et Papillon Rouge, il joignit les mains et dit: « Vous deux, cette fois, j'ai été imprudent. Je ne m'attendais pas à ce que cela se termine ainsi... »
 
-Papillon Rouge était sur le point de perdre patience. Elle fixa Chi Hu et lui lança froidement: « Crois-tu qu'un simple aveu d'imprudence suffira à compenser mon pétale de fleur perdu? Chi Hu, je pense que tu savais déjà que cet endroit était ainsi et que tu as délibérément profité de ma puissance en chemin. Tu dois avoir un autre objectif. Si tu ne l'expliques pas clairement, ne me reproche pas de faire fi des relations entre nos clans. »
+Papillon Rouge était sur le point de perdre patience. Elle fixa Chi Hu et lui lança froidement: « Crois-tu qu'un simple aveu d'imprudence suffira à compenser mon stigmate perdu? Chi Hu, je pense que tu savais déjà que cet endroit était ainsi et que tu as délibérément profité de ma puissance en chemin. Tu dois avoir un autre objectif. Si tu ne l'expliques pas clairement, ne me reproche pas de faire fi des relations entre nos clans. »
 
 Wang Lin fouilla calmement partout sans rien trouver. Finalement, son regard se posa sur la mare d'eau. En y regardant de plus près, il constata qu'elle était très profonde et qu'il ne pouvait en voir le fond.
 
@@ -122,7 +122,7 @@ Papillon Rouge laissa échapper un léger renâcle. Elle se déplaça discrètem
 
 Une force puissante les enveloppa instantanément. Le visage de Chi Hu devint livide et il cracha une bouffée de sang avant d'être projeté en arrière par l'onde de choc. Quant à Papillon Rouge, elle laissa échapper un gémissement charmant tout en reculant brusquement, les yeux écarquillés par la surprise.
 
-Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suivre, recula rapidement dès l'apparition de l'inconnu. Bien que la pression l'affectât, il ne fut pas blessé; seul son visage devint rouge et il fut repoussé de plusieurs mètres.
+Wang Lin, qui était déjà sur ses gardes car il sentait une présence les suivre, recula rapidement dès l'apparition de l'inconnu. Bien que la pression l'affectât, il ne fut pas blessé; seul son visage devint rouge et il fut repoussé d'une dizaine de mètres.
 
 « Eh bien? » L'individu regarda Wang Lin et prit une longue gorgée de sa gourde.
 

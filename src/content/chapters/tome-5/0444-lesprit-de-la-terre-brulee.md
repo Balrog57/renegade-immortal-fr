@@ -46,7 +46,7 @@ Une énergie d'épée en forme de demi-lune se forma et chargea la flamme bleue 
 
 Boum!
 
-Un fracas assourdissant retentit lorsque le bouclier s'effondra. L'énergie d'épée se contracta légèrement en perçant la protection avant de frapper la flamme bleue. Une fissure aussi épaisse qu'un bras apparut sur la flamme, et des volutes de fumée noire s'en échappèrent.
+Un fracas assourdissant retentit lorsque le bouclier s'effondra. L'énergie d'épée se réduisit de plus de moitié en perçant la protection avant de frapper la flamme bleue. Une fissure aussi longue qu'un bras apparut sur la flamme, et des volutes de fumée noire s'en échappèrent.
 
 La flamme bleue tressaillit, provoquant l'accumulation d'une grande quantité de fumée noire qui vint sceller la brèche. À mesure que la fumée s'agglutinait, la flamme commença à se métamorphoser jusqu'à prendre une forme humaine.
 
@@ -54,13 +54,13 @@ Elle ressemblait à un enfant de huit ou neuf ans. Tout son corps dégageait de 
 
 « Ne... pars pas... joue avec moi... »
 
-Peu de temps s'était écoulé depuis que Wang Lin avait frappé pour que la flamme prenne cette forme enfantine. Wang Lin le dévisagea froidement. Il comprit d'un seul regard qu'il ne s'agissait pas d'une bête démoniaque, mais bien de l'esprit du feu qui générait cette chaleur.
+Peu de temps s'était écoulé depuis que Wang Lin avait frappé pour que la flamme prenne cette forme enfantine. Wang Lin le dévisagea froidement. Il comprit d'un seul regard qu'il ne s'agissait pas d'une bête démoniaque, mais bien de l'esprit du feu qui générait cette chaleur. Ce genre de créature est difficile à tuer : tant que cette terre brûlée ne se disperse pas, elle survivra éternellement.
 
 « Disparais! » lança froidement Wang Lin. Il passa à côté de l'enfant de flammes et s'apprêta à partir.
 
-« Ne pars pas... » L'enfant agita sa main droite et la terre devant Wang Lin se mit à gronder. Le sol se souleva soudainement, érigeant un mur de 1 000 pieds de haut pour lui barrer la route.
+« Ne pars pas... » L'enfant agita sa main droite et la terre devant Wang Lin se mit à gronder. Le sol se souleva soudainement, érigeant un mur de 330 mètres de haut pour lui barrer la route.
 
-Wang Lin fronça les sourcils. Son corps disparut brusquement et, lorsqu'il réapparut, il se trouvait à plusieurs dizaines de milliers de kilomètres de la terre brûlée.
+Wang Lin fronça les sourcils. Son corps disparut brusquement et, lorsqu'il réapparut, il se trouvait à 5 000 kilomètres de la terre brûlée.
 
 L'enfant flotta jusqu'à la lisière de la zone calcinée et observa Wang Lin. Cependant, il ne fit pas un pas au-delà; il était manifestement limité à la zone de la terre brûlée. Ses yeux noirs fixaient Wang Lin, dégageant une sensation sinistre. Soudain, il poussa un rugissement et bondit dans les airs, bras grands ouverts. Une immense quantité de fumée noire jaillit de son corps comme une nuée de dragons et s'engouffra dans la terre brûlée.
 

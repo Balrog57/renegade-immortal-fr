@@ -72,7 +72,7 @@ BANG, bang, BANG, bang, BANG, bang...
 
 À cet instant, tous les sons furent occultés par les battements de son cœur. Son rythme cardiaque s'accéléra et la sueur se mit à couler sans interruption.
 
-De son point de vue, affronter Wang Lin lui donnait l'impression de faire face à un ancien de sa propre lignée contre lequel il ne pouvait rien. Ce qui l'effrayait davantage était cette aura puissante, des dizaines de fois supérieure à la puissance céleste. Alors que son corps tremblait, il eut l'impression d'être sous les pieds d'un géant. Si ce géant rugissait, son corps et son âme originelle s'effondreraient totalement!
+De son point de vue, affronter Wang Lin lui donnait l'impression de faire face à un ancien de sa propre lignée contre lequel il ne pouvait rien. Ce qui l'effrayait davantage était cette aura puissante, sans commune mesure avec la majesté céleste. Alors que son corps tremblait, il eut l'impression d'être sous les pieds d'un géant. Si ce géant rugissait, son corps et son âme originelle s'effondreraient totalement!
 
 Après avoir recraché une bouchée de sang, Xu Ting fut envahi par la terreur. Il recula tout en fixant Wang Lin, l'esprit embrumé. Il ne comprenait pas comment cela avait pu arriver...
 
@@ -106,7 +106,7 @@ Lie Yunzi déclara: « Maintenant, tu peux le regarder! »
 
 « Puisque le Vice-Ciel de Tonnerre Xu Ting va m'accompagner pour tenter de saisir cette chance, alors Xu Ting devrait le regarder en premier. Après tout, c'est lui qui l'a contemplé le premier la dernière fois. » Wang Lin lança le parchemin vers Xu Ting.
 
-Bien que son esprit soit encore chancelant, Xu Ting le saisit par réflexe. Il ouvrit le parchemin et, soudain, un rugissement tonnerre en jaillit.
+Bien que son esprit soit encore chancelant, Xu Ting le saisit par réflexe. Il ouvrit le parchemin et, soudain, un rugissement de tonnerre en jaillit.
 
 Une intention de bataille colossale surgit du vide et s'abattit sur Xu Ting!
 

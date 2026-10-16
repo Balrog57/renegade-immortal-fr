@@ -26,7 +26,7 @@ Wang Lin fut surpris. Il s'interrompit et fixa le jeune homme.
 
 Cette leçon stupéfia Wang Lin, qui afficha un sourire amer.
 
-Voyant l'expression de Wang Lin, le ton du jeune homme s'adoucit. Le mépris dans ses yeux diminua et il déclara: « Ce n'est pas que je te dédaigne. Tu dois te souvenir que dans le monde de la culture, si tu veux que les autres te respectent, tu ne dois pas te sous-estimer toi-même. L'énergie spirituelle ici est très dense. Une fois tes affaires réglées, entre en culture isolée pendant une décennie, et peut-être qu'un jour, tu atteindras le stade de l'Âme Naissante. À ce moment-là, je pense que tu pourras assumer un certain pouvoir et des responsabilités au sein de ta famille, tout comme moi. »
+Voyant l'expression de Wang Lin, le ton du jeune homme s'adoucit. Le mépris dans ses yeux diminua et il déclara: « Ce n'est pas que je te dédaigne. Tu dois te souvenir que dans le monde de la culture, si tu veux que les autres te respectent, tu ne dois pas te sous-estimer toi-même. L'énergie spirituelle ici est très dense. Une fois tes affaires réglées, entre en culture isolée pendant plusieurs décennies, et peut-être qu'un jour, tu atteindras le stade de l'Âme Naissante. À ce moment-là, je pense que tu pourras assumer un certain pouvoir et des responsabilités au sein de ta famille, tout comme moi. »
 
 Wang Lin se frotta le nez. Depuis qu'il était devenu cultivateur, tous ceux qu'il avait rencontrés étaient rusés et égoïstes. Personne n'aurait pris la peine de lui adresser de tels mots. Et depuis qu'il était devenu puissant, en raison de ses nombreux meurtres, personne n'osait rien lui dire.
 
@@ -54,11 +54,11 @@ Le temps s'écoula lentement. Trois jours plus tard, Wang Lin ouvrit les yeux. L
 
 « Toujours pas assez de jades célestes. La culture au stade Ascendant n'a rien à voir avec celle de la Transformation de l'Âme. À l'époque de la Transformation de l'Âme, je pouvais encore en assumer le coût, mais maintenant, au stade Ascendant, la quantité d'énergie spirituelle céleste requise est colossale! »
 
-« Même avec les deux cents mille jades de la famille Sun, je ne pourrai pas atteindre le milieu du stade Ascendant. Quant au stade avancé, la quantité nécessaire sera inimaginable. Sans parler du sommet du stade Ascendant et du passage au stade Yin et Yang... » Les sourcils de Wang Lin se froncèrent profondément. C'était un mystère pour lui. Les jades célestes étaient déjà extrêmement rares, et les cultivateurs au stade de la Transformation de l'Âme les utilisaient quotidiennement. Au fil des millénaires, une quantité astronomique de jades avait dû être consommée.
+« Même avec les deux cents mille jades de la famille Sun, je ne pourrai pas atteindre le milieu du stade Ascendant. Quant au stade avancé, la quantité nécessaire sera inimaginable. Sans parler du sommet du stade Ascendant et du passage au stade Yin et Yang... » Les sourcils de Wang Lin se froncèrent profondément. C'était un mystère pour lui. Les jades célestes étaient déjà extrêmement rares, et les cultivateurs au stade de la Transformation de l'Âme et au-delà les utilisaient quotidiennement. Au fil des millénaires, une quantité astronomique de jades avait dû être consommée.
 
 Le Royaume Céleste avait disparu; d'où venaient donc tous ces jades? Wang Lin y avait déjà songé sans trouver de réponse.
 
-« De plus, ceci n'est que la première étape de la culture, et pourtant elle exige tant de jades. Combien en faudra-t-il pour un cultivateur du second niveau? Un être comme l'Omniscient aurait-il besoin d'une quantité de jades équivalente à celle de plusieurs cultivateurs Ascendants... » Wang Lin fronça encore davantage les sourcils.
+« De plus, ceci n'est que la première étape de la culture, et pourtant elle exige tant de jades. Combien en faudra-t-il pour un cultivateur du second niveau? Un être comme l'Omniscient aurait-il besoin d'une quantité de jades équivalente à celle d'innombrables cultivateurs Ascendants... » Wang Lin fronça encore davantage les sourcils.
 
 « Serait-il possible que... le second niveau ne nécessite pas de jades célestes? Ou existe-t-il un moyen spécial de les remplacer? » Une hypothèse audacieuse traversa son esprit.
 

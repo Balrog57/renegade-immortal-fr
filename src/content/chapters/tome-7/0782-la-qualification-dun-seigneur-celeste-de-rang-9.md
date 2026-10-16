@@ -18,11 +18,11 @@ Au-dessus de ces familles se trouvaient les quatre grandes familles détenant de
 
 De la même manière, deux autres familles surpassaient ces quatre grandes lignées. Bien qu'elles fussent restées très discrètes, elles incarnaient les véritables puissances d'Allheaven. Leurs héritages étaient encore plus anciens que ceux des quatre autres familles. Ces clans existaient dès l'Antiquité, avant même la chute du Royaume Céleste, et avaient survécu à ce cataclysme. Ils possédaient des héritages provenant de l'ancien monde de la culture, et six familles de ce type subsistaient dans le Système Stellaire d'Allheaven.
 
-La mystérieuse famille Ziang de la planète Dong Lin et la famille de Li Yuan faisaient partie de ces six. Cependant, au fil des millénaires, nombre de ces lignées antiques avaient décliné. La famille Li en était un exemple, tout comme trois autres; aujourd'hui, il n'en restait plus que deux!
+La mystérieuse famille Xiang de la planète Dong Lin et la famille de Li Yuan faisaient partie de ces six. Cependant, au fil des millénaires, nombre de ces lignées antiques avaient décliné. La famille Li en était un exemple, tout comme trois autres; aujourd'hui, il n'en restait plus que deux!
 
 Tout comme le Système de l'Alliance possédait une planète de culture de rang 9, le Système Stellaire d'Allheaven abritait une famille ayant survécu encore plus longtemps: une lignée existant depuis les temps primordiaux. Cette famille primordiale était la véritable puissance absolue d'Allheaven, et elle demeurait extrêmement mystérieuse.
 
-Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoir terrifiant. Cela signifiait que cette famille avait traversé l'évolution de la culture depuis l'aube des temps, survécu à l'effondrement du Royaume Céleste et assisté à la création du Temple Céleste du Tonnerre. Elle avait été le témoin de tous les bouleversements du Système Stellaire d'Allheaven. Il était fort probable que cette lignée primordiale détîchait le secret de l'ancien Royaume Céleste; leurs simples sorts suffisaient à dominer tout le système stellaire.
+Avoir subsisté des temps primordiaux jusqu'à nos jours témoignait d'un pouvoir terrifiant. Cela signifiait que cette famille avait traversé l'évolution de la culture depuis l'aube des temps, survécu à l'effondrement du Royaume Céleste et assisté à la création du Temple Céleste du Tonnerre. Elle avait été le témoin de tous les bouleversements du Système Stellaire d'Allheaven. Il était fort probable que cette lignée primordiale détenait le secret de l'ancien Royaume Céleste; leurs simples sorts suffisaient à dominer tout le système stellaire.
 
 À l'exception des planètes de rang 8 et 9 du Système de l'Alliance, Wang Lin connaissait déjà tous ces détails. Lors de son voyage, Li Yuan lui avait exposé l'histoire complète des familles cultivatrices. C'est pourquoi Wang Lin restait si calme face aux quatre grandes familles héritières du Royaume Céleste.
 
@@ -30,7 +30,7 @@ Les deux vieillards qui soutenaient le sceau fragmentaire au-dessus du pavillon 
 
 Wang Lin répondit avec calme: « Xu Mu! »
 
-Les yeux du vieil homme se plissèrent: « Bien que le Frère Xu n'ait pas encore atteint le stade de l'Observateur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon des Collections! »
+Les yeux du vieil homme se plissèrent: « Bien que le Frère Xu n'ait pas encore atteint le stade du Scruteur du Nirvana, nous sommes incapables de vous arrêter. Vous avez la qualification pour entrer dans le Pavillon des Collections! »
 
 À peine eut-il fini sa phrase que le vieil homme à ses côtés fixa Wang Lin et demanda soudainement: « Le Compagnon Cultivateur Xu a-t-il un lien avec la famille Xu de la planète Dong Lin? »
 
@@ -44,7 +44,7 @@ Le cultivateur privé de corps laissa échapper un soupir, l'esprit tourmenté. 
 
 Ce qui suivit fut simple: les trois hommes coopérèrent pour ouvrir le pavillon. Les quatre coins tremblèrent lentement tandis que les quatre cornes se rejoignirent progressivement. Un rayon de lumière douce jaillit soudainement, et une porte ovale de pure lumière apparut à la jonction des cornes.
 
-« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections des centaines de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. »
+« Compagnon Cultivateur Xu, ma famille Chen est entrée dans le Pavillon des Collections plus d'une centaine de fois. Bien que l'obtention d'un sort céleste dépende de la chance et de la perception de chacun, ce n'est pas totalement aléatoire. Plus vous resterez longtemps, plus le sort céleste que vous obtiendrez à la fin sera précieux. »
 
 Wang Lin hocha légèrement la tête. D'après les souvenirs du membre de la famille Yao, il savait que les quatre grandes familles n'avaient pas le pouvoir de tendre des pièges à l'intérieur même du pavillon. De plus, tout ce qui se déroulait était conforme aux souvenirs de Yao. Wang Lin n'hésita plus. Il retira ses trésors magiques, s'avança devant la porte, prit une profonde inspiration et franchit le seuil.
 

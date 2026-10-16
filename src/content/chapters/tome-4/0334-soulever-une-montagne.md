@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 334 - Lifting a Mountain
 slug: soulever-une-montagne
 ---
-Les quatre d'entre eux survolèrent lentement la partie extérieure de la Mer des Diables jusqu'à ce qu'ils atteignent la Secte du Mal Éradiqué, près de la ville de Nan Dou.
+Les quatre d'entre eux survolèrent lentement la partie extérieure de la Mer des Diables jusqu'à ce qu'ils atteignent la Secte de la Lutte contre le Mal, près de la ville de Nan Dou.
 
 Devant eux se dressait une montagne gigantesque. Le sommet avait été sculpté par quelqu'un pour représenter une tête de dragon. Vu d'en haut, on aurait dit un dragon colossal s'enroulant autour de la montagne.
 
@@ -14,7 +14,7 @@ Cependant, le dragon était aujourd'hui dans un état lamentable. Non seulement 
 
 Li Muwan contempla le dragon depuis la distance et resta plongée dans une profonde réflexion.
 
-Wang Lin soupira intérieurement. Lorsqu'il avait balayé les environs auparavant, il avait découvert que la Secte du Mal Éradiqué n'existait plus. Il n'y avait plus aucun cultivateur; l'endroit était désormais peuplé de bêtes démoniaques de bas rang.
+Wang Lin soupira intérieurement. Lorsqu'il avait balayé les environs auparavant, il avait découvert que la Secte de la Lutte contre le Mal n'existait plus. Il n'y avait plus aucun cultivateur; l'endroit était désormais peuplé de bêtes démoniaques de bas rang.
 
 Li Muwan murmura: « Wang Lin, te souviens-tu de l'époque où tu m'as emmenée jusqu'ici? »
 
@@ -28,9 +28,9 @@ Resté en retrait derrière Wang Lin et Li Muwan, Lu Fei soupira: « Il semble q
 
 Tie Yan répondit: « C'est peut-être ainsi que le Maître de Secte et l'Aînée Li se sont rencontrés. Frère Lu, il semble que votre culture se soit un peu améliorée. »
 
-Lu Fei sourit: « Je ne peux m'approcher de la pagode qu'à 500 kilomètres environ. Je suis encore très loin du compte. »
+Lu Fei sourit: « Je ne peux m'approcher de la pagode qu'à environ 330 mètres. Je suis encore très loin du compte. »
 
-Tie Yan resta silencieux. Lui n'avait progressé que de cinq 330 mètres. Il se jura, une fois de retour, de redoubler d'efforts.
+Tie Yan resta silencieux. Lui n'avait pu s'approcher que d'environ 165 mètres. Il se jura, une fois de retour, de redoubler d'efforts.
 
 Wang Lin volait à une vitesse supersonique tout en tenant Li Muwan. Les détonations soniques qu'il provoquait parcouraient de vastes distances, stupéfiant tous les cultivateurs qui les entendaient.
 
@@ -56,7 +56,7 @@ Cette montagne était identique à celle dans laquelle ils vivaient autrefois.
 
 L'émergence de cette montagne fit trembler le sol violemment. Dans un rayon de 10 000 kilomètres, tous ressentirent la secousse, alertant chaque cultivateur de la région. Certains prétendus puissants volèrent immédiatement vers l'épicentre du séisme.
 
-De plus en plus de cultivateurs arrivèrent progressivement, mais nul n'osait s'approcher. Ils observaient la scène à 5 000 kilomètres de distance, terrifiés.
+De plus en plus de cultivateurs arrivèrent progressivement, mais nul n'osait s'approcher. Ils observaient la scène à 500 kilomètres de distance, terrifiés.
 
 Wang Lin pointa la montagne et une grotte apparut soudainement en son centre. Après avoir manipulé l'espace, Wang Lin fit en sorte que la grotte soit exactement identique à celle d'autrefois.
 
@@ -72,11 +72,11 @@ Li Muwan rit: « Je t'ai attendu pendant trois ans à l'époque. Je ne m'attenda
 
 Wang Lin se frotta le nez en souriant intérieurement.
 
-Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin prit Li Muwan par la main et ils volèrent vers la ville de Devil Rebel.
+Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin prit Li Muwan par la main et ils volèrent vers la Cité des Rebelles Démoniaques.
 
 Ce voyage dans la Mer des Diables avait rendu Wang Lin heureux; l'aura mortelle de Li Muwan avait nettement diminué.
 
-En utilisant les anciens réseaux de transfert, ils apparurent devant la ville de Devil Rebel après huit jours de voyage.
+En utilisant les anciens réseaux de transfert, ils apparurent devant la Cité des Rebelles Démoniaques après huit jours de voyage.
 
 Après avoir payé quelques pierres spirituelles pour entrer, Lu Fei trouva rapidement une auberge pour le groupe.
 
@@ -84,11 +84,11 @@ Tie Yan ayant déjà voyagé dans la Mer des Diables lorsqu'il était jeune, il 
 
 « Maître de Secte, l'enchère aura lieu dans sept jours. Voici l'invitation. » Tie Yan remit respectueusement le précieux document à Wang Lin.
 
-Pendant ces sept jours, Wang Lin et Li Muwan explorèrent la ville de Devil Rebel. Li Muwan fut très heureuse durant cette période. En réalité, mis à part ses jours insouciants au sein de la Secte Lou He, c'était le moment où elle avait été la plus épanouie de sa vie.
+Pendant ces sept jours, Wang Lin et Li Muwan explorèrent la Cité des Rebelles Démoniaques. Li Muwan fut très heureuse durant cette période. En réalité, mis à part ses jours insouciants au sein de la Secte Lou He, c'était le moment où elle avait été la plus épanouie de sa vie.
 
 Au bout de sept jours, l'enchère décennale du Pavillon de Raffinage des Trésors commença.
 
-Dans la plus grande pagode à trois étages de la ville de Devil Rebel, d'innombrables cultivateurs étaient assis au premier niveau.
+Dans la plus grande pagode à trois étages de la Cité des Rebelles Démoniaques, d'innombrables cultivateurs étaient assis au premier niveau.
 
 À l'arrivée du groupe de Wang Lin, deux disciples de l'Établissement des Fondations du Pavillon acceptèrent l'invitation et les conduisirent vers la grande salle.
 
@@ -136,7 +136,7 @@ L'homme prit une profonde inspiration et entra rapidement.
 
 Après un long moment, il ressortit. Son expression était redevenue normale et il retourna en bas pour reprendre ses conversations. Tous tentèrent d'obtenir des informations sur Wang Lin, mais l'homme se contentait d'esquiver les questions.
 
-À ce même instant, à 10 000 kilomètres de la ville de Devil Rebel, dans une grotte souterraine, un vieil homme était assis. Alors qu'il était plongé dans sa culture, il ouvrit soudainement les yeux et pointa le vide. Une image se forma devant lui, révélant une jeune fille d'une grande beauté.
+À ce même instant, à 10 000 kilomètres de la Cité des Rebelles Démoniaques, dans une grotte souterraine, un vieil homme était assis. Alors qu'il était plongé dans sa culture, il ouvrit soudainement les yeux et pointa le vide. Une image se forma devant lui, révélant une jeune fille d'une grande beauté.
 
 Cette jeune fille possédait une grâce singulière et des yeux d'un charme irrésistible.
 
@@ -144,4 +144,4 @@ Elle adressa quelques paroles respectueuses avant de s'éclipser.
 
 « Un cultivateur de la Formation de l'Âme suspect? » Les yeux du vieil homme s'illuminèrent, puis il disparut brusquement.
 
-Cet homme était celui que Wang Lin avait rencontré lorsqu'il n'était qu'au stade de la Formation du Noyau, et également celui croisé lors de sa seconde visite dans les Étoiles Brisées du Chaos. C'était le cultivateur accompagné de la tortue.
+Cet homme était celui que Wang Lin avait rencontré lorsqu'il n'était qu'au stade de la Formation du Noyau, et également celui croisé lors de sa seconde visite dans les Étoiles Brisées du Chaos. C'était le cultivateur accompagné d'un taotie.

@@ -42,7 +42,7 @@ Le vieil homme Hu regarda Wang Lin et vit que son expression demeurait de marbre
 
 Hélas, elle ne percevait toujours aucun changement sur le visage de Wang Lin.
 
-Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit: « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la culture n'est pas encore stabilisée. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
+Wang Lin esquissa un sourire ténu. Il regarda le vieil homme Hu et dit: « Ridicule. Le domaine d'un cultivateur de la Formation de l'Âme est une chose qu'il doit comprendre par lui-même. Cet Arbre de Réincarnation pourrait avoir un effet sur des cultivateurs au sommet du stade avancé de l'Âme Naissante ou au début de la Formation de l'Âme, dont la culture n'est pas encore stabilisée, mais son effet est presque nul pour les cultivateurs de la Formation de l'Âme au stade intermédiaire ou plus avancé. Je présume que le vieil homme Hu a d'autres objectifs pour ce voyage. »
 
 La femme au voile blanc fut stupéfaite. Elle regarda l'homme en manteau noir et vit qu'il fronçait également les sourcils.
 

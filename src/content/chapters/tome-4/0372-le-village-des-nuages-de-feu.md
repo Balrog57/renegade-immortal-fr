@@ -24,7 +24,7 @@ Wang Lin pensa avec amertume: « Peut-être que seules les sectes locales possè
 
 Cependant, comment pourrait-il intégrer une secte avec son état actuel?
 
-Il soupira et leva les yeux vers le ciel, une pointe de désespoir envahissant son cœur. Mais ce sentiment fut promptement écrasé par sa détermination. Il prit une profonde inspiration et murmura: « Xue Yue et le Clan des Démons Géants, je n'oublierai pas ce qui s'est passé. Un jour, je vous ferai payer cent fois ce que vous m'avez infligé! »
+Il soupira et leva les yeux vers le ciel, une pointe de désespoir envahissant son cœur. Mais ce sentiment fut promptement écrasé par sa détermination. Il prit une profonde inspiration et murmura: « Xue Yue et le Clan des Démons Géants, je n'oublierai pas ce qui s'est passé. Un jour, je vous ferai payer dix, voire cent fois ce que vous m'avez infligé! »
 
 Le regard empreint de résolution, il se redressa et reprit sa marche.
 
@@ -44,7 +44,7 @@ Un homme colossal siégeait sur le cheval de tête. Il observa Wang Lin et hocha
 
 Le groupe de dix-huit cavaliers galopa alors dans la nuit.
 
-Ils s'arrêtèrent à un embranchement, à mille cinq cents kilomètres de là. Chacun d'eux mit rapidement un masque, se dispersa sur les côtés de la route et se dissimula. Leurs mouvements étaient empreints d'une grande habileté; il était évident qu'ils pratiquaient ce genre de forfait régulièrement.
+Ils s'arrêtèrent à un embranchement, à un kilomètre et demi de là. Chacun d'eux couvrit rapidement la gueule de sa monture d'une muselière de coton, se dispersa sur les côtés de la route et se dissimula. Leurs mouvements étaient empreints d'une grande habileté; il était évident qu'ils pratiquaient ce genre de forfait régulièrement.
 
 En un clin d'œil, il ne restait plus que l'homme balafré et Wang Lin. Ce dernier le maintenait fermement.
 
@@ -58,7 +58,7 @@ L'homme renifla, appliqua une pâte médicinale sur les blessures de Wang Lin, p
 
 Allongé là, une intention meurtrière bouillonnait en lui. Il n'avait jamais été traité ainsi de toute sa vie, mais son corps était si faible qu'il finit par perdre connaissance.
 
-Le temps passa lentement. Une heure plus tard, le bruit des chariots se fit entendre au loin, se rapprochant progressivement.
+Le temps passa lentement. Deux heures plus tard, le bruit des chariots se fit entendre au loin, se rapprochant progressivement.
 
 Soudain, les convois s'arrêtèrent et un homme bondit d'une monture. Il arriva rapidement auprès de Wang Lin et s'écria: « Chef, c'est un cadavre! »
 
@@ -74,7 +74,7 @@ Les convois reprirent leur marche, mais alors qu'ils passaient à l'endroit où 
 
 « C'est exact. C'est le poison spécial utilisé par les dix-huit Héros des Nuages de Feu! Héhé, ce poison affecte le sang et s'active par le feu. Aujourd'hui, aucun d'entre vous n'échappera à la mort! »
 
-Le massacre commença. En moins de cinq minutes, plus de la moitié de l'escorte fut massacrée.
+Le massacre commença. En moins d'un quart d'heure, plus de la moitié de l'escorte fut massacrée.
 
 Des cris successifs déchirèrent la nuit. Sous la lumière des torches, les dix-huit bandits paraissaient particulièrement démoniaques alors qu'ils achevaient les survivants.
 

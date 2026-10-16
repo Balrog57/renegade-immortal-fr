@@ -30,7 +30,7 @@ Après l'avoir sorti, l'homme lança à Wang Lin un regard féroce et hurla: « 
 
 Les yeux de Wang Lin se plissèrent. Sans dire un mot, il frappa son sac de rangement, et le Char de Guerre Exterminateur d'Âmes apparut. Une fois son héritage véritable activé, la faiblesse liée à sa lente mise en marche avait disparu.
 
-Le vieil homme cria: « Même toi, tu ignores ce que c'est! Laisse-moi te dire que c'est un objet que je portais avec moi dans le Royaume Céleste. Je m'en servais pour éclairer les cultivateurs des royaumes inférieurs! Ce vieux bonhomme prend en compte la difficulté que tu as à cultiver si loin, alors file maintenant! Si tu ne t'en vas pas, je vais vraiment attaquer! »
+Le vieil homme cria: « Même toi, tu ignores ce que c'est! Laisse-moi te dire que c'est un objet que je portais avec moi dans le Royaume Céleste. Je m'en servais pour éclairer les cultivateurs des royaumes inférieurs! Ce vieux bonhomme prend en compte la difficulté que tu as à cultiver, alors file maintenant! Si tu ne t'en vas pas, je vais vraiment attaquer! »
 
 Wang Lin regarda le vieil homme et dit lentement: « Tu n'as pas besoin de me répéter sans cesse de partir. J'ai déjà remarqué que bien que tu sois au stade intermédiaire de l'Ascendant, tu es comme ces gardiens célestes. Aucun d'entre vous ne possède d'énergie originelle dans son corps! »
 
@@ -92,7 +92,7 @@ Le cœur brûlant de rage, il maudissait Wang Lin. Soudain, un rayon de lumière
 
 Puis, d'un pas vigoureux, il libéra une explosion de feu. Lorsque les flammes s'éteignirent, il avait disparu.
 
-Le regard de Wang Lin devint encore plus rouge. Bien que les techniques du vieil homme fussent médiocres, il maîtrisait indéniablement l'art de la fuite. En seulement une demi-heure, cet homme avait déjà utilisé dix sorts d'évasion qui avaient laissé Wang Lin stupéfait.
+Le regard de Wang Lin devint encore plus rouge. Bien que les techniques du vieil homme fussent médiocres, il maîtrisait indéniablement l'art de la fuite. En seulement une heure, cet homme avait déjà utilisé dix sorts d'évasion qui avaient laissé Wang Lin stupéfait.
 
 C'était son onzième sort d'évasion, et il était totalement différent des dix précédents!
 
@@ -116,7 +116,7 @@ En s'enfuyant, l'homme remarqua la poursuite de Wang Lin et se mit à pleurer in
 
 Sentant que le Sens Divin de Wang Lin se rapprochait rapidement, il serra les dents et sortit un filet dont la lueur était verte.
 
-Le vieil homme marmonna pour lui-même: « Comparé au Pinceau de l'Âme Divine, ma maîtrise de ce Filet de Capture Céleste est encore plus médiocre, c'est pourquoi je ne l'ai jamais utilisé contre un ennemi. Je vous en prie, Filet de Capture Céleste, cette fois... cette fois, reconnaissez le bon ennemi. C'est peut-être le destin si je vous ai trouvé... n'est-ce pas?! Cette fois, ne me piégez pas! » Il était véritablement réticent à utiliser ce Filet de Capture Céleste, sauf en ultime recours. Pour lui, cet objet était tout simplement trop étrange.
+Le vieil homme marmonna pour lui-même: « Comparé au Pinceau de l'Âme Divine, ma maîtrise de ce Filet de Capture Céleste est encore plus médiocre, c'est pourquoi je ne l'ai jamais utilisé contre un ennemi. Je vous en prie, Filet de Capture Céleste, cette fois... cette fois, reconnaissez le bon ennemi. Je vous ai libérés autrefois, c'est peut-être le destin qui nous a réunis... n'est-ce pas?! Cette fois, ne me piégez pas! » Il était véritablement réticent à utiliser ce Filet de Capture Céleste, sauf en ultime recours. Pour lui, cet objet était tout simplement trop étrange.
 
 Après l'avoir obtenu, il l'avait testé seul pour découvrir ses pouvoirs. Contre toute attente, le filet l'avait piégé lui-même, et ce pendant trois jours.
 

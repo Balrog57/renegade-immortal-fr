@@ -64,7 +64,7 @@ Quant aux trésors, il en avait également consommé plusieurs. Malgré leur eff
 
 À cet instant, il était au bout du rouleau. Ce n'était pas qu'il n'avait pas envisagé de charger; il l'avait déjà tenté. Il avait alors utilisé plus de dix bêtes spirituelles comme substituts, mais juste au moment où il allait briser le siège, le plus grand tourbillon l'avait frappé. Non seulement cela l'avait empêché de s'échapper, mais cela l'avait aussi blessé.
 
-Bossu Meng pensa amèrement: « Les cieux veulent-ils ma mort? J'ai déjà défié les lois célestes par ma culture pour atteindre le stade intermédiaire de la Formation de l'Âme. Je pensais pouvoir utiliser ce niveau pour obtenir une pilule de Transformation de l'Âme et atteindre ce stade d'un seul coup, mais... » Il ne put s'empêcher de repenser à ce qui s'était passé il y a mille ans, lors de l'arrivée du dernier groupe. Tous étaient morts, sauf eux quatre.
+Bossu Meng pensa amèrement: « Les cieux veulent-ils ma mort? J'ai déjà défié les lois célestes par ma culture pour atteindre le stade intermédiaire de la Transformation de l'Âme. Je pensais pouvoir utiliser ce niveau pour obtenir une pilule de Formation de l'Âme et atteindre ce stade d'un seul coup, mais... » Il ne put s'empêcher de repenser à ce qui s'était passé il y a mille ans, lors de l'arrivée du dernier groupe. Tous étaient morts, sauf eux quatre.
 
 Parmi eux, beaucoup possédaient un niveau de culture supérieur au leur, et pourtant, tous avaient péri. Les quatre survivants n'avaient tenu que par une chance insolente.
 
@@ -72,7 +72,7 @@ Après mille ans de préparation, il avait réussi à passer du stade avancé de
 
 C'était aussi la raison pour laquelle il était traqué par le Clan des Démons Géants!
 
-Bossu Meng afficha une expression de dépit. Il serra les dents, son regard tombant sur le crapaud. Ce crapaud, Li Tian, l'accompagnait depuis des millénaires sans jamais l'abandonner. Il l'avait vu grandir, passant du rang de bête spirituelle de faible qualité à celui de haute qualité. Elle était déjà considérée comme une pseudo-bête désolée. Avec quelques pilules appropriées, elle pourrait véritablement devenir une bête désolée dans mille ans.
+Bossu Meng afficha une expression de dépit. Il serra les dents, son regard tombant sur le crapaud. Ce crapaud, Li Tian, l'accompagnait depuis des millénaires sans jamais l'abandonner. Il l'avait vu grandir, passant du rang de bête spirituelle de faible qualité à celui de haute qualité. Elle était déjà considérée comme une pseudo-bête désolée. Avec quelques pilules appropriées, elle pourrait véritablement devenir une bête désolée dans plusieurs milliers d'années.
 
 Mais maintenant, Bossu Meng n'avait plus d'autre choix. Il caressa le crapaud et murmura: « Si je pouvais me téléporter dans cet endroit maudit, je ne serais pas dans cette situation. Li Tian, cette fois, je compte sur toi! »
 
@@ -108,7 +108,7 @@ Le tourbillon cessa soudainement de tourner et les petites créatures à l'inté
 
 Le regard impitoyable de Bossu Meng ne quitta pas le tourbillon suivant vers lequel il bondissait.
 
-Mais peu après, des millions de sens divins fusionnèrent pour former une lance qui chargea comme pour déchirer le firmament. Cette lance laissa de multiples images rémanentes dans son sillage. Un instant elle était dans les airs, l'instant d'après elle s'abattait sur Bossu Meng en provoquant des détonations soniques. Même les restrictions de l'épreuve terrestre furent affectées, laissant échapper des rugissements tonitruants.
+Mais peu après, des centaines de millions de sens divins fusionnèrent pour former une lance qui chargea comme pour déchirer le firmament. Cette lance laissa de multiples images rémanentes dans son sillage. Un instant elle était dans les airs, l'instant d'après elle s'abattait sur Bossu Meng en provoquant des détonations soniques. Même les restrictions de l'épreuve terrestre furent affectées, laissant échapper des rugissements tonitruants.
 
 Le tourbillon où se trouvait Wang Lin étant loin derrière, cela ne l'affecta que peu. Il observa la silhouette inhumaine de Bossu Meng, portant une attention particulière au sac de rangement à sa taille.
 
@@ -124,7 +124,7 @@ C'est alors qu'un phénomène étrange se produisit. Presque chaque sens divin i
 
 Au moment où le chaudron verdoyant se brisa, le corps de Bossu Meng faiblit soudainement. Il cracha plusieurs bouffées de sang essentiel. Ce chaudron vert était son trésor de vie. Grâce à sa culture au stade avancé de la Formation de l'Âme, il avait pu s'en servir pour résister à l'attaque de plus d'un milliard de sens divins fusionnés, mais il finit par être scindé en deux.
 
-Bossu Meng n'eut pas le temps de déplorer cette perte. Ses yeux injectés de sang fixaient les sens divins verts qui couvraient le ciel. Tous ces sens explosèrent en se transformant en énergie spirituelle. Une fois leurs sens divins brisés, leurs corps moururent également.
+Bossu Meng n'eut pas le temps de déplorer cette perte. Ses yeux injectés de sang fixaient les sens divins verts qui couvraient le ciel. « Mon trésor de vie ne se brise pas sans un prix! Si je dois mourir, vous mourrez avec moi! Explosez! Explosez! Explosez!!! » Tous ces sens explosèrent en se transformant en énergie spirituelle. Une fois leurs sens divins brisés, leurs corps moururent également.
 
 Alors que les explosions se succédaient, de nombreux tourbillons cessèrent de tourner et les petites créatures tombèrent du ciel.
 
@@ -138,7 +138,7 @@ Simultanément, tous les tourbillons restants chargèrent Bossu Meng, en particu
 
 Cependant, à chaque collision, le vortex noir sur son front s'estompait un peu. Il se plaignit intérieurement: il savait que l'effet de sa hausse de culture touchait à sa fin. S'il ralentissait ne serait-ce qu'un instant, l'onde sonore du tourbillon roi l'atteindrait. Pensant cela, il accéléra encore davantage.
 
-Wang Lin remarqua que lorsque la créature libéra son onde sonore, une lumière jaillit de son front: un doigt doré y était émerge.
+Wang Lin remarqua que lorsque la créature libéra son onde sonore, une lumière jaillit de son front: un doigt doré y émergeait.
 
 Il n'eut pas le temps d'analyser la situation car Bossu Meng approchait à grands pas. Les yeux de Wang Lin s'illuminèrent; il ricana et frappa son sac de rangement. Le tendon de dragon jaillit soudainement, se condensa rapidement pour former des ramifications qui se rejoignirent au même point, créant un bâton épais.
 

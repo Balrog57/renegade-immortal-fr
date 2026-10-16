@@ -16,7 +16,7 @@ Il serra les dents et déclara avec détermination: « D'accord! » Après cela,
 
 Non seulement l'ancêtre de la famille Ran, mais Sun Xi également regarda l'homme d'âge mûr avec une lueur mystérieuse dans les yeux.
 
-L'ancêtre de la famille Ran dit froidement: « Frère Zaho, nous trois avons attaqué ensemble à l'époque; as-tu l'intention de partir seul?! »
+L'ancêtre de la famille Ran dit froidement: « Frère Zhao, nous trois avons attaqué ensemble à l'époque; as-tu l'intention de partir seul?! »
 
 L'homme d'âge mûr réfléchit un instant, puis esquissa un sourire amer. « J'accepte. » Après un moment, il sortit un sac de rangement et en retira quelques jades célestes avant de les lancer à Wang Lin. Il ajouta d'un ton amer: « Ma famille n'est pas si grande, nous ne possédons donc pas beaucoup de jades célestes. J'ai économisé avec peine ces jades dans ce sac. »
 
@@ -124,4 +124,4 @@ La plupart des trésors sont raffinés par les cultivateurs, mais certains se fo
 
 La pierre à feu était l'un de ces matériaux naturels. À l'origine de l'élément métal, sa robustesse lui conférait une capacité mystérieuse qui générait des étincelles lors d'une friction.
 
-Ces pierres n'étaient pas de simples outils pour allumer un feu comme ceux des mortels; elles déclenchaient un type de feu doré similaire au feu Yang utilisé par le intendant en chef du Pays des Démons Célestes. Elles pouvaient être utilisées comme de véritables trésors magiques plutôt que de simples matériaux, et leur puissance n'était pas dérisoire.
+Ces pierres n'étaient pas de simples outils pour allumer un feu comme ceux des mortels; elles déclenchaient un type de feu doré similaire au feu Yang utilisé par l'intendant en chef du Pays des Démons Célestes. Elles pouvaient être utilisées comme de véritables trésors magiques plutôt que de simples matériaux, et leur puissance n'était pas dérisoire.

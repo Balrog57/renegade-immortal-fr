@@ -72,7 +72,7 @@ Au-dessus d'eux, l'image circulaire du yin et du yang tournait lentement, et l'�
 
 Si un être possédant la culture de l'Ancêtre Sanguin passait par là, il en serait profondément troublé. C'était ce que les experts du deuxième niveau appelaient le Dao des Rêves!
 
-La légende racontait qu'aux temps anciens, un mortel nommé Peng Zu avait réussi à atteindre l'illumination par ses rêves. Il était devenu une entité céleste antique et avait consigné des dizaines de milliers de cœurs du Dao. Il pouvait voir à travers le soleil et la lune!
+La légende racontait qu'aux temps anciens, un mortel nommé Peng Zu avait réussi à atteindre l'illumination par ses rêves. Il avait condensé un trésor immortel antique et laissé un cœur du Dao de dix mille ans, capable de refléter le ciel, la terre, le soleil et la lune!
 
 Wang Lin était plongé dans l'incertitude alors qu'il cherchait la preuve de son propre Dao. Il était immergé dans un rêve; c'était comme s'il avait quitté son corps physique pour flotter lentement vers les hauteurs. Pourtant, ce n'était pas son âme originelle, car celle-ci était toujours présente.
 

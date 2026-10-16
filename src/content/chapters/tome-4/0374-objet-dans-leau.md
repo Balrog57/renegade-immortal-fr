@@ -36,7 +36,7 @@ Mais à cet instant précis, son sac de rangement émit une lumière jaune. Quel
 
 Le parchemin mystérieux que Wang Lin avait obtenu par accident des centaines d'années auparavant — celui qu'il avait étudié pendant longtemps et dont il ignorait encore l'usage jusqu'à ce jour — jaillit brusquement.
 
-Les yeux de Wang Lin devinrent graves. Dès qu'il sortit le parchemin, cela fit hésiter l'ancêtre du Clan de l'Immortel Déchu. Ce parchemin devait posséder une origine illustre.
+Les yeux de Wang Lin devinrent graves. Lors de sa première apparition, il avait ému le vieil ancêtre bossu du Clan de l'Immortel Déchu. Ce parchemin devait posséder une origine illustre.
 
 Il regarda alors le parchemin s'envoler et s'ouvrir lentement. Le parchemin était d'un noir absolu et des vagues de hurlements en émanaient.
 
@@ -92,7 +92,7 @@ En un clin d'œil, trois mois passèrent. Cela faisait plus de six mois que Wang
 
 À cette époque, le pays de Pilu était entré dans l'hiver. L'air glacial emplissait la montagne et glaçait les os.
 
-Les bandits du village n'avaient pas quitté la montagne depuis plus de six mois, mais les réserves de nourriture étaient suffisantes pour qu'ils survivent à l'hiver.
+Les bandits du village n'avaient pas quitté la montagne depuis près de six mois, mais les réserves de nourriture étaient suffisantes pour qu'ils survivent à l'hiver.
 
 Durant ces trois mois, Wang Lin était resté immobile, concentrant toute son attention sur sa culture afin d'accumuler de l'énergie spirituelle en lui. Il se préparait à tenter de briser le domaine et le sceau d'un seul coup.
 
@@ -104,9 +104,9 @@ Ce jour-là, Wang Lin ouvrit les yeux. Il frappa son sac de rangement, sortit ci
 
 Après un moment de réflexion, il toucha la marque de thé sur son front, le regard déterminé.
 
-Sans un mot, il ferma les yeux et commença à absorber frénétiquement l'énergie spirituelle des huit pierres. À mesure que l'énergie s'accumulait autour de lui, il émitta une lueur verte et un parfum rafraîchissant se propagea lentement.
+Sans un mot, il ferma les yeux et commença à absorber frénétiquement l'énergie spirituelle des huit pierres. À mesure que l'énergie s'accumulait autour de lui, il émit une lueur verte et un parfum rafraîchissant se propagea lentement.
 
-Alors que l'énergie spirituelle entoure son corps augmentait, il activa l'énergie de son 6ème niveau de Condensation de Qi pour guider l'énergie extérieure afin qu'elle entre en collision avec le sceau.
+Alors que l'énergie spirituelle qui entourait son corps augmentait, il activa l'énergie de son 6ème niveau de Condensation de Qi pour guider l'énergie extérieure afin qu'elle entre en collision avec le sceau.
 
 Wang Lin était tel une plaque métallique, tandis que l'énergie intérieure agissait comme un petit marteau et l'énergie extérieure comme un grand maillet. Les deux marteaux frappaient la plaque pour tenter de créer une brèche.
 
@@ -134,7 +134,7 @@ Le sol où il était assis se fissurait également à chaque assaut. Les crevass
 
 Une série de craquements résonna de l'intérieur du corps de Wang Lin. À ce stade, environ 10 % de la marque de thé sur son visage s'était fissurée et était tombée.
 
-Au moment de leur chute, elles se transformèrent en un gaz noir qui se rassembla devant le front de Wang Lin au lieu de se dissiper.
+Au moment de leur chute, elles se transformèrent en un gaz noir qui se rassembla au-dessus de la tête de Wang Lin au lieu de se dissiper.
 
 Le visage de Wang Lin était pâle et du sang suintait du coin de sa bouche, mais ses yeux brillaient d'éclat.
 

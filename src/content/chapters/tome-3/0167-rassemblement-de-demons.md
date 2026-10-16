@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 167 - Gathering of Devils
 slug: rassemblement-de-demons
 ---
-Une force mystérieuse maintenait ces roches brisées en place. Cette zone de mille pieds de large était ce qui donnait à cet endroit son nom: les « Étoiles Brisées du Chaos ».
+Une force mystérieuse maintenait ces roches brisées en place. Cette zone de cinquante kilomètres de large était ce qui donnait à cet endroit son nom: les « Étoiles Brisées du Chaos ».
 
 Cet endroit était également considéré comme une zone morte. Si un cultivateur au stade de l'Âme Naissante tentait de traverser le brouillard rouge par la force sans attendre le jour opportun, alors sur dix tentatives, quelques-unes pourraient réussir.
 
@@ -28,7 +28,7 @@ Ce jour-là, dans une vallée obscure aux abords des Étoiles Brisées du Chaos,
 
 Dès l'instant où Wang Lin apparut dans le réseau de transfert, la première chose qu'il vit fut cette zone circulaire où des roches flottaient en suspension. Des pierres de tailles diverses, reliées par des filaments d'éclairs violets, se déplaçaient selon un mouvement circulaire.
 
-De loin, cette étendue mesurait mille pieds de large et semblait infinie.
+De loin, cette étendue mesurait cinquante kilomètres de large et semblait infinie.
 
 C'était également la première fois que Wang Qingyue venait ici. Ses yeux brillèrent tandis qu'il contemplait les Étoiles Brisées du Chaos et demanda: « Est-ce donc cela, les Étoiles Brisées du Chaos? »
 
@@ -38,9 +38,9 @@ Les yeux de Wang Qingyue pétillèrent; il se lécha les lèvres et déclara: «
 
 Wang Lin réfléchit un instant avant de demander à Duanmu Ji: « L'endroit dont vous parliez se trouve-t-il au cœur de ces Étoiles Brisées du Chaos? »
 
-Duanmu Ji hocha la tête en fixant les débris célestes. Une expression d'inquiétude marqua son visage lorsqu'il reprit: « Cette zone de roches brisées est imprégnée d'une force mystérieuse. Dès que vous y pénétrez, cette force s'insinue dans votre corps. Ces fragments utiliseront un pouvoir extraordinaire pour engendrer un avatar identique à vous-même. Cet avatar possédera un niveau de culture supérieur au vôtre. Peu importe la méthode utilisée pour réprimer votre propre culture, elle sera inefficace. Une fois l'avatar apparu, vous devrez le vaincre pour progresser de 500 pieds. Après ces 500 pieds, deux autres avatars surgiront. Seul en les terrassant tous pourrez-vous traverser les Étoiles Brisées du Chaos. »
+Duanmu Ji hocha la tête en fixant les débris célestes. Une expression d'inquiétude marqua son visage lorsqu'il reprit: « Cette zone de roches brisées est imprégnée d'une force mystérieuse. Dès que vous y pénétrez, cette force s'insinue dans votre corps. Ces fragments utiliseront un pouvoir extraordinaire pour engendrer un avatar identique à vous-même. Cet avatar possédera un niveau de culture supérieur au vôtre. Peu importe la méthode utilisée pour réprimer votre propre culture, elle sera inefficace. Une fois l'avatar apparu, vous devrez le vaincre pour progresser de vingt-cinq kilomètres. Après ces vingt-cinq kilomètres, deux autres avatars surgiront. Seul en les terrassant tous pourrez-vous traverser les Étoiles Brisées du Chaos. »
 
-Wang Lin leva la tête vers le ciel. Duanmu Ji sembla lire dans ses pensées et ajouta: « Bien que vous puissiez éviter les roches en volant au-dessus ou en dessous, les avatars apparaîtront tout de même, et ils surgiront par dizaines. »
+Wang Lin leva la tête vers le ciel. Duanmu Ji sembla lire dans ses pensées et ajouta: « Bien que vous puissiez éviter les roches en volant au-dessus ou en dessous, les avatars apparaîtront tout de même, et il en surgira dix d'un coup. »
 
 Wang Lin fixa l'étendue et sombra dans une réflexion silencieuse.
 
@@ -100,7 +100,7 @@ Wang Lin scruta l'homme en rouge. Celui-ci dégageait une aura glaciale, une fro
 
 Une fois au sol, l'homme en rouge inspecta les environs d'un regard froid. Ses yeux se posèrent sur Wang Qingyue, au sein des Étoiles Brisées du Chaos, puis glissèrent sur Wang Lin avant de se tourner vers Duanmu Ji. Sa voix était aussi glaciale que la glace: « Quelle fête! »
 
-Duanmu Ji rit et répondit: « Seigneur Démon des Six Désirs, je ne vous ai pas vu depuis cent ans. Il semble que votre culture ait progressé! » Puis, ses lèvres bougèrent discrètement pour envoyer une transmission vocale à l'homme en rouge. Le Seigneur Démon des Six Désirs écouta, fut soudainement surpris et tourna son regard vers Wang Lin. Après l'avoir observé un instant, il dit: « Jeune frère, si tu parviens à nous aider à franchir le troisième royaume, alors moi, Xu Liqing, je te promets la sécurité! »
+Duanmu Ji rit et répondit: « Seigneur Démon des Six Désirs, je ne vous ai pas vu depuis mille ans. Il semble que votre culture ait progressé! » Puis, ses lèvres bougèrent discrètement pour envoyer une transmission vocale à l'homme en rouge. Le Seigneur Démon des Six Désirs écouta, fut soudainement surpris et tourna son regard vers Wang Lin. Après l'avoir observé un instant, il dit: « Jeune frère, si tu parviens à nous aider à franchir le troisième royaume, alors moi, Xu Liqing, je te promets la sécurité! »
 
 À peine eut-il fini de parler que l'expression du jeune homme derrière lui changea. Son regard envers Wang Lin devint progressivement hostile.
 

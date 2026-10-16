@@ -62,7 +62,7 @@ Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit: « Il
 
 Wang Lin saisit le jade, joignit les mains et dit: « Je vous remercie infiniment, Senior Ancien Démon. »
 
-Le jeune homme sourit et secoua la tête. Il dit: « C'est moi qui devrais te remercier. Tu devrais partir; je dois me consacrer à une culture en isolation pendant un certain temps. »
+Le jeune homme sourit et secoua la tête. Il dit: « C'est moi qui devrais te remercier. Tu devrais partir; je dois me consacrer à une culture en isolement pendant un certain temps. »
 
 Wang Lin se leva et fit un pas en avant. Il disparut complètement, quittant le Lac du Dragon.
 
@@ -86,7 +86,7 @@ Cependant, si je peux résister à cette tentation, je ne sais pas si l'Ancien D
 
 L'Abîme des Marées était une partie très mystérieuse du Pays des Esprits Démons. C'était la source de la phase de marée à l'extérieur. Au fil des millénaires, d'innombrables trésors magiques, pierres spirituelles et bêtes spirituelles avaient été aspirés dans le Pays des Esprits Démons pour finir ici.
 
-À cet instant, au plus profond de l'Abîme des Marées, s'étendait une vaste étendue de brume noire. Plusieurs individus étaient assis sur un terrain découvert d'un millier de pieds de large au cœur de cette obscurité.
+À cet instant, au plus profond de l'Abîme des Marées, s'étendait une vaste étendue de brume noire. Plusieurs individus étaient assis sur un terrain découvert de 330 mètres de large au cœur de cette obscurité.
 
 L'un d'eux était un homme d'âge moyen. Il était très beau, mais son visage trahissait une nature insidieuse. Par intermittence, il dégageait une aura d'ambition dévorante.
 
@@ -100,15 +100,15 @@ Soudain, la brume noire devant eux se mit à bouillonner. Une silhouette s'en ex
 
 L'homme d'âge moyen était Cupidité!
 
-Il laissa échapper un renflement froid: « C'est moi qui ai sous-estimé cet endroit. Toutes les bêtes ici ont été aspirées de l'immensité de l'espace, puis renforcées par la force mystérieuse des lieux. Il est naturel que des créatures puissantes apparaissent ici. »
+Il laissa échapper un reniflement froid: « C'est moi qui ai sous-estimé cet endroit. Toutes les bêtes ici ont été aspirées de l'immensité de l'espace, puis renforcées par la force mystérieuse des lieux. Il est naturel que des créatures puissantes apparaissent ici. »
 
-À ce moment, un disciple de la Secte de l'Épée Da Lou, resté silencieux jusqu'alors, prit la parole: « Senior Cupidité, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y ait longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
+À ce moment, un disciple de la Secte de l'Épée Da Lou, resté silencieux jusqu'alors, prit la parole: « Senior Cupidité, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y aie longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
 
 Cet homme occupait une position singulière; il semblait que tous les autres disciples gravitaient autour de lui.
 
 Cupidité le regarda. Il savait que cet homme occupait une place prépondérante dans le cœur de ces disciples. C'était leur frère aîné, Chen Long!
 
-Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa culture si parfaitement que Cupidité dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de culture le plus élevé parmi les Douze Épées, même Chou Nu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
+Ce dernier était le disciple bien-aimé du Saint de l'Épée Ling Tianhou et se montrait très rusé. Il dissimulait sa culture si parfaitement que Cupidité dut l'observer attentivement pour en déceler quelques indices. En apparence, il se situait au stade avancé de la Transformation de l'Âme, mais en réalité, il était au début de l'Ascendant. Bien qu'il ne possède pas le niveau de culture le plus élevé parmi les Douze Épées, même Chou Niu, qui avait atteint le milieu du stade Ascendant, lui témoignait un immense respect.
 
 Après avoir écouté Chen Long, Cupidité réfléchit un instant: « Ces bêtes sont effectivement très étranges; même moi, je ne les ai jamais vues. L'espace est infini et les cieux agissent de manière mystérieuse; il est donc impossible pour les cultivateurs de connaître toutes les formes de vie.
 
@@ -116,7 +116,7 @@ Ces bêtes ont probablement été aspirées par la phase de marée qui survient 
 
 Chen Long se tut et les autres plongèrent dans une réflexion silencieuse.
 
-Des rugissements stridents commencèrent à émaner de la brume noire. À sa lisière, une bête large de plusieurs dizaines de pieds, couverte de poils noirs et dotée d'une gueule acérée, déploya ses ailes pour ordonner l'encerclement de la zone.
+Des rugissements stridents commencèrent à émaner de la brume noire. À sa lisière, une bête large d'une dizaine de mètres, couverte de poils noirs et dotée d'une gueule acérée, déploya ses ailes pour ordonner l'encerclement de la zone.
 
 Ses yeux rouges dégageaient une lumière froide et intense, et sa gueule allongée aurait fait trembler le cœur de quiconque croiserait son regard.
 

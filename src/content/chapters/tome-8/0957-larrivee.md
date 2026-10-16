@@ -10,7 +10,7 @@ Non seulement elle, mais les trois autres magnifiques femmes levèrent égalemen
 
 Au-dessus de la place de la Secte du Destin Céleste, Bai Wei contemplait le ciel avec un sentiment complexe. Il lui était difficile d'imaginer ce que cette personne, autrefois, était devenue.
 
-À côté de Bai Wei se tenait un homme d'âge moyen au visage sombre. Vêtu d'une robe violette, son regard était aussi vif que la foudre. Il fixa le ciel et laissa échapper un froid renoncement dans son cœur.
+À côté de Bai Wei se tenait un homme d'âge moyen au visage sombre. Vêtu d'une robe violette, son regard était aussi vif que la foudre. Il fixa le ciel et laissa échapper un froid reniflement intérieur.
 
 « Wang Lin… Même si tu n'es pas mort durant toutes ces années, tu n'as sûrement pas beaucoup progressé. Je me demande seulement à quel point tu seras plus faible que moi, Zhao Xingsha! »
 
@@ -55,7 +55,7 @@ Tout cela sembla s'étirer, mais tout se produisit à l'instant même où Wang L
 
 Les yeux du Tout-Voyant brillèrent d'une lueur étrange en fixant la marque entre les sourcils de Wang Lin. Après un long moment, il sourit et dit avec bienveillance: « Il est bon que tu sois de retour. Wang Lin, ces anciens souhaitent te poser des questions, et tu devras y répondre avec sincérité. »
 
-Un homme d'âge moyen derrière Wang Lin le pointa du doigt et s'écria: « Petit morveux, Wang Lin, tu as vraiment osé revenir!! »
+Un homme d'âge moyen derrière Ling Tianhou le pointa du doigt et s'écria: « Petit morveux, Wang Lin, tu as vraiment osé revenir!! »
 « Autrefois, tu as tué des membres de mon Secte de l'Épée Da Lou dans la Terre des Esprits Démoniaques. Aujourd'hui, tu vas payer en sang! »
 
 Wang Lin esquissa un sourire, mais ses yeux étaient aussi froids que la glace. Il regarda froidement l'homme et dit calmement: « Ancien Ling Tianhou, ce disciple a-t-il les qualifications pour me parler de la sorte? »

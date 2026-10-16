@@ -18,23 +18,23 @@ Alors que le brouhaha s'intensifiait, l'All-Voyant redressa soudainement la têt
 
 « Il est là... »
 
-Quelques respirations après qu'л'All-Voyant eut remarqué quelque chose, l'homme en pourpre tourna également son regard vers l'horizon. Ayant déjà entendu tout ce que Ling Tianhou avait dit sur Wang Lin, il éprouvait une certaine admiration pour lui dans son cœur.
+Quelques respirations après que l'All-Voyant eut remarqué quelque chose, l'homme en pourpre tourna également son regard vers l'horizon. Ayant déjà entendu tout ce que Ling Tianhou avait dit sur Wang Lin, il éprouvait une certaine admiration pour lui dans son cœur.
 
 « Quelqu'un capable de tenir tête à l'All-Voyant aussi longtemps n'est certainement pas un faible! »
 
-Après l'homme en pourpre vinrent le tour de Ling Tianhou, du vieil homme sur la gourde, de la belle femme d'âge moyen et de l'homme en noir que personne n'osait approcher. Ils fixèrent tous l'horizon presque au même instant. Derrière eux, suivirent les autres vieux monstres et quelques cultivateurs.
+Après l'homme en pourpre vinrent le tour de Ling Tianhou, du vieil homme sur la gourde, de la belle femme d'âge moyen et de l'homme en noir que personne n'osait approcher à moins de 330 mètres. Ils fixèrent tous l'horizon presque au même instant. Derrière eux, suivirent les autres vieux monstres et quelques cultivateurs.
 
 Un étrange sifflement retentit au loin, captant progressivement l'attention de tous. Un instant plus tard, les cultivateurs poussèrent un cri de stupeur devant la scène ahurissante qui se déroulait sous leurs yeux.
 
-Un géant de plus de mille pieds de haut fonçait vers eux!
+Un géant d'environ 330 mètres de haut fonçait vers eux!
 
 « Une monture du Clan des Démons Géants! » s'exclama quelqu'un dans la foule, reconnaissant immédiatement la créature.
 
-« Ce n'est pas un membre ordinaire du Clan des Démons Géants. Regardez la marque entre ses sourcils, c'est un membre de la lignée royale! » De nombreux cultivateurs bien informés attendaient à l'extérieur et reconnurent immédiatement l'identité de Lei Jia!
+« Ce n'est pas un membre ordinaire du Clan des Démons Géants. Regardez la marque entre ses sourcils, c'est un membre de la lignée royale! » De nombreux cultivateurs bien informés attendaient à l'extérieur et reconnurent immédiatement l'identité de Lei Ji!
 
 « Il doit être un cultivateur extrêmement puissant pour posséder une telle monture. J'ignore seulement qui il est! »
 
-« Ce démon géant de mille pieds peut clairement déjà utiliser ses capacités de lignée. Cela rend la monture elle-même redoutable. Celui qui peut la chevaucher n'est pas un être ordinaire! »
+« Ce démon géant de 330 mètres peut clairement déjà utiliser ses capacités de lignée. Cela rend la monture elle-même redoutable. Celui qui peut la chevaucher n'est pas un être ordinaire! »
 
 « Pas forcément. Peut-être entretient-il de bonnes relations avec le Clan des Démons Géants... et sa propre culture n'est pas si élevée. »
 
@@ -44,17 +44,17 @@ On pouvait voir quatre personnes sur le dos du démon géant! Tous les quatre é
 
 « Les trois frères Chen! »
 
-« Les trois frères Chen sont tous au stade de l'Examinateur Nirvana et ils agissent toujours de concert. Leurs attaques simultanées donnent des maux de tête même à un cultivateur du stade avancé de l'Examinateur Nirvana. »
+« Les trois frères Chen sont tous au stade du Scruteur du Nirvana et ils agissent toujours de concert. Leurs attaques simultanées donnent des maux de tête même à un cultivateur du stade avancé du Scruteur du Nirvana. »
 
 « Pourquoi les trois sont-ils sur cette monture? Est-ce la leur? »
 
-« Il y a aussi ce cultivateur à la grosse tête à côté d'eux. On ne le connaît pas, mais il est lui aussi au stade de l'Examinateur Nirvana! »
+« Il y a aussi ce cultivateur à la grosse tête à côté d'eux. On ne le connaît pas, mais il est lui aussi au stade du Scruteur du Nirvana! »
 
-« Quatre cultivateurs de l'Examinateur Nirvana! N'importe lequel d'entre eux pourrait faire sensation parmi la majorité des cultivateurs ici. Il doit y avoir une raison secrète à leur présence commune! »
+« Quatre cultivateurs du Scruteur du Nirvana! N'importe lequel d'entre eux pourrait faire sensation parmi la majorité des cultivateurs ici. Il doit y avoir une raison secrète à leur présence commune! »
 
 Alors que de plus en plus de personnes identifiaient les cavaliers, les discussions s'éteignirent, remplacées par la stupeur. Même Ling Tianhou et sa compagnie furent surpris, leurs yeux brillant d'une lueur intense.
 
-À mesure que Lei Jia se rapprochait, ils aperçurent un Ancien vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa culture au stade initial de l'Épurateur Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
+À mesure que Lei Ji se rapprochait, ils aperçurent un Ancien vêtu de rouge derrière les trois frères Chen et le colosse à la grosse tête. Son corps était immense, telle une montagne de chair, une vision terrifiante. Sa culture au stade initial du Purificateur du Nirvana se propageait, ébranlant l'esprit de tous ceux dont le niveau était inférieur.
 
 « Maître Vent Creux! »
 
@@ -64,21 +64,21 @@ Le Maître Vent Creux était une figure légendaire sur la planète Tian Yun. D�
 
 À ses côtés se tenait une belle femme au regard empreint d'intelligence. Son aura était féroce, semblable à une paire de ciseaux capable de trancher tout sens divin qui tenterait de s'étendre vers eux!
 
-« Un autre Épurateur Nirvana au stade initial! » La foule fut à nouveau en émoi.
+« Un autre Purificateur du Nirvana au stade initial! » La foule fut à nouveau en émoi.
 
 Cependant, non loin derrière la femme d'argent, la silhouette insolente de Situ Nan et son sourire méprisant, qui semblait dédaigner le monde entier, choquèrent une fois de plus l'assistance!
 
-« Un troisième cultivateur de l'Épurateur Nirvana! »
+« Un troisième cultivateur du Purificateur du Nirvana! »
 
 « Je connais cet homme. Il est devenu célèbre récemment sur la planète Tian Yun. C'est le Seigneur du Palais Rose, Situ Nan! »
 
-La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa notoriété. Elle ne comprenait pas pourquoi un puissant Épurateur Nirvana puisse agir ainsi.
+La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa notoriété. Elle ne comprenait pas pourquoi un puissant Purificateur du Nirvana puisse agir ainsi.
 
-L'All-Voyant restait calme en observant les cavaliers; il était impossible de deviner ses pensées. Le choc provoqué par ces trois Épurateurs Nirvana était bien plus immense que celui causé par les quatre Examinateurs Nirvana!
+L'All-Voyant restait calme en observant les cavaliers; il était impossible de deviner ses pensées. Le choc provoqué par ces trois Purificateurs du Nirvana était bien plus immense que celui causé par les quatre Scruteurs du Nirvana!
 
-« Quatre Examinateurs Nirvana et trois vieux monstres de l'Épurateur Nirvana... Qui possède donc de telles connexions pour obtenir l'aide de ces sept individus? »
+« Quatre Scruteurs du Nirvana et trois vieux monstres du Purificateur du Nirvana... Qui possède donc de telles connexions pour obtenir l'aide de ces sept individus? »
 
-Lei Jia ralentit légèrement avant que la silhouette de Wang Lin n'apparaisse devant tous!
+Lei Ji ralentit légèrement avant que la silhouette de Wang Lin n'apparaisse devant tous!
 
 Il portait une robe d'un blanc immaculé, ses cheveux flottaient au vent et son regard était empreint d'indifférence. Ses yeux semblaient contenir le soleil et la lune tandis qu'il se tenait calmement au milieu de la foule. Tous les regards des cultivateurs étaient rivés sur lui.
 
@@ -86,7 +86,7 @@ Au moment où Wang Lin apparut, le Blaireau Marqué d'Étoiles sur l'épaule de 
 
 L'homme en pourpre sourit et hocha la tête avant de concentrer son esprit sur le blaireau. Il l'avait élevé depuis sa petite taille et l'appréciait beaucoup. La réaction étrange de l'animal avait attiré son attention. Cependant, à cet instant, le Blaireau Marqué d'Étoiles sembla reprendre un comportement normal, sans aucune anomalie. Cela laissa l'homme en pourpre perplexe.
 
-L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei Jia approchait. Il joignit les mains vers l'All-Voyant et ses compagnons avant de dire calmement: « Salutations, All-Voyant, Saint de l'Épée et chers aînés. J'ai eu quelques contretemps après avoir reçu l'invitation, ce qui explique mon retard. »
+L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei Ji approchait. Il joignit les mains vers l'All-Voyant et ses compagnons avant de dire calmement: « Salutations, All-Voyant, Saint de l'Épée et chers aînés. J'ai eu quelques contretemps après avoir reçu l'invitation, ce qui explique mon retard. »
 
 Ling Tianhou fixa Wang Lin, une trace de crainte dans les yeux. Il ne pourrait jamais oublier ce rayon de lumière. S'il n'avait pas fui rapidement en supposant que l'autre lueur avait absorbé suffisamment d'énergie originelle, il ne serait pas debout aujourd'hui.
 
@@ -100,7 +100,7 @@ Les yeux de Wang Lin se plissèrent alors qu'il saluait le vieil homme sur la go
 
 « Puisque tout le monde est là, ouvrons la Mer des Esprits Démoniaques de l'Est! » L'All-Voyant agita ses manches et une lumière aux sept couleurs se rassembla pour former un jeton. Ce dernier n'était que de la taille d'une paume, mais il dégageait un éclat multicolore. Alors que la vue de tous était brouillée par cette lueur éblouissante, le jeton s'envola vers le vortex.
 
-Ce n'était pas une ouverture ordinaire de la Mer des Esprits Démoniaques de l'Est; la puissante marée qui attire habituellement les trésés de toutes parts n'était pas présente. Au lieu de cela, au moment où le jeton toucha le vortex, un tourbillon inverse apparut!
+Ce n'était pas une ouverture ordinaire de la Mer des Esprits Démoniaques de l'Est; la puissante aspiration qui attire habituellement tout ce qui se trouve à proximité n'était pas présente. Au lieu de cela, au moment où le jeton toucha le vortex, un tourbillon inverse apparut!
 
 Ce vortex s'étendit rapidement, ouvrant un trou noir. L'aura de la Terre des Esprits Démoniaques, si familière à Wang Lin, en émana.
 

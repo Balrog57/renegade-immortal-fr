@@ -88,7 +88,7 @@ Accompagné de ce cri funèbre, tout ce que Wang Lin voyait se désintégra. Le 
 
 La seule chose subsistante était Yao Bingyun, assise par terre. Ses yeux étaient remplis de remords et de froideur…!
 
-« Quiconque pourra sauver ma petite sœur, moi, Yao Bingyun, deviendra votre servante pour les générations à venir. Même si cela signifie que je dois perdre toute conscience, tant que je peux sauver ma petite sœur, je… je suis prête!! Sans aucun regret!! » Sa voix lugubre résonna entre le ciel et la terre, révélant la détermination glaciale de Yao Bingyun, mais surtout son immense impuissance!
+« Quiconque pourra sauver ma petite sœur, moi, Yao Bingyun, deviendra votre servante pour les générations à venir. Même si cela signifie que je dois perdre toute conscience morale, tant que je peux sauver ma petite sœur, je… je suis prête!! Sans aucun regret!! » Sa voix lugubre résonna entre le ciel et la terre, révélant la détermination glaciale de Yao Bingyun, mais surtout son immense impuissance!
 
 Le Sens Divin de Wang Lin fut bouleversé. Il avait personnellement expérimenté le Dao de Yao Bingyun pour confirmer le sien; par extension, le Dao de cette jeune fille s'était exposé à lui.
 
@@ -110,7 +110,7 @@ Cette méthode de culture coupait court à toutes les émotions et à tout lien.
 
 « Utiliser un cœur rempli d'amour pour cultiver un Dao impitoyable… » Wang Lin soupira. Il avait parfaitement percé à jour le cœur du Dao de Yao Bingyun.
 
-« Son cœur du Dao est sa sœur, et son domaine est la cruauté, plutôt que la gloire ancestrale de la famille Yao… » La silhouette de Wang Lin apparut aux côtés de Yao Bingyun. Il la regarda et secoua la tête.
+« Son cœur du Dao est sa sœur, et son domaine est l'impitoyabilité, plutôt que la gloire ancestrale de la famille Yao… » La silhouette de Wang Lin apparut aux côtés de Yao Bingyun. Il la regarda et secoua la tête.
 
 « Peu importe, je pourrais briser son cœur du Dao, mais… » Wang Lin jeta un dernier regard vers elle avant de disparaître.
 

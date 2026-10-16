@@ -40,17 +40,17 @@ Wang Lin serra le poing et le serpent noir trembla avant de voler en éclats, re
 
 D'un geste sec, il écrasa la chaîne!
 
-La femme morte s'effondra, se retrouvant à moitié assise sur le sol. Wang Lin cracha une bouffée d'énergie originelle qui pénétra dans la boussole. Il s'assit ensuite sur le côté et ses mains commencèrent à former des sceaux. La boussole tourna lentement tandis que les restrictions s'insinuaient dans le corps de la femme.
+La femme morte s'effondra, se retrouvant à moitié assise sur le sol. Wang Lin cracha une bouffée de son âme originelle qui pénétra dans la boussole. Il s'assit ensuite sur le côté et ses mains commencèrent à former des sceaux. La boussole tourna lentement tandis que les restrictions s'insinuaient dans le corps de la femme.
 
 « L'Empereur Céleste Qing Lin possédait un sort appelé "Garde de Corps". Il nécessitait le corps d'ennemis vaincus et divers autres matériaux pour créer un cadavre maléfique qui ne ressent aucune douleur et peut protéger son maître. Bien que je ne puisse trouver ces matériaux disparus pour raffiner une marionnette cadavérique, je peux utiliser cette méthode pour contrôler ce Garde de Corps. »
 
 Wang Lin ferma les yeux, ses mains continuant de tracer des restrictions qui pénétraient le corps de la femme morte.
 
-Le temps passa lentement. Les jours et les nuits se succédèrent, et plus d'un demi-mois s'écoula. Wang Lin avait passé près de quatre mois sur la planète Esprit d'Eau. Durant cette période, hormis ses moments de méditation au sommet, il s'était consacré au raffinage de la femme morte.
+Le temps passa lentement. Les jours et les nuits se succédèrent, et plus d'un demi-mois s'écoula. Wang Lin avait passé trois mois sur la planète Esprit d'Eau. Durant cette période, hormis ses moments de méditation au sommet, il s'était consacré au raffinage de la femme morte.
 
 Le processus de raffinage était extrêmement complexe et exigeait toute sa concentration. En conséquence, Wang Lin ne sortit jamais, se contentant de poser une restriction de temps à autre.
 
-À cet instant, la boussole de cent pieds tournait toujours dans son palais, avec la femme assise au sommet. Tout son corps brillait d'un éclat argenté et un marquage scintillait entre ses sourcils.
+À cet instant, la boussole d'une trentaine de mètres tournait toujours dans son palais, avec la femme assise au sommet. Tout son corps brillait d'un éclat argenté et un marquage scintillait entre ses sourcils.
 
 Son expression était désormais paisible, le ressentiment passé ayant disparu. Si quelqu'un l'avait vue ainsi, il lui aurait été difficile d'imaginer sa véritable identité. Peu importe le regard porté sur elle, elle n'était qu'une magnifique cultivatrice.
 
@@ -60,7 +60,7 @@ Cependant, sa réputation n'était guère exemplaire.
 
 En trois mois, presque toutes les disciples féminines des petites et moyennes sectes avaient été harcelées par lui. Il n'utilisait pourtant jamais la force. Il se contentait d'utiliser sa culture de Purificateur du Nirvana comme prétexte pour leur enseigner des sorts, laissant entendre qu'il pouvait leur offrir des pilules pour augmenter leur niveau de culture. De ce fait, il avait rassemblé une multitude de cultivatrices et avait considérablement renforcé le Palais Rose.
 
-Il passait ses journées dans un plaisir sans fin et, lorsqu'il sortait, mille cultivatrices l'escortaient. Cela avait rendu ses mœurs perverties célèbres.
+Il passait ses journées dans un plaisir sans fin et, lorsqu'il sortait, plusieurs milliers de cultivatrices l'escortaient. Cela avait rendu ses mœurs perverties célèbres.
 
 Toutefois, cet homme était jugé digne de confiance car toutes les disciples entrant au Palais Rose recevaient des enseignements et des pilules. Si une secte portait plainte, Situ Nan se précipitait avec une dignité feinte pour discuter avec elle. Souvent, la secte finissait par lui céder, car après tout, Situ Nan était un cultivateur de niveau Purificateur du Nirvana.
 
@@ -68,9 +68,9 @@ Ainsi, de plus en plus de femmes rejoignaient le Palais Rose, et l'on pouvait di
 
 Il avait appris par des sources anonymes que les trois frères Chen possédaient deux disciples d'une beauté époustouflante. L'une possédait une racine spirituelle aquatique et l'autre était d'une froideur glaciale. Cela fit frémir le cœur de Situ Nan qui, après avoir mûrement réfléchi, entreprit de mener un grand groupe de cultivatrices vers la planète Esprit d'Eau, guidé par un subalterne.
 
-Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un lit de plusieurs dizaines de pieds de large. Situ Nan était allongé sur le plus luxueux, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
+Ce groupe imposant était presque exclusivement composé de femmes vêtues de rose. Au milieu d'elles se trouvait un lit d'une centaine de mètres de long. Situ Nan était allongé sur le plus luxueux, entouré de nombreuses cultivatrices, l'air extrêmement satisfait.
 
-Près de cent femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
+Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
 
 Un homme d'âge moyen, vêtu de bleu, se tenait devant Situ Nan. Beau mais au regard malveillant, il flattait son maître: « Senior Situ, je vous garantis que ces deux cultivatrices sont de qualité supérieure. Zhao Xue est une beauté sans égale, et celle nommée Ling Er possède une racine spirituelle aquatique, ce qui fera d'elle un excellent réceptacle de culture! »
 

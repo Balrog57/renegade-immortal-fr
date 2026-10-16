@@ -8,7 +8,7 @@ slug: un-corps-de-tresors
 ---
 Wang Lin volait à basse altitude près du fond de la mer, un drapeau à la main. C'était un drapeau d'âmes contenant plus de cent âmes scellées, dont celle de Sang Muya. Ce drapeau appartenait autrefois à Sang Muya; il ne s'attendait pas à ce qu'il devienne sa propre tombe.
 
-Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon d'un million de kilomètres était considéré comme la périphérie extérieure de la Mer des Démons. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte de l'Éradication du Mal en faisait partie.
+Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon d'un million de kilomètres était considéré comme la périphérie extérieure de la Mer des Démons. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte de la Lutte contre le Mal en faisait partie.
 
 Le cultivateur au niveau le plus élevé de la secte était son chef, Liu Sen, l'ancêtre de Sang Muya. Il se situait au sommet du stade intermédiaire de la Formation du Noyau et jouissait d'une certaine renommée dans la région.
 
@@ -34,7 +34,7 @@ Le brouillard y était très ténu et n'affectait pas la visibilité. Cependant,
 
 Wang Lin forma immédiatement un sceau et commença à incanter; des éclats de lumière se rassemblèrent devant lui pour former une sphère de lumière blanche. Aussitôt apparue, elle commença à changer de couleur jusqu'à ce qu'elle se stabilise dans une teinte bleue.
 
-Les yeux de Wang Lin s'illuminèrent. C'était la technique permettant de déterminer le type d'énergie Yin de la zone. Selon la couleur de la sphère, il saurait de laquelle des quatre énergies Yin il s'agissait: violet, bleu, argent ou rouge, représentant respectivement le Yin céleste, terrestre, mystérieux et de la mort.
+Les yeux de Wang Lin s'illuminèrent. C'était la technique permettant de déterminer le type d'énergie Yin de la zone. Selon la couleur de la sphère, il saurait de laquelle des quatre énergies Yin il s'agissait: violet, bleu, argent ou rouge, représentant respectivement le Yin céleste, terrestre, mystérieux et jaune.
 
 Puisque la lumière était bleue, cet endroit contenait la très rare énergie Yin terrestre.
 
@@ -82,9 +82,9 @@ Le dragon s'arrêta au-dessus de la quatorzième vallée, semblant indifférent 
 
 Les ossements des autres vallées furent réduits en poussière et repoussés par les ondes de choc.
 
-Wang Lin sentit que trois pouces de terre étaient arrachés au sol. Il était extrêmement stupéfait: ce dragon était probablement plus puissant qu'un cultivateur de l'Âme Naissante.
+Wang Lin sentit que trois pieds de terre étaient arrachés au sol. Il était extrêmement stupéfait: ce dragon était probablement plus puissant qu'un cultivateur de l'Âme Naissante.
 
-Le rugissement dura une heure avant que le regard du dragon ne s'éteigne. Utilisant ses dernières forces, il se fracassa contre la glace bleue du sol et s'y enfonça.
+Le rugissement dura une demi-heure avant que le regard du dragon ne s'éteigne. Utilisant ses dernières forces, il se fracassa contre la glace bleue du sol et s'y enfonça.
 
 À cet instant, Wang Lin jaillit de terre et chargea vers le dragon sans la moindre hésitation. En un clin d'œil, il pénétra dans la quatorzième vallée. Flottant dans les airs, il saisit la queue du dragon qui sombrait et tira de toutes ses forces.
 
@@ -104,7 +104,7 @@ Ils n'en avaient jamais entendu parler, et encore moins vu l'acte; pourtant, cet
 
 Un corps complet qui ne pourrissait pas! À cet instant, la plupart des cultivateurs perdirent toute raison, leurs visages se muant en masques de cupidité.
 
-Wang Lin sentit d'innombrables regards peser sur lui. Il laissa échapper un renflement glacial, toucha le sol et utilisa sa technique d'évasion terrestre pour s'enfoncer sous terre avec le dragon tout entier.
+Wang Lin sentit d'innombrables regards peser sur lui. Il laissa échapper un reniflement glacial, toucha le sol et utilisa sa technique d'évasion tellurique pour s'enfoncer sous terre avec le dragon tout entier.
 
 Au moment où il sombrait, son Sens Divin du Royaume Ji jaillit. Tous les cultivateurs présents étaient en dessous du stade de la Formation du Noyau; ils périrent tous instantanément.
 

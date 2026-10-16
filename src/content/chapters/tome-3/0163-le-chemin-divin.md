@@ -16,11 +16,11 @@ Une sensation de fraîcheur rafraîchissante envahit son corps dès qu'il traver
 
 Wang Lin y plongea la main et la sensation de fraîcheur réapparut.
 
-Le vieil homme au visage rouge dit calmement: « Ceci est la porte du miroir d'eau créée par la méthode de raffinage de mon Sanctuaire du Dieu de la Guerre. Sans le jade pour l'ouvrir, il est impossible d'entrer, à moins d'avoir atteint le stade de Formation de l'Âme. »
+Le vieil homme au visage rouge dit calmement: « Ceci est la porte du miroir d'eau créée par la méthode de raffinage de mon Sanctuaire du Dieu de la Guerre. Sans le jade pour l'ouvrir, il est impossible d'entrer, à moins d'avoir atteint le stade de la Formation de l'Âme. »
 
 En entendant les mots « méthode de raffinage », une émotion remua dans le cœur de Wang Lin avant qu'il ne suive l'homme au visage rouge.
 
-L'espace à l'intérieur de ce temple de pierre était vaste. Il comprenait une salle principale au centre et des centaines de chambres de pierre sur les côtés. Chaque chambre était séparée par un mur de pierre. Après une inspection attentive, Wang Lin comprit que chacun d'eux servait également de porte miroir d'eau.
+L'espace à l'intérieur de ce temple de pierre était vaste. Il comprenait une salle principale au centre et plus d'une centaine de chambres de pierre sur les côtés. Chaque chambre était séparée par un mur de pierre. Après une inspection attentive, Wang Lin comprit que chacun d'eux servait également de porte miroir d'eau.
 
 Voyant Wang Lin fixer ces portes, le vieil homme déclara: « Il y a au total 365 chambres ici. Chacun de ces murs est un miroir d'eau. La création d'une telle porte est le signe qu'un disciple n'est plus un novice en matière de raffinage de trésors. »
 

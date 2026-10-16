@@ -14,7 +14,7 @@ Cette expression était très étrange pour une telle bête. Si quelqu'un d'autr
 
 Wang Lin esquissa un léger sourire. Il sortit quelques pilules et les lança devant lui. La bête moustique afficha aussitôt une sorte de sourire, s'élança et dévora les pilules.
 
-Ainsi continua Wang Lin, lançant des pilules tandis que la bête moustique s'envolait de plus en plus vite. Bientôt, la fiole fut vide. Wang Lin frotta la tête de la bête et dit: « D'accord, petit morveux. Plus de pilules pour aujourd'hui. Si tu voles plus vite, je t'en donnerai davantage demain. »
+Ainsi continua Wang Lin, lançant des pilules tandis que la bête moustique s'envolait de plus en plus vite. Bientôt, la fiole fut à moitié vide. Wang Lin frotta la tête de la bête et dit: « D'accord, petit morveux. Plus de pilules pour aujourd'hui. Si tu voles plus vite, je t'en donnerai davantage demain. »
 
 La bête moustique poussa un rugissement et fendit le ciel comme l'éclair.
 
@@ -34,7 +34,7 @@ Sur ce, il poussa le vieil homme sur le côté et s'éloigna.
 
 L'homme soupira avec un air de regret, puis se précipita immédiatement vers le cultivateur, une poignée de jetons à la main: « Petit frère, j'ai des jetons pour les huit grandes sectes de Sang Mi, même des jetons de chef de secte. Ce sont des objets puissants pour te protéger! Si quelqu'un ose t'embêter, lance-en un et dis-lui de dégager. »
 
-Wang Lin n'avait rien vu de tout cela. Une fois son rire terminé, il sortit une sculpture en bois de son sac de rangement. Cette sculpture représentait le vieil homme et possédait un domaine temporel. De sa main gauche, il fit apparaître une sphère de lumière dorée. Puis, il se mordit l'extrémité du doigt pour en extraire une goutte de sang qu'il fusionna avec la lumière dorée avant de l'injecter dans la sculpture.
+Wang Lin n'avait rien vu de tout cela. Une fois son rire terminé, il sortit une sculpture en bois de son sac de rangement. Cette sculpture représentait le vieil homme et possédait un domaine temporel. De sa main gauche, il fit apparaître une sphère de lumière scintillante. Puis, il se mordit l'extrémité du doigt pour en extraire une goutte de sang qu'il fusionna avec cette lumière avant de l'injecter dans la sculpture.
 
 Soudain, la sculpture trembla. Une veine sanguine supplémentaire s'était mise à circuler à l'intérieur de l'objet. En regardant de plus près, on ne voyait pas une seule, mais plus de trente veines sanguines s'agiter à l'intérieur. Ces veines étaient toutes en mouvement et passaient souvent les unes devant les autres sans jamais entrer en contact.
 
@@ -50,7 +50,7 @@ Wang Lin réfléchit longuement. C'était le seul endroit où il pourrait acheve
 
 Il voulait tout mettre en œuvre pour se préparer à l'ouverture du royaume céleste de la Pluie. Il avait même prévu de visiter le champ de bataille étranger afin de rassembler suffisamment d'âmes errantes.
 
-Wang Lin prédisait que tant qu'il n'entrerait pas dans le premier essai, Ta Sen ne pourrait pas le détecter. Et même si Ta Sen y parvenait, avec son niveau de culture, il serait capable de s'éclipser avant d'être capturé.
+Wang Lin prédisait que tant qu'il n'entrerait pas dans le premier essai, Tuo Sen ne pourrait pas le détecter. Et même si Ta Sen y parvenait, avec son niveau de culture, il serait capable de s'éclipser avant d'être capturé.
 
 Fort de cette résolution, il enfila le chapeau de paille obtenu auprès du vieil homme négligé et fonça droit vers la terre de l'Ancien Dieu. Sous l'effet protecteur du chapeau, les cultivateurs les plus faibles n'osaient même pas l'entraver et le laissaient passer.
 
@@ -62,7 +62,7 @@ La vitesse de Wang Lin était fulgurante. Si une bête osait barrer sa route, la
 
 À peine sorti du réseau de transfert, il remarqua une bataille à proximité. Après l'avoir inspectée avec son sens divin, il n'y prêta plus attention et sortit sa carte de jade pour vérifier sa position avant de repartir.
 
-Les Anneaux Brisés du Chaos se trouvaient à 100 000 lieues à l'est.
+Les Anneaux Brisés du Chaos se trouvaient à 50 000 kilomètres à l'est.
 
 Alors qu'il volait, il fronça soudainement les sourcils en apercevant un nuage rouge fonçant vers lui. Les yeux de Wang Lin s'illuminèrent. Il savait que dans la Mer des Démons, la force était reine. S'il montrait la moindre faiblesse, on le dévorerait tout cru. En y pensant, une aura froide commença à émaner de son corps.
 
@@ -76,7 +76,7 @@ Le vieil homme dévisagea Wang Lin, stupéfait. Après avoir observé un instant
 
 À ses yeux, celui qui possédait un tel trésor devait être au moins au stade de la Formation de l'Âme. Il ne voulait pas déclencher un combat inutile contre un tel cultivateur.
 
-Wang Lin fronça les sourcils en voyant le vieil homme filer vers l'est. Après une courte réflexion, il prit lui aussi la direction de l'est. Pour les cultivateurs de la Formation de l'Âme ayant maîtrisé le Déplacement, technique bien plus puissante que la téléportation des cultivateurs de l'Âme Naissante qui consiste à fusionner avec la terre, 100 000 lieues n'étaient qu'un détail.
+Wang Lin fronça les sourcils en voyant le vieil homme filer vers l'est. Après une courte réflexion, il prit lui aussi la direction de l'est. Pour les cultivateurs de la Formation de l'Âme ayant maîtrisé le Déplacement, technique plusieurs fois plus puissante que la téléportation des cultivateurs de l'Âme Naissante qui consiste à fusionner avec la terre, 50 000 kilomètres n'étaient qu'un détail.
 
 Bientôt, Wang Lin aperçut les anneaux singuliers des Anneaux Brisés du Chaos. Ces derniers continuaient de bouger de manière mystérieuse, suivant une ancienne formation établie il y a fort longtemps. Cependant, Wang Lin sentit que les anneaux étaient différents d'autrefois. Une puissance céleste mystérieuse, étrangère à ce monde, permettait aux anneaux de produire des avatars bien plus puissants qu'auparavant.
 
@@ -84,9 +84,9 @@ Le vieil homme n'était plus sur le dos de la tortue-dragon; il contemplait dés
 
 Le regard de Wang Lin restait serein. Après avoir réfléchi un moment, il trouva un endroit pour s'asseoir. Bien qu'il ait fermé les yeux pour feindre la culture, son sens divin demeurait en alerte. Il voulait découvrir le véritable objectif du vieil homme. Si celui-ci comptait aussi entrer dans la terre de l'Ancien Dieu, Wang Lin n'y pénétrerait pas en premier, mais attendrait que le vieil homme soit entré.
 
-Le vieil homme regarda à nouveau Wang Lin et dit soudainement: « Puisque ce compagnon cultivateur est également présent, je suppose que vous êtes ici pour collecter du Feu d'Aurora. Que diriez-vous de pénétrer ensemble? »
+Le vieil homme regarda à nouveau Wang Lin et dit soudainement: « Puisque ce compagnon cultivateur est également présent, je suppose que vous êtes ici pour collecter du Feu d'Aurore. Que diriez-vous de pénétrer ensemble? »
 
-L'expression de Wang Lin ne changea pas, mais son cœur tressaillit en se demandant ce qu'était ce Feu d'Aurora. Rien dans les souvenirs de Tu Si ni dans son propre parcours de culture ne mentionnait une telle chose; il n'en avait jamais entendu parler.
+L'expression de Wang Lin ne changea pas, mais son cœur tressaillit en se demandant ce qu'était ce Feu d'Aurore. Rien dans les souvenirs de Tu Si ni dans son propre parcours de culture ne mentionnait une telle chose; il n'en avait jamais entendu parler.
 
 Il fit paraître sa voix plus rauque et rit: « Je ne suis pas intéressé par une collaboration. »
 

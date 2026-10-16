@@ -37,11 +37,11 @@ Si son corps originel choisissait de se cacher et d'attendre un niveau de cultur
 
 « La chance d'être découvert en tant que dieu ancien est extrêmement faible, mais même si je l'étais, et alors?! » Ses yeux devinrent plus froids et sa progression s'accéléra.
 
-Bien que Wang Lin ne puisse pas utiliser la plupart des sorts hérités de la mémoire du dieu ancien, il existait de nombreux sorts de survie qu'il pouvait désormais employer puisqu'il était presque un dieu ancien à quatre étoiles. Le plus efficace d'entre eux était le sort que les dieux anciens utilisaient pour protéger leur progéniture: la Formation de l'Âme.
+Bien que Wang Lin ne puisse pas utiliser la plupart des sorts hérités de la mémoire du dieu ancien, il existait de nombreux sorts de survie qu'il pouvait désormais employer puisqu'il était presque un dieu ancien à quatre étoiles. Le plus efficace d'entre eux était le sort que les dieux anciens utilisaient pour protéger leur progéniture: la Transformation en Esprit.
 
 Ce sort permettait de pénétrer dans une planète non pas pour absorber l'énergie spirituelle, mais pour s'en entourer et entrer dans un état de dormance. À moins de croiser un autre dieu ancien, personne d'autre ne pouvait le détecter. C'était un sort de dieu ancien, bien plus élevé que les techniques utilisées par les cultivateurs.
 
-« La seule chose qui m'inquiète est Ta Sen! Cependant, avec son corps de dieu ancien à huit étoiles, il sera reconnu par ces puissants cultivateurs dès qu'il apparaîtra. Même s'il sème le chaos dans le Système Stellaire de l'Alliance, qu'est-ce que cela a à voir avec moi?! Je, Wang Lin, ne suis pas un saint! » Son regard se glaça davantage.
+« La seule chose qui m'inquiète est Tuo Sen! Cependant, avec son corps de dieu ancien à huit étoiles, il sera reconnu par ces puissants cultivateurs dès qu'il apparaîtra. Même s'il sème le chaos dans le Système Stellaire de l'Alliance, qu'est-ce que cela a à voir avec moi?! Je, Wang Lin, ne suis pas un saint! » Son regard se glaça davantage.
 
 Il y avait de nombreux esclaves du sang sur la Planète du Sang. Ces individus étaient contrôlés par l'Ancêtre du Sang et portaient sa marque sur leurs âmes. Si l'Ancêtre du Sang vivait, ils vivaient; s'il mourait, ils mouraient. La plupart d'entre eux avaient été enlevés de force sur des planètes voisines. Il leur avait dérobé leur liberté pour les contraindre à travailler pour lui. Il collectait également des jeunes talentueux qu'il nourrissait de pilules de sang afin de les façonner en gardiens du sang chargés de protéger la Planète du Sang.
 
@@ -65,7 +65,7 @@ Les trois autres Anciens levèrent les yeux vers le ciel et regardèrent leur co
 
 Zi Xin se leva et cria d'un ton glacial: « Vous avez du cran! N'avez-vous pas peur que l'Ancêtre du Sang revienne... »
 
-Cependant, avant qu'elle n'ait pu finir, l'un des vieillards baissa la tête, la fixa froidement et lui lança: « Bruyante! Tu n'es qu'un jouet de l'Ancêtre du Sang. Crois-tu vraiment être la maîtresse?! Si nous, les cultivateurs, te témoignons du respect, c'est uniquement à cause de lui. Sans lui, quelle est ta valeur? Je suis sur cette planète depuis près de dix mille ans et j'ai vu passer une douzaine de filles comme toi! »
+Cependant, avant qu'elle n'ait pu finir, l'un des vieillards baissa la tête, la fixa froidement et lui lança: « Bruyante! Tu n'es qu'un jouet de l'Ancêtre du Sang. Crois-tu vraiment être la maîtresse?! Si nous, les cultivateurs, te témoignons du respect, c'est uniquement à cause de lui. Sans lui, quelle est ta valeur? Je suis sur cette planète depuis près de dix mille ans et j'ai vu passer plusieurs dizaines de filles comme toi! »
 
 Sur ces mots, l'homme disparut dans le ciel. Le corps de Zi Xin trembla tandis qu'elle sombrait dans ses pensées.
 
@@ -83,11 +83,11 @@ Un fleuve de pierres sifflait à travers l'espace vers la Planète du Sang. Un g
 
 Derrière eux, une multitude d'esclaves du sang s'étaient lancés dans l'espace, effrayés par le géant. Mais ils s'enfuyaient tous sans regarder derrière eux. Aucun ne resta pour défendre la Planète du Sang; au contraire, beaucoup affichaient des sourires moqueurs. Certains ne s'éloignèrent même pas tant que cela, restant à proximité de la planète pour assister personnellement à sa chute.
 
-Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esclaves. Il ne tenta pas de les arrêter et chargea la Planète du Sang avec son immense fleuve de pierres. Lorsqu'il fut tout près, il s'éleva au-dessus du courant rocheux. Chaque main saisit une pierre de 30 mètres de large qu'il projeta vers la planète.
+Grâce à sa sagesse, Wang Lin comprit immédiatement le comportement de ces esclaves. Il ne tenta pas de les arrêter et chargea la Planète du Sang avec son immense fleuve de pierres. Lorsqu'il fut tout près, il s'éleva au-dessus du courant rocheux. Chaque main saisit une pierre de 330 mètres de large qu'il projeta vers la planète.
 
 Un grondement fracassant retentit alors que ces deux blocs percutèrent la Planète du Sang comme deux météores. Au moment de l'impact, un écran de lumière sanguine apparut, faisant éclater les pierres. Le regard de Wang Lin se fit plus glacial encore. D'un geste de la main, il lança une pierre après l'autre, sans relâche.
 
-Finalement, Wang Lin ouvrit les bras et utilisa son énergie spirituelle pour attirer tout le fleuve de pierres vers la Planète du Sang. D'innombrables rochers s'abattirent sur elle. Bien que l'écran de lumière sanguine fût puissant, il était limité en l'absence du contrôle de l'Ancêtre du Sang. Face à la puissance de dieu ancien de Wang Lin, l'écran s'effondra après seulement une demi-heure d'incenseur.
+Finalement, Wang Lin ouvrit les bras et utilisa son énergie spirituelle pour attirer tout le fleuve de pierres vers la Planète du Sang. D'innombrables rochers s'abattirent sur elle. Bien que l'écran de lumière sanguine fût puissant, il était limité en l'absence du contrôle de l'Ancêtre du Sang. Face à la puissance de dieu ancien de Wang Lin, l'écran s'effondra après seulement une demi-queue d'encens.
 
 Les pierres tombèrent en masse sur la Planète du Sang. À chaque impact, la planète entière tremblait et une onde de choc visible se propageait dans toutes les directions. Le visage de Zi Xin était livide. Les secousses telluriques et la puissance destructrice ébranlaient son esprit. Elle voyait ces masses rocheuses descendre du ciel, faisant violemment trembler la terre à chaque chute. Elle ne pouvait imaginer quel pouvoir ou quel sortilège pouvait accomplir un tel carnage.
 
@@ -101,7 +101,7 @@ Le corps de Zi Xin trembla. Elle voyait derrière le géant les énormes rochers
 
 La lumière rouge du tunnel l'atteignit et son corps commença à se décomposer à vue d'œil. Une fumée verte s'échappa de ses pores et même son âme originelle s'effondra. Sous le regard de Wang Lin, le corps de la femme se changea en une brume verdâtre qui fut absorbée par le passage rouge sang.
 
-Wang Lin regarda froidement le pavillon. Il tendit la main et saisit l'édifice ainsi que les 30 mètres de terre qui l'entouraient. Tandis que les pierres continuaient de pleuvoir, transformant la Planète du Sang en un champ de ruines, Wang Lin tint le pavillon d'une main et, de l'autre, frappa le sol de son poing.
+Wang Lin regarda froidement le pavillon. Il tendit la main et saisit l'édifice ainsi que les 330 mètres de terre qui l'entouraient. Tandis que les pierres continuaient de pleuvoir, transformant la Planète du Sang en un champ de ruines, Wang Lin tint le pavillon d'une main et, de l'autre, frappa le sol de son poing.
 
 Parmi les grondements assourdissants, la Planète du Sang devint encore plus instable. Des ondes de choc se propagèrent et la poussière vola partout. Un instant plus tard, Wang Lin s'éleva et disparut au loin, laissant derrière lui une planète en lambeaux. Aucun esclave ou gardien ne tenta de l'arrêter. En réalité, la plupart d'entre eux joignirent les mains vers la direction où il avait disparu.
 

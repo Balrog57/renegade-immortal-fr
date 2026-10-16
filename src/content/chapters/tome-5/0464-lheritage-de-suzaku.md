@@ -22,7 +22,7 @@ Ces glyphes clignotaient et se déplaçaient comme la foudre au sein de son cerv
 
 Tandis que ces symboles scintillaient dans sa tête, diverses scènes résonnèrent dans son esprit.
 
-La vision montrait un homme empreint de majesté et de fierté, debout au sommet d'une boussole stellaire géante. Cette boussole était d'un noir absolu, parcourue par des éclairs violets. Partout où elle passait, elle laissait derrière elle de puissants grondements sourds.
+La vision montrait un homme empreint de majesté et de fierté, debout au sommet d'une boussole stellaire géante. Cette boussole était d'un noir violacé, parcourue par des éclairs violets. Partout où elle passait, elle laissait derrière elle de puissants grondements sourds.
 
 Devant cet homme flottait une pagode dans l'espace, sur laquelle étaient inscrits trois grands caractères clairs:
 
@@ -42,7 +42,7 @@ Alors que la lumière rouge scintillait, la vitesse de Wang Lin atteignit un niv
 
 Yunque Zi, qui le poursuivait, s'exclama avec stupeur. Son visage était déformé par l'incrédulité face à ce qu'il voyait.
 
-« Le Sceau de Suzaku! Comment cet objet insignifiant peut-il émettre l'aura du Sceau de Suzaku?! »
+« Le Sceau de Suzaku! Comment ce Ceng Niu peut-il émettre l'aura du Sceau de Suzaku?! »
 
 Dans la vision qui habitait l'esprit de Wang Lin, l'homme entra dans la pagode. Celle-ci semblait comporter de nombreux étages, mais l'homme s'arrêta dès le troisième.
 
@@ -58,7 +58,7 @@ Mais après un examen attentif, il s'avéra totalement différent. Cette sensati
 
 Son corps s'accéléra encore, la lumière rouge devenant désormais aveuglante.
 
-L'incrédulité dans les yeux de Yunque Zi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même: « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible? Sans avoir fusionné avec le Cœur Planétaire de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
+L'incrédulité dans les yeux de Yunque Zi se mua en une stupeur totale. Il fixa Wang Lin d'un regard hébété et murmura pour lui-même: « Ceci... ceci est l'héritage de Suzaku... Comment est-ce possible? Sans l'approbation de Zhuque Zi ni la fusion avec le Cœur Planétaire de Culture, comment ce gamin peut-il subir l'Héritage de Suzaku... »
 
 Quant au petit singe, il fixait Wang Lin, les yeux rougeoyants et l'expression sombre.
 
@@ -76,7 +76,7 @@ Une voix empreinte de majesté résonna soudainement dans l'esprit de Wang Lin:
 
 Cette voix fut comme un éclair frappant son cerveau. Les yeux de Wang Lin retrouvèrent leur clarté. À cet instant, il eut la conviction que s'il acceptait maintenant, il maîtriserait immédiatement le Sceau de Suzaku. Bien qu'il n'en fût qu'au début du stade de la Transformation de l'Âme, avec ce sceau, il pourrait combattre des cultivateurs de niveau Ascendant.
 
-Wang Lin répondit intérieurement: « Je ne suis pas prêt! »
+Wang Lin répondit intérieurement: « Je ne le veux pas! »
 
 Son but n'était pas de rester ici pour devenir le prochain Suzaku.
 
@@ -94,7 +94,7 @@ Pour extraire son fragment d'âme du Cristal de la Planète de Culture, il falla
 
 À cet instant, le corps de Wang Lin émergea de la mer. Yunque Zi le suivait de près, tandis que le petit singe possédé par Tuo Sen avait disparu sans laisser de trace.
 
-En surgissant des eaux, Wang Lin avait déjà repris le contrôle. Il savait désormais que Na Duo avait menti: ce cristal n'avait rien à voir avec le Sens Divin, et encore moins avec une capacité d'évolution.
+En surgissant des eaux, Wang Lin avait déjà repris le contrôle. Il savait désormais que Na Duo avait menti: cette chose n'avait aucun lien avec le Royaume Ji, et encore moins ne pouvait le faire évoluer.
 
 Sans aucun regret, il projeta le cristal en criant: « C'est le Cristal de la Planète de Culture! »
 
@@ -116,7 +116,7 @@ D'une voix pesante, Yunque dit: « Zhuque Zi! »
 
 Au moment où il prononça ces mots, le corps de Qian Feng se mit à trembler violemment et des filaments de lumière blanche s'échappèrent de ses orifices, hors de son contrôle. Cette lumière fut aussitôt absorbée par la poupée de bronze.
 
-Les yeux de Qian Feng étaient pétris de terreur. Il leva soudainement sa main droite, qui tenait un morceau de jade, et l'écrasa avec force. Une puissance mystérieuse jaillit du jade et le projeta en arrière. Les filaments de lumière blanche se brisèrent instantanément, et une petite partie d'entre eux retourna dans son corps.
+Les yeux de Qian Feng étaient pétris de terreur. Il leva soudainement sa main droite, qui tenait un morceau de jade, et l'écrasa avec force. Une puissance mystérieuse jaillit du jade et le projeta à plus de trente mètres en arrière. Les filaments de lumière blanche se brisèrent instantanément, et un peu moins de la moitié d'entre eux retourna dans son corps.
 
 La poupée de bronze, ayant absorbé une quantité massive de lumière blanche, fondit pour devenir un bassin de bronze liquide. Cependant, le métal semblait bouillir, dégageant des volutes de gaz rouge qui prirent la forme de Zhuque Zi.
 

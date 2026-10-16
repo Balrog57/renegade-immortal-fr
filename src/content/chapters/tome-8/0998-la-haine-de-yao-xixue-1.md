@@ -78,13 +78,13 @@ Hu Juan murmura doucement: « Peut-être que la petite sœur Qing Shuang est enc
 
 Au moment où le vortex apparut, le bassin du ravin et le couple de cultivateurs célestes n'étaient pas les seuls à réagir. Un changement colossal s'opérait également sous le palais du Pays du Démon du Vent.
 
-Il s'agissait de la terre sacrée du Pays du Démon du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, avec la capitale du pays en son centre.
+Il s'agissait de la terre sacrée du Pays du Démon du Vent. Une vaste étendue de grottes, semblable à un nid d'abeilles, s'étalait sous terre, à environ 3 300 mètres de profondeur, avec la capitale du pays en son centre.
 
 Chaque grotte était reliée par de nombreux tunnels qui finissaient tous par converger vers une immense caverne située sous le palais impérial. Ces cavités étaient remplies de squelettes d'un violet noirâtre dégageant une aura de mort.
 
 Dès que l'aura de mort émanait, elle était aspirée par les tunnels connectés aux grottes.
 
-Toute l'aura de mort provenant des innombrables cavernes du Pays du Démon du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 10 000 pieds de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
+Toute l'aura de mort provenant des innombrables cavernes du Pays du Démon du Vent convergeait vers la grotte sous le palais impérial. Cette dernière était immense, faisant au moins 3 300 mètres de large. Au centre se dressait un pilier colossal sur lequel une femme était assise.
 
 L'apparence de cette femme était terrifiante. Son visage était marqué par de nombreuses cicatrices hideuses; il était impossible d'en dénombrer le nombre d'un simple coup d'œil.
 

@@ -12,9 +12,9 @@ Derrière eux, tous les cultivateurs démoniaques firent de même.
 
 Mais au moment même où ils s'apprêtaient à franchir la fissure, celle-ci commença à se refermer. En un clin d'œil, la faille disparut sans laisser de trace. Hormis Wang Lin et Dou Mu, personne d'autre ne put entrer.
 
-Alors que la faille se repliait, ce qui apparut devant Wang Lin n'était pas la Mer Sanguine qu'il attendait, mais un espace baigné d'une lueur violette sombre.
+Alors que la faille se repliait, ce qui apparut devant Wang Lin n'était pas la Mer de Sang qu'il attendait, mais un espace baigné d'une lueur violette sombre.
 
-Cet espace n'était pas vaste, il ne faisait qu'une centaine de pieds de large dans chaque direction. Aux quatre coins flottaient des instruments aux formes étranges, d'où émanaient des ondes de lumière douce.
+Cet espace n'était pas vaste, il ne faisait qu'environ 330 mètres de large dans chaque direction. Aux quatre coins flottaient des instruments aux formes étranges, d'où émanaient des ondes de lumière douce.
 
 À côté de chaque instrument siégeait un cultivateur, chacun s'adonnant à sa culture auprès de son outil. Leurs silhouettes ressemblaient à celles de Dou Mu; ils conservaient leur forme humaine sans se transformer en démons. Wang Lin balaya la zone du regard et compta un total de neuf personnes, toutes en pleine méditation dans la pièce.
 
@@ -50,9 +50,9 @@ Un grand cultivateur au visage rouge dit en fronçant les sourcils: « Dou Mu, t
 
 « Une fois qu'il eut obtenu l'héritage du pouvoir de l'Ancien Dieu, il se mit soudain à rire de manière hystérique. Mais au même instant, au sein de la Mer de Qi, un géant apparut et engagea un combat titanesque contre lui. Puis, un phénomène encore plus étrange survint: cet homme connaissait toutes les techniques du géant. Finalement, le géant fut vaincu et se scinda en deux. Une moitié forma la Mer des Âmes Mortes, tandis que l'autre initia une technique divine d'une puissance inouïe. »
 
-« Cet homme ne maîtrisait manifestement pas cette technique. Je me souviens qu'il avait dit: "Il n'y a rien que tu saches que je ne sache pas." Pourtant, cette technique divine, il l'ignorait totalement. L'âme de l'Ancien Dieu se divisa en milliers de fragments qui pénétrèrent le corps de cet homme, formant des milliers de sceaux sur sa peau avant de l'emprisonner dans la Mer Sanguine. »
+« Cet homme ne maîtrisait manifestement pas cette technique. Je me souviens qu'il avait dit: "Il n'y a rien que tu saches que je ne sache pas." Pourtant, cette technique divine, il l'ignorait totalement. L'âme de l'Ancien Dieu se divisa en milliers de fragments qui pénétrèrent le corps de cet homme, formant des milliers de sceaux sur sa peau avant de l'emprisonner dans la Mer de Sang. »
 
-« Nous pensions que tout était fini et n'osions plus rester, nous avons donc tous fui précipitamment. Mais le cauchemar ne faisait que commencer. Un seul parmi nos onze compagnons réussit à quitter les lieux. Les autres furent saisis par des mains démoniaques surgissant de failles apparues dans la Mer Sanguine. »
+« Nous pensions que tout était fini et n'osions plus rester, nous avons donc tous fui précipitamment. Mais le cauchemar ne faisait que commencer. Un seul parmi nos onze compagnons réussit à quitter les lieux. Les autres furent saisis par des mains démoniaques surgissant de failles apparues dans la Mer de Sang. »
 
 « Ta Sen était terrifiant. Il trouva immédiatement un moyen de briser les milliers de sceaux qui le liaient. Chaque sceau était essentiellement un fragment de l'âme de l'Ancien Dieu Tu Si. Il s'en empara de force pour nous les insérer en nous. »
 
@@ -78,7 +78,7 @@ Si Wang Lin avait obtenu l'intégralité de l'héritage des connaissances, il sa
 
 Tandis que les paroles de Dou Mu résonnaient, Wang Lin prit une profonde inspiration. Une pensée traversa son esprit, mais il garda le silence.
 
-« Je n'ai pas besoin de te tromper. Si tu te précipites dans la Mer Sanguine, tu ne seras qu'un outil, tout comme le dévoreur d'âmes du troisième royaume, et une fois le sceau rompu, tu mourras. »
+« Je n'ai pas besoin de te tromper. Si tu te précipites dans la Mer de Sang, tu ne seras qu'un outil, tout comme le dévoreur d'âmes du troisième royaume, et une fois le sceau rompu, tu mourras. »
 
 Wang Lin réfléchit en silence un instant, puis eut un ricanement méprisant: « La mort? Je présume que par là, vous entendez la dissipation de mon âme. Si votre histoire est vraie, quand cet homme sera libéré, ne récupérera-t-il pas simplement les fragments d'âme? »
 
@@ -102,7 +102,7 @@ Wang Lin demanda calmement: « Que voulez-vous que je fasse? »
 
 Le vieillard ridé eut un tressaillement au cœur en entendant la question. Cet homme ne demandait pas quelle serait la récompense, mais s'enquérait d'abord de la tâche. Il semblait d'un calme olympien et difficile à ébranler.
 
-Le vieil homme reprit lentement: « Entre dans la Mer Sanguine. Une fois que Ta Sen aura levé le sceau, il s'engouffrera directement dans la Mer des Âmes Mortes. Dès qu'il l'aura ouverte, tu devras y pénétrer et utiliser une technique. C'est aussi simple que cela. Quant à la technique en question, il s'agit de celle utilisée par le géant issu de l'âme de l'Ancien Dieu pour sceller. Je l'ai étudiée durant d'innombrables années et mon taux de réussite est de 30 %. Si tu l'utilises, tes chances de succès passeront à 70 % car tu es un dévoreur d'âmes. Tous les fragments d'âme que tu absorberas ne feront qu'un avec ta volonté. »
+Le vieil homme reprit lentement: « Entre dans la Mer de Sang. Une fois que Ta Sen aura levé le sceau, il s'engouffrera directement dans la Mer des Âmes Mortes. Dès qu'il l'aura ouverte, tu devras y pénétrer et utiliser une technique. C'est aussi simple que cela. Quant à la technique en question, il s'agit de celle utilisée par le géant issu de l'âme de l'Ancien Dieu pour sceller. Je l'ai étudiée durant d'innombrables années et mon taux de réussite est de 30 %. Si tu l'utilises, tes chances de succès passeront à 70 % car tu es un dévoreur d'âmes. Tous les fragments d'âme que tu absorberas ne feront qu'un avec ta volonté. »
 
 Wang Lin ricana et dit d'un ton sombre: « Avec une culture de seulement Formation du Noyau, sceller Ta Sen n'est qu'une chimère. »
 

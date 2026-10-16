@@ -24,11 +24,11 @@ Dès que cette pensée lui traversa l'esprit, elle commença à prendre des prop
 
 En l'examinant attentivement, Wang Lin finit par trouver des indices. Son énergie spirituelle était désormais d'un bleu profond; cependant, ce n'était pas là sa véritable couleur originelle, mais celle de nombreux fils bleu foncé qui la composaient.
 
-Cette masse dense de fils était la cause du changement de son énergie spirituelle. Wang Lin agita la main droite et projeta son énergie. Celle-ci se rassembla en une sphère de glace au sein de laquelle se trouvaient d'innombrables fils bleu foncé.
+Cette masse dense de fils était la cause du changement de son énergie spirituelle. Wang Lin agita la main droite et projeta son énergie. Celle-ci se rassembla en une sphère de glace grosse comme un poing, au sein de laquelle se trouvaient d'innombrables fils bleu foncé.
 
 Après un moment de réflexion, Wang Lin tendit la main et saisit l'air avec une expression grave. La sphère de glace commença à rétrécir. À chaque contraction, de larges perles de sueur perlaient sur le front de Wang Lin.
 
-Lorsque la sphère ne représenta plus qu'un tiers de sa taille initiale, certains fils s'effondrèrent. Rapidement, d'autres cédèrent à leur tour, comme s'ils ne pouvaient supporter la pression.
+Lorsque la sphère eut rétréci d'environ un tiers, certains fils s'effondrèrent. Rapidement, d'autres cédèrent à leur tour, comme s'ils ne pouvaient supporter la pression.
 
 Wang Lin fronça les sourcils. Il injecta de nouvelles vagues d'énergie spirituelle pour remplacer les fils bleu foncé tout en poursuivant son affinage. Au fil du temps, il envoya plusieurs flux d'énergie, mais à chaque tentative, seule une infime partie des fils subsistait.
 
@@ -56,7 +56,7 @@ Après être resté silencieux un instant, il fit demi-tour. De retour dans sa g
 
 En contemplant le minuscule grain, Wang Lin soupira et le rangea. En créer un seul consommait déjà une quantité colossale d'énergie spirituelle. Il semblait qu'il soit devenu trop faible après en avoir fabriqué deux.
 
-Bien que le grain fût extrêmement puissant, sa production exigeait trop de ressources. Wang Lin eut un sourire amer et but un peu de liquide spirituel pour récupérer. À la tombée de la nuit, il avait recouvré 70 à 80 % de son énergie spirituelle.
+Bien que le grain fût extrêmement puissant, sa production exigeait trop de ressources. Wang Lin eut un sourire amer et but une gorgée de rosée glacée pour récupérer. À la tombée de la nuit, il en avait recouvré la majeure partie.
 
 Le regard brillant, il se remit sans un mot à l'affinage d'un autre grain.
 
@@ -64,7 +64,7 @@ Trois jours plus tard, trois grains de riz flottaient devant Wang Lin. Son visag
 
 Après ces trois jours d'observation, il constata que bien que la puissance du grain fût immense, elle restait insuffisante pour blesser des cultivateurs de l'Âme Naissante.
 
-S'il pouvait en lancer une douzaine, il aurait une chance, mais quoi qu'il fasse, Wang Lin ne parvenait pas à produire un quatrième grain. Après une longue réflexion, une idée lui vint: s'il parvenait à fusionner les trois grains en un seul, sa puissance augmenterait indéniablement, et comme il n'en posséderait plus qu'un, il pourrait alors en fabriquer davantage.
+S'il pouvait en lancer plusieurs dizaines, il aurait une chance, mais quoi qu'il fasse, Wang Lin ne parvenait pas à produire un quatrième grain. Après une longue réflexion, une idée lui vint: s'il parvenait à fusionner les trois grains en un seul, sa puissance augmenterait indéniablement, et comme il n'en posséderait plus qu'un, il pourrait alors en fabriquer davantage.
 
 Pensant ainsi, Wang Lin hésita un instant avant de dresser quelques formations défensives avec les rochers environnants. Puis, il sortit des talismans de protection qu'il avait dérobés, s'assit et plaça deux grains l'un contre l'autre.
 
@@ -96,4 +96,4 @@ Cette petite épée verte avait été raffinée avec son sang; ainsi, lorsque so
 
 Alors qu'il s'apprêtait à utiliser sa nouvelle énergie pour raffiner l'épée, il s'interrompit brusquement. Il remarqua immédiatement plus d'une centaine de lueurs d'épées fonçant vers lui. Elles semblaient toutes poursuivre une seule et même personne.
 
-Le visage de Wang Lin devint aussi froid que la glace tandis qu'il murmurait: « C'est cette personne... »
+Le visage de Wang Lin devint aussi froid que la glace tandis qu'il murmurait: « Serait-ce lui ? »

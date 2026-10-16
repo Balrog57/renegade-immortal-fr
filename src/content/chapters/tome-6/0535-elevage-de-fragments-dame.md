@@ -9,7 +9,7 @@ slug: elevage-de-fragments-dame
 
 Les yeux de Wang Lin étaient froids lorsqu'il pointa l'air du doigt. La silhouette du lion trembla, puis se transforma en un filet de gaz noir qui s'engouffra dans le drapeau spirituel de Treize avant de disparaître.
 
-« Cette bête est acceptable comme âme primaire pour votre drapeau spirituel à dix âmes. Cependant, souvenez-vous qu’il n’y a aucune ruse possible avec le sort d'affinage de l'âme. Vous avez réussi à la sceller, mais elle a été capable de vous repousser. Que cela vous serve de leçon! » Après avoir prononcé ces mots, Wang Lin se détourna et retourna dans les profondeurs de la vallée.
+« Cette bête est acceptable comme âme primaire pour votre drapeau d'âmes de dix jours. Cependant, souvenez-vous qu’il n’y a aucune ruse possible avec le sort d'affinage de l'âme. Vous avez réussi à la sceller, mais elle a été capable de vous repousser. Que cela vous serve de leçon! » Après avoir prononcé ces mots, Wang Lin se détourna et retourna dans les profondeurs de la vallée.
 
 Le visage de Treize était empreint de honte; il regarda le drapeau qu'il tenait en main et commença à réfléchir.
 
@@ -33,7 +33,7 @@ La longue file atteignit rapidement l'intérieur de la vallée. Aussitôt, toute
 
 La tête de chaque étranger fut enfoncée dans un seau pour les forcer à boire une partie de ce breuvage verdâtre. Après l'ingestion, des expressions de confusion totale apparurent sur leurs visages. Des villageois les emmenèrent alors pour leur chuchoter quelques mots à l'oreille.
 
-Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celle-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe d'effacement de la mémoire. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne murmure au sujet son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
+Lorsque le sens divin de Wang Lin observa la scène, il ne fut nullement surpris. Les souvenirs de Lou Yun lui avaient appris que l'ancêtre de celle-ci affirmait que le seul moyen pour ces petites tribus d'accroître leurs effectifs était de forcer les captifs à boire une soupe d'effacement de la mémoire. L'effet de ce breuvage consistait à faire oublier tout passé, avant qu'on ne lui murmure son nouveau nom et sa situation actuelle au sein de la tribu. À son réveil, l'individu devenait un nouveau membre du clan.
 
 Aux yeux de Wang Lin, cette soupe n'avait rien d'extraordinaire; elle était bien inférieure à un sort d'enchantement. Si une personne possédant une culture en buvait, cela n'aurait pratiquement aucun effet.
 
@@ -55,7 +55,7 @@ Une fois seul, les yeux de Wang Lin brillèrent alors qu'il murmurait pour lui-m
 
 En ce moment même, Wang Lin élevait des fragments d'âme! Tous les fragments d'âme raffinés par ceux qui pratiquaient le sort pourraient devenir les siens par une simple pensée. Un jour viendrait où le moment serait venu pour lui de collecter toutes les âmes, et le drapeau à un milliard d'âmes redeviendrait entier!
 
-La population du village avait soudainement décuplé. Le nombre d'hommes dépassait désormais la cinquantaine. Les femmes étaient réparties parmi les villageois, et quelques-unes des plus belles furent offertes à Wang Lin par Ouyang Hua, qui était avide de mérites. Cependant, il reçut un refus catégorique cette fois-ci.
+La population du village avait soudainement été multipliée par plusieurs. Le nombre d'hommes dépassait désormais la cinquantaine. Les femmes étaient réparties parmi les villageois, et quelques-unes des plus belles furent offertes à Wang Lin par Ouyang Hua, qui était avide de mérites. Cependant, il reçut un refus catégorique cette fois-ci.
 
 Tous ces nouveaux membres de la tribu commencèrent à pratiquer le sort d'affinage de l'âme. Une atmosphère de culture régnait désormais dans la vallée. Hormis ceux qui partaient chasser quotidiennement, tout le monde se concentrait sur sa culture. Même certaines femmes s'y mirent. Au début, Ouyang Hua s'y opposa, mais après avoir été réprimandé par Wang Lin via une transmission de message, il changea rapidement d'attitude et soutint ouvertement la culture féminine.
 
@@ -63,7 +63,7 @@ En conséquence, tous les habitants de la vallée, à l'exception des enfants, q
 
 Le temps passa silencieusement et, en un clin d'œil, six mois s'écoulèrent. Durant cette période, les villageois sortirent fréquemment, seuls ou en groupes, soit pour fabriquer leurs propres drapeaux spirituels, soit pour tuer des bêtes afin de raffiner leurs âmes. Outre Treize, quatre autres personnes atteignirent le troisième stade au cours de ces six mois et durent fabriquer leurs drapeaux.
 
-Tout le monde connaissait désormais la règle de Wang Lin: pour obtenir les chants des stades supérieurs, il fallait accumuler des mérites, et il n'existait que trois voies pour y parvenir! La première consistait à rapporter des cristaux démoniaques; la deuxième, à trouver des indices sur des étrangers; et la troisième, à fabriquer au moins dix drapeaux à dix âmes, dont au moins quatre devaient contenir une âme primaire.
+Tout le monde connaissait désormais la règle de Wang Lin: pour obtenir les chants des stades supérieurs, il fallait accumuler des mérites, et il n'existait que trois voies pour y parvenir! La première consistait à rapporter des cristaux démoniaques; la deuxième, à trouver des indices sur des étrangers; et la troisième, à fabriquer au moins dix drapeaux de dix jours remplis d'âmes, dont au moins quatre devaient contenir une âme primaire.
 
 Quiconque accomplissait l'une de ces tâches recevait le chant du quatrième stade. Quant au cinquième, les exigences étaient encore plus strictes. À ce jour, seul Ouyang Hua avait rempli les conditions pour le quatrième stade. Même Treize n'avait raffiné que sept drapeaux; la difficulté résidait dans les âmes primaires. Jusqu'à présent, il n'en possédait que deux, et la seconde était l'Ancien du village ennemi qu'il avait raffiné six mois auparavant!
 

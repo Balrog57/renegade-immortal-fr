@@ -58,7 +58,7 @@ Le corps de Li Yuan trembla et il cracha une nouvelle bouchée de sang. Il étai
 
 Li Yuan esquissa un sourire misérable. À ce moment, le vieil homme s'avança et lui décocha un coup de pied sans même le regarder. Un craquement sinistre retentit alors que Li Yuan recrachait du sang avant de s'effondrer au sol, le regard éteint. Ce coup avait dispersé toute l'énergie spirituelle céleste restante dans son corps, le laissant incapable de riposter.
 
-« Jeune Maître, cet homme n'est plus dangereux. Vous pouvez attaquer maintenant. » Le vieil homme recula, l'expression froide. En tant que cultivateur de l'Illusoire Yin, il ne ressentait aucune honte à attaquer un junior Ascendant.
+« Jeune Maître, cet homme n'est plus dangereux. Vous pouvez attaquer maintenant. » Le vieil homme recula, l'expression froide. En tant que cultivateur de l'Yin Illusoire, il ne ressentait aucune honte à attaquer un junior Ascendant.
 
 Le jeune homme avait tout juste réussi à saisir les trois épées grâce à la perte de connexion de Li Yuan avec celles-ci. Il les récupéra et les tendit directement à la femme à ses côtés.
 
@@ -76,7 +76,7 @@ En un instant, une intention meurtrière inimaginable émana de l'ondulation. Ce
 
 Le visage du jeune homme devint livide. Avant même d'avoir pu procéder à la fouille de l'âme de Li Yuan, il battit en retraite. Cependant, une silhouette sortit de l'ondulation. Dès son apparition, l'intention meurtrière atteignit son paroxysme.
 
-Des grondements tonnantes déchirèrent le ciel. Tandis que le jeune homme reculait, la silhouette surgie de l'ondulation fit un pas en avant et pointa du doigt la poitrine du garçon.
+Des grondements tonnants déchirèrent le ciel. Tandis que le jeune homme reculait, la silhouette surgie de l'ondulation fit un pas en avant et pointa du doigt la poitrine du garçon.
 
 Un bruit de craquements résonna et le jeune homme cracha une bouchée de sang. Tous les os de son corps furent brisés, le projetant violemment au loin.
 

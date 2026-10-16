@@ -98,7 +98,7 @@ Cependant, ces mots firent trembler l'esprit de Wang Lin!
 
 Les océans occupaient la majeure partie de la planète, et la seule secte présente était la Secte de l'Épée de Da Lou! Les tours apparurent une à une sous les yeux de Wang Lin.
 
-Les disciples de la Secte de l'Épée de Da Lou s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins dix mille! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
+Les disciples de la Secte de l'Épée de Da Lou s'élancèrent dans les airs. Ils emplissaient le ciel, et ils étaient au moins des dizaines de milliers! Cependant, ce que Wang Lin trouva étrange, c'est que la plupart d'entre eux étaient au stade Ascendant. Bien qu'il y eût quelques cultivateurs du Yin Illusoire, il n'y avait pas un seul cultivateur du Yang Corporel.
 
 Ling Tianhou esquissa un léger sourire: « Trouves-tu étrange que la grande Secte de l'Épée de Da Lou compte si peu de cultivateurs de la deuxième étape? »
 

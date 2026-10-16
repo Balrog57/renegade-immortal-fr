@@ -8,7 +8,7 @@ slug: jeu-dacteur
 ---
 À cet instant, Wang Lin était sous les feux de la rampe. Non seulement Shengong Hu, Zhan Konglie, Tang Yanfeng et les deux derniers cultivateurs du Yang Corporel le scrutaient, mais tous les cultivateurs des diverses familles avaient également les yeux rivés sur lui.
 
-Tout cela parce que Wang Lin était apparu à moins de 500 pieds de la porte céleste et, plus important encore, avait projeté Li Yuan vers l'extérieur. Li Yun était devenu le premier et unique cultivateur à réussir à quitter le Royaume Céleste du Tonnerre!
+Tout cela parce que Wang Lin était apparu à 165 mètres de la porte céleste et, plus important encore, avait projeté Li Yuan vers l'extérieur. Li Yuan était devenu le premier et unique cultivateur à réussir à quitter le Royaume Céleste du Tonnerre!
 
 En un instant, Wang Lin était devenu le centre de toutes les attentions.
 
@@ -70,7 +70,7 @@ Wang Lin changea immédiatement de direction pour battre en retraite. Simultané
 
 Le Coup Céleste apparut instantanément, et un instant durant, on eut l'impression que le vide avait disparu, ne laissant place qu'à l'énergie de l'épée. Derrière ce néant, l'espace sembla être forcé d'ouverture alors que l'homme aux cheveux blancs apparaissait, mais son expression changea une nouvelle fois.
 
-« C'est... la technique de l'épée du Royaume Céleste de la Pluie! » L'homme aux cheveux blancs fronça les sourcils. Sa main droite s'avança et le Coup Céleste s'effondra aussitôt.
+« C'est... la technique de l'Épée Céleste de la Pluie! » L'homme aux cheveux blancs fronça les sourcils. Sa main droite s'avança et le Coup Céleste s'effondra aussitôt.
 
 L'expression de Wang Lin était extrêmement sombre. Au moment où le Coup Céleste se brisa, il recula encore une fois. L'homme aux cheveux blancs laissa échapper un ricanement et, d'un pas, parvint à se placer derrière lui pour porter une griffe vers Wang Lin.
 
@@ -136,11 +136,11 @@ L'apparence de cette âme était identique à celle du vieil homme mystérieux q
 
 Son corps ne portait aucune cicatrice, mais ses yeux étaient saturés d'intention meurtrière.
 
-« Le sort céleste de Bai Fan, l'épée céleste de Qing Shuang, le trésor du Maître Sans Souci et le corps d'un être digne d'un Seigneur Céleste... Depuis mon éveil, tu es le cultivateur de Qi le plus puissant que j'aie rencontré. Tu es digne de porter un nom! »
+« Le sort céleste de Bai Fan, l'épée céleste de Qing Shuang, le trésor du Maître Sans Souci et le corps d'un être digne d'un Roi Céleste... Depuis mon éveil, tu es le cultivateur de Qi le plus puissant que j'aie rencontré. Tu es digne de porter un nom! »
 
 L'apparence de cet homme ressemblait à celle du vieil homme aux cheveux blancs, mais il semblait bien plus jeune. Tandis qu'il parlait, sa main droite frappa la statue qui fondit instantanément pour former une lance noire qu'il tint fermement.
 
-« Que racontes-tu encore? Ce n'est qu'un être céleste. Tu n'es qu'un général céleste, sans même mentionner que ton niveau de culture actuel n'est que celui de Seigneur Céleste! » Wang Lin regarda son propre corps prononcer ces mots d'un ton désuet. Pourtant, il avait le vague sentiment que ces paroles manquaient singulièrement de confiance.
+« Que racontes-tu encore? Ce n'est qu'un être céleste. Même si tu étais un Seigneur Céleste, qu'est-ce que cela changerait? De plus, ton niveau de culture actuel n'est que celui de Roi Céleste! » Wang Lin regarda son propre corps prononcer ces mots d'un ton désuet. Pourtant, il avait le vague sentiment que ces paroles manquaient singulièrement de confiance.
 
 Alors qu'il parlait, son corps avança et sa main droite pressa vers le bas. Le vide entier fut mis en mouvement et une brume blanche commença à s'accumuler rapidement. Bientôt, elle se mua en une sphère blanche de la taille d'un poing qui chargea l'homme d'âge moyen.
 

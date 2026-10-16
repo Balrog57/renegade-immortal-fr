@@ -22,7 +22,7 @@ Le visage de Wang Lin ne changea pas et il garda le silence.
 
 La femme à côté de Li Yuan ouvrit la bouche pour parler, mais finit par choisir le silence.
 
-Wang Lin fixa Li Yuan. Après un long moment, il sourit et hocha la tête. « D'accord, mais… » Alors qu'il parlait, Wang Lin leva soudainement sa main droite et tendit le bras. Le corps de la femme trembla instantanément, et une ombre fantomatique fut arrachée de son corps sur une distance de trois pouces.
+Wang Lin fixa Li Yuan. Après un long moment, il sourit et hocha la tête. « D'accord, mais… » Alors qu'il parlait, Wang Lin leva soudainement sa main droite et tendit le bras. Le corps de la femme trembla instantanément, et une ombre fantomatique fut arrachée de son corps sur une distance d'environ dix centimètres.
 
 Tout cela se produisit en un laps de temps extrêmement court. Le visage de la femme devint livide, comme si elle venait de perdre une immense quantité d'énergie.
 
@@ -42,7 +42,7 @@ En réfléchissant à l'origine de ses restrictions, Li Yuan ressentit une point
 
 Wang Lin ne comprenait effectivement pas cette restriction. Malgré sa maîtrise du sujet, lorsqu'il découvrit les marques sur le jade, il eut l'impression de ne rien pouvoir en déchiffrer. Cette restriction était manifestement différente de tout ce qu'il avait appris; elle n'était peut-être même pas de nature céleste.
 
-Lorsqu'il commença à observer l'intérieur du jade, dix statues apparurent. Lorsqu'il tenta de les appréhender, elles commencèrent à se superposer, provoquant un véritable séisme dans son esprit.
+Lorsqu'il commença à observer l'intérieur du jade, dix-huit statues apparurent. Lorsqu'il tenta de les appréhender, elles commencèrent à se superposer, provoquant un véritable séisme dans son esprit.
 
 Wang Lin retira son Sens Divin. Bien qu'il n'ait pu tout percer, il réussit à déceler quelque chose de familier. Sans le mentionner, il rangea l'objet et dit doucement: « Montrez-moi le chemin! »
 

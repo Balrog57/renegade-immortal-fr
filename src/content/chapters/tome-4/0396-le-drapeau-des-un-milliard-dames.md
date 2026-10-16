@@ -34,7 +34,7 @@ Après un long silence, Wang Lin poussa un soupir et quitta la perle défiant le
 
 « J'ai déjà examiné l'âme de Li Yuanfeng. Il n'a obtenu ces deux bras que par accident et ignore tout de leur origine. » Wang Lin secoua la tête, fit un pas et disparut.
 
-« Je dois reprendre l'épée céleste au patriarche du Clan des Démons Géants! Autrefois, Sun Tai avait combattu le patriarche de ce clan, mais ce dernier l'avait emporté en utilisant son pouvoir de lignée. Cependant, il fut ensuite traqué par la marionnette cadavérique de Sun Tai; on ignore donc s'il est encore en vie ou mort. »
+« Je dois reprendre l'épée céleste au patriarche du Clan des Démons Géants! Autrefois, Sun Tai avait combattu le patriarche de ce clan, mais ce dernier l'avait emporté en utilisant son pouvoir de lignée. Cependant, il fut ensuite blessé par une marionnette-enfant de Sun Tai, puis poursuivi; on ignore s'il est encore en vie ou mort. »
 
 « Même s'il n'est pas mort, il devra posséder un nouveau corps. Le temps nécessaire pour s'adapter à une nouvelle enveloppe peut varier. Je me demande s'il a pleinement assimilé ce nouveau corps... » D'un seul pas, Wang Lin apparut devant un ancien réseau de transfert.
 
@@ -90,7 +90,7 @@ L'expression d'Ouyang Tian devint plus complexe encore. Il secoua la tête dans 
 
 À l'intérieur du jade, Du Tian avait consigné une description très détaillée du pouvoir de lignée du Clan des Démons Géants.
 
-Wang Lin prit une grande inspiration. Il toucha le sac que Du Tian lui avait laissé et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de trente pieds de haut qui ondulait sans aucun vent.
+Wang Lin prit une grande inspiration. Il toucha le sac que Du Tian lui avait laissé et, aussitôt, une lumière pourpre et dorée s'en échappa. Cette lueur était si vive qu'elle se mua instantanément en un drapeau de plus de dix mètres de haut qui ondulait sans aucun vent.
 
 Simultanément, des ondes de gémissements fantomatiques semblèrent émaner du drapeau et le ciel s'obscurcit davantage. Même la lune parut se dissimuler derrière les nuages, comme si elle craignait d'apparaître.
 
@@ -104,7 +104,7 @@ Cependant, ce n'était pas le véritable drapeau; le vrai se trouvait aux côté
 
 Malgré cela, ce sous-drapeau était inestimable. Les yeux de Wang Lin brillèrent et il s'en saisit. Au moment du contact, son âme originelle trembla et se projeta hors de son corps pour pénétrer dans le drapeau d'âme. Aussitôt, il eut la sensation de basculer dans un enfer réservé aux cultivateurs.
 
-Il voyait une mer d'âmes se précipiter vers lui pour le noyer. Des vagues de hurlements et de cris de douleur l'assaillirent comme des attaques dévastatrices. Il eut soudain l'impression d'être percuté par un milliard de fragments d'âmes.
+Il voyait une mer d'âmes se précipiter vers lui pour le noyer. Des vagues de hurlements et de cris de douleur l'assaillirent comme des attaques dévastatrices. Il eut soudain l'impression d'être percuté par plus de cent millions de fragments d'âmes.
 
 Malgré la puissance de son corps, il sentit qu'il allait se briser sous une telle force. Ce qui le choqua le plus fut de voir son âme originelle montrer des signes d'effondrement. Il ne pouvait même pas résister à une seule attaque!
 

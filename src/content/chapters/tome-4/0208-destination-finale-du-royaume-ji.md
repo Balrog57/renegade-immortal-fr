@@ -76,7 +76,7 @@ L'expression de Wang Lin resta calme. Il savait que le vieillard finirait par l'
 
 Wang Lin maintint son calme et répondit avec respect: « Du pays de Zhao, la Secte Heng Yue. »
 
-L'homme âgé observa attentivement Wang Lin, et son sourire devint plus glacial encore. Il déclara: « Il y a trois jours, tu as tué des milliers de cultivateurs au stade de la Formation du Noyau. Tu es bien audacieux! »
+L'homme âgé observa attentivement Wang Lin, et son sourire devint plus glacial encore. Il déclara: « Il y a trois jours, tu as tué plus d'un millier de cultivateurs au stade de la Formation du Noyau. Tu es bien audacieux! »
 
 À ces mots, le visage de Qiu Siping pâlit brusquement. Il recula de quelques pas, fixant Wang Lin avec incrédulité.
 
@@ -96,7 +96,7 @@ Sur ce, l'homme regarda Wang Lin en riant. Il tapa la tortue du pied et disparut
 
 Qiu Siping resta pensif un moment avant de lancer à Wang Lin un regard effrayé. Sans poser de questions sur l'homme, il dit d'un ton pesant: « Frère Wang, je vais accélérer le bateau pour que nous arrivions dans deux jours. Je te laisse gérer la question des restrictions dans la grotte. »
 
-Wang Lin acquiesça. Il s'assit rapidement à l'arrière du bateau et pointa son doigt vers son front. Le démon Xu Ligou et le second démon apparurent et flottèrent autour de lui.
+Wang Lin acquiesça. Il s'assit rapidement à l'arrière du bateau et pointa son doigt vers son front. Le démon Xu Liguo et le second démon apparurent et flottèrent autour de lui.
 
 Simultanément, il frappa son sac de rangement d'où sortit la bannière de restriction. Cette fois, sous son contrôle, elle enveloppa son corps.
 
@@ -158,7 +158,7 @@ Soudain, la pierre trembla et s'ouvrit lentement. Wang Lin jeta un œil à l'int
 
 La pièce était totalement vide, à l'exception d'un réseau circulaire au centre. Ce réseau paraissait très ancien, mais les matériaux utilisés étaient encore en excellent état.
 
-Wang Lin comprit immédiatement de quoi il s'agissait: un réseau de transfert capable de déplacer instantanément des individus sur des millions de kilomètres!
+Wang Lin comprit immédiatement de quoi il s'agissait: un réseau de transfert capable de déplacer instantanément des individus sur plus de cinq cent mille kilomètres!
 
 Qiu Siping tourna la tête vers le dispositif et dit d'un ton neutre: « C'est un ancien réseau de transfert. Lorsque mon maître a découvert cette grotte, il l'a trouvé également. Bien qu'il soit parfaitement conservé grâce à l'abri de la grotte, son activation requiert des pierres spirituelles de qualité supérieure. Je n'ai jamais entendu parler d'une telle ressource dans la Mer des Démons, je ne l'ai donc jamais utilisé. »
 
@@ -204,13 +204,13 @@ Dès que la porte céda sous l'effet de la bannière, deux lueurs jaunes vacilla
 
 Wang Lin vit alors clairement ce que ces lueurs cachaient: deux Âmes Naissantes presque transparentes. Leur éclat s'estompait si vite qu'elles semblaient sur le point de se dissiper, poussées à leur limite par le parfum.
 
-Wang Lin et Qiu Siping agirent quasi simultanément. Wang Lin fut plus rapide et saisit l'Âme Naissante la plus ancienne. Sans un mot, il s'élança hors de la grotte.
+Wang Lin et Qiu Siping agirent quasi simultanément. Wang Lin fut plus rapide et saisit l'Âme Naissante la plus puissante. Sans un mot, il s'élança hors de la grotte.
 
 Alors qu'il sortait, la caverne commença à s'effondrer dans un fracas de séismes. Qiu Siping quitta également les lieux précipitamment; une fois dehors, il salua Wang Lin d'un geste des mains avant de s'enfuir, comme craignant une trahison immédiate.
 
-Wang Lin serra l'Âme Naissante contre lui. Il toucha son front pour faire apparaître le démon Xu Ligou. En voyant la prise, le visage du démon fut transfiguré par la cupidité.
+Wang Lin serra l'Âme Naissante contre lui. Il toucha son front pour faire apparaître le démon Xu Liguo. En voyant la prise, le visage du démon fut transfiguré par la cupidité.
 
-Wang Lin eut un ricanement méprisant. Xu Ligou trembla de peur et, obéissant, remit l'Âme Naissante à la conscience de Wang Lin.
+Wang Lin eut un ricanement méprisant. Xu Liguo trembla de peur et, obéissant, remit l'Âme Naissante à la conscience de Wang Lin.
 
 Après avoir observé la grotte effondrée, puis la direction prise par Qiu Siping, Wang Lin réfléchit. Il renonça finalement à poursuivre son compagnon pour le tuer; son âme ne pouvait pour l'instant contenir qu'une seule Âme Naissante de puissance équivalente. En tenter une seconde risquait de provoquer une perte de contrôle et une possession démoniaque.
 
@@ -218,9 +218,9 @@ Ses yeux brillèrent d'excitation. En dévorant cette âme, il devrait pouvoir f
 
 Après une journée de voyage, Wang Lin s'arrêta au milieu d'un désert, suivant un itinéraire volontairement désolé. Sachant qu'aucun être vivant ne se trouvait dans un rayon de 5 000 kilomètres, il enfonça son corps dans le sol.
 
-Il s'arrêta à une profondeur de 6,6 kilomètres, créa une grotte et s'assit en tailleur. Il fit apparaître Xu Ligou par un geste vers son front. Le démon prit l'Âme Naissante sur le point de se dissiper et se tint en retrait, contemplant la proie.
+Il s'arrêta à une profondeur de 6,6 kilomètres, créa une grotte et s'assit en tailleur. Il fit apparaître Xu Liguo par un geste vers son front. Le démon prit l'Âme Naissante sur le point de se dissiper et se tint en retrait, contemplant la proie.
 
-Wang Lin ne da aucune attention à Xu Ligou. Il ferma les yeux quelques instants avant de les rouvrir avec une détermination farouche. Il ouvrit la bouche et avala l'Âme Naissante.
+Wang Lin n'accorda aucune attention à Xu Liguo. Il ferma les yeux quelques instants avant de les rouvrir avec une détermination farouche. Il ouvrit la bouche et avala l'Âme Naissante.
 
 Dès l'ingestion, la tactique de l'ancien dieu s'activa tel un immense moulin. À mesure que l'âme se dissolvait, elle libérait une quantité colossale d'énergie qui inonda le corps de Wang Lin.
 
@@ -252,7 +252,7 @@ Il prit une profonde inspiration et commença à cultiver pour soigner ses bless
 
 Trois jours plus tard, Wang Lin ouvrit les yeux. Il quitta sa grotte et se dirigea vers une ville.
 
-Après un mois et demi, il avait parcouru presque toutes les cités de la région, sans jamais s'aventurer dans les Pavillons de Raffinage des Trésors. Dans aucune de ces villes, il n'avait trouvé la moindre trace d'informations concernant le Royaume Ji.
+Après une quinzaine de jours, il avait parcouru presque toutes les cités de la région, sans jamais s'aventurer dans les Pavillons de Raffinage des Trésors. Dans aucune de ces villes, il n'avait trouvé la moindre trace d'informations concernant le Royaume Ji.
 
 Dans sa confusion, il se souvint soudain de la grotte de Qiu Siping. Elle contenait de nombreux ouvrages, certains gravés sur du bambou, témoignant de leur grande antiquité. Ces supports, trop fragiles pour être conservés dans du jade face aux fluctuations d'énergie, étaient précieux.
 
@@ -272,7 +272,7 @@ En le ramassant et en l'ouvrant, son corps trembla. Il s'installa à une table p
 
 « Dans le monde de la culture, un changement de puissance spirituelle peut engendrer ce que l'on nomme le Royaume Ji. J'ai étudié ce phénomène durant de nombreuses années et j'ai laissé mes recherches pour les générations futures. »
 
-« Cette force mystérieuse, le Royaume Ji, est selon moi une technique divine! Seule une telle technique pourrait tuer instantanément un cultivateur de même niveau! »
+« Cette force mystérieuse, le Royaume Ji, est selon moi une forme de rétribution divine! Seule la rétribution divine pourrait tuer instantanément un cultivateur de même niveau! »
 
 « Beaucoup pensent que l'évolution finale du Royaume Ji est le stade de l'Âme Naissante, mais après lecture de certains textes historiques, j'ai découvert un phénomène fascinant. »
 

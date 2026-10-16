@@ -16,9 +16,9 @@ Ils utilisaient cette compétition pour porter l'intention de bataille de tout l
 
 D'innombrables familles de cultivateurs des quatre domaines enverraient leurs représentants dans les arènes désignées. Ensuite, sous la direction d'un Messager du Temple Céleste du Tonnerre agissant comme juge, 108 personnes seraient choisies dans chaque domaine pour être envoyées au Temple Céleste du Tonnerre pour la compétition finale!
 
-Domaine Sud, l'une des trois planètes principales: la Planète Terre Flamme. L'espace situé à des milliers de kilomètres de la planète était enveloppé d'une lumière éclatante.
+Domaine Sud, l'une des trois planètes principales: la Planète Terre Flamme. L'espace situé dans un rayon de 500 kilomètres autour de la planète était enveloppé d'une lumière éclatante.
 
-À des milliers de kilomètres de là se trouvait une zone grouillante d'innombrables cultivateurs. Le champ de bataille du Domaine Sud se trouvait ici!
+À 500 kilomètres de là se trouvait une zone grouillante d'innombrables cultivateurs. Le champ de bataille du Domaine Sud se trouvait ici!
 
 Dans cette vaste étendue, d'innombrables pierres bleues flottaient dans le vide. Une personne ou plusieurs étaient assises sur chacune d'elles, réparties à travers la zone.
 
@@ -30,7 +30,7 @@ Parmi l'innombrable mer de pierres bleues, on distinguait de nombreuses pierres 
 
 Il y avait environ 300 à 400 pierres rouges. Les 108 lauréats qui auraient le droit de se rendre au Temple Céleste du Tonnerre seraient choisis parmi eux.
 
-À cet instant, au sein de ce champ de bataille s'étendant sur des milliers de kilomètres, deux cultivateurs s'affrontaient. Divers sorts saturaient l'espace et les deux camps étaient d'égale force. Tous les spectateurs observaient attentivement, en particulier ceux qui devaient combattre prochainement, dont le regard était plus intense encore.
+À cet instant, au sein de ce champ de bataille s'étendant sur 500 kilomètres, deux cultivateurs s'affrontaient. Divers sorts saturaient l'espace et les deux camps étaient d'égale force. Tous les spectateurs observaient attentivement, en particulier ceux qui devaient combattre prochainement, dont le regard était plus intense encore.
 
 Bien sûr, certains cultivateurs ne jetèrent qu'un seul coup d'œil avant de détourner les yeux; il était évident que ce genre de combat ne pouvait pas susciter leur intérêt.
 
@@ -68,7 +68,7 @@ Durant cette période, le nom du Senior s'était illustré dans tout le Système
 
 Sur une autre pierre rouge siégeait Tang Yanfeng. En observant la scène, il laissa échapper un renâclement froid mais garda le silence.
 
-Zhan Konglie, Shengong Hu et Tang Yanfeng étaient célèbres dans le Domaine Sud. On les surnommait les Trois Calamités du Domaine Sud!
+Zhan Konglie, Shengong Hu et Tang Yanfeng étaient célèbres dans le Domaine Sud. On les surnommait les Trois Héros du Domaine Sud!
 
 Outre les spectateurs des diverses familles de cultivateurs, plusieurs personnes étaient présentes pour superviser les combats. Trois d'entre elles provenaient du Temple Céleste du Tonnerre.
 
@@ -76,7 +76,7 @@ Deux des trois portaient des robes vertes et observaient la scène d'un regard g
 
 Les deux messagers en robes vertes du Temple Céleste du Tonnerre témoignaient d'un respect immense envers l'Ancien à la robe violette. Même les ancêtres environnants du Domaine Sud le traitaient avec une grande déférence.
 
-Outre ce trio, divers ancêtres des familles de cultivateurs du Domaine Sud étaient présents. Ces personnes siégeaient sur des pierres blanches! Il y en avait très peu, moins de dix, mais chacun d'eux était une figure illustre!
+Outre ce trio, divers ancêtres des familles de cultivateurs du Domaine Sud étaient présents. Ces personnes siégeaient sur des pierres blanches! Il y en avait très peu, moins d'une douzaine, mais chacun d'eux était une figure illustre!
 
 Cependant, l'ancêtre de la famille Shengong et Lie Yunzi n'étaient pas là.
 
@@ -94,7 +94,7 @@ Ses yeux étaient froids alors qu'il scrutait l'horizon.
 
 « Li Yuan a dit que la compétition du Domaine Sud devait se tenir près de la Planète Terre Flamme! Chaque participant doit posséder un jeton de qualification du Domaine Sud pour prendre part aux épreuves! Sans jeton, l'entrée est interdite, et une fois la compétition lancée, toute la zone dans un rayon de 50000 kilomètres sera scellée! En cas de retard, nul ne pourra entrer! » Wang Lin laissa échapper un ricanement froid et fit un pas en avant. Des ondulations se formèrent sous ses pieds et, après une seconde enjambée, il disparut.
 
-Dans un rayon de 100 000 kilomètres autour de la Planète Terre Flamme, des cultivateurs étaient postés à intervalles de 10 000 kilomètres. Ils formaient des cercles concentriques entourant la planète pour empêcher toute intrusion extérieure.
+Dans un rayon de 50 000 kilomètres autour de la Planète Terre Flamme, des cultivateurs étaient postés à intervalles de 500 kilomètres. Ils formaient des cercles concentriques entourant la planète pour empêcher toute intrusion extérieure.
 
 Des filaments d'énergie spirituelle émanaient d'eux, formant un réseau étroitement interconnecté. Au moindre changement de position d'un individu, les autres en seraient immédiatement informés.
 
@@ -102,9 +102,9 @@ Meng Lin était actuellement assis parmi les étoiles, le cœur bouillonnant de 
 
 En pensant à la façon dont ses pairs se réjouiraient de son malheur lorsqu'ils apprendraient qu'il avait été assigné à cette garde, il devint de plus en plus morose, incapable de retrouver le calme nécessaire à sa culture.
 
-« Si seulement je pouvais observer les divers sorts célestes utilisés lors de ce tournoi, particulièrement ceux des Trois Calamités du Domaine Sud, cela favoriserait grandement ma progression. Hélas! » Meng Lin laissa échapper un sombre soupir. Il n'était qu'au stade avancé de la Transformation de l'Âme et ne parvenait pas encore à franchir l'ultime étape vers le stade Ascendant. Soudain, ses pupilles se rétractèrent alors qu'il fixait l'espace devant lui.
+« Si seulement je pouvais observer les divers sorts célestes utilisés lors de ce tournoi, particulièrement ceux des Trois Héros du Domaine Sud, cela favoriserait grandement ma progression. Hélas! » Meng Lin laissa échapper un sombre soupir. Il n'était qu'au stade avancé de la Transformation de l'Âme et ne parvenait pas encore à franchir l'ultime étape vers le stade Ascendant. Soudain, ses pupilles se rétractèrent alors qu'il fixait l'espace devant lui.
 
-Une ondulation apparut brusquement à 500 kilomètres de Meng Lin. Tandis que les rides se propageaient, une silhouette en émergea.
+Une ondulation apparut brusquement à 330 mètres de Meng Lin. Tandis que les rides se propageaient, une silhouette en émergea.
 
 Cet homme était vêtu de blanc et ses cheveux noirs flottaient sans qu'aucun vent ne soufflât. Ses yeux, en particulier, étaient d'une brillance exceptionnelle. Dès l'instant où Meng Lin croisa ce regard, il eut l'impression que d'innombrables éclairs explosaient dans son esprit. Son âme originelle faillit s'effondrer et son énergie spirituelle se déversa violemment hors de son corps.
 

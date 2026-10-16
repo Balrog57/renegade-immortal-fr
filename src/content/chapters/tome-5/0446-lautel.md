@@ -22,7 +22,7 @@ Un éclat de joie apparut dans les yeux de Murong Yun. « Le jeune va vous guide
 
 Mu Yunhai demanda d'un ton solennel: « Y a-t-il des dangers là-bas? »
 
-Murong Yun répondit promptement: « Oui. Le jeune a vu mourir plusieurs membres du Clan de l'Immortel Délaissé à huit feuilles. Ils étaient huit au total, mais le premier à entrer n'a rencontré aucun danger. »
+Murong Yun répondit promptement: « Oui. Le jeune a vu mourir plusieurs membres du Clan de l'Immortel Délaissé à huit feuilles. Ils étaient quatre au total, mais le premier à entrer n'a rencontré aucun danger. »
 
 Mu Yunhai fronça les sourcils, puis se tourna vers Wang Lin et demanda: « Camarade cultivateur Ceng, qu'en pensez-vous? »
 
@@ -30,11 +30,11 @@ Wang Lin regarda Murong Yun avec un sourire qui n'en était pas un et dit à Mu 
 
 Mu Yunhai rit, puis il hocha la tête et dit à Murong Yun: « Petit morveux, guide-nous! »
 
-Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin avec un sourire de défi. « L'Aîné n'est certainement pas un cultivateur au stade de la Formation de l'Âme. Je ne le savais pas auparavant; j'espère que l'Aîné ne m'en voudra pas. » Sur ces mots, il s'élança en tête. Mu Yunhai fit signe à Wang Lin et tous deux suivirent sa trace.
+Murong Yun acquiesça rapidement, puis il lança un regard prudent à Wang Lin avec un sourire forcé. « L'Aîné n'est certainement pas un cultivateur au stade de la Formation de l'Âme. Je ne le savais pas auparavant; j'espère que l'Aîné ne m'en voudra pas. » Sur ces mots, il s'élança en tête. Mu Yunhai fit signe à Wang Lin et tous deux suivirent sa trace.
 
 Quant à la femme laide, elle hésita un instant avant de les suivre à son tour.
 
-Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mu Yunhai. Une demi-heure plus tard, Mu Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit: « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
+Bien que la vitesse de Murong Yun fût très élevée, elle demeurait trop lente aux yeux de Mu Yunhai. Une heure plus tard, Mu Yunhai laissa échapper un grognement et s'élança en avant pour saisir Murong Yun. Il se tourna vers Wang Lin et dit: « Camarade cultivateur Ceng, nous allons chacun prendre l'un d'eux et atteindre l'autel à toute allure. Si nous sommes trop lents et que le Cristal de Planète de Culture se brise, nous mourrons tous ici. »
 
 Sur ce, il emporta Murong Yun et accéléra soudainement, disparaissant au loin.
 
@@ -58,7 +58,7 @@ Sous la direction de Murong Yun, Mu Yunhai plongea dans le nuage noir. Wang Lin 
 
 Puis, il frappa son sac de rangement pour en extraire un objet. D'un geste sec, celui-ci disparut également dans le nuage noir. Il accomplit tout cela avec une discrétion absolue sous le couvert des ténèbres, si bien que personne ne remarqua rien. Même la femme à ses côtés n'en décela rien, tant l'écart entre leurs niveaux de culture était immense.
 
-La montagne nichée dans le nuage semblait floue; c'était comme si quelque chose enveloppait le sommet, lui conférant un aspect éthéré. Au sommet se trouvait une vaste plateforme, et au centre de celle-ci trônait un autel noir.
+La montagne nichée dans le nuage semblait floue; c'était comme si quelque chose enveloppait le sommet, lui conférant un aspect éthéré. Au sommet se trouvait une vaste plateforme, et au centre de celle-ci trônait un autel noir d'environ 330 mètres.
 
 Cet autel prenait la forme d'une tour dont les marches menaient au sommet. Une concavité se trouvait au faîte de la tour, où s'engouffrait une brume noire.
 
@@ -118,7 +118,7 @@ Murong Yun ricana sans bouger, mais au moment où le sort céleste percuta sa ci
 
 Wang Lin ne poursuivit pas la traque, un soupçon de moquerie dans les yeux. Bientôt, un cri retentit de l'intérieur du nuage noir; les filaments de brume revinrent et se condensèrent pour reformer Murong Yun. Son expression était devenue extrêmement livide alors qu'il lançait à Wang Lin: « Tu n'es pas un simple cultivateur au stade de la Transformation de l'Âme! »
 
-Un drapeau de trente pieds de long jaillit des nuages noirs, oscillant comme une vague à l'intérieur du nuage. Une quantité massive de fragments d'âme entrait et sortait du drapeau. Dix âmes primaires résidaient dans le nuage noir, leurs regards verrouillés sur Murong Yun.
+Un drapeau de 10 mètres de haut, dont le tissu mesurait 33 mètres de long, jaillit des nuages noirs, oscillant comme une vague à l'intérieur du nuage. Une quantité massive de fragments d'âme entrait et sortait du drapeau. Une bonne dizaine d'âmes primaires résidaient dans le nuage noir, leurs regards verrouillés sur Murong Yun.
 
 Parmi ces âmes primaires se trouvait un Qilin doré et pourpre, dont les yeux brillaient d'une férocité sauvage.
 

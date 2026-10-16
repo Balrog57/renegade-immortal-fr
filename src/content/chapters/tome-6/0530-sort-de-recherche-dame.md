@@ -98,7 +98,7 @@ Le regard de Wang Lin se glaça. Sa main gauche pressa le front de l'être et il
 
 Il existait de nombreuses restrictions à ce sort, mais avec le niveau de culture actuel de Wang Lin et l'usage de l'énergie spirituelle céleste, la tâche n'était guère difficile. De plus, l'âme originelle étant déjà affaiblie, elle ne put opposer aucune résistance.
 
-Des hurlements de douleur s'échappèrent de la bouche de Lou Yun. Le sort de recherche d'âme était une technique tyrannique et destructrice. Lorsqu'il est utilisé sur un être corporel, la douleur est atténuée, mais lorsqu'il frappe directement une âme originelle, elle est multipliée par mille.
+Des hurlements de douleur s'échappèrent de la bouche de Lou Yun. Le sort de recherche d'âme était une technique tyrannique et destructrice. Lorsqu'il est utilisé sur un être corporel, la douleur est atténuée, mais lorsqu'il frappe directement une âme originelle, elle est multipliée plusieurs fois.
 
 Les cris de Lou Yun s'étouffèrent progressivement. Au bout d'un temps équivalent à la combustion d'un bâton d'encens, ses hurlements cessèrent et son âme originelle devint presque transparente.
 

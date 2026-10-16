@@ -52,7 +52,7 @@ Malgré son corps de Dieu Ancien, Wang Lin ressentit une douleur oculaire face �
 
 Cependant, Maître Yi Chen, qui observait au loin, ne fut pas aussi chanceux. Il ne ressentit pas seulement une douleur aux yeux, mais eut l'impression que d'innombrables aiguilles d'argent le transperçaient. Terrifié, il fit circuler précipitamment l'énergie originelle dans son corps et ne retrouva ses esprits qu'après un long moment.
 
-Quant au seigneur de la Cité aux Yeux Fantômes, le jeune homme en noir, sa culture était inférieure à celle de Maître Yi Chen, se situant seulement au sommet du stade Corporel Yang. Il laissa échapper un gémissement de douleur et recula rapidement, les yeux clos. Des larmes coulèrent sur ses joues, mais il ne paniqua pas. Au lieu de cela, il frappa son sac de stockage d'où jaillirent de nombreux flacons de pilules. Il en avala plusieurs et ferma les yeux pour cultiver.
+Quant au seigneur de la Cité aux Yeux Fantômes, le jeune homme en noir, sa culture était inférieure à celle de Maître Yi Chen, se situant seulement au stade Corporel Yang. Il laissa échapper un gémissement de douleur et recula rapidement, les yeux clos. Des larmes coulèrent sur ses joues, mais il ne paniqua pas. Au lieu de cela, il frappa son sac de stockage d'où jaillirent de nombreux flacons de pilules. Il en avala plusieurs et ferma les yeux pour cultiver.
 
 Mais son Sens Divin continuait de se déployer pour observer attentivement ce combat!
 
@@ -76,7 +76,7 @@ Les innombrables gouttes de pluie s'effondrèrent toutes, et le doigt toucha sou
 
 Le cristal explosa. Au moment où il se brisa, le fantôme de Qing Shui derrière Wang Lin s'élança. Sa vitesse était telle qu'il laissait une traînée derrière lui. Il pénétra dans les débris du cristal et se transforma en une multitude de gouttes de pluie qui convergèrent vers le doigt!
 
-Cette fois, ce ne furent pas des gouttes éparses qui percutèrent la cible, mais toutes se condensèrent en une seule goutte unique! Cette gouttelette libéra une lueur rouge et un soupçon du Royaume Ji. Elle entra en collision directe avec le sort de l'Omniscient!
+Cette fois, ce ne furent pas des gouttes éparses qui percutèrent la cible, mais toutes se condensèrent en une seule goutte unique! Cette gouttelette libéra une lueur rouge. Elle entra en collision directe avec le sort de l'Omniscient!
 
 Lors du choc, la gouttelette rouge dégagea une aura féroce et forma inopinément un vortex. Ce tourbillon entra en lutte contre les ondulations aux sept couleurs qui entouraient le doigt.
 

@@ -35,7 +35,7 @@ Wang Lin prit une profonde inspiration, leva le pied et fit le 22e pas.
 
 À cet instant, la montagne entière trembla et la glace sous ses pieds se fendit. Cela démontrait avec précision la puissance de ce pas.
 
-Les yeux de l'Omniscient projetèrent un éclat doré alors qu'il se tenait dans la tour.
+Les yeux de l'Omniscient projetèrent un éclat intense alors qu'il se tenait dans la tour.
 
 « À l'époque, Sun Yun avait pu faire 26 pas avec une culture au stade avancé de la Transformation de l'Âme. Wang Lin, combien de pas pourras-tu faire?! »
 
@@ -53,7 +53,7 @@ Il avait fait cinq pas d'affilée, et chaque foulée provoquait un écho de gron
 
 Vingt-sept pas!
 
-Le parchemin de la vie et de la mort flottant au-dessus de Wang Lin passa d'une position à trois pouces au-dessus de sa tête à une fusion complète avec son âme originelle.
+Le parchemin de la vie et de la mort flottant au-dessus de Wang Lin passa d'une position à dix centimètres au-dessus de sa tête à une fusion complète avec son âme originelle.
 
 À cet instant, une aura terrifiante émana soudainement du corps de Wang Lin. Ses longs cheveux s'agitèrent sans qu'aucun vent ne soufflât, et la neige autour de lui se mit à tourbillonner, repoussée par sa présence.
 
@@ -89,7 +89,7 @@ La glace devant Wang Lin commença à luire d'une lumière aux sept couleurs, et
 
 L'expression de Wang Lin resta calme; il prit une profonde inspiration, ajusta légèrement sa culture et monta sur l'arc-en-ciel.
 
-D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit les soixante-dix marches restantes pour arriver au pied de la tour.
+D'un premier pas, il s'élança sur l'arc-en-ciel, et d'un second, il franchit plus de soixante-dix marches restantes pour arriver au pied de la tour.
 
 Cette tour avait une apparence très ordinaire. À cet instant, des rayons de lumière aux sept couleurs se rassemblèrent au pied de l'édifice pour former l'Omniscient.
 

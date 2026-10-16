@@ -14,7 +14,7 @@ Quant au second disciple, son visage se voila d'une ombre soudaine, avant que ce
 
 Wang Lin pouvait deviner, à travers les souvenirs du cultivateur de Formation du Noyau, que celui-ci éprouvait une grande affection pour le disciple aîné. Ce dernier entretenait d'ailleurs des liens de parenté avec lui.
 
-Le frère aîné pouvait tout juste être considéré comme un génie. Il lui avait fallu cent ans pour atteindre le sommet du stade d'Établissement des Fondations, et il ne lui restait plus qu'une étape avant la Formation du Noyau.
+Le frère aîné pouvait tout juste être considéré comme un génie. Il lui avait fallu moins de cent ans pour atteindre le sommet du stade d'Établissement des Fondations, et il ne lui restait plus qu'une étape avant la Formation du Noyau.
 
 Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier son frère aîné à la fille d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance.
 
@@ -134,18 +134,18 @@ Tous les moments glorieux du passé étaient devenus des souvenirs lointains...
 
 Celui qui tombe dans le feu doit être ce phénix immortel... Même si ses ailes doivent brûler, il volera toujours dans les cieux...
 
-Fermer une porte, c'est aimer un monde.
+Fermer une porte, c'est perdre un monde.
 Les souvenirs du passé seront désormais à jamais lointains.
 Le sable dans le vent ne remplit plus l'espace des rêves. Le gémissement de la puissante flûte n'est plus qu'un écho dans les terres désolées.
 
 Fermer une porte, c'est couper un espace et un temps.
-La gloire du passé ne subsiste que dans les chants de la descente.
-La chanson d'hier ne résonne plus de la même manière. Les plaintes murmurées ne trouvent plus leur mélodie.
+La gloire du passé ne subsiste que dans les louanges des descendants.
+La chanson d'hier ne résonne plus de la même manière. Les confidences murmurées ne trouvent plus de cithare pour les écouter.
 
 Ouvrir une fenêtre, c'est embrasser un rayon de soleil.
 Le rêve d'aujourd'hui devient l'espoir de l'empire futur.
 Même nous, les gens ordinaires, devons vivre des instants grandioses. Une quête sans regret pour ressentir la puissance du monde.
 
 Ouvrir une fenêtre, c'est accueillir une brise printanière.
-L'éclosion du néant réveille ce qui fut autrefois perdu.
+Le néant brisé réveille ce qui fut autrefois perdu.
 Celui qui est tombé dans le feu doit être ce phénix immortel... Même si ses ailes doivent brûler, il continuera de voler dans les cieux.

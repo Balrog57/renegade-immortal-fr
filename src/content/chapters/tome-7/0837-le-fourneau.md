@@ -14,7 +14,7 @@ Dès qu'il ferma les yeux, une lueur vacilla dans son ombre et Ta Shan en sortit
 
 Tandis que Wang Lin restait immobile, il ressentit un profond épuisement au fond de son cœur. Depuis son entrée dans le Royaume Céleste du Tonnerre, il était resté en état d'alerte constante. Après avoir quitté ce royaume, il avait été projeté dans la Bête du Néant et n'avait pu s'en extirper qu'au prix d'une bataille sanglante.
 
-À l'origine, il avait prévu de retrouver Li Yun pour étudier les restrictions et se reposer un peu après avoir conduit le Clan Immortel Élu vers la planète Qing Lin. Cependant, les événements qui suivirent forcèrent Wang Lin à faire preuve d'une cruauté implacable et à combattre!
+À l'origine, il avait prévu de retrouver Li Yuan pour étudier les restrictions et se reposer un peu après avoir conduit le Clan Immortel Élu vers la planète Qing Ling. Cependant, les événements qui suivirent forcèrent Wang Lin à faire preuve d'une cruauté implacable et à combattre!
 
 La poursuite par la famille Yao et l'intervention d'autres familles de cultivateurs avaient contraint Wang Lin à la fuite. Bien qu'il ait conservé l'avantage, vivre dans une situation où le moindre instant d'inattention pouvait entraîner des blessures graves ou la mort était épuisant. Cette tension s'était accumulée en lui, et maintenant qu'il était assis dans ce fourneau, il pouvait enfin se détendre un peu.
 
@@ -58,7 +58,7 @@ Yao Bingyun avait déjà atteint le stade du sceau d'existence du sort céleste 
 
 Après s'être complètement scellée, des craquements résonnèrent dans son corps. Une fine couche de glace apparut en elle et se propagea rapidement.
 
-Le cristal de glace scella également le tentacule qui l'enroulait. L'énergie glaciale émanant de son corps devint de plus en plus intense à mesure que la glace s'épaississait. Finalement, une couche de plus de trois pieds de glace l'enveloppa.
+Le cristal de glace scella également le tentacule qui l'enroulait. L'énergie glaciale émanant de son corps devint de plus en plus intense à mesure que la glace s'épaississait. Finalement, une couche de glace d'un mètre d'épaisseur l'enveloppa.
 
 À moitié nue et emprisonnée dans la glace, son expression restait d'un calme si profond qu'il en devenait effrayant.
 
@@ -68,7 +68,7 @@ Un jour, le Serpent aux yeux de lune s'arrêta. Il se trouvait alors dans les pr
 
 Une fois immobile, son corps se replia lentement pour redevenir une planète de culture. Les innombrables tentacules qui l'entouraient se rétractèrent et une vaste quantité de brume noire s'en échappa, enveloppant la planète.
 
-Les tentacules raccourcirent jusqu'à ne mesurer plus que mille pieds. Ils ondulaient à la surface de la planète et les environs retrouvèrent leur tranquillité...
+Les tentacules raccourcirent jusqu'à ne plus mesurer que moins de 330 mètres. Ils ondulaient à la surface de la planète et les environs retrouvèrent leur tranquillité...
 
 Dans l'espace mystérieux et étroit situé au sein du corps du Serpent aux yeux de lune, Wang Lin ouvrit les yeux. Les blessures infligées à l'âme originelle n'étaient pas faciles à guérir; après tout ce temps de culture, il n'avait récupéré que 80 % de ses capacités.
 
@@ -102,9 +102,9 @@ Il pouvait clairement ressentir une trace de l'aura de Cupidité sur cette empre
 
 « Cupidité n'est pas mort. Son empreinte est toujours là, c'est pourquoi je ne peux pas contrôler le fourneau... Mais si son empreinte subsiste, pourquoi puis-je encore imprimer ma propre marque sur ce fourneau? » Alors qu'il réfléchissait, une pensée surgit à propos de la rune sur laquelle Cupidité avait laissé sa trace.
 
-« Ce fourneau géant a été raffiné et rejeté par un Dieu Antique. Dans les souvenirs du Dieu Antique, il n'y avait que l'apparence du fourneau, sans aucune méthode pour s'en servir. Après tout, l'héritage mémoriel que j'ai obtenu était incomplet. » Le sens divin de Wang Lin parcourut le fourneau pour observer la rune. Après un long moment, ses yeux s'illuminèrent. Bien qu'il soit hostile envers Cupidité, il ne put s'empêcher de ressentir une pointe d'admiration pour lui!
+« Ce fourneau géant a été rejeté par le Dieu Antique Tu Si. Dans les souvenirs du Dieu Antique, il n'y avait que l'apparence du fourneau, sans aucune méthode pour s'en servir. Après tout, l'héritage mémoriel que j'ai obtenu était incomplet. » Le sens divin de Wang Lin parcourut le fourneau pour observer la rune. Après un long moment, ses yeux s'illuminèrent. Bien qu'il soit hostile envers Cupidité, il ne put s'empêcher de ressentir une pointe d'admiration pour lui!
 
-« Ce Cupidité est véritablement talentueux! Il est évident qu'il ne savait pas comment utiliser ce fourneau lorsqu'il l'a obtenu et qu'il était incapable de le contrôler. Alors, il a réussi à concevoir cette rune inconnue, l'a gravée sur le fourneau et l'a connectée à certaines de ses capacités! »
+« Ce Cupidité est véritablement talentueux! Il est évident qu'il ne savait pas comment utiliser ce fourneau lorsqu'il l'a obtenu et qu'il était incapable de le contrôler. Alors, il a obtenu on ne sait où cette rune inconnue, l'a gravée sur le fourneau et l'a connectée à certaines de ses capacités! »
 
 « Ce qu'il manipulait réellement, c'était cette rune; en la contrôlant, il pouvait utiliser certaines des fonctions du fourneau! » Wang Lin prit une profonde inspiration et, sans aucune hésitation, concentra tout son sens divin sur cette rune.
 

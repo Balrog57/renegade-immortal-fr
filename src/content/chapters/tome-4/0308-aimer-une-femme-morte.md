@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 308 - Loving a Dead Woman
 slug: aimer-une-femme-morte
 ---
-De nombreuses techniques fusaient dans les airs sur un fragment situé dans la partie sud du Royaume Céleste. Actuellement, trois personnes se disputaient un jade céleste.
+De nombreuses techniques fusaient dans les airs sur un fragment situé dans la partie sud du Royaume Céleste. Actuellement, trois personnes se disputaient un cristal d'énergie céleste.
 
 À dix mille kilomètres de là, un homme d'âge moyen se tenait dans un champ herbeux tout en buvant du vin à même une gourde. Il secoua la tête et dit: « Ting Er, ne t'inquiète pas. Je vais te trouver davantage de jades célestes afin que ton corps demeure inchangé pendant mille ans. »
 
@@ -124,7 +124,7 @@ Elle lança un regard glacial à Chi Hu alors qu'elle sortait de la formation et
 
 Chi Hu afficha un sourire confiant. « Soyez sereine, cultivatrice Papillon Rouge. Puisque vous êtes venue, permettez-moi de vous l'assurer: ce jade a été personnellement façonné par l'ancêtre de mon Clan Démon Géant, Xi Zu. Il n'aurait aucune raison de mentir. »
 
-« Xi Zu... » Le visage de Papillon Rouge se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux clans sur Suzaku qui n'étaient pas originaires de la planète: le Clan Démon Géant et Xue Yu.
+« Xi Zu... » Le visage de Papillon Rouge se détendit légèrement. Ce Xi Zu était un aîné de son maître et ils entretenaient des liens. Après tout, il n'existait que deux nations de cultivation organisées en tribus sur Suzaku: le Clan Démon Géant et Xue Yu.
 
 Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan Démon Géant était l'allié de Xue Yu.
 

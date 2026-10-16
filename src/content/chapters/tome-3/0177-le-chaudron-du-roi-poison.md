@@ -18,7 +18,7 @@ Après une très longue attente, il ouvrit soudainement les yeux et s'envola ver
 
 Peu de temps après, Wang Lin s'arrêta devant une stèle de pierre haute de plus de 99 mètres. La tablette émettait une lueur rouge qui lui conférait un aspect démoniaque. Quelques petites créatures se trouvaient sur la pierre, battant des ailes dans un bourdonnement incessant.
 
-En voyant arriver Wang Lin, ces créatures volèrent vers lui et rejoignirent les tornades derrière lui. Wang Lin vit alors quatre grands caractères inscrits sur la stèle: « Chemin sans Retour ».
+En voyant arriver Wang Lin, ces créatures volèrent vers lui et rejoignirent les tornades derrière lui. Wang Lin vit alors trois grands caractères inscrits sur la stèle: « Chemin sans Retour ».
 
 Ces trois mots dégageaient une aura d'antiquité. Wang Lin les observa un instant avant de déplacer son regard vers le coin inférieur droit. Il l'examina attentivement, puis fit un geste de la main. Une bourrasque souffla, balayant la poussière et la saleté de la stèle pour révéler une petite ligne de texte.
 
@@ -36,7 +36,7 @@ Wang Lin ne cherchait pas à savoir si cela était vrai ou faux. Son regard revi
 
 Après un long moment, il fit volte-face et s'envola vers le pont de pierre, les tornades le suivant de près.
 
-De retour au pont, Wang Lin frappa son sac de rangement, et le démon Xu Liguo en sortit immédiatement. Il lança un regard jaloux aux petites créatures et grommela intérieurement: « Et alors s'il a une multitude de petits frères qui le suivent? Moi aussi, j'aurai mes propres disciples! »
+De retour au pont, Wang Lin frappa son sac de rangement, et le démon Xu Liguo en sortit immédiatement. Il lança un regard jaloux aux petites créatures et grommela intérieurement: « Et alors s'il a une multitude de petits frères qui le suivent? Moi, je ne me traînerai jamais de petits frères derrière moi! »
 
 Wang Lin regarda le pont de pierre et le désigna du doigt. Cette fois, Xu Liguo se précipita vers l'ouvrage sans tenter de marchander comme autrefois. Plein d'énergie, il regarda fièrement la tornade en pensant: « Tu vois ça? Ce démon pense toujours que je suis plus important. Pourquoi ne laisserait-il pas le numéro deux s'en charger à sa place? »
 
@@ -54,7 +54,7 @@ Cependant, Wang Lin remarqua que lorsqu'un groupe de créatures tentait le passa
 
 Les yeux de Wang Lin scintillèrent alors qu'il murmurait: « Sans retour... Sans retour... Cela signifie que dès que l'on fait un pas en avant, on ne peut plus faire marche arrière... » Il médita sur cette pensée sans pour autant poser le pied sur le pont.
 
-Il s'assit en position du lotus près de l'ouvrage et sortit deux sacs de rangement. L'un d'eux contenait un fil doré; c'était celui qu'il avait dérobé au cadavre mystérieux lorsqu'il apprenait le Chemin Divin dans le Temple du Dieu de la Guerre.
+Il s'assit en position du lotus près de l'ouvrage et sortit deux sacs de rangement. L'un d'eux était en fil d'or noir; c'était celui qu'il avait dérobé au cadavre mystérieux lorsqu'il apprenait le Chemin Divin dans le Temple du Dieu de la Guerre.
 
 Malheureusement, une force mystérieuse entravait le sac, empêchant son Sens Divin de pénétrer à l'intérieur pour l'ouvrir. Wang Lin savait que ce sac était imprégné du Sens Divin d'autrui et qu'il devait l'effacer avant de pouvoir l'utiliser.
 
@@ -84,7 +84,7 @@ Ces connaissances étaient précieuses pour le Wang Lin actuel; il n'aurait plus
 
 De plus, Bossu Meng était spécialisé dans l'alchimie et le poison, et le sac contenait de nombreux jades dédiés à ces disciplines. Wang Lin passa un long moment à les étudier, ce qui augmenta ses connaissances d'un facteur cent.
 
-Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot: *Underworld* (Sous-monde).
+Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot: *Ming* (Sous-monde).
 
 Cette méthode était décrite comme provenant du dieu démon Qi, qui utilisait le poison comme fondement de son Dao. Elle comptait neuf étapes, et dès la sixième, même des cultivateurs de la Formation de l'Âme ne pourraient résister au venin.
 
@@ -136,7 +136,7 @@ Ce n'est qu'en utilisant la technique d'affinement du Sanctuaire du Dieu de la G
 
 On pouvait dire que cette épée avait énormément servi Wang Lin. D'innombrables vies avaient été fauchées par elle. L'arme avait accumulé une telle intention meurtrière qu'elle pouvait désormais être considérée comme un trésor de mort.
 
-Wang Lin, le visage solennel, passa sa main droite sur la lame. Les lignes de sang devinrent si marquées que l'épée se fissura le long de ces veines et s'effondra au sol en morceaux.
+Wang Lin, le visage solennel, passa sa main droite au-dessus de la lame. Les lignes de sang devinrent si marquées que l'épée se fissura le long de ces veines et s'effondra au sol en morceaux.
 
 Il ne restait plus que des traînées de sang flottant dans l'air, formant l'image fugitive d'une épée qui apparaissait et disparaissait.
 
@@ -156,7 +156,7 @@ Wang Lin murmura: « Toujours pas assez! » Grâce à son Sens Divin, il constat
 
 Les yeux de Wang Lin s'illuminèrent alors que plusieurs objets sortaient de son sac. Sans même les regarder, il en saisit un et le lança avec précision dans le fourneau.
 
-L'objet tomba dans un nuage de fumée verte. Bien que la vitesse de rotation n'ait pas augmenté, la température intérieure décupla instantanément. Le chaudron vert devint alors d'un rouge incandescent.
+L'objet tomba dans une flamme cyan. Bien que la vitesse de rotation n'ait pas augmenté, la température intérieure doubla instantanément. Le chaudron vert devint alors d'un rouge incandescent.
 
 Pourtant, il ne fondait toujours pas.
 
@@ -172,7 +172,7 @@ Ce nuage de fumée brisa le vortex vert avant de retourner mystérieusement à l
 
 Une série de rugissements tonitruants s'échappa de l'objet et des fissures commencèrent à apparaître sur sa surface. Wang Lin se concentra pour observer le chaudron vert: il commençait enfin à fondre, mais d'une lenteur exaspérante. À ce rythme, le fourneau risquait de voler en éclats avant la fin du processus.
 
-Les yeux de Wang Lin scintillèrent. Il leva sa main droite et une flamme bleue apparut, faisant chuter instantanément la température ambiante. C'était la Flamme de l'Inframonde, créée lors de sa maîtrise de la méthode d'ascension infernale.
+Les yeux de Wang Lin scintillèrent. Il leva sa main droite et une flamme bleue apparut, faisant chuter instantanément la température ambiante. C'était la Flamme de l'Inframonde, créée lors de sa maîtrise de la Méthode d'Ascension des Enfers.
 
 Cette flamme glaciale s'était déjà fusionnée avec son Noyau d'Or; elle ne disparaîtrait jamais, mais une utilisation excessive risquait de endommager son noyau.
 

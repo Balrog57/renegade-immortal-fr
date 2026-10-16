@@ -14,7 +14,7 @@ Un rayon de lumière rouge descendit de la brume pourpre. Il était d'une rapidi
 
 L'expression du Maître Dieu Démon changea radicalement et il tenta d'esquiver. Cependant, face au Domaine Ji de Qing Shui, il n'en avait pas la capacité. Le Domaine Ji perça directement sa poitrine.
 
-Les yeux du vieil homme s'éteignirent instantanément et son corps s'effondra. On pourrait dire qu'il mourut de la manière la plus digne parmi les cultivateurs du Nettoyage Nirvana. Au moment de son trépas, une mélancolie infinie l'enveloppa.
+Les yeux du vieil homme s'éteignirent instantanément et son corps s'effondra. On pourrait dire que sa mort fut l'une des plus rapides parmi les cultivateurs du Purificateur du Nirvana. Au moment de son trépas, une mélancolie infinie l'enveloppa.
 
 L'éclair rouge ne s'arrêta pas après avoir transpercé le corps du vieil homme; il balaya toute la zone. On n'entendit que des explosions tandis que les corps de la plupart des cultivateurs environnants s'effondraient!
 
@@ -36,7 +36,7 @@ Alors qu'il tendait le doigt, une voix lugubre s'échappa de la bouche de Qing S
 
 « Sortilège céleste: Effondrement des Montagnes! »
 
-À peine eut-il parlé que le Royaume de la Boucherie trembla et que six montagnes colossales apparurent de nulle part. Chacune d'elles culminait à 20 000 pieds de haut et, dès leur apparition, elles dégagèrent une pression écrasante.
+À peine eut-il parlé que le Royaume de la Boucherie trembla et que six montagnes colossales apparurent de nulle part. Chacune d'elles culminait à plus de six kilomètres de haut et, dès leur apparition, elles dégagèrent une pression écrasante.
 
 Au moment où Qing Shui prononça l'incantation, les six montagnes scintillèrent et fusionnèrent en une seule. Elles devinrent un mont unique, indiscernable d'une véritable montagne!
 
@@ -58,7 +58,7 @@ Certains luttèrent au sein du magma, mais la température était trop élevée.
 
 La fissure que l'homme aux cheveux violets avait ouverte s'effondra immédiatement sous l'effet du sortilège. Il recula, le visage livide. Bien qu'il fût au stade initial du Briseur du Nirvana et qu'il eût utilisé un trésor brisé du Pseudo-Vide du Nirvana, il ne faisait pas le poids face à Qing Shui. À cet instant, une seule pensée l'habitait: s'enfuir le plus vite possible!
 
-« Malheureusement, je suis le seul cultivateur Briseur du Nirvana dans le Royaume de la Boucherie et la plupart des cultivateurs du Nettoyage Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
+« Malheureusement, je suis le seul cultivateur Briseur du Nirvana dans le Royaume de la Boucherie et la plupart des cultivateurs du Purificateur du Nirvana se trouvent au quartier général de l'Alliance. Sinon, avec suffisamment d'aide, j'aurais pu utiliser la formation des 99 épées. Pourtant, je crains que même cette formation ne puisse résister à ce sortilège! »
 
 Quant au Maître Fantôme Vide, son visage pâlit et il renonça à combattre Wang Lin. Voyant Wang Lin le poursuivre, il jura et projeta les neuf épées devant lui. Il savait que Wang Lin était attiré par ces armes et espérait s'en servir pour le distraire.
 

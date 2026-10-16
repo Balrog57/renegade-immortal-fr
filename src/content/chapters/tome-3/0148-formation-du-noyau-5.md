@@ -26,7 +26,7 @@ Au moment où il s'échappait, il savait qu'il avait emprunté une voie sans ret
 
 La fuite de trois cent mille lieues touchait à sa fin, tandis que les cultivateurs de la Formation du Noyau poursuivaient Wang Lin avec acharnement.
 
-Le Grand Ancien déclara d'une voix lente: « Ce vieil homme veut voir jusqu'où ce junior peut courir. Pour avoir tué un Ancien de la Secte de l'Éradication du Mal, même si tu t'enfuis aux confins les plus reculés du monde, tu es déjà mort. » Il agita la main et un symbole doré apparut soudainement. Puis, d'un mouvement vers l'avant, il projeta le symbole.
+Le Grand Ancien déclara d'une voix lente: « Ce vieil homme veut voir jusqu'où ce junior peut courir. Pour avoir tué un Ancien de la Secte de la Lutte contre le Mal, même si tu t'enfuis aux confins les plus reculés du monde, tu es déjà mort. » Il agita la main et un symbole doré apparut soudainement. Puis, d'un mouvement vers l'avant, il projeta le symbole.
 
 La nuque de Wang Lin se hérissa, son corps frissonna, et il esquiva de justesse le symbole. Mais peu après, une série d'autres symboles surgit. Wang Lin les esquiva tous, serrant les dents tout en s'élançant avec précipitation. Graduellement, les cultivateurs derrière lui se rapprochaient. Une idée lui vint à l'esprit. Bien que cette méthode fût extrêmement périlleuse, si elle réussissait, tout danger s'évanouirait.
 
@@ -38,9 +38,9 @@ Dès qu'il approcha du brouillard, celui-ci s'ouvrit pour lui frayer un chemin, 
 
 Cependant, à cet instant précis, une salve de symboles dorés jaillit comme l'éclair et frappa le dos de Wang Lin au moment où il pénétrait dans la brume. Wang Lin cracha une bouchée de sang et s'effondra dans le brouillard, tel un cerf-volant dont on aurait coupé la ficelle.
 
-La jeune fille en violet regarda les cultivateurs de la Formation du Noyau, le visage blême. Elle agita les mains et le brouillard dissimula sa silhouette.
+La jeune fille en violet regarda les cultivateurs de la Formation du Noyau, le visage blême. Elle agita son étendard et le brouillard dissimula sa silhouette.
 
-Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte de l'Éradication du Mal arrivèrent devant la brume. L'un des vieillards, dont la tête était nettement plus massive que celle de ses compagnons, se frotta le crâne et ricana: « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, l'image d'un dragon de 3,3 kilomètres de long apparut.
+Simultanément, les dix cultivateurs de la Formation du Noyau de la Secte de la Lutte contre le Mal arrivèrent devant la brume. L'un des vieillards, dont la tête était nettement plus massive que celle de ses compagnons, se frotta le crâne et ricana: « Cette petite fille appartient à ce vieil homme. Il ne me manquait qu'un fourneau de culture. » Sur ces mots, il lécha ses lèvres, forma une main gigantesque et tenta de saisir la brume. Pourtant, au moment où sa main toucha le brouillard, l'image d'un dragon de 3,3 kilomètres de long apparut.
 
 Le cultivateur à la tête imposante poussa un cri et recula brusquement, les yeux écarquillés par la surprise. Les autres cultivateurs de la Formation du Noyau manifestèrent également leur étonnement en fixant le brouillard.
 
@@ -52,7 +52,7 @@ Qian Kun laissa échapper un reniflement et examina attentivement la formation a
 
 Kun Sang était l'un des trois Anciens qui poursuivaient Wang Lin au début. Sans un mot, il s'avança et agita sa main droite, faisant apparaître un sceau noir. Celui-ci grandit rapidement jusqu'à atteindre la taille d'une petite montagne sous le regard fixe de Kun Sang tourné vers la brume. Il fit un mouvement de la main et la montagne s'abattit.
 
-Le dragon formé par la brume poussa un rugissement fulgurant, chargea et percuta la montagne. Un fracas tonnerre retentit et la petite montagne fut repoussée. Le visage de Kun Sang devint livide; il lui fallut un moment pour stabiliser sa respiration.
+Le dragon formé par la brume poussa un rugissement fulgurant, chargea et percuta la montagne. Un fracas de tonnerre retentit et la petite montagne fut repoussée. Le visage de Kun Sang devint livide; il lui fallut un moment pour stabiliser sa respiration.
 
 Au même instant où la montagne fut expulsée, le dragon se mua de nouveau en brume et disparut. La formation sembla revenir à son état normal.
 
@@ -74,7 +74,7 @@ Quant à Wang Lin, une fois emmené dans la grotte, il cracha immédiatement plu
 
 Sans cette veste de dragon, il aurait été bien plus qu'un simple blessé. Bien que Qian Kun ne fût qu'un cultivateur de stade intermédiaire de la Formation du Noyau, son Symbole Destructeur était redoutable. Quiconque en était frappé voyait tous les os de son corps broyés et mourait sur le coup.
 
-Le visage de Wang Lin était d'une pâleur extrême. Une fois à l'abri dans la grotte, il sortit prestement la boîte en bois contenant le fourneau des Cent Bêtes Pill. Il la remit à Li Muwan et dit d'une voix faible: « C'est un fourneau de pilule de rang 5. Vite, termine la Pilule du Ciel Lointain. » Sur ces mots, il fit apparaître l'épée volante de cristal.
+Le visage de Wang Lin était d'une pâleur extrême. Une fois à l'abri dans la grotte, il sortit prestement la boîte en bois contenant le Four à Pilules des Cent Bêtes. Il la remit à Li Muwan et dit d'une voix faible: « C'est un fourneau de pilule de rang 5. Vite, termine la Pilule du Ciel Lointain. » Sur ces mots, il fit apparaître l'épée volante de cristal.
 
 L'épée se posa lentement sur son épaule, émettant une lueur froide. Bien qu'il possédât l'essence de sang de l'âme de Li Muwan, il ne lui faisait pas encore une confiance absolue. Des précautions nécessaires devaient être prises.
 

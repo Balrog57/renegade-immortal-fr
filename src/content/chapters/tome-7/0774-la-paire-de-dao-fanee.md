@@ -6,9 +6,9 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 774 - Withered Dao Pair
 slug: la-paire-de-dao-fanee
 ---
-Li Yuan avait déjà atteint le sommet du stade avancé de l'Ascendant. La raison pour laquelle il n'avait pas encore atteint le stade Illusoire Yin était que son corps manquait d'énergie originelle.
+Li Yuan avait déjà atteint le sommet du stade avancé de l'Ascendant. La raison pour laquelle il n'avait pas encore atteint le stade Yin Illusoire était que son corps manquait d'énergie originelle.
 
-Wang Lin venait de le nourrir avec trois âmes originelles. En particulier, l'une d'elles était l'âme originelle d'un cultivateur au stade Illusoire Yin, gorgée d'énergie originelle. Grâce à cela, les chances de percée de Li Yuan avaient considérablement augmenté.
+Wang Lin venait de le nourrir avec trois âmes originelles. En particulier, l'une d'elles était l'âme originelle d'un cultivateur au stade Yin Illusoire, gorgée d'énergie originelle. Grâce à cela, les chances de percée de Li Yuan avaient considérablement augmenté.
 
 Après avoir posé certaines restrictions autour de Li Yuan, Wang Lin s'assit à ses côtés et commença à réfléchir.
 
@@ -40,9 +40,9 @@ Ses yeux s'illuminèrent et son énergie originelle se déversa dans son sens di
 
 Cette aspiration semblait sans fin, aspirant son sens divin comme si elle voulait dévorer toute son âme originelle. Après avoir réfléchi un instant, Wang Lin retira son sens divin des os de bêtes.
 
-Puis, ses mains formèrent des sceaux et il en déposa d'innombrables aux alentours. Son énergie originelle se propagea alors, enveloppant tout dans un rayon de 10 000 pieds autour de lui. Un brouillard blanc, saturé de son énergie originelle, apparut.
+Puis, ses mains formèrent des sceaux et il en déposa d'innombrables aux alentours. Son énergie originelle se propagea alors, enveloppant tout dans un rayon de 3,3 kilomètres autour de lui. Un brouillard blanc, saturé de son énergie originelle, apparut.
 
-Si un étranger passait par là et voyait ce brouillard, il n'oserait rien faire d'imprudent, car cette brume était chargée d'une pression d'énergie originelle écrasante. Même des cultivateurs au stade Illusoire Yin ou Corporel Yang seraient extrêmement prudents.
+Si un étranger passait par là et voyait ce brouillard, il n'oserait rien faire d'imprudent, car cette brume était chargée d'une pression d'énergie originelle écrasante. Même des cultivateurs au stade Yin Illusoire ou Corporel Yang seraient extrêmement prudents.
 
 Cela signifiait qu'un cultivateur du deuxième stade se trouvait à l'intérieur de ce brouillard et ne voulait pas être dérangé. Quiconque tenterait d'entrer serait attaqué par l'énergie originelle contenue dans la brume.
 
@@ -116,11 +116,11 @@ La famille Yao n'avait pas envoyé une seule équipe dans le Royaume Céleste du
 
 « La Galerie des Collections... » Les yeux de Wang Lin brillèrent.
 
-À ce moment précis, la respiration de Li Yuan devint saccadée et il ouvrit lentement les yeux. Il regarda devant lui et soupira: « Merci, Frère Xu, mais il semble que je ne sois pas destiné à atteindre le stade Illusoire Yin. Mon âme originelle n'a pas pu supporter une telle quantité d'énergie originelle. »
+À ce moment précis, la respiration de Li Yuan devint saccadée et il ouvrit lentement les yeux. Il regarda devant lui et soupira: « Merci, Frère Xu, mais il semble que je ne sois pas destiné à atteindre le stade Yin Illusoire. Mon âme originelle n'a pas pu supporter une telle quantité d'énergie originelle. »
 
 Li Yuan baissa la tête et regarda son bras brisé. Après avoir parlé, il s'enferma dans le silence.
 
-Wang Lin leva la main droite et tout le brouillard originel se retira. Il observa attentivement Li Yuan et sourit: « Frère Li, ne vous sous-estimez pas. L'énergie originelle dans votre corps nourrit votre âme originelle. Une fois que vous l'aurez totalement absorbée, vous atteindrez le stade Illusoire Yin. Ce jour viendra, que ce soit tôt ou tard, mais il arrivera certainement! »
+Wang Lin leva la main droite et tout le brouillard originel se retira. Il observa attentivement Li Yuan et sourit: « Frère Li, ne vous sous-estimez pas. L'énergie originelle dans votre corps nourrit votre âme originelle. Une fois que vous l'aurez totalement absorbée, vous atteindrez le stade Yin Illusoire. Ce jour viendra, que ce soit tôt ou tard, mais il arrivera certainement! »
 
 Les yeux de Li Yuan brillèrent et il hocha la tête. Il se leva et s'inclina devant Wang Lin: « Frère Xu, je vous suis extrêmement redevable. Je garderai cela dans mon cœur et ne l'oublierai jamais. »
 

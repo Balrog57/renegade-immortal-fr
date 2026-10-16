@@ -8,7 +8,7 @@ slug: les-traces-de-la-cupidite
 ---
 L'homme d'âge moyen s'appelait Hai Zhu. Au moment où Wang Lin lui trancha la tête, il scella son âme originelle. Avec le niveau de culture de Wang Lin au stade Ascendant, il fut d'une facilité déconcertante de sceller l'âme originelle d'un cultivateur du stade avancé de la Transformation de l'Âme!
 
-Wang Lin emporta la tête et partit. Il fut comme une brise printanière qui disparut en un clin d'œil. Quant à l'émeraude de l'Empereur, il ne la récupéra pas car elle lui était inutile. Cependant, c'était un présent que le Démon Empereur avait offert en signe de bonne foi; s'il ne l'avait pas acceptée, il aurait paru bien trop arrogant.
+Wang Lin emporta la tête et partit. Il fut comme une brise printanière qui disparut en un clin d'œil. Quant au jade de l'Empereur, il ne le récupéra pas car elle lui était inutile. Cependant, c'était un présent que le Démon Empereur avait offert en signe de bonne foi; s'il ne l'avait pas acceptée, il aurait paru bien trop arrogant.
 
 Tandis qu'il s'éloignait à toute allure, il ne daigna même pas se retourner pour regarder les dix millions de soldats démons. Il s'élança dans les airs et disparut.
 
@@ -36,7 +36,7 @@ Les sourcils de Wang Lin se contractèrent violemment.
 
 « D'où vient cette perle défiant le ciel... Pourquoi l'Alliance de la Culture s'intéresse-t-elle tant à elle... Cette perle m'accompagne depuis des centaines d'années. À part le fait que le temps peut s'inverser à l'intérieur, elle n'a presque aucune autre capacité. Même si l'on s'y cache, face à un cultivateur puissant, on ne pourra pas fuir et l'on sera inévitablement découvert. Quoi qu'on en dise, cette perle n'est qu'un objet ordinaire. Bien qu'elle puisse inverser le temps, elle n'est utile qu'aux cultivateurs de bas niveau. Pour les puissants, une grande quantité de jades célestes est bien plus attrayante. »
 
-Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même: « À l'origine, il y avait cinq disciples de la Secte de l'Épée Da Lou, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel de la Secte de l'Épée Da Lou, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul survivant dans le Pays des Démons Célestes. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
+Wang Lin laissa échapper un soupir. Puis, son regard devint aussi tranchant que des lames et il murmura pour lui-même: « À l'origine, il y avait cinq disciples de la Secte de l'Épée Da Lou, avec Chen Long comme chef. Après la mort de Mo Yang, bien qu'ils n'en soient pas sûrs, ils sont devenus soupçonneux à mon égard. Vu le mode opératoire habituel de la Secte de l'Épée Da Lou, ils auraient dû envoyer quelqu'un pour enquêter, mais ils n'ont rien fait. Selon les souvenirs de Hai Zhu, ce Cupidité se trouvait dans le Pays des Démons de Feu à l'époque. Il semble y avoir découvert un secret... Après ces dix ans, Hai Zhu était le seul à être resté dans le Pays des Démons Célestes. Les trois autres sont partis au Pays des Démons de Feu pour rencontrer Cupidité... C'est vrai, Zi Shu a dû également s'y rendre. Cependant, en chemin, il avait l'intention de me tuer, alors je l'ai éliminé. »
 
 « Qu'a donc découvert ce Cupidité... » Les yeux de Wang Lin s'illuminèrent.
 
@@ -58,7 +58,7 @@ Il passa ce temps dans la vallée, continuant à graver son empreinte sur le dé
 
 Trois mois passèrent rapidement. Grâce aux trésors confiés par Wang Lin, Treize et Ouyang Hua réussirent à dévorer les trois tribus une à une. Un grand nombre de membres de tribus étrangères furent contraints de boire la soupe d'effacement de mémoire pour devenir membres du Clan de l'Affinement de l'Âme.
 
-Pour ces nouveaux membres n'ayant jamais pratiqué le sort d'affinement de l'âme, Wang Lin sortit l'étendard des âmes contenant un milliard d'âmes et l'agita. Une multitude de fragments d'âmes s'envolèrent et, sous le contrôle de Wang Lin, pénétrèrent dans le corps des membres du clan. Loin de leur nuire, ces fragments coexistaient avec eux.
+Pour ces nouveaux membres n'ayant jamais pratiqué le sort d'affinement de l'âme, Wang Lin sortit l'étendard des âmes et l'agita. Une multitude de fragments d'âmes s'envolèrent et, sous le contrôle de Wang Lin, pénétrèrent dans le corps des membres du clan. Loin de leur nuire, ces fragments coexistaient avec eux.
 
 Ensuite, Wang Lin propagea son énergie de la boucherie pour la fusionner avec ces personnes. C'est ainsi qu'une seconde vague de trente mille hommes fut envoyée au Pays des Démons de Feu!
 

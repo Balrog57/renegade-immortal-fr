@@ -58,7 +58,7 @@ Une fois les deux hommes partis, le domaine de Zhou Yi réapparut, couvrant les 
 
 Le temps passa rapidement. Ce jour-là, Wang Lin prodiguait des soins à Li Muwan. Celle-ci essuya la sueur du front de Wang Lin et murmura: « Je sens que mon corps ne peut plus tenir. Ce n'est pas grave. »
 
-Wang Lin secoua la tête. Il y un mois, il ne devait soigner son corps qu'une fois par jour; désormais, il devait le faire trois fois en deux jours. Cela signifiait que l'état de Li Muwan continuait de décliner.
+Wang Lin secoua la tête. Il y a un mois, il ne devait soigner son corps qu'une fois par jour; désormais, il devait le faire trois fois en deux jours. Cela signifiait que l'état de Li Muwan continuait de décliner.
 
 Wang Lin dit solennellement: « Tu ne mourras pas! »
 
@@ -110,7 +110,7 @@ Wang Lin se retourna vers la maison de pierre avant de sortir une épée trésor
 
 La nuit passa lentement, la lumière lunaire faiblissant peu à peu. Puis, alors que le soleil émergeait à l'est, la lune disparut.
 
-Cette nuit-là, Wang Lin maîtrisa neuf restrictions qu'il ajouta toutes au drapeau de restriction. Il y avait désormais 145 groupes de restrictions sur le drapeau, ce qui était encore bien loin de l'objectif des 999 groupes.
+Cette nuit-là, Wang Lin maîtrisa neuf restrictions qu'il ajouta toutes au drapeau de restriction. Il y avait désormais 145 groupes de restrictions sur le drapeau, ce qui était encore bien loin de l'objectif des 990 groupes.
 
 Trois jours plus tard, Wang Lin et Li Muwan quittèrent la vallée, suivis par Tie Yan et Lu Fei. Wang Lin ne prit pas la pagode, la laissant là. À moins qu'un cultivateur Ascendant n'apparaisse, personne sur Suzaku ne pourrait l'emporter.
 
@@ -118,6 +118,6 @@ Trois jours plus tard, Wang Lin et Li Muwan quittèrent la vallée, suivis par T
 
 Dans la Mer des Démons, près de la frontière de Huo Fen, un réseau de transfert s'alluma soudainement et quatre personnes en sortirent. Il y avait trois hommes et une femme. L'homme et la femme marchant devant étaient manifestement un couple de cultivateurs, tandis que les deux autres derrière eux servaient de gardes.
 
-Li Muwan soupira: « Je ne suis pas revenue ici depuis de nombreuses années. Wang Lin, retournons voir cette Formation du Dragon de Bataille. Je me demande combien de personnes de l'époque sont encore en vie... »
+Li Muwan soupira: « Je ne suis pas revenue ici depuis de nombreuses années. Wang Lin, retournons voir cette Formation du Dragon Azure. Je me demande combien de personnes de l'époque sont encore en vie... »
 
-« La Formation du Dragon de Bataille. » Wang Lin se souvint que Li Muwan lui avait offert jadis un jade contenant cette formation.
+« La Formation du Dragon Azure. » Wang Lin se souvint que Li Muwan lui avait offert jadis un jade contenant cette formation.

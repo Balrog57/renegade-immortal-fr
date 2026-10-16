@@ -39,7 +39,7 @@ Wang Lin rangea l'épée volante et entra. Après avoir posé plusieurs restrict
 
 « Tout cela est enveloppé d'un brouillard que je ne parviens pas à percer. Je dois trouver un moyen de voir clair dans tout cela, et surtout comprendre l'histoire qui se cache derrière le Pavillon des Nuages Pourpres! »
 
-Le Secte du Destin Céleste était très calme tard dans la nuit. Hormis les quelques disciples de garde, tous les autres étaient en pleine culture.
+La Secte du Destin Céleste était très calme tard dans la nuit. Hormis les quelques disciples de garde, tous les autres étaient en pleine culture.
 
 Wang Lin ouvrit les yeux au milieu de la nuit, se leva et sortit de la grotte qu'il avait lui-même créée. Ses yeux s'illuminèrent tandis qu'il inspectait les environs, puis, d'un pas, il se transforma en une fumée noire et disparut.
 
@@ -63,7 +63,7 @@ Cette femme apparaissait chaque jour devant le Pavillon des Nuages Pourpres au l
 
 Si cela continuait ainsi, Wang Lin n'y verrait aucun inconvénient. Pouvoir cultiver sans être importuné était très apaisant. Cependant, l'après-midi du dix-septième jour, alors que Wang Lin cultivait dans sa grotte, il fronça soudain les sourcils et regarda vers l'extérieur.
 
-Dehors, deux rayons de lumière arrivaient du loin. Après avoir tournoyé une fois, ils se posèrent non loin de là, révélant deux vieillards vêtus de robes pourpres claires. L'un était corpulent et l'autre svelte. Tous deux affichaient des expressions froides en contemplant la grotte de Wang Lin. L'un d'eux cria: « Quel disciple a osé creuser une grotte ici sans l'autorisation d'un Ancien? Sors d'ici, immédiatement! »
+Dehors, deux rayons de lumière arrivaient de loin. Après avoir tournoyé une fois, ils se posèrent non loin de là, révélant deux vieillards vêtus de robes pourpres claires. L'un était corpulent et l'autre svelte. Tous deux affichaient des expressions froides en contemplant la grotte de Wang Lin. L'un d'eux cria: « Quel disciple a osé creuser une grotte ici sans l'autorisation d'un Ancien? Sors d'ici, immédiatement! »
 
 La silhouette de Wang Lin émergea de la grotte. Son visage était sombre alors qu'il fixait les deux vieillards. Tous deux étaient au stade initial de la Transformation de l'Âme.
 
@@ -85,7 +85,7 @@ Les expressions des deux Anciens changèrent instantanément et ils reculèrent 
 
 L'un des Anciens s'écria: « Tu oses attaquer un Ancien disciplinaire?! »
 
-Cependant, le Fouet d'Âme était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de trois pouces.
+Cependant, le Fouet d'Âme était d'une rapidité extrême. Après une traînée d'images rémanentes, l'expression de l'Ancien qui avait crié se mua instantanément. Son corps fut secoué et, dans un craquement net, il fut projeté en arrière. Du sang s'échappa du coin de sa bouche et son âme originelle fut expulsée de près d'un mètre.
 
 Le Fouet d'Âme était spécialisé dans l'attaque des âmes originelles!
 
@@ -93,7 +93,7 @@ Une terreur inimaginable se lut sur son visage alors qu'il luttait pour réinté
 
 Le visage du second Ancien pâlit immédiatement et, sans dire un mot, il projeta la lumière blanche qu'il tenait en avant. Une épée pourpre apparut instantanément dans sa main, puis il pointa Wang Lin du doigt en criant: « Sept Étoiles Brisées! »
 
-À peine eut-il parlé que l'épée pourpre se fendit en sept morceaux. Ces fragments, porteurs de l'aura d'une armée de dix mille hommes, chargèrent vers Wang Lin.
+À peine eut-il parlé que l'épée pourpre se fendit en sept morceaux. Ces fragments, porteurs d'une force écrasante, chargèrent vers Wang Lin.
 
 Wang Lin se retourna brusquement et ses yeux s'illuminèrent. Une intention meurtrière colossale jaillit de son regard.
 
@@ -107,7 +107,7 @@ Sans hésiter, l'Ancien fit volte-face pour s'enfuir. Il avait clairement vu ce 
 
 Après avoir constaté cela, comment l'Ancien ne pouvait-il être terrifié? Il maudit intérieurement son sort: s'il avait su, il n'aurait jamais écouté Zhao Xingsha. Mais ses regrets étaient désormais inutiles.
 
-Wang Lin ne da même pas un regard à cet Ancien. D'un pas, il atteignit celui dont l'âme originelle avait été fouettée. L'Ancien luttait encore contre l'éclair lorsqu'il sentit Wang Lin approcher. Prêt à abandonner toute résistance pour tenter de s'enfuir, il fut stoppé net.
+Wang Lin ne daigna même pas jeter un regard à cet Ancien. D'un pas, il atteignit celui dont l'âme originelle avait été fouettée. L'Ancien luttait encore contre l'éclair lorsqu'il sentit Wang Lin approcher. Prêt à abandonner toute résistance pour tenter de s'enfuir, il fut stoppé net.
 
 Le regard de Wang Lin était d'une froideur absolue. Il agita la main et le Drapeau de Restriction apparut dans sa paume. D'un mouvement, d'innombrables restrictions jaillirent, scellant totalement la voie de fuite de l'âme originelle de l'Ancien.
 
@@ -119,11 +119,11 @@ Serrant les dents, il se retourna brusquement en hurlant: « Je suis un Ancien d
 
 Wang Lin ricana: « On dirait que tu connais mon identité! » Il retira sa main droite, arrachant l'âme originelle dans un cri de détresse.
 
-Au même moment, Wang Lin frappa son sac et une cloche s'en échappa. La cloche grandit jusqu'à atteindre trois mètres de long; Wang Lin projeta l'âme originelle vers elle, qui l'emprisonna aussitôt.
+Au même moment, Wang Lin frappa son sac et une cloche s'en échappa. La cloche grandit jusqu'à atteindre environ dix mètres de long; Wang Lin projeta l'âme originelle vers elle, qui l'emprisonna aussitôt.
 
 « Affine! » cria Wang Lin en se retournant.
 
-Là-bas, le second Ancien fut repoussé, affichant une expression amère. Il restait à 50 kilomètres de Wang Lin, n'osant plus bouger d'un pouce. La lame en demi-lune planait menaçamment devant lui, tandis que les rires arrogants de Xu Liguo résonnaient depuis l'Épée Céleste.
+Là-bas, le second Ancien fut repoussé, affichant une expression amère. Il restait à une trentaine de mètres de Wang Lin, n'osant plus bouger d'un pouce. La lame en demi-lune planait menaçamment devant lui, tandis que les rires arrogants de Xu Liguo résonnaient depuis l'Épée Céleste.
 
 « Petit-fils, reste tranquille pour ton grand-père Xu. Si tu oses bouger d'un seul pouce, je te découperai un morceau! »
 

@@ -18,7 +18,7 @@ En entendant ces hurlements, le vieil homme poussa un long soupir et abandonna t
 
 Wang Lin ne bougea pas et se contenta de le fixer froidement.
 
-Le visage du vieil homme était amer. Il regarda la lame en croissant de lune qui flottait devant lui et déclara: « L'Ancêtre accepte un total de sept disciples issus de chacune des sept divisions, et il prend également des disciples de l'extérieur. Cependant, seul un disciple par division est un véritable disciple. Bien que les autres soient toujours considérés comme des disciples, ils ne recevront pas l'héritage de l'Ancêtre. »
+Le visage du vieil homme était amer. Il regarda la lame en croissant de lune qui flottait devant lui et déclara: « L'Ancêtre accepte un total de sept disciples issus de chacune des sept divisions. Cependant, seul un disciple par division est un véritable disciple, et ces sept-là sont appelés les sept véritables disciples de l'Omniscient. Bien que les autres soient toujours considérés comme des disciples, ils ne recevront pas l'héritage de l'Ancêtre. »
 
 Wang Lin resta silencieux, écoutant attentivement. Sa simple présence dégageait une aura d'arrogance. Le Wang Lin d'aujourd'hui était bien différent de celui qui était arrivé à la Secte du Destin Céleste.
 
@@ -76,13 +76,13 @@ L'expression de la femme changea radicalement. En un éclair, elle disparut. Sa 
 
 Wang Lin laissa échapper un reniflement méprisant, puis pointa le ciel et hurla: « Rassemblement! »
 
-L'énergie spirituelle céleste contenue dans son corps se concentra dans sa paume. Une immense sphère de lumière de dix pieds de large apparut soudainement au-dessus de sa main.
+L'énergie spirituelle céleste contenue dans son corps se concentra dans sa paume. Une immense sphère de lumière de 3,3 mètres de large apparut soudainement au-dessus de sa main.
 
 Sans hésiter, Wang Lin pressa la sphère vers le bas en ordonnant: « Sors! »
 
 La sphère plongea du ciel avec la rapidité de la foudre. Elle percuta le sol dans un rugissement tonitruant avant de fusionner avec la terre. À cet instant, le sol trembla comme si un dragon gigantesque s'agitait en son sein.
 
-À mille pieds de là, un rayon de lumière blanche jaillit du sol, révélant l'expression terrifiée de la femme.
+À plus de trois cents mètres de là, un rayon de lumière blanche jaillit du sol, révélant l'expression terrifiée de la femme.
 
 Le regard de Wang Lin restait glacial tandis qu'il fixait la femme et déclarait: « À partir d'aujourd'hui, ce Pavillon du Nuage Violet sera renommé le Pavillon de la Forêt Violette! » Sur ces mots, Wang Lin fit un geste de la main.
 
@@ -94,9 +94,9 @@ La femme en pourpre resta pétrifiée devant l'inscription « Pavillon de la For
 
 Sur ces mots, elle s'élança et disparut totalement. Une brise souffla et Wang Lin fronça les sourcils en reculant rapidement. Cette brise était saturée d'intention meurtrière. Après un fracas retentissant, l'endroit où Wang Lin se tenait quelques instants plus tôt se couvrit de larges fissures!
 
-Alors que Wang Lin s'éloignait, la femme en pourpre surgit de la brise. Ses yeux étaient injectés de sang et brûlaient d'une soif de sang dévorante. Elle toucha sa sacoche spatiale et un rayon de lumière rouge en jaillit. En montant dans les airs, cette lueur se mua en un phénix rouge flamboyant. Le phénix poussa un cri strident et soudain, les environs furent engloutis par une mer de feu. Cependant, aucune flamme ne toucha le Pavillon de la Forêt Violette; elles foncèrent toutes vers Wang Lin comme une vague violente.
+Alors que Wang Lin s'éloignait, la femme en pourpre surgit de la brise. Ses yeux étaient injectés de sang et brûlaient d'une soif de sang dévorante. Elle toucha sa sacoche spatiale et un rayon de lumière rouge en jaillit. En montant dans les airs, cette lueur se mua en un phénix rouge flamboyant. Le phénix poussa un cri strident et soudain, les environs furent engloutis par une mer de feu. Cependant, aucune flamme ne toucha le Pavillon de la Forêt Violette; elles foncèrent toutes vers Wang Lin comme de la lave tombant du ciel.
 
-Les yeux de Wang Lin s'illuminèrent. Il tendit la main et l'épée céleste apparut dans sa paume. L'énergie spirituelle céleste se concentra sur la lame avant qu'il ne porte un coup. Un rayon d'énergie de l'épée jaillit et percuta la mer de flammes dans une explosion sourde.
+Les yeux de Wang Lin s'illuminèrent. Il tendit la main et l'épée céleste apparut dans sa paume. L'énergie spirituelle céleste se concentra sur la lame avant qu'il ne porte un coup. Un rayon d'énergie de l'épée, long d'une dizaine de mètres, jaillit et percuta la mer de flammes dans une explosion sourde.
 
 Le bruit fut assourdissant, résonnant à travers toute la montagne. Ce rayon d'énergie fendit la mer de feu. Alors que Wang Lin sortait calmement des flammes, il pointa son pouce vers l'avant.
 

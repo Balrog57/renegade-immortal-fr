@@ -12,7 +12,7 @@ slug: pays-de-culture-de-rang-6
 
 L'expression de Wang Lin changea. Il leva la tête et fixa les deux anneaux de sang.
 
-Du Tian dit d'une voix lente: « Jeun ami, nul besoin de regarder; mon frère aîné est décédé il y a deux ans, sa longévité étant arrivée à son terme. Même le Suzaku actuel n'en est pas informé. »
+Du Tian dit d'une voix lente: « Jeune ami, nul besoin de regarder; mon frère aîné est décédé il y a deux ans, sa longévité étant arrivée à son terme. Même le Suzaku actuel n'en est pas informé. »
 
 Wang Lin réfléchit en silence.
 
@@ -50,7 +50,7 @@ Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin et éclata de rire. Pui
 
 Wang Lin prit la pierre de jade, l'examina rapidement avant de la ranger dans son sac.
 
-« Maintenant que ceci est fait, je dois entrer en culture fermée pour préparer mon âme à être intégrée au drapeau. Il vaut mieux que tu ne quittes pas la Secte, car si un danger surgit, je ne pourrai pas t'aider. »
+« Maintenant que ceci est fait, je dois entrer en culture fermée pour préparer mon âme à être intégrée au drapeau. Il vaut mieux que tu ne t'éloignes pas à plus de 5 000 km de la Secte, car si un danger surgit, je ne pourrai pas t'aider. »
 
 Wang Lin esquissa un léger sourire: « Aucun problème. Si je n'étais pas capable de me protéger, je ne serais plus en vie aujourd'hui. Ne vous inquiétez pas, Senior. J'ai des affaires personnelles à régler. Je m'assurerai d'être de retour avant que vous ne sortiez de votre culture fermée. »
 
@@ -126,6 +126,6 @@ Voici le véritable Wang Lin: le corps original à l'extérieur et la culture de
 
 Sous la pluie, Wang Lin ressemblait à un dieu démon alors qu'il fixait Xue Yue.
 
-« Li Yuanfeng de Xue Yue, l'ancêtre du Clan des Démons Géants et Sun Tai, qui a profité de l'occasion pour me sceller... Maintenant que j'ai recouvré ma culture, je viens réclamer mes dettes auprès de chacun d'entre vous! »
+« Li Yuanfeng de Xue Yue, l'ancêtre du Clan des Démons Géants, et Sun Tai, qui a profité de l'occasion pour me sceller... Maintenant que j'ai recouvré ma culture, je viens réclamer mes dettes auprès de chacun d'entre vous! »
 
 « Le premier sur la liste est Li Yuanfeng. Voyons si la culture de Transformation de l'Âme que tu as obtenue par la force est plus puissante que mon corps original fusionné avec mon avatar! »

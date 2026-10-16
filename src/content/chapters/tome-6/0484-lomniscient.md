@@ -16,7 +16,7 @@ Son expression était glaciale tandis que la flamme dansait entre ses doigts. Gr
 
 Au moment où le brouillard noir se referma, la flamme démoniaque au bout du doigt de Wang Lin jaillit et fusionna avec la brume.
 
-En un éclair, le brouillard noir commença à bouillonner comme de l'eau en ébullition. Il s'agita violemment avant de s'arrêter à trois pouces de Wang Lin, puis de reculer. Un cri de choc retentit de l'intérieur du brouillard alors qu'il se retirait.
+En un éclair, le brouillard noir commença à bouillonner comme de l'eau en ébullition. Il s'agita violemment avant de s'arrêter à un mètre de Wang Lin, puis de reculer. Un cri de choc retentit de l'intérieur du brouillard alors qu'il se retirait.
 
 Wang Lin ricana. Il chargea et le Fouet de l'Âme apparut dans sa main. Il abattit violemment le fouet à plusieurs reprises sur le brouillard noir.
 
@@ -32,7 +32,7 @@ Le visage de Zhao Xingsha se décomposa et il ricana. Au lieu de reculer, il s'�
 
 Wang Lin afficha un regard de mépris, pointa le char de guerre à ses côtés et ordonna: « Sceau, libère! »
 
-À peine eut-il prononcé ces deux mots qu'un rugissement qui ébranla toute la zone environnante jaillit du char de guerre.
+À peine eut-il prononcé ces deux mots qu'un rugissement qui ébranla toute la zone environnante, audible à plus de 10 000 kilomètres à la ronde, jaillit du char de guerre.
 
 Ce rugissement portait en lui une nature indomptable et puissante; il était inflexible face aux cieux, face à la terre, face aux immortels, face aux démons, inflexible face à toute chose en ce monde.
 
@@ -42,7 +42,7 @@ Une bête spirituelle gigantesque, haute de plus de 330 mètres, surgit du char 
 
 Dès l'apparition de la bête, Bai Wei recula sans l'ombre d'une hésitation. Il ne s'arrêta que lorsqu'il fut à plus de 3,3 kilomètres de là, fixant la créature avec terreur dans les yeux.
 
-Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plusieurs centaines de pieds. À en juger par son regard, même elle redoutait cette bête.
+Quant à la femme qui se trouvait au stade avancé de la Transformation de l'Âme, son expression changea également et elle recula rapidement de plus d'un kilomètre. À en juger par son regard, même elle redoutait cette bête.
 
 Si de tels êtres réagissaient ainsi, il ne fallait même pas parler des autres disciples de la division pourpre. Un à un, leurs visages se couvrirent de choc. Le rugissement précédent avait secoué le cœur de beaucoup d'entre eux; certains n'étaient même plus capables de léviter, car le flux d'énergie spirituelle en leur sein avait été bloqué.
 
@@ -62,7 +62,7 @@ L'expression de Zhao Xingsha changea radicalement; il recula en hurlant: « Troi
 
 Wang Lin ricana et ignora Zhao Xingsha, continuant de fouetter le brouillard noir. Les cris émanant de la brume devinrent de plus en plus stridents. Trois respirations plus tard, le brouillard s'effondra et l'homme d'âge moyen réapparut.
 
-L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de trois pouces.
+L'homme était livide et ses yeux étaient ternes. À l'instant où il toucha le sol, ses jambes tremblèrent et il faillit s'effondrer. C'est alors que le coup de fouet de Wang Lin frappa, expulsant son âme originelle de son corps de près d'un mètre.
 
 Wang Lin rangea le Fouet de l'Âme et sortit l'étendard de l'âme. D'un geste, plusieurs âmes primaires en jaillirent et se précipitèrent sur l'homme d'âge moyen.
 
@@ -108,7 +108,7 @@ Une fois cela fait, le regard du vieil homme se posa sur Wang Lin et il sourit: 
 
 Wang Lin agita la main droite pour faire revenir le piège à bêtes à son poignet. Il leva les yeux vers le vieil homme, son aura dominante s'étant dissipée, et joignit ses mains: « Le junior Wang Lin salue le senior l'Omniscient. »
 
-Le vieil homme observa le Pavillon de la Forêt Pourpre qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon de la Forêt Pourpre ».
+Le vieil homme observa le Pavillon de la Forêt Violette qui avait été largement détruit lors du grand combat. La seule partie encore relativement intacte était l'enseigne portant les trois mots: « Pavillon de la Forêt Violette ».
 
 « Quel beau nom! » Le vieil homme caressa sa barbe blanche avant de pointer le pavillon du doigt. Une douce lumière blanche enveloppa l'édifice, qui fut alors totalement restauré, comme s'il n'avait jamais été endommagé. Même les fissures dans la terre, les rochers brisés et les arbres déracinés furent remis en état.
 

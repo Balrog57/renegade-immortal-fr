@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 180 - The Unlucky Ancient Emperor
 slug: lempereur-antique-malchanceux
 ---
-Avec une concentration extrême, Wang Lin emprunta le sentier de la montagne. Sept années s'étaient écoulées. Chaque fois qu'il brisait une restriction, il la modifiait légèrement et en ajoutait quelques-unes de plus. Si le chemin qu'il empruntait ressemblait à un enfer où chaque pas était périlleux, il faisait en sorte que l'herbe se transforme en glace. Tout cela combiné donnait l'impression que les cieux et la terre cherchaient à vous engloutir.
+Avec une concentration extrême, Wang Lin emprunta le sentier de la montagne. Sept années s'étaient écoulées. Chaque fois qu'il brisait une restriction, il la modifiait légèrement et en ajoutait quelques-unes de plus. Si le chemin qu'il empruntait ressemblait à un enfer où chaque pas était périlleux, le danger avait été multiplié plusieurs fois. Tout cela combiné donnait l'impression que les cieux et la terre cherchaient à vous engloutir.
 
 Si quelqu'un avait la malchance de s'y heurter, il perdrait une couche de peau s'il ne mourait pas sur le coup.
 
@@ -26,7 +26,7 @@ Même Wang Lin lui-même était perplexe. Il semblait que son talent médiocre n
 
 Depuis deux jours, Wang Lin méditait profondément en fixant ce nuage. Il sortit un jade pour y inscrire quelques mots, puis traça des schémas sur le sol.
 
-Ce nuage semblait très subtil aux yeux de Wang Lin. Ses restrictions encerclaient toute la montagne. Si quiconque voulait les franchir, il devait voler à travers elles et compter sur sa chance pour survivre.
+Ce nuage semblait très subtil aux yeux de Wang Lin. Ce lieu formait une faille semblable à une falaise, et il fallait voler pour la franchir.
 
 Il y a sept ans, Wang Lin aurait dû utiliser de petits animaux pour tester une percée dans ses techniques. Cependant, avec sa compréhension actuelle des restrictions, et particulièrement grâce à son regard perçant, il n'avait besoin que de fixer le nuage un court instant. Sans comprendre pleinement la restriction, il pouvait déjà identifier celle qui était en place: elle empêchait le vol.
 
@@ -108,7 +108,7 @@ Au cours des sept dernières années, les voyages du Seigneur Démon des Six Dé
 
 Il se détourna et pressa le pas.
 
-Au même moment, une personne sortit du tourbillon au pied de la montagne. Cette personne tenait un fouet et portait un voile couvrant son visage, dégageant une aura douce et féerique. Elle marchait avec assurance.
+Au même moment, une personne sortit du tourbillon au pied de la montagne. Cette personne tenait un chasse-mouches et portait une haute coiffe, dégageant une aura douce et féerique. Elle marchait avec assurance.
 
 C'était l'Empereur Antique.
 
@@ -128,7 +128,7 @@ Après être entré dans la deuxième épreuve, l'Empereur Antique poussa un pro
 
 Pour entrer dans le troisième essai, il fallait maîtriser les restrictions. C'était une leçon qu'il avait apprise par cœur. S'il n'avait pas eu cette vitesse incroyable qui lui avait permis de traverser le tunnel en trois respirations toutes ces années auparavant, il serait mort, même s'il avait tué tous ceux qui étaient présents ce jour-là.
 
-Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Bossu Meng. Il y a plus de 1000 ans, il était déjà au stade intermédiaire de la Formation de l'Âme et était le chef de la dernière expédition.
+Il n'était pas comme le Seigneur Démon des Six Désirs, Duanmu ou Bossu Meng. Il y a plus de 1000 ans, il était déjà au stade intermédiaire de la Formation de l'Âme et faisait partie des principaux membres de la dernière expédition.
 
 À l'époque, le Seigneur Démon des Six Désirs et les autres n'étaient que des juniors à ses yeux. Sans sa blessure grave après sa fuite, comment ces trois pourraient-ils encore être en vie aujourd'hui?
 
@@ -154,9 +154,9 @@ Les déflagrations continues n'arrêtèrent pas l'Empereur Antique pour autant. 
 
 Effectivement, comme s'il l'avait prédit, des piliers de lumière rouge surgirent autour de lui. L'Empereur Antique entonna un court chant. Sa main droite se ferma en poing et frappa l'un des piliers. La lumière se dispersa immédiatement.
 
-Un par un, il brisa les piliers de lumière. En moins de deux heures, ils avaient tous disparu. Il avait franchi cette restriction avec aisance.
+Un par un, il brisa les piliers de lumière. En moins de deux respirations, ils avaient tous disparu. Il avait franchi cette restriction avec aisance.
 
-L'Empereur Antique avança. Il visait la deuxième restriction située à quelques dizaines de pieds. Après avoir parcouru une centaine de pieds, son visage changea brusquement. Au moment où il sortit de la zone, un brouillard noir l'enveloppa. C'était manifestement très différent des lumières rouges et des bruits de bêtes entendus précédemment.
+L'Empereur Antique avança. Il visait la deuxième restriction située à plusieurs centaines de pieds. Après avoir parcouru plusieurs centaines de pieds, son visage changea brusquement. Au moment où il sortit de la zone, un brouillard noir l'enveloppa. C'était manifestement très différent des lumières rouges et des bruits de bêtes entendus précédemment.
 
 Peu après, d'innombrables épées noires et lumières rouges apparurent et foncèrent sur lui. Leur vitesse était telle qu'au moment où il les perçut, elles étaient déjà sur lui.
 
@@ -172,7 +172,7 @@ Alors que le brouillard noir se dissipait, l'Empereur Antique sortit, le visage 
 
 Cette restriction surprise l'avait laissé désemparé un instant. Si quelqu'un de moins puissant que lui s'était retrouvé dans cette situation, il en serait ressorti dans un état pitoyable, pour ne pas dire mort.
 
-S'il était si sûr qu'il s'agissait du Seigneur Démon des Six Désirs, c'est parce que Duanmu n'avait pas le tempérament pour étudier les restrictions. Cependant, cela n'excluait pas ce gamin, Wang Lin.
+S'il était si sûr qu'il s'agissait du Seigneur Démon des Six Désirs, c'est parce que Duanmu n'avait pas le tempérament pour étudier les restrictions. Cependant, cela n'excluait pas ce gamin, Wang Qingyue.
 
 Mais il restait convaincu que l'œuvre venait du Seigneur Démon des Six Désirs, car il avait totalement oublié l'existence de Wang Lin.
 
@@ -184,7 +184,7 @@ Cependant, Wang Lin ne ressentit aucune panique. Au cours de ses sept années d'
 
 S'ils manquaient de chance, ils pourraient déclencher les restrictions voisines. Même pour un expert au stade de la Formation de l'Âme, le seul chemin possible serait la mort.
 
-Il n'y avait pas énormément de restrictions surpuissantes derrière lui, seulement trois ou quatre en plus de celles déjà présentes. Le Seigneur Démon des Six Désirs en avait ajouté quelques couches. Après avoir patiemment surmonté ces obstacles, Wang Lin en avait rajouté encore davantage. Enfin, pour plus de sécurité, il avait passé quatre semaines à revenir sur ses pas pour lier toutes les restrictions entre elles: si l'une d'elles était déclenchée, le résultat serait désastreux.
+Il n'y avait pas énormément de restrictions surpuissantes derrière lui, seulement trois ou quatre en plus de celles déjà présentes. Le Seigneur Démon des Six Désirs en avait ajouté quelques couches. Après avoir patiemment surmonté ces obstacles, Wang Lin en avait rajouté encore davantage. Enfin, pour plus de sécurité, il était revenu sur ses pas pour lier toutes les restrictions entre elles: si l'une d'elles était déclenchée, le résultat serait désastreux.
 
 Wang Lin eut un rire froid. Les gens derrière lui n'avaient aucune importance. Il continua sa route.
 
@@ -216,7 +216,7 @@ Actuellement, ses longs cheveux blancs étaient attachés. Il était assis en ta
 
 Par conséquent, Wang Lin ne pouvait se permettre aucune distraction. Sa concentration totale devait être dédiée à l'analyse des barrières.
 
-Quant à la personne derrière lui, elle percevait clairement ses progrès au cours des trois dernières années. Au début, elle sentait une restriction brisée toutes les quelques semaines; désormais, il fallait attendre des mois pour en ressentir une seule. Ce ralentissement n'était pas seulement dû à l'augmentation de la puissance des restrictions naturelles, mais aussi à la croissance de Wang Lin lui-même. Les restrictions qu'il posait maintenant étaient comme le ciel et la terre comparées à celles d'il y a dix ans.
+Quant à la personne derrière lui, elle percevait clairement ses progrès au cours des trois dernières années. Au début, elle sentait une restriction brisée tous les quelques jours; désormais, il fallait attendre des mois pour en ressentir une seule. Ce ralentissement n'était pas seulement dû à l'augmentation de la puissance des restrictions naturelles, mais aussi à la croissance de Wang Lin lui-même. Les restrictions qu'il posait maintenant étaient comme le ciel et la terre comparées à celles d'il y a dix ans.
 
 Wang Lin expira lentement. Son regard se tourna vers l'avant. Tout comme il pouvait détecter la vitesse de son poursuivant, celui-ci connaissait également celle de Wang Lin. Un danger caché l'attendait peut-être plus haut.
 
@@ -228,7 +228,7 @@ L'individu derrière lui devait être au moins au stade de la Formation de l'Âm
 
 Après un an de travail, Wang Lin était confiant: tant qu'il ne bougerait pas, l'autre aurait beaucoup de mal à le repérer.
 
-Quelques jours plus tard, Wang Lin sentit une restriction voisine se briser.
+Quelques mois plus tard, Wang Lin sentit une restriction située à mille pieds se briser.
 
 Ses lèvres se recourbèrent en un rictus froid tandis qu'il regardait en arrière, les yeux brillants.
 
@@ -254,7 +254,7 @@ Mais lorsqu'il dépensait encore plus d'énergie pour vérifier la zone, il réa
 
 Durant ces trois années, l'Empereur Antique avait dû jongler constamment entre restrictions réelles et leurres. Il lui arrivait de déclencher accidentellement une véritable restriction, provoquant une réaction en chaîne.
 
-Lors du premier essai, il avait passé plus de temps à protéger ses trésirs magiques, mais désormais, plus de la moitié d'entre eux avaient été consommés pour se défendre lors des déclenchements.
+Lors du premier essai, il avait passé plus de temps à protéger ses trésors magiques, mais désormais, plus de la moitié d'entre eux avaient été consommés pour se défendre lors des déclenchements.
 
 Son cœur se serrait de regret. S'il avait utilisé ces trésors pour franchir le premier essai plus tôt... S'il marchait devant cet homme, son chemin aurait été bien plus facile.
 

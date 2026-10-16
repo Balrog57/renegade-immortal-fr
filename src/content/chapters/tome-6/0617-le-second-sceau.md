@@ -22,11 +22,11 @@ Toutefois, seuls ceux ayant déjà obtenu un certain succès dans leur culture �
 
 La Tribu de Raffinement des Âmes progressait à une vitesse fulgurante! Une telle croissance était rare. La tribu était comme un cocon absorbant ses nutriments; une fois que le jeune papillon s'en serait extrait, il serait capable de secouer les neuf pays!
 
-Dans l'esprit des membres de la tribu, la tour centrale était leur terre sacrée. Un lieu impure, comme si les dieux y résidaient! Quant à Wang Lin, qui n'était pas sorti depuis dix ans, il était leur ancêtre! Leur gardien!
+Dans l'esprit des membres de la tribu, la tour centrale était leur terre sacrée. Un lieu sacré que nul ne devait souiller, comme si les dieux y résidaient! Quant à Wang Lin, qui n'était pas sorti depuis dix ans, il était leur ancêtre! Leur gardien!
 
 Chaque jour, en plus de renforcer l'empreinte sur le démon dispersé, il créait d'innombrables restrictions qu'il plaçait sur le drapeau des restrictions. Au cours de ces dix dernières années, Wang Lin avait continué à déduire toujours plus de restrictions, s'approchant lentement du seuil de 9 999 ensembles.
 
-Le drapeau aux un milliard d'âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de Raffinement des Âmes. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
+Le drapeau aux cent millions d'âmes avait été libéré par Wang Lin depuis longtemps, et les cent millions de fragments d'âmes couvraient le ciel au-dessus de la Tribu de Raffinement des Âmes. Les gémissements des fragments d'âmes pouvaient être entendus toute la journée, devenant ainsi le symbole unique de la tribu.
 
 Wang Lin passa également beaucoup de temps à étudier les cinq sceaux du Char de Guerre Anti-Dieux. Lorsqu'il n'était qu'au stade intermédiaire de la Transformation de l'Âme, il pouvait à peine relâcher le premier sceau. Désormais, au stade Ascendant, il pouvait l'activer avec aisance. Cependant, cela ne suffisait pas; il voulait pouvoir briser le second sceau.
 
@@ -54,7 +54,7 @@ Wang Lin afficha un regard déterminé, saisit le piège à bêtes et se redress
 
 L'endroit était une plaine totalement désertique. Wang Lin jeta le bracelet au sol avant de former un sceau et de le pointer du doigt. Le bracelet émit une lueur noire avant de se transformer en Char de Guerre Anti-Dieux.
 
-Le char de guerre féroce, couvert d'épines, apparut en dégageant une lumière puissante. Simultanément, la bête spirituelle surgit. Son corps de mille pieds de haut ressemblait à une petite montagne.
+Le char de guerre féroce, couvert d'épines, apparut en dégageant une lumière puissante. Simultanément, la bête spirituelle surgit. Son corps de trois cent trente mètres de haut ressemblait à une petite montagne.
 
 Ses yeux rouges fixèrent férocement Wang Lin dès son apparition. Elle poussa un rugissement indomptable qui ébranla le ciel et la terre.
 
@@ -82,7 +82,7 @@ La lumière noire s'élança avec le symbole pour atterrir sur la bête spiritue
 
 Le corps de Wang Lin ne bougea pas; il fit une nouvelle fois un mouvement de la main droite! Cela créa une bourrasque qui prit la forme d'une paume et percuta la bête. Un fracas retentit alors que la gueule massive de la bête était brisée par l'impact! La créature recula immédiatement. En se retirant, son corps se transforma en volutes de gaz noir qui se dispersèrent dans toutes les directions pour charger Wang Lin avec fureur.
 
-Les deux mains de Wang Lin commencèrent à tracer des formes dans le vide, faisant apparaître deux symboles de sang. À ce moment précis, presque toute la lumière noire pénétra le corps de Wang Lin et se précipita vers son âme originelle. Un sourire narquois apparut sur les lèvres de Wang Lin et une lueur dorée jaillit de ses yeux.
+Les deux mains de Wang Lin commencèrent à tracer des formes dans le vide, faisant apparaître deux symboles de sang. À ce moment précis, toute la lumière noire pénétra le corps de Wang Lin et se précipita vers son âme originelle. Un sourire narquois apparut sur les lèvres de Wang Lin et une lueur dorée jaillit de ses yeux.
 
 « Âme originelle, sors! » rugit Wang Lin tandis que ses yeux s'assombrissaient. Son âme originelle s'envola alors, saisissant la bête spirituelle par le cou.
 
@@ -92,7 +92,7 @@ L'âme originelle de Wang Lin retourna dans son corps. Il ouvrit les yeux et fix
 
 À cet instant, quelque part à des milliers de kilomètres de là, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or.
 
-Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de 330 mètres de haut. L'intérieur du château dégageait une aura mystérieuse.
+Le lieu était une vaste chaîne de montagnes. Un miasme emplissait ces montagnes toute l'année, faisant de cet endroit un territoire que ni l'un ni l'autre des pays démoniaques ne contrôlait. Au cœur du miasme se trouvait une cité blanche. Pour être plus précis, il s'agissait d'un château entouré de murs de pierre blanche de 33 mètres de haut. L'intérieur du château dégageait une aura mystérieuse.
 
 Soudain, une ombre noire vola rapidement à travers le miasme. En flottant dans les airs, l'ombre se mit à genoux et dit respectueusement: « Salutations, Ancêtre. J'ai trouvé l'emplacement de Wang Lin, celui qui avait disparu de la capitale du Pays des Démons Célestes il y a vingt ans! »
 

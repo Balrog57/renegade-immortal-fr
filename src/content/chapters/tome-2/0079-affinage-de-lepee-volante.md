@@ -33,7 +33,7 @@ Après un long moment, alors que Wang Lin et Zhang Hu approchaient de la porte, 
 
 L'homme arriva rapidement devant la porte. D'un simple revers de main, il créa une bourrasque qui repoussa la foule; les cultivateurs de niveau inférieur furent projetés au sol. Zhang Hu aurait lui aussi roulé sur le sol si Wang Lin ne l'avait pas aussitôt rattrapé.
 
-Wang Lin fut également repoussé de quelques pas. Il garda un visage impassible et fixa froidement l'individu du regard. L'homme laissa échapper un renflement méprisant et se dirigea vers la porte. Il lança un jeton, et les deux gardes devinrent instantanément très respectueux; l'un d'eux suivit même l'individu à l'intérieur de la ville.
+Wang Lin fut également repoussé de quelques pas. Il garda un visage impassible et fixa froidement l'individu du regard. L'homme laissa échapper un reniflement méprisant et se dirigea vers la porte. Il lança un jeton, et les deux gardes devinrent instantanément très respectueux; l'un d'eux suivit même l'individu à l'intérieur de la ville.
 
 Zhang Hu afficha une mine envieuse et demanda: « Quel est donc le niveau de culture de ce type pour pouvoir agir ainsi d'un simple geste de la manche? »
 

@@ -14,7 +14,7 @@ Alors que Wang Lin flottait dans les airs, les cinq vieillards furent totalement
 
 « L'Ancêtre est apparu. Cette personne pourrait-elle être celle que l'Ancêtre recherche depuis tout ce temps? »
 
-Les cinq hommes se regardèrent. À cet instant, le nuage rouge commença à descendre avec une fureur inouïe. Il ne progressait plus par centimètres, mais par dizaines de pieds. 33 mètres, 20 pieds, 30 pieds… En un clin d'œil, il s'était enfoncé de 50 kilomètres!
+Les cinq hommes se regardèrent. À cet instant, le nuage rouge commença à descendre avec une fureur inouïe. Il ne progressait plus par centimètres, mais par bonds de 3,3 mètres, 6,6 mètres, 9,9 mètres… En un clin d'œil, il s'était enfoncé de 33 mètres!
 
 Accompagnée d'une série de grondements sourds, non seulement la Cité du Démon Céleste s'effondra, mais elle sombra profondément dans les entrailles de la terre. Vue d'en haut, la Cité du Démon Céleste n'existait plus. Même la poussière ne pouvait s'élever, car elle était directement écrasée contre le sol par la pression!
 
@@ -22,7 +22,7 @@ Un immense bassin était apparu là où se trouvait autrefois la cité!
 
 Et cela ne s'arrêta pas là. D'innombrables fissures s'étendirent à partir du bassin. Au rythme des craquements de la terre, la profondeur du gouffre ne cessa d'augmenter!
 
-La descente du nuage rouge et la puissance des cieux ne s'interrompirent pas encore. Après avoir descendu de 100 pieds, le nuage continua sa chute. De loin, cette masse nuageuse rouge semblait pouvoir s'abattre du ciel à tout instant.
+La descente du nuage rouge et la puissance des cieux ne s'interrompirent pas encore. Après être descendu de 33 mètres, le nuage continua sa chute. De loin, cette masse nuageuse rouge semblait pouvoir s'abattre du ciel à tout instant.
 
 Tandis que le nuage rouge poursuivait sa descente, des éclats de tonnerre résonnèrent dans les cieux. Ce son féroce fit vibrer le monde entier.
 
@@ -58,7 +58,7 @@ Le démon antique derrière Wang Lin toucha le sol au même instant que lui; cep
 
 La puissance des cieux était irréversible, et les démons antiques appartenaient à la seconde forme de vie capable de défier les cieux pour cultiver. Ils avaient affronté la rétribution divine d'innombrables fois, et leurs corps se régénéraient en un instant.
 
-Le nuage rouge disparut du ciel, mais au moment même de sa disparition, un rayon de lumière rouge de 100 pieds de long descendit soudainement des hauteurs!
+Le nuage rouge disparut du ciel, mais au moment même de sa disparition, un rayon de lumière rouge d'environ 33 mètres de large descendit soudainement des hauteurs!
 
 Cette lumière rouge était bien plus puissante que les éclairs de la rétribution divine précédente; elles n'étaient même pas du même niveau! Toutefois, la cible de ce rayon n'était pas Wang Lin, mais le fantôme du démon antique derrière lui!
 
@@ -68,9 +68,9 @@ Le démon antique et Wang Lin levèrent tous deux la tête, et une lueur démoni
 
 La lumière rouge pénétra dans le corps du démon antique et provoqua son explosion, mais il se reforma rapidement. Effondrement, reformation; effondrement, reformation; effondrement, puis reformation. En un seul souffle, le démon antique s'effondra 10 000 fois et se reforma 10 000 fois!
 
-Le corps massif du démon antique fut contraint de quitter les airs pour retomber au sol. Alors, une immense onde de choc circulaire commença à se propager depuis lui comme centre. Cette onde, haute de plus de 100 pieds, se répandit telle une vague gigantesque balayant la terre. En un instant, elle parcourut cinq kilomètres et ne s'arrêta pas!
+Le corps massif du démon antique fut contraint de quitter les airs pour retomber au sol. Alors, une immense onde de choc circulaire commença à se propager depuis lui comme centre. Cette onde, haute d'environ 10 mètres, se répandit telle une vague gigantesque balayant la terre. En un instant, elle parcourut cinq kilomètres et ne s'arrêta pas!
 
-Une série de grondements résonna à travers le pays alors que le sol dans un rayon de 5 kilomètres se brisait à nouveau, créant une onde de choc dix fois plus vaste! À cet instant, tout ce qui se trouvait dans un rayon de 50 kilomètres fut retourné et laissé en ruines!
+Une série de grondements résonna à travers le pays alors que le sol dans un rayon de 5 kilomètres se brisait à nouveau, créant une onde de choc dix fois plus vaste! À cet instant, tout ce qui se trouvait dans un rayon de 500 000 kilomètres fut retourné et laissé en ruines!
 
 Le nuage rouge avait complètement disparu du ciel, lequel retrouva son aspect normal!
 

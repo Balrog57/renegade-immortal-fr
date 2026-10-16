@@ -26,11 +26,11 @@ L'Ancêtre Sanguin fut stupéfait. Son expression changea lorsqu'il réalisa que
 
 « Wang Lin! » L'Ancêtre Sanguin serra les dents alors que la lumière de sang brillait intensément, repoussant immédiatement l'âme originelle de Wang Lin. Cependant, durant ce processus, les éclairs de la rétribution divine continuèrent de tomber. Ils traversèrent l'âme originelle de Wang Lin pour frapper directement l'Ancêtre Sanguin. Ce dernier recula précipitamment, voulant quitter ces nuages de rétribution divine.
 
-« Ancêtre Sanguin, votre planète de sang a été détruite, et même votre concubine, Zi Xin, est morte après vous avoir trahi! » Le Sens Divin de Wang Lin résonna, rendant l'expression de l'Ancêtre Sanguin encore plus lugubre.
+« Ancêtre Sanguin, votre planète de sang a été détruite, et même votre concubine, Zi Xin, est morte elle aussi! » Le Sens Divin de Wang Lin résonna, rendant l'expression de l'Ancêtre Sanguin encore plus lugubre.
 
 « De plus, votre pavillon de sang est assez intéressant! » La voix de Wang Lin surgit du vide.
 
-« Vous étiez ici pour me tuer, mais je me demande si vous savez que lorsque votre fille Yao Xixue retournera sur la planète de sang, elle sera comme un mouton marchant dans la gueule du tigre! » Depuis que Wang Lin avait vu l'Ancêtre Sanguin pour la première fois après son réveil, il n'avait pas aperçu la moindre trace de Yao Xixue. Il était impossible de la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de l'Ancêtre Sanguin.
+« Vous étiez ici pour me tuer, mais je me demande si vous savez que votre fille Yao Xixue, une fois ressuscitée, est revenue sur la planète de sang, comme un mouton entrant dans la gueule du tigre! » Depuis que Wang Lin avait vu l'Ancêtre Sanguin pour la première fois après son réveil, il n'avait pas aperçu la moindre trace de Yao Xixue. Il était impossible de la protéger de l'effondrement de l'espace de stockage. Wang Lin en déduisit que le scénario le plus probable était que Yao Xixue avait déjà été ressuscitée grâce à l'aide de l'Ancêtre Sanguin.
 
 Les paroles de Wang Lin furent comme une rétribution divine invisible frappant le cœur de l'Ancêtre Sanguin. Son âme originelle ayant déjà été endommagée auparavant, il fut profondément ébranlé dans cet état instable.
 
@@ -62,7 +62,7 @@ Une crise de mort envahit immédiatement l'Ancêtre Sanguin. Entravé par l'âme
 
 « Wang Lin, j'abandonne ce corps de sang. Tu ne pourras pas t'échapper avec le sceau, alors supporte la rétribution divine toi-même! » Empli d'une haine inimaginable, il s'enfuit sans même se retourner.
 
-Cette fois, il était dans un état extrêmement misérable. Il lui manquait plus de la moitié de son âme originelle et avait perdu son corps. S'il ne s'échappait pas maintenant avec son âme brisée, et si Wang Lin ne mourait pas, les conséquences seraient incalculables. Il ressentit même du regret: s'il avait accepté la promesse de Wang Lin, il aurait pu sauver Yao Xixue et ne serait pas dans un état aussi pitoyable.
+Cette fois, il était dans un état extrêmement misérable. Il lui manquait plus de la moitié de son âme originelle et avait perdu son corps. S'il ne s'échappait pas maintenant avec son âme brisée, et si Wang Lin ne mourait pas, les conséquences seraient incalculables. Il ressentit même du regret: s'il avait réellement tenu sa promesse, sans chercher à tuer Wang Lin après avoir sauvé Yao Xixue, il ne serait pas dans un état aussi pitoyable.
 
 Cependant, il était désormais trop tard.
 
@@ -72,7 +72,7 @@ Le grondement tonnerreux se propagea rapidement dans toute la zone. Le sceau de 
 
 Les nuages se dissipèrent complètement et la rétribution divine disparut.
 
-L'âme originelle de Wang Lin ramena les restes du corps de l'Ancêtre Sanguin vers le fragment. Ce fragment ne mesurait plus qu'environ mille pieds de large; il ne ressemblait plus à un débris, mais plutôt à un immense sceau.
+L'âme originelle de Wang Lin ramena les restes du corps de l'Ancêtre Sanguin vers le fragment. Ce fragment ne mesurait plus qu'environ 330 mètres de large; il ne ressemblait plus à un débris, mais plutôt à un immense sceau.
 
 Lorsque son énergie originelle revint dans son corps, ses yeux s'ouvrirent et une aura puissante gonfla en lui. Il prit une profonde inspiration et rangea le corps de sang. Simultanément, il regarda le sceau sous ses pieds. Ses yeux brillèrent et il frappa le sol de la main.
 
@@ -82,7 +82,7 @@ Le fragment trembla immédiatement, puis commença à rétrécir jusqu'à attein
 
 Hormis quelques rares individus, personne ne pouvait rivaliser avec Wang Lin dans le Royaume Céleste du Tonnerre.
 
-Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume Céleste et les bêtes de tonnerre — même s'il ne pouvait pas l'emporter face à quelqu'un venant tout juste d'entrer au second niveau, il en avait désormais la capacité.
+Avec ses sorts et ses trésors magiques actuels — comme ce Fragment de Royaume Céleste et les os de bête — même s'il ne pouvait pas l'emporter face à quelqu'un venant tout juste d'entrer au second niveau, il en avait désormais la capacité.
 
 La pression liée à sa fuite du Système Stellaire de l'Alliance vers le Système Stellaire de Tout-Ciel disparut totalement. Le Sens Divin de Wang Lin s'étendit et il se dirigea rapidement vers la direction prise par l'Ancêtre Sanguin.
 

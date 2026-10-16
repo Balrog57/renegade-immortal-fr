@@ -36,7 +36,7 @@ En ajoutant les jades célestes précédents, Wang Lin possédait un total d'un 
 
 Il se leva et disparut de la pièce. Lorsqu'il réapparut, il se trouvait à plus de cinquante mille kilomètres de la demeure. Son sens divin balaya les environs avant qu'il ne frappe son sac de rangement, libérant une immense quantité de jades célestes.
 
-Wang Lin s'assit en position du lotus et ses mains formèrent des sceaux, déployant des restrictions. Une fois la dizaine de restrictions établie, les jades célestes chutèrent un à un, formant une formation gigantesque.
+Wang Lin s'assit en position du lotus et ses mains formèrent des sceaux, déployant des restrictions. Une fois la dizaine de restrictions établie, les jades célestes chutèrent un à un, formant une formation gigantesque d'environ cinq kilomètres de rayon.
 
 Cette formation était sans nom; c'était une technique que Wang Lin avait lui-même dérivée de la troisième capacité de son fleuve des enfers. Elle pouvait absorber une quantité massive de jades célestes et utiliser l'impact puissant de leur destruction pour améliorer sa culture.
 

@@ -32,13 +32,13 @@ Une fois hors du village, plus l'homme regardait Zhou Ru, plus il se réjouissai
 
 Alors qu'il s'apprêtait à sortir son épée volante pour regagner la secte, Zhou Ru lui mordit la main. Mais quelle force une enfant de trois ans pouvait-elle bien déployer?
 
-Cela fit pourtant froncer les sourcils de l'homme. Il renifla et dit: « Tu ne sais vraiment pas ce qui est bon pour toi! » Levê la main, il s'apprêtait à gifler Zhou Ru pour lui donner une leçon, afin qu'elle cesse de pleurer tout au long du chemin comme s'il s'agissait d'un enlèvement.
+Cela fit pourtant froncer les sourcils de l'homme. Il renifla et dit: « Tu ne sais vraiment pas ce qui est bon pour toi! » Levant la main, il s'apprêtait à gifler Zhou Ru pour lui donner une leçon, afin qu'elle cesse de pleurer tout au long du chemin comme s'il s'agissait d'un enlèvement.
 
 « Comment oses-tu! »
 
 L'homme venait à peine de lever la main qu'il sentit un froid glacial envahir son corps et une sueur froide perler dans son dos. Un jeune homme vêtu de blanc apparut mystérieusement devant lui.
 
-L'homme reposa précipitamment Zhou Ru et dit respectueusement: « Senior, cadet... »
+L'homme reposa précipitamment Zhou Ru et dit respectueusement: « Senior, junior... »
 
 Sans même le laisser finir, Wang Lin agita ses manches et un vent puissant projeta l'homme au loin.
 
@@ -98,7 +98,7 @@ En voyant Wang Lin, elle éclata en sanglots et lui raconta ce qui s'était pass
 
 « Tiens ceci. Si cela arrive de nouveau, sonne simplement cette cloche. » Wang Lin sortit une clochette et la lui remit.
 
-Il s'agissait de celle que Qiu Siping lui avait donnée. Après l'avoir étudiée, Wang Lin réalisa qu'elle semblait provenir du même lieu que les cloches offertes par les anciens cultivateurs.
+Il s'agissait de celle que Qiu Siping lui avait donnée. Après l'avoir étudiée, Wang Lin réalisa qu'elle semblait provenir du même lieu que la cloche antique qu'il avait jadis possédée.
 
 Grâce à ses recherches, il parvint à maîtriser certains usages de ces trois clochettes. Sa puissance le satisfaisait grandement.
 

@@ -98,7 +98,7 @@ L'objectif actuel de Wang Lin pour ce drapeau était d'atteindre 9 999 ensembles
 
 Quant au Fouet de l'Âme, Wang Lin était convaincu qu'il ne s'agissait pas d'un faux trésor céleste. Bien qu'il puisse utiliser de l'énergie spirituelle céleste sur lui, celle-ci semblait bien moins efficace que l'énergie spirituelle ordinaire.
 
-Ce point le laissait perplexe. Il finit par découvrir qu'il n'avait même pas besoin d'utiliser d'énergie spirituelle: tant qu'il en appliquait, l'objet produisait sa propre force mystérieuse.
+Ce point le laissait perplexe. Il finit par découvrir qu'il n'avait même pas besoin d'énergie spirituelle: il lui suffisait de tirer dessus pour que l'objet produise sa propre force mystérieuse.
 
 Par conséquent, cet objet devint soudainement très intrigant à ses yeux.
 
@@ -142,7 +142,7 @@ Wang Lin ouvrit les yeux, toucha le piège à bêtes sur son poignet et afficha 
 
 « Ce sera un trésor puissant! Malheureusement, il ne reste que trois âmes primaires dans la bannière de l'âme. Si j'en avais davantage, elle pourrait gagner du temps pendant l'activation du char de guerre, car celle-ci est encore très longue. »
 
-« Avec mes trésors actuels, je n'ai rien à craindre face à des cultivateurs au stade intermédiaire de la Transformation de l'Âme. Contre des cultivateurs ordinaires au stade avancé de la Transformation de l'Âme, tant que j'ai le temps d'activer le char de guerre, je pourrai tenir tête. Cependant, contre ceux qui possèdent un trésor céleste ou qui sont à demi-pas du stade Ascendant, je perdrai probablement. Quant aux cultivateurs Ascendants, je n'ai aucune chance de l'emporter. »
+« Avec mes trésors actuels, je n'ai rien à craindre face à des cultivateurs au stade intermédiaire de la Transformation de l'Âme. Contre des cultivateurs ordinaires au stade avancé de la Transformation de l'Âme, tant que j'ai le temps d'activer le char de guerre, je pourrai tenir tête. Cependant, contre ceux qui possèdent un trésor céleste ou qui, au sommet du stade avancé de la Transformation de l'Âme, sont à demi-pas du stade Ascendant, je perdrai probablement. Quant aux cultivateurs Ascendants, je n'ai aucune chance de l'emporter. »
 
 « Je suis encore trop faible, et la planète Tian Yun possède bien plus de ressources que la planète Suzaku. Il doit y avoir des cultivateurs encore plus puissants là-bas; je devrai donc être extrêmement prudent! »
 

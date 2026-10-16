@@ -86,7 +86,7 @@ Un écran de lumière verte était apparu aux confins du continent de Suzaku, co
 
 « La formation Suzaku! » L'expression de Du Tian devint sombre.
 
-La formation Suzaku était la plus puissante de la planète. Elle pouvait varier en taille, mais lorsqu'elle était déployée à pleine puissance, elle pouvait recouvrir toute la planète pour la protéger des cultivateurs étrangers ou des bêtes vivant dans le vide. À sa plus petite échelle, elle pouvait protéger une seule personne avec une puissance extrême.
+La formation Suzaku était la plus puissante de la planète. Elle pouvait varier en taille, mais lorsqu'elle était déployée à pleine puissance, elle pouvait recouvrir toute la planète pour la protéger des cultivateurs étrangers ou des bêtes démoniaques. À sa plus petite échelle, elle pouvait protéger une seule personne avec une puissance extrême.
 
 « On dirait que le pays de Suzaku est bien déterminé à vaincre le Clan Immortel Abandonné. La quantité de pierres spirituelles nécessaire pour activer la formation Suzaku dépasse l'entendement, et une multitude de jades célestes sont requis pour en exploiter la puissance. Héhé, assez pour égaler un cultivateur Ascendant du stade avancé. » Les yeux de Du Tian brillèrent et il pointa le doigt vers l'avant. Un filet de gaz noir s'échappa de son doigt et frappa l'écran de lumière verte.
 
@@ -102,7 +102,7 @@ Du Tian ricana: « Elle contient même le sang du Clan des Démons Géants, la f
 
 « Je me demandais pourquoi le pays de Suzaku se montrait si généreux, mais il semble qu'ils convoitaient le sang du Clan des Démons Géants. Avec une telle quantité de leur sang, cette formation intègre une partie de la puissance de leur lignage. »
 
-Wang Lin resta silencieux. Avec la présence de Chi Hu, il était impossible d'avoir tous les tués.
+Wang Lin resta silencieux. Avec la présence de Chi Hu, il était impossible de les tuer tous.
 
 Le regard de Du Tian se fit glacial alors qu'il fixait la formation Suzaku et hurla: « La formation Suzaku encercle tout le continent. Il doit y avoir quelqu'un qui la contrôle tous les 5 000 kilomètres. Sortez pour ce vieil homme, ou je créerai une brèche avant même que le Clan Immortel Abandonné n'arrive! »
 

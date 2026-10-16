@@ -26,7 +26,7 @@ Trop de secrets entouraient l'Omniscient. Ce qui terrifiait le plus Wang Lin, c'
 
 « L'Omniscient est comme cette flamme, en constante mutation... Même en isolant le vent, il est impossible d'en saisir l'apparence originelle. » Wang Lin fronça les sourcils, le regard toujours verrouillé sur la flamme.
 
-Le temps passa lentement. Sans s'en rendre compte, il était déjà trois heures du matin. Le ciel dehors était plongé dans une obscurité totale et, lorsque le vent soufflait contre la fenêtre, le papier en bruissait.
+Le temps passa lentement. Sans s'en rendre compte, il était déjà minuit. Le ciel dehors était plongé dans une obscurité totale et, lorsque le vent soufflait contre la fenêtre, le papier en bruissait.
 
 Ce son résonnait avec clarté dans le silence de la nuit.
 
@@ -38,7 +38,7 @@ Le vent soufflait fort cette nuit-là et les nuages emplissaient le ciel. Peu de
 
 Tout en méditant, Wang Lin leva sa main droite et l'agita doucement. Une trace de loi apparut, issue de sa compréhension de « Invoquer la Pluie ».
 
-Le vent se souleva dans le ciel couvert de nuages sombres. Les nuages qui semblaient chargés de pluie se dissipèrent, laissant la lumière éclatante de la lune tomber sur la terre sans aucun obstacle.
+Le vent se souleva dans le ciel couvert de nuages sombres. Les nuages chargés de pluie se transformèrent en une fine averse, puis se dissipèrent, laissant la lumière éclatante de la lune tomber sur la terre sans aucun obstacle.
 
 Sous la clarté lunaire, une ombre apparut au pied du Mont Pourpre.
 

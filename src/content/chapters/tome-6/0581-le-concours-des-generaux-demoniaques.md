@@ -66,7 +66,7 @@ Il resta ainsi toute la nuit!
 
 Au petit matin, le soleil se leva, chassant l'obscurité de la Cité du Démon Céleste. Tandis que les rayons frappaient le palais impérial, une puissante intention de combat émana des huit cités.
 
-À l'intérieur de la cité impériale, sur la place des 5 000 kilomètres, trônait un gigantesque tambour de guerre!
+À l'intérieur de la cité impériale, sur la place de 33 kilomètres, trônait un gigantesque tambour de guerre!
 
 Ce tambour était d'un noir absolu et dégageait une aura antique qui enveloppait toute la zone.
 
@@ -86,11 +86,11 @@ Un à un, les généraux démoniaques menèrent leurs serviteurs et assistants s
 
 Les huit portes de la cité impériale s'ouvrirent. De nombreux soldats démoniaques étaient postés aux entrées pour vérifier l'identité des généraux avant de les laisser passer.
 
-Aujourd'hui, la bataille se déroulerait sur la vaste place des dix mille pieds, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur plus de mille pieds de large. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place.
+Aujourd'hui, la bataille se déroulerait sur la vaste place de 33 kilomètres, près de la Porte du Démon Céleste. Une puissante formation protégeait le lieu, empêchant toute destruction facile. Sur la partie est de la place, une tribune de neuf étages s'étendait sur près de 330 mètres de large. D'innombrables fonctionnaires de la Cité du Démon Céleste apparurent et prirent place.
 
 Il n'y avait qu'un seul siège au sommet, celui de l'Empereur Démon!
 
-Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, larges de plus de 800 pieds. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
+Aux extrémités sud et nord de la place se trouvaient des tribunes de huit étages, larges d'environ 264 mètres, où étaient assis d'innombrables dames et de jeunes héritiers des grandes demeures. Les deux étages supérieurs de chaque tribune ne comportaient que quatre sièges chacun.
 
 Sur ces 16 sièges, les huit du haut étaient réservés aux commandants en chef, et les quatre du bas aux vice-commandants en chef.
 
@@ -146,6 +146,6 @@ Leur apparition capta l'attention de tous, et les yeux de la foule brillèrent d
 
 Même dans tout le Pays des Esprits Démoniaques, leurs noms étaient célèbres et presque tout le monde les connaissait!
 
-Dong! Le troisième coup de tambour retentit sur la zone comme un tonnerre plusieurs fois plus violent que les précédents. Il se propagea sur des milliers de kilomètres, emplissant les oreilles de chacun de ce fracas.
+Dong! Le troisième coup de tambour retentit sur la zone comme un tonnerre plusieurs fois plus violent que les précédents. Il se propagea sur 500 kilomètres, emplissant les oreilles de chacun de ce fracas.
 
 Tous les regards convergèrent vers un seul point: le siège vide au sommet de la tribune située sur le côté est de la place!

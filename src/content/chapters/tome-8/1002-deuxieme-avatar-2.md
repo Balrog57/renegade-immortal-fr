@@ -40,7 +40,7 @@ Après avoir réfléchi un instant, les yeux de Wang Lin s'illuminèrent; il fix
 
 Son corps vacilla et il quitta la statue. Son sens divin et sa culture retournèrent dans son propre corps. Il regarda la statue noire devant lui et son sourire s'élargit.
 
-Il prit une profonde inspiration et s'assit, la main posée sur ses genoux. Puis, il expulsa de l'énergie d'origine essentielle qui enveloppa la statue de pierre avant d'y placer des restrictions.
+Il prit une profonde inspiration et s'assit, la main posée sur ses genoux. Puis, il expulsa un souffle de son âme originelle qui enveloppa la statue de pierre avant d'y placer des restrictions.
 
 S'il voulait en faire son deuxième avatar, il devait le raffiner jusqu'à ce qu'il ne fasse qu'un avec son esprit. Il devait être capable de le manipuler à volonté et l'avatar ne devait pas pouvoir rejeter son âme originelle. Au contraire, son âme originelle devait pouvoir s'y substituer facilement si nécessaire.
 

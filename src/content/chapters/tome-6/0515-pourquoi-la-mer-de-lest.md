@@ -18,7 +18,7 @@ Cet endroit est tel un immense coffre au trésor qui ne fait que puiser sans jam
 
 Nul ne sait comment ce lieu s'est formé. La rumeur prétend qu'au moment même où la planète Tian Yun vit le jour, cet endroit existait déjà depuis une éternité.
 
-Certains prétendent qu'il s'agissait du palais d'un puissant général céleste. Plus tard, lors de l'effondrement du Royaume Céleste, il aurait subi un choc et serait tombé en ruines. Cependant, les ruines que l'on voit n'auraient été qu'un état maintenu par un sortilège dévastateur. Si la chance sourit à un voyageur, celui-ci pourrait bel et bien restaurer le palais céleste.
+Certains prétendent qu'il s'agissait du palais d'un puissant seigneur céleste. Plus tard, lors de l'effondrement du Royaume Céleste, il aurait subi un choc et serait tombé en ruines. Cependant, les ruines que l'on voit n'auraient été qu'un état maintenu par un sortilège de protection. Si la chance sourit à un voyageur, celui-ci pourrait bel et bien restaurer le palais céleste.
 
 D'autres rumeurs suggèrent que ce lieu est un tunnel reliant deux espaces différents, offrant peut-être un passage vers des royaumes au-delà du Royaume Céleste.
 
@@ -28,7 +28,7 @@ Cette mer d'origine inconnue se situant sur le flanc oriental de la planète Tia
 
 Il y a bien longtemps, lorsque l'Omniscient eut achevé son Tao, il invita plusieurs amis — dont le Saint de l'Épée Ling Tianhou, avant que leur relation ne se brise — pour explorer ce lieu à trois reprises!
 
-Les deux premières expéditions furent vaines, mais lors de la troisième, seule la moitié des participants revint!
+Les deux premières expéditions furent vaines, mais lors de la troisième, moins de la moitié des participants revint!
 
 C'est à la suite de cet événement que l'amitié entre le Saint de l'Épée Ling Tianhou et l'Omniscient se rompit. Jusqu'à ce jour, aucun n'a jamais évoqué ce qui s'était réellement passé lors de cette troisième expédition.
 
@@ -36,7 +36,7 @@ Cependant, après ces événements, l'Omniscient déclara une chose:
 
 « Un démon ancien se cache là-dedans. Dès aujourd'hui, ce lieu appartient à ma planète Tian Yun et sera appelé la Porte de la Mer des Esprits Démoniaques de l'Est! »
 
-Les mots « démon ancien » se répandirent comme une traînée de poudre et restèrent gravés dans la mémoire de々にinnombrables personnes.
+Les mots « démon ancien » se répandirent comme une traînée de poudre et restèrent gravés dans la mémoire d'innombrables personnes.
 
 Même des membres de l'Alliance des Cultivateurs vinrent inspecter la Mer des Esprits Démoniaques de l'Est. Toutefois, concernant l'accès de ce lieu aux étrangers, l'Omniscient, Ling Tianhou et tous les autres vieux monstres de la région firent preuve d'une rare unanimité:
 
@@ -88,7 +88,7 @@ Yao Xinghai n'avait jamais pris de disciple, à l'exception d'une seule personne
 
 Ce duo père-fille passait le plus clair de son temps sur la Planète du Sang, loin de tout contact social. Mais plus ils restaient isolés, moins on osait s'en prendre à eux.
 
-Loin de ces événements, sur la Planète Terre — l'une des cinq planètes orbitant autour de Tian Yun — et juste devant le grand réseau de transfert de la Secte Xuan Yuan, le jeune maître de la secte, Xu Yunshan, se tenait là, silencieux. Malgré son calme apparent, il tapotait nerveusement sa paume avec son éventail tout en scrutant l'horizon.
+Loin de ces événements, sur la Planète Terre — l'une des cinq planètes orbitant autour de Tian Yun — et juste devant le grand réseau de transfert de la Secte Xuan Yuan, le jeune maître de la secte, Sun Yunshan, se tenait là, silencieux. Malgré son calme apparent, il tapotait nerveusement sa paume avec son éventail tout en scrutant l'horizon.
 
 Trois silhouettes le suivaient!
 
@@ -96,22 +96,22 @@ Il s'agissait de trois vieillards aux cheveux blancs. Bien que vêtus simplement
 
 À la périphérie du réseau de transfert, plusieurs centaines de disciples de la Secte Xuan Yuan étaient assis en divers points, pratiquant leur culture en silence. Ils attendaient l'ordre d'utiliser leur énergie spirituelle pour stimuler l'Énergie Céleste du réseau et l'activer.
 
-Tandis que Xu Yunshan tapotait doucement son éventail de jade, son visage demeurait serein, sans trace d'impatience.
+Tandis que Sun Yunshan tapotait doucement son éventail de jade, son visage demeurait serein, sans trace d'impatience.
 
-Peu après, un rayon de lumière rose apparut à l'horizon. Xu Yunshan fronça les sourcils, affichant une pointe d'impuissance. Il rangea son éventail et fixa la lueur.
+Peu après, un rayon de lumière rose apparut à l'horizon. Sun Yunshan fronça les sourcils, affichant une pointe d'impuissance. Il rangea son éventail et fixa la lueur.
 
-La lumière rose était d'une rapidité fulgurante et, en un clin d'œil, elle fut là. Elle décrivit un cercle autour de la zone avant de se poser à 33 mètres de Xu Yunshan, révélant une jeune femme dans la vingtaine.
+La lumière rose était d'une rapidité fulgurante et, en un clin d'œil, elle fut là. Elle décrivit un cercle autour de la zone avant de se poser à 33 mètres de Sun Yunshan, révélant une jeune femme dans la vingtaine.
 
 Vêtue d'une robe rose, sa peau était aussi limpide que du cristal; elle semblait sculptée dans le jade. Un parfum émanait d'elle, capable d'enivrer les sens les plus solides.
 
 La jeune femme gonfla ses joues et lança d'un ton vif: « Grand frère, tu m'avais promis que si je réussissais à venir, tu me laisserais partir! »
 
-Xu Yunshan la regarda et s'exclama: « Quelles idioties! La Mer des Esprits Démoniaques de l'Est n'est pas un lieu accessible avec ton niveau de culture! Bien que mon père soit en méditation assidue, il a formellement interdit que tu t'y rendes! Xuan Yi, ramène-la à la secte! »
+Sun Yunshan la regarda et s'exclama: « Quelles idioties! La Mer des Esprits Démoniaques de l'Est n'est pas un lieu accessible avec ton niveau de culture! Bien que mon père soit en méditation assidue, il a formellement interdit que tu t'y rendes! Xuan Yi, ramène-la à la secte! »
 
-L'un des vieillards derrière Xu Yunshan fit un pas en avant pour se placer aux côtés de la jeune femme. Il joignit les mains et dit: « Ma dame, je vous en prie, ne compliquez pas la tâche de Xuan Yi. »
+L'un des vieillards derrière Sun Yunshan fit un pas en avant pour se placer aux côtés de la jeune femme. Il joignit les mains et dit: « Ma dame, je vous en prie, ne compliquez pas la tâche de Xuan Yi. »
 
-La jeune femme laissa échapper un reniflement méprisant. Sans même accorder un regard à Xuan Yi, elle fixa Xu Yunshan et déclara: « Maman est d'accord! »
+La jeune femme laissa échapper un reniflement méprisant. Sans même accorder un regard à Xuan Yi, elle fixa Sun Yunshan et déclara: « Maman est d'accord! »
 
-Xu Yunshan s'apprêtait à répliquer, mais son expression changea soudainement. Il ne prêta plus attention à la jeune femme, les yeux rivés sur l'horizon, un sourire aux lèvres.
+Sun Yunshan s'apprêtait à répliquer, mais son expression changea soudainement. Il ne prêta plus attention à la jeune femme, les yeux rivés sur l'horizon, un sourire aux lèvres.
 
 « Frère Wang, je vous attendais! »

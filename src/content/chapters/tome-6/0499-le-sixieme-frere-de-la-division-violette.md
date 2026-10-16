@@ -14,7 +14,7 @@ Les disciples des six autres divisions scrutèrent la lueur au loin. Plus de la 
 
 L'expression de l'Omniscient resta immuable. Il ne daigna même pas regarder la lumière violette; les mains derrière le dos, son visage demeurait serein.
 
-Le rayon violet fondit sur eux et s'arrêta à mille pieds de distance, révélant un homme d'âge mûr. Ce dernier avait les joues pâles et était très maigre; il ressemblait à une longue épée acérée dégageant une aura glaciale.
+Le rayon violet fondit sur eux et s'arrêta à environ 330 mètres de distance, révélant un homme d'âge mûr. Ce dernier avait les joues pâles et était très maigre; il ressemblait à une longue épée acérée dégageant une aura glaciale.
 
 Cette aura était très similaire à celle des disciples du Saint de l'Épée, Ling Tianhou.
 
@@ -40,7 +40,7 @@ L'Omniscient rit et demanda: « Quel genre de trésor a attiré ton attention? �
 
 Le visage de Chen Tao resta calme tandis qu'il tapotait son sac de rangement; un objet apparut alors dans sa main.
 
-Il s'agissait d'une fleur aux six couleurs. La fleur elle-même était blanche, mais ses six feuilles étaient rouge, orange, jaune, verte, cyan et jaune.
+Il s'agissait d'une fleur aux six couleurs. La fleur elle-même était blanche, mais ses six feuilles étaient rouge, orange, jaune, verte, cyan et bleue.
 
 Ces six teintes disparates ne dénaturaient pas la fleur blanche; au contraire, elles lui conféraient une aura surnaturelle.
 
@@ -78,15 +78,15 @@ Chen Tao regarda l'Omniscient avec respect et déclara avec détermination: « M
 
 L'Omniscient eut un léger sourire et répondit: « Actuellement, au sein de la Division Violette, vous et ton septième frère êtes les seuls à avoir droit à ce titre. Entre vous deux, un seul l'obtiendra. »
 
-Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plus vite que l'éclair pour projeter un sceau qui s'arrêta à un pied de Wang Lin.
+Un sourire glacial étira les lèvres de Chen Tao alors qu'il faisait un pas en avant. En une seule foulée, il se retrouva devant Wang Lin. Sa main bougea plus vite que l'éclair pour projeter un sceau qui s'arrêta à 3,3 mètres de Wang Lin.
 
-Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan des Démons Géants pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plusieurs dizaines de pieds. Il resta là, fixant Chen Tao d'un regard sombre.
+Une série de rugissements tonitruants retentit alors que le corps de Wang Lin était violemment repoussé en arrière. Il fit apparaître la hache du Clan du Démon Géant pour bloquer la force de l'impact. Simultanément, il mobilisa l'énergie spirituelle céleste métallique de son bras gauche, ce qui lui permit de se stabiliser après avoir reculé de plus d'une centaine de mètres. Il resta là, fixant Chen Tao d'un regard sombre.
 
 Wang Lin était resté sur ses gardes tout au long de l'échange. L'attaque précédente n'était pas destinée à le blesser, mais à le déstabiliser. Bien que le sort ait frappé dans le vide, l'onde de choc avait suffi à le repousser. Wang Lin savait pertinemment qu'il ne pouvait rivaliser avec une telle puissance brute.
 
-Il ignorait que Chen Tao était, lui aussi, stupéfait. Le sort qu'il venait d'utiliser était extrêmement puissant; même sans contact direct, l'onde de choc aurait dû envoyer un gamin au stade intermédiaire de la Transformation de l'Âme valser sur des centaines de pieds. En théorie, il aurait dû suffire à Wang Lin pour lui ôter toute velléité de contestation et obtenir le titre de disciple véritable sans plus d'effort.
+Il ignorait que Chen Tao était, lui aussi, stupéfait. Le sort qu'il venait d'utiliser était extrêmement puissant; même sans contact direct, l'onde de choc aurait dû envoyer un gamin au stade intermédiaire de la Transformation de l'Âme valser sur plus de 300 mètres. En théorie, il aurait dû suffire à Wang Lin pour lui ôter toute velléité de contestation et obtenir le titre de disciple véritable sans plus d'effort.
 
-Or, cela n'avait fait reculer Wang Lin que de quelques dizaines de pieds. Loin de l'avoir soumis, cela donnait plutôt l'impression qu'il l'avait simplement écarté pour provoquer un duel.
+Or, cela n'avait fait reculer Wang Lin que d'une centaine de mètres. Loin de l'avoir soumis, cela donnait plutôt l'impression qu'il l'avait simplement écarté pour provoquer un duel.
 
 Chen Tao fronça les sourcils et lança à Wang Lin, d'un ton qui n'admettait aucune réplique: « Toi, abandonne! »
 
@@ -114,7 +114,7 @@ Wang Lin enchaîna les sorts de téléportation avec une rapidité fulgurante et
 
 Au moment où il prononça ces mots, le vortex doré ne se trouvait plus qu'à 10 mètres de lui; il pouvait presque ressentir son aura destructrice, mais aucune trace de panique ne marquait ses traits.
 
-Le vortex à neuf cycles fondit sur lui, mais lorsqu'il fut à un pied de Wang Lin, la lumière argentée qui l'entourait se mit à scintiller violemment avant de disparaître, comme si elle n'avait jamais existé.
+Le vortex à neuf cycles fondit sur lui, mais lorsqu'il fut à 3,3 mètres de Wang Lin, la lumière argentée qui l'entourait se mit à scintiller violemment avant de disparaître, comme si elle n'avait jamais existé.
 
 Cette scène attira instantanément le regard de tous les cultivateurs présents.
 

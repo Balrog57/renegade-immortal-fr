@@ -44,7 +44,7 @@ Cependant, ces créatures n'étaient pas des démons et possédaient une certain
 
 Environ sept ou huit âmes avaient déjà pénétré son corps, provoquant un changement soudain dans ses traits. Il mordit sa langue et cracha un jet de sang qui se transforma instantanément en flammes. La chaleur l'enveloppa immédiatement alors qu'il s'asseyait pour tenter d'expulser les âmes errantes de son organisme.
 
-Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitèrent. Les flammes faiblissaient peu à peu, semblant sur le point de s'éteindre. Quant à la boule de feu qu'il avait lancée, elle était dévorée par les âmes; bien que quelques-unes y aient péri, la sphère disparut totalement à trente pieds de Wang Lin.
+Autour de lui, une multitude d'âmes encerclèrent le brasier et s'y précipitèrent. Les flammes faiblissaient peu à peu, semblant sur le point de s'éteindre. Quant à la boule de feu qu'il avait lancée, elle était dévorée par les âmes; bien que quelques-unes y aient péri, la sphère disparut totalement à une dizaine de mètres de Wang Lin.
 
 Les âmes errantes restantes cessèrent d'attaquer pour encercler Wang Lin, fixant froidement les personnes sur la plateforme.
 
@@ -70,13 +70,13 @@ Wang Lin le regarda et répondit calmement: « Un fragment du royaume céleste s
 
 L'homme fut stupéfait. Il regarda Wang Lin avec une admiration non feinte: « Cher compagnon, nul ne peut prétendre avoir survécu à l'effondrement d'un fragment du royaume céleste. Je vous admire sincèrement! Je suis Chi Hu, du Clan des Démons Géants. Quel est votre nom? »
 
-Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ceng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas dévoré le jade céleste avec imprudence, il serait déjà mort.
+Wang Lin secoua la tête et dit: « Ce n'était que de la chance. Mon nom est Ceng Niu! » En repensant à l'effondrement du fragment, il ne put s'empêcher d'être saisi par la peur. S'il n'avait pas avalé imprudemment le cristal d'énergie céleste, il serait déjà mort.
 
-« Ceng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux: « Cher compagnon, seriez-vous un membre de la famille Ceng, issue du pays de culture de rang 5 nommé Heaven Soul, dans le sud de Suzaku? »
+« Ceng Niu... » Chi Hu réfléchit un instant avant que son regard ne devienne sérieux: « Cher compagnon, seriez-vous un membre de la famille Ceng, issue du pays de culture de rang 5 nommé Tianhun, dans le sud de Suzaku? »
 
 Wang Lin fut surpris et secoua silencieusement la tête.
 
-Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Heaven Soul. Bien qu'il ne l'admette pas, il ne croyait pas que Ceng Niu ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
+Chi Hu resta pensif un long moment. Le seul pays de culture de haut rang possédant une famille nommée Ceng était Tianhun. Bien qu'il ne l'admette pas, il ne croyait pas que Ceng Niu ait acquis sa culture par ses propres moyens; il soupçonnait qu'il s'agissait d'un disciple central formé par l'un des pays de rang 5. Autrement, s'il venait d'un pays de rang 4, il l'aurait forcément reconnu.
 
 Le Clan des Démons Géants étant lui-même un pays de culture de rang 4, ils connaissaient parfaitement les génies de leurs pairs. Après cette réflexion, son attitude envers Wang Lin changea notablement, bien qu'il ne le laissa paraître compte tenu de son niveau de culture.
 

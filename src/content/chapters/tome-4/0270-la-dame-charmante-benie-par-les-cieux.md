@@ -40,11 +40,11 @@ Et le talent de cette femme de Xue Yu était déjà prodigieux. En conséquence,
 
 Sa seule requête était que Xue Yu devienne un pays de culture de rang 5 et qu'ils puissent quitter cette terre désolée pour s'installer ailleurs sur la planète Suzaku.
 
-Par coïncidence, un Chaudron de Pluie était apparu au sein de l'Alliance des Quatre Sectes, provenant précisément d'un cultivateur de Xue Yu; c'est ainsi que cette guerre fut déclenchée.
+Justement, un Chaudron de Pluie était apparu au sein de l'Alliance des Quatre Sectes, provenant précisément d'un cultivateur de Xue Yu; c'est ainsi que cette guerre fut déclenchée.
 
 L'Alliance des Quatre Sectes avait attiré l'attention de Xue Yu en raison de la bataille pour le Chaudron de Pluie et était devenue la nouvelle cible de l'invasion de Xue Yu.
 
-Quant à savoir pourquoi le Chaudron de Pluie était apparu dans l'Alliance des Quatre Sectes et pourquoi il s'était retrouvé entre les mains du roi, l'Alliance pensait qu'il s'agissait d'un complot.
+Quant à savoir pourquoi le Chaudron de Pluie était apparu dans l'Alliance des Quatre Sectes et pourquoi il s'était retrouvé entre les mains du prince, l'Alliance pensait qu'il s'agissait d'un complot.
 
 Mais désormais, que ce soit un complot ou non ne changerait rien à la réalité.
 
@@ -72,7 +72,7 @@ L'accumulation de neige ressemblait à une chaîne de montagnes gigantesque joux
 
 Des vagues de froid émanaient de cette neige. Un sentiment de désespoir s'en dégageait.
 
-Wang Lin flottait silencieusement dans les airs. Il contemplait le champ enneigé et réfléchit longuement. Finalement, il soupira. Ses deux mains formèrent un sceau qui créa un vent étrange balayant la plaine, un souffle qui ressemblait aux gémissements de l'humanité.
+Wang Lin flottait silencieusement dans les airs. Il contemplait le champ enneigé et réfléchit longuement. Finalement, il soupira. Ses deux mains formèrent un sceau qui créa un vent étrange balayant la plaine, un souffle qui ressemblait à des sanglots.
 
 À cet instant, on aurait dit que les cieux et la terre étaient emplis de ces cris de douleur... La neige continuait de tomber et le vent continuait de souffler, à l'image de l'immensité éternelle du ciel.
 
@@ -80,11 +80,11 @@ Seule cette neige était très étrange. Bien que le vent fût puissant, peu de 
 
 Aucune trace de panique ne se lisait sur le visage de Wang Lin. Il resta immobile dans les airs, le regard calme.
 
-Graduellement, un petit tourbillon apparut dans la forêt enneigée et la neige commença à s'écarter lentement.
+Graduellement, un tourbillon de cent mètres de diamètre apparut dans la forêt enneigée et la neige commença à s'écarter lentement.
 
 Wang Lin était resté ainsi pendant longtemps. Certains cultivateurs qui passaient par là remarquèrent sa présence.
 
-Finalement, le tourbillon dans la neige s'agrandit jusqu'à former un trou gigantesque. Au fond de ce gouffre, on apercevait d'innombrables branches d'arbres.
+Finalement, le tourbillon dans la neige s'agrandit jusqu'à former un trou gigantesque. Au fond de ce gouffre, on apercevait d'innombrables troncs d'arbres.
 
 Wang Lin jeta un regard sur l'endroit. Sa main forma un sceau et il descendit dans le tourbillon. À l'intérieur se trouvaient de grands arbres et des branches: c'étaient les matériaux pour ses sculptures.
 

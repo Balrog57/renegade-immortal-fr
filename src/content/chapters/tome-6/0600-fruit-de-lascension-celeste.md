@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 600 - Celestial Ascension Fruit
 slug: fruit-de-lascension-celeste
 ---
-À cet instant, dans la tour noire située sur l'ancien champ de bataille, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur du casque au sommet de la tour.
+À cet instant, dans le Pays du Démon Céleste, sur l'ancien champ de bataille, à l'étage supérieur de la tour noire, deux lueurs fantomatiques s'allumèrent soudainement à l'intérieur de l'armure.
 
 « Il vient tout juste d'atteindre le stade d'Ascendant, son énergie originelle n'a donc pas encore totalement fusionné avec son corps. Il lui faudra quarante-neuf jours pour achever ce processus, et cette fenêtre est une opportunité que j'attends depuis dix ans... »
 
@@ -26,7 +26,7 @@ Au moment où l'armure toucha le membre desséché, elle s'y attacha instantané
 
 « Va, et rapporte l'énergie originelle! » Le bras trembla avant de disparaître dans le vortex.
 
-« Seuls les cultivateurs Ascendants possèdent une énergie originelle en leur sein. Dommage que je sois trop gravement blessé pour extraire l'énergie originelle de cultivateurs ayant déjà fusionné celle-ci avec leur corps à une telle distance. Je ne peux que choisir d'attaquer ceux qui viennent de réaliser une percée pour leur dérober leur énergie originelle. » La lueur fantomatique de l'armure, désormais privée d'une protection de bras, faiblit progressivement jusqu'à s'éteindre totalement.
+« Seuls les cultivateurs Ascendants possèdent une énergie originelle en leur sein. Dommage que je sois trop gravement blessé pour extraire à une telle distance l'énergie originelle de cultivateurs l'ayant déjà fusionnée avec leur âme originelle. Je ne peux que choisir d'attaquer ceux qui viennent de réaliser une percée pour leur dérober leur énergie originelle. » La lueur fantomatique de l'armure, désormais privée d'une protection de bras, faiblit progressivement jusqu'à s'éteindre totalement.
 
 Wang Lin était assis en position du lotus à l'intérieur de la grotte. Il expira un souffle fétide et se redressa. Il y avait passé dix ans; de nombreux craquements retentirent alors que son corps retrouvait sa souplesse.
 
@@ -38,7 +38,7 @@ La nature prudente de Wang Lin fit qu'en voyant le vortex, il se précipita imm�
 
 Au moment où il s'élança, le vortex accéléra soudainement, augmentant de volume. Le regard de Wang Lin se glaça; d'un geste vif, il frappa son sac de rangement et sortit sans hésiter le jeton de la grotte. Sa main traça un sceau et, bientôt, son corps devint translucide, sur le point de disparaître.
 
-C'est alors qu'un bras d'os revêtu d'une armure jaillit du vortex et balaya violemment Wang Lin!
+C'est alors qu'un bras d'os revêtu d'une armure jaillit du vortex et tenta de saisir violemment Wang Lin!
 
 Ce coup fit vaciller la silhouette dématérialisée de Wang Lin, qui finit par disparaître instantanément.
 
@@ -56,7 +56,7 @@ Le vortex surgit dans un silence absolu; même le Sens Divin n'avait pu détecte
 
 Wang Lin fixait le vortex d'un regard lugubre. Cette fois, il ne s'enfuit pas; il voulait tester la puissance de ce bras tapi dans les ténèbres!
 
-À peine le vortex apparu, le bras d'os armé en sortit et tendit l'accolade vers Wang Lin!
+À peine le vortex apparu, le bras d'os armé en sortit et tendit la main pour agripper Wang Lin dans le vide!
 
 Aucun vent ni aucun nuage n'accompagnaient ce geste. Aucune fluctuation ne trahissait l'usage de sorts; cette attaque semblait aussi naturelle que le mouvement d'un simple mortel agitant le bras.
 
@@ -86,7 +86,7 @@ Sous la puissance de cette aura de massacre, son âme originelle, qui était dé
 
 « Peu importe qui vous êtes, ne jouez pas avec moi... » Wang Lin recula d'un pas et, simultanément, enchaîna plusieurs sorts de téléportation. En un clin d'œil, il disparut.
 
-Le bras osseux n'était pas la véritable menace; ce qui était terrifiant, c'était cette protection de poignet. Le Doigt de la Mort que Wang Lin avait utilisé pour sonder la situation lui avait permis de voir au-delà de l'armure. Les terres des esprits démoniaques regorgeaient d'êtres mystérieux. Wang Lin venait de franchir le stade d'Ascendant et avait besoin de quelques jours pour que son âme originelle fusionne totalement; il ne voulait pas s'attirer de tourments inutiles pour l'instant.
+Le bras osseux n'était pas la véritable menace; ce qui était terrifiant, c'était cette protection de poignet. Le Doigt de la Mort que Wang Lin avait utilisé pour sonder la situation lui avait permis de percevoir l'étrangeté de cette protection. Les terres des esprits démoniaques regorgeaient d'êtres mystérieux. Wang Lin venait de franchir le stade d'Ascendant et avait besoin de quelques jours pour que son âme originelle fusionne totalement; il ne voulait pas s'attirer de tourments inutiles pour l'instant.
 
 Au moment où Wang Lin partit, une exclamation étouffée retentit depuis la tour noire sur l'ancien champ de bataille.
 
@@ -98,7 +98,7 @@ Wang Lin réapparut après sa téléportation. Il se trouvait dans une zone dés
 
 Il atteignit bientôt l'emplacement des restrictions. Le lieu était plus aride encore que le précédent. Le sol, craquelé par la sécheresse, ne présentait rien d'anormal au premier abord.
 
-Les restrictions protégeant ce site n'étaient pas complexes, mais leur qualité était exceptionnelle. Il y en avait pas moins de mille, toutes interconnectées: l'activation de l'une entraînait celle de toutes les autres.
+Les restrictions protégeant ce site n'étaient pas subtiles, mais elles compensaient par leur nombre. Il y en avait pas moins de plusieurs milliers, toutes interconnectées: l'activation de l'une entraînait celle de toutes les autres.
 
 Bien que rudimentaires, elles étaient redoutables. Même un général démon aurait eu du mal à forcer le passage, et cela lui aurait coûté un temps précieux.
 
@@ -106,7 +106,7 @@ Wang Lin déploya son Sens Divin. Avec sa culture et sa maîtrise des formations
 
 « C'est comme un fantôme qui me hante! » Les sourcils de Wang Lin se froncèrent durement et son regard se glaça. Ce vortex noir ne cessait de surgir devant lui, éveillant une pointe d'intention meurtrière dans son cœur. Il laissa échapper un reniflement méprisant et plongea tête baissée dans les innombrables restrictions.
 
-Grâce à sa compréhension des lois, il pouvait briser des barrières du même niveau que celles de la grotte céleste; ces restrictions ne représentaient donc aucun défi. D'un seul regard, d'innombrables déductions traversèrent son esprit. Puis, son corps disparut dans le réseau de protection.
+Grâce à sa maîtrise des restrictions, il pouvait briser des barrières du même niveau que celles de la grotte céleste; ces restrictions ne représentaient donc aucun défi. D'un seul regard, d'innombrables déductions traversèrent son esprit. Puis, son corps disparut dans le réseau de protection.
 
 La fonction de ces restrictions, outre l'interdiction d'accès, était de créer des illusions pour dissimuler l'intérieur. Mais Wang Lin, ayant brisé tant de formations par le passé, parvint à les traverser sans les déclencher. Une fois par-delà les barrières, le paysage changea radicalement.
 

@@ -10,33 +10,33 @@ Le corps de l'Empereur Ancien demeurait immobile tandis qu'il observait attentiv
 
 D'un revers de la main droite, il fit apparaître quatre drapeaux blancs qui, après une rotation unique, se posèrent de chaque côté de lui.
 
-Son regard s'assombrit soudainement. Sous sa direction, les quatre drapeaux commencèrent à croître démesurément. En tournoyant, ils générèrent des serpents blancs qui glissèrent vers l'emplacement de Wang Lin.
+Son regard s'assombrit soudainement. Sous sa direction, les quatre drapeaux commencèrent à croître démesurément. En tournoyant, ils générèrent des faisceaux blancs qui glissèrent vers l'emplacement de Wang Lin.
 
-Ces serpents blancs circulèrent un instant avant que l'un d'eux ne désigne une roche à proximité.
+Ces faisceaux blancs circulèrent un instant avant que l'un d'eux ne désigne une roche à proximité.
 
-Wang Lin restait calme, assis au cœur de ses multiples restrictions. Il n'était ni nerveux, ni surpris. Il avait une confiance absolue dans les techniques de restriction qu'il perfectionnait depuis dix ans. Si des restrictions avaient été posées à la dernière minute, elles auraient pu tromper sa cible; mais celles-ci lui avaient pris un an de travail acharné.
+Wang Lin restait calme, assis au cœur de ses multiples restrictions. Il n'était ni nerveux, ni surpris. Il avait une certaine confiance dans les techniques de restriction qu'il perfectionnait depuis dix ans. Si des restrictions avaient été posées à la dernière minute, elles auraient pu tromper sa cible; mais celles-ci lui avaient pris un an de travail acharné.
 
 C'est pourquoi, malgré la méthode singulière employée par l'Empereur Ancien, Wang Lin ne ressentait aucune inquiétude. Il se contenta d'un sourire sardonique et resta de marbre.
 
 L'endroit que l'Empereur Ancien avait remarqué était un point faible délibérément laissé par Wang Lin; s'il n'en avait pas pris garde, il en aurait payé le prix fort.
 
-Les serpents blancs s'entrelacèrent, accélérant sans cesse, pour finalement se jeter en un clin d'œil sur l'une des nombreuses restrictions de Wang Lin.
+Les faisceaux blancs s'entrelacèrent, accélérant sans cesse, pour finalement se jeter en un clin d'œil sur l'une des nombreuses restrictions de Wang Lin.
 
 La roche semblait tout à fait ordinaire, mais sous la lumière blanche, elle disparut lentement, révélant un étroit sentier permettant le passage d'un homme.
 
-L'Empereur Ancien fixa ce passage, mais ne s'y engagea pas. D'un geste, il rappela les serpents blancs et se mit à observer minutieusement la zone.
+L'Empereur Ancien fixa ce passage, mais ne s'y engagea pas. D'un geste, il rappela les faisceaux blancs et se mit à observer minutieusement la zone.
 
 Fort de ses années d'expérience dans le déchiffrement des restrictions de cette montagne, il en déduisit que ce dispositif cachait une méthode mortelle particulièrement perfide. S'il manquait de prudence, il risquait de déclencher des restrictions bien plus vastes.
 
 Étant si proche du sommet, il aurait déjà dû lutter contre les mécanismes actuels s'il n'avait pas passé mille ans à les étudier. Après ce point, la difficulté ne ferait qu'augmenter.
 
-L'Empereur Ancien se montra extrêmement prudent. Il s'assit au sol et utilisa ses mains pour guider les serpents blancs afin de pénétrer lentement dans la restriction.
+L'Empereur Ancien se montra extrêmement prudent. Il s'assit au sol et utilisa ses mains pour guider les faisceaux blancs afin de pénétrer lentement dans la restriction.
 
-Wang Lin eut un ricanement intérieur. La distance qui le séparait de l'Empereur Ancien était de moins de trois mètres, mais ce dernier ne le percevait pas. Même avec son Sens Divin, il lui serait difficile de le détecter. À l'exception de Wang Lin lui-même, personne ne savait combien de restrictions il avait disposées ici.
+Wang Lin eut un ricanement intérieur. La distance qui le séparait de l'Empereur Ancien était de moins de trente mètres, mais ce dernier ne le percevait pas. Même avec son Sens Divin, il lui serait difficile de le détecter. À l'exception de Wang Lin lui-même, personne ne savait combien de restrictions il avait disposées ici.
 
 Toutefois, connaissant le tempérament de Wang Lin, on pouvait supposer que les environs regorgeaient de pièges. En réalité, on pourrait dire qu'il avait consigné ici tout le savoir acquis durant ces dix dernières années.
 
-Après un an, l'Empereur Ancien se retrouva assis devant le sentier ouvert, le visage décomposé. Il pensait initialement que la restriction était complexe en raison de la ruse de son adversaire, mais après un mois d'étude minutieuse, il fut stupéfait de constater sa simplicité. Ce revirement soudain l'agaçait profondément. Heureusement qu'il avait déjà affronté de telles situations. Il prit une profonde inspiration et leva les yeux vers le sommet. Il se jura que s'il croisait un jour cet homme mystérieux, il lui donnerait une leçon mémorable. Sa haine envers ce dernier s'était déjà muée en obsession.
+Un mois plus tard, l'Empereur Ancien se retrouva assis devant le sentier ouvert, le visage décomposé. Il pensait initialement que la restriction était complexe en raison de la ruse de son adversaire, mais après un mois d'étude minutieuse, il fut stupéfait de constater sa simplicité. Ce revirement soudain l'agaçait profondément. Heureusement qu'il avait déjà affronté de telles situations. Il prit une profonde inspiration et leva les yeux vers le sommet. Il se jura que s'il croisait un jour cet homme mystérieux, il lui donnerait une leçon mémorable. Sa haine envers ce dernier s'était déjà muée en obsession.
 
 Néanmoins, l'Empereur Ancien resta sur ses gardes, retenant son souffle. Cet individu mystérieux excellait dans les changements imprévus. Souvent, ce qui semblait être une vérité s'avérait être un leurre, et au moment où l'on baissait sa garde, le faux se révélait vrai.
 
@@ -68,7 +68,7 @@ Le visage de ce dernier devint pâle. Il savait que ces lumières n'avaient aucu
 
 L'Empereur Ancien agita précipitamment sa main droite et quatre petits drapeaux apparurent. Regardant ces derniers avec regret, il cracha une bouffée d'énergie spirituelle. Les quatre drapeaux se mirent à tourner et un tunnel noir se matérialisa devant eux.
 
-Juste avant que les lumières multicolores ne l'atteignent, l'Empereur Ancien sauta dans le tunnel obscur et réapparut à quelques mètres de là.
+Juste avant que les lumières multicolores ne l'atteignent, l'Empereur Ancien sauta dans le tunnel obscur et réapparut à une trentaine de mètres de là.
 
 Une fois sorti de la restriction, il accéléra brusquement, la sueur perlant sur son front. Il se retourna, le visage renfrogné, et vit que la restriction était déjà revenue à son état normal.
 
@@ -82,7 +82,7 @@ Seulement, Wang Lin n'avait pas réalisé la puissance de ces drapeaux. Ils avai
 
 Wang Lin réfléchit un instant et reprit sa position assise, ses yeux fixés sur le gigantesque tourbillon au sommet de la montagne.
 
-Le Seigneur Démon des Six Désirs se trouvait à trente mètres du sommet, le visage sombre. Sans ce jeune homme, il serait arrivé ici il y a deux ans.
+Le Seigneur Démon des Six Désirs se trouvait à trois cent trente mètres du sommet, le visage sombre. Sans ce jeune homme, il serait arrivé ici il y a deux ans.
 
 Même pour lui, il n'oserait pas déclencher les restrictions en ce moment. Auparavant, une tentative de franchissement avait échoué, déclenchant une lumière de téléportation qui l'avait visé. C'était le genre de situation qu'il détestait par-dessus tout. S'il avait été téléporté, il lui aurait été difficile de survivre. N'ayant pas eu le temps d'esquiver, il avait utilisé le jeune homme qu'il avait emmené comme bouclier pour s'échapper.
 
@@ -92,11 +92,11 @@ Le jeune homme se tenait à ses côtés, les yeux clos, sans aucun signe de vie.
 
 Pourtant, étrangement, ce même jeune homme suivait toujours le Seigneur Démon des Six Désirs. Ce dernier se retourna et ricana en sentant une autre de ses restrictions brisée par la personne qui le suivait.
 
-Cet individu ne cessait de franchir les pièges qu'il avait mis en place. Il était devenu son plus grand ennemi. Il se lécha les lèvres et pensa: « Ce doit être l'Empereur Ancien. Sans toutes ces restrictions, ce serait le moment idéal pour le tuer. Mais j'ai placé quelques pièges surpuissants dans ces cent derniers mètres. Je veux voir si tu peux les briser. » Il lança un regard méprisant au jeune homme à ses côtés.
+Cet individu ne cessait de franchir les pièges qu'il avait mis en place. Il était devenu son plus grand ennemi. Il se lécha les lèvres et pensa: « Ce doit être l'Empereur Ancien. Sans toutes ces restrictions, ce serait le moment idéal pour le tuer. Mais j'ai placé quelques pièges surpuissants dans ces quelques centaines de mètres. Je veux voir si tu peux les briser. » Il lança un regard méprisant au jeune homme à ses côtés.
 
 Ses yeux se reportèrent ensuite aux restrictions du tourbillon. Même avec ses capacités, il était impossible de les franchir. Même son propre maître s'était arrêté ici.
 
-Cette fois, le Seigneur Démon des Six Désirs avait la confiance nécessaire pour tenter l'ascension. Comment ne pas être mieux préparé? Il regarda le jeune homme, esquissa un sourire fier et déclara: « J'ai passé des centaines d'années à créer ce piège mortel. Il me permettra sans aucun doute d'entrer dans le corps de l'Ancien Dieu. »
+Cette fois, le Seigneur Démon des Six Désirs avait la confiance nécessaire pour tenter l'ascension. Comment ne pas être mieux préparé? Il regarda le jeune homme, esquissa un sourire fier et déclara: « J'ai passé cent ans à créer ce piège mortel. Il me permettra sans aucun doute d'entrer dans le corps de l'Ancien Dieu. »
 
 Il s'assit en tailleur. D'un geste de la main gauche, il força le jeune homme à faire de même. Le Seigneur Démon des Six Désirs joignit ses mains pour former une restriction spirale qui enveloppa les deux individus.
 
@@ -106,13 +106,13 @@ Même ainsi, il dut sacrifier de nombreux trésors pour s'extirper vivant de ces
 
 Certaines restrictions ne pouvaient plus être simplement brisées; d'autres exigeaient des quantités massives d'énergie spirituelle pour être franchies. L'Empereur Ancien était extrêmement maussade.
 
-Alors qu'il sortait d'une autre restriction, il se trouvait à moins de soixante mètres du sommet. Comme aucun obstacle ne bloquait plus sa vue, il aperçut le Seigneur Démon des Six Désirs dont l'expression était sombre. Derrière lui trônait un tourbillon noir menant vers l'inconnu, et au centre se trouvait le jeune homme qui suivait le démon.
+Alors qu'il sortait d'une autre restriction, il se trouvait à moins de six cent soixante mètres du sommet. Comme aucun obstacle ne bloquait plus sa vue, il aperçut le Seigneur Démon des Six Désirs dont l'expression était sombre. Derrière lui trônait un tourbillon noir menant vers l'inconnu, et au centre se trouvait le jeune homme qui suivait le démon.
 
 Le Seigneur Démon des Six Désirs observa l'Empereur Ancien. Il ne s'attendait pas à ce qu'il arrive si vite. S'il avait eu le temps de brûler un bâton d'encens, il aurait pu achever la restriction du tourbillon. Bien que cela n'eût duré que trois respirations, c'était amplement suffisant pour lui.
 
 Mais l'apparition soudaine de l'Empereur Ancien l'obligea à modifier ses plans.
 
-Les yeux de l'Empereur Ancien se contractèrent en voyant le tourbillon. Il se souvint que c'était exactement la même technique que celle utilisée par Sky Devil, le maître du Seigneur Démon des Six Désirs. C'était une technique de restriction capable de contourner des centaines de pièges.
+Les yeux de l'Empereur Ancien se contractèrent en voyant le tourbillon. Il se souvint que c'était exactement la même technique que celle utilisée par le Démon Céleste, le maître du Seigneur Démon des Six Désirs. C'était une technique de restriction capable de contourner des centaines de pièges.
 
 « Six Désirs... » Les yeux de l'Empereur Ancien étaient éteints alors qu'il réprimait sa colère. Comparé au Seigneur Démon des Six Désirs, il avait encore plus hâte de retrouver le mystérieux jeune homme. Son regard balaya la zone et se posa sur le garçon. Il fronça les sourcils: « Est-ce lui, le mystérieux jeune homme? Pourtant, aucune trace de vie ne semble émaner de lui... »
 
@@ -138,11 +138,11 @@ L'Empereur Ancien avança sans mot dire, ses yeux ne quittant jamais le démon. 
 
 À l'instant même où l'Empereur Ancien passa à l'action, le Seigneur Démon des Six Désirs referma sa main, réactivant instantanément les restrictions.
 
-Mais il n'avait jamais imaginé que les drapeaux de l'Empereur Ancien seraient aussi puissants. Au moment où les pièges furent rétablis, l'Empereur Ancien sortit du tunnel et se trouvait déjà à seulement trois mètres de lui.
+Mais il n'avait jamais imaginé que les drapeaux de l'Empereur Ancien seraient aussi puissants. Au moment où les pièges furent rétablis, l'Empereur Ancien sortit du tunnel et se trouvait déjà à une trentaine de mètres de lui.
 
 Dès son apparition, l'Empereur Ancien n'hésita pas. Un rayon de lumière jaillit de sa bouche. Ce tir ne visait pas le Seigneur Démon des Six Désirs, mais le jeune homme au centre du tourbillon. Si l'Empereur Ancien avait dégainé son trésor salvateur, c'était parce que sa haine envers ce garçon était véritablement monstrueuse.
 
-L'expression du Seigneur Démon des Six Désirs changea radicalement. Ses mains se refermèrent sur un parchemin imprimé et il hurla: « Désir! » Soudain, une lumière jaune jaillit du ventre du jeune homme pour se transformer en une épée, laquelle vint heurter le rayon de l'Empereur Ancien.
+L'expression du Seigneur Démon des Six Désirs changea radicalement. Ses mains formèrent des sceaux et il hurla: « Ventre-Désir! » Soudain, une lumière jaune jaillit des sept orifices du jeune homme pour se transformer en une épée, laquelle vint heurter le rayon de l'Empereur Ancien.
 
 Une onde d'énergie spirituelle se propagea, activant instantanément les restrictions alentour. Sous la pression de ces activations massives, l'Empereur Ancien fut contraint de cesser son attaque et dut rapidement déployer ses propres restrictions pour stopper le déclenchement généralisé.
 
@@ -182,9 +182,9 @@ Le Seigneur Démon des Six Désirs affichait également une mine sombre. Il rica
 
 Alors qu'il finissait sa phrase, son visage changea brusquement. Ignorant l'Empereur Ancien, il apparut soudainement aux côtés du jeune homme, lui saisit le bras et s'apprêta à plonger dans le tourbillon.
 
-« Trop tard! » Une voix glaciale retentit de toutes parts. Soudain, dans un rayon de quatre-vingt-dix mètres autour du sommet, d'innombrables cercles illusionnaires apparurent, pulvérisant toutes les restrictions environnantes.
+« Trop tard! » Une voix glaciale retentit de toutes parts. Soudain, dans un rayon de neuf cents mètres autour du sommet, d'innombrables cercles illusionnaires apparurent, pulvérisant toutes les restrictions environnantes.
 
-Wang Lin était assis sur un rocher à cent cinquante mètres de là. Durant l'année écoulée, il avait accumulé des cercles illusionnaires au sein de ses multiples restrictions. Il venait de libérer ses pièges, et tous les cercles en sortirent pour s'écraser contre toutes les restrictions situées dans un rayon de soixante mètres autour de lui.
+Wang Lin était assis sur un rocher à plus d'un kilomètre et demi de là. Durant l'année écoulée, il avait accumulé des cercles illusionnaires au sein de ses multiples restrictions. Il venait de libérer ses pièges, et tous les cercles en sortirent pour s'écraser contre la plupart des restrictions situées à plus de six cents mètres au-dessus de lui.
 
 On pourrait dire que chaque restriction posée par Wang Lin servait de réserve pour ces cercles illusionnaires. Sous la pression dévastatrice de ces derniers, le Seigneur Démon des Six Désirs et l'Empereur Ancien furent soudainement pris au dépourvu.
 
@@ -192,23 +192,23 @@ Le Seigneur Démon des Six Désirs excellait dans l'art de la tromperie, mais il
 
 À cet instant précis, la vérité le frappa. Une haine profonde irradia de son regard.
 
-Toutes les restrictions dans un rayon de quatre-vingt-dix mètres autour du sommet furent activées. Soudain, des rayons de lumière, des boules de feu gigantesques, des épées magiques capables de donner le tournis aux dieux immortels et des lueurs multicolores dégageant une puissante aura de mort jaillirent de toutes parts.
+Toutes les restrictions dans un rayon de neuf cents mètres autour du sommet furent activées. Soudain, des rayons de lumière, des boules de feu gigantesques, des épées des cinq éléments qui auraient donné le tournis même à un cultivateur de la Transformation de l'Âme et des lueurs multicolores dégageant une puissante aura de mort jaillirent de toutes parts.
 
 Le déclenchement généralisé des pièges activa même la restriction céleste. De soudains nuages noirs apparurent, descendant vers le sommet de la montagne sous des éclairs fulgurants.
 
-De plus, un anneau de lumière noire se forma à quatre-vingt-dix mètres du sommet, s'éleva brusquement avant de se contracter. Tout ce que cet anneau touchait était annihilé, y compris les restrictions de la montagne elle-même.
+De plus, un anneau de lumière noire se forma à neuf cents mètres du sommet, s'éleva brusquement avant de se contracter. Tout ce que cet anneau touchait était annihilé, y compris les restrictions de la montagne elle-même.
 
 Même Wang Lin fut stupéfait par ce spectacle. Il n'avait jamais imaginé qu'activer autant de restrictions produirait un tel effet, particulièrement cet anneau noir doté d'une puissance destructrice aussi terrifiante.
 
 Une fois déclenchées, les restrictions près du sommet n'avaient qu'un seul but: exterminer tout être vivant dans la zone.
 
-Selon l'analyse de Wang Lin, de nombreuses restrictions s'interposaient entre lui et les deux autres. Si l'Empereur Ancien et le Seigneur Démon des Six Désirs renonçaient à la montagne pour venir le chercher, il disposait encore de centaines de cercles illusionnaires autour de lui, suffisants pour déclencher toutes les restrictions de la montagne.
+Selon l'analyse de Wang Lin, de nombreuses restrictions s'interposaient entre lui et les deux autres. Si l'Empereur Ancien et le Seigneur Démon des Six Désirs renonçaient à la montagne pour venir le chercher, il disposait encore de près d'une centaine de cercles illusionnaires autour de lui, suffisants pour déclencher toutes les restrictions de la montagne.
 
 S'il le voulait, il pouvait simplement quitter la montagne et attendre que tout se calme avant de remonter.
 
 Mais désormais, il semblait que tous ses préparatifs étaient vains. À moins que le Seigneur Démon des Six Désirs et l'Empereur Ancien ne soient devenus fous, ils n'envisageraient jamais de revenir ici, tant l'anneau de lumière noire qui se contractait était intimidant.
 
-Selon le plan de Wang Lin, peu importait que l'un ou l'autre franchisse la deuxième barrière. S'il avait laissé passer l'Empereur Ancien, c'était simplement parce que les restrictions suivantes étaient trop ardues pour lui. Il voulait aussi tester la puissance des pièges situés dans les derniers cent cinquante mètres afin de mieux les affronter à l'avenir.
+Selon le plan de Wang Lin, peu importait que l'un ou l'autre franchisse la deuxième barrière. S'il avait laissé passer l'Empereur Ancien, c'était simplement parce que les restrictions suivantes étaient trop ardues pour lui. Il voulait aussi tester la puissance des pièges situés dans les derniers mille six cents mètres afin de mieux les affronter à l'avenir.
 
 Bien que son objectif fût atteint, Wang Lin ne pouvait s'empêcher de fixer l'anneau noir. Ce phénomène dépassait totalement ses prévisions.
 
@@ -220,7 +220,7 @@ L'Empereur Ancien, voyant également la lueur noire, devint extrêmement méfian
 
 Les deux lancèrent leur assaut presque simultanément vers le sommet.
 
-Le Seigneur Démon des Six Désirs était très rapide grâce aux cinq pierres formant un écran protecteur. Toutefois, quelques attaques réussirent à percer la barrière et l'atteignirent, le laissant dans un état lamentable après avoir parcouru quelques dizaines de mètres.
+Le Seigneur Démon des Six Désirs était très rapide grâce aux cinq pierres formant un écran protecteur. Toutefois, quelques attaques réussirent à percer la barrière et l'atteignirent, le laissant dans un état lamentable après avoir parcouru plusieurs centaines de mètres.
 
 L'Empereur Ancien vivait une situation similaire, mais chaque fois qu'une attaque frappait ses drapeaux, son visage se décomposait davantage.
 
@@ -240,11 +240,11 @@ Wang Lin soupira et reporta son attention sur l'anneau noir. Serrant les dents, 
 
 L'Empereur Ancien jeta un regard au garçon, et la peur l'envahit. Il semblait que le Seigneur Démon des Six Désirs ne lui avait pas menti: ce jeune homme était bel et bien cette chose...
 
-Une lueur de cupidité brilla dans ses yeux. Il n'était qu'à quinze mètres du sommet. Il prit une grande inspiration et agita la main. Les huit drapeaux tournèrent plus vite et un tunnel noir se matérialisa devant lui.
+Une lueur de cupidité brilla dans ses yeux. Il n'était plus qu'à cent soixante mètres du sommet. Il prit une grande inspiration et agita la main. Les huit drapeaux tournèrent plus vite et un tunnel noir se matérialisa devant lui.
 
 Il s'engouffra dans le tunnel et réapparut au sommet de la montagne. Il laissa échapper un rire. Alors qu'il s'apprêtait à franchir la sortie du second royaume, le Seigneur Démon des Six Désirs arriva lui aussi.
 
-Comment les restrictions situées à moins de trente mètres du sommet avaient-elles pu être si facilement contournées? Si ces deux hommes avaient réussi cet exploit, ce n'était pas seulement grâce à leur niveau de culture, mais aussi grâce aux trésors qu'ils possédaient.
+Comment les restrictions situées à moins de trois cent trente mètres du sommet avaient-elles pu être si facilement contournées? Si ces deux hommes avaient réussi cet exploit, ce n'était pas seulement grâce à leur niveau de culture, mais aussi grâce aux trésors qu'ils possédaient.
 
 Ces objets étaient leurs deux armes secrètes pour franchir les royaumes.
 
@@ -252,15 +252,15 @@ Sans parler du corps du jeune homme, les drapeaux de l'Empereur Ancien provenaie
 
 Les huit drapeaux pouvaient générer une multitude de restrictions selon leurs combinaisons. Si l'Empereur Ancien n'ignorait pas tant de configurations, son ascension n'aurait pas été aussi laborieuse.
 
-Toutefois, en termes de rapidité d'analyse, l'Empereur Ancien restait le plus véloce des trois, ce qui constituait un problème en soi.
+Toutefois, en termes de vitesse, l'Empereur Ancien restait le plus véloce des trois, ce qui constituait un problème en soi.
 
 Il avait fallu énormément d'efforts à l'Empereur Ancien pour acquérir ces drapeaux. S'il les avait possédés mille ans auparavant, le taux de mortalité et de blessures n'aurait pas été aussi élevé.
 
-Néanmoins, les restrictions dans les trente derniers mètres n'étaient pas une mince affaire. Alors que les deux étaient sur le point de s'engager dans le tourbillon, toutes les attaques déferlèrent simultanément tandis que le ciel déversait d'innombrables éclairs.
+Néanmoins, les restrictions dans les trois cent trente derniers mètres n'étaient pas une mince affaire. Alors que les deux étaient sur le point de s'engager dans le tourbillon, toutes les attaques déferlèrent simultanément tandis que le ciel déversait d'innombrables éclairs.
 
 La vitesse de l'anneau noir augmenta, sa contraction devenant encore plus rapide.
 
-Wang Lin se leva brusquement et chargea en avant. À l'origine, il n'avait pas prévu de s'approcher à moins de quatre-vingt-dix mètres, mais c'était une occasion unique; s'il la ratait, il le regretterait à jamais. Ses yeux étaient d'une concentration extrême alors qu'il formait des dizaines de cercles illusionnaires l'entourant. Mais soudain, il s'arrêta net, fixant droit devant lui, avant de laisser lentement les cercles se dissiper.
+Wang Lin se leva brusquement et chargea en avant. À l'origine, il n'avait pas prévu de s'approcher à moins de neuf cents mètres, mais c'était une occasion unique; s'il la ratait, il le regretterait à jamais. Ses yeux étaient d'une concentration extrême alors qu'il formait des dizaines de cercles illusionnaires l'entourant. Mais soudain, il s'arrêta net, fixant droit devant lui, avant de laisser lentement les cercles se dissiper.
 
 Wang Lin s'imposa ce frein, car il savait que s'il était frappé par un seul éclair, il serait anéanti. Le risque n'en valait pas la peine.
 
@@ -286,9 +286,9 @@ Wang Lin fixa le fragment d'os. Il savait que ce morceau ne supporterait pas une
 
 Il fit brusquement demi-tour sans s'arrêter.
 
-L'anneau noir se dissipa jusqu'à quatre-vingt-dix mètres de rayon, puis disparut soudainement. Le front de Wang Lin était trempé de sueur froide. Il vérifia les restrictions à quatre-vingt-dix mètres du sommet et nota immédiatement la différence.
+L'anneau noir se dissipa jusqu'à neuf cents mètres de rayon, puis disparut soudainement. Le front de Wang Lin était trempé de sueur froide. Il vérifia les restrictions à neuf cents mètres du sommet et nota immédiatement la différence.
 
-Wang Lin retourna s'asseoir sur son rocher. Lorsqu'il avait vu ces taches dorées pour la première fois, il avait immédiatement pensé à l'os doré qui avait émergé du front de Beastmaster.
+Wang Lin retourna s'asseoir sur son rocher. Lorsqu'il avait vu ces taches dorées pour la première fois, il avait immédiatement pensé à l'os doré qui avait émergé du front de la créature royale.
 
 Il observa l'os et exerça une légère pression. L'os, déjà fragilisé par la foudre et la lumière noire, était extrêmement vulnérable. Sous la pression de Wang Lin, il se fendit et vola en éclats, libérant huit grains de particules dorées.
 

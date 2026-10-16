@@ -30,7 +30,7 @@ Les yeux de Xu Ting s'illuminèrent comme des torches au milieu du brouillard no
 
 « Ceci... Comment est-ce possible? Il lui a suffi d'un regard pour terrifier l'esprit du tonnerre! Et à en juger par sa réaction, c'est comme si un junior rencontrait un aîné de sa propre lignée... »
 
-Shengong Hu remarqua également la scène. Ses yeux brillaient de fanatisme et il ne put s'empêcher de repenser à sa première rencontre avec Wang Lin. Il l'avait rencontré pour la première fois dans un lac de tonnerre. Il n'oublierait jamais cette silhouette aux longs cheveux noirs émergeant des eaux foudroyantes, ni ce regard qui lui avait donné l'impression que tout son corps allait s'effondrer.
+Shengong Hu remarqua également la scène. Ses yeux brillaient de fanatisme et il ne put s'empêcher de repenser à sa première rencontre avec Wang Lin. Il l'avait rencontré pour la première fois dans une prison de tonnerre. Il n'oublierait jamais cette silhouette aux longs cheveux noirs émergeant des éclairs, ni ce regard qui lui avait donné l'impression que tout son corps allait s'effondrer.
 
 C'était une vision inoubliable!
 
@@ -44,9 +44,9 @@ Wang Lin fit fi de tout cela. Assis là, il commença à saisir les lois du tonn
 
 Sur le tapis de prière, les yeux de Qing Shui se plissèrent et il esquissa un léger sourire.
 
-À ses côtés, Maître Flammespark fut d'abord surpris avant de laisser échapper un sourire amer. Il avait oublié que, sans son aide, ce Xu Mu aurait presque pu se cultiver en esprit de tonnerre. Non seulement cette épreuve terrestre ne représentait aucun défi pour lui, mais c'était comme si Xu Mu entrait dans sa propre arrière-cour!
+À ses côtés, Maître Flamespark fut d'abord surpris avant de laisser échapper un sourire amer. Il avait oublié que, sans son aide, ce Xu Mu aurait presque pu se cultiver en esprit de tonnerre. Non seulement cette épreuve terrestre ne représentait aucun défi pour lui, mais c'était comme si Xu Mu entrait dans sa propre arrière-cour!
 
-« Tant pis. Je considérerai cela comme une compensation pour avoir emprunté sa bête de tonnerre et pour réparer ma relation passée avec Qing Shui! » Maître Flammespark sourit tristement, mais n'interrompit pas Wang Lin.
+« Tant pis. Je considérerai cela comme une compensation pour avoir emprunté sa bête de tonnerre et pour réparer ma relation passée avec Qing Shui! » Maître Flamespark sourit tristement, mais n'interrompit pas Wang Lin.
 
 Quant à l'esprit du tonnerre, après avoir été effrayé par Wang Lin, il se comportait comme un enfant réprimandé par son aîné. Il poussa un rugissement et chargea les autres cultivateurs pour évacuer sa frustration.
 
@@ -68,9 +68,9 @@ Même le garçon à la grosse tête et le cultivateur aux six doigts décidèren
 
 À cet instant, il ne restait plus que deux personnes dans le lac de tonnerre!
 
-Le brouillard noir autour de Xu Ting était extrêmement dense. Il enveloppait tout dans un rayon de trente pieds et le tonnerre ne pouvait y pénétrer!
+Le brouillard noir autour de Xu Ting était extrêmement dense. Il enveloppait tout dans un rayon de dix mètres et le tonnerre ne pouvait y pénétrer!
 
-Wang Lin restait assis calmement à 3,3 kilomètres de Xu Ting. Immobile, les yeux clos, il laissait le tonnerre l'entourer. Ses longs cheveux flottaient sans qu'aucun vent ne soufflât. Il dégageait la prestance d'un céleste du tonnerre.
+Wang Lin restait assis calmement à 330 mètres de Xu Ting. Immobile, les yeux clos, il laissait le tonnerre l'entourer. Ses longs cheveux flottaient sans qu'aucun vent ne soufflât. Il dégageait la prestance d'un céleste du tonnerre.
 
 Xu Ting maugréait intérieurement. Le tonnerre devenait de plus en plus puissant, au point qu'il peinait à tenir bon. Mais le voir ainsi lui causait une frustration immense!
 
@@ -98,7 +98,7 @@ Xu Ting haletait. Il observa la scène un long moment avant de faire demi-tour p
 
 Le rythme du tambour ne s'arrêta pas. Tandis que les coups continuaient, Wang Lin demeurait immobile. L'esprit du tonnerre tournait autour de lui, le regard de plus en plus féroce. Quelque chose au plus profond de son âme le poussait à vouloir dévorer Wang Lin de plus en plus impérieusement. À la fin, cette pulsion occupa tout son esprit.
 
-« Dévorre-le et tu pourras te transformer en dragon du tonnerre! » C'était comme si une voix hurlait follement dans l'âme de l'esprit. Cette voix était empreinte d'une avidité pure. Cette convoitise stimula l'esprit au point de faire trembler tout son corps. Il continua de rugir tandis que tout le tonnerre de la place convergeait vers lui. La foudre s'accumulait en masse et, finalement, il poussa un cri de guerre et chargea!
+« Dévore-le et tu pourras te transformer en dragon du tonnerre! » C'était comme si une voix hurlait follement dans l'âme de l'esprit. Cette voix était empreinte d'une avidité pure. Cette convoitise stimula l'esprit au point de faire trembler tout son corps. Il continua de rugir tandis que tout le tonnerre de la place convergeait vers lui. La foudre s'accumulait en masse et, finalement, il poussa un cri de guerre et chargea!
 
 Au moment où il s'élança, le tonnerre gronda sans fin. Alors que l'énergie se concentrait sur l'esprit, des fissures apparurent à la surface de la place.
 
@@ -112,4 +112,4 @@ Dès l'apparition du dragon du tonnerre antique, le corps de l'esprit vacilla vi
 
 Il pouvait dévorer n'importe quel cultivateur, mais face à l'aura de son ancêtre, il perdait tout courage. Pourtant, le rugissement impérieux de son âme devint plus intense encore!
 
-« Dévorre-le et tu pourras te transformer en dragon du tonnerre! »
+« Dévore-le et tu pourras te transformer en dragon du tonnerre! »

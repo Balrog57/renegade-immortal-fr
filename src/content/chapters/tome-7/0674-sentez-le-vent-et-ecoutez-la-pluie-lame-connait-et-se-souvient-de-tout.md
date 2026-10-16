@@ -36,7 +36,7 @@ Par conséquent, tuer ce Huan Dong était aussi simple que de lever la main.
 
 Les yeux de Wang Lin devinrent froids en voyant Huan Dong tenter de s'enfuir. Puisqu'il avait accepté leur paiement, il devait éliminer ce désastre. Parfois, il était impossible de distinguer le bien du mal.
 
-Wang Lin frappa doucement son sac de contenance et la Formation d'Épées des Sept Étoiles s'élança sous la forme de sept rayons de lumière. La Formation d'Épées des Sept Étoiles avait été créée par le Saint des Épées Ling Tianhou; comment quiconque pourrait-il s'en défendre? En un clin d'œil, les sept épées chargèrent et atteignirent Huan Dong au moment même où il allait disparaître dans le vide. Les sept âmes des épées apparurent instantanément et fusionnèrent en une seule. La bête fusionnée laissa échapper un rugissement et griffa férocement Huan Dong.
+Wang Lin frappa doucement son sac de contenance et la Formation d'Épées des Sept Étoiles s'élança sous la forme de sept rayons de lumière. La Formation d'Épées des Sept Étoiles avait été créée par le Saint de l'Épée Ling Tianhou; comment quiconque pourrait-il s'en défendre? En un clin d'œil, les sept épées chargèrent et atteignirent Huan Dong au moment même où il allait disparaître dans le vide. Les sept âmes des épées apparurent instantanément et fusionnèrent en une seule. La bête fusionnée laissa échapper un rugissement et griffa férocement Huan Dong.
 
 Un bruit de miroir brisé résonna dans le ciel. À l'intérieur du vide, les yeux de Huan Dong étaient remplis de terreur, car la bête l'arracha violemment de la vacuité. Une fois extrait, les sept épées entourèrent Huan Dong, leurs pointes pointées contre lui. S'il bougeait ne serait-ce qu'un peu, les épées transperceraient son corps et détruiraient son âme.
 
@@ -74,11 +74,11 @@ Le visage de Wang Lin resta impassible et il hocha la tête.
 
 « La demoiselle de la famille Huan? » Wang Lin regarda Huan Dong.
 
-Sun Xi expliqua: « Camarade cultivateur Xu, vous l'ignorez peut-être, mais l'ancêtre de la famille Huan a ramené une femme du Système Stellaire de l'Alliance. Il l'a prise pour disciple et utilisera le rituel de lignée pour transformer son sang. »
+Sun Xi expliqua: « Camarade cultivateur Xu, vous l'ignorez peut-être, mais l'ancêtre de la famille Huan a ramené une femme du Système Stellaire de l'Alliance. Il en a fait sa fille adoptive et utilisera le rituel de lignée pour transformer son sang. »
 
 Les yeux de Wang Lin se plissèrent. « Quel est le niveau de culture de l'ancêtre de la famille Huan? »
 
-Huan Hong se détendit un peu et répondit: « La culture de l'ancêtre a déjà atteint la deuxième étape. Il y a plusieurs milliers d'années, il était déjà au stade du Yin et du Yang! »
+Huan Dong se détendit un peu et répondit: « La culture de l'ancêtre a déjà atteint la deuxième étape. Il y a plusieurs milliers d'années, il était déjà au stade du Yin et du Yang! »
 
 Wang Lin regarda l'ancêtre de la famille Ran et ses compagnons avec un sourire qui n'en était pas un. Une pointe de dérision dans son regard fit baisser la tête à l'ancêtre de la famille Ran.
 
@@ -106,7 +106,7 @@ Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagno
 
 « Liu Mei... » Wang Lin fronça les sourcils, et des images de la planète Suzaku défilèrent devant ses yeux, incluant ce qui s'était passé dans le Tombeau de Suzaku.
 
-« Cette femme a eu une chance inouïe de parvenir au Système Stellaire d'Omnitiel... » Wang Lin réfléchit longuement en silence. Il leva les yeux vers le ciel et partit sans dire un mot.
+« Cette femme a eu une chance inouïe de parvenir au Système Stellaire d'Allheaven... » Wang Lin réfléchit longuement en silence. Il leva les yeux vers le ciel et partit sans dire un mot.
 
 L'ancêtre de la famille Ran et son groupe n'osèrent plus l'entraver. Ils regardèrent impuissants la silhouette de Wang Lin s'éloigner progressivement.
 
@@ -116,6 +116,6 @@ Assis en position du lotus sur le dragon d'argent, Wang Lin murmura pour lui-mê
 
 Une fois sa décision prise, Wang Lin cessa de songer à Liu Mei pour se concentrer sur la carte mentale qui l'habitait. Il se dirigeait vers la planète Yun Xia.
 
-« Le filon de métal élémentaire de flamme métallique sur la planète Yun Xia est crucial pour moi; c'est une opportunité parfaite pour achever la perle défiant le ciel. Je ne permettrai à personne de m'arrêter. Si quelqu'un ose tenter de la voler, je le tuerai! » Les yeux de Wang Lin devinrent glacials alors qu'il traversait les étoiles.
+« Le filon de métal à flamme de la planète Yun Xia est crucial pour moi; c'est une opportunité parfaite pour achever la perle défiant le ciel. Je ne permettrai à personne de m'arrêter. Si quelqu'un ose tenter de la voler, je le tuerai! » Les yeux de Wang Lin devinrent glacials alors qu'il traversait les étoiles.
 
 Tout au long du voyage, Wang Lin ne marqua aucun repos. Un mois plus tard, la planète Yun Xia apparut dans son sens divin, très loin à l'horizon.

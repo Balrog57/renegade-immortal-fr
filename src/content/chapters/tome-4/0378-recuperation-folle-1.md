@@ -30,7 +30,7 @@ Li Yuanfeng était plus puissant que les cultivateurs au sommet du dernier stade
 
 « Cette junior, Papillon Rouge, a annoncé qu'elle entrerait en retraite de culture pour cent ans. À sa sortie, elle sera certainement une cultivatrice de la Transformation de l'Âme. Mais à ce moment-là, ma propre durée de vie aura expiré et cela n'aura plus d'importance. Pourquoi l'ancêtre du Clan des Démons Géants voulait-il le corps de Ceng Niu? C'est très étrange! Se pourrait-il qu'il y ait quelque chose que j'ignore... » Li Yuanfeng réfléchit un instant, sans toutefois parvenir à en deviner la raison.
 
-À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples de la secte extérieure de la Secte du Raffinement de l'Âme, Wang Lin s'éveilla de sa culture.
+À l'intérieur de Pilu, parmi les nombreuses montagnes occupées par les disciples extérieurs de la Secte de l'Affinement de l'Âme, Wang Lin s'éveilla de sa culture.
 
 « Le sommet du dernier stade de l'Établissement des Fondations! »
 
@@ -48,7 +48,7 @@ Wang Lin prit une grande inspiration et s'apprêtait à partir quand son express
 
 D'innombrables grottes se trouvaient près de la sienne. Comme il était resté en retraite depuis tout ce temps, il n'avait rencontré personne d'autre que l'homme d'âge mûr.
 
-À cet instant, une autre personne sortit d'une grotte située à cent pieds de là. Elle portait des vêtements bleu clair en fils fins et un voile blanc sur l'épaule, lui donnant un air éthéré, presque surnaturel.
+À cet instant, une autre personne sortit d'une grotte située à plus de trente mètres de là. Elle portait des vêtements bleu clair en fils fins et un voile blanc sur l'épaule, lui donnant un air éthéré, presque surnaturel.
 
 Sa longue chevelure noire ondulait au gré du vent. Elle semblait d'une grande douceur et, avec la légère rougeur de ses joues, elle paraissait d'une élégance rare.
 
@@ -78,7 +78,7 @@ En vérité, il observait Wang Lin depuis le moment où celui-ci était sorti.
 
 L'expression de l'homme d'âge mûr ne trahissait aucune émotion lorsqu'il dit: « Qian Mu, viens ici! »
 
-Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il s'approcha à 33 mètres de l'homme.
+Une trace d'intention meurtrière apparut dans les yeux de Wang Lin. Il se posa à 33 mètres de l'homme.
 
 « Le sommet du dernier stade de l'Établissement des Fondations... » Les pupilles de l'homme d'âge mûr se contractèrent et son cœur se mit à battre la chamade. Il avait le pressentiment que ce Qian Mu cachait quelque chose de suspect. Sa vitesse de culture était trop rapide. Lorsqu'il était arrivé ici, il n'était qu'au début du stade de l'Établissement des Fondations.
 

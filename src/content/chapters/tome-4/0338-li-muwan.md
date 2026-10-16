@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 338 - Li Muwan
 slug: li-muwan
 ---
-Je ne peux lutter contre le cycle de la vie et de la mort, et le temps n'attend pas. Quand viendras-tu me chercher...
+Je ne peux échapper au cycle de la vie et de la mort, et le temps n'attend pas. Quand viendras-tu me chercher...
 
 Dans ma main gauche se trouve l'éphémère karma de la Mer des Démons, et dans ma main droite, plus de cent ans de solitude.
 
@@ -52,7 +52,7 @@ Un chagrin infini emplissait la mer de son cœur. Cependant, cette mer était tr
 
 Il avait emprunté le chemin qui défie les cieux et avait cultivé le domaine de la vie et de la mort. Sa vie fut faite de tourments, et bien que son cœur fût las, il continuait de croire. Pourtant, en cet instant, même si son expression restait immuable, son cœur vieillissait au rythme de la jeune fille devant lui.
 
-À ses yeux, l'âge de cette femme n'était qu'une illusion. À ses yeux, elle resterait à jamais telle qu'elle était dans la Mer des Démons, lorsqu'elle jouait du cithare dans sa pavillon, lorsqu'elle se tenait là à le regarder partir.
+À ses yeux, l'âge de cette femme n'était qu'une illusion. À ses yeux, elle resterait à jamais telle qu'elle était dans la Mer des Démons, lorsqu'elle jouait de la cithare dans son pavillon, lorsqu'elle se tenait là à le regarder partir.
 
 Wang Lin effleura doucement le visage de Li Muwan et glissa lentement la pilule dans sa bouche. La pilule fondit instantanément, et le visage de la jeune femme devint rouge.
 
@@ -102,7 +102,7 @@ Nul ne savait si l'endroit où cette larme était tombée deviendrait, l'année 
 
 Au moment où elle ferma les yeux, son noyau doré s'estompa immédiatement avant de se briser peu après. Une petite silhouette, identique à la Li Muwan du passé, apparut. Ses yeux étaient purs, mais ils se refermèrent aussitôt suite au décès de Li Muwan.
 
-*Wang Lin, je suis prête à tout abandonner. Même si les étoiles s'effondrent, tant que tu acceptes de m'accompagner, ton cœur sera ma lumière la plus brillante.*
+*Wang Lin, je suis prête à tout abandonner. Même si les étoiles s'effondrent, tant que tu acceptes de m'accompagner, tes yeux seront la lumière la plus vive de mon cœur.*
 
 *Wang Lin, je suis prête à tout abandonner. Même si toutes mes vies passées sont détruites, cela n'éteindra pas mon regret de te quitter.*
 
@@ -144,7 +144,7 @@ Les yeux de Wang Lin s'illuminèrent. Il leva la tête et percuta la main gigant
 
 Bang!
 
-L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps. Cependant, il la ramena promptement en lui et déploya son Sens Divin. Il cherchait quelque chose.
+L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps sur environ 3,3 mètres. Cependant, il la ramena promptement en lui et déploya son Sens Divin. Il cherchait quelque chose.
 
 La main géante se rétracta et les deux yeux au sein des nuages rouges réapparurent pour fixer le parchemin dans la main de Wang Lin. Puis, la main descendit de nouveau.
 

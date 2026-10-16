@@ -24,13 +24,13 @@ Papillon Rouge ne s'arrêta pas là et arracha un nouveau pétale. Elle se mordi
 
 À chaque pas du géant, une crevasse béante s'ouvrait dans le sol. D'innombrables arbres s'écroulèrent et les vibrations provoquèrent de multiples fractures dans la terre.
 
-Ceci pouvait être considéré comme l'un des combats les plus périlleux de la vie de Wang Lin. Il ne souhaitait utiliser son char de guerre qu'en dernier recours. Après tout, nous étions à Suzaku; il y aurait forcément de nombreux témoins. Exposer trop de ses secrets ne serait pas une bonne chose pour lui.
+Ceci pouvait être considéré comme l'un des combats les plus périlleux de la vie de Wang Lin. Il ne souhaitait utiliser son anneau de domptage des bêtes qu'en dernier recours. Après tout, nous étions à Suzaku; il y aurait forcément de nombreux témoins. Exposer trop de ses secrets ne serait pas une bonne chose pour lui.
 
 Face au filet qui s'approchait, Wang Lin poussa un rugissement et manœuvra l'épée céleste avec frénésie, forçant ainsi une ouverture dans la toile.
 
 Wang Lin s'engouffra rapidement par cette brèche et cracha un rayon de lumière noire. Celui-ci se transforma promptement en un immense sceau noir qui percuta le pétale géant.
 
-Le sceau noir vacilla avant d'être enveloppé par le pétale, se transformant en une mare d'eau noire. Le visage de Wang Lin devint livide. Il profita de l'instant où le sceau immobilisa le pétale pour se téléporter.
+Le sceau noir vacilla avant d'être enveloppé par le pétale, se transformant en une mare d'eau noire. Le visage de Wang Lin devint livide. Il profita de l'instant où le sceau immobilisa le pétale pour se téléporter à 330 mètres de là.
 
 À cet instant précis, les neuf rayons d'énergie d'épée arrivèrent silencieusement. Ils se déplaçaient avec la rapidité de l'éclair. Wang Lin toucha précipitamment son sac de rangement et deux cloches apparurent. Elles entrèrent en collision avec l'énergie d'épée, générant une onde sonore.
 
@@ -146,6 +146,6 @@ Le géant ouvrit la bouche pour hurler, mais c'est la voix de Papillon Rouge qui
 
 À cet instant précis, le fouet à l'intérieur du géant brilla intensément, jaillit de la poitrine du colosse et frappa Wang Lin.
 
-Rapide! Trop rapide! Wang Lin fut incapable d'esquiver. Il cracha un sang noir et son corps s'effondra. Cependant, son âme originelle fut expulsée de son enveloppe charnelle et s'envola au loin.
+Rapide! Trop rapide! Wang Lin fut incapable d'esquiver. Il cracha un flot de sang et son corps s'effondra. Cependant, son âme originelle fut expulsée de son enveloppe charnelle et s'envola au loin.
 
 Au même moment, l'énergie de l'épée frappa le géant de glace, affaiblissant considérablement son aura. Une blessure aussi large qu'un bras le traversa de part en part.

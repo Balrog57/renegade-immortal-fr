@@ -12,7 +12,7 @@ Ses yeux brillaient intensément alors qu'il fixait cette énergie d'épée et i
 
 « Il y a quelque chose de mystérieux dans ce fleuve formé par son Dao. Cependant, il vient tout juste de se former, il manque donc de puissance. Mais cette énergie d'épée... cette énergie d'épée est forte... très forte! La personne qui a créé cette énergie d'épée doit être un expert incomparable. Je crains que le niveau de culture de cette personne n'ait déjà atteint le stade du Briseur du Nirvana! »
 
-Wang Lin avait déployé ses deux atouts les plus puissants. Son objectif n'était pas de combattre, mais de terrasser l'ennemi par la surprise!
+Wang Lin avait déployé ses deux atouts les plus puissants. Son objectif n'était pas de combattre, mais d'intimider l'ennemi!
 
 Wang Lin était redevenu lucide; la folie causée par le fruit avait été réprimée et il avait retrouvé sa ruse. Pour l'instant, ce vieil homme n'était pas un adversaire à sa portée, sans parler de l'existence mystérieuse dans la tour noire.
 
@@ -24,7 +24,7 @@ Les environs étaient plongés dans un silence total, à l'exception du grondeme
 
 « Où as-tu appris cette empreinte de paume?! » Le sens divin résonna comme un rugissement tonnerre.
 
-Dès que ce son retentit, le sol commença à se briser, mais les secousses s'arrêtèrent à cent pieds de Wang Lin.
+Dès que ce son retentit, le sol commença à se briser, mais les secousses s'arrêtèrent à une trentaine de mètres de Wang Lin.
 
 Les yeux de Wang Lin se rétrécirent. Il s'en souvenait maintenant: c'était cette voix qui l'avait gravement blessé d'innombrables fois sur le chemin de sa progression. S'il n'avait pas eu l'énergie de la boucherie et le Doigt de la Mort, il serait déjà mort.
 
@@ -60,7 +60,7 @@ C'était parce que le tonnerre était considéré comme la puissance des cieux; 
 
 Le fleuve des enfers se mit en mouvement sous l'effet du Doigt des Enfers. L'intégralité du fleuve commença à dévier selon la direction du doigt de Wang Lin. Puis, le fleuve des enfers chargea le tonnerre noir dans le ciel, emportant avec lui la puissance de la réincarnation!
 
-Une explosion terrassante retentit dans les cieux. Bien que le fleuve des enfers commençât à s'effondrer, le tonnerre noir se dissipait également. Une fois qu'un tiers du fleuve des enfers fut englouti, le tonnerre noir disparut complètement!
+Une explosion terrassante retentit dans les cieux. Bien que le fleuve des enfers commençât à s'effondrer, le tonnerre noir se dissipait également. Une fois qu'un tiers du fleuve des enfers se fut effondré, le tonnerre noir disparut complètement!
 
 « Ton Dao est très puissant! » Le vieil homme en armure noire ricana. Sa main droite pointa à nouveau vers le ciel et il cria: « Pluie! »
 

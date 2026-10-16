@@ -72,7 +72,7 @@ Les deux hommes se regardèrent. Wang Lin joignit les mains et dit: « Frère Ch
 
 Chi Hu prit une profonde inspiration. Il regarda sincèrement Wang Lin et dit: « Frère Ceng, vous devrez venir me voir pour que nous puissions boire ensemble. »
 
-Wang Lin rit et hocha la tête. Il activa le fourneau de retour et un vortex se forma devant lui. Il jeta un dernier regard vers le Royaume Céleste avant de s'engouffrer dans le vortex et de disparaître.
+Wang Lin rit et hocha la tête. Il activa le chaudron de retour et un vortex se forma devant lui. Il jeta un dernier regard vers le Royaume Céleste avant de s'engouffrer dans le vortex et de disparaître.
 
 Chi Hu frappa également son sac de rangement pour en sortir son chaudron de retour. Il l'activa et entra dans le vortex, tout comme Wang Lin.
 
@@ -80,7 +80,7 @@ Beaucoup de choses s'étaient produites ces derniers mois, mais la nouvelle qui 
 
 Avec la destruction de l'Alliance des Quatre Sectes et l'ascension de Xue Yu au rang de pays de culture de niveau 5, sa renommée avait explosé sur la planète. Les rumeurs à son sujet étaient incessantes, évoquant notamment comment elle avait atteint le stade avancé de la Formation de l'Âme en seulement cent ans, ou encore comment elle avait été acceptée comme disciple centrale de Suzaku. Ces faits alimentaient encore les discussions parmi les cultivateurs.
 
-Peu de gens savaient que Papillon Rouge avait obtenu un Chaudron de Pluie et était entrée dans le Royaume Céleste. Cependant, il y a cinq mois, tous les pays de culture de rang 5 s'étaient réunis à l'autel de Suzaku pour la conférence centennale.
+Peu de gens savaient que, deux ans plus tôt, Papillon Rouge avait obtenu un Chaudron de Pluie et était entrée dans le Royaume Céleste. Cependant, il y a cinq mois, tous les pays de culture de rang 5 s'étaient réunis à l'autel de Suzaku pour la conférence centennale.
 
 La conférence était à moitié terminée lorsqu'un vortex s'ouvrit soudainement dans le ciel et que Papillon Rouge en tomba. Elle avait perdu un bras et ne prononça qu'une seule chose avant de perdre connaissance:
 
@@ -100,7 +100,7 @@ En conséquence, les rumeurs concernant Ceng Niu devinrent un sujet de conversat
 
 L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Ceng Niu n'était peut-être pas réellement de leur sang, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Ceng Niu dans la terreur, tout en lui procurant une pointe de fierté.
 
-L'affaire refit surface brusquement lorsque le jeune maître du Clan du Démon Géant revint il y a trois mois. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
+L'affaire refit surface brusquement lorsque le jeune maître du Clan du Démon Géant revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
 
 Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Papillon Rouge, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Papillon Rouge qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
 

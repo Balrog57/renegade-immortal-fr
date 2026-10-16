@@ -16,7 +16,7 @@ C'était la Porte du Royaume Céleste de la Pluie; cependant, une empreinte de m
 
 Sous la porte se trouvaient d'innombrables plateformes brisées. Plusieurs personnes étaient déjà là, occupant presque chacune sa propre plateforme.
 
-À l'arrivée des six compagnons, les lumières qui les entouraient disparurent, les projetant en avant. Wang Lin recula légèrement et se posa sur une plateforme de cent pieds de large. Quant aux cinq autres, chacun choisit également une plateforme pour s'y établir.
+À l'arrivée des six compagnons, les lumières qui les entouraient disparurent, les projetant en avant. Wang Lin recula légèrement et se posa sur une plateforme d'une trentaine de mètres de large. Quant aux cinq autres, chacun choisit également une plateforme pour s'y établir.
 
 Il observa les environs et son cœur ne put s'empêcher de rater un battement lorsqu'il remarqua que toutes ces plateformes, malgré leurs tailles différentes, présentaient la même texture. En examinant attentivement les bords de certaines d'entre elles, il vit qu'elles s'emboîtaient parfaitement.
 
@@ -26,11 +26,11 @@ En voyant l'empreinte de main sur la porte, il ne put s'empêcher de se demander
 
 L'once de fierté que Wang Lin venait d'acquérir s'évapora face à cet édifice. Comparé à ces présences mystérieuses, il n'était encore qu'un éternel lutteur au bas de l'échelle.
 
-Après un moment, plusieurs autres personnes apparurent et se posèrent sur diverses plateformes. Les niveaux de culture parmi les cultivateurs étaient extrêmement variés; même des experts de la Formation de l'Âme firent leur apparition. Cela déconcerta profondément Wang Lin.
+Après un moment, plusieurs autres personnes apparurent et se posèrent sur diverses plateformes. Les niveaux de culture parmi les cultivateurs étaient extrêmement variés; même des cultivateurs de l'Âme Naissante firent leur apparition. Cela déconcerta profondément Wang Lin.
 
 Peu à peu, à mesure que les arrivées se multipliaient, les plateformes manquèrent.
 
-L'un des jeunes vêtus de noir regarda autour de lui et constata qu'aucune autre plateforme n'était disponible; il se posa donc sur l'une d'elles, aux côtés d'une vieille femme. Cette plateforme mesurait environ trois cents pieds de large. Loin de ne pouvoir accueillir que deux personnes, elle avait assez d'espace pour en loger vingt.
+L'un des jeunes vêtus de noir regarda autour de lui et constata qu'aucune autre plateforme n'était disponible; il se posa donc sur l'une d'elles, aux côtés d'une vieille femme. Cette plateforme mesurait environ cent mètres de large. Loin de ne pouvoir accueillir que deux personnes, elle avait assez d'espace pour en loger vingt.
 
 Mais dès que le jeune homme eut atterri, les yeux de la vieille femme s'illuminèrent et elle lança d'une voix rauque: « Dégage! »
 
@@ -50,7 +50,7 @@ Tandis qu'il parlait, l'empreinte de hache sur son front brilla rapidement.
 
 L'individu regarda l'homme du Clan du Démon Géant avec effroi en murmurant: « Le Clan du Démon Géant... » Son corps s'éloigna lentement de la plateforme.
 
-L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Ye, Papillon Rouge. L'homme du Clan du Démon Géant l'observa avec intérêt.
+L'instant d'après, il apparut sur la plateforme où se trouvait le génie de Xue Yu, Papillon Rouge. L'homme du Clan du Démon Géant l'observa avec intérêt.
 
 Cette personne atterrit sur la plateforme de Papillon Rouge, la regarda, joignit les mains en signe de respect, puis repartit.
 
@@ -86,7 +86,7 @@ L'homme fut projeté loin de là. Il regarda le crapaud avec effroi et ne put s'
 
 Wang Lin fut surpris par la facilité avec laquelle l'homme abandonnait, mais il ignorait si cela était sincère ou un simple stratagème.
 
-Le génie de Xue Ye fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan du Démon Géant, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
+Le génie de Xue Yu fixa le crapaud un instant avant de détourner les yeux. Quant à l'homme du Clan du Démon Géant, ses yeux brûlaient d'une envie de combattre tandis qu'il hochait la tête vers Wang Lin, semblant reconnaître sa puissance. Le vieil homme, lui, se contenta de lever les yeux au ciel avant de détourner le regard.
 
 Seul le jeune homme aux yeux assoiffés de sang observa le crapaud avec une pointe d'appréhension. Sa méthode de culture reposant entièrement sur les insectes, il se méfiait grandement d'une créature capable de cracher la foudre, d'autant plus qu'il s'agissait d'un crapaud.
 

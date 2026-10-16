@@ -118,7 +118,7 @@ Le silence retomba autour du vortex. Tous ces vieux monstres affichaient des vis
 
 L'Ancêtre Sanguin sentit comme si des aiguilles lui transperçaient le dos. Après une réflexion rapide, il déclara: « Il existe bel et bien une quatrième fausse grotte, mais elle a manifestement été occupée par ce Wang Lin. Il détient également le jeton; s'il n'est pas capturé, nous n'aurons aucune chance d'entrer dans la véritable grotte! »
 
-« Nous savions déjà que ce vortex était une porte vers le système stellaire Allheaven, mais la puissance à l'intérieur était trop forte. Ce Wang Lin a réussi à obtenir un objet lui permettant d'y pénétrer! »
+« Nous savions déjà que ce vortex était une porte vers le système stellaire Allheaven, mais la puissance à l'intérieur était trop forte. Ce Wang Lin a eu je ne sais quelle chance extraordinaire qui lui a permis d'y pénétrer! »
 
 « Nous avons tous tenté l'expérience sans succès. Cependant, si nous unissons nos forces pour n'envoyer qu'une seule personne, nous devrions y parvenir! »
 

@@ -44,7 +44,7 @@ Qian Kun ricana. Il contrôla la montagne pour qu'elle s'écrase de nouveau et d
 
 Le cultivateur à la grosse tête se sentit envahi par une atmosphère lugubre. Lorsqu'il avait aperçu la jeune fille pour la première fois, ce n'était qu'un bref instant, mais son désir s'était éveillé et il avait laissé échapper ces paroles. Il pensait que personne ne l'oserait, mais il n'imaginait pas que le Grand Ancien, qui n'avait jamais porté d'intérêt aux femmes, réagirait ainsi. Pour évacuer sa frustration, il attaqua avec rage en utilisant son trésor.
 
-Le brouillard généré par la formation était devenu très ténu. Un seul des dix dragons de mille mètres ne subsistait plus, et il n'atteignait plus que trente mètres de long. Qian Kun agita la main; le sceau reprit sa forme originelle pour retourner entre les mains de Kun Sang.
+Le brouillard généré par la formation était devenu très ténu. Un seul des dix dragons de 333 mètres ne subsistait plus, et il n'atteignait plus qu'une centaine de mètres de long. Qian Kun agita la main; le sceau reprit sa forme originelle pour retourner entre les mains de Kun Sang.
 
 Après avoir rendu le sceau, Qian Kun poussa un rugissement et jaillit vers le dragon. Il referma ses mains et, lorsqu'il les rouvrit, un filet électrique enveloppa la créature de brume. Dans un éclat de rire, il hurla: « Brise-toi! »
 
@@ -52,7 +52,7 @@ Le dragon de brouillard poussa un cri déchirant avant de se dissiper. Avec lui,
 
 Si Li Muwan n'avait pas été occupée à raffiner sa pilule et qu'elle avait pu contrôler la formation, celle-ci ne serait pas tombée si facilement.
 
-La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte de l'Éradication du Mal s'élancèrent, mais alors qu'ils approchaient à moins de vingt mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
+La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivateurs de la Formation du Noyau de la Secte de la Lutte contre le Mal s'élancèrent, mais alors qu'ils approchaient à moins d'une soixantaine de mètres, des éclairs tombèrent du ciel. Bien que peu puissants individuellement, leur nombre était tel qu'ils semblaient menaçants.
 
 Les centaines de formations de base que Wang Lin avait disposées s'activèrent. Cependant, n'étant que des protections élémentaires, elles furent systématiquement balayées par les rugissements furieux des experts de la Formation du Noyau.
 
@@ -60,15 +60,15 @@ Qian Kun regarda droit devant lui avec froideur, sans intervenir. Sa cible étai
 
 Une fois les formations de base anéanties, la grotte n'offrait plus aucune protection, permettant aux cultivateurs démoniaques d'en voir l'intérieur.
 
-Une silhouette exquise apparut à l'entrée de la cavité. Ses vêtements étaient simples, mais elle dégageait une élégance raffinée. Sa peau était d'une blancheur immaculée et ses joues étaient rosies par l'effort. Sa beauté aurait fait battre le cœur de n'importe quel homme.
+Une silhouette exquise apparut à l'entrée de la cavité. Ses vêtements étaient simples, mais elle dégageait une élégance raffinée. Ses lèvres étaient d'un rouge vif, ses dents d'un blanc pur et ses sourcils délicatement arqués. Sa beauté aurait fait battre le cœur de n'importe quel homme.
 
 Même Qian Kun ne put s'empêcher de plisser les yeux. Il tenta pourtant de voir au-delà d'elle, mais l'intérieur de la grotte était plongé dans une obscurité totale.
 
 Li Muwan fixa les cultivateurs démoniaques. D'un geste de la main, elle fit apparaître le Fourneau de Pilules des Cent Bêtes et demanda froidement: « Est-ce pour cela que vous êtes ici? »
 
-Qian Kun esquissa un sourire. Kun Song, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce gamin possédait réellement un fourneau, et qu'il s'agissait même du Fourneau des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. Tu as raison; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Fort de cette évidence, il tendit la main pour s'en emparer devant l'assemblée.
+Qian Kun esquissa un sourire. Kun Sang, qui avait été le premier à poursuivre Wang Lin, fixa le fourneau en riant: « Je ne pensais pas que ce gamin possédait réellement un fourneau, et qu'il s'agissait même du Fourneau des Cent Bêtes, celui-là même qui coûte 100 000 pierres spirituelles de haute qualité au Pavillon de Raffinage des Trésors. Tu as raison; notre objectif initial était ce fourneau. Petite fille, remets-le nous. » Fort de cette évidence, il tendit la main pour s'en emparer devant l'assemblée.
 
-Kun Song et l'autre ancien qui traquait Wang Lin joignirent les mains en signe de respect: « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous? »
+Kun Sang et l'autre ancien qui traquait Wang Lin joignirent les mains en signe de respect: « Grand Ancien, ce fourneau nous appartiendra à tous les deux. À l'avenir, nous ne manquerons pas de vous envoyer des présents pour vous remercier. Qu'en dites-vous? »
 
 Le regard de Qian Kun glissa sur le fourneau, puis il hocha silencieusement la tête. Le cultivateur au grand crâne esquissa un sourire perfide en tendant la main vers Li Muwan: « Petite fille, une fois que tu auras servi mes compagnons de secte, tu deviendras mon propre fourneau de culture personnel. »
 

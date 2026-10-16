@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 585 - Chapter 585 - Xu Liguos Rebellion Fails! (Part 1)"
 slug: la-rebellion-de-xu-liguo-echoue-partie-1
 ---
-La journée passa rapidement. Après six nouveaux rounds, Wang Lin remporta trois victoires supplémentaires. Les généraux démons n'avaient reçu aucune aide lors de deux des combats; il n'avait donc eu besoin de gagner qu'une seule fois pour remporter chaque duel. Xu Liguo, quant à lui, était également revenu dans le sac de conservation de Wang Lin plus tôt.
+La journée passa rapidement. Six nouveaux combats eurent lieu et trois combattants se qualifièrent. Les généraux démons n'avaient reçu aucune aide lors de deux des combats; il n'avait donc eu besoin de gagner qu'une seule fois pour remporter chaque duel. Xu Liguo, quant à lui, était également revenu dans le sac de conservation de Wang Lin plus tôt.
 
 Il n'était pas certain que l'esprit de l'épée fille ait été effrayé par les harcèlements de Xu Liguo. Après s'être transformée en épée, elle ne réapparut plus.
 
@@ -16,7 +16,7 @@ Ce tour durerait encore sept à dix jours. Heureusement, les vainqueurs n'étaie
 
 La compétition entre les généraux démons et le massacre des cultivateurs n'étaient pas des spectacles que Wang Lin souhaitait contempler quotidiennement. Il préférait ne pas y penser et choisissait plutôt d'écouter la musique du zither tout en sirotant son vin. C'était bien plus relaxant et insouciant.
 
-Contrairement à Wang Lin, le moral de Mo Lihai n'était pas aussi stable. Il se rendait au concours chaque jour pour consigner tous les sorts qu'il jugeait dignes d'intérêt. Puis, chaque nuit, il transmettait ces informations à Wang Lin.
+Contrairement à Wang Lin, le moral de Mo Lihai n'était pas aussi stable. Il se rendait au concours chaque jour pour consigner les combats des adversaires qu'il jugeait dangereux pour Wang Lin. Puis, chaque nuit, il transmettait ces informations à Wang Lin.
 
 Tous ses espoirs reposaient sur lui.
 
@@ -64,7 +64,7 @@ Une épaisse fumée noire se mua en une brume sombre avant de prendre la forme d
 
 Il passa sa main sur la lame, laquelle libéra un éclat de lumière tout en vibrant intensément. Xu Liguo se tourna aussitôt vers Wang Lin et cria: « Wang Lin, qu'est-ce que tu fais?! »
 
-Wang Lin le fixa froidement. Ce regard fut pour Xu Liguo comme une douche écossaise, le tirant instantanément de sa luxure.
+Wang Lin le fixa froidement. Ce regard fut pour Xu Liguo comme une douche froide, le tirant instantanément de sa luxure.
 
 Ce regard rappela immédiatement à Xu Liguo le jour où Wang Lin l'avait transformé en démon. Diverses scènes de ces derniers siècles défilèrent alors dans son esprit.
 
@@ -78,7 +78,7 @@ Wang Lin continua de le fixer avec froideur. Plus Wang Lin agissait ainsi, plus 
 
 « Maintenant, je vais reprendre tout cela! » La main gauche de Wang Lin balaya l'épée céleste et Xu Liguo poussa un gémissement de douleur. Tout son corps fut secoué lorsque Wang Lin rompit le lien qui l'unissait à l'épée volante.
 
-Le corps de Xu Liguo se transforma instantanément en un nuage de brume noire. Au moment où Wang Lin le déconnecta de l'épée, il ressentit une intention de tuer qu'il n'avait pas éprouvée depuis des siècles!
+Le corps de Xu Liguo se transforma instantanément en un nuage de brume noire. Au moment où Wang Lin le déconnecta de l'épée, il ressentit une intention de tuer qu'il n'avait pas éprouvée depuis plus d'un siècle!
 
 « Par tous les dieux, c'est une véritable intention de tuer! Ce démon veut vraiment ma peau! » Xu Liguo hurla et voulut s'enfuir immédiatement. Depuis qu'il avait aidé Wang Lin contre l'Ancêtre du Clan des Démons Géants, il n'avait plus jamais ressenti une telle volonté meurtrière qui le poursuivait depuis si longtemps!
 

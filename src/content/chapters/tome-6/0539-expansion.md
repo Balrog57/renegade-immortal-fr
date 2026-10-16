@@ -14,7 +14,7 @@ La taille de la tribu augmenta considérablement. En incluant les nouveaux capti
 
 Avec une telle concentration de personnes en un seul point, l'espace devint exigu, tant à l'intérieur qu'à l'extérieur de la vallée; Wang Lin décida donc de déployer une nouvelle formation. Cette formation reposait sur des restrictions et intégrait la puissance de la vallée ainsi que celle de la formation de cinq kilomètres.
 
-La zone de protection de cette nouvelle formation s'étendait désormais sur environ 5 kilomètres de large, résolvant ainsi le problème de l'espace.
+La zone de protection de cette nouvelle formation s'étendait désormais sur environ 10 kilomètres de large, résolvant ainsi le problème de l'espace.
 
 Chaque nouvelle tribu avait besoin d'un nom. Après qu'Ouyang Hua eut posé la question à plusieurs reprises, Wang Lin la nomma la Tribu du Raffinement de l'Âme.
 
@@ -72,7 +72,7 @@ Il convient de noter que les formations utilisées pour se défendre contre les 
 
 Avec le temps, la population de la Tribu du Raffinement de l'Âme continua d'augmenter, au point que la zone de 10 kilomètres parut insuffisante.
 
-Il fut donc nécessaire d'étendre la formation une fois de plus. Wang Lin y consacra trois jours d'étude avant d'agrandir le périmètre de 10 kilomètres supplémentaires. Désormais dotée d'un territoire de 10 kilomètres, la tribu pouvait être considérée comme l'une des plus puissantes dans un rayon de plusieurs dizaines de milliers de kilomètres!
+Il fut donc nécessaire d'étendre la formation une fois de plus. Wang Lin y consacra trois jours d'étude avant d'agrandir le périmètre de 10 kilomètres supplémentaires. Désormais dotée d'un territoire de 20 kilomètres, la tribu pouvait être considérée comme l'une des plus puissantes dans un rayon de plusieurs dizaines de milliers de kilomètres!
 
 L'accroissement du nombre de membres entraîna une hausse du nombre de pratiquants du sort de raffinement de l'âme. Wang Lin savait que les fragments d'âme contenus dans les drapeaux d'âme devaient être nourris de nombreuses fois pour atteindre leur pleine puissance.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Yao Changdong
 slug: yao-changdong
 ---
-Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de culture de l'adversaire était à peu près égal au sien, voire qu'il le dépassait légèrement.
+Cette méthode de meurtre bizarre choqua profondément les cultivateurs environnants, et l'expression du vieil homme Corporel Yang au sommet devint extrêmement sombre. Il sentait que le niveau de culture de l'adversaire était à peu près égal au sien, voire qu'il pouvait légèrement le dépasser.
 
 Cependant, ce sort étrange utilisé par l'autre partie lui inspirait une grande peur.
 
@@ -26,15 +26,15 @@ Le combat entre les deux fut d'une férocité extrême, et des explosions retent
 
 Tout sort ou trésor qui frappait Ta Shan restait sans effet sur lui. C'était comme s'il était insensible à la douleur et doté d'un corps d'acier; il continuait d'attaquer sans relâche!
 
-Au moment où Ta Shan chargeait, Wang Lin fit un pas en avant. Cette fois, il ne fusionna pas avec le monde, mais ouvrit la bouche pour laisser s'envoler le Sceau de Scellement Céleste. L'objet s'étendit jusqu'à atteindre 330 mètres de large, puis s'abattit impitoyablement.
+Au moment où Ta Shan chargeait, Wang Lin fit un pas en avant. Cette fois, il ne fusionna pas avec le monde, mais ouvrit la bouche pour laisser s'envoler le Sceau Céleste. L'objet s'étendit jusqu'à atteindre 33 mètres de large, puis s'abattit impitoyablement.
 
-Le Sceau de Scellement Céleste poussa un rugissement assourdissant en s'écrasant. Les expressions des deux cultivateurs sous lui changèrent et ils tentèrent de s'échapper. Cependant, à cet instant, Wang Lin ordonna: « Scelle! », et une multitude de sceaux jaillirent du Sceau de Scellement Céleste, bloquant immédiatement toutes les méthodes d'évasion des deux hommes.
+Le Sceau Céleste poussa un rugissement assourdissant en s'écrasant. Les expressions des deux cultivateurs sous lui changèrent et ils tentèrent de s'échapper. Cependant, à cet instant, Wang Lin ordonna: « Scelle! », et une multitude de sceaux jaillirent du Sceau Céleste, bloquant immédiatement toutes les méthodes d'évasion des deux hommes.
 
-Au même moment, le sceau percuta leurs corps dans un fracas retentissant. Même leurs âmes originelles furent brisées, mais elles ne se dissipèrent pas; une lueur dorée jaillit et leurs âmes furent aspirées par le Sceau de Scellement Céleste.
+Au même moment, le sceau percuta leurs corps dans un fracas retentissant. Même leurs âmes originelles furent brisées, mais elles ne se dissipèrent pas; une lueur dorée jaillit et leurs âmes furent aspirées par le Sceau Céleste.
 
 Parmi les centaines de milliers de runes dorées gravées sur le sceau, deux d'entre elles devinrent plus éclatantes que les autres. Elles semblaient avoir pris vie, se distinguant nettement du reste.
 
-Wang Lin fut quelque peu surpris. Il ne pensait pas que le Sceau de Scellement Céleste produirait un effet aussi étrange, mais ce n'était manifestement pas le moment d'y réfléchir. Ses yeux s'illuminèrent alors qu'il laissait échapper un ricanement et que son corps disparaissait, faisant ainsi manquer toutes les attaques qui se dirigeaient vers lui.
+Wang Lin fut quelque peu surpris. Il ne pensait pas que le Sceau Céleste produirait un effet aussi étrange, mais ce n'était manifestement pas le moment d'y réfléchir. Ses yeux s'illuminèrent alors qu'il laissait échapper un ricanement et que son corps disparaissait, faisant ainsi manquer toutes les attaques qui se dirigeaient vers lui.
 
 Son sourire sinistre fit frissonner les cultivateurs environnants.
 
@@ -62,11 +62,11 @@ Ils étaient rapides et se rapprochèrent en un instant. Une intention meurtriè
 
 Au moment précis où il disparut, le cultivateur Corporel Yang ouvrit grand les bras et hurla: « Téléportez-vous et perturbez les forces naturelles de la zone! »
 
-Dès cet ordre, tous les cultivateurs tentèrent une téléportation sur place. Leurs silhouettes commencèrent à vaciller entre l'existence et le néant. Simultanément, une puissante onde se propagea sur plus de mille pieds, faisant tordre l'espace environnant.
+Dès cet ordre, tous les cultivateurs tentèrent une téléportation sur place. Leurs silhouettes commencèrent à vaciller entre l'existence et le néant. Simultanément, une puissante onde se propagea dans un rayon de 330 mètres, faisant tordre l'espace environnant.
 
 « Très intelligent, mais insuffisant! » Wang Lin fit un pas. Il semblait que l'onde n'eût aucun effet sur lui. Lorsqu'il réapparut, il pressa son doigt sur un cultivateur qui avait résolument abandonné son corps pour s'enfuir avec son âme originelle.
 
-Le corps de ce dernier explosa dans un nuage de sang. Quant à son âme originelle, elle s'était déjà échappée à plus de mille pieds de là sans se retourner.
+Le corps de ce dernier explosa dans un nuage de sang. Quant à son âme originelle, elle s'était déjà échappée à plus de 330 mètres de là sans se retourner.
 
 Tandis qu'elle s'enfuyait, l'âme cria: « Camarade cultivateur Xu Mu, désormais, aucune famille de la planète Ling Ming ne s'ingérera dans votre conflit avec la famille Yao. Laissez-moi partir! »
 
@@ -84,7 +84,7 @@ Par ce seul sort étrange, peu importe leur nombre, Xu Mu restait invincible! À
 
 Les huit ne tergiversèrent pas. Ils se retirèrent rapidement dans huit directions différentes.
 
-Loin de s'atténuer, l'intention meurtrière dans les yeux de Wang Lin devint plus intense encore. Son aura déferla comme une inondation alors que les huit fuyants tentaient de s'échapper. Il fit un pas en avant et perturba les fluctuations de l'énergie originelle, empêchant la téléportation pour une fuite rapide. D'une simple pensée, le Sceau de Scellement Céleste partit à la poursuite de l'un d'eux.
+Loin de s'atténuer, l'intention meurtrière dans les yeux de Wang Lin devint plus intense encore. Son aura déferla comme une inondation alors que les huit fuyants tentaient de s'échapper. Il fit un pas en avant et perturba les fluctuations de l'énergie originelle, empêchant la téléportation pour une fuite rapide. D'une simple pensée, le Sceau Céleste partit à la poursuite de l'un d'eux.
 
 La Paire Dao Fanée se lança également après un autre.
 
@@ -96,11 +96,11 @@ Trois trésors poursuivaient trois cibles différentes. Wang Lin fit un pas en a
 
 Presque instantanément, Wang Lin apparut aux côtés d'un cultivateur en fuite. Ce dernier, le visage déformé par la peur, s'apprêtait à parler lorsque Wang Lin pressa son doigt entre ses sourcils, utilisant sa culture Corporel Yang.
 
-Dès qu'il retira son doigt, il disparut à nouveau. Un instant plus tard, le Sceau de Scellement Céleste et la Paire Dao Fanée revinrent également. Seul Xu Liguo n'était pas de retour; il jurait tout en contrôlant l'Épée Céleste pour attaquer.
+Dès qu'il retira son doigt, il disparut à nouveau. Un instant plus tard, le Sceau Céleste et la Paire Dao Fanée revinrent également. Seul Xu Liguo n'était pas de retour; il jurait tout en contrôlant l'Épée Céleste pour attaquer.
 
 Le cultivateur Illusoire Yin affichait une expression extrêmement sombre. Il ne voulait pas s'enliser avec cet esprit d'épée. Voir ses compagnons mourir les uns après les autres fit atteindre à sa peur un paroxysme.
 
-Les injures de l'esprit d'épée l'agaçèrent profondément. Il activa l'énergie originelle de son corps, provoquant une onde de choc qui repoussa Xu Liguo. Refusant le combat, il s'enfuit sur mille pieds et s'apprêta à se téléporter.
+Les injures de l'esprit d'épée l'agaçèrent profondément. Il activa l'énergie originelle de son corps, provoquant une onde de choc qui repoussa Xu Liguo. Refusant le combat, il s'enfuit à plus de 330 mètres et s'apprêta à se téléporter.
 
 Cependant, au moment où il tenta la téléportation, ses pupilles se rétractèrent: les doigts de Wang Lin avaient déjà atteint l'espace entre ses sourcils.
 

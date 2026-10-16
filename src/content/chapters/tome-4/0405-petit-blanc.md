@@ -12,7 +12,7 @@ Après tout, rares étaient les cultivateurs capables de percer l'atmosphère de
 
 Wang Lin portait Zhou Ru et Petit Blanc alors qu'ils fendaient le ciel. Les vastes chaînes de montagnes qui défilaient sous eux ne manquaient pas de provoquer des exclamations joyeuses de la part de la jeune fille.
 
-Dans une forêt située dans la partie nord de la lune, Wang Lin captura un grand tigre pour Zhou Ru. Ce spécimen était entièrement violet et mesurait trente pieds de long, dégageant une aura oppressante.
+Dans une forêt située dans la partie nord de la lune, Wang Lin captura un grand tigre pour Zhou Ru. Ce spécimen était entièrement violet et mesurait près de dix mètres de long, dégageant une aura oppressante.
 
 Cependant, ce que Wang Lin trouva fort étrange, c'était que ce tigre était dépourvu d'intelligence. Il était loin d'égaler la vivacité de Petit Blanc.
 
@@ -30,7 +30,7 @@ Pensant cela, il laissa échapper un rugissement paresseux vers le tigre violet.
 
 Il n'avait cependant pas prévu que le tigre violet tournerait la tête vers lui pour lui répondre par un rugissement de représailles. Ce cri était empreint d'une telle puissance qu'il semblait pouvoir briser les cieux.
 
-Petit Blanc poussa un hurlement alors que chaque poil de son corps se hérissait; il recula de plusieurs dizaines de pieds, fixant le tigre violet avec effroi, n'osant plus faire un pas de plus.
+Petit Blanc poussa un hurlement alors que chaque poil de son corps se hérissait; il recula d'une dizaine de mètres, fixant le tigre violet avec effroi, n'osant plus faire un pas de plus.
 
 En voyant cela, Zhou Ru applaudit de joie: « Petit Blanc, tu ne peux pas battre Petit Violet! »
 

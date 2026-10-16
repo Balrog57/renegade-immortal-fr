@@ -51,11 +51,11 @@ Il se tenait actuellement au sommet de la brume violette, contemplant la planèt
 
 « Malheureusement, mon septième frère ne pourra pas se faire d'amis. Septième frère, il n'y a jamais eu d'animosité entre nous, mais tu n'aurais jamais dû tenter de me disputer le titre de véritable disciple! »
 
-« La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma division pourpre! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une culture en isolement en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la division pourpre m'est acquis! »
+« La célébration de l'anniversaire du Maître coïncidera avec la sélection du véritable disciple de ma division pourpre! Le Deuxième Frère a déjà renoncé, je ne considère pas le Troisième Frère digne d'être mon ennemi, et quant à la Quatrième Sœur, si elle tente de rivaliser avec moi, j'ai naturellement les moyens de la gérer. La Cinquième Sœur a été envoyée par le Maître en prison céleste pour une culture en isolement de cent ans en guise de punition, et le Sixième Frère est parti s'entraîner. On ne sait pas s'il est vivant ou mort, il pourrait même ne jamais revenir. Ainsi, le titre de véritable disciple de la division pourpre m'est acquis! »
 
 Les yeux de Zhao Xingsha brillèrent d'une lueur mystérieuse et ses lèvres formèrent un léger sourire. La brume violette commença soudainement à s'agiter; Zhao Xingsha retrouva alors son expression sereine et regarda au loin.
 
-Il aperçut un gigantesque char de guerre doré volant lentement vers la planète. Ce char était colossal, mesurant au moins des milliers de pieds de large. Quatre bêtes démoniaques géantes tiraient l'engin, ce qui lui permettait d'avancer si rapidement. Avant même qu'il ne soit à portée, on pouvait entendre des rugissements tonitruants provenant de cette direction.
+Il aperçut un gigantesque char de guerre doré volant lentement vers la planète. Ce char était colossal, haut de plus de 3,3 kilomètres. Quatre bêtes démoniaques géantes tiraient l'engin, ce qui lui permettait d'avancer si rapidement. Avant même qu'il ne soit à portée, on pouvait entendre des rugissements tonitruants provenant de cette direction.
 
 Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps étaient énormes et il s'agissait d'une espèce capable de voler sur de courtes distances dans l'espace. Bien qu'elles ne puissent utiliser aucun sort, elles ne devaient pas être sous-estimées.
 
@@ -67,7 +67,7 @@ Lorsque le char s'arrêta à 330 mètres de lui, une aura puissante se verrouill
 
 Une sueur froide perla sur le front de Zhao Xingsha. Il avait perdu une partie de son assurance car il connaissait l'identité du Démon Doré. Ce dernier était le souverain d'une des petites planètes du système. Il régnait seul et de manière très autoritaire; si quelqu'un osait s'opposer à lui, il cherchait la vengeance quelles que soient les conséquences. C'était un excentrique qui favorisait excessivement ses propres partisans et pouvait tuer sans la moindre réflexion; d'innombrables vies s'étaient éteintes sur un simple caprice de sa part.
 
-La culture de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la culture du Démon Doré avait dépassé le stade de l'Illusion Yin et de la Forme Corporelle Yang pour atteindre le domaine légendaire.
+La culture de cet homme était trop puissante. Hormis quelques élus, personne ne pouvait l'arrêter. La rumeur prétendait que la culture du Démon Doré avait dépassé le stade du Yin Illusoire et du Yang Corporel pour atteindre le domaine légendaire.
 
 La masse de chair assise sur le siège fronça les sourcils et s'exclama: « Pourquoi ce petit garçon reste-t-il là, figé? Montrez-moi le chemin! »
 

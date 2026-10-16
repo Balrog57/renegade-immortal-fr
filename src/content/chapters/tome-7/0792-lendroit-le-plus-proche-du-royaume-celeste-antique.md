@@ -62,12 +62,12 @@ Un sentiment de familiarité longtemps perdu envahit son cœur. Une fois maître
 
 Il profita de la puissance du collapsus du vortex pour battre en retraite rapidement. Au moment où il s'élançait, le jeune homme maléfique fit son apparition. Sa main fut frappée par l'explosion avant qu'il ne tente de saisir l'espace vide où se trouvait Wang Lin.
 
-Après avoir jailli de l'explosion, Wang Lin s'envola vers le loin sans la moindre hésitation. Simultanément, il sortit son épée céleste et projeta huit Coupes Célestes autour de lui.
+Après avoir jailli de l'explosion, Wang Lin s'envola vers le loin sans la moindre hésitation. Simultanément, il sortit son épée céleste et projeta huit Coups Célestes autour de lui.
 
-Plusieurs craquements retentirent, puis une multitude de fissures apparurent autour de Wang Lin. Une force invisible qui tentait de l'emprisonner fut déchirée par ses Coupes Célestes.
+Plusieurs craquements retentirent, puis une multitude de fissures apparurent autour de Wang Lin. Une force invisible qui tentait de l'emprisonner fut déchirée par ses Coups Célestes.
 
 L'expression de Wang Lin était sombre alors qu'il accélérait sa fuite. Il avait déjà souffert par le passé en se laissant surprendre par derrière, et il ne permettrait pas que cela se reproduise.
 
 Le regard du jeune homme maléfique devint glacial tandis qu'il inspectait les fragments environnants en fronçant les sourcils.
 
-« Cet endroit était la Capitale Impériale du Royaume Céleste du Tonnerre. C'était le cœur du royaume et l'endroit le plus proche du Royaume Céleste Antique avant son effondrement... La rumeur prétendait que, lorsque le Royaume Céleste Antique existait encore, c'est ici que les anciens êtres célestes descendaient... Quel est donc le dessein de cet individu qui possède également le pouvoir d'un Seigneur Céleste?! »
+« Cet endroit était la Terrasse Chaoxian du Royaume Céleste du Tonnerre. C'était le cœur du royaume et l'endroit le plus proche du Royaume Céleste Antique avant son effondrement... La rumeur prétendait que, lorsque le Royaume Céleste Antique existait encore, c'est ici que les anciens êtres célestes descendaient... Quel est donc le dessein de cet individu qui possède également le pouvoir d'un Seigneur Céleste?! »

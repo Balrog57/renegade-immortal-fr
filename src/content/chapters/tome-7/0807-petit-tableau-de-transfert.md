@@ -28,15 +28,15 @@ Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entenda
 
 « Cet honneur était la seule croyance de mon cœur en grandissant. Et cela ne concernait pas que moi, mais presque tous ceux qui avaient grandi au sein du clan. »
 
-« Cependant, en vieillissant, j'ai progressivement découvert que ce n'était pas vrai. Personne n'avait jamais vu d'immortel, si ce n'est cette amulette céleste dans le temple... »
+« Cependant, en vieillissant, j'ai progressivement découvert que ce n'était pas vrai. Personne n'avait jamais vu d'immortel, si ce n'est ce décret céleste conservé dans le temple... »
 
 « De temps à autre, le Fourneau Yin Mystérieux que mon clan gardait recrachait du brouillard. Et les choses qui en sortaient massacraient mon clan. J'ai souffert de chagrin et d'indignation face à la mort de chaque membre de ma lignée. J'ai commencé à me demander si les immortels existaient seulement. »
 
 « Même aujourd'hui, moi, Ta Shan, je ne crois toujours pas à l'existence des immortels. S'ils existaient vraiment, pourquoi nous auraient-ils oubliés pendant tant d'années... »
 
-Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan des Immortels Délaissés, il avait eu une intuition.
+Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan des Immortels Élus, il avait eu une intuition.
 
-« Le Clan des Immortels Délaissés... Le Clan des Immortels Abandonnés... Un choix fait pour abandonner... »
+« Le Clan des Immortels Élus... Le Clan des Immortels Abandonnés... Un choix fait pour abandonner... »
 
 « Dites-moi, existe-t-il des immortels dans ce monde? Êtes-vous un immortel? » Ta Shan leva la tête et fixa Wang Lin. Sa voix était très basse, mais son impact était plus puissant qu'un rugissement.
 
@@ -56,7 +56,7 @@ Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombr
 
 Ta Shan prit une profonde inspiration et eut un sourire amer: « Il n'y a aucun moyen de partir. Cet endroit est complètement scellé... J'ai essayé de trouver une issue pour retrouver les immortels, mais j'ai échoué. Ce ciel a une limite, mais je suis incapable de la franchir. Au-delà des fissures du mur de chair, il n'y a qu'un vide infini. »
 
-Les yeux de Wang Lin se rétrécirent et il demanda: « Que disait l'amulette céleste de l'époque? »
+Les yeux de Wang Lin se rétrécirent et il demanda: « Que disait le décret céleste de l'époque? »
 
 « On ne peut pas voir... Personne n'a pu voir ce qui s'y trouve. Pas un seul parmi les innombrables membres du clan morts n'a pu en découvrir le contenu... » Ta Shan se remit progressivement de son choc.
 
@@ -114,9 +114,9 @@ Ta Shan en fut extrêmement choqué. Il fixa la porte, le cuir chevelu engourdi 
 
 « Qu'est-ce que c'est que ça?! »
 
-« L'esprit du Fourneau Yin Mystérieux! » L'ancêtre du Clan des Immortels Délaissés essuya le sang au coin de sa bouche, affichant une expression complexe.
+« L'esprit du Fourneau Yin Mystérieux! » L'ancêtre du Clan des Immortels Élus essuya le sang au coin de sa bouche, affichant une expression complexe.
 
-Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de mille pieds d'ici! »
+Le visage de Wang Lin était sombre lorsqu'il s'assit. « Vous deux, partez. Ne laissez personne approcher à moins de 330 mètres d'ici! »
 
 Le vieil homme réfléchit silencieusement. Après un instant, il inclina respectueusement la tête. Puis, lui et Ta Shan se transformèrent en rayons de lumière et s'envolèrent au loin.
 
@@ -130,6 +130,6 @@ Le ciel était bleu, mais grâce à sa vision, Wang Lin pouvait distinguer vague
 
 « Si cet endroit est vraiment scellé, comment ai-je été envoyé ici... Ce lieu n'est pas accueillant. Je dois trouver un moyen de partir au plus vite! Mais bien que ce soit dangereux, c'est aussi le meilleur endroit pour se cacher! » Wang Lin réfléchit et frappa sa sacoche d'où s'échappa un objet.
 
-Cet objet mesurait environ 150 pieds de long et 40 pieds de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
+Cet objet mesurait environ 50 mètres de long et 13 mètres de large. Dès son apparition, il dégagea une aura terrifiante. D'innombrables épines le recouvraient, lui donnant un aspect féroce. Quiconque le regardait ne pouvait s'empêcher de ressentir une pointe de terreur.
 
-Le troisième Charriot de la Guerre contre les Dieux!
+Le troisième Charriot Tueur de Dieux!

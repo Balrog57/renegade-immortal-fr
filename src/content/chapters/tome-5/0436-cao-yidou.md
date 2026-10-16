@@ -28,7 +28,7 @@ Li Qingping était l'actuel maître de la Secte des Cadavres à Zhao. Il avait d
 
 Son apparence physique lui donnait l'air d'un homme d'environ quarante ans. Bien que quelques mèches de ses cheveux aient blanchi, il restait très beau; il devait être un grand séducteur dans sa jeunesse.
 
-Il dirigeait la Secte des Cadavres à Zhao depuis deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant le secte en terre de Zhao.
+Il dirigeait la Secte des Cadavres à Zhao depuis deux cents ans et s'était toujours montré extrêmement prudent. Il interagissait rarement avec le monde extérieur, ce qui renforçait le mystère entourant la secte en terre de Zhao.
 
 Il passait tout son temps en culture méditative isolée, dans l'espoir d'atteindre le stade de la Formation de l'Âme avant que l'âme logée dans sa marionnette cadavérique ne finisse par le prendre possession. Une fois ce stade atteint, le quartier général de la Secte des Cadavres sur la planète Suzaku lui aurait préparé un corps de choix. Il pourrait alors devenir un disciple central et, si ses performances étaient à la hauteur, il pourrait même être transféré au siège principal.
 
@@ -40,7 +40,7 @@ Cependant, ce que ces yeux révélaient n'était point le calme ou la froideur h
 
 « Tu es un petit être intéressant pour être capable de détecter mon arrivée avec seulement un stade intermédiaire de la Formation de l'Âme! » La voix de Wang Lin résonna dans les oreilles du brouillard noir.
 
-Le brouillard noir se mit à trembler davantage. Lorsque le Sens Divin de Wang Lin l'effleura, il ressentit un vent glacial, au point que son origine spirituelle devint instable, menaçant de s'effondrer. Ce genre de sensation ne lui arrivait que lorsqu'il affrontait les Anciens de son propre secte.
+Le brouillard noir se mit à trembler davantage. Lorsque le Sens Divin de Wang Lin l'effleura, il ressentit un vent glacial, au point que son origine spirituelle devint instable, menaçant de s'effondrer. Ce genre de sensation ne lui arrivait que lorsqu'il affrontait les Anciens de sa propre secte.
 
 La silhouette noire dit rapidement d'une voix tremblante: « Veuillez avoir pitié, Aîné. Si le disciple a pu remarquer votre présence, c'est parce que sa méthode de culture est liée au Sens Divin; il n'a donc fait qu'effleurer votre arrivée. »
 

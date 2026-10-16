@@ -26,7 +26,7 @@ En chemin, les frères Chen discutèrent avec Wang Lin, mais leurs propos restai
 
 Bientôt, ils eurent traversé la couche atmosphérique. Wang Lin descendit sur la planète Water Spirit, traité avec les égards dus à une étoile par les frères Chen.
 
-Dès qu'ils sortirent de l'atmosphère, ils ressentirent une énergie spirituelle d'une densité exceptionnelle. Wang Lin prit une profonde inspiration, les yeux empreints d'admiration. En voyant cela, les trois frères Chen éprouvèrent un sentiment de fierté secrète. C'était la planète de culture la plus riche dans un rayon de dizaines de milliers de kilomètres. Sans leur Maître, ils n'auraient jamais pu s'approprier un tel monde.
+Dès qu'ils sortirent de l'atmosphère, ils ressentirent une énergie spirituelle d'une densité exceptionnelle. Wang Lin prit une profonde inspiration, les yeux empreints d'admiration. En voyant cela, les trois frères Chen éprouvèrent un sentiment de fierté secrète. C'était la planète de culture la plus riche dans un rayon de centaines de milliers de kilomètres. Sans leur Maître, ils n'auraient jamais pu s'approprier un tel monde.
 
 Wang Lin rit: « Cette planète est magnifique! »
 
@@ -72,7 +72,7 @@ Maître Yi Chen avait disposé un palais extrêmement élégant dans la partie o
 
 C'était également l'endroit de la planète où l'énergie spirituelle était la plus dense. Après avoir installé Wang Lin, les trois frères Chen partirent, convenant de revenir le lendemain.
 
-Une fois les frères Chen partis, Wang Lin contempla les palais montagneux qui s'étendaient devant lui. Presque chaque sommet abritait une demeure. Au total, il y avait au moins dix palais; l'ensemble était d'une majesté absolue.
+Une fois les frères Chen partis, Wang Lin contempla les palais montagneux qui s'étendaient devant lui. Presque chaque sommet abritait une demeure. Au total, il y avait au moins plusieurs dizaines de palais; l'ensemble était d'une majesté absolue.
 
 De grands arbres s'élançaient vers le ciel au sein de ces montagnes. L'endroit inspirait une profonde sérénité.
 

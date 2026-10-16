@@ -54,7 +54,7 @@ Le cœur de Xi Zifeng battait la chamade et son visage rougit légèrement en fi
 
 Il y avait aussi ce garçon à la grosse tête. Bien qu'il affichait toujours un sourire idiot, une froideur se cachait derrière celui-ci.
 
-Le visage de Luo Su s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son frère avait été tué dans la matrice de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
+Le visage de Luo Su s'enfonça dans l'amertume tandis qu'il fixait Wang Lin. Il se remémorait les événements d'il y a deux jours: en sortant de sa culture en porte fermée, il avait appris une nouvelle qui l'avait profondément indigné. Son jeune cousin avait été tué dans la matrice de transfert du Royaume Céleste du Tonnerre par un certain Xu Mu!
 
 Et ce Xu Mu se trouvait actuellement au Temple Céleste du Tonnerre, participant à la compétition pour le titre céleste!
 
@@ -64,7 +64,7 @@ Alors que Luo Su laissait échapper un reniflement froid, son sens divin déferl
 
 Le géant doré fit un pas et une immense épée dorée apparut dans sa main. Il abattit l'arme gigantesque sur Wang Lin!
 
-Au moment même où le sens divin de Luo Su jaillissait, non seulement le géant armé de l'épée grandit jusqu'à dépasser les 3,3 kilomètres, mais deux autres géants dorés apparurent au-dessus de la place. Ils chargèrent également vers Wang Lin!
+Au moment même où le sens divin de Luo Su jaillissait, non seulement le géant armé de l'épée grandit jusqu'à atteindre 330 mètres de haut, mais deux autres géants dorés apparurent au-dessus de la place. Ils chargèrent également vers Wang Lin!
 
 Les trois géants étaient si rapides qu'ils créèrent une tempête en se précipitant sur lui. Les yeux de Wang Lin devinrent féroces et glacials; il recula promptement. Ses mains formèrent des sceaux et des restrictions apparurent pour bloquer l'un des colosses. Simultanément, il leva sa main droite et frappa impitoyablement un autre géant!
 
@@ -78,25 +78,25 @@ Cependant, juste au moment où les trois géants s'effondraient, Luo Su passa à
 
 En lançant cette attaque, Luo Su engagea toute sa culture. Sa puissance de stade intermédiaire du Scruteur du Nirvana jaillit soudainement de son doigt. Le regard de Wang Lin se glaça. Il était trop tard pour reculer; il ouvrit donc la bouche et cracha le Sceau Céleste.
 
-Le doigt de Luo Su percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin ressentit immédiatement une force dévastatrice en émaner. Cette force n'affecta pas son corps, mais elle projeta directement son âme originelle hors de lui. Bien qu'elle ne l'ait expulsée que de trois pouces, avant que Wang Lin ne puisse la ramener, Luo Su afficha un sourire sinistre, retira son doigt et recula!
+Le doigt de Luo Su percuta le Sceau Céleste, faisant trembler l'objet. Wang Lin ressentit immédiatement une force dévastatrice en émaner. Cette force n'affecta pas son corps, mais elle projeta directement son âme originelle hors de lui. Bien qu'elle ne l'ait expulsée que d'une dizaine de centimètres, avant que Wang Lin ne puisse la ramener, Luo Su afficha un sourire sinistre, retira son doigt et recula!
 
 « Non qualifié! » Luo Su écarta sa grande manche en désignant une autre personne dans le ciel: « Toi, descends! »
 
 Les actions de Luo Su pouvaient être jugées risquées, car cette bataille était observée par de nombreux témoins. Cependant, il considérait que son statut au sein du Temple Céleste du Tonnerre lui conférait des privilèges. De plus, n'estimant pas avoir commis d'excès, il n'y prêta guère attention.
 
-Le cultivateur désigné par Luo Su descendit sans mot dire. Pourtant, à cet instant, Wang Lin, qui venait d'être projeté à plus de 330 mètres de distance par Luo Su, laissa éclater une intention meurtrière.
+Le cultivateur désigné par Luo Su descendit sans mot dire. Pourtant, à cet instant, Wang Lin, qui venait d'être projeté à une quarantaine de mètres de distance par Luo Su, laissa éclater une intention meurtrière.
 
 « Non qualifié? » Wang Lin était venu participer à cette compétition pour gagner et il était déterminé à décrocher la première place. Les paroles de Luo Su avaient touché sa limite ultime!
 
 S'il avait été réellement non qualifié, cela aurait été acceptable, mais il était évident que ce Luo Su le sabotait délibérément. Le regard de Wang Lin devint d'une froideur extrême alors qu'il s'avançait d'un pas lourd. Il ne prit même pas la peine de regarder le cultivateur qui descendait. Ce dernier sentit un vent glacial passer, ce qui fit changer son expression et le poussa à s'écarter précipitamment tout en pestant intérieurement.
 
-« Tu oses dire que je ne suis pas qualifié?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Scruteur du Nirvana n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa culture. Bien qu'il ne fût pas certain de vaincre un cultivateur Scruteur du Nirvana de ce niveau, il ne pourrait se satisfaire d'un simple départ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre!
+« Tu oses dire que je ne suis pas qualifié?! » Tandis que Wang Lin approchait, une intention meurtrière monstrueuse explosa de son corps. Le stade intermédiaire du Scruteur du Nirvana n'était pas un sommet inatteignable. Wang Lin avait emprunté le chemin du massacre dès le début de sa culture. Wang Lin venait d'atteindre le stade initial du Scruteur du Nirvana; bien qu'il ne fût pas certain de vaincre un cultivateur de ce niveau, il ne pourrait se satisfaire d'un simple départ! De plus, avec la présence de Qing Shui, Wang Lin n'avait rien à craindre!
 
-En s'élançant, Wang Lin leva la main et le sort « Appel du Vent » enveloppa les environs. Tandis que le vent noir rugissait, il couvrit le ciel et deux dragons noirs apparurent. Ils poussèrent des hurlements qui firent trembler les cieux et chargèrent vers Luo Su.
+En s'élançant, Wang Lin leva la main et le sort « Invoquer le Vent » enveloppa les environs. Tandis que le vent noir rugissait, il couvrit le ciel et deux dragons noirs apparurent. Ils poussèrent des hurlements qui firent trembler les cieux et chargèrent vers Luo Su.
 
 Les yeux de Luo Su s'illuminèrent et il eut un sourire froid. « Oses-tu défier la volonté du Temple Céleste du Tonnerre? » Il avança et son sens divin se déploya. Neuf géants dorés apparurent instantanément.
 
-Ces neuf géants, hauts de mille pieds chacun, brandissaient de grandes épées. Ils poussèrent un rugissement unanime et chargèrent vers Wang Lin.
+Ces neuf géants, hauts de 330 mètres chacun, brandissaient de grandes épées. Ils poussèrent un rugissement unanime et chargèrent vers Wang Lin.
 
 Wang Lin éclata d'un rire fou, un rire empreint d'une froideur infinie. Il leva sa main droite et le Fouet du Karma apparut. Alors que les deux dragons noirs hurlaient, le fouet s'abattit dans un écho de tonnerre.
 

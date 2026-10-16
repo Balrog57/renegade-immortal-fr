@@ -106,7 +106,7 @@ Wang Lin faisait entièrement confiance au crapaud tonnerre. Parfois, la vie en 
 
 En plus de tout cela, Wang Lin disposait d'une ultime ligne de défense: son corps original. Avec sa présence ici, tous les dangers seraient écartés.
 
-C'était la véritable raison pour laquelle il se sentait en sécurité en laissant Zhou Ru. Cependant, à moins d'y être contraint, il ne voulait pas révéler son corps original. C'était son véritable atout, plus bien caché que tout ce qu'il possédait.
+C'était la véritable raison pour laquelle il se sentait en sécurité en laissant Zhou Ru. Cependant, à moins d'y être contraint, il ne voulait pas révéler son corps original. C'était son véritable atout, plus profondément caché que tout ce qu'il possédait.
 
 Après avoir réglé tous ces détails, Wang Lin sortit de la vallée. Il ignorait si ce qu'il allait affronter marquerait son ascension ou sa chute.
 

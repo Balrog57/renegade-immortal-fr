@@ -14,11 +14,11 @@ Tous les cultivateurs de la ville perdirent brusquement le contrôle de l'énerg
 
 Cette sensation fut aussi brève qu'intense. Le corps du vieil homme aux cheveux blancs bougea soudainement et disparut sans laisser de trace.
 
-Au même instant, dans la brume surplombant la Mer des Démons, un rire tonitruant retentit tandis qu'une créature rocheuse d'un millier de pieds de long émergeait du brouillard.
+Au même instant, dans la brume surplombant la Mer des Démons, un rugissement tonitruant retentit tandis qu'une tortue noire géante, longue de plusieurs kilomètres, émergeait du brouillard.
 
 Sa tête gigantesque exerçait une pression colossale. Après avoir jeté un regard sur ce qui se trouvait en dessous, elle ouvrit la gueule et aspira une part immense de l'énergie spirituelle dans un rayon de 50 kilomètres. Puis, après un rot sonore, elle se stabilisa avant de repartir.
 
-Le vieil homme aux cheveux blancs se tenait sur son dos. Il hurla: « Espèce de bâtard! Je ne t'ai demandé de me transporter qu'une seule fois et tu as déjà englouti autant d'énergie spirituelle. N'as-tu pas peur de crever de faim? Si jamais tu meurs, je verrai au moins si ta chair a du goût! »
+Le vieil homme aux cheveux blancs se tenait sur son dos. Il hurla: « Espèce de bâtard! Je ne t'ai demandé de me transporter qu'une seule fois et tu as déjà englouti autant d'énergie spirituelle. N'as-tu pas peur de crever d'indigestion? Si jamais tu meurs, je verrai au moins si ta chair a du goût! »
 
 Pendant ce temps, Wang Lin était assis en tailleur dans sa grotte lorsqu'il sentit soudain une sensation d'horreur l'envahir. Elle émanait des hauteurs de la Mer des Démons.
 
@@ -32,7 +32,7 @@ Grâce à sa vue divine, il put clairement voir une fine ligne rouge émaner du 
 
 Le visage de Wang Lin s'assombrit. Il ouvrit immédiatement la porte de la grotte et chargea dehors. Une fois à l'air libre, il stabilisa son corps et scruta le ciel.
 
-Il vit la ligne rouge flotter dans les airs, traversant la brume au-dessus de la Mer des Démons. Après avoir réfléchi un instant, il pointa sa tempe et fit sortir le second démon.
+Il vit la ligne rouge flotter dans les airs, traversant la brume au-dessus de la Mer des Démons. Après avoir réfléchi un instant, il pointa son front et fit sortir le second démon.
 
 Une fois apparu, sur ordre de Wang Lin, le démon devint invisible. À travers les yeux de Wang Lin, on pouvait voir sa silhouette s'élancer dans la brume.
 
@@ -44,7 +44,7 @@ Il réfléchit longuement. Il parcourut ses souvenirs hérités pour tenter de c
 
 Le second démon fendait rapidement la brume. Étant une créature volante avant d'être transformé en démon, sa vitesse était devenue phénoménale après sa métamorphose. Même Wang Lin ne pourrait voler aussi vite que lui.
 
-Si Qisiping l'avait piégé dans la brume noire six jours auparavant, il aurait pu disparaître sans laisser de trace s'il avait eu la moindre opportunité d'utiliser sa vitesse.
+Si Qiu Siping l'avait piégé dans la brume noire six jours auparavant, il aurait pu disparaître sans laisser de trace s'il avait eu la moindre opportunité d'utiliser sa vitesse.
 
 Le second démon se déplaçait comme un éclair à travers le brouillard surplombant la Mer des Démons.
 
@@ -54,7 +54,7 @@ Ce renflement grossit sans cesse, tel un réservoir d'eau suspendu sous la brume
 
 Puis, le fond du renflement s'ouvrit. Un rugissement tonitruant retentit et un pilier de lumière rouge, dont la puissance semblait capable de détruire l'étoile Suzaku tout entière, tomba du ciel.
 
-Au moment où ce pilier de lumière chutait, la brume rouge se contracta brusquement, passant de 5 kilomètres de large à environ 7 ou 8 kilomètres.
+Au moment où ce pilier de lumière chutait, la brume rouge se contracta brusquement, passant de 5 kilomètres de large à environ 3 ou 4 kilomètres.
 
 La brume perdue avait été condensée dans le pilier de lumière qui tombait des cieux.
 
@@ -86,7 +86,7 @@ Soudain, lors de la collision des deux piliers, une onde de choc dévastatrice s
 
 Au même moment, le pilier rouge finit par se dissiper.
 
-Mais ce n'était pas encore fini. La masse de brume rouge de 7 ou 8 kilomètres de large se remit soudain à bouger pour former un nouveau pilier rouge tombant du ciel.
+Mais ce n'était pas encore fini. La masse de brume rouge de 3 ou 4 kilomètres de large se remit soudain à bouger pour former un nouveau pilier rouge tombant du ciel.
 
 Cette fois, toute la brume rouge s'effondra avec le pilier. Il ne restait plus aucune trace de brume rouge dans le ciel; tout était tombé avec lui.
 
@@ -114,7 +114,7 @@ Plus la rétribution était forte, plus le trésor était puissant; si elle éta
 
 Bien sûr, ce n'était qu'une estimation très approximative et souvent erronée. Par exemple, le drapeau de restriction créé par Wang Lin ne pouvait absolument pas être comparé à une rétribution divine.
 
-La véritable cause de cette rétribution provenait du meule d'encre. Ce meule était resté trop longtemps dans le corps de l'Ancien Dieu et avait accumulé une partie de son énergie spirituelle. C'est pourquoi la rétribution divine, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
+La véritable cause de cette rétribution provenait de la pierre d'encre. Cette pierre était restée trop longtemps dans le corps de l'Ancien Dieu et avait accumulé une partie de son énergie spirituelle. C'est pourquoi la rétribution divine, absente du monde de la culture depuis si longtemps, réapparaissait maintenant.
 
 De même, comme la rétribution divine ne s'était pas manifestée depuis des éons, bien qu'elle n'ait été déclenchée que par la création d'un trésor magique, elle contenait une puissance inimaginable.
 
@@ -224,19 +224,19 @@ Il ne marquait aucune pause, tuant les bêtes et s'emparant de leurs noyaux tout
 
 En plein vol, Wang Lin s'arrêta brusquement. Son Sens Divin avait détecté un immense troupeau de bêtes à environ 500 kilomètres à l'est. Il fit demi-tour et chargea dans cette direction.
 
-Il parcourut rapidement la distance. Le troupeau était immense. À son arrivée, il pointa sa tempe et le second démon surgit pour s'élancer dans la masse.
+Il parcourut rapidement la distance. Le troupeau était immense. À son arrivée, il pointa son front et le second démon surgit pour s'élancer dans la masse.
 
 Peu après, l'épée noire empoisonnée se mit également en mouvement, ainsi que le Domaine du Royaume de Wang Lin. Toutes ces attaques s'abattirent sur le troupeau.
 
-Mais un rugissement féroce retentit de l'intérieur de la horde. Un calmar gigantesque émergea lentement du sol, ses yeux noirs fixant froidement Wang Lin.
+Mais un rugissement féroce retentit de l'intérieur de la horde. Une pieuvre gigantesque émergea lentement du sol, ses yeux noirs fixant froidement Wang Lin.
 
 Wang Lin constata que cette bête possédait une puissance comparable à celle d'un cultivateur au stade intermédiaire de l'Âme Naissante; il fit donc demi-tour sans attendre. Il connaissait ce genre de situation: dans un tel troupeau, la présence de bêtes de niveau Âme Naissante était inévitable.
 
-Le corps de Wang Lin flascha et disparut au loin. Le calmar poussa un cri et se lança à sa poursuite.
+Le corps de Wang Lin flascha et disparut au loin. La pieuvre poussa un cri et se lança à sa poursuite.
 
-Wang Lin ne se retourna pas, il fuyait simplement. Après l'avoir poursuivi une certaine distance, le calmar hésita, puis cessa ses poursuites pour retourner vers son troupeau afin de dévorer quelques bêtes avant de s'enfoncer à nouveau sous terre.
+Wang Lin ne se retourna pas, il fuyait simplement. Après l'avoir poursuivi une certaine distance, la pieuvre hésita, puis cessa ses poursuites pour retourner vers son troupeau afin de dévorer quelques bêtes avant de s'enfoncer à nouveau sous terre.
 
-Bientôt, Wang Lin repéra un groupe de sept cultivateurs à environ 500 kilomètres de là. Trois d'entre eux étaient au stade de la Formation du Noyau. Ils encerclaient une bête et l'attaquaient.
+Bientôt, Wang Lin repéra un groupe de sept cultivateurs à environ 1 000 kilomètres de là. Trois d'entre eux étaient au stade de la Formation du Noyau. Ils encerclaient une bête et l'attaquaient.
 
 Leurs sourires se figèrent brusquement lorsqu'une lumière noire les traversa, les tuant tous les sept. Les trois cultivateurs à la Formation du Noyau présentaient des trous sanglants à l'abdomen, tandis que la bête portait un trou béant à la tête.
 
@@ -258,7 +258,7 @@ L'homme n'était pas venu en ami. Une lueur froide traversa les yeux de Wang Lin
 
 L'homme d'âge moyen afficha un air moqueur et projeta une griffe noire vers Wang Lin.
 
-Wang Lin fit pivoter le drapeau de restriction avec sa main droite. Le drapeau s'éleva et grandit instantanément pour couvrir les 100 kilomètres environnants. Les restrictions s'activèrent l'une après l'autre. Des dizaines d'entre elles enveloppèrent la griffe noire qui, dans un sifflement, fut détruite.
+Wang Lin fit pivoter le drapeau de restriction avec sa main droite. Le drapeau s'éleva et grandit instantanément pour couvrir les 50 kilomètres environnants. Les restrictions s'activèrent l'une après l'autre. Des dizaines d'entre elles enveloppèrent la griffe noire qui, dans un sifflement, fut détruite.
 
 L'homme d'âge moyen ricana face au drapeau de restriction. Il balaya le ciel de sa main droite et une épée volante violette jaillit de ses manches, fonçant vers Wang Lin à une vitesse supersonique.
 
@@ -266,7 +266,7 @@ Wang Lin resta immobile. Croisant ses mains, il cria: « Brise! »
 
 Le drapeau de restriction réagit immédiatement; les restrictions s'envolèrent pour former un bouclier noir devant lui. Dès que l'épée frappa le bouclier, les restrictions se transférèrent sur l'arme, la recouvrant entièrement.
 
-L'homme d'âge moyen fronça les sourcils, surpris qu'un simple cultivateur au stade intermédiaire de la Formation du Noyau possède un tel trésor. Il plongea sa main dans son sac et en sortit un sceau de tigre en bronze. Après avoir récité quelques incantations, le sceau rugit et grandit jusqu'à atteindre deux ou trois mètres. Le bronze se fendit et un tigre noir en jaillit.
+L'homme d'âge moyen fronça les sourcils, surpris qu'un simple cultivateur au stade intermédiaire de la Formation du Noyau possède un tel trésor. Il plongea sa main dans son sac et en sortit un sceau de tigre en bronze. Après avoir récité quelques incantations, le sceau rugit et grandit jusqu'à atteindre une vingtaine de mètres. Le bronze se fendit et un tigre noir en jaillit.
 
 Le tigre bondit sur Wang Lin. Ce dernier recula de quelques pas, forma un sceau et hurla: « Piège! »
 
@@ -280,7 +280,7 @@ Le visage de l'homme d'âge moyen changea pour la première fois. Il devint sér
 
 À ses yeux, un tel trésor ne pouvait appartenir qu'à quelqu'un doté de puissants antécédents; un simple cultivateur de la Formation du Noyau ne pouvait posséder une telle chose. Une pointe d'avidité s'insinua dans son cœur.
 
-Les yeux de Wang Lin s'illuminèrent. La puissance du drapeau valait bien le prix de la rétribution divine. Ce n'était même pas un simple drapeau de route; s'il l'était, il serait encore plus redoutable.
+Les yeux de Wang Lin s'illuminèrent. La puissance du drapeau valait bien le prix de la rétribution divine. Ce n'était qu'un drapeau aux propriétés mixtes; à propriété unique, il serait encore plus redoutable.
 
 Il regarda froidement l'homme. La situation était critique: lors de leur combat, son énergie spirituelle s'était déstabilisée et son noyau avait encore rétréci. S'il ne réglait pas cela vite, son noyau s'effondrerait.
 
@@ -288,11 +288,11 @@ Wang Lin dit d'un ton sombre: « Mon maître est Gulan. »
 
 L'homme fut stupéfait. Il scruta Wang Lin et ricana, ne croyant pas qu'il soit le disciple de l'Empereur Antique, car celui-ci avait disparu dans les étoiles brisées il y a deux cents ans.
 
-Il allait répliquer quand ses yeux s'écarquillèrent en fixant le sac de rangement que Wang Lin tenait: le mot « Lan » y était brodé en bleu.
+Il allait répliquer quand ses yeux s'écarquillèrent en fixant le sac de rangement que Wang Lin tenait: le mot « Lan » y était brodé en teintes anciennes et pâlies.
 
 Wang Lin rangea le sac d'un geste. À l'expression de l'homme, il comprit que ce dernier connaissait ce sac ou en avait entendu parler.
 
-Wang Lin recula tout en formant un sceau derrière son dos, emportant le drapeau avec lui. Après avoir reculé de trente mètres, il libéra le tigre prisonnier des restrictions.
+Wang Lin recula tout en formant un sceau derrière son dos, emportant le drapeau avec lui. Après avoir reculé de trois cents mètres, il libéra le tigre prisonnier des restrictions.
 
 Dans la foulée, sa vitesse augmenta et il disparut sans laisser de trace.
 
@@ -304,7 +304,7 @@ Bien que l'Empereur Antique fût disparu depuis deux cents ans, sa réputation e
 
 Une fois loin, Wang Lin rangea le drapeau. Ce combat avait consommé énormément d'énergie spirituelle et son noyau avait encore rétréci. Selon ses calculs, il devait impérativement absorber plus de puissance spirituelle, sous peine de mourir.
 
-Wang Lin sortit tout le liquide spirituel économisé à Qilin. Il n'en restait qu'une centaine de gouttes. Après en avoir pris dix, il parvint tout juste à stopper la contraction de son noyau. Il soupira sombrement: il touchait au bout de ses solutions. Il ne restait qu'une ultime méthode.
+Wang Lin sortit tout le liquide spirituel économisé à Qilin. Il n'en restait pas cent gouttes. Après en avoir pris dix, il parvint tout juste à stopper la contraction de son noyau. Il soupira sombrement: il touchait au bout de ses solutions. Il ne restait qu'une ultime méthode.
 
 Wang Lin serra les dents. Il activa son Noyau d'Âme Dévoreuse et concentra toute sa volonté sur lui.
 
@@ -326,7 +326,7 @@ Mille éclairs rouges s'élancèrent du corps de Wang Lin et disparurent dans to
 
 Quant au fragment d'âme racine, il resta en lui. À cet instant, l'âme de Wang Lin était extrêmement affaiblie. Il sortit son épée noire empoisonnée pour creuser un trou dans le sol, s'y assit en tailleur, puis sortit le drapeau de restriction et le tint fermement en prenant une grande inspiration.
 
-Le drapeau flottait sans vent. Il grandit soudainement pour couvrir un rayon de 100 kilomètres. Les restrictions se déployèrent et neuf symboles géants flottèrent immobiles dans l'espace environnant.
+Le drapeau flottait sans vent. Il grandit soudainement pour couvrir un rayon de 50 kilomètres. Les restrictions se déployèrent et neuf symboles géants flottèrent immobiles dans l'espace environnant.
 
 Une fois les restrictions installées, Wang Lin expira et commença à digérer les noyaux précédemment consommés.
 
@@ -394,4 +394,4 @@ Qiu Siping leva les yeux et murmura: « Je suis né dans la Mer des Démons et j
 
 Wang Lin allait répondre quand son regard fut capté par une silhouette au loin. Après quelques grondements, une tortue gigantesque apparut à l'horizon. Sur son dos, un vieil homme pointait le ciel en jurant copieusement. Sa voix parvint jusqu'à eux:
 
-« Ce vieux fou n'en a pas fini avec toi, voleur de rétribution divine! Continuons avec ton 3 783e crime... »
+« Ce vieux fou n'en a pas fini avec toi, maudite rétribution divine! Continuons avec ton 37 863e crime... »

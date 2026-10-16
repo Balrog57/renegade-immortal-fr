@@ -8,7 +8,7 @@ slug: art-du-massacre-celeste-partie-1
 ---
 Une musique joyeuse, empreinte d'une profonde tristesse, parvint aux oreilles de Wang Lin. Cela le fit hésiter un instant, mais il ne se retourna pas et continua son chemin.
 
-Il n'était pas minuit, mais la pleine lune trônait dans le ciel, et sa lumière enveloppait la Cité du Démon Céleste comme un fin voile de soie.
+Il était minuit, la pleine lune trônait dans le ciel, et sa lumière enveloppait la Cité du Démon Céleste comme un fin voile de soie.
 
 Deux silhouettes apparurent devant le manoir Mo, puis disparurent dans un éclair de fumée. Elles s'élancèrent vers la Prison Hong. Les deux étaient extrêmement rapides, survolant les divers bâtiments et rues de la ville avant d'arriver promptement devant l'enceinte de la prison.
 
@@ -62,7 +62,7 @@ L'homme nommé Xu, habitué à tout cela, lança d'une voix sombre: « Silence, 
 
 Une petite demeure noire se trouvait à l'entrée de ce bloc de cellules. Debout devant la bâtisse, l'homme nommé Xu examina Wang Lin une dernière fois. Il esquissa un sourire qui rendit son visage plus sinistre encore.
 
-« Frère Wang, voici le secteur dont je suis responsable. J'ai sélectionné chaque prisonnier à la main; ils seront tous exécutés d'ici janvier, vous pouvez donc cultiver à votre guise. Même si vous les tuez tous, cela n'aura aucune importance! »
+« Frère Wang, voici le secteur dont je suis responsable. J'ai sélectionné chaque prisonnier à la main; ils seront tous exécutés d'ici un mois, vous pouvez donc cultiver à votre guise. Même si vous les tuez tous, cela n'aura aucune importance! »
 
 Le Sens Divin de Wang Lin se propagea et il découvrit immédiatement que de nombreuses zones étaient protégées par des restrictions.
 
@@ -136,7 +136,7 @@ Wang Lin s'agenouilla et examina attentivement le trou entre les sourcils de l'h
 
 Après cinq jours, plus de la moitié des prisonniers étaient morts! Une épaisse aura de mort imprégnait les lieux et persistait.
 
-En observant ces milliers de corps, Wang Lin commençait à obtenir un aperçu de l'illumination recherchée. Mais une sorte de brume semblait s'interposer entre lui et cette compréhension; il ne pouvait ni la voir clairement, ni la saisir.
+En observant près d'un millier de corps, Wang Lin commençait à obtenir un aperçu de l'illumination recherchée. Mais une sorte de brume semblait s'interposer entre lui et cette compréhension; il ne pouvait ni la voir clairement, ni la saisir.
 
 « Que me manque-t-il...? » se demanda-t-il.
 
@@ -152,7 +152,7 @@ Les yeux de Wang Lin se contractèrent.
 
 Une fois ses paroles achevées, son regard devint glacial. Aucune intention meurtrière ne semblait émaner de lui, et pourtant Wang Lin sentit que l'homme avait radicalement changé. Bien qu'il n'y ait pas d'intention meurtrière manifeste, Wang Lin sentit tous les poils de son corps se hérisser. Son âme originelle trembla involontairement, et un sentiment de danger extrême envahit son cœur. Une aura inconnue émanait de cet homme; bien qu'elle ne se propageât pas, elle était terrifiante.
 
-L'homme nommé Xu reprit d'une voix calme: « Une épée déjà rengainée est tranchante et peut générer une intention meurtrière, mais elle manque de fondation par rapport à une épée dégainée. Un véritable cœur de tueur est une épée dégainée! Si vous voulez vraiment cultiver le massacre, je peux vous emmener dans un lieu où vous pourrez vivre un véritable carnage. »
+L'homme nommé Xu reprit d'une voix calme: « Une épée déjà dégainée est tranchante et peut générer une intention meurtrière, mais elle manque de fondation par rapport à une épée encore au fourreau. Un véritable cœur de tueur est une épée encore au fourreau! Si vous voulez vraiment cultiver le massacre, je peux vous emmener dans un lieu où vous pourrez vivre un véritable carnage. »
 
 Wang Lin répondit simplement: « Ma condition? »
 

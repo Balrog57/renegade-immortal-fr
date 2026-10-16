@@ -20,7 +20,7 @@ Le pays de Suzaku ne se souciait guère des pays de culture de rang 3. Au début
 
 Aux yeux du pays de Suzaku, les cultivateurs de l'Âme Naissante étaient tout simplement trop faibles.
 
-Wang Lin laissa échapper un sourire amer en regardant un autre membre de sa secte mourir. Il observa les quatre membres du Clan des Immortels Délaissés qui, possédant clairement la puissance de cultivateurs au stade avancé de la Formation du Noyau, ne les tuaient pas, mais se contentaient de les pourchasser.
+Wang Zhuo laissa échapper un sourire amer en regardant un autre membre de sa secte mourir. Il observa les quatre membres du Clan des Immortels Délaissés qui, possédant clairement la puissance de cultivateurs au stade avancé de la Formation du Noyau, ne les tuaient pas, mais se contentaient de les pourchasser.
 
 À ce moment précis, une météorite traversa le ciel, dégageant une aura terrifiante. Les quatre membres du Clan des Immortels Délaissés furent frappés de stupeur et regardèrent immédiatement dans cette direction.
 
@@ -46,7 +46,7 @@ Wang Lin observa d'un regard impassible les autres membres de la secte de Wang Z
 
 Wang Lin demanda: « Où allez-vous? »
 
-L'homme qui possédait la graine spirituelle était un vieil homme. Son corps tremblait sous le regard de Wang Lin lorsqu'il répondit: « Environ dix d'entre nous, des juniors, avons été envoyés au pays de Lin pour les aider. Cependant, ils ont perdu face au Clan des Immortels Délaissés, alors nous tentons de nous frayer un chemin vers Zhao. »
+L'homme qui possédait la graine spirituelle était un vieil homme. Son corps tremblait sous le regard de Wang Lin lorsqu'il répondit: « Environ dix d'entre nous, des juniors, avons été envoyés au pays voisin pour les aider. Cependant, ils ont perdu face au Clan des Immortels Délaissés, alors nous tentons de nous frayer un chemin vers Zhao. »
 
 Wang Lin frappa son sac de rangement. Un jade s'en échappa et il y injecta une fraction de son domaine. Il le lança au vieil homme en disant: « Prenez ce jade. Il vous protégera jusqu'à ce que vous atteigniez Zhao. Partez. »
 
@@ -80,7 +80,7 @@ Au sommet d'une montagne, Wang Zhuo s'éveilla lentement. Ses yeux étaient d'ab
 
 « Wang Zhuo. » Wang Lin se retourna et sourit.
 
-Wang Zhuo fixa Wang Lin tandis que les souvenirs du passé l'assaillaient, jusqu'à ce moment où sa femme était morte par sa main; il laissa alors échapper un soupir.
+Wang Zhuo fixa Wang Lin tandis que les souvenirs du passé l'assaillaient, jusqu'à ce moment où sa femme mourut dans ses bras; il laissa alors échapper un soupir.
 
 « Merci… »
 
@@ -116,9 +116,9 @@ Wang Zhuo ajouta: « La rumeur dit que le Clan des Immortels Délaissés a envoy
 
 Wang Lin réfléchit. Il n'aurait jamais imaginé qu'en si peu de temps, un tel bouleversement puisse se produire.
 
-« La Secte du Raffinement Spirituel… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte du Raffinement Spirituel pour voir si les choses y avaient changé.
+« La Secte du Raffinement de l'Âme… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte du Raffinement de l'Âme pour voir si les choses y avaient changé.
 
-Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte du Raffinement Spirituel.
+Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte du Raffinement de l'Âme.
 
 Wang Zhuo marqua une pause et demanda lentement: « Wang Lin, pouvez-vous retourner à Zhao et le sauver du péril? »
 
@@ -156,4 +156,4 @@ L'homme soupira et dit d'une voix lente: « Tous les immortels de la capitale so
 
 La femme essuya une larme au coin de ses yeux et murmura: « Pourquoi ces gens cherchent-ils des enfants partout…? »
 
-L'homme prit une profonde inspiration et eut un sourire amer. « Hier soir, j'ai parlé secrètement avec le roi et j'ai découvert qu'ils recherchent des enfants ayant les aptitudes pour devenir immortels. Je crains qu'ils n'aient un dessein bien plus vaste en tête. Hélas, si seulement le grand-père était là, tout serait différent. »
+L'homme prit une profonde inspiration et eut un sourire amer. « Hier soir, j'ai parlé secrètement avec le roi et j'ai découvert qu'ils recherchent des enfants ayant les aptitudes pour devenir immortels. Je crains qu'ils n'aient un dessein bien plus vaste en tête. Hélas, si seulement l'arrière-grand-père était là, tout serait différent. »

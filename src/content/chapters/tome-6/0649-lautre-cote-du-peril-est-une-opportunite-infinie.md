@@ -28,7 +28,7 @@ La sphère de foudre projeta une lumière qui illumina la partie inférieure de 
 
 Le dragon de tonnerre antique fut stupéfait; pour la première fois, la peur apparut dans ses yeux. Il cessa de tenter d'engloutir Wang Lin et lutta désespérément pour remonter vers la surface. Il avait peur!
 
-Dans l'héritage de sa mémoire ancienne, il avait déjà vu quelque chose de similaire. Il poussa un rugissement féroce et des éclairs recouvrirent son corps. Réussissant à résister partiellement à l'aspiration, il parvint à s'élever de trente pieds.
+Dans l'héritage de sa mémoire ancienne, il avait déjà vu quelque chose de similaire. Il poussa un rugissement féroce et des éclairs recouvrirent son corps. Réussissant à résister partiellement à l'aspiration, il parvint à s'élever d'environ dix mètres.
 
 « Tu crois pouvoir t'enfuir? » Les yeux de Wang Lin devinrent glacials. Si ce n'était pour le dragon de tonnerre, comment aurait-il été forcé d'entrer ici? Et si ce dragon ne l'avait pas poursuivi avec autant de naïveté, il serait déjà loin. Mais à cette distance, il était désormais impossible pour Wang Lin de s'échapper.
 
@@ -36,7 +36,7 @@ Dans l'héritage de sa mémoire ancienne, il avait déjà vu quelque chose de si
 
 Par le passé, même si le dragon avait été stoppé, ce n'aurait été qu'un instant et il ne s'en serait pas soucié. Mais aujourd'hui, la situation était tout autre!
 
-Le corps du dragon de tonnerre se figea un instant. Il poussa un rugissement de protestation avant d'être entraîné vers le bas par l'immense force d'aspiration sur plus de cent pieds.
+Le corps du dragon de tonnerre se figea un instant. Il poussa un rugissement de protestation avant d'être entraîné vers le bas par l'immense force d'aspiration sur plus de trente-trois mètres.
 
 « Tu ne t'échapperas pas! » Le regard de Wang Lin était impitoyable. Son propre corps était tiré vers le bas par l'aspiration. Alors qu'il sombrait rapidement, les trois épées plantées dans la paroi furent elles aussi entraînées, creusant trois profondes entailles dans la roche.
 
@@ -60,7 +60,7 @@ De faibles lueurs émanaient de ce gaz qui, aspiré dans les profondeurs, éclai
 
 En utilisant la lumière du gaz vert, il distingua vaguement une ombre saillante horizontalement sur la paroi. À cet instant précis, la lueur verte illumina cette silhouette.
 
-Wang Lin vit qu'il s'agissait d'un immense rocher émergeant de la paroi. Ce bloc mesurait environ cent pieds de large, et un réseau de transfert y était gravé!
+Wang Lin vit qu'il s'agissait d'un immense rocher émergeant de la paroi. Ce bloc mesurait environ trente-trois mètres de large, et un réseau de transfert y était gravé!
 
 Avant qu'il ne puisse l'examiner de plus près, la lumière verte faiblit. Privée de clarté, cette masse rocheuse disparut à nouveau dans les ténèbres.
 
@@ -70,7 +70,7 @@ Soudain, Wang Lin sentit l'épée céleste glisser sous ses pieds, suivie peu ap
 
 « Il y a une fissure! » Une exaltation soudaine envahit Wang Lin qui, sans hésiter, se projeta vers la paroi.
 
-Son corps s'engouffra immédiatement dans l'ouverture. Comme il l'avait pressenti, une fissure d'environ 33 mètres de large lui permit de s'y glisser. Une fois à l'intérieur, il récupéra aussi vite que possible les trois épées, l'épée céleste et la lame de lune.
+Son corps s'engouffra immédiatement dans l'ouverture. Comme il l'avait pressenti, une fissure d'environ 3,3 mètres de large lui permit de s'y glisser. Une fois à l'intérieur, il récupéra aussi vite que possible les trois épées, l'épée céleste et la lame de lune.
 
 Lorsque l'âme du dragon de tonnerre, déjà transformée en gaz vert, vit Wang Lin pénétrer dans la fissure, elle commença à lutter frénétiquement. Le gaz tourbillonna et se condensa de nouveau en une forme draconique. Dans un rugissement, il chargea vers la fissure où s'était réfugié Wang Lin.
 

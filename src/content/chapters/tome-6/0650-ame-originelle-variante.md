@@ -26,7 +26,7 @@ Son corps perdit progressivement son éclat et se flétrit lentement. Cependant,
 
 Les jours devinrent des années. Ce jour-là, le dragon de tonnerre à l'intérieur de l'âme originelle de Wang Lin ne luttait plus aussi violemment, mais ses résistances persistaient. Pourtant, d'innombrables restrictions brillaient sur son corps, s'empilant les unes sur les autres pour former le sceau du dragon!
 
-Au fil des ans, l'âme originelle de Wang Lin avait progressivement rétréci. Elle ne mesurait plus que trois pieds de haut, soit à peine la taille de l'Âme Naissante d'un cultivateur!
+Au fil des ans, l'âme originelle de Wang Lin avait progressivement rétréci. Elle ne mesurait plus qu'environ un mètre de haut, soit à peine la taille de l'Âme Naissante d'un cultivateur!
 
 Bien qu'amoindrie, son âme originelle dégageait une puissance tonitruante. Elle n'était plus cristalline, mais émettait des éclairs incessants, comme si des millions de serpents d'argent s'agitaient en son sein.
 

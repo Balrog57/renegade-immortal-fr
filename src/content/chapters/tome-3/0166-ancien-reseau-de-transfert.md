@@ -46,13 +46,13 @@ Wang Lin resta silencieux.
 
 Wang Qingyue fixa Duanmu Ji et demanda soudainement: « Duanmu Ji, lorsque tu y es allé il y a mille ans, tu as dû rapporter des trésors. Pourquoi sinon voudrais-tu tant y retourner? Où se trouve exactement cet endroit? La chose dont tu parlais s'y trouve-t-elle vraiment? »
 
-Duanmu Ji réfléchit un instant avant de répondre: « J'ai obtenu cette calebasse pour cet endroit. Wang Qingyue, je ne peux t'en dire plus: une fois sur place, tu le sauras naturellement. Désolé. »
+Duanmu Ji réfléchit un instant avant de répondre: « J'ai obtenu cette calebasse là-bas. Wang Qingyue, je ne peux t'en dire plus: une fois sur place, tu le sauras naturellement. Désolé. »
 
 Wang Qingyue observa la calebasse sans manifester d'émotion particulière. Puis, il suivit silencieusement Duanmu Ji. Les trois volèrent à une vitesse prodigieuse. En un clin d'œil, un mois s'écoula.
 
 Durant ce mois, ils ne firent aucune pause. En chemin, Wang Lin vit passer au total quatre villes. Chaque cité comptait plus de cultivateurs que la précédente et était bien plus développée que Nan Dou.
 
-Ce jour-là, une immense chaîne de montagnes à perte de vue apparut devant eux. Duanmu Ji frappa la calebasse et se dirigea rapidement vers les cimes.
+Ce jour-là, une immense montagne, dont on ne voyait pas la base, apparut devant eux. Duanmu Ji frappa la calebasse et se dirigea rapidement vers les cimes.
 
 Bientôt, il contourna un sommet et déboucha dans une vallée nichée au cœur de la montagne. La vallée était d'un calme absolu, dénuée de toute trace de vie.
 
@@ -62,7 +62,7 @@ Wang Lin descendit de la calebasse et vit immédiatement une formation circulair
 
 En voyant la formation, Wang Qingyue afficha une expression singulière et observa Duanmu Ji d'un air pensif.
 
-Duanmu Ji tapota son sac de rangement. Il en sortit avec précaution une pierre spirituelle qui émettait une lueur blanc laiteux. Une moue de tristesse sur le visage, il la déposa dans l'encoche de la formation.
+Duanmu Ji tapota son sac de rangement. Il en sortit avec précaution une pierre spirituelle en forme de losange qui émettait une lueur blanc laiteux. Une moue de tristesse sur le visage, il la déposa dans l'encoche de la formation.
 
 Duanmu marmonna: « Cette foutue formation est faite pour dévorer les pierres spirituelles. Une fois le transfert achevé, cette pierre spirituelle de qualité supérieure sera détruite. »
 
@@ -76,7 +76,7 @@ Duanmu Ji fixa Wang Lin et grommela: « Ce réseau de transfert n'est pas ce que
 
 Duanmu Ji traça plusieurs sceaux et les projeta vers le réseau de transfert. La pierre de qualité supérieure au centre de la formation commença à luire. Peu après, les innombrables symboles s'illuminèrent tour à tour. Une fois que tous les symboles furent activés, la pierre de qualité supérieure vola en éclats.
 
-L'ensemble du réseau de transfert se mit soudain à vibrer, libérant une immense quantité d'énergie spirituelle. Cette énergie devint presque solide et se propagea comme un vent violent, emportant le brouillard dans son sillage. Bientôt, un gigantesque vortex d'énergie spirituelle apparut, grandissant de plus en plus.
+L'ensemble du réseau de transfert se mit soudain à vibrer, libérant une immense quantité d'énergie spirituelle. Cette énergie devint presque solide et se propagea comme un vent violent, emportant le brouillard dans son sillage. Bientôt, un gigantesque vortex d'énergie spirituelle, large d'une trentaine de mètres, apparut, grandissant de plus en plus.
 
 Une scène aussi saisissante força Wang Lin à prendre une profonde inspiration alors qu'il fixait l'encoche au centre du réseau. La pierre de qualité supérieure n'était plus qu'une poussière emportée par les vents.
 
@@ -94,7 +94,7 @@ Il fallut longtemps pour que le lieu retrouve son calme. Le brouillard qui avait
 
 La Mer des Démons était vaste. Entre les mers intérieure et extérieure s'étendait une zone de brouillard rouge. Si un cultivateur ne possédait pas un niveau de culture assez élevé, son corps se décomposerait dès le premier contact avec ce brouillard. Son âme ne pourrait non plus s'en échapper et resterait à jamais piégée dans cette brume écarlate.
 
-Ce brouillard rouge constituait une barrière naturelle entre les deux mers. Cette frontière n'était franchissable qu'un seul jour, lorsque le brouillard se transformait en mer.
+Ce brouillard rouge constituait une barrière naturelle entre les deux mers. Cette frontière n'était franchissable qu'un seul jour par an, lorsque le brouillard se transformait en mer.
 
 La plupart des cultivateurs souhaitant entrer ou sortir de la mer intérieure choisissaient de traverser précipitamment ce jour-là.
 

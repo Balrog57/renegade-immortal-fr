@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 745 - Very Good, Very Good
 slug: très-bien-très-bien
 ---
-Le regard de Wang Lin se posa sur les pieds de Li Yuan. Au moment où ceux-ci touchèrent le sol, Wang Lin ressentit une étrange sensation. C'était comme si cet homme et l'épée de fer n'avaient fait qu'un.
+Le regard de Wang Lin se posa sur les pieds de Li Yuan. Au moment où ceux-ci se posèrent sur l'épée de fer, Wang Lin ressentit une étrange sensation. C'était comme si cet homme et l'épée de fer n'avaient fait qu'un.
 
 Wang Lin détourna les yeux, puis rétracta son Sens Divin. Il fit un pas en avant et s'élança dans le vide. Dès qu'il y pénétra, ce fut comme s'il avait franchi une frontière; le grondement du tonnerre sembla alors décupler.
 
-La femme nommée Ge poussa un soupir intérieur: « Ce trésor magique est un héritage familial. Bien qu'il n'ait aucun pouvoir offensif, il est inégalé pour résister au tonnerre! » Portée par cette pensée, l'épée volante se mit à glisser le long de la chaîne de tonnerre. Les éclairs émanant de la chaîne ne semblaient avoir aucune prise sur l'arme.
+La femme nommée Ge eut un reniflement dédaigneux intérieur: « Ce trésor magique est un héritage familial. Bien qu'il n'ait aucun pouvoir offensif, il est inégalé pour résister au tonnerre! » Portée par cette pensée, l'épée volante se mit à glisser le long de la chaîne de tonnerre. Les éclairs émanant de la chaîne ne semblaient avoir aucune prise sur l'arme.
 
 La femme nommée Ge observa Li Yuan en fronçant les sourcils. L'endroit où il se tenait lui inspirait un profond malaise. Cependant, ce n'était pas le moment de s'enquérir de la situation. Bien que l'épée ne fût pas très rapide, elle restait stable tandis qu'elle suivait la chaîne de tonnerre.
 

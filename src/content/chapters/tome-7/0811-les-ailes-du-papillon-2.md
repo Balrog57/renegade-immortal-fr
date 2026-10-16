@@ -76,7 +76,7 @@ Après cela, Wang Lin se retourna; ses deux doigts formèrent une épée et tran
 
 Cette lance était d'un blanc pur et exhalait une riche énergie spirituelle céleste. Il laissa échapper un rire en frappant le fragment avec sa lance.
 
-Un fracas retentit et l'homme aux robes bleues fut projeté en arrière. Son regard devint sérieux, mais le fragment fut également repoussé de plusieurs dizaines de pieds.
+Un fracas retentit et l'homme aux robes bleues fut projeté en arrière. Son regard devint sérieux, mais le fragment fut également repoussé d'une dizaine de mètres.
 
 Alors que l'homme d'âge mûr reculait, il cria: « Misérables esclaves, attaquez avec moi! »
 
@@ -106,7 +106,7 @@ Alors que les impacts se succédaient, l'homme fut constamment repoussé. À cha
 
 Ses yeux étaient emplis d'horreur et même d'une trace de terreur. Il ne pouvait absolument pas résister. C'était comme si tout ce qui se trouvait dans son corps ne lui appartenait plus, scellé par une puissance mystérieuse.
 
-Le papillon réapparut une fois de plus et l'homme fut de nouveau projeté en arrière. Cela continua jusqu'à ce qu'il soit repoussé à plus de 10 000 pieds. La peur dans ses yeux avait atteint son paroxysme.
+Le papillon réapparut une fois de plus et l'homme fut de nouveau projeté en arrière. Cela continua jusqu'à ce qu'il soit repoussé à plus de 3 000 mètres. La peur dans ses yeux avait atteint son paroxysme.
 
 Dans un ultime effort, l'homme aux robes bleues siffla: « Foudre, explose! » Un grondement sourd émana de son corps et sa main droite se brisa, libérant une force destructrice.
 

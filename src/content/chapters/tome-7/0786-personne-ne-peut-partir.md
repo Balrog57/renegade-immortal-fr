@@ -34,7 +34,7 @@ Les cinq fissures spatiales libérèrent un vent glacial qui figea l'âme origin
 
 Un éclat de lumière rouge s'épanouit comme un éventail et enveloppa instantanément les cinq fissures. Aux yeux de Wang Lin, ces déchirures semblèrent reprendre leur forme initiale pour se dissiper rapidement. Au final, il ne resta que cinq gouttes de sang rouge sombre.
 
-Après un instant, Wang Lin pointa le doigt en avant et cria: « Arrête! »
+Après un instant, Wang Lin pointa le doigt en avant et cria: « Figé! »
 
 Simultanément, le Tatouage d'Os de Bête sur le dos de sa main droite apparut comme s'il entourait sa main. Une lueur fantomatique jaillit du tatouage, libérant une aura maléfique.
 
@@ -50,7 +50,7 @@ Ce membre était tout simplement trop singulier. Dès qu'il l'avait vu, il n'ava
 
 La Coupe Céleste projeta un rayon d'énergie de l'épée. En tombant, elle sembla trancher les lois mêmes du monde, faisant trembler violemment le vide. Une longue fissure spatiale apparut soudainement et fonça droit sur le bras sectionné.
 
-Le membre s'arrêta net en plein vol, commença à former un sceau et le pressa contre la fissure spatiale. Cela provoqua un fracas immédiat, et tout ce qui se trouvait dans un rayon de mille pieds autour du bras sembla s'effondrer.
+Le membre s'arrêta net en plein vol, commença à former un sceau et le pressa contre la fissure spatiale. Cela provoqua un fracas immédiat, et tout ce qui se trouvait dans un rayon de 330 mètres autour du bras sembla s'effondrer.
 
 Une lueur froide passa dans les yeux de Wang Lin. D'un geste du doigt, il fit jaillir à nouveau le sceau fragmentaire. Cette fois, la vitesse fut telle qu'il s'abattit instantanément sur le bras sectionné.
 
@@ -76,7 +76,7 @@ Ils ne s'arrêtèrent pas et traversèrent le vide à toute allure. Il ne fallut
 
 Les membres sectionnés s'assemblèrent pour former un corps complet. Cet homme avait une chevelure blanche, un visage balafré de cicatrices hideuses et un corps mutilé par endroits. Son œil droit manquait, ne laissant que l'œil gauche, qui affichait un regard glacial.
 
-« Seigneur Céleste Qing Shui, peu importe la force de votre sceau, il n'a pu vaincre le passage du temps. Vous n'oseriez pas me tuer. Si vous aviez voulu ma mort, pourquoi avoir placé une formation de guérison à l'extérieur de la formation de scellement?! Cependant, je dois vous remercier: sans cette formation, je crains que je n'aurais pas survécu à l'effondrement du Royaume Céleste! »
+« Seigneur Céleste Qing Shui, peu importe la force de votre sceau, il n'a pu vaincre le passage du temps. Vous n'oseriez pas me tuer. Si vous aviez voulu ma mort, pourquoi avoir placé une formation de guérison à l'extérieur de la formation de scellement?! Cependant, je dois vous remercier: sans cette formation, je n'aurais pas survécu à l'effondrement du Royaume Céleste! »
 
 « Qing Shui, puisque je ne suis pas mort, tu ne l'es naturellement pas non plus. À moins que tu ne trouves un autre vortex de scellement laissé par l'ancien Royaume Céleste, tu ne pourras plus jamais me sceller! » L'homme aux cheveux blancs arborait une expression féroce alors qu'il riait sauvagement avant de s'élancer dans le vide.
 

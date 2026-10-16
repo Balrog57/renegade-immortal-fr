@@ -38,7 +38,7 @@ Wang Lin haleta et fixa la veine métallique située non loin.
 
 « Si j'avais tenté de prendre cette veine, je crains que je n'eusse immédiatement réveillé ce Serpent aux yeux de lune. Je serais alors mort sur le coup. Il est peu probable qu'il s'éveille complètement, mais il lui suffirait d'un instant de conscience pour tuer quiconque tenterait de voler son os. » Wang Lin comprit enfin pourquoi aucun puissant cultivateur n'était venu tenter sa chance. Ce n'était pas par manque de désir, mais par manque d'audace.
 
-« Je pense que d'autres sont venus ici auparavant, mais ils ont tous péri. D'une certaine manière, l'homme de la famille Hua a été très intelligent. Il n'a prélevé qu'une petite partie en surface avant de partir immédiatement. S'il avait pris davantage, il aurait suffisamment stimulé le Serpent aux yeux de lune pour l'éveiller. La chance a peut-être aussi joué. Pour n'importe qui d'autre, la moindre incision aurait pu provoquer son réveil. »
+« Je pense que d'autres sont venus ici auparavant, mais ils ont tous péri. D'une certaine manière, l'homme de la famille Huan a été très intelligent. Il n'a prélevé qu'une petite partie en surface avant de partir immédiatement. S'il avait pris davantage, il aurait suffisamment stimulé le Serpent aux yeux de lune pour l'éveiller. La chance a peut-être aussi joué. Pour n'importe qui d'autre, la moindre incision aurait pu provoquer son réveil. »
 
 Des centaines de pensées traversèrent l'esprit de Wang Lin. Il savait qu'il devait quitter les lieux sans plus tarder, mais en regardant la veine, il ressentit une immense frustration à l'idée de repartir les mains vides.
 
@@ -108,7 +108,7 @@ Des ondes de fluctuations frappèrent l'atmosphère tandis qu'une pression quasi
 
 Son expression était aussi calme que l'eau alors qu'elle se rapprochait lentement.
 
-« Frère Sun, frère Zhao, nous avons passé la majeure partie de nos vies à combattre. Maintenant que notre avenir est scellé, pourquoi ne pas donner tout ce qu'il nous reste? Même si nous mourons, nous mourrons sans regrets! » Bien que sa voix fût basse, elle vibrait d'une intention de combat. En levant les yeux vers le ciel, ses pupilles brûlaient d'un éclat ardent.
+L'ancêtre de la famille Ran dit: « Frère Sun, frère Zhao, nous avons passé la majeure partie de nos vies à combattre. Maintenant que notre avenir est scellé, pourquoi ne pas donner tout ce qu'il nous reste? Même si nous mourons, nous mourrons sans regrets! » Bien que sa voix fût basse, elle vibrait d'une intention de combat. En levant les yeux vers le ciel, ses pupilles brûlaient d'un éclat ardent.
 
 « Frère Ran est un héros. Puisque tu brûles ton âme, laisse-moi t'accompagner! » Carefree Sanren laissa échapper un rire, et une flamme ardente apparut également dans ses yeux.
 

@@ -8,7 +8,7 @@ slug: situ-nan
 ---
 « Le Pays de Xue Yu... » Wang Lin sortit calmement de la vallée et vit un jeune homme vêtu de bleu l'attendre à l'extérieur. Bien qu'il ne fût pas beau, sa robe bleue lui donnait un air glacial.
 
-Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer une brise froide capable d'emporter toute chaleur.
+Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer, dans un rayon de 330 mètres, une brise froide capable d'emporter toute chaleur.
 
 En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit: « Ceng Niu, remets-moi l'éventail à plumes. »
 
@@ -72,7 +72,7 @@ Wang Lin fronça les sourcils. À cet instant précis, un rugissement jaillit de
 
 Un nuage de gaz noir, se mouvant comme une flamme, s'échappa du bras qui flottait dans les airs.
 
-La main droite de Wang Lin forma un sceau et créa un vent étrange qui repoussa le gaz noir, révélant ce qu'il cachait.
+La main droite de Wang Lin forma un sceau et créa un vent étrange qui repoussa le gaz noir d'environ un mètre, révélant ce qu'il cachait.
 
 Un bras desséché flottait là, et le gaz noir émanait de lui.
 
@@ -106,7 +106,7 @@ C'était une sphère de flammes bleu foncé. Au lieu de dégager de la chaleur, 
 
 Dès l'apparition de la flamme bleue, l'énergie froide qui venait d'envahir Wang Lin disparut. Même l'aura environnante fut absorbée par la flamme bleue.
 
-La silhouette noire s'arrêta net. Ses yeux fantomatiques étincelèrent. Il fixa la flamme de glace et dit d'une voix rauque: « Flamme de Glace des Enfers... Même le Dao des Enfers que j'ai laissé à mon disciple ne permet pas de cultiver une flamme aussi pure. Où as-tu obtenu la Méthode d'Ascension des Enfers?! »
+La silhouette noire s'arrêta net. Ses yeux fantomatiques étincelèrent. Il fixa la flamme de glace et dit d'une voix rauque: « Flamme de Glace des Enfers... Même le Dao des Enfers qu'a laissé derrière lui mon petit-disciple ne permet pas de cultiver une flamme aussi pure. Où as-tu obtenu la Méthode d'Ascension des Enfers?! »
 
 Wang Lin recula rapidement. En quelques enjambées, il put se replier dans le périmètre de protection de la pagode et s'arrêta.
 
@@ -116,7 +116,7 @@ Wang Lin sentit son cuir chevelu s'engourdir. Cette voix lui était trop famili�
 
 « Peu importe comment tu l'as obtenue, tu dois mourir! Je suis Situ Nan! » La silhouette chargea avec acharnement vers la pagode, visant la tête de Wang Lin. Ce dernier réprima le choc dans son cœur et hurla: « Recule! »
 
-Le domaine de Zhou Yi jaillit soudainement de la pagode et la silhouette fut frappée par une force puissante, s'arrêtant à peine à trois pieds de Wang Lin. La figure laissa échapper un rugissement de frustration avant d'être projetée en arrière.
+Le domaine d'Ascendant de Zhou Yi jaillit soudainement de la pagode et la silhouette fut frappée par une force puissante, s'arrêtant à peine à une dizaine de centimètres de Wang Lin. La figure laissa échapper un rugissement de frustration avant d'être projetée en arrière.
 
 Au moment où elle fut repoussée, le gaz noir disparut, ne laissant que le bras. Celui-ci s'empara de Liao Fan, stupéfait, et disparut.
 

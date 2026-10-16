@@ -24,7 +24,7 @@ Les épées du trésor qui fonçaient sur lui manquèrent leur cible, mais elles
 
 On aurait dit que seuls les bourdonnements des épées subsistaient en ce monde; ces vibrations ébranlaient le ciel et la terre.
 
-Ce son était si puissant que tous les cultivateurs situés dans un rayon de dizaines de milliers de kilomètres l'entendirent. Nombreux furent ceux qui volèrent vers cette zone pour découvrir l'origine du tumulte.
+Ce son était si puissant que tous les cultivateurs situés dans un rayon de plus de cent mille kilomètres l'entendirent. Nombreux furent ceux qui volèrent vers cette zone pour découvrir l'origine du tumulte.
 
 Chaque épée libérait un bourdonnement strident et une aura glaciale. Une fois toutes réunies, elles semblaient avoir formé un ancien immortel de l'épée. Des rayons d'énergie tranchante passèrent derrière Wang Lin.
 
@@ -74,13 +74,13 @@ Pendant que Wang Lin s'échappait, il dut ralentir car, après avoir quitté la 
 
 En regardant au loin, il aperçut une montagne émettant une lueur arc-en-ciel. Elle ressemblait trait pour trait à la montagne spirituelle que Situ Nan lui avait décrite.
 
-Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à 33 kilomètres de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres: la lame en forme de demi-lune venait d'en sortir.
+Presque instantanément après son arrêt, un rugissement tonitruant déferla depuis le lointain. Wang Lin, déjà sur ses gardes, se téléporta immédiatement à 3,3 kilomètres de là. Dans un fracas, la montagne où il se trouvait s'effondra. Un éclair bleu jaillit des décombres: la lame en forme de demi-lune venait d'en sortir.
 
 Simultanément, un message divin émana de la lame:
 
 « Laisse-le... ici! »
 
-Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à 33 kilomètres, sa manche avait disparu et une blessure béante était apparue.
+Le corps de Wang Lin disparut de nouveau, mais cette fois, il ressentit une vive douleur au bras gauche. Lorsqu'il réapparut à 3,3 kilomètres, sa manche avait disparu et une blessure béante était apparue.
 
 « Quelle vitesse incroyable! » Après avoir réapparu, Wang Lin se téléporta à nouveau. Il n'osait pas s'éloigner trop loin, car s'il se retrouvait près d'une faille, la situation deviendrait périlleuse.
 
@@ -88,7 +88,7 @@ En conséquence, chaque fois que Wang Lin se téléportait, un éclair bleu trav
 
 La lame en forme de demi-lune semblait avoir sombré dans la folie pour traquer Wang Lin.
 
-Dans un éclair, Wang Lin se téléporta à dix mille pieds et se déplaça immédiatement sur le côté. Une faille apparut silencieusement là où il se trouvait l'instant d'avant.
+Dans un éclair, Wang Lin se téléporta à cinquante kilomètres et se déplaça immédiatement sur le côté. Une faille apparut silencieusement là où il se trouvait l'instant d'avant.
 
 Juste après sa téléportation, un éclat bleu balaya son ancienne position. Tout sur la trajectoire de cette lumière fut détruit: montagnes, terre, et même certaines des failles qui s'étaient formées furent pulvérisées.
 
@@ -106,7 +106,7 @@ La lame devint encore plus rapide, au point que Wang Lin ne parvint bientôt plu
 
 « Je dois en faire mienne! » Les yeux de Wang Lin s'illuminèrent alors qu'il sortait l'épée céleste. D'un geste sec, il força Xu Liguo à sortir de l'épée.
 
-« Xu Liguo, supporte cela un moment, comme tu l'as fait avec l'ancêtre du Clan des Démons Géants. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai te sauver! » Sur ce, Wang Lin agita la main et Xu Liguo s'envola dans les airs.
+« Xu Liguo, supporte cela un moment, fais comme si c'était l'ancêtre du Clan des Démons Géants. Une fois que j'aurai récupéré mon fragment d'âme, je reviendrai te sauver! » Sur ce, Wang Lin agita la main et Xu Liguo s'envola dans les airs.
 
 Xu Liguo poussa un cri et s'apprêtait à s'enfuir quand la lame en demi-lune le rattrapa et disparut avec lui.
 

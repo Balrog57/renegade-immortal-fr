@@ -26,11 +26,11 @@ Il frappa son sac de rangement pour dévorer une grande quantité de pilules, pu
 
 L'intention meurtrière qu'il avait contenue en devenant mortel explosa à nouveau sous la stimulation des Fruits d'Ascension Céleste!
 
-Le démon qui avait fait trembler la Mer de l'Avarice et Zhao venait de s'éveiller!
+Le démon qui avait fait trembler la Mer des Démons et le Pays de Zhao venait de s'éveiller!
 
 Le corps de Wang Lin fendit le ciel telle une météorite enflammée, fonçant droit vers la source du reniflement glacial qu'il percevait vaguement.
 
-Un autre renflement glacial émana de la tour située sur l'ancien champ de bataille. Ce souffle était chargé de mépris et d'une intention de meurtre.
+Un autre reniflement glacial émana de la tour située sur l'ancien champ de bataille. Ce souffle était chargé de mépris et d'une intention de meurtre.
 
 Le choc atteignit Wang Lin, le forçant à cracher une nouvelle et large bouchée de sang. Ses yeux devinrent encore plus égarés par la folie alors qu'il frappait son sac de rangement; près de 100 000 Fruits d'Ascension Céleste l'entourèrent aussitôt.
 
@@ -46,13 +46,13 @@ Puis, d'un geste, il sortit une cruche à vin de son sac de rangement. C'était 
 
 Dès qu'il l'eut sortie, il en but quatre!
 
-Aussitôt le liquide céleste introduit dans son organisme, l'énergie spirituelle céleste parcourut ses méridiens comme un tonnerre déchaîné. Une quantité inimaginable d'énergie spirituelle célese circulait en lui, au point qu'il risquait de ne pouvoir la contenir! Si ses méridiens n'avaient pas été renforcés lors de son entrée au stade Ascendant et raffinés par le démon ancien, il n'aurait certainement pas pu supporter cela!
+Aussitôt le liquide céleste introduit dans son organisme, l'énergie spirituelle céleste parcourut ses méridiens comme un tonnerre déchaîné. Une quantité inimaginable d'énergie spirituelle céleste circulait en lui, au point qu'il risquait de ne pouvoir la contenir! Si ses méridiens n'avaient pas été renforcés lors de son entrée au stade Ascendant et raffinés par le démon ancien, il n'aurait certainement pas pu supporter cela!
 
 Wang Lin semblait avoir perdu la raison. Ses cheveux flottaient sauvagement dans l'air tandis qu'il chargeait comme un homme dément.
 
 Une lueur spectrale brilla à l'intérieur de l'armure dans la tour noire, et un message divin résonna:
 
-« Serait-il devenu fou?! S'il vient vraiment ici et endommage l'armure qui me protège... il ne fera pas long feu! »
+« Serait-il devenu fou?! S'il vient vraiment ici et endommage l'armure qui me protège... il n'arrivera jamais jusqu'ici! »
 
 Un rayon d'intention meurtrière jaillit de la tour et disparut dans le vide.
 
@@ -96,7 +96,7 @@ Le paysage ressemblait à l'enfer! C'était une vision aussi étrange qu'extrêm
 
 Leurs morts générèrent des filaments de gaz blanc qui rattrapèrent Wang Lin et pénétrèrent dans son corps. Ces essences aidèrent rapidement à réparer son corps meurtri et son âme originelle.
 
-Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de la Grande Lou s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre ses frères d'armes!
+Dans le Pays du Démon de Feu, Zi Shu était monté en selle. Vêtu d'une robe bleue et portant une épée géante dans le dos, il fixait froidement l'horizon. Derrière lui se trouvaient 30 000 soldats démons. Les Douze Épées de la Secte de l'Épée Da Lou s'étaient dispersées, et il en faisait partie. Sa culture atteignait le sommet de la phase tardive de la Transformation de l'Âme. Ayant réussi à obtenir le poste de commandant en chef, il menait ses troupes pour rejoindre son frère aîné de la secte!
 
 Soudain, son expression changea lorsqu'il vit une météorite enflammée fendre le ciel. Ses yeux se plissèrent pour l'observer attentivement, puis son visage se décomposa.
 
@@ -108,7 +108,7 @@ Ce qui le terrifia davantage fut de constater que partout où l'individu passait
 
 Wang Lin ne remarqua même pas les soldats démons; ses yeux n'étaient plus tournés que vers le combat et la mort!
 
-À cet instant, un renflement glacial, porteur d'intention meurtrière et d'une pointe d'anxiété, retentit à nouveau. Cette fois, il fut encore plus puissant, faisant trembler Wang Lin qui cracha une nouvelle bouchée de sang.
+À cet instant, un reniflement glacial, porteur d'intention meurtrière et d'une pointe d'anxiété, retentit à nouveau. Cette fois, il fut encore plus puissant, faisant trembler Wang Lin qui cracha une nouvelle bouchée de sang.
 
 Son corps était sur le point de se briser et son âme originelle allait se dissiper. Cependant, toute la force vitale absorbée en chemin nourrissait lentement son corps et son âme, leur permettant de se régénérer!
 
@@ -136,7 +136,7 @@ Zi Shu fut pris de tremblements; son corps se dessécha instantanément, entraî
 
 Wang Lin ne marqua aucun temps d'arrêt et s'engouffra dans la masse des 30 000 soldats démons. Un massacre effréné commença! Le sang macula la terre et les âmes emplirent le ciel!
 
-Des filaments de sceaux de vie continuaient d'apparaître et de pénétrer son corps! Une demi-durée d'encens plus tard, le sol était jonché de cadavres et de sang. Une fois le carnage terminé, Wang Lin s'envola vers l'horizon.
+Des filaments de sceaux de vie continuaient d'apparaître et de pénétrer son corps! Un quart d'heure plus tard, le sol était jonché de cadavres et de sang. Une fois le carnage terminé, Wang Lin s'envola vers l'horizon.
 
 Il possédait désormais 30 000 sceaux de vie, chacun porteur d'une vitalité infinie. À mesure que chaque marque disparaissait, son corps se rétablissait un peu plus. Les sceaux se dissipaient rapidement, mais la régénération de Wang Lin suivait le même rythme.
 

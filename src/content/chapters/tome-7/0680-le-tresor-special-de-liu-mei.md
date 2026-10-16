@@ -58,7 +58,7 @@ La voix de Liu Mei était étrange, imprégnée d'une trace de folie.
 
 Wang Lin restait silencieux. Il était plongé dans un mutisme total, comme si toute vie avait été drainée de son corps pour ne laisser place qu'à une mort infinie.
 
-Il n'y eut pas de choc semblable aux dix mille coups de tonnerre qui avaient explosé en lui lorsqu'il apprit l'espoir de ressusciter Li Muwan. Il n'y eut pas de déchaînement de folie comme face à Teng Huayuan. Il n'y eut qu'une concentration extrême, celle qu'il éprouve face au danger suprême.
+Il n'y eut pas de choc semblable aux cent mille coups de tonnerre qui avaient explosé en lui lorsqu'il apprit l'espoir de ressusciter Li Muwan. Il n'y eut pas de déchaînement de folie comme face à Teng Huayuan. Il n'y eut qu'une concentration extrême, celle qu'il éprouve face au danger suprême.
 
 Wang Lin restait silencieux, d'un silence terrifiant.
 

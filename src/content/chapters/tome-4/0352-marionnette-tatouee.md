@@ -76,13 +76,13 @@ Les chaînes retenant l'esprit bestial disparurent soudainement, mais le lien en
 
 L'esprit bestial fixa avec fureur le vieil homme à la silhouette voûtée. La bête voulait tout dévorer; ce n'était qu'après avoir assouvi cet appétit qu'elle pourrait apaiser sa rage.
 
-L'expression du vieil homme changea instantanément et il s'interrompit. Il toucha rapidement les tatouages sur son corps, qui s'envolèrent soudainement pour léviter à quelques centimètres de sa peau.
+L'expression du vieil homme changea instantanément et il s'interrompit. Il toucha rapidement les tatouages sur son corps, qui s'envolèrent soudainement pour léviter à une dizaine de centimètres de sa peau.
 
 C'est à ce moment précis que l'esprit bestial fondit sur lui en poussant un rugissement, mais il fut stoppé net à une courte distance du vieil homme.
 
 Ce qui l'arrêta, c'étaient divers tatouages brillant d'un éclat sauvage.
 
-Toutefois, le Char de Guerre du Dieu Massacreur était si puissant que le vieil homme fut repoussé sur mille pieds. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de trois à cinq pouces de distance.
+Toutefois, le Char de Guerre du Dieu Massacreur était si puissant que le vieil homme fut repoussé sur trois cent trente mètres. Ses yeux devinrent injectés de sang alors qu'il laissait échapper un rugissement; les tatouages s'écartèrent de son corps, passant de dix à seize centimètres de distance.
 
 L'esprit bestial rugit tout en étant lentement repoussé.
 

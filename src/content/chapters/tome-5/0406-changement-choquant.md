@@ -6,19 +6,19 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 406 - Shocking change
 slug: changement-choquant
 ---
-Wang Lin s'approcha lentement de l'endroit où il se trouvait. Il remarqua immédiatement le retour de Little White et vit le fruit qu'il transportait.
+Wang Lin s'approcha lentement de l'endroit où il se trouvait. Il remarqua immédiatement le retour de Petit Blanc et vit le fruit qu'il transportait.
 
-« Quel bon tigre démoniaque, te sacrifiant ainsi pour ton maître! » Wang Lin regarda Little White.
+« Quel bon tigre démoniaque, te sacrifiant ainsi pour ton maître! » Wang Lin regarda Petit Blanc.
 
-La peur apparut dans les yeux de Little White, mais il resta pourtant devant Zhou Ru en grognant.
+La peur apparut dans les yeux de Petit Blanc, mais il resta pourtant devant Zhou Ru en grognant. Grâce à son niveau de culture, il avait compris depuis plusieurs années qu'une Âme Naissante vivait dans le corps de Zhou Ru, source même de la terreur qui l'avait autrefois saisi.
 
-Zhou Ru caressa la fourrure de Little White et demanda: « Oncle, qu'est-ce qu'un fruit brise-Âme Naissante? »
+Zhou Ru caressa la fourrure de Petit Blanc et demanda: « Oncle, qu'est-ce qu'un fruit brise-Âme Naissante? »
 
 Wang Lin répondit d'une voix lente: « Après avoir mangé le fruit, bien que Wan Er, qui est en toi, ne mourra pas, elle deviendra très faible... »
 
-Zhou Ru fut saisie de stupeur. Elle baissa la tête pour regarder Little White et murmura: « Little White, alors tu es parti chercher ce fruit pour moi. » Elle poussa un soupir et jeta le fruit sur le côté. Celui-ci roula plusieurs fois avant de basculer dans le précipice.
+Zhou Ru fut saisie de stupeur. Elle baissa la tête pour regarder Petit Blanc et murmura: « Petit Blanc, alors tu es parti chercher ce fruit pour moi. » Elle poussa un soupir et jeta le fruit sur le côté. Celui-ci roula plusieurs fois avant de basculer dans le précipice.
 
-Zhou Ru leva la tête vers Wang Lin. « Oncle, ne fais pas de mal à Little White, d'accord? »
+Zhou Ru leva la tête vers Wang Lin. « Oncle, ne fais pas de mal à Petit Blanc, d'accord? »
 
 Wang Lin regarda Zhou Ru. Il hocha la tête, puis partit.
 
@@ -44,7 +44,7 @@ Aucun tatouage ne marquait le corps du vieillard, mais si l'on regardait de prè
 
 Non!
 
-Après un nouvel examen, une autre feuille apparut sous les onze autres. Bien qu'elle ne fût pas totalement éclose, elle s'était entrouverte... à moitié.
+Après un nouvel examen, une autre feuille apparut sous les onze autres. Bien qu'elle ne fût pas totalement éclose, elle s'était entrouverte d'un tiers.
 
 Dès que le vieil homme sortit du gouffre, les cinq épées dans le ciel vrombirent à l'unisson. Deux d'entre elles quittèrent le filet doré et chargèrent vers lui.
 
@@ -112,13 +112,13 @@ Vêtu d'une robe noire et très maigre, ses yeux s'illuminèrent lorsqu'il tourn
 
 Ce vieillard était Chu Yunfei, l'ancêtre Ascendant du stade précoce que tout le Secteur du Jade Céleste respectait.
 
-Le Secteur de l'Âme Terrestre se trouvait dans la partie orientale de Suzaku. Une grotte s'étendait profondément sous le secteur, et à l'intérieur y siégeait un homme d'âge moyen.
+Le Secteur de l'Âme Terrestre se trouvait dans la partie occidentale de Suzaku. Une grotte s'étendait profondément sous le secteur, et à l'intérieur y siégeait un homme d'âge moyen.
 
 Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis qu'il soupirait: « Ce jour est enfin arrivé. Je n'arrive pas à croire que je sois entraîné là-dedans, ah! »
 
 Le dernier secteur de Suzaku était la Secte du Chemin de l'Immortel; pourtant, aucun mouvement ne fut perceptible ici. L'ancêtre Ascendant de ce secteur était très mystérieux. Très peu de gens connaissaient sa demeure ou même son apparence.
 
-Pilu, à la Secte du Raffinement de l'Âme.
+Pilu, à la Secte de l'Affinement de l'Âme.
 
 Du Tian ouvrit les yeux et ricana avant de les refermer une fois de plus.
 
@@ -136,7 +136,7 @@ Cependant, la vitesse de croissance de l'Âme Naissante de Li Muwan avait ralent
 
 Wang Lin savait que cela était dû au fait que Li Muwan avait recouvré une partie de sa conscience. Elle ne voulait pas sacrifier un enfant pour permettre sa propre renaissance.
 
-C'était son choix, et il n'appartenait pas à Wang Lin de décider. Il utilisa son énergie spirituelle pour l'accompagner, permettant à son Âme Naissante de continuer à croître au sein de Zhou Ru.
+C'était son choix, et il n'appartenait pas à Wang Lin de décider. Il utilisa son énergie spirituelle pour contrer ce phénomène, permettant à son Âme Naissante de continuer à croître au sein de Zhou Ru.
 
 « Wan Er, je sais que tu ne veux pas dévorer cet enfant. Crois-moi, je ferai les choses correctement et je ne lui ferai aucun mal. Une fois que tu seras éveillée, nous pourrons la renvoyer à ses parents. Ce que je désire, c'est ton Âme Naissante, pas le corps de cet enfant... »
 

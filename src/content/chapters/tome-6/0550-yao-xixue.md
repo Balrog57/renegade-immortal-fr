@@ -24,11 +24,11 @@ Leurs regards se croisèrent et le cœur de Wang Lin trembla un instant avant de
 
 Le corps du vieil homme tressaillit à son tour et ses yeux brillèrent intensément; il fut profondément stupéfait qu'un simple regard de Wang Lin ait failli provoquer l'effondrement des sceaux qui le scellaient.
 
-Une fois l'intendant apparu, celui-ci fit un pas et se téléporta instantanément à une vingtaine de mètres de Wang Lin. Le vieil homme fit de même.
+Une fois l'intendant apparu, celui-ci fit un pas et se téléporta instantanément à plusieurs dizaines de mètres de Wang Lin. Le vieil homme fit de même.
 
 Le visage émacié de l'intendant ne trahit aucune émotion face aux cadavres jonchant le sol.
 
-Sima Yan s'exclama rapidement: « Seigneur Intendant, le Commandant a tué le chef de régiment Sun sans raison, et a également massacré plus de 500 soldats démons! Tout cela a été vu et entendu par l'assistance! »
+Sima Yan s'exclama rapidement: « Seigneur Intendant, le Commandant a tué le chef de régiment Sun sans raison, et a également massacré 500 soldats démons! Tout cela a été vu et entendu par l'assistance! »
 
 Wang Lin agita sa main droite et un morceau de jade vola vers l'intendant. Ce dernier le réceptionna et, en y injectant son énergie spirituelle démoniaque, diverses images se projetèrent dans son esprit.
 
@@ -52,7 +52,7 @@ Tout aurait été simple si ce nouveau commandant s'était contenté de ne rien 
 
 De plus, à en juger par le niveau de culture du nouveau commandant, même Sima Yan n'aurait pas été de taille s'il avait tenté de s'opposer à lui. Fort de ce constat, beaucoup commencèrent à envisager la voie de la conciliation.
 
-Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa d'un pouce!
+Wang Lin se leva et pressa le sol de sa main droite. Une série de grondements sourds émana soudainement de la terre sous le camp, comme si des dragons en furie s'agitaient dans les profondeurs. À cet instant, le sol de l'ensemble du camp militaire s'affaissa de 3,3 centimètres!
 
 La terre mise à nu se souleva brusquement sous les pieds de Wang Lin!
 
@@ -62,7 +62,7 @@ En un instant, une pagode de terre apparut au milieu du camp militaire.
 
 C'était une construction à deux étages qui, bien que rudimentaire, dégageait une aura de majesté.
 
-D'un simple mouvement de la main, Wang Lin avait été capable d'arracher des pans entiers de terre à tout le camp pour ériger cette pagode. Cela ne choqua pas seulement Sima Yan et les chefs de régiment, mais aussi les 9 000 soldats démons.
+D'un simple mouvement de la main, Wang Lin avait été capable de prélever une couche de terre de 3,3 centimètres sur tout le camp pour ériger cette pagode. Cela ne choqua pas seulement Sima Yan et les chefs de régiment, mais aussi les 9 000 soldats démons.
 
 « Vous pouvez tous partir! » Après avoir lancé cet ordre, Wang Lin se détourna et pénétra dans la pagode.
 
@@ -94,7 +94,7 @@ En contemplant la boussole, elle afficha une expression d'hésitation.
 
 Les sourcils délicats de Yao Xixue se froncèrent tandis qu'elle méditait, boussole en main.
 
-« Lorsque Père, l'Omniscient et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, celui-ci n'avait pas eu le temps d'explorer les lieux avant de s'enfoncer profondément dans la Terre des Esprits Démoniaques avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
+« Lorsque Père, l'Omniscient et son entourage sont venus ici il y a de nombreuses années, ils ont découvert cet endroit grâce à l'un des Empereurs Démons. La dernière fois, Père n'avait pas eu le temps d'explorer les lieux avant de partir pour l'Abîme des Marées avec le reste du groupe. Après des années d'analyse, il est sûr à 60 % que ce lieu est réel... »
 
 « Peu importe, j'y vais une dernière fois. Si je ne peux toujours pas entrer, je devrai attendre d'atteindre le stade Ascendant! Après tout, j'ai déjà consommé trois des Pilules de l'Âme Sanguine créées par Père lors de mes trois précédentes tentatives. Il ne m'en reste que six. Je vais devoir rester ici encore longtemps, il vaut mieux ne pas les gaspiller. Une seule Pilule de l'Âme Sanguine représente une autre vie! »
 

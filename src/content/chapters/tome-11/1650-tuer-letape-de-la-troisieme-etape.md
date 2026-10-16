@@ -32,7 +32,7 @@ Les 300 ombres d'âmes originelles ouvrirent lentement les yeux, regardant autou
 
 « Qui est-ce? Quel cultivateur de la troisième étape est venu au Clan des Ténèbres? Ce vieil homme est le patriarche du Clan des Ténèbres; j'ignore ce que j'ai pu faire pour offenser l'Aîné. Je vous en prie... » L'homme chauve était livide et terrifié. Son cœur battait la chamade, saisi d'une peur mortelle.
 
-L'autre partie n'avait émis qu'un simple renflement, mais cela avait suffi à briser ses bras qui canalisaient un sortilège. Son esprit venait également de subir un choc violent. L'énergie et le sang à l'intérieur de son corps étaient en plein chaos et son âme originelle était au bord de l'effondrement.
+L'autre partie n'avait émis qu'un simple reniflement, mais cela avait suffi à briser ses bras qui canalisaient un sortilège. Son esprit venait également de subir un choc violent. L'énergie et le sang à l'intérieur de son corps étaient en plein chaos et son âme originelle était au bord de l'effondrement.
 
 Étant au cinquième niveau de la Calamité Céleste, il reconnut immédiatement qu'il faisait face à un cultivateur de la troisième étape qu'il ne pouvait offenser. Cependant, il ne comprenait pas quelle offense il avait pu commettre pour provoquer une telle punition.
 
@@ -88,7 +88,7 @@ Un fracas assourdissant retentit et de nouvelles fissures lacérèrent le boucli
 
 « Vous m'avez délibérément attiré ici, vous cachiez votre culture! » La puissance de l'impact permit à l'homme de ressentir clairement l'aura terrifiante émanant du corps de Wang Lin. Son cœur battait sauvagement et toute pensée d'attaquer disparut de son esprit. Il ne voulait qu'une chose: s'échapper immédiatement.
 
-Cependant, puisqu'il avait été attiré ici, Wang Lin ne lui accorderait aucune chance. Wang Lin laissa échapper un renflement froid et leva la main. Son coup retomba une fois de plus, chargé de karma. Il frappa le bouclier qui s'effondra instantanément. Une aura fut alors extraite du bouclier et de l'homme d'âge moyen.
+Cependant, puisqu'il avait été attiré ici, Wang Lin ne lui accorderait aucune chance. Wang Lin laissa échapper un reniflement froid et leva la main. Son coup retomba une fois de plus, chargé de karma. Il frappa le bouclier qui s'effondra instantanément. Une aura fut alors extraite du bouclier et de l'homme d'âge moyen.
 
 L'homme était livide. Après l'effondrement de son bouclier, il recula une fois encore, le regard sombre. C'était pour lui une calamité de vie ou de mort, et il craignait de ne pouvoir s'en sortir. À cet instant, il serra les dents et renonça à la fuite. Ses mains formèrent un sceau qu'il porta entre ses sourcils, provoquant l'apparition d'une faille. C'était le monde de la Flamme Joss fusionné avec son propre corps!
 

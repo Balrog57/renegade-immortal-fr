@@ -54,7 +54,7 @@ Wang Lin réfléchit un instant puis acquiesça. Il voulait voir de ses propres 
 
 Le vieil homme s'apprêtait à parler, quand soudain un cri retentit parmi la foule dans le ciel.
 
-« L'Ancêtre ne peut pas emmener cet individu au Fourneau Yin Mystérieux! » Cette voix, semblable au tonnerre, résonna à travers les cieux. Un homme d'environ trois mètres de haut s'avança à travers le vide.
+« L'Ancêtre ne peut pas emmener cet individu au Fourneau Yin Mystérieux! » Cette voix, semblable au tonnerre, résonna à travers les cieux. Un homme d'environ 3,3 mètres de haut s'avança à travers le vide.
 
 Le haut de son corps était recouvert de tatouages qui se propageaient pour presque tout masquer; même son cou et son visage étaient presque entièrement recouverts par ces marques.
 
@@ -70,13 +70,13 @@ Le vieil homme à côté de Wang Lin s'écria soudainement: « Ta Shan, montre u
 
 Les yeux de l'homme costaud devinrent glacials. Il fixa le vieil homme et ricana: « Ancêtre, vous êtes vieux; la pensée des Célestes vous a-t-elle rendu fou? Il est fort probable que les Célestes n'existent pas et que tous les récits laissés par nos ancêtres soient des fables. S'ils existaient, pourquoi notre clan n'en aurait-il vu aucun depuis d'innombrables années?! »
 
-Le visage du vieil homme s'assombrit et il hurla: « Tais-toi! Le Clan Immortel Élu est le messager des Célestes. Si les Célestes n'existent pas, comment notre clan pourrait-il exister?! De plus, le jade céleste du Roi Céleste est là; oses-tu douter de lui?! »
+Le visage du vieil homme s'assombrit et il hurla: « Tais-toi! Le Clan Immortel Élu est le messager des Célestes. Si les Célestes n'existent pas, comment notre clan pourrait-il exister?! De plus, le décret du Roi Céleste est là; oses-tu douter de lui?! »
 
 « Douter? Ce soi-disant Roi Céleste n'est qu'un résidu de Sens Divin laissé par une puissance passée. Comment cela pourrait-il me convaincre? Plutôt que de croire en un Sens Divin abandonné il y a des millénaires, je préfère croire en ma propre force! » L'homme costaud serra le poing droit, le regard plein d'assurance.
 
 « Hérésie! » Le corps du vieil homme tremblait de rage, les dents serrées. « Toi... »
 
-« Et alors si c'est de l'hérésie?! Célestes ou non, mon clan est enfermé dans la Bête du Néant depuis des éternités à garder le Fourneau Yin Mystérieux selon les instructions du jade céleste, et qu'avons-nous reçu en retour? Rien d'autre que des bêtes de brume surgissant du fourneau et la mort de nos semblables! Où étaient les Célestes quand ces bêtes massacraient mon clan? Ancêtre, ne parle plus jamais des Célestes. Même si cet homme est réellement un Céleste, aujourd'hui, moi, Ta Shan, je tuerai un Céleste! »
+« Et alors si c'est de l'hérésie?! Célestes ou non, mon clan est enfermé dans la Bête du Néant depuis des éternités à garder le Fourneau Yin Mystérieux selon les instructions du décret céleste, et qu'avons-nous reçu en retour? Rien d'autre que des bêtes de brume surgissant du fourneau et la mort de nos semblables! Où étaient les Célestes quand ces bêtes massacraient mon clan? Ancêtre, ne parle plus jamais des Célestes. Même si cet homme est réellement un Céleste, aujourd'hui, moi, Ta Shan, je tuerai un Céleste! »
 
 Alors qu'il parlait, l'homme tourna brusquement son regard glacial vers Wang Lin. Il fit un pas en avant, apparut soudainement devant lui et lança un coup de poing.
 
@@ -84,4 +84,4 @@ Alors qu'il parlait, l'homme tourna brusquement son regard glacial vers Wang Lin
 
 « Céleste, déploie ton pouvoir céleste et montre-moi pourquoi tu es digne de ce nom! »
 
-Le regard de Wang Lin était d'une froideur absolue. Il connaissait bien le Clan Immortel Abandonné: cet homme n'était manifestement pas un Chaman, mais un adepte spécialisé dans le renforcement du corps.
+Le regard de Wang Lin était d'une froideur absolue. Il connaissait bien le Clan Immortel Abandonné: cet homme n'était manifestement pas un maître des talismans, mais un adepte spécialisé dans le renforcement du corps.

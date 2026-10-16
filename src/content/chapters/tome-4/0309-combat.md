@@ -20,13 +20,13 @@ L'empreinte traversa les airs comme un éclair.
 
 La silhouette qui émergea de la formation était Wang Lin. Dès son apparition, il sentit le danger; il frappa aussitôt le sol du pied pour briser la formation et se protégea derrière un nuage de fumée verte tout en reculant. D'un revers de la main droite, il lança le piège à bêtes. Dans un rugissement, une boule de foudre surgit et fonça vers l'empreinte.
 
-Simultanément, Wang Lin agita la main et le drapeau de restriction apparut dans sa paume. Un gaz de restriction emplit la zone de dix mètres autour de lui alors que son regard se verrouillait sur Rouge Papillon.
+Simultanément, Wang Lin agita la main et le drapeau de restriction apparut dans sa paume. Une multitude de gaz de restriction jaillit en rugissant, dont le grondement porta à plus de dix kilomètres, tandis que Wang Lin, à l'intérieur, verrouillait son regard sur Rouge Papillon.
 
 « Allez! »
 
 Sous l'ordre de Wang Lin, le gaz de restriction se mua en dragons qui chargèrent sans crainte, la gueule béante et féroce.
 
-Le visage de Rouge Papillon devint de plus marbre alors qu'elle frappait le sol du pied pour s'envoler en arrière. En même temps, elle agita sa main droite et une sculpture de glace apparut. Cette œuvre ressemblait à la sculpture mi-humaine, mi-serpent d'autrefois, si ce n'est que celle-ci avait les yeux clos. À l'instant où la sculpture se matérialisa, une lumière bleue jaillit de ses paupières closes.
+Le visage de Rouge Papillon devint froid alors qu'elle frappait le sol du pied pour s'envoler en arrière. En même temps, elle agita sa main droite et une sculpture de glace apparut. Cette œuvre ressemblait à la sculpture mi-humaine, mi-serpent d'autrefois, si ce n'est que celle-ci avait les yeux clos. À l'instant où la sculpture se matérialisa, une lumière bleue jaillit de ses paupières closes.
 
 Bang
 
@@ -46,13 +46,13 @@ Wang Lin s'élança dans les airs. À cet instant, il ressemblait à un dieu dé
 
 « Dévorez! »
 
-D'un seul mot, les âmes errantes devinrent vicieuses et chargèrent sans peur vers Rouge Papillon. La lumière bleue n'eut que peu d'effet sur elles; après tout, les âmes errantes étaient déjà mortes et possédaient une résistance naturelle aux sorts.
+D'un seul mot, plus de dix mille âmes errantes devinrent des spectres féroces et chargèrent sans peur vers Rouge Papillon. La lumière bleue n'eut que peu d'effet sur elles; après tout, les âmes errantes étaient déjà mortes et possédaient une résistance naturelle aux sorts.
 
 Chi Hu réagit enfin. Il fronça les sourcils et cria: « Arrêtez! »
 
 L'expression de Rouge Papillon changea. Elle ricana en reculant rapidement. Les âmes errantes déferlèrent comme une marée, la poursuivant de près.
 
-Wang Lin déchaîna son intention de tuer; il agita son drapeau de restriction et une douzaine de dragons supplémentaires se formèrent. Ils fusionnèrent pour devenir un immense javelot qui fonça vers Rouge Papillon.
+Wang Lin déchaîna son intention de tuer; il agita son drapeau de restriction et plusieurs dizaines de filaments de gaz s'en échappèrent. Ils se réunirent pour former un immense javelot qui fonça vers Rouge Papillon.
 
 Ce javelot était semblable à un fantôme, glissant comme l'éclair derrière les âmes errantes.
 
@@ -80,11 +80,11 @@ Simultanément, sous le contrôle de Wang Lin, de plus en plus de gaz s'échappa
 
 « Ton maître est toujours vivant, et pourtant tu t'es vendue à Suzaku! Tu es infidèle! »
 
-Ce javelot était l'attaque la plus puissante que le drapeau de restriction pouvait déchaîner après avoir atteint son premier stade de perfectionnement. Il utilisait toutes ses restrictions. Wang Lin descendit du ciel, entouré d'âmes errantes; la scène donnait l'impression que le firmament s'effondrait.
+Ce javelot était l'attaque la plus puissante que le drapeau de restriction pouvait déchaîner une fois pleinement accompli. Il utilisait toutes ses restrictions. Wang Lin descendit du ciel, entouré d'âmes errantes; la scène donnait l'impression que le firmament s'effondrait.
 
 Le sol se mit à craqueler sous l'effet des fissures spatiales, conférant au javelot la puissance de la terre elle-même.
 
-La puissance combinée de l'effondrement du ciel et de la déchirure de la terre aurait pu blesser gravement un cultivateur de la Formation de l'Âme au stade intermédiaire.
+La puissance combinée de l'effondrement du ciel et de la déchirure de la terre aurait tué sur le coup un cultivateur de la Formation de l'Âme au stade intermédiaire.
 
 « Tu es ingrate, injuste et infidèle! Quel genre de Dao cultives-tu donc?! Ton cœur Dao est instable! Je veux voir comment ton niveau de culture évoluera à l'avenir! »
 
@@ -98,7 +98,7 @@ Wang Lin avançait sans relâche tandis que Rouge Papillon ne faisait que recule
 
 L'intention de tuer embrasa les yeux de Rouge Papillon. En tant que génie de Xue Yu, elle n'avait jamais connu un moment aussi humiliant depuis sa naissance. Autrefois, dès qu'elle utilisait sa sculpture de glace, même des cultivateurs au stade avancé de la Formation de l'Âme fuyaient en panique.
 
-De plus, Suzaku lui accordait une attention particulière, ce qui ne l'avait pas empêchée de nourrir un orgueil immense.
+De plus, Suzaku lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
 
 Le javelot de Wang Lin la terrifiait. Ce n'était pas tant sa puissance brute, mais l'énergie mystérieuse qui le composait; elle ressemblait presque à un éclat de foudre de la Rétribution Divine!
 

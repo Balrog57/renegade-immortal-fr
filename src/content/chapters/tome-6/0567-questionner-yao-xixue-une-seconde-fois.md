@@ -84,7 +84,7 @@ Après une courte réflexion, Wang Lin sortit un morceau de jade. Il le remit à
 
 Ouyang Hua prit une profonde inspiration en acceptant le jade avec précaution. Après l'avoir lu, il le broya et déclara d'un ton solennel: « Ancêtre, je l'ai mémorisé et je n'oublierai pas vos paroles. Ce sort ne sera enseigné qu'aux disciples principaux de la Tribu des Affineurs d'Âmes! »
 
-Wang Lin hocha la tête et leva la main vers le ciel. Toute la brume noire recouvrant la tribu se rassembla instantanément dans sa paume, formant un drapeau de neuf mètres de long. Il l'avala ensuite rapidement avec son âme originelle.
+Wang Lin hocha la tête et leva la main vers le ciel. Toute la brume noire recouvrant la tribu se rassembla instantanément dans sa paume, formant un drapeau de 9,9 mètres de long. Il l'avala ensuite rapidement avec son âme originelle.
 
 Puis, il sortit plusieurs drapeaux d'âme ordinaires et les lança vers les cieux, recouvrant à nouveau le ciel d'une brume noire!
 
@@ -106,7 +106,7 @@ Mo Lihai regarda au loin sans dire un mot. Après un long moment, il détourna s
 
 Mo Lihai pensa: « Après mon départ cette fois, je ne reviendrai pas. Un autre général démon prendra la gestion de la ville; ces ruines n'auront donc plus rien à me voir! »
 
-« C'est dommage que Treize ait été emmené par Wang Lin; je n'ai pu affiner que 17 de mes 18 techniques du corps démoniaque... Cependant, si Wang Lin essaie vraiment de m'aider cette fois, je suis certain de pouvoir me classer parmi les trois premiers de la compétition des généraux démons! J'obtiendrai alors le droit d'entrer dans le temple démoniaque pour cultiver et, à ma sortie, je serai vice-commandant en chef! » Mo Lihai prit une profonde inspiration. Ses yeux se fixèrent au loin et il esquissa un sourire.
+« C'est dommage que Treize ait été emmené par Wang Lin; je n'ai pu affiner que 17 de mes 18 corps démoniaques... Cependant, si Wang Lin essaie vraiment de m'aider cette fois, je suis certain de pouvoir me classer parmi les trois premiers de la compétition des généraux démons! J'obtiendrai alors le droit d'entrer dans le temple démoniaque pour cultiver et, à ma sortie, je serai vice-commandant en chef! » Mo Lihai prit une profonde inspiration. Ses yeux se fixèrent au loin et il esquissa un sourire.
 
 « Cet homme est quelqu'un qui ne revient jamais sur sa parole! »
 

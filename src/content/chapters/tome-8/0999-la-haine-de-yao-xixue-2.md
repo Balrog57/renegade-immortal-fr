@@ -36,7 +36,7 @@ De ce point de vue, je ne suis pas fait pour être un cultivateur!
 
 Pourtant, il y a certaines choses que je dois accomplir! Si je ne sauve pas Treize, quel Dao serais-je en train de rechercher? »
 
-Wang Lin laissa échapper un soupir en contemplant ce monde familier. Il tapota son sac de rangement, et une boussole de la taille d'une paume apparut dans sa main. C’était l'objet indispensable pour pénétrer dans la quatrième grotte.
+Wang Lin laissa échapper un soupir en contemplant ce monde familier. Il tapota son sac de rangement, et un disque de pierre de la taille d'une paume apparut dans sa main. C’était l'objet indispensable pour pénétrer dans la quatrième grotte.
 
 Après avoir remis l'objet à Situ Nan et lui expliqué comment lever certaines restrictions, ce dernier regarda Wang Lin d'un air entendu. Il connaissait suffisamment bien son compagnon pour comprendre que Wang Lin allait retrouver de vieux amis.
 

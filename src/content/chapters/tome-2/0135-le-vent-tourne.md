@@ -66,21 +66,21 @@ Ce n'étaient là que des suppositions. Ce qui l'avait poussé à cette décisio
 
 Dès que Wang Lin changea de cap, les bêtes de feu se rapprochèrent. Elles crachèrent de la lave sur lui, manquant de peu de le toucher à plusieurs reprises. Il serra les dents et accéléra encore plus vers le Sanctuaire du Dieu de la Guerre.
 
-Peu après, il perçut une aura puissante au loin. En déployant son Sens Divin, il remarqua un groupe de dizaines de milliers de cultivateurs qui progressaient lentement.
+Peu après, il perçut une aura puissante au loin. En déployant son Sens Divin, il remarqua un groupe de plus de dix mille cultivateurs qui progressaient lentement.
 
-La vision de ces dizaines de milliers de cultivateurs chevauchant leurs épées stupéfia Wang Lin un instant, mais il se ressaisit rapidement pour charger vers cette armée.
+La vision de ces plus de dix mille cultivateurs chevauchant leurs épées stupéfia Wang Lin un instant, mais il se ressaisit rapidement pour charger vers cette armée.
 
 Parmi les troupes, de nombreux chars de guerre émettaient des ondes d'énergie spirituelle.
 
 Les bêtes de feu s'arrêtèrent soudainement, et les seize géantes firent barrage à l'armée de cultivateurs.
 
-L'armée ne ralentit pas. Plus de dix mille épées volantes attaquèrent sans hésitation sous les ordres de dix cultivateurs de l'Âme Naissante. Peu après, deux autres groupes sortirent des rangs, ajoutant deux mille combattants supplémentaires à la bataille.
+L'armée ne ralentit pas. Plusieurs milliers d'épées volantes attaquèrent sans hésitation sous les ordres de dix cultivateurs de l'Âme Naissante. Peu après, deux autres groupes sortirent des rangs, ajoutant deux mille combattants supplémentaires à la bataille.
 
 Avant même que Wang Lin n'atteigne l'armée, deux lueurs jaillirent pour l'encercler. La personne au centre était une jeune femme d'apparence ordinaire, mais une intention meurtrière pesante émanait de son front. Elle lança un regard de haine aux bêtes derrière elle avant de se tourner vers Wang Lin: « Camarade cultivateur, de quelle secte es-tu? Déclame ton nom, et vite! »
 
 Wang Lin feignit la peur et répondit précipitamment: « Je suis Ma Liang, disciple du Sanctuaire du Dieu de la Guerre. »
 
-La femme le regarda froidement: « Qiang Xuan, emmène-le au Sanctuaire du Dieu de la Guerre pour vérifier son identité. S'il n'est pas un disciple, tue-le. »
+La femme le regarda froidement: « Qingxuan, emmène-le au Sanctuaire du Dieu de la Guerre pour vérifier son identité. S'il n'est pas un disciple, tue-le. »
 
 Un jeune homme s'élança et fit un signe de tête à Wang Lin, l'invitant à le suivre vers l'armée. Wang Lin salua la jeune femme d'un geste respectueux avant de suivre le jeune homme.
 
@@ -94,7 +94,7 @@ Contrairement au chaos du champ de bataille étranger, il régnait ici un sentim
 
 Wang Lin ne put s'empêcher d'entrer en transe devant tant de grandeur. Lorsqu'il reprit ses esprits, il était déjà arrivé au centre de l'armée avec le jeune homme.
 
-Xuan Qing cria: « L'éclaireur de la Secte Lou He, Qingxuan, a ramené le disciple Ma Liang du Sanctuaire du Dieu de la Guerre! Quelqu'un du Sanctuaire peut-il confirmer son identité? »
+Qingxuan cria: « L'éclaireur de la Secte Lou He, Qingxuan, a ramené le disciple Ma Liang du Sanctuaire du Dieu de la Guerre! Quelqu'un du Sanctuaire peut-il confirmer son identité? »
 
 L'expression de Wang Lin resta impassible. La femme de l'Âme Naissante ne s'en était pas prise à lui et sa voix montrait une volonté de l'intégrer à leurs rangs. Mais même sans cela, Wang Lin serait venu ici; c'était son seul refuge face à la poursuite des bêtes de feu.
 

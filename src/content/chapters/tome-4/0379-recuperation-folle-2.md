@@ -10,7 +10,7 @@ Il était resté bloqué au stade initial de la Formation du Noyau pendant très
 
 La vitesse de culture de Wang Lin lui offrait une lueur d'espoir.
 
-« La secte ne se soucie absolument pas de la vie ou de la mort des disciples de la secte extérieure, alors ce ne sera pas un problème si je le tue. Cet homme est également un cultivateur indépendant; après sa mort, personne ne viendra le chercher. Qian Mu, ne me blâme pas; blâme plutôt ta propre progression trop rapide. Si j'attendais que tu atteignes le stade de la Formation du Noyau, il serait difficile de s'occuper de toi, mais pour l'instant, cela sera aussi simple qu'un revers de main! »
+« La secte ne se soucie absolument pas de la vie ou de la mort des disciples de la secte extérieure, alors ce ne sera pas un problème si je le tue. Cet homme est également un cultivateur indépendant; après sa mort, personne ne viendra le chercher. Qing Mu, ne me blâme pas; blâme plutôt ta propre progression trop rapide. Si j'attendais que tu atteignes le stade de la Formation du Noyau, il serait difficile de s'occuper de toi, mais pour l'instant, cela sera aussi simple qu'un revers de main! »
 
 L'homme d'âge moyen vola vers la grotte de Wang Lin et y arriva en un clin d'œil.
 
@@ -28,7 +28,7 @@ Un sourire moqueur apparut dans les yeux de Wang Lin. Il frappa son sac de range
 
 L'énergie spirituelle s'effondra instantanément.
 
-« Tu cherches la mort! » ricana l'homme d'âge moyen en crachant une épée de trois pouces de long. Il saisit l'arme et chargea vers le gaz de restriction. Dans son esprit, ce junior au stade avancé de l'Établissement des Fondations ne pourrait pas résister à la puissance de cette épée volante, affinée par son propre noyau doré.
+« Tu cherches la mort! » ricana l'homme d'âge moyen en crachant une épée de dix centimètres de long. Il saisit l'arme et chargea vers le gaz de restriction. Dans son esprit, ce junior au stade avancé de l'Établissement des Fondations ne pourrait pas résister à la puissance de cette épée volante, affinée par son propre noyau doré.
 
 Mais son sourire se figea. Au moment où l'épée volante toucha le gaz de restriction, un craquement retentit. L'épée se brisa net en deux.
 

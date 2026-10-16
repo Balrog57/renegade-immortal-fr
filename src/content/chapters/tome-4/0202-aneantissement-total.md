@@ -6,17 +6,17 @@ bookTitle: Clean Sweep
 en: Chapter 202 - Wiped out Completely
 slug: aneantissement-total
 ---
-Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Votre maître est-il le Bossu Meng? »
+Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Le Bossu Meng est-il votre ancêtre? »
 
 Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était extrêmement célèbre dans la Mer des Démons. Quel que soit le senior, lorsqu'on évoquait Meng Qingfan, on se référait à lui comme au Senior Meng.
 
-Même parmi les figures de renommée équivalente, on l'appelait au moins le Prince Meng. Outre son ascension au stade de la Formation de l'Âme, une étape très rare dans la Mer des Démons, il possédait des techniques de poison redoutables. Ses attaques empoisonnées étaient presque impossibles à parer: insipides et incolores. Nombreux étaient ceux qui avaient succombé à ces poisons avant même de comprendre ce qui leur arrivait.
+Même parmi les figures de renommée équivalente, on l'appelait au moins le Maître Meng. Outre son ascension au stade de la Formation de l'Âme, une étape très rare dans la Mer des Démons, il possédait des techniques de poison redoutables. Ses attaques empoisonnées étaient presque impossibles à parer: insipides et incolores. Nombreux étaient ceux qui avaient succombé à ces poisons avant même de comprendre ce qui leur arrivait.
 
 À cela s'ajoutait la personnalité excentrique de Meng Qingfan. Un seul mot de travers, et il pouvait anéantir votre secte tout entière. Il y eut autrefois une secte dans la Mer des Démons qui, bien que dépourvue d'experts en Formation de l'Âme, comptait plusieurs experts au stade avancé de l'Âme Naissante, ce qui en faisait l'une des plus puissantes de la région.
 
 L'un des disciples de l'Âme Naissante de cette secte avait croisé le Bossu Meng. Non seulement il ignorait son identité, mais il s'était permis de se moquer de lui.
 
-Cette nuit-là, Meng Qingfan pénétra seul dans la secte. Une heure plus tard, lorsqu'il en repartit, les 3 960 membres de l'organisation — disciples internes, externes, travailleurs et même ces experts de l'Âme Naissante au stade avancé — étaient tous morts.
+Cette nuit-là, Meng Qingfan pénétra seul dans la secte. Une heure plus tard, lorsqu'il en repartit, les 3 456 membres de l'organisation — disciples internes, externes, travailleurs et même ces experts de l'Âme Naissante au stade avancé — étaient tous morts.
 
 Lorsque Meng Qingfan tuait, il aimait laisser une explication derrière lui. C’est ainsi que tout le monde finit par connaître ses actes. En conséquence, la cruauté de Meng Qingfan suffisait à faire pâlir quiconque dans la Mer des Démons.
 
@@ -86,7 +86,7 @@ Yun Fei avait elle-même un tempérament glacial. Elle comprit parfaitement que 
 
 Elle se mordit la lèvre inférieure. Un air de détermination sur le visage, elle sortit un morceau de jade et le présenta à Wang Lin.
 
-« Senior, ce jade contient des recettes de pilules très précieuses. C'est le plus grand trésor de ma Secte Qi Huang. »
+« Senior, ce jade est une copie et contient des recettes de pilules très précieuses. C'est le plus grand trésor de ma Secte Qi Huang. »
 
 Wang Lin prit le jade, l'examina avec son Sens Divin, puis reporta son attention sur Yun Fei.
 
@@ -100,7 +100,7 @@ Wang Lin réfléchit un instant. Il tendit la main avec désinvolture et le corp
 
 Simultanément, son poignet droit pivota et ses doigts se rejoignirent. D'un geste, un cercle illusionnaire apparut et se fixa sur le front de Yun Fei.
 
-« Cette restriction s'activera une fois tous les trois jours. À chaque activation, le sang de votre corps refluera. Votre culture sombrera dans le chaos et un feu à cinq étoiles s'allumera dans votre cœur. Si je ne l'éteins pas dans la minute qui suit, votre corps entier se transformera en une mare de sang. »
+« Cette restriction s'activera une fois tous les trois jours. À chaque activation, le sang de votre corps refluera. Votre culture sombrera dans le chaos et un feu des cinq éléments s'allumera dans votre cœur. Si je ne l'éteins pas dans la minute qui suit, votre corps entier se transformera en une mare de sang. »
 
 Le visage de Yun Fei devint livide, mais elle parvint à se calmer après quelques respirations profondes. Elle savait que sa vie était sauve pour l'instant.
 
@@ -116,7 +116,7 @@ On pourrait dire que le pouvoir spirituel consommé en un souffle n'était que l
 
 En observant cette façon de voler, le cœur de Yun Fei ne put s'empêcher de trembler à nouveau. Toute idée d'échapper à lui par la chance s'évanouit.
 
-En réalité, une distance de 30 000 miles n'était pas si longue, mais après avoir volé une journée entière, Wang Lin n'avait toujours pas trouvé la ville de Qi Lin, ce qui assombrit son visage. Yun Fei poussa un cri silencieux en son for intérieur. Elle avait oublié que lorsque l'on mentionnait la distance entre la ville et les Étoiles Brisées du Chaos, un anneau d'aura bleu foncé apparaissait de manière aléatoire.
+En réalité, une distance de 15 000 kilomètres n'était pas si longue, mais après avoir volé une journée entière, Wang Lin n'avait toujours pas trouvé la ville de Qi Lin, ce qui assombrit son visage. Yun Fei poussa un cri silencieux en son for intérieur. Elle avait oublié que lorsque l'on mentionnait la distance entre la ville et les Étoiles Brisées du Chaos, un anneau d'aura bleu foncé apparaissait de manière aléatoire.
 
 La fréquence de cette aura n'était pas élevée, mais lorsqu'elle se manifestait, elle couvrait une zone immense. Bien qu'il n'y ait aucun danger à l'intérieur, le Sens Divin y est piégé dans le corps, ce qui rend l'égarement très facile.
 

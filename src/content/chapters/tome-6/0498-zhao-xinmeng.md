@@ -12,25 +12,25 @@ La quatrième sœur, Zhao Xinmeng, regarda Wang Lin avec une expression sérieus
 
 L'image des yeux terrifiés de Yundao Zi apparut dans l'esprit de Wang Lin, et un air d'hésitation se lut sur son visage.
 
-« Ce disciple abandonne! » Wang Lin prit une profonde inspiration et tourna son regard vers le Tout-Voyant.
+« Ce disciple abandonne! » Wang Lin prit une profonde inspiration et tourna son regard vers l'Omniscient.
 
-Le Tout-Voyant fut surpris. C'était la première fois qu'il voyait une telle expression sur le visage de Wang Lin. Il fronça les sourcils en le fixant et demanda d'un ton grave: « Pourquoi abandonnes-tu? »
+L'Omniscient fut surpris. C'était la première fois que Wang Lin voyait une telle expression sur le visage de l'Omniscient. Il fronça les sourcils en le fixant et demanda d'un ton grave: « Pourquoi abandonnes-tu? »
 
 L'expression calme de Zhao Xinmeng disparut, remplacée par un air étrange. Elle fixa Wang Lin et réfléchit en silence.
 
-La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles du Tout-Voyant, il réfléchit un instant avant de répondre: « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
+La peur inscrite sur le visage de Yundao Zi n'avait toujours pas quitté l'esprit de Wang Lin. Après avoir entendu les paroles de l'Omniscient, il réfléchit un instant avant de répondre: « Le niveau de culture de ce disciple n'est pas assez élevé pour rivaliser avec celui de la quatrième sœur... »
 
-« Wang Lin! » Le Tout-Voyant l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne le temps de la durée d'un bâton d'encens pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » Le Tout-Voyant fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
+« Wang Lin! » L'Omniscient l'interrompit, lui lança un regard plein de sens et déclara d'un ton solennel: « Ton Maître souhaite que tu te battes pour l'obtenir, ne serait-ce qu'une fois! Mes disciples ne doivent pas être des lâches. De plus, tu ne dois pas te laisser envoûter par les autres au point d'avoir le cœur rempli de pensées inutiles. Souviens-toi simplement que tu dois suivre tes propres désirs en toute chose. Je te donne le temps d'un demi-bâton d'encens pour y réfléchir sérieusement. Si tu décides toujours d'abandonner, je ne t'en empêcherai pas! » L'Omniscient fronça les sourcils, puis il tourna un regard sombre vers Yundao Zi.
 
 Lorsque Yundao Zi sentit le regard de son maître, son cœur trembla et il baissa précipitamment la tête.
 
-Les paroles du Tout-Voyant résonnèrent parmi les disciples des six autres divisions. Leurs regards, empreints de confusion et de remise en question, se tournèrent tous vers Wang Lin.
+Les paroles de l'Omniscient résonnèrent parmi les disciples des six autres divisions. Leurs regards, empreints de confusion et de remise en question, se tournèrent tous vers Wang Lin.
 
 Car à leurs yeux, il était extrêmement rare que leur Maître tente de changer l'avis de quelqu'un. Dans la Division Violette, hormis Sun Yun, Wang Lin était la deuxième personne à qui cela arrivait!
 
-Le temps passa lentement. Les yeux de Wang Lin s'illuminèrent; il regarda le Tout-Voyant, joignit respectueusement les mains et déclara: « Ce disciple va se battre pour l'obtenir! »
+Le temps passa lentement. Les yeux de Wang Lin s'illuminèrent; il regarda l'Omniscient, joignit respectueusement les mains et déclara: « Ce disciple va se battre pour l'obtenir! »
 
-Un air de joie apparut sur le visage du Tout-Voyant qui hocha la tête: « Bien! »
+Un air de joie apparut sur le visage de l'Omniscient qui hocha la tête: « Bien! »
 
 Zhao Xinmeng regarda Wang Lin et dit doucement: « Septième frère, commençons! »
 
@@ -50,9 +50,9 @@ Le corps de Wang Lin vacilla alors qu'il reculait rapidement. Simultanément, il
 
 À l'instant où la flamme jaillit, une aura démoniaque monstrueuse envahit les environs.
 
-« Cet enfant... est-il vraiment en adéquation avec mon Dao... Autrefois, il ne m'avait laissé qu'une phrase: "Mon Dao est le Dao du destin céleste. Ce n'est qu'en trouvant des êtres en accord avec mon Dao que j'aurai une chance de franchir la troisième étape..." » L'expression du Tout-Voyant resta impassible, bien qu'il portât une attention particulière à l'index droit de Wang Lin.
+« Cet enfant... est-il vraiment en adéquation avec mon Dao... Autrefois, il ne m'avait laissé qu'une phrase: "Mon Dao est le Dao du destin céleste. Ce n'est qu'en trouvant des êtres en accord avec mon Dao que j'aurai une chance de franchir la troisième étape..." » L'expression de l'Omniscient resta impassible, bien qu'il portât une attention particulière à l'index droit de Wang Lin.
 
-« Si cet enfant est véritablement lié à mon Dao, alors moi, le Tout-Voyant, je suis prêt à prendre ce risque, quel qu'en soit le prix! Cela fait plus de 30 000 ans que je l'ai rencontré, et j'ai perdu la majorité de mes disciples depuis. En faisant cela, est-ce que je fais bien... ou est-ce que je me trompe? » Le Tout-Voyant fixa Wang Lin d'un regard mélancolique.
+« Si cet enfant est véritablement lié à mon Dao, alors moi, l'Omniscient, je suis prêt à prendre ce risque, quel qu'en soit le prix! Cela fait plus de 30 000 ans que je l'ai rencontré, et j'ai perdu la majorité de mes disciples depuis. En faisant cela, est-ce que je fais bien... ou est-ce que je me trompe? » L'Omniscient fixa Wang Lin d'un regard mélancolique.
 
 Le regard de Wang Lin était empreint de gravité lorsqu'il tonna: « Doigt Démoniaque! »
 
@@ -114,6 +114,6 @@ Wang Lin esquissa un léger sourire en regardant Zhao Xinmeng: « Se pourrait-il
 
 Le visage de Zhao Xinmeng s'assombrit. Elle le fixa et dit lentement: « Même si tu atteins la puissance de six cycles, tu ne seras toujours pas mon égal! »
 
-Wang Lin rit, puis frappa son sac de rangement. La hache du Clan du Démon Géant jaillit dans un rayon de lumière noire pour flotter dans les airs. Simultanément, le piège à bêtes fixé à son poignet s'élança et se métamorphosa en char de guerre.
+Wang Lin rit, puis frappa son sac de rangement. La hache du Clan du Démon Géant jaillit dans un rayon de lumière noire pour flotter dans les airs. Simultanément, le cercle de bronze fixé à son poignet s'élança et se métamorphosa en char de guerre.
 
 « Serai-je à la hauteur si j'ajoute ces deux-là? »

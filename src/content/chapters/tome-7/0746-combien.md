@@ -8,7 +8,7 @@ slug: combien
 ---
 L'expression de Wang Lin devint sombre et ses pupilles se rétractèrent lorsqu'il vit la chaîne de tonnerre entre les mains du vieil homme. Son cœur fut envahi par la terreur. Même Wang Lin, avec son âme d'origine du tonnerre et son corps de tonnerre, ne pouvait manipuler une telle chaîne avec autant de désinvolture.
 
-Après tout, le simple tonnerre qu'elle dégageait contenait une trace de tonnerre céleste; il était donc inutile de mentionner l'intégralité de la chaîne.
+Même le simple tonnerre qui s'en échappait contenait une trace de tonnerre céleste; à plus forte raison la chaîne entière.
 
 Il ne percevait aucune indication du niveau de culture du vieil homme, mais il pouvait imaginer qu'il était extrêmement élevé. De plus, il ressentait vaguement émaner de cet homme un sentiment de retour à l'origine.
 
@@ -20,7 +20,7 @@ Le vieil homme émergea de l'épais brouillard et fixa Li Yuan. Il pointa Wang L
 
 Les yeux de Wang Lin se plissèrent et il répliqua: « Je n'ai jamais rencontré Senior auparavant. Comment pourrions-nous être liés par le destin? »
 
-Le vieil homme examina Wang Lin un instant avant de sourire. « L'as-tu déjà oublié? Quiconque parvient à s'échapper du tunnel de prison de ce vieux est lié à lui par le destin! »
+Le vieil homme examina Wang Lin un instant avant de sourire. « L'as-tu déjà oublié? Quiconque parvient à sortir du tunnel où ce vieux l'a enfermé en sept jours est lié à lui par le destin! »
 
 L'expression de Wang Lin changea instantanément. Il regarda l'ancien et, après une courte réflexion, dit lentement: « Ainsi, c'était Senior qui avait tout orchestré… Je ne sais simplement pas pourquoi Senior a fait cela. »
 
@@ -44,7 +44,7 @@ Puis le vieil homme murmura doucement: « Inversion! »
 
 En un clin d'œil, tout le vide vacilla comme si la réalité même avait changé. La vision de Wang Lin se brouilla et son corps fut brusquement projeté en arrière. Sa posture était alors exactement la même que lorsqu'il tentait de fuir.
 
-Presque instantanément, lorsqu'il retrouva la vue, il se trouvait à trente pieds du vieil homme. Une sueur froide recouvrit immédiatement son front. Un tel sort dépassait déjà l'entendement.
+Presque instantanément, lorsqu'il retrouva la vue, il se trouvait à près de dix mètres du vieil homme. Une sueur froide recouvrit immédiatement son front. Un tel sort dépassait déjà l'entendement.
 
 Le vieil homme regarda Wang Lin et sourit: « Pourquoi ne cours-tu pas? »
 
@@ -58,7 +58,7 @@ La Bête de Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'
 
 Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria: « Avec la culture de Senior, comment peut-il ainsi s'emparer des possessions d'un junior? »
 
-Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser la Bête de Tonnerre de ce vieux en vain! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme d'origine du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
+Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser ta Bête de Tonnerre pour rien! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme d'origine du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
 
 La main droite de l'ancien s'avança et une grande quantité de poussière se rassembla dans sa paume pour former une sphère de lumière. Il cracha ensuite une bouffée d'énergie dans la sphère et la projeta sans même regarder. La boule de lumière fila droit sur Wang Lin.
 

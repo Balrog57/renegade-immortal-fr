@@ -8,9 +8,9 @@ slug: tous-reunis
 ---
 Wang Lin regarda silencieusement le corps de Papillon Rouge se disperser. Une fois que cela fut terminé, il poussa un soupir, atterrit au sol et agita la main droite. La hache revint vers lui et fut rangée dans son sac de rangement.
 
-Puis, il tendit la main et saisit le Soul Lasher qui flottait dans les airs. Après l'avoir examiné attentivement, il le remit également dans son sac de rangement.
+Puis, il tendit la main et saisit le Fouet de l'Âme qui flottait dans les airs. Après l'avoir examiné attentivement, il le remit également dans son sac de rangement.
 
-Une trace de sens divin de niveau Ascendant subsistait sur le Soul Lasher, que Wang Lin ne pouvait pas retirer pour le moment. Mais tant qu'il le tenait entre ses mains, il était confiant que, une fois tout cela terminé, il pourrait utiliser le drapeau des mille millions d'âmes pour briser ce sens divin et s'approprier véritablement le Soul Lasher.
+Une trace de sens divin de niveau Ascendant subsistait sur le Fouet de l'Âme, que Wang Lin ne pouvait pas retirer pour le moment. Mais tant qu'il le tenait entre ses mains, il était confiant que, une fois tout cela terminé, il pourrait utiliser le drapeau des mille millions d'âmes pour former une âme Ascendante capable de briser ce sens divin et s'approprier véritablement le Fouet de l'Âme.
 
 Après avoir fait cela, Wang Lin regarda une dernière fois l'endroit où Papillon Rouge avait disparu et secoua la tête. Puis, d'un pas, son corps disparut. Il se mit à charger vers la montagne spirituelle au loin.
 
@@ -46,7 +46,7 @@ Il ne fallut pas longtemps avant que plusieurs autres personnes n'arrivent. Deux
 
 Un autre cultivateur arriva également. Il portait une robe bleue ainsi qu'un masque féroce qui couvrait son visage. Le masque dégageait une aura bleue qui empêchait le sens divin de passer. Une fois au sommet, il inspecta les lieux avant de s'asseoir silencieusement sur le côté.
 
-Une heure plus tard, trois rayons de lumière traversèrent le ciel en direction du sommet, mais alors qu'ils approchaient, toute la montagne spirituelle trembla. La porte fut également secouée violemment et de nouvelles fissures apparurent sur sa surface.
+Deux heures plus tard, trois rayons de lumière traversèrent le ciel en direction du sommet, mais alors qu'ils approchaient, toute la montagne spirituelle trembla. La porte fut également secouée violemment et de nouvelles fissures apparurent sur sa surface.
 
 À cet instant, non seulement la montagne spirituelle vacillait, mais c'était tout le Tombeau de Suzaku qui tremblait.
 

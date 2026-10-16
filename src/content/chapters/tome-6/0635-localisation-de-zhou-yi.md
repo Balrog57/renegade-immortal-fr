@@ -36,7 +36,7 @@ Du Jian laissa poindre un éclair de désespoir, mais à ce moment précis, son 
 
 Wang Lin ignora complètement Du Jian pour se concentrer sur les insectes. Ces créatures étaient extrêmement étranges. D'abord, elles s'étaient dispersées pour attaquer tout le monde, mais dès qu'elles virent la lumière multicolore de Du Jian, elles s'étaient immédiatement rassemblées.
 
-Zhao Yixuan joua avec ses cheveux et dit doucement: « Après avoir dévoré l'Aîné Apprenti Du, nous serons les prochaines cibles. Si nous ne partons pas maintenant, je crains que nous n'ayons plus d'autre chance. »
+Zhao Yixuan joua avec ses cheveux et dit doucement: « Après avoir dévoré le frère aîné Du, nous serons les prochaines cibles. Si nous ne partons pas maintenant, je crains que nous n'ayons plus d'autre chance. »
 
 À cet instant précis, la lumière multicolore autour de Du Jian s'effondra soudainement. Son esprit vacilla alors qu'il activait immédiatement la dernière utilisation de son trésor de sauvetage, provoquant le bris du jade.
 
@@ -114,11 +114,11 @@ Tant qu'elles ne le provoquaient pas, il n'avait aucune intention de révéler l
 
 Quant à Murong Zhuo, ses sorts firent même lever les sourcils de Wang Lin. Ils étaient extrêmement variés; jusqu'à présent, Wang Lin ne l'avait jamais vu utiliser deux fois le même sort.
 
-Wang Lin était convaincu qu'avec sa culture, il pourrait vaincre Murong Zhuo, mais au prix de blessures. La donne serait différente s'il utilisait des trésors, mais comment se faisait-t-il que Murong Zhuo n'en possède pas lui aussi?
+Wang Lin était convaincu qu'avec sa culture, il pourrait vaincre Murong Zhuo, mais au prix de blessures. La donne serait différente s'il utilisait des trésors, mais comment se faisait-il que Murong Zhuo n'en possède pas lui aussi?
 
 Si les sorts d'évasion de Murong Zhuo étaient aussi prodigieux que ceux du petit vieillard, et si ce dernier décidait de fuir, Wang Lin ne pourrait pas le rattraper.
 
-« L'âme originelle de ce vieux court est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme des Marées, je devrai consacrer du temps à la culture de ces sorts! »
+« L'âme originelle de ce petit vieillard est scellée dans le drapeau de l'âme. Après avoir sauvé Zhou Yi et réglé les affaires de l'Abîme des Marées, je devrai consacrer du temps à la culture de ces sorts! »
 
 Ce jour-là, avec l'aide de Murong Zhuo, ils travaillèrent de concert et atteignirent enfin la partie médiane inférieure de l'Abîme des Marées. Le cœur de Wang Lin trembla, mais il réprima aussitôt ce sentiment. Même le cristal de Bei Lou ne pouvait voir au-delà de cette profondeur.
 
@@ -140,6 +140,6 @@ Les deux femmes prirent également congé et s'envolèrent. Cependant, Xu Fei jo
 
 Une fois que les trois furent disparus au loin, le regard de Wang Lin devint glacial et se posa sur la paroi. Il tendit la main droite: le cheveu vola vers lui et fut saisi entre ses doigts!
 
-« Il semble que mon avertissement n'ait pas suffi! » Wang Lin laissa échapper un renflement froid et frotta son doigt. Le cheveu s'enflamma, mais d'un feu vert. Un fragment de sens divin émergea du cheveu, mais avant qu'il ne puisse se condenser, Wang Lin cracha une bouffée d'énergie originelle. Le fragment de sens divin s'effondra instantanément après avoir heurté l'énergie originelle.
+« Il semble que mon avertissement n'ait pas suffi! » Wang Lin laissa échapper un reniflement froid et frotta son doigt. Le cheveu s'enflamma, mais d'un feu vert. Un fragment de sens divin émergea du cheveu, mais avant qu'il ne puisse se condenser, Wang Lin cracha une bouffée d'énergie originelle. Le fragment de sens divin s'effondra instantanément après avoir heurté l'énergie originelle.
 
 Pendant la descente dans l'Abîme des Marées, le corps de Xu Fei trembla. Du sang coula du coin de sa bouche et ses yeux trahirent une trace de peur.

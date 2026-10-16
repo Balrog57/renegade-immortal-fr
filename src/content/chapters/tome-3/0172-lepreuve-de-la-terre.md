@@ -18,7 +18,7 @@ Lorsqu'elle atteignit le vortex, elle eut l'effet d'un objet s'enfonçant dans l
 
 Le vent tourbillonnait sur la glace avant de s'éloigner vers l'horizon.
 
-L'endroit était d'une immensité sans fin, mais on pouvait distinguer des tours noires au loin. La plus proche ne mesurait que 330 mètres de haut, mais plus les tours étaient éloignées, plus elles gagnaient en hauteur. La plus lointaine, que Wang Lin pouvait apercevoir, dépassait les quatre 330 mètres.
+L'endroit était d'une immensité sans fin, mais on pouvait distinguer des tours noires au loin. La plus proche ne mesurait que cent pieds de haut, mais plus les tours étaient éloignées, plus elles gagnaient en hauteur. La plus lointaine, que Wang Lin pouvait apercevoir, dépassait les quatre cents pieds.
 
 Ces tours noires s'alignaient en une ligne droite.
 
@@ -78,9 +78,9 @@ Ce qui s'offrit à lui fut un désert sans fin, balayé par des vents de sable v
 
 Le vent charriait le sable, lequel infligerait un choc brutal à quiconque serait frappé par lui.
 
-Il rangea le démon, toucha le sable au sol, fit un pas en avant et disparut dans la terre. Lorsqu'il réapparut, il se trouvait déjà à 3,3 kilomètres de là.
+Il rangea le démon, toucha le sable au sol, fit un pas en avant et disparut dans la terre. Lorsqu'il réapparut, il se trouvait déjà à mille pieds de là.
 
-À 3,3 kilomètres se dressait la première tour de l'épreuve terrestre. En pénétrant dans la tour, le rugissement du vent extérieur s'éteignit soudainement. Un silence absolu régnait à l'intérieur.
+À mille pieds se dressait la première tour de l'épreuve terrestre. En pénétrant dans la tour, le rugissement du vent extérieur s'éteignit soudainement. Un silence absolu régnait à l'intérieur.
 
 Alors que Wang Lin examinait attentivement les lieux, son expression se fit grave. La tour comptait trois étages. Si les deux premiers étaient vides, le troisième abritait une table recouverte d'une épaisse couche de poussière. Wang Lin s'apprêtait à repartir, mais ses yeux s'illuminèrent en fixant la table.
 
@@ -100,7 +100,7 @@ L'expression de Wang Lin resta de marbre. Il avait anticipé une telle réaction
 
 Cette fois, Wang Lin sentit nettement une force s'opposer à son utilisation de la technique d'évasion terrestre. Cependant, cette résistance n'était pas démesurée; il lui suffit d'utiliser un peu d'énergie spirituelle pour la contrer, ce qui lui permit de franchir les 50 kilomètres en toute sécurité.
 
-Arrivé à la deuxième tour, il l'explora sans rien trouver. Il ignorait si l'Empereur Ancien et ses compagnons avaient également affronté cette épreuve terrestre. Toutefois, d'après leurs propos et la mention du bouclier de glace, il semblait qu'ils allaient plutôt subir l'épreuve aquatique.
+Arrivé à la deuxième tour, il l'explora sans rien trouver. Il ignorait si l'Empereur Antique et ses compagnons avaient également affronté cette épreuve terrestre. Toutefois, d'après leurs propos et la mention du bouclier de glace, il semblait qu'ils allaient plutôt subir l'épreuve aquatique.
 
 À cet instant précis, à des dizaines de milliers de kilomètres devant Wang Lin, Bossu Meng se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
 
@@ -116,7 +116,7 @@ Malheureusement, le dragon rouge était d'une puissance telle que sa seule prés
 
 Bossu Meng était tombé sur l'épreuve terrestre. En voyant le désert, son cœur sombra. Ils avaient prévu de passer par l'épreuve aquatique, le monde de glace. La dernière fois qu'ils étaient venus ici, ils avaient réussi à franchir l'épreuve de l'eau après de nombreux échecs mortels. Bien que périlleuse, cette étape était connue de ces quatre chanceux qui s'étaient préparés en conséquence.
 
-Cependant, Bossu Meng n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les dix mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
+Cependant, Bossu Meng n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les cinq mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
 
 Au début, ces créatures n'étaient pas nombreuses et il les éliminait une à une avec son poison. Mais il réalisa vite que plus il en tuait, plus elles apparaissaient. Lors de la dernière grande bataille, il avait entendu les cris d'au moins dix mille de ces êtres.
 
@@ -144,7 +144,7 @@ Debout au sommet de la tour, il observa l'horizon. De là, sa vue était immense
 
 Après réflexion, il décida de ralentir sa progression. Peu importait qui l'avait précédé; s'il les rencontrait, il risquait d'être dominé. Cependant, en contrôlant la distance entre eux, il pourrait emprunter leur puissance pour franchir l'épreuve sereinement.
 
-Fort de cette stratégie, Wang Lin avança avec prudence grâce à sa technique d'évasion terrestre. Il atteignit ainsi la tour située à dix mille kilomètres du départ. En chemin, chaque fois qu'il croisait une tour noire, il envoyait le démon en éclaireur. Ce n'est qu'une fois la zone vérifiée par le démon qu'il entrait lui-même.
+Fort de cette stratégie, Wang Lin avança avec prudence grâce à sa technique d'évasion terrestre. Il atteignit ainsi la tour située à cinq mille kilomètres du départ. En chemin, chaque fois qu'il croisait une tour noire, il envoyait le démon en éclaireur. Ce n'est qu'une fois la zone vérifiée par le démon qu'il entrait lui-même.
 
 Le temps s'écoula. Une demi-lune plus tard, les tours atteignaient huit mille pieds de hauteur. Wang Lin regarda vers le bas depuis le sommet.
 

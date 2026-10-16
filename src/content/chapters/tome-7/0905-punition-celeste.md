@@ -100,7 +100,7 @@ Alors que la voix de Yun Quezi résonnait, les chaînes s'animèrent de nouveau.
 
 Des regards belliqueux jaillirent de leurs visages et, dans un concert de rugissements, les chaînes qui les retenaient disparurent, leur offrant la liberté. Chacun d'eux, tel une bête féroce, chargea droit sur Wang Lin, le garçon à la grosse tête et Lei Ji!
 
-Le regard de Wang Lin se fit impitoyable. Il laissa échapper un renflement glacial, forma un sceau et cria: « Invoque le Vent! »
+Le regard de Wang Lin se fit impitoyable. Il laissa échapper un reniflement glacial, forma un sceau et cria: « Invoque le Vent! »
 
 À sa parole, un vent noir apparut autour de sa main droite avant d'envahir la 17e couche. Une rafale monstrueuse balaya l'espace avec frénésie.
 

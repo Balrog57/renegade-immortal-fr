@@ -17,7 +17,7 @@ Cette tablette de pierre était normalement un panneau destiné à être placé 
 
 Cette tablette avait dû être déplacée par un cultivateur lors de l'une des premières ouvertures du Royaume Céleste afin de dissimuler quelque chose. Autrement, ces marques sur la moitié inférieure de la pierre n'auraient pas existé; si elle était restée immobile, la partie inférieure aurait fini par sécher et se fissurer.
 
-Après avoir confirmé cette hypothèse, ses yeux brillèrent et il leva le bras. Les derniers mètres de la tablette enfouis sous terre furent extirpés par Wang Lin.
+Après avoir confirmé cette hypothèse, ses yeux brillèrent et il leva le bras. Les quelque dix mètres de tablette enfouis sous terre furent extirpés par Wang Lin.
 
 Au moment où la tablette fut totalement dégagée, un mince filet d'énergie spirituelle céleste s'en échappa. Il n'y en avait que peu; dès son apparition, elle semblait sur le point de disparaître.
 
@@ -63,7 +63,7 @@ Les yeux de Wang Lin s'illuminèrent. Sans un mot, il pointa son front, faisant 
 
 « Tu penses pouvoir t'enfuir? » Wang Lin frappa son sac de rangement et en sortit un petit drapeau. Ce drapeau de restriction, qui avait atteint le premier stade de complétion, était extrêmement puissant. Il se transforma en une fumée noire qui enveloppa Wang Lin et le propulsa rapidement vers l'avant.
 
-Le qi d'épée fut d'abord percuté par plus de cent âmes errantes. Bien que ces dernières fussent instantanément anéanties au contact du qi, la puissance combinée de cent âmes ne pouvait être sous-estimée. Elles réduisirent le qi d'épée au cinquième de sa taille originale et en ternirent l'éclat. Par la suite, la boule de foudre entra en collision avec le reste du qi; la foudre se dissipa, mais le qi d'épée fut réduit à une fraction dérisoire de sa dimension initiale, perdant toute lumière après l'impact.
+Le qi d'épée fut d'abord percuté par plusieurs centaines d'âmes errantes. Bien que ces dernières fussent instantanément anéanties au contact du qi, la puissance combinée de plusieurs centaines d'âmes ne pouvait être sous-estimée. Elles réduisirent le qi d'épée de près d'un cinquième et en ternirent l'éclat. Par la suite, la boule de foudre entra en collision avec le reste du qi; la foudre se dissipa, mais le qi d'épée fut réduit à une fraction dérisoire de sa dimension initiale, perdant toute lumière après l'impact.
 
 Finalement, Wang Lin surgit. Protégé par le drapeau de restriction, il n'eut plus aucun mal à traverser le qi d'épée, lequel fut balayé par les diverses restrictions. Sans ralentir, Wang Lin poursuivit, porté par son drapeau, le cultivateur aux robes vertes qui s'enfuyait.
 

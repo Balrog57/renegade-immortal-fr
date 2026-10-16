@@ -58,7 +58,7 @@ Le cultivateur au miroir antique hurla: « Rends le trésor que tu as dérobé a
 
 Wang Lin soupira intérieurement et fit un geste de la main. L'épée cristalline réapparut dans sa paume.
 
-Les autres cultivateurs de la Formation du Noyau furent stupéfaits. Ils déployèrent rapidement plusieurs formations défensives avant de fixer Wang Lin avec intensité.
+Les autres cultivateurs de la Formation du Noyau furent stupéfaits. Ils activèrent rapidement plusieurs trésors défensifs avant de fixer Wang Lin avec intensité.
 
 « Dégagez! » Les yeux de Wang Lin étaient glacials. Après ce brusque ordre, il reprit sa course aérienne.
 
@@ -72,7 +72,7 @@ Wang Lin déploya son sens divin et constata que les trois le suivaient toujours
 
 Toutefois, une fois qu'il aurait réussi sa propre Formation du Noyau, les tuer serait aussi simple que d'écraser des fourmis.
 
-Sous la pression des trois poursuivants, Wang Lin s'enfuit pendant une journée entière. Au cours de cette course, les trois utilisèrent divers trésors, ce qui finit par ralentir Wang Lin. Après l'attaque surprise de l'épée cristalline, ils étaient devenus plus vigilants, rendant ses tentatives suivantes moins efficaces.
+Sous la pression des trois poursuivants, Wang Lin s'enfuit pendant un jour et une nuit. Au cours de cette course, les trois utilisèrent divers trésors, ce qui finit par ralentir Wang Lin. Après l'attaque surprise de l'épée cristalline, ils étaient devenus plus vigilants, rendant ses tentatives suivantes moins efficaces.
 
 Le regard de Wang Lin devint de plus en plus froid. Son sens divin se verrouilla sur les trois adversaires et le tonnerre rouge du Royaume du Ji jaillit. Les trois cultivateurs de la Formation du Noyau ne virent qu'un éclair rouge avant d'avoir l'impression que des marteaux leur fracassaient le crâne. Le sang coula de leurs bouches et de leurs nez, et après avoir titubé, ils affichèrent une terreur qu'ils n'avaient jamais manifestée auparavant.
 
@@ -104,10 +104,10 @@ Soudain, une masse de flammes bleues apparut dans sa main droite. Dès l'apparit
 
 À la vue des flammes bleues, les visages des trois cultivateurs de la Formation du Noyau se décomposèrent. Avant qu'ils ne puissent réagir, Wang Lin agita la main et le feu bleu s'élança lentement vers eux.
 
-Bien que son mouvement semblât lent, sa vitesse était fulgurante. Un vent glacial se propagea et percuta les trois hommes.
+Bien que son mouvement semblât lent, sa vitesse était fulgurante. Un vent glacial, qui se solidifiait en lames comme des couteaux, se propagea et percuta les trois hommes.
 
 Ils n'hésitèrent pas à se séparer pour éviter l'impact. Cependant, la vitesse des flammes bleues décupla soudainement et frappa le cultivateur qui avait déjà été blessé à plusieurs reprises. En un clin d'œil, son corps fut enveloppé d'une lumière bleue et disparut. Il n'eut même pas le temps de pousser un cri.
 
-Le feu bleu faiblit légèrement et se dirigea aussitôt vers la cible suivante. Mais à ce moment précis, un rugissement tonnerre retentit au loin. Wang Lin aperçut sept ou huit rayons de lumière foncer rapidement dans sa direction.
+Le feu bleu faiblit légèrement et se dirigea aussitôt vers la cible suivante. Mais à ce moment précis, un grondement de tonnerre retentit au loin. Wang Lin aperçut sept ou huit rayons de lumière foncer rapidement dans sa direction.
 
 L'expression de Wang Lin changea. Il tendit la main droite pour récupérer les flammes bleues avant de s'enfuir. Cette fois, il utilisa 120 % de son énergie spirituelle et courut pour sauver sa vie.

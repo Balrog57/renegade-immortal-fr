@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 506 - Messenger
 slug: le-messager
 ---
-Le symbole au-dessus de la formation disparut lentement. Wang Lin sortit de l'artillerie et observa calmement les environs avant que son regard ne se pose sur Xu Yunshan.
+Le symbole au-dessus de la formation disparut lentement. Wang Lin sortit du réseau et observa calmement les environs avant que son regard ne se pose sur Xu Yunshan.
 
 Les yeux de Xu Yunshan se plissèrent, puis il laissa échapper un rire et demanda: « Es-tu Wang Lin, le disciple de l'Omniscient? »
 
@@ -58,7 +58,7 @@ Xu Yunshan rit et déclara: « Je prends congé. Si l'occasion se présente à l
 
 Après son départ, Wang Lin fut le seul à flotter dans le ciel.
 
-Il restait en suspension, observant calmement la foule en contrebas. Parmi les cent cultivateurs présents, dix atteignaient le niveau de culture le plus élevé: le stade tardif de la Transformation de l'Âme. Les autres possédaient des niveaux de culture bien moindres.
+Il restait en suspension, observant calmement la foule en contrebas. Parmi les cultivateurs présents, dix atteignaient le niveau de culture le plus élevé: le stade tardif de la Transformation de l'Âme. Les autres possédaient des niveaux de culture bien moindres.
 
 Parmi eux, un homme attira l'attention de Wang Lin. Il avait les cheveux blancs et paraissait très âgé. C'était le plus puissant du groupe; il se trouvait pratiquement à un demi-pas du stade de l'Ascendant.
 
@@ -74,11 +74,11 @@ L'expression de Wang Lin demeura impassible alors qu'il agita ses manches pour e
 
 La zone fut soudainement plongée dans un brouillard noir dégageant une aura lugubre.
 
-Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau de trente pieds de long. Bien que le Drapeau des Mille Millions d'Âmes ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
+Une fois cela accompli, Wang Lin réfléchit un instant, puis frappa son front de la paume et cracha un drapeau d'une dizaine de mètres de long. Bien que le Drapeau des Mille Millions d'Âmes ait perdu la plupart de ses fragments, il restait plusieurs âmes primaires. Wang Lin agita le drapeau, libérant ces âmes dans le brouillard noir pour renforcer la protection. Il libéra chaque âme primaire à l'exception du fragment d'âme du Qilin, car cela n'aurait pas été pratique.
 
 Après ces préparatifs, Wang Lin prit une profonde inspiration, puis d'un geste de la main, un jade apparut!
 
-Ce jade était entièrement gris; c'était celui que le Tout-Voyant aux robes grises lui avait remis: l'Art du Massacre Céleste!
+Ce jade était entièrement gris; c'était celui que l'Omniscient aux robes grises lui avait remis: l'Art du Massacre Céleste!
 
 « L'Art du Massacre Céleste... » Les yeux de Wang Lin s'illuminèrent, puis son sens divin pénétra dans le jade.
 
@@ -88,9 +88,9 @@ Durant ce mois, aucune des sectes de Ling Yue n'avait réussi à cerner l'identi
 
 C'était devenu une tradition.
 
-Mais cet homme, venu de la planète Tian Yun et étant le disciple du Tout-Voyant, ne quittait pas la tour depuis un mois entier. La zone environnante était également enveloppée d'un brouillard noir, empêchant quiconque d'oser s'en approcher.
+Mais cet homme, venu de la planète Tian Yun et étant le disciple de l'Omniscient, ne quittait pas la tour depuis un mois entier. La zone environnante était également enveloppée d'un brouillard noir, empêchant quiconque d'oser s'en approcher.
 
-Certains cultivateurs de la Transformation de l'Âme tentèrent de pénétrer dans le brouillard pour voir ce qui s'y passait, mais après n'avoir parcouru que mille pieds, ils en ressortirent précipitamment, le visage décomposé.
+Certains cultivateurs de la Transformation de l'Âme tentèrent de pénétrer dans le brouillard pour voir ce qui s'y passait, mais après n'avoir parcouru que moins de trois cents mètres, ils en ressortirent précipitamment, le visage décomposé.
 
 Le nouveau messager devenait de plus en plus mystérieux aux yeux des cultivateurs de Ling Yue.
 

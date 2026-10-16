@@ -24,7 +24,7 @@ Alors qu'il volait, une voix douce pénétra soudainement ses oreilles. « Petit
 
 Le corps de Wang Lin s'arrêta brusquement. Devant lui, une femme enchanteresse s'avançait.
 
-Les pas de la femme étaient aussi légers que les nuages, chacun produisant un léger bruissement. Elle portait une robe de cour bleue dont la partie inférieure était parée d'émeraudes triangulaires. Une ceinture entourait sa taille, d'où s'échappaient de longs rubans. Sa tenue dégageait une impression d'intelligence et d'élégance.
+Les pas de la femme étaient aussi légers que les nuages, chacun produisant un léger bruissement. Elle portait une robe de cour bleue dont la partie inférieure était ornée de pans triangulaires de tissu vert jade. Une ceinture entourait sa taille, d'où s'échappaient de longs rubans. Sa tenue dégageait une impression d'intelligence et d'élégance.
 
 La femme était d'une grande beauté. Sans aucun maquillage, son visage arborait une légère rougeur et sa peau avait la blancheur de la crème.
 
@@ -32,19 +32,19 @@ La femme était d'une grande beauté. Sans aucun maquillage, son visage arborait
 
 L'expression de Wang Lin était restée impassible, mais dans son cœur, il était en alerte maximale. Il ne parvenait pas à percevoir le niveau de culture de cette femme. C'était clairement une cultivatrice de l'Âme Naissante.
 
-Wang Lin la regarda calmement et dit: « Quel est le nom du disciple de l'Aînée? »
+Wang Lin la regarda calmement et dit: « Quel est le nom du petit-disciple de l'Aînée? »
 
-La femme esquissa un sourire gracieux et répondit d'une voix suave: « Le nom de mon disciple est Zhou Zihong. »
+La femme esquissa un sourire gracieux et répondit d'une voix suave: « Le nom de mon petit-disciple est Zhou Zihong. »
 
-Wang Lin hocha la tête sans hésiter et déclara avec détermination: « Très bien. Une fois que je serai à 500 kilomètres, je rendrai l'essence sanguine de l'âme. Autrement, même si l'Aînée intervient, je ne pourrai garantir la destruction de l'essence sanguine. »
+Wang Lin hocha la tête sans hésiter et déclara avec détermination: « Très bien. Une fois que je serai à mille kilomètres, je rendrai l'essence sanguine de l'âme. Autrement, même si l'Aînée intervient, je détruirai l'essence sanguine. »
 
-La femme regarda Wang Lin et dit: « Petit ami n'a pas besoin d'être aussi nerveux. J'ai déjà entendu parler de vous par Zihong. C'est grâce à votre aide que les trois ont pu retourner en toute sécurité au Sanctuaire du Dieu de la Guerre. Rien que pour cela, nous pouvons ignorer le fait que vous ayez possédé Mai Liang. En faisant abstraction de tout le reste, parce que vous avez sauvé Zihong, je peux vous pardonner tout ce qui s'est passé. »
+La femme regarda Wang Lin et dit: « Petit ami n'a pas besoin d'être aussi nerveux. J'ai déjà entendu parler de vous par Zihong. C'est grâce à votre aide que les trois ont pu retourner en toute sécurité au Sanctuaire du Dieu de la Guerre. Rien que pour cela, cela compense la possession de Mai Liang. En faisant abstraction de tout le reste, parce que vous avez sauvé Zihong, je peux vous pardonner tout ce qui s'est passé. »
 
-Wang Lin fut surpris et scruta attentivement les yeux de la femme. Il vit qu'elle ne semblait pas mentir. Après une courte réflexion, il dit: « Veuillez ne pas me blâmer, Aînée. Veuillez attendre que je sois à 500 kilomètres avant que je ne rende l'essence sanguine de l'âme. »
+Wang Lin fut surpris et scruta attentivement les yeux de la femme. Il vit qu'elle ne semblait pas mentir. Après une courte réflexion, il dit: « Veuillez ne pas me blâmer, Aînée. Veuillez attendre que je sois à mille kilomètres avant que je ne rende l'essence sanguine de l'âme. »
 
 La femme leva la main dans une pose qui aurait fait chavirer le cœur de n'importe quel homme. Elle secoua la tête et rit: « Mille kilomètres... Je vais vous appeler Mai Liang. Mai Liang, mille kilomètres ne représentent que quelques respirations pour moi. Si je voulais vous tuer, à moins que vous ne puissiez vous échapper à dix mille kilomètres, cela serait inutile. Soit, si vous insistez, allez-y. »
 
-Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une demi-heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa sa tempe et une petite étincelle de lumière argentée en sortit.
+Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa le milieu de son front et une petite étincelle de lumière argentée en sortit.
 
 Wang Lin ne da même pas un second regard à l'objet avant de s'élancer à nouveau. En chemin, il se demandait si les paroles de la femme étaient sincères ou non, mais quoi qu'il en soit, il n'était pas prudent d'offenser une cultivatrice de l'Âme Naissante pour le moment.
 
@@ -84,7 +84,7 @@ L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux
 
 Wang Lin le regarda, puis s'envola sans même lui accorder une seconde attention.
 
-Sun Youcai le suivit rapidement et demanda d'un ton sournois: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte du Démon Maléfique. »
+Sun Youcai le suivit rapidement et demanda d'un ton sournois: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démoniaque. »
 
 Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il donna un coup de pied dans le vide pour s'élancer du sol et, en un clin d'œil, retrouva la hauteur de Wang Lin. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes en Condensation de Qi pour servir de fourneaux. »
 

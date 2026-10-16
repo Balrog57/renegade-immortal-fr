@@ -36,7 +36,7 @@ Cette confiance émanait du désir qu'il venait d'absorber du corps du Dieu Anci
 
 Cependant, avant que le Seigneur Démon des Six Désirs ne puisse s'abandonner à ces sentiments, son cœur sombra soudainement. Son visage se décomposa. Au loin, une ombre semblable à une météorite chargeait vers lui.
 
-« Vieux homme, puisque tu te moques de notre relation maître et disciple, ne me reproche pas de te tuer! » ricana le Seigneur Démon des Six Désirs. Il ne bougea pas d'un pouce, fixant l'ombre qui approchait.
+« Vieux homme, puisque tu ne tiens aucun compte de notre relation maître et disciple, ne me reproche pas de te tuer! » ricana le Seigneur Démon des Six Désirs. Il ne bougea pas d'un pouce, fixant l'ombre qui approchait.
 
 En un clin d'œil, l'ombre atteignit le Seigneur Démon des Six Désirs, révélant le Magicien Démon du Ciel.
 
@@ -128,9 +128,9 @@ Mais ce qui exalta encore plus le cœur de Wang Lin fut l'endroit où le dragon 
 
 Dans la brume sanglante, un dragon rouge apparut. Il engloutit un sixième de l'énergie spirituelle du Seigneur Démon des Six Désirs et percuta sans pitié le même endroit.
 
-Par la suite, la Joie, l'Envie et l'Ignorance se manifestèrent à leur tour, chacune sous la forme d'un dragon, frappant l'anneau doré. Lorsque le dernier dragon, celui de l'Ignorance, percuta la zone, celle-ci vola en éclats, révélant un tunnel.
+Par la suite, la Rapacité, le Plaisir, la Jalousie et l'Obsession se manifestèrent à leur tour, chacune sous la forme d'un dragon, frappant l'anneau doré. Lorsque le dernier dragon, celui de l'Obsession, percuta la zone, celle-ci vola en éclats, révélant un tunnel.
 
-Le Magicien Démon du Ciel éclata d'un rire sauvage. Sa main s'enfonça dans le tunnel et en extirpa un cristal de glace circulaire bleu clair. Le cristal mesurait environ trois mètres de large, alors que le tunnel ne faisait même pas un mètre de large.
+Le Magicien Démon du Ciel éclata d'un rire sauvage. Sa main s'enfonça dans le tunnel et en extirpa un cristal de glace circulaire bleu clair. Le cristal mesurait environ trente-trois mètres de large, alors que le tunnel ne faisait même pas dix mètres de large.
 
 Wang Lin fixa le tunnel. Après avoir hésité, il renonça finalement au plan risqué de sortir.
 
@@ -138,6 +138,6 @@ Les mains du Magicien Démon du Ciel formèrent un sceau et projetèrent un rayo
 
 Son visage trahissait une profonde frustration. On pouvait dire que la restriction qu'il avait posée était la plus puissante possible, doublée de nombreuses autres couches de protection. Même pour lui, briser ces barrières aurait dû prendre un temps considérable. Bien que le corps du Dieu Ancien fût d'une immensité sans comparaison, il était peu probable que des gens passent par là; il avait pourtant redoublé de prudence.
 
-Mais cette fois, il n'avait jamais imaginé l'apparition d'un dévoreur d'âmes. Ou que le propriétaire de la Mer Sanguine ait envoyé tous les cultivateurs démoniaques vers le corps du Dieu Ancien pour traquer ce dévoreur d'âmes.
+Mais cette fois, il n'avait jamais imaginé l'apparition d'un dévoreur d'âmes. Ou que le propriétaire de la Mer de Sang ait envoyé tous les cultivateurs démoniaques vers le corps du Dieu Ancien pour traquer ce dévoreur d'âmes.
 
 En conséquence, son plan subissait des changements inévitables, mais il ne pouvait laisser passer cette opportunité. Il avait néanmoins une certaine confiance en ses protections, c'est pourquoi il avait décidé de poursuivre son dessein malgré tout.

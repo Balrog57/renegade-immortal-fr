@@ -10,7 +10,7 @@ Zhao, à l'extérieur de la vallée Jue Ming. Tout était calme. On aurait dit q
 
 Dans quelques décennies, la vallée Jue Ming rouvrira pour permettre aux gens de rechercher des trésors dans le champ de bataille étranger.
 
-La silhouette de Wang Lin apparut à l'extérieur de la vallée et il la contempla. Il poussa un soupir, agita sa main droite et une faille d'environ un mètre de long s'ouvrit devant lui.
+La silhouette de Wang Lin apparut à l'extérieur de la vallée et il la contempla. Il poussa un soupir, agita sa main droite et une faille d'une dizaine de mètres de long s'ouvrit devant lui.
 
 Si l'on regardait attentivement, on remarquerait que cette faille se trouvait exactement à l'endroit même où Wang Lin s'était autodétruit.
 
@@ -18,11 +18,11 @@ Après avoir atteint le stade de Formation de l'Âme, le premier objectif de Wan
 
 Il ne tenait pas grand-chose aux objets contenus dans son ancien sac, mais il devait impérativement récupérer ce fourreau d'épée. À ce jour, il en avait déjà trouvé deux autres et il était convaincu qu'ils renfermaient un secret.
 
-Son corps se mouva et apparut à l'extérieur de la faille. Un vent puissant, capable de distinguer aisément la vie de la mort, s'en échappa, mais cela n'eut aucun effet sur Wang Lin.
+Son corps se mouva et apparut à l'extérieur de la faille. Un vent glacial qui anéantissait toute vie s'en échappa, mais cela n'eut aucun effet sur Wang Lin.
 
 Sa main droite s'enfonça dans la faille et il sonda les environs avec son âme originelle pour localiser l'objet. Une lumière se rassembla lentement dans sa paume et un sac de rangement apparut.
 
-Lorsque Wang Lin déploya son sens divin, son regard devint soudainement grave. Le sac manquait de beaucoup de choses, y compris le fourreau d'épée.
+Lorsque Wang Lin déploya son sens divin, son regard devint soudainement grave. Il ne restait que la moitié du contenu d'origine du sac, et le fourreau d'épée manquait.
 
 Il réfléchit un instant et supposa que cela était dû au temps écoulé: même s'il avait reformé le sac de rangement, certains objets avaient été perdus à l'intérieur de cette faille spatiale.
 
@@ -44,7 +44,7 @@ Graduellement, la vitesse de Wang Lin s'accéléra tandis qu'il traversait l'esp
 
 Ce fourreau était celui qui appartenait à Wang Lin.
 
-Autour du fourreau se trouvaient quatre ombres à l'apparence humaine. Elles étaient assises en cercle autour de l'objet et cultivaient, tandis que des éclats d'énergie dorée s'échappaient du fourreau pour être absorbés par les ombres.
+Autour du fourreau se trouvaient quatre ombres à l'apparence humaine. Elles étaient assises en cercle autour de l'objet et cultivaient, tandis que des éclats d'énergie scintillante s'échappaient du fourreau pour être absorbés par les ombres.
 
 En voyant cela de loin, Wang Lin s'arrêta brusquement. Son regard restait calme alors qu'il agissait d'un geste de la main droite.
 
@@ -52,11 +52,11 @@ Soudain, le fourreau d'épée trembla et l'intérieur du rocher noir commença �
 
 Le regard de Wang Lin demeura impassible; il ne prononça pas un mot.
 
-Voyant que le fourreau d'épée s'élevait de plus en plus haut et semblait même émettre un son, des bouches s'ouvrirent sur les visages des ombres pour aspirer davantage d'énergie dorée.
+Voyant que le fourreau d'épée s'élevait de plus en plus haut et semblait même émettre un son, des bouches s'ouvrirent sur les visages des ombres pour aspirer davantage d'énergie scintillante.
 
 Au même moment, une ombre se leva brusquement. En s'élevant, son corps se transforma instantanément en un nuage noir gigantesque qui chargea Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il eut un ricanement méprisant: « Un simple trésor magique fantomatique. Tu ne connais pas ta place! » Sur ces mots, il pointa la main gauche et un faisceau d'énergie spirituelle jaillit de son doigt.
+Les yeux de Wang Lin s'illuminèrent et il eut un ricanement méprisant: « Une simple créature fantomatique ! Tu surestimes tes forces ! » Sur ces mots, il pointa la main gauche et un faisceau d'énergie spirituelle jaillit de son doigt.
 
 Bien que cette énergie spirituelle ne fût pas démesurément puissante, elle contenait le domaine de Wang Lin. Une sensation de mort envahit l'ombre dès que l'énergie pénétra en elle. Sous la puissance du domaine, la vie de l'ombre se dissipa rapidement.
 
@@ -88,7 +88,7 @@ Wang Lin eut un ricanement sardonique. Son âme originelle disparut pour devenir
 
 L'âme originelle apparut silencieusement aux côtés du fourreau, s'en saisit, puis retourna dans le corps de Wang Lin.
 
-C'était cette capacité de mouvement instantané que les cultivateurs de la Formation de l'Âme pouvaient utiliser en fusionnant avec les cieux. Tous ne pouvaient pas la maîtriser, mais elle était bien plus puissante que la téléportation utilisée par les cultivateurs de l'Âme Naissante.
+C'était cette capacité de mouvement instantané que les cultivateurs de la Formation de l'Âme pouvaient utiliser en fusionnant avec les cieux. Tous ne pouvaient pas la maîtriser, mais elle était plusieurs fois plus puissante que la téléportation utilisée par les cultivateurs de l'Âme Naissante.
 
 En dévorant l'ombre, Wang Lin absorba également ses souvenirs. Cette ombre avait été créée par un puissant cultivateur en séparant des fragments de ses propres obsessions. Il les avait ensuite placées ici pour qu'elles soient raffinées par le vent froid afin de devenir des âmes pour des trésors magiques.
 
@@ -110,7 +110,7 @@ Il marmonna: « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la por
 
 « Reste à savoir si je pourrai également ressusciter maman et papa une fois que j'aurai atteint la Transformation de l'Âme... mais mon domaine est celui de la vie et de la mort. Plus je comprends le cycle de la réincarnation, plus je réalise à quel point il est difficile de s'y opposer. Cet objectif de ressusciter mes parents sera extrêmement ardu... » Wang Lin poussa un soupir.
 
-« Peu importe. Je m'en occuperai plus tard. S'il n'existe vraiment aucun moyen de les ressusciter, alors je leur trouverai une place pour réintégrer le cycle de la réincarnation. Cette dette d'affection doit encore être remboursée... »
+« Peu importe. Je m'en occuperai plus tard. S'il n'existe vraiment aucun moyen de les ressusciter, alors je leur trouverai une place pour réintégrer le cycle de la réincarnation. Ce lien d'affection de cette vie prend ainsi fin... »
 
 À cet instant, Wang Lin devait encore raffiner un autre drapeau de restriction. Il ne restait qu'une pierre d'encre; il devait donc l'utiliser avec précaution pour ne pas l'endommager. Wang Lin avait tenté de réparer le drapeau de restriction brisé, mais sans succès. Celui-ci ne pouvait désormais servir qu'à invoquer la rétribution divine.
 

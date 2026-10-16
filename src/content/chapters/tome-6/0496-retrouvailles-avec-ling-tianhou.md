@@ -98,4 +98,4 @@ Ling Tianhou poussa un rugissement alors que l'épée serpentine sous ses pieds 
 
 Ling Tianhou poussa un cri glacial, et une lumière rouge apparut entre ses sourcils. En un éclair, cette lueur s'en échappa pour flotter dans les airs, se transformant en un gigantesque Qilin. La créature était d'une férocité redoutable. Une fois ses quatre pattes posées, sa tête massive fixa l'Omniscient avant de charger vers lui.
 
-Au moment où le Qilin apparut, un rugissement retentit depuis le drapeau des mille millions d'âmes, à l'intérieur de l'âme originelle de Wang Lin.
+Au moment où le Qilin apparut, un rugissement retentit depuis le drapeau des âmes, à l'intérieur de l'âme originelle de Wang Lin.

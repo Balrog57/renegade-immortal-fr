@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 341 - Three Message From Mount Suzaku
 slug: trois-messages-de-la-montagne-suzaku
 ---
-Le messager était d'une rapidité fulgurante et arriva bientôt devant les six individus. Il marqua un bref instant de pause, ses yeux verts balayant le groupe.
+Le messager était d'une rapidité fulgurante et arriva bientôt devant les six individus. Il marqua un bref instant de pause, son regard perçant balayant le groupe.
 
 Hormis le vieil homme Hu et l'homme au manteau noir, le cœur de chacun trembla et tous baissèrent la tête.
 
@@ -34,7 +34,7 @@ Tous suivirent le jeune homme, tout en maintenant une certaine distance. Ils le 
 
 Le vieil homme Hu songea secrètement: « Se pourrait-il qu'un trésor soit apparu dans le Cimetière des Immortels? »
 
-Mais alors même que cette pensée lui traversait l'esprit, son expression changea brusquement lorsqu'il vit le jeune homme survoler une vallée. Ce dernier sembla heurter une force puissante qui le repoussa de plus de 50 kilomètres. Le visage du messager était marqué par la stupeur.
+Mais alors même que cette pensée lui traversait l'esprit, son expression changea brusquement lorsqu'il vit le jeune homme survoler une vallée. Ce dernier sembla heurter une force puissante qui le repoussa de plus de trente mètres. Le visage du messager était marqué par la stupeur.
 
 Le vieil homme Hu se posa sur une montagne voisine. Les autres firent de même et observèrent le jeune homme.
 

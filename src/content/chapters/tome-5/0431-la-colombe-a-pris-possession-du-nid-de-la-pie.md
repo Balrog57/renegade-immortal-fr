@@ -22,7 +22,7 @@ La Secte du Ciel Nuageux de Chu était tombée aux mains du Clan des Immortels D
 
 Hormis le fait de ravir les enfants capables de cultiver, le Clan des Immortels Délaissés ne tuait pas les mortels.
 
-Ce jour-là, Wang Lin émergea d'un réseau de transfert sur la côte ouest du Chu.
+Ce jour-là, Wang Lin émergea d'un réseau de transfert dans la partie ouest du Chu.
 
 Le ciel au-dessus du pays était sombre. Bien qu'il fût en plein jour, la lumière semblait être totalement absorbée par les nuages noirs. De loin, on ne pouvait faire la différence avec la nuit.
 
@@ -38,7 +38,7 @@ Wang Lin resta calme. Il daigna même pas regarder les chamans avant de mouvoir 
 
 Lorsqu'il réapparut, il se trouvait déjà au village où Zhou Ru était née. L'endroit était totalement désolé et l'une de ces plantes étranges y poussait. Il n'y avait plus aucune trace de vie. Wang Lin laissa échapper un soupir avant de repartir.
 
-Wang Lin ne se rendit pas à la Secte du Ciel Nuageux, car il n'était pas un saint. S'il s'y rendait pour retirer les tatouages des cultivateurs, cela ne serait pas une bonne chose; cela provoquerait très probablement la colère du Clan des Immortels Délaissés.
+Wang Lin ne se rendit pas à la Secte du Ciel Nuageux, car il n'était pas un saint. S'il s'y rendait pour retirer les tatouages des cultivateurs, cela ne serait pas une aide, mais risquerait fort d'attirer le massacre du Clan des Immortels Délaissés.
 
 Wang Lin croisa de nombreux membres du Clan des Immortels Délaissés en survolant le Chu. Cependant, la plupart d'entre eux étaient au stade des quatre feuilles et très peu atteignaient celui des cinq feuilles.
 
@@ -76,7 +76,7 @@ Jusqu'à présent, aucun tatouage n'était apparu sur la plante.
 
 L'intérêt de Wang Lin grandissait. Il sortit plusieurs autres fragments d'âmes pour tester et tous passèrent sans difficulté.
 
-« Intéressant. Elle bloque l'énergie spirituelle et les sculptures, mais permet librement le passage des âmes. Cette plante est fascinante! » Wang Lin agita son drapeau, libérant plus de 200 fragments d'âmes ainsi que l'âme du Qilin.
+« Intéressant. Elle bloque l'énergie spirituelle et les sculptures, mais permet librement le passage des âmes. Cette plante est fascinante! » Wang Lin agita son drapeau, libérant plus de 2 000 fragments d'âmes ainsi que l'âme du Qilin.
 
 D'une simple pensée, tous les fragments se rassemblèrent autour de lui pour former une armure d'âmes. Le fragment de l'âme Qilin forma un tatouage sur son visage qui dégageait une lueur dorée.
 
@@ -92,7 +92,7 @@ Le vent sifflait à ses oreilles alors qu'il s'élançait dans le trou. Dès qu'
 
 L'entrée au stade précoce de la Transformation de l'Âme avait étendu son Sens Divin et sa portée de téléportation. En une seule impulsion, il arriva à l'entrée de la deuxième couche. Il scruta toute la première couche et ne trouva que quelques chamans, tous seulement au stade des trois feuilles.
 
-Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait attendu avec l'Ancien du Pavillon de Raffinement des Trésors la croissance du Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un grand trou où poussait autrefois l'Arbre de la Réincarnation.
+Wang Lin ne s'arrêta pas et pénétra directement dans la deuxième couche. Puis, par une autre téléportation, il atteignit la troisième couche, là où il avait attendu avec l'Ancien du Pavillon de Raffinement des Trésors la croissance du Fruit de la Réincarnation. L'endroit était totalement désert, à l'exception d'un petit trou où poussait autrefois l'Arbre de la Réincarnation.
 
 Après avoir inspecté les lieux, Wang Lin disparut de nouveau. Cette fois, il réapparut devant l'entrée de la quatrième couche. En voyant cela, son expression changea légèrement et il se dissimula promptement.
 

@@ -34,7 +34,7 @@ Il vit un rayon de lumière violette jaillir de la position de Qing Shui. Cette 
 
 « Arme du clan royal, la Lance Tueuse de Dieux! »
 
-La lumière se condensa avec une célérité extrême et la lance apparut en un clin d'œil. Cette fois, elle ne mesurait pas mille pieds de long, mais seulement la taille d'une lance ordinaire. Wang Lin la saisit et la lança avec acharnement!
+La lumière se condensa avec une célérité extrême et la lance apparut en un clin d'œil. Cette fois, elle ne mesurait pas plusieurs centaines de mètres de long, mais seulement la taille d'une lance ordinaire. Wang Lin la saisit et la lança avec acharnement!
 
 Elle percuta instantanément la lumière violette!
 
@@ -116,6 +116,6 @@ C'était comme si Wang Lin détenait le tonnerre du monde, attirant à lui chaqu
 
 « Vous... cédez devant moi! » rugit Wang Lin. Les dizaines de milliers d'âmes issues de la lumière cristalline n'affichaient plus de visages féroces, mais étaient désormais pétrifiées par la panique. Alors que le tonnerre incessant convergeait, elles affichèrent toutes un signe de reddition.
 
-La lumière cristalline s'effondra et une épée d'argent de sept pieds apparut dans sa main. Les dizaines de milliers d'âmes environnantes furent aspirées dans la lame.
+La lumière cristalline s'effondra et une épée d'argent d'environ deux mètres trente apparut dans sa main. Les dizaines de milliers d'âmes environnantes furent aspirées dans la lame.
 
 Un chiffre « 9 » était gravé sur le corps de l'épée. Elle émit un bourdonnement alors qu'elle se soumettait à Wang Lin.

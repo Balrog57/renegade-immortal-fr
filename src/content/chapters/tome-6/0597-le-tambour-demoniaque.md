@@ -14,13 +14,13 @@ slug: le-tambour-demoniaque
 
 Des rugissements furieux jaillirent du sol. Puis, des grondements tonitruants montèrent des profondeurs, non moins puissants que le tonnerre de la punition divine.
 
-Cinq ondes de choc dévastatrices s'élancèrent de sous terre. Bien que la puissance céleste tentât de les réprimer, ces ondes réussirent à s'imposer et à s'élever à 330 mètres dans les airs.
+Cinq ondes de choc dévastatrices s'élancèrent de sous terre. Bien que la puissance céleste tentât de les réprimer, ces ondes réussirent à s'imposer et à s'élever à 33 mètres dans les airs.
 
 Cinq vieillards aux cheveux blancs, dont les yeux brillaient d'une énergie spirituelle démoniaque, surgirent en même temps que les cinq ondes de choc!
 
 Rien qu'à les voir, on pouvait ressentir le poids des âges. Leurs bustes maigres étaient nus, mais ces corps sveltes dégageaient une aura presque primordiale.
 
-Le nuage rouge dans le ciel s'agita violemment et descendit de trois pouces supplémentaires!
+Le nuage rouge dans le ciel s'agita violemment et descendit de près de dix centimètres supplémentaires!
 
 Le sol de toute la capitale se brisa, et des gouttes de sang jaillirent des pores de tout le corps de Wang Lin. On entendait ses chairs et ses os craquer; il avait l'impression que d'innombrables montagnes géantes s'effondraient sur lui.
 
@@ -40,7 +40,7 @@ Loin d'être affectés par cette puissance céleste, les cinq vieillards se mire
 
 Les cinq vieillards commencèrent à se quereller.
 
-La puissance céleste, comme irritée, redoubla de rage, et le nuage rouge descendit de huit pouces supplémentaires!
+La puissance céleste, comme irritée, redoubla de rage, et le nuage rouge descendit de 26,4 centimètres supplémentaires!
 
 La terre rugit et tout le sol de la cité impériale fut broyé. Bien que l'onde de choc ne puisse pas se propager en surface, elle se propagea sous terre comme si des dragons s'agitaient dans les profondeurs, affectant presque la moitié de la Cité du Démon Céleste.
 
@@ -54,7 +54,7 @@ Les cinq vieillards se relevèrent immédiatement, pointèrent le ciel du doigt 
 
 Tout en maudissant, ils s'envolèrent de nouveau vers les cieux. Cette fois, une énergie spirituelle démoniaque jaillit de leurs corps. Une épaisse brume démoniaque enveloppa toute la Cité du Démon Céleste tandis que les cinq hommes fonçaient droit vers les nuages rouges.
 
-La puissance céleste trembla et le nuage rouge descendit une fois de plus. Cette fois, il descendit de 33 mètres!
+La puissance céleste trembla et le nuage rouge descendit une fois de plus. Cette fois, il descendit de 3,3 mètres!
 
 À cet instant, ce fut comme si une main géante s'abattait sur la Cité du Démon Céleste, transformant tout en poussière en un éclair...
 
@@ -138,7 +138,7 @@ Les yeux de l'un des vieillards s'écarquillèrent et il murmura pour lui-même:
 
 Alors que le corps de Wang Lin s'élevait hors du trou, ses cheveux flottaient sans qu'aucun vent ne soufflât et ses yeux étaient clos, mais une quantité inimaginable d'énergie spirituelle démoniaque émanait de lui.
 
-Le corps de Wang Lin flotta dans les airs sous la pression des cieux. Il semblait qu'à cet instant, cette pression n'ait plus aucune prise sur lui. Tandis qu'il s'élevait vers le ciel, l'énergie spirituelle démoniaque rejetée par son corps se condensa derrière lui pour former une illusion gigantesque de plus de mille pieds de haut!
+Le corps de Wang Lin flotta dans les airs sous la pression des cieux. Il semblait qu'à cet instant, cette pression n'ait plus aucune prise sur lui. Tandis qu'il s'élevait vers le ciel, l'énergie spirituelle démoniaque rejetée par son corps se condensa derrière lui pour former une illusion gigantesque d'environ 330 mètres de haut!
 
 Cette illusion possédait deux cornes, dégageait une aura ténébreuse et arborait une peau violet foncé. Dès son apparition, le nuage rouge laissa échapper des rugissements féroces et des grondements tonitruants.
 

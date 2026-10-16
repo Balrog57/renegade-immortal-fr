@@ -20,17 +20,17 @@ En raison de l'immense quantité d'énergie d'origine accumulée devant le doigt
 
 La planète entière sembla vaciller et une onde gigantesque se propagea dans l'atmosphère, comme si une force colossale s'y déplaçait. Cette énergie d'origine précéda le doigt, provoquant même l'effondrement de certaines parties de la planète et une distorsion totale de l'espace.
 
-Un grondement tonnerrelement retentit à travers le monde lorsque le doigt percuta l'atmosphère. Celle-ci s'effondra instantanément, laissant une lumière aux sept couleurs se répandre sur toute la zone.
+Un grondement tonitruant retentit à travers le monde lorsque le doigt percuta l'atmosphère. Celle-ci s'effondra instantanément, laissant une lumière aux sept couleurs se répandre sur toute la zone.
 
 Le doigt força l'ouverture d'une fissure. Cette brèche continuait de s'étendre, provoquant un changement soudain et radical du climat.
 
-En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à des milliers de kilomètres de Ghost Eye City!
+En levant les yeux vers le ciel, on aurait dit que le doigt avait percé un trou dans les cieux et descendait lentement pour s'y engouffrer! Il visait la vallée située à cinq cents kilomètres de la Cité aux Yeux Fantômes!
 
 Avant que le doigt ne frappe, une pression inimaginable descendit et la terre craquela. Les expressions de tous les cultivateurs qui pensaient avoir accompli quelque chose changèrent radicalement; aucun d'eux n'osa s'approcher pour observer.
 
 Alors que cette puissance se propageait, leurs esprits tremblèrent. Un sentiment de fin des temps, comme si le ciel et la terre allaient être anéantis, naquit au plus profond de leurs cœurs.
 
-Initialement, la pluie couvrait le ciel au-dessus de Ghost Eye City et les grondements de tonnerre résonnaient sans fin. Cependant, à cet instant précis, alors que le doigt géant descendait, tous les nuages furent balayés. C'était comme un rideau que l'on écarte brusquement devant une porte. Même la puissance des cieux semblait devoir s'effacer devant ce doigt.
+Initialement, la pluie couvrait le ciel au-dessus de la Cité aux Yeux Fantômes et les grondements de tonnerre résonnaient sans fin. Cependant, à cet instant précis, alors que le doigt géant descendait, tous les nuages furent balayés. C'était comme un rideau que l'on écarte brusquement devant une porte. Même la puissance des cieux semblait devoir s'effacer devant ce doigt.
 
 Un épais nuage sombre n'eut pas le temps de s'écarter et fut frappé par les ondulations précédant le doigt. Il explosa instantanément, illuminant le ciel d'une multitude d'éclairs.
 
@@ -46,17 +46,17 @@ Sans avoir le temps de réfléchir aux changements subis par la perle défiant l
 
 Ce doigt était colossal. Il dégageait une lueur aux sept couleurs et faisait trembler sans cesse le ciel et la terre. Des fissures se creusèrent dans l'espace à mesure qu'il s'approchait de Wang Lin. Une pression inimaginable tomba du ciel pour converger autour de lui.
 
-« L'All-Voyant! » Wang Lin fronça les sourcils, le visage sombre. Sa main droite tâtonna son sac et un objet apparut dans sa paume. C'était un présent de Qing Shui: un cristal permettant d'Invoquer la Pluie!
+« L'All-Voyant! » Wang Lin fronça les sourcils, le visage sombre. Sa main droite tapota son sac et un objet apparut dans sa paume. C'était un présent de Qing Shui: un cristal permettant d'Invoquer la Pluie!
 
 À l'époque, Qing Shui lui avait dit que trois utilisations de l'Invoquation de la Pluie étaient scellées à l'intérieur. L'Invoquation de la Pluie lancée par Qing Shui ne serait pas ordinaire. Wang Lin ne l'avait pas encore utilisée, car il souhaitait la garder comme un atout ultime pour sa survie!
 
 Cependant, le moment était venu de s'en servir!
 
-Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre! Même Ghost Eye City fut affectée: de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
+Le doigt géant descendait lentement et chargeait vers Wang Lin. Un grondement assourdissant retentit, et la pression de sa descente fit à nouveau éclater la terre! Même la Cité aux Yeux Fantômes fut affectée: de larges pans de ses murs s'effondrèrent et des cris de détresse s'élevèrent de la ville.
 
 À cet instant, il existait une planète éloignée de Tian Yun, mais qui restait sous l'influence de celle-ci. C'était une planète de culture nommée Da Lou! Il n'y avait qu'une seule secte sur cette planète: la Secte de l'Épée Da Lou!
 
-Le Secte de l'Épée Da Lou occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
+La Secte de l'Épée Da Lou occupait une vaste partie de la planète, s'étendant sur des centaines de milliers de kilomètres. Il était bien plus vaste que la Secte du Destin Céleste. Ling Tianhou avait été prêt à payer le prix fort lors de sa fondation, ce qui expliquait son échelle monumentale.
 
 Des montagnes imprégnées d'énergie spirituelle parsemaient le domaine de la Secte de l'Épée Da Lou. On y trouvait de nombreux pavillons et des tours monumentales disposées à intervalles réguliers. Il y avait au total 999 tours, comme si elles avaient été érigées pour former une formation géante!
 

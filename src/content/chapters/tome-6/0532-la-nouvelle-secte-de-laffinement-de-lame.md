@@ -14,7 +14,7 @@ Wang Lin recula rapidement, mais la lueur noire le poursuivait sans relâche.
 
 Il laissa échapper un froid reniflement, toucha son sac de rangement de la main droite et en sortit le Fouet d'Âme. Il abattit le fouet, provoquant un gémissement de douleur chez le fantôme céleste qui ralentit aussitôt.
 
-Le Fouet d'Âme était spécialisé dans les blessures de l'âme, ce qui était fatal pour ce fantôme céleste qui n'avait point de corps physique, mais n'était que l'âme d'un esprit de premier rang.
+Le Fouet d'Âme était spécialisé dans les blessures de l'âme, ce qui était fatal pour ce fantôme céleste qui n'avait point de corps physique, mais n'était qu'une âme spirituelle.
 
 Sous l'effet de la douleur, le fantôme céleste devint plus féroce encore. Il décida d'ignorer la souffrance et chargea Wang Lin, le visage empreint d'une intention meurtrière extrême.
 
@@ -28,7 +28,7 @@ Sans la moindre hésitation, il lança le Fouet d'Âme. L'arme s'élança vers l
 
 Le fantôme céleste était d'une grande malice. Voyant qu'il ne pouvait s'échapper, il se retourna et ouvrit la bouche pour cracher un feu vert. Une masse de flammes verdâtres apparut, engloutissant le Fouet d'Âme dans une mer de feu.
 
-Ce feu vert était la flamme vitale du fantôme céleste, son attaque la plus puissante. La haine qu'il éprouvait envers Wang Lin était dérisoire comparée à celle qu'il ressentait pour le fouet; c'était l'arme qu'il exécrait par-dessus tout.
+Ce feu vert était la flamme vitale du fantôme céleste, son attaque la plus puissante. La haine qu'il éprouvait envers Wang Lin était légèrement moindre que celle qu'il ressentait pour le fouet; c'était l'arme qu'il exécrait par-dessus tout.
 
 À ses yeux, ce fouet avait été conçu spécifiquement pour traquer les fantômes célestes. Même s'il devait mourir, il se devait de détruire cet artefact. Dans ses souvenirs, il n'avait entendu parler que d'un seul trésor semblable, mais celui-ci avait disparu depuis longtemps de ce royaume et ne devrait plus exister.
 
@@ -92,7 +92,7 @@ Ouyang Hua le fixa du regard et tonna: « C'est la loi tribale! À partir d'aujo
 
 Devant cette sévérité, les opposants se turent et personne n'osa plus rien dire.
 
-Sentant qu'il avait été un peu trop dur, Ouyang Hua toussota et ajouta: « Cette vallée est trop étroite; nous devrions déménager... Vos familles devraient s'agrandir... Notre tribu devrait également gagner en puissance... »
+Sentant qu'il avait été un peu trop dur, Ouyang Hua toussota et ajouta: « Cette vallée est trop étroite; nous devrions déménager... Vos familles devraient s'agrandir... il serait temps d'y ajouter des femmes... Notre tribu devrait également gagner en puissance... »
 
 Les yeux des villageois s'empourprèrent, révélant des traces de folie. L'un d'eux fit quelques pas en avant et demanda: « Ancien, allons-nous entrer en guerre? »
 
@@ -102,13 +102,13 @@ Wang Lin, quant à lui, était assis en position du lotus dans les profondeurs d
 
 Il devait se rendre à l'Ancienne Cité Démoniaque, mais avant cela, des préparatifs s'imposaient.
 
-Créer son propre assise au sein de l'Ancienne Cité Démoniaque serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
+Créer sa propre assise au sein de l'Ancienne Cité Démoniaque serait ardu. De plus, selon les souvenirs de Lou Yun, le manoir du général de l'aile gauche abritait de nombreux experts. Ces gens étaient les habitants originels des lieux. Leur culture et leurs sorts étaient intrinsèquement liés à l'énergie spirituelle démoniaque.
 
 Bien que Wang Lin n'eût jamais rencontré de cultivateur utilisant cette énergie, Lou Yun, elle, en avait côtoyé, et l'ancêtre de celle-ci avait interagi avec ce genre d'individus durant une longue période.
 
 S'il n'avait pas eu accès aux souvenirs de Lou Yun, Wang Lin serait allé à l'Ancienne Cité Démoniaque sans hésiter, mais il avait désormais changé d'avis.
 
-« Plutôt que de rejoindre le manoir du général de l'aile gauche, je préfère rester ici et instruire les habitants afin qu'ils obéissent à mes ordres. Je leur enseignerai des sorts pour qu'en quelques années, je dispose d'une force qui ne réponde qu'à moi. »
+« Plutôt que de rejoindre le manoir du général de l'aile gauche, je préfère rester ici et instruire les habitants afin qu'ils obéissent à mes ordres. Je leur enseignerai des sorts pour que, d'ici de nombreuses années, je dispose d'une force qui ne réponde qu'à moi. »
 
 Une expression pensive traversa le visage de Wang Lin, avant de se muer en une résolution inflexible.
 

@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 276 - Stealing The Earth Spirit
 slug: voler-lesprit-de-la-terre
 ---
-Wang Lin affichait un visage sombre alors qu'il se dissimulait dans la montagne enneigée. Si Xue Yue ne possédait que cela, l'Alliance des Quatre Sectes l'emporterait sans aucun doute, mais il ressentait pourtant un étrange sentiment de danger.
+Wang Lin affichait un visage sombre alors qu'il se dissimulait dans la montagne enneigée. Si Xue Yu ne possédait que cela, l'Alliance des Quatre Sectes l'emporterait sans aucun doute, mais il ressentait pourtant un étrange sentiment de danger.
 
 Il réfléchit un instant, puis ses yeux s'illuminèrent: son sens divin venait de détecter l'Esprit de la Terre. Son corps dégageait une fumée noire et s'envolait en direction de la montagne depuis la Secte de l'Âme Noire. Derrière lui, le jeune homme au pinceau le poursuivait avec désinvolture. À chaque mouvement du pinceau dans sa main, l'Esprit de la Terre tremblait et une quantité accrue de fumée noire émanait de lui.
 
 En voyant cela, Wang Lin hésita. Après un moment, il prit une décision. Il quitta silencieusement la montagne enneigée et chargea vers l'Esprit de la Terre en utilisant sa technique d'évasion tellurique.
 
-Il se rapprochait de plus en plus: 4000 kilomètres, 3500 kilomètres, 5 000 kilomètres, 1 500 kilomètres...
+Il se rapprochait de plus en plus: 4000 kilomètres, 3500 kilomètres, 2 500 kilomètres, 1 500 kilomètres...
 
 Lorsqu'il fut à 1 500 kilomètres, le corps de Wang Lin disparut soudainement. À sa réapparition, il n'était plus qu'à 1000 kilomètres. Il frappa immédiatement son front et cracha le sceau noir.
 
@@ -74,9 +74,9 @@ De plus, l'endommagement du drapeau de restriction lui causait une vive douleur 
 
 Caché dans une montagne de neige, Wang Lin vérifia la perle défiant le ciel et constata que l'élément terre était totalement comblé. Il ne lui manquait désormais que le bois et le métal pour parfaire la perle.
 
-À cet instant précis, le sol trembla et d'innombrables sculptures de glace représentant des serpents dotés de mains humaines émergèrent de la terre.
+À cet instant précis, le sol trembla et d'innombrables sculptures de glace représentant des serpents dotés de têtes humaines émergèrent de la terre.
 
-Ces sculptures étaient les objets mystérieux que Wang Lin avait découverts enfouis à plus de 5 000 kilomètres sous la surface.
+Ces sculptures étaient les objets mystérieux que Wang Lin avait découverts enfouis à plus de 16,5 kilomètres sous la surface.
 
 Une à une, les sculptures s'élevèrent à travers le sol enneigé. Si l'on observait la scène d'en haut, on aurait remarqué que ces statues formaient un dessin cohérent. Cette image était identique aux serpents à tête humaine dépeints sur les sculptures de glace elles-mêmes.
 

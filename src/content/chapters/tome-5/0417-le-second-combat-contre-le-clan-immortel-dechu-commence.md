@@ -18,7 +18,7 @@ Du Tian laissa échapper un rire. Il était très satisfait des actions de Wang 
 
 Du Tian déclara: « Ne perdons plus de temps. Selon les règles, donnez-moi la moitié de vos jades célestes! »
 
-La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Immortel Déchu approche, si mon Secte des Insectes Démoniaques est en danger, vous devrez nous aider immédiatement! »
+La vieille femme réfléchit un instant. Elle observa Du Tian avant que ses yeux ne s'illuminent et qu'elle ne dise: « Je peux vous donner la moitié de nos jades célestes, mais alors que le combat contre le Clan Immortel Déchu approche, si ma Secte des Insectes Démoniaques est en danger, vous devrez nous aider immédiatement! »
 
 Du Tian la regarda et répondit: « Cela dépendra du nombre de jades célestes que vous me remettrez. »
 
@@ -34,11 +34,11 @@ C'est ainsi que Du Tian emmena Wang Lin à travers Pilu, pillant une quantité m
 
 La notoriété de la Secte du Raffinage de l'Âme était tristement célèbre. Les deux autres sectes de Pilu étaient furieuses, mais comme la Secte du Raffinage de l'Âme avait toujours agi ainsi, elles finissaient par céder les jades célestes.
 
-Du Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci? C'est ainsi que mon Secte du Raffinage de l'Âme a agi pendant des dizaines de milliers d'années. Lorsque tu posséderas le drapeau des âmes du milliard de fragments, tu devras agir de même, sans quoi tu terniras le nom de mon Secte. »
+Du Tian tapota son sac de rangement et sourit à Wang Lin: « Tu vois tout ceci? C'est ainsi que ma Secte du Raffinage de l'Âme a agi pendant des dizaines de milliers d'années. Lorsque tu posséderas le drapeau des âmes du milliard de fragments, tu devras agir de même, sans quoi tu terniras le nom de ma Secte. »
 
 Bien que son corps fût imprégné d'une aura de mort, Wang Lin pouvait ressentir un certain soulagement dans le cœur de Du Tian.
 
-« Il y a bien longtemps, un ancêtre de mon Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau des âmes du milliard de fragments, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
+« Il y a bien longtemps, un ancêtre de ma Secte voulait atteindre le stade Ascendant. La quantité de jades célestes dont il avait besoin était bien supérieure à ce que tu requiers. Finalement, après avoir passé en revue toute la planète, il se rendit dans le pays de Suzaku. Avec le drapeau des âmes du milliard de fragments, même les cultivateurs Ascendants n'osaient pas s'en prendre à lui. Il a ainsi pu s'emparer des jades célestes par la force », raconta Du Tian.
 
 Wang Lin eut un sourire amer. Il pouvait imaginer le mal de tête que les cultivateurs Ascendants de Suzaku avaient dû ressentir à l'époque. Donner les jades célestes revenait presque à leur offrir de l'argent gratuitement. Après tout, chaque génération détenant ce drapeau était une tyrannie.
 

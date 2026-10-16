@@ -10,7 +10,7 @@ Un vieil homme extrêmement maigre sortit de la section de la Secte Lou He. Il p
 
 Dès que la Pilule du Ciel Lointain fut mentionnée, Wang Lin remarqua que tous les cultivateurs environnants devinrent tendus, leur respiration se faisant saccadée.
 
-Il existait quelques informations sur cette pilule dans la mémoire de Ma Liang. Il n'y avait pas plus de trente exemplaires de ces pilules à Huo Fen; elles pouvaient être considérées comme l'une des ressources les plus prestigieuses de la région, car elles augmentaient les chances de réussir la Formation du Noyau. Si un cultivateur venant tout juste de former son noyau en consommait une, il entrerait immédiatement dans le stade initial de la Formation du Noyau et stabiliserait sa base. L'ingrédient principal avait depuis longtemps disparu; ces trente pilules environnantes étaient précieusement conservées depuis plus de mille ans.
+Il existait quelques informations sur cette pilule dans la mémoire de Ma Liang. Il n'y avait pas plus de trente exemplaires de ces pilules à Huo Fen; elles pouvaient être considérées comme l'une des ressources les plus prestigieuses de la région, car elles augmentaient les chances de réussir la Formation du Noyau. Si un cultivateur au stade de la Formation du Noyau en consommait une, il atteindrait directement le stade stable lors de sa prochaine percée. L'ingrédient principal avait depuis longtemps disparu; ces trente pilules environnantes étaient précieusement conservées depuis plusieurs milliers d'années.
 
 Par la suite, cinq mille cultivateurs furent répartis en équipes, chacune ayant sa propre mission. Wang Lin en faisait partie.
 
@@ -18,7 +18,7 @@ Les équipes devaient se disperser pour éliminer tout cultivateur croisé sur l
 
 Wang Lin fut affecté à la 8e escouade de la 10e brigade. L'escouade comptait trente personnes, issues de diverses sectes. Elle comprenait cinq cultivateurs au stade de l'Établissement des Fondations, tandis que les autres étaient aux 13e ou 14e niveaux de Condensation de Qi. Le chef de groupe était un cultivateur au stade de la Formation du Noyau de la Secte du Démon Maléfique. Pour une raison quelconque, Wang Lin était le seul membre du Sanctuaire du Dieu de la Guerre au sein de son unité.
 
-Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une veine spirituelle de taille moyenne. En tant que cultivateur de l'Établissement des Fondations du Sanctuaire du Dieu de la Guerre, Wang Lin reçut un trésor de stade Formation du Noyau. Ce trésor n'était pas très puissant: bien qu'il pût être utilisé à plusieurs reprises, la qualité de chaque attaque restait médiocre. On aurait pu dire qu'il était assez insignifiant.
+Leur mission consistait à aider la 10e brigade à prendre le contrôle d'une veine spirituelle de taille moyenne. En tant que cultivateur de l'Établissement des Fondations du Sanctuaire du Dieu de la Guerre, Wang Lin reçut un trésor de stade Formation du Noyau. Ce trésor n'était pas très puissant: comme ils étaient distribués en grand nombre, la qualité de chacun était médiocre. On aurait pu dire qu'il était assez insignifiant.
 
 Avant son départ, Feng Luan ordonna à quelqu'un d'appeler Wang Lin.
 
@@ -38,7 +38,7 @@ Wang Lin n'avait initialement pas l'intention de s'impliquer dans cette guerre, 
 
 Une pilule capable d'augmenter ses chances de réussir la Formation du Noyau était un bien indispensable. Selon ses plans, il avait déjà une forte probabilité de réussir une fois ses trois noyaux froids créés, mais le risque d'échec subsistait.
 
-Wang Lin brûlait d'envie d'atteindre le stade de la Formation du Noyau. Une fois son noyau formé avec succès, il deviendrait le premier cultivateur sous le stade de l'Âme Naissante. Il ne pouvait donc se permettre aucune erreur. Avec la Pilule du Ciel Lointain et la Méthode de l'Ascension des Enfers, il était confiant à 80 % dans sa réussite.
+Wang Lin brûlait d'envie d'atteindre le stade de la Formation du Noyau. Une fois son noyau formé avec succès, il deviendrait le premier cultivateur sous le stade de l'Âme Naissante. Il ne pouvait donc se permettre aucune erreur. Avec la Pilule du Ciel Lointain et la Méthode de l'Ascension des Enfers, il était confiant à au moins 80 % dans sa réussite.
 
 En y pensant, son regard dégagea une puissante intention meurtrière.
 
@@ -58,7 +58,7 @@ Le temps passa lentement. Soudain, Wang Lin ouvrit les yeux. Il regarda au loin 
 
 Sur ce, il fit un pas et son corps jaillit comme une lame. Le reste de la 8e escouade s'élança dans les airs pour former un barrage.
 
-Les deux camps ne perdirent pas de temps en discours. Dès qu'ils se virent, ils attaquèrent. Les quelque quinze cultivateurs de Xuan Wu étaient tous au stade de l'Établissement des Fondations; lorsqu'ils aperçurent Zhou Zili, huit d'entre eux déployèrent une étrange formation d'épées pour l'encercler. Soudain, Zhou Zili se retrouva piégé dans la formation, incapable de s'échapper, ce qui le fit jurer bruyamment.
+Les deux camps ne perdirent pas de temps en discours. Dès qu'ils se virent, ils attaquèrent. Les quelque quinze cultivateurs de Xuan Wu étaient tous au stade de l'Établissement des Fondations; lorsqu'ils aperçurent Zhang Zili, huit d'entre eux déployèrent une étrange formation d'épées pour l'encercler. Soudain, Zhang Zili se retrouva piégé dans la formation, incapable de s'échapper, ce qui le fit jurer bruyamment.
 
 Les sept autres commencèrent leur combat contre la 8e escouade.
 
@@ -68,34 +68,34 @@ Son Sens Divin du Royaume Ji se propagea et les yeux des six autres cultivateurs
 
 Du point de vue d'un observateur extérieur, ces sept cultivateurs de l'Établissement des Fondations avaient péri sous les coups de l'épée de Wang Lin. Ils ignoraient que les âmes mêmes de ces cultivateurs avaient été annihilées.
 
-À la mort de ces sept hommes, les deux camps furent stupéfaits. Que ce soient les huit cultivateurs encerclant Zhou Zili, le chef lui-même ou le reste de la 8e escouade, tous les regards se fixèrent sur Wang Lin.
+À la mort de ces sept hommes, les deux camps furent stupéfaits. Que ce soient les huit cultivateurs encerclant Zhang Zili, le chef lui-même ou le reste de la 8e escouade, tous les regards se fixèrent sur Wang Lin.
 
 Cette épée volante meurtrière flottait désormais autour de Wang Lin, dégageant une aura glaciale.
 
-Les visages des huit personnes entourant Zhou Zili pâlirent instantanément. L'un d'eux cria précipitamment: « Retraite! » Presque aussitôt, les huit s'enfuirent en tentant désespérément de s'échapper.
+Les visages des huit personnes entourant Zhang Zili pâlirent instantanément. L'un d'eux cria précipitamment: « Retraite! » Presque aussitôt, les huit s'enfuirent en tentant désespérément de s'échapper.
 
-Zhou Zili regarda Wang Lin avec une pointe de terreur. Il n'était pas certain de pouvoir abattre sept cultivateurs de l'Établissement des Fondations aussi instantanément. Il était convaincu que Wang Lin cachait son véritable niveau de culture pour paraître comme un simple expert du milieu de l'Établissement des Fondations. Il jura intérieurement, avant de se dire que cette idée était excellente: une fois que l'ennemi baisserait sa garde, de grandes opportunités se présenteraient.
+Zhang Zili regarda Wang Lin avec une pointe de terreur. Il n'était pas certain de pouvoir abattre sept cultivateurs de l'Établissement des Fondations aussi instantanément. Il était convaincu que Wang Lin cachait son véritable niveau de culture pour paraître comme un simple expert du milieu de l'Établissement des Fondations. Il jura intérieurement, avant de se dire que cette idée était excellente: une fois que l'ennemi baisserait sa garde, de grandes opportunités se présenteraient.
 
 Mais rien de tout cela n'importait pour le moment. Ces huit cultivateurs de l'Établissement des Fondations avaient réussi à utiliser une sorte de formation pour le piéger, ce qui était très embarrassant, surtout devant son propre groupe.
 
-Le visage de Zhou Zili s'assombrit alors qu'il chargeait pour les poursuivre. Juste au moment où il allait les rattraper, les huit cultivateurs utilisèrent une technique étrange d'où s'échappa une vapeur blanche. Cette brume enveloppa leurs jambes et multiplia leur vitesse par dix.
+Le visage de Zhang Zili s'assombrit alors qu'il chargeait pour les poursuivre. Juste au moment où il allait les rattraper, les huit cultivateurs utilisèrent une technique étrange d'où s'échappa une vapeur blanche. Cette brume enveloppa leurs jambes et accrut leur vitesse de plus du double.
 
-Zhou Zili ricana. Il forma un sceau de ses deux mains qu'il pressa contre sa poitrine. Soudain, il cracha un noyau doré qui dégageait une intense énergie spirituelle. D'un geste du doigt, il projeta le noyau qui rattrapa rapidement les huit fuyards. Le noyau doré percuta trois d'entre eux avant de revenir vers lui.
+Zhang Zili ricana. Il forma un sceau de ses deux mains qu'il pressa contre sa poitrine. Soudain, il cracha un noyau doré qui dégageait une intense énergie spirituelle. D'un geste du doigt, il projeta le noyau qui rattrapa rapidement les huit fuyards. Le noyau doré percuta trois d'entre eux avant de revenir vers lui.
 
 Les trois victimes crachèrent du sang et chutèrent du ciel.
 
-Les cinq restants ne s'arrêtèrent pas pour autant, poussant leur corps à l'extrême pour s'échapper. Zhou Zili poussa un rugissement de rage, au moment même où les corps des cinq survivants devenaient soudainement inertes et tombaient du ciel.
+Les cinq restants ne s'arrêtèrent pas pour autant, poussant leur corps à l'extrême pour s'échapper. Zhang Zili poussa un rugissement de rage, au moment même où les corps des cinq survivants devenaient soudainement inertes et tombaient du ciel.
 
 Zhang Zili devint soudain très prudent en voyant Wang Lin approcher de loin. Son expression changea brusquement. Juste au moment où il allait parler, la voix de Wang Lin retentit:
 
-« Au moins 100 cultivateurs arrivent par derrière nous! » Sur ces mots, il passa devant le corps de Zhou Zili et disparut au loin.
+« Au moins 100 cultivateurs arrivent par derrière nous! » Sur ces mots, il passa devant le corps de Zhang Zili et disparut au loin.
 
-Au même instant, Zhou Zili remarqua également plus de cent épées volantes approcher à l'horizon. Il se retourna pour fuir, mais vit que Wang Lin s'était déjà volatilisé. Il ne put s'empêcher de jurer intérieurement.
+Au même instant, Zhang Zili remarqua également plus de cent épées volantes approcher à l'horizon. Il se retourna pour fuir, mais vit que Wang Lin s'était déjà volatilisé. Il ne put s'empêcher de jurer intérieurement.
 
 Le reste de la 8e escouade, voyant la situation dégénérer, battit en retraite vers la veine spirituelle.
 
-Après s'être éloigné, Wang Lin s'assura qu'il n'y avait personne aux alentours avant de s'enfoncer dans le sol grâce à la technique d'évasion terrestre pour se diriger vers le sud.
+Après s'être éloigné, Wang Lin s'assura qu'il n'y avait personne aux alentours avant de s'enfoncer dans le sol grâce à la technique d'évasion terrestre pour se diriger vers l'ouest.
 
-Il venait de tuer 12 cultivateurs de l'Établissement des Fondations; il ne lui en fallait donc plus que 38 pour obtenir le deuxième fragment de la carte. Ce serait extrêmement difficile s'il voyageait avec ses coéquipiers. Bien que ce soit moins sûr, il devait agir seul s'il voulait accumuler suffisamment de victimes pour obtenir la Pilule du Ciel Lointain.
+Il venait de tuer 12 cultivateurs de l'Établissement des Fondations; il ne lui en fallait donc plus que 38 pour obtenir le deuxième fragment de la carte. S'il voyageait avec ses coéquipiers, il serait plus en sécurité, mais il devait agir seul s'il voulait accumuler suffisamment de victimes pour obtenir la Pilule du Ciel Lointain.
 
 Des centaines d'épées volantes passèrent en direction de la veine spirituelle. Wang Lin les observa d'un regard froid et les suivit.

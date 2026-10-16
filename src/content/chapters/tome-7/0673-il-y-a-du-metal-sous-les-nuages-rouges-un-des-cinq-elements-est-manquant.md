@@ -38,11 +38,11 @@ Parmi les crépitements de la foudre, l'onde émise par la pierre de jade fut to
 
 Le seul moyen de briser ces restrictions était le lignage.
 
-Si cela avait été le seul cas, cela ne l'aurait pas autant troublé. Ce qui attira véritablement son attention fut le message laissé dans la pierre par le membre de la famille Huan!
+Si cela avait été le seul cas, cela ne l'aurait pas autant troublé. Ce qui attira véritablement son attention fut le message laissé dans la pierre par le membre de la famille Huan mort quatre ans plus tôt!
 
 « Sur la planète Yun Xia, j'ai découvert une veine de métal à flamme. J'en ai pris deux morceaux... »
 
-La lueur mystérieuse dans ses yeux brillait comme un phare. Il fixa la pierre et murmura: « Une veine de métal à flamme... une veine... Pas étonnant qu'il ait été traqué jusqu'à être gravement blessé. Quiconque la découvre doit immédiatement tuer tous les témoins pour étouffer la nouvelle. »
+La lueur mystérieuse dans ses yeux brillait comme un phare. Il fixa la pierre et murmura: « Une veine de métal à flamme... une veine... Pas étonnant qu'il ait été traqué jusqu'à être gravement blessé. Quiconque la découvre s'empresse de s'en emparer et d'étouffer toute information à ce sujet. »
 
 « Cela confirme que les trois n'ont pas examiné cette pierre, sinon ils ne m'auraient pas laissé entrer ici... Bien sûr, je ne peux exclure l'éventualité que quelque chose d'autre se cache derrière tout cela. »
 
@@ -80,7 +80,7 @@ Wang Lin les regarda froidement et dit calmement: « Je ne briserai pas ma prome
 
 S'ils ne lui avaient pas donné toutes ces pierres célestes, Wang Lin n'aurait même pas pris la peine de s'expliquer.
 
-Après avoir entendu l'explication de Wang Lin, l'ancêtre de la famille Ran hésita: « J'ignore quelle urgence retient le Compagnon Cultivateur Xu. Je me demande si l'un ou deux d'entre nous pourraient vous accompagner. »
+Après avoir entendu l'explication de Wang Lin, l'ancêtre de la famille Ran hésita: « J'ignore quelle urgence retient le Compagnon Cultivateur Xu. Nous pourrions peut-être nous charger d'une ou deux de ces affaires à votre place. »
 
 Le Sage sans Souci ajouta d'un ton sérieux: « Ne nous en veuillez pas, Compagnon Cultivateur Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
 
@@ -94,7 +94,7 @@ Les visages des trois autres changèrent également. Ils levèrent les yeux vers
 
 À cet instant, à l'extérieur de la planète Ran Yun, Huan Dong approchait rapidement. Ses yeux étaient froids et empreints d'arrogance alors qu'il fonçait droit sur la planète.
 
-« Maîtresse m'a permis de régler cette affaire; je dois donc le faire proprement pour qu'elle remarque mon mérite! Tous les impliqués seront éliminés! » Le fanatisme dans les yeux de Huan Dong s'intensifiait.
+« Maîtresse m'a confié cette affaire; je dois donc le faire proprement pour qu'elle remarque mon mérite! Tous les impliqués seront éliminés! » Le fanatisme dans les yeux de Huan Dong s'intensifiait.
 
 Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphère de la planète Ran Yun telle une météorite. Sa descente était d'une arrogance suprême. Il déploya son sens divin avec frénésie, y insufflant même de l'énergie spirituelle céleste pour envelopper la planète. Cette scène prodigieuse donnait l'impression de voir un dieu descendre parmi les hommes.
 
@@ -102,7 +102,7 @@ Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphè
 
 « Je suis Huan Dong, membre de second rang de la famille Huan de la planète des Mille Illusions. Que tous les cultivateurs Ascendants de la planète Ran Yun viennent me voir sans tarder! » Sa voix froide, chargée d'arrogance, tonna comme le tonnerre à travers la planète. Tous les cultivateurs sous le stade Ascendant furent choqués par ce cri; certains, de bas niveau, crachèrent même du sang sous l'effet du choc.
 
-La jeune femme sous le rocher était l'une d'entre eux. Elle était en pleine culture lorsqu'elle fut frappée par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
+Le jeune homme sous le rocher était l'un d'entre eux. Il était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
 
 Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, le Sage sans Souci et Sun Xi devinrent soudainement livides.
 
@@ -124,4 +124,4 @@ Pour qu'un cultivateur atteigne le stade Ascendant, son domaine doit fusionner a
 
 Son domaine était l'élément métal. Le métal représentait l'invincibilité. Son domaine bougeait au rythme de ses sorts et sa main s'illumina. À cet instant, il semblait que cette lumière avait remplacé celle du ciel ou qu'elle en avait absorbé toute la clarté. Utilisant la puissance de cette lumière, il pressa sa main vers le bas.
 
-L'expression de Wang Lin resta de marbre. La foudre traversa ses yeux et se propagea sur tout son corps. Il ressemblait à une divinité céleste régnant sur toute chose. Il pointa un doigt et le Doigt de la Mort jaillit. Ce doigt contenait une foudre si puissante qu'il surpassait de loin l'entendement humain. Quiconque l'observait avec attention aurait eu le sentiment de faire face à une divine rétribution.
+L'expression de Wang Lin resta de marbre. La foudre traversa ses yeux et se propagea sur tout son corps. Il ressemblait à une divinité céleste régnant sur toute chose. Il pointa un doigt et le Doigt de la Mort jaillit. Sa puissance avait été multipliée plusieurs fois; ce doigt contenait une foudre qui dépassait de loin l'entendement humain. Quiconque l'observait avec attention aurait eu le sentiment de faire face à une tribulation divine de foudre.

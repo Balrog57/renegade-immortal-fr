@@ -16,7 +16,7 @@ Plus de 3 000 filaments d'énergie de massacre se condensèrent rapidement pour 
 
 Wang Lin ne daigna plus regarder la lame et son regard glacial se posa sur Xu Liguo.
 
-Le corps de Xu Liguo frissonna et il gloussa: « Maître, quel est votre ordre? Voulez-vous que j'aille persuader Little Black? Je le rendrai absolument obéissant à l'avenir! »
+Le corps de Xu Liguo frissonna et il gloussa: « Maître, quel est votre ordre? Voulez-vous que j'aille persuader la petite lame noire? Je le rendrai absolument obéissant à l'avenir! »
 
 Wang Lin fixa Xu Liguo et demanda: « Sais-tu pourquoi je ne te laisse pas aller chercher cet esprit de lame? »
 
@@ -34,7 +34,7 @@ Wang Lin dit lentement: « Tu as pas mal appris de l'esprit de la lame en forme 
 
 Xu Liguo cligna des yeux et, sans hésiter, raconta à Wang Lin tous les sorts de lame qu'il avait appris, y compris comment dissimuler sa présence, fusionner complètement avec l'épée céleste, et comment, à pleine puissance, rendre l'épée plusieurs fois plus forte, et ainsi de suite.
 
-Tout en parlant, il sondait secrètement l'humeur de Wang Lin avec une extrême prudence. Il n'avait pas ressenti cela depuis des centaines d'années, mais maintenant que le sentiment revenait, il ne lui semblait pas du tout étranger.
+Tout en parlant, il sondait secrètement l'humeur de Wang Lin avec une extrême prudence. Il n'avait pas ressenti cela depuis plus d'un siècle, mais maintenant que le sentiment revenait, il ne lui semblait pas du tout étranger.
 
 Après avoir écouté Xu Liguo, Wang Lin tendit la main vers la sphère formée par l'énergie de massacre. Il n'y avait plus aucun bruit provenant de l'intérieur. Lorsque Wang Lin toucha la petite sphère, les filaments d'énergie de massacre retournèrent dans son corps.
 
@@ -50,7 +50,7 @@ La lame en forme de demi-lune flottait dans les airs et, remarquant que Xu Liguo
 
 Pour être plus précis, la lame suivait Xu Liguo.
 
-Xu Liguo, à l'intérieur de l'épée céleste, regarda la lame noire avec un sentiment de fierté: « Tu vois, même ce démon ne peut soumettre Little Black, et tout ce que j'ai eu à faire, c'est agiter un doigt pour en faire mon petit frère. On dirait que mon charme est bien plus puissant que celui de ce démon! »
+Xu Liguo, à l'intérieur de l'épée céleste, regarda la lame noire avec un sentiment de fierté: « Tu vois, même ce démon ne peut soumettre la petite lame noire, et tout ce que j'ai eu à faire, c'est agiter un doigt pour en faire mon petit frère. On dirait que mon charme est bien plus puissant que celui de ce démon! »
 
 En y pensant, il se sentit très satisfait: « Peu importe la force de ce démon, il ne pourra jamais m'égaler sur ce point. De plus, je suis bien plus flexible que lui! Et j'ai plus de chance avec les beautés. La grande beauté et la petite beauté sont à moi; il ne peut rien faire contre ça. »
 
@@ -60,7 +60,7 @@ Wang Lin frappa son sac de stockage et Xu Liguo s'y engouffra rapidement, suivi 
 
 Dans le pavillon des épées du palais impérial, l'épée serpentine trembla. Puis elle prit la forme d'une jeune fille, fronça le nez et dit avec férocité: « Cet esprit d'épée méprisable et sans vergogne ne doit plus jamais croiser mon chemin! Si je le revois, même si cela va à l'encontre des ordres de l'Empereur, je prendrai l'épée et je le trancherai en deux! »
 
-Après avoir récupéré l'épée et la lame, Wang Lin retourna à Hong City. La journée était écoulée et la nuit était tombée alors qu'il volait vers le Manoir Mo.
+Après avoir récupéré l'épée et la lame, Wang Lin retourna à la ville de Hong. La journée était écoulée et la nuit était tombée alors qu'il volait vers le Manoir Mo.
 
 En plein vol, il fronça les sourcils, s'arrêta et dit: « Qu'est-ce que c'est? »
 
@@ -162,7 +162,7 @@ Le jeune homme demanda: « Y a-t-il quelqu'un d'autre chez vous? »
 
 « Personne. Et vous? » Wang Lin but à sa cruche.
 
-« J'ai une nièce, mais elle est bien trop espiègle, et récemment, elle a été importunée par un client peu scrupuleux! » En disant cela, le jeune homme sourit.
+« J'ai une nièce, mais elle est bien trop espiègle, et récemment, elle a été importunée par un importun malintentionné! » En disant cela, le jeune homme sourit.
 
 Ils discutèrent encore un peu avant de manquer de mots, puis ils restèrent assis en silence. Baignés par la lumière lunaire, les deux hommes écoutaient la cithare tout en buvant du vin.
 

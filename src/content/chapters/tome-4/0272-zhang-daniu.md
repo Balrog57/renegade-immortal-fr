@@ -34,9 +34,9 @@ Les flocons dans le ciel s'amenuisaient, mais la chute ne cessait jamais.
 
 Durant ces jours sombres, de nombreux mortels tentaient de s'enfuir en secret vers les pays voisins. Même s'ils devaient tout abandonner, ils espéraient au moins y trouver un semblant de vie.
 
-On racontait que dans les pays adjacents, les nuages n'existaient pas. C'était là-bas que régnait le véritable printemps; tout y était normal et le soleil y brillait de mille feux.
+On racontait que dans les pays voisins, il ne neigeait pas. C'était là-bas que régnait le véritable printemps; tout y était normal et le soleil y brillait de mille feux.
 
-Le matin, Da Niu fut le premier à s'éveiller. Il se leva de son lit. Derrière lui dormait le second fils d'un marchand de la même rue. Ce jeune homme était un travailleur acharné qui collaborait souvent avec Da Niu.
+Le matin, Da Niu fut le premier à s'éveiller. Il se leva de son lit. Derrière lui dormait le second fils de la famille Zhou, de la même rue. Ce jeune homme était un travailleur acharné qui collaborait souvent avec Da Niu.
 
 C'était un garçon simple. Da Niu tenta de le bousculer pour le réveiller, mais il se figea instantanément. En posant sa main sur le nez du garçon, il esquissa un sourire amer. « Il est mort... » murmura-t-il.
 
@@ -104,7 +104,7 @@ Wang Lin déposa le couple et posa sa main sur la barrière lumineuse. Il y inje
 
 Wang Lin poussa un soupir. Il effleura les fronts du couple, laissa derrière lui un petit paquet, puis se retourna et disparut.
 
-Quelque temps plus tard, Da Niu ouvrit les yeux. Il eut l'impression d'avoir simplement rêvé de son oncle Wang. Pour une raison inexplicable, l'image de cet oncle s'était transformée pour redevenir le vieil homme qu'il avait connu enfant.
+Quelque temps plus tard, Da Niu ouvrit les yeux. Il eut l'impression d'avoir simplement rêvé de son oncle Wang. Pour une raison inexplicable, l'image de cet oncle s'était transformée pour redevenir le jeune homme qu'il avait connu autrefois.
 
 Il poussa un soupir, puis regarda soudain la femme à ses côtés et poussa un cri. Il se redressa précipitamment pour la secouer. La femme se réveilla et fixa Da Niu avec étonnement. Après un instant, les deux s'étreignirent en pleurant.
 
@@ -112,8 +112,8 @@ Après avoir cessé de sangloter, l'épouse de Da Niu demanda: « Da Niu, pourqu
 
 Da Niu resta silencieux, le regard perdu vers le ciel. Après un long moment, il soupira. Il savait que ce qui venait de se produire n'était pas un rêve, mais la réalité. Sans un mot, il serra simplement sa femme contre lui avant de porter son regard vers le tunnel et le paquet posé au sol.
 
-En ouvrant le paquet, il y découvrit une grande quantité d'or. Lui et sa femme se prosternèrent tous deux en direction de la capitale tandis qu'il murmurait: « Oncle Wang... merci... »
+En ouvrant le paquet, il y découvrit une grande quantité d'or et d'argent. Lui et sa femme se prosternèrent tous deux en direction de la capitale tandis qu'il murmurait: « Oncle Wang... merci... »
 
-Il ramassa le paquet et entraîna sa femme à travers le tunnel. Peu après que Da Niu eut quitté l'Alliance des Quatre Sectes, Wang Lin apparut à l'endroit même où ils s'étaient prosternés. En regardant les silhouettes de Da Niu et de son épouse s'éloigner, ses yeux se remplirent de larmes.
+Il ramassa le paquet et entraîna sa femme à travers le tunnel. Peu après que Da Niu eut quitté l'Alliance des Quatre Sectes, Wang Lin apparut à l'endroit même où ils s'étaient prosternés. En regardant les silhouettes de Da Niu et de son épouse s'éloigner, un léger apaisement passa dans son regard.
 
 Grâce à son Sens Divin, il savait qu'une petite ville se trouvait non loin de là; il leur suffisait de suivre la route principale pour l'atteindre. Da Niu passa le reste de sa vie là-bas. Jusqu'à son dernier souffle, il ne put oublier l'oncle Wang qui l'avait vu grandir. Hélas, il n'eut jamais la chance de revoir Wang Lin.

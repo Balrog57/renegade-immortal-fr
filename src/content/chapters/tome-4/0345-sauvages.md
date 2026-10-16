@@ -16,9 +16,9 @@ Le groupe de six personnes mené par le vieux Hu était assis à l'entrée de ce
 
 Le vieux Hu était assis en tailleur. Il attendait ici depuis près d'un mois. Bien qu'ils n'aient rencontré aucun danger en chemin, un pressentiment lui glaçait le sang tout au long du voyage.
 
-En tant que cultivateur de la Transformation de l'Âme, il ne croyait pas que ce genre de sensation puisse survenir sans raison. Désormais, à proximité du gouffre, ce sentiment était encore plus intense.
+En tant que cultivateur de la Formation de l'Âme, il ne croyait pas que ce genre de sensation puisse survenir sans raison. Désormais, à proximité du gouffre, ce sentiment était encore plus intense.
 
-Le vieux Hu songea: « Avec l'arrivée du camarade Wang, nous serons trois cultivateurs de la Transformation de l'Âme. Tant que nous ne nous enfonçons pas trop, il ne devrait pas y avoir de problème... »
+Le vieux Hu songea: « Avec l'arrivée du camarade Wang, nous serons trois cultivateurs de la Formation de l'Âme. Tant que nous ne nous enfonçons pas trop, il ne devrait pas y avoir de problème... »
 
 Il y a de nombreuses années, il était venu ici et s'était rendu au troisième étage. Malgré les nombreux dangers, il avait réussi à obtenir ce qu'il cherchait avant de repartir.
 
@@ -36,7 +36,7 @@ Il n'avait pas détaillé tous ces aspects à Wang Lin.
 
 Le vieux Hu se retourna face au gouffre. À cet instant précis, un bang sonore retentit au loin, attirant l'attention de tous.
 
-Ils virent une bête de la taille d'une colline apparaître soudainement devant eux. Sur le dos de la créature se tenait un jeune homme vêtu de blanc. C'était Wang Lin.
+Ils virent une bête de la taille d'une colline apparaître soudainement devant eux. Sur la tête de la créature se tenait un jeune homme vêtu de blanc. C'était Wang Lin.
 
 Le vieux Hu afficha un sourire satisfait et dit: « Puisque le frère Wang est arrivé, notre expédition sera une réussite assurée! »
 
@@ -138,7 +138,7 @@ Il ne posa pas davantage de questions. Avec son tempérament, à moins que l'aid
 
 Au deuxième étage, ils apercevaient occasionnellement des ossements ou même des cadavres de bêtes en décomposition. Ils différaient tous de ceux de la Mer des Démons; Wang Lin n'en reconnut aucun.
 
-Alors qu'ils pénétraient dans ce niveau, Wang Lin fut surpris par une lueur sombre apparue à cent pieds d'eux. La lumière ne chercha pas à s'approcher, mais se mua en un sauvage.
+Alors qu'ils pénétraient dans ce niveau, Wang Lin fut surpris par une lueur sombre apparue à une trentaine de mètres d'eux. La lumière ne chercha pas à s'approcher, mais se mua en un sauvage.
 
 Ce dernier était très différent de ceux du premier étage. Plus d'un quart de son corps était couvert de tatouages noirs et floraux. Ses yeux n'étaient pas rouges mais d'une grande clarté; pourtant, si l'on regardait de près, on y percevait une lueur mystérieuse.
 

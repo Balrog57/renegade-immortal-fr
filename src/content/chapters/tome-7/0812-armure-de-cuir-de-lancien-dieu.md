@@ -8,11 +8,11 @@ slug: armure-de-cuir-de-lancien-dieu
 ---
 Au moment où l'homme en robe bleue mourut, la porte de l'autel se referma. Bien que l'expression de Wang Lin fût calme, son cœur fut ébranlé lorsqu'il observa le papillon aux cinq couleurs qui voletait près de lui. Après un bref instant de réflexion, Wang Lin leva sa main droite pour former un sceau et le pressa délicatement vers le papillon.
 
-Les ailes du papillon s'immobilisèrent, puis se transformèrent en une pluie de lueurs multicolores qui se dissipèrent lentement. Un instant plus tard, elles reprirent leur forme initiale: celle du Char de Guerre Déicide.
+Les ailes du papillon s'immobilisèrent, puis se transformèrent en une pluie de lueurs multicolores qui se dissipèrent lentement. Un instant plus tard, elles reprirent leur forme initiale: celle du Char de Guerre Anti-Dieu.
 
 Le cœur de Wang Lin se détendit, mais une fine couche de sueur perla sur son front. Cette sensation de transpiration froide était rare pour lui. Cependant, la vision d'un cultivateur au sommet du stade Corporel Yang dont le corps et l'âme originelle s'effondraient totalement suite à un simple battement d'aile du papillon l'avait profondément choqué.
 
-« Avec ce Char de Guerre Déicide et la Paire Dao de la Décadence, je peux affronter des cultivateurs au stade Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan Immortel Élu retrouvèrent leur état normal après la mort de l'homme d'âge moyen. Leurs regards étaient empreints de tristesse et ils restaient en méditation silencieuse sur le sol.
+« Avec ce Char de Guerre Anti-Dieu et la Paire Dao de la Décadence, je peux affronter des cultivateurs au stade du Scruteur du Nirvana! » Les yeux de Wang Lin brillèrent alors qu'il regardait autour de lui. Les membres du Clan Immortel Élu retrouvèrent leur état normal après la mort de l'homme en robe bleue. Leurs regards étaient empreints de tristesse et ils restaient silencieux sur le sol.
 
 Au loin, Ta Shan revint blessé, tenant une grande marmite à la main. Il avait réussi à capturer la bête de brouillard qui s'en prenait aux enfants. Toutefois, ses blessures étaient si graves qu'à son retour, il sombra dans le coma.
 
@@ -38,7 +38,7 @@ Quant à Xu Liguo, il n'en laissait aucune trace; il était sans doute parti che
 
 Alors que le moustique se rapprochait, Wang Lin esquissa un sourire et tapota sa tête. L'insecte afficha une expression de pur contentement avant de s'envoler à nouveau.
 
-Wang Lin avança dans les hautes herbes et, un instant plus tard, atteignit une zone dégagée d'environ mille pieds de large. L'herbe y avait été arrachée pour laisser place à des sillons qui se croisaient, formant un motif complexe, tel une formation.
+Wang Lin avança dans les hautes herbes et, un instant plus tard, atteignit une zone dégagée d'environ trois cent trente mètres de large. L'herbe y avait été arrachée pour laisser place à des sillons qui se croisaient, formant un motif complexe, tel une formation.
 
 Sans même examiner les sillons au sol, Wang Lin s'avança et s'assit au centre de la formation.
 
@@ -62,7 +62,7 @@ Une flamme blanche surgit soudainement et enveloppa l'armure. Celle-ci ne montra
 
 Le précédent propriétaire était très probablement Maître Sans Souci. Bien qu'il fût mort, sa culture était immense. Même à présent, une trace de sens divin, brisé mais indépendant, imprégnait encore l'armure.
 
-« Si dix mille ans de plus s'étaient écoulés, je crains que ce fragment de conscience divine ne se soit éveillé de lui-même. Il aurait développé sa propre volonté et serait devenu le nouvel esprit de l'Armure de Cuir de l'Ancien Dieu! » Grâce à son niveau de culture, Wang Lin était capable de percer la nature profonde des choses. Bien que tous les esprits de trésors ne se forment pas ainsi, c'était le cas pour la majorité d'entre eux.
+« Si quelques dizaines de milliers d'années de plus s'étaient écoulées, je crains que ce fragment de conscience divine ne se soit éveillé de lui-même. Il aurait développé sa propre volonté et serait devenu le nouvel esprit de l'Armure de Cuir de l'Ancien Dieu! » Grâce à son niveau de culture, Wang Lin était capable de percer la nature profonde des choses. Bien que tous les esprits de trésors ne se forment pas ainsi, c'était le cas pour la majorité d'entre eux.
 
 L'énergie originelle enveloppa l'armure tandis que le temps s'écoulait lentement. C'était un processus laborieux; après tout, l'ancien propriétaire était extrêmement puissant, bien plus que l'actuel Wang Lin. Bien que le sens divin fût fragmenté, il ne pouvait être sous-estimé. Surtout qu'il avait évolué au fil des éons pour commencer à se transformer en un véritable esprit de trésor.
 
@@ -88,7 +88,7 @@ C'était une reconnaissance mutuelle. L'Armure de Cuir de l'Ancien Dieu n'eut pa
 
 L'armure s'enfonça complètement en lui, puis s'enroula autour de son âme originelle.
 
-Les yeux de Wang Lin brillèrent intensément alors qu'il prenait une profonde inspiration et pointait entre ses sourcils. Dans un éclair de lumière, son âme originelle jaillit. Bien que l'armure soit presque invisible sous sa forme de dragon antique, Wang Lin sentait clairement que la défense de son âme originelle avait atteint un degré terrifiant.
+Les yeux de Wang Lin brillèrent intensément alors qu'il prenait une profonde inspiration et pointait entre ses sourcils. Dans un éclair de lumière, son âme originelle jaillit. Bien que l'armure soit presque invisible sous sa forme de dragon-tonnerre antique, Wang Lin sentait clairement que la défense de son âme originelle avait atteint un degré terrifiant.
 
 « C'est dommage de ne pas pouvoir tester précisément sa résistance, mais elle ne saurait être faible! » L'âme originelle de Wang Lin regagna son corps.
 

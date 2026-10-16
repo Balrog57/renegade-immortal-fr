@@ -20,7 +20,7 @@ Mo Lihai éclata de rire. Il était manifestement comblé de bonheur. « Frère 
 
 Les yeux de Wang Lin s'illuminèrent et il acquiesça d'un sourire.
 
-Au même moment, au pavillon des épées situé au centre de la ville de Sky Demon, une silhouette vêtue de robes jaunes apparut. Il contempla le pavillon impérial des épées et sourit: « As-tu assez joué? Ne retourne plus à la Prison de Hong; repose-toi quelques jours. »
+Au même moment, au pavillon des épées situé au centre de la Cité du Démon Céleste, une silhouette vêtue de robes jaunes apparut. Il contempla le pavillon impérial des épées et sourit: « As-tu assez joué? Ne retourne plus à la Prison de Hong; repose-toi quelques jours. »
 
 L'épée argentée à l'intérieur de la formation émit plusieurs salves d'hymnes d'épée, comme si elle refusait de céder.
 
@@ -40,7 +40,7 @@ Dès que le massacre débuta, tous les occupants du bassin de sang s'élancèren
 
 Une fois le carnage sans fin achevé, seul l'homme aux cheveux noirs subsistait dans les airs. Ceux qui venaient de renaître affichaient des expressions sereines et ne daignèrent même pas lever les yeux vers le ciel.
 
-La brume de sang entourant le jeune homme s'étendait sur des centaines de pieds. Il prit une profonde inspiration, montrant une rare lueur de lucidité, avant de foncer vers la sortie.
+La brume de sang entourant le jeune homme s'étendait sur plusieurs centaines de mètres. Il prit une profonde inspiration, montrant une rare lueur de lucidité, avant de foncer vers la sortie.
 
 Mais alors qu'il n'avait parcouru que quelques pas, un éclat de lumière argentée jaillit: le dragon argenté apparut soudainement et projeta sa griffe massive. L'homme aux cheveux noirs, au cœur de la brume de sang, esquissa un sourire amer.
 
@@ -60,7 +60,7 @@ Ce cycle se répéta. À chaque renaissance, le dragon argenté le tuait. Après
 
 Oublions la Prison de Hong pour l'instant.
 
-Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la ville de Sky Demon, tandis que les divers généraux démons affinaient leurs préparatifs.
+Il ne restait que quinze jours avant la bataille des généraux démons. Une aura oppressante pesait sur toute la Cité du Démon Céleste, tandis que les divers généraux démons affinaient leurs préparatifs.
 
 Outre les préparatifs conventionnels, de nombreux mouvements se tramaient en coulisses. Qu'il s'agisse de pactes secrets ou de manœuvres occultes, l'Empereur Démon ignorait tout cela. Bien qu'un ordre règne sur la Terre des Esprits Démons, un chaos sans fin se cachait sous cette apparente stabilité. C'était une époque de troubles!
 

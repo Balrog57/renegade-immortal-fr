@@ -54,9 +54,9 @@ La grotte était déserte. Dès que Wang Lin fut à l'intérieur, le rocher de l
 
 Assis en tailleur, Wang Lin examina les lieux. Des souvenirs familiers envahirent son esprit. Il soupira et commença sa culture.
 
-Dix jours plus tard, Wang Lin acheva l'ajustement de son corps. Sa main traça un sceau qu'il pressa contre son abdomen. La couleur de son visage oscilla entre le rouge et le vert, avant que son corps ne se scinde en deux.
+Dix jours plus tard, Wang Lin acheva l'ajustement de son corps. Sa main traça un sceau qu'il pressa contre sa poitrine. La couleur de son visage oscilla entre le rouge et le vert, avant que son corps ne se scinde en deux.
 
-Son corps original émergea de son avatar; il arborait une chevelure blanche retombant sur ses épaules, un sourire sardonique et une étoile violette dégageant une lueur maléfique.
+Son corps original émergea de son avatar; il arborait une chevelure blanche retombant sur ses épaules, un visage glacial et une étoile violette dégageant une lueur maléfique.
 
 Le niveau de culture de ce corps original était toujours au stade avancé de la Formation du Noyau.
 
@@ -88,7 +88,7 @@ Dix jours plus tard, le corps original paraissait plus âgé et sa culture étai
 
 Soudain, dans un craquement sec, le noyau du corps original se brisa, libérant une énergie spirituelle encore plus puissante qui déferla à travers son corps telle une troupe de chevaux sauvages. À ce moment précis, les yeux de l'avatar s'illuminèrent et celui-ci pointa un doigt vers le front du corps original. L'énergie spirituelle interne sembla trouver un point de sortie et jaillit par le front.
 
-Cette puissance spirituelle se concentra au bout du doigt de l'avatar. Rapidement, toute l'énergie se condensa en un liquide argenté.
+Cette puissance spirituelle se concentra au bout du doigt de l'avatar. Rapidement, toute l'énergie se condensa en un liquide doré.
 
 Le corps original devint soudainement bien plus faible, mais son regard demeurait serein.
 

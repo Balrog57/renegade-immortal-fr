@@ -18,7 +18,7 @@ Cette énergie spirituelle démoniaque ne se trouvait pas dans ses méridiens, m
 
 Cependant, ce garçon ne maîtrisait pas la technique de raffinage corporel, ce qui entraînait un immense gaspillage d'énergie spirituelle démoniaque. Treize ignorait également comment faire circuler cette énergie; ainsi, même en suivant la voie du raffinement corporel, il ne pourrait pas aller loin avant que son corps ne se rigidifie et ne meure.
 
-« Étrange. Il y a un an, le corps de Treize ne contenait aucune énergie spirituelle démoniaque, mais il en possède déjà deux étoiles. » Les yeux de Wang Lin s'illuminèrent. Il savait, d'après les souvenirs de Lou Yun, que trois étoiles composaient un rang, et que trois rangs équivalaient à la force d'un cultivateur de l'Établissement des Fondations.
+« Étrange. Il y a un an, le corps de Treize ne contenait aucune énergie spirituelle démoniaque, mais il en possède déjà presque deux étoiles. » Les yeux de Wang Lin s'illuminèrent. Il savait, d'après les souvenirs de Lou Yun, que trois étoiles composaient un rang, et que trois rangs équivalaient à la force d'un cultivateur de l'Établissement des Fondations.
 
 Il leva sa main droite et s'assit. Après un instant, ses yeux brillèrent, et son âme originelle jaillit pour pénétrer le front de Treize.
 
@@ -40,7 +40,7 @@ Le corps de Treize redescendit lentement vers le sol.
 
 Après le temps d'écoulement d'un bâton d'encens, Treize commença à tousser violemment. Lorsqu'il parvint enfin à se redresser, il cracha une large bouffée de sang noir. Après avoir expulsé ce sang, il sentit tout son corps s'alléger.
 
-Ce n'est qu'alors qu'il réalisa qu'il se trouvait dans la vallée. Très perspicace, il remarqua immédiatement la présence de Wang Lin devant lui. Une immense excitation l'envahit. Dès qu'il l'aperçut, il se leva, s'agenouilla et resta d'une déférence absolue.
+Ce n'est qu'alors qu'il réalisa qu'il se trouvait dans la vallée. Il remarqua aussitôt Wang Lin à ses côtés. Une immense excitation l'envahit. Dès qu'il l'aperçut, il se leva, s'agenouilla et resta d'une déférence absolue.
 
 « Treize salue l'Ancêtre! »
 
@@ -88,11 +88,11 @@ Un cas remarquable était celui de Treize. La persévérance de cet enfant étai
 
 En quatre ans, Wang Lin avait transformé une petite tribu nichée dans une vallée en une grande puissance de plus de 5 000 personnes. Il ordonna à tous de se consacrer à la culture car il avait d'autres projets. Il avait décidé de quitter la tribu pour un temps!
 
-Sa cible était la Cité du Démon Ancien!
+Sa cible était la Grande Muraille Antique!
 
 Quatre ans auparavant, Wang Lin avait eu l'occasion d'y aller, mais il s'en était abstenu car il ne disposait pas encore de sa propre force. Même s'il y était allé, cela aurait été vain.
 
-Après quatre ans, Wang Lin pouvait enfin se rendre à la Cité du Démon Ancien sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
+Après quatre ans, Wang Lin pouvait enfin se rendre à la Grande Muraille Antique sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
 
 Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu du Raffinement de l'Âme. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
 
@@ -102,7 +102,7 @@ L'autre s'appelait Huo Pao. Originaire d'une petite tribu, il avait déjà évei
 
 Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Raffinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
-À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 97 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
+À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 93 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 
 Wang Lin voyait en lui un génie. Bien que le sort de raffinement de l'âme fût facile à apprendre, atteindre le stade de la Formation du Noyau en seulement quatre ans dépassait toutes les espérances de Wang Lin. L'une des raisons majeures était son bagage initial de deux étoiles d'énergie spirituelle démoniaque, couplé à la richesse de cette énergie dans ces terres, mais c'était la première fois que Wang Lin croisait un talent tel que celui de Huo Pao!
 

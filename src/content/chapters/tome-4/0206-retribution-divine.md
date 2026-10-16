@@ -20,9 +20,9 @@ Le Gui Xi n'était pas un phénomène courant dans le monde de la culture. Du mo
 
 Une fois que Qiu Siping eut fini de parler, il regarda Wang Lin, cherchant à déceler des indices, mais l'expression de ce dernier ne changea absolument pas. Elle demeura aussi calme qu'à l'accoutumée.
 
-Wang Lin réfléchit un instant. La lueur rouge dans ses yeux s'estompa et il demanda: « Comment savez-vous où se trouvent les cultivateurs en état de Gui Xi? »
+Wang Lin réfléchit un instant. La lueur rouge dans ses yeux s'estompa et il demanda: « Comment savez-vous qu'il existe des cultivateurs en état de Gui Xi? »
 
-Un vague de soulagement envahit Qiu Siping. Tant que Wang Lin posait des questions, cela signifiait que l'accord précédent — qui limitait la parole à trois phrases — était nul et non avenu. Qiu Siping ne doutait aucunement que si ses trois phrases n'avaient pas impressionné Wang Lin, celui-ci l'aurait tué sans la moindre hésitation.
+Une vague de soulagement envahit Qiu Siping. Tant que Wang Lin posait des questions, cela signifiait que l'accord précédent — qui limitait la parole à trois phrases — était nul et non avenu. Qiu Siping ne doutait aucunement que si ses trois phrases n'avaient pas impressionné Wang Lin, celui-ci l'aurait tué sans la moindre hésitation.
 
 Tous deux étaient au stade avancé de la Formation du Noyau, et pourtant, un tel écart de puissance les séparait. Qiu Siping sourit amèrement intérieurement. Il sentait que la seule raison pour laquelle Wang Lin était plus fort était qu'il possédait un trésor lui permettant d'augmenter sa puissance d'attaque. Autrement, comment aurait-il pu être aussi impuissant face à lui?
 
@@ -126,7 +126,7 @@ Dès que le motif fut formé, il tendit la main pour saisir le dessin et le pla�
 
 Aussitôt, le jade commença à briller d'une lumière vive. L'éclat s'intensifia jusqu'à son apogée avant de faiblir. Le jade était passé du blanc au noir.
 
-Wang Lin scruta à nouveau la pierre. Cette fois, il pouvait aisément voir ce qu'elle contenait. Après l'avoir observée un instant, il ricana intérieurement. Il semblait que cette Yun Fei méritait vraiment de mourir. Lorsqu'elle avait rencontré Wang Lin pour la première fois, elle avait tenté d'échanger des remèdes populaires contre sa vie.
+Wang Lin scruta à nouveau la pierre. Cette fois, il pouvait aisément voir ce qu'elle contenait. Après l'avoir observée un instant, il ricana intérieurement. Il semblait que cette Yun Fei méritait vraiment de mourir. Lorsqu'elle avait rencontré Wang Lin pour la première fois, elle avait tenté d'échanger une recette d'élixir contre sa vie.
 
 En voyant ce morceau de jade, Wang Lin ne fut pas perturbé. Bien que quelques pilules fussent tentantes, ce n'était pas crucial. S'il n'avait pas reçu l'héritage, il aurait peut-être essayé d'en fabriquer; mais désormais, avec les herbes nécessaires, il obtiendrait des résultats similaires en les consommant directement.
 
@@ -260,15 +260,15 @@ Trois heures plus tard, Qiu Siping fronça les sourcils. Il referma le rouleau d
 
 Dans la salle de pierre voisine, il s'assit en tailleur, plaça un morceau de jade gris sur son front et commença à méditer.
 
-Le temps s'écoulait. Sur les sept jours précédant le rendez-vous, cinq étaient passés. À midi du cinquième jour, Qiu Siping ouvrit brusquement les yeux et rangea le jade. Sa main forma un sceau et projeta un rayon de lumière sur le mur. Soudain, le mur émit des craquements en s'ouvrant, révélant une table de conférence.
+Le temps s'écoulait. Sur les sept jours précédant le rendez-vous, cinq étaient passés. À midi du sixième jour, Qiu Siping ouvrit brusquement les yeux et rangea le jade. Sa main forma un sceau et projeta un rayon de lumière sur le mur. Soudain, le mur émit des craquements en s'ouvrant, révélant une estrade en creux.
 
-Trois silhouettes siégeaient autour de la table. Celle du milieu avait les cheveux blancs et des yeux empreints d'une rage majestueuse.
+Trois effigies de cire se dressaient sur l'estrade. Celle du milieu avait les cheveux blancs et des yeux empreints d'une rage majestueuse.
 
 De chaque côté se tenaient un homme et une femme. L'homme avait le visage sombre et le regard froid; il semblait avoir une vingtaine d'années. La femme possédait un visage magnifique et une silhouette gracieuse, ses yeux trahissant une tristesse qui rendait son apparence plus vivante.
 
 Qiu Siping observa silencieusement ces trois figures. Lorsque son regard se posa sur la femme, il fut empreint de tendresse, mais lorsqu'il se tourna vers le vieillard, ses yeux furent remplis de haine.
 
-« Vieux commandant, frère aîné... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien! »
+« Vieux fou, frère aîné... J'ai enfin trouvé quelqu'un capable d'utiliser les anciennes restrictions. Vous n'auriez jamais imaginé que je puisse pénétrer dans ce lieu pour vous retrouver. Cette fois, ce trésor sera mien! »
 
 Qiu Siping éclata soudain d'un rire empreint de folie. Il tendit la main pour caresser doucement le visage de la femme et murmura: « Je te ramènerai à la vie, même si le prix à payer est l'intégralité de la Mer des Démons! »
 
@@ -276,15 +276,15 @@ Il prit une profonde inspiration, retira sa main, projeta un autre rayon de lumi
 
 Wang Lin, assis en tailleur dans sa grotte, avait tout vu grâce à Xu Liguo. Il réfléchit un instant et prit sa décision.
 
-La nuit suivante, deux jours plus tard, Wang Lin apposa la dernière restriction sur le drapeau. Soudain, l'objet s'agita et les points noirs qui le couvraient commencèrent à s'étendre. Le drapeau passa du blanc au noir absolu.
+Le lendemain, tard dans la nuit, Wang Lin apposa la dernière restriction sur le drapeau. Soudain, l'objet s'agita et les points noirs qui le couvraient commencèrent à s'étendre. Le drapeau passa du blanc au noir absolu.
 
 Des relents d'atmosphère ancienne s'en échappèrent. Les restrictions clignotèrent une à une, formant de mystérieux symboles dorés. Ces derniers tournèrent autour de la hampe avant de gravir lentement le tissu. Bientôt, l'intégralité du drapeau fut recouverte de glyphes d'or.
 
-À ce stade, de nouveaux symboles continua sient d'apparaître, formant une ligne qui enveloppait l'objet.
+À ce stade, de nouveaux symboles continuaient d'apparaître, formant une ligne qui enveloppait l'objet.
 
-Pendant ce temps, dans le champ d'étoiles situé à des dizaines de milliers de kilomètres au-dessus des épais nuages surplombant la ville de Qilin.
+Pendant ce temps, dans le champ d'étoiles situé à des centaines de kilomètres au-dessus des épais nuages surplombant la ville de Qilin.
 
-Parmi les astres, un nuage rouge commença à s'amasser et à gonfler, atteignant des centaines de kilomètres de diamètre.
+Parmi les astres, un nuage rouge commença à s'amasser et à gonfler, atteignant une cinquantaine de kilomètres de diamètre.
 
 Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. Dès que le gaz toucha l'épaisse couche nuageuse au-dessus de la Mer des Démons, il se mit à grésiller et à fondre, comme du fer rouge sur de la neige.
 
@@ -292,7 +292,7 @@ Au sein du nuage rouge, des précipitations gazeuses commencèrent à tomber. D�
 
 Il leva les yeux vers les nuages comme s'il pouvait voir à travers eux, percevant le nuage rouge. Il grommela: « Rétribution divine? Impossible. Depuis que le monde ancien a été détruit par la catastrophe, il ne devrait plus y avoir de rétribution divine. Tous les cultivateurs actuels trompent les cieux pour cultiver; comment cela pourrait-il provoquer une telle réaction? Se peut-il que des anciens cultivateurs aient survécu? Si tel est le cas, ce seront des suppléments de très haute qualité! » Sur ces mots, son corps s'élança vers la formation du nuage rouge.
 
-Dans la partie orientale de la Mer des Démons se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que les nuages se transforment en eau, le spectacle était prodigieux.
+Dans l'extrême ouest de la Mer des Démons se trouvait un bassin rempli d'eau de mer. Comme ce n'était pas encore la saison pour que les nuages se transforment en eau, le spectacle était prodigieux.
 
 L'eau commença soudainement à s'agiter violemment. Un homme vêtu d'une robe bleue surgit des profondeurs, provoquant de grandes vagues. Marchant sur l'écume, il flotta lentement vers le ciel. Il fixa les cieux avec un air de choc: « Rétribution divine? Depuis quand de tels événements se produisent-ils dans la Mer des Démons? Cette rétribution devrait attirer tous les vieux monstres qui se cachent. » Un léger sourire étira ses lèvres. Son corps plana au-dessus de l'eau et, d'un geste de la main, il fit s'élever l'eau du bassin dans les airs.
 
@@ -304,7 +304,7 @@ Au point sud de la Mer des Démons, dans le troisième étage du Pavillon de Raf
 
 « Frère, ce truc est un véritable trésor. Je vais vous révéler son soixante-quatorzième usage, alors écoutez bien... »
 
-Le cultivateur de l'Établissement des Fondations était hors de lui. S'il n'avait pas été contraint par les règles du Pavillon, il aurait craché sur ce vieillard qui l'importunait depuis le premier étage jusqu'au troisième. De son point de vue, ce vieillard n'était qu'au 8e niveau de Condensation de Qi.
+Le cultivateur de l'Établissement des Fondations était hors de lui. S'il n'avait pas été contraint par les règles du Pavillon, il aurait déjà fendu ce vieillard d'un coup d'épée qui l'importunait depuis le premier étage jusqu'au troisième. De son point de vue, ce vieillard n'était qu'au 7e ou 8e niveau de Condensation de Qi.
 
 Ce qu'il supportait le moins, c'était que la salive du vieillard lui sautât au visage à chaque phrase, lui donnant l'envie de dégainer un trésor magique pour l'attaquer.
 

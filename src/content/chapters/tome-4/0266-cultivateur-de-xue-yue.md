@@ -54,7 +54,7 @@ Les yeux de Zhou Wutai s'illuminèrent: « Exactement. Une intention de tuer imp
 
 L'expression de Wang Lin resta imperturbable, comme si tout cela ne le concernait pas. Il se contenta d'écouter en silence.
 
-Zhou Wutai reprit: « Plusieurs aînés de l'Alliance des Quatre Sectes sont sortis pour mener des investigations. À dix mille kilomètres d'altitude, ils ont découvert une faille de transfert unilatérale provenant de cultivateurs de Xue Yue, dissimulée par des restrictions. »
+Zhou Wutai reprit: « Plusieurs aînés de l'Alliance des Quatre Sectes sont sortis pour mener des investigations. À cinq mille kilomètres d'altitude, ils ont découvert une faille de transfert unilatérale provenant de cultivateurs de Xue Yue, dissimulée par des restrictions. »
 
 « Des cultivateurs de Xue Yue? » C'était la première fois que Wang Lin entendait ce nom.
 

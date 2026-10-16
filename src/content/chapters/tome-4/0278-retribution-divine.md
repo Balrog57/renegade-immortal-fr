@@ -92,7 +92,7 @@ Face au silence prolongé, l'homme soupira. Il tendit la main pour saisir le vid
 
 La créature serpent n'avait plus qu'un seul bras. L'expression de Papillon Rouge était calme, mais une trace de colère sous-jacente y perçait.
 
-L'homme d'âge moyen laissa échapper un froid renâclement et dit lentement: « Si ce n'était pas pour cette maudite bête qui a ruiné ma fortune, j'aurais pu parfaire ma technique aujourd'hui. Je suis déjà très généreux de ne prendre qu'un seul bras. Papillon Rouge, souviens-toi bien de cela. »
+L'homme d'âge moyen laissa échapper un froid renâclement et dit lentement: « Si ce n'était pas pour cette maudite bête qui a gâché mon affaire, j'aurais pu parfaire ma technique aujourd'hui. Je suis déjà très généreux de ne prendre qu'un seul bras. Papillon Rouge, souviens-toi bien de cela. »
 
 Papillon Rouge ne répondit rien. Les sept individus derrière elle n'osèrent que bouillir de rage en silence.
 
@@ -108,4 +108,4 @@ Après que Xue Yu prit le contrôle du pays, une masse immense de mortels de l'a
 
 Les tours de glace, caractéristiques de Xue Yu, apparurent une à une. Après trois ans, ce territoire appartenait totalement à Xue Yu.
 
-Le temps s'écoula rapidement. Cinq ans plus tard, à un endroit situé à 15 000 kilomètres de la frontière de Xue Yu, une lumière aux couleurs de l'arc-en-ciel commença progressivement à se condenser.
+Le temps s'écoula rapidement. Cinq ans plus tard, à un endroit situé au nord, à 15 000 kilomètres de la frontière de Xue Yu, une lumière aux couleurs de l'arc-en-ciel scintilla, et une silhouette irréelle commença peu à peu à prendre corps.

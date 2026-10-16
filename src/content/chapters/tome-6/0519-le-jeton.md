@@ -10,7 +10,7 @@ Ce tremblement ne dura pas longtemps, mais son effet fut au-delà de l'imaginati
 
 Tous les cultivateurs de ces planètes ignoraient d'où provenait cette lumière rouge. En réalité, la plupart s'étaient forgé leurs propres théories sur ce phénomène qui n'apparaissait qu'une fois tous les 5 000 ans.
 
-Seuls quelques rares et puissants cultivateurs savaient que cette lueur émanait de l'ouverture de la Mer Démoniastique de l'Est, située près de la planète Tian Yun.
+Seuls quelques rares et puissants cultivateurs savaient que cette lueur émanait de l'ouverture de la Mer des Esprits Démoniaques de l'Est, située près de la planète Tian Yun.
 
 La lumière rouge se propagea partout, mais ce n'était pas là la fin de la phase de marée; ce n'était que le commencement.
 
@@ -22,13 +22,13 @@ Si seule la lumière rouge revenait, cela n'aurait pas été si exceptionnel, ma
 
 Certaines bêtes étranges et de puissantes formes de vie vivant dans le vide spatial furent également aspirées.
 
-Tout ce qui était entraîné par la marée fonçait à travers l'espace, aspiré vers la Mer Démoniastique de l'Est à une vitesse folle.
+Tout ce qui était entraîné par la marée fonçait à travers l'espace, aspiré vers la Mer des Esprits Démoniaques de l'Est à une vitesse folle.
 
-La vitesse de rétraction était légèrement inférieure à celle de l'expansion, mais de peu. Sous un autre angle, on pouvait clairement voir qu'en prenant la Mer Démoniastique de l'Est comme centre, la lumière rouge se retirait rapidement depuis une zone d'une immensité inconcevable.
+La vitesse de rétraction était légèrement inférieure à celle de l'expansion, mais de peu. Sous un autre angle, on pouvait clairement voir qu'en prenant la Mer des Esprits Démoniaques de l'Est comme centre, la lumière rouge se retirait rapidement depuis une zone d'une immensité inconcevable.
 
-À cet instant, la lumière rouge traversa les étoiles, le vide et les planètes, comme si le concept de distance n'existait pas pour elle. Après seulement trois respirations, tous les cultivateurs situés à l'extérieur de la Mer Démoniastique de l'Est virent des ondes de choc rouges fondre sur eux comme des dizaines de milliers de chevaux au galop.
+À cet instant, la lumière rouge traversa les étoiles, le vide et les planètes, comme si le concept de distance n'existait pas pour elle. Après seulement trois bâtons d'encens, tous les cultivateurs situés à l'extérieur de la Mer des Esprits Démoniaques de l'Est virent des ondes de choc rouges fondre sur eux comme des dizaines de milliers de chevaux au galop.
 
-Cette onde de choc formait un cercle qui se refermait inexorablement sur la Mer Démoniastique de l'Est.
+Cette onde de choc formait un cercle qui se refermait inexorablement sur la Mer des Esprits Démoniaques de l'Est.
 
 Les pupilles de Wang Lin se rétractèrent soudainement, et ses yeux révélèrent un profond choc. La scène de la marée se propageant lui avait déjà donné l'impression que ce n'était pas réel; mais en voyant le reflux, il ne put s'empêcher de pousser un grand soupir.
 
@@ -66,15 +66,15 @@ Dès l'apparition de cette lueur, le visage calme de l'Omniscient changea brusqu
 
 Il se retourna soudainement, ses yeux semblables à des éclairs, fixant le rayon de lumière rouge qui approchait.
 
-Les yeux du Saint de l'Épée, Ling Tianhou, brillèrent comme des torches alors qu'il observait la lumière rouge s'enfoncer profondément dans la Mer Démoniastique de l'Est.
+Les yeux du Saint de l'Épée, Ling Tianhou, brillèrent comme des torches alors qu'il observait la lumière rouge s'enfoncer profondément dans la Mer des Esprits Démoniaques de l'Est.
 
 À ce moment-là, non seulement ces deux-là, mais parmi tous les cultivateurs, diverses figures antiques surgirent.
 
-Ces figures étaient tous de célèbres vieux monstres de la planète Tian Yun. Leur intention initiale n'était que d'escorter leurs jeunes générations, mais après avoir vu ce dernier rayon de lumière rouge, et surtout ce qu'il contenait, ils semblèrent tous rajeunir de dizaines de milliers d'années et s'élancèrent.
+Ces figures étaient tous de célèbres vieux monstres de la planète Tian Yun. Leur intention initiale n'était que d'escorter leurs jeunes générations, mais après avoir vu ce dernier rayon de lumière rouge, et surtout ce qu'il contenait, ils semblèrent tous rajeunir de plus de dix mille ans et s'élancèrent.
 
 Cette scène stupéfiante attira immédiatement les regards de tous les cultivateurs alentour. Les yeux de Wang Lin s'illuminèrent alors qu'il fixait le rayon de lumière rouge imminent.
 
-Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer Démoniastique de l'Est.
+Ce dernier était si rapide qu'il dépassa tous les cultivateurs en un instant pour charger dans la Mer des Esprits Démoniaques de l'Est.
 
 Si sa vitesse seule n'était pas extraordinaire, c'est que la lumière rouge empêchait tout recours au Sens Divin ou à la vision directe. Tous les sorts tentant d'en sonder le contenu étaient bloqués, rendant impossible toute observation de ce qui s'y trouvait. Elle était si bien dissimulée qu'elle fit même changer d'expression l'Omniscient et Ling Tianhou.
 
@@ -84,11 +84,11 @@ Les visages des cultivateurs environnants étaient pâles; certains crachèrent 
 
 « N'utilisez pas votre Sens Divin pour vérifier; ce n'est pas une chose que vous, les jeunes, pouvez contempler! » À cet instant, parmi tous les vieux monstres, la voix d'un vieil homme chétif résonna dans toute la zone.
 
-À ce moment précis, le rayon de lumière rouge avait traversé tout le monde et s'apprêtait à pénétrer dans la Mer Démoniastique de l'Est. Les yeux de Wang Lin brillèrent et trois filaments de gaz gris apparurent entre ses sourcils. Ces filaments se transformèrent en trois tatouages qui fulgurèrent rapidement sur le front de Wang Lin.
+À ce moment précis, le rayon de lumière rouge avait traversé tout le monde et s'apprêtait à pénétrer dans la Mer des Esprits Démoniaques de l'Est. Les yeux de Wang Lin brillèrent et trois filaments de gaz gris apparurent entre ses sourcils. Ces filaments se transformèrent en trois tatouages qui fulgurèrent rapidement sur le front de Wang Lin.
 
 Simultanément, ces trois tatouages semblèrent fondre pour former un contour autour de ses yeux.
 
-Dès que ce contour fut formé, les yeux de Wang Lin brillèrent comme la lune dans la nuit, et cette lumière s'étendit d'un demi-pouce au-delà de son regard.
+Dès que ce contour fut formé, les yeux de Wang Lin brillèrent comme la lune dans la nuit, et cette lumière s'étendit d'environ seize centimètres au-delà de son regard.
 
 Son regard semblait capable de percer le ciel et la terre. Il chargea directement à travers le vide, rattrapa le rayon de lumière rouge sur le point de disparaître et le transperça de part en part.
 
@@ -104,7 +104,7 @@ En un clin d'œil, l'éclat rouge de ses yeux fut envahi par une épaisse teinte
 
 De ce fait, son regard au sein de la lumière rouge sembla revitalisé; il brisa les couches de lueurs et entra en collision avec la force mystérieuse interne.
 
-Enfin, à l'instant précis où la lumière rouge disparut dans la Mer Démoniastique de l'Est, le regard de Wang Lin parvint enfin à percer l'obscurité pour voir ce qui avait fait changer d'expression l'Omniscient et tous les autres!
+Enfin, à l'instant précis où la lumière rouge disparut dans la Mer des Esprits Démoniaques de l'Est, le regard de Wang Lin parvint enfin à percer l'obscurité pour voir ce qui avait fait changer d'expression l'Omniscient et tous les autres!
 
 C'était un jeton!
 
@@ -112,10 +112,10 @@ Un jeton doré et scintillant, sur lequel étaient gravés des symboles!
 
 Au moment où il vit clairement le jeton, une grande quantité de sang jaillit de ses yeux et une douleur déchirante envahit son corps. Wang Lin ferma les yeux.
 
-Lorsqu'il les rouvrit, le rayon de lumière rouge avait déjà disparu dans la Mer Démoniastique de l'Est.
+Lorsqu'il les rouvrit, le rayon de lumière rouge avait déjà disparu dans la Mer des Esprits Démoniaques de l'Est.
 
 À cet instant, les yeux de Wang Lin étaient totalement injectés de sang, mais des filaments gris s'y mouvaient, conférant à son regard un aspect profondément démoniaque.
 
-Au loin, la jeune fille nommée Yao Xixu, assise sur le jade rouge sang, croisa accidentellement le regard de Wang Lin. Dès qu'elle vit ses yeux, son corps trembla involontairement et son visage pâlit. Elle baissa précipitamment la tête, le cœur battant violemment!
+Au loin, la jeune fille nommée Yao Xixue, assise sur le jade rouge sang, croisa accidentellement le regard de Wang Lin. Dès qu'elle vit ses yeux, son corps trembla involontairement et son visage pâlit. Elle baissa précipitamment la tête, le cœur battant violemment!
 
 « Ce regard... Je comprends maintenant pourquoi mon père veut que je prête attention à cette personne... »

@@ -22,11 +22,11 @@ Outre ces cinq planètes, de nombreux autres astres plus modestes orbitent autou
 
 À l'extrême est de la planète Tian Yun se trouve un immense réseau de transfert. Ce dernier est contrôlé par la Secte du Destin Céleste et une sentinelle y est postée en permanence.
 
-Zhao Zi était l'un des gardes chargés de cette zone. Il s'était réveillé tôt le matin et n'avait cessé de rester assis en position de lotus devant le réseau depuis lors.
+Zhao Si était l'un des gardes chargés de cette zone. Il s'était réveillé tôt le matin et n'avait cessé de rester assis en position de lotus devant le réseau depuis lors.
 
-Zhao Zi était un disciple de la cinquième génération de la Division Verte. Il cultivait depuis 700 ans et avait atteint le stade intermédiaire de la Formation de l'Âme. Il était plus ou moins satisfait de sa vie. Il faut dire que le simple fait d'être un disciple de la Secte du Destin Céleste lui conférait un rang très élevé sur cette planète. Partout où il allait, il était admiré et respecté.
+Zhao Si était un disciple de la cinquième génération de la Division Verte. Il cultivait depuis 700 ans et avait atteint le stade intermédiaire de la Formation de l'Âme. Il était plus ou moins satisfait de sa vie. Il faut dire que le simple fait d'être un disciple de la Secte du Destin Céleste lui conférait un rang très élevé sur cette planète. Partout où il allait, il était admiré et respecté.
 
-Zhao Zi ouvrit les yeux et laissa échapper un long soupir.
+Zhao Si ouvrit les yeux et laissa échapper un long soupir.
 
 « Encore trois mois, et quelqu'un viendra me remplacer. Une fois de retour à la secte, je devrai entrer en culture fermée pendant plusieurs années pour tenter d'atteindre le stade avancé de la Formation de l'Âme. Dès que j'y serai parvenu, je demanderai à quitter la secte pour m'entraîner à l'extérieur. Si je peux me procurer quelques jades célestes, alors moi, Zhao Si, j'aurai peut-être une réelle chance d'atteindre le stade de la Transformation de l'Âme! »
 
@@ -36,9 +36,9 @@ En y songeant, les yeux de Zhao Si se teintèrent de désir.
 
 Zhao Si esquissa un sourire amer, prit une profonde inspiration et s'apprêta à reprendre sa culture.
 
-Cependant, à cet instant précis, un rayon de lumière violette fendit le ciel tel un météore en brisant le mur du son. Rapidement, la lueur pourpre se rapprocha, n'étant plus qu'à 10 000 pieds.
+Cependant, à cet instant précis, un rayon de lumière violette fendit le ciel tel un météore en brisant le mur du son. Rapidement, la lueur pourpre se rapprocha, n'étant plus qu'à 3,3 kilomètres.
 
-L'expression de Zhao Zi devint grave. Sans se lever, il fixa froidement le rayon de lumière qui fonçait sur lui.
+L'expression de Zhao Si devint grave. Sans se lever, il fixa froidement le rayon de lumière qui fonçait sur lui.
 
 D'autres personnes utilisaient le réseau de transfert quotidiennement. Hormis quelques cultivateurs extrêmement puissants, même si leur niveau de culture surpassait le sien, Zhao Si les méprisait car il était, lui, un disciple de la Secte du Destin Céleste!
 
@@ -94,11 +94,11 @@ Zhao Si secoua la tête, se rassit et reprit sa méditation.
 
 La planète Terre était l'une des cinq planètes orbitant autour de Tian Yun. Vue de loin, elle présentait une teinte jaune terreuse et d'innombrables halos mouvaient à sa surface. Sa taille était comparable à celle de la planète Suzaku.
 
-Le Secte Xuan Yuan était le seul pays de culture de rang 6 sur cette planète. Le secteur de la Secte Xuan Yuan constituait un État entier peuplé d'innombrables cultivateurs. Leur ancêtre, nommé Xuan Ming, avait déjà dépassé le stade Ascendant.
+La Secte Xuan Yuan était le seul pays de culture de rang 6 sur cette planète. Le secteur de la Secte Xuan Yuan constituait un État entier peuplé d'innombrables cultivateurs. Leur ancêtre, nommé Xuan Ming, avait déjà dépassé le stade Ascendant.
 
-Les mers étaient rares sur cette planète, la majeure partie de la surface étant terrestre. À des millions de lieues à l'ouest de Xuan Yuan se trouvait le pays de culture de rang 5, Ling Yue.
+Les mers étaient rares sur cette planète, la majeure partie de la surface étant terrestre. À 500 000 kilomètres à l'ouest de Xuan Yuan se trouvait le pays de culture de rang 5, Ling Yue.
 
-Ce jour-là, les environs du réseau de transfert adjacent à la Secte Xuan Yuan avaient été dégagés. Personne, hormis les disciples de la secte, ne se trouvait dans un rayon de plusieurs dizaines de mètres autour du dispositif.
+Ce jour-là, les environs du réseau de transfert adjacent à la Secte Xuan Yuan avaient été dégagés. Personne, hormis les disciples de la secte, ne se trouvait dans un rayon d'une quinzaine de kilomètres autour du dispositif.
 
 À l'extérieur du réseau, le jeune maître de la secte Xuan Yuan, Xu Yunshan, se tenait là en silence. Il tenait un éventail précieux qu'il frappait occasionnellement contre sa paume.
 

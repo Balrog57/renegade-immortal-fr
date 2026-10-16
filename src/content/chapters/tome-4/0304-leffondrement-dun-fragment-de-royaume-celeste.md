@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 304 - The Collapse of a Celestial Realm Fragment.
 slug: leffondrement-dun-fragment-de-royaume-celeste
 ---
-Les calculs de Sun Lei étaient d'une grande précision. Il avait attendu si longtemps pour enfin révéler la puissance de ce éventail. Son but était d'utiliser Wang Lin comme appât: alors que les créatures célestes poursuivraient ce dernier, il pourrait s'échapper.
+Les calculs de Sun Lei étaient d'une grande précision. Il avait attendu si longtemps pour enfin révéler la puissance de cet éventail. Son but était d'utiliser Wang Lin comme appât: alors que les créatures célestes poursuivraient ce dernier, il pourrait s'échapper.
 
 Autrement, même en obtenant le trésor, il serait toujours traqué par ces bêtes. Après tout, une fois le trésor entre ses mains, les créatures deviendraient folles et la poursuite serait bien plus intense qu'au cours des deux précédentes tentatives.
 
@@ -20,7 +20,7 @@ Avancer fait partie du temps, reculer fait partie du temps, et s'arrêter fait a
 
 Wang Lin avait cultivé longtemps dans la perle défiant le ciel et maîtrisait parfaitement l'art de manipuler le temps. C'était aussi ce qui lui avait permis de graver ce domaine temporel au sein même de la sculpture.
 
-Une lumière mystérieuse émana de la gravure et vint heurter la glace noire, scellant la zone. Bien que la glace noire fût puissante, elle ne résistait pas mais tentait seulement de se relâcher, ce qui rendit l'opération peu difficile.
+Une lumière mystérieuse émana de la gravure et se répandit dans la glace noire. Bien que la glace noire fût puissante, Wang Lin ne l'affrontait pas de front; le domaine temporel la rendit seulement un peu moins rigide, ce qui ne fut pas trop difficile.
 
 En empruntant un fragment de pouvoir du domaine temporel, Wang Lin ne fut pas entravé par la glace noire comme Sun Lei l'avait imaginé. À peine Sun Lei eut-il fini de prononcer ses mots que Wang Lin s'avança.
 
@@ -56,7 +56,7 @@ Sun Lei fut terrassé par le choc. Il n'avait pas le temps d'esquiver. Sentant l
 
 Une lueur de folie apparut dans son regard; il frappa son front et une perle noire en jaillit. Il afficha alors une expression de désespoir déchirant, jamais vue auparavant.
 
-Cette perle noire était le fruit de centaines d'années de culture et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de culture de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de culture chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de la Condensation de Qi.
+Cette perle noire était le fruit de centaines d'années de culture et n'avait pris une forme solide qu'en atteignant le stade de la Formation de l'Âme. Selon la méthode de culture de sa secte, cette perle était la clé pour former une seconde âme originelle. En perdant cette perle, son niveau de culture chuterait drastiquement, passant du milieu du stade de la Formation de l'Âme au stade de l'Âme Naissante.
 
 Sun Lei ferma les yeux et ordonna: « Explose! »
 
@@ -84,29 +84,29 @@ Choqué, il s'apprêta à utiliser la téléportation avant de se forcer à s'ar
 
 Il jura intérieurement. Il s'enveloppa de son drapeau de restriction et chargea comme l'éclair. Privé du pouvoir mystérieux, sa vitesse était revenue à la normale.
 
-Mais l'effondrement du sol s'accélérait. Wang Lin remarqua soudainement, grâce à son sens divin, que dans un rayon de 1000 pieds, il n'y avait plus qu'un vide obscur.
+Mais l'effondrement du sol s'accélérait. Wang Lin remarqua soudainement, grâce à son sens divin, que dans un rayon de 330 mètres, il n'y avait plus qu'un vide obscur.
 
 Ce vide ressemblait à une gueule béante qui dévorait tout sur son passage.
 
-Il fut frappé de stupeur. L'effondrement du fragment se poursuivait et, en un clin d'œil, le vide n'était plus qu'à 500 pieds.
+Il fut frappé de stupeur. L'effondrement du fragment se poursuivait et, en un clin d'œil, le vide n'était plus qu'à 165 mètres.
 
 Wang Lin prit une inspiration glacée et s'élança vers le haut avec précipitation.
 
-La dévoration continuait: 500 pieds, 300 pieds, 200 pieds, 330 mètres...
+La dévoration continuait: 165 mètres, 99 mètres, 66 mètres, 33 mètres...
 
 Le visage de Wang Lin était livide. Il était encore loin d'atteindre la surface. La vitesse de l'engloutissement était trop grande; il était clair qu'il n'arriverait pas à s'échapper à temps.
 
 Une expression impitoyable se dessina dans ses yeux alors qu'il sortait un petit cristal de son sac de rangement: c'était de l'énergie spirituelle céleste condensée.
 
-Le vide se rapprochait encore: 330 mètres, 165 mètres, 99 mètres...
+Le vide se rapprochait encore: 33 mètres, 16,5 mètres, 10 mètres...
 
-Wang Lin vit qu'à 99 mètres de lui, une gueule semblait déjà grande ouverte.
+Wang Lin vit qu'à 10 mètres de lui, une gueule semblait déjà grande ouverte.
 
 Il avala le cristal et ressentit, pour la toute première fois, une douleur dans son âme. C'était une souffrance causée par l'excès d'énergie spirituelle céleste dans son corps.
 
 À cet instant, Wang Lin eut l'impression que son âme originelle pouvait s'effondrer à tout moment, mais au cœur de cette douleur, un fragment de puissance naquit. Ce pouvoir lui donna la sensation qu'il pouvait soutenir le monde entier sur ses épaules.
 
-Le vide environnant se rapprochait de plus en plus: 30 pieds, 66 mètres, 33 mètres...
+Le vide environnant se rapprochait de plus en plus: 10 mètres, 6,6 mètres, 3,3 mètres...
 
 Le corps de Wang Lin s'élança soudainement vers le haut tel une météore. Au moment où le vide atteignit sa position, sa vitesse décupla et il jaillit hors du sol.
 

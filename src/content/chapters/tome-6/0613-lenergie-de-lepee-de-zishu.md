@@ -10,17 +10,17 @@ La réaction de Tong Yun fut d'une rapidité fulgurante; il afficha même une ex
 
 Si c'était une personne ordinaire, elle aurait été plus ou moins dupe de ses manœuvres.
 
-Wang Lin lança un regard glacial à Tong Yun avant de détourner les yeux et d'avancer. L'expression de Tong Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant: « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de ce Domaine des Esprits Démoniaques... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des cent pieds autour de ce cadavre, il mourra sans aucun doute! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne! »
+Wang Lin lança un regard glacial à Tong Yun avant de détourner les yeux et d'avancer. L'expression de Tong Yun changea légèrement alors qu'il reculait en fixant Wang Lin, pensant: « L'armure que porte cet homme est tout simplement terrifiante. Je ne parviens pas non plus à percer son niveau de culture. J'ignore s'il s'agit d'un cultivateur ou d'un indigène de ce Domaine des Esprits Démoniaques... Cependant, peu importe la puissance de sa culture, dès qu'il franchira la limite des trente-trois mètres autour de ce cadavre, il mourra sans aucun doute! Je ne ferai pas de vagues et je le laisserai se faire tuer par la lumière dorée émise par ce trésor. Ensuite, j'utiliserai mes propres méthodes pour m'en emparer. À ce moment-là, même cette armure sera mienne! »
 
 Tong Yun ricana intérieurement, mais en surface, il feignit la colère. Il n'osa toutefois pas s'interposer devant Wang Lin.
 
-Wang Lin fit un pas et pénétra dans le périmètre des cent pieds entourant Zi Shu. À l'instant même où il franchit cette limite, une décharge dorée jaillit du corps de Zi Shu. Cette lumière d'or se projeta vers Wang Lin telle une pluie de dix mille aiguilles dorées.
+Wang Lin fit un pas et pénétra dans le périmètre de trente-trois mètres entourant Zi Shu. À l'instant même où il franchit cette limite, une décharge dorée jaillit du corps de Zi Shu. Cette lumière d'or se projeta vers Wang Lin telle une pluie de dix mille aiguilles dorées.
 
 Un éclat de joie mêlé d'une pointe de fierté traversa le regard de Tong Yun. Cependant, il aspira brusquement une bouffée d'air froid et la satisfaction dans ses yeux disparut instantanément.
 
 Les yeux de Wang Lin, dissimulés derrière son casque, lancèrent un regard glacial. D'un revers de main, il balaya la lumière dorée. Ayant déjà expérimenté la récupération de l'énergie de l'épée de Ling Tianhou, il avança d'un pas nonchalant et atteignit Zi Shu.
 
-Ce pas décontracté était d'une terreur absolue aux yeux de Tong Yun, qui se tenait à cent pieds de là. Réalisant que la situation tournait au désastre, il fit volte-face pour s'enfuir. Mais à cet instant précis, un reniflement froid atteignit ses oreilles.
+Ce pas décontracté était d'une terreur absolue aux yeux de Tong Yun, qui se tenait à trente-trois mètres de là. Réalisant que la situation tournait au désastre, il fit volte-face pour s'enfuir. Mais à cet instant précis, un reniflement froid atteignit ses oreilles.
 
 Le corps de Tong Yun trembla et se figea. Il eut le pressentiment que s'il tentait de fuir, il mourrait sans aucun doute. L'ombre de la mort s'abattit sur son cœur.
 
@@ -62,9 +62,9 @@ Wang Lin s'exclama et libéra sa culture d'Ascendant. Le grand rat poussa un cri
 
 Ce qui apparut devant lui était une épée simple et antique. Un rat noir se tenait sur la lame, fixant Wang Lin de ses yeux sombres.
 
-« L'épée de Zi Shu! » Wang Lin esquissa un sourire. Lorsqu'il avait tué Zi Shu, l'âme originelle de ce dernier était plongée dans la folie, si bien qu'il avait simplement saisi l'épée pour la jeter. Avec le recul, il en éprouvait un vif regret. Cependant, non seulement il avait obtenu l'énergie de l'épée de Ling Tianhou aujourd'hui, mais il venait aussi de retrouver l'épée de Zi Shu.
+« L'épée de Zi Shu! » Wang Lin esquissa un sourire. Lorsqu'il avait tué Zi Shu, sa propre âme originelle était plongée dans la folie, si bien qu'il avait simplement saisi l'épée et l'avait jetée. Avec le recul, il en éprouvait un vif regret. Cependant, non seulement il avait obtenu l'énergie de l'épée de Ling Tianhou aujourd'hui, mais il venait aussi de retrouver l'épée de Zi Shu.
 
-« Saint de l'Épée, Ling Tianhou... Si un jour, moi, Wang Lin, je réunis les douze épées, quelle expression afférerez-vous? » Wang Lin saisit l'épée, y imprégna son propre Sens Divin et la rangea dans son sac de rangement.
+« Saint de l'Épée, Ling Tianhou... Si un jour, moi, Wang Lin, je réunis les douze épées, quelle expression afficherez-vous? » Wang Lin saisit l'épée, y imprégna son propre Sens Divin et la rangea dans son sac de rangement.
 
 Les douze épées étaient des trésors précieux, mais le niveau de culture des possesseurs de ces armes n'était pas assez élevé pour en exploiter toute la puissance. Entre les mains de Wang Lin, toutefois, la donne changeait.
 
@@ -84,7 +84,7 @@ Cela tenait en grande partie à leurs Daos respectifs. Le Dao de Ling Tianhou é
 
 Personne ne pouvait intimider les disciples de la Secte de l'Épée Da Lou. C'est précisément pour cette raison que, malgré sa piètre réputation, tous les disciples vouaient un respect immense au Saint de l'Épée Ling Tianhou. Toutefois, cela limitait aussi le nombre de cultivateurs extrêmement puissants au sein du secteur, car il était très difficile d'atteindre la véritable puissance sous une telle protection!
 
-À l'opposé se trouvait la Secte du Destin Céleste. Le Dao du Tout-Voyant consistait à suivre la volonté des cieux. C'était un cultivateur typique de la voie céleste: la vie et la mort de ses disciples étaient dictées par les cieux, et leur force déterminée par le destin.
+À l'opposé se trouvait la Secte du Destin Céleste. Le Dao du Tout-Voyant consistait à suivre la volonté des cieux. C'était un cultivateur typique de la voie céleste: la vie et la mort de ses disciples étaient dictées par les cieux, et leur force déterminée par le destin; il n'intervenait que rarement par la force.
 
 Bien que le secteur fût ainsi structuré, cela permettait à la Secte du Destin Céleste de compter de nombreux experts. Ses sept véritables disciples étaient déjà tous puissants, sans même mentionner les innombrables membres cachés qui avaient survécu à d'infimes et d'innombrables situations de vie ou de mort.
 
@@ -94,7 +94,7 @@ Le Pays Démon du Ciel mobilisa trente millions de soldats et déclara officiell
 
 Si les batailles étaient courantes dans le Domaine des Esprits Démoniaques, elles n'étaient que des escarmouches. Les guerres totales entre deux pays étaient extrêmement rares.
 
-Même avec l'apparition de cultivateurs tous les cinq mille ans, cela ne provoquait que des conflits limités entre les neuf pays. Il était rare qu'un tel affrontement terjadi, une véritable lutte pour la survie entre deux nations!
+Même avec l'apparition de cultivateurs tous les cinq mille ans, cela ne provoquait que des conflits limités entre les neuf pays. Il était rare qu'un tel affrontement se produise, une véritable lutte pour la survie entre deux nations!
 
 Car une fois l'équilibre entre les neuf pays rompu, cela déclencherait une réaction en chaîne inimaginable.
 

@@ -32,7 +32,7 @@ On aurait dit que la divine rétribution descendait sur le Temple Céleste du To
 
 Alors que la tempête se propageait à nouveau, les vieux monstres sur les tapis de prière plissèrent les yeux. Maître Flamespark afficha un sourire amer avant de lever sa main droite pour presser le ciel. Un grondement retentit et la tempête qui jaillissait disparut.
 
-À cet instant, un tonnerre infini se précipitait vers l'esprit du tonnerre. L'âme originelle du dragon de tonnerre antique de Wang Lin, qui avait dévoré la moitié de l'esprit, ressentit soudain une pulsion irrésistible. Wang Lin n'avait jamais ressenti un tel élan auparavant. Cependant, alors que la moitié de l'esprit du tonnerre qu'il avait consommée se transformait en un tonnerre infini au sein de son âme originelle, il ne put plus contenir cette pulsion. C'était comme s'un rugissement grondait en lui et qu'il ne pouvait plus le retenir.
+À cet instant, un tonnerre infini se précipitait vers l'esprit du tonnerre. L'âme originelle du dragon de tonnerre antique de Wang Lin, qui avait dévoré la moitié de l'esprit, ressentit soudain une pulsion irrésistible. Wang Lin n'avait jamais ressenti un tel élan auparavant. Cependant, alors que la moitié de l'esprit du tonnerre qu'il avait consommée se transformait en un tonnerre infini au sein de son âme originelle, il ne put plus contenir cette pulsion. C'était comme si un rugissement grondait en lui et qu'il ne pouvait plus le retenir.
 
 Ce fut le premier rugissement de tonnerre que Wang Lin laissa échapper depuis l'obtention de l'âme originelle du dragon de tonnerre antique. C'était comme si ce cri avait transpercé le Temple Céleste du Tonnerre pour devenir une existence immuable dans le monde: le son même du tonnerre!
 
@@ -46,9 +46,9 @@ ROAR!
 
 En un seul rugissement, les cieux et la terre changèrent de couleur. Tous les éclairs qui convergeaient vers l'esprit du tonnerre tremblèrent puis changèrent de direction. C'était comme s'ils étaient en pèlerinage, car ils se précipitèrent tous vers l'âme originelle du dragon de tonnerre antique de Wang Lin.
 
-Les expressions de tous les cultivants alentour changèrent radicalement. Même les vieux monstres sur les tapis de prière furent stupéfaits.
+Les expressions de tous les cultivateurs alentour changèrent radicalement. Même les vieux monstres sur les tapis de prière furent stupéfaits.
 
-Même les yeux de Blood God s'illuminèrent d'une lueur froide.
+Même les yeux du Dieu de Sang s'illuminèrent d'une lueur froide.
 
 Pour la première fois, Qing Shui rit et s'exclama: « Bien! »
 
@@ -58,9 +58,9 @@ Si les vieux monstres réagissaient ainsi, il n'était même pas nécessaire de 
 
 « Il vaut mieux ne pas le provoquer, à moins que ce ne soit absolument nécessaire! »
 
-Les yeux de Shengong Hua étaient remplis d'excitation. Il ne pouvait plus se retenir, et l'admiration qu'il éprouvait pour Wang Lin devint encore plus intense.
+Les yeux de Shengong Hu étaient remplis d'excitation. Il ne pouvait plus se retenir, et l'admiration qu'il éprouvait pour Wang Lin devint encore plus intense.
 
-Zhan Konglie fut également stupéfait un instant. Pour la première fois, ses yeux furent eux aussi empreints de fascination et de respect, tout comme ceux de Shengong Hua!
+Zhan Konglie fut également stupéfait un instant. Pour la première fois, ses yeux furent eux aussi empreints de fascination et de respect, tout comme ceux de Shengong Hu!
 
 Quant au garçon à la grosse tête et au cultivateur aux six doigts, leurs esprits tremblèrent et leurs yeux se remplirent de terreur. Ils décidèrent sur-le-champ que ce Xu Mu ne devait pas être provoqué! Cet homme avait osé dévorer un esprit du tonnerre et avait pris le commandement de tout le lac de tonnerre d'un seul rugissement. Ce prodige leur glaçait le sang!
 

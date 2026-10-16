@@ -29,13 +29,13 @@ Il pensa à Li Muwan.
 
 Le paon poussa un autre cri tandis que les sept couleurs de sa queue fusionnaient pour former un arc-en-ciel. L'arc-en-ciel jaillit du paon, perça le ciel et se fondit dans la peinture du parchemin céleste.
 
-« La chose la plus belle au monde est souvent la plus impitoyable. Un arc-en-ciel est magnifique et admiré par des millions de personnes. Pourtant, il est impitoyable car nul ne peut le retenir. Tout comme l'ouverture de la queue du paon est splendide mais aussi mortelle... »
+« La chose la plus belle au monde est souvent la plus impitoyable. Un arc-en-ciel est magnifique et admiré par des millions de personnes. Pourtant, il est impitoyable car nul ne peut le retenir. Tout comme l'ouverture de la queue du paon est splendide mais mène au néant... »
 
 Une fois l'arc-en-ciel entré dans le parchemin, la peinture n'était plus seulement en noir et blanc; elle contenait désormais des touches de couleur. Le gaz gris entourant le paon n'était plus monochrome; d'autres teintes s'y étaient mêlées.
 
 « 999 illusions. Il ne me manque qu'une seule illusion pour atteindre les 1000. Wang Lin, où se cache cette ultime illusion? Si telle est votre seule force, si vous êtes incapable de me résister sans votre drapeau de l'âme, alors je suis profondément déçue. J'aurais pu vous attaquer lors de notre première rencontre à la Secte de l'Affinement de l'Âme, mais vous étiez trop faible alors. Votre domaine n'avait pas encore atteint sa complétude pour devenir corporel, j'ai donc dû attendre.
 
-« Votre domaine a désormais atteint la complétude de la Transformation de l'Âme et est devenu corporel, mais vous êtes toujours aussi faible. Si c'est là tout ce que vous avez, alors vous ne pourrez même pas me permettre d'accomplir ma dernière illusion! »
+« Votre domaine a désormais atteint la complétude de la Formation de l'Âme et est devenu corporel, mais vous êtes toujours aussi faible. Si c'est là tout ce que vous avez, alors vous ne pourrez même pas me permettre d'accomplir ma dernière illusion! »
 
 L'expression de Wang Lin resta imperturbable. Il leva les yeux vers le parchemin de la vie et de la mort et réfléchit en silence.
 
@@ -61,7 +61,7 @@ Pour briser un domaine impitoyable fondé sur l'absence de sentiments, il fallai
 
 Simultanément, un rire malicieux s'éleva du parchemin.
 
-La silhouette séduisante de Mei Ji apparut à l'intérieur. Sa voix cristalline résonnait comme une mélodie: « Quel cœur impitoyable, me piéger si longtemps pour ne me libérer que lorsque vous avez besoin de moi! Wang Lin, votre cœur est-il vraiment fait de pierre? Mais cette petite fille aime vraiment ce corps! »
+La silhouette séduisante de Mei Ji apparut à l'intérieur. Sa voix cristalline résonnait comme une mélodie: « Quel cœur impitoyable, me piéger si longtemps pour ne me libérer que lorsque vous avez besoin de moi! Wang Lin, votre cœur est-il vraiment fait de pierre? Mais ce corps me plaît vraiment beaucoup! »
 
 Elle laissa échapper un rire charmeur qui surprit même Wang Lin, lui prenant quelques instants pour reprendre ses esprits.
 
@@ -91,7 +91,7 @@ Le paon commença à émettre une fumée rosée, puis son corps trembla une dern
 
 À cet instant, une teinte rosée colora ses joues, rendant son visage déjà magnifique encore plus séduisant et captivant.
 
-Cependant, les yeux de Wang Lin demeuraient froids. Qu'il Mei Ji réussisse à prendre le contrôle de Liu Mei ou que cette dernière accomplisse son ultime illusion n'avait aucune importance pour lui.
+Cependant, les yeux de Wang Lin demeuraient froids. Que Mei Ji réussisse à prendre le contrôle de Liu Mei ou que cette dernière accomplisse son ultime illusion n'avait aucune importance pour lui.
 
 Il n'y avait ni rancune ni haine profonde entre eux; leur relation était simplement complexe. S'il n'avait pas eu pour seule motivation de contrer les provocations incessantes de Liu Mei, il n'aurait probablement pas fait appel à Mei Ji.
 
@@ -105,7 +105,7 @@ Une fois son fragment d'âme en sa possession, les affaires de la planète Suzak
 
 Ces dernières années, Wang Lin avait le pressentiment que Tuo Sen, issu de la Terre des Dieux Anciens, s'échapperait bientôt. Il était convaincu qu'il n'avait aucune chance de l'affronter.
 
-Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Abandonnés, Yunque Zi, le troisième ancêtre et un esprit ancestral à dix feuilles étaient réunis.
+Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Abandonnés, Yunque Zi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
 
 Leurs plantes de vie scintillaient sur leurs fronts et, entre eux, reposait un crâne.
 
@@ -113,7 +113,7 @@ Un tatouage était gravé sur cet os. Ce motif était bien plus complexe que tou
 
 Une aura puissante s'accumulait au-dessus du crâne.
 
-Yunque Zi observa l'objet avec respect et déclara d'un ton grave: « L'ancêtre a reçu l'illumination de l'esprit primordial de notre clan et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
+Yunque Zi observa l'objet avec respect et déclara d'un ton grave: « L'ancêtre a reçu les conseils des dieux antiques de la planète Fu Wen et a transcendé le stade des onze feuilles pour devenir le troisième shaman à douze feuilles de l'histoire du clan. Ce tatouage possède un pouvoir tel que, si nous unissons nos forces, nous devrions être capables d'envoyer l'un d'entre nous à l'intérieur. »
 
 Le premier ancêtre demanda lentement: « Qui s'y rendra alors? »
 

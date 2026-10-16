@@ -22,9 +22,9 @@ La pilule de dragon était un prodige dont même les anciens cultivateurs ne pou
 
 Cependant, pour qu'un dragon puisse former une pilule de dragon, il devait vivre 9 990 000 ans. C'est pourquoi aucun registre précis n'existait sur la pilule de dragon; ses effets ne demeuraient que rumeurs et légendes.
 
-Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et reprit sa route. Il avait obtenu tout ce dont il avait besoin pour ce voyage, à l'exception d'un fourneau, mais il avait appris qu'il existait un lieu appelé le Pavillon du Raffinage des Trésors où il pourrait en acquérir un.
+Après avoir remis le dragon à Li Muwan, Wang Lin ne s'en soucia plus et reprit sa route. Il avait obtenu tout ce dont il avait besoin pour ce voyage, à l'exception d'un fourneau, mais il avait appris qu'il existait un lieu appelé la Secte du Raffinage des Trésors où il pourrait en acquérir un.
 
-Le Secte du Raffinage des Trésors possédait de nombreux magasins à travers la Mer des Démons. Le plus proche se trouvait dans la ville de North Dipper, à 40 000 kilomètres de là. Toutefois, les objets tels que les fourneaux à pilules coûtaient généralement une fortune; après avoir entendu Sang Muya raconter que le chef de la Secte de la Lutte contre le Mal avait dépensé presque toutes les pierres spirituelles de sa secte pour un seul fourneau, Wang Lin renonça à l'idée d'en acheter un pour l'instant.
+La Secte du Raffinage des Trésors possédait de nombreux magasins à travers la Mer des Démons. Le plus proche se trouvait dans la ville de Nan Dou, à plus de 200 000 kilomètres de là. Toutefois, les objets tels que les fourneaux à pilules coûtaient généralement une fortune; après avoir entendu Sang Muya raconter que le chef de la Secte de la Lutte contre le Mal avait dépensé la majeure partie des pierres spirituelles de sa secte pour un seul fourneau, Wang Lin renonça à l'idée d'en acheter un pour l'instant.
 
 Il décida de mettre la question du fourneau de côté. Puisqu'ils possédaient les os du dragon, la formation des neuf squelettes serait suffisamment puissante pour leur offrir une protection décente. Wang Lin allait désormais se consacrer à une culture en méditation intensive, visant le stade de la Formation du Noyau.
 
@@ -68,7 +68,7 @@ Concernant les restes du dragon, Li Muwan avait mis la pilule de dragon de côt�
 
 Le dernier élément était une petite fiole contenant la moelle osseuse. Elle était si précieuse que Li Muwan craignait de l'utiliser pour l'alchimie. Elle remit tous ces trésors à Wang Lin, détournant douloureusement le regard.
 
-Wang Lin conservat la moelle et les tendons, et remit tout le reste à Li Muwan. De ses mains délicates, elle confectionna deux armures intérieures à partir de la peau du dragon. Une fois que Wang Lin en eut revêtu une, il jeta la seconde — manifestement taillée pour une femme — à Li Muwan. Elle esquissa un sourire avant de la ranger silencieusement dans son sac de rangement.
+Wang Lin conserva la moelle et les tendons, et remit tout le reste à Li Muwan. De ses mains délicates, elle confectionna deux armures intérieures à partir de la peau du dragon. Une fois que Wang Lin en eut revêtu une, il jeta la seconde — manifestement taillée pour une femme — à Li Muwan. Elle esquissa un sourire avant de la ranger silencieusement dans son sac de rangement.
 
 Il restait encore beaucoup de peau de dragon après la confection des armures; Wang Lin la rangea donc afin de l'échanger contre d'autres ressources plus tard. Le dragon entier s'était métamorphosé en une multitude de trésors.
 
@@ -78,6 +78,6 @@ Wang Lin ouvrit les yeux, le regard exalté. Il les referma aussitôt, décidé 
 
 Situ Nan lui avait précédemment expliqué en détail ce processus. La fusion se composait d'une étape initiale et de l'achèvement final. S'il atteignait la première étape, il serait véritablement à mi-chemin du stade de la Formation du Noyau. S'il consommait la Pilule du Ciel Lointain au moment précis où la fusion s'achèverait, il aurait 80 % de chances de franchir avec succès ce stade.
 
-Il n'avait pas laissé Li Muwan terminer la Pilule du Ciel Lointain car elle nécessitait un meilleur fourneau et il ne restait qu'une seule pilule incomplète; il devait garantir le taux de réussite le plus élevé possible. Par précaution, il avait également prévu un plan de secours consistant à utiliser la racine sanguine démoniaque pour fabriquer une fausse Pilule du Ciel Lointain.
+Il n'avait pas laissé Li Muwan terminer la Pilule du Ciel Lointain car elle nécessitait un meilleur fourneau et il ne restait qu'une seule pilule incomplète; il devait garantir le taux de réussite le plus élevé possible. Par précaution, il avait également prévu un plan de secours consistant à utiliser la vigne de sang de démon pour fabriquer une fausse Pilule du Ciel Lointain.
 
 Auparavant, l'achat d'un fourneau lui semblait prohibitif, mais avec la peau de dragon en sa possession, il pourrait tenter d'en obtenir un. Si cela ne suffisait pas, il ferait tout nécessaire pour se procurer l'outil indispensable. Il prit une profonde inspiration et commença à tenter la fusion de ses noyaux froids.

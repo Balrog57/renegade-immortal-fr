@@ -16,7 +16,7 @@ Ces dix-huit statues divines dégageaient des éclats de lumière restrictive qu
 
 « Voici la véritable Restriction des Dix-huit Pruniers. Regarde bien! » Les yeux de Li Yuan devinrent glacials tandis qu'il pointait le vide de sa main droite.
 
-Wang Lin répondit d'un ton nonchalant et désinvolte: « Tuer le sang de son propre maître... un tel homme est dépourvu de honte et de conscience! Li Yuan, lorsque tu as sacrifié le sang d'un descendant de ton maître, n'as-tu pas ressenti la tristesse émanant de sa statue?! Oses-tu te retourner pour regarder le sceau sur la main droite de ton maître! »
+Wang Lin répondit d'un ton nonchalant et désinvolte: « Tuer le sang des descendants de son maître... un tel homme est dépourvu de honte et de conscience! Li Yuan, lorsque tu as sacrifié le sang d'un descendant de ton maître, n'as-tu pas ressenti la tristesse émanant de sa statue?! Oses-tu te retourner pour regarder le sceau sur la main droite de ton maître! »
 
 « N'essaie pas de briser ma foi. Tout ce que je fais est pour ressusciter mon seigneur; ce n'est pas une chose qu'un simple enfant comme toi peut comprendre! » Les yeux de Li Yuan étaient sombres.
 
@@ -26,7 +26,7 @@ Toutefois, Wang Lin restait perplexe sur un point. Mais au moment où Li Yuan re
 
 « Tu ne te souviens même pas de qui tu es... Tu n'es pas Li Yuan! » La voix de Wang Lin était empreinte de mystère. Alors qu'il parlait, les dix-huit statues célestes se précipitèrent sur lui.
 
-Wang Lin frappa son sac de rangement et un rocher apparut dans sa main. La pierre grandit instantanément jusqu'à atteindre la taille d'une petite montagne, dégageant une aura antique. Wang Lin frappa le mont, faisant surgir et s'étendre l'âme de la montagne.
+Wang Lin frappa son sac de rangement et un rocher apparut dans sa main. La pierre grandit instantanément jusqu'à atteindre la taille d'une petite montagne, dégageant une aura antique. Wang Lin frappa le mont, faisant surgir l'âme de la montagne, qui s'étendit en un cercle autour de lui.
 
 Wang Lin se tenait au centre du cercle, le regard brillant intensément.
 
@@ -54,7 +54,7 @@ Parmi les dix-huit fleurs de prunier, trois s'effondrèrent instantanément. Wan
 
 « Non seulement tu n'es pas Li Yuan, mais même l'ancêtre Li d'il y a des dizaines de milliers d'années, celui qui recueillit les trois trésors, n'était pas lui-même. C'est toi qui t'es fusionné avec l'empreinte d'esclave pour te réincarner dans la famille Li! » Les yeux de Wang Lin brillaient alors qu'il avançait, la voix empreinte de détermination.
 
-« C'est pourquoi, il y a des dizaines de milliers d'années, lors de ta première réincarnation, tu as pu faire obéir la famille Ge. Aujourd'hui, après des millénaires dans ta seconde réincarnation, tu es toujours capable de les soumettre. C'est parce que tu es poussé par un sentiment de rectitude qui t'oblige à ressusciter ton maître, dût cela se faire au détriment de toute la famille Ge! »
+« C'est pourquoi, il y a des dizaines de milliers d'années, lors de ta première réincarnation, tu as pu faire obéir la famille Ge. Aujourd'hui, après des dizaines de milliers d'années dans ta seconde réincarnation, tu es toujours capable de les soumettre. C'est parce que tu es poussé par un sentiment de rectitude qui t'oblige à ressusciter ton maître, dût cela se faire au détriment de toute la famille Ge! »
 
 « Tu peux tromper les autres, mais tu ne me tromperas pas. Tant qu'il s'agit du cycle de la réincarnation, rien ne m'échappe! »
 

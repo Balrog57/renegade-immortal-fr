@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 394 - The weakest soul transformation and the real Wang Lin
 slug: la-transformation-de-lame-la-plus-faible-et-le-véritable-wang-lin
 ---
-Li Yuanfeng prit une profonde inspiration et dit lentement: « Ceng Niu, n'implique pas les autres dans notre combat. Tous, partez! Éloignez-vous à 5 000 kilomètres. Personne n'est autorisé à approcher. »
+Li Yuanfeng prit une profonde inspiration et dit lentement: « Ceng Niu, n'implique pas les autres dans notre combat. Tous, partez! Éloignez-vous à plus de 5 000 kilomètres. Personne n'est autorisé à approcher. »
 
 Les cultivateurs de la Formation de l'Âme de Xue Yue reculèrent tous. Leur arrivée avait été impétueuse, mais ils devaient repartir ainsi. Ce contraste frappant fit naître en beaucoup d'entre eux une amertume profonde et une crainte immense envers Wang Lin.
 
@@ -36,7 +36,7 @@ En s'avançant, il lança froidement: « Li Yuanfeng, est-ce là le pouvoir d'un
 
 Li Yuanfeng regarda Wang Lin tout en reculant et poussa un rugissement. Ses deux mains formèrent un sceau qu'il pressa contre sa poitrine. Il cracha soudainement un rayon de lumière dorée.
 
-Cette lumière se transforma rapidement en un géant de glace de mille pieds de haut, dans lequel Li Yuanfeng disparut.
+Cette lumière se transforma rapidement en un géant de glace de trente-trois mètres de haut, dans lequel Li Yuanfeng disparut.
 
 Le géant poussa un rugissement qui se propagea instantanément aux quatre vents.
 
@@ -44,7 +44,7 @@ Les yeux de Wang Lin devinrent sérieux. Ce géant de glace ressemblait presque 
 
 Il fit un pas en avant dans un rugissement et chargea vers Wang Lin.
 
-Une lueur mystérieuse brilla dans les yeux de Wang Lin. Le corps de l'Ancien Dieu n'avait été vaincu que par le Messager du Ciel. Il laissa échapper un rire et chargea à son tour contre le géant de glace.
+Une lueur mystérieuse brilla dans les yeux de Wang Lin. Le corps de l'Ancien Dieu n'avait subi qu'un léger revers face au Messager du Ciel. Il laissa échapper un rire et chargea à son tour contre le géant de glace.
 
 Bang! Bang! Bang!
 

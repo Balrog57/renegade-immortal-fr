@@ -32,9 +32,9 @@ Le corps de Tuo Sen resta immobile alors qu'il fixait l'endroit où Wang Lin ava
 
 Un vortex gigantesque apparut soudainement dans le ciel et commença à tourner lentement. Une force d'aspiration dépassant l'entendement émanait de son centre.
 
-Alors qu'il tentait de fuir, le corps de Wang Lin s'arrêta brusquement et fut aspiré en arrière à une vitesse prodigieuse. En un clin d'œil, il fut ramené à moins de mille pieds de Tuo Sen.
+Alors qu'il tentait de fuir, le corps de Wang Lin s'arrêta brusquement et fut aspiré en arrière à une vitesse prodigieuse. En un clin d'œil, il fut ramené à environ trois cent trente mètres de Tuo Sen.
 
-« Je t'ai dit que tu ne pourrais pas t'enfuir! » Tuo Sen franchit les mille pieds en un seul pas et lança un coup de poing.
+« Je t'ai dit que tu ne pourrais pas t'enfuir! » Tuo Sen franchit les trois cent trente mètres en un seul pas et lança un coup de poing.
 
 L'expression de Wang Lin était affreuse, une sensation de mort imminente lui glaçant le cœur. Cette intuition était si puissante qu'il prit une décision radicale.
 
@@ -52,7 +52,7 @@ Il retira immédiatement son poing et s'apprêta à battre en retraite.
 
 Cependant, il était trop tard; les innombrables fragments d'âme et les âmes primaires explosèrent tous. Cette déflagration fut encore plus puissante que l'explosion d'un fragment d'âme Ascendant fusionné!
 
-Le symbole noir fendit l'air comme un éclair et se brisa à quelques pieds de Tuo Sen. Une onde noire apparut soudainement, semblant douée d'une intelligence propre; elle ne se propagea pas de manière aléatoire, mais chargea droit sur Tuo Sen.
+Le symbole noir fendit l'air comme un éclair et se brisa à une dizaine de mètres de Tuo Sen. Une onde noire apparut soudainement, semblant douée d'une intelligence propre; elle ne se propagea pas de manière aléatoire, mais chargea droit sur Tuo Sen.
 
 Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité de la Tombe de Suzaku.
 
@@ -60,7 +60,7 @@ Un son fracassant, capable de déchirer les cieux, ébranla l'intégralité de l
 
 Dans un fracas retentissant, la silhouette de Tuo Sen fut projetée en arrière telle une météorite.
 
-À mille pieds de là, le corps de Tuo Sen s'effondrait. Les yeux du petit singe à l'intérieur de son être s'obscurcirent, puis il ferma les paupières et mourut. Pourtant, la lumière rouge qui composait le corps de Tuo Sen se reforma après s'être dissipée!
+À trois cent trente mètres de là, le corps de Tuo Sen s'effondrait. Les yeux du petit singe à l'intérieur de son être s'obscurcirent, puis il ferma les paupières et mourut. Pourtant, la lumière rouge qui composait le corps de Tuo Sen se reforma après s'être dissipée!
 
 Bien qu'il semblât aussi fragile qu'un souffle de vent, il dégageait toujours l'aura terrifiante d'un expert puissant.
 
@@ -142,7 +142,7 @@ Le regard de Wang Lin devint sérieux. « C'est toi! »
 
 « Nous ne nous sommes pas vus depuis de nombreuses années, mais le frère Da Niu est toujours aussi gracieux qu'autrefois. Cependant, il y a une chose que je ne comprends toujours pas: pourquoi as-tu refusé de devenir le prochain Suzaku? »
 
-Sur la planète Suzaku, dans la Mer des Démons, au cœur de la Terre de l'Ancien Dieu, sur le pilier trônant au milieu de la mer de sang, Tuo Sen leva soudainement la tête. Il était consumé par l'injustice. Cependant, ce sentiment disparut rapidement, remplacé par une lumière rouge intense.
+Sur la planète Suzaku, dans la Mer des Démons, au cœur de la Terre de l'Ancien Dieu, sur le pilier trônant au milieu de la mer de sang, Tuo Sen leva soudainement la tête. Un bref ressentiment passa dans son regard. Ce sentiment disparut rapidement, remplacé par une lumière rouge intense.
 
 « Tu peux briser mon fragment de Sens Divin, mais tu ne pourras pas m'empêcher de m'échapper! »
 

@@ -8,7 +8,7 @@ slug: bataille-contre-le-papillon-rouge
 ---
 Wang Lin dit: « Entrez! »
 
-Sans le moindre bruit, la porte s'ouvrit et un jeune garçon vêtu de noir entra dans la pièce.
+Sans le moindre bruit, la porte s'ouvrit et un jeune garçon vêtu d'une tunique de toile bleue entra dans la pièce.
 
 Il portait un plateau de fruits. Après être entré, il ne daigna même pas regarder Wang Lin; il posa le plateau, puis se détourna pour partir.
 
@@ -62,7 +62,7 @@ Wang Lin réfléchit un instant. Il essuya la table de la main et les mots dispa
 
 Il observa l'obscurité au-delà de la fenêtre et son regard s'illumina.
 
-L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âme. Il était probablement le maître de Xue Yu.
+L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âme. Il était probablement le maître de White Snow.
 
 Le message laissé par cet homme était limpide. S'il perdait la bataille contre le Papillon Rouge, la seule issue qui lui resterait serait la mort.
 
@@ -98,7 +98,7 @@ Ces gens siégeaient sur le cercle extérieur. Sur le cercle intérieur, il n'y 
 
 Il s'agissait de quatre vieillards aux cheveux blancs.
 
-À cet instant, une grue blanche apparut au loin. Un jeune homme vêtu de blanc se tenait droit sur son dos, les cheveux attachés par un ruban violet. Bien qu'il ait l'air ordinaire, il dégageait une aura virile.
+À cet instant, une grue blanche apparut au loin. Un jeune homme vêtu de blanc se tenait droit sur son dos, les cheveux attachés par un ruban violet. Bien qu'il ait l'air ordinaire, il dégageait une allure difficile à décrire.
 
 À ses côtés se tenait une femme vêtue de pourpre. Sa beauté n'était en rien inférieure à celle du Papillon Rouge.
 
@@ -138,9 +138,9 @@ Un cri retentit depuis le ciel: « Ceng Niu! »
 
 Wang Lin s'élança dans les airs et vit un rayon de lumière rouge foncer vers lui. Avant même qu'elle n'atteigne sa cible, une aura glaciale s'était déjà propagée.
 
-Cette aura se condensa en fines particules de glace qui, à cent pieds de Wang Lin, formèrent une sculpture de glace monumentale.
+Cette aura se condensa en fines particules de glace qui, à 33 mètres de Wang Lin, formèrent une sculpture de glace monumentale.
 
-Cette statue de glace mesurait plus de cent pieds de haut et avait une forme humaine. Son visage était inexpressif tandis qu'elle projetait son poing gigantesque sur Wang Lin.
+Cette statue de glace mesurait plus de 33 mètres de haut et avait une forme humaine. Son visage était inexpressif tandis qu'elle projetait son poing gigantesque sur Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et il recula.
 

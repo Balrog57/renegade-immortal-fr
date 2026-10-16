@@ -38,13 +38,13 @@ Il y avait aussi le test de Qing Shui. Wang Lin ne se permettrait jamais de fail
 
 Porté par cette conviction inébranlable et cette intention de combat invincible, l'énergie originelle de Wang Lin circulait avec frénésie. La tempête derrière lui s'amplifia et les poissons yin et yang tournèrent encore plus vite!
 
-Cette puissante intention de combat se propagea sauvagement, résonnant dans un rayon de 5 000 kilomètres autour de la planète Flamme Terrestre! Wang Lin avançait pas après pas, sa vitesse augmentant de façon exponentielle. Il devint plusieurs fois plus rapide que le tonnerre, qu'une météorite, et même qu'un rayon de lumière!
+Cette puissante intention de combat se propagea sauvagement, résonnant dans un rayon de 10 000 kilomètres autour de la planète Flamme Terrestre! Wang Lin avançait pas après pas, sa vitesse augmentant de façon exponentielle. Il devint plusieurs fois plus rapide que le tonnerre, qu'une météorite, et même qu'un rayon de lumière!
 
 À cette allure, Wang Lin chargea directement dans une zone située à 15 000 kilomètres de la planète Flamme Terrestre!
 
 À cet instant, les deux cultivateurs qui se livraient bataille pâlirent immédiatement, envahis par la terreur; ils en oublièrent même de s'entretuer. Ils tournèrent la tête vers la source de cette effroi!
 
-À ce moment-là, non seulement ces deux-là, mais l'expression de presque tous les êtres dans un rayon de 10 000 kilomètres changea en regardant au loin. Même les deux messagers aux robes bleues du Temple Céleste du Tonnerre sentirent leur cœur cogner contre leur poitrine, et le sang sembla se figer dans leurs veines. Seule leur énergie originelle circulait avec frénésie à l'intérieur de leurs corps, comme s'ils ne pourraient survivre sans cette circulation!
+À ce moment-là, non seulement ces deux-là, mais l'expression de presque tous les êtres dans un rayon de 5 000 kilomètres changea en regardant au loin. Même les deux messagers aux robes vertes du Temple Céleste du Tonnerre sentirent leur cœur cogner contre leur poitrine, et le sang sembla se figer dans leurs veines. Seule leur énergie originelle circulait avec frénésie à l'intérieur de leurs corps, comme s'ils ne pourraient survivre sans cette circulation!
 
 Les ancêtres des grandes familles de culture sortirent de leur méditation. Ils fixèrent l'horizon et leurs yeux s'illuminèrent de choc.
 
@@ -60,21 +60,21 @@ Une intention de combat infinie sembla sculpter le mot « COMBAT » qui résonna
 
 Submergés par cette intention de combat, une pensée irrésistible s'imposa à leurs esprits!
 
-Les yeux de Shengong Hua s'écarquillèrent et il se redressa brusquement. Un sentiment irrépressible jaillit des profondeurs de son âme comme un déluge. Dans son esprit, c'était comme si une bête primordiale approchait de loin. Cette intention de combat sans fin faisait bouillir son sang. Il avait l'impression de retenir sa respiration, et que s'il ne la relâchait pas, il en mourrait!
+Les yeux de Shengong Hu s'écarquillèrent et il se redressa brusquement. Un sentiment irrépressible jaillit des profondeurs de son âme comme un déluge. Dans son esprit, c'était comme si une bête primordiale approchait de loin. Cette intention de combat sans fin faisait bouillir son sang. Il avait l'impression de retenir sa respiration, et que s'il ne la relâchait pas, il en mourrait!
 
 Mais ce n'était pas là le point crucial. Le plus important était qu'une sensation très familière émanait de cette intention. Cette aura, combinée à l'amertume dans son cœur, fit naître un sentiment complexe qui envahit tout son être.
 
-« Respecté… Seigneur! » Le corps de Shengong Hua trembla. Il avait cru être déçu, avoir perdu foi en son seigneur, s'être senti trahi par lui. Pourtant, à cet instant, une puissance surgit dans son corps qui l'exalta de nouveau, mais cette fois avec une pointe d'indignation!
+« Respecté… Seigneur! » Le corps de Shengong Hu trembla. Il avait cru être déçu, avoir perdu foi en son seigneur, s'être senti trahi par lui. Pourtant, à cet instant, une puissance surgit dans son corps qui l'exalta de nouveau, mais cette fois avec une pointe d'indignation!
 
-« Roar! » Shengong Hua poussa un rugissement qui enveloppa son corps. Cette aura absorba toutes ses émotions complexes pour les transformer, elle aussi, en intention de combat. Cette dernière jaillit tel un dragon colossal.
+« Grrr! » Shengong Hu poussa un rugissement qui enveloppa son corps. Cette aura absorba toutes ses émotions complexes pour les transformer, elle aussi, en intention de combat. Cette dernière jaillit tel un dragon colossal.
 
-Il n'était pas le seul. À cet instant, Zhan Konglie se leva également et fixa l'horizon. Il n'avait pas la capacité de détecter Xu Mu comme Shengong Hua, mais grâce à l'aura familière perçue dans cette intention, il commença à spéculer. Porté par la pression de cette volonté et par le tempérament inflexible de la famille Zhan, il était semblable à une épée dégainée. Une intention de combat monstrueuse explosa en lui juste après celle de Shengong Hua.
+Il n'était pas le seul. À cet instant, Zhan Konglie se leva également et fixa l'horizon. Il n'avait pas la capacité de détecter Xu Mu comme Shengong Hu, mais grâce à l'aura familière perçue dans cette intention, il commença à spéculer. Porté par la pression de cette volonté et par le tempérament inflexible de la famille Zhan, il était semblable à une épée dégainée. Une intention de combat monstrueuse explosa en lui juste après celle de Shengong Hu.
 
 Cette intention se mua également en dragon, mais il s'agissait d'un dragon d'énergie d'épée qui jaillit de son corps!
 
 Tang Yanfeng se leva lentement tandis qu'une dense intention meurtrière explosait de sa silhouette. Tout son corps s'élança comme un éclair vers la source du tumulte. Ses yeux étaient froids et son intention de tuer était dévastatrice!
 
-Cette intention meurtrière fusionna avec l'intention de combat pour former une tempête. Celle-ci rejoignit les intentions de Shengong Hua et de Zhan Konglie pour s'élancer et affronter la puissance qui fonçait vers eux!
+Cette intention meurtrière fusionna avec l'intention de combat pour former une tempête. Celle-ci rejoignit les intentions de Shengong Hu et de Zhan Konglie pour s'élancer et affronter la puissance qui fonçait vers eux!
 
 Sous cette pression, ces trois hommes ne furent pas les seuls à voir leur intention de combat s'enflammer. Un instant plus tard, des dizaines d'autres intentions jaillirent avec une aura aussi inflexible que le tonnerre.
 
@@ -94,7 +94,7 @@ Une lueur froide passa dans les yeux de Wang Lin et il fit un pas. Il leva sa ma
 
 Alors que son énergie se répandait avec fureur, les yeux de Tang Yanfeng révélèrent une trace de terreur. Il n'aurait jamais imaginé que l'homme devant lui ait déjà franchi le stade Yang Corporel pour atteindre celui de Scruteur du Nirvana!
 
-Au moment même où la terreur l'envahissait, Wang Lin arriva et lança un « Heavenly Chop ». L'attaque entra en collision avec l'épée rouge de Tang Yanfeng, la brisant net et projetant les fragments en arrière.
+Au moment même où la terreur l'envahissait, Wang Lin arriva et lança un « Coup Céleste ». L'attaque entra en collision avec l'épée rouge de Tang Yanfeng, la brisant net et projetant les fragments en arrière.
 
 Tang Yanfeng poussa un cri d'incrédulité lorsque les deux doigts de Wang Lin formèrent une épée de lumière, transperçant tous ses sorts. Tous les lotus écarlates qui l'entouraient s'effondrèrent instantanément.
 

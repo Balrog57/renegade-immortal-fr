@@ -136,7 +136,7 @@ Wang Lin fixa le corps, une idée lui traversant l'esprit. Il prit le sac de ran
 
 Wang Lin saisit le noyau doré et l'avala sans hésiter. Puis, il fit un pas en arrière et s'enfonça dans le sol.
 
-Il descendit à plus de 300 mètres sous terre et s'assit en tailleur pour digérer le noyau. Celui-ci se dissipa instantanément, libérant une vague d'énergie spirituelle dans son corps.
+Il descendit à plus de 3 000 mètres sous terre et s'assit en tailleur pour digérer le noyau. Celui-ci se dissipa instantanément, libérant une vague d'énergie spirituelle dans son corps.
 
 Cette énergie était trop puissante pour sa constitution actuelle; il se mit à saigner du nez et de la bouche. Wang Lin pressa son front et la perle défiant le ciel apparut. Il s'en saisit et disparut dans l'espace de la perle.
 
@@ -156,36 +156,36 @@ Wang Lin rejoignit les lieux de la bataille. Les cadavres jonchaient le sol et l
 
 Après une brève inspection, il se dirigea vers la montagne de l'Union Huo Fen. Arrivé au pied de celle-ci, il émergea du sol et sauta sur son épée volante.
 
-De nombreux cultivateurs patrouillaient, mais lorsqu'ils virent le jade servant à enregistrer ses exploits, personne ne l'arrêta. Wang Lin se rendit directement dans un bâtiment latéral au sommet de la montagne, là où Fen Lou l'avait convoqué la dernière fois.
+De nombreux cultivateurs patrouillaient, mais lorsqu'ils virent le jade servant à enregistrer ses exploits, personne ne l'arrêta. Wang Lin se rendit directement dans un bâtiment latéral au sommet de la montagne, là où Feng Luan l'avait convoqué la dernière fois.
 
 Deux cultivatrices de la Formation du Noyau s'entraînaient à l'extérieur. Elles ouvrirent les yeux en voyant approcher Wang Lin, mais les refermèrent aussitôt lorsqu'elles le reconnurent.
 
 Debout devant le bâtiment, Wang Lin annonça d'une voix forte: « Le disciple salue son maître. »
 
-« Entre », répondit la voix douce de Fen Lou depuis l'intérieur.
+« Entre », répondit la voix douce de Feng Luan depuis l'intérieur.
 
-Wang Lin entra sans mot dire et vit Fen Lou assise sur un banc de pierre. À ses côtés se trouvait Yang Sen qui, après avoir incliné la tête à Wang Lin, reporta son regard vers l'extérieur en fronçant les sourcils.
+Wang Lin entra sans mot dire et vit Feng Luan assise sur un banc de pierre. À ses côtés se trouvait Yang Sen qui, après avoir incliné la tête à Wang Lin, reporta son regard vers l'extérieur en fronçant les sourcils.
 
-L'expression de Fen Lou semblait empreinte de fatigue lorsqu'elle demanda: « Qu'y a-t-il? »
+L'expression de Feng Luan semblait empreinte de fatigue lorsqu'elle demanda: « Qu'y a-t-il? »
 
-Wang Lin ne répondit pas et se contenta de lancer le jade. Fen Lou fut surprise; elle n'avait pas encore vérifié le contenu, seul Wang Lin l'avait fait. Dès que son Sens Divin pénétra dans le jade, son expression devint étrange.
+Wang Lin ne répondit pas et se contenta de lancer le jade. Feng Luan fut surprise; elle n'avait pas encore vérifié le contenu, seul Wang Lin l'avait fait. Dès que son Sens Divin pénétra dans le jade, son expression devint étrange.
 
-Yang Sen prit le jade des mains de Fen Lou et le scanna de son propre Sens Divin. Son visage s'illumina d'un sourire: « Pas mal. Tu as tué 61 cultivateurs de l'Établissement des Fondations et un de la Formation du Noyau. Si tu continues ainsi, tu auras une chance d'obtenir la Pilule du Ciel Lointain. Mais je suis curieux... Tu n'étais qu'au stade intermédiaire de l'Établissement des Fondations auparavant. Comment as-tu atteint si vite le stade de pseudo-Formation du Noyau? Et même ainsi, tuer un expert de la Formation du Noyau aurait dû être presque impossible. Comment as-tu fait? » Sa voix devint plus grave à la fin de sa tirade.
+Yang Sen prit le jade des mains de Feng Luan et le scanna de son propre Sens Divin. Son visage s'illumina d'un sourire: « Pas mal. Tu as tué 61 cultivateurs de l'Établissement des Fondations et un de la Formation du Noyau. Si tu continues ainsi, tu auras une chance d'obtenir la Pilule du Ciel Lointain. Mais je suis curieux... Tu n'étais qu'au stade intermédiaire de l'Établissement des Fondations auparavant. Comment as-tu atteint si vite le stade de pseudo-Formation du Noyau? Et même ainsi, tuer un expert de la Formation du Noyau aurait dû être presque impossible. Comment as-tu fait? » Sa voix devint plus grave à la fin de sa tirade.
 
 Wang Lin avait anticipé ces questions. Calme, il répondit simplement: « Ce cultivateur de la Formation du Noyau était déjà gravement blessé par d'autres avant de s'enfuir. J'ai eu la chance de le prendre au dépourvu et j'ai saisi son noyau. J'ai ensuite utilisé la technique de la Secte Démoniaque pour le dévorer et atteindre ce stade. »
 
 « Une technique de dévoration... » Les yeux de Yang Sen sondèrent Wang Lin. Il perçut des traces d'énergie spirituelle de noyau en lui, ce qui rendit l'histoire crédible à ses yeux, et il resta silencieux.
 
-Fen Lou lança un regard significatif à Wang Lin avant de lui rendre le jade. « Voici la deuxième partie de la carte. Je compterai ce cultivateur de la Formation du Noyau pour dix disciples de l'Établissement des Fondations. Si tu parviens à en abattre 150, reviens me voir pour la troisième partie. »
+Feng Luan lança un regard significatif à Wang Lin avant de lui rendre le jade. « Voici la deuxième partie de la carte. Je compterai ce cultivateur de la Formation du Noyau pour dix disciples de l'Établissement des Fondations. Si tu parviens à en abattre 150, reviens me voir pour la troisième partie. »
 
 Wang Lin acquiesça. En vérifiant le jade avec son Sens Divin, il confirma qu'il s'agissait bien de la carte. En combinant les deux fragments, il aurait une vision claire des environs de Huo Fen.
 
-Huo Fen bordait la Mer des Démons. Selon la carte, aucun Zhao ne se trouvait dans les parages. Les descriptions indiquaient qu'un autre continent existait de l'autre côté de la Mer des Démons; il était certain que le troisième fragment contiendrait des informations à ce sujet.
+Huo Fen bordait la Mer des Démons. Selon la carte, aucun Zhao ne se trouvait dans les parages. Les descriptions indiquaient qu'un autre continent existait de l'autre côté de la Mer des Démons; il pensa que le troisième fragment devait contenir des informations à ce sujet.
 
 Il y avait aussi une description détaillée de la Mer des Démons, mais Wang Lin n'y prêta pas attention en retirant son Sens Divin.
 
 Yang Sen regarda Wang Lin avec une certaine faveur: « Les cultivateurs de Xuan Wu se sont rassemblés pour un grand affrontement. Si tu veux accumuler des points, c'est ta meilleure chance. »
 
-Wang Lin allait répondre lorsqu'un cri retentit soudainement à l'extérieur. Yang Sen et Fen Lou disparurent instantanément pour s'élancer vers le bruit.
+Wang Lin allait répondre lorsqu'un cri retentit soudainement à l'extérieur. Yang Sen et Feng Luan disparurent instantanément pour s'élancer vers le bruit.
 
-Wang Lin sortit rapidement et vit une Âme Naissante couverte de blessures, laissant échapper des traînées d'énergie spirituelle. L'Âme Naissante s'écria: « Camarades... le réseau de scellement du pays a été brisé... les bêtes de feu arrivent... »
+Wang Lin sortit rapidement et vit une Âme Naissante couverte de blessures, laissant échapper des traînées d'énergie spirituelle. L'Âme Naissante s'écria: « Camarades... la formation de scellement du pays a été brisée... les bêtes de feu arrivent... »

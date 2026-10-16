@@ -8,15 +8,15 @@ slug: sans-nom-1
 ---
 Le vieil homme frappa la tortue-dragon, laquelle poussa un rugissement qui fit voler les débris des Étoiles Brisées du Chaos.
 
-Bien que l'anneau fût silencieux, il fut repoussé et les débris furent écartés.
+Bien que l'anneau fût silencieux, un vide d'une dizaine de mètres de profondeur s'y creusa et les débris furent écartés.
 
 Le vieil homme sauta sur le dos de la tortue-dragon. La créature prit une profonde inspiration, aspirant toute l'énergie spirituelle environnante dans sa gueule.
 
-Puis, la bête poussa un autre rugissement. Cette fois, une onde sonore visible apparut juste avant qu'elle ne percute l'anneau. Un tunnel de cent mètres de large se forma à l'intérieur de l'anneau et tous les débris furent réduits en poussière.
+Puis, la bête poussa un autre rugissement. Cette fois, une onde sonore visible apparut juste avant qu'elle ne percute l'anneau. Un tunnel large d'environ trois cents mètres se forma à l'intérieur de l'anneau et tous les débris furent réduits en poussière.
 
 Les yeux de Wang Lin s'illuminèrent. Il était surpris par la puissance de cette bête, mais il n'en avait pas peur pour autant si un véritable combat devait éclater. Après tout, d'après ce qu'il avait vu, l'attaque était linéaire; avec l'agilité dont Wang Lin faisait preuve au combat, comment aurait-il laissé la bête le frapper avec une telle attaque?
 
-Le vieil homme chargea et suivit de près le rugissement tel une flèche. En un clin d'œil, il se trouvait à moins de cent mètres de l'anneau. Peu après, les débris à l'intérieur de l'anneau formèrent des clones du vieil homme.
+Le vieil homme chargea et suivit de près le rugissement tel une flèche. En un clin d'œil, il se trouvait à moins de trois cents mètres de l'anneau. Peu après, les débris à l'intérieur de l'anneau formèrent des clones du vieil homme.
 
 Ce dernier ne paniqua pas. Il frappa son sac de rangement et plus de dix morceaux de jade s'envolèrent. Les jades encerclèrent le vieil homme avant de foncer sur les clones au moment où ceux-ci chargeaient.
 
@@ -28,7 +28,7 @@ Le vieil homme utilisa les clones formés par les jades pour bloquer ceux formé
 
 Au moment où il franchit la barrière, tous les clones formés par les jades disparurent silencieusement. Les clones de débris, quant à eux, poussèrent des rugissements de colère avant de s'évanouir également.
 
-Le vieil homme se retourna et regarda Wang Lin à l'extérieur de l'anneau. Il laissa échapper un renflement et agita la main; la tortue-dragon se contracta jusqu'à devenir une lueur noire qui vola vers lui.
+Le vieil homme se retourna et regarda Wang Lin à l'extérieur de l'anneau. Il laissa échapper un reniflement et agita la main; la tortue-dragon se contracta jusqu'à devenir une lueur noire qui vola vers lui.
 
 Cependant, les Étoiles Brisées du Chaos ne réagirent nullement à cette lumière noire. Celle-ci put atteindre le vieil homme avant de reprendre sa forme de tortue-dragon.
 
@@ -36,7 +36,7 @@ Le vieil homme sauta sur le dos de la bête et s'enfonça plus profondément.
 
 Les yeux de Wang Lin s'illuminèrent. Il ne se leva pas immédiatement, mais attendit silencieusement.
 
-Cette attente dura sept jours. Quant à la bête moustique, Wang Lin ne la remit pas dans son sac; au contraire, il la laissa errer librement. La créature venait originellement de la Mer des Diables et, étant de retour chez elle, elle était très détendue.
+Cette attente dura sept jours. Quant à la bête moustique, Wang Lin ne la remit pas dans son sac; au contraire, il la laissa errer librement. La créature venait originellement de la Mer des Démons et, étant de retour chez elle, elle était très détendue.
 
 Après sept jours, la silhouette de la tortue-dragon réapparut, le vieil homme assis sur son dos. À ses côtés, sept fines lueurs dorées se déplaçaient rapidement.
 
@@ -56,7 +56,7 @@ Les yeux du vieil homme brillèrent. Il était désormais certain que Wang Lin �
 
 Le vieil homme afficha un sourire espiègle et déclara: « Puisque tu ne veux pas faire équipe, je m'en vais. » Il frappa la bête sous ses pieds et, tandis que des nuages rouges se rassemblaient à nouveau, il disparut.
 
-Wang Lin réfléchit un instant, se leva et observa la ligne dorée. Mais à ce moment précis, la bête moustique apparut devant lui et fixa la lueur avec insistance. Ses yeux trahissaient la peur autant que l'avidité.
+Wang Lin réfléchit un instant, se leva et observa la ligne dorée. Mais à ce moment précis, la bête moustique apparut à une trentaine de mètres de lui et fixa la lueur avec insistance. Ses yeux trahissaient la peur autant que l'avidité.
 
 C'était comme si elle voulait la dévorer sans oser s'y risquer.
 
@@ -74,7 +74,7 @@ La créature poussa quelques gémissements misérables avant de s'effondrer au s
 
 Wang Lin observa la bête avec stupéfaction. Après trois heures, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
 
-La bête moustique mesurait désormais trente mètres de long, semblable à une petite colline. Son proboscis était devenu encore plus long, lui donnant un aspect plus effrayant.
+La bête moustique mesurait désormais près de cent mètres de long, semblable à une petite colline. Son proboscis était devenu encore plus long, lui donnant un aspect plus effrayant.
 
 En réalité, le Feu d'Aurore était un matériau de raffinement de trésors que seuls les cultivateurs de la Formation de l'Âme pouvaient manipuler, car il se nourrissait des Âmes Naissantes pour croître. Les bêtes fuyaient normalement ce feu.
 
@@ -84,7 +84,7 @@ Mais cette bête moustique suivait Wang Lin depuis un certain temps et, après a
 
 Wang Lin se leva et tapota la bête. Celle-ci comprit immédiatement le signal et retourna dans son sac.
 
-Peu de temps après, Wang Lin traversa l'anneau des Étoiles Brisées du Chaos. Il pouvait désormais le franchir aisément, alors qu'il avait eu tant de mal au stade de la Formation du Noyau.
+Peu de temps après, Wang Lin traversa l'anneau des Étoiles Brisées du Chaos. Il pouvait désormais le franchir aisément; déjà au stade de la Formation du Noyau, il y allait et venait en toute liberté.
 
 Grâce à son domaine de la Vie et de la Mort, il parvenait à faire paraître son niveau de culture bien inférieur à sa réalité, ce qui rendait les clones créés très faibles.
 
@@ -104,7 +104,7 @@ Tout en parlant, ses mains s'activaient sans relâche, faisant apparaître de no
 
 Auparavant, il ne s'agissait que de puissantes restrictions; mais désormais, imprégnées de son domaine, leur puissance était décuplée.
 
-Les restrictions se propagèrent rapidement et une vaste formation couvrant des centaines de mètres prit forme.
+Les restrictions se propagèrent rapidement et une vaste formation couvrant plusieurs centaines de kilomètres à la ronde prit forme.
 
 Une fois sa tâche accomplie, il rejoignit l'endroit où se trouvaient les lignes dorées.
 
@@ -122,7 +122,7 @@ Dès que son âme y eut pénétré, ses yeux furent aveuglés par une lumière d
 
 Sans perdre un instant, Wang Lin en saisit une poignée et les stocka dans son âme originelle avant de ressortir précipitamment de la faille.
 
-À l'instant où son âme originelle émergea, la faille se referma. Les dix lignes dorées qu'il tenait s'estompèrent sous l'effet de son domaine de la mort, puis il les lança à la bête moustique.
+À l'instant où son âme originelle émergea, la faille se referma. Les plus d'une dizaine de lignes dorées qu'il tenait s'estompèrent sous l'effet de son domaine de la mort, puis il les lança à la bête moustique.
 
 La créature afficha un air exalté, mais il y avait trop de lignes pour qu'elle puisse toutes les dévorer d'un coup. Wang Lin maintint une partie de son domaine de la mort sur elles afin qu'elles conservent cet état et dit: « Tu peux les manger lentement ici. Je vais faire un voyage dans les terres de l'Ancien Dieu. »
 
@@ -140,9 +140,9 @@ Une fois les étapes initiales franchies, il sortit un fanion spirituel. Après 
 
 Le temps s'écoulait lentement. Wang Lin ne perdait pas une seconde; il affinait aussi vite que possible.
 
-Les restrictions se posèrent une à une sur le fanion et, après un temps indéterminé, il y en eut enfin 999. Il n'en manquait plus qu'une seule pour atteindre le premier stade de complétion.
+Les restrictions se posèrent une à une sur le fanion et, après un temps indéterminé, il y en eut enfin 98. Il n'en manquait plus qu'une seule pour atteindre le premier stade de complétion.
 
-À ce moment, Wang Lin hésita. Si ses suppositions étaient erronées et que les éclairs de la divine rétribution frappaient, il serait très difficile de protéger ce fanion. S'il était endommagé, à moins d'en obtenir d'autres pierres à encre, il serait contraint de confier celle qui lui restait à Li Muwan.
+À ce moment, Wang Lin hésita. Si ses suppositions étaient erronées et que les éclairs de la divine rétribution frappaient, il serait très difficile de protéger ce fanion. S'il était endommagé, à moins d'en obtenir d'autres pierres à encre, il serait contraint d'utiliser le fanion de Li Muwan.
 
 S'il s'arrêtait maintenant, bien que le fanion de restriction soit faible, il ne se briserait pas; avec prudence, il pourrait encore servir.
 
@@ -150,7 +150,7 @@ Après réflexion, ses yeux s'illuminèrent. Si ce fanion n'atteignait pas le pr
 
 Il serra les dents tandis que sa main droite traçait la dernière restriction pour la poser sur le fanion.
 
-Soudain, l'objet trembla et des filaments de gaz noir s'en échappèrent, suivis d'une aura primitive. Wang Lin l'examina avec son sens divin et fut stupéfait. Il savait qu'un fanion de restriction purement offensif serait puissant, mais après une vérification rapide, il découvrit qu'il était plus de dix fois plus fort qu'avant sa complétion.
+Soudain, l'objet trembla et des filaments de gaz noir s'en échappèrent, suivis d'une aura primitive. Wang Lin l'examina avec son sens divin et fut stupéfait. Il savait qu'un fanion de restriction purement offensif serait puissant, mais après une vérification rapide, il découvrit qu'il était plusieurs dizaines de fois plus fort qu'avant sa complétion.
 
 En conséquence, ce fanion représentait une menace même pour les cultivateurs de la Formation de l'Âme.
 

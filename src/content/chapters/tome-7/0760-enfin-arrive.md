@@ -20,7 +20,7 @@ Il inspecta les environs avant de se transformer en un rayon de lumière et de s
 
 Après avoir posé quelques restrictions supplémentaires, Wang Lin repartit avec prudence.
 
-Il serait trop conspicuous de continuer à porter cette sacoche, et cela n'aiderait en rien son plan. Une fois la sacoche dissimulée, Wang Lin progressa rapidement sous terre jusqu'à s'éloigner considérablement, avant de refaire surface dans une plaine. Il jeta un dernier regard vers la montagne lointaine avant de se transformer à nouveau en un rayon de lumière et de s'envoler.
+Il serait trop voyant de continuer à porter cette sacoche, et cela n'aiderait en rien son plan. Une fois la sacoche dissimulée, Wang Lin progressa rapidement sous terre jusqu'à s'éloigner considérablement, avant de refaire surface dans une plaine. Il jeta un dernier regard vers la montagne lointaine avant de se transformer à nouveau en un rayon de lumière et de s'envoler.
 
 Il se déplaçait à une vitesse fulgurante sans marquer d'arrêt sur ce fragment. Bientôt, il atteignit les chaînes qui bordaient le fragment et les franchit rapidement.
 
@@ -108,9 +108,9 @@ Ce sens divin était d'une puissance telle que le sort du deuxième niveau conte
 
 C'était comme si, à cet instant, le fragment avait été plongé dans un bassin de sang.
 
-La lumière rouge se condensa à mille pieds de Wang Lin. Presque instantanément, une silhouette se matérialisa, révélant un homme d'âge mûr aux cheveux et aux sourcils rouges, vêtu d'une robe écarlate!
+La lumière rouge se condensa à 330 mètres de Wang Lin. Presque instantanément, une silhouette se matérialisa, révélant un homme d'âge mûr aux cheveux et aux sourcils rouges, vêtu d'une robe écarlate!
 
-Cet homme était d'une beauté telle que même Qian Feng [disciple de Zhuque Zi et aîné de Liu Mei] se sentait quelque peu inférieur en sa présence. Il dégageait une aura unique. Lorsqu'il apparut, il regarda calmement Wang Lin sans dire un mot.
+Cet homme était d'une beauté telle que même Qian Feng se sentait quelque peu inférieur en sa présence. Il dégageait une aura unique. Lorsqu'il apparut, il regarda calmement Wang Lin sans dire un mot.
 
 Cependant, Wang Lin pouvait distinctement percevoir un feu rouge capable de consumer le monde, dissimulé derrière ces yeux sereins. Le Souverain Sanguin ne perdit pas de temps en palabres: il leva sa main droite et pointa Wang Lin du doigt!
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 848 - Yao Bingyuns Dao
 slug: le-dao-de-yao-bingyun
 ---
-L'image du yin et du yang tournait lentement dans le ciel au-dessus de Wang Lin. Cette représentation en noir et blanc dégageait une puissante énergie originelle. En tournant, elle absorbait les idéaux de toutes les créatures vivantes de la planète pour former une force défiant les cieux.
+L'image du yin et du yang tournait lentement dans le ciel au-dessus de Wang Lin. Cette représentation en noir et blanc dégageait une puissante énergie originelle. En tournant, elle absorbait les pensées de toutes les créatures vivantes de la planète pour former une force défiant les cieux.
 
 Puis, elle s'élança vers le ciel!
 
@@ -104,7 +104,7 @@ Le visage de Yao Yun se décomposa de rage et il hurla: « Pourquoi, Ancêtre?! 
 
 « C'est précisément parce qu'elles sont des membres de la famille Yao que c'est leur destin! Elles ne peuvent s'échapper! Dès leur naissance, elles étaient vouées à devenir les âmes de ce trésor magique! » La voix antique était indiscutable. Une bourrasque balaya le ciel et emporta l'homme ainsi que les deux fillettes.
 
-À l'extérieur du hall ancestral de la famille Yao, le corps de Yao Yun fut expulsé du vide. Son visage était blême et il cracha une bouffée de sang. Après avoir atterri, il recula de plusieurs dizaines de pieds en laissant échapper un rire amer.
+À l'extérieur du hall ancestral de la famille Yao, le corps de Yao Yun fut expulsé du vide. Son visage était blême et il cracha une bouffée de sang. Après avoir atterri, il recula de plusieurs dizaines de mètres en laissant échapper un rire amer.
 
 Il regarda les deux filles être emportées dans le hall ancestral, prises de panique et de confusion, comme si elles étaient dévorées par l'édifice lui-même.
 

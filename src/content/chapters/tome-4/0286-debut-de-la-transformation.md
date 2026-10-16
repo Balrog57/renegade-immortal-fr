@@ -32,7 +32,7 @@ L'Âme Naissante commença lentement à émettre une lumière arc-en-ciel. Cette
 
 Pour eux, pouvoir assister au passage d'un être vers la Formation de l'Âme durant leur existence était un honneur et une chance inouïe. C'était également un immense bénéfice pour leur propre culture.
 
-Cependant, ce n'était pas pour cela que Wang Lin avait choisi de franchir ce stade à Zhao; il l'avait fait simplement par une étrange impulsion intérieure.
+Cependant, ce n'était pas pour cela que Wang Lin avait choisi de franchir ce stade à Zhao; il l'avait fait simplement par une étrange impulsion intérieure. Sans le vouloir, il avait tout de même offert au monde cultivateur de Zhao la marque d'un espoir de Formation de l'Âme.
 
 Les cultivateurs possédant déjà une Âme Naissante furent les premiers à bénéficier de ce phénomène, car leurs propres âmes semblaient subir des mutations. Leurs Âmes Naissantes s'échappèrent de leurs corps pour commencer à cultiver.
 
@@ -112,7 +112,7 @@ Il ne s'agit pas d'un changement de nature complet, mais pour un cultivateur, c'
 
 Le noyau se brise et l'Âme Naissante naît.
 
-On parle d'Âme "Naissante" car elle marque le véritable commencement du chemin de la culture.
+On parle d'Âme "Naissante" parce que le mot yuan, qui signifie l'origine, est le premier caractère du Dao, aussi appelé xuan, source de toutes les voies.
 
 La rupture du noyau et la naissance de l'Âme Naissante constituent une transformation mystérieuse, semblable au premier souffle d'un nouveau-né dans le monde mortel.
 

@@ -15,7 +15,7 @@ Lin Yi s'écria: « Tch! Que veux-tu dire par là?! »
 
 Le géant fixa Lin Yi et pénétra dans le cercle. Une fois à l'intérieur, il fit un geste de la main et le cercle se métamorphosa en deux dragons. Le portail disparut sans laisser de trace. Le ciel s'illumina instantanément et les nuages se dissipèrent.
 
-L'expression de Lin Yi était exaspérante alors qu'il lançait un regard glacial à Teng Huayuan, toujours abasourdi. Il laissa échapper un ricanement froid avant de disparaître à l'horizon.
+L'expression de Lin Yi était sombre alors qu'il lançait un regard glacial à Teng Huayuan, toujours abasourdi. Il laissa échapper un ricanement froid avant de disparaître à l'horizon.
 
 Chaque cultivateur stationné à l'extérieur de la vallée Jue Ming se souviendrait du jeune homme qui avait osé défier un cultivateur de l'Âme Naissante. Le cultivateur à l'Établissement des Fondations nommé Wang Lin était désormais gravé dans le cœur de tous.
 
@@ -23,7 +23,7 @@ Le droit d'entrer dans le champ de bataille étranger pour la nation de Zhao fut
 
 Lin Yi bouillonnait de rage en voyant l'objet que l'union de culture recherchait s'éloigner sous ses yeux. Ce sentiment lui donnait envie de cracher son sang. Surtout lorsqu'il songea que la perle avait toujours appartenu à Zhao et qu'il en était le superviseur. Si cela venait à s'ébruiter, l'humiliation serait totale.
 
-Le visage de Teng Huayuan était sombre, car il ignorait si Wang Lin était mort ou non. Il croyait en sa perte, mais ne parvenait pas à dissiper ce sentiment de terreur qui lui serrait le cœur.
+Le visage de Teng Huayuan était sombre, car il ignorait si Wang Lin était mort ou non. Il supposait que Wang Lin était mort, mais ne parvenait pas à dissiper ce sentiment de terreur qui lui serrait le cœur.
 
 Les gens à l'extérieur de la vallée Jue Ming partirent progressivement, emportant avec eux l'histoire de Wang Lin. Finalement, chaque cultivateur de Zhao finit par connaître son nom.
 
@@ -37,7 +37,7 @@ Teng Huayuan retourna à la Cité de la Famille Teng avec ce sentiment d'effroi 
 
 Tout le pays de Zhao sembla soudainement s'apaiser.
 
-Le champ de bataille étranger, lui, était saturé de failles spatiales et de vents d'acier. À cet instant précis, des milliers de personnes provenant de dizaines de pays de culture de rang 3 s'y trouvaient pour nettoyer le site. Le cultivateur de plus haut niveau présent était au stade avancé de l'Établissement des Fondations. Avec un tel niveau, ils pouvaient à peine faire un pas sans courir péril, comment espéraient-ils accomplir cette tâche?
+Le champ de bataille étranger, lui, était saturé de failles spatiales et de vents d'acier. À cet instant précis, un millier de personnes provenant de dizaines de pays de culture de rang 3 s'y trouvaient pour nettoyer le site. Le cultivateur de plus haut niveau présent était au stade avancé de l'Établissement des Fondations. Avec un tel niveau, ils pouvaient à peine faire un pas sans courir péril, comment espéraient-ils accomplir cette tâche?
 
 En réalité, lors de leur entrée dans le champ de bataille étranger, le messager seigneurial qui avait ouvert le tunnel avait remis à chacun un morceau de jade. Ce jade les protégeait du vent d'acier et les téléporterait dans leur pays d'origine après cinquante ans. Mais face aux mystérieuses failles spatiales pouvant surgir n'importe où, ces jades étaient impuissants.
 
@@ -45,13 +45,13 @@ Le champ de bataille étranger demeurait extrêmement dangereux pour ces cultiva
 
 Bien que ce ne fût pas élevé, compte tenu des matériaux et des trésors magiques qu'ils pouvaient récolter lors du nettoyage, la perspective n'était pas si mauvaise. Après tout, la culture est un acte défiant les cieux; plus le risque est grand, plus la récompense l'est aussi. De plus, quiconque revenait sain et sauf du champ de bataille étranger jouissait d'un statut supérieur au sein de sa secte. Leur niveau de culture progressait également plus vite, car cultiver dans le champ de bataille étranger était bien plus efficace que dans leurs propres sectes. L'énergie spirituelle y était extrêmement dense, et les années de danger constant forçaient leur progression. En somme, à chaque fin de cycle de nettoyage, certains réussissaient la Formation du Noyau. C'est pourquoi tant de cultivateurs à l'Établissement des Fondations risquaient leur vie ici.
 
-À cet instant précis, dans le champ de bataille étranger, au 67e angle nord-est, un jeune homme vêtu de blanc creusait un cadavre avec un couteau. En y regardant de plus près, on voyait qu'il taillait les interstices de l'armure du défunt; il voulait clairement s'en emparer. L'armure était déjà lourdement endommagée et couverte de traces de brûlures. La partie pectorale avait été complètement fracassée, révélant une plaie de la taille d'un poing. En outre, sur le corps du géant, on devinait une très légère empreinte de marteau. Sans une observation attentive, elle était invisible.
+À cet instant précis, dans le champ de bataille étranger, au 67e angle nord-est, un jeune homme au teint clair creusait un cadavre avec un couteau. En y regardant de plus près, on voyait qu'il taillait les interstices de l'armure du défunt; il voulait clairement s'en emparer. L'armure était déjà lourdement endommagée et couverte de traces de brûlures. La partie pectorale avait été complètement fracassée, révélant une plaie de la taille d'un poing. En outre, sur le corps du géant, on devinait une très légère empreinte de marteau. Sans une observation attentive, elle était invisible.
 
-Ce jeune homme s'appelait Mai Liang. C'était un cultivateur du Temple du Dieu de la Guerre dans le pays de Huo Fen. Il évoluait dans le champ de bataille étranger depuis plus de trente ans et possédait donc une grande expérience. Une précision s'impose ici: dans le champ de bataille étranger, on ne vieillit pas, mais lors de la sortie, l'on subit un vieillissement accéléré correspondant aux années passées à l'intérieur.
+Ce jeune homme s'appelait Mai Liang. C'était un cultivateur du Temple du Dieu de la Guerre, dans le pays de rang 3 de Huo Fen, au stade intermédiaire de l'Établissement des Fondations. Il évoluait dans le champ de bataille étranger depuis plus de trente ans et possédait donc une grande expérience. Une précision s'impose ici: dans le champ de bataille étranger, on ne vieillit pas, mais lors de la sortie, l'on subit un vieillissement accéléré correspondant aux années passées à l'intérieur.
 
 Alors qu'il creusait, son expression changea soudainement et il se coucha immédiatement. À cet instant, un rayon de lumière noire passa près de lui. Le jeune homme fut stupéfait. Pensant avoir aperçu une perle dans ce sillage noir, il abandonna l'armure et se lança à la poursuite de la lumière.
 
-Bien qu'il fût ici depuis trente ans, il n'avait rencontré aucun autre être vivant en dehors de ses pairs; cependant, il avait vu plusieurs trésors magiques capables de voler de façon autonome. Bien que personne ne soit parvenu à s'en saisir, Mai Liang en avait entendu parler. Ces trésors dotés d'une conscience propre étaient extrêmement puissants.
+Bien qu'il fût ici depuis trente ans, il n'avait rencontré aucun autre être vivant en dehors de ses pairs; cependant, il avait vu plusieurs trésors magiques capables de voler de façon autonome. Une fois, il avait vu de loin plus d'une centaine de cultivateurs de l'Établissement des Fondations au stade avancé se disputer une seule épée volante. Bien que personne ne soit parvenu à s'en saisir, Mai Liang en avait entendu parler. Ces trésors dotés d'une conscience propre étaient extrêmement puissants.
 
 Mai Liang utilisa sa vitesse maximale pour poursuivre la perle. Plus il courait, plus son excitation grandissait, d'autant plus que cette zone était désolée; durant l'année écoulée, il n'avait croisé aucun autre cultivateur. Son cœur s'emballa et il pensa secrètement: « Ma chance est enfin arrivée! Si je peux obtenir ce trésor et retourner à la secte, ma sœur cadette m'admirera. Alors, je remettrai ce trésor au chef de secte pour qu'il permette à ma sœur cadette de former un couple de culture avec moi. Ne serait-ce pas merveilleux? »
 

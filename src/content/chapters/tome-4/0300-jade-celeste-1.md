@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 300 - Celestial Jade (1)
 slug: jade-celeste-1
 ---
-Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le corps de Wang Lin disparut. En raison du piège pour bêtes, il était habitué à cette situation; il prit donc rapidement quelques pilules. Avant même que celles-ci ne soient totalement dissoutes, il sortit le jade, ouvrit la formation et choisit un emplacement au hasard.
+Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le corps de Wang Lin disparut. En raison du piège pour bêtes, il était habitué à cette situation; il prit donc rapidement quelques pilules. Avant même que celles-ci ne soient totalement dissoutes, il sortit le jade, ouvrit la formation et choisit un fragment au hasard.
 
 Lorsque Papillon Rouge leva la tête, Wang Lin avait déjà disparu. Un éclat de froideur passa dans son regard.
 
-« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, son cœur Dao est puissant, il est extrêmement prudent, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être le disciple d'élite d'un pays de culture de rang 5... » Les yeux de Papillon Rouge s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
+« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, son cœur Dao est puissant, il est extrêmement prudent, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être un disciple d'élite formé à grands frais par un pays de culture de rang 5 de la planète Suzaku... » Les yeux de Papillon Rouge s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
 
 Wang Lin n'examina pas soigneusement le fragment vers lequel il se dirigeait cette fois; il en choisit un au hasard. À son arrivée, il ne put s'empêcher d'être stupéfait. Ce fragment ressemblait à un monde de feu où la lave recouvrait le sol. Par intermittence, des bulles bouillonnantes éclataient, dégageant une odeur âcre.
 
@@ -30,7 +30,7 @@ Le front de Wang Lin était couvert de sueur froide alors qu'il regardait sur le
 
 Il scruta attentivement les environs. À cet instant, le danger dans ce fragment pouvait rivaliser avec celui des terres de l'Ancien Dieu.
 
-La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut une heure entière pour parcourir ces 330 mètres.
+La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâtonnet d'encens pour se poser à une trentaine de mètres du sol.
 
 Cette altitude constituait un niveau relativement sûr. Peu de failles spatiales apparaissaient à cette hauteur et la chaleur de la lave n'était pas trop intense. Mais la prudence de Wang Lin ne diminua d'un iota tandis qu'il progressait lentement. Il voulait comprendre pourquoi la Secte Da Lou avait placé une matrice de transfert ici.
 
@@ -44,7 +44,7 @@ Il réfléchit un instant et ne s'aventura pas tête baissée. Au lieu de cela, 
 
 Ses yeux s'illuminèrent et, juste au moment où il s'apprêtait à entrer, une lueur jaillit du ciel alors qu'une matrice de transfert se matérialisait dans les airs.
 
-Une expression de joie apparut sur le visage de Wang Lin. Il s'inquiétait justement de la manière d'entrer, mais si quelqu'un d'autre acceptait de s'y risquer avant lui, ce serait bien plus sûr.
+Une expression de joie apparut sur le visage de Wang Lin. Il s'inquiétait justement de la manière d'entrer, mais si quelqu'un d'autre acceptait de s'y risquer avant lui, ce serait bien plus sûr. Son corps disparut aussitôt sur place.
 
 À cet instant, deux silhouettes apparurent dans la matrice de transfert, chacune portant une épée dans le dos. Une fois descendus, l'un d'eux déclara immédiatement: « Sixième frère cadet, c'est ta première fois ici, alors fais bien attention aux failles spatiales. N'oublie pas de maintenir la Tactique de Recherche Complète activée en permanence! »
 
@@ -56,7 +56,7 @@ Le niveau de culture des deux était celui du début de la Formation de l'Âme; 
 
 Le sixième frère cadet regarda le gouffre et demanda: « Troisième frère aîné, est-ce bien le Temple des Bêtes Célestes? »
 
-« C'est exact. Cet endroit est l'un des seize Temples des Bêtes Célestes. L'Ancêtre a découvert ce lieu par hasard après de nombreux voyages dans le Royaume Céleste, mais cet endroit devrait être connu de beaucoup. La dernière fois que je suis venu, trois groupes de personnes cherchaient déjà des âmes de bêtes célestes », répondit le troisième frère aîné, avant de semblant se souvenir de quelque chose: « N'oublie pas que tu ne peux pas utiliser de techniques de déplacement instantané à l'intérieur, alors sois prudent. »
+« C'est exact. Cet endroit est l'un des seize Temples des Bêtes Célestes. L'Ancêtre a découvert ce lieu par hasard après de nombreux voyages dans le Royaume Céleste, mais cet endroit devrait être connu de beaucoup. La dernière fois que je suis venu, trois groupes de personnes cherchaient déjà des âmes de bêtes célestes », répondit le troisième frère aîné, avant de sembler se souvenir de quelque chose: « N'oublie pas que tu ne peux pas utiliser de techniques de déplacement instantané à l'intérieur, alors sois prudent. »
 
 Tandis qu'ils discutaient, leurs corps s'enfoncèrent et pénétrèrent dans le gouffre.
 
@@ -64,7 +64,7 @@ L'ombre de Wang Lin apparut à l'extérieur, puis son corps disparut tandis qu'i
 
 « Troisième frère aîné, après tant d'années, restera-t-il seulement des âmes de bêtes célestes? Et même s'il en reste, il sera difficile de les obtenir à nous deux seuls. »
 
-« Sixième frère cadet, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Une fois que nous en aurons trouvé une et que nous l'aurons ramenée à la secte, nous aurons accompli un grand acte pour elle. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Lou célèbre. »
+« Sixième frère cadet, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Une fois que nous en aurons trouvé une et que nous l'aurons ramenée à la secte, nous aurons accompli un grand acte pour elle. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste Qi Lin ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Lou célèbre. »
 
 Wang Lin fut intrigué en les écoutant. Bien qu'il ignorât ce qu'était précisément le Temple des Bêtes Célestes, à en juger par son nom et les propos de ces deux hommes, il avait ses propres conjectures.
 
@@ -78,11 +78,11 @@ Il réfléchit un instant avant de voler vers l'une des ouvertures, précisémen
 
 En plein vol, il s'arrêta soudainement lorsqu'il perçut, grâce à son sens divin, que ses deux cibles s'étaient immobilisées à une centaine de pieds devant lui. Devant eux se dressait une statue de pierre haute d'une dizaine de pieds. Cette statue représentait une immense créature aviaire.
 
-« Autrefois, l'Ancêtre a trouvé l'âme de la bête céleste ici. Jeune frère cadet, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
+« Autrefois, l'Ancêtre a trouvé la bête céleste Qi Lin ici. Jeune frère cadet, protège-moi pendant que je rassemble l'énergie spirituelle céleste des environs. »
 
 En entendant cela, le sixième frère cadet hocha vivement la tête; une épée jaillit de son dos et flotta au-dessus de lui. Il observa attentivement les alentours, prêt à remarquer le moindre signe suspect.
 
-Le troisième frère aîné regarda son cadet avec un air satisfait et prit une profonde inspiration. Après avoir utilisé une technique inconnue, la veine de sa main se mit à battre alors qu'il poussait la statue de pierre. Après une série de grondements, la statue fut décalée sur le côté, laissant le visage de l'homme blême. Il recula rapidement de quelques pas, agita la main et projeta un souffle de vent sur la statue.
+Le troisième frère aîné regarda son cadet avec un air satisfait et prit une profonde inspiration. Après avoir utilisé une technique inconnue, la veine de sa main se mit à battre alors qu'il poussait la statue de pierre. Après une série de grondements, la statue glissa lentement sur le côté. L'homme, le visage blême, recula de quelques pas, changea de sceaux de la main et fit lever un vent puissant qui s'abattit sur la statue.
 
 La pierre bougea à nouveau, révélant un trou de la taille d'un poing dans le sol. Des filaments d'énergie spirituelle céleste s'en échappèrent.
 
@@ -92,7 +92,7 @@ L'homme frappa rapidement sa sacoche de rangement et en sortit une petite caleba
 
 Le sixième frère cadet hocha la tête, observa la calebasse et demanda: « Est-ce donc la Calebasse de Purification de l'Âme? »
 
-Le troisième frère aîné sortit une pilule et l'avala. Il agita la calebasse d'un geste fier: « C'est exact. C'est l'une des trois Calebasses de Purification de l'Âme personnellement raffinées par l'Ancêtre. Grâce à elle, on peut rassembler rapidement l'énergie spirituelle céleste sans perdre de temps à la raffiner. »
+Le troisième frère aîné sortit une pilule et l'avala. Il agita la calebasse d'un geste fier: « C'est exact. C'est l'une des trois Calebasses de Purification de l'Âme personnellement raffinées par l'Ancêtre. Grâce à elle, on peut absorber l'énergie spirituelle céleste à la vitesse maximale sans perdre de temps à la raffiner. »
 
 Wang Lin observa la scène via son sens divin et son attention se porta instantanément sur la calebasse. C'était un trésor inestimable. S'il en possédait une, cela réduirait considérablement le temps nécessaire pour raffiner l'énergie spirituelle céleste et lui permettrait d'en accumuler davantage.
 
@@ -104,4 +104,6 @@ Les deux hommes discutèrent encore un peu avant de s'envoler vers une entrée d
 
 Le lieu était un véritable labyrinthe. Si Wang Lin n'avait pas maintenu son sens divin verrouillé sur eux, il les aurait perdus. Après avoir progressé longtemps, le troisième frère aîné s'arrêta brusquement, fixant l'obscurité avec une expression étrange.
 
-Au loin, un cadavre était appuyé contre la paroi. Dans la main de la dépouille, une sphère de lumière émettait de douces ondulations lumineuses.
+Au loin, à l'endroit que fixait l'homme, un squelette était appuyé contre la paroi. Dans sa main, une sphère de lumière émettait de douces ondulations lumineuses.
+
+Le sens divin de Wang Lin balaya les lieux et il fronça les sourcils. Ce squelette était fort étrange: ses os étaient d'un gris blanchâtre, une couleur suspecte. Qu'il y ait des ossements en ces lieux n'avait rien d'extraordinaire, mais avec le temps, leur couleur aurait dû changer et des traces d'érosion apparaître, ce qui n'était pas le cas de ces os.

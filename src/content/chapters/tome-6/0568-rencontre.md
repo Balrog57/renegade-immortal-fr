@@ -7,33 +7,33 @@ en: Chapter 568 - Acquaintance
 slug: rencontre
 ---
 
-La Ville Démon du Ciel!
+La Ville Démon Céleste!
 
-Elle est située dans la partie septentrionale du Pays Démon du Ciel. Elle est entourée d'innombrables montagnes qui s'entrecroisent. Si l'on regarde depuis les cieux, ces montagnes semblent former la silhouette de neuf dragons s'enroulant autour de la cité.
+Elle est située dans la partie septentrionale du Pays du Démon Céleste. Elle est entourée d'innombrables montagnes qui s'entrecroisent. Si l'on regarde depuis les cieux, ces montagnes semblent former la silhouette de neuf dragons s'enroulant autour de la cité.
 
 Les neuf têtes de dragon pointent toutes vers un lac isolé: le Lac des Dragons!
 
-Le symbole sacré du Pays Démon du Ciel, l'Ancien Temple Démon, se trouve au cœur même de ce Lac des Dragons!
+Le symbole sacré du Pays du Démon Céleste, l'Ancien Temple Démon, se trouve au cœur même de ce Lac des Dragons!
 
 Le Lac des Dragons est lourdement gardé!
 
-La Ville Démon du Ciel se dresse face au Lac des Dragons!
+La Ville Démon Céleste se dresse face au Lac des Dragons!
 
-Pour être plus précis, cette cité est composée de neuf villes de tailles similaires à l'Ancienne Ville Démon. Ces neuf cités forment un huitième trigramme divinatoire, avec le palais royal en son centre!
+Pour être plus précis, cette cité est composée de neuf villes de tailles similaires à l'Ancienne Ville Démon. Ces neuf cités sont disposées selon les huit trigrammes divinatoires, avec le palais royal en leur centre!
 
 Une rivière entoure le palais royal et huit ponts relient celui-ci à chacune des huit cités! Le palais royal est la demeure de l'Empereur Démon et regorge de pavillons exquis. Les huit autres villes sont tout aussi distinctes, possédant chacune leur propre style.
 
-À l'aube, toute la Ville Démon du Ciel est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
+À l'aube, toute la Ville Démon Céleste est enveloppée d'une légère brume verdâtre émanant des chaînes de montagnes draconiques. L'Empereur Démon l'appelle « l'énergie du dragon », et cultiver cette énergie permet d'accroître sa culture.
 
-La Ville Démon du Ciel ressemble à un monstre colossal. À mesure que la brume verte se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
+La Ville Démon Céleste ressemble à un monstre colossal. À mesure que la brume verte se dissipe lentement, les rumeurs de l'éveil des habitants donnent l'impression que la bête géante s'éveille elle aussi.
 
-Dix-huit tableaux de transfert se trouvent aux abords de la Ville Démon du Ciel, gardés par des soldats démons en permanence. Parmi ces dix-huit tableaux, huit sont destinés aux civils, tels que les marchands, pour leurs déplacements.
+Dix-huit tableaux de transfert se trouvent aux abords de la Ville Démon Céleste, gardés par des soldats démons en permanence. Parmi ces dix-huit tableaux, huit sont destinés aux civils, tels que les marchands, pour leurs déplacements.
 
 Les dix restants ne sont accessibles qu'aux personnes de haut rang. La distinction entre les classes est flagrante.
 
 Le quatorzième tableau de transfert est exclusivement réservé aux généraux démons. Chaque fois qu'il s'active, un général démon apparaît!
 
-Un général démon est considéré comme une puissance majeure de la Ville Démon du Ciel, un chef capable de commander d'immenses troupes et de déployer des sorts prodigieux!
+Un général démon est considéré comme une puissance majeure de la Ville Démon Céleste, un chef capable de commander d'immenses troupes et de déployer des sorts prodigieux!
 
 À cet instant, parmi les soldats démons postés devant le quatorzième tableau de transfert, l'un d'eux se distinguait nettement par une armure plus richement ornée que celle de ses camarades.
 
@@ -51,11 +51,11 @@ Le capitaine fit rouler ses épaules et sourit: « Oui, c'est plutôt bon. Parmi
 
 À ces mots, les yeux des soldats démons s'écarquillèrent et leurs visages furent frappés par la stupeur.
 
-Bien que les généraux démons et les vice-commandants en chef ne soient séparés que d'un demi-rang, l'écart était presque impossible à combler! Durant les innombrables années d'existence du Pays Démon du Ciel, il n'y avait eu que huit commandants en chef et huit vice-commandants en chef, tandis qu'il y avait eu des centaines de généraux démons!
+Bien que les généraux démons et les vice-commandants en chef ne soient séparés que d'un demi-rang, l'écart était presque impossible à combler! Durant les innombrables années d'existence du Pays du Démon Céleste, il n'y avait eu que huit commandants en chef et huit vice-commandants en chef, tandis qu'il y avait eu des centaines de généraux démons!
 
 Un prétendu vice-commandant en chef n'est pas l'assistant du commandant en chef, mais celui qui est le suivant sur la ligne de succession. Seul un vice-commandant en chef peut défier le commandant en chef pour obtenir son poste!
 
-Dans le Pays Démon du Ciel, une fois que le commandant en chef meurt, un vice-commandant en chef lui succède!
+Dans le Pays du Démon Céleste, une fois que le commandant en chef meurt, un vice-commandant en chef lui succède!
 
 C'est la première étape pour devenir commandant en chef: devenir vice-commandant en chef!
 
@@ -75,7 +75,7 @@ Les soldats démons étaient déjà accoutumés aux réactions de leur capitaine
 
 Mo Lihai contempla la capitale devant lui, prit une profonde inspiration et dit à l'homme qui le suivait: « Frère Wang, cela fait plus de trente ans que je ne suis pas revenu dans la capitale! »
 
-Wang Lin observa la cité gigantesque qui s'étalait devant lui. Bien qu'immense, elle était conforme à ses attentes. Après tout, il s'agissait de la capitale du Pays Démon du Ciel!
+Wang Lin observa la cité gigantesque qui s'étalait devant lui. Bien qu'immense, elle était conforme à ses attentes. Après tout, il s'agissait de la capitale du Pays du Démon Céleste!
 
 « Salutations, Général Mo! », s'exclamèrent immédiatement les soldats démons dès que les deux hommes furent sortis.
 
@@ -91,21 +91,21 @@ Il regarda dans la direction où Wang Lin et Mo Lihai s'étaient éclipsés en p
 
 Mo Lihai étant un général démon, les soldats de la porte ouest l'accueillirent avec une immense déférence. Ils les guidèrent à l'intérieur de la ville avant de retourner respectueusement à leurs postes.
 
-Mo Lihai regarda Wang Lin et dit sincèrement: « Frère Wang, les diverses factions de la Ville Démon du Ciel sont très instables, surtout avec le rassemblement de tous ces généraux démons. Le mieux serait que vous ne logiez pas en ville, mais que vous veniez avec moi dans mon manoir. Qu'en dites-vous? »
+Mo Lihai regarda Wang Lin et dit sincèrement: « Frère Wang, les diverses factions de la Ville Démon Céleste sont très instables, surtout avec le rassemblement de tous ces généraux démons. Le mieux serait que vous ne logiez pas en ville, mais que vous veniez avec moi dans mon manoir. Qu'en dites-vous? »
 
 Deux cités étaient reliées à la porte ouest: la première était la Ville Xuan, et la seconde, la Ville Hong!
 
-Mo Lihai expliqua: « La Ville Démon du Ciel compte huit villes périphériques, divisées en anneaux intérieurs et extérieurs. Sky, Earth, Xuan et Yellow sont les quatre villes intérieures, tandis que Universe, Eternity, Hong et Desolate constituent les villes extérieures.
+Mo Lihai expliqua: « La Ville Démon Céleste compte huit villes périphériques, divisées en anneaux intérieurs et extérieurs. Tian, Di, Xuan et Huang sont les quatre villes intérieures, tandis que Yu, Zhou, Hong et Huang constituent les villes extérieures.
 
 « Les villes intérieures sont destinées aux fonctionnaires civils, tandis que les villes extérieures sont réservées aux militaires. Il existe également d'autres distinctions selon le rang. Moi, je réside à la Ville Hong! »
 
 Wang Lin réfléchit un instant et acquiesça: « Je suivrai tes conseils, Frère Mo! »
 
-Mo Lihai eut un léger sourire et hocha la tête en signe d'accord. Il avança, et à mille pieds devant eux se trouvait une bifurcation: le chemin de gauche menait à la Ville Xuan, celui de droite à la Ville Hong.
+Mo Lihai eut un léger sourire et hocha la tête en signe d'accord. Il avança, et à 330 mètres devant eux se trouvait une bifurcation: le chemin de gauche menait à la Ville Xuan, celui de droite à la Ville Hong.
 
 Wang Lin suivit l'itinéraire de Mo Lihai à travers la cité. Cette Ville Hong était très prospère, foisonnant de boutiques et de passants. Les rues étaient animées par un flux incessant de personnes.
 
-La voie était très large, mais la foule se concentrait sur les deux côtés, laissant un espace dégagé au centre — de la largeur de la route elle-même. Se tenir là permettait de voir le chemin s'étendre loin à l'horizon.
+La voie était très large, mais la foule se concentrait sur les deux côtés, laissant un espace dégagé au centre, sur un tiers de la largeur de la route. Se tenir là permettait de voir le chemin s'étendre loin à l'horizon.
 
 Voyant le regard de Wang Lin se poser sur cet espace, Mo Lihai sourit et expliqua: « Cette voie est une route militaire; les civils n'y sont pas autorisés! »
 
@@ -115,7 +115,7 @@ Une énergie spirituelle démoniaque tourbillonnait dans le ciel au-dessus d'eux
 
 Les dix-neuf cavaliers chargèrent directement vers Wang Lin et Mo Lihai. Wang Lin regarda Mo Lihai et nota que, malgré son air sérieux, un sourire caché brillait sur son visage.
 
-Ils s'arrêtèrent à une dizaine de mètres d'eux. Puis, tous descendirent de cheval, firent un pas en avant, s'agenouillèrent et déclarèrent d'une voix forte: « Salutations, Général Mo! »
+Ils s'arrêtèrent à une centaine de mètres d'eux. Puis, tous descendirent de cheval, firent un pas en avant, s'agenouillèrent et déclarèrent d'une voix forte: « Salutations, Général Mo! »
 
 Mo Lihai rit, puis d'un geste de la main, il ordonna: « Levez-vous tous. Cette personne est mon ami proche, le Vice-Général Wang. À l'avenir, lorsque vous le verrez, considérez que c'est moi que vous saluez! »
 

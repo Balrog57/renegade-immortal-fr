@@ -14,7 +14,7 @@ Cette rune libéra un brouillard noir chargé d'une puissance mystérieuse. Cett
 
 Sans aucune hésitation, l'index de Wang Lin toucha la rune. Une ondulation apparut au point de contact. Dès qu'elle se manifesta, la puissance mystérieuse qui fusionnait avec le sens divin de Wang Lin sembla s'éveiller et se répandit à travers son âme originelle telle une encre noire.
 
-Un éclat de froideur passa dans les yeux de Wang Lin. Il avait déjà pressenti que cette statue de pierre noire cachait quelque chose d'étrange, et ses soupçons se confirmaient. Il laissa échapper un renflement glacial, tandis que l'Armure de Cuir du Dieu Ancestral entourant son âme originelle émit une explosion de lumière verte!
+Un éclat de froideur passa dans les yeux de Wang Lin. Il avait déjà pressenti que cette statue de pierre noire cachait quelque chose d'étrange, et ses soupçons se confirmaient. Il laissa échapper un reniflement glacial, tandis que l'Armure de Cuir du Dieu Ancestral entourant son âme originelle émit une explosion de lumière verte!
 
 Simultanément, son âme originelle de dragon de tonnerre ancestral poussa un rugissement étouffé. D'innombrables éclairs apparurent dans le ciel au-dessus de la vallée où se trouvait Wang Lin.
 
@@ -46,7 +46,7 @@ Tout cela se produisit en un instant à l'intérieur du corps de Wang Lin. Un é
 
 La rune se brisa en une onde de choc qui se propagea, permettant enfin au doigt de Wang Lin de s'appuyer entre les sourcils de la statue.
 
-Au moment où le doigt de Wang Lin toucha la statue, sa culture de Nirvana de stade moyen supérieur, ainsi que son puissant sens divin, se précipitèrent à l'intérieur de l'idole.
+Au moment où le doigt de Wang Lin toucha la statue, sa culture de Scruteur du Nirvana de stade moyen supérieur, ainsi que son puissant sens divin, se précipitèrent à l'intérieur de l'idole.
 
 « Je veux voir exactement ce que c'est! »
 
@@ -54,7 +54,7 @@ Lorsque la culture et le sens divin de Wang Lin pénétrèrent, il ressentit un 
 
 Cet endroit était saturé d'un brouillard blanc; on aurait dit une mer de brume. D'un simple regard, Wang Lin reconnut cette brume blanche comme l'aura émanant des têtes de tous les membres de la Tribu de l'Affinement de l'Âme lorsqu'ils vénéraient la statue depuis des centaines d'années.
 
-Après un renflement froid, il laissa son sens divin se déployer dans cet endroit étrange. Soudain, ses yeux se plissèrent et son sens divin se fixa sur quelque chose devant lui.
+Après un reniflement froid, il laissa son sens divin se déployer dans cet endroit étrange. Soudain, ses yeux se plissèrent et son sens divin se fixa sur quelque chose devant lui.
 
 Son sens divin et sa culture fusionnèrent pour former une illusion de Wang Lin, qui atteignit l'endroit où son attention était focalisée. C'était le centre de la statue; le dantian de cette statue devait donc se trouver ici.
 
@@ -74,7 +74,7 @@ L'expression de Wang Lin devint étrange. Hormis la paire de cornes, le démon a
 
 Wang Lin s'approcha lentement et remarqua quelques points cruciaux.
 
-Les dieux ancestraux pouvaient absorber l'énergie originelle par le biais de salves divines pour accroître leur niveau de culture. Les démons ancestraux appartenant au même ordre ancestral, ils devaient disposer de méthodes similaires.
+Les dieux ancestraux pouvaient absorber l'énergie originelle par l'intermédiaire de leurs esclaves divins pour accroître leur niveau de culture. Les démons ancestraux appartenant au même ordre ancestral, ils devaient disposer de méthodes similaires.
 
 Il était évident que tout le Territoire Spirituel Démoniaque avait été conçu pour permettre à un démon ancestral d'absorber l'énergie originelle. L'ancien démon Bei Lou avait autrefois affirmé qu'il avait été scindé en neuf parties, et c'est ainsi que ces neuf pays étaient nés!
 
@@ -112,7 +112,7 @@ Une série de grondements retentit à travers le monde, plongeant tous les habit
 
 Dans l'effondrement, une ombre démoniaque floue s'envola, entourée d'une lumière sanglante. Finalement, elle fut dévorée par cette même lumière qui se transforma ensuite en Bei Lou.
 
-« Cela fait si longtemps, et pourtant le niveau de culture de ce Démon des Nuages n'a pas progressé du tout. Quel gaspillage! C'est une honte pour moi, en tant que démon ancestral! » Bei Lou laissa échapper un renflement froid avant de disparaître.
+« Cela fait si longtemps, et pourtant le niveau de culture de ce Démon des Nuages n'a pas progressé du tout. Quel gaspillage! C'est une honte pour moi, en tant que démon ancestral! » Bei Lou laissa échapper un reniflement froid avant de disparaître.
 
 Le Pays des Démons des Nuages s'effondra, car il n'y avait plus d'esprit de démon ancien pour le soutenir!
 

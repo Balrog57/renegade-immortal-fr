@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 165 - Palpitating with Eagerness
 slug: le-cur-battant-dimpatience
 ---
-Le vieil homme grommela: « C’est vraiment ennuyeux! » Il leva froidement les yeux vers Zhao Chuanliang et lança: « Je n’ai pas envie de tuer pour le moment, alors dégage! » Le vieil homme ne mentait pas; le mystérieux Secte des Cadavres était bien plus effrayant pour lui que les pays de culture de rang 4 ou 5.
+Le vieil homme grommela: « C’est vraiment ennuyeux! » Il leva froidement les yeux vers Zhao Chuanliang et lança: « Je n’ai pas envie de tuer pour le moment, alors dégage! » Le vieil homme ne mentait pas; la mystérieuse Secte des Cadavres était bien plus effrayant pour lui que les pays de culture de rang 4 ou 5.
 
 À moins d'y être contraint, il n'avait aucune envie de se battre avec eux. Ce qui l'irritait le plus, c'était que ce combat n'était même pas pour lui, mais pour un junior avec lequel il n'avait aucun lien, si ce n'est qu'il avait besoin d'utiliser ce gamin.
 
@@ -30,13 +30,13 @@ Les yeux de Zhao Chuanliang brillèrent comme des éclairs alors qu'il fixait Wa
 
 Wang Lin leva les yeux au ciel et répliqua: « Je l'ignore toujours. » Sur ce, il ne daigna même plus regarder Zhao Chuanliang; il ferma les yeux et commença à cultiver. Cependant, dans son cœur, il était prêt à s'enfuir dans la Mer des Démons grâce à sa technique d'évasion terrestre si le vieil homme décidait de ne pas l'aider.
 
-Zhao Chuanliang ricana. Il se tourna vers le vieil homme et dit: « Senior, non seulement cet individu a tué des disciples de ma Secte des Cadavres, mais il a également capturé l'âme d'un disciple de Tian Gang, Xu Liguo, pour qu'il puisse posséder un corps. J'ai déployé de grands efforts et j'ai même voyagé jusqu'à Tian Gang pour acheter cette information auprès du vieil homme Tian Di. Cela ne peut pas être une erreur. »
+Zhao Chuanliang ricana. Il se tourna vers le vieil homme et dit: « Senior, non seulement cet individu a tué des disciples de ma Secte des Cadavres, mais il a également capturé l'âme d'un disciple de Tian Gang, Xu Liguo, pour qu'il puisse posséder un corps. J'ai déployé de grands efforts et j'ai même voyagé jusqu'à un pays de culture de rang 5 pour acheter cette information auprès du vieil homme Tian Di. Cela ne peut pas être une erreur. »
 
 Le visage du vieil homme s'assombrit alors qu'il marmonnait: « Le vieil homme Tian Di... »
 
 « La culture du vieil homme Tian Di est extrêmement puissante. Il a pu découvrir ce qui s'était passé à l'époque en utilisant la lampe d'âme de Xu Liguo. C'est cet individu nommé Ma Liang qui a tué les disciples de ma Secte des Cadavres et piégé l'âme de Xu Liguo! » Sur ces mots, Zhao Chuanliang agita la main et son corps disparut.
 
-Les quatre cultivateurs de l'Âme Naissante derrière lui disparurent également pour réapparaître devant le Huitième Seigneur Démon Extrême. Quant à Zhao Chuanliang, il surgit au-dessus de Wang Lin et projeta précipitamment une masse de fumée noire de sa main. Simultanément, les cultivateurs de la Formation du Noyau à l'intérieur du cercle entamèrent un chant mystérieux. La formation s'étendit instantanément à une vitesse fulgurante, couvrant les mille kilomètres environnants.
+Les quatre cultivateurs de l'Âme Naissante derrière lui disparurent également pour réapparaître devant le Huitième Seigneur Démon Extrême. Quant à Zhao Chuanliang, il surgit au-dessus de Wang Lin et projeta précipitamment une masse de fumée noire de sa main. Simultanément, les cultivateurs de la Formation du Noyau à l'intérieur du cercle entamèrent un chant mystérieux. La formation s'étendit instantanément à une vitesse fulgurante, couvrant cinq mille kilomètres à la ronde.
 
 Une lueur froide traversa les yeux du Huitième Seigneur Démon Extrême alors qu'il se divisa rapidement en deux. Cet avatar apparut promptement entre Zhao Chuanliang et Wang Lin. Il ouvrit la bouche et aspira tout le gaz noir.
 

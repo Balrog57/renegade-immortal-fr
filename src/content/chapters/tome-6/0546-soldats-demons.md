@@ -14,7 +14,7 @@ La façon dont ce vin était préparé le rendait très fort lorsqu'on le buvait
 
 Treize restait silencieux. Il semblait percevoir que Wang Lin avait l'esprit ailleurs. La seule chose qu'il pouvait faire était de verser du vin pour Wang Lin dès que son verre était vide.
 
-Hu Pao avait résisté longtemps, et après avoir avalé une grande quantité de salive, il finit par ne plus pouvoir se retenir. Il regarda Wang Lin, puis prit silencieusement un pot, brisa le sceau et se versa un verre. Il leva la coupe, la but d'un trait, et fut immédiatement surpris.
+Hu Pao avait résisté longtemps, et après avoir avalé une grande quantité de salive, il finit par ne plus pouvoir se retenir. Il regarda Wang Lin, puis prit silencieusement un pot, brisa le sceau et se versa un verre. Il leva la coupe, la but d'un trait, et se sentit aussitôt revigoré.
 
 Juste au moment où il allait se servir à nouveau, il vit Treize le regarder froidement. Il se sentit lésé, pensant: « Je veux juste boire un peu de vin. Le Patriarche ne dit rien; pourquoi fais-tu tant de bruit? »
 
@@ -108,13 +108,13 @@ Treize fut forcé de reculer de plusieurs pas, le coin de sa bouche saignant. D�
 
 Sa méthode de raffinement corporel n'étant pas achevée, sa puissance manquait naturellement de fondements lors de la culture.
 
-Voyant Treize agir, Hu Pao plongea la main dans sa robe et en sortit une douzaine de petits drapeaux. En les agitant, un vent glacial et hurlant s'éleva instantanément.
+Voyant Treize agir, Hu Pao plongea la main dans sa robe et en sortit plusieurs dizaines de petits drapeaux. En les agitant, un vent glacial et hurlant s'éleva instantanément.
 
-En voyant l'un des leurs blessé, les soldats démons se levèrent tous, empreints d'une intention meurtrière. Ces hommes avaient passé de longues années sur les champs de bataille; une fois leur soif de sang libérée, leur puissance décuplait.
+En voyant l'un des leurs blessé, les soldats démons se levèrent tous, empreints d'une intention meurtrière. Ces hommes avaient passé de longues années sur les champs de bataille; une fois leur soif de sang libérée, leur puissance était multipliée.
 
 Seul l'homme au visage sombre restait assis, immobile. Son regard était toujours fixé sur Wang Lin.
 
-« Vous, sauvages, osez semer le trouble dans la Cité de l'Ancien Démon?! » ricanaient les soldats démons avant de charger comme des tigres affamés.
+« Vous, sauvages, osez semer le trouble dans la Grande Muraille Antique?! » ricanaient les soldats démons avant de charger comme des tigres affamés.
 
 Les six soldats attaquèrent de concert, forçant Hu Pao à jurer. Il libéra immédiatement les fragments d'âme contenus dans ses drapeaux, qui envahirent le restaurant.
 

@@ -12,7 +12,7 @@ Un autre fracas retentit depuis la Prison Hong. Alors que la poussière et les d
 
 Wang Lin regarda l'épée de l'Empereur s'éloigner et esquissa un léger sourire. « Pourquoi cette épée agit-elle comme un enfant? Puisqu'elle ne parvient pas à me trouver, elle en veut maintenant à la Prison Hong. Combien de fois cela fait-il déjà? Dix? »
 
-Mo Lihai était assis face à Wang Lin. Il ne pouvait que sourire amèrement, tout en éprouvant une profonde admiration pour lui. S'il n'avait pas été attentivement observé par Wang Lin, il ne l'aurait absolument pas repéré.
+Mo Lihai était assis face à Wang Lin. Il ne pouvait que sourire amèrement, tout en éprouvant une profonde admiration pour lui. Sans le voir assis devant lui, il n'aurait absolument pas pu repérer Wang Lin par la seule perception de son aura.
 
 La preuve en était que l'épée de l'Empereur avait passé le lieu de nombreuses fois sans jamais parvenir à débusquer Wang Lin.
 
@@ -22,7 +22,7 @@ De plus, depuis que Wang Lin était revenu de la Prison Hong, Mo Lihai avait l'i
 
 Il n'en demanda pas les détails, mais il devina que pour enrôler l'épée de l'Empereur dans une telle querelle, Wang Lin avait soit réussi son sortilège, soit fait une rencontre fortuite.
 
-« Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez dans la Cité du Démon Antique? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
+« Quelle est votre force actuelle? Comment se compare-t-elle à celle que vous aviez lorsque vous étiez à la Grande Muraille Antique? » Après une longue réflexion, Mo Lihai décida de poser la question. Il voulait savoir quelle position il pourrait espérer obtenir lors de la compétition des généraux démons!
 
 Deux opportunités s'offraient aux participants durant cette compétition. Si le général démon perdait, son assistant pouvait combattre à sa place! Cependant, l'assistant devait remplir une condition: il ne devait pas être un natif, mais un étranger!
 
@@ -164,9 +164,9 @@ Le visage de l'homme changea radicalement alors qu'il reculait à nouveau; il fi
 
 Avec sa culture, s'il s'était préparé, il n'en serait pas réduit à un tel état, mais il avait trop sous-estimé Wang Lin. Ce sort était d'une telle puissance qu'il aurait pu être incapable de le supporter, même en étant prêt. Il était désormais trop tard pour les regrets.
 
-Un écran de lumière bleue, issu de son armure démoniaque, apparut à sept pouces de son corps, mais dès sa manifestation, il fut percuté par les deux mille filaments et repoussé violemment.
+Un écran de lumière bleue, issu de son armure démoniaque, apparut à vingt-trois centimètres de son corps, mais dès sa manifestation, il fut percuté par les deux mille filaments et repoussé violemment.
 
-Voyant que l'armure allait être repoussée jusqu'à trois pouces de lui, l'homme en pourpre poussa un rugissement. Une veine battait sur son front tandis qu'il reculait encore, foulant du pied d'innombrables fleurs autrefois précieuses.
+Voyant que l'armure allait être repoussée jusqu'à dix centimètres de lui, l'homme en pourpre poussa un rugissement. Une veine battait sur son front tandis qu'il reculait encore, foulant du pied d'innombrables fleurs autrefois précieuses.
 
 Mais l'armure démoniaque ne put absolument résister aux deux mille filaments de carnage et finit par s'effondrer brutalement!
 

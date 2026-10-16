@@ -14,7 +14,7 @@ Tout en courant, le visage de Sun Tai était sombre et il maudissait: « Tu croi
 
 Dès que Wang Lin toucha terre, il lutta pour ouvrir les yeux et s'assit en position du lotus. Il commença à cultiver afin de contrer le domaine de l'homme d'âge moyen et le sceau de Sun Tai.
 
-Il était désormais éveillé et savait que Sun Tai n'avait aucune intention bienveillante. Pour Sun Tai, venir sauver Wang Lin était préférable à la mort.
+Il était désormais éveillé et savait que Sun Tai n'avait aucune intention bienveillante. Être sauvé par Sun Tai restait préférable à une mort certaine.
 
 L'ancêtre du Clan des Démons Géants les poursuivait. D'un revers de sa hache gigantesque, il projeta une onde d'énergie tranchante. Dans un fracas assourdissant, l'espace devant Sun Tai explosa, engendrant d'innombrables micro-failles.
 
@@ -24,7 +24,7 @@ Sun Tai hurla: « Explosez pour moi! »
 
 Bang! Bang! Bang!
 
-Des explosions déchirant les cieux retentirent dans les airs. La force colossale de ces déflagrations repoussa l'ancêtre du Clan des Démons Géants de plusieurs dizaines de pieds.
+Des explosions déchirant les cieux retentirent dans les airs. La force colossale de ces déflagrations repoussa l'ancêtre du Clan des Démons Géants d'une dizaine de mètres.
 
 Le visage de Sun Tai était dévoré par la fureur alors qu'il chargeait en avant. Simultanément, sa main droite se mua en une paume gigantesque qui s'abattit sur l'ancêtre.
 
@@ -64,7 +64,7 @@ Dans un fracas, un éclair noir déchira le ciel et fondit sur lui.
 
 Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète du Tonnerre Céleste pendant cent ans! Tu n'es qu'une simple branche du Clan des Démons Géants. Meurs! »
 
-Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de trente pieds, et frappa l'éclair descendant d'un coup de poing.
+Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de dix mètres, et frappa l'éclair descendant d'un coup de poing.
 
 Boom!
 
@@ -84,11 +84,11 @@ Mais au moment précis où il allait agir, un éclair noir descendit du ciel. L'
 
 En un clin d'œil, l'éclair et l'homme disparurent à l'horizon.
 
-« Hmph, tu oses essayer de me surprendre! » Sun Tai ricana en formant un nouveau sceau. Il avait décidé d'effrayer l'ancêtre avant de s'occuper définitivement de Wang Lin. Il comptait cette fois sceller complètement Wang Lin afin d'éviter que son âme originelle ne soit détruite.
+« Hmph, tu oses me chiper les restes sous mes yeux! » Sun Tai ricana en formant un nouveau sceau. Il comptait chasser l'ancêtre d'un coup, puis s'occuper définitivement de Wang Lin. Il comptait cette fois sceller complètement Wang Lin afin d'éviter que son âme originelle ne soit détruite.
 
 Les yeux de l'ancêtre du Clan des Démons Géants brillèrent d'une lueur mystérieuse. Il fixa Sun Tai et déclara: « Je vais emporter cet homme et je le rendrai dans sept jours! »
 
-Sans la moindre hésitation, Sun Tai répliqua: « Impossible! » Laisser cet homme s'emparer de Wang Lin reviendrait à livrer son âme originelle au destin.
+Sans la moindre hésitation, Sun Tai répliqua: « Impossible! » Laisser cet homme s'emparer de Wang Lin reviendrait à placer son âme originelle entre les mains de l'autre.
 
 L'ancêtre réfléchit un instant puis reprit: « C'est toi qui m'as contraint. C'est la première fois que j'utilise le pouvoir de ma lignée depuis mon ascension au stade de la Transformation de l'Âme. Reçois mon attaque! »
 
@@ -110,7 +110,7 @@ Le vortex tourna avec une violence inouïe et Sun Tai fut entraîné vers l'int�
 
 Le garçon ouvrit brusquement les yeux, révélant une lueur démoniaque. D'un seul pas, il se retrouva devant l'ancêtre du Clan des Démons Géants. Sa vitesse surpassait celle de la téléportation.
 
-L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice irruptionner en lui. Il cracha un flot de sang tandis que son âme originelle s'échappait précipitamment de son corps, emportant avec elle son sac de rangement. Le garçon transperça ensuite violemment le torse de l'ancêtre.
+L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice irruptionner en lui. Il cracha un flot de sang tandis que son âme originelle s'échappait précipitamment de son corps, emportant avec elle son sac de rangement. Son corps tomba, puis le garçon lui assena un coup de pied qui creusa un profond cratère dans sa poitrine.
 
 Cependant, Sun Tai avait déjà été happé par le vortex. Il poussa un cri de frustration et disparut lentement.
 
@@ -124,7 +124,7 @@ Ce dernier n'eut pas le temps de saisir Wang Lin. Après un rugissement de frust
 
 Wang Lin poussa un soupir de soulagement alors qu'il luttait pour se lever et quitter la forêt. À chaque pas, il sentait son corps faiblir et son énergie spirituelle décliner.
 
-Le domaine de Li Yuanfeng et le sceau de Sun Tai s'étaient fusionnés presque parfaitement, verrouillant ses pouvoirs. L'image de la feuille de thé devenait de plus en plus nette jusqu'à se transformer en une cicatrice sur le front de Wang Lin. Cette marque épousait la forme étrange du sceau de Sun Tai.
+Le domaine de Li Yuanfeng et le sceau de Sun Tai s'étaient fusionnés presque parfaitement, verrouillant ses pouvoirs. L'image de la feuille de thé devenait de plus en plus nette jusqu'à se transformer en une cicatrice sur le visage de Wang Lin. Cette marque épousait la forme étrange du sceau de Sun Tai.
 
 Wang Lin esquissa un sourire amer et lutta longuement pour avancer. Il avait l'impression de porter une montagne sur ses épaules; chaque pas était une épreuve. Lorsqu'il parvint enfin à sortir de la forêt, toute son énergie spirituelle était épuisée. Il n'en restait pas une once.
 

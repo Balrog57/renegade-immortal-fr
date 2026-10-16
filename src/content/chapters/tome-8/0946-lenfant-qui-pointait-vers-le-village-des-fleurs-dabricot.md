@@ -65,7 +65,7 @@ S'il demandait dix jours, c'était parce qu'il avait deux affaires à régler!
 
 Il existait une planète de culture dans la région nord de l'Alliance. Située dans les profondeurs de cette région et loin du champ de bataille d'il y a quelques jours, elle n'avait pas été affectée par le grand conflit. Cette planète regorgeait d'énergie spirituelle et était recouverte de forêts infinies. C'était une planète de culture de rang 7! Trois planètes plus petites gravitaient autour d'elle, servant de mondes secondaires.
 
-Cette planète de rang 7 portait un nom magnifique: Dark Moon. La majeure partie de la surface était couverte de forêts et de nombreux villages mortels étaient dispersés à travers le globe. On trouvait également de nombreuses sectes de culture nichées au cœur de ses montagnes.
+Cette planète de rang 7 portait un nom magnifique: Anyue. La majeure partie de la surface était couverte de forêts et de nombreux villages mortels étaient dispersés à travers le globe. On trouvait également de nombreuses sectes de culture nichées au cœur de ses montagnes.
 
 Une montagne célèbre dominait la partie sud de la planète: la Montagne Céleste. Elle était si haute que son sommet demeurait perpétuellement enveloppé de brume; nul ne savait où se trouvait le pic véritable. Un petit sentier de marches de pierre menait vers les hauteurs, tandis que le reste restait caché dans les nuages. On aurait pu croire que cet endroit appartenait au Royaume Céleste.
 
@@ -73,11 +73,11 @@ Chaque matin, le son des cloches résonnait depuis la cime. Quelques oiseaux mag
 
 Dong... Dong... Dong... Le son de la cloche semblait percer les nuages en se propageant depuis le sommet, apportant une paix profonde au cœur de quiconque l'entendait.
 
-Au pied de la montagne se trouvait un village mortel. Il n'y vivait pas grand monde, environ une centaine de familles. Le village était parsemé d'abricotiers en pleine floraison. Une simple brise suffisait à répandre le parfum des fleurs. Respirer cette fragrance procurait un sentiment de calme absolu.
+Au pied de la montagne se trouvait un village mortel. Il n'y vivait pas grand monde, moins d'une centaine de familles. Le village était parsemé d'abricotiers en pleine floraison. Une simple brise suffisait à répandre le parfum des fleurs. Respirer cette fragrance procurait un sentiment de calme absolu.
 
 Le son des cloches semblait chasser la fraîcheur nocturne du petit matin. Des volutes de fumée s'élevèrent, accompagnées par les aboiements des chiens. Alors que la fumée flottait dans l'air, elle semblait dissiper les derniers vestiges de la nuit. Vu de loin, cela ressemblait à une image animée dotée de son propre domaine.
 
-Wang Lin se tenait silencieusement au loin, contemplant le village devant lui. La fumée et les arbres à abricots qui oscillaient apportaient du mouvement, tandis que les cent maisons restaient immobiles. Ce contraste entre le dynamique et le statique, comme l'entrecroisement des vies paisibles et laborieuses, conférait à la scène un caractère à la fois familier et étranger pour Wang Lin.
+Wang Lin se tenait silencieusement au loin, contemplant le village devant lui. La fumée et les arbres à abricots qui oscillaient apportaient du mouvement, tandis que les vieilles maisons centenaires restaient immobiles. Ce contraste entre le dynamique et le statique, comme l'entrecroisement des vies paisibles et laborieuses, conférait à la scène un caractère à la fois familier et étranger pour Wang Lin.
 
 Ce qu'il revoyait n'était pas le village qui s'offrait à lui, mais son enfance sur la planète Suzaku. Des fragments de comptine parvinrent jusqu'à lui, portés par l'écho des cloches matinales:
 
@@ -91,8 +91,8 @@ Wang Lin esquissa un sourire et hocha la tête: « Quel est cet endroit? »
 
 L'enfant pointa l'horizon et répondit d'une voix douce: « C'est le village des fleurs d'abricot! » Tout en parlant, il s'assit sur son bœuf et entra dans le village, ne laissant derrière lui que l'écho de sa comptine...
 
-Wang Lin poussa un soupir. À l'écoute de cette mélodie, une pointe de tristesse l'envahit. Il murmura: « Planète Dark Moon, un village sous la Montagne Céleste... C'est bien ici. »
+Wang Lin poussa un soupir. À l'écoute de cette mélodie, une pointe de tristesse l'envahit. Il murmura: « Planète Anyue, un village sous la Montagne Céleste... C'est bien ici. »
 
-L'appel vague d'un ami mourant, rongé par le mal du pays, résonna dans les années de Wang Lin:
+L'appel vague d'un ami mourant, rongé par le mal du pays, résonna dans les oreilles de Wang Lin:
 
-« S'il vous plaît, ramenez mes cendres sur la planète Dark Moon, dans le système stellaire de l'Alliance. Il y a une montagne appelée Montagne Céleste. Je me souviens qu'il y avait un village sous cette montagne. Veuillez emporter mes cendres là-bas... »
+« S'il vous plaît, ramenez mes cendres sur la planète Anyue, dans le système stellaire de l'Alliance. Il y a une montagne appelée Montagne Céleste. Je me souviens qu'il y avait un village sous cette montagne. Veuillez emporter mes cendres là-bas... »

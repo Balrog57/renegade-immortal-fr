@@ -36,7 +36,7 @@ Bien que la foule fût dense, chaque fois que les cultivateurs apercevaient Wang
 
 Wang Lin passait devant les cultivateurs un à un lorsqu'une voix extrêmement arrogante retentit devant lui: « Arrête! »
 
-Au son de cette voix, la foule se dispersa tandis que Wang Lin continuait d'avancer. À mille pieds du mont Suzaku siégeaient cinq cultivateurs. Aucun ne s'aventurait à moins de 330 mètres de ces cinq-là. Parmi eux se trouvaient trois hommes et deux femmes d'âges très variés: deux jeunes femmes, deux jeunes hommes et un vieil homme. Tous étaient au sommet du stade avancé de la Formation de l'Âme. Le vieil homme possédait même une trace d'énergie spirituelle céleste en lui; il était manifestement prêt à raffiner son corps pour atteindre le stade de la Transformation de l'Âme.
+Au son de cette voix, la foule se dispersa tandis que Wang Lin continuait d'avancer. À 330 mètres du mont Suzaku siégeaient cinq cultivateurs. Aucun ne s'aventurait à moins de 33 mètres de ces cinq-là. Parmi eux se trouvaient trois hommes et deux femmes d'âges très variés: deux jeunes femmes, deux jeunes hommes et un vieil homme. Tous étaient au sommet du stade avancé de la Formation de l'Âme. Le vieil homme possédait même une trace d'énergie spirituelle céleste en lui; il était manifestement prêt à raffiner son corps pour atteindre le stade de la Transformation de l'Âme.
 
 Cependant, ne disposant pas de suffisamment de jades célestes, il n'avait pu raffiner qu'une infime partie de son corps. Mais même ainsi, cela rendait ce vieillard bien plus puissant que les habituels cultivateurs de la Formation de l'Âme.
 
@@ -48,13 +48,13 @@ Le regard du jeune homme se remplissait de méfiance alors qu'il se levait pour 
 
 Le regard de Wang Lin se posa sur le vieil homme qui portait cette trace d'énergie spirituelle céleste. Vêtu d'une robe noire, il ressemblait à un squelette. Ses yeux dégageaient une lueur fantomatique capable de faire vaciller n'importe quel cœur. Lorsqu'il tourna les yeux vers Wang Lin, son regard devint sérieux, comme s'il avait compris quelque chose.
 
-« Mon maître est l'honorable Brutal Nanming... » Voyant que le regard de Wang Lin demeurait impassible, le jeune homme invoqua le nom de son mentor.
+« Mon maître est l'honorable Nanming des Terres Sauvages... » Voyant que le regard de Wang Lin demeurait impassible, le jeune homme invoqua le nom de son mentor.
 
-Les yeux du vieil homme s'illuminèrent et il tonna: « Silence! » Tandis que le jeune homme était encore sous le choc, le vieillard se leva, joignit respectueusement les mains vers Wang Lin et déclara: « Brutal Nanming salue l'Aîné. Mon disciple a été impoli et vous a offensé. J'espère que vous saurez lui pardonner. » Sur ces mots, il s'écarta promptement.
+Les yeux du vieil homme s'illuminèrent et il tonna: « Silence! » Tandis que le jeune homme était encore sous le choc, le vieillard se leva, joignit respectueusement les mains vers Wang Lin et déclara: « Nanming des Terres Sauvages salue l'Aîné. Mon disciple a été impoli et vous a offensé. J'espère que vous saurez lui pardonner. » Sur ces mots, il s'écarta promptement.
 
 À l'annonce de ces paroles, les personnes alentour furent stupéfaites, mais elles se levèrent rapidement pour s'écarter avec respect.
 
-Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis atteignit la zone située à mille pieds du mont Suzaku. Dès qu'il posa le pied dans ce périmètre, hormis le seul cultivateur de la Transformation de l'Âme au stade avancé, quinze regards se braquèrent sur lui.
+Wang Lin adressa un signe de tête au vieil homme en passant devant lui, puis atteignit la zone située à 330 mètres du mont Suzaku. Dès qu'il posa le pied dans ce périmètre, hormis le seul cultivateur de la Transformation de l'Âme au stade avancé, quinze regards se braquèrent sur lui.
 
 « Maître, quel est le niveau de culture de cet homme? Pourrait-il s'agir d'un vieux monstre de la Transformation de l'Âme? Pourtant, je n'ai détecté aucune trace d'énergie spirituelle céleste dans son corps », envoya le jeune homme arrogant par transmission vocale après le départ de Wang Lin.
 

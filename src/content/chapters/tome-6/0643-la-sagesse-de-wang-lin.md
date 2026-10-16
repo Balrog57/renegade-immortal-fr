@@ -35,11 +35,11 @@ C’est à ce moment précis que le groupe de Chen Long fut soudainement piégé
 
 Cupidité observa les disciples de la Secte de l'Épée Da Lou et ricana intérieurement.
 
-« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Ce vieil homme est venu trois fois dans l'Abîme des Marées depuis mon arrivée dans la Terre de l'Esprit Démonique. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a fait rougir les yeux de Ling Tianhou et de l'Omniscient!
+« Parmi les disciples du vieil homme Ling Tianhou, à part Chen Long, tous ne sont que des déchets! Ce vieil homme est venu trois fois dans l'Abîme des Marées depuis mon arrivée dans la Terre de l'Esprit Démonique. J'ai enfin déterminé que ce brouillard violet renferme le jeton qui a attiré le regard de Ling Tianhou et de l'Omniscient!
 
 « Cependant, ce jeton est un peu étrange. D'après mes observations, il n'apparaît qu'à certains moments et semble nécessiter des sacrifices... » Le regard de Cupidité balaya indistinctement les disciples de la Secte de l'Épée Da Lou, y compris Chen Long.
 
-« Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors forcés à se sacrifier volontairement, au lieu de rester piégé ici avec eux pendant cent ans à attendre qu'ils succombent à l'anxiété! »
+« Si je n'étais pas inquiet de l'énergie d'épée qui réside dans leurs corps, j'aurais déjà capturé ces cinq petits. Je les aurais alors amenés à se sacrifier volontairement, au lieu de rester piégé ici avec eux pendant cent ans à attendre qu'ils succombent à l'anxiété! »
 
 Wang Lin, debout sur l'épée céleste, s'approchait lentement du brouillard violet depuis l'autre côté. Peu après, il détecta la brume au loin. Ce brouillard était si dense qu'il en paraissait presque solide. Il bloquait totalement le passage; à moins de le traverser, ils ne pourraient atteindre la sortie du Pays du Démon de Feu.
 
@@ -63,7 +63,7 @@ Wang Lin était troublé. Il ignorait ce qui arrivait à la bête, mais fort heu
 
 Cupidité ne remarqua pas l'intrusion de cultivateurs dans le brouillard. S'il avait pu détecter l'impact des sens divins de Wang Lin et de Ling Tianhou, c’était uniquement parce que l'onde de choc s'était propagée directement à travers les parois. C'était là son unique moyen de perception.
 
-Wang Lin progressait lentement dans la brume, extrêmement vigilant. Son sens divin n'avait presque aucun effet ici; il ne voyait qu'une épaisseur opaque. Les un million de sceaux de vie scintillaient sur son front, recouvrant son corps: en cas de crise, cela lui offrirait une chance de survie.
+Wang Lin progressait lentement dans la brume, extrêmement vigilant. Son sens divin n'avait presque aucun effet ici; il ne voyait qu'une épaisseur opaque. Un million de sceaux de vie scintillaient sur son front, recouvrant son corps: en cas de crise, cela lui offrirait une chance de survie.
 
 Alors qu'il volait, Zhou Yi envoya soudainement un message par sens divin:
 

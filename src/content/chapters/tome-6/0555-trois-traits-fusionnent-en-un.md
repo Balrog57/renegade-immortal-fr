@@ -40,7 +40,7 @@ Le sceau de vie se détacha immédiatement de ses yeux pour recouvrir son corps.
 
 Alors que la statue rugissait, elle se lança à la poursuite de Wang Lin.
 
-L'expression de Wang Lin resta imperturbable tandis que sa main traçait des mouvements dans l'air, libérant une déflagration de lumière verte: une simple restriction apparut entre ses doigts. En mouvement, il projeta la restriction vers l'arrière. Celle-ci s'étira instantanément pour atteindre plusieurs dizaines de pieds de large, bloquant la statue sur sa trajectoire.
+L'expression de Wang Lin resta imperturbable tandis que sa main traçait des mouvements dans l'air, libérant une déflagration de lumière verte: une simple restriction apparut entre ses doigts. En mouvement, il projeta la restriction vers l'arrière. Celle-ci s'étira instantanément pour atteindre une dizaine de mètres de large, bloquant la statue sur sa trajectoire.
 
 Le corps de la statue ne ralentit nullement et percuta de plein fouet la restriction. Cette dernière se brisa comme un miroir avant de se disperser dans toutes les directions.
 

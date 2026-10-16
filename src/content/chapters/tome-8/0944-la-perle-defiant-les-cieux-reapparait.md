@@ -20,7 +20,7 @@ Wang Lin médita en silence, le cœur lourd de douleur. Pourtant, son regard exp
 
 À cet instant, un sifflement déchira le vide alors que les deux étoiles d'Ancien Dieu fonçaient à une vitesse extrême vers Wang Lin. Wang Lin saisit les deux étoiles et, à cet instant, elles fusionnèrent avec lui.
 
-Soudain, un pouvoir d'Ancien Dieu inimaginable envahit le corps de Wang Lin. Cette puissance était si colossale que des craquements sinistres émanaient de son être. En un clin d'œil, son corps grandit de plusieurs fois; il mesurait désormais plus de 3 000 pieds de haut!
+Soudain, un pouvoir d'Ancien Dieu inimaginable envahit le corps de Wang Lin. Cette puissance était si colossale que des craquements sinistres émanaient de son être. En un clin d'œil, son corps grandit de plusieurs fois; il mesurait désormais plus de 1 000 mètres de haut!
 
 Toutes les veines de son corps boursouflèrent, comme si une puissance intérieure cherchait à le déchirer. Accablé par la douleur, Wang Lin chargea en avant et poussa un rugissement!
 
@@ -56,11 +56,11 @@ Une goutte de liquide noir apparut et disparut au sein du vortex.
 
 « Un Ancien Dieu royal à 5 étoiles qui vient de s'éveiller! Je ne m'attendais pas à ce qu'il reste des dieux royaux dans le Domaine Scellé. Si le conseil des Anciens l'apprend, cela déclenchera une tempête mémorable! Heureusement, cet individu n'est qu'au stade de l'éveil. S'il s'était pleinement éveillé et avait atteint les six étoiles, même moi j'aurais dû battre en retraite! » Le vieil homme haleta, la cupidité brûlant ses yeux.
 
-« Si je peux absorber son pouvoir d'Ancien Dieu royal, je pourrai siéger au conseil des Anciens! » La marque en croissant de lune brilla entre les sourcils du vieil homme et il serra les dents. Ses mains formèrent un sceau, et la marque s'envola pour former une empreinte lunaire haute de dix pieds!
+« Si je peux absorber son pouvoir d'Ancien Dieu royal, je pourrai siéger au conseil des Anciens! » La marque en croissant de lune brilla entre les sourcils du vieil homme et il serra les dents. Ses mains formèrent un sceau, et la marque s'envola pour former une empreinte lunaire haute d'environ trois mètres!
 
 « Ce vieillard appartient au clan ancestral des Dévoreurs de Lune du Clan Céleste Immemorial. Aujourd'hui, j'ai rencontré la plus grande opportunité de ma vie! Quoi qu'il en coûte, je ne peux pas le laisser filer! » Alors que le vieil homme rugissait, la marque lunaire scintilla frénétiquement et chargea.
 
-Au moment où le filet dans le vide allait se retirer totalement, la marque lunaire perça soudainement la barrière. Elle grandit dans le vide jusqu'à atteindre plusieurs milliers de pieds de haut, devenant comparable à Wang Lin.
+Au moment où le filet dans le vide allait se retirer totalement, la marque lunaire perça soudainement la barrière. Elle grandit dans le vide jusqu'à atteindre plus d'un kilomètre de haut, devenant comparable à Wang Lin.
 
 « Dieu Dévoreur Lunaire Céleste! » Les yeux du vieil homme s'écarquillèrent et une multitude de veines saillirent sur son visage. En s'étendant, elles se rassemblèrent sous la marque lunaire, lui donnant un aspect féroce.
 

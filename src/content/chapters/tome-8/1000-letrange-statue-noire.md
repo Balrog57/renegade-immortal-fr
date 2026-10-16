@@ -11,7 +11,7 @@ Le retour de Wang Lin provoqua une véritable frénésie parmi les membres de la
 
 La Secte de l'Affinement d'Âmes comptait des millions de disciples. Si l'on devait compter tous les fragments d'âme rassemblés par ces derniers, le nombre serait inimaginable. On pourrait dire que la Secte de l'Affinement d'Âmes ne serait pas de faible envergure, même dans un pays de culture de rang 7!
 
-Wang Lin leva les yeux vers le ciel et murmura: « Senior Dun Tian, ce disciple a tenu sa promesse... »
+Wang Lin leva les yeux vers le ciel et murmura: « Maître Dun Tian, ce disciple a tenu sa promesse... »
 
 Bien que la méthode de culture pratiquée par les millions de disciples de la Secte ne fût pas complète, il n'hésita pas à leur transmettre les méthodes intégrales dès son retour. Bien entendu, Wang Lin avait laissé une faille lui permettant de reprendre les fragments d'âme à tout moment, et il n'avait nullement l'intention de la combler.
 
@@ -36,6 +36,8 @@ Seuls les cultivateurs les plus puissants avaient la qualification et la force n
 Après tout, le Pavillon des Trésors avait préservé la majeure partie des sorts célestes du Royaume Céleste du Tonnerre! De plus, au dernier étage, outre les sorts de l'Empereur Céleste Bai Fan, se trouvaient également des sorts destinés aux Seigneurs Célestes. C'était un trésor divin pour les cultivateurs de niveau Briseur du Nirvana! Si ces derniers réagissaient ainsi, que dire des cultivateurs Scruteur du Nirvana ou Purificateur du Nirvana?
 
 C'est pourquoi Wang Lin se montrait extrêmement prudent avec le Pavillon des Trésors. Situ Nan y avait tiré d'immenses bénéfices. L'extase dans ses yeux avait fait comprendre à Wang Lin que, bien que son niveau de culture n'ait pas progressé, les sorts célestes qu'il avait acquis grâce à son talent feraient de lui une force terrifiante pour tout ennemi.
+
+Lors de cette ouverture, Wang Lin avait choisi un sort céleste de qualité moyenne nommé Gestation Spirituelle. Après l'avoir pleinement compris, il en avait fait le prix de l'accord des trois frères Chen, qui, les yeux presque rouges, acceptèrent sans la moindre hésitation d'entrer dans la Terre des Esprits Démoniaques!
 
 À ce moment-là, Wang Lin avait parcouru le Pavillon des Trésors et en avait extrait quatre sorts célestes de basse qualité. La culture des disciples actuels de la Secte de l'Affinement d'Âmes était anormale; ils maîtrisaient parfaitement les âmes, mais toute leur progression reposait sur les drapeaux d'âme. C'est pourquoi les sorts choisis par Wang Lin étaient tous liés à l'âme. Cependant, les sorts célestes n'étaient pas de simples techniques qu'ils pouvaient cultiver telles quelles. Wang Lin en avait appris les fondamentaux avant de les diviser en divers sorts interdits destinés à être transmis.
 
@@ -71,10 +73,10 @@ Cependant, l'étrangeté résidait dans le fait qu'avec le temps et la croissanc
 
 Après des centaines d'années, la statue initialement rudimentaire avait évolué jusqu'à ressembler presque trait pour trait à Wang Lin. On pouvait même y ressentir son aura ancienne, celle d'un être ayant vécu plus de mille ans. Treize et ses compagnons étaient totalement perplexes face à ce phénomène; ils n'avaient pu que l'attribuer à l'esprit de l'Ancêtre!
 
-Cette statue intrigua Wang Lin. Il y avait peu de choses qui puaient sa curiosité, mais il ressentit instinctivement le besoin d'aller au fond de cette énigme. Après tout, cette statue était trop étrange.
+Cette statue intrigua Wang Lin. Il y avait peu de choses qui piquaient sa curiosité, mais il ressentit instinctivement le besoin d'aller au fond de cette énigme. Après tout, cette statue était trop étrange.
 
 Wang Lin fronça les sourcils en s'avançant devant elle. En la regardant, son expression changea soudainement. Le sentiment que la statue lui rendait son regard devint instantanément plus manifeste.
 
 L'environnement n'était pas silencieux; au loin, on percevait les acclamations de la Secte de l'Affinement d'Âmes. Pourtant, pour Wang Lin, le monde s'était tu, comme si rien d'autre que lui et la statue ne subsistait!
 
-Une lueur de froideur passa dans ses yeux. Puis, ses mains formèrent une épée et il pressa lentement le tranchant entre les sourcils de la statue.
+Une lueur de froideur passa dans ses yeux. Puis, il abaissa lentement son index droit vers les sourcils de la statue.

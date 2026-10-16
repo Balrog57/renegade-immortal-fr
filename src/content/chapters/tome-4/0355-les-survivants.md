@@ -64,7 +64,7 @@ Après avoir attendu un instant, il secoua la tête et poursuivit sa route.
 
 Tous les dix pas environ, il s'arrêtait pour frapper le vide, créant une nouvelle faille à chaque fois. Au fur et à mesure de sa progression, ses mouvements devenaient de plus en plus rapides alors qu'il s'enfonçait dans les profondeurs de la forêt.
 
-Il continua ainsi. Après avoir ouvert plus de 10 000 failles spatiales, il atteignit l'ouverture menant au Cimetière des Immortels. Il scruta le gouffre, puis se tourna vers une autre direction. Comme précédemment, il ouvrait une faille spatiale tous les dix pas.
+Il continua ainsi. Après avoir ouvert plus d'un millier de failles spatiales, il atteignit l'ouverture menant au Cimetière des Immortels. Il scruta le gouffre, puis se tourna vers une autre direction. Comme précédemment, il ouvrait une faille spatiale tous les dix pas.
 
 Le temps passait lentement. Il ne manifesta aucune impatience et poursuivit sa tâche.
 

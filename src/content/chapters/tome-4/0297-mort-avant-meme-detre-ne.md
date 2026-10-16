@@ -14,7 +14,7 @@ Il fit un pas dans la formation avant de se retourner pour faire face au brouill
 
 Cependant, à cet instant précis, la silhouette de Wang Lin apparut soudainement au-dessus de la formation; et dès son apparition, il lança une cloche.
 
-Le visage du cultivateur aux robes vertes pâlit brusquement. Il n'aurait jamais imaginé que Wang Lin fût aussi rapide. Cette brève hésitation permit à la cloche d'envelopper le cultivateur et de l'emprisonner.
+Le visage du cultivateur aux robes vertes pâlit brusquement. Il n'aurait jamais imaginé que Wang Lin fût aussi rapide. Cette brève hésitation permit à la cloche, agrandie à plusieurs mètres de haut, d'envelopper le cultivateur et de l'emprisonner.
 
 Sur ce, Wang Lin agita la main. Le drapeau de restriction et la cloche lui revinrent promptement. Son corps disparut dans les airs et, lorsqu'il réapparut, il était déjà au sol.
 
@@ -60,7 +60,7 @@ Un jour, Wang Lin atteignit la seule autre montagne du fragment. Toutefois, sa f
 
 La montagne était bien préservée, mais tous les arbres qui la couvraient étaient morts depuis longtemps. Lorsque Wang Lin toucha une branche, celle-ci se changea instantanément en poussière.
 
-En contemplant ces arbres, Wang Lin eut un sourire amer. Si seulement ils avaient été encore vivants... Chacun d'eux était millénaire, certains même atteignaient les dix mille ans. S'il avait pu utiliser ce bois pour ses sculptures, il sentait que leur puissance en aurait été décuplée. Hélas...
+En contemplant ces arbres, Wang Lin eut un sourire amer. Si seulement ils avaient été encore vivants... Chacun d'eux était millénaire, certains même atteignaient les dix mille ans. S'il avait pu utiliser ce bois pour ses sculptures, il sentait que leur puissance en aurait été multipliée plusieurs fois. Hélas...
 
 Wang Lin ne se résigna pas et continua son exploration. Après avoir examiné chaque arbre de la montagne, il poussa un soupir d'impuissance.
 
@@ -68,7 +68,7 @@ Au sommet de la montagne, il découvrit une grotte. L'entrée avait déjà été
 
 La grotte n'était pas vaste, comptant seulement sept ou huit pièces. Wang Lin l'inspecta, mais ne trouva rien. Quelqu'un devait être venu la vider il y a de cela bien longtemps.
 
-Avant d'entrer, Wang Lin était déjà préparé. Bien qu'il n'ait rien trouvé, il n'était pas découragé. Son but était de déceler des vestiges de restrictions. Il voulait comprendre la nature des restrictions utilisées par les êtres célestes; si il pouvait en étudier certaines, cela l'aiderait grandement à atteindre le seuil des 9 999 restrictions sur son drapeau.
+Avant d'entrer, Wang Lin était déjà préparé. Bien qu'il n'ait rien trouvé, il n'était pas découragé. Son but était de déceler des vestiges de restrictions. Il voulait comprendre la nature des restrictions utilisées par les êtres célestes; si il pouvait en étudier certaines, cela l'aiderait grandement à atteindre le seuil des 999 restrictions sur son drapeau.
 
 Après une inspection minutieuse, il constata que la plupart des protections avaient disparu, mais ce n'était pas le cas pour toutes. Il fut ravi de découvrir, dans l'une des pièces, les restes d'une restriction.
 

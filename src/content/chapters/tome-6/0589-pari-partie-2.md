@@ -12,7 +12,7 @@ Tandis qu'il reculait, l'armure sur son corps explosa en cendres et se dissipa. 
 
 Il frappa le tambour du doigt et le tambour démoniaque retentit une nouvelle fois. C'était la huitième fois!
 
-Un contre-coup encore plus violent s'abattit sur Mo Fei, faisant voler en éclats tous les miroirs de cristal qui l'entouraient. Cependant, bien que les miroirs aient considérablement atténué la force, celle-ci fut telle qu'en frappant le corps de Mo Fei, elle le projeta en arrière de plus de mille pieds avant qu'il ne parvienne à se stabiliser.
+Un contre-coup encore plus violent s'abattit sur Mo Fei, faisant voler en éclats tous les miroirs de cristal qui l'entouraient. Cependant, bien que les miroirs aient considérablement atténué la force, celle-ci fut telle qu'en frappant le corps de Mo Fei, elle le projeta en arrière de plus de trois cents mètres avant qu'il ne parvienne à se stabiliser.
 
 Son masque vola en éclats, révélant son beau visage.
 
@@ -60,7 +60,7 @@ Un cultivateur vêtu de vert, portant une épée géante dans le dos, s'avança.
 
 En approchant du tambour, sa main forma un sceau et il pointa le vide, provoquant une première résonance. Puis, sa main se changea en paume, il entonna une incantation complexe et frappa vigoureusement, faisant battre le tambour une seconde fois.
 
-Le violent contre-coup lui fit pâlir le visage, mais il ne recula pas. Au lieu de cela, il saisit l'épée dans son dos et la dégainâ. Un rayon d'énergie d'épée fendit la force de recul et le battement du tambour pour venir frapper l'instrument.
+Le violent contre-coup lui fit pâlir le visage, mais il ne recula pas. Au lieu de cela, il saisit l'épée dans son dos et la dégaina. Un rayon d'énergie d'épée fendit la force de recul et le battement du tambour pour venir frapper l'instrument.
 
 Le tambour résonna encore une fois. Après la troisième résonance, le visage du cultivateur devint extrêmement livide sous l'effet de la puissance qui se retournait contre lui. À chaque coup, il subissait un contre-coup plusieurs fois plus violent que le précédent. Il esquissa un sourire amer avant de reculer sans hésiter, renonçant à frapper davantage.
 
@@ -78,7 +78,7 @@ Parmi les généraux démons se trouvait également Shi Xiao. Le visage sombre, 
 
 Chen Tao réfléchit un instant et répondit: « Si j'étais à pleine puissance, je pourrais dépasser les 10 fois. Je n'en connais pas le nombre exact. Cependant, en ce moment... même avec la pilule, je ne peux que le faire résonner sept fois, ce qui n'est pas supérieur à Mo Fei! Ce Mo Fei est incroyablement puissant. Dans le monde de la culture, il peut être considéré comme le numéro un juste sous le stade Ascendant! Même des cultivateurs Ascendants devraient être au stade intermédiaire pour rivaliser avec lui! »
 
-Shi Xiao laissa poindre une intention meurtrière en regardant Mo Fei qui, s'étant retourné, avait fermé les yeux pour cultiver en laissant échapper un renflement de mépris.
+Shi Xiao laissa poindre une intention meurtrière en regardant Mo Fei qui, s'étant retourné, avait fermé les yeux pour cultiver en laissant échapper un reniflement de mépris.
 
 À part eux, plusieurs généraux démons calculaient déjà combien de fois ils pourraient frapper le tambour et leurs chances d'intégrer le top 10!
 
@@ -92,7 +92,7 @@ Wang Lin répondit: « Parle. »
 
 « Je parie que tu ne pourras pas faire résonner le tambour cinq fois! Si tu y parviens, je te recommanderai personnellement à l'Empereur Démon et je garantirai que tu obtiendras au moins le rang de général démoniaque. Mais si tu perds, tu devras assumer la responsabilité d'avoir blessé un général démoniaque! Si tu n'oses pas, alors dégage de cette scène et fuis la Cité du Démon Céleste! Tu n'es pas le bienvenu ici! » Une fois l'homme terminé, un brouhaha de discussions envahit la zone.
 
-« Le faire résonner cinq fois? Bien que cet étranger ait vaincu Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire que une! »
+« Le faire résonner cinq fois? Bien que cet étranger ait vaincu Ao Di, ce tambour est un véritable test! Au plus, je pense qu'il pourra atteindre trois résonances, ce qui serait déjà remarquable. Quant à Ao Di, il ne peut en faire qu'une! »
 
 « Ao Di n'est qu'un général de rang intermédiaire. Shi Xiao, Mo Fei, Yu Sen et bien d'autres l'écraseraient sans difficulté. Le fait que Wang Lin ait battu Ao Di ne signifie pas grand-chose. »
 
@@ -134,7 +134,7 @@ Les yeux de Wang Lin se rétrécirent. À cet instant, tous les sceaux de vie su
 
 La main droite de Wang Lin forma un sceau, puis il frappa violemment le tambour démoniaque!
 
-Dong! Le son du tambour retentit à travers la place et dans les cieux comme un tonnerre grondant. Le corps de Wang Lin ne bougea absolument pas alors qu'il rétractait son poing de trois pouces; et aussitôt, il frappa de nouveau. Une fois, deux fois, trois fois, quatre fois!
+Dong! Le son du tambour retentit à travers la place et dans les cieux comme un tonnerre grondant. Le corps de Wang Lin ne bougea absolument pas alors qu'il rétractait son poing d'environ dix centimètres; et aussitôt, il frappa de nouveau. Une fois, deux fois, trois fois, quatre fois!
 
 Dong! Dong! Dong! Dong!
 
@@ -146,6 +146,6 @@ La place commença à se fissurer centimètre par centimètre, comme si un gigan
 
 Hormis le Commandant en Chef Céleste, les sept autres commandants en chef s'étaient levés, affichant une incrédulité totale. Sur la place, l'expression de l'homme à l'armure dorée changea radicalement!
 
-Les cinq coups tonitruants n'étaient pas le plus surprenant. Ce qui choqua véritablement tout le monde, c'est que le corps de Wang Lin n'avait pas bougé d'un pouce!
+Les cinq coups tonitruants n'étaient pas le plus surprenant. Ce qui choqua véritablement tout le monde, c'est que le corps de Wang Lin n'avait pas bougé d'un centimètre!
 
 Le Vice-Commandant en Chef Jaune s'écria: « C'est... c'est impossible! »

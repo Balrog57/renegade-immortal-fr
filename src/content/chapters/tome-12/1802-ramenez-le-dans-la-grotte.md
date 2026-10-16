@@ -58,7 +58,7 @@ Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée 
 
 Le jeune homme était très beau, mais sa bosse gâchait toute l'aura positive que son visage aurait dû dégager; il émanait de lui quelque chose de profondément anormal.
 
-« Tu es trop curieux! » Kang Ren lâcha un renflement méprisant et chargea dans la vallée. Le jeune homme bossu afficha une expression malveillante en observant la direction prise par Kang Ren.
+« Tu es trop curieux! » Kang Ren lâcha un reniflement méprisant et chargea dans la vallée. Le jeune homme bossu afficha une expression malveillante en observant la direction prise par Kang Ren.
 
 « Il y a quelque chose d'étrange... il y a un problème, il y a un trésor! » Tout en méditant sur ces pensées, il laissa une marionnette sur place et s'envola vers la vallée.
 

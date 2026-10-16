@@ -1,18 +1,18 @@
 ---
 n: 776
-title: "Zone interdite de 10 000 pieds: les intrus mourront!"
+title: "Zone interdite de 3,3 km: les intrus mourront!"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 776 - 10,000 Feet Forbidden Area, Trespassers Will Die!"
 slug: zone-interdite-de-10-000-pieds-les-intrus-mourront
 ---
-Chapitre 776 - Zone interdite de 10 000 pieds: les intrus mourront!
+Chapitre 776 - Zone interdite de 3,3 km: les intrus mourront!
 
 Une silhouette se tenait debout sur l'énergie de l'épée. Il portait une large robe jaune qui flottait au vent, lui conférant un air d'une grande élégance. À ce niveau de culture, l'apparence extérieure ne reflétait plus l'âge réel de l'individu. Il semblait avoir une trentaine d'années et possédait un visage ordinaire; cependant, ses yeux étroits laissaient transparaître un éclair de froideur.
 
-Une riche énergie originelle émanait de son corps. Il était évident qu'il avait atteint le sommet du stade Illusoire Yin. À mesure qu'il s'avançait, la foule devant lui se dispersa immédiatement, n'osant l'entraver.
+Une riche énergie originelle émanait de son corps. Il était évident qu'il avait atteint le sommet du stade Yin Illusoire. À mesure qu'il s'avançait, la foule devant lui se dispersa immédiatement, n'osant l'entraver.
 
-Il se rapprochait de plus en plus de la zone des 10 000 pieds. Ce n'était pas qu'il n'avait pas remarqué le cercle de poussière ou qu'il en ignorait la signification, mais sa vitesse ne ralentit aucunement alors qu'il s'élançait vers cette limite.
+Il se rapprochait de plus en plus de la zone de 3,3 kilomètres. Ce n'était pas qu'il n'avait pas remarqué le cercle de poussière ou qu'il en ignorait la signification, mais sa vitesse ne ralentit aucunement alors qu'il s'élançait vers cette limite.
 
 L'énergie originelle qu'il dégageait en chargeant fit reculer la poussière.
 
@@ -32,7 +32,7 @@ Il laissa échapper un rire, sa main prenant la forme d'une griffe tandis que ci
 
 « Dévorer! » hurla le jeune homme en robe jaune. Les cinq mèches de gaz noir se transformèrent instantanément en cinq dragons noirs qui dévorèrent la foudre. En un clin d'œil, l'éclair fut englouti et retourna aux côtés du jeune homme.
 
-Alors que les cinq dragons noirs encerclaient l'individu, ils commencèrent aussitôt à croître. En un instant, ils atteignirent 500 pieds de long. Par conséquent, l'aura du jeune homme augmenta soudainement.
+Alors que les cinq dragons noirs encerclaient l'individu, ils commencèrent aussitôt à croître. En un instant, ils atteignirent 330 mètres de long. Par conséquent, l'aura du jeune homme augmenta soudainement.
 
 Le jeune homme en robe jaune déclara d'un ton lent: « L'attaque de ce compagnon de culture est plutôt remarquable. Veuillez patienter un instant, car moi, Tang Yanyun, je souhaite explorer le trou laissé par le Céleste. Qu'en dites-vous? » Il était déjà extrêmement difficile pour lui de tenir un tel discours. S'il n'avait pas eu la certitude que le niveau de culture de Wang Lin était supérieur au sien et comparable à celui de son frère, qui se trouvait au stade Corporel Yang, il n'aurait jamais osé parler ainsi.
 
@@ -48,7 +48,7 @@ Son visage se voila de noirceur et il rit amèrement: « Si tel est le cas, je n
 
 Bien que la famille Tang n'ait pas reçu d'héritage direct du Royaume Céleste, elle n'en demeurait pas moins puissante. Nombreux étaient ceux de son clan à être venus dans le Royaume Céleste du Tonnerre cette fois-ci, et plutôt que de se disperser, ils restaient groupés. Il n'était ici qu'en éclaireur.
 
-L'expression de Wang Lin resta neutre alors qu'il fit un pas en avant. À chacun de ses pas, la zone des 10 000 pieds se remplissait d'une riche énergie originelle. Sa vitesse n'était pas rapide, mais il marchait calmement vers Tang Yanyun, étape par étape.
+L'expression de Wang Lin resta neutre alors qu'il fit un pas en avant. À chacun de ses pas, la zone de 3,3 kilomètres se remplissait d'une riche énergie originelle. Sa vitesse n'était pas rapide, mais il marchait calmement vers Tang Yanyun, étape par étape.
 
 Le visage de Tang Yanyun devint livide et il recula immédiatement. À ce moment-là, Wang Lin ouvrit la bouche et dit d'un ton calme: « Ma foudre n'est pas une chose que tu es qualifié pour dévorer! »
 
@@ -86,19 +86,19 @@ Cette scène sembla suspendre le temps. Tous les spectateurs environnants ne pur
 
 « Ceci... Quel genre de trésor est-ce là... » Tang Yanyun fixait les fragments de la statue de pierre, les yeux écarquillés par la terreur.
 
-Le cœur des cultivateurs situés à 10 000 pieds battait la chamade; ils ne pouvaient croire ce qu'ils venaient de voir. La peur les balaya comme une tempête. Cette zone de 10 000 pieds ressemblait désormais à une bête primale qui les empêchait de faire le moindre pas en avant.
+Le cœur des cultivateurs situés à 3,3 kilomètres battait la chamade; ils ne pouvaient croire ce qu'ils venaient de voir. La peur les balaya comme une tempête. Cette zone de 3,3 kilomètres ressemblait désormais à une bête primale qui les empêchait de faire le moindre pas en avant.
 
-Tous ces cultivateurs de premier rang ne purent s'empêcher de reculer. C'était comme si la distance de 10 000 pieds n'était plus suffisante, et ils craignaient d'être touchés par ce phénomène.
+Tous ces cultivateurs de premier rang ne purent s'empêcher de reculer. C'était comme si la distance de 3,3 kilomètres n'était plus suffisante, et ils craignaient d'être touchés par ce phénomène.
 
 Ceux qui espéraient profiter des blessures de leurs adversaires furent couverts de sueur froide et abandonnèrent toute idée de profit.
 
-En particulier, les frères de la famille Zhao se sentirent secrètement soulagés de ne pas être entrés, car s'ils l'avaient fait, ils seraient morts. Ces 10 000 pieds n'étaient plus une simple distance, mais une zone interdite de mort!
+En particulier, les frères de la famille Zhao se sentirent secrètement soulagés de ne pas être entrés, car s'ils l'avaient fait, ils seraient morts. Ces 3,3 kilomètres n'étaient plus une simple distance, mais une zone interdite de mort!
 
 À cet instant, ces cultivateurs gravèrent indélébilement le visage de Wang Lin dans leur mémoire. Il était désormais profondément ancré dans leurs esprits.
 
 Wang Lin fit un pas en avant et leva la main droite. Il retira immédiatement l'os de la bête, qui redevint un tatouage sur le dos de sa main. Sans ralentir, il franchit une étape et apparut devant Tang Yanyun. Ses deux doigts étaient chargés d'énergie originelle alors qu'il s'apprêtait à les presser contre lui.
 
-Le corps de Tang Yanyun trembla, ses yeux empreints d'effroi. Il tenta de s'enfuir sans hésiter, mais Wang Lin laissa échapper un reniflement glacial. La densité de l'énergie originelle se resserra immédiatement, rendant tout mouvement instantané impossible.
+Le corps de Tang Yanyun trembla, ses yeux empreints d'effroi. Il tenta de s'enfuir sans hésiter, mais Wang Lin laissa échapper un reniflement glacial. La densité de l'énergie originelle se resserra immédiatement dans un rayon de 330 mètres, rendant tout mouvement instantané impossible.
 
 Ce sortilège était une invention de Wang Lin. En utilisant la pression de l'énergie originelle, il pouvait rendre inutiles tous les sorts de déplacement instantané.
 
@@ -108,9 +108,9 @@ Ses doigts s'abattirent directement entre les sourcils de Tang Yanyun. À ce mom
 
 Wang Lin fronça légèrement les sourcils alors que son doigt touchait sa cible. L'énergie originelle se précipita dans le corps de Tang Yanyun, provoquant son effondrement immédiat. Il fut transformé en un nuage de sang, et même son âme originelle fut anéantie.
 
-« Tout intrus pénétrant dans les 10 000 pieds mourra! » Wang Lin se retourna et entra dans le trou sombre.
+« Tout intrus pénétrant dans la zone de 3,3 kilomètres mourra! » Wang Lin se retourna et entra dans le trou sombre.
 
-Cette zone de 10 000 pieds était sa terre interdite. Tant qu'il serait là, nul ne pourrait y entrer! Le Wang Lin d'aujourd'hui était pleinement qualifié pour proférer de telles paroles!
+Cette zone de 3,3 kilomètres était sa terre interdite. Tant qu'il serait là, nul ne pourrait y entrer! Le Wang Lin d'aujourd'hui était pleinement qualifié pour proférer de telles paroles!
 
 À cet instant, l'exclamation de Li Yuan retentit de l'intérieur du trou sombre avant que sa silhouette n'en jaillisse rapidement. Une fois apparu, il regarda la statue brisée du dragon noir, puis tourna les yeux vers Wang Lin en lui envoyant un message par sens divin: « Frère Xu, j'ai collecté tous les trésors à l'intérieur. J'ai également trouvé un passage secret, mais j'ignore où il mène! »
 
@@ -118,6 +118,6 @@ Les rayons de lumière tombèrent du ciel, révélant quatre silhouettes, hommes
 
 Si Shengong Hu avait été présent, il aurait immédiatement reconnu Tang Yanfeng, celui qui s'était moqué de lui aux portes du Royaume Céleste!
 
-« Une zone interdite de 10 000 pieds? Pour qui te prends-tu? » ricana l'un des hommes d'âge moyen aux côtés de Tang Yanfeng en faisant un pas dans la zone interdite. Un jeune homme derrière lui, à l'expression arrogante, fit également le pas vers cette limite.
+« Une zone interdite de 3,3 kilomètres? Pour qui te prends-tu? » ricana l'un des hommes d'âge moyen aux côtés de Tang Yanfeng en faisant un pas dans la zone interdite. Un jeune homme derrière lui, à l'expression arrogante, fit également le pas vers cette limite.
 
 Le regard de Wang Lin resta calme alors qu'il se retournait pour faire face à l'homme d'âge moyen.

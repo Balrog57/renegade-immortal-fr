@@ -6,13 +6,13 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 819 - Heaven-Avoiding Coffin (3)
 slug: le-coffre-evitant-le-ciel-3
 ---
-L'homme en robe noire afficha un regard déterminé. Au moment où sa tête tomba dans le cercueil, le couvercle s'envolâ automatiquement pour refermer l'ouverture. Puis, le coffre brilla intensément et s'éleva hors de la formation.
+L'homme en robe noire afficha un regard déterminé. Au moment où sa tête tomba dans le cercueil, le couvercle s'envola automatiquement pour refermer l'ouverture. Puis, le coffre brilla intensément et s'éleva hors de la formation.
 
 Les yeux de Wang Lin s'illuminèrent. La scène qui se déroulait devant lui le choqua; il vit clairement le jeune homme à l'intérieur du cercueil disparaître.
 
 Il remarqua ensuite que, dès que la tête de l'homme en robe noire avait touché le fond du coffre, son corps avait commencé à se condenser rapidement.
 
-« C'est... » Les yeux de Wang Lin se rétrécirent et il forma un sceau sans hésitation. Le papillon vola sous lui pour le porter, tandis que sa main gauche s'étendait et que le Cachet Céleste d'Étanchéité s'élançait immédiatement à la poursuite du coffre.
+« C'est... » Les yeux de Wang Lin se rétrécirent et il forma un sceau sans hésitation. Le papillon vola sous lui pour le porter, tandis que sa main gauche s'étendait et que le Sceau Céleste s'élançait immédiatement à la poursuite du coffre.
 
 Ta Shan vacilla avant de disparaître dans l'ombre de Wang Lin.
 
@@ -28,21 +28,21 @@ Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'
 
 À l'intérieur du cercueil, Long Daozi serra les poings avec acharnement, provoquant des craquements sinistres dans son corps, comme si ses os se heurtaient violemment. C'était une sensation extrêmement agréable; il pouvait clairement sentir sa culture se rétablir à une vitesse inimaginable.
 
-Passant de Yang Corporel à Scruteur du Nirvana, qui était au rang 1 Sky Celestial, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 Sky Celestial.
+Passant de Yang Corporel à Scruteur du Nirvana, qui était au rang 1 d'Immortel Céleste, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 d'Immortel Céleste.
 
-« Maître Carefree, vous m'avez bien trompé!! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 Sky Celestial, sans même ralentir.
+« Maître Sans Souci, vous m'avez bien trompé!! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 d'Immortel Céleste, sans même ralentir.
 
 En poursuivant sa course, l'expression de Wang Lin changea légèrement. Il pouvait sentir que les fluctuations d'énergie spirituelle céleste émanant du coffre devenaient de plus en plus puissantes.
 
 « Quel genre de trésor est-ce là?! » Wang Lin prit une inspiration saccadée, le regard chargé de stupeur.
 
-Alors que Long Daozi souriait, l'énergie originelle céleste jaillit et il atteignit rapidement le rang 9 Sky Celestial! C'était son niveau de culture maximal lorsqu'il résidait dans le Royaume Céleste!
+Alors que Long Daozi souriait, l'énergie originelle céleste jaillit et il atteignit rapidement le rang 9 d'Immortel Céleste! C'était son niveau de culture maximal lorsqu'il résidait dans le Royaume Céleste!
 
-Et cela ne s'arrêta pas là. Lorsque sa culture atteignit le rang 9 Sky Celestial, elle franchit la barrière du Sky Celestial pour subir une mutation inimaginable. Les yeux de Long Daozi brillaient d'un éclat si vif qu'ils semblaient pouvoir percer le cercueil.
+Et cela ne s'arrêta pas là. Lorsque sa culture atteignit le rang 9 d'Immortel Céleste, elle franchit la barrière de l'Immortel Céleste pour subir une mutation inimaginable. Les yeux de Long Daozi brillaient d'un éclat si vif qu'ils semblaient pouvoir percer le cercueil.
 
-Sa culture avait transcendé le niveau Sky Celestial pour atteindre celui de Roi Céleste!
+Sa culture avait transcendé le niveau d'Immortel Céleste pour atteindre celui de Roi Céleste!
 
-« Rang 3 Roi Céleste! Maître Carefree, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
+« Rang 3 Roi Céleste! Maître Sans Souci, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
 
 Wang Lin s'arrêta net, l'expression extrêmement sombre. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
 
@@ -64,7 +64,7 @@ Les yeux de Long Daozi furent envahis par la terreur. Tel un fou, il hurla avec 
 
 Long Daozi rugit vers les cieux: « Maître, je vous ai protégé pendant d'innombrables années! Pourquoi voulez-vous me tuer?! Vous aviez dit que tant qu'il resterait une parcelle d'âme, ce coffre pourrait l'aider à se reformer. Je l'ai utilisé pour récupérer mon corps, alors pourquoi s'est-il effondré?! Pourquoi?! »
 
-« Maître Carefree, si je ne vous avais pas aidé à trouver les indices du Coffre Évitant le Ciel, comment aurais-je pu briser la loi céleste?! Et pourtant, vous me traitez ainsi!! Je crains que si j'avais écouté vos conseils et que j'étais entré dans le coffre après le réveil de votre fils, le résultat aurait été le même!! Vous vouliez ma mort! » La tête de Long Daozi se dissipa progressivement. Son âme originelle s'effondra également pour ne devenir qu'une partie du néant.
+« Maître Sans Souci, si je ne vous avais pas aidé à trouver les indices du Coffre Évitant le Ciel, comment aurais-je pu briser la loi céleste?! Et pourtant, vous me traitez ainsi!! Je crains que si j'avais écouté vos conseils et que j'étais entré dans le coffre après le réveil de votre fils, le résultat aurait été le même!! Vous vouliez ma mort! » La tête de Long Daozi se dissipa progressivement. Son âme originelle s'effondra également pour ne devenir qu'une partie du néant.
 
 Comme la poussière retournant à la poussière et la terre à la terre...
 
@@ -92,7 +92,7 @@ Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsqu
 
 Peu importe la difficulté ou le danger, Wang Lin choisirait de tout affronter! Il y a des choses dans la vie que l'on doit accomplir, quels que soient les périls!
 
-Dans la partie ouest du système stellaire Allheaven, au plus profond du Domaine Étrange, personne n'avait mis les pieds depuis une éternité. L'endroit semblait être une zone interdite, saturée d'un brouillard gris si dense qu'on ne pouvait voir à plus de trente mètres.
+Dans la partie ouest du système stellaire Allheaven, au plus profond du Domaine Étrange, personne n'avait mis les pieds depuis une éternité. L'endroit semblait être une zone interdite, saturée d'un brouillard gris si dense qu'on ne pouvait voir à plus de trente-trois mètres.
 
 La brume dérivait lentement, comme promise à l'éternité.
 
@@ -120,4 +120,4 @@ Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la b�
 
 La bête remarqua également Wang Lin et sa troupe. Elle referma lentement sa gueule avant de reculer pour disparaître dans les profondeurs. Hormis le tourbillon de brume, sa silhouette était désormais invisible.
 
-Wang Lin avait disparu pendant plus d'un demi-siècle avant de réapparaître dans le système stellaire Allheaven. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux pointait sa lance directement vers Wang Lin!
+Wang Lin avait disparu pendant près de six mois avant de réapparaître dans le système stellaire Allheaven. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux pointait sa lance directement vers Wang Lin!

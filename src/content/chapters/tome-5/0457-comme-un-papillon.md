@@ -72,7 +72,7 @@ La hache déchira le ciel, provoquant une bourrasque de vent titanesque et une s
 
 Bien que son orgueil eût déplu à beaucoup, bien que son impitoyabilité eût rendu tout rapprochement difficile, elle était Papillon Rouge! L'orgueilleuse Papillon Rouge!
 
-La hache convergeait vers elle. Lorsqu'elle fut à moins de trente mètres, elle libéra une force destructrice. À cet instant, si Papillon Rouge avait voulu résister ou esquiver, elle en avait le pouvoir. Pourtant, elle ne fit ni l'un ni l'autre. Ses yeux brillaient de plus en plus et la fierté qui les habitait se renforçait sans cesse.
+La hache convergeait vers elle. Lorsqu'elle fut à moins de trente-trois mètres, elle libéra une force destructrice. À cet instant, si Papillon Rouge avait voulu résister ou esquiver, elle en avait le pouvoir. Pourtant, elle ne fit ni l'un ni l'autre. Ses yeux brillaient de plus en plus et la fierté qui les habitait se renforçait sans cesse.
 
 Cependant, mêlée à cet orgueil, une pointe de regret subsistait. Bien qu'elle fût soigneusement dissimulée, Wang Lin la perçut malgré tout.
 

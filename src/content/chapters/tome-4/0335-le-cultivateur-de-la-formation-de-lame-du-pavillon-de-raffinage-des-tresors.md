@@ -104,7 +104,7 @@ Wang Lin hocha la tête, puis regarda le vieil homme aux cheveux blancs avec un 
 
 Les yeux du vieillard étaient remplis d'incrédulité. Il fixa Wang Lin longuement avant de laisser échapper un sourire amer: « Je m'en souviens. Je n'arrive pas à croire que le cultivateur de la Formation du Noyau de l'époque ait atteint la Formation de l'Âme... »
 
-Il se rappelait désormais. À l'époque, il avait croisé Wang Lin et Qiu Siping et avait immédiatement décelé une puissance étrange en Wang Lin. Cela ressemblait au légendaire Domaine Ji, ce qui avait éveillé sa cupidité. Il avait voulu forcer Wang Lin à devenir son disciple pour tenter d'extraire le Domaine Ji.
+Il se rappelait désormais. À l'époque, il avait croisé Wang Lin et Qiu Siping et avait immédiatement décelé une puissance étrange en Wang Lin. Cela ressemblait au légendaire Royaume Ji, ce qui avait éveillé sa cupidité. Il avait voulu forcer Wang Lin à devenir son disciple pour tenter d'extraire le Royaume Ji.
 
 Cependant, il n'avait jamais imaginé qu'après des centaines d'années, cet homme atteindrait la Formation de l'Âme, le même niveau de culture que lui. Ses ambitions passées s'étaient instantanément envolées.
 

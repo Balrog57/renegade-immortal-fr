@@ -64,7 +64,7 @@ Le regard de l'homme d'âge moyen devint glacial et il dit lentement à la vieil
 
 La vieille femme réfléchit longuement avant de dire: « Je vais tout de même demander au Maître de secte d'agir. »
 
-L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions et, en plus de tout cela, Liao Fan a pu confirmer qu'il connaît la méthode de culture de l'Ascension des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
+L'homme d'âge moyen prit sa tasse, en but une gorgée et reprit: « Ce Ceng Niu possède un crapaud tonnerre, une paire de cloches, un petit drapeau capable de créer d'innombrables restrictions, une épée volante capable de briser n'importe quelle défense et, en plus de tout cela, Liao Fan a pu confirmer qu'il connaît la méthode de culture de l'Ascension des Enfers. Ces choses ne sont même pas les plus importantes. Ce qui compte par-dessus tout, c'est que Ceng Niu possède un petit drapeau contenant une aura capable de tout détruire. »
 
 La vieille femme fut stupéfaite: « Il semble que le Maître de secte ait enquêté sur cet homme. »
 
@@ -88,7 +88,7 @@ L'homme d'âge moyen esquissa un léger sourire et demanda: « Connais-tu son do
 
 « D'après Papillon Rouge, le domaine de cet homme est la vie et la mort; le cycle de la réincarnation. Quelqu'un capable de comprendre un tel domaine ne peut être sous-estimé, même s'il n'est qu'au stade de la Formation de l'Âme. » Les yeux de l'homme d'âge moyen trahirent une pointe de regret.
 
-La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Ceng Niu était que, lorsque Papillon Rouge était jeune, celle-ci avait consulté son propre avenir. Dans son futur, Papillon Rouge devait faire face à une calamité!
+La vieille femme se mit à réfléchir et poussa un soupir. La raison pour laquelle elle voulait tuer Ceng Niu était que, lorsque Papillon Rouge était jeune, elle avait tiré un présage pour celle-ci. Dans son futur, Papillon Rouge devait faire face à une calamité!
 
 Elle craignait que cette calamité ne soit Ceng Niu!
 
@@ -102,7 +102,7 @@ Bien sûr, avec ses capacités, il lui était impossible d'effrayer réellement 
 
 Grâce à sa présence, la petite Zhou Ru était devenue très arrogante et passait ses journées à s'amuser.
 
-Wang Lin avait passé ces cinq dernières années à consolider ses fondations et à tenter de progresser vers le stade intermédiaire de la Formation de l'Âme. Pourtant, malgré tous ses efforts, il ne parvenait pas à avancer.
+Wang Lin avait passé ces cinq dernières années à consolider son énergie spirituelle et avait enfin atteint le stade intermédiaire de la Formation de l'Âme. Pourtant, malgré tous ses efforts, il ne parvenait plus à avancer.
 
 Wang Lin savait qu'il avait atteint un goulot d'étranglement. S'il ne réussissait pas à le briser, sa culture resterait éternellement bloquée ici.
 

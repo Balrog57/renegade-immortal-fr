@@ -10,9 +10,9 @@ Teng Huayuan n'agit pas immédiatement, car il était profondément troublé. Au
 
 Si Wang Lin n'avait été qu'au stade initial, Teng Huayuan aurait été prêt à combattre, mais le niveau de culture affiché par ce dernier était celui d'un Âme Naissante de stade intermédiaire; Teng Huayuan ne pouvait donc s'empêcher de faire preuve de prudence.
 
-Tous les spectateurs étaient si focalisés sur le jeune homme suspendu dans les airs que personne ne remarqua la formation briller à nouveau lorsqu'un autre adolescent en sortit pour se fondre dans la foule. Il fixa Teng Huayuan, qui planait dans les airs, puis ses yeux se verrouillèrent sur le drapeau noir que ce dernier tenait à la main.
+Tous les spectateurs étaient si focalisés sur le jeune homme suspendu dans les airs que personne ne remarqua la formation briller à nouveau lorsqu'un autre adolescent en sortit pour se dissimuler dans l'ombre du passage. Il fixa Teng Huayuan, qui planait dans les airs, puis ses yeux se verrouillèrent sur le drapeau noir que ce dernier tenait à la main.
 
-Teng Huayuan concentrait toute son attention sur Wang Lin. Bien qu'il ait ressenti une fluctuation dans sa malédiction, il ne quittait pas Wang Lin des yeux. D'un revers de la main droite, il fit sortir une âme du petit drapeau. Il maudit l'âme avec un sourire glacial avant de ranger le drapeau dans son sac de rangement.
+Teng Huayuan concentrait toute son attention sur Wang Lin. Bien qu'il ait ressenti une fluctuation dans sa malédiction, il ne quittait pas Wang Lin des yeux. D'un revers de la main droite, il fit sortir une âme du petit drapeau. Il écrasa l'âme avec un sourire glacial avant de ranger le drapeau dans son sac de rangement.
 
 À cet instant, le ciel s'obscurcit et la pression ressentie trois mois auparavant réapparut. Des nuages sombres envahirent l'immensité céleste.
 
@@ -30,7 +30,7 @@ L'énergie spirituelle devint visible pour la première fois sous la forme d'un 
 
 À mesure que le cercle absorbait l'énergie spirituelle, les symboles qui le bordaient brillaient de plus en plus intensément. Finalement, une fine membrane apparut au centre du cercle. Elle était presque transparente. On pouvait clairement distinguer qu'à l'intérieur de cette pellicule se trouvait un espace vide où flottaient des corps brisés, des trésors magiques et divers matériaux.
 
-Wang Lin se cachait actuellement parmi la foule. Il ne regardait pas le cercle, mais la taille de Teng Huayuan, car son sac de rangement noir y était suspendu.
+Wang Lin se tenait actuellement dans l'ombre du passage. Il ne regardait pas le cercle, mais la taille de Teng Huayuan, car son sac de rangement noir y était suspendu.
 
 Le changement soudain du ciel n'était pas prévu et avait perturbé ses plans, mais peu après, ses yeux s'illuminèrent tandis qu'il calculait rapidement. Lentement, un sourire étira ses lèvres.
 
@@ -56,7 +56,7 @@ Teng Huayuan agita la main droite pour projeter les visages contenus dans le dra
 
 Lin Yi se frotta le menton en observant le drapeau et secoua la tête: « Ce drapeau d'âmes n'est pas suffisant. Avec seulement 30 000 âmes, il n'a même pas atteint le premier niveau de perfection. »
 
-En entendant cela, Punnan Zi acquiesça: « Ce que dit le seigneur messager est exact. Lorsque j'étais sur le champ de bataille étranger, j'ai vu un drapeau d'âmes possédant plus d'un million d'âmes. Sa puissance était véritablement terrifiante. »
+En entendant cela, Punnan Zi acquiesça: « Ce que dit le seigneur messager est exact. Lorsque j'étais sur le champ de bataille étranger, j'ai vu un drapeau d'âmes possédant plus de dix millions d'âmes. Sa puissance était véritablement terrifiante. »
 
 Lin Yi eut un petit rire et secoua la tête: « Ce n'est là qu'un drapeau d'âmes partiellement achevé provenant d'un pays de culture de rang 4. La Secte de l'Affinement des Âmes, dans le pays de rang 5 de Pi Lu, possède un drapeau d'âmes comme trésor de secte. On raconte que le nombre d'âmes à l'intérieur de ce drapeau dépasse le milliard et qu'elles ont été collectées au fil des millénaires de l'histoire de la secte. »
 

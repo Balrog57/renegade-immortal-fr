@@ -10,7 +10,7 @@ Sun Tai afficha une expression complexe en regardant Wang Lin. Il resta silencie
 
 Il était sous le choc. Il repensa au faible cultivateur du stade de la Formation de l'Âme, autrefois dans le Royaume Céleste, qui avait été contraint de lui céder le contrôle. Ce faible cultivateur qui n'avait pu que contempler, impuissant, le combat entre lui et Zhou Yi. Il lui était impossible de concevoir que ce faible cultivateur fût l'homme qui se tenait devant lui.
 
-Bien que le Wang Lin de l'époque fût féroce, il manquait encore de finesse, et son niveau de culture était tout simplement trop bas. S'il n'avait pas été marqué par Zhou Yi, ce dernier l'aurait tué d'une seule paume.
+Bien que le Wang Lin de l'époque fût féroce, il manquait encore de finesse, et son niveau de culture était tout simplement trop bas. S'il n'avait pas été marqué par Zhou Yi, Sun Tai l'aurait tué d'une seule paume.
 
 Le Wang Lin devant lui était calme, mais un seul de ses regards suffisait à faire trembler son âme originelle. Cette immense divergence était une réalité que Sun Tai ne pouvait accepter.
 

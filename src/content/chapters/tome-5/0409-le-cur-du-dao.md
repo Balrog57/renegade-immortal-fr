@@ -98,7 +98,7 @@ Après tout, les vieux monstres Ascendants restaient toujours en culture fermée
 
 Si l'on transposait cela au monde des arts martiaux mortels, ils seraient les experts de premier rang admirés par tous.
 
-Parmi les cultivateurs, l'importance de ces êtres est décuplée plus de mille fois.
+Parmi les cultivateurs, l'importance de ces êtres est multipliée par cent, par mille, par dix mille.
 
 C'était cela, un cultivateur de la Transformation de l'Âme.
 
@@ -142,6 +142,6 @@ Wang Lin se détourna et quitta la Perle Défiant les Cieux. Bien qu'il en soit 
 
 Au sommet de la montagne, sous la lumière des étoiles au milieu de la nuit, la silhouette solitaire sous la pluie semblait sur le point d'être brisée par le vent.
 
-La tristesse incertaine est ce que le vent emporte toujours, mais la solitude de n'avoir ni famille ni amis est un feu que le vent ne pourra jamais éteindre.
+La tristesse incertaine est ce que le vent emporte toujours, mais la solitude de l'homme sans cœur est un feu que le vent ne pourra jamais éteindre.
 
 La silhouette solitaire leva son visage aux traits marqués pour faire face à l'obscurité du ciel et à l'éclat des étoiles. Là, il vit la silhouette d'une femme qui resterait à jamais gravée dans son cœur.

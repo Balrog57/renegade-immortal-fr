@@ -78,7 +78,7 @@ Ils attendaient depuis près de quinze minutes, mais le cultivateur ne s'était 
 
 Cependant, avant qu'il n'ait pu finir sa phrase, le regard glacial de Zhao Yu se posa sur lui, le forçant à taire ses paroles.
 
-Zhao Yu laissa échapper un renflement méprisant et dit froidement: « S'ils ne peuvent même pas supporter la pluie, comment pourraient-ils devenir des cultivateurs? » Son souffle contenait une trace de sa puissance de culture; lorsqu'il résonna à l'oreille des villageois, leurs visages devinrent blêmes.
+Zhao Yu laissa échapper un reniflement méprisant et dit froidement: « S'ils ne peuvent même pas supporter la pluie, comment pourraient-ils devenir des cultivateurs? » Son souffle contenait une trace de sa puissance de culture; lorsqu'il résonna à l'oreille des villageois, leurs visages devinrent blêmes.
 
 Alors que Wang Lin se tenait au milieu de la foule, son expression s'assombrit. Il s'avança et marcha vers Zhao Yu.
 

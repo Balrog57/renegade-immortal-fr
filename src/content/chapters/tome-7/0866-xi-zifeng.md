@@ -18,7 +18,7 @@ Le regard de Wang Lin se posa sur l'immense salle située à plusieurs kilomètr
 
 Wang Lin déploya prudemment son sens divin et s'envola vers l'avant. Il se rapprocha progressivement de la salle principale et, lorsqu'il fut à proximité, il vit une silhouette debout à l'extérieur. Bien que le dos de cette personne lui soit tourné, elle semblait aussi imposante qu'une montagne.
 
-« Maître Flamespark! » Wang Lin ne fut pas surpris. En approchant, il atterrit et joignit les mains. « Salutations, Senior Maître Thunderflame! »
+« Maître Flamespark! » Wang Lin ne fut pas surpris. En approchant, il atterrit et joignit les mains. « Salutations, Senior Maître Flamespark! »
 
 « Devrais-je t'appeler Maître Démon Xu Mu ou Wang Lin du Système Stellaire de l'Alliance? » Maître Flamespark se retourna et fixa calmement Wang Lin. En posant son regard sur lui, il parut quelque peu surpris.
 
@@ -38,7 +38,7 @@ Wang Lin pesait ses mots et finit par hocher la tête. « Puisque le Senior Maî
 
 « Utilise ce réseau pour partir. Dans trois jours, ce vieil homme se rendra personnellement pour observer la compétition avec quelques amis. Ton frère aîné, Qing Shui, y sera également! » Sur ces mots, Maître Flamespark se détourna et pénétra dans la salle.
 
-Wang Lin regarda Maître Flamespark et demanda calmement: « Senior Maître Flamespark, pourriez-vous rendre le Thunder Beast du Junior? »
+Wang Lin regarda Maître Flamespark et demanda calmement: « Senior Maître Flamespark, pourriez-vous rendre la Bête du Tonnerre du Junior? »
 
 « Une fois que le passage sera ouvert, je te le rendrai naturellement! » La silhouette de Maître Flamespark disparut dans l'antre.
 
@@ -66,9 +66,9 @@ Venaient ensuite les familles de culture situées au-dessus de celles des planè
 
 Enfin, apparurent les membres des deux familles ancestrales qui organisaient cette compétition aux côtés du Temple Céleste du Tonnerre. Bien que le nombre de spectateurs fût relativement restreint par rapport à l'importance de l'événement, ils s'élevaient tout de même à des dizaines de milliers. Le Temple Céleste du Tonnerre avait disposé de nombreuses plateformes flottantes pour permettre aux cultivateurs de s'installer.
 
-Le champ de bataille pour le titre céleste fut fixé sur la place du lac de tonnerre, une étendue de 10 000 pieds de large!
+Le champ de bataille pour le titre céleste fut fixé sur la place du lac de tonnerre, une étendue de 3,3 kilomètres de large!
 
-À l'extérieur de la place, plus de dix piliers blancs émettaient des ondes d'énergie spirituelle céleste. Maître Flamespark était assis sur un tapis de prière au sommet de l'un de ces piliers. À ses côtés siégeait le Seigneur Céleste Qing Shui, les yeux clos, comme s'il était totalement indifférent à ce qui l'entourait.
+À l'extérieur de la place, plus de dix tapis de prière en jade blanc émettaient des ondes d'énergie spirituelle céleste. Maître Flamespark était assis sur l'un d'entre eux. À ses côtés siégeait le Seigneur Céleste Qing Shui, les yeux clos, comme s'il était totalement indifférent à ce qui l'entourait.
 
 À mesure que la foule s'épaississait, l'ancêtre de la famille Xiang apparut. Il salua Maître Flamespark et prit place sur un tapis de prière adjacent au sien.
 

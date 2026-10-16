@@ -72,7 +72,7 @@ Après cela, l'âme du vieil homme entra dans un fragment et disparut. Puis, une
 
 « L'Ancêtre du Sang! » L'expression de Wang Lin changea radicalement et il recula aussitôt. Pourtant, il nota une anomalie: bien qu'il s'agisse de l'âme de l'Ancêtre du Sang, ses yeux étaient ternes, dépourvus de toute étincelle de vie.
 
-Peu après, l'âme de l'Ancêtre du Sang péntra silencieusement dans le fragment. Mais juste avant de disparaître, elle leva la tête pour fixer Wang Lin.
+Peu après, l'âme de l'Ancêtre du Sang pénétra silencieusement dans le fragment. Mais juste avant de disparaître, elle leva la tête pour fixer Wang Lin.
 
 La quatrième âme a pris sa place!
 
@@ -90,7 +90,7 @@ Les deux âmes jetèrent un regard glacial au Maître Flamespark avant de fusion
 
 Cet homme semblait très ordinaire, ne dégageant aucune fluctuation d'énergie originelle. Pourtant, dès son apparition, une intention meurtrière capable de déchirer les cieux jaillit de lui. Cette intention fusionna avec le monde, comme si elle en devenait une composante essentielle. Wang Lin cracha immédiatement une large quantité de sang et activa toute son énergie pour reculer rapidement, mais l'aura meurtrière persistait. Ses yeux étaient remplis d'effroi et son visage était pâle.
 
-« Le Seigneur Céleste de Rang 6 du Royaume Céleste de la Pluie... le Seigneur Céleste de la Destruction! » Le jeune homme maléfique changea de ton en fixant l'homme, ses yeux devenant froids. L'homme d'âge moyen, quant à lui, restait extrêmement calme et tourna son regard vers le Maître Flamespark.
+« Le Seigneur Céleste de Rang 6 du Royaume Céleste de la Pluie... le Seigneur Céleste du Massacre! » Le jeune homme maléfique changea de ton en fixant l'homme, ses yeux devenant froids. L'homme d'âge moyen, quant à lui, restait extrêmement calme et tourna son regard vers le Maître Flamespark.
 
 Le Maître Flamespark désigna le fragment inférieur et ordonna: « Première âme, en position! »
 
@@ -108,7 +108,7 @@ Le Maître Flamespark le fixa et déclara: « Seigneur Céleste Qing Shui, je ve
 
 Le jeune homme fronça les sourcils et répondit simplement: « Je ne suis pas Qing Shui. »
 
-« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa culture était prodigieuse et il possédait le légendaire Domaine Ji! Il était également l'héritier du pays de Clear Water. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même; il était devenu un démon qui massacrait tout sur son passage! »
+« Ce vieil homme a visité le Royaume Céleste des centaines de fois et a percé tous ses secrets. Dans le Royaume Céleste du Tonnerre, il existait un être nommé Qing Shui. Sa culture était prodigieuse et il possédait le légendaire Domaine Ji! Il était également l'héritier du pays de Qing Shui. Après son ascension, il devint un Seigneur Céleste dans le Royaume du Tonnerre. Cependant, lors des premiers jours de l'effondrement du royaume, il subit un changement soudain et inexplicable. Il n'était plus le même; il était devenu un démon qui massacrait tout sur son passage! »
 
 « Un groupe de célestes l'attaqua, mais grâce à son Domaine Ji, il provoqua un massacre sans précédent. Finalement, l'Empereur Céleste Bai Fan intervint et remporta la victoire, bien qu'il ne puisse se résoudre à le tuer. Dans ce dilemme, Qing Shui sembla soudain retrouver la raison, comme si tout ce qui s'était passé n'avait été qu'un rêve. Lorsqu'il reprit ses esprits, il réalisa l'ampleur de son crime: il avait massacré d'innombrables célestes, dont ses amis, ses disciples, ses descendants et, par-dessus tout, son partenaire de Dao qui l'avait accompagné pendant des dizaines de milliers d'années! »
 

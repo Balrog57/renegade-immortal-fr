@@ -7,13 +7,13 @@ en: Chapter 343 - Country of Suzaku
 slug: pays-de-suzaku
 ---
 
-Après avoir terminé tout cela, Wang Lin serra les poings, faisant morpher le bassin en un récipient. Son bras était désormais scellé à l'intérieur.
+Après avoir terminé tout cela, D'un geste de la main droite, Wang Lin fit se contracter le bassin en un récipient. Son bras était désormais scellé à l'intérieur.
 
 À cet instant précis, dans un lieu de Suzaku qui semblait issu d'une peinture, Papillon Rouge cultivait sur le sommet d'un lotus.
 
 La zone était entourée d'eaux claires et bleues et d'une verdure luxuriante. Des bêtes spirituelles rôdaient même à proximité. Dans l'eau, quelques carpes aux moustaches très longues glissaient; leurs yeux brillaient d'une étincelle de vie, signe qu'elles avaient manifestement acquis une certaine intelligence.
 
-Papillon Rouge portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Papillon Rouge avec tendresse et dit: « Jeune sœur de discipline Papillon Rouge, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
+Papillon Rouge portait une robe rouge dont seule la manche de son bras droit était vide. Assis sur un lotus à une dizaine de mètres face à elle se tenait un homme d'âge moyen, très beau. Il contemplait Papillon Rouge avec tendresse et dit: « Jeune sœur de discipline Papillon Rouge, je t'ai offert l'esprit de la mer orientale pour que ton bras repousse. Pourquoi ne l'as-tu pas utilisé? »
 
 Papillon Rouge ouvrit les yeux et répondit froidement: « Chaque fois que je contemple ma manche vide, mon envie de tuer Ceng Niu grandit! Tant que je ne l'aurai pas tué, mon bras restera manquant. Grand frère de discipline, n'essaie pas de me faire changer d'avis. »
 

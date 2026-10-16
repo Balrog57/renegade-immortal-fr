@@ -54,7 +54,7 @@ L'expression du Dieu de Sang était glaciale alors qu'il levait sa main droite. 
 
 Le visage de Wang Lin était livide. Tout en reculant, il sortit la montagne céleste. N'ayant pas le temps de regretter sa perte, il la lança en criant: « Âme, explose! »
 
-Il avait obtenu cette montagne céleste de la part de l'Avaricie et, après en avoir extrait l'âme, elle était devenue extrêmement puissante. Même si l'âme n'avait pas été extraite, l'explosion de l'âme était d'une puissance décuplée!
+Il avait obtenu cette montagne céleste de la part d'Avarice et, après en avoir extrait l'âme, elle était devenue extrêmement puissante. Même si l'âme n'avait pas été extraite, l'explosion de l'âme était d'une puissance décuplée!
 
 Au moment où l'avaleur de sang approchait, la montagne céleste explosa, créant une tempête violente. Cette tempête était redoutable et, grâce à l'âme qu'elle renfermait, elle forma un immense vortex. Des rafales d'aura destructrice s'échappaient de ce tourbillon.
 

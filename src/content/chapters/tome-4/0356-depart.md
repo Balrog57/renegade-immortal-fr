@@ -8,11 +8,11 @@ slug: depart
 ---
 L'expression du corps originel demeurait glaciale lorsqu'il demanda lentement: « D'où venez-vous tous les deux? »
 
-Le corps de la femme au voile blanc trembla tandis qu'elle fixait le vieil homme qui semblait mort. Accablée par le désespoir, elle n'osa plus mentir: « Junior revient tout juste du Cimetière des Immortels. »
+Le corps de la femme au voile blanc trembla tandis qu'elle fixait le vieil homme dont le sort restait incertain. Accablée par le désespoir, elle n'osa plus mentir: « Junior revient tout juste du Cimetière des Immortels. »
 
 Le corps originel tourna son regard vers elle et dit calmement: « Vous étiez sept lorsque vous êtes entrés dans le Cimetière des Immortels. Pourquoi n'êtes-vous que deux à en être ressortis? »
 
-La femme au voile blanc frémit de nouveau. Ce jeune homme l'impressionnait; plus elle le contemplait, plus ce jeune homme aux cheveux roux lui semblait familier, bien qu'elle fût certaine de ne ne l'avoir jamais rencontré auparavant.
+La femme au voile blanc frémit de nouveau. Ce jeune homme l'impressionnait; plus elle le contemplait, plus ce jeune homme aux cheveux roux lui semblait familier, bien qu'elle fût certaine de ne l'avoir jamais rencontré auparavant.
 
 Elle dit d'un ton amer: « Junior a ses propres difficultés... »
 
@@ -98,7 +98,7 @@ Le corps originel semblait désormais recouvert d'un filet d'or. Les crevasses d
 
 Cette lueur devint de plus en plus vive jusqu'à ce qu'elle s'infiltre dans la chair et les os du corps originel pour y disparaître.
 
-L'expression du corps originel resta impassible, mais une pointe d'or traversa son regard. Le fruit de la réincarnation ayant été entièrement absorbé, sa vitesse d'absorption de l'énergie spirituelle fut décuplée.
+L'expression du corps originel resta impassible, mais une pointe d'or traversa son regard. Le fruit de la réincarnation ayant été entièrement absorbé, sa vitesse d'absorption de l'énergie spirituelle fut multipliée d'innombrables fois.
 
 Le corps originel pouvait enfin être considéré comme un véritable Dieu Ancien!
 
@@ -120,7 +120,7 @@ Le père de Zhou Ru, un homme robuste aux mains calleuses, regarda sa fille en s
 
 « Est-elle vraiment muette? » soupira le père.
 
-Ce jour-là, un vieil homme vêtu d'une robe de cultivateur pénétra dans le village. Le chef du village l'accueillit respectueusement et ordonna que tous les enfants de six ans ou moins soient présentés.
+Ce jour-là, un vieil homme vêtu d'une robe de cultivateur pénétra dans le village. Le chef du village l'accueillit respectueusement et ordonna que tous les enfants de moins de six ans soient présentés.
 
 Peu après, les dix-neuf enfants de moins de six ans arrivèrent au centre du village, accompagnés de leurs parents.
 
@@ -142,7 +142,7 @@ Soudain, son regard se fixa sur Zhou Ru. Il s'approcha d'elle avec célérité e
 
 « Ceci... est née naturellement dotée d'énergie spirituelle! Tous ses méridiens sont ouverts et elle possède une aura violette. Magnifique! » Le vieil homme contemplait Zhou Ru. Ce qu'il voyait n'était pas une enfant, mais une pierre spirituelle étincelante de haute qualité.
 
-Sa secte était modeste, mais comme elle était une branche de la Secte du Ciel Nuageux, ils jouissaient d'une certaine prospérité. Bien que les Anciens fussent généralement avares, ils récompensaient très généreusement les disciples qui découvraient de tels talents.
+Sa secte était modeste, mais comme elle était une branche de la Secte du Ciel Nuageux, ils jouissaient d'une certaine prospérité. Bien que le chef de secte fût généralement avare, il récompensait très généreusement les disciples qui découvraient de tels talents.
 
 Le vieil homme éclata de rire et s'adressa aux notables du village: « Cet enfant, je la prends! »
 

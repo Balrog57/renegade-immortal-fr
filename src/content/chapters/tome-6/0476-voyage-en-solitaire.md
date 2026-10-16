@@ -8,11 +8,11 @@ slug: voyage-en-solitaire
 ---
 Après avoir quitté la boutique, Wang Lin remit dix pierres spirituelles de haute qualité à Li Dannan et quitta la ville de Ming Mei.
 
-La boutique du clan Shang possédait effectivement de l'encre de neige, mais son prix était tout simplement exorbitant. Wang Lin calcula qu'avec toutes les pierres spirituelles dont il disposait, il ne pourrait en obtenir que deux ou trois gouttes.
+La boutique du clan Shang possédait effectivement de l'encre de neige, mais son prix était tout simplement exorbitant. Wang Lin calcula qu'avec toutes les pierres spirituelles dont il disposait, il ne pourrait en obtenir que trois liang.
 
 Un tel prix dépassait les attentes de Wang Lin. Il n'avait pas imaginé que l'encre de neige soit une matière d'une telle qualité dans le monde de la culture.
 
-Les anciens dieux pouvaient voyager d'une planète à l'autre pour en chercher sans difficulté. Mais pour les cultivateurs, l'encre de neige était d'une rareté absolue. D'après ce qu'il avait entendu dire de cette femme, l'encre de neige était excellente pour nourrir l'âme. Si l'on en possédait quelques gouttes lors de la possession d'un corps, la vitesse de cette possession augmenterait de façon exponentielle.
+Les anciens dieux pouvaient voyager d'une planète à l'autre pour en chercher sans difficulté. Mais pour les cultivateurs, l'encre de neige était d'une rareté absolue. D'après ce qu'il avait entendu dire de cette femme, l'encre de neige était excellente pour nourrir l'âme. Si l'on en possédait quelques gouttes lors de la possession d'un corps, la vitesse de cette possession serait multipliée par plusieurs.
 
 De même, si l'on en gardait un peu dans la bouche lorsque son âme originelle quittait son corps, cela pourrait empêcher la destruction de celle-ci, même en cas de blessure grave, permettant ainsi de pouvoir, au moins, retourner dans son corps.
 
@@ -24,7 +24,7 @@ Wang Lin envoya un message: « Ville de Ming Mei, la boutique du clan Shang. Je 
 
 Situ Nan éclata de rire, puis coupa la connexion.
 
-Il y avait au total neuf villes sur cette planète commerciale. En l'espace de trois jours, une nouvelle retentissante se répandit: la ville de Heaven and Earth avait été pillée! Cet individu possédait une intuition remarquable et s'était emparé de tous les trésors de haute qualité; la plupart d'entre eux étaient les pièces maîtresses des boutiques. Même les commerces bénéficiant de puissants soutiens avaient été dépouillés.
+Il y avait au total neuf villes sur cette planète commerciale. En l'espace de trois jours, une nouvelle retentissante se répandit: la ville de Tiandi avait été pillée! Cet individu possédait une intuition remarquable et s'était emparé de tous les trésors de haute qualité; la plupart d'entre eux étaient les pièces maîtresses des boutiques. Même les commerces bénéficiant de puissants soutiens avaient été dépouillés.
 
 Même le manoir du seigneur de la ville avait été pillé!
 
@@ -34,7 +34,7 @@ La culture de cet homme était extrêmement puissante; même lorsqu'il était at
 
 Et l'homme mystérieux repartit, imperturbable.
 
-Une telle puissance n'était accessible qu'aux stades légendaires de l'Illusoire Yin, du Corporel Yang et du Scruteur du Nirvana! En conséquence, il se déplaçait comme une nuée de criquets; personne n'osait plus l'affronter ou lui barrer la route.
+Une telle puissance n'était accessible qu'aux stades légendaires de l'Illusoire Yin, du Corporel Yang et du Briseur du Nirvana! En conséquence, il se déplaçait comme une nuée de criquets; personne n'osait plus l'affronter ou lui barrer la route.
 
 Wang Lin resta assis sur la falaise pendant trois jours, contemplant la ville de Ming Mei. La nuit du troisième jour, un léger sourire apparut sur les lèvres de Wang Lin alors qu'il sortait son chapeau de paille pour le poser sur sa tête.
 
@@ -56,13 +56,13 @@ Les cultivateurs de la planète commerciale poursuivirent un moment avant d'aban
 
 « Avez-vous obtenu mon encre de neige? » Wang Lin se lécha les lèvres. Bien qu'il n'ait pas participé activement, l'encre de neige était ce qu'il avait demandé, il était donc lié à cette affaire.
 
-Situ Nan rit et sortit une petite bouteille. Il la lança à Wang Lin en disant: « Tiens. Il y a environ deux ou trois gouttes là-dedans. »
+Situ Nan rit et sortit une petite bouteille. Il la lança à Wang Lin en disant: « Tiens. Il y en a environ trois liang, peut-être un peu plus. »
 
 Après avoir lancé la bouteille, Situ Nan commença à inspecter son butin. En vérifiant ses gains, un sourire orgueilleux étira ses lèvres.
 
 « Haha, pas mal. La récolte de cette fois est plusieurs fois supérieure aux précédentes. »
 
-Lorsque Wang Lin prit le sac et l'examina avec son sens divin, ses yeux s'illuminèrent. Il prit secrètement une décision en son cœur: « Ce genre de pillage n'est pas mal mauvais. Si l'occasion se présente à l'avenir, je devrai moi aussi voler de la sorte. »
+Lorsque Wang Lin prit le sac et l'examina avec son sens divin, ses yeux s'illuminèrent. Il prit secrètement une décision en son cœur: « Ce genre de pillage n'est pas si mal. Si l'occasion se présente à l'avenir, je devrai moi aussi voler de la sorte. »
 
 L'espace n'était pas totalement sombre; parfois, de nombreuses lumières et objets colorés flottaient dans le néant. Cette beauté pouvait faire trembler le cœur de n'importe qui d'un seul regard.
 

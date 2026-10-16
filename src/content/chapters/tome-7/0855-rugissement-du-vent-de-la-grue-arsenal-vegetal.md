@@ -10,21 +10,21 @@ Les gouttes de pluie étaient semblables à des cristaux émettant une lumière 
 
 Cependant, ce qui était étrange, c'est que ces gouttes de pluie formèrent un rideau protecteur autour de Wang Lin. Non seulement il ne ressentait pas le froid, mais une chaleur envahit son corps tandis que la vaste quantité d'énergie originelle qu'il avait consommée se régénérait lentement.
 
-Wang Lin contemplait la scène avec stupeur. En entendant les paroles de Qing Shui, il réfléchit en silence. Tandis qu'il fixait le vieil homme, un sentiment étrange et inexplicable naquit dans son cœur.
+Wang Lin contemplait la scène avec stupeur. En entendant les paroles de Qing Shui, il réfléchit en silence. Tandis qu'il fixait Qing Shui, un sentiment étrange et inexplicable naquit dans son cœur.
 
 C'était une sensation très singulière pour lui, comme si elle ne s'était pas manifestée en son for intérieur depuis une éternité.
 
-Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître de la Secte Dun Tian, de la Secte de la Raffinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première confrontation avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
+Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte du Raffinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première confrontation avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
 
 Zhou Yi lui avait également donné ce sentiment.
 
 La vie de Wang Lin suivait un principe immuable: si les autres ne l'offensaient pas, il ne les offenserait pas. De même, si quelqu'un lui témoignait de la gratitude, aussi infime fût-elle, Wang Lin la chérissait.
 
-Il n'avait pas oublié la bienveillance de Dun Tian; dans son cœur, il portait toujours l'esprit de la Secte de la Raffinement de l'Âme.
+Il n'avait pas oublié la bienveillance de Dun Tian; dans son cœur, il portait toujours l'esprit de la Secte du Raffinement de l'Âme.
 
 Il n'avait pas non plus oublié la bonté de Situ Nan, à qui il n'avait pas hésité à offrir un objet aussi précieux que le Char de Guerre Divin. Si Situ Nan se trouvait dans une situation périlleuse, Wang Lin savait que même si cela devait lui coûter la vie, tant qu'une possibilité de le sauver existait, il ne reculerait jamais.
 
-Tout cela parce que Situ Tu lui avait montré de la gentillesse!
+Tout cela parce que Situ Nan lui avait montré de la gentillesse!
 
 Wang Lin n'avait pas non plus oublié la reconnaissance due à Zhou Yi; pour la rembourser, il avait accompli bien trop de choses.
 
@@ -46,7 +46,7 @@ Soudain, les gouttes de pluie s'animèrent dans un sifflement aigu et strident. 
 
 Ces innombrables gouttes étaient comme autant d'épées chargeant frénétiquement vers Dieu Sanglant. Chaque goutte dégageait une aura terrifiante; une seule suffisait à anéantir un cultivateur Ascendant!
 
-Dix gouttes suffisaient à tuer un cultivateur de l'Yin Illusoire. Cent gouttes pouvaient détruire un cultivateur du Yang Corporel! Mille gouttes, et même un cultivateur Scrutateur du Nirvana devrait battre en retraite!
+Dix gouttes suffisaient à tuer un cultivateur de l'Yin Illusoire. Cent gouttes pouvaient détruire un cultivateur du Yang Corporel! Mille gouttes, et même un cultivateur Scruteur du Nirvana devrait battre en retraite!
 
 Le mouvement de ces gouttes semblait capable de transpercer les lois de l'univers. L'esprit de Dieu Sanglant vacilla face à cette pluie dévastatrice.
 
@@ -94,7 +94,7 @@ Pendant un instant, le monde parut enveloppé par ces cris. Ce son était si pui
 
 C’est alors que l'une des grues explosa en une multitude de plumes blanches. Un cri encore plus strident jaillit de la grue éclatée.
 
-Peu après, une autre explosa. En un instant, les neuf grues explosèrent simultanément, propageant une nuée de plumes. Cela se mua en un sort dévastateur qui affecta tout dans un rayon de milliers de kilomètres.
+Peu après, une autre explosa. En un instant, les neuf grues explosèrent simultanément, propageant une nuée de plumes. Cela se mua en un sort dévastateur qui affecta tout dans un rayon de 500 kilomètres.
 
 Le regard de Qing Shui demeura indifférent alors qu'il murmurait lentement: « Ce sort n'est pas mal. »
 

@@ -10,7 +10,7 @@ Le vieil homme affichait une expression de tristesse alors qu'il tenait le Filet
 
 Ce n'était qu'une question de temps avant qu'il ne soit capturé.
 
-Il décida donc de tenter sa chance cette fois-ci. Si l'humeur du Filet de Capture Céleste était clémente, il emprisonnerait Wang Lin pendant trois jours. Avec une telle avance, si Wang Lin voulait s'enfuir, il ne pourrait jamais le rattraper, quoi qu'il arrive. S'il décidait de ne pas fuir et de capturer Wang Lin, il pourrait alors utiliser certaines drogues pour raffiner ce dernier en un véritable gardien céleste de faible qualité, comme l'indiquaient les inscriptions sur la pierre de jade.
+Il décida donc de tenter sa chance cette fois-ci. Si l'humeur du Filet de Capture Céleste était clémente, il emprisonnerait Wang Lin pendant trois jours. Avec une telle avance, s'il voulait s'enfuir, Wang Lin ne pourrait jamais le rattraper, quoi qu'il arrive. S'il décidait de ne pas fuir et de capturer Wang Lin, il pourrait alors utiliser certaines drogues pour raffiner ce dernier en un véritable gardien céleste de faible qualité, comme l'indiquaient les inscriptions sur la pierre de jade.
 
 En songeant au pouvoir des gardiens célestes de faible qualité mentionné dans la pierre de jade, le cœur du petit vieil homme fut agité par l'envie.
 
@@ -94,7 +94,7 @@ Wang Lin atterrit et fit un geste de la main gauche. Sun Ruonan fut projetée ve
 
 La bête semblait ravie. Elle poussa un rugissement avant de se transformer en un fragment d'âme que Wang Lin récupéra.
 
-« Frère Sun, la restriction a été levée et votre petite sœur a été sauvée. Quant à vos oncles martiaux, vous devrez les retrouver par vous-même. Quant à celui qui se trouve dans mon Secte de l'Affinement de l'Âme, je le libérerai. Adieu! » Sur ces mots, Wang Lin saisit le petit vieil homme qui prétendait venir du Royaume Céleste et disparut par téléportation.
+« Frère Sun, la restriction a été levée et votre petite sœur a été sauvée. Quant à vos oncles martiaux, vous devrez les retrouver par vous-même. Quant à celui qui se trouve dans ma Tribu de l'Affinement de l'Âme, je le libérerai. Adieu! » Sur ces mots, Wang Lin saisit le petit vieil homme qui prétendait venir du Royaume Céleste et disparut par téléportation.
 
 Il n'avait guère de patience pour les querelles entre ces deux membres d'une même lignée.
 

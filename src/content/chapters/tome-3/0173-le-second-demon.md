@@ -102,7 +102,7 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il agitait le drapeau d'âmes. Les
 
 Le démon, resté en retrait, observait la scène, abasourdi. Il pensa secrètement: « Violent! Ce petit frère est bien trop violent! Je vais devoir redoubler d'efforts, sinon ce monstre finira par me servir de nourriture! » Le corps du démon trembla tandis qu'il reculait. Flottant dans les airs, il commença à digérer rapidement les âmes qu'il avait dévorées.
 
-Cette attente dura trois jours. Durant cette période, le brouillard rouge ne montra aucun changement. En plus de l'observer, Wang Lin vit passer d'innombrables tornades noires. L'une d'elles mesurait plus de 33 kilomètres de haut; c'était comme si la reine des tornades passait devant la tour noire.
+Cette attente dura trois jours. Durant cette période, le brouillard rouge ne montra aucun changement. En plus de l'observer, Wang Lin vit passer d'innombrables tornades noires. L'une d'elles mesurait plus de 3,3 kilomètres de haut; c'était comme si la reine des tornades passait devant la tour noire.
 
 Alors que la plus immense tornade approchait, elle marqua un temps d'arrêt tandis qu'une multitude de sens divins s'en déversaient. Leur cible n'était pas Wang Lin, mais le brouillard rouge.
 
@@ -170,4 +170,4 @@ Un cri déchirant retentit. Au moment où le démon apparut, il percuta de plein
 
 Involontairement, la créature fut projetée dans les airs et se retrouva devant Wang Lin. Elle le regardait avec une expression terrifiée en poussant des cris misérables.
 
-Le démon Xu Liguo prit une profonde inspiration et abandonna aussitôt toute idée de rébellion. Il ne pensait pas que ce monstre puisse vaincre si facilement son petit frère. Après réflexion, il comprit ce qui s'était passé et jura intérieurement: « Diable! »
+Le démon Xu Liguo prit une profonde inspiration et abandonna aussitôt toute idée de rébellion. Il ne pensait pas que ce monstre puisse vaincre si facilement son petit frère. Après réflexion, il comprit ce qui s'était passé et jura intérieurement: « Ignoble! »

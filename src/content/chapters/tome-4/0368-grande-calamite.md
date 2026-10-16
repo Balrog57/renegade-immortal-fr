@@ -26,7 +26,7 @@ Wang Lin était plongé dans ses pensées lorsque son expression changea soudain
 
 « Transfert de la Grande Ourse! » hurla soudain une voix antique, puis une formation gigantesque apparut dans le ciel.
 
-Sans hésiter, Wang Lin rangea la moustique et tenta de se téléporter. Cependant, il ne parcourut que mille pieds avant d'être expulsé de sa téléportation par une force invisible.
+Sans hésiter, Wang Lin rangea la moustique et tenta de se téléporter. Cependant, il ne parcourut que 50 kilomètres avant d'être expulsé de sa téléportation par une force invisible.
 
 Peu après, la formation céleste s'anima et un puissant flux d'énergie spirituelle en jaillit. Choqué, Wang Lin fut aspiré à l'intérieur de la formation.
 
@@ -34,7 +34,7 @@ En un clin d'œil, son corps disparut dans le dispositif.
 
 La formation s'estompa lentement et un vieil homme en sortit calmement. Il marmonna: « Pays de Xue Yu, tu dois une faveur à ce vieux! »
 
-Cet homme était celui qui siégeait aux côtés de Gong Sunpo. C'était un Ancien des affaires étrangères!
+Cet homme était celui qui siégeait aux côtés de Gong Sunpo. C'était un Ancien des affaires étrangères de la Secte du Jade Céleste!
 
 Dans une zone déserte de l'extrémité nord du continent Suzaku, une formation gigantesque s'ouvrit brusquement et un individu en fut expulsé.
 
@@ -92,7 +92,7 @@ Wang Lin serra les dents et fit volte-face pour tenter une nouvelle fuite.
 
 C'est alors que le cultivateur de la Transformation de l'Âme vêtu de noir laissa échapper un grognement méprisant. Il rattrapa Wang Lin comme l'éclair et frappa doucement son dos de sa paume.
 
-Wang Lin poussa un gémissement de douleur. Il n'eut que le temps de concentrer toute l'énergie spirituelle restante de son corps sur son dos pour bloquer l'impact avec l'épée céleste. Pourtant, la force brutale fut telle qu'il fut projeté au sol à mille pieds de là. Il cracha une énorme bouffée de sang, mêlée à des fragments de ses organes internes.
+Wang Lin poussa un gémissement de douleur. Il n'eut que le temps de concentrer toute l'énergie spirituelle restante de son corps sur son dos pour bloquer l'impact avec l'épée céleste. Pourtant, la force brutale fut telle qu'il fut projeté au sol à plus d'un kilomètre de là. Il cracha une énorme bouffée de sang, mêlée à des fragments de ses organes internes.
 
 Le visage de Wang Lin était aussi livide que celui d'un cadavre. De nouvelles blessures venaient s'ajouter aux précédentes.
 

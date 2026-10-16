@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 507 - Earth Northern Demonic Lands
 slug: terres-demoniaques-du-nord-de-la-terre
 ---
-Wang Lin flottait à 33 kilomètres au-dessus de la tour. Les yeux brillants comme des torches, il leva sa main droite et toute la brume noire commença à converger vers lui. On aurait dit que la brume était repoussée depuis sa périphérie pour s'engouffrer vers Wang Lin.
+Wang Lin flottait à 3,3 kilomètres au-dessus de la tour. Les yeux brillants comme des torches, il leva sa main droite et toute la brume noire commença à converger vers lui. On aurait dit que la brume était repoussée depuis sa périphérie pour s'engouffrer vers Wang Lin.
 
 Le ciel et les nuages changèrent de couleur!
 
@@ -24,7 +24,7 @@ Wang Lin serra le poing; les restrictions scintillantes à l'intérieur s'effond
 
 « Puisque je cultive l'Art du Massacre Céleste, autant affiner également le drapeau d'âme. Ainsi, mes chances de survie sur la planète Tian Yun augmenteront! »
 
-« De plus, Maître veut que j'aille dans la Mer Démoniaque Orientale dans trois mois. Il ne me reste plus qu'un mois et demi. Dois-je y aller ou non... » Le Sens Divin de Wang Lin se propagea sur Ling Yue avant que son corps ne se change en fumée et ne disparaisse.
+« De plus, Maître veut que j'aille dans la Mer Démoniaque Orientale dans trois mois. Il ne me reste guère plus d'un mois. Dois-je y aller ou non... » Le Sens Divin de Wang Lin se propagea sur Ling Yue avant que son corps ne se change en fumée et ne disparaisse.
 
 Ling Yue, Montagne des Cinq Esprits.
 
@@ -50,7 +50,7 @@ Après avoir récupéré le jade, Wang Lin l'examina d'un revers de son Sens Div
 
 Le vieux Tian Tai regarda l'endroit où Wang Lin avait disparu, puis ferma lentement les yeux en murmurant pour lui-même: « Cet enfant est empreint d'une intention meurtrière bouillonnante; son voyage cette fois a pour but le massacre. J'espère que personne ne s'offensera de lui en chemin. »
 
-« À l'extrémité nord de la planète Terre, il existe des chaînes de montagnes denses qui couvrent des millions de kilomètres. Cet endroit est un lieu de rassemblement pour les bêtes démoniaques; on y trouve même des bêtes désolées aussi puissantes que des cultivateurs Ascendants. C'est aussi là que tous les disciples de la planète viennent se tester! Cependant, la zone de 150 000 kilomètres au centre est considérée comme une terre interdite où l'on ne doit pas s'aventurer sans précaution. »
+« À l'extrémité nord de la planète Terre, il existe des chaînes de montagnes denses qui couvrent 500 000 kilomètres. Cet endroit est un lieu de rassemblement pour les bêtes démoniaques; on y trouve même des bêtes désolées aussi puissantes que des cultivateurs Ascendants. C'est aussi là que tous les disciples de la planète viennent se tester! Cependant, la zone de 150 000 kilomètres au centre est considérée comme une terre interdite où l'on ne doit pas s'aventurer sans précaution. »
 
 Wang Lin rangea le jade, fixa la direction qu'il voulait prendre, agita sa main droite dans les airs et une lumière argentée apparut soudainement devant lui. Wang Lin commença à marcher dans cette lumière. Un pas, deux pas, trois pas... Comme s'il montait un escalier, il fit dix pas d'affilée!
 
@@ -86,7 +86,7 @@ Derrière la stèle s'étendait une chaîne de montagnes infinie. Il n'y avait a
 
 Hormis cela, la zone était totalement silencieuse, dépourvue de toute trace de vie.
 
-Bien que ce fût le jour, une aura glacial émanait du sol et se propageait dans toute la région.
+Bien que ce fût le jour, une aura glaciale émanait du sol et se propageait dans toute la région.
 
 Wang Lin observa attentivement la scène. Après avoir réfléchi un instant, il fit un pas vers la chaîne de montagnes.
 
@@ -116,12 +116,12 @@ Quant au dernier homme et à la dernière femme, ils restèrent silencieux. La f
 
 En termes d'apparence, cette femme était la plus belle des deux. Elle portait une robe de coton blanc, un ruban de soie bleu clair noué élégamment à sa taille, et une épingle en forme de rose ornait ses cheveux noirs comme l'encre. Sa peau était aussi lisse et parfaite que le jade, sans aucun besoin de maquillage; si ce n'était pour la haine qui marquait son visage, elle aurait été d'une beauté encore plus saisissante.
 
-L'homme nommé Guo eut un léger sourire. Il ne semblait nullement affecté par l'attitude de la femme et dit doucement: « Dame Qian Qin, détendez-vous. Je vous promets de vous laisser un Fruit Doré Brillant, suffisamment pour que vous puissiez en rapporter à votre secte! »
+L'homme nommé Guo eut un léger sourire. Il ne semblait nullement affecté par l'attitude de la femme et dit doucement: « Dame Qian Qin, détendez-vous. Je vous promets de vous laisser un Fruit d'Or Brillant, suffisamment pour que vous puissiez en rapporter à votre secte! »
 
 Le visage de la femme nommée Qian Qin se crispa d'une intention meurtrière alors qu'elle fixait l'homme nommé Guo et lança froidement: « Même avec la renommée de la Secte de l'Épée Da Lou, je ne peux croire que vous utilisiez des méthodes aussi méprisables. Je suis vraiment aveugle d'avoir pu croire en vous! »
 
-L'homme nommé Guo secoua la tête et répondit: « Si l'on a de la chance, n'importe qui peut obtenir ces trésors célestes. Le Fruit Doré Brillant est d'une utilité immense pour mon Oncle-Maître. Puisque vous m'avez sollicité, je me dois d'en informer ma secte. »
+L'homme nommé Guo secoua la tête et répondit: « Si l'on a de la chance, n'importe qui peut obtenir ces trésors célestes. Le Fruit d'Or Brillant est d'une utilité immense pour mon Oncle-Maître. Puisque vous m'avez sollicité, je me dois d'en informer ma secte. »
 
 La silhouette de Wang Lin progressait dans la chaîne de montagnes avec la rapidité de l'éclair, et son regard devint glacial.
 
-« La Secte de l'Épée Da Lou... intéressant. Ce sera une bonne occasion de tenter de trouver des informations sur l'emplacement du senior Zhou Yi. Je me demande simplement ce qu'est ce Fruit Doré Brillant... »
+« La Secte de l'Épée Da Lou... intéressant. Ce sera une bonne occasion de tenter de trouver des informations sur l'emplacement du senior Zhou Yi. Je me demande simplement ce qu'est ce Fruit d'Or Brillant... »

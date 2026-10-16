@@ -56,7 +56,7 @@ Wang Lin se retourna. Son regard balaya les personnes derrière Ouyang Hua. Grâ
 
 Après une courte réflexion, Wang Lin joignit les mains devant eux et déclara: « Je vous ai importunés, je n'entrerai donc pas dans la vallée! » Sur ces mots, il toucha son sac de rangement. Trois bouteilles de jade apparurent; il les lança vers l'avant et elles flottèrent jusqu'au sol.
 
-« Il y a plusieurs dizaines de pilules dans ces bouteilles de jade. Elles ont pour effet d'aider à la récupération et de stabiliser les fondations. C'est mon présent pour m'être introduit ici ainsi. » Wang Lin soupira, secoua la tête et quitta la vallée.
+« Il y a plusieurs dizaines de pilules dans ces bouteilles de jade. Elles ont pour effet d'aider à la récupération et de stabiliser les fondations. C'est ma réparation pour cette intrusion. » Wang Lin soupira, secoua la tête et quitta la vallée.
 
 Les yeux d'Ouyang Hua s'illuminèrent comme jamais auparavant. Il fixa les bouteilles de jade en avançant pour les saisir. Après en avoir ouvert une et en avoir senti l'arôme, son expression changea radicalement avant qu'il ne les rangeât.
 
@@ -68,7 +68,7 @@ Dans la vallée, les enfants sortirent jouer et les femmes apparurent toutes. En
 
 « Céleste Suprême, attendez, attendez! » s'écria Ouyang Hua en se précipitant. Son expression était d'une sincérité absolue.
 
-Wang Lin ne répondit pas et continua sa route, sur le point de quitter la vallée. Il avait déjà décidé de poursuivre son vol vers l'est pour découvrir les mystères de cette région, et pour voir à quoi ressemblait exactement l'Ancienne Cité Démoniaque située à quinze millions de kilomètres de là.
+Wang Lin ne répondit pas et continua sa route, sur le point de quitter la vallée. Il avait déjà décidé de poursuivre son vol vers l'ouest pour découvrir les mystères de cette région, et pour voir à quoi ressemblait exactement la Grande Muraille Antique située à quinze millions de kilomètres de là.
 
 Quant à interroger ces gens, Wang Lin avait perdu tout intérêt. Les yeux innocents des enfants et les regards craintifs des femmes lui avaient rappelé trop de choses.
 
@@ -82,7 +82,7 @@ Ouyang Hua répondit promptement: « Céleste Suprême, ce vieil homme vous en e
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-La demeure d'Ouyang Hua se trouvait à l'extrémité nord du village. Aucune autre maison ne l'entourait, ce qui rendait l'endroit très inhabituel. Sa maison était circulaire, semblable à un petit pain à la vapeur, et partiellement enfouie sous terre. La majeure partie de la structure était de couleur cyan.
+La demeure d'Ouyang Hua se trouvait à l'extrémité nord du village. Aucune autre maison ne se trouvait à moins d'une quarantaine de mètres, ce qui rendait l'endroit très inhabituel. Sa maison était circulaire, semblable à un petit pain à la vapeur, et posée à même le sol. La majeure partie de la structure était de couleur cyan.
 
 La demeure était d'une taille décente, meublée d'un lit, d'une table et de chaises en bois. Divers objets étaient dispersés dans la pièce. Quelques décorations ornaient les murs et, dans un coin discret, reposait une peinture.
 
@@ -118,7 +118,7 @@ Wang Lin fronça les sourcils.
 
 Ouyang Hua ajouta précipitamment: « Tout ce que je sais provient de l'ancêtre fondateur; c'est de lui que j'ai appris le nom de Huang Long. »
 
-Wang Lin médita en contemplant le parchemin, un air de nostalgie sur le visage. Son cœur sembla traverser la Mer des Esprits Démoniaques Orientale, franchir l'espace et le ciel pour revenir à sa terre natale sur la planète Suzaku.
+Wang Lin médita en contemplant le parchemin, un air de nostalgie sur le visage. Son cœur sembla traverser la Mer des Esprits Démoniaques de l'Est, franchir l'espace et le ciel pour revenir à sa terre natale sur la planète Suzaku.
 
 Son esprit remonta également plusieurs centaines d'années en arrière, vers le jeune homme qui venait de quitter la vallée, celui qui n'avait pas été accepté par les immortels et dont tout le village se moquait.
 

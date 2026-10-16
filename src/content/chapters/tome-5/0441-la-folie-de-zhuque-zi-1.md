@@ -32,13 +32,13 @@ Situ Nan éclata de rire et se lança aussitôt à sa poursuite.
 
 « Ne fuis pas! Viens jouer avec ce vieux fou! »
 
-Les quatre armées du Clan des Immortels Déchus couvraient les cieux des directions nord, est, ouest et sud du continent Suzaku.
+Les quatre armées du Clan des Immortels Délaissés couvraient les cieux des directions nord, est, ouest et sud du continent Suzaku.
 
 Dans l'armée de l'est, le regard du cinquième ancêtre se fit glacial. D'un geste de la main, il déclara d'une voix feutrée: « L'attente de trois mois touche à sa fin. Le jour de la destruction du pays de Suzaku est imminent! »
 
 Aussitôt ses paroles prononcées, il entama sa progression, entraîné par l'immense nuage noir qui le suivait. Sa cible était le centre du pays de Suzaku: le Mont Suzaku!
 
-Simultanément, les trois autres armées du Clan des Immortels Déchus se mirent en mouvement pour lancer l'assaut final contre le pays de Suzaku.
+Simultanément, les trois autres armées du Clan des Immortels Délaissés se mirent en mouvement pour lancer l'assaut final contre le pays de Suzaku.
 
 Les deux arbres de réincarnation géants du continent Suzaku se mirent à briller intensément, et deux Esprits Ancestraux rayonnants en émergèrent.
 
@@ -54,11 +54,11 @@ Chu Yuanfei était parti. L'ancêtre Ascendant de la Secte de la Terre Brisée s
 
 Sa silhouette dégageait une pointe de tristesse et de solitude, mais plus encore, un soupçon de folie!
 
-« Cultivateurs de la planète Suzaku, je suis l'actuel Suzaku. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Déchus! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhuque balaya l'intégralité du continent Suzaku.
+« Cultivateurs de la planète Suzaku, je suis l'actuel Suzaku. Vous n'avez plus besoin de vous défendre; laissez venir le Clan des Immortels Délaissés! Qian Feng, Liu Mei, venez ici. » Le message divin de Zhuque balaya l'intégralité du continent Suzaku.
 
 Tous les cultivateurs qui tenaient la défense poussèrent des soupirs en entendant cela et se dispersèrent pour sauver leur vie.
 
-Sans que les cultivateurs ne puissent les entraver, les quatre armées du Clan des Immortels Déchus chargèrent vers le centre de Suzaku telles des tempêtes déchaînées.
+Sans que les cultivateurs ne puissent les entraver, les quatre armées du Clan des Immortels Délaissés chargèrent vers le centre de Suzaku telles des tempêtes déchaînées.
 
 Vu d'en haut, on aurait dit que le continent entier était recouvert par quatre nuages noirs gigantesques convergeant rapidement vers le centre.
 
@@ -70,19 +70,19 @@ Qian Feng portait une robe noire et ses yeux dégageaient une aura maléfique. I
 
 Liu Mei était toujours aussi belle. Sa robe de soie blanche lui donnait l'allure d'une fée. En cet instant, ses sourcils étaient étroitement froncés, mais elle restait également silencieuse.
 
-La silhouette de Zhuque Zi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « Le pays de Suzaku ne peut repousser le Clan des Immortels Déchus. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
+La silhouette de Zhuque Zi trahissait une trace de solitude lorsqu'il dit d'un ton pesant: « Le pays de Suzaku ne peut repousser le Clan des Immortels Délaissés. Qian Feng, Liu Mei, vous allez tous deux traverser une épreuve de vie ou de mort aujourd'hui. Que vous surviviez ou que vous mouriez dépendra de votre chance. »
 
-À ce moment précis, les nuages noirs se refermèrent comme des tsunamis impétueux. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 3,3 kilomètres de Zhuque Zi. « Zhuque Zi, je suis le cinquième ancêtre du Clan des Immortels Déchus. »
+À ce moment précis, les nuages noirs se refermèrent comme des tsunamis impétueux. Le nuage venant de l'est ne comptait qu'un seul individu: un homme d'âge moyen vêtu d'une robe grise qui ressemblait à un érudit. D'un seul pas, il atteignit une distance de 330 mètres de Zhuque Zi. « Zhuque Zi, je suis le cinquième ancêtre du Clan des Immortels Délaissés. »
 
 Une autre personne émergea du nuage noir de l'ouest. Cet homme paraissait très jeune et son corps entier était couvert de tatouages; cependant, ces derniers n'étaient pas noirs, mais dorés!
 
 Si Wang Lin avait été présent, il l'aurait reconnu d'un seul coup d'œil.
 
-L'individu dit lentement: « Le jeune maître du Clan des Immortels Déchus salue Zhuque Zi. »
+L'individu dit lentement: « Le jeune maître du Clan des Immortels Délaissés salue Zhuque Zi. »
 
-Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 3,3 kilomètres de Zhuque Zi.
+Trois personnes sortirent du nuage noir du sud. Elles comblèrent la distance en un pas et s'arrêtèrent à 330 mètres de Zhuque Zi.
 
-Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhuque Zi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhuque Zi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan des Immortels Déchus, et ces deux-là sont les esprits ancestraux de mon clan. »
+Deux d'entre elles étaient dans un état illusoire. Elles fixaient Zhuque Zi sans dire un mot. La troisième était une femme. Elle était très belle et son regard exhalait un certain charme. Elle regarda Zhuque Zi, esquissa un sourire et dit: « Cette jeune fille est la troisième ancêtre du Clan des Immortels Délaissés, et ces deux-là sont les esprits ancestraux de mon clan. »
 
 Du nuage noir du nord, Yunque Zi apparut. Il murmura vers Zhuque Zi: « Frère aîné. »
 
@@ -90,7 +90,7 @@ Zhuque Zi se tourna brusquement vers lui et demanda: « Dois-je t'appeler Yunque
 
 Yunque Zi secoua la tête et répondit: « Peu importe. Tu peux m'appeler comme bon te semble, frère aîné. »
 
-« Vous êtes tous venus. La seule chamane à onze feuilles du Clan des Immortels Déchus, la première ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhuque Zi brillèrent alors qu'il scrutait le ciel.
+« Vous êtes tous venus. La seule chamane à onze feuilles du Clan des Immortels Délaissés, la première ancêtre, tu pourrais tout aussi bien sortir de l'ombre. » Les yeux de Zhuque Zi brillèrent alors qu'il scrutait le ciel.
 
 Un rayon de lumière aux cinq couleurs se rassembla dans les cieux et une silhouette transparente prit lentement forme. La figure descendit avec lenteur et dit: « Zhuque Zi. »
 
@@ -116,7 +116,7 @@ L'expression de Zhuque Zi devint sombre alors qu'il se mouvait. Sa vitesse étai
 
 « Sceau de Suzaku, attaque! » La voix antique de Zhuque Zi résonna depuis le vide.
 
-Lorsqu'il réapparut, il pointait déjà vers le bas depuis les cieux. Le ciel s'obscurcit tandis qu'une immense quantité de flammes enveloppait son corps. Les flammes recouvrirent tout dans un rayon de mille pieds autour de lui, et le sol commença à montrer des signes de calcination.
+Lorsqu'il réapparut, il pointait déjà vers le bas depuis les cieux. Le ciel s'obscurcit tandis qu'une immense quantité de flammes enveloppait son corps. Les flammes recouvrirent tout dans un rayon de 3 300 mètres autour de lui, et le sol commença à montrer des signes de calcination.
 
 À l'exception d'Yunque Zi et de la première ancêtre, tous reculèrent rapidement pour éviter l'impact des flammes.
 

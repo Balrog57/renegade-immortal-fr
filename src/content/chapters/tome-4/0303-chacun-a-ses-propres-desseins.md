@@ -8,7 +8,7 @@ slug: chacun-a-ses-propres-desseins
 ---
 Tous deux étaient des hommes de décision; lorsqu'ils conclurent leur accord, il n'y eut aucune hésitation. Ils s'élancèrent rapidement à travers les ruines en direction de la grotte regorgeant de nourriture pour bêtes célestes.
 
-Depuis leur position actuelle, ils pouvaient apercevoir la grotte au loin.
+Depuis leur position actuelle, ils pouvaient apercevoir la grotte à une centaine de mètres.
 
 Non loin de là reposait le cadavre du troisième frère cadet, tué par Sun Lei.
 
@@ -46,7 +46,7 @@ Soudain, des vagues de corps de nourritures célestes furent tordues et annihil�
 
 Sun Lei fut stupéfait. Il n'avait pas imaginé que la foudre serait aussi puissante. Sa crainte envers Wang Lin ne fit qu'augmenter.
 
-La boule d'éclairs contenait le pouvoir des cieux; elle parvint à progresser sur dix mètres avant de se dissiper. Pourtant, les nourritures pour bêtes continuaient de charger sans relâche.
+La boule d'éclairs contenait le pouvoir des cieux; elle parvint à progresser sur plus de trente mètres avant de se dissiper. Pourtant, les nourritures pour bêtes continuaient de charger sans relâche.
 
 Wang Lin recula et pointa le crapaud de tonnerre. L'abdomen de la bête se gonfla de nouveau, puis elle cracha une seconde boule de foudre sur l'assaillante.
 
@@ -72,7 +72,7 @@ Tout en s'enfuyant, l'expression de Wang Lin changea soudainement; il sortit son
 
 En chemin, les âmes errantes traversaient les parois pour revenir vers lui une à une. Une fois toutes rassemblées, Wang Lin constata qu'aucune n'avait disparu. Cela le réjouit profondément, car cela signifiait que la bête noire avait choisi de poursuivre Sun Lei.
 
-Peu de temps après, Wang Lin atteignit la grotte convenue pour le rendez-vous et s'assit. Il déploya son Sens Divin et localisa Sun Lei dans une caverne située à quelque 10 000 pieds de là.
+Peu de temps après, Wang Lin atteignit la grotte convenue pour le rendez-vous et s'assit. Il déploya son Sens Divin et localisa Sun Lei dans une caverne située à quelque 3,3 kilomètres de là.
 
 Sun Lei était dans un état lamentable. Ses vêtements étaient en lambeaux, révélant une armure argentée en dessous. C'était manifestement cette armure qui lui avait permis d'échapper deux fois à la bête noire. Sa main droite, couverte de sang, lui manquait un doigt.
 
@@ -82,7 +82,7 @@ Les yeux de Wang Lin brillèrent. Il s'engouffra dans la paroi et activa la tech
 
 Sun Lei le remarqua également et sortit précipitamment plusieurs pilules. Le visage crispé par la douleur, il les avala et se remit aussitôt à cultiver.
 
-Dix 3,3 kilomètres n'étaient pas une distance insurmontable pour un cultivateur de la Formation de l'Âme, mais il fallait traverser de nombreuses grottes et une puissance mystérieuse empêchait toute téléportation. Une demi-heure plus tard, Wang Lin apparut dans la grotte où se trouvait Sun Lei.
+Une distance de 3,3 kilomètres n'était pas insurmontable pour un cultivateur de la Formation de l'Âme, mais il fallait traverser de nombreuses grottes et une puissance mystérieuse empêchait toute téléportation. Une demi-heure plus tard, Wang Lin apparut dans la grotte où se trouvait Sun Lei.
 
 Le visage de Sun Lei s'assombrit immédiatement. Il agita sa main droite en fixant Wang Lin du regard.
 

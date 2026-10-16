@@ -22,7 +22,7 @@ Wang Lin esquissa un sourire fugace, mais ne dit mot.
 
 Voyant la réaction de Wang Lin, Sun Youcai ricana: « Petit morveux, peu importe que tes propos soient vrais ou faux. Puisque tu as croisé ton grand-père aujourd'hui, considère que tu es malchanceux. Hehe, je ferai de ton corps une marionnette. Je suis certain que Li Qiqing ne se méfiera pas trop de toi. » Tout en pensant cela, il sortit un jade devant Wang Lin pour s'assurer que tout se déroule comme prévu: « Frère Ma, je vais appeler un ami. C’est un proche. Dès qu'il sera là, nous traverserons la formation ensemble. De cette façon, nous économiserons une pierre spirituelle. »
 
-Ma Liang se souvenait de l'existence d'une formation de transfert. L'activation coûtait une pierre spirituelle et permettait de transporter jusqu'à trois personnes à chaque usage.
+Ma Liang se souvenait de l'existence d'une formation de transfert. L'activation coûtait quelques pierres spirituelles et permettait de transporter jusqu'à trois personnes à chaque usage.
 
 La suggestion de Sun Youcai ne posait donc aucun problème. Après avoir vu Wang Lin acquiescer, Sun Youcai plaça le jade sur son front et le lança en l'air. Après quelques éclats de lumière, le jade disparut sans laisser de trace.
 
@@ -48,7 +48,7 @@ Simultanément, l'homme en noir bondit en avant et frappa dans ses mains. Une br
 
 Le regard de Wang Lin devint glacial. Ignorant la brume et l'épée volante, il pointa son doigt vers l'homme d'âge moyen et ordonna: « Détruis! »
 
-À l'instant où le Domaine Ji apparut, le ciel s'obscurcit. À l'instant où le Sens Divin du Domaine Ji surgit, l'âme fut anéantie! Wang Lin était invincible parmi les cultivateurs de l'Établissement des Fondations. S'il atteignait la Formation du Noyau, il serait le roi de ce stade. S'il atteignait l'Âme Naissante, il deviendrait le premier cultivateur sous le stade de la Formation de l'Âme dans d'innombrables royaumes.
+À l'instant où le Royaume Ji apparut, le ciel s'obscurcit. À l'instant où le Sens Divin du Royaume Ji surgit, l'âme fut anéantie! Wang Lin était invincible parmi les cultivateurs de l'Établissement des Fondations. S'il atteignait la Formation du Noyau, il serait le roi de ce stade. S'il atteignait l'Âme Naissante, il deviendrait le premier cultivateur sous le stade de la Formation de l'Âme dans d'innombrables royaumes.
 
 Les yeux de l'homme d'âge moyen s'écarquillèrent soudainement. Il sentit son âme frappée par une force destructrice titanesque. Sans aucune puissance pour résister, son âme se brisa instantanément. Avant même qu'il n'ait pu exprimer sa terreur, il était déjà mort. Son corps devint inerte. Jusqu'à son dernier souffle, il ne comprit jamais ce qui lui était arrivé.
 
@@ -66,17 +66,17 @@ Le démon tourna les yeux vers lui et ralentit sa consommation de la brume noire
 
 « Suis-moi. »
 
-Sur ces mots, le corps de Wang Lin s'élança et son Sens Divin du Domaine Ji se propagea rapidement. Il prit la direction du nord-ouest. Le démon afficha une expression de lutte alors qu'il reculait plutôt que de charger. Soudain, il poussa un cri misérable tandis qu'un gaz vert apparaissait sur son corps, l'empêchant d'hésiter davantage.
+Sur ces mots, le corps de Wang Lin s'élança et son Sens Divin du Royaume Ji se propagea rapidement. Il prit la direction du nord-ouest. Le démon afficha une expression de lutte alors qu'il reculait plutôt que de charger. Soudain, il poussa un cri misérable tandis qu'un gaz vert apparaissait sur son corps, l'empêchant d'hésiter davantage.
 
-Wang Lin rétracta le Sens Divin qu'il avait utilisé pour punir le démon et se concentra sur la poursuite de Sun Youcai. Il était très intrigué par la vitesse de ce dernier. Il savait que sa propre vélocité était inférieure à celle de Sun Youcai, tout comme celle de cette femme capable de parcourir 10 000 kilomètres en deux respirations. Si un tel être voulait le tuer, il ne pourrait même pas fuir.
+Wang Lin rétracta le Sens Divin qu'il avait utilisé pour punir le démon et se concentra sur la poursuite de Sun Youcai. Il était très intrigué par la vitesse de ce dernier. Il savait que sa propre vélocité était inférieure à celle de Sun Youcai, tout comme celle de cette femme capable de parcourir mille kilomètres en deux respirations. Si un tel être voulait le tuer, il ne pourrait même pas fuir.
 
-Lorsque Sun Youcai l'avait rattrapé auparavant, il utilisait déjà sa vitesse maximale, ce qui prouvait ses capacités. C'est pourquoi Wang Lin ne l'avait pas tué; il avait décidé de le capturer vivant pour lui soutirer des techniques.
+Lorsque Sun Youcai l'avait rattrapé auparavant, il utilisait déjà sa vitesse maximale, ce qui prouvait ses capacités. C'est pourquoi Wang Lin ne l'avait pas tué; il avait décidé de le capturer vivant pour l'interroger sur ses motifs.
 
-Sun Youcai était terrifié. Depuis qu'il avait commencé la culture il y a trente ans, alors qu'il n'était qu'un cultivateur de la Condensation de Qi au 15e niveau, il avait tué de nombreuses personnes. Mais il s'était toujours montré prudent, ne s'en prenant qu'à des individus plus faibles que lui. Il n'avait jamais osé défier plus fort que lui.
+Sun Youcai était terrifié. Depuis qu'il avait commencé la culture il y a près de trente ans, alors qu'il n'était qu'un cultivateur de la Condensation de Qi au 15e niveau, il avait tué de nombreuses personnes. Mais il s'était toujours montré prudent, ne s'en prenant qu'à des individus plus faibles que lui. Il n'avait jamais osé défier plus fort que lui.
 
-Au fil des ans, il avait utilisé tous les trésors trouvés et échangés à l'Atelier de la Faille contre des pilules pour accroître son niveau. Sa culture progressait, mais à mesure qu'il montait en puissance, les pilules ordinaires perdaient leur efficacité. Les pilules de haute qualité étaient soit introuvables, soit trop onéreuses; il s'était donc tourné vers la Secte Luo He.
+Au fil des ans, il avait utilisé tous les trésors trouvés et échangés à l'Atelier du Ravin contre des pilules pour accroître son niveau. Sa culture progressait, mais à mesure qu'il montait en puissance, les pilules ordinaires perdaient leur efficacité. Les pilules de haute qualité étaient soit introuvables, soit trop onéreuses; il s'était donc tourné vers la Secte Lou He.
 
-La Secte Luo He était célèbre pour ses formations et son alchimie. Si une pilule venait de cette secte, sa qualité était infaillible. La cible de Sun Youcai était Li Muwan. Il voulait obtenir des pilules ou des recettes auprès d'elle, mais le niveau de son frère aîné, Li Qiqing, était supérieur au sien, atteignant le stade pseudo Formation du Noyau. Un niveau bien au-dessus du sien, qui venait d'entrer dans le stade avancé de l'Établissement des Fondations.
+La Secte Lou He était célèbre pour ses formations et son alchimie. Si une pilule venait de cette secte, sa qualité était infaillible. La cible de Sun Youcai était Li Muwan. Il voulait obtenir des pilules ou des recettes auprès d'elle, mais le niveau de son frère aîné, Li Qiqing, était supérieur au sien, atteignant le stade pseudo Formation du Noyau. Un niveau bien au-dessus du sien, qui venait d'entrer dans le stade avancé de l'Établissement des Fondations.
 
 Le Sun Youcai actuel aurait voulu que sa vitesse fût encore plus grande. Son esprit revoyait sans cesse le moment terrifiant qu'il venait de vivre: son quatrième frère martial, un cultivateur pseudo Formation du Noyau, avait été tué si aisément.
 

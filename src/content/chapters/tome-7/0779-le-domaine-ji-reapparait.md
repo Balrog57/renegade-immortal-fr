@@ -46,7 +46,7 @@ Il recula sans réfléchir et, dans sa retraite, se fondit dans les environs. L'
 
 Simultanément, la formation à l'entrée s'ouvrit. Wang Lin saisit Li Yuan et s'élança hors du tunnel. Ils n'eurent même pas le temps de refermer l'entrée avant de disparaître dans le vide.
 
-Wang Lin et Li Yuan réapparurent plus de 30 000 kilomètres plus loin sur le même fragment. Le corps de Wang Lin trembla et son visage pâlit. Il ouvrit la bouche pour cracher un grain de sable. Ce grain grossit instantanément pour devenir un sceau géant surplombant les deux hommes, dégageant des ondes de pression écrasantes.
+Wang Lin et Li Yuan réapparurent à plus de 5 000 kilomètres de là sur le même fragment. Le corps de Wang Lin trembla et son visage pâlit. Il ouvrit la bouche pour cracher un grain de sable. Ce grain grossit instantanément pour devenir un sceau géant surplombant les deux hommes, dégageant des ondes de pression écrasantes.
 
 Wang Lin s'assit immédiatement en position du lotus et leva sa main droite. L'os de bête apparut, tournant autour de lui en dégageant une lueur démoniaque.
 
@@ -68,7 +68,7 @@ En conséquence, cet éclair rouge ne détruisit pas immédiatement son âme ori
 
 Fort heureusement, Wang Lin possédait une vaste quantité d'énergie originelle non encore absorbée dans son corps. Avec une persévérance sans faille, il enveloppa sans cesse l'éclair rouge d'énergie pour compenser la vitesse à laquelle celle-ci se désintégrait.
 
-Pendant que Wang Lin affrontait le Domaine Ji, à des dizaines de milliers de kilomètres de là, au niveau du trou sombre, un cultivateur s'approcha avec hésitation.
+Pendant que Wang Lin affrontait le Domaine Ji, à 5 000 kilomètres de là, au niveau du trou sombre, un cultivateur s'approcha avec hésitation.
 
 C'était l'un de ceux qui surveillaient Wang Lin. Il ne s'était pas éloigné mais errait dans les environs, espérant que, après le départ de Xu Mu, il pourrait trouver un trésor que ce dernier n'aurait pas estimé à sa juste valeur.
 
@@ -86,11 +86,11 @@ Ni sa chair ni son sang ne furent dispersés; tout fut absorbé par le vortex. T
 
 Le vortex montra des signes d'effondrement après avoir absorbé la chair et le sang et subi l'explosion. Des fissures apparurent sur le sceau du vortex et, après un long moment, elles se multiplièrent jusqu'à ce qu'il s'effondre totalement.
 
-Une lumière rouge jaillit du vortex et recouvrit instantanément tout le tunnel. Ce dernier se contracta pour devenir une rune des millions de fois plus petite, avant d'être aspiré par le vortex.
+Une lumière rouge jaillit du vortex et recouvrit instantanément tout le tunnel. Ce dernier se contracta pour devenir une rune innombrablement plus petite, avant d'être aspiré par le vortex.
 
 Puis, le vortex disparut lentement.
 
-« Sur les neuf grands sceaux, cinq ont été brisés au fil des ans. Avec ma force actuelle, je peux enfin activer les quatre restants pour attirer les gens et les forcer à les briser... »
+« Sur les neuf grands sceaux, cinq ont été brisés au fil des ans. Avec ma force actuelle, je peux enfin activer les quatre restants pour attirer des gens qui viendront les briser... »
 
 Une pointe de joie perçait dans cette voix étrange alors qu'elle se dissipait lentement.
 
@@ -106,7 +106,7 @@ Mais ses yeux brillèrent d'une lueur particulière et il retira sa main.
 
 Mais comparée à l'énergie originelle, la valeur de ce Domaine Ji était inestimable. Le cœur de Wang Lin manqua un battement alors qu'il prenait sa décision après une courte réflexion.
 
-Il se leva et rangea son trésor. À cet instant précis, il sentit une secousse provenant du sol. Ce tremblement émanait du tunnel situé à des dizaines de milliers de kilomètres de là.
+Il se leva et rangea son trésor. À cet instant précis, il sentit une secousse provenant du sol. Ce tremblement émanait du tunnel situé à 5 000 kilomètres de là.
 
 Li Yuan vit que Wang Lin s'était rétabli, mais avant qu'il ne puisse poser la moindre question, il ressentit lui aussi la secousse. Sans échanger un mot, les deux hommes s'envolèrent immédiatement.
 

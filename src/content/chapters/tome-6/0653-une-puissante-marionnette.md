@@ -8,9 +8,9 @@ slug: une-puissante-marionnette
 ---
 Le raffinage se poursuivit. Plusieurs mois plus tard, à l'intérieur de la fissure, Wang Lin prit une profonde inspiration et aspira toute l'énergie originelle dans son corps.
 
-C'était comme s'il venait de dévorer un nuage. Une fois l'énergie originelle absorbée, un corps gracile apparut devant lui. Cette silhouette dégageait une aura glaciale qui commença à se propager.
+C'était comme s'il venait de dévorer un nuage. Une fois l'énergie originelle absorbée, un corps desséché apparut devant lui. Cette silhouette dégageait une aura glaciale qui commença à se propager.
 
-Cette figure était d'une pâleur extrême, comme si le sang n'irriguait plus ses veines. C'était en effet le cas, car tout son sang avait été fusionné avec ses os.
+Cette figure était d'une pâleur extrême, comme si le sang n'irriguait plus ses veines. C'était en effet le cas, car tout son sang avait été fusionné avec ses tendons et ses os.
 
 L'expression de Wang Lin était sombre et il laissa échapper un soupir.
 
@@ -104,7 +104,7 @@ Bien que le fantôme céleste fût indiscipliné, il avait été scellé durant 
 
 Wang Lin pressa une goutte de sang et la projeta sur l'objet. Le sang atterrit entre les sourcils de la marionnette et s'y fondit. Soudain, les yeux de celle-ci s'ouvrirent.
 
-C'était une paire d'yeux vides. Pourtant, on y percevait une trace d'intelligence.
+C'était une paire d'yeux vides. Pourtant, on y percevait une lueur acérée.
 
 « Le stade du Yin et du Yang! » Le Sens Divin de Wang Lin balaya immédiatement la marionnette. Elle dégageait une aura similaire à celle de Situ Nan. Bien qu'elle ne fût pas aussi puissante que lui, elle n'en demeurait pas moins redoutable.
 
@@ -116,7 +116,7 @@ Bien que l'âme originelle du gardien céleste, fusionnée avec son corps, ne pu
 
 Les yeux de la marionnette reflétèrent soudainement la voie du massacre. Après quelques éclats, cette lueur s'estompa progressivement, mais ses yeux devinrent encore plus féroces.
 
-Une fois cela terminé, Wang Lin frappa son sac de rangement et le jade s'envolèrent. Il pressa le jade entre les sourcils de la marionnette. Une explosion de lumière survint et d'innombrables symboles semblèrent scintiller dans les yeux du gardien céleste.
+Une fois cela terminé, Wang Lin frappa son sac de rangement et le jade s'envola. Il pressa le jade entre les sourcils de la marionnette. Une explosion de lumière survint et d'innombrables symboles semblèrent scintiller dans les yeux du gardien céleste.
 
 Après un long moment, le jade retomba et revint vers Wang Lin.
 
@@ -126,6 +126,6 @@ Le corps du gardien céleste vacilla, puis il disparut soudainement pour se posi
 
 « J'ai 60 % de chances de quitter cet endroit grâce aux capacités du gardien céleste. Bien que ce lieu soit périlleux, c'est précisément parce qu'il est dangereux qu'il est aussi sûr! »
 
-Wang Lin commença à réfléchir. Peu après, il frappa son sac de rangement et une grande épée s'envolèrent. Cette épée était aussi imposante qu'un panneau de porte!
+Wang Lin commença à réfléchir. Peu après, il frappa son sac de rangement et une grande épée s'envola. Cette épée était aussi imposante qu'un panneau de porte!
 
 « Richesse... ma première épée! Quels secrets caches-tu... » Wang Lin caressa lentement la lame. Il calma son cœur et laissa son esprit y pénétrer lentement.

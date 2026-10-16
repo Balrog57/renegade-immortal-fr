@@ -18,9 +18,9 @@ Cet homme était le descendant du précédent Suzaku.
 
 Qian Feng fut tel une lune éclatante lors de la bataille contre le Clan des Immortels Déchus. Finalement, il conclut un accord avec le jeune maître du clan ennemi: le pays de Suzaku céda tous les pays de culture de rang 3 afin que le Clan des Immortels Déchus suspende son offensive.
 
-Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan des Immortels Déchus a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sortez le sous-étendard et chargeons! »
+Les yeux de Du Tian s'illuminèrent alors qu'il fixait l'immense nuage noir approchant au loin, et il déclara d'une voix grave: « Le Clan des Immortels Déchus a lancé sa seconde attaque. Ceng Niu, je sens qu'un chaman aussi puissant qu'un cultivateur de la Transformation de l'Âme au stade intermédiaire se cache dans ce nuage noir. Quant à savoir s'il y a un Ascendant, je l'ignore. Sortez l'étendard et chargeons! »
 
-L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître le sous-étendard des mille milliards d'âmes. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
+L'expression de Wang Lin resta sereine tandis qu'il observait le nuage sombre. Il tendit la main, faisant apparaître l'étendard des mille milliards d'âmes. Dès qu'il s'en saisit, une brume noire en jaillit pour l'envelopper.
 
 Du Tian sortit également l'étendard des mille milliards d'âmes. D'un revers de manche, il s'enveloppa lui aussi de brume noire et chargea vers le nuage noir aux côtés de Wang Lin. Dans leur course, ils étaient entourés par des déflagrations soniques et les lamentations déchirantes de fragments d'âmes.
 
@@ -28,7 +28,7 @@ Des rugissements soudains jaillirent du nuage noir alors qu'une multitude de mem
 
 Alors que les membres du clan s'apprêtaient à attaquer, un cri retentit de l'intérieur du nuage; les combattants s'arrêtèrent net pour ouvrir un passage.
 
-Un homme d'âge moyen, vêtu d'une robe impériale et dont le corps ne portait aucun tatouage, sortit de la brume noire. Un vieillard voûté le suivait de près, l'expression sombre, interrompant sa marche par des quintes de toux occasionnelles.
+Un homme d'âge moyen, vêtu d'une simple tunique de lin grossier et dont le corps ne portait aucun tatouage, sortit de la brume noire. Un vieillard voûté le suivait de près, l'expression sombre, interrompant sa marche par des quintes de toux occasionnelles.
 
 Wang Lin reconnut immédiatement ce vieillard: c'était l'homme qui l'avait poursuivi jusque dans la faille spatiale avant d'y rester piégé.
 
@@ -52,7 +52,7 @@ Du Tian hurla: « Chargez! »
 
 Les fragments d'âmes devinrent soudainement frénétiques, s'élançant dans toutes les directions. Les treize fragments de la Transformation de l'Âme étaient particulièrement redoutables: tous les membres du Clan des Immortels Déchus dont la puissance était inférieure au stade de la Transformation de l'Âme périrent d'un seul contact avec eux.
 
-L'homme d'âge moyen fronça les sourcils. Il venait d'atteindre le stade des neuf feuilles, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante de l'Étendard des Mille Milliards d'Âmes; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'arme la plus crainte par le Clan des Immortels Déchus.
+L'homme d'âge moyen fronça les sourcils. Il n'avait atteint le stade des neuf feuilles qu'après près de mille ans, ce qui l'équivalait à un cultivateur Ascendant du stade précoce. Cependant, il n'avait jamais vu la puissance terrifiante de l'Étendard des Mille Milliards d'Âmes; il n'en avait lu que des récits dans les chroniques de guerres vieilles de dizaines de milliers d'années, sachant qu'il s'agissait de l'arme la plus crainte par le Clan des Immortels Déchus.
 
 En la voyant de ses propres yeux, son visage s'assombrit. Il agita la main pour faire reculer le nuage noir, ordonnant aux membres du clan à l'intérieur de créer une brèche au centre.
 
@@ -74,7 +74,7 @@ Un vacarme infini de lamentations provenant des fragments d'âmes commença à r
 
 Les fragments sortirent un à un de l'étendard, saturant l'espace. Les treize âmes primaires dorées et pourpres fixèrent l'homme d'âge moyen qui venait de surgir.
 
-« Regarde bien. Voici la véritable manière d'utiliser l'étendard des âmes. Formation des Treize Âmes! » cria Du Tian, alors que le brouillard noir autour de lui se matérialisait à nouveau en un étendard de trente pieds qu'il agita vigoureusement.
+« Regarde bien. Voici la véritable manière d'utiliser l'étendard des âmes. Formation des Treize Âmes! » cria Du Tian, alors que le brouillard noir autour de lui se matérialisait à nouveau en un étendard de dix mètres qu'il agita vigoureusement.
 
 Les cinq cents millions de fragments commencèrent à se mouvoir selon une logique mystérieuse autour des treize âmes primaires, formant une vaste formation qui encercla Wang Lin, Du Tian et l'homme d'âge moyen.
 
@@ -136,7 +136,7 @@ Il agita l'étendard et dix autres âmes primaires de la Transformation de l'Âm
 
 Cette fois, l'homme d'âge moyen esquissa un sourire amer. Il comprenait enfin pourquoi son clan redoutait tant cet artefact.
 
-« Puisque la Secte de l'Affinement des Âmes refuse de participer à cette guerre, alors je parlerai au nom du Clan des Immortels Déchus et je promets que nous ne poserons pas le pied sur vos terres! »
+« Puisque la Secte de l'Affinement des Âmes refuse de participer à cette guerre, alors je parlerai au nom du Clan des Immortels Déchus et je promets que nous ne mettrons pas un pied dans votre Secte! »
 
 Sur ces mots, il salua Du Tian d'un geste respectueux avant de se retirer prudemment.
 

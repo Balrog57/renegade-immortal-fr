@@ -114,7 +114,7 @@ Sans bouger, il leva simplement sa main droite. Son index pointa négligemment v
 
 Toute l'énergie d'origine située dans un rayon de dizaines de milliers de kilomètres sembla répondre à un appel et convergea frénétiquement.
 
-En un instant, un doigt gigantesque apparut au-dessus de la planète Tian Yun. Ce doigt mesurait 10 000 pieds de long pour 3,3 kilomètres de large. Il était transparent, comme une existence éthérée.
+En un instant, un doigt gigantesque apparut au-dessus de la planète Tian Yun. Ce doigt mesurait 3,3 kilomètres de long pour 330 mètres de large. Il était transparent, comme une existence éthérée.
 
 L'énergie d'origine infinie s'accumulait sur le doigt à une vitesse dépassant l'entendement. C'était comme si ce doigt était un trou noir sans fin aspirant toute la substance du monde.
 

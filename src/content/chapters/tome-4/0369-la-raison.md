@@ -63,7 +63,7 @@ Sur ces mots, il pointa Wang Lin du doigt, prêt à lui ôter la vie.
 
 Pourtant, au même instant, un coup de tonnerre retentit dans le ciel et une immense faille spatiale se déchira. Un cercueil noir et pourpre descendit des cieux.
 
-Un reniflement froid émana du cercueil: « La Formation de Scellement Démoniaque de la Vie et de la Mort... Si je ne connaissais pas déjà cette formation, il m'aurait été très difficile d'entrer. »
+Un reniflement froid émana du cercueil: « La Formation Qiankun de Scellement Démoniaque... Si je ne connaissais pas déjà cette formation, il m'aurait été très difficile d'entrer. »
 
 Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Je dois dire que vous deux, vieux débris, n'avez-vous pas honte de devoir vous liguer pour tuer un simple junior en stade de Formation de l'Âme? »
 
@@ -105,7 +105,7 @@ L'année où le membre du clan avait rapporté la nouvelle, l'ancêtre l'avait i
 
 Cependant, malgré son immense pouvoir, Wang Lin semblait s'être évaporé, et Suzaku était bien trop vaste. Selon les informations recueillies, Wang Lin avait disparu dans une faille spatiale au sein du champ de bataille étranger.
 
-Il s'y était donc rendu personnellement pour chercher pendant cent ans dans cette faille, sans aucun succès.
+Il s'y était donc rendu personnellement pour chercher pendant plusieurs siècles dans cette faille, sans aucun succès.
 
 Il avait fini par laisser l'affaire de côté, empreint de regret, pensant que Wang Lin était mort sans laisser de trace et que la perle défiant le ciel était à nouveau perdue.
 
@@ -117,13 +117,13 @@ Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il
 
 Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
 
-Un jour, Li Yuan de Xue Yue était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait utilisé l'excuse de la récupération de la boussole stellaire pour s'approcher du prisonnier.
+Un jour, Li Yuanfeng de Xue Yue était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait utilisé l'excuse de la récupération de la boussole stellaire pour s'approcher du prisonnier.
 
 Ainsi, même si Suzaku enquêtait, c'est Xue Yue qui subirait les répercussions, lui permettant de s'emparer secrètement de la perle défiant le ciel. Et même si Wang Lin mourait, il pourrait utiliser une technique secrète pour localiser l'objet.
 
 Les yeux de Sun Tai s'assombrirent. Il renifla et vola vers Wang Lin.
 
-L'homme d'âge moyen s'élança rapidement. Il sortit une montre en bronze, prêt à barrer la route à Sun Tai.
+L'homme d'âge moyen s'élança rapidement. Il sortit une cloche en bronze, prêt à barrer la route à Sun Tai.
 
 Mais Sun Tai hurla: « Dégage! » Une force jaillit de son corps, faisant hésiter l'homme d'âge moyen.
 
@@ -137,7 +137,7 @@ Sans un mot, Sun Tai fit volte-face et s'engouffra dans la faille.
 
 L'expression de l'homme d'âge moyen était troublée. Il hésita un instant, puis resta immobile.
 
-Comment l'ancêtre du Clan des Démons Géants pouvait-il laisser ce "mouton gras" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre cent pieds de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
+Comment l'ancêtre du Clan des Démons Géants pouvait-il laisser ce "mouton gras" lui être volé ainsi? Il poussa un rugissement alors que son corps craquait et qu'il grandissait soudainement pour atteindre plus de 33 mètres de haut. Une hache gigantesque apparut dans sa main. Après avoir poursuivi Sun Tai dans la faille, il abattit son arme, provoquant un grondement tonitruant dans le vide.
 
 Une immense vague d'énergie de hache jaillit, assombrissant le visage de Sun Tai. Il savait que le Clan des Démons Géants était une puissance redoutable. Sa main droite traça un sceau qu'il projeta contre l'onde de choc.
 

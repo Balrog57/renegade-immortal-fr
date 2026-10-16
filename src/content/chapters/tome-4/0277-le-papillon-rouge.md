@@ -12,7 +12,7 @@ Les Cinq Esprits Élémentaires n'étaient pas au stade avancé de la Formation 
 
 Plus le Papillon Rouge était puissante, plus les Cinq Esprits Élémentaires étaient forts.
 
-Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maître du Papillon Rouge avait sacrifié sa propre culture pour obtenir un indice: le Papillon Rouge possédait le Corps des Cinq Esprits Élémentaires. Au cours de sa vie, elle ne ferait face qu'à une seule épreuve. Une fois celle-ci franchie, elle obtiendrait le véritable Corps des Cinq Esprits Élémentaires et ne rencontrerait plus jamais aucun goulot d'étranglement.
+Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maître du Papillon Rouge avait sacrifié sa propre culture pour obtenir un indice: le Papillon Rouge possédait un faux Corps des Cinq Esprits Élémentaires. Au cours de sa vie, elle ne ferait face qu'à une seule épreuve. Une fois celle-ci franchie, elle obtiendrait le véritable Corps des Cinq Esprits Élémentaires et ne rencontrerait plus jamais aucun goulot d'étranglement.
 
 Cependant, bien que son maître ait payé le prix de sa culture, elle n'avait tout de même pas pu prédire la nature de cette épreuve.
 
@@ -70,11 +70,11 @@ En entrant, il vit Zhou Wutai. Ce dernier n'était pas mort, mais simplement inc
 
 Presque à l'instant même où il quittait la montagne enneigée, l'aura bleu foncé arriva. La montagne entière se changea en un bloc de glace.
 
-Tout en volant dans le ciel, Wang Lin utilisa son puissant sens divin pour effacer la trace de celui de Zhou Wutai du sac de rangement. Il esquissa un sourire en découvrant la Marmite de la Pluie à l'intérieur.
+Tout en volant dans le ciel, Wang Lin utilisa son puissant sens divin pour effacer la trace de celui de Zhou Wutai du sac de rangement. Il esquissa un sourire en découvrant le Chaudron de Pluie à l'intérieur.
 
 Cependant, au moment où il rangeait le sac, son expression changea brusquement. Une tour de glace de plus de quatre-vingts étages apparut devant lui. Une vieille femme en sortit. Elle lança un regard glacial à Wang Lin et leva sa main droite.
 
-Wang Lin recula précipitamment et pointa son front. Les membres du clan Teng, transformés en démons par lui, s'envolèrent.
+Wang Lin recula précipitamment et pointa son front. Plusieurs membres du clan Teng, transformés en démons par lui, s'envolèrent.
 
 Dès leur apparition, les démons se précipitèrent sur la vieille femme. Celle-ci afficha un air de mépris et fit un geste du doigt. Les démons furent aussitôt encerclés par une glace bleue.
 
@@ -82,7 +82,7 @@ Wang Lin serra les dents et pensa: « Explosez! Explosez! Explosez! »
 
 Soudain, les démons explosèrent à l'intérieur de la glace bleue, se transformant en un nuage de fumée noire.
 
-Le corps de Wang Lin ne ralentit jamais. Il utilisa la fumée pour disparaître de la vue. Lorsqu'il réapparut, il se trouvait déjà à plus de 500 kilomètres. Il reprit sa course effrénée tout en pointant à nouveau son front du doigt. Cette fois, il ordonna à tous les démons, excepté Xu Ligou, d'exploser.
+Le corps de Wang Lin ne ralentit jamais. Il utilisa la fumée pour disparaître de la vue. Lorsqu'il réapparut, il se trouvait déjà à plus de 1 000 kilomètres. Il reprit sa course effrénée tout en pointant à nouveau son front du doigt. Cette fois, il ordonna à tous les démons, excepté Xu Ligou, d'exploser.
 
 Ce n'est qu'après quelques secondes de fuite que Wang Lin sentit que certains démons avaient effectivement explosé. Bien que la fumée fût désormais plus épaisse, cette sensation d'une aiguille dans son dos persistait.
 
@@ -100,7 +100,7 @@ Simultanément, au cœur de l'explosion, un éclair rouge chargea vers la vieill
 
 Cet éclair rouge était le Domaine Ji de Wang Lin. Bien que son effet sur les cultivateurs de la Formation de l'Âme fût limité, il suffisait à ébranler leur conscience.
 
-La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent autour d'elle, formant un bouclier de glace de 33 mètres d'épaisseur.
+La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent autour d'elle, formant un bouclier de glace de 33 mètres de diamètre.
 
 Cependant, la vieille femme n'aurait jamais imaginé que l'éclair rouge traverserait ce bouclier comme s'il n'existait pas. Son expression changea alors qu'elle tentait de bloquer l'attaque, mais l'éclair rouge pénétra soudainement son corps par le bras.
 

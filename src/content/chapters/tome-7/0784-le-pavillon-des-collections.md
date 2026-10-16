@@ -10,9 +10,9 @@ Des aiguilles d'argent apparurent devant le cultivateur nommé Chen. Chaque aigu
 
 Le cultivateur nommé Song brandit un motif yin et yang dans sa main; lorsqu'il le projeta, des éclairs parcoururent l'artefact. Il était chargé d'une puissante énergie originelle qui fonça sur Wang Lin.
 
-Un autre suivit le motif, sa main droite formant un sceau étrange pour faire apparaître un long fil de soie sombre. Dès son apparition, ce fil dégagea une pression intense et une épaisse brume verte.
+Un autre suivit le motif, sa main droite formant un sceau étrange pour faire apparaître une longue mèche de cheveux sombres. Dès son apparition, ce fil dégagea une pression intense et une épaisse brume verte.
 
-Enfin, la cultivatrice dont le corps avait été perdu ouvrit la bouche pour cracher un petit éventail de cristal. Elle s'en saisit, le lança, puis expulsa de l'énergie originelle. Celle-ci se mua instantanément en six dragons qui encerclèrent Wang Lin pour lui barrer toute fuite.
+Enfin, le cultivateur dont le corps avait été perdu ouvrit la bouche pour cracher un petit éventail de cristal. Elle s'en saisit, le lança, puis expulsa de l'énergie originelle. Celle-ci se mua instantanément en six dragons qui encerclèrent Wang Lin pour lui barrer toute fuite.
 
 Les yeux de ces trois individus étaient injectés de sang. Ils n'avaient qu'une idée en tête: tuer Wang Lin pour s'emparer du sort céleste du neuvième étage. Leurs attaques étaient fulgurantes, et leurs sorts ainsi que leurs trésors magiques convergeaient rapidement vers Wang Lin, ne faisant plus qu'un avec lui en un instant.
 
@@ -32,15 +32,15 @@ Sitôt que les aiguilles d'argent du cultivateur Chen touchèrent le vent noir, 
 
 Il se retourna précipitamment pour fuir et tenta une téléportation. Cependant, même cela fut vain. Sous la force du vent, son corps trembla et il réapparut brutalement au milieu de sa transition. Ses yeux s'éteignirent et son corps s'effondra.
 
-Son origine était telle un feu que le vent noir venait d'étouffer...
+Son âme originelle était semblable à une flamme que le vent noir venait d'éteindre...
 
 Tout cela se produisit en un éclair. Outre Chen, le cultivateur Song subit un sort similaire. Le motif yin et yang s'effondra instantanément avec son corps. Terrifié, il abandonna précipitamment son enveloppe physique pour tenter de s'échapper.
 
-Quant à la cultivatrice nommée Lu, l'éventail qu'elle tenait se désintégra dès qu'il toucha le vent noir. Elle était déjà sous forme d'âme originelle et, tout aussi terrifiée, elle battit en retraite avec précipitation.
+Quant au cultivateur nommé Lu, l'éventail qu'il tenait se désintégra dès qu'il toucha le vent noir. Il était déjà sous forme d'âme originelle et, tout aussi terrifié, il battit en retraite avec précipitation.
 
 À cet instant, le vent noir disparut soudainement, comme s'il n'avait jamais existé. Les yeux de Wang Lin quittèrent leur état de transe pour retrouver toute leur clarté.
 
-« Ainsi donc, c'est cela, le sort céleste "Appeler le Vent"! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le drapeau des mille millions d'âmes surgit de sa sacoche et la brume noire se propagea, traquant la cultivatrice Lu.
+« Ainsi donc, c'est cela, le sort céleste "Appeler le Vent"! » Il prit une profonde inspiration, le visage pâle alors qu'il faisait un pas en avant. Le drapeau des mille millions d'âmes surgit de sa sacoche et la brume noire se propagea, traquant le cultivateur Lu.
 
 De son côté, le regard de Wang Lin devint glacial; il cracha un grain de sable qui se mua en un sceau pour poursuivre le cultivateur Song. L'artefact le rattrapa instantanément et s'abattit sur lui sans merci.
 
@@ -48,11 +48,11 @@ Le cultivateur Song poussa un cri et son âme originelle libéra une immense qua
 
 « Cher camarade Xu, ayez pitié! Je sais que j'ai eu tort, j'ai eu tort! » Sans accorder la moindre attention aux supplications de Song, Wang Lin garda un regard froid et pinça ses doigts. L'âme originelle du cultivateur Song s'effondra immédiatement, se transformant en une énergie originelle que Wang Lin dévora.
 
-La puissante énergie circula dans le corps de Wang Lin, lui rendant peu à peu ses couleurs. Il prit une profonde inspiration et rattrapa aussitôt la cultivatrice Lu, qui était piégée par le drapeau des âmes.
+La puissante énergie circula dans le corps de Wang Lin, lui rendant peu à peu ses couleurs. Il prit une profonde inspiration et rattrapa aussitôt le cultivateur Lu, qui était piégée par le drapeau des âmes.
 
-Sa main s'étira et le Fouet du Karma fouetta à plusieurs reprises l'intérieur de la brume noire. Finalement, d'un coup sec du drapeau, il captura l'âme originelle. Le regard de Wang Lin resta impitoyable tandis qu'il extirpait l'âme originelle de la cultivatrice Lu du drapeau.
+Sa main s'étira et le Fouet du Karma fouetta à plusieurs reprises l'intérieur de la brume noire. Finalement, d'un coup sec du drapeau, il captura l'âme originelle. Le regard de Wang Lin resta impitoyable tandis qu'il extirpait l'âme originelle du cultivateur Lu du drapeau.
 
-« Si vous me tuez, la famille Lu ne vous lâchera jamais! » hurla la cultivatrice, avant de se muer en silence lorsque Wang Lin pinça son âme originelle pour la dévorer.
+« Si vous me tuez, la famille Lu ne vous lâchera jamais! » hurla le cultivateur, avant de se muer en silence lorsque Wang Lin pinça son âme originelle pour la dévorer.
 
 Le visage de Wang Lin retrouva un peu de rose, tout en restant pâle. Sans hésiter, il plongea la main dans le drapeau des âmes pour en extraire l'âme originelle de la première personne qu'il avait tuée ici. Après l'avoir broyée en énergie pure, il la dévora.
 
@@ -60,7 +60,7 @@ Une fois les trois âmes originelles consommées, Wang Lin s'assit immédiatemen
 
 Après un long moment, ses traits retrouvèrent progressivement leur normalité, bien que des traces de pâleur subsistent. Wang Lin ouvrit les yeux et expulsa une bouffée d'air vicié. L'air qu'il rejetait était noir, ce qui était extrêmement troublant.
 
-« Quel sort céleste redoutable! Je n'en ai saisi qu'une infime partie, et pourtant, lors de son usage, je n'ai pu le contrôler. La consommation d'énergie originelle fut si intense qu'elle faillit aspirer toute l'énergie environnante du Royaume Ji. Si je ne m'étais pas rétabli assez vite, les conséquences auraient été inimaginables! »
+« Quel sort céleste redoutable! Je n'en ai saisi qu'une infime partie, et pourtant, lors de son usage, je n'ai pu le contrôler. La consommation d'énergie originelle fut si intense qu'elle faillit vider toute l'énergie originelle qui enveloppait le Royaume Ji dans mon corps. Si je ne m'étais pas rétabli assez vite, les conséquences auraient été inimaginables! »
 
 « Cependant, peu importe comment on le regarde, cela ressemble moins à un sort céleste qu'à un sort démoniaque! De plus, ce sort exige trop d'énergie... Pour l'utiliser, je devrai préparer les âmes originelles de plusieurs cultivateurs yin et yang. »
 

@@ -34,7 +34,7 @@ Cependant, cette fierté se mua rapidement en stupeur, laquelle se transforma au
 
 Il vit Wang Lin ouvrir brusquement les yeux et tracer un symbole d'un seul trait d'un geste fluide de la main.
 
-«... C'est... c'est impossible... Oui, cet homme est juste un peu plus intelligent que moi; il a donc pu l'apprendre après m'avoir vu faire. Oui, c'est forcément ça! » Alors que le vieil homme trapu s'en persuadait, la scène suivante le fit hurler de terreur.
+«... C'est... c'est impossible... Oui, cet homme est juste un peu moins doué que moi; il a donc pu l'apprendre après m'avoir vu faire. Oui, c'est forcément ça! » Alors que le vieil homme trapu s'en persuadait, la scène suivante le fit hurler de terreur.
 
 Les yeux de Wang Lin semblaient eux aussi empreints d'une lueur dorée à cet instant. Il agita de nouveau la main, ajoutant un second trait pour former un symbole à deux traits.
 

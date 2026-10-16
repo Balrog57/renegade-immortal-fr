@@ -72,7 +72,7 @@ Après un long moment, Wang Lin soupira intérieurement. Son sens divin se mouva
 
 Wang Lin savait que si le nombre de lignes noires dépassait un certain seuil, même lui ne pourrait y résister.
 
-Il ferma les yeux. Après une longue réflexion, il les rouvrit brusquement. Il sortit trois sacs de rangement et les fouilla. Outre le jeton de Mai Liang, il en extraisit plusieurs pierres spirituelles de qualité moyenne.
+Il ferma les yeux. Après une longue réflexion, il les rouvrit brusquement. Il sortit trois sacs de rangement et les fouilla. Outre le jade de transfert de Mai Liang, il en extrait plusieurs pierres spirituelles de qualité moyenne.
 
 Xu Hao et Ge Yang avaient été particulièrement malchanceux. Juste après avoir tué Mai Liang, ils tombèrent sur une multitude d'âmes errantes. Bien qu'ils aient réussi à s'échapper, les âmes semblaient les traquer sans relâche. Même lorsqu'elles chassaient d'autres proies, elles abandonnaient tout pour se lancer à leur poursuite. Une âme errante avait même recraché la moitié de l'âme qu'elle dévorait pour bondir sur eux.
 
@@ -86,7 +86,7 @@ Une telle protection mobile exigeait une quantité colossale de pierres spiritue
 
 Il calcula le temps restant avant l'ouverture de la matrice de transfert, puis broya une pierre spirituelle dans sa main. Il trempa calmement son doigt dans la poudre et traça un symbole dans les airs, d'une concentration absolue. Une fois le symbole achevé, il y envoya rapidement un fragment de son sens divin.
 
-Le symbole émit une lueur ténue avant de flotter dans l'air. Il broya ensuite une autre pierre pour tracer un second symbole. Chaque pierre de qualité moyenne permettait de tracer un symbole, et Wang Lin en avait déjà utilisé soixante-dix.
+Le symbole émit une lueur ténue avant de flotter dans l'air. Il broya ensuite une autre pierre pour tracer un second symbole. Chaque pierre de qualité moyenne permettait de tracer un symbole, et Wang Lin en avait déjà utilisé près de soixante-dix.
 
 Certains avaient échoué. Bien que la théorie fût parfaitement maîtrisée par Wang Lin, la pratique en conditions réelles entraînait quelques erreurs.
 
@@ -96,7 +96,7 @@ Wang Lin sortit une autre pierre spirituelle pour servir de noyau à la formatio
 
 Une fois les quarante-neuf symboles déposés, la pierre devint cristalline. Wang Lin la saisit; elle était désormais le cœur de sa formation. Il pressa son doigt contre son front et une couche invisible enveloppa son corps. À moins d'un examen extrêmement attentif, on n'en percevrait aucune trace.
 
-Peu après, il créa une seconde formation. À force de pratique, ses erreurs diminuaient et sa maîtrise augmentait. La deuxième ne lui coûta que soixante pierres spirituelles de qualité moyenne.
+Peu après, il créa une seconde formation. À force de pratique, ses erreurs diminuaient et sa maîtrise augmentait. La deuxième ne lui coûta que près de soixante pierres spirituelles de qualité moyenne.
 
 Le temps s'écoulait lentement et, en un clin d'œil, l'instant de l'ouverture approchait. Tous les occupants de la matrice étaient sur le qui-vive, n'aspirant qu'à une chose: quitter ce lieu terrifiant.
 

@@ -7,7 +7,7 @@ en: Chapter 626 - Identity of the White-Robed Female Corpse
 slug: lidentite-de-la-femme-a-la-robe-blanche
 ---
 
-« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du soleil. Mon père a collecté douze soleils et les a transformés en douze symboles que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
+« Le Stylo d'Inspiration Immortelle est un trésor imprégné de la puissance du Grand Yin. Mon père a collecté douze étoiles et les a transformés en douze symboles que l'on peut tracer avec ce stylo. Sa puissance est satisfaisante.
 
 « Le Filet de Capture Céleste... Bien que ce trésor soit assez ordinaire, l'âme qui l'habite semble avoir acquis une certaine intelligence. Il est très intéressant, je pense donc qu'il vous plaira.
 
@@ -33,7 +33,7 @@ Les yeux de Wang Lin s'illuminèrent et il murmura: « L'Empereur Céleste Qing 
 
 Après avoir examiné attentivement le jade dans sa main, Wang Lin se mit à réfléchir. Il ferma les yeux. « D'après le ton de ces inscriptions, cette Qin Shuang était la fille de l'Empereur Céleste de la Pluie. Elle possédait également une arme appelée l'Épée Céleste de la Pluie... » Il ouvrit soudainement les yeux dans un éclat de lumière dorée.
 
-« L'Épée Céleste de la Pluie... L'Épée Céleste de la Pluie... Une telle coïncidence pourrait-elle exister dans ce monde... La femme à la robe blanche dont le senior Zhou Yi était si épris... Serait-elle la fille de l'Empereur Céleste Qing Lin?! » Wang Lin réfléchit un instant avant de tapoter son sac de rangement. La pagode que Zhou Yi lui avait donnée en sortit. Avant qu'elle ne puisse croître, la main droite de Wang Lin traça un sceau et pointa la structure. Le corps de la femme en blanc, d'une beauté capable de faire s'emballer n'importe quel cœur, s'envolâ lentement.
+« L'Épée Céleste de la Pluie... L'Épée Céleste de la Pluie... Une telle coïncidence pourrait-elle exister dans ce monde... La femme à la robe blanche dont le senior Zhou Yi était si épris... Serait-elle la fille de l'Empereur Céleste Qing Lin?! » Wang Lin réfléchit un instant avant de tapoter son sac de rangement. La pagode que Zhou Yi lui avait donnée en sortit. Avant qu'elle ne puisse croître, la main droite de Wang Lin traça un sceau et pointa la structure. Le corps de la femme en blanc, d'une beauté capable de faire s'emballer n'importe quel cœur, s'envola lentement.
 
 En observant le corps de la femme, Wang Lin se plongea dans ses pensées. Ses yeux brillèrent; il forma un index et un majeur en guise d'épée et fit un geste vif. Une lame de vent jaillit et une marque rouge apparut immédiatement sur le poignet de la défunte.
 
@@ -67,7 +67,7 @@ Quelques jours plus tard, le Sens Divin de Wang Lin émergea du jade. Il ouvrit 
 
 « Selon les célestes, un gardien céleste n'est pas une personne, mais un trésor. Il se décline en trois qualités: faible, moyenne et élevée. Le jade précise qu'un gardien de qualité faible équivaut à un cultivateur Ascendant au sommet de la phase tardive, soit la limite du premier niveau.
 
-« Quant aux qualités moyenne et élevée, je ne peux déterminer à quel point elles se situent dans le second niveau. »
+« Quant aux qualités moyenne et élevée, je ne peux déterminer à quel stade du Briseur du Nirvana elles correspondent. »
 
 « Quant à la troisième partie... C'est une carte. On dirait la topographie d'une grotte. » Les yeux de Wang Lin s'illuminèrent et il tourna son regard vers le vieil homme.
 
@@ -83,17 +83,17 @@ Wang Lin referma sa main droite et les dix fragments fusionnèrent en un seul. P
 
 Une fois le fragment récupéré, l'âme originelle du vieil homme fut projetée hors de la tour et dévorée par le nuage noir extérieur, devenant un simple fragment d'âme parmi d'autres. Quant au corps, Wang Lin ne daigna même pas le regarder; d'un revers de manche, il le réduisit en poussière.
 
-L'une des raisons pour lesquelles il l'avait jeté à la bannière de l'âme était d'éviter le gaspillage: après tout, il s'agissait d'une âme originelle au stade de la Transformation de l'Âme. L'autre raison était l'intérêt de Wang Lin pour la grotte que le vieillard avait découverte.
+L'une des raisons pour lesquelles il l'avait jeté à la bannière de l'âme était d'éviter le gaspillage: après tout, il s'agissait d'une âme originelle au stade tardif de la Transformation de l'Âme. L'autre raison était l'intérêt de Wang Lin pour la grotte que le vieillard avait découverte.
 
 Toutefois, Wang Lin savait qu'il n'était pas temps de partir. L'essentiel était d'utiliser les quelques décennies restantes pour porter sa culture et ses trésors magiques vers un nouveau sommet. Il devait se préparer pour l'accord centenaire conclu avec l'Ancien Démon.
 
 Cela était d'autant plus vrai pour les deux nouveaux trésors et le sort céleste de basse qualité qu'il venait d'obtenir!
 
-En pensant au sort, Wang Lin laissa poindre une pointe d'excitation. C'était un véritable sort céleste! Tous les sorts qu'il avait appris dans sa vie, hormis l'Art du Massacre Céleste, n'étaient que des imitations de techniques célestes de basse qualité.
+En pensant au sort, Wang Lin laissa poindre une pointe d'excitation. C'était un véritable sort céleste! Tous les sorts qu'il avait appris dans sa vie, hormis l'Art du Massacre Céleste, n'étaient que des dérivés de techniques célestes de basse qualité.
 
 Après tout, les sorts célestes étaient d'une rareté absolue. Même des êtres comme l'Omniscient en brûlaient d'envie, alors imaginez pour quelqu'un comme Wang Lin. Les sorts célestes étaient de véritables pouvoirs, des techniques dont la puissance surpassait de loin celle des sorts ordinaires!
 
-La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. Au Secte du Destin Céleste, il fallait occuper le rang de disciple véritable pendant des années incalculables avant d'espérer en recevoir un. Et même là, l'Omniscient ne choisissait jamais le meilleur, mais un sort ordinaire.
+La Terre des Esprits Démoniaques attirait tant de cultivateurs que certains étaient prêts à massacrer ou à se prosterner devant les indigènes, tout cela pour une chance de fusionner avec un ancien démon et d'apprendre un sort céleste. À la Secte du Destin Céleste, il fallait occuper le rang de disciple véritable pendant des années incalculables avant d'espérer en recevoir un. Et même là, l'Omniscient ne choisissait jamais le meilleur, mais un sort ordinaire.
 
 « Le Sort d'Arrêt! » Wang Lin prit une profonde inspiration et l'incantation apparut dans son esprit. Il ferma lentement les yeux pour s'immerger dans la technique.
 

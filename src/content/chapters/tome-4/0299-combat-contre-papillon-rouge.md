@@ -12,7 +12,7 @@ Mais à cet instant précis, la main qui avait brisé l'épée se retourna et pl
 
 Absorbé par cette scène, Wang Lin fut soudainement frappé de stupeur. Dès l'apparition de la lueur argentée, il se mit en alerte et lança son piège à bêtes. Le crapaud tonnerre apparut, cracha une boule de foudre et percuta le rayon de lumière.
 
-Après une série de grondements, le crapaud tonnerre fut repoussé de plus de trois cents mètres. L'expression de Wang Lin devint sombre; il sauta sur le dos de la créature pour faire face à la femme qui se cachait derrière l'éclat argenté.
+Après une série de grondements, le crapaud tonnerre fut repoussé de plusieurs centaines de mètres. L'expression de Wang Lin devint sombre; il sauta sur le dos de la créature pour faire face à la femme qui se cachait derrière l'éclat argenté.
 
 Wang Lin prononça lentement: « Papillon Rouge! »
 
@@ -40,7 +40,7 @@ Un soupçon de domaine résidait dans l'épée. Elle dégageait un domaine si pu
 
 Les yeux de Wang Lin s'illuminèrent. Il frappa son sac de rangement, faisant apparaître le drapeau de restriction. Un brouillard noir enveloppa soudainement la zone, prenant la forme de dragons qui chargèrent l'épée volante.
 
-Wang Lin ne chercha plus à fuir; il disparut au sein du brouillard noir. Lorsqu'il réapparut, il se trouvait une dizaine de pieds derrière Papillon Rouge. Sa main traça un sceau, l'énergie spirituelle de son corps s'agita et un tourbillon noir et blanc se forma.
+Wang Lin ne chercha plus à fuir; il disparut au sein du brouillard noir. Lorsqu'il réapparut, il se trouvait à plusieurs dizaines de mètres derrière Papillon Rouge. Sa main traça un sceau, l'énergie spirituelle de son corps s'agita et un tourbillon noir et blanc se forma.
 
 À cet instant, le domaine de la vie et de la mort s'étendit depuis ce tourbillon.
 

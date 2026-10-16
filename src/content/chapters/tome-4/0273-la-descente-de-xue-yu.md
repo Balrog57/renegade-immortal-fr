@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 273 - Xue Yu Descends
 slug: la-descente-de-xue-yu
 ---
-Wang Lin resta immobile un long moment en regardant Da Niu et sa femme s'éloigner. Il y a plus de trente ans, Da Niu n'était qu'un enfant; mais en un clin d'œil, il était déjà un homme d'âge mûr.
+Wang Lin resta immobile un long moment en regardant Da Niu et sa femme s'éloigner. Il y a plus de trente ans, Da Niu n'était qu'un jeune homme; mais en un clin d'œil, il était déjà un homme d'âge mûr.
 
 Tout comme le domaine de la vie et de la mort, il est difficile pour les choses de ce monde d'échapper à leur destin.
 
@@ -22,9 +22,9 @@ C'était comme si elle était souillée par des impuretés. Ce n'était pas que 
 
 Cette énergie est inoffensive pour les cultivateurs en dessous du stade de la Formation de l'Âme, car ils sont incapables d'en percevoir les impuretés.
 
-Mais une fois que l'on atteint la Formation de l'Âme et que l'on aspire à progresser davantage, cette énergie devient mortelle. Quant à l'eau spirituelle provenant de la perle défiant le ciel, c’était peut-être parce que les cinq éléments n'étaient pas complets, mais sa pureté manquait encore de perfection.
+Mais une fois que l'on atteint la Formation de l'Âme et que l'on aspire à progresser davantage, cette énergie devient primordiale. Quant à l'eau spirituelle provenant de la perle défiant le ciel, c’était peut-être parce que les cinq éléments n'étaient pas complets, mais sa pureté manquait encore de perfection.
 
-Cependant, les cinq éléments sont bien trop difficiles à obtenir. En dehors de l'élément eau, il lui faudrait une bête désolée, semblable à celle qu'il avait obtenue pour l'élément feu, pour en combler ne serait-ce qu'un seul.
+Cependant, les cinq éléments sont bien trop difficiles à obtenir. En dehors de l'élément eau, il lui faudrait une bête désolée, semblable à celle qu'il avait obtenue pour l'élément feu, pour le combler entièrement.
 
 Les autres éléments manquants nécessitaient également l'âme de leur bête désolée correspondante; c’est pourquoi Wang Lin n'avait pas réussi à les compléter au cours des quatre cents dernières années.
 
@@ -80,7 +80,7 @@ Ses cheveux étaient ébouriffés alors qu'il fixait les cultivateurs de Xue Yu 
 
 Peu après, un rugissement monta de la Secte de l'Encre d'Eau, au sud. Un colossal chaudron de bronze s'éleva lentement vers le ciel depuis la montagne arrière de la secte. D'innombrables sorts étaient gravés sur sa paroi, et une aura primitive s'en dégageait. Un vieil homme vêtu d'une robe rouge était assis au sommet du chaudron, observant le ciel avec calme.
 
-La Secte du Bois Vert, à l'est, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire s'éleva dans les airs depuis la Secte du Bois Vert. La boue bouillonnait, et par intermittence, des visages éructant la souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
+La Secte du Bois Vert, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire s'éleva dans les airs depuis la Secte du Bois Vert. La boue bouillonnait, et par intermittence, des visages éructant la souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
 
 L'instant suivant, un jeune homme à l'allure fragile de la Secte de l'Âme Noire apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il était d'une pâleur extrême, comme s'il sortait d'une longue maladie.
 
@@ -94,7 +94,7 @@ Après tout, la majorité des cultivateurs de l'Alliance avaient grandi sur cett
 
 Les hommes ont besoin d'un foyer, et les cultivateurs sont aussi des hommes.
 
-C'était une bataille à mort. À moins qu'un camp n'anéantisse l'autre avec facilité, ce serait un combat acharné jusqu'au bout.
+C'était une bataille à mort. À moins qu'un camp n'anéantisse l'autre, ce serait un combat acharné jusqu'au bout.
 
 La jeune fille en blanc flottait dans les airs. Son regard était glacial lorsqu'elle murmura: « Effacez-les! Ce sera le nouveau pays de nos cultivateurs de Xue Yu! »
 
@@ -110,4 +110,4 @@ Wang Lin ouvrit brusquement les yeux sous la montagne de neige. Une lumière ét
 
 Autrefois, après que la perle défiant le ciel n'eut dévoré un seul esprit de feu, l'élément feu avait été pleinement chargé. En voyant ces esprits des cinq éléments, son cœur fut troublé. Mais il écarta rapidement cette idée, ne sachant pas si elle était le génie de Xue Yu dont Zhou Wutai avait parlé.
 
-Mais même si ce n'était pas le cas, elle se trouvait déjà au milieu du stade de la Formation de l'Âme. Elle était loin d'être une adversaire qu'il pouvait affronter pour le moment.
+Mais même si ce n'était pas le cas, elle se trouvait déjà au moins au milieu du stade de la Formation de l'Âme. Elle était loin d'être une adversaire qu'il pouvait affronter pour le moment.

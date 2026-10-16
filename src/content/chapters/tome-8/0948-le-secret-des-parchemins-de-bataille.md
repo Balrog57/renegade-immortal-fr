@@ -24,7 +24,7 @@ Pourtant, Xu Ting était un jeune prodige de la famille Xu de la planète Dong L
 
 À cet instant, il prit une profonde inspiration et ses yeux brillèrent d'un éclat vif. Dans cette situation désespérée, il réprima la terreur qui lui serrait le cœur, fixa le parchemin et, de ses mains tremblantes, commença à l'ouvrir lentement.
 
-Cette scène fit briller les yeux de Lie Yunzi, laissant paraître une pointe d'admiration. Il pensa: « Xu Ting est l'un des rares cultivateurs capables de comprendre le premier parchemin en moins de quatre secondes. Normalement, quand des cultivateurs de son rang ouvrent le deuxième parchemin, ils n'atteignent que 40 %; je me demande jusqu'où il pourra aller. »
+Cette scène fit briller les yeux de Lie Yunzi, laissant paraître une pointe d'admiration. Il pensa: « Xu Ting est l'un des rares cultivateurs capables de comprendre le premier parchemin en quelques instants. Normalement, quand des cultivateurs de son rang ouvrent le deuxième parchemin, ils n'atteignent que 40 %; je me demande jusqu'où il pourra aller. »
 
 L'expression de Wang Lin demeurait neutre tandis qu'il fixait froidement Xu Ting.
 
@@ -44,7 +44,7 @@ Lie Yunzi se redressa soudainement, les yeux écarquillés par une surprise inim
 
 Le corps de Xu Ting trembla. Au moment où la bête féroce chargea, il cracha un sang noir et fut projeté en arrière. Des craquements sinistres retentirent alors que des jets de sang jaillissaient de son corps.
 
-Lançant un sourire misérable, il s'écrasa lourdement à plus de cent pieds de là.
+Lançant un sourire misérable, il s'écrasa lourdement à plus de trente mètres de là.
 
 Quant au parchemin de bataille, il se referma instantanément et resta flottant dans les airs, comme si la scène précédente n'avait jamais eu lieu.
 
@@ -64,7 +64,7 @@ Lie Yunzi fixait Wang Lin. En réalité, bien qu'il accordât initialement de l'
 
 Cependant, au fil des siècles, les plus émérites n'avaient réussi à en ouvrir que la majorité; personne n'avait jamais pu l'ouvrir totalement!
 
-Pourtant, le spectacle qui se déroulait sous ses yeux changea radicalement l'opinion qu'il avait de Wang Lin. Ce dernier avait été capable d'établir une condition et d'emprunter à Qing Shui pour se contenir. Tout cela pouvait paraître simple, mais combien de cultivateurs dans ce monde pouvaient saisir une opportunité avec une telle perfection? Et surtout, combien oseraient agir ainsi devant lui?
+Pourtant, le spectacle qui se déroulait sous ses yeux changea radicalement l'opinion qu'il avait de Wang Lin. Ce dernier avait été capable de poser une condition et de s'appuyer sur Qing Shui pour faire pression sur lui. Tout cela pouvait paraître simple, mais combien de cultivateurs dans ce monde pouvaient saisir une opportunité avec une telle perfection? Et surtout, combien oseraient agir ainsi devant lui?
 
 Comparé à Xu Ting, il attendait bien plus de la performance de Wang Lin.
 
@@ -106,7 +106,7 @@ Une aura ancienne émanait du mot « Bataille », et à cet instant, une ombre d
 
 C'était toujours cet espace infini peuplé de ce vieil homme vêtu de blanc. Cependant, cette fois, le vieil homme était assis, et sa main droite continuait de tracer le mot « Bataille » dans le vide!
 
-« Ce vieil homme a atteint le royaume du Vide et a saisi la limite du monde. Je n'ai laissé aucun descendant, et toute ma culture est consignée dans le mot "Bataille". En cet instant, avant de tenter de briser les confins du monde, je laisse derrière moi ces six Parchemins de Bataille au cas où j'échouerais et perdrais la vie. Si quelqu'un parvient à obtenir les six parchemins dans le futur, il deviendra l'héritier de ce vieil homme! »
+« Il y a trente mille ans, ce vieil homme a atteint le royaume du Vide et a saisi la limite du monde. Je n'ai laissé aucun descendant, et toute ma culture est consignée dans le mot "Bataille". En cet instant, avant de tenter de briser les confins du monde, je laisse derrière moi ces six Parchemins de Bataille au cas où j'échouerais et perdrais la vie. Si quelqu'un parvient à obtenir les six parchemins dans le futur, il deviendra l'héritier de ce vieil homme! »
 
 Alors que le vieil homme murmurait, sa main droite s'arrêta soudainement. Des milliers et des milliers de caractères « Bataille » de tailles diverses l'entouraient. Le vieil homme pointa du doigt, et tous ces mots chargés d'intention de combat fusionnèrent en un seul caractère devant lui en un clin d'œil!
 
@@ -116,7 +116,7 @@ Le corps de Wang Lin frémit alors que l'ombre du Dao de la Bataille s'effaçait
 
 Lie Yunzi s'approcha rapidement, les yeux brillants d'excitation, et demanda avec urgence: « L'avez-vous vu?! »
 
-Wang Lin réfléchit silencieusement un instant avant de hocher la tête. Juste au moment où il allait parler, Lie Yunzi agita sa manche. Le corps de Xu Ting, situé à plus de cent pieds de là, fut emporté par une puissante bourrasque et projeté à des kilomètres de distance.
+Wang Lin réfléchit silencieusement un instant avant de hocher la tête. Juste au moment où il allait parler, Lie Yunzi agita sa manche. Le corps de Xu Ting, situé à plus de trente mètres de là, fut emporté par une puissante bourrasque et projeté à des kilomètres de distance.
 
 Lie Yunzi réprima l'excitation qui bouillonnait en lui et dit: « Maintenant, dites-moi ce que vous avez vu! »
 

@@ -26,7 +26,7 @@ Wang Lin laissa échapper un froid reniflement; l'énergie spirituelle céleste 
 
 Sans s'arrêter, il tendit la main vers un autre sac. La lumière rouge sang résista pendant trois respirations avant de se dissiper!
 
-Wang Lin effaça l'empreinte du Sens Divin sur le troisième sac comme il l'avait fait pour les deux précédents. Il était sur le point de tout terminer d'un coup et de saisir le dernier sac lorsque son expression changea soudainement, et sa main droite s'immobilisa à trois pouces du quatrième sac.
+Wang Lin effaça l'empreinte du Sens Divin sur le troisième sac comme il l'avait fait pour les deux précédents. Il était sur le point de tout terminer d'un coup et de saisir le dernier sac lorsque son expression changea soudainement, et sa main droite s'immobilisa à 9,9 centimètres du quatrième sac.
 
 Ses yeux devinrent très sérieux tandis qu'il retirait lentement sa main pour examiner attentivement le sac de rangement. Plus tôt, lorsqu'il avait récupéré les sacs, son niveau de culture n'était pas assez élevé, mais en y regardant de plus près maintenant, il sembla déceler des indices.
 
@@ -42,7 +42,7 @@ Après une courte réflexion, Wang Lin rangea soigneusement le sac et porta son 
 
 Il déploya son Sens Divin et ne put s'empêcher d'inspirer profondément, malgré sa forte force mentale. Le premier sac était rempli de jades célestes!
 
-Il y en avait trop pour pouvoir les estimer! Wang Lin effectua un balayage sommaire avec son Sens Divin: il y avait au moins dix fois plus de jades célestes que ce qu'elle lui avait donné jusqu'à présent!
+Il y en avait trop pour pouvoir les estimer! Wang Lin effectua un balayage sommaire avec son Sens Divin: il y avait environ dix fois plus de jades célestes que ce qu'elle lui avait donné jusqu'à présent!
 
 « La quantité de jade céleste nécessaire pour atteindre le stade Ascendant est immense, bien plus que le total requis jusqu'ici. La quantité requise pour chaque étape après l'Ascension doit être inimaginable. Si l'on n'en possède pas assez, la culture s'arrête tout simplement. Ce qui est devant moi est une véritable mine d'or! »
 
@@ -104,9 +104,9 @@ Il avait mis trois jours pour modifier le réseau, mais trente jours pour y ajou
 
 « Si quelqu'un venait vraiment par ici... Il serait sans aucun doute stupéfait! » Les yeux de Wang Lin brillèrent alors que son Sens Divin pénétrait dans la boussole pour l'activer. Soudain, un éclat de lumière rouge sang enveloppa tout son corps et, après quelques respirations, la lueur disparut, emportant Wang Lin avec elle.
 
-Une explosion de lumière rouge sang se produisit sur une montagne antique à 500 kilomètres du camp militaire, et Wang Lin apparut!
+Une explosion de lumière rouge sang se produisit sur le Mont Gu Dao, à 500 kilomètres du camp militaire, et Wang Lin apparut!
 
-La lumière aveuglante du soleil frappa ses yeux. Il observa les environs avec la sensation d'être venu d'un autre monde. Les contours lointains de la Cité de l'Ancien Démon semblaient inchangés depuis son départ.
+La lumière aveuglante du soleil frappa ses yeux. Il observa les environs avec la sensation d'être venu d'un autre monde. Les contours lointains de la Grande Muraille Antique semblaient inchangés depuis son départ.
 
 Wang Lin prit une profonde inspiration, se changea en un rayon de lumière et chargea vers le camp militaire. Sa vitesse étant bien plus grande qu'auparavant, il ne lui fallut que peu de temps pour s'en approcher!
 

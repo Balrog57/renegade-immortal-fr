@@ -18,7 +18,7 @@ Des murmures de discussion s'élevèrent parmi les spectateurs alors que Wang Li
 
 « En tant qu'étranger sur notre Terre des Esprits Démons, il ferait mieux de ne pas être trop arrogant, faute de quoi la mort sera sa seule issue. On dirait que cet homme ne connaît toujours pas sa place! »
 
-Tandis que la foule débattait, le Vice-Commandant Xuan, assis dans la zone nord, laissa échapper un léger reniflement. Un homme était assis derrière lui: un quadragénaire vêtu d'une armure bleue. Son apparence était très ordinaire, mais il dégageait une aura de majesté.
+Tandis que la foule débattait, le Vice-Commandant Xuan, assis dans la zone nord, laissa échapper un léger reniflement. Un homme était assis à ses côtés: un quadragénaire vêtu d'une armure bleue. Son apparence était très ordinaire, mais il dégageait une aura de majesté.
 
 En entendant le reniflement du Vice-Commandant Xuan, l'homme tourna la tête et demanda: « Vice-Commandant Xuan, connaissez-vous cet homme? »
 
@@ -32,9 +32,9 @@ L'homme d'âge moyen eut un petit rire: « D'accord. Je veux voir ce qui rend ce
 
 Le Vice-Commandant Xuan ricana intérieurement: « Si vous aviez été gravement blessé par lui, vous seriez tout aussi confiant! »
 
-À cet instant précis, un homme sortit rapidement de la rangée des généraux démons. Il portait une armure de couleur terre et, bien qu'il semblât immobile, il apparut soudainement à moins de mille pieds de Wang Lin.
+À cet instant précis, un homme sortit rapidement de la rangée des généraux démons. Il portait une armure de couleur terre et, bien qu'il semblât immobile, il apparut soudainement à environ trois cents mètres de Wang Lin.
 
-« J'espère que mon collègue saura faire preuve de courtoisie et ne me disputera pas la position de challenger! » Sa voix résonna dans l'air, empreinte d'une fierté et d'une confiance insolentes.
+« Merci à mes collègues pour leur bienveillance: personne ne viendra me disputer le rôle de challenger! » Sa voix résonna dans l'air, empreinte d'une fierté et d'une confiance insolentes.
 
 « Le Général Démon Ao Di... J'aurais dû deviner qu'il apparaîtrait dans cette bataille! »
 
@@ -60,9 +60,9 @@ Des ondes de choc se propagèrent à partir des pieds de Wang Lin comme autant d
 
 À cet instant, la terre sur laquelle Wang Lin avait posé le pied sembla se transformer en magma infernal. Sous la force de son pas, le sol vola en éclats et d'innombrables colonnes de lave jaillirent vers les cieux, tels des glaives rouges transperçant l'azur.
 
-Ao Di fut expulsé du sol à cinquante pieds de Wang Lin, les yeux écarquillés par l'incrédulité. Cette technique d'évasion terrestre était utilisée en symbiose avec sa bête démoniaque liée à sa vie; même si son ennemi avait utilisé un sort pour faire s'effondrer le terrain, il n'aurait pas dû être aussi facilement débusqué. En réalité, il aurait dû pouvoir changer de stratégie et attaquer par le flanc au moment de l'impact.
+Ao Di fut expulsé du sol à seize mètres et demi de Wang Lin, les yeux écarquillés par l'incrédulité. Cette technique d'évasion terrestre était utilisée en symbiose avec sa bête démoniaque liée à sa vie; même si son ennemi avait utilisé un sort pour faire s'effondrer le terrain, il n'aurait pas dû être aussi facilement débusqué. En réalité, il aurait dû pouvoir changer de stratégie et attaquer par le flanc au moment de l'impact.
 
-De plus, la chose la plus cruciale était que cette place carrée de dix mille pieds était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
+De plus, la chose la plus cruciale était que cette place carrée de trente-trois kilomètres de côté était saturée d'innombrables restrictions; faire s'effondrer le sol ici était au moins dix fois plus difficile qu'à l'extérieur! Il se déplaçait avec une prudence extrême en utilisant son art d'évasion, étudiant attentivement la meilleure trajectoire pendant que Shi Xiao combattait.
 
 Mais il n'eut pas le temps de réfléchir. Alors qu'il flottait dans les airs, le regard de Wang Lin lui tomba dessus comme une lame acérée visant directement son cœur. En croisant ce regard, son cuir chevelu se glaça soudainement et un pressentiment funeste l'envahit!
 
@@ -80,7 +80,7 @@ Les yeux de Wang Lin s'illuminèrent. Loin de s'arrêter, il envoya une dose sup
 
 Tandis qu'Ao Di volait dans les airs, son corps laissait échapper des bruits d'explosions et une épaisse brume de sang. La douleur... une douleur indescriptible! C'était la seule chose qu'il pouvait ressentir. L'énergie spirituelle démoniaque de son corps luttait désespérément contre l'énergie céleste, et ce conflit interne lui donnait l'impression de traverser les flammes de l'enfer!
 
-Le Vice-Commandant Xuan eut un haut-le-cœur. Cette scène lui rappelait son propre combat contre Wang Lin; voir Ao Di, c'était comme revoir son passé.
+Le Vice-Commandant Xuan retint son souffle. Cette scène lui rappelait son propre combat contre Wang Lin; voir Ao Di, c'était comme revoir son passé.
 
 « Tu oses! » L'homme en armure dorée tendit la main vers le ciel et une lumière solaire intense se rassembla dans sa paume. La clarté se condensa pour former une lance d'or, donnant l'impression qu'il tenait un morceau de soleil entre ses mains. Il la projeta alors avec force vers Wang Lin!
 
@@ -94,7 +94,7 @@ Après cela, Wang Lin se retourna brusquement et forma un sceau de la main. Des 
 
 La puissance de cette lance était terrifiante, comme si elle pouvait transpercer les cieux. Au moment où elle fut lancée, Wang Lin sentit qu'elle l'avait verrouillé. Alors qu'elle fonçait sur lui, ses yeux s'illuminèrent, tels ceux qu'il arborait lorsqu'il déduisait une restriction. Un regard déterminé traversa son visage alors que sa paume percutait la lance!
 
-Le choc fit vibrer l'arme; il la frappa une seconde fois avec son autre paume. Les deux coups furent portés à des endroits différents, puis il déplaça son corps pour laisser passer la lance de justesse.
+Le choc fit vibrer l'arme; il la frappa une seconde fois de la même main. Les deux coups furent portés à des endroits différents, puis il déplaça son corps pour laisser passer la lance de justesse.
 
 Wang Lin retira sa main droite et lança un regard froid à l'homme en armure dorée: « Quel est le sens de ce geste, mon Seigneur? Prétendez-vous violer les règles?! » Bien que son ton fût calme, il était extrêmement vigilant. Cette lance dorée possédait une puissance redoutable!
 

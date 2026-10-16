@@ -14,17 +14,17 @@ Un homme s'extirpa du groupe des généraux démons. Son regard était glacial e
 
 En contemplant l'instrument, ses yeux s'illuminèrent soudainement, et une puissante intention de combat s'embrasa dans son cœur!
 
-Il n'acta pas immédiatement; il resta immobile en silence pour ajuster l'énergie spirituelle démoniaque de son corps afin de s'assurer d'être au sommet de sa forme. Après tout, il n'avait aucune certitude de pouvoir faire retentir ce tambour, car à ses yeux, celui-ci était une relique sacrée.
+Il n'agit pas immédiatement; il resta immobile en silence pour ajuster l'énergie spirituelle démoniaque de son corps afin de s'assurer d'être au sommet de sa forme. Après tout, il n'avait aucune certitude de pouvoir faire retentir ce tambour, car à ses yeux, celui-ci était une relique sacrée.
 
 L'homme en armure dorée observa Yu Sen et pensa: « Avec la culture de Yu Sen, il devrait pouvoir le faire résonner quatre fois. S'il force un cinquième coup, il sera broyé! » Il ne jeta qu'un bref regard avant de fermer les yeux.
 
-Tous les regards convertaient vers Yu Sen, mais celui-ci leur était totalement indifférent. Pour éviter d'être perturbé par autrui, il ferma les yeux et fit abstraction du monde extérieur.
+Tous les regards convergeaient vers Yu Sen, mais celui-ci leur était totalement indifférent. Pour éviter d'être perturbé par autrui, il ferma les yeux et fit abstraction du monde extérieur.
 
 Finalement, une aura maléfique s'échappa de son corps, se propageant dans l'air pour s'y condenser continuellement.
 
 Des murmures parcoururent les gradins environnants.
 
-« Le Dao de la boucherie est extrêmement difficile à cultiver. Yu Sen le pratique depuis de nombreuses années; étant le premier à passer, je crains qu'il ne devienne instantanément célèbre! »
+« La voie du massacre est extrêmement difficile à cultiver. Yu Sen le pratique depuis de nombreuses années; étant le premier à passer, je crains qu'il ne devienne instantanément célèbre! »
 
 « Qui sait... ce tambour démoniaque est fabriqué à partir de la peau d'un Démon Ancestral. Même si Yu Sen parvient à le faire résonner, il sera blessé par le contrecoup. »
 
@@ -36,7 +36,7 @@ Bien que les six vice-commandants en chef ne possèdent pas la même clairvoyanc
 
 Alors qu'il songeait ainsi, le Vice-Commandant Jaune sourit: « Vice-Commandant Xuan, je crains que je ne remporte notre pari. Le cultivateur que vous avez choisi doit agir seul; il perdra donc sans aucun doute! »
 
-Le Vice-Commandant Xuan laissa échapper un renflement froid et répliqua: « Attends de voir; cet homme n'est certainement pas aussi simple que tu le penses! »
+Le Vice-Commandant Xuan laissa échapper un reniflement froid et répliqua: « Attends de voir; cet homme n'est certainement pas aussi simple que tu le penses! »
 
 Tandis qu'ils discutaient, Yu Sen ouvrit soudainement les yeux, tel un dieu de la guerre incarné. La lumière qui émanait de son regard était aussi éclatante que la lune!
 
@@ -60,7 +60,7 @@ Yu Sen poussa un rugissement et l'énergie spirituelle démoniaque autour de lui
 
 À chaque fois qu'un visage s'effaçait, un autre surgissait.
 
-« Soul Devouring Slaughter, premier niveau! » La voix de Yu Sen semblait émaner des profondeurs de l'enfer. Après ce cri, toutes les formes souffrantes semblèrent trouver un exutoire et chargèrent frénétiquement vers la main droite de Yu Sen.
+« Massacre dévoreur d'âmes, premier niveau! » La voix de Yu Sen semblait émaner des profondeurs de l'enfer. Après ce cri, toutes les formes souffrantes semblèrent trouver un exutoire et chargèrent frénétiquement vers la main droite de Yu Sen.
 
 Sa main droite entière libéra une lumière bleue aveuglante!
 
@@ -68,13 +68,13 @@ Yu Sen poussa un nouveau rugissement, sa main droite prit la forme d'une paume e
 
 Avant même qu'il ne touche l'instrument, le souffle créé par la violence du coup atteignit le tambour.
 
-Le troisième coup retentit à travers le monde. À cet instant, tous les spectateurs furent ébranlés. Bien qu'il y eût une certaine ruse derrière l'utilisation de la pression d'air pour frapper le tambour, cela démontrait la puissance phénoménale du sort Soul Devouring Slaughter!
+Le troisième coup retentit à travers le monde. À cet instant, tous les spectateurs furent ébranlés. Bien qu'il y eût une certaine ruse derrière l'utilisation de la pression d'air pour frapper le tambour, cela démontrait la puissance phénoménale du sort du Massacre dévoreur d'âmes!
 
 Une fois le vent passé, la main droite de Yu Sen pressa le tambour.
 
 Presque au moment où le troisième coup s'éteignait, le quatrième suivit instantanément. Les deux sons se propagèrent comme un tonnerre roulant.
 
-Yu Sen rétracta précipitamment sa main et recula. Il battit en retraite sur des milliers de pieds avant de parvenir à se stabiliser. Son visage devint rouge et il lutta de toutes ses forces pour ne pas cracher du sang.
+Yu Sen rétracta précipitamment sa main et recula. Il battit en retraite sur plus de trois cents mètres avant de parvenir à se stabiliser. Son visage devint rouge et il lutta de toutes ses forces pour ne pas cracher du sang.
 
 Sa main droite tremblait et il en avait perdu toute sensation. Il avait consommé plus de 80 % de son énergie spirituelle démoniaque pour ce seul sort.
 

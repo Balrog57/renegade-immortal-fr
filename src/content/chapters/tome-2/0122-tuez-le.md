@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 122 - Kill Him
 slug: tuez-le
 ---
-Parmi les dix membres du Sanctuaire du Dieu de la Guerre, hormis Mai Liang qui était parti quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Mai Liang.
+Parmi les dix membres du Temple du Dieu de la Guerre, hormis Mai Liang qui était parti quatre jours auparavant, seuls ces trois-là subsistaient. Zhou Zihong laissa échapper un soupir en contemplant les créatures étranges qui convergeaient vers eux. Elle ferma les yeux, accablée par le désespoir, et ne put s'empêcher de penser à Mai Liang.
 
 « Ce Mai Liang a toujours été aussi timide qu'une souris et craint la mort plus que tout, mais il se trouve qu'il a le cuir bien accroché. La jeune apprentie sœur Tong n'en pouvait plus de ses importunités et avait pensé à le jeter sur le champ de bataille étranger pour s'en débarrasser. Si je ne l'avais pas pris en pitié et ne l'avais pas aidé à maintes reprises, il serait déjà mort. Au moins, il possède une conscience. Il y a quelques jours, il m'a offert une pilule censée aider à préserver la jeunesse... Je me demande si c'est vrai... »
 
@@ -26,13 +26,13 @@ Plus de dix âmes errantes paniquèrent soudainement et s'enfuirent, disparaissa
 
 Zhou Zihong resta pétrifiée devant cette scène. Elle ne comprenait pas pourquoi ces créatures terrifiantes s'étaient ainsi éclipsées. Elle tourna la tête vers Wang Lin alors qu'une pensée insensée lui traversait l'esprit: « Ces créatures effrayantes auraient-elles peur de Mai Liang? »
 
-Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Sanctuaire du Dieu de la Guerre étaient tout aussi perplexes, mais le soulagement de survivre à un péril si imminent les frappa de plein fouet, et ils finirent par expirer de décompression.
+Mais elle écarta rapidement cette conjecture. Les deux autres disciples du Temple du Dieu de la Guerre étaient tout aussi perplexes, mais le soulagement de survivre à un péril si imminent les frappa de plein fouet, et ils poussèrent un long soupir de soulagement.
 
 Le frère aîné Yang était le plus âgé d'entre eux. Après avoir évalué la situation, il déclara: « Jeune apprentie sœur, bien que ces créatures soient parties, rester ici n'est pas prudent. Nous devons rejoindre la matrice de transfert et partir sans tarder. »
 
 Zhou Zihong frissonna et acquiesça, puis ajouta: « Jeune frère Mai, tu es le plus faible d'entre nous, alors ne laisse surtout rien de ces choses te toucher. Si elles t'atteignent, tu mourras! »
 
-L'autre disciple du Sanctuaire du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Mai Liang, que cet homme se nommait Ling Tao.
+L'autre disciple du Temple du Dieu de la Guerre s'exclama avec impatience: « De quoi discutez-vous encore? Si vous ne bougez pas, j'y vais seul! » Sur ce, il s'élança et chargea rapidement vers l'avant. Wang Lin savait, grâce aux souvenirs de Mai Liang, que cet homme se nommait Lin Tao.
 
 Le frère aîné Yang partit également, refusant de rester sur place. Zhou Zihong hésita un instant avant de lancer: « Fais attention! », puis elle les suivit à son tour.
 
@@ -60,7 +60,7 @@ C'était là l'autre raison pour laquelle il avait sauvé le groupe de Zhou Ziho
 
 Bien sûr, s'il parvenait à trouver Xu Hao et Ge Yang, ce serait l'idéal.
 
-Wang Lin avait déjà fait d'eux ses cibles prioritaires. Ce n'était pas par vengeance pour Mai Liang, mais parce que ces deux-là savaient que Mai Liang aurait dû être mort. Pour prévenir tout problème futur, ils devaient mourir.
+Wang Lin avait déjà fait d'eux ses cibles prioritaires. Ce n'était pas par vengeance pour Mai Liang, mais parce que ces deux-là savaient que le vrai Mai Liang était déjà mort. Pour prévenir tout problème futur, ils devaient mourir.
 
 En chemin, Wang Lin utilisa les souvenirs de Mai Liang pour informer ses trois compagnons de voyage de l'existence de Xu Hao et Ge Yang. Toutes les âmes errantes du champ de bataille étaient devenues ses yeux et ses oreilles. Si ces deux individus apparaissaient, ses compagnons le lui signaleraient instantanément.
 
@@ -78,7 +78,7 @@ Les trois n'étaient pas stupides; ils commencèrent à se méfier de ce qui se 
 
 Cependant, hormis Zhou Zihong qui ouvrit la bouche comme pour dire quelque chose, les deux autres firent mine de n'avoir rien remarqué. Ce n'était pas qu'ils ne voulaient pas poser de questions, mais ils en étaient incapables: s'ils offensaient accidentellement Wang Lin, ils perdraient la vie ici même.
 
-Le disciple nommé Ling Tao eut un éclair dans le regard tout en gardant le dos tourné à Wang Lin. Il semblait machiner quelque chose, avant que son expression ne redevienne normale.
+Le disciple nommé Lin Tao eut un éclair dans le regard tout en gardant le dos tourné à Wang Lin. Il semblait machiner quelque chose, avant que son expression ne redevienne normale.
 
 Voyant qu'ils approchaient de la matrice de transfert la plus proche, le nombre de cultivateurs aux alentours augmenta. Tous convergeaient vers la matrice qui se dressait devant eux.
 
@@ -110,4 +110,4 @@ Mais l'âme devant lui était manifestement différente. Son Sens Divin était u
 
 À force d'accumuler ces marques, cette âme errante avait muté. Les yeux de Wang Lin brillèrent après l'avoir scrutée longuement. En la regardant, il ressentit la même sensation qu'en découvrant l'Âme Naissante de Situ Nan. On pouvait dire qu'un lien subtil les unissait.
 
-La main droite de Wang Lin pointa vers Ling Tao. Il ordonna: « Tuez-le! »
+La main droite de Wang Lin pointa vers Lin Tao. Il ordonna: « Tuez-le! »

@@ -24,7 +24,7 @@ Wang Lin se méfiait énormément de ce pouvoir. Il l'avait remarqué pour la pr
 
 La famille Ge était la descendante des Célestes! Quant à la famille Li, elle était peut-être réellement innocente. Tout cela n'était dû qu'au fait que leurs ancêtres avaient osé pénétrer dans ce lieu et avaient reçu l'empreinte d'esclave, causant ainsi le déclin de toute leur lignée. Pendant des générations, les membres de la famille avaient sacrifié leur culture et leur espérance de vie pour permettre lentement à cette âme céleste indestructible de se rétablir.
 
-La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait eu une chance. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des millénaires, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
+La famille Li avait peut-être réellement voulu se rebeller, mais il était évident qu'elle avait échoué à chaque tentative. Ce n'est que l'ancêtre de la famille Li, il y a des dizaines de milliers d'années, qui avait eu une chance. Cependant, l'empreinte d'esclave, qui avait nourri son maître pendant des dizaines de milliers d'années, avait accumulé suffisamment d'énergie pour que l'âme cachée à l'intérieur s'éveille. C'est ainsi que l'ancêtre talentueux de la famille Li était apparu.
 
 En conséquence, lorsque l'ancêtre Li avait déclaré qu'il libérait la famille de l'empreinte d'esclave, il ne faisait, en réalité, que ressusciter son maître.
 

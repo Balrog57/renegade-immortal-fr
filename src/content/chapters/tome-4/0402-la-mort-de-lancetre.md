@@ -18,7 +18,7 @@ Le regard de Wang Lin brilla. Il ne manifesta aucune inquiétude; alors que la h
 
 Boum!
 
-Un nouveau jet de sang jaillit de la bouche de Wang Lin, qui fut projeté en arrière de plusieurs dizaines de pieds. La hache fut repoussée et s'écrasa au sol.
+Un nouveau jet de sang jaillit de la bouche de Wang Lin, qui fut projeté en arrière d'une dizaine de mètres. La hache fut repoussée et s'écrasa au sol.
 
 Le visage de l'ancêtre du Clan des Démons Géants était livide, ses yeux injectés de folie. Il lança un regard venimeux à Wang Lin, prit une profonde inspiration, puis son âme originelle trembla tandis qu'il hurlait: « Pouvoir de lignée! »
 
@@ -28,7 +28,7 @@ Ce n'est qu'une fois la possession accomplie qu'il pourrait utiliser la lignée 
 
 Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan des Démons Géants. Il pointa l'étendard des âmes, et une nouvelle salve de fragments d'âmes s'élança.
 
-Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la perle transcendante. Il devait le tuer, quoi qu'il en coûte.
+Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant les Cieux. Il devait le tuer, quoi qu'il en coûte.
 
 Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex colossal apparut soudainement au-dessus de l'ancêtre du Clan des Démons Géants.
 

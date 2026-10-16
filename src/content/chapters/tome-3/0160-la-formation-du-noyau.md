@@ -32,7 +32,7 @@ Sans l'un de ces éléments, il n'aurait peut-être pas réussi à former son no
 
 Former une Âme Naissante était d'une difficulté incommensurable. Wang Lin pensait que même avec le talent du corps de Ma Liang, il n'y avait presque aucun espoir, à moins de trouver ces légendaires pilules dont Li Muwan parlait, capables d'accroître les chances de réussite. Toutefois, la plupart de ces pilules se trouvaient dans des pays de culture de rang 5 ou supérieur, et elles ne s'échappaient que rarement.
 
-Wang Lin murmura pour lui-même: « Âme Naissante... Âme Naissante... même avec la Perle Défiant le Ciel, je crains qu'il ne me faille des centaines d'années pour réussir... Le plus important maintenant est de trouver une nouvelle méthode de culture. La méthode de l'Ascension Souterraine a atteint son apogée et Situ Nan dort toujours; je dois donc compter sur moi-même. » La priorité absolue était de dénicher une méthode de culture adaptée au stade de la Formation du Noyau.
+Wang Lin murmura pour lui-même: « Âme Naissante... Âme Naissante... même avec la Perle Défiant le Ciel, je crains qu'il ne me faille plus d'une centaine d'années pour réussir... Le plus important maintenant est de trouver une nouvelle méthode de culture. La méthode de l'Ascension Souterraine a atteint son apogée et Situ Nan dort toujours; je dois donc compter sur moi-même. » La priorité absolue était de dénicher une méthode de culture adaptée au stade de la Formation du Noyau.
 
 Mais choisir cette méthode s'avérait périlleux. Pour l'instant, toutes les techniques dont il disposait provenaient d'ennemis qu'il avait éliminés. Bien que certaines fussent compatibles avec un cultivateur de la Formation du Noyau, elles étaient toutes trop disparates, rendant tout choix complexe.
 
@@ -56,15 +56,15 @@ Dans un lieu souterrain, une lueur multicolore jaillit alors que Wang Lin se man
 
 Simultanément, il déploya son Sens Divin pour observer attentivement les environs. C'était le cœur de la nuit et tout était calme. Wang Lin réfléchit un instant avant de foncer vers l'Union de Huo Fen.
 
-Mais avant d'avoir pu parcourir beaucoup de distance, son Sens Divin lui alerta d'un danger imminent. Il utilisa sa technique d'évasion terrestre à son paroxysme pour s'enfoncer plus profondément sous terre. De 990 mètres à 3,3 kilomètres, il continua sa descente, sa vitesse ne faisant que croître.
+Mais avant d'avoir pu parcourir beaucoup de distance, son Sens Divin lui alerta d'un danger imminent. Il utilisa sa technique d'évasion terrestre à son paroxysme pour s'enfoncer plus profondément sous terre. De 99 mètres à 3,3 kilomètres, il continua sa descente, sa vitesse ne faisant que croître.
 
 Une voix séculaire résonna soudain dans son esprit: « Ce vieux fou t'attendait depuis 97 jours, petit gars! »
 
-Le crâne de Wang Lin picota, ses cheveux se hérissèrent et son visage s'assombrit. Sans dire un mot, il continua sa descente. 3,3 kilomètres, 2 000 pieds, 3 000 pieds, 4 000 pieds... 10 000 pieds. Wang Lin descendait en ligne droite, mais plus il s'enfonçait, plus il ressentait une force de résistance, l'obligeant à modifier immédiatement sa trajectoire pour une descente diagonale.
+Le crâne de Wang Lin picota, ses cheveux se hérissèrent et son visage s'assombrit. Sans dire un mot, il continua sa descente. 1 000 pieds, 2 000 pieds, 3 000 pieds, 4 000 pieds... 10 000 pieds. Wang Lin descendait en ligne droite, mais plus il s'enfonçait, plus il ressentait une force de résistance, l'obligeant à modifier immédiatement sa trajectoire pour une descente diagonale.
 
 « Hehe, heureusement que j'ai emprunté ce bateau terrestre à quelqu'un. Il serait bien difficile de t'attraper si tu t'échappais à travers la croûte terrestre grâce à cette force! » La voix continuait de résonner dans son Sens Divin.
 
-Wang Lin resta de marbre, changea brusquement de direction et commença à remonter. De 1 000 pieds sous terre à 330 mètres, il jaillit à la surface, avec la chaîne de montagnes de l'Union de Huo Fen se dressant devant lui.
+Wang Lin resta de marbre, changea brusquement de direction et commença à remonter. De 3,3 kilomètres sous terre à 330 mètres, il jaillit à la surface, avec la chaîne de montagnes de l'Union de Huo Fen se dressant devant lui.
 
 Dès son apparition, il chargea vers la montagne. Un écran de lumière enveloppait le massif. Au moment où il toucha la barrière, il sortit le jade d'identification qui lui avait été confié. Il traversa sans effort la lumière, puis jeta un regard en arrière.
 
@@ -92,7 +92,7 @@ Ce mot unique projeta une onde de choc si puissante qu'elle fit résonner leurs 
 
 Une fois l'onde sonore dissipée, le vieil homme avait déjà disparu sans laisser de trace. Les cultivateurs se regardèrent, certains saignant du nez et de la bouche. Aucun ne pouvait plus articuler un mot.
 
-Mais le vieil homme revint bientôt. Son visage était d'une sévérité extrême alors qu'il fixait la montagne. Il ferma les yeux puis les rouvrit brusquement, déployant son puissant Sens Divin. Il scruta chaque individu sur la montagne et fouilla même jusqu'à 1 000 pieds sous terre. Plus il cherchait, plus il fronçait les sourcils. Finalement, son corps s'anima: d'un seul, il devint deux, puis de deux, il devint quatre.
+Mais le vieil homme revint bientôt. Son visage était d'une sévérité extrême alors qu'il fixait la montagne. Il ferma les yeux puis les rouvrit brusquement, déployant son puissant Sens Divin. Il scruta chaque individu parmi plus de dix mille personnes sur la montagne et fouilla même jusqu'à 3,3 kilomètres sous terre. Plus il cherchait, plus il fronçait les sourcils. Finalement, son corps s'anima: d'un seul, il devint deux, puis de deux, il devint quatre.
 
 Quatre vieux hommes identiques se dispersèrent dans quatre directions, chacun scrutant avec son propre Sens Divin, mais ils ne trouvèrent toujours rien. Le vieil homme frappa le sol et, avec ses trois avatars, se dirigea vers les quatre points cardinaux de Xuan Wu. Leurs Sens Divins se connectèrent pour encercler l'intégralité du pays.
 

@@ -66,7 +66,7 @@ Au moment où il entendit Wang Lin proposer un jade céleste, le jeune Lou marmo
 
 Il leva brusquement la tête vers le quatrième étage, ses yeux brillant d'une lueur singulière.
 
-« Ce n'est pas... ce n'est pas sa voix, mais pourquoi mon esprit tremble-t-il ainsi... Dans toute ma vie, seul Chen Niu a laissé une marque dans mon âme. » Le vieil homme resta silencieux un long moment. Il se leva, hésita, puis se rassit, fixant le sol d'un regard vide.
+« Ce n'est pas... ce n'est pas sa voix, mais pourquoi mon esprit tremble-t-il ainsi... Dans toute ma vie, seul Ceng Niu a laissé une marque dans mon âme. » Le vieil homme resta silencieux un long moment. Il se leva, hésita, puis se rassit, fixant le sol d'un regard vide.
 
 « Ma marque aurait dû être brisée sur la planète Dong Lin, alors pourquoi... est-elle encore là... »
 
@@ -84,7 +84,7 @@ Une fois que Wang Lin atteignit un lieu reculé, il se retourna. Le vieil homme 
 
 Remarquant le regard de Wang Lin, le vieil homme soupira: « Cher cultivateur, ce vieil homme vous a pris pour quelqu'un d'autre. J'espère que vous ne m'en tiendrez pas rigueur. » Il se détourna et s'éloigna, sa silhouette empreinte de vicissitudes.
 
-Wang Lin réfléchit un instant puis prononça lentement: « Sun Tai [1]. »
+Wang Lin réfléchit un instant puis prononça lentement: « Sun Tai. »
 
 Dès que ces deux mots atteignirent les oreilles du vieil homme, tout son corps fut secoué par un tremblement. Il tourna brusquement la tête vers Wang Lin et s'exclama avec choc: « Vous... C'est vraiment vous! »
 
@@ -99,6 +99,3 @@ Sun Tai réfléchit un instant: « Connaissez-vous la planète Dong Lin dans le 
 Les yeux de Wang Lin se plissèrent, mais il ne laissa pas Sun Tai poursuivre. D'un revers de manche, il fit disparaître les deux hommes. Ils réapparurent devant sa demeure, dans la partie nord de la ville. Wang Lin fit entrer Sun Tai à l'intérieur.
 
 Après s'être assis en position du lotus, Wang Lin fixa Sun Tai et ordonna: « Vous pouvez parler, maintenant! »
-
-***
-[1. Le Grand Ancien du culte des cadavres sur la planète Suzaku. C'est lui que Zhou Yi avait marqué pour qu'il devienne l'esclave de Wang Lin. Il fut téléporté par le pouvoir de la lignée de l'Ancêtre du Clan des Démons Géants lorsqu'il vint sauver Wang Lin. Mais c'est aussi lui qui avait placé un sceau sur la culture de Wang Lin à l'époque.]

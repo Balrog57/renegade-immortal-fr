@@ -14,7 +14,7 @@ La ruse de Wang Lin dépassait largement celle des gens ordinaires. Il ne croyai
 
 Au bas de l'escalier se révélait un monde écarlate! L'endroit était vaste, et l'épaisse couche de traces de sang sur le sol était saisissante.
 
-En regardant autour de lui, il ne pouvait en percevoir les limites. Il s'agissait probablement d'un espace indépendant, situé juste en dessous de la Cité du Démon Céleste.
+En regardant autour de lui, il ne pouvait en percevoir les limites. Il s'agissait probablement d'un espace indépendant, qui n'était pas réellement situé sous la Cité du Démon Céleste.
 
 Dans ce monde, de nombreux bassins de sang jonchaient le sol. De nombreuses personnes se trouvaient dans chacun de ces bassins, les yeux clos, pratiquant leur culture à l'intérieur des eaux sanglantes.
 
@@ -42,7 +42,7 @@ Tous ces gens avaient les yeux injectés de sang!
 « Tuez!! »
 « Tuez!!! »
 
-À la suite de ces hurlements, chacun de ceux qui s'était envolé commença immédiatement à attaquer ses voisins. Leurs assauts étaient imprégnés d'une intention meurtrière absolue. Il y avait énormément de monde dans les bassins; Wang Lin déploya son sens divin et en dénombrat près de mille.
+À la suite de ces hurlements, chacun de ceux qui s'était envolé commença immédiatement à attaquer ses voisins. Leurs assauts étaient imprégnés d'une intention meurtrière absolue. Il y avait énormément de monde dans les bassins; Wang Lin déploya son sens divin et en dénombra plusieurs milliers.
 
 À cet instant, un massacre s'ensuivit, et l'intention meurtrière ici était monstrueuse.
 
@@ -72,7 +72,7 @@ Le massacre cessa silencieusement. Chacun d'eux était entouré d'une intense au
 
 Sans même se regarder, ils se dispersèrent pour chercher un bassin de sang. Ceux qui venaient de ressusciter s'écartaient immédiatement, permettant aux autres de disposer d'un bassin pour eux seuls.
 
-Les yeux de Wang Lin étaient rouge sang tandis qu'il dirigeait sa brume de trois pieds vers un bassin. La douzaine de personnes présentes à l'intérieur se levèrent et partirent précipitamment, une pointe d'admiration perçant dans leurs regards injectés de sang.
+Les yeux de Wang Lin étaient rouge sang tandis qu'il dirigeait sa brume de dix mètres vers un bassin. La douzaine de personnes présentes à l'intérieur se levèrent et partirent précipitamment, une pointe d'admiration perçant dans leurs regards injectés de sang.
 
 Wang Lin s'assit seul dans le bassin et ferma les yeux. Après un long moment, il les rouvrit. Le rouge qui embrasait son regard disparut peu à peu pour laisser place à la clarté.
 
@@ -82,7 +82,7 @@ Après un long moment, le carnage reprit dans ce monde écarlate. Tous s'envolè
 
 Ce cycle de violence se produisait plusieurs fois par jour. Lors de ces massacres, beaucoup mouraient, tandis que quelques rares individus voyaient la brume de sang autour d'eux gagner en puissance.
 
-Une journée passa rapidement; il y eut au total quatre cycles de massacre ce jour-là. Wang Lin tint jusqu'à la fin, mais la brume de sang autour de lui ne mesurait que quelques dizaines de pieds de large. Comparé aux autres, c'était considérable, mais un homme aux cheveux noirs possédait une brume de plus de 330 mètres de large!
+Une journée passa rapidement; il y eut au total quatre cycles de massacre ce jour-là. Wang Lin tint jusqu'à la fin, mais la brume de sang autour de lui ne mesurait que une centaine de mètres de large. Comparé aux autres, c'était considérable, mais un homme aux cheveux noirs possédait une brume de plus de 330 mètres de large!
 
 Il flottait dans les airs tel un roi.
 

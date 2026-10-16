@@ -20,7 +20,7 @@ Wang Lin sourit, secoua la tête et rangea le jade brisé dans son sac. D'un rev
 
 La guerre dans le Pays des Démons de Feu se poursuivait. Le massacre incessant faisait couler une quantité immense de sang, et tout le pays était imprégné d'une odeur de mort.
 
-Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays des Démons de Feu était plongé dans une boucherie constante et que le Pays des Démons Célestes n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dizaines de milliers d'années!
+Il était difficile pour les sept autres nations d'ignorer un conflit entre deux puissances. Surtout à ce moment précis, alors que le Pays des Démons de Feu était plongé dans une boucherie constante et que le Pays des Démons Célestes n'avait presque plus de soldats sur son propre territoire. Pour les sept autres pays, c'était une opportunité, une occasion qui ne se présentait qu'une fois tous les dix mille ans!
 
 À cet instant, à la frontière entre le Pays des Démons de Feu et le Pays des Démons d'Or, une météorite traversant le ciel était visible à 5 000 kilomètres du miasme. La lumière entourant le météore se dissipa, révélant Wang Lin lorsqu'il atteignit les limites du brouillard. Il agita ses manches et plus de dix cultivateurs apparurent à ses côtés.
 
@@ -78,7 +78,7 @@ L'un des spectateurs s'exclama: « Un Gardien Céleste! » On ne savait s'il l'a
 
 Wang Lin resta impassible et daigna même pas regarder l'assaillant. Il fit un pas en avant et commença à marcher vers le château. Bien que sa vitesse fût modérée, elle força tout le monde à plisser les yeux. À cet instant, pour ces cultivateurs, contempler Wang Lin revenait à contempler les Grands Anciens de leurs propres sectes. Cette aura et cette sérénité n'étaient pas l'apanage d'un cultivateur ordinaire!
 
-Seuls ceux possédant une confiance absolue en leur propre culture pouvaient émaner une telle présence.
+Seuls ceux possédant une certaine confiance en leur propre culture pouvaient émaner une telle présence.
 
 Le disciple de la Division Bleue observa Wang Lin avec une expression complexe. Il avait entendu parler de lui et avait vu de ses propres yeux sa bataille contre Chen Tao pour le titre de véritable disciple. À l'époque, les performances de Wang Lin avaient attiré l'attention, mais ce n'était qu'une curiosité passagère; après tout, son niveau de culture était alors jugé insuffisant.
 
@@ -86,13 +86,13 @@ Pourtant, à cet instant, il n'osait plus le sous-estimer. Non seulement Wang Li
 
 Bien que ce sentiment ne fût pas écrasant, il était bien réel. En tant que disciple de la Secte du Destin Céleste et de l'Omniscient, ses connaissances étaient vastes; il savait naturellement qu'il s'agissait là d'une manifestation du Dao!
 
-Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. Dans le monde de la culture, ceux qui possèdent leur propre Dao le conservent en leur cœur, atteignent l'éveil et parviennent à ne faire qu'un avec lui. Ces êtres ont la capacité de bâtir les fondations de ce monde!
+Dégager une telle sensation signifiait que Wang Lin possédait son propre Dao. Dans le monde de la culture, ceux qui possèdent leur propre Dao le conservent en leur cœur, atteignent l'éveil et parviennent à ne faire qu'un avec lui. Ces êtres ont le droit de fonder leur propre école!
 
 En vérité, tous les cultivateurs possèdent un Dao, mais le condenser sous une forme corporelle est une tâche extrêmement ardue.
 
 « Il... il a déjà atteint ce niveau... » L'homme en bleu fut envahi par une profonde mélancolie. À cet instant, il en oublia la graine dans son corps. Sa seule pensée était de comparer le Wang Lin d'autrefois — un sauvage issu d'une planète de culture déclinante comme Suzaka, moqué par tous — et l'homme qu'il était devenu: un être doté de son propre Dao, digne d'être considéré comme un grand maître de sa génération.
 
-Tandis que Wang Lin continuait d'avancer, l'ombre se rapprochait rapidement. Lorsqu'elle fut à moins de trente mètres, l'assaillant déclencha divers sorts liés aux bêtes. Ces sortilèges se transformèrent en créatures féroces qui ouvrirent leurs mâchoires pour dévorer Wang Lin.
+Tandis que Wang Lin continuait d'avancer, l'ombre se rapprochait rapidement. Lorsqu'elle fut à trente-trois mètres, l'assaillant déclencha divers sorts liés aux bêtes. Ces sortilèges se transformèrent en créatures féroces qui ouvrirent leurs mâchoires pour dévorer Wang Lin.
 
 « Sans le domaine d'un Ascendant, même avec la puissance d'un Ascendant, on n'est qu'une coquille vide. Un seul coup... »
 

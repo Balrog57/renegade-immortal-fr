@@ -10,7 +10,7 @@ Wang Lin avait déjà enseigné à Ouyang Hua la méthode de fabrication des dra
 
 Lorsqu'il en réalisa l'enjeu, Wang Lin prit le temps de réfléchir soigneusement à une solution. Il parvint à utiliser certains arbres d'acier, des peaux de bêtes et quelques sceaux pour créer un objet capable d'imiter l'effet recherché.
 
-Ce drapeau substitut ne pouvait sceller que dix âmes, ce qui signifiait qu'il s'agissait d'un drapeau d'âmes à dix unités.
+Ce drapeau substitut ne pouvait retenir les âmes que pendant moins de dix jours; c'était donc un drapeau de dix jours.
 
 Mais cet objet compensait par la quantité, car on pouvait utiliser dix de ces drapeaux simultanément. Bien qu'il ne fût pas aussi puissant qu'un drapeau d'âmes à cent âmes, il en possédait tout de même la moitié de la puissance.
 
@@ -26,7 +26,7 @@ Treize se tint rapidement devant Wang Lin. Il ne ressentait que respect et admir
 
 Plus il pratiquait le sort d'affinement des âmes, plus l'émerveillement grandissait en son cœur. Durant les trois mois passés à étudier ce sort, il en était venu à la conclusion que s'il parvenait à le maîtriser pleinement, sa puissance dépasserait l'imagination.
 
-Drapeau d'âmes à 10 âmes; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes...
+Drapeau de dix jours; drapeau d'âmes à 100 âmes; drapeau d'âmes à 1 000 âmes; drapeau d'âmes à 10 000 âmes...
 
 Treize prit une profonde inspiration, une lueur d'excitation brillant dans ses yeux.
 
@@ -60,7 +60,7 @@ Wang Lin dit d'une voix lente: « Regarde-le. Tu as déjà atteint le troisième
 
 Ouyang Hua ramassa rapidement le jade et le pressa contre son front. Peu après, il prit une profonde inspiration et dit respectueusement: « Ce junior partira chercher les matériaux nécessaires à sa fabrication. »
 
-Puis, après une courte réflexion, il ajouta: « Suprême Céleste, une fois que Treize et moi aurons réussi à fabriquer nos drapeaux d'âmes, je prévois d'attaquer une grotte située à 500 kilomètres d'ici. Une autre tribu s'y trouve, composée d'une dizaine de personnes. »
+Puis, après une courte réflexion, il ajouta: « Suprême Céleste, une fois que Treize et moi aurons réussi à fabriquer nos drapeaux d'âmes, je prévois d'attaquer une grotte située à 500 kilomètres d'ici. Une autre tribu s'y trouve, composée de plusieurs dizaines de personnes. »
 
 L'expression de Wang Lin resta imperturbable alors qu'il répondait: « Fais ce que tu souhaites! »
 
@@ -72,7 +72,7 @@ Durant ce mois de préparation, tous les hommes étaient débordants d'énergie 
 
 L'affinité de l'enfant pour le sort d'affinement des âmes se manifesta une fois de plus. Après trois échecs, il réussit enfin à fabriquer son premier drapeau d'âmes.
 
-Ce premier drapeau provoqua un grand tumulte dans la vallée. Tout le monde entoura Treize, et le petit drapeau de sept pouces qu'il tenait devint le centre de tous les regards.
+Ce premier drapeau provoqua un grand tumulte dans la vallée. Tout le monde entoura Treize, et le drapeau d'environ 2,3 mètres qu'il tenait devint le centre de tous les regards.
 
 Treize était transporté par cette attention.
 
@@ -110,7 +110,7 @@ La férocité dans ses yeux s'était muée en une intention meurtrière.
 
 Le visage de Treize se décomposa. Il brandit le drapeau et cria: « Retour! »
 
-L'âme du lion ignora totalement l'ordre et chargea, provoquant la dispersion générale. Ouyang Hua serra les dents et s'élança à son tour, tenant désormais un petit drapeau de trois pouces.
+L'âme du lion ignora totalement l'ordre et chargea, provoquant la dispersion générale. Ouyang Hua serra les dents et s'élança à son tour, tenant désormais un petit drapeau d'environ dix centimètres.
 
 D'un mouvement sec, une lueur verte jaillit et un petit oiseau semblable à un moineau s'envola pour charger le lion.
 
@@ -132,7 +132,7 @@ S'il ne s'effondra pas, ce n'était pas par force, mais parce que Wang Lin ne le
 
 La charge s'interrompit net et, sans la moindre hésitation, le lion poussa un cri misérable avant de faire demi-tour pour fuir. À cet instant, une silhouette émergea du fond de la vallée.
 
-D'un seul pas, Wang Lin franchit des dizaines de pieds et apparut dans le ciel.
+D'un seul pas, Wang Lin franchit des dizaines de mètres et apparut dans le ciel.
 
 Le corps du fragment d'âme du lion tremblait. Il sentait émaner de l'homme devant lui une puissance à laquelle il ne pouvait absolument pas résister.
 
@@ -150,4 +150,4 @@ Si ces deux-là étaient ainsi impressionnés, il n'était même pas nécessaire
 
 En vérité, si le fragment d'âme du lion craignait autant Wang Lin, c'était principalement à cause de la faille fatale que ce dernier avait laissée dans le sort et le drapeau d'âmes.
 
-Tous les fragments d'âmes scellés par ceux qui pratiquaient le sort modifié par Wang Lin pouvaient être supprimés et contrôlés par lui!
+Tous les fragments d'âmes scellés par ceux qui pratiquaient le sort modifié par Wang Lin pouvaient être entièrement contrôlés et tenus en respect par lui!

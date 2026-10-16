@@ -24,7 +24,7 @@ La blessure infligée au corps original était bien plus lourde que celle de Wan
 
 Wang Lin prit une profonde inspiration. Il frappa ensuite son sac de rangement et en sortit un jade. Après y avoir laissé un message, il le lança vers le ciel; l'objet disparut dans une traînée de lumière.
 
-Une fois cela fait, Wang Lin s'assit près de la pagode et activa un fragment du domaine de Zhou Yi. À moins qu'un cultivateur Ascendant ne se présente, nul autre ne pourrait l'approcher.
+Une fois cela fait, Wang Lin s'assit près de la pagode et activa un fragment du domaine de Zhou Yi. Dans un rayon de cinquante kilomètres, à moins qu'un cultivateur Ascendant ne se présente, nul autre ne pourrait l'approcher.
 
 C'est ainsi que Wang Lin ferma les yeux et soigna ses blessures en silence.
 
@@ -47,7 +47,7 @@ Après en avoir discuté, Tie Yan était venu. Son Sens Divin restait verrouill�
 
 La guérison de Wang Lin se poursuivait. La neige autour de la pagode s'était déjà transformée en eau et avait été absorbée par la terre.
 
-Le corps original, quant à lui, se trouvait à des milliers de kilomètres sous la surface. Durant ces six mois, il s'était enfoncé trois fois plus profondément, s'enfonçant de plusieurs milliers de kilomètres à chaque étape. Il avait déjà parcouru le cinquième du chemin vers le noyau de la planète.
+Le corps original, quant à lui, se trouvait à des milliers de kilomètres sous la surface. Durant ces six mois, il s'était enfoncé à trois reprises, de plusieurs milliers de kilomètres à chaque étape. Il avait déjà parcouru le cinquième du chemin vers le noyau de la planète.
 
 Il était vrai que les Dieux Anciens grandissaient au combat. Après cette lutte acharnée, le corps original montrait des signes de percée. Bien que le processus fût lent, il avait déjà atteint le sommet du stade à deux étoiles. La troisième transformation n'était plus très loin.
 
@@ -79,7 +79,7 @@ L'Ancien Hu hocha la tête: « La Secte du Ciel Nuageux se spécialise dans l'al
 
 Xu Luo esquissa un léger sourire. Il était certain que la Secte du Ciel Nuageux leur remettrait immédiatement des pilules pour garantir leur propre sécurité.
 
-Alors qu'ils volaient, un pilier de lumière jaillit dans le ciel. De leur position, le pilier ne semblait pas plus épais que le poing d'un nourrisson, mais s'ils avaient été plus proches, il aurait été infiniment plus imposant.
+Alors qu'ils volaient, un pilier de lumière jaillit dans le ciel. De leur position, le pilier ne semblait pas plus épais que le bras d'un nourrisson, mais s'ils avaient été plus proches, il aurait été infiniment plus imposant.
 
 L'Ancien Hu se tourna brusquement vers la colonne lumineuse. Malgré son expérience, il fut frappé de stupeur. Le vieil homme qui suivait la femme eut également les yeux illuminés par la surprise en contemplant le phénomène. Ce pilier de lumière émanait du centre de Chu, là où se trouvait la Tour Céleste.
 

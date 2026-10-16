@@ -44,7 +44,7 @@ Liu Mei mordit sa lèvre inférieure, secoua la tête et murmura: « Je ne peux 
 
 Wang Lin regarda Liu Mei et éclata de rire. « Le Domaine de la Cruauté des Mille Illusions... Liu Mei, crois-tu vraiment que je n'ai pas encore percé ton jeu? »
 
-Liu Mei resta calme et sourit. « Bien sûr que non. Je sais que ce cultivateur aux grandes oreilles n'est venu combattre que pour toi. »
+Liu Mei resta calme et sourit. « Bien sûr que non. Je pense que ce cultivateur aux grandes oreilles voulait que tu comprennes mon domaine, et c'est pour cela que tu es venu me rencontrer. »
 
 « C'est exact; mon domaine est le Domaine de la Cruauté des Mille Illusions. Ton domaine de la vie et de la mort est l'une des choses les plus impitoyables sous les cieux. Les cieux doivent être impitoyables, sans quoi ils ne pourraient engendrer de Daos. Wang Lin, sur un plan fondamental, nous sommes semblables! »
 
@@ -102,7 +102,7 @@ Une autre explosion tellurique secoua le monde. La lance, telle un dragon féroc
 
 Bien que le paon fût toujours magnifique, ses couleurs s'étaient ternies. Le visage de Liu Mei était blême lorsqu'elle murmura: « Ce trésor n'est ni un pseudo-trésor céleste, ni un trésor céleste... il est très étrange! »
 
-Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de trente pieds apparut dans sa paume.
+Alors qu'il rejetait sa lance, Wang Lin recula promptement et tendit la main; soudain, une bannière de dix mètres de haut apparut dans sa paume.
 
 À l'instant où la bannière se manifesta, la froideur dans le regard de Liu Mei s'intensifia. Elle fixa la bannière d'âme et murmura: « Je ne m'attendais pas à ce que le Senior Du Tian vous remette réellement la Bannière d'Âme du Milliard d'Âmes. Cependant, Wang Lin, je savais déjà que tu la possédais, sans quoi je n'aurais pas choisi de t'attendre sur cet autel. »
 
@@ -120,9 +120,9 @@ Tandis que Wang Lin la fixait, sa main droite se crispa et la Bannière d'Âme d
 
 Dès son apparition, le parchemin libéra une puissance mystérieuse qui enveloppa toute la zone.
 
-Les yeux de Liu Mei s'illuminèrent; elle prit une profonde inspiration, s'assit en tailleur sur l'autel et ferma les yeux. Au même instant, le paon devant elle poussa un cri strident et s'éleva dans les airs pour se placer directement au-dessus d'elle. Son corps s'étendit soudainement, transformant l'oiseau en une créature de cent pieds de haut.
+Les yeux de Liu Mei s'illuminèrent; elle prit une profonde inspiration, s'assit en tailleur sur l'autel et ferma les yeux. Au même instant, le paon devant elle poussa un cri strident et s'éleva dans les airs pour se placer directement au-dessus d'elle. Son corps s'étendit soudainement, transformant l'oiseau en une créature d'une quarantaine de mètres de haut.
 
-Ses plumes de queue étaient désormais si vastes qu'elles couvraient presque toute la chaîne de montagnes.
+Ses plumes de queue étaient désormais si vastes qu'elles couvraient presque toute la vallée.
 
 « Mon domaine est le Domaine de la Cruauté des Mille Illusions. Chaque plume de ce paon représente une illusion. En vérité, mon domaine ne possède pas encore mille illusions; il n'en a que 999. Une fois que j'aurai obtenu la dernière, mon domaine atteindra le stade avancé de la Transformation de l'Âme. Wang Lin, donne-moi cette ultime illusion, d'accord? » La voix de Liu Mei résonnait depuis le paon.
 

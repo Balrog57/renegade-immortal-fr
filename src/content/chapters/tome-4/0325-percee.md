@@ -36,7 +36,7 @@ Une fois le stade de la Formation de l'Âme atteint, la compréhension de son pr
 
 C'est comme si un récipient n'avait qu'une certaine capacité de liquide selon sa taille. Cependant, la percée du domaine revient à augmenter la taille du récipient. Bien qu'il n'y ait toujours qu'une quantité limitée de liquide à l'intérieur, cette capacité peut désormais croître. Lorsque le volume de liquide atteint la limite du nouveau récipient, alors votre culture fera une percée.
 
-À cet instant, Lin Tianhou vola rapidement vers la femme. Il tendit la main, visant les deux épées célestes.
+À cet instant, Ling Tianhou vola rapidement vers la femme. Il tendit la main, visant les deux épées célestes.
 
 Zhou Yi regardait avec stupéfaction la femme qui chutait. Son esprit était totalement vide; aucune pensée ne traversait son cerveau. Cependant, l'action du vieil homme fut comme une décharge d'eau froide sur un feu ardent. Cela attisa sa rage.
 
@@ -86,13 +86,13 @@ Sept personnes apparurent derrière lui, le regard brillant de cupidité. Ils ne
 
 Il y avait au moins cent cultivateurs aux alentours, tous au stade de la Formation de l'Âme au minimum. Ce n'était pas une situation qu'il pouvait gérer seul.
 
-Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « Le Secte Hun Yuan n'est que de la vermine! Cher compagnon, donnez-moi une épée et mon Secte du Démon Céleste assurera votre sécurité! »
+Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard méprisant à la Secte Hun Yuan et déclara: « La Secte Hun Yuan n'est que de la vermine! Cher compagnon, donnez-moi une épée et ma Secte du Démon Céleste assurera votre sécurité! »
 
-« Les sectes Hun Yuan et Sky Devil ne sont que des tas de clowns. Ces deux épées célestes appartiennent à mon Secte de l'Éternité du Ciel et de la Terre! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
+« Les sectes Hun Yuan et Démon Céleste ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte de l'Éternité du Ciel et de la Terre! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
 
 Ce mouvement déclencha une réaction en chaîne. Plus de cent cultivateurs se mirent à charger Wang Lin simultanément.
 
-Wang Lin fronça les sourcils. Le premier assaillant était déjà devant lui. C'était un homme très âgé aux cheveux blancs, dont le regard trahissait une soif inextinguible pour les épées. Son niveau de culture était celui du stade intermédiaire de la Formation de l'Âme.
+Wang Lin fronça les sourcils. Le premier assaillant était déjà devant lui. C'était un homme très âgé aux cheveux gris, dont le regard trahissait une soif inextinguible pour les épées. Son niveau de culture était celui du stade intermédiaire de la Formation de l'Âme.
 
 Dès que le vieil homme fut à portée, les yeux de Wang Lin s'illuminèrent. Il savait qu'il ne pouvait pas battir en retraite; faire marche arrière maintenant le condamnerait. Il leva la main et pointa le vieillard. Son domaine de la vie et de la mort frappa.
 

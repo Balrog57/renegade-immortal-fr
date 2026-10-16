@@ -16,15 +16,15 @@ Wang Lin resta immobile tout en observant les environs, son expression demeurant
 
 Cette personne possédait une chevelure rouge dont les mèches s'agitaient sans aucun vent; on aurait dit une multitude de tentacules en mouvement. Elle avait les bras croisés sur la poitrine et deux lueurs fantomatiques apparurent sur son visage chaotique.
 
-Une voix froide émana de la bouche de la silhouette de feu. « Je suis le gardien de l'épreuve terrestre. Vainquez-moi et vous pourrez poursuivre. »
+Une voix froide émana de la bouche de la silhouette de feu. « Je suis le dixième gardien de l'épreuve terrestre. Vainquez-moi et vous pourrez poursuivre. »
 
 Wang Lin regarda calmement la silhouette, puis sans un mot, il chargea. Ses mains formèrent un sceau avant qu'il ne projette sa paume en avant.
 
 Une puissance immense surgit soudain de Wang Lin et se rassembla devant lui.
 
-Wang Lin murmura: « Brise! » Son corps brilla d'une lueur dorée et les yeux de la silhouette de feu s'illuminèrent soudainement. La créature recula précipitamment en croisant ses bras pour bloquer l'impact.
+Wang Lin murmura: « Brise! » Son corps brilla d'une lueur dorée et les yeux de la silhouette de feu s'illuminèrent soudainement. La créature recula précipitamment, décroisa aussitôt les bras et frappa vers l'avant.
 
-Dans un fracas assourdissant, le sable fut balayé et des fissures apparurent sur la terre, se propageant rapidement à travers le sol. La silhouette de feu recula brusquement. Ses deux mains étaient dans un état lamentable, couvertes de sang. Une fois stabilisée, elle fixa Wang Lin de ses yeux ardents.
+Dans un fracas assourdissant, le sable fut balayé et des fissures apparurent sur la terre, se propageant rapidement à travers le sol. La silhouette de feu recula brusquement sur plus d'une centaine de mètres. Ses deux mains étaient dans un état lamentable, couvertes de sang. Une fois stabilisée, elle fixa Wang Lin de ses yeux ardents.
 
 Wang Lin s'arrêta et plaça sa main derrière son dos. Il regarda la silhouette et dit calmement: « Retirez-vous! »
 
@@ -42,7 +42,7 @@ Wang Lin observa calmement l'horizon. Il y aurait probablement d'autres défis d
 
 En un instant, son regard s'éclaircit, ses sourcils se relevèrent et le sourire revint sur son visage. Sans se retourner, il dit doucement: « Troisième frère apprenti junior, je ne t'ai pas vu depuis de nombreux jours. Ton voyage s'est-il bien déroulé? »
 
-« Puisque mon frère aîné pense à moi, mon voyage fut, bien sûr, sans encombre, » répondit une voix féminine au loin.
+« Puisque mon frère aîné pense à moi, mon voyage fut, bien sûr, sans encombre, » répondit une voix doucereuse au loin.
 
 Au même moment, un jeune homme vêtu de blanc s'avança. Après quelques pas, il arriva sous l'arbre Bodhi. Cette personne n'était autre que le jeune homme que Wang Lin avait rencontré sur la planète commerciale: Bai Wei!
 
@@ -76,7 +76,7 @@ Durant ces 30 jours, Wang Lin avait sans cesse médité sur les mystères de l'�
 
 Le temps s'écoulait lentement. Wang Lin en avait oublié la notion même. Il restait là, immobile, sans jamais déployer son domaine.
 
-Wang Lin n'était pas pressé; en restant ainsi assis, il eut le sentiment vague d'avoir atteint la limite de quelque chose. En fusionnant tous les cycles et expériences traversés, le mot "Dao" apparut lentement dans son âme.
+Wang Lin n'était pas pressé; en restant ainsi assis, il eut le sentiment vague d'avoir atteint la limite de quelque chose. En combinant les expériences des épreuves de l'Humain et de la Terre, le mot "Dao" apparut lentement dans son âme.
 
 C'était le 51e jour que Wang Lin passait dans l'épreuve céleste. Ce jour-là, il ouvrit les yeux et s'éveilla de sa culture.
 
@@ -118,7 +118,7 @@ La tour semblait être la source de tout le pourpre du monde; sa simple vue fais
 
 « Jeune frère apprenti Wang Lin, suis-moi! » Zhao Xingsha fondit droit vers le sommet et Wang Lin le suivit de près.
 
-D'innombrables disciples de la Secte Céleste cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins 10 000 personnes.
+D'innombrables disciples de la Secte Céleste cultivaient au sommet de la montagne et au pied de la tour. En les observant, on pouvait compter au moins plusieurs dizaines de milliers de personnes.
 
 À l'arrière de la montagne, d'innombrables demeures couvraient l'ensemble du relief. Des disciples y étudiaient le Dao, pratiquaient des techniques ou s'adonnaient à la culture.
 

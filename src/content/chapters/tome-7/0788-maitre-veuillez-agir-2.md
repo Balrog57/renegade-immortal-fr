@@ -8,7 +8,7 @@ slug: maitre-veuillez-agir-2
 ---
 Wang Lin avait déjà saisi Li Yuan et s'était retiré dès l'apparition de l'homme aux cheveux blancs. Ils reculèrent de plus de 500 mètres. En entendant les cris incessants des cultivateurs qui mouraient, l'expression de Wang Lin devint extrêmement sombre.
 
-En voyant apparaître Shengong Hu et sa compagnie, Wang Lin hésita. Cependant, il jeta un regard à Li Yuan et n'acta rien.
+En voyant apparaître Shengong Hu et sa compagnie, Wang Lin hésita. Cependant, il jeta un regard à Li Yuan et n'agit pas.
 
 À ses côtés, le visage de Li Yuan était d'une pâleur extrême.
 
@@ -16,7 +16,7 @@ En voyant apparaître Shengong Hu et sa compagnie, Wang Lin hésita. Cependant, 
 
 Wang Lin réfléchissait silencieusement. Cet homme aux cheveux blancs était trop puissant. Il l'avait secrètement comparé à l'Ancêtre de Sang, et à en juger par le niveau de culture de cet individu, il était encore plus fort que l'Ancêtre de Sang.
 
-Mais ce n'était pas là le point crucial. Chaque fois que l'homme aux cheveux blancs dévorait un cultivateur, sa culture augmentait. Ainsi, Wang Lin pouvait deviner jusqu'à quel niveau de culture cette personne pourrait atteindre.
+Mais ce n'était pas là le point crucial. Chaque fois que l'homme aux cheveux blancs dévorait un cultivateur, sa culture augmentait. Wang Lin était incapable de calculer jusqu'à quel niveau de culture cette personne pourrait atteindre.
 
 Wang Lin regarda Li Yuan et demanda soudain: « Frère Li, croyez-vous en moi? »
 
@@ -36,7 +36,7 @@ S'il n'y avait pas eu Li Yuan, Wang Lin était convaincu qu'il serait mort lors 
 
 Après une profonde inspiration, Wang Lin recula lentement et ouvrit son cœur. En se remémorant le sentiment de fusion avec le monde, des ondulations apparaissaient à chacun de ses pas.
 
-Après avoir reculé d'une dizaine de pas, ce sentiment de fusion avec le monde ne s'était toujours pas manifesté. Voyant que la porte céleste était sur le point de disparaître et entendant les hurlements des cultivateurs mourants, Wang Lin réprima son anxiété et calma son esprit.
+Après avoir reculé de plusieurs dizaines de pas, ce sentiment de fusion avec le monde ne s'était toujours pas manifesté. Voyant que la porte céleste était sur le point de disparaître et entendant les hurlements des cultivateurs mourants, Wang Lin réprima son anxiété et calma son esprit.
 
 Il ne pensait à rien d'autre qu'à apaiser son âme.
 
@@ -58,7 +58,7 @@ Tous les sorts d'origine et les trésors magiques restaient sans effet sur l'éc
 
 L'épée volante de Shengong Hu percuta l'écran de lumière et se brisa instantanément, centimètre par centimètre. Le contrecoup fit cracher du sang à Shengong Hu, qui fut contraint de reculer immédiatement.
 
-Non seulement lui, mais Zhang Konglie, Tang Yanfeng et les deux autres cultivateurs du Corps Yang crachèrent également du sang et furent repoussés violemment. Quant aux cultivateurs de l'Yin Illusoire, leurs âmes d'origine furent secouées et leurs corps projetés en arrière.
+Non seulement lui, mais Zhan Konglie, Tang Yanfeng et les deux autres cultivateurs du Corps Yang crachèrent également du sang et furent repoussés violemment. Quant aux cultivateurs de l'Yin Illusoire, leurs âmes d'origine furent secouées et leurs corps projetés en arrière.
 
 L'homme aux cheveux blancs, derrière l'écran de lumière, afficha un sourire sanguinaire et dit d'une voix rauque: « Oui, voilà qui est un peu plus intéressant. Cependant, comparés à l'armée céleste, vous, les jeunes, êtes trop faibles, trop faibles, trop faibles! Vous n'êtes même pas dignes que j'utilise mon Royaume Ji! »
 
@@ -72,7 +72,7 @@ Alors que l'homme aux cheveux blancs riait, sa silhouette vacilla et il apparut 
 
 « Le Dao fusionné avec le monde! » Au moment où il se retourna, le cultivateur qui avait perdu son corps fit exploser son âme d'origine. Cependant, l'homme aux cheveux blancs n'en eut cure et fusionna lui aussi avec le monde. Des ondulations apparurent sous ses pieds et son corps disparut instantanément.
 
-« Même de nombreux êtres du Royaume Céleste de l'époque n'avaient pu atteindre la fusion du Dao avec le monde! Pourtant, cet individu ne la maîtrise pas encore totalement! » L'ancien aux cheveux blancs réapparut à mille pieds de la porte céleste, ses yeux brillant d'une lueur étrange. Sa main droite s'élança impitoyablement vers le vide.
+« Même de nombreux êtres du Royaume Céleste de l'époque n'avaient pu atteindre la fusion du Dao avec le monde! Pourtant, cet individu ne la maîtrise pas encore totalement! » L'ancien aux cheveux blancs réapparut à 330 mètres de la porte céleste, ses yeux brillant d'une lueur étrange. Sa main droite s'élança impitoyablement vers le vide.
 
 « Sors de là! »
 
@@ -80,9 +80,9 @@ Cinq immenses fissures spatiales apparurent soudainement dans le monde. Ces fail
 
 Une puissance manifestement distincte de l'énergie spirituelle céleste et de l'énergie d'origine jaillit de l'homme aux cheveux blancs pour pénétrer les fissures. À cet instant, tous les cultivateurs eurent l'illusion que le monde entier tremblait violemment.
 
-Le visage de Shengong Hu était livide, tout comme celui de Zhang Konglie à ses côtés. Tang Yanfeng serra les poings. Les trois hommes se regardèrent et virent la peur cachée au plus profond des yeux de chacun.
+Le visage de Shengong Hu était livide, tout comme celui de Zhan Konglie à ses côtés. Tang Yanfeng serra les poings. Les trois hommes se regardèrent et virent la peur cachée au plus profond des yeux de chacun.
 
-Un gémissement étouffé émana du vide devant l'ancien. Puis, la silhouette de Wang Lin apparut à 500 pieds de la porte céleste. Il tenait Li Yuan, dont les orifices saignaient et dont les yeux étaient emplis de confusion.
+Un gémissement étouffé émana du vide devant l'ancien. Puis, la silhouette de Wang Lin apparut à 165 mètres de la porte céleste. Il tenait Li Yuan, dont les orifices saignaient et dont les yeux étaient emplis de confusion.
 
 Dès son apparition, Li Yuan cracha une grande quantité de sang. Il était évident qu'il ne pouvait supporter le sort de Wang Lin.
 
@@ -94,7 +94,7 @@ L'ancien aux cheveux blancs ricana, fit un pas en avant et disparut instantaném
 
 Un grondement colossal explosa soudainement dans le vide. Ce son fut si terrifiant qu'il fit pousser des cris de stupeur chez tous les cultivateurs environnants.
 
-Les yeux de Shengong Hu se rétrécirent tandis qu'il fixait Wang Lin avec une lueur de joie. Zhang Konglie éprouvait le même sentiment.
+Les yeux de Shengong Hu se rétrécirent tandis qu'il fixait Wang Lin avec une lueur de joie. Zhan Konglie éprouvait le même sentiment.
 
 « C'est lui! » Tang Yanfeng fronça les sourcils. Il reconnut en Wang Lin ce "Xu Mu" contre lequel il n'avait aucune confiance de l'emporter.
 
@@ -122,6 +122,6 @@ Shengong Hu ouvrit soudainement les yeux, le regard empreint d'attente.
 
 « Mon Seigneur, veuillez agir!! »
 
-Zhang Konglie restait extrêmement vigilant et songea: « Cet étrange homme est trop puissant. J'ignore seulement si mon Senior l'est davantage! »
+Zhan Konglie restait extrêmement vigilant et songea: « Cet étrange homme est trop puissant. J'ignore seulement si mon Senior l'est davantage! »
 
 Quant à Tang Yanfeng, il ricana en fixant Wang Lin et pensa au plus profond de lui: « Bien que cet homme soit fort, même avec nous cinq et de nombreux cultivateurs de l'Yin Illusoire, nous n'étions pas de taille face à cet étrange individu. Il possède le même niveau de culture que moi et mourra sans aucun doute! Je veux voir comment il sera terrassé; cela m'épargnera bien des soucis à l'avenir! »

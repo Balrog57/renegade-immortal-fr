@@ -12,7 +12,7 @@ Ces deux mots parvinrent aux oreilles de Wang Lin, faisant s'assombrir son regar
 
 Une quantité massive d'énergie spirituelle fut transférée des dix fragments d'âme vers Wang Lin à travers les lignes d'or et de pourpre. L'énergie spirituelle jaillit et parcourut les veines de Wang Lin.
 
-Wang Lin sentit toutes les spores sur son corps s'ouvrir, tandis que les impuretés les plus profondément enfouies en lui étaient expulsées de force.
+Wang Lin sentit tous les pores de son corps s'ouvrir, tandis que les impuretés les plus profondément enfouies en lui étaient expulsées de force.
 
 Des vagues de fraîcheur envahirent son corps comme une brise printanière, lui procurant un immense confort.
 
@@ -50,7 +50,7 @@ Il n'y avait plus de distinction entre corps primaire et secondaire entre l'orig
 
 Une connexion mystérieuse liait l'avatar au corps originel, raison pour laquelle ce dernier avait été blessé lorsque son âme originelle s'était effondrée. Par cette même connexion occulte, le corps originel absorbait l'énergie spirituelle de son avatar avec une frénésie dévorante.
 
-L'absorption du corps originel était plusieurs fois plus puissante que celle de l'avatar. Après tout, le corps originel suivait la voie des anciens dieux, qui dévoraient l'énergie spirituelle pour survivre.
+L'absorption du corps originel était incomparablement plus puissante que celle de l'avatar. Après tout, le corps originel suivait la voie des anciens dieux, qui dévoraient l'énergie spirituelle pour survivre.
 
 Les dix fragments d'âme autour de Wang Lin tremblèrent, et le lien entre eux et lui se renforça de multiples plis alors qu'ils ressentaient la puissante force de succion émanant de Wang Lin.
 
@@ -66,11 +66,11 @@ Le corps originel reposait au sein du cocon tandis qu'une autre étoile apparais
 
 Wang Lin n'était pas un homme cupide. À cet instant, il ouvrit les yeux et cessa d'absorber.
 
-Du Tian poussa un soupir de soulagement. Il agita rapidement le drapeau de trente pieds qu'il tenait, faisant revenir les dix âmes. Il adressa un sourire amer à Wang Lin et dit: « Petit ami Ceng Niu, tu n'as vraiment pas retenu tes efforts. »
+Du Tian poussa un soupir de soulagement. Il agita rapidement le drapeau de plus de dix mètres qu'il tenait, faisant revenir les dix âmes. Il adressa un sourire amer à Wang Lin et dit: « Petit ami Ceng Niu, tu n'as vraiment pas retenu tes efforts. »
 
-Les yeux de Wang Lin s'illuminèrent. Il se leva, sentant la puissance de l'énergie spirituelle qui coulait dans son corps. Il se tourna vers Xue Yue, le regard glacial.
+Les yeux de Wang Lin s'illuminèrent. Il se leva, sentant la puissance de l'énergie spirituelle qui coulait dans son corps. Il tourna son regard glacial vers le pays de Xue Yue.
 
-La personnalité de Wang Lin était d'une grande fermeté. Il ne importunait personne s'il était laissé en paix, mais si quelqu'un s'en prenait à lui, il rendrait la pareille dix... cent fois! C'était un homme qui n'oubliait jamais sa vengeance!
+La personnalité de Wang Lin était d'une grande fermeté. Il n'importunait personne s'il était laissé en paix, mais si quelqu'un s'en prenait à lui, il rendrait la pareille dix... cent fois! C'était un homme qui n'oubliait jamais sa vengeance!
 
 « Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Du Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
 

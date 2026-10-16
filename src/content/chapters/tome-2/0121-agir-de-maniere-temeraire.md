@@ -18,7 +18,7 @@ Sur la Planète Suzaku, les ordres du pays Suzaku sont des commandements divins.
 
 La Planète Suzaku compte dix-huit pays de culture de rang 5. Chaque fois qu'un pays remplit les conditions pour atteindre ce rang, le pays Suzaku lui offre dix champs de bataille étrangers. Cela signifie qu'il n'existe que 180 champs de bataille étrangers sur la Planète Suzaku. Si l'un d'eux s'effondre, il y en aura définitivement un de moins, à moins que l'on ne soit prêt à en racheter un auprès du pays de rang 6 à un prix exorbitant.
 
-Quant à la formation de ces champs de bataille et aux destinations de ces failles spatiales, aucun habitant des pays de rang 5 n'en connaît la nature.
+Quant à la formation de ces champs de bataille et aux destinations de ces failles spatiales, aucun habitant des pays de rang 5 n'en connaît la nature. On dit que le sort permettant d'ouvrir ces champs de bataille est transmis par l'Union à tout pays qui atteint le rang 6, avec l'interdiction stricte de le révéler aux pays de rang 5 et inférieur, sous peine d'être radié.
 
 Chaque pays de rang 5 contrôle de nombreux pays de rang 4, et chaque pays de rang 4 en contrôle de nombreux de rang 3. Quant aux pays de rang 1 et 2, l'Union a instauré des règles strictes pour empêcher quiconque d'entraver leur croissance.
 
@@ -28,7 +28,7 @@ Chaque fois qu'une bataille de grande ampleur éclate dans un champ de bataille 
 
 En réalité, ce sort touche presque tous les pays de culture de rang 3.
 
-C'est la sélection naturelle. Un monde où la loi du plus fort fait rage. L'ordre d'un puissant est une sentence que l'infirme doit suivre sans pouvoir s'y opposer. Peut-être est-ce parce qu'ils doivent survivre dans ce monde cruel que les cultivateurs s'adaptent plus vite que les mortels.
+C'est la sélection naturelle. Un monde où la loi du plus fort fait rage. L'ordre d'un puissant est une sentence que l'infirme doit suivre sans pouvoir s'y opposer. Peut-être est-ce parce qu'ils doivent survivre dans ce monde cruel que les cultivateurs deviennent plus opportunistes que les mortels.
 
 Ou peut-être, aux yeux de ceux qui siègent au sommet de l'Union, cet univers n'est qu'un immense chaudron de raffinage. Que ce soient les mortels ou les cultivateurs, tous sont raffinés sans pitié. Dans l'Antiquité, la culture se concentrait sur la compréhension des cieux et la poursuite du propre Dao de chacun. Les cultivateurs dégageaient une aura d'élégance et de divinité.
 
@@ -49,7 +49,7 @@ Dès l'apparition des trois âmes gigantesques, Wang Lin les remarqua immédiate
 Wang Lin n'était pas pressé. Il s'assit en tailleur pour s'acclimater à ce corps étranger. Plusieurs créatures mystérieuses passèrent près de lui; elles hésitèrent un instant, mais ne purent résister à la tentation et bondirent vers lui.
 
 Lorsqu'elles furent à une dizaine de mètres, il ouvrit les yeux et tonna:
-— Connaissez votre place!
+— Insensés, vous tenez donc tant à mourir!
 
 Son immense Sens Divin se déploya soudainement; les créatures mystérieuses, comme si elles faisaient face à leur prédateur naturel, poussèrent des cris stridents avant de se briser instantanément. Avant qu'elles ne puissent s'échapper, Wang Lin les captura et les dévora sur-le-champ. Alors qu'il s'apprêtait à en dévorer davantage, un grand Sens Divin surgit pour tenter de l'interrompre.
 
@@ -57,7 +57,7 @@ Wang Lin laissa échapper un froid renâclement. Loin de reculer, il dévora tou
 
 Bien que la majeure partie du Sens Divin de Wang Lin soit revenue dans son corps, certains fragments n'étaient pas restés dans le champ de bataille étranger et ne pouvaient donc pas lui revenir. Néanmoins, en termes de puissance, son Sens Divin était presque identique à celui qu'il possédait autrefois.
 
-— Tout le monde, je vais passer! lança-t-il en déployant sa conscience pour se mettre en mouvement.
+— Vous avez tous franchi la limite! lança-t-il en déployant sa conscience pour se mettre en mouvement.
 
 Ce déploiement couvrit instantanément tout le champ de bataille, faisant s'interrompre net les trois grands Sens Divins qui s'affairaient à manger. Peu après, chacun d'eux envoya un message vers Wang Lin.
 
@@ -78,12 +78,12 @@ Après avoir conclu cet accord, Wang Lin se dirigea vers la matrice de transfert
 
 Tout au long du trajet, Wang Lin se sentait très mal à l'aise dans ce nouveau corps. Bien que le talent et la racine spirituelle de Mai Liang fussent excellents, bien supérieurs à ceux qu'il avait autrefois, il s'agissait néanmoins d'un corps possédé. Il lui faudrait du temps pour le raffiner avant de pouvoir le maîtriser totalement.
 
-Pour l'heure, son corps était dépourvu d'énergie spirituelle et il devait compter sur son Sens Divin pour se déplacer. Sa priorité était de trouver un endroit pour une culture en vase clos afin de renforcer sa force et de fusionner cette puissance avec son immense Sens Divin, pour enfin ouvrir la voie vers Zhao.
+Pour l'heure, son corps était dépourvu d'énergie spirituelle et il devait compter sur son Sens Divin pour se déplacer. Sa priorité était de trouver un endroit pour une culture en vase clos afin de renforcer sa force et de fusionner cette puissance avec son immense Sens Divin, pour enfin retourner à Zhao et régler ses comptes.
 
-Alors qu'il volait, Wang Lin s'arrêta brusquement et regarda vers le nord-ouest. Après une courte réflexion, il changea de cap. Peu de temps après, il vit trois faisceaux de lumière foncer vers lui, poursuivis par dix âmes errantes.
+Alors qu'il volait, Wang Lin s'arrêta brusquement et regarda vers le nord-ouest. Après une courte réflexion, il changea de cap. Peu de temps après, il vit trois faisceaux de lumière foncer vers lui, poursuivis par plus de dix âmes errantes.
 
-Zhou Zihong était une disciple du Sanctuaire du Dieu de la Guerre du pays de Huo Fen. D'ordinaire très douce, elle affichait maintenant les lèvres pincées, les cheveux en désordre et le visage couvert de sueur, son énergie spirituelle étant totalement épuisée. Son visage était empreint de douleur alors qu'elle regardait ses deux frères aînés, dont les visages reflétaient la même détresse tandis qu'ils fuyaient désespérément.
+Zhou Zihong était une disciple du Temple du Dieu de la Guerre du pays de Huo Fen. D'ordinaire très douce, elle affichait maintenant les lèvres pincées, les cheveux en désordre et le visage couvert de sueur, son énergie spirituelle étant totalement épuisée. Son visage était empreint de douleur alors qu'elle regardait ses deux frères aînés, dont les visages reflétaient la même détresse tandis qu'ils fuyaient désespérément.
 
-— Je crains que nous ne soyons les trois seuls survivants du Sanctuaire du Dieu de la Guerre... lâcha Zhou Zihong dans un rire amer.
+— Je crains que nous ne soyons les trois seuls survivants du Temple du Dieu de la Guerre... lâcha Zhou Zihong dans un rire amer.
 
-Il y a trois jours, ils étaient encore dix au sein du Sanctuaire, mais qui aurait pu prédire l'effondrement soudain du champ de bataille et l'apparition de ces créatures? Tout cultivateur capturé par ces âmes errantes mourait, son essence étant dévorée jusqu'à ce que son corps ne devienne qu'une momie desséchée. Et ces créatures semblaient adorer se terrer à l'intérieur de ces cadavres. Chaque fois que les cultivateurs apercevaient un corps, ils étaient frappés de terreur.
+Il y a trois jours, ils étaient encore dix au sein du Temple, mais qui aurait pu prédire l'effondrement soudain du champ de bataille et l'apparition de ces créatures? Tout cultivateur capturé par ces âmes errantes mourait, son essence étant dévorée jusqu'à ce que son corps ne devienne qu'une momie desséchée. Et ces créatures semblaient adorer se terrer à l'intérieur de ces cadavres. Chaque fois que les cultivateurs apercevaient un corps, ils étaient frappés de terreur.

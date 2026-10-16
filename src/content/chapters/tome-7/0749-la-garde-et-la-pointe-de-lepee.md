@@ -12,7 +12,7 @@ Wang Lin savait que la méthode des 18 Pruniers Restrictifs était très célèb
 
 De nos jours, cette méthode de restriction était perdue depuis longtemps, et de nombreux maîtres des restrictions la regrettaient amèrement.
 
-La première fois que Wang Lin avait entendu parler des 18 Pruniers Restrictifs, c'était dans la grotte du Territoire de l'Esprit Démon. Lorsqu'il vit apparaître 18 restrictions au moment même où Li Yuan bougeait la main, Wang Lin commença à soupçonner quelque chose.
+La première fois que Wang Lin avait vu de vrais vestiges des 18 Pruniers Restrictifs, c'était dans la grotte du Territoire de l'Esprit Démon. Lorsqu'il vit apparaître 18 restrictions au moment même où Li Yuan bougeait la main, Wang Lin commença à soupçonner quelque chose.
 
 Ce qui renforça ses soupçons fut que lorsqu'il reçut le jade contenant les informations sur la restriction cachée, 18 statues apparurent au moment même où il l'examina!
 
@@ -38,7 +38,7 @@ Du début à la fin, la femme nommée Ge était restée silencieuse, comme si ri
 
 Après avoir rangé le jade, le regard de Wang Lin resta calme tandis qu'il marchait vers le sommet.
 
-« Les rumeurs disent que lorsque le monde est né, la loi du monde apparut. Il y a bien longtemps, cette loi se divisa en neuf parties, et l'une d'elles fut une restriction! On l'appelait aussi formation! Des noms différents, mais un sens identique! »
+« Les rumeurs disent que lorsque le monde est né, la loi du monde apparut. Il y a bien longtemps, cette loi se divisa, et l'une d'elles fut une restriction! On l'appelait aussi formation! Des noms différents, mais un sens identique! »
 
 « Le Ciel, la Terre, le Mystère et le Jaune furent les quatre grades de restrictions pendant une longue période! » Li Yuan ne se retourna pas, marchant nonchalamment vers le sommet. La femme nommée Ge le suivait, toujours dans son état second.
 
@@ -46,7 +46,7 @@ Après avoir rangé le jade, le regard de Wang Lin resta calme tandis qu'il marc
 
 « Le Frère Xu doit être perplexe de savoir comment je peux connaître tout cela. » Li Yuan enjamba un rocher saillant, puis sa main droite traça un sceau qu'il pressa indistinctement dans le vide.
 
-Cette pression fit vaciller et trembler la montagne entière. Un grondement résonna à travers les cimes et la montagne entière sembla se contracter de moitié.
+Cette pression fit vaciller et trembler la montagne entière. Un grondement résonna à travers les cimes et la montagne entière sembla se contracter de près de la moitié.
 
 Bien que l'on ne puisse toujours pas voir le sommet, il était évident que celui-ci s'était considérablement abaissé.
 
@@ -108,7 +108,7 @@ En chemin, toutes les restrictions furent brisées d'un simple revers de main de
 
 Une immense statue de pierre trônait au sommet de la montagne. C'était la sculpture d'un homme d'âge moyen et, à ses côtés, une épée volante. Une personne se tenait à la pointe de l'épée.
 
-En voyant la statue, Li Yuan fut transporté par l'excitation et accéléra inconsciemment le pas. Il s'élança et atteignit la statue en un clin d'œil. Debout devant cette sculpture de trente mètres de haut, ses yeux étaient noyés de tristesse.
+En voyant la statue, Li Yuan fut transporté par l'excitation et accéléra inconsciemment le pas. Il s'élança et atteignit la statue en un clin d'œil. Debout devant cette sculpture de plus de trente mètres de haut, ses yeux étaient noyés de tristesse.
 
 Wang Lin atteignit également le sommet et contempla la statue. Une aura naturelle émanait de la pierre, dégageant une majesté solennelle ainsi qu'une subtile sensation de restriction.
 
@@ -128,7 +128,7 @@ Lorsque l'épée chargea, tous les Êtres Célestes se dispersèrent. Elle déga
 
 Dans cet instant, il crut entendre un cri silencieux au sein de cette illusion muette.
 
-« Tant que je suis en vie, l'âme ne mourra pas! »
+« Une fois mort, mon âme ne périra pas! »
 
 Au moment où cette voix retentit, l'homme debout sur la garde de l'épée s'effondra, laissant derrière lui le serviteur posté à la pointe de l'arme. Ce dernier fixait la garde désormais vide.
 

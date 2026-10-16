@@ -25,7 +25,7 @@ Les neuf épées volantes disparurent pour redevenir des fragments d'âme.
 
 Du Tian contempla la scène et dit d'un ton amer: « Le Sceau Mystérieux de Suzaku! »
 
-Le Sceau Mystérieux de Suzaku est un sort que seule chaque génération de Suzaku peut apprendre. Il ne peut être cultivé; il est transmis par le Suzaku précédent.
+Le Sceau Mystérieux de Suzaku est un sort que seule chaque génération de Suzaku peut apprendre. Il ne peut être cultivé; chaque Suzaku le découvre à partir des reliques du premier Suzaku, dans la tombe de celui-ci.
 
 Ce sceau n'a pas été créé par le premier Suzaku; c'est un sort qui leur a été légué par l'Union de la Culture.
 
@@ -57,13 +57,13 @@ Chaque génération de Suzaku avait étudié la quatrième âme dans l'espoir de
 
 Après une courte réflexion, Zhuque Zi dit lentement: « J'ai lu les récits sur la puissance de la quatrième âme, mais je ne l'ai jamais vue de mes propres yeux. Profitant de cette occasion, je veux vraiment voir ce qui rend cette quatrième âme si spéciale! »
 
-Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière dorée et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envolat brusquement.
+Du Tian serra les dents et pointa son front de sa main gauche. Il en sortit une sphère de lumière dorée et la pressa rapidement sur l'étendard de l'âme. Le point doré et pourpre sur l'étendard s'envola brusquement.
 
 « Le monde est divisé en cinq éléments qui se neutralisent mutuellement et créent différents types de racines spirituelles. Posséder un élément signifie que l'on peut cultiver; en avoir deux signifie que l'on est intelligent; trois signifie que l'on a du talent; quatre signifie que l'on possède un talent céleste; et cinq signifie que l'on est parfait.
 
 « Les cinq éléments sont le métal, le bois, l'eau, le feu et la terre. En avoir deux est rare, en avoir trois est encore plus rare, en avoir quatre est presque inouï, et nul n'a jamais entendu parler de quelqu'un possédant les cinq.
 
-« La quatrième âme était un être rare doté de trois éléments, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut au stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
+« La quatrième âme était un être rare doté de trois éléments, mais ce talent ne s'était pas manifesté de son vivant. Il vécut comme le commun des mortels et mourut à la fin du stade de la Transformation de l'Âme, mais la Secte du Raffinement d'Âmes a raffiné son âme avec une technique spéciale pour en faire quelque chose capable de menacer même les cultivateurs Ascendants de stade avancé!
 
 « Pour capturer cette âme, il faut une détermination sans faille et il faut ouvrir le Cristal de Planète de Culture alors que sa propre espérance de vie touche à sa fin. » Ce passage des archives traversa l'esprit de Zhuque.
 
@@ -75,7 +75,7 @@ La quatrième âme ne pouvait être invoquée par des moyens ordinaires; il fall
 
 Dès que la quatrième âme apparut, elle libéra un éclat doré et pourpre aveuglant. Au cœur de cette lueur ne se trouvait qu'une seule chose: une fine aiguille.
 
-Cette aiguille n'était pas grande, à peine longue d'un pouce. Elle dégageait une aura extrêmement puissante, bien supérieure à celle de l'Épée Suzaku.
+Cette aiguille n'était pas grande, à peine longue de quelques centimètres. Elle dégageait une aura extrêmement puissante, bien supérieure à celle de l'Épée Suzaku.
 
 L'Âme de Triple Métal était un trésor céleste capable de percer toute matière, et sa force d'âme pouvait même blesser les âmes originelles.
 
@@ -93,7 +93,7 @@ D'un ton glacial, il dit: « La quatrième âme est certes puissante! Mais Du Ti
 
 Les paroles de Zhuque Zi étaient calculées. La quatrième âme qu'il voulait capturer n'était pas telle qu'elle se présentait. Il convoitait la quatrième âme dans un état bien plus puissant. La seule façon pour elle d'atteindre cette puissance était de dévorer une immense quantité de fragments d'âmes et d'âmes primaires.
 
-Il faut dire qu'en matière de ruse, Du Tian ne faisait pas le poids face à Zhuque Zi!
+Il faut dire qu'en matière de ruse, Du Tian ne faisait pas le poids face à Zhuque Zi! Il n'y avait là rien d'étonnant: la quatrième âme était convoitée depuis des générations par les Suzaku, qui avaient tout tenté pour la capturer.
 
 Du Tian fixa Zhuque Zi tandis que ce dernier pointait l'air, provoquant l'effondrement des fragments d'âmes.
 
@@ -113,17 +113,17 @@ La lueur dorée et pourpre marqua une pause dans son bourdonnement, puis fonça 
 
 Zhuque Zi soupira. Il voulait attendre que la quatrième âme ait dévoré tous les fragments avant d'utiliser la méthode conçue par les anciens Suzaku pour la capturer. Malheureusement, Du Tian l'avait empêchée de continuer son festin. Zhuque Zi ne pouvait plus rien dire sans risquer de révéler ses intentions.
 
-Zhuque Zi continua de reculer tout en pointant l'air devant lui. Une série de bruits de déchirure retentit, forçant Zhuque Zi à battre en retraite encore plus vite. De nombreuses blessures punctiformes apparurent sur son corps, laissant couler le sang.
+Zhuque Zi continua de reculer tout en pointant l'air devant lui. Une série de claquements secs retentit, forçant Zhuque Zi à battre en retraite encore plus vite. De nombreuses blessures punctiformes apparurent sur son corps, laissant couler le sang.
 
 À chaque nouveau trou, son expression se décomposait et son aura faiblissait.
 
-Cependant, son sang commença à recouvrir la quatrième âme.
+Cependant, son sang commença lentement à s'imprégner dans la quatrième âme.
 
 Le regard de Zhuque Zi devint glacial. Il frappa son sac de rangement et en sortit une petite calebasse rouge. Sa main traça un sceau et il ordonna: « Affine! »
 
-D'un seul mot, un filet de flamme blanche jaillit de la petite calebasse. Les mille pieds environnants se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Sainte Flamme Suzaku!
+D'un seul mot, un filet de flamme blanche jaillit de la petite calebasse. Les environs, sur 330 mètres à la ronde, se transformèrent instantanément en une mer de feu. Ce brasier était plus puissant encore que la Sainte Flamme Suzaku!
 
-« Voyons si ta Troisième Âme de Métal est plus forte que la Calebasse de Flammes Célestes! Je vais affiner cette quatrième âme! »
+« Voyons si ton Âme de Triple Métal est plus forte que la Calebasse de Flammes Célestes! Je vais affiner cette quatrième âme! »
 
 Au sein de l'océan de flammes, l'aiguille dorée et pourpre apparut et vira au rouge. Bien qu'elle ne fondît pas, le sang de Zhuque Zi fusionnait lentement avec la quatrième âme lors de cet affinage.
 
@@ -139,7 +139,7 @@ La main de Zhuque Zi guida ce gaz pour tracer un symbole étrange.
 
 « Ce vieil homme utilise son statut de Suzaku actuel et sacrifie 90 % de son espérance de vie restante pour ouvrir le Cristal de Planète de Culture. Je vais invoquer le domaine de "stase" que l'Union de la Culture nous a offert! » Sa main droite pointa le symbole, qui s'envola rapidement pour s'immobiliser à 10 mètres devant lui.
 
-À cet instant, tout dans un rayon de 1000 pieds se figea.
+À cet instant, tout dans un rayon de 330 mètres se figea.
 
 Dès que le symbole disparut, un éclair doré et pourpre jaillit et l'aiguille apparut.
 

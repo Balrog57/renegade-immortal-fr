@@ -12,11 +12,11 @@ L'âme de Wang Lin activa sa part de l'héritage, mais son cœur sombra aussitô
 
 L'expression de Wang Lin devint sombre. Il avait eu des doutes auparavant et, face à l'inefficacité de l'héritage ici, il confirmait que ce lieu n'était pas la Mer de la Connaissance.
 
-Par conséquent, tout ce qu'il avait fait jusqu'alors avait été vain. Le regard de Wang Lin se fit glacial, mais son expression se rétablit rapidement. Il savait pertinemment que rien de ce qui venait de se passer n'était normal. Selon les souvenirs de sa part de l'héritage, le fait que l'âme de Tu Si se soit divisée pour devenir la Mer des Morts et la Mer du Sang était une vérité.
+Par conséquent, tout ce qu'il avait fait jusqu'alors avait été vain. Le regard de Wang Lin se fit glacial, mais son expression se rétablit rapidement. Il savait pertinemment que rien de ce qui venait de se passer n'était normal. Selon les souvenirs de sa part de l'héritage, le fait que l'âme de Tu Si se soit divisée pour devenir la Mer des Âmes Mortes et la Mer du Sang était une vérité.
 
 Cet endroit était bel et bien la Mer des Âmes Mortes, mais pourquoi l'héritage de la connaissance ne fonctionnait-il pas ici?
 
-Wang Lin scruta les environs. Son regard se posa sur une écaille de la créature longue de millions de pieds, et une pensée lui traversa l'esprit.
+Wang Lin scruta les environs. Son regard se posa sur une écaille de la créature longue de dix mille pieds, et une pensée lui traversa l'esprit.
 
 Son cœur manqua un battement alors qu'il fixait l'écaille pour en mémoriser l'emplacement. Lorsqu'il activa son héritage de connaissance, il ressentit une faible réponse provenant de cette écaille.
 
@@ -72,9 +72,9 @@ Les yeux de l'ancien s'illuminèrent et il cria précipitamment: « Li Peng! »
 
 Ta Sen marqua une pause. Le nom « Li Peng » lui était vaguement familier. C'était le nom de l'un des onze membres du groupe qui lui avait échappé toutes ces années.
 
-À ce moment-là, un rire jaillit de la gueule de la créature. Cette voix ne venait manifestement pas de l'animal, mais d'une autre personne. La créature ouvrit la bouche et cracha un noyau, sur lequel une tumeur commença à croître.
+À ce moment-là, un rire jaillit de la gueule de la créature. Cette voix ne venait manifestement pas de l'animal, mais d'une autre personne. La créature ouvrit la bouche et cracha sa langue, sur laquelle une tumeur commença à croître.
 
-La tumeur était intimement liée au noyau, tel un parasite. Une fois qu'elle eut suffisamment grossi, elle se fendit pour laisser apparaître un visage humain.
+La tumeur était intimement liée à la langue, tel un parasite. Une fois qu'elle eut suffisamment grossi, elle se fendit pour laisser apparaître un visage humain.
 
 Le visage avait l'apparence d'un érudit, mais les yeux, empreints d'une malveillance digne d'un seigneur démon, fixaient froidement Ta Sen tout en déclamant une incantation complexe.
 
@@ -86,9 +86,9 @@ La tête sourit amèrement, révélant un profond ressentiment. Sa voix, chargé
 
 Ta Sen fit pivoter sa lance. Un sourire sarcastique étira ses lèvres et il dit calmement: « D'abord, dix personnes qui me trahissent, ensuite cet animal qui cachait un autre individu... Ce n'est pas tout. Quoi d'autre se trame? » Sur ces mots, il posa son regard sur Wang Lin et les centaines de cultivateurs démoniaques médusés qui se trouvaient hors du champ de bataille.
 
-La tête reliée au noyau ricana: « Tu le découvriras! » Sur ce, elle communiqua avec la créature par un procédé inconnu. Cette dernière s'agita violemment et s'enroula dans l'eau. Son corps colossal continua de se lover jusqu'à atteindre la hauteur de Ta Sen, finissant par l'encercler totalement.
+La tête reliée à la langue ricana: « Tu le découvriras! » Sur ce, elle communiqua avec la créature par un procédé inconnu. Cette dernière s'agita violemment et s'enroula dans l'eau. Son corps colossal continua de se lover jusqu'à atteindre la hauteur de Ta Sen, finissant par l'encercler totalement.
 
-À l'intérieur du corps de la créature, le dragon noir formé par la lance s'arrêta à une dizaine de pieds de la formation irrégulière.
+À l'intérieur du corps de la créature, le dragon noir formé par la lance s'arrêta à plusieurs dizaines de pieds de la formation irrégulière.
 
 Ta Sen se retrouvait ainsi complètement encerclé.
 
@@ -98,11 +98,11 @@ Soudain, la formation irrégulière qui l'entourait montra des signes d'effondre
 
 Les yeux de Ta Sen s'illuminèrent. Il projeta ses deux armes vers l'avant; chacune se transforma en météore avant de percuter les bords de la structure.
 
-Parmi les dix personnes, quatre crachèrent un sang noir et tremblèrent comme si elles ne pouvaient plus tenir.
+Parmi les dix personnes, quatre crachèrent du sang frais et tremblèrent comme si elles ne pouvaient plus tenir.
 
 Dans ce moment critique, le corps de la créature se raidit soudainement et une excroissance apparut au sommet de sa tête. De cette bosse surgit un homme couvert d'écailles. Ses pupilles en forme de losange dégageaient une aura inhumaine.
 
-Dès l'apparition de l'homme, un cri strident s'échappa de sa bouche. Ce cri, d'une aiguité extrême, forma d'innombrables lames invisibles qui foncèrent sur Ta Sen.
+Dès l'apparition de l'homme, un cri strident s'échappa de sa bouche. Ce cri, d'une acuité extrême, forma d'innombrables lames invisibles qui foncèrent sur Ta Sen.
 
 Simultanément, le visage de l'ancien se crispa et son front fut inondé de sueur. La formation irrégulière maintenue par les dix personnes ne reposait que sur leur propre volonté; à chaque secousse provoquée par Ta Sen, leurs cœurs vacillaient. Il lança un regard à Wang Lin et grogna sourdement: « Jeune ami, agis maintenant! »
 
@@ -112,6 +112,6 @@ Après avoir entendu l'appel de l'ancien, Wang Lin bondit soudainement vers lui.
 
 Wang Lin se moquait éperdument de la vie ou de la mort de ces gens; à cet instant, une seule chose importait: l'écaille spéciale de la créature. En vérité, dès le départ, il n'avait jamais eu l'intention d'aider pour ce prétendu sceau. Wang Lin ne se croyait pas doté d'un tel pouvoir.
 
-L'expression de l'ancien devint morne. Il poussa un soupir et plaça ses mains sur sa poitrine en formant un losange. Il hurla: « Mon instrument, attaque! »
+L'expression de l'ancien devint morne. Il poussa un soupir et plaça ses mains sur sa poitrine en formant un losange. Il hurla: « Mon instrument, dévore! »
 
 Au moment même où les paroles de l'ancien furent prononcées, la main droite de Wang Lin ouvrit brusquement une fissure et s'y engouffra.

@@ -38,7 +38,7 @@ Le temps s'écoula et plus de deux mois passèrent. Ce jour-là, l'endroit où s
 
 Le premier à réagir fut le vieil homme. Il semblait extrêmement émacié, comme si plusieurs années s'étaient écoulées en ces deux mois; il paraissait encore plus âgé.
 
-La zone où se trouvait Wang Lin était saturée de poussière, et un colosse de vingt pieds de haut marchait au cœur du nuage de poussière. Chaque pas qu'il faisait résonnait comme un coup de tonnerre dans le sol.
+La zone où se trouvait Wang Lin était saturée de poussière, et un colosse de 6,6 mètres de haut marchait au cœur du nuage de poussière. Chaque pas qu'il faisait résonnait comme un coup de tonnerre dans le sol.
 
 Cet homme robuste avait des sourcils épais et son corps tout entier dégageait une lueur dorée. Il était tel un géant!
 
@@ -56,7 +56,7 @@ Wang Lin, debout sur l'épaule de l'homme robuste, commença à réfléchir.
 
 « Lors de chacune de mes tentatives réussies pour créer des gardiens célestes, j'ai intégré le fantôme céleste. Je me demande s'il existe un lien. L'inclusion du fantôme céleste augmente-t-elle les chances de succès? »
 
-Tout en réfléchissant, l'homme robuste accéléra la cadence. Il franchissait des centaines de pieds en une seule enjambée, se déplaçant comme une rafale de vent.
+Tout en réfléchissant, l'homme robuste accéléra la cadence. Il franchissait une centaine de mètres en une seule enjambée, se déplaçant comme une rafale de vent.
 
 « De plus, les crânes des ancêtres du Clan de l'Immortel Délaissé étaient très mystérieux. Lors de leur raffinage, ils ont fini par fusionner en un seul tatouage. »
 
@@ -124,13 +124,13 @@ L'ancêtre du Clan de l'Immortel Élu regarda ses membres une dernière fois ava
 
 ***
 
-Au sein du vide sombre de la Bête du Nether se trouvait une formation gigantesque composée de sang rouge foncé. Tandis qu'elle flottait dans le néant, des rafales de gaz noir s'en échappaient pour pénétrer dans le cercueil de cristal situé au centre.
+Au sein du vide sombre de la Bête du Néant se trouvait une formation gigantesque composée de sang rouge foncé. Tandis qu'elle flottait dans le néant, des rafales de gaz noir s'en échappaient pour pénétrer dans le cercueil de cristal situé au centre.
 
 Un corps reposait dans le cercueil. C'était celui d'un homme très beau, paraissant âgé d'une vingtaine d'années. Il semblait dormir paisiblement. Le gaz noir issu de la formation pénétrait le cercueil et était absorbé par l'homme.
 
 Près du cercueil, une personne était assise en tailleur dans le vide. Elle portait une robe noire qui enveloppait tout son corps, ne laissant paraître que son visage. Ses yeux étaient clos pendant sa culture. On aurait dit qu'il avait toujours été là, gardien éternel de ce cercueil de cristal.
 
-Soudain, l'homme en robe noire ouvrit les yeux, scruta le lointain et murmura: « Il est donc bien venu! Malheureusement, je ne suis pas encore assez fort pour détruire la formation. Sinon, il n'y aurait aucune inquiétude à avoir. » Ses yeux brillèrent et un rayon de lumière noire jaillit de son corps. La lumière se posa à cent pieds de là et prit la forme d'une silhouette humaine.
+Soudain, l'homme en robe noire ouvrit les yeux, scruta le lointain et murmura: « Il est donc bien venu! Malheureusement, je ne suis pas encore assez fort pour détruire la formation. Sinon, il n'y aurait aucune inquiétude à avoir. » Ses yeux brillèrent et un rayon de lumière noire jaillit de son corps. La lumière se posa à trente-trois mètres de là et prit la forme d'une silhouette humaine.
 
 Cette figure se condensa pour devenir un clone identique à l'homme en robe noire. Le clone ouvrit les yeux, agita la main pour faire apparaître une robe bleue, puis s'élança dans le vide.
 

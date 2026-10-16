@@ -42,7 +42,7 @@ Puis, la lumière dorée qu'elle tenait se transforma en un dragon d'or gigantes
 
 À cet instant, chaque cultivateur, quel que soit le fragment sur lequel il se trouvait, fut terrifié en entendant ce chant d'épée. Même ceux engagés dans des combats à mort ne purent s'empêcher de s'interrompre.
 
-Sur l'un des fragments les plus centraux du Royaume Céleste, un érudit vêtu de vert leva soudainement la tête, révélant des yeux étincelants. Il murmura: « L'Épée Céleste de la Pluie! C'est bien elle, seule l'Épée Céleste de la Pluie peut produire un tel chant. Seulement, j'ignore laquelle... » Une lueur mystérieuse brilla dans ses yeux alors qu'il s'élançait dans les airs. Il ferma les yeux un instant, puis chargea vers l'origine du chant d'épée telle une éclair.
+Sur l'un des fragments les plus centraux du Royaume Céleste, un érudit vêtu de vert leva soudainement la tête, révélant des yeux étincelants. Il murmura: « L'Épée Céleste de la Pluie! C'est bien elle, seule l'Épée Céleste de la Pluie peut produire un tel chant. Seulement, j'ignore laquelle... » Une lueur mystérieuse brilla dans ses yeux alors qu'il s'élançait dans les airs. Il ferma les yeux un instant, puis chargea vers l'origine du chant d'épée tel un éclair.
 
 Sur un fragment au nord-ouest du Royaume Céleste, un vieil homme en robe pourpre contemplait le ciel avec gravité. Après avoir réfléchi un instant, il fit un pas et s'envola vers le chant d'épée.
 
@@ -76,11 +76,11 @@ S'il avait appelé Wang Lin « maître », c'était uniquement parce que Zhou Yi
 
 Il aurait voulu tuer Wang Lin et le transformer en momie.
 
-Sun Tai poursuivit lentement: « Tu n'as pas à me répondre immédiatement, et ce vieil homme ne te laissera pas lever le sceau gratuitement. Je t'offrirai deux marionnettes de fin de stade de la Transformation de l'Âme. Avec elles, ta sécurité future sera assurée. Je peux aussi t'offrir des méthodes de culture; dis-moi simplement quel genre tu souhaites et je trouverai un moyen de te les procurer. De plus, je possède des pilules et des remèdes célestes. Tant que tu acceptes, nous trouverons un terrain d'entente. »
+Sun Tai poursuivit lentement: « Tu n'as pas à me répondre immédiatement, et ce vieil homme ne te laissera pas lever le sceau gratuitement. Je t'offrirai deux marionnettes de fin de stade de Formation de l'Âme. Avec elles, ta sécurité future sera assurée. Je peux aussi t'offrir des méthodes de culture; dis-moi simplement quel genre tu souhaites et je trouverai un moyen de te les procurer. De plus, je possède des pilules et des remèdes célestes. Tant que tu acceptes, nous trouverons un terrain d'entente. »
 
 Wang Lin regarda Sun Tai et répondit calmement: « Avec votre niveau de culture, Senior n'accepterait bien sûr pas de devenir l'esclave de quiconque. Je le comprends. Cependant, sans parler du fait que j'ignore comment lever ce sceau, même si je le pouvais, je ne le ferais pas immédiatement. »
 
-Sun Tai fronça les sourcils et dit froidement: « Petit garnot, penses-tu vraiment être mon maître? »
+Sun Tai fronça les sourcils et dit froidement: « Petit garnement, penses-tu vraiment être mon maître? »
 
 Wang Lin secoua calmement la tête: « C'est la volonté de Senior Zhou Yi, pas la mienne. De plus, pensez-vous que je sois un enfant? Je crains que la première chose que vous fassiez après que j'aurai levé le sceau ne soit de me tuer. »
 
@@ -102,11 +102,11 @@ Les yeux de Wang Lin s'illuminèrent et il cria: « Sun Tai, je me demande... si
 
 « Ne t'inquiète pas, je ne te laisserai pas mourir! » ricana Sun Tai en tendant la main vers Wang Lin.
 
-« Le sceau d'esclavage n'est pas stable. Utilise la pagode pour te protéger! » C'étaient les dernières paroles de Zhou Yi avant de se dissiper.
+« Le sceau d'esclavage n'est pas stable. Utilise la pagode pour le contrer! » C'étaient les dernières paroles de Zhou Yi avant de se dissiper.
 
 Wang Lin resta calme, fixant Sun Tai alors que sa main approchait. Juste au moment où Sun Tai allait le saisir, une lumière blanche jaillit du sac de stockage de Wang Lin et la pagode apparut.
 
-Cette lumière blanche contenait le domaine de folie de niveau Ascendant de Zhou Yi.
+Cette lumière blanche contenait le domaine d'obsession de niveau Ascendant de Zhou Yi.
 
 Sun Tai poussa un gémissement de douleur et recula précipitamment.
 
@@ -122,11 +122,11 @@ Wang Lin avançait sans relâche et cria froidement: « S'il s'agissait d'une au
 
 Le visage de Sun Tai était livide. Sa voix, rauque, tonna: « Si tu ne me crois pas, essaie donc! »
 
-Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une quatrième âme, Senior Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir! »
+Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une âme brisée, Senior Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir! »
 
 Les yeux de Sun Tai s'illuminèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior?
 
-Se pourrait-il que Zhou Yi ait, d'une manière ou d'une autre, anticipé toutes ses capacités?
+Se pourrait-il que Zhou Yi ait, d'une manière ou d'une autre, anticipé toutes ses manigances?
 
 Le cœur de Sun Tai trembla.
 

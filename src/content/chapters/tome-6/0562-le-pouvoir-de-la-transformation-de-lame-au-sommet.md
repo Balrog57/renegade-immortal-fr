@@ -76,7 +76,7 @@ Le colosse ressentit alors une pression titanesque, comme si d'innombrables mont
 
 « Où sont mes deux compagnons?! » En pénétrant dans le camp, son sens divin s'était déployé sans trouver trace de Treize ou de Hu Pao.
 
-À cet instant, il ne restait que dix pas entre lui et l'homme en armure noire.
+À cet instant, il ne restait qu'une douzaine de pas entre lui et l'homme en armure noire.
 
 Des vagues d'aura puissantes s'abattirent sur le colosse comme des bêtes sauvages. Il refusa de reculer car, en tant que commandant en chef, il ne pouvait tolérer qu'un subordonné l'intimide par sa seule présence, sous peine de voir sa position compromise! Et ce, même si la culture de ce commandant était supérieure à la sienne!
 
@@ -90,7 +90,7 @@ En reculant, sa propre pression faiblit. En réaction, celle de Wang Lin monta e
 
 À cet instant précis, sa culture au sommet du stade avancé de la Transformation de l'Âme se révéla avec fracas!
 
-Alors qu'il reculait, le colosse serra les poings et lança un coup de poing qui provoqua un grondement assourdissant, propageant des ondes de choc vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ 500 kilomètres de large!
+Alors qu'il reculait, le colosse serra les poings et lança un coup de poing qui provoqua un grondement assourdissant, propageant des ondes de choc vers l'avant. Simultanément, l'énergie spirituelle démoniaque de son corps jaillit pour former une tortue noire d'environ 330 mètres de large!
 
 Cette tortue noire était couverte d'innombrables pointes sur son dos et sa queue. Lorsque celle-ci balaya l'air, elle sembla pouvoir briser l'espace lui-même, laissant apparaître des lignes noires dans le vide.
 
@@ -106,7 +106,7 @@ Le ciel et la terre changèrent de couleur sous l'effet du Doigt de la Mort, plo
 
 Le pouce de Wang Lin ne marqua aucun temps mort et s'abattit avec tout le poids de son corps!
 
-C'était comme si tout ce qui se trouvait dans un rayon de mille pieds s'était concentré sur son doigt. Alors que le Doigt de la Mort descendait, le colosse en armure noire eut l'illusion de lutter contre les cieux eux-mêmes.
+C'était comme si tout ce qui se trouvait dans un rayon de 50 kilomètres s'était concentré sur son doigt. Alors que le Doigt de la Mort descendait, le colosse en armure noire eut l'illusion de lutter contre les cieux eux-mêmes.
 
 Le colosse poussa un rugissement et fusionna instantanément avec la tortue noire derrière lui. Ses yeux furent alors embrasés d'une lueur démoniaque. Enfin, Wang Lin faisait face à un natif utilisant un sort démoniaque ancestral!
 

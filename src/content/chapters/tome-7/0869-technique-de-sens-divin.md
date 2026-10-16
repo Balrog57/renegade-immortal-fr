@@ -8,7 +8,7 @@ slug: technique-de-sens-divin
 ---
 Les pupilles de Luo Su se rétractèrent et son sens divin s'étendit. Le sens divin d'un cultivateur du milieu du stade Scruteur du Nirvana était bien plus puissant que celui d'un cultivateur du début de ce même stade. À mesure que son sens divin se déployait, les sept géants dorés restants se mirent à briller intensément. Cela créa également une pression écrasante dans la zone!
 
-Les sept géants dorés se précipitèrent vers Wang Lin. Les yeux de Wang Lin s'illuminèrent et il ne ralentit pas; il chargea, le Fouet du Karma devant lui. Le fouet enveloppa Wang Lin et s'étira sur une longueur de 3,3 kilomètres. Puis, Wang Lin saisit immédiatement l'arme.
+Les sept géants dorés se précipitèrent vers Wang Lin. Les yeux de Wang Lin s'illuminèrent et il ne ralentit pas; il chargea, le Fouet du Karma devant lui. Le fouet enveloppa Wang Lin et s'étira sur une longueur de 330 mètres. Puis, Wang Lin saisit immédiatement l'arme.
 
 D'un coup sec, le Fouet du Karma laissa échapper un sifflement aigu qui ressemblait au hurlement d'un fantôme. Il s'élança aussitôt en avant. L'un des géants dorés fut instantanément percuté et s'effondra dans un fracas retentissant!
 
@@ -68,7 +68,7 @@ Les aiguilles de sens divin se rapprochèrent rapidement de Wang Lin.
 
 L'expression de Wang Lin demeura calme. S'il avait affronté un véritable cultivateur du milieu du stade Scruteur du Nirvana, la bataille aurait été ardue. Après tout, chaque écart de culture au second niveau est immense. Mais ici, Luo Su utilisait son sens divin!
 
-Si c'un autre avait été en face, le sens divin de Luo Su aurait été difficile à contrer. Car la différence de niveau de culture se traduit également par une différence de puissance du sens divin. Le cultivateur le plus fort écrase le plus faible!
+Si un autre avait été en face, le sens divin de Luo Su aurait été difficile à contrer. Car la différence de niveau de culture se traduit également par une différence de puissance du sens divin. Le cultivateur le plus fort écrase le plus faible!
 
 Cependant, Wang Lin ne considérait même pas cette attaque comme une menace. Dès que les aiguilles approchèrent, le Fouet du Karma frappa. Après une série de craquements, un grand nombre d'aiguilles furent annihilées. Toutefois, elles étaient trop nombreuses; certaines contournèrent le fouet et pénétrèrent dans le corps de Wang Lin.
 
@@ -116,7 +116,7 @@ Simultanément, des centaines de milliers de runes dorées volèrent et encercl�
 
 Le cœur de Luo Su était oppressé. Les sorts d'origine n'étaient pas sa spécialité; sa force résidait dans son sens divin. Or, celui-ci n'avait aucun effet sur Wang Lin, ce qui l'exaspérait au plus haut point.
 
-Après s'être libéré du sort *Arrête*, Luo Su lança la foudre enflammée qu'il tenait en main. L'éclair grandit instantanément pour atteindre plus de 330 mètres de large. Une gueule béante apparut au sein de la foudre, tentant d'engloutir le Sceau Céleste.
+Après s'être libéré du sort *Arrête*, Luo Su lança la foudre enflammée qu'il tenait en main. L'éclair grandit instantanément pour atteindre une quarantaine de mètres de large. Une gueule béante apparut au sein de la foudre, tentant d'engloutir le Sceau Céleste.
 
 Le tonnerre enflammé enveloppa entièrement le Sceau Céleste de flammes. Pourtant, le sceau resta intact et s'écrasa impitoyablement.
 
@@ -128,7 +128,7 @@ Le sort *Arrête* ayant été brisé, l'esprit de Wang Lin fut secoué et il sub
 
 Le Fouet du Karma s'agita pour continuer à frapper devant Wang Lin. Les ondes furent immédiatement brisées, mais certaines réussirent à passer et frappèrent le corps de Wang Lin.
 
-Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau et des *Coupures Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
+Le visage de Wang Lin pâlit. Bien que l'Armure de Cuir de l'Ancien Dieu fût robuste, des vibrations atteignirent son sens divin. Ses yeux brillèrent d'intention meurtrière et il fit un pas en avant. Ses deux mains formèrent un sceau et des *Tranchants Célestes* apparurent dans ses paumes, s'élançant une à une vers son adversaire.
 
 Luo Su et Wang Lin accélérèrent de plus en plus. L'un attaquait avec son sens divin tout en se défendant avec son énergie originelle; l'autre attaquait avec son énergie originelle tout en se protégeant par son sens divin. Les deux engagèrent une bataille titanesque!
 
@@ -136,4 +136,4 @@ Les explosions se succédèrent et le combat devint de plus en plus acharné!
 
 « Assez! » Alors que leur affrontement atteignait son apogée, Maître Flamespark laissa échapper un rugissement, les sourcils froncés. Accompagné de ce cri, une puissante énergie originelle comprima l'espace entre les deux combattants. Cela força le combat à s'interrompre et les deux adversaires à reculer!
 
-Un éclair d'intention meurtrière brilla dans les yeux de Qing Shui. Il laissa échapper un renflement froid et un rayon du Royaume Ji jaillit!
+Un éclair d'intention meurtrière brilla dans les yeux de Qing Shui. Il laissa échapper un reniflement froid et un rayon du Royaume Ji jaillit!

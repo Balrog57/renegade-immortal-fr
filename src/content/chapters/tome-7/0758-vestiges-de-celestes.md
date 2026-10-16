@@ -71,7 +71,7 @@ Le cuir chevelu de Wang Lin s'engourdit. À cet instant, il semblait n'y avoir a
 
 « Rien ici n'a été formé naturellement; tout a été apporté de l'extérieur. Cela signifie que cette montagne n'a pas de fondation! » Wang Lin se déporta sur le côté pour éviter les épées, la brume verte et les insectes, tout en se rapprochant de la paroi de la montagne.
 
-Il poussa un rugissement et, sa main droite imprégnée de toute l'énergie spirituelle céleste et du tonnerre contenus dans son corps, il frappa violemment le sol. Une explosion assourdissante résonna soudainement dans toute la vallée.
+Il poussa un rugissement et, sa main droite imprégnée de toute l'énergie spirituelle céleste et du tonnerre contenus dans son corps, il frappa violemment la paroi. Une explosion assourdissante résonna soudainement dans toute la vallée.
 
 D'énormes pans de la montagne s'effondrèrent, soulevant des nuages de poussière infinies tandis que l'énergie spirituelle céleste se propageait dans toutes les directions. Li Yuan, qui se trouvait encore à cinq kilomètres, fut totalement stupéfait. Il ignorait ce qui se passait à l'intérieur, mais il sentait clairement la terre trembler et voyait d'innombrables fragments de la montagne s'écrouler.
 
@@ -87,7 +87,7 @@ Le grondement fit vibrer toute la vallée et même l'espace de stockage commenç
 
 Les vibrations violentes affectèrent la vallée, forçant les huit courtes épées à marquer une pause. La brume verte ignora totalement Wang Lin pour s'engouffrer sous la montagne soulevée, tout comme les insectes.
 
-Des craquements sinistres émanaient du corps du garde céleste. Semblant être entré en transe, il poussa un rugissement et souleva la montagne de plusieurs dizaines de pieds supplémentaires.
+Des craquements sinistres émanaient du corps du garde céleste. Semblant être entré en transe, il poussa un rugissement et souleva la montagne d'une dizaine de mètres supplémentaires.
 
 Peu importait le nombre de fissures spatiales qui apparaissaient, elles étaient broyées par l'impact de la masse rocheuse. Une fois la montagne portée à une certaine hauteur, le garde céleste la relâcha violemment vers le sol.
 
@@ -147,7 +147,7 @@ Non loin de la table se trouvait un encensoir, mais il ne contenait plus que de 
 
 Wang Lin s'approcha de la table et vit qu'une feuille était maintenue par un presse-papier. Ce dernier dégageait des ondes d'énergie spirituelle céleste, prouvant son caractère extraordinaire. Cependant, Wang Lin ne s'attarda pas sur l'objet, mais se concentra sur le texte.
 
-« La 16e année de la 27e ère du Royaume Céleste. La première guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...
+« La 16e année de la 27e ère du Royaume Céleste. La guerre entre l'Ordre Ancien et le Royaume Céleste s'est achevée par une victoire! Mon trésor magique a été brisé et doit être raffiné ici. Cependant, en récompense de mes exploits, on m'a offert un fragment de sa peau, dont j'ai fait une armure de cuir...
 
 « La 19e année de la 27e ère du Royaume Céleste. Un changement terrifiant s'est produit! L'Empereur Céleste a perdu la raison et est mort en pointant le ciel du doigt... J'ai personnellement été témoin de tout, de cette scène qui n'aurait jamais dû exister lors de la mort de l'Empereur Céleste...
 

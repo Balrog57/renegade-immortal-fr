@@ -14,7 +14,7 @@ Par conséquent, Wang Lin put immédiatement confirmer que tout ceci n'était qu
 
 « Cette pilule est fausse! Si la vraie pilule peut leur permettre de vivre une fois de plus, alors une fausse pilule les enverra droit à la mort! Yao Xixue, puisque tu es si vicieuse, ne me reproche pas d'être impitoyable! » Wang Lin regarda la pilule de cire dans sa main. Il s'apprêtait à l'écraser, mais une idée lui vint soudainement et il la rangea dans son sac de rangement.
 
-L'une des principales raisons pour lesquelles Wang Lin avait pu survivre si longtemps et devenir aussi puissant était sa ruse. À l'époque où il était au stade de la Formation du Noyau, le Seigneur Démon de l'Extrême Huitième [Vérifier chapitre 161] avait dit un jour que cet enfant était impitoyable, audacieux, décisif et froid. Il était aussi très courageux, réfléchi, déterminé et rusé comme un renard.
+L'une des principales raisons pour lesquelles Wang Lin avait pu survivre si longtemps et devenir aussi puissant était sa ruse. À l'époque où il était au stade de la Formation du Noyau, le Seigneur Démon de l'Extrême Huitième avait dit un jour que cet enfant était impitoyable, audacieux, décisif et froid. Il était aussi très courageux, réfléchi, déterminé et rusé comme un renard.
 
 Ces mots décrivaient parfaitement la véritable nature de Wang Lin.
 
@@ -42,7 +42,7 @@ La quantité d'énergie spirituelle contenue dans ce cristal céleste représent
 
 L'absorption se poursuivit.
 
-Trois jours plus tard, une nouvelle ascension du démon violet eut lieu. Yao Xixue se tenait sur l'ancienne montagne, à des milliers de kilomètres du camp militaire. Une lumière violette baignait le sol, créant une atmosphère profondément démoniaque.
+Trois jours plus tard, une nouvelle ascension du démon violet eut lieu. Yao Xixue se tenait sur l'ancienne montagne, à 500 kilomètres du camp militaire. Une lumière violette baignait le sol, créant une atmosphère profondément démoniaque.
 
 Le regard de Yao Xixue se tournait occasionnellement vers l'horizon, trahissant une certaine anxiété.
 
@@ -54,9 +54,9 @@ Wang Lin était vêtu de blanc comme Yao Xixue, ses cheveux flottant au vent, lu
 
 « Tu arrives juste à temps. Maintenant, je dois ouvrir la formation pour que personne d'autre ne remarque l'anomalie ici! » Tout en parlant, Yao Xixue frappa son sac de rangement et en sortit plusieurs statues de couleur sang.
 
-Ces statues étaient petites, mesurant chacune environ trois pouces de haut. Elles représentaient des bêtes féroces que Wang Lin ne reconnut pas. Une aura sanglante se propagea lentement depuis les sculptures.
+Ces statues étaient petites, mesurant chacune environ 3,3 centimètres de haut. Elles représentaient des bêtes féroces que Wang Lin ne reconnut pas. Une aura sanglante se propagea lentement depuis les sculptures.
 
-La main de Yao Xixue traça un sceau tandis qu'elle murmurait une incantation. Puis, elle mordit le bout de sa langue pour cracher un filet de sang et s'en servit pour dessiner un symbole dans l'air. Elle frappa le symbole de sa paume, provoquant son expansion immédiate jusqu'à ce qu'il s'imprime dans le sol.
+La main de Yao Xixue traça un sceau tandis qu'elle murmurait une incantation. Puis, elle mordit le bout de sa langue pour cracher un filet de sang et s'en servit pour dessiner un symbole dans l'air. Elle frappa le symbole de sa paume, provoquant son expansion immédiate jusqu'à atteindre une taille d'environ 330 mètres, avant de s'imprimer dans le sol.
 
 Simultanément, les statues s'animèrent et chacune prit place en sept positions distinctes. Un éclair de lumière rouge sang jaillit, et elles se fondirent dans le sol.
 
@@ -110,7 +110,7 @@ L'endroit ressemblait au vide spatial, sans distinction entre le ciel et la terr
 
 Un sentier sinueux et escarpé, d'environ 33 mètres de large, s'étirait au loin. C'était l'unique passage, et il n'était pas fixe; il oscillait de gauche à droite selon un rythme régulier.
 
-Wang Lin se tenait sur une plateforme d'environ 500 kilomètres de large où le tableau de transfert avait été secrètement gravé.
+Wang Lin se tenait sur une plateforme d'environ 330 mètres de large où le tableau de transfert avait été secrètement gravé.
 
 Il comprit que Yao Xixue était venue ici maintes fois. Elle s'assit en position du lotus sur la plateforme et dit à Wang Lin: « Méditez pour comprendre votre domaine. Ce n'est qu'en obtenant la marque de qualification que l'on pourra marcher sur le Chemin de la Bête Révérée! » Sans un mot de plus, elle ferma les yeux et commença sa culture.
 

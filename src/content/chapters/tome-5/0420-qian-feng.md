@@ -26,7 +26,7 @@ Bang!
 
 Un fracas retentissant résonna dans le ciel. La frappe de Wang Lin était imprégnée d'énergie spirituelle céleste, rendant l'épée bien plus puissante qu'auparavant. Cette attaque concentrait toute l'énergie spirituelle céleste que Wang Lin pouvait mobiliser d'un coup; sa puissance était donc phénoménale.
 
-Qian Feng fut projeté en arrière de mille pieds avant de pouvoir neutraliser la force de l'épée céleste. Son expression n'était plus calme; ses yeux brillaient d'une lueur froide alors qu'il fixait l'épée de Wang Lin: « Un trésor céleste! »
+Qian Feng fut projeté en arrière de 330 mètres avant de pouvoir neutraliser la force de l'épée céleste. Son expression n'était plus calme; ses yeux brillaient d'une lueur froide alors qu'il fixait l'épée de Wang Lin: « Un trésor céleste! »
 
 Son index droit tremblait, tandis qu'un filet de sang s'en écoulait. Son bras droit tout entier était également totalement engourdi.
 
@@ -100,7 +100,7 @@ Il retira sa main et observa la plaie sur son doigt, d'où continuait de suinter
 
 Qian Feng ne daigna même pas regarder Papillon Rouge; il continuait de fixer l'endroit où Wang Lin avait disparu en marmonnant: « Wang Lin, tu oses me blesser? Tu es mort! Le Maître est vieux et confus; sinon, pourquoi aurait-il envoyé ma jeune sœur apprentie pour s'emparer de ton cœur de Dao? Ton domaine m'appartient, et celui de la petite sœur m'appartient aussi. Même le domaine du Maître, si je trouve un moyen, je le dévorerai également... »
 
-« L'étendard d'âme de ce Ceng Niu est trop puissant. Ce vieux Du Tian vieillit aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Ceng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
+« L'étendard d'âme de ce Ceng Niu est trop puissant. Ce vieux Du Tian a perdu la tête aussi, mais au lieu de le donner au pays de Suzaku, il le donne à Ceng Niu! Cependant, l'étendard a déjà attiré l'attention du Maître, et il est déterminé à s'en saisir. Je veux voir combien de temps tu pourras encore tenir! »
 
 Wang Lin et Du Tian regagnèrent rapidement la Secte de la Raffinement de l'Âme.
 
@@ -118,7 +118,7 @@ Du Tian hocha la tête et disparut de la grotte. Lorsqu'il réapparut, il se tro
 
 L'étendard des âmes d'un milliard flottait silencieusement devant lui.
 
-« Ce Ceng Niu a vraiment du cran. Faire exploser l'étendard... Heureusement qu'il n'utilisait que le sous-étendard, ainsi tous les fragments d'âmes n'étaient que des illusions créées par l'étendard principal. Bien que cent millions de fragments aient explosé, ils n'ont pas été détruits. J'aurais eu le cœur brisé s'ils avaient été réels. »
+« Ce Ceng Niu a vraiment du cran. Faire exploser les fragments d'âmes... Heureusement qu'il n'utilisait que le sous-étendard, ainsi tous les fragments d'âmes n'étaient que des illusions créées par l'étendard principal. Bien que cent millions de fragments aient explosé, ils n'ont pas été détruits. J'aurais eu le cœur brisé s'ils avaient été réels. »
 
 Du Tian regarda l'étendard et songea au passé. Il ne semblait pas contempler un trésor, mais plutôt ses aînés.
 

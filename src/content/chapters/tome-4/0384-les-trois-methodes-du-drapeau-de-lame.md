@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 384 - Three method of the Soul Flag
 slug: les-trois-methodes-du-drapeau-de-lame
 ---
-La bibliothèque de la montagne du Raffinage des Âmes n'était pas vaste; elle ne comptait que trois étages.
+La bibliothèque de la montagne de l'Affinement de l'Âme n'était pas vaste; elle ne comptait que trois étages.
 
 De loin, cette bibliothèque semblait tout à fait ordinaire. Lorsque Wang Lin pénétra à l'intérieur, son regard se posa sur un vieil homme assis au centre. Ce dernier était très proche du stade de l'Âme Naissante; il n'était plus qu'à une étape.
 
@@ -26,9 +26,9 @@ Le nombre de techniques était plus restreint ici. Elles étaient dispersées da
 
 Wang Lin déploya son Sens Divin et repéra les quatre caractères: « Méthode de fabrication du Drapeau de l'Âme ». Il saisit le jade pour vérifier le contenu, puis fronça les sourcils.
 
-Ce jade contenait bel et bien la méthode de création d'un drapeau de l'âme, mais elle était identique à celle pratiquée par tout le monde. Si la Secte du Raffinage des Âmes utilisait réellement cette technique, elle ne serait jamais devenue aussi célèbre qu'elle l'est aujourd'hui.
+Ce jade contenait bel et bien la méthode de création d'un drapeau de l'âme, mais elle était identique à celle pratiquée par tout le monde. Si la Secte de l'Affinement de l'Âme utilisait réellement cette technique, elle ne serait jamais devenue aussi célèbre qu'elle l'est aujourd'hui.
 
-Après avoir soigneusement fouillé le deuxième étage sans trouver ce qu'il cherchait, Wang Lin tourna son regard vers le troisième étage. Sans commettre d'imprudence, il retourna vers l'âcre vieillard. Il joignit les mains et demanda: « Senior, pourquoi ne puis-je pas monter au troisième étage? »
+Après avoir soigneusement fouillé le deuxième étage sans trouver ce qu'il cherchait, Wang Lin tourna son regard vers le troisième étage. Sans commettre d'imprudence, il retourna vers le vieillard décharné. Il joignit les mains et demanda: « Senior, pourquoi ne puis-je pas monter au troisième étage? »
 
 Le vieil homme bâilla. Il dévisagea Wang Lin et répondit: « Tu ne peux pas monter, tout simplement. Pourquoi poser autant de questions inutiles? »
 
@@ -38,11 +38,11 @@ Le vieil homme fronça les sourcils. Il grommela quelque chose avant de dire ave
 
 Wang Lin regarda dans la direction indiquée par le vieillard. Il y avait effectivement une grotte à cet endroit.
 
-« Il n'y a aucune règle au sein de la Secte du Raffinage des Âmes; si tu as la capacité de tuer, tue; si tu veux quelque chose, vole-le; et si une femme te plaît, prends-la! »
+« Il n'y a aucune règle au sein de la Secte de l'Affinement de l'Âme; si tu as la capacité de tuer, tue; si tu veux quelque chose, vole-le; et si une femme te plaît, prends-la! »
 
 « Si tu n'as aucun talent, alors cherche d'autres êtres sans talent pour cultiver ensemble afin de te protéger. »
 
-« Aucune règle. Chacun fait ce qu'il veut... » Wang Lin esquissa un mince sourire. Cette Secte du Raffinage des Âmes était en effet fascinante. Il agita la main et une main invisible et gigantesque s'abattit sur le vieillard pour le saisir.
+« Aucune règle. Chacun fait ce qu'il veut... » Wang Lin esquissa un mince sourire. Cette Secte de l'Affinement de l'Âme était en effet fascinante. Il agita la main et une main invisible et gigantesque s'abattit sur le vieillard pour le saisir.
 
 Le vieil homme fut surpris, mais il éclata de rire. L'agacement qui marquait son visage disparut, remplacé par une intention de combat. « Bien! Bien! Au cours des cent dernières années, tu es la cinquième personne à m'attaquer. Très bien, je vais jouer avec toi! »
 
@@ -62,7 +62,7 @@ Wang Lin jeta un dernier regard au vieil homme et s'en alla. Peu après, il arri
 
 Les yeux de Wang Lin s'illuminèrent. Sa main droite bougea, tissant de nombreuses restrictions illusoires. Dans un fracas retentissant, toutes les protections de la grotte s'effondrèrent avec la porte.
 
-Au loin, le vieil homme frissonna. Il se dit que la montagne du Raffinage des Âmes venait d'accueillir une nouvelle entité qu'on ne pouvait point offenser.
+Au loin, le vieil homme frissonna. Il se dit que la montagne de l'Affinement de l'Âme venait d'accueillir une nouvelle entité qu'on ne pouvait point offenser.
 
 L'homme d'âge moyen poussa un rugissement de rage face à la destruction de sa demeure. Il s'élança dans un rayon de lumière rouge et, sans dire un mot, sortit un petit drapeau violet. Des centaines d'âmes s'en échappèrent aussitôt.
 
@@ -96,17 +96,17 @@ Wang Lin observa l'homme. Sans l'attaquer, il agita la main pour faire voler le 
 
 L'une des femmes, vêtue d'une robe bleue, remarqua l'expression de Wang Lin et demanda: « Senior frère apprenti, avez-vous remarqué que la méthode semble incomplète? »
 
-Wang Lin leva les yeux vers elles. Toutes deux étaient au début du stade de la Formation du Noyau.
+Wang Lin leva les yeux vers elles. Toutes deux étaient au stade intermédiaire de la Formation du Noyau.
 
 Il demanda: « Pourquoi en est-il ainsi? »
 
-La femme en robe bleue répondit promptement: « Vous devez être Qing Mu, le vainqueur de la récente compétition des disciples de la secte extérieure. Moi, votre sœur apprentie, je m'appelle Xu Yun. Xu Yun salue son senior frère apprenti. Quant à l'incomplétude du drapeau, c'est parce que la méthode est divisée en trois parties. Chaque partie correspond au nom des trois montagnes: le Raffinage de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
+La femme en robe bleue répondit promptement: « Vous devez être Qing Mu, le vainqueur de la récente compétition des disciples de la secte extérieure. Moi, votre sœur apprentie, je m'appelle Xu Yun. Xu Yun salue son senior frère apprenti. Quant à l'incomplétude du drapeau, c'est parce que la méthode est divisée en trois parties. Chaque partie correspond au nom des trois montagnes: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
 
 « En combinant les trois méthodes, vous obtiendrez la véritable technique de fabrication du drapeau de l'âme. »
 
 Les yeux de Wang Lin s'illuminèrent. Il rangea le jade et contempla la grotte. Cet endroit ne répondait pas à ses exigences. Il déploya son Sens Divin et s'envola vers le bas de la montagne.
 
-Les deux femmes furent surprises. Elles échangèrent un regard avant de suivre précipitamment Wang Lin. Il était extrêmement dangereux de rester seul dans la Secte du Raffinage des Âmes. À moins d'une puissance de culture exceptionnelle, il fallait compter sur autrui; c'est pourquoi les cultivateurs formaient souvent des groupes.
+Les deux femmes furent surprises. Elles échangèrent un regard avant de suivre précipitamment Wang Lin. Il était extrêmement dangereux de rester seul dans la Secte de l'Affinement de l'Âme. À moins d'une puissance de culture exceptionnelle, il fallait compter sur autrui; c'est pourquoi les cultivateurs formaient souvent des groupes.
 
 Une fois la défaite consommée, on devait tout céder. Une fois tout remis à l'adversaire, celui-ci n'avait plus le droit de tuer, sous peine d'intervention des Anciens.
 
@@ -126,7 +126,7 @@ Une fois à l'intérieur, Wang Lin posa négligemment une restriction pour scell
 
 Dans la cavité, son regard se fixa sur la paroi. S'il avait choisi cet emplacement, c'était parce qu'il était le plus proche du filon spirituel.
 
-Bien qu'il ne puisse plus absorber directement la puissance du filon comme autrefois, il pouvait encore en emprunter l'énergie. Son corps disparut et, lorsqu'il réapparut, il se tenait devant le principal filon spirituel situé sous la montagne du Raffinage des Âmes.
+Bien qu'il ne puisse plus absorber directement la puissance du filon comme autrefois, il pouvait encore en emprunter l'énergie. Son corps disparut et, lorsqu'il réapparut, il se tenait devant le principal filon spirituel situé sous la montagne de l'Affinement de l'Âme.
 
 Après s'être assis en position du lotus, il déploya son Sens Divin. Ce qu'il découvrit le stupéfia.
 

@@ -14,9 +14,9 @@ Il prit une profonde inspiration. Son sens divin avait déjà repéré la silhou
 
 L'apparence de Liu Mei avait quelque peu changé. On pourrait dire qu'elle était plus éblouissante que jamais.
 
-Fronçant légèrement les sourcils, Wang Lin fit un pas en avant et disparut. Lorsqu'il réapparut, il se trouvait dans la partie sud de la planète, à peine à mille pieds de Liu Mei.
+Fronçant légèrement les sourcils, Wang Lin fit un pas en avant et disparut. Lorsqu'il réapparut, il se trouvait dans la partie sud de la planète, à environ 330 mètres de Liu Mei.
 
-Liu Mei fixa la silhouette qui venait de surgir à mille pieds d'elle, et la lueur mystérieuse dans ses yeux s'intensifia. Elle l'avait remarqué lorsqu'il approchait de la planète; elle avait senti qu'il lui était vaguement familier, bien que son apparence lui fût totalement étrangère.
+Liu Mei fixa la silhouette qui venait de surgir à 330 mètres d'elle, et la lueur mystérieuse dans ses yeux s'intensifia. Elle l'avait remarqué lorsqu'il approchait de la planète; elle avait senti qu'il lui était vaguement familier, bien que son apparence lui fût totalement étrangère.
 
 Elle ne parla pas, se contentant de contempler silencieusement Wang Lin.
 
@@ -52,7 +52,7 @@ Wang Lin s'arrêta et se retourna. Ses yeux devinrent de glace: « Il n'est pas 
 
 Des scènes du passé défilèrent soudainement devant ses yeux. En fixant Wang Lin, l'émotion complexe qui habitait son regard s'intensifia: « À part vous, personne d'autre n'a un regard aussi froid. Vous avez changé d'apparence, vous avez tout changé, mais vous ne pouvez pas changer votre regard. Je crains que vous ne vous soyez transformé uniquement pour que je ne puisse pas vous reconnaître. »
 
-Wang Lin fronça les sourcils et la fixa froidement: « Je vais le dire une seule fois: disparaissez! »
+Wang Lin fronça les sourcils et la fixa froidement: « Je vais le dire pour la dernière fois: disparaissez! »
 
 Liu Mei afficha un magnifique sourire, puis l'émotion complexe dans ses yeux s'évanouit, remplacée par une indifférence glaciale. Elle dit doucement: « Votre niveau de culture n'est certainement pas supérieur au mien. Vous devez posséder un trésor capable de dissimuler votre puissance. Aujourd'hui, vous ne partirez pas. »
 
@@ -80,7 +80,7 @@ Papillon Rouge fixa Wang Lin et dit calmement: « Notre querelle doit également
 
 Face aux pétales, la main droite de Wang Lin forma un sceau et, d'une pensée, la Formation de l'Épée des Sept Étoiles se referma. Les sept épées formèrent un cercle et tournèrent à une vitesse fulgurante, créant un puissant vent d'épées qui broya les pétales de fleurs.
 
-L'arrogance dans les yeux de Papillon Rouge s'intensifia; elle fit claquer ses doigts et le pistil de la fleur s'envola. Sa main gauche pointa l'air à plusieurs reprises, et le pistil se combina soudainement pour former une rune. Elle pressa sa main, projetant immédiatement la rune qui s'étendit jusqu'à dépasser mille pieds de large, s'abattant sur Wang Lin telle une montagne gigantesque.
+L'arrogance dans les yeux de Papillon Rouge s'intensifia; elle fit claquer ses doigts et le pistil de la fleur s'envola. Sa main gauche pointa l'air à plusieurs reprises, et le pistil se combina soudainement pour former une rune. Elle pressa sa main, projetant immédiatement la rune qui s'étendit jusqu'à atteindre environ 330 mètres de large, s'abattant sur Wang Lin telle une montagne gigantesque.
 
 Le regard de Wang Lin devint glacial. Il leva la main et pointa le ciel. Un éclair déchira les cieux et une longue rivière des enfers apparut soudainement pour broyer la rune. Cette rivière était imprégnée d'une soif de sang. Sous le contrôle de Wang Lin, elle se mouvait comme un dragon rugissant et encercla immédiatement Papillon Rouge, s'apprêtant à l'engloutir tout entière.
 

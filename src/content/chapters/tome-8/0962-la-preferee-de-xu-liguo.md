@@ -62,7 +62,7 @@ Wang Lin ne prêta plus attention à Xu Liguo. Il s'assit et commença sa cultur
 
 Xu Liguo flottait dans la pièce comme un fantôme. Puis, s'ennuyant, il ne put s'empêcher de songer à la beauté incomparable de Bai Wei. Il jeta d'abord un regard prudent vers Wang Lin, puis renifla avec une expression enivrée.
 
-« Une beauté... une vraie beauté... Si elle était une femme, elle ne serait pas si spéciale. Le Grand-père Xu a rencontré beaucoup de femmes, mais elle, si c'était un homme... » L'esprit de Xu Liguo vacilla et son cœur s'agita. Il avait envie d'aller trouver Bai Wei immédiatement pour une discussion de cœur à cœur.
+« Une beauté... une vraie beauté... Si elle était une femme, passe encore, le Grand-père Xu en a rencontré beaucoup. Mais elle est un homme... » L'esprit de Xu Liguo vacilla et son cœur s'agita. Il avait envie d'aller trouver Bai Wei immédiatement pour une discussion de cœur à cœur.
 
 Son esprit était rempli de fantasmes et il se sentait agité. Cependant, pensant que Wang Lin était toujours à proximité, il ne put s'empêcher de soupirer.
 
@@ -102,9 +102,9 @@ Un pavillon se dressait là. Une silhouette pourpre se tenait à l'intérieur et
 
 À cet instant, une brise légère souffla et souleva les cheveux de la silhouette pourpre. La personne releva sa mèche de sa main de jade, puis se retourna et sourit à Wang Lin.
 
-Pour qui ne connaissaitrait pas les détails, cette personne était bien plus belle que la plupart des femmes.
+Pour qui ne connaîtrait pas les détails, cette personne était bien plus belle que la plupart des femmes.
 
-Les yeux de Bai Wei s'illuminèrent et il sourit: « Le Frère Aîné Wang a bel et bien tenu sa promesse. »
+Les yeux de Bai Wei s'illuminèrent et elle sourit: « Le Frère Aîné Wang a bel et bien tenu sa promesse. »
 
 Bien que l'expression de Wang Lin fût neutre, Xu Liguo fixait Bai Wei derrière lui. Si Wang Lin n'avait pas été là, peu importait le risque, il se serait jeté sur Bai Wei.
 
@@ -130,7 +130,7 @@ Wang Lin agrippa Xu Liguo et dit: « Bai... Sœur Cadette Bai, veuillez nous gui
 
 Bai Wei remarqua également quelque chose et regarda Xu Liguo avec un grand intérêt. Ce regard excita Xu Liguo.
 
-Bai Wei sourit et, d'un geste, frappa son sac de rangement d'où apparut une épée volante. Il monta sur l'épée et s'élança vers l'horizon. Wang Lin, imperturbable, fit un pas et rattrapa la lumière de l'épée.
+Bai Wei sourit et, d'un geste, frappa son sac de rangement d'où apparut une épée volante. Elle monta sur l'épée et s'élança vers l'horizon. Wang Lin, imperturbable, fit un pas et rattrapa la lumière de l'épée.
 
 « Bien que ce Bai Wei ait eu des traits féminins auparavant, ce n'était pas à ce point. Son corps est désormais imprégné d'une aura Yin, et même son tempérament a radicalement changé! » En avançant, Wang Lin sentit que quelqu'un le suivait discrètement. Sans même se retourner, il sut qu'il s'agissait de Zhao Xinmeng!
 

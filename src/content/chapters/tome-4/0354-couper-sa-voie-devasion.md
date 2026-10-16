@@ -22,17 +22,17 @@ Wang Lin sentit soudain la menace disparaître derrière lui; il arrêta donc la
 
 Cependant, cet homme possédait une puissance comparable à celle d'un cultivateur de la Transformation de l'Âme, ce qui obligea Wang Lin à redoubler de vigilance.
 
-Il réfléchit un instant, laissa échapper un renflement et, au lieu de reculer, il contourna le vieil homme pour se placer sur son flanc.
+Il réfléchit un instant, laissa échapper un reniflement et, au lieu de reculer, il contourna le vieil homme pour se placer sur son flanc.
 
 Le vieil homme remarqua la manœuvre de Wang Lin. Son visage s'assombrit, mais il n'intervint pas.
 
-Quelques jours passèrent, et le vieil homme était hors de lui. Wang Lin avait maintenu la même distance tout ce temps. Il avait enduré cela longtemps, mais finit par reculer brusquement en criant: « Tu es vraiment imprudent! »
+Quelques jours passèrent, et le vieil homme était hors de lui. Wang Lin avait maintenu la même distance tout ce temps. Il avait enduré cela longtemps, mais finit par se retourner brusquement en criant: « Tu es vraiment imprudent! »
 
 Il se transforma en un rayon de lumière et se lança à la poursuite de Wang Lin.
 
 Wang Lin laissa échapper un rire, et la boussole stellaire disparut dans le vide.
 
-Après avoir poursuivi sa course pendant encore quelques jours, le vieil homme dut renoncer, sentant la puissance de ses tatouages faiblir inexorablement. Il poussa un renflement froid avant de se tourner à nouveau vers la sortie.
+Après avoir poursuivi sa course pendant encore quelques jours, le vieil homme dut renoncer, sentant la puissance de ses tatouages faiblir inexorablement. Il poussa un reniflement froid avant de se tourner à nouveau vers la sortie.
 
 Wang Lin s'arrêta net. Ses yeux brillèrent et, après une courte réflexion, il reprit son harcèlement contre le vieil homme.
 
@@ -94,7 +94,7 @@ La lance de l'étendard de restriction, ses gravures du domaine temporel, le sce
 
 Après tout, depuis le début de sa culture, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
 
-L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante via Xu Liguo, tant qu'elle se trouvait à moins de neuf mètres de lui.
+L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante via Xu Liguo, tant qu'elle se trouvait à moins de dix mètres de lui.
 
 Par conséquent, bien que la puissance de l'épée n'ait pas augmenté, elle était devenue bien plus agile. Tout cela grâce au vieil homme.
 

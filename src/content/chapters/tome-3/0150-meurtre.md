@@ -20,15 +20,15 @@ Le cœur de Kun Sang était envahi par la panique. Dès qu'il aperçut Wang Lin,
 
 La mort mystérieuse de Pu Lin était ce qui l'effrayait le plus. Aucun mot ne pouvait décrire le regret qui lui rongeait le cœur en cet instant. Pour un fourneau à pilules, deux des trois membres du groupe étaient déjà morts. Cette simple pensée le fit vaciller; il sortit précipitamment quelques pilules qu'il avala. Une fois son énergie spirituelle restaurée, il se mordit la langue et cracha un jet de sang. Ses mains formèrent rapidement des sceaux qu'il injecta dans ce sang. Tandis qu'il traçait ces sceaux, son corps se flétrissait à vue d'œil, mais sa vitesse augmentait de façon prodigieuse.
 
-Il ne laissa derrière lui qu'une traînée d'images rémanentes alors que son corps bondissait sur des centaines de mètres.
+Il ne laissa derrière lui qu'une traînée d'images rémanentes alors que son corps bondissait sur une centaine de lieues.
 
-Wang Lin ricana en fendant le ciel telle une météorite. Lorsqu'il vit Kun Sang, un éclat glacial passa dans ses yeux. Il ouvrit la bouche et une lueur cristalline s'en échappa. En un instant presque imperceptible, cette lumière parcourut des centaines de mètres.
+Wang Lin ricana en fendant le ciel telle une météorite. Lorsqu'il vit Kun Sang, un éclat glacial passa dans ses yeux. Il ouvrit la bouche et une lueur cristalline s'en échappa. En un instant presque imperceptible, cette lumière parcourut une centaine de lieues.
 
 En pleine fuite, Kun Sang ressentit soudain une douleur fulgurante dans la poitrine. En baissant les yeux, il vit une lumière cristalline lui transpercer le buste. Son noyau jaillit de sa poitrine et fut projeté en arrière. Il ouvrit la bouche, mais aucun son ne put sortir. Sa vision s'obscurcit tandis qu'il chutait du ciel. Jusqu'à l'instant de sa mort, il ne parvint pas à comprendre comment tout avait pu basculer si vite. La proie était soudainement devenue le prédateur.
 
 Alors que son corps tombait, un fin filet de lumière dorée s'étira depuis le tendon de dragon vers lui. Lorsque Wang Lin passa à sa hauteur, le corps fut capturé par le tendon et flotta derrière lui.
 
-Les trois corps des cultivateurs au stade de la Formation du Noyau ressemblaient désormais aux plumes d'une queue de paon, et Wang Lin en était l'axe central.
+Les trois corps des cultivateurs au stade de la Formation du Noyau ressemblaient désormais aux plumes d'une queue de paon, et Wang Lin en était la huppe.
 
 « Le troisième! » Le visage de Wang Lin était sombre alors qu'il rangeait le noyau doré dans son sac de rangement pour foncer vers sa prochaine cible.
 
@@ -46,7 +46,7 @@ Un fil doré perça le sol, agrippa le corps de Chen Hai et l'extirpa avec une g
 
 Après avoir tué deux personnes, la froideur dans le regard de Wang Lin ne s'était pas atténuée; elle s'était intensifiée alors qu'il poursuivait sa traque.
 
-Une heure plus tard, le nombre de corps derrière Wang Lin était passé de quatre à neuf.
+Une demi-heure plus tard, le nombre de corps derrière Wang Lin était passé de quatre à neuf.
 
 Le dernier survivant était l'Ancien principal, Qian Kun, qui avait été le premier à s'enfuir. Plus il courait, plus sa terreur grandissait. Cette peur atteignit son paroxysme lorsque son sens divin détecta Wang Lin et les neuf corps qui volaient derrière lui. Il en eut le vertige.
 
@@ -66,7 +66,7 @@ La montagne Wu Ding était un massif imposant sur lequel étaient bâtis de nomb
 
 Ce jour-là, alors que les disciples de la branche étaient en pleine culture, les deux anciens de la Formation du Noyau qui en avaient la charge, les frères Mu Nan et Mu Bei, sortirent de leurs quartiers.
 
-Dans les airs, Qian Kun était exténué et meurtri. Il n'attendit même pas d'être à portée pour hurler: « Mu Nan, Mu Bei! Je vous ordonne de rassembler tous les disciples de Wu Ding et d'arrêter l'individu qui me poursuit! Ne laissez personne quitter la montagne Wu Ding! Si vous réussissez, je vous récompenserai chacun de 10 000 pierres spirituelles de haute qualité! » Sur ces mots, il s'enfuit dans un élan de panique.
+Dans les airs, Qian Kun était exténué et meurtri. Il n'attendit même pas d'être à portée pour hurler: « Mu Nan, Mu Bei! Je vous ordonne de rassembler tous les disciples de Wu Ding et d'arrêter l'individu qui me poursuit! Ne laissez personne quitter la montagne Wu Ding! Si vous réussissez, je vous récompenserai de 10 000 pierres spirituelles de haute qualité! » Sur ces mots, il s'enfuit dans un élan de panique.
 
 En sortant, Mu Nan et Mu Bei furent stupéfaits par les paroles de l'Ancien principal. Comment pourraient-ils arrêter quelqu'un dont la simple présence forçait l'Ancien principal à la fuite?
 

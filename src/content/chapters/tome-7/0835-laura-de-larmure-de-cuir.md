@@ -92,7 +92,7 @@ Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait to
 
 Les nouvelles rapportées par les survivants se propagèrent comme une tempête à travers le Système Stellaire Allheaven: Maître Démon Xu Mu ne devait pas être provoqué, à moins d'une nécessité absolue!
 
-Cet homme était d'une folie pure. Non seulement il était puissant, mais il était aussi aussi sanguinaire qu'un démon. Non seulement il était prêt à massacrer des cultivateurs de bas niveau, mais pour se venger, il était capable de réveiller cette bête colossale pour provoquer une catastrophe!
+Cet homme était d'une folie pure. Non seulement il était puissant, mais il était aussi sanguinaire qu'un démon. Non seulement il était prêt à massacrer des cultivateurs de bas niveau, mais pour se venger, il était capable de réveiller cette bête colossale pour provoquer une catastrophe!
 
 Une telle férocité pouvait être comparée à celle des cultivateurs de la planète Dong Lin. En conséquence, plus personne n'envisageait de s'en mêler. Parallèlement, les rumeurs sur les actes de Xu Mu dans le Royaume Céleste du Tonnerre commençaient à se répandre et restaient gravées dans le cœur de chacun.
 

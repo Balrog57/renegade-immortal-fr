@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 492 - Ancient Demon
 slug: demon-ancestral
 ---
-Zhao Xingsha leva soudain la tête, et l'illusion d'un démon géant apparut au-dessus de lui. Ce démon mesurait plus de mille pieds de haut et arborait deux cornes. Bien qu'il ne s'agît que d'une silhouette floue, il dégageait une puissante aura démoniaque.
+Zhao Xingsha leva soudain la tête, et l'illusion d'un démon géant apparut au-dessus de lui. Ce démon mesurait environ 330 mètres de haut et arborait deux cornes. Bien qu'il ne s'agît que d'une silhouette floue, il dégageait une puissante aura démoniaque.
 
 Le démon était massif et musclé, et de faibles lignes bleues luisaient sur son corps vaporeux. Sa main gigantesque, dont les ongles ressemblaient à des épées, témoignait de la nature anormale de cette créature.
 
@@ -40,7 +40,7 @@ Le regard de Wang Lin devint grave lorsqu'il vit un vortex rouge apparaître là
 
 Le visage de Zhao Xingsha était blême, tandis que celui de l'illusion commençait à virer au bleu, ses yeux tremblant comme s'il allait s'éveiller d'un instant à l'autre.
 
-Les yeux de Wang Lin se glacèrent. D'une simple pensée, le drapeau des âmes apparut dans sa main. D'un coup sec, il fit croître le drapeau, qui extirpa alors les âmes primaires du vortex rouge.
+Les yeux de Wang Lin se glacèrent. D'une simple pensée, le drapeau des âmes apparut dans sa main. D'un coup sec, il fit croître le drapeau jusqu'à plus de 300 mètres, qui extirpa alors les âmes primaires du vortex rouge.
 
 Au moment où Wang Lin récupéra ses âmes, le démon au-dessus de Zhao Xingsha laissa échapper un rugissement terrassant. Ses yeux s'ouvrirent brusquement, révélant un regard capable de faire vaciller le cœur de n'importe quelle forme de vie. Son regard était d'une froideur absolue, plus glaçant encore que celui de ceux qui avaient cultivé l'insensibilité, et il perçait les os plus profondément que celui de ceux ayant tranché toute émotion.
 
@@ -56,7 +56,7 @@ Les yeux du démon s'illuminèrent. Il abandonna Wang Lin pour se tourner vers l
 
 Le rugissement indomptable de la bête emplissait l'espace alors qu'elle entraînait le char de guerre pour percuter de plein fouet le démon.
 
-Cependant, malgré le fracas tonnerre provoqué par la collision, la bête spirituelle traversa la main du démon pour s'engouffrer directement dans son corps.
+Cependant, malgré le fracas du tonnerre provoqué par la collision, qui résonna à plusieurs milliers de kilomètres à la ronde, la bête spirituelle traversa la main du démon pour s'engouffrer directement dans son corps.
 
 Le démon géant afficha une expression mystérieuse, puis plongea sa main dans sa propre poitrine. D'une manière ou d'une autre, il extirpa la bête de son torse, la fixa froidement et s'apprêta à la dévorer.
 
@@ -66,11 +66,11 @@ Le démon géant afficha une expression mystérieuse, puis plongea sa main dans 
 
 Le symbole sur le front de Zhao Xingsha fulgura violemment encore quelques fois avant de commencer à s'effacer. Ce dernier cracha une large traînée de sang pour contenir la contre-attaque de son propre pouvoir. Il fixa ensuite Wang Lin en affichant un sourire sinistre.
 
-Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta un regard à Zhao Xingsha avant de regagner le char de guerre et de reprendre sa forme de piège à bêtes.
+Une fois libérée, la bête spirituelle ne lutta pas et ne rugit pas. Elle jeta un regard à Zhao Xingsha avant de regagner le char de guerre et de reprendre sa forme de cercle de bronze.
 
 À ce moment-là, un nuage rouge apparut à l'horizon. Une masse de nuages pourpres commença à s'agglutiner jusqu'à prendre la forme d'un vieil homme vêtu d'une robe rouge. Le visage de l'individu était d'un rouge ardent, il exhalait une forte odeur de vin et portait une grande gourde dans son dos. Apparaissant ainsi, il laissa échapper un rot, roula des yeux et réprimanda: « Pourquoi vous disputez-vous tous? Si vous ne vous battiez pas, comment ce vieil homme aurait-il été envoyé par l'Omniscient, ce vieux sac d'os, pour vous punir? Je n'en étais qu'à la moitié de ma dégustation! »
 
-L'expression de Wang Lin resta calme tandis qu'il saisissait le piège à bêtes. Il se dirigea vers la table et tira une chaise à trois places de la Quatrième Sœur. C'était sa place.
+L'expression de Wang Lin resta calme tandis qu'il saisissait le cercle de bronze. Il se dirigea vers la troisième table vide, après celle de la Quatrième Sœur. C'était sa place.
 
 D'un revers de manche, il s'assit.
 
@@ -78,7 +78,7 @@ Zhao Xingsha regarda le vieillard au visage pourpre, joignit les mains et dit: �
 
 L'homme au visage rouge scruta Zhao Xingsha et demanda: « Tu me connais? »
 
-Zhao Xingsha hocha la tête et répondit respectueusement: « Lorsque le disciple est entré dans la Secte du Destin Céleste il y a deux mille ans, j'ai rencontré l'Oncle-Maître une fois. »
+Zhao Xingsha hocha la tête et répondit respectueusement: « Lorsque le disciple est entré dans la Secte du Destin Céleste il y a plus de mille ans, j'ai rencontré l'Oncle-Maître une fois. »
 
 Le vieil homme renifla: « Même si tu me connais, cela ne sert à rien. L'esprit démoniaque en ton corps vient à peine de croître et tu as déjà tenté de l'utiliser de force. Attends-toi donc à la punition de ton maître! » Sur ce, il tendit la main pour saisir Zhao Xingsha, puis son regard se porta vers Wang Lin. Un air d'intérêt apparut sur son visage et il sourit: « Petit, ton maître place de grands espoirs en toi. Ce frère aîné ne participera pas à la compétition pour le titre de disciple véritable de ta Division Violette, tu peux donc te détendre! »
 

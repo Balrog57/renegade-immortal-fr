@@ -32,7 +32,7 @@ Le trio survolait rapidement le glacier. Au troisième jour de leur périple, Wa
 
 Les yeux de Chi Hu s'illuminèrent et il expliqua: « La brume glaciale du glacier. Elle contient une énergie d'un froid extrême. Papillon Rouge, nous comptons sur vous. »
 
-Sans un mot, Papillon Rouge frappa son sac de rangement d'où s'échappa une sculpture de glace. Celle-ci se mua rapidement en un immense ange de neige.
+Sans un mot, Papillon Rouge frappa son sac de rangement d'où s'échappa une sculpture de glace. Celle-ci se mua rapidement en un immense ange de neige haut d'une dizaine de mètres.
 
 L'ange de neige fonça vers la brume. Dès que la sculpture entra en contact avec elle, la brume se fendit. La sculpture glissait à travers la brume comme un couteau brûlant dans du beurre.
 
@@ -48,13 +48,13 @@ Papillon Rouge fronça les sourcils. Elle traça des sceaux de la main et pointa
 
 Très loin derrière eux, l'homme d'âge mûr progressait en buvant à sa gourde. Lorsque la brume bleue approchait de lui, une force invisible la repoussait sur les côtés. Dès que la brume devenait trop dense, l'homme crachait occasionnellement une gorgée de son breuvage. Un sifflement semblable au contact de l'huile bouillante sur la glace se faisait entendre, et la brume se dissipait instantanément.
 
-« Ting Er, ton corps est dix mille fois plus froid que cette brume. Ton corps est bien meilleur. Quand je te tiens contre moi, je me sens rassuré. »
+« Ting Er, ton corps est mille fois plus froid que cette brume. Ton corps est bien meilleur. Quand je te tiens contre moi, je me sens rassuré. »
 
 Après quelques jours, la brume bleue finit par s'estomper. Durant ce laps de temps, Papillon Rouge eut recours à trois sculptures de glace au total. Vers la fin, la brume s'était intensifiée; une couche de brume violette apparut et brisa instantanément la sculpture de glace. Papillon Rouge dut alors invoquer son trésor de vie, cette magnifique rose, pour pouvoir résister.
 
 Son énergie spirituelle était épuisée et son visage était pâle. Ses yeux se tournèrent vers Wang Lin avec un regard méfiant.
 
-Wang Lin fut stupéfait. Il pensa que s'il avait été seul, il n'aurait jamais pu progresser aussi loin, surtout face à cette brume violette. Le simple contact des résidus de la brume suffisait à lui glacer la moitié du corps jusqu'aux os. Même un cultivateur ordinaire au stade de la Formation de l'Âme aurait eu de grandes difficultés à franchir cet obstacle. Seule une personne comme Papillon Rouge, dotée d'une méthode de culture basée sur la glace, pouvait passer en toute sécurité. Chi Hu avait dû en tenir compte avant de lui demander de les accompagner.
+Wang Lin fut stupéfait. Il pensa que s'il avait été seul, il n'aurait jamais pu progresser aussi loin, surtout face à cette brume violette. Le simple contact des résidus de la brume suffisait à lui glacer la moitié du corps jusqu'aux os. Même un cultivateur ordinaire au stade avancé de la Formation de l'Âme aurait eu de grandes difficultés à franchir cet obstacle. Seule une personne comme Papillon Rouge, dotée d'une méthode de culture basée sur la glace, pouvait passer en toute sécurité. Chi Hu avait dû en tenir compte avant de lui demander de les accompagner.
 
 Le temps passa lentement et ils atteignirent enfin l'autre côté de la brume bleue. Arrivés à la lisière du glacier, Papillon Rouge déclara froidement: « J'ai rempli ma part du travail. À partir de maintenant, je n'interviendrai plus. »
 
@@ -62,7 +62,7 @@ Chi Hu laissa échapper un rire et joignit les mains avec sincérité. « Papill
 
 Wang Lin esquissa un léger sourire. Si Chi Hu n'avait pas été là, il aurait tenté d'attaquer Papillon Rouge. Cependant, l'attitude de Chi Hu signifiait que si Wang Lin passait à l'acte, ce dernier s'y opposerait. De plus, Wang Lin ne croyait pas qu'elle fût réellement affaiblie à ce point. Il était évident qu'elle feignait la faiblesse pour tenter d'inciter Wang Lin à l'attaquer. En outre, si son énergie spirituelle était véritablement épuisée, elle disposerait certainement de pilules pour la restaurer instantanément. Avec l'expérience de Wang Lin, comment pourrait-il tomber dans un piège aussi puéril?
 
-Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lueur se mua immédiatement en une boussole géante qui flottait dans le vide devant eux.
+Chi Hu frappa son sac de rangement et une lumière verte s'en échappa. Cette lueur se mua immédiatement en une boussole géante qui flottait dans le vide, à trente-trois mètres devant eux.
 
 Les yeux magnifiques de Papillon Rouge fixèrent la boussole tandis qu'elle disait d'une voix glaciale: « Le trésor du Clan des Démons Géants... la Boussole Stellaire? »
 
@@ -84,15 +84,15 @@ Wang Lin réfléchit un instant avant de voler vers l'extrémité est pour s'y a
 
 Wang Lin acquiesça. Un drapeau de restriction apparut soudainement, l'enveloppant d'une brume noire. Si Chi Hu ou Papillon Rouge tentaient de l'attaquer pendant qu'il était occupé, le drapeau pourrait le protéger un instant, lui laissant le temps de riposter. Une telle précaution était indispensable en toute circonstance.
 
-Les yeux de Chi Hu brillèrent. Il ne se sentit pas offensé; cela lui semblait naturel. Après tout, s'il avait été à la place de Wang Lin, il aurait agi de même. Il ferma les yeux et activa son énergie spirituelle. La boussole disparut soudainement: ils avaient déjà parcouru des milliers de mètres. Ce n'était pas de la téléportation; ils se déplaçaient à une vitesse prodigieuse.
+Les yeux de Chi Hu brillèrent. Il ne se sentit pas offensé; cela lui semblait naturel. Après tout, s'il avait été à la place de Wang Lin, il aurait agi de même. Il ferma les yeux et activa son énergie spirituelle. La boussole disparut soudainement: ils avaient déjà parcouru plusieurs kilomètres. Ce n'était pas de la téléportation; ils se déplaçaient à une vitesse prodigieuse.
 
 Dès que Chi Hu activa la boussole stellaire, une force mystérieuse enveloppa le sommet de l'objet. Sous l'influence de cette force, Wang Lin sentit son Sens Divin fusionner avec la boussole. Non seulement le sien, mais aussi ceux de Chi Hu et de Papillon Rouge s'y trouvaient également. Les Sens Divins des trois individus étaient désormais unis au sein de cette puissance mystérieuse.
 
-Le Sens Divin de Chi Hu transmetta un message: « Papillon Rouge, frère Ceng, ne soyez pas surpris. C'est le fonctionnement normal de la boussole stellaire. Lorsqu'elle est en action, nous ne pouvons plus parler; nous ne communiquons que par nos Sens Divins. »
+Le Sens Divin de Chi Hu transmit un message: « Papillon Rouge, frère Ceng, ne soyez pas surpris. C'est le fonctionnement normal de la boussole stellaire. Lorsqu'elle est en action, nous ne pouvons plus parler; nous ne communiquons que par nos Sens Divins. »
 
 « Frère Ceng, voici la carte stellaire. Une fois que vous l'aurez mémorisée, déployez les âmes. Si vous trouvez des anomalies, prévenez-moi. »
 
-Une carte couverte d'innombrables points apparut au sein de la force mystérieuse, immédiatement détectée par Wang Lin. Il y jeta un coup d'œil avant de porter la main à son front. Soudain, une partie de ses âmes errantes s'échappa et se répandit dans les environs.
+Une carte couverte d'innombrables points apparut au sein de la force mystérieuse, immédiatement détectée par Wang Lin. Il y jeta un coup d'œil avant de porter la main à son front. Soudain, un tiers de ses âmes errantes s'échappa et se répandit dans les environs.
 
 « Cette boussole stellaire est vraiment incroyable. C'est un trésor indispensable pour voyager parmi les étoiles. Si l'occasion se présente à l'avenir, j'en chercherai une. Il est regrettable que je manque des matériaux nécessaires à sa fabrication, malgré la possession de la méthode de création. Sinon, je préférerais en raffiner une moi-même. » Wang Lin était fasciné par cet objet.
 

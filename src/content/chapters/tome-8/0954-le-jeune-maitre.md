@@ -60,7 +60,7 @@ Ces êtres apparurent devant lui un à un, le fixant froidement du regard.
 
 Le corps du garçon trembla sous l'effet d'un froid glacial. Ce froid n'était pas seulement physique, c'était aussi la solitude de son cœur. Les souvenirs de son enfance continuaient de ressurgir.
 
-« Est-ce ainsi que je vais partir... Après des milliers d'années de culture, je vais finalement m'éteindre... » L'odeur émanant de l'empreinte noire sur son dos devint plus forte, et presque toute sa colonne vira au noir.
+« Est-ce ainsi que je vais partir... Après plus de mille ans de culture, je vais finalement m'éteindre... » L'odeur émanant de l'empreinte noire sur son dos devint plus forte, et presque toute sa colonne vira au noir.
 
 Ses yeux se fermèrent lentement comme s'il était enveloppé par les ténèbres, perdant progressivement conscience.
 
@@ -68,7 +68,7 @@ Ses yeux se fermèrent lentement comme s'il était enveloppé par les ténèbres
 
 Le corps du garçon à la grosse tête tressaillit et il réussit de justesse à ouvrir les yeux. Il esquissa un sourire amer et murmura: « Est-ce vraiment le cas... »
 
-Deux silhouettes de 10 000 pieds de haut poursuivaient Lei Ji. Elles ressemblaient à deux colosses faisant de grandes enjambées pour les rattraper.
+Deux silhouettes de 3 300 mètres de haut poursuivaient Lei Ji. Elles ressemblaient à deux colosses faisant de grandes enjambées pour les rattraper.
 
 Chacune portait la marque d'une hache brillant entre ses sourcils. Leurs regards étaient glacials et chargés d'une intention meurtrière.
 

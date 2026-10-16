@@ -52,9 +52,9 @@ Des bruits de craquements retentirent rapidement alors que la glace autour de Ya
 
 La main droite de Wang Lin ne s'arrêta pas; il continua de former des sceaux qui s'abattirent sur le corps de Yao Bingyun. Un à un, les restrictions se posèrent sur elle et sur son âme originelle.
 
-Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet du Karma apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
+Tout en plaçant ces restrictions, la main gauche de Wang Lin pointa vers le ciel et le Fouet d'Âme apparut. Il fonça dans le corps de Yao Bingyun pour verrouiller son âme originelle.
 
-Wang Lin ressentant encore une certaine inquiétude, il frappa son sac de stockage, faisant apparaître le Drapeau des Âmes. Le drapeau s'enroula étroitement autour de Yao Bingyun.
+Wang Lin ressentant encore une certaine inquiétude, il frappa son sac de stockage, faisant apparaître le Drapeau des Âmes. Ce drapeau de 33 mètres s'enroula étroitement autour de Yao Bingyun.
 
 Enfin, Wang Lin cracha le Sceau de Scellement Céleste. Dès qu'il apparut, la main de Wang Lin traça un sceau et il hurla: « Scelle! »
 
@@ -116,10 +116,10 @@ Après un instant de réflexion silencieuse, Wang Lin ferma les yeux, avant de l
 
 Pourtant, ce jour-là, un rayon de lumière transportant une aura terrifiante surgit du lointain. Il s'agissait d'un homme d'âge moyen: l'homme en robe noire qui avait combattu le serpent aux yeux de lune!
 
-Cette fois, il était venu avec son corps originel. Derrière lui se dressait l'image d'un aigle noir de trois cents mètres de haut. Les yeux de cet aigle, semblables à des éclairs, étaient d'une froideur absolue.
+Cette fois, il était venu avec son corps originel. Derrière lui se dressait l'image d'un aigle noir de 330 mètres de haut. Les yeux de cet aigle, semblables à des éclairs, étaient d'une froideur absolue.
 
 Dès son apparition, des grondements tonitruants retentirent au loin. C'était Maître Flamespark, qui s'était approché en un seul pas.
 
-Au moment où Maître Flamespark apparut, une lueur rouge jaillit et une formation octogonale de cent mille mètres de large se déploya dans l'espace. La pression qu'elle dégageait était si puissante qu'on pouvait la ressentir même à une distance immense.
+Au moment où Maître Flamespark apparut, une lueur rouge jaillit et une formation octogonale de 33 kilomètres de large se déploya dans l'espace. La pression qu'elle dégageait était si puissante qu'on pouvait la ressentir même à une distance immense.
 
 Alors que la formation octogonale scintillait de rouge, une aura capable de faire trembler les cieux se propagea lentement. La formation brilla intensément et quatre silhouettes en sortirent!

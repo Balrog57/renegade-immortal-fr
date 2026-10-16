@@ -46,13 +46,13 @@ Les yeux de Wang Lin s'illuminèrent et il dissimula son niveau de culture. Il r
 
 Deux sens divins le balayèrent comme pour l'évaluer. Ensuite, les deux semblèrent se détendre un peu et volèrent lentement vers lui.
 
-Ils s'arrêtèrent à plusieurs centaines de pieds de Wang Lin. Aucun des deux ne paraissait très âgé. L'homme était un jeune homme vêtu d'une robe verte. Cette robe était en désordre, trouée et marquée de taches de sang déjà devenues noires. Sur sa manche figurait un symbole mystérieux; c'était clairement l'emblème d'une certaine secte.
+Ils s'arrêtèrent à plusieurs centaines de mètres de Wang Lin. Aucun des deux ne paraissait très âgé. L'homme était un jeune homme vêtu d'une robe verte. Cette robe était en désordre, trouée et marquée de taches de sang déjà devenues noires. Sur sa manche figurait un symbole mystérieux; c'était clairement l'emblème d'une certaine secte.
 
-Quant à la femme, elle n'était pas très jolie. Son visage était couvert d'innombrables cicatrices. Si un mortel la voyait en pleine nuit, il la prendrait pour un monstre.
+Quant à la femme, elle n'était pas très jolie. Son visage était criblé d'innombrables petites cavités. Si un mortel la voyait en pleine nuit, il la prendrait pour un monstre.
 
 Bien que son visage fût peu gracieux, son corps possédait un charme féminin. Si l'on faisait abstraction de ses traits, elle dégageait indéniablement une certaine attirance.
 
-Alors qu'ils se trouvaient à plusieurs centaines de pieds de Wang Lin, l'homme cria: « Je suis Murong Yun. Puis-je connaître votre nom? »
+Alors qu'ils se trouvaient à plusieurs centaines de mètres de Wang Lin, l'homme cria: « Je suis Murong Yun. Puis-je connaître votre nom? »
 
 Wang Lin resta calme et esquissa un sourire. « Je suis Qing Mu! » Qing Mu était le nom que Wang Lin utilisait lorsqu'il était entré dans la Secte du Raffinement de l'Âme.
 
@@ -70,11 +70,11 @@ Murong Yun l'étudia de nouveau. Après avoir confirmé qu'il était réellement
 
 Wang Lin réfléchit un instant et répondit: « À vous entendre, vous semblez très confiant quant à la récupération de votre fragment d'âme. » Tandis qu'il parlait, ses yeux s'illuminèrent sans que personne ne s'en aperçoive.
 
-Murong Yun rit et dit: « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans la Tombe Suzaku. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan de l'Immortalité Délaissée sont entrés dans la section intérieure. Si mon niveau de culture n'était pas plus élevé, j'y serais déjà. »
+Murong Yun rit et dit: « Cher compagnon Qing, vous l'ignorez peut-être, mais j'ai fait partie de la première vague à pénétrer dans la Tombe Suzaku. J'ai vu de mes propres yeux comment Qian Feng et les chamans à huit feuilles du Clan de l'Immortel Délaissé sont entrés dans la section intérieure. Si mon niveau de culture n'était pas plus élevé, j'y serais déjà. »
 
 « Oh? » Wang Lin eut un léger sourire. « Comment Qian Feng et les autres sont-ils entrés? »
 
-Murong Yun afficha un sourire mystérieux: « Je ne peux dire au frère Qing que l'entrée est un autel. Ils ont cherché très longtemps avant de pouvoir y pénétrer. Cependant, l'emplacement de cet autel est reculé et très dangereux. Nous devons attendre d'être plus nombreux pour y aller, afin d'augmenter nos chances. »
+Murong Yun afficha un sourire mystérieux: « Je ne peux que dire au frère Qing que l'entrée est un autel. Ils ont cherché très longtemps avant de pouvoir y pénétrer. Cependant, l'emplacement de cet autel est reculé et très dangereux. Nous devons attendre d'être plus nombreux pour y aller, afin d'augmenter nos chances. »
 
 Le regard de Wang Lin resta calme. Il observa l'homme, sourit discrètement et hocha la tête.
 
@@ -98,7 +98,7 @@ Wang Lin regarda Murong Yun avec un sourire étrange et ne dit plus rien.
 
 Le cœur de Murong Yun sombra. Il jeta un dernier regard scrutateur à Wang Lin avant de se retourner pour poursuivre sa route.
 
-Les trois individus survolèrent rapidement la plaine, la femme laide menant la marche. L'après-midi du deuxième jour, celle-ci s'arrêta. Elle scruta l'horizon et dit froidement: « Il y a quelqu'un devant. »
+Les trois individus survolèrent rapidement la plaine, la femme laide menant la marche. Le deuxième jour, à midi, celle-ci s'arrêta. Elle scruta l'horizon et dit froidement: « Il y a quelqu'un devant. »
 
 À peine eut-elle parlé qu'une épée fendit l'air et fonça vers eux. Tandis que la féroce énergie de l'épée approchait, une aura glaciale enveloppa la zone.
 
@@ -118,7 +118,7 @@ Tout s'était passé à une vitesse fulgurante. Si Wang Lin n'avait pas prêté 
 
 L'éclair disparut rapidement. Même le vieil homme sur l'épée volante fut stupéfait. Il s'arrêta, regarda derrière lui et fronça sévèrement les sourcils.
 
-Murong Yun avança de quelques pieds. Il joignit les mains et dit: « Le jeune Murong Yun salue l'aîné. »
+Murong Yun avança de quelques mètres. Il joignit les mains et dit: « Le jeune Murong Yun salue l'aîné. »
 
 Le vieil homme lança un regard froid à Murong Yun et l'ignora. Son attention se porta sur Wang Lin alors qu'il joignait les mains et disait: « Un grand merci, compagnon cultivateur Ceng! »
 

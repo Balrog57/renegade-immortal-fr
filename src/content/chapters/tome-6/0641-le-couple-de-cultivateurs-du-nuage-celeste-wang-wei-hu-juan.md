@@ -36,7 +36,7 @@ Après un temps indéterminé, l'épée céleste transportant Zhou Yi s'arrêta 
 
 La voix de Zhou Yi devint quelque peu éthérée au sein de la brume.
 
-Le regard de Wang Lin se glaça. L'apparition de cette brume était tout à fait anormale. Non seulement elle obstruait la vue, mais elle limitait également le sens divin à moins de trente pieds. Dès qu'il tentait d'étendre sa perception au-delà, son sens divin disparaissait, comme s'il était dévoré par la brume. Même à trente pieds, ce que son sens divin percevait restait flou.
+Le regard de Wang Lin se glaça. L'apparition de cette brume était tout à fait anormale. Non seulement elle obstruait la vue, mais elle limitait également le sens divin à moins de 9,9 mètres. Dès qu'il tentait d'étendre sa perception au-delà, son sens divin disparaissait, comme s'il était dévoré par la brume. Même à 9,9 mètres, ce que son sens divin percevait restait flou.
 
 Simultanément, l'aspiration du gouffre sembla s'intensifier avec l'apparition de la brume. Pourtant, cette force n'avait aucun effet sur la brume elle-même, ce qui était extrêmement singulier.
 
@@ -78,11 +78,11 @@ Dans ce moment critique, Wang Lin prit une profonde inspiration et le Fleuve des
 
 Un rugissement jaillit de Zhou Yi, semblant contenir un sort d'esprit d'épée. L'épée émit un éclat de lumière et Zhou Yi tira soudainement Wang Lin vers l'ouverture du puits.
 
-Wang Lin eut l'impression que son corps allait être déchiré. La grande épée dans sa main droite pesait une tonne. Debout sur l'épée céleste, les veines de son visage saillirent sous l'effort. Tandis que Zhou Yi s'élançait vers le haut, la grande épée fut également remontée lentement. Les yeux de Wang Lin brillaient de détermination; il ne pouvait pas lâcher prise, de peur que cette épée ne disparaisse à jamais dans les profondeurs.
+Wang Lin eut l'impression que son corps allait être déchiré. La grande épée dans sa main droite semblait peser une montagne. Debout sur l'épée céleste, les veines de son visage saillirent sous l'effort. Tandis que Zhou Yi s'élançait vers le haut, la grande épée fut également remontée lentement. Les yeux de Wang Lin brillaient de détermination; il ne pouvait pas lâcher prise, de peur que cette épée ne disparaisse à jamais dans les profondeurs.
 
 Au fur et à mesure de leur ascension, l'or recouvrant l'épée s'effrita, révélant une lame totalement noire. Les joyaux restants sur la garde se brisèrent et furent aspirés dans le gouffre.
 
-Zhou Yi poussa un rugissement, décuplant la puissance de l'épée céleste, et la grande épée fut hissée de plusieurs dizaines de pieds supplémentaires. Wang Lin utilisa davantage d'énergie spirituelle céleste pour faire tournoyer le Fleuve des Enfers encore plus vite, affaiblissant ainsi la force d'aspiration. Finalement, Zhou Yi jaillit du gouffre avec Wang Lin!
+Zhou Yi poussa un rugissement, décuplant la puissance de l'épée céleste, et la grande épée fut hissée d'une dizaine de mètres supplémentaires. Wang Lin utilisa davantage d'énergie spirituelle céleste pour faire tournoyer le Fleuve des Enfers encore plus vite, affaiblissant ainsi la force d'aspiration. Finalement, Zhou Yi jaillit du gouffre avec Wang Lin!
 
 Au moment où ils s'échappèrent, Wang Lin poussa un cri de victoire. La grande épée fut arrachée à l'abîme et atterrit dans ses mains! Un mot, gravé superficiellement sur la lame, apparut: « Richesse! »
 
@@ -100,7 +100,7 @@ Grâce à la vitesse de Zhou Yi, ils se rapprochèrent de l'entrée du Pays des 
 
 Dans les Terres des Esprits Démoniaques, un nuage fonçait depuis le sud. Ce nuage était imprégné d'énergie spirituelle céleste, comme s'il provenait du Royaume Céleste. Il émettait des éclats de lumière qui coloraient le ciel lors de son passage.
 
-Deux personnes se tenaient sur ce nuage providentiel: un homme et une femme. L'homme se tenait droit, vêtu d'une robe bleue brodée de nuages azur qui semblaient même onduler. Ses longs cheveux flottaient derrière lui, révélant un visage handsome. Il faisait face au vent, une flûte en jade vert à la main; avec le flottement de ses vêtements, il ressemblait à un véritable être céleste.
+Deux personnes se tenaient sur ce nuage providentiel: un homme et une femme. L'homme se tenait droit, vêtu d'une robe bleue brodée de nuages azur qui semblaient même onduler. Ses longs cheveux flottaient derrière lui, révélant un visage beau. Il faisait face au vent, une flûte en jade vert à la main; avec le flottement de ses vêtements, il ressemblait à un véritable être céleste.
 
 Derrière lui, la femme portait une robe lavande ornée de petites fleurs roses. Ses cheveux étaient négligemment attachés en un chignon maintenu par une épingle lavande. Malgré cette simplicité, elle n'en perdait pas l'élégance. Son maquillage était léger et ses lèvres étaient naturellement rouges, sans aucun cinabre. On pourrait dire que sa grâce était douce et son aura parfumée!
 
@@ -122,7 +122,7 @@ Leur culture pouvait rivaliser avec celle de l'Omniscient et de ses compagnons. 
 
 Heureusement, ils avaient une nature paisible et ne cherchaient pas le pouvoir. Tant qu'on ne les provoquait pas, la paix était maintenue. Si le vieil homme court les voyait, il grincerait des dents de rage: c'étaient eux qui lui avaient volé un sac de rangement autrefois.
 
-Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Lou, qui se trouvait sous la capitale du Pays des Démons du Ciel, ouvrit soudainement les yeux. Ses yeux émettaient une lumière dorée éclatante qui disparut rapidement.
+Le couple chevauchant leur nuage, ils volèrent directement vers le Pays des Démons de Feu. Au moment où le nuage pénétra dans le territoire, Bei Lou, qui se trouvait sous la capitale du Pays des Démons Célestes, ouvrit soudainement les yeux. Ses yeux émettaient une lumière dorée éclatante qui disparut rapidement.
 
 « Ils sont donc sortis de la grotte... Il semble que je doive accélérer l'absorption des autres âmes démoniaques anciennes... » Une pointe de crainte, bien dissimulée, brillait dans le regard de Bei Lou.
 

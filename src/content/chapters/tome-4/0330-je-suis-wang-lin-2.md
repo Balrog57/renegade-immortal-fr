@@ -50,7 +50,7 @@ En contemplant les rangées infinies de bâtiments de pierre spirituelle qui sem
 
 La formation de protection de la secte avait été facilement détruite. Les habitants de la Secte du Ciel Nuageux étaient plongés dans le désespoir.
 
-Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes de plus de trois cents mètres d'épaisseur. Certaines disciples féminines, dont le niveau de culture était faible, étaient si terrifiées qu'elles se mirent à pleurer.
+Zhan Bai fit un pas et pénétra dans la secte. Il était entouré d'un mur d'insectes s'étendant sur plusieurs centaines de mètres autour de lui. Certaines disciples féminines, dont le niveau de culture était faible, étaient si terrifiées qu'elles se mirent à pleurer.
 
 Zhan Bai tendit la main. Plusieurs disciples furent saisis par une force invisible. Un groupe d'insectes se détacha de l'essaim et bondit sur elles. Des cris déchirants résonnèrent rapidement alors que les disciples étaient submergés par les insectes. Ces derniers rampaient partout sur elles, certains s'introduisant même dans leurs corps.
 
@@ -78,7 +78,7 @@ Si l'on regardait de près, on remarquerait que les yeux de Zhan Bai étaient pr
 
 Quelques jours auparavant, elle avait commencé à envoyer des disciples partir, mais des milliers avaient décidé de rester. Ils restaient parce qu'ils considéraient la Secte du Ciel Nuageux comme leur foyer. Ils étaient prêts à se battre pour lui. Même en mourant, ils ne le regretteraient pas.
 
-Même Liu Fei et Song Qing, les deux Grands Anciens au stade avancé de l'Âme Naissante, avaient décidé de rester.
+Même Liu Fei et Song Qing, ainsi que deux Grands Anciens au stade avancé de l'Âme Naissante, avaient décidé de rester.
 
 Un vieil homme aux cheveux blancs fit un pas en avant, s'interposant devant Li Muwan, et dit à Zhan Bai: « Aîné, si vous avez une requête, veuillez la formuler! »
 

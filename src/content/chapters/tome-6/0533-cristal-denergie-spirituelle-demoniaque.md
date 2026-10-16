@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 533 - demonic spiritual energy Crystal
 slug: cristal-denergie-spirituelle-demoniaque
 ---
-Une fois qu'il eut terminé avec les jades, le sens divin de Wang Lin s'étendit et couvrit toute la vallée. Chaque villageois à l'intérieur de celle-ci était inconsciemment observé par lui. Il découvrit que presque tous possédaient un talent remarquable, bien supérieur à ce qu'était son propre corps lorsqu'il avait commencé sa culture.
+Une fois qu'il eut terminé avec les jades, le sens divin de Wang Lin s'étendit et couvrit toute la vallée. Chaque villageois à l'intérieur de celle-ci était inconsciemment observé par lui. Il découvrit que tous possédaient un talent remarquable, bien supérieur à ce qu'était son propre corps lorsqu'il avait commencé sa culture.
 
 Tout en éprouvant du regret, Wang Lin se sentait également heureux. Bien qu'il n'y eût aucune énergie spirituelle ici, il y avait de l'énergie spirituelle démoniaque. Peut-être qu'en utilisant cette énergie pour cultiver le drapeau spirituel, ils pourraient en tirer certains bénéfices.
 
@@ -36,7 +36,7 @@ Wang Lin pouvait clairement voir une aura ténue, semblable à un fil de soie, s
 
 Malgré tout, cette aura pouvait servir de catalyseur à la formation entourant la vallée. Grâce à elle, il pouvait contrôler la formation et même créer un corps factice.
 
-Une heure plus tard, Ouyang Hua ne put s'empêcher d'abandonner. Le visage empreint d'amertume, il secoua silencieusement la tête.
+Deux heures plus tard, Ouyang Hua ne put s'empêcher d'abandonner. Le visage empreint d'amertume, il secoua silencieusement la tête.
 
 Wang Lin ouvrit les yeux, qui s'illuminèrent, puis fit un geste de la main. Ouyang Hua poussa un cri et vola vers Wang Lin. Ce dernier leva deux doigts de sa main gauche et pointa soudainement le dantian d'Ouyang Hua.
 
@@ -46,11 +46,11 @@ Bien que la douleur fût atroce, il serra les dents. Il savait que si Wang Lin a
 
 À son âge, un homme serait normalement resté bloqué au premier rang[1] pour toujours, et il lui serait impossible d'obtenir davantage de rangs d'énergie spirituelle démoniaque. Pourtant, il avait le sentiment que s'il saisissait cette chance, la percée ne serait plus un simple rêve.
 
-Le doigt de Wang Lin, pointé vers le dantian d'Ouyang Hua, remonta lentement. À chaque demi-pouce parcouru, la douleur ressentie par Ouyang Hua doublait. La sueur tombait de son front comme une pluie, son corps entier tremblait violemment et son visage était devenu livide.
+Le doigt de Wang Lin, pointé vers le dantian d'Ouyang Hua, remonta lentement. À chaque centimètre et demi parcouru, la douleur ressentie par Ouyang Hua doublait. La sueur tombait de son front comme une pluie, son corps entier tremblait violemment et son visage était devenu livide.
 
-L'expression de Wang Lin demeurait impassible. Après avoir levé son doigt de trois pouces, il regarda calmement Ouyang Hua et dit: « Endure! »
+L'expression de Wang Lin demeurait impassible. Après avoir levé son doigt d'environ dix centimètres, il regarda calmement Ouyang Hua et dit: « Endure! »
 
-Sur ces mots, sa main gauche remonta brusquement de ces trois pouces jusqu'au front d'Ouyang Hua.
+Sur ces mots, sa main gauche remonta brusquement de ces dix centimètres jusqu'au front d'Ouyang Hua.
 
 Un gémissement de douleur déchirant s'échappa de la bouche d'Ouyang Hua et résonna dans toute la vallée. Ses yeux roulèrent en arrière alors qu'il s'effondrait au sol, inerte.
 
@@ -98,7 +98,7 @@ De son côté, Wang Lin avait passé ces trois mois à cultiver pour étudier le
 
 « Un cristal démoniaque de rang 3... » Les yeux de Wang Lin s'illuminèrent alors qu'il ouvrait la bouche pour dévorer le cristal. Celui-ci descendit dans son dantian, et des vagues d'énergie spirituelle démoniaque en jaillirent pour se répandre dans tout son corps.
 
-Après avoir laissé l'énergie spirituelle démoniaque circuler dans son organisme pendant une semaine, l'aura de Wang Lin commença à muter. Il n'avait plus cette aura éthérée propre aux êtres célestes; il était désormais enveloppé d'une énergie démoniaque qui lui donnait une apparence singulière. Même ses traits étaient devenus plus maléfiques, et son regard aurait fait trembler le cœur de n'importe quel être.
+Après avoir laissé l'énergie spirituelle démoniaque circuler dans son organisme pendant un cycle complet, l'aura de Wang Lin commença à muter. Il n'avait plus cette aura éthérée propre aux êtres célestes; il était désormais enveloppé d'une énergie démoniaque qui lui donnait une apparence singulière. Même ses traits étaient devenus plus maléfiques, et son regard aurait fait trembler le cœur de n'importe quel être.
 
 C'étaient des yeux d'un caractère démoniaque extrême! Ses yeux ovales et perçants étaient capables de terrasser les plus braves.
 

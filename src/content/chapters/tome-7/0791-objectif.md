@@ -44,9 +44,9 @@ Le jeune homme fut surpris et se retourna. Ses yeux étaient emplis d'une intent
 
 « Mensonges! Tu es Qing Shui! Qing Shui! Qing Shui! » La voix du vieil homme continuait de s'échapper du corps de Wang Lin.
 
-L'intention meurtrière dans les yeux du jeune homme s'intensifia alors qu'il laissait échapper un renflement froid. Il se retourna et continua sa traque des cultivateurs en fuite.
+L'intention meurtrière dans les yeux du jeune homme s'intensifia alors qu'il laissait échapper un reniflement froid. Il se retourna et continua sa traque des cultivateurs en fuite.
 
-Le vieil homme à l'intérieur de Wang Lin soupira. « L'héritier du pays de Clear Water ne peut même plus se souvenir de son propre nom, c'est vraiment pitoyable! » Cependant, le jeune homme resta de marbre, disparaissant pour continuer sa dévoration.
+Le vieil homme à l'intérieur de Wang Lin soupira. « L'héritier du pays de Qing Shui ne peut même plus se souvenir de son propre nom, c'est vraiment pitoyable! » Cependant, le jeune homme resta de marbre, disparaissant pour continuer sa dévoration.
 
 Wang Lin percevait clairement le dégoût de l'âme originelle du vieil homme, qui disparut dans le vide. Lorsqu'il réapparut, il se trouvait aux côtés d'un cultivateur Ascendant, à une grande distance.
 
@@ -74,7 +74,7 @@ Cependant, en cet instant de vie ou de mort, il n'avait plus le temps de réflé
 
 Même le jeune maléfique fut surpris en voyant ce tonnerre. Pourtant, son sourire glacial ne faiblit pas et sa main se tendit directement vers lui.
 
-Shengong Hu poussa un rugissement et l'éclair jaillit de sa main, dégageant une lueur rouge. Le jeune homme laissa échapper un renflement froid et attrapa l'éclair de plein fouet avant de le broyer dans sa main.
+Shengong Hu poussa un rugissement et l'éclair jaillit de sa main, dégageant une lueur rouge. Le jeune homme laissa échapper un reniflement froid et attrapa l'éclair de plein fouet avant de le broyer dans sa main.
 
 Shengong Hu saisit cette opportunité pour battre en retraite sans hésiter. À ce moment-là, Wang Lin aperçut Shengong Hu au loin. Bien qu'il ne puisse contrôler son corps, il pouvait communiquer avec le mystérieux vieillard.
 

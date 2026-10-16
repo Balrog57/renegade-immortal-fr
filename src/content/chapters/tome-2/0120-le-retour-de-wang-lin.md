@@ -6,17 +6,17 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 120 - Return of Wang Lin
 slug: le-retour-de-wang-lin
 ---
-Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un rocher gigantesque, il triait les gains de ses années de pratique lorsque son jade de transmission se mit soudainement à vibrer.
+Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un rocher gigantesque, il triait le butin accumulé ces dernières années lorsque son jade de transmission se mit soudainement à vibrer.
 
 Xu Hao fronça les sourcils et pressa le jade contre son front. Une voix extrêmement pressée pénétra son esprit.
 
 « Vite, rendez-vous au 48e degré nord-ouest. Un fragment de sens divin sans propriétaire vient d'apparaître. »
 
-L'émetteur du message était Ge Yang, un ami qu'il avait rencontré sur le champ de bataille étranger. Tous deux étaient des cultivateurs au stade avancé de l'Établissement des Fondations. Ils avaient l'habitude de s'allier pour traquer les trésors des autres, ce qui rendait leur relation très étroite.
+L'émetteur du message était Ge Yang, un ami qu'il avait rencontré sur le champ de bataille étranger. Tous deux étaient des cultivateurs au stade avancé de l'Établissement des Fondations. Ils avaient l'habitude de s'allier pour tuer et piller les trésors des autres, avec une entente remarquable.
 
 Dès que Xu Hao entendit ces mots, son expression changea instantanément, envahie par l'excitation. Le sens divin était la chose la plus précieuse du champ de bataille étranger, bien plus encore que les trésors magiques.
 
-Seuls les puissants cultivateurs dont l'Âme Naissante s'était échappée du corps avant de mourir avaient une infime chance de laisser derrière eux un fragment de sens divin.
+Seuls les puissants cultivateurs, dont l'Âme Naissante avait quitté le corps après la mort puis avait été anéantie à son tour, avaient une infime chance de laisser échapper un fragment de sens divin.
 
 Xu Hao n'en comprenait pas tous les usages précis, mais il savait qu'à son arrivée sur le champ de bataille étranger, le messager avait énuméré les objets convoités par les pays de culture supérieurs, et le sens divin figurait parmi les dix premiers.
 
@@ -26,13 +26,13 @@ Ces objets devaient être livrés dès leur obtention en échange d'une récompe
 
 Les yeux de Xu Hao brillèrent de cupidité; il tapa sur son sac de rangement, en sortit une fourche noire et chargea.
 
-Quant à Wang Lin, il attendait patiemment l'apparition de failles spatiales. Soudain, huit failles apparurent dans son sens divin.
+Quant à Wang Lin, il attendait patiemment l'apparition de failles spatiales. Au bout d'un long moment, huit failles apparurent soudain dans la portée de son sens divin.
 
 Des fragments du sens divin de Wang Lin s'engouffrèrent rapidement dans les failles pour y être sectionnés. Il avait ainsi projeté huit portions de son essence.
 
-Ce processus se poursuivit tandis que le sens divin de Wang Lin devenait de plus en plus ténu, au fur et à mesure qu'il expédia de fragments incalculables.
+Ce processus se poursuivit tandis que le sens divin de Wang Lin devenait de plus en plus ténu, au fur et à mesure qu'il expédiait des fragments incalculables.
 
-Au cours de ces trois années, le champ de bataille étranger était tombé dans un état de frénésie. Depuis que Xu Hao et Ge Yang avaient récupéré ce premier fragment, des morceaux de sens divin apparaissaient quotidiennement, plongeant tous les occupants du champ de bataille dans une folie meurtrière.
+Au cours de ces trois années, le champ de bataille étranger était tombé dans un état de frénésie. Depuis que Xu Hao et Ge Yang avaient récupéré ce premier fragment, des morceaux de sens divin apparaissaient quotidiennement, rendant fous tous ceux qui s'occupaient du nettoyage du champ de bataille.
 
 Il était inconcevable qu'une telle quantité de sens divin puisse apparaître ainsi. Si les pays de culture supérieurs l'avaient appris, cet événement aurait immédiatement attiré leur attention. Pourtant, durant ces trois ans, personne n'avait été envoyé pour inspecter le champ de bataille étranger.
 
@@ -42,7 +42,7 @@ La cause de ce phénomène résidait dans les failles spatiales. Au cours de la 
 
 Les experts des pays de culture de rang 4 et 5 en étaient venus à la conclusion que le champ de bataille étranger était sur le point de s'effondrer. Si ne serait-ce qu'une seule Âme Naissante y pénétrait en ce moment, cela pourrait précipiter sa destruction totale.
 
-Quant à demander aux pays de culture de rang 6 d'intervenir pour le réparer, le prix était exorbitant. Même en sachant que d'immenses quantités de sens divin apparaissaient à l'intérieur, ils n'auraient pas accepté, d'autant plus que les frais auraient été partagés entre les pays de rang 5.
+Quant à demander aux pays de culture de rang 6 d'intervenir pour le réparer, le prix était exorbitant. Même en sachant que d'immenses quantités de sens divin apparaissaient à l'intérieur, elles ne suffisaient pas à payer les frais de réparation, et ce, une fois ceux-ci partagés entre plusieurs pays de rang 5.
 
 Et surtout, il existait plusieurs champs de bataille étrangers; il n'était donc pas nécessaire de sauver celui-ci. La règle était simple: lorsqu'un champ de bataille ne pouvait plus être maintenu, on l'abandonnait tout simplement.
 
@@ -56,25 +56,25 @@ Pour être plus précis, le temps que Wang Lin avait passé à percuter les fail
 
 Sept cents ans de collisions incessantes de la part de Wang Lin avaient précipité l'effondrement du champ de bataille étranger. Désormais, aucun cultivateur des pays de rang 4 ou 5 n'osait y mettre les pieds.
 
-Ils pouvaient seulement envoyer des messages aux occupants pour leur ordonner d'annuler le nettoyage et de s'unir afin de rassembler tout le sens divin disponible pour quitter les lieux via une matrice de transfert.
+Ils pouvaient seulement envoyer des messages aux occupants pour leur ordonner d'annuler le nettoyage et de chercher le sens divin de toutes leurs forces, après quoi la matrice de transfert serait ouverte en une seule fois pour évacuer tout le monde.
 
-Wang Lin avait perdu la notion du temps, son âme devenant de plus en plus petite. Désormais, il n'avait plus besoin de sectionner son sens divin; il attendait une faille majeure.
+Wang Lin avait perdu la notion du temps, son sens divin devenant de plus en plus faible et petit. Désormais, il n'avait plus besoin de sectionner son sens divin; il attendait une faille majeure.
 
-Ce jour-là, au sein du sens divin de Wang Lin, une faille spatiale apparut, plusieurs fois plus vaste que les autres. Sans la moindre hésitation, Wang Lin s'y engouffra.
+Ce jour-là, dans la portée du sens divin de Wang Lin, une faille spatiale apparut, plusieurs fois plus vaste que les autres. Sans la moindre hésitation, Wang Lin s'y engouffra.
 
 ***
 
 Mai Liang avait repéré un objet magique. Il ressemblait énormément à la lueur noire qu'il avait vue auparavant; les deux pouvaient voler de manière autonome. Il l'avait poursuivi pendant trois jours et était totalement épuisé.
 
-Il adressa un sourire amer à l'épée violette devant lui, pensant secrètement que si son navire de transport ne lui avait pas été volé, il aurait facilement pu la rattraper sans être dans un tel état.
+Il adressa un sourire amer à l'épée violette devant lui, pensant secrètement que si sa navette ne lui avait pas été volée, il aurait facilement pu la rattraper sans être dans un tel état.
 
-En repensant au navire, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisqu'il était poursuivi par un membre du Clan des Démons Géants, il devait s'agir d'un objet défiant les cieux.
+En repensant au navire, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan des Démons Géants le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
 
 Chaque fois qu'il y pensait, il ne pouvait que soupirer.
 
 Mai Liang marmonna pour lui-même: « Le tunnel de transfert pour sortir d'ici ne s'ouvrira ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans sera atteinte. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi! Surtout, n'accepte pas le frère aîné: c'est une bête à face humaine. Moi seul t'aime vraiment. »
 
-« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle ne doit pas paraître de plus de trente ans. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Sanctuaire du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, les Anciens concentreront leurs ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Après mon départ, je ne ressemblerai qu'à un jeune homme de vingt ans. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré.
+« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle ne doit pas paraître de plus de trente ans. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Sanctuaire du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme de vingt ans. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré.
 
 Alors qu'il se complaisait dans sa fierté, deux rayons de lumière convergèrent brusquement vers lui. En un clin d'œil, ils furent à ses côtés. L'un des rayons le dépassa pour fondre sur l'épée violette, révélant un jeune homme d'environ trente ans. Son visage s'assombrit alors qu'il saisissait l'épée volante et la rangeait dans son sac de rangement sans dire un mot. Il se tourna ensuite pour fixer froidement Mai Liang.
 
@@ -94,9 +94,9 @@ Xu Hao émit un grognement et secoua la tête. Il savait que Ge Yang avait tué 
 
 Si Mai Liang avait donné le sac à Ge Yang, Xu Hao aurait agi de la même manière.
 
-La conscience de Mai Liang s'effaçait déjà alors qu'une image de sa petite sœur apprentie lui apparaissait en vision finale. Il ferma progressivement les yeux. À cet instant précis, une immense faille spatiale apparut près de lui et une masse colossale d'âme s'en échappa.
+La conscience de Mai Liang s'effaçait déjà alors qu'une image de sa petite sœur apprentie lui apparaissait en vision finale. Il ferma progressivement les yeux. À cet instant précis, une immense faille spatiale apparut près de lui et un sens divin colossal s'en échappa.
 
-Dès l'apparition de cette âme, elle marqua un temps d'arrêt avant de se précipiter violemment dans le corps de Mai Liang. Les yeux de ce dernier s'ouvrirent brusquement, des rayons de lumière dorée jaillissant de ses pupilles.
+Dès son apparition, ce sens divin marqua un temps d'arrêt avant de se précipiter violemment dans le corps de Mai Liang. Les yeux de ce dernier s'ouvrirent brusquement, deux éclairs de lumière perçante traversant ses pupilles.
 
 La blessure à sa poitrine se referma à vue d'œil. Rapidement, il fut totalement rétabli. Une voix glaciale s'échappa de sa bouche:
 

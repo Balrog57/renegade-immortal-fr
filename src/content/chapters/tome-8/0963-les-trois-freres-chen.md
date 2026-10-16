@@ -16,7 +16,7 @@ Bai Wei ne sembla pas remarquer que le sens divin de Wang Lin l'avait balayé, e
 
 « Vous n'étiez pas là depuis longtemps. Dans quelques mois, la météo sur la planète Tian Yun changera. Ce passage brusque entre les cieux couverts et le soleil radieux est considéré comme un spectacle unique de cette planète.
 
-Pendant ces centaines d'années, la Secte du Destin Céleste est resté calme; il ne s'est pas passé grand-chose. Si l'on devait retenir un événement, ce serait celui d'un arbre blanc planté par quelqu'un dans la montagne à l'arrière et que l'on disait incapable de fleurir. Pourtant, il a fleuri. Cependant, les fleurs n'étaient pas blanches, mais noires. Cela n'a duré que trois respirations avant qu'elles ne tombent en poussière... Cela a surpris beaucoup de gens à l'époque. J'étais là aussi; je me disais que ce serait merveilleux si j'avais pu sauver une fleur. »
+Pendant ces centaines d'années, la Secte du Destin Céleste est restée calme; il ne s'est pas passé grand-chose. Si l'on devait retenir un événement, ce serait celui d'un arbre blanc planté par quelqu'un dans la montagne à l'arrière et que l'on disait incapable de fleurir. Pourtant, il a fleuri. Cependant, les fleurs n'étaient pas blanches, mais noires. Cela n'a duré que trois respirations avant qu'elles ne tombent en poussière... Cela a surpris beaucoup de gens à l'époque. J'étais là aussi; je me disais que ce serait merveilleux si j'avais pu sauver une fleur. »
 
 « Rien de suspect... » Wang Lin fronça les sourcils, mais ce léger pressentiment le tourmentait. Son expression resta toutefois neutre tandis qu'il suivait la conversation de Bai Wei.
 
@@ -28,9 +28,9 @@ Bai Wei reprit avec un sourire: « Il y a aussi la Cité aux Yeux Fantômes. Cet
 
 Wang Lin réfléchit un instant et laissa Bai Wei parler tout en ouvrant la voie, mais son esprit était ailleurs.
 
-Après quinze minutes, Wang Lin demanda soudain: « Junior Sister Bai, quelle méthode de culture pratiquez-vous? »
+Après une demi-heure, Wang Lin demanda soudain: « Junior Sister Bai, quelle méthode de culture pratiquez-vous? »
 
-Bai Wei sursauta et son expression changea brusquement. Il s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré: « Le frère Wang me méprise-t-il? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais! »
+Bai Wei sursauta et son expression changea brusquement. Elle s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré: « Le frère Wang me méprise-t-il? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais! »
 
 Wang Lin fut stupéfait. Il n'avait posé qu'une simple question sur sa méthode de culture, il ne s'attendait pas à ce que Bai Wei réagisse avec une telle intensité.
 
@@ -62,7 +62,7 @@ Cependant, alors que le sens divin de Wang Lin traversait la restriction et s'ap
 
 Simultanément, le dragon illusoire formé par les trois sens divins tourbillonna pour créer une tempête, tentant d'emprisonner le sens divin de Wang Lin pour l'empêcher de s'échapper.
 
-Deux des trois sens divins se situaient au début du stade Scruteur du Nirvana. Celui de Maître Yi Chen était au milieu du stade Scruteur du Nirvana. La combinaison de leurs puissances empêchait Wang Lin de s'éclipser immédiatement.
+Deux des trois sens divins se situaient au début du stade Scruteur du Nirvana. Celui d'Ouyang était au milieu du stade Scruteur du Nirvana. La combinaison de leurs puissances empêchait Wang Lin de s'éclipser immédiatement.
 
 Les sorts de Wang Lin étaient tous contenus dans son corps, et son sens divin n'avait pas encore atteint le milieu du stade Scruteur du Nirvana; il ne pouvait donc rivaliser avec eux sur ce terrain.
 
@@ -86,7 +86,7 @@ L'individu face à lui ne leur témoignait manifestement aucun respect. À quoi 
 
 « De plus, si nous ne punissons pas sévèrement cet individu, nous n'aurons aucun moment de paix avant le début des enchères. Pour effrayer ceux qui oseraient observer avec leur sens divin, nous devons faire preuve de fermeté. »
 
-« Je vous donne trois secondes pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte du Destin Céleste, l'Omniscient ne se abaisserait pas à s'en occuper. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
+« Je vous donne trois secondes pour réfléchir! » lança doucement Maître Yi Chen. Il serait trop facile pour eux de s'occuper d'un cultivateur au début du stade Scruteur du Nirvana! Même si cet homme venait réellement de la Secte du Destin Céleste, l'Omniscient ne s'abaisserait pas à s'en occuper. De plus, ils n'avaient pas l'intention de tuer. Puisqu'ils lui avaient offert une chance, même s'ils détruisaient son sens divin, personne ne pourrait rien leur reprocher.
 
 S'il s'était agi d'un membre de la Secte de l'Épée Da Lou, Maître Yi Chen aurait pensé différemment. Après tout, le Saint de l'Épée, Ling Tianhou, était célèbre pour protéger les siens.
 
@@ -100,4 +100,4 @@ Dès l'effondrement de la restriction, la silhouette de Wang Lin apparut au-dess
 
 À l'intérieur de la Cité aux Yeux Fantômes, dans un bâtiment magnifique, un vieil homme était assis dans la troisième pièce à partir de l'est. Il portait une robe verte et affichait une expression digne. Cependant, à cet instant précis, ses yeux s'ouvrirent brusquement; il cracha du sang et son visage se décomposa!
 
-« Le vieux monstre du Nettoyage de Nirvana! » Le corps du vieil homme vacilla et disparut.
+« Le vieux monstre du Purificateur du Nirvana! » Le corps du vieil homme vacilla et disparut.

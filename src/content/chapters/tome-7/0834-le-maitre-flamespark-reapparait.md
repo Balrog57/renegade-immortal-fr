@@ -38,7 +38,7 @@ C'était un massacre, une boucherie que le Serpent aux yeux de lune infligeait p
 
 Les cultivateurs des cinq planètes principales du Domaine Nord sortirent de leurs mondes respectifs. Horrifiés par ce spectacle, ils activèrent immédiatement les formations défensives de leurs planètes. Personne n'osait sortir pour porter secours.
 
-Une fois le rugissement passé, le Serpent aux yeux de lune s'arrêta soudainement et des grognements sourds émanèrent de son corps. Aussitôt, de petits Serpents aux yeux de lune de tailles diverses jaillirent de sa gueule.
+Une fois le rugissement passé, le Serpent aux yeux de lune s'arrêta soudainement et des grognements sourds émanèrent de son corps. Aussitôt, de petits Serpents aux yeux de lune de 3,3 kilomètres, de 330 mètres ou d'une centaine de mètres jaillirent de sa gueule.
 
 Ces petits spécimens étaient infiniment plus menus que le grand original, qui avait la taille d'une planète, mais ils demeuraient gigantesques aux yeux des cultivateurs.
 

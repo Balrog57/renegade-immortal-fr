@@ -8,7 +8,7 @@ slug: la-joie-des-serpents-lunaires
 ---
 Après avoir saisi l'âme originelle de Yao Yunhai, Wang Lin n'hésita pas à la placer dans le drapeau spirituel qu'il portait dans son sac. Sans s'arrêter, il disparut en un éclair.
 
-Le Serpent aux yeux de lune, long de mille pieds, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
+Le Serpent aux yeux de lune, long de 330 mètres, surgit de derrière lui et une aura glaciale emplit les environs. Après avoir cherché un instant, la créature ouvrit sa gueule et aspira toute l'aura résiduelle de Wang Lin. Tous les tentacules de son corps s'enroulèrent autour d'elle, comme si elle savourait ce moment.
 
 Cependant, un instant plus tard, le Serpent aux yeux de lune referma la gueule, tordit son corps et disparut dans la terre.
 
@@ -24,7 +24,7 @@ Alors qu'il avançait, son expression changea soudainement et il esquiva sur le 
 
 Le projectile passa si près qu'il frôla presque son corps. Wang Lin sentit distinctement l'énergie glaciale contenue dans le cristal. Cette énergie pénétra d'une manière ou d'une autre son organisme, rendant son corps rigide.
 
-« Tu ne peux pas échapper à ton destin! » Une voix résonna lentement tandis qu'une brèche de 330 mètres s'ouvrait dans la terre et que Yao Bingyun en sortait.
+« Tu ne peux pas échapper à ton destin! » Une voix résonna lentement tandis qu'une brèche s'ouvrait dans la terre à trente-trois mètres de Wang Lin et que Yao Bingyun en sortait.
 
 Ses yeux étaient empreints d'une intention meurtrière alors qu'elle fixait froidement Wang Lin: « Tu as massacré des cultivateurs innocents à travers le Domaine Occidental. Aujourd'hui, moi, Yao Bingyun, je prendrai ta vie! »
 
@@ -68,13 +68,13 @@ Le Coup Céleste apparut soudainement, mais il ne visa pas Yao Bingyun, plutôt 
 
 « Le Serpent aux yeux de lune aime le silence et déteste le bruit! » Connaissant les habitudes de la créature, Wang Lin continua de bombarder les couches de boue adjacentes.
 
-Une pointe de dédain apparut dans les yeux de Yao Bingyun. Si elle avait été à l'extérieur, elle n'aurait pu le rattraper; elle admirait d'ailleurs grandement ce Xu Mu pour sa maîtrise de la Déformation Spatiale.
+Une pointe de dédain apparut dans les yeux de Yao Bingyun. Si elle avait été à l'extérieur, elle n'aurait pu le rattraper; elle admirait d'ailleurs grandement ce Xu Mu pour sa maîtrise de la Distorsion Spatiale.
 
 Cependant, ici, la téléportation et la fusion avec le monde étaient impossibles. Pour la rattraper, la tâche serait aisée. Une lumière bleue jaillit sous ses pieds et, en un éclair, elle se déplaça. Bien que ce ne fût pas une téléportation, sa vitesse était équivalente et elle rejoignit immédiatement Wang Lin.
 
 Pourtant, au moment où elle le rattrapa et qu'elle commença à former un sceau, elle remarqua que les yeux de Xu Mu étaient d'un calme absolu, sans la moindre trace de panique. Yao Bingyun fut surprise, mais n'eut pas le temps de réfléchir avant de lancer son attaque.
 
-À cet instant précis, une aura d'un froid inimaginable jaillit des couches de boue que Wang Lin attaquait. Un Serpent aux yeux de lune de mille pieds chargea soudainement vers Yao Bingyun et Wang Lin.
+À cet instant précis, une aura d'un froid inimaginable jaillit des couches de boue que Wang Lin attaquait. Un Serpent aux yeux de lune de 330 mètres chargea soudainement vers Yao Bingyun et Wang Lin.
 
 « Qu'est-ce que c'est donc?! » Yao Bingyun n'avait jamais rencontré de tel spécimen. L'apparence hideuse du serpent et son corps couvert de poils firent trembler son esprit.
 
@@ -90,7 +90,7 @@ La main de Yao Bingyun avait déjà formé un sceau, mais face à cette vision, 
 
 Wang Lin continua sa retraite tandis que le Sceau Céleste tournait frénétiquement, créant une force pour repousser la poursuite de l'humaine et de la bête.
 
-Tous les poils du serpent de mille pieds se dressèrent comme s'il était en proie à une immense excitation. En pourchassant Wang Lin, il gardait la gueule grande ouverte, engloutissant tout sur son passage avec une expression de pur plaisir.
+Tous les poils du serpent de 330 mètres se dressèrent comme s'il était en proie à une immense excitation. En pourchassant Wang Lin, il gardait la gueule grande ouverte, engloutissant tout sur son passage avec une expression de pur plaisir.
 
 Cette scène stupéfia Wang Lin. À cet instant, les yeux de Yao Bingyun étaient saturés d'intention meurtrière. Elle fit un pas en avant, dépassa le serpent et se jeta sur Wang Lin. Arrivée devant lui, ses deux doigts libérèrent une intense lumière bleue qu'elle pointa impitoyablement vers lui.
 
@@ -108,7 +108,7 @@ Yao Bingyun serra les dents et forma un sceau sans hésiter, faisant apparaître
 
 En un instant, des couches de glace surgirent avec frénésie autour d'elle. La propagation fut si rapide que même la lumière grise de la Paire Dao Fanée fut figée.
 
-Plus de la moitié des tentacules du serpent furent gelées. Cependant, des rugissements éclatèrent de toutes parts: quatre autres Serpents aux yeux de lune de mille pieds chargeaient désormais vers Yao Bingyun.
+Plus de la moitié des tentacules du serpent furent gelées. Cependant, des rugissements éclatèrent de toutes parts: quatre autres Serpents aux yeux de lune de 330 mètres chargeaient désormais vers Yao Bingyun.
 
 Le visage de Yao Bingyun devint livide et ses yeux furent submergés par la terreur. Elle saisit le noyau bleu et battit en retraite sans attendre.
 
@@ -120,7 +120,7 @@ Appeler le Vent!
 
 Un vent noir surgit, formant une tempête qui fonça sur Yao Bingyun. Simultanément, les Serpents aux yeux de lune arrivèrent, piégeant la femme sous leurs rugissements.
 
-Yao Bingyun était d'une pâleur mortelle. En ses innées années de culture, elle n'avait jamais affronté une telle crise. Elle regarda le noyau dans sa main avec douleur, puis serra les dents et le broya sans hésiter!
+Yao Bingyun était d'une pâleur mortelle. Au fil de ses années de culture, elle n'avait jamais affronté une telle crise. Elle regarda le noyau dans sa main avec douleur, puis serra les dents et le broya sans hésiter!
 
 Au moment où le noyau bleu fut écrasé, une puissance folle explosa. Cette force, d'une rapidité inouïe, créa un vortex de glace. En se propageant, tout ce qu'elle touchait gelait. Cette énergie s'infiltra dans les fissures de la terre et, en un instant, des milliers de kilomètres furent recouverts de fines couches de glace émanant des crevasses.
 
@@ -128,7 +128,7 @@ Au moment où le noyau bleu fut écrasé, une puissance folle explosa. Cette for
 
 Dès que la silhouette de Yao Bingyun disparut, après avoir utilisé Appeler le Vent, Wang Lin n'hésita pas et pointa vers elle!
 
-Arrête!
+Immobilisation!
 
 Le corps de Yao Bingyun se figea soudainement, puis, presque simultanément, elle retrouva sa mobilité et disparut. Cependant, cette brève interruption permit au vent noir de pénétrer la glace. Un gémissement étouffé s'éleva avant de s'évanouir dans le vide.
 

@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 129 - Homemade Devil
 slug: un-demon-fait-maison
 ---
-Wang Lin regarda Xu Liguo, qui parlait sans cesse. Il allait répondre quand son expression changea légèrement alors que le sac de rangement de Zhou Gangsan vola dans ses mains. Au même moment, il agita la main et plusieurs boules de feu jaillirent. Elles s'abattirent sur les corps des disciples de la Secte des Cadavres et sur leurs marionnettes cadavériques, les transformant en poussière.
+Wang Lin regarda Xu Liguo, qui parlait sans cesse. Il allait répondre quand son expression changea légèrement alors que les sacs de rangement des trois disciples de la Secte des Cadavres volèrent dans ses mains. Au même moment, il agita la main et plusieurs boules de feu jaillirent. Elles s'abattirent sur les corps des disciples de la Secte des Cadavres et sur leurs marionnettes cadavériques, les transformant en poussière.
 
 Peu après, il tendit la main et attrapa Xu Liguo, qui n'osa pas résister. Puis, il disparut dans le ciel, laissant derrière lui une traînée de lumière arc-en-ciel.
 
@@ -20,7 +20,7 @@ Cependant, posséder le corps d'un cultivateur de l'Établissement des Fondation
 
 De plus, face au domaine dominant du Royaume Ji de Wang Lin, Xu Liguo n'était pour l'instant qu'un tigre de papier. Cependant, s'il parvenait à recouvrer sa force jusqu'au stade de la Formation du Noyau, le résultat serait bien différent.
 
-Wang Lin ignora complètement les supplications d'Xu Liguo. Ses yeux clignotèrent et il déplaça un pilier pour sceller l'entrée de la grotte. Xu Liguo gémit intérieurement alors qu'il flottait lentement vers le mur.
+Wang Lin ignora complètement les supplications d'Xu Liguo. Ses yeux clignotèrent et il frappa la paroi de pierre à côté de lui pour sceller l'entrée de la grotte. Xu Liguo gémit intérieurement alors qu'il flottait rapidement vers le mur.
 
 Wang Lin ne l'arrêta pas. Il déploya son Sens Divin du Royaume Ji et la foudre rouge jaillit. Alors que l'éclair rouge fonçait vers lui, Xu Liguo sentit un pouvoir destructeur l'envahir.
 
@@ -46,7 +46,7 @@ L'Âme Naissante d'Xu Liguo fit bondir le cœur de Wang Lin alors qu'une idée s
 
 « Puisque je ne peux pas sortir les âmes errantes du Monde de la Décrépitude, puis-je en créer ici? » Les yeux de Wang Lin brillèrent. Il frappa son sac de rangement et un morceau de métal apparut. Il pointa le mur, et le morceau de métal creusa une grotte.
 
-Tout en faisant cela, Wang Lin profita de l'instant pour utiliser son Royaume Ji afin d'effacer les souvenirs d'Xu Liguo. Après tout, Xu Liguo était un cultivateur de l'Âme Naissante et, même avec son niveau de culture réduit, Wang Lin dut mobiliser toute la puissance de son Royaume Ji pour y parvenir de justesse.
+Tout en faisant cela, Wang Lin profita de l'instant pour utiliser son Royaume Ji afin d'effacer la conscience d'Xu Liguo. Après tout, Xu Liguo était un cultivateur de l'Âme Naissante et, même avec son niveau de culture réduit, Wang Lin dut mobiliser toute la puissance de son Royaume Ji pour y parvenir de justesse.
 
 L'Âme Naissante d'Xu Liguo devint un objet semi-transparent, dépourvu de conscience.
 
@@ -58,7 +58,7 @@ Il explora les montagnes environnantes, capturant de petits animaux, tandis que 
 
 Wang Lin fronça les sourcils en les observant. Il renforça le Royaume Ji protégeant la grotte avant de creuser une autre cavité sur le côté pour y jeter le reste des petits animaux capturés.
 
-Une fois terminé, il se frappa le front et la Perle Défiançière du Ciel apparut. La perle fit un tour autour de lui avant de plonger immédiatement dans la vigne du Fruit d'Or Brûlant à ses côtés.
+Une fois terminé, il se frappa le front et la Perle Défiant les Cieux apparut. La perle fit un tour autour de lui avant de plonger immédiatement dans la vigne du Fruit d'Or Brûlant à ses côtés.
 
 Tous les fruits sur la vigne rétrécirent et disparurent à vue d'œil, tandis que tout l'élément bois était absorbé par la bille de pierre.
 
@@ -68,9 +68,9 @@ Un éclair de joie traversa le visage de Wang Lin alors qu'il tendait la main po
 
 Wang Lin prit une profonde inspiration. Après avoir réfléchi un instant, il quitta la grotte et courut vers les volcans. Il lui fallut trois jours pour récolter toutes les vignes de Fruits d'Or Brûlants de la zone, les faisant ainsi disparaître de cette région.
 
-La Perle Défiançière du Ciel possédait désormais cinq feuilles.
+La Perle Défiant les Cieux possédait désormais cinq feuilles.
 
-Trois jours plus tard, Wang Lin inspecta à nouveau la petite grotte et vit des déjections sur le sol. Un petit animal tremblait dans un coin. Après avoir digéré la nourriture consommée trois jours auparavant, il était désormais très affaibli.
+Trois jours plus tard, Wang Lin inspecta à nouveau la petite grotte et vit des déjections sur le sol. Un petit animal tremblait dans un coin. Après avoir digéré la nourriture consommée trois jours auparavant, il n'avait plus rien mangé depuis et était désormais très affaibli.
 
 L'Âme Naissante d'Xu Liguo flottait toujours dans les airs. En y regardant de plus près, elle était encore plus transparente qu'auparavant, comme si elle pouvait s'évanouir à tout moment.
 
@@ -126,33 +126,33 @@ Wang Lin frappa son sac de rangement et en sortit un morceau de métal. Puis, il
 
 Le démon regarda Wang Lin avec effroi avant de se transformer en un rayon de lumière rouge pour pénétrer dans le morceau de métal.
 
-Après avoir rangé l'objet, il regarda la grotte avec regret. Il en sortit, fit un geste de la main, et la grotte s'effondra sur elle-même.
+Après avoir rangé l'objet, il regarda la grotte avec regret. Il en sortit, fit un geste de la main, et l'entrée de la grotte fut scellée.
 
 Wang Lin ne se retourna pas et prit son envol vers l'est.
 
-D'après les souvenirs de Mai Lang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Mai Lang, il devait aller consulter la carte conservée dans le trésor du Sanctuaire du Dieu de la Guerre.
+D'après les souvenirs de Mai Liang, le Sanctuaire du Dieu de la Guerre se situait à l'est. Wang Lin avait pris sa décision. Puisqu'il n'avait pu localiser Zhao dans la mémoire de Mai Liang, il devait aller consulter la carte conservée au Pavillon des Écritures du Sanctuaire du Dieu de la Guerre.
 
-En plus des événements passés, son épée verte, raffinée avec du sang, n'était plus qu'un simple morceau de métal dont la puissance avait considérablement diminué. Face à des cultivateurs de l'Établissement des Fondations, elle n'était pas nécessaire. Cependant, face à un cultivateur de la Formation du Noyau, ce morceau de métal pourrait lui sauver la vie.
+Par ailleurs, son épée verte, raffinée avec du sang, n'était plus qu'un simple morceau de métal dont la puissance avait considérablement diminué. Face à des cultivateurs de l'Établissement des Fondations, elle n'était pas nécessaire. Cependant, face à un cultivateur de la Formation du Noyau, ce morceau de métal pourrait lui sauver la vie.
 
 Il devait donc apprendre à raffiner des trésors. C'était une autre raison pour laquelle il devait retourner au Sanctuaire du Dieu de la Guerre, car ils y possédaient une forge de raffinage.
 
-De plus, il devait trouver un lieu doté d'un Ying extrême, sans quoi il resterait bloqué au stade intermédiaire de l'Établissement des Fondations. Seul un Ying extrême lui permettrait de former le troisième noyau froid, d'atteindre le stade avancé de l'Établissement des Fondations, puis de former son noyau.
+De plus, il devait trouver un lieu doté d'un Ying extrême, sans quoi il resterait bloqué au stade intermédiaire de l'Établissement des Fondations. Seul un Ying extrême lui permettrait de former les trois noyaux froids, d'atteindre le stade avancé de l'Établissement des Fondations, puis de former son noyau.
 
 Wang Lin décida de ne pas abandonner la culture de la Méthode d'Ascension des Enfers. Après tout, Situ Nan lui avait dit qu'une fois les trois noyaux froids formés et fusionnés, il aurait de fortes chances d'entrer dans le stade de la Formation du Noyau.
 
-Pendant qu'il récupérait sa culture, faute de liquide spirituel Ying, il n'avait pu pratiquer que la technique du Sanctuaire du Dieu de la Guerre issue des souvenirs de Mai Lang. Mais ce qui l'intriguait, c'était le Chemin Divin. Bien que l'énergie spirituelle provenant de la culture du Chemin Divin n'ait aucun attribut, d'un point de vue objectif, elle était moins efficace que son ancienne énergie spirituelle Ying.
+Pendant qu'il récupérait sa culture, faute de liquide spirituel Ying, il n'avait pu pratiquer que la technique du Sanctuaire du Dieu de la Guerre issue des souvenirs de Mai Liang. Mais ce qui l'intriguait, c'était le Chemin Divin. Bien que l'énergie spirituelle provenant de la culture du Chemin Divin n'ait aucun attribut, d'un point de vue objectif, elle était moins efficace que son ancienne énergie spirituelle Ying.
 
 Toutefois, le Chemin Divin du Sanctuaire du Dieu de la Guerre n'était pas sans avantages. Si l'énergie spirituelle Ying était comme une épée invincible, cette culture était aussi flexible que la soie.
 
-Le Sanctuaire du Dieu de la Guerre se trouvait sur une montagne perçant les cieux dans la partie orientale de Huo Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Quatre sous-montagnes abritaient les quatre sous-sectes du Sanctuaire.
+Le Sanctuaire du Dieu de la Guerre se trouvait sur une montagne perçant les cieux dans la partie orientale de Huo Fen. La montagne, enveloppée de nuages, regorgeait de bêtes spirituelles. Quatre pics secondaires abritaient les quatre halls annexes du Sanctuaire.
 
-En tant que l'une des quatre sectes principales du pays de Huo Fen, le Sanctuaire du Dieu de la Guerre comptait plus de 3 000 disciples. Même en excluant les disciples de la secte extérieure, il restait environ 2 300 membres.
+En tant que première des quatre grandes sectes du pays de Huo Fen, le Sanctuaire du Dieu de la Guerre comptait plus de 3 000 disciples. Même en excluant les disciples de la secte extérieure, il restait plus de 2 300 membres.
 
-Ce jour-là, sur un sommet enneigé situé à un kilomètre du Sanctuaire du Dieu de la Guerre, Zhou Zihong, Yang Xiong et Lin Tao attendaient. Trois jours auparavant, ils avaient soudainement senti leurs âmes vaciller lorsque Wang Lin leur avait envoyé un message via l'essence de leur sang spirituel. Il leur avait ordonné d'apporter quelques objets. L'heure convenue était depuis longtemps passée, mais les trois n'osaient pas partir.
+Ce jour-là, sur un sommet enneigé situé à mille kilomètres du Sanctuaire du Dieu de la Guerre, Zhou Zihong, Yang Xiong et Lin Tao attendaient. Trois jours auparavant, ils avaient soudainement senti leurs âmes vaciller lorsque Wang Lin leur avait envoyé un message via l'essence de leur sang spirituel. Il leur avait ordonné d'apporter quelques objets. L'heure convenue était depuis longtemps passée, mais les trois n'osaient pas partir.
 
 Parmi eux, Lin Tao était le plus terrifié et cherchait désespérément ses mots.
 
-Zhou Zihong semblait hébétée, mordillant ses lèvres rouges. Son esprit était vide. Mai Lang était parti depuis plus d'un an; elle pensait qu'il ne réapparaîtrait jamais. Pourtant, lorsqu'elle avait reçu son message trois jours plus tôt, son visage s'était immédiatement pâli.
+Zhou Zihong semblait hébétée, mordillant ses lèvres rouges. Son esprit était vide. Mai Liang était parti depuis plus d'un an; elle pensait qu'il ne réapparaîtrait jamais. Pourtant, lorsqu'elle avait reçu son message trois jours plus tôt, son visage s'était immédiatement pâli.
 
 L'expression de Yang Xiong était la plus sereine. Hormis quelques lueurs dans ses yeux par intermittence, il paraissait le plus normal. Cependant, en y regardant de plus près, sa main droite formait un poing serré.
 
@@ -174,7 +174,7 @@ Wang Lin fixa la main droite de Yang Xiong et son regard se glaça. Il réfléch
 
 Durant l'année écoulée, les divers événements du champ de bataille étranger avaient résonné dans leurs rêves chaque nuit.
 
-Ils n'étaient pas certains de la puissance réelle de Wang Lin, mais le "Mai Lang" qui se tenait devant eux faisait trembler leur âme.
+Ils n'étaient pas certains de la puissance réelle de Wang Lin, mais le "Mai Liang" qui se tenait devant eux faisait trembler leur âme.
 
 Ils avaient la sensation que même sans leur essence de sang spirituel, il pourrait les tuer instantanément sans qu'ils ne puissent opposer la moindre résistance.
 
@@ -188,23 +188,23 @@ En s'inclinant, une trace d'amertume traversa le visage de Yang Xiong tandis qu'
 
 Mais il venait de comprendre à quel point son idée était stupide. S'il avait agi ainsi, il aurait été le premier à mourir.
 
-Ce senior qui occupait le corps de Mai Lang devait être un cultivateur d'un pays de haut rang. Comment ce Senior, n'étant qu'au stade de l'Établissement des Fondations, pouvait-il posséder un Sens Divin capable de faire trembler son cœur?
+Ce senior qui occupait le corps de Mai Liang devait être un cultivateur d'un pays de haut rang. Comment ce Senior, n'étant qu'au stade de l'Établissement des Fondations, pouvait-il posséder un Sens Divin capable de faire trembler son cœur?
 
-Yang Xiong soupira intérieurement et renonça à toute idée de résistance. Il prit une profonde inspiration et frappa rapidement son sac de rangement de la main gauche. Il en sortit un jade et dit respectueusement à Wang Lin: « Maître, j'ai obtenu ce que vous m'avez demandé il y y a trois jours. Voici le jade de l'atelier de raffinage. »
+Yang Xiong soupira intérieurement et renonça à toute idée de résistance. Il prit une profonde inspiration et frappa rapidement son sac de rangement de la main gauche. Il en sortit un jade et dit respectueusement à Wang Lin: « Maître, j'ai obtenu ce que vous m'avez demandé il y a trois jours. Voici le jade de l'atelier de raffinage. »
 
 Après avoir reçu le jade, Wang Lin l'examina avec son Sens Divin. Sans changer d'expression, il hocha la tête, puis son regard se posa sur Lin Tao.
 
-Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée au sommet du pavillon des trésors. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
+Le cœur de Lin Tao s'emballa et il murmura: « Maître, cette carte est placée au sommet du Pavillon des Écritures. Je... je ne peux pas y accéder car mon niveau de culture n'est pas assez élevé. »
 
 Voyant le visage impassible de Wang Lin, Lin Tao serra les dents: « Dix jours! Maître, donnez-moi juste dix jours. D'ici là, ce sera au tour de mon cousin d'assurer la patrouille. Je pourrai au moins lui demander de m'en faire une copie! »
 
-Wang Lin le regarda, hocha la tête et dit d'un ton neutre: « Si tu réussis vraiment à l'obtenir, alors quand je quitterai Huo Fen, je te rendrai ton essence de sang spirituel. » Puis il se tourna vers Yang Xiong, ses yeux devenant froids: « Normalement, je vous aurais rendu votre essence de sang spirituel, mais l'objet que tu tiens annule tes mérites. Cette fois, je ne te tuerai pas, mais la question de savoir si je te rendrai ton essence dépendra de ta prochaine action. »
+Wang Lin le regarda, hocha la tête et dit d'un ton neutre: « Si tu réussis vraiment à l'obtenir, alors quand je quitterai Huo Fen, je te rendrai ton essence de sang spirituel. » Puis il se tourna vers Yang Xiong, ses yeux devenant froids: « Normalement, je vous aurais rendu votre essence de sang spirituel, mais l'objet que tu tiens compense ta faute. Cette fois, je ne te tuerai pas, mais la question de savoir si je te rendrai ton essence dépendra de ta prochaine action. »
 
 Le corps de Yang Xiong trembla et son visage pâlit instantanément. En voyant Wang Lin, et particulièrement le regard qu'il lui lançait, il ressentit une terreur profonde. Il s'agenouilla au sol et tendit le jade qu'il serrait dans sa main droite, le visage extrêmement tendu.
 
-Wang Lin ne le regarda plus et se tourna vers Zhou Zihong. Cette dernière serra les dents, leva son joli visage et dit: « Senior, ce Chemin Divin est très étrange. Bien que je l'aie vu il y a six mois, je n'ai rien pu retenir par la suite, je ne peux donc pas faire de copie du jade contenant la technique. En réalité, Senior n'a pas besoin de passer par un tel détour. Grâce aux contributions de Mai Lang sur le champ de bataille étranger, une fois revenu à la secte, vous aurez naturellement le droit de l'étudier. »
+Wang Lin ne le regarda plus et se tourna vers Zhou Zihong. Cette dernière serra les dents, leva son joli visage et dit: « Senior, ce Chemin Divin est très étrange. Bien que je l'aie vu il y a six mois, je n'ai rien pu retenir par la suite, je ne peux donc pas faire de copie du jade contenant la technique. En réalité, Senior n'a pas besoin de passer par un tel détour. Grâce aux contributions de Mai Liang sur le champ de bataille étranger, une fois revenu à la secte, vous aurez naturellement le droit de l'étudier. »
 
-Le Chemin Divin était ce qui intéressait le plus Wang Lin dans les souvenirs de Mai Lang. Mai Lang rêvait de l'étudier. Pour une raison obscure, le Sanctuaire du Dieu de la Guerre était très strict concernant l'étude du Chemin Divin par ses propres disciples, tandis que les personnes extérieures n'avaient qu'à payer des pierres spirituelles à intervalles réguliers pour y accéder.
+Le Chemin Divin était ce qui intéressait le plus Wang Lin dans les souvenirs de Mai Liang. Mai Liang rêvait de l'étudier. Pour une raison obscure, le Sanctuaire du Dieu de la Guerre était très strict concernant l'étude du Chemin Divin par ses propres disciples, tandis que les personnes extérieures n'avaient qu'à payer des pierres spirituelles à intervalles réguliers pour y accéder.
 
 Cependant, pour les disciples du Sanctuaire, il fallait soit avoir atteint la Formation du Noyau, soit avoir apporté une contribution majeure à la secte. Ce n'est qu'après avoir rempli l'une de ces conditions qu'ils pouvaient l'étudier sous la supervision d'un Ancien.
 

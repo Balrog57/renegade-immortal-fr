@@ -24,11 +24,11 @@ Tandis que Wang Lin l'examinait attentivement, l'homme sorti de la tour faisait 
 
 Wang Lin esquissa un mince sourire et répondit: « Je n'avais que des soupçons jusqu'alors. Ce n'est qu'en voyant le frère Gu aujourd'hui que j'en ai eu la certitude. » À peine eut-il fini de parler qu'un sens divin se mit à supplier frénétiquement dans son esprit.
 
-« Maître, le Maître que moi, Xu Liguo, respecte le plus! Avez-vous le cœur d'autoriser deux amants destinés à être unis par la vie et la mort à ne faire que se croiser alors qu'ils ne sont séparés que de quelques dizaines de pieds... Maître, je n'ai pas vu cette petite beauté depuis dix ans, je... » Wang Lin fronça les sourcils et frappa son sac de rangement; aussitôt, Xu Liguo s'en envola.
+« Maître, le Maître que moi, Xu Liguo, respecte le plus! Avez-vous le cœur d'autoriser deux amants destinés à être unis par la vie et la mort à ne faire que se croiser alors qu'ils ne sont séparés que d'une dizaine de mètres... Maître, je n'ai pas vu cette petite beauté depuis dix ans, je... » Wang Lin fronça les sourcils et frappa son sac de rangement; aussitôt, Xu Liguo s'en envola.
 
 Cette fois, il s'était montré avisé. Craignant d'irriter Wang Lin, il n'avait pas emmené l'épée céleste mais était sorti seul.
 
-Dès qu'il apparut, il reprit sa forme originelle et se mit à examiner l'Empereur Démon de manière répétée. Après avoir cherché un long moment sans trouver l'épée de l'Empereur, il afficha une expression d'impuissance et soupira: « Serait-il possible que la petite beauté et moi ne soyons pas destinés à être ensemble? Cela fait dix ans que nous ne nous sommes pas vus, et voilà qu'une vie entière s'écoule ainsi... »
+Dès qu'il apparut, il prit forme et se mit à examiner l'Empereur Démon de manière répétée. Après avoir cherché un long moment sans trouver l'épée de l'Empereur, il afficha une expression d'impuissance et soupira: « Serait-il possible que la petite beauté et moi ne soyons pas destinés à être ensemble? Cela fait dix ans que nous ne nous sommes pas vus, et voilà qu'une vie entière s'écoule ainsi... »
 
 Il était rare que Xu Liguo s'exprime avec tant d'élégance, mais aux oreilles de Wang Lin, cela restait embarrassant. Il joignit les mains devant l'Empereur Démon et dit: « Frère Gu, voici mon esprit d'épée. Il a eu des... quelques malentendus avec votre esprit d'épée... »
 
@@ -46,7 +46,7 @@ Le regard de Wang Lin se glaça. Bien que Xu Liguo ne soit qu'un esprit d'épée
 
 Voyant que l'épée de l'Empereur s'apprêtait à attaquer de nouveau sans que l'Empereur Démon n'intervienne, le visage de Wang Lin s'assombrit. D'un revers de main, il fit jaillir une rafale de vent étrange vers l'épée, ce qui fit vaciller l'énergie de l'arme.
 
-« Cette aura... C'est toi! Tu es cette nourriture méprisable! Bien, on dirait que vous êtes ensemble! » La silhouette d'une jeune fille apparut au-dessus de l'épée. Elle lança un regard venimeux à Wang Lin et Xu Liguo avant d'activer l'épée de l'Empereur sans la moindre hésitation. En un instant, les environs furent saturés d'énergie spirituelle céleste qui chargea vers Wang Lin.
+« Cette aura... C'est toi! Tu es cette nourriture méprisable! Bien, on dirait que vous êtes ensemble! » La silhouette d'une jeune fille apparut au-dessus de l'épée. Elle lança un regard venimeux à Wang Lin et Xu Liguo avant d'activer l'épée de l'Empereur sans la moindre hésitation. En un instant, les environs furent saturés de rayons d'énergie d'épée qui chargèrent vers Wang Lin.
 
 Wang Lin fronça légèrement les sourcils et laissa échapper un reniflement froid. Désormais au stade Ascendant, il était bien plus puissant qu'à l'époque de sa phase avancée de Transformation de l'Âme. À cette époque, il craignait véritablement l'épée de l'Empereur, mais pourquoi aurait-il peur d'une simple épée aujourd'hui!
 
@@ -110,7 +110,7 @@ Et ce seul instant d'hésitation signifiait la mort!
 
 La silhouette de Wang Lin apparut soudainement aux côtés de l'homme d'âge moyen. Son doigt pointait vers lui. Toute l'énergie maléfique de son armure convergea pour former une flamme démoniaque.
 
-Ce coup était l'apogée de la puissance de Wang Lin; il était impossible de y résister! L'expression de l'homme changea radicalement. Face à cette question de vie ou de mort, il s'apprêtait à utiliser l'énergie de l'épée de Ling Tianhou sans hésiter. Cependant, à cet instant précis, la rivière des enfers jaillit du sol. Elle s'éleva vers le ciel, se transformant en un cycle de réincarnation, puis une force invisible descendit. C'était comme si cette rivière des enfers était la seule chose existant au monde; tout sembla suspendu par son influence.
+Ce coup était l'apogée de la puissance de Wang Lin; il était impossible d'y résister! L'expression de l'homme changea radicalement. Face à cette question de vie ou de mort, il s'apprêtait à utiliser l'énergie de l'épée de Ling Tianhou sans hésiter. Cependant, à cet instant précis, la rivière des enfers jaillit du sol. Elle s'éleva vers le ciel, se transformant en un cycle de réincarnation, puis une force invisible descendit. C'était comme si cette rivière des enfers était la seule chose existant au monde; tout sembla suspendu par son influence.
 
 Pendant cette suspension, juste au moment où la lumière dorée entre les sourcils de l'homme commençait à scintiller, le doigt de Wang Lin frappa.
 

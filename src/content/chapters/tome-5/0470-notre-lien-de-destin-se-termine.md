@@ -80,7 +80,7 @@ Dans son cœur, Wang Lin était plus important que ses propres parents; après t
 
 Wang Lin s'éloigna.
 
-Little White poussa quelques grognements devant la maison de Zhou Ru. Ses grands yeux fixaient l'intérieur avec une profonde réticence. Peu après, il poussa un rugissement puissant avant de bondir vers le ciel et de disparaître dans un éclat de lumière blanche.
+Petit Blanc poussa quelques grognements devant la maison de Zhou Ru. Ses grands yeux fixaient l'intérieur avec une profonde réticence. Peu après, il poussa un rugissement puissant avant de bondir vers le ciel et de disparaître dans un éclat de lumière blanche.
 
 Ce rugissement terrifia les villageois, mais lorsqu'ils sortirent, ils ne trouvèrent rien. Cependant, tout le bétail du village n'osa plus quitter ses enclos pendant un mois. Chaque nuit, leurs corps tremblaient violemment, comme s'ils étaient traumatisés.
 
@@ -148,7 +148,7 @@ Le jeune homme les contempla longuement sans bouger.
 
 Cela dura une journée et une nuit.
 
-Au matin du deuxième jour, un serviteur vint fermer la pièce. En apercevant le jeune homme en robe blanche, il s'apprêta à appeler à l'aide, mais son corps se dérobait soudainement et il s'effondra au sol.
+Au matin du deuxième jour, un serviteur vint nettoyer la pièce. En apercevant le jeune homme en robe blanche, il s'apprêta à appeler à l'aide, mais son corps se dérobait soudainement et il s'effondra au sol.
 
 Le jeune homme regardait les tablettes en silence, les yeux emplis de souvenirs.
 

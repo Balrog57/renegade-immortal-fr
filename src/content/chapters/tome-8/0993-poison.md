@@ -16,7 +16,7 @@ Le Doigt du Tremblement de Montagne de Situ Nan, qui avait rassemblé toutes les
 
 Situ Nan rit et recula. Une lueur d'admiration dans ses yeux tandis qu'il souriait: « Cela fait bien longtemps que nous ne nous sommes pas vus. Wang Lin, je ne t'ai pas vu depuis des centaines d'années, et tu m'as vraiment surpris aujourd'hui! »
 
-Wang Lin recula également en riant: « On dirait que tu as dû te lancer dans une culture intensive en porte fermée durant ces centaines d'années! »
+Wang Lin recula également d'environ 330 mètres, en riant: « On dirait que tu as dû te lancer dans une culture intensive en porte fermée durant ces centaines d'années! »
 
 Les deux se regardèrent et sourirent joyeusement. Wang Lin n'avait pas ressenti un tel bonheur depuis longtemps. Ces retrouvailles avec Situ Nan lui rappelaient leur longue amitié, réchauffant son cœur.
 
@@ -24,7 +24,7 @@ Situ Nan était resté le même. Arrogant, il avait très peu d'amis proches et,
 
 Sur l'invitation de Wang Lin, les deux s'envolèrent vers l'horizon, laissant les autres perplexes.
 
-En particulier, les trois frères Chen furent stupéfaits par ce changement soudain. Ce n'est que bien plus tard qu'ils sourirent avec amertume. Étant tous des cultivateurs du Scruteur du Nirvana et dotés d'une grande intelligence, ils réalisèrent à cet instant qu'il y avait 80 % de chances que le « frère » dont Situ Nan parlait en emmenant Zhou Xue et Ling Er ne soit autre que Wang Lin.
+En particulier, les trois frères Chen furent stupéfaits par ce changement soudain. Ce n'est que bien plus tard qu'ils sourirent avec amertume. Étant tous des cultivateurs du Scruteur du Nirvana et dotés d'une grande intelligence, ils réalisèrent à cet instant qu'il y avait 80 % de chances que le « frère » dont Situ Nan parlait en emmenant Zhao Xue et Ling Er ne soit autre que Wang Lin.
 
 Le Maître Hollow Wind ne put que sourire amèrement en secouant la tête. Puis, il regarda la femme vêtue d'argent qui était sortie du sort de Situ Nan, le cœur empli de doute.
 
@@ -66,7 +66,7 @@ Sans Situ, il aurait été presque impossible pour Wang Lin de franchir les prem
 
 Sans les Doigts de la Mort, les Doigts Démoniaques et les Doigts de l'Inframonde de Situ, ainsi que ses enseignements sur les sorts et les trésors, Wang Lin n'aurait jamais pu s'imposer sur la planète Tian Yun.
 
-Sans Situ, lorsque Wang Lin fut attaqué par le Démon Éparpillé dans la Terre des Esprits Démons, il serait mort sans l'Art de l'Inframonde...
+Sans Situ, lorsque Wang Lin fut attaqué par le Démon Éparpillé dans la Terre des Esprits Démons, il serait mort sans le Doigt de la Mort...
 
 Et il y avait aussi la perle défiant les cieux! Si Situ Nan avait eu la moindre trace de cupidité, il n'aurait jamais laissé Wang Lin conserver un trésor aussi mystérieux. Si Situ l'avait pris, Wang Lin serait mort. C'est pour cela que Situ s'était contenté de sourire et de dire:
 
@@ -98,11 +98,11 @@ Situ Nan eut un sourire amer, but une coupe et demanda: « Tu as compris? »
 
 Wang Lin réfléchit un instant, une lueur de froideur et une intention meurtrière monstrueuse perçant dans son regard. Il acquiesça: « Quel genre de poison est si puissant que tu ne peux l'expulser malgré ta culture? »
 
-Situ Nan posa sa coupe et eut un sourire désabusé: « Je ne sais pas d'où ces maudites femmes de la planète Feng Luan ont tiré ce poison. J'ai consulté de nombreux registres pour découvrir qu'il s'appelle le Septième Ciel. Trois jours de paradis, puis trois jours d'enfer! Maudit soit, durant ces jours-là, j'ai vraiment souhaité mourir! »
+Situ Nan posa sa coupe et eut un sourire désabusé: « Je ne sais pas d'où ces maudites femmes de la planète Feng Luan ont tiré ce poison. J'ai consulté de nombreux registres pour découvrir qu'il s'appelle « Désir d'Immortalité, Désir de Mort ». Trois jours de paradis, puis trois jours d'enfer! Maudit soit, durant ces jours-là, j'ai vraiment souhaité mourir! »
 
-« Ce poison est un vestige du Royaume Céleste; avant son effondrement, il était fabriqué en raffinant d'innombrables êtres célestes pendant cent ans. Ce poison n'a aucun effet sur les mortels, mais il cible les êtres célestes! Une fois qu'il pénètre dans le corps, il est impossible de l'extirper, car il fusionne totalement avec l'âme originelle.
+« Ce poison est un vestige du Royaume Céleste; avant son effondrement, il était fabriqué en raffinant d'innombrables êtres célestes pendant plusieurs centaines d'années. Ce poison n'a aucun effet sur les mortels, mais il cible les êtres célestes! Une fois qu'il pénètre dans le corps, il est impossible de l'extirper, car il fusionne totalement avec l'âme originelle.
 
-« L'effet principal du Septième Ciel réside dans ses trois jours de paradis et ses trois jours d'enfer. Pendant les trois premiers jours, tu es plongé dans un état d'illusion qui épuise toute ta puissance mentale. Puis viennent les trois jours suivants où tu vis l'agonie. Le septième jour, ton âme originelle est totalement détruite!
+« L'effet principal de ce poison réside dans ses trois jours de paradis et ses trois jours d'enfer. Pendant les trois premiers jours, tu es plongé dans un état d'illusion qui épuise toute ta puissance mentale. Puis viennent les trois jours suivants où tu vis l'agonie. Le septième jour, ton âme originelle est totalement détruite!
 
 « Bien qu'il faille sept jours pour mourir, dès l'instant de l'empoisonnement, on perd toute sa culture... »
 

@@ -20,7 +20,7 @@ Cela faisait longtemps que Teng Huayuan n'avait pas eu une telle sueur froide, m
 
 Il avait été terrifié par une illusion devant tous les cultivateurs de Zhao. La colère de Teng Huayuan atteignit soudainement son paroxysme. D'un geste sombre, il frappa son sac de rangement pour en extraire le drapeau noir et tuer un par un les membres de la famille de Wang Lin, mais à ce moment précis, des points de lumière apparurent dans l'air. La lumière se rassembla et le jeune homme réapparut.
 
-Sans un mot, il agita la main et un éclat cyan, chargé d'une frigidité mortelle, fonça vers Teng Huayuan.
+Sans un mot, il agita la main et un éclat vert, chargé d'une frigidité mortelle, fonça vers Teng Huayuan.
 
 Teng Huayuan ricana. Loin de reculer, il avança au contraire. Il tendit la main et lança avec sarcasme: « La première était une illusion, mais la seconde pourrait bien être réelle! Est-ce là tout ce que tu as, Wang Lin? » Sur ces mots, sa main saisit l'épée volante.
 
@@ -42,7 +42,7 @@ Tout ce qui se trouvait dans ce périmètre fut transformé en un océan de glac
 
 Lin Yi plissa les yeux et pensa: « Intéressant, ce petit est intéressant. Non seulement il possède la Perle des Mille Illusions de la Cité des Illusions, mais aussi la Glace Bleue de la Secte de l'Inframonde. Cette épée volante n'est pas ordinaire non plus. Bien qu'il s'agisse d'une imitation, elle demeure puissante. »
 
-Le géant dans le ciel fut également surpris; il regarda la formation de la Vallée de Jue Ming et laissa échapper un sourire étrange.
+Le géant dans le ciel fut également surpris; il jeta un regard lourd de sens vers le passage de la Vallée de Jue Ming et laissa échapper un sourire étrange.
 
 Dans le ciel, le voile formant le cercle des deux dragons noirs avait presque totalement fondu. Il était sur le point de s'ouvrir.
 
@@ -82,7 +82,7 @@ En outre, la détermination de Wang Lin à s'amputer lui-même la main droite po
 
 Plus Wang Lin faisait preuve de résolution, plus Teng Huayuan désirait son agonie.
 
-« Wang Lin, tu ne peux blâmer personne pour la mort de mon arrière-arrière-petit-fils, mais sois tranquille: une fois que je t'aurai tué, j'irai anéantir le vieux Jimo qui a envoyé Teng Li à tes trousses, ainsi que tous ses disciples, pour qu'ils t'accompagnent en enfer! » ricana Teng Huayuan intérieurement avant d'agiter la main. Soudain, un vent glacial se leva et 30 000 âmes jaillirent pour charger Wang Lin.
+« Wang Lin, tu ne peux blâmer personne pour la mort de mon arrière-arrière-petit-fils, mais sois tranquille: une fois que je t'aurai tué, j'irai anéantir le vieux Jimo qui a envoyé Teng Li à tes trousses, ainsi que toute sa famille, pour qu'ils t'accompagnent en enfer! » ricana Teng Huayuan intérieurement avant d'agiter la main. Soudain, un vent glacial se leva et 30 000 âmes jaillirent pour charger Wang Lin.
 
 Pour empêcher toute nouvelle téléportation, Teng Huayuan frappa sa propre poitrine et son Âme Naissante apparut au-dessus de lui. Dans un rugissement, son Âme Naissante se contracta considérablement, expulsant une sphère de sang par sa bouche. Dès son apparition, la sphère commença à gonfler jusqu'à envelopper toute la zone.
 

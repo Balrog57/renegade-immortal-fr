@@ -24,7 +24,7 @@ Un sentiment de puissance absolue envahit le cœur de Wang Lin. Il n'avait jamai
 
 Il expérimentait enfin ce sentiment de regarder le monde avec froideur, après avoir pris le contrôle du pouvoir des cieux!
 
-Il sentait clairement sa culture franchir la limite de la première étape! Il avait dépassé le sommet du stade avancé de l'Ascendant pour atteindre le stade Illusoire Yin!
+Il sentait clairement sa culture franchir la limite de la première étape! Il avait dépassé le sommet du stade avancé de l'Ascendant pour atteindre le stade Yin Illusoire!
 
 « Rétribution divine, sois encore plus agressive! » L'expression de Wang Lin était féroce alors qu'il fixait le ciel.
 
@@ -44,13 +44,13 @@ La puissance des cieux est irréductible. À ce moment précis, tous les nuages 
 
 Seul le fracas du tonnerre subsistait. C'était comme si Wang Lin se trouvait en plein enfer de foudre, car les éclairs multicolores étaient partout.
 
-Le fragment se brisa davantage jusqu'à ce qu'il ne reste plus que 10 000 pieds! Wang Lin semblait être dans la forge des cieux, tandis que les décharges de tonnerre continuaient de s'abattre sur lui.
+Le fragment se brisa davantage jusqu'à ne plus mesurer que moins de 3,3 kilomètres! Wang Lin semblait être dans la forge des cieux, tandis que les décharges de tonnerre continuaient de s'abattre sur lui.
 
 De nombreuses fissures apparurent sur le corps de Wang Lin et se propagèrent rapidement. Simultanément, le corps de sang qui avait pénétré en lui s'était totalement effondré, libérant une quantité incalculable d'énergie originelle au sein de l'âme originelle de Wang Lin.
 
 Ce sentiment de puissance réapparut une fois de plus dans son corps. Il sentait clairement sa culture recommencer à grimper!
 
-Du stade Illusoire Yin stabilisé au sommet du stade Illusoire Yin, et la progression ne s'arrêtait pas!
+Du stade Yin Illusoire stabilisé au sommet du stade Yin Illusoire, et la progression ne s'arrêtait pas!
 
 Il devenait infiniment proche du stade Yang Corporel!
 
@@ -94,7 +94,7 @@ Il s'apprêtait à utiliser un autre sort lorsqu'il vit Wang Lin se retirer une 
 
 À cet instant, Wang Lin disposait d'une réserve d'énergie originelle trop vaste pour être contenue. Les Coups Célestes étaient comme des lames de loi qui fendaient les nuages vers l'Ancêtre de Sang.
 
-L'Ancêtre de Sang laissa échapper un grognement froid et forma un nouveau sceau. Un éclat de lumière sanguine créa des runes qui s'effondrèrent en un éclair. Cela força même les nuages environnants à reculer de dix pieds.
+L'Ancêtre de Sang laissa échapper un grognement froid et forma un nouveau sceau. Un éclat de lumière sanguine créa des runes qui s'effondrèrent en un éclair. Cela força même les nuages environnants à reculer de 3,3 mètres.
 
 Les yeux de Wang Lin restaient calmes tandis qu'il se cachait et reculait rapidement dans la brume. Simultanément, il dévorait d'immenses quantités de nuages, forçant d'innombrables éclairs à pénétrer son corps. L'énergie du vieil homme se dissipait rapidement.
 
@@ -110,7 +110,7 @@ Face à la poursuite de l'Ancêtre de Sang, Wang Lin se frayait un chemin à tra
 
 C'est alors que le corps de Wang Lin trembla soudainement. L'énergie du vieil homme s'était totalement dissipée; il n'y avait donc plus de chaos interne, seulement l'énergie originelle!
 
-Sous l'impact de cette puissance brute, la culture de Wang Lin grimpa en flèche. En un instant, il franchit le sommet du stade Illusoire Yin pour entrer dans le stade Yang Corporel!
+Sous l'impact de cette puissance brute, la culture de Wang Lin grimpa en flèche. En un instant, il franchit le sommet du stade Yin Illusoire pour entrer dans le stade Yang Corporel!
 
 Et cela ne s'arrêta pas là. Tandis que l'énergie originelle était absorbée par son âme originelle et que toute l'énergie spirituelle céleste quittait son corps, sa culture progressa encore une fois. Il passa du simple stade de l'entrée au stade Yang Corporel à une stabilisation complète!
 
@@ -122,6 +122,6 @@ Un sentiment encore plus puissant qu'auparavant envahit Wang Lin. Ses yeux brill
 
 Son corps tomba des nuages mais fut guidé par un sortilège. Une fois au sol, il s'assit immédiatement pour cultiver.
 
-Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre de plus de 3,3 kilomètres de long. Sa présence était terrifiante au milieu des nuages de la rétribution divine!
+Jaillissant de son enveloppe charnelle, l'âme originelle de Wang Lin se mua en un ancien dragon de tonnerre d'environ 330 mètres de long. Sa présence était terrifiante au milieu des nuages de la rétribution divine!
 
 « Ancêtre de Sang, puisque tu t'es livré à moi, autant exaucer mon vœu! »

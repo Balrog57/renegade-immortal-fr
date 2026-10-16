@@ -28,7 +28,7 @@ Bien qu'il ignorât le pouvoir réel du miroir de bronze, tant qu'il s'agissait 
 
 Ce n'était pas qu'il n'avait pas envisagé de tuer pour s'emparer du trésor, mais en observant le jeune homme, il nota que ses yeux étaient d'un calme olympien. Ce point était secondaire; le plus important était que si ce jeune homme pouvait sortir deux trésors magiques de cette trempe, il était manifestement un membre éminent d'une grande famille de culture.
 
-Après réflexion, le vieil homme sortit un sac de rangement. Il en tira dix mille jades célestes et les lança vers Wang Lin.
+Après réflexion, le vieil homme sortit un sac de rangement. Il en tira dix mille jades célestes, puis jeta le reste avec le sac de rangement vers Wang Lin.
 
 Wang Lin les attrapa. Après avoir utilisé son sens divin pour vérifier l'exactitude du montant, il lança le jade d'héritage au vieil homme.
 
@@ -44,7 +44,7 @@ En marchant dans la rue, Wang Lin déploya son sens divin, et un sourire moqueur
 
 « Je vais vous donner une chance! » Wang Lin changea de direction vers l'une des portes de la ville. Il franchit les remparts, sortit une épée volante et s'élança droit devant.
 
-Sa vitesse n'était pas rapide, car il maintenait celle d'un cultivateur de la Formation du Noyau. Après avoir parcouru cinq mille kilomètres, un immense nuage de brouillard apparut soudainement devant lui. Ce brouillard était extrêmement étrange et semblait surgir du néant.
+Sa vitesse n'était pas rapide, car il maintenait celle d'un cultivateur de la Formation du Noyau. Après avoir parcouru plus d'un millier de kilomètres, un immense nuage de brouillard apparut soudainement devant lui. Ce brouillard était extrêmement étrange et semblait surgir du néant.
 
 En un clin d'œil, le brouillard se condensa pour former une main qui s'abattit sur Wang Lin en produisant un sifflement strident.
 
@@ -62,7 +62,7 @@ Il éprouvait un immense regret. Il n'aurait jamais dû suivre les ordres de l'A
 
 Ce qui l'effrayait davantage encore, c'était que l'individu le poursuivait toujours. Cette pression de vie ou de mort était telle qu'il était sur le point de s'effondrer.
 
-Plusieurs milliers de kilomètres passèrent en un éclair. Lorsque l'homme entra dans la ville, son visage était d'une pâleur extrême. La majeure partie de son Âme Naissante s'était déjà dispersée. Il cracha une nouvelle bouchée de sang avant de se précipiter vers le manoir de la famille Sun, situé au centre de la ville.
+Plus d'un millier de kilomètres passèrent en un éclair. Lorsque l'homme entra dans la ville, son visage était d'une pâleur extrême. La majeure partie de son Âme Naissante s'était déjà dispersée. Il cracha une nouvelle bouchée de sang avant de se précipiter vers le manoir de la famille Sun, situé au centre de la ville.
 
 Arrivé là, il ne put plus contenir la dispersion de son âme. Il cria d'une voix rauque: « Sauvez-moi! » Comme s'il avait puisé dans ses dernières forces, son corps se courba et il s'effondra brutalement.
 
@@ -72,7 +72,7 @@ Simultanément, diverses silhouettes jaillirent du manoir des Sun, certaines s'�
 
 À cet instant précis, Wang Lin arriva calmement.
 
-« Oses-tu nuire aux membres de ma famille Sun?! » Les membres de la famille Sun qui s'étaient envolés levèrent leurs épées volantes et chargèrent Wang Lin. Ce dernier agita ses manches, créant une bourrasque puissante qui se mua instantanément en tempête. La rafale balaya tous les membres de la famille Sun dans un rayon de 500 kilomètres et les projeta au loin.
+« Oses-tu nuire aux membres de ma famille Sun?! » Les membres de la famille Sun qui s'étaient envolés levèrent leurs épées volantes et chargèrent Wang Lin. Ce dernier agita ses manches, créant une bourrasque puissante qui se mua instantanément en tempête. La rafale balaya tous les membres de la famille Sun dans un rayon d'environ 330 mètres et les projeta au loin.
 
 « Reculez, tous! » Un cri retentit depuis l'intérieur de la demeure, et trois vieillards en sortirent. Parmi eux se trouvait l'Ancien Sun, celui qui avait commercé avec Wang Lin.
 
@@ -86,9 +86,9 @@ L'expression de l'Ancien Sun se renfrogna davantage et il s'exclama: « Jeune ho
 
 Wang Lin secoua la tête. Il désigna l'homme inconscient et sourit: « Il est curieux que cette personne m'ait intercepté juste après avoir quitté la boutique. Après sa défaite, il a fui jusqu'ici. »
 
-L'Ancien Sun laissa échapper un renflement de mépris, mais les deux vieillards à ses côtés froncèrent les sourcils. Pour eux, l'affaire était limpide: ils supposèrent que le vieil homme Sun avait été avide des biens de cet inconnu et qu'incapable d'agir lui-même, il avait envoyé un subalterne.
+L'Ancien Sun laissa échapper un reniflement de mépris, mais les deux vieillards à ses côtés froncèrent les sourcils. Pour eux, l'affaire était limpide: ils supposèrent que le vieil homme Sun avait été avide des biens de cet inconnu et qu'incapable d'agir lui-même, il avait envoyé un subalterne.
 
-Cependant, Sun Mouren était un ancien de la famille Sun. Puisque les faits étaient là, ils prendraient indubitablement son parti. Le vieillard au visage rouge sourit froidement: « Absurde. Quelle que soit ta lignée, tu resteras ici aujourd'hui. Attends que ton propre ancien arrive, et nous déciderons alors si tu vis ou si tu meurs! »
+Cependant, l'Ancien Sun était bien un aîné de la famille Sun. Puisque les faits étaient là, ils prendraient indubitablement son parti. Le vieillard au visage rouge sourit froidement: « Absurde. Quelle que soit ta lignée, tu resteras ici aujourd'hui. Attends que ton propre ancien arrive, et nous déciderons alors si tu vis ou si tu meurs! »
 
 Une lueur de froideur dans ses yeux, il leva sa main droite et l'abattit. Soudain, des rugissements tonnèrent tandis qu'une pression écrasante s'abattait directement sur le manoir de la famille Sun.
 
@@ -114,7 +114,7 @@ L'expression du vieil homme en noir changea légèrement. Il hésita un instant 
 
 Wang Lin observa l'homme d'un regard profond. Ce qu'il scrutait n'était pas le vieillard lui-même, mais le sens divin de l'Ascendant qui l'habitait.
 
-Ce n'est que lorsque Wang Lin fut loin que le vieil homme en noir se détendit et que le sens divin de l'Ascendant disparut de son corps. Il lança un regard noir à l'Ancien Sun avant de laisser échapper un renflement de mépris.
+Ce n'est que lorsque Wang Lin fut loin que le vieil homme en noir se détendit et que le sens divin de l'Ascendant disparut de son corps. Il lança un regard noir à l'Ancien Sun avant de laisser échapper un reniflement de mépris.
 
 Le vieillard au visage rouge hésita et murmura: « Deux cents mille jades célestes... Même dans la famille principale, c'est une somme considérable. »
 

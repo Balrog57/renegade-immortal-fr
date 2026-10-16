@@ -30,11 +30,11 @@ Son corps se tordit et roula violemment dans la vallée. Ses yeux n'exprimaient 
 
 Tout s'était déroulé avec une rapidité fulgurante, mais l'impact fut tel que les visages de l'assistance devinrent livides.
 
-« Tout ceci est de ma faute. Si le frère aîné de Qian Qin n'était pas mort, tout se serait bien passé et il n'y aurait point de rancune entre nous... » Yin Shaoqing lança un regard chargé d'intention meurtrière vers Qian Qin.
+« Tout ceci est de ma faute. Si le frère aîné de Qian Qin n'était pas mort, tout se serait bien passé et il n'y aurait point de rancune entre nous... » Guo Xingyi lança un regard chargé d'intention meurtrière vers Qian Qin.
 
-Quant à l'autre femme, celle qui appelait Guo Xingyin « frère aîné », son visage était livide; elle pressait sa petite main contre sa bouche, comme sur le point de vomir. Son corps tremblait, manifestement terrifiée par ce qui venait de se produire.
+Quant à l'autre femme, celle qui appelait Guo Xingyi « frère aîné », son visage était livide; elle pressait sa petite main contre sa bouche, comme sur le point de vomir. Son corps tremblait, manifestement terrifiée par ce qui venait de se produire.
 
-Seul l'homme en robe bleue, qui n'avait cessé de faire l'éloge de Guo Xingyin, ne montrait aucun signe d'inconfort. Au contraire, lorsqu'il tourna les yeux vers la vallée, une expression d'extase illumina son visage.
+Seul l'homme en robe bleue, qui n'avait cessé de faire l'éloge de Guo Xingyi, ne montrait aucun signe d'inconfort. Au contraire, lorsqu'il tourna les yeux vers la vallée, une expression d'extase illumina son visage.
 
 Shi Fang, de la Secte de l'Épée Da Lou, sourit à l'ancien de petite taille et dit: « Il semble que nous n'ayons plus besoin de tuer personne. Cet individu a déjà attiré la majorité des Insectes Multitude dans son propre corps. »
 
@@ -46,7 +46,7 @@ Aussitôt, le jade se mit à bourdonner et s'élança dans la vallée tel un ray
 
 Alors que le jade rouge plongeait dans la vallée, le bourdonnement redoubla d'intensité et des filaments de soie rouge s'en échappèrent. Après une brève suspension, un rugissement tonitruant retentit et le jade commença à se mouvoir de façon mystérieuse. En un instant, sa vitesse augmenta jusqu'à ce qu'il semble se dissoudre en d'innombrables filaments. Ces traînées écarlates chargèrent vers le jeune homme qui luttait encore faiblement.
 
-La soie rouge se déplaça avec une célérité extrême pour atteindre la proie en un clin d'œil. Au lieu de pénétrer le corps du jeune homme, les filaments s'entrelacèrent pour former un filet qui encercla l'homme et le sol sur plusieurs pieds autour de lui.
+La soie rouge se déplaça avec une célérité extrême pour atteindre la proie en un clin d'œil. Au lieu de pénétrer le corps du jeune homme, les filaments s'entrelacèrent pour former un filet qui encercla l'homme et le sol sur plusieurs mètres autour de lui.
 
 À cet instant, les yeux de l'ancien Shi Fang s'illuminèrent et il cria: « Scelle! »
 
@@ -92,17 +92,17 @@ Dès l'apparition de ce gaz, le visage de Shi Fang devint extrêmement livide.
 
 Le petit ancien, le visage sombre, demanda mot à mot: « Monsieur, qui êtes-vous? »
 
-Sans attendre de réponse, il poussa un rugissement, sa main droite toucha son sac de rangement et un miroir de bronze apparut dans sa paume. Il lança le miroir en l'air, lequel grandit soudainement jusqu'à atteindre trois pieds de large, libérant une lumière verte qui enveloppa le gaz gris.
+Sans attendre de réponse, il poussa un rugissement, sa main droite toucha son sac de rangement et un miroir de bronze apparut dans sa paume. Il lança le miroir en l'air, lequel grandit soudainement jusqu'à atteindre un mètre de large, libérant une lumière verte qui enveloppa le gaz gris.
 
-Au moment où l'ancien lançait le miroir, Shi Fang, dont la coopération avec le petit ancien était parfaite après tant d'années, forma un sceau de ses deux mains sans hésiter. L'épée précieuse sur son dos s'élança dans les airs et flotta verticalement au-dessus de sa tête, tandis qu'une illusion de lame gigantesque apparaissait derrière lui.
+Au moment où l'ancien lançait le miroir, Shi Fang, dont la coopération avec le petit ancien était parfaite après tant d'années, forma un sceau de ses deux mains sans hésiter. L'épée précieuse sur son dos s'élança dans les airs et flotta horizontalement au-dessus de sa tête, tandis qu'une illusion de lame gigantesque, longue d'une trentaine de mètres, apparaissait au-dessus d'elle.
 
 Shi Fang hurla: « Tranche! »
 
 Alors que les deux anciens attaquaient, le vieillard de la Formation de l'Âme, Lu Songyi, se déplaça comme un éclair pour charger vers les Fruits Dorés Brillants. Fort de sa longue culture, il savait saisir chaque opportunité; étant déjà proche des fruits, il y parvint en un instant.
 
-La lumière du miroir de bronze agissait comme une restriction enserrant le gaz gris. Simultanément, l'épée de Shi Fang fondit sur la cible comme si elle tombait du sommet du neuvième ciel. Avant même l'impact, des détonations soniques retentirent, signe qu'elle brisait la barrière du son.
+La lumière du miroir de bronze agissait comme une restriction enserrant le gaz gris. Simultanément, l'épée de Shi Fang fondit sur la cible comme si elle tombait du sommet du neuvième ciel. Avant même l'impact, un sifflement déchirant l'air retentit.
 
-Le Secte de l'Épée Da Lou était célèbre pour ses lames; leur puissance ne pouvait être décevante!
+La Secte de l'Épée Da Lou était célèbre pour ses lames; leur puissance ne pouvait être décevante!
 
 Cependant!
 
@@ -114,6 +114,6 @@ Accompagnant cette charge, une voix glaciale émana de l'intérieur du brouillar
 
 Cette voix était d'une froideur extrême; dès qu'elle atteignit les oreilles de l'assistance, elle fit frissonner chacun d'entre eux. La lumière verte entourant le gaz gris s'effondra instantanément en une multitude de rayons avant de se dissiper.
 
-Des craquements sinistres jaillirent du miroir de bronze suspendu dans le ciel, puis... BOOM!
+Des craquements sinistres jaillirent du miroir de bronze suspendu dans le ciel, puis... Boum!
 
 L'énergie de l'épée que Shi Fang avait projetée venait de se briser!

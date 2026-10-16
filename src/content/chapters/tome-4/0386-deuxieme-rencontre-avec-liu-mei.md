@@ -10,9 +10,9 @@ Au cours de ces trois mois de culture en isolement, grâce à l'aide du filon sp
 
 Il ne restait que trois marques de thé sur son visage et le sceau de Sun Tai était sur le point de se briser.
 
-Par rapport à tout cela, sa plus grande réussite fut d'avoir découvert que l'ensemble de la Secte de l'Affinement des Âmes était recouvert par une présence invisible.
+Par rapport à tout cela, sa plus grande réussite fut d'avoir découvert que toute la Montagne de l'Affinement de l'Âme était recouverte par une présence invisible.
 
-Cette entité invisible qui recouvrait le secte libérait occasionnellement des fragments d'âme, et des centaines d'énergies spirituelles différentes surgissaient alors pour s'en disputer. Ces fragments d'âme n'apparaissaient pas toujours au même endroit; ils étaient dispersés dans chaque recoin de la Montagne de l'Affinement des Âmes.
+Cette entité invisible qui recouvrait la montagne libérait occasionnellement des fragments d'âme, et des centaines d'énergies spirituelles différentes surgissaient alors pour s'en disputer. Ces fragments d'âme n'apparaissaient pas toujours au même endroit; ils étaient dispersés dans chaque recoin de la Montagne de l'Affinement de l'Âme.
 
 Après avoir remarqué cela, son cœur fut saisi par la curiosité. Il sortit rapidement le manuel du drapeau spirituel et, après l'avoir examiné un moment, il parvint à en percer certains secrets.
 
@@ -24,39 +24,39 @@ L'extraction de l'âme était différente. Elle ne pouvait pas raffiner les frag
 
 Quant à la dernière, le scellement de l'âme, Wang Lin n'avait rien pour la comparer et restait un peu confus.
 
-Selon les enseignements de la Montagne de l'Affinement des Âmes, les drapeaux spirituels étaient classés par dizaines, centaines, milliers ou dizaines de milliers. Plus un drapeau contenait d'âmes, plus il était puissant.
+Selon les enseignements de la Montagne de l'Affinement de l'Âme, les drapeaux spirituels étaient classés par dizaines, centaines, milliers ou dizaines de milliers. Plus un drapeau contenait d'âmes, plus il était puissant.
 
 Les drapeaux contenant dix ou cent âmes étaient très courants, mais une fois qu'un drapeau atteignait le millième, il pouvait utiliser certains sorts et sa puissance dépendrait alors de l'âme principale.
 
-Pour créer un drapeau de mille âmes, il fallait posséder une âme principale. C'était ce facteur limitant qui rendait ces drapeaux si rares. De nombreux drapeaux de neuf cent âmes avaient atteint leur limite, mais sans âme principale, ils ne pouvaient pas devenir des drapeaux de mille âmes.
+Pour créer un drapeau de mille âmes, il fallait posséder une âme principale. C'était ce facteur limitant qui rendait ces drapeaux si rares. De nombreux drapeaux de neuf cent quatre-vingt-dix-neuf âmes avaient atteint leur limite, mais sans âme principale, ils ne pouvaient pas devenir des drapeaux de mille âmes.
 
 Il n'y avait qu'une seule exigence pour l'âme principale: elle devait être plus puissante que la somme de toutes les autres âmes contenues dans le drapeau.
 
-Tout en étudiant le drapeau spirituel, Wang Lin pensa au Qilin qui se trouvait profondément sous le secte. Cette bête devait être l'âme principale de ce drapeau doré.
+Tout en étudiant le drapeau spirituel, Wang Lin pensa au Qilin qui se trouvait profondément sous la montagne. Cette bête devait être l'âme principale de ce drapeau doré.
 
 Wang Lin avait collecté une grande quantité de fragments d'âme au cours de ces trois mois de culture. Pour une raison quelconque, ces fragments s'étaient rassemblés à l'intérieur du filon spirituel. Lorsque Wang Lin avait inspecté le filon pour la première fois, ils n'y étaient pas. Quelqu'un les avait clairement collectés juste avant son inspection.
 
-En collectant ces fragments, il comprit où tous les restes d'âmes du filon spirituel finissaient: ils étaient tous absorbés par le drapeau spirituel situé sous le secte.
+En collectant ces fragments, il comprit où tous les restes d'âmes du filon spirituel finissaient: ils étaient tous absorbés par le drapeau spirituel situé sous la montagne.
 
 Un homme et un drapeau avaient commencé à se voler mutuellement des fragments d'âme. Cependant, le drapeau était ancré sur place et n'était pas aussi agile que Wang Lin. Au cours des trois derniers mois, presque 90 % des fragments d'âme avaient été capturés par Wang Lin.
 
 Parmi ces fragments, il y avait des âmes fortes et faibles. Durant cette période, Wang Lin en trouva une qui se trouvait au début du stade de l'Âme Naissante et l'utilisa comme âme principale.
 
-Peu de fragments de niveau Âme Naissante apparaissaient; seulement deux ou trois par an. Chaque fois que l'un d'eux surgissait, les meilleurs disciples de la Secte de l'Affinement des Âmes se livraient bataille pour s'en emparer.
+Peu de fragments de niveau Âme Naissante apparaissaient; seulement deux ou trois par an. Chaque fois que l'un d'eux surgissait, les meilleurs disciples de la Secte de l'Affinement de l'Âme se livraient bataille pour s'en emparer.
 
-Les paroles de Guo Dongjian avaient fait réfléchir Wang Lin. C'était exactement ce qu'il avait pensé: les disciples de la Montagne de l'Extraction des Âmes extrayaient les âmes des corps pour les sceller dans leurs drapeaux. Il décida qu'il devait trouver le moment opportun pour s'approprier la méthode de production des drapeaux de la Montagne de l'Extraction des Âmes et l'étudier.
+Les paroles de Guo Dongjian avaient fait réfléchir Wang Lin. C'était exactement ce qu'il avait pensé: les disciples de la Montagne de l'Extraction de l'Âme extrayaient les âmes des corps pour les sceller dans leurs drapeaux. Il décida qu'il devait trouver le moment opportun pour s'approprier la méthode de production des drapeaux de la Montagne de l'Extraction de l'Âme et l'étudier.
 
 Quant au vortex d'âme, c'était l'une des trois techniques du manuel. Les trois techniques étaient: condensation, vortex d'âme et sacrifice de sang.
 
-La condensation était plutôt simple. Bien qu'il n'y ait que dix jades au Sommet de l'Affinement des Âmes, beaucoup en avaient fait des copies pour les vendre. Cette technique reposait sur l'affinement de l'âme. Elle permettait de donner forme à un fragment d'âme éthéré et de le placer dans un drapeau spirituel.
+La condensation était plutôt simple. Bien qu'il n'y ait que dix jades au Sommet de l'Affinement de l'Âme, beaucoup en avaient fait des copies pour les vendre. Cette technique reposait sur l'affinement de l'âme. Elle permettait de donner forme à un fragment d'âme éthéré et de le placer dans un drapeau spirituel.
 
-Le vortex d'âme était une technique très rare, du moins au sein de la Montagne de l'Affinement des Âmes. Elle exigeait au moins un niveau de culture Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
+Le vortex d'âme était une technique très rare, du moins au sein de la Montagne de l'Affinement de l'Âme. Elle exigeait au moins un niveau de culture Âme Naissante pour être apprise, mais tous les cultivateurs de ce stade ne pouvaient pas la maîtriser. Par exemple, Guo Dongjian n'avait toujours pas réussi à l'apprendre. Une fois activée, cette technique absorbait une quantité massive d'âmes. Que ce soit pour le combat ou pour le vol d'âmes, elle était extrêmement puissante.
 
-La dernière technique était le sacrifice de sang. Son usage multipliait par plusieurs la puissance du drapeau spirituel. C'était l'une des raisons pour lesquelles la Secte de l'Affinement des Âmes comptait si peu de disciples tout en étant aussi puissant. Cependant, cette technique était très difficile à cultiver. Même la plupart des disciples au stade avancé de l'Âme Naissante ne parvenaient pas à l'apprendre.
+La dernière technique était le sacrifice de sang. Son usage multipliait par plusieurs la puissance du drapeau spirituel. Elle expliquait pour un tiers pourquoi la Secte de l'Affinement de l'Âme comptait si peu de disciples tout en étant aussi puissant. Cependant, cette technique était très difficile à cultiver. Même la plupart des disciples au stade avancé de l'Âme Naissante ne parvenaient pas à l'apprendre.
 
 Wang Lin agita la main et le vortex d'âme disparut. Il sortit un drapeau spirituel qui absorba instantanément une grande quantité de fragments d'âme.
 
-L'expression de Guo Dongjian devint très disgracieuse. Il lui avait fallu des années de travail acharné pour rassembler tous ces fragments, et ils venaient d'être volés ainsi. Après un soupir, il ne put que sourire amèrement. C'était la loi de la Secte de l'Affinement des Âmes. Il était venu ici pour voler le drapeau de Wang Lin, mais c'est le sien qui lui avait été dérobé. Il soupira de nouveau, salua Wang Lin d'un geste des mains et partit, l'esprit sombre.
+L'expression de Guo Dongjian devint très disgracieuse. Il lui avait fallu des années de travail acharné pour rassembler tous ces fragments, et ils venaient d'être volés ainsi. Après un soupir, il ne put que sourire amèrement. C'était la loi de la Secte de l'Affinement de l'Âme. Il était venu ici pour voler le drapeau de Wang Lin, mais c'est le sien qui lui avait été dérobé. Il soupira de nouveau, salua Wang Lin d'un geste des mains et partit, l'esprit sombre.
 
 Wang Lin plaça l'Âme Naissante qu'il venait de capturer dans son drapeau spirituel. Celle-ci commença bientôt à lutter contre l'Âme Naissante déjà présente. Wang Lin ne regarda plus le drapeau; il savait que le vainqueur deviendrait la nouvelle âme principale et que le perdant deviendrait le subordonné du gagnant.
 
@@ -72,7 +72,7 @@ Wang Lin ne répondit pas, mais son regard devint glacial. Le cœur de Xu Yun tr
 
 Liu Wei, déjà timide, ne put plus contenir ses émotions et se mit à pleurer. Elle était pourtant très talentueuse; elle avait atteint le stade intermédiaire de la Formation du Noyau relativement vite. Puis, lors d'une compétition entre disciples extérieurs, elle s'était donnée à fond pour devenir une disciple interne. Mais après son entrée dans la secte interne, la réalité fut bien différente de ses attentes. La secte interne était un lieu où les forts dévoraient les faibles; cela n'avait rien à voir avec l'image qu'elle se faisait d'une secte de culture.
 
-Wang Lin fronça les sourcils. Il agita ses manches, prêt à les expulser, quand il leva soudainement la tête pour fixer le ciel. Une silhouette verte, semblable à une fée, descendit des cieux et atterrit à 330 mètres de lui.
+Wang Lin fronça les sourcils. Il agita ses manches, prêt à les expulser, quand il leva soudainement la tête pour fixer le ciel. Une silhouette verte, semblable à une fée, descendit des cieux et atterrit à trente-trois mètres de lui.
 
 — Liu Mei! En voyant cette femme, Wang Lin fronça encore plus les sourcils.
 
@@ -107,7 +107,7 @@ En s'éloignant, elle songea: *« Wang Lin... Ma maîtresse m'a ordonné de lais
 Wang Lin continuait de froncer les sourcils en regardant le dos de Liu Mei. Bien qu'elle semblât avoir signalé un problème, elle laissait aussi derrière elle d'innombrables incertitudes. Il marmonna pour lui-même:
 — Tout cela est étrange. J'ai ce sentiment bizarre à propos de Liu Mei. Étrange...
 
-Peu après, il se tourna vers Xu Yun et Liu Wei. D'un geste de la main, il les déplaça à mille pieds de sa grotte. Mais alors qu'il les écartait, son cœur se mit à trembler comme s'il venait de se souvenir de quelque chose. Sa main droite s'étendit pour ramener les deux femmes vers lui. Leurs visages, bien qu'inconscients, étaient très différents.
+Peu après, il se tourna vers Xu Yun et Liu Wei. D'un geste de la main, il les déplaça à 330 mètres de sa grotte. Mais alors qu'il les écartait, son cœur se mit à trembler comme s'il venait de se souvenir de quelque chose. Sa main droite s'étendit pour ramener les deux femmes vers lui. Leurs visages, bien qu'inconscients, étaient très différents.
 
 L'expression de Xu Yun était auparavant forte et déterminée; elle parlait au nom de l'autre fille. Mais maintenant qu'elle dormait, son visage trahissait une certaine faiblesse et une impuissance. Quant à la seconde femme, Wang Lin avait d'abord pensé qu'elle était très faible. Pourtant, son expression actuelle était empreinte de détermination et d'impitoyabilité. C'était clairement l'une de ces personnes qui paraissent fragiles mais qui sont, en réalité, extrêmement fortes intérieurement.
 

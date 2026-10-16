@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 584 - Xu Liguo (Part 2)
 slug: xu-liguo-partie-2
 ---
-« Cette personne est extrêmement puissante! » Un des généraux démons, dégageant une aura sombre, fixa Wang Lin, le regard brûlant d'une intention de combat. Il s'agissait du général démon Yu Sen, celui qui avait embrassé la voie de la boucherie.
+« Cette personne est extrêmement puissante! » Un des généraux démons, dégageant une aura sombre, fixa Wang Lin, le regard brûlant d'une intention de combat. Il s'agissait du général démon Yu Sen, celui qui avait embrassé la voie du massacre.
 
 « Intéressant. Je ne m'attendais pas à ce que Mo Lihai possède un allié aussi incroyable... Je me demande combien il pourrait en supporter si j'utilisais les Sept Sorts Démoniaques... » Parmi les généraux démons se trouvait un homme aux cheveux noirs. Il toucha l'anneau à son doigt et esquissa un léger sourire.
 
@@ -24,11 +24,11 @@ Bien que l'homme à l'armure dorée n'ait pas encore atteint le niveau de cultur
 
 Chen Tao pensait qu'il aurait pu utiliser sa propre paume pour la faire dévier légèrement, mais changer complètement sa trajectoire avec seulement deux frappes, comme Wang Lin l'avait fait, était une tâche extrêmement complexe! Ce n'était pas une simple question de niveau de culture ou d'énergie spirituelle céleste; c'était une question de calcul, une forme de déduction!
 
-« S'il avait été dans cet état lors de notre combat pour la position de véritable disciple... Même si j'avais gagné, j'en serais gravement blessé et j'aurais dû m'enfermer en méditation pendant cent ans. Il y aurait même eu un risque que mon niveau de culture chute! » Chen Tao prit une profonde inspiration et regarda Wang Lin d'un air complexe.
+« S'il avait été dans cet état lors de notre combat pour le titre des Sept Disciples du Destin Céleste... Même si j'avais gagné, j'en serais gravement blessé et j'aurais dû m'enfermer en méditation pendant cent ans. Il y aurait même eu un risque que mon niveau de culture chute! » Chen Tao prit une profonde inspiration et regarda Wang Lin d'un air complexe.
 
 L'homme le plus joyeux de l'assemblée était, bien sûr, Mo Lihai. Il ne pouvait cacher son sourire, convaincu que sa décision passée avait été des plus sages!
 
-« Avec notre relation actuelle, nous ne serons pas ennemis à l'avenir. Plus ce Wang Lin sera puissant, plus j'aurai de chances! Cependant, le Chef Doré se comporte comme un tyran en ce moment. Le jour où je deviendrai commandant en chef, je lui donnerai certainement une leçon! »
+« Avec notre relation actuelle, nous ne serons pas ennemis à l'avenir. Plus ce Wang Lin sera puissant, plus j'aurai de chances! Cependant, le Grand Intendant Doré se comporte comme un tyran en ce moment. Le jour où je deviendrai commandant en chef, je lui donnerai certainement une leçon! »
 
 Un reniflement glacial retentit sur la place, tel un coup de tonnerre. Cet écho fracassant força la majorité des spectateurs à tourner leurs regards vers l'auteur du bruit.
 
@@ -40,13 +40,13 @@ Le regard de l'homme à l'armure dorée se fit sombre alors qu'il fixait Wang Li
 
 Sans un mot, Wang Lin traversa la rangée des généraux démons. En son passage, certains d'entre eux reculèrent instinctivement pour lui ouvrir le chemin.
 
-Lorsqu'il rejoignit Mo Lihai, les yeux de ce dernier s'illuminèrent et il murmura: « Frère Wang Lin, ne vous souciez pas de ce Chef Doré; ce n'est qu'un eunuque. Si l'Empereur Démon vous favorise véritablement, que vaut-il? »
+Lorsqu'il rejoignit Mo Lihai, les yeux de ce dernier s'illuminèrent et il murmura: « Frère Wang Lin, ne vous souciez pas de ce Grand Intendant Doré; ce n'est qu'un eunuque. Si l'Empereur Démon vous favorise véritablement, que vaut-il? »
 
 Wang Lin esquissa un léger sourire mais resta silencieux.
 
 À cet instant précis, au plus profond du pavillon de l'Épée Impériale, l'Épée de l'Empereur se trouvait dans la formation, émettant des vagues de chants d'épées. Puisqu'elle se trouvait également dans la cité impériale au moment où Wang Lin avait attaqué, elle avait ressenti la même sensation, ce qui la rendait furieuse.
 
-Dans sa rage, elle s'élança hors du sol, prête à charger et à anéantir cet individu comme elle l'avait fait tant de fois contre la Prison Rouge. Cependant, alors qu'elle s'envolait, elle commença à hésiter.
+Dans sa rage, elle s'élança hors du sol, prête à charger et à anéantir cet individu comme elle l'avait fait tant de fois contre la Prison Hong. Cependant, alors qu'elle s'envolait, elle commença à hésiter.
 
 Après tout, l'Empereur Démon lui avait ordonné de rester discrète pendant quelques jours et de ne pas apparaître lors de la compétition des généraux démons, sous peine d'être envoyée au lac du dragon.
 
@@ -54,9 +54,9 @@ Pensant cela, l'Épée de l'Empereur laissa échapper quelques chants d'épées 
 
 De nombreuses parties du pavillon furent détruites, car ce n'était qu'en causant ces dégâts que sa colère s'apaisait un peu. Soudain, son regard se détourna.
 
-« L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce ciboire répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte Démoniaque Céleste.
+« L'Empereur Démon interdit à l'Épée de l'Empereur de sortir, mais je suis l'esprit de l'épée, alors cela devrait aller... Ça devrait être bon... D'accord, je n'attaquerai pas. Je vais juste jeter un coup d'œil à ce "casse-croûte" répugnant et mémoriser son aura pour le retrouver plus facilement. Oui, ça ne devrait poser aucun problème... » La jeune fille cligna des yeux avant de s'envoler du pavillon pour charger directement vers la Porte Démoniaque Céleste.
 
-Alors qu'elle approchait de la place des dix mille pieds, son corps se mua en néant et elle se posa sur le toit d'un bâtiment voisin pour observer la scène.
+Alors qu'elle approchait de la place de trente-trois kilomètres de côté, son corps se mua en néant et elle se posa sur le toit du palais qui faisait face à la place pour observer la scène.
 
 Au moment où elle apparut au-dessus du palais, huit regards semblèrent l'observer avec désinvolture.
 
@@ -72,7 +72,7 @@ Wang Lin demanda mentalement: « Quel est le problème? »
 
 Le corps de Wang Lin tressaillit. Il interrompit Xu Liguo: « Ici? »
 
-Xu Liguo répondit fièrement: « Elle est au sommet du palais, là-bas. Maître, vous ne pourrez pas la voir, seul moi le peux! » Puis, il frissonna soudainement en se rappelant que Wang Lin était considéré comme un démon, et ajouta précipitamment: « Cela n'a rien à voir avec la culture. Si je peux la voir, c'est parce que j'ai appris une astuce des esprits d'épée grâce à la petite lame noire. Il a dit que les esprits d'épées de haute qualité peuvent ressentir les autres, même quand nous sommes dans un sac de rangement. Mais cela ne fonctionne que si l'autre esprit a quitté son épée. »
+Xu Liguo répondit fièrement: « Elle est au sommet du palais, là-bas. Maître, vous ne pourrez pas la voir, seul moi le peux! » Puis, il frissonna soudainement en se rappelant la réputation de fléau de Wang Lin, et ajouta précipitamment: « Cela n'a rien à voir avec la culture. Si je peux la voir, c'est parce que j'ai appris une astuce des esprits d'épée grâce à la petite lame noire. Il a dit que les esprits d'épées de haute qualité peuvent ressentir les autres, même quand nous sommes dans un sac de rangement. Mais cela ne fonctionne que si l'autre esprit a quitté son épée. »
 
 Xu Liguo devinait ce que pensait Wang Lin et enchaîna immédiatement: « Maître, vous devez faire vite, elle est sur le point de regarder par ici! Soyez tranquille, la petite lame noire m'a appris une technique pour cacher mon aura d'épée afin que personne ne puisse me voir. Ne vous inquiétez pas! »
 
@@ -88,7 +88,7 @@ Voyant l'expression surprise de la petite beauté, Xu Liguo se sentit fier et bo
 
 Xu Liguo eut un sourire espiègle: « Nous sommes tous deux des esprits d'épées, pas besoin d'être aussi glaciale! » Sur ces mots, son corps se changea en brume, laissant l'énergie d'épée le traverser sans l'atteindre. L'instant d'après, il reprit forme et fondit à nouveau sur la jeune fille tel un loup sauvage.
 
-La fille fixa Xu Liguo avec rage. N'ayant plus le temps de chercher son "ciboire", elle s'enfuit immédiatement. Xu Liguo éclata de rire et la poursuivit de près. Les deux esprits d'épées disparurent rapidement dans les profondeurs du palais.
+La fille fixa Xu Liguo avec rage. N'ayant plus le temps de chercher son "casse-croûte", elle s'enfuit immédiatement. Xu Liguo éclata de rire et la poursuivit de près. Les deux esprits d'épées disparurent rapidement dans les profondeurs du palais.
 
 « Petite beauté, suis simplement ton grand frère! Si tu me suis, je te promets une vie de bonheur. Ne pense pas que je suis laid; j'ai même un petit frère qui s'appelle la petite lame noire... »
 
@@ -110,4 +110,4 @@ Soudain, le sourire obscène de Xu Liguo s'effaça et il poussa un rugissement: 
 
 À l'intérieur du pavillon, l'épée impériale serpentine entra dans une rage folle et commença à tout détruire. Elle voulut s'élancer à plusieurs reprises pour assassiner ce bâtard sans vergogne, mais finit par s'en abstenir.
 
-« Cet esprit d'épée est encore plus acharné que cet individu répugnant! »
+« Cet esprit d'épée sans vergogne est encore plus haïssable que ce "casse-croûte"! »

@@ -10,7 +10,7 @@ Le cinquième ancêtre resta silencieux, mais ses sourcils se froncèrent légè
 
 À cet instant, les mains des deux diacres cadavres formèrent des sceaux de plus en plus rapidement. Ils crachèrent alors du sang qui, au lieu de tomber sur le cercueil, prit la forme de deux êtres de sang. Ces deux créatures chargèrent directement à l'intérieur du cercueil.
 
-Un immense cadavre s'extirpa du cercueil dans un fracas de grincements. Ce corps mesurait plus de 330 mètres de haut et était en pleine décomposition; par endroits, on pouvait même apercevoir les os blancs.
+Un immense cadavre s'extirpa du cercueil dans un fracas de grincements. Ce corps mesurait une quarantaine de mètres et était en pleine décomposition; par endroits, on pouvait même apercevoir les os blancs.
 
 De gigantesques asticots s'agitaient encore à l'intérieur de la chair, rendant la vision profondément répugnante.
 
@@ -20,7 +20,7 @@ C'est alors qu'une voix calme retentit au loin: « Cinquième ancêtre du Clan d
 
 Dès que cette voix atteignit leurs oreilles, un fracas assourdissant retentit à l'extérieur du nuage noir. Peu après, une pression colossale surgit et pulvérisa la masse sombre.
 
-À 33 kilomètres de là se tenait un cultivateur Ascendant de la Secte de la Jade Céleste, dont le regard brillait comme l'éclair. Derrière lui se trouvait une légion de cultivateurs au regard glacial, empreints d'une intention meurtrière.
+À 3,3 kilomètres de là se tenait un cultivateur Ascendant de la Secte de la Jade Céleste, dont le regard brillait comme l'éclair. Derrière lui se trouvait une légion de cultivateurs au regard glacial, empreints d'une intention meurtrière.
 
 Le regard du cinquième ancêtre se glaça. Il agita sa main droite et ordonna: « Tuez! »
 
@@ -60,7 +60,7 @@ Ce processus dura dix respirations, jusqu'à ce que le corps soit totalement vid
 
 Chu Yunfei surgit du nuage noir pour foncer vers l'éclat doré. Le cinquième ancêtre ricana depuis l'obscurité sans tenter de l'arrêter.
 
-Lorsque Chu Yunfei atteignit la zone, la lumière se brisa soudainement pour laisser apparaître un Arbre de la Réincarnation de 3,3 kilomètres de haut.
+Lorsque Chu Yunfei atteignit la zone, la lumière se brisa soudainement pour laisser apparaître un Arbre de la Réincarnation de 330 mètres de haut.
 
 Une onde de choc dévastatrice s'en échappa, couvrant l'intégralité de la partie orientale de la planète Suzaku.
 
@@ -78,7 +78,7 @@ Le cinquième ancêtre réfléchit un instant avant de désigner son front. Un t
 
 Ce motif était d'une complexité telle qu'il donnait le tournis rien qu'en le regardant, mais il dégageait une nuance de puissance primitive et destructrice.
 
-« Ce tatouage est l'un de ceux transmis par nos ancêtres. Je l'ai achevé lorsque j'ai atteint le stade des huit feuilles! » Dit-il en agitant la main pour envoyer le tatouage vers l'Ancien Sima.
+« Ce tatouage est l'un de ceux transmis par nos ancêtres. Je l'ai achevé lorsque j'ai atteint le stade des neuf feuilles! » Dit-il en agitant la main pour envoyer le tatouage vers l'Ancien Sima.
 
 Le visage de l'Ancien Sima devint grave. Il frappa son sac de stockage et en sortit une boîte de jade. Celle-ci ne dégageait aucune énergie spirituelle, mais une énergie spirituelle céleste, et elle était protégée par de puissantes restrictions.
 
@@ -112,7 +112,7 @@ Mais un Esprit Ancestral venait d'être dévoré sous ses yeux. Sa rage atteigni
 
 « Je vais te tuer! » hurla le quatrième ancêtre en poursuivant frénétiquement Situ Nan.
 
-Situ Nan s'échappait à une vitesse prodigieuse tout en riant: « La méthode de la première génération de Suzaku est un peu sans gêne, mais ce vieux homme l'apprécie. Une fois que j'aurai un corps et digéré le pouvoir de l'Esprit Ancestral, je ferai bouillir ce petit chien fou. Cela réduira considérablement mon temps de récupération! J'en tirerai profit personnellement en éliminant un chaman dont la puissance est comparable à celle d'un cultivateur Ascendant; on peut dire que je n'oublie pas la bonté de la première génération de Suzaku! »
+Situ Nan s'échappait à une vitesse prodigieuse tout en riant: « La méthode de la première génération de Suzaku est un peu sans gêne, mais ce vieux homme l'apprécie. Plus tard, je transmettrai cette méthode à Wang Lin pour que nous la pratiquions ensemble, mais avec son niveau actuel, il ne pourrait pas la supporter. Une fois que j'aurai un corps et digéré le pouvoir de l'Esprit Ancestral, je ferai bouillir ce petit chien fou. Cela réduira considérablement mon temps de récupération! J'en tirerai profit personnellement en éliminant un chaman dont la puissance est comparable à celle d'un cultivateur Ascendant; on peut dire que je n'oublie pas la bonté de la première génération de Suzaku! »
 
 « Je vais te tuer! » Un rugissement féroce, semblant sortir d'un cœur déchiré, retentit derrière Situ Nan. La haine qui émanait de ce cri était indicible.
 

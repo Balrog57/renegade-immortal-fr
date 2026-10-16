@@ -11,7 +11,7 @@ L'homme debout sur la créature inclina la tête et regarda Wang Lin avec une ex
 
 Au moment où Wang Lin entra dans la faille, le sac contenant les pierres spirituelles de qualité supérieure, les dix instruments et le piège à bêtes commencèrent tous à briller. Cependant, cette lueur s'estompa immédiatement dès qu'il pénétra dans la faille, comme si une force interférait avec le sens divin connecté aux sacs.
 
-Wang Lin savait déjà qu'avec la personnalité de ces dix individus, ils ne céderaient pas leurs trésors sans combattre. Ils avaient dû placer une technique sur ces objets pour pouvoir les contrôler à distance. C'est pourquoi, dès qu'il reçut ces articles, il resta sur ses gardes. Il décida d'utiliser cette faille, capable de couper le sens divin, comme contre-mesure.
+Wang Lin savait déjà qu'avec la personnalité de ces dix individus, ils ne céderaient pas leurs trésors gratuitement. Ils avaient dû placer une technique sur ces objets pour pouvoir les contrôler à distance. C'est pourquoi, dès qu'il reçut ces articles, il resta sur ses gardes. Il décida d'utiliser cette faille, capable de couper le sens divin, comme contre-mesure.
 
 Au moment où le corps de Wang Lin pénétra dans la faille, l'expression du vieil homme changea en réalisant que son sens divin était obstrué.
 
@@ -25,7 +25,7 @@ Une fois à l'intérieur, ses yeux s'illuminèrent. Il agita sa main droite, fai
 
 À l'extérieur de la forme irrégulière, son autre corps flottait dans les airs, récitant sans cesse des incantations et formant des signes manuels. D'innombrables sphères d'éclairs violets apparurent autour de lui. Les éclairs crépitaient entre ces sphères, dégageant une aura destructrice. Bien qu'il exécutât continuellement ses techniques, ses yeux restaient fixés sur l'écaille spéciale du corps de la créature tout en observant attentivement les environs.
 
-Tout cela se produisit dans l'instant même où le corps de Wang Lin disparut dans la faille. Au moment où le vieil homme détourna son attention pour maintenir sa formation, une faille apparut soudainement près de l'écaille spéciale de la créature. Une ombre en sortit brusquement.
+Tout cela se produisit dans l'instant même où le corps de Wang Lin disparut dans la faille. Au moment où le vieil homme détourna son attention pour maintenir sa formation, une faille apparut soudainement à l'extérieur du corps enroulé de la créature. Une ombre en sortit brusquement.
 
 Le vieil homme et l'homme couvert d'écailles remarquèrent immédiatement la faille et l'ombre qui en émergeait. Le visage du vieil homme se mua en une expression de haine. Il tenta de mener deux actions de front: il utilisa son côté gauche pour maintenir la forme irrégulière et leva un doigt de sa main droite pour pointer la silhouette surgie de la faille. Cependant, il fut momentanément stupéfait avant d'afficher un sourire glacial. De cette silhouette, il ne pouvait absolument pas percevoir son trésor salvateur.
 
@@ -37,17 +37,17 @@ Les tornades bourdonnaient, et l'une d'elles semblait dissimuler quelque chose e
 
 Il agita sa main droite et projeta davantage de sphères d'éclairs violets. Cette fois, les éclairs contournèrent les tornades car il avait une nouvelle cible: la faille. Le vieil homme eut la même idée et pointa la faille de sa main droite.
 
-En conséquence, les quatre tornades réussirent à passer outre l'homme couvert d'écailles et chargèrent vers la créature longue de millions de pieds. Bientôt, elles atteignirent la bête. Lorsque les sphères d'éclairs frappèrent la faille, celle-ci rétrécit peu à peu jusqu'à disparaître.
+En conséquence, les quatre tornades réussirent à passer outre l'homme couvert d'écailles et chargèrent vers la créature longue de dix mille pieds. Bientôt, elles atteignirent la bête. Lorsque les sphères d'éclairs frappèrent la faille, celle-ci rétrécit peu à peu jusqu'à disparaître.
 
-L'homme couvert d'écailles fut stupéfait. Sans un mot, il agita ses deux mains et toutes les sphères d'éclairs environnantes se précipitèrent soudainement vers les quatre tornades. Il aurait aimé pouvoir envoyer le corps qu'il avait chargé contre Ta Sen vers ces tourbillons également.
+L'homme couvert d'écailles fut stupéfait. Sans un mot, il agita ses deux mains et toutes les sphères d'éclairs environnantes se précipitèrent soudainement vers les quatre tornades. Il n'avait plus le temps de contrôler le clone qui combattait Ta Sen et s'élança lui-même vers les tourbillons.
 
 Mais à cet instant, Ta Sen, encerclé au centre de la forme irrégulière, fixa les tornades noires. Ses yeux s'illuminèrent lorsqu'il comprit ce qui se tramait, et il laissa éclater un rire. Ignorant l'adversaire qu'il combattait, il récita quelques incantations extrêmement complexes et son corps se transforma soudainement en une brume de sang.
 
 Une fois apparue, la brume de sang se propagea rapidement dans toutes les directions. La forme irrégulière qui l'entourait s'effondra brusquement, libérant une onde de choc vers l'extérieur. Cela fit apparaître des expressions de terreur sur les visages des dix personnes qui maintenaient la formation. Six d'entre elles, dont Dou Mu, furent frappées par l'onde de choc. Leurs corps furent aussitôt envahis par la brume de sang qui ravagea leurs organes internes avant de s'échapper par leur tête.
 
-Au moment où la brume émergea, les six individus affichèrent un regard d'incrédulité alors que leurs corps inertes et vides tombaient directement dans la Mer Morte.
+Au moment où la brume émergea, les six individus affichèrent un regard d'incrédulité alors que leurs corps inertes et vides tombaient directement dans la Mer des Âmes Mortes.
 
-L'homme qui chargeait vers Wang Lin dut s'interrompre pour faire demi-tour; il n'avait pas le temps de s'occuper de lui. Il ouvrit ses deux mains, dirigeant les sphères d'éclairs violets qui fonçaient sur les tornades noires afin qu'elles se retournent contre la brume de sang. Simultanément, son autre corps lança la lance illusoire, laquelle se mua en un dragon noir pour charger le brouillard sanguin.
+L'homme qui s'élançait vers les tornades dut s'arrêter; il n'avait plus le temps de s'occuper de Wang Lin. Il ouvrit ses deux mains, dirigeant les sphères d'éclairs violets qui fonçaient sur les tornades noires afin qu'elles se retournent contre la brume de sang. Simultanément, son autre corps lança la lance illusoire, laquelle se mua en un dragon noir pour charger le brouillard sanguin.
 
 Quant aux quatre survivants, ils étaient tous terrifiés, particulièrement le vieil homme. Il n'avait jamais imaginé que Ta Sen possédait encore une telle technique.
 
@@ -73,9 +73,9 @@ Après une réflexion approfondie, il avait envoyé quatre tornades noires en y 
 
 Une fois que Ta Sen eut formé ses dix clones, l'un d'eux se dirigea vers Wang Lin. Ce dernier fusionna lui-même les quatre tornades avant que Ta Sen ne puisse agir, provoquant l'explosion des innombrables âmes de petites bêtes. De ce fait, son sens divin s'était dispersé parmi ces âmes, réduisant considérablement les risques d'être découvert.
 
-Toutefois, Wang Lin n'était pas assez arrogant pour croire qu'il était indétectable. S'il était débusqué, il se contenterait de trancher cette partie de son sens divin. Après tout, le but principal de cette projection était l'exploration. Il avait dirigé les âmes des petites bêtes vers le corps de la créature millénaire.
+Toutefois, Wang Lin n'était pas assez arrogant pour croire qu'il était indétectable. S'il était débusqué, il se contenterait de trancher cette partie de son sens divin. Après tout, le but principal de cette projection était l'exploration. Il avait dirigé les âmes des petites bêtes vers le corps de la créature géante.
 
-L'une d'elles toucha accidentellement l'écaille spéciale et, au contact de celle-ci, il ressentit un appel puissant. Sous l'effet de cet appel, la portion d'héritage qu'il portait en lui sembla vouloir jaillir de son corps. Mais simultanément, un nouveau souvenir apparut au sein de son héritage. En le comprenant, le cœur de Wang Lin ne put s'empêcher de sombrer.
+L'une d'elles toucha habilement l'écaille spéciale et, au contact de celle-ci, il ressentit un appel puissant. Sous l'effet de cet appel, la portion d'héritage qu'il portait en lui sembla vouloir jaillir de son corps. Mais simultanément, un nouveau souvenir apparut au sein de son héritage. En le comprenant, le cœur de Wang Lin ne put s'empêcher de sombrer.
 
 Wang Lin décida aussitôt de faire exploser toutes les âmes des petites bêtes. Il esquissa un sourire alors que son âme quittait son corps pour sortir de la faille tel un éclair. Comme il s'y attendait, l'écart de culture entre lui et Ta Sen était trop vaste. Malgré son état de clone, l'être était manifestement à un niveau que Wang Lin ne pouvait occulter. Le clone éprouva un sentiment de mépris; il avait déjà détecté le sens divin de Wang Lin dans les tornades noires, sans quoi il n'aurait pas utilisé une puissance capable d'endommager son corps.
 
@@ -93,9 +93,9 @@ Quant à l'attaque du clone de Ta Sen, Wang Lin n'en avait cure. Son âme commen
 
 Le visage du clone de Ta Sen changea brusquement. Tous les autres clones en combat remarquèrent le changement et se tournèrent vers Wang Lin, leurs expressions se transformant radicalement. Les clones fixèrent les trois mots dorés. Rapidement, ils chargèrent tous vers la position de Wang Lin.
 
-Presque instantanément, l'homme couvert d'écailles fut sous le choc. Une idée lui traversa l'esprit et il se reforma précipitamment en un seul corps. Il poursuivit les clones de Ta Sen en riant bruyamment: « Ta Sen, n'importe qui sauf toi peut hériter de la connaissance du Maître! Petit gars, tout dépendra de ta chance! »
+Presque instantanément, l'homme couvert d'écailles fut sous le choc. Une idée lui traversa l'esprit et il s'élança aussitôt avec son clone. Il poursuivit les clones de Ta Sen en riant bruyamment: « Ta Sen, n'importe qui sauf toi peut hériter de la connaissance du Maître! Petit gars, tout dépendra de ta chance! »
 
-Ces derniers mots étaient destinés à Wang Lin. À cet instant, il prit une décision qui lui coûterait un prix qu'il pouvait à peine supporter. Soudain, l'homme couvert d'écailles pointa son front et s'écria: « En sacrifiant mon clone, je transfère l'héritage de la connaissance! » Son clone trembla violemment et, avec la lance, les deux se transformèrent en éclats de lumière dorée avant de disparaître.
+Ces derniers mots étaient destinés à Wang Lin. À cet instant, il prit une décision qui lui coûterait un prix qu'il pouvait à peine supporter. Soudain, l'homme couvert d'écailles pointa son front et s'écria: « En sacrifiant mon clone, je transfère l'héritage de la connaissance! » Son clone trembla violemment et, avec la lance, les deux se transformèrent en éclats de lumière cristalline avant de disparaître.
 
 Alors que le clone le plus proche de Wang Lin chargeait sur lui, l'âme de ce dernier, qui s'épanouissait rapidement, se rétracta comme aspirée par une force colossale. En un clin d'œil, l'âme de Wang Lin fut engloutie par l'écaille spéciale et disparut. Peu après que l'homme couvert d'écailles eut prononcé ses paroles, l'écaille explosa et s'évanouit sans laisser de trace.
 

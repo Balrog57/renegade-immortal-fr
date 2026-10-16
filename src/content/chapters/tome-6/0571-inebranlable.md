@@ -10,7 +10,7 @@ Wang Lin quitta la rivière et marcha lentement dans la nuit, suivi par les deux
 
 De leur point de vue, Wang Lin avait passé le plus clair de son temps à flâner dans la ville, avant de s'attarder devant la rivière, l'air absent. Le ciel était désormais obscur, mais cet homme continuait de déambuler lentement dans les rues.
 
-Durant la nuit, Hong City était illuminée par des lueurs, telle une cité sans sommeil.
+Durant la nuit, la ville de Hong était illuminée par des lueurs, telle une cité sans sommeil.
 
 Alors que Wang Lin progressait sur la route, son regard se posa sur une zone sombre au loin. De nombreux édifices imposants s'y dressaient, et tout le quartier dégageait une atmosphère oppressante.
 
@@ -50,11 +50,11 @@ Les lambeaux de gaz gris se reformèrent en cinq dragons, et une épaisse aura d
 
 Simultanément, ces cinq filaments d'énergie de massacre foncèrent sur Mo Lihai. Ses yeux brillèrent et il décocha un autre coup de poing. Les filaments esquivèrent l'attaque et visèrent sa poitrine.
 
-L'énergie de massacre fondit soudainement sur lui, mais fut stoppée par une force invisible à sept pouces de son corps, avant d'être repoussée.
+L'énergie de massacre fondit soudainement sur lui, mais fut stoppée par une force invisible à vingt-trois centimètres de son corps, avant d'être repoussée.
 
 Pourtant, même ainsi, le voile d'énergie spirituelle démoniaque protégeant Mo Lihai trembla violemment.
 
-Wang Lin dit d'une voix lente: « Si j'en avais eu plus de mille, pourriez-vous toujours les bloquer si aisément...? »
+Wang Lin dit d'une voix lente: « Si j'en avais eu plusieurs milliers, pourriez-vous toujours les bloquer si aisément...? »
 
 Le regard de Mo Lihai s'anima. Ce n'était pas la première fois qu'il faisait face à cette énergie de massacre, mais elle était bien plus puissante que lors des deux précédentes rencontres. Il déclara avec détermination: « Un mois est trop long pour moi, mais sept jours ne posent aucun problème. La Prison Hong compte des dizaines de milliers de criminels; sept jours devraient vous suffire pour votre culture! Attendez-moi, je vous obtiendrai une lettre d'entrée dans trois jours! »
 
@@ -64,7 +64,7 @@ Mo Lihai resta pensif. Après un long moment, il murmura: « Je ne peux effectiv
 
 « Au-delà de la puissance de ce coup de poing, la simple force de ces filaments de gaz gris imprégnés d'intention meurtrière est extrêmement anormale. Avec seulement cinq filaments qui n'étaient même pas à pleine puissance, il a fait vaciller mon armure démoniaque. C'est plus tranchant que certaines épées démoniaques! Mais le plus important est ailleurs: il y a quelque chose de mystérieux dans ce gaz gris, capable d'affecter la force vitale de mon corps! »
 
-« S'il y avait plus de mille filaments de ce gaz gris... ce serait extrêmement dangereux! Il vaut mieux ne pas se faire un ennemi de Wang Lin et préserver notre relation actuelle! » Après avoir médité un instant, il quitta la pièce pour s'atteler à l'obtention d'un accès pour Wang Lin à la Prison Hong.
+« S'il y avait plusieurs milliers de filaments de ce gaz gris... ce serait extrêmement dangereux! Il vaut mieux ne pas se faire un ennemi de Wang Lin et préserver notre relation actuelle! » Après avoir médité un instant, il quitta la pièce pour s'atteler à l'obtention d'un accès pour Wang Lin à la Prison Hong.
 
 Wang Lin ne retourna pas dans sa chambre mais s'assit en position du lotus dans la cour. Bien que les environs fussent plongés dans le silence, une lointaine musique de cithare résonnait à ses oreilles.
 
@@ -76,7 +76,7 @@ Sa silhouette projetait une longue ombre sous le clair de lune. Cette ombre para
 
 Une simple ombre solitaire...
 
-Un pot de vin de haute qualité provenant de la Cité Démoniaque Antique était posé à ses côtés. De temps à autre, il en prenait une gorgée. La mélancolie de son ombre semblait imprégner son corps, et sa solitude paraissait fusionner avec la lune qui marquait sa chair et son âme...
+Un pot de vin de haute qualité provenant de la Grande Muraille Antique était posé à ses côtés. De temps à autre, il en prenait une gorgée. La mélancolie de son ombre semblait imprégner son corps, et sa solitude paraissait fusionner avec la lune qui marquait sa chair et son âme...
 
 « Moi, Wang Lin, j'ai commencé à apprendre le Dao à l'âge de 16 ans, mais j'ai depuis longtemps oublié depuis combien de temps je cultive... » Wang Lin saisit le pot et prit une grande inspiration. Le vin s'échappa du coin de sa bouche et perla sur ses vêtements.
 

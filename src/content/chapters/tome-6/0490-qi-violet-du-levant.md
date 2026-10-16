@@ -6,39 +6,39 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 490 - Purple Qi From the East
 slug: qi-violet-du-levant
 ---
-Dans une forêt rocheuse située à des dizaines de milliers de kilomètres de la Secte du Destin Céleste, un jeune homme aux longs cheveux était assis sur le sommet d'un tronc d'arbre. Une aura épaisse entourait l'individu; vu de loin, il n'était qu'une silhouette floue.
+Dans une forêt rocheuse située à des centaines de milliers de kilomètres de la Secte du Destin Céleste, un jeune homme aux longs cheveux était assis sur le sommet d'un pilier de pierre. Une aura épaisse entourait l'individu; vu de loin, il n'était qu'une silhouette floue.
 
 Le silence régnait en maître lorsque l'homme ouvrit soudainement les yeux. Dans la brume qui l'enveloppait, ses deux pupilles brillaient comme deux lunes éclatantes.
 
 À cet instant, le ciel changea brusquement de couleur et les nuages se dispersèrent avec frénésie, révélant un firmament limpide.
 
-L'homme leva la main et l'agita doucement. L'aura autour de lui commença à bouillonner violemment avant de se dissiper dans toutes les directions.
+L'homme leva les deux mains et les abaissa dans le vide autour de lui. L'aura autour de lui commença à bouillonner violemment avant de se dissiper dans toutes les directions.
 
 Des craquements assourdissants retentirent alors que d'innombrables fissures apparaissaient sur toute la forêt de pierre. Le bruit devint progressivement plus intense, jusqu'à ce que l'entièreté de la forêt de pierre se change en poussière et disparaisse.
 
-En un clin d'œil, la forêt environnante avait cessé d'exister, ne laissant derrière elle que le tronc sur lequel reposait le jeune homme aux longs cheveux.
+En un clin d'œil, la forêt environnante avait cessé d'exister, ne laissant derrière elle que le pilier sur lequel reposait le jeune homme aux longs cheveux.
 
 Les yeux de l'individu brillèrent comme des étoiles lorsqu'il commença à aspirer l'énergie avec force. Toute l'aura qui s'était dispersée revint vers lui et pénétra son corps par sa bouche.
 
-Cette scène évoquait un dragon céleste dévorant les nuages et buvant la mer. Une fois toute l'aura réabsorbée, le jeune homme laissa échapper un rire qui ébranla les cieux et la terre.
+Cette scène évoquait un dragon céleste dévorant les nuages et buvant la mer. Une fois toute l'aura réabsorbée, le jeune homme laissa échapper un long cri qui ébranla les cieux et la terre.
 
-Tout en riant, il se leva. Sa silhouette n'était pas imposante, mais sous la lumière lunaire, il semblait capable de soutenir la voûte céleste. Son image resterait gravée à jamais dans le cœur de ceux qui l'auraient vu.
+Au milieu de ce cri, il se leva. Sa silhouette n'était pas imposante, mais sous la lumière lunaire, il semblait capable de soutenir la voûte céleste. Son image resterait gravée à jamais dans le cœur de ceux qui l'auraient vu.
 
 « Division Pourpre... je viens! » murmura le jeune homme. C'était Wang Lin!
 
-Le regard de Wang Lin était serein lorsqu'il fit un pas en avant et disparut du sommet du tronc. Lorsqu'il réapparut à plusieurs centaines de pieds dans les airs, une lumière argentée surgit et exerça une force puissante pour le repousser.
+Le regard de Wang Lin était serein lorsqu'il fit un pas en avant et disparut du sommet du pilier. Lorsqu'il réapparut à plusieurs centaines de mètres dans les airs, une lumière argentée surgit et exerça une force puissante pour le repousser.
 
 Sa position actuelle représentait la limite qu'il avait atteinte trois mois auparavant. À l'époque, c'était là son point de rupture. Cependant, aujourd'hui, son expression était calme; loin de ralentir, il accéléra telle une météorite perçant le ciel.
 
 En conséquence, la force de la lumière argentée augmenta rapidement jusqu'à un degré inimaginable, forçant le corps de Wang Lin à marquer un temps d'arrêt.
 
-De loin, on pouvait clairement voir une structure semblable à une montagne argentée s'élevant vers les cieux, et Wang Lin en était le sommet. La lumière argentée s'étendait jusqu'au sol en forme de cône, couvrant une zone de 5 kilomètres.
+De loin, on pouvait clairement voir une structure semblable à une montagne argentée s'élevant vers les cieux, et Wang Lin en était le sommet. La lumière argentée s'étendait jusqu'au sol en forme de cône, couvrant un rayon de 5 kilomètres.
 
 Impassible, Wang Lin leva son pouce droit. Des rayons de lumière se rassemblèrent sur lui jusqu'à ce qu'il devienne si éclatant que le ciel sembla perdre toute clarté. C'était comme si son pouce était la seule chose subsistant au monde.
 
-Les yeux de Wang Lin s'illuminèrent, puis il pressa son pouce contre la barrière argentée, à trois pouces au-dessus de sa tête.
+Les yeux de Wang Lin s'illuminèrent, puis il pressa son pouce contre la barrière argentée, à une dizaine de centimètres au-dessus de sa tête.
 
-Au moment où son pouce toucha la lumière, un éclair jaillit et d'innombrables fissures apparurent sur le voile lumineux. De loin, on aurait dit que la montagne d'argent était sur le point de s'effondrer.
+Au moment où son pouce toucha la lumière, d'innombrables fissures apparurent sur le voile lumineux. De loin, on aurait dit que la montagne d'argent était sur le point de s'effondrer.
 
 Mais en un instant, les fissures disparurent et l'écran de lumière argentée retrouva son intégrité. L'expression de Wang Lin se durcit. Il utilisa à nouveau le Doigt de la Mort contre la barrière.
 
@@ -60,7 +60,7 @@ C'était comme si un seigneur démon venait de naître. Wang Lin était désorma
 
 Bientôt, la flamme pourpre dans sa main devint de plus en plus intense. Comparée à celle qu'il utilisait trois mois auparavant, elle était plusieurs fois plus vaste.
 
-Wang Lin pointa son doigt vers l'avant. À cet instant, il perça la force située à trois pouces au-dessus de sa tête et traversa l'écran de lumière argentée.
+Wang Lin pointa son doigt vers l'avant. À cet instant, il perça la force située à une dizaine de centimètres au-dessus de sa tête et traversa l'écran de lumière argentée.
 
 Au moment où son doigt transperça le voile, la flamme pourpre se mit à brûler avec frénésie, prenant le doigt de Wang Lin comme point focal. C'était comme si une feuille de papier avait été enflammée: une fois le feu amorcé, il se propageait avec une rage incontrôlable.
 
@@ -80,7 +80,7 @@ Ce Cao Yidou était un subordonné que Wang Lin avait pris sous son aile lors de
 
 Wang Lin demanda promptement: « Cao Yidou, sais-tu comment rejoindre la Secte du Destin Céleste d'ici? »
 
-Cao Yidou prit un air pensif avant de pointer l'ouest et de répondre: « À environ 300 000 kilomètres vers l'ouest devrait se trouver la Secte du Destin Céleste. »
+Cao Yidou prit un air pensif avant de pointer l'ouest et de répondre: « À environ 150 000 kilomètres vers l'ouest devrait se trouver la Secte du Destin Céleste. »
 
 Wang Lin leva la tête vers la direction indiquée, rangea Cao Yidou et chargea vers l'ouest avec acharnement.
 
@@ -100,7 +100,7 @@ Après les sept jours de festivités, l'Omniscient allait enseigner le Dao. Ensu
 
 Dans la Division Pourpre, quelqu'un avait utilisé un puissant sortilège pour attirer des nuages vers sa zone, puis avait transformé ces nuages pour les rendre aussi solides que la terre.
 
-De loin, toute la Division Pourpre semblait recouverte par cette couche de nuages, comme si elle flottait dans le Royaume Céleste. Sur ces nuages blancs étaient disposées d'innombrables petites tables, et de nombreux disciples de la Division Pourpre servaient les invités sur ces plateformes célestes.
+De loin, toute la Division Pourpre semblait recouverte par cette couche de nuages s'étendant sur plus d'une centaine de kilomètres, comme si elle flottait dans le Royaume Céleste. Sur ces nuages blancs étaient disposées d'innombrables petites tables, et de nombreux disciples de la Division Pourpre servaient les invités sur ces plateformes célestes.
 
 Les convives de la Division Pourpre provenaient de diverses sectes de la planète Tian Yun. Parmi eux se trouvaient des individus à haut niveau de culture, mais en petit nombre. Ces sectes étaient considérées comme les plus faibles de la planète et ne pouvaient séjourner dans la Division Pourpre que pour la durée des festivités.
 

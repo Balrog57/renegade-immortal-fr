@@ -18,13 +18,13 @@ Les scènes de ses moments passés avec Li Muwan...
 
 La solitude de sept cents ans de culture...
 
-Ces cent années passées lors de l'épreuve à la Secte du Destin Céleste...
+Ces cent années de vie commune, dans l'illusion de la Secte du Destin Céleste...
 
 La mélancolie de déambuler dans les rues de la Cité du Démon Céleste...
 
 Tout cela s'interrompit brusquement lorsqu'il entendit la musique de la cithare s'élever depuis le bateau!
 
-Lorsque les notes de la cithare parvinrent à ses oreilles, elles lavèrent son corps, purifièrent son âme et affinèrent son Dao.
+Lorsque les notes de la cithare parvinrent à ses oreilles, elles y restèrent des mois, purifièrent son cœur et affinèrent son Dao.
 
 La musique de la femme et le son du tambour fusionnèrent à cet instant précis. Le cœur de Wang Lin servit de pont pour unir ces deux sons. Par le mouvement de sa main, il faisait vibrer le tambour, transmettant toute la tristesse qui s'était tapie dans son cœur depuis le départ de Li Muwan.
 
@@ -62,7 +62,7 @@ Son regard se posa sur l'homme à l'armure dorée.
 
 Le visage de ce dernier n'était plus sombre, mais totalement livide. Il fixait Wang Lin, incapable de prononcer un mot. Aujourd'hui, le cultivateur devant lui l'avait stupéfait à trop de reprises!
 
-Au début, il avait frappé le tambour cinq fois sans que son expression ne change, son corps restant aussi immobile qu'une montagne gigantesque. Puis, il l'avait frappé trois fois de plus pour rattraper Mo Fei. Enfin, les neuvième et dixième coups étaient arrivés, et Wang Lin s'était rétabli lors du dixième coup.
+Au début, il avait frappé le tambour cinq fois sans que son expression ne change, son corps restant aussi immobile qu'une montagne gigantesque. Puis, il l'avait frappé trois fois de plus pour rattraper Mo Fei. Enfin, les neuvième et dixième coups étaient arrivés, et Wang Lin avait été repoussé en arrière au dixième coup.
 
 À ce moment-là, l'homme pensait que tout était fini, mais en réalité, cela ne faisait que commencer!
 
@@ -72,7 +72,7 @@ Si ce son avait été identique aux précédents, il n'aurait pas été aussi al
 
 Cela n'avait rien à voir avec la culture, mais avec le royaume! Un degré supérieur de domaine et d'affinement de l'âme.
 
-L'homme à l'armure dorée n'oublierait jamais ce qui s'était passé aujourd'hui. À cet instant, il ressentait une irrésistible réticence à s'opposer à Wang Lin.
+L'homme à l'armure dorée n'oublierait jamais ce qui s'était passé aujourd'hui. À cet instant, il ressentait une envie irrésistible d'éviter le regard de Wang Lin.
 
 « Quinze coups, et vous sacrifierez l'un de vos propres bras? » La voix de Wang Lin était calme, mais tout le monde put l'entendre distinctement.
 
@@ -100,7 +100,7 @@ L'expression de ce dernier restait indifférente tandis qu'il fixait froidement 
 
 Après avoir retiré son regard, Wang Lin ferma lentement les yeux et posa sa main sur le tambour. Désormais, son objectif n'était plus de faire retentir le tambour!
 
-Dès le premier coup, Wang Lin avait ressenti l'appel du stade d'Ascendant! Il avait touché la frontière de l'Ascension!
+C'est à l'instant où le tambour venait de transmettre son Dao que Wang Lin ressentit, pour la première fois, l'appel du stade d'Ascendant! Il avait touché la frontière de l'Ascension!
 
 « Je veux... l'Ascension! » Ses yeux restèrent clos, mais tout son corps était empreint d'une confiance absolue!
 

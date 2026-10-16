@@ -20,9 +20,9 @@ Wang Lin leva sa main droite et la pressa vers le bas, puis s'écria: « Brasier
 
 Les flammes environnantes foncèrent vers l'homme d'âge mûr au centre. Durant ce processus, les flammes semblèrent se transformer en d'innombrables dragons de feu, porteurs d'une vague de chaleur dévastatrice, tentant de dévorer l'homme d'âge mûr.
 
-Le regard de l'homme d'âge mûr devint sérieux et glacial. Il lâcha la lance qu'il tenait, laquelle se brisa aussitôt, ses fragments orbitant autour de lui. Simultanément, il pressa son index droit contre sa main et la lumière rouge émanant de ses yeux commença à s'intensifier.
+Le regard de l'homme d'âge mûr devint sérieux et glacial. Il lâcha la lance qu'il tenait, laquelle se brisa aussitôt, ses fragments orbitant autour de lui. Simultanément, il pressa son index droit contre son œil droit et la lumière rouge émanant de ses yeux commença à s'intensifier.
 
-« Je ne pensais pas que des individus ayant atteint un tel niveau de culture se cachent parmi les jeunes cultivateurs du Qi. Pas simple! » Alors qu'il parlait, son œil droit brilla d'un éclat rouge et un éclair de foudre rouge jaillit instantanément. À l'apparition de cet éclair, une aura froide et monstrueuse se propagea et fonça vers Wang Lin.
+« Je ne pensais pas que des individus ayant atteint un tel niveau de culture se cachent parmi les jeunes cultivateurs du Qi. Pas simple! Tu mérites que je déploie le Royaume Ji! » Alors qu'il parlait, son œil droit brilla d'un éclat rouge et un éclair de foudre rouge jaillit instantanément. À l'apparition de cet éclair, une aura froide et monstrueuse se propagea et fonça vers Wang Lin.
 
 Sous cette aura glaciale, tandis que l'éclair rouge progressait, les flammes sur son passage semblèrent s'éteindre, laissant derrière elles une longue traînée alors qu'il fonçait vers Wang Lin.
 
@@ -52,7 +52,7 @@ Tout cela parut extrêmement lent à Wang Lin, mais en réalité, la scène s'é
 
 « Dangereux! Cela est bien digne du Seigneur Céleste Qing Shui. Le Domaine Ji est effectivement époustouflant, et ce vieil homme n'a pas tout planifié pour rien. Hélas, je n'ai pu intervenir dans mon propre corps et j'ai failli voir mes plans échouer. Je ne pensais pas que le Seigneur Céleste Qing Shui posséderait encore une telle force après avoir été scellé durant tant d'années! » La voix fatiguée du vieil homme résonna dans l'esprit de Wang Lin.
 
-À cet instant, la boule de feu se contracta rapidement jusqu'à n'atteindre plus que dix pieds de large avant de s'effondrer. Cela provoqua une explosion de toute la puissance condensée, décuplant sa force.
+À cet instant, la boule de feu se contracta rapidement jusqu'à n'atteindre plus que 3,3 mètres de large avant de s'effondrer. Cela provoqua une explosion de toute la puissance condensée, décuplant sa force.
 
 Pendant un instant, ce fut comme si le monde entier était enveloppé par la lumière des flammes. On pouvait voir l'éclat du brasier colorer le ciel, même à une grande distance.
 
@@ -60,7 +60,7 @@ Cette lumière se propagea partout, et la silhouette de Wang Lin au cœur de cet
 
 L'excitation dans les yeux de Shengong Hu atteignit son paroxysme. Il regarda la silhouette de Wang Lin et s'écria: « C'est là la véritable force de mon seigneur. Ma prédiction n'était pas erronée! »
 
-Zhan Konglie se tenait dans le vide. Bien que les flammes fussent loin, il pouvait encore en ressentir la chaleur. Il était tout aussi exalté en contemplant le brasier. L'envie de faire de même que Shengong Hu lui traversa à nouveau l'esprit.
+Zhan Konglie se tenait dans le vide. Bien que les flammes fussent loin, il pouvait encore en ressentir la chaleur. Il était tout aussi exalté en contemplant le brasier. La même pensée que celle de Shengong Hu lui revint à l'esprit.
 
 « La culture de mon Aîné est insondable. Il est évident qu'il réprimait sa culture au stade Corporel Yang auparavant, et qu'elle a maintenant augmenté de façon incalculable. De plus, sa force actuelle ne doit pas être sa limite! »
 
@@ -76,4 +76,4 @@ Tang Yanfeng resta stupéfait, les yeux rivés sur la silhouette au sein des fla
 
 C'est alors qu'une voix grave résonna.
 
-« Ne pas mourir face au Domaine Ji... vous êtes très fort! » Une statue apparut au milieu des flammes. Lorsqu'elle se brisa, un jeune homme en sortit. Il était extrêmement beau, mais son expression trahissait une pointe de malice.
+« Ne pas mourir face au Domaine Ji... vous êtes très fort! » Une statue apparut au milieu des flammes. Lorsqu'elle se brisa, un jeune homme en sortit. Il était extrêmement beau, mais une légère aura maléfique flottait autour de lui.

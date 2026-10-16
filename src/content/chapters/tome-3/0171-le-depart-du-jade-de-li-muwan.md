@@ -22,7 +22,7 @@ En état d'alerte maximale, il dissimulait sa lame de cristal parmi les débris 
 
 Il progressa lentement vers le centre de la zone calme. De sa position actuelle, s'il regardait sur le côté, il pourrait tracer une ligne droite jusqu'à l'endroit où les pierres avaient disparu précédemment.
 
-Soudain, Wang Lin se sentit encore plus sur le qui-vive. Après avoir parcouru quelques pas, son sens divin lui comunica un sentiment de danger imminent. Sans la moindre hésitation, il recula brusquement et utilisa le talisman de niveau Âme Naissante pour ériger un écran de lumière devant lui.
+Soudain, Wang Lin se sentit encore plus sur le qui-vive. Après avoir parcouru quelques pas, son sens divin lui communiqua un sentiment de danger imminent. Sans la moindre hésitation, il recula brusquement et utilisa le talisman de niveau Âme Naissante pour ériger un écran de lumière devant lui.
 
 Au moment même où il reculait, deux arcs de lumière apparurent là où il se tenait une seconde auparavant. Ces deux arcs se rejoignirent pour former l'image d'une immense gueule béante.
 
@@ -64,7 +64,7 @@ Au moment où il lança le jade, les gueules environnantes s'ouvrirent totalemen
 
 L'anneau de lumière continua de vaciller tandis que le dragon tournait autour de Wang Lin. Ce dernier bondit et força le passage dans l'interstice entre deux des gueules.
 
-Tout au long du processus, le dragon continuait de rugir alors que sa silhouette devenait de plus en plus évanescente. Grâce à cette charge, Wang Lin parcourut les dix derniers kilomètres sans s'arrêter. De nombreuses gueules s'ouvrirent sur son passage, mais elles furent toutes repoussées par le dragon vert qui l'entourait.
+Tout au long du processus, le dragon continuait de rugir alors que sa silhouette devenait de plus en plus évanescente. Grâce à cette charge, Wang Lin parcourut les cinq derniers kilomètres sans s'arrêter. De nombreuses gueules s'ouvrirent sur son passage, mais elles furent toutes repoussées par le dragon vert qui l'entourait.
 
 Une fois la zone calme totalement quittée, le dragon était sur le point de se dissiper. Wang Lin envoya rapidement quelques sceaux, transformant le dragon en un gaz vert qu'il renvoya dans le jade blanc.
 
@@ -88,7 +88,7 @@ Il poussa un soupir de regret et s'élança vers l'anneau de lumière. Cependant
 
 Wang Lin fut surpris. Il ne pouvait plus avancer; une force puissante semblait faire obstacle à sa progression. Ses yeux brillèrent alors qu'il fixait ce motif concave. Cette cavité était juste assez grande pour accueillir une pierre spirituelle de qualité supérieure.
 
-Il recula immédiatement. Au même instant, le motif disparaquit et les éclairs violets retournèrent au sein de l'anneau de lumière.
+Il recula immédiatement. Au même instant, le motif disparut et les éclairs violets retournèrent au sein de l'anneau de lumière.
 
 Il tenta l'expérience plusieurs fois, et le motif réapparut à chaque tentative. Wang Lin commença à réfléchir. Ses yeux étincelèrent tandis qu'il observait la scène un long moment avant de faire demi-tour pour s'élever davantage.
 

@@ -14,7 +14,7 @@ Sur la cinquième couche, Wang Lin remarqua trois Arbres de Réincarnation, au s
 
 Le regard de Wang Lin se glaça, puis il se téléporta vers l'un d'eux.
 
-Cependant, dès qu'il apparut près de l'Arbre de Réincarnation, son expression changea et il disparut. Lorsqu'il réapparut, il se trouvait à mille pieds de là.
+Cependant, dès qu'il apparut près de l'Arbre de Réincarnation, son expression changea et il disparut. Lorsqu'il réapparut, il se trouvait à 330 mètres de là.
 
 Les plantes semblables à des algues avaient commencé à bouger dès son apparition, pour finir par s'entrechoquer à l'endroit où Wang Lin se tenait précédemment.
 
@@ -24,11 +24,11 @@ Ces figures étaient entièrement composées de plantes et dégageaient une aura
 
 « Étranger, quitte cet endroit! » Une voix sans genre s'échappa de la bouche de ces plantes et résonna dans toute la couche.
 
-Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la culture d'un cultivateur de l'Âme Naissante. N'ayant pas le temps de les affronter, il agita la main et l'Étendard des Mille Milliards d'Âmes apparut dans sa paume.
+Les yeux de Wang Lin devinrent froids. Chacune de ces créatures possédait la culture d'un cultivateur de l'Âme Naissante. N'ayant pas le temps de les affronter, il agita la main et l'Étendard de l'Âme au Milliard d'Âmes apparut dans sa paume.
 
 Wang Lin murmura: « Âmes, dispersez-vous! »
 
-Les âmes surgirent une à une pour encercler l'étendard. L'Étendard des Mille Milliards d'Âmes contenait un peu plus de 600 millions de fragments d'âmes et 26 âmes primaires, dont celle de Du Tian.
+Les âmes surgirent une à une pour encercler l'étendard. L'Étendard de l'Âme au Milliard d'Âmes contenait un peu plus de 600 millions de fragments d'âmes et 26 âmes primaires, dont celle de Du Tian.
 
 Ces fragments d'âmes ne pouvaient former, une fois fusionnés, ni un cultivateur Ascendant du stade avancé, ni même du stade intermédiaire. Ils pouvaient toutefois se fondre pour créer un cultivateur Ascendant du stade initial.
 
@@ -50,7 +50,7 @@ Sans marquer de pause, Wang Lin chargea vers l'Arbre de Réincarnation et le poi
 
 L'Arbre de Réincarnation s'effondra instantanément, et le shaman à huit feuilles qui trônait au sommet cracha une bouchée de sang avant de mourir.
 
-Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard des Mille Milliards d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres shamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
+Ce processus se poursuivit tandis que Wang Lin guidait l'âme Ascendante et l'Étendard de l'Âme au Milliard d'Âmes à travers la cinquième couche, balayant tout sur son passage. Les deux autres shamans à huit feuilles qui tentaient de guérir furent également exécutés; il raffina leurs corps et rangea leurs crânes.
 
 Wang Lin n'éprouvait aucune pitié pour le Clan des Immortels Délaissés. Il vola rapidement vers la sixième couche, tel un démon massacrant chaque membre du clan qu'il croisait sur sa route.
 
@@ -62,7 +62,7 @@ Wang Lin traversa la septième couche, la huitième... pour atteindre directemen
 
 Arrivé à la dixième couche, l'âme Ascendante s'effondra en de faibles fragments d'âmes. Ils retournèrent dans l'étendard et ne purent plus être invoqués.
 
-Wang Lin rangea l'Étendard des Mille Milliards d'Âmes. En chemin, il avait pu étudier l'artefact. Bien que l'âme Ascendante fût puissante, sa durée était trop courte et une différence de puissance subsistait par rapport à un véritable cultivateur Ascendant.
+Wang Lin rangea l'Étendard de l'Âme au Milliard d'Âmes. En chemin, il avait pu étudier l'artefact. Bien que l'âme Ascendante fût puissante, sa durée était trop courte et une différence de puissance subsistait par rapport à un véritable cultivateur Ascendant.
 
 De plus, chaque utilisation endommageait considérablement les fragments d'âmes. C'était la raison pour laquelle Du Tian ne s'en servait que pour intimider ses adversaires plutôt que pour combattre.
 
@@ -72,7 +72,7 @@ Sans cette âme Ascendante, Wang Lin aurait été stoppé à la sixième couche.
 
 Même le Clan des Immortels Délaissés n'aurait jamais imaginé qu'un cultivateur Ascendant puisse se frayer un chemin jusqu'au cœur de leur demeure.
 
-Après tout, hormis Yunque Zi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhuque Zi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte de l'Éclat de Terre était gravement blessé et se remettait dans un lieu secret.
+Après tout, hormis Yunque Zi, il n'y avait que trois cultivateurs Ascendants sur la planète. Zhuque Zi se trouvait au Mont Suzaku, Chu Yunfei avait fui la planète, et le dernier Ascendant de la Secte de la Porte de la Terre était gravement blessé et se remettait dans un lieu secret.
 
 S'il n'y avait pas eu de cultivateurs Ascendants, les défenses préparées pour la Nécropole Immortelle auraient suffi à repousser toute intrusion.
 

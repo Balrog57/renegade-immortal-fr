@@ -62,7 +62,7 @@ Les pupilles du vieil homme en robe blanche se rétractèrent brusquement, tandi
 
 L'expression de Wang Lin demeura impassible alors qu'il saisissait la hache fendant les cieux et la abattait avec la rapidité de l'éclair.
 
-Un rayon d'énergie de hache, long de cent pieds, s'abattit sur la formation, accompagné de plusieurs boules de foudre.
+Un rayon d'énergie de hache, long de trente-trois mètres, s'abattit sur la formation, accompagné de plusieurs boules de foudre.
 
 Le fracas fut si violent que même les habitants de la vallée purent l'entendre distinctement.
 
@@ -108,7 +108,7 @@ La zone entourant la formation fut extirpée du sol par une main invisible et so
 
 Des vagues de terre et de poussière furent projetées, recouvrant immédiatement les environs.
 
-Lorsque le nuage de poussière sembla retomber, on put voir que l'étendue de cinq kilomètres flottait à plusieurs dizaines de pieds du sol, tandis qu'une quantité massive de terre s'en écaillait.
+Lorsque le nuage de poussière sembla retomber, on put voir que l'étendue de cinq kilomètres flottait à une centaine de mètres du sol, tandis qu'une quantité massive de terre s'en écaillait.
 
 Un bassin gigantesque venait de surgir au sol!
 

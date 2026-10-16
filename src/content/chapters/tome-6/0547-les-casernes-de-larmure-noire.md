@@ -78,7 +78,7 @@ La porte fut ouverte. Treize et Hu Pao entrèrent accompagnés d'un autre homme.
 
 Son regard se posa immédiatement sur Wang Lin, assis sur le lit. Après l'avoir examiné, il joignit les mains et dit: « Salutations, Commandant Wang! »
 
-Wang Lin effleura sa sacoche de stockage et un jeton vert apparut rapidement dans sa main. Il lança le jeton en avant.
+Wang Lin effleura sa sacoche de stockage et un jeton couleur bronze apparut rapidement dans sa main. Il lança le jeton en avant.
 
 L'intendant de l'armée rattrapa le jeton, l'examina attentivement, hocha la tête et le lui rendit. Puis, il se mordit la lèvre et traça une forme dans les airs. Rapidement, une formation rouge sang se matérialisa. Elle semblait extrêmement complexe, mais Wang Lin parvint à en déchiffrer une partie.
 
@@ -106,13 +106,13 @@ Son visage devint livide. S'il n'avait pas eu à faire face à la présence de l
 
 Wang Lin retira sa main droite de l'épaule de Hu Pao et fit un pas en avant. Un filament d'énergie spirituelle céleste pénétra le corps de Treize et y circula une fois. Ce dernier sentit son corps s'alléger, ses blessures se résorbant quelque peu.
 
-Après cela, Wang Lin observa les environs. Il s'agissait d'une caserne construite en pierre noire, s'étendant sur environ cinquante kilomètres de large. Aux limites de la caserne se dressaient des murs de plusieurs dizaines de pieds de haut. Des fluctuations d'énergie spirituelle démoniaque émanaient de ces murs, signe que des sorts de renforcement les protégeaient.
+Après cela, Wang Lin observa les environs. Il s'agissait d'une caserne construite en pierre noire, s'étendant sur environ cinquante kilomètres de large. Aux limites de la caserne se dressaient des murs d'une centaine de mètres de haut. Des fluctuations d'énergie spirituelle démoniaque émanaient de ces murs, signe que des sorts de renforcement les protégeaient.
 
-Wang Lin était apparu au centre des casernes. À trente mètres devant lui, des rangées de soldats démons en armure se tenaient droits. Ils dégageaient tous des filaments d'aura noire, tels des dieux démons!
+Wang Lin était apparu au centre des casernes. À trois cent trente mètres devant lui, des rangées de soldats démons en armure se tenaient droits. Ils dégageaient tous des filaments d'aura noire, tels des dieux démons!
 
 Mille soldats démons composaient un régiment; actuellement, dix régiments entouraient Wang Lin. Une puissante vague d'intention de tuer se propagea instantanément.
 
-L'intention de tuer de dix mille hommes est une chose que les mortels ne peuvent imaginer. D'autant plus que ces soldats démons possédaient tous au moins trente rangs d'énergie spirituelle, et certains dépassaient même les cent rangs.
+L'intention de tuer de dix mille hommes est une chose que les mortels ne peuvent imaginer. D'autant plus que ces soldats démons possédaient tous au moins trente rangs d'énergie spirituelle, et certains dépassaient même plusieurs centaines de rangs.
 
 En outre, ces guerriers étaient tous endurcis par les combats et avaient semé la mort à maintes reprises. À force de tueries, cette intention de tuer s'était gravée jusque dans leurs os.
 

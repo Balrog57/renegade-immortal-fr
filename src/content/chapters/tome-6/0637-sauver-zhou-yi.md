@@ -10,11 +10,11 @@ Zhou Yi et Wang Lin n'entretenaient pas de relation profonde, mais leur bref ins
 
 Un homme si épris d'une femme qu'il préférait brûler son propre esprit originel plutôt que de la laisser partir. Son infatuation n'avait ému personne. Cependant, la clarté qui émanait de ses yeux lorsqu'il brûla son esprit originel aurait bouleversé quiconque en serait témoin.
 
-Il avait offert un trésor aussi précieux qu'un Cristal Ascendant pour que Wang Lin ne puisse que garder le cadavre féminin...
+Il avait offert un trésor aussi précieux qu'un Cristal Ascendant pour que Wang Lin veille sur le cadavre féminin...
 
 C'était une tâche si simple, et pourtant, c'était tout ce qui importait à ses yeux avant de mourir.
 
-Puis Zhou Yi devint l'esprit de l'épée de la Rain Celestial Sword, mais l'âme résiduelle formée par son infatuation s'évanouit et cessa d'exister... À cet instant, Zhou Yi entendit un bruit, comme si le monde entier se brisait devant lui.
+Puis Zhou Yi devint l'esprit de l'Épée Céleste de la Pluie, mais l'âme résiduelle formée par son infatuation s'évanouit et cessa d'exister... À cet instant, Zhou Yi entendit un bruit, comme si le monde entier se brisait devant lui.
 
 Son cœur mourut et son énergie d'épée perdit toute vitalité. Utilisant son corps comme esprit de l'épée, il traqua Ling Tianhou à travers le vide et jura de le tuer! Lui, à cet instant précis, cherchait la mort car son unique attachement à la vie s'était envolé...
 
@@ -38,7 +38,7 @@ Cependant, le Sens Divin de Ling Tianhou était trop puissant! Le bouclier form�
 
 À cet instant, une lueur de détermination brilla dans les yeux de Wang Lin. Il savait parfaitement qu'il ne devait pas avancer en ce moment, mais s'il reculait, il n'aurait plus jamais l'occasion de sauver Zhou Yi.
 
-Dans la vie d'un homme, il y a des choses qu'il doit faire. Si on ne les fait pas, alors même si l'on vit pendant des dizaines de milliers d'années, on ne verra en regardant en arrière que du chaos!
+Dans la vie d'un homme, il y a des choses qu'il doit faire. Si on ne les fait pas, alors même si l'on vit dix mille ans, on ne verra en regardant en arrière que du chaos!
 
 La détermination de Wang Lin se mua en résolution et il fit un autre pas. À cet instant, l'intention d'épée issue du Sens Divin de Ling Tianhou se referma sur lui.
 
@@ -62,7 +62,7 @@ Il dévora le Sens Divin de Ling Tianhou, puis une aura violente explosa en lui.
 
 À cet instant précis, l'esprit originel de Wang Lin trembla en percevant l'instabilité de l'âme démoniaque. Sans hésiter, il projeta un fragment de Sens Divin dans l'âme démoniaque pour activer l'empreinte. Bien que celle-ci ne fût pas stable, elle avait été gravée durant les cent dernières années.
 
-Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Le son était étouffé, comme quelqu'un récitant un sortilège. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en une brume noire et perdant sa consistance solide. Wang Lin la remit rapidement dans sa sacoche de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de cent pieds!
+Une fois activée, l'âme démoniaque fut immédiatement aspirée dans le corps de Wang Lin. Le son était étouffé, comme quelqu'un récitant un sortilège. Même l'armure démoniaque entourant Wang Lin sembla affectée, se transformant en une brume noire et perdant sa consistance solide. Wang Lin la remit rapidement dans sa sacoche de rangement. Il fit aussitôt un autre pas, et cette fois, il avança de trente-trois mètres!
 
 Cependant, un troisième Sens Divin, encore plus intense que les précédents, jaillit des profondeurs de la brèche. Il gronda comme le tonnerre et semblait même porter la voix de Ling Tianhou.
 
@@ -110,7 +110,7 @@ Les couloirs au fond de l'Abîme des Marées formaient un carré avec un trou no
 
 Une épée massive était plantée à mi-chemin dans le mur d'un couloir. Au moment où l'onde sonore atteignit l'épée, celle-ci se desserra légèrement.
 
-L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Cupidité et les disciples de la Secte de l'Épée Da Lou étaient piégés, Cupidité ouvrit soudainement les yeux, le regard brillant.
+L'onde se propagea loin en résonnant dans le corridor. À cet instant, à la sortie du Pays des Démons de Feu, là où Cupidité et les disciples de la Secte de l'Épée Da Lou étaient piégés par les bêtes moustiques et le brouillard noir, Cupidité ouvrit soudainement les yeux, le regard brillant.
 
 « L'aura de Ling Tianhou! Serait-il arrivé plus tôt... Non, bien que cette aura appartienne à Ling Tianhou, ce n'en est qu'une partie... En plus de la sienne, il y a une autre aura... Cette seconde aura m'est inconnue, mais pour apparaître à un moment pareil, serait-ce à cause du jeton... »
 

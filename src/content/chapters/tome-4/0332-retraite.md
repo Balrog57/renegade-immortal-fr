@@ -62,7 +62,7 @@ Après un long moment, Wang Lin porta délicatement Li Muwan jusqu'à son lit. I
 
 Une fois dehors, son expression s'assombrit instantanément.
 
-Sept personnes étaient assises à l'extérieur pour l'attendre. Outre les deux Grands Anciens au stade de l'Âme Naissante tardif, Liu Fei et Song Qing, il y avait Ouyang Zi et deux autres anciens de l'Âme Naissante ayant atteint ce stade au cours des cent dernières années.
+Sept personnes étaient assises à l'extérieur pour l'attendre. Outre Liu Fei et Song Qing, ainsi que les deux Grands Anciens au stade de l'Âme Naissante tardif, il y avait Ouyang Zi et deux autres anciens de l'Âme Naissante ayant atteint ce stade au cours des cent dernières années.
 
 Dès que Wang Lin sortit, les sept hommes ouvrirent les yeux et se levèrent. Aucun n'osait respirer. Les souvenirs de ses actes passés les hantaient encore, et le voilà qui réapparaissait, plus puissant que jamais. À leurs yeux, Wang Lin était une figure terrifiante.
 
@@ -70,7 +70,7 @@ Dès que Wang Lin sortit, les sept hommes ouvrirent les yeux et se levèrent. Au
 
 Même Liu Fei et ses compagnons étaient sous le choc; leurs Âmes Naissantes en tremblaient. Seuls les deux Grands Anciens de l'Âme Naissante tardif parvinrent à garder leur calme face à la voix de Wang Lin.
 
-L'un des Grands Anciens soupira et dit: « Le Maître de la secte... Lady Wan Er a tenté d'atteindre le stade de l'Âme Naissante trois fois au cours des cent dernières années, et elle a échoué à chaque fois. Son corps ne peut plus supporter cela, surtout depuis sa dernière tentative il y a trente ans, où elle a failli mourir... » Cet homme était celui qui s'était interposé entre Li Muwan et Zhan Bai pour la protéger.
+L'un des Grands Anciens soupira et dit: « Le Maître de la secte... Wan Er a tenté d'atteindre le stade de l'Âme Naissante trois fois au cours des cent dernières années, et elle a échoué à chaque fois. Son corps ne peut plus supporter cela, surtout depuis sa dernière tentative il y a trente ans, où elle a failli mourir... » Cet homme était celui qui s'était interposé entre Li Muwan et Zhan Bai pour la protéger.
 
 Wang Lin le regarda et dit: « Si je me souviens bien, ton nom de famille est Lu? »
 
@@ -80,11 +80,11 @@ Les gens comme lui, bloqués au stade de l'Âme Naissante tardif depuis si longt
 
 Wang Lin réfléchit un instant avant de dire: « Même les pilules sont inutiles... »
 
-Lu Fei soupira secrètement. Song Qing, à ses côtés, ajouta: « Maître de la secte, Lady Wan Er a déjà pris énormément de pilules, mais... »
+Lu Fei soupira secrètement. Song Qing, à ses côtés, ajouta: « Maître de la secte, Wan Er a déjà pris énormément de pilules, mais... »
 
 Wang Lin leva la tête. Il avait déjà une intuition. Ses yeux, empreints de confusion, murmurèrent: « Continuez. »
 
-Song Qing serra les dents et dit: « Seulement, Lady Wan Er a vécu bien plus longtemps qu'une cultivatrice du stade de la Formation du Noyau ne le devrait. Même avec des techniques défiant le ciel, il sera difficile de la sauver, à moins qu'elle ne parvienne à atteindre le stade de l'Âme Naissante. »
+Song Qing serra les dents et dit: « Seulement, Wan Er a vécu bien plus longtemps qu'une cultivatrice du stade de la Formation du Noyau ne le devrait. Même avec des techniques défiant le ciel, il sera difficile de la sauver, à moins qu'elle ne parvienne à atteindre le stade de l'Âme Naissante. »
 
 Wang Lin songea. En soignant le corps de Wan Er, il avait remarqué une aura mortelle omniprésente. C'était comme une lampe dont l'huile s'épuisait. On ne pouvait rien y faire; c'était le signe que la vie touchait à sa fin.
 
@@ -100,7 +100,7 @@ Quant à Ouyang Zi, personne ne craignait de trahison de sa part; cet homme ne p
 
 Les visages des deux nouveaux anciens étaient livides. L'un d'eux jura immédiatement sur les cieux, tandis que l'autre comprit la situation et fit de même.
 
-Une pointe d'intention meurtrière apparut dans les yeux de Lu Fei. Il regarda Tie Yan et Tie Tan, qui lui répondirent par un léger hochement de tête.
+Une pointe d'intention meurtrière apparut dans les yeux de Lu Fei. Il regarda Tie Yan, qui lui répondit par un léger hochement de tête.
 
 Lu Fei laissa échapper un rire et acquiesça: « Très bien. Vous deux, suivez-moi. J'ai quelques conseils pour les cultivateurs de l'Âme Naissante. J'espère qu'ils vous seront utiles. »
 
@@ -126,6 +126,6 @@ Dans l'une des vallées, Wang Lin frappa son sac de rangement et une pagode appa
 
 Ce lieu était l'un des points d'accumulation de l'énergie Yin dans Chu. Wang Lin se souvenait que Zhou Yi lui avait dit que cette pagode ne pouvait être placée que dans un endroit chargé d'énergie Yin.
 
-La pagode, faite de jade céleste, s'étendit instantanément dans les airs jusqu'à atteindre mille pieds de hauteur. Dans un fracas, elle se posa au fond de la vallée, et un anneau de lumière se propagea soudainement tout autour d'elle.
+La pagode, faite de jade céleste, s'étendit instantanément dans les airs jusqu'à atteindre environ 330 mètres de hauteur. Dans un fracas, elle se posa au fond de la vallée, et un anneau de lumière se propagea soudainement tout autour d'elle.
 
-Le domaine ascendant de Zhou Yi couvrait désormais toute la zone.
+Le domaine ascendant de Zhou Yi couvrait désormais toute la zone, dans un rayon de 50 kilomètres.

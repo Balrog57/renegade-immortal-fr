@@ -10,15 +10,15 @@ slug: zhan-konglie
 
 Bien qu'il paraisse calme, de puissantes ondes s'agitaient dans son cœur.
 
-« Le sommet du Royaume Ji correspond au stade de l'Âme Naissante. La personne que j'ai rencontrée était originaire de la planète des Cinq Éléments. Elle possédait le Royaume Ji et affirmait que c'était un don d'un ami défunt. En plus d'elle, c'est la deuxième fois que je rencontre le Royaume Ji! » Wang Lin commença à réfléchir tout en survolant de nombreux fragments à travers le vide, en direction du centre du royaume céleste.
+« Le sommet du Royaume Ji correspond au stade de l'Âme Naissante. La personne que j'ai rencontrée, Na Duo, était originaire de la planète des Cinq Éléments. Elle possédait le Royaume Ji et affirmait que c'était un don d'un ami défunt. En plus d'elle, c'est la deuxième fois que je rencontre le Royaume Ji! » Wang Lin commença à réfléchir tout en survolant de nombreux fragments à travers le vide, en direction du centre du royaume céleste.
 
 « Serait-il possible... qu'il existe réellement un moyen de faire évoluer le Royaume Ji...? » Le cœur de Wang Lin rata un battement et sa bouche se dessécha. Ces quelques centaines d'années passées au sein du Royaume Ji lui avaient permis de comprendre profondément la nature de ce pouvoir incroyable.
 
 « Ji, Dao, Shi... » Wang Lin commença à méditer. Il en savait trop peu pour pouvoir tout analyser. Il poussa un soupir et cessa d'y songer pour concentrer son esprit sur le Pavillon de la Collection.
 
-Traverser le vide aurait dû être une affaire fort ennuyeuse. Après tout, le vide était immense et la plupart des cultivateurs passaient le plus clair de leur temps sur les fragments; ils ne traversaient l'espace que pour passer d'un fragment à un autre. Cependant, au cours du demi-mois où Wang Lin et Li Yuan progressaient dans le vide, ils virent de nombreux rayons de lumière apparaître au loin et à proximité.
+Traverser le vide aurait dû être une affaire fort ennuyeuse. Après tout, le vide était immense et la plupart des cultivateurs passaient le plus clair de leur temps sur les fragments; ils ne traversaient l'espace que pour passer d'un fragment à un autre. Cependant, après environ un demi-mois de progression dans le vide, ils commencèrent à voir de nombreux rayons de lumière apparaître au loin et à proximité.
 
-Au début, Wang Lin n'y prêta pas attention, mais après un mois de progression, ils commencèrent à croiser de plus en plus de cultivateurs.
+Au début, Wang Lin n'y prêta pas attention, mais un mois plus tard, ils commencèrent à croiser de plus en plus de cultivateurs.
 
 La plupart d'entre eux étaient au stade de l'Ascendant, et occasionnellement, on pouvait apercevoir un cultivateur du stade Illusoire Yin.
 
@@ -62,7 +62,7 @@ L'expression de Li Yuan changea légèrement lorsqu'il leva sa main gauche pour 
 
 Seul Wang Lin resta d'un calme imperturbable; il esquissa un léger signe de tête vers le rayon qui approchait.
 
-Le rayon d'énergie s'arrêta à deux cents pieds de Wang Lin. La lumière se dissipa pour révéler un homme d'environ trente ans. Son visage était pâle, sans aucune pilosité, et il possédait une certaine beauté. Cependant, ses yeux de phénix jetaient un doute sur l'ensemble de son apparence, car ils dégageaient une grâce presque féminine.
+Le rayon d'énergie s'arrêta à soixante-six mètres de Wang Lin. La lumière se dissipa pour révéler un homme d'environ trente ans. Son visage était pâle, sans aucune pilosité, et il possédait une certaine beauté. Cependant, ses yeux de phénix jetaient un doute sur l'ensemble de son apparence, car ils dégageaient une grâce presque féminine.
 
 Vêtu d'une robe pourpre et dorée, il se tenait droit. Il joignit les mains en signe de salut devant Wang Lin avec une attitude extrêmement respectueuse: « Le junior Zhan Konglie salue le Senior! »
 
@@ -94,7 +94,7 @@ Fort de cette réflexion, lorsqu'il apprit que Shengong Hu avait été puni par 
 
 Cependant, après avoir traversé l'épreuve au lac du tonnerre, il s'était trouvé en accord avec Shengong Hu et en était même venu à éprouver de la tristesse. Dans son cœur, il éprouvait une véritable admiration pour ce dernier.
 
-Li Yuan fixait Wang Lin, hébété, l'esprit totalement embrumé. Il connaissait le nom de Zhan Konglie. Parmi la jeune génération, Zhan Konglie, Shengong Hu et Tan Yanfeng étaient considérés comme les trois génies du domaine Sud.
+Li Yuan fixait Wang Lin, hébété, l'esprit totalement embrumé. Il connaissait le nom de Zhan Konglie. Parmi la jeune génération, Zhan Konglie, Shengong Hu et Tang Yanfeng étaient considérés comme les trois génies du domaine Sud.
 
 Tous étaient des prodiges ayant atteint le stade Corporel Yang en un temps record.
 
@@ -102,7 +102,7 @@ Pourtant, voir Zhan Konglie appeler ainsi cet homme laissa Li Yuan sans voix.
 
 Wang Lin fronça les sourcils vers Zhan Konglie et demanda: « Où cours-tu avec une telle hâte? »
 
-En voyant ce froncement de sourcils, le cœur de Zhan Konglie trembla. Il se fit encore plus respectueux et répondit promptement: « Quatre fragments du Temple Céleste du Tonnerre émettent de puissantes fluctuations d'énergie spirituelle céleste. Cependant, leurs emplacements sont protégés par des restrictions qui ne peuvent être levées en peu de temps. Il est manifeste que dès que ces barrières tomberont, de grands trésors apparaîtront. Dès que le junior a eu vent de cela, j'ai décidé d'aller vérifier par moi-même. »
+En voyant ce froncement de sourcils, le cœur de Zhan Konglie trembla. Il se fit encore plus respectueux et répondit promptement: « Quatre fragments du Royaume Céleste du Tonnerre émettent de puissantes fluctuations d'énergie spirituelle céleste. Cependant, leurs emplacements sont protégés par des restrictions qui ne peuvent être levées en peu de temps. Il est manifeste que dès que ces barrières tomberont, de grands trésors apparaîtront. Dès que le junior a eu vent de cela, j'ai décidé d'aller vérifier par moi-même. »
 
 Wang Lin observa les environs. Il était évident que les autres cultivateurs avaient également découvert la nouvelle par divers moyens; c'était ce qui provoquait ce mouvement de masse.
 

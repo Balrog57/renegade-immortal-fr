@@ -48,7 +48,7 @@ Après avoir trouvé un espace dégagé, Wang Lin s'assit en position du lotus.
 
 *Dong!* Un coup de tambour profond résonna soudainement entre ciel et terre, semblant couvrir le rugissement du tonnerre. Un coup de tambour correspondait à une respiration!
 
-Près de deux cents cultivateurs étaient assis en méditation au sein du lac de tonnerre. Au premier coup de tambour, l'énergie électrique parut s'ébranler, s'élevant de trois pouces au-dessus du sol. Le tonnerre rugissait et d'innombrables éclairs zébrèrent l'espace, formant un véritable orage.
+Près de deux cents cultivateurs étaient assis en méditation au sein du lac de tonnerre. Au premier coup de tambour, l'énergie électrique parut s'ébranler, s'élevant de dix centimètres au-dessus du sol. Le tonnerre rugissait et d'innombrables éclairs zébrèrent l'espace, formant un véritable orage.
 
 Au cœur de la tempête, l'esprit de la foudre s'anima et libéra toute sa puissance, provoquant un bouleversement spectaculaire dans le lac.
 
@@ -62,7 +62,7 @@ C'était une sensation d'un confort absolu. Il ferma les yeux, ne daignant même
 
 *Dong!* Le second coup retentit, et le tonnerre devint plus impétueux encore. L'esprit de la foudre poussa un rugissement et commença à brandir un fouet de tonnerre. Chaque fois qu'il frappait le corps d'un cultivateur, celui-ci en était secoué!
 
-Le tambour résonna. Le troisième coup, le quatrième... jusqu'au dixième, moment où la puissance du lac atteignit un degré alarmant. Les innombrables éclairs s'étaient mués en colonnes de trente pieds de haut, engloutissant tout sur leur passage.
+Le tambour résonna. Le troisième coup, le quatrième... jusqu'au dixième, moment où la puissance du lac atteignit un degré alarmant. Les innombrables éclairs s'étaient mués en colonnes de dix mètres de haut, engloutissant tout sur leur passage.
 
 Immédiatement, un cultivateur du Domaine Sud devint livide et cracha du sang. Comme frappé par une force colossale, son corps fut projeté hors de la zone sous l'impact d'une masse de tonnerre. Il était gravement blessé.
 
@@ -72,7 +72,7 @@ La brume autour de Xu Ting se fit plus dense, comme pour isoler le tonnerre. Son
 
 Dans le ciel, l'un des messagers leva la main et frappa le tambour noir. Le onzième coup résonna soudainement dans le fracas de la foudre.
 
-Tout le tonnerre du lac sembla s'agiter pour se concentrer en un seul point. Un instant plus tard, un serpent de 3,3 kilomètres de long prit forme. C'était un serpent, mais il avait l'allure d'un dragon, sculpté dans la foudre pure. Son corps entier dégageait une pression écrasante!
+Tout le tonnerre du lac sembla s'agiter pour se concentrer en un seul point. Un instant plus tard, un serpent de 330 mètres de long prit forme. C'était un serpent, mais il avait l'allure d'un dragon, sculpté dans la foudre pure. Son corps entier dégageait une pression écrasante!
 
 C'était l'esprit du tonnerre!
 

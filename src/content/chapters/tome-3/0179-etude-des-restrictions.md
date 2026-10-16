@@ -20,7 +20,7 @@ Après avoir soigneusement inspecté les environs, Wang Lin avança. Peu de temp
 
 Le ciel était sombre, dégageant une sensation d'oppression, comme si un rocher géant pesait sur le cœur. Wang Lin traversa prudemment l'interstice entre deux restrictions avant de pousser un soupir de soulagement.
 
-Il regarda autour de lui. Un parcours de seulement trois 330 mètres lui avait pris plusieurs heures. Il devait s'assurer qu'aucun problème ne subsistait à chaque pas avant de le faire.
+Il regarda autour de lui. Un parcours de moins de cent mètres lui avait pris plusieurs heures. Il devait s'assurer qu'aucun problème ne subsistait à chaque pas avant de le faire.
 
 Il leva les yeux vers la montagne qui semblait infinie. Il se demanda combien d'années il lui faudrait pour atteindre le sommet s'il continuait à ce rythme.
 
@@ -30,7 +30,7 @@ S'il voulait vivre, il devait forcer le passage vers l'avant. Wang Lin réfléch
 
 Tout en bas de la montagne, là où apparaissaient les premières restrictions, il s'agenouilla et les étudia attentivement.
 
-Il s'agissait d'une étendue d'herbe large d'une douzaine de pieds. On trouvait de nombreuses plaques d'herbe semblables au pied de la montagne, mais elles se faisaient plus rares à mesure que l'on montait. À première vue, rien de spécial n'y apparaissait, mais en regardant de plus près, Wang Lin put voir que l'herbe suivait un ordre mystérieux.
+Il s'agissait d'une étendue d'herbe large de plusieurs centaines de pieds. On trouvait de nombreuses plaques d'herbe semblables au pied de la montagne, mais elles se faisaient plus rares à mesure que l'on montait. À première vue, rien de spécial n'y apparaissait, mais en regardant de plus près, Wang Lin put voir que l'herbe suivait un ordre mystérieux.
 
 Wang Lin examina méticuleusement chaque brin d'herbe. Une fois terminé, il enregistra ses observations sur une pierre de jade.
 
@@ -48,7 +48,7 @@ Les restrictions sont très différentes des formations. Les formations utilisen
 
 Les restrictions sont considérées comme une forme de formation, mais elles sont bien plus polyvalentes, car elles peuvent changer selon la volonté de leur utilisateur. Les restrictions ressemblent d'une certaine manière au Sens Divin.
 
-De puissants cultivateurs peuvent placer des restrictions par leur simple Sens Divin. Même après des centaines de milliers d'années, tant que le Sens Divin n'est pas détruit, ces restrictions resteront actives.
+De puissants cultivateurs peuvent placer des restrictions par leur simple Sens Divin. Même après des milliers d'années, tant que le Sens Divin n'est pas détruit, ces restrictions resteront actives.
 
 Parfois, même si l'utilisateur est mort, le Sens Divin au sein d'une restriction peut engendrer sa propre conscience et continuer à maintenir la barrière.
 
@@ -120,7 +120,7 @@ Wang Lin murmura pour lui-même: « Si quelqu'un apparaît derrière moi, il dev
 
 Désormais, quiconque entrerait dans cette restriction, peu importe ses actions, déclencherait sa seconde restriction. Avec cet ajout, il y avait de fortes chances que quelqu'un meure dans cette étendue herbeuse.
 
-Bien sûr, si l'on utilisait la même méthode que Wang Lin, la difficulté d'étudier la restriction augmenterait également.
+Bien sûr, si l'on utilisait la même méthode que Wang Lin, la difficulté d'étudier la restriction augmenterait également de plusieurs fois.
 
 Wang Lin regarda autour de lui avec un sourire glacial. Il se déplaça soudainement vers une autre plaque d'herbe pour en accroître la complexité. Il continua ainsi jusqu'à ce que chaque étendue ait été modifiée.
 
@@ -140,9 +140,9 @@ En réalité, il y a cinq cents ans, il avait obtenu un trésor lui permettant d
 
 Par conséquent, grâce à sa culture et à sa connaissance de l'épreuve de la glace, il l'avait traversée aisément avec le jeune homme.
 
-Quant au Chemin du Retour situé entre la première et la seconde épreuve, ce n'était pas un problème pour lui. Bien qu'il eût failli mourir lors de sa première visite, il maîtrisait désormais la Méthode de Culture Démoniaque des Six Désirs. La chose dont il craignait le moins était désormais ce qui jouait sur ses émotions, car il en avait longuement étudié les mécanismes.
+Quant au Chemin sans Retour situé entre la première et la seconde épreuve, ce n'était pas un problème pour lui. Bien qu'il eût failli mourir lors de sa première visite, il maîtrisait désormais la Méthode de Culture Démoniaque des Six Désirs. La chose dont il craignait le moins était désormais ce qui jouait sur ses émotions, car il en avait longuement étudié les mécanismes.
 
-Le Chemin du Retour n'était pour lui qu'un jeu d'enfant. S'il n'avait pas eu à protéger le jeune homme, cela ne lui aurait pris aucun temps.
+Le Chemin sans Retour n'était pour lui qu'un jeu d'enfant. S'il n'avait pas eu à protéger le jeune homme, cela ne lui aurait pris aucun temps.
 
 Bien que la protection d'autrui ait ralenti sa progression, le résultat restait inchangé.
 
@@ -172,7 +172,7 @@ Cependant, les restrictions sur la Montagne des Restrictions devenaient progress
 
 Par exemple, ce nuage n'était pas là il y a mille ans, mais il l'était maintenant, ce qui l'avait surpris.
 
-Quant à Wang Lin, après mille pieds, le nombre d'étendues d'herbe diminuait. Ce qu'il voyait désormais, c'étaient des roches noires. Wang Lin sortit son jade et commença à nouveau ses enregistrements.
+Quant à Wang Lin, après quelques centaines de pieds, le nombre d'étendues d'herbe diminuait. Ce qu'il voyait désormais, c'étaient des roches noires. Wang Lin sortit son jade et commença à nouveau ses enregistrements.
 
 La restriction sur cette roche était totalement différente de celle de l'herbe. Celle-ci était formée par le motif de mouvement des brins d'herbe.
 

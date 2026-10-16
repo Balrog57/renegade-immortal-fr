@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 164 - The Mysterious Corpse
 slug: le-corps-mystérieux
 ---
-Parmi les quatre grandes sectes, seule la Secte des Cadavres était revenue à Huo Fen après que le pays de culture de rang 4 soit intervenu pour éliminer les bêtes de feu.
+Parmi les quatre grandes sectes, le Sanctuaire du Dieu de la Guerre, la Secte Lou He et la Secte du Démon Maléfique étaient seules à rester sur le pic principal. Quant à la Secte des Cadavres, après un bref séjour initial, elle avait quitté la montagne dès que le pays de culture de rang 4 eut éliminé les bêtes de feu, pour regagner l'intérieur de Huo Fen.
 
 Ce mouvement déconcerta de nombreuses personnes. Bien que les bêtes de feu aient été nettoyées, l'énergie spirituelle y était devenue trop violente pour la culture. En conséquence, le pays entier était devenu une zone morte pour les cultivateurs.
 
@@ -126,7 +126,7 @@ Si les salles contenaient des matériaux de raffinage, il n'aurait pas hésité,
 
 Une pensée supplémentaire le traversa: le gaz noir entrant dans le corps de cet individu était identique à celui émis par les autres cadavres.
 
-Le visage de Wang Lin se remplit d'effroi. Il était désormais convaincu à 90 % que sa théorie était juste. Cette personne pratiquait une technique occulte en utilisant les cadavres des cent salles environnantes comme réserve.
+Le visage de Wang Lin se remplit d'effroi. Il était désormais convaincu à 90 % que sa théorie était juste. Cette personne pratiquait une technique occulte en utilisant les cadavres des centaines de salles environnantes comme réserve.
 
 Wang Lin commença à suspecter que cet individu n'était pas un membre du Sanctuaire du Dieu de la Guerre. Il est probable que le Sanctuaire ignore même son existence, sans quoi l'Ancien au visage rouge ne serait pas si nonchalant, et surtout, il n'aurait pas laissé Wang Lin seul ici.
 
@@ -184,4 +184,4 @@ Zhao Chuanliang faisait partie des cinq cultivateurs de l'Âme Naissante. Il se 
 
 Il hésita un moment avant de tendre la main, qui se transforma en un immense nuage de fumée noire s'élançant vers Wang Lin.
 
-Wang Lin ricana. Au lieu d'esquiver, il resta assis comme si de rien n'était. Alors que la fumée noire approchait, il sentit l'air glacial qu'elle dégageait. Juste avant qu'elle ne le touche, le visage de l'Ancien s'assombrit et il agita sa main droite, faisant disparaître la fumée sans laisser de trace.
+Wang Lin ricana. Au lieu d'esquiver, il resta assis comme si de rien n'était. Alors que la fumée noire approchait, il sentit l'air glacial qu'elle dégageait. Juste avant qu'elle ne le touche, le visage de l'Ancien s'assombrit et il agita sa main droite, faisant disparaître la fumée sans laisser de trace. L'onde de choc qui en résulta frappa Wang Lin, mais le talisman défensif ordinaire qu'il sortit de son sac la dissipa sans peine.

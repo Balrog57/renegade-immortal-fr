@@ -58,7 +58,7 @@ Tout cela se produisit en un instant; une rapidité incroyable. Tous les cultiva
 
 « C'est le Céleste du Tonnerre d'Allheaven, Xu Mu! » Quelqu'un reconnut immédiatement l'identité de Wang Lin.
 
-Le visage de Wang Lin restait de marbre. Il y avait environ une centaine de cultivateurs devant lui. Bien qu'ils fussent nombreux, il ne considérait aucun d'eux comme une menace! Autrefois, il aurait été impossible pour lui de faire face à de tels adversaires. Cependant, maintenant qu'il était devenu un Dieu Ancien Royal de 5 étoiles, tout était différent!
+Le visage de Wang Lin restait de marbre. Il y avait plusieurs centaines de cultivateurs devant lui. Bien qu'ils fussent nombreux, il ne considérait aucun d'eux comme une menace! Autrefois, il aurait été impossible pour lui de faire face à de tels adversaires. Cependant, maintenant qu'il était devenu un Dieu Ancien Royal de 5 étoiles, tout était différent!
 
 Wang Lin fit un pas, des ondulations apparurent sous ses pieds et il disparut.
 
@@ -74,7 +74,7 @@ Après avoir saisi l'âme originelle de cet homme, la silhouette de Wang Lin dis
 
 Un cultivateur au stade intermédiaire Scruteur du Nirvana, les yeux injectés de sang, hurla: « Formez une formation!! » Cependant, alors qu'il criait, son expression changea. Il se retourna brusquement, ouvrit la bouche et cracha un rayon de lumière rouge.
 
-Une longue épée se trouvait à l'intérieur de ce rayon, émettant un sifflement strident en fonçant vers l'avant. Des milliers de fragments d'âmes émanaient de l'arme. Les cris lugubres de ces âmes portèrent l'épée volante à son apogée!
+Une épée pas plus longue qu'un doigt se trouvait à l'intérieur de ce rayon, émettant un sifflement strident en fonçant vers l'avant. Des milliers de fragments d'âmes émanaient de l'arme. Les cris lugubres de ces âmes portèrent l'épée volante à son apogée!
 
 « Cette épée est excellente! » Une voix froide résonna de toutes parts. Wang Lin surgit du vide devant le cultivateur Scruteur du Nirvana. Sa main s'étira et se transforma instantanément en le bras massif d'un Dieu Ancien. Il saisit l'épée volante et la tira violemment vers lui.
 

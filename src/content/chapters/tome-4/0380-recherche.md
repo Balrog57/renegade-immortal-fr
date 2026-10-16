@@ -12,7 +12,7 @@ Le vieil homme cria: « Où est Liu Fulin? » Après un long moment, personne ne
 
 Liu Fulin était l'homme d'âge moyen qui avait été pris de cupidité.
 
-Quant aux trois autres, ils étaient des disciples internes de la Secte de la Raffination de l'Âme ainsi que des diacres de la secte extérieure.
+Quant aux trois hommes, ils étaient des disciples internes de la Secte de l'Affinement de l'Âme ainsi que des diacres de la secte extérieure.
 
 Les yeux de Wang Lin s'illuminèrent faiblement. Le vieil homme était au début du stade de l'Âme Naissante, tandis que les deux autres étaient tous deux au stade avancé de la Formation du Noyau.
 
@@ -24,13 +24,13 @@ Le jade se transforma en un rayon de lumière et s'envola vers la secte intérie
 
 La majorité des disciples de la secte extérieure furent surpris, mais certains s'assirent pour cultiver. Wang Lin était l'un d'eux.
 
-Il s'installa sur un arbre géant et se mit à cultiver.
+Il s'installa sur une grosse branche d'arbre et se mit à cultiver.
 
 Après l'arrivée du vieil homme, celui-ci scruta attentivement chacun des disciples de la secte extérieure.
 
 Plus tôt, lorsqu'il était entré dans la montagne avec ses compagnons de secte, ils avaient été terrifiés en réalisant que toute la veine spirituelle avait été épuisée. Lorsqu'ils s'étaient enfoncés dans la veine pour atteindre les gisements, les minerais s'étaient transformés en poussière au moindre contact. Cela se produisait lorsque l'énergie spirituelle était extraite trop brutalement.
 
-Tout cela était extrêmement étrange. Il n'avait jamais rien vu ni entendu de tel depuis la fondation de la Secte de la Raffination de l'Âme.
+Tout cela était extrêmement étrange. Il n'avait jamais rien vu ni entendu de tel depuis la fondation de la Secte de l'Affinement de l'Âme.
 
 Son regard balaya les disciples un par un, sans jamais s'arrêter sur Wang Lin. À ses yeux, Wang Lin n'était qu'au stade avancé de l'Établissement des Fondations; il n'était pas digne d'intérêt.
 
@@ -94,11 +94,11 @@ Le nombre de personnes au milieu augmentait progressivement; ils étaient désor
 
 Le responsable du troisième groupe jeta le disciple devant lui au centre et dit d'un ton lent: « Normalement, cela n'est réservé qu'aux disciples entrant dans la secte intérieure, mais aujourd'hui, nous l'appliquons à vous, les disciples extérieurs. Vous devriez donc vous en enorgueillir. »
 
-L'expression de Wang Lin resta impassible, mais son cœur fut troublé. Le Secte de la Raffination de l'Âme comptait tellement de disciples extérieurs aux intentions malveillantes que nul ne pouvait échapper à ce genre d'inspection.
+L'expression de Wang Lin resta impassible, mais son cœur fut troublé. La Secte de l'Affinement de l'Âme comptait tellement de disciples extérieurs aux intentions malveillantes que nul ne pouvait échapper à ce genre d'inspection.
 
 Quant au cultivateur au physique de boucher qui se trouvait initialement dans la grotte 743, Wang Lin ne s'inquiétait pas pour lui. Il avait déjà placé une restriction sur ce dernier. Bien que le niveau de culture de Wang Lin ait chuté, la complexité de ses restrictions n'était pas de nature à être perçue par ces cultivateurs de l'Âme Naissante.
 
-Aux yeux de Wang Lin, cet individu était assez intéressant. Bien que le boucher paraisse être au stade avancé de l'Établissement des Fondations, il se trouvait en réalité au stade pseudo-Formation du Noyau. Mais il n'était pas rare que les disciples extérieurs cachent leur véritable niveau de culture.
+Aux yeux de Wang Lin, cet individu était assez intéressant. Bien que le boucher paraisse être au stade avancé de l'Établissement des Fondations, il se trouvait en réalité au stade initial de la Formation du Noyau. Mais il n'était pas rare que les disciples extérieurs cachent leur véritable niveau de culture.
 
 « Toi, avance! » Le cultivateur en robe rouge du cinquième groupe désigna le boucher.
 
@@ -134,4 +134,4 @@ Wang Lin reçut une grotte dans une montagne légèrement plus petite à proximi
 
 « Ma culture est revenue au stade intermédiaire de l'Âme Naissante. Bien que l'absorption d'une veine spirituelle soit bénéfique, c'est bien trop dangereux. Si je continue, je risque d'attirer des cultivateurs de la Formation de l'Âme ou même des monstres de la Transformation de l'Âme. J'ai déjà attiré leur attention, je ne peux donc pas agir de manière trop ostentatoire. Cependant, en absorbant la veine, j'ai découvert qu'une veine spirituelle principale, bien plus vaste, se trouvait à proximité. La veine que j'ai consommée n'était qu'une branche. »
 
-« Cette veine principale doit se trouver sous la secte intérieure de la Secte de la Raffination de l'Âme. Si je peux m'y installer pour cultiver, je devrais pouvoir restaurer ma culture d'un seul coup. À ce moment-là, même si je suis découvert et qu'un cultivateur de la Transformation de l'Âme surgit, je serai encore capable de m'échapper. Dans le pire des cas, je déchirerai l'espace pour m'enfuir grâce à la boussole stellaire. » Wang Lin réfléchit encore. Il savait que la Secte de la Raffination de l'Âme était situé dans un pays de culture de rang 5, ce qui impliquait la présence de cultivateurs de la Transformation de l'Âme au sein de la secte. Après mûre réflexion, il prit sa décision.
+« Cette veine principale doit se trouver sous la secte intérieure de la Secte de l'Affinement de l'Âme. Si je peux m'y installer pour cultiver, je devrais pouvoir restaurer ma culture d'un seul coup. À ce moment-là, même si je suis découvert et qu'un cultivateur de la Transformation de l'Âme surgit, je serai encore capable de m'échapper. Dans le pire des cas, je déchirerai l'espace pour m'enfuir grâce à la boussole stellaire. » Wang Lin réfléchit encore. Il savait que la Secte de l'Affinement de l'Âme était située dans un pays de culture de rang 5, ce qui impliquait la présence de cultivateurs de la Transformation de l'Âme au sein de la secte. Après mûre réflexion, il prit sa décision.

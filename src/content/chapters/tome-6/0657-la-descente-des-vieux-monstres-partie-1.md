@@ -66,7 +66,7 @@ Il atterrit sur la roche et examina attentivement le réseau de transfert. Son �
 
 Des craquements immédiats retentirent alors que la foudre parcourait la roche. Puis, dans un fracas, elle s'effondra en gravats et fut aspirée par la force de succion.
 
-Sans cette grande roche, l'endroit devint semblable au reste du gouffre. Wang Lin saisit le parchemin et pénétra dans la fissure située à deux cents pieds de là.
+Sans cette grande roche, l'endroit devint semblable au reste du gouffre. Wang Lin saisit le parchemin et pénétra dans la fissure située à soixante-six mètres de là.
 
 Une fois à l'intérieur, Wang Lin fit un geste de la main et le parchemin fut inséré profondément dans la paroi. Ses yeux devinrent glacials; ses mains tracèrent de nombreux sceaux, et d'innombrables restrictions se déposèrent autour du parchemin.
 
@@ -82,7 +82,7 @@ L'expression de Wang Lin était sombre et ses mains s'agitaient encore plus rapi
 
 Ce processus de scellement dura plusieurs mois. Durant cette période, Wang Lin ne marqua aucun temps mort. Les innombrables sceaux finirent par former une barrière terrifiante.
 
-Après ces longs mois, Wang Lin recula d'un pas et s'envola vers le haut. Un éclat de froideur brilla dans ses yeux lorsqu'il frappa la fissure de sa main droite. La faille s'effondra instantanément, ensevelissant profondément le parchemin dans la grotte.
+Après ces longs mois, Wang Lin recula d'un pas et s'envola vers le haut. Un éclat de froideur brilla dans ses yeux lorsqu'il frappa la fissure de sa main droite. La faille, large d'environ 3,3 mètres, s'effondra instantanément, ensevelissant profondément le parchemin dans la grotte.
 
 De l'extérieur, rien n'était anormal. Personne ne saurait qu'une femme était enfermée ici dans un parchemin scellé.
 
@@ -102,7 +102,7 @@ Une fois cela achevé, Wang Lin retira le gardien céleste et attendit à nouvea
 
 Plusieurs mois passèrent avant que la fluctuation ne réapparaisse, pour ne trouver qu'un nouveau scellement total. Après la troisième tentative, Wang Lin réfléchit un instant et cessa d'attendre pour s'élancer vers les hauteurs.
 
-« La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, elle avait absorbé le sort du Troisième Ancêtre et avait acquis une certaine puissance. »
+« La femme dans le parchemin est probablement très puissante, mais elle est prisonnière de ce parchemin; je crains qu'elle n'ait jamais eu la moindre chance de s'échapper. Cependant, autrefois, elle avait absorbé la bête-talisman du Troisième Ancêtre et avait acquis une certaine puissance. »
 
 « Je ne l'ai pas inspectée, alors au fil des ans, elle a appris trop de mes secrets. À moins que ce ne soit dû aux circonstances particulières de l'Abîme des Marées, je crains qu'elle n'ait jamais parlé. Elle aurait plutôt attendu patiemment de recouvrer ses forces. »
 
@@ -140,6 +140,6 @@ Son bonheur était indescriptible. Le corps du moustique tremblait tandis qu'il 
 
 À cet instant, bien que tous les moustiques criaient en chœur, aucun ne put empêcher cette créature de s'élancer dans le vide.
 
-Alors qu'il s'envolait, Wang Lin remarqua immédiatement les vrombissements venant d'en haut. Il leva les yeux et vit la bête moustique qu'il n'avait pas vue depuis plus d'une décennie. En voyant Wang Lin, les yeux du moustique furent inondés de joie. Il tourna autour de lui en poussant des cris, tel un enfant retrouvant ses parents après une longue séparation.
+Alors qu'il s'envolait, Wang Lin remarqua immédiatement les vrombissements venant d'en haut. Il leva les yeux et vit la bête moustique qu'il n'avait pas vue depuis plusieurs décennies. En voyant Wang Lin, les yeux du moustique furent inondés de joie. Il tourna autour de lui en poussant des cris, tel un enfant retrouvant ses parents après une longue séparation.
 
 Il vola avec enthousiasme sous Wang Lin pour le porter vers le haut. Grâce au tourbillon du gardien céleste, Wang Lin s'échappa directement du gouffre. Au moment où il émergea, il laissa échapper un profond soupir de soulagement.

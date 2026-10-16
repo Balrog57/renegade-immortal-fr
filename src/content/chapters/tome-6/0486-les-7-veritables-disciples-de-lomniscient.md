@@ -28,7 +28,7 @@ Wang Lin réfléchit un instant, puis frappa son sac de stockage. Dans un éclat
 
 Le regard de Wang Lin était limpide lorsqu'il s'assit et dit: « Troisième Frère, je t'en prie, assieds-toi! »
 
-Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pour Wang Lin, puis une pour lui-même. Après avoir reposé la théière, il déclara: « Quand je t'ai rencontré la première fois, je n'aurais jamais imaginé que tu serais le maître de disciple honoraire dont nous avions parlé une fois. »
+Bai Wei esquissa un léger sourire en s'asseyant. Il versa d'abord une tasse pour Wang Lin, puis une pour lui-même. Après avoir reposé la théière, il déclara: « Quand je t'ai rencontré la première fois, je n'aurais jamais imaginé que tu serais le disciple honoraire dont Maître nous avait parlé une fois. »
 
 Wang Lin se contenta de sourire sans dire un mot.
 

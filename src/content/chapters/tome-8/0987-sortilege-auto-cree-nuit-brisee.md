@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 987 - Self Created Spell, Sundered Night
 slug: sortilege-auto-cree-nuit-brisee
 ---
-Liu Wen n'était à l'origine qu'un ancien cultivateur de l'ombre. Bien que talentueux, il ne se distinguait pas du commun des mortels. Pourtant, il laissa derrière lui le tout premier enregistrement de la Perception Divine Shi!
+Liu Wen n'était à l'origine qu'un cultivateur sans renom. Bien que talentueux, il ne se distinguait pas du commun des mortels. Pourtant, il laissa derrière lui le tout premier enregistrement de la Perception Divine Shi!
 
 Nul ne savait comment il avait atteint cet état de Perception Divine, ni combien de temps celui-ci avait duré. Était-ce un simple instant ou une éternité?
 
@@ -60,13 +60,13 @@ Les trois frères Chen flottaient dans les airs à cinq kilomètres du sommet. I
 
 « Cela fait un mois... » Maître Yi Long était très perplexe. Il fronça les sourcils et demanda: « Que cherche-t-il à comprendre? »
 
-Maître Yi Xing secoua la tête et répondit lentement: « Pour qu'un cultivateur du Nettoyage de Nirvana cherche une compréhension aussi longtemps, il doit s'agir d'un sort extrêmement puissant! »
+Maître Yi Xing secoua la tête et répondit lentement: « Pour qu'un cultivateur du Purificateur du Nirvana cherche une compréhension aussi longtemps, il doit s'agir d'un sort extrêmement puissant! »
 
 Maître Yi Chen réfléchit longuement avant de secouer la tête à son tour. « Je ne le pense pas. N'avez-vous pas remarqué l'absence de fluctuations d'énergie originelle ou de Sens Divin? Pourtant, nous ne pouvons pas nous approcher. Quelque chose se produit ici que nous ne comprenons pas. De plus, j'ai le sentiment qu'il est en train de comprendre le Dao! »
 
 « Comprendre le Dao! » Les yeux de Maître Yi Long s'illuminèrent. Après avoir observé un long moment, il acquiesça: « C'est fort probable! »
 
-Maître Yi Xing ajouta: « Bien qu'il n'y ait aucune énergie originelle, si quelqu'un s'approche à moins de trente mètres de lui, une force puissante le repousse après seulement trois pas! »
+Maître Yi Xing ajouta: « Bien qu'il n'y ait aucune énergie originelle, si quelqu'un pénètre dans un rayon de cinq kilomètres autour de lui, une force puissante le repousse après seulement trois pas! »
 
 « Quant à cette force qui nous empêche d'entrer, j'ai découvert qu'elle semble être créée par le monde lui-même. Lorsque j'ai tenté de m'approcher, c'était comme si je faisais face à une mer déchaînée », dit Maître Yi Long en fronçant les sourcils.
 
@@ -112,6 +112,6 @@ La Nuit Brisée était née du soleil s'élevant au-dessus de la mer!
 
 « Tuez-le et le sceau sera brisé! » Les yeux de Maître Vent Creux s'illuminèrent; il chargea au moment même où Wang Lin comprenait cette force.
 
-Cependant, alors qu'il franchissait la limite des cent pieds, l'expression de Maître Vent Creux changea radicalement. C'était comme s'il voyait quelque chose qu'il n'osait pas croire. Le choc et la peur envahirent son regard!
+Cependant, alors qu'il franchissait la limite des cinq kilomètres, l'expression de Maître Vent Creux changea radicalement. C'était comme s'il voyait quelque chose qu'il n'osait pas croire. Le choc et la peur envahirent son regard!
 
 « Ceci... Qu'est-ce que c'est que ça... »

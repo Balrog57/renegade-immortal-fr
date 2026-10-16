@@ -20,9 +20,9 @@ Plus de 3 700 brins d'énergie de massacre jaillirent telle une tempête. Alors 
 
 « Tuez! » Dans un cri, l'énergie de massacre dans sa main se condensa avec rapidité. Passant de plus de 3 700 brins à un seul, elle se mua en un dragon noir, un dragon de massacre!
 
-Les yeux de Wang Lin devinrent rouges. Non seulement il possédait une intention meurtrière, mais il avait aussi un cœur de massacre! Il n'était pas du genre à éprouver de l'hostilité envers les cieux, mais cela suffisait à faire de lui un génie de sa génération! Un véritable prodige!
+Les yeux de Wang Lin devinrent rouges. Non seulement il possédait une intention meurtrière, mais il avait aussi un cœur de massacre! Il n'était pas le premier à nourrir une intention de massacre envers les cieux, mais cela suffisait à faire de lui un génie de sa génération! Un véritable prodige!
 
-Wang Lin possédait cette personnalité capable de tout entreprendre. Peu importait que vous soyez les cieux ou le Dao des cieux. Si vous vouliez le tuer, alors il vous tuerait, qui que vous soyez!
+Wang Lin rendait toujours coup pour coup. Peu importait que vous soyez les cieux ou le Dao des cieux. Si vous vouliez le tuer, alors il vous tuerait, qui que vous soyez!
 
 Grâce à son cœur de massacre et à son intention meurtrière, le dragon formé par l'énergie sembla prendre vie. Ce dragon représentait la volonté de Wang Lin de défier les cieux!
 
@@ -114,13 +114,13 @@ On doit s'incliner devant la Puissance des Cieux! Il faut être subjugué par le
 
 Telle est la Puissance des Cieux!
 
-Alors que la Puissance des Cieux descendait, une pression colossale émana du ciel. Le massif nuage rouge s'abaissa d'un pouce!
+Alors que la Puissance des Cieux descendait, une pression colossale émana du ciel. Le massif nuage rouge s'abaissa de 3,3 centimètres!
 
-Cette descente d'un seul pouce fit exploser partout la place déjà brisée. L'onde de choc produite par l'explosion ne put même pas se propager avant d'être écrasée dans le sol par cette pression.
+Cette descente de 3,3 centimètres fit exploser partout la place déjà brisée. L'onde de choc produite par l'explosion ne put même pas se propager avant d'être écrasée dans le sol par cette pression.
 
 Sous la puissance des cieux, l'onde de choc n'avait même pas la moindre capacité à soulever un grain de poussière!
 
-Wang Lin sentit son corps devenir pesant, comme si des millions de livres s'abattaient sur lui. Il entendait des craquements sinistres émaner de ses propres os. À cet instant, Wang Lin eut l'illusion d'être broyé par le monde lui-même!
+Wang Lin sentit son corps devenir pesant, comme si cinq tonnes s'abattaient sur lui. Il entendait des craquements sinistres émaner de ses propres os. À cet instant, Wang Lin eut l'illusion d'être broyé par le monde lui-même!
 
 C'était la même sensation qu'autrefois, lorsqu'il cultivait sous la pression du filon spirituel au sein de la Secte de l'Affinement de l'Âme. À l'époque, sa culture avait été gaspillée et il était redevenu un simple mortel.
 
@@ -132,7 +132,7 @@ Les jambes de Wang Lin ne bougèrent pas d'un iota, alors qu'une aura puissante 
 
 Il leva la tête vers le nuage rouge et murmura doucement: « Je ne céderai pas! »
 
-Des éclats de tonnerre jaillirent du nuage rouge alors qu'il entamait une nouvelle descente. Un pouce, un pouce, un pouce! Cette fois, il descendit trois pouces d'affilée, et la Puissance des Cieux s'abattit avec fracas!
+Des éclats de tonnerre jaillirent du nuage rouge alors qu'il entamait une nouvelle descente. 3,3 centimètres, 3,3 centimètres, 3,3 centimètres! Cette fois, il descendit de près de dix centimètres d'affilée, et la Puissance des Cieux s'abattit avec fracas!
 
 La terre poussa un cri comme si elle ne pouvait plus supporter le poids. Tous les édifices du palais impérial furent broyés par cette pression. La cité impériale du Pays du Démon Céleste, qui s'était dressée pendant d'innombrables années, fut réduite en poussière, à l'exception du tambour démoniaque!
 

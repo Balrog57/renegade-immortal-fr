@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 654 - The Hidden Danger of the Celestial Slaughter Art
 slug: le-danger-cache-de-lart-celeste-du-massacre
 ---
-Dehors, l'obscurité était totale, et le rugissement du vent résonnait depuis l'intérieur de la fissure. Cette faille semblait être un monde à part entière, où le hurlement venu de l'extérieur constituait le seul son audible au monde.
+Dehors, l'obscurité était totale, et le rugissement du vent résonnait tout autour de la fissure. Cette faille semblait être un monde à part entière, où le hurlement venu de l'extérieur constituait le seul son audible au monde.
 
 Une force d'aspiration incessante émanait du gouffre, comme si elle cherchait à tout dévorer.
 
@@ -42,7 +42,7 @@ Wang Lin était assis dans cette fissure depuis trois ans.
 
 Ce n'était pas qu'il ne souhaitait pas partir, mais durant ces trois années, la force d'aspiration extérieure avait atteint un degré inimaginable.
 
-Il y a plus de deux ans, alors que Wang Lin examinait Wealth, l'aspiration du gouffre s'était soudainement intensifiée violemment. Désormais, plus de la moitié de la fissure était affectée par cette force.
+Il y a plus de deux ans, alors que Wang Lin examinait Richesse, l'aspiration du gouffre s'était soudainement intensifiée violemment. Désormais, plus de la moitié de la fissure était affectée par cette force.
 
 Le sort du gardien céleste lui offrait initialement soixante pour cent de chances de s'échapper, mais avec l'augmentation brutale de l'aspiration, cette probabilité était tombée immédiatement à vingt pour cent...
 
@@ -50,17 +50,17 @@ Wang Lin ne perdit pas espoir et attendit calmement les deux années suivantes.
 
 Après que sa culture eut atteint le stade Ascendant, sa progression avait ralenti. Après tout, le stade Ascendant représentait le sommet de la première étape. Malgré l'immensité du cosmos, combien d'individus avaient réussi à atteindre ce sommet...?
 
-Hormis ceux favorisés par les cieux, qui n'avaient pas passé d'innombrables années pour atteindre cet apogée? Le talent de Wang Lin était très ordinaire. Sans sa détermination et ses expériences singulières, il lui aurait été extrêmement difficile d'atteindre ce stade.
+Hormis ceux favorisés par les cieux, qui n'avaient pas passé des années d'efforts pour atteindre cet apogée? Le talent de Wang Lin était très ordinaire. Sans sa détermination et ses expériences singulières, il lui aurait été extrêmement difficile d'atteindre ce stade.
 
 Le stade Ascendant intermédiaire, le stade Ascendant avancé et le stade Ascendant au sommet étaient autant d'obstacles qui bloquaient d'innombrables cultivateurs et épuisaient la vie de tant d'êtres. C'étaient trois montagnes se dressant sur le chemin de Wang Lin.
 
-Au cours de ces deux années, Wang Lin utilisa son calme pour comprendre lentement ce qui résidait dans Wealth. Il n'y avait qu'une seule technique d'épée à l'intérieur de Wealth, une seule!
+Au cours de ces deux années, Wang Lin utilisa son calme pour comprendre lentement ce qui résidait dans Richesse. Il n'y avait qu'une seule technique d'épée à l'intérieur de Richesse, une seule!
 
 Coup Céleste!
 
-Un jour après ces deux ans, Wang Lin retira son sens divin de Wealth. L'objet disparut complètement, comme s'il avait accompli sa mission de transmettre son héritage et retournait à sa source.
+Un jour, au cours de ces deux années, Wang Lin retira son sens divin de Richesse. L'objet disparut complètement, comme s'il avait accompli sa mission de transmettre son héritage et retournait à sa source.
 
-La seule chose qui demeura dans le cœur de Wang Lin fut l'émotion bouleversante qu'il avait contemplée pendant deux ans.
+La seule chose qui demeura dans le cœur de Wang Lin fut la technique stupéfiante qu'il avait méditée pendant deux ans.
 
 Après cela, ce qui attendait Wang Lin n'était que solitude infinie et silence.
 
@@ -80,7 +80,7 @@ Wang Lin retira son doigt. Après avoir jeté un regard sur le parchemin, il s'e
 
 Durant ces trois années, la femme du parchemin ne s'était manifestée que quatre fois au total. À chaque apparition, elle lançait cet appel vague.
 
-Wang Lin n'était pas curieux de ce qui se trouvait au fond du puits. Son calme était imperturbable. Il n'avait même pas vérifié une seconde fois le mystérieux réseau de transfert situé sous lui.
+Wang Lin n'était pas curieux de ce qui se trouvait au fond du puits. Son calme était imperturbable. Il n'avait même pas vérifié une seconde fois le mystérieux réseau de transfert situé sur la grosse pierre qui s'avançait de l'autre côté de la fissure, en contrebas.
 
 Avant d'avoir acquis la force nécessaire, la curiosité était la chose la plus mortelle, capable d'anéantir toute existence.
 
@@ -92,7 +92,7 @@ Des croassements retentirent près de Wang Lin. Il baissa la tête et ses yeux s
 
 C'était le crapaud du tonnerre!
 
-Il s'était éveillé un an auparavant, d'où sa taille actuelle. Le crapaud du tonnerre était celui qui ressentait le mieux les changements chez Wang Lin. Depuis son éveil, il refusait de retourner dans le sac de rangement et restait simplement aux côtés de son maître.
+Il s'était éveillé un an auparavant, d'où sa taille actuelle. Le crapaud du tonnerre était celui qui ressentait le plus fortement la puissance de la foudre dans l'âme originelle de Wang Lin. Depuis son éveil, il refusait de retourner dans le sac de rangement et restait simplement aux côtés de son maître.
 
 Wang Lin projeta soudainement un éclair depuis son doigt vers le crapaud. Ce dernier ouvrit les yeux et sa langue s'étira brusquement pour happer l'éclair dans sa bouche. Un grondement sourd émana du ventre du crapaud, qui afficha une expression de contentement.
 
@@ -100,7 +100,7 @@ Wang Lin ferma les yeux et s'immergea dans son Dao.
 
 Son Dao se composait de deux parties: le fleuve des enfers, et la formation de l'âme du fleuve des enfers.
 
-Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des millions de fragments d'âmes issus du drapeau des âmes, condensés ensemble. Il lui manquait encore l'intention de tuer.
+Cependant, cette prétendue « âme » du fleuve des enfers n'était en réalité que des centaines de millions de fragments d'âmes issus du drapeau des âmes, condensés ensemble. Il lui manquait encore l'intention de tuer.
 
 Bien que le fantôme céleste possédât la férocité, elle était insuffisante pour devenir l'âme du fleuve des enfers de Wang Lin. Car il n'était que féroce, mais dépourvu d'intention de tuer!
 

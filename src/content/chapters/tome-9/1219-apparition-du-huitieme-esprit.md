@@ -68,7 +68,7 @@ Tandis que les fracas tonnerres retentissaient, les sept esprits semblèrent fus
 
 Son assaut fut bloqué, et bien que ses yeux fussent empreints de folie, son esprit restait lucide. Dans sa vie, hormis Tu Si, il ne craignait personne. En fixant la formation, la démence dans son regard s'intensifia.
 
-« Au lieu de reculer pour trouver un cultivateur du troisième pas afin d'accroître ma puissance, je vais m'élancer maintenant et traquer les cultivateurs du troisième pas dans le Système Stellaire Antique. Ce sera votre punition pour avoir placé une telle formation ici! » Il leva la main droite, laissa échapper un renflement glacial et pointa sa deuxième étoile.
+« Au lieu de reculer pour trouver un cultivateur du troisième pas afin d'accroître ma puissance, je vais m'élancer maintenant et traquer les cultivateurs du troisième pas dans le Système Stellaire Antique. Ce sera votre punition pour avoir placé une telle formation ici! » Il leva la main droite, laissa échapper un reniflement glacial et pointa sa deuxième étoile.
 
 La deuxième étoile émit soudainement une énergie originelle encore plus puissante et s'élança comme une seconde météorite. Elle fonça sur la formation avec une force supérieure à celle de la première!
 

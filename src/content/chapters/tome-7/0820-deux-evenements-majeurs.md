@@ -6,17 +6,17 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 820 - Two Big Events
 slug: deux-événements-majeurs
 ---
-Le Temple Céleste du Tonnerre avait émis un Décret Universel pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance!
+Le Temple Céleste du Tonnerre avait émis un Décret d'Allheaven pour convoquer toutes les familles de cultivateurs afin qu'elles se rassemblent au Temple Céleste du Tonnerre pour pénétrer dans le Système Stellaire de l'Alliance!
 
-Cette nouvelle fut comme une tempête balayant le Système Stellaire Universel, déclenchant des vagues de tumulte!
+Cette nouvelle fut comme une tempête balayant le Système Stellaire Allheaven, déclenchant des vagues de tumulte!
 
 Depuis les innombrables années qui avaient suivi l'effondrement des quatre Royaumes Célestes et le blocage des passages reliant les quatre systèmes, les quatre grands systèmes stellaires n'avaient eu aucun contact entre eux. Hormis l'usage de trésors extrêmement précieux capables d'ouvrir à peine un passage pour un ou deux cultivateurs, une opération d'une telle ampleur n'avait jamais été menée!
 
-Aux yeux des cultivateurs du Système Stellaire Universel, le Système Stellaire de l'Alliance était un lieu reculé. Cependant, les rumeurs rapportées par les cultivateurs qui en revenaient étaient légion.
+Aux yeux des cultivateurs du Système Stellaire Allheaven, le Système Stellaire de l'Alliance était un lieu reculé. Cependant, les rumeurs rapportées par les cultivateurs qui en revenaient étaient légion.
 
 On disait que le Système Stellaire de l'Alliance ne possédait pas de familles de cultivateurs, mais des sectes.
 
-On disait qu'il était composé de pays de culture classés de rang 1 à 9, ce qui le rendait très différent du Système Stellaire Universel!
+On disait qu'il était composé de pays de culture classés de rang 1 à 9, ce qui le rendait très différent du Système Stellaire Allheaven!
 
 On disait que le Système Stellaire de l'Alliance regorgeait de trésors magiques et d'innombrables pilules. Chaque secte y était un coffre au trésor, et chaque planète de culture une mine d'or.
 
@@ -24,7 +24,7 @@ On disait qu'au sein du Système Stellaire de l'Alliance, la puissance suprême 
 
 On disait que les cultivateurs du Système Stellaire de l'Alliance étaient extrêmement sanguinaires, habitués au combat, semblables à des démons.
 
-Toutes ces rumeurs prêtaient au Système Stellaire de l'Alliance des visages multiples aux yeux des habitants du Système Universel. Certaines familles de cultivateurs étaient très enthousiastes, brûlant d'un désir de bataille.
+Toutes ces rumeurs prêtaient au Système Stellaire de l'Alliance des visages multiples aux yeux des habitants du Système Stellaire Allheaven. Certaines familles de cultivateurs étaient très enthousiastes, brûlant d'un désir de bataille.
 
 Cependant, certaines familles hésitaient encore. Mais sous la pression du Temple Céleste du Tonnerre, l'invasion du Système Stellaire de l'Alliance était déjà une conclusion inéluctable.
 
@@ -36,15 +36,15 @@ L'une d'elles était la famille Xiang de la planète Dong Lin! Ce n'est pas le T
 
 Sous la pression de ces trois grandes puissances, comment les autres familles de cultivateurs oseraient-elles désobéir?
 
-En conséquence, une tempête de préparatifs s'éleva dans le Système Stellaire Universel. Chaque famille se préparait pour l'instant où le passage s'ouvrirait!
+En conséquence, une tempête de préparatifs s'éleva dans le Système Stellaire Allheaven. Chaque famille se préparait pour l'instant où le passage s'ouvrirait!
 
 Pour cette bataille, les trois grandes puissances firent une annonce: quiconque accomplirait un exploit se verrait immédiatement attribuer la planète de culture conquise!
 
-Cette promesse tenta les familles du Système Stellaire Universel. Après tout, nul ne souhaite partager une planète, mais toutes celles dotées d'énergie spirituelle étaient déjà occupées. Si l'on voulait sa propre planète, il fallait la ravir au Système Stellaire de l'Alliance.
+Cette promesse tenta les familles du Système Stellaire Allheaven. Après tout, nul ne souhaite partager une planète, mais toutes celles dotées d'énergie spirituelle étaient déjà occupées. Si l'on voulait sa propre planète, il fallait la ravir au Système Stellaire de l'Alliance.
 
 De plus, pour mobiliser toutes les familles, le Temple Céleste du Tonnerre débloqua diverses pilules et armes magiques. Ils présentèrent même des sorts célestes, créant ainsi un spectacle grandiose!
 
-« Le Temple Céleste du Tonnerre et les deux familles vont octroyer des titres célestes. C'est la première fois qu'une telle attribution à grande échelle a lieu depuis l'effondrement du Royaume Céleste du Tonnerre. Il y aura 36 Gardiens Célestes et 72 Démons Terrestres, pour un total de 108 personnes. Quiconque recevra un titre céleste aura un statut supérieur à celui des messagers du Temple Céleste du Tonnerre et sera admiré par tous les cultivateurs du Système Stellaire Universel! »
+« Le Temple Céleste du Tonnerre et les deux familles vont octroyer des titres célestes. C'est la première fois qu'une telle attribution à grande échelle a lieu depuis l'effondrement du Royaume Céleste du Tonnerre. Il y aura 36 Gardiens Célestes et 72 Démons Terrestres, pour un total de 108 personnes. Quiconque recevra un titre céleste aura un statut supérieur à celui des messagers du Temple Céleste du Tonnerre et sera admiré par tous les cultivateurs du Système Stellaire Allheaven! »
 
 « Ils deviendront même des chefs dans la bataille contre le Système Stellaire de l'Alliance! »
 
@@ -52,13 +52,13 @@ Si cela s'était arrêté là, l'enjeu n'aurait pas été si grand, car tout le 
 
 Cette nouvelle faillit provoquer l'effondrement de la tempête. Un seigneur céleste! Un seigneur céleste!
 
-Un seigneur céleste était encore en vie! L'ensemble du Système Stellaire Universel atteignit un point d'ébullition. Toutes les familles qui n'étaient initialement pas intéressées changèrent d'avis et mobilisèrent leurs élites pour tenter de rafler une place!
+Un seigneur céleste était encore en vie! L'ensemble du Système Stellaire Allheaven atteignit un point d'ébullition. Toutes les familles qui n'étaient initialement pas intéressées changèrent d'avis et mobilisèrent leurs élites pour tenter de rafler une place!
 
 Simultanément, le Temple Céleste du Tonnerre annonça que, selon les deux familles de culture, les 36 Gardiens Célestes pourraient formuler une requête, et que le Temple ainsi que les deux familles feraient leur possible pour l'exaucer!
 
-La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire Universel, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
+La frénésie autour des titres célestes atteignit son apogée dans le Système Stellaire Allheaven, permettant au Temple Céleste du Tonnerre de rassembler toute la puissance du système.
 
-Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire Universel et porta la détermination des cultivateurs à son comble!
+Mais alors, la famille de culture la plus mystérieuse des temps primordiaux envoya un message qui embrasa tout le Système Stellaire Allheaven et porta la détermination des cultivateurs à son comble!
 
 L'attribution des titres célestes pouvait presque être comparée aux bénédictions divines du Royaume Céleste!
 
@@ -72,7 +72,7 @@ Peu importe la puissance d'un sort céleste, il existait une limite lorsqu'il é
 
 La tempête s'était levée, la flamme de la guerre était allumée, et tous attendaient l'ouverture du passage!
 
-Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire Universel, une autre nouvelle choc se répandit dans le système!
+Alors que la tempête des préparatifs et les flammes de la guerre se propageaient à travers le Système Stellaire Allheaven, une autre nouvelle choc se répandit dans le système!
 
 La famille Yao, qui se situait juste en dessous des deux familles de culture antiques, venait d'émettre un Ordre Céleste!
 
@@ -80,7 +80,7 @@ Lorsque l'Ordre Céleste apparaît, le massacre est imminent! La famille Yao ét
 
 Au cours des innombrables années depuis l'effondrement du Royaume Céleste, la famille Yao n'avait émis son Ordre Céleste que trois fois! Et chaque fois, un bain de sang en résultait, et le massacre ne cessait qu'une fois la cible morte!
 
-À cet instant précis, alors qu'un tumulte régnait dans le Système Stellaire Universel, le quatrième Ordre Céleste de la famille Yao fut publié!
+À cet instant précis, alors qu'un tumulte régnait dans le Système Stellaire Allheaven, le quatrième Ordre Céleste de la famille Yao fut publié!
 
 Cette fois, un seul nom figurait sur l'ordre:
 
@@ -90,7 +90,7 @@ Ce nom n'était pas seulement connu, il était extrêmement célèbre! Parmi tou
 
 Les personnes sauvées par Xu Mu et leurs familles étaient ses plus fervents partisans. En particulier, ceux qu'il avait secourus témoignaient de leur respect et de leur gratitude envers lui dès qu'on prononçait son nom.
 
-La popularité de Xu Mu explosa progressivement, faisant de lui l'un des rares individus célèbres dans les quatre domaines du Système Stellaire Universel.
+La popularité de Xu Mu explosa progressivement, faisant de lui l'un des rares individus célèbres dans les quatre domaines du Système Stellaire Allheaven.
 
 Et à cet instant, l'Ordre Céleste de la famille Yao ne portait qu'un seul nom. Il était évident que la famille Yao voulait la mort de Xu Mu!
 
@@ -98,7 +98,7 @@ Peu importe la force de Xu Mu, rares étaient ceux qui croyaient qu'il pourrait 
 
 Seuls quelques privilégiés, comme Shengong Hu et Zhan Konglie, ricanèrent. À leurs yeux, la famille Yao n'avait pas les qualifications pour affronter leur seigneur!
 
-La famille Yao avait déployé un nombre immense de membres et de familles alliées à travers le Système Stellaire Universel, tel un filet, pour s'assurer de débusquer Xu Mu!
+La famille Yao avait déployé un nombre immense de membres et de familles alliées à travers le Système Stellaire Allheaven, tel un filet, pour s'assurer de débusquer Xu Mu!
 
 Tandis que les préparatifs pour les titres célestes avançaient, la traque de Xu Mu par la famille Yao atteignait un sommet sans précédent!
 
@@ -106,23 +106,23 @@ L'apparition de l'Ordre Céleste et cette chasse à outrance firent grimper enco
 
 Même les personnes sauvées par Wang Lin restèrent silencieuses. Ce n'était pas qu'ils ne voulaient pas aider, mais ils avaient tous leurs propres familles et ne pouvaient rien contre la famille Yao!
 
-Pourtant, malgré les recherches de la famille Yao, Xu Mu avait disparu. Personne ne pouvait le trouver, comme s'il s'était volatilisé du Système Stellaire Universel.
+Pourtant, malgré les recherches de la famille Yao, Xu Mu avait disparu. Personne ne pouvait le trouver, comme s'il s'était volatilisé du Système Stellaire Allheaven.
 
 À ce moment-là, Wang Lin volait à travers le Domaine Étrange. Seule une brume grise se dressait devant lui, mais cela ne l'arrêtait nullement.
 
-Derrière lui, les membres du Clan de l'Immortel Choisi étaient d'un calme absolu. Les mois passés à voler dans la brume avaient transformé leur mentalité.
+Derrière lui, les membres du Clan de l'Immortel Élu étaient d'un calme absolu. Les mois passés à voler dans la brume avaient transformé leur mentalité.
 
 La confusion des débuts s'était évanouie, remplacée par une détermination sans faille et une intention meurtrière!
 
 Durant les mois où ils suivirent Wang Lin dans le brouillard, ils avaient vu et combattu de nombreuses bêtes féroces. Bien que leur nombre ait diminué, leur aura de combat s'était progressivement épaissie.
 
-À présent, les membres du Clan de l'Immortel Choisi ressemblaient à des dieux de la mort suivant Wang Lin. Parmi eux se trouvaient des femmes et des enfants, mais toute trace de faiblesse avait disparu de leurs visages.
+À présent, les membres du Clan de l'Immortel Élu ressemblaient à des dieux de la mort suivant Wang Lin. Parmi eux se trouvaient des femmes et des enfants, mais toute trace de faiblesse avait disparu de leurs visages.
 
 S'ils pouvaient charger, ils vivraient. Sinon, ils seraient dévorés par les bêtes de ce lieu.
 
-Grâce à ces batailles sanglantes, le Clan de l'Immortel Choisi s'était rapidement endurci. On percevait une ombre de Wang Lin en chacun d'eux. Après tout, pour ces gens simples, Wang Lin était l'unique modèle.
+Grâce à ces batailles sanglantes, le Clan de l'Immortel Élu s'était rapidement endurci. On percevait une ombre de Wang Lin en chacun d'eux. Après tout, pour ces gens simples, Wang Lin était l'unique modèle.
 
-Après avoir passé des mois à leurs côtés, même Wang Lin devait admettre que le Clan de l'Immortel Choisi était doué et intelligent. Ils possédaient de bonnes racines de culture et leur capacité d'imitation était presque effrayante.
+Après avoir passé des mois à leurs côtés, même Wang Lin devait admettre que le Clan de l'Immortel Élu était doué et intelligent. Ils possédaient de bonnes racines de culture et leur capacité d'imitation était presque effrayante.
 
 En seulement quelques mois d'interactions dans la brume, ils avaient assimilé la résolution de Wang Lin, son calme et son intention meurtrière.
 
@@ -132,23 +132,23 @@ Ce qui fit rétrécir les yeux de Wang Lin fut de constater leur efficacité dan
 
 Wang Lin réfléchissait en silence tout en enveloppant les femmes et les enfants du Clan dans son sort pour qu'ils puissent progresser plus rapidement.
 
-Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres du Clan de l'Immortel Choisi suivirent un à un. Ce qui apparut devant eux fut un ciel étoilé éclatant!
+Ce jour-là, la brume devant eux se dissipa et Wang Lin s'élança. Les membres du Clan de l'Immortel Élu suivirent un à un. Ce qui apparut devant eux fut un ciel étoilé éclatant!
 
-Domaine Ouest du Système Universel!
+Domaine Ouest du Système Stellaire Allheaven!
 
-En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Temple Céleste du Tonnerre, il avait été transféré dans la Bête Néfaste. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
+En contemplant les étoiles, Wang Lin entra en transe. Juste après les événements du Temple Céleste du Tonnerre, il avait été transféré dans la Bête du Néant. Revoir les étoiles après tout cela donnait l'impression que ce qui s'était passé n'était qu'un rêve.
 
-« Système Stellaire Universel, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
+« Système Stellaire Allheaven, je suis de retour! Ma priorité est maintenant de déterminer dans quel domaine je me trouve. Je dois trouver une planète de culture! » murmura Wang Lin en sortant un jade. C'était la carte que Shengong Hu lui avait donnée. Après l'avoir consultée un instant, il la rangea dans son sac.
 
-Wang Lin regarda les membres du Clan de l'Immortel Choisi.
+Wang Lin regarda les membres du Clan de l'Immortel Élu.
 
-« Voici le Système Stellaire Universel, sous le Domaine Céleste du Tonnerre. Puisque vous êtes arrivés ici, vous êtes libres! »
+« Voici le Système Stellaire Allheaven, sous le Royaume Céleste du Tonnerre. Puisque vous êtes arrivés ici, vous êtes libres! »
 
-Le Clan de l'Immortel Choisi réfléchit un instant avant de regarder Wang Lin: « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement? Une fois que nous aurons pris nos marques dans ce Système Stellaire Universel, nous partirons sans faute! »
+Le Clan de l'Immortel Élu réfléchit un instant avant de regarder Wang Lin: « Bienfaiteur, nous ne connaissons pas ce lieu. Auriez-vous par hasard une planète de culture qui pourrait nous abriter temporairement? Une fois que nous aurons pris nos marques dans ce Système Stellaire Allheaven, nous partirons sans faute! »
 
 Wang Lin réfléchit brièvement et hocha la tête. La planète Qing Ling était très vaste et pouvait accueillir les membres du clan.
 
-Il se retourna, fit un pas et s'élança comme une météorite. Les membres du Clan de l'Immortel Choisi le suivirent. Des centaines de traînées lumineuses foncèrent vers la planète Qing Ling.
+Il se retourna, fit un pas et s'élança comme une météorite. Les membres du Clan de l'Immortel Élu le suivirent. Des centaines de traînées lumineuses foncèrent vers la planète Qing Ling.
 
 En chemin, Wang Lin déploya son Sens Divin pour chercher des planètes. L'espace était extrêmement vaste, ce qui rendait la tâche difficile. Après dix jours, les yeux de Wang Lin s'illuminèrent lorsqu'il repéra une planète jaune au loin. Les fluctuations d'énergie spirituelle n'étaient pas très fortes, mais pas faibles non plus.
 
@@ -160,7 +160,7 @@ Une forte fluctuation d'énergie d'origine émanait des trois; il était clair q
 
 À leur apparition, leurs visages étaient graves. L'homme d'âge moyen regarda Wang Lin et dit calmement: « Camarade cultivateur, vous arrivez avec une telle hâte; je me demande ce que vous voulez! »
 
-Les regards des deux autres balayèrent le Clan de l'Immortel Choisi derrière Wang Lin. Plus ils regardaient, plus ils étaient stupéfaits. Les personnes derrière ne dégageaient aucune fluctuation d'énergie spirituelle, mais possédaient une force mystérieuse qu'ils n'avaient jamais vue auparavant.
+Les regards des deux autres balayèrent le Clan de l'Immortel Élu derrière Wang Lin. Plus ils regardaient, plus ils étaient stupéfaits. Les personnes derrière ne dégageaient aucune fluctuation d'énergie spirituelle, mais possédaient une force mystérieuse qu'ils n'avaient jamais vue auparavant.
 
 De plus, ils sentaient clairement une intention meurtrière émanant de ces gens. Cette soif de sang était intense, manifestement forgée par de longs mois de massacres.
 

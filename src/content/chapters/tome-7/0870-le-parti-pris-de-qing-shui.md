@@ -86,7 +86,7 @@ Puisque Luo Su était mort, le Maître Flamespark chargea quelqu'un d'autre d'ag
 
 Une rune illusoire se condensa dans sa main et s'abattit rapidement sur la place. À l'instant où l'empreinte toucha le sol, toute la zone commença à trembler. D'innombrables grondements de tonnerre résonnèrent et des arcs électriques jaillirent partout sur la place. C'était comme si elle s'était transformée en un véritable lac de foudre.
 
-Ces éclairs ressemblaient à des serpents d'argent scintillant sans cesse. Ils étaient si denses qu'ils semblaient se presser les uns contre les autres avant de se disperser soudainement dans toutes les directions, laissant apparaître un espace vide de 30 pieds au centre de la place.
+Ces éclairs ressemblaient à des serpents d'argent scintillant sans cesse. Ils étaient si denses qu'ils semblaient se presser les uns contre les autres avant de se disperser soudainement dans toutes les directions, laissant apparaître un espace vide de dix mètres de côté au centre de la place.
 
 « Tenez bon pendant 15 respirations pour réussir. Les autres seront disqualifiés! »
 

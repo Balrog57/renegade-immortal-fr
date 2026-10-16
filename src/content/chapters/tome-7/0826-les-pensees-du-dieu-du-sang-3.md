@@ -34,7 +34,7 @@ La bataille du Dao ne peut être menée qu'avec le Dao. Cependant, il est rare q
 
 Cela n'avait rien à voir avec la culture, mais avec la compréhension. Une compréhension du monde, une compréhension de la vie et une compréhension de son propre Dao!
 
-Yao Changdong n'aurait jamais imaginé que ce Xu Mu puisse manifester son propre Dao. Son expression devint sombre, mais il ne recula pas. Au lieu de cela, il s'assit à moins de trente pieds de Wang Lin et ferma les yeux. Une ombre dorée apparut soudainement au-dessus de sa tête.
+Yao Changdong n'aurait jamais imaginé que ce Xu Mu puisse manifester son propre Dao. Son expression devint sombre, mais il ne recula pas. Au lieu de cela, il s'assit à moins de dix mètres de Wang Lin et ferma les yeux. Une ombre dorée apparut soudainement au-dessus de sa tête.
 
 Cette ombre dorée dégageait l'aura d'un être céleste et était d'une grande élégance; il était évident qu'il s'agissait d'un Céleste!
 
@@ -56,7 +56,7 @@ Le cercle karmique s'élança soudainement vers l'ombre du Céleste. Lorsqu'il a
 
 « Les Célestes ne cultivaient pas de domaines. Utiliser leur puissante énergie spirituelle céleste pour ouvrir les cieux fut une erreur fatale! Autrement, pourquoi le Royaume Céleste se serait-il effondré? Même l'Empereur Céleste, malgré sa puissance, est devenu fou en défiant les cieux et il en est mort. Quelle était la force de ton ancêtre comparée à celle de l'Empereur Céleste? Le fait que l'Empereur Céleste n'ait pas cultivé de domaine fut la cause karmique, et sa folie causant sa mort fut l'effet karmique! »
 
-« La statue et la culture célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma! À mon sens, ta gloire est vide! »
+« Le statut et la culture célestes de ta famille ne peuvent égaler l'Empereur Céleste. Ne pas cultiver de domaine et s'approprier par la force le pouvoir des cieux a causé la perte de ton ancêtre. C'est cela, le karma! À mon sens, ta gloire est vide! »
 
 « S'ils ont été détruits par les cieux, où réside donc leur gloire? Yao Changdong, le domaine que tu as cultivé et le Dao en lequel tu crois sont tout deux nuls! Ton ancêtre céleste est mort, mais plutôt que de chercher la raison de sa chute, tu as choisi de cultiver sa gloire. Non seulement ton Dao est vide, mais celui de l'ancêtre de ta famille Yao l'est aussi. En fin de compte, ta famille Yao périra! »
 
@@ -106,7 +106,7 @@ Cependant, juste au moment où il s'évanouissait, une ride se forma à proximit
 
 Elle fronça légèrement les sourcils et, d'un pas, disparut à son tour en fusionnant avec le monde pour poursuivre Wang Lin!
 
-Pendant ce temps, dans le Domaine de l'Est, sur une planète rouge sang, se dressait un immense temple ancestral où un fier « Yao » était gravé sur une grande pièce de bois.
+Pendant ce temps, dans le Domaine de l'Est, sur une planète rouge sang, se dressait un immense temple ancestral où un fier « Yao » était gravé sur un arbre géant de trente-trois mètres de haut, à côté.
 
 Un vieil homme était assis à l'intérieur du temple. Ses sourcils étaient recourbés et d'un rouge écarlate.
 

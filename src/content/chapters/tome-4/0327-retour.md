@@ -56,7 +56,7 @@ L'homme âgé prit la fiole et jeta un œil à l'intérieur; son expression chan
 
 La jeune fille se sentait frustrée. Ce n'est que lorsqu'ils furent à plus de 5 kilomètres que la patience de l'homme âgé s'épuisa et qu'il finit par répondre.
 
-Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Crass Water! »
+Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Clear Water! »
 
 La jeune fille resta bouche bée.
 
@@ -70,7 +70,7 @@ Il aurait dû revenir il y a quelques jours, mais lors du transfert, un problèm
 
 Cette planète n'était pas très éloignée de Suzaku. La nuit étant tombée, Wang Lin pouvait la distinguer en levant les yeux.
 
-« Cette lune est en réalité une planète, bien que beaucoup plus petite », pensa Wang de volant dans le ciel, laissant derrière lui une traînée de lumière.
+« Cette lune est en réalité une planète, bien que beaucoup plus petite », pensa Wang en volant dans le ciel, laissant derrière lui une traînée de lumière.
 
 Les yeux de Wang Lin s'illuminèrent: « Quel dommage de n'avoir fait que passer sur cette lune avant que le transfert ne reprenne. Bien qu'elle soit dépourvue d'énergie spirituelle, j'ai ressenti une force mystérieuse profondément enfouie sous terre. Lorsque ma culture sera assez élevée, je devrai aller y jeter un œil. »
 
@@ -82,19 +82,19 @@ Quant à la boussole stellaire, Wang Lin constata qu'elle ne pouvait être utili
 
 « Et pourquoi Suzaku n'a-t-il pas encore mis ma tête à prix? » Tout en volant, Wang Lin sortit son chapeau de paille et le posa sur sa tête.
 
-« Ce chapeau contient de nombreuses restrictions et formations que je ne parviens pas encore à activer. À mon retour à Chu, je devrai prendre le temps de l'étudier. De plus, avec les épées précieuses récupérées sur les disciples de la Secte de la Grande Épée Lou, je pourrai ajouter bien plus de restrictions à mon drapeau de restriction. Malheureusement, je n'en ai ramassé que trois. »
+« Ce chapeau contient de nombreuses restrictions et formations que je ne parviens pas encore à activer. À mon retour à Chu, je devrai prendre le temps de l'étudier. De plus, avec les épées précieuses récupérées sur les disciples de la Secte de l'Épée Da Lou, je pourrai ajouter bien plus de restrictions à mon drapeau de restriction. Malheureusement, je n'en ai ramassé que trois. »
 
-Wang Lin avait obtenu l'une de ces épées en tuant un disciple de la Secte de la Grande Épée Lou. Les deux autres, il les avait trouvées avec Chi Hu alors qu'ils collectaient des sacs de rangement dans le vide.
+Wang Lin avait obtenu l'une de ces épées en tuant un disciple de la Secte de l'Épée Da Lou. Les deux autres, il les avait trouvées avec Chi Hu alors qu'ils collectaient des sacs de rangement dans le vide.
 
-Il laissa échapper un sourire amer: « Entrer en culture isolée pour atteindre le milieu de la Transformation de l'Âme, trouver les matériaux manquants pour la boussole stellaire, étudier le chapeau de paille et renforcer mon drapeau de restriction... Il y a tant de choses à accomplir... »
+Il laissa échapper un sourire amer: « Entrer en culture isolée pour atteindre le milieu de la Formation de l'Âme, trouver les matériaux manquants pour la boussole stellaire, étudier le chapeau de paille et renforcer mon drapeau de restriction... Il y a tant de choses à accomplir... »
 
 Il ajouta dans ses pensées: « Il y a aussi Ta Sen, de la terre de l'Ancien Dieu. Des années ont passé, j'ignore jusqu'où sa culture l'a mené. Je dois acquérir une puissance suffisante pour me protéger avant qu'il ne puisse quitter cet endroit. »
 
 En pensant à Ta Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
 
-« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi de la Secte de la Grande Épée Lou. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lors de mon arrivée. » Wang Lin fronça les sourcils.
+« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi de la Secte de l'Épée Da Lou. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lors de mon arrivée. » Wang Lin fronça les sourcils.
 
-« Le vieillard de la Secte de la Grande Épée Lou est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
+« Le vieillard de la Secte de l'Épée Da Lou est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
 
 « Le bilan de ce voyage au Royaume Céleste est excellent. Seule la pagode contenant le corps féminin sera difficile à obtenir. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
 
@@ -102,7 +102,7 @@ En pensant à Ta Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
 
 Wang Lin prit une profonde inspiration avant de s'arrêter pour descendre au sol. En dessous de lui se trouvait un ancien tableau de transfert. Le cœur serré, il sortit une pierre spirituelle de qualité supérieure et la plaça dans le dispositif. Le tableau s'ouvrit et il disparut.
 
-À des millions de kilomètres de là, Wang Lin réapparut. Il toucha son sac de rangement et pensa: « Il ne me reste plus beaucoup de pierres spirituelles de qualité supérieure. Heureusement, il y en avait dans les sacs que nous avons trouvés, mais après les avoir partagées avec Chi Hu, il n'en reste qu'une vingtaine. Il vaut mieux les utiliser avec parcimonie désormais; elles me seront sûrement utiles à l'avenir. »
+À cinq cent mille kilomètres de là, Wang Lin réapparut. Il toucha son sac de rangement et pensa: « Il ne me reste plus beaucoup de pierres spirituelles de qualité supérieure. Heureusement, il y en avait dans les sacs que nous avons trouvés, mais après les avoir partagées avec Chi Hu, il n'en reste qu'une vingtaine. Il vaut mieux les utiliser avec parcimonie désormais; elles me seront sûrement utiles à l'avenir. »
 
 Sans faire de pause, il continua ses téléportations successives pour presser le pas vers sa patrie.
 

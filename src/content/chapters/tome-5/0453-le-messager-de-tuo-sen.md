@@ -14,7 +14,7 @@ Ce tremblement ne dura que dix respirations, mais après ces dix instants, la To
 
 À cet instant, la Tombe de Suzaku était devenue bien plus périlleuse qu'auparavant.
 
-L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhuque Zi; c'était un jeu né de sa folie.
+L'effondrement du Cristal de Planète de Culture ne se produisait pas instantanément, mais lentement au fil du temps. Tout cela était contrôlé par Zhuque Zi; c'était un jeu né de sa folie à l'approche de la mort, qu'il partageait avec Yunque Zi.
 
 Une fois que le sol eut cessé de trembler, la chaîne de montagnes où se trouvait Wang Lin n'était plus qu'une plaine. C'était comme si tout ce qui s'était produit avant le séisme n'avait été qu'un rêve.
 
@@ -40,7 +40,7 @@ Un instant plus tard, Wang Lin poussa un soupir et s'envola vers le lointain.
 
 Planète Suzaku, Mer des Diables.
 
-La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Déchus. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis des dizaines de milliers d'années avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Déchus et finit par être conquise par eux.
+La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Déchus. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Déchus et finit par être conquise par eux.
 
 Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer des Diables. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 321 - Swords gone mad
 slug: les-epees-en-furie
 ---
-« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque un type de métal. Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant à ce qu'elle soit considérée comme une contrefaçon. »
+« Malheureusement, je manque encore de matériaux et ne peux effectuer que des réparations mineures. Cette boussole stellaire était initialement incomplète et lui manque un type de métal. Sans ce métal, cette boussole n'a aucune capacité d'attaque. Rien d'étonnant qu'on l'appelle une boussole stellaire de second rang. »
 
 « De plus, le coin manquant nécessiterait un autre type de matériau, mais son utilisation actuelle devrait convenir pour l'instant. » Wang Lin soupira intérieurement.
 
@@ -36,7 +36,7 @@ Une magnifique femme vêtue de blanc apparut silencieusement. Sous ses pieds, un
 
 Une voix impuissante émanant de la masse pourpre sur le front du dragon demanda: « Ting Er, pourquoi fais-tu tout cela? Veux-tu gaspiller toute l'énergie spirituelle céleste que j'ai amassée pour toi? »
 
-La femme en blanc répondit calmement: « Tu es un empereur céleste couronné par moi, Qin Feng. Si je refuse de te laisser mourir, tu ne peux pas mourir. De plus, je ne m'appelle pas Ting Er. »
+La femme en blanc répondit calmement: « Tu es un saint céleste couronné par moi. Si je refuse de te laisser mourir, tu ne peux pas mourir. De plus, je ne m'appelle pas Ting Er. »
 
 Zhou Yi afficha une expression douloureuse. Après un long silence, il murmura: « C'est vrai, tu ne t'appelles pas Ting Er... Je me suis déjà tout souvenu... Puisque tu n'es pas Ting Er, laisse-moi partir... je suis déjà mort... »
 

@@ -40,7 +40,7 @@ Le regard complexe de l'ancêtre familial lors de leur départ lui revint en mé
 
 C'était comme si le Royaume Céleste du Tonnerre était une zone interdite pour leur clan Ge!
 
-Et tout cela avait changé avec l'arrivée de Li Yuan. Elle était devenue la première membre de sa lignée en des millénaires à pénétrer dans ce royaume, et la seule personne pour l'accompagner était ce Li Yuan!
+Et tout cela avait changé avec l'arrivée de Li Yuan. Elle était devenue la deuxième membre de sa lignée à pénétrer dans ce royaume depuis des dizaines de milliers d'années, et la seule personne pour l'accompagner était ce Li Yuan!
 
 « Ainsi, l'ancêtre m'a envoyée au Royaume Céleste du Tonnerre pour expier mes fautes... C'est pourquoi il m'a confié le trésor d'héritage familial... » La femme nommée Ge laissa échapper un sourire pitoyable.
 

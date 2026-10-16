@@ -40,7 +40,7 @@ En contemplant la Perle Défiant le Ciel, Wang Lin était tout aussi stupéfait 
 
 « Le Maître disait autrefois que le Royaume Céleste Antique était le gardien de toute vie. Si le Royaume Céleste Antique existe, alors les cieux et la terre existent. Si le Royaume Céleste Antique disparaît, alors tout est voué à la destruction...
 
-« Il pensait à l'origine que le Royaume Céleste Antique serait éternel, mais ce jour-là... L'arbre imposant qui soutenait le Royaume Céleste Antique s'effondra et le royaume disparut sans laisser de trace... Même après avoir passé une vie entière à chercher, le Maître n'a pu trouver la moindre empreinte du Royaume Céleste Antique...
+« Il pensait à l'origine que le Royaume Céleste Antique serait éternel, mais ce jour-là... Les arbres géants qui soutenaient le Royaume Céleste Antique, aux quatre points cardinaux, s'effondrèrent et le royaume disparut sans laisser de trace... Même après avoir passé une vie entière à chercher, le Maître n'a pu trouver la moindre empreinte du Royaume Céleste Antique...
 
 « La disparition du Royaume Céleste Antique marqua l'effondrement du monde de culture antique et inaugura une ère nouvelle. Le monde était en confusion; sans le Royaume Céleste Antique, comment des célestes pourraient-ils exister... C'est ainsi que naquirent les affineurs de Qi... Moi, Qing Shui, j'étais un affineur de Qi. J'étais l'héritier du pays de Clear Water.
 
@@ -52,7 +52,7 @@ Qing Shui poussa un soupir en contemplant le vide. C'était comme s'il regardait
 
 « Au Royaume Céleste du Tonnerre, je l'ai rencontrée... »
 
-Tandis que Wang Lin méditait, son corps commença à rétrécir progressivement. Des bruits de craquements résonnèrent alors que son corps de 3 000 pieds retrouvait peu à peu sa taille normale.
+Tandis que Wang Lin méditait, son corps commença à rétrécir progressivement. Des bruits de craquements résonnèrent alors que son corps de plus de 1 000 mètres retrouvait peu à peu sa taille normale.
 
 Cinq étoiles de Dieu Antique tournaient entre ses sourcils, dégageant une aura divine antique et féroce! À cet instant, le corps originel de Wang Lin possédait la puissance d'un Dieu Antique à cinq étoiles; il était désormais considéré comme l'un des grands puissants!
 
@@ -114,4 +114,4 @@ Ce jour-là, le fragment céleste brilla soudainement d'un éclat intense et s'i
 
 Sur ce vortex se dressait un autel où d'innombrables cultivateurs entonnaient des chants. Maître Flamespark se tenait sur l'autel, un sourire aux lèvres, et sa voix s'éleva:
 
-« Bienvenue de retour! »
+« Bienvenue de retour! » Un chœur de voix reprit en écho : « Bienvenue de retour! »

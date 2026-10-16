@@ -38,7 +38,7 @@ Une fois tout cela terminé, il s'assit au sol, sortit les sacs de rangement obt
 
 Il plaça le premier jade contre son front. Après l'avoir examiné un moment, il le mit de côté. Celui-ci contenait une méthode de culture de la Secte Démoniaque nommée Méthode de Culture sans Restraint.
 
-La Secte Démoniaque était l'une des sectes maléfiques de Huo Fen, et leur pratique donnaitrait la chair de poule. Cette méthode possédait six niveaux et se concentrait sur la cruauté.
+La Secte Démoniaque était l'une des sectes maléfiques de Huo Fen, et leur pratique donnait la chair de poule. Cette méthode possédait six niveaux et se concentrait sur la cruauté.
 
 Les instructions du jade étaient les suivantes: Tuer quelqu'un, puis raffiner son cœur. En raffinant ce cœur, utilisez cette expérience pour transformer votre propre cœur en celui d'un assassin et marcher sur le sentier de l'impitoyabilité. Immergez-vous dans cette voie pour former une âme Shura capable de remplacer votre Âme Naissante; alors, la méthode sera accomplie.
 
@@ -58,7 +58,7 @@ Le temps passa lentement tandis qu'il s'immergeait dans l'étude de la Technique
 
 Une lueur de joie éclaira son visage et il ne put s'empêcher de murmurer: « Ce corps de Ma Liang est bien plus robuste que mon précédent. Bien qu'il ne soit pas de rang supérieur, il reste de qualité moyenne, ce qui rend l'apprentissage de cette Technique d'Évasion Terrestre abordable. Mais je devrai encore m'entraîner longtemps pour la maîtriser véritablement. »
 
-Wang Lin sortit le seau en bois rempli de liquide spirituel, le but intégralement, puis commença à cultiver. Une demi-heure plus tard, toute la fatigue due à l'entraînement avait disparu.
+Wang Lin sortit le seau en bois rempli de liquide spirituel, le but intégralement, puis commença à cultiver. Une heure plus tard, toute la fatigue due à l'entraînement avait disparu.
 
 Il saisit nonchalamment le troisième jade pour l'examiner. Celui-ci contenait les traces des activités quotidiennes de Sun Youcai. Il semblait que ce dernier avait pour habitude de tenir un journal. Ce jade recelait approximativement trente ans de sa vie de cultivateur.
 
@@ -158,7 +158,7 @@ Wang Lin réfléchit après cet échec. Quant aux bêtes spirituelles, il n'avai
 
 Il pointa le morceau de métal qui se mit immédiatement à tourner frénétiquement. Bientôt, des gouttes de métal liquide tombèrent tandis que l'objet rétrécissait. Finalement, il se transforma en une flaque de métal fondu. Le démon était déjà sorti du métal et regardait Wang Lin d'un air embarrassé sur le côté.
 
-L'image de la petite épée cyan s'envolat et tourbillonna autour de Wang Lin. Il sortit ensuite l'épée noire appartenant au frère apprenti de Sun Youcai. Cela lui facilita la tâche.
+L'image de la petite épée cyan s'envola et tourbillonna autour de Wang Lin. Il sortit ensuite l'épée noire appartenant au frère apprenti de Sun Youcai. Cela lui facilita la tâche.
 
 Wang Lin pointa l'image de la petite épée, qui vola vers l'épée noire pour fusionner lentement avec elle. Cette méthode était la plus directe et la moins raffinée. On ne pouvait même pas parler de raffinage; c'était plutôt comme trouver un nouveau corps pour son épée volante, à l'instar des cultivateurs possédant des corps physiques.
 

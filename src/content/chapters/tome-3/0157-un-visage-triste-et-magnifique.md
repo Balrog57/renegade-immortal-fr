@@ -16,7 +16,7 @@ Le démon se détendit secrètement tout en fixant Wang Lin, mais il se plaignit
 
 Alors qu'il réfléchissait à la manière dont il se débarrasserait de Wang Lin une fois revenu au stade de l'Âme Naissante, son corps fut saisi par ce dernier et projeté en arrière dans le tendon du dragon. Le démon poussa quelques soupirs de frustration. L'envie de tout donner contre Wang Lin ressurgit, mais elle s'éteignit aussitôt lorsqu'il réalisa qu'il n'obtiendrait aucun résultat satisfaisant, même en brisant son noyau doré.
 
-Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Songeant à la puissance de la méthode de culture à l'épée de Jie Donglei, il sortit plusieurs centaines de pierres spirituelles. Il allait les utiliser pour déployer sur lui des centaines de couches de la formation défensive de la carapace de tortue.
+Après avoir bu une gorgée de liquide spirituel, Wang Lin s'assit pour cultiver. Songeant à la puissance de la méthode de culture à l'épée de Jie Donglei, il sortit des pierres spirituelles. Il allait les utiliser pour déployer sur lui plus d'une centaine de formations défensives de la carapace de tortue.
 
 Une fois cela terminé, il prit une profonde inspiration et frappa le flanc de la paroi. La gueule du dragon s'ouvrit lentement. Il se leva et sortit.
 
@@ -46,7 +46,7 @@ Shang Guanmo accepta promptement. Il sentait qu'il s'était trompé en l'observa
 
 Dans sa chambre, Li Muwan s'assit calmement sur le sol tandis que les souvenirs de ces dernières années défilaient devant ses yeux. Depuis l'époque où elle était pourchassée par ce cultivateur au stade de la Formation du Noyau de Xuan Wu, jusqu'à son sauvetage par Wang Lin et leur fuite commune. Puis, la traque par les bêtes de feu et leur traversée périlleuse vers la Mer des Démons. La création de cette grotte où elle se consacrait à l'alchimie tandis qu'il se concentrait sur sa culture... jusqu'à son départ de trois ans et le retour du fourneau à pilules. À son retour, il était poursuivi par des cultivateurs de la Formation du Noyau. Puis, il avait réussi à atteindre ce stade et à se frayer un chemin dans un bain de sang.
 
-Alors que Wang Lin atteignait le stade de la Formation du Noyau, une jeune fille aussi faible qu'elle s'était risquée seule à affronter ces cultivateurs démoniaques. Au moment même où elle allait se donner la mort, Wang Lin était apparu pour la sauver. Elle n'avait pu comprendre ce revirement soudain du destin. Le choc l'avait affaiblie au point de chanceler, mais il l'avait rattrapée.
+Alors que Wang Lin atteignait le stade de la Formation du Noyau, une jeune fille aussi faible qu'elle s'était risquée seule à affronter dix cultivateurs démoniaques. Au moment même où elle allait se donner la mort, Wang Lin était apparu pour la sauver. Elle n'avait pu comprendre ce revirement soudain du destin. Le choc l'avait affaiblie au point de chanceler, mais il l'avait rattrapée.
 
 « Ne bouge pas. Je vais t'emmener tuer des gens. » Cette phrase résonnait sans cesse dans les oreilles de Li Muwan. Y penser faisait naître en elle un tumulte d'émotions complexes qui faisaient rougir ses joues. Tout au long du voyage, elle y avait pensé maintes fois, incapable d'empêcher un sourire amer. Pourtant, alors que Wang Lin s'était frayé un chemin sanglant jusqu'ici, cette phrase pesait lourdement dans son cœur.
 
@@ -68,13 +68,15 @@ Elle fusionna d'abord les quelque 20 000 fragments en 10 000, puis en 5 000, et 
 
 Trois jours plus tard, le visage de Li Muwan était livide et son corps extrêmement faible. Elle avait l'impression de pouvoir s'effondrer au moindre souffle de vent. Elle sortit de la grotte en s'appuyant contre la paroi.
 
-Wang Lin tenait entre ses mains un objet qu'il étudiait depuis trois jours. En voyant Li Muwan sortir, il rangea l'objet avant de descendre à sa hauteur. Voyant son visage encore plus épuisé, il fronça les sourcils et demanda: « Qu'as-tu fait ces trois derniers jours? Bois ceci. » Il lui tendit une fiole de jade contenant 300 gouttes de liquide spirituel.
+Wang Lin tenait entre ses mains un objet qu'il étudiait depuis trois jours. En voyant Li Muwan sortir, il rangea l'objet avant de descendre à sa hauteur. Voyant son visage encore plus épuisé, il fronça les sourcils et demanda: « Qu'as-tu fait ces trois derniers jours? Bois ceci. » Il lui tendit une fiole de jade contenant plus de 300 gouttes de liquide spirituel.
 
 Li Muwan rangea la fiole comme un trésor précieux et murmura: « Merci, frère aîné. Je vais bien. Allons... partons... » Sur ces mots, son visage retrouva un peu d'éclat alors qu'elle s'appuyait contre l'épaule de Wang Lin: « Allez... rentrons à la maison... »
 
 Wang Lin resta pensif un long moment avant de passer son bras gauche autour de la taille de Li Muwan. Son corps s'élança instantanément dans les airs, fendant le brouillard devant eux, avant que les deux ne disparaissent rapidement dans le ciel.
 
-La fleur de prunier est une chose élégante. Si elle comportait une touche d'or, elle paraîtrait trop grandiose. Cependant, ce rouge en son centre change toute l'essence de la fleur; passant de la simplicité à l'aspect impressionnant, de l'élégance à quelque chose de singulier.
+Dans une auberge de la ville de Nan Dou, un vieil homme au nez aquilin et au visage glacial poussa la porte et entra. Grand et maigre, il portait une longue robe de toile bleu-vert dont le bas, à une dizaine de centimètres de l'ourlet, était brodé de sept fleurs de prunier dorées, chacune ornée d'un point rouge en son centre.
+
+La fleur de prunier est une chose élégante. Si elle était dorée, elle paraîtrait vulgaire; mais ce rouge en son centre transforme toute l'impression qu'elle donne, le vulgaire devenant sinistre et l'élégance, étrange.
 
 De nombreux cultivateurs discutaient dans l'auberge, mais lorsque le vieil homme entra, le silence se fit. Quelques regards se tournèrent vers lui avant de se détourner.
 
@@ -82,7 +84,7 @@ Une fois entré, le vieil homme ne prit même pas garde aux alentours et s'assit
 
 À ce moment-là, le brouhaha reprit dans l'auberge.
 
-À une table voisine, quelques cultivateurs aux visages inquiets chuchotaient: « Ce démon s'est frayé un chemin jusqu'ici et a combattu Jie Donglei de la Secte de la Lutte contre le Mal pendant trois jours et trois nuits. Finalement, il a utilisé un mystérieux trésor magique pour terrasser Jie Donglei en un instant, avant de suppliciter son corps pendant sept jours et sept nuits. Héhé, je parie que la ville de Nan Dou aura un nouveau maître. »
+À une table voisine, quelques cultivateurs aux visages inquiets chuchotaient: « Ce démon s'est frayé un chemin jusqu'ici et a combattu Jie Donglei de la Secte de la Lutte contre le Mal, au mont du Dragon, pendant trois jours et trois nuits. Finalement, il a utilisé un mystérieux trésor magique pour terrasser Jie Donglei en un instant, avant de suppliciter son corps pendant sept jours et sept nuits. Héhé, je parie que la ville de Nan Dou aura un nouveau maître. »
 
 L'expression du vieil homme changea à l'évocation d'un « mystérieux trésor magique ».
 
@@ -94,7 +96,7 @@ Un jeune homme au visage froid prit une gorgée et ricana: « Taisez-vous donc. 
 
 Dès que le vieil homme entendit les mots « sort de la mort », ses yeux s'illuminèrent instantanément.
 
-Le jeune homme ricana en prenant une autre gorgée: « À mon avis, puisque cet homme fait l'objet d'un ordre de capture, s'il se trouve encore dans la ville de Nan Dou, sa fin est proche. Pour l'instant, aucun cultivateur de l'Âme Naissante n'est près de la ville, mais une fois la nouvelle répandue, ils pourraient débarquer ici. Si j'étais lui, je trouverais un endroit où me terrer pendant ces cent jours. »
+Le jeune homme ricana en prenant une autre gorgée: « À mon avis, puisque cet homme fait l'objet d'un ordre de capture, s'il se trouve encore dans la Mer des Démons, sa fin est proche. Pour l'instant, aucun cultivateur de l'Âme Naissante n'est près de la ville, mais une fois la nouvelle répandue, ils pourraient débarquer ici. Si j'étais lui, je trouverais un endroit où me terrer pendant ces cent jours. »
 
 « Un ordre de capture de cent jours?! » Les yeux du vieil homme s'illuminèrent encore davantage. Sa main droite jaillit et le visage du jeune homme devint brusquement rouge alors que son cou était saisi par une force invisible et tiré vers l'avant.
 

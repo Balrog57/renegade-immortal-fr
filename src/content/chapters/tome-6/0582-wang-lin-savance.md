@@ -16,7 +16,7 @@ Chacun de ces généraux démons était suivi par des cultivateurs. À cet insta
 
 Le vice-commandant Xuan ouvrit les yeux et fixa l'un des généraux démons avec indignation, laissant échapper un léger reniflement méprisant.
 
-La personne qu'il observait n'était autre que Wang Lin. Ce dernier, marchant derrière Mo Lihai, leva la tête pour croiser le regard du vice-commandant Xuan avant de le détourner.
+La personne qu'il observait n'était autre que Wang Lin. Ce dernier, marchant aux côtés de Mo Lihai, leva la tête pour croiser le regard du vice-commandant Xuan avant de le détourner.
 
 Mo Lihai fronça les sourcils en contemplant le siège vide au loin et murmura pour lui-même: « Étrange, pourquoi l'Empereur Démon n'est-il pas encore là... »
 
@@ -96,13 +96,13 @@ Shi Xiao retira sa main et déclara calmement: « Je l'ai dit, tu n'es pas à la
 
 À peine eut-il fini de parler que le sol se mit à trembler et qu'un individu émergea de la foule des généraux démons. Ce colosse pesait au moins plusieurs centaines de kilos. Son torse était nu et chacun de ses pas faisait vaciller la terre.
 
-Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le vénérable Tian Lui de la Secte des Esprits Géants, je suis l'adjoint du général démon Mu Yun! »
+Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le vénérable Tian Kui de la Secte des Esprits Géants, je suis l'adjoint du général démon Mu Yun! »
 
-Wang Lin observa l'homme massif. Le Secte des Esprits Géants était une puissance majeure de la planète Tian Yun, semblable à la Secte des Démons Géants par son culte de la force brute!
+Wang Lin observa l'homme massif. Le Secte des Esprits Géants était une puissance majeure de la planète Tian Yun, semblable au Clan des Démons Géants par son culte de la force brute!
 
 Le géant poussa un rugissement et fit un pas en avant; alors, une énergie spirituelle céleste jaillit de ses pores pour se transformer en brume. Dissimulé dans ce nuage, il fonça sur Shi Xiao!
 
-Le sol tremblait comme si des dizaines de milliers de chevaux de guerre galopaient. La silhouette évoluait rapidement au sein de la brume céleste, accompagnée par des ondes de chants mystiques. Soudain, une force occulte enveloppa les mille pieds environnants pour créer un périmètre d'emprisonnement!
+Le sol tremblait comme si des dizaines de milliers de chevaux de guerre galopaient. La silhouette évoluait rapidement au sein de la brume céleste, accompagnée par des ondes de chants mystiques. Soudain, une force occulte enveloppa les environs sur trois cents mètres pour créer un périmètre d'emprisonnement!
 
 Parmi les généraux démons, un homme corpulent vêtu de vert et portant une épée gigantesque dans le dos observait la scène en murmurant: « L'apparence actuelle de cet homme ressemble étrangement à mon esprit d'épée... »
 
@@ -116,7 +116,7 @@ Shi Xiao était d'une rapidité fulgurante!
 
 L'homme gras poussa un rugissement, mais l'impact dévastateur du cône dissipa sa puissance corporelle. Son expression changea brusquement et il tenta de reculer immédiatement.
 
-Bang! Bang! Bang! Sous ses pas, le sol se brisa. L'homme recula de trois enjambées, parcourant des dizaines de pieds, tandis que chair et sang explosaient de son corps à chaque mouvement. Après ce troisième pas de recul, son corps entier vola en éclats, éparpillant des morceaux de viande sur toute la place.
+Bang! Bang! Bang! Sous ses pas, le sol se brisa. L'homme recula de trois enjambées, parcourant plusieurs mètres, tandis que chair et sang explosaient de son corps à chaque mouvement. Après ce troisième pas de recul, son corps entier vola en éclats, éparpillant des morceaux de viande sur toute la place.
 
 Cinq fils ténus s'échappèrent des débris de chair pour fusionner avec le corps de Shi Xiao.
 

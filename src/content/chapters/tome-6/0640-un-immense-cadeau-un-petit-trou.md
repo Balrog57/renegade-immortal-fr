@@ -64,7 +64,7 @@ Zhou Yi laissa échapper un soupir. Puis son corps devint flou et il pénétra d
 
 Wang Lin remit Xu Liguo, qui était toujours dans un état second, absorbant l'héritage, à l'intérieur de l'épée céleste et poursuivit Zhou Yi.
 
-« L'aura du dernier esprit d'épée des Épées Célestes de la Pluie? Pourrait-il... pourrait-il s'agir de Wealth?! » Le cœur de Wang Lin trembla.
+« L'aura du dernier esprit d'épée des Épées Célestes de la Pluie? Pourrait-il... pourrait-il s'agir de la Richesse?! » Le cœur de Wang Lin trembla.
 
 Zhou Yi menait la marche, et avec son énergie d'épée qui fendait l'air, tous les obstacles s'écartaient. Ils arrivèrent directement au fond de l'Abîme des Marées. L'endroit consistait en un immense corridor sinueux débouchant sur un gouffre sans fin. Il était si profond que même le Sens Divin ne pouvait en atteindre le fond.
 
@@ -78,7 +78,7 @@ Dans son esprit, il semblait voir l'éruption du gouffre créer une force d'aspi
 
 Les mystères de la création firent ressentir à Wang Lin sa propre insignifiance. Quel genre de sort pourrait résister à une telle éruption de force d'aspiration tous les 5 000 ans... Quel genre de pouvoir pouvait atteindre une telle puissance?
 
-« Même l'Omniscient ne pourrait pas faire cela... Je me demande si la personne dont l'Omniscient a parlé, celle qui aurait franchi le troisième seuil, pourrait... » Wang Lin prit une profonde inspiration et commença à réfléchir.
+« Même l'Omniscient ne pourrait pas faire cela... Je me demande si la personne dont l'Omniscient a parlé, celle qui aurait franchi la troisième étape, pourrait... » Wang Lin prit une profonde inspiration et commença à réfléchir.
 
 Où ce gouffre menait-il? Wang Lin l'ignorait et ne pouvait le deviner. Cependant, il savait que s'il y tombait, il lui serait impossible de ressortir!
 

@@ -16,11 +16,11 @@ Une fois le cristal brisé, une grande partie de son contenu serait perdue. De p
 
 Après avoir saisi le cristal, sans perdre un instant, il le porta vers son visage pour l'écraser contre son front. Cependant, avant qu'il ne puisse atteindre sa cible, une voix glaciale l'interrompit: « Si tu oses bouger, je te dévorerai pour accroître mes propres connaissances! »
 
-Le bras droit du Magicien Démon Céleste trembla. Il connaissait trop bien cette voix. Il n'était pas étonnant que la restriction ait été si facilement brisée. Cet individu était l'un des dix généraux du maître de la Mer Sanguine. En termes de culture, il représentait déjà une puissance dépassant l'entendement des habitants du Système Stellaire Suzaku.
+Le bras droit du Magicien Démon Céleste trembla. Il connaissait trop bien cette voix. Il n'était pas étonnant que la restriction ait été si facilement brisée. Cet individu était l'un des dix généraux de la Mer de Sang, juste après le maître. En termes de culture, il représentait déjà une puissance dépassant l'entendement des habitants du Système Stellaire Suzaku.
 
 On pouvait affirmer avec justesse que cet homme était un cultivateur antique qui n'était encore en vie aujourd'hui que grâce à des circonstances exceptionnelles.
 
-« Ce subordonné, grand Seigneur Duo Mu... »
+« Ce subordonné, grand Seigneur Dou Mu... »
 
 Le Magicien Démon Céleste força un sourire. Il n'osa pas bouger sa main droite. Même s'il commençait à absorber le cristal de glace, le processus prendrait du temps, et si l'homme devant lui décidait de le tuer, cela ne prendrait qu'une seconde.
 
@@ -36,7 +36,7 @@ Le cœur de Wang Lin fut saisi par l'effroi. Il eut l'impression que cet homme p
 
 Cet individu était capable de détecter la Perle Défiant le Ciel. Cela le surprit profondément. Il prit une grande inspiration et cligna des yeux à plusieurs reprises.
 
-Sous ce regard, le Magicien Démon Céleste se sentit mis à nu, mais ayant survécu dans la Mer Sanguine jusqu'à présent, il possédait ses propres méthodes pour faire face aux situations critiques. Dès l'apparition de l'homme, une étrange énergie spirituelle commença à circuler silencieusement en lui. Rapidement, la sensation d'être percé à jour commença à s'estomper.
+Sous ce regard, le Magicien Démon Céleste se sentit mis à nu, mais ayant survécu dans la Mer de Sang jusqu'à présent, il possédait ses propres méthodes pour faire face aux situations critiques. Dès l'apparition de l'homme, une étrange énergie spirituelle commença à circuler silencieusement en lui. Rapidement, la sensation d'être percé à jour commença à s'estomper.
 
 Le regard de l'homme d'âge moyen parcourut le Magicien Démon Céleste jusqu'à se poser sur le cristal de glace qu'il tenait dans sa main droite. Il tendit la main, et le cristal vola hors de la main du Magicien Démon Céleste pour atterrir dans la sienne.
 
@@ -90,7 +90,7 @@ Le doute s'installa dans son esprit. Il semblait que le cristal de glace s'étai
 
 Il fronça les sourcils. Le Magicien Démon Céleste avait-il vraiment consenti de tels sacrifices, allant jusqu'à tuer son disciple, pour obtenir cette chose? L'homme d'âge moyen avait-il raison de la traiter de déchet?
 
-Wang Lin plissa les yeux. Alors qu'il s'apprêtait à progresser vers sa Mer de Connaissance, une douleur fulgurante lui lacéra la tête.
+Wang Lin plissa les yeux. Alors qu'il s'apprêtait à progresser vers sa Mer de Connaissance, une légère douleur lui traversa la tête.
 
 La douleur fut d'abord légère et disparut aussi vite qu'elle était apparue. Mais quelques instants plus tard, une souffrance bien plus intense surgit. Ce cycle se répéta frénétiquement, transformant une simple gêne en une agonie atroce.
 

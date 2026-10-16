@@ -10,7 +10,7 @@ Ce qui apparut devant Maître Hollow Wind était un soleil rouge, et sous ce sol
 
 Cependant, au moment où le soleil surgit de la mer, il ressentit une douleur fulgurante parcourir son corps. C'était comme si sa chair était mise en pièces. Même son âme originelle fut emportée dans ce tourment. C'était une souffrance qu'il n'avait jamais connue auparavant; il se sentait littéralement démembré!
 
-Un puissant sentiment de crise vitale envahit le cœur de Maître Hollow Wind. Horrifié par la scène qui se déroulait sous ses yeux, il ouvrit les bras en grand. Une tempête d'énergie originelle descendit du ciel alors qu'il tentait de résister au pouvoir de la Nuit Brisée.
+Un puissant sentiment de crise vitale envahit le cœur de Maître Hollow Wind. Horrifié par la scène qui se déroulait sous ses yeux, il ouvrit les bras en grand. Une tempête d'énergie originelle jaillit de son corps et s'éleva vers le ciel alors qu'il tentait de résister au pouvoir de la Nuit Brisée.
 
 Pourtant, à peine son énergie originelle s'était-elle déployée qu'elle fut transpercée par le soleil ardent, tout comme l'obscurité de la nuit est balayée par la lumière.
 
@@ -22,7 +22,7 @@ La tempête vola en éclats, comme déchirée par une force invisible. En un ins
 
 Des filaments d'énergie originelle surgirent du vide pour converger devant Maître Hollow Wind tels des dragons rugissants. Rapidement, ils formèrent une sphère d'énergie originelle devant lui.
 
-Bien que cette sphère ne fût pas de grande taille, la force destructrice qu'elle recelait était de nature à terrasser n'importe quel cultivateur de l'Éclaireur de Nirvana!
+Bien que cette sphère ne fût pas de grande taille, la force destructrice qu'elle recelait était de nature à terrasser n'importe quel cultivateur de le Scruteur du Nirvana!
 
 Dès que la sphère apparut, les couleurs du monde basculèrent et la planète trembla. L'expression des trois frères Chen changea radicalement et ils furent contraints de battre en retraite.
 
@@ -38,7 +38,7 @@ Cette boule d'énergie jaillit comme un éclair vers le soleil flamboyant!
 
 La sphère d'énergie était extrêmement rapide et fonça droit sur le soleil. À mesure qu'elle approchait, une force colossale jaillit du disque solaire et percuta sans pitié la boule d'énergie originelle.
 
-Un grondement tonnerre résonna à travers le monde. Ce fracas se propagea même dans l'espace entourant la planète Water Spirit, faisant apparaître de vastes fissures sur sa surface.
+Un grondement tonnerre résonna à travers le monde. Ce fracas se propagea même dans l'espace entourant la planète Esprit d'Eau, faisant apparaître de vastes fissures sur sa surface.
 
 La sphère d'énergie s'effondra!
 

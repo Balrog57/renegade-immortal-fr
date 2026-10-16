@@ -56,9 +56,9 @@ La Lune était actuellement infiniment plus calme que la planète Suzaku. Il ne 
 
 Zhou Ru n'avait pas prononcé un mot depuis un an entier. Le temps qu'elle passait à dormir avait considérablement augmenté; elle dormait désormais la majeure partie de la journée.
 
-Little White restait toujours à ses côtés, et la tristesse dans ses yeux s'accentuait chaque jour davantage.
+Petit Blanc restait toujours à ses côtés, et la tristesse dans ses yeux s'accentuait chaque jour davantage.
 
-Quant à Little Violent, ne comprenant rien à la situation, il se contentait de rester allongé au sol, regardant Zhou Ru et Little White d'un air confus.
+Quant à Petit Violet, ne comprenant rien à la situation, il se contentait de rester allongé au sol, regardant Zhou Ru et Petit Blanc d'un air confus.
 
 Le Sens Divin de Wang Lin était constamment focalisé sur Zhou Ru afin de surveiller l'Âme Naissante de Li Muwan. Il maintenait également son corps en condition optimale pour pouvoir affronter le messager céleste à tout instant.
 
@@ -74,7 +74,7 @@ Zhou Ru passa tout le dernier mois à dormir.
 
 Elle ne se réveilla pas une seule fois durant ce mois. L'Âme Naissante de Li Muwan avait commencé à la dévorer.
 
-Little White et Little Violet avaient été scellés par Wang Lin pour éviter qu'ils n'interfèrent avec l'éveil de Li Muwan. Il se tenait actuellement aux côtés de Zhou Ru, le cœur serré en regardant la jeune fille.
+Petit Blanc et Petit Violet avaient été scellés par Wang Lin pour éviter qu'ils n'interfèrent avec l'éveil de Li Muwan. Il se tenait actuellement aux côtés de Zhou Ru, le cœur serré en regardant la jeune fille.
 
 « Oncle, qui es-tu? »
 « Oncle, merci de m'avoir sauvée... »
@@ -141,7 +141,7 @@ Ce visage paraissait extrêmement ordinaire, mais quiconque le contemplait resse
 
 Il fixa froidement Wang Lin et ouvrit la bouche. Un filament de lumière grise s'en échappa soudainement pour former une roue. Dès l'apparition de cette roue, les couleurs du ciel changèrent et la terre trembla.
 
-D'innombrables fissures commencèrent à se propager autour de Wang Lin, qui en était le centre; en un clin d'œil, le terrain dans un rayon de 5 000 kilomètres commença à se déchirer.
+D'innombrables fissures commencèrent à se propager autour de Wang Lin, qui en était le centre; en un clin d'œil, le terrain dans un rayon de plus de dix mille kilomètres commença à se déchirer.
 
 Une multitude de failles spatiales apparurent dans le ciel. Ces déchirures s'entrelacèrent, donnant l'impression que la voûte céleste allait s'effondrer.
 

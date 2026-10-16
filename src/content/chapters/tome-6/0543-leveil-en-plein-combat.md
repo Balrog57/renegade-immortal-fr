@@ -38,19 +38,19 @@ C'était comme si le ciel tout entier s'écroulait, avec Wang Lin pour unique po
 
 Une aura destructrice jaillit de toutes les directions pour s'abattre sur lui. La lumière noire brilla intensément tandis que l'énergie spirituelle céleste en son corps circulait avec frénésie. Soudain, la lueur noire à l'extrémité de son doigt s'élargit pour recouvrir l'intégralité de son corps.
 
-Un fracas assourdissant résonna dans toute la Cité de l'Ancien Démon. Le visage de Wang Lin devint livide et il fut projeté en arrière de plusieurs pas avant de réussir à stabiliser sa posture.
+Un fracas assourdissant résonna dans toute la Grande Muraille Antique. Le visage de Wang Lin devint livide et il fut projeté en arrière de plusieurs pas avant de réussir à stabiliser sa posture.
 
 Son index droit tremblait légèrement, totalement engourdi.
 
-La force destructrice qui s'était abattue sur lui se retira rapidement, tel un reflux de marée, pour mieux revenir vers lui avec une puissance dix fois supérieure!
+La force destructrice qui s'était abattue sur lui se retira rapidement, tel un reflux de marée, pour mieux revenir vers lui avec une puissance plus de dix fois supérieure!
 
 Le second effondrement arriva! Sa vitesse était plusieurs fois plus grande que celle du premier, et il frappa de tous les côtés presque instantanément.
 
 L'index droit de Wang Lin tremblait encore. La puissance du Doigt Démoniaque n'avait suffi qu'à lui permettre de résister au premier effondrement.
 
-« Ce n'est absolument pas un sort qu'un cultivateur de la Transformation de l'Âme peut utiliser! Même parmi les Ascendants, seul un sur dix peut maîtriser une telle technique! » Un éclat mystérieux brilla dans les yeux de Wang Lin.
+« Ce n'est absolument pas un sort qu'un cultivateur de la Transformation de l'Âme peut utiliser! Même parmi les Ascendants, seul un ou deux sur dix peut maîtriser une telle technique! » Un éclat mystérieux brilla dans les yeux de Wang Lin.
 
-La puissance du second effondrement était dix fois plus grande que celle du premier. À cet instant, le ciel dans un rayon de 33 kilomètres s'obscurcit comme lors d'une tempête de sable. Même le tourbillon éternel au-dessus du palais fut affecté.
+La puissance du second effondrement était dix fois plus grande que celle du premier. À cet instant, le ciel dans un rayon de 3,3 kilomètres s'obscurcit comme lors d'une tempête de sable. Même le tourbillon éternel au-dessus du palais fut affecté.
 
 Wang Lin poussa un rugissement sourd; deux filaments de gaz gris apparurent sur sa main et ondulaient comme deux dragons. À cet instant, il utilisa l'Art du Massacre Céleste sans la moindre hésitation!
 
@@ -66,7 +66,7 @@ En utilisant son intention de tuer capable de faire trembler les cieux, elle for
 
 Au même moment, Wang Lin fit un pas et chargea tel une météorite. Tandis qu'il tendait sa main droite, le vortex gris se dissipa soudainement pour redevenir deux filaments de gaz dans sa paume.
 
-« Condense! » Dans un rugissement, les deux brins de gaz se condensèrent rapidement en une épée de sept pouces dans la main de Wang Lin. Armé de cette lame, son corps dégageait une intention meurtrière effrayante.
+« Condense! » Dans un rugissement, les deux brins de gaz se condensèrent rapidement en une épée de 2,3 mètres de long dans la main de Wang Lin. Armé de cette lame, son corps dégageait une intention meurtrière effrayante.
 
 À cet instant, Wang Lin semblait être devenu une autre personne. L'aura céleste qui l'entourait avait disparu, remplacée par une soif de sang pure!
 
@@ -74,9 +74,9 @@ Il ressemblait désormais à un démon de carnage. Tenant son épée de massacre
 
 Le général de l'aile gauche laissa échapper une exclamation, puis ses yeux brillèrent: « Bien! Tu es l'un des rares à avoir décidé d'attaquer durant mon Intention de Combat des Dix Effondrements! Voyons si tu peux franchir les huit prochains effondrements et arriver jusqu'à moi! »
 
-Au loin, la femme en robe blanche, la fille de l'Ancêtre de Sang Yao Xixu, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Cité de l'Ancien Démon il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
+Au loin, la femme en robe blanche, la fille de l'Ancêtre de Sang Yao Xixue, observait la scène en fronçant légèrement les sourcils. Lorsqu'elle était arrivée à la Grande Muraille Antique il y a trois ans, elle avait été vaincue par ce sort. Cette technique était d'une tyrannie absolue et, avec son niveau de culture, elle avait failli succomber dès le quatrième effondrement. Sans le sort de sang que son père lui avait enseigné, elle n'aurait pas pu résister au cinquième!
 
-Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche était un homme difficile à cerner, puisqu'il lui avait accordé le titre de commandante!
+Pourtant, elle finit par céder au huitième effondrement. Le général de l'aile gauche était un homme difficile à cerner, puisqu'il lui avait accordé le titre de commandante! Le rang de commandant en chef, immédiatement inférieur à celui de général, n'était détenu que par quatre personnes dans toute la Grande Muraille Antique.
 
 Les commandants étaient rares: ils n'étaient que seize au total!
 

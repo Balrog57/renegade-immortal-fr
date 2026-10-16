@@ -32,7 +32,7 @@ Le feu brûlait avec une intensité croissante hors du cocon. Chaque fois que la
 
 Cette flamme céleste brûlait avec éclat à l'intérieur du corps de Wang Lin. Elle était invisible à l'œil nu, mais si l'on utilisait son Sens Divin, on aurait pu contempler la scène: Wang Lin émettant une flamme prodigieuse de tout son être.
 
-« Chercher le Dao le matin et mourir le soir » est un adage que tout cultivateur Ascendant connaît, et cela a un lien étroit avec cette flamme. Si l'on ne parvient pas à franchir cette épreuve, la flamme passera de l'éthéré au réel et réduira l'âme originelle et le corps en cendres en un instant!
+« Entendre le Dao le matin et mourir le soir » est un adage que tout cultivateur Ascendant connaît, et cela a un lien étroit avec cette flamme. Si l'on ne parvient pas à franchir cette épreuve, la flamme passera de l'éthéré au réel et réduira l'âme originelle et le corps en cendres en un instant!
 
 Le cocon d'âme originelle au cœur des flammes devint encore plus vibrant, et le parchemin de la vie et de la mort à l'intérieur du cocon changeait également. Il semblait sur le point de fondre pour fusionner avec le cocon.
 
@@ -108,7 +108,7 @@ Le jeune homme poussa un soupir et marmonna: « C'est étrange. Cela fait dix an
 
 La capitale de la Cité des Démons Célestes!
 
-Après la reconstruction de la ville, une demeure très glorieuse fut bâtie sur le côté est. Cette demeure arborait une grande plaque portant six grands caractères:
+Après la reconstruction de la ville, une demeure très glorieuse fut bâtie sur le côté est. Cette demeure arborait une grande plaque portant quatre grands caractères:
 
 « Résidence du Vice-Commandant en Chef Terrestre »
 

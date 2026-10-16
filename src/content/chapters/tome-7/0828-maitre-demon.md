@@ -30,7 +30,7 @@ L'expression de Yao Bingyun changea pour la première fois. Elle fixa le vent gl
 
 Le regard de Wang Lin devint résolu. Puisqu'il ne pouvait la vaincre, il décida simplement de fuir rapidement!
 
-Wang Lin fit un pas en arrière, des ondulations apparurent sous ses pieds et il disparut. Yao Bingyun voulut le poursuivre, mais le vent glacial projeté par le dragon noir dépassa ses espérances. Même en fusionnant avec le monde, elle ne put l'éviter.
+Wang Lin fit un pas en arrière, des ondulations apparurent sous ses pieds et il disparut. Yao Bingyun voulut le poursuivre, mais le vent glacial projeté par le dragon noir dépassa ses prévisions. Même en fusionnant avec le monde, elle ne put l'éviter.
 
 Le visage de Yao Bingyun s'assombrit alors qu'elle formait un sceau, faisant apparaître instantanément un noyau bleu devant elle. Ce noyau était d'une luminosité éclatante et d'une couleur vibrante. Dès qu'il apparut, il fut percuté par le vent glacial. Après une série de craquements, le vent disparut, mais le noyau bleu s'était terni comme s'il avait perdu son essence.
 
@@ -58,7 +58,7 @@ S'il était forcé d'apparaître en plein milieu et d'être attaqué par tous ce
 
 À cet instant précis, quelques Sens Divins accoururent rapidement, et l'un d'eux n'hésita pas à perturber l'énergie originelle de la région. Des rugissements retentirent au loin alors qu'une multitude de cultivateurs se précipitait.
 
-L'énergie originelle fut troublée, forçant le corps de Wang Lin à apparaître à 5 000 kilomètres de là. Son expression devint encore plus sombre et il s'enfuit promptement.
+L'énergie originelle fut troublée, forçant le corps de Wang Lin à apparaître à 3,3 kilomètres de là. Son expression devint encore plus sombre et il s'enfuit promptement.
 
 « Xu Mu est là!! »
 « Xu Mu est là, tuez-le! »
@@ -94,7 +94,7 @@ L'intention meurtrière dans les yeux de Wang Lin redoubla d'intensité alors qu
 
 « La seule façon de gérer cette affaire est de les terrasser par l'effroi! Et le meilleur moyen de les effrayer est de massacrer leurs planètes! » Les yeux de Wang Lin étaient injectés de rage meurtrière. Il n'était pas un homme de bien, et à cet instant, il se trouvait piégé dans le Domaine Occidental par la famille Yao et ces clans. S'il ne faisait pas preuve d'une impitoyabilité absolue, une fois encerclé, il n'aurait d'autre choix que d'attendre la mort!
 
-De plus, ce qui inquiétait Wang Lin, c'était la présence des véritables experts de la famille Yao et des autres clans. Même un seul cultivateur ayant atteint le stade du Scruteur du Nirvana serait difficile à repousser pour lui!
+De plus, ce qui inquiétait Wang Lin, c'était la présence des véritables experts de la famille Yao et des autres clans. Même un seul cultivateur ayant atteint le stade du Purificateur du Nirvana serait difficile à repousser pour lui!
 
 Si la planète Dong Lin était si célèbre et si son nom faisait trembler les âmes, c'était parce que chaque fois qu'un descendant de cette lignée apparaissait, quiconque le provoquait voyait sa planète entière massacrée!
 
@@ -104,7 +104,7 @@ Wang Lin n'avait pas voulu en arriver là, mais il y était désormais contraint
 
 Aucun cri ne fut entendu. Wang Lin traversa la planète tel un tourbillon dévorant les vies. En moins du temps qu'il faut pour brûler la moitié d'un bâton d'encens, il fusionna avec le monde et disparut.
 
-Il quitta cette planète de culture, laissant derrière lui des fleuves de sang, sans qu'un seul cultivateur au stade de la Transformation de l'Âme ou supérieur ne subsiste! Quant aux mortels, Wang Lin n'en toucha pas un seul. Il savait que ceux en dessous du stade de la Transformation de l'Âme ne pouvaient être impliqués, il n'agit donc pas contre eux.
+Il quitta cette planète de culture, laissant derrière lui des fleuves de sang, sans qu'un seul cultivateur au stade de la Transformation de l'Âme ou supérieur ne subsiste! Quant aux mortels, Wang Lin n'en toucha pas un seul. Il savait que ceux en dessous du stade de la Formation de l'Âme ne pouvaient être impliqués, il n'agit donc pas contre eux.
 
 Avant de partir, il leva la main et frappa le sol. Après un violent grondement, deux grands caractères apparurent sur la terre:
 
@@ -112,13 +112,13 @@ Avant de partir, il leva la main et frappa le sol. Après un violent grondement,
 
 Une fois Wang Lin parti, des ondulations se formèrent aussitôt et Yao Bingyun apparut. En découvrant l'état de la planète, son expression devint extrêmement sombre. Une intention meurtrière traversa ses yeux et elle poursuivit sa traque.
 
-Les yeux de Wang Lin étaient injectés de sang lorsqu'il réapparut en divers points du Domaine Occidental. À chaque apparition, une planète se trouvait à ses côtés. Si aucun cultivateur Illuso Yin n'y était présent, il faisait demi-tour et repartait.
+Les yeux de Wang Lin étaient injectés de sang lorsqu'il réapparut en divers points du Domaine Occidental. À chaque apparition, une planète se trouvait à ses côtés. Si des cultivateurs Illuso Yin s'y trouvaient, il faisait demi-tour et repartait.
 
 Cependant, s'il n'y avait aucun cultivateur Illuso Yin sur la planète, cela signifiait qu'ils étaient impliqués dans sa poursuite; alors, un bain de sang éclatait sur le monde!
 
 « Vous m'avez forcé! Le fait que vous me traquiez sans autre raison que la récompense de la famille Yao est la cause karmique; le massacre de vos planètes est l'effet karmique! » Wang Lin n'aimait pas tuer, mais il y était poussé et n'avait plus d'autre choix!
 
-En l'espace de seulement trente jours, une tempête sanglante balaya le Domaine Occidental. Des nouvelles qui en colérirent les cultivateurs tout en les terrifiant se propagèrent.
+En l'espace de seulement trente jours, une tempête sanglante balaya le Domaine Occidental. Des nouvelles qui mettaient les cultivateurs en colère tout en les terrifiant se propagèrent.
 
 Des dizaines de planètes de culture avaient vu tous leurs cultivateurs du stade de la Transformation de l'Âme ou supérieur massacrés. La seule trace subsistante était les deux mots « Xu Mu » profondément gravés dans le sol.
 

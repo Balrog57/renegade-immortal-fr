@@ -55,7 +55,7 @@ Lorsqu'il était entré dans le Cimetière des Immortels, il avait aperçu quelq
 
 Wang Lin ressentait une profonde amertume. Il savait que si cette poursuite se poursuivait, son âme originelle serait totalement consumée par le tatouage avant même qu'il n'ait épuisé ses pilules.
 
-Il effleura son sac de rangement. À l'intérieur se trouvait un sac de rangement que le Grand Ancien de la Secte des Cadavres lui avait offert. Cependant, il ignorait où il se trouvait actuellement; comment pourrait-il appeler le Grand Ancien à sa rescousse?
+Il effleura son sac de rangement. À l'intérieur se trouvait une tablette de jade que le Grand Ancien de la Secte des Cadavres lui avait offerte; elle permettait de le faire venir en renfort une fois, pour sauver une vie. Cependant, il ignorait où il se trouvait actuellement; comment pourrait-il appeler le Grand Ancien à sa rescousse?
 
 Après une réflexion, son regard devint glacial. Au cours de ses 500 ans de culture, Wang Lin avait traversé d'innombrables situations de vie ou de mort. Ces expériences l'avaient rendu extrêmement déterminé à survivre. Plus la situation était périlleuse, plus il devenait calme.
 

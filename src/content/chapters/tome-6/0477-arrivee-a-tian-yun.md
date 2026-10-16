@@ -78,7 +78,7 @@ Une passion profonde s'empara de lui alors qu'il contemplait silencieusement la 
 
 Wang Lin prit une grande inspiration, mais au lieu de s'avancer, il fit un pas en arrière. Son corps entier, ainsi que le dragon argenté, reculèrent brusquement.
 
-Trois jours plus tard, il arriva près d'une petite planète déserte. Le corps de Wang Lin vacilla et son corps original apparut.
+À trois jours de vol derrière lui, il atteignit une petite planète déserte. Le corps de Wang Lin vacilla et son corps original apparut.
 
 Dès son apparition, le corps original s'élança. Il s'enfonça profondément dans le noyau de la planète déserte pour commencer sa culture.
 
@@ -96,7 +96,7 @@ Wang Lin s'arrêta à la lisière de ce brouillard. En l'observant, il ressentit
 
 « Et les cinq planètes qui l'entourent possèdent également leurs propres formations, sans parler des astres encore plus lointains. »
 
-Tandis que Wang Lin méditait, ses yeux s'illuminèrent soudainement; il recula de mille pieds et observa le gaz vert avec une expression grave.
+Tandis que Wang Lin méditait, ses yeux s'illuminèrent soudainement; il recula de 330 mètres et observa le gaz vert avec une expression grave.
 
 Le brouillard mouvait comme si d'immenses mains le manipulaient, se scindant sous cette force. Au même moment, un jeune homme vêtu d'une robe noire apparut. Son visage était ordinaire et son regard calme alors qu'il interrogeait Wang Lin: « Avez-vous un message diplomatique? »
 

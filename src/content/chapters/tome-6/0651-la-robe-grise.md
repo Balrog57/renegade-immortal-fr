@@ -18,7 +18,7 @@ Un espace unique résidait à l'intérieur du jeton. Bien que l'endroit fût sat
 
 Il n'y avait qu'une seule chose à l'intérieur: une épée. Ce n'était pas une épée céleste, mais l'une des Douze Épées.
 
-Après réflexion, Wang Lin en déduisit que cette épée appartenait au dernier disciple de la lignée Da Lou Sword piégé dans la brume. Pour une raison quelconque, lorsque ce disciple fut sacrifié pour alimenter le jeton, l'épée fut absorbée par celui-ci.
+Après réflexion, Wang Lin en déduisit que cette épée appartenait au dernier disciple de la lignée de l'Épée Da Lou piégé dans la brume. Pour une raison quelconque, lorsque ce disciple fut sacrifié pour alimenter le jeton, l'épée fut absorbée par celui-ci.
 
 D'une simple pensée, l'épée s'envola et se planta dans le sol aux côtés de Wang Lin.
 
@@ -32,13 +32,15 @@ Après avoir méticuleusement exploré l'espace intérieur du jeton, Wang Lin re
 
 « Chen Long et Cupidité savent que j'ai obtenu le jeton. Cependant, Chen Long n'a pas tout vu. À sa place, je penserais que Cupidité aurait fini par s'emparer du jeton! »
 
+Wang Lin eut une lueur étrange dans les yeux. Il baissa de nouveau les yeux vers le jeton, puis l'avala sans hésiter et l'enveloppa dans son âme originelle, recouvert de foudre pour qu'on ne puisse rien en percevoir.
+
 Après une profonde inspiration, Wang Lin détourna le regard. En observant l'obscurité totale par la fissure, son visage se mua en une expression amère.
 
 « Même si j'ai obtenu le jeton, à quoi bon, alors que je suis piégé ici sans pouvoir m'échapper? Il est inutile de tenter une téléportation, puisque même des êtres aussi rusés que Cupidité ne l'ont pas fait une seule fois. Je me demande simplement si je peux entrer dans la grotte par ici. » Les yeux de Wang Lin se plissèrent tandis qu'il touchait son sac de rangement; un cristal apparut alors dans sa main.
 
 Après un long moment, Wang Lin poussa un soupir et esquissa un sourire amer. « Je ne parviens pas à l'activer! »
 
-Il réfléchit un instant et observa les environs. Cette fissure n'était pas large, elle ne faisait que quelques dizaines de pieds de large; il pouvait tout distinguer d'un seul regard. Peu après, il se leva et atteignit l'entrée de la brèche. La force d'aspiration extérieure était constante. En s'avançant un peu plus, il la sentit distinctement, son propre corps montrant déjà des signes d'aspiration.
+Il réfléchit un instant et observa les environs. Cette fissure n'était pas large, elle ne faisait qu'une dizaine de mètres de large; il pouvait tout distinguer d'un seul regard. Peu après, il se leva et atteignit l'entrée de la brèche. La force d'aspiration extérieure était constante. En s'avançant un peu plus, il la sentit distinctement, son propre corps montrant déjà des signes d'aspiration.
 
 Wang Lin recula, le regard vacillant.
 
@@ -70,7 +72,7 @@ Pourtant, à cet instant, après avoir dévoré deux énergies d'épée consécu
 
 Après avoir vérifié que son âme originelle était intacte, Wang Lin eut un sourire sardonique. « Peut-on encore appeler cela une âme originelle... » Il toucha de nouveau son sac de rangement pour en sortir une sphère de restrictions.
 
-La petite sphère grandit à sa sortie pour atteindre une hauteur de cinq pieds lorsqu'elle toucha le sol. D'innombrables restrictions scintillaient sur sa surface. La main droite de Wang Lin traça un sceau avant de pointer la sphère.
+La petite sphère grandit à sa sortie pour atteindre une hauteur d'environ 1,65 mètre lorsqu'elle toucha le sol. D'innombrables restrictions scintillaient sur sa surface. La main droite de Wang Lin traça un sceau avant de pointer la sphère.
 
 Une sphère de restrictions commença à se fendre en deux, tel une fleur s'épanouissant, révélant un homme séduisant à l'intérieur.
 

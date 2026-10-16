@@ -42,9 +42,9 @@ Le symbole commença aussitôt à fondre, se transformant en un étrange filamen
 
 Une fois le miroir de bronze rangé, Wang Lin ne plaça pas cette pseudo-restriction d'héritage sur les deux autres trésors magiques. À l'extérieur, le ciel s'éclaircissait progressivement. Wang Lin ferma les yeux et commença sa culture.
 
-Le soleil dominait le ciel et dissipait lentement les ténèbres. Wang Lin ouvrit les yeux, se leva et poussa la porte. La lumière solaire frappa son corps et une sensation de chaleur envahit immédiatement son esprit. L'énergie spirituelle environnante était si riche à cet instant que son esprit en devint instantanément limpide.
+Le soleil dominait le ciel et dissipait lentement les ténèbres. Wang Lin ouvrit les yeux, se leva et poussa la porte. La lumière solaire frappa son corps et une sensation de chaleur envahit immédiatement son esprit. L'énergie spirituelle environnante était si riche à cet instant que son esprit fut instantanément revigoré.
 
-Un sentiment de sérénité emplissait son cœur. Le corps de Wang Lin vacilla tandis qu'il avançait. En passant la sortie, il vit le jeune homme sous le rocher qui continuait sa culture pour absorber toutes les essences du ciel et de la terre.
+Un sentiment de sérénité emplissait son cœur. Wang Lin bougea légèrement, puis avança. En passant la sortie, il vit le jeune homme sous le rocher qui continuait sa culture pour absorber toutes les essences du ciel et de la terre.
 
 Ce n'est que lorsque la silhouette de Wang Lin fut loin que le jeune homme ouvrit les yeux, laissant paraître une lueur de mépris.
 
@@ -54,7 +54,7 @@ Le jeune homme détourna le regard et reprit sa culture. Sa vitesse s'accéléra
 
 Lors de son arrivée la veille, Wang Lin avait remarqué un marché libre sur le côté ouest de la ville, où de nombreux cultivateurs échangeaient des trésors magiques et des matériaux.
 
-« Il n'y a pas beaucoup de cultivateurs au stade de l'Âme Naissante là-bas, ce n'est donc pas le meilleur endroit », pensa Wang Lin avant de se diriger vers le jeune homme sous le rocher.
+« Il n'y a pas beaucoup de cultivateurs au-dessus du stade de la Transformation de l'Âme là-bas, ce n'est donc pas le meilleur endroit », pensa Wang Lin avant de se diriger vers le jeune homme sous le rocher.
 
 Wang Lin joignit les mains et demanda d'un ton empreint de douceur: « Cher compagnon cultivateur, sauriez-vous s'il existe dans la ville un endroit spécialisé dans les trésors de haut rang? »
 
@@ -70,13 +70,13 @@ Certains commerces, peut-être par coutume locale, exposaient d'incroyablement g
 
 Les yeux de Wang Lin pétillèrent d'intérêt. Ce genre d'étalage témoignait parfaitement de la puissance de ces boutiques. Il faut dire que des cultivateurs ordinaires ne pourraient jamais extraire de tels cristaux des veines spirituelles.
 
-La taille des cristaux était proportionnelle au prestige des enseignes. Certains mesuraient vingt pieds de haut, et leur simple présence imposait une sensation de pression.
+La taille des cristaux était proportionnelle au prestige des enseignes. Certains mesuraient près de 6,6 mètres de haut, et leur simple présence imposait une sensation de pression.
 
 Il y avait même une boutique dont l'extérieur était orné de cristaux de haute qualité. Cette découverte attira immédiatement l'attention de Wang Lin.
 
 Il examina attentivement l'établissement. La boutique n'était pas grande et ne comptait que deux étages. Bien qu'elle ne fût pas aussi majestueuse que ses voisines, elle était très élégante. Une plaque géante portait des caractères calligraphiés avec finesse: « Pavillon du Bambou Vert ».
 
-Wang Lin ne rentra pas; il détourna le regard et continua sa route. À l'extrémité est de la ville se dressait un immense pavillon. Il n'y avait pas un, mais huit cristaux spirituels devant cet édifice. Ces huit pierres de haute qualité, hautes de trente pieds, semblaient disposées selon une formation, dégageant d'incessantes vagues de pression spirituelle.
+Wang Lin ne rentra pas; il détourna le regard et continua sa route. À l'extrémité est de la ville se dressait un immense pavillon. Il n'y avait pas un, mais huit cristaux spirituels devant cet édifice. Ces huit pierres de haute qualité, hautes de près de 10 mètres, semblaient disposées selon une formation, dégageant d'incessantes vagues de pression spirituelle.
 
 Le pavillon semblait fusionner avec son environnement, offrant un aspect presque illusoire au regard. De longues bandes de cristal spirituel portaient trois mots gravés: « Pavillon du Trésor Intégral ».
 
@@ -94,7 +94,7 @@ Wang Lin fronça légèrement les sourcils.
 
 L'homme d'âge moyen, remarquant sa réaction, demanda soudainement: « Le compagnon cultivateur possède-t-il ces cent mille cristaux spirituels? »
 
-Wang Lin ne possédait pas beaucoup de cristaux dans son sac de rangement. Après tout, depuis qu'il avait atteint le stade de la Transformation de l'Âme, il utilisait principalement des jades célestes.
+Wang Lin ne possédait pas beaucoup de cristaux dans son sac de rangement. Après tout, depuis qu'il avait atteint le stade de la Formation de l'Âme, il utilisait principalement des jades célestes.
 
 L'homme sourit: « Le compagnon cultivateur ne remplit pas les conditions pour entrer. Et même si vous entriez, je crains que vous ne puissiez satisfaire la condition pour repartir. Veuillez vous retirer. »
 

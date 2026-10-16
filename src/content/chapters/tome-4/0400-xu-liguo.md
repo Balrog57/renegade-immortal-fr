@@ -14,7 +14,7 @@ Boum! Boum! Boum!
 
 Le visage de l'ancêtre du Clan des Démons Géants pâlit tandis qu'il crachait une large bouchée de sang, son corps s'affaiblissant. Sans la moindre hésitation, il frappa son sac de rangement, faisant apparaître l'épée céleste. Son expression devint féroce lorsqu'il hurla: « Wang Lin, accepte ta mort! » Puis, il projeta l'épée céleste et la pointa du doigt.
 
-Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan des Démons Géants et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant de plus de cent pieds à sa taille normale, bien que ses yeux brillaient toujours intensément.
+Le corps de Wang Lin fut projeté en arrière comme une météorite. Tout son bras droit était douloureux et engourdi; il avait totalement perdu toute sensation dans ce membre. La force combinée du corps de l'ancêtre du Clan des Démons Géants et de l'énergie spirituelle céleste lui infligea de lourds dommages, faisant passer son corps d'un géant d'une trentaine de mètres à sa taille normale, bien que ses yeux brillaient toujours intensément.
 
 Au moment où l'épée céleste apparut, un gaz noir s'en échappa, prenant la forme de Xu Liguo. Le visage de l'ancêtre du Clan des Démons Géants était livide lorsqu'il cria: « Tranche! »
 
@@ -50,7 +50,7 @@ Xu Liguo fut instantanément transporté par la joie. Durant ces deux dernières
 
 En ce moment, il se sentait très fier et pensa: « Ton grand-père Xu est toujours le plus malin. On dirait bien que j'ai pris la bonne décision. À l'avenir, ce démon me verra certainement sous un nouveau jour. »
 
-Pensant à la bonté dont l'ancêtre avait fait preuve à son égard, il ne put s'empêcher de ressentir une pointe de tristesse: « Pourquoi le Maître n'est-il pas arrivé il y a quelques années pour que je puisse en profiter un peu plus? Quelle malchance... »
+Pensant à la bonté dont l'ancêtre avait fait preuve à son égard, il ne put s'empêcher de ressentir une pointe de tristesse: « Pourquoi le Maître n'est-il pas venu quelques années plus tard, pour que je puisse en profiter un peu plus? Quelle malchance... »
 
 Surtout lorsqu'il pensa à cette petite fée, son cœur se serra: « Ne t'inquiète pas, petite sœur fée, je te sauverai certainement de la mer de feu! »
 
@@ -70,11 +70,11 @@ L'ancêtre du Clan des Démons Géants esquiva l'attaque et continua sa fuite. B
 
 « Wang Lin, cet endroit sera ta tombe! Ton corps servira à ma prochaine possession! » hurla l'ancêtre du Clan des Démons Géants avant de brandir la torche.
 
-Dans un fracas assourdissant, les 33 kilomètres environnants se transformèrent soudainement en une mer de feu.
+Dans un fracas assourdissant, les 3,3 kilomètres environnants se transformèrent soudainement en une mer de feu.
 
 « Bête de flammes noires! » cria-t-il tout en enfonçant la torche dans le sol. Il activa ensuite l'énergie céleste de son corps et commença à tracer des sceaux qu'il projeta tous sur la torche.
 
-La torche noire se mit rapidement à émettre une lumière démoniaque. Toutes les flammes environnantes commencèrent à converger mystérieusement vers elle, s'accumulant au-dessus de la torche pour former une bête de plus de cent pieds de haut.
+La torche noire se mit rapidement à émettre une lumière démoniaque. Toutes les flammes environnantes commencèrent à converger mystérieusement vers elle, s'accumulant au-dessus de la torche pour former une bête de plus de trente mètres de haut.
 
 Cette créature possédait une tête massive et un corps couvert d'épines enflammées. Elle ressemblait quelque peu à un ours, sans toutefois en être un véritablement.
 
@@ -96,7 +96,7 @@ Toutes les lances explosèrent dans un unique retentissement, créant une onde d
 
 Alors que l'onde approchait de Wang Lin, un drapeau d'âme s'élança. Ce n'était pas le drapeau aux un milliard d'âmes, mais le drapeau des mille âmes que Wang Lin avait lui-même raffiné. Cependant, avec Li Yuanfeng comme âme principale, il était devenu extrêmement puissant.
 
-D'un mouvement de la bannière, plus d'un millier de fragments d'âmes s'envolèrent, menés par le fragment de l'âme de Li Yuanfeng. Les souvenirs de ce dernier avaient été effacés depuis longtemps par Wang Lin; il n'était désormais qu'une âme primaire obéissant aux ordres du propriétaire du drapeau.
+D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envolèrent, menés par le fragment de l'âme de Li Yuanfeng. Les souvenirs de ce dernier avaient été effacés depuis longtemps par Wang Lin; il n'était désormais qu'une âme primaire obéissant aux ordres du propriétaire du drapeau.
 
 « Détruisez! » Les yeux de Wang Lin devinrent glacials. Plus d'un millier de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
 

@@ -14,7 +14,7 @@ En vérité, Zhuque Zi n'avait pas commencé à comploter contre lui à la derni
 
 Zhuque Zi planifiait cela depuis que Qian Feng était enfant. La raison pour laquelle il avait fait dévorer tous ces domaines par Qian Feng n'était pas pour le bien de ce dernier, mais pour le sien.
 
-La méthode qu'il utilisait sur Qian Feng était en réalité un sort secret que les précédents Suzakus avaient développé. Ce sort était incomplet et n'avait que 10 % de chances de réussir; même en cas de succès, il ne retarderait la mort que de quelques décennies.
+La méthode qu'il utilisait sur Qian Feng était en réalité un sort secret que les précédents Suzakus avaient développé. Ce sort était incomplet et n'avait moins de 10 % de chances de réussir; même en cas de succès, il ne retarderait la mort que de quelques décennies.
 
 De plus, ces quelques décennies de vie supplémentaire exigeaient un prix exorbitant.
 
@@ -32,7 +32,7 @@ Wang Lin agita le drapeau des âmes d'un milliard dans sa main, et d'innombrable
 
 L'expression de Qian Feng changea radicalement. Il frappa son sac de rangement et l'Aiguille Suzaku apparut rapidement. D'un mouvement sec, un rayon d'éclair rouge jaillit vers Wang Lin.
 
-Le visage de Wang Lin se glaça et il balança la hache. Une puissante énergie d'épée jaillit tandis qu'il lançait la hache dans un rugissement. Un bang sonique retentit alors que l'arme fendait l'air.
+Le visage de Wang Lin se glaça et il balança la hache. Une puissante énergie de hache jaillit tandis qu'il lançait la hache dans un rugissement. Un bang sonique retentit alors que l'arme fendait l'air.
 
 L'éclair rouge s'effondra instantanément sous la trajectoire de la hache qui descendait avec rapidité.
 
@@ -56,9 +56,9 @@ Confronté à l'attaque de deux âmes primaires, Qian Feng fut contraint de recu
 
 Une bourrasque soudaine surgit et chargea en avant. Ce vent semblait capable de contrer les âmes, ce qui fit hésiter momentanément les deux âmes primaires.
 
-Wang Lin laissa échapper un renflement froid, frappa son sac de rangement et quatre fourreaux d'épée identiques apparurent devant lui.
+Wang Lin laissa échapper un reniflement froid, frappa son sac de rangement et quatre fourreaux d'épée identiques apparurent devant lui.
 
-Une lueur de froideur traversa le regard de Wang Lin alors qu'il pointait l'avant; les quatre fourreaux s'élancèrent comme des météores. Quatre rayons d'énergie d'épée jaillirent des fourreaux, mesurant chacun trois pouces de long et dégageant une intention d'épée capable de faire trembler le ciel.
+Une lueur de froideur traversa le regard de Wang Lin alors qu'il pointait l'avant; les quatre fourreaux s'élancèrent comme des météores. Quatre rayons d'énergie d'épée jaillirent des fourreaux, mesurant chacun plus d'un mètre de long et dégageant une intention d'épée capable de faire trembler le ciel.
 
 « Brisez! » Les yeux de Wang Lin devinrent glacials alors que les quatre fourreaux, chargés d'intention d'épée, fonçaient sur leur cible.
 
@@ -68,7 +68,7 @@ Privés de l'obstacle de l'éventail, les deux âmes primaires se déplacèrent 
 
 Le visage de Qian Feng était livide. Il se retourna brusquement et cria: « Ceng Niu, ne me force pas! » En rugissant, il expulsa un rayon de lumière verte qui se mua en un morceau de bois verdoyant.
 
-Ce bois dégageait une aura étrange, puis grandit soudainement pour atteindre trente mètres de long.
+Ce bois dégageait une aura étrange, puis grandit soudainement pour atteindre une épaisseur d'environ trente-trois mètres.
 
 Le visage de Qian Feng était pâle lorsqu'il hurla: « Sculpte! »
 
@@ -98,13 +98,13 @@ Simultanément, Wang Lin abattit sa hache sur le bois vert. D'un seul coup, l'ob
 
 « Meurs! » En criant cela, Wang Lin lança la hache en avant. Au même instant, les quatre fourreaux d'épée jaillirent comme des météores. Quatre rayons d'énergie d'épée destructrice s'élancèrent des fourreaux pour converger vers Qian Feng de toutes les directions.
 
-Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière dorée pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émittent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, si intense que même la téléportation en était entravée.
+Mais ce n'était pas encore fini. Wang Lin agita le drapeau des âmes d'un milliard, qui se désintégra en une pluie de poussière dorée pour fusionner avec les fragments d'âmes environnants. En conséquence, ces fragments émettent un pouvoir de scellement. À cet instant, une aura de restriction surpuissante apparut dans la zone délimitée par les fragments, au point d'affecter même la téléportation.
 
 Les yeux de Qian Feng furent envahis par la terreur, et il hurla immédiatement: « Ceng Niu, il n'y a pas de haine profonde entre nous! Pourquoi chercher à me tuer?! »
 
 Le regard de Wang Lin fut aussi tranchant que l'éclair alors qu'il fixait Qian Feng et répliqua mot pour mot: « Je te tue parce que j'ai promis à Papillon Rouge de le faire! »
 
-Qian Feng se mit à rire comme un fou: « Ceng Niu, si tu n'avais pas ce drapeau des âmes d'un milliard, je pourrais t'éliminer facilement! Tu m'as poussé à bout! Si je meurs, je gaspillerai ton précieux drapeau! »
+Qian Feng se mit à rire comme un fou: « Ceng Niu, si tu n'avais pas ce drapeau des âmes d'un milliard, je pourrais t'éliminer facilement! Tu m'as poussé à bout! Si je meurs, je détruirai ton précieux drapeau! »
 
 Les yeux de Wang Lin devinrent glacials et il murmura: « Accepte ta mort. »
 

@@ -32,7 +32,7 @@ Les cheveux rouges du corps original flottaient et les étoiles entre ses sourci
 
 D'un seul mot, la petite planète sur laquelle il reposait se mit à trembler. Des flux d'énergie spirituelle s'engouffrèrent dans les profondeurs de la planète pour être absorbés par le corps original.
 
-Au même moment, Wang Lin effectua le même geste au sein de la Terre des Esprits Démoniaques. Il fixa le épais brouillard céleste et esquissa lentement un sourire.
+Au même moment, Wang Lin effectua le même geste au sein de la Terre des Esprits Démoniaques. Il fixa l'épais brouillard céleste et esquissa lentement un sourire.
 
 « La bataille entre le Démon Ancestral et le démon brisé m'a permis de comprendre certains sorts de l'ancien dieu. Les bénéfices que mon corps original en retire sont inestimables. »
 

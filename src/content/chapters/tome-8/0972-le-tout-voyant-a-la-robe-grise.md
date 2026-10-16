@@ -94,13 +94,13 @@ La forme de l'arme était singulière, courbée telle un serpent! Une puissante 
 
 Au moment où Wang Lin vit cette lame incurvée, ses yeux s'illuminèrent.
 
-« L'Épée Céleste de la Pluie! » Wang Lin reconnut immédiatement l'arme serpentine. L'Épée Céleste de la Pluie était divisée en quatre parties, dont deux avaient été dérobées. Cette Épée Serpentine de la Pluie était celle que Ling Tianhou avait récupérée!
+« L'Épée Céleste de la Pluie! » Wang Lin reconnut immédiatement l'arme serpentine. L'Épée Céleste de la Pluie était divisée en quatre parties, dont deux avaient été dérobées. Cette Épée Serpentine de la Pluie était celle que Ling Tianhou avait dérobée!
 
 Le garçon s'avança pour faire face au Tout-Voyant à la Robe Grise. Ling Tianhou traça un sceau et pointa le doigt. Le garçon ouvrit soudain les yeux, révélant un regard oppressant.
 
 Alors que le corps du garçon s'élançait, l'Épée Serpentine de la Pluie vola vers les dix filaments d'énergie de massacre projetés par le Tout-Voyant.
 
-En un instant, l'épée brilla intensément et un python gigantesque apparut. Il poussa un rugissement tout en exhalant un souffle fétide, déclenchant une tempête dévastatrice.
+En un instant, l'épée brilla intensément et un python gigantesque long de 3,3 kilomètres apparut. Il poussa un rugissement tout en exhalant un souffle fétide, déclenchant une tempête dévastatrice.
 
 L'expression du Tout-Voyant resta indifférente tandis que les dix filaments d'énergie de massacre percutaient l'ouragan dégueulé par le python. Lors de la collision, ces filaments subirent une mutation inattendue qui fit changer l'expression de Wang Lin.
 

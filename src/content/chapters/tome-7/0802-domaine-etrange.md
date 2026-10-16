@@ -88,7 +88,7 @@ Une lumière surgit soudainement de l'obscurité. D'abord faible, elle devint ra
 
 À mesure que la lumière se propageait, elle révéla que la zone était saturée de brouillard. Ce dernier semblait craindre la lumière; il recula rapidement pour former, en un clin d'œil, une vaste étendue dégagée.
 
-La clarté s'étendit jusqu'à atteindre plus de 330 mètres de large. Des ondulations apparurent, puis une silhouette commença à se matérialiser au sein de ces cercles concentriques.
+La clarté s'étendit jusqu'à atteindre environ 33 mètres de large. Des ondulations apparurent, puis une silhouette commença à se matérialiser au sein de ces cercles concentriques.
 
 Cette silhouette prit lentement forme pour devenir un être humain!
 
@@ -98,7 +98,7 @@ Alors que les ondulations disparaissaient, son regard s'assombrit, mais tous ses
 
 Sans réfléchir, le tonnerre en son sein s'activa et sa main forma immédiatement un sceau. Deux sphères de tonnerre, émettant des grondements sourds, se rassemblèrent dans ses paumes.
 
-Ces deux sphères étaient extrêmement brillantes. Dès leur apparition, l'éclat fit brusquement reculer le brouillard. Comme s'il avait été attaqué, celui-ci se retira à plus de 10 000 pieds.
+Ces deux sphères étaient extrêmement brillantes. Dès leur apparition, l'éclat fit brusquement reculer le brouillard. Comme s'il avait été attaqué, celui-ci se retira à plus de 3 000 mètres.
 
 L'expression de Wang Lin était sombre alors qu'il fixait la brume devant lui. Puis il regarda autour de lui et ne put s'empêcher de froncer les sourcils.
 
@@ -128,7 +128,7 @@ Lors du troisième pas, quand son pied toucha le sol, il disparut soudainement, 
 
 Au moment où il émergea, son expression changea.
 
-C'était effectivement la fin du brouillard, mais à trois cents pieds devant lui se dressait un mur de chair rouge sombre. Il était colossal et semblait s'étendre à l'infini. Même en levant les yeux, le mur recouvrait encore tout le ciel.
+C'était effectivement la fin du brouillard, mais à une dizaine de mètres devant lui se dressait un mur de chair rouge sombre. Il était colossal et semblait s'étendre à l'infini. Même en levant les yeux, le mur recouvrait encore tout le ciel.
 
 Le visage de Wang Lin devint extrêmement sombre. Lorsqu'il avait tenté de fusionner avec le monde, il pensait à sa planète de culture. Pourtant, il avait eu l'impression de heurter un obstacle, avant d'être violemment expulsé de sa fusion et projeté ici.
 
@@ -138,7 +138,7 @@ On l'appelait « mur de chair » car il était en mouvement; des protubérances 
 
 Wang Lin fronça les sourcils et, d'un mouvement brusque, s'élança vers le haut. Tandis qu'il montait, la masse de chair commença à réagir. D'innombrables fissures s'ouvrirent, crachant une brume noire.
 
-Wang Lin esquiva la fumée noire et longea le mur de chair en évitant les failles. Il observa la brume noire qui jaillissait avec force pour se fondre dans le brouillard ambiant.
+Wang Lin esquiva la fumée noire et longea le mur de chair en évitant les failles. Il observa la brume noire qui jaillissait avec force pour se fondre dans le brouillard ambiant. Ce jaillissement dura une quinzaine de minutes, puis s'apaisa peu à peu, et les fissures se refermèrent lentement.
 
 Regardant ce mur de chair infini au-dessus de lui, Wang Lin afficha un regard déterminé. Son corps s'élança et plongea immédiatement dans une fissure proche. Dès qu'il eut pénétré à l'intérieur, celle-ci se referma.
 

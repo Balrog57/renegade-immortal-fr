@@ -20,11 +20,11 @@ Ouyang Hua, debout sur le côté, dit respectueusement: « Le nuage noir dans la
 
 « Ce soir, la lune sera pleine. Le Céleste Suprême pourra observer la chasse des esprits démoniaques un peu plus tard. » Ouyang Hua détourna le regard.
 
-L'expression de Wang Lin resta imperturbable. Après avoir médité un instant, il demanda lentement: « De quoi parliez-vous? Cette chose dont j'ai besoin et que je devrais trouver dans la Cité des Démons Anciens? »
+L'expression de Wang Lin resta imperturbable. Après avoir médité un instant, il demanda lentement: « De quoi parliez-vous? Cette chose dont j'ai besoin et que je devrais trouver dans la Grande Muraille Antique? »
 
 À ces mots, Ouyang Hua hésita, mais il serra immédiatement les dents et déclara: « Puisque le Céleste Suprême le demande, je ne perdrai pas de temps. La terre des esprits démoniaques est bien trop vaste, et la rumeur veut qu'elle soit composée de neuf pays au total. Le pays où nous nous trouvons est le Pays des Démons Célestes. »
 
-« Pour être plus précis, cet endroit fait partie du Pays des Démons Célestes, mais c'est une terre désolée. Après que ce vieil homme eut réveillé son pouvoir dans la Cité des Démons Anciens, je n'ai pu atteindre qu'une seule étoile. Je n'étais pas qualifié pour y rester, alors je suis retourné auprès de ma tribu en tant qu'Ancien pour éduquer mes semblables. »
+« Pour être plus précis, cet endroit fait partie du Pays des Démons Célestes, mais c'est une terre désolée. Après que ce vieil homme eut réveillé son pouvoir dans la Grande Muraille Antique, je n'ai pu atteindre qu'une seule étoile. Je n'étais pas qualifié pour y rester, alors je suis retourné auprès de ma tribu en tant qu'Ancien pour éduquer mes semblables. »
 
 « Dans le Pays des Démons Célestes règne le Roi Démon Kun Xu. Sous lui se trouvent les huit grands Généraux Démons, dix millions de soldats démons et plus de cent cités. Voilà la puissance d'un seul pays! »
 
@@ -46,7 +46,7 @@ Les yeux de Wang Lin se rétrécirent et, pour la première fois, il détacha so
 
 Leurs regards se croisèrent. Après un moment, Ouyang Hua baissa progressivement la tête, avant de la redresser brusquement: « Cependant, si le Céleste Suprême possède encore des pilules comme auparavant, alors ce vieil homme acceptera de vous donner ce dont vous avez besoin! »
 
-La main droite de Wang Lin effleura sa sacoche de rangement et des flacons de jade en sortirent un à un. Ces flacons émettaient des éclats de lumière blanche; il y en avait au moins une douzaine.
+La main droite de Wang Lin effleura sa sacoche de rangement et des flacons de jade en sortirent un à un. Ces flacons émettaient des éclats de lumière blanche; il y en avait au moins plusieurs dizaines.
 
 Après avoir décrit un cercle dans les airs, les flacons de jade retournèrent dans la sacoche.
 
@@ -92,7 +92,7 @@ Ouyang Hua dit doucement: « Céleste Suprême, c'est la chose que l'Ancêtre di
 
 « Le rôle du cristal d'esprit démoniaque est d'aider les membres de la tribu à guérir de leurs blessures. C'est pourquoi j'ai dit que si je vous le donnais, tous les membres de la tribu mourraient un par un. Cependant, la qualité de ce cristal est faible, sa capacité de guérison n'est donc pas exceptionnelle. Je préférerais utiliser vos pilules. »
 
-Wang Lin ne répondit rien. Il leva à nouveau la main et tendit le bras. Un grondement sourd s'éleva aussitôt de la falaise. D'abord léger, il s'amplifia rapidement en des rugissements tonnantes qui furent immédiatement remarqués par les villageois. En plus de cela, le fracas semblait faire trembler les parois environnantes, comme si un dragon terrestre s'agitait dans les profondeurs.
+Wang Lin ne répondit rien. Il leva à nouveau la main et tendit le bras. Un grondement sourd s'éleva aussitôt de la falaise. D'abord léger, il s'amplifia rapidement en des rugissements tonnants qui furent immédiatement remarqués par les villageois. En plus de cela, le fracas semblait faire trembler les parois environnantes, comme si un dragon terrestre s'agitait dans les profondeurs.
 
 Les yeux de Wang Lin s'illuminèrent et sa main droite tira violemment. Après quelques craquements secouant la roche, le cristal blanc se détacha de la paroi et atterrit dans sa paume.
 

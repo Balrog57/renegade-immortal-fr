@@ -14,13 +14,13 @@ slug: le-domaine-shi
 
 Alors que Wang Lin volait, ses yeux s'illuminèrent. Après avoir parcouru tous les souvenirs de Lou Yun, il avait une idée assez précise de cette terre.
 
-« Il sera très difficile d'obtenir un ancien esprit démoniaque. D'après les souvenirs de Lou Yun, bien que ce lieu existe depuis des centaines de milliers d'années et ne s'ouvre que tous les 5 000 ans, le nombre de cultivateurs ayant réussi à obtenir un ancien esprit démoniaque est bien trop faible. La rumeur prétend qu'en ces innombrables années, seules dix personnes ont réellement obtenu un ancien esprit démoniaque.
+« Il sera très difficile d'obtenir un ancien esprit démoniaque. D'après les souvenirs de Lou Yun, bien que ce lieu existe depuis des dizaines de milliers d'années et ne s'ouvre que tous les 5 000 ans, le nombre de cultivateurs ayant réussi à obtenir un ancien esprit démoniaque est bien trop faible. La rumeur prétend qu'en ces innombrables années, moins de dix personnes ont réellement obtenu un ancien esprit démoniaque.
 
 La seule façon d'en obtenir un est de s'illustrer par ses accomplissements!
 
 Chaque pays ne possède qu'un seul ancien esprit démoniaque. Ces esprits ne sont contrôlés par personne et constituent les symboles de leurs pays respectifs. Ils évoluent une fois tous les 100 000 ans, et si l'un d'eux fusionne avec quelqu'un avant son évolution, il faudra un million d'années pour qu'un nouveau se forme.
 
-Le rang de l'ancien esprit démoniaque de chaque pays diffère également. Par exemple, l'ancien démon du Pays du Démon Céleste n'est né que voici 100 000 ans et possède le rang le plus bas.
+Le rang de l'ancien esprit démoniaque de chaque pays diffère également. Par exemple, l'ancien démon du Pays du Démon Céleste est né il y a un million d'années et possède le rang le plus bas.
 
 L'ancien démon du Pays de la Destruction Nulle n'a jamais été fusionné depuis sa naissance, sa force a donc atteint un degré inimaginable.
 
@@ -38,7 +38,7 @@ Ce n'est qu'en tuant les autres que ma concurrence diminuera! »
 
 Wang Lin afficha une expression pensive alors qu'il volait rapidement vers l'endroit où se trouvaient les âmes primaires. Il traversait le ciel tel un météore avant de disparaître à l'horizon.
 
-« Si Lou Yun savait tout cela, c'est parce qu'il y a des dizaines de milliers d'années, un membre de sa secte est venu ici. Bien que cet homme n'ait pas obtenu d'ancien démon, il a réussi à s'en sortir vivant, malgré les 10 % de chances de survie seulement.
+« Si Lou Yun savait tout cela, c'est parce qu'il y a des dizaines de milliers d'années, un membre de sa secte est venu ici. Bien que cet homme n'ait pas obtenu d'ancien démon, il a réussi à s'en sortir vivant, alors que ses chances de survie étaient infimes.
 
 Après son retour à la Secte du Fantôme Céleste, il a immédiatement consigné ses 500 ans d'expérience dans la Terre des Esprits Démoniaques. C'est ainsi que Lou Yun savait tout cela. Désormais, ses connaissances me facilitent la tâche!
 
@@ -92,7 +92,7 @@ L'une d'elles était une bête Qilin qui rugissait en se déplaçant.
 
 Le sens divin de Wang Lin s'étendit et se concentra sur une fissure noire au sol.
 
-Cette faille mesurait plus de 1 000 pieds de large. Elle semblait avoir été créée par quelqu'un frappant avec une épée volante depuis le ciel. Cependant, un long moment s'était écoulé et la majeure partie s'était refermée, ne laissant plus qu'un interstice de 330 mètres.
+Cette faille mesurait environ 330 mètres de long. Elle semblait avoir été créée par quelqu'un frappant avec une épée volante depuis le ciel. Cependant, un long moment s'était écoulé et la majeure partie s'était refermée, ne laissant plus qu'un interstice de moins de 33 mètres.
 
 L'herbe sauvage recouvrait toute la zone; à moins de regarder très attentivement, il était difficile de distinguer cette fissure dans le sol.
 
@@ -100,7 +100,7 @@ Wang Lin ouvrit la bouche et aspira. Les âmes primaires autour de lui se transf
 
 Après avoir rangé les âmes primaires, Wang Lin atterrit près de la fissure et la dévisagea froidement.
 
-« Selon les souvenirs de Lou Yun, le fantôme céleste est un avatar unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent le sang de femmes enceintes mortelles comme appât, le sang d'hommes puissants comme guide, et ajoutent l'Âme Naissante d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
+« Selon les souvenirs de Lou Yun, le fantôme céleste est un avatar unique que seule la Secte du Fantôme Céleste possède. Ces êtres naissent du vide et n'ont normalement pas de forme, mais les membres de la Secte du Fantôme Céleste utilisent le sang de femmes enceintes mortelles comme appât, le sang d'hommes puissants comme guide, et ajoutent l'âme originelle d'un cultivateur comme médium. Il faut 49 ans pour invoquer un fantôme céleste, puis ils utilisent un sort secret pour en faire leur fantôme céleste lié à la vie.
 
 Lou Yun occupait un rang très élevé au sein de la Secte du Fantôme Céleste. Avant de venir ici, son maître lui avait donné le plus faible de ses neuf fantômes célestes liés à la vie pour le protéger. Lou Yun n'avait pas eu beaucoup de temps pour l'affiner, et c'est pourquoi le fantôme céleste l'a trahi. »
 

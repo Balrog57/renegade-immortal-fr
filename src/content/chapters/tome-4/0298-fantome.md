@@ -24,11 +24,11 @@ Même avec la volonté de Wang Lin, il ne put s'empêcher d'être enthousiasmé 
 
 « Il semble que mes capacités ne soient pas encore suffisantes. »
 
-En vérité, il était difficile de blâmer Wang Lin, car les pierres spirituelles de première qualité étaient si rares sur Suzaku. Elles n'étaient pas abondantes non plus sur la planète d'origine de la Secte Da Lou, mais ce dernier étant une ancienne secte vieille de dizaines de milliers d'années, elle avait naturellement accumulé des stocks considérables.
+En vérité, il était difficile de blâmer Wang Lin, car les pierres spirituelles de première qualité étaient si rares sur Suzaku. Elles n'étaient pas abondantes non plus sur la planète d'origine de la Secte Da Lou, mais ce dernier étant une ancienne secte vieille de dix mille ans, elle avait naturellement accumulé des stocks considérables.
 
 Après avoir examiné le jade, il comprit parfaitement la situation.
 
-Le Secte Da Lou avait découvert un total de 37 fragments dans le Royaume Céleste après l'avoir exploré à de nombreuses reprises. Ils avaient ensuite secrètement placé des tableaux de transfert sur chacun d'eux.
+La Secte Da Lou avait découvert un total de 37 fragments dans le Royaume Céleste après l'avoir exploré à de nombreuses reprises. Ils avaient ensuite secrètement placé des tableaux de transfert sur chacun d'eux.
 
 Cependant, ces tableaux étant construits au sein du Royaume Céleste, ils ne pouvaient pas être activés par des pierres spirituelles ordinaires. C'était aussi la raison pour laquelle le cultivateur à robe verte portait autant de pierres spirituelles de première qualité sur lui.
 
@@ -110,6 +110,6 @@ L'expression des personnes à l'intérieur changea instantanément. Deux d'entre
 
 La puissance de ce seul coup pulvérisa instantanément les corps de tous les êtres célestes présents, ainsi que le bâtiment. Seules les deux personnes qui s'étaient envolées purent se protéger grâce à une lumière arc-en-ciel.
 
-Le visage des deux survivants se décomposa, et à cet instant précis, un qi d'épée bleu fendit le ciel, créant une immense déchirure. Des vagues de vent glacial s'échappèrent de la faille.
+Le visage des deux survivants se décomposa, et à cet instant précis, un qi d'épée bleu fendit le ciel, créant une immense déchirure. Des bouffées de brume noire s'échappèrent de la faille.
 
-Peu après, une main gigantesque apparut dans les cieux et saisit délicatement l'épée contenue dans le qi d'épée bleu. L'arme se brisa et disparut dans la faille, mais la garde de l'épée ne fut pas détruite; elle continua sa course folle à travers le ciel.
+Peu après, une main gigantesque apparut dans les cieux et saisit délicatement l'épée contenue dans le qi d'épée bleu. L'arme se brisa et disparut dans la faille, mais le fourreau de l'épée ne se brisa pas; après s'être fendu en de nombreux endroits, il disparut en un éclair dans la déchirure du ciel.

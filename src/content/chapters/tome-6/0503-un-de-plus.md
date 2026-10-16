@@ -45,7 +45,7 @@ Au premier coup d'œil, il aperçut un Omniscient au loin. Ses mains formaient d
 
 « Tactique de Raffinement Céleste aux Neuf Cycles... » Wang Lin l'observa un instant avant de passer au suivant.
 
-Il vit un autre Omniscient assis en lotus à trois 330 mètres de là. Ses yeux n'étaient pas clos; ils projetaient une lumière éclatante. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper l'Omniscient. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
+Il vit un autre Omniscient assis en lotus à près d'un kilomètre de là. Ses yeux n'étaient pas clos; ils projetaient une lumière éclatante. Des volutes de gaz noir s'échappaient de son corps pour se rassembler au-dessus de sa tête. Le gaz s'accumula jusqu'à former un nuage sombre qui se mit soudainement à tourbillonner frénétiquement, avant de redescendre brusquement pour envelopper l'Omniscient. Des sifflements s'échappèrent du nuage noir avant que celui-ci ne disparaisse dans le lointain en un clin d'œil.
 
 « Sort interdit, Corps Immortel Démoniaque! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -75,7 +75,7 @@ Wang Lin fut stupéfait. Il déploya son Sens Divin pour inspecter soigneusement
 
 « Étrange! » Wang Lin fronça les sourcils. Après une courte réflexion, il étendit son Sens Divin et parcourut ce monde aux sept couleurs à une vitesse fulgurante.
 
-Une durée indéterminée s'écoula. Un jour, alors que Wang Lin volait, son expression changea soudainement et il se tourna vers la gauche sans hésiter. Peu après, il s'arrêta: un Omniscient était assis en lotus à mille pieds de lui.
+Une durée indéterminée s'écoula. Un jour, alors que Wang Lin volait, son expression changea soudainement et il se tourna vers la gauche sans hésiter. Peu après, il s'arrêta: un Omniscient était assis en lotus à près d'un kilomètre de lui.
 
 Il portait une robe grise! C'était l'étrange Omniscient que Wang Lin traquait depuis des jours!
 

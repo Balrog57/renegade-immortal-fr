@@ -16,7 +16,7 @@ Dans la lumière qui la suivait, un homme d'âge moyen au visage carré et aux s
 
 L'épée sous ses pieds était très stable. Il ne semblait pas fournir d'effort particulier dans cette poursuite. Tandis qu'il contemplait la femme, son regard se fit plus froid.
 
-Ces deux lueurs, l'une derrière l'autre, se rapprochaient rapidement de la cible. La jeune femme regarda les étoiles brisées et chaotiques qui se dressaient devant elle, et une idée lui traversa l'esprit. Elle fuyait depuis des mois, et durant ce dernier mois, peu importe où elle allait, cet homme restait sur ses talons. Si elle n'avait pas utilisé la technique secrète de son maître pour s'échapper, elle aurait déjà été capturée.
+Ces deux lueurs, l'une derrière l'autre, se rapprochaient rapidement de la cible. La jeune femme regarda les étoiles brisées et chaotiques qui se dressaient devant elle, et une idée lui traversa l'esprit. Elle fuyait depuis près d'un mois, et durant ce dernier mois, peu importe où elle allait, cet homme restait sur ses talons. Si elle n'avait pas utilisé la technique secrète de son maître pour s'échapper, elle aurait déjà été capturée.
 
 Mais l'usage de cette technique secrète exigeait trop de puissance spirituelle. Après l'avoir employée à plusieurs reprises, elle ne pouvait plus se le permettre. Sous la pression, elle paniqua et ne fit plus attention à sa direction. Sans s'en rendre compte, elle avait abouti aux étoiles brisées et chaotiques.
 
@@ -42,7 +42,7 @@ C'est précisément pour cette raison qu'il ne s'était pas contenté de la tuer
 
 Qian Kun déclara d'un ton sombre: « J'ignore si le fait de prendre ce jade affectera ou non le Palais Enchanté, je sais seulement que s'il m'appartient, il me sera extrêmement bénéfique. »
 
-La femme afficha un air audacieux. Elle dit: « Aîné, si vous avez quelque chose à me reprocher, dites-le simplement, mais considérez l'importance de ce morceau de jade. »
+La femme afficha un air audacieux. Elle dit: « Aîné, si vous avez quelque chose à dire, parlez franchement. Voulez-vous que je reproduise le contenu de ce morceau de jade? »
 
 Qian Kun ne répondit rien, mais une lueur de joie apparut dans ses yeux. Il savait déjà que cette Yun Fei était la successeure du célèbre Secte Qi Huang. Bien que la Secte Qi Huang ait été détruit par une force mystérieuse, cette femme avait réussi miraculeusement à s'échapper indemne.
 
@@ -68,7 +68,7 @@ Qian Kun eut un sourire glacial: « Quelle plaisanterie! Comment saurais-je si l
 
 Le visage de Yun Fei se durcit et elle s'apprêtait à parler, mais Qian Kun poursuivit: « Je n'ai pas de temps à perdre avec vous. Remettez-moi le jade et je vous laisserai vivre. Sinon, ne me reprochez pas mon impitoyabilité. Quant au jade, j'en ferai ma perte. » Sur ces mots, il commença à flotter lentement vers l'avant.
 
-La distance de 5 kilomètres pouvait être parcourue en un éclair, mais Qian Kun avançait avec lenteur, craignant qu'elle ne brise le jade par réflexe, ce qui lui ferait perdre tout espoir.
+La distance de 33 mètres pouvait être parcourue en un éclair, mais Qian Kun avançait avec lenteur, craignant qu'elle ne brise le jade par réflexe, ce qui lui ferait perdre tout espoir.
 
 Yun Fei serra la mâchoire. Elle jeta le jade sur le côté et s'enfuit rapidement pour échapper à Qian Kun.
 
@@ -162,7 +162,7 @@ Yun Fei était encore plus tendue que Qian Kun. Elle avait placé tout son espoi
 
 Dès l'entrée de Wang Lin dans l'anneau, plusieurs fragments brisés entrèrent violemment en collision. Dans un éclat de lumière blanche, une copie exacte de Wang Lin apparut à l'intérieur.
 
-La copie afficha un sourire froid. Elle ouvrit son sac de rangement et une épée noire en sortit. Cette épée volante était étrange, parsemée de nombreuses pointes; c'était clairement l'épée personnelle de Wang Lin.
+La copie afficha un sourire froid. Elle ouvrit son sac de rangement et une épée noire en sortit. Cette épée volante était étrange, parsemée de nombreuses pointes; c'était clairement l'épée venimeuse que Wang Lin avait raffinée dans le Chaudron du Roi Poison.
 
 Wang Lin scruta l'épée noire et fut impressionné par la puissance de cette force mystérieuse, capable de copier même des trésors magiques. Même la fissure créée par le Bossu Meng y était présente.
 
@@ -180,7 +180,7 @@ Les yeux de Wang Lin s'illuminèrent et il commença aussitôt à réfléchir. B
 
 Il savait désormais que malgré le mystère de l'anneau, celui-ci ne pouvait pas copier son Royaume Ji. Wang Lin esquissa un sourire froid et s'enfonça plus profondément dans l'anneau.
 
-Selon ce que Duanmu lui avait dit, cet anneau mesurait cent milles de large. Après avoir vaincu la première copie, on peut parcourir cinquante milles, puis il faut vaincre deux autres copies pour parcourir cinquante milles supplémentaires et enfin sortir de l'anneau.
+Selon ce que Duanmu lui avait dit, cet anneau mesurait cinquante kilomètres de large. Après avoir vaincu la première copie, on peut parcourir vingt-cinq kilomètres, puis il faut vaincre deux autres copies pour parcourir vingt-cinq kilomètres supplémentaires et enfin sortir de l'anneau.
 
 Le cœur de Qian Kun faillit s'effondrer lorsque la copie explosa. Le rang de Wang Lin dans son esprit monta instantanément à une hauteur sans précédent. Il n'aurait jamais cru que la copie formée par cette force mystérieuse puisse exploser si rapidement d'elle-même. Il ne pouvait imaginer la technique nécessaire pour un tel exploit.
 

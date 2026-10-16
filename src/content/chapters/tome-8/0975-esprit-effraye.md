@@ -14,9 +14,9 @@ Le sens divin d'un cultivateur au stade initial de la Scrutation du Nirvana n'é
 
 Wang Lin demanda calmement: « Où cet homme peut-il séjourner? »
 
-Une belle cultivatrice s'avança rapidement et s'arrêta à 330 mètres de lui. Elle dit respectueusement: « La disciple Zhou Xiu salue l'Ancien. L'Ancien est arrivé soudainement, alors... Généralement, les Anciens choisissent leurs propres résidences... » La voix de Zhou Xiu était un peu hésitante.
+Une belle cultivatrice s'avança rapidement et s'arrêta à 33 mètres de lui. Elle dit respectueusement: « La disciple Zhou Xiu salue l'Ancien. L'Ancien est arrivé soudainement, alors... Généralement, les Anciens choisissent leurs propres résidences... » La voix de Zhou Xiu était un peu hésitante.
 
-Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il se tenait près d'une tour située à cinq 500 kilomètres de là. Après avoir jeté un coup d'œil, Wang Lin ne pénétra pas à l'intérieur, mais s'assit devant la tour.
+Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il se tenait près d'une tour située à 500 kilomètres de là. Après avoir jeté un coup d'œil, Wang Lin ne pénétra pas à l'intérieur, mais s'assit devant la tour.
 
 Une fois installé, il agita la main et une multitude de restrictions apparurent.
 
@@ -60,7 +60,7 @@ Si c'était un autre cultivateur, même doté d'un niveau de culture plus élev�
 
 Cependant, si cela durait trop longtemps, même Wang Lin ne pourrait pas résister malgré ses capacités de Dieu Ancien.
 
-Le temps passait lentement. Ce n'était que quinze minutes, mais pour Wang Lin, elles semblaient durer des années. Les flammes devinrent plus intenses et son corps ne put s'empêcher de trembler.
+Le temps passait lentement. Ce n'était que trente minutes, mais pour Wang Lin, elles semblaient durer des années. Les flammes devinrent plus intenses et son corps ne put s'empêcher de trembler.
 
 Il ouvrit soudainement les yeux. On aurait dit que deux flammes bleues brûlaient dans ses pupilles. À mesure que ces flammes invisibles se propageaient, l'air autour de lui commença à crépiter sous l'effet de la chaleur.
 
@@ -118,11 +118,10 @@ En tant que membre du groupe des Anciens de l'Alliance et seigneur de la planèt
 
 Il eut un haut-le-cœur, l'incrédulité marquant son visage. Sa main droite bougea rapidement devant lui et un nuage aux sept couleurs apparut. Le nuage s'élança comme s'il tentait de résister à quelque chose.
 
-Cependant, lorsque le nuage aux sept couleurs flotta à cinq pieds de lui, une force invisible sembla se refermer sur lui et le nuage s'effondra!
+Cependant, lorsque le nuage aux sept couleurs flotta à moins de 1,65 mètre de lui, une force invisible sembla se refermer sur lui et le nuage s'effondra!
 
 Après l'effondrement du nuage, une main apparut dans le vide et tenta sans pitié de saisir l'Omniscient!
 
-Chapitre 975.1 - La Perle Désobéissant au Ciel S'Ouvre à Nouveau (1)
 
 « Qu'est-ce que c'est?! » Même avec la force mentale de l'Omniscient, forgée pendant des dizaines de milliers d'années, il sentit son cœur dao sur le point de s'effondrer face à cette main gigantesque. L'incrédulité se lisait sur son visage.
 
@@ -218,7 +217,7 @@ Le séisme atteignit son paroxysme et, alors qu'il se propageait, d'innombrables
 
 Ces trois rayons de lumière se révélèrent de plus en plus à mesure que les montagnes s'écroulaient. Finalement, alors que l'Omniscient tendait la main, ces lumières argentées et éclatantes s'élevèrent du sol!
 
-La lueur argentée vacilla dans son ascension, révélant un trident de trente mètres de long! Ce trident, entièrement argenté, dégageait une aura sauvage.
+La lueur argentée vacilla dans son ascension, révélant un trident de trente-trois mètres de long! Ce trident, entièrement argenté, dégageait une aura sauvage.
 
 Armé de l'arme, les yeux de l'Omniscient brillèrent et il la lança avec une force impitoyable. Le trident fut si rapide qu'il siffla dans l'air en direction de la main géante qui s'était presque totalement dissipée!
 

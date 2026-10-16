@@ -28,7 +28,7 @@ Quant à Treize, l'idée initiale de lui transmettre la Tactique du Dieu Antique
 
 Pourtant, durant cette année, Treize avait passé le test de Wang Lin avec brio. Wang Lin pouvait sentir que Treize lui resterait totalement loyal pendant au moins plusieurs décennies.
 
-Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan des Démons Géants. Lorsqu'il avait tué l'Ancêtre du Clan des Démons Géants, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Antique, il s'y trouvait quelques jades.
+Sur la planète Suzaku, Wang Lin avait eu de nombreuses interactions avec le Clan des Démons Géants. Lorsqu'il avait tué l'Ancêtre du Clan des Démons Géants, il avait également obtenu son sac de rangement. Outre cette goutte de sang de Dieu Antique et un fragment de roue d'esprit primordial de la Voie de la Luxure, il s'y trouvait quelques jades.
 
 Parmi ces jades figurait l'enregistrement d'une méthode de culture corporelle nommée les Neuf Cultivations du Titan. À l'époque, Wang Lin n'y avait jeté qu'un regard rapide avant de l'oublier. Il regarda Treize, toucha son sac de rangement, et un jade cyan apparut dans sa main.
 
@@ -42,7 +42,7 @@ Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noi
 
 « Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 
-À ce moment-là, loin à l'ouest de la Secte du Raffinement de l'Âme, presque à mi-chemin à travers le Pays du Démon Céleste, s'étendait un désert infini.
+À ce moment-là, loin à l'ouest de la Tribu du Raffinement de l'Âme, presque à mi-chemin à travers le Pays du Démon Céleste, s'étendait un désert infini.
 
 Cet endroit était réputé pour être une zone extrêmement périlleuse dans les Terres des Esprits Démoniaques!
 
@@ -56,7 +56,7 @@ Un panache de brume noire enveloppait son corps, et la présence de cette brume 
 
 Chaque fois qu'un fragment d'âme s'éveillait, un violent jet de gaz noir jaillissait du sol. Il tournait avec la brume noire pendant quelques tours avant de pénétrer dans l'un des petits drapeaux.
 
-À mille pieds du jeune homme se tenait un vieil homme vêtu de noir. Ce dernier observait froidement le jeune homme et, après le temps d'un bâton d'encens, déclara: « Bien, termine! »
+À 330 mètres du jeune homme se tenait un vieil homme vêtu de noir. Ce dernier observait froidement le jeune homme et, après le temps d'un bâton d'encens, déclara: « Bien, termine! »
 
 Le jeune homme hocha la tête, forma un sceau de sa main, et tous les petits drapeaux libérèrent une lueur noire avant de converger dans sa paume. À cet instant, le jeune homme ouvrit les yeux!
 
@@ -86,7 +86,7 @@ Hu Pao serra les poings en regardant au loin et marmonna pour lui-même: « Trei
 
 Les yeux de Hu Pao étaient empreints d'une intense intention meurtrière.
 
-Au plus profond de ce champ de bataille antique se dressait une tour d'un noir abyssal. Cette tour mesurait plusieurs dizaines de pieds de haut et était entourée d'anneaux de lumière qui semblaient absorber toute clarté environnante. De loin, elle dégageait une aura de majesté imposante.
+Au plus profond de ce champ de bataille antique se dressait une tour d'un noir abyssal. Cette tour mesurait d'une centaine de mètres de haut et était entourée d'anneaux de lumière qui semblaient absorber toute clarté environnante. De loin, elle dégageait une aura de majesté imposante.
 
 La silhouette de l'homme en robe noire apparut devant la tour. Il prit une profonde inspiration et pénétra à l'intérieur. Au sommet de la structure, il s'agenouilla sur les deux genoux.
 
@@ -98,7 +98,7 @@ De loin, l'armure évoquait la silhouette d'une personne assise en tailleur et e
 
 Soudain, deux lueurs fantomatiques apparurent à l'intérieur du casque comme une paire d'yeux, et leur regard se posa sur le vieil homme. À cet instant, le monde extérieur trembla légèrement, comme si un esprit céleste était descendu parmi les mortels.
 
-Le vieillard prit une grande inspiration et dit: « Votre subordonné a vérifié et a découvert que l'Empereur Démon du Pays du Démon Céleste, Scorpio, aurait dû franchir l'ultime étape il y a mille ans, mais qu'il la supprime de force! »
+Le vieillard prit une grande inspiration et dit: « Votre subordonné a vérifié et a découvert que l'Empereur Démon du Pays du Démon Céleste, Tian Xie, aurait dû franchir l'ultime étape il y a mille ans, mais qu'il la supprime de force! »
 
 La lueur fantomatique dans le casque vacilla et un froid invisible émana de l'armure. Le corps et l'esprit du vieillard tremblèrent, et une sueur froide perla sur son front.
 
@@ -106,7 +106,7 @@ Après un long moment, la lueur se posa sur les yeux du vieil homme, comme pour 
 
 Le corps du vieillard était trempé de sueur lorsqu'il dit simplement: « Oui! » Il se leva ensuite et quitta respectueusement le sommet de la tour. Il redescendit au premier étage et s'assit en position du lotus, paraissant nettement plus détendu cette fois-ci.
 
-« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de raffinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en une seule heure de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
+« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de raffinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en deux heures de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
 
 « Ce sort de raffinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne peut pas rester éveillé trop longtemps, je ne peux donc pas gaspiller son temps avec une si petite affaire... »
 

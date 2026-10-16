@@ -14,7 +14,7 @@ Wang Lin prit une profonde inspiration, le regard résolu. À mesure qu'il gravi
 
 L'ancien de la famille Chen fixa la lueur et déclara calmement: « La chance du compagnon cultivateur Xu est sur le point de se manifester. Je me demande quel genre de sort céleste il parviendra à obtenir au quatrième étage! »
 
-La cultivatrice nommée Lu, dont le corps avait disparu, hocha la tête: « La culture est liée à la fortune. Bien que ce ne soit pas une science exacte, cela produit parfois des effets miraculeux. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
+Le cultivateur nommé Lu, dont le corps avait disparu, hocha la tête: « La culture est liée à la fortune. Bien que ce ne soit pas une science exacte, cela produit parfois des effets miraculeux. Je suppose qu'il obtiendra un sort céleste fort honorable à l'intérieur. »
 
 Le dernier cultivateur, nommé Song, resta silencieux. Il fixait le pavillon, les yeux brillants d'une lueur soudaine, et murmura d'une voix basse: « Quelque chose ne va pas! »
 
@@ -22,7 +22,7 @@ Les deux autres furent surpris; en tournant leur regard vers le Pavillon des Col
 
 Au sommet du pavillon, après le premier éclat, quatre autres rayons de lumière jaillirent vers le ciel, créant des ondulations qui se propagèrent dans l'air. Depuis le sol, la scène paraissait d'une grandeur absolue.
 
-« Cinq rayons de lumière... Cette personne est en réalité entrée au cinquième étage! » La cultivatrice Lu, privée de son corps, observa les cinq faisceaux avec un air d'incrédulité.
+« Cinq rayons de lumière... Cette personne est en réalité entrée au cinquième étage! » Le cultivateur Lu, privé de son corps, observa les cinq faisceaux avec un air d'incrédulité.
 
 « Il semblerait que nous ayons sous-estimé le compagnon cultivateur Xu. Il est absolument au sommet du stade Corporel Yang, et peut-être même à demi-pas du stade Scruteur du Nirvana. Il a tout juste atteint les critères pour accéder au cinquième étage! » Les yeux du cultivateur nommé Xu s'illuminèrent.
 
@@ -96,7 +96,7 @@ Il se souvenait clairement que l'enfant était simplement en train de cultiver, 
 
 Cette découverte fit trembler l'esprit de Wang Lin, qui intensifia son observation.
 
-Le temps passa de nouveau. En un clin d'œil, sept jours s'écoulèrent. Wang Lin avait remarqué que toutes les deux ou trois heures, la main du garçon changeait de position. Ce changement était si subtil qu'il passait inaperçu pour quiconque n'était pas d'une vigilance extrême.
+Le temps passa de nouveau. En un clin d'œil, sept jours s'écoulèrent. Wang Lin avait remarqué que toutes les quatre à six heures, la main du garçon changeait de position. Ce changement était si subtil qu'il passait inaperçu pour quiconque n'était pas d'une vigilance extrême.
 
 Durant ces sept jours, Wang Lin mémorisa chaque sceau exécuté par l'enfant. Le huitième jour, il s'assit et commença à reproduire les mudras. Dès que les sceaux apparurent, le pavillon entier se mit à trembler. Wang Lin s'interrompit aussitôt pour inspecter les alentours avant de reprendre sa pratique.
 
@@ -126,7 +126,7 @@ Soudain, tout le vacarme cessa lorsqu'une silhouette s'avança. Cette figure ét
 
 L'être flotta dans les airs et prit place. Un sourire sembla éclairer son visage tandis qu'une voix claire résonnait:
 
-« Aujourd'hui, Maître Sans Souci peindra l'ouverture du Pavillon des Collections. Le seigneur céleste Run Bi m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
+« Aujourd'hui, Maître Sans Souci peindra l'ouverture du Pavillon des Collections. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
 
 Tandis qu'il parlait, l'être leva la main droite et un vent rugissant surgit. Ce vent devint noir et recouvrit le firmament. En balayant le ciel, il se mua en neuf dragons noirs. Les rugissements de ces créatures et leur aura colossale firent changer la couleur du ciel. Alors que le vent noir déferlait, les neuf dragons crachèrent des rafales glaciales. Cette puissance inimaginable donnait l'impression que la vie humaine n'était qu'une flamme vacillante; quiconque serait touché par ce vent mourrait instantanément!
 
@@ -138,7 +138,7 @@ L'esprit de Wang Lin fut secoué par une douleur indicible, comme si on cherchai
 
 C'est à cet instant qu'une force douce émana du néant pour envelopper l'âme originelle de Wang Lin. Une voix claire éclata d'un rire: « Le sort de l'Empereur Céleste est extraordinaire. Ce sort nommé "Invoquer le Vent", ce seigneur va l'inscrire sur la peinture de Maître Sans Souci. Cette œuvre sera conservée au neuvième étage du Pavillon des Collections. Quant à savoir si quelqu'un pourra en comprendre le secret, cela dépendra de sa chance! »
 
-Sous l'effet de cette voix, l'âme originelle de Wang Lin sembla se transformer en encre pour écrire trois mots:
+Sous l'effet de cette voix, l'âme originelle de Wang Lin sembla se transformer en encre pour écrire deux caractères:
 
 « Invoquer le Vent! »
 

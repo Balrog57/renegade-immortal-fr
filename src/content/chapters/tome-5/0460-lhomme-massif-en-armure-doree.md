@@ -52,11 +52,11 @@ Wang Lin fut la quatrième personne à franchir l'ouverture. En faisant un pas �
 
 Derrière la porte se déployait une mer dorée. Cette mer était immense, sans fin visible.
 
-La seule autre chose perceptible était une île dorée, lointaine, sur l'horizon. Un bâtiment s'y dressait; c'était un palais d'une extravagance extrême qui dégageait un éclat doré.
+Au bout de cette mer se trouvait une île d'un or sombre. Un bâtiment s'y dressait; c'était un palais d'une extravagance extrême qui dégageait un éclat doré.
 
 Une fois la porte franchi, les yeux d'Yunque Zi brillèrent d'une lueur mystérieuse et il fonça rapidement vers cette île.
 
-Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à trois cents pieds derrière Yunque Zi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
+Le vieil homme le suivit de près. Ses pieds s'activèrent et il vola prestement vers le palais, n'étant qu'à moins de cent mètres derrière Yunque Zi. Les yeux du singe sur son épaule brillèrent intensément, révélant une expression d'excitation.
 
 Quant aux autres, Qian Feng et Liu Mei volaient également vers l'île à toute vitesse.
 
@@ -76,7 +76,7 @@ Le visage d'Yunque Zi s'assombrit. Il laissa échapper un grognement et chargea 
 
 Cependant, au même instant, le palais trembla soudainement et des rayons de lumière éblouissants en jaillirent. Yunque Zi fut expulsé du palais avec une expression de dépit. Il était sous le choc.
 
-Le petit singe poussa quelques couinements tandis qu'il était lui aussi repoussé. La lueur rouge dans ses yeux s'étira comme une lame de lumière d'un pouce de long, un spectacle impressionnant. Le singe ne retourna pas vers le vieil homme; il resta là, immobile, fixant le palais d'un regard féroce.
+Le petit singe poussa quelques couinements tandis qu'il était lui aussi repoussé. La lueur rouge dans ses yeux s'étira comme une lame de lumière de plus de trente centimètres de long, un spectacle impressionnant. Le singe ne retourna pas vers le vieil homme; il resta là, immobile, fixant le palais d'un regard féroce.
 
 Simultanément, des grondements profonds émanèrent du palais alors qu'un homme massif en armure dorée en sortit.
 
@@ -94,7 +94,7 @@ Dans un fracas, le corps d'Yunque Zi fut projeté comme une météorite dans la 
 
 L'homme massif en armure dorée ne le poursuivit pas, mais tourna son regard vers le petit singe. L'énergie de l'épée se concentra sur sa lame dorée et il s'apprêta à frapper.
 
-Les yeux du petit singe devinrent encore plus rouges. La lumière rouge mesurait désormais trois pouces de long, lui donnant un aspect extrêmement féroce.
+Les yeux du petit singe devinrent encore plus rouges. La lumière rouge mesurait désormais plus d'un mètre de long, lui donnant un aspect extrêmement féroce.
 
 L'homme massif fut surpris et interrompit son geste.
 
@@ -104,7 +104,7 @@ Lorsque l'homme massif regarda le vieil homme, ses yeux s'illuminèrent et l'én
 
 Le vieil homme poussa un rugissement et ses yeux brillèrent de rouge. Dès que l'énergie de l'épée approcha, une image illusoire rouge émana de son corps.
 
-Cette image était à peine perceptible. On distinguait clairement qu'il s'agissait d'une personne, mais il était impossible de dire s'il s'agissait d'un homme ou d'une femme. L'image leva la main et intercepta l'énergie de l'épée.
+Cette image était à peine perceptible. On devinait seulement une silhouette humaine, mais il était impossible de dire s'il s'agissait d'un homme ou d'une femme. L'image leva la main et intercepta l'énergie de l'épée.
 
 Puis, d'un revers de main, elle projeta l'énergie de côté, dans la mer.
 
@@ -120,7 +120,7 @@ Mais lorsqu'ils agirent ensemble, il n'attaqua qu'une seule fois.
 
 Il semblait que l'homme massif les avait testés en tant qu'unité.
 
-À cet instant précis, les yeux de l'homme massif s'illuminèrent et il abattit son épée. Un rayon d'énergie de sabre frappa la mer, provoquant une série de grondements qui se propagèrent sous l'eau. Une immense vague surgit des profondeurs, propulsant Zhou Wutai et Zi Xin dans les airs. Ils furent stoppés à mille pieds au-dessus de la mer. Le visage de Zhou Wutai était livide et il commença à cracher du sang.
+À cet instant précis, les yeux de l'homme massif s'illuminèrent et il abattit son épée. Un rayon d'énergie de sabre frappa la mer, provoquant une série de grondements qui se propagèrent sous l'eau. Une immense vague surgit des profondeurs, propulsant Zhou Wutai et Zi Xin dans les airs. Ils s'arrêtèrent à plus de trois cents mètres de là. Le visage de Zhou Wutai était livide et il commença à cracher du sang.
 
 Quant à Zi Xin, son visage était marqué par le choc.
 

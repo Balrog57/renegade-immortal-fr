@@ -18,7 +18,7 @@ L'épée volante n'était pas si mal. Bien qu'elle fût extrêmement robuste, l'
 
 Ce qui avait véritablement poussé le vieil homme à abandonner tout espoir, c'était cette étrange lame en croissant de lune.
 
-Cette lame était comme un dieu de la guerre primordial moissonnant les vies. Sa vitesse était fulgurante et, durant tout le combat, elle était restée d'une proximité terrifiante avec sa tête. C'était comme si elle tenait son cou dans une emprise puissante; quoi qu'il fasse, l'échapper à la mort lui semblait impossible.
+Cette lame était comme un dieu démon primordial moissonnant les vies. Sa vitesse était fulgurante et, durant tout le combat, elle était restée d'une proximité terrifiante avec sa tête. C'était comme si elle tenait son cou dans une emprise puissante; quoi qu'il fasse, l'échapper à la mort lui semblait impossible.
 
 Dès lors, comment le vieil homme aurait-il pu oser fuir? C'est ainsi qu'avec une lame et une épée pointées sur lui, il attendit l'arrivée de Wang Lin.
 
@@ -26,11 +26,11 @@ L'amertume dans son cœur était profonde. Il regrettait d'être venu ici avec S
 
 Des volutes de gaz gris tourbillonnaient autour des doigts de Wang Lin alors qu'il fixait le vieil homme. Il dit calmement: « Il y a de nombreuses années, lorsque le Saint de l'Épée est revenu du Royaume Céleste, y eut-il quelque chose d'anormal? Hésite et meurs! Mens et meurs! Dis quelque chose de différent de ce que Shi Fang a dit, ou meurs! »
 
-Le vieil homme fut saisi d'effroi, mais il s'empressa de lâcher: « Lorsque le vénéré Saint de l'Épée est revenu, un esprit d'épée terrifiant l'avait poursuivi. Il a combattu le Saint de l'Épée pendant de nombreux jours avant de s'effondrer. Le Saint de l'Épée a scellé... de l'esprit d'épée au plus profond de la Mer des Esprits Démoniaques de l'Est. »
+Le vieil homme fut saisi d'effroi, mais il s'empressa de lâcher: « Lorsque le vénéré Saint de l'Épée est revenu, un esprit d'épée terrifiant l'avait poursuivi. Il a combattu le Saint de l'Épée pendant de nombreux jours avant de se fragmenter en innombrables morceaux. Le Saint de l'Épée en scella un tiers au plus profond de la Mer des Esprits Démoniaques de l'Est. »
 
 Les yeux de Wang Lin s'illuminèrent et il demanda promptement: « Qu'y a-t-il de si mystérieux dans la Mer des Esprits Démoniaques de l'Est? »
 
-Le vieil homme n'osa pas tarder et répondit: « La Mer des Esprits Démoniaques de l'Est est l'une des trois grandes zones interdites de la planète Tian Yu. De nombreux démons anciens s'y trouvent. Tous les 10 000 ans, le contrôle de l'accès à cette zone change de mains. Cette fois, elle appartient à ma Secte de l'Épée Da Lou. La porte s'ouvre tous les 5 000 ans, et chaque fois qu'elle s'ouvre, chaque secte envoie des disciples pour y pénétrer afin de capturer des démons anciens. »
+Le vieil homme n'osa pas tarder et répondit: « La Mer des Esprits Démoniaques de l'Est est l'une des trois grandes zones interdites de la planète Tian Yun. De nombreux démons anciens s'y trouvent. Tous les 10 000 ans, le contrôle de l'accès à cette zone change de mains. Cette fois, elle appartient à ma Secte de l'Épée Da Lou. La porte s'ouvre tous les 5 000 ans, et chaque fois qu'elle s'ouvre, chaque secte envoie des disciples pour y pénétrer afin de capturer des démons anciens. »
 
 « Capturer des démons anciens n'est qu'un aspect secondaire. La raison principale de la Mer des Esprits Démoniaques de l'Est est un essai, une épreuve sanglante. Une fois que l'on y entre, le danger est extrêmement élevé! On peut même dire que moins il y a de survivants, mieux c'est, car le véritable bénéfice réside dans l'Héritage de l'Esprit Démoniaque que l'on reçoit en sortant! » À cet instant, les yeux du vieil homme étaient empreints d'avidité.
 
@@ -46,7 +46,7 @@ Le corps du vieil homme trembla, le sang jaillit de sa bouche et ses yeux s'obsc
 
 Wang Lin fit un geste de la main droite, et la lame en croissant ainsi que l'épée céleste retournèrent dans son sac de rangement. Puis, son corps vacilla et disparut.
 
-Trois bâtons d'encens après le départ de Wang Lin, le vieil homme ouvrit soudainement les yeux tandis que la plaie entre ses deux tempes se refermait lentement. Il prit une profonde inspiration, l'air abattu. Il se retourna pour lancer un regard venimeux vers le vide et marmonna: « Tu veux me tuer? Ce ne sera pas si facile! Ce vieil homme pratique la méthode des trois âmes, ce qui me permet de survivre à la mort trois fois. Je ne pensais pas utiliser ma dernière chance ici! Wang Lin, une fois que je serai revenu à la Secte de l'Épée Da Lou, je trouverai un moyen de te forcer à la mort pour venger l'affront d'aujourd'hui! »
+Trois bâtons d'encens après le départ de Wang Lin, le vieil homme ouvrit soudainement les yeux tandis que la plaie entre les sourcils se refermait lentement. Il prit une profonde inspiration, l'air abattu. Il se retourna pour lancer un regard venimeux vers le vide et marmonna: « Tu veux me tuer? Ce ne sera pas si facile! Ce vieil homme pratique la méthode des trois âmes, ce qui me permet de survivre à la mort trois fois. Je ne pensais pas utiliser ma dernière chance ici! Wang Lin, une fois que je serai revenu à la Secte de l'Épée Da Lou, je trouverai un moyen de te forcer à la mort pour venger l'affront d'aujourd'hui! »
 
 Ses yeux brillaient d'une lueur froide alors qu'il s'envolait au loin.
 

@@ -12,7 +12,7 @@ Cette force repoussa l'âme de Wang Lin, l'empêchant d'examiner les grains dor�
 
 Mais peu importe la force que Wang Lin exerçait sur ces particules dorées, elles ne faisaient que s'aplatir davantage sans jamais se briser. Soudain, une idée traversa l'esprit de Wang Lin. Il rassembla toutes les particules dorées et les comprima pour former un petit grain doré de la taille de son bout de doigt.
 
-Il réfléchit un instant en contemplant ce grain. Plus il le fixait, plus celui-ci lui rappelait l'os sur le front de la créature royale lors de la première épreuve. Si c'était le même, alors il s'agissait certainement d'un os vivant.
+Il réfléchit un instant en contemplant ce grain. Plus il le fixait, plus celui-ci lui rappelait l'os sur le front de la créature royale lors de la première épreuve. Si c'était le même, alors il s'agissait certainement de l'os d'une créature.
 
 Une idée audacieuse germa dans l'esprit de Wang Lin: « Pourrait-il s'agir de l'os de l'ancien dieu? » Son cœur trembla à cette pensée.
 
@@ -20,7 +20,7 @@ Mais Wang Lin renonça rapidement à cette hypothèse. D'après ce qu'il avait e
 
 Après avoir réfléchi un moment, Wang Lin rangea le grain doré. Il se leva, observa les restrictions qui se trouvaient devant lui, puis bondit en avant.
 
-Il avait déjà minutieusement observé les restrictions situées entre les points 500 et 300 de la cime de la montagne. De plus, avec l'Empereur Antique agissant comme éclaireur, bien qu'il restât prudent, la tâche était bien plus facile qu'auparavant.
+Il avait déjà minutieusement observé les restrictions situées situées entre 1650 et 990 mètres du sommet. De plus, avec l'Empereur Antique agissant comme éclaireur, bien qu'il restât prudent, la tâche était bien plus facile qu'auparavant.
 
 Cependant, à 990 mètres du sommet, Wang Lin commença à progresser avec lenteur et précaution. Il ne voulait pas déclencher les restrictions et se faire frapper par la foudre.
 
@@ -30,7 +30,7 @@ Il lui fallut trois ans pour franchir ces 990 mètres en avançant prudemment, �
 
 Lorsque Wang Lin atteignit le sommet de la montagne, trois ans après le passage du Seigneur Démon des Six Désirs et de l'Empereur Antique, il comprit que cela n'avait été possible que grâce à l'activation massive des restrictions survenue trois ans auparavant. Toutes les restrictions environnantes avaient perdu leur puissance. Même s'il tentait de les déclencher, elles n'auraient pas la force nécessaire pour s'activer. Sans cela, il n'aurait jamais pu parvenir aussi loin avec sa culture actuelle.
 
-Pourtant, Wang Lin n'était qu'à 15 pieds du sommet. Les nuages commencèrent à s'assombrir et à s'amonceler. On entrevoyait des éclairs. Wang Lin leur lança un regard calme avant de pénétrer dans le tourbillon.
+Pourtant, Wang Lin n'était plus qu'à seize mètres du sommet. Les nuages commencèrent à s'assombrir et à s'amonceler. On entrevoyait des éclairs. Wang Lin leur lança un regard calme avant de pénétrer dans le tourbillon.
 
 Il ne ralentit pas, avançant d'un pas assuré. Depuis trois ans, il s'était toujours demandé quel était l'élément déclencheur de la restriction céleste.
 
@@ -152,7 +152,7 @@ Loin d'être déçu, Wang Lin réfléchit un moment. Il se souvint du message la
 
 Après un silence, Wang Lin inspecta les trois étages de la pagode. C'est au deuxième étage qu'il vit le message familier à côté des carrés vides:
 
-« Après avoir vu la pagode aux trésors, si son aspect est plaisant, je dois dire que j'ai été très déçu par cette terre des anciens dieux. »
+« Dans cette pagode aux trésors, seul le contenu de cette case m'a paru digne d'intérêt; je dois dire que je suis assez déçu par cette terre des anciens dieux. »
 
 Cette déclaration était empreinte d'un immense orgueil. Wang Lin y réfléchit un instant et se dirigea vers le troisième étage.
 
@@ -188,7 +188,7 @@ Après avoir libéré les deux démons, Wang Lin scruta l'espace et saisit souda
 
 Elle se cachait dans le néant, espérant surprendre Wang Lin, mais elle ne s'attendait pas à ce qu'il l'arrache violemment de son refuge.
 
-L'âme entra immédiatement en panique. Wang Lin ne lui accorda même pas un regard; son essai divin Ji jaillit et forma une gueule qui engloutit l'âme errante.
+L'âme entra immédiatement en panique. Wang Lin ne lui accorda même pas un regard; son Sens Divin du Royaume Ji jaillit et forma une gueule qui engloutit l'âme errante.
 
 Wang Lin ferma les yeux. Il n'avait pas goûté d'âme errante depuis longtemps. C'était délicieux. Il sentait clairement son âme se renforcer.
 

@@ -22,7 +22,7 @@ Il faut dire que Suzaku n'envoyait normalement qu'un cultivateur de la Transform
 
 La promotion du Clan des Démons Géants fut semblable à une goutte d'encre tombant dans l'eau: le changement semblait imperceptible au début, avant de se propager et de s'étendre partout.
 
-Cependant, tout cela ne concernait aucunement Wang Lin. Il sortit de la vallée et péntra dans la formation avec Feng Yushan et sa compagnie. Juste avant de disparaître, il se retourna pour lancer un dernier regard vers la vallée.
+Cependant, tout cela ne concernait aucunement Wang Lin. Il sortit de la vallée et pénétra dans la formation avec Feng Yushan et sa compagnie. Juste avant de disparaître, il se retourna pour lancer un dernier regard vers la vallée.
 
 Le pays de Suzaku se situait sur le plus vaste continent de la planète Suzaku, nommé le continent de Suzaku.
 
@@ -30,7 +30,7 @@ Il n'existait que quatre pays de culture sur ce continent. Les trois autres éta
 
 Ces trois pays étaient le Dragon Vert, les Mille Fantaisies et Pilu.
 
-Au centre du continent, occupant les deux tiers de sa superficie, se trouvait le pays de Suzaku.
+Au centre du continent, occupant la moitié de sa superficie, se trouvait le pays de Suzaku.
 
 Même les mortels de Suzaku possédaient un rang supérieur à celui des mortels ordinaires, car ils étaient les sujets de Suzaku.
 
@@ -60,7 +60,7 @@ La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateu
 
 Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Ceng Niu. »
 
-« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte du Chemin de l'Immortel. Mon nom de famille est White et mon prénom est Snow. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs de trois pieds retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
+« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte du Chemin de l'Immortel. Mon nom de famille est White et mon prénom est Snow. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
 
 « Ma maîtresse m'a ordonné de vous attendre ici, afin de vous conduire jusqu'à elle. »
 
@@ -120,7 +120,7 @@ Papillon Rouge se tenait aux abords de la Secte du Jade Céleste et regarda Wang
 
 Perché sur la grue, Wang Lin lança un regard froid à White Snow. Cette femme avait délibérément choisi cet itinéraire; elle devait avoir ses propres desseins.
 
-Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait un dragon immense. Elle traversa des couches de nuages pour s'enfoncer dans les profondeurs de la montagne.
+Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait un dragon immense. Elle traversa des couches de nuages pour s'enfoncer dans les profondeurs de la montagne. Un immense bassin s'étendit alors devant Wang Lin, couvert d'innombrables pavillons aux balustrades sculptées et aux ornements de jade.
 
 Wang Lin descendit de l'oiseau.
 

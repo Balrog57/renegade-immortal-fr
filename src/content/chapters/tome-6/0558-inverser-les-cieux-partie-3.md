@@ -38,9 +38,9 @@ De plus, elle avait déployé son sens divin auparavant et n'avait trouvé aucun
 
 L'expression de Wang Lin resta neutre tandis qu'il fixait Yao Xixue. Tout ce qui venait de se passer avait été minutieusement planifié par lui. Dès l'instant où il avait compris qu'il s'agissait de la dernière plateforme, il avait commencé à élaborer son plan.
 
-Il avait pris le risque d'utiliser son idéal démoniaque pour tromper totalement Yao Xixue et lui faire croire qu'il déployait toute sa puissance. Puis, au moment précis où l'énergie d'épée pénétrait son corps, il avait brisé le cristal céleste qu'il portait en lui sans la moindre hésitation.
+Il avait pris le risque d'utiliser son aura démoniaque pour tromper totalement Yao Xixue et lui faire croire qu'il déployait toute sa puissance. Puis, au moment précis où l'énergie d'épée pénétrait son corps, il avait brisé le cristal céleste qu'il portait en lui sans la moindre hésitation.
 
-Il avait passé trois jours dans le camp militaire à convertir une partie des jades célestes obtenus de Yao Xixue en un cristal céleste afin de créer cette circonstance imprévue.
+Il avait passé trois jours dans le camp militaire à convertir un tiers des jades célestes obtenus de Yao Xixue en un cristal céleste afin de créer cette circonstance imprévue.
 
 Lorsque le cristal céleste se brise, une quantité massive d'énergie spirituelle céleste est libérée. Normalement, une telle décharge l'aurait contraint à s'asseoir pour cultiver, et la moindre erreur aurait endommagé ses méridiens sous la pression de cette énergie.
 
@@ -66,7 +66,7 @@ Wang Lin esquissa un léger sourire. Beaucoup l'avaient maudit, mais le vainqueu
 
 « Si mon père, l'Ancêtre Sanguin, l'apprend, tu seras mort, fût-tu un disciple du Tout-Voyant! De plus, j'ai activé une Pilule d'Âme Sanguine avant de venir ici! » Le visage de Yao Xixue était d'une pâleur cadavérique.
 
-« Pourquoi te tuerais-je alors que tes Pillules d'Âme Sanguine peuvent te ressusciter? Pour les utiliser, tu dois d'abord mourir; je vais donc utiliser un sort pour sceller ton corps tout entier. Maintenant que tu n'as plus aucune énergie spirituelle céleste, j'ai hâte de voir comment tu vas mourir! » Wang Lin laissa échapper un sourire empreint d'une profonde noirceur.
+« Pourquoi te tuerais-je alors que tes Pilules d'Âme Sanguine peuvent te ressusciter? Pour les utiliser, tu dois d'abord mourir; je vais donc utiliser un sort pour sceller ton corps tout entier. Maintenant que tu n'as plus aucune énergie spirituelle céleste, j'ai hâte de voir comment tu vas mourir! » Wang Lin laissa échapper un sourire empreint d'une profonde noirceur.
 
 Yao Xixue était livide et sans force. Comme l'avait dit Wang Lin, ses méridiens étaient brisés et son énergie spirituelle céleste épuisée. Normalement, elle serait déjà morte, mais le sceau sur son corps émettait des ondes de force vitale pour la maintenir en vie, la piégeant dans un cycle perpétuel entre la vie et la mort.
 
@@ -94,7 +94,7 @@ Yao Xixue le fixa sans dire un mot.
 
 Wang Lin sourit faiblement. « J'ai l'intention de te sceller jusqu'à ton épuisement naturel, mais la Terre des Esprits Démoniaques a une limite de 500 ans. Je vais donc te poser des questions, et chaque réponse te retirera 50 ans de vie. Qu'en dis-tu? »
 
-Yao Xue prit une profonde inspiration et réfléchit un instant. Puis elle demanda froidement: « Comment savoir si tu dis la vérité? »
+Yao Xixue prit une profonde inspiration et réfléchit un instant. Puis elle demanda froidement: « Comment savoir si tu dis la vérité? »
 
 Wang Lin eut un petit rire: « Tu n'as pas besoin de répondre! »
 
@@ -160,9 +160,9 @@ Il déploya son sens divin et découvrit immédiatement que les environs étaien
 
 « Malheureusement, ils sont tous protégés par des sceaux très puissants. Sinon, je les aurais déterrés un par un! » Il regarda le chemin de jade avec regret.
 
-À une centaine de pieds devant lui se trouvait un immense fourneau à pilules. Des orifices de la taille d'un bras y étaient percés, et des panaches de fumée blanche s'en échappaient.
+À environ 330 mètres devant lui se trouvait un immense fourneau à pilules. Des orifices de la taille d'un bras y étaient percés, et des panaches de fumée blanche s'en échappaient.
 
-Quelques centaines de pieds après le fourneau se dressait un pavillon à trois étages.
+À près d'un kilomètre du fourneau se dressait un pavillon à trois étages.
 
 Wang Lin avança, s'arrêta près du fourneau et inspecta les orifices.
 

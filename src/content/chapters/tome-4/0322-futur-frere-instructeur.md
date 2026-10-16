@@ -80,11 +80,11 @@ Sur ces mots, il pointa simplement son doigt.
 
 *Siii!*
 
-Un gaz gris se mua en une épée qui chargea vers Chi Hu. Dès l'apparition de ce gaz, une intention meurtrière envahit l'air.
+Un gaz gris se mua en une flèche qui fonça vers Chi Hu. Dès l'apparition de ce gaz, une intention meurtrière envahit l'air.
 
-« Un domaine de mort? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Il n'avait jamais vu une intention meurtrière aussi puissante que celle de son corps original.
+« Un domaine de mort? » D'un seul regard, Wang Lin reconnut le type de domaine utilisé par cet homme. Hormis son corps original, il n'avait que rarement vu une intention meurtrière aussi puissante.
 
-« Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant de plusieurs dizaines de pieds de haut. La hache sur son front scintillait frénétiquement.
+« Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant d'une dizaine de mètres de haut. La hache sur son front scintillait frénétiquement.
 
 Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi l'utilisa pour combattre Papillon Rouge, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
 
@@ -92,19 +92,19 @@ Dès que la hache apparut, Chi Hu s'empara de l'air tel un dieu démon et abatti
 
 *Bang!*
 
-Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla; il dut reculer de quelques pas. La puissance injectée dans ce coup fit saillir les veines de son bras. Il rit et lança: « C'était amusant! Recommence! »
+Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla; il dut reculer de plusieurs mètres. La puissance injectée dans ce coup fit saillir les veines de son bras. Il rit et lança: « C'était amusant! Recommence! »
 
-L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, d'où surgit une roche dorée. Il pointa la pierre qui se transforma soudainement en liquide. Il serra le poing pour lui donner une forme de diamant, puis la projeta en criant: « Essaie donc de toucher à ça! »
+L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, d'où surgit un cristal. Il pointa la pierre qui se transforma soudainement en liquide. Il serra le poing pour lui donner une forme de diamant, puis la projeta en criant: « Essaie donc de toucher à ça! »
 
-En voyant cette pierre dorée, le cœur de Wang Lin se glaça. Toutes sortes d'impulsions meurtrières parasitèrent son esprit, faisant sursauter son âme.
+En voyant ce cristal, Chi Hu fut saisi d'un frisson et des pensées meurtrières faillirent troubler son esprit. Wang Lin, lui, sentit son cœur se glacer. Toutes sortes d'impulsions meurtrières parasitèrent son esprit, faisant sursauter son âme.
 
 Les yeux de Wang Lin se fixèrent sur la roche et il dit: « Chi Hu, partons! »
 
 Chi Hu rit. Sans un mot, il fit volte-face et remonta sur la boussole en disant: « Je ne peux pas te battre, alors j'arrête de jouer! »
 
-L'homme d'âge moyen ricana et pointa à nouveau le doigt, propulsant la roche dorée en forme de diamant encore plus vite vers la boussole stellaire.
+L'homme d'âge moyen ricana et pointa à nouveau le doigt, propulsant le cristal en forme de diamant encore plus vite vers la boussole stellaire.
 
-Wang Lin contrôla la boussole pour s'enfuir rapidement. Bien que la roche fût véloce, elle n'était pas plus rapide que l'artefact.
+Wang Lin contrôla la boussole pour s'enfuir rapidement. Bien que le cristal fût véloce, il n'était pas plus rapide que l'artefact.
 
 L'expression de l'homme d'âge moyen changea brusquement alors qu'il rattrapait la pierre et se lançait à leur poursuite.
 
@@ -114,11 +114,11 @@ Après un long moment, les yeux de l'homme s'illuminèrent. Il s'arrêta, fixa l
 
 L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
-« Le junior assis au centre de la boussole semblait reconnaître ce métal. Il semble posséder une certaine connaissance... »
+« Le junior assis au centre de la boussole semblait reconnaître ce cristal. Il semble posséder une certaine connaissance... »
 
-Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était cette roche dorée en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
+Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
 
-Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en intention de tuer. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal d'intention meurtrière. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
+Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en qi maléfique. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal d'intention meurtrière. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
 
 Chi Hu commença à réfléchir. Il se remémora ses propres émotions lorsqu'il avait vu la pierre apparaître et hocha la tête.
 

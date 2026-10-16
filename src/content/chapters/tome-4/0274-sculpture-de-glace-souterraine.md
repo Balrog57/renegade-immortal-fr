@@ -60,7 +60,7 @@ C'était l'esprit élémentaire du métal qui combattait le vieil homme au somme
 
 L'esprit élémentaire du bois, quant à lui, luttait contre la gigantesque mare de boue de la Secte du Bois Vert.
 
-D'innombrables serpents noirs s'étiraient depuis la boue. Tout cultivateur de Xue Yu touché par un serpent noir mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
+D'innombrables traits noirs jaillissaient de la boue. Tout cultivateur de Xue Yu touché par l'un d'eux mourait instantanément. Même l'esprit élémentaire du bois éprouvait des difficultés.
 
 Le personnage le plus singulier restait le jeune homme de la Secte de l'Âme Noire. L'esprit élémentaire de la terre se battait contre lui et peinait sérieusement. Le jeune homme demeurait parfaitement immobile; seule sa main bougeait, maniant un pinceau à encre.
 
@@ -90,7 +90,7 @@ Ne pouvant déployer toute sa puissance au sein de la neige, il lui fallut deux 
 
 À environ 13,2 kilomètres sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à 16,5 kilomètres de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
 
-Tous les 3,3 kilomètres à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ 33 mètres de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient des mains humaines ainsi que des corps de serpents.
+Tous les 3,3 kilomètres à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ 33 mètres de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient une tête humaine ainsi que des corps de serpents.
 
 Wang Lin effectua un examen rapide et constata qu'il y avait une quantité immense de ces sculptures, et que leur disposition semblait avoir une signification précise.
 
@@ -108,10 +108,10 @@ Au même instant, son expression changea brusquement lorsqu'il remarqua un immen
 
 Bien que le géant fût mort, le feu ne s'arrêta pas; il chargea vers Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et son corps recula. Sa main traça un sceau et un pilier d'eau apparut devant lui pour intercepter la flamme.
+Les yeux de Wang Lin s'illuminèrent et son corps recula. Sa main traça un sceau et un mur d'eau apparut devant lui pour intercepter la flamme.
 
 Il profita de cet instant pour se téléporter à plus de 1000 kilomètres de là. Sa distance de téléportation était bien plus grande qu'auparavant.
 
-Le pilier d'eau ne bloqua le feu qu'un court instant avant de se dissiper en une brume blanche. La flamme tourna une fois autour de la zone avant de foncer vers la Secte du Nuage Blanc.
+Le mur d'eau ne bloqua le feu qu'un court instant avant de se dissiper en une brume blanche. La flamme tourna une fois autour de la zone avant de foncer vers la Secte du Nuage Blanc.
 
 Wang Lin n'était pas disposé à se dévoiler pour l'instant; il n'éteignit donc pas le feu et se contenta de s'enfuir. Tant que les cultivateurs de la Formation de l'Âme des deux camps ne seraient pas passés à l'action, Wang Lin ne bougerait pas.

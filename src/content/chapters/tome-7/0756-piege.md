@@ -24,7 +24,7 @@ Ces restrictions entretenaient un lien mystérieux entre elles et, à mesure qu'
 
 « Sceller! »
 
-D'un seul mot, ces restrictions encerclèrent immédiatement la zone. Elles apparurent près de l'ombre rouge et convergèrent vers elle. L'ombre rouge émit une lueur incandescente, créant une mer de sang dans le ciel, et chargea aussitôt alors que les restrictions se refermaient sur elle. Cependant, à cet instant précis, toutes les restrictions explosèrent dans un écho tonitruant.
+D'un seul mot, ces restrictions encerclèrent immédiatement la zone. Elles apparurent près de l'ombre rouge et convergèrent vers elle. L'ombre rouge émit une lueur incandescente, créant une mer de sang dans le ciel, et s'échappa aussitôt alors que les restrictions se refermaient sur elle. Cependant, à cet instant précis, toutes les restrictions explosèrent dans un écho tonitruant.
 
 L'ensemble du fragment montrait des signes d'instabilité, comme s'il était sur le point de s'effondrer.
 
@@ -46,7 +46,7 @@ Ce fragment du Royaume Céleste du Tonnerre s'écroula sous la foulée de cette 
 
 De plus en plus de déchirures spatiales, dévorant tout sur leur passage, apparurent dans le ciel. Le sol continuait de se rompre et de sombrer dans le vide. Certains pans furent engloutis par les failles spatiales et disparurent sans laisser de trace.
 
-Une demi-heure plus tard, le ciel n'était plus que néant et la terre n'existait plus. L'un des fragments restants du Royaume Céleste du Tonnerre avait disparu à jamais. Ce changement radical terrifia les quelques cultivateurs du Système Stellaire Allheaven présents sur le fragment. Tous tentèrent désespérément de fuir.
+Une heure plus tard, le ciel n'était plus que néant et la terre n'existait plus. L'un des fragments restants du Royaume Céleste du Tonnerre avait disparu à jamais. Ce changement radical terrifia les quelques cultivateurs du Système Stellaire Allheaven présents sur le fragment. Tous tentèrent désespérément de fuir.
 
 La peur de la mort leur fit perdre tout discernement. Pourtant, peu d'entre eux purent échapper à l'effondrement du fragment.
 
@@ -70,7 +70,7 @@ Des déchirures spatiales apparaissaient occasionnellement dans le ciel, libéra
 
 C'était le seul son qui régnait ici.
 
-Un autel d'environ 330 mètres de haut se dressait là, avec de nombreuses marches menant au sommet. L'autel était endommagé et parsemé de fissures, dont certaines remontaient jusqu'au sommet.
+Un autel d'environ 33 mètres de haut se dressait là, avec de nombreuses marches menant au sommet. L'autel était endommagé et parsemé de fissures, dont certaines remontaient jusqu'au sommet.
 
 À cet instant, un éclat de lumière apparut sur la plateforme sommitale de l'autel et deux silhouettes en émergèrent.
 
@@ -92,7 +92,7 @@ Peu après, il retira son Sens Divin, le visage plus sombre encore. Les déchiru
 
 « Si je livre Yao Xixue, l'Ancêtre de Sang viendra-t-il toujours à ma poursuite... » Après avoir réfléchi un instant, Wang Lin fit sortir le garde céleste pour monter la garde auprès de Li Yuan. Puis, d'un revers de main, il isola les environs. Il frappa ensuite son sac de rangement et une sphère de restriction en sortit. Elle grandit jusqu'à atteindre la taille d'un homme avant de s'ouvrir telle une fleur de lotus.
 
-Lorsque la sphère s'ouvrit, Yao Xixue apparut, assise en position du lotus, ses longs cheveux couvrant ses épaules. Les cent ans d'emprisonnement l'avaient rendue fragile. À cet instant, ses cils frémirent et elle ouvrit les yeux. En voyant Wang Lin, une lueur de confusion passa dans son regard, aussitôt remplacée par une parfaite clarté.
+Lorsque la sphère s'ouvrit, Yao Xixue apparut, assise en position du lotus, ses longs cheveux couvrant ses épaules. Plus d'un siècle d'emprisonnement l'avaient rendue fragile. À cet instant, ses cils frémirent et elle ouvrit les yeux. En voyant Wang Lin, une lueur de confusion passa dans son regard, aussitôt remplacée par une parfaite clarté.
 
 Aucune joie ni colère ne transparaissait sur son visage alors qu'elle fixait calmement Wang Lin. Après un long moment, un soupçon de dérision étira ses lèvres: « Je peux sentir les vestiges du sortilège de sang de mon père... Je peux aussi ressentir ta peur... »
 
@@ -156,6 +156,6 @@ Li Yuan rit, l'excitation brillant davantage dans ses yeux alors qu'il hochait l
 
 Un éclat mystérieux traversa les yeux de Wang Lin alors qu'il demandait lentement: « Frère Li, si cet endroit devait s'effondrer, tout ce qu'il contient serait-il détruit avec lui...? »
 
-Li Yuan fut surpris et acquiesça: « Oui, cet endroit n'est pas un fragment comme l'extérieur. Une fois qu'il s'effondre, une force dévastatrice provoquera instantanément la destruction de tout ce qu'il contient, ne laissant aucune trace. Cependant, Frère Bu peut être rassuré, car en l'absence d'interférences extérieures, cet endroit ne devrait pas s'effondrer. À moins que... vous... pourriez-vous...? » En parlant, Li Yuan eut une pensée soudaine et prit une inspiration glacée.
+Li Yuan fut surpris et acquiesça: « Oui, cet endroit n'est pas un fragment comme l'extérieur. Une fois qu'il s'effondre, une force dévastatrice provoquera instantanément la destruction de tout ce qu'il contient, ne laissant aucune trace. Cependant, Frère Xu peut être rassuré, car en l'absence d'interférences extérieures, cet endroit ne devrait pas s'effondrer. À moins que... vous... pourriez-vous...? » En parlant, Li Yuan eut une pensée soudaine et prit une inspiration glacée.
 
 Le regard de Wang Lin se fit glacial et il murmura doucement: « Si c'est le cas, alors peut-être pourrais-je tendre un piège pour me débarrasser de l'Ancêtre de Sang! »

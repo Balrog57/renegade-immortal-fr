@@ -64,7 +64,7 @@ Sans avoir traversé d'innombrables épreuves de vie ou de mort, peu importe leu
 
 Wang Lin les observa froidement. « Connaissez-vous la planète Dong Lin?! »
 
-Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom: le Massacre de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré une famille de culture entière.
+Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom: le Massacre de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré toutes les familles d'une planète de culture.
 
 La planète Dong Lin était un cauchemar terrifiant pour la plupart des habitants du système stellaire d'Allheaven.
 
@@ -88,13 +88,13 @@ Wang Lin prit une profonde inspiration, puis son corps vacilla et il disparut.
 
 Les quatre guides, le visage livide, rentrèrent immédiatement auprès de leurs familles pour raconter ce qui s'était passé.
 
-Alors que Wang Lin pénétrait sur la planète Ran Yun, un éclat rouge sombre et terrifiant traversait le système stellaire de l'Alliance. Cette lumière dégageait une aura sinistre. Telle un éclair fendant l'espace, elle exerçait une pression capable de faire trembler les fondations du monde.
+Alors que Wang Lin pénétrait sur la planète Ran Yun, un éclat noir et terrifiant traversait le système stellaire de l'Alliance. Cette lumière dégageait une aura sinistre. Telle un éclair fendant l'espace, elle exerçait une pression capable de faire trembler les fondations du monde.
 
 Un vieil homme se trouvait au cœur de ce rayon rouge. Un regard impitoyable marquait son visage émacié. Le plus stupéfiant était qu'il n'utilisait aucun trésor magique pour voyager; chaque pas semblait être une téléportation.
 
 Il n'était pas seul. Une femme l'accompagnait, d'une beauté incomparable. Ses lèvres étaient rouges, ses sourcils parfaitement dessinés, et ses yeux de phénix, d'un noir profond, possédaient un éclat capable de couper le souffle à quiconque.
 
-Ses longs cheveux, longs de trois pieds, étaient coiffés en trois mèches: l'une relevée par une broche en jade blanc en forme de papillon, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
+Ses longs cheveux, longs d'environ un mètre, étaient coiffés en trois mèches: l'une relevée par une broche en jade blanc en forme de papillon, les deux autres retombant avec élégance sur ses épaules. Elle portait une magnifique tunique impériale fleurie et légère, associée à une robe vert émeraude. À chacun de ses mouvements, elle irradiait une grâce éclatante.
 
 Cette femme n'était en rien moins belle que Papillon Rouge; on pourrait sans exagération la qualifier de beauté nationale. Outre son apparence, elle dégageait un charme si envoûtant qu'il en devenait magnétique.
 
@@ -120,4 +120,4 @@ Il était le Grand Ancien de la famille Huan sur la planète Thousand Illusion, 
 
 C'est pour cette raison qu'il avait pris la décision immédiate de faire d'elle sa disciple!
 
-Après avoir passé des siècles à ses côtés, il avait appris à l'aimer de plus en plus. Il en était venu à renoncer même à sa quête de la perle transcendantante pour pouvoir la ramener dans le système stellaire d'Allheaven.
+Après avoir passé des siècles à ses côtés, il avait appris à l'aimer de plus en plus. Il en était venu à renoncer même à sa quête de la perle défiant le ciel pour pouvoir la ramener dans le système stellaire d'Allheaven.

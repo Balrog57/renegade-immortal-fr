@@ -66,7 +66,7 @@ La richesse de l'énergie spirituelle qui s'y trouvait était inimaginable!
 
 À ce moment précis, la puissance provenant de toutes les directions de la planète Qing Ling commença à converger vers ce point. Cette force était illusoire, mais tous les cultivateurs la remarquèrent. Même les mortels pouvaient clairement la ressentir. Ce pouvoir se condensa rapidement sur le pic Heng Yun et dans le corps de Wang Lin. À cet instant, Wang Lin s'éveilla!
 
-Ses yeux étaient brillants, comme s'ils contenaient l'univers tout entier. Son expression était empreinte de joie, mais la puissance des cieux l'entourait. Son visage était pâle, mais il rayonnait d'une clarté singulière!
+Ses yeux étaient ternes, mais ils contenaient le soleil, la lune et l'univers tout entier. Son expression était dépourvue de joie, mais la puissance des cieux l'entourait. Son visage était pâle, mais il rayonnait d'une clarté singulière!
 
 Le corps de Wang Lin dégageait l'aura de celui qui a pris conscience de son propre Dao et en a obtenu le contrôle absolu! Ce corps était présent, tout comme son âme originelle. Pourtant, si un cultivateur s'approchait et fermait les yeux, il ne pourrait absolument pas détecter l'existence de Wang Lin.
 
@@ -74,7 +74,7 @@ C'était comme si Wang Lin s'était déjà fondu dans le monde! Auparavant, lors
 
 C'était comme si, par une simple pensée, la distance n'existait plus. C'était comme si sa pensée était le karma lui-même!
 
-« Les cieux ne laissent aucune trace. J'ai involontairement pénétré mon propre karma. Sans cette illumination, je crains que je ne me sois jamais réveillé! Cette affaire est étrange; c'était comme si une multitude de pensées envahissaient mon esprit et remplaçaient ma raison pour me contraindre à agir selon un certain idéal... » Wang Lin leva la tête vers le ciel, révélant un regard glacial.
+« Les cieux ne laissent aucune trace. J'ai involontairement pénétré mon propre karma. Sans cette illumination, je crains que je ne me sois jamais réveillé! Cette affaire est étrange; c'était comme si une multitude de pensées envahissaient mon esprit et remplaçaient ma raison pour me contraindre à agir selon une certaine pensée... » Wang Lin leva la tête vers le ciel, révélant un regard glacial.
 
 Son regard était empreint d'une intention meurtrière et d'une froideur infinie. En levant les yeux vers l'azur, il ressentit une puissance infinie émanant de la planète Qing Ling. Elle venait de chaque cultivateur, de chaque mortel, de chaque être vivant!
 

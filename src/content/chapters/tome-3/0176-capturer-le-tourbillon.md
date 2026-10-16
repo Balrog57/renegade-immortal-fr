@@ -40,11 +40,11 @@ Wang Lin eut un ricanement tandis que l'épée volante revenait vers lui. Il con
 
 Tout cela se produisit en un instant. En un clin d'œil, un espace se créa entre Wang Lin et les tourbillons. Cependant, les petites créatures avaient fini de fusionner leurs sens divins, et une série d'éclairs de sens divin se précipita vers Wang Lin.
 
-Le regard de Wang Lin restait serein. Lorsque les éclairs de sens divin arrivèrent, il donna un ordre au second démon. Les petites créatures contrôlées par ce dernier firent soudain volte-face et chargèrent, créant des ondes sonores qui se propagèrent largement.
+Le regard de Wang Lin restait serein. Lorsque les éclairs de sens divin arrivèrent, il donna un ordre au second démon. Les petites créatures contrôlées par ce dernier se tournèrent soudain vers l'arrière et poussèrent des cris stridents, créant des ondes sonores qui se propagèrent largement.
 
 Cette attaque produisit une onde de choc qui propulsa la tornade de Wang Lin vers l'avant, faisant manquer leur cible aux éclairs de sens divin. Lorsque les petites créatures poursuivant Wang Lin fusionnèrent leurs sens divins pour une nouvelle attaque, celui-ci était déjà loin d'elles.
 
-Alors que le grand vortex céleste apparut à la vue de Wang Lin, ses yeux se mirent à briller. En vérité, s'il n'avait pas décidé de voler la montre de Bossu Meng, il serait déjà entré en toute sécurité dans la seconde épreuve.
+Alors que le grand vortex céleste apparut à la vue de Wang Lin, ses yeux se mirent à briller. En vérité, s'il n'avait pas décidé de voler les trésors de Bossu Meng, il serait déjà entré en toute sécurité dans la seconde épreuve.
 
 Même maintenant, s'il renonçait à se cacher dans la tornade et qu'il chargeait de toutes ses forces, il aurait 80 % de chances de réussir, mais ce n'était pas ce que Wang Lin prévoyait de faire.
 
@@ -90,13 +90,13 @@ Wang Lin rétracta son Sens Divin et regarda en arrière. La formation du dragon
 
 À chaque collision, l'anneau devenait un peu plus terne. Wang Lin laissa échapper un ricanement froid en rangeant la formation du dragon. Dès que la formation disparut, les 40 tornades se dispersèrent.
 
-Simultanément, Wang Lin pointa son front. Le second démon apparut rapidement et lança un rugissement de défi vers ces tornades.
+Simultanément, Wang Lin fit un geste de la main droite. Le second démon apparut rapidement et lança un rugissement de défi vers ces tornades.
 
 Toutes les tornades s'arrêtèrent net. Une des petites créatures jaillit de l'un des tourbillons et percuta le second démon. Wang Lin observa la scène avec calme. Cela faisait partie de son plan. S'il n'avait pas laissé le second démon défier les autres lors de la première épreuve, c'est parce qu'il y avait tout simplement trop de tornades en poursuite pour pouvoir s'arrêter; dès que le second démon aurait commencé à les provoquer, cela aurait attiré encore plus de tourbillons. Si le second démon échouait, Wang Lin se serait retrouvé sans aucun moyen de fuite.
 
 Mais maintenant qu'il n'y avait plus que ces 40 tornades, la situation était radicalement différente.
 
-Trois jours plus tard, Wang Lin regardait au loin, debout près du pont noir. Quarante-deux tornades noires étaient étroitement regroupées. Si l'on regardait de près, on voyait que toutes les tornades encerclaient un tourbillon central, reliées par des éclats de lumière rouge.
+Trois jours plus tard, Wang Lin regardait au loin, debout près du pont noir. Quarante-deux tornades étaient étroitement regroupées. Si l'on regardait de près, on voyait que toutes les tornades encerclaient un tourbillon central, reliées par des éclats de lumière rouge.
 
 Les chefs de toutes ces tornades avaient fusionné avec le second démon. Cependant, par la force, Wang Lin les avait tous extirpés pour les placer dans un étendard d'âme, afin de créer d'autres démons à l'avenir.
 

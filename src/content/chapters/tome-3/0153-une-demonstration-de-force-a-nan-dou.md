@@ -6,17 +6,17 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 153 - A Show of Strength at Nan Dou
 slug: une-demonstration-de-force-a-nan-dou
 ---
-Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois sectes dirigeantes ou pour la Secte de l'Éradication du Mal, on leur témoignait toujours le respect.
+Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois sectes dirigeantes ou pour la Secte de la Lutte contre le Mal, on leur témoignait toujours le respect.
 
 Si l'ordre de mise à mort n'était pas apparu, ces gens ne se seraient jamais manifestés.
 
-Un homme au teint rubicond mais à l'expression maléfique fixa Wang Lin. Ses pupilles se rétractèrent tandis qu'il disait d'une voix lente: « Nous devons agir rapidement. Si cela continue, nous attirerons inévitablement des cultivateurs de l'Âme Naissante. Même s'il n'y a aucun cultivateur de l'Âme Naissante dans un rayon de 100 millions de kilomètres autour de Nan Dou, qu'en sera-t-il au-delà? Dès qu'un tel expert arrivera, nous n'aurons plus aucune chance de réussir. »
+Un homme au teint rubicond mais à l'expression maléfique fixa Wang Lin. Ses pupilles se rétractèrent tandis qu'il disait d'une voix lente: « Nous devons agir rapidement. Si cela continue, nous attirerons inévitablement des cultivateurs de l'Âme Naissante. Même s'il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de Nan Dou, qu'en sera-t-il au-delà? Dès qu'un tel expert arrivera, nous n'aurons plus aucune chance de réussir. »
 
-Un vieil homme, ayant vu Wang Lin tuer si aisément un cultivateur de la Formation du Noyau, ajouta lentement: « Cet individu n'est qu'au stade initial de la Formation du Noyau, mais pourquoi est-il si puissant? En voyant que le vieux démon Shanguan est même prêt à devenir son disciple, même si nous tentions d'agir, nous ne pourrions probablement rien en tirer. »
+Un vieil homme, ayant vu Wang Lin tuer si aisément un cultivateur de la Formation du Noyau, ajouta lentement: « Cet individu n'est qu'au stade initial de la Formation du Noyau, mais pourquoi est-il si puissant? En voyant que le vieux démon Shang Guanmo est même prêt à devenir son disciple, même si nous tentions d'agir, nous ne pourrions probablement rien en tirer. »
 
 « Il y a aussi cette épée volante. Je n'ai jamais vu une épée capable de se téléporter auparavant. Cette arme doit être au moins un trésor de niveau Âme Naissante, voire de niveau Formation de l'Âme. Elle a déjà tué cent personnes. »
 
-« Hmph, n'avez-vous pas vu les dix corps qui étaient traînés derrière ce démon? C'étaient des Anciens de la Secte de l'Éradication du Mal. Il peut massacrer des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité vous aveugle, c'est votre problème, mais je ne m'embarquerai pas dans ce chaos. Adieu! » L'un des cultivateurs jeta un regard chargé de terreur vers Wang Lin, puis, après avoir parlé, sortit un bateau et s'éclipsa rapidement.
+« Hmph, n'avez-vous pas vu les dix corps qui étaient traînés derrière ce démon? C'étaient des Anciens de la Secte de la Lutte contre le Mal. Il peut massacrer des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité vous aveugle, c'est votre problème, mais je ne m'embarquerai pas dans ce chaos. Adieu! » L'un des cultivateurs jeta un regard chargé de terreur vers Wang Lin, puis, après avoir parlé, sortit un bateau et s'éclipsa rapidement.
 
 Les autres cultivateurs restèrent plongés dans leurs réflexions jusqu'à ce que l'un d'eux déclare soudainement: « Le messager de la mer intérieure va bientôt arriver. Je suis prêt à tuer cet homme pour sauver les économies de mes cent dernières années. Une fois cette pilule de culture en ma possession, je pourrai atteindre le stade avancé de la Formation du Noyau et protéger mes biens. »
 
@@ -34,17 +34,17 @@ Wang Lin jeta un bref regard au démon avant de porter son attention sur Li Muwa
 
 Wang Lin détourna le regard et fixa froidement le démon. Ce dernier s'éloigna rapidement en pensant: « Qui veut bien rester près de vous? Plus vous êtes loin, mieux c'est. Le mieux serait de ne plus jamais vous revoir. Le monde est vaste; quelle liberté ce serait! »
 
-Mais lui-même savait que cela était trop beau pour être vrai. Le démon marmonnait entre ses dents tout en poursuivant les cultivateurs. Alors qu'il affichait un sourire maléfique, sur le point de dévorer une proie, une lumière dorée transperça la poitrine du cultivateur. Il jura de rage. Mais alors qu'il s'apprêtait à bondir sur une autre victime, un autre éclair doré jaillit.
+Mais lui-même savait que cela était trop beau pour être vrai. Le démon marmonnait entre ses dents tout en poursuivant les cultivateurs. Alors qu'il affichait un sourire maléfique, sur le point de dévorer une proie, une lueur cristalline transperça la poitrine du cultivateur. Il jura de rage. Mais alors qu'il s'apprêtait à bondir sur une autre victime, un autre éclair cristallin jaillit.
 
 Une fois le démon parti, le cœur de Li Muwan se calma peu à peu. Elle hésita un instant avant de se tourner vers Wang Lin: « Il... il est? »
 
-Les yeux de Wang Lin brillèrent d'un éclat singulier. Aucun cultivateur ne se trouvait à moins de cent mètres de lui. Tous les corps des défunts étaient enveloppés par le tendon de dragon, flottant derrière lui telle une cape.
+Les yeux de Wang Lin brillèrent d'un éclat singulier. Aucun cultivateur ne se trouvait à moins de cent lieues de lui. Tous les corps des défunts étaient enveloppés par le tendon de dragon, flottant derrière lui telle une cape.
 
 Cette bataille allait faire résonner le nom de Wang Lin dans toute la région de Nan Dou. Au moins mille cadavres s'étendaient derrière lui, obscurcissant le ciel. Le symbole rouge « Punir » qui survolait sa tête n'était plus une tentation, mais le signe distinctif d'un puissant cultivateur.
 
-« C'est un démon », dit calmement Wang Lin, tout en fixant les deux rayons de lumière qui fonçaient vers lui depuis plus de 500 kilomètres. Il ferma les yeux un instant avant de faire demi-tour pour partir.
+« C'est un démon », dit calmement Wang Lin, tout en fixant les deux rayons de lumière qui fonçaient vers lui depuis plus de mille lieues. Il ferma les yeux un instant avant de faire demi-tour pour partir.
 
-« Shan Guanmo, Mu Nan, Mei Bei, avez-vous assez vu? »
+« Shang Guanmo, Mu Nan, Mu Bei, avez-vous assez vu? »
 
 La voix glaciale résonna dans l'esprit des trois hommes. Le corps de Shang Guanmo frissonna; il se concentra à nouveau et vola vers les deux cultivateurs qui approchaient. Son cœur était en plein chaos. Bien qu'il sût que ce monstre était puissant, il n'imaginait pas une telle force.
 
@@ -52,15 +52,15 @@ La voix glaciale résonna dans l'esprit des trois hommes. Le corps de Shang Guan
 
 Peu importe où l'on se trouve, les forts sont respectés. C'était particulièrement vrai dans la mer des démons.
 
-Mu Nan et Mei Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte de l'Éradication du Mal n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
+Mu Nan et Mu Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte de la Lutte contre le Mal n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
 
 Shang Guanmo aperçut l'un des adversaires et éclata de rire: « Ha ha! Si ce n'est pas le vieux Ouyang. Cela faisait longtemps que nous ne nous étions pas vus, retrouvons nos vieux souvenirs! » Il toucha immédiatement l'épée dans son dos. L'épée noire s'élança et chargea le vieil homme.
 
 Quant aux frères Mu, bien qu'ils fussent tous deux au stade initial de la Formation du Noyau, ils avaient l'habitude de combattre en duo. Malgré leur désavantage, ils parvenaient encore à tenir bon.
 
-Le regard de Wang Lin balaya les cultivateurs de la Formation du Noyau situés à 500 kilomètres et ses yeux devinrent glacials. Les survivants s'étaient déjà enfuis au loin, souhaitant tous avoir une paire de jambes supplémentaire pour courir plus vite. La silhouette de Wang Lin était désormais gravée dans leurs cœurs et ne s'effacerait jamais.
+Le regard de Wang Lin balaya les cultivateurs de la Formation du Noyau situés à mille lieues et ses yeux devinrent glacials. Les survivants s'étaient déjà enfuis au loin, souhaitant tous avoir une paire de jambes supplémentaire pour courir plus vite. La silhouette de Wang Lin était désormais gravée dans leurs cœurs et ne s'effacerait jamais.
 
-Parmi les quatre cultivateurs restés au stade intermédiaire de la Formation du Noyau à mille kilomètres de là, l'homme au teint rubicond secoua la tête. Il se retourna pour partir, mais ses pupilles se contractèrent soudainement.
+Parmi les quatre cultivateurs restés au stade intermédiaire de la Formation du Noyau à mille lieues de là, l'homme au teint rubicond secoua la tête. Il se retourna pour partir, mais ses pupilles se contractèrent soudainement.
 
 Un homme et une femme se tenaient à 33 mètres derrière lui. Au-dessus de la tête de l'homme flottait le symbole rouge sang « Punir ». Les autres cultivateurs remarquèrent le danger et sortirent leurs trésors comme face à un ennemi redoutable, mais aucun n'osa passer à l'acte en premier.
 
@@ -74,14 +74,14 @@ Les deux autres cultivateurs firent demi-tour et s'enfuirent sans dire un mot. W
 
 À cet instant, le cultivateur qui combattait Shang Guanmo poussa un cri misérable et tenta de fuir. Mais alors qu'il s'échappait, l'épée cristalline du démon apparut soudainement devant lui. Le démon grogna: « Arrête de me voler! Celui-ci est à moi! À MOI! »
 
-Toutefois, il fut un instant trop tard. Après un éclair doré, un large trou apparut dans la poitrine du cultivateur.
+Toutefois, il fut un instant trop tard. Après un éclair cristallin, un large trou apparut dans la poitrine du cultivateur.
 
-Une demi-heure plus tard, le cultivateur qui affrontait les frères Mu succombait à l'attaque sournoise de Shang Guanmo. Wang Lin rangea l'épée cristalline dans son corps et le démon retourna à contrecœur dans le tendon de dragon.
+Un quart d'heure plus tard, le cultivateur qui affrontait les frères Mu succombait à l'attaque sournoise de Shang Guanmo. Wang Lin rangea l'épée cristalline dans son corps et le démon retourna à contrecœur dans le tendon de dragon.
 
 « Continuez à me guider! » La voix de Wang Lin était glaciale, empreinte d'une intention meurtrière oppressante.
 
-Wang Lin savait que pour s'imposer ici, il devait faire étalage de sa puissance, et la Secte de l'Éradication du Mal était l'endroit idéal pour cela.
+Wang Lin savait que pour s'imposer ici, il devait faire étalage de sa puissance, et la Secte de la Lutte contre le Mal était l'endroit idéal pour cela.
 
-À cet instant, Mu Nan et Mei Bei éprouvèrent un respect profond pour Wang Lin. En particulier Mei Bei, dont le regard exprimait une déférence totale tandis qu'il guidait rapidement le groupe vers la Secte de l'Éradication du Mal.
+À cet instant, Mu Nan et Mu Bei éprouvèrent un respect profond pour Wang Lin. En particulier Mu Bei, dont le regard exprimait une déférence totale tandis qu'il guidait rapidement le groupe vers la Secte de la Lutte contre le Mal.
 
 Devant Wang Lin, la masse de cadavres dégageait une aura mortelle. Cette démonstration était plus efficace que n'importe quel discours. De nombreux cultivateurs aux intentions malveillantes, en voyant ces milliers de corps, pâlirent et reculèrent, craignant d'être entraînés dans ce carnage.

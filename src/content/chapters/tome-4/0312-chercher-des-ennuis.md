@@ -14,7 +14,7 @@ Il envoya rapidement un message: « Une anomalie se trouve à 5 kilomètres deva
 
 L'une des âmes errantes s'approcha; touchée par un tentacule, elle disparut instantanément.
 
-Wang Lin prit une profonde inspiration et transmetta une vision de la scène avec son message.
+Wang Lin prit une profonde inspiration et transmit une vision de la scène avec son message.
 
 Sans dire un mot, Chi Hu changea immédiatement la direction de la boussole pour contourner la créature. En passant à proximité, l'un des tentacules balaya le flanc de l'engin.
 
@@ -22,7 +22,7 @@ Bang!
 
 La boussole se mit à trembler violemment et se mit à tourbillonner, projetant les voyageurs vers le nord.
 
-Wang Lin ne put que ressentir une force colossale s'engouffrer dans son corps. Il eut l'impression que ses organes étaient frappés par des dizaines de milliers de kilogrammes de pression. Le sang lui monta à la bouche, mais il parvint à l'avaler.
+Wang Lin ne put que ressentir une force colossale s'engouffrer dans son corps. Il eut l'impression que ses organes étaient frappés par dix mille kilogrammes de pression. Le sang lui monta à la bouche, mais il parvint à l'avaler.
 
 La boussole continuait de tournoyer et, en un clin d'œil, s'envola au loin.
 
@@ -40,7 +40,7 @@ Wang Lin dit lentement: « Cette bête s'appelle le Xu. »
 
 Chi Hu fut surpris: « Le frère Ceng connaît cette créature? »
 
-Wang Lin expliqua: « Ce Xu est considéré comme une bête destructrice mineure. Il naît en dévorant la terre et se nourrit d'énergie Yin. Même à l'époque ancienne, les cultivateurs devaient être nombreux pour parvenir à le vaincre. »
+Wang Lin expliqua: « Ce Xu est considéré comme une bête destructrice mineure. Il naît en dévorant la terre et vit en exhalant de l'énergie Yin. Même à l'époque ancienne, les cultivateurs devaient être nombreux pour parvenir à le vaincre. »
 
 Une description de cette créature figurait dans la mémoire du Dieu Ancien Tu Si. Cette bête possédait trois trésors: ses tentacules étaient des matériaux de raffinage de première qualité; son cerveau pouvait prolonger la longévité; et son noyau pouvait conférer la force de soulever dix mille kilogrammes.
 
@@ -136,7 +136,7 @@ Chi Hu sourit: « Mon clan des Démons Géants n'est pas originaire de Suzaku. M
 
 Wang Lin acquiesça intérieurement.
 
-Le temps passa rapidement. Wang Lin cultivait tout en surveillant les âmes errantes, lorsqu'il ouvrit soudainement les yeux. Grâce à elles, il percevait un objet de plusieurs mètres de large flottant au loin. Cet objet ressemblait à un immense rocher parcouru d'éclairs violets.
+Le temps passa rapidement. Wang Lin cultivait tout en surveillant les âmes errantes, lorsqu'il ouvrit soudainement les yeux. Grâce à elles, il percevait un objet d'une dizaine de mètres de large flottant au loin. Cet objet ressemblait à un immense rocher parcouru d'éclairs violets.
 
 Le cœur de Wang Lin tressaillit: « La Pierre Pourpre Dorée! »
 
@@ -144,7 +144,7 @@ Dans la mémoire de Tu Si, la Pierre Pourpre Dorée était le matériau indispen
 
 Sans attendre la réponse de Chi Hu, il s'élança vers la pierre.
 
-Wang Lin pensa secrètement: « Lorsque je cherchais à comprendre les cieux pour atteindre le stade de la Formation de l'Âme, j'ai rencontré un senior nommé Tian Yunzi. Il m'a dit que si je quittais Suzaku, je pourrais le retrouver sur la planète Tian Yun et qu'il ferait de moi son disciple honorifique pour cent ans. Sa culture est divine; je dois saisir cette chance. Je dois mettre la main sur une boussole stellaire. »
+Wang Lin pensa secrètement: « Lorsque je me suis élevé au-dessus du monde des mortels et cherchais à comprendre les cieux, j'ai rencontré un senior nommé Tian Yunzi. Il m'a dit que si je quittais Suzaku, je pourrais le retrouver sur la planète Tian Yun et qu'il ferait de moi son disciple honorifique pour cent ans. Sa culture est divine; je dois saisir cette chance. Je dois mettre la main sur une boussole stellaire. »
 
 Sa vitesse était telle qu'il atteignit la Pierre Pourpre Dorée en peu de temps. Il observa le grand rocher, prit une profonde inspiration et l'inséra dans son sac de rangement avant de revenir.
 
