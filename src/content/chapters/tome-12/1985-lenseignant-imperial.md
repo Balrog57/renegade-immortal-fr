@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1985 - Imperial Teacher!"
 slug: lenseignant-imperial
 ---
-Chapitre 1985 - L'Enseignant Impérial!
-
 Au loin, les cultivateurs provenant du palais s'arrêtèrent tous face à ce changement soudain. Leurs visages pâlirent, empreints d'une peur profonde, et tous leurs regards convergèrent vers Wang Lin.
 
 « La neige noire n'est peut-être jamais tombée sur le palais impérial », déclara l'homme aux cheveux noirs, Wang Lin, tout en agitant sa main droite. L'obscurité envahit le ciel, recouvrant le palais, tandis qu'une neige noire s'abattait à l'intérieur comme à l'extérieur de l'enceinte.
@@ -24,7 +22,7 @@ D'un seul pas, le palais entier sembla se superposer à une autre dimension. Cel
 
 « Je vous attendais depuis longtemps... Vous êtes enfin venu! »
 
-Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyréen Gemini faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyréen Gemini maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin!
+Wang Lin leva les yeux vers l'Enseignant Impérial perché sur le temple. Dans le ciel, la bataille entre l'Empereur Céleste et le Grand Empyréen Gémeaux faisait rage. Il serait difficile de désigner un vainqueur, mais tant que le Grand Empyréen Gémeaux maintiendrait l'Empereur Céleste occupé, celui-ci ne pourrait pas agir contre Wang Lin!
 
 Hormis l'Empereur Céleste, le palais n'abritait que l'Enseignant Impérial, dont la culture était étrange!
 

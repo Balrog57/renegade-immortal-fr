@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: "Chapter 207 - Killing people for their core!"
 slug: tuer-pour-leur-noyau
 ---
-Chapitre 207 - Tuer pour leur noyau!
-
 Les yeux voilés du vieil homme aux cheveux blancs se mirent à briller et son dos légèrement voûté commença à se redresser. Son corps entier parut soudainement regagner en vitalité.
 
 Tous les cultivateurs de la ville perdirent brusquement le contrôle de l'énergie spirituelle dans leurs corps, comme s'ils vivaient une expérience de décorporation. Cela instilla une peur profonde en chacun d'eux.

@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1587 - Kindness Ends!"
 slug: la-bonte-a-ses-limites
 ---
-Chapitre 1587 - La bonté a ses limites!
-
 Lorsque l'ombre de sang jaillit du puits, une brèche béante apparut dans le sceau.
 
 Dès que l'ouverture se forma, le monde infini commença à trembler. D'innombrables fissures se propagèrent depuis ce point central. De loin, le spectacle était terrifiant.
@@ -68,7 +66,7 @@ Dans le Royaume du Vide Brillant, au sein du Royaume Céleste de la Pluie, Qing 
 
 « Le Souverain! » Son visage s'assombrit et sa main droite déchira l'espace devant lui. Il disparut en un instant.
 
-Également dans le Vide Brillant, au sein de la Secte des Cadavres, Maître Nuage du Sud se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
+Également dans le Vide Brillant, au sein de la Secte des Cadavres, Maître Nan Yunzi se concentrait sur la fabrication d'un ensemble de drapeaux de formation pour la prochaine grande guerre. Alors qu'il travaillait, il leva brusquement les yeux. Son expression changea lorsqu'il perçut l'aura du sceau, puis il s'élança sans hésiter.
 
 Les cultivateurs du troisième niveau de la Rivière Invoquée ressentirent également cette aura et s'activèrent tous avec anxiété.
 

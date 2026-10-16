@@ -6,13 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1589 - Dream of Celestial or Celestial Dream!"
 slug: reve-celeste-ou-reve-du-ciel
 ---
-Chapitre 1589 - Rêve Céleste ou Rêve du Ciel!
-
 La planète Suzaku émettait une douce lueur. De loin, elle paraissait paisible. Seule une infime particule de poussière invisible s'effondrait, produisant un léger bruit.
 
 Cette particule de poussière marquait le lieu de la calamité de Wang Lin...
 
-Après la disparition du Vieux Fantôme Zhan, des ondulations de plus en plus nombreuses résonnèrent autour de la planète Suzaku. Bientôt, ces ondes couvrirent tout le ciel et des silhouettes sortirent anxieusement des ombres. Maître Hong Shan, Maître Nuage du Sud, Qing Lin, Qing Shui... et bien d'autres.
+Après la disparition du Vieux Fantôme Zhan, des ondulations de plus en plus nombreuses résonnèrent autour de la planète Suzaku. Bientôt, ces ondes couvrirent tout le ciel et des silhouettes sortirent anxieusement des ombres. Maître Hong Shan, Maître Nan Yunzi, Qing Lin, Qing Shui... et bien d'autres.
 
 Ils n'apparurent pas tous d'un coup, mais l'un après l'autre. De puissants Sens Divins balayèrent la zone jusqu'à ce qu'ils se fixent sur la particule de poussière effondrée. Chacun médita silencieusement.
 

@@ -14,7 +14,7 @@ Cette scène les laissa transis.
 
 À leurs yeux, l'homme aux cheveux blancs n'était qu'une silhouette. Bien qu'il semblât lent, il était en réalité comme un éclair alors qu'il chargeait le jeune homme vêtu de pourpre monté sur la bête spirituelle noire.
 
-Le cri du jeune homme révélait l'effroi qui lui tenaillait le cœur. Bien que Rudy fût au stade Yin Illusoire, son statut élevé l'avait préservé de tels dangers jusqu'alors.
+Le cri du jeune homme révélait l'effroi qui lui tenaillait le cœur. Bien que Lu Di fût au stade Yin Illusoire, son statut élevé l'avait préservé de tels dangers jusqu'alors.
 
 À l'origine, il pensait que ce serait un voyage facile et divertissant. Il croyait qu'avec la protection de Song Wude et son rang de jeune maître de la Secte Dao Pourpre, il pourrait faire ce qu'il voulait dans la région de rang 5!
 
@@ -40,9 +40,9 @@ Dans la brume sanglante sous l'arc-en-ciel, la silhouette aux cheveux blancs s'�
 
 Xu Yun fixa la silhouette et trembla légèrement. Elle mordit sa lèvre inférieure, ses yeux brillant d'une lueur étrange.
 
-Rudy était mort. Son corps s'était effondré et son âme originelle avait disparu, tout comme celle de son oncle. Dans la main de Wang Lin reposaient un lotus noir épanoui et une sacoche de rangement.
+Lu Di était mort. Son corps s'était effondré et son âme originelle avait disparu, tout comme celle de son oncle. Dans la main de Wang Lin reposaient un lotus noir épanoui et une sacoche de rangement.
 
-Si la personne que Rudy avait menacée n'avait pas été Wang Lin, mais un natif de la région de rang 5, cela aurait pu avoir un certain effet. Ce serait particulièrement vrai pour les sectes plus faibles que la Secte Dao Pourpre. Sous l'impulsion du moment, ils auraient hésité et se seraient contentés de capturer Rudy au lieu de le tuer.
+Si la personne que Lu Di avait menacée n'avait pas été Wang Lin, mais un natif de la région de rang 5, cela aurait pu avoir un certain effet. Ce serait particulièrement vrai pour les sectes plus faibles que la Secte Dao Pourpre. Sous l'impulsion du moment, ils auraient hésité et se seraient contentés de capturer Lu Di au lieu de le tuer.
 
 Après tout, au sein de la région de rang 5, la Secte Dao Pourpre était assez puissant pour figurer parmi les dix premiers. Plus important encore était le nom de « Lu Yuncong! » Il était extrêmement talentueux et jouissait d'une immense renommée dans cette région.
 
@@ -76,7 +76,7 @@ Ses trois frères aînés fixaient d'un regard pensif l'endroit où Wang Lin ava
 
 Après un bref silence, les disciples directs des anciens éclatèrent en acclamations. Ils se tournèrent vers l'arc-en-ciel et regagnèrent la Secte de l'Origine aux côtés des quatre anciens.
 
-« La Secte Dao Pourpre ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Rudy... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
+« La Secte Dao Pourpre ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Lu Di... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
 
 « Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Cet aîné a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte de l'Origine n'est pas encore à son déclin! »
 

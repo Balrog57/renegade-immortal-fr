@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1419 - Come!!"
 slug: venez
 ---
-Chapitre 1419 - Venez!!
-
 Wang Lin flottait dans les airs et joignit ses mains devant la statue du premier Oiseau Vermillon. Il agita ensuite sa main droite, et l'épée de sang émit un chant avant de voler vers lui.
 
 Ses paroles témoignaient de sa détermination. En entendant cela, le premier Oiseau Vermillon resta silencieux et réfléchit.

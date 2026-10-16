@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1910 - Devil Dao Secte’s Calamity !"
 slug: la-calamite-du-secte-du-dao-demoniaque
 ---
-Chapitre 1910 - La Calamité de la Secte du Dao Démoniaque!
-
 Les actions de Wang Lin semblaient grandioses, mais avec sa puissance actuelle, il acheva tout cela silencieusement en un instant. À cet instant, il marcha calmement vers le brouillard et, sans la moindre hésitation, pénétra dans la formation.
 
 Au moment où il entra dans la formation, un grondement tonitruant résonna à travers le monde jusqu'à la Secte du Dao Démoniaque.

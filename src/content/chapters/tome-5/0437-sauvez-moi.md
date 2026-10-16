@@ -6,8 +6,6 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 437 - Save me
 slug: sauvez-moi
 ---
-Chapitre 437 - Sauvez-moi...
-
 Ce son parvint aux oreilles de Wang Lin et pénétra directement dans son âme. C'était exactement le même cri qu'auparavant.
 
 Il ignora la voix et se faufila rapidement à travers l'étroite ouverture. Grâce à sa culture, il put atteindre rapidement la chambre cachée en passant par ce petit trou dans le mur.

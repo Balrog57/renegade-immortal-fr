@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1293 - Become My Mount and Ill Spare Your Life!"
 slug: devenez-ma-monture-et-je-vous-epargnerai-la-vie
 ---
-Chapitre 1293 - Devenez ma monture et je vous épargnerai la vie!
-
 La Secte Démon possédait six planètes de culture. Ces six planètes formaient un cercle parfait; une configuration simple, mais qui dégageait une aura terrifiante.
 
 C'était une formation!

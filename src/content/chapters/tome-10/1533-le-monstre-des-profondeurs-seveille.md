@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1533 - Nether Beast Awakens!"
 slug: le-monstre-des-profondeurs-seveille
 ---
-Chapitre 1533 - Le Monstre des Profondeurs s'éveille!
-
 C'était un visage extrêmement vieux, profondément marqué par les rides. On aurait dit que son corps avait vécu depuis bien trop longtemps. Ces rides étaient telles des ravins et dégageaient une aura antique.
 
 Une marque se trouvait entre ses sourcils. Elle ressemblait à une cicatrice, comme si quelqu'un l'avait marquée au fer rouge il y a d'innombrables années. Quant à sa forme exacte, nul ne pouvait la distinguer clairement.

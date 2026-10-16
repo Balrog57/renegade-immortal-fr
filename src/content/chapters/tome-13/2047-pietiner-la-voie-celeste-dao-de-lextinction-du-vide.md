@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2047 - Trample the Heavenly Path, Void Extinction Dao!"
 slug: pietiner-la-voie-celeste-dao-de-lextinction-du-vide
 ---
-Chapitre 2047 - Piétiner la Voie Céleste, Dao de l'Extinction du Vide!
-
 Sur le Continent Luo Huo, après qu'une partie de l'âme de Luo Huo fut dévorée par Wang Lin, le Prince Ji Du cracha une importante bouffée de sang à l'intérieur de la salle.
 
 Dès cet acte, un sceau invisible au sein de son corps s'effondra et se brisa.

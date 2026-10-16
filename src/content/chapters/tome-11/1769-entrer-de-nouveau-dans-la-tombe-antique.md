@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1769 - Entering the Ancient Tomb Once More!"
 slug: entrer-de-nouveau-dans-la-tombe-antique
 ---
-Chapitre 1769 - Entrer de nouveau dans la Tombe Antique!
-
 Une pointe de douleur jaillit du bras gauche de Wang Lin. Il avait l'impression que quelque chose lui perçait le cœur. Une sueur froide perla sur son front, mais son expression resta imperturbable. Il leva lentement sa main droite et observa le gaz qui s'infiltrait dans son bras gauche.
 
 Ce gaz semblait infini et continuait de pénétrer dans le membre de Wang Lin. Son bras gauche devint progressivement rugueux, tandis que des runes complexes y scintillaient.

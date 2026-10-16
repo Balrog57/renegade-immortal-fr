@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1699 - Illusion Within Illusion!"
 slug: illusion-dans-lillusion
 ---
-Chapitre 1699 - Illusion dans l'illusion!
-
 « Que faites-vous?! » Les yeux de la femme s’écarquillèrent, pétris de choc. En un clin d'œil, elle recula de plusieurs milliers de pieds. Sa main traça un sceau et une lumière aux sept couleurs enveloppa son corps, tandis que sept longs sabres apparurent et tournèrent autour d'elle en rotation.
 
 Une ombre gigantesque se manifesta derrière elle: une fleur aux sept couleurs qui s'épanouissait de manière démoniaque, exhalant un parfum enivrant.

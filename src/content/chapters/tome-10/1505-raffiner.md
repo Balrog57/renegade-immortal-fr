@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1505 - Refine!"
 slug: raffiner
 ---
-Chapitre 1505 - Raffiner!
-
 Tout cela se produisit en un éclair. Dès que les Êtres Éclairés apparurent et commencèrent leurs chants, une gigantesque tablette de pierre surgit au-dessus de l'Âme de la Bête du Néant.
 
 Les caractères rouge sang étaient imprégnés d'une intention démente. Sous cette influence, les Êtres Éclairés semblèrent perdre la raison, leurs chants se muant en cris stridents. Comme s'ils étaient sous contrôle, ils pivotèrent rapidement pour former un vortex.

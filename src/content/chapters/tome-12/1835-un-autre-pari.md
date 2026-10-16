@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1835 - Another Bet !"
 slug: un-autre-pari
 ---
-Chapitre 1835 - Un autre pari!
-
 Après que Wang Lin eut parlé, son pied se posa sur la 14e marche. À cet instant, l'essence véritable qui se trouvait derrière lui se transforma en une mer de feu et s'engouffra dans son corps. Wang Lin ne fit plus qu'un avec son essence véritable et avança!
 
 C'était la 15e marche!

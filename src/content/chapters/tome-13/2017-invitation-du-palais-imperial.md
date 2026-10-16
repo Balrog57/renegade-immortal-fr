@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2017 - Invitation From the Imperial Palace!"
 slug: invitation-du-palais-imperial
 ---
-Chapitre 2017 - Invitation du Palais Impérial!
-
 Sa voix n'était ni forte, ni tonnante. Cependant, lorsqu'elle retentit, une pression aussi écrasante que celle du Mont Gu Dao émana de Wang Lin!
 
 Cette pression était suffisante pour terrasser quiconque la ressentait!

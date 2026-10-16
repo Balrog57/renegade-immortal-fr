@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1801 - There is Something Strange, There is a Problem, There is a Treasure!"
 slug: il-y-a-quelque-chose-detrange-il-y-a-un-probleme-il-y-a-un-tresor
 ---
-Chapitre 1801 - Il y a quelque chose d'étrange, il y a un problème, il y a un trésor!
-
 Le continent du Taureau Céleste faisait partie du Continent Oriental, la terre appartenant aux êtres célestes. C'était une région reculée et montagneuse; vue d'en haut, la majeure partie du continent n'était qu'une succession de sommets.
 
 La rumeur prétendait qu'aux premiers âges, le continent du Taureau Céleste était une bête céleste maléfique que l'Ancêtre Céleste avait tuée avant de la placer ici. D'autres rumeurs allaient jusqu'à dire que les 72 continents n'étaient en réalité que 72 sceaux destinés à réprimer 72 bêtes extraterrestres féroces!

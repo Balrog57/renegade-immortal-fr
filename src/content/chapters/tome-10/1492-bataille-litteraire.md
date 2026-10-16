@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1492 - Literary Battle!"
 slug: bataille-litteraire
 ---
-Chapitre 1492 - Bataille Littéraire!
-
 S'il n'y avait pas de vendetta entre les cultivateurs du troisième niveau, même s'ils devaient s'entretuer, ils conserveraient toujours un respect mutuel. Après tout, parmi la vaste population de ce monde, bien trop peu pouvaient atteindre le troisième niveau.
 
 Maître Lu Fu était un cultivateur du troisième niveau depuis longtemps et n'avait aucun différend avec Wang Lin. Actuellement, ils étaient en confrontation en raison du Dieu de Sang, mais il ne s'agissait que d'une simple opposition.

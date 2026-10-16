@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1736 - Nine Cycle Heart Wheel!"
 slug: la-roue-du-cur-aux-neuf-cycles
 ---
-Chapitre 1736 - La Roue du Cœur aux Neuf Cycles!
-
 Après avoir rangé l'armure du Général de l'Eau, les yeux de Wang Lin étaient aussi froids que la glace. Il fixa le vortex et tendit la main vers lui.
 
 Au même instant, une lumière dorée et éclatante jaillit du vortex telle une pluie d'épées acérées. Elle percuta violemment la main droite de Wang Lin.

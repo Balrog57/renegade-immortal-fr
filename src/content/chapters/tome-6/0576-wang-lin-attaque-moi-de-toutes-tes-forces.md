@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 576 - Wang Lin, Attack Me At Full Power!"
 slug: wang-lin-attaque-moi-de-toutes-tes-forces
 ---
-Chapitre 576 - Wang Lin, attaque-moi de toutes tes forces!
-
 Un autre fracas retentit depuis la Prison Hong. Alors que la poussière et les débris s'élevaient dans les airs, l'épée d'argent émit un chant héroïque avant de s'élancer vers l'horizon.
 
 Wang Lin regarda l'épée de l'Empereur s'éloigner et esquissa un léger sourire. « Pourquoi cette épée agit-elle comme un enfant? Puisqu'elle ne parvient pas à me trouver, elle en veut maintenant à la Prison Hong. Combien de fois cela fait-il déjà? Dix? »

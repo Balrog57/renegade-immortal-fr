@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1473 - The Power of A Roar !!"
 slug: la-puissance-dun-rugissement
 ---
-Chapitre 1473 - La Puissance d'un Rugissement!!
-
 Dans la neuvième carte, l'avatar de Maître Démon des Neuf Cieux se déplaçait également à toute allure à travers le tombeau. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
 
 « Voler! Même si tu voles tout, tu ne pourras pas quitter ce tombeau antique vivant! » Un éclair de froideur traversa les yeux de Maître Démon des Neuf Cieux. Cependant, à cet instant, un rugissement retentit depuis le vide et les turbulences autour de lui se dissipèrent.

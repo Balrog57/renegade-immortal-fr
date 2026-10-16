@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1730 - Earth essence!"
 slug: essence-terrestre
 ---
-Chapitre 1730 - Essence terrestre!
-
 Parmi les quatre individus, il y avait un vieil homme vêtu d'une robe taoïste. Son visage était parsemé de taches brunes et, après avoir hésité un instant, il prit la parole d'une voix rauque: « Cette affaire... Devrions-nous en informer le Grand Ancien Na Duo? »
 
 Il s'agissait de Yin Dongshen, celui qui redoutait le plus Wang Lin.

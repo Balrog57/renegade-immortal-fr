@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1268 - The Heaven Defying Bead Disappears!"
 slug: la-perle-defiant-le-ciel-disparait
 ---
-Chapitre 1268 - La Perle Défiant le Ciel disparaît!
-
 À cet instant, le monde entier était entouré par les innombrables restrictions que Wang Lin avait dispersées. C'était comme une sphère en expansion qui se condensait rapidement.
 
 Le vieil homme à l'intérieur du jade laissa poindre un soupçon de désespoir, mais à ce moment précis, un sifflement s'échappa de l'objet. Une brume noire en jaillit et forma une centipède géante d'environ mille pieds de long!

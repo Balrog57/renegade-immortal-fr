@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1970 - The Celestial Clan’s Number One City!"
 slug: la-ville-numero-un-du-clan-celeste
 ---
-Chapitre 1970 - La Ville Numéro Un du Clan Céleste!
-
 Alors que la neige tombait, deux silhouettes descendirent l'une après l'autre de la Secte Yang Pourpre: Wang Lin et Liu Jinbiao.
 
 Wang Lin avait cultivé en silence durant une année entière, imprégné de l'aura de sa ville natale qui lui manquait tant. Durant cette période, son essence de bois avait atteint la perfection et était sur le point de former un véritable corps d'essence.
@@ -34,7 +32,7 @@ Derrière eux, à la Secte Yang Pourpre, se tenaient Gu Ya et deux petites fille
 
 Gu Ya soupira et dit: « Cela devrait... être possible... Je lui ai déjà donné le jade. S'il fait face à un danger dans le Continent Central, vous le saurez immédiatement. »
 
-« C'est notre accord avec lui. Le cas échéant, le Grand Empyréen Gemini devra aller à son aide. »
+« C'est notre accord avec lui. Le cas échéant, le Grand Empyréen Gémeaux devra aller à son aide. »
 
 « Oui, c'est certain. Puisque le petit Wang Lin nous a choisis, nous ne laisserons personne l'intimider! » Wa Wa regarda Han Han, et les deux fillettes hochèrent la tête avec sérieux.
 
@@ -76,7 +74,7 @@ Une montagne, un homme, un Grand Empyréen Jiu Dai; ensemble, ils faisaient en s
 
 Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
-C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gemini avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
+C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gémeaux avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
 Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Il faudrait plusieurs mois pour que les vents glaciaux et la neige qui balayaient le Continent Oriental recouvrent le Continent Central.
 

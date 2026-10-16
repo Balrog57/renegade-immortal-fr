@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1890 - Calamity Fortune
 slug: calamite-fortune
 ---
-Chapitre 1890 - Calamité? Fortune?
-
 L'homme qui émergea du quatrième réseau de transfert était un homme d'âge moyen. Vêtu d'une robe taoïste noire et blanche, il était grand et dégageait une aura anormale. Bien que très beau, la finesse de ses lèvres lui conférait un air glacial.
 
 Cet homme était manifestement impitoyable. Il n'aurait jamais épuisé les ressources d'une secte entière pour l'élimination d'un seul individu.

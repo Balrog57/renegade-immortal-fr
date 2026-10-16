@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1930 - Spirit not of the Immortal Astral Continent!"
 slug: un-esprit-qui-ne-provient-pas-du-continent-astral-immortel
 ---
-Chapitre 1930 - Un esprit qui ne provient pas du Continent Astral Immortel!
-
 « Je n'ai pas besoin de vous vaincre, je veux seulement que vous restiez immobile! » Le corps de Wang Lin s'élança et ses cinq veines magiques pivotèrent rapidement. Soudain, 97 images rémanentes de Wang Lin apparurent!
 
 Avec son corps original, cela faisait un total de 98 corps!

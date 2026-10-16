@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1830 - Curse Him to Death!"
 slug: maudis-le-jusqua-la-mort
 ---
-Chapitre 1830 - Maudis-le jusqu'à la mort!
-
 Alors qu'il rugissait, un sens divin semblable à une tempête enveloppa la zone. Il entra en collision avec les ondulations créées par le sort « Ancien Dao, aucun Céleste » de Wang Lin. Les neuf couches d'ondulations s'effondrèrent immédiatement et se dissipèrent en éclats de lumière dorée.
 
 Le corps de Yan Lu fut repoussé par cette puissance divine. Elle recula de plus de mille pieds avant de s'arrêter.

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1993 - The Real Imperial Teacher!"
 slug: le-vrai-maitre-imperial
 ---
-Chapitre 1993 - Le Vrai Maître Impérial!
-
 Des grondements tonitruants résonnèrent alors que les quatre Grands Empyréens tentaient de percer la lumière dorée. Le temps pressait, et l'Empereur Céleste savait qu'il ne s'était pas accordé un délai bien long!
 
 S'il ne parvenait pas à absorber par la force le pouvoir de l'Ancêtre Céleste avant que les quatre Grands Empyréens ne percent la lumière dorée, alors tout ce qu'il avait accompli serait vain.

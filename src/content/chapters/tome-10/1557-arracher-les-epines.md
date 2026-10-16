@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1557 - Pulling the Thorns!"
 slug: arracher-les-epines
 ---
-Chapitre 1557 - Arracher les épines!
-
 Cinq fissures subtiles apparurent sur le dos de la tortue de pierre lorsque les coups de poing de Wang Lin la frappèrent. Tandis que des craquements résonnaient, les fissures se propagèrent et d'innombrables ramifications surgirent.
 
 Cependant, à cet instant précis, un gaz gris imprégné d'une aura de mort s'échappa des crevasses et se rua vers Wang Lin.

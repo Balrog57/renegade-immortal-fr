@@ -76,7 +76,7 @@ Les grondements incessants firent trembler la rivière argentée entourant le no
 
 Le visage de Qing Lin pâlit et il s'élança vers les cieux.
 
-« C'est l'aura de l'Ancien Royaume Céleste. Il est de retour! Maître Hong Shan, Maître Nuage du Sud et Qing Shui, venez avec moi pour saluer les anciens célestes! » Qing Lin vola vers le ciel, suivi de trois rayons de lumière: Maître Hong Shan, Maître Nuage du Sud et Qing Shui!
+« C'est l'aura de l'Ancien Royaume Céleste. Il est de retour! Maître Hong Shan, Maître Nan Yunzi et Qing Shui, venez avec moi pour saluer les anciens célestes! » Qing Lin vola vers le ciel, suivi de trois rayons de lumière: Maître Hong Shan, Maître Nan Yunzi et Qing Shui!
 
 Les quatre s'élancèrent vers les cieux. En dessous d'eux se trouvaient les cultivateurs du Royaume Intérieur et une statue gigantesque dressée sur le plus haut pic. Cette statue avait été transportée ici depuis la planète Suzaku durant ces trois derniers jours, afin que les générations futures puissent l'adorer!
 
@@ -97,7 +97,7 @@ Des rugissements s'élevèrent de ces dizaines de silhouettes dorées. Chacune d
 
 Après ces dizaines d'individus, d'autres figures dorées continuèrent de surgir. Vu de loin, le spectacle était saisissant!
 
-Qing Lin et son groupe étaient les plus proches. Tandis que la lumière dorée emplissait le ciel, ils affichaient tous des expressions solennelles. Maître Hong Shan et Maître Nuage du Sud joignirent les mains en signe de respect.
+Qing Lin et son groupe étaient les plus proches. Tandis que la lumière dorée emplissait le ciel, ils affichaient tous des expressions solennelles. Maître Hong Shan et Maître Nan Yunzi joignirent les mains en signe de respect.
 
 Pourtiment, comparé à eux, Qing Lin était le plus exalté. Il fit un pas en avant, joignit les mains face aux silhouettes dorées et s'adressa à elles d'un ton respectueux:
 

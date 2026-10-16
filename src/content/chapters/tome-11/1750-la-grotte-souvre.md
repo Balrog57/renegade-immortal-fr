@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1750 - The Cave Opens !"
 slug: la-grotte-souvre
 ---
-Chapitre 1750 - La Grotte s'ouvre!
-
 Un grondement assourdissant emplit l'intégralité de l'Ancien Système Stellaire alors qu'un brouillard envahissait tout. Cette brume tourbillonnait comme si d'innombrables bêtes féroces s'y agitaient.
 
 Chaque recoin du Royaume Extérieur était enveloppé par le brouillard. Une pression puissante émanant du lointain Royaume Intérieur enveloppait l'ensemble du monde de la grotte.

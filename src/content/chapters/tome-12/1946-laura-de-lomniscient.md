@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1946 - Omniscient’s Aura!"
 slug: laura-de-lomniscient
 ---
-Chapitre 1946 - L'Aura de l'Omniscient!
-
 « Au fil des innombrables années, j’ai étudié cette inscription. Je veux savoir qui a détruit ma Secte Dong Lin et quelles étaient ses intentions!
 
 « Ma Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la culture.

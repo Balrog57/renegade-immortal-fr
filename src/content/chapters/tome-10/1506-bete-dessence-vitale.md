@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1506 - Life Essence Beast!"
 slug: bete-dessence-vitale
 ---
-Chapitre 1506 - Bête d'Essence Vitale!
-
 Cette paume contenait toute la détermination de Wang Lin. Son désir était de faire de la Bête du Néant sa bête d'essence vitale, coûte que coûte. Le sceau sur la tête de la Bête du Néant, qui était sur le point de se dissiper, fut instantanément imprégné d'une force nouvelle.
 
 En un éclair, le sceau émit une lumière éclatante. Non seulement il se reforma, mais il devint même 30 % plus puissant qu'auparavant!

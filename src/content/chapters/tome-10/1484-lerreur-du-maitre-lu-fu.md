@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1484 - Master Lu Fu’s mistake!"
 slug: lerreur-du-maitre-lu-fu
 ---
-Chapitre 1484 - L'erreur du Maître Lu Fu!
-
 Au moment même où Wang Lin fit un pas en avant, des ordres retentirent au sein de la famille Lu sur la planète Dong Ling!
 
 « Formation, deviens le ciel! »

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1412 - Nine Colors Fuse Into One!"
 slug: neuf-couleurs-fusionnent-en-une
 ---
-Chapitre 1412 - Neuf couleurs fusionnent en une!
-
 Le dragon de cent mille pieds possédait naturellement une quantité immense de sang, mais ce que l'Ancien Oiseau Vermillon convoitait, c'était le sang de dragon flamboyant niché dans la protubérance sur le crâne de la créature.
 
 Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien plus précieux et rare que le reste de son sang. D'un coup magistral, l'Ancien Oiseau Vermillon força l'extraction de tout ce sang flamboyant, qui retomba sur le bâton d'encens ardent.

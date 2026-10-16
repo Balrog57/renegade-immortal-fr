@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 1049 - If You Want My Treasure, Then Feel Free to Come at Me!"
 slug: si-vous-voulez-mon-tresor-alors-nhesitez-pas-a-venir-me-defier
 ---
-Chapitre 1049 - Si vous voulez mon trésor, alors n'hésitez pas à venir me défier!
-
 Presque tous les regards dans la salle étaient fixés sur l'avatar du Maître du Vide. Les assauts continus du trésor avaient profondément ébranlé le cœur de chacun.
 
 Tout s'était déroulé avec une rapidité fulgurante. La lumière argentée devenait de plus en plus rapide, puis vinrent la 19e frappe, la 22e frappe!

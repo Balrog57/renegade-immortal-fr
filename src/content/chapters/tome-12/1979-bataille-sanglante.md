@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1979 - Bloody Battle!"
 slug: bataille-sanglante
 ---
-Chapitre 1979 - Bataille sanglante!
-
 Le Taureau Céleste apparut et repoussa le dragon de glace. Il percuta également de plein fouet les douze personnes qui encerclaient Wang Lin!
 
 De loin, cette scène ressemblait à un tableau vivant. Si quelqu'un pouvait la peindre, elle serait transmise à travers les âges!

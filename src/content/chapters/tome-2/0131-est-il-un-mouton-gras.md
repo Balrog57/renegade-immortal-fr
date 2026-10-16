@@ -6,8 +6,6 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 131 - Is He a Fat Sheep
 slug: est-il-un-mouton-gras
 ---
-Chapitre 131 - Est-il un mouton gras?
-
 Sun Youcai laissa échapper un rire en tendant la main pour saisir l'épaule de Wang Lin: « Ne parlons plus d'elle. Frère Ma, il y a une formation de transfert juste devant qui permet d'entrer dans le Ravin. »
 
 L'épaule de Wang Lin s'écarta pour esquiver sa main. Il répondit: « C'est une bonne chose. Allons-y vite afin de pénétrer dans la vallée au plus tôt. » Sur ce, il s'élança en avant.

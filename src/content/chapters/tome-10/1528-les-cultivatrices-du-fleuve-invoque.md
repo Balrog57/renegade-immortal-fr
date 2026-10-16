@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1528 - Female Cultivators from the Summoned River!"
 slug: les-cultivatrices-du-fleuve-invoque
 ---
-Chapitre 1528 - Les Cultivatrices du Fleuve Invoqué!
-
 Les cultivateurs du Fleuve Invoqué se tenaient sur des éclairs. Certains en transportaient un seul, d'autres plus de dix, et certains même des centaines de cultivateurs. Ces guerriers du Fleuve Invoqué, qui n'avaient jamais été vus auparavant dans les trois autres systèmes stellaires, faisaient leur apparition de la manière la plus stupéfiante qui soit.
 
 Les éclairs projetaient des grondements tonitruants. Ils étaient si rapides qu'il était impossible de les suivre à l'œil nu! Leurs vêtements étaient singuliers; ils ressemblaient à des uniformes militaires, et bien qu'ils ne soient pas identiques, on aurait dit qu'ils provenaient de nations différentes.
@@ -32,11 +30,11 @@ En conséquence, ce fut une véritable déroute! Le rugissement de Wang Lin fut 
 
 « L'ancêtre du Clan du Moineau de Feu est mort! Le cultivateur de la troisième étape Nan Zhao est mort! Le Grand Maître Yuo Luo du Conseil Souverain est mort! Et vous serez les prochains! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le sol!
 
-Le Maître Nuage du Sud combattait la concubine impériale céleste quand, à cet instant, la jeune femme du Fleuve Invoqué, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
+Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme du Fleuve Invoqué, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
-« Cher cultivateur Nuage du Sud, laissez cette personne à Rêve Pourpre », dit doucement la lettrée. Elle agita sa main semblable au jade et s'élança dans le champ de bataille.
+« Cher cultivateur Nan Yunzi, laissez cette personne à Rêve Pourpre », dit doucement la lettrée. Elle agita sa main semblable au jade et s'élança dans le champ de bataille.
 
-Le Maître Nuage du Sud sourit et se retira, détournant son regard de la concubine impériale céleste. Il emmena Ling Dong et Zhou Jin avec lui pour commencer à réparer la Formation de Scellement du Royaume.
+Le Maître Nan Yunzi sourit et se retira, détournant son regard de la concubine impériale céleste. Il emmena Ling Dong et Zhou Jin avec lui pour commencer à réparer la Formation de Scellement du Royaume.
 
 « Servante méprisable, pourquoi ta sœur aînée n'est-elle pas encore venue? » Les pupilles de la concubine impériale céleste se rétractèrent et elle laissa échapper un reniflement glacial. Les deux femmes s'affrontèrent avec acharnement, sans qu'aucune ne parvienne à l'emporter!
 

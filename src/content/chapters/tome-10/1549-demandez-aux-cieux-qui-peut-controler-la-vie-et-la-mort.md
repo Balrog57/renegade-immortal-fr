@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1549 - Ask the Heavens Who Can Control Life and Death!"
 slug: demandez-aux-cieux-qui-peut-controler-la-vie-et-la-mort
 ---
-Chapitre 1549 - Demandez aux Cieux qui peut contrôler la vie et la mort!
-
 Bien que l'Estimé Maître Tian Zhao parût arrogant et affiche un regard de mépris, il était extrêmement sérieux. Bien qu'il n'eût jamais vu Wang Lin auparavant, le nom du Seigneur du Royaume Scellé avait été maintes fois évoqué au cours des dernières décennies.
 
 En particulier, la manière dont l'ancêtre du Clan de l'Hirondelle de Feu avait été tranché en deux l'avait profondément choqué. Cependant, si cela n'était là que le sommet de ses prouesses, il ne s'en soucierait guère. Après tout, l'ancêtre du Clan de l'Hirondelle de Feu n'était qu'au stade initial du Nirvana Vide et ne méritait pas son attention.

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1937 - Let the Grand Empyrée See!"
 slug: que-le-grand-empyrean-les-voie
 ---
-Chapitre 1937 - Que le Grand Empyréen les voie!
-
 « Ne parle pas! » dit soudain Wang Lin, les yeux étincelants. Il leva les yeux vers le rideau de lumière où l'ombre formée par la paume brisée le fixait en retour.
 
 « Ce rideau de lumière va bientôt se rompre. Contrôle la formation pour qu'elle éclate, et utilise la force du chaos pour nous propulser dehors le plus vite possible!

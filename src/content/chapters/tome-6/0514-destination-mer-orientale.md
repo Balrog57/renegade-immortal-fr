@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 514 - Destination, Eastern Sea!"
 slug: destination-mer-orientale
 ---
-Chapitre 514 - Destination, Mer Orientale!
-
 Après avoir vu Wang Lin arriver, le vieil homme poussa un soupir de soulagement.
 
 « Cher cultivateur Wang Lin, s'il y a le moindre problème, nous pouvons en discuter. Ce vieil homme vous dira tout ce que vous voulez savoir sans le moindre mensonge! »

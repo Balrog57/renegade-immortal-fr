@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1987 - The Celestial Skull Turns Into a Mountain!"
 slug: le-crane-celeste-se-transforme-en-montagne
 ---
-Chapitre 1987 - Le Crâne Céleste se transforme en Montagne!
-
 Roar!!
 
 Ming Dao laissa échapper un rugissement tandis que son corps se redressait dans l'eau gelée, provoquant des craquements sinistres. Ses cheveux poussèrent si rapidement qu'ils dépassèrent la longueur de son corps pour s'étaler sur la surface glacée.

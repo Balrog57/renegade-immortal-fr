@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2037 - Breaking the Line!"
 slug: briser-la-ligne
 ---
-Chapitre 2037 - Briser la ligne!
-
 À l'intérieur de la montagne déserte, transformée en ruines, une immense formation se dévoila lorsque le brouillard se dissipa. Une silhouette était assise au centre de la formation aux dix couleurs, et Wang Lin pouvait désormais distinguer son apparence.
 
 C'était un vieil homme, et il ressemblait étrangement à l'Omniscient!

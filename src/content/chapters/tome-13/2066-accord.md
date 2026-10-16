@@ -86,7 +86,7 @@ Wu Feng observa le champ de bataille avec une expression complexe. Les lois du m
 
 En vérité, la raison pour laquelle ils étaient venus, outre le choc provoqué par les changements de lois, était de témoigner personnellement de la bataille. Cependant, il était évident que cela serait impossible.
 
-Quant au Grand Empereur Gemini, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
+Quant au Grand Empereur Gémeaux, les deux fillettes s'étaient depuis longtemps fusionnées en une magnifique femme. Elle restait silencieuse, et même elle doutait de l'identité de celui qui avait combattu Gu Dao.
 
 Le temps passa. Les sept restèrent là pendant la durée d'un bâton d'encens. Ils se regardèrent, rendant l'atmosphère pesante et chargée d'intentions meurtrières.
 
@@ -108,7 +108,7 @@ Une fois Ji Du achevé, Wu Feng réfléchit un instant avant de répondre: « Ce
 
 « Je peux également faire un vœu! » ajouta Dao Yi.
 
-Dao Yi hésita un moment en regardant Ji Du et Wu Feng avant de hocher la tête. Quant à Gemini, elle réfléchit brièvement et accepta.
+Dao Yi hésita un moment en regardant Ji Du et Wu Feng avant de hocher la tête. Quant à Gémeaux, elle réfléchit brièvement et accepta.
 
 Le groupe de Song Tian se regarda et, après réflexion, acquiesça également. À leur niveau de culture, leurs paroles étaient crédibles.
 

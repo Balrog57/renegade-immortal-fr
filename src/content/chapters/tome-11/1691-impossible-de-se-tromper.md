@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1691 - Can’t Be Wrong
 slug: impossible-de-se-tromper
 ---
-Chapitre 1691 - Impossible de se tromper?
-
 Toute cette destruction fit cracher du sang à Wang Lin, et son corps commença à se fragmenter sous les grondements. Il était constamment repoussé. Alors que son index droit continuait de résister, il forma un sceau de la main gauche et l'agita.
 
 Les étoiles tremblèrent sous ce geste et une empreinte palmaire identique apparut. C’était l’Empreinte de l’Esprit Guerrier!

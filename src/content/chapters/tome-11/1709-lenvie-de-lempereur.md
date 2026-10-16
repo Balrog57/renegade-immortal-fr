@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1709 - Emperor’s Envy !"
 slug: lenvie-de-lempereur
 ---
-Chapitre 1709 - L'Envie de l'Empereur!
-
 À travers les âges, parmi les trois clans du pays antique du Continent Astral Immortel, nul n'avait franchi cette étape! Cela était lié à l'environnement même dans lequel ils avaient grandi. Ils vivaient sous la protection des trois Grands Empereurs, selon les lois des trois empereurs, sous la lumière de leurs ancêtres.
 
 Ils admiraient l'Ancêtre Suprême avec une ferveur presque religieuse; il était leur ciel!

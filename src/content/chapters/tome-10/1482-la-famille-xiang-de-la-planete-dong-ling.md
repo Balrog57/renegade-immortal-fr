@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1482 - Planet Dong Ling’s Xiang Family!"
 slug: la-famille-xiang-de-la-planete-dong-ling
 ---
-Chapitre 1482 - La famille Xiang de la planète Dong Ling!
-
 Maître Lu Fu prit une profonde inspiration, et l'étonnement dans ses yeux s'intensifia. Il avait déjà eu quelques pressentiments, mais en voyant cela de ses propres yeux, il resta stupéfait!
 
 Cependant, ce choc disparut rapidement et les yeux de Maître Lu Fu s'illuminèrent. Un rictus méprisant étira alors ses lèvres.

@@ -6,9 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1748 - Mutation!"
 slug: mutation
 ---
-
-Chapitre 1748 - Mutation!
-
 Le vent du Royaume Céleste charriait une énergie céleste dense. S'il soufflait sur votre visage alors que vous étiez d'humeur légère, il procurerait un sentiment de profonde sérénité. Cependant, si votre esprit était tourmenté, peu importait la quantité d'énergie céleste présente dans l'air, rien ne saurait vous apaiser.
 
 Qing Shui se leva et regarda Wang Lin dans le dos. Après avoir réfléchi un instant, il ne dit mot, se contenta de pousser un soupir et s'en alla. Il savait naturellement qui était la troisième âme et quel était son lien avec Wang Lin; il comprenait le dilemme de ce dernier.

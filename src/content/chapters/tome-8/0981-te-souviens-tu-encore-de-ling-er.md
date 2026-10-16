@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 981 - Do You Still Remember Ling Er
 slug: te-souviens-tu-encore-de-ling-er
 ---
-Chapitre 981 - Te souviens-tu encore de Ling Er?
-
 Wang Lin hésita un instant, puis tourna son regard vers la planète située derrière les frères Chen. L'énergie spirituelle qui en émanait était si dense qu'un simple coup d'œil lui permit de deviner la splendeur de ce monde.
 
 Voyant l'hésitation de Wang Lin, Maître Yi Chen s'empressa de dire: « Frère Wang, hormis notre planète Esprit d'Eau, aucune autre dans un rayon de centaines de milliers de kilomètres n'est aussi propice à la culture. De plus, cette planète est vaste; nous ne perturberons nullement votre cultivation. »

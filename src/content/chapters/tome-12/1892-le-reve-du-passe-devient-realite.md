@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1892 - The Dream of the Past Comes True!"
 slug: le-reve-du-passe-devient-realite
 ---
-Chapitre 1892 - Le rêve du passé devient réalité!
-
 L'essence de tonnerre de Wang Lin devint encore plus puissante à mesure qu'il continuait son absorption. Grâce à la Perle Défiant le Ciel, le maître de la Secte Dao des Démons était incapable de condenser sa volonté pour effacer l'esprit de Wang Lin.
 
 Cependant, à cet instant, après que le maître de la Secte Dao des Démons eut dévoré la Perle de l'Empereur du Tonnerre, l'essence de tonnerre infinie qui pénétrait son corps fut absorbée par celui de Wang Lin avec une frénésie folle.

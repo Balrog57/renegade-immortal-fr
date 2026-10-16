@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1694 - Fan Shanmeng!"
 slug: fan-shanmeng
 ---
-Chapitre 1694 - Fan Shanmeng!
-
 Le visage de Fan Shanlu était d'une pâleur mortelle et elle ne répondit pas aux paroles de Wang Lin. Elle lutta pour s'asseoir et posa ses mains sur ses genoux, puis ferma les yeux pour commencer sa culture.
 
 Une lumière multicolore scintillait autour de son corps, et la lueur septicolore entre ses sourcils devint extrêmement brillante. Finalement, un faible vortex apparut entre ses sourcils. Non seulement une lumière aux sept couleurs s'en échappait, mais elle était accompagnée de rafales d'énergie glaciale.

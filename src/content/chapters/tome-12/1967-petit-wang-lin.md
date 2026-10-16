@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1967 - Little Wang Lin!"
 slug: petit-wang-lin
 ---
-Chapitre 1967 - Petit Wang Lin!
-
 Le Grand Empereur Dao Yi laissa échapper un reniflement froid. Avec sa ruse, il comprit naturellement le sens des paroles de Wu Feng. Cependant, il n'était pas disposé à abandonner ainsi.
 
 « Je suis venu trop tôt... J'aurais dû venir un peu plus tard... J'aurais pu mieux évaluer la situation après que les autres aient révélé leurs conditions. » La raison pour laquelle Dao Yi était arrivé le premier était qu'il avait été le premier à tenter de recruter Wang Lin. Il pensait que Wang Lin accordait une grande importance aux trésors, et voulait donc arriver tôt pour l'impressionner immédiatement. À cet instant, ses vêtements se mirent à flotter avant de s'apaiser. Il ouvrit lentement la main, laissant flotter un cristal multicolore dans sa paume.
@@ -80,7 +78,7 @@ Wang Lin esquissa un sourire amer.
 
 C'était ce qu'il avait dit à l'Ascendant Empereur Ming Dao, mais face aux conditions occultes de l'Empereur Céleste, celui-ci n'avait pas choisi Jiu Di.
 
-« Avec mon aide, lorsque le Royaume Divin Immemorial s'ouvrira, tes chances de devenir un Grand Empereur augmenteront de 30 %! Et si tu es mon disciple, alors même l'Empereur Céleste n'oserait pas agir contre toi! Peu importe la rancune qui vous oppose, avec ma présence, je pourrai t'aider à la régler définitivement! Parmi les Grands Empereurs, hormis le défunt Dong Lin, seule Gemini peut rivaliser avec ce vieil homme. Cependant, après sa dernière réincarnation, Gemini a subi un accident et son âme s'est fragmentée jusqu'à son stade originel. Elle est extrêmement faible. Ce vieil homme est ton meilleur choix », déclara lentement le Grand Empereur Jiu Di.
+« Avec mon aide, lorsque le Royaume Divin Immemorial s'ouvrira, tes chances de devenir un Grand Empereur augmenteront de 30 %! Et si tu es mon disciple, alors même l'Empereur Céleste n'oserait pas agir contre toi! Peu importe la rancune qui vous oppose, avec ma présence, je pourrai t'aider à la régler définitivement! Parmi les Grands Empereurs, hormis le défunt Dong Lin, seule Gémeaux peut rivaliser avec ce vieil homme. Cependant, après sa dernière réincarnation, Gémeaux a subi un accident et son âme s'est fragmentée jusqu'à son stade originel. Elle est extrêmement faible. Ce vieil homme est ton meilleur choix », déclara lentement le Grand Empereur Jiu Di.
 
 Wang Lin regarda Dao Yi, Wu Feng et Jiu Di. Les trois lui avaient proposé des conditions distinctes: les trésors de Dao Yi, l'égalité de Wu Feng et la promesse de Jiu Di.
 
@@ -92,7 +90,7 @@ Mais Dao Yi restait un choix envisageable sans regret. Ses trésors étaient pr�
 
 Cependant, à cet instant précis, Jiu Di leva soudainement la tête. Wu Feng et Dao Yi suivirent son regard avec des expressions graves. Peu après, trois rayons de lumière convergèrent vers eux.
 
-« Petit Wang Lin, ah, c'est bien toi! » Un éclat de rire joyeux résonna dans le ciel. Les trois lumières se rapprochèrent: il s'agissait du Grand Empereur Gemini et de l'Exalté Empereur Gu Ya.
+« Petit Wang Lin, ah, c'est bien toi! » Un éclat de rire joyeux résonna dans le ciel. Les trois lumières se rapprochèrent: il s'agissait du Grand Empereur Gémeaux et de l'Exalté Empereur Gu Ya.
 
 Tandis que les rires résonnaient, la petite fille nommée Wa Wa apparut aux côtés de Wang Lin. Elle frappa dans ses mains et fit le tour de Wang Lin.
 

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1776 - Group Against Old Ghost Zhan!"
 slug: le-groupe-contre-le-vieux-fantome-zhan
 ---
-Chapitre 1776 - Le groupe contre le Vieux Fantôme Zhan!
-
 La puissante aura qui s'était engouffrée en Wang Lin depuis le cœur situé en dessous résonnait dans son corps comme un tonnerre. Elle l'envahissait, lui donnant l'impression d'être pris dans une tempête violente.
 
 Les étoiles des trois clans tournaient rapidement et toutes montraient des signes d'atteindre le stade de neuf étoiles.

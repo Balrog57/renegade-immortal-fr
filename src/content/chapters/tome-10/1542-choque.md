@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1542 - Shocked!"
 slug: choque
 ---
-Chapitre 1542 - Choqué!
-
 « Je l'ai déjà percé à jour, ce n'est pas la même chose », déclara Wang Lin d'une voix ferme en jetant un regard froid au fou. Une pointe de regret transparaissait dans son mépris.
 
 C’est cette nuance de regret qui fit monter les larmes aux yeux du fou, jusqu'à ce qu'il finisse par éclater en sanglots.

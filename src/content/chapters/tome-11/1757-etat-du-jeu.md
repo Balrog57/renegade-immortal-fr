@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1757 - State of the Game!"
 slug: etat-du-jeu
 ---
-Chapitre 1757 - État du jeu!
-
 « Tu as instauré la loi... Qu'importe si j'y entre? » Le sens divin de Wang Lin s'était déjà étendu, recueillant divers indices sur la planète.
 
 La loi en ce lieu ressemblait fort à une partie d'échecs: il fallait séparer une portion de son sens divin pour en faire un soldat, tout en utilisant le corps d'un mortel pour affronter ce massacre de millions de combattants!

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1865 - Trapped!"
 slug: piege
 ---
-Chapitre 1865 - Piégé!
-
 Xu Decai s'envola vers l'horizon au-dessus de la Prairie du Ciel Extrême, l'esprit sombre. Lors de son combat contre Wang Lin, il avait perdu son Dao Céleste, une perte qu'il peinait à accepter. Le lien qui l'unissait au Dao Céleste avait été rompu lorsque celui-ci avait été dévoré, ce qui lui avait infligé de graves blessures.
 
 À cet instant, son âme originelle était si affaiblie qu'il lui faudrait un certain temps pour se rétablir.

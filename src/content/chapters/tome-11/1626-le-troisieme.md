@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1626 - The Third One
 slug: le-troisieme
 ---
-Chapitre 1626 - Le Troisième?
-
 La volonté jaillit du vortex effondré et percuta l'aura de Wang Lin. Cela fit pâlir légèrement le visage de ce dernier, mais il ne recula pas d'un pouce. Il resta droit, le regard fixé sur le vortex.
 
 La volonté émanant du vortex ne possédait aucune puissance offensive, mais elle détenait un pouvoir de suppression. Si l'on ne se soumettait pas à cette pression, notre corps, notre esprit et notre Dao s'effondraient!
@@ -42,21 +40,21 @@ Le troisième pas! Il avait véritablement atteint le stade intermédiaire du Vi
 
 Il n'était pas étranger à cette marque; c'était la sixième porte qu'il avait brisée. La Porte des Dix Mille Os du Vide!
 
-La Porte des Dix Mille Os du Vide ressemblait à un tatouage dans la paume droite de Wang Lin, et elle formait lentement une empreinte profonde. En baissant les yeux, il vit des milliers de cultivateurs s'élever lentement depuis la planète Suzaku. Maître Nuage du Sud, Situ Nan et d'autres volaient en tête pour saluer Wang Lin. Seul Maître Nuage du Sud semblait inquiet. Il fixa l'horizon, écoutant les grondements sourds, et une conjecture germa dans son cœur.
+La Porte des Dix Mille Os du Vide ressemblait à un tatouage dans la paume droite de Wang Lin, et elle formait lentement une empreinte profonde. En baissant les yeux, il vit des milliers de cultivateurs s'élever lentement depuis la planète Suzaku. Maître Nan Yunzi, Situ Nan et d'autres volaient en tête pour saluer Wang Lin. Seul Maître Nan Yunzi semblait inquiet. Il fixa l'horizon, écoutant les grondements sourds, et une conjecture germa dans son cœur.
 
 À ce moment précis, les grondements au loin devinrent plus pressants et violents. Wang Lin leva la tête et regarda vers l'horizon, l'intention de combat brillant dans ses yeux. Il allait faire face à la rétribution divine; il voulait voir quelle serait sa puissance cette fois!
 
 « Situ, nous en parlerons plus tard. La rétribution divine arrive. Une fois que je l'aurai brisée, nous nous enivrerons! »
 
-« C'est bel et bien une rétribution divine! » Les yeux de Maître Nuage du Sud se plissèrent. Il s'arrêta et agita ses manches pour ordonner à tous de ne pas avancer.
+« C'est bel et bien une rétribution divine! » Les yeux du Maître Nan Yunzi se plissèrent. Il s'arrêta et agita ses manches pour ordonner à tous de ne pas avancer.
 
-« Le Seigneur du Royaume Scellé subit la rétribution divine. Nous attendrons à l'extérieur pour le protéger! » Alors que les paroles de Maître Nuage du Sud résonnaient, les milliers de cultivateurs s'arrêtèrent puis reculèrent lentement.
+« Le Seigneur du Royaume Scellé subit la rétribution divine. Nous attendrons à l'extérieur pour le protéger! » Alors que les paroles du Maître Nan Yunzi résonnaient, les milliers de cultivateurs s'arrêtèrent puis reculèrent lentement.
 
 Situ Nan lança un regard anxieux à Wang Lin.
 
-« Une rétribution divine... Quand j'ai brisé la Porte du Vide, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nuage du Sud et y vit également une pointe d'inquiétude.
+« Une rétribution divine... Quand j'ai brisé la Porte du Vide, il n'y en a pas eu. Wang Lin, lui... » Situ Nan regarda Maître Nan Yunzi et y vit également une pointe d'inquiétude.
 
-« Le Seigneur du Royaume Scellé possède la volonté de défier les cieux et est appelé cultivateur défiant le ciel. Les cultivateurs défiant le ciel doivent affronter la rétribution divine, c'est une loi transmise depuis l'Antiquité... Ce vieil homme en a vu passer plusieurs. Ainsi, le Seigneur du Royaume Scellé est également un cultivateur défiant le ciel... » Maître Nuage du Sud regarda au loin et vit une masse de nuages se précipiter vers eux.
+« Le Seigneur du Royaume Scellé possède la volonté de défier les cieux et est appelé cultivateur défiant le ciel. Les cultivateurs défiant le ciel doivent affronter la rétribution divine, c'est une loi transmise depuis l'Antiquité... Ce vieil homme en a vu passer plusieurs. Ainsi, le Seigneur du Royaume Scellé est également un cultivateur défiant le ciel... » Maître Nan Yunzi regarda au loin et vit une masse de nuages se précipiter vers eux.
 
 Les nuages étaient infinis et se rapprochaient sans cesse. Moins de dix respirations après le retrait de la foule, les grondements tonitruants résonnèrent dans les oreilles de chacun.
 
@@ -64,7 +62,7 @@ Certains cultivateurs du Royaume Intérieur en vinrent même à saigner par les 
 
 Tandis que les nuages sans fin enveloppaient Wang Lin, une puissance céleste indescriptible sembla former d'innombrables mains invisibles géantes qui balayaient toutes les directions.
 
-Les milliers de cultivateurs du Royaume Intérieur, y compris Maître Nuage du Sud et Situ Nan, furent repoussés par cette force. Dix mille pieds, cent mille pieds, dix mille kilomètres, cent mille kilomètres...
+Les milliers de cultivateurs du Royaume Intérieur, y compris Maître Nan Yunzi et Situ Nan, furent repoussés par cette force. Dix mille pieds, cent mille pieds, dix mille kilomètres, cent mille kilomètres...
 
 Les grondements tonitruants se succédaient. Tandis que les nuages grondaient, il semblait même que la planète Suzaku soit délogée de son orbite et dérivait.
 
@@ -76,7 +74,7 @@ Devant cet événement inimaginable, tous les cultivateurs devinrent anxieux, pa
 
 Wang Lin devait affronter cela seul.
 
-« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa culture sera fortifiée et il se dressera au-dessus de nous tous! » murmura Maître Nuage du Sud, comme s'il se parlait à lui-même autant qu'aux autres.
+« Le Seigneur du Royaume Scellé est un cultivateur défiant le ciel. Grâce à cette rétribution divine, sa culture sera fortifiée et il se dressera au-dessus de nous tous! » murmura Maître Nan Yunzi, comme s'il se parlait à lui-même autant qu'aux autres.
 
 Chacun resta plongé dans une réflexion silencieuse.
 

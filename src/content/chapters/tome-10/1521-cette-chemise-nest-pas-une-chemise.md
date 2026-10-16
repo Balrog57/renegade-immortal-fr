@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1521 - This Shirt is Not a Shirt !"
 slug: cette-chemise-nest-pas-une-chemise
 ---
-Chapitre 1521 - Cette chemise n'est pas une chemise!
-
 « Vide Spirituel! Vide Spirituel!! » Wang Lin recula, le visage livide. Bien que tout semble ordinaire, la situation était extrêmement terrifiante. Wang Lin ressentait pour la première fois l'effroi qu'inspirait un cultivateur du Vide Spirituel!
 
 Les cultivateurs du Vide Spirituel étaient bien moins nombreux que ceux du Vide du Nirvana, et leur statut était bien plus élevé.
@@ -58,7 +56,7 @@ Cette rumeur ne mentionnait qu'une seule personne!
 
 Un éclair de froideur traversa les yeux de Maître Hong Shan alors qu'il chargeait l'Estimé Nan Zhao. Il allait tuer! À cet instant, parmi la seconde vague de cultivateurs du Royaume Extérieur, l'expression des deux cultivateurs de la troisième étape changea radicalement. Ils serrèrent les dents et chargèrent Maître Hong Shan!
 
-Maître Éveil-de-l'Est reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Lin, Ling Dong et à la Hache Brise-Ciel pour charger Maître Hong Shan!
+Maître Dong Dizi reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Lin, Ling Dong et à la Hache Brise-Ciel pour charger Maître Hong Shan!
 
 Trois cultivateurs de la troisième étape!
 
@@ -70,15 +68,15 @@ L'Ancêtre du Clan de l'Hirondelle de Feu serra les dents et détourna son atten
 
 Cinq cultivateurs de la troisième étape pour affronter Maître Hong Shan!!
 
-Maître Nuage du Sud ne prêtait aucune attention à Maître Hong Shan ni aux innombrables cultivateurs du Royaume Extérieur. Il chargeait la Formation de Scellement du Royaume! Sa tâche était périlleuse: il devait réparer la brèche dans la formation!
+Maître Nan Yunzi ne prêtait aucune attention à Maître Hong Shan ni aux innombrables cultivateurs du Royaume Extérieur. Il chargeait la Formation de Scellement du Royaume! Sa tâche était périlleuse: il devait réparer la brèche dans la formation!
 
-« Le Royaume Intérieur n'est pas prêt, il lui faut encore du temps. La Formation de Scellement du Royaume ne peut pas être ouverte!!! » Maître Nuage du Sud se sentait anxieux en approchant de la formation. Il vit immédiatement Ling Dong et Zhou Jin!
+« Le Royaume Intérieur n'est pas prêt, il lui faut encore du temps. La Formation de Scellement du Royaume ne peut pas être ouverte!!! » Maître Nan Yunzi se sentait anxieux en approchant de la formation. Il vit immédiatement Ling Dong et Zhou Jin!
 
-« Wang Lin, prête-moi ces deux-là! » La voix rauque de Maître Nuage du Sud résonna à travers les étoiles.
+« Wang Lin, prête-moi ces deux-là! » La voix rauque du Maître Nan Yunzi résonna à travers les étoiles.
 
-Wang Lin envoya immédiatement un message tout en reculant pour se soigner. Ling Dong et Zhou Jin s'envolèrent aussitôt vers Maître Nuage du Sud et joignirent les mains en signe de respect.
+Wang Lin envoya immédiatement un message tout en reculant pour se soigner. Ling Dong et Zhou Jin s'envolèrent aussitôt vers Maître Nan Yunzi et joignirent les mains en signe de respect.
 
-« Vous deux, protégez ce vieil homme! » Maître Nuage du Sud ne parla pas davantage; après cet ordre, il avança vers la Formation de Scellement du Royaume. Ses mains tracèrent rapidement des sceaux et une multitude de restrictions volèrent vers la formation!
+« Vous deux, protégez ce vieil homme! » Maître Nan Yunzi ne parla pas davantage; après cet ordre, il avança vers la Formation de Scellement du Royaume. Ses mains tracèrent rapidement des sceaux et une multitude de restrictions volèrent vers la formation!
 
 Le Grand Maître Yun Luo se trouvait dans le Royaume Extérieur, encerclée par plus de 100 000 cultivateurs. Ses pupilles se rétractèrent. Elle ne s'attendait pas à ce que l'accident de la Formation de Scellement du Royaume cause de telles pertes dès leur entrée!
 

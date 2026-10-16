@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1869 - Upheaval!"
 slug: tumulte
 ---
-Chapitre 1869 - Tumulte!
-
 Un ancien monstre au stade intermédiaire de la Tribulation du Vide sur le Continent Astral Immortel pouvait établir sa propre secte!
 
 Le Souverain Céleste aux Sept Couleurs était un cultivateur au stade intermédiaire de la Tribulation du Vide à l'époque. Il avait fondé sa propre secte et recruté des disciples. Même la Grande Secte de l'Âme se montrait très respectueuse envers lui, car ce genre de cultivateurs méritait le respect.
@@ -38,7 +36,7 @@ La raison pour laquelle les renforts ne s'étaient pas manifestés et s'étaient
 
 Les actions de Wang Lin dans la Mer des Pilules avaient irrité les trois anciens ancêtres du Continent du Démon Vert, qui avaient ainsi émis un ordre d'exécution contre lui! Tout ce que Wang Lin avait accompli était absolument bouleversant!
 
-Il avait tué l'avatar de Nuage du Vide, le génie du Continent du Démon Vert, et avait détruit leur plan dans la Mer des Pilules, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent du Démon Vert, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer des Pilules!
+Il avait tué l'avatar de Yun Kong, le génie du Continent du Démon Vert, et avait détruit leur plan dans la Mer des Pilules, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent du Démon Vert, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer des Pilules!
 
 Ce sont là des événements passés, mais désormais, Wang Lin avait tué Liu Zhiyuan de la Secte du Dao Démoniaque! Même Xu Decai avait probablement été massacré par ses méthodes viles.
 

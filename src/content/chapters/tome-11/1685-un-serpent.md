@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1685 - A Snake!"
 slug: un-serpent
 ---
-Chapitre 1685 - Un serpent!
-
 Une gigantesque plateforme de pierres spirituelles se dressait entre ces deux groupes de cultivateurs. Elle dégageait une aura puissante; large de près de 10 000 pieds, elle ressemblait à une petite montagne. Des pierres spirituelles d'une telle taille étaient extrêmement rares.
 
 Wang Lin avait cultivé pendant de nombreuses années et n'avait que rarement vu des pierres spirituelles aussi massives. Bien que ces pierres ne lui fussent plus d'aucune utilité désormais, son expression devint encore plus étrange en les voyant.

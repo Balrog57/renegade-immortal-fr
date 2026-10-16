@@ -6,15 +6,13 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1984 - Arriving!"
 slug: arrivee
 ---
-Chapitre 1984 - Arrivée!
-
 La neige recouvrait la cité ancestrale en cette matinée, rendant toute visibilité incertaine. Ce manteau blanc qui floutait le monde exhalait une froideur capable de pénétrer jusqu'au cœur.
 
 Wang Lin se retourna et marcha à contre-courant du vent et de la neige, regagnant la cité ancestrale.
 
-Il tenait un jade dans sa main; c'était l'un de ses atouts pour venir dans la cité ancestrale. Il s'agissait de son accord avec la Grande Empyréen Gemini et l'Exalté Empyréen Gu Ya.
+Il tenait un jade dans sa main; c'était l'un de ses atouts pour venir dans la cité ancestrale. Il s'agissait de son accord avec la Grande Empyréen Gémeaux et l'Exalté Empyréen Gu Ya.
 
-Lorsque Wang Lin en aurait eu besoin, la Grande Empyréen Gemini viendrait l'aider en personne. C'était la promesse faite par la Grande Empyréen Gemini et l'Exalté Empyréen Gu Ya à Wang Lin!
+Lorsque Wang Lin en aurait eu besoin, la Grande Empyréen Gémeaux viendrait l'aider en personne. C'était la promesse faite par la Grande Empyréen Gémeaux et l'Exalté Empyréen Gu Ya à Wang Lin!
 
 C'est également grâce à l'existence de ce jade que Wang Lin osait venir, sachant qu'il se ferait ainsi un ennemi de l'Empereur Céleste!
 
@@ -30,19 +28,19 @@ Tandis que la lumière de la formation scintillait, les silhouettes de deux fill
 
 Les deux fillettes regardèrent autour d'elles et leurs regards se posèrent sur Wang Lin. Leurs visages s'illuminèrent immédiatement de joie et de surprise.
 
-« Wang Lin salue la Grande Empyréen Gemini! » Wang Lin joignit les mains et s'inclina avec respect.
+« Wang Lin salue la Grande Empyréen Gémeaux! » Wang Lin joignit les mains et s'inclina avec respect.
 
 « Nul besoin de t'incliner, nul besoin de t'incliner. Tu nous as tellement manqué depuis ton départ. Nous ne nous attendions pas à te revoir si tôt. Où est le Petit Biaozi? Vite, appelle-le! »
 
 « C'est vrai, le Petit Biaozi me manque. » Les deux fillettes étaient transportées d'enthousiasme.
 
-Wang Lin dit calmement: « Cet endroit est la cité ancestrale du clan céleste. La Grande Empyréen Gemini se souvient-elle de notre accord? »
+Wang Lin dit calmement: « Cet endroit est la cité ancestrale du clan céleste. La Grande Empyréen Gémeaux se souvient-elle de notre accord? »
 
 « Notre accord? Ah, je m'en souviens. Tu as dit que lorsque tu en aurais besoin, nous devions t'aider une fois. As-tu besoin d'aide maintenant? »
 
 « Qui a osé s'en prendre à toi? Hmph, hmph... qui ose provoquer notre petit Wang Lin! Nous réglerons cela pour toi! » Les deux fillettes devinrent soudainement pleines de fougue, comme si elles étaient très enclines au combat.
 
-Wang Lin regarda les deux fillettes et dit doucement: « J'aimerais demander à la Grande Empyréen Gemini de m'aider à piéger l'Empereur Céleste pendant un certain temps. Je dois me rendre au palais! »
+Wang Lin regarda les deux fillettes et dit doucement: « J'aimerais demander à la Grande Empyréen Gémeaux de m'aider à piéger l'Empereur Céleste pendant un certain temps. Je dois me rendre au palais! »
 
 « L'Empereur Céleste? Aucun problème! » Les yeux des deux fillettes s'animèrent, une pointe de sérieux perçant leur regard pur. Cependant, elles ne posèrent pas d'autres questions. Elles détournèrent le regard et s'envolèrent vers le palais.
 
@@ -84,11 +82,11 @@ Une traînée de ruines reliait désormais la cité orientale au palais. Derriè
 
 Devant le palais, des dizaines de milliers de soldats en armure noire étaient alignés, fixant Wang Lin. Derrière lui, d'innombrables silhouettes s'élancèrent de chaque recoin du palais.
 
-Dans le ciel, le monde changea de couleurs. Deux soleils brillaient désormais: l'un pourpre et l'autre doré! À l'intérieur du soleil pourpre se trouvait la Grande Empyréen Gemini, et dans le soleil doré, l'Empereur Céleste!
+Dans le ciel, le monde changea de couleurs. Deux soleils brillaient désormais: l'un pourpre et l'autre doré! À l'intérieur du soleil pourpre se trouvait la Grande Empyréen Gémeaux, et dans le soleil doré, l'Empereur Céleste!
 
 Le combat entre les deux Grands Empyréens provoqua des grondements tonitruants qui rendirent le monde flou. Des ondes de choc se propagèrent dans toutes les directions.
 
-« Grande Empyréen Gemini, ce Wang Lin commet une intrusion dans le palais et ne respecte pas l'Ancêtre Céleste. C'est le comportement d'un traître!! Allez-vous continuer à vous montrer si obstinés?! » La voix de l'Ancêtre Céleste résonna dans les cieux, accompagnée de tonnerres et de sorts dévastateurs.
+« Grande Empyréen Gémeaux, ce Wang Lin commet une intrusion dans le palais et ne respecte pas l'Ancêtre Céleste. C'est le comportement d'un traître!! Allez-vous continuer à vous montrer si obstinés?! » La voix de l'Ancêtre Céleste résonna dans les cieux, accompagnée de tonnerres et de sorts dévastateurs.
 
 Wang Lin se tenait devant le palais et leva soudain les yeux. Tout le gaz noir autour de lui se condensa pour former une robe sombre. Ses cheveux noirs s'allongèrent même légèrement. Il contempla le soleil doré dans le ciel avec une indifférence absolue.
 

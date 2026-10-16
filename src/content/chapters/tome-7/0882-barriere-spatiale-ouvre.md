@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 882 - Spatial Barrier, Open!"
 slug: barriere-spatiale-ouvre
 ---
-Chapitre 882 - Barrière spatiale, ouvre!
-
 Maître Yan Leizi flottait dans les airs, ses mains formant un sceau tandis que des éclats de lumière noire jaillissaient de son front. À l'apparition de ces lumières noires, elles se transformèrent rapidement en fragments d'un continent.
 
 Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Céleste du Tonnerre à activer sa culture pour résister à cette force.

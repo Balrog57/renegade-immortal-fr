@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1671 - Is it the Left Eye
 slug: est-ce-lil-gauche
 ---
-Chapitre 1671 - Est-ce l'Œil Gauche?
-
 Alors que des dizaines de bêtes féroces ancestrales chargeaient, la formation se distordit. La Bête des Limbes, qui n'était pas apparue depuis un certain temps, surgit soudainement devant Wang Lin!
 
 La taille de la Bête des Limbes était indescriptible; son ombre seule occupait tout l'espace. Le simple fait d'apercevoir cette silhouette gigantesque imposait une pression écrasante.

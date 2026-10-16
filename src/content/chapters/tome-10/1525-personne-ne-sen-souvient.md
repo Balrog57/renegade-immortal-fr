@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1525 - No One Remembers!"
 slug: personne-ne-sen-souvient
 ---
-Chapitre 1525 - Personne ne s'en souvient!
-
 Lorsque Wang Lin saisit la Hache Divise-Ciel, une puissante aura de Dieu Ancien jaillit et pénétra son corps par sa main droite. Elle se dirigea directement entre ses sourcils, vers la huitième étoile qui n'était plus qu'un vortex!
 
 Cette aura de Dieu Ancien était phénoménale. Tandis qu'elle s'engouffrait en Wang Lin, le vortex de sa huitième étoile commença à gonfler et à absorber l'énergie avec frénésie!
@@ -60,7 +58,7 @@ Tuez!
 
 Les cultivateurs qui avaient chargé se dispersèrent immédiatement. La peur dans leurs cœurs étouffait leur férocité!
 
-Maître Hong Shan et Maître Nuage du Sud chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Malgré son niveau de culture, il ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
+Maître Hong Shan et Maître Nan Yunzi chargèrent aussitôt pour empêcher les cultivateurs de la troisième étape d'interférer. Cependant, le jeune homme au regard froid était de taille face à Maître Hong Shan, qui venait d'être blessé par la concubine impériale céleste. Malgré son niveau de culture, il ne pouvait contenir seul un tel nombre de cultivateurs de la troisième étape.
 
 L'ancêtre du Clan de l'Hirondelle de Feu fut le premier à s'extraire du combat contre Maître Hong Shan. Empli d'une intention meurtrière et entouré de flammes noires, il chargea!
 
@@ -78,7 +76,7 @@ Les yeux de Wang Lin étaient rouges de soif de sang. Il fixa l'ancêtre du Clan
 
 Ce fantôme était colossal, presque aussi grand que les esprits de formation. Il s'abattit sur l'oiseau de feu noir!
 
-Cette attaque fit trembler les cieux et attira tous les regards. Même les divers cultivateurs de la troisième étape qui combattaient Maître Hong Shan et Maître Nuage du Sud tournèrent la tête pour voir ce qui se passait.
+Cette attaque fit trembler les cieux et attira tous les regards. Même les divers cultivateurs de la troisième étape qui combattaient Maître Hong Shan et Maître Nan Yunzi tournèrent la tête pour voir ce qui se passait.
 
 Quant aux innombrables envahisseurs qui s'étaient précipités dans la mêlée, ils regardaient avec un mélange de peur et d'espoir. Ils espéraient que l'ancêtre du Clan de l'Hirondelle de Feu tue Wang Lin, afin qu'il meure sous leurs yeux!
 

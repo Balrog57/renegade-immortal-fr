@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1543 - Take Me As Your Disciple!"
 slug: prenez-moi-comme-votre-disciple
 ---
-Chapitre 1543 - Prenez-moi comme votre disciple!
-
 Le cri du fou fit sursauter la Bête des Enfers. Elle reconnut lentement l'homme comme étant cette même personne qu'auparavant.
 
 Une fois qu’elle l’eut identifié, un rugissement jaillit de l’ombre fantomatique de son âme. La peur s'empara d'elle; son corps trembla et son rugissement devint plus puissant encore.

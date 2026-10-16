@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1810 - Pack of Dragons, One Vermillion Bird Devours the Earth Vein!"
 slug: une-meute-de-dragons-un-oiseau-vermillon-devore-la-veine-terrestre
 ---
-Chapitre 1810 - Une meute de dragons, un oiseau vermillon dévore la veine terrestre!
-
 Du Qing leva les yeux vers le ciel au loin. Il avait vaguement l'impression que l'être qu'il poursuivait était une existence terrifiante. Son cœur ne pouvait s'empêcher d'être submergé par l'hésitation; il ne savait s'il devait poursuivre sa traque.
 
 Après un long moment, Du Qing serra les dents, le regard empreint de froideur.

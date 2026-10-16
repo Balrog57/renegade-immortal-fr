@@ -72,7 +72,7 @@ Une aura de tristesse enveloppa le système stellaire. Les cultivateurs du Royau
 
 À Luotian, sur les dix-neuf planètes restantes, tous les cultivateurs se levèrent et s'inclinèrent vers les étoiles sans qu'aucun ne les dirige.
 
-Maître Nuage du Sud, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèrent sans exception, contemplant le ciel avec tristesse et respect!
+Maître Nan Yunzi, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèrent sans exception, contemplant le ciel avec tristesse et respect!
 
 Non seulement eux, mais dans les trois autres systèmes stellaires, les rares groupes de cultivateurs du Royaume Intérieur encore en vie levèrent également les yeux. Les souvenirs de la guerre défilèrent devant eux tandis qu'ils s'inclinaient vers les étoiles!
 

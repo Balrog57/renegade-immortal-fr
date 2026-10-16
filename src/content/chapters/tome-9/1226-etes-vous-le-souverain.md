@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1226 - Are You the Sovereign
 slug: etes-vous-le-souverain
 ---
-Chapitre 1226 - Êtes-vous le Souverain?
-
 Wang Lin sortit l'objet et le couvrit de sang avant de le projeter comme un rayon de lumière verte vers l'index. L'index était bien plus puissant que l'auriculaire. L'épée de cristal s'effondra au moment du contact, créant une puissante onde de choc dans le ciel.
 
 Cependant, cela ne fit que stopper la course du doigt un instant sans le briser.

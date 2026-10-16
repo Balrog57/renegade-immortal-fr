@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2052 - Battle Song Tian !"
 slug: bataille-pour-song-tian
 ---
-Chapitre 2052 - Bataille pour Song Tian!
-
 « Wang Lin!! C'est bel et bien Wang Lin!!! » Un rugissement jaillit de la Secte Dao Yi, et la colère contenue dans ce cri résonna à travers le monde.
 
 Outre la colère, une sensation de peur et d'effroi imprégnait l'air. Face à Wang Lin, la Secte Dao Yi ne pouvait oublier tout ce qui s'était produit dans le palais de la cité ancestrale. À l'époque, Wang Lin était déjà extrêmement puissant, et désormais, il était un Grand Empereur Céleste. Il n'osait même pas imaginer à quel point sa force avait augmenté!

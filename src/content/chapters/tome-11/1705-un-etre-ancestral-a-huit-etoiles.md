@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1705 - Eight-Star Ancient One!"
 slug: un-être-ancestral-a-huit-etoiles
 ---
-Chapitre 1705 - Un Être Ancestral à Huit Étoiles!
-
 Les continents du Royaume Céleste du Vent avaient été pris par Wang Lin, mais le royaume existait toujours. Le passage que Wang Lin avait scellé était également toujours là.
 
 Au moment où cette aura se répandit, la porte au bout du passage trembla violemment. Cela permit à l'aura qui terrorisait le monde des grottes de s'infiltrer dans la Secte Gu Yi à travers cette porte.

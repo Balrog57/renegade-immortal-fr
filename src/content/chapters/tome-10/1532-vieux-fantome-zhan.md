@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1532 - Old Ghost Zhan!"
 slug: vieux-fantome-zhan
 ---
-Chapitre 1532 - Vieux Fantôme Zhan!
-
 Le Royaume Intérieur était plongé dans un silence absolu. Les cultivateurs du troisième niveau qui combattaient Maître Nuage Sud et Maître Hong Shan s'étaient retirés de la bataille. Ils observaient la scène avec froideur sur le côté.
 
 Cependant, l'impératrice céleste rouge affichait une expression sombre. Elle n'avait pas prévu l'apparition de cet arc et, après avoir entendu les paroles de Feng Yi, une pointe de colère traversa son visage. Elle comprit qu'elle n'était qu'un pion entre les mains de quelqu'un.

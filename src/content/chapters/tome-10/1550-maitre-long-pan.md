@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1550 - Master Long Pan!"
 slug: maitre-long-pan
 ---
-Chapitre 1550 - Maître Long Pan!
-
 Wang Lin contemplait la gigantesque planète de culture tandis que les cultivateurs du Royaume Extérieur s'agenouillaient, tremblants. Il paraissait calme, mais les étoiles démoniaques anciennes dans son œil droit commençaient à scintiller. La force de rejet se manifesta, mais il continua de la réprimer, de sorte que personne ne remarqua rien.
 
 Tout en contenant cette force de rejet à l'intérieur de lui, Wang Lin observa la vaste planète de culture. Une restriction entourait l'astre. Ce devait être la seconde porte menant au Quartier Général de l'Alliance après le vortex!

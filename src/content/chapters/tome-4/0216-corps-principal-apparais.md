@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: "Chapter 216 - Main Body, Appear!"
 slug: corps-principal-apparais
 ---
-Chapitre 216 - Corps principal, apparais!
-
 Avant que Wang Lin n'entre dans la perle défiant le ciel, il avait mis en place des restrictions cachées pour empêcher quiconque de pénétrer dans la pièce. Même si quelqu'un parvenait à entrer, le corps de Wang Lin aurait disparu, et ils ne trouveraient donc rien.
 
 Après tout, même le Seigneur Démon des Huit Extrêmes, Duanmu Ji, au stade de la Formation de l'Âme, ne pourrait détecter l'existence de l'espace de la perle défiant le ciel. La Secte Ciel Nuageux n'abritait que des cultivateurs au stade de l'Âme Naissante, ils ne trouveraient donc absolument rien.

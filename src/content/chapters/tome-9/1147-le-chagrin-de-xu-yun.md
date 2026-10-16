@@ -16,7 +16,7 @@ Après avoir contemplé le drapeau doré, Wang Lin secoua la tête. D'un simple 
 
 « C’est une véritable absurdité! » Wang Lin agita sa main droite, déclenchant une tempête à l'intérieur du drapeau doré. Son sens divin percuta les formations qui emprisonnaient ces âmes féminines et les brisa net.
 
-Au moment où les formations se déchirèrent, les âmes misérables s'échappèrent, leurs yeux emplis de confusion. Cependant, elles étaient toutes des figures talentueuses au sein de leurs propres sectes avant d'être tuées et scellées dans le drapeau par Rudy; elles retrouvèrent donc rapidement la raison et se prosternèrent silencieusement devant Wang Lin. Elles laissèrent transparaître des traces d'amertume, de libération et de gratitude en se dissipant.
+Au moment où les formations se déchirèrent, les âmes misérables s'échappèrent, leurs yeux emplis de confusion. Cependant, elles étaient toutes des figures talentueuses au sein de leurs propres sectes avant d'être tuées et scellées dans le drapeau par Lu Di; elles retrouvèrent donc rapidement la raison et se prosternèrent silencieusement devant Wang Lin. Elles laissèrent transparaître des traces d'amertume, de libération et de gratitude en se dissipant.
 
 Ce qui les attendait était peut-être la réincarnation dans une autre vie, ou peut-être le néant.
 
@@ -26,7 +26,7 @@ Cette dernière poussa un rugissement et s'élança dès que les autres âmes di
 
 Un éclair de lumière bleue jaillit. L'âme au Yin extrême sembla percuter une plaque de fer et fut repoussée dans un rugissement. Wang Lin l'ignora totalement, sa main gauche formant de nouvelles restrictions sur le drapeau doré. Il la scella complètement avant de la ranger.
 
-« Non seulement la méthode pour élever ce Yin extrême est erronée, mais elle est aussi incomplète. Puisque cela appartenait à Rudy, il doit y avoir d'autres indices au sein de la Secte du Dao Pourpre. » Après une courte réflexion, Wang Lin ramassa le flacon pourpre.
+« Non seulement la méthode pour élever ce Yin extrême est erronée, mais elle est aussi incomplète. Puisque cela appartenait à Lu Di, il doit y avoir d'autres indices au sein de la Secte du Dao Pourpre. » Après une courte réflexion, Wang Lin ramassa le flacon pourpre.
 
 Ce flacon de jade était chaud et animait un cycle thermique interne. Une énergie originelle y circulait, formant une rotation éternelle. Le sens divin de Wang Lin enveloppa l'objet. Sous son influence, le flacon devint lentement transparent, révélant clairement trois pilules qui tournaient lentement au rythme de l'énergie originelle.
 
@@ -88,7 +88,7 @@ Les herbes fondirent rapidement au cœur de la flamme, se transformant en poussi
 
 Peu après, la main droite de Wang Lin s'étira et un espace de stockage apparut. Un rayon de lumière noire jaillit vers sa paume.
 
-À l'intérieur de cette lumière se trouvait une âme de bête spirituelle semblable à une larve. C'était la bête de Rudy. Cette créature était très arrogante lorsqu'elle suivait Rudy, dévorant souvent cruellement les mortels et les cultivateurs blessés, savourant la douceur du sang et de la chair.
+À l'intérieur de cette lumière se trouvait une âme de bête spirituelle semblable à une larve. C'était la bête de Lu Di. Cette créature était très arrogante lorsqu'elle suivait Lu Di, dévorant souvent cruellement les mortels et les cultivateurs blessés, savourant la douceur du sang et de la chair.
 
 Pourtant, en cet instant, l'âme de la bête tremblait de terreur et rugissait sans cesse. Elle tentait désespérément de s'échapper de la paume de Wang Lin, mais ses efforts étaient vains.
 

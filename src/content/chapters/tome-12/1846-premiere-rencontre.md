@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1846 - Meeting for the First Time!"
 slug: première-rencontre
 ---
-Chapitre 1846 - Première Rencontre!
-
 Sur ces mots, la mer resta inchangée, mais il y laissa une parcelle de son sens divin. Cette fraction de sens divin pouvait sembler inutile pour l'instant, mais à l'avenir, elle jouerait un rôle prépondérant.
 
 Ce sens divin s'était fusionné avec l'océan, le rendant extrêmement difficile à détecter.
@@ -94,14 +92,14 @@ Le brouillard de la sixième couche était très dense et ne présentait aucune 
 
 Dans un fracas assourdissant, Wang Lin força l'ouverture de la sixième couche avec le Tigre Blanc et ses compagnons!
 
-« Ce humble Nuage du Vide vient de loin. Pourquoi l'honorable Daoïste est-il si pressé de partir? » Une voix grave résonna à la surface de la mer. L'ombre d'épée qui avait traversé les quatre premières couches se métamorphosa en un cultivateur vêtu de bleu.
+« Ce humble Yun Kong vient de loin. Pourquoi l'honorable Daoïste est-il si pressé de partir? » Une voix grave résonna à la surface de la mer. L'ombre d'épée qui avait traversé les quatre premières couches se métamorphosa en un cultivateur vêtu de bleu.
 
 Ce cultivateur ressemblait à un jeune homme. Il portait des vêtements simples, sans le moindre ornement. Ses longs cheveux drapés sur ses épaules lui donnaient une allure élégante.
 
 Il était d'une grande beauté mais dégageait une froideur extrême, et il tenait une épée de sept pieds dans sa main. Sous ce ciel sombre, un frisson semblait parcourir l'air, et l'épée émettait un éclat glacial.
 
-Ce n'était pas le corps originel de Nuage du Vide, mais un avatar formé par son intention d'épée. Bien qu'il ne s'agisse que d'un avatar, il contenait 60 % de son intention!
+Ce n'était pas le corps originel de Yun Kong, mais un avatar formé par son intention d'épée. Bien qu'il ne s'agisse que d'un avatar, il contenait 60 % de son intention!
 
 Tout en parlant, il leva les yeux et fit un pas vers la cinquième couche! Il leva sa main droite et l'épée qu'il tenait balaya le ciel.
 
-D'un revers, une énergie d'épée en forme de croissant lunaire s'élança vers les cieux. La cinquième couche de brouillard s'effondra soudainement. Cela permit à Nuage du Vide de voir Wang Lin aux cheveux blancs, qui lui rendit son regard avec froideur!
+D'un revers, une énergie d'épée en forme de croissant lunaire s'élança vers les cieux. La cinquième couche de brouillard s'effondra soudainement. Cela permit à Yun Kong de voir Wang Lin aux cheveux blancs, qui lui rendit son regard avec froideur!

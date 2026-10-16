@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2077 - Knows Dao Yi!"
 slug: connait-dao-yi
 ---
-Chapitre 2077 - Connaît Dao Yi!
-
 Maître Âme Écarlate venait du Continent Astral Immortel; il connaissait donc des cultivateurs dont le niveau surpassait de loin celui d'un monde de caverne. Les Exaltés Dorés, les Exaltés Célestes, les Ascendants Célestes et les neuf existences au sommet du Continent Astral Immortel: les Grands Empereurs.
 
 Sur le Continent Astral Immortel, avec son niveau de culture, il aurait dû témoigner d'un immense respect s'il avait rencontré un Exalté Doré. Après tout, les Exaltés Dorés étaient extrêmement puissants et occupaient des rangs d'Anciens Grands au sein même des sectes les plus prestigieuses. On pouvait dire que les Exaltés Dorés déterminaient la puissance d'une secte.
@@ -52,7 +50,7 @@ C'était une question de vie ou de mort et le temps pressait. Bien qu'il sût qu
 
 Liu Jinbiao fut stupéfait.
 
-Wang Lin esquissa un sourire énigmatique, presque imperceptible. Xu Liguo, le dragon marin, ainsi que Maître Nuage du Sud et les autres furent également surpris.
+Wang Lin esquissa un sourire énigmatique, presque imperceptible. Xu Liguo, le dragon marin, ainsi que Maître Nan Yunzi et les autres furent également surpris.
 
 Xu Liguo resta interdit un instant avant d'éclater de rire. Liu Jinbiao afficha un sourire glacial en regardant Maître Âme Écarlate, plongé dans le désespoir.
 
@@ -74,7 +72,7 @@ Maître Âme Écarlate reprit précipitamment: « Et si vous laissez ce vieil ho
 
 Les nombreux cultivateurs du Royaume Céleste ne saisissaient pas vraiment la véritable puissance de Wang Lin. Mais lorsqu'ils entendirent Maître Âme Écarlate évoquer le mystérieux Grand Empereur Dao Yi, le simple nom fit trembler leurs âmes.
 
-Le Maître du Dao Rêve Bleu fronça les sourcils sans mot dire. Maître Nuage du Sud affichait également une expression sombre; sa foi en la force de Wang Lin vacillait légèrement.
+Le Maître du Dao Rêve Bleu fronça les sourcils sans mot dire. Maître Nan Yunzi affichait également une expression sombre; sa foi en la force de Wang Lin vacillait légèrement.
 
 « Sur le Continent Astral Immortel, il y avait à l'origine neuf Grands Empereurs. Ce Dao Yi est le plus faible d'entre eux », déclara lentement Wang Lin, le visage toujours impassible.
 

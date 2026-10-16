@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 813 - Celestial Sealing Stamp is born!"
 slug: la-naissance-du-sceau-celeste
 ---
-Chapitre 813 - La Naissance du Sceau Céleste!
-
 Lorsque le cadenas doré s'effondra, la lumière dorée se dissipa instantanément. D'innombrables fragments se dispersèrent sur le sol, et seule une goutte de liquide doré resta au creux de la main de Wang Lin.
 
 Sous le contrôle de Wang Lin, sa manière de broyer l'objet fut d'une ingéniosité rare: il détruisit le trésor sans pour autant endommager le moindrement le liquide doré qu'il contenait. Si l'ancien propriétaire avait été témoin de cette scène, il en aurait eu le souffle coupé et le cœur serré par la douleur.

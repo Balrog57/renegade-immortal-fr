@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1708 - First One!"
 slug: le-premier
 ---
-Chapitre 1708 - Le premier!
-
 L'homme en robe royale fixa les sourcils de la statue avec une pointe de surprise. Cependant, quatre gouttes de sang ne suffisaient pas à le choquer; même Ye Mo en avait obtenu trois.
 
 Bien que la majorité des gens n'aient obtenu qu'une seule goutte de sang durant cette calamité, beaucoup en avaient tout de même obtenu deux. Hormis Ye Mo, la plupart de ceux dotés du lignage royal pouvaient obtenir au moins deux gouttes de Sang Céleste de la Race Ancienne.

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1828 - Elder of the Great Soul Secte!"
 slug: ancien-du-grand-secte-de-lame
 ---
-Chapitre 1828 - Ancien du Grand Secte de l'Âme!
-
 Wang Lin est de retour!
 
 Ces trois mots jaillirent dans l'esprit de Wang Lin comme des éclairs de tonnerre. Sous le choc, il recula de plusieurs pas, s'éloignant du pont brisé.

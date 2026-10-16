@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2021 - Suddenly Looking Back !"
 slug: soudain-un-regard-en-arriere
 ---
-Chapitre 2021 - Soudain, un regard en arrière!
-
 Wang Lin était habitué à ce que les regards se fixent sur lui lors de ce genre d'événements. Son expression resta impassible tandis que ses vêtements blancs flottaient et qu'il avançait calmement.
 
 « Cet homme... Qui est-il? »

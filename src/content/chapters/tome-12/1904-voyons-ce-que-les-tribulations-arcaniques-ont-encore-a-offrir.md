@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1904 - Let’s See What Else the Arcane Tribulants Have Left!"
 slug: voyons-ce-que-les-tribulations-arcaniques-ont-encore-a-offrir
 ---
-Chapitre 1904 - Voyons ce que les Tribulations Arcaniques ont encore à offrir!
-
 Wang Lin secoua la tête. Il ignorait comment les autres surmontaient leurs Tribulations Arcaniques, mais ni la neige ni le vent ne pouvaient percer son corps véritable d'essence, ni briser sa force physique. Même si ces vents persistaient pendant des centaines d'années, ils seraient incapables de déchirer son corps actuel.
 
 Son corps n'était plus celui d'autrefois. Grâce aux améliorations conférées par le vieil homme à la robe verte, il était devenu extrêmement robuste et résistant. Une telle ténacité et une telle force ne pouvaient en aucun cas être affectées par le vent!

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1713 - Chopping the Ghostly Sail!"
 slug: trancher-la-voile-fantomatique
 ---
-Chapitre 1713 - Trancher la Voile Fantomatique!
-
 « Coupez trois âmes originelles! » Wang Lin endura la douleur et poussa un rugissement.
 
 Alors qu'il rugissait, la double lame d'ombre s'éleva et retomba. Un éclair de lumière sanguine jaillit tandis que la lame tranchait le corps de Wang Lin. Son corps trembla violemment alors que cette âme originelle était divisée en trois parties par le pouvoir mystérieux du Clan de l'Extermination des Sceaux!

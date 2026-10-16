@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1877 - Sundered Night changes!"
 slug: une-nuit-brisee-change-tout
 ---
-Chapitre 1877 - Une nuit brisée change tout!
-
 Wang Lin prit sa décision et se retourna soudainement. Les deux scorpions verts devant lui affichaient une expression sombre, teintée de peur. Ils ne chargèrent plus contre lui, mais reculèrent rapidement vers la surface.
 
 La force de Wang Lin dépassait les attentes des quatre Messagers du Démon Vert. Ils ne s'attendaient pas à ce qu'il devienne si puissant après avoir obtenu la reconnaissance du Taureau Céleste. Cette puissance était suffisante pour effacer instantanément des cultivateurs du stade intermédiaire de la Tribulation du Vide, et se rapprochait infiniment de celle d'un cultivateur du stade avancé de la Tribulation du Vide!

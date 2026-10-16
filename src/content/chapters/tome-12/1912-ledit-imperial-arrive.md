@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1912 Imperial Edict Arrives!"
 slug: ledit-imperial-arrive
 ---
-Chapitre 1912: L'Édit Impérial Arrive!
-
 Les deux bras formés par la brume rouge semblaient contenir une puissance infinie; ils avaient tué d'innombrables cultivateurs, ce qui lui avait valu sa renommée.
 
 Cependant, face à la paume de Wang Lin, ils furent détruits comme du bois mort!

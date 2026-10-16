@@ -60,7 +60,7 @@ La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer l
 
 Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de culture élevé, une armée sans chef n'était qu'un tas de sable!
 
-La femme à la robe bleu aquatique avait été amenée ici par Maître Nuage du Sud du Système Stellaire de Vide Brillant. Elle était non seulement la meneuse des cultivateurs de Vide Brillant, mais aussi le commandant en chef de tous les cultivateurs du Royaume Intérieur présents sur place!
+La femme à la robe bleu aquatique avait été amenée ici par Maître Nan Yunzi du Système Stellaire de Vide Brillant. Elle était non seulement la meneuse des cultivateurs de Vide Brillant, mais aussi le commandant en chef de tous les cultivateurs du Royaume Intérieur présents sur place!
 
 Après cette bataille, le nom de « Seigneur du Royaume Scellé Wang Lin » s'était propagé dans tout le Royaume Intérieur. Presque toutes les régions connaissaient les exploits du Seigneur du Royaume Scellé lors de ce combat!
 

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1433 - Was He Really the Sovereign
 slug: etait-il-vraiment-le-souverain
 ---
-Chapitre 1433 - Était-il vraiment le Souverain?
-
 Une force inexplicable poussa Wang Lin à choisir, tout en l'empêchant de le faire, après avoir affronté ce dilemme indescriptible. Il se transforma en un rayon de lumière et s'éclipsa.
 
 Le Maître du Dao Rêve Bleu l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.

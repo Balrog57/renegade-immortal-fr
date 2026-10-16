@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2063 - Removing the Fog!"
 slug: dissipation-du-brouillard
 ---
-Chapitre 2063 - Dissipation du brouillard!
-
 Le Grand Empereur Gu Dao, l'être le plus puissant du Continent Astral Immortel!
 
 Sa culture était mystérieuse et il n'avait pas fait mouvement depuis d'innombrables années. D'un simple doigt, le monde changea de couleur et le ciel montra des signes d'effondrement. Même la muraille marine fut repoussée, comme si elle ne pouvait supporter une telle force.

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1461 - Making Enemies!"
 slug: se-faire-des-ennemis
 ---
-Chapitre 1461 - Se faire des ennemis!
-
 À l'instant même où l'homme corpulent du Clan du Lou Céleste fut surpris, Wang Lin agita sa main droite. Le tatouage de tonnerre, dissimulé dans le ciel, apparut soudainement. Tout cela se produisit en un éclair, et le tatouage de tonnerre fondit sur lui.
 
 L'homme corpulent réagit très rapidement. D'un geste de la main, l'Ancienne Feuille apparut. Il la plaça contre sa poitrine pour sceller ses émotions afin qu'elles ne puissent être exploitées par le Feu Éthéré de Wang Lin. Une pointe de moquerie se dessina sur son visage alors que sa main formait un sceau; un loup céleste de 10 000 pieds apparut, poussa un rugissement et bondit vers le tatouage de tonnerre.

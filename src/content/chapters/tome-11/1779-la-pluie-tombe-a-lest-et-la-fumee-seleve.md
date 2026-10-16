@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1779 - The Rain Falls to the East and the Smoke Rises!"
 slug: la-pluie-tombe-a-lest-et-la-fumee-seleve
 ---
-Chapitre 1779 - La pluie tombe à l'est et la fumée s'élève!
-
 Au cœur du monde de la grotte, à l'intérieur du fourneau entouré d'une brume noire, se trouvait la formation des Cinq Fleurs et des Huit Portes.
 
 Les cinq fleurs avaient éclos et seule la troisième avait fané, mais les huit portes étaient intégrées au sein de la cinquième fleur. Cela pouvait être n'importe quoi dans ce monde: un brin d'herbe, un arbre, une personne ou une bête; tout pouvait constituer une porte.

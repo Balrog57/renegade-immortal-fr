@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1829 - The Dead Soul of the Heavenly Bull !"
 slug: lame-morte-du-taureau-celeste
 ---
-Chapitre 1829 - L'Âme Morte du Taureau Céleste!
-
 D'un seul geste, l'ombre de phénix entourant Yan Lu s'effondra. Un vent ardent jaillit de la distorsion et forma huit piliers de fumée autour de Wang Lin!
 
 Des hurlements déchirants s'élevèrent des piliers de fumée, enveloppant toute la zone.

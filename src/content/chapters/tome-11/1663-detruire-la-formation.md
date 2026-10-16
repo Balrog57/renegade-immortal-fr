@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1663 - Destroying the Formation!"
 slug: detruire-la-formation
 ---
-Chapitre 1663 - Détruire la Formation!
-
 Les cultivateurs du Royaume Extérieur concentraient l'essence de la puissance des Flammes Joss pour nourrir leur corps tout entier et atteindre l'éternité. Cependant, dans le Royaume Intérieur, les Flammes Joss étaient rares, ce qui posait problème. Non seulement cela empêchait les gens d'atteindre le troisième stade, mais une fois ce stade atteint, si trop d'essence était consommée, il devenait difficile de récupérer.
 
 Wang Lin n'avait pas compté sur les Flammes Joss pour atteindre le troisième stade. Il s'était appuyé sur sa propre compréhension pour compléter ses trois essences éthérées. Il avait dévoré des éléments pour parachever ses essences du tonnerre et du feu.

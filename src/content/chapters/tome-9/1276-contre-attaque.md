@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1276 - Counter Attack!"
 slug: contre-attaque
 ---
-Chapitre 1276 - Contre-attaque!
-
 À cet instant, dans le Royaume Céleste du Vent, les vents incessants continuaient de balayer l'espace. Cela conférait au royaume une sensation de désolation alors que le vent hurlait, un sentiment si puissant qu'il ne semblait vouloir disparaître pour rien au monde.
 
 Des troupeaux de bêtes-moustiques se déplaçaient portés par les courants. Elles étaient les uniques maîtres du Royaume Céleste du Vent.

@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 846 - Are You Enlightened
 slug: etes-vous-eclaire
 ---
-Chapitre 846 - Êtes-vous éclairé?
-
 À l'extérieur de la jungle, une route publique serpentait entre les montagnes verdoyantes. Une escorte de calèches galopait le long du chemin. Façonnées dans des matériaux exquis, ces calèches dégageaient un parfum subtil et exhalaient une odeur de richesse.
 
 Le martèlement des sabots et le roulement des roues résonnaient, quand soudain la calèche de tête s'arrêta et qu'une fillette d'environ sept ou huit ans en descendit.

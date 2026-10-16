@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1870 - Soul Armor!"
 slug: armure-de-lame
 ---
-Chapitre 1870 - Armure de l'âme!
-
 Au moment où Wang Lin s'engouffra dans la terre, son visage était livide et il ne put plus retenir le sang qui lui montait à la gorge, laissant jaillir une gerbe écarlate. À peine eut-il pénétré sous terre qu'il sentit la formation se sceller définitivement derrière lui.
 
 S'il avait été un instant plus lent, il serait resté bloqué à l'extérieur. Il aurait alors dû affronter six vieux monstres de stade intermédiaire de la Tribulation du Vide. Même en utilisant ses trois vies, il n'aurait eu aucune chance de survivre.

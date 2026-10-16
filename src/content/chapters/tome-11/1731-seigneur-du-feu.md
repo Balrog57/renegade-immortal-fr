@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1731 - Lord of Fire!"
 slug: seigneur-du-feu
 ---
-Chapitre 1731 - Seigneur du Feu!
-
 À l'intérieur des cinq anneaux entrelacés, la scène était totalement floue. Il était très difficile de voir ce qui s'y passait depuis l'extérieur; on n'apercevait que les ondulations déformées émanant des cinq cercles.
 
 Wang Lin se trouvait au cœur de ces anneaux, parfaitement calme. Dans sa main droite, une petite masse de terre était en mouvement, changeant constamment de forme.

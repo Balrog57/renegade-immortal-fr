@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1468 - Borrowed Power!!"
 slug: pouvoir-emprunte
 ---
-Chapitre 1468 - Pouvoir Emprunté!!
-
 Il vit huit montagnes de cadavres à l'extérieur de cet octogone!
 
 Le sang sur ces innombrables corps s'était déjà desséché. Ils avaient été entassés pour former huit montagnes gigantesques. L'aura sinistre semblait plus intense encore alors que Wang Lin observait la scène.

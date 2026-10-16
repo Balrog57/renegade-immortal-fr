@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1842 - Cultivators of the Green Devil Continent!"
 slug: les-cultivateurs-du-continent-du-demon-vert
 ---
-Chapitre 1842 - Les cultivateurs du Continent du Démon Vert!
-
 Les grottes nichées dans les profondeurs de la mer furent envahies par des groupes de cultivateurs vêtus de vert, qui massacraient impitoyablement tous ceux qui s'y trouvaient. Quiconque tentait de s'échapper se voyait traqué par des escouades de robes vertes; ils ne reculeraient pas avant d'avoir atteint leur cible!
 
 En raison du fait que toute la Mer des Pilules était scellée et que le nombre de cultivateurs en robes vertes était immense, toute fuite semblait impossible.

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1317 - Continue
 slug: suite
 ---
-Chapitre 1317 - Suite...
-
 L'homme d'âge moyen sortit de la lumière bleue. Il ne daigna même pas regarder Wang Lin, ses yeux ne se posant que sur Li Qianmei, qu'il tenait entre ses bras. Son regard trahissait une affection mêlée de douleur.
 
 À l'instant où sa voix retentit, l'esprit de Wang Lin trembla et il leva immédiatement les yeux. Il vit instantanément l'homme d'âge moyen vêtu de bleu, et un rugissement fit écho dans son esprit.

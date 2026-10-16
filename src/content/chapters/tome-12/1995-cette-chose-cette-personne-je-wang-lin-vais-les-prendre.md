@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1995 - This Thing, This Person, I, Wang Lin, Will Take Them!"
 slug: cette-chose-cette-personne-je-wang-lin-vais-les-prendre
 ---
-Chapitre 1995 - Cette chose, cette personne, je, Wang Lin, vais les prendre!
-
 L'expression de Wang Lin était grave. Dissimulé à l'intérieur de la tête, personne ne l'avait remarqué. Cependant, si l'Empereur Céleste venait à trancher la tête, il serait immédiatement découvert par les autres.
 
 Les yeux de Wang Lin s'illuminèrent et son esprit se concentra intensément.
@@ -92,7 +90,7 @@ Il était tel un chasseur ayant patienté jusqu'à l'instant parfait pour décle
 
 Wang Lin n'était absolument pas affecté par la malédiction ancestrale. À cet instant, alors que Dao Yi poussait un cri tragique, que Wu Feng reculait et que Jiu Di résistait à la malédiction, Wang Lin chargea directement dans l'œil gauche!
 
-En voyant Wang Lin, Gemini afficha immédiatement une expression de joie pure!
+En voyant Wang Lin, Gémeaux afficha immédiatement une expression de joie pure!
 
 L'Exaltée Empyréenne Hai Zi également: des ondulations parcoururent son regard, traversé par un éclair d'excitation.
 

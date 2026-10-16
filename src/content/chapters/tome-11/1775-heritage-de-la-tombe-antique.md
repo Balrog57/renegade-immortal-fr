@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1775 - Ancient Tomb Inheritance!"
 slug: heritage-de-la-tombe-antique
 ---
-Chapitre 1775 - Héritage de la Tombe Antique!
-
 Wang Lin ne ressentit aucune joie en prenant l'âme du Souverain. Au contraire, il éprouva une certaine tristesse. Wang Lin avait déjà entendu le nom du Souverain lorsqu'il n'était qu'au deuxième niveau et, une fois arrivé dans le Système Stellaire Antique, ils s'étaient croisés de nombreuses fois.
 
 Cet homme pouvait être considéré comme un leader d'une génération, mais sa vie n'avait été que mélancolie. Il n'était qu'un esclave du fou. Puis, après la disparition de ce dernier, il avait été contraint de vénérer le Daoïste aux Sept Couleurs comme son maître et de se soumettre à ses ordres.

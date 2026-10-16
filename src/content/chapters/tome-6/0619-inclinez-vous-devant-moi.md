@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 619 - Get Down For Me!"
 slug: inclinez-vous-devant-moi
 ---
-Chapitre 619 - Descends!
-
 Les cultivateurs de l'Union de Culture s'envolèrent vers la Tribu du Raffinement des Âmes.
 
 Devant eux s'étendait un nuage noir couvrant des centaines de kilomètres à la ronde. Cette masse était si épaisse qu'il était impossible d'y voir clair; sans même parler de la vue, leurs sens divins étaient instantanément repoussés par elle. En réalité, s'ils avaient été tant soit peu négligents, leurs sens divins auraient été dévorés par les fragments d'âmes qui s'y trouvaient!

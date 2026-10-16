@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 723 - Those who seek dao understand during death, pitiful...
 slug: ceux-qui-cherchent-le-dao-comprennent-dans-la-mort-pitoyable
 ---
-Chapitre 723 - Ceux qui cherchent le Dao comprennent dans la mort, pitoyable...
-
 « C'est... cet endroit est... l'espace de la perle défiant le ciel! » Les yeux de Wang Lin se plissèrent alors qu'il reconnut immédiatement les lieux.
 
 Il connaissait trop bien cet endroit. Il était imprégné de chaos où, par intermittence, des sphères de lumière brillaient intensément.

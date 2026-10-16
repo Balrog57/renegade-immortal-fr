@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1327 - Scam
 slug: arnaque
 ---
-Chapitre 1327 - Arnaque…
-
 L'autre planète de culture du Clan des Scorpions Démoniaques remarqua l'agitation, et une multitude de cultivateurs s'élança dans les airs.
 
 Cependant, la femme en blanc sentit qu'elle n'était plus accompagnée que par le géant d'ombre lumineuse. Le coup de poing titanesque se rapprochait, et nul ne pourrait l'intercepter pour elle!

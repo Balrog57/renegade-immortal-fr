@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: Chapter 344 - Do you still remember Wealth
 slug: te-souviens-tu-encore-de-richesse
 ---
-Chapitre 344 - Te souviens-tu encore de Richesse?
-
 Son immense trompe paraissait très menaçante. La bête moustique se montrait extrêmement méfiante envers le crapaud tonnerre, n'arrêtant pas d'émettre des sons de protestation.
 
 Le crapaud tonnerre fixait la bête moustique avec une expression provocatrice.

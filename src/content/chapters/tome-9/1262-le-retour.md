@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1262 - Came Back
 slug: le-retour
 ---
-Chapitre 1262 - Le Retour...
-
 À l'intérieur de ce palais lugubre, une tempête éclata à la voix du garçon. Cette tempête fit tourbillonner le brouillard stellaire autour de la planète et provoqua des grondements tonitruants.
 
 « Maître, moi, Daoïste Water, j'ai combattu aux côtés de votre volonté et j'ai failli mourir de nombreuses fois; je vous ai donc rendu votre dette pour m'avoir sauvé. Le karma entre nous est rompu. Après votre mort, bien que j'aie repris la Secte Divin, celui-ci avait naturellement besoin d'un chef, je n'ai donc pas eu tort de le faire! »

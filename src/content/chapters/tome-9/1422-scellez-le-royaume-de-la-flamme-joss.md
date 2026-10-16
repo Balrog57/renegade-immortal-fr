@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1422 - Seal the Joss Flame Realm!"
 slug: scellez-le-royaume-de-la-flamme-joss
 ---
-Chapitre 1422 - Scellez le Royaume de la Flamme Joss!
-
 L'expression du Maître Simo était sombre. Bien que ses paroles soient empreintes d'une intention meurtrière, il n'oserait pas réellement tuer Wang Lin devant le vieil Oiseau Vermillon. S'il commettait un tel acte, il ferait face à la mort.
 
 S'il ne tuait pas Wang Lin, l'ancien Oiseau Vermillon ne pourrait pas non plus être trop sévère envers lui. Après tout, il avait le Conseil Souverain et le Souverain derrière lui! Il avait utilisé le Culte de la Flamme Joss dans l'intention de blesser gravement Wang Lin pour le forcer à battre en retraite.

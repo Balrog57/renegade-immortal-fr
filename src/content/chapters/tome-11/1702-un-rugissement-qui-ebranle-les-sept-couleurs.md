@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1702 - Roar Shocks Seven-Colored!"
 slug: un-rugissement-qui-ebranle-les-sept-couleurs
 ---
-Chapitre 1702 - Un Rugissement qui ébranle les Sept Couleurs!
-
 « Des actions aussi rusées et décisives, Daoïste aux Sept Couleurs... » Wang Lin observait tout, l'esprit parfaitement lucide. Il comprenait pourquoi le Daoïste aux Sept Couleurs acceptait d'être piégé dans l'illusion.
 
 Fan Shanmeng avait attiré le Daoïste aux Sept Couleurs dans l'illusion, et celui-ci lui avait permis de l'y entraîner. Cependant, il avait utilisé sa puissante culture pour modifier de force l'illusion afin de revenir au moment où le Souverain Céleste aux Sept Couleurs s'était brisé en trois âmes et sept fragments.

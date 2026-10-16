@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1868 - Zhang Daozong!!"
 slug: zhang-daozong
 ---
-Chapitre 1868 - Zhang Daozong!!
-
 Ce massacre ne rassemblait pas autant de cultivateurs que la première fois; l'étendue des combats n'était donc pas trop vaste — seulement quelques centaines de kilomètres.
 
 À environ 100 000 kilomètres du champ de bataille, tout était encore enveloppé de brouillard. Une pierre gisait dans la boue et l'herbe. À cet instant, une explosion de lumière jaillit et la silhouette de Wang Lin apparut.

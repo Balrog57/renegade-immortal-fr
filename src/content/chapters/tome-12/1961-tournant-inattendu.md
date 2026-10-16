@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1961 - Sudden Turn!"
 slug: tournant-inattendu
 ---
-Chapitre 1961 - Tournant inattendu!
-
 « Empereur Céleste, quel est le sens de ceci? » Le Grand Empereur Wu Feng fixait l'ombre de l'Empereur Céleste qui entourait l'Exalté Céleste.
 
 « Wu Feng, nul besoin de s'emporter. Ming Dao n'a blessé personne et n'a enfreint aucune règle. » L'ombre de l'Empereur Céleste autour du cultivateur sourit, mais son expression était celle d'un être qui ne saurait être remis en question. Il ne daigna même pas regarder Wang Lin, qui se tenait à l'extérieur du réseau de transfert.
@@ -130,6 +128,6 @@ Il avait tout vu et était en accord avec les paroles de l'Empereur Céleste. En
 
 « De quoi cet enfant dispose-t-il pour continuer ainsi? »
 
-À cet instant, au sein de la Secte Violette Yang, le Grand Empereur Gemini avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Ils avaient vu Wang Lin se faire rabaisser et étaient furieux. En voyant Wang Lin s'élancer dans le ciel, ils furent envahis par l'attente.
+À cet instant, au sein de la Secte Violette Yang, le Grand Empereur Gémeaux avait terminé ses jeux et était retourné auprès du cultivateur d'âge moyen. Ils avaient vu Wang Lin se faire rabaisser et étaient furieux. En voyant Wang Lin s'élancer dans le ciel, ils furent envahis par l'attente.
 
-« Wang... Wang Lin?! » Cupidité, qui subissait les tourments du Grand Empereur Gemini, fixa le miroir, l'esprit totalement vide.
+« Wang... Wang Lin?! » Cupidité, qui subissait les tourments du Grand Empereur Gémeaux, fixa le miroir, l'esprit totalement vide.

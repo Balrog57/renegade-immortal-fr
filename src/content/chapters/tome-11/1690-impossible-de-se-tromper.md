@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1690 - Can’t Be Wrong!"
 slug: impossible-de-se-tromper
 ---
-Chapitre 1690 - Impossible de se tromper!
-
 Le Souverain apparut à un instant précis. Il surgit au moment même où Wang Lin décochait sa deuxième flèche. Le Souverain avait déjà le sentiment qu'il devait tuer Wang Lin!
 
 Compte tenu de son niveau de culture, il était déjà entré dans le stade du Tribulant Arcanique; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave, même les êtres les plus puissants devaient lui témoigner un certain respect.

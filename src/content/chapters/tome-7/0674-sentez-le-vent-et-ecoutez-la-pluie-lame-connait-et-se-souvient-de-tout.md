@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 674 - Smell the Wind and Listen to the Rain. The Soul Knows and Remembers All
 slug: sentez-le-vent-et-ecoutez-la-pluie-lame-connait-et-se-souvient-de-tout
 ---
-Chapitre 674 - Sentez le vent et écoutez la pluie. L'âme connaît et se souvient de tout.
-
 Le Doigt de la Mort se transforma en un rayon de lumière noire lorsqu'il fut projeté. Des ondulations apparurent autour de lui, et même ces ondulations étaient parcourues d'éclairs crépitants.
 
 Le son résonna et continua de s'étendre avant de se muer en détonations de tonnerre qui descendaient du ciel. La puissance du tonnerre entourant le Doigt de la Mort était encore plus redoutable; c'était comme si elle incarnait la colère de la foudre de la tribulation divine.

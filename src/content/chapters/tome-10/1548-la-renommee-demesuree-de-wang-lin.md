@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1548 - Wang Lin’s excess prestige!"
 slug: la-renommee-demesuree-de-wang-lin
 ---
-Chapitre 1548 - La renommée démesurée de Wang Lin!
-
 Les paroles calmes de Wang Lin rendirent Maître Yan Leizi encore plus respectueux.
 
 L'expression de Wang Lin demeurait sereine, ne trahissant aucune émotion, mais ses yeux froids auraient pu geler le monde entier. Il fit le pas ultime.

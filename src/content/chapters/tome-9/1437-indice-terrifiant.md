@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1437 - Terrifying Clue!"
 slug: indice-terrifiant
 ---
-Chapitre 1437 - Indice terrifiant!
-
 Le cri déchirant fut étouffé par les grondements. La jeune fille qui s'était cachée sur l'épaule droite du colosse et qui s'apprêtait à attaquer Wang Lin par surprise fut forcée de se dévoiler!
 
 Peu importe le niveau de culture de chacun, tous devaient subir l'épreuve du brouillard provenant du Tombeau de l'Ordre Antique. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette petite fille du Clan de l'Extermination des Sceaux!

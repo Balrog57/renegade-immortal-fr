@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1909 - Golden, Empyrean, Ascendant!"
 slug: dore-celeste-ascendant
 ---
-Chapitre 1909 - Doré, Céleste, Ascendant!
-
 La Secte du Dao Démoniaque se situait dans la partie nord-ouest du Continent du Démon Vert et était bâti sur un marais. Il comptait parmi les neuf sectes et treize factions du Continent de l'Est, ce qui signifiait qu'il possédait la puissance d'un cultivateur au sommet du stade avancé de la Tribulation du Vide!
 
 Seule une telle force permettait à une secte de se faire un nom sur une terre aussi vaste que le Continent de l'Est!

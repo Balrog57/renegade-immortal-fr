@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2005 - There’s a Woman, Song Zhi!!"
 slug: il-y-a-une-femme-song-zhi
 ---
-Chapitre 2005 - Il y a une femme, Song Zhi!!
-
 L'expression de Wang Lin était calme, ses cheveux blancs flottant au gré du vent. Il laissa échapper un soupir et avança. Pour la première fois, il avait le sentiment de ne pas être fait pour le clan Antique.
 
 « Je peux déjà percevoir l'étendue du pouvoir impérial du clan Antique à travers cette simple affaire... » Outre l'obtention d'une gemme cartographique, Wang Lin était resté ici pour tester la véritable puissance de l'autorité impériale du clan Antique.

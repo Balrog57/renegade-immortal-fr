@@ -6,9 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1863 - Devour the Heavenly Dao!"
 slug: devorer-le-dao-celeste
 ---
-
-Chapitre 1863 - Dévorer le Dao Céleste!
-
 Tout cela se déroula à une vitesse fulgurante. Xu Decai enfonça impitoyablement le bâton d'encens dans le sol, puis recula brusquement de trois pas. Sa main gauche exécuta près de six millions de sceaux, tandis que sa main droite en forma tout aussi rapidement un nombre similaire. Puis, il pressa ses deux mains contre le sol.
 
 Dans un fracas assourdissant, la boue entourant Wang Lin se mit à tourbillonner pour former un vortex. Les bords s'élevèrent, érigeant un mur de boue impénétrable. De loin, on aurait dit qu'un amas gigantesque de boue avait encerclé Wang Lin.

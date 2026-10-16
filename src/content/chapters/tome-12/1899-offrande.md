@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1899 - Offering !"
 slug: offrande
 ---
-Chapitre 1899 - Offrande!
-
 « Je déteste!!! » Ce furent les derniers mots que hurla l'ancien à la robe verte avant de mourir. Grâce à sa sagesse, il avait naturellement compris ce qui s'était passé. Il avait vu Wang Lin utiliser l'œil de suppression et la Lame Yin qu'il lui avait données sur le scorpion vert.
 
 Cette scène suffit à le pousser dans une telle colère qu'il en fit une crise cardiaque. Son espérance de vie étant déjà bien entamée, il cracha un flot de sang avant de s'éteindre!

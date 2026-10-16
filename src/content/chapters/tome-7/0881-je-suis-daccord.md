@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 881 - I Agree!"
 slug: je-suis-daccord
 ---
-Chapitre 881 - « Je suis d'accord! »
-
 Wang Lin ne manifesta pas ce violent bouleversement émotionnel. Ses yeux se calmèrent progressivement, mais derrière ce calme brûlait une flamme ardente.
 
 Il ne fut pas le premier à s'avancer; il attendit que les autres expriment leurs demandes avant de marcher lentement vers l'avant. Il joignit les mains devant Maître Yan Leizi et dit respectueusement: « Le disciple a une requête! »

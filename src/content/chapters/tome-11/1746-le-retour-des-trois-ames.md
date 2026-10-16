@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1746 - Three Souls Return!"
 slug: le-retour-des-trois-ames
 ---
-Chapitre 1746 - Le retour des trois âmes!
-
 Le cinquième fragment était vert. Cette lueur verte représentait un arbre dont l'intention était de déployer ses branches. Ce fragment avait été formé par les instincts du Souverain Céleste aux Sept Couleurs. Si cette âme avait été mortelle, il aurait eu de nombreux enfants. Si cette âme avait été celle d'un cultivateur, son niveau de culture n'aurait pas été élevé, mais il aurait excellé dans la création d'avatars, à l'instar des branches d'un arbre!
 
 Cette âme était enveloppée d'une lumière verte et peu éclatante. Elle s'effaçait faiblement dans le cycle de la réincarnation, mais Wang Lin aperçut tout de même la silhouette floue qui apparut au moment précis de sa disparition.

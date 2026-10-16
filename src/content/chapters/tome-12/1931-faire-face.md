@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1931 - Face!"
 slug: faire-face
 ---
-Chapitre 1931 - Faire face!
-
 « Âme non issue du Continent Astral Immortel détectée, sceller! » Cette voix antique résonna soudainement dans le cœur de Wang Lin. Elle semblait provenir d'un passé lointain, émanant des profondeurs des âges et répercutant entre les strates des sceaux.
 
 Sans la moindre hésitation, le corps originel de Wang Lin recula tandis que la voix grondait. Tout en se retirant, son corps véritable des cinq éléments se précipita vers le corps véritable de l'essence du tonnerre. Simultanément, le visage gigantesque qui émergeait des couches du sceau tenta d'engloutir le corps véritable de l'essence du tonnerre.

@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 724 - Seeing the Third Step!"
 slug: entrevoir-la-troisieme-etape
 ---
-Chapitre 724 - Entrevoir la Troisième Étape!
-
 Lui-même était le Dao! Le ciel et la terre étaient composés d'innombrables Daos, et lui était le Dao!
 
 Devant lui se trouvaient d'innombrables sphères de lumière, oscillant entre la vie et la mort, de la mort à la vie. C'était son Dao de la vie et de la mort.

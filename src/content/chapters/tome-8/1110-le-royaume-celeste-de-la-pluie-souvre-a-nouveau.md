@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 1110 - Rain Celestial Realm Opens Once More!"
 slug: le-royaume-celeste-de-la-pluie-souvre-a-nouveau
 ---
-Chapitre 1110 - Le Royaume Céleste de la Pluie s'ouvre à nouveau!
-
 « Tais-toi! » grogna Wang Lin en fronçant les sourcils.
 
 Xu Liguo cessa immédiatement de parler, mais son corps d'épée trembla tandis qu'il pensait: « C'est fini, c'est fini. J'ai dû perdre la raison pour oser attaquer ce démon. Xu Liguo, ah, Xu Liguo, quel diable rusé tu es, comment as-tu pu être si impulsif!?! »

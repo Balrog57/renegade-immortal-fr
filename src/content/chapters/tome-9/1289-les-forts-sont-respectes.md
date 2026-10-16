@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1289 - The Strong are Respected !"
 slug: les-forts-sont-respectes
 ---
-Chapitre 1289 - Les forts sont respectés!
-
 Après être entré à nouveau dans la Secte Éternelle, Wang Lin s'élança sans s'arrêter. La vieille femme le suivit rapidement.
 
 En raison de l'activation du réseau de transfert, les disciples de la Secte Éternelle le remarquèrent immédiatement. Certains gardiens situés à proximité s'approchèrent aussitôt en volant.

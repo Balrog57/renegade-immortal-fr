@@ -6,9 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1880 - Top Secret Plan!"
 slug: plan-top-secret
 ---
-
-Chapitre 1880 - Plan Top Secret!
-
 Durant ces sept jours, le palais souterrain resta plongé dans un silence de mort. Même lorsqu'ils sortaient, les cultivateurs conservaient inconsciemment le silence. Dans cette atmosphère feutrée, certains quittèrent prudemment le palais pour remonter à la surface. En découvrant la Prairie de l'Extrême Ciel, qui semblait avoir été totalement bouleversée, ils restèrent stupéfaits.
 
 Se remémorant les trois phrases que Wang Lin avait prononcées avant de se retirer en méditation, ceux qui contemplaient les changements radicaux de la prairie ressentirent une vague de terreur. Cela prouvait que les paroles de Wang Lin étaient toutes vraies.

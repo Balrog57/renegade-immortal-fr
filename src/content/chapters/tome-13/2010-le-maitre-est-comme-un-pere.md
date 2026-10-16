@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2010 - The Teacher is Like a Father!"
 slug: le-maitre-est-comme-un-pere
 ---
-Chapitre 2010 - Le Maître est comme un Père!
-
 Une fois qu'il eut parlé, le silence s'abattit sur l'assemblée et tous les regards se tournèrent vers Wang Lin. C'était comme l'avait dit le vieil homme: dans l'Ancien Dao, hormis le Grand Empereur, quiconque se trouvait en présence de l'Empereur de l'Ancien Dao devait s'agenouiller!
 
 C'était là l'incarnation même du pouvoir impérial. Ne pas s'y soumettre équivalait à un acte d'irrespect envers la puissance souveraine!

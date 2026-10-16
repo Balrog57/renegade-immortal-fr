@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1860 - Uninvited Guest!"
 slug: invite-non-desire
 ---
-Chapitre 1860 - Invité non désiré!
-
 La lune surplombait la Prairie de l'Extrême Ciel et les étoiles étaient rares. La lumière lunaire, éclatante, se répandait sur la terre, enveloppant la prairie d'un éclat argenté. De loin, le spectacle était d'une grande beauté. Une paix indescriptible régnait, rien ne laissant présager qu'une bataille titanesque impliquant des dizaines de milliers de cultivateurs s'était déroulée ici durant la journée.
 
 Aucun cadavre ne jonchait plus le sol. Les corps et les âmes des cultivateurs décédés avaient été entièrement dévorés par le brouillard. Tout semblait identique à ce qu'il était auparavant.

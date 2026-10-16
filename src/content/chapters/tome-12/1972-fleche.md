@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1972 - Arrow!"
 slug: fleche
 ---
-Chapitre 1972 - Flèche!
-
 Dans les rues de la ville orientale, le corps élancé d'un dragon marin de cent pieds de long fendait l'air à toute vitesse. Cependant, il n'osait pas voler trop haut, car une pression terrifiante régnait en ces lieux; s'il s'élevait trop, ce serait fatal.
 
 Le dragon marin était couvert de cicatrices au cours de sa fuite. Une flèche noire lui transperçait l'abdomen, libérant une puissance qui consumait sa vitalité. Une aura de gaz noir enveloppait la créature.

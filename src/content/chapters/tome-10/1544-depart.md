@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1544 - Leaving!"
 slug: depart
 ---
-Chapitre 1544 - Départ!
-
 « Cher Maître, veuillez accepter ce disciple! »
 
 Le fou s'agenouilla devant Wang Lin, la Bête du Néant à ses côtés. Il continua de se prosterner, les yeux empreints d'une immense révérence.

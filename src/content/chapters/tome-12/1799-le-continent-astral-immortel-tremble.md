@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1799 - Immortal Astral Continent Trembles!"
 slug: le-continent-astral-immortel-tremble
 ---
-Chapitre 1799 - Le Continent Astral Immortel Tremble!
-
 Wang Lin regarda la coquille semblable à un fruit. Il ne parvenait absolument pas à voir à travers elle, mais il sentait une autre version de lui-même à l'intérieur.
 
 On pourrait dire que lorsqu'il fermait les yeux, il n'était plus certain d'être à l'intérieur ou à l'extérieur de cette enveloppe de pierre. Il se sentait assis à la fois dans la coquille et dans son corps original, à l'extérieur.

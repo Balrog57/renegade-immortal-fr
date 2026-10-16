@@ -6,8 +6,6 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 443 - Who is this person
 slug: qui-est-cette-personne
 ---
-Chapitre 443 - Qui est cette personne?
-
 La plupart des cultivateurs de la planète étaient rassemblés dans le pays de Suzaku en ce moment même, tous animés par un unique objectif:
 
 Pénétrer dans la Tombe de Suzaku afin de récupérer leur fragment d'âme.

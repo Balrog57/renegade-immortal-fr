@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1983 - There are Tigers in the Mountain!"
 slug: il-y-a-des-tigres-dans-la-montagne
 ---
-Chapitre 1983 - Il y a des tigres dans la montagne!
-
 Le corps de Xu Liguo trembla alors qu'il fixait Wang Lin, abasourdi. Tout ce qui lui revenait en mémoire faisait couler les larmes de ses yeux.
 
 Il se souvenait de Wang Lin et de la manière dont il avait été façonné en démon par celui-ci.

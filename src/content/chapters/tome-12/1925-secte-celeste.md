@@ -28,7 +28,7 @@ Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Li
 
 L'ensemble du Continent Oriental ne comptait que quelques Exaltés Empyréens. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
 
-Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyréen Gemini; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
+Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyréen Gémeaux; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
 
 La Secte Céleste était l'organisation la plus puissante du Continent Céleste. Parmi les neuf sectes et treize factions, elle seule régnait sur l'intégralité du continent. Elle se distinguait des autres par sa structure: loin d'être une entité unique, elle possédait dix-neuf sectes branches réparties sur tout le territoire, contrôlant ainsi totalement les ressources du continent.
 

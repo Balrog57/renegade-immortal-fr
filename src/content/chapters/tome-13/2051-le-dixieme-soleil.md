@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2051 - Tenth Sun!"
 slug: le-dixieme-soleil
 ---
-Chapitre 2051 - Le Dixième Soleil!
-
 Les Grands Empereurs pouvaient explorer les limites des lois du monde. Grâce à leur foi puissante, ils pouvaient emprunter ces lois pour matérialiser des choses. Ce que l'on appelait « créer quelque chose à partir de rien » relevait de ce principe.
 
 Cependant, il ne s'agissait que de transformer l'illusion en réalité — ils ne pouvaient pas saisir les lois et les manipuler à leur guise comme Wang Lin. Ce n'était pas un simple emprunt, mais un niveau supérieur de maîtrise des lois du monde!

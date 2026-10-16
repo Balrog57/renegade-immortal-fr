@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1932 - Broken Palm!"
 slug: la-paume-brisee
 ---
-Chapitre 1932 - La Paume Brisée!
-
 À l'instant même où l'Exalté Céleste Hai Zi reprit connaissance, Wang Lin trancha le cou reliant le visage au sceau à l'intérieur du trou noir, au fond de la Mer des Montagnes.
 
 Dès que la lame frappa, le visage poussa un rugissement et se retourna complètement. Cependant, il s'effondra strate après strate devant Wang Lin, se changea en poussière et disparut dans la mer.

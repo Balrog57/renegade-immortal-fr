@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1413 - Change To The Heaven Defying Bead!"
 slug: changement-vers-la-perle-defiant-le-ciel
 ---
-Chapitre 1413 - Changement vers la Perle Défiant le Ciel!
-
 Au moment où l'Oiseau Vermillon traversait son quatrième éveil, tout le feu de l'Essai Terrestre commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de l'Oiseau Vermillon.
 
 Les fragments du lotus de feu aux neuf couleurs formèrent une armure multicolore autour de l'Oiseau Vermillon. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.

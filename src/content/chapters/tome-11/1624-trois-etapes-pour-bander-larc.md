@@ -100,7 +100,7 @@ Non loin de là, Zhou Jin était le seul cultivateur du Royaume Extérieur à av
 
 Et pas seulement lui; les milliers de cultivateurs du Royaume Intérieur étaient tous stupéfaits. Ce qu'ils venaient d'observer était tout simplement incroyable!
 
-« Le Seigneur du Domaine Scellé... C'est le Seigneur du Domaine Scellé, l'espoir de notre Royaume Intérieur! » Les yeux de Maître Nuage du Sud pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il savait qu'un tel phénomène ne devrait pas être possible, mais que ce soit la Porte des Dix Milliers de Vides ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
+« Le Seigneur du Domaine Scellé... C'est le Seigneur du Domaine Scellé, l'espoir de notre Royaume Intérieur! » Les yeux du Maître Nan Yunzi pétillaient d'excitation. En tant que cultivateur ayant pratiqué durant tant d'années, il savait qu'un tel phénomène ne devrait pas être possible, mais que ce soit la Porte des Dix Milliers de Vides ou le pouvoir de cette flèche, l'un ou l'autre suffisait à le bouleverser.
 
 Situ Nan éclata de rire en observant Wang Lin au cœur du vortex, les yeux brillants d'exaltation.
 

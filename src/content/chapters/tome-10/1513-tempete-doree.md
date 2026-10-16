@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1513 - Golden Storm !"
 slug: tempete-doree
 ---
-Chapitre 1513 - Tempête Dorée!
-
 Cependant, tout cela était trop tard!
 
 Le Daoïste Eau avait invoqué l'ancien être céleste et avait reçu la cloche dorée grâce à un sort secret impliquant l'utilisation de la carapace de tortue qu'il avait obtenue du Seigneur du Royaume Scellé. L'aura de l'Ancien Royaume Céleste n'était perceptible que par lui lorsqu'il invoquait cet être antique.

@@ -30,7 +30,7 @@ Quant à l'Empereur Céleste, qui s'était révélé dans le palais impérial, s
 
 Mais peu importe l'ampleur de ce prix, cela en vaudrait la peine. Une fois que cet homme deviendrait un Grand Empereur, les bénéfices seraient immenses. Avoir un autre Grand Empereur comme allié, d'autant plus avec une relation préexistante, aiderait grandement à accroître le statut de n'importe quel Grand Empereur.
 
-Le Grand Empereur Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où les quatre Grands Empereurs, aux côtés de Gemini, se disputeraient tous la même personne.
+Le Grand Empereur Wu Feng laissa également échapper un soupir. Il prévoyait déjà que Wang Lin reproduirait la scène où les quatre Grands Empereurs, aux côtés de Gémeaux, se disputeraient tous la même personne.
 
 À moins qu'un accident imprévu ne survienne...
 

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1407 - I’m Not Willing!"
 slug: je-ne-suis-pas-dispose
 ---
-Chapitre 1407 - Je ne suis pas disposé!
-
 Cette jeune fille portait une robe jaune, et les deux mèches de cheveux qui encadraient son visage oscillaient au rythme de ses mouvements, ce qui lui donnait un air très mignon.
 
 Elle n'était pas d'une beauté extrême, mais elle possédait une grande délicatesse. Bien que son regard conservât une touche d'innocence enfantine, on pouvait deviner sa nature douce sous cette apparence.

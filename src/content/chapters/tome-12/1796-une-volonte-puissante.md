@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1796 - Powerful Will!"
 slug: une-volonte-puissante
 ---
-Chapitre 1796 - Une Volonté Puissante!
-
 Wang Lin évoluait dans le vide imprégné des lois du Continent Astral Immortel depuis six ans désormais. Sur le Continent Astral Immortel, tout était paisible et la guerre n'existait pas; les frictions entre les Races Anciennes et Célestes étaient minimes.
 
 Au cours de cette année, de nombreux génies brillèrent à travers les 72 continents célestes. L’un d’eux se nommait Yun Yifeng!

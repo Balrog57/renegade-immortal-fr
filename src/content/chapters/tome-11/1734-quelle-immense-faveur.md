@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1734 - Such a Great Favor!"
 slug: quelle-immense-faveur
 ---
-Chapitre 1734 - Quelle immense faveur!
-
 Alors que le Général de l'Eau ricanait avec excitation, au dixième étage, Na Duo, qui avait projeté l'élément métal, souriait également.
 
 Il observait toujours ce combat grâce à son Sens Divin, et son sourire s'élargissait. Il ne pensait pas que Wang Lin puisse en sortir, car l'essence d'eau à l'intérieur de la sphère était si dense que même lui la trouvait terrifiante.

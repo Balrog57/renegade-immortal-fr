@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1689 - The Power of Two Arrows!!"
 slug: la-puissance-de-deux-fleches
 ---
-Chapitre 1689 - La puissance de deux flèches!!
-
 Sa réponse ne vint pas sous forme de paroles, mais par les actions de Wang Lin!
 
 Les yeux de Wang Lin étaient empreints d'une lueur dorée alors qu'il levait la main gauche. L'arc Li Guang apparut dans un grondement et il s'en saisit. Sa main droite agrippa la corde de l'arc et, soudainement, tira vers l'arrière.

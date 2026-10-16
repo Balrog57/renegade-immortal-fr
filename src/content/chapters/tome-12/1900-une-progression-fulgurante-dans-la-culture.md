@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1900 - A Surge in Cultivation!!"
 slug: une-progression-fulgurante-dans-la-culture
 ---
-Chapitre 1900 - Une progression fulgurante dans la culture!
-
 Il s'assit et les quatre corps véritables d'essence montèrent la garde autour de lui. Grâce à ces quatre corps véritables, Wang Lin pouvait augmenter calmement son niveau de culture à l'intérieur du silencieux temple du scorpion!
 
 Il avait atteint le sommet du Vide Spirituel avec huit essences, et l'une d'entre elles avait même formé un corps véritable d'essence! Aujourd'hui, tout était différent. Wang Lin possédait trois corps véritables d'essence et venait également d'obtenir sa neuvième essence!

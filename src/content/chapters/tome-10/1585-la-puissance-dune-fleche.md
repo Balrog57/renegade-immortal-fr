@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1585 - The Might of an Arrow!"
 slug: la-puissance-dune-fleche
 ---
-Chapitre 1585 - La Puissance d'une Flèche!
-
 Le regard de Wang Lin était aussi froid que la glace alors qu'il observait les quatre individus battre en retraite rapidement, parmi lesquels se trouvait l'homme en blanc, cet être extrêmement arrogant qui avait gelé l'ombrelle antique. Leurs expressions changèrent radicalement tandis qu'ils tentaient désespérément de s'échapper.
 
 Tous étaient des cultivateurs puissants dont les niveaux de culture surpassaient largement ceux de Wang Lin. Cependant, seules leurs projections étaient présentes ici, ce qui limitait leur niveau de culture au stade intermédiaire du Vide Spirituel, un niveau qui ne serait pas détecté par les cultivateurs du Royaume Intérieur.

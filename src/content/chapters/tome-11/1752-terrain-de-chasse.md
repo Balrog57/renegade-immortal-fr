@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1752 - Hunting Ground!"
 slug: terrain-de-chasse
 ---
-Chapitre 1752 - Terrain de chasse!
-
 Au moment où la troisième âme apparut, tous les regards, à l'exception de ceux du Maître du Dao Rêve Bleu et de la troisième concubine, se fixèrent sur la main droite de Wang Lin. En particulier, les yeux du Taoïste aux Sept Couleurs, du Vieux Fantôme Zhan et des quatre généraux étaient empreints d'une cupidité et d'un désir, qu'ils soient manifestes ou dissimulés.
 
 « Ceci est une chasse! Vous pouvez être le chasseur, ou je peux l'être... Vous pourriez me tuer pour obtenir la troisième âme, mais quiconque s'aventure ici doit être prêt à être tué par moi...

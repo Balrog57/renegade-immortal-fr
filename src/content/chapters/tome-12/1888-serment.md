@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1888 - Oath!"
 slug: serment
 ---
-Chapitre 1888 - Serment!
-
 La terrifiante force destructrice fut totalement contenue par l'ombre de son Dao Antique, son puissant corps physique et la mystérieuse armure élémentaire de terre à forme humaine.
 
 Malgré cela, Wang Lin sentit son âme originelle trembler; repoussé de dizaines de milliers de pieds, du sang s’écoula au coin de sa bouche. Une fissure de la taille d'une paume apparut sur le torse de l'armure de terre, mais celle-ci ne se brisa pas.
@@ -22,19 +20,19 @@ Un grondement tonitruant retentit alors que l'ombre de l'épée tremblait puis s
 
 L'énergie de l'épée s'engouffra dans le corps de Wang Lin et s'apprêtait à déclencher une attaque dévastatrice lorsqu'il la réprima par la force. Il chargea alors vers le jeune homme posté au sommet de la montagne.
 
-Le jeune homme affichait une expression glaciale en fixant Wang Lin. C'était Nuage du Vide!
+Le jeune homme affichait une expression glaciale en fixant Wang Lin. C'était Yun Kong!
 
-Alors que Wang Lin approchait, Nuage du Vide leva son épée et un second assaut surgit. Une ombre d'épée monstrueuse s'abattit sur Wang Lin!
+Alors que Wang Lin approchait, Yun Kong leva son épée et un second assaut surgit. Une ombre d'épée monstrueuse s'abattit sur Wang Lin!
 
 Ce coup était 30 % plus puissant que le précédent. Wang Lin laissa échapper un rugissement et projeta un coup de poing de sa main droite.
 
 Des fracas de tonnerre résonnèrent et la seconde ombre d'épée s'effondra. Le bras droit de l'armure élémentaire de terre de Wang Lin explosa.
 
-Mais sitôt le second assaut dissipé, Nuage du Vide libéra un troisième puis un quatrième coup!
+Mais sitôt le second assaut dissipé, Yun Kong libéra un troisième puis un quatrième coup!
 
-Deux ondes d'énergie d'épée monstrueuses foncèrent sur Wang Lin. Dans un vacarme assourdissant, il continua sa charge. À environ mille pieds de Nuage du Vide, son visage était empreint d'une intention meurtrière.
+Deux ondes d'énergie d'épée monstrueuses foncèrent sur Wang Lin. Dans un vacarme assourdissant, il continua sa charge. À environ mille pieds de Yun Kong, son visage était empreint d'une intention meurtrière.
 
-Le visage de Nuage du Vide pâlit légèrement alors qu'il fixait Wang Lin. Lorsque ce dernier se rapprocha, il mordit le bout de sa langue et cracha du sang. Ce sang, doré, se transforma en ombres d'épées qui jaillirent vers Wang Lin.
+Le visage de Yun Kong pâlit légèrement alors qu'il fixait Wang Lin. Lorsque ce dernier se rapprocha, il mordit le bout de sa langue et cracha du sang. Ce sang, doré, se transforma en ombres d'épées qui jaillirent vers Wang Lin.
 
 Immédiatement après, il leva la main droite et une épée antique imprégnée d'une aura royale apparut. Il s'en saisit et bondit dans les airs. Après les neuf ombres d'épées, il libéra l'assaut final!
 
@@ -48,37 +46,37 @@ Son bras gauche forma un sceau et il décocha neuf coups de poing contre les neu
 
 « Voyons si ton épée est plus tranchante ou si mon poing est plus dur! »
 
-Un grondement tonitruant déchira les montagnes, créant une tempête qui balaya la région. Les neuf ombres d'épées s'effondrèrent, tout comme l'armure du bras gauche de Wang Lin. Cependant, il parvint à progresser de mille pieds et se retrouva à moins de deux cents pieds de Nuage du Vide, qui s'apprêtait à porter un ultime coup!
+Un grondement tonitruant déchira les montagnes, créant une tempête qui balaya la région. Les neuf ombres d'épées s'effondrèrent, tout comme l'armure du bras gauche de Wang Lin. Cependant, il parvint à progresser de mille pieds et se retrouva à moins de deux cents pieds de Yun Kong, qui s'apprêtait à porter un ultime coup!
 
 « Un trésor condensé d'un sortilège par un Grand Empereur... j'en possède un aussi! » Wang Lin n'utilisa pas *Nuit Brisée*. Même avec son niveau de culture augmenté par l'armure d'âme, il ne pouvait l'utiliser deux fois de suite.
 
-Il devait le garder pour l'instant critique. Le combat contre Nuage du Vide semblait difficile, mais pas assez pour justifier l'usage de *Nuit Brisée*!
+Il devait le garder pour l'instant critique. Le combat contre Yun Kong semblait difficile, mais pas assez pour justifier l'usage de *Nuit Brisée*!
 
-Il avait percé à jour les intentions de Nuage du Vide et des deux Messagers du Diable Vert. Cette bataille n'avait pour seul but que de le retarder.
+Il avait percé à jour les intentions de Yun Kong et des deux Messagers du Diable Vert. Cette bataille n'avait pour seul but que de le retarder.
 
 Au moment où les mots de Wang Lin résonnèrent, sa main droite plongea dans le vide et un sceau doré apparut!
 
-Une fois apparu, le sceau percuta l'épée antique. Un fracas tonitruant retentit et Nuage du Vide cracha du sang. Il paraissait désormais affaibli. L'épée dans sa main vola en éclats et il fut projeté au sol.
+Une fois apparu, le sceau percuta l'épée antique. Un fracas tonitruant retentit et Yun Kong cracha du sang. Il paraissait désormais affaibli. L'épée dans sa main vola en éclats et il fut projeté au sol.
 
 Une profonde fissure apparut sur le sceau doré de Wang Lin, mais il ne se brisa pas. Il devint simplement terne, et Wang Lin le rangea. Lorsque deux trésors créés par des Grands Empereurs entrent en collision, la qualité des objets ou des sorts importe peu; l'essentiel réside dans la quantité de puissance de foi utilisée pour les façonner.
 
-Prendre vie à partir du néant était déjà un prodige en soi. Il était évident que la puissance de foi de l'épée de Nuage du Vide était bien inférieure à celle du sceau doré de Wang Lin!
+Prendre vie à partir du néant était déjà un prodige en soi. Il était évident que la puissance de foi de l'épée de Yun Kong était bien inférieure à celle du sceau doré de Wang Lin!
 
-Après avoir rangé son sceau, Wang Lin se tint au sommet de la montagne et fixa froidement Nuage du Vide qui venait de retomber non loin de là.
+Après avoir rangé son sceau, Wang Lin se tint au sommet de la montagne et fixa froidement Yun Kong qui venait de retomber non loin de là.
 
-Le sang continuait de couler de la bouche de Nuage du Vide. Il regarda Wang Lin, l'air vaincu.
+Le sang continuait de couler de la bouche de Yun Kong. Il regarda Wang Lin, l'air vaincu.
 
 « J'ai perdu... » Il ne mentionna ni le fait que Wang Lin portait l'armure d'âme du Taureau Céleste, ni l'existence du trésor de Grand Empereur. Une défaite était une défaite!
 
-« Mais tu as aussi perdu... » Nuage du Vide lutta pour se redresser et regarda Wang Lin avec une expression complexe.
+« Mais tu as aussi perdu... » Yun Kong lutta pour se redresser et regarda Wang Lin avec une expression complexe.
 
 « Ton armure d'âme est presque épuisée. Leurs autodestructions et mes efforts n'avaient pour but que de te retarder ici un instant... Nous n'avions pas prévu que tu parviendrais réellement à t'échapper par là... »
 
-Tandis que Nuage du Vide parlait, Wang Lin chargea vers l'autre versant de la montagne. Il fit fi de ses paroles et, en s'élançant, il agita la main droite. Un rayon de lumière sanguine transperça les sourcils du gravement blessé Nuage du Vide.
+Tandis que Yun Kong parlait, Wang Lin chargea vers l'autre versant de la montagne. Il fit fi de ses paroles et, en s'élançant, il agita la main droite. Un rayon de lumière sanguine transperça les sourcils du gravement blessé Yun Kong.
 
-Il n'y eut ni cri déchirant, ni résistance. L'épée de sang traversa le crâne de Nuage du Vide avant de revenir vers Wang Lin.
+Il n'y eut ni cri déchirant, ni résistance. L'épée de sang traversa le crâne de Yun Kong avant de revenir vers Wang Lin.
 
-Quant au cadavre de Nuage du Vide, Wang Lin n'eut pas le temps de vérifier s'il s'agissait du corps original ou d'un avatar. Il sentit une crise grandissante monter en lui, un sentiment similaire à celui qu'il avait éprouvé lors de sa première rencontre avec le Taoïste Water.
+Quant au cadavre de Yun Kong, Wang Lin n'eut pas le temps de vérifier s'il s'agissait du corps original ou d'un avatar. Il sentit une crise grandissante monter en lui, un sentiment similaire à celui qu'il avait éprouvé lors de sa première rencontre avec le Taoïste Water.
 
 Depuis la chaîne de montagnes infinie, Wang Lin contemplait un désert sans fin. C'était le paysage le plus courant du continent Terre-Meng; près de 70 % de ce territoire en était ainsi constitué.
 

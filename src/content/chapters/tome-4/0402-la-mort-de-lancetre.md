@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: "Chapter 402 - The ancestor dies!"
 slug: la-mort-de-lancetre
 ---
-Chapitre 402 - La mort de l'ancêtre!
-
 L'ancêtre du Clan des Démons Géants laissa échapper un sourire amer. Comment pouvait-il résister à l'étendard des milliards d'âmes que même les cultivateurs Ascendants redoutaient? Bien qu'il possédât la hache de l'ancêtre fondateur, son niveau de culture actuel ne lui permettait pas d'en déchaîner toute la puissance.
 
 Ses yeux s'illuminèrent; dans un rugissement, il projeta la hache vers Wang Lin.

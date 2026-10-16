@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1267 - Youre Liu Jinbiao
 slug: vous-etes-liu-jinbiao
 ---
-Chapitre 1267 - Vous êtes Liu Jinbiao?
-
 Alors que Wang Lin calculait l'avenir à l'aide du sort des Défieurs, les disciples de la Secte de l'Origine avaient déjà fini de tout emballer. Ils attendaient Wang Lin sur la place principale.
 
 À l'origine, ils discutaient entre eux. Leurs paroles étaient empreintes de confusion et d'excitation; ils savaient déjà que la Secte de l'Origine ne serait pas dissous, mais qu'il allait être élevé au rang de secte de niveau 7.

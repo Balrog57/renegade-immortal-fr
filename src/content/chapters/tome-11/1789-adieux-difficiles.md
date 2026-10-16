@@ -100,7 +100,7 @@ Le temps s'écoulait. Il ne restait plus que trois jours sur les quinze accordé
 
 Tout le monde n'était pas prêt à affronter la réincarnation et l'inconnu du monde extérieur; pour beaucoup, c'était un saut vers un danger insondable.
 
-Maître Hong Shan choisit de se réincarner, tandis que Maître Nuage du Sud hésita longuement avant de décider de rester.
+Maître Hong Shan choisit de se réincarner, tandis que Maître Nan Yunzi hésita longuement avant de décider de rester.
 
 D'autres connaissances, comme Zhan Konglie ou Maître Yan Leizi, choisirent également de rester, refusant de quitter les lieux.
 

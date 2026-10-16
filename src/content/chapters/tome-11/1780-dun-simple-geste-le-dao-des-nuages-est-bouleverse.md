@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1780 - With the Flip of a Hand the Cloud Dao is Turned Upside Down!"
 slug: dun-simple-geste-le-dao-des-nuages-est-bouleverse
 ---
-Chapitre 1780 - D'un simple geste, le Dao des Nuages est bouleversé!
-
 La pluie tombait avec intensité et les voix s'élevaient de plus en plus fort. Pourtant, les neuf bâtons d'encens continuaient de brûler sans montrer le moindre signe d'extinction. La fumée continuait de monter et, quelle que fût la force de l'averse, celle-ci ne parvenait pas à la dissiper.
 
 La fumée se mêlant à la pluie, l'image ainsi créée était d'une beauté saisissante, tel un rêve éthéré.

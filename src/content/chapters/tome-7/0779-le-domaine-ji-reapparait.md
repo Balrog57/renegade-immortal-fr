@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 779 - Ji Realm Reappears!"
 slug: le-domaine-ji-reapparait
 ---
-Chapitre 779 - Le Royaume Ji réapparaît!
-
 Wang Lin s'arrêta. Il fixa silencieusement l'œil qui était apparu au centre du vortex.
 
 « Laissez votre ami lever cette restriction céleste, et je vous enseignerai un sortilège céleste! »

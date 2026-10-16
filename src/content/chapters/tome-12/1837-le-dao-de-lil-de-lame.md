@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1837 - Soul Eye Dao!"
 slug: le-dao-de-lil-de-lame
 ---
-Chapitre 1837 - Le Dao de l'Œil de l'Âme!
-
 Au huitième étage du Pavillon des Écritures Spirituelles, l'aura choquante qui émanait du corps de Wang Lin se dissipa lentement jusqu'à disparaître totalement, et il retourna vers son avatar dans le vide.
 
 Wang Lin ne voulait pas puiser trop de puissance de son avatar. Il n'en utiliserait que la quantité juste pour ne rien gaspiller. Il n'y avait aucun avantage à en abuser, et cela pourrait provoquer la dessiccation de l'avatar.

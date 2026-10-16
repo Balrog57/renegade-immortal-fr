@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1919 - Wearing the Soul Armor!"
 slug: revetir-larmure-de-lame
 ---
-Chapitre 1919 - Revêtir l'Armure de l'Âme!
-
 Au cœur de la tempête, des grondements tonitruants résonnèrent devant Wang Lin, qui retira son poing. Son corps trembla et il recula de trois pas. Le premier pas laissa une empreinte rouge feu.
 
 Le deuxième fut une empreinte verdoyante, couverte de végétation. Le troisième transforma la terre en métal, telle une empreinte métallique.

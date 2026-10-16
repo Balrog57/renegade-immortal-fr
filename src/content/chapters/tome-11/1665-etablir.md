@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1665 - Establish!"
 slug: etablir
 ---
-Chapitre 1665 - Établir!
-
 La destruction de la formation ne signifiait pas que tout était terminé. Créer une nouvelle formation appartenant à Wang Lin et au Royaume Intérieur marquait un nouveau départ. C'était la première étape du plan de Wang Lin pour tuer le Souverain Céleste!
 
 La Formation de Scellement du Royaume s'effondra, et l'aura du Système Stellaire Antique s'engouffra, enveloppant le Royaume Intérieur. Cette aura était inconnue, mais en même temps familière.

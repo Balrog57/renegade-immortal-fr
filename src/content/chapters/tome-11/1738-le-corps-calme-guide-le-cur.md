@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1738 - Calm Body Guides the Heart!"
 slug: le-corps-calme-guide-le-cur
 ---
-Chapitre 1738 - Le corps calme guide le cœur!
-
 Le premier souffle du neuvième cycle!
 
 Wang Lin ferma les yeux. Il tenta d'utiliser l'essence vraie et fausse, mais elle n'eut aucun effet, comme si elle s'était volatilisée. Ici, là où tout est vrai ou faux, tout dépendait de son cœur.

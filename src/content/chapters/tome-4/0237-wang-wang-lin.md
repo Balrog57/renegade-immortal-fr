@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: Chapter 237 - Wang Wang Lin
 slug: wang-wang-lin
 ---
-Chapitre 237 - Wang... Wang Lin?
-
 La calèche multicolore était extrêmement voyante, surtout lorsqu'elle captait la lumière du soleil; mais ce qui était encore plus aberrant, c'est que toutes les fleurs ornant la calèche étaient des herbes spirituelles très rares dans le pays de Zhao.
 
 En plus des fleurs, la calèche était parée de multiples points lumineux. Lorsqu'elle se mettait en mouvement, elle ressemblait à un ciel nocturne parsemé d'étoiles. En réalité, l'éclat était tel que la lumière pouvait blesser les yeux de quiconque la regardait trop fixement.

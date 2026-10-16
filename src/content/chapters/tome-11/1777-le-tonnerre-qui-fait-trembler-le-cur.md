@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1777 - Heart-Pounding Thunder!"
 slug: le-tonnerre-qui-fait-trembler-le-cur
 ---
-Chapitre 1777 - Le Tonnerre qui fait trembler le cœur!
-
 L'Âme aux Sept Couleurs du Vieux Fantôme Zhan s'élança. La cape l'enveloppa et percuta les bras d'or et de noir surgissant du ciel et de la terre.
 
 Des grondements tonitruants résonnèrent. Le Vieux Fantôme Zhan était extrêmement puissant; même sans l'Âme aux Sept Couleurs, il était un cultivateur proche du sommet de la Tribulation Arcane, ayant déjà atteint le seuil de la Tribulation du Vide.

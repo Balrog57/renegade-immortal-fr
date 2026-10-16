@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2033 - Death of the Emperor!"
 slug: mort-de-lempereur
 ---
-Chapitre 2033 - Mort de l'Empereur!
-
 Les neuf mélodies apparurent simultanément. C’était un phénomène qui ne relevait que des légendes et des rumeurs, mais à cet instant précis, les neuf mélodies résonnèrent dans le palais du Dao Ancestral!
 
 Les centaines de milliers de membres du clan Ancestral, transportés par l'excitation, s'agenouillèrent devant l'ombre de l'Ancêtre.

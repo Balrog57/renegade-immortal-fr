@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1722 - His Identity!!"
 slug: son-identite
 ---
-Chapitre 1722 - Son identité!!
-
 L'image qui apparut cette fois-ci était une planète de culture. Wang Lin connaissait bien cette planète: c'était la planète Tian Yun!
 
 L'Omniscient se trouvait dans une pièce secrète dissimulée au sein de la Secte Tian Yun. Devant lui siégeaient neuf jeunes gens, tous inconscients.

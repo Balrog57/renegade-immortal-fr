@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1510 - Glory of the Cloud Sea!"
 slug: la-gloire-de-la-mer-des-nuages
 ---
-Chapitre 1510 - La Gloire de la Mer des Nuages!
-
 Sa voix déferla sur la Secte Divin, pénétrant les oreilles des milliers de cultivateurs se trouvant à l'intérieur de la Formation de Destruction des Neuf Cieux.
 
 Ces cultivateurs n'avaient pas encore terminé la mise en place de la formation. Ils s'étaient précipités ici dès réception de l'ordre, mais Wang Lin avait été trop rapide: la formation n'était achevée qu'à 30 %!

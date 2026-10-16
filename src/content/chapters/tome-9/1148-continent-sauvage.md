@@ -58,7 +58,7 @@ D'autres ressemblaient à des dragons, mais ne mesuraient que quelques centaines
 
 Il y avait également des créatures semblables aux Bêtes du Limbes qu'il avait vues, mais beaucoup plus petites, ne dépassant pas quelques milliers de pieds de large. Elles étaient lentes, mais même les bêtes rouges les évitaient.
 
-On trouvait aussi des bêtes noires semblables à des têtards, comme celle que possédait Rudy. Elles se dissimulaient dans la brume, dégageant une pression occulte. Cependant, dès qu'elles percevaient le sens divin de Wang Lin, elles se retiraient promptement.
+On trouvait aussi des bêtes noires semblables à des têtards, comme celle que possédait Lu Di. Elles se dissimulaient dans la brume, dégageant une pression occulte. Cependant, dès qu'elles percevaient le sens divin de Wang Lin, elles se retiraient promptement.
 
 Alors qu'il progressait dans la brume, les yeux de Wang Lin s'illuminèrent et sa main droite plongea dans le vide. Une faille d'espace de stockage s'ouvrit dans un bourdonnement, laissant s'échapper des bêtes moustiques.
 

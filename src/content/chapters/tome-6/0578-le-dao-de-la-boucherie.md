@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 578 - Dao Of Slaughter!"
 slug: le-dao-de-la-boucherie
 ---
-Chapitre 578 - Le Dao de la Boucherie!
-
 Au deuxième étage d'un restaurant situé à 3,3 kilomètres de Wang Lin, de l'autre côté de la rivière, deux hommes étaient assis près de la fenêtre, leurs regards fixés sur lui.
 
 Tous deux portaient des robes noires. L'un était plus âgé, tandis que l'autre était un peu plus jeune.

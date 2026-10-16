@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1765 - Daofei Appears !"
 slug: lapparition-de-daofei
 ---
-Chapitre 1765 - L'Apparition de Daofei!
-
 Au moment où la seconde flèche fut décochée, la lumière dorée dans les yeux de Wang Lin s'effondra comme si elle allait se dissiper. Cependant, à cet instant précis, Wang Lin la força à se reformer et n'en conserva qu'un ultime éclat.
 
 Ce fragment était le dernier vestige du pouvoir de sa lignée céleste.

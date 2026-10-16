@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1415 - Ancient Order Tomb Opens!"
 slug: le-tombeau-de-lordre-ancien-souvre
 ---
-Chapitre 1415 - Le tombeau de l'Ordre Ancien s'ouvre!
-
 Au moment où Wang Lin ouvrit les yeux, le feu aux neuf couleurs dans son œil gauche devint éthéré et tourbillonna rapidement. Cela lui conférait un aspect extrêmement étrange!
 
 Dès qu'il ouvrit les yeux, un Feu Éthéré jaillit de son corps. Ce Feu Éthéré était assourdissant et se propagea dans toutes les directions.

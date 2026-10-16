@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2064 - Taking a Step to Trample the Heavens!"
 slug: faire-un-pas-pour-pietiner-les-cieux
 ---
-Chapitre 2064 - Faire un pas pour piétiner les cieux!
-
 Tous les Grands Empereurs du Continent Astral Immortel furent stupéfaits. Sept rayons de lumière se précipitèrent vers le vaste bassin depuis différentes directions. Les trois rayons provenant du clan Ancestral étaient d'une rapidité extrême.
 
 Du côté du clan Céleste, les quatre autres restèrent silencieux en fonçant vers l'avant. Cependant, malgré leur vitesse, il leur faudrait encore une demi-lune pour atteindre le champ de bataille. Après tout, le Continent Astral Immortel était bien trop vaste, et ils ne possédaient pas les niveaux de culture de Wang Lin ou de Gu Dao.

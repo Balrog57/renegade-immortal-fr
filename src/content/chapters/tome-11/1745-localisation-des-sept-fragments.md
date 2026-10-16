@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1745 - Location of the Seven Fragments!"
 slug: localisation-des-sept-fragments
 ---
-Chapitre 1745 - Localisation des Sept Fragments!
-
 C'était similaire à la manière dont il était entré dans l'illusion du Daoïste aux Sept Couleurs, mais cette fois, Qing Shui servait de guide. Wang Lin utilisait la Voile Fantomatique pour pénétrer dans l'illusion afin de découvrir la vérité sur ce passé antique.
 
 À l'intérieur de cette illusion, le ciel était rouge sang et la terre l'était tout autant, comme si elle avait été trempée dans le sang. L'odeur du sang était si épaisse que, dès l'apparition de Wang Lin, il ressentit une sensation d'étouffement dans sa poitrine. C'était comme si un rocher immense pesait sur son torse, rendant chaque respiration difficile.

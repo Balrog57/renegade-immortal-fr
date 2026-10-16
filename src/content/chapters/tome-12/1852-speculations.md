@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1852 - Speculation!"
 slug: speculations
 ---
-Chapitre 1852 - Spéculations!
-
 Wang Lin était perplexe face à une chose: ce sentiment étrange qu'il avait éprouvé en voyant les grues de papier. Qu'il s'agisse du Continent du Démon Vert ou du Continent du Taureau Céleste, tous appartenaient au Clan Céleste.
 
 Les sectes des deux continents s'étaient peut-être entretuées par le passé, mais l'idée de raffiner un Sceau de Pilule pour percer la barrière d'un autre continent et l'envahir laissait à Wang Lin d'autres réflexions.

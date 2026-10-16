@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1450 - Given the Name Ancient Slave!"
 slug: un-nom-donne-lesclave-ancien
 ---
-Chapitre 1450 - Un nom donné: l'Esclave Ancien!
-
 L'estimé Ling Dong, qui gisait là, ouvrit soudain les yeux, révélant une expression hideuse. Il se redressa pour s'asseoir. Ses yeux sombres fixaient l'horizon et semblaient capables de percer le Fourneau Impérial pour voir Wang Lin en train de procéder au raffinage à l'extérieur. Cependant, il n'était plus qu'une lampe à huile vide.
 
 « Pour que ce vieil homme finisse dans un état aussi lamentable, tu ne peux pas être un inconnu. Qui es-tu? » Une voix rauque s'échappa de la gorge de Ling Dong, trahissant une haine monstrueuse.

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1733 - One Drop of the Universe!"
 slug: une-goutte-de-lunivers
 ---
-Chapitre 1733 - Une goutte de l'univers!
-
 La terreur du Général des Eaux était aussi vaste que les vagues de l'océan. Cette armure lui avait été léguée par ses ancêtres; il l'utilisait depuis si longtemps qu'il avait lentement fusionné sa propre lignée avec elle pour qu'elle ne fasse plus qu'un avec lui.
 
 Sans cette armure, il n'était qu'un cultivateur du quatrième niveau de la Fléau Céleste. Avec elle, il pouvait atteindre le troisième pas de la culture. Cependant, l'armure était extrêmement étrange: une fois revêtue, l'esprit de son porteur se trouvait limité et son corps était manipulé par l'armure elle-même.

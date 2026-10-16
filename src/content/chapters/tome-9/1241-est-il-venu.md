@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1241 - Did He Come
 slug: est-il-venu
 ---
-Chapitre 1241 - Est-il venu?
-
 Les yeux de Feng Hai se rétractèrent de manière imperceptible et il s'élança rapidement. Les six anciens derrière lui le suivirent, le cœur lourd de doutes.
 
 Leur mouvement entraîna celui des membres de la Secte Éternelle qui les suivaient. Le déplacement de plus d'une centaine de personnes attira immédiatement l'attention des cultivateurs sur toute la plateforme!

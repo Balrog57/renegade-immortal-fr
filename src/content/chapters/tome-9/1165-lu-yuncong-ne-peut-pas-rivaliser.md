@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1165 - Lu Yuncong Cant Compare!"
 slug: lu-yuncong-ne-peut-pas-rivaliser
 ---
-Chapitre 1165 - Lu Yuncong ne peut pas rivaliser!
-
 « Pour la grenouille dans un puits, l'ouverture du puits est le ciel. Pour les poissons dans l'eau, l'eau est le ciel... Le puits est la cage de la grenouille, et la surface de l'eau est la limite des poissons. » Lu Yuncong regarda la femme et dit calmement: « Les humains sont comme les grenouilles et les poissons, le ciel est donc notre cage! La grenouille souhaite quitter son puits et les poissons désirent toujours sauter hors de l'eau. Naturellement, les humains veulent aussi briser les cieux pour sortir de leur cage! »
 
 Li Qianmei réfléchit un instant, puis ses yeux s'illuminèrent. Une expression d'admiration se lut dans son regard alors qu'elle rejetait quelques mèches de cheveux derrière son oreille et dit: « La réponse de Frère Lu est très singulière. J'ai interrogé beaucoup de gens en chemin, mais seul Frère Lu a pu dissiper ma confusion. »

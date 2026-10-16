@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1307 - Devour the Body and Soul, Heaven Extinction Spell!"
 slug: devorer-le-corps-et-lame-sort-dextinction-celeste
 ---
-Chapitre 1307 - Dévorer le corps et l'âme, Sort d'Extinction Céleste!
-
 L'infinie divine rétribution commença!
 
 Les Neuf Palais se transformèrent en neuf météores et formèrent un motif complexe. À l'intérieur des Huit Diagrammes, une lueur jaillit tandis qu'ils pivotaient! Au cœur de ces Huit Diagrammes résidaient les Sept Étoiles, libérant une pression terrifiante!

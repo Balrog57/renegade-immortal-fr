@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2056 - Perfection!"
 slug: perfection
 ---
-Chapitre 2056 - Perfection!
-
 Le lien entre maître et disciple était une évidence qui n'avait nul besoin d'être formulée. Bien que Wang Lin et Xuan Luo ne fussent plus maître et disciple, dans le cœur de Wang Lin, Xuan Luo serait à jamais son maître.
 
 Et dans le cœur de Xuan Luo, son unique disciple restait cet enfant qu'il avait ramené du monde des cavernes vers le clan Shi Antique.

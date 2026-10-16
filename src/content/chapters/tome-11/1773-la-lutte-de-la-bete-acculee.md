@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1773 - Struggle of the Trapped Beast!"
 slug: la-lutte-de-la-bete-acculee
 ---
-Chapitre 1773 - La lutte de la bête acculée!
-
 Wang Lin devina vaguement les pensées de Yun Yifeng. Cet homme était très rusé et n'agirait jamais sans raison. Cependant, Wang Lin n'avait pas le temps d'y prêter attention. Il leva la main droite et l'empreinte dorée vint se loger dans sa paume. Une sensation de froid parcourut Wang Lin alors qu'il ressentait un lien avec l'empreinte.
 
 Cet objet venait tout juste d'être manifesté à partir du néant et n'avait aucun propriétaire. La culture de Wang Lin s'y était imprimée, faisant de lui le premier maître de ce trésor.

@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2062 - Battle for Number One of the Immortal Astral Continent!"
 slug: bataille-pour-la-suprematie-du-continent-astral-immortel
 ---
-Chapitre 2062 - Bataille pour la suprématie du Continent Astral Immortel!
-
 Hormis Wang Lin lui-même, nul ne savait combien de ponts il avait franchis. Même le Grand Empereur Gu Dao n'était pas en mesure de le ressentir avec précision.
 
 Il savait seulement qu'après l'entrée de Wang Lin dans les Ponts de l'Écrasement Céleste, celui-ci s'était avancé sur le cinquième pont! Quant à savoir si Wang Lin avait franchi ou non le sixième pont, il l'ignorait, car sa propre limite était le cinquième.

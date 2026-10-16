@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1170 - What is It
 slug: quest-ce-que-cest
 ---
-Chapitre 1170 - Qu'est-ce que c'est?
-
 Wang Lin regarda froidement l'homme en vert. Cet homme se trouvait au milieu du stade de la Scruteur du Nirvana et, bien qu'il fût beau, il dégageait une aura sinistre. Ses deux compagnons derrière lui étaient tous deux des cultivateurs du Purificateur du Nirvana, et ils se tenaient dans une position étrange.
 
 Tandis que l'homme en vert parlait, ils se déplacèrent sur le côté pour encercler Wang Lin.

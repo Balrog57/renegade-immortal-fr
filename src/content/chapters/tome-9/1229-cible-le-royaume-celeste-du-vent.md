@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1229 - Target, Wind Celestial Realm!"
 slug: cible-le-royaume-celeste-du-vent
 ---
-Chapitre 1229 - Cible: le Royaume Céleste du Vent!
-
 Le retour de Wang Lin ne provoqua aucune agitation. La grande compétition se déroulait dans la région de rang 8, personne n'était donc au courant de sa présence. Après tout, il était presque inconnu dans la Mer des Nuages.
 
 Même sans le festival de la région de rang 8, personne n'aurait su que Wang Lin était revenu. Personne ne savait que sa renommée dans la Mer des Nuages était sur le point de commencer.

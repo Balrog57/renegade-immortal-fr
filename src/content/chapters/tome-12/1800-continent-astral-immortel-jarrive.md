@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1800 - Immortal Astral Continent, I’m Coming!"
 slug: continent-astral-immortel-jarrive
 ---
-Chapitre 1800 - Continent Astral Immortel, j'arrive!
-
 Même si cela pouvait paraître absurde, selon les principes du feng shui, celui qui est enterré dans une veine de dragon possède un destin noble. Une fois ce destin scellé, tous ses descendants en bénéficient!
 
 Wang Lin ne croyait pas au feng shui. Il était un puissant cultivateur capable de déplacer montagnes et mers, de transformer la terre et même de créer des étoiles. Pour lui, un élément comme le feng shui pouvait être créé et contrôlé.

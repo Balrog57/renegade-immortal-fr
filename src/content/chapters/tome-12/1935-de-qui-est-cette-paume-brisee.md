@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1935 - Whose broken palm!"
 slug: de-qui-est-cette-paume-brisee
 ---
-Chapitre 1935 - De qui est cette paume brisée!
-
 « Une secte… » Wang Lin sortit de sa culture, le regard empli de souvenirs.
 
 Après un long moment, il dit calmement: « Je viens de la Secte des Sept Dao. »

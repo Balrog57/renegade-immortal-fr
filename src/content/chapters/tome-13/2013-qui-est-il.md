@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: Chapter 2013 - Who is He
 slug: qui-est-il
 ---
-Chapitre 2013 - Qui est-il?
-
 Le ciel était d'un bleu limpide, et en contrebas se dressaient de nombreux pavillons, tels ceux d'une secte. Cependant, le nom de ladite secte restait flou, impossible à déchiffrer. Plus on tentait de l'observer, plus il semblait s'estomper dans le brouillard.
 
 Dans l'un de ces pavillons se trouvait une femme. Elle était si familière, si terriblement familière... Elle mordillait sa lèvre inférieure en contemplant le ciel, comme si elle y cherchait quelque chose...

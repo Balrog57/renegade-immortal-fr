@@ -6,9 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1908 - Missing One!"
 slug: un-de-moins
 ---
-
-Chapitre 1908 - Un de moins!
-
 La même porte et le même bras... Wang Lin les avait vus à plusieurs reprises!
 
 Chaque fois que la Perle Défiant le Ciel atteignait un stade de perfection, cette porte apparaissait. Cependant, chaque fois qu'il tentait d'y pénétrer, il ne voyait rien d'autre que l'immensité de l'espace. Le bras vert dégageait une force puissante qui empêchait quiconque d'entrer.

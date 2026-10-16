@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 623 - Im Begging You Celestial Capture Net...
 slug: je-vous-en-prie-filet-de-capture-celeste
 ---
-Chapitre 623 - Je vous en prie, Filet de Capture Céleste...
-
 « Qilin céleste! » Après que le vieil homme chétif eut vu Wang Lin libérer un qilin, il réalisa soudain que quelque chose ne tournait pas rond. Puis, il croisa le regard du qilin et son cœur se mit à trembler.
 
 Toutes les créatures de nourriture céleste tremblèrent à l'apparition du qilin; c'était comme si elles venaient de rencontrer leur prédateur naturel. Elles poussèrent toutes des cris perçants et, sans la moindre hésitation, firent demi-tour pour s'enfuir.

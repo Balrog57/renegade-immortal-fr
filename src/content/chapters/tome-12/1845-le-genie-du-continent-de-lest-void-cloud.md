@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1845 - The Eastern Continent’s Genius Void Cloud!"
 slug: le-genie-du-continent-de-lest-void-cloud
 ---
-Chapitre 1845 - Le Génie du Continent de l'Est: Nuage du Vide!
-
 La voix apparut soudainement, comme si elle s'était fondue dans la mer pour en émerger. Tandis que les mots résonnaient, la mer environnante se mit à s'agiter.
 
 Wang Lin sortit lentement des flots. Il était d'un calme olympien et sa robe blanche n'était nullement souillée par l'eau. Ses cheveux blancs, retombant sur ses épaules, ne bougeaient pas malgré le tumulte de la mer. Il lança un regard glacial aux deux cultivateurs du Continent du Démon Vert qui se tenaient devant le Tigre Blanc.
@@ -58,13 +56,13 @@ Il essuya le sang au coin de sa bouche et dit: « Un accident est survenu. Il es
 
 La femme à ses côtés fixait toujours la boussole. Ses yeux étaient rivés sur le point blanc représentant Wang Lin.
 
-Après un long moment, une lueur d'intention meurtrière traversa le regard de la femme qui murmura: « Il est à l'intérieur de la formation, il ne peut pas s'échapper! Et j'ai déjà signalé cette affaire à la secte. Les trois Ancêtres ont envoyé le Frère Aîné Nuage du Vide ici... Une fois qu'il sera arrivé, l'armée des trois sectes suivra... Il ne nous reste plus qu'à attendre que le Frère Aîné affine la Mer des Pilules en une demi-pilule céleste et fasse exploser la barrière entourant le Continent du Taureau Céleste! Tout sera alors terminé! »
+Après un long moment, une lueur d'intention meurtrière traversa le regard de la femme qui murmura: « Il est à l'intérieur de la formation, il ne peut pas s'échapper! Et j'ai déjà signalé cette affaire à la secte. Les trois Ancêtres ont envoyé le Frère Aîné Yun Kong ici... Une fois qu'il sera arrivé, l'armée des trois sectes suivra... Il ne nous reste plus qu'à attendre que le Frère Aîné affine la Mer des Pilules en une demi-pilule céleste et fasse exploser la barrière entourant le Continent du Taureau Céleste! Tout sera alors terminé! »
 
-« Le Frère Aîné Nuage du Vide!! » Les yeux du jeune homme s'illuminèrent de respect à l'évocation de ce nom. Nuage du Vide était extrêmement célèbre dans le Continent du Démon Vert et partout sur le Continent de l'Est!
+« Le Frère Aîné Yun Kong!! » Les yeux du jeune homme s'illuminèrent de respect à l'évocation de ce nom. Yun Kong était extrêmement célèbre dans le Continent du Démon Vert et partout sur le Continent de l'Est!
 
-Nuage du Vide, l'un des quatre génies du Continent de l'Est! Il n'appartenait à aucune secte fixe, pourtant les trois grandes sectes du Continent du Démon Vert étaient les siennes. Il pouvait fréquenter n'importe quelle secte pour y apprendre leurs sorts. Il était le Frère Aîné de tous les disciples du Continent du Démon Vert!
+Yun Kong, l'un des quatre génies du Continent de l'Est! Il n'appartenait à aucune secte fixe, pourtant les trois grandes sectes du Continent du Démon Vert étaient les siennes. Il pouvait fréquenter n'importe quelle secte pour y apprendre leurs sorts. Il était le Frère Aîné de tous les disciples du Continent du Démon Vert!
 
-« On dit que le Frère Aîné Nuage du Vide est allé dans le Continent Nord pour rejoindre la secte du Grand Empereur Wu Feng afin d'étudier le Dao. Sa culture est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra! » Le jeune homme au visage de jade était transporté par l'excitation.
+« On dit que le Frère Aîné Yun Kong est allé dans le Continent Nord pour rejoindre la secte du Grand Empereur Wu Feng afin d'étudier le Dao. Sa culture est désormais insondable. Avec lui, Wang Lin ne fera aucun doute qu'il mourra! » Le jeune homme au visage de jade était transporté par l'excitation.
 
 Quant à Wang Lin, le cultivateur nommé Qian n'avait pas du tout été de taille face à Yi Si. La bataille s'acheva dans un cri et le corps de l'homme s'effondra. Yi Si dévora la dépouille, mais l'âme originelle fut préservée sur ordre de Wang Lin.
 

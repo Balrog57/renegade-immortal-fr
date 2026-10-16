@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1451 - Answer!"
 slug: la-reponse
 ---
-Chapitre 1451 - La Réponse!
-
 L'expression de Wang Lin était extrêmement sérieuse. Il resta stupéfait un long moment, le regard encore empreint de choc. Ce qu'il venait de voir était une chose à laquelle il n'osait croire et dont il ne pouvait même pas se fier. Il ne savait plus distinguer le réel du faux. « Le Dao céleste est mort... Le Dao céleste est mort... » Wang Lin avait entendu ces mots plus d'une fois au cours de ses 2 000 ans de culture. Il avait tenté de poursuivre cette piste, mais n'avait trouvé aucune réponse. C'était un chaos total, et personne ne parvenait à trouver de véritables indices. Peut-être le Dao céleste était-il réellement mort... Le visage de Wang Lin demeura pâle alors qu'il scrutait l'intérieur du Four Impérial pour y observer l'esprit du Dao.
 
 L'esprit du Dao, qui se rétablissait rapidement, sembla remarquer le regard de Wang Lin. Il laissa échapper des rugissements et ses yeux trahissaient une hostilité manifeste.

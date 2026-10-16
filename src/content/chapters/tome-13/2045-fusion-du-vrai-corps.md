@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2045 - Fusion of True Body!"
 slug: fusion-du-vrai-corps
 ---
-Chapitre 2045 - Fusion du Vrai Corps!
-
 Une brume apparut dans le ciel et se mit à tourbillonner. Elle avait la forme d'un champignon. Des grondements résonnèrent tandis qu'elle s'étendait, recouvrant la voûte céleste et plongeant la terre dans l'obscurité.
 
 Une pression colossale émana du ciel pour envelopper le sol en contrebas. La terre commença à trembler; si elle avait possédé une âme, elle aurait frémi de terreur face à une telle puissance.

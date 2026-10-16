@@ -6,15 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1517 - Breaking the Formation!"
 slug: briser-la-formation
 ---
-Chapitre 1517 - Briser la Formation!
-
-Maître Éveil-de-l'Est sourit, mais il balaya cette idée d'un revers de cœur. Il contempla l'armée de 90 000 cultivateurs et ressentit une intention meurtrière aussi féroce que démente. Il ne put s'empêcher de laisser poindre une expression cruelle.
+Maître Dong Dizi sourit, mais il balaya cette idée d'un revers de cœur. Il contempla l'armée de 90 000 cultivateurs et ressentit une intention meurtrière aussi féroce que démente. Il ne put s'empêcher de laisser poindre une expression cruelle.
 
 « Nul besoin de pitié. L'intention meurtrière de ces loups est déjà monstrueuse, comment pourrais-je les en empêcher? Quant à ce petit cultivateur, Wang Lin, il n'est au plus qu'au stade de la Tribulation Céleste. Il a simplement eu un peu de chance pour accomplir ce qu'il a fait. Le tuer sera trop facile; nul besoin d'en faire tout un plat!
 
 Le but principal de cette première bataille est de tuer et de piller. Le second est de déployer le réseau de transfert. Enfin, il s'agira d'éliminer ce petit cultivateur, Wang Lin, en chemin! »
 
-Alors qu'il songeait à cela, Maître Éveil-de-l'Est tourna soudainement son regard vers l'horizon. Au même instant, Maître Nan Zhao, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
+Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, Maître Nan Zhao, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
 
 Une pression écrasante se propagea depuis un grondement sourd, étouffant instantanément les rugissements furieux des 90 000 cultivateurs. Ce son assourdissant attira rapidement tous les regards vers la source du fracas.
 

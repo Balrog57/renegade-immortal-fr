@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1962 - Who Is It
 slug: qui-est-ce
 ---
-Chapitre 1962 - Qui est-ce?
-
 À cet instant, Wang Lin s'élançait vers les cieux. Il n’en avait pas envie; il aurait préféré s'arrêter au 13e palais. Cependant, l'apparition de l'Empereur Céleste et ses paroles avaient fait bouillir la rage dans le cœur de Wang Lin.
 
 Cette colère était la preuve de sa spéculation précédente: le voyage vers la cité impériale serait extrêmement dangereux!

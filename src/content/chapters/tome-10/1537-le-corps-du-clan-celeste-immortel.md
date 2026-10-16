@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1537 - Immortal Celestial Clan Body !"
 slug: le-corps-du-clan-celeste-immortel
 ---
-Chapitre 1537 - Le Corps du Clan Céleste Immortel!
-
 Bien que l'essence de tonnerre de Wang Lin ait atteint sa perfection, elle demeurait encore incomplète! Cependant, grâce à la puissance de son nouveau sang, cette imperfection disparut et son tonnerre devint soudainement... un tonnerre céleste! Un véritable tonnerre céleste!
 
 Le feu doré dans son œil gauche n'était qu'à l'état éthéré et était encore loin de devenir un feu du Dao. Pourtant, alors que la puissance de son nouveau sang affluait, le feu évolua soudainement pour devenir un Feu Éthéré surpassant tout autre feu!

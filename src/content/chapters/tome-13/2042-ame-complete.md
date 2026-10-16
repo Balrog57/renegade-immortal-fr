@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2042 - Soul Complete!"
 slug: ame-complete
 ---
-Chapitre 2042 - Âme Complète!
-
 La ville de la Pierre Noire était restée la même qu'au moment de son départ. Elle ne croisa aucun garde sur son chemin, comme si le Seigneur de la Ville avait reçu un ordre.
 
 Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une était une vieille femme aux cheveux blancs et l'autre était une jeune fille.
@@ -92,7 +90,7 @@ Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de 
 
 Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans l'Shi Antique et à son aide pour que le Prince Ji Du devienne empereur.
 
-« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant de Gemini.
+« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant de Gémeaux.
 
 Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression puissante pouvait y dissimuler un être des rouages du monde. Les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
 

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1960 - Are You Not Going to Keep Going
 slug: ne-comptez-vous-pas-continuer
 ---
-Chapitre 1960 - Ne comptez-vous pas continuer?
-
 À cet instant, l'ensemble de l'Épreuve Céleste semblait entrer en ébullition. Tous les Exaltés Célestes présents étaient stupéfaits que Wang Lin ait franchi le 13e palais. Ils pensaient avoir surestimé Wang Lin, mais ils s'étaient trompés.
 
 « Le 13e palais! Quelle puissance de combat possède ce Wang Lin? Se pourrait-il qu'il veuille progresser jusqu'au 19e palais?! »

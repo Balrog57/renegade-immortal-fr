@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1695 - Three Souls, Seven Fragments!"
 slug: trois-ames-sept-fragments
 ---
-Chapitre 1695 - Trois âmes, sept fragments!
-
 « Je n'ai pas été témoin de cette bataille moi-même; tout ce que je sais provient des souvenirs de ma petite sœur. Lian Daofei était extrêmement puissant; il a combattu seul contre les quatre généraux et de nombreux disciples de la Secte des Sept Dao.
 
 « Avec une force écrasante, il les a tous gravement blessés. C'est à ce moment-là que ma petite sœur et plusieurs concubines se sont rebellées pour attaquer aux côtés de Lian Daofei.

@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 645 - Decisive!"
 slug: decisif
 ---
-Chapitre 645 - Décisif!
-
 Le brouillard violet se rétracta frénétiquement, formant une épaisse couche de gaz pourpre à ses lisières. Malgré tous les efforts des disciples de la Secte de l'Épée Da Lou, nul ne parvint à percer cette barrière. Le gaz semblait posséder des propriétés corrosives, ce qui laissait les disciples désabusés et irrités.
 
 L'un d'eux tenta même d'utiliser l'énergie d'épée de Ling Tianhou, mais cela fut vain: le gaz violet l'absorba promptement.

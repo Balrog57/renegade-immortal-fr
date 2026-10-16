@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1535 - Madman!"
 slug: le-fou
 ---
-Chapitre 1535 - Le Fou!
-
 Un ciel étoilé constait ce monde étrange à l'intérieur de la Bête des Limbes, mais il n'y avait aucune vie. Pour être plus précis, très peu de vies. Avant Wang Lin, il n'y avait qu'une seule autre personne!
 
 C'était ce pauvre cultivateur qui avait été effrayé deux fois par la Bête des Limbes et qui pensait que le monde à l'intérieur de la créature était le véritable monde extérieur.

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1998 - Leave Behind Dao Fei!"
 slug: laisse-dao-fei-derriere-toi
 ---
-Chapitre 1998 - Laisse Dao Fei derrière toi!
-
 Le Grand Soleil Suprême était un mélange de noir et de blanc. Il émettait une lumière étrange qui illuminait le monde et enveloppait le vide derrière Wang Lin!
 
 C'était là la puissance la plus absolue de Wang Lin. Dès que le Grand Soleil Suprême apparut, Wang Lin fit un pas en avant et se précipita vers Dao Yi, pétrifié par la surprise!
@@ -32,7 +30,7 @@ De loin, il ne s'agissait plus d'une collision entre un loup blanc et le coup de
 
 Des grondements tonitruants résonnèrent dans toutes les directions. Tandis que le tonnerre éclatait, le soleil blanc de Jiu Di vacilla. Le loup blanc hurla alors que son corps immense s'effondrait sous l'impact; il ne resta que la tête, projetée en arrière.
 
-Le visage de Jiu Di était pâle et ses yeux débordaient de choc. Il subissait les effets de la malédiction ancestrale et devait donc diviser sa puissance pour la contenir; de plus, il venait de combattre Gemini, ce qui le plaçait dans son état le plus vulnérable. Pourtant, il demeurait un Grand Suprême, et même l'un des plus puissants parmi eux!
+Le visage de Jiu Di était pâle et ses yeux débordaient de choc. Il subissait les effets de la malédiction ancestrale et devait donc diviser sa puissance pour la contenir; de plus, il venait de combattre Gémeaux, ce qui le plaçait dans son état le plus vulnérable. Pourtant, il demeurait un Grand Suprême, et même l'un des plus puissants parmi eux!
 
 Et bien que l'adversaire n'ait condensé que le contour d'un Grand Soleil Suprême, ce n'était qu'une esquisse. C'était comme une graine n'ayant pas encore fleuri ni porté de fruit.
 
@@ -98,19 +96,19 @@ Après avoir récupéré l'objet, Wang Lin recula pour se placer près de la tê
 
 « Wang Lin, le clan Dao Wang et moi avons élaboré ce plan, pourtant c'est toi qui en tires le plus grand profit. Ce vieil homme s'en souviendra. Quitte cet endroit, et tu ferais mieux de devenir un Grand Suprême au plus vite. Sinon, une fois que je me serai débarrassé de la malédiction, tu devras me rendre des comptes! » dit Jiu Di en fixant Wang Lin.
 
-« Et toi, Gemini. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte du Yang Pourpre ne s'en sortira pas seule! »
+« Et toi, Gémeaux. Si Dao Yi ne se rétablit pas et que nous entrons en guerre contre le clan Antique, alors tu n'auras qu'à regarder le sang de mon clan Céleste couler. Ta Secte du Yang Pourpre ne s'en sortira pas seule! »
 
 « Ce vieil homme avait initialement un plan parfait. J'allais laisser tous les Grands Suprêmes se partager les reliques de l'Ancêtre Céleste afin que nous devenions plus forts, pour qu'il n'y ait plus jamais d'Empereur Céleste! »
 
 « Mais à cause de toi, tout a changé. Tu devras en assumer les conséquences! » ricana Jiu Di.
 
-Gemini resta silencieuse, mais une lueur de confusion et de trouble passa dans ses yeux.
+Gémeaux resta silencieuse, mais une lueur de confusion et de trouble passa dans ses yeux.
 
-Wang Lin s'excusa intérieurement. Il regarda le Grand Suprême Gemini et prit une décision ferme!
+Wang Lin s'excusa intérieurement. Il regarda le Grand Suprême Gémeaux et prit une décision ferme!
 
-« Je dois énormément au Grand Suprême Gemini... Je ne peux qu'essayer d'empêcher la guerre entre le clan Antique et le clan Céleste, afin qu'elle ne regrette pas sa décision d'aujourd'hui. »
+« Je dois énormément au Grand Suprême Gémeaux... Je ne peux qu'essayer d'empêcher la guerre entre le clan Antique et le clan Céleste, afin qu'elle ne regrette pas sa décision d'aujourd'hui. »
 
-Le Grand Suprême Gemini réfléchit un instant, puis dit froidement: « Puisque j'ai décidé d'agir, nul besoin d'en dire davantage! »
+Le Grand Suprême Gémeaux réfléchit un instant, puis dit froidement: « Puisque j'ai décidé d'agir, nul besoin d'en dire davantage! »
 
 « Bien, bien! » Jiu Di éclata de rire, avant que son regard ne redevienne glacial en fixant Wang Lin.
 
@@ -118,8 +116,8 @@ Le Grand Suprême Gemini réfléchit un instant, puis dit froidement: « Puisque
 
 « Je fais déjà un pas vers toi! Si tu t'obstines à vouloir l'emporter, alors ce vieil homme cessera de contenir la malédiction ancestrale. Je risquerai une guérison difficile pour t'obliger à rester! »
 
-« Gemini, tu peux l'aider à obtenir la tête de l'Ancêtre Céleste, mais maintenant que l'Empereur Céleste est mort et que la tête de l'Ancêtre est brisée, tu devrais savoir quel rôle joue Lian Daofei ici », ajouta lentement Jiu Di.
+« Gémeaux, tu peux l'aider à obtenir la tête de l'Ancêtre Céleste, mais maintenant que l'Empereur Céleste est mort et que la tête de l'Ancêtre est brisée, tu devrais savoir quel rôle joue Lian Daofei ici », ajouta lentement Jiu Di.
 
 L'expression de Wang Lin restait calme, mais ses pupilles se rétractèrent brusquement.
 
-Gemini réfléchit un instant, puis regarda Wang Lin: « Wang Lin... laisse Lian Daofei derrière toi. »
+Gémeaux réfléchit un instant, puis regarda Wang Lin: « Wang Lin... laisse Lian Daofei derrière toi. »

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1928 - Charge through!"
 slug: charge-a-lassaut
 ---
-Chapitre 1928 - Charge à l'assaut!
-
 Neuf planètes semblèrent changer de trajectoire sous l'effet d'une force mystérieuse et foncèrent vers Wang Lin. Ces neuf astres ressemblaient à neuf géants qui se rapprochaient instantanément de lui.
 
 Ce changement soudain contra Wang Lin à quitter sa position actuelle, mais les neuf planètes modifièrent leur course pour converger vers lui.

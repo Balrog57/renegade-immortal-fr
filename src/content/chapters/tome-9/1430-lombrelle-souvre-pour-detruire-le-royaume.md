@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1430 - Umbrella Opens to Destroy the Realm !"
 slug: lombrelle-souvre-pour-detruire-le-royaume
 ---
-Chapitre 1430 - L'Ombrelle s'ouvre pour détruire le royaume!
-
 Profitant de cette opportunité qu'il avait créée en faisant échouer le sort de l'homme tapi dans la flamme aux sept couleurs, Wang Lin n'hésita pas à sortir le trésor que le premier Oiseau Vermillon lui avait confié pour tuer le traître, le troisième Oiseau Vermillon!
 
 Après que Wang Lin eut invoqué l'Oiseau Vermillon, le feu dans le ciel commença à tourbillonner violemment!

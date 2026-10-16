@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1582 - Dark Moon Clear Sky!"
 slug: lune-sombre-ciel-clair
 ---
-Chapitre 1582 - Lune Sombre, Ciel Clair!
-
 « Le quatrième est le foie. Foie, fonds et brise-toi! » L'index de la femme se replia pour toucher sa paume. Ses paroles étaient douces, mais empreintes d'une cruelle intention meurtrière!
 
 Wang Lin recracha plusieurs bouffées de sang et fut projeté en arrière. Les poumons dans sa poitrine se flétrirent et disparurent à l'intérieur de son corps. Privé de ses poumons, il ne pouvait plus respirer. La douleur le fit pousser des gémissements étouffés.

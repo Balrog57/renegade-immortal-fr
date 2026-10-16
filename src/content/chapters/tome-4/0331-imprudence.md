@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: Chapter 331 - Reckless
 slug: imprudence
 ---
-Chapitre 331 - Imprudence?
-
 Au même instant où la voix retentit, d'innombrables âmes errantes noires surgirent comme des démons descendant du ciel et se précipitèrent vers les insectes.
 
 Plusieurs insectes avaient déjà pénétré le corps de Liu Fei. Ses yeux étaient empreints de désespoir lorsqu'une brise glaciale souffla sur lui. Les insectes à l'intérieur de son corps en sortirent et s'enfuirent comme s'ils venaient de rencontrer leur prédateur naturel.

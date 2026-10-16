@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1546 - I Have Returned !"
 slug: je-suis-revenu
 ---
-Chapitre 1546 - Je suis revenu!
-
 Wang Lin se déplaçait seul parmi les étoiles. Son corps était d'une puissance extrême, au point qu'il n'avait même pas besoin d'éviter les failles spatiales; celles-ci s'effondraient souvent lorsqu'elles le touchaient, sans lui causer le moindre dommage.
 
 Une faible lueur dorée émanait de son corps. À mesure qu'il avançait, l'espace lui-même semblait se contracter sous ses pas. Une seule enjambée suffisait à le transporter sur d'innombrables kilomètres.
@@ -56,13 +54,13 @@ Alors que le loup vert se rapprochait, Maître Yan Leizi fit soudainement volte-
 
 Des grondements tonitruants se firent entendre alors que les fragments explosaient, libérant une force destructrice colossale. Le loup vert poussa un cri déchirant et s'effondra. Cependant, le corps de Maître Yan Leizi trembla de la même manière. Son visage pâlit et il tituba.
 
-« Cultivateurs résiduels du Royaume Extérieur, si Maître Hong Shan n'était pas piégé, si Maître Nuage du Sud ne sortait pas de sa culture recluse, si le Seigneur du Royaume Scellé n'était pas porté disparu, comment oseriez-vous être aussi arrogants? »
+« Cultivateurs résiduels du Royaume Extérieur, si Maître Hong Shan n'était pas piégé, si Maître Nan Yunzi ne sortait pas de sa culture recluse, si le Seigneur du Royaume Scellé n'était pas porté disparu, comment oseriez-vous être aussi arrogants? »
 
 La voix de Maître Yan Leizi était empreinte de tristesse et ses yeux brillaient de folie. Il savait que tant qu'il parviendrait à s'échapper, ces deux-là ne le poursuivraient plus. Après tout, une fois hors de cette zone, il n'y aurait plus de failles spatiales pour entraver ses mouvements et il pourrait utiliser la courbure spatiale. S'ils continuaient la poursuite, ils auraient des ennuis.
 
 Toutefois, il était encore à une certaine distance de la limite de la zone. Maître Yan Leizi serra les dents et recula de toutes ses forces. Le cultivateur du Clan de l'Hirondelle de Feu et celui du Clan du Loup Céleste franchirent l'onde de choc de l'effondrement et se rapprochèrent inexorablement.
 
-« Ridicule. Oubliez Maître Hong Shan et Maître Nuage du Sud, mais qu'en est-il du soi-disant Seigneur du Royaume Scellé? Cet homme a simplement eu de la chance et a sacrifié sa vie. Il est manifestement mort, et pourtant vous persistez à dire qu'il est seulement porté disparu! » Une haine profonde brûlait dans les yeux du cultivateur du Clan de l'Hirondelle de Feu. Il laissa échapper un reniflement méprisant et ses mains formèrent un sceau. Un oiseau de feu noir apparut derrière lui en poussant un cri.
+« Ridicule. Oubliez Maître Hong Shan et Maître Nan Yunzi, mais qu'en est-il du soi-disant Seigneur du Royaume Scellé? Cet homme a simplement eu de la chance et a sacrifié sa vie. Il est manifestement mort, et pourtant vous persistez à dire qu'il est seulement porté disparu! » Une haine profonde brûlait dans les yeux du cultivateur du Clan de l'Hirondelle de Feu. Il laissa échapper un reniflement méprisant et ses mains formèrent un sceau. Un oiseau de feu noir apparut derrière lui en poussant un cri.
 
 « Le Seigneur du Royaume Scellé est déjà mort, vous le savez mieux que quiconque! S'il était vivant, pourquoi n'est-il pas apparu lors des deuxième et troisième batailles? Pourquoi n'est-il pas intervenu quand Maître Hong Shan était piégé? "Seigneur du Royaume Scellé"... ce n'est qu'un nom usurpé; aux yeux de ce vieil homme, il n'est qu'un enfant! » Les paroles du membre du Clan du Loup Céleste étaient tranchantes. Sa main droite traça un sceau et des poils verts poussèrent soudainement sur tout son bras droit!
 

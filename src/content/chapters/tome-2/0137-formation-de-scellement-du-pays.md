@@ -6,8 +6,6 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 137 - Country Sealing Array.
 slug: formation-de-scellement-du-pays
 ---
-Chapitre 137 - Formation de Scellement du Pays.
-
 Wang Lin afficha une expression joyeuse en acceptant le talisman de jade. Le savant d'âge moyen ne dit plus rien à Wang Lin; il monta dans le char de phénix pour s'entretenir avec Feng Luan.
 
 Wang Lin n'était pas quelqu'un qui ignorait sa place. Dès que le savant d'âge moyen eut pénétré dans le char, il partit pour rejoindre les rangs de l'armée.

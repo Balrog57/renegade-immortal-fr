@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1411 - Fourth Awakening!"
 slug: quatrieme-eveil
 ---
-Chapitre 1411 - Quatrième Éveil!
-
 « L'encens humain s'est éteint. C'est... cela n'est jamais arrivé auparavant. Même pendant mon épreuve et celle de la quatrième génération, l'encens ne s'est jamais éteint! L'encens s'est réellement éteint! » L'esprit du vieux Oiseau Vermillon tremblait alors qu'il contemplait le bâton d'encens humain éteint, et une terreur profonde se lisait dans ses yeux.
 
 « L'encens s'est éteint. Combien de temps a-t-il tenu durant l'épreuve? Sept respirations ou... l'infini... »

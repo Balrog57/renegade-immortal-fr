@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1592 - Life is Like a Play, Who Am I
 slug: la-vie-est-comme-une-piece-de-theatre-qui-suis-je
 ---
-Chapitre 1592 - La vie est comme une pièce de théâtre, qui suis-je?
-
 La jeune fille en violet hocha doucement la tête et se leva avec la jeune fille en vert. Au moment de partir, elle se retourna pour regarder Wang Lin, comme si elle voulait graver son apparence dans son cœur.
 
 Alors qu'elle s'apprêtait à s'éloigner, la jeune fille en violet hésita un instant. La jeune fille en vert avait déjà quitté l'embarcation et s'élevait dans les airs grâce à un sort d'attraction.

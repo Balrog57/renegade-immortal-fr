@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1901 - Thunder!"
 slug: le-tonnerre
 ---
-Chapitre 1901 - Le Tonnerre!
-
 Le tonnerre, puissance ultime du monde. Il n'était pas le numéro un, il était l'unique!
 
 Le tonnerre était la puissance des cieux et régnait au-dessus du monde. Lorsqu'il descendait occasionnellement parmi les mortels, ses grondements résonnaient comme la colère céleste!

@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 510 - Collapse! Break Down!"
 slug: effondrement-rupture
 ---
-Chapitre 510 - Effondrement! Rupture!
-
 Les deux anciens de la Secte de l'Épée Da Lou se regardèrent, puis le plus petit d'entre eux tendit soudainement la main. L'homme en blanc aux côtés de Qian Qin poussa un cri et son corps fut projeté dans la vallée par une force invisible.
 
 Au moment même où il basculait dans l'abîme, un son strident capable de percer les cieux résonna au fond de la vallée. En un clin d'œil, une multitude de points rouges jaillirent des feuilles mortes qui recouvraient le sol et commencèrent à s'agglutiner. De loin, ce spectacle était terrifiant.

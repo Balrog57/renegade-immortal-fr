@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1725 - The Qualifications to Vie for Supremacy !"
 slug: les-qualifications-pour-pretendre-a-la-suprematie
 ---
-Chapitre 1725 - Les qualifications pour prétendre à la suprématie!
-
 Le brouillard fut frappé par la lumière bleue et s'effondra instantanément. La bouche illusoire disparut à l'instant même où elle était apparue.
 
 Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière le Maître du Dao Rêve Bleu et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher!

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1290 - One Line!"
 slug: une-seule-ligne
 ---
-Chapitre 1290 - Une seule ligne!
-
 Le vieil homme en noir afficha un sourire sardonique alors qu'il s'avançait pour lancer un sort! Les yeux du maître de la Secte Éternelle étaient également empreints d'une intention meurtrière tandis qu'il convergeait vers sa cible!
 
 Les six cultivateurs du Premier Ciel de la Souffrance lancèrent tous leurs attaques simultanément. Il semblait qu’ils étaient déterminés à tuer Wang Lin!

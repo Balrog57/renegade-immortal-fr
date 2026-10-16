@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1560 - Strong Wine!"
 slug: un-vin-corse
 ---
-Chapitre 1560 - Un vin corsé!
-
 Heureusement, ils étaient tous deux de ce genre de personnes.
 
 La neuvième épine était nichée dans sa colonne vertébrale; elle y était totalement enfouie, sans qu'un seul millimètre ne dépasse. Il n’y avait même pas de blessure apparente, comme si elle se tapissait dans un vide à l’intérieur de son corps.

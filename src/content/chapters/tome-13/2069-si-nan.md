@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2069 Si Nan!"
 slug: si-nan
 ---
-Chapitre 2069: Si Nan!
-
 Wang Lin respectait la décision du fou. Chacun avait ses propres responsabilités, Wang Lin le comprenait parfaitement.
 
 Il n'avait pas le droit de décider de celles du fou. En tant qu'ami, la meilleure chose qu'il pouvait faire était d'éveiller sa mémoire. Quant à ce qu'il devait entreprendre ensuite, il n'était pas nécessaire que Wang Lin intervienne.

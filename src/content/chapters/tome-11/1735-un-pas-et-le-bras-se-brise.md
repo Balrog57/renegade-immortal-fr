@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1735 - One Step the Arm Breaks!"
 slug: un-pas-et-le-bras-se-brise
 ---
-Chapitre 1735 - Un pas, et le bras se brise!
-
 Wang Lin ignora le Général de l'Eau qui reculait, pétrifié d'incrédulité. Il ferma les yeux et ressentit lentement la goutte de l'univers qu'il venait d'obtenir.
 
 Cette huitième essence était l'essence de l'eau, mais elle n'était pas complète au sein de Wang Lin. Tout comme l'essence du feu, elle devait être fusionnée de nombreuses fois pour atteindre sa perfection.

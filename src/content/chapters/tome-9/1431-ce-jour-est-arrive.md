@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1431 - This Day Arrived !"
 slug: ce-jour-est-arrive
 ---
-Chapitre 1431 - Ce jour est arrivé!
-
 La tempête de feu s'immobilisa dans les airs et fusionna avec l'armature de l'ombrelle en os de feu, formant une ombrelle ardente. Lorsque la bouchée de sang de Wang Lin atteignit l'ombrelle, une quantité massive de vitalité s'y engouffra, provoquant un rugissement retentissant.
 
 La terre sacrée du Clan des Oiseaux de Feu, alors en plein effondrement, fut envahie par une chaleur indescriptible. Même l'empreinte de la paume hésita lorsqu'elle fut frappée par cette onde thermique.

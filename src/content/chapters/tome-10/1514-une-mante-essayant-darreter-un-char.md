@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1514 - A Mantis Trying to Stop a Chariot!"
 slug: une-mante-essayant-darreter-un-char
 ---
-Chapitre 1514 - Une mante essayant d'arrêter un char!
-
 Le rugissement de la Bête des Limbes devint plus intense encore, et la terreur dans ses yeux s'accentua. Elle était terrifiée. Durant toute son existence, elle n'avait jamais été ainsi scrutée par autant de personnes qu'elle redoutait. Ces regards la faisaient trembler de peur.
 
 Avec son esprit limité, la Bête des Limbes sentit que quelque chose n'allait pas. C'était comme si ces individus voulaient la transpercer de leurs yeux.

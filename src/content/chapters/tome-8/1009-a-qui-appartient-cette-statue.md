@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1009 - Whose Statue
 slug: a-qui-appartient-cette-statue
 ---
-Chapitre 1009 - À qui appartient cette statue?
-
 Alors que la femme fixait le corps de Qing Shuang, elle trembla de tout son être. Après un long moment, elle ferma les yeux, mais le tressaillement de ses cils ne pouvait dissimuler le choc qui la bouleversait.
 
 Wang Lin avait le cœur au bord des lèvres, observant attentivement l'évolution de l'expression de la femme. Il pariait que celle-ci reconnaîtrait le sort « Arrêt » et qu'elle identifierait Qing Shuang!

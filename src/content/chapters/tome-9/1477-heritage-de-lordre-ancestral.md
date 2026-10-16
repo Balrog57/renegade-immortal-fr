@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1477 - Ancient Order Inheritance!"
 slug: heritage-de-lordre-ancestral
 ---
-Chapitre 1477 - Héritage de l'Ordre Ancestral!
-
 Un coup de poing et un doigt explosèrent lorsque Wang Lin ouvrit les yeux. Le coup « Dieu Tremble » créa d'innombrables ondulations, prenant Wang Lin comme centre. La terre autour de lui trembla et se brisa!
 
 D'innombrables fragments furent projetés dans toutes les directions. Chaque onde contenait des vibrations qui éclataient avec ce coup de poing!

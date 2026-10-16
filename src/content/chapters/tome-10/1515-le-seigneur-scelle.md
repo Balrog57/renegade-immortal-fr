@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1515 - Sealed Lord !!"
 slug: le-seigneur-scelle
 ---
-Chapitre 1515 - Le Seigneur Scellé!!
-
 Quant à la Bête des Limbes, toute sa fourrure soyeuse était hérissée. Elle fixait les cultivateurs environnants et rugissait comme si elle allait se précipiter à tout instant.
 
 Sa vitesse de réaction étant très lente, elle n'avait pas remarqué le départ soudain de Wang Lin. Elle continuait de rugir, affichant une expression féroce, quand elle sembla soudain percevoir un grondement derrière elle.

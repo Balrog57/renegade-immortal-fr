@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1727 - Blocked!"
 slug: bloque
 ---
-Chapitre 1727 - Bloqué!
-
 Après avoir dévoré l'Omniscient, la Bête des Profondeurs était devenue le Dao Céleste. Si elle ne souhaitait pas que d'autres détectent son aura, il serait extrêmement difficile de la trouver.
 
 Si elle se trouvait à l'extérieur du monde caverneux, le Dao Céleste présenterait certaines failles, mais à l'intérieur du monde caverneux, il était absolu!

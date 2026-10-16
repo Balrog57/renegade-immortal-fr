@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1903 - Too Weak!"
 slug: trop-faible
 ---
-Chapitre 1903 - Trop Faible!
-
 La Tribulation Arcane était une métamorphose située entre le Vide Arcane et la Tribulation du Vide. Elle différait de la Tribulation Divine, qui n'utilisait que des formes de tonnerre; elle employait au contraire une méthode spéciale pour provoquer l'effondrement de chaque étape chez un cultivateur.
 
 Si l'on ne parvenait pas à surmonter une Tribulation Arcane, on mourait. De nombreux cultivateurs du Vide Arcane redoutaient ces tribulations. Beaucoup préféraient rester au stade du Vide Arcane plutôt que de faire face à ces terrifiantes épreuves!

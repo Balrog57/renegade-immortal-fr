@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1920 - I Won’t Die, You Won’t die !"
 slug: je-ne-mourrai-pas-tu-ne-mourras-pas
 ---
-Chapitre 1920 - Je ne mourrai pas, tu ne mourras pas!
-
 Après avoir fusionné le Dao avec son corps, un coup de poing ou un coup de pied pouvait contenir une multitude de sorts. C'était la manière la plus puissante pour un Exalté Empyréen de manifester sa puissance. L'ancêtre de la Secte du Dao Démoniaque pouvait fusionner 27 sorts au sein de son poing; une force suffisante pour anéantir n'importe quel cultivateur de rang inférieur à l'Exalté Empyréen.
 
 La clé résidait dans le nombre de sorts pouvant être fusionnés, et non dans la diversité de ces derniers. Certains Exaltés Empyréens ne possédaient peut-être pas des dizaines de sorts différents, mais ils pouvaient en fusionner des dizaines d'un même type pour atteindre une puissance de combat similaire.

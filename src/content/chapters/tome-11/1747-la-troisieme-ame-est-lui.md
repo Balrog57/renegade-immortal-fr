@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1747 - The Third Soul is Him!"
 slug: la-troisieme-ame-est-lui
 ---
-Chapitre 1747 - La Troisième Âme est Lui!
-
 Le pêcheur était un homme d'environ trente ans. Il n'était pas imposant et paraissait plutôt frêle. Il ne ressemblait guère à un pêcheur, mais davantage à un érudit.
 
 Il leva la main pour observer le poisson sur sa ligne. La lumière du soleil scintillait sur l'écaille de l'animal, lui conférant une apparence extraordinaire.

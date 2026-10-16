@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1512 - Golden Bell !"
 slug: la-cloche-doree
 ---
-Chapitre 1512 - La Cloche Dorée!
-
 Wang Lin secoua la tête. Son regard était d'un calme absolu. Le Taoïste Water était resté le même qu'auparavant, toujours au stade initial du Nirvana Vide. Mais son sortilège était encore plus faible qu'auparavant; il était évident qu'il ne s'était pas encore remis de ses blessures.
 
 « Te tuer maintenant ne demande aucun effort! » Wang Lin secoua la tête. À l'instant même où la lance se refermait sur lui, il serra le poing et lança un coup!

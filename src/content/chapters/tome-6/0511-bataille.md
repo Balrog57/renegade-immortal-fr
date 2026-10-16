@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 511 - Battle!"
 slug: bataille
 ---
-Chapitre 511 - Bataille!
-
 Les deux anciens de la Secte de l'Épée Da Lou furent projetés en arrière dans un même élan, manquant de cracher leur sang alors que leurs corps explosaient sous l'impact, laissant derrière eux de profondes empreintes dans le sol.
 
 Chaque pas qu'ils laissaient faisait légèrement trembler la terre.

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1758 - Waiting for the Blade!"
 slug: en-attente-de-la-lame
 ---
-Chapitre 1758 - En attente de la lame!
-
 À cet instant, le général en armure blanche ne pouvait plus reculer. Ce n'était pas une véritable bataille où l'on peut battre en retraite, mais une partie d'échecs où deux armées s'affrontent.
 
 Dans ce combat, si le général reculait, le moral de son armée s'effondrerait. Wang Lin chargeait contre lui avec un élan dévastateur, rendant toute retraite impossible!

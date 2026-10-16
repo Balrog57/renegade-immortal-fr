@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1093 - You Want Wang Lin
 slug: vous-voulez-wang-lin
 ---
-Chapitre 1093 - Vous voulez Wang Lin?
-
 Le vieil homme en robe rouge était l'ancêtre de la famille Zhan de Luotian: Lie Yunzi!
 
 Les yeux de Lie Yunzi s'illuminèrent lorsqu'il les ouvrit. Il lança un regard froid à la belle femme et déclara calmement: « Je suis Lie Yunzi. »

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1674 - Tearing the Heavens!!"
 slug: dechirer-les-cieux
 ---
-Chapitre 1674 - Déchirer les Cieux!!
-
 Les cheveux de l'homme d'âge moyen qui se faisait appeler l'enfant de Ye Mo flottaient dans l'air alors qu'il se tenait là. À chacun de ses mouvements, les trois ombres des anciens clans rugissaient sans relâche et chargeaient Wang Lin.
 
 Derrière ces trois membres des anciens clans se dressait l'ombre du corps gigantesque de Ye Mo qui, à cet instant précis, marchait vers Wang Lin.

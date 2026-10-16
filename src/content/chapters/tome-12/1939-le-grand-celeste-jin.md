@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1939 - Great Celestial Jin!"
 slug: le-grand-celeste-jin
 ---
-Chapitre 1939 - Le Grand Céleste Jin!
-
 Au nord du Continent de l'Est se trouvait un continent nommé le Grand Sage!
 
 Le Continent du Grand Sage était extrêmement reculé et plus désolé encore que le Continent du Taureau Céleste, mais cela n'était vrai que pour les cultivateurs. La terre y était fertile et la végétation y poussait en abondance; les mortels du Continent du Grand Sage y menaient une vie paisible.

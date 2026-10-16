@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2048 - The Plead of the 108 souls !"
 slug: le-suppliant-des-108-ames
 ---
-Chapitre 2048 - Le Suppliant des 108 âmes!
-
 Le premier et le second pont semblaient très proches, mais Wang Lin vola pendant plusieurs jours avant d'atteindre le second pont.
 
 Ce pont était plusieurs fois plus vaste que le premier. Wang Lin n'hésita pas à poser le pied sur le second pont. À l'instant même où il toucha le sol, son corps spirituel trembla comme s'il allait s'effondrer. C'était comme si sa culture n'était pas digne de fouler ce pont.
@@ -44,7 +42,7 @@ Dao Yi contempla l'arbre géant et eut un haut-le-cœur. « Bon sang, cet arbre 
 
 Simultanément, dans le Continent Nord, Wu Feng observait le géant de glace avec une expression lugubre et une pointe d'horreur.
 
-Dans la Secte Yang Violet, le Grand Empereur Gemini s'élança, observa la terre et fronça les sourcils.
+Dans la Secte Yang Violet, le Grand Empereur Gémeaux s'élança, observa la terre et fronça les sourcils.
 
 Dans la Cité Ancestrale, le Grand Empereur Jiu Di se tenait au sommet du Mont Empereur. Il regarda la terre et son expression resta impassible, mais la contraction de ses pupilles trahissait son choc.
 
@@ -66,7 +64,7 @@ Cette fois, le corps de Hai Zi trembla et elle chancela, le visage livide. Ses y
 
 « Le Piétinement du Ciel... Ceci... Ceci... » Le corps de Jiu Di trembla et sa culture sembla perdre tout contrôle. Il passa d'un vieil homme à un homme d'âge mûr, avant de redevenir un vieillard. Cela suffisait à démontrer le choc qui l'habitait.
 
-Wang Lin observait le clan céleste, les 72 âmes pétrifiées par la peur mais criant leurs suppliques; il vit aussi le choc de Dao Yi, l'horreur de Wu Feng, la confusion de Gemini et le regard de Jiu Di.
+Wang Lin observait le clan céleste, les 72 âmes pétrifiées par la peur mais criant leurs suppliques; il vit aussi le choc de Dao Yi, l'horreur de Wu Feng, la confusion de Gémeaux et le regard de Jiu Di.
 
 Il les voyait, mais ils ne pouvaient ressentir son existence. Lorsque Wang Lin scruta la Cité Ancestrale, son regard balaya Jiu Di. Ce fut à cet instant que Jiu Di leva les yeux et sentit ses cheveux se hérisser.
 

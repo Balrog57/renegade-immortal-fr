@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1526 - Nan Zhao Dies!"
 slug: nan-zhao-est-mort
 ---
-Chapitre 1526 - Nan Zhao est mort!
-
 C'était là la véritable gloire du Seigneur du Royaume Scellé!
 
 Une sensation de supériorité, une aura qui faisait passer tous ceux qui se trouvaient devant lui pour de simples fourmis!
@@ -30,7 +28,7 @@ Le rire tonitruant de Maître Hong Shan résonna soudainement!
 
 « Le Seigneur du Royaume Scellé a tué un cultivateur du troisième niveau du Royaume Extérieur, nous n'avons pas perdu cette bataille! » Tandis que son rire résonnait, il agita ses manches. Une lumière rouge jaillit de son corps et il chargea vers l'individu au regard froid, piégeant les autres cultivateurs de troisième niveau avec lui!
 
-Maître Nuage du Sud éclata également de rire tout en bloquant la concubine impériale céleste pour l'affronter!
+Maître Nan Yunzi éclata également de rire tout en bloquant la concubine impériale céleste pour l'affronter!
 
 Personne ne semblait pouvoir arrêter Wang Lin alors qu'il chargeait avec la Hache Brise-Ciel. Les cultivateurs du Royaume Extérieur continuaient de reculer, mais ils n'étaient pas aussi rapides que lui. De loin, il ressemblait à une lame perçant l'abdomen de l'armée envahissante, et il continuait sa progression fulgurante!
 

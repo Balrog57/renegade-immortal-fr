@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1527 - Allheaven and Summoned River Move!"
 slug: le-mouvement-dallheaven-et-de-la-riviere-invoquee
 ---
-Chapitre 1527 - Le mouvement de Luotian et de la Rivière Invoquée!
-
 Un éclair de lumière de hache fendit l'air, et l'espace lui-même sembla prêt à se déchirer. Le grondement assourdissant dégageait une pression qui ébranla le cœur des cultivateurs envahisseurs.
 
 C'était comme si tout dans le monde avait disparu, et que cette hache géante était la seule chose subsistant!

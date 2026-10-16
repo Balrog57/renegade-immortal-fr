@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1818 - Overestimating your own capabilities
 slug: surestimer-ses-propres-capacites
 ---
-Chapitre 1818 - Surestimer ses propres capacités?
-
 « Cela... Je ne suis allé que sur le Continent des Vagues de Nuages, le Continent Kang Yang et le Continent de l'Âme Paisible. Ce n'est qu'environ la moitié du continent oriental tout entier. Au sein de ces trois continents, il n'existe aucune veine de tonnerre.
 
 « Je ne connais vraiment pas la réponse à votre question... Mais je peux vous aider à vous renseigner. Peut-être que quelqu'un au sein du Grand Secte de l'Âme le sait. Après tout, le Grand Secte de l'Âme est l'une des neuf sectes et treize factions. Leurs disciples partent pour se tester et rapportent souvent leurs découvertes à la secte. Cela fait partie de leur entraînement. » Du Qing secoua la tête. Le Continent Astral Immortel était infini, et peu de personnes avaient parcouru l'intégralité du continent oriental. Du Qing n'avait visité que quatre continents au cours de sa vie, ce qui était déjà extraordinaire.

@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1586 - Celestial and Ancient Separate!"
 slug: separation-entre-le-celeste-et-lantique
 ---
-Chapitre 1586 - Séparation entre le Céleste et l'Antique!
-
 Wang Lin leva la tête et regarda l'homme en robe noire. Comment aurait-il pu oublier cette apparence? Cet homme était le Souverain!
 
 Le chef des cinq maîtres du Système Stellaire Antique. Un être d'une ruse infinie qui avait comploté contre le ciel et la terre!

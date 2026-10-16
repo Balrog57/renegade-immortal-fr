@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2007 - Back up!"
 slug: une-issue-de-secours
 ---
-Chapitre 2007 - Une issue de secours!
-
 « Le prince Ji Du est très rusé... L'image sur son jade est presque identique à la mienne, elle permet de me reconnaître au premier coup d'œil. Cela signifie que lorsqu'il m'a vu à Ville de la Pierre Noire, ses soupçons étaient déjà éveillés!
 
 « Mais il les a si bien dissimulés que même moi, je ne l'ai pas remarqué. » Wang Lin prit le jade et fixa Ji Du. Le visage de ce dernier affichait toujours un profond respect, mais il était désormais pâle et couvert de sueur.

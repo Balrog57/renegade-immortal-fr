@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1811 - Scaring Du Qing!"
 slug: effrayer-du-qing
 ---
-Chapitre 1811 - Effrayer Du Qing!
-
 « Il tente actuellement de dévorer le feu terrestre. Ce feu n'est pas ordinaire, il ne pourra donc pas l'absorber si facilement. C'est le moment idéal pour l'éliminer! » Le regard de Du Qing devint résolu. Il s'élança dans les flammes sans la moindre hésitation.
 
 Du Qing aperçut Wang Lin. À l'intérieur des flammes, Wang Lin sentit également la présence de Du Qing à l'extérieur!

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1207 - Thunder Fire
 slug: foudre-feu
 ---
-Chapitre 1207 - Foudre? Feu?
-
 « Les cultivateurs comme nous ne reculent jamais devant un combat! » Les yeux de Wang Lin étaient emplis d'une intention guerrière. Ces trois individus provenaient tous du Royaume Extérieur, et la scène de la statue de pierre avait fait bouillir son sang. À cet instant, il n'y avait plus de karma, seulement une intention meurtrière!
 
 Plus il en apprenait sur le passé, plus cette soif de sang devenait ardente!

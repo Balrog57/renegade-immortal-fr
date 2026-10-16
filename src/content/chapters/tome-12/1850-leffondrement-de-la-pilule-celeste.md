@@ -6,31 +6,29 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1850 - Celestial Pill Collapses!"
 slug: leffondrement-de-la-pilule-celeste
 ---
-Chapitre 1850 - L'effondrement de la Pilule Céleste!
+Des grondements tonitruants résonnaient à travers toute la Mer des Pilules. Yun Kong était d'un sérieux imperturbable, ses mains traçant sans relâche divers sceaux. Les 300 000 pieds d'eau de mer se condensaient à nouveau pour atteindre les 100 000 pieds!
 
-Des grondements tonitruants résonnaient à travers toute la Mer des Pilules. Nuage du Vide était d'un sérieux imperturbable, ses mains traçant sans relâche divers sceaux. Les 300 000 pieds d'eau de mer se condensaient à nouveau pour atteindre les 100 000 pieds!
-
-Le visage de Nuage du Vide était pâle. Même pour lui, la charge était immense. Lorsque la mer atteignit les 100 000 pieds, il agita sa main droite et une bouteille de jade apparut.
+Le visage de Yun Kong était pâle. Même pour lui, la charge était immense. Lorsque la mer atteignit les 100 000 pieds, il agita sa main droite et une bouteille de jade apparut.
 
 Il brisa la bouteille, libérant une goutte de liquide doré.
 
-Dès l'apparition de cette goutte, une énergie céleste dense se manifesta. Cette énergie était si compacte qu'elle semblait presque solide. Nuage du Vide prit une profonde inspiration et, d'un geste de la main droite, projeta la goutte vers le vortex marin qui se dressait devant lui.
+Dès l'apparition de cette goutte, une énergie céleste dense se manifesta. Cette énergie était si compacte qu'elle semblait presque solide. Yun Kong prit une profonde inspiration et, d'un geste de la main droite, projeta la goutte vers le vortex marin qui se dressait devant lui.
 
 « La Mer des Pilules a été formée par une Pilule Céleste. Beaucoup le savent. Beaucoup ont tenté de la raffiner pour la restaurer sous sa forme originelle, mais nul n'y est parvenu, faute d'un catalyseur! »
 
-« Et ce catalyseur, c'est cette goutte de liquide doré! » Nuage du Vide esquissa un sourire. Cette substance était d'une valeur inestimable; une relique que le Continent du Démon Vert avait mis des années d'errance à débusquer.
+« Et ce catalyseur, c'est cette goutte de liquide doré! » Yun Kong esquissa un sourire. Cette substance était d'une valeur inestimable; une relique que le Continent du Démon Vert avait mis des années d'errance à débusquer.
 
 Elle appartenait autrefois à la Pilule Céleste qui avait engendré la Mer des Pilules! Sans elle, toute tentative de reformation serait vaine; les 100 000 pieds constitueraient une limite infranchissable.
 
 Nombreux sont ceux qui avaient dû s'arrêter à ce seuil, incapables de condenser davantage l'eau, laquelle finissait par se disperser pour redevenir la Mer des Pilules.
 
-Mais cette fois, Nuage du Vide avait pris sa décision et il était pleinement préparé; il n'admettrait aucune erreur!
+Mais cette fois, Yun Kong avait pris sa décision et il était pleinement préparé; il n'admettrait aucune erreur!
 
-« Je raffinerai personnellement la Pilule Céleste et briserai la barrière entourant le Continent du Taureau Céleste. Ce faisant, mon nom sera gravé dans l'histoire de tout le Continent Astral Immortel! » Nuage du Vide sourit, et sous l'effet de la goutte dorée, l'eau devant lui changea radicalement. La mer sembla bouillir et commença à tourbillonner violemment.
+« Je raffinerai personnellement la Pilule Céleste et briserai la barrière entourant le Continent du Taureau Céleste. Ce faisant, mon nom sera gravé dans l'histoire de tout le Continent Astral Immortel! » Yun Kong sourit, et sous l'effet de la goutte dorée, l'eau devant lui changea radicalement. La mer sembla bouillir et commença à tourbillonner violemment.
 
 Soudain, elle se contracta, franchissant le seuil des 100 000 pieds pour passer à 50 000, puis 30 000, et enfin 10 000 pieds!
 
-« Plus la condensation est étroite, plus la Pilule Céleste sera puissante! Mais 10 000 pieds ne suffisent pas! » Nuage du Vide ferma les yeux et une intention d'épée terrifiante jaillit de son corps, enveloppant le vortex marin. Il intégrait ainsi l'intégralité de son Sens Divin dans le vortex, sans la moindre retenue.
+« Plus la condensation est étroite, plus la Pilule Céleste sera puissante! Mais 10 000 pieds ne suffisent pas! » Yun Kong ferma les yeux et une intention d'épée terrifiante jaillit de son corps, enveloppant le vortex marin. Il intégrait ainsi l'intégralité de son Sens Divin dans le vortex, sans la moindre retenue.
 
 Les grondements tonitruants se poursuivirent. Sous le regard des cultivateurs suspendus dans les airs, les 10 000 pieds d'eau se réduisirent à 8 000, 5 000, puis 3 000 pieds!
 
@@ -38,33 +36,33 @@ Le processus ne s'arrêtait pas; la masse convergeait rapidement vers le seuil d
 
 À mesure qu'elle rétrécissait, le vortex devenait indistinct. En un instant, une demi-Pilule Céleste commença à prendre forme en son sein! Cependant, à ce stade, la moindre perturbation était fatale, car c'était l'étape ultime de la condensation. La pilule était d'une instabilité extrême; si elle était perturbée, elle exploserait prématurément, avec des conséquences inimaginables!
 
-C'est pour cette raison que le Continent du Démon Vert avait vidé toute la Mer des Pilules, afin de garantir qu'aucun incident ne vienne entraver l'œuvre de Nuage du Vide. Pourtant, grâce à la restriction en place, personne n'avait soupçonné l'existence de Wang Lin!
+C'est pour cette raison que le Continent du Démon Vert avait vidé toute la Mer des Pilules, afin de garantir qu'aucun incident ne vienne entraver l'œuvre de Yun Kong. Pourtant, grâce à la restriction en place, personne n'avait soupçonné l'existence de Wang Lin!
 
 Cette restriction appartenait désormais à Wang Lin. S'il choisissait de se dissimuler, nul ne pourrait le détecter au sein de la formation.
 
-Nuage du Vide touchait au but quand, soudain, une aura émana des algues sous ses pieds. Cette aura était celle de Wang Lin qui, dès son apparition, fit un pas en avant.
+Yun Kong touchait au but quand, soudain, une aura émana des algues sous ses pieds. Cette aura était celle de Wang Lin qui, dès son apparition, fit un pas en avant.
 
-Il disparut instantanément pour réapparaître hors du périmètre des 1 000 pieds d'eau que Nuage du Vide s'apprêtait à raffiner!
+Il disparut instantanément pour réapparaître hors du périmètre des 1 000 pieds d'eau que Yun Kong s'apprêtait à raffiner!
 
 Bien que l'apparition de Wang Lin fût fulgurante, d'innombrables Sens Divins se verrouillèrent aussitôt sur lui. Certains cultivateurs dans le ciel le remarquèrent immédiatement; leurs visages se décomposèrent et ils chargèrent vers lui.
 
 Malgré leur vitesse, Wang Lin était plus prompt. Il fusionna avec la restriction et se matérialisa à l'extérieur du vortex de 1 000 pieds en pleine cristallisation. Il leva la main droite, invoqua son épée de sang et frappa d'un tranchant vertical!
 
-Il ne visait pas Nuage du Vide, mais le vortex marin de 1 000 pieds!
+Il ne visait pas Yun Kong, mais le vortex marin de 1 000 pieds!
 
 « Arrête! » Des rugissements de colère éclatèrent depuis les cieux pour tenter de dissuader Wang Lin, mais sa volonté était un rempart que nul ne pouvait ébranler!
 
-Nuage du Vide était totalement absorbé par la mer; diviser son attention serait périlleux. De plus, l'intervention de Wang Lin avait été d'une précision chirurgicale dans son timing!
+Yun Kong était totalement absorbé par la mer; diviser son attention serait périlleux. De plus, l'intervention de Wang Lin avait été d'une précision chirurgicale dans son timing!
 
-Cependant, Nuage du Vide n'était pas devenu l'un des quatre génies par pur hasard. Alors que l'épée de Wang Lin descendait, il ouvrit les yeux et leva le regard. N'ayant pas le temps d'être stupéfait par la vue de Wang Lin, il mordit immédiatement sa langue pour recracher une gorgée de sang. Simultanément, son Sens Divin se retira brusquement de l'eau.
+Cependant, Yun Kong n'était pas devenu l'un des quatre génies par pur hasard. Alors que l'épée de Wang Lin descendait, il ouvrit les yeux et leva le regard. N'ayant pas le temps d'être stupéfait par la vue de Wang Lin, il mordit immédiatement sa langue pour recracher une gorgée de sang. Simultanément, son Sens Divin se retira brusquement de l'eau.
 
 Cette traînée de sang se mua instantanément en une ombre d'épée qui percuta l'épée de sang dans un fracas assourdissant. Le sang jaillit du coin de la bouche de Wang Lin et son épée fut repoussée.
 
-Le visage de Nuage du Vide était livide tandis que l'ombre d'épée formée par le sang explosait.
+Le visage de Yun Kong était livide tandis que l'ombre d'épée formée par le sang explosait.
 
-« C'est toi! » L'expression de Nuage du Vide devint féroce alors qu'il rétractait précipitamment son Sens Divin. Une fois cette tâche accomplie, il pourrait libérer son corps pour combattre Wang Lin. Il lui suffisait de gagner quelques instants pour que les centaines de cultivateurs au-dessus descendent; alors, l'évasion de Wang Lin deviendrait impossible!
+« C'est toi! » L'expression de Yun Kong devint féroce alors qu'il rétractait précipitamment son Sens Divin. Une fois cette tâche accomplie, il pourrait libérer son corps pour combattre Wang Lin. Il lui suffisait de gagner quelques instants pour que les centaines de cultivateurs au-dessus descendent; alors, l'évasion de Wang Lin deviendrait impossible!
 
-Mais Wang Lin avait attendu longtemps et prévoyait toujours plusieurs coups d'avance. Comment aurait-il pu laisser Nuage du Vide s'en sortir? Il avait anticipé toutes les éventualités, y compris le temps nécessaire à l'arrivée des cultivateurs!
+Mais Wang Lin avait attendu longtemps et prévoyait toujours plusieurs coups d'avance. Comment aurait-il pu laisser Yun Kong s'en sortir? Il avait anticipé toutes les éventualités, y compris le temps nécessaire à l'arrivée des cultivateurs!
 
 La restriction était entre les mains de Wang Lin. Sous son contrôle, les assaillants ne pouvaient fusionner avec elle; ils ne pouvaient que foncer vers lui. Pourtant, alors qu'ils approchaient, la restriction changea brusquement de nature: d'une barrière permettant l'entrée, elle devint une barrière n'autorisant que la sortie!
 
@@ -72,15 +70,15 @@ La formation se contracta également, surgissant devant les centaines de cultiva
 
 Pourtant, Wang Lin ne cherchait pas à les piéger; il avait simplement besoin de temps. Le retard causé par la formation lui suffisait!
 
-Au moment où le Sens Divin de Nuage du Vide s'apprêtait à quitter l'eau, l'épée de sang de Wang Lin fut repoussée. Cependant, son véritable corps d'essence de feu apparut, saisit l'épée et frappa de nouveau!
+Au moment où le Sens Divin de Yun Kong s'apprêtait à quitter l'eau, l'épée de sang de Wang Lin fut repoussée. Cependant, son véritable corps d'essence de feu apparut, saisit l'épée et frappa de nouveau!
 
 Une mer de flammes envahit alors la zone. Le timing était parfait: cette attaque suivait immédiatement la première. Si le premier coup avait été détourné, le second constituait la véritable offensive!
 
-Le choc s'approcha. Les yeux de Nuage du Vide étaient injectés de sang; il poussa un rugissement alors que l'attaque tranchait le vortex marin. Sous ce coup, le vortex cessa de tourner.
+Le choc s'approcha. Les yeux de Yun Kong étaient injectés de sang; il poussa un rugissement alors que l'attaque tranchait le vortex marin. Sous ce coup, le vortex cessa de tourner.
 
 Une aura destructrice émana des 1 000 pieds d'eau. Cette puissance semblait capable de dévaster le monde à maintes reprises; elle était assez colossale pour anéantir tout ce qui se trouvait sur son passage!
 
-Nuage du Vide possédait encore une partie de son Sens Divin dans la mer. Lorsque l'eau fut tranchée, l'onde destructrice se propagea et pulvérisa son Sens Divin intérieur, le forçant à cracher du sang. Il battit en retraite sans hésiter. À cet instant, il n'avait plus cure de Wang Lin ni de la mer. Bien qu'il ne fût ici que via son avatar, si celui-ci périssait et que son intention d'épée s'effondrait, son corps originel subirait un choc dont il aurait du mal à se remettre!
+Yun Kong possédait encore une partie de son Sens Divin dans la mer. Lorsque l'eau fut tranchée, l'onde destructrice se propagea et pulvérisa son Sens Divin intérieur, le forçant à cracher du sang. Il battit en retraite sans hésiter. À cet instant, il n'avait plus cure de Wang Lin ni de la mer. Bien qu'il ne fût ici que via son avatar, si celui-ci périssait et que son intention d'épée s'effondrait, son corps originel subirait un choc dont il aurait du mal à se remettre!
 
 Au même moment, les centaines de cultivateurs en descente et l'armée des dizaines de milliers de combattants frémirent. Ils ressentirent une aura de destruction capable d'effacer toute vie, se propageant dans toutes les directions en ignorant la restriction.
 
@@ -90,7 +88,7 @@ Wang Lin se détourna sans hésiter et fit un pas vers le Continent du Taureau C
 
 Mais précisément à cet instant, les 1 000 pieds d'eau libérèrent un grondement tonitruant qui balaya la Mer des Pilules pour atteindre simultanément le Continent du Taureau Céleste et le Continent du Démon Vert. Les innombrables cultivateurs dans les airs crachèrent du sang, les oreilles bourdonnantes.
 
-Nuage du Vide tituba, le regard empreint de désespoir!
+Yun Kong tituba, le regard empreint de désespoir!
 
 « Je ne laisserai pas faire ça! » rugit-il, tandis que l'eau des 1 000 pieds explosait soudainement. Le ciel se distordit, la terre trembla et une force de destruction indescriptible se propagea.
 
@@ -100,7 +98,7 @@ Elle aurait dû exploser à proximité du Continent du Taureau Céleste, brisant
 
 Mais cette fois, l'explosion eut lieu au centre de la Mer des Pilules. Par conséquent, le Continent du Taureau Céleste ne fut pas le seul touché: le Continent du Démon Vert subit également les affres du désastre.
 
-Nuage du Vide était bien trop proche. Malgré sa fuite effrénée, il se trouvait encore dans la zone d'impact de la force destructrice. Bien que son intention d'épée fût puissante, face à une telle dévastation, il s'effondra sans aucune chance de riposte.
+Yun Kong était bien trop proche. Malgré sa fuite effrénée, il se trouvait encore dans la zone d'impact de la force destructrice. Bien que son intention d'épée fût puissante, face à une telle dévastation, il s'effondra sans aucune chance de riposte.
 
 Wang Lin, fusionné avec le monde, s'apprêtait à partir quand l'onde de choc balaya les lieux telle une gueule béante prête à dévorer toute vie. Alors que la destruction approchait, le corps de Wang Lin disparut par anticipation.
 

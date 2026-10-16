@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1518 - Can’t Retreat !!"
 slug: pas-de-retraite-possible
 ---
-Chapitre 1518 - Pas de retraite possible!!
-
 Le lieu de la première bataille contre le Royaume Intérieur était le Système d'Étoiles de la Mer Nuageuse! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
 
 Les tremblements de la Formation de Scellement du Royaume se propageaient dans le Royaume Intérieur. Wang Lin vit clairement que le réseau qui constituait la formation devenait chaotique, comme si une force tentait de la transpercer!

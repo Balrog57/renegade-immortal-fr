@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2050 - Black, White, Gold!"
 slug: noir-blanc-or
 ---
-Chapitre 2050 - Noir, Blanc, Or!
-
 Lorsque Wang Lin ouvrit les yeux dans la chambre secrète, la silhouette enveloppée de brume au sommet de la tour du Mont Gu Dao poussa un soupir.
 
 « Cela fait... 400 ans... »

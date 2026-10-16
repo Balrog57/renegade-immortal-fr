@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 786 - No One Can Leave!"
 slug: personne-ne-peut-partir
 ---
-Chapitre 786 - Personne ne peut partir!
-
 Wang Lin saisit Li Yuan et le tira immédiatement en arrière. Ses yeux brillaient comme des éclairs tandis qu'il fixait la lueur rouge dans le vide.
 
 Le bras sectionné au sein de cette lumière rouge était couvert de sang et ses cinq doigts étaient décharnés. Pourtant, quiconque le regardait ressentait un frisson glacial au plus profond de son cœur. En particulier, ces ongles acérés semblaient capables de déchirer le vide lui-même.

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1744 - Search for the Third Soul!"
 slug: la-recherche-de-la-troisieme-ame
 ---
-Chapitre 1744 - La recherche de la troisième âme!
-
 Regardant la lune dans la nuit, une douce brise soufflait, faisant onduler les cheveux blancs de Wang Lin. Cette brise était très légère, telle la main de Wan Er caressant le visage marqué par les années de Wang Lin.
 
 Un seul regard valait mille ans.

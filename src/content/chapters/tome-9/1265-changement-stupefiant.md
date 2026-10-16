@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1265 - Shocking Change!"
 slug: changement-stupefiant
 ---
-Chapitre 1265 - Changement stupéfiant!
-
 Mu Bingmei partit.
 
 Elle était venue informer Wang Lin de ce qui s'était passé au sein de l'Alliance. Il n'y eut pas d'autres paroles échangées entre eux; c'était comme si lui ne voulait pas en mentionner et elle non plus ne voulait pas en parler.

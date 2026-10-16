@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1346 - Where is Master
 slug: ou-est-le-maitre
 ---
-Chapitre 1346 - Où est le Maître?
-
 À cet instant précis, un bouleversement choquant survint sur l'une des seize planètes du Clan de la Foudre Éparpillée, toutes ceintes par un tonnerre incessant.
 
 Xu Liguo s'était métamorphosé en une brume noire et fuyait à toute allure. Il tenait une femme magnifique dont le visage affichait un rictus méprisant. Son propre visage était empreint de panique et de malice tandis qu'il poussait des rugissements continus.

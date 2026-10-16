@@ -6,8 +6,6 @@ bookTitle: Cultivation Planet Crystal
 en: Will You?
 slug: souhaitez-vous-partager-mon-lit
 ---
-Chapitre 434 - Souhaitez-vous partager mon lit?
-
 L'expression de Wang Lin était mécontente alors qu'il la fixait en silence.
 
 Les yeux de Xu Liguo étaient rivés sur la femme tandis qu'il abandonnait l'épée pour s'élancer vers elle. Il marmonna: « Petite fée, ne sois pas effrayée. Ton grand frère Xu arrive! »

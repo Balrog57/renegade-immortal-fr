@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1988 - Celestial Mountain!"
 slug: mont-celeste
 ---
-Chapitre 1988 - Mont Céleste!
-
 L'expression de Wang Lin était grave alors qu'il chutait depuis la fissure du ciel. Il s'envola immédiatement vers le sommet de l'une des neuf montagnes et leva les yeux.
 
 L'Enseignant Impérial fit de même et, en un éclair, apparut au sommet d'une autre montagne.
@@ -18,7 +16,7 @@ Cependant, au moment précis où la paume atteignait sa cible, la terre de cet e
 
 Un rugissement furieux retentit faiblement dans le ciel, semblant provenir de l'Empereur Céleste. Ce cri parut traverser de multiples couches d'espace avant de devenir progressivement plus net, comme si l'Empereur Céleste se précipitait désespérément vers ce lieu.
 
-Pourtant, peu après, le rugissement s'interrompit, remplacé par les voix cristallines de deux fillettes. Il était évident que l'Empereur Céleste avait été stoppé par le Grand Empereur Gemini!
+Pourtant, peu après, le rugissement s'interrompit, remplacé par les voix cristallines de deux fillettes. Il était évident que l'Empereur Céleste avait été stoppé par le Grand Empereur Gémeaux!
 
 Le visage de l'Enseignant Impérial était livide et il haletait. Semblant avoir atteint la fin de sa vie, il rugit: « Wang Lin, l'Empereur Céleste est temporairement contenu, mais il est impatient de nous rejoindre. Nous n'avons plus beaucoup de temps! Nous devons d'abord unir nos forces pour soumettre Ming Dao! »
 

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1686 - Little Red!"
 slug: petit-rouge
 ---
-Chapitre 1686 - Petit Rouge!
-
 Tout en battant en retraite, le dragon de feu laissa échapper un hurlement et déploya toute sa puissance. Les flammes enveloppèrent son corps tandis qu'il s'éloignait à toute allure.
 
 La manière dont Wang Lin avait rassemblé avec désinvolture les flammes éparpillées était terrifiante; il sentait également, de façon flagrante, l'essence du feu qui résidait dans le corps de Wang Lin.

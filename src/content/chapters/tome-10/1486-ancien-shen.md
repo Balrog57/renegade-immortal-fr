@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1486 - Elder Shen!!"
 slug: ancien-shen
 ---
-Chapitre 1486 - Ancien Shen!!
-
 Le corps émacié était complètement décomposé. Il n'y avait plus de peau, seulement des traces de chair et de sang noirs. Cela ne ressemblait plus à un être humain, mais à un cadavre ayant pourri durant d'innombrables années!
 
 Des vaisseaux sanguins étaient enfouis dans la chair, semblant lutter pour maintenir un semblant de vie. Seul au niveau de la poitrine, là où les vaisseaux se croisaient, on pouvait apercevoir un cœur rouge sombre de la taille d'un poing.

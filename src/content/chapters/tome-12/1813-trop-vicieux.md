@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1813 - Too Vicious !"
 slug: trop-vicieux
 ---
-Chapitre 1813 - Trop Vicieux!
-
 L'effondrement du dragon de feu terrestre se transforma en une gigantesque boule de feu qui enveloppa Wang Lin. À l'extérieur de cette sphère incandescente, les seize dragons de feu rugissaient et fusionnaient avec elle.
 
 On pouvait vaguement distinguer l'ombre d'un Oiseau Vermillon à l'intérieur de la boule de feu!

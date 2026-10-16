@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1508 - Despicable !!"
 slug: meprisable
 ---
-Chapitre 1508 - Méprisable!!
-
 Dans la Secte Divin de la Mer des Nuages, l'Ancien en chef, le Daoïste Shui, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
 
 Quatre montagnes l'entouraient. Si l'on observait la scène depuis les cieux, on aurait l'impression que ces cinq sommets étaient tels cinq doigts perçant le firmament!

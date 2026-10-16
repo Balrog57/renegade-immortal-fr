@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1472 - 7-Star Ancient God !! !"
 slug: le-dieu-ancestral-a-7-etoiles
 ---
-Chapitre 1472 - Le Dieu Ancestral à 7 Étoiles!!!
-
 Tuo Sen ne parvenait à rien distinguer à l'intérieur du palais. Il avait déployé toute son énergie pour forcer le passage, mais dès qu'il eut pénétré dans la salle, sa vision fut obscurcie par la silhouette gigantesque d'un corps de dieu ancestral qui lui fondait dessus.
 
 Tout s'était passé si vite qu'il ne put l'esquiver. Il ne put que lever la main droite pour tenter de résister avec la puissance de son corps de dieu ancestral à 8 étoiles. Cependant, il ne s'attendait pas à ce que cette force soit aussi terrifiante!

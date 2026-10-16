@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1552 - What Did You Say
 slug: quavez-vous-dit
 ---
-Chapitre 1552 - Qu'avez-vous dit?
-
 Dans le système stellaire de Luotian, le Royaume Céleste du Tonnerre, presque anéanti, n'était plus que ruines. Il n'y laissait aucune trace de vie.
 
 Des fissures spatiales brisées apparaissaient sporadiquement, scintillant avant de disparaître, tels des fragments emportés par le vent.

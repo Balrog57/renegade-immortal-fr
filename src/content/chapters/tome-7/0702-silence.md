@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 702 - Shut up
 slug: silence
 ---
-Chapitre 702 - Silence!
-
 Le cœur de Wang Ping se serra davantage. À ses côtés, Qing Yi lui prit la main. Ses yeux étaient empreints de tendresse lorsqu'elle dit: « Ne t'inquiète pas. Peu importe ce que tu es, je resterai à tes côtés. »
 
 Wang Ping réfléchit en silence et hocha la tête.

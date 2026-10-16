@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 2000 - The Plead From Ancient Times!"
 slug: la-supplication-des-temps-anciens
 ---
-Chapitre 2000 - La supplication des temps anciens!
-
 La destruction du palais impérial et la chute de l'Empereur Céleste ne se propagèrent pas en raison de la suppression exercée par Jiu Di. Le palais en ruines retrouva son aspect normal, comme si rien ne s'était produit.
 
 L'Empereur Céleste entra une fois de plus en cultivation isolée.
@@ -20,7 +18,7 @@ N'ayant jamais attaqué depuis qu'il avait été affecté par la malédiction, s
 
 Dao Yi traîna son corps mutilé jusqu'à la Secte Dao Yi, endurant une douleur intense tout en réprimant l'humiliation qui lui serrait le cœur. Il choisit immédiatement d'entrer en cultivation isolée.
 
-Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Gemini l'avait autrefois surnommé le « type au faux masque »!
+Cependant, la malédiction ancestrale avait totalement éclaté en lui et ne pouvait être simplement expulsée. Mais Dao Yi était un Grand Empyréen, et il n'était pas aussi simple qu'il n'y paraissait. Gémeaux l'avait autrefois surnommé le « type au faux masque »!
 
 Afin de dissiper la malédiction sans affecter sa culture future, il rassembla tous les Exaltés Empyréens ainsi que plusieurs Ascendants Empyréens. Il convoqua également de nombreux Exaltés Dorés et força la malédiction à se diviser entre eux tous!
 
@@ -34,7 +32,7 @@ Cette méthode cruelle consistant à partager le poids de la malédiction ancest
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
-Seule la Grand Empyréen Gemini ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'inverser la faiblesse causée par l'incident lors de leur réincarnation.
+Seule la Grand Empyréen Gémeaux ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'inverser la faiblesse causée par l'incident lors de leur réincarnation.
 
 Le clan céleste comptait encore cinq Grands Empyréens, mais le cinquième dormait simplement dans l'espace sous le palais. Il s'était transformé en une montagne dorée pour réprimer les 72 esprits des 72 continents.
 

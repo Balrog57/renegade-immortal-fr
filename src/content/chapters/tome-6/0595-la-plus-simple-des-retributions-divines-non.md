@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 595 - The Simplest Divine Retribution No!"
 slug: la-plus-simple-des-retributions-divines-non
 ---
-Chapitre 595 - La plus simple des rétributions divines? Non!
-
 À l'extérieur de la Terre des Esprits Démoniaques, à l'entrée de la Mer des Esprits Démoniaques Orientale, l'obscurité était totale. Seules quelques lueurs lointaines éclairaient partiellement la zone.
 
 À cet instant précis, un rayon de lumière jaillit du vide à une vitesse qu'aucun cultivateur ni aucun sortilège ne pourrait jamais atteindre!

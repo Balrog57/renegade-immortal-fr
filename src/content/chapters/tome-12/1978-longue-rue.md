@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1978 - Long Street!"
 slug: longue-rue
 ---
-Chapitre 1978 - Longue Rue!
-
 Le vent et la neige gémissaient comme les pleurs d'une femme. La lune était occultée par le vent et les étoiles par la neige. Cette longue et antique rue était plongée dans les ténèbres, et une intention meurtrière terrifiante s'y dissimulait.
 
 À l'instant même où Wang Lin et l'Exalté Émérite Hai Zi s'arrêtèrent, la neige devant lui tomba avec une intensité accrue. Sous l'effet d'une force invisible, 9 999 flocons semblèrent converger devant Wang Lin pour former un motif carré!

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1673 - Ye Mo Had No Child!"
 slug: ye-mo-navait-pas-denfant
 ---
-Chapitre 1673 - Ye Mo n'avait pas d'enfant!
-
 Bang!
 
 Le corps de Wang Lin trembla et l'énergie ainsi que le sang au sein de ses veines s'agitèrent violemment. Du sang jaillit du coin de sa bouche et il fut contraint de reculer de quelques pas.

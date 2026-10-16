@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1701 - Reason !"
 slug: raison
 ---
-Chapitre 1701 - Raison!
-
 Des ondes d'aura, capables de faire trembler toute forme de vie, se propagèrent depuis le Daoïste aux Sept Couleurs. À mesure qu'elle s'étendait, les bêtes féroces reculaient en panique avant même de pouvoir s'approcher; cette aura les terrifiait profondément.
 
 Cette puissance surpassait même celle des cieux; aucune créature n'osait s'en approcher. Elle était assez puissante pour faire trembler le ciel et la terre de peur face à sa majesté.

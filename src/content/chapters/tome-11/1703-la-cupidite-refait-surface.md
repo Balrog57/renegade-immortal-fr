@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1703 - Greed Appears Once More!"
 slug: la-cupidite-refait-surface
 ---
-Chapitre 1703 - La cupidité refait surface!
-
 Le rugissement de Wang Lin se transforma en une tempête qui pénétra la corne formée par ses six essences. Après avoir résonné un instant à l'intérieur, la tempête jaillit par l'autre extrémité de la corne.
 
 Ce rugissement était déjà extrêmement puissant, mais il fut alors amplifié d'une multitude de fois. La première illusion commença à se désintégrer à une vitesse fulgurante.

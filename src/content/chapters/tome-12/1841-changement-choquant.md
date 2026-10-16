@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1841 - Shocking Change!"
 slug: changement-choquant
 ---
-Chapitre 1841 - Changement choquant!
-
 Alors que ces mots résonnaient, la terre trembla et un poing géant de terre apparut, fonçant vers Wang Lin.
 
 L'expression de Wang Lin resta imperturbable, mais une lueur de froideur traversa son regard. Tandis que le poing de terre se rapprochait, il lança un coup de poing en retour.

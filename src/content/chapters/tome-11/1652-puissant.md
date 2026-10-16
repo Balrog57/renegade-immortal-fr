@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1652 - Strong!"
 slug: puissant
 ---
-Chapitre 1652 - Puissant!
-
 Wang Lin se trouvait dans la Mer des Nuages!
 
 Il ne s'était pas rendu directement à Luotian. Il ne pouvait pas renverser cette guerre par sa seule force. Même en utilisant l'Arc Li Guang, il ne pourrait que modifier temporairement le cours de la bataille.

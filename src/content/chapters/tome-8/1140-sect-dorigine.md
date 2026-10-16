@@ -38,7 +38,7 @@ Xu Yun hésita un moment en observant le jade violet dans la main de Lu Yanfei. 
 
 Ce n'est qu'une fois Xu Yun partie que l'intention de tuer envahit le regard de Lu Yanfei. Telle une Asura de jade, elle serra le jade violet; l'humiliation dans ses yeux fut totalement supplantée par une soif de sang.
 
-« Rudy, même si moi, Lu Yanfei, je devais mourir, je ne deviendrai jamais ton partenaire de culture! »
+« Lu Di, même si moi, Lu Yanfei, je devais mourir, je ne deviendrai jamais ton partenaire de culture! »
 
 À l'extérieur du pavillon rouge se trouvaient trois personnes. Outre Wang Lin, il y avait deux autres jeunes. L'un d'eux paraissait simple, vêtu de vêtements modestes. L'autre affichait un air légèrement malicieux et portait une chemise bleue avec une certaine élégance.
 

@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1032 - Was I Wrong
 slug: me-trompais-je
 ---
-Chapitre 1032 - Me trompais-je?
-
 Lorsque le Bassin Céleste Funéraire s'est brisé à l'intérieur de la Grotte de l'Empereur Céleste, l'impact dispersa tout le monde comme un vol d'oiseaux. Ils furent tous emportés par différentes restrictions et disparurent.
 
 À cet instant, au sein d'une restriction activée, le lieu se transformait en une jungle dense. Elle était peuplée d'arbres dont les troncs étaient si épais qu'il aurait fallu plusieurs hommes pour en faire le tour. D'un seul regard, on voyait que la canopée couvrait le ciel, ne laissant passer que de rares rayons de soleil qui ressemblaient à des piliers de lumière descendant des cieux.

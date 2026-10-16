@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1807 - Missing Greed!"
 slug: la-cupidite-disparue
 ---
-Chapitre 1807 - La Cupidité disparue!
-
 Wang Lin se frotta les tempes, pris d'une migraine.
 
 Tandis qu'il hésitait, la nouvelle se répandit: un individu nommé Wang avait déclenché le feu terrestre, brûlé la Secte du Dragon Bleu, massacré des milliers de ses disciples, et vaincu quatre Anciens, détruisant au passage les corps de trois d'entre eux et les bras d'un quatrième.

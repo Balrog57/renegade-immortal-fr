@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1613 - Awaken From Dream!"
 slug: leveil-du-reve
 ---
-Chapitre 1613 - L'Éveil du Rêve!
-
 « Pourquoi l'as-tu... amenée ici... » Le jeune homme en blanc but une autre gorgée de vin et ferma les yeux.
 
 « Elle est là. Si tu peux rompre ce lien, alors romps-le! » Wang Lin saisit le pichet et but lentement une gorgée.

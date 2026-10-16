@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1495 - Not Just One !"
 slug: pas-seulement-un
 ---
-Chapitre 1495 - Pas seulement un!
-
 Les yeux de Lie Yunzi étaient sur le point de sortir de leurs orbites alors qu'il observait la scène qui se déroulait devant lui. Il semblait avoir oublié qu'il avait vécu pendant des dizaines de milliers d'années; il était aussi stupéfait qu'un enfant mortel le serait en voyant un cultivateur pour la première fois.
 
 Ce qu'il ressentait à cet instant était bien plus intense que ce qu'il avait éprouvé autrefois!

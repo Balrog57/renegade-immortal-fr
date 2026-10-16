@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1309 - Hunt ! !"
 slug: chasse
 ---
-Chapitre 1309 - Chasse!!
-
 « Tuo Sen! » À l'instant où Wang Lin fusionna avec le monde, une lueur de froideur traversa son regard alors qu'il contemplait la silhouette gigantesque derrière lui. Bien qu'il fût encore à distance, le corps de Tuo Sen était d'une démesure extrême. Son simple rugissement était capable de faire vaciller l'énergie originelle du monde.
 
 « Il est donc bel et bien dans le Royaume Extérieur! » Wang Lin disparut.

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1805 - The Old Ancestor Returns!"
 slug: le-vieil-ancetre-est-de-retour
 ---
-Chapitre 1805 - Le Vieil Ancêtre est de retour!
-
 Le murmure du Dao résonna à travers la Secte du Dragon Bleu en flammes, produisant un son singulier. Ce son n'était ni aigu ni strident, mais il possédait une puissance étrange qui sembla détacher l'âme de Wang Lin de son corps. Même ses pensées furent affectées, tout comme ses sept essences.
 
 Cette technique était extrêmement difficile à exécuter seul; elle devait donc être utilisée par un vaste groupe de cultivateurs. Les disciples de la Secte du Dragon Bleu voulaient manifestement employer ce sort pour empêcher Wang Lin de partir!

@@ -6,9 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 709 - Fourth Step of Cultivation, Does it Exist
 slug: quatrieme-etape-de-la-culture-existe-t-elle
 ---
-
-Chapitre 709 - Quatrième étape de la culture: existe-t-elle?
-
 Un éclair fendait les étoiles. À l'intérieur de cette foudre voyageait une Bête du Tonnerre à la corne argentée, teintée d'une pointe d'or. Son corps tout entier irradiait des éclairs, affichant une majesté impressionnante.
 
 Wang Lin était assis en position de lotus sur le dos de la Bête du Tonnerre. Ses cheveux ondulaient sans qu'aucun vent ne les agitât et ses yeux brillaient d'un éclat singulier. Bien que son apparence fût ordinaire, il dégageait une aura extraordinaire.

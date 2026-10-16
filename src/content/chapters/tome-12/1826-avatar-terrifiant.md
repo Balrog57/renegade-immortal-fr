@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1826 - Terrifying Avatar!"
 slug: avatar-terrifiant
 ---
-Chapitre 1826 - Avatar Terrifiant!
-
 « Huitième Niveau du Dao Céleste, Dao du Feu Extrême! » C'était le sort puissant que l'Ancêtre Céleste avait utilisé pour sceller le Taureau Céleste. Une partie de l'âme originelle de Wang Lin venait tout juste de quitter l'illusion, mais il était encore en état de transe. Même une fois fusionné avec son corps, il restait secondé par cette torpeur, et la seule chose qui occupait son esprit était le sort du Dao du Feu Extrême utilisé par l'Ancêtre Céleste!
 
 Lorsque Wang Lin parla, l'ombre de son essence véritable apparut. De loin, on aurait dit que deux Wang Lin se tenaient là, face à face. C'était une vision très étrange.

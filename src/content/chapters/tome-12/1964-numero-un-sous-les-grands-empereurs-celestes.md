@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1964 - Number One Under the Grand Empyreans!"
 slug: numero-un-sous-les-grands-empereurs-celestes
 ---
-Chapitre 1964 - Numéro Un sous les Grands Empereurs Célestes!
-
 Alors qu'ils se trouvaient devant le 17e palais, Wang Lin dit lentement: « Ascendant Empereur Ming Dao, attends-moi à l'extérieur. Ne t'en va pas avant que je ne sois sorti. »
 
 Ses paroles étaient d'une cruauté extrême. Non seulement il avait souligné que l'Ascendant Empereur Ming Dao ne pourrait pas franchir ce palais, mais il lui avait également coupé toute voie de fuite. Si Ming Dao échouait et partait, cela laisserait un démon intérieur dans son cœur!

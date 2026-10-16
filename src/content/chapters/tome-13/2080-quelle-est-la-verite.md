@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: Chapter 2080 - What is the Truth
 slug: quelle-est-la-vérité
 ---
-Chapitre 2080 - Quelle est la vérité?
-
 Mu Bingmei partit.
 
 Elle quitta la grotte et la planète Suzaku, mais elle ne partit pas seule. Un homme l'accompagnait. Il portait des vêtements blancs et avait les cheveux blancs, mais son apparence était ordinaire. Cependant, il dégageait un tempérament indescriptible qui inspirait une profonde sérénité à quiconque le croisait. Il prit la main de Mu Bingmei, comme dans le rêve, et ne la lâcha plus.

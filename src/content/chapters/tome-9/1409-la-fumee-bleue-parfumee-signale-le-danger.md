@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1409 - Fragrant Blue Signal Smoke Burns !"
 slug: la-fumee-bleue-parfumee-signale-le-danger
 ---
-Chapitre 1409 - La fumée bleue parfumée signale le danger!
-
 La femme d'autrefois était comme un papillon transformé en âme entre les mains de Wang Lin. Il tentait de la retenir, mais il ne saisissait que du vide alors que son âme s'élevait vers le ciel, s'échappant de ses bras.
 
 Les yeux de cette femme d'autrefois étaient empreints de sentiment et de tendresse tandis qu'elle vieillissait lentement. Une vie entière passa; ses cheveux devinrent blancs et elle rendit l'âme. Elle ferma les yeux, et ce fut une scène que Wang Lin ne pourrait jamais oublier de sa vie.

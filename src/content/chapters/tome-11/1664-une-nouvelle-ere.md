@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1664 - A New Era!"
 slug: une-nouvelle-ere
 ---
-Chapitre 1664 - Une Nouvelle Ère!
-
 Lorsque la hache apparut, une aura de Dieu Ancestral se déploya comme des vagues océaniques. Cette aura fit trembler la Formation de Scellement du Royaume avec une violence accrue.
 
 Des grondements tonitruants résonnaient dans les oreilles et persistaient. Si l'on fermait les yeux, on aurait pu ressentir l'innombrable carnage auquel la hache avait fait face durant ses comètes d'années d'existence. Tant de vies avaient été anéanties par cette arme!

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1454 - Points!"
 slug: points
 ---
-Chapitre 1454 - Points!
-
 Les près de cent cultivateurs entourant Wang Lin furent tous stupéfaits. Tout s'était passé si vite que la bataille fut terminée avant même qu'ils ne puissent réagir!
 
 Il se fraya un chemin à travers la foule, et personne n'osa lui barrer la route. Il avait capturé la servante du Maître Dao Miao Yin, et la puissance de son Feu Éthéré était à faire trembler les cieux!

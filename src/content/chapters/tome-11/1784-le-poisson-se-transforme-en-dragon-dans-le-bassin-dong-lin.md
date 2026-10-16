@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1784 - The Fish Turns Into a Dragon Inside the Dong Lin Pool!"
 slug: le-poisson-se-transforme-en-dragon-dans-le-bassin-dong-lin
 ---
-Chapitre 1784 - Le poisson se transforme en dragon dans le bassin Dong Lin!
-
 Le bassin Dong Lin était un lieu que le Souverain Céleste aux Sept Couleurs n'avait jamais visité auparavant. Même après avoir été choisi pour être élevé par son ancêtre, il ne s'y était jamais aventuré.
 
 Lorsqu'il obtint enfin la qualification pour entrer dans le bassin Dong Lin, il fut expulsé de la Secte Dong Lin à cause d'un accident. C'était un regret qu'il porterait durant le reste de sa vie.

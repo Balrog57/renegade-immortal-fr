@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1583 - Immortal Celestial Body!"
 slug: corps-celeste-immortel
 ---
-Chapitre 1583 - Corps Céleste Immortel!
-
 Ce sort de divination était similaire à celui que possédait l'Omniscient, mais cette femme l'utilisait d'une manière très différente. Après qu'elle eut parlé, des cercles noirs de la taille d'un poing apparurent sur tout le corps de Wang Lin.
 
 Dès leur apparition, les cercles noirs commencèrent à s'infecter. Le corps de Wang Lin trembla et il eut la sensation que la mort approchait.

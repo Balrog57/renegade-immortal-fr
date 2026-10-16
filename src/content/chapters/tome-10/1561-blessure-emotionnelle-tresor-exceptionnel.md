@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1561 - Emotional Injury, Gifted Treasure!"
 slug: blessure-emotionnelle-tresor-exceptionnel
 ---
-Chapitre 1561 - Blessure émotionnelle, trésor exceptionnel!
-
 « Atteindre la troisième étape avec l'essence de massacre ne nécessite pas l'aide des Flammes de Joss. L'essence de massacre à l'intérieur de Qing Shui a été implantée par la figure aux sept couleurs, mais elle n'a pas été retirée. Au contraire, la majeure partie est restée en lui; ainsi, lorsque le sceau a été levé, cela a déclenché la Porte du Vide! » Wang Lin analysa immédiatement la situation.
 
 « Cependant, pourquoi la figure aux sept couleurs n'a-t-elle pas pris l'essence de massacre... Quel est son dessein? Ne cherchait-il pas l'essence de massacre comme je le pensais... Si ce n'est pas pour cela, à quoi bon a-t-il fait cela... »
@@ -110,7 +108,7 @@ Cette épée était une essence de massacre complète!
 
 On pourrait dire que cette arme était le trésor le plus puissant de Qing Shui et son premier Trésor d'Essence! Tous les cultivateurs de la troisième étape ne parviennent pas forcément à former un tel trésor en brisant la Porte du Vide; ceux qui y parviennent sont extrêmement rares!
 
-L'ancêtre du Clan de l'Hirondelle de Feu, l'Estimé Nan Zhao, l'Estimé Maître Tian Zhao, Zhou Jin, Ling Dong... aucun d'eux n'y était parvenu. Même les Maîtres Hong Shan et Nuage du Sud n'avaient pu le faire.
+L'ancêtre du Clan de l'Hirondelle de Feu, l'Estimé Nan Zhao, l'Estimé Maître Tian Zhao, Zhou Jin, Ling Dong... aucun d'eux n'y était parvenu. Même les Maîtres Hong Shan et Nan Yunzi n'avaient pu le faire.
 
 Cela démontrait à quel point ce trésor était précieux!
 

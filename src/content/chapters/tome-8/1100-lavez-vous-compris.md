@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1100 - Have You Seen Through It
 slug: lavez-vous-compris
 ---
-Chapitre 1100 - L'avez-vous compris?
-
 Wang Lin et Maître Yi Chen restaient assis là, buvant silencieusement leurs propres bouteilles de vin. Parfois, ils contemplaient le ciel rouge à l'horizon tandis que les vagues de chaleur déferlaient.
 
 « Mort... Le troisième frère est mort et l'âme originelle du second s'est dissipée... » Maître Yi Chen but une gorgée amère de vin avant de rejeter la bouteille sur le côté.

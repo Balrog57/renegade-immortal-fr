@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1764 - Seven-Colored's Calamity!"
 slug: la-calamite-aux-sept-couleurs
 ---
-Chapitre 1764 - La Calamité aux Sept Couleurs!
-
 Le sable jaune tombait comme une pluie battante, formant un véritable rideau. Simultanément, des grondements sourds remontèrent des profondeurs du sol.
 
 Alors que le rugissement résonnait, la planète entière commença à trembler. Sous les pieds de Wang Lin, le sable jaune se mit à s'enfoncer et le fracas devint plus distinct. En un éclair, une bête serpentine jaillit des entrailles de la terre!

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1815 - Forming an Essence True Body!"
 slug: formation-dun-corps-véritable-dessence
 ---
-Chapitre 1815 - Formation d'un Corps Véritable d'Essence!
-
 « Avec mon sceau doré, il devrait s'en sortir dans les terres célestes... Maintenant qu'il est arrivé, il n'y a pas d'urgence à aller le chercher... Laissons-le perfectionner ses compétences afin qu'il puisse devenir encore plus puissant à l'avenir! » murmura Xuan Luo pour lui-même. Il ne se rendrait pas dans les terres des Cieux. Après tout, avec son statut, il n'était pas opportun d'y aller trop souvent, au risque de provoquer des ennuis inutiles.
 
 Tout comme si le Grand Empereur céleste continuait de fréquenter les Anciens Pays, il finirait par être expulsé ou même assiégé.

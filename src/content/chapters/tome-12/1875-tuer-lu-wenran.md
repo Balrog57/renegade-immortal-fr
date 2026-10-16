@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1875 - Killing Lu Wenran !"
 slug: tuer-lu-wenran
 ---
-Chapitre 1875 - Tuer Lu Wenran!
-
 Lu Wenran regarda de ses propres yeux les innombrables fils noirs tourbillonner autour du corps de Wang Lin. L'aura émanant de Wang Lin devenait plus puissante à un rythme terrifiant.
 
 Cela fit perler la sueur sur son front, fit trembler son cœur et fit poindre une peur indescriptible dans ses yeux. Une sensation de jalousie démente s'y mêla!

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Four Words!
 slug: trois-mots
 ---
-Chapitre 1827 - Trois mots!
-
 Wang Lin n'était pas du tout surpris, comme s'il avait su que cette voix apparaîtrait. Une fois la voix entendue, Wang Lin se retourna.
 
 Tandis que la neige tombait, un vieil homme aux cheveux blancs, vêtu d'une robe taoïste, était assis dans la blancheur et le contemplait.

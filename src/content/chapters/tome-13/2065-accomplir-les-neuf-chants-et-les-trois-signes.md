@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2065 - Complete Nine Songs and Three Signs!"
 slug: accomplir-les-neuf-chants-et-les-trois-signes
 ---
-Chapitre 2065 - Accomplir les Neuf Chants et les Trois Signes!
-
 Par ce pas, la colère de Wang Lin jaillit de son pied droit pour frapper le monde. À cet instant, il atteignit un royaume inimaginable en piétinant les cieux.
 
 Le monde entier semblait être sous ses pieds, toute forme de vie semblait être à ses pieds. Qu'il s'agisse des lois ou des règles, tout fut anéanti par ce pas.

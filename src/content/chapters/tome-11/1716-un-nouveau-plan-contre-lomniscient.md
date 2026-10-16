@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1716 - Scheme Again Omniscient!"
 slug: un-nouveau-plan-contre-lomniscient
 ---
-Chapitre 1716 - Un nouveau plan contre l'Omniscient!
-
 Aux abords de la fissure spatiale dans la Mer des Nuages, une multitude de bêtes féroces s'étaient rassemblées. Elles n'avaient pas oublié la tempête de restrictions qui les avait expulsées de la faille quelques mois auparavant.
 
 Cependant, la fissure spatiale était leur demeure; elles restaient donc aux alentours, refusant de s'en éloigner.
@@ -42,7 +40,7 @@ Une fois cela accompli, Wang Lin leva les yeux vers les étoiles. Les lignes flo
 
 Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur culture et s'élancèrent dans les airs.
 
-Qing Lin, Qing Shui, Situ Nan, Maître Nuage du Sud et les autres flottaient là; en voyant la silhouette blanche au loin, ils sourirent.
+Qing Lin, Qing Shui, Situ Nan, Maître Nan Yunzi et les autres flottaient là; en voyant la silhouette blanche au loin, ils sourirent.
 
 De nombreuses autres personnes familières à Wang Lin le remarquèrent également. En apercevant cette silhouette blanche, leurs visages s'illuminèrent de sourires.
 

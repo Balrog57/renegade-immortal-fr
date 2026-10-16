@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1918 - The Body is Dao!"
 slug: le-corps-est-le-dao
 ---
-Chapitre 1918 - Le Corps est le Dao!
-
 Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalté Doré, même si son âme originelle avait perdu toute volonté, sa puissante culture formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
 
 Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de culture était bien supérieur à celui d'un Exalté Doré, une extraction parfaite des souvenirs serait alors possible.

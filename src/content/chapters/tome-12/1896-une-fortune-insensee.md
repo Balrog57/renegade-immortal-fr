@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1896 - A Crazed Fortune!"
 slug: une-fortune-insensee
 ---
-Chapitre 1896 - Une Fortune Insensée!
-
 « Toutes les choses que ma famille a préparées pourront enfin être utilisées! » Les yeux du vieil homme s'illuminèrent et sa main gauche frappa immédiatement diverses parties de son corps.
 
 Chaque fois qu'il frappait son propre corps, un objet mystérieux en était expulsé pour flotter dans les airs, émettant une lueur éblouissante. Son corps agissait tel un sac de stockage ayant renfermé la vaste quantité d'objets que sa famille avait préparée au fil d'innombrables années.

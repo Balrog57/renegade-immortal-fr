@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1647 - Taking Responsibility!"
 slug: assumer-ses-responsabilites
 ---
-Chapitre 1647 - Assumer ses responsabilités!
-
 Wang Lin sourit amèrement et regarda Situ Nan, stupéfait. Il ramassa ensuite une cruche de vin par terre et en but une longue gorgée.
 
 « C'est ce que j'ai appris de la mémoire de cet être céleste... Tu connais le Seigneur du Royaume Scellé? Pas moi, mais le précédent. Il venait du Royaume Céleste Antique, il n'appartient pas à cet endroit...

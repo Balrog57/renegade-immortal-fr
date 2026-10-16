@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1288 - Fame From 10 Years Ago !"
 slug: la-gloire-dil-y-a-10-ans
 ---
-Chapitre 1288 - La gloire d'il y a 10 ans!
-
 Un réseau de transfert se trouvait sur un continent de la région de rang 6. Plus de dix cultivateurs étaient assis autour, parmi lesquels un homme et une femme qui conversaient. La femme esquissait parfois un sourire, lançant à l'homme un regard séducteur.
 
 « Je ne te crois absolument pas. Si Lu Zihao était aussi puissant que tu le prétends, au point de pouvoir tuer le Maître de notre secte, l'Ancien et le disciple aîné, la Secte Éternelle l'aurait certainement protégé. Comment aurait-il pu mourir? »

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1206 - Cultivators Like Us Never Shrink From a Fight!"
 slug: les-cultivateurs-comme-nous-ne-reculent-jamais-devant-un-combat
 ---
-Chapitre 1206 - Les cultivateurs comme nous ne reculent jamais devant un combat!
-
 La scène vue à travers les yeux de la statue se dissipa. À l'instant même où elle disparut, un éclair jaillit de la formation. Il semblait briser le vide, les cieux et le temps, fonçant droit vers l'œil droit de Wang Lin!
 
 Des grondements tonitruants résonnèrent dans son esprit et il recula de plusieurs dizaines de pieds. Puis, il fixa la statue de pierre avec une expression féroce!

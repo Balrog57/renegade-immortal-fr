@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1971 - Li Mansion!"
 slug: le-manoir-li
 ---
-Chapitre 1971 - Le Manoir Li!
-
 Au cœur de la partie orientale de la cité ancestrale se trouvait un manoir d'apparence ordinaire. Cependant, il occupait une vaste superficie et ressemblait, vu de loin, à une bête féroce.
 
 Un silence absolu régnait autour de ce manoir; aucune trace d'activité humaine ne s'en dégageait. C'était comme si cet endroit était une terre interdite dans la cité orientale. Quiconque l'apercevait au loin préférait le contourner plutôt que de passer à proximité.

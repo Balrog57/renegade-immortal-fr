@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1698 - Fake, Eh!"
 slug: faux-hein
 ---
-Chapitre 1698 - Faux, hein!
-
 Une fois que Wang Lin aurait brisé la troisième couche de restrictions, ce vaisseau serait complètement sous son contrôle.
 
 C'était le cas où « l'invité devient l'hôte! »

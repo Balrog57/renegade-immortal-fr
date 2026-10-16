@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1457 - Missing One
 slug: un-disparu
 ---
-Chapitre 1457 - Un disparu?
-
 Wang Lin avait achevé sa plateforme de rang 5. Sur la sixième carte, le brouillard n'était pas dense, mais d'innombrables failles spatiales parsemaient les lieux. Le moindre manque de prudence pouvait conduire à être déchiqueté.
 
 Une plateforme de 60 000 pieds s'étendait ici, parsemée d'une multitude de crânes. Bien qu'ils semblassent éparpillés de manière désordonnée, ils formaient en réalité une formation de crânes!

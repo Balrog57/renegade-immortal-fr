@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1524 - Holding the Heaven Splitting Axe!"
 slug: tenant-la-hache-bris-ciel
 ---
-Chapitre 1524 - Tenant la Hache Bris-Ciel!
-
 Bien que cette phrase fût un rugissement qui ébranla tout le domaine stellaire, elle ne suffit pas à restaurer l'éclat perdu, ni à raviver la volonté désespérée de survivre!
 
 Il restait moins de 10 000 cultivateurs de la Mer des Nuages. Sous le massacre incessant, ils commencèrent à fléchir… Une personne recula, puis tout le monde recula comme une marée, et tout s'effondra!
@@ -102,7 +100,7 @@ Elle lutta violemment, résistant à la douce clarté. Cependant, alors que la l
 
 « Hache Bris-Ciel, prête ton pouvoir à mon héritier… » Une voix ancienne émana de la formation et parvint aux oreilles de chaque cultivateur!
 
-Une pointe de tristesse brilla dans les yeux du Maître Nuage du Sud. Comment pouvait-il oublier cette voix?
+Une pointe de tristesse brilla dans les yeux du Maître Nan Yunzi. Comment pouvait-il oublier cette voix?
 
 L'expression de la femme en rouge qui combattait contre lui changea, et une rare trace de peur apparut dans son regard. Les souvenirs du passé affluèrent dans son esprit.
 

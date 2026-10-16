@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1602 - You Dare!"
 slug: vous-osez
 ---
-Chapitre 1602 - Vous osez!
-
 Dix ans de conférences pour accueillir les érudits du monde entier!
 
 Cette nouvelle s'est propagée depuis la ville de Su par divers canaux, parcourant rapidement tout le pays de Zhao. Lorsque ceux qui remettaient en question Wang Lin apprirent cela, ils furent tous stupéfaits.

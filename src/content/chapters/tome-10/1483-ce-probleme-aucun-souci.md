@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1483 - This Matter, No Problem!"
 slug: ce-probleme-aucun-souci
 ---
-Chapitre 1483 - Ce problème, aucun souci!
-
 « Ce problème, aucun souci! »
 
 Ces simples mots transpiraient la confiance en soi, mais cet homme plein d'assurance ignorait qu'au moment même où il parlait, Wang Lin était déjà là!

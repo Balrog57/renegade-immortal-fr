@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1950 - Come Again!"
 slug: reviens
 ---
-Chapitre 1950 - Reviens!
-
 Pour les cultivateurs, treize ans n'étaient qu'un éclair. Durant ces treize dernières années, Wang Lin avait appréhendé l'essence de l'Origine Absolue; il possédédait désormais une essence spéciale supplémentaire!
 
 Quant à l'essence de la Fin Absolue, après treize ans passés à contempler la nuit dévorer la lumière plus de 4 000 fois, Wang Lin ne l'avait pas encore pleinement maîtrisée, mais il en avait acquis une certaine compréhension grâce au Bassin Dong Lin.

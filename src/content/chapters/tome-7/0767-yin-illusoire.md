@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 767 - Illusory Yin!"
 slug: yin-illusoire
 ---
-Chapitre 767 - Yin Illusoire!
-
 Le tonnerre noir portait en lui la puissance des cieux et s'abattit sur le fragment. Une explosion fracassante retentit à travers celui-ci, et une immense fissure apparut.
 
 Au plus profond de cette faille se trouvait Wang Lin, qui venait tout juste d'ouvrir les yeux.

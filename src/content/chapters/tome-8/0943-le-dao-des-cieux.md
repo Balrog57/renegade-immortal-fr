@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 943 - Heavens Dao
 slug: le-dao-des-cieux
 ---
-Chapitre 943 - Le Dao des Cieux?
-
 Lou Chen ressentait la douleur du Serpent aux yeux de lune de manière viscérale, tant leur assimilation était profonde. Sans hésiter, il fit un pas en avant et lança un coup de poing.
 
 Ce coup se transforma en un grondement surpuissant, décuplant plusieurs fois la force qu'il avait déployée lors de son combat contre Wang Lin! L'éléphant géant poussa un rugissement et se mua en une lueur noire qui enveloppa le poing de Lou Chen. Le cri de la créature résonna de concert avec son assaut; l'éléphant se reforma devant le coup de poing pour charger tête baissée dans les gaz aux sept couleurs.

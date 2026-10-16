@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2044 - Heavenly Sign!"
 slug: signe-celeste
 ---
-Chapitre 2044 - Signe Céleste!
-
 Une fois le soleil disparu et le ciel obscurci, Wang Lin saisit l'essence de la fin absolue. L'essence s'envola dans l'immensité sombre du ciel avant d'y disparaître.
 
 Fixant le firmament qui semblait s'être manifesté au plafond, les yeux de Wang Lin s'illuminèrent. Ses mains formèrent des sceaux et il murmura doucement:

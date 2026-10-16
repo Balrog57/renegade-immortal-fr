@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1763 - Ambushed!"
 slug: embuscade
 ---
-Chapitre 1763 - Embuscade!
-
 « 80 %! » La limite de Wang Lin était de 80 %, et dès qu'il prononça ces mots, son visage devint livide. La force vitale de son corps s'épuisa rapidement et ses traits vieillirent prématurément.
 
 Au même instant, le parapluie se referma brusquement. Des cris déchirants résonnèrent; on ignorait combien de personnes venaient de périr.

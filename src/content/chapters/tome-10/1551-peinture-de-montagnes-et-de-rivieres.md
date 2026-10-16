@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1551 - Mountain and River Painting!"
 slug: peinture-de-montagnes-et-de-rivieres
 ---
-Chapitre 1551 - Peinture de Montagnes et de Rivières!
-
 Wang Lin accordait une importance capitale à ceux qui l'avaient aidé!
 
 Même si le monde se dégradait sous le poids du temps, la bonté de Qing Shui ne s'effacerait jamais! Wang Lin n'oubliait jamais ceux qui lui avaient tendu la main.

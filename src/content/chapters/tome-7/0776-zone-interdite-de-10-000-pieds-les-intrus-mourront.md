@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 776 - 10,000 Feet Forbidden Area, Trespassers Will Die!"
 slug: zone-interdite-de-10-000-pieds-les-intrus-mourront
 ---
-Chapitre 776 - Zone interdite de 3,3 km: les intrus mourront!
-
 Une silhouette se tenait debout sur l'énergie de l'épée. Il portait une large robe jaune qui flottait au vent, lui conférant un air d'une grande élégance. À ce niveau de culture, l'apparence extérieure ne reflétait plus l'âge réel de l'individu. Il semblait avoir une trentaine d'années et possédait un visage ordinaire; cependant, ses yeux étroits laissaient transparaître un éclair de froideur.
 
 Une riche énergie originelle émanait de son corps. Il était évident qu'il avait atteint le sommet du stade Yin Illusoire. À mesure qu'il s'avançait, la foule devant lui se dispersa immédiatement, n'osant l'entraver.

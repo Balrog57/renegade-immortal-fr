@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1843 - Breakthrough!"
 slug: percee
 ---
-Chapitre 1843 - Percée!
-
 Ils étaient trois: l'Oiseau Vermillon, le Tigre Blanc et la Tortue Noire, sortis du monde des grottes. Ils étaient revenus il y a de nombreuses années et avaient constaté que la Secte des Sept Dao n'existait plus. Ils avaient alors choisi de partir pour devenir des cultivateurs errants.
 
 Ils avaient déjà connu la célébrité et leur heure de gloire. Cependant, ils approchaient de la fin de leur existence; ils étaient simplement las et aspiraient au repos.

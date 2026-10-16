@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1228 - This Old Mans Name is Liu Jinbiao!!"
 slug: le-nom-de-ce-vieil-homme-est-liu-jinbiao
 ---
-Chapitre 1228 - Le nom de ce vieil homme est Liu Jinbiao!!
-
 Après un siècle de silence dans la Mer des Nuages, la grande compétition entre toutes les sectes affiliées des sectes de rang 8 était sur le point de commencer. Cette compétition, qui se déroulait tous les 1 000 ans, était un événement festif pour toute la Mer des Nuages.
 
 Il ne s'agissait pas d'une seule secte de rang 8, mais de toutes les sectes de ce rang procédant simultanément. Les sectes affiliées rejoignaient la secte principale pour passer une nouvelle série d'examens. La secte gagnante recevait des récompenses et l'attention de la secte principale; ses disciples les plus exceptionnels étaient alors retenus par la secte principale pour y être formés.

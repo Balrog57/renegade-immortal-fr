@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 640 - Grand Gift! Small hole!"
 slug: un-immense-cadeau-un-petit-trou
 ---
-Chapitre 640 - Un immense cadeau! Un petit trou!
-
 Xu Liguo fut stupéfait. Ses yeux s'écarquillèrent et il demanda prudemment: « Euh... Aîné, qu'est-ce que cette intention d'épée ancienne? »
 
 Zhou Yi esquissa un léger sourire et répondit: « Ressens-le, et tu sauras! » Sur ces mots, sa main droite s'élança et saisit aussitôt Xu Liguo. Un rayon de lumière jaillit de ses yeux pour se projeter dans ceux de Xu Liguo.

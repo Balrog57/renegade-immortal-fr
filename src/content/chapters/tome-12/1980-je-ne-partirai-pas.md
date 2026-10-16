@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1980 - Not Going!"
 slug: je-ne-partirai-pas
 ---
-Chapitre 1980 - Je ne partirai pas!
-
 Ce point représentait l'apogée de la puissance de Wang Lin. Il contenait non seulement son avatar dans le vide, mais aussi toute la force de son armure spirituelle. Le corps véritable à cinq éléments et le corps véritable d'essence tonnerre de Wang Lin se manifestèrent. Même ses trois essences éthérées apparurent, formant trois immenses vortex derrière lui!
 
 Toute cette force convergea vers son doigt. Grâce à la formation créée par la lumière dorée et le fragment d'épée, Wang Lin pouvait exploiter la puissance de son avatar dans le vide jusqu'à son paroxysme.

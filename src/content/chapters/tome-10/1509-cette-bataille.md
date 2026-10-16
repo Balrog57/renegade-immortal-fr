@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1509 - This Battle !!"
 slug: cette-bataille
 ---
-Chapitre 1509 - Cette Bataille!!
-
 Dans la région de rang 9 de la Mer des Nuages, la Secte Fantôme!
 
 La Secte Fantôme était extrêmement mystérieux au sein de la Mer des Nuages, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine culture à porte close au sein de la Secte Fantôme.

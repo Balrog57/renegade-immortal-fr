@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1990 - Release Dao Wang!"
 slug: liberation-de-dao-wang
 ---
-Chapitre 1990 - Libération de Dao Wang!
-
 Le palais interdit de la Cité Ancestrale!
 
 Un gouffre gigantesque s'était ouvert dans le ciel, d'où émanait une lueur diffuse. Une tête de trente mètres flottait entre les huit montagnes en contrebas, immobile dans les airs.

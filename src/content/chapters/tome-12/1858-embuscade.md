@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1858 - Ambush!"
 slug: embuscade
 ---
-Chapitre 1858 - Embuscade!
-
 Un rugissement empreint de férocité jaillit du brouillard entourant Wang Lin. Yi Si, qui avait perdu un bras, chargea comme un fou vers Liu Zhiyuan.
 
 Tout cela se produisit avec la rapidité de l'éclair. Il ne fallut qu'un instant à Yi Si pour parcourir plusieurs milliers de pieds. Au moment même où Liu Zhiyuan se retourna, Yi Si était déjà sur lui.

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1421 - Joss Flame Worship !"
 slug: ladoration-des-flammes-de-lencens
 ---
-Chapitre 1421 - L'Adoration des Flammes de l'Encens!
-
 Le Feu Éthéré n'appartenait pas aux cinq éléments du monde. Au sommet du feu corporel, il existait une chance de briser le vide pour le transformer en un Feu Éthéré capable d'extinguer toute chose!
 
 Toutes les émotions servaient de combustible au Feu Éthéré; par conséquent, nul ne pouvait laisser ses sentiments fluctuer face à un adversaire maîtrisant ce feu!

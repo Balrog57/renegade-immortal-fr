@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1655 - Sovereign Appears!"
 slug: le-souverain-apparait
 ---
-Chapitre 1655 - Le Souverain Apparaît!
-
 Le corps de Qing Shui trembla et ses yeux ternes s'illuminèrent de la dernière parcelle de sa puissance. Il avait perdu ses parents, son maître, son amante, tous ses amis du Royaume Céleste, et finalement, même Wang Lin semblait être mort.
 
 Il avait tout perdu!

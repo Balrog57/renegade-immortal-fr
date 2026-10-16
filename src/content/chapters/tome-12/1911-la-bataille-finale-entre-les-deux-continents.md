@@ -25,7 +25,7 @@ Du côté du Continent du Taureau Céleste, Yun Yifeng était l'un de ces hommes
 
 Outre lui, Tang Jia et Bord-des-Nuages s'étaient également illustrés grâce à l'armure d'âme du Taureau Céleste! Plusieurs membres du Grand Secte de l'Âme s'étaient aussi distingués, devenant les lumières les plus éclatantes aux côtés de l'Ancien Ancêtre.
 
-Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Nuage du Vide, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Nuage du Vide était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Nuage du Vide se trouvaient plusieurs autres individus; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
+Le Continent du Démon Vert comptait également des cultivateurs de cette trempe, tel que Yun Kong, que Wang Lin avait tué à deux reprises. Son corps originel se trouvait toujours sur le Continent du Taureau Céleste, car Wang Lin n'avait tué que ses avatars. La culture à l'épée de Yun Kong était extraordinaire et avait captivé l'attention de tous. Sous les ordres de Yun Kong se trouvaient plusieurs autres individus; avec les talents émergents du Continent du Taureau Céleste, ces moins de vingt personnes étaient désormais les chefs de cette guerre!
 
 C'était comme si le but de ce combat était de magnifier la gloire de ces vingt guerriers! La guerre se poursuivait entre le Grand Secte de l'Âme et la Secte Gui Yi. Les seize cultivateurs des deux camps déployaient toute leur puissance, comme si le champ de bataille n'était qu'une scène destinée à leurs performances!
 

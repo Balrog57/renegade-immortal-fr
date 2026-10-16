@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1493 - No Harm in Giving it a Try!"
 slug: il-ne-coute-rien-dessayer
 ---
-Chapitre 1493 - Il ne coûte rien d'essayer!
-
 Un silence absolu régnait dans les environs. Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre fixaient l'Arbre Tout-Ciel. Ils étaient animés par une excitation intense, mais nul ne prononçait un mot; pourtant, le désir qui brûlait dans leurs cœurs ne cessait de croître.
 
 Ils aspiraient à obtenir l'Arbre Tout-Ciel, ce trésor personnellement affiné par le Maître Lu Fu!

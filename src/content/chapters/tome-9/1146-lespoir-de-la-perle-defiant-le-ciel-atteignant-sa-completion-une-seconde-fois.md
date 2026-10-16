@@ -8,7 +8,7 @@ slug: lespoir-de-la-perle-defiant-le-ciel-atteignant-sa-completion-une-seconde-f
 ---
 « Il m'en manque encore neuf. Cependant, tous les Tigres Stellaires de la zone ont disparu, je dois donc aller plus loin… » L'homme d'âge moyen afficha un sourire amer, mais avant qu'il ne puisse continuer, son expression changea soudainement. Il leva sa main droite vers le vide, créant une fissure dans l'espace pour atteindre son espace de stockage. Un jade en sortit et se brisa instantanément, révélant un fragment d'âme.
 
-Le fragment d'âme avait la forme de Rudy. Ses yeux étaient empreints de la terreur précédant sa mort, avant de se dissiper devant l'homme d'âge moyen.
+Le fragment d'âme avait la forme de Lu Di. Ses yeux étaient empreints de la terreur précédant sa mort, avant de se dissiper devant l'homme d'âge moyen.
 
 « Jeune Maître! » Le sourire disparut du visage du vieil homme en robe violette, ses yeux emplis de choc.
 
@@ -16,9 +16,9 @@ L'homme d'âge moyen regarda le fragment d'âme disparaître. Il ne bougea pas d
 
 L'homme à ses côtés était pétrifié. Il regarda le Maître de Secte et son cœur trembla. Il avait suivi ce Maître de Secte pendant de nombreuses années; il savait que plus le Maître de Secte était calme, plus la tempête à venir serait dévastatrice.
 
-« Où est passé Rudy? » Après un long moment, l'homme d'âge moyen ouvrit les yeux. Une trace de tristesse brûlait dans son regard, mais sa voix était d'un calme terrifiant.
+« Où est passé Lu Di? » Après un long moment, l'homme d'âge moyen ouvrit les yeux. Une trace de tristesse brûlait dans son regard, mais sa voix était d'un calme terrifiant.
 
-Le vieil homme s'inclina et dit respectueusement: « Jeune Maître… le Jeune Maître est allé sur le continent de Mo Luo. » Il était encore sous le choc et n'avait pas retrouvé son calme. Il ne comprenait pas qui, dans la région de rang 5, oserait tuer le Jeune Maître Rudy au risque d'offenser Lu Yuncong, le Maître de la Secte du Dao Violet!
+Le vieil homme s'inclina et dit respectueusement: « Jeune Maître… le Jeune Maître est allé sur le continent de Mo Luo. » Il était encore sous le choc et n'avait pas retrouvé son calme. Il ne comprenait pas qui, dans la région de rang 5, oserait tuer le Jeune Maître Lu Di au risque d'offenser Lu Yuncong, le Maître de la Secte du Dao Violet!
 
 « Le continent de Mo Luo, la Secte Origin… Pourquoi personne ne m'en a parlé? » La voix de l'homme d'âge moyen était calme, mais lorsqu'elle parvint aux oreilles du vieil homme, ce dernier en frémit. Il se souvint soudain de quelque chose et son visage pâlit.
 
@@ -68,7 +68,7 @@ Wang Lin, assis sur son lit, fixait le lotus noir dans sa main droite. Il leva l
 
 Le corps de Lu Yanfei trembla, mais elle ne s'arrêta pas. Elle maintint son calme et sortit de la cour.
 
-« Quelle femme intelligente! » Wang Lin détourna le regard. À part leur échange sur la montagne, ils n'avaient eu aucun autre contact. Pourtant, cette femme avait été capable d'une analyse aussi remarquable en se basant uniquement sur le récit de sa disciple, leur conversation passée et le fait qu'il ait tué Song Wude et Rudy.
+« Quelle femme intelligente! » Wang Lin détourna le regard. À part leur échange sur la montagne, ils n'avaient eu aucun autre contact. Pourtant, cette femme avait été capable d'une analyse aussi remarquable en se basant uniquement sur le récit de sa disciple, leur conversation passée et le fait qu'il ait tué Song Wude et Lu Di.
 
 Xu Yun ne comprenait pas ses paroles, mais avec l'esprit sagace de Wang Lin, il comprit parfaitement. Lu Yanfei était certaine qu'il était l'homme aux cheveux blancs. Dans son esprit, pour quelqu'un de son niveau de culture, se cacher dans la Secte Origin signifiait soit chercher quelque chose ici, soit fuir des ennemis.
 

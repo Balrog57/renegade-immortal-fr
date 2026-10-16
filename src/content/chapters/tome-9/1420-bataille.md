@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1420 - Battle!!"
 slug: bataille
 ---
-Chapitre 1420 - Bataille!!
-
 Défi!
 
 Oser défier un cultivateur de la troisième étape!

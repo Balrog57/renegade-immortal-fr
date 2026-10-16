@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1838 - Three Gifts!"
 slug: trois-cadeaux
 ---
-Chapitre 1838 - Trois cadeaux!
-
 La boîte paraissait très ordinaire, comme un simple objet mortel, et était recouverte de poussière. Pourtant, cette boîte pouvait bloquer tout Sens Divin tentant d'y pénétrer; elle était extraordinaire!
 
 Un sceau jaune et flétri semblait la sceller. Il dégageait une aura antique, comme s'il avait existé depuis des éons. Cela faisait si longtemps que personne n'avait retiré ce sceau jauni et desséché.

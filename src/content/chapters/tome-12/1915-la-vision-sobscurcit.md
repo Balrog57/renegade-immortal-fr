@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1915 - Vision Goes Black !"
 slug: la-vision-sobscurcit
 ---
-Chapitre 1915 - La vision s'obscurcit!
-
 La lumière dorée dans le ciel émettait un éclat éblouissant qui illuminait les ruines de la Secte du Dao Démoniaque. Sans même regarder en bas, la silhouette dorée agita la main et l'édit impérial apparut.
 
 « Secte du Dao Démoniaque, recevez l'édit! »

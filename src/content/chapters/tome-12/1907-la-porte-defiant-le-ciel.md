@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1907 - Heaven Defying Gate!"
 slug: la-porte-defiant-le-ciel
 ---
-Chapitre 1907 - La Porte Défiant le Ciel!
-
 Les cultivateurs du Continent du Démon Vert s'inclinèrent avec un immense respect vers le temple de scorpion effondré, maintenant que la pression de l'Arcane Tribulation avait disparu.
 
 L'aura de la Tribulation du Vide faisait rage au cœur de la tempête, d'une puissance extrême. À mesure que cette aura se dissipait, les couleurs du monde changeaient; c'était comme si le ciel lui-même cherchait à l'éviter.

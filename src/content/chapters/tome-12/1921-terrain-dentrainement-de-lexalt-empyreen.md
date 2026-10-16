@@ -58,7 +58,7 @@ Le vieil homme aux cheveux roux s'arrêta et réfléchit un instant.
 
 « Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent Nord est le plus exigeant; hormis les Ascendants Empyréens, il recrute rarement des Exalté Empyréens. »
 
-« Et le Grand Empyréen Gemini de la Secte du Dao Pourpre du Continent Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
+« Et le Grand Empyréen Gémeaux de la Secte du Dao Pourpre du Continent Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
 
 Le plus important était que cet Exalté Empyréen était extrêmement puissant! Par conséquent, il partagea ces connaissances essentielles afin d'effacer l'amertume des affrontements passés.
 

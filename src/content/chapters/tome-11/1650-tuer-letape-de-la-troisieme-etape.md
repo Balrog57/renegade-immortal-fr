@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1650 - Kill Third Step!"
 slug: tuer-letape-de-la-troisieme-etape
 ---
-Chapitre 1650 - Tuer l'étape de la troisième étape!
-
 À travers l'épaisse aura de mort, on pouvait apercevoir un homme chauve assis dans les profondeurs de la faille. L'homme portait une robe violette et, par instants, on voyait des visages d'âmes misérables surgir de son crâne chauve, poussant des cris silencieux.
 
 D'un revers de main, il projeta les 300 bulles vers lui.

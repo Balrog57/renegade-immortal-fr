@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1712 - Three Life Spell!"
 slug: sortilege-des-trois-vies
 ---
-Chapitre 1712 - Sortilège des Trois Vies!
-
 Depuis son arrivée à l'autel, Wang Lin n'avait pas eu le temps d'observer les lieux. La majeure partie de son attention était portée sur le bras posé sur l'autel. Bien qu'il fût très prudent et qu'il eût scanné cet autel avec son Sens Divin, il n'y avait rien trouvé d'anormal.
 
 Cependant, après avoir absorbé le sang ainsi que le Sang de l'Âme, et suite aux ondulations causées par le sort Déchirure du Ciel, le voile recouvrant l'autel commençait à se lever. Les yeux de Wang Lin brillèrent.

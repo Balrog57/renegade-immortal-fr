@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1898 - Last Breath!!"
 slug: dernier-souffle
 ---
-Chapitre 1898 - Dernier Souffle!!
-
 À l'extérieur du four vert, les deux Messagers du Démon Vert déversaient leur essence originelle depuis dix ans. Leurs âmes originelles étaient désormais très faibles et ils ne pourraient plus le supporter bien longtemps.
 
 Quelques jours plus tard, l'âme originelle de l'un des Messagers du Démon Vert recracha les dernières traces de son essence originelle. Son âme originelle se dissipa et son corps s'effondra. Il était mort.

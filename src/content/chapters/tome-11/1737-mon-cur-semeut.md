@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1737 - My Heart Happens to Stir!"
 slug: mon-cur-semeut
 ---
-Chapitre 1737 - Mon cœur s’émeut!
-
 Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, l'expression sombre sur le visage du vieil homme en robe dorée disparut pour laisser place à un sourire.
 
 « La Roue Cœur des Neuf Cycles. Même sur le Continent Astral Immortel, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser! »

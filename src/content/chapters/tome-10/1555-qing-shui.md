@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1555 - Qing Shui !"
 slug: qing-shui
 ---
-Chapitre 1555 - Qing Shui!
-
 Parce que cet homme faisait face à Wang Lin, celui-ci pouvait lire son expression: elle était empreinte de joie et de choc! C'était comme s'il éprouvait un immense bonheur en absorbant la puissance de cette Tortue Noire, mais au moment même où son excitation atteignait son paroxysme, un événement terrifiant survint, causant sa mort. Voilà ce qui expliquait cette expression mêlée de joie et de stupeur!
 
 Wang Lin n'avait jamais vu cet homme auparavant, mais il pressentait qu'il devait s'agir de l'Empereur Divin de la Tortue Noire, celui qui avait trahi les Quatre Sectes Divines pour rejoindre l'Alliance!

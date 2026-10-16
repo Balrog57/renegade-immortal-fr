@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1578 - Heavenly Change!"
 slug: changement-celeste
 ---
-Chapitre 1578 - Changement Céleste!
-
 « Le 18e niveau du Clan des Tatouages ne se situe pas dans les profondeurs de la planète Suzaku, mais dans le Champ de Bataille Extérieur! » Wang Lin s'approcha du mur et y pressa sa main droite. Des craquements résonnèrent tandis que les fissures se rejoignaient et que le mur s'effondrait, révélant une brèche.
 
 Wang Lin se tint dans l'ouverture. Devant lui se déployait le Champ de Bataille Extérieur!

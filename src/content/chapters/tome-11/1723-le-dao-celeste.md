@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1723 - Heavenly Dao!"
 slug: le-dao-celeste
 ---
-Chapitre 1723 - Le Dao Céleste!
-
 «...Le Dao Céleste!! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation de l'Omniscient était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était l'Omniscient!
 
 En observant le jeune homme qui s'ajustait le visage d'un geste de la main, Wang Lin peinait à apaiser les vagues qui déferlaient dans son cœur. Il était tel un navire solitaire sur une mer déchaînée, ballotté par des flots incessants.

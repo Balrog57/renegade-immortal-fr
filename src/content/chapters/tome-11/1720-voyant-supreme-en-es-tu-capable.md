@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1720 - Omniscient, Can You Do It
 slug: voyant-supreme-en-es-tu-capable
 ---
-Chapitre 1720 - Voyant Suprême, en es-tu capable?
-
 Sur la planète de culture, le vent soufflait sur Wang Lin, mais il ne parvenait pas à dissiper le frisson qui lui glaçait le cœur. Il leva la tête et scruta l'horizon.
 
 Au loin, l'aura du Voyant Suprême devenait de plus en plus puissante, exhalant une arrogance manifeste. Aux yeux de Wang Lin, une ombre gigantesque semblait se dessiner dans la distance. Cette silhouette drapée dans une robe blanche dissimulait son corps, ne laissant apparaître qu'un regard dont les yeux fixaient intensément Wang Lin.

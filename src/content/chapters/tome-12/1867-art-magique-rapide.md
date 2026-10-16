@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1867 - Rapid Spell Art!"
 slug: art-magique-rapide
 ---
-Chapitre 1867 - Art Magique Rapide!
-
 Une lueur sanglante jaillit. Cette entaille contenait toute la culture de Wang Lin et il utilisa son pouvoir du Dao Ancestral sans aucune retenue.
 
 Dans les terres célestes du Continent Astral Immortel, Wang Lin était extrêmement prudent avec son pouvoir du Dao Ancestral. Il ne voulait pas que trop de personnes le reconnaissent, car cela compliquerait ses mouvements dans ces contrées.

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1425 - Perhaps That Day Will Come
 slug: peut-être-que-ce-jour-viendra
 ---
-Chapitre 1425 - Peut-être que ce jour viendra...
-
 Les yeux du jeune homme étaient empreints de folie et un pressentiment funeste envahit son corps. Tandis qu'il dévalait la montagne, une sensation de froid glacial le saisit.
 
 Monter la montagne était ardu, mais la descendre l'était plus encore!

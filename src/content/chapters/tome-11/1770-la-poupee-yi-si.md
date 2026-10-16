@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1770 - Yi Si Puppet!"
 slug: la-poupee-yi-si
 ---
-Chapitre 1770 - La Poupée Yi Si!
-
 À l'intérieur de la Tombe Antique, Wang Lin chutait rapidement à travers le brouillard. Le vent hurlait à ses oreilles tandis qu'il descendait. Son Sens Divin était déployé, observant attentivement les environs.
 
 Wang Lin comprenait qu'il y avait de nombreuses choses étranges dans ce brouillard; il avait d'ailleurs déjà aperçu la plupart des bêtes féroces de cet endroit. Il modifia sa vitesse pour éviter les créatures à proximité et se dirigea vers l'avant-dernière couche.

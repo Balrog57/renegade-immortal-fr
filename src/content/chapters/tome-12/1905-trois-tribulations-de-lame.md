@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1905 - Three Soul Tribulants!"
 slug: trois-tribulations-de-lame
 ---
-Chapitre 1905 - Trois Tribulations de l'Âme!
-
 Wang Lin bondit du temple du scorpion et chargea vers le tambour céleste. La Lame Yin qu'il tenait dégageait une aura glaciale, une aura si froide qu'elle semblait capable de tout geler et ne devrait même pas exister.
 
 Le son du tambour résonna; alors que les vibrations pénétraient jusqu'aux os de Wang Lin, d'innombrables ombres surgirent des ondulations créées par l'instrument.

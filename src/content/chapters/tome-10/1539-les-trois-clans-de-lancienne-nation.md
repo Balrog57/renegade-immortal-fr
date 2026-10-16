@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1539 - Ancient Nation’s Three Clans!"
 slug: les-trois-clans-de-lancienne-nation
 ---
-Chapitre 1539 - Les Trois Clans de l'Ancienne Nation!
-
 Le fou continuait d'observer la réaction de Wang Lin. Il se gratta la tête et s'approcha prudemment. Il se frotta les mains et afficha un sourire malicieux: « Parlons! Quel est ton nom? Dis-le à ce roi, et ce roi te récompensera! »
 
 Wang Lin répondit par le silence et poursuivit sa culture, les yeux fermés.

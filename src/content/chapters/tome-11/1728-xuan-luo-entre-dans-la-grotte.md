@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1728 - Xuan Luo Enters the Cave!"
 slug: xuan-luo-entre-dans-la-grotte
 ---
-Chapitre 1728 - Xuan Luo entre dans la grotte!
-
 Alors qu'il parlait, l'expression des quatre généraux changea. Même celle du Vieux Fantôme Zhan devint sérieuse alors qu'il fixait Wang Lin.
 
 C'était la première fois que Wang Lin mentionnait cette troisième âme dont tout le monde songeait!

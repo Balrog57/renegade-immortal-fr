@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2055 - Ancient Dao Three Soul Splits!"
 slug: la-triple-division-de-lame-de-lancien-dao
 ---
-Chapitre 2055 - La Triple Division de l'Âme de l'Ancien Dao!
-
 « Je suis l'Ancien, je suis né avant que le monde n'apparaisse et j'ai survécu avant que le monde ne commence. Cependant, avant moi, il y avait encore les Célestes. Puisque les Célestes veulent faire de moi leur esclave, qu'ils me laissent les détruire!
 
 « Si j'échoue, mes descendants seront les ennemis des Célestes pour d'innombrables générations, jusqu'à ce qu'il ne reste plus aucun Céleste!

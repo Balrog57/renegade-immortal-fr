@@ -30,7 +30,7 @@ Pourtant, même s'ils ne pouvaient plus le tolérer, que pouvaient-ils faire? Os
 
 « Song Wude... Il avait perdu contre Maître autrefois. Maintenant que Maître est mort, il vient en personne... Se pourrait-il que ma Secte Origin soit vraiment destiné à sombrer dans la déchéance pour l'éternité... » Au sommet de la montagne du sud, Lu Yanfei se tenait dans le pavillon rouge, vêtue d'une robe écarlate. Son visage était empreint de tristesse et d'intention meurtrière. Sans hésiter, elle s'élança en un rayon de lumière rouge vers l'ouest.
 
-« Rudy, même si moi, Lu Yanfei, je dois mourir, je ne céderai pas devant vous!!! » Lu Yanfei se mordit la lèvre inférieure en volant. Des larmes coulèrent sur ses joues et se mêlèrent à la pluie; il était impossible de distinguer ses pleurs des précipitations...
+« Lu Di, même si moi, Lu Yanfei, je dois mourir, je ne céderai pas devant vous!!! » Lu Yanfei se mordit la lèvre inférieure en volant. Des larmes coulèrent sur ses joues et se mêlèrent à la pluie; il était impossible de distinguer ses pleurs des précipitations...
 
 Derrière les quatre grands anciens de la Secte Origin, leurs disciples directs les suivaient. Ils volaient vers l'ouest, animés par la panique, la détermination ou la colère.
 

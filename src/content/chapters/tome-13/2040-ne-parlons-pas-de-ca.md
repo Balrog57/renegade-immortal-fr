@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2040 - Don’t Talk About It!"
 slug: ne-parlons-pas-de-ca
 ---
-Chapitre 2040 - Ne parlons pas de ça!
-
 Alors que l'ensemble du Continent Astral Immortel alternait entre l'ombre et la lumière, au Mont Empereur, le Grand Empereur Jiu Di sortit de sa retraite en porte clos. Il scruta l'horizon et son expression changea.
 
 « C'est donc bien le Royaume Divin Immemorial... Il s'ouvre depuis le Clan Ancien cette fois... Et bien plus tôt que prévu... L'ouverture du Royaume Divin Immemorial ne devrait pas se produire si tôt. Cela signifie que... »

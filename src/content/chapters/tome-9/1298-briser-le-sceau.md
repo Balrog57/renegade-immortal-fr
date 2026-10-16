@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1298 - Tearing Off the Seal!"
 slug: briser-le-sceau
 ---
-Chapitre 1298 - Briser le sceau!
-
 Le sceau s'effondra soudainement après que Wang Lin l'eut déchiré. Une fois brisé, une aura d'une puissance indescriptible jaillit du corps de Wang Lin.
 
 Cette aura était si intense qu'elle forma un vortex. Ce vortex devint de plus en plus puissant, au point de semer la terreur dans les yeux des bêtes environnantes!

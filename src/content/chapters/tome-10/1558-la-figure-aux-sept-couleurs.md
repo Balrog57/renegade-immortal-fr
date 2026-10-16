@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1558 - Seven-Colored Figure!"
 slug: la-figure-aux-sept-couleurs
 ---
-Chapitre 1558 - La Figure aux Sept Couleurs!
-
 Le corps de Qing Shui trembla violemment. Wang Lin extraya la vrille de sa poitrine sur plusieurs centimètres. Une force d'aspiration émana de la blessure, retenant l'épine, et Wang Lin sentit cette aspiration le solliciter à son tour.
 
 Alors que Wang Lin tirait sur la vrille, une étrange aura passa de l'épine au cœur de Wang Lin. Son rythme cardiaque s'accéléra brutalement et le martèlement de son cœur se mit à résonner comme un fou.

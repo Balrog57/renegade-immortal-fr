@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1579 - The Lord of the Sealed Realm’s Calamity!"
 slug: la-calamite-du-seigneur-du-royaume-scelle
 ---
-Chapitre 1579 - La Calamité du Seigneur du Royaume Scellé!
-
 L'espace au-delà de la planète Suzaku n'était pas une obscurité parsemée d'étoiles, mais un environnement baigné d'une lumière bleue. Tout le ciel étoilé était devenu entièrement bleu!
 
 C'était comme un rideau céleste!

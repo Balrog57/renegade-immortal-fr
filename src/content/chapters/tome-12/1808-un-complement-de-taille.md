@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1808 - Large Supplement!"
 slug: un-complement-de-taille
 ---
-Chapitre 1808 - Un complément de taille!
-
 L'homme d'âge mûr vêtu de la robe impériale tendit la main, et un vortex se matérialisa dans la salle. Une lueur fantomatique en émana, semblant mener vers l'inconnu.
 
 Un hurlement résonna à l'intérieur du vortex, et deux ombres floues apparurent avant d'être extraites par l'homme en robe impériale.

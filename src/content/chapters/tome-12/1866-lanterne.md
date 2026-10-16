@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1866 - Lantern!"
 slug: lanterne
 ---
-Chapitre 1866 - Lanterne!
-
 Vie et mort, karma, vrai et faux, feu, eau, tonnerre! Six essences se rassemblèrent pour initier ce massacre.
 
 Le volcan s'effondra, le tonnerre explosa, et l'essence de sang se mua en gaz. Les trois épées d'essence éthérées s'élancèrent tandis que le rugissement de Xu Decai résonnait.

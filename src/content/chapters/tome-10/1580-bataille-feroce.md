@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1580 - Fierce Battle!"
 slug: bataille-feroce
 ---
-Chapitre 1580 - Bataille féroce!
-
 À l'instant même où l'empreinte de paume dorée apparut, Wang Lin fit un pas en avant. Des ondulations résonnèrent et il surgit soudainement au-dessus de la paume. Il mordit le bout de sa langue et cracha du sang doré dans l'empreinte, intensifiant ainsi son éclat fulgurant.
 
 « Si vous voulez me tuer, alors vous devrez tous en payer le prix! » Wang Lin poussa un rugissement et son expression devint féroce. Sa main droite pressa vers le bas, faisant descendre l'empreinte de paume dorée. La pression exercée par celle-ci provoqua la formation de tourbillons dans l'eau en contrebas.

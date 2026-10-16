@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: Chapter 368
 slug: grande-calamite
 ---
-Chapitre 368 - Grande Calamité!
-
 Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Son visage était d'une extrême sévérité lorsqu'il se redressa, mais après avoir réfléchi un instant, il se rassoit.
 
 Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Frère apprenti aîné, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi! Si tu le ruines, je ruinerai Qian Feng! »

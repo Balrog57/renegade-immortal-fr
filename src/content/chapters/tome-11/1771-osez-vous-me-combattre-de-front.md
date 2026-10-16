@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1771 - Do You Dare to Fight Me Head On
 slug: osez-vous-me-combattre-de-front
 ---
-Chapitre 1771 - Osez-vous me combattre de front?
-
 Wang Lin s'arrêta et regarda la troisième concubine. Lorsqu'il croisa son regard, il y vit de la gravité et de la détermination. C'était ce que Wang Lin ressentait lui aussi.
 
 L'expression froide de Wang Lin se détendit légèrement. Grâce à sa sagesse, il pouvait voir qu'elle voulait sincèrement l'aider. Il se souvint de leur rencontre dans l'Ancienne Tombe. Après avoir silencieusement réfléchi un instant, le regard de Wang Lin tomba sur le poignet de la femme.

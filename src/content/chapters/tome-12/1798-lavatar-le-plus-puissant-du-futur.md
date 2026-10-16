@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1798 - The Strongest Avatar in the Future!"
 slug: lavatar-le-plus-puissant-du-futur
 ---
-Chapitre 1798 - L'Avatar le Plus Puissant du Futur!
-
 Il avait désespérément subi des métamorphoses et pris d'énormes risques pour accélérer ses évolutions. Il avait même dévoré ses compagnons dans l'unique but de trouver Wang Lin, de retrouver son maître!
 
 Ses cris de douleur résonnaient dans le vide. Il n'avait plus de corps et n'était plus qu'un nuage de brume. Il se déplaçait à une vitesse fulgurante à travers le vide infini. Tandis qu'il cherchait, l'impatience le gagnait. Il marqua un instant une pause, puis son corps s'effondra complètement.

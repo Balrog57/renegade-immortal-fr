@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1649 - Still Not Enough!"
 slug: encore-pas-assez
 ---
-Chapitre 1649 - Encore pas assez!
-
 Au moment où Wang Lin parla, les centaines de têtes derrière lui, dont les regards étaient autrefois éteints, s'illuminèrent soudainement. Simultanément, des hurlements déchirants commencèrent à résonner.
 
 Ces cris révélaient une douleur indicible. Ils auraient terrifié les plus timorés, et même les plus braves en seraient restés pétrifiés, le visage blême.

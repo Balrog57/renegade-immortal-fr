@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1836 - Avatar’s Suppression!!"
 slug: suppression-de-lavatar
 ---
-Chapitre 1836 - Suppression de l'Avatar!!
-
 Les cieux et la terre tremblèrent, et les escaliers gigantesques semblaient mener directement aux cieux. Wang Lin se tenait sur la première marche comme un dieu céleste. Ses cheveux blancs flottant au vent lui conféraient une élégance souveraine.
 
 Il baissa la tête et son regard balaya le sol. Finalement, ses yeux se posèrent sur le pic de Yan Lu et sur la disciple dont le sens divin de Yan Lu avait pris possession. La jeune femme trembla, le visage marqué par la stupeur. Yan Lu sentit que son sens divin allait être expulsé du corps de la disciple.

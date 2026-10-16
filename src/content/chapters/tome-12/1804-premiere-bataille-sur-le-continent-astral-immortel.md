@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1804 - First Battle On the Immortal Astral Continent !"
 slug: première-bataille-sur-le-continent-astral-immortel
 ---
-Chapitre 1804 - Première bataille sur le continent Astral Immortel!
-
 Suivant le regard du jeune homme, l'homme d'âge moyen aperçut la colonne de feu au fond de la grotte, et ses pupilles se rétractèrent soudainement.
 
 Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte du Dragon Bleu, il dominait beaucoup de monde et n'était inférieur qu'à peu d'entre eux. Même sur l'ensemble du continent Taureau Céleste, il figurait parmi les plus puissants.

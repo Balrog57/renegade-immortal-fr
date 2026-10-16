@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1823 - The Young Woman’s Miscalculation!"
 slug: lerreur-de-calcul-de-la-jeune-femme
 ---
-Chapitre 1823 - L'Erreur de Calcul de la Jeune Femme!
-
 Wang Lin s'était préparé à l'idée que la jeune femme au stade initial de la Tribulation du Vide, située au sommet de la montagne, finirait tôt ou tard par le remarquer. Dès que celle-ci fit un mouvement, la partie de son âme originelle qu'il avait laissée dans son corps emprunta la puissance du feu pour attirer son enveloppe charnelle vers son véritable corps d'essence.
 
 Tout au long du trajet, les flammes l'entouraient, mais il ne ressentait aucune chaleur. C'était parce que son véritable corps d'essence de feu avait pris de l'avance et avait absorbé une grande partie de la volonté du feu. Autrement, le corps de Wang Lin n'aurait pas pu supporter la chaleur après le départ de son essence véritable.

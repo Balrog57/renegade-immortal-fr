@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1176 - Wouldnt It Be Better to Forget About Each Other
 slug: ne-serait-il-pas-mieux-de-soublier-lun-lautre
 ---
-Chapitre 1176 - Ne serait-il pas mieux de s'oublier l'un l'autre?
-
 En l'espace de deux courts jours, la partie de la ville détruite par l'Empreinte d'Esprit de Guerre de Wang Lin fut rapidement reconstruite par la Secte du Jade Précieux.
 
 Il n'aura fallu que deux jours, une quantité massive de pierres spirituelles et le travail d'innombrables cultivateurs pour que la ville soit restaurée avant le début des enchères.

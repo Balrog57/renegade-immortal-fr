@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2014 - Golden Opportunity!"
 slug: une-occasion-en-or
 ---
-Chapitre 2014 - Une occasion en or!
-
 « Il y a au total 999 marches de pierre, et chaque centaine représente 10 % de ma puissance! À travers les âges, aucun Grand Empereur n'a pu atteindre la 600e marche sous ma volonté.
 
 « La personne qui est allée le plus loin était un Grand Empereur nommé Dong Lin, du clan céleste. Il n'a pas réussi à atteindre la 600e marche et, après avoir laissé quelqu'un derrière lui, je l'ai laissé partir.

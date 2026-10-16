@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1681 - The Tip of the Sword That Entered the Immortal Astral Continent!"
 slug: la-pointe-de-lepee-qui-penetre-le-continent-astral-immortel
 ---
-Chapitre 1681 - La pointe de l'épée qui pénètre le Continent Astral Immortel!
-
 Le sens divin de Wang Lin lui permettait de tout percevoir dans cet endroit mystérieux. Ce lieu n'était pas très vaste, mais ressemblait à un long et étroit passage!
 
 Les parois du conduit étaient austères et parsemées de zones dégradées, donnant l'impression que le passage pouvait s'effondrer à tout instant.

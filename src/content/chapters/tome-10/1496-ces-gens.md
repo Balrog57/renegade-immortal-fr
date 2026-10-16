@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1496 - Those People!"
 slug: ces-gens
 ---
-Chapitre 1496 - Ces Gens!
-
 Leur force écrasante fit s'effondrer la volonté de combat de Maître Lu Fu! Il ne pouvait plus lutter et n'était plus que le siège d'un choc indescriptible!
 
 Malgré son niveau de culture, Maître Lu Fu ne pouvait qu'éprouver une immense amertume en contemplant stupéfait ce qui se déroulait sous ses yeux.

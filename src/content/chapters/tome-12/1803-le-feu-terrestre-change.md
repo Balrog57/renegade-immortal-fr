@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1803 - The Earth Fire is Changing!"
 slug: le-feu-terrestre-change
 ---
-Chapitre 1803 - Le Feu Terrestre Change!
-
 Ce serait la première fois que Wang Lin ouvrirait les yeux sur le Continent Astral Immortel avant de secouer l'intégralité du continent!
 
 C'était la première fois qu'il voyait le Continent Astral Immortel de ses propres yeux. C'était la première fois qu'il ressentait lui-même l'aura de ce monde!

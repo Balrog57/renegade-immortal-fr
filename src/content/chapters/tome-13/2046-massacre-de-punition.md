@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2046 - Punishment Slaughter!"
 slug: massacre-de-punition
 ---
-Chapitre 2046 - Massacre de Punition!
-
 Le corps sphérique de la boule de viande était illusoire; dès son apparition, il fut enveloppé d'un gaz noir. Il poussa un hurlement et s'élança vers le véritable corps des cinq éléments de Wang Lin.
 
 À mesure qu'il approchait, son cri devenait plus strident encore.

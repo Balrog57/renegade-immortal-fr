@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2038 - Immemorial God Realm!"
 slug: le-royaume-divin-immemorial
 ---
-Chapitre 2038 - Le Royaume Divin Immemorial!
-
 Les yeux de Wang Lin s'illuminèrent, mais il ne dit mot et poursuivit ses actions frénétiques. Il avait fait fusionner l'âme de l'Empereur Céleste avec la tête de l'Ancêtre Céleste afin d'accélérer le processus. Il les avait combinées à son soleil d'Empyrée pour en extraire une force puissante.
 
 À cet instant, alors que le soleil d'Empyrée brûlait, l'astre gigantesque se rétracta rapidement. En un clin d'œil, il passa de sa taille immense à une dimension minuscule jusqu'à disparaître. Simultanément, cette force colossale pénétra le corps de Wang Lin par un chemin étrange; alors, il frappa le sol de son pied droit.

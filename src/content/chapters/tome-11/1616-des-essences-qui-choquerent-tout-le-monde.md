@@ -44,7 +44,7 @@ C'était l'Empreinte du Karma. Qu'il soit impossible de la voir distinctement é
 
 « Cela...! C'est le Grand Dao du Karma! Trois essences, ce sont réellement trois essences! Déclencher la Porte du Vide avec trois essences... cela ne s'était jamais produit auparavant. Qui est-ce donc!? » L'expression du jeune homme en robe verte changea radicalement.
 
-Le Maître Nuage du Sud était tout aussi sous le choc. Son niveau de culture était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
+Le Maître Nan Yunzi était tout aussi sous le choc. Son niveau de culture était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
 
 « C'est vraiment une troisième essence! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation du troisième pas, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade Vide du Nirvana, il sera capable d'assassiner des cultivateurs Vide Spirituel! »
 
@@ -102,15 +102,15 @@ Cette cinquième essence était faite de Vérité et de Faux. Après son apparit
 
 L'esprit de tous les cultivateurs alentour trembla de manière incontrôlable. Ils étaient sans cesse repoussés par la pression croissante de la Porte du Vide.
 
-Les yeux du Maître Nuage du Sud s'illuminèrent. Il ignorait quel camp déclenchait la Porte, mais il savait qu'il s'agissait d'une occasion unique dans une vie.
+Les yeux du Maître Nan Yunzi s'illuminèrent. Il ignorait quel camp déclenchait la Porte, mais il savait qu'il s'agissait d'une occasion unique dans une vie.
 
-« Brilliants cultivateurs du Vide, ne fixez pas la Porte, chargeons! » rugit le Maître Nuage du Sud, sa voix réveillant les milliers de cultivateurs du Royaume Intérieur. Il chargea vers le jeune homme en robe verte qui était resté pétrifié.
+« Brilliants cultivateurs du Vide, ne fixez pas la Porte, chargeons! » rugit le Maître Nan Yunzi, sa voix réveillant les milliers de cultivateurs du Royaume Intérieur. Il chargea vers le jeune homme en robe verte qui était resté pétrifié.
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu lancèrent également l'assaut. Ils engagèrent une bataille acharnée contre les cultivateurs du Royaume Extérieur tandis que le grondement de la Porte du Vide résonnait.
 
 Les milliers de cultivateurs du Royaume Intérieur les suivirent. En un instant, un bain de sang commença!
 
-C’est alors qu'un reniflement glacial retentit au loin. Un nuage de brume violette apparut de nulle part. Trop rapide, il s'engouffra instantanément sur le champ de bataille et percuta le Maître Nuage du Sud qui combattait le jeune homme en vert. Un fracas tonitruant éclata et le visage du Maître Nuage du Sud devint livide. Déjà blessé, il fut projeté vers la planète Suzaku par l'impact.
+C’est alors qu'un reniflement glacial retentit au loin. Un nuage de brume violette apparut de nulle part. Trop rapide, il s'engouffra instantanément sur le champ de bataille et percuta le Maître Nan Yunzi qui combattait le jeune homme en vert. Un fracas tonitruant éclata et le visage du Maître Nan Yunzi devint livide. Déjà blessé, il fut projeté vers la planète Suzaku par l'impact.
 
 « L'un des Cinq Maîtres du Système Stellaire Antique! Vite, repliez-vous vers la planète Suzaku et résistez avec la formation! »
 
@@ -120,6 +120,6 @@ Une lumière dorée enveloppa Situ Nan. Au moment le plus critique, il sortit le
 
 Le corps du Maître Long Pan se désintégra également; lorsqu'il se reforma, il était presque transparent. Sans hésiter, il agita la main pour ramener les âmes originelles de Situ Nan et du Maître Lu Fu vers la planète Suzaku.
 
-Quant aux milliers de cultivateurs, ils reculèrent tous sans hésitation sous le cri du Maître Nuage du Sud, regagnant la planète Suzaku par toutes les directions.
+Quant aux milliers de cultivateurs, ils reculèrent tous sans hésitation sous le cri du Maître Nan Yunzi, regagnant la planète Suzaku par toutes les directions.
 
 La brume violette flotta un instant, puis se dispersa pour laisser sortir un vieil homme. Ce dernier dégageait une pression puissante sans même paraître en colère. Il regarda froidement la Porte du Vide, ses pupilles se contractant imperceptiblement.

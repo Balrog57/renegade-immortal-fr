@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1893 - Each With Their Own Plots!"
 slug: chacun-ses-propres-complots
 ---
-Chapitre 1893 - Chacun ses propres complots!
-
 Le corps véritable d'essence de tonnerre fixa froidement Wang Lin, tandis qu'un grondement tonitruant résonnait dans l'espace. Il bougea soudainement et abattit sa main vers lui. D'innombrables éclairs jaillirent en direction de Wang Lin, le submergeant avec une rapidité fulgurante.
 
 Wang Lin resta assis là, levant les yeux vers son corps véritable d'essence de tonnerre qui l'écrasait impitoyablement. Son expression était sombre; désormais qu'il était réveillé, l'image du maître de la Secte Dao Démoniaque s'imposa dans son esprit.

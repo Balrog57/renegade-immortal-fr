@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1834 - Desire to Step on the Clear Sky!"
 slug: le-desir-de-fouler-le-ciel-limpide
 ---
-Chapitre 1834 - Le désir de fouler le ciel limpide!
-
 Une lueur sanglante jaillit. Wang Lin leva la main droite et l'épée de sang s'abattit au sol.
 
 « Cette épée devrait suffire! »

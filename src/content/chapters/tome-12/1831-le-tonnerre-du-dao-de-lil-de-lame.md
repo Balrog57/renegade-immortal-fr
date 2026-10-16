@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1831 - Soul Eye Dao Thunder!"
 slug: le-tonnerre-du-dao-de-lil-de-lame
 ---
-Chapitre 1831 - Le Tonnerre du Dao de l'Œil de l'Âme!
-
 Au sein du Grand Secte de l'Âme, la montagne où se trouvait Wang Lin était tout à fait unique. Elle brûlait sans cesse et le feu ne s'éteignait jamais, pourtant aucune fumée n'en émanait. Le monde environnant semblait se distordre sous l'effet de la chaleur, donnant à tout ce qui entourait la montagne l'apparence d'une illusion.
 
 La montagne était si brûlante que quiconque s'en approchait était couvert de sueur; un pas de plus, et on aurait eu l'impression que son propre sang bouillonnait.

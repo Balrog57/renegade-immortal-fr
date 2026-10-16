@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1644 - Calm!"
 slug: calme
 ---
-Chapitre 1644 - Calme!
-
 L'esprit tigre baissa la tête et s'inclina devant Wang Lin. Il se rua ensuite dans le vortex pour ne faire qu'un avec lui. Le vortex disparut et se transforma de nouveau en un gigantesque Tigre Blanc.
 
 Le Tigre Blanc poussa un cri, bondit sous les pieds de Wang Lin et s'élança vers les cieux. Au loin, il se retourna pour lancer un dernier regard à Wang Lin, ignorant totalement le vieil homme aux cheveux blancs. Il secoua son corps, puis se changea en d'innombrables éclats de lumière blanche qui illuminèrent l'Ancien Royaume Céleste.

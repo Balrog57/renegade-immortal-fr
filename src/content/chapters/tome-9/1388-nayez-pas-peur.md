@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1388 - Don’t Be Afraid!"
 slug: nayez-pas-peur
 ---
-Chapitre 1388 - N'ayez pas peur!
-
 « Nemesis... Il est ma nemesis! Même mes trésors sont contrés! » hurla Cupidité en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
 
 Il avait déjà fait cela auparavant... Depuis son arrivée dans le Système Stellaire Antique, chaque fois qu'il repensait à ce qui s'était passé, son cœur lui faisait une douleur atroce. Il avait juré de ne plus jamais sacrifier un trésor pour créer une diversion lors d'une fuite. À ses yeux, perdre un trésor était pire que la mort.

@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2053 - Help succeed!"
 slug: succes-assure
 ---
-Chapitre 2053 - Succès assuré!
-
 Wang Lin regarda le Grand Empyréen Song Tian élever la Montagne d'Origine vers les cieux; la terre trembla alors qu'une lumière noire toujours plus intense se dégageait de l'artefact.
 
 Leurs expressions restaient toutes deux calmes tandis qu'il les observait froidement.

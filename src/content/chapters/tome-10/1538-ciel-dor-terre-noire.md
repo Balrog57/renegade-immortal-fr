@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1538 - Golden Sky Black Earth!"
 slug: ciel-dor-terre-noire
 ---
-Chapitre 1538 - Ciel d'or, Terre noire!
-
 À l'instant même où Wang Lin ouvrit les yeux, une marque circulaire apparut entre ses sourcils. Cette marque était presque identique à celle du fou!
 
 L'apparition de ce sceau fit instantanément bouillir le nouveau sang qui coulait dans ses veines.

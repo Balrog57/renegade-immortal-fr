@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1914 - Refusing the Edict
 slug: refuser-ledit
 ---
-Chapitre 1914 - Refuser l'Édit?
-
 Alors que le dragon de mer chargeait dans les cieux vers Wang Lin, un rayon de lumière dorée jaillit du Continent du Taureau Céleste pour atteindre le Continent du Démon Vert, se déplaçant à une vitesse dépassant celle des cultivateurs de la Tribulation du Vide. À cette allure, il ne faudrait pas longtemps avant qu'il n'atteigne la Secte du Dao Démoniaque!
 
 Le dragon de mer rugit et se rapprocha rapidement de Wang Lin. À l'intérieur de l'île protégée par une lumière jaune terreuse, le maître de la Secte du Dao Démoniaque scrutait les cieux. Son regard pouvait aisément percer la barrière pour tout voir à l'extérieur.

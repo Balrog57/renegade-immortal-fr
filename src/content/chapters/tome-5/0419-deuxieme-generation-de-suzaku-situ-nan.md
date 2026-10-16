@@ -6,8 +6,6 @@ bookTitle: Cultivation Planet Crystal
 en: Chapter 419 - Second generation Suzaku Situ Nan
 slug: deuxieme-generation-de-suzaku-situ-nan
 ---
-Chapitre 419 - Deuxième génération de Suzaku? Situ Nan?
-
 D’un ton arrogant, Du Tian déclara: « Voici la puissance du drapeau d'âmes au milliard d'âmes de ma Secte de Raffinement des Âmes. Qu'en penses-tu? »
 
 Wang Lin répondit: « Très puissant! »

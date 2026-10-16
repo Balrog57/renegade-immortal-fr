@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1973 - White-Haired Ascendant Empyrean!"
 slug: lascendant-empyreen-aux-cheveux-blancs
 ---
-Chapitre 1973 - L'Ascendant Empyréen aux cheveux blancs!
-
 « Ne flèches se dispersant en d'innombrables traits pour former une main... Cela atteint à peine la puissance d'un Empyréen Exalté ayant franchi le septième palais... Vous neuf devriez posséder la puissance d'un Empyréen Exalté ayant franchi le quatrième palais. »
 
 « Digne du Manoir Li, vos fondations sont profondes! » dit lentement Wang Lin en avançant.

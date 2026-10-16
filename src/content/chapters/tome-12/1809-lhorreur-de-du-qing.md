@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1809 - Du Qing’s Horror!"
 slug: lhorreur-de-du-qing
 ---
-Chapitre 1809 - L'Horreur de Du Qing!
-
 « Le changement dans la veine de feu terrestre a dû attirer l'attention. Il n'est pas prudent de rester ici. » Wang Lin se leva et agita ses manches, effaçant toutes les restrictions qu'il avait laissées sur place.
 
 Wang Lin ne voulait laisser aucun indice aux poursuivants, surtout pas le fait qu'il maîtrisait les restrictions. Dans ce continent étrange, une couche de mystère supplémentaire constituait une protection supplémentaire.

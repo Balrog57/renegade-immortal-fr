@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1342 - The Path of a Powerful Thunder Cultivator!"
 slug: la-voie-dun-puissant-cultivateur-du-tonnerre
 ---
-Chapitre 1342 - La Voie d'un Puissant Cultivateur du Tonnerre!
-
 Il y avait ici 7 millions de mondes, ce qui donnait à cet endroit une apparence infinie. Mais les membres du Clan du Tonnerre Dispersé n'avaient pas besoin de chercher aveuglément. Chaque fois qu'un être était sur le point de subir sa rétribution divine, le talisman que tenaient les membres du clan le détectait. Alors, le cultivateur du Clan du Tonnerre Dispersé le plus proche était téléporté sur les lieux pour être transformé en puissance céleste!
 
 Alors que Wang Lin traversait les 7 millions de mondes et contemplait les planètes, un sentiment complexe envahit son cœur. Son expression était sombre tandis qu'il observait ce monde qui ne pouvait être distingué du monde réel. Après un long moment, il laissa échapper un soupir. Puis, d'un revers de la main droite, plus de dix marques du Clan du Tonnerre Dispersé apparurent dans sa paume.

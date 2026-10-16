@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 944 - Heaven Defying Bead Reappears!"
 slug: la-perle-defiant-les-cieux-reapparait
 ---
-Chapitre 944 - La Perle Défiant le Ciel Réapparaît!
-
 La voix triste de Lou Chen résonna à travers le vide pour atteindre les oreilles de Wang Lin. L'esprit de Wang Lin trembla et il ressentit une forme de résonance!
 
 Lou Chen avait osé défier les cieux, sans crainte du ciel ni de la terre. Cependant, il n'avait pu inverser son propre destin: le Serpent Regardant la Lune!

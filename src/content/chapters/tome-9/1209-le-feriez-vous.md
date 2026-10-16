@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1209 - Would You
 slug: le-feriez-vous
 ---
-Chapitre 1209 - Le feriez-vous?
-
 En tant que l'un des sept grands clans de l'Ancien Système Stellaire, le Clan Dévorant la Lune contrôlait un vaste champ stellaire. Leur ancêtre avait autrefois accompli de grands mérites, conférant au Clan Dévorant la Lune un statut extrêmement élevé. De plus, trois d'entre eux étaient devenus des Anciens de l'Union Souveraine, ce qui leur avait permis de connaître d'innombrables années de gloire.
 
 Dans la partie sud du territoire du Clan Dévorant la Lune, il existait une terre interdite où nul n'était autorisé à pénétrer. Cette zone était protégée par de lourdes mesures de sécurité, et seuls certains membres du clan pouvaient y accéder pour cultiver.

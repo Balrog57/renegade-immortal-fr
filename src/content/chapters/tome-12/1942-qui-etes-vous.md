@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1942 - Who Are You
 slug: qui-etes-vous
 ---
-Chapitre 1942 - Qui êtes-vous?
-
 Après avoir entendu cela, le vieil homme plissa les yeux et observa attentivement Liu Jinbiao. À cet instant, il sentit que quelque chose n'allait pas. Liu Jinbiao n'était qu'au stade de la Formation du Noyau, pourtant il avait décelé une présence cachée: une aura incroyablement ancienne qui semblait exister depuis des éons.
 
 Liu Jinbiao fixa le vieil homme et dit froidement: « Je sais que vous envisagez de fouiller mon âme, mais je peux vous prévenir qu'avant même que vous n'ayez terminé, mon maître sera là. Ce qui attend votre Secte du Nuage, c'est une catastrophe de destruction totale! »
@@ -92,7 +90,7 @@ Cette voix surgit si soudainement qu'elle fit tressaillir Liu Jinbiao. Il se cal
 
 Il n'avait jamais ressenti cela, même au sein de la Secte du Nuage. En réalité, il n'avait jamais éprouvé une telle sensation de sa vie. Tremblant, il s'appuya contre un arbre et fixa Wang Lin.
 
-« Mon maître est le disciple du Grand Empyréen Gemini, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
+« Mon maître est le disciple du Grand Empyréen Gémeaux, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
 
 Wang Lin l'examina un instant puis sourit: « C'est une belle imitation. Vous avez dû vous tromper vous-même en utilisant la seconde étape de la tromperie, vous répétant sans cesse que vous êtes l'Exalté Empyréen Gu Ya avant même de graver le nom. »
 

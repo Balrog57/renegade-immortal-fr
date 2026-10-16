@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: The Giant Hand Returns!
 slug: coup-fatal
 ---
-Chapitre 1455 - Coup fatal!
-
 Il avait utilisé l'essence sonore pour briser la Porte du Vide et atteindre la troisième étape. Puis, il avait raffiné la Mer Étoilée Ancienne et avait bénéficié d'une immense chance qui permit à son essence aquatique de se concrétiser. Bien qu'elle n'ait pas atteint la perfection, la fusion des deux essences était suffisante pour lui permettre de secouer les cieux! C'était l'un des cinq maîtres du Système Stellaire Antique, le Maître Dao Miao Yin!
 
 À cet instant, la plupart des écailles violettes sur son corps s'étaient effondrées et il était trempé de sang. Son expression était extrêmement hideuse et il laissa échapper un cri assourdissant tout en battant en retraite.

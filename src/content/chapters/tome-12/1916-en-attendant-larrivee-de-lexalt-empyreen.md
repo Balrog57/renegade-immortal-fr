@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1916 - Waiting for the Exalté Empyréen to Arrive!"
 slug: en-attendant-larrivee-de-lexalt-empyreen
 ---
-Chapitre 1916 - En attendant l'arrivée de l'Exalté Empyréen!
-
 Après avoir dévoré le Maître de la Secte Dao Démon, Wang Lin ferma les yeux et des bruits de craquements résonnèrent dans son corps. Il effaça le Sens Divin de l'âme originelle et l'injecta dans ses Veines Magiques. Lorsqu'il aurait du temps libre, il pourrait utiliser cette âme originelle pour augmenter le nombre de Veines Magiques dont il disposait.
 
 Un instant plus tard, Wang Lin ouvrit les yeux et agita sa manche. La terre trembla, tout comme le lac et l'île à moitié effondrés. Tandis qu'une tempête balayait les lieux, ils furent totalement détruits.

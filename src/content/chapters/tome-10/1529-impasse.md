@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1529 - Deadlock!"
 slug: impasse
 ---
-Chapitre 1529 - Impasse!
-
 La Hache Fendant les Cieux qui jaillit de la main droite de Wang Lin s'étendit des milliers de fois. Lorsqu'elle s'abattit, une immense faille apparut dans l'espace!
 
 Cette déchirure s'engouffra par l'ouverture de la Formation de Scellement du Royaume et se précipita vers l'extérieur. Les deux cultivateurs du troisième niveau furent stupéfaits. À cet instant, ils ne tentèrent pas de résister mais s'empressèrent d'esquiver.
@@ -46,7 +44,7 @@ Tandis que des grondements faisaient écho, encore plus de cultivateurs du Royau
 
 Des dizaines de milliers de cultivateurs se précipitèrent vers l'ouverture, poursuivis par les cultivateurs du Royaume Intérieur. À cet instant, tous convergeaient vers l'endroit où se tenait Wang Lin!
 
-Le Feu Éthéré se répandit, et tous les cultivateurs du Royaume Extérieur qui chargeaient furent consumés par lui. Le Maître Nuage du Sud avait terminé la partie la plus lente de la réparation, celle-ci touchant à sa fin.
+Le Feu Éthéré se répandit, et tous les cultivateurs du Royaume Extérieur qui chargeaient furent consumés par lui. Le Maître Nan Yunzi avait terminé la partie la plus lente de la réparation, celle-ci touchant à sa fin.
 
 La faille de la Formation de Scellement du Royaume se refermait progressivement, ce qui rendait les cultivateurs du Royaume Extérieur encore plus déchaînés.
 
@@ -74,7 +72,7 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 « Laissez-les revenir », dit lentement l'homme d'âge mûr en fixant Wang Lin.
 
-« Maître du Dao Rêve Bleu! » Les pupilles du Maître Nuage du Sud, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
+« Maître du Dao Rêve Bleu! » Les pupilles du Maître Nan Yunzi, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
 
 La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
 

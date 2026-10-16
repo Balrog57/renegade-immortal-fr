@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1020 - Qing Lin
 slug: qing-lin
 ---
-Chapitre 1020 - Qing Lin?
-
 Wang Lin avait initialement l'intention d'utiliser le pouvoir du Guide des Enfers pour ouvrir un passage vers l'extérieur de la bouteille. Cependant, alors que l'énergie démoniaque envahissait le vortex depuis l'autre côté, le Guide des Enfers perdit le contrôle!
 
 L'énergie démoniaque était si dense que Wang Lin se retira immédiatement dès qu'il en perçut une infime partie. Une trace de choc marqua son expression sombre.

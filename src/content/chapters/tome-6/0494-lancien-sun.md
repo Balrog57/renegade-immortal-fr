@@ -6,8 +6,6 @@ bookTitle: Arriving on Tian Yun
 en: "Chapter 494 - Elder Sun!"
 slug: lancien-sun
 ---
-Chapitre 494 - L'Ancien Sun!
-
 L'Omniscient ne dispensait son enseignement qu'une fois tous les dix mille ans, et la durée de cette leçon variait à chaque occurrence. C'était une opportunité inestimable pour quiconque venait en quête du Dao. Il s'agissait d'un événement unique à la planète Tian Yun, apparu dès que l'Omniscient entra en existence.
 
 Parmi les immenses foules venues de tous horizons, certains étaient des cultivateurs extrêmement puissants. Cependant, même eux écoutaient attentivement l'Omniscient et gardaient ses paroles précieusement en mémoire.

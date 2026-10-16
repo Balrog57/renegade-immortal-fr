@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1963 - Send Back!"
 slug: retournez
 ---
-Chapitre 1963 - Retournez!
-
 Les Empereurs Ascendants en contrebas étaient plongés dans un silence total. Tous les bouleversements de cette journée avaient fait taire leurs cris; ils se contentaient désormais de fixer le 16e palais, flou, et la silhouette blanche qui se tenait à ses côtés.
 
 Les actions de Wang Lin avaient totalement renversé la situation défavorable d'autrefois. Toutes les questions et tous les doutes avaient été balayés par une force absolue, ne laissant aucune trace derrière eux.

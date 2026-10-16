@@ -68,7 +68,7 @@ Personne, pas même la femme, ne soupçonnait que Wang Lin se trouvait dans la s
 
 « C'est la boussole! Une fois que je l'aurai obtenue, je n'aurai plus besoin de me cacher dans la brume. C'est le seul objet capable de détecter mon entrée dans la Mer des Pilules... » Grâce à son essence de restriction, Wang Lin avait étudié ce mécanisme et savait que cette boussole en était la clé.
 
-Seul cet instrument pouvait garantir qu'il resterait indétectable dans la mer. Il pourrait alors trouver Nuage du Vide, l'exterminer et s'échapper sain et sauf. La boussole était également son seul moyen de localiser Nuage du Vide; il serait impossible de débusquer un homme seul dans cette immensité sans elle!
+Seul cet instrument pouvait garantir qu'il resterait indétectable dans la mer. Il pourrait alors trouver Yun Kong, l'exterminer et s'échapper sain et sauf. La boussole était également son seul moyen de localiser Yun Kong; il serait impossible de débusquer un homme seul dans cette immensité sans elle!
 
 Cependant, la situation était périlleuse. Pour s'emparer de l'objet, il devrait sortir de sa dissimulation, révélant ainsi sa présence à tous ceux qui se trouvaient en bas.
 
@@ -86,11 +86,11 @@ Les yeux de la femme s'animèrent d'une lueur vive. Sa main gauche continuait de
 
 Ses agissements attirèrent l'attention du jeune homme à l'éventail. Il s'avança pour observer l'instrument et sourit.
 
-« Ne sois pas si paranoïaque. Avec le Frère Aîné Nuage du Vide ici, tout ira bien. »
+« Ne sois pas si paranoïaque. Avec le Frère Aîné Yun Kong ici, tout ira bien. »
 
 La femme réfléchit un instant avant de hocher la tête.
 
-« Le Frère Aîné Nuage du Vide est déjà à l'œuvre; bientôt, la Mer des Pilules disparaîtra. Nous pourrons alors contempler la puissance de la légendaire demi-Pilule Céleste! » La femme leva les yeux vers l'horizon.
+« Le Frère Aîné Yun Kong est déjà à l'œuvre; bientôt, la Mer des Pilules disparaîtra. Nous pourrons alors contempler la puissance de la légendaire demi-Pilule Céleste! » La femme leva les yeux vers l'horizon.
 
 Tapis dans le brouillard céleste, Wang Lin perçut vaguement leur conversation. En déduisant des indices de leurs expressions, son cœur rata un bond.
 

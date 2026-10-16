@@ -42,7 +42,7 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empereur Huit Extrêmes! »
 
-« La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gemini! »
+« La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gémeaux! »
 
 « La Secte Dao Yi du Continent Sud possède le Grand Empereur Dao Yi! »
 
@@ -94,7 +94,7 @@ Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fû
 
 « Avec assez de renommée, les Grands Empereurs viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empereurs. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empereur Dao Yi, le Grand Empereur Feng ou le Grand Empereur Jiu Di. Je n'ai rencontré que le Grand Empereur Gemini de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empereurs. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empereur Dao Yi, le Grand Empereur Feng ou le Grand Empereur Jiu Di. Je n'ai rencontré que le Grand Empereur Gémeaux de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 

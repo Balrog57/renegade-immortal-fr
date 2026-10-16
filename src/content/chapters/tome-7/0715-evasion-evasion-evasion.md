@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 715 - Escape Escape Escape!"
 slug: evasion-evasion-evasion
 ---
-Chapitre 715 - Évasion, évasion, évasion!
-
 Même le corps de la garde céleste trembla, et la lumière dorée qui l'entourait s'estompa légèrement.
 
 Wang Lin serra les dents. Ignorant l'aura de la gueule géante, il chargea une fois de plus vers le brouillard dense.

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1443 - Ethereal Fire Cultivator !!"
 slug: cultivateur-du-feu-ethere
 ---
-Chapitre 1443 - Cultivateur du Feu Éthéré!!
-
 Une force invisible tirait ces vingt-cinq plateformes, qui se déplaçaient à une vitesse dépassant l'entendement. Cette vélocité n'avait rien à envier à la pleine puissance d'un cultivateur de la Blight Céleste.
 
 Le mouvement erratique des plateformes conférait à cette tombe antique une aura mystérieuse et insondable. Tandis que Wang Lin se tenait sur sa plateforme, ses cheveux fouettaient l'air sous la force du vent.

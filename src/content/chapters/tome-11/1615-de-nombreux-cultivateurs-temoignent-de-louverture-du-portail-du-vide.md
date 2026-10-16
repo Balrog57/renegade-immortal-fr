@@ -34,9 +34,9 @@ Vide Brillant, aux abords de la planète Suzaku. Des dizaines de milliers de cul
 
 Ces cultivateurs provenaient tous du Royaume Extérieur. Ils portaient tous une marque entre les sourcils et leurs visages étaient empreints de cruauté et d'intention meurtrière. Un sentiment d'excitation planait également parmi eux.
 
-Ils encerclaient le dernier bastion du Vide Brillant, sous la conduite du Maître Nuage du Sud. Ils s'apprêtaient à livrer une bataille à mort.
+Ils encerclaient le dernier bastion du Vide Brillant, sous la conduite du Maître Nan Yunzi. Ils s'apprêtaient à livrer une bataille à mort.
 
-À l'origine, le Maître Nuage du Sud ne souhaitait pas rester ici. Cependant, les cultivateurs du Vide Brillant étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
+À l'origine, le Maître Nan Yunzi ne souhaitait pas rester ici. Cependant, les cultivateurs du Vide Brillant étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
 
 À leurs yeux, même s'ils se réfugiaient à Luotian, tout serait inutile!
 

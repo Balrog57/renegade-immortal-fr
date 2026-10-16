@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1436 - Ancient Order Tomb Opens!"
 slug: louverture-de-la-tombe-de-lordre-ancien
 ---
-Chapitre 1436 - L'ouverture de la Tombe de l'Ordre Ancien!
-
 Un vortex tourbillonnant, chargé d'une aura de mort émanant de la Tombe de l'Ordre Ancien, jaillit violemment. Une rancœur dense s'échappait également des têtes de tous les anciens dieux, anciens démons et anciens diables disposés sur les plateformes de pierre à l'intérieur!
 
 Ces énergies fusionnèrent, provoquant une tempête qui se déchaîna avec fureur, tentant de déchirer le brouillard environnant!

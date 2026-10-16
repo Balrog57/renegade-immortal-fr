@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1418 - Can Do It As Well!"
 slug: je-peux-le-faire-aussi
 ---
-Chapitre 1418 - Je peux le faire aussi!
-
 Wang Lin fronça les sourcils. Les paroles de l'Oiseau Vermillon de la première génération résonnaient dans son esprit, le plongeant dans le silence.
 
 « Les Cinq Doigts Brise-Vide sont un processus permettant de rassembler la puissance nécessaire pour déchirer le vide. Ce n'est qu'en cultivant jusqu'aux limites de la deuxième étape que l'on peut emprunter la puissance de son essence pour briser la Porte du Vide d'un seul coup! »

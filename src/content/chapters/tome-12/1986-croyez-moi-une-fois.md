@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1986 - Believe Me Once!"
 slug: croyez-moi-une-fois
 ---
-Chapitre 1986 - Croyez-moi une fois!
-
 « Est-ce moi, ou l'Ascendant Empyréen Ming Dao... Ou devrais-je dire que le véritable gagnant serait l'Empereur Céleste ou l'Enseignant Impérial? » Wang Lin resta calme et médita silencieusement. Ses émotions ne furent nullement affectées par les paroles de l'Enseignant Impérial.
 
 Il observa l'Enseignant Impérial au-dessus de l'autel. Ses propos étaient un mélange de vérité et de mensonge. Cependant, Wang Lin était certain que ce prétendu héritage ne serait pas si simple!
@@ -96,7 +94,7 @@ Wang Lin dit lentement: « Je dois d'abord sauver Lian Daofei! »
 
 L'Enseignant Impérial esquissa un sourire amer en regardant Lian Daofei, entravé par les neuf chaînes. Il secoua la tête dans un soupir.
 
-« Compagnon Cultivateur Wang, ce vieil homme ne veut pas vous tromper. Les chaînes sur le corps de Lian Daofei ont été posées par l'Empereur Céleste, je ne peux donc pas les retirer. Même s'il combat le Grand Empyréen Gemini, dès qu'elles seront touchées, il le remarquera immédiatement... Je ne peux donc vraiment pas les briser.
+« Compagnon Cultivateur Wang, ce vieil homme ne veut pas vous tromper. Les chaînes sur le corps de Lian Daofei ont été posées par l'Empereur Céleste, je ne peux donc pas les retirer. Même s'il combat le Grand Empyréen Gémeaux, dès qu'elles seront touchées, il le remarquera immédiatement... Je ne peux donc vraiment pas les briser.
 
 « Mais une fois que vous aurez obtenu le pouvoir de l'Ancêtre Céleste, tout sera résolu! Croyez-moi une fois, Compagnon Cultivateur, croyez-moi une seule fois. Je vous le jure sur la vie et l'avenir de tout mon clan!
 

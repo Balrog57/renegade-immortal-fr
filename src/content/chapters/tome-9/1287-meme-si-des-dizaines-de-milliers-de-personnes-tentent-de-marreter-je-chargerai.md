@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1287 - Even If Tens of Thousands of People Try to Stop Me, Ill Still Charge Forward!"
 slug: même-si-des-dizaines-de-milliers-de-personnes-tentent-de-marreter-je-chargerai
 ---
-Chapitre 1287 - Même si des dizaines de milliers de personnes tentent de m'arrêter, je chargerai quand même!
-
 Cinq mots très simples!
 
 « Je vais la sauver! » C’était une détermination, une fermeté, une chose qui devait être accomplie sans aucune crainte de la mort! Après avoir entendu la vieille femme en blanc, ces mots furent comme le tonnerre, ces mots furent comme des larmes, ces mots furent comme du sang, et ils furent gravés dans le cœur de Wang Lin! Cette empreinte était de couleur sang! Mais elle ne dégageait aucune intention meurtrière, seulement de la tristesse et de la chaleur!

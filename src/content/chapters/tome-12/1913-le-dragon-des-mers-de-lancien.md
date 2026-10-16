@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1913 - Old Ancestor's Sea Dragon!"
 slug: le-dragon-des-mers-de-lancien
 ---
-Chapitre 1913 - Le Dragon des Mers de l'Ancien!
-
 Alors que les paroles puissantes émanaient de la silhouette dorée dans le ciel, tous les cultivateurs, à l'intérieur comme à l'extérieur de la Secte Gui Yi, furent plongés dans le silence. Ils levèrent tous les yeux, frappés de stupeur!
 
 La famille impériale!!
@@ -56,11 +54,11 @@ La silhouette dorée agita sa main droite et l'édit doré s'envola. Il flotta d
 
 Après cela, la silhouette dorée ne prononça plus un mot et disparut du ciel. La clarté dorée s'estompa lentement pour laisser place à la normale.
 
-Presque au même instant, à l'extérieur du Grande Secte de l'Âme, le combat entre les deux camps atteignait son paroxysme. Nuage du Vide et les génies du Grande Secte de l'Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
+Presque au même instant, à l'extérieur du Grande Secte de l'Âme, le combat entre les deux camps atteignait son paroxysme. Yun Kong et les génies du Grande Secte de l'Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
 
 La scène se répéta à l'identique au-dessus du Grande Secte de l'Âme.
 
-Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message quasi identique, seuls les huit noms changeaient pour inclure Nuage du Vide et ses compagnons!
+Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message quasi identique, seuls les huit noms changeaient pour inclure Yun Kong et ses compagnons!
 
 Une fois la silhouette dorée partie, un silence absolu tomba sur le Grande Secte de l'Âme, à l'intérieur comme à l'extérieur.
 

@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1193 - A Bloody Battle Against Master Ashen Pine!"
 slug: une-bataille-sanglante-contre-le-maitre-ashen-pine
 ---
-Chapitre 1193 - Une Bataille Sanglante Contre le Maître Pin Cendré!
-
 Il pouvait dévorer tous les sorts du monde pour son propre usage; c'était le trésor de l'ancien dieu que l'ancien dieu Tu Si avait affiné à cette époque. Tu Si était extrêmement satisfait de ce trésor, mais celui-ci manquait d'une âme. Il le transforma donc en une montagne qu'il jeta sur une planète, espérant que le temps permettrait de lui condenser un esprit. Une fois sa technique achevée, ce serait un trésor digne de sa Lance Tueuse de Dieux!
 
 Hélas, Tu Si échoua et ce trident se perdit dans le flux du temps.

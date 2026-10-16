@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1280 - Three Essences ! !"
 slug: trois-essences
 ---
-Chapitre 1280 - Trois Essences!!
-
 Ce doigt apparut trop soudainement, sans aucun avertissement. Le taoïste Shui pensait avoir détruit l'avatar de l'autre, et son esprit était déjà affecté par la folie du clou aux sept couleurs lorsque celui-ci surgit!
 
 Ce doigt apparut à un moment providentiel! Il n'y avait pas de meilleur instant; il surgit précisément au moment où le taoïste Shui était sans défense!

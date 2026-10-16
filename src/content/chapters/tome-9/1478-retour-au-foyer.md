@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1478 - Returning Home!"
 slug: retour-au-foyer
 ---
-Chapitre 1478 - Retour au foyer!
-
 L'héritage de la mémoire de Tu Si l'avait accompagné pendant plus de 1 000 ans, mais désormais, il était inutile. Tu Si n'était qu'un Dieu Ancien au sommet de la 8ème étoile.
 
 La lumière formée par l'héritage de la mémoire apparut dans sa main. Il la contempla un instant avant de la projeter vers Tuo Sen.

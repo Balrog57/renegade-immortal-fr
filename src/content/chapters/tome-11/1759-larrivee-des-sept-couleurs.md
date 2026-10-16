@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1759 - Seven-Colored Arrives!"
 slug: larrivee-des-sept-couleurs
 ---
-Chapitre 1759 - L'arrivée des Sept Couleurs!
-
 Wang Lin leva sa lame et le gaz noir se transforma en une tempête qui s'éleva jusqu'au ciel. De loin, ce tourbillon ressemblait à un terrifiant dragon noir.
 
 La lame dans la main de Wang Lin ne bougeait pas d'un iota, comme si elle était figée dans l'espace. Par conséquent, le corps de Wang Lin et la tempête du dragon noir formaient un contraste saisissant.

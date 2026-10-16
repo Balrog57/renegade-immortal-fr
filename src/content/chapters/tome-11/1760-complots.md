@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1760 - Scheming!"
 slug: complots
 ---
-Chapitre 1760 - Complots!
-
 Peut-être restait-il désormais moins de trois cents mondes détruits. Après tout, d'innombrables années s'étaient écoulées; certains avaient pu être anéantis par le passage du temps, tandis que d'autres l'avaient sans doute été depuis bien longtemps.
 
 À cet instant, dans l'un de ces mondes, un vortex apparut et un rayon de lumière en jaillit avant même que celui-ci ne soit pleinement formé. La silhouette émergeant de la clarté portait des vêtements blancs: c'était Wang Lin.

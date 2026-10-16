@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1724 - The Omniscient’s Original Body!"
 slug: le-corps-originel-du-voyant
 ---
-Chapitre 1724 - Le Corps Originel du Voyant!
-
 Le corps originel de Wang Lin traversait les étoiles, se déplaçant à une vitesse bien supérieure à celle de son avatar. Il ne volait pas par force brute ou en s'intégrant au monde; il déchirait la réalité elle-même pour progresser!
 
 La main droite de Wang Lin lacérait l'espace devant lui à chaque foulée. Un grondement tonitruant résonnait tandis que le vide se fracturait sous ses pas.

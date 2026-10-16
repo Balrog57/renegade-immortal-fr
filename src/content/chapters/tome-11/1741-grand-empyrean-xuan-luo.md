@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1741 - Grand Empyrée Xuan Luo!"
 slug: grand-empyrean-xuan-luo
 ---
-Chapitre 1741 - Grand Empyréen Xuan Luo!
-
 Wang Lin s'éleva dans les airs et atterrit sur le dos de la gigantesque Bête du Néant en deux enjambées. La Bête du Néant était restée invisible jusqu'à ce que Wang Lin l'invoque.
 
 Maintenant qu'elle était apparue, Wang Lin s'assit péniblement sur son dos. Il endurait la douleur de ses multiples blessures tout en fixant la planète des Cinq Éléments.

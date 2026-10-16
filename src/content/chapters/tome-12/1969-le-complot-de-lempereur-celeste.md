@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1969 - The Celestial Emperor’s Scheme!"
 slug: le-complot-de-lempereur-celeste
 ---
-Chapitre 1969 - Le complot de l'Empereur Céleste!
-
 En un éclair, les quatre saisons s'écoulèrent. Lorsque les feuilles d'automne tombèrent et que la neige se mit à choir, l'événement sacré survenu un an plus tôt ne s'était pas seulement maintenu, il s'était propagé avec encore plus de force.
 
 Il y a un an, un cultivateur aux cheveux blancs fit son apparition au sein du clan céleste. Lors de l'Essai Éthéré, il franchit les palais, passant du cinquième au 17e, pour devenir le premier Ascendant Éthéré!
@@ -32,7 +30,7 @@ D'autres rumeurs affirmaient qu'il venait d'une petite secte du Continent de l'E
 
 Ces bruits de couloir continuèrent de se propager dans tout le clan céleste.
 
-Une telle figure ne pouvait que attirer l'attention de tous les Grands Éthers. Pourtant, cet homme avait décliné les avances du Grand Éther Dao Yi, du Grand Éther Wu Feng et même du Grand Éther Jiu Di, pour choisir le faible Grand Éther Gemini!
+Une telle figure ne pouvait que attirer l'attention de tous les Grands Éthers. Pourtant, cet homme avait décliné les avances du Grand Éther Dao Yi, du Grand Éther Wu Feng et même du Grand Éther Jiu Di, pour choisir le faible Grand Éther Gémeaux!
 
 Une fois cette nouvelle révélée, tous ceux au sein du clan céleste qui avaient entendu parler de Wang Lin furent plongés dans la confusion. Cela déclencha une nouvelle tempête de rumeurs.
 
@@ -112,7 +110,7 @@ Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur C�
 
 « Ce Wu Feng ne respecte absolument pas le lignage impérial. Un tel homme doit mourir! Je vais saisir sa qualification de Grand Éther pour la donner à Dao Fei! Bien que Dao Fei soit mon frère, j'ai investi beaucoup d'efforts en lui et le moment est venu de récolter les fruits. »
 
-« Enfin, il y a Gemini. Tant que leurs âmes ne fusionnent pas en une seule, il n'y a aucune inquiétude à avoir! »
+« Enfin, il y a Gémeaux. Tant que leurs âmes ne fusionnent pas en une seule, il n'y a aucune inquiétude à avoir! »
 
 L'Empereur Céleste sourit alors qu'il disparaissait de la chambre souterraine.
 

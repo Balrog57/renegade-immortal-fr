@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1989 - He, Lian Yunjue !"
 slug: lui-lian-yunjue
 ---
-Chapitre 1989 - Lui, Lian Yunjue!
-
 L'impact de l'explosion des os de Ming Dao se rua vers l'Enseignant Impérial, mais la majeure partie de la force se projeta vers Wang Lin. De loin, cette tempête ressemblait à une gueule gigantesque prête à dévorer Wang Lin!
 
 L'impact, chargé du pouvoir de l'Ancêtre Céleste, plongea Wang Lin dans une crise de vie ou de mort. Il ne pouvait esquiver et lui serait difficile de résister, mais le regard de Wang Lin devint d'une détermination absolue. En ce moment critique, il laissa échapper un rugissement.

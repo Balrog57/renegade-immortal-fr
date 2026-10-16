@@ -78,7 +78,7 @@ Au sein du clan Antique, qu'ils soient mortels ou cultivateurs, tout être vivan
 
 Dans les terres de l'Ji Antique, la pluie tombait, mais soudain, même les gouttes suspendirent leur chute dans le ciel.
 
-Il en fut de même pour le clan Céleste. Le groupe de trois de Jiu Du, Gemini, l'Empereur Céleste et d'innombrables cultivateurs, mortels et bêtes célestes cessèrent tout mouvement. Les cinq éléments du monde, toutes les lois de l'univers, tout s'arrêta complètement.
+Il en fut de même pour le clan Céleste. Le groupe de trois de Jiu Du, Gémeaux, l'Empereur Céleste et d'innombrables cultivateurs, mortels et bêtes célestes cessèrent tout mouvement. Les cinq éléments du monde, toutes les lois de l'univers, tout s'arrêta complètement.
 
 Le continent Astral Immortel tout entier plongea dans le silence.
 

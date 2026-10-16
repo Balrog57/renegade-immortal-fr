@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1885 - That Sentence!"
 slug: cette-phrase
 ---
-Chapitre 1885 - Cette phrase!
-
 Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture d'Bord-des-Nuages était très élevé grâce à l'armure spirituelle, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
 Il avait utilisé ce sort en sacrifiant le peu de temps qu'il lui restait pour porter l'armure afin de briser Nuit Brisée!

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1844 - An Opportunity!"
 slug: une-opportunite
 ---
-Chapitre 1844 - Une opportunité!
-
 Lorsque l'essence d'eau de Wang Lin fut complète, de nombreuses ombres apparurent près de lui. À l'instant même où ces ombres se manifestèrent, une lumière verte s'étendit.
 
 Wang Lin avait depuis longtemps perçu les ombres qui venaient soudainement d'apparaître. Il resta calme et sa main droite agrippa l'espace au-dessus de la mer. Tout le liquide noir de l'océan se rassembla en un éclair pour former une unique goutte de liquide sombre.

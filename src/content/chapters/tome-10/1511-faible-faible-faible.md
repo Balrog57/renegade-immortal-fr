@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1511 - Weak Weak Weak!"
 slug: faible-faible-faible
 ---
-Chapitre 1511 - Faible, faible, faible!
-
 Au moment où le Taoïste Water agita la main, la montagne de l'image sembla perdre toute la puissance qui la soutenait. Elle commença sa chute, prête à écraser les membres de la Secte Origin!
 
 Les cultivateurs vêtus de noir qui flottaient autour de la montagne restèrent de marbre, affichant des sourires cruels comme s'ils se délectaient de la mort tragique imminente des disciples de la Secte Origin.

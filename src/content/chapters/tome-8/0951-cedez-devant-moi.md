@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 951 - Yield for Me!"
 slug: cedez-devant-moi
 ---
-Chapitre 951 - Cédez devant moi!
-
 À cet instant précis, deux rayons de lumière violette jaillirent du sol. L'un d'eux fonça directement vers Wang Lin, tandis que l'autre transperça le vieil homme. Les yeux de ce dernier s'écarquillèrent alors que son corps et son âme originelle étaient annihilés par la lumière violette qui était initialement destinée à Qing Shui.
 
 La lumière violette brilla intensément et envahit le monde, submergeant totalement la lueur bleue qui scellait le royaume. Une intention meurtrière traversa les yeux de Qing Shui alors qu'une lueur rouge apparaissait sur son index. Son Royaume Ji s'était partiellement rétabli, et il percuta la lumière violette.

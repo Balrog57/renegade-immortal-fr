@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1965 - Do You See It
 slug: le-voyez-vous
 ---
-Chapitre 1965 - Le voyez-vous?
-
 Wang Lin s'en alla, mais un immense bourdonnement s'empara de l'Épreuve Empyréenne. Le fait que Wang Lin ait surmonté les épreuves avait suscité une excitation telle qu'elle changea la perception de tous.
 
 Désormais, ils se souvenaient tous du nom « Wang Lin », ce nom qui avait supplanté l'Ascendant Empyréen Ming Dao pour devenir le numéro un juste après les Grands Empyréens!

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1832 - Concealed Soul!"
 slug: ame-dissimulee
 ---
-Chapitre 1832 - Âme Dissimulée!
-
 Au plus profond de la Grande Secte de l'Âme se dressait une montagne qui perçait les cieux. D'un vert éclatant, elle semblait d'une hauteur vertigineuse, comme si elle soutenait le monde entier. C’était une terre interdite de la Grande Secte de l'Âme; le lieu où résidait l'Ancêtre Taureau Vert.
 
 Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui résonnèrent, mais aucune ne parvint à l'arrêter. Il s'arrêta devant le Pic du Ciel Vert et joignit les mains. Sa voix résonna distinctement vers la montagne:

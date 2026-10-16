@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1889 - Devil Dao Secte’s Secte Master !"
 slug: le-maitre-de-la-secte-du-dao-demoniaque
 ---
-Chapitre 1889 - Le Maître de la Secte du Dao Démoniaque!
-
 « Nuit Brisée! » Wang Lin se retourna soudainement. Il savait qu'il serait extrêmement difficile de s'échapper. La Secte du Dao Démoniaque était prête à tout pour le tuer!
 
 Les cultivateurs environnants et les cadavres qui jonchaient la terre suffisaient à tout expliquer!
@@ -118,7 +116,7 @@ Il lui restait encore l'armure élémentaire terrestre en forme humaine. Bien qu
 
 Debout sur le Continent Terre-Meng, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait traverser deux continents; cependant, l'arrivée massive de disciples de la Secte du Dao Démoniaque était une tout autre affaire.
 
-La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Nuage du Vide de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. S'ils ne s'en souciaient guère, ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
+La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Yun Kong de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. S'ils ne s'en souciaient guère, ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
 
 Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte du Dao Démoniaque s'arrêtèrent aux portes du Continent Terre-Meng. Ils hésitèrent, ne poursuivant pas leur traque.
 

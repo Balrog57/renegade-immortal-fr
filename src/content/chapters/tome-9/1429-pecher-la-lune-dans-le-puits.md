@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1429 - Fishing the Moon in the Well!"
 slug: pecher-la-lune-dans-le-puits
 ---
-Chapitre 1429 - Pêcher la lune dans le puits!
-
 Dans les terres sacrées du Clan de l'Oiseau Vermillon, Liu Jinbiao était entravé par d'innombrables filaments, poussant des cris plaintifs. Xu Liguo, terrifié, ne cessait d'appeler Wang Lin.
 
 La silhouette à l'intérieur de la flamme aux sept couleurs ne s'arrêta pas pour Xu Liguo et ne prononça qu'un seul mot:

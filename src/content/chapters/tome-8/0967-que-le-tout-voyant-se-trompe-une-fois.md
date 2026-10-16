@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 967 - Let the Omniscient Foresee Wrong Once!"
 slug: que-le-tout-voyant-se-trompe-une-fois
 ---
-Chapitre 967 - Que l'Omniscient se trompe une fois!
-
 Bai Wei regarda la restriction surplombant la vallée et dit: « Je m'appelle Bai Wei! Frère Wang, votre venue ici signifie que vous avez dû comprendre le sens caché de mes paroles. »
 
 Wang Lin fronça les sourcils. Non seulement l'énergie Yin était toujours présente dans le corps de Bai Wei, mais elle était d'une puissance extrême. En réalité, elle avait atteint un degré inimaginable.

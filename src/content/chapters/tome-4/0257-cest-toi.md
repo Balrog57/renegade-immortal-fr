@@ -6,8 +6,6 @@ bookTitle: Clean Sweep
 en: "Chapter 257 - Its You!"
 slug: cest-toi
 ---
-Chapitre 257 - C'est toi!
-
 Après avoir raccompagné Da Niu et son père, Wang Lin s'assit près du feu et ressentit soudainement un profond regret. Dix pièces d'or représentaient une fortune immense pour des mortels, mais pour les immortels, ce n'était que de la poussière dont ils ne daigneraient même pas prendre notice.
 
 Il resta assis tranquillement dans la boutique, ramassa un morceau de bois et, sa main s'animant à nouveau, il se remit à sculpter.

@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1732 - So HisName is Wang Lin !"
 slug: alors-son-nom-est-wang-lin
 ---
-Chapitre 1732 - Alors, son nom est Wang Lin!
-
 À l'intérieur de la formation de feu, alors que le géant de feu s'inclinait, Wang Lin avança calmement. Le géant permit à Wang Lin de monter sur sa main et le souleva jusqu'à sa tête. Wang Lin descendit de la paume pour se tenir sur le sommet du géant de feu.
 
 Wang Lin leva la main et pointa l'horizon.

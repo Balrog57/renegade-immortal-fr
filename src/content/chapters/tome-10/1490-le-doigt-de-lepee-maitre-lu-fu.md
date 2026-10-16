@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1490 - Sword Finger Master Lu Fu!"
 slug: le-doigt-de-lepee-maitre-lu-fu
 ---
-Chapitre 1490 - Le Doigt de l'Épée, Maître Lu Fu!
-
 La neige tombait avec une intensité croissante.
 
 Après un temps indéterminé, Wang Lin retira sa main droite et l'éleva vers le ciel. D'innombrables flocons se condensèrent dans sa paume pour former une boule de neige qui devint peu à peu de plus en plus solide.

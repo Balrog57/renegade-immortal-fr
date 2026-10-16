@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1656 - Grand Eruption !!"
 slug: grande-eruption
 ---
-Chapitre 1656 - Grande Éruption!!
-
 L'homme corpulent sourit en se rapprochant de Qing Shui et de sa fille. Les yeux de Qing Shui étaient voilés et sur le point de se fermer. À cet instant, il regarda au loin et, bien que sa vision fût floue, son esprit ressentit une aura familière.
 
 Cette aura familière appartenait à son frère, à son frère cadet!

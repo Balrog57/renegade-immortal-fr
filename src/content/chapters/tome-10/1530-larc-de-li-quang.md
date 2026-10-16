@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: Li Guang's Bow
 slug: larc-de-li-quang
 ---
-Chapitre 1530 - L'arc de Li Quang!
-
 Dao Ji Li Quang!
 
 L'arc qui abattit l'œil gauche de l'Ordre Antique!
@@ -72,7 +70,7 @@ Les cultivateurs à l'intérieur de la Formation de Scellement du Royaume, qu'il
 
 Certains cultivateurs des deux camps, déjà gravement blessés, ne purent supporter le choc. Ils crachèrent du sang, leurs âmes d'origine s'effondrèrent et ils rendirent l'âme instantanément!
 
-Le rugissement de la flèche força Maître Hong Shan, Maître Nuage du Sud et les autres cultivateurs de la troisième étape à interrompre leur combat. Ils levèrent les yeux, le visage marqué par la stupeur. Seules la concubine impériale céleste et Rêve Pourpre de la Rivière Invoquée laissèrent paraître une pointe de peur en apercevant l'arc!
+Le rugissement de la flèche força Maître Hong Shan, Maître Nan Yunzi et les autres cultivateurs de la troisième étape à interrompre leur combat. Ils levèrent les yeux, le visage marqué par la stupeur. Seules la concubine impériale céleste et Rêve Pourpre de la Rivière Invoquée laissèrent paraître une pointe de peur en apercevant l'arc!
 
 « Cet arc!! »
 

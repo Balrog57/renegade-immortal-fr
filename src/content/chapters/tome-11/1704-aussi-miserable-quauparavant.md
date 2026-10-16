@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1704 - As Miserable as Before!"
 slug: aussi-miserable-quauparavant
 ---
-Chapitre 1704 - Aussi misérable qu'auparavant!
-
 Les yeux de Cupidité étaient emplis de désespoir et son cœur de regrets. Il avait rencontré Wang Lin dans le Royaume Extérieur, et finalement, la puanteur qui imprégnait son corps s'était dissipée. À l'origine, il avait poussé un soupir de soulagement.
 
 Cependant, peu après, il fut confronté à la guerre entre les Royaumes Intérieur et Extérieur. Cette guerre l'avait extrêmement exalté; peut-être pourrait-il obtenir encore plus de trésors dans ce conflit, et son niveau de culture augmenterait.

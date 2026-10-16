@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1774 - The Sovereign’s Soul!"
 slug: lame-du-souverain
 ---
-Chapitre 1774 - L'Âme du Souverain!
-
 Alors que le Souverain parlait, des ondulations parcoururent la terre de l'avant-dernière couche de l'Ancienne Tombe, qui se transforma instantanément en eau!
 
 Les silhouettes de Wang Lin et de ses compagnons apparurent à la surface. C'était comme s'ils étaient sur le point d'être engloutis par les eaux du puits.

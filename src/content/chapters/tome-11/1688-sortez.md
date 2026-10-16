@@ -6,25 +6,23 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1688 - Get Out!"
 slug: sortez
 ---
-Chapitre 1688 - Sortez!
-
 Les yeux de Qing Shui s'illuminèrent d'un éclat rouge et une intention meurtrière intense envahit son corps. Sa fille se trouvait dans le nouveau Royaume Céleste, un domaine qu'ils avaient eux-mêmes bâti. C'était leur foyer!
 
 À cet instant précis, quelqu'un venait de forcer la porte et s'apprêtait à détruire sa demeure. Peu importait l'identité de l'intrus; fût-il un ancien Céleste, lui, Qing Shui, allait le tuer!
 
 Qing Shui chargea en avant.
 
-Maître Hong Shan et Maître Nuage du Sud restèrent figés un instant avant que leurs expressions ne changent radicalement. Après une brève hésitation, ils serrèrent les dents et se précipitèrent à son suive!
+Maître Hong Shan et Maître Nan Yunzi restèrent figés un instant avant que leurs expressions ne changent radicalement. Après une brève hésitation, ils serrèrent les dents et se précipitèrent à son suive!
 
 Qing Lin était stupéfait, et sa lutte intérieure fut la plus violente. Pourtant, il vit les dizaines de Célestes rire sauvagement en déchirant le fleuve argenté. L'ouverture révéla des dizaines de milliers de cultivateurs du Royaume Intérieur pétris de terreur. Qing Lin laissa échapper un rugissement et fit un pas en avant!
 
 « Arrêtez! Anciens Célestes, ceci est le Royaume Céleste de mon Royaume Intérieur... » Qing Lin s'élança en rugissant, mais avant qu'il ne puisse terminer sa phrase, sept ou huit individus se retournèrent. Leurs yeux brillaient d'une lumière dorée dominante tandis qu'ils agitaient les mains vers les quatre de leur groupe.
 
-Des grondements tonnerreux résonnèrent et une tempête dorée, imprégnée de la puissance de la lignée céleste, s'abattit sur eux. Tandis que la tempête grondait, Qing Lin, Maître Hong Shan et Maître Nuage du Sud tremblèrent de tout leur corps.
+Des grondements tonnerreux résonnèrent et une tempête dorée, imprégnée de la puissance de la lignée céleste, s'abattit sur eux. Tandis que la tempête grondait, Qing Lin, Maître Hong Shan et Maître Nan Yunzi tremblèrent de tout leur corps.
 
 « Quelle audace. Vous osez nous empêcher, nous les Célestes, d'absorber les Flammes Joss? » ricana l'un d'eux. Ses paroles étaient empreintes d'une arrogance infinie et d'un sentiment de supériorité absolue!
 
-Cette tempête dorée, chargée de la force de la lignée céleste, produisait une suppression qui agissait comme l'ennemi naturel des habitants du Royaume Intérieur. Sous ce poids, Qing Lin, Maître Hongshan et Maître Nuage du Sud reculèrent, sous le choc.
+Cette tempête dorée, chargée de la force de la lignée céleste, produisait une suppression qui agissait comme l'ennemi naturel des habitants du Royaume Intérieur. Sous ce poids, Qing Lin, Maître Hongshan et Maître Nan Yunzi reculèrent, sous le choc.
 
 Cependant, cette force de lignée n'eut aucun effet sur Qing Shui; c'était comme s'il ne la percevait même pas. Il traversa la tempête dorée pour foncer vers les dizaines de Célestes, animé d'une intention meurtrière terrifiante.
 

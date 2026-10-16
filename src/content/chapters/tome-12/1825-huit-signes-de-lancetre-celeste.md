@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1825 - Eight Signs of the Celestial Ancestor!"
 slug: huit-signes-de-lancetre-celeste
 ---
-Chapitre 1825 - Huit signes de l'Ancêtre Céleste!
-
 Ce rugissement résonna à l'intérieur du principal filon de feu terrestre, empreint d'une détermination farouche à résister. De loin, la jeune femme perçut ce cri et son expression changea. Derrière elle, le corps originel de Wang Lin suivait. Tous deux continuèrent de s'enfoncer l'un après l'autre dans les profondeurs de la terre.
 
 Tout au long du chemin, la jeune femme ignora totalement Wang Lin et se déplaça à pleine vitesse. Le niveau de culture de Wang Lin était bien inférieur au sien, il ne pouvait donc pas l'arrêter. Cependant, il possédait toujours le sort d'Arrêt!

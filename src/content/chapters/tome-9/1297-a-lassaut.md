@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1297 - Rush!!!"
 slug: a-lassaut
 ---
-Chapitre 1297 - À l'assaut!!!
-
 Cependant, le monde à l'intérieur de la faille spatiale était d'un violet intense. Un courant froid et invisible agitait cet univers, provoquant des changements impénétrables!
 
 Au moment où Li Qianmei commença à verser des larmes et ouvrit les yeux pour chercher la source du rire, le fouet géant s'abattit soudainement. Il frappa impitoyablement la lumière bleue!

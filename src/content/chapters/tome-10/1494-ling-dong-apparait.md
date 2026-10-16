@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1494 - Ling Dong Appears !"
 slug: ling-dong-apparait
 ---
-Chapitre 1494 - Ling Dong apparaît!
-
 « Osez-vous accepter le combat d'intention Dao? » L'expression du Maître Lu Fu était sombre et sa voix résonna à travers les étoiles.
 
 « J'en ai assez de cette Bataille Littéraire. » Wang Lin secoua la tête et son regard se posa sur le Dieu de Sang au visage pâle qui se tenait derrière le Maître Lu Fu. Il comptait contourner le Maître Lu Fu pour capturer directement le Dieu de Sang!

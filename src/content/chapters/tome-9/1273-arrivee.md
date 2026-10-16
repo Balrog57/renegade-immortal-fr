@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1273 - Arrival!"
 slug: arrivee
 ---
-Chapitre 1273 - Arrivée!
-
 Une silhouette solitaire se mouvait parmi les étoiles, vêtue de blanc et coiffée d'une longue chevelure bleue qui dégageait une beauté sublime. Li Qianmei volait en avant, partagée entre la confusion et la détermination.
 
 Des traces de larmes marquaient encore son visage alors qu'elle mordillait sa lèvre inférieure, accélérant sans cesse sa course.

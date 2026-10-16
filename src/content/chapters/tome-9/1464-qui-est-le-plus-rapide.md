@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1464 - Who’s Faster
 slug: qui-est-le-plus-rapide
 ---
-Chapitre 1464 - Qui est le plus rapide?
-
 À cet instant, un nombre inconnu de cultivateurs se trouvaient encore à l'intérieur de la Tombe de l'Ordre Antique. Leurs expressions changèrent toutes lorsqu'ils contemplèrent le brouillard violent qui les entourait. Ils étaient en état de stupeur.
 
 La peur de l'inconnu grandissait rapidement.

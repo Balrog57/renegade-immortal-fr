@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1839 - Eighth Eessence!"
 slug: huitieme-essence
 ---
-Chapitre 1839 - Huitième Essence!
-
 Wang Lin avait trop de choses qu'il souhaitait extraire de son espace de stockage. Cependant, il n'avait qu'une seule chance de retirer un objet sans endommager son espace de stockage. Après avoir mûrement réfléchi, il prit sa décision.
 
 À l'heure actuelle, la marionnette qui se rapprochait infiniment du stade initial d'un cultivateur de la Tribulation du Vide lui était la plus utile!

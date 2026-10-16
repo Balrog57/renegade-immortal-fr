@@ -6,8 +6,6 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1380 - Four Breaths!"
 slug: quatre-respirations
 ---
-Chapitre 1380 - Quatre respirations!
-
 Cinq respirations!
 
 Le temps nécessaire pour prendre cinq respirations pourrait être considéré comme un instant, mais c'était à peine plus lent qu'un éclair traversant le ciel!

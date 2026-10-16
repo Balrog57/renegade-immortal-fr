@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1824 - Will of the Main Fire!"
 slug: la-volonte-du-feu-principal
 ---
-Chapitre 1824 - La Volonté du Feu Principal!
-
 La jeune femme n'était pas stupide. Même si cela avait été quelqu'un d'autre, si elle avait remarqué un problème avec la veine de feu terrestre et avait vu une personne couverte de flammes s'échapper de la salle de pierre, elle aurait naturellement pensé que cette personne était la cause du problème.
 
 On aurait alors poursuivi l'individu, manquant inévitablement quelque chose d'essentiel. Après tout, il est rare que les êtres soient parfaits dans ce monde.

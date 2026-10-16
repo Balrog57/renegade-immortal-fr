@@ -6,8 +6,6 @@ bookTitle: Light of the coming end
 en: "Chapter 2012 - A Step Up the Mountain!"
 slug: une-etape-vers-le-sommet
 ---
-Chapitre 2012 - Une étape vers le sommet!
-
 Xuan Luo se tenait là, calme en apparence, mais son cœur était tourmenté. Il savait que le Grand Empereur Gu Dao manifestait son mécontentement à son égard en le faisant attendre à l'extérieur.
 
 Il savait aussi que la source de ce mécontentement résidait dans le fait que son disciple, Wang Lin, possédait une culture céleste et des essences!

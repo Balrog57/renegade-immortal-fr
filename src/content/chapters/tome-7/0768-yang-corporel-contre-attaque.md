@@ -6,8 +6,6 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 768 - Corporeal Yang! Counter Attack!"
 slug: yang-corporel-contre-attaque
 ---
-Chapitre 768 - Yang Corporel! Contre-attaque!
-
 Wang Lin n'avait jamais espéré une rétribution divine aussi impétueuse qu'aujourd'hui. Il contemplait l'éclair aux sept couleurs qui se condensait au cœur des nuages.
 
 De toutes les rétributions divines qu'il avait subies, c'était la première fois qu'il voyait un tonnerre aux sept couleurs.

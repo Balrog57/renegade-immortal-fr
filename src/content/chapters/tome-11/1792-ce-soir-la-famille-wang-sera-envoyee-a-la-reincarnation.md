@@ -6,8 +6,6 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1792 - This Evening, the Wang Family Will Be Delivered Reincarnation!"
 slug: ce-soir-la-famille-wang-sera-envoyee-a-la-reincarnation
 ---
-Chapitre 1792 - Ce soir, la famille Wang sera envoyée à la réincarnation!
-
 Les compagnons de Wang Lin partirent les uns après les autres. Avant de s'en aller, chacun joignit les mains en signe de respect devant Wang Lin, puis se dirigea vers la sortie pour poursuivre son rêve.
 
 Treize s'agenouilla dans le vide devant Wang Lin. Il leva la tête, le regard empreint d'une détermination sans faille.

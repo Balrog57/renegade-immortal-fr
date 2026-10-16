@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1981 - Black-Haired Wang Lin !"
 slug: wang-lin-aux-cheveux-noirs
 ---
-Chapitre 1981 - Wang Lin aux cheveux noirs!
-
 Le rugissement de la boucherie et de la destruction fusionna pour former un tonnerre massacre qui effacerait toute vie!
 
 Ce tonnerre portait en lui la destruction et constituait l'essence même de l'anéantissement. Son existence était la source de toutes les ténèbres du monde, l'expression de toute mort et de tout déclin.

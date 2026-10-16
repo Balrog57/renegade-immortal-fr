@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1876 - Seven-Color’s Third Transformation!"
 slug: la-troisieme-transformation-de-sept-couleurs
 ---
-Chapitre 1876 - La troisième transformation de Sept Couleurs!
-
 À la surface de la Prairie de l'Extrême Ciel, Zhang Daozong et le vieil homme nommé Zhao observaient le sol avec suspicion. Ils sentaient clairement une aura puissante jaillir des profondeurs de la terre.
 
 Bien qu'ils ne ressentent qu'une fraction de cette aura, elle suffisait à leur faire rater un battement de cœur. C'était comme si un immense Taureau Céleste s'était éveillé et poussait un rugissement en se précipitant vers le ciel.

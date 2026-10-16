@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1873 - Fly Into Rage Out of Humiliation !"
 slug: une-rage-nee-de-lhumiliation
 ---
-Chapitre 1873 - Une rage née de l'humiliation!
-
 L'expression de Lu Wenran ne laissait rien transparaître lorsqu'il prit la parole.
 
 Compte tenu de son statut, il ne pouvait pas tenir de tels propos, mais pour pouvoir utiliser l'armure de l'âme, il devait calomnier Wang Lin.

@@ -6,8 +6,6 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1882 - Unfair!"
 slug: injuste
 ---
-Chapitre 1882 - Injuste!
-
 « Frère Wang! » L'expression nonchalante du jeune homme disparut. Son aura changea soudainement, sa puissante culture explosa et il éclata d'un rire sonore.
 
 Il chargea en avant et rejoignit instantanément Wang Lin.

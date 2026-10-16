@@ -6,8 +6,6 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1584 - Heavenly Master Possession!"
 slug: possession-par-le-maitre-celeste
 ---
-Chapitre 1584 - Possession par le Maître Céleste!
-
 Lorsque Wang Lin atterrit sur la planète Suzaku, un grondement assourdissant retentit. La planète Suzaku trembla alors que Wang Lin s'écrasait contre une montagne telle une météorite.
 
 La montagne s'effondra et les roches volèrent en éclats sous l'impact de Wang Lin. La terre trembla et une fissure béante se forma tandis qu'il s'enfonçait plus profondément.

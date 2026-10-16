@@ -6,8 +6,6 @@ bookTitle: "Alliance's Secret"
 en: "Chapter 982 - Azure Light Shield!"
 slug: bouclier-de-lumiere-azur
 ---
-Chapitre 982 - Bouclier de Lumière Azur!
-
 Cette marque représentait un dragon traversant les nuages. Le dragon était entièrement azur et ressemblait à un véritable dragon d'azur! L'aura de Dieu Antique émanant du bouclier était contenue par cette marque afin qu'elle ne se dissipe pas trop; elle scellait l'aura à l'intérieur du bouclier.
 
 Wang Lin réfléchit longuement avant de lever la main et d'appuyer sur la marque.
