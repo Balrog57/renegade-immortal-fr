@@ -37,7 +37,7 @@ Il protègerait les trois nations du clan Ancien, ainsi que toute existence capa
 
 Au centre de ces trois nations se trouvait la terre sainte du clan Ancien, là où résidait le plus puissant des Grands Empereurs.
 
-Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte Purple Yang. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
+Wang Lin avait appris l'existence du clan Ancien par l'intermédiaire de Xuan Luo dans le monde caverneux et grâce aux archives de la Secte Yang Pourpre. Par conséquent, Wang Lin n'était pas aussi désemparé qu'à son arrivée dans le clan Céleste.
 
 Cependant, le clan Ancien était tout simplement trop vaste, et Wang Lin ne possédait aucune carte de l'Ancien Dao. Il lui fallait trouver un guide avant de pouvoir s'y rendre.
 
@@ -63,7 +63,7 @@ Sept hommes robustes en armure de cuir montaient la garde devant la porte. Chacu
 
 « Dépêchez-vous! Vous, derrière, accélérez le pas! La ville sera scellée dans un demi-encens de temps! »
 
-« Une fois entrés dans la cité de Blackstone, dispersez-vous immédiatement et restez dans la ville pendant trois jours! Nul n'est autorisé à sortir sans l'ordre du seigneur de la ville! »
+« Une fois entrés dans la cité de la Pierre Noire, dispersez-vous immédiatement et restez dans la ville pendant trois jours! Nul n'est autorisé à sortir sans l'ordre du seigneur de la ville! »
 
 Alors que l'homme rugissait, l'agitation devant la porte s'apaisa progressivement. Ceux qui souhaitaient entrer pressèrent le pas.
 
@@ -121,11 +121,11 @@ La pierre était effectivement très rudimentaire, comme l'homme l'avait affirm�
 
 Cependant, grâce à la carte et à sa propre compréhension, Wang Lin comprit désormais que les douze nations du nord appartenaient à l'Ancien Shi. En descendant vers le sud, le territoire se scindait en deux directions pour former un triangle composé de l'Ancien Ji et de l'Ancien Dao.
 
-La cité de Blackstone se situait à la périphérie du pays Mu Sang, au sein de l'Ancien Shi.
+La cité de la Pierre Noire se situait à la périphérie du pays Mu Sang, au sein de l'Ancien Shi.
 
 Wang Lin tint la pierre de jade et demanda lentement: « Je me demande pourquoi la ville est ainsi scellée? »
 
-L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Blackstone en un battement d'encens, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs de l'Ancien Dao. »
+L'un des deux gardes répondit sans rien lui cacher: « Je rapporte au Seigneur Dieu: j'ai reçu l'ordre du seigneur de la ville de libérer les accès de Pierre Noire en un battement d'encens, afin de préparer l'arrivée du Prince Ji Du et des ambassadeurs de l'Ancien Dao. »
 
 « Les ambassadeurs de l'Ancien Dao? Je sors tout juste de ma retraite et j'ignore tout de cela. Donne-moi plus de détails. » Les yeux de Wang Lin s'illuminèrent imperceptiblement.
 

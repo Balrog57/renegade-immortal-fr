@@ -120,7 +120,7 @@ Le visage de Wang Lin se durcit. Il pointa l'énergie spirituelle sur l'enseigne
 
 Le vieil homme fut stupéfait. Il devint instantanément respectueux: « Veuillez m'excuser, Aîné. Entrez donc, nous discuterons à l'intérieur. »
 
-Une fois dans la boutique, le vieil homme eut une expression étrange. Il soupira: « Aîné, l'échange n'ouvrira que dans trois jours. Je suggère au junior de quitter la ville au plus vite. »
+Une fois dans la boutique, le vieil homme eut une expression étrange. Il soupira: « Aîné, l'échange n'ouvrira que dans trois jours. Je suggère au cadet de quitter la ville au plus vite. »
 
 Wang Lin demanda calmement: « La personne que je viens de tuer avait-elle un puissant soutien? »
 

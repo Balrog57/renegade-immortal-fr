@@ -8,7 +8,7 @@ slug: un-immense-cadeau-un-petit-trou
 ---
 Chapitre 640 - Un immense cadeau! Un petit trou!
 
-Xu Liguo fut stupéfait. Ses yeux s'écarquillèrent et il demanda prudemment: « Euh... Senior, qu'est-ce que cette intention d'épée ancienne? »
+Xu Liguo fut stupéfait. Ses yeux s'écarquillèrent et il demanda prudemment: « Euh... Aîné, qu'est-ce que cette intention d'épée ancienne? »
 
 Zhou Yi esquissa un léger sourire et répondit: « Ressens-le, et tu sauras! » Sur ces mots, sa main droite s'élança et saisit aussitôt Xu Liguo. Un rayon de lumière jaillit de ses yeux pour se projeter dans ceux de Xu Liguo.
 
@@ -20,7 +20,7 @@ Zhou Yi relâcha sa main et la lumière dorée disparut de ses yeux. Il paraissa
 
 « Wang Lin, ton esprit d'épée est né avec une nature rebelle; tu devras donc être prudent lorsque tu l'utiliseras à l'avenir. Toutefois, ne t'en inquiète pas trop. J'ai déjà laissé une empreinte cachée au sein de l'héritage. S'il tente de te trahir, il subira le contrecoup de l'héritage! »
 
-Wang Lin regarda Zhou Yi. La fatigue qui marquait le visage de ce dernier le fit profondément soupirer. Il joignit les mains et dit doucement: « Senior, merci! » Les actions de Zhou Yi étaient toujours décisives, tout comme lorsqu'il avait contraint Sun Tai à devenir l'esclave de Wang Lin.
+Wang Lin regarda Zhou Yi. La fatigue qui marquait le visage de ce dernier le fit profondément soupirer. Il joignit les mains et dit doucement: « Aîné, merci! » Les actions de Zhou Yi étaient toujours décisives, tout comme lorsqu'il avait contraint Sun Tai à devenir l'esclave de Wang Lin.
 
 Zhou Yi secoua la tête et déclara: « Tant que Ting Er peut s'éveiller, cet héritage ne me sert à rien... Wang Lin, je ne te demande qu'une chose: aide-moi à trouver le père de Ting Er! »
 
@@ -30,7 +30,7 @@ Zhou Yi sourit faiblement et tendit sa main droite. Il saisit l'épée céleste 
 
 Ce coup fit émettre à l'épée céleste un bourdonnement féroce, et un gaz étrange s'en échappa avant de se dissiper... Le teint de Zhou Yi devint extrêmement pâle. Son corps commença à devenir translucide, et il lui fallut un long moment pour reprendre ses esprits.
 
-Wang Lin s'exclama: « Senior Zhou Yi, vous... » Il ne s'attendait pas à ce que Zhou Yi agisse ainsi!
+Wang Lin s'exclama: « Aîné Zhou Yi, vous... » Il ne s'attendait pas à ce que Zhou Yi agisse ainsi!
 
 « Désormais, il n'y aura plus que trois Épées Célestes de la Pluie! Quant à cette épée, elle t'appartient désormais. Que ce soit l'esprit d'épée qui me succédera, moi-même, ou l'esprit d'épée qui viendra après moi, nous n'aurons plus le droit de contrôler cette épée! »
 

@@ -20,9 +20,9 @@ Zhang Jingyun et ses compagnons adoptèrent une formation de siège pour préven
 
 « Cependant, nous devons rester vigilants. Il doit y avoir quelque chose de remarquable chez lui pour avoir pu intégrer ce classement. Mieux vaut ne pas nous laisser prendre au dépourvu. »
 
-« Le frère Zhou est un peu trop prudent. Cet homme n'est qu'au stade initial de l'Ascendant. Oubliez nos quatre attaques conjointes, l'un seul d'entre nous pourrait le tuer à sa guise! De plus, avec Senior Zhao ici, cet individu ne peut rien faire! »
+« Le frère Zhou est un peu trop prudent. Cet homme n'est qu'au stade initial de l'Ascendant. Oubliez nos quatre attaques conjointes, l'un seul d'entre nous pourrait le tuer à sa guise! De plus, avec Aîné Zhao ici, cet individu ne peut rien faire! »
 
-« C'est vrai, Senior Zhao est au stade Yin Illusoire et n'est qu'à un pas du stade Corporel Yang. Il se situe bien au-dessus de la multitude, et en sa présence, nous suivrons naturellement ses directives. »
+« C'est vrai, Aîné Zhao est au stade Yin Illusoire et n'est qu'à un pas du stade Corporel Yang. Il se situe bien au-dessus de la multitude, et en sa présence, nous suivrons naturellement ses directives. »
 
 « Une fois que nous aurons rassemblé les traces de Tonnerre Spirituel provenant de ces individus, nous pourrons enfin former un Tonnerre Spirituel complet. Nous irons ensuite au Temple du Cristal de Tonnerre pour l'échanger contre ces quatre épées volantes de rang céleste! »
 

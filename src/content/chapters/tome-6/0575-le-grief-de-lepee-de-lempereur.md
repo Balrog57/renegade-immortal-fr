@@ -54,7 +54,7 @@ Le général démon Shi Xiao se trouvait également dans son propre domaine en l
 
 « L'épée de l'Empereur s'est envolée d'elle-même; il y a quelque chose de suspect là-dedans! » Shi Xiao prit une profonde inspiration, ses yeux brillant d'une lueur mystérieuse.
 
-À Universe City, un homme aux cheveux noirs leva les yeux depuis sa cour intérieure. Seule sa silhouette était visible, son visage restant dans l'ombre tandis qu'il observait le flash argenté. Il murmura: « Voici la colère de l'épée de l'Empereur! Comment percevez-vous l'épée de l'Empereur, vous deux? »
+À Ville de l'Univers, un homme aux cheveux noirs leva les yeux depuis sa cour intérieure. Seule sa silhouette était visible, son visage restant dans l'ombre tandis qu'il observait le flash argenté. Il murmura: « Voici la colère de l'épée de l'Empereur! Comment percevez-vous l'épée de l'Empereur, vous deux? »
 
 Deux individus se tenaient derrière lui, portant chacun une épée massive dans le dos. Leurs yeux brillaient d'une lumière mystérieuse alors qu'ils fixaient la lueur argentée s'éloignant au loin.
 

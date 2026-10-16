@@ -8,7 +8,7 @@ slug: lancienne
 ---
 Cette voix était rauque, empreinte d'une haine farouche. Provenant des profondeurs de la place, elle fit trembler le sol tandis que des fissures commençaient à apparaître. Ces crevasses s’élargirent jusqu'à ce que la place ne se fende en deux.
 
-À mesure que les failles s'étendaient, le centre de la place s'effondra. Les membres de l'Ancient Dao présents sur la place reculèrent précipitamment, certains prenant même leur envol.
+À mesure que les failles s'étendaient, le centre de la place s'effondra. Les membres de l'Dao Antique présents sur la place reculèrent précipitamment, certains prenant même leur envol.
 
 Un rayon de lumière violette jaillit de l'abîme et fendit le ciel. De loin, il ressemblait à un pilier gigantesque capable de soutenir les cieux et la terre.
 
@@ -20,11 +20,11 @@ C'était une personne âgée. On pouvait vaguement distinguer qu'il s'agissait d
 
 Trois dagues étaient plantées dans son corps: une entre les sourcils, une dans la poitrine et une dans le dantian.
 
-« Salutations, Ancêtre de l'Empereur Saint! » À l'instant même de son apparition, tous les membres de l'Ancient Dao s'agenouillèrent à nouveau. Leurs voix se fondirent en une onde qui résonna à travers le monde.
+« Salutations, Ancêtre de l'Empereur Saint! » À l'instant même de son apparition, tous les membres de l'Dao Antique s'agenouillèrent à nouveau. Leurs voix se fondirent en une onde qui résonna à travers le monde.
 
-Les membres de l'Ancient Dao témoignaient envers elle du même respect qu'envers l'Ancêtre Ancêtre. L'excitation qui brillait dans leurs yeux prouvait que cette vieille femme possédait un statut extraordinaire!
+Les membres de l'Dao Antique témoignaient envers elle du même respect qu'envers l'Ancêtre Ancêtre. L'excitation qui brillait dans leurs yeux prouvait que cette vieille femme possédait un statut extraordinaire!
 
-Parmi les générations passées des Empereurs de l'Ancient Dao, une seule personne pouvait être appelée l'Empereur Saint!
+Parmi les générations passées des Empereurs de l'Dao Antique, une seule personne pouvait être appelée l'Empereur Saint!
 
 En voyant la vieille femme, Xuan Luo se remémora le passé. Il poussa un soupir et son expression devint complexe.
 
@@ -36,17 +36,17 @@ Même s'il n'avait pas remarqué cette aura, Wang Lin n'aurait pas été étonn�
 
 Ces quatre tables avaient manifestement été préparées pour le Grand Empyréen, l'Enseignant Impérial et le père de l'empereur, l'ancien empereur. Cependant, cela ne faisait que trois personnes pour quatre tables. Cela signifiait que cette personne occupait un rang si élevé que, même si elle n'était pas censée venir, une table devait lui être réservée.
 
-Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille femme et entendu Xuan Luo prononcer le nom de « Ye Wei », il s'en souvint. Lors de son arrivée à l'Ancient Dao, il avait étudié l'histoire des générations passées d'empereurs.
+Wang Lin ignorait qui était cette personne, mais après avoir vu la vieille femme et entendu Xuan Luo prononcer le nom de « Ye Wei », il s'en souvint. Lors de son arrivée à l'Dao Antique, il avait étudié l'histoire des générations passées d'empereurs.
 
-Dans les dizaines de milliers d'années d'histoire de l'Ancient Dao, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur de l'Ancient Dao!
+Dans les dizaines de milliers d'années d'histoire de l'Dao Antique, il y avait eu une femme. Elle fut la seule femme à être devenue Empereur de l'Dao Antique!
 
-Son accession au trône avait provoqué un tollé dans tout l'Ancient Dao. Après avoir subi les critiques des membres du clan, le Grand Empyréen Gu Dao avait publié un décret pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
+Son accession au trône avait provoqué un tollé dans tout l'Dao Antique. Après avoir subi les critiques des membres du clan, le Grand Empyréen Gu Dao avait publié un décret pour la reconnaître officiellement, ce qui finit par apaiser les tensions.
 
-Cette femme faisait également partie de la famille impériale. À cette époque, l'Ancient Dao touchait presque à son apogée et était devenu le plus puissant des trois clans sous sa direction. Cependant, après son règne, l'Ancient Dao finit par devenir le plus faible des trois clans des dizaines de milliers d'années plus tard.
+Cette femme faisait également partie de la famille impériale. À cette époque, l'Dao Antique touchait presque à son apogée et était devenu le plus puissant des trois clans sous sa direction. Cependant, après son règne, l'Dao Antique finit par devenir le plus faible des trois clans des dizaines de milliers d'années plus tard.
 
-En raison de ses contributions et du fait qu'elle avait mené l'Ancient Dao à surpasser les clans Ancient Shi et Ancient Ji, elle fut nommée l'Empereur Saint par les empereurs suivants.
+En raison de ses contributions et du fait qu'elle avait mené l'Dao Antique à surpasser les clans Shi Antique et Ji Antique, elle fut nommée l'Empereur Saint par les empereurs suivants.
 
-Les habitants de l'Ancient Dao la surnommaient également l'Ancêtre de l'Empereur Saint!
+Les habitants de l'Dao Antique la surnommaient également l'Ancêtre de l'Empereur Saint!
 
 Son nom était Ye Wei... En entendant ce nom, Wang Lin se remémora tout ce qu'il savait d'elle.
 
@@ -56,13 +56,13 @@ Tout cela traversa instantanément l'esprit de Wang Lin. Il fixa la vieille femm
 
 En voyant la vieille femme, Song Zhi parut terrifiée. Wang Lin resserra sa prise sur elle pour la rassurer.
 
-La vieille femme regarda Wang Lin et dit d'une voix rauque: « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancêtre pour invoquer son ombre, crois-tu vraiment que le palais de l'Ancient Dao est un endroit où l'on vient et part comme bon nous semble?! » L'aura de mort émanant de son corps sembla s'intensifier.
+La vieille femme regarda Wang Lin et dit d'une voix rauque: « Laisse derrière toi la tête de l'Ancêtre Céleste et l'âme de l'Empereur Céleste, et je te déclarerai innocent! Sinon, même si tu peux emprunter le pouvoir de l'Ancêtre Ancêtre pour invoquer son ombre, crois-tu vraiment que le palais de l'Dao Antique est un endroit où l'on vient et part comme bon nous semble?! » L'aura de mort émanant de son corps sembla s'intensifier.
 
-Elle poursuivit d'une voix sombre: « Ma culture n'est pas aussi puissante que la tienne, mais ceci est le palais de l'Ancient Dao, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance! »
+Elle poursuivit d'une voix sombre: « Ma culture n'est pas aussi puissante que la tienne, mais ceci est le palais de l'Dao Antique, qui abrite la Grande Formation des Dix Mille. Cette formation fut établie par l'Ancêtre Ancêtre, et chaque génération d'empereur ne peut en activer que 20 à 30 %. Cependant, mon corps fusionne avec la formation; tant que je suis dans le palais, je ne peux mourir. Je peux activer jusqu'à 70 % de sa puissance! »
 
 L'expression de Wang Lin restait calme, mais la froideur de son regard s'accentua.
 
-« Si tu veux mes biens, tente donc de les prendre! » répondit lentement Wang Lin. Soudain, son soleil de Grand Empyréen apparut. Les couleurs noir et blanc resplendirent et les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle. Une ombre de l'Ancient Dao, identique à lui, se dessina sous son soleil de Grand Empyréen.
+« Si tu veux mes biens, tente donc de les prendre! » répondit lentement Wang Lin. Soudain, son soleil de Grand Empyréen apparut. Les couleurs noir et blanc resplendirent et les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle. Une ombre de l'Dao Antique, identique à lui, se dessina sous son soleil de Grand Empyréen.
 
 L'ombre semblait porter le soleil de l'empereur et fixa froidement la vieille femme.
 
@@ -80,7 +80,7 @@ La vieille femme resta silencieuse un instant avant de regarder Xuan Luo. Ses ye
 
 « J'avais clairement estimé que cet enfant n'était pas bon. Son caractère était trop arrogant et il ne supportait personne. À l'origine, je ne voulais pas le choisir comme empereur, mais il possédait ton aura, alors je l'ai choisi.
 
-« Aujourd'hui, il a forcé mon seul disciple à rompre tout lien avec moi, et maintenant ce dernier ne peut plus rester dans l'Ancient Dao. Penses-tu que Ye Dao ait fait ce qu'il fallait?
+« Aujourd'hui, il a forcé mon seul disciple à rompre tout lien avec moi, et maintenant ce dernier ne peut plus rester dans l'Dao Antique. Penses-tu que Ye Dao ait fait ce qu'il fallait?
 
 « En tant qu'empereur, aurait-il dû agir ainsi?! Crois-tu vraiment que cette formation puisse piéger Wang Lin?! » À la fin de son discours, Xuan Luo se mit à rugir. Ses yeux étaient emplis de tristesse et, lorsqu'il regarda Wang Lin, sa douleur devint déchirante.
 
@@ -118,11 +118,11 @@ Tandis qu'elle hésitait, Wang Lin ricana et ses cheveux passèrent progressivem
 
 L'expression de la vieille femme changea une nouvelle fois.
 
-« Ye Wei! Je t'ai promis de te protéger toute ma vie... de garder l'Ancient Dao pour l'éternité... Je suis fatigué... Laisse-le partir. Tu ne fais pas le poids face à lui et cette formation ne pourra pas l'arrêter. Je te sauve... » Le visage de Xuan Luo sembla vieillir subitement, mais lorsqu'il regarda la vieille femme, une tendresse immuable depuis des années brilla dans ses yeux.
+« Ye Wei! Je t'ai promis de te protéger toute ma vie... de garder l'Dao Antique pour l'éternité... Je suis fatigué... Laisse-le partir. Tu ne fais pas le poids face à lui et cette formation ne pourra pas l'arrêter. Je te sauve... » Le visage de Xuan Luo sembla vieillir subitement, mais lorsqu'il regarda la vieille femme, une tendresse immuable depuis des années brilla dans ses yeux.
 
 La vieille femme resta silencieuse un long moment avant d'un geste de la main, faisant dissiper la lumière violette qui enveloppait le palais.
 
-Wang Lin regarda Xuan Luo et poussa un soupir. Une fois la formation dissipée, il prit Song Zhi, dont l'âme était fusionnée avec celle de Li Muwan, et s'élança vers le ciel. En montant, il aperçut soudain un homme robuste parmi les membres de l'Ancient Dao en contrebas qui le regardait avec un sourire.
+Wang Lin regarda Xuan Luo et poussa un soupir. Une fois la formation dissipée, il prit Song Zhi, dont l'âme était fusionnée avec celle de Li Muwan, et s'élança vers le ciel. En montant, il aperçut soudain un homme robuste parmi les membres de l'Dao Antique en contrebas qui le regardait avec un sourire.
 
 Leurs regards se croisèrent et Wang Lin s'arrêta brusquement.
 

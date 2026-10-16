@@ -16,9 +16,9 @@ Le vieil homme restait assis là, silencieux. Il demeurait immobile, comme s'il 
 
 Ce jour-là, quatre rayons de lumière traversèrent le ciel, et le vieil homme ouvrit les yeux pour contempler les cieux. Juste au moment où il allait parler, son corps trembla alors qu'il fixait l'une des quatre silhouettes.
 
-Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement: « Cela fait longtemps, Senior Yun Quezi. »
+Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement: « Cela fait longtemps, Aîné Yun Quezi. »
 
-Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
+Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "aîné". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
 
 Yun Quezi pointa Ta Shan du doigt.
 

@@ -16,11 +16,11 @@ Son tempérament était serein. Telle la beauté silencieuse d'une vallée immen
 
 Alors que Wang Lin se tenait là, l'irritation qui lui nouait le cœur disparut dès l'apparition de la femme, comme si elle n'avait jamais existé.
 
-« Song Zhi... » Wang Lin reconnut immédiatement cette femme. Il se souvenait l'avoir vue pour la première fois aux abords de la Ville de Blackstone.
+« Song Zhi... » Wang Lin reconnut immédiatement cette femme. Il se souvenait l'avoir vue pour la première fois aux abords de la Ville de la Pierre Noire.
 
 L'Empereur Dao Antique afficha un soupçon de joie. Tandis que la femme s'approchait, il fit un geste de sa manche et prit la parole:
 
-« Impératrice, venez siéger à mes côtés. Aujourd'hui est un événement joyeux pour mon Ancient Dao et un jour crucial pour nous tous. »
+« Impératrice, venez siéger à mes côtés. Aujourd'hui est un événement joyeux pour mon Dao Antique et un jour crucial pour nous tous. »
 
 Les pas de la femme en robe de phénix marquèrent un temps d'arrêt avant qu'elle ne s'avance silencieusement vers le trône de dragon de l'Empereur Dao Antique pour s'y asseoir avec grâce. Elle leva la tête et embrassa du regard la place.
 
@@ -68,7 +68,7 @@ Pourtant, cette similitude de tempérament raviva sa tristesse et une douleur d�
 
 « Oh? » Les yeux de l'Empereur Dao Antique s'illuminèrent d'une lueur imperceptible. Il regarda la femme, puis Wang Lin, avant d'esquisser un sourire énigmatique.
 
-L'Empereur Dao Antique dit: « Impératrice, reconnaissez-vous le futur gardien de mon Ancient Dao? »
+L'Empereur Dao Antique dit: « Impératrice, reconnaissez-vous le futur gardien de mon Dao Antique? »
 
 La femme en robe de phénix baissa la tête et secoua négativement.
 
@@ -76,11 +76,11 @@ La femme en robe de phénix baissa la tête et secoua négativement.
 
 « Intéressant. Ce fragment d'âme pourrait-il vraiment être lié à ce Wang Lin? » L'Empereur était agréablement surpris, tout en conservant son sourire insaisissable.
 
-Il poursuivit lentement: « Peut-être vous connaissez-vous réellement. Mon Impératrice, descendez vers le futur gardien de mon Ancient Dao et laissez-le vous observer de plus près. Si vous vous connaissez vraiment, ce sera un événement des plus joyeux. »
+Il poursuivit lentement: « Peut-être vous connaissez-vous réellement. Mon Impératrice, descendez vers le futur gardien de mon Dao Antique et laissez-le vous observer de plus près. Si vous vous connaissez vraiment, ce sera un événement des plus joyeux. »
 
 La femme en robe de phénix se leva avec grâce et regarda Wang Lin avant de descendre lentement les marches. Wang Lin la fixa et, pendant un instant, il eut l'impression que c'était Li Muwan qui marchait vers lui. Son cœur et son corps tout entiers tremblèrent.
 
-La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais de l'Ancient Dao, oublier le clan ancestral, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
+La femme s'arrêta à dix pieds de Wang Lin, et l'indignation dans ses yeux s'intensifia. Wang Lin ressentit une sensation glaciale mais familière. Cela lui fit oublier le palais de l'Dao Antique, oublier le clan ancestral, oublier le Continent Astral Immortel; il se croyait de retour dans le monde des grottes. Tandis qu'ils se défiaient du regard, la tristesse dans ses yeux semblait capable de faire fondre le monde entier.
 
 Voyant cette tristesse, la femme ressentit soudain une douleur au cœur. La confusion traversa son regard, mais elle fut vite balayée par une nouvelle vague d'indignation.
 
@@ -98,7 +98,7 @@ La femme en robe de phénix retourna aux côtés de l'Empereur et retrouva son c
 
 « Il semble fort probable que Wang Lin connaisse ce fragment d'âme... Et la confusion qui est apparue était sans doute due à lui... Malheureusement, peu importe votre niveau de culture, peu importe la quantité de sang spirituel que vous possédez, et même avec Xuan Luo pour maître, le plus grand des tourments est de ne pas pouvoir se reconnaître alors que l'on est l'un face à l'autre... Mais cela m'excite au plus haut point... » L'Empereur Dao Antique leva son coupe et but avec les cent mille convives du banquet.
 
-Selon la tradition de l'Ancient Dao, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
+Selon la tradition de l'Dao Antique, il aurait dû laisser partir la femme, mais il choisit de la faire rester. Il continuait d'observer Wang Lin, comme si cela lui procurait le plus grand des plaisirs.
 
 Sous l'impulsion de l'Empereur, le banquet atteignit son apogée. La foule exultait dans un concert de félicitations; l'ambiance était à la fête.
 

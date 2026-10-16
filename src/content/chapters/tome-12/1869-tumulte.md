@@ -36,9 +36,9 @@ En vérité, si le Continent du Démon Vert l'avait voulu, il aurait pu mettre f
 
 La raison pour laquelle les renforts ne s'étaient pas manifestés et s'étaient cachés était simple: ils voulaient tuer Wang Lin!
 
-Les actions de Wang Lin dans la Mer des Pillules avaient irrité les trois anciens ancêtres du Continent du Démon Vert, qui avaient ainsi émis un ordre d'exécution contre lui! Tout ce que Wang Lin avait accompli était absolument bouleversant!
+Les actions de Wang Lin dans la Mer des Pilules avaient irrité les trois anciens ancêtres du Continent du Démon Vert, qui avaient ainsi émis un ordre d'exécution contre lui! Tout ce que Wang Lin avait accompli était absolument bouleversant!
 
-Il avait tué l'avatar de Void Cloud, le génie du Continent du Démon Vert, et avait détruit leur plan dans la Mer des Pillules, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent du Démon Vert, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer des Pillules!
+Il avait tué l'avatar de Nuage du Vide, le génie du Continent du Démon Vert, et avait détruit leur plan dans la Mer des Pilules, provoquant l'explosion prématurée de la Pilule Céleste. Cela avait affecté le Continent du Démon Vert, une partie de celui-ci ayant été détruite avec la plupart des cultivateurs présents dans la Mer des Pilules!
 
 Ce sont là des événements passés, mais désormais, Wang Lin avait tué Liu Zhiyuan de la Secte du Dao Démoniaque! Même Xu Decai avait probablement été massacré par ses méthodes viles.
 
@@ -54,7 +54,7 @@ Le scorpion émit des sifflements stridents tandis qu'une brume verte se répand
 
 Il avait personnellement combattu les Messagers du Démon Vert et savait à quel point ils étaient terrifiants. Il ne s'attendait pas à ce qu'ils apparaissent ici!
 
-Il faut dire que même dans la Mer des Pillules, seuls trois en étaient apparus. Pour le Continent du Démon Vert, chaque Messager du Démon Vert était extrêmement précieux; ils n'en enverraient donc pas de grandes quantités sans raison!
+Il faut dire que même dans la Mer des Pilules, seuls trois en étaient apparus. Pour le Continent du Démon Vert, chaque Messager du Démon Vert était extrêmement précieux; ils n'en enverraient donc pas de grandes quantités sans raison!
 
 Le visage de Lu Wenran devint livide. Il ignorait que la cible de ces quatre Messagers était Wang Lin! Quant au méridien, ce n'était qu'un accident.
 

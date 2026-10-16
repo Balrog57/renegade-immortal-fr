@@ -46,7 +46,7 @@ L'expression de Wang Lin devint sombre alors qu'il poussait la boussole stellair
 
 Le vieil homme traversait le vide, les mains derrière le dos. Bien que chaque pas lui permette de franchir des distances colossales, il ne parvenait toujours pas à rattraper Wang Lin.
 
-Il était stupéfait et songeait que ce junior possédait réellement une multitude de trésors précieux, utiles en toutes circonstances. En apparence, il considérait Wang Lin comme un junior d'une importance capitale, et son désir de faire de lui sa marionnette tatouée ne fit que croître.
+Il était stupéfait et songeait que ce cadet possédait réellement une multitude de trésors précieux, utiles en toutes circonstances. En apparence, il considérait Wang Lin comme un cadet d'une importance capitale, et son désir de faire de lui sa marionnette tatouée ne fit que croître.
 
 Ce vide était singulier. Plus Wang Lin avançait, plus cette sensation s'intensifiait. Durant ses jours de course, il n'avait rien aperçu. Il n'y avait même pas la moindre trace d'énergie spirituelle.
 
@@ -114,7 +114,7 @@ Ce tatouage était brisé, incomplet; certaines parties manquaient même manifes
 
 Dès l'apparition du tatouage, le vide environnant fut baigné d'une lumière verte.
 
-Le vieil homme déclara d'une voix lente: « Voici mon tatouage d'illumination. C'est en l'étudiant que j'ai pu atteindre le stade des sept feuilles. Maintenant que tu l'as vu, junior, tu peux mourir en paix! »
+Le vieil homme déclara d'une voix lente: « Voici mon tatouage d'illumination. C'est en l'étudiant que j'ai pu atteindre le stade des sept feuilles. Maintenant que tu l'as vu, cadet, tu peux mourir en paix! »
 
 Le tatouage brilla une fois, provoquant chez l'esprit bestial l'exhalaison d'un gaz vert sur tout son corps. La bête poussa un rugissement et regarda le tatouage avec une profonde réticence dans les yeux.
 

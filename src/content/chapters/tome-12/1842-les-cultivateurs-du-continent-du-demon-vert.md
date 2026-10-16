@@ -10,11 +10,11 @@ Chapitre 1842 - Les cultivateurs du Continent du Démon Vert!
 
 Les grottes nichées dans les profondeurs de la mer furent envahies par des groupes de cultivateurs vêtus de vert, qui massacraient impitoyablement tous ceux qui s'y trouvaient. Quiconque tentait de s'échapper se voyait traqué par des escouades de robes vertes; ils ne reculeraient pas avant d'avoir atteint leur cible!
 
-En raison du fait que toute la Mer des Pillules était scellée et que le nombre de cultivateurs en robes vertes était immense, toute fuite semblait impossible.
+En raison du fait que toute la Mer des Pilules était scellée et que le nombre de cultivateurs en robes vertes était immense, toute fuite semblait impossible.
 
-Le massacre faisait rage sous le rugissement de la Mer des Pillules. L'odeur du sang attira lentement les bêtes féroces qui rôdaient dans les profondeurs.
+Le massacre faisait rage sous le rugissement de la Mer des Pilules. L'odeur du sang attira lentement les bêtes féroces qui rôdaient dans les profondeurs.
 
-C'était un carnage, un massacre entre des niveaux de culture inégaux. Les cultivateurs en robes vertes étaient de haut niveau et suivaient strictement leurs ordres pour anéantir tous les cultivateurs du Continent du Taureau Céleste présents dans la Mer des Pillules!
+C'était un carnage, un massacre entre des niveaux de culture inégaux. Les cultivateurs en robes vertes étaient de haut niveau et suivaient strictement leurs ordres pour anéantir tous les cultivateurs du Continent du Taureau Céleste présents dans la Mer des Pilules!
 
 De l'autre côté de la mer, près du Continent du Démon Vert, trois grands drapeaux étaient plantés dans l'eau. Sous ces étendards se tenaient des milliers de cultivateurs qui fixaient l'horizon d'un regard glacial et silencieux.
 
@@ -22,13 +22,13 @@ Au centre de cette multitude, trois individus ne portaient pas de vert, mais du 
 
 La femme était d'une grande beauté; la tête baissée, elle consultait une boussole de la taille d'une paume.
 
-Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Frère aîné Qian, Sœur cadette Zhao, le massacre dans la Mer des Pillules dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
+Parmi les trois, un jeune homme au visage de jade blanc rompit le silence après une courte réflexion: « Frère aîné Qian, Sœur cadette Zhao, le massacre dans la Mer des Pilules dure déjà depuis sept jours. Si nous n'accélérons pas la cadence, je crains que nous ne puissions accomplir l'ordre des Ancêtres. »
 
-L'autre jeune homme avait une apparence ordinaire, mais son regard pouvait soudainement se faire venimeux. Après avoir entendu les paroles du jeune homme au visage de jade, il répondit lentement: « Au plus tard dans quatre jours, ce massacre prendra fin et tous les cultivateurs du Taureau Céleste dans la Mer des Pillules seront morts! »
+L'autre jeune homme avait une apparence ordinaire, mais son regard pouvait soudainement se faire venimeux. Après avoir entendu les paroles du jeune homme au visage de jade, il répondit lentement: « Au plus tard dans quatre jours, ce massacre prendra fin et tous les cultivateurs du Taureau Céleste dans la Mer des Pilules seront morts! »
 
-« La Mer des Pillules est la porte d'entrée par laquelle mon Continent du Démon Vert pourra accéder au Continent du Taureau Céleste. De nombreux cultivateurs puissants se trouvent ici, il est donc difficile de tous les éliminer rapidement. Cependant, comme l'a dit le frère aîné Qian, quatre jours devraient suffire. » La femme sourit en écartant une mèche de cheveux derrière son oreille de la main gauche.
+« La Mer des Pilules est la porte d'entrée par laquelle mon Continent du Démon Vert pourra accéder au Continent du Taureau Céleste. De nombreux cultivateurs puissants se trouvent ici, il est donc difficile de tous les éliminer rapidement. Cependant, comme l'a dit le frère aîné Qian, quatre jours devraient suffire. » La femme sourit en écartant une mèche de cheveux derrière son oreille de la main gauche.
 
-« Frères, regardez la boussole de la Mer des Pillules. » Tandis qu'elle parlait, la boussole dans sa main droite brilla, révélant la carte complète de la mer.
+« Frères, regardez la boussole de la Mer des Pilules. » Tandis qu'elle parlait, la boussole dans sa main droite brilla, révélant la carte complète de la mer.
 
 Des milliers de points verts parsemaient la carte et semblaient se déplacer lentement.
 
@@ -36,7 +36,7 @@ Outre ces points verts, on distinguait une multitude de points blancs. Ces derni
 
 Les lueurs blanches variaient en intensité. Trois points brillaient bien plus fort que les autres.
 
-« Les trois cultivateurs les plus puissants de la Mer des Pillules sont au stade moyen de la Tribulation du Vide. Les Ancêtres ont déjà envoyé des Messagers du Démon Vert pour s'occuper d'eux, nous n'avons donc pas à nous en soucier! » déclara lentement la femme.
+« Les trois cultivateurs les plus puissants de la Mer des Pilules sont au stade moyen de la Tribulation du Vide. Les Ancêtres ont déjà envoyé des Messagers du Démon Vert pour s'occuper d'eux, nous n'avons donc pas à nous en soucier! » déclara lentement la femme.
 
 En dehors de ces trois lumières éclatantes, moins de dix points, bien que plus petits, restaient nettement plus imposants que les autres. Ils étaient encerclés par des points verts et semblaient engagés dans de féroces combats.
 
@@ -44,9 +44,9 @@ En dehors de ces trois lumières éclatantes, moins de dix points, bien que plus
 
 La femme sourit et leva sa main gauche. D'un geste gracieux de sa main semblable à du jade, elle fit apparaître une goutte de liquide noir dans sa paume. Ce liquide était cristallin et émettait une étrange lueur, dégageant une riche aura d'essence d'eau.
 
-« Avec ce trésor de la Secte du Démon Poison, le Liquide de Corruption aux Mille Raffinages, pensez-vous que les cultivateurs de la Mer des Pillules aient la moindre chance, mes frères? » demanda-t-elle en levant les yeux vers les deux jeunes gens.
+« Avec ce trésor de la Secte du Démon Poison, le Liquide de Corruption aux Mille Raffinages, pensez-vous que les cultivateurs de la Mer des Pilules aient la moindre chance, mes frères? » demanda-t-elle en levant les yeux vers les deux jeunes gens.
 
-Le jeune homme au visage de jade blanc sourit et répondit posément: « Nous ne devons pas être négligents. Puisque nos trois sectes ont uni leurs forces, aucun incident ne doit survenir et nous ne pouvons rien laisser paraître au Continent du Taureau Céleste. Les trois Ancêtres ont déjà commencé à utiliser des sorts pour empêcher quiconque de diviner l'avenir. Nous devons massacrer les cultivateurs du Taureau Céleste dans la Mer des Pillules et raffiner leur essence pour en faire une demi-pilule céleste. C'est cette pilule qui nous permettra de briser la barrière invisible entourant le Continent du Taureau Céleste! »
+Le jeune homme au visage de jade blanc sourit et répondit posément: « Nous ne devons pas être négligents. Puisque nos trois sectes ont uni leurs forces, aucun incident ne doit survenir et nous ne pouvons rien laisser paraître au Continent du Taureau Céleste. Les trois Ancêtres ont déjà commencé à utiliser des sorts pour empêcher quiconque de diviner l'avenir. Nous devons massacrer les cultivateurs du Taureau Céleste dans la Mer des Pilules et raffiner leur essence pour en faire une demi-pilule céleste. C'est cette pilule qui nous permettra de briser la barrière invisible entourant le Continent du Taureau Céleste! »
 
 Aucun des trois ne remarqua que sur la carte de la boussole, près du Continent du Taureau Céleste, se trouvait un point blanc tout à fait ordinaire.
 
@@ -56,17 +56,17 @@ Wang Lin était assis calmement dans les profondeurs de la mer, son corps fusion
 
 Toutefois, condenser de l'essence d'eau à partir de l'eau de mer était une tâche ardue. Peut-être que s'il parvenait à condenser la mer entière en une seule goutte, il pourrait en extraire une essence pure, mais quoi qu'il en coûte, Wang Lin devait tenter sa chance.
 
-Son Sens Divin fusionnant avec l'océan, il percevait le massacre qui se déroulait dans la Mer des Pillules. La zone entière était plongée dans le sang et le carnage.
+Son Sens Divin fusionnant avec l'océan, il percevait le massacre qui se déroulait dans la Mer des Pilules. La zone entière était plongée dans le sang et le carnage.
 
 Le temps s'écoulait lentement. En un éclair, une journée passa. Durant cette période, plus d'une douzaine de groupes de cultivateurs en robes vertes survolèrent Wang Lin, mais aucun ne le détecta parmi les algues sous leurs pieds.
 
-Après cette journée, la gigantesque Mer des Pillules avait baissé de 100 pieds, comme si l'eau s'était évaporée dans le néant. Cela commença à attirer l'attention des cultivateurs, mais en plein milieu du massacre, personne n'y prêta véritablement attention.
+Après cette journée, la gigantesque Mer des Pilules avait baissé de 100 pieds, comme si l'eau s'était évaporée dans le néant. Cela commença à attirer l'attention des cultivateurs, mais en plein milieu du massacre, personne n'y prêta véritablement attention.
 
 C'en était de même pour les trois individus sous les drapeaux qui perçaient le ciel du côté du Continent du Démon Vert.
 
 La belle femme consulta la boussole et ordonna: « Nord-est, à 390 000 kilomètres. Une escouade de Soldats du Démon Vert, partez! » Instantanément, des dizaines de cultivateurs s'élancèrent, plongeant dans l'eau pour disparaître sans laisser de trace.
 
-Ils ne pouvaient pas utiliser la Distorsion Spatiale, mais le Continent du Démon Vert était bien préparé: non seulement la restriction scellait la Mer des Pillules, mais elle permettait également aux cultivateurs du Continent du Démon Vert de s'y fondre pour se déplacer.
+Ils ne pouvaient pas utiliser la Distorsion Spatiale, mais le Continent du Démon Vert était bien préparé: non seulement la restriction scellait la Mer des Pilules, mais elle permettait également aux cultivateurs du Continent du Démon Vert de s'y fondre pour se déplacer.
 
 « Sud-est, à 1,98 million de kilomètres. Cinq escouades de Soldats du Démon Vert, partez! » Sur son ordre, plus de cent cultivateurs s'élancèrent à leur tour et disparurent.
 
@@ -84,7 +84,7 @@ Le cultivateur nommé Qian afficha une expression venimeuse et, sans un mot, s'a
 
 Une fois les deux partis, la femme, entourée de milliers de cultivateurs, fronça les sourcils en observant sa boussole, troublée par un détail.
 
-« Étrange... pourquoi le niveau de l'eau de la Mer des Pillules a-t-il autant chuté en une seule journée... » Son regard balaya tous les points blancs, y compris celui représentant Wang Lin.
+« Étrange... pourquoi le niveau de l'eau de la Mer des Pilules a-t-il autant chuté en une seule journée... » Son regard balaya tous les points blancs, y compris celui représentant Wang Lin.
 
 Cependant, le point blanc de Wang Lin était si banal qu'il n'attira pas son attention. Elle réfléchit un instant avant de laisser passer cette pensée. Elle reprit le déploiement de ses troupes pour collaborer avec les cultivateurs de la Secte du Démon Vert afin d'annihiler les derniers cultivateurs marginaux du Continent du Taureau Céleste.
 
@@ -100,7 +100,7 @@ Même les nombreux cultivateurs participant au massacre ne pouvaient plus ignore
 
 « Où est passée toute cette eau? »
 
-« Est-il possible que quelqu'un utilise un sort puissant? » Les cultivateurs en robes vertes de la Mer des Pillules commençaient à perdre leur calme.
+« Est-il possible que quelqu'un utilise un sort puissant? » Les cultivateurs en robes vertes de la Mer des Pilules commençaient à perdre leur calme.
 
 À cet instant, au fond de l'océan, loin de Wang Lin, trois personnes fuyaient désespérément. Deux d'entre elles étaient visiblement gravement blessées, mais le troisième ne les abandonna pas pour sauver sa propre peau.
 

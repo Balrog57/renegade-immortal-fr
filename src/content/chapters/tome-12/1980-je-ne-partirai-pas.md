@@ -20,7 +20,7 @@ Dans le tumulte de la neige et du vent, lorsque les deux doigts entrèrent en co
 
 Des grondements tonitruants retentirent. Les 98 images rémanentes des cinq Veines de Sortilèges fusionnèrent en une seule et, alliées à la puissance du Taureau Céleste, formèrent la deuxième onde de choc contre le doigt!
 
-Le fracas de l'orage résonna à travers le monde tel un tonnerre dans une nuit silencieuse. Cela força l'Exalt Émérite Hai Zi, qui s'empressait d'apporter son aide, à s'interrompre, incapable de progresser davantage.
+Le fracas de l'orage résonna à travers le monde tel un tonnerre dans une nuit silencieuse. Cela força l'Exalté Émérite Hai Zi, qui s'empressait d'apporter son aide, à s'interrompre, incapable de progresser davantage.
 
 Le doigt marqua une pause un instant et ses veines saillirent. Il semblait incapable de résister au doigt de Wang Lin.
 
@@ -108,7 +108,7 @@ Alors que la voix retentissait, les ondulations sur la rue s'estompèrent. Une f
 
 Cependant, au moment où les images de l'extérieur s'effacèrent, Wang Lin vit que cent personnes parmi les dix mille avaient avalé une pilule. Leurs corps s'effondrèrent et des âmes originelles semblables à de la fumée volèrent vers la rue scellée.
 
-Simultanément, cent ombres vaporeuses apparurent dans le vent et la neige. Elles affichaient toutes un niveau de culture d'Exalt Émérite et chargèrent Wang Lin, faisant totalement fi de leur propre vie.
+Simultanément, cent ombres vaporeuses apparurent dans le vent et la neige. Elles affichaient toutes un niveau de culture d'Exalté Émérite et chargèrent Wang Lin, faisant totalement fi de leur propre vie.
 
 Le regard de Wang Lin était calme, mais une lueur y brillait tandis qu'il observait les cent figures se précipiter vers lui. Son attention se porta sur le doigt qui s'était reformé et flottait là, immobile.
 

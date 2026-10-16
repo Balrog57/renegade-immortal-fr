@@ -22,7 +22,7 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 « Zhou De, du Système Stellaire de la Rivière Invoquée, salue le Seigneur du Royaume Scellé! » L'homme âgé en noir sourit amèrement en joignant les mains devant Wang Lin.
 
-« Cloud Edge, du Système Stellaire de la Bordure Nuageuse, salue le Seigneur du Royaume Scellé. Ce qui s'est passé plus tôt était un malentendu, j'espère que le Seigneur du Royaume Scellé ne nous en tiendra pas rigueur. » L'homme d'âge moyen sourit amèrement en joignant les mains.
+« Bord-des-Nuages, du Système Stellaire de la Bordure Nuageuse, salue le Seigneur du Royaume Scellé. Ce qui s'est passé plus tôt était un malentendu, j'espère que le Seigneur du Royaume Scellé ne nous en tiendra pas rigueur. » L'homme d'âge moyen sourit amèrement en joignant les mains.
 
 « Ce vieil homme est Maître Hong Shan. J'avais conclu un accord avec le Seigneur du Royaume Scellé. Maintenant que vous avez tué cet esclave et sauvé la Mer Nuageuse, vous êtes qualifié pour être le Seigneur du Royaume Scellé de cette génération! Cependant, l'invasion du Royaume Extérieur est imminente, et il sera difficile de résister avec nos seules forces, mais nous devons nous battre! Vous avez deux cultivateurs du troisième pas à vos côtés ainsi que votre propre force, mais cela reste insuffisant! »
 
@@ -30,17 +30,17 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-L'homme âgé de la Secte des Cadavres déclara lentement: « Ce vieil homme est Maître South Cloud. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
+L'homme âgé de la Secte des Cadavres déclara lentement: « Ce vieil homme est Maître Nuage du Sud. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
 
 Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer Nuageuse reprit ses intenses préparatifs de guerre.
 
-Maître Hong Shan et Maître South Cloud restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était bien plus grande que ce qu'ils avaient anticipé.
+Maître Hong Shan et Maître Nuage du Sud restèrent silencieux après avoir entendu les paroles de Wang Lin. L'inquiétude se lisait dans leurs yeux; la force du Royaume Extérieur était bien plus grande que ce qu'ils avaient anticipé.
 
 « En piégeant Grande Désolation et deux des cinq maîtres du Système Stellaire Antique, vous avez grandement contribué à cette guerre! Sans votre intervention, la bataille contre le Royaume Extérieur aurait été encore plus difficile! » soupira Maître Hong Shan.
 
 « Cette Bête des Enfers semble un peu différente de mes souvenirs. Elle a dévoré la tempête dorée, vous devriez donc l'observer de plus près. Cette cloche dorée avait manifestement été envoyée par le Royaume Céleste Antique pour cette bataille, mais elle a été détruite par le Daoïste Water! »
 
-« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous posez la question, vous pouvez vous occuper de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître South Cloud d'un ton grave.
+« De plus, il y a les Royaumes aux Sept Couleurs mentionnés par Maître Lu Fu. Puisque vous posez la question, vous pouvez vous occuper de celui qui se trouve au siège de l'Alliance dans le Système Stellaire du Vide Brillant. Quant aux autres, nous les rechercherons méticuleusement pour les détruire! » ajouta Maître Nuage du Sud d'un ton grave.
 
 « Quant à Tai Aluo, la moitié de votre sceau peut être levée. Une fois la guerre contre le Royaume Extérieur terminée, l'autre moitié pourra l'être! » Le regard de Maître Hong Shan se posa sur l'homme pieds nus.
 
@@ -86,9 +86,9 @@ Système Stellaire Antique, Clan de l'Âme Céleste. À cet instant, un rayon d'
 
 Plus de dix clans du Système Stellaire Antique reçurent la convocation du Conseil Souverain simultanément, et tous se mirent en mouvement!
 
-« Ce vieil homme, Maître Enlighten East du Conseil Souverain, supervisera la première bataille contre le Royaume Intérieur! »
+« Ce vieil homme, Maître Éveil-de-l'Est du Conseil Souverain, supervisera la première bataille contre le Royaume Intérieur! »
 
-« Ce vieiel homme, l'estimable Nan Zhao, supervisera la bataille aux côtés de Maître Enlighten East! »
+« Ce vieiel homme, l'estimable Nan Zhao, supervisera la bataille aux côtés de Maître Éveil-de-l'Est! »
 
 « Le Grand Maître Yun Luo du Conseil Souverain sera le stratège de cette bataille... »
 
@@ -124,7 +124,7 @@ Alors que les cris de guerre résonnaient dans le Royaume Extérieur, les treize
 
 Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette intention meurtrière, une aura étrange commença à poindre. Le sang de ces 90 000 cultivateurs se mit à bouillir, les rendant progressivement agités et déchaînés. Ils étaient comme des bêtes féroces affamées depuis trop longtemps, prêtes à tout dévorer!
 
-Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Enlighten East! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade de l'Espace Arcane!
+Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Éveil-de-l'Est! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade de l'Espace Arcane!
 
 À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! L'estimable Nan Zhao! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade de l'Esprit Vide — sa maîtrise des poisons était tout aussi célèbre!
 
@@ -132,6 +132,6 @@ Près d'eux se trouvait l'ancêtre lugubre du Clan de l'Hirondelle de Feu, fixan
 
 Devant les trois autres se tenait une femme vêtue de soie nuageuse, la tête baissée. C'était le Grand Maître Yun Luo. Ses mains s'activaient rapidement comme si elle pratiquait la divination, et une lueur d'inquiétude traversait son regard.
 
-« Je dois remercier le Grand Maître Yun Luo d'avoir découvert que les cultivateurs du troisième pas du Royaume Intérieur ont eu vent des Royaumes aux Sept Couleurs mis en place par le Souverain. Cependant, comment ces fourmis du Royaume Intérieur auraient-elles pu découvrir le véritable plan du Souverain? » sourit Maître Enlighten East.
+« Je dois remercier le Grand Maître Yun Luo d'avoir découvert que les cultivateurs du troisième pas du Royaume Intérieur ont eu vent des Royaumes aux Sept Couleurs mis en place par le Souverain. Cependant, comment ces fourmis du Royaume Intérieur auraient-elles pu découvrir le véritable plan du Souverain? » sourit Maître Éveil-de-l'Est.
 
 Le Grand Maître Yun Luo leva sa main élégante et déclara lentement: « Le but de cette bataille n'est pas la mise à mort, mais l'installation de ce réseau de transfert, gardez cela à l'esprit! En outre, Wang Lin doit être tué le plus rapidement possible; il ne doit pas survivre! »

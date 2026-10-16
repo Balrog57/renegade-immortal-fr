@@ -36,7 +36,7 @@ L'expression de Cupidité demeura sombre tandis qu'il laissait échapper un rire
 
 « Chers neveux, que signifie ce comportement? »
 
-Chen Long déclara d'un ton solennel: « Aîné Cupidité, le junior souhaite savoir ce que vous avez obtenu dans cette grotte! »
+Chen Long déclara d'un ton solennel: « Aîné Cupidité, le cadet souhaite savoir ce que vous avez obtenu dans cette grotte! »
 
 Une lueur de dédain passa dans les yeux de Cupidité lorsqu'il répondit: « Tu veux savoir? » Sur ces mots, il frappa son sac de rangement et un œuf de forme ovale apparut dans sa main.
 
@@ -48,7 +48,7 @@ Cependant, rien ne garantissait qu'il s'agissait bien de ce que Cupidité avait 
 
 « Petits insolents, ce vieil homme ignorera votre manque de respect une fois, par égard pour la dignité de votre maître. Mais si cela se reproduit, ne me blâmez pas d'être impitoyable. Humph, lorsque j'ai commencé ma culture, vous n'étiez même pas nés. Aucun de ceux qui osent me parler ainsi ne survit! » Les yeux de Cupidité devinrent glacials. Bien que sa voix fût douce, elle résonna dans les oreilles des disciples de la Secte de la Grande Épée Lou comme un tonnerre rugissant. Hormis Chen Long, tous les autres reculèrent instinctivement.
 
-Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement: « Veuillez ne pas nous en tenir rigueur, Aîné. Le junior était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
+Chen Long baissa la tête, une lueur d'intention meurtrière traversant son regard. Il dit respectueusement: « Veuillez ne pas nous en tenir rigueur, Aîné. Le cadet était simplement impatient. Après tout, nous sommes piégés ici depuis près de cent ans. »
 
 Cupidité ferma les yeux et répondit lentement: « Pourquoi tant de hâte? Au plus tard, votre maître arrivera dans cent ans pour vous secourir tous. »
 
@@ -122,6 +122,6 @@ Une fois cela accompli, Wang Lin chassa toute distraction et s'envola vers le Pa
 
 Zhou Yi était son bienfaiteur, Wang Lin se devait de le sauver!
 
-« Outre le sauvetage du senior Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays Démoniaque de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
+« Outre le sauvetage de l'aîné Zhou Yi, il y a aussi... la Richesse... » En se téléportant, les yeux de Wang Lin s'illuminèrent. Il se souvenait distinctement avoir vu la Richesse passer devant lui lors de la phase des marées... Plusieurs jours plus tard, dans la partie occidentale du Pays Démoniaque de l'Eau, en un lieu nommé la Mer des Nuages. Cet endroit était voilé de nuages une grande partie de l'année. Au fond de cette mer de nuages, une faille s'étirait sur d'innombrables kilomètres. C'était l'une des entrées de l'Abîme des Marées!
 
 Quatre cultivateurs, deux hommes et deux femmes, se tenaient à l'orée de la mer des nuages et scrutaient l'intérieur!

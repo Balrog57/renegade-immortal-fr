@@ -24,7 +24,7 @@ Assise à l'extérieur du palais, Wang Shanshan fronça les sourcils et dit: « 
 
 Mu Bingmei réfléchissait en silence. Elle ne comprenait pas pourquoi le Grand Ancien de la Secte Divine agissait ainsi, et cela lui inspirait un sentiment étrange. Un picotement inconnu lui serrait le cœur; c'était comme si un événement majeur allait se produire, et qu'il allait frapper quelqu'un qu'elle connaissait.
 
-À cet instant, Mu Bingmei ignorait que la compétition des sectes de rang 8 avait été annulée ou que Li Qianmei avait quitté la Secte Briseuse de Ciel.
+À cet instant, Mu Bingmei ignorait que la compétition des sectes de rang 8 avait été annulée ou que Li Qianmei avait quitté la Secte Brise-Ciel.
 
 Elle ne savait pas que Wang Lin affrontait sa plus grande crise à ce jour, et que son destin était suspendu à un fil!
 

@@ -20,7 +20,7 @@ La lueur rouge émanant de la sculpture de glace de Yao Xixue s'intensifia, comm
 
 Le regard de l'homme d'âge moyen était impassible. Il ne daigna même pas regarder Wang Lin, concentrant son attention uniquement sur Yao Xixue.
 
-Yao Xixue s'inclina et dit: « Aîné, puisque vous connaissiez mon ancêtre, pourquoi ne me laisseriez-vous pas passer? Cette grotte est abandonnée depuis de nombreuses années; ce serait un gaspillage de la laisser ainsi. Pourquoi ne pas la confier à cette junior? »
+Yao Xixue s'inclina et dit: « Aîné, puisque vous connaissiez mon ancêtre, pourquoi ne me laisseriez-vous pas passer? Cette grotte est abandonnée depuis de nombreuses années; ce serait un gaspillage de la laisser ainsi. Pourquoi ne pas la confier à cette cadette? »
 
 L'homme d'âge moyen détourna le regard et déclara calmement: « Si vous pouvez résister à trois assauts de mon épée, alors vous serez qualifiée! Serez-vous ensemble ou séparément? »
 

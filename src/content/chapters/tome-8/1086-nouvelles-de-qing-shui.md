@@ -52,7 +52,7 @@ Le corps de cet homme était immense, comme une véritable montagne de chair. En
 
 Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein de la Secte Divin du Oiseau Vermillon est bien plus sûr que l'extérieur. »
 
-« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Ancient Times*.
+« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Antique Times*.
 
 En repensant au poing géant descendant du ciel, la peur de Maître Fu Fengzi devint encore plus intense.
 

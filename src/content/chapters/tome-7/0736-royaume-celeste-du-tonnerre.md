@@ -106,7 +106,7 @@ Un silence de mort s'installa parmi les cultivateurs environnants.
 
 Personne ne remarqua qu'à cet instant, Shengong Hu avait baissé la tête, mais ses yeux étaient emplis de choc et d'une excitation indescriptible. En voyant passer cette météorite de tonnerre, il avait ressenti une trace de l'aura de son seigneur grâce à son âme dao.
 
-« Moi, Shengong Hu, je ne me suis pas trompé. Mon Senior est vraiment un être incroyable. Le tonnerre qu'il a attiré a atteint ce degré et a pu pénétrer le Royaume Céleste du Tonnerre avant même son ouverture. Une telle culture est vraiment... incroyable! »
+« Moi, Shengong Hu, je ne me suis pas trompé. Mon Aîné est vraiment un être incroyable. Le tonnerre qu'il a attiré a atteint ce degré et a pu pénétrer le Royaume Céleste du Tonnerre avant même son ouverture. Une telle culture est vraiment... incroyable! »
 
 Un homme se tenait sur un pic couvert d'innombrables éclairs, sur un fragment du Royaume Céleste du Tonnerre encore fermé.
 

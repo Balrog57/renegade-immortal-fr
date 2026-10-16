@@ -40,9 +40,9 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Les cinq Royaumes aux Sept Couleurs devinrent autant de portails vers le Royaume Intérieur, permettant aux cultivateurs du Royaume Extérieur de pénétrer chez nous. Utilisant ces Royaumes comme bases, ils purent envahir le Royaume Intérieur... Les pertes furent lourdes...
 
-« Lors de la seconde bataille, Senior Maître Hong Shan fut attaqué par ce garçon au regard glacial et d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière des Invocations, gardé par 30 000 cultivateurs! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
+« Lors de la seconde bataille, Aîné Maître Hong Shan fut attaqué par ce garçon au regard glacial et d'autres cultivateurs de la troisième étape du Royaume Extérieur. Finalement, il fut piégé à l'intérieur du Royaume aux Sept Couleurs de la Rivière des Invocations, gardé par 30 000 cultivateurs! Actuellement, celui qui dirige le Royaume Intérieur est l'un de ses avatars.
 
-« Senior Maître South Cloud fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie!
+« Aîné Maître Nuage du Sud fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie!
 
 « La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les cultivateurs de la troisième étape de la Rivière des Invocations pour les ralentir, nous ne parvinons pas à stopper l'avancée de l'armée du Royaume Extérieur!
 

@@ -26,11 +26,11 @@ Le visage de Pu Nanzi était sombre alors qu'il planait dans les airs. La puissa
 
 Pour l'instant, cette formation ne pouvait que défendre sans pouvoir riposter, mais si un expert de l'Âme Naissante était présent, sa puissance serait terrifiante.
 
-Alors que l'ancien au visage rouge voyait ses subordonnés de l'Établissement des Fondations tomber les uns après les autres, son cœur saignait de douleur. Il cria: « Senior Pu Nanzi, votre Secte Xuan Dao a toujours entretenu de bonnes relations avec notre Secte Heng Yue. Voulez-vous vraiment nous anéantir? »
+Alors que l'ancien au visage rouge voyait ses subordonnés de l'Établissement des Fondations tomber les uns après les autres, son cœur saignait de douleur. Il cria: « Aîné Pu Nanzi, votre Secte Xuan Dao a toujours entretenu de bonnes relations avec notre Secte Heng Yue. Voulez-vous vraiment nous anéantir? »
 
-Pu Nanzi renifla et répondit: « Liu Wenju, il y a cinq cents ans, tu n'étais qu'un simple junior. Te voilà devenu un membre éminent de la Secte Heng Yue, ayant même atteint la Formation du Noyau. Il serait dommage de détruire cette formation. Si vous l'ouvriez de vous-mêmes, les choses seraient plus simples pour vous tous. »
+Pu Nanzi renifla et répondit: « Liu Wenju, il y a cinq cents ans, tu n'étais qu'un simple cadet. Te voilà devenu un membre éminent de la Secte Heng Yue, ayant même atteint la Formation du Noyau. Il serait dommage de détruire cette formation. Si vous l'ouvriez de vous-mêmes, les choses seraient plus simples pour vous tous. »
 
-L'expert de la Formation du Noyau, Liu Wenju, hésita, quand soudain la vieille femme s'écria d'une voix colérique: « Senior Pu Nanzi, je ne peux pas obtempérer! »
+L'expert de la Formation du Noyau, Liu Wenju, hésita, quand soudain la vieille femme s'écria d'une voix colérique: « Aîné Pu Nanzi, je ne peux pas obtempérer! »
 
 Pu Nanzi laissa échapper un rire dément. Son visage se crispa et il hurla: « Très bien! Formation défensive, brise-toi! » Sur ce, il agita la main et le gigantesque tourbillon s'éleva haut dans les airs. Son visage devint pourpre alors qu'il libérait davantage d'énergie de l'Âme Naissante, faisant grandir encore plus le tourbillon.
 
@@ -62,11 +62,11 @@ Pu Nanzi avait toujours convoité les terres de la Secte Heng Yue. Cette fois, i
 
 D'un ton impérieux, Pu Nanzi demanda: « Tu es Wang Lin? »
 
-Wang Lin prit une profonde inspiration. Il joignit les mains et dit respectueusement: « Ce disciple est Wang Lin, et il salue le Senior Pu Nanzi. »
+Wang Lin prit une profonde inspiration. Il joignit les mains et dit respectueusement: « Ce disciple est Wang Lin, et il salue l'Aîné Pu Nanzi. »
 
 Pu Nanzi hocha la tête. Il se tourna vers Liu Wenju et la vieille femme de la Formation du Noyau et déclara: « Les ancêtres de l'Âme Naissante de la Secte Heng Yue sont tous morts au combat dans un autre pays. Vous n'avez plus les moyens de conserver cette montagne de Heng Yue. Au lieu de laisser une autre secte vous la voler, pourquoi ne pas la céder à ma Secte Xuan Dao? »
 
-Liu Wenju lança un regard amer à la vieille femme et dit: « Senior, je vous en prie, considérez les bonnes relations entre nos deux sectes et ne... »
+Liu Wenju lança un regard amer à la vieille femme et dit: « Aîné, je vous en prie, considérez les bonnes relations entre nos deux sectes et ne... »
 
 Sans laisser Liu Wenju terminer sa phrase, Pu Nanzi l'interrompit avec impatience: « Partez! Vous ne pouvez rien emporter! Si vous continuez à me harceler, je n'hésiterai pas à anéantir la secte tout entière! »
 

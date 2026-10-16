@@ -8,7 +8,7 @@ slug: un-homme-de-fer-et-de-pierre
 ---
 Ces sculptures sur bois étaient toutes identiques et représentaient un jeune homme d'une grande beauté.
 
-« La requête du Senior a été accomplie par le cadet. » Après cela, Wang Lin s'assit dans un coin et ne parla plus.
+« La requête de l'Aîné a été accomplie par le cadet. » Après cela, Wang Lin s'assit dans un coin et ne parla plus.
 
 Les yeux de Yunque Zi s'illuminèrent. D'un revers de main, il fit disparaître toutes les sculptures sur bois. Il jeta un dernier regard vers Wang Lin avant de reporter son attention sur la porte.
 

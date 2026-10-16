@@ -118,13 +118,13 @@ Une multitude de cultivateurs avaient migré des quatre grands systèmes stellai
 
 Mu Bingmei n'était pas partie; elle avait choisi de rester dans le monde des grottes, au sein du Nouveau Royaume Céleste. Elle attendait qu'un certain être revienne un jour.
 
-Le Maître du Dao Rêve Bleu n'était pas non plus parti. En tant que protecteur suprême du Nouveau Royaume Céleste, il était resté pour veiller sur lui. Il y avait aussi des gens comme le Maître South Cloud, qui avaient également choisi de rester.
+Le Maître du Dao Rêve Bleu n'était pas non plus parti. En tant que protecteur suprême du Nouveau Royaume Céleste, il était resté pour veiller sur lui. Il y avait aussi des gens comme le Maître Nuage du Sud, qui avaient également choisi de rester.
 
 Cependant, en cet instant, une atmosphère funèbre régnait sur le Nouveau Royaume Céleste. Un nuage noir semblait planer sur eux, plongeant les cultivateurs dans un silence pesant.
 
 Le Maître du Dao Rêve Bleu était gravement blessé.
 
-Le corps du Maître South Cloud s'était effondré, ne laissant subsister que son âme originelle.
+Le corps du Maître Nuage du Sud s'était effondré, ne laissant subsister que son âme originelle.
 
 Le ciel du Royaume Céleste était rouge sang, strié d'ombres révélant des expressions féroces. On aurait dit qu'une légion de spectres hantait cette teinte écarlate.
 

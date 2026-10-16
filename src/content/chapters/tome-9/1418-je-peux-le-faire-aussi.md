@@ -64,7 +64,7 @@ L'esprit de Wang Lin vacilla et sa respiration se fit plus lourde. Devant lui, l
 
 « Reste ici... Es-tu fatigué de deux mille ans de culture? À force de marcher sans cesse sur le fil du rasoir entre la vie et la mort, n'as-tu pas peur... Reste ici, reste ici... »
 
-Le combat intérieur de Wang Lin s'intensifia et sa respiration devint anxieuse. Ce court laps de temps lui semblait durer des millénaires. Après un long moment, Wang Lin leva soudain les yeux vers l'Oiseau Vermillon de la première génération. D'une voix légèrement rauque, il dit: « L'Ancêtre ne peut emmener que nous trois? Puis-je en prendre d'autres? Ce junior a des amis qu'il ne peut abandonner... »
+Le combat intérieur de Wang Lin s'intensifia et sa respiration devint anxieuse. Ce court laps de temps lui semblait durer des millénaires. Après un long moment, Wang Lin leva soudain les yeux vers l'Oiseau Vermillon de la première génération. D'une voix légèrement rauque, il dit: « L'Ancêtre ne peut emmener que nous trois? Puis-je en prendre d'autres? Ce cadet a des amis qu'il ne peut abandonner... »
 
 L'Oiseau Vermillon de la première génération réfléchit, et un instant plus tard, sa voix résonna dans le monde:
 
@@ -76,7 +76,7 @@ L'Oiseau Vermillon de la première génération réfléchit, et un instant plus 
 
 Une vague monstrueuse s'éleva dans le cœur de Wang Lin. Ce choix le faisait lutter et hésiter... Un instant plus tard, la main droite de Wang Lin s'élança vers le vide et une faille s'ouvrit sur son espace de stockage. Un cercueil en émergea lentement, et Li Muwan reposait paisiblement à l'intérieur.
 
-« Le Senior peut-il la ressusciter? » Wang Lin leva les yeux, le regard injecté de sang. Ce choix était pour lui une véritable bataille acharnée!
+« L'Aîné peut-il la ressusciter? » Wang Lin leva les yeux, le regard injecté de sang. Ce choix était pour lui une véritable bataille acharnée!
 
 Un long soupir parcourut le monde tandis que la voix de l'Oiseau Vermillon de la première génération résonnait:
 
@@ -92,11 +92,11 @@ L'Oiseau Vermillon de la première génération réfléchit un instant et dit le
 
 Wang Lin ne leva pas les yeux et retira lentement son regard du cercueil. Sa main droite effleura le bois avant de le replacer dans son espace de stockage.
 
-« Les trois personnes dont l'Ancêtre parle sont trop loin de ce junior. S'ils le peuvent, c'est sans doute en raison de leur culture insondable... » Wang Lin leva la main et regarda la statue de l'Oiseau Vermillon de la première génération. Bien que ses yeux fussent toujours injectés de sang, ils ne contenaient plus de lutte. Ils étaient désormais empreints de clarté et de détermination.
+« Les trois personnes dont l'Ancêtre parle sont trop loin de ce cadet. S'ils le peuvent, c'est sans doute en raison de leur culture insondable... » Wang Lin leva la main et regarda la statue de l'Oiseau Vermillon de la première génération. Bien que ses yeux fussent toujours injectés de sang, ils ne contenaient plus de lutte. Ils étaient désormais empreints de clarté et de détermination.
 
-« Ce junior veut aussi vivre en paix. Je suis lassé des luttes incessantes entre la vie et la mort et des complots du monde de la culture. J'aimerais beaucoup rester ici jusqu'à mon vieil âge. Même si cela signifie que ma culture stagne à la troisième étape, qu'importe? »
+« Ce cadet veut aussi vivre en paix. Je suis lassé des luttes incessantes entre la vie et la mort et des complots du monde de la culture. J'aimerais beaucoup rester ici jusqu'à mon vieil âge. Même si cela signifie que ma culture stagne à la troisième étape, qu'importe? »
 
-Les yeux de Wang Lin brillèrent alors qu'il poursuivait: « Le problème est que ce junior ne peut pas se contenter de cela... Demander l'aide des autres est trop incertain, et je n'aime pas qu'autrui contrôle mon destin... Je ferais mieux de ne rien demander. Puisque ces êtres peuvent cultiver à un tel degré, moi aussi, Wang Lin, je peux le faire! »
+Les yeux de Wang Lin brillèrent alors qu'il poursuivait: « Le problème est que ce cadet ne peut pas se contenter de cela... Demander l'aide des autres est trop incertain, et je n'aime pas qu'autrui contrôle mon destin... Je ferais mieux de ne rien demander. Puisque ces êtres peuvent cultiver à un tel degré, moi aussi, Wang Lin, je peux le faire! »
 
 «... Je peux le faire aussi! » Bien que ses paroles ne fussent pas fortes, dès qu'il les eut prononcées, une force indescriptible sembla déferler dans son corps, lui conférant une présence écrasante.
 
@@ -104,7 +104,7 @@ Ces mots parurent résonner aux quatre coins de ce monde. Même l'Oiseau Vermill
 
 « Je ne peux pas abandonner mon corps de Dieu Ancien! Je ne peux pas renoncer à mes quatre autres essences. Même si ce chemin est ardu, je dois le poursuivre! Je ne peux laisser ma culture s'arrêter... » Wang Lin s'inclina devant l'Oiseau Vermillon de la première génération avant de s'élancer dans les airs.
 
-« Ce junior apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Plaies Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des étapes reconnues par les cultivateurs pour franchir la Porte du Vide... Alors pourquoi ce junior ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique! L'Ancêtre a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce junior refuse de traverser les Cinq Plaies Célestes! »
+« Ce cadet apprécie la bienveillance du vieil Ancêtre... Que ce soient les Cinq Plaies Célestes ou les Cinq Doigts Brise-Vide, ce sont toutes des étapes reconnues par les cultivateurs pour franchir la Porte du Vide... Alors pourquoi ce cadet ne pourrait-il pas tracer sa propre voie, une méthode qui lui soit unique! L'Ancêtre a dit que j'avais besoin de cinq doigts pour couvrir le ciel, mais ce cadet refuse de traverser les Cinq Plaies Célestes! »
 
 « Mon corps de Dieu Ancien est ma paume, et mes cinq essences sont mes doigts! Cinq Plaies Célestes, Cinq Doigts Brise-Vide, cinq essences... les noms diffèrent, mais le sens est identique! »
 

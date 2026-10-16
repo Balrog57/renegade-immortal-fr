@@ -6,19 +6,19 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 644 - The Purple Mist Fuse Into One
 slug: le-brouillard-violet-fusionne-en-un
 ---
-Wang Lin afficha un léger sourire. Il joignit les mains devant Zhou Yi et dit: « Senior Zhou Yi, Junior a une requête. »
+Wang Lin afficha un léger sourire. Il joignit les mains devant Zhou Yi et dit: « Aîné Zhou Yi, ce cadet a une requête. »
 
 Zhou Yi se concentra sur Wang Lin et demanda: « Laquelle? »
 
-Une lueur de sagesse brilla dans les yeux de Wang Lin lorsqu'il dit: « Senior devrait disperser son sens divin d'épée dans ce brouillard violet afin de rendre sa présence aussi vague que possible. Je vais aller à la rencontre de Cupidité et des autres. »
+Une lueur de sagesse brilla dans les yeux de Wang Lin lorsqu'il dit: « Aîné devrait disperser son sens divin d'épée dans ce brouillard violet afin de rendre sa présence aussi vague que possible. Je vais aller à la rencontre de Cupidité et des autres. »
 
 Zhou Yi hocha la tête. « Tu dois être prudent en y allant seul. » Le poids des paroles de Wang Lin s'était considérablement accru dans son cœur après les avoir entendues.
 
-Wang Lin sourit discrètement et dit: « Senior peut être rassuré. Plus tôt, Cupidité ne s'est contenté que de crier au lieu de nous poursuivre, comme s'il était préoccupé par quelque chose. C'est un homme prudent. »
+Wang Lin sourit discrètement et dit: « Aîné peut être rassuré. Plus tôt, Cupidité ne s'est contenté que de crier au lieu de nous poursuivre, comme s'il était préoccupé par quelque chose. C'est un homme prudent. »
 
 Zhou Yi laissa échapper un soupir et ses yeux révélèrent une admiration sans réserve pour Wang Lin. Réussir à tirer une telle conclusion à partir de quelques simples indices n'était pas l'apanage des gens ordinaires!
 
-Wang Lin réfléchit un instant, puis reprit: « Senior, Junior a l'intuition que le but de Cupidité ici est très probablement lié à un jeton. Ce jeton est le seul moyen de voir le père de Senior Qing Shuang, alors il n'est pas nécessaire que Senior se retienne! »
+Wang Lin réfléchit un instant, puis reprit: « Aîné, ce cadet a l'intuition que le but de Cupidité ici est très probablement lié à un jeton. Ce jeton est le seul moyen de voir le père d'Aîné Qing Shuang, alors il n'est pas nécessaire qu'Aîné se retienne! »
 
 Les yeux de Zhou Yi devinrent froids et il déclara d'un ton grave: « Wang Lin, tu peux être rassuré! »
 
@@ -88,15 +88,15 @@ Durant l'instant bref où Wang Lin était apparu, bien qu'il ait gardé les yeux
 
 Cupidité avait hésité, puis avait renoncé.
 
-Wang Lin répondit d'un ton serein: « Mon ami est de nature froide et n'apprécie guère la compagnie. Senior est-il également membre de la Secte de l'Épée Da Lou? »
+Wang Lin répondit d'un ton serein: « Mon ami est de nature froide et n'apprécie guère la compagnie. Aîné est-il également membre de la Secte de l'Épée Da Lou? »
 
 Cupidité lança un regard à Wang Lin et eut un sourire narquois.
 
-Chen Long sourit légèrement et présenta l'homme: « Camarade cultivateur Wang, ce senior est Cupidité. C'est un expert de la génération de notre Maître. Hélas, s'il n'était pas blessé et ne pouvait utiliser qu'une culture d'Ascendant au stade avancé, il ne serait pas resté piégé ici depuis un siècle! »
+Chen Long sourit légèrement et présenta l'homme: « Camarade cultivateur Wang, cet aîné est Cupidité. C'est un expert de la génération de notre Maître. Hélas, s'il n'était pas blessé et ne pouvait utiliser qu'une culture d'Ascendant au stade avancé, il ne serait pas resté piégé ici depuis un siècle! »
 
 Wang Lin pensa: « Ce Chen Long n'est pas simple! » Cet homme avait été capable de distiller toutes les informations essentielles en quelques phrases seulement.
 
-Chen Long ajouta aussitôt: « Senior Cupidité, puisque le camarade cultivateur Wang et son ami sont arrivés, que diriez-vous d'unir nos forces pour tenter une percée? Peut-être parviendrons-nous à briser ce siège imposé par cette horde de bêtes démoniaques! »
+Chen Long ajouta aussitôt: « Aîné Cupidité, puisque le camarade cultivateur Wang et son ami sont arrivés, que diriez-vous d'unir nos forces pour tenter une percée? Peut-être parviendrons-nous à briser ce siège imposé par cette horde de bêtes démoniaques! »
 
 « Une horde de bêtes démoniaques... » L'expression de Wang Lin resta neutre, mais cela avait capté son attention.
 
@@ -104,7 +104,7 @@ Cupidité s'apprêtait à refuser, mais ses yeux se plissèrent soudainement. Il
 
 Après avoir regardé Chen Long, Cupidité hocha la tête: « Puisque tu t'inquiètes tant de voir ce vieil homme refuser encore, tu dois penser que je suis mal intentionné. Soit, tentons de percer! »
 
-Chen Long secoua rapidement la tête: « Le junior n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes frères cadets dans le Domaine des Esprits Démoniaques... »
+Chen Long secoua rapidement la tête: « Le cadet n'ose, mais c'est simplement que nous sommes ici depuis trop longtemps. Je m'inquiète pour mes frères cadets dans le Domaine des Esprits Démoniaques... »
 
 Cupidité ricana et bondit du sol. Il prit la tête de la charge et s'élança directement dans le brouillard.
 

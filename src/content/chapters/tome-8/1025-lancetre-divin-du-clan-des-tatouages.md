@@ -62,7 +62,7 @@ Des brins d'énergie de la boucherie surgirent du vide pour encercler la zone. D
 
 Sous le commandement du doigt pointé de l'Omniscient en robe grise, les innombrables filaments d'énergie de la boucherie convergèrent de toutes les directions. Ils se condensèrent en un seul brin massif qui chargea la silhouette vague.
 
-À l'apparition de l'Omniscient en robe grise, les pupilles de Maître Void, qui portait la belle femme d'âge moyen et la présumée Sainte du Vide Brillant, se rétractèrent. Il murmura: « Robe grise... »
+À l'apparition de l'Omniscient en robe grise, les pupilles du Maître du Vide, qui portait la belle femme d'âge moyen et la présumée Sainte du Vide Brillant, se rétractèrent. Il murmura: « Robe grise... »
 
 Le visage de l'Omniscient en robe grise était sombre et glacial. Pointant sa main droite, il déclara calmement:
 
@@ -106,9 +106,9 @@ Profitant de cette onde de choc, Wang Lin et Situ Nan accélérèrent leur ascen
 
 « L'Omniscient... »
 
-Maître Void prit une profonde inspiration en fixant l'Omniscient en robe grise. Il n'oublierait jamais comment cet homme avait pénétré dans l'Alliance pour vaincre d'innombrables cultivateurs puissants, certains membres du groupe des Anciens n'étant pas de taille face à lui. Il avait même tué un Ancien par la force pour intégrer leurs rangs!
+Maître du Vide prit une profonde inspiration en fixant l'Omniscient en robe grise. Il n'oublierait jamais comment cet homme avait pénétré dans l'Alliance pour vaincre d'innombrables cultivateurs puissants, certains membres du groupe des Anciens n'étant pas de taille face à lui. Il avait même tué un Ancien par la force pour intégrer leurs rangs!
 
-« Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître Void observa l'Omniscient en robe grise, puis le corps originel de l'Omniscient qui avait sauvé Ling Tianhou.
+« Ce qui est encore plus effrayant, c'est ce pouvoir terrifiant de la Loi qui lui permet de tout prévoir. S'il est redoutable lorsqu'il massacre, c'est son regard capable de tout percer lorsqu'il ne combat pas qui a captivé l'attention de l'Alliance... » Maître du Vide observa l'Omniscient en robe grise, puis le corps originel de l'Omniscient qui avait sauvé Ling Tianhou.
 
 « C'est uniquement parce que ce Frère Aîné craignait cet homme qu'il a sacrifié sa vie et accepté que son troisième Fléau Céleste arrive prématurément pour lancer un sort puissant utilisant Ling Tianhou afin de briser son cœur Dao. Cela a créé une faille dans son cœur Dao lors de son deuxième Fléau Céleste, faisant éclater son cœur en d'innombrables morceaux et l'empêchant de fusionner!
 
@@ -130,7 +130,7 @@ La femme s'arrêta à 2 000 pieds de tout le monde. Elle leva ses orbites vides 
 
 « Existe-t-il encore des descendants du clan des Tatouages? » Une voix rauque sortit de sa bouche, empreinte d'un pouvoir mystérieux. Bien que rauque, elle était mélodieuse et semblait résonner longuement à l'oreille.
 
-Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître Void prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du clan des Tatouages en vie. »
+Face à cette question soudaine, personne n'osa parler. Après un long silence, Maître du Vide prit une expression respectueuse et déclara: « Il reste encore de nombreux membres du clan des Tatouages en vie. »
 
 La femme resta pensive et poussa un soupir. Elle avait lutté pour sortir des profondeurs du Bassin de l'Enterrement Céleste pour n'autre chose que poser cette question et voir une seule personne. Ses orbites vides semblèrent libérer un regard invisible qui se posa sur Wang Lin.
 

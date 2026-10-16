@@ -28,7 +28,7 @@ Les yeux de Teng Nine furent envahis par la terreur, car cette foudre rouge lui 
 
 Mais avant qu'il ne puisse se réjouir, des centaines de traînées de foudre rouge apparurent soudainement tout autour de lui, bloquant totalement son échappatoire.
 
-Le corps de Teng Nine se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Senior, ce junior est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
+Le corps de Teng Nine se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Aîné, ce cadet est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
 
 Wang Lin fixa Teng Nine et secoua lentement la tête. Sans dire un mot, il utilisa son sens divin pour faire rétrécir lentement la cage de foudre rouge qui entourait le jeune homme.
 
@@ -146,13 +146,13 @@ Après avoir tout préparé, Wang Lin prit une profonde inspiration et ferma les
 
 Soudain, ce nuage bougea et se propagea avec rapidité pour recouvrir l'intégralité du pays de Zhao. Ce nuage noir était l'âme dévoreuse de Wang Lin. Cette fois, elle quitta totalement son corps.
 
-Teng Five était un homme d'âge moyen très séduisant; on pouvait dire qu'il ressemblait beaucoup à Teng Li autrefois. Il était accompagné de deux magnifiques cultivatrices. Tous trois volaient rapidement vers la Cité de la Famille Teng.
+Teng Wu était un homme d'âge moyen très séduisant; on pouvait dire qu'il ressemblait beaucoup à Teng Li autrefois. Il était accompagné de deux magnifiques cultivatrices. Tous trois volaient rapidement vers la Cité de la Famille Teng.
 
-Voyant qu'ils approchaient de la limite des cinq mille kilomètres de la cité, Teng Five poussa un soupir de soulagement. Mais à cet instant précis, le ciel s'obscurcit brusquement sous l'effet de nuages noirs.
+Voyant qu'ils approchaient de la limite des cinq mille kilomètres de la cité, Teng Wu poussa un soupir de soulagement. Mais à cet instant précis, le ciel s'obscurcit brusquement sous l'effet de nuages noirs.
 
-Tandis que Teng Five contemplait la scène, hébété, le nuage noir descendit rapidement pour l'encercler. Puis, il disparut, emportant avec lui l'âme et l'Âme Naissante de Teng Five.
+Tandis que Teng Wu contemplait la scène, hébété, le nuage noir descendit rapidement pour l'encercler. Puis, il disparut, emportant avec lui l'âme et l'Âme Naissante de Teng Wu.
 
-Un cri de rage retentit depuis la Cité de la Famille Teng alors que Teng Huayuan s'en échappait comme un éclair. À l'instant d'avant, il avait senti la présence de Teng Five, puis celle-ci s'était brusquement éteinte. Au même moment, il avait perçu une puissance capable de faire battre son cœur avec force.
+Un cri de rage retentit depuis la Cité de la Famille Teng alors que Teng Huayuan s'en échappait comme un éclair. À l'instant d'avant, il avait senti la présence de Teng Wu, puis celle-ci s'était brusquement éteinte. Au même moment, il avait perçu une puissance capable de faire battre son cœur avec force.
 
 Alors que Teng Huayuan arrivait, le nuage noir dans le ciel bougea pour former un visage: celui de Wang Lin.
 

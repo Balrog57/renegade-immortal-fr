@@ -48,7 +48,7 @@ Il afficha un regard froid et déclara lentement: « Ce n'est pas que je ne vous
 
 Le vieillard fronça les sourcils: « Puisque ce vieil homme te l'a promis, il ne reviendra jamais sur sa parole. »
 
-Wang Lin ne bougea pas. Il secoua la tête et répondit: « Senior est un maître, et ce junior devrait vous croire, mais il s'agit ici d'une question de vie ou de mort. Si je ne peux en avoir la certitude absolue, même si nous concluons un accord, il me sera difficile de m'investir pleinement dans cette tâche. »
+Wang Lin ne bougea pas. Il secoua la tête et répondit: « Aîné est un maître, et ce cadet devrait vous croire, mais il s'agit ici d'une question de vie ou de mort. Si je ne peux en avoir la certitude absolue, même si nous concluons un accord, il me sera difficile de m'investir pleinement dans cette tâche. »
 
 Dou Mu renifla, laissant poindre une intention meurtrière: « Cadet, tes manières de tourner autour du pot sont vraiment agaçantes. Je t'ai déjà donné ma parole. Si tu ne me crois pas, ne sois pas si difficile. Laisse-moi plutôt t'envoyer en enfer pour apaiser mon esprit! » Il agita soudainement sa main droite, créant une main noire massive qui s'abattit vers Wang Lin.
 
@@ -58,7 +58,7 @@ La main s'immobilisa à dix centimètres au-dessus de la tête de Wang Lin. Le v
 
 L'homme âgé fronça les sourcils en lançant un regard sévère à Dou Mu, puis dit lentement: « Que veux-tu? »
 
-Wang Lin observa les instruments environnants et proposa: « Puisque ces outils sont vos trésors de survie, pourquoi ne pas les confier à ce junior pour le moment? Une fois que nous aurons quitté cet endroit, je vous les rendrai naturellement. Je doute que des seniors craignent qu'un junior comme moi, qui n'est qu'au stade de la Formation du Noyau, ne s'approprie de tels trésors. »
+Wang Lin observa les instruments environnants et proposa: « Puisque ces outils sont vos trésors de survie, pourquoi ne pas les confier à ce cadet pour le moment? Une fois que nous aurons quitté cet endroit, je vous les rendrai naturellement. Je doute que des aînés craignent qu'un cadet comme moi, qui n'est qu'au stade de la Formation du Noyau, ne s'approprie de tels trésors. »
 
 Le vieillard observa Wang Lin. Après une longue réflexion, il afficha un sourire froid et acquiesça. D'un geste de la main, les dix instruments volèrent vers lui. Après y avoir apposé quelques sceaux, il les lança à Wang Lin.
 

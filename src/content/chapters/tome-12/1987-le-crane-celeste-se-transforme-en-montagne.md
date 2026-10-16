@@ -80,7 +80,7 @@ Le corps de Ming Dao était baigné de lumière dorée, mais la décomposition n
 
 Il n'utilisa aucun sort en s'approchant. La lumière dorée émanant de son corps était le sort et le trésor les plus redoutables. Wang Lin eut l'impression qu'un soleil entier se précipitait vers lui pour l'anéantir!
 
-L'expression de Wang Lin changea et il recula tout en activant son armure spirituelle. Il utilisait désormais toute sa puissance. *Nuit Brisée* apparut dans sa main gauche et *Ancient Dao No Celestials* dans sa droite!
+L'expression de Wang Lin changea et il recula tout en activant son armure spirituelle. Il utilisait désormais toute sa puissance. *Nuit Brisée* apparut dans sa main gauche et *Dao Antique Sans Célestes* dans sa droite!
 
 Ce furent ses deux sorts les plus puissants qu'il utilisa pour bombarder Ming Dao!
 

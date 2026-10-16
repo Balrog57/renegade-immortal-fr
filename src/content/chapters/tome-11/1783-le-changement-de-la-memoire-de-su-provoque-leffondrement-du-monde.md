@@ -26,9 +26,9 @@ Wang Lin ne tuait pas sans raison. Il leva la paume et un jeton apparut. En un �
 
 Durant le premier essai, Wang Lin était tel un loup infiltré dans un troupeau de moutons. Personne ne pouvait lui échapper, et il s'emparait du jeton de quiconque croisait son chemin.
 
-La renommée de Wang Lin grandit rapidement au sein de cette première épreuve. Dès qu'on l'apercevait, les participants tremblaient et lui remettaient leur jeton. Ses attaques étaient d'une décontraction absolue; il savait qu'il faisait face à la mémoire de Seven-Colored. Chaque acte déraisonnable devenait logique à mesure que les souvenirs se distordaient.
+La renommée de Wang Lin grandit rapidement au sein de cette première épreuve. Dès qu'on l'apercevait, les participants tremblaient et lui remettaient leur jeton. Ses attaques étaient d'une décontraction absolue; il savait qu'il faisait face à la mémoire de Sept-Couleurs. Chaque acte déraisonnable devenait logique à mesure que les souvenirs se distordaient.
 
-Par exemple, à l'extérieur du Gouffre de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Seven-Colored. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
+Par exemple, à l'extérieur du Gouffre de Dong Lin, les expressions et les pensées de tous les spectateurs étaient dictées par la mémoire de Sept-Couleurs. Ils agissaient selon ce que celle-ci imaginait qu'ils feraient.
 
 « Qui est cet homme?! En moins d'une journée, il a déjà obtenu plus de 300 jetons!! »
 
@@ -46,7 +46,7 @@ Le visage du maître de Su Dao rayonnait d'un sourire fier. Plus les performance
 
 Il traquait les génies qui avaient suscité une telle jalousie chez Su Dao autrefois. Ces individus avaient réalisé des prouesses éblouissantes et occupaient des rangs élevés lors des essais suivants.
 
-L'un d'eux se nommait Kun Peng. Ce cultivateur excellait dans la vitesse, laissant des images rémanentes derrière lui. Dans la mémoire de Seven-Colored, il occupait la troisième place lors du premier essai!
+L'un d'eux se nommait Kun Peng. Ce cultivateur excellait dans la vitesse, laissant des images rémanentes derrière lui. Dans la mémoire de Sept-Couleurs, il occupait la troisième place lors du premier essai!
 
 Le regard de Wang Lin resta calme tandis qu'il parcourait le vide. D'un seul pas, il franchit une distance immense pour atteindre une nouvelle zone où se trouvait Kun Peng.
 
@@ -86,9 +86,9 @@ Plus il collectait de jetons, plus la distorsion s'intensifiait et plus la trois
 
 « La compétition de la Secte Dong Lin n'aura ni deuxième ni troisième essai. Si je prends tous les jetons de jade dès la première épreuve, il n'y aura plus d'autres étapes car je serai le seul vainqueur. Cela subvertira totalement les souvenirs de la troisième âme! » Les yeux de Wang Lin étincelèrent tandis qu'il se déplaçait avec rapidité. Tous les disciples de la Secte Dong Lin perdirent leurs jetons face à lui sur son passage.
 
-Quiconque osait résister était immédiatement balayé par Wang Lin. Toutefois, il n'avait aucune rancune contre eux. Bien qu'ils soient des émanations de la mémoire de Seven-Colored, il ne les tuait pas sans nécessité.
+Quiconque osait résister était immédiatement balayé par Wang Lin. Toutefois, il n'avait aucune rancune contre eux. Bien qu'ils soient des émanations de la mémoire de Sept-Couleurs, il ne les tuait pas sans nécessité.
 
-Seuls ceux dont Seven-Colored était jalouse, ou avec qui elle avait eu des affrontements ultérieurs, furent exécutés par Wang Lin. Chaque mort augmentait considérablement la distorsion environnante.
+Seuls ceux dont Sept-Couleurs était jalouse, ou avec qui elle avait eu des affrontements ultérieurs, furent exécutés par Wang Lin. Chaque mort augmentait considérablement la distorsion environnante.
 
 C'était comme si la troisième âme s'excitait dans ce chaos!
 
@@ -96,7 +96,7 @@ Un vent violent balaya les lieux. Sur la place de la Secte Dong Lin, à l'extér
 
 Ils virent les actions de Wang Lin et comprirent comment il avait accaparé presque tous les jetons de jade à lui seul. Ils assistaient à un moment historique sans précédent pour la Secte Dong Lin!
 
-Leurs expressions de choc et leurs pensées n'étaient que des constructions imaginaires de Seven-Colored. À cet instant, une vague monumentale déferla sur la Secte Dong Lin!
+Leurs expressions de choc et leurs pensées n'étaient que des constructions imaginaires de Sept-Couleurs. À cet instant, une vague monumentale déferla sur la Secte Dong Lin!
 
 Lors de la première épreuve, quand Wang Lin obtint le dernier jeton de jade, la distorsion fut saisissante. Les auras des huit portes étaient très nettes, mais il semblait qu'un voile de brume s'interposait encore!
 

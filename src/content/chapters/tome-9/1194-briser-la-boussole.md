@@ -88,7 +88,7 @@ La montagne où se trouvait Maître Pin Cendré n'était pas le véritable centr
 
 Le sens divin de Wang Lin devenait flou alors qu'il progressait rapidement. Il serra les dents pour maintenir un semblant de lucidité. Sa vision s'obscurcit progressivement tandis qu'il se précipitait dans une vallée déserte, vers une grotte abandonnée. Il eut seulement le temps d'ouvrir son espace de stockage pour laisser sortir la femme en argent et Xu Liguo avant de s'effondrer au sol, inconscient.
 
-Xu Liguo avait accompli sa tâche lorsque Wang Lin tuait Noble Money et avait été mis de côté par ce dernier. Maintenant qu'il était là, il s'apprêtait à se vanter, mais il vit immédiatement que les yeux de Wang Lin étaient clos et que son visage était d'un gris cendré. Ses yeux ne purent s'empêcher de dévier.
+Xu Liguo avait accompli sa tâche lorsque Wang Lin tuait Noble Argent et avait été mis de côté par ce dernier. Maintenant qu'il était là, il s'apprêtait à se vanter, mais il vit immédiatement que les yeux de Wang Lin étaient clos et que son visage était d'un gris cendré. Ses yeux ne purent s'empêcher de dévier.
 
 Cependant, à cet instant précis, un reniflement froid retentit. Le corps de Xu Liguo trembla et il afficha aussitôt une expression de flatterie. Il savait déjà la puissance de cette femme-cadavre d'argent; il n'oserait pas l'offenser.
 

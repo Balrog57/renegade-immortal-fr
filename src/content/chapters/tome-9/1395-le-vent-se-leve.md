@@ -72,7 +72,7 @@ Le vieil homme traversa rapidement la mer de flammes et atteignit bientôt les p
 
 Une formation scintillante trônait au centre de ce feu violet, et à l'intérieur de celle-ci siégeait un homme d'âge moyen. Ses vêtements étaient également violets et, tandis qu'il cultivait, une aura saisissante circulait lentement dans son corps.
 
-Le vieil homme semblait craindre le feu violet sombre. Il resta à la périphérie et dit respectueusement: « Ce junior demande à voir l'Ancêtre! »
+Le vieil homme semblait craindre le feu violet sombre. Il resta à la périphérie et dit respectueusement: « Ce cadet demande à voir l'Ancêtre! »
 
 Après avoir parlé, il resta immobile, attendant d'être convoqué.
 

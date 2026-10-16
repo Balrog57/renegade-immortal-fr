@@ -102,7 +102,7 @@ Elle lutta violemment, résistant à la douce clarté. Cependant, alors que la l
 
 « Hache Bris-Ciel, prête ton pouvoir à mon héritier… » Une voix ancienne émana de la formation et parvint aux oreilles de chaque cultivateur!
 
-Une pointe de tristesse brilla dans les yeux du Maître South Cloud. Comment pouvait-il oublier cette voix?
+Une pointe de tristesse brilla dans les yeux du Maître Nuage du Sud. Comment pouvait-il oublier cette voix?
 
 L'expression de la femme en rouge qui combattait contre lui changea, et une rare trace de peur apparut dans son regard. Les souvenirs du passé affluèrent dans son esprit.
 

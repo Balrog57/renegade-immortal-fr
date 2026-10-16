@@ -10,17 +10,17 @@ D'innombrables cultivateurs s'étaient rassemblés aux abords de la Mer des Espr
 
 Lorsque Ling Tianhou entendit l'homme en pourpre, un éclair d'extase brilla dans ses yeux. Cependant, il n'en demanda pas davantage. Dès qu'il fut à proximité, il prit place et fixa le vortex qui s'agitait sous lui.
 
-Voyant que plus personne n'arrivait, Ling Tianhou fronça les sourcils. Il détourna son regard pour scruter l'horizon. Il n'était pas le seul; même le vieil homme sur la gourde fronça les sourcils, scrutant le vide comme s'il attendait quelque chose. Seul l'All-Voyant demeurait impassible, attendant silencieusement.
+Voyant que plus personne n'arrivait, Ling Tianhou fronça les sourcils. Il détourna son regard pour scruter l'horizon. Il n'était pas le seul; même le vieil homme sur la gourde fronça les sourcils, scrutant le vide comme s'il attendait quelque chose. Seul l'Omniscient demeurait impassible, attendant silencieusement.
 
 Le temps passa lentement et les cultivateurs qui attendaient commencèrent peu à peu à discuter. Certains, bien informés, comprenaient la situation, mais la plupart restaient perplexes, ne comprenant pas ce que ces puissants êtres attendaient.
 
-Alors que le brouhaha s'intensifiait, l'All-Voyant redressa soudainement la tête et regarda au loin, un air de curiosité sur le visage.
+Alors que le brouhaha s'intensifiait, l'Omniscient redressa soudainement la tête et regarda au loin, un air de curiosité sur le visage.
 
 « Il est là... »
 
-Quelques respirations après que l'All-Voyant eut remarqué quelque chose, l'homme en pourpre tourna également son regard vers l'horizon. Ayant déjà entendu tout ce que Ling Tianhou avait dit sur Wang Lin, il éprouvait une certaine admiration pour lui dans son cœur.
+Quelques respirations après que l'Omniscient eut remarqué quelque chose, l'homme en pourpre tourna également son regard vers l'horizon. Ayant déjà entendu tout ce que Ling Tianhou avait dit sur Wang Lin, il éprouvait une certaine admiration pour lui dans son cœur.
 
-« Quelqu'un capable de tenir tête à l'All-Voyant aussi longtemps n'est certainement pas un faible! »
+« Quelqu'un capable de tenir tête à l'Omniscient aussi longtemps n'est certainement pas un faible! »
 
 Après l'homme en pourpre vinrent le tour de Ling Tianhou, du vieil homme sur la gourde, de la belle femme d'âge moyen et de l'homme en noir que personne n'osait approcher à moins de 330 mètres. Ils fixèrent tous l'horizon presque au même instant. Derrière eux, suivirent les autres vieux monstres et quelques cultivateurs.
 
@@ -74,7 +74,7 @@ Cependant, non loin derrière la femme d'argent, la silhouette insolente de Situ
 
 La belle femme fronça les sourcils avec dégoût. Bien qu'elle ne vécût pas sur la planète Tian Yun, elle avait entendu parler de sa notoriété. Elle ne comprenait pas pourquoi un puissant Purificateur du Nirvana puisse agir ainsi.
 
-L'All-Voyant restait calme en observant les cavaliers; il était impossible de deviner ses pensées. Le choc provoqué par ces trois Purificateurs du Nirvana était bien plus immense que celui causé par les quatre Scruteurs du Nirvana!
+L'Omniscient restait calme en observant les cavaliers; il était impossible de deviner ses pensées. Le choc provoqué par ces trois Purificateurs du Nirvana était bien plus immense que celui causé par les quatre Scruteurs du Nirvana!
 
 « Quatre Scruteurs du Nirvana et trois vieux monstres du Purificateur du Nirvana... Qui possède donc de telles connexions pour obtenir l'aide de ces sept individus? »
 
@@ -86,24 +86,24 @@ Au moment où Wang Lin apparut, le Blaireau Marqué d'Étoiles sur l'épaule de 
 
 L'homme en pourpre sourit et hocha la tête avant de concentrer son esprit sur le blaireau. Il l'avait élevé depuis sa petite taille et l'appréciait beaucoup. La réaction étrange de l'animal avait attiré son attention. Cependant, à cet instant, le Blaireau Marqué d'Étoiles sembla reprendre un comportement normal, sans aucune anomalie. Cela laissa l'homme en pourpre perplexe.
 
-L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei Ji approchait. Il joignit les mains vers l'All-Voyant et ses compagnons avant de dire calmement: « Salutations, All-Voyant, Saint de l'Épée et chers aînés. J'ai eu quelques contretemps après avoir reçu l'invitation, ce qui explique mon retard. »
+L'expression de Wang Lin ne changea pas sous les regards de tous alors que Lei Ji approchait. Il joignit les mains vers l'Omniscient et ses compagnons avant de dire calmement: « Salutations, Omniscient, Saint de l'Épée et chers aînés. J'ai eu quelques contretemps après avoir reçu l'invitation, ce qui explique mon retard. »
 
 Ling Tianhou fixa Wang Lin, une trace de crainte dans les yeux. Il ne pourrait jamais oublier ce rayon de lumière. S'il n'avait pas fui rapidement en supposant que l'autre lueur avait absorbé suffisamment d'énergie originelle, il ne serait pas debout aujourd'hui.
 
 Sa façon de percevoir Wang Lin avait changé; il n'avait aucune intention de le provoquer. Il sourit et secoua la tête: « Le compagnon de culture Wang est trop poli. Nul besoin de m'appeler "aîné", appelez simplement ce vieil homme Ling Tianhou. »
 
-Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de l'All-Voyant. Très peu de personnes étaient dignes d'être appelées « compagnon de culture » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits!
+Ses paroles provoquèrent un tollé parmi les cultivateurs. Des regards d'incrédulité se tournèrent vers Wang Lin. Ling Tianhou était un puissant cultivateur dont la renommée n'était surpassée que par celle de l'Omniscient. Très peu de personnes étaient dignes d'être appelées « compagnon de culture » par lui. Ce simple terme prononcé par Ling Tianhou choqua les esprits!
 
-L'All-Voyant regarda Wang Lin. Du début à la fin, son expression ne changea pas, comme si l'incident d'il y a plusieurs mois n'avait jamais eu lieu. Il hocha légèrement la tête et dit lentement: « Ce n'est rien. »
+L'Omniscient regarda Wang Lin. Du début à la fin, son expression ne changea pas, comme si l'incident d'il y a plusieurs mois n'avait jamais eu lieu. Il hocha légèrement la tête et dit lentement: « Ce n'est rien. »
 
 Les yeux de Wang Lin se plissèrent alors qu'il saluait le vieil homme sur la gourde ainsi que la belle femme d'âge moyen. Puis, il sourit à l'homme en noir au loin et lui adressa une salutation respectueuse. L'homme en noir rendit le salut, mais son expression demeura glaciale.
 
-« Puisque tout le monde est là, ouvrons la Mer des Esprits Démoniaques de l'Est! » L'All-Voyant agita ses manches et une lumière aux sept couleurs se rassembla pour former un jeton. Ce dernier n'était que de la taille d'une paume, mais il dégageait un éclat multicolore. Alors que la vue de tous était brouillée par cette lueur éblouissante, le jeton s'envola vers le vortex.
+« Puisque tout le monde est là, ouvrons la Mer des Esprits Démoniaques de l'Est! » L'Omniscient agita ses manches et une lumière aux sept couleurs se rassembla pour former un jeton. Ce dernier n'était que de la taille d'une paume, mais il dégageait un éclat multicolore. Alors que la vue de tous était brouillée par cette lueur éblouissante, le jeton s'envola vers le vortex.
 
 Ce n'était pas une ouverture ordinaire de la Mer des Esprits Démoniaques de l'Est; la puissante aspiration qui attire habituellement tout ce qui se trouve à proximité n'était pas présente. Au lieu de cela, au moment où le jeton toucha le vortex, un tourbillon inverse apparut!
 
 Ce vortex s'étendit rapidement, ouvrant un trou noir. L'aura de la Terre des Esprits Démoniaques, si familière à Wang Lin, en émana.
 
-« En ouvrant les quatre grottes célestes, pourra-t-on ouvrir la cinquième? Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, l'All-Voyant s'élança dans le trou noir, debout sur son trident.
+« En ouvrant les quatre grottes célestes, pourra-t-on ouvrir la cinquième? Ce vieil homme y va le premier et attendra les bonnes nouvelles de vous tous! » Enveloppé d'une lueur aux sept couleurs, l'Omniscient s'élança dans le trou noir, debout sur son trident.
 
 Le regard de Wang Lin parcourut l'arme. Il avait déjà remarqué le trident; l'aura familière qui s'en dégageait lui confirmait qu'il s'agissait d'un trésor raffiné par Tu Si!

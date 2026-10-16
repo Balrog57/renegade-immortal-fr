@@ -42,7 +42,7 @@ Une fois cela accompli, Wang Lin leva les yeux vers les étoiles. Les lignes flo
 
 Dès qu'il pénétra dans le Royaume Céleste, Maître Hong Shan et ses compagnons le remarquèrent. Ils sortirent tous de leur culture et s'élancèrent dans les airs.
 
-Qing Lin, Qing Shui, Situ Nan, Maître South Cloud et les autres flottaient là; en voyant la silhouette blanche au loin, ils sourirent.
+Qing Lin, Qing Shui, Situ Nan, Maître Nuage du Sud et les autres flottaient là; en voyant la silhouette blanche au loin, ils sourirent.
 
 De nombreuses autres personnes familières à Wang Lin le remarquèrent également. En apercevant cette silhouette blanche, leurs visages s'illuminèrent de sourires.
 

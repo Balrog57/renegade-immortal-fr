@@ -18,7 +18,7 @@ Tout en tenant le joyau, il entra dans l'espace de rêve. Au moment où il s'app
 
 Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement: « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé ce centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la culture est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
 
-Wang Lin réfléchit longuement. « Aîné, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations? Junior ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
+Wang Lin réfléchit longuement. « Aîné, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations? Ce cadet ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
 
 Situ Nan renifla et dit: « Je connais le chant, mais atteindre le stade de l'Établissement des Fondations est la véritable étape qui marque l'entrée dans le monde de la culture, et c'est extrêmement difficile. Tu devrais trouver un endroit isolé pour t'y retirer en méditation afin d'augmenter tes chances de percer. De plus, ton eau spirituelle et ton eau de neige ne suffiront plus. Lorsque tu entreras dans l'Établissement des Fondations, tu auras besoin de beaucoup d'énergie spirituelle; tu ferais mieux de préparer un peu de rosée spirituelle. »
 

@@ -12,7 +12,7 @@ Wang Lin s'en souciait peu. Il observa les alentours et partit silencieusement c
 
 Lu Wenran ricana intérieurement, son regard balayant le dos de Wang Lin.
 
-« Pour le bien du Grand Secte de l'Âme, je suis resté dans la Mer des Pillules et j'ai pris l'apparence d'un cultivateur renegat afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
+« Pour le bien du Grand Secte de l'Âme, je suis resté dans la Mer des Pilules et j'ai pris l'apparence d'un cultivateur renegat afin d'attirer l'attention du Continent du Démon Vert. Je suis resté là pendant plus de mille ans... »
 
 « Tout cela pour que le Continent du Démon Vert ne soupçonne rien et envahisse le Continent du Taureau Céleste, comme l'avait prévu l'Ancien Ancêtre... J'ai tout sacrifié, et pourtant l'Ancien Ancêtre ne m'a pas transmis le sortilège d'illusion multicouche complet. Quelles qualifications a-t-il pour le détenir?! »
 
@@ -36,7 +36,7 @@ Simultanément, les cultivateurs du Grand Secte de l'Âme et de la Secte Gui Yi 
 
 Ainsi, lorsque les sept méridiens furent activés, la barrière géante se déploya sur l'ensemble des sites.
 
-Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent du Taureau Céleste de la Mer des Pillules!
+Au total, sept barrières apparurent, se connectant pour former un rempart titanesque protégeant le Continent du Taureau Céleste de la Mer des Pilules!
 
 Cette barrière, érigée par plus de 100 000 cultivateurs, possédait une épaisseur de plus de 100 000 kilomètres. Ce n'était pas un obstacle qu'un cultivateur ordinaire pourrait franchir; même un être comme l'Ancien Ancêtre du Taureau Vert aurait des difficultés à la traverser!
 

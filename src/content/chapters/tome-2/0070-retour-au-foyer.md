@@ -12,7 +12,7 @@ Trois jours plus tard, Wang Lin sortit de la grotte, couvert de sueur. Zhou Peng
 
 Zhou Peng hocha respectueusement la tête et se mit en route vers la Secte Xuan Dao.
 
-Wang Lin regarda Zhou Peng. Après un long silence, il demanda: « Senior Situ, cette technique de marionnette n'exigeait pas réellement la première étape, n'est-ce pas? »
+Wang Lin regarda Zhou Peng. Après un long silence, il demanda: « Aîné Situ, cette technique de marionnette n'exigeait pas réellement la première étape, n'est-ce pas? »
 
 Situ fut stupéfait. Il répondit précipitamment: « Qui a dit ça?! La première étape était indispensable. Sans elle, tu ne pouvais même pas entreprendre la seconde. »
 

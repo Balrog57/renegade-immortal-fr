@@ -46,7 +46,7 @@ Le temps s'écoulait lentement au sein de l'Épreuve Humaine. La fréquence des 
 
 Li Muwan finit par s'habituer à l'expression de Wang Lin. Parfois, lorsqu'elle montait sur la montagne, elle engageait la conversation avec lui, animée par la curiosité.
 
-Cependant, Li Muwan, qui était très attentive, remarqua peu à peu que chaque fois qu'elle venait le voir, ce mystérieux senior semblait s'affaiblir, et son apparence même paraissait vieillir.
+Cependant, Li Muwan, qui était très attentive, remarqua peu à peu que chaque fois qu'elle venait le voir, ce mystérieux aîné semblait s'affaiblir, et son apparence même paraissait vieillir.
 
 Elle ignorait que Wang Lin subissait actuellement une douleur indicible. Il cherchait à allumer le feu karmique en utilisant l'obsession de son cœur comme combustible. Plus son obsession était forte, plus le feu s'intensifiait!
 
@@ -90,7 +90,7 @@ Li Muwan fut stupéfaite. Alors qu'il l'enlaçait, Wang Lin se tourna vers le ci
 
 « Toi! » Le vieil Oiseau Vermillon était furieux; le brasier qu'il avait projeté du ciel fut stoppé net.
 
-« Ancêtre, j'ai cultivé toute ma vie pour elle seule! Même si ce n'est qu'une illusion, ce junior refuse de la blesser, et encore moins de la détruire! » Wang Lin regarda le ciel, des larmes coulant sur ses joues pour venir mouiller Li Muwan dans ses bras. Ses larmes brûlantes semblèrent pénétrer le cœur de la jeune femme, dont les yeux se remplirent de confusion.
+« Ancêtre, j'ai cultivé toute ma vie pour elle seule! Même si ce n'est qu'une illusion, ce cadet refuse de la blesser, et encore moins de la détruire! » Wang Lin regarda le ciel, des larmes coulant sur ses joues pour venir mouiller Li Muwan dans ses bras. Ses larmes brûlantes semblèrent pénétrer le cœur de la jeune femme, dont les yeux se remplirent de confusion.
 
 Au moment où Wang Lin prononça ces mots, le feu dans son âme explosa, devenant des dizaines de fois plus puissant qu'auparavant!
 

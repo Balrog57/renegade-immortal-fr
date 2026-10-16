@@ -8,27 +8,27 @@ slug: cette-phrase
 ---
 Chapitre 1885 - Cette phrase!
 
-Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture d'Edge Cloud était très élevé grâce à l'armure spirituelle, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
+Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture d'Bord-des-Nuages était très élevé grâce à l'armure spirituelle, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
 Il avait utilisé ce sort en sacrifiant le peu de temps qu'il lui restait pour porter l'armure afin de briser Nuit Brisée!
 
 Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Nuit Brisée s'effondra, il fut projeté en arrière sur des milliers de pieds.
 
-Quant à Edge Cloud, il semblait avoir vieilli de milliers d'années et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Edge Cloud. Il comptait profiter de la dissipation de l'armure spirituelle pour l'exterminer.
+Quant à Bord-des-Nuages, il semblait avoir vieilli de milliers d'années et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Bord-des-Nuages. Il comptait profiter de la dissipation de l'armure spirituelle pour l'exterminer.
 
 Tang Jia resta silencieuse, son attaque cessant net. Elle n'avait agi que pour le compte de sa sœur. À cet instant, elle lança à Wang Lin un regard complexe avant de disparaître au loin.
 
-Habité par une intention meurtrière, Wang Lin se rapprocha d'Edge Cloud. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir du Dao Antique, fit changer les couleurs du monde. Edge Cloud fut repoussé et cracha du sang.
+Habité par une intention meurtrière, Wang Lin se rapprocha d'Bord-des-Nuages. Il leva la main droite et l'abattit sur lui. Ce coup, imprégné de son pouvoir du Dao Antique, fit changer les couleurs du monde. Bord-des-Nuages fut repoussé et cracha du sang.
 
 Le corps de Wang Lin trembla également, mais il serra les dents et chargea une fois de plus.
 
-Les deux s'affrontèrent à plusieurs reprises, et la peur finit par poindre dans les yeux d'Edge Cloud. Il avait déjà croisé des fous, mais il n'avait jamais rencontré un tel dément que Wang Lin, qui était prêt à tout pour tuer, sans aucun égard pour sa propre vie.
+Les deux s'affrontèrent à plusieurs reprises, et la peur finit par poindre dans les yeux d'Bord-des-Nuages. Il avait déjà croisé des fous, mais il n'avait jamais rencontré un tel dément que Wang Lin, qui était prêt à tout pour tuer, sans aucun égard pour sa propre vie.
 
-Alors que Wang Lin et Edge Cloud étaient en plein combat, à plusieurs milliers de kilomètres de là, une main gigantesque et noire apparut et s'étira vers eux.
+Alors que Wang Lin et Bord-des-Nuages étaient en plein combat, à plusieurs milliers de kilomètres de là, une main gigantesque et noire apparut et s'étira vers eux.
 
-L'expression de Wang Lin s'assombrit et il renonça à poursuivre Edge Cloud. Des ondulations résonnèrent sous ses pieds et il disparut, se fondant dans le monde.
+L'expression de Wang Lin s'assombrit et il renonça à poursuivre Bord-des-Nuages. Des ondulations résonnèrent sous ses pieds et il disparut, se fondant dans le monde.
 
-La main noire géante se referma et emporta Edge Cloud vers la Secte Gui Yi.
+La main noire géante se referma et emporta Bord-des-Nuages vers la Secte Gui Yi.
 
 Cette bataille fut très brève. Ce ne fut qu'après le départ de Wang Lin que les quatre étoiles du ciel chutèrent sur terre. Des grondements tonitruants résonnèrent sur un rayon de mille kilomètres, et une épaisse poussière recouvrit toute la région. Il fallut longtemps pour que la poussière se dissipe, ne laissant derrière elle que d'innombrables fragments de pierres noires fumantes.
 

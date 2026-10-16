@@ -45,7 +45,7 @@ Au début de cette bataille, un phénomène étrange frappait les cultivateurs d
 Si cela n'avait concerné qu'un ou deux individus, ce n'aurait pas été si grave, mais Xuan Wu ne comptait pas plus de deux cents personnes à ce stade, et près de la moitié d'entre elles s'étaient éteintes ainsi. Lorsqu'elle en avait entendu parler, elle n'y avait pas cru, pensant à une simple rumeur; mais en voyant la mort de ces trois cultivateurs, elle ne put s'empêcher de repenser à cette histoire.
 
 Elle suivit Wang Lin et demanda d'une voix tremblante:
-« Senior... senior frère apprenti, dans l'Union de Huo Fen, de quelle armée faisiez-vous partie? »
+« Aîné... frère aîné apprenti, dans l'Union de Huo Fen, de quelle armée faisiez-vous partie? »
 
 Wang Lin ne tourna pas la tête et répondit froidement:
 « La dixième brigade. »
@@ -105,13 +105,13 @@ Li Muwan savait qu'elle ne pouvait lui faire confiance, mais n'ayant d'autre cho
 Une fois les couches de formations franchies et la grotte atteinte, Li Muwan sortit un petit drapeau. Elle l'agita doucement, activant toutes les protections qui libérèrent une brume épaisse. De loin, on ne pouvait rien distinguer; même en s'approchant, on n'apercevrait que la montagne.
 
 À l'intérieur, le regard de Wang Lin sur Li Muwan la fit pâlir davantage. Elle recula de quelques pas et murmura:
-« Senior frère apprenti, dois-je commencer à raffiner la Pilule du Ciel Lointain pour vous? »
+« frère aîné apprenti, dois-je commencer à raffiner la Pilule du Ciel Lointain pour vous? »
 
 Wang Lin secoua la tête:
 « Je n'ose pas consommer les pilules que tu raffines. »
 
 Les yeux de Li Muwan s'embuèrent immédiatement et elle baissa la tête en silence. Après un long moment, elle releva le visage empreint de larmes et murmura:
-« Senior frère m'a sauvé la vie. Dites-moi simplement ce que je dois faire pour que vous me croyiez. » À cet instant, elle était d'une beauté et d'une séduction troublantes.
+« frère aîné m'a sauvé la vie. Dites-moi simplement ce que je dois faire pour que vous me croyiez. » À cet instant, elle était d'une beauté et d'une séduction troublantes.
 
 Wang Lin ne fut nullement affecté par sa beauté. Son expression resta impassible lorsqu'il déclara:
 « Je n'aime pas contraindre les gens, je ne te demanderai donc pas trop. Tout ce que j'attends de toi, c'est que tu raffines suffisamment de pilules pour me permettre d'atteindre le stade de la Formation du Noyau. Une fois ce stade atteint, je t'escorterai hors de la Mer des Diables. Mais durant cette période, je veux que tu me remettes ton sang d'essence spirituelle pour garantir qu'aucun incident ne survienne lors de la fabrication des pilules. »
@@ -127,13 +127,13 @@ Li Muwan inspecta les sacs avec son Sens Divin et s'exclama:
 Wang Lin se frotta le menton et lança plus d'une dizaine de sacs supplémentaires: ses récents butins. Après avoir retiré les trésors et les pierres spirituelles, il ne restait que des composants qu'il ignorait, ce qui permettait à Li Muwan de les identifier.
 
 En examinant tout, la tristesse de Li Muwan s'évanouit pour laisser place à l'excitation. Elle leva la tête:
-« Senior frère apprenti, puis-je utiliser librement tous ces matériaux? »
+« frère aîné apprenti, puis-je utiliser librement tous ces matériaux? »
 
 Wang Lin acquiesça:
 « Je ne veux que des pilules. Quant au processus, fais comme bon te semble. »
 
 Li Muwan lui sourit pour la première fois. Son sourire était radieux lorsqu'elle affirma avec assurance:
-« Soyez sans crainte, senior frère. J'ai calculé que je peux produire 300 pilules d'Esprit Jaune pour favoriser la culture, 50 pilules d'Évitement du Poison, et divers autres remèdes. Une fois terminé, je vous les remettrai. Senior frère, parmi vos matériaux, le plus précieux est cette vigne de sang de démon. » Elle sortit alors une fine lamelle de bois rouge très ordinaire.
+« Soyez sans crainte, frère aîné. J'ai calculé que je peux produire 300 pilules d'Esprit Jaune pour favoriser la culture, 50 pilules d'Évitement du Poison, et divers autres remèdes. Une fois terminé, je vous les remettrai. frère aîné, parmi vos matériaux, le plus précieux est cette vigne de sang de démon. » Elle sortit alors une fine lamelle de bois rouge très ordinaire.
 
 « Cette lamelle est l'un des ingrédients les plus essentiels pour la Pilule du Ciel Lointain. Je n'ai croisé cette vigne que dans les textes anciens. Avec elle, je suis confiante pour raffiner une Pilule du Ciel Lointain; toutefois, son efficacité sera légèrement moindre car je devrai trouver des substituts pour les autres composants. »
 
@@ -141,7 +141,7 @@ Le visage de Wang Lin resta impassible:
 « Je ne m'intéresse pas aux détails du raffinage. » Il marqua une pause et ajouta: « Je compte sortir pendant quelques jours, entre trois jours et deux semaines. Prends soin de toi. »
 
 Il s'apprêtait à partir quand Li Muwan hésita, puis l'interpella rapidement:
-« Senior frère apprenti, lorsque vous sortirez, pourriez-vous me trouver un fourneau à pilules? Mes matériaux sont corrects, et mon fourneau actuel convient aux pilules ordinaires. Mais avec lui, le taux de réussite de la Pilule du Ciel Lointain ne serait que de 50 %. Normalement, on utilise le Fourneau de Fusion Céleste de la Secte pour ce genre de préparation. »
+« frère aîné apprenti, lorsque vous sortirez, pourriez-vous me trouver un fourneau à pilules? Mes matériaux sont corrects, et mon fourneau actuel convient aux pilules ordinaires. Mais avec lui, le taux de réussite de la Pilule du Ciel Lointain ne serait que de 50 %. Normalement, on utilise le Fourneau de Fusion Céleste de la Secte pour ce genre de préparation. »
 
 Wang Lin fronça légèrement les sourcils. Il la regarda, puis partit sans un mot.
 
@@ -166,11 +166,11 @@ Le visage de Wang Lin se mua en une expression étrange: le poursuivant n'était
 
 Le jeune homme au regard sinistre tenait un os de bête noir. Tout en poursuivant l'homme d'âge mûr, il soufflait dessus avec nonchalance, libérant à chaque expiration une fumée noire. Dès qu'elle apparaissait, la fumée rattrapait le cultivateur et s'infiltrait dans son corps.
 
-« Senior frère apprenti, cours plus vite! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre: « Mon cher aîné, j'ai passé un temps infini à préparer ces seize poisons pour toi. Comment aurais-je osé t'affronter si tu n'étais pas affaibli par ta culture de l'Établissement des Fondations? Tu ne t'échapperas pas! »
+« frère aîné apprenti, cours plus vite! Ton cadet veut voir combien de temps tu pourras tenir avec ces seize poisons mortels en toi! » Le jeune homme souffla à nouveau sur l'os noir et continua d'une voix lugubre: « Mon cher aîné, j'ai passé un temps infini à préparer ces seize poisons pour toi. Comment aurais-je osé t'affronter si tu n'étais pas affaibli par ta culture de l'Établissement des Fondations? Tu ne t'échapperas pas! »
 
 L'homme d'âge mûr serra les dents, silencieux, tandis que son épée volante montait péniblement le long de la montagne.
 
-« Senior frère, tu es déjà bien vieux. Pourquoi ne pas accepter la mort et me laisser te dévorer avec la technique du vol des fondations? » lança le jeune homme maléfique en se rapprochant.
+« frère aîné, tu es déjà bien vieux. Pourquoi ne pas accepter la mort et me laisser te dévorer avec la technique du vol des fondations? » lança le jeune homme maléfique en se rapprochant.
 
 Wang Lin fut intrigué par l'os que tenait le jeune homme. Il avança et les suivit en silence.
 
@@ -185,7 +185,7 @@ Le corps de l'homme trembla tandis qu'il crachait une bouffée de sang noir. Aff
 Soudain, il se figea, les yeux fixés sur une silhouette sombre émergeant de la brume. Une sueur froide perla sur son front. Alors qu'il poursuivait son aîné, il avait déployé son Sens Divin sans rien remarquer; si cette personne apparaissait ainsi, c'était que son niveau de culture surpassait de loin le sien.
 
 Il jeta le corps au sol, joignit immédiatement les mains et s'inclina avec respect. Sa malveillance disparut instantanément pour laisser place à un masque de sincérité:
-« Ce disciple est Sang Muya, de la Secte de la Lutte contre le Mal. Pourquoi Senior interrompt-il le disciple? Je ferai tout mon possible pour vous aider. »
+« Ce disciple est Sang Muya, de la Secte de la Lutte contre le Mal. Pourquoi Aîné interrompt-il le disciple? Je ferai tout mon possible pour vous aider. »
 
 Wang Lin sortit lentement de la brume et lança un regard glacial au jeune homme.
 

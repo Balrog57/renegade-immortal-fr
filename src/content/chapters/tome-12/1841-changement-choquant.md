@@ -64,7 +64,7 @@ Alors que Wang Lin avançait, des ondulations résonnèrent et il se fondit dans
 
 Ce n'est qu'une fois Wang Lin parti que le vieil homme se détendit. Des ombres émergèrent de la terre et plus d'une douzaine de personnes fixèrent l'endroit où Wang Lin s'était volatilisé.
 
-« Le Senior Gauche est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
+« L'Aîné Gauche est décisif. Cet homme n'est pas quelqu'un que nous pouvons provoquer. Sa poupée est très puissante et sa bête est très étrange. Lui-même est extrêmement fort! Un tel être ne peut pas être sans secte! »
 
 « Oui, cet homme est très tranchant, il a même tué les quatre membres du Dao de la Montagne Noire. Il est véritablement féroce et, à en juger par son apparence, c'est clairement un cultivateur démoniaque! »
 
@@ -80,11 +80,11 @@ Dix jours passèrent en un éclair. Wang Lin croisa quelques cultivateurs, mais 
 
 Après dix jours, Wang Lin utilisa sa troisième Déviation Spatiale et disparut de cette chaîne de montagnes.
 
-Le Continent Oriental était immense, et la mer séparant le Continent du Taureau Céleste du Continent des Démons Verts s'appelait la Mer des Pillules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
+Le Continent Oriental était immense, et la mer séparant le Continent du Taureau Céleste du Continent des Démons Verts s'appelait la Mer des Pilules. La rumeur prétendait que cette mer avait été créée par une pilule tombée du ciel.
 
 Cependant, cette légende était si ridicule qu'il paraissait impossible d'imaginer quelle sorte de pilule aurait pu engendrer un tel océan. Personne n'y croyait vraiment, mais le récit se transmettait de génération en génération.
 
-La Mer des Pillules était infinie et ses vagues étaient déchaînées. Bien qu'il s'agisse d'une mer intérieure, les vents et la houle y étaient violents.
+La Mer des Pilules était infinie et ses vagues étaient déchaînées. Bien qu'il s'agisse d'une mer intérieure, les vents et la houle y étaient violents.
 
 Comme cet endroit appartenait à la fois au Continent du Taureau Céleste et au Continent des Démons Verts, les cultivateurs qui s'y trouvaient vivaient dans un chaos constant. Des nuages sombres couvraient le ciel tandis que le tonnerre grondait et que la pluie se mêlait aux flots.
 
@@ -104,14 +104,14 @@ Wang Lin murmura: « Essence aquatique, rassemble-toi! »
 
 À ces mots, la mer infinie commença à bouillonner et des grondements tonitruants résonnèrent à travers le monde.
 
-À cet instant, le corps de Wang Lin ne dégageait aucune aura, comme s'il avait fusionné avec la Mer des Pillules. Il était impossible de les distinguer, comme s'il faisait partie intégrante de l'océan.
+À cet instant, le corps de Wang Lin ne dégageait aucune aura, comme s'il avait fusionné avec la Mer des Pilules. Il était impossible de les distinguer, comme s'il faisait partie intégrante de l'océan.
 
-Alors que la Mer des Pillules tremblait et bouillonnait, elle aurait dû attirer les cultivateurs marginaux des deux continents. Cependant, un bain de sang faisait rage dans les profondeurs, de sorte que personne ne prêta attention à la tempête qui faisait rage en surface!
+Alors que la Mer des Pilules tremblait et bouillonnait, elle aurait dû attirer les cultivateurs marginaux des deux continents. Cependant, un bain de sang faisait rage dans les profondeurs, de sorte que personne ne prêta attention à la tempête qui faisait rage en surface!
 
-L'ensemble de la mer était entouré d'une couche de restrictions. Cette barrière était très mystérieuse; même Wang Lin ne l'avait pas remarquée lors de son entrée. Ce n'est qu'en commençant à absorber la Mer des Pillules qu'il en perçut vaguement l'existence.
+L'ensemble de la mer était entouré d'une couche de restrictions. Cette barrière était très mystérieuse; même Wang Lin ne l'avait pas remarquée lors de son entrée. Ce n'est qu'en commençant à absorber la Mer des Pilules qu'il en perçut vaguement l'existence.
 
-Cette couche de restrictions permettait d'entrer, mais empêchait de sortir, scellant ainsi totalement la Mer des Pillules!
+Cette couche de restrictions permettait d'entrer, mais empêchait de sortir, scellant ainsi totalement la Mer des Pilules!
 
 Tandis que Wang Lin absorbait l'essence aquatique, de nombreux cris misérables s'élevaient des profondeurs. De nombreux cultivateurs marginaux du Continent du Taureau Céleste étaient massacrés par d'autres cultivateurs entourés d'un feu fantomatique vert.
 
-Il y avait une quantité immense de ces cultivateurs dans la Mer des Pillules!
+Il y avait une quantité immense de ces cultivateurs dans la Mer des Pilules!

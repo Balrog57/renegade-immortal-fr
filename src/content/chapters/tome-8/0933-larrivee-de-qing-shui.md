@@ -66,7 +66,7 @@ Une énergie spirituelle céleste infinie envahit la zone, donnant aux environs 
 
 Simultanément, sa main traça un sceau et pointa le papillon multicolore. L'insecte tressaillit brusquement et l'une de ses ailes tomba comme un pétale. En un instant, l'aile se divisa en quatre couleurs différentes pour former quatre vortex.
 
-« Loi du Néant Void! »
+« Loi du Néant Vide! »
 
 Alors que l'Estimé Xuan Bao prononçait ces mots, les quatre vortex formés par l'aile explosèrent, dispersant des tonnes de poudre multicolore.
 

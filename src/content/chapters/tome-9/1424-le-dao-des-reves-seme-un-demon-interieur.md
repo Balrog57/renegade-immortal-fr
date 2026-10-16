@@ -16,13 +16,13 @@ Le troisième sort de Wang Lin fut compris après qu'il eut été gravement bles
 
 À l'intérieur du Domaine du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier était le sort qui avait gravement blessé l'Omniscient et qui était le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 
-Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Scatter utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
+Le second était le tout premier sort de Dao qu'il avait rencontré: le sort Dao Dispersé utilisé par le vieil homme dans le Royaume aux Sept Couleurs!
 
 Ces deux sorts étaient extrêmement puissants et s'étaient profondément gravés dans la mémoire de Wang Lin!
 
-Durant les dix années passées dans le Domaine du Dao, Wang Lin avait appréhendé la puissance terrifiante du Rêve des Temps Anciens et du Dao Scatter!
+Durant les dix années passées dans le Domaine du Dao, Wang Lin avait appréhendé la puissance terrifiante du Rêve des Temps Anciens et du Dao Dispersé!
 
-Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas être utilisé comme un sort de cultivateur ordinaire, même si Wang Lin était lui-même un Dieu Ancien. Cependant, dans la vie de Wang Lin, le danger et la fortune coexistaient toujours. Le sort Dao Scatter utilisé par le vieil homme dans le Royaume aux Sept Couleurs avait ouvert la voie des sorts de Dao pour Wang Lin.
+Le Rêve des Temps Anciens était un sort de Dieu Ancien; il ne pouvait donc pas être utilisé comme un sort de cultivateur ordinaire, même si Wang Lin était lui-même un Dieu Ancien. Cependant, dans la vie de Wang Lin, le danger et la fortune coexistaient toujours. Le sort Dao Dispersé utilisé par le vieil homme dans le Royaume aux Sept Couleurs avait ouvert la voie des sorts de Dao pour Wang Lin.
 
 Pourtant, ce sort était tout simplement trop magnifique. Normalement, Wang Lin n'aurait pas été capable de le comprendre, mais en s'appuyant sur le Domaine du Dao, il avait fait preuve d'une persévérance et d'une ténacité sans faille pour fusionner les deux en un seul: le Dao des Rêves!
 

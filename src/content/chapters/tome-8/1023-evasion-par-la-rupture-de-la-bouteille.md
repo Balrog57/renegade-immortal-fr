@@ -98,7 +98,7 @@ Ses cheveux pâles flottaient au-dessus d'une armure noir pourpre. Dès que les 
 
 Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un ancien membre des quatre gardes de l'Empereur Céleste, Savage Blade, n'est plus qu'un simple démon errant pour les démons antiques. Pitoyable! »
 
-L'Omniscient, Ling Tianhou, Master Void, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Lou!
+L'Omniscient, Ling Tianhou, Maître du Vide, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Lou!
 
 Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Sable Marqué d'Étoiles.
 
@@ -108,7 +108,7 @@ Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang L
 
 Dès son apparition, il remarqua immédiatement que tous les regards se braquaient sur lui comme des éclairs.
 
-L'expression de Master Void était neutre, mais en voyant Wang Lin, son cœur fut envahi par une intention meurtrière. Ling Tianhou affichait une expression complexe; plus il interagissait avec Wang Lin, plus il sentait qu'il ne pouvait le sous-estimer.
+L'expression du Maître du Vide était neutre, mais en voyant Wang Lin, son cœur fut envahi par une intention meurtrière. Ling Tianhou affichait une expression complexe; plus il interagissait avec Wang Lin, plus il sentait qu'il ne pouvait le sous-estimer.
 
 Le sourcil de l'Omniscient se fronça légèrement avant de se détendre.
 

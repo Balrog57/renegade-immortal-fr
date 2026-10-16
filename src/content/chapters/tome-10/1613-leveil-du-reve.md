@@ -76,7 +76,7 @@ Il y eut aussi l'océan infini, la mer déchaînée, l'autre rive, l'autre conti
 
 Tout ce qui composait ce monde se dispersa... Laissant derrière lui les mortels et les cultivateurs vaquant à leurs occupations. Ils ne disparurent pas; ils demeurèrent calmement, par-delà le monde.
 
-Tout comme Li Muwan et Big Fortune aux côtés de Wang Lin.
+Tout comme Li Muwan et Grande Fortune aux côtés de Wang Lin.
 
 « Qu'est-ce que la vie et la mort... Ma main gauche est la vie, ma main droite est la mort... » Deux larmes coulèrent des yeux de Wang Lin. À peine eut-il prononcé ces mots que le tonnerre gronda et que les éclairs déchirèrent le ciel au-dessus de la planète Suzaku.
 
@@ -96,7 +96,7 @@ Il y eut aussi Yun Quezi, Dun Tian et Nian Tian de la Secte de l'Affinement de l
 
 À cet instant, le monde ne possédait plus ni terre ni vie; seul le ciel subsistait.
 
-Les seuls qui n'avaient pas disparu étaient Wang Lin, en pleurs, et Big Fortune.
+Les seuls qui n'avaient pas disparu étaient Wang Lin, en pleurs, et Grande Fortune.
 
 Dans ce monde, ils étaient les derniers.
 
@@ -104,11 +104,11 @@ Alors que Li Muwan disparaissait, les larmes de Wang Lin tombèrent silencieusem
 
 Il ne voulait pas renoncer... Mais le rêve finirait inévitablement par prendre fin et il s'éveillerait. Ce moment viendrait tôt ou tard. Après avoir achevé sa rencontre avec lui-même et bu ce pichet de vin, le rêve vola en éclats.
 
-« Qu'est-ce qui est vrai ou faux... Lorsque moi, Wang Lin, j'ouvre les yeux, c'est la vérité. Quand je les ferme, c'est l'illusion... » Tandis qu'il disait cela, Wang Lin saisit la main droite de Big Fortune, sa paume se superposant à l'empreinte dorée sur le poignet du petit. Il ferma lentement ses vieux yeux.
+« Qu'est-ce qui est vrai ou faux... Lorsque moi, Wang Lin, j'ouvre les yeux, c'est la vérité. Quand je les ferme, c'est l'illusion... » Tandis qu'il disait cela, Wang Lin saisit la main droite de Grande Fortune, sa paume se superposant à l'empreinte dorée sur le poignet du petit. Il ferma lentement ses vieux yeux.
 
 Au moment où il les ferma, diverses scènes lui apparurent. Ces visions le rendaient incapable d'abandonner, mais finalement, elles se dissipèrent une à une. S'il voulait les retrouver, il ne pourrait que puiser dans ses souvenirs.
 
-Dans ces visions, il se vit, Li Muwan et Big Fortune assis sur le bateau.
+Dans ces visions, il se vit, Li Muwan et Grande Fortune assis sur le bateau.
 Il vit un carrosse traversant la neige vers son village de montagne natal.
 Il se vit, Li Muwan et lui, dans leur maison de la vallée. La musique d'une cithare résonnait, une mélodie joyeuse. Leurs regards croisés semblaient durer l'éternité. Lorsqu'on essayait de regarder à nouveau, tout devenait flou.
 Il se vit assis sur un rocher en montagne, contemplant les lois du ciel. Les cultivateurs dans un rayon de milliers de kilomètres l'adoraient. Parmi eux, il aperçut les larmes de Liu Mei.
@@ -119,7 +119,7 @@ Il vit une femme tenant un bébé sous la pluie devant un pavillon. Elle était 
 Il vit l'incompréhension dans les yeux de Liu Mei aux confins de Zhao, et la pilule qu'elle avait laissée avec un sourire.
 Il vit son père fermer les yeux dans ses bras. Il vit une feuille d'automne s'envoler avec son âme, s'éloignant toujours plus loin... Il vit les yeux de sa mère ne jamais se rouvrir, et un sourire apparaître au coin de ses lèvres, comme si elle avait retrouvé son père.
 Il se vit foudroyant du regard le cultivateur venu pour le tuer dans la ville de Su. Une seule phrase suffit à effrayer l'assaillant!
-Il vit Su Dao et son enterrement. Il revit l'année où lui et Big Fortune arrivèrent pour la première fois à Su, quand les feuilles de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
+Il vit Su Dao et son enterrement. Il revit l'année où lui et Grande Fortune arrivèrent pour la première fois à Su, quand les feuilles de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
 
 Enfin, il vit une auberge au bord de la route royale. Sur une table, à l'intérieur, gisait un jeune homme ivre. Le serveur, le sourcil froncé, s'approcha pour le secouer.
 « Petit frère, réveille-toi... Ah, voilà un vrai érudit. À peine deux coupes et déjà ivre. Je dois nettoyer, dépêche-toi de te lever... »

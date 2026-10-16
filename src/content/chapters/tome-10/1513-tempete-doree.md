@@ -34,7 +34,7 @@ Bien que la cloche fût fragile, la puissance qu'elle renfermait était inimagin
 
 Cependant, en cet instant, le Daoïste Eau utilisait toute cette puissance pour attaquer Wang Lin!
 
-Si cette force explosait, oubliez Wang Lin: même le cultivateur en noir, Zhou De; l'homme d'âge moyen, Cloud Edge; l'Estimé Ling Dong; Zhou Jin; tout la Secte Divin et l'intégralité du Système Stellaire de la Mer Nuageuse seraient détruits!
+Si cette force explosait, oubliez Wang Lin: même le cultivateur en noir, Zhou De; l'homme d'âge moyen, Bord-des-Nuages; l'Estimé Ling Dong; Zhou Jin; tout la Secte Divin et l'intégralité du Système Stellaire de la Mer Nuageuse seraient détruits!
 
 Personne ne survivrait. Seul le propriétaire de la cloche dorée, le Daoïste Eau, pourrait rester indemne!
 
@@ -60,7 +60,7 @@ Dans la Secte Divin, l'homme en rouge apparut derrière Wang Lin. Il fit un pas 
 
 Peu après, à l'opposé de lui, le vieil homme de la Secte des Cadavres de l'Alliance apparut également. L'expression sérieuse, il forma un sceau de sa main et pressa vers le bas!
 
-Zhou De et Maître Cloud Edge étaient livides. Ignorant leurs propres combats, ils se précipitèrent. Leurs mains bougeaient frénétiquement dans une tentative désespérée d'endiguer cette explosion de puissance!
+Zhou De et Maître Bord-des-Nuages étaient livides. Ignorant leurs propres combats, ils se précipitèrent. Leurs mains bougeaient frénétiquement dans une tentative désespérée d'endiguer cette explosion de puissance!
 
 Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cultivateurs de la troisième étape allaient tenter d'arrêter cette tempête terrifiante!!
 

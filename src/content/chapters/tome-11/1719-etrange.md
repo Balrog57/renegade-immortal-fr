@@ -16,11 +16,11 @@ Qing Lin regarda l'endroit où Wang Lin avait disparu, l'inquiétude se lisant s
 
 Les yeux de Qing Lin brillèrent d'un éclat vif et il s'élança à son tour vers le ciel. Avant de partir, son Sens Divin se propagea à travers tout le Royaume Céleste.
 
-« Senior Hong Shan, Senior South Cloud, Wang Lin a été victime d'un complot orchestré par un certain Omniscient. Je m'en vais, voulez-vous m'accompagner? »
+« Aîné Hong Shan, Aîné Nuage du Sud, Wang Lin a été victime d'un complot orchestré par un certain Omniscient. Je m'en vais, voulez-vous m'accompagner? »
 
 L'aura du Maître Hong Shan explosa depuis le centre du Royaume Céleste. Il s'envola dans les cieux sans la moindre hésitation.
 
-Derrière lui, le Maître South Cloud réfléchit un instant et choisit de rester. Après tout, les cultivateurs de la troisième étape étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
+Derrière lui, le Maître Nuage du Sud réfléchit un instant et choisit de rester. Après tout, les cultivateurs de la troisième étape étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
 
 Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière des Invocations. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles du Maître du Dao Rêve Bleu lui avaient fait comprendre une chose essentielle.
 

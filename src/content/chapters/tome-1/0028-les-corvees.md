@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 28 - Chores
 slug: les-corvees
 ---
-Parmi les teintes pourpre, noire, blanche et rouge, le noir représentait un niveau de culture extrêmement élevé. Wang Lin ne parvenait pas à percer les secrets de sa cultivation, alors il salua respectueusement: « Wang Lin salue le frère Zhang. Félicitations, Senior, pour avoir atteint le rang des vêtements noirs. »
+Parmi les teintes pourpre, noire, blanche et rouge, le noir représentait un niveau de culture extrêmement élevé. Wang Lin ne parvenait pas à percer les secrets de sa cultivation, alors il salua respectueusement: « Wang Lin salue le frère Zhang. Félicitations, Aîné, pour avoir atteint le rang des vêtements noirs. »
 
 Le jeune homme vêtu de noir regarda Wang Lin et dit lentement: « Mon succès dans l'accès à la cinquième couche de Condensation de Qi est en partie dû à vous. Si je n'avais pas trouvé cette grotte en vous cherchant, je ne me serais pas élevé aussi rapidement. »
 

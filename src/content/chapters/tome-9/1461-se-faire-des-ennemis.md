@@ -40,7 +40,7 @@ Ces yeux étaient impitoyables et un hurlement de loup résonna. Une ombre rouge
 
 Le cœur de l'homme corpulent battait la chamade; il pressentait le danger. Wang Lin n'était déjà plus faible et se montrait extrêmement rusé. Désormais, Ling Dong avait lui aussi franchi le dernier pas vers le troisième stade. L'homme corpulent n'hésita pas à renoncer à sa dignité de cultivateur du troisième stade: dès que le loup rouge jaillit, il battit en retraite avec anxiété.
 
-« Je ne peux pas laisser ce combat continuer, c'est impossible! Cet Estimé Ling Dong était considéré comme un junior lorsqu'il était encore au cinquième Niveau de la Calamité Céleste. S'il n'avait pas été aussi imprudent et incapable d'obtenir suffisamment de Flammes Joss, il serait devenu un cultivateur du troisième stade depuis longtemps! »
+« Je ne peux pas laisser ce combat continuer, c'est impossible! Cet Estimé Ling Dong était considéré comme un cadet lorsqu'il était encore au cinquième Niveau de la Calamité Céleste. S'il n'avait pas été aussi imprudent et incapable d'obtenir suffisamment de Flammes Joss, il serait devenu un cultivateur du troisième stade depuis longtemps! »
 
 Wang Lin se tenait toujours au sommet du crâne du Dieu Ancien. Il n'avait pas bougé d'un pouce et son expression était restée presque immuable. Il avait tout observé, de l'arrivée arrogante de l'homme corpulent du Clan du Lou Céleste jusqu'à sa retraite dans la stupeur.
 

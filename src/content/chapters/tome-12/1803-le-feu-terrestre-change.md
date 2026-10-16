@@ -66,7 +66,7 @@ Pourtant, après avoir frôlé la mort, Kang Ren s'effondra au sol, terrifié. I
 
 « Je... Quel genre d'être ai-je ramené ici... »
 
-Alors que le feu terrestre faisait rage, Virtual Cloud et son maître arrivèrent devant la grotte de Kang Ren. À cet instant, l'expression du vieil homme aux cheveux blancs changea radicalement. Il saisit rapidement son disciple et recula de plusieurs milliers de pieds.
+Alors que le feu terrestre faisait rage, Nuage Virtuel et son maître arrivèrent devant la grotte de Kang Ren. À cet instant, l'expression du vieil homme aux cheveux blancs changea radicalement. Il saisit rapidement son disciple et recula de plusieurs milliers de pieds.
 
 Tandis qu'ils s'éloignaient, l'entrée de la grotte de Kang Ren s'effondra, libérant une vague de chaleur étouffante.
 
@@ -74,9 +74,9 @@ Tous les pavillons de la montagne disparurent dans un océan de flammes!
 
 Les montagnes environnantes tremblèrent sous la poussée du feu, comme si elles étaient sur le point d'entrer en éruption! Ce bouleversement soudain terrifia les disciples de la Secte du Dragon Bleu. Tous sortirent de leurs grottes et regardèrent vers le bas avec effroi.
 
-« L'Ancien est sorti. Pourquoi le feu terrestre a-t-il changé ainsi? » Le maître de Virtual Cloud affichait un visage sombre en contemplant l'embrasement. Il fixa la grotte où se trouvait Kang Ren.
+« L'Ancien est sorti. Pourquoi le feu terrestre a-t-il changé ainsi? » Le maître de Nuage Virtuel affichait un visage sombre en contemplant l'embrasement. Il fixa la grotte où se trouvait Kang Ren.
 
-Simultanément, trois auras puissantes jaillirent de la Secte du Dragon Bleu. Elles se matérialisèrent sous la forme de trois individus aux côtés du maître de Virtual Cloud.
+Simultanément, trois auras puissantes jaillirent de la Secte du Dragon Bleu. Elles se matérialisèrent sous la forme de trois individus aux côtés du maître de Nuage Virtuel.
 
 Parmi eux se trouvaient deux hommes et une femme. L'un des hommes et la femme étaient aux cheveux blancs, tandis que l'autre homme était d'âge moyen. Tous possédaient l'aura de cultivateurs du troisième pas.
 
@@ -88,7 +88,7 @@ L'esprit de tous les disciples qui entendirent cet ordre trembla, et ils s'assir
 
 La formation gronda lors de son apparition. De loin, elle ressemblait à un immense nuage sombre couvrant des dizaines de milliers de kilomètres, englobant les milliers de disciples présents.
 
-Au même moment, outre l'homme d'âge moyen et le maître de Virtual Cloud, les deux autres cultivateurs du troisième pas s'élancèrent dans le nuage sombre sans attendre d'ordres. Utilisant un sort inconnu, ils se transformèrent en deux longs dragons au sein de la masse nuageuse.
+Au même moment, outre l'homme d'âge moyen et le maître de Nuage Virtuel, les deux autres cultivateurs du troisième pas s'élancèrent dans le nuage sombre sans attendre d'ordres. Utilisant un sort inconnu, ils se transformèrent en deux longs dragons au sein de la masse nuageuse.
 
 Ces deux dragons mesuraient près de 100 000 pieds de long. Un instant plus tard, ils déployèrent leurs têtes gigantesques et ouvrirent les gueules vers la montagne en flammes. Une pluie torrentielle s'abattit du ciel, et d'immenses quantités d'eau jaillirent de la bouche des deux dragons.
 

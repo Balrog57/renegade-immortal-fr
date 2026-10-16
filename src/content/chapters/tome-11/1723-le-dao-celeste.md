@@ -106,6 +106,6 @@ Les plus de quatre-vingt-dix réincarnations de l'Omniscient prirent fin!
 
 Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit le Maître Dao Bleu Rêve, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement submergé dans la Rivière des Invocations!
 
-« J'ai trouvé son corps originel. Vous trois, seniors, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps! » Wang Lin se leva et salua les trois seniors en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
+« J'ai trouvé son corps originel. Vous trois, aînés, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps! » Wang Lin se leva et salua les trois aînés en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
 
 « Omniscient, le jeu touche à sa fin! »

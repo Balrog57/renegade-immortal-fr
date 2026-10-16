@@ -100,7 +100,7 @@ La lueur rouge à l'horizon devint plus éclatante encore, et ce qui apparut dev
 
 Le soleil était d'un rouge sanglant, surplombant des vagues tumultueuses. À cet instant, presque tous eurent l'illusion que leurs corps se dissipaient pour devenir le ciel nocturne infini.
 
-Même le fou de Maître du Vide fut surpris et s'éveilla brusquement de sa confusion. Cependant, ses yeux furent bientôt remplis d'une horreur indicible.
+Même le fou du Maître du Vide fut surpris et s'éveilla brusquement de sa confusion. Cependant, ses yeux furent bientôt remplis d'une horreur indicible.
 
 « La... Loi d'origine!!! »
 

@@ -6,15 +6,15 @@ bookTitle: Light of the coming end
 en: Three Losses, Two Calamities
 slug: troisieme-epreuve-deuxieme-calamite
 ---
-Il n'existait que trois temples ancestraux dans tout le clan Ancient. Ils se trouvaient dans la cité impériale de chaque famille royale, érigés au pied de la statue de chaque pays.
+Il n'existait que trois temples ancestraux dans tout le clan Antique. Ils se trouvaient dans la cité impériale de chaque famille royale, érigés au pied de la statue de chaque pays.
 
-Chaque membre adulte du clan Ancient se rendait volontairement au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
+Chaque membre adulte du clan Antique se rendait volontairement au temple ancestral lors de sa troisième épreuve. Cependant, ils n'y pénétraient pas très profondément; seuls les membres de la famille royale étaient autorisés à entrer dans la zone intérieure.
 
 Depuis des temps immémoriaux, très peu d'individus avaient satisfait aux conditions pour pratiquer une culture en isolement au sein des temples ancestraux. C’était un privilège rare, même pour les Grands Empereurs, car le contrôle de ces lieux reposait entre les mains de l'empereur de chaque génération. Seuls les membres des familles royales pouvaient s'aventurer dans les profondeurs des temples pour passer cette épreuve.
 
-Wang Lin se tenait au centre de la cité impériale de l'Ancient Shi. Il se trouvait sous l'antique statue, le regard fixé silencieusement vers l'horizon.
+Wang Lin se tenait au centre de la cité impériale de l'Shi Antique. Il se trouvait sous l'antique statue, le regard fixé silencieusement vers l'horizon.
 
-Cette statue était identique à celle de l'Ancient Dao. L'Ancêtre regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans l'Ancient Dao.
+Cette statue était identique à celle de l'Dao Antique. L'Ancêtre regardait les cieux et la terre avec un mépris souverain. Avant que Wang Lin ne traverse les trois Ponts du Piétinement des Cieux, il n'avait rien ressenti de particulier en contemplant la statue de l'Ancêtre dans l'Dao Antique.
 
 Cependant, à cet instant précis, cette statue lui apparut sous un jour nouveau.
 
@@ -28,7 +28,7 @@ Wang Lin demanda lentement: « Qui a sculpté la statue de l'Ancêtre? »
 
 Wang Lin hocha doucement la tête. Il savait qu'une race devait posséder un symbole d'espoir; sans lui, elle ne pourrait perdurer et finirait par s'éteindre lentement.
 
-Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Ancient croyait! Le Grand Empereur Gu Dao, gardien du clan Ancient... Rien que ce titre témoignait de sa sagesse.
+Il était évident que les statues de l'Ancêtre et ses légendes étaient les symboles en lesquels le clan Antique croyait! Le Grand Empereur Gu Dao, gardien du clan Antique... Rien que ce titre témoignait de sa sagesse.
 
 Wang Lin et Song Tian restèrent sous la statue, comme s'ils attendaient silencieusement quelque chose.
 
@@ -50,9 +50,9 @@ La lumière sombre sur la statue de l'Ancêtre s'estompa progressivement. Elle r
 
 Song Tian resta là un long moment avant de laisser échapper un soupir et de partir.
 
-Les membres de l'Ancient Shi avaient tous remarqué l'aura autour de la statue, mais peu savaient que Wang Lin était entré. Cette nouvelle fut étouffée par l'Empereur de l'Ancient Shi, et les gens finirent par oublier l'événement.
+Les membres de l'Shi Antique avaient tous remarqué l'aura autour de la statue, mais peu savaient que Wang Lin était entré. Cette nouvelle fut étouffée par l'Empereur de l'Shi Antique, et les gens finirent par oublier l'événement.
 
-L'ensemble de l'Ancient Shi ne semblait pas avoir changé, mais les observants attentifs remarquèrent que le Prince Ji Du, qui était habituellement absent de la cité impériale, résidait désormais dans le palais.
+L'ensemble de l'Shi Antique ne semblait pas avoir changé, mais les observants attentifs remarquèrent que le Prince Ji Du, qui était habituellement absent de la cité impériale, résidait désormais dans le palais.
 
 Le prince héritier avait été nommé roi il y a dix ans et avait été envoyé aux frontières pour les défendre.
 
@@ -60,9 +60,9 @@ Cinq années s'écoulèrent encore. Le Prince Chi Man, le plus probable successe
 
 Durant ces trente années, le Prince Ji Du resta très discret et n'interagit que peu avec l'extérieur. Son statut d'héritier étant établi, il n'avait plus besoin d'agir dans l'ombre. Il lui suffisait d'attendre.
 
-Une fois tous les autres princes nommés rois et écartés, le peuple de l'Ancient Shi savait qui serait le futur empereur.
+Une fois tous les autres princes nommés rois et écartés, le peuple de l'Shi Antique savait qui serait le futur empereur.
 
-Ji Du commença progressivement à entrer en contact avec les puissances occultes rattachées à l'Empereur. Au cours des soixante-dix années suivantes, son père lui transmettrait lentement le pouvoir. C’était une étape nécessaire pour tout nouvel empereur des trois clans Ancient, et c'était aussi la période la plus paisible.
+Ji Du commença progressivement à entrer en contact avec les puissances occultes rattachées à l'Empereur. Au cours des soixante-dix années suivantes, son père lui transmettrait lentement le pouvoir. C’était une étape nécessaire pour tout nouvel empereur des trois clans Antique, et c'était aussi la période la plus paisible.
 
 Tout se déroula comme prévu et Ji Du conservait ses bonnes habitudes. Presque chaque matin, au réveil, il regardait silencieusement en direction du temple ancestral.
 
@@ -74,11 +74,11 @@ Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il a
 
 Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Ville de la Pierre Noire et d'innombrables experts agissaient ainsi pour elle.
 
-En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein de l'Ancient Shi.
+En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein de l'Shi Antique.
 
 Ce n'était pas le couronnement de Song Tian, mais son mariage. Il avait choisi comme épouse une descendante de la lignée de Song Tian, nommée Song Yu. Cette femme était choyée par Song Tian et comptait parmi les rares descendantes à pouvoir recevoir personnellement ses enseignements.
 
-Ce grand festival dura plusieurs mois, durant lesquels les membres des deux autres clans arrivèrent. Un homme d'âge mûr vint du clan Ancient; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
+Ce grand festival dura plusieurs mois, durant lesquels les membres des deux autres clans arrivèrent. Un homme d'âge mûr vint du clan Antique; si Wang Lin l'avait vu, il aurait remarqué sa ressemblance frappante avec Ye Mo. C'était un descendant de Ye Mo.
 
 Une fois le festival terminé et les invités repartis, Ji Du amena sa femme devant le temple ancestral sous la lumière de la lune.
 
@@ -94,7 +94,7 @@ La femme fut surprise.
 
 « Ton parrain? » s'étonna-t-elle.
 
-« Parrain, j'ai pris une descendante du Seigneur Song pour épouse. Elle sera la future impératrice de l'Ancient Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
+« Parrain, j'ai pris une descendante du Seigneur Song pour épouse. Elle sera la future impératrice de l'Shi Antique. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
 
 Il se souviendrait à jamais que tout ce qu'il possédait lui avait été accordé par Wang Lin. Il n'oublierait jamais que sans lui, il n'aurait jamais eu la moindre chance de devenir empereur. Même la femme à ses côtés ne serait pas sa femme; elle appartiendrait à Chi Man.
 
@@ -112,13 +112,13 @@ Le corps de Ji Du trembla et il se retourna brusquement. Il regarda le temple an
 
 Wang Lin était assis au plus profond du temple. Son corps dégageait une odeur de décomposition et s'était considérablement desséché; il ressemblait à un cadavre. Mais ses yeux brillaient comme des étoiles.
 
-« Les Trois Épreuves et les Sept Calamités du clan Ancient... Dans le monde des grottes, j'ai accompli deux épreuves et quatre calamités, et j'ai même passé la première calamité de la troisième épreuve. »
+« Les Trois Épreuves et les Sept Calamités du clan Antique... Dans le monde des grottes, j'ai accompli deux épreuves et quatre calamités, et j'ai même passé la première calamité de la troisième épreuve. »
 
 « La première calamité de la troisième épreuve est le Sang Céleste de la Race Ancienne! »
 
-« La deuxième calamité de la troisième épreuve est la Division des Trois Âmes de l'Ancient Dao! »
+« La deuxième calamité de la troisième épreuve est la Division des Trois Âmes de l'Dao Antique! »
 
-« La troisième calamité, qui est la dernière, est la Bénédiction de l'Ancêtre! » murmura Wang Lin en fixant le vide. Une stèle se dressait devant lui, sur laquelle étaient gravées toutes les informations concernant les Trois Épreuves et les Sept Calamités du clan Ancient.
+« La troisième calamité, qui est la dernière, est la Bénédiction de l'Ancêtre! » murmura Wang Lin en fixant le vide. Une stèle se dressait devant lui, sur laquelle étaient gravées toutes les informations concernant les Trois Épreuves et les Sept Calamités du clan Antique.
 
 Après un long silence, Wang Lin ferma les yeux, et la voix qui s'était manifestée lorsqu'il avait franchi la première calamité de la troisième épreuve pour obtenir cette goutte de sang d'âme résonna dans son esprit:
 

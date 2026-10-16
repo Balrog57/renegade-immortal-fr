@@ -72,7 +72,7 @@ Les yeux de Wang Lin s'illuminèrent. Il se leva, sentant la puissance de l'éne
 
 La personnalité de Wang Lin était d'une grande fermeté. Il n'importunait personne s'il était laissé en paix, mais si quelqu'un s'en prenait à lui, il rendrait la pareille dix... cent fois! C'était un homme qui n'oubliait jamais sa vengeance!
 
-« Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Du Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce junior accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
+« Li Yuanfeng... » La froideur dans les yeux de Wang Lin se dissipa alors qu'il se tournait vers Du Tian et joignit les mains. « Merci, Aîné, pour ces trois cadeaux. Si vous avez besoin que ce cadet accomplisse quoi que ce soit, dites-le simplement. Je ferai de mon mieux! »
 
 En disant cela, Wang Lin signifiait sa profonde gratitude envers l'Aîné Du Tian.
 
@@ -80,7 +80,7 @@ Du Tian esquissa un léger sourire. Son mécontentement précédent s'était tot
 
 « Petit ami Ceng Niu, la raison pour laquelle je t'ai offert ces trois cadeaux est cruciale. Si tu n'étais pas venu dans ma Secte de l'Affinement de l'Âme, je serais allé te chercher moi-même. »
 
-Wang Lin regarda Du Tian et sourit. « Ce junior a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte de l'Affinement de l'Âme; je suppose donc que l'Aîné me cherche pour m'interroger. »
+Wang Lin regarda Du Tian et sourit. « Ce cadet a déjà entendu la rumeur selon laquelle j'aurais tué un cultivateur de la Formation de l'Âme de la Secte de l'Affinement de l'Âme; je suppose donc que l'Aîné me cherche pour m'interroger. »
 
 Du Tian secoua la tête en souriant. « Tout cela n'était qu'un subterfuge. Si je venais te chercher sans raison apparente, cela aurait attiré trop d'attention. Cependant, en propageant la rumeur que tu avais tué un cultivateur de la Formation de l'Âme de ma secte, personne ne s'étonnerait si je commençais à te traquer. »
 
@@ -114,7 +114,7 @@ Wang Lin réfléchissait en silence.
 
 « Le Suzaku craint que les pays de culture de rang 5 ne se retournent contre lui pour prendre le pouvoir. Il craint pour la stabilité de la planète. »
 
-Wang Lin médita sur ces paroles. Après un moment, il regarda Du Tian et dit: « Aîné, quel est le rapport avec moi? Je ne suis qu'un simple junior au stade de la Formation de l'Âme. »
+Wang Lin médita sur ces paroles. Après un moment, il regarda Du Tian et dit: « Aîné, quel est le rapport avec moi? Je ne suis qu'un simple cadet au stade de la Formation de l'Âme. »
 
 Le regard de Du Tian devint solennel. Il fixa Wang Lin et déclara, mot pour mot: « Cela te concerne directement! »
 

@@ -50,13 +50,13 @@ L'expression de Wang Lin était complexe tandis qu'il regardait Wu Feng et médi
 
 « Il est là. »
 
-À peine Wu Feng eut-il prononcé ces mots qu'une ondulation de lumière apparut dans le ciel et que deux silhouettes en émergèrent. C'étaient l'Exalt Empereur Hai Zi et son maître.
+À peine Wu Feng eut-il prononcé ces mots qu'une ondulation de lumière apparut dans le ciel et que deux silhouettes en émergèrent. C'étaient l'Exalté Empereur Hai Zi et son maître.
 
-« Wang Lin! » La voix de l'Exalt Empereur Hai Zi était empreinte de joie. Elle s'avança et rejoignit Wang Lin. « Tu as disparu si longtemps, et dès ton apparition, tu t'es précipité vers l'Épreuve Empériale. Tu as réussi le 17e palais! »
+« Wang Lin! » La voix de l'Exalté Empereur Hai Zi était empreinte de joie. Elle s'avança et rejoignit Wang Lin. « Tu as disparu si longtemps, et dès ton apparition, tu t'es précipité vers l'Épreuve Empériale. Tu as réussi le 17e palais! »
 
-« Juste de la chance. » L'Exalt Empereur Hai Zi était très proche de Wang Lin, et son parfum vint jusqu'à lui. Wang Lin ne recula pas, mais resta immobile. Il se souvenait encore de ses paroles lorsque tout le monde s'était retourné contre lui.
+« Juste de la chance. » L'Exalté Empereur Hai Zi était très proche de Wang Lin, et son parfum vint jusqu'à lui. Wang Lin ne recula pas, mais resta immobile. Il se souvenait encore de ses paroles lorsque tout le monde s'était retourné contre lui.
 
-L'Exalt Empereur Hai Zi regarda Wang Lin et dit doucement: « Très bien, ne parlons plus de cela. Te souviens-tu quand je t'ai parlé du Mont de l'Empereur? Allons voir les feuilles d'automne ensemble, d'accord? »
+L'Exalté Empereur Hai Zi regarda Wang Lin et dit doucement: « Très bien, ne parlons plus de cela. Te souviens-tu quand je t'ai parlé du Mont de l'Empereur? Allons voir les feuilles d'automne ensemble, d'accord? »
 
 Wang Lin hésita un instant et soupira en contemplant la beauté absolue qui se tenait devant lui.
 
@@ -92,7 +92,7 @@ Mais Dao Yi restait un choix envisageable sans regret. Ses trésors étaient pr�
 
 Cependant, à cet instant précis, Jiu Di leva soudainement la tête. Wu Feng et Dao Yi suivirent son regard avec des expressions graves. Peu après, trois rayons de lumière convergèrent vers eux.
 
-« Petit Wang Lin, ah, c'est bien toi! » Un éclat de rire joyeux résonna dans le ciel. Les trois lumières se rapprochèrent: il s'agissait du Grand Empereur Gemini et de l'Exalt Empereur Gu Ya.
+« Petit Wang Lin, ah, c'est bien toi! » Un éclat de rire joyeux résonna dans le ciel. Les trois lumières se rapprochèrent: il s'agissait du Grand Empereur Gemini et de l'Exalté Empereur Gu Ya.
 
 Tandis que les rires résonnaient, la petite fille nommée Wa Wa apparut aux côtés de Wang Lin. Elle frappa dans ses mains et fit le tour de Wang Lin.
 
@@ -112,4 +112,4 @@ Wang Lin regarda le cultivateur jeté au sol, qui baissa les mains pour révéle
 
 Ce changement soudain surprit Wang Lin.
 
-L'Exalt Empereur Gu Ya recula de quelques pas avec un sourire amer. Avec son niveau de culture, il n'avait pas la qualification pour intervenir et ne pouvait que regarder les deux petits ancêtres gérer la situation.
+L'Exalté Empereur Gu Ya recula de quelques pas avec un sourire amer. Avec son niveau de culture, il n'avait pas la qualification pour intervenir et ne pouvait que regarder les deux petits ancêtres gérer la situation.

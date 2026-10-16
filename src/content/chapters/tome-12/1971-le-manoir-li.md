@@ -54,7 +54,7 @@ Wang Lin marcha silencieusement dans la ville jusqu'à ce que la lune apparaisse
 
 La pièce n'était pas grande et restait très simple, mais l'énergie céleste y était encore plus dense qu'à l'extérieur. Bien qu'il ne s'agisse pas d'une grotte, les murs, la porte et la fenêtre étaient couverts de restrictions. Celles-ci pouvaient être activées pour faire de cet endroit un lieu propice à la culture en vase clos.
 
-À ce moment-là, Liu Jinbiao se tenait à ses côtés et regardait autour de lui. Le dragon marin d'Exalt Doré avait rétréci jusqu'à la taille d'un doigt et reposait sur l'épaule de Liu Jinbiao, paraissant très paresseux.
+À ce moment-là, Liu Jinbiao se tenait à ses côtés et regardait autour de lui. Le dragon marin d'Exalté Doré avait rétréci jusqu'à la taille d'un doigt et reposait sur l'épaule de Liu Jinbiao, paraissant très paresseux.
 
 Le lien entre le dragon marin et Liu Jinbiao était excellent. Wang Lin n'était pas surpris; après tout, il était tout à fait normal que Liu Jinbiao utilise ses capacités pour agir ainsi.
 
@@ -94,7 +94,7 @@ Sur ce geste, la flèche violette qui arrivait s'effondra, et même la suivante 
 
 Tout cela se produisit en un éclair. Wang Lin n'avait même pas reculé; il s'était simplement retourné pour pointer du doigt avec désinvolture.
 
-Les yeux de l'archer s'écarquillèrent, remplis d'incrédulité. Il ne s'attendait pas à ce qu'une flèche tirée de toutes ses forces avec sa culture d'Exalt Doré soit si négligemment annulée par cet homme.
+Les yeux de l'archer s'écarquillèrent, remplis d'incrédulité. Il ne s'attendait pas à ce qu'une flèche tirée de toutes ses forces avec sa culture d'Exalté Doré soit si négligemment annulée par cet homme.
 
 Ses cheveux se hérissèrent et une terreur profonde envahit tout son corps. Il recula sans hésiter et cracha du sang pour utiliser la technique d'évasion sanguine. Se transformant en une ombre rouge, il disparut à des milliers de kilomètres de là.
 
@@ -102,13 +102,13 @@ Si Wang Lin avait voulu le poursuivre, l'individu n'aurait pu s'échapper, mais 
 
 « Je viens d'entrer dans la partie orientale et j'ai déjà attiré l'attention de la famille Li... Ils ont dû ressentir l'arc Li Guang en moi. »
 
-« Ils n'ont probablement fait que le pressentir sans connaître mon identité. Sinon, ils n'auraient pas envoyé deux Exalt Dorés pour me suivre. » Wang Lin n'ayant aucune animosité envers la famille Li, il ne tua personne.
+« Ils n'ont probablement fait que le pressentir sans connaître mon identité. Sinon, ils n'auraient pas envoyé deux Exalté Dorés pour me suivre. » Wang Lin n'ayant aucune animosité envers la famille Li, il ne tua personne.
 
 « Il n'y aura pas de prochaine fois! » murmura Wang Lin avant de se retourner.
 
 Cependant, ses paroles résonnèrent comme le tonnerre aux oreilles de l'ombre rouge en fuite. Cela lui fit cracher du sang à nouveau, son visage marqué par la terreur.
 
-« Lui... Quel est son niveau de culture?! Quel est son niveau de culture?! Cette affaire doit être immédiatement rapportée à l'ancêtre. Cet homme doit être un Exalt Empyréen, et non un ordinaire! Malheur, Li Shan et moi nous sommes séparés. Je suis venu surveiller cet individu tandis que Li Shan est allé capturer son compagnon... » L'expression de la silhouette rouge changea brusquement; il sentit que les actions de la famille Li allaient provoquer une catastrophe majeure.
+« Lui... Quel est son niveau de culture?! Quel est son niveau de culture?! Cette affaire doit être immédiatement rapportée à l'ancêtre. Cet homme doit être un Exalté Empyréen, et non un ordinaire! Malheur, Li Shan et moi nous sommes séparés. Je suis venu surveiller cet individu tandis que Li Shan est allé capturer son compagnon... » L'expression de la silhouette rouge changea brusquement; il sentit que les actions de la famille Li allaient provoquer une catastrophe majeure.
 
 Wang Lin, toujours coiffé de son manteau à capuche, continuait sa route. Il n'avait pas de destination précise, voulant simplement marcher tranquillement. En avançant, il aperçut des lumières et entendit de la musique provenant de devant lui.
 

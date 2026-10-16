@@ -82,7 +82,7 @@ La culture du vieux Xiang était puissante, il était donc manifestement rapide.
 
 En chemin, le vieux Xiang ne prononça pas un mot. Ce n'est que plusieurs jours plus tard, alors qu'ils approchaient de la planète Dong Lin, qu'il prit la parole: « Xu Mu, il n'est pas facile d'atteindre ton niveau de culture actuel. Tu dois t'assurer que tout cela en vaut la peine! De plus, je ne suis pas pleinement certain que mon ancêtre acceptera de t'aider, alors sois prêt à toute éventualité. »
 
-Wang Lin répondit calmement: « Junior comprend! »
+Wang Lin répondit calmement: « cadet comprend! »
 
 En entendant cela, le vieux Xiang se tut de nouveau.
 

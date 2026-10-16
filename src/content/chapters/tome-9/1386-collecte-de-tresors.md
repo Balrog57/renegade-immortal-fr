@@ -98,6 +98,6 @@ Après cela, il considéra les mille cultivateurs, choqués et terrifiés par se
 
 L'un des vieillards qui vit le jade trembla immédiatement, l'incrédulité brillant dans ses yeux. Il regarda de plus près avant que son visage ne devienne livide et qu'il ne s'exclame: « Le Jeton d'Empereur! »
 
-« Avant que je ne revienne, aucun d'entre vous ne pourra partir. Attendez tous ici! » La voix glaciale de Wang Lin résonna alors qu'il désignait le très agité Zhong Big Red non loin de là et ordonnait: « Suivez ses ordres! »
+« Avant que je ne revienne, aucun d'entre vous ne pourra partir. Attendez tous ici! » La voix glaciale de Wang Lin résonna alors qu'il désignait le très agité Zhong Grand Rouge non loin de là et ordonnait: « Suivez ses ordres! »
 
 Après avoir donné cet ordre, Wang Lin s'élança vers le ciel. Des ondulations apparurent, puis il fit un pas et disparut sans laisser de trace.

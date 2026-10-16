@@ -86,17 +86,17 @@ Une petite rivière coulait vers une destination inconnue, bordée de plusieurs 
 
 Wang Wei était assis au bord de l'eau, souriant à son amante, Hu Juan, qui se trouvait de l'autre côté. Cette dernière se comportait comme une enfant, les pieds dans la rivière, faisant parfois jaillir des éclaboussures.
 
-Une fois que Wang Lin et Zhou Yi eurent franchi la barrière, Wang Lin joignit les mains et dit respectueusement: « Le junior Wang Lin salue les deux Anciens. »
+Une fois que Wang Lin et Zhou Yi eurent franchi la barrière, Wang Lin joignit les mains et dit respectueusement: « Le cadet Wang Lin salue les deux Anciens. »
 
 Wang Wei regarda Wang Lin en souriant: « Dis-moi pourquoi tu m'as demandé de tendre une embuscade à Lie Yunzi; sinon, je ne te laisserai pas partir si facilement! »
 
-De l'autre côté de la rivière, Hu Juan sourit en replaçant ses cheveux et ajouta: « Wang Lin s'en soucie beaucoup. Il trouve indigne de son statut d'Aîné de tendre une embuscade à un junior. »
+De l'autre côté de la rivière, Hu Juan sourit en replaçant ses cheveux et ajouta: « Wang Lin s'en soucie beaucoup. Il trouve indigne de son statut d'Aîné de tendre une embuscade à un cadet. »
 
 Wang Lin sourit. Wang Wei et Hu Juan étaient devenus très proches de lui après les événements sur la Terre des Esprits Démoniaques; ils ne le considéraient plus comme un étranger. Wang Wei ne se souciait probablement pas tant que cela de l'embuscade faite à Lie Yunzi.
 
 Puisqu'on l'interrogeait, Wang Lin expliqua brièvement la situation, et Wang Wei n'en tint plus compte après avoir entendu les raisons.
 
-« Lors de mon séjour sur la Terre des Esprits Démoniaques, le junior a entendu les dernières paroles de l'Empereur Céleste Qing Lin: le Temple du Royaume Céleste de la Pluie, le cristal d'âme originelle et le corps de Qing Shuang. Le junior en possède deux, mais quant au Temple du Royaume Céleste de la Pluie... » Wang Lin marqua une pause et regarda Wang Wei.
+« Lors de mon séjour sur la Terre des Esprits Démoniaques, le cadet a entendu les dernières paroles de l'Empereur Céleste Qing Lin: le Temple du Royaume Céleste de la Pluie, le cristal d'âme originelle et le corps de Qing Shuang. Le cadet en possède deux, mais quant au Temple du Royaume Céleste de la Pluie... » Wang Lin marqua une pause et regarda Wang Wei.
 
 L'expression de Wang Wei devint sérieuse et il hocha la tête. « Au fil des années, j'y ai réfléchi, et il y avait bel et bien un temple! C'est là que Maître est devenu l'Empereur Céleste. Je t'en avais déjà parlé auparavant, alors ta venue ici signifie que... » Wang Wei fixa Wang Lin du regard.
 

@@ -32,11 +32,11 @@ Cette voix semblait faible, mais dès son apparition, elle affecta les âmes ori
 
 Si le niveau de culture d'une personne n'était pas assez élevé, son visage pâlirait et son âme originelle en serait blessée dans cette confusion.
 
-Seul Liu Yingjie resta impassible, bien qu'un regard de surprise brille dans ses yeux. Il se retourna et joignit respectueusement les mains: « Salutations, Senior Zhao. »
+Seul Liu Yingjie resta impassible, bien qu'un regard de surprise brille dans ses yeux. Il se retourna et joignit respectueusement les mains: « Salutations, Aîné Zhao. »
 
 L'espace derrière Liu Yingjie se tordit dans un écho d'ondulations tandis qu'une silhouette en sortait progressivement. C'était un homme d'âge moyen dont les traits les plus notables étaient un nez crochu, des lèvres fines et des yeux sombres. Tout en lui exhalait la malveillance.
 
-L'expression de Lu Yuncong changea et, après un long moment, il dit: « Salutations, Senior Zhao de la Secte de la Recherche Montagnarde de rang 7. » Les paroles de Lu Yuncong servaient d'avertissement à Lu Yanfei et aux autres en révélant l'identité de cet homme.
+L'expression de Lu Yuncong changea et, après un long moment, il dit: « Salutations, Aîné Zhao de la Secte de la Recherche Montagnarde de rang 7. » Les paroles de Lu Yuncong servaient d'avertissement à Lu Yanfei et aux autres en révélant l'identité de cet homme.
 
 Le visage de Lu Yanfei afficha un instant d'amertume alors qu'elle, ainsi que les autres cultivateurs de la Secte Originelle, saluaient respectueusement cet individu.
 
@@ -48,11 +48,11 @@ L'homme d'âge moyen nommé Zhao se posta aux côtés de Liu Yingjie et hocha l�
 
 « Puisque cet homme a affirmé que cette personne peut vous tuer comme on écrase une fourmi, alors vous devriez accepter ce défi. Je souhaite également voir si ce mystérieux Liu est réel ou s'il ne fait qu'étaler de vaines paroles », dit lentement l'homme d'âge moyen d'une voix aussi féminine que d'ordinaire.
 
-Liu Yingjie esquissa un sourire et acquiesça: « Puisqu'il en est ainsi, je brûle d'envie de voir la puissance de ce mystérieux Liu. Cependant, si cet homme n'apparaît pas ou s'il n'est pas aussi fort que ce qu'affirme le Compagnon Cultivateur Lu, que devrons-nous faire? Senior Zhao, nous vous prions de nous guider. »
+Liu Yingjie esquissa un sourire et acquiesça: « Puisqu'il en est ainsi, je brûle d'envie de voir la puissance de ce mystérieux Liu. Cependant, si cet homme n'apparaît pas ou s'il n'est pas aussi fort que ce qu'affirme le Compagnon Cultivateur Lu, que devrons-nous faire? Aîné Zhao, nous vous prions de nous guider. »
 
 L'homme d'âge moyen nommé Zhao regarda Lu Yuncong et dit d'un ton sombre: « Si tel est le cas, je serai naturellement le témoin. Ce n'est pas une mince affaire; comment peut-on proférer de tels mots en l'air? »
 
-L'expression de Lu Yuncong resta sombre et il garda le silence un long moment. Bien que la Secte de la Recherche Montagnarde ne fût pas la plus puissante des sectes de rang 7, Senior Zhao était un Ancien extérieur ayant de bonnes relations avec la Secte de l'Âme Silencieuse. S'il s'en mêlait, il pourrait faire grand bruit autour de cette affaire.
+L'expression de Lu Yuncong resta sombre et il garda le silence un long moment. Bien que la Secte de la Recherche Montagnarde ne fût pas la plus puissante des sectes de rang 7, Aîné Zhao était un Ancien extérieur ayant de bonnes relations avec la Secte de l'Âme Silencieuse. S'il s'en mêlait, il pourrait faire grand bruit autour de cette affaire.
 
 Lu Yanfei se mordit la lèvre inférieure en voyant que Lu Yuncong se trouvait dans une position embarrassante. Un instant plus tard, elle dit doucement: « Cette affaire n'a rien à voir avec le Compagnon Cultivateur Lu. C'est un différend qui concerne notre Secte Originelle. Si... »
 
@@ -64,7 +64,7 @@ Lu Yanfei sentit son corps trembler et un rugissement résonna dans son âme ori
 
 Un silence immédiat tomba sur les environs. Les membres de la Secte Originelle étaient furieux, mais aucun n'osait dire un mot. Ils ne purent que ravaler cette humiliation, laissant l'amertume envahir leurs corps.
 
-Après une longue réflexion, Lu Yuncong regarda Zhao Long et dit: « Si le Frère Liu ne vient pas ou s'il ne peut pas tuer Liu Yingjie comme on écrase une fourmi, je donnerai naturellement des explications à Senior Zhao! »
+Après une longue réflexion, Lu Yuncong regarda Zhao Long et dit: « Si le Frère Liu ne vient pas ou s'il ne peut pas tuer Liu Yingjie comme on écrase une fourmi, je donnerai naturellement des explications à l'Aîné Zhao! »
 
 Zhao Long afficha un sourire sinistre et laissa échapper un rire rauque avant de se détourner. À ses côtés, Liu Yingjie lança un regard d'excuse à Lu Yanfei, mais il ne daigna même pas regarder Lu Yuncong alors qu'il partait avec Zhao Long.
 

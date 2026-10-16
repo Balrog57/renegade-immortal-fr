@@ -20,7 +20,7 @@ Wang Hao afficha une expression de colère et reprit: « C'est uniquement parce 
 
 Wang Lin hocha la tête et demanda: « Quel est le rapport avec ton emprunt de talismanes? »
 
-Wang Hao marmonna: « Il y a bien sûr un lien. Tu n'interagis pas beaucoup avec les autres, mais un mois avant la compétition, tous les disciples intérieurs organisent un petit marché d'échange. Là-bas, chacun expose ses trésors pour se préparer au combat final. Certains seniors qui y ont participé m'ont dit que lors de cet échange, tout peut être utilisé: épées volantes, trésors magiques, pilules, et bien plus encore. »
+Wang Hao marmonna: « Il y a bien sûr un lien. Tu n'interagis pas beaucoup avec les autres, mais un mois avant la compétition, tous les disciples intérieurs organisent un petit marché d'échange. Là-bas, chacun expose ses trésors pour se préparer au combat final. Certains aînés qui y ont participé m'ont dit que lors de cet échange, tout peut être utilisé: épées volantes, trésors magiques, pilules, et bien plus encore. »
 
 En entendant cela, le cœur de Wang Lin se mit à battre la chamade. Les épées volantes ou les trésors magiques ne l'intéressaient guère, mais les incantations pour les stades ultérieurs de la Condensation de Qi étaient cruciales pour lui. Pensant qu'il pourrait peut-être les obtenir lors de cet échange, il réfléchit un instant et demanda: « Les disciples intérieurs se font-ils autant confiance pour organiser de tels échanges? »
 

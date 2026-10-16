@@ -116,6 +116,6 @@ Toutefois, la femme remarqua immédiatement que dès que cette confusion apparai
 
 Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil homme et le jeune chauve, car il les connaissait.
 
-À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
+À ce moment-là, un cadet de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
 La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Je suis Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »

@@ -10,7 +10,7 @@ slug: raffinement-pourpre
 
 Wang Lin resta assis devant la vallée, le regard glacial, et cracha le Drapeau des Âmes d'un Milliard. Alors que l'étendard de trente-trois mètres flottait dans les airs, des hurlements fantomatiques s'en échappèrent.
 
-Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte de la Raffination des Âmes. Puisque tous les habitants de la vallée pratiquaient le sortilège de raffinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
+Bien que le Drapeau des Âmes d'un Milliard ne contienne plus un milliard d'âmes, il demeurait le trésor emblématique de la Secte de la Affinement des Âmes. Puisque tous les habitants de la vallée pratiquaient le sortilège de raffinement des âmes, dès qu'ils aperçurent le drapeau, ils ressentirent une irrésistible envie de le vénérer.
 
 Wang Lin saisit le drapeau et, d'un revers de main, libéra les âmes primaires. Les six âmes primaires restantes, dont le Qilin, apparurent immédiatement pour encercler la zone de cinq kilomètres de large.
 

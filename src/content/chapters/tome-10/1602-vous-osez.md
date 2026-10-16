@@ -104,9 +104,9 @@ Pourtant, malgré les départs, le nombre de visiteurs ne cessait de croître.
 
 « Le karma est le karma. Il n'y a pas besoin de le comprendre, il ne peut que s'expérimenter. Il n'y a rien à expliquer. Si vous le comprenez, vous le comprenez. Si vous ne le comprenez pas, vous ne le comprendrez pas. Je pourrais rester ici dix ans à l'expliquer et vous ne comprendriez toujours rien! » Wang Lin leva les yeux après avoir vidé sa coupe et jeta la cruche sur le côté.
 
-« Big Fortune, apporte encore du vin! »
+« Grande Fortune, apporte encore du vin! »
 
-Loin d'être contrarié, Big Fortune se sentit fier. Il sortit promptement une nouvelle cruche et la tendit à Wang Lin.
+Loin d'être contrarié, Grande Fortune se sentit fier. Il sortit promptement une nouvelle cruche et la tendit à Wang Lin.
 
 « Je veux demander ceci à l'Érudit Wang: vous avez dit que si l'on étend sa pensée à l'infini pour inclure le monde lui-même, on n'a plus besoin de craindre les Immortels et qu'on peut les voir comme des fourmis. Alors, pouvez-vous le faire? » Le locuteur était un vieil homme à l'air sombre. Il fixait Wang Lin depuis la foule, sa voix rauque résonnant dans l'air.
 

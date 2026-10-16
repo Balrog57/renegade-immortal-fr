@@ -36,11 +36,11 @@ Wang Lin hésita. Il portait trop de secrets et, s'il rejoignait la Secte Xuan D
 
 À cet instant, les yeux de Pu Nanzi s'illuminèrent en fixant Wang Lin. Il lança soudainement: « Wang Lin, toi, tu restes! »
 
-Wang Lin fut stupéfait et répondit respectueusement: « Senior Pu Nanzi, pourquoi souhaitez-vous que ce junior reste? »
+Wang Lin fut stupéfait et répondit respectueusement: « Aîné Pu Nanzi, pourquoi souhaitez-vous que ce cadet reste? »
 
 Pu Nanzi leva la tête et trancha: « Si je te dis de rester, tu restes. Pourquoi tant de questions?! »
 
-Liu Wenju hésita un moment avant de dire soudainement: « Senior Pu Nanzi, ce Wang Lin est le disciple principal de ma Secte Heng Yue. Je vous demande donc de ne pas lui rendre la tâche trop difficile et de le laisser partir avec nous. » Il avait entendu parler de Wang Lin et l'avait observé; il n'était vraiment pas disposé à abandonner ce futur disciple de l'Établissement des Fondations.
+Liu Wenju hésita un moment avant de dire soudainement: « Aîné Pu Nanzi, ce Wang Lin est le disciple principal de ma Secte Heng Yue. Je vous demande donc de ne pas lui rendre la tâche trop difficile et de le laisser partir avec nous. » Il avait entendu parler de Wang Lin et l'avait observé; il n'était vraiment pas disposé à abandonner ce futur disciple de l'Établissement des Fondations.
 
 Pu Nanzi grogna et dit à Wang Lin: « La Secte Heng Yue n'existe plus que de nom. Vas-tu les suivre alors qu'ils errent à la dérive dans le monde? Si tu rejoins ma Secte Xuan Dao, ton avenir sera bien plus radieux. Décide par toi-même. Tu ne voudrais pas que des rumeurs se propagent, n'est-ce pas? Des rumeurs disant que ma Secte Xuan Dao non seulement a volé la montagne, mais aussi ses disciples. »
 

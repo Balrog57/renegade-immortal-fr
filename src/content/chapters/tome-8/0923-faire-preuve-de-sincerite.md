@@ -32,7 +32,7 @@ C'est alors que le rugissement du Serpent Observateur de la Lune résonna à tra
 
 Cette scène fit changer les expressions de ceux qui se trouvaient du côté de l'Alliance!
 
-Le Saint Démon du Fiend Noir et le Saint Démon du Dragon des Nuages, qui combattaient le Dieu de Sang et sa troupe, eurent le visage assombri et reculèrent rapidement.
+Le Saint Démon Noir et le Saint Démon du Dragon des Nuages, qui combattaient le Dieu de Sang et sa troupe, eurent le visage assombri et reculèrent rapidement.
 
 Ji Xiantian laissa échapper un froid renâclant et ses yeux brillèrent. Au lieu de battre en retraite, il chargea droit sur Maître Yan Leizi, piégé dans la glace. Une fois à portée, il pressa ses mains sur la glace sans l'ombre d'une hésitation.
 
@@ -58,7 +58,7 @@ La tempête générée par les fragments en rotation rugit, et le visage de Ji X
 
 Des rugissements éclatèrent. Pendant un instant, les deux camps cessèrent leurs attaques et reculèrent, fixant la scène devant eux avec stupeur.
 
-Le Saint Démon du Fiend Noir ne jeta qu'un regard au Serpent Observateur de la Lune avant de sentir son cuir chevelu s'engourdir; il esquissa un sourire amer et se retira prestement. Quant au Saint Démon du Dragon des Nuages, il afficha une expression d'incrédulité.
+Le Saint Démon Noir ne jeta qu'un regard au Serpent Observateur de la Lune avant de sentir son cuir chevelu s'engourdir; il esquissa un sourire amer et se retira prestement. Quant au Saint Démon du Dragon des Nuages, il afficha une expression d'incrédulité.
 
 Ji Xiantian fut stupéfait. Son énergie originelle déferla tandis qu'il tentait de s'échapper de ce siège. Cependant, comment Maître Yan Leizi pouvait-il le laisser faire? Les bras de Maître Yan Leizi se tendirent et il injecta davantage d'énergie originelle dans les flammes pour maintenir Ji Xiantian prisonnier.
 

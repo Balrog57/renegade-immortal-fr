@@ -26,7 +26,7 @@ Après avoir entendu les paroles de Wang Lin, il prit une profonde inspiration e
 
 L'esprit de Lie Yunzi fut gravement blessé par cette nouvelle, et du sang s'écoula du coin de sa bouche. Il s'inclina devant Wang Lin, puis lorsqu'il releva la tête, ses yeux étaient injectés de sang.
 
-« Senior, je vous en prie, dites-moi comment l'Ancêtre est tombé! » Bien que son ton fût calme, ses paroles étaient empreintes d'une froideur monstrueuse. Il était fermement convaincu que la mort de l'Ancêtre n'avait rien de naturel. Même si leur famille Zhan ne pouvait obtenir vengeance, ils devaient au moins savoir qui était l'ennemi!
+« Aîné, je vous en prie, dites-moi comment l'Ancêtre est tombé! » Bien que son ton fût calme, ses paroles étaient empreintes d'une froideur monstrueuse. Il était fermement convaincu que la mort de l'Ancêtre n'avait rien de naturel. Même si leur famille Zhan ne pouvait obtenir vengeance, ils devaient au moins savoir qui était l'ennemi!
 
 Tant qu'ils sauraient qui avait tué l'Ancêtre, ils auraient la détermination de transmettre ce désir de vengeance à travers les générations!
 
@@ -56,7 +56,7 @@ Wang Lin remarqua ce changement. Il regarda le Maître Yan Leizi et demanda: « 
 
 Le Maître Yan Leizi joignit les mains devant le Maître Lu Fu et Wang Lin et dit: « Autrefois, j'étais poursuivi par l'Alliance et je me suis enfui vers Luotian... » Tout en parlant, il fixa Wang Lin.
 
-« Il y a de nombreuses raisons liées à mes affaires privées, je n'en dirai donc pas davantage. À l'époque, j'étais encore un Ancien de l'Alliance et j'ai aperçu par inadvertance un monde étrange au siège de l'Alliance... Senior Wang Lin, je me demande si le Royaume aux sept couleurs dont vous parlez abrite les Éveillés... ou les Perdus... »
+« Il y a de nombreuses raisons liées à mes affaires privées, je n'en dirai donc pas davantage. À l'époque, j'étais encore un Ancien de l'Alliance et j'ai aperçu par inadvertance un monde étrange au siège de l'Alliance... Aîné Wang Lin, je me demande si le Royaume aux sept couleurs dont vous parlez abrite les Éveillés... ou les Perdus... »
 
 L'expression de Wang Lin se fit solennelle et il hocha la tête.
 
@@ -72,13 +72,13 @@ Le banquet fut bref, mais le choc ressenti par le Maître Lu Fu et ses compagnon
 
 Wang Lin replaça Zhou Jin et Ling Dong dans le Fourneau Impérial. Il s'apprêtait à partir pour régler la dernière affaire de Luotian quand le Maître Yan Leizi hésita, avant de serrer les dents et de joindre les mains devant lui.
 
-« Senior, je connais très bien l'Alliance et j'ai une profonde rancune envers le Maître Zhong Xuan. Si vous vous rendez à l'Alliance, puis-je vous accompagner? »
+« Aîné, je connais très bien l'Alliance et j'ai une profonde rancune envers le Maître Zhong Xuan. Si vous vous rendez à l'Alliance, puis-je vous accompagner? »
 
 Wang Lin réfléchit un instant et répondit: « C'est possible, mais mes mouvements sont incertains. Bien que je m'y rende, je ne connais pas encore le moment précis... »
 
-« Aucun problème, je peux m'y rendre et attendre là-bas. Une fois que vous serez à l'Alliance, il vous suffira de déployer votre Sens Divin pour me trouver. J'espère que le Senior pourra tenir compte de nos relations passées et ne pas me rejeter. » Le Maître Yan Leizi regardait Wang Lin avec sincérité.
+« Aucun problème, je peux m'y rendre et attendre là-bas. Une fois que vous serez à l'Alliance, il vous suffira de déployer votre Sens Divin pour me trouver. J'espère que l'Aîné pourra tenir compte de nos relations passées et ne pas me rejeter. » Le Maître Yan Leizi regardait Wang Lin avec sincérité.
 
-Le Maître Yan Leizi n'avait presque jamais supplié quiconque de sa vie, et prononcer de telles paroles à celui qui était son junior autrefois rendait son expression tourmentée.
+Le Maître Yan Leizi n'avait presque jamais supplié quiconque de sa vie, et prononcer de telles paroles à celui qui était son cadet autrefois rendait son expression tourmentée.
 
 Wang Lin observa le Maître Yan Leizi. Il se souvenait distinctement que dans le Royaume Céleste du Tonnerre, ce dernier avait combattu un Qing Shui blessé. Le Maître Yan Leizi avait également emprunté la bête de tonnerre de Wang Lin et utilisé une méthode puissante pour retrouver le Royaume Céleste du Tonnerre.
 

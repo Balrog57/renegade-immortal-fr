@@ -74,7 +74,7 @@ Wang Lin soutint son regard avec déférence: « C'est précisément ce que le d
 
 Le vieil homme agita ses manches et déclara: « Tu arrives trop tard; la période d'admission des disciples extérieurs est depuis longtemps révolue. Rentre chez toi et reviens dans quelques années. » Sur ces mots, il s'apprêta à franchir l'entrée de la secte.
 
-Wang Lin ricana intérieurement mais garda un air respectueux. Simulant le désespoir, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce junior a trouvée il y a quelques années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
+Wang Lin ricana intérieurement mais garda un air respectueux. Simulant le désespoir, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce cadet a trouvée il y a quelques années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
 
 Wang Lin comprit aisément que cet homme n'était qu'au début du stade de la Formation du Noyau. Pour un cultivateur de ce niveau, l'épée qu'il présentait était une pièce de grande valeur.
 

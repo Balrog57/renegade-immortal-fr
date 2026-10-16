@@ -70,7 +70,7 @@ Xuan Luo ferma les yeux. Lorsque son Sens Divin se déploya, son corps trembla. 
 
 « Les vestiges de cette bataille ne se dissiperont pas avant des centaines d'années... » murmura Song Tian pour lui-même. Il ressentait également la puissance choquante et les fluctuations des lois issues du combat qui s'était déroulé ici.
 
-Il y avait aussi l'énigmatique Grand Empereur Ancient Ji. Il portait un masque cachant ses traits, on ne pouvait que deviner qu'il était un homme. Il se tenait là, le regard chargé de stupéfaction.
+Il y avait aussi l'énigmatique Grand Empereur Ji Antique. Il portait un masque cachant ses traits, on ne pouvait que deviner qu'il était un homme. Il se tenait là, le regard chargé de stupéfaction.
 
 « Qui affrontait le Grand Empereur Gu Dao...? Mais peu importe qui c'était, le Grand Empereur Gu Dao devait avoir gagné! »
 

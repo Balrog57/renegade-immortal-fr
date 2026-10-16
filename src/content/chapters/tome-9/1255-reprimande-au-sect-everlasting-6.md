@@ -108,7 +108,7 @@ Le regard de Wang Lin était serein alors qu'il scrutait le ciel et déclara len
 
 « Du Lin, de la Vallée du Pin Pourpre de rang 7, combattra le Compagnon Cultivateur Lu! »
 
-« Je suis Yin Yue, de la Secte Heaven Yin de rang 7. Veuillez me donner vos conseils! »
+« Je suis Yin Yue, de la Secte Ciel Yin de rang 7. Veuillez me donner vos conseils! »
 
 Une voix d'homme et une voix de femme s'élevèrent simultanément. L'une venait du sud et l'autre de l'est, convergeant vers l'arène. Cependant, en se voyant, elles ne purent s'empêcher de marquer un temps d'arrêt.
 

@@ -62,7 +62,7 @@ Wang Lin réfléchit un instant. Il essuya la table de la main et les mots dispa
 
 Il observa l'obscurité au-delà de la fenêtre et son regard s'illumina.
 
-L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âme. Il était probablement le maître de White Snow.
+L'homme d'âge mûr devait être au moins au stade de la Transformation de l'Âme. Il était probablement le maître de Neige Blanche.
 
 Le message laissé par cet homme était limpide. S'il perdait la bataille contre le Papillon Rouge, la seule issue qui lui resterait serait la mort.
 

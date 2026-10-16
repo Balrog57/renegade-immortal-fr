@@ -34,7 +34,7 @@ Le cœur de Qing Yi fut envahi par une douce émotion. Elle suivit le regard de 
 
 Une lueur étrange passa dans les yeux de l'homme, qui secoua la tête: « Je sens que Père me regarde en ce moment même... »
 
-Dans le manoir des Wang, à la cité de Vast Water, Wang Lin détacha son regard de l'horizon. Il était assis dans la cour sous un arbre, bercé par le vent d'automne et écoutant le bruissement des feuilles. Parfois, une ou deux feuilles tombaient et dérivaient devant ses yeux.
+Dans le manoir des Wang, à la cité des Vastes Eaux, Wang Lin détacha son regard de l'horizon. Il était assis dans la cour sous un arbre, bercé par le vent d'automne et écoutant le bruissement des feuilles. Parfois, une ou deux feuilles tombaient et dérivaient devant ses yeux.
 
 Les feuilles qui tombent finissent toujours par retourner aux racines de l'arbre. Elles étaient comme des enfants qui partent lorsqu'ils sont fatigués, mais qui reviennent toujours vers ceux qu'ils aiment.
 
@@ -104,9 +104,9 @@ Wang Ping soupira et répondit: « Allons voir... »
 
 Une paire de sergents les suivit alors que Wang Ping et Qing Yi marchaient vers le mont Quilian. Wang Ping observa les environs; cet environnement inconnu lui procurait pourtant un étrange sentiment de familiarité.
 
-La fumée au loin devint plus distincte, puis le village de Fallen Moon apparut à sa vue.
+La fumée au loin devint plus distincte, puis le village de Lune Déchue apparut à sa vue.
 
-Dès qu'ils approchèrent, peut-être en raison de la présence des soldats, des aboiements féroces s'élevèrent du village. En ces temps chaotiques, les villageois de Fallen Moon étaient extrêmement vigilants. À l'entente des chiens, ils sortirent immédiatement avec leurs outils agricoles et leurs torches. Ils virent, non loin de là, des soldats en armure complète accompagnés d'un homme et d'une femme en vêtements civils.
+Dès qu'ils approchèrent, peut-être en raison de la présence des soldats, des aboiements féroces s'élevèrent du village. En ces temps chaotiques, les villageois de Lune Déchue étaient extrêmement vigilants. À l'entente des chiens, ils sortirent immédiatement avec leurs outils agricoles et leurs torches. Ils virent, non loin de là, des soldats en armure complète accompagnés d'un homme et d'une femme en vêtements civils.
 
 Face aux regards hostiles des villageois, Wang Ping ne dit mot. Il les fixa du regard, mais finit par ne pouvoir en reconnaître un seul.
 

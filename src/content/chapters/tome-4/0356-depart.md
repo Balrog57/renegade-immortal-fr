@@ -8,13 +8,13 @@ slug: depart
 ---
 L'expression du corps originel demeurait glaciale lorsqu'il demanda lentement: « D'où venez-vous tous les deux? »
 
-Le corps de la femme au voile blanc trembla tandis qu'elle fixait le vieil homme dont le sort restait incertain. Accablée par le désespoir, elle n'osa plus mentir: « Junior revient tout juste du Cimetière des Immortels. »
+Le corps de la femme au voile blanc trembla tandis qu'elle fixait le vieil homme dont le sort restait incertain. Accablée par le désespoir, elle n'osa plus mentir: « Ce cadet revient tout juste du Cimetière des Immortels. »
 
 Le corps originel tourna son regard vers elle et dit calmement: « Vous étiez sept lorsque vous êtes entrés dans le Cimetière des Immortels. Pourquoi n'êtes-vous que deux à en être ressortis? »
 
 La femme au voile blanc frémit de nouveau. Ce jeune homme l'impressionnait; plus elle le contemplait, plus ce jeune homme aux cheveux roux lui semblait familier, bien qu'elle fût certaine de ne l'avoir jamais rencontré auparavant.
 
-Elle dit d'un ton amer: « Junior a ses propres difficultés... »
+Elle dit d'un ton amer: « Ce cadet a ses propres difficultés... »
 
 « Suivez-moi! » Le corps originel la dévisagea, puis s'élança vers la forêt en contrebas.
 
@@ -34,9 +34,9 @@ Le corps originel ne lui accorda qu'un seul coup d'œil avant que son visage ne 
 
 Il leva la main, prêt à achever le vieil homme.
 
-À cet instant, la femme au voile blanc se précipita pour s'interposer entre lui et le vieillard. Elle tomba à genoux et s'exclama: « Senior doit avoir connu l'un de ces cinq individus. Junior reconnaît ses torts. Si vous devez tuer quelqu'un, tuez-moi, je vous en prie. Ne lui en voulez pas à lui... »
+À cet instant, la femme au voile blanc se précipita pour s'interposer entre lui et le vieillard. Elle tomba à genoux et s'exclama: « Aîné doit avoir connu l'un de ces cinq individus. Ce cadet reconnaît ses torts. Si vous devez tuer quelqu'un, tuez-moi, je vous en prie. Ne lui en voulez pas à lui... »
 
-Le vieil homme lutta pour se redresser. Il fixa le corps originel et déclara: « Si vous devez me tuer, faites-le. Je suis las de vivre comme la marionnette d'autrui. Autant mourir par la main d'un Senior. Cependant, ma dame s'est toujours opposée à cela; je vous prie de l'épargner. »
+Le vieil homme lutta pour se redresser. Il fixa le corps originel et déclara: « Si vous devez me tuer, faites-le. Je suis las de vivre comme la marionnette d'autrui. Autant mourir par la main d'un Aîné. Cependant, ma dame s'est toujours opposée à cela; je vous prie de l'épargner. »
 
 Les yeux du corps originel s'illuminèrent. Il les observa tous les deux avant de les saisir pour les emmener de force au Cimetière des Immortels.
 
@@ -68,7 +68,7 @@ En apercevant Wang Lin, ils affichèrent des expressions complexes. La femme au 
 
 Wang Lin les fixa froidement et apparut devant eux. D'un geste de la main, il fit voler deux gouttes de sang depuis leurs fronts jusqu'à sa paume.
 
-La femme au voile blanc hésita un instant et murmura: « Senior... je... »
+La femme au voile blanc hésita un instant et murmura: « Aîné... je... »
 
 Wang Lin ne prit même pas la peine de leur répondre. Une fois les deux gouttes récupérées, il rangea la boussole stellaire.
 

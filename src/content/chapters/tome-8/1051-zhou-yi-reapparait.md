@@ -12,7 +12,7 @@ Derrière lui, la femme arborait un regard doux, mais une pointe de surprise y �
 
 En reconnaissant le Couple de Culture du Nuage Céleste, l'expression de Wang Lin resta calme, mais son cœur se mit en garde. Sa culture n'était pas encore restaurée et il se trouvait dans son état le plus vulnérable au sein de la Grotte de l'Empereur Céleste. La moindre imprudence pourrait lui coûter la vie.
 
-Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mains et dit: « Salutations, Seniors du Nuage Céleste. » En parlant, il regarda derrière eux et ne vit pas Zhou Yi, ce qui lui fit l'effet d'un froid au cœur.
+Après avoir calmement reculé près d'une restriction, Wang Lin joignit les mains et dit: « Salutations, Aînés du Nuage Céleste. » En parlant, il regarda derrière eux et ne vit pas Zhou Yi, ce qui lui fit l'effet d'un froid au cœur.
 
 « La maîtrise des restrictions de ce petit frère est véritablement mystérieuse. Il semble que je t'aie réellement sous-estimé », rit Wang Wei. Il ne connaissait guère Wang Lin, et Zhou Yi n'avait jamais rien dit à son sujet. Du point de vue de Wang Wei, si Wang Lin avait pu franchir les restrictions pour arriver ici, sa maîtrise devait déjà avoir atteint un sommet.
 
@@ -20,7 +20,7 @@ Quant aux blessures de Wang Lin, Wang Wei les avait naturellement décelées.
 
 Le Couple de Culture du Nuage Céleste était une énigme pour Wang Lin. Lors de l'ouverture de la Grotte de l'Empereur Céleste, tout le monde aurait dû être aspiré dans le monde de la bouteille. Pourtant, même après l'effondrement de ce monde, ils n'étaient pas apparus, et les voilà qui surgissaient ici.
 
-Wang Lin n'était pas disposé à trop s'entretenir avec ces deux-là, et en l'absence de Zhou Yi, il nourrissait ses propres spéculations. De plus, étant blessé, il recula et dit: « Si vous, chers Seniors, n'avez rien d'autre à me dire, alors ce junior prend congé. »
+Wang Lin n'était pas disposé à trop s'entretenir avec ces deux-là, et en l'absence de Zhou Yi, il nourrissait ses propres spéculations. De plus, étant blessé, il recula et dit: « Si vous, chers Aînés, n'avez rien d'autre à me dire, alors ce cadet prend congé. »
 
 Sur ce, Wang Lin se retira immédiatement. Il s'apprêtait à contourner la zone pour rejoindre l'endroit où les pilules étaient entreposées.
 

@@ -18,9 +18,9 @@ En conséquence, il s'y rendit avec des attentes élevées mêlées à un sentim
 
 Ces érudits n'étaient que des mortels; comment pourraient-ils répondre à une telle question? Avec le niveau de culture de cet homme d'âge moyen, oubliez le pays de Zhao, il était considéré comme extrêmement puissant sur toute la planète. Transformation de l'Âme, Transformation de l'Âme, il n'était qu'à un pas de l'Ascendant!
 
-L'homme d'âge moyen retroussa ses manches et le vent noir rugit. D'innombrables fantômes hurlaient à l'intérieur, entourant Wang Lin et Big Fortune. Cela fit que la zone se sépara du monde, devenant floue et indistincte.
+L'homme d'âge moyen retroussa ses manches et le vent noir rugit. D'innombrables fantômes hurlaient à l'intérieur, entourant Wang Lin et Grande Fortune. Cela fit que la zone se sépara du monde, devenant floue et indistincte.
 
-Big Fortune dormait toujours. Ses ronflements résonnaient, semblant totalement déplacés. Wang Lin se retourna et regarda l'homme qui venait de sortir de ce monde ténébreux.
+Grande Fortune dormait toujours. Ses ronflements résonnaient, semblant totalement déplacés. Wang Lin se retourna et regarda l'homme qui venait de sortir de ce monde ténébreux.
 
 Cette personne était un immortel, Wang Lin le comprenait, mais il n'avait aucune crainte. Il pouvait voir que bien que l'homme d'âge moyen paraisse puissant, il était en fait extrêmement faible.
 
@@ -74,7 +74,7 @@ Wang Lin songea à ses rêves. Il se souvint de la voix qui résonnait dans son 
 
 L'homme d'âge moyen, sur le point de partir, s'arrêta et se tourna vers Wang Lin. Après un long moment, il hocha la tête et désigna Wang Lin. Le vent noir convergea de toutes les directions autour de lui. Puis, l'homme d'âge moyen s'éleva dans le ciel et disparut avec Wang Lin.
 
-Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Big Fortune ronflait toujours. Il marmonna un peu avant de replonger dans son sommeil.
+Dans le comté, personne ne remarqua le sort utilisé à l'extérieur de la zone d'examen. Aucun mortel ne put voir le vent noir qui était apparu. Sous l'arbre, Grande Fortune ronflait toujours. Il marmonna un peu avant de replonger dans son sommeil.
 
 Sur la planète Suzaku, dans le ciel surplombant la Secte du Affinement de l'Âme, Wang Lin apparut avec une expression pâle, mais il restait extrêmement calme. Le vent noir l'entourait, lui permettant de garder une assise stable.
 

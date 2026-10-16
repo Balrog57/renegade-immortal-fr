@@ -118,7 +118,7 @@ Cependant, au moment même où Wang Lin utilisait ces deux sorts et que son corp
 
 Il était impossible de dire si cette silhouette était un homme ou une femme, jeune ou vieille. Son corps était enveloppé d'une brume vague qui dérivait vers l'extérieur.
 
-« Ce vieil homme est l'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Void Gate! » Une voix erratique résonna alors qu'il levait la main pour frapper violemment dans le dos de Wang Lin, juste après sa reformation.
+« Ce vieil homme est l'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Porte du Vide! » Une voix erratique résonna alors qu'il levait la main pour frapper violemment dans le dos de Wang Lin, juste après sa reformation.
 
 Le corps de Wang Lin trembla violemment et il cracha une gorgée de sang doré. Il fut projeté vers la planète Suzaku et s'y écrasa avec fracas.
 

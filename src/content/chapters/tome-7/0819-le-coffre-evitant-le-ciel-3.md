@@ -42,7 +42,7 @@ Et cela ne s'arrêta pas là. Lorsque sa culture atteignit le rang 9 d'Immortel 
 
 Sa culture avait transcendé le niveau d'Immortel Céleste pour atteindre celui de Roi Céleste!
 
-« Rang 3 Roi Céleste! Maître Xiaoyaozi, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
+« Rang 3 Roi Céleste! Maître Xiaoyaozi, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce cadet et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
 
 Wang Lin s'arrêta net, l'expression extrêmement sombre. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
 
@@ -50,7 +50,7 @@ Il vit Long Daozi jaillir du cercueil en riant. Une aura puissante se dégageait
 
 C'était comme si une tempête céleste faisait rage dans la zone et que cet homme en était le centre!
 
-« Junior, meurs! » Alors que Long Daozi riait de déraison, il fit un pas en avant. Pourtant, à cet instant précis, un changement radical survint.
+« cadet, meurs! » Alors que Long Daozi riait de déraison, il fit un pas en avant. Pourtant, à cet instant précis, un changement radical survint.
 
 Son pied se désintégra silencieusement au moment où il le leva. Puis, ses jambes et ses bras volèrent en éclats.
 

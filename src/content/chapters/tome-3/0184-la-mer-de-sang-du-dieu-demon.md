@@ -34,11 +34,11 @@ Wang Lin rétracta son Sens Divin pour éviter toute attaque par ce biais et env
 
 « Cède le trésor de l'héritage... »
 
-L'Empereur Antique fut stupéfait. Même lorsqu'il était venu ici il y a mille ans, il n'avait jamais vu ces créatures communiquer par Sens Divin. Mais il réagit rapidement et répondit: « Se... Seniors, je ne sais pas de quel trésor de l'héritage vous parlez. »
+L'Empereur Antique fut stupéfait. Même lorsqu'il était venu ici il y a mille ans, il n'avait jamais vu ces créatures communiquer par Sens Divin. Mais il réagit rapidement et répondit: « Se... Aînés, je ne sais pas de quel trésor de l'héritage vous parlez. »
 
-Après avoir parlé, une amertume lui serra le cœur. Depuis qu'il était devenu un expert en Formation de l'Âme, il n'avait plus eu à appeler personne « Senior ». En prononçant ce mot, il ressentit un profond dégoût de soi.
+Après avoir parlé, une amertume lui serra le cœur. Depuis qu'il était devenu un expert en Formation de l'Âme, il n'avait plus eu à appeler personne « Aîné ». En prononçant ce mot, il ressentit un profond dégoût de soi.
 
-Soudainement, il ajouta: « Senior, si vous recherchez le trésor de l'héritage de la Terre des Anciens Dieux, alors vous vous trompez de personne. Il est en possession d'un certain Seigneur Démon des Six Désirs. »
+Soudainement, il ajouta: « Aîné, si vous recherchez le trésor de l'héritage de la Terre des Anciens Dieux, alors vous vous trompez de personne. Il est en possession d'un certain Seigneur Démon des Six Désirs. »
 
 Wang Lin réfléchit un instant tout en sentant la forte fluctuation d'âme approcher. Il utilisa les âmes errantes sous son contrôle pour évaluer précisément la distance qui les séparait. Tout en discutant avec l'Empereur Antique, il dirigeait les âmes errantes pour lui barrer la route.
 

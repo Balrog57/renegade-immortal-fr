@@ -1,12 +1,12 @@
 ---
 n: 1916
-title: "En attendant l'arrivée de l'Exalt Empyréen!"
+title: "En attendant l'arrivée de l'Exalté Empyréen!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1916 - Waiting for the Exalté Empyréen to Arrive!"
 slug: en-attendant-larrivee-de-lexalt-empyreen
 ---
-Chapitre 1916 - En attendant l'arrivée de l'Exalt Empyréen!
+Chapitre 1916 - En attendant l'arrivée de l'Exalté Empyréen!
 
 Après avoir dévoré le Maître de la Secte Dao Démon, Wang Lin ferma les yeux et des bruits de craquements résonnèrent dans son corps. Il effaça le Sens Divin de l'âme originelle et l'injecta dans ses Veines Magiques. Lorsqu'il aurait du temps libre, il pourrait utiliser cette âme originelle pour augmenter le nombre de Veines Magiques dont il disposait.
 
@@ -104,18 +104,18 @@ Wang Lin était impitoyable. Lorsqu'il décidait d'agir, il l'était avec une cr
 
 Ceux qui reviendraient les premiers seraient ceux ayant un statut élevé; ils utiliseraient probablement des formations de transfert pour rentrer à tout prix. Mais Wang Lin attendait quelqu'un d'autre, en plus de ces gens!
 
-« L'ancêtre de la Secte Dao Démon doit être en route. C'est un Exalt Empyréen, et pour anéantir le Dao de la Secte Dao Démon, il doit mourir! Et même si je ne le cherche pas, il viendra me trouver de lui-même! »
+« L'ancêtre de la Secte Dao Démon doit être en route. C'est un Exalté Empyréen, et pour anéantir le Dao de la Secte Dao Démon, il doit mourir! Et même si je ne le cherche pas, il viendra me trouver de lui-même! »
 
-« Grand Exalt Empyréen... Je me demande comment je me comparerai à un Grand Exalt Empyréen après avoir équipé l'armure de l'âme! » Wang Lin s'assit sur la pierre verte et regarda au loin.
+« Grand Exalté Empyréen... Je me demande comment je me comparerai à un Grand Exalté Empyréen après avoir équipé l'armure de l'âme! » Wang Lin s'assit sur la pierre verte et regarda au loin.
 
 « Après avoir réglé la question de la Secte Dao Démon, j'aurai deux choix. Aller à la Secte Dong Lin et entrer dans le Bassin Dong Lin pour voir si cela aidera mes autres essences à condenser des corps d'essence véritables... »
 
 « Ou me rendre au Continent Central pour voir de quel genre de tanière de dragon et de grotte de tigre il s'agit. Je verrai si ce Liang Daofei se souvient ne serait-ce que de moi, et ce que son frère aîné, l'Empereur Céleste, lui réserve... »
 
-« Cependant, le Maître a dit un jour qu'il existe cinq Grands Exalt Empyréens, et l'Empereur Céleste Liang Daozhen est l'un d'eux! Si je m'y rends, je pourrais courir de grands dangers... » Wang Lin ferma les yeux et médita dans l'obscurité.
+« Cependant, le Maître a dit un jour qu'il existe cinq Grands Exalté Empyréens, et l'Empereur Céleste Liang Daozhen est l'un d'eux! Si je m'y rends, je pourrais courir de grands dangers... » Wang Lin ferma les yeux et médita dans l'obscurité.
 
 À cinq continents du Continent du Démon Vert, un rayon de lumière fendait le ciel. À l'intérieur de cette lumière se trouvait un vieil homme aux cheveux roux à l'expression calme, mais une colère sourde brûlait dans ses yeux!
 
 En un éclair, le monde trembla et il disparut dans une formation de transfert. À grand prix, il enchaînait les transferts pour traverser les continents!
 
-Il était l'ancêtre de la Secte Dao Démon, désormais sous les ordres du Grand Exalt Empyréen Dao Yi!
+Il était l'ancêtre de la Secte Dao Démon, désormais sous les ordres du Grand Exalté Empyréen Dao Yi!

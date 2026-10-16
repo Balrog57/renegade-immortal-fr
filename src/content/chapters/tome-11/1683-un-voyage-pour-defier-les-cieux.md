@@ -38,7 +38,7 @@ Les ondulations causées par leur arrivée furent immédiatement remarquées par
 
 À l'entrée du Royaume Céleste du Tonnerre, le coup de tonnerre qui gardait la porte avait disparu depuis longtemps, emporté par Wang Lin des années auparavant. De retour en ces lieux familiers, il n'hésita pas à pénétrer dans le Royaume Céleste du Tonnerre.
 
-L'effondrement du Royaume Céleste du Tonnerre avait été trop dévastateur. De nombreux continents avaient été saisis par Maître Flammespark et, après tous les événements survenus, il ne restait presque plus rien.
+L'effondrement du Royaume Céleste du Tonnerre avait été trop dévastateur. De nombreux continents avaient été saisis par Maître Yan Leizi et, après tous les événements survenus, il ne restait presque plus rien.
 
 Le Royaume Céleste du Tonnerre n'était plus qu'un champ de ruines plongé dans la désolation. L'endroit était extrêmement instable, comme si tout pouvait s'effondrer à grande échelle à tout instant.
 

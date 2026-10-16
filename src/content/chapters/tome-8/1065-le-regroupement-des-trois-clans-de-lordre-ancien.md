@@ -54,9 +54,9 @@ Au moment où le ciel s'effondra, une pluie de magma infini s'abattit sur eux. L
 
 Le démon ancestral jura, mais sans ralentir, il chargea lui aussi vers les hauteurs.
 
-Master Void avait cultivé pendant de nombreuses années. Bien que son esprit eût été troublé par l'arrivée précoce du premier Fléau Céleste, il était d'une clarté sans précédent à cet instant. Lorsque le ciel s'effondra, il cracha du sang et utilisa l'Évasion Sanguine pour se précipiter dans le magma. Il fit fi de la température extrême et des blessures infligées par la bataille entre les trois membres de l'Ordre Ancien. En s'engouffrant dans la lave, il n'eut même pas le temps de songer à en vouloir à Wang Lin; sa seule priorité était de fuir cet endroit.
+Maître du Vide avait cultivé pendant de nombreuses années. Bien que son esprit eût été troublé par l'arrivée précoce du premier Fléau Céleste, il était d'une clarté sans précédent à cet instant. Lorsque le ciel s'effondra, il cracha du sang et utilisa l'Évasion Sanguine pour se précipiter dans le magma. Il fit fi de la température extrême et des blessures infligées par la bataille entre les trois membres de l'Ordre Ancien. En s'engouffrant dans la lave, il n'eut même pas le temps de songer à en vouloir à Wang Lin; sa seule priorité était de fuir cet endroit.
 
-En chemin, ses blessures s'aggravèrent et son niveau de culture chuta du stade de Briseur du Nirvana au sommet du Purificateur du Nirvana. Un sentiment d'inquiétude oppressant envahit son esprit, faisant ressembler l'autrefois puissant Master Void à un dieu errant.
+En chemin, ses blessures s'aggravèrent et son niveau de culture chuta du stade de Briseur du Nirvana au sommet du Purificateur du Nirvana. Un sentiment d'inquiétude oppressant envahit son esprit, faisant ressembler l'autrefois puissant Maître du Vide à un dieu errant.
 
 Lorsque Wang Lin atteignit le septième étage, une lave infinie s'abattit sur lui. Son corps reprit rapidement sa forme ordinaire. Le visage pâle, il cracha du sang tandis que des douleurs fulgurantes le déchiraient. Il ne put s'empêcher de ralentir légèrement. Bien qu'il fût sous sa forme de Dieu Ancestral, il restait gravement blessé par l'énergie de la lame malgré la présence de la Lance Tueuse de Dieux.
 
@@ -64,19 +64,19 @@ Cependant, s'il ne l'avait pas fait, il aurait été impossible pour Wang Wei ou
 
 À cet instant précis, Hu Juan saisit Wang Lin et Wang Wei pour s'élancer vers le haut. Elle dévora également la seule pilule verte dont elle disposait. Une fois ses forces retrouvées, elle progressa rapidement à travers le magma avec les deux hommes.
 
-Le magma continuait de pénétrer le corps de Wang Lin, ébranlant son esprit. Il envoya rapidement un message: « Seniors, allez-y d'abord! J'ai trouvé un esprit de feu ici auparavant, je pourrais peut-être l'utiliser pour ralentir le démon ancestral! »
+Le magma continuait de pénétrer le corps de Wang Lin, ébranlant son esprit. Il envoya rapidement un message: « Aînés, allez-y d'abord! J'ai trouvé un esprit de feu ici auparavant, je pourrais peut-être l'utiliser pour ralentir le démon ancestral! »
 
-Hu Juan hésita. Si cela avait été le passé, peu importait l'admiration qu'elle et Wang Wei portaient à Wang Lin, elle n'aurait pas hésité. Mais Wang Lin venait de la sauver, elle et son mari, et cela était primordial pour elle. Elle ignorait même que Wang Lin avait sauvé Wang Wei de l'attaque sournoise de Master Void. Une telle bonté devait être récompensée.
+Hu Juan hésita. Si cela avait été le passé, peu importait l'admiration qu'elle et Wang Wei portaient à Wang Lin, elle n'aurait pas hésité. Mais Wang Lin venait de la sauver, elle et son mari, et cela était primordial pour elle. Elle ignorait même que Wang Lin avait sauvé Wang Wei de l'attaque sournoise du Maître du Vide. Une telle bonté devait être récompensée.
 
 « Toi... » Hu Juan regarda Wang Wei, qui l'avait aidée à bloquer l'énergie de la lame avant d'être gravement blessé par le rugissement du démon ancestral. Un conflit intérieur se lisait dans ses yeux. En cet instant, Wang Wei avait besoin de soins urgents et elle ne pouvait pas attendre.
 
-« Senior peut être rassuré! » lança Wang Lin en quittant Hu Juan pour charger dans les profondeurs du magma au septième étage. Hu Juan serra les dents, prit Wang Wei avec elle et disparut.
+« Aîné peut être rassuré! » lança Wang Lin en quittant Hu Juan pour charger dans les profondeurs du magma au septième étage. Hu Juan serra les dents, prit Wang Wei avec elle et disparut.
 
 Une fois seule, les yeux de Wang Lin s'illuminèrent. Il était déterminé à ce que Wang Wei et Hu Juan lui soient redevables. Tant qu'ils seraient reconnaissants, même si Qing Lin ne se réveillait jamais, ils l'aideraient pour l'affaire de Situ Nan. De plus, leur traitement envers Zhou Yi serait radicalement différent grâce à sa bienveillance.
 
 À l'intérieur du magma, Wang Lin absorba l'énergie sans le moindre ménagement. La lave sembla couler à contre-courant alors que l'énergie d'origine du feu pénétrait son corps avec frénésie. L'énergie parcourut ses méridiens, permettant à son corps gravement blessé de se rétablir partiellement.
 
-Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Lou et Master Void chargeaient dans la lave, poursuivis par le Démon Ancestral Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
+Wang Lin ne faisait preuve d'aucune prudence comme lors de ses absorptions précédentes; il était d'une imprudence extrême. L'Oiseau Vermillon sur son corps apparut autour de lui, provoquant une réaction de l'énergie d'origine du feu qui s'engouffra vers lui. Tandis que cette énergie se précipitait vers Wang Lin, des quantités massives de magma tombèrent du septième étage vers le huitième. L'Ancien Démon Bei Lou et Maître du Vide chargeaient dans la lave, poursuivis par le Démon Ancestral Ta Jia. À cet instant, tout cela, combiné à l'agitation frénétique de Wang Lin, fit s'effondrer toute la masse de magma à l'intérieur du volcan.
 
 C'est alors qu'un rugissement assourdissant, qui fit trembler le magma même, retentit des profondeurs du volcan. Une tête de dragon gigantesque émergea de la lave. À ce moment-là, tout le magma que Wang Lin n'avait pas absorbé ou qui était tombé au huitième étage commença à bouger comme s'il possédait une intelligence propre, chargeant tous vers le dragon.
 

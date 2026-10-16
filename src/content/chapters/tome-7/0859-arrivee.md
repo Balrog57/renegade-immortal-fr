@@ -62,9 +62,9 @@ Zhan Konglie éprouvait une amertume similaire. Il était aussi perspicace que S
 
 « Même à présent, cet homme doit encore être au stade Corporel Yang. Je me suis trompé sur lui! » Zhan Konglie laissa échapper un soupir, empreint de déception.
 
-Zhan Yun était assise sur une pierre bleue derrière Zhan Konglie. En voyant son cousin froncer les sourcils, elle soupira. Elle comprenait parfaitement que son cousin pensait au Senior...
+Zhan Yun était assise sur une pierre bleue derrière Zhan Konglie. En voyant son cousin froncer les sourcils, elle soupira. Elle comprenait parfaitement que son cousin pensait à l'Aîné...
 
-Durant cette période, le nom du Senior s'était illustré dans tout le Système Stellaire de Luotian. Chaque fois qu'elle se remémorait les événements du Royaume Céleste du Tonnerre, elle en était saisie de stupeur. Si ce n'était grâce à l'initiative du Senior, elle serait déjà morte.
+Durant cette période, le nom de l'Aîné s'était illustré dans tout le Système Stellaire de Luotian. Chaque fois qu'elle se remémorait les événements du Royaume Céleste du Tonnerre, elle en était saisie de stupeur. Si ce n'était grâce à l'initiative de l'Aîné, elle serait déjà morte.
 
 Sur une autre pierre rouge siégeait Tang Yanfeng. En observant la scène, il laissa échapper un renâclement froid mais garda le silence.
 

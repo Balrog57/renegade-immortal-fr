@@ -72,13 +72,13 @@ Ce groupe imposant était presque exclusivement composé de femmes vêtues de ro
 
 Plusieurs centaines de femmes entouraient ce lit alors qu'elles progressaient vers la planète Esprit d'Eau.
 
-Un homme d'âge moyen, vêtu de bleu, se tenait devant Situ Nan. Beau mais au regard malveillant, il flattait son maître: « Senior Situ, je vous garantis que ces deux cultivatrices sont de qualité supérieure. Zhao Xue est une beauté sans égale, et celle nommée Ling Er possède une racine spirituelle aquatique, ce qui fera d'elle un excellent réceptacle de culture! »
+Un homme d'âge moyen, vêtu de bleu, se tenait devant Situ Nan. Beau mais au regard malveillant, il flattait son maître: « Aîné Situ, je vous garantis que ces deux cultivatrices sont de qualité supérieure. Zhao Xue est une beauté sans égale, et celle nommée Ling Er possède une racine spirituelle aquatique, ce qui fera d'elle un excellent réceptacle de culture! »
 
 Situ Nan, qui aimait être servi par des femmes, rit et hocha la tête. « Très bien, si tes paroles sont vraies, je ne serai pas avare de ta récompense... Pilule ou sort céleste, à toi de choisir! »
 
 Les yeux de l'homme s'illuminèrent de joie. Il exprima ses remerciements avec une foule de compliments qui firent rire Situ Nan.
 
-L'homme d'âge moyen ricana intérieurement: « Zhao Xue, peu importe ton arrogance, je veux voir si tu obéiras ou non en présence de Senior Situ! Et Ling Er ne pourra pas non plus s'échapper! »
+L'homme d'âge moyen ricana intérieurement: « Zhao Xue, peu importe ton arrogance, je veux voir si tu obéiras ou non en présence d'Aîné Situ! Et Ling Er ne pourra pas non plus s'échapper! »
 
 Situ Nan observa l'homme. Bien qu'il paraisse joyeux, il devinait exactement ses pensées. Avec sa ruse habituelle, il comprit immédiatement qu'une rancune liait cet homme aux deux femmes de la planète Esprit d'Eau.
 

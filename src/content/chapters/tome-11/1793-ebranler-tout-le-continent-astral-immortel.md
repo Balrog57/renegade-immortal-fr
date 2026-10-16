@@ -120,11 +120,11 @@ Car Wang Lin avait laissé des sceaux mystérieux sur leurs clans et leurs monde
 
 La silhouette de Wang Lin apparut et il s'inclina devant Xuan Luo.
 
-« Ce junior a terminé tous les préparatifs et a amené quelques personnes supplémentaires. J'espère que Senior voudra bien lancer le sort pour les réincarner! » Wang Lin agita sa manche et huit personnes apparurent. Leurs visages étaient sombres et leurs cœurs remplis de réticence, mais ils n'osaient lutter.
+« Ce cadet a terminé tous les préparatifs et a amené quelques personnes supplémentaires. J'espère qu'Aîné voudra bien lancer le sort pour les réincarner! » Wang Lin agita sa manche et huit personnes apparurent. Leurs visages étaient sombres et leurs cœurs remplis de réticence, mais ils n'osaient lutter.
 
 « Une fois votre réincarnation accomplie, il n'y aura plus aucun grief entre nous. J'espère que vous savez ce qui est bon pour vous! » Les paroles de Wang Lin étaient calmes alors qu'il agitait sa main droite. Un vent puissant poussa les huit individus dans la porte obscure.
 
-« Senior, ce junior s'en va. Nous nous reverrons sur le Continent Astral Immortel! » Wang Lin jeta un dernier regard vers les étoiles et se retourna brusquement. Il se changea en un rayon de lumière qui fonça vers la porte avant d'y disparaître.
+« Aîné, ce cadet s'en va. Nous nous reverrons sur le Continent Astral Immortel! » Wang Lin jeta un dernier regard vers les étoiles et se retourna brusquement. Il se changea en un rayon de lumière qui fonça vers la porte avant d'y disparaître.
 
 Xuan Luo se leva et fixa la porte avec une expression grave.
 

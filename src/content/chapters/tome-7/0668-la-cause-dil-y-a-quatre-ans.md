@@ -52,7 +52,7 @@ Sun Xi soupira secrètement et cessa de tester Wang Lin. Il commença à lui pr�
 
 C'était le jour de l'enchère au Pavillon des Trésors, et une foule de cultivateurs s'était rassemblée à l'extérieur. Plus d'une dizaine d'employés assuraient l'accueil et guidaient les gens selon le niveau indiqué sur leurs jetons.
 
-Dès que Sun Xi et Wang Lin approchèrent, Sun Qiming, qui attendait devant le pavillon, se précipita vers eux. Le respect transparaissait dans ses yeux alors qu'il s'inclinait: « La troisième génération de Sun Qiming salue l'Ancêtre et le Senior Xu. »
+Dès que Sun Xi et Wang Lin approchèrent, Sun Qiming, qui attendait devant le pavillon, se précipita vers eux. Le respect transparaissait dans ses yeux alors qu'il s'inclinait: « La troisième génération de Sun Qiming salue l'Ancêtre et l'Aîné Xu. »
 
 Sun Xi afficha sa majesté devant la foule. Sans dire un mot, il se contenta d'un signe de tête.
 

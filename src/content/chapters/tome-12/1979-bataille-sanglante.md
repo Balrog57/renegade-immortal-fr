@@ -32,19 +32,19 @@ Les six personnes dont les doigts avaient été broyés reculèrent précipitamm
 
 Au même moment, une Lame Yin apparut dans la brume et trancha les trois silhouettes qui s'enfuyaient dans le ciel. Leurs corps tremblèrent et furent coupés en deux, puis leurs âmes originelles furent absorbées par le brouillard en contrebas.
 
-Le vent et la neige hurlaient, mêlés à un son de sanglots. Le brouillard dans lequel Wang Lin s'était transformé balaya les neuf personnes entourant l'Exalt Empyréen Hai Zi.
+Le vent et la neige hurlaient, mêlés à un son de sanglots. Le brouillard dans lequel Wang Lin s'était transformé balaya les neuf personnes entourant l'Exalté Empyréen Hai Zi.
 
-Ayant été témoins de cette scène terrifiante, les neuf abandonnèrent l'idée d'encercler l'Exalt Empyréen Hai Zi. Ils reculèrent comme des fous, mais leur vitesse n'était rien comparée au brouillard de Wang Lin qui les rattrapa instantanément. Le brouillard se répandit et ne laissa derrière lui que neuf squelettes desséchés!
+Ayant été témoins de cette scène terrifiante, les neuf abandonnèrent l'idée d'encercler l'Exalté Empyréen Hai Zi. Ils reculèrent comme des fous, mais leur vitesse n'était rien comparée au brouillard de Wang Lin qui les rattrapa instantanément. Le brouillard se répandit et ne laissa derrière lui que neuf squelettes desséchés!
 
-Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillard de Wang Lin se reforma aux côtés de l'Exalt Empyréen Hai Zi. Son visage était pâle et elle cracha une bouffée de sang qui offrit un spectacle saisissant sur la neige blanche.
+Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillard de Wang Lin se reforma aux côtés de l'Exalté Empyréen Hai Zi. Son visage était pâle et elle cracha une bouffée de sang qui offrit un spectacle saisissant sur la neige blanche.
 
 « Allons-y! » Wang Lin fit un pas en avant et se précipita vers le bout de la longue rue.
 
-L'Exalt Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Cette bataille était une épreuve qu'elle aurait du mal à affronter. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de culture d'Exalt Empyréen!
+L'Exalté Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Cette bataille était une épreuve qu'elle aurait du mal à affronter. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de culture d'Exalté Empyréen!
 
-L'Exalt Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart des Exalt Empyréens. Cependant, elle n'avait jamais vu ces trente individus auparavant — ils étaient tous des inconnus!
+L'Exalté Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart des Exalté Empyréens. Cependant, elle n'avait jamais vu ces trente individus auparavant — ils étaient tous des inconnus!
 
-« Ils ne sont pas des cultivateurs de niveau Exalt Empyréen, leur culture a été augmentée de force! Cela ne durera pas! » La raison pour laquelle Wang Lin en était si sûr était qu'il avait dévoré les âmes originelles de plus de trente d'entre eux. Il voulait les utiliser pour former une autre Veine Magique, mais il constata que leurs âmes n'étaient pas pures et qu'il faudrait du temps pour les raffiner.
+« Ils ne sont pas des cultivateurs de niveau Exalté Empyréen, leur culture a été augmentée de force! Cela ne durera pas! » La raison pour laquelle Wang Lin en était si sûr était qu'il avait dévoré les âmes originelles de plus de trente d'entre eux. Il voulait les utiliser pour former une autre Veine Magique, mais il constata que leurs âmes n'étaient pas pures et qu'il faudrait du temps pour les raffiner.
 
 Cependant, même après les avoir toutes rassemblées, cela ne suffirait qu'à former une seule Veine Magique. En absorbant leurs âmes originelles, Wang Lin put déterminer qu'il ne leur restait qu'une heure à vivre!
 
@@ -60,7 +60,7 @@ Il avait rapidement fouillé les souvenirs des âmes originelles, mais tout éta
 
 « Par conséquent, il ne sert à rien de compter sur le Grand Empyréen Jiu Di. Si j'avais conçu ce piège, je ferais deux préparatifs. Le premier serait de bloquer toutes les auras provenant de cet endroit, et le second serait de trouver quelqu'un pour entraver le Grand Empyréen Jiu Di!
 
-« Bien sûr, tout cela suppose que ce ne soit pas le Grand Empyréen Jiu Di lui-même qui l'ait fait, mais mon intuition me dit qu'il ne s'agit pas de lui! Celui qui a orchestré cela attend peut-être le coup de grâce pour m'achever! » Les pensées de Wang Lin défilaient à toute allure tandis qu'il fonçait vers la fin de la rue avec l'Exalt Empyréen Hai Zi.
+« Bien sûr, tout cela suppose que ce ne soit pas le Grand Empyréen Jiu Di lui-même qui l'ait fait, mais mon intuition me dit qu'il ne s'agit pas de lui! Celui qui a orchestré cela attend peut-être le coup de grâce pour m'achever! » Les pensées de Wang Lin défilaient à toute allure tandis qu'il fonçait vers la fin de la rue avec l'Exalté Empyréen Hai Zi.
 
 Mais à cet instant précis, trois silhouettes apparurent dans le blizzard. Ces trois êtres flottaient dans les airs et fixaient Wang Lin. Ils se transformèrent en trois rayons de lumière rouge et convergèrent vers lui.
 
@@ -74,11 +74,11 @@ Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces de
 
 « Dans la cité ancestrale, la seule personne capable de faire cela est l'Empereur Céleste! »
 
-Le regard de Wang Lin se glaça. Il leva le pied et sa main gauche repoussa l'Exalt Empyréen Hai Zi.
+Le regard de Wang Lin se glaça. Il leva le pied et sa main gauche repoussa l'Exalté Empyréen Hai Zi.
 
 « Hai Zi, recule! Ils ne te toucheront pas. Ne participe pas à ce combat! »
 
-« Wang Lin... » L'Exalt Empyréen Hai Zi parut anxieuse et voulut protester, mais la main gauche de Wang Lin la projeta à plusieurs centaines de pieds de distance. Elle regarda alors Wang Lin charger les cinq adversaires tel un papillon de nuit fonçant vers les flammes!
+« Wang Lin... » L'Exalté Empyréen Hai Zi parut anxieuse et voulut protester, mais la main gauche de Wang Lin la projeta à plusieurs centaines de pieds de distance. Elle regarda alors Wang Lin charger les cinq adversaires tel un papillon de nuit fonçant vers les flammes!
 
 Ces cinq personnes, trois en blanc et deux en noir, se changèrent en cinq éclats de lumière et se précipitèrent sur Wang Lin!
 

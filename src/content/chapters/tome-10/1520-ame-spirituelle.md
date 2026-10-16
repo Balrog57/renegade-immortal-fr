@@ -30,7 +30,7 @@ Bien que la bataille contre le Royaume Extérieur ait soudainement éclaté, Ma�
 
 Une arrogance et une majesté indicibles émanaient de son rire. Il contenait l'aura impavide d'un cultivateur du troisième pas!
 
-Il y avait aussi Maître South Cloud. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
+Il y avait aussi Maître Nuage du Sud. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
 
 Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan de l'Hirondelle de Feu, mais de l'Éminent Nan Zhao, qui se trouvait au stade de l'Âme Spirituelle!
 

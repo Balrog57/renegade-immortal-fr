@@ -30,9 +30,9 @@ De plus, comme il n'avait pas absorbé de Flammes Joss, ses essences ne posséda
 
 Si la huitième essence apparaissait et parvenait à sa complétion, il pourrait atteindre le sommet de Vide Spirituel!
 
-Avec neuf essences, il pourrait franchir le stade Vide Arcanique! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Exalt de la Tribulation du Vide!
+Avec neuf essences, il pourrait franchir le stade Vide Arcanique! Alors, les neuf fusionneraient pour n'en former qu'une seule. S'il avait la sagesse et la fortune nécessaires pour fusionner toutes ses essences et les transformer en une puissance appelée la Puissance du Vide sur le Continent Astral Immortel, il pourrait affronter la calamité du troisième stade. Une fois cette épreuve survécue, il deviendrait un Exalté de la Tribulation du Vide!
 
-La différence entre un Exalt de la Tribulation du Vide et un Vide Arcanique résidait dans une calamité de vie ou de mort. Le succès signifiait la vie, l'échec signifiait la mort. À travers les âges, il n'y avait eu aucune exception; c'était un gouffre que chacun devait affronter!
+La différence entre un Exalté de la Tribulation du Vide et un Vide Arcanique résidait dans une calamité de vie ou de mort. Le succès signifiait la vie, l'échec signifiait la mort. À travers les âges, il n'y avait eu aucune exception; c'était un gouffre que chacun devait affronter!
 
 Cette calamité était appelée la Tribulation Arcane. Elle se divisait en neuf étapes et, après avoir survécu à ces neuf épreuves, on pouvait réussir à franchir le stade de la Tribulation du Vide.
 
@@ -40,15 +40,15 @@ Même un être aussi puissant que le Souverain n'avait traversé que trois Tribu
 
 Le Maître du Dao Rêve Bleu n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
 
-Au cours des dizaines de milliers d'années, de nombreux talents étaient nés dans les Royaumes Intérieur et Extérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalt!
+Au cours des dizaines de milliers d'années, de nombreux talents étaient nés dans les Royaumes Intérieur et Extérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalté!
 
 Il s'agissait du Vieux Fantôme Zhan! À l'époque, il avait échoué à sa cinquième Tribulation Arcane et aurait dû mourir; le Souverain le savait. Cependant, ce que le Souverain ignorait, c'est que le Vieux Fantôme Zhan avait obtenu une immense fortune céleste!
 
 Cette fortune céleste avait provoqué une explosion de sa culture, lui permettant d'endurer les épreuves jusqu'à la huitième Tribulation Arcane, avant de s'arrêter devant la neuvième.
 
-Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral Immortel étaient considérés comme des Grands Exalts! C'était un niveau de culture au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux!
+Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral Immortel étaient considérés comme des Grands Exaltés! C'était un niveau de culture au sommet du troisième stade, et si l'on parvenait à faire ce pas légendaire, on piétinerait les cieux!
 
-Le Souverain Céleste aux Sept Couleurs était un Exalt de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
+Le Souverain Céleste aux Sept Couleurs était un Exalté de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
 
 Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte des Sept Daos!
 

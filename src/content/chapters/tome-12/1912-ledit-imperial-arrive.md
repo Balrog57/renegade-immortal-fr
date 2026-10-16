@@ -34,13 +34,13 @@ Ses yeux étaient emplis de désespoir. Alors que la troisième empreinte de pau
 
 En un éclair, il s'élança vers le ciel, en direction de la troisième empreinte. Son âme commença à brûler et son âme d'origine dégagea une aura destructrice. En cet instant de vie ou de mort, il décida de consumer sa propre existence pour obtenir un sursaut de puissance!
 
-Son niveau de culture grimpa follement depuis celui de l'Exalt de Tribulation du Vide à mesure qu'il brûlait sa force vitale. Alors que la troisième empreinte se refermait, son niveau de culture bondit jusqu'à celui d'un Exalt Doré!!
+Son niveau de culture grimpa follement depuis celui de l'Exalté de Tribulation du Vide à mesure qu'il brûlait sa force vitale. Alors que la troisième empreinte se refermait, son niveau de culture bondit jusqu'à celui d'un Exalté Doré!!
 
-Au moment précis où il devint un Exalt Doré, la troisième empreinte de paume le frappa dans un fracas de tonnerre. L'empreinte de foudre s'effondra, mais ce n'était que du tonnerre ordinaire, et non le tonnerre de destruction.
+Au moment précis où il devint un Exalté Doré, la troisième empreinte de paume le frappa dans un fracas de tonnerre. L'empreinte de foudre s'effondra, mais ce n'était que du tonnerre ordinaire, et non le tonnerre de destruction.
 
 Une fois la brume dissipée, l'homme à la robe rouge affichait un regard dément. Son corps n'était plus qu'un amas sanglant, mais il ne mourut pas. Il fixa Wang Lin, sachant qu'il ne lui restait que dix respirations à vivre. Après ces dix respirations, il mourrait, et Wang Lin n'aurait même pas besoin d'agir!
 
-Cependant, sa seule pensée était que la mort était le prix à payer pour obtenir dix respirations de puissance d'Exalt Doré afin de tuer Wang Lin, celui qui l'avait poussé dans cet état.
+Cependant, sa seule pensée était que la mort était le prix à payer pour obtenir dix respirations de puissance d'Exalté Doré afin de tuer Wang Lin, celui qui l'avait poussé dans cet état.
 
 Sans la moindre hésitation, il chargea vers Wang Lin!
 
@@ -54,13 +54,13 @@ Ce coup représentait 70 % de la puissance de Wang Lin. C'était une fusion de s
 
 Le coup semblait sans force, mais il fit changer les couleurs du monde et le fit trembler. Le vide entre eux se distordit et des ondulations résonnèrent. Le poing de Wang Lin sembla transcender le temps et l'espace pour s'abattre sur la poitrine de l'homme à la robe rouge.
 
-Le corps de l'Exalt Doré trembla. Il esquissa un sourire amer avant d'exploser!
+Le corps de l'Exalté Doré trembla. Il esquissa un sourire amer avant d'exploser!
 
-Il lui restait encore sept respirations de puissance d'Exalt Doré, mais il était inutile de les gaspiller!
+Il lui restait encore sept respirations de puissance d'Exalté Doré, mais il était inutile de les gaspiller!
 
 Au moment de son trépas, l'homme comprit clairement la force de Wang Lin. Il n'était pas son égal! Même en brûlant son âme et sa vie, il n'avait pas pu rivaliser avec lui!
 
-« Est-ce cela, un Exalt Doré... » Les yeux de Wang Lin étaient empreints d'intention de combat. Il n'avait utilisé que 70 % de sa puissance, mais il ressentait déjà la puissance colossale des Exalt Dorés.
+« Est-ce cela, un Exalté Doré... » Les yeux de Wang Lin étaient empreints d'intention de combat. Il n'avait utilisé que 70 % de sa puissance, mais il ressentait déjà la puissance colossale des Exalté Dorés.
 
 À la mort de l'homme à la robe rouge, les 30 000 cultivateurs et les dizaines de cultivateurs du troisième niveau tentèrent de fuir. Cependant, Wang Lin avait déjà scellé la Secte du Dao Démoniaque; aucune évasion n'était possible.
 
@@ -82,9 +82,9 @@ Ces lamentations atroces résonnaient dans le monde entier. Elles parvinrent aux
 
 Le visage du Maître de la Secte était déformé par la douleur. Ses yeux étaient injectés de sang, mais il continuait de s'endurer. Il... n'osait pas sortir!
 
-Il n'en avait pas le courage. Il avait vu Wang Lin tuer le vieil homme aux robes dorées et avait vu l'homme à la robe rouge sacrifier sa vie pour atteindre le rang d'Exalt Doré. Pourtant, ce qui le faisait trembler véritablement, c'était le coup de poing de Wang Lin!
+Il n'en avait pas le courage. Il avait vu Wang Lin tuer le vieil homme aux robes dorées et avait vu l'homme à la robe rouge sacrifier sa vie pour atteindre le rang d'Exalté Doré. Pourtant, ce qui le faisait trembler véritablement, c'était le coup de poing de Wang Lin!
 
-Ce coup si simple en apparence avait instantanément terrassé un Exalt Doré! Le Maître de la Secte avait diviné des milliers de fois pour savoir s'il pourrait survivre à une telle attaque!
+Ce coup si simple en apparence avait instantanément terrassé un Exalté Doré! Le Maître de la Secte avait diviné des milliers de fois pour savoir s'il pourrait survivre à une telle attaque!
 
 Après plus de mille tentatives de divination, il mourait dans 50 % des cas! Et cela ne représentait que 70 % de la puissance de Wang Lin. Si ce dernier utilisait sa pleine puissance... les conséquences étaient limpides!
 

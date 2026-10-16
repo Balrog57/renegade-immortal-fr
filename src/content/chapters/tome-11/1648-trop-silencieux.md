@@ -8,7 +8,7 @@ slug: trop-silencieux
 ---
 Alors que Wang Lin se tenait au sommet de la statue, son regard balaya le monde. Il vit les visages familiers parmi les rayons de lumière qui fonçaient vers lui. Il vit la détermination sur ces traits connus et sentit, dans leurs rugissements, leur volonté de sacrifier leur vie.
 
-Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Treize, son serviteur Da Tou, son frère Situ, son aîné South Cloud et bien d'autres encore. Les regards de ces milliers de cultivateurs convergeaient comme si un même sang bouillonnant les reliait.
+Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Treize, son serviteur Da Tou, son frère Situ, son aîné Nuage du Sud et bien d'autres encore. Les regards de ces milliers de cultivateurs convergeaient comme si un même sang bouillonnant les reliait.
 
 Ce sentiment de sang chaud ne disparaîtrait pas; au plus, il se stabiliserait avec le passage des années. Cependant, à l'instant de la crise, cette ferveur jaillissait de nouveau.
 
@@ -16,7 +16,7 @@ Ce sentiment de sang chaud ne disparaîtrait pas; au plus, il se stabiliserait a
 
 Au cœur de la lumière, le corps de Wang Lin se mua en un rayon de clarté qui, dans un hurlement puissant, s'élança vers l'espace.
 
-Derrière lui, Situ Nan, Maître South Cloud et les autres suivirent de près. Leurs propres hurlements fusionnèrent avec le sien. Puis, les milliers de cultivateurs utilisèrent divers sorts pour voler à sa suite!
+Derrière lui, Situ Nan, Maître Nuage du Sud et les autres suivirent de près. Leurs propres hurlements fusionnèrent avec le sien. Puis, les milliers de cultivateurs utilisèrent divers sorts pour voler à sa suite!
 
 C'était une scène spectaculaire; on aurait dit d'innombrables météores s'arrachant à la planète. Ils portaient en eux l'aura du défi aux cieux, la volonté dominante de briser le firmament et la fierté de ne jamais reculer.
 

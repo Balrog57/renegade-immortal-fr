@@ -116,7 +116,7 @@ Wang Lin se leva, les mains derrière le dos, et leva les yeux. Son regard perç
 
 Le groupe de Yun Yifeng n'était plus là. Apparemment, ils étaient restés trop longtemps et n'osaient plus défier l'endroit.
 
-Cela n'avait plus d'importance. Pour Wang Lin, Edge Cloud n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques!
+Cela n'avait plus d'importance. Pour Wang Lin, Bord-des-Nuages n'était plus qu'une fumée du passé. Ce qu'il devait affronter désormais, c'étaient les neuf Tribulations Arcaniques!
 
 « Si je peux traverser les neuf Tribulations Arcaniques d'un seul coup et atteindre la Tribulation du Vide, je détruirai l'intégralité de la Secte du Dao Démoniaque. Même les cultivateurs du stade avancé de la Tribulation du Vide seront anéantis pour rembourser ce siècle de fortune! » Une froideur glaciale émanait de ses yeux, empreints d'une puissante intention meurtrière.
 

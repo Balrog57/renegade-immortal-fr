@@ -8,17 +8,17 @@ slug: la-pointe-de-lepee
 ---
 Wang Lin regarda Li Yuan avec un sourire qui n'en était pas un. Son regard était semblable à une épée, perçant directement le cœur de Li Yuan.
 
-L'expression de Li Yuan ne trahissait aucune panique; au contraire, elle devint plus sereine encore. Sans l'ombre d'un malaise, il répondit respectueusement: « L'Aîné doit se demander pourquoi Junior n'est pas allé sur place pour briser lui-même les restrictions. »
+L'expression de Li Yuan ne trahissait aucune panique; au contraire, elle devint plus sereine encore. Sans l'ombre d'un malaise, il répondit respectueusement: « L'Aîné doit se demander pourquoi cadet n'est pas allé sur place pour briser lui-même les restrictions. »
 
 Wang Lin observa Li Yuan. L'intelligence de cet homme surpassait de loin celle de la femme et n'avait rien d'ordinaire. D'après ce qu'il avait entendu de leur part, cet homme avait été sauvé par la famille de la femme, mais le prix à payer avait été de livrer son âme de vie.
 
 Cependant, Wang Lin avait toujours eu le sentiment que leur conversation précédente avait été orchestrée par l'homme nommé Li Yuan, comme s'il tentait de suggérer quelque chose.
 
-L'expression de Li Yuan resta neutre, puis il afficha un air de sincérité et déclara: « Dans ma jeunesse, j'ai trouvé une carte antique dépeignant une zone interdite du Royaume Céleste du Tonnerre, datant d'avant son effondrement. Junior est confiant de pouvoir trouver cet endroit, pourvu qu'il existe encore. Quant aux restrictions qui s'y trouvent, Junior est sûr à 70 % de pouvoir les briser. »
+L'expression de Li Yuan resta neutre, puis il afficha un air de sincérité et déclara: « Dans ma jeunesse, j'ai trouvé une carte antique dépeignant une zone interdite du Royaume Céleste du Tonnerre, datant d'avant son effondrement. Ce cadet est confiant de pouvoir trouver cet endroit, pourvu qu'il existe encore. Quant aux restrictions qui s'y trouvent, ce cadet est sûr à 70 % de pouvoir les briser. »
 
 Le visage de Wang Lin ne changea pas et il garda le silence.
 
-« Si Junior ne se trompe pas, des outils d'origine se trouvent dans cette terre interdite. Ce sont des outils parfaitement préservés. Si les restrictions peuvent être levées, l'Aîné pourra s'approprier la moitié de ces outils! »
+« Si cadet ne se trompe pas, des outils d'origine se trouvent dans cette terre interdite. Ce sont des outils parfaitement préservés. Si les restrictions peuvent être levées, l'Aîné pourra s'approprier la moitié de ces outils! »
 
 La femme à côté de Li Yuan ouvrit la bouche pour parler, mais finit par choisir le silence.
 
@@ -32,7 +32,7 @@ L'expression de Li Yuan resta neutre, mais son cœur était empreint d'une vigil
 
 « De plus, je suis très intéressé par la méthode que vous avez utilisée pour dissimuler votre restriction », ajouta Wang Lin en posant son regard sur Li Yuan.
 
-Li Yuan réfléchit un instant avant de sortir un morceau de jade et d'y graver des marques pendant un long moment. Il le tendit ensuite à Wang Lin en disant: « Puisque l'Aîné est intéressé, Junior ne sera pas avare. »
+Li Yuan réfléchit un instant avant de sortir un morceau de jade et d'y graver des marques pendant un long moment. Il le tendit ensuite à Wang Lin en disant: « Puisque l'Aîné est intéressé, ce cadet ne sera pas avare. »
 
 Wang Lin saisit le jade. Après l'avoir scanné avec son Sens Divin, il fronça immédiatement les sourcils.
 

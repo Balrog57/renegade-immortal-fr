@@ -28,15 +28,15 @@ Les pupilles de Wang Lin se rétractèrent tandis que des centaines d'idées tra
 
 Le vieux cultivateur regarda Wang Lin avec un sourire qui n'en était pas un et demanda: « Qui est ton maître de secte? »
 
-L'expression de Wang Lin resta neutre alors qu'il répondait: « Si l'Aîné ne l'admet pas, considérez que le Junior s'est mépris. »
+L'expression de Wang Lin resta neutre alors qu'il répondait: « Si l'Aîné ne l'admet pas, considérez que le cadet s'est mépris. »
 
 Le vieux cultivateur rit et dit: « Tu es un petit gars intéressant. Pourquoi penses-tu que je suis le maître de la Secte Heng Yue? »
 
-Wang Lin répondit calmement: « Junior s'est rendu dans les Terres des Esprits Démoniaques et y a vu une peinture contenant l'image de l'Aîné. »
+Wang Lin répondit calmement: « cadet s'est rendu dans les Terres des Esprits Démoniaques et y a vu une peinture contenant l'image de l'Aîné. »
 
 Le vieux cultivateur réfléchit un instant avant de sourire. « Petit gars, on ne peut pas appeler n'importe qui "maître de secte". Le digne Céleste du Tonnerre du Système Stellaire Luotian, Xu Mu... Quand ai-je eu un tel disciple? »
 
-L'esprit de Wang Lin trembla, mais son expression demeura imperturbable. Il dit: « Junior s'est trompé de personne. »
+L'esprit de Wang Lin trembla, mais son expression demeura imperturbable. Il dit: « cadet s'est trompé de personne. »
 
 Le vieux cultivateur afficha une lueur d'admiration, très satisfait de la réaction et de la réponse de Wang Lin. Ses yeux s'illuminèrent: « Nous pourrons discuter de cette méprise plus tard. Sais-tu que tu as failli commettre une erreur terrible? Ce 18e niveau n'est pas un endroit où l'on peut entrer, surtout pas en compagnie d'un membre du Clan des Immortels Délaissés. S'il obtenait la source originelle, oublie la planète Suzaku, c'est tout le Système Stellaire de l'Alliance qui ferait face à une catastrophe! »
 
@@ -46,7 +46,7 @@ Le vieux cultivateur observa Wang Lin. Après un moment de réflexion, il dit: �
 
 Wang Lin réfléchit en silence. Il éprouvait beaucoup de regrets envers la Secte Heng Yue. Après tout, elle fut sa première secte et son premier pas dans le monde de la culture.
 
-Il regarda le vieux cultivateur et dit calmement: « La Secte Heng Yue était la première secte de Junior, et la planète Suzaku est ma patrie. »
+Il regarda le vieux cultivateur et dit calmement: « La Secte Heng Yue était la première secte de cadet, et la planète Suzaku est ma patrie. »
 
 « Oh? » Les yeux du vieux cultivateur s'illuminèrent. « Alors, qu'en est-il de ton rôle de Céleste du Tonnerre du Temple du Céleste du Tonnerre? » Sa voix retentit comme le tonnerre, teintée d'une pointe de colère.
 

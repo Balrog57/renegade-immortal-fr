@@ -28,7 +28,7 @@ Bai Wei reprit avec un sourire: « Il y a aussi la Cité aux Yeux Fantômes. Cet
 
 Wang Lin réfléchit un instant et laissa Bai Wei parler tout en ouvrant la voie, mais son esprit était ailleurs.
 
-Après une demi-heure, Wang Lin demanda soudain: « Junior Sister Bai, quelle méthode de culture pratiquez-vous? »
+Après une demi-heure, Wang Lin demanda soudain: « Sœur Cadette Bai, quelle méthode de culture pratiquez-vous? »
 
 Bai Wei sursauta et son expression changea brusquement. Elle s'arrêta et recula de quelques pas, fixant Wang Lin d'un regard altéré: « Le frère Wang me méprise-t-il? Si je vous ennuie, alors je partirai et ne vous dérangerai plus jamais! »
 

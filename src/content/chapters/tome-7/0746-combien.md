@@ -14,15 +14,15 @@ Il ne percevait aucune indication du niveau de culture du vieil homme, mais il p
 
 Inconsciemment, Wang Lin recula de quelques pas. Il ne connaissait absolument pas ce vieil homme; par conséquent, la personne prédestinée n'était probablement pas lui. Son regard se détourna et se posa sur Li Yuan.
 
-Li Yuan était également extrêmement surpris. En voyant le mouvement de Wang Lin, il devina que ce dernier ne connaissait pas le vieil homme. Il devint alors évident que la personne prédestinée dont parlait l'ancien pourrait bien être lui-même. Il observa attentivement le vieil homme, perplexe, et dit respectueusement: « Senior, la personne dont vous parlez est… »
+Li Yuan était également extrêmement surpris. En voyant le mouvement de Wang Lin, il devina que ce dernier ne connaissait pas le vieil homme. Il devint alors évident que la personne prédestinée dont parlait l'ancien pourrait bien être lui-même. Il observa attentivement le vieil homme, perplexe, et dit respectueusement: « Aîné, la personne dont vous parlez est… »
 
 Le vieil homme émergea de l'épais brouillard et fixa Li Yuan. Il pointa Wang Lin du doigt et déclara avec insatisfaction: « Petit gars, la personne prédestinée dont ce vieux parle, c'est toi! Viens ici! »
 
-Les yeux de Wang Lin se plissèrent et il répliqua: « Je n'ai jamais rencontré Senior auparavant. Comment pourrions-nous être liés par le destin? »
+Les yeux de Wang Lin se plissèrent et il répliqua: « Je n'ai jamais rencontré Aîné auparavant. Comment pourrions-nous être liés par le destin? »
 
 Le vieil homme examina Wang Lin un instant avant de sourire. « L'as-tu déjà oublié? Quiconque parvient à sortir du tunnel où ce vieux l'a enfermé en sept jours est lié à lui par le destin! »
 
-L'expression de Wang Lin changea instantanément. Il regarda l'ancien et, après une courte réflexion, dit lentement: « Ainsi, c'était Senior qui avait tout orchestré… Je ne sais simplement pas pourquoi Senior a fait cela. »
+L'expression de Wang Lin changea instantanément. Il regarda l'ancien et, après une courte réflexion, dit lentement: « Ainsi, c'était Aîné qui avait tout orchestré… Je ne sais simplement pas pourquoi Aîné a fait cela. »
 
 Le vieil homme afficha un air d'impatience et fit un pas en avant. Sa main se tendit vers Wang Lin alors qu'il disait: « Quelles sont toutes ces bêtises? Si ce vieux dit que tu es lié par le destin, alors c'est le cas! »
 
@@ -48,7 +48,7 @@ Presque instantanément, lorsqu'il retrouva la vue, il se trouvait à près de d
 
 Le vieil homme regarda Wang Lin et sourit: « Pourquoi ne cours-tu pas? »
 
-Wang Lin réfléchit un instant avant de joindre les mains et de dire respectueusement: « Je ne sais pas ce que Senior désire, mais le niveau de culture de Junior n'est pas assez élevé pour répondre aux exigences de Senior. »
+Wang Lin réfléchit un instant avant de joindre les mains et de dire respectueusement: « Je ne sais pas ce qu'Aîné désire, mais le niveau de culture de cadet n'est pas assez élevé pour répondre aux exigences d'Aîné. »
 
 Le regard du vieil homme se posa sur le sac de Wang Lin et il dit: « Aucun problème. Tu ne peux pas m'aider, mais la Bête de Tonnerre à l'intérieur de ton sac, si. Laisse ce vieux l'emprunter un moment, je te la rendrai ensuite. »
 
@@ -56,7 +56,7 @@ Wang Lin poussa un soupir secret. Il ignorait comment le vieil homme savait ce q
 
 La Bête de Tonnerre finit par reprendre ses esprits et tremblait de terreur. C'était la première fois qu'elle manifestait un tel comportement.
 
-Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria: « Avec la culture de Senior, comment peut-il ainsi s'emparer des possessions d'un junior? »
+Voyant que le vieil homme s'apprêtait à partir, Wang Lin serra les dents et s'écria: « Avec la culture d'Aîné, comment peut-il ainsi s'emparer des possessions d'un cadet? »
 
 Le vieil homme s'arrêta et se retourna vers Wang Lin. Il sourit, ses yeux brillant d'admiration: « Tu veux une compensation? Intéressant, mais je ne peux pas utiliser ta Bête de Tonnerre pour rien! » Il regarda Wang Lin et ajouta: « Ta culture est un désordre sans nom. Une âme d'origine du tonnerre et un corps de tonnerre, qu'est-ce que c'est que ça? Laisse ce vieux te donner un coup de main! »
 

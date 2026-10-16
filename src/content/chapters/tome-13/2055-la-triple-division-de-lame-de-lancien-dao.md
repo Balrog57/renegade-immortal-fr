@@ -72,9 +72,9 @@ Mais ce n'était que le début!
 
 « Pour obtenir le sang d'âme, je dois pousser la deuxième calamité jusqu'à ses limites pour voir où elle s'arrête! » Une lueur de détermination absolue brilla dans ses yeux. Il ferma lentement les paupières pour affronter la tempête.
 
-Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent à l'extérieur du temple ancestral. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale d'Ancient Shi.
+Alors que Wang Lin traversait la deuxième calamité, des ondulations circulaires apparurent à l'extérieur du temple ancestral. Ces ondes se propagèrent dans toutes les directions, enveloppant presque toute la cité impériale de Shi Antique.
 
-Ce phénomène étrange attira immédiatement l'attention de tous les membres du clan Ancient Shi.
+Ce phénomène étrange attira immédiatement l'attention de tous les membres du clan Shi Antique.
 
 « La statue de l'Ancêtre émet des halos! Quelqu'un traverse les calamités! »
 
@@ -86,11 +86,11 @@ Ce phénomène étrange attira immédiatement l'attention de tous les membres du
 
 « Je me demande combien de personnes tentent la calamité et combien de temps elles pourront tenir. Normalement, cela ne dure que quelques jours. »
 
-Les habitants d'Ancient Shi ne furent pas surpris par les halos émanant de la statue de l'Ancêtre. Ils avaient déjà vu cela auparavant et, après un bref regard, ils cessèrent d'y prêter attention.
+Les habitants de Shi Antique ne furent pas surpris par les halos émanant de la statue de l'Ancêtre. Ils avaient déjà vu cela auparavant et, après un bref regard, ils cessèrent d'y prêter attention.
 
-Ce qu'ils ignoraient, c'est que lorsque les neuf halos apparurent, l'Empereur d'Ancient Shi et Ji Du scrutèrent tous deux l'horizon.
+Ce qu'ils ignoraient, c'est que lorsque les neuf halos apparurent, l'Empereur de Shi Antique et Ji Du scrutèrent tous deux l'horizon.
 
-« Cinquante ans... Il a enfin commencé sa première division... Je me demande combien de temps il pourra persister. Dans mon clan Ancient Shi, certains ont passé une année entière sur la première division pour atteindre la perfection. Je me demande si cet homme pourra en faire autant. » L'Empereur d'Ancient Shi observa longuement le lointain avant de détourner les yeux.
+« Cinquante ans... Il a enfin commencé sa première division... Je me demande combien de temps il pourra persister. Dans mon clan Shi Antique, certains ont passé une année entière sur la première division pour atteindre la perfection. Je me demande si cet homme pourra en faire autant. » L'Empereur de Shi Antique observa longuement le lointain avant de détourner les yeux.
 
 Ji Du se tenait près de la fenêtre de sa chambre, le regard perdu dans le lointain. Sa femme était à ses côtés, contemplant la même direction.
 
@@ -116,7 +116,7 @@ Wang Lin connaissait cette silhouette.
 
 « Maître... » murmura-t-il. Il savait que son maître ne quitterait pas l'Ancien Dao sans raison. Son maître était venu parce que Xuan Luo voulait le protéger alors qu'il était au plus vulnérable face à la calamité.
 
-Dans le ciel, Xuan Luo contemplait la cité impériale d'Ancient Shi et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
+Dans le ciel, Xuan Luo contemplait la cité impériale de Shi Antique et la statue de l'Ancêtre. Il percevait faiblement l'aura de Wang Lin émanant du temple ancestral.
 
 Un sourire étira ses lèvres et son regard devint empreint de douceur.
 

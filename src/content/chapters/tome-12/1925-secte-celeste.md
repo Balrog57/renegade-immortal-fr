@@ -18,7 +18,7 @@ Tandis que le dragon de mer sous lui rugissait, ils quittèrent la Secte Terrest
 
 Sous les ordres de Wang Lin, le dragon de mer fonça vers la seconde puissance du continent: la Secte Terrestre de Meng, une secte d'égale envergure à la Secte Terrestre.
 
-Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalt Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
+Grâce au niveau de culture d'Exalté Empyréen de Wang Lin et à la puissance du dragon de mer d'Exalté Doré, le voyage se déroula sans encombre. La Secte Terrestre de Meng remit respectueusement la carte de jade, craignant de déplaire à Wang Lin.
 
 Wang Lin déploya également son Sens Divin sur tout le Continent Terrestre de Meng. Bien que les chances fussent faibles, il souhaitait tenter de retrouver d'anciens amis.
 
@@ -38,7 +38,7 @@ Si ce continent portait le nom de Continent Céleste, c'était parce que les nua
 
 Par conséquent, tout le Continent Céleste ressemblait à un monde merveilleux perpétuellement enveloppé de brume. Le continent était parsemé d'innombrables montagnes, dont le plus haut sommet se nommait le Pic Céleste. De loin, on ne pouvait en percevoir la totalité, car les nuages en masquaient une partie, lui conférant un aspect extraordinaire.
 
-Ce jour-là, l'apparition du dragon de mer provoqua des ondulations dans l'air. La créature flottait dans le ciel, fixant la montagne en contrebas. Sa culture d'Exalt Doré se déploya entièrement, enveloppant toute la zone.
+Ce jour-là, l'apparition du dragon de mer provoqua des ondulations dans l'air. La créature flottait dans le ciel, fixant la montagne en contrebas. Sa culture d'Exalté Doré se déploya entièrement, enveloppant toute la zone.
 
 Vêtu de blanc immaculé, Wang Lin se tenait sur la tête du dragon, paraissant éthéré parmi les nuages. Il s'avança à travers l'immensité blanche vers le sommet de la montagne.
 

@@ -26,7 +26,7 @@ Simultanément, un message fut transmis depuis le Mont Gu Dao aux trois clans ro
 
 Le Mont Gu Dao n'accorda aucune importance à la mort de l'Empereur de l'Ancien Dao. Ce phénomène étrange suffit à réduire au silence la faction du clan Ancien qui prônait la traque de Wang Lin par le Grand Empereur Gu Dao; ils ne mentionnèrent plus jamais cette affaire.
 
-À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Empereurs Exalts et les Empereurs Ascendants étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empereurs!
+À l'instar du clan Ancien, le clan Céleste envoya également un message aux soixante-douze continents, annonçant que le Royaume Divin Immémorial s'ouvrirait dans cinq cents ans. Ils devaient consacrer ces cinq siècles à l'entraînement des puissants sous leur autorité. Les Empereurs Exaltés et les Empereurs Ascendants étaient les plus enthousiastes. Le Royaume Divin Immémorial était pour eux comme la porte du dragon: une fois qu'ils y auraient acquis une fortune, ils deviendraient des Grands Empereurs!
 
 L'apparition du Royaume Divin Immémorial avait suscité une tempête sur le Continent Astral Immortel. Cependant, en raison de l'attente de cinq cents ans, cette agitation fut contenue, telle un courant sous-jacent — le calme avant la tempête.
 

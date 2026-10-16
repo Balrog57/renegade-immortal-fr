@@ -52,7 +52,7 @@ Alors que Kang Ren s'apprêtait à entrer dans la vallée, un rugissement retent
 
 « Qui ose pénétrer dans la vallée? Déclare ton nom! Si tu ne te présentes pas dans trois respirations, tu en subiras les conséquences! »
 
-Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée de la vallée et rugit: « Virtual Cloud, qu'est-ce que cela signifie? »
+Un éclat de froideur traversa le regard de Kang Ren. Il s'arrêta à l'entrée de la vallée et rugit: « Nuage Virtuel, qu'est-ce que cela signifie? »
 
 « Oh? Il s'agit donc du Frère Cadet Kang. Le brouillard était trop épais pour que je te reconnaisse. Le Frère Cadet n'était-il pas parti? Comment se fait-il que tu sois déjà de retour? Qu'as-tu capturé avec ton filet à marionnettes? » La voix était désinvolte, et un jeune homme bossu sortit de la vallée.
 
@@ -76,7 +76,7 @@ Près de la formation, Kang Ren agita sa main droite. Wang Lin, qu'il avait appo
 
 Kang Ren se frotta les mains d'excitation en contemplant la formation entourée de brume, ses yeux brillant d'un éclat intense.
 
-« Je dois procéder à la transformation au plus vite. Ce Virtual Cloud est très sournois. Dès qu'il saura que j'ai ramené une marionnette, il complotera contre moi! » Kang Ren agita la main droite et des matériaux destinés à la création de marionnettes s'envolèrent vers la formation.
+« Je dois procéder à la transformation au plus vite. Ce Nuage Virtuel est très sournois. Dès qu'il saura que j'ai ramené une marionnette, il complotera contre moi! » Kang Ren agita la main droite et des matériaux destinés à la création de marionnettes s'envolèrent vers la formation.
 
 Au même moment, sa main gauche traça un sceau qu'il pressa contre le dispositif. La formation gronda et commença à s'activer. Le brouillard se transforma en vortex, puis une source de feu fut extraite du sol sous la formation, remplissant la grotte d'une chaleur intense.
 

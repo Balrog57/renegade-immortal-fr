@@ -54,21 +54,21 @@ Wang Lin garda la tombe pendant trois ans, jusqu'à ce que ses cheveux deviennen
 
 « 38 ans... » Des rides marquaient son visage. Il était devenu un vieil homme d'une soixantaine d'années.
 
-Big Fortune était encore plus âgé. S'appuyant sur une canne, il se tenait derrière Wang Lin. Il observa silencieusement son poignet droit et, après un long moment, hocha doucement la tête.
+Grande Fortune était encore plus âgé. S'appuyant sur une canne, il se tenait derrière Wang Lin. Il observa silencieusement son poignet droit et, après un long moment, hocha doucement la tête.
 
 « La vie... combien de tranches de 38 ans peut-on avoir... Je ne sais pas pour les autres, mais pour moi, il ne devrait plus y en avoir de suivantes », murmura Wang Lin en s'agenouillant devant la tombe de ses parents pour lui rendre un ultime kowtow.
 
-« Te souviens-tu encore de ce vieux temple... » Wang Lin se redressa et regarda Big Fortune, qui semblait désormais incapable de marcher très longtemps.
+« Te souviens-tu encore de ce vieux temple... » Wang Lin se redressa et regarda Grande Fortune, qui semblait désormais incapable de marcher très longtemps.
 
-« Dans ce vieux temple, j'ai dit que je cherchais un serviteur et tu m'as suivi. » Un sourire apparut sur les lèvres de Wang Lin en regardant Big Fortune. Durant ces 38 années, Big Fortune l'avait accompagné à chaque pas.
+« Dans ce vieux temple, j'ai dit que je cherchais un serviteur et tu m'as suivi. » Un sourire apparut sur les lèvres de Wang Lin en regardant Grande Fortune. Durant ces 38 années, Grande Fortune l'avait accompagné à chaque pas.
 
-« Big Fortune peut encore être ton serviteur! » Big Fortune roula des yeux avec un sourire malicieux.
+« Grande Fortune peut encore être ton serviteur! » Grande Fortune roula des yeux avec un sourire malicieux.
 
-« Tu es vieux, et je le suis aussi... Pourtant, il reste des choses que je veux accomplir... Big Fortune, aide-moi à garder ma demeure. Attends-moi, attends mon retour. » Wang Lin leva les yeux vers le ciel et aperçut l'oiseau blanc.
+« Tu es vieux, et je le suis aussi... Pourtant, il reste des choses que je veux accomplir... Grande Fortune, aide-moi à garder ma demeure. Attends-moi, attends mon retour. » Wang Lin leva les yeux vers le ciel et aperçut l'oiseau blanc.
 
 « Il me manque encore une part de compréhension du monde. Je veux passer le reste de mes jours à parcourir les différents royaumes de la planète Suzaku. À mon retour, peut-être n'aurai-je rien appris, ou peut-être aurai-je atteint l'éveil. »
 
-Au printemps de la 38e année, Wang Lin quitta seul le village de montagne. Big Fortune resta là, attendant silencieusement le retour de Wang Lin. Peut-être serait-ce dans dix ans, peut-être dans vingt ans, ou peut-être au terme d'une vie entière.
+Au printemps de la 38e année, Wang Lin quitta seul le village de montagne. Grande Fortune resta là, attendant silencieusement le retour de Wang Lin. Peut-être serait-ce dans dix ans, peut-être dans vingt ans, ou peut-être au terme d'une vie entière.
 
 Wang Lin était assis dans sa calèche et buvait du vin en solitaire tandis qu'elle s'éloignait de la montagne Heng Yue. Quelques mois plus tard, la calèche atteignit la frontière de Zhao, où Wang Lin descendit. Il paya le cocher et prit une profonde inspiration. Il jeta un dernier regard vers Zhao avant de faire un pas en avant pour franchir la frontière.
 
@@ -80,7 +80,7 @@ Un son léger émana des rayons de lumière. Il provenait d'une femme magnifique
 
 Elle s'arrêta en plein vol et observa Wang Lin qui s'éloignait. Ses sourcils se froncèrent et ses yeux se remplirent de confusion.
 
-« Qu'y a-t-il, Sœur Junior Liu? » s'étonna un cultivateur à ses côtés.
+« Qu'y a-t-il, Sœur Cadette Liu? » s'étonna un cultivateur à ses côtés.
 
 « Rien. Retournez d'abord à la secte. J'ai quelques affaires personnelles à régler », dit doucement la belle femme. Elle ne leur prêta plus attention et redescendit vers le sol.
 
@@ -96,11 +96,11 @@ Cependant, Wang Lin ne fut pas ébloui. Il avait percé les mystères et poursui
 
 La femme observa le vieux Wang Lin, ses cheveux blancs, son visage ridé et ses yeux brillants. Après un long moment, elle fit une légère révérence.
 
-« Senior, je vous ai vu il y a des décennies. Puisque nous nous rencontrons pour la seconde fois, vous souvenez-vous de moi? »
+« Aîné, je vous ai vu il y a des décennies. Puisque nous nous rencontrons pour la seconde fois, vous souvenez-vous de moi? »
 
 Wang Lin contempla la femme devant lui et se mit à réfléchir. Après un long silence, il sourit et secoua la tête en disant d'une voix rauque: « J'ai oublié. »
 
-« Puisqu'il est oublié, alors qu'il le reste. Senior, je ne sais pourquoi, mais j'ai toujours eu l'impression que nous nous étions déjà rencontrés. Pas seulement cette fois, mais la fois précédente également. Je souhaite savoir... quel est votre nom? » demanda doucement la femme avec un sourire.
+« Puisqu'il est oublié, alors qu'il le reste. Aîné, je ne sais pourquoi, mais j'ai toujours eu l'impression que nous nous étions déjà rencontrés. Pas seulement cette fois, mais la fois précédente également. Je souhaite savoir... quel est votre nom? » demanda doucement la femme avec un sourire.
 
 Wang Lin resta calme et répondit lentement: « Ce vieil homme s'appelle Wang Lin. »
 

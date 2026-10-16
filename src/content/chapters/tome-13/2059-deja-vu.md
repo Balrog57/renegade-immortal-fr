@@ -12,7 +12,7 @@ Il s'assit silencieusement dans le temple et se remémora les 68 années qu'il y
 
 « Il ne reste plus beaucoup de temps... » Le murmure de Wang Lin résonna dans l'enceinte du temple.
 
-Dans la cité impériale d'Ancient Shi, alors que les 27 halos brillaient intensément autour de la statue de l'Ancêtre Ancien, un immense tumulte retentit à travers toute la cité, et tous les regards se tournèrent vers la statue.
+Dans la cité impériale de Shi Antique, alors que les 27 halos brillaient intensément autour de la statue de l'Ancêtre Ancien, un immense tumulte retentit à travers toute la cité, et tous les regards se tournèrent vers la statue.
 
 « 18 ans. Cet homme a passé trois ans sur la première séparation de l'âme, et la seconde division a pris 15 ans. Il doit avoir opté pour une fragmentation complète et une fusion parfaite! »
 
@@ -32,13 +32,13 @@ C'était aussi la dernière fois!
 
 « Trois ans, 15 ans... Combien de temps cela durera-t-il... » Wang Lin n'avait pas de réponse.
 
-En un éclair, sept années s'étaient écoulées pour Wang Lin dans cette troisième séparation. Après ces sept ans, les habitants d'Ancient Shi contemplaient avec enthousiasme les 27 halos entourant la statue de l'Ancêtre Ancien.
+En un éclair, sept années s'étaient écoulées pour Wang Lin dans cette troisième séparation. Après ces sept ans, les habitants de Shi Antique contemplaient avec enthousiasme les 27 halos entourant la statue de l'Ancêtre Ancien.
 
-L'Empereur d'Ancient Shi avait presque terminé le transfert de pouvoir à Ji Du. Le jour où le nouvel empereur serait couronné approchait à grands pas.
+L'Empereur de Shi Antique avait presque terminé le transfert de pouvoir à Ji Du. Le jour où le nouvel empereur serait couronné approchait à grands pas.
 
-À mesure que ce jour approchait, les regards des habitants passèrent de la statue de l'Ancêtre Ancien au sujet le plus crucial d'Ancient Shi: l'ascension d'un nouvel empereur sur le trône!
+À mesure que ce jour approchait, les regards des habitants passèrent de la statue de l'Ancêtre Ancien au sujet le plus crucial de Shi Antique: l'ascension d'un nouvel empereur sur le trône!
 
-D'innombrables armées d'Ancient Shi étaient progressivement confiées à Ji Du afin qu'il puisse s'en imprégner. C'était l'une des préparations pour la grande guerre entre les Célestes et Ancient Shi qui éclaterait dans quelques centaines d'années.
+D'innombrables armées de Shi Antique étaient progressivement confiées à Ji Du afin qu'il puisse s'en imprégner. C'était l'une des préparations pour la grande guerre entre les Célestes et Shi Antique qui éclaterait dans quelques centaines d'années.
 
 Cinq ans... Cinq ans... Cinq ans...
 
@@ -46,9 +46,9 @@ Le temps passa invisiblement et les saisons se succédèrent. En un clin d'œil,
 
 Si l'on incluait les séparations précédentes, cela faisait 90 ans que Wang Lin était entré dans le temple ancestral!
 
-Quatre-vingt-dix années suffisaient pour que bien des choses changent. C'était assez pour qu'un mortel achève sa vie ou pour qu'un nouvel empereur accède au trône. L'actuel Empereur d'Ancient Shi s'était déjà retiré dans l'ombre, laissant Ji Du agir en première ligne.
+Quatre-vingt-dix années suffisaient pour que bien des choses changent. C'était assez pour qu'un mortel achève sa vie ou pour qu'un nouvel empereur accède au trône. L'actuel Empereur de Shi Antique s'était déjà retiré dans l'ombre, laissant Ji Du agir en première ligne.
 
-Bien que la grande cérémonie n'eût pas encore eu lieu, tout à Ancient Shi était désormais administré par Ji Du. Bien qu'il ne portât pas encore la couronne, il revêtait déjà la robe royale.
+Bien que la grande cérémonie n'eût pas encore eu lieu, tout à Shi Antique était désormais administré par Ji Du. Bien qu'il ne portât pas encore la couronne, il revêtait déjà la robe royale.
 
 Pourtant, malgré cela, son habitude de contempler le temple ancestral chaque matin ne changeait jamais. Il croyait fermement que son parrain réussirait!
 
@@ -58,7 +58,7 @@ Wang Lin avait tiré les leçons du passé et avait laissé une trace de Sens Di
 
 Wang Lin continuait d'endurer des décennies de douleur tandis que son âme originelle se fragmentait. Là où d'innombrables personnes auraient succombé à une telle souffrance, lui commençait même à s'y sentir insensible.
 
-À la 95e année, toute la cité d'Ancient Shi se préparait au couronnement du nouvel empereur prévu dans cinq ans. À ce stade, l'ombre surplombant Wang Lin n'était plus que poussière.
+À la 95e année, toute la cité de Shi Antique se préparait au couronnement du nouvel empereur prévu dans cinq ans. À ce stade, l'ombre surplombant Wang Lin n'était plus que poussière.
 
 Il commença alors à tenter la fusion!
 
@@ -74,19 +74,19 @@ Cependant, ces 30 % étaient plusieurs fois plus puissants que son âme après l
 
 Il ne restait que trois ans avant la centième année. Un peu plus de mille jours et nuits subsistaient.
 
-Durant ces quelques années, la cité impériale d'Ancient Shi était en pleine effervescence. Presque toutes les puissances d'Ancient Shi s'étaient rassemblées pour assister à l'événement le plus important de l'empire!
+Durant ces quelques années, la cité impériale de Shi Antique était en pleine effervescence. Presque toutes les puissances de Shi Antique s'étaient rassemblées pour assister à l'événement le plus important de l'empire!
 
 Le changement de règne avait rendu toute la cité extrêmement animée. Cependant, celui qui allait hériter du trône était devenu silencieux. Il s'était rendu seul au Temple Ancestral et s'était assis à l'extérieur pour cultiver.
 
 Il avait tout abandonné pour accompagner son parrain durant les trois dernières années précédant son accession au trône.
 
-Au fil des jours, de plus en plus de gens voyageaient vers Ancient Shi. Même les membres des deux autres clans étaient en route.
+Au fil des jours, de plus en plus de gens voyageaient vers Shi Antique. Même les membres des deux autres clans étaient en route.
 
 Chaque jour, une foule immense pénétrait dans la cité impériale. Pourtant, comparé à l'agitation de la ville, le temple ancestral était d'un calme absolu. Il avait été transformé en zone interdite depuis longtemps et nul n'était autorisé à s'en approcher. D'innombrables gardes du palais royal surveillaient même les lieux.
 
 Ji Du écoutait les rumeurs de la foule tout en restant assis en silence, les yeux clos.
 
-« Parrain, dans trois ans, je pourrai devenir l'Empereur d'Ancient Shi... »
+« Parrain, dans trois ans, je pourrai devenir l'Empereur de Shi Antique... »
 
 Ji Du resta là. Tandis que les jours et les nuits se succédaient, la 98e année passa. Puis vint la 99e, et enfin, la 100e année s'écoula silencieusement.
 
@@ -100,13 +100,13 @@ Au centre même de la place trônait un fourneau gigantesque.
 
 À l'intérieur du fourneau reposait une petite quantité de terre dans laquelle était planté un immense bâton d'encens. L'encens n'était pas encore allumé — le seul capable de l'allumer était Ji Du!
 
-C'était l'encens du pouvoir impérial. Dès que le bâton serait allumé, la fumée se transformerait en tambour. Ji Du était également le seul à pouvoir frapper ce tambour. Une fois qu'il aurait résonné neuf fois, Ji Du recevrait la révérence de tout Ancient Shi.
+C'était l'encens du pouvoir impérial. Dès que le bâton serait allumé, la fumée se transformerait en tambour. Ji Du était également le seul à pouvoir frapper ce tambour. Une fois qu'il aurait résonné neuf fois, Ji Du recevrait la révérence de tout Shi Antique.
 
-Tout le monde attendait; même l'ancien Empereur d'Ancient Shi attendait.
+Tout le monde attendait; même l'ancien Empereur de Shi Antique attendait.
 
 Aux côtés de l'ancien Empereur se tenaient plusieurs personnes. L'un des vieillards hésita et murmura: « Le moment approche... Votre Majesté, ceci... »
 
-« Continuez d'attendre! Il n'y a pas de moment propice dans mon Ancient Shi. Lorsque le Prince Ji Du viendra prendre le trône, ce sera alors le moment le plus propice! » déclara l'ancien Empereur d'une voix rauque.
+« Continuez d'attendre! Il n'y a pas de moment propice dans mon Shi Antique. Lorsque le Prince Ji Du viendra prendre le trône, ce sera alors le moment le plus propice! » déclara l'ancien Empereur d'une voix rauque.
 
 Le vieil homme qui avait pris la parole hocha respectueusement la tête.
 

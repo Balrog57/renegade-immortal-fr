@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 664 - Missed
 slug: manque
 ---
-L'homme d'âge mûr déclara respectueusement: « C'était une épée volante. Ce junior l'a examinée et l'a trouvée très ordinaire. Peut-être possède-t-elle réellement quelque chose de spécial, mais je ne crois pas qu'elle soit puissante. Ce genre de trésor ne répond pas aux exigences de notre pavillon. »
+L'homme d'âge mûr déclara respectueusement: « C'était une épée volante. Ce cadet l'a examinée et l'a trouvée très ordinaire. Peut-être possède-t-elle réellement quelque chose de spécial, mais je ne crois pas qu'elle soit puissante. Ce genre de trésor ne répond pas aux exigences de notre pavillon. »
 
 Il n'osait faire preuve d'aucun manque de respect envers le vieil homme. Bien que ce dernier ne fût qu'au stade initial de la Formation de l'Âme, il occupait un rang très élevé au sein du pavillon. L'homme d'âge mûr savait vaguement que ce vieil homme avait autrefois atteint le stade intermédiaire de la Transformation de l'Âme, mais qu'en raison de ses blessures, sa culture était retombée au stade de la Formation de l'Âme.
 
@@ -74,7 +74,7 @@ L'expression décontractée et sereine de Wang Lin n'était pas celle qu'un cult
 
 Peu de temps après, une brise légère souffla de l'extérieur. Une fois la brise dissipée, un vieil homme entra dans le pavillon. La première chose que ses yeux cherchèrent fut l'épée volante entre les mains du jeune homme. En la voyant, un éclair de lumière traversa son regard.
 
-Voyant le vieil homme, le jeune homme se leva immédiatement et dit respectueusement: « Le junior Sun Mu salue l'Aîné. »
+Voyant le vieil homme, le jeune homme se leva immédiatement et dit respectueusement: « Le cadet Sun Mu salue l'Aîné. »
 
 Le vieil homme répondit doucement et son regard balaya Wang Lin. Son expression ne changea pas lorsqu'il demanda calmement: « Est-ce cette personne qui a demandé l'examen d'un trésor magique? »
 
@@ -84,7 +84,7 @@ Au moment où le vieil homme entra, Wang Lin lui jeta un coup d'œil avant de d�
 
 Le vieil homme ne perdit pas de temps. Il agita la main droite et saisit l'épée volante. Après l'avoir balayée de son Sens Divin, son expression calme fut remplacée par la stupéfaction.
 
-« Aîné, le junior a examiné ce trésor... » commença le jeune homme à ses côtés. Mais alors qu'il parlait, le vieil homme lui lança un regard si tranchant qu'il en eut le souffle coupé et laissa sa phrase en suspens.
+« Aîné, le cadet a examiné ce trésor... » commença le jeune homme à ses côtés. Mais alors qu'il parlait, le vieil homme lui lança un regard si tranchant qu'il en eut le souffle coupé et laissa sa phrase en suspens.
 
 Le vieil homme effleura l'épée volante du bout du doigt. Elle libéra un chant d'épée cristallin qui résonna instantanément dans tout le bâtiment. Ce son, semblable à une musique céleste, était d'une pureté absolue. Ses yeux se remplirent d'un choc encore plus grand lorsqu'il agita la main droite. L'épée s'envola et disparut.
 

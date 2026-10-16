@@ -8,11 +8,11 @@ slug: couper-sa-voie-devasion
 ---
 Le vieil homme fronçait toujours les sourcils. Cela faisait plus de quatre mois qu'il pourchassait Wang Lin. À plusieurs reprises, il avait failli le rattraper, mais le trésor sur lequel Wang Lin voyageait libérait alors une lumière blanche et se téléportait soudainement ailleurs.
 
-Cela le choquait et l'exaspérait de plus en plus. Un grand shaman aux sept feuilles ne pouvait même pas capturer un simple junior. Pour lui, c'était une honte.
+Cela le choquait et l'exaspérait de plus en plus. Un grand shaman aux sept feuilles ne pouvait même pas capturer un simple cadet. Pour lui, c'était une honte.
 
-Cependant, il n'était pas un cultivateur; toute sa puissance provenait des tatouages sur son corps. Il ne s'attendait pas à ce que ce junior puisse maintenir une telle vitesse pendant quatre mois.
+Cependant, il n'était pas un cultivateur; toute sa puissance provenait des tatouages sur son corps. Il ne s'attendait pas à ce que ce cadet puisse maintenir une telle vitesse pendant quatre mois.
 
-Les yeux du vieil homme vacillèrent tandis qu'il réfléchissait. Il avait déjà épuisé une grande partie de sa puissance, et poursuivre la traque n'était plus une option viable. Plus important encore, il craignait de ne pas savoir combien de trésors ce junior n'avait pas encore utilisés, ni combien de pilules il lui restait en réserve.
+Les yeux du vieil homme vacillèrent tandis qu'il réfléchissait. Il avait déjà épuisé une grande partie de sa puissance, et poursuivre la traque n'était plus une option viable. Plus important encore, il craignait de ne pas savoir combien de trésors ce cadet n'avait pas encore utilisés, ni combien de pilules il lui restait en réserve.
 
 Après mûre réflexion, une pointe de réticence apparut dans le regard du vieil homme avant qu'il ne laisse échapper un soupir et ne se détourne pour partir.
 
@@ -48,13 +48,13 @@ Les trois rayons d'énergie d'épée volèrent vers le vieil homme. Le visage de
 
 Sur ces mots, le vieil homme poursuivit sa route vers la sortie en ignorant Wang Lin.
 
-Wang Lin ricana. Au lieu de reculer, il se rapprocha à nouveau et harcela le vieil homme avec de nouvelles décharges d'énergie d'épée. Après un mois, le vieil homme était exaspéré. Il n'aspirait qu'à une chose: déchirer ce junior en morceaux.
+Wang Lin ricana. Au lieu de reculer, il se rapprocha à nouveau et harcela le vieil homme avec de nouvelles décharges d'énergie d'épée. Après un mois, le vieil homme était exaspéré. Il n'aspirait qu'à une chose: déchirer ce cadet en morceaux.
 
 Pourtant, Wang Lin s'échappait sans la moindre hésitation dès que l'homme tentait de l'attaquer, et si celui-ci voulait partir, Wang Lin le harcelait avec son énergie d'épée. Bien que ces assauts ne puissent lui nuire, ils avaient fait passer son humeur de mauvaise à déplorable.
 
 « Wang Lin, as-tu fini?! » Ce jour-là, le vieil homme finit par perdre patience et hurla dans le vide derrière lui. Les tatouages sur son corps brillaient avec frénésie, dégageant une pression écrasante.
 
-Wang Lin, si loin, n'avait aucune crainte. Il répondit: « Senior m'a poursuivi pendant plusieurs mois. Vous devez être réticent à l'idée d'abandonner. Le junior ici n'a plus beaucoup de pilules dans son sac; si vous continuez à me poursuivre, vous finirez par me rattraper! »
+Wang Lin, si loin, n'avait aucune crainte. Il répondit: « Aîné m'a poursuivi pendant plusieurs mois. Vous devez être réticent à l'idée d'abandonner. Le cadet ici n'a plus beaucoup de pilules dans son sac; si vous continuez à me poursuivre, vous finirez par me rattraper! »
 
 Les yeux du vieil homme étaient sombres de rage. Il fixa le vide au loin et disparut soudainement.
 
@@ -62,7 +62,7 @@ Lorsqu'il réapparut, il fixa avec férocité la lumière blanche libérée par 
 
 Son expression changea brusquement et il tourna la tête vers la sortie. La direction vers laquelle Wang Lin s'était téléporté n'était pas seulement éloignée du vieil homme, elle menait également vers la sortie.
 
-« Senior, le junior va détruire la sortie pour que nous puissions rester ici pour toujours! Ne serait-ce pas amusant?! » La voix irritante de Wang Lin parvint aux oreilles du vieil homme.
+« Aîné, le cadet va détruire la sortie pour que nous puissions rester ici pour toujours! Ne serait-ce pas amusant?! » La voix irritante de Wang Lin parvint aux oreilles du vieil homme.
 
 Le vieil homme poussa un rugissement et chargea soudainement. Sa haine envers Wang Lin avait atteint son paroxysme. Sans ce trésor, comment se serait-il retrouvé dans cette impasse où poursuivre était aussi risqué que de renoncer?
 
@@ -84,7 +84,7 @@ Quelques mois plus tard, Wang Lin avait épuisé toutes ses pilules et comptait 
 
 Plus Wang Lin poursuivait, plus le vieil homme devenait impatient, ce qui l'incitait à attaquer davantage. Cependant, grâce à la boussole stellaire, tous ces assauts manquaient leur cible.
 
-Si une seule des marques d'attaque touchait, même sans tuer, elle blesserait mortellement ce junior. Si elle atteignait le trésor, elle le briserait, lui permettant de tuer Wang Lin à sa guise.
+Si une seule des marques d'attaque touchait, même sans tuer, elle blesserait mortellement ce cadet. Si elle atteignait le trésor, elle le briserait, lui permettant de tuer Wang Lin à sa guise.
 
 Hélas, la vitesse de la boussole stellaire ne faisait qu'augmenter, Wang Lin s'en étant davantage familiarisé au cours de ces huit mois.
 

@@ -20,7 +20,7 @@ Cependant, les six Grands Empereurs Célestes n'étaient pas dans la même situa
 
 Song Tian n'hésita pas. Dès que les rugissements s'intensifièrent, il se plaça devant les membres du clan Antique. D'un revers de manche, un soleil géant apparut derrière lui; il utilisait son pouvoir de Grand Empereur Céleste pour aider ceux qui le suivaient à résister au tumulte.
 
-Xuan Luo et le Grand Empereur Céleste Ancient Ji firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Antique ne soient ni blessés, ni repoussés.
+Xuan Luo et le Grand Empereur Céleste Ji Antique firent de même. Grâce à l'effort conjugué de ces trois-là, ils purent s'assurer que les centaines de membres paniqués du clan Antique ne soient ni blessés, ni repoussés.
 
 Le clan céleste procédait de la même manière. Jiu Di et ses compagnons agirent simultanément pour protéger les centaines de cultivateurs célestes contre les grondements.
 
@@ -52,7 +52,7 @@ Les grondements étaient tels qu'ils brisaient le ciel et faisaient apparaître 
 
 Jiu Di serra les dents et envoya un message divin:
 
-« Tous les cultivateurs en dessous du rang d'Exalt Doré, retirez-vous immédiatement et quittez la vaste cuvette! »
+« Tous les cultivateurs en dessous du rang d'Exalté Doré, retirez-vous immédiatement et quittez la vaste cuvette! »
 
 À l'annonce de ses paroles, du côté du clan Antique, Song Tian et ses compagnons prirent également une décision. Parmi les centaines de personnes qu'ils protégeaient, ceux qui n'avaient pas réussi à passer les trois épreuves et les sept calamités quittèrent rapidement le centre du tumulte.
 
@@ -64,7 +64,7 @@ En un éclair, trois jours passèrent. Il ne restait plus que six jours avant l'
 
 Ils ne pouvaient plus endurer cela. Ils devaient réduire le nombre de personnes, sinon ils finiraient par être affectés eux aussi.
 
-« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empereur Céleste Ancient Ji avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
+« Wang Lin! » Xuan Luo interpella Wang Lin. C'était la première fois qu'il lui adressait la parole depuis le début des grondements. En vérité, Song Tian et le Grand Empereur Céleste Ji Antique avaient depuis longtemps placé leurs espoirs en Wang Lin; ils ne comprenaient simplement pas pourquoi Gu Dao ne s'était toujours pas manifesté.
 
 Cependant, ce n'était pas le moment de se poser de telles questions. À l'appel de Xuan Luo, tous les regards se tournèrent vers Wang Lin.
 
@@ -80,7 +80,7 @@ Xuan Luo et ses compagnons restèrent silencieux. Ils ressentaient également l'
 
 Le clan Antique bénéficiait de la protection de Wang Lin, mais du côté du clan céleste, sous la garde de Jiu Di et ses compagnons, ils furent contraints de réduire leur nombre.
 
-« Cultivateurs d'Exalt Doré... Cultivateurs d'Exalt Éthéré, reculez et évacuez immédiatement! » Alors que la voix de Jiu Di résonnait, la majorité des cent cultivateurs restants réfléchirent en silence. Ils regardèrent la tempête marine avec regret avant de partir un à un, ne laissant que onze personnes.
+« Cultivateurs d'Exalté Doré... Cultivateurs d'Exalté Éthéré, reculez et évacuez immédiatement! » Alors que la voix de Jiu Di résonnait, la majorité des cent cultivateurs restants réfléchirent en silence. Ils regardèrent la tempête marine avec regret avant de partir un à un, ne laissant que onze personnes.
 
 Tous les Ascendants Éthérés n'étaient pas venus; ces onze individus étaient ceux qui avaient choisi d'être présents.
 

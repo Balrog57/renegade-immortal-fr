@@ -10,21 +10,21 @@ Chapitre 1942 - Qui êtes-vous?
 
 Après avoir entendu cela, le vieil homme plissa les yeux et observa attentivement Liu Jinbiao. À cet instant, il sentit que quelque chose n'allait pas. Liu Jinbiao n'était qu'au stade de la Formation du Noyau, pourtant il avait décelé une présence cachée: une aura incroyablement ancienne qui semblait exister depuis des éons.
 
-Liu Jinbiao fixa le vieil homme et dit froidement: « Je sais que vous envisagez de fouiller mon âme, mais je peux vous prévenir qu'avant même que vous n'ayez terminé, mon maître sera là. Ce qui attend votre Secte Cloud, c'est une catastrophe de destruction totale! »
+Liu Jinbiao fixa le vieil homme et dit froidement: « Je sais que vous envisagez de fouiller mon âme, mais je peux vous prévenir qu'avant même que vous n'ayez terminé, mon maître sera là. Ce qui attend votre Secte du Nuage, c'est une catastrophe de destruction totale! »
 
 « Même si l'Exalté Empyréen Gu Ya venait lui-même, il devrait encore faire preuve de raison. C'est vous qui avez triché en premier! » Le vieil homme ne parvenait pas à percer le mystère de Liu Jinbiao. Ce dernier restait d'un calme absolu, ce qui était extrêmement rare. À moins de posséder un soutien colossal, comment pouvait-il être aussi serein?
 
-« Tricher? Ce vieux Liu Jinbiao cultive le Dao de la tromperie... et alors si j'ai dupé votre insignifiante Secte Cloud? Ai-je volé une seule vie ou un seul trésor? »
+« Tricher? Ce vieux Liu Jinbiao cultive le Dao de la tromperie... et alors si j'ai dupé votre insignifiante Secte du Nuage? Ai-je volé une seule vie ou un seul trésor? »
 
 « Je n'ai apporté que quelques mortels désireux de cultiver, et je vous les ai échangés contre des pilules. Croyez-vous vraiment que ces pilules m'intéressent? » Les yeux de Liu Jinbiao étaient empreints de mépris. Sa main droite effleura son sac de rangement, et une quantité massive de pilules s'en échappa jusqu'à former une petite colline.
 
-« Regardez bien. Ces dizaines de pilules proviennent de votre Secte Cloud. Elles n'étaient que des gages pour la pratique de mon Dao de la tromperie. Pensez-vous vraiment que je me soucie de ces pilules? » Liu Jinbiao éclata de rire et agita sa main droite. Les pilules se pulvérisèrent instantanément en poussière.
+« Regardez bien. Ces dizaines de pilules proviennent de votre Secte du Nuage. Elles n'étaient que des gages pour la pratique de mon Dao de la tromperie. Pensez-vous vraiment que je me soucie de ces pilules? » Liu Jinbiao éclata de rire et agita sa main droite. Les pilules se pulvérisèrent instantanément en poussière.
 
 Cette scène soudaine stupéfia le vieil homme.
 
 « Oubliez ces pilules, j'ai même dérobé de nombreux trésors! Mais croyez-vous que cela m'importe? » Liu Jinbiao ricana de nouveau et toucha son sac de rangement. Des dizaines de trésors destinés aux cultivateurs de la Formation du Noyau en sortirent. D'un revers de manche, il les fit tous voler en éclats.
 
-« Je vous le dis, ces choses ne m'intéressent absolument pas! Si vous osez fouiller mon âme, je m'assurerai que l'intégralité de votre Secte Cloud soit anéantie! Réfléchissez-y bien. Adieu! » Liu Jinbiao ricana et se détourna. Il ne jeta plus un regard au vieil homme stupéfait et commença à sortir du palais.
+« Je vous le dis, ces choses ne m'intéressent absolument pas! Si vous osez fouiller mon âme, je m'assurerai que l'intégralité de votre Secte du Nuage soit anéantie! Réfléchissez-y bien. Adieu! » Liu Jinbiao ricana et se détourna. Il ne jeta plus un regard au vieil homme stupéfait et commença à sortir du palais.
 
 En s'éloignant, il n'avait aucune sueur froide sur le corps et son rythme cardiaque était parfaitement normal. À cet instant, il se croyait lui-même, alors comment pourrait-il avoir peur?
 
@@ -38,13 +38,13 @@ Il n'avait jamais été confronté à une telle situation!
 
 « Si ses paroles sont vraies, je... je ne peux vraiment pas le provoquer. Après tout, ce qu'il dit est exact: il n'a volé aucun trésor de valeur ni aucune vie, seulement quelques pilules de bas rang... » Le vieil homme resta interdit un long moment.
 
-À ce moment précis, Liu Jinbiao sortit du temple, mais les disciples de la Secte Cloud lui barrèrent la route.
+À ce moment précis, Liu Jinbiao sortit du temple, mais les disciples de la Secte du Nuage lui barrèrent la route.
 
 Wang Lin avait tout observé et ne put s'empêcher d'être choqué. Il s'attendait à ce que Liu Jinbiao en pâtisse un peu, mais les événements avaient évolué trop rapidement. Même Wang Lin ne put s'empêcher d'admirer Liu Jinbiao.
 
 « Ce jeu d'acteur... est trop réaliste... » Wang Lin sourit amèrement en secouant la tête.
 
-Le vieil homme fixait Liu Jinbiao qui, désormais, se tenait à l'extérieur du palais, entouré par les disciples de la Secte Cloud.
+Le vieil homme fixait Liu Jinbiao qui, désormais, se tenait à l'extérieur du palais, entouré par les disciples de la Secte du Nuage.
 
 « Si j'avais su que cela serait si complexe, je l'aurais ignoré. Pourquoi même l'avoir capturé? Bien sûr, ses propos semblent crédibles sans l'être vraiment. Mais si je le laisse partir ainsi, cela signifierait que j'ai été intimidé par ses paroles, et ma perte serait trop grande... » Le vieil homme serra les dents, prêt à intervenir.
 
@@ -64,11 +64,11 @@ Si Liu Jinbiao avait sorti le jeton immédiatement, le vieil homme aurait été 
 
 « Ouvrez la porte et laissez-le... partir! »
 
-Tous les disciples de la Secte Cloud présents furent stupéfaits. La Secte Cloud était la plus faible secte du Continent du Grand Sage. Ils ne comptaient qu'un seul cultivateur du troisième niveau, un ancêtre Vide du Nirvana qui restait en retraite méditative toute l'année.
+Tous les disciples de la Secte du Nuage présents furent stupéfaits. La Secte du Nuage était la plus faible secte du Continent du Grand Sage. Ils ne comptaient qu'un seul cultivateur du troisième niveau, un ancêtre Vide du Nirvana qui restait en retraite méditative toute l'année.
 
 Quant au vieil homme, il n'était qu'au stade de la Souffrance Céleste. Il n'avait aucune intention de parier sur une chose aussi insignifiante.
 
-L'expression de Liu Jinbiao resta impassible et il laissa échapper un ricanement intérieur. Il s'envola loin de la Secte Cloud et ce n'est que lorsqu'il fut à distance respectable qu'il atterrit dans une vieille forêt, au cœur des montagnes.
+L'expression de Liu Jinbiao resta impassible et il laissa échapper un ricanement intérieur. Il s'envola loin de la Secte du Nuage et ce n'est que lorsqu'il fut à distance respectable qu'il atterrit dans une vieille forêt, au cœur des montagnes.
 
 Dès qu'il toucha le sol, son visage devint livide. Il ne pouvait plus contrôler son corps qui se mit à trembler violemment. Il était envahi par une terreur persistante.
 
@@ -84,13 +84,13 @@ Cependant, à cet instant précis, une voix douce s'éleva derrière lui.
 
 Cette voix surgit si soudainement qu'elle fit tressaillir Liu Jinbiao. Il se calma cependant immédiatement et tourna un regard froid vers l'arrière. Il vit un jeune homme aux cheveux blancs, vêtu d'habits blancs, qui l'observait.
 
-« On dirait que votre Secte Cloud ne tient pas à la vie! » lança lentement Liu Jinbiao, mais au fond de lui, l'individu devant lui lui inspirait une sensation indescriptible. Même après s'être lui-même trompé, il ressentait toujours cette peur.
+« On dirait que votre Secte du Nuage ne tient pas à la vie! » lança lentement Liu Jinbiao, mais au fond de lui, l'individu devant lui lui inspirait une sensation indescriptible. Même après s'être lui-même trompé, il ressentait toujours cette peur.
 
-« Je ne suis pas de la Secte Cloud. » Wang Lin sourit en regardant Liu Jinbiao avant de s'asseoir. D'un geste de la main, il sortit un pichet à vin et en prit une gorgée.
+« Je ne suis pas de la Secte du Nuage. » Wang Lin sourit en regardant Liu Jinbiao avant de s'asseoir. D'un geste de la main, il sortit un pichet à vin et en prit une gorgée.
 
 « Peu importe d'où vous venez, si vous osez me blesser, mon maître viendra immédiatement pour vous anéantir! » La voix de Liu Jinbiao tremblait et il recula inconsciemment de quelques pas. Malgré l'usage de la seconde étape de la tromperie, son corps vacillait; il sentait que son mensonge était sur le point de s'effondrer. Il lui semblait incapable de duper l'homme en face de lui.
 
-Il n'avait jamais ressenti cela, même au sein de la Secte Cloud. En réalité, il n'avait jamais éprouvé une telle sensation de sa vie. Tremblant, il s'appuya contre un arbre et fixa Wang Lin.
+Il n'avait jamais ressenti cela, même au sein de la Secte du Nuage. En réalité, il n'avait jamais éprouvé une telle sensation de sa vie. Tremblant, il s'appuya contre un arbre et fixa Wang Lin.
 
 « Mon maître est le disciple du Grand Empyréen Gemini, l'Exalté Empyréen Gu Ya. Je pratique le Dao de la tromperie avec son approbation. J'ai... j'ai le jeton de mon maître! » Liu Jinbiao tremblait en sortant le jeton de bois noir. Alors qu'il s'apprêtait à l'agiter, la main de Wang Lin s'étira et le jeton vola directement dans sa paume.
 

@@ -20,15 +20,15 @@ Les yeux de Wang Lin s'illuminèrent, révélant un désir de combat. Il ne parv
 
 Wang Lin reconnut immédiatement ces yeux; c'étaient les mêmes qu'hier. Il fut surpris que ce vieil homme le connaisse. Si Liu Mei avait pu le trouver, il n'était pas étonnant que l'ancêtre de la Transformation de l'Âme de la Secte du Raffinage de l'Âme le connaisse également.
 
-« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami », dit-il, avant de pointer du doigt la Montagne du Raffinage de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte du Raffinage de l'Âme. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
+« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami », dit-il, avant de pointer du doigt la Montagne du Raffinage de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Cadet Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte du Raffinage de l'Âme. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
 
-La silhouette exquise de Liu Mei apparut au-dessus de la Montagne du Raffinage de l'Âme. Elle regarda le vieil homme avec une expression charmante et murmura: « Senior, junior a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
+La silhouette exquise de Liu Mei apparut au-dessus de la Montagne du Raffinage de l'Âme. Elle regarda le vieil homme avec une expression charmante et murmura: « Aîné, ce cadet a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
 
 L'expression de Wang Lin resta impassible, mais il commença rapidement à analyser la situation.
 
 Le vieil homme déclara calmement: « Six respirations! »
 
-Liu Mei soupira. Elle mordit sa lèvre inférieure et dit: « Senior, si junior part ainsi, mon maître me punira. Si mon maître demande ce qui s'est passé, je n'aurai d'autre choix que de lui dire la vérité. »
+Liu Mei soupira. Elle mordit sa lèvre inférieure et dit: « Aîné, si cadet part ainsi, mon maître me punira. Si mon maître demande ce qui s'est passé, je n'aurai d'autre choix que de lui dire la vérité. »
 
 « Quatre respirations! » L'intention meurtrière jaillit du vieil homme. Il tendit la main et l'image d'un drapeau de plus de dix mètres de haut apparut dans sa paume.
 
@@ -40,7 +40,7 @@ Le vieil homme ne daigna même pas regarder où Liu Mei s'était rendue. Il se t
 
 L'existence de Liu Mei était comme une épine dans le flanc de Wang Lin. En sa présence, il avait l'impression d'être la cible d'un cobra. Maintenant qu'elle était partie, cette sensation s'était soudainement dissipée.
 
-Wang Lin eut un sourire amer. « Quel genre de petit cadeau est-ce là? Le Senior est prêt à offenser Suzaku; plutôt que d'en être heureux, cela m'effraie au plus haut point. »
+Wang Lin eut un sourire amer. « Quel genre de petit cadeau est-ce là? L'Aîné est prêt à offenser Suzaku; plutôt que d'en être heureux, cela m'effraie au plus haut point. »
 
 « Cet ancêtre de la Secte du Raffinage de l'Âme est très intéressant », pensa Wang Lin. Il était certain que Liu Mei avait reçu la permission de l'ancêtre pour entrer dans la secte, sans quoi elle n'aurait jamais pu y pénétrer.
 
@@ -50,7 +50,7 @@ Ce n'était pas un petit cadeau!
 
 Le vieil homme rit et déclara: « Cela ne suffit pas pour offenser le pays de Suzaku. L'actuel Suzaku est vieux et n'est peut-être plus en mesure de faire obéir tout le pays de Suzaku. »
 
-Wang Lin réfléchit un instant, puis regarda le vieil homme: « Que voulez-vous, Senior? Vous n'avez qu'à me le dire. »
+Wang Lin réfléchit un instant, puis regarda le vieil homme: « Que voulez-vous, Aîné? Vous n'avez qu'à me le dire. »
 
 Une lueur d'appréciation brilla dans les yeux du vieil homme: « Ne sois pas si pressé; ce n'était que le premier cadeau. Voici maintenant le second. Ceng Niu, ton âme originelle est presque rétablie. La raison pour laquelle tu es venu me trouver était d'emprunter ma pression pour accélérer ta guérison. Mon second cadeau est de t'aider à recouvrer ta culture! »
 

@@ -14,7 +14,7 @@ Le crapaud tonnerre fixait la bête moustique avec une expression provocatrice.
 
 Wang Lin esquissa un léger sourire et sauta du dos du crapaud tonnerre. Ignorant les deux bêtes qui se défiaient du regard, il se dirigea vers la pagode.
 
-Arrivé devant elle, il joignit les mains, prit une profonde inspiration et déclara: « Senior, le junior a été chargé par le senior Zhou Yi de veiller sur vous pendant mille ans. Le Cimetière des Immortels sera extrêmement dangereux; je souhaiterais donc demander au senior de me prêter une épée céleste. »
+Arrivé devant elle, il joignit les mains, prit une profonde inspiration et déclara: « Aîné, le cadet a été chargé par l'aîné Zhou Yi de veiller sur vous pendant mille ans. Le Cimetière des Immortels sera extrêmement dangereux; je souhaiterais donc demander à l'aîné de me prêter une épée céleste. »
 
 Sur ce, Wang Lin s'inclina et pénétra dans la pagode.
 
@@ -52,13 +52,13 @@ Pourtant, en la regardant à présent, outre les deux gemmes et les glands doré
 
 Les yeux de Wang Lin pétillèrent. Il ne croyait pas à une simple coïncidence. Serait-il possible que le créateur de Richesse ait un jour vu cette épée céleste? Mais cela n'avait aucun sens non plus.
 
-Ce senior du pays Zhao n'était au maximum qu'un cultivateur de l'Âme Naissante. Comment aurait-il pu se rendre dans le Royaume Céleste pour voir une épée si cachée qu'elle ne fut révélée que lorsque la femme vêtue de blanc l'appela?
+Cet aîné du pays Zhao n'était au maximum qu'un cultivateur de l'Âme Naissante. Comment aurait-il pu se rendre dans le Royaume Céleste pour voir une épée si cachée qu'elle ne fut révélée que lorsque la femme vêtue de blanc l'appela?
 
-Wang Lin se mit à réfléchir, tentant de se remémorer la vie de ce senior telle qu'elle était inscrite sur la plaque à côté de Richesse.
+Wang Lin se mit à réfléchir, tentant de se remémorer la vie de cet aîné telle qu'elle était inscrite sur la plaque à côté de Richesse.
 
 Cet homme avait été considéré comme un bon à rien au sein de la Secte Heng Yue, mais il avait réussi à sauver la secte d'un grand désastre. Puis, il était mort en laissant cette grande épée à ses futurs disciples.
 
-« Un homme totalement inutile a pu sauver la Secte Heng Yue... Je n'y avais pas prêté attention à l'époque, mais avec le recul, ce senior devait bien cacher un secret! » Les yeux de Wang Lin s'illuminèrent. Il reporta son regard sur l'épée céleste.
+« Un homme totalement inutile a pu sauver la Secte Heng Yue... Je n'y avais pas prêté attention à l'époque, mais avec le recul, cet aîné devait bien cacher un secret! » Les yeux de Wang Lin s'illuminèrent. Il reporta son regard sur l'épée céleste.
 
 « Cette épée céleste a déjà perdu son âme, elle est donc bien affaiblie. Si je veux l'utiliser à pleine puissance, j'ai besoin d'une âme d'épée... » Pensant cela, Wang Lin frappa son sac de rangement.
 

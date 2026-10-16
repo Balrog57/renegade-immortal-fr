@@ -10,7 +10,7 @@ Wang Lin utilisa un seul sort pour repousser Tang Yanfeng, révélant ainsi sa c
 
 Les cultivateurs environnants n'eurent qu'un instant pour réfléchir avant que Zhan Konglie ne s'élance dans l'arène.
 
-Ses yeux brillèrent comme des torches alors qu'il fixait Wang Lin avec une expression extrêmement grave, avant de joindre les mains en signe de respect. « Senior Xu Mu, veuillez m'instruire! »
+Ses yeux brillèrent comme des torches alors qu'il fixait Wang Lin avec une expression extrêmement grave, avant de joindre les mains en signe de respect. « Aîné Xu Mu, veuillez m'instruire! »
 
 L'expression de Wang Lin resta neutre tandis qu'il contemplait Zhan Konglie. Son regard était empreint d'une telle hauteur qu'il semblait observer l'autre depuis les cieux. Le Wang Lin d'aujourd'hui était bien différent de celui d'autrefois.
 
@@ -20,15 +20,15 @@ Cependant, sa culture avait désormais franchi l'étape du Yang Corporel pour at
 
 Wang Lin détourna le regard et dit calmement: « Tu n'es pas mon adversaire. Compte tenu du fait que nous nous connaissons, recule! »
 
-Zhan Konglie réfléchit en silence tout en observant Wang Lin. Ses yeux étaient empreints d'une émotion complexe lorsqu'il déclara: « Senior, il y a 700 ans, Junior a compris la nature inflexible du tonnerre sur la planète Tonnerre Céleste. J'ai fusionné cette inflexibilité dans mon propre corps. Après être revenu chez moi, j'ai cultivé pendant un siècle devant la relique laissée par l'ancêtre de ma famille Zhan pour forger mon domaine. Mon domaine est l'intention de bataille inflexible! »
+Zhan Konglie réfléchit en silence tout en observant Wang Lin. Ses yeux étaient empreints d'une émotion complexe lorsqu'il déclara: « Aîné, il y a 700 ans, ce cadet a compris la nature inflexible du tonnerre sur la planète Tonnerre Céleste. J'ai fusionné cette inflexibilité dans mon propre corps. Après être revenu chez moi, j'ai cultivé pendant un siècle devant la relique laissée par l'ancêtre de ma famille Zhan pour forger mon domaine. Mon domaine est l'intention de bataille inflexible! »
 
 « Zhan est mon nom, et c'est aussi mon domaine. Il n'y a que l'intention de bataille! »
 
-« Grâce à ce domaine, mon niveau de culture a progressé par bonds prodigieux, sans aucun obstacle, jusqu'à ce qu'il y a 400 ans, j'atteigne l'étape du Yang Corporel, mais... Même aujourd'hui, ma culture n'a plus progressé. Senior, ma voie est-elle juste ou fausse?! »
+« Grâce à ce domaine, mon niveau de culture a progressé par bonds prodigieux, sans aucun obstacle, jusqu'à ce qu'il y a 400 ans, j'atteigne l'étape du Yang Corporel, mais... Même aujourd'hui, ma culture n'a plus progressé. Aîné, ma voie est-elle juste ou fausse?! »
 
 Après avoir prononcé ces mots, un silence de mort s'abattit sur les environs. Tous les cultivateurs se turent, et même certains des ancêtres restèrent muets. À la lueur de leurs regards, il était évident que cette question leur avait également traversé l'esprit.
 
-« J'ai autrefois interrogé l'ancêtre de ma famille Zhan, Lie Yunzi, mais la réponse que j'ai obtenue n'a fait que m'embrouiller davantage! » Zhan Konglie fixa Wang Lin et reprit: « Senior, je vous en prie, instruisez-moi! »
+« J'ai autrefois interrogé l'ancêtre de ma famille Zhan, Lie Yunzi, mais la réponse que j'ai obtenue n'a fait que m'embrouiller davantage! » Zhan Konglie fixa Wang Lin et reprit: « Aîné, je vous en prie, instruisez-moi! »
 
 Le regard de Wang Lin demeura imperturbable alors qu'il répondait calmement: « Ton intention de bataille est bien trop fragile! »
 
@@ -38,7 +38,7 @@ Les yeux de Zhan Konglie brillèrent intensément, avant de s'obscurcir rapideme
 
 Le corps de Zhan Konglie trembla et il leva soudainement les yeux vers Wang Lin. Bien que les paroles de Wang Lin différassent de celles de Lie Yunzi, le sens profond était extrêmement similaire.
 
-« Veuillez m'instruire, Senior! Pour cela, je suis prêt à vous offrir mon idéal de voie! » Zhan Konglie recula de quelques pas et s'inclina profondément devant Wang Lin.
+« Veuillez m'instruire, Aîné! Pour cela, je suis prêt à vous offrir mon idéal de voie! » Zhan Konglie recula de quelques pas et s'inclina profondément devant Wang Lin.
 
 « Offrir si négligemment ton idéal de voie... à quoi bon prôner une quelconque inflexibilité? Zhan Konglie, puisque nous nous connaissons, je vais t'offrir une seule sentence. L'intention de bataille forgée par des combats incessants est puissante, mais cette force a ses limites! La véritable intention de bataille surgit lorsque ton cœur possède une conviction qui t'oblige à combattre, qui t'oblige à gagner et qui te donne la détermination absolue de lutter! »
 

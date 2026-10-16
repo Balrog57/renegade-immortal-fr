@@ -100,7 +100,7 @@ Wang Lin avait manqué la sortie. Il serra les poings, le visage extrêmement so
 
 S'il cédait à l'agitation et se précipitait, il lui serait encore plus difficile de s'échapper.
 
-À cet instant, quelque part dans le Royaume Céleste du Tonnerre, le vieil homme, les mains derrière le dos, sourit et marmonna: « Cela faisait longtemps qu'une personne liée à ce vieil homme n'était apparue. Si ce junior parvient à sortir en sept jours, cela signifie que son destin est encore plus grand! J'espère vraiment que ce petit gars réussira. Il y a tant d'endroits fascinants dans ce Royaume Céleste du Tonnerre qui sont parfaitement adaptés aux personnes liées à ce vieil homme! »
+À cet instant, quelque part dans le Royaume Céleste du Tonnerre, le vieil homme, les mains derrière le dos, sourit et marmonna: « Cela faisait longtemps qu'une personne liée à ce vieil homme n'était apparue. Si ce cadet parvient à sortir en sept jours, cela signifie que son destin est encore plus grand! J'espère vraiment que ce petit gars réussira. Il y a tant d'endroits fascinants dans ce Royaume Céleste du Tonnerre qui sont parfaitement adaptés aux personnes liées à ce vieil homme! »
 
 Trois jours passèrent. Wang Lin traversait les passages souterrains comme un éclair, son sens divin déployé au maximum. Il trouvait une issue presque toutes les demi-heures, mais il ne s'en approchait jamais et poursuivait sa route.
 

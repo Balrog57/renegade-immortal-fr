@@ -68,7 +68,7 @@ C'était comme si cette zone était un véritable territoire de la mort!
 
 Le regard de Wang Lin se détourna de l'homme mort pour se poser sur le jeune homme qui avait pénétré dans la zone interdite juste après lui.
 
-Le visage du jeune homme devint livide. Il était encore plus faible que l'homme d'âge moyen; il venait à peine d'atteindre le stade de l'Yin Illusoire et sa culture n'était pas encore stabilisée. En croisant le regard de Wang Lin, il recula sans hésiter hors de la zone interdite et s'exclama: « Aîné, je vous en prie, ne me blâmez pas! Ce junior reconnaît ses torts. Désormais, ce junior ne posera même pas un demi-pas dans cette zone. Si je romps ma promesse, punissez-moi comme l'homme précédent! »
+Le visage du jeune homme devint livide. Il était encore plus faible que l'homme d'âge moyen; il venait à peine d'atteindre le stade de l'Yin Illusoire et sa culture n'était pas encore stabilisée. En croisant le regard de Wang Lin, il recula sans hésiter hors de la zone interdite et s'exclama: « Aîné, je vous en prie, ne me blâmez pas! Ce cadet reconnaît ses torts. Désormais, ce cadet ne posera même pas un demi-pas dans cette zone. Si je romps ma promesse, punissez-moi comme l'homme précédent! »
 
 Tout en parlant, il leva la main gauche et activa son énergie originelle. Son petit doigt explosa instantanément en une brume de sang.
 

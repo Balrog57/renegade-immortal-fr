@@ -54,7 +54,7 @@ Deux éclats de sabre volèrent rapidement vers le village. Lorsqu'ils se posèr
 
 Une voix empreinte de haine s'échappa de l'individu encapuchonné: « Zhang Kuang, les parents de Wang Lin vivent bien ici? »
 
-À ses côtés se tenait un jeune homme très beau, au regard perçant et aux traits masculins marqués, mais dont les yeux manquaient d'éclat, empreints d'une certaine avidité. Il murmura: « Senior frère, ce Wang Zhuo est vraiment méprisable. Je pensais qu'après s'être autant moqué de Wang Lin, il finirait par me dire où se trouvaient ses parents, mais il n'a pas ouvert la bouche. Heureusement, j'ai été assez malin pour vérifier les registres des disciples de la Secte Heng Yue et j'ai découvert qu'il venait de ce village, mais j'ignore quelle est sa maison. »
+À ses côtés se tenait un jeune homme très beau, au regard perçant et aux traits masculins marqués, mais dont les yeux manquaient d'éclat, empreints d'une certaine avidité. Il murmura: « frère aîné, ce Wang Zhuo est vraiment méprisable. Je pensais qu'après s'être autant moqué de Wang Lin, il finirait par me dire où se trouvaient ses parents, mais il n'a pas ouvert la bouche. Heureusement, j'ai été assez malin pour vérifier les registres des disciples de la Secte Heng Yue et j'ai découvert qu'il venait de ce village, mais j'ignore quelle est sa maison. »
 
 Puis, il pensa: « Wang Lin, nous appartenions au même secteur autrefois, j'avais encore une certaine considération pour toi. Mais désormais, je suis un disciple de la Secte Xuan Dao. Peu importe, je dois m'emparer du trésor que tu possèdes. »
 
@@ -64,7 +64,7 @@ Si cette poussière pouvait être cachée par les vêtements, l'odeur qu'elle d�
 
 Il lâcha un reniflement froid: « Zhang Kuang, tu prétends que Wang Lin est passé de déchet à expert si rapidement grâce à ce liquide? »
 
-Zhang Kuang endurait l'odeur. La proximité de Zhou Peng lui retournait l'estomac, mais il n'osait rien montrer. Il répondit promptement: « Senior frère, comment oserais-je vous tromper? Je vous ai déjà montré le liquide. C'est celui que Wang Lin m'a donné en échange des incantations pour les étapes de Condensation de Qi. Je jure que si je mens, je n'atteindrai jamais l'Établissement des Fondations! »
+Zhang Kuang endurait l'odeur. La proximité de Zhou Peng lui retournait l'estomac, mais il n'osait rien montrer. Il répondit promptement: « frère aîné, comment oserais-je vous tromper? Je vous ai déjà montré le liquide. C'est celui que Wang Lin m'a donné en échange des incantations pour les étapes de Condensation de Qi. Je jure que si je mens, je n'atteindrai jamais l'Établissement des Fondations! »
 
 Zhou Peng retira sa capuche, révélant son visage noirci par la poussière. Une lueur malveillante brilla dans ses yeux: « Bien. Zhang Kuang, si ce que tu dis est vrai, alors à l'avenir, tant que je serai là, personne n'osera s'en prendre à toi au sein de la Secte Xuan Dao. »
 

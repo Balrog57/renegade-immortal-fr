@@ -16,7 +16,7 @@ Dès qu'il fut sorti du vortex, il se retourna et leva la main droite. Le bras d
 
 Le vide fut lacéré, fendant le vortex en deux et provoquant son effondrement immédiat.
 
-Tout cela se produisit en un éclair. Wang Lin s'engouffra dans la faille créée par le sort du « Rippling Heaven » et disparut.
+Tout cela se produisit en un éclair. Wang Lin s'engouffra dans la faille créée par le sort du « Ciel Ondoyant » et disparut.
 
 L'instant après sa disparition, un grognement froid retentit dans le vide. Des grondements tonnantes résonnèrent tandis que le Daoïste aux Sept Couleurs sortait du vortex effondré.
 

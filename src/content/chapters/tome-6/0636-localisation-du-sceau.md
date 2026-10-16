@@ -22,7 +22,7 @@ En songeant à la marionnette cadavre de Sun Tai, Wang Lin ne put s'empêcher de
 
 Wang Lin prit une profonde inspiration pour rassembler ses pensées. Ses yeux s'illuminèrent alors qu'il observait les fissures ramifiées qui l'entouraient. Ne parvenant à déceler aucune aura de Zhou Yi, il allait devoir les inspecter une à une lui-même.
 
-« Le Senior Zhou Yi a été scellé ici par Ling Tianhou; la fissure abritant le sceau doit donc porter l'aura de Ling Tianhou! » Les yeux de Wang Lin se plissèrent tandis que son Sens Divin se déployait pour sonder les failles environnantes.
+« L'Aîné Zhou Yi a été scellé ici par Ling Tianhou; la fissure abritant le sceau doit donc porter l'aura de Ling Tianhou! » Les yeux de Wang Lin se plissèrent tandis que son Sens Divin se déployait pour sonder les failles environnantes.
 
 Au bout d'un court instant, Wang Lin fronça les sourcils. Il avait inspecté toutes les fissures alentour, mais n'avait trouvé aucune trace de Zhou Yi.
 

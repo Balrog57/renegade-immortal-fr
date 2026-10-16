@@ -20,7 +20,7 @@ L'expression de Wang Lin demeura neutre. Il ne ralentit aucunement et poursuivit
 
 La femme nommée Xi Zifeng cria rapidement: « Zhan Yun, s'il te plaît, attends! »
 
-La femme nommée Zhan dit promptement à Wang Lin: « Senior, je vous en prie, arrêtez-vous. Mes amis veulent monter à bord. »
+La femme nommée Zhan dit promptement à Wang Lin: « Aîné, je vous en prie, arrêtez-vous. Mes amis veulent monter à bord. »
 
 Wang Lin ouvrit les yeux, laissant paraître de l'impatience. Il l'ignora.
 
@@ -30,7 +30,7 @@ Xi Zifeng saisit rapidement la soie rouge et fut aussitôt tirée vers l'avant. 
 
 Ils poussèrent un soupir de soulagement et remarquèrent immédiatement Wang Lin au loin. L'un des hommes regarda Zhan Yun et demanda: « Qui est ce compagnon de culture? »
 
-Sans attendre la réponse de Zhan Yun, Xi Zifeng l'examina de plus près et son expression changea radicalement. Elle fit quelques pas en avant, s'inclina et dit respectueusement: « Junior Xi Zifeng salue Senior! Merci, Senior, d'avoir sauvé Junior à deux reprises! »
+Sans attendre la réponse de Zhan Yun, Xi Zifeng l'examina de plus près et son expression changea radicalement. Elle fit quelques pas en avant, s'inclina et dit respectueusement: « Cadet Xi Zifeng salue Aîné! Merci, Aîné, d'avoir sauvé cadet à deux reprises! »
 
 En parlant, ses joues s'empourprèrent.
 
@@ -70,7 +70,7 @@ De plus en plus de cultivateurs commencèrent à s'agglutiner, formant une longu
 
 Cependant, une fois à bord, quel que soit leur niveau de culture, ils hésitaient toujours avant de remettre les jades célestes en échange d'une place.
 
-Une raison majeure de cette hésitation était la renommée que Wang Lin avait acquise lors de la bataille devant la porte céleste. Même des cultivateurs au stade du Yang Corporel l'appelaient respectueusement « Senior » après l'avoir aperçu.
+Une raison majeure de cette hésitation était la renommée que Wang Lin avait acquise lors de la bataille devant la porte céleste. Même des cultivateurs au stade du Yang Corporel l'appelaient respectueusement « Aîné » après l'avoir aperçu.
 
 Après avoir réceptionné les sacs de rangement remplis de jades, Wang Lin soupira et ignora la foule. Il sentait que Shengong Hu n'était pas loin.
 

@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1385 - Frightened Bird (2)
 slug: oiseau-effraye-2
 ---
-Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan des Scorpions Noirs. La culture de Zhong Big Red étant insuffisante et ignorant l'identité de Cupidité, il vomit directement.
+Cette puanteur était puissante et persistante. Lorsqu'elle enveloppa la terre, elle provoqua des haut-le-cœur chez de nombreux membres du Clan des Scorpions Noirs. La culture de Zhong Grand Rouge étant insuffisante et ignorant l'identité de Cupidité, il vomit directement.
 
 Ce vomissement rendit l'expression de Cupidité extrêmement sombre. D'un revers de manche, il fit apparaître un grand éventail qui se mit à briller avant de s'élancer violemment vers l'avant.
 
@@ -16,21 +16,21 @@ Les membres du Clan des Scorpions Noirs ne purent résister à ce souffle et cra
 
 La terre s'effondra et le ciel sembla se déchirer. L'homme nommé Zhang cracha du sang avant de sombrer dans le coma; projeté au loin, il disparut sans laisser de trace. La puissance de l'éventail stupéfia tous les cultivateurs présents!
 
-Zhong Big Red fut saisi par une force puissante et traîné directement devant Cupidité. Plus il approchait du vieil homme, plus l'odeur devenait insupportable, rendant son visage extrêmement disgracieux sous l'assaut de ce relent.
+Zhong Grand Rouge fut saisi par une force puissante et traîné directement devant Cupidité. Plus il approchait du vieil homme, plus l'odeur devenait insupportable, rendant son visage extrêmement disgracieux sous l'assaut de ce relent.
 
-Cupidité fixa Zhong Big Red et demanda lentement: « Puant? »
+Cupidité fixa Zhong Grand Rouge et demanda lentement: « Puant? »
 
-« Pas puant, pas puant... » L'esprit de Zhong Big Red tremblait, mais il s'efforça d'endurer l'odeur. Craignant que cet homme ne le croie, il prit une profonde inspiration et fit semblant d'être en extase devant le sortilège. Cependant, ce geste fut comme « dessiner des pieds sur un serpent » — une maladresse inutile qui le fit vomir une fois de plus.
+« Pas puant, pas puant... » L'esprit de Zhong Grand Rouge tremblait, mais il s'efforça d'endurer l'odeur. Craignant que cet homme ne le croie, il prit une profonde inspiration et fit semblant d'être en extase devant le sortilège. Cependant, ce geste fut comme « dessiner des pieds sur un serpent » — une maladresse inutile qui le fit vomir une fois de plus.
 
-Voyant l'intention meurtrière dans les yeux de Cupidité, Zhong Big Red s'efforça de hurler: « La culture de mon maître défie le ciel! Si vous me tuez, vous mourrez sans aucun doute! Même le Patriarche du Clan des Scorpions ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal! »
+Voyant l'intention meurtrière dans les yeux de Cupidité, Zhong Grand Rouge s'efforça de hurler: « La culture de mon maître défie le ciel! Si vous me tuez, vous mourrez sans aucun doute! Même le Patriarche du Clan des Scorpions ne peut résister à un seul coup de mon maître. Bien que votre niveau de culture soit élevé, vous n'êtes pas son égal! »
 
 Cupidité ricana.
 
-À ce moment crucial entre la vie et la mort, Zhong Big Red joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan des Scorpions Noirs est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
+À ce moment crucial entre la vie et la mort, Zhong Grand Rouge joua le tout pour le tout et rugit: « Mon maître est en route et peut revenir à tout instant! Si vous osez me toucher, vous mourrez sans aucun doute! Le Clan des Scorpions Noirs est devenu l'esclave de mon maître parce qu'ils m'ont blessé. Il en sera de même pour vous! »
 
 « Sa culture défie le ciel? Si vous n'aviez rien dit, cela aurait été une chose, mais maintenant, ce vieil homme devra voir de quel pouvoir dispose votre maître. Puisque l'esclave a offensé ce vieil homme, le maître est également coupable. Quiconque provoque mes limites doit mourir! »
 
-Cupidité agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Big Red. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
+Cupidité agita la main droite et une vague d'énergie originelle s'engouffra dans le corps de Zhong Grand Rouge. Ce dernier cracha du sang comme si son corps entier allait se briser, puis s'effondra non loin de là.
 
 « Si vous étiez membres du Clan des Scorpions Noirs, il serait regrettable de vous tuer tous les deux, mais puisque ce n'est pas le cas, je brûle d'envie de voir comment votre maître compte me tuer! » D'un revers de manche, Cupidité déchaîna une bourrasque monumentale qui balaya tous les membres du Clan des Scorpions Noirs hors de la planète.
 
@@ -50,7 +50,7 @@ Tout cela excita les membres du Clan de l'Évasion Nuageuse; ils avaient toujour
 
 « Le Seigneur Cupidité possède d'innombrables trésors, nul ne sait combien. Être témoin de cela est une véritable bénédiction! » Les cultivateurs du Clan de l'Évasion Nuageuse acquiesçaient avec enthousiasme.
 
-Zhong Big Red fixait le ciel, terrifié. Il ignorait qui était Cupidité, mais en voyant l'excitation des cultivateurs environnants, son cœur sombra.
+Zhong Grand Rouge fixait le ciel, terrifié. Il ignorait qui était Cupidité, mais en voyant l'excitation des cultivateurs environnants, son cœur sombra.
 
 Cupidité affichait un air hautain lorsqu'il agita la main droite, déclenchant un rugissement provenant de la forêt en contrebas. C'était comme si la forêt entière s'était animée et tordue. Ce qui apparut devant l'assistance les fit tous haleter de stupeur!
 
@@ -64,13 +64,13 @@ Le corps de Cupidité vacilla puis il se tint sur la tête du géant d'arbres, s
 
 Cupidité agita une fois de plus la main droite et une brume noire apparut, se contractant finalement pour former une lance. Cette lance de brume dégageait une aura destructrice et terrifiante!
 
-L'apparition de tous ces trésors ébranla les cultivateurs environnants qui contemplaient Cupidité avec une crainte révérencieuse. Même Zhong Big Red commença à paniquer, le cœur lourd d'amertume.
+L'apparition de tous ces trésors ébranla les cultivateurs environnants qui contemplaient Cupidité avec une crainte révérencieuse. Même Zhong Grand Rouge commença à paniquer, le cœur lourd d'amertume.
 
 Cupidité savourait ces regards. En les recevant, il pouvait oublier la puanteur de son corps et l'humiliation subie face à Wang Lin.
 
 « Ce ne sont là que quelques-uns des nombreux trésors de ce vieil homme. Je n'ai pas encore sorti mes pièces les plus puissantes. J'en possède tant que même les cultivateurs de la troisième étape ne peuvent rivaliser! Vous avez le privilège de voir combien de temps ce cultivateur du Fléau Céleste pourra survivre face à moi! » Sa voix puissante résonna, décuplant l'excitation de la foule.
 
-Le visage de Zhong Big Red devint livide: « C'est fini... C'est fini... Je ne pensais pas qu'il possédait autant de trésors, et ils semblent tous si redoutables. D'après les réactions des gens, il a déjà tué des cultivateurs du Fléau Céleste et est célèbre dans les Terres Déchues... C'est la fin... »
+Le visage de Zhong Grand Rouge devint livide: « C'est fini... C'est fini... Je ne pensais pas qu'il possédait autant de trésors, et ils semblent tous si redoutables. D'après les réactions des gens, il a déjà tué des cultivateurs du Fléau Céleste et est célèbre dans les Terres Déchues... C'est la fin... »
 
 À cet instant précis, l'homme-arbre sous Cupidité leva soudainement la tête, ses yeux brillant d'une lumière verte monstrueuse! Cupidité, ivre de superbe, leva les yeux vers le ciel. Les trésors qui l'entouraient grondèrent bruyamment, signe qu'ils s'activaient! Tous les cultivateurs scrutèrent le ciel avec exaltation, impatients de voir la puissance de Cupidité!
 
@@ -90,7 +90,7 @@ Tout cela se produisit en un éclair. Au moment où la silhouette s'avança, tou
 
 Cupidité poussa un cri, un hurlement lugubre et assourdissant. Sans hésiter, il battit en retraite et activa un sortilège augmentant sa vitesse de plus de quatre-vingt-dix fois. Il s'enfuit à une allure dépassant l'œil nu et même la capacité de verrouillage du Sens Divin.
 
-Sa fuite fut aussi soudaine qu'imprévisible, tel un oiseau effrayé. Il n'eut même pas le temps de récupérer les trésors qu'il avait sortis... Tout cela fut si brusque que tous les cultivateurs, Big Red inclus, restèrent stupéfaits.
+Sa fuite fut aussi soudaine qu'imprévisible, tel un oiseau effrayé. Il n'eut même pas le temps de récupérer les trésors qu'il avait sortis... Tout cela fut si brusque que tous les cultivateurs, Grand Rouge inclus, restèrent stupéfaits.
 
 « Quel genre de sort Seigneur Cupidité utilise-t-il? »
 « Il est incroyablement rapide, il a disparu en un instant... Serait-ce une préparation avant d'utiliser un trésor puissant? »

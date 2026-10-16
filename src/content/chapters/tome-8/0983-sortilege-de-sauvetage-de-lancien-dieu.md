@@ -76,4 +76,4 @@ D'un regard enjôleur, elle demanda: « Pourquoi l'Aîné Situ vient-il sur la p
 
 « Cela fait des centaines d'années que je n'ai pas vu Wang Lin. Je me demande ce qu'est devenu ce garçon. »
 
-La femme séduisante rit: « Oh? Quel est le nom du frère de l'Aîné? Cette junior pourrait peut-être le connaître. »
+La femme séduisante rit: « Oh? Quel est le nom du frère de l'Aîné? Cette cadet pourrait peut-être le connaître. »

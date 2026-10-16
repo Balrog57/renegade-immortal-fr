@@ -12,7 +12,7 @@ Ce n'était qu'une illusion, car le vent et le sable continuaient pourtant de to
 
 Cependant, malgré cela, son sens divin provoqua une onde de choc qui ébranla les âmes de tous les cultivateurs de la Secte de la Terre.
 
-Sous l'influence de son sens divin, plus le niveau de culture était élevé, plus la pression était ressentie. L'Ancien de la Secte de la Terre se trouvait au stade d'Exalt Doré. Bien que le Maître de la Secte n'ait pas atteint ce stade, il était néanmoins un cultivateur de fin de niveau Tribulation du Vide.
+Sous l'influence de son sens divin, plus le niveau de culture était élevé, plus la pression était ressentie. L'Ancien de la Secte de la Terre se trouvait au stade d'Exalté Doré. Bien que le Maître de la Secte n'ait pas atteint ce stade, il était néanmoins un cultivateur de fin de niveau Tribulation du Vide.
 
 Ils étaient les deux piliers les plus puissants de la Secte de la Terre.
 
@@ -24,13 +24,13 @@ En revanche, l'expression du Maître de la Secte de la Terre changea radicalemen
 
 Il n'osait pas rester, il n'osait pas désobéir!
 
-L'Exalt Doré de la Secte de la Terre était également présent. Il pratiquait une culture en isolation depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
+L'Exalté Doré de la Secte de la Terre était également présent. Il pratiquait une culture en isolation depuis des années et ne sortait que rarement. Alors qu'il était assis en méditation, son cœur tressaillit. Le sens divin de Wang Lin était impérieux, forçant le passage à travers tous les obstacles pour résonner jusque dans son âme.
 
-L'Ancien Exalt Doré de la Secte de la Terre ouvrit les yeux, le regard empreint de choc et de terreur.
+L'Ancien Exalté Doré de la Secte de la Terre ouvrit les yeux, le regard empreint de choc et de terreur.
 
-« Un Exalt Céleste! » À cet instant, l'Exalt Doré sentit le monde s'écrouler devant lui. Il eut l'impression qu'il suffisait qu'un seul fragment de ce pouvoir vole vers lui pour qu'il soit anéanti.
+« Un Exalté Céleste! » À cet instant, l'Exalté Doré sentit le monde s'écrouler devant lui. Il eut l'impression qu'il suffisait qu'un seul fragment de ce pouvoir vole vers lui pour qu'il soit anéanti.
 
-La peur envahit son esprit. L'Ancien Exalt Doré se téléporta immédiatement à l'extérieur de la Secte de la Terre.
+La peur envahit son esprit. L'Ancien Exalté Doré se téléporta immédiatement à l'extérieur de la Secte de la Terre.
 
 Ailleurs, dans un pavillon de la région de rang 5, l'homme nommé Qing ressentit également ce sens divin. Son corps trembla et il fut plongé dans une confusion plus grande encore qu'auparavant.
 
@@ -42,29 +42,29 @@ Pourtant, aucun d'eux n'imaginait qu'à cet instant, ils se ressemblaient tant.
 
 À l'extérieur de la Secte de la Terre, Wang Lin se tenait calmement sur la tête du dragon marin, observant la tempête de sable devant lui. L'Ancien de la Secte de la Terre apparut, suivi par un rayon de lumière qui était le Maître de la Secte.
 
-Lorsque l'Ancien Exalt Doré apparut, il vit le dragon marin sous Wang Lin. À la vue de la créature, son cœur manqua un battement. Ce dragon marin équivalait à un cultivateur Exalt Doré, et de haut niveau en plus; il était légèrement plus puissant que le Maître de la Secte Démoniaque.
+Lorsque l'Ancien Exalté Doré apparut, il vit le dragon marin sous Wang Lin. À la vue de la créature, son cœur manqua un battement. Ce dragon marin équivalait à un cultivateur Exalté Doré, et de haut niveau en plus; il était légèrement plus puissant que le Maître de la Secte Démoniaque.
 
-« Un dragon marin de rang Exalt Doré comme monture... » L'Ancien sentit la sueur perler sur son front. Il regarda Wang Lin, debout avec calme au sommet du dragon, et son cœur vacilla lorsqu'il croisa son regard. Il joignit rapidement les mains et s'inclina respectueusement.
+« Un dragon marin de rang Exalté Doré comme monture... » L'Ancien sentit la sueur perler sur son front. Il regarda Wang Lin, debout avec calme au sommet du dragon, et son cœur vacilla lorsqu'il croisa son regard. Il joignit rapidement les mains et s'inclina respectueusement.
 
-« Zheng Tianlin, de l'Exalt Doré de la Secte de la Terre, salue le Senior! »
+« Zheng Tianlin, de l'Exalté Doré de la Secte de la Terre, salue l'Aîné! »
 
 Tandis qu'il parlait, le Maître de la Secte arriva également, mais son visage pâlit instantanément à sa vue. Choqué par la monture luxueuse de Wang Lin, il se tint docilement aux côtés de l'Ancien et s'inclina avec révérence.
 
-« Ce junior n'avait pas remarqué l'arrivée du Senior, j'espère que vous pourrez me pardonner. Si le Senior n'y voit pas d'inconvénient, je vous prie de bien vouloir entrer dans la Secte de la Terre afin que ce junior puisse vous rendre ses hommages. » L'Exalt Doré Zheng Tianlin se montrait extrêmement respectueux, n'osant aucune impolitesse par crainte d'offenser ce terrifiant Exalt Céleste.
+« Ce cadet n'avait pas remarqué l'arrivée de l'Aîné, j'espère que vous pourrez me pardonner. Si l'Aîné n'y voit pas d'inconvénient, je vous prie de bien vouloir entrer dans la Secte de la Terre afin que ce cadet puisse vous rendre ses hommages. » L'Exalté Doré Zheng Tianlin se montrait extrêmement respectueux, n'osant aucune impolitesse par crainte d'offenser ce terrifiant Exalté Céleste.
 
 Il n'osait même pas déployer son sens divin pour sonder le niveau de culture de Wang Lin; il aurait été très irrespectueux qu'un cultivateur plus faible s'autorise une telle intrusion auprès d'un être aussi puissant.
 
-Grâce à ce sens divin terrifiant, il pouvait déduire sans l'ombre d'un doute que l'individu devant lui était un Exalt Céleste. La présence du dragon marin de rang Exalt Doré faisait également trembler son cœur.
+Grâce à ce sens divin terrifiant, il pouvait déduire sans l'ombre d'un doute que l'individu devant lui était un Exalté Céleste. La présence du dragon marin de rang Exalté Doré faisait également trembler son cœur.
 
-« Je n'ai rencontré que deux Exalt Célestes dans ma vie, et chacun d'eux peut faire trembler un continent entier... Cet homme apparaît soudainement devant ma secte; se pourrait-il que quelqu'un ici l'ait offensé? »
+« Je n'ai rencontré que deux Exalté Célestes dans ma vie, et chacun d'eux peut faire trembler un continent entier... Cet homme apparaît soudainement devant ma secte; se pourrait-il que quelqu'un ici l'ait offensé? »
 
 Wang Lin sourit et dit à l'Ancien: « Il n'est pas nécessaire d'entrer dans la secte. Je ne fais que passer par le Continent Meng et j'ai besoin de la carte la plus complète que votre secte possède. Pouvez-vous me la donner? »
 
-À ces mots, l'Exalt Doré poussa un immense soupir de soulagement. Il craignait qu'une offense n'ait été commise. Il faut dire qu'il n'existait qu'environ mille Exalt Célestes au total. La plupart résidaient sur le Continent Central, certains suivaient un Grand Exalt Céleste, et les autres restaient au sein d'une secte en tant qu'ancêtres véritables.
+À ces mots, l'Exalté Doré poussa un immense soupir de soulagement. Il craignait qu'une offense n'ait été commise. Il faut dire qu'il n'existait qu'environ mille Exalté Célestes au total. La plupart résidaient sur le Continent Central, certains suivaient un Grand Exalté Céleste, et les autres restaient au sein d'une secte en tant qu'ancêtres véritables.
 
 Après avoir entendu que Wang Lin n'était venu que pour une carte, l'Ancien Zheng Tianlin hocha vivement la tête.
 
-« Le Senior est trop aimable. Ce junior possède la carte la plus complète de notre secte. Elle couvre l'intégralité du Continent Est et bien au-delà, ainsi qu'une grande partie du Continent Sud. » Tout en parlant, il agita sa main droite et un jade doré apparut. Il le tendit respectueusement à Wang Lin.
+« L'Aîné est trop aimable. Ce cadet possède la carte la plus complète de notre secte. Elle couvre l'intégralité du Continent Est et bien au-delà, ainsi qu'une grande partie du Continent Sud. » Tout en parlant, il agita sa main droite et un jade doré apparut. Il le tendit respectueusement à Wang Lin.
 
 Wang Lin accepta le jade et le scruta avec son sens divin. La carte était plus vaste qu'une carapace de tortue et d'une précision remarquable.
 
@@ -72,9 +72,9 @@ Wang Lin accepta le jade et le scruta avec son sens divin. La carte était plus 
 
 Voyant que Wang Lin était satisfait, le vieil homme se détendit davantage.
 
-« Lorsque je suis devenu un Exalt Doré, je suis parti acquérir de l'expérience. Je suis allé très loin vers le sud et j'ai consigné tout ce que j'ai vu dans ce jade. Si le Senior en a besoin, nul besoin d'en faire une copie. Prenez-le simplement, ce junior en possède des sauvegardes. »
+« Lorsque je suis devenu un Exalté Doré, je suis parti acquérir de l'expérience. Je suis allé très loin vers le sud et j'ai consigné tout ce que j'ai vu dans ce jade. Si l'Aîné en a besoin, nul besoin d'en faire une copie. Prenez-le simplement, ce cadet en possède des sauvegardes. »
 
-Après avoir rangé le jade, Wang Lin voulut offrir une compensation, mais il venait à peine d'atteindre le stade d'Exalt Céleste. De plus, ayant été retenu au Temple du Scorpion pendant plus de cent ans, il ne possédait rien de vraiment précieux à offrir.
+Après avoir rangé le jade, Wang Lin voulut offrir une compensation, mais il venait à peine d'atteindre le stade d'Exalté Céleste. De plus, ayant été retenu au Temple du Scorpion pendant plus de cent ans, il ne possédait rien de vraiment précieux à offrir.
 
 Il faut souligner qu'une carte gravée dans le jade était un objet hautement secret, rarement cédé ainsi; elle représentait l'héritage de plusieurs générations d'une secte.
 
@@ -82,11 +82,11 @@ Après une courte réflexion, la main droite de Wang Lin s'étendit vers le vide
 
 « Je ne prendrai pas la carte de votre secte sans rien donner en retour. Ceci contient une trace d'essence de feu. Si quelqu'un au sein de votre secte est capable de la ressentir, cela pourra augmenter ses chances de former une essence de feu. » Wang Lin agita la main et la graine vola vers l'Ancien.
 
-Le visage du vieil homme s'illumina de joie. Il la réceptionna prestement pour la ranger dans son espace de stockage. Il s'inclina devant Wang Lin, mais soupira intérieurement: chaque Exalt Céleste qu'il avait rencontré était extrêmement avare. Les deux précédents l'étaient, et ce troisième ne faisait pas exception.
+Le visage du vieil homme s'illumina de joie. Il la réceptionna prestement pour la ranger dans son espace de stockage. Il s'inclina devant Wang Lin, mais soupira intérieurement: chaque Exalté Céleste qu'il avait rencontré était extrêmement avare. Les deux précédents l'étaient, et ce troisième ne faisait pas exception.
 
 Après avoir offert la graine et pris le jade, Wang Lin se tourna pour partir. Par réflexe dû à sa nature prudente, il déploya machinalement son sens divin sur tout la secte. Le dragon marin s'éleva alors de mille pieds.
 
-« Adieu, Senior! » L'Ancien Exalt Doré se détendit totalement et joignit les mains.
+« Adieu, Aîné! » L'Ancien Exalté Doré se détendit totalement et joignit les mains.
 
 Le Maître de la Secte de la Terre, qui l'accompagnait sans avoir le droit de la parole, fit de même.
 
@@ -96,9 +96,9 @@ Mais à cet instant précis, Wang Lin s'arrêta brusquement et se retourna. Il f
 
 Le dragon marin, ressentant l'onde du sens divin de Wang Lin, poussa un rugissement vers les cieux avant de charger vers la Secte de la Terre.
 
-Ce changement fut si soudain que l'Exalt Doré Zheng Tianlin ne s'y attendait absolument pas. Il se retourna et, alors que son expression changeait, vit le dragon marin passer au-dessus de sa tête pour s'engouffrer dans la secte.
+Ce changement fut si soudain que l'Exalté Doré Zheng Tianlin ne s'y attendait absolument pas. Il se retourna et, alors que son expression changeait, vit le dragon marin passer au-dessus de sa tête pour s'engouffrer dans la secte.
 
-« Senior! » L'expression de Zheng Tianlin devint anxieuse. Il se tourna vers le Maître de la Secte qui était lui aussi sous le choc. Tous deux se transformèrent en deux rayons de lumière et poursuivirent Wang Lin.
+« Aîné! » L'expression de Zheng Tianlin devint anxieuse. Il se tourna vers le Maître de la Secte qui était lui aussi sous le choc. Tous deux se transformèrent en deux rayons de lumière et poursuivirent Wang Lin.
 
 Alors que le dragon marin s'engouffrait dans la Secte de la Terre, ses rugissements résonnèrent à travers le monde, faisant trembler les 30 000 disciples qui eurent l'illusion d'une puissance céleste descendant sur eux.
 
@@ -106,11 +106,11 @@ Le dragon plana au-dessus de la zone des membres de rang 5. Wang Lin, debout sur
 
 L'Ancien et le Maître de la Secte de la Terre le rattrapèrent rapidement. Le Maître était livide; il ne comprenait pas pourquoi Wang Lin avait soudainement surgi ici. En fixant l'homme, son cœur s'emballa.
 
-« Senior, ce sont les membres de rang 5 de ma secte... » L'Ancien Exalt Doré ressentit une amertume au fond de lui. Il prit une profonde inspiration et se hâta d'expliquer.
+« Aîné, ce sont les membres de rang 5 de ma secte... » L'Ancien Exalté Doré ressentit une amertume au fond de lui. Il prit une profonde inspiration et se hâta d'expliquer.
 
-« Disciples de rang 5, écoutez mes ordres! Sortez tous et saluez le Senior! » L'esprit de l'Ancien tournait à toute vitesse. Il devina vaguement que si cet Exalt Céleste, habituellement sans émotion, s'était précipité ainsi, c'était parce qu'un disciple de rang 5 l'avait mécontenté ou était le descendant d'un ennemi.
+« Disciples de rang 5, écoutez mes ordres! Sortez tous et saluez l'Aîné! » L'esprit de l'Ancien tournait à toute vitesse. Il devina vaguement que si cet Exalté Céleste, habituellement sans émotion, s'était précipité ainsi, c'était parce qu'un disciple de rang 5 l'avait mécontenté ou était le descendant d'un ennemi.
 
-« Heureusement, ce ne sont que les membres de rang 5. Même s'ils périssent tous, nous ne pouvons pas offenser cet Exalt Céleste! » L'Ancien Zheng Tianlin prit une décision immédiate. Tous les disciples de rang 5 sortirent, le visage pâle. Ils s'agenouillèrent devant Wang Lin, prêts à s'incliner.
+« Heureusement, ce ne sont que les membres de rang 5. Même s'ils périssent tous, nous ne pouvons pas offenser cet Exalté Céleste! » L'Ancien Zheng Tianlin prit une décision immédiate. Tous les disciples de rang 5 sortirent, le visage pâle. Ils s'agenouillèrent devant Wang Lin, prêts à s'incliner.
 
 Parmi la foule se trouvaient l'homme nommé Qing et la femme à ses côtés.
 

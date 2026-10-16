@@ -122,6 +122,6 @@ Shengong Hu ouvrit soudainement les yeux, le regard empreint d'attente.
 
 « Mon Seigneur, veuillez agir!! »
 
-Zhan Konglie restait extrêmement vigilant et songea: « Cet étrange homme est trop puissant. J'ignore seulement si mon Senior l'est davantage! »
+Zhan Konglie restait extrêmement vigilant et songea: « Cet étrange homme est trop puissant. J'ignore seulement si mon Aîné l'est davantage! »
 
 Quant à Tang Yanfeng, il ricana en fixant Wang Lin et pensa au plus profond de lui: « Bien que cet homme soit fort, même avec nous cinq et de nombreux cultivateurs de l'Yin Illusoire, nous n'étions pas de taille face à cet étrange individu. Il possède le même niveau de culture que moi et mourra sans aucun doute! Je veux voir comment il sera terrassé; cela m'épargnera bien des soucis à l'avenir! »

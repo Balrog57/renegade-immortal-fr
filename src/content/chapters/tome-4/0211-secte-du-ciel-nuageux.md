@@ -162,7 +162,7 @@ L'homme d'âge moyen ne dit rien, mais observa attentivement la colonne. Wang Li
 
 Dès que l'aigle de bois apparut, il grandit instantanément pour devenir un aigle doré qui fonça vers la colonne. Mais au moment où l'oiseau toucha la brume, une main surgit soudainement de la colonne, saisit l'aigle et l'entraîna dans les ténèbres.
 
-Le visage de l'homme qui avait lancé l'objet changea brusquement. Il se leva précipitamment et s'adressa au responsable: « Je renonce! Je demande à l'aîné de me rendre mon trésor. C'est un héritage familial. Je vous en prie, senior! »
+Le visage de l'homme qui avait lancé l'objet changea brusquement. Il se leva précipitamment et s'adressa au responsable: « Je renonce! Je demande à l'aîné de me rendre mon trésor. C'est un héritage familial. Je vous en prie, aîné! »
 
 L'homme d'âge moyen le scruta et répondit calmement: « L'aigle de bois doré est le trésor héréditaire de la famille Gongsun. Notre secte ne le gardera évidemment pas. Puisque tu te retires, il te sera restitué lorsque tout le monde partira. »
 

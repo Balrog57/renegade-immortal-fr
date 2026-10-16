@@ -10,13 +10,13 @@ Chapitre 1712 - Sortilège des Trois Vies!
 
 Depuis son arrivée à l'autel, Wang Lin n'avait pas eu le temps d'observer les lieux. La majeure partie de son attention était portée sur le bras posé sur l'autel. Bien qu'il fût très prudent et qu'il eût scanné cet autel avec son Sens Divin, il n'y avait rien trouvé d'anormal.
 
-Cependant, après avoir absorbé le sang ainsi que le Sang de l'Âme, et suite aux ondulations causées par le sort Heaven Ripping, le voile recouvrant l'autel commençait à se lever. Les yeux de Wang Lin brillèrent.
+Cependant, après avoir absorbé le sang ainsi que le Sang de l'Âme, et suite aux ondulations causées par le sort Déchirure du Ciel, le voile recouvrant l'autel commençait à se lever. Les yeux de Wang Lin brillèrent.
 
 « Pourquoi cet autel apparaît-il ici, et pourquoi le bras droit de Ye Mo est-il là... » Songea Wang Lin tout en examinant attentivement l'autel.
 
 Cet autel était très ordinaire; rien ne semblait anormal à son sujet. Sans les ondulations qui résonnaient au-dessus, il aurait été très difficile d'y déceler la moindre étrangeté.
 
-À mesure que le sort Heaven Ripping s'estompait, les ondulations s'atténuèrent lentement jusqu'à ce qu'elles redeviennent normales.
+À mesure que le sort Déchirure du Ciel s'estompait, les ondulations s'atténuèrent lentement jusqu'à ce qu'elles redeviennent normales.
 
 Wang Lin se leva et quitta l'autel. Simultanément, son avatar se leva également pour avancer. Après un pas, l'avatar et le corps original de Wang Lin se superposèrent. Les deux silhouettes fusionnèrent progressivement pour ne former qu'une seule.
 
@@ -48,13 +48,13 @@ Wang Lin fixa l'autel, désormais réduit de plus de moitié et entouré de cett
 
 Le bras géant de Ye Mo apparut soudainement devant lui, griffant également le vide.
 
-« Heaven Ripping! » rugit Wang Lin en déchiquetant l'espace de sa main droite. Par ce cri, il utilisa toute la puissance du bras droit de Ye Mo, ainsi que ses pouvoirs d'Ancien Dieu, d'Ancien Démon et d'Ancien Diable à 8 étoiles.
+« Déchirure du Ciel! » rugit Wang Lin en déchiquetant l'espace de sa main droite. Par ce cri, il utilisa toute la puissance du bras droit de Ye Mo, ainsi que ses pouvoirs d'Ancien Dieu, d'Ancien Démon et d'Ancien Diable à 8 étoiles.
 
 Cette force de déchirure était assez puissante pour lacérer les cieux eux-mêmes!
 
 Des grondements tonitruants éclatèrent; l'ondulation rouge émanant de l'autel se déforma violemment avant d'être déchirée par Wang Lin.
 
-En même temps, les fissures de l'autel s'effondrèrent. Sous l'effet du sort Heaven Ripping, la structure se brisa à grande échelle. La lumière rouge tenta de résister, mais en fut incapable.
+En même temps, les fissures de l'autel s'effondrèrent. Sous l'effet du sort Déchirure du Ciel, la structure se brisa à grande échelle. La lumière rouge tenta de résister, mais en fut incapable.
 
 Dans un fracas assourdissant, l'autel s'effondra totalement. Les débris volèrent de toutes parts, révélant devant Wang Lin un objet octogonal semblable à un bassin de sang, émettant une lueur rouge éblouissante!
 

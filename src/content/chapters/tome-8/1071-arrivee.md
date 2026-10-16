@@ -48,7 +48,7 @@ Le Maître du Vide respirait avec difficulté, et lorsque Wang Wei et Hu Juan te
 
 Au moment où Wang Wei s'approcha, le Maître du Vide poussa un cri et toute la chair de son corps sembla s'agiter de manière grotesque. L'expression de Wang Wei changea et il recula sans hésiter.
 
-Cependant, au même instant, le Maître du Void ouvrit la bouche et cracha une immense quantité de sang noir. Ce sang dégageait une odeur fétide et puissante, et l'homme trembla après avoir vomi. C'était la majeure partie du sang qui coulait dans ses veines!
+Cependant, au même instant, le Maître du Vide ouvrit la bouche et cracha une immense quantité de sang noir. Ce sang dégageait une odeur fétide et puissante, et l'homme trembla après avoir vomi. C'était la majeure partie du sang qui coulait dans ses veines!
 
 Une fois expulsé, ce sang sembla doué d'une volonté propre, formant un filet qui chargea Wang Wei. Tout en reculant, Wang Wei forma un sceau de sa main droite et pointa l'avant. Dans un fracas retentissant, une montagne de glace surgit de nulle part!
 

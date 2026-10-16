@@ -66,11 +66,11 @@ Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mai
 
 L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte du Chemin de l'Immortel? »
 
-White Snow acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Papillon Rouge. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
+Neige Blanche acquiesça: « Le Mont Suzaku a fixé la date de l'affrontement entre le cultivateur Ceng et Papillon Rouge. Cela aura lieu dans une quinzaine de jours. À cette occasion, de nombreux émissaires des autres pays de culture viendront assister au combat. D'ici là, ma Secte du Chemin de l'Immortel est chargée de votre accueil. »
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-White Snow esquissa un léger sourire et sauta de l'autel. Un rayon de lumière blanche jaillit pour la porter dans les airs.
+Neige Blanche esquissa un léger sourire et sauta de l'autel. Un rayon de lumière blanche jaillit pour la porter dans les airs.
 
 C'était une grue d'un blanc immaculé.
 
@@ -78,23 +78,23 @@ Une fois que Wang Lin fut installé sur la grue, celle-ci poussa un cri, battit 
 
 Feng Yushan regarda la grue avec envie avant de quitter l'autel pour s'envoler vers le Mont Suzaku.
 
-White Snow jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Ceng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Ceng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
+Neige Blanche jetait parfois des regards furtifs à Wang Lin. Au cours des dernières années, le nom de Ceng Niu était devenu célèbre. En voyant Wang Lin, elle ne put s'empêcher d'éprouver une pointe de déception. Elle était certaine que ce Ceng Niu possédait un talent hors du commun, mais en le voyant ainsi, il paraissait extrêmement ordinaire.
 
-Après un long silence, White Snow demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Papillon Rouge? »
+Après un long silence, Neige Blanche demanda doucement: « Cher cultivateur Ceng, quelle est votre certitude quant à votre combat contre Papillon Rouge? »
 
 Wang Lin détourna son regard de la vue sur Suzaku et secoua la tête: « Aucune certitude! »
 
-White Snow fut stupéfaite, mais elle sourit: « Le cultivateur Ceng n'a pas besoin de faire preuve de modestie. »
+Neige Blanche fut stupéfaite, mais elle sourit: « Le cultivateur Ceng n'a pas besoin de faire preuve de modestie. »
 
 Wang Lin ne prêta plus attention à la femme et observa attentivement le paysage en contrebas. Il mémorisa avec soin la configuration des lieux, car sa pierre de jade n'offrait qu'une description très vague de Suzaku.
 
 Bien que Wang Lin soupçonnât secrètement que Suzaku tentait de le recruter comme disciple central, il restait sur ses gardes.
 
-Il réfléchit un instant et demanda: « Cher cultivatrice White Snow, quelles sont les sectes présentes à Suzaku? »
+Il réfléchit un instant et demanda: « Cher cultivatrice Neige Blanche, quelles sont les sectes présentes à Suzaku? »
 
-La voix de White Snow était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
+La voix de Neige Blanche était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
-« La sœur cadette Papillon Rouge est une disciple de la Secte du Jade Céleste. » Sur ces mots, White Snow soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de sa maîtresse, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
+« La sœur cadette Papillon Rouge est une disciple de la Secte du Jade Céleste. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de sa maîtresse, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
 
 Le regard de Wang Lin resta calme et il garda le silence.
 
@@ -108,7 +108,7 @@ Alors qu'il volait, le regard de Wang Lin devint soudainement sérieux en scruta
 
 La grue ne se dirigea pas vers la montagne, mais prit plutôt le tour autour. Bien que son visage fût serein, son cœur était troublé.
 
-White Snow murmura: « C'est là que se situe la Secte du Jade Céleste. À cause de la formation, elle demeure invisible. »
+Neige Blanche murmura: « C'est là que se situe la Secte du Jade Céleste. À cause de la formation, elle demeure invisible. »
 
 À cet instant précis, une silhouette rouge descendit de la montagne et se tint sur un nuage blanc. Cette personne observait leur direction.
 
@@ -118,17 +118,17 @@ Papillon Rouge se tenait aux abords de la Secte du Jade Céleste et regarda Wang
 
 « Il est bien venu! » Papillon Rouge se retourna et disparut à nouveau dans l'enceinte de la secte.
 
-Perché sur la grue, Wang Lin lança un regard froid à White Snow. Cette femme avait délibérément choisi cet itinéraire; elle devait avoir ses propres desseins.
+Perché sur la grue, Wang Lin lança un regard froid à Neige Blanche. Cette femme avait délibérément choisi cet itinéraire; elle devait avoir ses propres desseins.
 
 Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait un dragon immense. Elle traversa des couches de nuages pour s'enfoncer dans les profondeurs de la montagne. Un immense bassin s'étendit alors devant Wang Lin, couvert d'innombrables pavillons aux balustrades sculptées et aux ornements de jade.
 
 Wang Lin descendit de l'oiseau.
 
-Une fois au sol, White Snow murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de ma maîtresse. Elle est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Ma maîtresse vous recevra lorsqu'elle sera prête. »
+Une fois au sol, Neige Blanche murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de ma maîtresse. Elle est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Ma maîtresse vous recevra lorsqu'elle sera prête. »
 
 Sur ces mots, elle joignit les mains devant Wang Lin et disparut parmi les habitations.
 
-Wang Lin savait qu'il ne devait pas déployer son Sens Divin sans précaution à Suzaku, sous peine d'attirer de graves ennuis. Il suivit les instructions de White Snow et se dirigea vers les bâtiments du nord.
+Wang Lin savait qu'il ne devait pas déployer son Sens Divin sans précaution à Suzaku, sous peine d'attirer de graves ennuis. Il suivit les instructions de Neige Blanche et se dirigea vers les bâtiments du nord.
 
 En chemin, il croisa de nombreux serviteurs. Tous affichaient des expressions apathiques. Aucun ne daigna même le regarder en passant rapidement devant lui.
 
@@ -138,7 +138,7 @@ Tout avait été préparé pour lui dans la pièce. Wang Lin s'y assit et commen
 
 Depuis son entrée à Suzaku, il ressentait un sentiment de danger. Bien que ténu, il était bien réel. Wang Lin savait qu'avec son niveau actuel, de nombreuses personnes à Suzaku pouvaient l'abattre. N'importe quel cultivateur de la Transformation de l'Âme pouvait le tuer.
 
-L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que la maîtresse de White Snow allait bientôt le recevoir.
+L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que la maîtresse de Neige Blanche allait bientôt le recevoir.
 
 Après avoir médité un moment, Wang Lin ferma les yeux et commença sa culture.
 

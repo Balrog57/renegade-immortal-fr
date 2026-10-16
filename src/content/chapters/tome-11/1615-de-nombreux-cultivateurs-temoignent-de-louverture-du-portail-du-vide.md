@@ -30,13 +30,13 @@ Les trois essences étaient complètes. Même si un cultivateur au sommet du Vid
 
 Au moment où les trois essences se formèrent, un grondement sourd résonna, comme s'il provenait de l'au-delà du vide.
 
-Brillant Void, aux abords de la planète Suzaku. Des dizaines de milliers de cultivateurs avaient formé un blocus autour de la planète.
+Vide Brillant, aux abords de la planète Suzaku. Des dizaines de milliers de cultivateurs avaient formé un blocus autour de la planète.
 
 Ces cultivateurs provenaient tous du Royaume Extérieur. Ils portaient tous une marque entre les sourcils et leurs visages étaient empreints de cruauté et d'intention meurtrière. Un sentiment d'excitation planait également parmi eux.
 
-Ils encerclaient le dernier bastion du Brillant Void, sous la conduite du Maître South Cloud. Ils s'apprêtaient à livrer une bataille à mort.
+Ils encerclaient le dernier bastion du Vide Brillant, sous la conduite du Maître Nuage du Sud. Ils s'apprêtaient à livrer une bataille à mort.
 
-À l'origine, le Maître South Cloud ne souhaitait pas rester ici. Cependant, les cultivateurs du Brillant Void étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
+À l'origine, le Maître Nuage du Sud ne souhaitait pas rester ici. Cependant, les cultivateurs du Vide Brillant étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
 
 À leurs yeux, même s'ils se réfugiaient à Luotian, tout serait inutile!
 
@@ -44,13 +44,13 @@ Lorsque l'armée du Royaume Extérieur massacrerait son chemin jusqu'à Luotian,
 
 S'ils devaient mourir, ils mourraient dans leur patrie. S'ils devaient combattre jusqu'au bout, alors ils combattraient jusqu'à la mort sur la terre natale du Seigneur du Royaume Scellé, la planète Suzaku!
 
-La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cultivateurs du Brillant Void affichaient des sourires comme s'ils avaient oublié la mort!
+La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cultivateurs du Vide Brillant affichaient des sourires comme s'ils avaient oublié la mort!
 
 Situ Nan était également présent. Il aurait dû partir pour Luotian avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu. Lui, Situ Nan, ne pouvait accepter de partir seul.
 
 « Et alors si je meurs? » sourit Situ Nan, ses cheveux blancs flottant au vent alors qu'il chargeait les cultivateurs du Royaume Extérieur dans sa robe pourpre. Au fil des ans, grâce à l'enseignement attentif de Qing Lin et à son talent prodigieux, il avait ouvert le Portail du Vide avec l'aide de ce dernier et était devenu un cultivateur du troisième pas il y a 30 ans!
 
-Aux côtés de Situ Nan, Thirteen, Da Tou et les autres étaient restés également. Bien que leurs niveaux de culture ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
+Aux côtés de Situ Nan, Treize, Da Tou et les autres étaient restés également. Bien que leurs niveaux de culture ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
 
 Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
@@ -62,7 +62,7 @@ Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'a
 
 « Ce vieil homme combattra jusqu'à la mort... » Les yeux du Maître Lu Fu étaient injectés de folie.
 
-Il y avait une autre personne, quelqu'un que Wang Lin connaissait bien: l'Empereur Divin du Dragon Azure! Il n'était pas mort et était réapparu il y a quelques décennies avec la Secte des Quatre Divinités, devenant une force majeure pour le Brillant Void.
+Il y avait une autre personne, quelqu'un que Wang Lin connaissait bien: l'Empereur Divin du Dragon Azure! Il n'était pas mort et était réapparu il y a quelques décennies avec la Secte des Quatre Divinités, devenant une force majeure pour le Vide Brillant.
 
 Aujourd'hui, il avait amené de nombreux Anciens de la Secte des Quatre Divinités pour livrer un combat à mort contre les cultivateurs du Royaume Extérieur sur la planète Suzaku.
 
@@ -82,13 +82,13 @@ Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affront
 
 Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade intermédiaire du Vide Arcane. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
 
-C'était la bataille ultime du Brillant Void. Tout le Brillant Void était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait!
+C'était la bataille ultime du Vide Brillant. Tout le Vide Brillant était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait!
 
 À cet instant, cette guerre touchait à sa fin. Tandis que les dizaines de milliers de cultivateurs avançaient, les milliers de défenseurs du Royaume Intérieur étaient refoulés. Le désespoir les envahissait.
 
-« Gloire au Seigneur du Royaume Scellé! Gloire au Brillant Void! » rugit un cultivateur d'âge moyen alors qu'il était transpercé par plusieurs épées volantes. Il choisit de se faire exploser, emportant deux cultivateurs du Royaume Extérieur dans sa chute.
+« Gloire au Seigneur du Royaume Scellé! Gloire au Vide Brillant! » rugit un cultivateur d'âge moyen alors qu'il était transpercé par plusieurs épées volantes. Il choisit de se faire exploser, emportant deux cultivateurs du Royaume Extérieur dans sa chute.
 
-« Gloire au Seigneur du Royaume Scellé! Gloire au Brillant Void! » De plus en plus de voix hurlaient la même chose dans le désespoir. Les cris se chevauchaient et fusionnaient; c'étaient les derniers souffles de ces vies.
+« Gloire au Seigneur du Royaume Scellé! Gloire au Vide Brillant! » De plus en plus de voix hurlaient la même chose dans le désespoir. Les cris se chevauchaient et fusionnaient; c'étaient les derniers souffles de ces vies.
 
 « Le Seigneur du Royaume Scellé a déjà été tué par nos soins. Quelle gloire peut bien rester à un mort? » lança froidement le jeune homme en vert. D'un revers de main, il fit rugir la glace, gelant une vaste zone et forçant le Maître Long Pan et Situ Nan à reculer.
 

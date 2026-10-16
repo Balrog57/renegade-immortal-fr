@@ -24,7 +24,7 @@ Wang Lin réfléchit un instant avant que son expression ne devienne soudainemen
 
 Les yeux de Wang Lin devinrent de plus en plus brillants en se remémorant la silhouette qui se faisait appeler Situ Nan. Elle était formée de gaz noir, et ce gaz émanait de ce bras.
 
-« Se pourrait-il que le corps de Situ ait été capturé et raffiné par quelqu'un, créant ainsi un fragment d'âme? » Wang Lin osa cette hypothèse audacieuse dans son cœur, sans pouvoir la confirmer. Après une longue réflexion, il poussa un soupir et eut un sourire amer: « Senior Situ, si ce bras est vraiment le vôtre, alors je crois réellement ce que vous avez dit auparavant: que vous étiez le plus grand expert de Suzaku. »
+« Se pourrait-il que le corps de Situ ait été capturé et raffiné par quelqu'un, créant ainsi un fragment d'âme? » Wang Lin osa cette hypothèse audacieuse dans son cœur, sans pouvoir la confirmer. Après une longue réflexion, il poussa un soupir et eut un sourire amer: « Aîné Situ, si ce bras est vraiment le vôtre, alors je crois réellement ce que vous avez dit auparavant: que vous étiez le plus grand expert de Suzaku. »
 
 Wang Lin secoua la tête. En fin de compte, il n'était toujours pas certain des affirmations de Situ Nan. Cette incertitude ne faisait que croître au fil de sa culture. Après tout, l'homme numéro un de Suzaku était celui qui portait le titre même de Suzaku.
 

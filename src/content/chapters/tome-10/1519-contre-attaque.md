@@ -14,7 +14,7 @@ Chapitre 1519 - Contre-attaque!!
 
 « Forcez le passage dans le Royaume Scellé et pillez tout! »
 
-Le Maître Enlighten East afficha un regard cruel et s'avança vers la brèche de la formation. L'Estimé Nan Zhao se lécha les lèvres et fit un pas en avant!
+Le Maître Éveil-de-l'Est afficha un regard cruel et s'avança vers la brèche de la formation. L'Estimé Nan Zhao se lécha les lèvres et fit un pas en avant!
 
 Il y avait également l'ancêtre du Clan des Moineaux de Feu. Une intention meurtrière étincela dans ses yeux alors qu'il se précipitait en avant!
 
@@ -42,7 +42,7 @@ Alors que la hache descendait, tous les cultivateurs sur son passage poussèrent
 
 Aucun cultivateur ne put résister un seul instant alors que la hache les transperçait. Seuls leurs cris de détresse résonnèrent!
 
-La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Enlighten East, de l'ancêtre du Clan des Moineaux de Feu et de l'Estimé Nan Zhao changea radicalement, et ils tous se précipitèrent vers la hache sans hésiter!
+La hache balaya la zone et environ 5 000 cultivateurs périrent! Voyant la hache se lever pour frapper à nouveau, l'expression du Maître Éveil-de-l'Est, de l'ancêtre du Clan des Moineaux de Feu et de l'Estimé Nan Zhao changea radicalement, et ils tous se précipitèrent vers la hache sans hésiter!
 
 « Entrez plus vite dans le Royaume Intérieur, foncez de toutes vos forces! »
 
@@ -60,7 +60,7 @@ Il n'hésita plus et s'avança. Tandis que les cultivateurs aux yeux rouges char
 
 Derrière ces dix millions de rayons se trouvaient d'innombrables restrictions. Il engageait un combat d'un homme contre des dizaines de milliers!
 
-L'Estimé Ling Dong et Zhou Jin durent attaquer sous les ordres de Wang Lin. Ils foncèrent vers le Maître Enlighten East et sa compagnie, qui tentaient d'intercepter la Hache Fende-Ciel!
+L'Estimé Ling Dong et Zhou Jin durent attaquer sous les ordres de Wang Lin. Ils foncèrent vers le Maître Éveil-de-l'Est et sa compagnie, qui tentaient d'intercepter la Hache Fende-Ciel!
 
 Wang Lin fit un pas en avant et la tempête de feu aux neuf couleurs de son œil gauche jaillit. Le Feu Éthéré se propagea. Les émotions des cultivateurs du Royaume Extérieur alimentèrent son brasier. Toutes ces émotions étaient capables d'embraser le Feu Éthéré!
 
@@ -96,7 +96,7 @@ Au milieu de ce carnage, Wang Lin en avait oublié le nombre de victimes. De nom
 
 La Hache Fende-Ciel frappa soudainement le sol. Près de 5 000 cultivateurs furent déchiquetés et pérint misérablement!
 
-« Ling Dong, Zhou Jin, vous osez nous barrer la route? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres?! » Le Maître Enlighten East agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Fende-Ciel de retomber!
+« Ling Dong, Zhou Jin, vous osez nous barrer la route? Vous êtes des cultivateurs du Royaume Extérieur, seriez-vous en train de devenir des traîtres?! » Le Maître Éveil-de-l'Est agita ses manches et repoussa, contre toute attente, Ling Dong et Zhou Jin. Non seulement cela, mais il disposait également d'assez de puissance pour tenter d'empêcher la Hache Fende-Ciel de retomber!
 
 Zhou Jin réfléchit silencieusement, affichant une expression complexe, mais il attaqua tout de même sans hésiter. Ling Dong, quant à lui, était de marbre. Les paroles de l'adversaire n'étaient pas en mesure de provoquer la moindre fluctuation dans son esprit!
 

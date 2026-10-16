@@ -10,7 +10,7 @@ L'édit impérial de l'Empereur Céleste enjoignait Wang Lin à le rejoindre dan
 
 En un éclair, trois ans passèrent.
 
-Durant ces trois années, Wang Lin créa une grotte sous l'immensité désertique du continent Meng Earth. Il s'y installa pour méditer sur toutes les compréhensions qu'il avait acquises lors de son combat contre l'ancêtre de la Secte du Dao Démoniaque.
+Durant ces trois années, Wang Lin créa une grotte sous l'immensité désertique du continent Terre-Meng. Il s'y installa pour méditer sur toutes les compréhensions qu'il avait acquises lors de son combat contre l'ancêtre de la Secte du Dao Démoniaque.
 
 Après trois ans passés sous le désert, Wang Lin ouvrit les yeux. Son regard semblait contenir l'éclat des étoiles.
 
@@ -44,19 +44,19 @@ Le corps de Wang Lin apparut dans le désert en un éclair. D'un revers de manch
 
 L'expression de Wang Lin était calme alors qu'il montait sur la tête du dragon. Ce dernier s'élança et disparut sans laisser de trace.
 
-« Le continent Meng Earth possède deux sectes: la Secte de la Terre et la Secte Meng Earth! Toutes deux font partie des neuf sectes et treize factions, mais elles ne possèdent que des Exaltés Dorés, aucun Exalté Céleste! » Wang Lin, assis sur le dragon, consultait les informations sur le continent Meng Earth via la carapace de tortue.
+« Le continent Terre-Meng possède deux sectes: la Secte de la Terre et la Secte Terre-Meng! Toutes deux font partie des neuf sectes et treize factions, mais elles ne possèdent que des Exaltés Dorés, aucun Exalté Céleste! » Wang Lin, assis sur le dragon, consultait les informations sur le continent Terre-Meng via la carapace de tortue.
 
-« Bien que j'aie besoin des âmes originelles des Exaltés Dorés, ces deux sectes n'ont aucune querelle avec moi, alors peu importe! » Les yeux de Wang Lin brillèrent et il envoya un message par Sens Divin. Le dragon marin sous lui vola vers le Continent Céleste, relié au continent Meng Earth.
+« Bien que j'aie besoin des âmes originelles des Exaltés Dorés, ces deux sectes n'ont aucune querelle avec moi, alors peu importe! » Les yeux de Wang Lin brillèrent et il envoya un message par Sens Divin. Le dragon marin sous lui vola vers le Continent Céleste, relié au continent Terre-Meng.
 
 La tortue indiquait vaguement que la Secte Céleste du Continent Céleste comptait un Exalté Céleste!
 
-« Cependant, bien que la carte sur la carapace de tortue semble vaste, ce n'est qu'une partie de l'ensemble. Je dois me rendre auprès des deux sectes du continent Meng Earth pour obtenir leurs tablettes de jade cartographiques. »
+« Cependant, bien que la carte sur la carapace de tortue semble vaste, ce n'est qu'une partie de l'ensemble. Je dois me rendre auprès des deux sectes du continent Terre-Meng pour obtenir leurs tablettes de jade cartographiques. »
 
-Si Wang Lin était entré dans le continent Meng Earth avec son niveau de culture précédent, ces deux sectes auraient été des colosses qu'il aurait soigneusement évités. Mais la situation avait changé. À ses yeux, ce n'étaient plus que des sectes ordinaires qui n'avaient rien de terrifiant.
+Si Wang Lin était entré dans le continent Terre-Meng avec son niveau de culture précédent, ces deux sectes auraient été des colosses qu'il aurait soigneusement évités. Mais la situation avait changé. À ses yeux, ce n'étaient plus que des sectes ordinaires qui n'avaient rien de terrifiant.
 
 « Cet endroit est le plus proche de la Secte de la Terre, allons-y en premier! » La carte apparut dans l'esprit de Wang Lin et, un instant plus tard, le dragon marin changea de direction, filant droit vers l'est jusqu'à disparaître.
 
-Le continent Meng Earth était majoritairement recouvert de déserts qui s'étendaient comme un océan. À chaque tempête, d'immenses masses de sable s'élevaient, créant des tempêtes terrifiantes.
+Le continent Terre-Meng était majoritairement recouvert de déserts qui s'étendaient comme un océan. À chaque tempête, d'immenses masses de sable s'élevaient, créant des tempêtes terrifiantes.
 
 Ces tempêtes pouvaient varier en intensité. Les plus faibles faisaient trembler les mortels, mais les plus violentes faisaient frémir les cultivateurs qui cherchaient immédiatement à les éviter. En cause: une étrange force magnétique qui affectait lourdement les pratiquants, capable de les aspirer au point que même leur âme originelle ne pourrait s'échapper.
 
@@ -64,9 +64,9 @@ Heureusement, les tempêtes dotées d'une telle force étaient rares. Elles éta
 
 En temps normal, cet endroit était plongé dans l'obscurité par les tourbillons de sable, ce qui le rendait très difficile d'accès sans une méthode spéciale.
 
-Au cœur de cette étrange tempête se trouvait une secte célèbre dans tout le continent Meng Earth: la Secte de la Terre!
+Au cœur de cette étrange tempête se trouvait une secte célèbre dans tout le continent Terre-Meng: la Secte de la Terre!
 
-Bien qu'il existât de nombreuses sectes sur le continent, seules la Secte de la Terre et la Secte Meng Earth en étaient les maîtres. Personne n'osait provoquer ces deux géants qui contrôlaient l'intégralité du continent.
+Bien qu'il existât de nombreuses sectes sur le continent, seules la Secte de la Terre et la Secte Terre-Meng en étaient les maîtres. Personne n'osait provoquer ces deux géants qui contrôlaient l'intégralité du continent.
 
 À cet instant, dans la tempête où siégeait la Secte de la Terre, le monde était plongé dans le noir. Un immense dragon marin apparut, portant Wang Lin sur sa tête. Dès leur entrée dans la tempête, un vent violent se leva.
 

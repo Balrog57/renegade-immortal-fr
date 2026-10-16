@@ -50,7 +50,7 @@ Désormais, il savait que leur "méthode" consistait simplement à faire un capr
 
 Tout en parlant, Gu Ya regarda Wang Lin avec embarras et joignit les mains.
 
-« Gu Ya salue l'Ascendant Empyréen aux cheveux blancs. Concernant cette affaire... je suis impuissant. Le Senior est très célèbre et vous avez de nombreux choix, mais le Grand Empyréen Gemini est pure et aussi innocente qu'un enfant. Si le Senior accepte de la suivre, elles seront certainement généreuses envers vous. »
+« Gu Ya salue l'Ascendant Empyréen aux cheveux blancs. Concernant cette affaire... je suis impuissant. L'Aîné est très célèbre et vous avez de nombreux choix, mais le Grand Empyréen Gemini est pure et aussi innocente qu'un enfant. Si l'Aîné accepte de la suivre, elles seront certainement généreuses envers vous. »
 
 « Nous essaierons de satisfaire toutes vos exigences au mieux de nos capacités. » Gu Ya s'inclina profondément et resta ainsi.
 
@@ -64,7 +64,7 @@ Cela lui donnait un air très mignon. En l'observant, Wang Lin songea à l'appar
 
 Wang Lin sourit amèrement. Devant lui, l'expression de Gu Ya trahissait son embarras. Il savait qu'aucun Empyréen Ascendant ne se laisserait recruter avec un tel ton, surtout pas quelqu'un comme Wang Lin. Lequel de ces Grands Empyréens n'avait pas proposé d'immenses avantages?
 
-« Cela... Senior Wang... » Gu Ya s'apprêtait à parler pour détendre l'atmosphère.
+« Cela... Aîné Wang... » Gu Ya s'apprêtait à parler pour détendre l'atmosphère.
 
 À ce moment, la petite fille nommée Han Han poussa un reniflement et descendit vers Wang Lin. Cependant, étant trop petite, elle devait lever les yeux vers lui. Sentant que cela ne lui convenait pas, elle s'envola immédiatement pour dépasser sa taille. Elle affichait un air fier, ses yeux innocents clignant avec assurance, tandis qu'elle commençait à menacer Wang Lin:
 
@@ -74,7 +74,7 @@ Wang Lin fut stupéfait.
 
 « Faux, tout est faux... » Le corps de Gu Ya trembla tandis qu'il pensait: *« Ah, petites ancêtres, vous ne pouvez pas lui dire ça! »* Ne se soucieant plus de rien d'autre, il envoya rapidement un message de Sens Divin à Wang Lin:
 
-« Ces deux enfants... Ce que le Grand Empyréen Gemini appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Senior, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
+« Ces deux enfants... Ce que le Grand Empyréen Gemini appelle son père est leur père mortel après leur réincarnation. Elles ont perdu une partie de leurs souvenirs lors de la réincarnation, et j'avais peur qu'elles ne soient tristes, alors j'ai inventé des choses pour les rassurer. Aîné, je vous en prie, ne leur en tenez pas rigueur... Hélas. »
 
 « Eh, Petite Gu Ya, quel message de Sens Divin envoies-tu là? Laisse-moi écouter! » Wa Wa regarda soudainement Gu Ya avec intérêt, voulant espionner la communication. Cependant, Gu Ya fut très rapide et resta sur ses gardes.
 
@@ -114,7 +114,7 @@ Gu Ya ignora les deux ancêtres qui maltraitaient Cupidité et les sons de détr
 
 Bien qu'il soit arrivé tardivement, il imaginait aisément que les propositions de Dao Yi, Wu Feng et Jiu Di devaient être extraordinaires et capables de tenter n'importe quel cultivateur.
 
-« Senior, vous... » Gu Ya eut soudain l'impression d'être dans un rêve.
+« Aîné, vous... » Gu Ya eut soudain l'impression d'être dans un rêve.
 
 Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Cupidité. Puis il se tourna vers Gu Ya et dit: « Cependant, j'ai une requête. Je ne pourrai pas rester auprès du Grand Empyréen Gemini très longtemps. Je vais faire un voyage dans le Continent Central... Ensuite, je me retirerai en culture fermée et j'ignorerai le monde extérieur. »
 
@@ -132,6 +132,6 @@ Wang Lin regarda les deux fillettes jouer au loin, tapotant la tête de Cupidit�
 
 Après tout, un être qui était le premier des Empyeans Ascendants, le numéro un sous les Grands Empyréens, serait difficile à retenir en permanence.
 
-« Senior, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyréen Gemini utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
+« Aîné, retournons à la Secte Yang Pourpre. Vous pourrez partir quand bon vous semble. Vous pouvez aller partout dans la Secte Yang Pourpre, y compris dans le lieu de culture fermée que le Grand Empyréen Gemini utilisait avant son accident! » Gu Ya joignit les mains avec un immense respect.
 
 « Allons-y... » Wang Lin regarda en direction de la Secte Dong Lin. C'était comme s'il faisait ses adieux au vieil homme solitaire qui restait là-bas.

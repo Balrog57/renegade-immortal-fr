@@ -112,7 +112,7 @@ Wang Lin réfléchit un instant, puis secoua de nouveau la tête.
 
 Le jeune homme fixa Wang Lin et dit lentement: « Puisque vous n'avez ni message diplomatique ni invitation, veuillez partir! » Sur ce, il se détourna pour regagner le brouillard vert. En entrant, le gaz se referma lentement derrière lui.
 
-Les yeux de Wang Lin s'illuminèrent et il prononça distinctement: « Je viens chercher le Senior Omniscient! »
+Les yeux de Wang Lin s'illuminèrent et il prononça distinctement: « Je viens chercher l'Aîné Omniscient! »
 
 Le jeune homme s'arrêta net, puis se retourna pour faire face à Wang Lin. Son regard devint étrange et, après un court silence, il demanda: « Vous venez de la planète Suzaku? »
 
@@ -126,7 +126,7 @@ Wang Lin monta alors sur la garde de l'épée.
 
 « Je vous remercie! » L'expression de Wang Lin ne changea pas tandis qu'il joignait les mains en signe de respect.
 
-L'éclat mystérieux dans les yeux du jeune homme s'intensifia. Il regarda Wang Lin, puis l'épée, avant de s'incliner: « Entrez. Le Senior Omniscient vous attend depuis longtemps. »
+L'éclat mystérieux dans les yeux du jeune homme s'intensifia. Il regarda Wang Lin, puis l'épée, avant de s'incliner: « Entrez. L'Aîné Omniscient vous attend depuis longtemps. »
 
 Une fois ces mots prononcés, le gaz vert se fendit, formant un tunnel profond menant vers la planète.
 
@@ -134,7 +134,7 @@ Le corps de Wang Lin ne bougea pas, mais l'épée verte sous ses pieds s'élanç
 
 En plein vol, Wang Lin commença à réfléchir.
 
-« Cet homme savait que je venais de la planète Suzaku et a affirmé que le Senior Omniscient m'attendait. Ce Senior posséderait-il vraiment un sort capable de percer les cieux et la terre pour prédire mon arrivée... Si tel est le cas, son art est divin. » Tandis qu'il méditait, l'épée volante sous lui fonçait rapidement vers sa destination.
+« Cet homme savait que je venais de la planète Suzaku et a affirmé que l'Aîné Omniscient m'attendait. Cet Aîné posséderait-il vraiment un sort capable de percer les cieux et la terre pour prédire mon arrivée... Si tel est le cas, son art est divin. » Tandis qu'il méditait, l'épée volante sous lui fonçait rapidement vers sa destination.
 
 Peu après, la planète Tian Yun grandit à vue d'œil et, bientôt, l'épée le fit pénétrer dans l'atmosphère.
 

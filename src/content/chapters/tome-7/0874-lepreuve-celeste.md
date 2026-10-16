@@ -24,9 +24,9 @@ En particulier, l'ancêtre de la famille Xiang hocha la tête. Plus il regardait
 
 Les messagers célestes restèrent sans voix et cessèrent de battre le tambour. Dans leur esprit, si Xu Mu persistait, même s'ils battaient du tambour jusqu'à ce qu'il soit réduit en miettes, cela ne servirait à rien. Ils se regardèrent avec un sourire amer. Cependant, leurs regards envers Wang Lin ne contenaient aucune jalousie, mais plutôt une trace d'admiration.
 
-Wang Lin ignora tout cela. Après avoir quitté la place, il joignit les mains devant Maître Yan Leizi et dit: « Junior a commis une erreur. J'espère que Senior ne m'en tiendra pas rigueur. » Ses paroles ressemblaient fort à celles de son aîné, Qing Shui. Lorsque le Seigneur Céleste Qing Shui entendit cela, il esquissa un sourire.
+Wang Lin ignora tout cela. Après avoir quitté la place, il joignit les mains devant Maître Yan Leizi et dit: « Ce cadet a commis une erreur. J'espère qu'Aîné ne m'en tiendra pas rigueur. » Ses paroles ressemblaient fort à celles de son aîné, Qing Shui. Lorsque le Seigneur Céleste Qing Shui entendit cela, il esquissa un sourire.
 
-Maître Yan Leizi sourit et répondit: « Ce n'est rien. Abandonner un simple lac de tonnerre et le clone d'un esprit du tonnerre pour aider un junior puissant à croître en force est un juste prix. Quant à la destruction du lac, obtenir suffisamment de mérites militaires lors de la bataille contre le Système Stellaire de l'Alliance suffira! » Sur ce, il pointa son index droit. D'un seul geste, le monde sembla trembler et une énergie originelle infinie se rassembla. Cette énergie se transforma soudainement en une rune.
+Maître Yan Leizi sourit et répondit: « Ce n'est rien. Abandonner un simple lac de tonnerre et le clone d'un esprit du tonnerre pour aider un cadet puissant à croître en force est un juste prix. Quant à la destruction du lac, obtenir suffisamment de mérites militaires lors de la bataille contre le Système Stellaire de l'Alliance suffira! » Sur ce, il pointa son index droit. D'un seul geste, le monde sembla trembler et une énergie originelle infinie se rassembla. Cette énergie se transforma soudainement en une rune.
 
 Cette rune était empreinte de vitalité. Les pupilles de Wang Lin se rétractèrent. Il pouvait clairement ressentir une trace d'énergie originelle source dans cette rune! Bien que ce ne fût qu'un fragment, il conférait à la rune un pouvoir infini!
 
@@ -86,7 +86,7 @@ Wang Lin remarqua un autre détail: les cultivateurs qualifiés parvenaient tout
 
 Les yeux de Xu Ting s'illuminèrent. Il semblait avoir saisi quelques indices, sans toutefois en être certain. Après réflexion, il s'avança immédiatement après le dernier candidat. Il pénétra sur la place et leva les yeux vers le parchemin.
 
-Lie Yunzi regarda Xu Ting. Il avait une certaine impression de ce junior. À cet instant, il hocha la tête sans dire un mot.
+Lie Yunzi regarda Xu Ting. Il avait une certaine impression de ce cadet. À cet instant, il hocha la tête sans dire un mot.
 
 L'expression de Xu Ting devint grave alors qu'il fixait le Parchemin de la Bataille d'un regard mystérieux. Une brume noire apparut entre ses sourcils et commença à tourbillonner. À la cinquième seconde, une partie de son sens divin se divisa et fut absorbée par le parchemin.
 
@@ -110,7 +110,7 @@ Xu Ting avait montré une intention meurtrière envers lui à plusieurs reprises
 
 « Xu Ting, qualifié! » Lie Yunzi se souvint du nom du jeune homme et hocha la tête. Après une courte réflexion, il ajouta: « Il existe un total de trois Parchemins de la Bataille. Une fois que le passage vers le Système Stellaire de l'Alliance sera ouvert, venez me trouver et je vous laisserai consulter le second parchemin! »
 
-À ces mots, beaucoup de cultivateurs environnants ressentirent de la jalousie, bien qu'ils ne le laissassent paraître. Xu Ting regarda Lie Yunzi. Malgré son arrogance habituelle, il se montra respectueux: « Merci, Senior Lie Yunzi. »
+À ces mots, beaucoup de cultivateurs environnants ressentirent de la jalousie, bien qu'ils ne le laissassent paraître. Xu Ting regarda Lie Yunzi. Malgré son arrogance habituelle, il se montra respectueux: « Merci, Aîné Lie Yunzi. »
 
 Même Zhan Konglie en éprouva une pointe d'amertume. Il savait que même au sein de la famille, seuls environ dix membres étaient qualifiés pour voir le second parchemin. Quant au troisième, seuls le chef de famille et les deux anciens l'avaient vu; il n'y avait pas de quatrième personne.
 
@@ -122,7 +122,7 @@ Cette anticipation était palpable; même certains ancêtres de grandes familles
 
 Seul le Dieu de Sang laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 
-Maître Yan Leizi sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
+Maître Yan Leizi sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce cadet était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
 
 À cet instant, une lueur d'attente brilla dans ses yeux alors qu'il contemplait Wang Lin.
 

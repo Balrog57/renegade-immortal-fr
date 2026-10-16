@@ -54,7 +54,7 @@ Le vieil homme restait à quelques pas derrière. Son regard se posait occasionn
 
 « Après la mort de l'épouse du Maître de la Secte, celui-ci n'a plus jamais eu de partenaire de Dao. Bien que cette Li Qianmei de la secte de rang 9 vienne à peine de rencontrer le Maître de la Secte, elle semble s'entendre à merveille avec lui. Si les deux parviennent à former un couple de Dao, avec la sagesse du Maître de la Secte, son avenir sera sans limites... Alors ma Secte du Dao Pourpre pourra ébranler la Mer Nuageuse! »
 
-Depuis qu'elle avait quitté la Secte Briseuse de Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
+Depuis qu'elle avait quitté la Secte Brise-Ciel, Li Qianmei n'avait que rarement eu des conversations de ce genre. Personne d'autre n'était qualifié pour discuter avec elle, à l'exception de Lu Yuncong.
 
 « Pas étonnant que même le Maître ait loué cet homme comme le meilleur cultivateur de la région de rang 5. Même la Secte Divin lui prête attention... C'est véritablement un homme rare et singulier. Il est exceptionnel pour quelqu'un de son âge d'avoir une compréhension aussi profonde du Dao. Bien que mon niveau de culture soit supérieur, je suis inférieure à lui en ce sens. »
 

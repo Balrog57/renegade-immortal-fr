@@ -1,12 +1,12 @@
 ---
 n: 2086
-title: "« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral d'Ancient Shi. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière lui."
+title: "« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral d'Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière lui."
 book: 13
 bookTitle: Light of the coming end
 en: Chapter 2086 - Reincarnation is Right There
 slug: jhesitais-face-a-tout-cela-jusqua-ce-que-je-voie-pour-la-seconde-fois-cette
 ---
-« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral d'Ancient Shi. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière lui.
+« J'hésitais face à tout cela, jusqu'à ce que je voie pour la seconde fois cette montagne couverte de neige aux sept couleurs, ainsi que cette silhouette tenant le corps dans le temple ancestral de Shi Antique. J'ai senti que quelque chose clochait, mais en même temps, une idée folle est née! » Wang Lin ne regarda pas l'Omniscient, mais fixa le pont situé derrière lui.
 
 « J'avais peur de l'échec que j'avais entrevu, j'avais peur d'avoir échoué à ressusciter Wan Er. Je craignais que tout ne soit qu'une vie antérieure où j'avais rencontré Wan Er et fait de mon mieux pour la ressusciter, en vain; alors je me suis immergé dans le Dao du Rêve pour modifier la réincarnation jusqu'à ce que mon rêve devienne réalité!
 
@@ -32,9 +32,9 @@ Des caractères étaient gravés sur ce crâne, émettant une lueur froide et un
 
 « Ce qui manque à l'intérieur de la Perle Défiant le Ciel, c'est vous! Vous n'êtes pas le soi-disant gardien, mais l'esprit du trésor de la Boussole de la Frontière! » Wang Lin leva les yeux. Son regard était si intense qu'il fit trembler l'Omniscient.
 
-« À l'origine, j'étais très confus quant à la résurrection de Li Muwan. Je ne savais même pas comment la ramener à la vie jusqu'à ce que vous apparaissiez sur la montagne désertée de l'Ancient Dao.
+« À l'origine, j'étais très confus quant à la résurrection de Li Muwan. Je ne savais même pas comment la ramener à la vie jusqu'à ce que vous apparaissiez sur la montagne désertée de l'Dao Antique.
 
-« J'ai gardé vos paroles en mémoire et, fort de mon expérience, j'ai conçu une méthode lorsque j'ai vu cette silhouette hurlante dans le temple ancestral d'Ancient Shi!
+« J'ai gardé vos paroles en mémoire et, fort de mon expérience, j'ai conçu une méthode lorsque j'ai vu cette silhouette hurlante dans le temple ancestral de Shi Antique!
 
 « Lorsque j'ai conçu ce plan et que je l'ai mis en œuvre, j'étais hésitant. Mon existence était-elle réelle ou n'était-ce qu'un rêve? Le Continent Astral Immortel existait-il vraiment?
 
@@ -74,7 +74,7 @@ Wang Lin fixa calmement l'Omniscient.
 
 « La réincarnation est juste là. Une fois que vous l'avez pleinement comprise, vous pouvez la manipuler à votre guise. Si vous ne la comprenez pas, vous l'appelez "vie antérieure". C'est un cercle qui est éternellement présent. On peut le voir, on peut le ressentir.
 
-« Comme les paroles de Mo Zi, comme les souvenirs de Papillon Rouge, ou comme lorsque vous avez reconnu l'avatar de massacre sur la montagne désertée de l'Ancient Dao.
+« Comme les paroles de Mo Zi, comme les souvenirs de Papillon Rouge, ou comme lorsque vous avez reconnu l'avatar de massacre sur la montagne désertée de l'Dao Antique.
 
 « L'Ancêtre Ancien et l'Ancêtre Céleste n'ont pas su percer le mystère de la réincarnation. Ils pensaient que tout était faux et sont morts en cherchant le Dao... Voilà ce qu'est la réincarnation...
 

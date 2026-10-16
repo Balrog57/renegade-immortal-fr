@@ -42,7 +42,7 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empereur Huit Extrêmes! »
 
-« La Secte Purple Yang du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gemini! »
+« La Secte Yang Pourpre du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gemini! »
 
 « La Secte Dao Yi du Continent Sud possède le Grand Empereur Dao Yi! »
 
@@ -54,11 +54,11 @@ C'étaient les cinq êtres les plus puissants des 72 continents célestes — le
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il analysait ces cinq Grands Empereurs. S'ils apprenaient sa véritable force, ils chercheraient certainement à le recruter.
 
-Une fois qu'il aurait le soutien d'un Grand Empereur, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empereur voulait tuer un Exalt d'Empereur sous les ordres d'un autre Grand Empereur, il devrait en justifier la raison! C'était parce que les Exalt d'Empereur surpassaient les Exalt Dorés et étaient extrêmement rares sur le Continent Astral Immortel!
+Une fois qu'il aurait le soutien d'un Grand Empereur, le danger de son voyage vers la cité impériale serait bien moindre. Après tout, même si un Grand Empereur voulait tuer un Exalté d'Empereur sous les ordres d'un autre Grand Empereur, il devrait en justifier la raison! C'était parce que les Exalté d'Empereur surpassaient les Exalté Dorés et étaient extrêmement rares sur le Continent Astral Immortel!
 
-Chaque Grand Empereur n'avait au plus que 100 Exalt d'Empereur sous ses ordres! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exalt d'Empereur!
+Chaque Grand Empereur n'avait au plus que 100 Exalté d'Empereur sous ses ordres! Sur l'ensemble du Continent Astral Immortel, il n'y avait pas plus de 1 000 Exalté d'Empereur!
 
-S'il ne s'agissait que de tuer un Exalt d'Empereur, cela resterait gérable. Cependant, si la cible était un Empereur Ascendant, aucun Grand Empereur ne le permettrait!
+S'il ne s'agissait que de tuer un Exalté d'Empereur, cela resterait gérable. Cependant, si la cible était un Empereur Ascendant, aucun Grand Empereur ne le permettrait!
 
 Car les Empereurs Ascendants étaient encore plus rares. Sur l'ensemble du Continent Astral Immortel, il n'en existait que 48!!!
 
@@ -90,17 +90,17 @@ Wang Lin savait également qu'il y avait des choses qui n'avaient pas besoin d'�
 
 Bien que le fait qu'un cultivateur du monde des grottes puisse s'en extraire fût extrêmement choquant, comparé au niveau de culture de Wang Lin, cela n'avait aucune importance. L'essentiel résidait dans la décision de Wang Lin.
 
-« Pour attirer l'attention des Grands Empereurs, je dois manifester ma puissance, une culture capable d'éliminer un Exalt d'Empereur! Alors, je pourrai faire ce que je veux au sein du clan céleste! »
+« Pour attirer l'attention des Grands Empereurs, je dois manifester ma puissance, une culture capable d'éliminer un Exalté d'Empereur! Alors, je pourrai faire ce que je veux au sein du clan céleste! »
 
 « Avec assez de renommée, les Grands Empereurs viendront d'eux-mêmes me chercher! » Les yeux de Wang Lin brillèrent, empreints d'une détermination accrue.
 
-« Au total, cinq Grands Empereurs. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empereur Dao Yi, le Grand Empereur Feng ou le Grand Empereur Jiu Di. Je n'ai rencontré que le Grand Empereur Gemini de la Secte Purple Yang du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
+« Au total, cinq Grands Empereurs. L'Empereur Céleste peut être ignoré. Quant aux quatre autres... Je ne sais que très peu de choses sur le Grand Empereur Dao Yi, le Grand Empereur Feng ou le Grand Empereur Jiu Di. Je n'ai rencontré que le Grand Empereur Gemini de la Secte Yang Pourpre du Continent de l'Est... » Wang Lin se remémora sa rencontre avec la Cupidité dans le monde des grottes et les deux charmantes petites filles nommées Wa Wa et Han Han.
 
 « Je dois attirer leur attention pour qu'ils viennent à ma rencontre. C'est la meilleure stratégie! » Les yeux de Wang Lin s'illuminèrent, puis il les ferma lentement.
 
 Il attendait l'arrivée de l'âme originelle de l'Ancien de la Secte du Dao Démoniaque. Il allait se maintenir dans une condition optimale pour tester l'étendue de sa puissance.
 
-Les Exalt Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exalt d'Empereur pourraient l'aider à le faire.
+Les Exalté Dorés ne suffisaient plus pour qu'il puisse évaluer sa force. Seuls les Exalté d'Empereur pourraient l'aider à le faire.
 
 Pendant son attente, il absorbait impitoyablement l'âme originelle du Maître de la Secte du Dao Démoniaque. Cependant, il ne chercha pas à condenser une deuxième Veine Magique immédiatement; il sortit plutôt les dizaines d'âmes originelles de la troisième étape qu'il avait collectées. Il choisit celles dont le niveau était égal ou inférieur à cinq Tribulations Arcaniques pour les dévorer et former sa seconde Veine Magique.
 
@@ -118,6 +118,6 @@ Plus de la moitié des âmes originelles dévorées par Wang Lin serviraient à 
 
 « Je me demande combien de Veines Magiques l'âme originelle du Maître de la Secte du Dao Démoniaque pourra former... » Wang Lin ferma les yeux et commença à façonner les Veines Magiques avec l'âme du Maître de la Secte.
 
-À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Meng Earth et le Continent du Démon Vert. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
+À cet instant, le ciel était clair et la lumière du soleil brillait de mille feux. Alors que Wang Lin forgeait sa veine magique, un rayon de lumière fendit la frontière entre le Continent Terre-Meng et le Continent du Démon Vert. Les cultivateurs furent ébranlés par ce flash lumineux, et aucun d'eux n'osa lever les yeux vers l'extérieur.
 
-Les frontières entre les continents étaient totalement ignorées par les Exalt d'Empereur!
+Les frontières entre les continents étaient totalement ignorées par les Exalté d'Empereur!

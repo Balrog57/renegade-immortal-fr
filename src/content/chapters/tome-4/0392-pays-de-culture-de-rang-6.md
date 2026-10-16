@@ -52,7 +52,7 @@ Wang Lin prit la pierre de jade, l'examina rapidement avant de la ranger dans so
 
 « Maintenant que ceci est fait, je dois entrer en culture fermée pour préparer mon âme à être intégrée au drapeau. Il vaut mieux que tu ne t'éloignes pas à plus de 5 000 km de la Secte, car si un danger surgit, je ne pourrai pas t'aider. »
 
-Wang Lin esquissa un léger sourire: « Aucun problème. Si je n'étais pas capable de me protéger, je ne serais plus en vie aujourd'hui. Ne vous inquiétez pas, Senior. J'ai des affaires personnelles à régler. Je m'assurerai d'être de retour avant que vous ne sortiez de votre culture fermée. »
+Wang Lin esquissa un léger sourire: « Aucun problème. Si je n'étais pas capable de me protéger, je ne serais plus en vie aujourd'hui. Ne vous inquiétez pas, Aîné. J'ai des affaires personnelles à régler. Je m'assurerai d'être de retour avant que vous ne sortiez de votre culture fermée. »
 
 Du Tian observa Wang Lin. Après une courte réflexion, il acquiesça: « Puisque tu en es si sûr, je n'en dirai pas plus. Tu peux partir. » Sur ce, il disparut dans l'anneau de sang.
 

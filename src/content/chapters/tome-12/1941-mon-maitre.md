@@ -72,7 +72,7 @@ Il tourna le regard et se décala comme pour leur céder le passage. Cependant, 
 
 Liu Jinbiao était extrêmement nerveux, mais il ne le laissa pas paraître. Au lieu de cela, il fronça les sourcils et leur lança un regard glacial.
 
-« Quatre seniors, je me demande pourquoi vous barrez le chemin de ce junior... » Il était si calme que les quatre individus envoyés pour le capturer ne purent s'empêcher d'être déconcertés.
+« Quatre aînés, je me demande pourquoi vous barrez le chemin de ce cadet... » Il était si calme que les quatre individus envoyés pour le capturer ne purent s'empêcher d'être déconcertés.
 
 « Capturez-le! » Le meneur du groupe observa attentivement Liu Jinbiao et agita sa manche. Un cultivateur du second étape s'avança. Un cultivateur de la Formation du Noyau comme Liu Jinbiao ne pouvait absolument pas lui résister.
 

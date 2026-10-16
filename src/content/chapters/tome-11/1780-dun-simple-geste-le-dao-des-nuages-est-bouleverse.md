@@ -32,9 +32,9 @@ Le jeune homme en noir, chef du groupe qui voulait réprimander Wang Lin, hocha 
 
 L'expression de Wang Lin restait calme. D'après les souvenirs qu'il avait extraits de la troisième âme, son maître avait été très bon envers lui. Si ce dernier n'avait pas été constamment en retraite, il n'aurait jamais subi de tels traitements injustes au sein de la secte.
 
-Dans ses premières années, la personnalité de Seven-Colored était lâche et il ne disait jamais rien.
+Dans ses premières années, la personnalité de Sept-Couleurs était lâche et il ne disait jamais rien.
 
-Quant à Zhou Li, c'était le frère aîné de Seven-Colored, également très talentueux. En apparence, il était doux, mais en vérité, il méprisait Seven-Colored et ignorait délibérément tous ceux qui le harcelaient.
+Quant à Zhou Li, c'était le frère aîné de Sept-Couleurs, également très talentueux. En apparence, il était doux, mais en vérité, il méprisait Sept-Couleurs et ignorait délibérément tous ceux qui le harcelaient.
 
 S’avançant sous la pluie, Wang Lin entra dans la salle sous les regards envieux de l'assemblée. À l'intérieur, l'homme d'âge moyen était assis sur une chaise, tandis que Zhou Li se tenait respectueusement à ses côtés.
 
@@ -48,21 +48,21 @@ L'art introductif était court mais mystérieux, et tout le monde n'était pas c
 
 De plus, le temps nécessaire pour compléter le cycle servait de test. Au cours des innombrables années de la Secte Dong Lin, le plus rapide avait mis sept respirations, tandis que le plus lent avait pris plusieurs heures.
 
-À l'époque, lorsque Seven-Colored apprenait cette technique, il avait été intimidé par le regard glacial de Zhou Li et avait hésité. Sa vitesse s'était ralentie, lui prenant vingt respirations pour compléter un cycle.
+À l'époque, lorsque Sept-Couleurs apprenait cette technique, il avait été intimidé par le regard glacial de Zhou Li et avait hésité. Sa vitesse s'était ralentie, lui prenant vingt respirations pour compléter un cycle.
 
 Et Zhou Li l'avait complété en onze respirations.
 
-À cause du regard de Zhou Li, l'esprit de Seven-Colored n'était plus concentré et il n'avait pu produire que peu de nuages, ce qui lui permit d'être supplanté. Puis, une ombre était apparue au sein des nuages de Zhou Li pour dévorer tous ceux de Su Dao.
+À cause du regard de Zhou Li, l'esprit de Sept-Couleurs n'était plus concentré et il n'avait pu produire que peu de nuages, ce qui lui permit d'être supplanté. Puis, une ombre était apparue au sein des nuages de Zhou Li pour dévorer tous ceux de Su Dao.
 
-Le maître de Seven-Colored avait vu cela et avait poussé un soupir. Il n'enseigna plus l'un des trois grands arts de la Secte Dong Lin à Su Dao, mais lui transmit la Technique Céleste aux Sept Couleurs, de rang inférieur.
+Le maître de Sept-Couleurs avait vu cela et avait poussé un soupir. Il n'enseigna plus l'un des trois grands arts de la Secte Dong Lin à Su Dao, mais lui transmit la Technique Céleste aux Sept Couleurs, de rang inférieur.
 
 Wang Lin le savait grâce aux souvenirs qu'il possédait, et cela semblait immuable.
 
-Aujourd'hui, la scène se répétait. Wang Lin restait là, songeant en silence. Il ignorait s'il devait suivre le cours des souvenirs et subir le même sort que Seven-Colored, ou s'opposer au destin pour tout changer.
+Aujourd'hui, la scène se répétait. Wang Lin restait là, songeant en silence. Il ignorait s'il devait suivre le cours des souvenirs et subir le même sort que Sept-Couleurs, ou s'opposer au destin pour tout changer.
 
-Logiquement, il devrait suivre les souvenirs de Seven-Colored afin de fusionner davantage avec la troisième âme. Peut-être finirait-il par fusionner suffisamment pour découvrir où se trouvait la véritable porte.
+Logiquement, il devrait suivre les souvenirs de Sept-Couleurs afin de fusionner davantage avec la troisième âme. Peut-être finirait-il par fusionner suffisamment pour découvrir où se trouvait la véritable porte.
 
-Mais rien ne garantissait que cela arriverait. De plus, Wang Lin ne voulait pas fusionner totalement avec la troisième âme. S'il le faisait, Xie Qing ne pourrait jamais s'éveiller. Dès l'instant où la fusion serait complète, Xie Qing disparaîtrait et Wang Lin deviendrait le nouveau Seven-Colored.
+Mais rien ne garantissait que cela arriverait. De plus, Wang Lin ne voulait pas fusionner totalement avec la troisième âme. S'il le faisait, Xie Qing ne pourrait jamais s'éveiller. Dès l'instant où la fusion serait complète, Xie Qing disparaîtrait et Wang Lin deviendrait le nouveau Sept-Couleurs.
 
 Et par-dessus tout, Wang Lin n'était pas disposé à agir ainsi!
 

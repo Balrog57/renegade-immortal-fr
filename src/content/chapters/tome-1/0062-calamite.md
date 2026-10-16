@@ -42,7 +42,7 @@ Il y avait moins de jades au deuxième étage, seulement quelques dizaines flott
 
 Situ Nan dit d'un ton paresseux: « Tout ceci est de qualité inférieure. Inutile de perdre ton temps. »
 
-Wang Lin esquissa un sourire amer et pensa: « Vous êtes un senior issu d'un pays de culture de rang 6, il est bien évident qu'aucune de ces techniques n'est à la hauteur de votre rang. »
+Wang Lin esquissa un sourire amer et pensa: « Vous êtes un aîné issu d'un pays de culture de rang 6, il est bien évident qu'aucune de ces techniques n'est à la hauteur de votre rang. »
 
 Situ Nan insista: « Wang Lin, ne perds pas ton temps ici. Trouve rapidement un endroit pour t'isoler en culture de porte close et, une fois que tu auras atteint l'Établissement des Fondations, tu pourras quitter cette petite secte. »
 
@@ -66,7 +66,7 @@ Situ Nan dit d'un ton grave: « Wang Lin, il y a un cultivateur de l'Âme Naissa
 
 Wang Lin prit une profonde inspiration, l'esprit troublé.
 
-L'homme au visage rouge s'écria: « Senior Pu Nanzi, j'ignore pourquoi vous venez ainsi à la Secte Heng Yue. Veuillez nous en expliquer la raison! »
+L'homme au visage rouge s'écria: « Aîné Pu Nanzi, j'ignore pourquoi vous venez ainsi à la Secte Heng Yue. Veuillez nous en expliquer la raison! »
 
 Une silhouette imposante apparut dans les airs. Son visage était empreint de dignité et il déclara d'une voix grave: « Il y a 500 ans, j'aurais été intimidé par la formation défensive de la Secte Heng Yue, mais aujourd'hui, elle n'est que médiocre. Une fois cette formation brisée, je m'entretiendrai avec vous, les juniors. »
 

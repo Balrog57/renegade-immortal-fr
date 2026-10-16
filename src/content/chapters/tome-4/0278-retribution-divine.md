@@ -52,7 +52,7 @@ Soudain, un éclair rouge jaillit des nuages. Cet éclair était d'une rapidité
 
 La vieille femme était sur le point d'esquiver à l'intérieur de la tour de glace lorsqu'elle réalisa que ses environs étaient verrouillés par une force destructrice, la rendant incapable de tout mouvement.
 
-Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la rétribution divine alors qu'elle ne faisait que traquer un simple junior de l'Âme Naissante.
+Un regard de désespoir se lut sur son visage. Elle n'aurait jamais cru attirer la rétribution divine alors qu'elle ne faisait que traquer un simple cadet de l'Âme Naissante.
 
 Quelle que soit sa bêtise, elle comprit qu'il s'agissait de la mythique rétribution divine.
 

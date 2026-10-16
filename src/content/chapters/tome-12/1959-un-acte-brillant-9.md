@@ -46,7 +46,7 @@ Même Pluie de Neige et ses compagnons restaient silencieux, plongés dans leurs
 
 « S'il franchit le 13e palais, il surpassera totalement l'Ascendant Ming Dao de jadis, devenant ainsi le plus puissant des nouveaux Ascendants! Bien qu'il ne puisse être comparé à l'actuel Ascendant Ming Dao, qui a atteint le 15e palais, il n'est pas loin! »
 
-Quant à l'Ascendant Tiny Child, son visage était pâle après tout ce qu'il avait vu. En cet instant, il aurait dû changer d'état d'esprit, mais il ne put s'empêcher de laisser paraître une expression tourmentée.
+Quant à l'Ascendant Petit Enfant, son visage était pâle après tout ce qu'il avait vu. En cet instant, il aurait dû changer d'état d'esprit, mais il ne put s'empêcher de laisser paraître une expression tourmentée.
 
 « Le 13e palais... Il ne pourra certainement pas le passer!! »
 

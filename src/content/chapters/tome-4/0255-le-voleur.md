@@ -52,10 +52,10 @@ En particulier le cultivateur qui venait d'être blessé par la pression spiritu
 
 Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était comme si la foudre venait de les frapper, les plongeant dans la terreur.
 
-Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un senior avec lequel il ne fallait pas chercher querelle.
+Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un aîné avec lequel il ne fallait pas chercher querelle.
 
 Ils se regardèrent et s'inclinèrent respectueusement: 
-— Salutations, Senior. Ces juniors sont des disciples de la Secte Ciel Nuageux. Nous avons été impolis et espérons que le Senior nous pardonnera.
+— Salutations, Aîné. Ces juniors sont des disciples de la Secte Ciel Nuageux. Nous avons été impolis et espérons que l'Aîné nous pardonnera.
 
 Wang Lin demanda simplement: 
 — Avez-vous 4 500 pièces d'or?

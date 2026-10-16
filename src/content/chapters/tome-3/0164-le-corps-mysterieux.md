@@ -38,7 +38,7 @@ Une voix glaciale résonna près de Zhao Chuanliang. « Oublie tes chances de ch
 
 Zhao Chuanliang soupira et demanda: « Ye Zizai, que dois-je faire? »
 
-« Que faire? Je l'ignore aussi, mais en tant qu'ancien chef de la Secte des Cadavres de Zhao, j'ai déjà rencontré une situation similaire. Le cas de mon disciple junior était proche, bien que légèrement différent. La lampe spirituelle de l'âme numéro 4876 ne s'est pas encore éteinte, ce qui signifie qu'il est toujours en vie. Si tu peux le trouver, ce sera pour le mieux; mais si tu échoues, tu seras en danger. »
+« Que faire? Je l'ignore aussi, mais en tant qu'ancien chef de la Secte des Cadavres de Zhao, j'ai déjà rencontré une situation similaire. Le cas de mon disciple cadet était proche, bien que légèrement différent. La lampe spirituelle de l'âme numéro 4876 ne s'est pas encore éteinte, ce qui signifie qu'il est toujours en vie. Si tu peux le trouver, ce sera pour le mieux; mais si tu échoues, tu seras en danger. »
 
 « Cependant, je suis très curieux. Shang Zong a dit qu'il t'accordait dix jours parce que c'est "ce" corps. Quel est ton lien avec l'ancien propriétaire de ce corps? »
 
@@ -148,7 +148,7 @@ Wang Lin secoua la tête avec un sourire amer. « Le Chemin Divin est bien trop 
 
 L'Ancien au visage rouge répondit simplement: « Tous les ancêtres du Sanctuaire du Dieu de la Guerre sont placés dans une salle de pierre après leur mort. »
 
-Le visage de Wang Lin resta impassible, mais son cœur trembla. Sa supposition était confirmée. Il joignit les mains et dit: « Ce junior ne vous dérangera plus. Adieu! »
+Le visage de Wang Lin resta impassible, mais son cœur trembla. Sa supposition était confirmée. Il joignit les mains et dit: « Ce cadet ne vous dérangera plus. Adieu! »
 
 L'Ancien hocha la tête et rentra dans le temple. Dès qu'il eut franchi la porte, Wang Lin s'envola rapidement hors de la montagne.
 

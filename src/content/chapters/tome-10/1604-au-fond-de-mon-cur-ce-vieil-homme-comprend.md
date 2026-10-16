@@ -46,13 +46,13 @@ Il vit à nouveau l'oiseau blanc tournoyer dans le ciel et voler vers sa demeure
 
 Désormais plus âgé, son corps n'était plus aussi vigoureux que dans sa jeunesse. Après avoir passé un long moment dans ce calèche cahoteux, il avait l'impression que ses os allaient se briser. Il était extrêmement fatigué.
 
-C'est ainsi qu'ils voyagèrent et se reposèrent tout au long de l'été. Quatre mois plus tard, à l'automne, Wang Lin et Big Fortune entrèrent dans la région située sous le mont Heng Yue.
+C'est ainsi qu'ils voyagèrent et se reposèrent tout au long de l'été. Quatre mois plus tard, à l'automne, Wang Lin et Grande Fortune entrèrent dans la région située sous le mont Heng Yue.
 
 Lorsqu'il était parti, les bas-côtés étaient couverts de fleurs rouges et vertes. À son retour, la plupart des fleurs avaient flétri et les feuilles avaient jauni. Bien qu'elles ne soient pas encore toutes tombées, l'hiver n'était plus loin.
 
 « 28 ans... » Wang Lin regarda l'herbe et les arbres environnants, la vue brouillée par l'émotion. Il se souvenait qu'en partant, il n'était qu'un jeune homme; désormais, de retour, il approchait de la cinquantaine.
 
-Le calèche suivit lentement le chemin officiel jusqu'à un village calme et isolé dans la montagne. Wang Lin connaissait tout ici; c'était là qu'il avait grandi. Il ne retira pas trop l'attention des voisins en emmenant Big Fortune vers la maison qu'il avait quittée toutes ces années auparavant.
+Le calèche suivit lentement le chemin officiel jusqu'à un village calme et isolé dans la montagne. Wang Lin connaissait tout ici; c'était là qu'il avait grandi. Il ne retira pas trop l'attention des voisins en emmenant Grande Fortune vers la maison qu'il avait quittée toutes ces années auparavant.
 
 Ses parents étaient toujours là, mais son père, autrefois robuste, devait désormais s'appuyer sur une canne. Il se tenait debout avec l'aide de la mère de Wang Lin, aux cheveux blancs. Ils regardaient vers la route, guettant leur enfant qui rentrait à la maison.
 
@@ -62,11 +62,11 @@ Le calèche s'arrêta devant la cour. Wang Lin en descendit et vit immédiatemen
 
 « Père, Mère, Tie Zhu est de retour. »
 
-Big Fortune cligna des yeux. Après être descendu du calèche, il s'agenouilla également et s'exclama bruyamment: « Père, Mère, Big Fortune est de retour! »
+Grande Fortune cligna des yeux. Après être descendu du calèche, il s'agenouilla également et s'exclama bruyamment: « Père, Mère, Grande Fortune est de retour! »
 
-Le père de Wang Lin éclata de rire. Il ignora Wang Lin pour aider rapidement Big Fortune à se relever. Secouant la tête, il rit de nouveau: « Toi, tu es toujours le même qu'autrefois. Tu as pris soin de Lin Er pendant toutes ces années, je ne saurais comment te remercier. Mais n'essaie pas de l'imiter! »
+Le père de Wang Lin éclata de rire. Il ignora Wang Lin pour aider rapidement Grande Fortune à se relever. Secouant la tête, il rit de nouveau: « Toi, tu es toujours le même qu'autrefois. Tu as pris soin de Lin Er pendant toutes ces années, je ne saurais comment te remercier. Mais n'essaie pas de l'imiter! »
 
-Wang Lin se redressa et contempla les sourires radieux de ses parents. Un sentiment de chaleur indescriptible envahit son cœur. Il prit le bras de sa mère, soutint son père et fit entrer Big Fortune dans la cour.
+Wang Lin se redressa et contempla les sourires radieux de ses parents. Un sentiment de chaleur indescriptible envahit son cœur. Il prit le bras de sa mère, soutint son père et fit entrer Grande Fortune dans la cour.
 
 « Tie Zhu, quand repartiras-tu cette fois? » La mère de Wang Lin regarda son fils avec tendresse. Wang Lin était sa fierté.
 

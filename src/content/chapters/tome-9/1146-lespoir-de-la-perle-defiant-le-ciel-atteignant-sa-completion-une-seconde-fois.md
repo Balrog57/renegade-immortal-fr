@@ -52,7 +52,7 @@ Lu Yanfei regardait silencieusement la demeure ordinaire. Après avoir hésité,
 
 La porte de Wang Lin était close. Lu Yanfei et Xu Yun se tinrent devant le seuil en silence.
 
-Après un long moment, Lu Yanfei mordit sa lèvre inférieure et demanda doucement: « Senior est-il là? »
+Après un long moment, Lu Yanfei mordit sa lèvre inférieure et demanda doucement: « Aîné est-il là? »
 
 « Non! » Une voix calme sortit de la demeure. Elles furent surprises par cette réponse qu'elles n'attendaient pas ainsi.
 

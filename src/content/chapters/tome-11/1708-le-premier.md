@@ -60,7 +60,7 @@ Des ondulations parcoururent l'espace au-dessus de l'autel et un vortex gigantes
 
 Cette poussée fit trembler l'esprit de Wang Lin. Cette force était plus puissante que la puissance du ciel, plus puissante que toute pression qu'il avait jamais affrontée!
 
-Oubliez-le lui, même Seven-Colored aurait été expulsé de cet autel!
+Oubliez-le lui, même Sept-Couleurs aurait été expulsé de cet autel!
 
 Wang Lin sentit la goutte de sang de son corps original brûler, libérant une lueur sanguine qui semblait communiquer avec le vortex.
 

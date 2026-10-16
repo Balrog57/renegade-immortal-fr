@@ -28,7 +28,7 @@ Par chance, une fois que Wang Lin eut fermé les yeux, la majesté de l'ancien d
 
 Les yeux de Xu Ting s'illuminèrent comme des torches au milieu du brouillard noir en observant la scène. Son esprit trembla violemment; il n'en croyait pas ses yeux. Ce Xu Mu était vraiment... vraiment trop incroyable!
 
-« Ceci... Comment est-ce possible? Il lui a suffi d'un regard pour terrifier l'esprit du tonnerre! Et à en juger par sa réaction, c'est comme si un junior rencontrait un aîné de sa propre lignée... »
+« Ceci... Comment est-ce possible? Il lui a suffi d'un regard pour terrifier l'esprit du tonnerre! Et à en juger par sa réaction, c'est comme si un cadet rencontrait un aîné de sa propre lignée... »
 
 Shengong Hu remarqua également la scène. Ses yeux brillaient de fanatisme et il ne put s'empêcher de repenser à sa première rencontre avec Wang Lin. Il l'avait rencontré pour la première fois dans une prison de tonnerre. Il n'oublierait jamais cette silhouette aux longs cheveux noirs émergeant des éclairs, ni ce regard qui lui avait donné l'impression que tout son corps allait s'effondrer.
 

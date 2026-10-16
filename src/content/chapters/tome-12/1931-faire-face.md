@@ -38,7 +38,7 @@ La puissance du corps originel de Wang Lin pénétra dans le corps des cinq él�
 
 Une fois le fragment extrait, une force dévastatrice percuta les deux corps véritables de Wang Lin. Ces derniers furent projetés violemment contre lui, le repoussant brutalement.
 
-Pourtant, la puissance ne se dissipa pas; elle s'abattit de plein fouet sur son corps. Wang Lin chancela et du sang s'échappa du coin de sa bouche. Malgré sa culture d'Exalt Empyréen et son corps de l'Ancien Dao, il était blessé. Cela témoignait de la puissance phénoménale de cette mer!
+Pourtant, la puissance ne se dissipa pas; elle s'abattit de plein fouet sur son corps. Wang Lin chancela et du sang s'échappa du coin de sa bouche. Malgré sa culture d'Exalté Empyréen et son corps de l'Ancien Dao, il était blessé. Cela témoignait de la puissance phénoménale de cette mer!
 
 Mais ce n'était pas encore fini. Tandis que Wang Lin était blessé et repoussé par le choc, la paume de tonnerre qui retenait le visage s'effondra soudainement, dispersant l'éclair.
 
@@ -56,7 +56,7 @@ De loin, le visage et ce cou ressemblaient à un python gigantesque!
 
 « Âme non issue du Continent Astral Immortel détectée, sceller! » Tandis qu'il poursuivait sa cible, la voix antique résonna une nouvelle fois. Elle semblait habitée par une volonté et une mission précises, empreinte d'une étrangeté indescriptible.
 
-Les yeux de Wang Lin étaient injectés de sang. Depuis qu'il avait atteint la puissance de combat d'un Exalt Empyréen, il n'avait pas affronté un tel danger depuis plus de cinquante ans. Cependant, le temps pressait. Les richesses se trouvent au cœur du péril, et puisqu'il avait pris cette décision, il ne le regretterait pas!
+Les yeux de Wang Lin étaient injectés de sang. Depuis qu'il avait atteint la puissance de combat d'un Exalté Empyréen, il n'avait pas affronté un tel danger depuis plus de cinquante ans. Cependant, le temps pressait. Les richesses se trouvent au cœur du péril, et puisqu'il avait pris cette décision, il ne le regretterait pas!
 
 Tout en reculant, Wang Lin leva la main droite. Il ferma le poing et quatre-vingt-dix-sept images fantômes apparurent autour de lui!
 
@@ -77,7 +77,7 @@ Cependant, ce n'était que temporaire. Avant que la pétrification ne soit total
 
 « Même l'Ancien Dao, Nul Céleste ne peut le détruire complètement. Le visage scellé se régénère rapidement. Il ne lui faudra que quelques respirations pour redevenir intact! » Les pupilles de Wang Lin se contractèrent. S'il choisissait de battre en retraite à cet instant, il était sûr à 80 % de pouvoir s'échapper par la brèche qu'il avait ouverte et retourner dans la Mer Montagneuse. Il pourrait même s'envoler directement hors de la mer!
 
-Mais Wang Lin refusait de simplement fuir! Une lueur glaciale brilla dans ses yeux. Le sceau l'avait blessé. Bien qu'il soit sûr à 80 % de pouvoir s'échapper, il restait un risque de 20 % que tout bascule. Si cela arrivait, et avec le rétablissement de l'Exalt Empyréen Hai Zi, il se retrouverait dans une position désastreuse, attaqué de toutes parts!
+Mais Wang Lin refusait de simplement fuir! Une lueur glaciale brilla dans ses yeux. Le sceau l'avait blessé. Bien qu'il soit sûr à 80 % de pouvoir s'échapper, il restait un risque de 20 % que tout bascule. Si cela arrivait, et avec le rétablissement de l'Exalté Empyréen Hai Zi, il se retrouverait dans une position désastreuse, attaqué de toutes parts!
 
 Wang Lin ne jouerait pas ainsi; il préférait maîtriser son propre destin!
 
@@ -103,6 +103,6 @@ On ignorait si l'octopus pouvait l'entendre, mais à voir ses yeux écarquillés
 
 Cependant, les vibrations provenant des abysses terrifièrent le dragon marin un instant. Sentant un danger imminent, il s'enfuit promptement sans hésiter.
 
-Après son départ, le corps de l'Exalt Empyréen Hai Zi trembla et ses yeux brillèrent d'une froideur meurtrière!
+Après son départ, le corps de l'Exalté Empyréen Hai Zi trembla et ses yeux brillèrent d'une froideur meurtrière!
 
-« Wang Lin!!! » L'Exalt Empyréen Hai Zi était rétablie!
+« Wang Lin!!! » L'Exalté Empyréen Hai Zi était rétablie!

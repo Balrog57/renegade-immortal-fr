@@ -44,7 +44,7 @@ Cependant, Wang Lin avait pu obtenir une opportunité aussi inimaginable grâce 
 
 Après avoir entrevu le Dao de la troisième étape, les futurs accomplissements de Wang Lin devenaient imprévisibles et incommensurables.
 
-« Ce junior est un messager de deuxième niveau du Temple Céleste du Tonnerre, Shengong Hu. Shengong Hu salue l'Aîné! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
+« Ce cadet est un messager de deuxième niveau du Temple Céleste du Tonnerre, Shengong Hu. Shengong Hu salue l'Aîné! » L'homme aux cheveux noirs se prosterna immédiatement au sol, adoptant la position qu'il utilisait pour reconnaître son maître afin de témoigner son respect.
 
 Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Céleste du Tonnerre, c'était une personne difficile à traiter, et la plupart des familles de culture n'oseraient pas le provoquer.
 
@@ -70,7 +70,7 @@ Bien que la culture de Shengong Hu fût au stade du Yang Corporel, son esprit é
 
 Quant à la Bête du Tonnerre, elle n'osait même pas lever la tête. Le regard précédent lui avait fait perdre tout courage.
 
-Les paroles nonchalantes de Wang Lin stupéfièrent soudainement Shengong Hu. Il s'empressa de dire: « Junior... »
+Les paroles nonchalantes de Wang Lin stupéfièrent soudainement Shengong Hu. Il s'empressa de dire: « cadet... »
 
 Avant qu'il ne puisse finir sa phrase, Wang Lin agita sa main droite et dit: « S'il n'y a rien d'autre, alors partez vite! »
 
@@ -84,17 +84,17 @@ Shengong Hu trouvait l'attitude de Wang Lin tout à fait normale. Un être puiss
 
 En repensant au regard de tout à l'heure, Shengong Hu n'en doutait pas: cet Aîné lui avait épargné la vie. Autrement, il serait sans aucun doute mort!
 
-Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Aîné, Junior est Shengong Hu, un membre de la famille Shenggong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie l'Aîné de me permettre de lui prêter allégeance! »
+Son esprit tremblant et son choc s'étaient transformés en fanatisme et en révérence. Après une profonde inspiration, il dit: « Aîné, ce cadet est Shengong Hu, un membre de la famille Shenggong dans le domaine sud. Je suis un messager de deuxième niveau du Temple Céleste du Tonnerre et un cultivateur au stade Yang Corporel. Je prie l'Aîné de me permettre de lui prêter allégeance! »
 
 Ce n'était pas qu'il ne parvenait pas à percevoir le niveau de culture de Wang Lin, mais ce regard terrifiant l'avait fait tout oublier. Il croyait même qu'il s'agissait d'un véritable expert surpuissant! Si un cultivateur puissant cachait son niveau, il ferait croire aux autres qu'il était un cultivateur Ascendant.
 
 « Prêter allégeance? » Wang Lin fut surpris et fixa Shengong Hu.
 
-Shengong Hu s'empressa de poursuivre: « La culture de Junior est insuffisante et je sais que je ne suis pas qualifié pour prêter allégeance à l'Aîné. Cependant, Junior est extrêmement sincère; de plus, j'ai de nombreuses familles qui me sont vouées, ainsi Junior peut aider à satisfaire n'importe quelle exigence de l'Aîné. Junior sait que ces choses ne sont rien aux yeux de l'Aîné, mais j'espère qu'au vu de ma sincérité, l'Aîné acceptera mon allégeance... »
+Shengong Hu s'empressa de poursuivre: « La culture de cadet est insuffisante et je sais que je ne suis pas qualifié pour prêter allégeance à l'Aîné. Cependant, ce cadet est extrêmement sincère; de plus, j'ai de nombreuses familles qui me sont vouées, ainsi cadet peut aider à satisfaire n'importe quelle exigence de l'Aîné. cadet sait que ces choses ne sont rien aux yeux de l'Aîné, mais j'espère qu'au vu de ma sincérité, l'Aîné acceptera mon allégeance... »
 
 Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il secoua la tête. Il ne pouvait pas utiliser ce sort une seconde fois, et d'un seul regard, il avait compris que cet homme était extrêmement orgueilleux. Si celui-ci remarquait quoi que ce soit, cela causerait des ennuis inutiles.
 
-Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Aîné, Junior est d'une sincérité absolue et ne le regrettera jamais, quel que soit le temps qui passe. Tant que l'Aîné accepte de me donner quelques conseils lors de ma percée, Junior est prêt à abandonner une partie de son âme Dao pour prêter allégeance à l'Aîné pendant 1 000 ans! »
+Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Aîné, ce cadet est d'une sincérité absolue et ne le regrettera jamais, quel que soit le temps qui passe. Tant que l'Aîné accepte de me donner quelques conseils lors de ma percée, ce cadet est prêt à abandonner une partie de son âme Dao pour prêter allégeance à l'Aîné pendant 1 000 ans! »
 
 Tout en parlant, sa main traça un sceau avant de pointer son front. Une lumière noire contenant son domaine et son âme Dao s'échappa de son crâne.
 
@@ -110,10 +110,10 @@ Shengong Hu accordait une immense confiance à son intuition. Beaucoup de décis
 
 En voyant Shengong Hu exposer son âme Dao, les yeux de Wang Lin se plissèrent. Bien qu'il n'en connaisse pas la nature exacte, il comprenait ce que cela représentait. Après une longue réflexion, Wang Lin demanda lentement: « Tu ne le regretteras pas? »
 
-Shengong Hu répondit immédiatement avec respect: « Junior ne le regrettera certainement pas! »
+Shengong Hu répondit immédiatement avec respect: « Ce cadet ne le regrettera certainement pas! »
 
 Wang Lin ne perdit plus de temps. Il fit un geste de la main et l'âme Dao de Shengong Hu vola vers lui. Il la dévora, et elle pénétra dans son âme originelle.
 
 Après avoir rangé l'âme Dao, Wang Lin demanda calmement: « Pourquoi es-tu venu ici? »
 
-Shengong Hu esquissa un sourire amer. « Le Royaume Céleste du Tonnerre est sur le point de s'ouvrir, alors Junior voulait profiter de cet endroit pour cultiver un peu d'énergie originelle... »
+Shengong Hu esquissa un sourire amer. « Le Royaume Céleste du Tonnerre est sur le point de s'ouvrir, alors cadet voulait profiter de cet endroit pour cultiver un peu d'énergie originelle... »

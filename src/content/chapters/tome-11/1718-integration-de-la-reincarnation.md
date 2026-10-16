@@ -92,7 +92,7 @@ L'intention meurtrière dans les yeux de Wang Lin s'intensifia. C'étaient des q
 
 « À mes jeunes années, j'ai entendu parler d'un sort. Ce sort est appelé le Sort d'Intégration de la Réincarnation... » Au moment même où la voix se manifestait, une lumière bleue apparut dans le ciel, se reflétant sur les neiges. Le Maître Dao Bleu Rêve marchait vers la montagne.
 
-« Qing Lin salue le Senior Maître du Dao », dit Qing Lin, surpris, en joignant les mains devant le Maître Dao Bleu Rêve.
+« Qing Lin salue l'Aîné Maître du Dao », dit Qing Lin, surpris, en joignant les mains devant le Maître Dao Bleu Rêve.
 
 « Le Sort d'Intégration de la Réincarnation? » Les yeux de Wang Lin se plissèrent.
 

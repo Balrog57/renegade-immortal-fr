@@ -128,7 +128,7 @@ D'innombrables fissures parcoururent le sabre brisé, qui finit par perdre un mo
 
 Le vieil homme serra les dents, le visage sombre et empreint de terreur, tandis qu'il tirait précipitamment la femme loin de lui. Sa rapidité lui permit de l'extraire de la restriction qui les entourait.
 
-La femme au voile blanc, terrifiée, supplia: « Senior, je vous en prie, arrêtez! Même si vous voulez nous tuer tous les deux, donnez-nous au moins une raison! »
+La femme au voile blanc, terrifiée, supplia: « Aîné, je vous en prie, arrêtez! Même si vous voulez nous tuer tous les deux, donnez-nous au moins une raison! »
 
 Le corps original retira son poing et les fixa froidement.
 
@@ -138,7 +138,7 @@ Le front du vieil homme était couvert de sueur alors qu'il fixait le jeune homm
 
 Le corps original demanda froidement: « D'où venez-vous tous les deux? »
 
-La femme au voile blanc sursauta. Sans même prendre le temps de réfléchir, elle répondit: « Ce junior vient de Zhou et souhaite se rendre à Chu. »
+La femme au voile blanc sursauta. Sans même prendre le temps de réfléchir, elle répondit: « Ce cadet vient de Zhou et souhaite se rendre à Chu. »
 
 « Foutaises. Vous cherchez la mort! » Les yeux du corps original devinrent glacials. Il les regarda comme s'il contemplait des cadavres. Sans avancer davantage, il décocha un coup de pied de sa jambe droite.
 
@@ -150,6 +150,6 @@ Le sabre brisé vola en éclats!
 
 Le corps du vieil homme fut projeté du ciel telle une météorite.
 
-« Senior!! Nous n'avons aucune haine envers vous! Pourquoi devez-vous tuer?! » La voix de la femme au voile blanc se brisa et des larmes coulèrent au coin de ses yeux.
+« Aîné!! Nous n'avons aucune haine envers vous! Pourquoi devez-vous tuer?! » La voix de la femme au voile blanc se brisa et des larmes coulèrent au coin de ses yeux.
 
 Le corps original jeta un regard froid à la femme au voile blanc.

@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 1022 - Break (1)
 slug: rupture-1
 ---
-L'Omniscient n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître Void, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon de plusieurs kilomètres.
+L'Omniscient n'était pas le seul à réagir ainsi. Dans un autre royaume à l'intérieur du monde de la bouteille, Maître du Vide, le jeune frère apprenti de l'Ancien principal de l'Alliance, Maître Zhong Xuan, se déplaçait sur un nuage vert. Il tenait une pierre de jade violette et verte. Le jade brillait et illuminait tout dans un rayon de plusieurs kilomètres.
 
 Même en étant très loin, on pouvait clairement distinguer cette lumière pourpre et verte.
 
-Maître Void n'était pas seul. C'était un cultivateur de très haut niveau et, au cours de cette année, il avait déjà franchi le premier royaume dans lequel il se trouvait. Il avait continué à progresser à travers des dizaines de royaumes dans ce monde contenu dans la bouteille!
+Maître du Vide n'était pas seul. C'était un cultivateur de très haut niveau et, au cours de cette année, il avait déjà franchi le premier royaume dans lequel il se trouvait. Il avait continué à progresser à travers des dizaines de royaumes dans ce monde contenu dans la bouteille!
 
 La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
@@ -18,7 +18,7 @@ La belle femme d'âge moyen et ses quatre disciples étaient derrière lui!
 
 « On ignore ce qu'il a fait exactement, mais selon les archives de l'Alliance, cette bouteille était l'outil que Qing Lin utilisait pour collecter l'énergie spirituelle céleste. Il se murmurait également que ce trésor pouvait briser le sceau du monde entourant les quatre systèmes stellaires! »
 
-Maître Void parlait tout en contemplant la pierre de jade violette et verte dans sa main.
+Maître du Vide parlait tout en contemplant la pierre de jade violette et verte dans sa main.
 
 La belle femme d'âge moyen hocha la tête et s'apprêtait à parler lorsque le ciel trembla soudainement. Un changement colossal s'opérait dans les cieux, et même la terre en fut ébranlée.
 
@@ -28,15 +28,15 @@ Le cri de l'Oiseau Vermillon retentit à travers le monde!
 
 Dès que la belle femme entendit le cri de l'Oiseau Vermillon, son expression changea radicalement. Non seulement elle, mais aussi la jeune fille en rose, soupçonnée d'être la Sainte du Vide Brillant, afficha un visage glacial.
 
-Les pupilles de Maître Void se rétractèrent soudainement!
+Les pupilles du Maître du Vide se rétractèrent soudainement!
 
 « Le cri de l'Oiseau Vermillon? L'éveil de l'Oiseau Vermillon!!! Serait-ce le jeune homme au marquage de l'Oiseau Vermillon dont vous parliez? »
 
 Le visage de la belle femme était empreint de choc, et une trace d'anxiété apparut sur ses traits lorsqu'elle répondit rapidement: « Lorsque je l'ai vu auparavant, il ne possédait que le marquage de l'Oiseau Vermillon, et il était complètement scellé. Il est impossible qu'il s'éveille en un laps de temps aussi court! »
 
-« L'éveil de l'Oiseau Vermillon... Cela pourrait être un événement qui ébranlerait les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard de Maître Void. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu davantage d'héritages et de reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
+« L'éveil de l'Oiseau Vermillon... Cela pourrait être un événement qui ébranlerait les Quatre Sectes Divines... Les Quatre Sectes Divines... » Une intention meurtrière perça le regard du Maître du Vide. Il ne permettrait à aucune personne possédant un marquage éveillé de se manifester. Il n'oublierait jamais la bataille aussi féroce qu'amère qu'ils avaient menée contre les Quatre Sectes Divines pour le contrôle du Vide Brillant. Si l'Alliance n'avait pas obtenu davantage d'héritages et de reliques du Royaume Céleste de la Pluie, et si elle n'avait pas bénéficié de l'aide de la Sainte du Vide Brillant, le système stellaire actuel de l'Alliance aurait été renommé le Système Stellaire des Quatre Sectes Divines!
 
-Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Empereurs Divins, l'intention meurtrière dans les yeux de Maître Void s'intensifia.
+Malgré une force aussi puissante, l'Alliance ne pouvait toujours pas anéantir complètement les Quatre Sectes Divines. En songeant à la terreur que représentaient les Quatre Empereurs Divins, l'intention meurtrière dans les yeux du Maître du Vide s'intensifia.
 
 « Si cette personne parvient à s'éveiller et quitte le Royaume du Ciel Spirituel Céleste, les Quatre Sectes Divines la traqueront sans aucun doute au plus vite. Ils le ramèneront pour son héritage et le placeront sous une protection stricte! »
 
@@ -246,7 +246,7 @@ La silhouette de l'Omniscient apparut dans le ciel effondré. Il observa tous ce
 
 Ling Tianhou, Situ Nan et l'Omniscient n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
 
-Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Da Tou, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître Void!
+Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Da Tou, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître du Vide!
 
 Cependant, cet effondrement ne cessait pas; il continuait de se propager. Cette destruction était infusée du pouvoir de chaque royaume, créant une force que nul ne pouvait stopper. Elle devenait de plus en plus puissante en chargeant vers le dernier royaume du monde de la bouteille!
 

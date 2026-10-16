@@ -8,7 +8,7 @@ slug: aneantissement-total
 ---
 Le regard de Wang Lin était glacial. Il jeta un coup d'œil à Qian Kun et demanda: « Le Bossu Meng est-il votre ancêtre? »
 
-Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était extrêmement célèbre dans la Mer des Démons. Quel que soit le senior, lorsqu'on évoquait Meng Qingfan, on se référait à lui comme au Senior Meng.
+Le corps de Qian Kun trembla. S'il avait eu le moindre doute auparavant, celui-ci s'évanouit instantanément à l'audition de cette question. Il fallait dire que le nom de Meng Qingfan, du Palais Enchanté du Roi Poison, était extrêmement célèbre dans la Mer des Démons. Quel que soit l'aîné, lorsqu'on évoquait Meng Qingfan, on se référait à lui comme à l'Aîné Meng.
 
 Même parmi les figures de renommée équivalente, on l'appelait au moins le Maître Meng. Outre son ascension au stade de la Formation de l'Âme, une étape très rare dans la Mer des Démons, il possédait des techniques de poison redoutables. Ses attaques empoisonnées étaient presque impossibles à parer: insipides et incolores. Nombreux étaient ceux qui avaient succombé à ces poisons avant même de comprendre ce qui leur arrivait.
 
@@ -22,7 +22,7 @@ Lorsque Meng Qingfan tuait, il aimait laisser une explication derrière lui. C�
 
 Seuls quelques rares individus osaient l'appeler le Bossu Meng. Après avoir entendu les paroles de Wang Lin, Qian Kun fut plus que jamais convaincu de ses soupçons.
 
-N'osant pas mentir, il s'exécuta rapidement: « Se... Senior, l'Ancien Meng est bel et bien l'ancêtre de notre secte. » Après ces mots, il serra les dents. Sans attendre que Wang Lin ne réponde, il livra le secret qu'il portait.
+N'osant pas mentir, il s'exécuta rapidement: « Se... Aîné, l'Ancien Meng est bel et bien l'ancêtre de notre secte. » Après ces mots, il serra les dents. Sans attendre que Wang Lin ne réponde, il livra le secret qu'il portait.
 
 Il semblait que quelques années auparavant, Qian Kun avait entendu le chef actuel parler de l'ancêtre Meng Qingfan: celui-ci n'était pas porté disparu, mais s'était rendu dans les Étoiles Brisées du Chaos, et il s'agirait de sa deuxième expédition là-bas.
 
@@ -76,7 +76,7 @@ Elle n'avait jamais rien vu de tel. À cet instant, la pression exercée par Wan
 
 Le regard de Wang Lin se posa sur Yun Fei, faisant frissonner son corps instantanément. Elle n'osa pas soutenir son regard. Il dit calmement: « Je t'ai aidée à tuer Qian Kun, comment comptes-tu me remercier? »
 
-Tremblante, Yun Fei leva la tête et s'efforça de reprendre contenance. Elle esquissa un sourire forcé, mais sa voix ne put s'empêcher de vaciller: « Se... Senior, junior ne connaissait pas Qian Kun. »
+Tremblante, Yun Fei leva la tête et s'efforça de reprendre contenance. Elle esquissa un sourire forcé, mais sa voix ne put s'empêcher de vaciller: « Se... Aîné, ce cadet ne connaissait pas Qian Kun. »
 
 Wang Lin ne répondit rien et se contenta de la regarder d'un air serein.
 
@@ -86,13 +86,13 @@ Yun Fei avait elle-même un tempérament glacial. Elle comprit parfaitement que 
 
 Elle se mordit la lèvre inférieure. Un air de détermination sur le visage, elle sortit un morceau de jade et le présenta à Wang Lin.
 
-« Senior, ce jade est une copie et contient des recettes de pilules très précieuses. C'est le plus grand trésor de ma Secte Qi Huang. »
+« Aîné, ce jade est une copie et contient des recettes de pilules très précieuses. C'est le plus grand trésor de ma Secte Qi Huang. »
 
 Wang Lin prit le jade, l'examina avec son Sens Divin, puis reporta son attention sur Yun Fei.
 
-Une amertume envahit le cœur de Yun Fei. Elle réalisa que ce simple morceau de jade ne suffirait pas à ébranler Wang Lin. Son esprit s'activa rapidement: « Senior, junior a grandi dans la ville de Qi Lin et possède une demeure là-bas. Junior connaît également très bien la ville, si senior a des besoins particuliers, junior pourra aider. » Craignant que Wang Lin ne connaisse pas les rouages de la cité, elle poursuivit: « Senior, saviez-vous que si un cultivateur n'a pas de statut de résident à Qi Lin, il ne peut y séjourner que trois jours? Au-delà, chaque jour coûte dix pierres spirituelles de faible qualité. Même ainsi, on ne peut rester que dix jours au total. Mais junior possède un statut de résidente. Avec elle, senior pourra séjourner à Qi Lin aussi longtemps qu'il le souhaitera. »
+Une amertume envahit le cœur de Yun Fei. Elle réalisa que ce simple morceau de jade ne suffirait pas à ébranler Wang Lin. Son esprit s'activa rapidement: « Aîné, ce cadet a grandi dans la ville de Qi Lin et possède une demeure là-bas. Ce cadet connaît également très bien la ville, si aîné a des besoins particuliers, cadet pourra aider. » Craignant que Wang Lin ne connaisse pas les rouages de la cité, elle poursuivit: « Aîné, saviez-vous que si un cultivateur n'a pas de statut de résident à Qi Lin, il ne peut y séjourner que trois jours? Au-delà, chaque jour coûte dix pierres spirituelles de faible qualité. Même ainsi, on ne peut rester que dix jours au total. Mais cadet possède un statut de résidente. Avec elle, aîné pourra séjourner à Qi Lin aussi longtemps qu'il le souhaitera. »
 
-« De plus, junior connaît parfaitement cette Mer des Démons, les emplacements des cités et la force des cultivateurs, car c'était sa fonction au Palais Enchanté. On pourrait dire que rien de la Mer des Démons n'échappe à junior. Si je n'avais pas été pourchassée par Qian Kun dans un état de panique, junior ne serait jamais venue dans les Étoiles Brisées du Chaos. »
+« De plus, ce cadet connaît parfaitement cette Mer des Démons, les emplacements des cités et la force des cultivateurs, car c'était sa fonction au Palais Enchanté. On pourrait dire que rien de la Mer des Démons n'échappe à cadet. Si je n'avais pas été pourchassée par Qian Kun dans un état de panique, ce cadet ne serait jamais venue dans les Étoiles Brisées du Chaos. »
 
 Après avoir débité tout cela d'un seul trait, elle regarda nerveusement Wang Lin.
 

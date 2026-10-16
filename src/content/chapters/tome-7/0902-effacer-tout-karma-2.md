@@ -8,9 +8,9 @@ slug: effacer-tout-karma-2
 ---
 Pays de culture de rang 4, Huo Fen. Une femme d'une grande beauté, vêtue d'une robe de palais, était assise dans la salle du Temple du Dieu de la Guerre. Cette femme se trouvait au stade avancé de la Formation de l'Âme. Des jades célestes étaient disposés à ses côtés; il était évident qu'elle tentait d'atteindre le stade de la Transformation de l'Âme.
 
-Un jeune homme était assis face à elle. Bien qu'il fût jeune, il dégageait une aura antique. Il se trouvait également au stade avancé de la Formation de l'Âme. En regardant la femme, il poussa un soupir et dit: « Junior Sister Zhou, les jades célestes ne suffiront pas pour que nous puissions tous deux continuer à en absorber. Tu devrais y aller en premier. Si tu parviens à atteindre le stade de la Transformation de l'Âme, alors notre pays de Huo Fen pourra être promu! »
+Un jeune homme était assis face à elle. Bien qu'il fût jeune, il dégageait une aura antique. Il se trouvait également au stade avancé de la Formation de l'Âme. En regardant la femme, il poussa un soupir et dit: « Sœur Cadette Zhou, les jades célestes ne suffiront pas pour que nous puissions tous deux continuer à en absorber. Tu devrais y aller en premier. Si tu parviens à atteindre le stade de la Transformation de l'Âme, alors notre pays de Huo Fen pourra être promu! »
 
-La femme resta silencieuse et réfléchit. Un instant plus tard, elle regarda l'homme et dit doucement: « Senior Brother Yang, si je peux atteindre le stade de la Transformation de l'Âme, alors nous devrions devenir un couple de culture... » Après avoir parlé, elle soupira. Pour une raison quelconque, elle ne pouvait s'empêcher de penser à une personne du passé.
+La femme resta silencieuse et réfléchit. Un instant plus tard, elle regarda l'homme et dit doucement: « Aîné Brother Yang, si je peux atteindre le stade de la Transformation de l'Âme, alors nous devrions devenir un couple de culture... » Après avoir parlé, elle soupira. Pour une raison quelconque, elle ne pouvait s'empêcher de penser à une personne du passé.
 
 L'homme eut un sourire amer et secoua la tête. « Mon espérance de vie n'est plus que de courte durée, tu n'as donc pas besoin de faire cela; je le fais de ma propre volonté. De plus, j'ai entendu dire que... il est revenu sur la planète Suzaku... »
 

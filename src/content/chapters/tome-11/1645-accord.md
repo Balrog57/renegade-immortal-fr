@@ -14,7 +14,7 @@ En voyant l'Oiseau Vermillon apparaître, les yeux de Wang Lin s'illuminèrent e
 
 Wang Lin joignit les mains devant l'Oiseau Vermillon. Ce dernier était également un vieil homme et ressemblait étrangement au premier Oiseau Vermillon de la Terre Déchue.
 
-Wang Lin ouvrit lentement la bouche et dit calmement: « Inutile de m'appeler "compagnon céleste". Le junior Wang Lin salue le premier Oiseau Vermillon. »
+Wang Lin ouvrit lentement la bouche et dit calmement: « Inutile de m'appeler "compagnon céleste". Le cadet Wang Lin salue le premier Oiseau Vermillon. »
 
 L'Oiseau Vermillon, vêtu de rouge, afficha une expression complexe en regardant Wang Lin, plongé dans une profonde réflexion.
 
@@ -32,7 +32,7 @@ Le vieil homme du Tigre Blanc, dont les yeux étaient empreints de crainte, dema
 
 Le visage du Général Tigre Blanc se crispa, mais il resta silencieux.
 
-« Je fais abstraction de ce qui se passe dans la Terre Déchue. Aujourd'hui, je suis venu pour conclure un accord avec vous, Senior », déclara calmement Wang Lin.
+« Je fais abstraction de ce qui se passe dans la Terre Déchue. Aujourd'hui, je suis venu pour conclure un accord avec vous, Aîné », déclara calmement Wang Lin.
 
 « L'Ancien Royaume Céleste, ou ce que l'on appelle le cœur de la grotte du Souverain Céleste aux Sept Couleurs, abrite les disciples blessés de la Secte des Sept Dao. Ce sont eux, les soi-disant cieux, les cultivateurs de l'Ancien Royaume Céleste.
 

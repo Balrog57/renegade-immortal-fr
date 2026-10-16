@@ -81,7 +81,7 @@ Le secteur nord était moins fréquenté, mais c'était là que se trouvaient le
 
 L'objectif de Wang Lin était limpide: il lui fallait deux matériaux pour réparer la boussole stellaire. Ces composants étaient extrêmement rares et ne se trouvaient point dans les commerces ordinaires. Tandis qu'il progressait, il inspectait chaque boutique, marquant parfois une pause avant de reprendre sa marche.
 
-Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point; il sourit au contraire, s'approcha rapidement et joignit les mains en signe de respect: « Je présume que c'est la première fois que Senior vient à Ming Mei. »
+Lorsqu'il atteignit la septième boutique, Wang Lin se retourna et aperçut un jeune homme non loin de lui. Ce dernier le suivait discrètement depuis son entrée dans la cité. Voyant que Wang Lin l'avait remarqué, le jeune homme ne paniqua point; il sourit au contraire, s'approcha rapidement et joignit les mains en signe de respect: « Je présume que c'est la première fois qu'Aîné vient à Ming Mei. »
 
 La culture de cet individu était au stade avancé de l'Âme Naissante, n'ayant pas encore atteint le stade de la Formation de l'Âme.
 

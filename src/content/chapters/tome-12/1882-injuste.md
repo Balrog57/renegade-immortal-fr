@@ -60,7 +60,7 @@ Wang Lin écouta Yun Yifeng sans dire mot, les yeux fixés sur la grande salle q
 
 Tang Jia prit un air sérieux et déclara doucement: « Secte Xiu Shen, Tang Jia! »
 
-« Cultivateur errant, Edge Cloud! » Le vieil homme se leva et joignit les mains en direction de la salle.
+« Cultivateur errant, Bord-des-Nuages! » Le vieil homme se leva et joignit les mains en direction de la salle.
 
 « Secte de la Grande Âme, Wang Lin! » dit lentement Wang Lin avant d'inspecter les lieux. Il remarqua que lorsque la voix avait résonné, une restriction invisible avait enveloppé la zone, empêchant quiconque de communiquer avec l'extérieur.
 
@@ -68,13 +68,13 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Trois des sept méridiens du Taureau Céleste ont été détruits et trois Messagers du Taureau Céleste sont tombés... Vous quatre avez défendu les méridiens et accompli de grands mérites! Après concertation avec la Grande Âme, ceux qui ont excellé doivent être récompensés! » La voix majestueuse dégageait une aura ancestrale, comme si elle avait vécu depuis des éons, oubliant le passage du temps.
 
-« Edge Cloud! » appela la voix.
+« Bord-des-Nuages! » appela la voix.
 
-« Présent! » Le vieil homme nommé Edge Cloud s'avança.
+« Présent! » Le vieil homme nommé Bord-des-Nuages s'avança.
 
-« Tu as gardé le quatrième méridien et accompli des mérites. Je te nomme Ancien de la faction de l'élément Métal et je te remets l'armure élémentaire de métal! » Un rayon de lumière dorée jaillit, dégageant une intention meurtrière si puissante qu'elle enveloppa la place. La lumière s'arrêta près d'Edge Cloud et se mua en une armure dorée exsudant une pression terrifiante. Edge Cloud, loin d'être calme, était transporté par l'excitation.
+« Tu as gardé le quatrième méridien et accompli des mérites. Je te nomme Ancien de la faction de l'élément Métal et je te remets l'armure élémentaire de métal! » Un rayon de lumière dorée jaillit, dégageant une intention meurtrière si puissante qu'elle enveloppa la place. La lumière s'arrêta près d'Bord-des-Nuages et se mua en une armure dorée exsudant une pression terrifiante. Bord-des-Nuages, loin d'être calme, était transporté par l'excitation.
 
-« Merci, Maître de Secte! » Edge Cloud prit une profonde inspiration et inclina la tête. Au moment où il s'inclinait, la lumière dorée se fragmenta en d'innombrables fils qui pénétrèrent son corps.
+« Merci, Maître de Secte! » Bord-des-Nuages prit une profonde inspiration et inclina la tête. Au moment où il s'inclinait, la lumière dorée se fragmenta en d'innombrables fils qui pénétrèrent son corps.
 
 « Tang Jia! » La voix résonna à nouveau.
 
@@ -98,16 +98,16 @@ Wang Lin resta serein alors qu'il avançait vers la grande salle.
 
 « Les récompenses ont été distribuées, maintenant je vous confie une mission top secrète! » La voix retentit. Yun Yifeng voulut dire quelque chose, mais après avoir jeté un regard à la grande salle, il se tut pour réfléchir.
 
-Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait reçu qu'une seule. Yun Yifeng n'était pas le seul à s'interroger; Tang Jia et le vieil homme observaient également Wang Lin avec une pointe de doute. Edge Cloud, doté d'une culture élevée et d'un tempérament sombre, s'en fichait tant que cela ne le concernait pas. Il détourna les yeux sans poser de questions. Quant à Tang Jia, ayant déjà une mauvaise opinion de Wang Lin, elle n'y prêta aucune attention.
+Les trois autres avaient reçu deux récompenses, tandis que Wang Lin n'en avait reçu qu'une seule. Yun Yifeng n'était pas le seul à s'interroger; Tang Jia et le vieil homme observaient également Wang Lin avec une pointe de doute. Bord-des-Nuages, doté d'une culture élevée et d'un tempérament sombre, s'en fichait tant que cela ne le concernait pas. Il détourna les yeux sans poser de questions. Quant à Tang Jia, ayant déjà une mauvaise opinion de Wang Lin, elle n'y prêta aucune attention.
 
 « Votre mission est de... » La voix commença, mais avant qu'elle ne puisse terminer, un éclat de froideur passa dans les yeux de Wang Lin.
 
 « Attendez! » Wang Lin fixa la grande salle et fit un pas en avant, interrompant le Maître de la Secte Gui Yi.
 
-À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Tang Jia regarda lui aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Edge Cloud se tourna vers lui.
+À cet instant, l'expression de Yun Yifeng changea et il fit signe à Wang Lin de se taire. Tang Jia regarda lui aussi Wang Lin, stupéfaite qu'il ose prendre la parole dans un tel moment. Même Bord-des-Nuages se tourna vers lui.
 
 « Votre mission est de vous rendre sur le Continent du Démon Vert, d'infiltrer le Temple du Démon Vert et de détruire la Statue du Démon Vert afin de blesser gravement l'âme du Démon Vert. Une fois cela accompli, vous aurez tous quatre réalisé un exploit immense pour le Continent du Taureau Céleste! » La voix ignora totalement l'interruption de Wang Lin et poursuivit son énoncé.
 
-À ces mots, le visage d'Edge Cloud se crispa, tout comme celui de Tang Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
+À ces mots, le visage d'Bord-des-Nuages se crispa, tout comme celui de Tang Jia. Il semblait que c'était aussi la première fois que Yun Yifeng entendait parler de cela; leurs expressions changèrent toutes simultanément. Pénétrer sur le Continent du Démon Vert était un acte d'une dangerosité extrême. La moindre erreur et ils ne pourraient jamais revenir.
 
 « Le Continent du Démon Vert est pratiquement désert pour l'instant. Quant aux ancêtres qui y résident, il y aura naturellement des êtres pour les contenir... Maintenant que la mission a été énoncée, que voulais-tu dire, Wang Lin? » La voix demeurait calme et posée, comme si rien ne pouvait troubler sa sérénité.

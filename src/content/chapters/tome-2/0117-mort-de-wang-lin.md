@@ -72,7 +72,7 @@ Il le rattrapa en un clin d'œil, tendit la main et cria: « Wang Lin, crois-tu 
 
 La main droite de Wang Lin était totalement broyée. Il utilisa son énergie spirituelle pour geler son bras et stopper l'hémorragie. Il n'osait pas toucher le sac de Teng Huayuan, le maintenant uniquement par sa technique d'attraction.
 
-Teng Huayuan était hors de lui. Devoir traiter avec un junior de l'Établissement des Fondations était déjà une humiliation profonde. S'il avait instantanément capturé ou tué Wang Lin, la situation aurait été supportable, mais il s'était laissé piéger par une illusion avant d'être entravé par cette glace bleue. Pour couronner le tout, bien que ce ne fût que pour un court instant, Wang Lin avait réussi à lui dérober son sac de rangement.
+Teng Huayuan était hors de lui. Devoir traiter avec un cadet de l'Établissement des Fondations était déjà une humiliation profonde. S'il avait instantanément capturé ou tué Wang Lin, la situation aurait été supportable, mais il s'était laissé piéger par une illusion avant d'être entravé par cette glace bleue. Pour couronner le tout, bien que ce ne fût que pour un court instant, Wang Lin avait réussi à lui dérober son sac de rangement.
 
 Il se sentait aussi insulté qu'après avoir reçu une gifle, et ce n'était pas une simple gifle, mais une série de coups répétés.
 

@@ -68,7 +68,7 @@ Une lueur de froideur passa dans les yeux du Maître Dao Bleu Rêve alors qu'il 
 
 Ce que Wang Lin ignorait, c'est que bien des années auparavant, Qing Lin avait également été confrontée à cette immense tentation. Sauf que Qing Lin avait été tentée par le Souverain, tandis que Wang Lin faisait face au Maître Dao Bleu Rêve!
 
-Wang Lin baissa la tête et dit doucement: « La culture de l'Aîné est en effet puissante, mais le Junior souhaite demander si l'Aîné a quelqu'un d'autre de plus important que lui-même! »
+Wang Lin baissa la tête et dit doucement: « La culture de l'Aîné est en effet puissante, mais le cadet souhaite demander si l'Aîné a quelqu'un d'autre de plus important que lui-même! »
 
 Le Maître Dao Bleu Rêve réfléchit un instant puis répondit lentement: « Il y en a une! »
 

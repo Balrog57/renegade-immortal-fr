@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1375 - First Encounter With Fire Sparrow
 slug: première-rencontre-avec-letourneau-de-feu
 ---
-« Maître, le membre du Conseil des Déchus le plus proche est le neuvième ancien, qui est également le chef du Clan du Dragon Blindé. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan de la Scorpione Noire en ouvrant la voie.
+« Maître, le membre du Conseil des Déchus le plus proche est le neuvième ancien, qui est également le chef du Clan du Dragon Blindé. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan du Scorpion Noir en ouvrant la voie.
 
 Tout au long du voyage, Wang Lin parla peu tandis que tous deux survolaient rapidement le domaine stellaire.
 
@@ -14,25 +14,25 @@ L'esprit de Wang Lin était encore hanté par ce qu'il avait aperçu à l'intér
 
 « Bien que le Clan du Dragon Blindé soit également un petit clan, il compte plus de 1 000 membres. Le chef du clan est au quatrième niveau de la Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect. »
 
-L'ancien de la Scorpione Noire rapporta à Wang Lin tout ce qu'il savait sur le Clan du Dragon Blindé.
+L'ancien de la Scorpion Noir rapporta à Wang Lin tout ce qu'il savait sur le Clan du Dragon Blindé.
 
 Après un long moment, Wang Lin demanda lentement: « La planète principale du Clan du Dragon Blindé vend-elle des Cristaux de Mutation de Feu Brûlant? »
 
-L'ancien de la Scorpione Noire répondit promptement: « Il y en a, mais le Clan de l'Étourneau de Feu les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan du Dragon Blindé. »
+L'ancien de la Scorpion Noir répondit promptement: « Il y en a, mais le Clan de l'Étourneau de Feu les collecte frénétiquement. Chaque fois qu'un cristal apparaît, ils sont prêts à l'acheter à n'importe quel prix, ce qui rend toute concurrence difficile. Pour acheter les cristaux et les marionnettes, nous devrons nous rendre au pavillon commercial sur la planète principale du Clan du Dragon Blindé. »
 
-Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan de la Scorpione Noire. Devant Wang Lin se dressait une planète de culture verdoyante.
+Tous deux étaient de puissants cultivateurs volant à pleine vitesse. Il ne leur fallut que quelques heures pour traverser le domaine stellaire et s'éloigner du Clan du Scorpion Noir. Devant Wang Lin se dressait une planète de culture verdoyante.
 
-Cette planète était recouverte de verdure et dégageait une puissante force vitale. Elle était également imprégnée d'énergie spirituelle, bien supérieure à celle du Clan de la Scorpione Noire.
+Cette planète était recouverte de verdure et dégageait une puissante force vitale. Elle était également imprégnée d'énergie spirituelle, bien supérieure à celle du Clan du Scorpion Noir.
 
-Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L'un d'eux transportait un vieil homme vêtu d'une chemise verte. Il sourit et joignit les mains: « L'Ancien avait prédit la venue du patriarche du Clan de la Scorpione Noire et nous a demandé d'attendre. Patriarche de la Scorpione Noire, veuillez nous suivre. »
+Au moment où ils approchèrent, trois rayons de lumière foncèrent vers eux. L'un d'eux transportait un vieil homme vêtu d'une chemise verte. Il sourit et joignit les mains: « L'Ancien avait prédit la venue du patriarche du Clan du Scorpion Noir et nous a demandé d'attendre. Patriarche de la Scorpion Noir, veuillez nous suivre. »
 
 Les deux personnes derrière le vieil homme saluèrent avec une politesse extrême.
 
-Le Clan de la Scorpione Noire faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche de la Scorpione Noire sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan du Dragon Blindé les guidèrent vers la planète.
+Le Clan du Scorpion Noir faisait toujours partie des 372 clans. Bien qu'il ne soit pas un Ancien Déchu, son patriarche n'était pas quelqu'un que les membres ordinaires pouvaient traiter avec désinvolture. Le Patriarche de la Scorpion Noir sourit et hocha la tête. Il laissa Wang Lin passer en premier avant de le suivre. Les trois représentants du Clan du Dragon Blindé les guidèrent vers la planète.
 
-En observant le comportement du Patriarche de la Scorpione Noire, les trois membres du Clan du Dragon Blindé furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
+En observant le comportement du Patriarche de la Scorpion Noir, les trois membres du Clan du Dragon Blindé furent stupéfaits. Les yeux du vieil homme s'illuminèrent et il scruta attentivement Wang Lin. Bien qu'il n'ait rien remarqué de particulier, il commença à redoubler de vigilance.
 
-« Pour que le Patriarche de la Scorpione Noire se montre si poli, cet individu ne doit pas être sous-estimé... »
+« Pour que le Patriarche de la Scorpion Noir se montre si poli, cet individu ne doit pas être sous-estimé... »
 
 Tous se transformèrent en rayons de lumière pour atteindre la planète. Juste au moment où ils allaient pénétrer dans l'atmosphère, Wang Lin remarqua quelque chose et fit mine de regarder distraitement vers l'arrière.
 
@@ -60,15 +60,15 @@ Dans l'espace, au-delà de la planète du Clan du Dragon Blindé, Maître Simo d
 
 Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une silhouette apparut, accompagnée d'un rire sonore. C'était un vieil homme aux cheveux blancs, vêtu d'une robe bleue, qui s'élevait de la planète du Clan du Dragon Blindé.
 
-« Senior Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au cinquième niveau de la Fléau Céleste.
+« Aîné Simo, cela fait bien des années que nous ne nous sommes pas vus, et vous avez toujours autant de prestance! » rit le vieil homme tandis que l'énergie originelle enveloppait son corps. Il dégageait l'aura d'un cultivateur au cinquième niveau de la Fléau Céleste.
 
 Maître Simo rit à son tour et joignit les mains: « Camarade cultivateur Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
-« Comment la venue d'un aîné pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort face au troisième niveau de la Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
+« Comment la venue d'un aîné pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Aîné Simo, je serais déjà mort face au troisième niveau de la Fléau Céleste. Aîné Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 
-Une fois que Wang Lin et le Patriarche de la Scorpione Noire eurent pénétré sur la planète, les trois membres du Clan du Dragon Blindé se retirèrent respectueusement. Le Patriarche de la Scorpione Noire conduisit ensuite Wang Lin vers une ville située dans la partie est de la planète.
+Une fois que Wang Lin et le Patriarche de la Scorpion Noir eurent pénétré sur la planète, les trois membres du Clan du Dragon Blindé se retirèrent respectueusement. Le Patriarche de la Scorpion Noir conduisit ensuite Wang Lin vers une ville située dans la partie est de la planète.
 
 Le patriarche murmura d'une voix basse: « Maître, si vous souhaitez acheter des marionnettes ou des Cristaux de Mutation de Feu Brûlant, vous devrez vous rendre dans la ville de l'est. Un pavillon contrôlé par le Clan du Dragon Blindé s'y trouve. À moins d'une grande vente aux enchères, c'est là que je me rends habituellement. »
 
@@ -90,17 +90,17 @@ L'ancien, percevant l'intention meurtrière qui émanait de Wang Lin, frissonna 
 
 Le pavillon paraissait très ancien. Alors qu'ils entraient, une femme d'une trentaine d'années en sortit. À son passage, un parfum délicat embauma l'air.
 
-« Oh, ne serait-ce pas Seigneur Scorpione Noire? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
+« Oh, ne serait-ce pas Seigneur Scorpion Noir? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
 
 Son regard balaya Wang Lin, et une pointe de choc traversa ses yeux.
 
-Le Patriarche de la Scorpione Noire sourit en joignant les mains: « Aujourd'hui, je ne suis ici qu'en compagnie de ce camarade cultivateur. »
+Le Patriarche de la Scorpion Noir sourit en joignant les mains: « Aujourd'hui, je ne suis ici qu'en compagnie de ce camarade cultivateur. »
 
 La femme sourit et observa attentivement Wang Lin. Elle se pencha légèrement: « Camarade cultivateur, veuillez me suivre à l'étage. Si vous avez besoin de quoi que ce soit, n'hésitez pas à demander. »
 
 Wang Lin resta impassible et salua légèrement la tête avant de la suivre à l'étage. Le second niveau était restreint, doté de quelques sièges raffinés. Wang Lin s'assit et fixa la femme du regard.
 
-Le Patriarche de la Scorpione Noire resta debout derrière lui.
+Le Patriarche de la Scorpion Noir resta debout derrière lui.
 
 Voyant cela, une lueur étrange, très bien dissimulée, passa dans les yeux de la femme. Elle baissa la tête et demanda doucement: « Que désire le camarade cultivateur? »
 

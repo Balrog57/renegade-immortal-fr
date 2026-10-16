@@ -50,7 +50,7 @@ Non seulement lui, mais les corps des deux anciens tremblèrent également; ils 
 
 Même le corps de Lu Yanfei fut secoué, une traînée de sang s'échappant du coin de sa bouche. Pourtant, son regard devint plus intense, car cette voix confirmait les spéculations de son cœur.
 
-« Quel senior cultive ici? Ce junior est Li, de la Secte Origin... » Li Xiangdong joignit les mains tout en reculant pour tenter de s'exprimer.
+« Quel aîné cultive ici? Ce cadet est Li, de la Secte Origin... » Li Xiangdong joignit les mains tout en reculant pour tenter de s'exprimer.
 
 « DISPARAÎSSEZ!! » Le Sens Divin se propagea à nouveau, mais avec une intensité et une fureur décuplées. Il forma une tempête qui fit vaciller le continent de Mo Luo tout entier.
 

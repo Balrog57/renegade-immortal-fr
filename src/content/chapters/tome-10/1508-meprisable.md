@@ -136,7 +136,7 @@ Le prêteur fronça les sourcils. Alors qu'il s'apprêtait à parler, son expres
 
 Une grue de nuage apparut devant lui.
 
-« Appel au Compagnon Cultivateur Maître Cloud Edge. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Daoïste Shui résonna dans l'esprit de l'homme.
+« Appel au Compagnon Cultivateur Maître Bord-des-Nuages. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Daoïste Shui résonna dans l'esprit de l'homme.
 
 L'œil de ce dernier brilla tandis qu'il se frottait le menton, plongé dans sa réflexion.
 

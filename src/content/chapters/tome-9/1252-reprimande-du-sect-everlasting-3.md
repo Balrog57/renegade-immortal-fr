@@ -34,7 +34,7 @@ La lutte entre les deux sectes de rang 6 n'avait plus d'intérêt, mais une pers
 
 Il s'agissait de Yuan Fei, le disciple principal de la Secte Giant Spirit. Toujours plongé dans une culture en isolement, il avait quitté sa secte il y a de nombreuses années pour ne revenir que deux siècles plus tard. Par conséquent, il avait manqué deux compétitions. C'était un homme d'âge mûr, au stade initial du Briseur du Nirvana. Il était extrêmement féroce; ceux qui l'affrontaient finissaient souvent gravement blessés.
 
-Cet homme occupait la première place parmi les juniors de sa secte de rang 6. Si ce n'était son absence constante, la Secte Celestial Music n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
+Cet homme occupait la première place parmi les juniors de sa secte de rang 6. Si ce n'était son absence constante, la Secte Musique Céleste n'aurait jamais obtenu sa position de premier rang et Lu Yingjie ne serait pas devenu célèbre.
 
 Il représentait les jeunes talents de sa secte. Même Lu Yingjie, bien que las, esquissa un sourire méprisant silencieux sans pour autant apparaître. Cela permit à la renommée de Yuan Fei de s'envoler!
 
@@ -74,7 +74,7 @@ Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et
 
 Tout cela était dû à la personne qui n'était pas encore arrivée!
 
-Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de la Secte Celestial Music, qui fixait Lu Yuncong et Lu Yanfei d'un regard venimeux.
+Tous les regards n'étaient pas bienveillants. C'était le cas de Lu Yingjie, de la Secte Musique Céleste, qui fixait Lu Yuncong et Lu Yanfei d'un regard venimeux.
 
 « Cet homme ridicule... Étiez-vous tous si certains qu'il viendrait? Je veux voir si cet individu est aussi incroyable que vous le prétendez! » Lu Yingjie serra les poings.
 

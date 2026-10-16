@@ -36,7 +36,7 @@ Les yeux de Na Duo tressaillirent et il bondit vers le neuvième étage sans hé
 
 Na Duo n'osa pas résister, se laissant entraîner par cette main colossale. Une fois entré, il s'agenouilla immédiatement au sol et s'adressa respectueusement à l'occupant:
 
-« Le junior Na Duo salue le Neuvième Ancêtre. »
+« Le cadet Na Duo salue le Neuvième Ancêtre. »
 
 L'homme en robe dorée fixa Na Duo et rugit: « Qui est-il?! Comment as-tu pu provoquer une telle personne?! »
 

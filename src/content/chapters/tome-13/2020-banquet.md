@@ -20,7 +20,7 @@ Des centaines de petites plateformes flottaient dans le ciel, surplombant le pal
 
 Le moment venu, des coups de tambour commencèrent à résonner depuis le palais. Les percussions rugissaient et se propageaient à travers tout le domaine. Un tambour gigantesque, large de plusieurs milliers de pieds, apparut au centre du palais. Il était fabriqué dans la peau d'une créature inconnue, une peau qui dégageait une aura ancienne et féroce.
 
-Neuf silhouettes vêtues de noir flottaient au-dessus du tambour; chacune d'elles possédait une culture comparable à celle d'un Exalt Empyréen. Chaque battement était le fruit de la force combinée des neuf individus. Leur puissance se condensait en une paume illusoire qui frappait la peau du tambour.
+Neuf silhouettes vêtues de noir flottaient au-dessus du tambour; chacune d'elles possédait une culture comparable à celle d'un Exalté Empyréen. Chaque battement était le fruit de la force combinée des neuf individus. Leur puissance se condensait en une paume illusoire qui frappait la peau du tambour.
 
 L'écho du tambour ne s'éteignait pas, mais se propageait par ondes successives. Il enveloppait tout le ciel, drapant les quelque mille plateformes volantes.
 
@@ -28,7 +28,7 @@ Grâce à cela, tous les membres du clan de l'Ancien Dao présents pouvaient l'e
 
 Des grondements tonitruants retentissaient par intervalles, créant d'innombrables échos. Dès qu'un son commençait à s'estomper, un autre prenait le relais, plongeant le monde dans le fracas des percussions.
 
-Au troisième coup de tambour, des membres du clan sortirent du palais. Ils étaient si nombreux qu'il était impossible de les dénombrer d'un seul coup d'œil. Tous étaient puissants — bien que non comparables aux Exalt Empyréens, ils possédaient tous une culture équivalente à celle de cultivateurs du troisième niveau.
+Au troisième coup de tambour, des membres du clan sortirent du palais. Ils étaient si nombreux qu'il était impossible de les dénombrer d'un seul coup d'œil. Tous étaient puissants — bien que non comparables aux Exalté Empyréens, ils possédaient tous une culture équivalente à celle de cultivateurs du troisième niveau.
 
 Chacun choisit une table et s'assit pour converser. La place entière commença à bourdonner, devenant très animée.
 

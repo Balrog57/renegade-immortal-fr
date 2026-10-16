@@ -8,7 +8,7 @@ slug: bouteille-de-tresor
 ---
 Les portes du palais s'ouvrirent de l'intérieur. Wang Lin sourit en regardant la timide Ling Er et eut un rire léger. « Pourquoi venir si tôt? »
 
-Lorsqu'elle vit Wang Lin sortir, elle poussa un soupir de soulagement, puis se tapota la poitrine et dit rapidement: « Senior, le lever du soleil sur la planète Esprit d'Eau est magnifique. Ling Er aimerait savoir si Senior souhaiterait le contempler. » En parlant, son petit visage devint rouge. Bien que Wang Lin fût un Senior, de son point de vue, il ne semblait pas beaucoup plus âgé qu'elle. Une invitation aussi explicite fit battre son cœur encore plus vite.
+Lorsqu'elle vit Wang Lin sortir, elle poussa un soupir de soulagement, puis se tapota la poitrine et dit rapidement: « Aîné, le lever du soleil sur la planète Esprit d'Eau est magnifique. Ling Er aimerait savoir si Aîné souhaiterait le contempler. » En parlant, son petit visage devint rouge. Bien que Wang Lin fût un Aîné, de son point de vue, il ne semblait pas beaucoup plus âgé qu'elle. Une invitation aussi explicite fit battre son cœur encore plus vite.
 
 En entendant ces mots, le sourire de Wang Lin disparut et il fronça les sourcils.
 
@@ -20,13 +20,13 @@ Une fois ses paroles prononcées, il ne regarda plus Ling Er et retourna vers le
 
 Il eut un sourire amer intérieurement. Comment pouvait-il ne pas comprendre les intentions de Ling Er? Bien qu'il soit peut-être exagéré de le traiter de « vieux monstre », puisqu'il n'avait cultivé que depuis un peu plus de mille ans, ce terme restait approprié compte tenu de son niveau de culture.
 
-De plus, son âge réel dépassait les mille ans, ce qui le rendait bien plus âgé que Ling Er. La seule raison pour laquelle il se montrait aimable envers elle, outre sa racine d'esprit d'eau, était qu'un Senior se montre bienveillant envers une junior. Il n'y avait aucune autre intention.
+De plus, son âge réel dépassait les mille ans, ce qui le rendait bien plus âgé que Ling Er. La seule raison pour laquelle il se montrait aimable envers elle, outre sa racine d'esprit d'eau, était qu'un Aîné se montre bienveillant envers une cadette. Il n'y avait aucune autre intention.
 
-« Ling Er n'avait pas d'autre idée derrière la tête. Je veux juste voir le lever du soleil avec Senior. Senior ne peut même pas accepter une si petite requête? » Les yeux de Ling Er étaient limpides. Elle ne savait pas elle-même pourquoi, mais dès son réveil, elle avait voulu trouver Wang Lin. Elle voulait trouver la réponse à son rêve. Elle avait le sentiment qu'elle obtiendrait sa réponse auprès de lui.
+« Ling Er n'avait pas d'autre idée derrière la tête. Je veux juste voir le lever du soleil avec Aîné. Aîné ne peut même pas accepter une si petite requête? » Les yeux de Ling Er étaient limpides. Elle ne savait pas elle-même pourquoi, mais dès son réveil, elle avait voulu trouver Wang Lin. Elle voulait trouver la réponse à son rêve. Elle avait le sentiment qu'elle obtiendrait sa réponse auprès de lui.
 
 Wang Lin lui tournait le dos et continuait d'avancer. D'un revers de manches, il fit lentement se refermer la porte du palais.
 
-« Senior, Ling Er veut savoir ce qu'était ce géant apparu hier soir. Il... Qu'est-il... » Ling Er était sur le point de faire un pas en avant.
+« Aîné, Ling Er veut savoir ce qu'était ce géant apparu hier soir. Il... Qu'est-il... » Ling Er était sur le point de faire un pas en avant.
 
 Les yeux de Ta Shan s'illuminèrent et il fit un pas vers elle. Une onde de choc se propagea et frappa Ling Er, la repoussant d'une dizaine de mètres.
 
@@ -36,7 +36,7 @@ Wang Lin poussa un soupir. Il fronça les sourcils alors que son corps disparais
 
 « Toi, petite... Allons-y. Ce vieil homme t'accompagnera pour voir le lever du soleil. » Wang Lin était impuissant. Bien qu'il éprouvât de la bienveillance envers elle, cela ne suffisait pas à changer sa décision initiale. S'il acceptait, c'était uniquement parce qu'il voyait qu'elle avait réellement des questions à lui poser.
 
-« Senior, vous acceptez la requête de Ling Er? » Bien que son visage fût encore pâle, la joie illumina ses grands yeux, qui brillèrent d'un éclat adorable.
+« Aîné, vous acceptez la requête de Ling Er? » Bien que son visage fût encore pâle, la joie illumina ses grands yeux, qui brillèrent d'un éclat adorable.
 
 « Une seule fois. » Wang Lin soupira. Il n'avait contemplé le lever et le coucher du soleil qu'avec Li Muwan durant ses dernières années. Cela était devenu un souvenir éternel pour lui. Depuis lors, il ne l'avait fait avec personne d'autre.
 
@@ -46,7 +46,7 @@ Ling Er afficha un sourire radieux, hocha la tête et fit sonner les clochettes 
 
 Ling Er sauta sur le dos de la grue. Quant à Wang Lin, comment pourrait-il s'asseoir sur le dos d'une grue avec une petite fille? Il lui suffit d'un pas pour marcher dans les airs.
 
-Tout en souriant, Ling Er tapota la tête de la grue et dit: « Senior, suivez Ling Er! » Sur ce, la grue s'élança dans le ciel en une courbe magnifique.
+Tout en souriant, Ling Er tapota la tête de la grue et dit: « Aîné, suivez Ling Er! » Sur ce, la grue s'élança dans le ciel en une courbe magnifique.
 
 Wang Lin la suivit avec un sourire amer et disparut par-delà l'horizon.
 
@@ -64,7 +64,7 @@ La grue poussa un cri en traversant les nuages pour se diriger vers le sommet. E
 
 Ling Er sauta et descendit avec légèreté, telle un papillon. Tandis que les clochettes à son poignet tintaient, elle se posa sur un rocher bleu.
 
-« Senior, venez vite! » Le vent de la montagne soufflait, ébouriffant ses cheveux qui couvraient une partie de son visage.
+« Aîné, venez vite! » Le vent de la montagne soufflait, ébouriffant ses cheveux qui couvraient une partie de son visage.
 
 Cela révélait sa beauté saisissante. Ses longs cheveux noirs et son visage parfait captivèrent le regard de Wang Lin. L'attrait intrinsèque que possédait Ling Er en tant que jeune fille dotée d'une racine d'esprit d'eau s'était involontairement révélé sous la brise montagnarde.
 
@@ -88,15 +88,15 @@ Dans cet état étrange, il aperçut vaguement quelque chose, mais après réfle
 
 Le grondement de la mer parvenait de loin, se fondant parfaitement avec la tranquillité des lieux. L'écoute de ce son n'était absolument pas désagréable.
 
-Après un long moment, Ling Er dit doucement: « Senior, Ling Er veut savoir ce qu'était ce géant apparu hier soir... »
+Après un long moment, Ling Er dit doucement: « Aîné, Ling Er veut savoir ce qu'était ce géant apparu hier soir... »
 
 Wang Lin regarda au loin. Le soleil était déjà haut et, après avoir médité un instant, il répondit lentement: « Ce n'était que l'esprit de l'un de mes trésors. »
 
-Ling Er se mordit la lèvre inférieure en regardant Wang Lin. Elle secoua la tête. « Senior n'a pas besoin d'essayer de tromper Ling Er. Je sais que ce n'était pas un esprit de trésor, mais une existence éteinte depuis des éons. Ils étaient autrefois les êtres les plus puissants parmi les étoiles. »
+Ling Er se mordit la lèvre inférieure en regardant Wang Lin. Elle secoua la tête. « Aîné n'a pas besoin d'essayer de tromper Ling Er. Je sais que ce n'était pas un esprit de trésor, mais une existence éteinte depuis des éons. Ils étaient autrefois les êtres les plus puissants parmi les étoiles. »
 
 Les yeux de Wang Lin se rétrécirent légèrement et il demanda calmement: « Pourquoi affirmes-tu cela? »
 
-Ling Er baissa la tête et réfléchit longuement. Finalement, elle serra les dents comme si elle avait pris une décision. Un sentiment étrange mêlé à son regard alors qu'elle fixait Wang Lin lui fit dire doucement: « Junior a toujours eu un rêve en elle depuis l'enfance, et je m'y perdais souvent... Dans ce rêve, j'ai vu... le géant qui est apparu hier soir! Bien que ce ne soit pas exactement le même, ils avaient tous les deux une étoile entre les sourcils! »
+Ling Er baissa la tête et réfléchit longuement. Finalement, elle serra les dents comme si elle avait pris une décision. Un sentiment étrange mêlé à son regard alors qu'elle fixait Wang Lin lui fit dire doucement: « Ce cadet a toujours eu un rêve en elle depuis l'enfance, et je m'y perdais souvent... Dans ce rêve, j'ai vu... le géant qui est apparu hier soir! Bien que ce ne soit pas exactement le même, ils avaient tous les deux une étoile entre les sourcils! »
 
 Ling Er n'en avait jamais parlé à personne. Inconsciemment, elle avait voulu garder cela secret. Pourtant, face à Wang Lin, elle ressentit un étrange élan et lui confia son plus grand secret.
 

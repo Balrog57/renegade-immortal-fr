@@ -136,8 +136,8 @@ Maître Pin Cendré se lécha les lèvres et répondit lentement: « Il y en a t
 
 Une robe blanche, des cheveux noirs flottants et un regard indifférent. Wang Lin sortit de la brume et fixa les quatre individus.
 
-« Un junior du Purificateur du Nirvana? Maître Pin Cendré, voulez-vous impliquer un junior du Purificateur du Nirvana dans cette affaire? » Maître Nuage-Âme fronça les sourcils.
+« Un cadet du Purificateur du Nirvana? Maître Pin Cendré, voulez-vous impliquer un cadet du Purificateur du Nirvana dans cette affaire? » Maître Nuage-Âme fronça les sourcils.
 
-« Ce n'est pas un junior du Purificateur du Nirvana! » sourit Maître Pin Cendré.
+« Ce n'est pas un cadet du Purificateur du Nirvana! » sourit Maître Pin Cendré.
 
 « Oh? » Les yeux de Maître Nuage-Âme s'illuminèrent. Alors que Wang Lin s'approchait, il agita sa main droite et d'innombrables fragments d'âmes foncèrent sur lui.

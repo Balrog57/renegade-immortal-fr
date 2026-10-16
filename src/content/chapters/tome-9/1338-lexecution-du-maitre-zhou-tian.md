@@ -8,7 +8,7 @@ slug: lexecution-du-maitre-zhou-tian
 ---
 Wang Lin avait cultivé pendant deux mille ans, et chaque pas de son parcours avait été d'une extrême dangerosité. Grâce à sa sagesse et à sa volonté indomptable, il avait triomphé de multiples situations de vie ou de mort. Cela lui avait insufflé le courage nécessaire pour défier les cieux.
 
-Il osait même affronter un cultivateur du troisième niveau tel que le Daoïste Water. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité de l'ancien système stellaire — Wang Lin n'aurait sans doute pas choisi une méthode aussi subtile pour traiter avec le Clan Scatter Thunder.
+Il osait même affronter un cultivateur du troisième niveau tel que le Daoïste Water. Si ce n'était le fait d'être poursuivi par Tuo Sen, puis d'avoir rencontré le Maître du Dao Rêve Bleu — une rencontre qui lui avait fait réaliser l'insondable immensité de l'ancien système stellaire — Wang Lin n'aurait sans doute pas choisi une méthode aussi subtile pour traiter avec le Clan Tonnerre Dispersé.
 
 Cependant, tout cela avait ses limites. Si quelqu'un franchissait cette ligne rouge, la nature impétueuse de Wang Lin se déchaînerait. Même s'il comptait agir avec plus de prudence, il n'en tuerait pas moins!
 
@@ -18,15 +18,15 @@ L'intention martiale de Zhang Xingye avait pris racine dans l'esprit de Wang Lin
 
 En voyant l'expression de Wang Lin, le cœur du Maître Zhou Tian rata un battement et il ressentit un vague sentiment de danger. Pourtant, en observant Wang Lin, il ne percevait qu'un simple cultivateur Ascendant. Qu'un petit cultivateur puisse afficher une telle expression fit froncer les sourcils du Maître Zhou Tian, et une intention meurtrière germa dans son cœur.
 
-Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurper l'identité d'un membre du Clan Scatter Thunder et s'introduire dans le Temple des Cristaux de Tonnerre! Il ignorait que l'individu face à lui était une bête primitive d'une férocité extrême!
+Il n'aurait jamais imaginé que quelqu'un puisse pénétrer en ces lieux, usurper l'identité d'un membre du Clan Tonnerre Dispersé et s'introduire dans le Temple des Cristaux de Tonnerre! Il ignorait que l'individu face à lui était une bête primitive d'une férocité extrême!
 
-À ce moment précis, les six cultivateurs du Clan Scatter Thunder chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin: « Ton nom est Yu Fei? »
+À ce moment précis, les six cultivateurs du Clan Tonnerre Dispersé chargés de la garde ouvrirent soudainement les yeux. L'un d'eux se leva et interpella Wang Lin: « Ton nom est Yu Fei? »
 
-Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au junior du type Yang Corporel qui lui avait remis le jade.
+Les yeux de Wang Lin s'illuminèrent. Grâce à sa sagesse, il comprit immédiatement que si cet homme le reconnaissait, c'était lié au cadet du type Yang Corporel qui lui avait remis le jade.
 
 Sans un mot, il agita la main droite et le jade apparut, volant vers l'interlocuteur.
 
-Le cultivateur plissa les yeux en saisissant le jade. Après l'avoir inspecté, il examina Wang Lin avant de joindre les mains en signe de respect devant le Maître Zhou Tian: « Senior Zhou Tian, je vous en prie, faites preuve d'indulgence. Cette personne a été chargée par un vieil ami de se rendre dans les 7 Millions de Mondes pour passer l'épreuve. La mission ne concerne pas qu'une seule personne. Ne pourriez-vous pas aussi le laisser passer? »
+Le cultivateur plissa les yeux en saisissant le jade. Après l'avoir inspecté, il examina Wang Lin avant de joindre les mains en signe de respect devant le Maître Zhou Tian: « Aîné Zhou Tian, je vous en prie, faites preuve d'indulgence. Cette personne a été chargée par un vieil ami de se rendre dans les 7 Millions de Mondes pour passer l'épreuve. La mission ne concerne pas qu'une seule personne. Ne pourriez-vous pas aussi le laisser passer? »
 
 Le Maître Zhou Tian affichait une expression indifférente face au cultivateur qui venait de parler. Ces gardiens de la porte ouest n'étaient pour lui que des fourmis. Mais en fin de compte, ils occupaient des positions respectables au sein de la famille et bénéficiaient du soutien d'un Ancien. Malgré son arrogance, il devait peser sa décision.
 
@@ -34,7 +34,7 @@ Le Maître Zhou Tian affichait une expression indifférente face au cultivateur 
 
 Dès qu'il eut disparu, le jade émit une lueur éclatante que Wang Lin rattrapa. Son Sens Divin s'y engouffra et il disparut à son tour dans les 7 Millions de Mondes!
 
-Les cultivateurs du Clan Scatter Thunder en charge des lieux froncèrent les sourcils, l'air mécontent.
+Les cultivateurs du Clan Tonnerre Dispersé en charge des lieux froncèrent les sourcils, l'air mécontent.
 
 « Cet homme est bien ingrat. Nous l'aidons et il ne daigne même pas nous remercier! »
 

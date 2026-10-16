@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1545 - Three Treasures
 slug: les-trois-tresors
 ---
-« Le monde extérieur est-il si beau? Les femmes du monde extérieur sont-elles aussi belles? Combien de personnes y a-t-il dans le monde extérieur? » Des hurlements puissants résonnaient depuis la zone où se cachait la Bête Nether.
+« Le monde extérieur est-il si beau? Les femmes du monde extérieur sont-elles aussi belles? Combien de personnes y a-t-il dans le monde extérieur? » Des hurlements puissants résonnaient depuis la zone où se cachait la Bête des Limbes.
 
 Ce son était empreint d'une excitation refoulée pendant d'innombrables années. À cette voix répondait une silhouette sale et maigre qui continuait de rugir en s'agitant frénétiquement dans la zone.
 
@@ -104,7 +104,7 @@ Wang Lin lança un dernier regard au fou avant de se détourner et de s'éloigne
 
 Il pouvait donc être serein. Il chargea alors droit vers le siège de l'Alliance de Culture!
 
-« Senior Frère Qing Shui, Wang Lin arrive! »
+« Frère Aîné Qing Shui, Wang Lin arrive! »
 
 Après le départ de Wang Lin, le fou et Xu Liguo se regardèrent. Après un long silence, ils parlèrent presque de concert.
 

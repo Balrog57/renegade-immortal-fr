@@ -108,10 +108,10 @@ Cette sixième Porte était radicalement différente des cinq autres; elle étai
 
 Près de dix mille personnes ne purent même pas pousser un cri avant de mourir de vieillesse sous l'effet de cette onde, pour ensuite tomber en poussière.
 
-« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était le Maître Céleste Dieu du Vide et l'autre était le Maître South Cloud. Même le jeune homme en robe verte n'en avait jamais entendu parler.
+« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était le Maître Céleste Dieu du Vide et l'autre était le Maître Nuage du Sud. Même le jeune homme en robe verte n'en avait jamais entendu parler.
 
 « Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Le Maître Céleste Dieu du Vide regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
 
 « La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre immense à franchir. Les êtres capables de déclencher cette porte sont extrêmement rares, mais tant qu'ils survivent, ils deviendront assurément de puissants maîtres à l'avenir! »
 
-« La Porte des Dix Mille Os du Vide... L'ancien Seigneur du Domaine Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître South Cloud contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.
+« La Porte des Dix Mille Os du Vide... L'ancien Seigneur du Domaine Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître Nuage du Sud contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.

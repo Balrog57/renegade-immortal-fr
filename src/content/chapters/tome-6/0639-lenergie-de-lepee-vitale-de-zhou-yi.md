@@ -7,7 +7,7 @@ en: Chapter 639 - Zhou Yis Life Sword Energy
 slug: lenergie-de-lepee-vitale-de-zhou-yi
 ---
 
-Wang Lin murmura: « Senior Zhou Yi! »
+Wang Lin murmura: « Aîné Zhou Yi! »
 
 Il pouvait sentir que, outre les forces extérieures, la principale raison de l'aura de mort qui émanait de Zhou Yi était lui-même. Ce dernier désirait sincèrement mourir.
 
@@ -121,7 +121,7 @@ Wang Lin acquiesça. Il saisit la pagode et la rangea dans son sac de rangement.
 
 Le regard de Zhou Yi se posa sur Wang Lin avec une pointe de gratitude. Il dit: « Atteindre ce stade en seulement quelques centaines d'années est digne de félicitations! »
 
-Wang Lin soupira et répondit: « Grâce au Senior pour le Cristal d'Ascension. Sinon... » Wang Lin secoua la tête sans poursuivre.
+Wang Lin soupira et répondit: « Grâce à l'Aîné pour le Cristal d'Ascension. Sinon... » Wang Lin secoua la tête sans poursuivre.
 
 « Le Cristal d'Ascension était ta récompense pour avoir veillé sur Ting Er, nul besoin de me remercier. Si quelqu'un doit exprimer sa gratitude, c'est moi... Je ne pensais pas que nous nous reverrions après tant de siècles. Avec le recul, si tu n'avais pas été aussi déterminé à me trouver, nous ne nous serions pas rencontrés aujourd'hui. » Voyant que Wang Lin voulait répliquer, Zhou Yi leva la main pour le faire taire. Il réfléchit un instant et demanda: « Wang Lin, je me souviens qu'il y avait deux épées célestes dans la pagode... As-tu toujours l'autre? »
 
@@ -131,7 +131,7 @@ Xu Liguo, à l'intérieur de l'épée, ressentit immédiatement la présence de 
 
 « Hein? » En voyant l'épée céleste, les yeux de Zhou Yi s'illuminèrent. Il pointa du doigt et Xu Liguo s'échappa immédiatement de l'épée. Son visage était empreint d'une volonté de flatterie encore plus intense que lorsqu'il faisait face à Wang Lin.
 
-« Senior, le nom de ce junior est Xu Liguo. C'est mon maître qui m'a fait vivre dans cette épée céleste; ce n'est pas par mon propre choix! »
+« Aîné, le nom de ce cadet est Xu Liguo. C'est mon maître qui m'a fait vivre dans cette épée céleste; ce n'est pas par mon propre choix! »
 
 L'expression de Wang Lin devint instantanément mécontente et il lança un regard glacial à Xu Liguo.
 

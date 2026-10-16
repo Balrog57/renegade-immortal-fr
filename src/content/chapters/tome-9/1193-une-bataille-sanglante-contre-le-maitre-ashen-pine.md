@@ -46,7 +46,7 @@ Une entité semblable à une Âme Naissante se trouvait dans cette lueur sanglan
 
 Cette Âme Naissante poussa un cri féroce et chargea Wang Lin dans une lueur rouge sang, arborant une férocité indicible sur son visage.
 
-Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré atteignit sa cible. Étant au stade intermédiaire de la Briseuse de Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
+Tout cela se produisit en un instant. Au moment où le trident retourna vers Wang Lin, l'assaut mortel du Maître Pin Cendré atteignit sa cible. Étant au stade intermédiaire de la Briseur du Nirvana, son énergie d'origine dense conférait à ses sorts et trésors magiques une puissance terrifiante.
 
 L'expression de Wang Lin resta calme, ses yeux brûlant d'intention de combat. Il saisit le trident et le projeta vers la boussole dans le ciel. De son point de vue, c'était l'objet le plus dangereux!
 
@@ -60,7 +60,7 @@ Un grondement tonitruant retentit. L'énergie d'épée vacilla et six de ses cou
 
 Le corps de Wang Lin trembla lorsqu'il sentit une aura déchaînée s'engouffrer dans son bras, le faisant gémir. Sa main gauche forma un sceau et pointa vers le vide, puis il ouvrit la bouche pour laisser s'échapper le Sceau Céleste. Dès son apparition, des âmes de bataille surgirent les unes après les autres!
 
-Maître Void, l'Omniscient et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
+Maître du Vide, l'Omniscient et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
 
 En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de le Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 

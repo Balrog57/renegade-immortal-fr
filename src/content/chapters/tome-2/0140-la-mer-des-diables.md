@@ -20,7 +20,7 @@ Yang Xiong poussa un soupir en réprimant le poids qui pesait sur son cœur. Alo
 
 Wang Lin surgit d'un arbre. Il examina Yang Xiong avant de demander: « Où est Zhou Zihong? »
 
-Yang Xiong fut méfiant, mais n'osa rien dire. Il réfléchit un instant avant de répondre: « Si je me souviens bien, la sœur junior Zhou devrait se trouver dans le troisième escadron de la quatrième armée, mais j'ignore les détails exacts. »
+Yang Xiong fut méfiant, mais n'osa rien dire. Il réfléchit un instant avant de répondre: « Si je me souviens bien, la sœur cadette Zhou devrait se trouver dans le troisième escadron de la quatrième armée, mais j'ignore les détails exacts. »
 
 Wang Lin regarda Yang Xiong et déclara: « J'ai déjà restitué l'essence de l'âme de Zhou Zihong. »
 
@@ -56,7 +56,7 @@ Le regard de Zhou Zihong devint glacial alors qu'elle répondait: « L'une est a
 
 « D'accord! » Wang Lin accepta sans hésiter.
 
-« Tu devrais les connaître. L'une est la précieuse sœur junior de Ma Liang, Xu Si. L'autre est Zhou An, qui traîne toujours avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici une heure. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
+« Tu devrais les connaître. L'une est la précieuse sœur cadette de Ma Liang, Xu Si. L'autre est Zhou An, qui traîne toujours avec elle. Tu n'as pas besoin de les tuer maintenant, tu pourras le faire lors de ton départ. Quant à la carte, je te l'apporterai d'ici une heure. » Après avoir parlé, Zhou Zihong lança un regard significatif à Wang Lin avant de s'élancer sur son épée volante.
 
 « Ma Liang, c'est la dernière fois que je t'aide... » murmura Zhou Zihong avec mélancolie en s'éloignant lentement.
 
@@ -106,7 +106,7 @@ Wang Lin observa la scène un instant avant de détourner le regard. Le niveau d
 
 Il n'avait rencontré Li Muwan qu'une fois; il n'y avait donc aucune raison réelle de risquer sa vie pour elle. Mais à cet instant précis, le regard du jeune homme s'illumina et il projeta une lueur noire vers la cachette de Wang Lin.
 
-« Un junior qui maîtrise la technique d'évasion tellurique se cache ici! Puisque nous nous sommes rencontrés, autant que tu restes! »
+« Un cadet qui maîtrise la technique d'évasion tellurique se cache ici! Puisque nous nous sommes rencontrés, autant que tu restes! »
 
 Wang Lin poussa un soupir et bondit hors du sol au moment même où la lueur noire percutait le sol. Li Muwan remarqua ce changement et se retourna. Une expression de joie éclaira son visage alors qu'elle criait: « C'est vous! Frère apprenti, je vous en prie, sauvez-moi! » Sur ces mots, son épée volante pivota pour rejoindre Wang Lin en un instant.
 
@@ -180,7 +180,7 @@ Mais si elle échouait, elle était certaine que ce jeune homme froid lui arrach
 
 Wang Lin fronça les sourcils. Le temps pressait, pourtant cette fille semblait prostrée. Comment pouvait-il deviner ses pensées? La supposition de Li Muwan était cependant erronée. Même si elle n'avait pas fini, Wang Lin aurait pris le produit semi-complet, mais il lui aurait tout de même laissé un trésor pour survivre. De plus, puisque les bêtes le traquaient lui, elle aurait eu de fortes chances de s'en sortir.
 
-Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin. Elle mordilla sa lèvre et dit d'une voix tremblante: « Senior... frère apprenti, le temps est trop court pour produire une pilule parfaite, mais... je peux raffiner des pilules. Je connais presque toutes les recettes de la Secte Lou He et j'ai mémorisé de nombreuses formules anciennes. Tant que j'ai les matériaux, je peux les raffiner. »
+Le cœur de Li Muwan tressaillit en voyant le froncement de sourcils de Wang Lin. Elle mordilla sa lèvre et dit d'une voix tremblante: « Aîné... frère apprenti, le temps est trop court pour produire une pilule parfaite, mais... je peux raffiner des pilules. Je connais presque toutes les recettes de la Secte Lou He et j'ai mémorisé de nombreuses formules anciennes. Tant que j'ai les matériaux, je peux les raffiner. »
 
 Wang Lin fut surpris et la dévisagea un instant, avant de voir la lueur rouge approcher. Il saisit Li Muwan et chargea vers la Mer des Diables.
 
@@ -192,7 +192,7 @@ La Mer des Diables était immense, semblable à une cavité gigantesque. On aura
 
 La saison où Wang Lin entra dans la Mer des Diables était celle où le brouillard était le plus dense. Peu après, ce brouillard se transformerait en eau, avant de redevenir brume un mois plus tard.
 
-Wang Lin entraîna Li Muwan dans l'épais brouillard. Son corps gracieux tremblait alors qu'elle murmurait: « Senior... frère apprenti, c'est la Mer des Diables! »
+Wang Lin entraîna Li Muwan dans l'épais brouillard. Son corps gracieux tremblait alors qu'elle murmurait: « Aîné... frère apprenti, c'est la Mer des Diables! »
 
 Wang Lin répondit froidement: « Je le sais! »
 

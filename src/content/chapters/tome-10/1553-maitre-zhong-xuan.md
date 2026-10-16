@@ -42,7 +42,7 @@ Cependant, Maître Long Pan lui lança un regard glacial, ce qui fit avaler ses 
 
 « Tu es Zhang Xi... Lorsque tu t'es endormi, tu n'étais qu'un enfant sous ma tutelle. » Le regard de Maître Long Pan se posa sur le vieil homme à sa gauche.
 
-« C'est exact, ce junior est bien Zhang Xi! » Les yeux du vieillard brillaient d'excitation. Il ne s'attendait pas à ce que Maître Long Pan se souvienne de lui.
+« C'est exact, ce cadet est bien Zhang Xi! » Les yeux du vieillard brillaient d'excitation. Il ne s'attendait pas à ce que Maître Long Pan se souvienne de lui.
 
 « Dis-moi si ce que cet homme a dit est vrai ou faux! » La voix de Maître Long Pan était calme, mais empreinte d'une majesté écrasante.
 

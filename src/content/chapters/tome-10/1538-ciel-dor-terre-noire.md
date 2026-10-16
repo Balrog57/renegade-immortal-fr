@@ -70,7 +70,7 @@ Un choc sismique!
 
 Le corps entier de Wang Lin commença à se désintégrer. Sa chair et son sang de Dieu Ancien s'écrasèrent sur la planète, faisant trembler le sol. Des ondes invisibles se propagèrent, provoquant l'effondrement de toutes les montagnes et aplatissant le continent entier comme un miroir!
 
-Son corps céleste vola en éclats et s'élança vers le ciel avec son âme originelle brisée. Le firmament sembla se détacher du monde à l'intérieur de la Bête Nether, et après avoir tout remplacé, le ciel devint d'or!
+Son corps céleste vola en éclats et s'élança vers le ciel avec son âme originelle brisée. Le firmament sembla se détacher du monde à l'intérieur de la Bête des Limbes, et après avoir tout remplacé, le ciel devint d'or!
 
 Les cieux et la terre avaient changé!
 

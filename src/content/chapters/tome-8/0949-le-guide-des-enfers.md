@@ -40,11 +40,11 @@ Wang Lin le réceptionna. À l'instant où il le toucha, il sentit une aura qui 
 
 « Je ne peux absolument pas ouvrir ce parchemin! » Les yeux de Wang Lin se crispèrent; il ressentait un sentiment de danger terrifiant émanant de l'objet. Il avait la conviction que s'il l'ouvrait, ne serait-ce qu'une infime fraction, il ne pourrait en supporter la puissance!
 
-« Senior Lie Yunzi, je ne cherche pas à me donner la mort; je ne l'ouvrirai pas. Si je tentais de le faire, aucune chance de survie ne me serait laissée! » Wang Lin regarda Lie Yunzi et lui rendit le troisième parchemin.
+« Aîné Lie Yunzi, je ne cherche pas à me donner la mort; je ne l'ouvrirai pas. Si je tentais de le faire, aucune chance de survie ne me serait laissée! » Wang Lin regarda Lie Yunzi et lui rendit le troisième parchemin.
 
 L'expression de Lie Yunzi s'assombrit.
 
-« Cependant, Senior Lie Yunzi peut se rassurer. Je souhaite également découvrir ce que contient le troisième Parchemin de Bataille. Le jour viendra où ma culture sera assez puissante, je reviendrai vers vous pour le consulter. Si, en l'ouvrant ne serait-ce qu'un peu, je venais à mourir sous l'effet de l'aura, alors il faudra trouver quelqu'un d'autre. »
+« Cependant, Aîné Lie Yunzi peut se rassurer. Je souhaite également découvrir ce que contient le troisième Parchemin de Bataille. Le jour viendra où ma culture sera assez puissante, je reviendrai vers vous pour le consulter. Si, en l'ouvrant ne serait-ce qu'un peu, je venais à mourir sous l'effet de l'aura, alors il faudra trouver quelqu'un d'autre. »
 
 Wang Lin recula de quelques pas et parla avec calme. Il savait que Lie Yunzi ne l'attaquerait pas. Bien sûr, même si l'autre partie s'avérait sans scrupules et passait à l'offensive, Wang Lin s'était déjà préparé. Même s'il ne gagnerait pas le combat, il pourrait s'échapper et gagner suffisamment de temps jusqu'à l'arrivée de Qing Shui.
 
@@ -64,7 +64,7 @@ De son point de vue, Qing Shui était un fou furieux. Il était fort probable qu
 
 « Bien, tu n'es pas du tout impulsif. Tu es digne d'être le Céleste du Tonnerre de Luotian! Xu Mu, bien que ma famille Zhan ne possède pas de sort comme la famille Xiang pour aider à régénérer ton fragment d'âme, nous avons un sort qui permet de renforcer l'âme. À l'avenir, lorsque tu reviendras chercher ce vieil homme pour consulter le troisième parchemin, je ne te laisserai pas repartir les mains vides. Je t'enseignerai ce sort! Je te promets également de t'aider en une chose, en utilisant toute la puissance de la famille Zhan, tant que cela relève de nos capacités! »
 
-Lie Yunzi venait de faire une immense promesse. Le visage de Wang Lin exprima sa gratitude et il dit respectueusement: « Merci, Senior. Vous pouvez être tranquille à ce sujet! »
+Lie Yunzi venait de faire une immense promesse. Le visage de Wang Lin exprima sa gratitude et il dit respectueusement: « Merci, Aîné. Vous pouvez être tranquille à ce sujet! »
 
 Lie Yunzi sourit en hochant la tête: « Peu importe. Puisque vous avez rendez-vous avec Qing Shui, vous devriez y aller! »
 

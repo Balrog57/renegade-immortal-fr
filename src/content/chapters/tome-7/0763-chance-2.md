@@ -12,15 +12,15 @@ slug: chance-2
 
 D'un simple pincement, toutes les gouttes fusionnèrent instantanément. L'âme originelle de l'Ancêtre de Sang fusionna et s'éveilla à l'unisson.
 
-« Merci infiniment, Senior. Ma famille Yao vous en sera redevable! » La voix de l'Ancêtre de Sang émana de l'intérieur du sang. Aucune trace de joie ou de colère ne perçait dans son ton; il était d'un calme absolu.
+« Merci infiniment, Aîné. Ma famille Yao vous en sera redevable! » La voix de l'Ancêtre de Sang émana de l'intérieur du sang. Aucune trace de joie ou de colère ne perçait dans son ton; il était d'un calme absolu.
 
 Le vieil homme joua avec le cercle de fer sur la corne argentée de la Bête de Tonnerre et déclara: « Ne joue pas la comédie; tu es manifestement rongé par la peur. Tu crains que ce vieil homme n'ait de mauvaises intentions et ne te raffine directement en pilule, au grand dam de la famille Yao. Même si le maître de la famille Yao, le Dieu du Sang, venait lui-même, penses-tu que ce vieil homme aurait peur?! »
 
-L'Ancêtre de Sang réfléchit un instant, puis envoya un message: « Quoi qu'il en soit, je dois remercier Senior pour son aide... »
+L'Ancêtre de Sang réfléchit un instant, puis envoya un message: « Quoi qu'il en soit, je dois remercier Aîné pour son aide... »
 
 Le vieil homme poursuivit: « Ce vieil homme est très raisonnable. Vois-tu, je t'ai aidé à réduire le temps de ta fusion. Eh bien... j'ignorais que le sort d'âme originelle et de sang de la famille Yao n'autorisait pas la reconstitution forcée du corps... Il semble qu'en forçant la fusion, ton niveau de culture ait chuté de plusieurs royaumes; tu es désormais au stade avancé du Scruteur du Nirvana. Comme je l'ignorais, tu ne peux m'en tenir rigueur. »
 
-L'Ancêtre de Sang réfléchit en silence et réprima de force la rage qui bouillonnait dans son âme originelle. Son sens divin projeta un message empreint de sérénité: « Aucun mal n'en est issu. Puisque Senior l'ignorait, c'est mon destin. Si Senior n'a rien d'autre à faire, je vous prie de lever votre sort et de me laisser partir. »
+L'Ancêtre de Sang réfléchit en silence et réprima de force la rage qui bouillonnait dans son âme originelle. Son sens divin projeta un message empreint de sérénité: « Aucun mal n'en est issu. Puisque Aîné l'ignorait, c'est mon destin. Si Aîné n'a rien d'autre à faire, je vous prie de lever votre sort et de me laisser partir. »
 
 Le vieil homme gloussa, les yeux brillants: « Petit garçon de la famille Yao, tu es lié par le destin à moi! » La Bête de Tonnerre sous lui trembla et regarda l'Ancêtre de Sang avec une pointe de sympathie. Cependant, elle se réjouissait encore plus de voir quelqu'un d'autre souffrir avec elle.
 

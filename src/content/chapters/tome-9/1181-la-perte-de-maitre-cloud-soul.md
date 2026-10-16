@@ -32,7 +32,7 @@ Face à cette crise, les yeux de Maître Nuage-Âme s'écarquillèrent de rage. 
 
 Un bang assourdissant secoua l'espace alors que le corps de Maître Nuage-Âme tremblait et que son visage pâlissait. Ses yeux étaient empreints de choc, mais il demeurait, après tout, un cultivateur du stade intermédiaire du Briseur du Nirvana; l'énergie d'épée de Wang Lin ne put donc pas le blesser mortellement. L'impact projeta Wang Lin en arrière de quelques pas, le faisant vaciller vers la faille.
 
-« Tu cherches la mort, Junior! » rugit Maître Nuage-Âme en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
+« Tu cherches la mort, cadet! » rugit Maître Nuage-Âme en s'élançant. Sa vitesse était prodigieuse et il rejoignit Wang Lin en un instant.
 
 Wang Lin n'eut pas le temps de laisser son épée de fer achever son assaut. Une lueur glaciale passa dans ses yeux. Ce n'était pas une surprise; un cultivateur du stade intermédiaire du Briseur du Nirvana ne tombait pas facilement. Son but était de le blesser! Tout cela n'était qu'une préparation pour la suite!
 

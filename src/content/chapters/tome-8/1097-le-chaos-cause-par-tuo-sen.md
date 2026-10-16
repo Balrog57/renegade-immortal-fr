@@ -64,9 +64,9 @@ Une silhouette se trouvait à l'intérieur de ce rayon de lumière: il s'agissai
 
 Le visage de l'âme originelle affichait un sourire étrange, comme si elle savourait un immense plaisir. Pourtant, ses yeux étaient empreints de peur et de chaos.
 
-« Maître Flemespark, sauvez-moi! » À mesure qu'il approchait du Temple Céleste du Tonnerre, l'âme originelle projeta un message strident qui se mit à résonner à travers les étoiles.
+« Maître Yan Leizi, sauvez-moi! » À mesure qu'il approchait du Temple Céleste du Tonnerre, l'âme originelle projeta un message strident qui se mit à résonner à travers les étoiles.
 
-En un instant, de nombreuses silhouettes émergèrent du palais. Celui qui menait la marche était enveloppé de flammes et avait les cheveux blancs: c'était le Maître Flemespark du Temple Céleste du Tonnerre!
+En un instant, de nombreuses silhouettes émergèrent du palais. Celui qui menait la marche était enveloppé de flammes et avait les cheveux blancs: c'était le Maître Yan Leizi du Temple Céleste du Tonnerre!
 
 D'un pas, il arriva instantanément aux côtés de l'âme originelle. Son expression devint très grave alors qu'il formait un sceau de la main pour saisir l'âme.
 
@@ -80,9 +80,9 @@ Bien qu'il n'eût pas fini de parler, ses paroles étaient parvenues aux oreille
 
 « La Secte des Cadavres! »
 
-Le Maître Flemespark fronça les sourcils et pointa impitoyablement l'espace entre les sourcils de Lie Yunzi. Ce dernier trembla et retrouva sa lucidité.
+Le Maître Yan Leizi fronça les sourcils et pointa impitoyablement l'espace entre les sourcils de Lie Yunzi. Ce dernier trembla et retrouva sa lucidité.
 
-Le Maître Flemespark tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte des Cadavres t'a-t-elle tendu une embuscade? »
+Le Maître Yan Leizi tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte des Cadavres t'a-t-elle tendu une embuscade? »
 
 « L'Empereur Divin Oiseau Vermillon est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
 
@@ -92,13 +92,13 @@ Tout en parlant, sa main droite lutta pour atteindre le vide devant lui. Une fai
 
 Après cet effort, il ne put plus résister au poison qui le rongeait. Il cracha une bouffée d'énergie originelle pure avant de s'évanouir.
 
-Le Maître Flemespark rattrapa le jade et l'examina avec son Sens Divin. Malgré sa grande force mentale, l'expression du Maître changea radicalement et ses yeux brillèrent intensément!
+Le Maître Yan Leizi rattrapa le jade et l'examina avec son Sens Divin. Malgré sa grande force mentale, l'expression du Maître changea radicalement et ses yeux brillèrent intensément!
 
 « Ceci... Cette nouvelle... »
 
-Le Maître Flemespark se sentit frappé par la foudre et resta immobile. Il vérifia inconsciemment une seconde fois pour confirmer le contenu. À cet instant, tous les regards des Anciens se tournèrent vers lui.
+Le Maître Yan Leizi se sentit frappé par la foudre et resta immobile. Il vérifia inconsciemment une seconde fois pour confirmer le contenu. À cet instant, tous les regards des Anciens se tournèrent vers lui.
 
-D'un geste de la main droite, le Maître Flemespark transmit le jade à l'homme âgé à ses côtés. Ce dernier, l'expression grave, l'examina avec son Sens Divin, avant que son visage ne se décompose à son tour!
+D'un geste de la main droite, le Maître Yan Leizi transmit le jade à l'homme âgé à ses côtés. Ce dernier, l'expression grave, l'examina avec son Sens Divin, avant que son visage ne se décompose à son tour!
 
 Il ne fallut pas longtemps pour que tous les Anciens présents puissent voir le contenu. Chacun d'eux eut une réaction violente après avoir découvert ce que renfermait le jade!
 
@@ -108,14 +108,14 @@ L'un des vieillards réfléchit un instant et dit lentement: « Nous ignorons si
 
 « Cela est probablement faux! Une telle personne ne peut pas exister. Le contenu prétend que même nous, cultivateurs au stade du Briseur du Nirvana, serions gravement blessés, voire tués, d'un simple geste du doigt. C'est absurde! » Certains, refusant d'y croire, laissèrent échapper des reniflements méprisants.
 
-Le Maître Flemespark dit soudainement: « Est-ce que tout le monde se souvient de cette Bête Lunaire...? »
+Le Maître Yan Leizi dit soudainement: « Est-ce que tout le monde se souvient de cette Bête Lunaire...? »
 
 Tous les Anciens furent saisis de stupeur, comme s'ils venaient de réaliser quelque chose.
 
-« Cependant, il n'est pas nécessaire d'y accorder trop d'importance. Après tout... » Alors que le Maître Flemespark parlait, il s'interrompit brusquement, son expression devenant extrêmement respectueuse, comme s'il écoutait une voix invisible.
+« Cependant, il n'est pas nécessaire d'y accorder trop d'importance. Après tout... » Alors que le Maître Yan Leizi parlait, il s'interrompit brusquement, son expression devenant extrêmement respectueuse, comme s'il écoutait une voix invisible.
 
-L'étrange réaction du Maître Flemespark ne surprit aucun des Anciens; au contraire, ils adoptèrent tous une attitude empreinte de respect.
+L'étrange réaction du Maître Yan Leizi ne surprit aucun des Anciens; au contraire, ils adoptèrent tous une attitude empreinte de respect.
 
-Un instant plus tard, l'expression du Maître Flemespark changea une nouvelle fois. Tourné vers l'ouest, il joignit les mains et dit respectueusement: « À vos ordres! » Ses yeux devinrent sévères alors qu'il balayait la foule du regard: « Cessez toutes les hostilités avec l'Alliance et convoquez ici tous les cultivateurs au stade du Voyant de Nirvana ou au-dessus. Attendez mon commandement après mon retour de la Terre des Quatre Sectes Divins! »
+Un instant plus tard, l'expression du Maître Yan Leizi changea une nouvelle fois. Tourné vers l'ouest, il joignit les mains et dit respectueusement: « À vos ordres! » Ses yeux devinrent sévères alors qu'il balayait la foule du regard: « Cessez toutes les hostilités avec l'Alliance et convoquez ici tous les cultivateurs au stade du Voyant de Nirvana ou au-dessus. Attendez mon commandement après mon retour de la Terre des Quatre Sectes Divins! »
 
 La même scène se produisit au sein de la Secte des Cadavres. Seule une différence subsistait: comparé à Luotian, le jade que Li Yingzhi avait rapporté avait plongé la Secte des Cadavres dans un chaos absolu face à son contenu!

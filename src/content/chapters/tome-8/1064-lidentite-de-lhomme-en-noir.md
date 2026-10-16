@@ -34,7 +34,7 @@ Quoi que faisait l'ancien démon, il ne parvenait pas à les expulser. Même en 
 
 Le visage de Wang Lin pâlit. L'énergie de cette lame était immense; même le vieil homme sur la gourde ne pourrait y échapper. L'esprit de Wang Lin resta d'une clarté absolue alors que le fourneau du dieu antique se matérialisait autour de lui. Il pointa du doigt l'homme en noir qui observait la scène à distance.
 
-Il n'avait pas choisi Maître Void car le danger était imminent et il devait impérativement réussir. Bien que Maître Void fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin ne pouvait donc compter sur lui avec certitude!
+Il n'avait pas choisi Maître du Vide car le danger était imminent et il devait impérativement réussir. Bien que le Maître du Vide fût gravement blessé, il demeurait au stade du Briseur du Nirvana; Wang Lin ne pouvait donc compter sur lui avec certitude!
 
 L'expression de l'homme en noir changea radicalement lorsqu'il sentit une lumière l'envelopper. L'énergie de la lame approchait si près que Wang Lin pouvait ressentir l'oppressante acuité qui s'en dégageait.
 
@@ -50,7 +50,7 @@ Au moment où l'énergie de la lame descendit, l'œil droit de Wang Lin brilla d
 
 Un fracas tonnerre retentit et une fissure fendit le milieu du bouclier azur. Bien qu'il ne se soit pas brisé, il fut endommagé.
 
-Bien que Wang Lin ne le possédât que depuis peu, ce bouclier avait résisté à toutes les attaques jusqu'ici. Même un être aussi puissant que Maître Void n'avait pu que le repousser sans le fissurer.
+Bien que Wang Lin ne le possédât que depuis peu, ce bouclier avait résisté à toutes les attaques jusqu'ici. Même un être aussi puissant que le Maître du Vide n'avait pu que le repousser sans le fissurer.
 
 De plus en plus de craquelures apparurent sur la protection azur. Wang Lin saisit cette opportunité pour reculer avec le corps de Qing Shuang, mais malgré sa fuite, il ne pouvait échapper à l'énergie de la lame.
 
@@ -98,7 +98,7 @@ Pourtant, face au Démon Ancestral Ta Jia, tout cela n'était qu'un jeu d'enfant
 
 Le visage livide, Hu Juan maniait ses mains avec rapidité pour créer des restrictions fusionnant avec les piliers d'eau. Mais la puissance du cri de Ta Jia continuait de faire s'écrouler leurs défenses.
 
-Si deux tels cultivateurs étaient ainsi impuissants, qu'en était-il de Maître Void? Il cracha aussitôt du sang, le regard éteint. Se retirant en hâte, il forma un sceau pour invoquer d'innombrables grains de sable jaune autour de lui. Mais avant même que le sable ne puisse former un bouclier, il s'effondra. Tout le sable fut projeté dans le corps de Maître Void, le repoussant violemment et faisant jaillir le sang de ses pores.
+Si deux tels cultivateurs étaient ainsi impuissants, qu'en était-il du Maître du Vide? Il cracha aussitôt du sang, le regard éteint. Se retirant en hâte, il forma un sceau pour invoquer d'innombrables grains de sable jaune autour de lui. Mais avant même que le sable ne puisse former un bouclier, il s'effondra. Tout le sable fut projeté dans le corps du Maître du Vide, le repoussant violemment et faisant jaillir le sang de ses pores.
 
 Seul Bei Lou parvint à peine à résister; en tant que membre de l'Ordre Ancestral, il se contenta de battre en retraite.
 

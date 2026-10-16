@@ -8,21 +8,21 @@ slug: impasse
 ---
 Chapitre 1529 - Impasse!
 
-La Hache Diviseant les Cieux qui jaillit de la main droite de Wang Lin s'étendit des milliers de fois. Lorsqu'elle s'abattit, une immense faille apparut dans l'espace!
+La Hache Fendant les Cieux qui jaillit de la main droite de Wang Lin s'étendit des milliers de fois. Lorsqu'elle s'abattit, une immense faille apparut dans l'espace!
 
 Cette déchirure s'engouffra par l'ouverture de la Formation de Scellement du Royaume et se précipita vers l'extérieur. Les deux cultivateurs du troisième niveau furent stupéfaits. À cet instant, ils ne tentèrent pas de résister mais s'empressèrent d'esquiver.
 
-Cependant, ils furent ralentis par la hache gigantesque. Au moment même où ils voulaient esquiver, la Hache Diviseant les Cieux fendit l'air. Le sang jaillit de toutes parts et les deux cultivateurs du troisième niveau recrachèrent des bouffées de sang; l'un de leurs bras fut tranché et séparé de leur corps au passage de l'arme.
+Cependant, ils furent ralentis par la hache gigantesque. Au moment même où ils voulaient esquiver, la Hache Fendant les Cieux fendit l'air. Le sang jaillit de toutes parts et les deux cultivateurs du troisième niveau recrachèrent des bouffées de sang; l'un de leurs bras fut tranché et séparé de leur corps au passage de l'arme.
 
 Le visage livide, ils n'osèrent plus combattre. Ils battirent en retraite précipitamment pour s'échapper.
 
-Bien que les deux aient réussi à esquiver malgré de graves blessures, les cultivateurs de la troisième armée ne purent rien faire. Tandis que la Hache Diviseant les Cieux passait, une multitude de vies fut anéantie!
+Bien que les deux aient réussi à esquiver malgré de graves blessures, les cultivateurs de la troisième armée ne purent rien faire. Tandis que la Hache Fendant les Cieux passait, une multitude de vies fut anéantie!
 
 Il n'y eut aucun cri, seulement des effondrements et une désintégration totale. Une immense brèche large de dizaines de milliers de pieds apparut au sein de l'armée après le passage de la hache!
 
-Cet espace était désormais totalement vide, ne laissant derrière lui que l'odeur persistante du sang. La Hache Diviseant les Cieux traversa l'armée des cultivateurs avant de s'élancer au loin. Elle ne commença à se dissiper qu'après avoir parcouru plus d'un million de pieds.
+Cet espace était désormais totalement vide, ne laissant derrière lui que l'odeur persistante du sang. La Hache Fendant les Cieux traversa l'armée des cultivateurs avant de s'élancer au loin. Elle ne commença à se dissiper qu'après avoir parcouru plus d'un million de pieds.
 
-Le Royaume Extérieur fut plongé dans un silence absolu. La troisième vague de cultivateurs du Royaume Extérieur contemplait avec effroi la faille créée par la Hache Diviseant les Cieux, le cœur tremblant de terreur.
+Le Royaume Extérieur fut plongé dans un silence absolu. La troisième vague de cultivateurs du Royaume Extérieur contemplait avec effroi la faille créée par la Hache Fendant les Cieux, le cœur tremblant de terreur.
 
 Dans le Royaume Intérieur, les envahisseurs du Royaume Extérieur qui assistèrent à cette scène furent saisis de désespoir!
 
@@ -46,7 +46,7 @@ Tandis que des grondements faisaient écho, encore plus de cultivateurs du Royau
 
 Des dizaines de milliers de cultivateurs se précipitèrent vers l'ouverture, poursuivis par les cultivateurs du Royaume Intérieur. À cet instant, tous convergeaient vers l'endroit où se tenait Wang Lin!
 
-Le Feu Éthéré se répandit, et tous les cultivateurs du Royaume Extérieur qui chargeaient furent consumés par lui. Le Maître South Cloud avait terminé la partie la plus lente de la réparation, celle-ci touchant à sa fin.
+Le Feu Éthéré se répandit, et tous les cultivateurs du Royaume Extérieur qui chargeaient furent consumés par lui. Le Maître Nuage du Sud avait terminé la partie la plus lente de la réparation, celle-ci touchant à sa fin.
 
 La faille de la Formation de Scellement du Royaume se refermait progressivement, ce qui rendait les cultivateurs du Royaume Extérieur encore plus déchaînés.
 
@@ -74,7 +74,7 @@ Wang Lin connaissait bien ce soupir. En l'entendant, son cœur sombra. Il tourna
 
 « Laissez-les revenir », dit lentement l'homme d'âge mûr en fixant Wang Lin.
 
-« Maître du Dao Rêve Bleu! » Les pupilles du Maître South Cloud, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
+« Maître du Dao Rêve Bleu! » Les pupilles du Maître Nuage du Sud, occupé à réparer la Formation de Scellement du Royaume, se rétractèrent. Le Maître du Dao Rêve Bleu avait déjà atteint le sommet du stade du Vide Arcanique; il n'était donc pas son égal!
 
 La puissance d'un cultivateur au sommet du Vide Arcanique était terrifiante au-delà de l'imagination! Parmi les cinq maîtres, ni le Maître Démon Neuf Cieux ni le Maître Dao Miao Yin ne pouvaient rivaliser avec le Maître du Dao Rêve Bleu. Il n'y avait qu'une infime différence dans leurs niveaux de culture, mais cette mince marge était un gouffre!
 

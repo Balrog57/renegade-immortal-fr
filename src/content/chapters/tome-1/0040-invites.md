@@ -50,11 +50,11 @@ Alors que les deux commençaient à discuter, les deux autres Anciens de la Sect
 
 En évoquant les événements qui secouaient le monde de la culture dans le pays de Zhao, les yeux des disciples des deux sectes s'écarquillèrent d'intérêt.
 
-Des récits tels que: un disciple mâle de la Secte Wu Feng avait séduit la disciple principale de la Secte Misty au point de la rendre enceinte; la chef de la Secte Misty s'était rendue à la Secte Wu Feng pour réclamer justice, mais était revenue avec un nouveau-né.
+Des récits tels que: un disciple mâle de la Secte Wu Feng avait séduit la disciple principale de la Secte Brumeuse au point de la rendre enceinte; la chef de la Secte Brumeuse s'était rendue à la Secte Wu Feng pour réclamer justice, mais était revenue avec un nouveau-né.
 
-Ou encore la Secte Heaven, où certains disciples avaient abandonné leur ordre pour rejoindre la Secte He Huan. Une fois que certains d'entre eux eurent commencé à vanter les mérites de la Secte He Huan, de plus en plus de disciples délaissèrent la Secte Heaven. Cela avait tellement exaspéré le chef de la Secte Heaven qu'il avait émis un ordre de mort pour tout disciple faisant défaut.
+Ou encore la Secte du Ciel, où certains disciples avaient abandonné leur ordre pour rejoindre la Secte He Huan. Une fois que certains d'entre eux eurent commencé à vanter les mérites de la Secte He Huan, de plus en plus de disciples délaissèrent la Secte du Ciel. Cela avait tellement exaspéré le chef de la Secte du Ciel qu'il avait émis un ordre de mort pour tout disciple faisant défaut.
 
-On parla aussi de la naissance d'un génie, et enfin de l'anniversaire de l'expert en Formation du Noyau de la Secte Misty qui approchait, précisant que toutes les sectes alliées enverraient des représentants pour célébrer l'événement.
+On parla aussi de la naissance d'un génie, et enfin de l'anniversaire de l'expert en Formation du Noyau de la Secte Brumeuse qui approchait, précisant que toutes les sectes alliées enverraient des représentants pour célébrer l'événement.
 
 Wang Lin écouta longuement, commençant à se forger une vision globale du monde de la culture dans le pays de Zhao. À un moment donné, il sentit soudain qu'un regard pesait sur lui. Il tourna la tête et vit la disciple de la Secte Xuan Dao qui l'observait avec un léger sourire.
 

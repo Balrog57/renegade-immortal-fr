@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 1111 - Tuo Sen
 slug: tuo-sen
 ---
-Le soleil se leva tôt ce matin-là, et sa lumière dispersa les ténèbres. Le réveil des premiers habitants rendit la ville de Flowing Cloud animée. Les boutiques ouvrirent une à une, et la rue gourmande du côté ouest bouillonnait déjà de vie, rythmée par les cris des marchands.
+Le soleil se leva tôt ce matin-là, et sa lumière dispersa les ténèbres. Le réveil des premiers habitants rendit la ville de Nuage Flottant animée. Les boutiques ouvrirent une à une, et la rue gourmande du côté ouest bouillonnait déjà de vie, rythmée par les cris des marchands.
 
 Les beignets sortant de l'huile bouillante, les pains blancs s'échappant de leurs paniers à vapeur et le tofu, accompagnés d'autres collations, faisaient de cette rue un lieu particulièrement vivant.
 
@@ -22,9 +22,9 @@ Avant qu'il n'ait pu terminer, l'homme d'âge moyen éclata de rire. « Le vin d
 
 Le vieux Ceng tira une grande bouffée de sa pipe et grommela: « Que sait un petit morveux? Le vin de ma famille Ceng a bel et bien été bu par un céleste pendant plus de soixante ans, il y a mille ans! »
 
-Il possédait encore quelques sculptures sur bois vieilles de plus de mille ans. Elles représentaient l'ancêtre de la première génération de la famille Ceng dans la ville de Flowing Cloud, ainsi qu'un immortel au visage flou.
+Il possédait encore quelques sculptures sur bois vieilles de plus de mille ans. Elles représentaient l'ancêtre de la première génération de la famille Ceng dans la ville de Nuage Flottant, ainsi qu'un immortel au visage flou.
 
-Une légende se transmettait de génération en génération au sein de leur lignée. Elle racontait que la famille Ceng n'était pas originaire de Flowing Cloud City, mais qu'elle s'y était installée lors d'une catastrophe causée par une tempête de neige. La rumeur disait que leur ancêtre avait vécu avec cet immortel pendant plus de soixante ans et que ce dernier fut le bienfaiteur qui les avait aidés à s'établir ici.
+Une légende se transmettait de génération en génération au sein de leur lignée. Elle racontait que la famille Ceng n'était pas originaire de Ville du Nuage Flottant, mais qu'elle s'y était installée lors d'une catastrophe causée par une tempête de neige. La rumeur disait que leur ancêtre avait vécu avec cet immortel pendant plus de soixante ans et que ce dernier fut le bienfaiteur qui les avait aidés à s'établir ici.
 
 « L'ancêtre Ceng Daniu vécut jusqu'à l'âge de 137 ans. Même avant de mourir, il se souvenait encore de cet immortel. Cette histoire est transmise depuis des générations, comment pourrait-elle être fausse? » Le vieux Ceng plissa les yeux et tapota sa pipe contre le sol, l'air extrêmement fier.
 

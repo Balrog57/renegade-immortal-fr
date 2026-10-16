@@ -94,7 +94,7 @@ Dès que Wang Lin vit l'herbe, il reconnut l'interdiction qu'il avait lui-même 
 
 « La jeune génération finira par nous surpasser. À ton âge, je n'étais pas capable de placer des restrictions aussi complexes. » Wang Wei soupira, le regard empreint d'admiration.
 
-« Senior exagère, » répondit Wang Lin, tout en laissant son regard balayer négligemment l'ombre derrière Wang Wei.
+« Aîné exagère, » répondit Wang Lin, tout en laissant son regard balayer négligemment l'ombre derrière Wang Wei.
 
 Au passage du regard de Wang Lin, les yeux de Zhou Yi brillèrent furtivement. Wang Lin comprit immédiatement.
 

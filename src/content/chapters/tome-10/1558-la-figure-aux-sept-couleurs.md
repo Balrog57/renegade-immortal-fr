@@ -117,4 +117,3 @@ Bien que cela ne fût pas exactement identique aux propos de la figure aux sept 
 « Les 3 000 gouttes de sang se sont finalement transformées en trois Clans Anciens. Les gouttes ayant fusionné ont donné naissance aux lignées royales! Dans quelle mesure tout cela est-il vrai? » Wang Lin prit une profonde inspiration.
 
 ***
-[1] Je change officiellement Ancient Order -> Ancient Ones pour une meilleure fluidité lors de la lecture.

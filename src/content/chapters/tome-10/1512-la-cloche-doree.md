@@ -40,7 +40,7 @@ De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut
 
 Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin; il était terrifié. Zhou Jin était tout aussi puissant que lui, mais possédait bien plus de flammes Joss. En conséquence, il n'était pas de taille et fut contraint de battre en retraite, devant même utiliser des trésors pour résister.
 
-« Cela n'en vaut pas la peine, cela ne vaut pas le coup d'offenser quelqu'un capable de tenir des cultivateurs du troisième pas en esclavage avec le sort de Stase. Moi, Maître Wind Edge, je devrai accepter une perte dans cette affaire! »
+« Cela n'en vaut pas la peine, cela ne vaut pas le coup d'offenser quelqu'un capable de tenir des cultivateurs du troisième pas en esclavage avec le sort de Stase. Moi, Maître Bord-du-Vent, je devrai accepter une perte dans cette affaire! »
 
 Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'avança vers le Taoïste Water, prêt à asséner son second coup!
 
@@ -56,7 +56,7 @@ Aucune fluctuation d'énergie originelle ne émanait de son corps et son apparen
 
 « Le cultivateur de la Métamorphose, Tai Aluo, salue le Seigneur du Royaume Scellé de cette génération. »
 
-Le corps de Wang Lin marqua un temps d'arrêt et il tourna le regard. Ce qu'il vit fit se contracter ses pupilles. L'apparence de cet homme était trop étrange. Wang Lin avait déjà remarqué Zhou De et Maître Cloud Edge, mais il n'avait pas perçu cet individu.
+Le corps de Wang Lin marqua un temps d'arrêt et il tourna le regard. Ce qu'il vit fit se contracter ses pupilles. L'apparence de cet homme était trop étrange. Wang Lin avait déjà remarqué Zhou De et Maître Bord-des-Nuages, mais il n'avait pas perçu cet individu.
 
 « Un cultivateur de la Métamorphose... » Wang Lin ne dit rien, observant calmement l'homme aux pieds nus.
 

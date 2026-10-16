@@ -8,7 +8,7 @@ slug: possession
 ---
 L'homme d'âge moyen esquissa un léger sourire. Son regard balaya Papillon Rouge avant de se poser sur Wang Lin. « Ce petit gars a été très réactif. Il semble que tu m'aies déjà repéré en venant ici. »
 
-Wang Lin garda une expression calme et dit respectueusement: « Junior n'avait qu'un pressentiment, mais n'en était pas sûr. »
+Wang Lin garda une expression calme et dit respectueusement: « Ce cadet n'avait qu'un pressentiment, mais n'en était pas sûr. »
 
 Dès que Chi Hu et Papillon Rouge entendirent ces mots, leurs expressions devinrent étranges.
 

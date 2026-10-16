@@ -98,6 +98,6 @@ L'expression de Li Yuan était indéchiffrable. Il venait de voir le fouet surgi
 
 « Le fait que vous ayez dressé une restriction pour piéger les gens ne me concerne pas. Cependant, puisque vous avez pris l'initiative de m'attaquer, je ne peux pas vous laisser partir si facilement! » Les paroles de Wang Lin n'exprimaient ni joie ni colère, mais elles firent trembler la femme. Li Yuan poussa un soupir intérieur.
 
-Il réfléchit un instant en observant Wang Lin et dit respectueusement: « Aîné, cette affaire est de notre faute. Ce junior connaît un lieu extrêmement secret où résident des restrictions et, sans doute, des trésors célestes. Je vous offre ce lieu pour régler ce différend. »
+Il réfléchit un instant en observant Wang Lin et dit respectueusement: « Aîné, cette affaire est de notre faute. Ce cadet connaît un lieu extrêmement secret où résident des restrictions et, sans doute, des trésors célestes. Je vous offre ce lieu pour régler ce différend. »
 
 La femme à ses côtés n'avait plus de force et n'osait même plus ouvrir la bouche.

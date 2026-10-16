@@ -84,9 +84,9 @@ Lorsque les cultivateurs qui accouraient virent le ricanement de Wang Lin, un fr
 
 Wang Lin n'en connaissait pas le nom, mais dès son apparition, il fit un pas en avant et la scruta avec son Sens Divin. Aucun cultivateur n'atteignait le sommet du stade avancé de l'Ascendant sur cette planète.
 
-C'était un signe sans appel! Avec une telle richesse d'énergie spirituelle, il était impossible qu'il n'y ait aucun cultivateur au stade Illuso Yin ou supérieur. Ces individus devaient faire partie du groupe qui le traquait!
+C'était un signe sans appel! Avec une telle richesse d'énergie spirituelle, il était impossible qu'il n'y ait aucun cultivateur au stade Yin Illusoire ou supérieur. Ces individus devaient faire partie du groupe qui le traquait!
 
-En réalité, la supposition de Wang Lin était d'une précision absolue! Dans une telle situation, l'absence de nombreux cultivateurs Illuso Yin ne pouvait s'expliquer que par cela!
+En réalité, la supposition de Wang Lin était d'une précision absolue! Dans une telle situation, l'absence de nombreux cultivateurs Yin Illusoire ne pouvait s'expliquer que par cela!
 
 L'intention meurtrière dans les yeux de Wang Lin redoubla d'intensité alors qu'il s'élançait. Chaque fois qu'il croisait un cultivateur au stade de la Transformation de l'Âme ou supérieur, il lui décochait un coup du doigt sans la moindre hésitation.
 
@@ -112,9 +112,9 @@ Avant de partir, il leva la main et frappa le sol. Après un violent grondement,
 
 Une fois Wang Lin parti, des ondulations se formèrent aussitôt et Yao Bingyun apparut. En découvrant l'état de la planète, son expression devint extrêmement sombre. Une intention meurtrière traversa ses yeux et elle poursuivit sa traque.
 
-Les yeux de Wang Lin étaient injectés de sang lorsqu'il réapparut en divers points du Domaine Occidental. À chaque apparition, une planète se trouvait à ses côtés. Si des cultivateurs Illuso Yin s'y trouvaient, il faisait demi-tour et repartait.
+Les yeux de Wang Lin étaient injectés de sang lorsqu'il réapparut en divers points du Domaine Occidental. À chaque apparition, une planète se trouvait à ses côtés. Si des cultivateurs Yin Illusoire s'y trouvaient, il faisait demi-tour et repartait.
 
-Cependant, s'il n'y avait aucun cultivateur Illuso Yin sur la planète, cela signifiait qu'ils étaient impliqués dans sa poursuite; alors, un bain de sang éclatait sur le monde!
+Cependant, s'il n'y avait aucun cultivateur Yin Illusoire sur la planète, cela signifiait qu'ils étaient impliqués dans sa poursuite; alors, un bain de sang éclatait sur le monde!
 
 « Vous m'avez forcé! Le fait que vous me traquiez sans autre raison que la récompense de la famille Yao est la cause karmique; le massacre de vos planètes est l'effet karmique! » Wang Lin n'aimait pas tuer, mais il y était poussé et n'avait plus d'autre choix!
 

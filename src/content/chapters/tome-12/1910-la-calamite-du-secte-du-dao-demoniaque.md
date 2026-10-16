@@ -56,7 +56,7 @@ Les dizaines de cultivateurs du troisième stade qui avaient pénétré dans le 
 
 Le vieil homme à la robe dorée qui avait chargé dans le brouillard s'échappa également, dans un état lamentable. Il regardait le ciel, les yeux écarquillés par la peur.
 
-Il connaissait la puissance de cette formation. Elle était capable de bloquer toute la force d'un Grand Exalt, mais à cet instant, elle avait été déchirée aussi facilement. La portée de ce spectacle fit trembler l'homme âgé.
+Il connaissait la puissance de cette formation. Elle était capable de bloquer toute la force d'un Grand Exalté, mais à cet instant, elle avait été déchirée aussi facilement. La portée de ce spectacle fit trembler l'homme âgé.
 
 « Lui... Quel est donc son niveau de culture!?! »
 

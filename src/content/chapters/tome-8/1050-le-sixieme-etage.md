@@ -48,7 +48,7 @@ Alors qu'ils étaient plongés dans leurs réflexions, un rugissement retentit �
 
 Il rengaina l'épée de fer et la rangea dans sa sacoche. Wang Lin sortit quelques pilules et les avala. Sans attendre qu'elles soient digérées, il serra les dents et avança.
 
-Il avait joué la comédie en simulant une blessure grave infligée à Maître du Vide pour terroriser l'homme en noir et la belle femme. Autrement, si les deux l'avaient attaqué, Wang Lin serait sans aucun doute mort.
+Il avait joué la comédie en simulant une blessure grave infligée au Maître du Vide pour terroriser l'homme en noir et la belle femme. Autrement, si les deux l'avaient attaqué, Wang Lin serait sans aucun doute mort.
 
 À cet instant, il n'avait pas le temps de s'asseoir pour récupérer. Il devait profiter de sa connaissance de la disposition de la grotte pour mettre de la distance entre lui et ses poursuivants.
 
@@ -66,7 +66,7 @@ Ses yeux s'illuminèrent; il s'accroupit pour observer attentivement et sentit u
 
 Cette énergie était si ordinaire que, même si d'autres l'avaient ressentie, ils n'y auraient vu que les résidus de quelqu'un ayant tenté de briser les chandeliers par la force. Pourtant, pour Wang Lin, la signification était capitale.
 
-« L'énergie d'épée du Senior Zhou Yi... S'il a laissé cette trace ici, cela signifie qu'il est déjà au troisième étage. Mais pourquoi l'a-t-il laissée ainsi... Se pourrait-il que... » Les yeux de Wang Lin se plissèrent. Il avait récupéré une partie de son énergie originelle en chemin. Il agita alors la main, et les neuf chandeliers s'allumèrent instantanément.
+« L'énergie d'épée de l'Aîné Zhou Yi... S'il a laissé cette trace ici, cela signifie qu'il est déjà au troisième étage. Mais pourquoi l'a-t-il laissée ainsi... Se pourrait-il que... » Les yeux de Wang Lin se plissèrent. Il avait récupéré une partie de son énergie originelle en chemin. Il agita alors la main, et les neuf chandeliers s'allumèrent instantanément.
 
 Dès que les bougies prirent feu, la lueur des flammes enveloppa Wang Lin, et il disparut pour rejoindre le troisième étage.
 

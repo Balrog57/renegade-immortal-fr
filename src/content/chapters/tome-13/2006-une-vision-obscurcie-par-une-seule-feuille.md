@@ -6,9 +6,9 @@ bookTitle: Light of the coming end
 en: Chapter 2006 - Vision Obscured By a Single Leaf.
 slug: une-vision-obscurcie-par-une-seule-feuille
 ---
-Le vent d'automne soufflait sur la terre noire. C'était une saison qui commençait par la fraîcheur avant de se réchauffer. Au-delà de la ville de Blackstone, s'étendaient montagnes et forêts où les feuilles mortes volaient au gré du vent.
+Le vent d'automne soufflait sur la terre noire. C'était une saison qui commençait par la fraîcheur avant de se réchauffer. Au-delà de la ville de la Pierre Noire, s'étendaient montagnes et forêts où les feuilles mortes volaient au gré du vent.
 
-Une feuille jaune, morte, tourbillonna dans l'air et tomba aux abords de la ville de Blackstone, faisant écran entre l'homme et la femme, empêchant leurs regards de se croiser.
+Une feuille jaune, morte, tourbillonna dans l'air et tomba aux abords de la ville de la Pierre Noire, faisant écran entre l'homme et la femme, empêchant leurs regards de se croiser.
 
 Lorsque la feuille s'envola, Wang Lin détourna les yeux. C'était une femme très ordinaire. Elle possédait la lignée d'un démon ancien mais ne dégageait aucune aura démoniaque; elle émanait plutôt l'aura d'un lotus blanc pur.
 
@@ -16,15 +16,15 @@ Sous l'œil droit de la femme se trouvait une tache de naissance. Loin de ternir
 
 À l'instar de son nom, Song Zhi était aussi exquise qu'une figure de peinture.
 
-« Song Zhi salue le Prince et les ambassadeurs de l'Ancient Dao », dit-elle, le visage légèrement empourpré, en s'inclinant devant l'assemblée.
+« Song Zhi salue le Prince et les ambassadeurs de l'Dao Antique », dit-elle, le visage légèrement empourpré, en s'inclinant devant l'assemblée.
 
 « Votre nom est Song? Est-ce elle la personne dont le Prince a parlé? » L'homme âgé chevauchant le démon ancien reprit ses esprits. Lorsqu'il posa les yeux sur la femme, son expression se fit grave.
 
-« C'est exact, son nom de famille est Song », répondit le Prince avec un sourire avant de poursuivre: « À ce propos, elle appartient à la famille Song du Grand Empyréen. Cependant, la famille du Grand Empyréen est vaste et elle ne provient que d'une branche lointaine. Néanmoins, à Blackstone, sa famille est considérée comme puissante. »
+« C'est exact, son nom de famille est Song », répondit le Prince avec un sourire avant de poursuivre: « À ce propos, elle appartient à la famille Song du Grand Empyréen. Cependant, la famille du Grand Empyréen est vaste et elle ne provient que d'une branche lointaine. Néanmoins, à Pierre Noire, sa famille est considérée comme puissante. »
 
 L'homme sur le démon ancien réfléchit un instant, puis joignit les mains en signe de respect envers le Prince. « Je remercie infiniment le Prince pour son aide. Je vais emmener cette femme avec nous. Si elle n'est pas choisie, nous la lui renverrons. »
 
-« Très bien. Song Zhi, suis les ambassadeurs de l'Ancient Dao. » Le Prince n'y prêta guère attention. Il donna l'ordre avec un sourire, puis fixa Wang Lin, le regard brûlant de ferveur.
+« Très bien. Song Zhi, suis les ambassadeurs de l'Dao Antique. » Le Prince n'y prêta guère attention. Il donna l'ordre avec un sourire, puis fixa Wang Lin, le regard brûlant de ferveur.
 
 La femme nommée Song Zhi sembla pousser un soupir, mais sa nature était si douce qu'elle ne put refuser. Elle mordilla sa lèvre inférieure et s'avança vers le démon ancien.
 
@@ -36,9 +36,9 @@ Lorsqu'elle monta sur le démon ancien aux côtés du vieil homme, le vent fit v
 
 « J'espère que je ne serai pas choisie... Je ne suis pas si belle, je devrais donc... ne pas être sélectionnée... Tante Chang et Sœur Dong m'attendent encore... » La femme baissa la tête, ses cheveux dissimulant les larmes qui perlaient dans ses yeux.
 
-Une fois Song Zhi accueillie par les ambassadeurs de l'Ancient Dao, ces derniers s'inclinèrent respectueusement devant le Prince et Wang Lin. Soudain, le démon ancien leva la tête vers le ciel et poussa un rugissement. Il bondit vers la faille qui s'était ouverte dans le firmament, se transforma en une brume noire et disparut à l'intérieur.
+Une fois Song Zhi accueillie par les ambassadeurs de l'Dao Antique, ces derniers s'inclinèrent respectueusement devant le Prince et Wang Lin. Soudain, le démon ancien leva la tête vers le ciel et poussa un rugissement. Il bondit vers la faille qui s'était ouverte dans le firmament, se transforma en une brume noire et disparut à l'intérieur.
 
-Ce lieu était très éloigné de la cité impériale de l'Ancient Dao. Même avec un démon ancien, il leur faudrait plusieurs mois pour regagner leur foyer.
+Ce lieu était très éloigné de la cité impériale de l'Dao Antique. Même avec un démon ancien, il leur faudrait plusieurs mois pour regagner leur foyer.
 
 Après le départ des ambassadeurs, l'homme massif à l'armure dorée guida l'assistance vers l'intérieur de la ville. Un instant plus tard, les environs étaient déserts, à l'exception de Wang Lin, du démon ancien tremblant, du Prince et de la femme qui se tenait derrière lui.
 
@@ -46,7 +46,7 @@ Le Prince Ji Du sourit et joignit les mains devant Wang Lin. « Je ne connais to
 
 Wang Lin regarda le Prince et déclara lentement: « Wang Lin. »
 
-« Ainsi, c'est bien le Senior Wang. Aîné, ce n'est pas un lieu propice aux discussions. Ce Junior possède un palais dans le Pays Sombre. Si l'Aîné n'y voit pas d'inconvénient, nous pourrions nous y rendre afin de discuter en détail de la manière dont je compenserai mon comportement irréfléchi de tout à l'heure. » Le Prince semblait sincère et s'inclina respectueusement.
+« Ainsi, c'est bien l'Aîné Wang. Aîné, ce n'est pas un lieu propice aux discussions. Ce cadet possède un palais dans le Pays Sombre. Si l'Aîné n'y voit pas d'inconvénient, nous pourrions nous y rendre afin de discuter en détail de la manière dont je compenserai mon comportement irréfléchi de tout à l'heure. » Le Prince semblait sincère et s'inclina respectueusement.
 
 En observant le respect affiché par le Prince, si contrastant avec son indifférence passée, les yeux de Wang Lin brillèrent d'une lueur imperceptible.
 
@@ -64,7 +64,7 @@ Cependant, juste au moment où le démon ancien s'éloignait, une voix froide et
 
 Cette voix était celle du Prince Ji Du!
 
-Le Pays Sombre des Ancient Shi. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, scellée par l'Ancêtre Ancien pour former ce royaume.
+Le Pays Sombre des Shi Antique. Ce pays était enveloppé d'un brouillard perpétuel, ce qui lui avait valu son nom. La légende racontait qu'en dessous du Pays Sombre reposait une entité semblable à une brume, scellée par l'Ancêtre Ancien pour former ce royaume.
 
 Au cœur de la brume se dressait une montagne en forme de fer à cheval, sur laquelle trônait un immense palais dégageant une aura puissante. De nombreux serviteurs et gardes y résidaient. Ce jour-là, le brouillard au-dessus du palais se fendit, révélant le ciel nocturne. Une immense faille apparut, et un géant démon ancien en sortit!
 
@@ -80,13 +80,13 @@ Wang Lin descendit calmement. Derrière lui marchaient le Prince et la femme, la
 
 Une fois au sol, Wang Lin observa le démon géant soumis. « Ce démon ancien est plutôt remarquable. »
 
-« C'est un honneur pour lui de recevoir les éloges de l'Aîné. Mon père me l'a offert pour faciliter mes voyages et assurer ma protection. Un tel démon est rare. Il fut autrefois un guerrier de mon clan Ancient Shi, mais malheureusement, après la fusion de ses 27 étoiles, il n'obtint pas la reconnaissance de l'Ancêtre Ancien. Il dégénéra en démon et perdit la raison », soupira le Prince.
+« C'est un honneur pour lui de recevoir les éloges de l'Aîné. Mon père me l'a offert pour faciliter mes voyages et assurer ma protection. Un tel démon est rare. Il fut autrefois un guerrier de mon clan Shi Antique, mais malheureusement, après la fusion de ses 27 étoiles, il n'obtint pas la reconnaissance de l'Ancêtre Ancien. Il dégénéra en démon et perdit la raison », soupira le Prince.
 
 Wang Lin acquiesça. Son regard balaya une nouvelle fois la créature avant de se tourner vers le palais.
 
 Le Prince Ji Du remarqua son attention. Après une brève hésitation, il serra les dents et déclara:
 
-« Si l'Aîné Wang apprécie ce démon ancien, alors ce Junior est prêt à le lui offrir. »
+« Si l'Aîné Wang apprécie ce démon ancien, alors ce cadet est prêt à le lui offrir. »
 
 « Oh? » Wang Lin tourna les yeux vers Ji Du.
 
@@ -98,7 +98,7 @@ Wang Lin dit lentement: « Est-ce là la compensation dont vous parliez? »
 
 Le palais était luxueux, mais dégageait une aura écrasante. Dès que Wang Lin eut franchi le seuil de la salle, le Prince s'avança promptement devant lui. Il joignit les mains avec une gravité extrême et s'inclina brusquement.
 
-« Le Junior du clan Ancient Shi, le Prince Ji Du, salue l'Ascendant Empyréen aux cheveux blancs! » À ces mots, un cri de stupeur retentit de la part de la femme derrière lui. Déconcertée, elle recula de plusieurs pas, totalement bouleversée par les propos de son frère.
+« Le cadet du clan Shi Antique, le Prince Ji Du, salue l'Ascendant Empyréen aux cheveux blancs! » À ces mots, un cri de stupeur retentit de la part de la femme derrière lui. Déconcertée, elle recula de plusieurs pas, totalement bouleversée par les propos de son frère.
 
 L'Ascendant Empyréen aux cheveux blancs!!
 
@@ -106,9 +106,9 @@ Les clans Anciens espionnaient sans relâche les mouvements du clan céleste, pa
 
 Une lueur de surprise traversa les yeux de Wang Lin, et son regard envers le Prince Ji Du se fit progressivement glacial.
 
-« Ce Junior ne cherche pas à tester l'Aîné. Vous êtes apparu à Blackstone, près de la mer qui nous sépare du clan céleste. Vous possédez également le pouvoir d'effrayer un démon ancien d'un simple regard, et vous n'avez pas cherché à dissimuler votre identité en me donnant votre nom. »
+« Ce cadet ne cherche pas à tester l'Aîné. Vous êtes apparu à Pierre Noire, près de la mer qui nous sépare du clan céleste. Vous possédez également le pouvoir d'effrayer un démon ancien d'un simple regard, et vous n'avez pas cherché à dissimuler votre identité en me donnant votre nom. »
 
-« De plus, ce Junior possède une liste de portraits des membres puissants du clan céleste, et le vôtre y figure. Cependant, seuls les trois familles impériales ont accès à ces portraits; un étranger ne pourrait donc pas vous reconnaître. » Le Prince était couvert d'une sueur froide sous la pression du regard de Wang Lin. Néanmoins, il serra les dents pour rester immobile. Il sortit un morceau de jade et le tendit respectueusement à Wang Lin.
+« De plus, ce cadet possède une liste de portraits des membres puissants du clan céleste, et le vôtre y figure. Cependant, seuls les trois familles impériales ont accès à ces portraits; un étranger ne pourrait donc pas vous reconnaître. » Le Prince était couvert d'une sueur froide sous la pression du regard de Wang Lin. Néanmoins, il serra les dents pour rester immobile. Il sortit un morceau de jade et le tendit respectueusement à Wang Lin.
 
 L'expression de Wang Lin resta impavide alors qu'il saisissait le jade. Son Sens Divin parcourut l'objet, et il vit immédiatement les portraits des cinq Grands Empyréens ainsi que de tous les Ascendant Empyréens. De nombreux Exaltés Empyréens y figuraient également.
 

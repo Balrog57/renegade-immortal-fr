@@ -34,7 +34,7 @@ Grande Désolation n'était pas un cultivateur ordinaire. Après avoir été ré
 
 La grande main ne se referma pas complètement, laissant une vaste zone de terrain libre. Wang Lin recula jusqu'à une distance de 10 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miao Yin. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
 
-Wang Lin dit lentement: « Ce junior a observé la trajectoire de cette main géante et en a déduit une hypothèse. Si je me trompe, nous pourrons travailler ensemble pour trouver un moyen de nous libérer, il ne sera pas trop tard... Cependant, si j'ai raison, l'apparition de cette main pourrait ne pas être une mauvaise chose pour nous! »
+Wang Lin dit lentement: « Ce cadet a observé la trajectoire de cette main géante et en a déduit une hypothèse. Si je me trompe, nous pourrons travailler ensemble pour trouver un moyen de nous libérer, il ne sera pas trop tard... Cependant, si j'ai raison, l'apparition de cette main pourrait ne pas être une mauvaise chose pour nous! »
 
 Wang Lin leva la main et ajouta: « Si elle avait vraiment pour but de nous capturer tous les deux, ce bras descendrait droit! »
 

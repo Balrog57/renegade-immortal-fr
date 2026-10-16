@@ -128,9 +128,9 @@ Tout en veillant sur Li Muwan, il se remémorait ses souvenirs, plongé dans son
 
 Au fil des ans, Treize revint à plusieurs reprises. Chaque fois, il restait auprès de Wang Lin durant quelques mois avant de repartir mener sa propre vie et sa culture.
 
-Xu Liguo et Liu Jinbiao avaient utilisé une méthode inconnue pour retrouver Zhong Big Red. Les trois compères travaillaient ensemble, faisant ce qu'ils voulaient dans le monde des grottes, dans une immense joie.
+Xu Liguo et Liu Jinbiao avaient utilisé une méthode inconnue pour retrouver Zhong Grand Rouge. Les trois compères travaillaient ensemble, faisant ce qu'ils voulaient dans le monde des grottes, dans une immense joie.
 
-Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de culture actuel de Wang Lin, Zhong Big Red pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
+Leurs corps ayant été régénérés sur le Continent Astral Immortel, ils pouvaient partir et revenir à leur guise en empruntant la puissance de Wang Lin pour franchir la porte. Avec le niveau de culture actuel de Wang Lin, Zhong Grand Rouge pouvait également le faire. Après avoir parcouru le monde des grottes, les trois hommes, accompagnés du dragon de mer qui s'était également pris d'affection pour l'endroit, quittèrent le monde des grottes. Ils commencèrent alors leur propre épopée légendaire sur le Continent Astral Immortel.
 
 Cependant, avant leur départ, le groupe de Xu Liguo vint rendre visite à Wang Lin pour le servir et le flatter. Finalement, Wang Lin rit. Il laissa son aura et son empreinte sur eux pour assurer leur protection. Les trois partirent avec enthousiasme.
 

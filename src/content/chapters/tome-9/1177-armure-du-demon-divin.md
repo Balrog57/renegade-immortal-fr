@@ -62,7 +62,7 @@ L'expression de Wang Lin resta neutre tandis que sa main droite traçait un scea
 
 Cette aura antique portait les traces du temps. Cela poussa immédiatement les cultivateurs environnants à devenir sérieux.
 
-Les cultivateurs au stade de la Briseuse de Nirvana ne furent pas déstabilisés. En revanche, les cultivateurs au stade du Voyant et du Purificateur du Nirvana fixèrent intensément la pierre et commencèrent à réfléchir.
+Les cultivateurs au stade de la Briseur du Nirvana ne furent pas déstabilisés. En revanche, les cultivateurs au stade du Voyant et du Purificateur du Nirvana fixèrent intensément la pierre et commencèrent à réfléchir.
 
 « Une âme de montagne! » La belle femme qui connaissait Wang Lin fut surprise. Elle observa attentivement la pierre avant de secouer la tête: « Hélas, elle est brisée. »
 
@@ -90,7 +90,7 @@ Wang Lin observa attentivement l'expression du vieillard. Après une courte réf
 
 Cette énergie était si puissante qu'elle semblait altérer les couleurs du monde. Un vortex gigantesque apparut vaguement dans le ciel; il était d'un noir absolu et tournait lentement.
 
-Dès que le sceau de l'armure fut levé, l'environnement s'enfonça dans un silence total. Les yeux des cultivateurs s'écarquillèrent et même les vieux monstres au stade Briseuse de Nirvana furent stupéfaits. Leurs regards brillaient d'une intensité inédite!
+Dès que le sceau de l'armure fut levé, l'environnement s'enfonça dans un silence total. Les yeux des cultivateurs s'écarquillèrent et même les vieux monstres au stade Briseur du Nirvana furent stupéfaits. Leurs regards brillaient d'une intensité inédite!
 
 Certains se levèrent, frappés par le choc et l'incrédulité.
 

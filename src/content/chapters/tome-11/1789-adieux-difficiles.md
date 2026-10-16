@@ -58,11 +58,11 @@ Qing Shui ne dit mot. Il resta là un long moment, plongé dans le silence. À s
 
 « Han Yan, il doit exister un moyen pour que tu retournes sur le Continent Astral Immortel! Alors notre famille pourra enfin être réunie... » Le regard de Qing Shui se posa sur Papillon Rouge avec une tendresse paternelle.
 
-Outre Situ, Qing Shui et Papillon Rouge, la quatrième personne à arriver fut Thirteen!
+Outre Situ, Qing Shui et Papillon Rouge, la quatrième personne à arriver fut Treize!
 
-Les pensées de Thirteen étaient d'une simplicité absolue. En tant que disciple de Wang Lin, il devait le suivre, que ce soit à travers les lames et le feu, ou même par la réincarnation. Dans son cœur, celui qui était son maître dans une vie le resterait, même après la renaissance!
+Les pensées de Treize étaient d'une simplicité absolue. En tant que disciple de Wang Lin, il devait le suivre, que ce soit à travers les lames et le feu, ou même par la réincarnation. Dans son cœur, celui qui était son maître dans une vie le resterait, même après la renaissance!
 
-Thirteen s'assit calmement derrière Wang Lin. Sa personnalité était bien plus sereine qu'auparavant; son intention de tuer s'était presque dissipée, soigneusement dissimulée au plus profond de son être. Il n'en laissait rien paraître.
+Treize s'assit calmement derrière Wang Lin. Sa personnalité était bien plus sereine qu'auparavant; son intention de tuer s'était presque dissipée, soigneusement dissimulée au plus profond de son être. Il n'en laissait rien paraître.
 
 Le temps passa ainsi lentement. Plusieurs autres personnes arrivèrent de toutes les directions du Royaume Céleste pour s'asseoir derrière Wang Lin; ils avaient choisi de partir.
 
@@ -100,7 +100,7 @@ Le temps s'écoulait. Il ne restait plus que trois jours sur les quinze accordé
 
 Tout le monde n'était pas prêt à affronter la réincarnation et l'inconnu du monde extérieur; pour beaucoup, c'était un saut vers un danger insondable.
 
-Maître Hong Shan choisit de se réincarner, tandis que Maître South Cloud hésita longuement avant de décider de rester.
+Maître Hong Shan choisit de se réincarner, tandis que Maître Nuage du Sud hésita longuement avant de décider de rester.
 
 D'autres connaissances, comme Zhan Konglie ou Maître Yan Leizi, choisirent également de rester, refusant de quitter les lieux.
 

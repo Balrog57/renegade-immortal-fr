@@ -96,7 +96,7 @@ C'était comme si ce regard était devenu solide, lui enserrant le cou et l'âme
 
 C'était une existence qui dépassait toute compréhension!
 
-« Sei... Senior... » L'homme d'âge moyen, possédant le niveau de culture le plus élevé et étant le plus proche de la silhouette blanche, sentit ses forces l'abandonner et s'agenouilla malgré lui. Sa voix tremblait comme s'il cherchait ses mots.
+« Sei... Aîné... » L'homme d'âge moyen, possédant le niveau de culture le plus élevé et étant le plus proche de la silhouette blanche, sentit ses forces l'abandonner et s'agenouilla malgré lui. Sa voix tremblait comme s'il cherchait ses mots.
 
 Cette silhouette blanche était Wang Lin!
 
@@ -112,4 +112,4 @@ Wang Lin!
 
 Un nom qui avait autrefois fait trembler Luotian!
 
-« Je ne suis pas Xi Zifeng... Senior se trompe... » dit la femme qui reculait d'une voix tremblante, comme si elle n'avait plus aucune issue.
+« Je ne suis pas Xi Zifeng... Aîné se trompe... » dit la femme qui reculait d'une voix tremblante, comme si elle n'avait plus aucune issue.

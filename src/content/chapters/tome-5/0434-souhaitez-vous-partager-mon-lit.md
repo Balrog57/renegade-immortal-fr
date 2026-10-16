@@ -28,13 +28,13 @@ Wang Lin demanda d'un ton grave: « Qui êtes-vous? »
 
 La femme regarda Wang Lin et répondit lentement: « Parmi les cultivateurs, on m'appelait Mei Ji, et au sein du Clan des Immortels Délaissés, je suis la troisième ancêtre! »
 
-Les yeux de Wang Lin s'illuminèrent et il déclara calmement: « Ainsi, c'est l'honorable troisième ancêtre. Ce junior a été impoli de s'introduire ici sans permission; il prend congé. » Sur ces mots, il commença à reculer.
+Les yeux de Wang Lin s'illuminèrent et il déclara calmement: « Ainsi, c'est l'honorable troisième ancêtre. Ce cadet a été impoli de s'introduire ici sans permission; il prend congé. » Sur ces mots, il commença à reculer.
 
 Des ondulations parcoururent le regard de la femme qui dit: « Ne m'appelle pas "honorable troisième ancêtre"; je préfère que l'on m'appelle Mei Ji. Tu peux partir aujourd'hui, mais seulement si tu te montres obéissant. »
 
 La femme pointa le vide, et le tunnel menant à la dixième couche se scella instantanément.
 
-Wang Lin fronça les sourcils. Il fixa froidement la femme et demanda: « Que voulez-vous dire par là, senior? »
+Wang Lin fronça les sourcils. Il fixa froidement la femme et demanda: « Que voulez-vous dire par là, aîné? »
 
 La femme porta un doigt près de sa bouche. Ses yeux étaient empreints d'un charme séduisant alors qu'elle souriait. « Quelle autre signification pourrais-je avoir? Je veux simplement que tu goûtes à la beauté de la vie. Je sens une aura très pure émaner de ton corps. Je parie que tu n'as pas encore goûté aux plaisirs d'une femme. Quelle chance pour moi. »
 
@@ -52,7 +52,7 @@ Wang Lin regarda la femme et dit: « Je n'ai utilisé que 10 % de mon énergie s
 
 « C'est donc un trésor céleste! » Les yeux de la femme devinrent froids. « Penses-tu pouvoir me tuer avec ces deux trésors? »
 
-« Si vous étiez en pleine possession de vos moyens, je n'en aurais aucune certitude, mais je suis sûr que vous êtes lourdement blessée. Senior, ne me forcez pas; cela ne sera bon pour aucun de nous deux. Quant à ce qui s'est passé aujourd'hui, je quitterai ce Cimetière des Immortels et vous pourrez continuer à guérir. »
+« Si vous étiez en pleine possession de vos moyens, je n'en aurais aucune certitude, mais je suis sûr que vous êtes lourdement blessée. Aîné, ne me forcez pas; cela ne sera bon pour aucun de nous deux. Quant à ce qui s'est passé aujourd'hui, je quitterai ce Cimetière des Immortels et vous pourrez continuer à guérir. »
 
 Il n'avait aucune confiance face à cette femme. Après tout, elle représentait une existence comparable à un cultivateur Ascendant. Même blessée, elle disposait encore de nombreux moyens. Elle ne ressemblait en rien à ces chamans à huit feuilles que Wang Lin pouvait facilement éliminer grâce à son âme Ascendante.
 

@@ -22,7 +22,7 @@ Après un long moment, Wang Ping tourna la tête vers son père. De profil, le v
 
 Wang Lin se retourna. Il afficha un sourire bienveillant, mais resta muet.
 
-Vast Water City était la sous-capitale de l'un des trois grands empires de la planète Ran Yun, et ne secondait la capitale que par sa prospérité. Située à proximité d'un fleuve, c'était une cité extrêmement animée.
+Ville des Vastes Eaux était la sous-capitale de l'un des trois grands empires de la planète Ran Yun, et ne secondait la capitale que par sa prospérité. Située à proximité d'un fleuve, c'était une cité extrêmement animée.
 
 Le chariot pénétra dans la ville et s'arrêta à une station. Wang Lin et Wang Ping en descendirent pour s'aventurer dans cette métropole bouillonnante.
 
@@ -48,7 +48,7 @@ La femme, quant à elle, paraissait avoir une vingtaine d'années, avec une chev
 
 Celui qui avait ricané était l'homme en pourpre.
 
-Il se tourna vers la femme à ses côtés et rit: « Ce garçon idiot est intéressant. C'est sa première fois à Vast Water City et il se met déjà à divaguer, parlant de s'être habitué aux montagnes et aux rivières comme s'il découvrait le monde pour la première fois. Quelles fadaises. »
+Il se tourna vers la femme à ses côtés et rit: « Ce garçon idiot est intéressant. C'est sa première fois à Ville des Vastes Eaux et il se met déjà à divaguer, parlant de s'être habitué aux montagnes et aux rivières comme s'il découvrait le monde pour la première fois. Quelles fadaises. »
 
 Il ne parlait pas fort, mais ses paroles étaient destinées à atteindre les oreilles de Wang Ping. Ce dernier fronça les sourcils, mais ne dit mot.
 
@@ -56,7 +56,7 @@ Wang Lin, lui, saisit la cruche et prit une gorgée. Son regard sembla balayer m
 
 La femme fronça les sourcils et demanda doucement: « Est-ce si amusant? »
 
-Le jeune homme rit: « Sœur de discipline junior Qing Yi, pourquoi ne le serait-il pas? »
+Le jeune homme rit: « Sœur de discipline cadet Qing Yi, pourquoi ne le serait-il pas? »
 
 Une trace d'agacement apparut sur le visage de la femme, qui détourna la tête.
 

@@ -38,7 +38,7 @@ Cela fit pourtant froncer les sourcils de l'homme. Il renifla et dit: « Tu ne s
 
 L'homme venait à peine de lever la main qu'il sentit un froid glacial envahir son corps et une sueur froide perler dans son dos. Un jeune homme vêtu de blanc apparut mystérieusement devant lui.
 
-L'homme reposa précipitamment Zhou Ru et dit respectueusement: « Senior, junior... »
+L'homme reposa précipitamment Zhou Ru et dit respectueusement: « Aîné, cadet... »
 
 Sans même le laisser finir, Wang Lin agita ses manches et un vent puissant projeta l'homme au loin.
 

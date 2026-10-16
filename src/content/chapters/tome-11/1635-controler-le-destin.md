@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1635 - Controlling Fate
 slug: controler-le-destin
 ---
-« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Si moi, Wang Lin, je pouvais pénétrer dans l’Ancient Celestial Realm et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
+« Quelle vie intéressante, quel ciel fascinant, quelle création prodigieuse! Mais après tout, qu'est-ce que cela change? Si moi, Wang Lin, je pouvais pénétrer dans l’Royaume Céleste Antique et briser la divine rétribution pour découvrir comment elle fut créée, alors un jour, je serais capable de sortir de cette grotte. Je pourrais entrer dans le Continent Astral Immortel et voir à quel point les grands cultivateurs qui s'y trouvent sont puissants!
 
 « De quels droits se permettent-ils d'élever des êtres sensibles en captivité? De quels droits se croient-ils maîtres d'autres êtres?
 
@@ -40,7 +40,7 @@ Le septième soleil contenait la force de l'âme des trois clans anciens. D'inno
 
 En approchant du huitième soleil, Wang Lin ressentit l'aura de la rétribution de soi. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
 
-Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Ancient Celestial Realm. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
+Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Royaume Céleste Antique. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
 
 Cependant, Wang Lin n'en avait cure. Son regard se posa sur le neuvième soleil. Il n'avait jamais vu la divine rétribution qui résidait dans ce neuvième soleil auparavant.
 
@@ -94,7 +94,7 @@ L'amour entre ses parents était calme et chaleureux. Même dans la mort, ils co
 
 Son Sens Divin enveloppa doucement les destins de ses parents. Il trouva Treize, Da Tou, Zhou Yi, Qing Shuang, Qing Lin...
 
-Il trouva Maître South Cloud, Maître Hong Shan, Wang Zhuo, le vieil Empereur Divin Oiseau Vermillon, Dun Tian...
+Il trouva Maître Nuage du Sud, Maître Hong Shan, Wang Zhuo, le vieil Empereur Divin Oiseau Vermillon, Dun Tian...
 
 Il trouva encore plus de monde. Il trouva son propre enfant, Wang Ping, et Zhou Ru. Il prit leurs destins afin qu'ils ne soient plus asservis par les cieux, leur permettant de s'échapper des cieux comme il l'avait fait.
 

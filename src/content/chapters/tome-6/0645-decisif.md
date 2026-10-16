@@ -62,7 +62,7 @@ Sur ces mots, les trois autres disciples manifestèrent une intention meurtrièr
 
 « Wang Lin, tu n'en sors toujours pas! Qu'attends-tu?! » rugissait déjà Zhou Yi dans l'esprit de Wang Lin.
 
-« Senior, aide-moi à verrouiller les quatre autres avec ton Sens Divin d'épée! » Les yeux de Wang Lin brillèrent et il se déplaça comme l'éclair. Dans ce brouillard où le Sens Divin était obstrué, il se mouvait tel un spectre.
+« Aîné, aide-moi à verrouiller les quatre autres avec ton Sens Divin d'épée! » Les yeux de Wang Lin brillèrent et il se déplaça comme l'éclair. Dans ce brouillard où le Sens Divin était obstrué, il se mouvait tel un spectre.
 
 « Wang Lin, dans dix respirations, même si tu résistes, je te sortirai de là! » Après avoir envoyé ce message, Zhou Yi propagea son Sens Divin d'épée à travers le brouillard qui se contractait et verrouilla les quatre membres de la Secte de l'Épée Da Lou!
 

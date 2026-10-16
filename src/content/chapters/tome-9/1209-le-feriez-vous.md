@@ -54,7 +54,7 @@ La lumière aux sept couleurs tomba du ciel, mais elle commença immédiatement 
 
 L'œil gauche de Wang Lin dégageait un feu stupéfiant. Ce feu fut d'abord rouge, puis devint rapidement blanc. Cela fit que l'œil gauche de Wang Lin devint presque entièrement blanc!
 
-L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral du phénix invoqué par le membre du Clan Fire Sparrow, le troisième éveil de l'Oiseau Vermillon était arrivé!
+L'Oiseau Vermillon était sur le point de s'éveiller pour la troisième fois! Après avoir absorbé la plume à Peng Lai et dévoré l'esprit ancestral du phénix invoqué par le membre du Clan des Moineaux de Feu, le troisième éveil de l'Oiseau Vermillon était arrivé!
 
 À ce moment-là, la lumière aux sept couleurs continuait d'être repoussée et une vague de chaleur se propagea, prenant Wang Lin pour centre. La Restriction Temporelle s'était déjà rétablie, mais à cause du sceau, la température devint ici encore plus élevée!
 

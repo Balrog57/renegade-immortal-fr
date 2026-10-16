@@ -10,7 +10,7 @@ Chapitre 1804 - Première bataille sur le continent Astral Immortel!
 
 Suivant le regard du jeune homme, l'homme d'âge moyen aperçut la colonne de feu au fond de la grotte, et ses pupilles se rétractèrent soudainement.
 
-Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte du Dragon Bleu, il dominait beaucoup de monde et n'était inférieur qu'à peu d'entre eux. Même sur l'ensemble du continent Heavenly Bull, il figurait parmi les plus puissants.
+Il possédait déjà une essence et se trouvait au stade avancé du Vide Spirituel. Au sein de la Secte du Dragon Bleu, il dominait beaucoup de monde et n'était inférieur qu'à peu d'entre eux. Même sur l'ensemble du continent Taureau Céleste, il figurait parmi les plus puissants.
 
 À l'instant où il vit la colonne de feu, il distingua vaguement une silhouette enveloppée de flammes portant un cercueil sur le dos. L'homme d'âge moyen sentit une aura menaçante émaner de là, faisant trembler son cœur.
 
@@ -20,7 +20,7 @@ Sachant qu'il possédait lui-même un haut niveau de culture et ne ressentant au
 
 N'étant pas loin du feu, il franchit la distance en une seule enjambée. Sa bulle protectrice entra en contact avec les flammes dans un bruit de craquement. Le feu sembla être repoussé, lui ouvrant ainsi un passage.
 
-« Quels cultivateurs sauvages ont osé s'introduire dans ma Secte du Dragon Bleu? Si je ne vous transforme pas en marionnettes, nous deviendrons la risée du continent Heavenly Bull! » L'homme d'âge moyen fit un autre pas et son corps se retrouva à moitié dans les flammes. Le feu rageait, mais il ne parvenait pas à briser la bulle qui entourait son corps.
+« Quels cultivateurs sauvages ont osé s'introduire dans ma Secte du Dragon Bleu? Si je ne vous transforme pas en marionnettes, nous deviendrons la risée du continent Taureau Céleste! » L'homme d'âge moyen fit un autre pas et son corps se retrouva à moitié dans les flammes. Le feu rageait, mais il ne parvenait pas à briser la bulle qui entourait son corps.
 
 Cependant, à ce moment précis, Wang Lin ouvrit soudainement les yeux et un regard glacial jaillit. L'expression de l'homme d'âge moyen changea radicalement lorsqu'il sentit une aura terrifiante jaillir de l'homme aux cheveux blancs au cœur du feu.
 
@@ -48,7 +48,7 @@ Voyant la pluie ainsi figée, le visage du vieil homme aux cheveux blancs fut en
 
 « La parole qui dicte la loi, tout se fige... Cela signifie qu'il est au stade du Vide Arcanique ou plus haut. Qui... qui est cette personne?! »
 
-« Qui Kang Ren a-t-il ramené?! Cet homme doit être célèbre sur le continent Heavenly Bull, il ne peut pas être un inconnu! »
+« Qui Kang Ren a-t-il ramené?! Cet homme doit être célèbre sur le continent Taureau Céleste, il ne peut pas être un inconnu! »
 
 À l'intérieur de la grotte, le désespoir de Kang Ren avait atteint son paroxysme. Il avait vu l'Ancien Zhao, au statut extrêmement élevé, être repoussé et recracher du sang par une simple parole issue des flammes. En voyant l'embrasement, il comprit qu'il avait causé un désastre sans précédent!
 

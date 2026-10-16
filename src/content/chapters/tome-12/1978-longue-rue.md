@@ -10,25 +10,25 @@ Chapitre 1978 - Longue Rue!
 
 Le vent et la neige gémissaient comme les pleurs d'une femme. La lune était occultée par le vent et les étoiles par la neige. Cette longue et antique rue était plongée dans les ténèbres, et une intention meurtrière terrifiante s'y dissimulait.
 
-À l'instant même où Wang Lin et l'Exalt Émérite Hai Zi s'arrêtèrent, la neige devant lui tomba avec une intensité accrue. Sous l'effet d'une force invisible, 9 999 flocons semblèrent converger devant Wang Lin pour former un motif carré!
+À l'instant même où Wang Lin et l'Exalté Émérite Hai Zi s'arrêtèrent, la neige devant lui tomba avec une intensité accrue. Sous l'effet d'une force invisible, 9 999 flocons semblèrent converger devant Wang Lin pour former un motif carré!
 
 Dès que le carré apparut, il fonça vers Wang Lin et Hai Zi. Encore plus de neige s'accumula, et sa taille s'étendit à des milliers de pieds en un clin d'œil.
 
-Simultanément, un motif triangulaire se forma derrière Wang Lin et l'Exalt Émérite Hai Zi. Empli d'une intention meurtrière, il chargea après avoir absorbé une immense quantité de flocons de neige.
+Simultanément, un motif triangulaire se forma derrière Wang Lin et l'Exalté Émérite Hai Zi. Empli d'une intention meurtrière, il chargea après avoir absorbé une immense quantité de flocons de neige.
 
 Tout se passa en un éclair!
 
-« Couvre mes arrières, je couvre l'avant! » Wang Lin sentit le danger poindre dans son cœur. Il n'avait aucune hésitation envers l'Exalt Émérite Hai Zi. Même si tout semblait lié à elle, il fit davantage confiance à son intuition!
+« Couvre mes arrières, je couvre l'avant! » Wang Lin sentit le danger poindre dans son cœur. Il n'avait aucune hésitation envers l'Exalté Émérite Hai Zi. Même si tout semblait lié à elle, il fit davantage confiance à son intuition!
 
 Après avoir lancé cet avertissement, il chargea vers le motif carré qui lui faisait face.
 
-L'expression de l'Exalt Émérite Hai Zi était extrêmement sombre et son beau visage rayonnait de colère. Elle fulminait contre celui qui avait profité d'elle en l'invitant au Mont de l'Empereur pour tenter de tuer Wang Lin!
+L'expression de l'Exalté Émérite Hai Zi était extrêmement sombre et son beau visage rayonnait de colère. Elle fulminait contre celui qui avait profité d'elle en l'invitant au Mont de l'Empereur pour tenter de tuer Wang Lin!
 
 Si le plan de l'adversaire réussissait, cette affaire ébranlerait tout le clan céleste et son maître se verrait impliqué!
 
 Elle savait qu'il n'était pas temps de s'expliquer; les mots étaient inutiles face à l'action. En entendant la confiance de Wang Lin, elle ressentit une pointe de chaleur dans son cœur, mais son visage resta marqué par une intention meurtrière dirigée vers l'auteur de ce piège!
 
-Sans la moindre hésitation, l'Exalt Émérite Hai Zi fit volte-face, lui confiant ses arrières. Elle chargea vers le motif déformé à trois côtés!
+Sans la moindre hésitation, l'Exalté Émérite Hai Zi fit volte-face, lui confiant ses arrières. Elle chargea vers le motif déformé à trois côtés!
 
 Wang Lin fit trois pas vers le carré devant lui. À cet instant, le tatouage du Taureau Céleste apparut autour de son corps. Face à cette situation, il utilisa toute sa puissance sans retenue!
 
@@ -66,7 +66,7 @@ Au-dessus de lui, trois autres personnes apparurent. Elles ne formèrent ni paum
 
 Devant, derrière, à gauche, à droite et en haut! Au total, 15 assaillants étaient apparus simultanément pour l'exterminer!
 
-Tous possédaient une culture d'Exalt Émérite, et leur attaque survint précisément au moment où la culture de Wang Lin était scellée!
+Tous possédaient une culture d'Exalté Émérite, et leur attaque survint précisément au moment où la culture de Wang Lin était scellée!
 
 Les yeux de Wang Lin se plissèrent et il poussa un rugissement en cette heure critique. Sans hésiter, il déchaîna toute la puissance de son armure de l'âme; la force du Dao Ancien satura son corps, le rendant incroyablement puissant. Son pied droit frappa le sol avec une violence inouïe.
 
@@ -100,7 +100,7 @@ Le vent et la neige redoublèrent d'intensité.
 
 Neuf autres ombres apparurent plus loin dans la rue. Elles chargèrent sans hésitation. Leurs mains tracèrent des sceaux et utilisèrent un sort spécial pour fusionner en un dragon de glace céleste. Le dragon poussa un rugissement et fondit sur Wang Lin!
 
-« Wang Lin!! » La voix déchirante de l'Exalt Émérite Hai Zi retentit derrière lui. Avec sa force actuelle, elle ne pouvait tenir longtemps, mais les neuf assaillants ne cherchaient pas à la tuer — ils voulaient simplement la maintenir captive.
+« Wang Lin!! » La voix déchirante de l'Exalté Émérite Hai Zi retentit derrière lui. Avec sa force actuelle, elle ne pouvait tenir longtemps, mais les neuf assaillants ne cherchaient pas à la tuer — ils voulaient simplement la maintenir captive.
 
 « C'est donc tout? » Les yeux de Wang Lin, noyés dans le sang, restaient calmes. Une lueur meurtrière traversa son regard et il s'arrêta net alors que le dragon de glace approchait.
 

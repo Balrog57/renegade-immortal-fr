@@ -1,6 +1,6 @@
 ---
 n: 1921
-title: "Terrain d'entraînement de l'Exalt Empyréen"
+title: "Terrain d'entraînement de l'Exalté Empyréen"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1921 - Exalté Empyréen Training Ground
@@ -24,13 +24,13 @@ Mais à cet instant, l'ancêtre de la Secte du Dao Démoniaque remarqua qu'aucun
 
 La portée de cette phrase était vertigineuse!
 
-« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalt Empyréen. Après avoir revêtu l'armure de l'âme, son niveau de culture est infiniment proche de celui d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte du Dao Démoniaque intérieurement.
+« Cette personne a obtenu la haute reconnaissance de l'âme du Taureau Céleste et possède une puissance proche d'un Exalté Empyréen. Après avoir revêtu l'armure de l'âme, son niveau de culture est infiniment proche de celui d'un Ascendant Empyréen. Cet homme... Il n'est pas étonnant que le Grand Empyréen Dao Yi lui accorde autant d'importance », soupira l'ancêtre de la Secte du Dao Démoniaque intérieurement.
 
 Wang Lin réfléchit silencieusement. Le Grand Empyréen Dao Yi était le premier Grand Empyréen qu'il rencontrait, et il pouvait percevoir la sincérité de la promesse dans ces mots.
 
 « Grand Empyréen, cette affaire est très importante pour moi. Je ne peux pas décider immédiatement et j'ai besoin d'y réfléchir. » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Dao Yi.
 
-Wang Lin ne voulait pas prendre de décision après n'avoir rencontré qu'un seul Grand Empyréen. De plus, après avoir combattu l'ancêtre de la Secte du Dao Démoniaque, il avait pris conscience des voies des Exalt Empyréens. Il savait qu'il n'était pas encore assez célèbre; il devait acquérir davantage de renommée!
+Wang Lin ne voulait pas prendre de décision après n'avoir rencontré qu'un seul Grand Empyréen. De plus, après avoir combattu l'ancêtre de la Secte du Dao Démoniaque, il avait pris conscience des voies des Exalté Empyréens. Il savait qu'il n'était pas encore assez célèbre; il devait acquérir davantage de renommée!
 
 Ce n'est qu'après être devenu plus illustre et avoir choisi un Grand Empyréen à suivre que le danger d'entrer dans la cité impériale diminuerait.
 
@@ -56,29 +56,29 @@ Le vieil homme aux cheveux roux s'arrêta et réfléchit un instant.
 
 « Le Grand Empyréen Dao Yi est extrêmement partial envers les siens, bien plus que les autres Grands Empyréens. Avec votre force actuelle, choisir de le suivre serait un excellent choix. »
 
-« Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent Nord est le plus exigeant; hormis les Ascendants Empyréens, il recrute rarement des Exalt Empyréens. »
+« Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent Nord est le plus exigeant; hormis les Ascendants Empyréens, il recrute rarement des Exalté Empyréens. »
 
-« Et le Grand Empyréen Gemini de la Secte du Dao Pourpre du Continent Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalt Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
+« Et le Grand Empyréen Gemini de la Secte du Dao Pourpre du Continent Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalté Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
 
-Le plus important était que cet Exalt Empyréen était extrêmement puissant! Par conséquent, il partagea ces connaissances essentielles afin d'effacer l'amertume des affrontements passés.
+Le plus important était que cet Exalté Empyréen était extrêmement puissant! Par conséquent, il partagea ces connaissances essentielles afin d'effacer l'amertume des affrontements passés.
 
 Wang Lin ignorait tout de cela jusqu'alors. Bien qu'il parût impassible, il fut intérieurement touché par ces révélations.
 
 « Merci, confrère cultivateur, pour ces informations », dit Wang Lin en joignant les mains.
 
-« Il y a aussi l'Épreuve Empyréenne... Puisque je suis le premier Exalt Empyréen que vous avez combattu, vous ignorez sans doute ce qu'est cette épreuve. C'est un lieu étrange créé par l'Ancêtre Céleste. Un espace séparé de ce monde où les cultivateurs Exalt Empyréens peuvent obtenir une évaluation précise de leur force. »
+« Il y a aussi l'Épreuve Empyréenne... Puisque je suis le premier Exalté Empyréen que vous avez combattu, vous ignorez sans doute ce qu'est cette épreuve. C'est un lieu étrange créé par l'Ancêtre Céleste. Un espace séparé de ce monde où les cultivateurs Exalté Empyréens peuvent obtenir une évaluation précise de leur force. »
 
-Le vieil homme poursuivit lentement: « L'Épreuve Empyréenne comporte 19 niveaux, et seuls les Exalt Empyréens peuvent y pénétrer. Avec mon niveau de culture il y a 500 ans, j'ai tenté ma chance, mais je n'ai franchi que le troisième niveau avant d'échouer au quatrième. »
+Le vieil homme poursuivit lentement: « L'Épreuve Empyréenne comporte 19 niveaux, et seuls les Exalté Empyréens peuvent y pénétrer. Avec mon niveau de culture il y a 500 ans, j'ai tenté ma chance, mais je n'ai franchi que le troisième niveau avant d'échouer au quatrième. »
 
 « L'Épreuve Empyréenne? » Les yeux de Wang Lin se rétrécirent. Il avait entendu le Grand Empyréen Dao Yi en parler plus tôt, mais il n'en saisissait pas la nature. Cependant, les explications du vieil homme lui permirent de mieux comprendre.
 
 « J'ai entendu dire par le Grand Empyréen Dao Yi que l'Épreuve Empyréenne avait été créée par l'Ancêtre Céleste et qu'elle reproduisait le Royaume Divin Immémorial. Si vous parvenez à franchir la 19e couche, vos chances de devenir un Grand Empyréen seront bien plus élevées que les autres une fois entré dans le Royaume Divin Immémorial! »
 
-« Il y a fort longtemps, le Grand Empyréen Wu Feng a franchi la 19e couche. Puis, lors d'une des ouvertures du Royaume Divin Immémorial, il a eu la chance de devenir un Grand Empyréen! » Le vieil homme ne cachait rien. Même s'il n'avait pas parlé, Wang Lin l'aurait appris en interagissant avec d'autres Exalt Empyréens. Ce n'étaient point des secrets.
+« Il y a fort longtemps, le Grand Empyréen Wu Feng a franchi la 19e couche. Puis, lors d'une des ouvertures du Royaume Divin Immémorial, il a eu la chance de devenir un Grand Empyréen! » Le vieil homme ne cachait rien. Même s'il n'avait pas parlé, Wang Lin l'aurait appris en interagissant avec d'autres Exalté Empyréens. Ce n'étaient point des secrets.
 
 Wang Lin demanda immédiatement: « Comment puis-je entrer dans l'Épreuve Empyréenne? »
 
-Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. Dès que vous aurez obtenu la reconnaissance de la Loi Astrale Immortelle en tant qu'Exalt Empyréen, il vous suffira de trouver un lieu sûr dans la terre des cieux. Ensuite, projetez votre âme originelle vers le ciel le plus rapidement possible. Après 60 respirations, vous pourrez pénétrer dans l'Épreuve Empyréenne créée par l'Ancêtre Céleste. »
+Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. Dès que vous aurez obtenu la reconnaissance de la Loi Astrale Immortelle en tant qu'Exalté Empyréen, il vous suffira de trouver un lieu sûr dans la terre des cieux. Ensuite, projetez votre âme originelle vers le ciel le plus rapidement possible. Après 60 respirations, vous pourrez pénétrer dans l'Épreuve Empyréenne créée par l'Ancêtre Céleste. »
 
 « La rumeur prétend qu'au pays des anciens, l'Ancêtre a également reproduit le Royaume Divin Immémorial pour créer un terrain d'essai adapté au Clan Ancien. »
 
@@ -88,7 +88,7 @@ Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. D�
 
 Wang Lin resta immobile, le regard perdu dans le vide, même après le départ du vieil homme. Il avait refusé l'offre du Grand Empyréen Dao Yi, renonçant ainsi à une opportunité immense, mais il n'avait aucun regret.
 
-« Cinq Grands Empyréens. Outre l'Empereur Céleste et Dao Yi, il en reste trois... Avec ma force actuelle, j'ai acquis de nouvelles perspectives après avoir combattu mon premier Exalt Empyréen. Plus je combattrai d'Exalt Empyréens, plus ma renommée grandira! »
+« Cinq Grands Empyréens. Outre l'Empereur Céleste et Dao Yi, il en reste trois... Avec ma force actuelle, j'ai acquis de nouvelles perspectives après avoir combattu mon premier Exalté Empyréen. Plus je combattrai d'Exalté Empyréens, plus ma renommée grandira! »
 
 « Et aussi, l'Épreuve Empyréenne... Je ne m'attendais pas à ce qu'un tel lieu existe sur le Continent Astral Immortel. Je me demande seulement si les paroles de l'ancêtre de la Secte du Dao Démoniaque étaient vraies ou fausses. »
 

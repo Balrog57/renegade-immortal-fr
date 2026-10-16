@@ -18,7 +18,7 @@ Les paroles de Xuan Luo résonnaient encore dans ses oreilles, persistant longte
 
 Wang Lin comprit vaguement que pour défier ainsi les lois du Continent Astral Immortel, Xuan Luo devait en payer un prix considérable.
 
-« Ce junior ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce junior n'oubliera jamais la bonté dont le Senior a fait preuve envers lui aujourd'hui! »
+« Ce cadet ignore qui décidera de quitter le monde des grottes et combien ils seront. Cependant, quoi qu'il advienne, ce cadet n'oubliera jamais la bonté dont l'Aîné a fait preuve envers lui aujourd'hui! »
 
 Wang Lin s'inclina devant Xuan Luo. Une connexion invisible semblait se former entre eux; une chose impossible à expliquer ou à concevoir, mais qui était bien là.
 

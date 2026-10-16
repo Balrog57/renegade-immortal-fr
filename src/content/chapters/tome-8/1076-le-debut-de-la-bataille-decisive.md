@@ -96,4 +96,4 @@ Sans hésiter, la main droite de Wang Lin plongea dans le vide et une lumière c
 
 À sa parole, la lumière cristalline brilla d'un éclat vif et des cris lugubres s'élevèrent soudainement de l'âme de ceux qui ne pouvaient entrer dans le cycle de la réincarnation. Elles jaillirent des 18 Sceaux Célestes de l'Enfer pour se précipiter vers les éclats de lumière. Ces derniers gagnèrent en puissance, libérant une déflagration d'énergie Yin.
 
-Le plus terrifiant fut de voir l'âme de Maître Void surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.
+Le plus terrifiant fut de voir l'âme du Maître du Vide surgir de la 18e couche de l'enfer! Les yeux injectés de sang, il poussa un rugissement bestial et chargea l'être sans tête.

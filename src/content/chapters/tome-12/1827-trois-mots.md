@@ -22,7 +22,7 @@ C'était la première fois que Wang Lin voyait un autre véritable corps d'essen
 
 L'identité de ce vieil homme était désormais évidente!
 
-« Ce junior salue l'Illustre Taureau Vert. » Wang Lin resta calme et joignit les mains en signe de respect.
+« Ce cadet salue l'Illustre Taureau Vert. » Wang Lin resta calme et joignit les mains en signe de respect.
 
 Le véritable corps d'essence de l'Illustre Taureau Vert fixa Wang Lin et dit lentement: « Révèle ton propre corps d'essence, laisse ce vieil homme le voir. »
 
@@ -42,7 +42,7 @@ Wang Lin répondit calmement: « C'est bien moi! »
 
 « Ceux qui sortent du monde des grottes... ne sont en effet pas simples... » Le corps d'essence de l'Illustre Taureau Vert laissa échapper un soupir.
 
-Les yeux de Wang Lin s'illuminèrent et il demanda: « Je me demande, quelle essence a formé le véritable corps d'essence de Senior? »
+Les yeux de Wang Lin s'illuminèrent et il demanda: « Je me demande, quelle essence a formé le véritable corps d'essence d'Aîné? »
 
 Le corps d'essence de l'Illustre Taureau Vert sourit. Loin d'être irrité par la question, il répondit avec un sourire: « Le véritable corps d'essence de ce vieil homme est formé de l'essence du froid... C'est le froid, et non l'eau... Comprends-tu? »
 
@@ -58,7 +58,7 @@ L'Illustre Taureau Vert sourit et regarda Wang Lin avec une admiration non dissi
 
 Les yeux de Wang Lin brillèrent, mais il garda le silence.
 
-Le corps d'essence de l'Illustre Taureau Vert reprit: « Sur le Continent Astral Imortel, à moins de fonder sa propre secte, il faut s'allier à une puissance existante pour progresser. Tu peux refuser cette offre, mais tôt ou tard, tu devras faire ce choix! »
+Le corps d'essence de l'Illustre Taureau Vert reprit: « Sur le Continent Astral Immortel, à moins de fonder sa propre secte, il faut s'allier à une puissance existante pour progresser. Tu peux refuser cette offre, mais tôt ou tard, tu devras faire ce choix! »
 
 « Mon Grand Secte de l'Âme est l'une des neuf sectes et treize factions du Continent de l'Est. Deviens un Ancien de ma secte et je te donnerai ton propre sommet ainsi qu'une grotte! Tout ce dont tu as besoin sera fourni par le Grand Secte de l'Âme, et tant que tu remplis les conditions, tu pourras apprendre n'importe quel sort taoïste de notre secte! Qu'en dis-tu? »
 
@@ -82,7 +82,7 @@ Le temps s'écoulait lentement. Peu après, alors qu'il ne restait plus que la m
 
 « Comment saviez-vous que je réapparaîtrais ici après mon départ? »
 
-« Mon Grand Secte de l'Âme possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Astral Imortel, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial de la Capitale Impériale est le premier. »
+« Mon Grand Secte de l'Âme possède un sort taoïste nommé "Le Dao de l'Œil de l'Âme". Ce sort permet de diviner bien des choses... Il existe une multitude de personnes sur le Continent Astral Immortel, et parmi elles, de nombreuses méthodes de divination. Dans mon clan céleste, l'Enseignant Impérial de la Capitale Impériale est le premier. »
 
 « Avec son seul pouvoir, en matière de divination, il pourrait rivaliser avec les trois Enseignants Impériaux des trois Anciens Pays! »
 

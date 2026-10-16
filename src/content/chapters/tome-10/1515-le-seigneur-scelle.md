@@ -8,21 +8,21 @@ slug: le-seigneur-scelle
 ---
 Chapitre 1515 - Le Seigneur Scellé!!
 
-Quant à la Bête du Nether, toute sa fourrure soyeuse était hérissée. Elle fixait les cultivateurs environnants et rugissait comme si elle allait se précipiter à tout instant.
+Quant à la Bête des Limbes, toute sa fourrure soyeuse était hérissée. Elle fixait les cultivateurs environnants et rugissait comme si elle allait se précipiter à tout instant.
 
 Sa vitesse de réaction étant très lente, elle n'avait pas remarqué le départ soudain de Wang Lin. Elle continuait de rugir, affichant une expression féroce, quand elle sembla soudain percevoir un grondement derrière elle.
 
 Elle pressentit faiblement que quelque chose n'allait pas. Pourquoi ces cultivateurs ne la regardaient-ils plus, mais fixaient-ils l'espace derrière elle?
 
-La voix de Wang Lin parvint lentement à ses oreilles. Cela poussa inconsciemment la tête terne de la Bête du Nether à se retourner.
+La voix de Wang Lin parvint lentement à ses oreilles. Cela poussa inconsciemment la tête terne de la Bête des Limbes à se retourner.
 
 C'est ainsi qu'elle tourna lentement le regard vers le vide derrière elle. Elle fixa, hébétée, Wang Lin qui, à une certaine distance, chargeait le Daoïste Water.
 
-Après un instant d'incrédulité, les yeux de la Bête du Nether se rétractèrent brusquement. Son rugissement s'interrompit net pour laisser place à un hurlement encore plus violent. Cependant, ce cri était nettement différent des précédents: c'était un rugissement de terreur!
+Après un instant d'incrédulité, les yeux de la Bête des Limbes se rétractèrent brusquement. Son rugissement s'interrompit net pour laisser place à un hurlement encore plus violent. Cependant, ce cri était nettement différent des précédents: c'était un rugissement de terreur!
 
 Toute sa fourrure hérissée retomba instantanément. La peur envahit son regard, son corps trembla et elle battit en retraite sans délai. Dans ses rugissements effrayés, on pouvait même entendre les battements précipités de son cœur.
 
-Manifestement terrifiée, elle chargea désespérément vers Wang Lin. Ses yeux étaient empreints de crainte et de ressentiment, surtout lorsqu'elle songea qu'elle avait violemment rugi face à ces cultivateurs terrifiants alors que son maître n'était plus là. En y pensant, le cœur de la Bête du Nether trembla de peur.
+Manifestement terrifiée, elle chargea désespérément vers Wang Lin. Ses yeux étaient empreints de crainte et de ressentiment, surtout lorsqu'elle songea qu'elle avait violemment rugi face à ces cultivateurs terrifiants alors que son maître n'était plus là. En y pensant, le cœur de la Bête des Limbes trembla de peur.
 
 Wang Lin rattrapa le Daoïste Water en fuite et apparut à ses côtés en un éclair. Sa main droite se serra en un poing. Il n'y eut aucun fantôme de poing cette fois; son coup frappa directement!
 
@@ -106,9 +106,9 @@ Mu Bingmei, immobilisée par le sort de Stase, trembla. L'essence vitale du Dao�
 
 « Tu ne dois rien à Ping Er, ni à moi. » Wang Lin regarda Mu Bingmei avec une profonde gravité et rompit le sort de Stase.
 
-C'est alors que la Bête du Nether s'approcha, les yeux emplis de peur et de ressentiment. Elle retourna anxieusement aux côtés de Wang Lin, semblant lui reprocher son départ soudain qui l'avait laissée dans une terreur persistante.
+C'est alors que la Bête des Limbes s'approcha, les yeux emplis de peur et de ressentiment. Elle retourna anxieusement aux côtés de Wang Lin, semblant lui reprocher son départ soudain qui l'avait laissée dans une terreur persistante.
 
-Une fois revenue auprès de lui, la Bête du Nether parut retrouver sa superbe. Elle recommença à rugir, sa fourrure se hérissant de nouveau. Elle affichait une stature puissante en fixant les cultivateurs devant elle, prête à charger sur le moindre ordre de Wang Lin.
+Une fois revenue auprès de lui, la Bête des Limbes parut retrouver sa superbe. Elle recommença à rugir, sa fourrure se hérissant de nouveau. Elle affichait une stature puissante en fixant les cultivateurs devant elle, prête à charger sur le moindre ordre de Wang Lin.
 
 Toutefois, malgré ses rugissements, elle gardait une part de son attention focalisée sur Wang Lin. Si celui-ci reculait, elle reculerait sans hésiter. Il était évident que ce qui venait de se passer lui avait servi de leçon, et cette leçon était encore vive dans son esprit.
 

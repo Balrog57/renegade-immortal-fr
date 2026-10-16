@@ -84,23 +84,23 @@ Le visage de Wang Lin était pâle, mais ses yeux demeuraient calmes. Alors que 
 
 « Dao Céleste, dévore le monde! » À cet instant, le monde trembla et une faille gigantesque s'ouvrit devant le Taoïste aux Sept Couleurs. De loin, cette déchirure ressemblait à une gueule béante!
 
-La Bête du Nether apparut, ouvrant soudainement les yeux pour révéler une froideur et une cruauté sans nom. Alors que le Taoïste s'approchait, elle dévora!
+La Bête des Limbes apparut, ouvrant soudainement les yeux pour révéler une froideur et une cruauté sans nom. Alors que le Taoïste s'approchait, elle dévora!
 
-Une fois la gueule de la Bête du Nether ouverte, elle engloutissait toute vie. Quelques disciples de la Secte des Sept Dao parvinrent à s'extirper de la mer de feu, mais dès qu'ils entrevirent la scène, ils furent aspirés dans la gueule de la bête.
+Une fois la gueule de la Bête des Limbes ouverte, elle engloutissait toute vie. Quelques disciples de la Secte des Sept Dao parvinrent à s'extirper de la mer de feu, mais dès qu'ils entrevirent la scène, ils furent aspirés dans la gueule de la bête.
 
 Même une partie de la mer de feu suspendue dans le ciel fut dévorée par la créature.
 
-L'expression des trois généraux changea radicalement; ils renforcèrent leur corps pour résister à l'aspiration. Cependant, la sixième concubine ne put lutter contre la force de succion et fut aspirée dans la gueule de la Bête du Nether en hurlant.
+L'expression des trois généraux changea radicalement; ils renforcèrent leur corps pour résister à l'aspiration. Cependant, la sixième concubine ne put lutter contre la force de succion et fut aspirée dans la gueule de la Bête des Limbes en hurlant.
 
-Le Souverain était totalement déconcerté. Il fixait la Bête du Nether, le visage livide. Lorsqu'il l'avait vue pour la première fois, il avait eu des pressentiments; la scène de son maître se faisant dévorer était un souvenir indélébile. À l'époque, l'expression stupide de la bête l'avait fait hésiter, mais devant ces yeux froids et impitoyables, le Souverain n'hésita pas une seconde à battre en retraite.
+Le Souverain était totalement déconcerté. Il fixait la Bête des Limbes, le visage livide. Lorsqu'il l'avait vue pour la première fois, il avait eu des pressentiments; la scène de son maître se faisant dévorer était un souvenir indélébile. À l'époque, l'expression stupide de la bête l'avait fait hésiter, mais devant ces yeux froids et impitoyables, le Souverain n'hésita pas une seconde à battre en retraite.
 
-Le visage du Taoïste aux Sept Couleurs se décomposa et il s'arrêta net, fixant la Bête du Nether avec un choc immense.
+Le visage du Taoïste aux Sept Couleurs se décomposa et il s'arrêta net, fixant la Bête des Limbes avec un choc immense.
 
 « Le... le Dao Céleste! »
 
-La Bête du Nether n'était pas complète; elle ne pouvait donc pas dévorer des êtres trop puissants. Wang Lin le savait, mais il l'avait utilisée comme cinquième embuscade uniquement pour terrasser le Taoïste aux Sept Couleurs par la surprise!
+La Bête des Limbes n'était pas complète; elle ne pouvait donc pas dévorer des êtres trop puissants. Wang Lin le savait, mais il l'avait utilisée comme cinquième embuscade uniquement pour terrasser le Taoïste aux Sept Couleurs par la surprise!
 
-Après tout, Wang Lin ne pouvait utiliser le sort de Stase sur lui sans subir un contrecoup mortel. Il n'avait eu d'autre choix que de convoquer la Bête du Nether pour simuler un effet similaire!
+Après tout, Wang Lin ne pouvait utiliser le sort de Stase sur lui sans subir un contrecoup mortel. Il n'avait eu d'autre choix que de convoquer la Bête des Limbes pour simuler un effet similaire!
 
 « Sixième embuscade! » Wang Lin esquissa un sourire sinistre, mais ce sourire était fragile, et le sang continuait de couler de sa bouche, lui donnant un air sombre et lugubre.
 

@@ -72,17 +72,17 @@ Li Qianmei fixa longuement son maître. Des larmes coulèrent une dernière fois
 
 Après le départ de Li Qianmei, son maître ferma les yeux. La douleur qui lui serrait le cœur envahit tout son corps.
 
-Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense le Senior Daoïste Water et met la Secte Divine en colère, notre Secte Brise-Ciel n'en pourra pas subir les conséquences! Je dois informer la Secte Divine de cette affaire. Si la Secte Divine se fâche, vous devrez en payer le prix! »
+Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense l'Aîné Daoïste Water et met la Secte Divine en colère, notre Secte Brise-Ciel n'en pourra pas subir les conséquences! Je dois informer la Secte Divine de cette affaire. Si la Secte Divine se fâche, vous devrez en payer le prix! »
 
 Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillard: « Dégage, dégage, dégage!! » Sa culture du Fléau Céleste éclata, forçant l'ancien à cracher sans cesse du sang tandis qu'il était renvoyé comme un cerf-volant brisé. Dans un fracas, son corps s'effondra et son âme originelle s'échappa en terrifiant.
 
-« La Secte Brise-Ciel a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Daoïste Water, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
+« La Secte Brise-Ciel a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère de l'Aîné Daoïste Water, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
 
 Sa voix résonna comme le tonnerre à travers toute la Secte Brise-Ciel. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des millénaires!
 
 Tout comme le brouillard dans la Mer de Nuages, combien de personnes pouvaient réellement percer les brumes?
 
-Tout ce que Li Qianmei avait accompli, qu'il s'agisse de quitter le champ de bataille de la Secte Démoniaque ou de rompre ses liens avec la Secte Heaven Defying, étaient des choses dont Wang Lin ignorait tout. À cet instant, Li Qianmei était comme une femme sans foyer, volant vers la région de rang 5 dans un état second.
+Tout ce que Li Qianmei avait accompli, qu'il s'agisse de quitter le champ de bataille de la Secte Démoniaque ou de rompre ses liens avec la Secte Défiant le Ciel, étaient des choses dont Wang Lin ignorait tout. À cet instant, Li Qianmei était comme une femme sans foyer, volant vers la région de rang 5 dans un état second.
 
 Elle était déjà une femme solitaire, orpheline depuis l'enfance. À cause de ses cheveux bleus, elle n'avait pas connu d'enfance heureuse. C'était grâce à sa force et sa sérénité qu'elle en était arrivée là... Cependant, maintenant qu'elle avait perdu son foyer, c'était comme tomber dans l'abîme. La solitude de son enfance la submergea, la rendant plus morne et fragile. C'était comme si elle allait être emportée par le vent vers un lieu où personne ne pourrait la trouver... Là où elle attendrait silencieusement sa mort.
 

@@ -54,7 +54,7 @@ Ces trois puissances avaient pénétré le brouillard noir, et les collisions as
 
 Le Maître Vide observait le brouillard noir avec un air grave, tout comme l'homme en noir à ses côtés. Le vieil homme sur la gourde hésita également et s'arrêta à la lisière de la brume. Quant à Ling Tianhou, il contemplait le chaos d'un visage sombre.
 
-Wang Lin recula immédiatement sans la moindre hésitation. Bien qu'il ignorât tout des détails de l'affrontement, l'homme en armure qui sortait du palais était le même qui avait interféré avec son Guide Nether lorsqu'il se trouvait dans le monde de la bouteille et lui avait remis le cristal jaune.
+Wang Lin recula immédiatement sans la moindre hésitation. Bien qu'il ignorât tout des détails de l'affrontement, l'homme en armure qui sortait du palais était le même qui avait interféré avec son Guide Limbes lorsqu'il se trouvait dans le monde de la bouteille et lui avait remis le cristal jaune.
 
 Lorsque Wang Wei avait crié « Maître! », cela confirmait les soupçons de Wang Lin. Cet homme était l'être le plus puissant du Royaume Céleste: l'Empereur Céleste Qing Lin!
 

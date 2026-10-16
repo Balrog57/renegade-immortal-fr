@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1372 - Blazing Fire Mutation Crystal (1)
 slug: cristal-de-mutation-du-feu-devorant-1
 ---
-Zhong Big Red fixa férocement l'homme d'âge moyen et hocha la tête. Il pressa sa main contre sa poitrine en grinçant des dents: « C'est vrai, c'était bel et bien lui! »
+Zhong Grand Rouge fixa férocement l'homme d'âge moyen et hocha la tête. Il pressa sa main contre sa poitrine en grinçant des dents: « C'est vrai, c'était bel et bien lui! »
 
 Le visage de l'homme d'âge moyen pâlit instantanément et il n'hésita pas à battre en retraite. Ses mains formèrent un sceau et le scorpion situé entre ses sourcils se mit à s'agiter comme s'il était vivant, émettant une lueur démoniaque.
 
@@ -24,13 +24,13 @@ D'un simple geste de la main, Wang Lin avait provoqué l'accumulation des nuages
 
 Le vieil homme nommé Zhang était livide, en ayant presque cessé de respirer. Il restait hébété, le visage marqué par une horreur inimaginable.
 
-Même Zhong Big Red fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan Scatter Thunder, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
+Même Zhong Grand Rouge fut secoué. Bien qu'il eût déjà vu la puissance de Wang Lin au sein du Clan Tonnerre Dispersé, le revoir ici lui faisait ressentir une fois de plus l'infinie majesté de ce dernier.
 
 L'expression de Wang Lin n'avait pas changé, malgré le fait qu'il soit traqué et caché dans les Terres Déchues. Si cela avait été n'importe qui d'autre, il aurait cherché à rester discret et à éviter toute confrontation inutile.
 
 Cependant, la culture de Wang Lin était capable de faire trembler les cieux, et il avait traversé trop de périls dans sa vie. Il avait marché trop souvent sur le fil du rasoir entre la vie et la mort. Qu'importait s'il était découvert par ses poursuivants? Même si cela attirait des ennemis puissants, il ne resterait pas sans réagir face à la blessure de son serviteur!
 
-Comme il l'avait affirmé plus tôt, même si Zhong Big Red pouvait endurer l'affront, lui ne le pouvait pas!
+Comme il l'avait affirmé plus tôt, même si Zhong Grand Rouge pouvait endurer l'affront, lui ne le pouvait pas!
 
 Il y avait peu de gens dans ce monde capables de le forcer à l'endurance. Wang Lin n'était plus cet être faible du passé; il était désormais une puissance, et possédait le cœur d'une puissance!
 
@@ -40,7 +40,7 @@ L'affaire ne se réglerait pas par la simple mort de cet homme d'âge moyen. Pui
 
 Le sommet de la tour trembla et des fissures se propagèrent à partir de son impact. Rapidement, tout l'étage fut parcouru de lézardes.
 
-Le dernier étage s'effondra dans un fracas retentissant. Zhong Big Red soutint le vieil homme nommé Zhang tandis qu'ils contemplaient, stupéfaits, le chaos qui se déroulait en dessous.
+Le dernier étage s'effondra dans un fracas retentissant. Zhong Grand Rouge soutint le vieil homme nommé Zhang tandis qu'ils contemplaient, stupéfaits, le chaos qui se déroulait en dessous.
 
 Ils virent Wang Lin descendre vers le deuxième étage alors que le plancher volait en éclats. Au moment de sa descente, une aura féroce empreinte d'une intention meurtrière surgit. Un rugissement retentit et une lueur fantomatique jaillit pour frapper Wang Lin.
 

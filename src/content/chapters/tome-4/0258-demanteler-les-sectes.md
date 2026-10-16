@@ -10,7 +10,7 @@ Wang Lin esquissa un léger sourire et dit: « Aîné, nous ne nous sommes pas v
 
 L'expression étrange sur le visage du vieil homme devint encore plus singulière. Il fixa Wang Lin longuement avant de laisser échapper un soupir. Une pointe d'admiration brilla dans ses yeux lorsqu'il déclara: « Tu es devenu un mortel... tu es vraiment devenu un mortel! »
 
-Wang Lin prit la cruche sur le poêle, versa une coupe, la but et répondit: « Ce junior ne fait que lutter au sein du monde mortel. Comment pourrais-je être aussi détendu que l'Aîné, qui se plaît à jouer dans ce monde? »
+Wang Lin prit la cruche sur le poêle, versa une coupe, la but et répondit: « Ce cadet ne fait que lutter au sein du monde mortel. Comment pourrais-je être aussi détendu que l'Aîné, qui se plaît à jouer dans ce monde? »
 
 Le vieil homme prit une profonde inspiration. Il saisit la cruche de vin, versa une coupe et dit: « J'ai vu beaucoup de cultivateurs au stade de la Formation de l'Âme, mais tu es le premier capable de se fondre parmi les mortels en seulement six ans. »
 
@@ -22,7 +22,7 @@ Wang Lin tourna la tête, prit une gorgée et demanda: « Qu'est-ce qu'un domain
 
 Le vieil homme s'apprêtait à répondre quand ses yeux s'égarèrent soudainement. Il dit: « Regarde, je suis déjà vieux. Quand j'ai faim, je ne me souviens de plus rien. »
 
-Wang Lin regarda le vieil homme avec sérieux et sourit: « Aîné, prenez tout votre temps pour profiter du spectacle. Ce junior s'en va. » Sur ce, il se leva et quitta l'auberge.
+Wang Lin regarda le vieil homme avec sérieux et sourit: « Aîné, prenez tout votre temps pour profiter du spectacle. Ce cadet s'en va. » Sur ce, il se leva et quitta l'auberge.
 
 Le vieil homme fut surpris. Soudain, ses yeux s'illuminèrent et il marmonna: « Intéressant. »
 
@@ -114,6 +114,6 @@ Wang Lin répondit calmement: « Jamais. »
 
 « Après avoir vu ma puissance, tu ne lâches même pas un mot? » Les yeux du vieil homme s'écarquillèrent. C'était comme s'il avait déployé toute sa force pour offrir un banquet royal et que l'enfant n'avait montré aucune réaction.
 
-Wang Lin regarda le vieil homme avec une expression étrange et dit: « Le niveau de culture de l'Aîné est une chose que ce junior n'a jamais vue auparavant. Je vous admire! »
+Wang Lin regarda le vieil homme avec une expression étrange et dit: « Le niveau de culture de l'Aîné est une chose que ce cadet n'a jamais vue auparavant. Je vous admire! »
 
 Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation de 500 000 kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte Ciel Nuageux. Allons-y, ce vieux peut t'emmener démanteler cette secte! »

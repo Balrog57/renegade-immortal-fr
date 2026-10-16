@@ -78,11 +78,11 @@ Il aurait voulu tuer Wang Lin et le transformer en momie.
 
 Sun Tai poursuivit lentement: « Tu n'as pas à me répondre immédiatement, et ce vieil homme ne te laissera pas lever le sceau gratuitement. Je t'offrirai deux marionnettes de fin de stade de Formation de l'Âme. Avec elles, ta sécurité future sera assurée. Je peux aussi t'offrir des méthodes de culture; dis-moi simplement quel genre tu souhaites et je trouverai un moyen de te les procurer. De plus, je possède des pilules et des remèdes célestes. Tant que tu acceptes, nous trouverons un terrain d'entente. »
 
-Wang Lin regarda Sun Tai et répondit calmement: « Avec votre niveau de culture, Senior n'accepterait bien sûr pas de devenir l'esclave de quiconque. Je le comprends. Cependant, sans parler du fait que j'ignore comment lever ce sceau, même si je le pouvais, je ne le ferais pas immédiatement. »
+Wang Lin regarda Sun Tai et répondit calmement: « Avec votre niveau de culture, Aîné n'accepterait bien sûr pas de devenir l'esclave de quiconque. Je le comprends. Cependant, sans parler du fait que j'ignore comment lever ce sceau, même si je le pouvais, je ne le ferais pas immédiatement. »
 
 Sun Tai fronça les sourcils et dit froidement: « Petit garnement, penses-tu vraiment être mon maître? »
 
-Wang Lin secoua calmement la tête: « C'est la volonté de Senior Zhou Yi, pas la mienne. De plus, pensez-vous que je sois un enfant? Je crains que la première chose que vous fassiez après que j'aurai levé le sceau ne soit de me tuer. »
+Wang Lin secoua calmement la tête: « C'est la volonté d'Aîné Zhou Yi, pas la mienne. De plus, pensez-vous que je sois un enfant? Je crains que la première chose que vous fassiez après que j'aurai levé le sceau ne soit de me tuer. »
 
 Le visage de Sun Tai devint sombre alors qu'il fixait Wang Lin. Après un moment, il laissa échapper un rire, mais un rire empreint d'une intention malveillante.
 
@@ -90,11 +90,11 @@ Le visage de Sun Tai devint sombre alors qu'il fixait Wang Lin. Après un moment
 
 Wang Lin secoua la tête en souriant: « Je ne connais pas la technique pour lever le sceau, alors comment pourrais-je le faire? »
 
-Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis l'Ancien principal de la Secte des Cadavres de Suzaku, un cultivateur de la Transformation de l'Âme. Je refuse de m'incliner devant quiconque, surtout devant un junior comme toi que je pourrais écraser d'un doigt! »
+Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis l'Ancien principal de la Secte des Cadavres de Suzaku, un cultivateur de la Transformation de l'Âme. Je refuse de m'incliner devant quiconque, surtout devant un cadet comme toi que je pourrais écraser d'un doigt! »
 
 « De plus, ne crois pas pouvoir me tuer par un simple ordre. Je peux te dire que je n'ai pas seulement trois âmes, mais une quatrième également. Cette quatrième âme se trouve dans le corps à l'intérieur du cercueil. Tu peux briser l'âme de ce corps, mais au moment où cela arrivera, ma quatrième âme te tuera. »
 
-Wang Lin sourit, ayant compris quelque chose: « Si Senior dit tout cela, c'est qu'il y a un autre sens derrière vos paroles, au-delà de me demander de lever le sceau. Senior sait déjà que ce sceau n'est pas de mon ressort. »
+Wang Lin sourit, ayant compris quelque chose: « Si Aîné dit tout cela, c'est qu'il y a un autre sens derrière vos paroles, au-delà de me demander de lever le sceau. Aîné sait déjà que ce sceau n'est pas de mon ressort. »
 
 Sun Tai fixa Wang Lin. Après l'avoir observé attentivement un long moment, il dit: « Bien, rien n'étonne que tu sois celui que Zhou Yi a choisi. Tu es plus intelligent que la plupart. Je chercherai naturellement moi-même une méthode pour briser le sceau, mais avant cela, tu devras m'accompagner. Je vais t'enfermer quelque part; ce n'est qu'ainsi que je pourrai me détendre. Cependant, ne t'inquiète pas. Je jure qu'une fois le sceau levé, je te compenserai. »
 
@@ -112,7 +112,7 @@ Sun Tai poussa un gémissement de douleur et recula précipitamment.
 
 Les yeux de Wang Lin brillèrent. Zhou Yi avait dit que cette pagode pouvait contrer Sun Tai, mais il n'avait rien mentionné de la quatrième âme. Il ne devait surtout pas laisser Sun Tai le découvrir.
 
-Fort de cette pensée, il saisit la pagode et s'élança soudainement vers l'avant. Ses yeux brillaient d'une lueur étrange lorsqu'il ricana: « Sun Tai, le domaine de cette pagode ne sert normalement qu'à repousser les gens sans effet nocif. Pourtant, il est dévastateur pour vous. C'est une chose que Senior Zhou Yi a secrètement préparée pour vous contrer. »
+Fort de cette pensée, il saisit la pagode et s'élança soudainement vers l'avant. Ses yeux brillaient d'une lueur étrange lorsqu'il ricana: « Sun Tai, le domaine de cette pagode ne sert normalement qu'à repousser les gens sans effet nocif. Pourtant, il est dévastateur pour vous. C'est une chose qu'Aîné Zhou Yi a secrètement préparée pour vous contrer. »
 
 Le visage de Sun Tai s'assombrit. Cette lumière émanant de la pagode lui était extrêmement préjudiciable. Il comprit que cela était dû au sceau logé en lui.
 
@@ -122,9 +122,9 @@ Wang Lin avançait sans relâche et cria froidement: « S'il s'agissait d'une au
 
 Le visage de Sun Tai était livide. Sa voix, rauque, tonna: « Si tu ne me crois pas, essaie donc! »
 
-Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture de Senior Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une âme brisée, Senior Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir! »
+Wang Lin rit en fixant Sun Tai. Il fit un pas en avant et s'exclama: « Sun Tai, penses-tu vraiment que je n'oserais pas tenter le coup? Avec la culture d'Aîné Zhou Yi, crois-tu vraiment qu'il aurait laissé derrière lui une catastrophe aussi instable que vous? Une seule pensée suffirait à vous faire mourir! Même si vous possédez une âme brisée, Aîné Zhou Yi l'avait déjà prévu! Voyant que votre niveau de culture n'est pas facile à atteindre, je ne voulais pas vous tuer, mais puisque vous choisissez la rébellion, alors vous devez mourir! »
 
-Les yeux de Sun Tai s'illuminèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel junior?
+Les yeux de Sun Tai s'illuminèrent. Bien qu'il ne le montrât pas, il commença à douter de lui-même. C'était vrai; compte tenu du niveau de culture de Zhou Yi, comment aurait-il pu laisser des failles à un tel cadet?
 
 Se pourrait-il que Zhou Yi ait, d'une manière ou d'une autre, anticipé toutes ses manigances?
 

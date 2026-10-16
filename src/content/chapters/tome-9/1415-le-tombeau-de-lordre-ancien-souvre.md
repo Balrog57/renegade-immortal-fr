@@ -40,7 +40,7 @@ Le regard de Wang Lin balaya l'assemblée et il prit une profonde inspiration. I
 
 Lorsque le regard de Wang Lin se posa sur le Grand Maître Yun Luo, celle-ci baissa immédiatement la tête et recula lentement. Pourtant, Wang Lin vit que ses émotions étaient bien plus intenses que celles des autres.
 
-Wang Lin détourna les yeux et joignit les mains devant le vieil Oiseau Vermillon: « Ce junior a eu de la chance et s'est déjà éveillé! »
+Wang Lin détourna les yeux et joignit les mains devant le vieil Oiseau Vermillon: « Ce cadet a eu de la chance et s'est déjà éveillé! »
 
 Le vieil Oiseau Vermillon sourit de plus belle, puis d'un geste de la main, il projeta le dragon au loin. « Tu es libre, petit dragon! » rit-il.
 

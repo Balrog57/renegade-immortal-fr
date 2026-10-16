@@ -56,7 +56,7 @@ Cela fit s'effondrer tout son calme.
 
 Alors que l'apparition de Wang Lin exaltait les cultivateurs du Royaume Intérieur, l'expression du Maître Céleste Dieu du Vide devint extrêmement sombre. Une intention meurtrière jaillit de ses yeux et il fit un pas vers Wang Lin, sous la Porte du Vide.
 
-« Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune junior qui n'a pas encore atteint le troisième échelon survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour le Maître Céleste Dieu du Vide, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
+« Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune cadet qui n'a pas encore atteint le troisième échelon survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour le Maître Céleste Dieu du Vide, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
 
 Cependant, en tant que l'un des Cinq Maîtres, il ne pouvait pas simplement fuir sans combattre. Tandis qu'il parlait, il accéléra et se rapprocha instantanément de Wang Lin.
 

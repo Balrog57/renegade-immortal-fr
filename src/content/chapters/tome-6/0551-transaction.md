@@ -32,17 +32,17 @@ Dans le camp militaire, de nombreux soldats démons s'entraînaient aux formatio
 
 Elle se déplaça avec une rapidité extrême et vola directement vers la pagode où se trouvait Wang Lin.
 
-À l'extérieur de la pagode, Thirteen ouvrit soudainement les yeux et se leva. Il regarda froidement Yao Xixue qui fonçait dans sa direction.
+À l'extérieur de la pagode, Treize ouvrit soudainement les yeux et se leva. Il regarda froidement Yao Xixue qui fonçait dans sa direction.
 
-Thirteen cria: « Intruse, arrête-toi! »
+Treize cria: « Intruse, arrête-toi! »
 
 L'expression de Yao Xixue était aussi froide que la glace. Elle laissa échapper un ricanement glacial et, loin de ralentir, elle vola encore plus vite vers la pagode.
 
 À ce moment-là, les chefs de peloton à l'extérieur n'hésitèrent pas une seconde et chargèrent vers la pagode. Derrière eux, les soldats démons libérèrent leur énergie spirituelle démoniaque et les suivirent rapidement.
 
-Voyant Yao Xixue approcher, Thirteen poussa un rugissement, fit un pas en avant et lança un coup de poing.
+Voyant Yao Xixue approcher, Treize poussa un rugissement, fit un pas en avant et lança un coup de poing.
 
-Yao Xixue ne daigna même pas regarder Thirteen lorsqu'elle pointa l'air du doigt. Un rayon de lumière couleur sang jaillit et entoura Thirteen, lui donnant l'apparence d'une cape ensanglantée. Le corps entier de Thirteen se figea sur place comme une statue.
+Yao Xixue ne daigna même pas regarder Treize lorsqu'elle pointa l'air du doigt. Un rayon de lumière couleur sang jaillit et entoura Treize, lui donnant l'apparence d'une cape ensanglantée. Le corps entier de Treize se figea sur place comme une statue.
 
 Juste au moment où Yao Xixue s'apprêtait à pénétrer dans la pagode, les 9 000 soldats démons accoururent. L'un des chefs de régiment cria rapidement: « Commandante Yao, arrêtez-vous! »
 
@@ -52,7 +52,7 @@ Le visage de Yao Xixue était empreint d'une intention meurtrière; elle agita s
 
 Au moment où elle pénétra dans l'édifice, une douce brise souffla. Lorsque cette brise la toucha, son expression changea instantanément. Son corps entier émit soudainement une lumière couleur sang qui ne disparut que lorsque la brise eut cessé de passer.
 
-Le corps de Thirteen fut également touché par la brise; il trembla immédiatement et retrouva la capacité de bouger. Après avoir entendu les paroles de Wang Lin, il ne regarda même pas Yao Xixue avant de se rasseoir silencieusement.
+Le corps de Treize fut également touché par la brise; il trembla immédiatement et retrouva la capacité de bouger. Après avoir entendu les paroles de Wang Lin, il ne regarda même pas Yao Xixue avant de se rasseoir silencieusement.
 
 « Le camarade cultivateur Yao a vraiment un mauvais caractère », la voix de Wang Lin s'éleva lentement de la pagode. Il n'y avait aucune trace de joie ou de colère dans ses paroles.
 

@@ -40,7 +40,7 @@ Tandis que tous les cultivateurs de la Secte Gui Yi s'inclinaient, la silhouette
 
 D'un mouvement de la main droite, la lumière dorée brilla de plus belle. Un édit impérial, fait d'une matière inconnue, fut déployé par cet être.
 
-« Le lignage céleste perdure depuis l'Antiquité jusqu'à ce jour. Les cultivateurs du Continent du Taureau Céleste et du Continent du Démon Vert doivent cesser immédiatement cette guerre! Yun Yifeng, Tang Jia, Edge Cloud, Zhou Hai, Zhao Dongqing... Ces huit personnes devront se rendre au palais et entrer dans le temple ancestral pour subir l'épreuve!! »
+« Le lignage céleste perdure depuis l'Antiquité jusqu'à ce jour. Les cultivateurs du Continent du Taureau Céleste et du Continent du Démon Vert doivent cesser immédiatement cette guerre! Yun Yifeng, Tang Jia, Bord-des-Nuages, Zhou Hai, Zhao Dongqing... Ces huit personnes devront se rendre au palais et entrer dans le temple ancestral pour subir l'épreuve!! »
 
 La voix de la silhouette dorée était lente, mais chaque mot résonnait comme un coup de tonnerre. Les huit cultivateurs ainsi nommés furent envahis par l'excitation.
 
@@ -48,7 +48,7 @@ Ces huit noms appartenaient aux seize individus les plus remarquables de cette g
 
 Alors que ces paroles résonnaient, le Maître de la Secte Gui Yi laissa échapper un profond soupir et esquissa un sourire. Cette guerre semblait complexe, mais elle était en réalité très simple: la bataille entre les deux continents servait à mettre en avant la nouvelle génération afin d'attirer l'attention de l'Empereur Céleste et de pouvoir entrer dans le temple ancestral!
 
-Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exalts du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
+Le Maître de la Secte Gui Yi n'était pas le seul à sourire. Les Exaltés du Vide du Continent du Démon Vert souriaient également. Ils joignirent les mains et s'inclinèrent une fois de plus lorsque l'édit fut achevé.
 
 « Nous obéissons tous à la volonté de l'Empereur! »
 
@@ -56,11 +56,11 @@ La silhouette dorée agita sa main droite et l'édit doré s'envola. Il flotta d
 
 Après cela, la silhouette dorée ne prononça plus un mot et disparut du ciel. La clarté dorée s'estompa lentement pour laisser place à la normale.
 
-Presque au même instant, à l'extérieur du Grande Secte de l'Âme, le combat entre les deux camps atteignait son paroxysme. Void Cloud et les génies du Grande Secte de l'Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
+Presque au même instant, à l'extérieur du Grande Secte de l'Âme, le combat entre les deux camps atteignait son paroxysme. Nuage du Vide et les génies du Grande Secte de l'Âme étaient en plein affrontement lorsque la seconde silhouette dorée apparut.
 
 La scène se répéta à l'identique au-dessus du Grande Secte de l'Âme.
 
-Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message quasi identique, seuls les huit noms changeaient pour inclure Void Cloud et ses compagnons!
+Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message quasi identique, seuls les huit noms changeaient pour inclure Nuage du Vide et ses compagnons!
 
 Une fois la silhouette dorée partie, un silence absolu tomba sur le Grande Secte de l'Âme, à l'intérieur comme à l'extérieur.
 
@@ -118,6 +118,6 @@ Au même instant, une lumière jaune terre émana de l'îlot, formant une barri�
 
 Soudain, le dragon marin entra en mouvement. Il ouvrit la gueule et chargea Wang Lin pour le dévorer. Toutes les épines sur son dos se redressèrent, dégageant un froid glacial.
 
-La puissance de ce dragon marin n'était pas inférieure à celle d'un Exalt Doré au sommet de sa puissance!
+La puissance de ce dragon marin n'était pas inférieure à celle d'un Exalté Doré au sommet de sa puissance!
 
-Il avait suivi l'Exalt Empyréen pendant une très longue période et, lors de son départ, celui-ci l'avait laissé ici, à la Secte Dao Démoniaque. Il était certain qu'avec ce dragon et la force du secteur, la secte serait protégée pour d'innombrables années!
+Il avait suivi l'Exalté Empyréen pendant une très longue période et, lors de son départ, celui-ci l'avait laissé ici, à la Secte Dao Démoniaque. Il était certain qu'avec ce dragon et la force du secteur, la secte serait protégée pour d'innombrables années!

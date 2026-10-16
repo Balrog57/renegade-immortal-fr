@@ -18,15 +18,15 @@ Utilisant ses yeux, imprégnés de son essence de restriction, il scruta le ciel
 
 Le ciel sombre était recouvert de fines couches de brouillard. Ce brouillard était invisible à l'œil nu; même le sens divin ne pouvait le percevoir clairement. Seule l'utilisation de son essence de restriction lui permettait d'en distinguer la réalité.
 
-« Une couche... Trois couches... Sept couches... » Le brouillard céleste était ténu, mais il composait un total de sept couches. Ces strates enveloppaient toute la Mer des Pillules, tel un bol renversé recouvrant l'immensité marine.
+« Une couche... Trois couches... Sept couches... » Le brouillard céleste était ténu, mais il composait un total de sept couches. Ces strates enveloppaient toute la Mer des Pilules, tel un bol renversé recouvrant l'immensité marine.
 
 Au-dessus de la septième couche se trouvait une boussole. C'était une illusion qui tournait lentement, dégageant une pression qui fusionnait avec les sept couches de brouillard.
 
-« Cette boussole est une illusion, elle n'est pas réelle... » Wang Lin leva les yeux et aperçut faiblement qu'un fil d'aura reliait la boussole située au-dessus des sept couches à l'autre extrémité de la Mer des Pillules.
+« Cette boussole est une illusion, elle n'est pas réelle... » Wang Lin leva les yeux et aperçut faiblement qu'un fil d'aura reliait la boussole située au-dessus des sept couches à l'autre extrémité de la Mer des Pilules.
 
-« Le centre de cette formation doit s'être solidifié et se trouve là-bas... » Wang Lin réfléchit en contemplant la Mer des Pillules, une idée germant dans son esprit.
+« Le centre de cette formation doit s'être solidifié et se trouve là-bas... » Wang Lin réfléchit en contemplant la Mer des Pilules, une idée germant dans son esprit.
 
-S'il voulait que son essence de restriction forme un corps véritable d'essence, il lui faudrait absorber une quantité massive de restrictions. Il n'avait jamais vu la restriction qui recouvrait la Mer des Pillules, et l'envie de l'absorber le tentait.
+S'il voulait que son essence de restriction forme un corps véritable d'essence, il lui faudrait absorber une quantité massive de restrictions. Il n'avait jamais vu la restriction qui recouvrait la Mer des Pilules, et l'envie de l'absorber le tentait.
 
 Cependant, il réprima rapidement cette pulsion. D'un revers de la main droite, il fit apparaître deux yeux géants derrière lui. Ces yeux, parcourus de veines sanguines, semblaient dissiper un peu l'obscurité.
 
@@ -64,7 +64,7 @@ Après une autre demi-minute et après avoir percé les trois premières couches
 
 Les fines lignes restantes formèrent également un cercle dans la cinquième couche. Désormais, un passage circulaire à travers le brouillard était ouvert dans les cinq premières couches.
 
-Mais à cet instant précis, la Mer des Pillules gronda. Le son fut assourdissant, et la mer sembla se fendre en deux par une ligne progressant rapidement au milieu.
+Mais à cet instant précis, la Mer des Pilules gronda. Le son fut assourdissant, et la mer sembla se fendre en deux par une ligne progressant rapidement au milieu.
 
 Ce fut d'une soudaineté telle que l'expression du Tigre Blanc et de ses compagnons changea radicalement. À cet instant, les pupilles de Wang Lin se rétractèrent et il n'hésita pas à se lever. Les yeux géants derrière lui disparurent et il agita ses manches. Il emporta le Tigre Blanc et ses compagnons pour charger vers le ciel.
 

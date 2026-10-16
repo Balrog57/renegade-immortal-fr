@@ -32,11 +32,11 @@ Ce trésor était un anneau doré. Dès son apparition, la clarté de la faille 
 
 À l'extérieur, Situ Nan et ses compagnons ressentirent cette pression et leurs cœurs tremblèrent. Ils eurent l'impression de faire face à la puissance infinie du firmament.
 
-L'expression de Maître South Cloud changea et il recula instinctivement de plus de mille pieds. Si lui réagissait ainsi, il n'y avait pas question des autres. Les milliers de cultivateurs présents, y compris Situ Nan, battirent en retraite précipitamment.
+L'expression de Maître Nuage du Sud changea et il recula instinctivement de plus de mille pieds. Si lui réagissait ainsi, il n'y avait pas question des autres. Les milliers de cultivateurs présents, y compris Situ Nan, battirent en retraite précipitamment.
 
 Certains furent trop lents et furent frappés par la pression. Ils crachèrent de larges bouffées de sang, le visage blême, l'esprit percuté par un choc violent.
 
-« Ceci... Quel genre de trésor est-ce là?! » Les yeux de Maître South Cloud étaient empreints d'incrédulité. Avec son niveau de culture, il pouvait déceler que cette pression ne provenait pas d'un cultivateur, mais d'un trésor.
+« Ceci... Quel genre de trésor est-ce là?! » Les yeux de Maître Nuage du Sud étaient empreints d'incrédulité. Avec son niveau de culture, il pouvait déceler que cette pression ne provenait pas d'un cultivateur, mais d'un trésor.
 
 La seule personne à l'extérieur des nuages qui n'était pas écrasée par la pression était le Vieux Fantôme Zhan, de l'autre côté. Ses cheveux ondulaient sans vent et ses yeux brillaient d'une lueur étrange alors qu'il fixait les nuages. Pour la première fois, son regard quitta Wang Lin pour se porter sur l'anneau doré.
 

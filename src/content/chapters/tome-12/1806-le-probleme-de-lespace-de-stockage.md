@@ -52,7 +52,7 @@ Wang Lin traversait rapidement le ciel du Continent Astral Immortel. Son Sens Di
 
 « La Déformation Spatiale a également perdu son effet sur le Continent Astral Immortel... » Wang Lin fronça les sourcils et tenta l'opération à plusieurs reprises, mais il ne parvint pas à fusionner avec le monde.
 
-« Cela ne doit pas m'être propre. Même si l'Ancêtre de la Secte du Dragon Bleu est au stade initial de la Tribulation du Vide, tout comme Seven-Colored et le Vieux Fantôme Zhan, il n'a pas pu revenir à temps. Il est clair qu'il ne peut pas utiliser la Déformation Spatiale! »
+« Cela ne doit pas m'être propre. Même si l'Ancêtre de la Secte du Dragon Bleu est au stade initial de la Tribulation du Vide, tout comme Sept-Couleurs et le Vieux Fantôme Zhan, il n'a pas pu revenir à temps. Il est clair qu'il ne peut pas utiliser la Déformation Spatiale! »
 
 Tout en réfléchissant, Wang Lin progressait à une vitesse fulgurante dans les cieux. Il comprenait vaguement que bien que ce monde et le monde des grottes se ressemblent, ils étaient fondamentalement différents.
 
@@ -64,9 +64,9 @@ Il pouvait fusionner avec le monde des grottes, mais pas avec celui du Continent
 
 Il venait d'arriver, tout lui était étranger. Heureusement, il avait fouillé les souvenirs de Kang Ren. Bien qu'il ne sache pas encore tout, il en savait beaucoup sur le Continent du Taureau Céleste.
 
-« Voici le Continent du Taureau Céleste, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Great Soul sont les deux puissances dominantes du Continent du Taureau Céleste. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
+« Voici le Continent du Taureau Céleste, dans le Continent de l'Est, sous la domination des Célestes... Les sectes Gui Yi et Grande Âme sont les deux puissances dominantes du Continent du Taureau Céleste. Elles font partie des neuf sectes et treize factions... » Wang Lin éprouva un sentiment complexe. Il ne connaissait pas ces deux sectes par hasard.
 
-« La Secte Great Soul, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
+« La Secte Grande Âme, la secte de Fan Shanmeng et Fan Shanlu! Celle qui manie les illusions terrifiantes... Il y a aussi Yun Yifeng dans les souvenirs de Kang Ren. Il est devenu le génie de la Secte Gui Yi...
 
 « Hélas, je suis arrivé trop tard... Le Maître a probablement pensé que j'étais mort et n'a pas attendu... » Wang Lin soupira. Cependant, ce qui l'émut particulièrement était que le Continent du Taureau Céleste abritait la Secte des Sept Dao.
 

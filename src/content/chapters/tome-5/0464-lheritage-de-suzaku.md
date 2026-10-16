@@ -32,7 +32,7 @@ L'homme pénétra rapidement dans la pagode.
 
 « Arrêtez! » Une voix s'éleva de l'intérieur de la structure. Cette voix, également empreinte de majesté, aurait fait trembler le cœur de n'importe qui.
 
-Mais l'expression de l'homme d'âge moyen resta imperturbable. Il s'inclina et dit: « Ce junior est Ye Wuyou, du pays de Suzaku, ayant tout juste atteint le rang 6. Je suis ici sur ordre de l'Alliance de Culture pour obtenir le Sceau de Suzaku. »
+Mais l'expression de l'homme d'âge moyen resta imperturbable. Il s'inclina et dit: « Ce cadet est Ye Wuyou, du pays de Suzaku, ayant tout juste atteint le rang 6. Je suis ici sur ordre de l'Alliance de Culture pour obtenir le Sceau de Suzaku. »
 
 Le corps de Wang Lin trembla. Tout son esprit fut aspiré par un vortex dans ce souvenir. Pourtant, dans le monde réel, non seulement ses pas ne s'arrêtèrent pas, mais un phénomène encore plus étrange se produisit.
 

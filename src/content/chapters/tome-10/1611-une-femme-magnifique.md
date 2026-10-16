@@ -126,7 +126,7 @@ Les feuilles jaunes volaient dans le ciel en cet automne. Elles roulaient lentem
 
 Wang Lin se pencha et lutta pour saisir la feuille avec sa main tachée par l'âge.
 
-« La feuille tombée retourne à ses racines... Wan Er, je dois partir... Accompagne-moi pour un dernier voyage. Conduis-moi jusqu'à Zhao, et avec Big Fortune, nous irons dans la ville de Su pour accomplir la dernière chose de ce rêve. Ma toute dernière rencontre avec moi-même. »
+« La feuille tombée retourne à ses racines... Wan Er, je dois partir... Accompagne-moi pour un dernier voyage. Conduis-moi jusqu'à Zhao, et avec Grande Fortune, nous irons dans la ville de Su pour accomplir la dernière chose de ce rêve. Ma toute dernière rencontre avec moi-même. »
 
 « À l'époque, il n'était pas venu. Cette fois, il viendra certainement. »
 

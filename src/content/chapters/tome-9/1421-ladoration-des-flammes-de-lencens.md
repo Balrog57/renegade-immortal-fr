@@ -122,4 +122,4 @@ Soudain, Wang Lin aperçut une minuscule silhouette assise au cœur de cette fla
 
 Cependant, juste au moment où il faisait un pas, la voix de Wang Lin résonna à travers le monde:
 
-« Ancêtre, le Junior peut s'en charger! »
+« Ancêtre, le cadet peut s'en charger! »

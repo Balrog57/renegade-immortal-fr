@@ -58,7 +58,7 @@ Le corps de Li Yuan trembla et il cracha une nouvelle bouchée de sang. Il étai
 
 Li Yuan esquissa un sourire misérable. À ce moment, le vieil homme s'avança et lui décocha un coup de pied sans même le regarder. Un craquement sinistre retentit alors que Li Yuan recrachait du sang avant de s'effondrer au sol, le regard éteint. Ce coup avait dispersé toute l'énergie spirituelle céleste restante dans son corps, le laissant incapable de riposter.
 
-« Jeune Maître, cet homme n'est plus dangereux. Vous pouvez attaquer maintenant. » Le vieil homme recula, l'expression froide. En tant que cultivateur de l'Yin Illusoire, il ne ressentait aucune honte à attaquer un junior Ascendant.
+« Jeune Maître, cet homme n'est plus dangereux. Vous pouvez attaquer maintenant. » Le vieil homme recula, l'expression froide. En tant que cultivateur de l'Yin Illusoire, il ne ressentait aucune honte à attaquer un cadet Ascendant.
 
 Le jeune homme avait tout juste réussi à saisir les trois épées grâce à la perte de connexion de Li Yuan avec celles-ci. Il les récupéra et les tendit directement à la femme à ses côtés.
 

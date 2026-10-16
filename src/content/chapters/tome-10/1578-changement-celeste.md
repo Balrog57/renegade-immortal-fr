@@ -50,7 +50,7 @@ Il aperçut d'innombrables bêtes dont les restes étaient extrêmement féroces
 
 Son sens divin s'étendit encore davantage. Il vit les cadavres de moustiques géants, le corps d'un Ji Qiong, et même d'innombrables restes de bêtes mesurant des centaines de milliers de pieds!
 
-Hormis la Bête du Nether, toutes les autres créatures qu'il avait croisées dans sa vie existaient ici, dans le Champ de Bataille Extérieur!
+Hormis la Bête des Limbes, toutes les autres créatures qu'il avait croisées dans sa vie existaient ici, dans le Champ de Bataille Extérieur!
 
 L'esprit de Wang Lin ondula comme une vague. Son sens divin se propagea à travers l'infini des cadavres pour finalement heurter la véritable limite. Son sens divin couvrait désormais l'intégralité du Champ de Bataille Extérieur.
 

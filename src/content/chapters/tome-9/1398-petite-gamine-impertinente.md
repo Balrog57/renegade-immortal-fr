@@ -76,7 +76,7 @@ Le Patriarche de l'Évasion Nuageuse sentit la sueur perler sur son front. Il sa
 
 À cet instant, il serra les dents, sa main droite prit la forme d'une épée et il pointa son épaule gauche sans hésiter. Dans un craquement sinistre, tous les méridiens de son bras gauche furent brisés.
 
-Le visage du Patriarche de l'Évasion Nuageuse était d'une pâleur mortelle lorsqu'il murmura: « Merci, Jeune Empereur, pour votre clémence. Ce junior reconnaît sa faute. »
+Le visage du Patriarche de l'Évasion Nuageuse était d'une pâleur mortelle lorsqu'il murmura: « Merci, Jeune Empereur, pour votre clémence. Ce cadet reconnaît sa faute. »
 
 Wang Lin se détourna et entra calmement dans le passage.
 

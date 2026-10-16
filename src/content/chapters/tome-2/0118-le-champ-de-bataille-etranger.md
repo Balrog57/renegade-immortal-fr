@@ -77,7 +77,7 @@ Mai Liang distingua instantanément la marque de marteau sur le front de l'homme
 
 Les membres du Clan des Démons Géants ne pouvaient modifier librement leur apparence qu'une fois le stade de la Transformation de l'Âme atteint. Puisque cet homme ressemblait à un humain ordinaire, il devait être un expert de la Transformation de l'Âme issu de la Secte des Démons Géants.
 
-La gorge de Mai Liang était sèche. Trop terrifié pour mentir, il répondit promptement: « Senior, j'ai vu ce rayon de lumière noire. Il est passé par là et a été englouti par une faille spatiale. »
+La gorge de Mai Liang était sèche. Trop terrifié pour mentir, il répondit promptement: « Aîné, j'ai vu ce rayon de lumière noire. Il est passé par là et a été englouti par une faille spatiale. »
 
 L'homme d'âge moyen était celui qui avait poursuivi Wang Lin depuis Zhao. Il l'avait traqué aussi vite que possible, mais plus il avançait, plus il était stupéfait. La vitesse de cette perle égalait la sienne; elle parvenait même à esquiver toutes ses tentatives d'interception. Pire encore, sa célérité augmentait progressivement jusqu'à ce qu'elle finisse par le distancer. À cela s'ajoutaient les failles spatiales. Bien qu'il ne les craignît pas, être pris dans l'une d'elles aurait été extrêmement gênant. Avec sa culture au début du stade de la Transformation de l'Âme, il pouvait seulement s'empêcher d'être aspiré, sans pouvoir se déplacer à sa guise. Obstruit par les failles, sa vitesse avait chuté; même avec la téléportation, il peinait à ne pas perdre le fil.
 

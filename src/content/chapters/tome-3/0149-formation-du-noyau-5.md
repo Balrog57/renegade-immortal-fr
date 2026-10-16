@@ -56,7 +56,7 @@ La formation brisée exposa l'entrée d'une grotte délabrée. Les dix cultivate
 
 Les centaines de formations de base que Wang Lin avait disposées s'activèrent. Cependant, n'étant que des protections élémentaires, elles furent systématiquement balayées par les rugissements furieux des experts de la Formation du Noyau.
 
-Qian Kun regarda droit devant lui avec froideur, sans intervenir. Sa cible était ce junior au stade pseudo-Formation du Noyau. Il prépara un filet électrique dans sa main, décidé à capturer le garçon dès son apparition.
+Qian Kun regarda droit devant lui avec froideur, sans intervenir. Sa cible était ce cadet au stade pseudo-Formation du Noyau. Il prépara un filet électrique dans sa main, décidé à capturer le garçon dès son apparition.
 
 Une fois les formations de base anéanties, la grotte n'offrait plus aucune protection, permettant aux cultivateurs démoniaques d'en voir l'intérieur.
 

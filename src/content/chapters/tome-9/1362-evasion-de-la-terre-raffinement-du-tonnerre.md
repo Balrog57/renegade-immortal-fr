@@ -128,13 +128,13 @@ Alors qu'il s'apprêtait à s'éloigner, un individu surgit de la distance aprè
 
 Wang Lin s'arrêta et se retourna, le regard froid.
 
-Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées, et s'exclama rapidement: « Maître, je... je suis Zhong Big Red. "Zhong" comme dans "Petit Zhong". "Red" comme dans "Petit Rouge"... Je suis Zhong Big Red, Maître! Un jour de maître est un maître pour la vie! Maître, ne m'abandonnez pas. Je suis prêt à vous servir le reste de mes jours sans jamais vous trahir! »
+Son regard croisa celui du cultivateur. Ce dernier tremblait, les dents serrées, et s'exclama rapidement: « Maître, je... je suis Zhong Grand Rouge. "Zhong" comme dans "Petit Zhong". "Red" comme dans "Petit Rouge"... Je suis Zhong Grand Rouge, Maître! Un jour de maître est un maître pour la vie! Maître, ne m'abandonnez pas. Je suis prêt à vous servir le reste de mes jours sans jamais vous trahir! »
 
 L'expression de Wang Lin resta glaciale lorsqu'il demanda lentement: « Tu veux me suivre? »
 
-Zhong Big Red s'élança rapidement pour éviter d'être tué par les siens. En entendant la réponse de Wang Lin, il hocha la tête avec empressement: « Maître, tant que vous me permettez de vous suivre, je ferai tout ce que vous ordonnerez. Allumer des incendies ou voler, je maîtrise tout. Je ne suis pas moins doué que ce Xu Liguo, Maître. Donnez-moi une chance, Maître... »
+Zhong Grand Rouge s'élança rapidement pour éviter d'être tué par les siens. En entendant la réponse de Wang Lin, il hocha la tête avec empressement: « Maître, tant que vous me permettez de vous suivre, je ferai tout ce que vous ordonnerez. Allumer des incendies ou voler, je maîtrise tout. Je ne suis pas moins doué que ce Xu Liguo, Maître. Donnez-moi une chance, Maître... »
 
-Les yeux de Wang Lin s'illuminèrent en observant Zhong Big Red. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Big Red et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan du Tonnerre Dispersé.
+Les yeux de Wang Lin s'illuminèrent en observant Zhong Grand Rouge. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Grand Rouge et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan du Tonnerre Dispersé.
 
 Les sortsily fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il transperça le crâne d'un premier cultivateur du Fléau Céleste, faisant imploser son âme originelle. Puis il frappa un second cultivateur, faisant exploser sa tête.
 

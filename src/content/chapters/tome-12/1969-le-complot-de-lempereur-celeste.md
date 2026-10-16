@@ -36,11 +36,11 @@ Une telle figure ne pouvait que attirer l'attention de tous les Grands Éthers. 
 
 Une fois cette nouvelle révélée, tous ceux au sein du clan céleste qui avaient entendu parler de Wang Lin furent plongés dans la confusion. Cela déclencha une nouvelle tempête de rumeurs.
 
-Durant l'année écoulée, Wang Lin était resté au sein de la Secte Purple Yang sans jamais en partir. De nombreux Ascendants Éthérés s'étaient précipités, peu importe la distance, pour le rencontrer et débattre du Dao avec lui.
+Durant l'année écoulée, Wang Lin était resté au sein de la Secte Yang Pourpre sans jamais en partir. De nombreux Ascendants Éthérés s'étaient précipités, peu importe la distance, pour le rencontrer et débattre du Dao avec lui.
 
-Ceux qui venaient et repartaient repartaient grandement admiratifs, habités par un respect croissant. Cependant, certains choisirent de rester dans la Secte Purple Yang; il semblait que leurs échanges avec Wang Lin leur avaient apporté une immense récolte spirituelle.
+Ceux qui venaient et repartaient repartaient grandement admiratifs, habités par un respect croissant. Cependant, certains choisirent de rester dans la Secte Yang Pourpre; il semblait que leurs échanges avec Wang Lin leur avaient apporté une immense récolte spirituelle.
 
-La Secte Purple Yang était redevenue le centre du monde grâce à Wang Lin!
+La Secte Yang Pourpre était redevenue le centre du monde grâce à Wang Lin!
 
 Les rumeurs concernant Wang Lin s'étaient lentement propagées dans les 36 pays du clan Ancien par divers moyens au fil de l'année. L'apparition du 49e Ascendant Éthéré était d'une importance capitale pour le clan Ancien, sans parler du fait que ce nouvel Ascendant Éthéré remplaçait Ming Dao en tant que plus puissant sous les Grands Éthers!
 
@@ -116,13 +116,13 @@ Des ondulations se propagèrent à la surface du bassin tandis que l'Empereur C�
 
 L'Empereur Céleste sourit alors qu'il disparaissait de la chambre souterraine.
 
-La Secte Purple Yang du Continent de l'Est était le lieu où se trouvait Wang Lin, celui qui avait ébranlé tout le clan céleste. Actuellement, c'était l'hiver et la neige recouvrait la secte d'un manteau argenté.
+La Secte Yang Pourpre du Continent de l'Est était le lieu où se trouvait Wang Lin, celui qui avait ébranlé tout le clan céleste. Actuellement, c'était l'hiver et la neige recouvrait la secte d'un manteau argenté.
 
-Hormis les moments où d'autres Ascendants Éthérés venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Purple Yang.
+Hormis les moments où d'autres Ascendants Éthérés venaient débattre du Dao, il avait passé toute cette année en un seul endroit: une zone interdite de la Secte Yang Pourpre.
 
 C'était le Domaine des Bêtes.
 
-Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Purple Yang, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine des Bêtes.
+Il en avait eu une vague perception autrefois, mais depuis son arrivée à la Secte Yang Pourpre, l'endroit avait beaucoup changé. Wang Lin avait passé la majeure partie de l'année assis au bord du Domaine des Bêtes.
 
 Il sentait qu'une barrière invisible se dressait devant lui, et qu'au-delà se trouvait un lieu qui lui était familier: sa patrie, celle qui lui manquait tant... Il y avait là les gens qu'il connaissait, la terre qu'il aimait et les planètes qu'il avait foulées.
 

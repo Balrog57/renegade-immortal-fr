@@ -96,7 +96,7 @@ Soudain, le ciel s'obscurcit et la chaleur ambiante disparut instantanément. Un
 
 Une pression écrasante descendit du ciel.
 
-Les visages de Wang Zhuo et Wang Hao changèrent radicalement. Ils n'osaient plus respirer. Wang Zhuo joignit rapidement les mains et s'exclama: « Ce disciple est Wang Zhuo, de la Secte Xuan Dao. Salutations, messieurs les Seniors. »
+Les visages de Wang Zhuo et Wang Hao changèrent radicalement. Ils n'osaient plus respirer. Wang Zhuo joignit rapidement les mains et s'exclama: « Ce disciple est Wang Zhuo, de la Secte Xuan Dao. Salutations, messieurs les Aînés. »
 
 L'immortel parut surpris et demanda: « La Secte Xuan Dao? En as-tu la preuve? »
 

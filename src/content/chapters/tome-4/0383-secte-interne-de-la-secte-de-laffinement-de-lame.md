@@ -58,7 +58,7 @@ Wang Lin secoua légèrement la tête. Bien que ce sortilège fût mystérieux, 
 
 Sans aucune ambiguïté, Wang Lin était le vainqueur de cette compétition.
 
-Le disciple de la secte interne chargé du combat joignit les mains en signe de respect envers Wang Lin et dit: « Je m'appelle Wang Zhen. La prochaine fois que nous nous croiserons, je devrai t'appeler junior frère apprenti. Qing Mu, viens, suis-moi pour rencontrer l'Ancien. »
+Le disciple de la secte interne chargé du combat joignit les mains en signe de respect envers Wang Lin et dit: « Je m'appelle Wang Zhen. La prochaine fois que nous nous croiserons, je devrai t'appeler frère cadet apprenti. Qing Mu, viens, suis-moi pour rencontrer l'Ancien. »
 
 Wang Lin hocha la tête avec un sourire et suivit Wang Zhen dans la secte interne.
 
@@ -132,15 +132,15 @@ Wang Lin hocha la tête et partit respectueusement.
 
 Peu après son départ, deux puissants sens divins apparurent dans le hall.
 
-« Junior frère apprenti, comment trouves-tu cet individu? »
+« frère cadet apprenti, comment trouves-tu cet individu? »
 
 Le vieil homme eut un ricanement méprisant: « Rien de préoccupant! »
 
-« Junior frère apprenti, ces dernières années, tous les patriarches sont en culture fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
+« frère cadet apprenti, ces dernières années, tous les patriarches sont en culture fermée. Nous devons tenir bon et ne laisser entrer personne ayant de mauvaises intentions. »
 
 La voix du vieil homme se fit glaciale: « Quelle plaisanterie. Ce n'est pas comme si nous n'avions pas déjà assez de personnes avec des motifs cachés au sein de la Secte de l'Affinement de l'Âme. Un de plus ou un de moins ne changera rien. Un disciple sur dix sous la direction de mes deux frères aînés est animé par des desseins secrets. Occupez-vous de vos propres montagnes. Les affaires de ma Montagne de l'Affinement de l'Âme ne vous concernent pas. »
 
-« La frustration du disciple junior est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère cadet en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le cadet n'est-il toujours pas satisfait? »
+« La frustration du disciple cadet est grande. Ce jeune homme doté d'une intuition anticipatrice a été choisi par moi. Celui qui maîtrise le sortilège de la mort a été choisi par le frère cadet en charge de la Montagne du Scellement de l'Âme. Le dernier restant est le vainqueur de la compétition. Le cadet n'est-il toujours pas satisfait? »
 
 L'expression du vieil homme se crispa: « Quelles absurdités! Ils ont tous deux des capacités spéciales, mais cet individu n'a qu'un niveau de culture légèrement plus élevé! Mes deux frères aînés, je ne vous raccompagne pas! »
 

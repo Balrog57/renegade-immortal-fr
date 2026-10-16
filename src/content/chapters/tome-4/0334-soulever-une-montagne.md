@@ -92,7 +92,7 @@ Dans la plus grande pagode à trois étages de la Cité des Rebelles Démoniaque
 
 À l'arrivée du groupe de Wang Lin, deux disciples de l'Établissement des Fondations du Pavillon acceptèrent l'invitation et les conduisirent vers la grande salle.
 
-L'homme d'âge moyen qui avait précédemment vendu la recette à Wang Lin se trouvait également dans la salle. Il discutait avec quelques cultivateurs familiers, mais son expression changea brusquement lorsqu'il aperçut Wang Lin. Il salua rapidement ses compagnons et se dirigea vers lui. Il s'arrêta à 10 mètres de Wang Lin, s'inclina et dit respectueusement: « C'est un honneur pour moi que Senior soit venu. Senior, cet endroit est trop désordonné; permettez-moi de vous conduire au troisième étage. »
+L'homme d'âge moyen qui avait précédemment vendu la recette à Wang Lin se trouvait également dans la salle. Il discutait avec quelques cultivateurs familiers, mais son expression changea brusquement lorsqu'il aperçut Wang Lin. Il salua rapidement ses compagnons et se dirigea vers lui. Il s'arrêta à 10 mètres de Wang Lin, s'inclina et dit respectueusement: « C'est un honneur pour moi qu'Aîné soit venu. Aîné, cet endroit est trop désordonné; permettez-moi de vous conduire au troisième étage. »
 
 Les cultivateurs environnants qui connaissaient cet homme furent stupéfaits. Ce dernier occupait une position très élevée au sein du Pavillon de Raffinage des Trésors et avait un avenir radieux. Il ne s'adressait ainsi à personne; c'était un spectacle rare. Tous les regards se tournèrent vers Wang Lin.
 

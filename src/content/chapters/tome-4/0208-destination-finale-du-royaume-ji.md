@@ -34,7 +34,7 @@ Wang Lin ne s'attarda pas sur sa remarque. Il marcha vers la proue du bateau et 
 
 Après avoir médité un instant, Wang Lin déclara: « Ce n'est pas une formation, mais une sorte de restriction! »
 
-Qiu Siping fronça légèrement les sourcils. Il regarda autour de lui et dit amèrement: « Avec notre niveau de culture, il est peu probable que ce senior ait placé cette restriction uniquement pour nous, n'est-ce pas? »
+Qiu Siping fronça légèrement les sourcils. Il regarda autour de lui et dit amèrement: « Avec notre niveau de culture, il est peu probable que cet aîné ait placé cette restriction uniquement pour nous, n'est-ce pas? »
 
 Wang Lin garda le silence, continuant de balayer la zone avec son Sens Divin. Cet homme âgé ne les arrêterait pas sans raison; il semblait qu'un problème les attendait.
 
@@ -42,7 +42,7 @@ L'homme âgé sembla se lasser de ses invectives. Il prit une autre grande gorg�
 
 D'un geste de la main droite, il fit soudainement voler le bateau vers lui. Rapidement, l'embarcation ne se trouvait plus qu'à 33 mètres de lui.
 
-Qiu Siping afficha immédiatement une expression respectueuse et dit: « Le junior Qiu Siping salue l'Aîné. »
+Qiu Siping afficha immédiatement une expression respectueuse et dit: « Le cadet Qiu Siping salue l'Aîné. »
 
 L'homme âgé cligna des yeux et demanda: « Tu me connais? »
 
@@ -52,7 +52,7 @@ Qiu Siping, déconcerté, balbutia: « Aîné... »
 
 Après un long moment, l'homme âgé s'interrompit enfin pour reprendre une gorgée de vin. La gourde était désormais vide; la bouche du vieillard se tordit et il marmonna: « Si j'avais su que je parlerais autant aujourd'hui, j'aurais emporté plus de vin. Puisqu'il n'en reste plus, venez avec moi en chercher, et je vous raconterai mes péripéties de quand j'avais 75 ans en chemin. »
 
-Le visage de Qiu Siping se crispa. Il sortit précipitamment du vin de son sac de rangement et dit: « Aî... euh... le junior a du vin, il n'est pas nécessaire d'aller en acheter davantage. »
+Le visage de Qiu Siping se crispa. Il sortit précipitamment du vin de son sac de rangement et dit: « Aî... euh... le cadet a du vin, il n'est pas nécessaire d'aller en acheter davantage. »
 
 Le visage de l'homme âgé s'illumina et, d'un geste de la main, le vin dans les mains de Qiu Siping disparut instantanément.
 
@@ -70,7 +70,7 @@ Soudain, Qiu Siping eut l'impression qu'une main lui serrait la gorge, l'empêch
 
 Les yeux du vieillard se tournèrent vers lui: « Quoi? Pas content? Alors dis-moi, toi, oui toi, veux-tu être mon disciple? » L'homme se tourna ensuite vers Wang Lin avec un léger sourire.
 
-L'expression de Wang Lin resta calme. Il savait que le vieillard finirait par l'interroger et répondit respectueusement: « Le junior appartient déjà à une secte. »
+L'expression de Wang Lin resta calme. Il savait que le vieillard finirait par l'interroger et répondit respectueusement: « Le cadet appartient déjà à une secte. »
 
 « Quelle secte? » Le visage de l'homme était toujours souriant, mais Wang Lin percevait déjà une pointe de froideur dans son regard. Cela confirmait son intuition: il était la cible.
 

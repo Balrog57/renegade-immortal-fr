@@ -12,7 +12,7 @@ De plus, l'usage le plus crucial de cette énergie concernait l'apprentissage de
 
 C'est pour cette raison que Wang Lin n'avait pas encore étudié ces deux sorts célestes.
 
-Soudain, ses yeux s'illuminèrent et son corps vacilla. Un vent noir enveloppa la zone tandis qu'il criait: « Ta Shan, Senior Yun Quezi, gardez le centre! Je vais m'occuper de ces créatures! »
+Soudain, ses yeux s'illuminèrent et son corps vacilla. Un vent noir enveloppa la zone tandis qu'il criait: « Ta Shan, Aîné Yun Quezi, gardez le centre! Je vais m'occuper de ces créatures! »
 
 Wang Lin fit un pas et se fondit dans le vide. Lorsqu'il réapparut, il se tenait aux côtés d'une autre momie. Ses doigts de la main droite formèrent une épée et ses yeux révélèrent une intention de tonnerre. La momie se retourna en crachant une aura de mort, et un tatouage vola vers Wang Lin.
 

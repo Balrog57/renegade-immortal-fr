@@ -172,7 +172,7 @@ Wang Lin demanda soudain: « L'as-tu vu? »
 
 Leurs silhouettes s'éloignèrent peu à peu jusqu'à se fondre à l'horizon.
 
-Ils ne virent pas qu'à cet instant, dans un recoin de la Ville de Blackstone, non loin de cette montagne, une femme en blanc tournait le dos aux lumières des innombrables foyers. Tandis qu'elle contemplait le rayon de lumière s'évanouir dans le ciel, des larmes coulèrent au coin de ses yeux, glissant sur sa joue pour perler sur ses vêtements.
+Ils ne virent pas qu'à cet instant, dans un recoin de la Ville de la Pierre Noire, non loin de cette montagne, une femme en blanc tournait le dos aux lumières des innombrables foyers. Tandis qu'elle contemplait le rayon de lumière s'évanouir dans le ciel, des larmes coulèrent au coin de ses yeux, glissant sur sa joue pour perler sur ses vêtements.
 
 « Laisse tomber, oublions tout... Le poisson de la vie passée a aussi vu l'oiseau s'effacer dans les eaux... » murmura la femme, le regard embrumé. Le poisson dans l'eau semblait pleurer, mais ses larmes se dissolvaient dans l'onde, si bien que l'oiseau ne pouvait les voir.
 

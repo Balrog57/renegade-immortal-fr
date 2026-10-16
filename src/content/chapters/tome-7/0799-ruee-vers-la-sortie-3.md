@@ -102,7 +102,7 @@ Tout s'était produit à une vitesse fulgurante; cela n'avait pris que quelques 
 
 « Quelle audace! Vous osez charger dans la zone interdite du Temple Céleste du Tonnerre! » L'homme avançait, couvert de tonnerre. Cependant, avant que Wang Lin ne puisse agir, plusieurs cultivateurs sautèrent du fragment pour l'affronter.
 
-L'un d'eux cria rapidement: « Senior, ne vous souciez pas de lui, nous allons nous en occuper! »
+L'un d'eux cria rapidement: « Aîné, ne vous souciez pas de lui, nous allons nous en occuper! »
 
 Wang Lin hocha la tête et le fragment recula légèrement. Cette fois, il se prépara pendant dix secondes. Mais il n'était pas le seul: tous les cultivateurs sautèrent du fragment et posèrent leurs mains sur celui-ci.
 

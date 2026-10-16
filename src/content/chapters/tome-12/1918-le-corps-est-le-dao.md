@@ -8,19 +8,19 @@ slug: le-corps-est-le-dao
 ---
 Chapitre 1918 - Le Corps est le Dao!
 
-Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalt Doré, même si son âme originelle avait perdu toute volonté, sa puissante culture formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
+Le sort de recherche d'âme était une technique extrêmement puissante. Cependant, pour un Exalté Doré, même si son âme originelle avait perdu toute volonté, sa puissante culture formait une barrière protectrice robuste au fil des millénaires. Cela rendait la recherche d'âme très difficile.
 
-Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de culture était bien supérieur à celui d'un Exalt Doré, une extraction parfaite des souvenirs serait alors possible.
+Même lors d'une recherche forcée, on ne pouvait obtenir que quelques fragments, et non l'intégralité des souvenirs. Peut-être que si le niveau de culture était bien supérieur à celui d'un Exalté Doré, une extraction parfaite des souvenirs serait alors possible.
 
 Bien que Wang Lin puisse vaincre des Exaltés Dorés, cela était dû à la fusion de son corps de Dao Antique et de sa culture, lui permettant d'atteindre une telle puissance de combat. En réalité, son niveau de culture n'était qu'au début du stade Tribulation du Vide.
 
-Pendant que l'âme originelle du Maître de la Secte du Dao Démoniaque était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret derrière la guerre avec le Continent du Taureau Céleste. Il ne trouva que quelques pensées concernant l'ancêtre Exalt du Dao Démoniaque.
+Pendant que l'âme originelle du Maître de la Secte du Dao Démoniaque était raffinée en une Veine Magique dans le corps de Wang Lin, celui-ci tenta de sonder son âme. Cependant, il ne put trouver aucun souvenir crucial, tel que le secret derrière la guerre avec le Continent du Taureau Céleste. Il ne trouva que quelques pensées concernant l'ancêtre Exalté du Dao Démoniaque.
 
-« L'ancêtre Exalt du Dao Démoniaque, un Exalt sous les ordres du Grand Exalt Dao Yi... » Le soleil était haut dans le ciel et inondait la terre de sa lumière. Wang Lin ouvrit les yeux, et son regard s'illumina.
+« L'ancêtre Exalté du Dao Démoniaque, un Exalté sous les ordres du Grand Exalté Dao Yi... » Le soleil était haut dans le ciel et inondait la terre de sa lumière. Wang Lin ouvrit les yeux, et son regard s'illumina.
 
 Dans son corps, la quatrième et la cinquième Veine Magique apparurent!
 
-Un seul Exalt Doré avait permis l'apparition de deux Veines Magiques! Wang Lin agita légèrement les bras et des ombres se formèrent. Il sentit clairement non seulement que sa vitesse d'incantation augmentait, mais aussi que sa force physique était devenue terrifiante.
+Un seul Exalté Doré avait permis l'apparition de deux Veines Magiques! Wang Lin agita légèrement les bras et des ombres se formèrent. Il sentit clairement non seulement que sa vitesse d'incantation augmentait, mais aussi que sa force physique était devenue terrifiante.
 
 C'était là la clé de l'Art du Sort Rapide; c'était ce qui avait attiré Wang Lin!
 
@@ -50,19 +50,19 @@ Il était très simple d'atteindre une telle vitesse avec l'aide de sorts, mais 
 
 « Mes neuf essences se sont fondues en trois. Selon ma compréhension, si je parviens à former les deux autres éléments pour mon Corps Véritable des Cinq Éléments, je devrais atteindre le milieu du stade Tribulation du Vide! »
 
-« De même, si je peux ajouter deux essences spéciales supplémentaires à mon Corps Véritable basé sur l'essence de Tonnerre, je devrais être capable d'atteindre la fin du stade Tribulation du Vide, au rang d'Exalt Doré! »
+« De même, si je peux ajouter deux essences spéciales supplémentaires à mon Corps Véritable basé sur l'essence de Tonnerre, je devrais être capable d'atteindre la fin du stade Tribulation du Vide, au rang d'Exalté Doré! »
 
-« Enfin, le plus difficile sera les essences éthérées. Si je peux comprendre deux autres essences éthérées et combiner les cinq, je devrais atteindre le sommet de la Tribulation du Vide, au rang d'Exalt Émérite! »
+« Enfin, le plus difficile sera les essences éthérées. Si je peux comprendre deux autres essences éthérées et combiner les cinq, je devrais atteindre le sommet de la Tribulation du Vide, au rang d'Exalté Émérite! »
 
-« Après cela, si toutes mes essences forment leurs propres Corps Véritables d'Essence, alors avec ces trois corps, mon niveau de culture dépassera celui d'Exalt Émérite pour atteindre un point où je ne serai second que devant les Grands Exalt! »
+« Après cela, si toutes mes essences forment leurs propres Corps Véritables d'Essence, alors avec ces trois corps, mon niveau de culture dépassera celui d'Exalté Émérite pour atteindre un point où je ne serai second que devant les Grands Exalté! »
 
-« Bien que j'ignore la méthode pour devenir un Grand Exalt, le Maître a dit que cela exigeait une chance immense et l'ouverture du Royaume Divin Immemorial... »
+« Bien que j'ignore la méthode pour devenir un Grand Exalté, le Maître a dit que cela exigeait une chance immense et l'ouverture du Royaume Divin Immemorial... »
 
-« Mais si je peux fusionner mes trois Corps Véritables d'Essence en un seul, peut-être pourrai-je devenir un Grand Exalt! » Tandis que Wang Lin méditait silencieusement, ses yeux étincelaient. Tout ceci n'était que ses propres analyses, et il lui faudrait du temps pour les vérifier.
+« Mais si je peux fusionner mes trois Corps Véritables d'Essence en un seul, peut-être pourrai-je devenir un Grand Exalté! » Tandis que Wang Lin méditait silencieusement, ses yeux étincelaient. Tout ceci n'était que ses propres analyses, et il lui faudrait du temps pour les vérifier.
 
-« Si mon analyse est correcte, il doit exister un niveau au-delà des Grands Exalt! Peut-être est-ce la quatrième étape, ou peut-être non... Ce niveau nécessiterait que mes trois Corps Véritables d'Essence fusionnent en un seul pour atteindre le stade de l'Âme Véritable!! »
+« Si mon analyse est correcte, il doit exister un niveau au-delà des Grands Exalté! Peut-être est-ce la quatrième étape, ou peut-être non... Ce niveau nécessiterait que mes trois Corps Véritables d'Essence fusionnent en un seul pour atteindre le stade de l'Âme Véritable!! »
 
-« Ce niveau devrait être quelque chose que même les Grands Exalt n'ont pas encore atteint, une quête perpétuelle! Ou peut-être est-ce le niveau de l'Ancêtre Céleste et de l'Ancêtre Antique!! » L'esprit de Wang Lin était d'une clarté limpide à cet instant. Bien qu'il ne s'agisse que de spéculations, c'était la voie qu'il devait emprunter.
+« Ce niveau devrait être quelque chose que même les Grands Exalté n'ont pas encore atteint, une quête perpétuelle! Ou peut-être est-ce le niveau de l'Ancêtre Céleste et de l'Ancêtre Antique!! » L'esprit de Wang Lin était d'une clarté limpide à cet instant. Bien qu'il ne s'agisse que de spéculations, c'était la voie qu'il devait emprunter.
 
 Qu'elle soit vraie ou non, il le saurait lorsqu'il aurait atteint ce stade!
 
@@ -72,7 +72,7 @@ Wang Lin leva la tête vers l'horizon et se leva lentement. Une brise fit flotte
 
 « Le voilà qui arrive! » Les yeux de Wang Lin furent soudainement emplis d'une intention de combat!
 
-« Attirer l'attention des Grands Exalt! »
+« Attirer l'attention des Grands Exalté! »
 
 « Devenir célèbre à travers les 72 continents du Clan Céleste! »
 
@@ -96,7 +96,7 @@ Wang Lin resta immobile, ses pupilles se rétractant légèrement, et répondit 
 
 Wang Lin fixa l'homme et dit simplement: « Oui! »
 
-« Bien! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalt Émérite subordonné au Grand Exalt Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Émérites, il se situait toujours au sommet du Clan Céleste.
+« Bien! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalté Émérite subordonné au Grand Exalté Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Émérites, il se situait toujours au sommet du Clan Céleste.
 
 « Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de ma Secte! » L'ancêtre agita sa manche et lança un coup de poing vers Wang Lin.
 
@@ -104,20 +104,20 @@ Ce coup fit changer les couleurs du monde et déforma les ruines de la Secte du 
 
 Au sein de cette distorsion, toute la puissance du monde fut absorbée par le coup de poing de l'homme aux cheveux roux, ne laissant plus aucune force dans cet espace.
 
-« Au stade d'Exalt Émérite, nul besoin d'exécuter des sorts. Le corps du cultivateur est sa racine. Il n'est pas nécessaire d'avoir un corps physique surpuissant; il suffit d'insuffler le Dao dans son être. Faire de son corps son propre Dao! »
+« Au stade d'Exalté Émérite, nul besoin d'exécuter des sorts. Le corps du cultivateur est sa racine. Il n'est pas nécessaire d'avoir un corps physique surpuissant; il suffit d'insuffler le Dao dans son être. Faire de son corps son propre Dao! »
 
-« Avec le corps comme Dao, même un coup de poing ordinaire contient le Dao capable de tout détruire! » C'était ce que le Grand Exalt Dao Yi avait enseigné au vieil homme.
+« Avec le corps comme Dao, même un coup de poing ordinaire contient le Dao capable de tout détruire! » C'était ce que le Grand Exalté Dao Yi avait enseigné au vieil homme.
 
 Ce coup fit se contracter les pupilles de Wang Lin. Ses cheveux blancs s'agitèrent sans qu'aucun vent ne souffle et ses yeux brillèrent intensément. Il sentit la terreur du coup. Bien qu'il parût ordinaire, à mesure que le poing avançait, le monde entier semblait suivre son mouvement!
 
 Ce coup contenait également neuf types de sorts différents. Ces sorts ne nécessitaient ni sceaux ni Sens Divin; un simple geste suffit à les déclencher!
 
-C'était la véritable puissance d'un Exalt Émérite. Un tel coup ferait trembler les Exaltés Dorés de terreur; il suffirait pour les tuer cent fois!
+C'était la véritable puissance d'un Exalté Émérite. Un tel coup ferait trembler les Exaltés Dorés de terreur; il suffirait pour les tuer cent fois!
 
 C'était le résultat d'une intégration totale du Dao et de la volonté dans le corps. Le corps était Dao, le poing était Dao!
 
 Le monde se distordit. Alors que ses cheveux blancs flottaient, Wang Lin ne recula pas; il fit un pas en avant et projeta son propre coup de poing de la main droite!
 
-Il n'activa pas immédiatement l'armure d'âme du Taureau Céleste, préférant tester sa propre puissance. Il voulait voir comment il se mesurerait à un Exalt Émérite sans cette protection!
+Il n'activa pas immédiatement l'armure d'âme du Taureau Céleste, préférant tester sa propre puissance. Il voulait voir comment il se mesurerait à un Exalté Émérite sans cette protection!
 
 À cet instant, des grondements déchirèrent le silence et la terre commença à se briser strate après strate sous l'impact de leurs coups. Tout s'effondra, mais la distorsion empêcha la destruction de se propager loin, la matière n'ayant d'autre choix que d'être projetée dans les airs!

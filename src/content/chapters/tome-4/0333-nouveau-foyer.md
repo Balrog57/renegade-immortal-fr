@@ -12,11 +12,11 @@ Cependant, après un geste de la main de Wang Lin, la pression disparut. Tous de
 
 « Qu'est-ce que c'est? » demanda Li Muwan en contemplant la pagode, les yeux empreints de curiosité.
 
-Wang Lin sourit. « À l'intérieur de la tour repose le cadavre d'une femme. C'est l'épouse d'un senior qui m'a demandé de veiller sur elle avant de mourir. »
+Wang Lin sourit. « À l'intérieur de la tour repose le cadavre d'une femme. C'est l'épouse d'un aîné qui m'a demandé de veiller sur elle avant de mourir. »
 
 Puis Wang Lin raconta à Li Muwan l'histoire de Zhou Yi et de Ting Er. Li Muwan, qui était une jeune fille très émotive, fut profondément touchée par ce récit.
 
-Elle murmura: « Je me demande comment va le senior Zhou Yi depuis qu'il s'est transformé en esprit d'épée pour rejoindre la Secte des Épées Da Lou... »
+Elle murmura: « Je me demande comment va l'aîné Zhou Yi depuis qu'il s'est transformé en esprit d'épée pour rejoindre la Secte des Épées Da Lou... »
 
 Wang Lin réfléchit. Après un long moment, il secoua la tête et dit: « Quel que soit le résultat, c'était son choix. J'espère qu'il pourra réaliser son vœu... »
 
@@ -42,9 +42,9 @@ Wang Lin les regarda et demanda d'une voix grave: « Depuis combien de temps êt
 
 Lu Fei et Tie Yan étaient extrêmement heureux. La raison pour laquelle ils suivaient Wang Lin était l'espoir qu'il les aide à atteindre le stade de la Formation de l'Âme. Pourtant, Wang Lin n'avait jamais abordé ce sujet durant tout ce mois. Ils n'osaient pas poser la question et ne pouvaient que patienter en silence.
 
-Lu Fei réprima l'excitation dans son cœur et dit: « Ce junior est au stade avancé de l'Âme Naissante depuis 143 ans. »
+Lu Fei réprima l'excitation dans son cœur et dit: « Ce cadet est au stade avancé de l'Âme Naissante depuis 143 ans. »
 
-Tie Yan prit une profonde inspiration et ajouta respectueusement: « Ce junior est ici depuis 172 ans. »
+Tie Yan prit une profonde inspiration et ajouta respectueusement: « Ce cadet est ici depuis 172 ans. »
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il les scrutait. Il secoua la tête et déclara: « Vous avez emprunté le mauvais chemin. »
 

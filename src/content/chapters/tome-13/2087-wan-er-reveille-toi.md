@@ -94,7 +94,7 @@ Dans la Mer des Diables, lorsqu'il avait ouvert les yeux et vu cette silhouette 
 
 Cette silhouette délicate qui avait utilisé son sang pour graver la formation du dragon sur l'écaille, ce visage pâle qui lui brisait le cœur. Mais à cette époque, il était traqué par des êtres dont la haine envers lui était aussi profonde que l'océan. Il ne pouvait que s'enjoindre d'oublier toutes les souffrances qu'elle avait endurées.
 
-La scène à la Secte de Sky Cloud, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
+La scène à la Secte du Nuage, lorsqu'il entendit le son de la cithare et vit la mélancolie de cette silhouette dans le pavillon, Wang Lin sut qu'il ne pourrait jamais oublier.
 
 *Ma main gauche est un court karma dans la Mer des Diables, et ma main droite représente des centaines d'années de culture...*
 

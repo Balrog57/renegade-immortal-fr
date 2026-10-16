@@ -8,7 +8,7 @@ slug: parvenir-a-un-accord
 ---
 Alors que le vieil homme prononçait ces mots, il agita la main et des éclairs jaillirent de toutes les directions. Bientôt, une cage de foudre emprisonna Wang Lin.
 
-Le visage de Wang Lin était sombre. Il cessa tout mouvement, se tourna vers le vieil homme et demanda froidement: « Que désire ce senior? »
+Le visage de Wang Lin était sombre. Il cessa tout mouvement, se tourna vers le vieil homme et demanda froidement: « Que désire cet aîné? »
 
 Le vieil homme fixa Wang Lin. Après un long silence, il dit: « Je veux emprunter votre sort de mort. »
 
@@ -74,11 +74,11 @@ Wang Lin soutint son regard sans dire un mot. Un silence pesant s'installa entre
 
 Wang Lin s'y était préparé; il aurait agi de la même manière s'il avait été à sa place. De plus, si le vieil homme avait voulu lui imposer des restrictions nuisibles, il ne lui aurait pas fallu attendre ce moment précis.
 
-Wang Lin ne bougea pas. Il regarda vers l'Union Huo Fen et dit: « Le junior a encore une chose à accomplir. J'espère que le senior pourra patienter quelques jours de plus. »
+Wang Lin ne bougea pas. Il regarda vers l'Union Huo Fen et dit: « Le cadet a encore une chose à accomplir. J'espère que l'aîné pourra patienter quelques jours de plus. »
 
 Le vieil homme fronça les sourcils en fixant Wang Lin: « De quoi s'agit-il? »
 
-Wang Lin eut une pensée soudaine et demanda: « Le senior a-t-il entendu parler du Sentier Divin du Sanctuaire du Dieu de la Guerre? »
+Wang Lin eut une pensée soudaine et demanda: « L'aîné a-t-il entendu parler du Sentier Divin du Sanctuaire du Dieu de la Guerre? »
 
 Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, le petit voyou qui l'avait découverte avait provoqué un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Sentier Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
 
@@ -86,17 +86,17 @@ L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. C
 
 Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Huo Fen. Les yeux du vieil homme s'illuminèrent avant qu'il ne suive Wang Lin avec nonchalance.
 
-Peu de temps après, la montagne de l'Union Huo Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue le senior Feng Luan du Sanctuaire du Dieu de la Guerre! »
+Peu de temps après, la montagne de l'Union Huo Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue l'aîné Feng Luan du Sanctuaire du Dieu de la Guerre! »
 
 Sa voix tonna à travers la montagne. Bientôt, plusieurs personnes sortirent des hauteurs. Une femme magnifique dirigeait le groupe: c'était Feng Luan.
 
 La première chose qu'elle remarqua fut le vieil homme derrière Wang Lin, ce qui fit se rétracter ses pupilles, avant que son regard ne se pose sur Wang Lin. Elle fut secrètement stupéfaite. En seulement quelques années, il avait déjà formé son noyau. Pourtant, en pensant au fait qu'il avait pris possession d'un corps, elle comprit qu'il devait déjà être au stade de la Formation du Noyau, ce qui expliquait sa progression fulgurante. Elle réfléchit un instant avant de demander froidement: « La personne que vous recherchiez ces trois dernières années, c'était vous? »
 
-Wang Lin resta calme et esquiva la question: « Senior Feng Luan, le junior a une requête que j'espère voir acceptée. »
+Wang Lin resta calme et esquiva la question: « Aîné Feng Luan, le cadet a une requête que j'espère voir acceptée. »
 
 Feng Luan jeta un regard terrifié vers le vieil homme avant de dire calmement: « Parlez. »
 
-Wang Lin articula lentement: « Le junior aimerait consulter le Sentier Divin. »
+Wang Lin articula lentement: « Le cadet aimerait consulter le Sentier Divin. »
 
 Feng Luan hésita, puis regarda le vieil homme et constata qu'il contemplait le ciel. Au cours des trois dernières années, ils avaient commencé à entrevoir le niveau de culture de cet étranger. Le voir ainsi arriver sur leur territoire les laissait profondément troublés.
 

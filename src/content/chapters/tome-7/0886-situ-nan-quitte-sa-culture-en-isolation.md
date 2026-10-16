@@ -10,7 +10,7 @@ slug: situ-nan-quitte-sa-culture-en-isolation
 
 À cet instant, l'esprit de Wang Lin était saturé par les concepts d'Invocation de la Pluie et d'Arsenal Magique. Il s'y était plongé, continuant à les absorber et à les comprendre.
 
-Qing Shui réfléchissait en silence. Après un long moment, il regarda Wang Lin avec une expression empreinte d'adieu. Il dit lentement: « Tu as perdu trop de force vitale; ton Senior Frère n'est pas en mesure de t'aider pour cela. Tous mes sorts sont axés sur le combat et aucun ne peut servir à guérir. Le seul sort non-combat que j'ai appris de Maître était Dévorer. Tu m'as vu l'utiliser dans le Royaume Céleste du Tonnerre. Désormais, je vais te le transmettre! »
+Qing Shui réfléchissait en silence. Après un long moment, il regarda Wang Lin avec une expression empreinte d'adieu. Il dit lentement: « Tu as perdu trop de force vitale; ton Frère Aîné n'est pas en mesure de t'aider pour cela. Tous mes sorts sont axés sur le combat et aucun ne peut servir à guérir. Le seul sort non-combat que j'ai appris de Maître était Dévorer. Tu m'as vu l'utiliser dans le Royaume Céleste du Tonnerre. Désormais, je vais te le transmettre! »
 
 Tandis que Qing Shui parlait, il plaça une fois de plus sa main droite entre les sourcils de Wang Lin. Les informations concernant Dévorer s'engouffrèrent dans l'esprit de Wang Lin avec frénésie.
 
@@ -26,7 +26,7 @@ Le corps de Wang Lin trembla violemment. Son apparence se rétablit rapidement e
 
 Qing Shui se retourna, s'élança vers les étoiles et disparut progressivement.
 
-« Junior Frère, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la rétribution divine. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
+« Frère Cadet, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la rétribution divine. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
 
 Qing Shui était parti...
 

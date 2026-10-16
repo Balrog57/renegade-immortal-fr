@@ -92,7 +92,7 @@ Une fois le bassin Dong Lin vidé de toute son eau, d'innombrables fissures appa
 
 Le bassin Dong Lin, dernier vestige de ce monde dévasté, s'effondra totalement. Wang Lin ouvrit les yeux.
 
-À cet instant, le monde créé par la mémoire de Seven-Colored fut intégralement détruit. L'aura du Vieux Fantôme Zhan surgit soudainement et fonça vers Wang Lin.
+À cet instant, le monde créé par la mémoire de Sept-Couleurs fut intégralement détruit. L'aura du Vieux Fantôme Zhan surgit soudainement et fonça vers Wang Lin.
 
 Au moment même où le monde s'écroulait, l'aura de l'une des huit portes augmenta brusquement, écrasant les sept autres!
 
@@ -100,7 +100,7 @@ C'était la vraie porte, celle qui menait au Continent Astral Immortel!
 
 Wang Lin leva soudainement les yeux. Alors que le Vieux Fantôme Zhan se rapprochait, Wang Lin bondit. Des craquements retentirent dans son corps. Bien que cette puissance et ce haut niveau de culture fussent illusoires, ils venaient d'ouvrir la voie à un avenir radieux pour lui!
 
-Alors qu'il s'élançait, le monde se décomposait sous ses pas. Le monde des souvenirs de Seven-Colored s'effondrait, mais l'aura de la vraie porte devenait plus intense encore. Elle était juste devant lui!
+Alors qu'il s'élançait, le monde se décomposait sous ses pas. Le monde des souvenirs de Sept-Couleurs s'effondrait, mais l'aura de la vraie porte devenait plus intense encore. Elle était juste devant lui!
 
 Le Vieux Fantôme Zhan semblait avoir perdu la raison et pressait le pas. Cependant, il ne pouvait rattraper Wang Lin, qui avait maîtrisé l'Art Céleste du Nuage et avait formé huit corps véritables d'essence!
 

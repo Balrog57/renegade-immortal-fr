@@ -36,7 +36,7 @@ Shengong Hu renifla froidement intérieurement, mais son expression resta impert
 
 Bien qu'il fût blessé et que sa culture ne fût pas encore rétablie, la présence de Wang Lin lui donnait l'audace de parler ainsi, même si le seigneur du Temple Céleste du Tonnerre venait en personne.
 
-Zhan Konglie fronça les sourcils et regarda inconsciemment Wang Lin. Il dit lentement: « Quelles grandes paroles. Cet endroit appartient-il à ta famille Shengong? Interdirais-tu l'accès aux étrangers simplement parce que tu as amené un junior ici pour sa culture? »
+Zhan Konglie fronça les sourcils et regarda inconsciemment Wang Lin. Il dit lentement: « Quelles grandes paroles. Cet endroit appartient-il à ta famille Shengong? Interdirais-tu l'accès aux étrangers simplement parce que tu as amené un cadet ici pour sa culture? »
 
 Shengong Hu ricana sans toutefois s'expliquer. Il dit froidement: « Si tu ne pars pas dans trois respirations, alors autant ne plus repartir du tout! » Il détestait profondément cet homme talentueux de la famille Zhan. Si leurs forces n'étaient pas si proches, les deux se seraient déjà affrontés.
 
@@ -46,7 +46,7 @@ Après tout, cet homme n'était pas un messager du Temple Céleste du Tonnerre. 
 
 Les yeux de Zhan Konglie se plissèrent et il recula immédiatement. Homme prudent, ses yeux tombèrent en reculant sur Wang Lin, qui se trouvait dans les profondeurs du lac de tonnerre. Le doute dans son cœur s'intensifia.
 
-« Pourquoi Shengong Hu parle-t-il ainsi? Ses blessures sont flagrantes pour quiconque sait observer. Bluffe-t-il? S'il ne bluffe pas, il doit y avoir une raison... Serait-ce ce junior? » Zhan Konglie laissa défiler mille pensées.
+« Pourquoi Shengong Hu parle-t-il ainsi? Ses blessures sont flagrantes pour quiconque sait observer. Bluffe-t-il? S'il ne bluffe pas, il doit y avoir une raison... Serait-ce ce cadet? » Zhan Konglie laissa défiler mille pensées.
 
 « Trois respirations se sont écoulées! » Shengong Hu eut un sourire sardonique et se leva. Le tonnerre emplit instantanément son corps dans un crépitement violent. Il chargea, suivi de près par la Bête de Tonnerre qui poussa un rugissement. Cependant, à la différence de son maître, la bête jeta inconsciemment un regard vers Wang Lin. Ses yeux étaient empreints d'une révérence sans la moindre trace de doute.
 
@@ -54,7 +54,7 @@ Le regard de la Bête de Tonnerre fit trembler l'esprit de Zhan Konglie. Bien qu
 
 Les informations révélées par les yeux de la bête étaient trop lourdes à concevoir. La réponse que ce regard suggérait fit vaciller l'âme de Zhan Konglie!
 
-En raison de sa prudence naturelle, il recula sans hésiter et cria: « Shengong Hu, je suis un homme de considération. Si nous nous battons ici, cela perturbera inévitablement la culture de ton junior. Si tu veux combattre, quittons cet endroit pour nous affronter hors du champ d'astéroïdes! » Il insista lourdement sur le mot « junior ».
+En raison de sa prudence naturelle, il recula sans hésiter et cria: « Shengong Hu, je suis un homme de considération. Si nous nous battons ici, cela perturbera inévitablement la culture de ton cadet. Si tu veux combattre, quittons cet endroit pour nous affronter hors du champ d'astéroïdes! » Il insista lourdement sur le mot « cadet ».
 
 Le regard de Shengong Hu devint glacial alors qu'il sortait du lac de tonnerre et ricana: « Pourquoi s'embêter ainsi? Ici, cela fera très bien l'affaire! »
 

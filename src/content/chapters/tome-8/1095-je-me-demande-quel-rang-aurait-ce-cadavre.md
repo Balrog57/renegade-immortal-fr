@@ -22,7 +22,7 @@ Mais cela restait secondaire. Le facteur crucial était la perception que Lie Yu
 
 C'est pourquoi il dut se résigner. Bien que son cœur saignât de douleur, il remit les Parchemins de Bataille.
 
-Une fois les parchemins rangés, le regard de Wang Lin s'anima et il dit d'un ton lent: « Je peux pardonner l'insulte faite à mon identité d'Empereur Divin. Cependant, il reste une affaire personnelle que j'aimerais discuter avec le Senior Lie Yunzi. »
+Une fois les parchemins rangés, le regard de Wang Lin s'anima et il dit d'un ton lent: « Je peux pardonner l'insulte faite à mon identité d'Empereur Divin. Cependant, il reste une affaire personnelle que j'aimerais discuter avec l'Aîné Lie Yunzi. »
 
 Le cœur de Lie Yunzi sombra tandis qu'il fixait Wang Lin en serrant les dents. « Vous avez déjà pris les Parchemins de Bataille et j'ai déjà payé le prix! Que voulez-vous de plus?! »
 
@@ -48,13 +48,13 @@ Wang Lin agita ses manches et les six Lou Fu furent aspirés dans son sac de ran
 
 « Je m'en vais! » Lie Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein de la Secte Divin de l'Oiseau Vermillon.
 
-« Ne partez pas si vite. J'ai une chose que je dois demander à Lie Yunzi de transmettre au Senior Maître Yan Leizi! » Wang Lin agita la main droite et un morceau de jade vola vers Lie Yunzi.
+« Ne partez pas si vite. J'ai une chose que je dois demander à Lie Yunzi de transmettre à l'Aîné Maître Yan Leizi! » Wang Lin agita la main droite et un morceau de jade vola vers Lie Yunzi.
 
 Lie Yunzi fronça les sourcils et son Sens Divin scruta le jade. Soudain, son expression changea radicalement; il leva les yeux, le regard brillant d'une intensité soudaine.
 
 « Cette affaire... »
 
-Wang Lin sourit sans rien ajouter. « Si le Senior Maître Yan Leizi est intéressé, il pourra venir me trouver à la Secte Divin de l'Oiseau Vermillon! »
+Wang Lin sourit sans rien ajouter. « Si l'Aîné Maître Yan Leizi est intéressé, il pourra venir me trouver à la Secte Divin de l'Oiseau Vermillon! »
 
 Lie Yunzi rangea soigneusement le jade. Puis, il regarda Wang Lin. Il avait l'impression de ne plus pouvoir percer l'âme de l'homme devant lui. Il poussa un soupir et partit précipitamment.
 
@@ -90,7 +90,7 @@ Pris d'une terreur pure, Lie Yunzi s'enfuit comme un possédé.
 
 Ce n'est que lorsque Lie Yunzi fut loin qu'une silhouette masculine apparut. L'homme portait des vêtements bleus et était très beau. Il observa la direction de la fuite de Lie Yunzi avant de secouer la tête et de disparaître.
 
-« Attaquer un junior par surprise avec un poison extrait de Situ Nan... Cette affaire... Ah, peu importe. Nous devons trop à Wang Lin... » L'homme soupira et s'évanouit dans l'air.
+« Attaquer un cadet par surprise avec un poison extrait de Situ Nan... Cette affaire... Ah, peu importe. Nous devons trop à Wang Lin... » L'homme soupira et s'évanouit dans l'air.
 
 Laissons de côté le sort de Lie Yunzi pour l'instant. Après avoir quitté la Secte Divin de l'Oiseau Vermillon, la femme de la Secte des Cadavres s'apprêtait à présenter ses hommages. Après avoir exprimé son souhait de former une alliance avec les Quatre Sectes Divins, elle allait prendre congé.
 

@@ -126,7 +126,7 @@ Cette scène stupéfia une fois de plus les trois frères Chen.
 
 Le Maître Yi Chen rendit rapidement le geste, mais son cœur était sous le choc. Il ne s'attendait pas à ce que Chen Feng manifeste une telle peur par la simple parole de Wang Lin.
 
-Le Maître Yi Chen joignit les mains et dit: « Camarade cultivateur Wang, j'ignorais que vous et le Senior Vent Creux étiez... »
+Le Maître Yi Chen joignit les mains et dit: « Camarade cultivateur Wang, j'ignorais que vous et l'Aîné Vent Creux étiez... »
 
 « C'est mon serviteur. » Wang Lin n'en dit pas plus. Il adressa un signe de tête au Maître Yi Chen et s'apprêta à partir.
 

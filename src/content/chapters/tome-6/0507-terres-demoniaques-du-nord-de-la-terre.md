@@ -124,4 +124,4 @@ L'homme nommé Guo secoua la tête et répondit: « Si l'on a de la chance, n'im
 
 La silhouette de Wang Lin progressait dans la chaîne de montagnes avec la rapidité de l'éclair, et son regard devint glacial.
 
-« La Secte de l'Épée Da Lou... intéressant. Ce sera une bonne occasion de tenter de trouver des informations sur l'emplacement du senior Zhou Yi. Je me demande simplement ce qu'est ce Fruit d'Or Brillant... »
+« La Secte de l'Épée Da Lou... intéressant. Ce sera une bonne occasion de tenter de trouver des informations sur l'emplacement de l'aîné Zhou Yi. Je me demande simplement ce qu'est ce Fruit d'Or Brillant... »

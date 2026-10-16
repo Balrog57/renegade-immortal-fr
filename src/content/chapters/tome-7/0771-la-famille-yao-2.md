@@ -81,7 +81,7 @@ Il savait que l'Ancêtre Sanguin pouvait entendre!
 
 « Est-il possible que votre fille, Yao Xixue, soit autorisée à comploter contre moi, mais que je ne sois pas autorisé à riposter?! Vous aimez votre fille, alors vous ne distinguez plus le bien du mal et ignorez les causes de vos actes. Bien que ce soit de l'amour, c'est un amour gâté!
 
-« Je vous ai donné une chance, mais le senior Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. J'ai compris le rôle d'un père il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
+« Je vous ai donné une chance, mais l'aîné Ancêtre Sanguin n'avait qu'une idée en tête: me tuer. À mes yeux, vos actions ne sont pas différentes de celles de Yao Xixue. J'ai compris le rôle d'un père il y a mille ans, mais vous ne le comprenez toujours pas aujourd'hui! » Wang Lin leva les yeux vers l'horizon et rangea le drapeau. Il ne se souciait plus de savoir si l'Ancêtre Sanguin comprenait.
 
 Il avait seulement besoin d'avoir la conscience tranquille, et cela suffisait!
 

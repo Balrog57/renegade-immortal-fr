@@ -1,6 +1,6 @@
 ---
 n: 1053
-title: La sueur froide du Maître Void
+title: La sueur froide du Maître du Vide
 book: 8
 bookTitle: "Alliance's Secret"
 en: Chapter 1053 - Master Voids Cold Sweat
@@ -80,7 +80,7 @@ Le temps passa lentement, et en un clin d'œil, sept jours s'écoulèrent. Duran
 
 Wang Lin laissa échapper un long soupir. Ses blessures s'étaient légèrement atténuées, mais les dangers latents persistaient. Heureusement, il disposait de suffisamment de pilules pour une guérison complète. Il en sortit d'autres et les avala après vérification.
 
-Cependant, son Sens Divin restait déployé, verrouillé sur l'entrée. Il attendait le Maître Void. Il était convaincu que le groupe de trois personnes dirigé par le Maître Void serait le premier à arriver.
+Cependant, son Sens Divin restait déployé, verrouillé sur l'entrée. Il attendait le Maître du Vide. Il était convaincu que le groupe de trois personnes dirigé par le Maître du Vide serait le premier à arriver.
 
 Le temps semblait s'étirer éternellement dans la salle, et il était facile d'en oublier la progression. Les blessures de Wang Lin guérissaient lentement grâce à l'abondance de pilules. Ce jour marquait le vingt-septième jour depuis que chacun attendait dans la salle.
 
@@ -90,26 +90,26 @@ Des fluctuations traversèrent le Sens Divin de Wang Lin. Lorsqu'il ouvrit les y
 
 Une silhouette entra lentement dans la salle. C'était une femme entourée de flocons de neige. Ces derniers dansaient autour d'elle dans une danse d'une beauté extrême.
 
-« C'est elle! » Wang Lin détourna le regard. La première personne à arriver n'était pas le groupe du Maître Void, mais la jeune fille en rose, soupçonnée d'être la Sainte du Vide Brillant.
+« C'est elle! » Wang Lin détourna le regard. La première personne à arriver n'était pas le groupe du Maître du Vide, mais la jeune fille en rose, soupçonnée d'être la Sainte du Vide Brillant.
 
 Son expression était calme. Ses yeux magnifiques balayèrent la salle et se posèrent particulièrement sur Wang Lin. Sans dire un mot, elle trouva un coin et s'assit.
 
 Moins de sept minutes après l'installation de la jeune fille, Wang Lin sentit à nouveau des fluctuations à l'extérieur. Il leva les yeux et vit trois silhouettes pénétrer dans la salle!
 
-Le Maître Void, la femme magnifique et l'homme vêtu de noir.
+Le Maître du Vide, la femme magnifique et l'homme vêtu de noir.
 
-Dès leur entrée, ils captèrent l'attention de tous. Le Maître Void remarqua immédiatement Wang Lin, et une intention meurtrière monstrueuse traversa son regard.
+Dès leur entrée, ils captèrent l'attention de tous. Le Maître du Vide remarqua immédiatement Wang Lin, et une intention meurtrière monstrueuse traversa son regard.
 
 Au moment où il vit Wang Lin, Wang Lin le vit aussi. Les yeux de ce dernier devinrent glacials et il déclara calmement: « Seigneur Ancien Démon, c'est lui qui m'a blessé! »
 
-À ces mots, Wang Wei et Hu Juan se tournèrent tous pour fixer le Maître Void. Même l'Ancien Démon Bei Lou regarda le Maître Void avec un sourire qui n'en était pas un.
+À ces mots, Wang Wei et Hu Juan se tournèrent tous pour fixer le Maître du Vide. Même l'Ancien Démon Bei Lou regarda le Maître du Vide avec un sourire qui n'en était pas un.
 
-Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers l'avant, s'approchant du Maître Void.
+Une intention meurtrière traversa les yeux de Zhou Yi alors qu'il flottait vers l'avant, s'approchant du Maître du Vide.
 
-Cette scène soudaine fit pousser un cri étouffé de stupeur chez le Maître Void; une sueur froide couvrit son front et son cœur s'emballa. Il ignorait ce que Wang Lin avait accompli durant ces quelques mois pour que ces gens viennent à sa rescousse!
+Cette scène soudaine fit pousser un cri étouffé de stupeur chez le Maître du Vide; une sueur froide couvrit son front et son cœur s'emballa. Il ignorait ce que Wang Lin avait accompli durant ces quelques mois pour que ces gens viennent à sa rescousse!
 
 Le Couple du Nuage Céleste et cet étrange homme chauve lui donnaient l'impression qu'il devait rester prudent, même à l'apogée de sa puissance. Or, en cet instant, il était gravement blessé et la moitié de son âme originelle lui manquait. Son niveau de culture était tombé du sommet du stade de Briseur du Nirvana au milieu de ce même stade.
 
 Il n'osait ni bouger, ni reculer. Il était la cible des regards de tous les occupants de la salle. Le moindre mouvement de sa part risquait de déclencher l'assaut général.
 
-« Je suis l'Ancien de l'Alliance de la Culture, le Maître Void, le frère cadet de l'Ancien Principal, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître Void s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Culture.
+« Je suis l'Ancien de l'Alliance de la Culture, le Maître du Vide, le frère cadet de l'Ancien Principal, le Maître Zhong Xuan. Que signifie tout cela? » Le Maître du Vide s'efforça de reprendre contenance et invoqua même l'autorité de l'Alliance de la Culture.

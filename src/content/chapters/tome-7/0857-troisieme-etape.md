@@ -110,7 +110,7 @@ Il était certain que l'ombre illusoire était un cultivateur de la troisième �
 
 C'était comme s'il n'avait besoin que d'une seule pensée pour provoquer l'effondrement du Domaine Méridional tout entier!
 
-Wang Lin ferma les yeux. Après un long moment, il réprima le choc dans son cœur, joignit les mains vers Qing Shui et dit: « Merci... Je me souviendrai à jamais que Senior m'a sauvé! »
+Wang Lin ferma les yeux. Après un long moment, il réprima le choc dans son cœur, joignit les mains vers Qing Shui et dit: « Merci... Je me souviendrai à jamais qu'Aîné m'a sauvé! »
 
 Les yeux de Qing Shui se tournèrent vers les étoiles lointaines, empreints de mélancolie. Après un long moment, cette tristesse se dissipa avant qu'il ne regarde Wang Lin et ne dise calmement: « Ne me remercie pas! Je me moque de la manière dont tu as appris "Appeler le Vent", mais puisque tu l'as appris, tu es un disciple d'une génération postérieure à mon Maître. Moi, Qing Shui, n'ai aucun lien dans ce système. Te rencontrer était l'arrangement de mon Maître... »
 

@@ -70,7 +70,7 @@ Une froideur empreinte d'une intention meurtrière retentit soudainement.
 
 Simultanément, cette voix percuta l'oreille de Zi Xin, lui faisant pâlir le visage. Les deux esclaves sanguins tremblèrent et crachèrent de larges bouffées de sang.
 
-Horrifiée, Zi Xin n'eut pas le temps de comprendre pourquoi cette voix lui semblait si familière. Elle s'inclina respectueusement et dit: « Cette junior ne savait pas que cet endroit était le lieu de culture en isolement de l'Aîné. Je vous prie d'excuser mon intrusion. Je m'en vais immédiatement. »
+Horrifiée, Zi Xin n'eut pas le temps de comprendre pourquoi cette voix lui semblait si familière. Elle s'inclina respectueusement et dit: « Cette cadet ne savait pas que cet endroit était le lieu de culture en isolement de l'Aîné. Je vous prie d'excuser mon intrusion. Je m'en vais immédiatement. »
 
 Le cuir chevelu engourdi par la peur, elle se retira sans hésiter, suivie des deux esclaves. Une fois dans l'espace, la terreur quitta ses yeux. Après avoir jeté un regard empreint de sens sur la planète, elle s'éloigna rapidement.
 

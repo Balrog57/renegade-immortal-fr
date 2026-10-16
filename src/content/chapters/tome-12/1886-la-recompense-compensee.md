@@ -96,7 +96,7 @@ Bien que la traversée du Continent du Démon Vert semblât dangereuse, cet endr
 
 Après tout, peu de gens imagineraient que Wang Lin oserait s'aventurer seul sur le Continent du Démon Vert...
 
-Sa décision prise, Wang Lin changea de direction et utilisa la Déformation Spatiale vers la Mer des Pillules. Il avança avec une prudence extrême.
+Sa décision prise, Wang Lin changea de direction et utilisa la Déformation Spatiale vers la Mer des Pilules. Il avança avec une prudence extrême.
 
 Lorsqu'il ne pouvait recourir à la Déformation Spatiale, il évitait de voler à découvert. Après tout, sur le Continent du Taureau Céleste, chacun était désormais son ennemi. Que ce soient les cultivateurs du Continent du Taureau Céleste ou ceux du Continent du Démon Vert, dès qu'on le reconnaîtrait, ce serait un massacre.
 
@@ -104,7 +104,7 @@ En effet, les cultivateurs ordinaires du Continent du Taureau Céleste ne connai
 
 Cependant, Wang Lin n'avait aucune envie de massacrer les cultivateurs de son propre continent; ainsi, chaque fois qu'il ne pouvait plus utiliser la Déformation Spatiale, il se mettait en retrait pour se cacher. Une fois le danger passé, il reprenait sa route.
 
-Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie Extrême et qu'il ne lui restait plus qu'une seule Déformation Spatiale pour atteindre la Mer des Pillules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
+Par conséquent, sa progression était bien plus lente. Lorsqu'il dépassa la Prairie Extrême et qu'il ne lui restait plus qu'une seule Déformation Spatiale pour atteindre la Mer des Pilules — un trajet qui aurait dû durer trois mois de vol —, plusieurs mois s'étaient déjà écoulés.
 
 Dans cette partie du Continent du Taureau Céleste, l'hiver était arrivé. La neige tombait du ciel et une tempête s'étendait sur des dizaines de milliers de kilomètres.
 
@@ -112,9 +112,9 @@ Il lui faudrait encore une demi-quinzaine de jours avant de pouvoir utiliser à 
 
 Non loin de lui, dans le crépuscule neigeux, une ville mortelle émettait des lueurs diffuses. La fumée s'élevait vers le ciel pour se fondre dans les flocons. C'était une scène empreinte de calme et de beauté.
 
-C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Astral Immortel. Bien que cet endroit fût encore éloigné de la Mer des Pillules, il était considéré comme un voisin immédiat, mais n'avait pas été détruit lors de l'effondrement de la Mer des Pillules.
+C'était la première fois que Wang Lin pénétrait dans le monde mortel du Continent Astral Immortel. Bien que cet endroit fût encore éloigné de la Mer des Pilules, il était considéré comme un voisin immédiat, mais n'avait pas été détruit lors de l'effondrement de la Mer des Pilules.
 
-Aucun mortel n'aurait dû périr lors de l'effondrement de la Mer des Pillules. Après tout, la légende de cet endroit existait depuis des éons. Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, ils avaient tous deux fait de la zone environnante une terre interdite pour les mortels.
+Aucun mortel n'aurait dû périr lors de l'effondrement de la Mer des Pilules. Après tout, la légende de cet endroit existait depuis des éons. Que ce soit le Continent du Démon Vert ou le Continent du Taureau Céleste, ils avaient tous deux fait de la zone environnante une terre interdite pour les mortels.
 
 Toutefois, si l'explosion de la Pilule Céleste avait eu lieu plus près du Continent du Taureau Céleste, la ville devant Wang Lin aurait été instantanément rayée de la carte.
 

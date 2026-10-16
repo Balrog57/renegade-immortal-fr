@@ -68,7 +68,7 @@ Le Maître Hong Shan, qui affrontait cinq cultivateurs du troisième stade, leva
 
 On pouvait dire que le Maître Hong Shan jouait un rôle crucial dans cette bataille. Il contenait tous les cultivateurs du troisième stade, à l'exception de celui du Palais de la Punition Céleste, qui était piégé par le jade du Seigneur du Royaume Scellé!
 
-Grâce à lui, aucun cultivateur du troisième stade ne pouvait interférer avec Wang Lin ni empêcher le Maître South Cloud de réparer la Formation de Scellement du Royaume!
+Grâce à lui, aucun cultivateur du troisième stade ne pouvait interférer avec Wang Lin ni empêcher le Maître Nuage du Sud de réparer la Formation de Scellement du Royaume!
 
 En levant les yeux, une lueur meurtrière brilla dans son regard. Il agita la main, et un nuage rouge enveloppa son corps ainsi que les cinq cultivateurs du troisième stade qui luttaient âprement contre lui. Puis, il chargea vers la Grande Maîtresse Yun Luo, les entraînant dans sa foulée!
 
@@ -80,7 +80,7 @@ Les expressions des cultivateurs entourant la Grande Maîtresse Yun Luo changèr
 
 Elle avait toujours été hautaine et orgueilleuse. Dans les Royaumes Intérieur et Extérieur, seules trois personnes étaient dignes d'elle. Même le Maître Hong Shan ne l'était pas!
 
-Elle attendait l'arrivée du Maître Hong Shan ou du Maître South Cloud! À l'instant où le Maître Hong Shan arriva, une vague de glace jaillit et enveloppa le Royaume Intérieur.
+Elle attendait l'arrivée du Maître Hong Shan ou du Maître Nuage du Sud! À l'instant où le Maître Hong Shan arriva, une vague de glace jaillit et enveloppa le Royaume Intérieur.
 
 Les neuf planètes gelées du Système Stellaire Antique tremblèrent. Le garçon à l'intérieur de la glace sourit et fit un pas en avant!
 
@@ -116,7 +116,7 @@ La mort brutale de ces 10 000 cultivateurs sema la terreur parmi les survivants 
 
 Ce fut la parole suivante de la femme en rouge qui acheva de briser ce moral fragile!
 
-« Cette petite fille, Yun Luo, a tout calculé. Le but de cette bataille est de vous éliminer, vous et le Maître South Cloud! Le garçon glacial avait deviné que vous tenteriez de sauver ces fourmis de la Mer Nuageuse en stoppant la tempête. Yun Luo a compris que vous ne me remarqueriez pas dans l'urgence, alors je me suis cachée à l'intérieur pour porter un coup décisif! »
+« Cette petite fille, Yun Luo, a tout calculé. Le but de cette bataille est de vous éliminer, vous et le Maître Nuage du Sud! Le garçon glacial avait deviné que vous tenteriez de sauver ces fourmis de la Mer Nuageuse en stoppant la tempête. Yun Luo a compris que vous ne me remarqueriez pas dans l'urgence, alors je me suis cachée à l'intérieur pour porter un coup décisif! »
 
 Ces mots plongèrent les derniers cultivateurs de la Mer Nuageuse dans le désespoir. Tout n'était qu'un rouage du plan ennemi. Que valait leur gloire désormais?
 
@@ -128,9 +128,9 @@ Les innombrables cultivateurs se précipitèrent vers les rangs de la Mer Nuageu
 
 Le carnage fut effroyable!
 
-Souriante, la femme en rouge ne prêta aucune attention au Maître Hong Shan et fonça droit sur le sombre Maître South Cloud, qui s'efforçait de réparer la Formation de Scellement du Royaume!
+Souriante, la femme en rouge ne prêta aucune attention au Maître Hong Shan et fonça droit sur le sombre Maître Nuage du Sud, qui s'efforçait de réparer la Formation de Scellement du Royaume!
 
-Sa vitesse était fulgurante. Le Maître South Cloud poussa un soupir et abandonna la réparation de la formation. Il se retourna pour affronter la concubine impériale aux côtés de Ling Dong et Zhou Jin!
+Sa vitesse était fulgurante. Le Maître Nuage du Sud poussa un soupir et abandonna la réparation de la formation. Il se retourna pour affronter la concubine impériale aux côtés de Ling Dong et Zhou Jin!
 
 Le corps glacial ne laissa aucun répit au Maître Hong Shan. Tel un bloc de glace éternelle, il chargea le Maître Hong Shan, rejoignant les cinq autres cultivateurs du troisième stade pour l'assaillir de toutes parts!
 

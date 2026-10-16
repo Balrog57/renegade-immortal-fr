@@ -12,11 +12,11 @@ Le fou continuait d'observer la réaction de Wang Lin. Il se gratta la tête et 
 
 Wang Lin répondit par le silence et poursuivit sa culture, les yeux fermés.
 
-« Tu ne veux pas parler? Tu oses garder le silence?! Quand j'ai attrapé Little Red, il ne parlait pas non plus, alors je lui ai arraché tous ses poils. Tu veux deviner ce qui s'est passé? » bafouilla le fou, avant de s'approcher encore davantage. Il s'assit face à Wang Lin et se mit à bavarder sans relâche.
+« Tu ne veux pas parler? Tu oses garder le silence?! Quand j'ai attrapé Petit Rouge, il ne parlait pas non plus, alors je lui ai arraché tous ses poils. Tu veux deviner ce qui s'est passé? » bafouilla le fou, avant de s'approcher encore davantage. Il s'assit face à Wang Lin et se mit à bavarder sans relâche.
 
-« Tu ne peux pas deviner. Ce roi a fait subir à Little Red... Haha... Ha... He... » Le fou éclata d'un rire dément en se tenant le ventre. Après avoir ri longuement, il fixa Wang Lin avec une lueur malveillante.
+« Tu ne peux pas deviner. Ce roi a fait subir à Petit Rouge... Haha... Ha... He... » Le fou éclata d'un rire dément en se tenant le ventre. Après avoir ri longuement, il fixa Wang Lin avec une lueur malveillante.
 
-« Pourquoi ne ris-tu pas? Le roi n'est pas drôle? Quand ce roi parle, même la famille Li est obligée de rire. Si tu n'oses pas rire, alors j'irai chercher mon grand frère!... Il semble que je ne t'aie pas dit ce que j'ai fait à Little Red. Pourquoi ne me demandes-tu pas ce que je lui ai fait? Hmph, même si tu ne me le demandes pas, ce roi va quand même te le dire. À l'époque... Euh, j'ai oublié... » Le fou fronça les sourcils et se frappa la tête, le regard empli de confusion.
+« Pourquoi ne ris-tu pas? Le roi n'est pas drôle? Quand ce roi parle, même la famille Li est obligée de rire. Si tu n'oses pas rire, alors j'irai chercher mon grand frère!... Il semble que je ne t'aie pas dit ce que j'ai fait à Petit Rouge. Pourquoi ne me demandes-tu pas ce que je lui ai fait? Hmph, même si tu ne me le demandes pas, ce roi va quand même te le dire. À l'époque... Euh, j'ai oublié... » Le fou fronça les sourcils et se frappa la tête, le regard empli de confusion.
 
 « Bon sang, pourquoi ai-je encore oublié? »
 

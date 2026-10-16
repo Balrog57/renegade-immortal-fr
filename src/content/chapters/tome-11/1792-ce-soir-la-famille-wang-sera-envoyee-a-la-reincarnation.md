@@ -34,11 +34,11 @@ De l'autre côté de la porte, seuls Wang Lin et Xuan Luo restèrent.
 
 Xuan Luo regarda Wang Lin et dit d'une voix lente: « Ils sont tous passés de l'autre côté. Ce vieux va activer ses sorts pour résister aux lois du Continent Astral Immortel. Quand comptes-tu entrer? »
 
-Les yeux de Wang Lin s'illuminèrent. Il fixa la porte et demanda soudainement: « Senior pourrait-il envoyer quelques personnes supplémentaires pour se réincarner sur le Continent Astral Immortel? »
+Les yeux de Wang Lin s'illuminèrent. Il fixa la porte et demanda soudainement: « Aîné pourrait-il envoyer quelques personnes supplémentaires pour se réincarner sur le Continent Astral Immortel? »
 
 « Aucun problème. Je pensais qu'il y en aurait des centaines, voire des milliers. Puisqu'ils sont moins de vingt, ce n'est pas une charge trop lourde pour moi. Tant que tu n'en amènes pas trop, cela ne posera aucun souci. » Xuan Luo sourit.
 
-« Je demanderai à Senior de m'attendre encore cinq jours. J'amènerai d'autres personnes pour la réincarnation! » Les yeux de Wang Lin devinrent froids et sa voix se fit calme.
+« Je demanderai à l'Aîné de m'attendre encore cinq jours. J'amènerai d'autres personnes pour la réincarnation! » Les yeux de Wang Lin devinrent froids et sa voix se fit calme.
 
 Il y avait quelques individus que Wang Lin n'avait pas encore amenés pour ne pas trop solliciter Xuan Luo. Il n'existait aucune haine directe entre eux, mais pour la paix du monde des grottes, ils se trouvaient dans une situation où « les tuer ou les laisser vivre » était une option constante. Après avoir entendu les paroles de Xuan Luo, Wang Lin changea d'avis.
 
@@ -48,9 +48,9 @@ Cette nouvelle formation était une création personnelle de Wang Lin. Familier 
 
 « Les cinq Maîtres du Système Stellaire Antique... Le Souverain a été scellé par moi et Rêve Bleu s'est déplacé vers le Royaume Intérieur. Il ne reste que Miao Yin, Dieu du Vide et Neuf Cieux. Si je les laisse tranquilles, ces trois-là deviendront un problème. Puisqu'ils sont affaiblis, je vais les traquer un par un pour les envoyer à la réincarnation! » Le regard de Wang Lin était glacial alors qu'il pénétrait dans le Système Stellaire Antique. Son Sens Divin se déploya soudainement dans toutes les directions.
 
-Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage de l'Ancient Dao était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
+Depuis les événements au cœur du monde des grottes, il avait atteint le sommet du stade Vide Spirituel et son héritage de l'Dao Antique était presque complet. À cet instant, Wang Lin possédait la puissance nécessaire pour affronter des cultivateurs de stade Vide Arcanique tardif!
 
-Avec un tel niveau de culture, ses sept essences et ses sorts de l'Ancient Dao, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
+Avec un tel niveau de culture, ses sept essences et ses sorts de l'Dao Antique, ces trois maîtres blessés du Système Stellaire Antique n'étaient plus à sa mesure!
 
 Alors que le puissant Sens Divin de Wang Lin balayait les environs, ses yeux brillèrent. Il fit un pas en avant et disparut.
 

@@ -110,6 +110,6 @@ Une aura de mort emplissait le corps de Li Yuan. Il afficha un sourire amer et u
 
 Parmi les trois se trouvaient deux hommes et une femme. La femme était magnifique et ses yeux dégageaient un charme séduisant. Elle tenait actuellement l'une des épées célestes que Li Yuan avait récupérées dans l'espace de stockage céleste!
 
-Les deux hommes étaient un jeune et un vieux. Le plus jeune sourit en regardant la femme et dit calmement: « Cet homme en possède encore huit autres. Puisque la Sœur Junior Xia les aime, une fois que je les aurai récupérées et que j'aurai découvert d'où elles viennent, je te les offrirai toutes. » La culture de cet homme se situait également au sommet du stade avancé tardif de l'Ascendant, mais celle du vieil homme n'était pas ordinaire.
+Les deux hommes étaient un jeune et un vieux. Le plus jeune sourit en regardant la femme et dit calmement: « Cet homme en possède encore huit autres. Puisque la Sœur Cadette Xia les aime, une fois que je les aurai récupérées et que j'aurai découvert d'où elles viennent, je te les offrirai toutes. » La culture de cet homme se situait également au sommet du stade avancé tardif de l'Ascendant, mais celle du vieil homme n'était pas ordinaire.
 
 Si Wang Lin avait été présent, il aurait immédiatement compris que ce vieil homme se trouvait au sommet du stade de l'Yin Illusoire.

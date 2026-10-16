@@ -105,7 +105,7 @@ Wang Lin esquissa un léger sourire, une lueur de sagesse brillant dans ses yeux
 
 La silhouette de Zhou Yi apparut au-dessus de l'épée céleste. Il regarda Wang Lin avec une stupeur manifeste. Pour la première fois, il ressentit la terreur que pouvait inspirer Wang Lin! Le niveau de culture de ce dernier n'était qu'au début du stade Ascendant. S'il ne lui avait pas donné le Cristal Ascendant, Wang Lin n'aurait probablement jamais survécu à l'épreuve de vie ou de mort.
 
-Dans l'esprit de Zhou Yi, Wang Lin était un junior intègre et sentimental. Bien qu'il lui soit reconnaissant, il ne le considérait pas comme son égal.
+Dans l'esprit de Zhou Yi, Wang Lin était un cadet intègre et sentimental. Bien qu'il lui soit reconnaissant, il ne le considérait pas comme son égal.
 
 Cependant, l'image qu'il avait de lui changea radicalement après ces paroles.
 

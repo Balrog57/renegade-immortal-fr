@@ -60,7 +60,7 @@ Le singe né de la lumière jaune ne fut aucunement perturbé par les ondes sono
 
 Le visage de la jeune fille pâlit subitement et elle cracha une petite quantité de sang. Elle lança un regard assassin à Cheng Xian, tandis que toutes les filles derrière elle, les yeux brûlants de rage, sortaient leurs trésors, prêtes à l'attaque.
 
-Quant au son des cloches qui se dirigeait vers Wang Lin, il marqua un léger temps d'arrêt devant lui avant de disparaître mystérieusement sans laisser de trace. Bien que la culture de Wang Lin fût encore modeste, son instinct aiguisé et sa maîtrise des restrictions étaient indéniables. Cela suffisait amplement pour neutraliser l'attaque d'une simple junior au stade de la Formation du Noyau; ses restrictions avaient frappé précisément tous les points faibles des ondes sonores.
+Quant au son des cloches qui se dirigeait vers Wang Lin, il marqua un léger temps d'arrêt devant lui avant de disparaître mystérieusement sans laisser de trace. Bien que la culture de Wang Lin fût encore modeste, son instinct aiguisé et sa maîtrise des restrictions étaient indéniables. Cela suffisait amplement pour neutraliser l'attaque d'une simple cadet au stade de la Formation du Noyau; ses restrictions avaient frappé précisément tous les points faibles des ondes sonores.
 
 Le singe de lumière jaune tourna soudainement la tête vers Wang Lin avec une expression étrange. Puis, son corps se dissipa pour redevenir une lueur jaune que Cheng Xian absorba.
 
@@ -72,7 +72,7 @@ Wang Lin resta impassible face à la jeune fille. Il dit simplement: « La perso
 
 Cheng Xian enchaîna rapidement: « La personne qu'il cherche, c'est Lou Yue. »
 
-La jeune fille, Cheng Lin, fronça les sourcils et demanda d'un ton féroce: « Et pourquoi cherchez-vous la junior sœur Lou Yue? »
+La jeune fille, Cheng Lin, fronça les sourcils et demanda d'un ton féroce: « Et pourquoi cherchez-vous la sœur cadette Lou Yue? »
 
 Wang Lin eut un petit rire et répliqua: « Qu'est-ce que ça peut vous faire? »
 
@@ -92,7 +92,7 @@ Cheng Xian soupira. Il sortit un jade de transmission vocale de son sac et le te
 
 En approchant, elle sauta de la grue et demanda à Wang Lin: « Vous êtes venu me chercher? »
 
-Cheng Lin fronça les sourcils: « Junior sœur Yue, vous connaissez cet homme? »
+Cheng Lin fronça les sourcils: « sœur cadette Yue, vous connaissez cet homme? »
 
 Lou Yue se retourna rapidement: « Je le connais, sœur aînée. Il a rejoint la secte en même temps que moi. »
 
@@ -108,7 +108,7 @@ Lou Yue frappa le sol du pied en criant: « C'est vrai?! Il m'a fait venir juste
 
 Cheng Xian soupira intérieurement, pensant que le frère Wang Lin était un véritable maître: face à une fille aussi ravissante, il restait de marbre. Cheng Xian eut l'impression qu'il n'atteindrait jamais un tel degré de maîtrise de soi.
 
-Il prit une grande inspiration et dit: « Lou Yue, junior sœur... enfin, grande sœur, auriez-vous un moment? Je suis un très bon ami du frère Wang Lin. Je me suis occupé de lui lors de son entrée dans la secte, pourriez-vous donc l'aider pour ce qu'il vient de demander? »
+Il prit une grande inspiration et dit: « Lou Yue, sœur cadette... enfin, grande sœur, auriez-vous un moment? Je suis un très bon ami du frère Wang Lin. Je me suis occupé de lui lors de son entrée dans la secte, pourriez-vous donc l'aider pour ce qu'il vient de demander? »
 
 Lou Yue jeta un regard dédaigneux à Cheng Xian et grommela: « Toi, tu es l'aîné, hmph. » Elle fixa intensément la direction prise par Wang Lin. Après avoir murmuré quelques mots pour elle-même, elle agita la clochette qu'elle tenait. Une grue apparut soudainement et se posa près d'elle. Elle monta sur l'animal qui s'envola aussitôt.
 

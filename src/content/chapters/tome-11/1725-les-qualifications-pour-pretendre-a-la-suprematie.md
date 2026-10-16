@@ -30,7 +30,7 @@ Cela fit changer l'expression de l'Omniscient une fois de plus!
 
 L'Omniscient resta silencieux un instant pour réfléchir, puis une intention meurtrière embrasa son regard alors qu'il fixait Wang Lin. Il chargea sans l'ombre d'une hésitation!
 
-« Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Devant moi, tu n'es qu'une fourmi, tu n'es pas l'âme de Seven-Colored. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
+« Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Devant moi, tu n'es qu'une fourmi, tu n'es pas l'âme de Sept-Couleurs. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
 
 L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Maître du Dao Rêve Bleu s'avança. D'un revers de manche, il frappa l'Omniscient.
 
@@ -82,7 +82,7 @@ La fusion des 3 000 âmes était parfaite et ne pouvait être séparée. Cependa
 
 Elles hurlaient toutes simultanément!
 
-« Qui diable es-tu?! Tu n'es ni les trois âmes, ni les sept fragments de Seven-Colored. Tu n'es qu'un mortel issu de ma propre grotte. Tu ne peux pas faire ça, je refuse d'y croire!!! »
+« Qui diable es-tu?! Tu n'es ni les trois âmes, ni les sept fragments de Sept-Couleurs. Tu n'es qu'un mortel issu de ma propre grotte. Tu ne peux pas faire ça, je refuse d'y croire!!! »
 
 « Tu n'es qu'une partie du Dao Céleste, mais moi, je suis le maître du Dao Céleste... » Wang Lin regarda les 2 999 âmes qui rugissaient de concert. Ces âmes étaient habitées par la folie, la confusion, ainsi que par la douleur et l'incrédulité.
 

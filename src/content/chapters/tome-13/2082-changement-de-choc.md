@@ -84,11 +84,11 @@ Xuan Luo observa la tempête marine et dit lentement à Wang Lin: « Quelque cho
 
 « Par conséquent, les rugissements du Royaume Divin Immémorial dureront encore plus longtemps et seront encore plus violents... Même les membres du clan ayant 27 étoiles et ayant pleinement intégré les trois pouvoirs ne pourront pas venir... » Xuan Luo afficha une expression inquiète.
 
-Wang Lin fixa la tempête marine. Il avait vécu longtemps au sein du clan Ancien et savait qu'un membre de 27 étoiles ayant pleinement intégré les trois pouvoirs était comparable à un Exalt Doré.
+Wang Lin fixa la tempête marine. Il avait vécu longtemps au sein du clan Ancien et savait qu'un membre de 27 étoiles ayant pleinement intégré les trois pouvoirs était comparable à un Exalté Doré.
 
 Autrefois, lors de l'ouverture du Royaume Divin Immémorial, les deux camps envoyaient une multitude de cultivateurs de la Tribulation du Vide pour tester leur chance.
 
-Cependant, ces individus n'étaient pas les plus importants; les véritables enjeux résidaient dans les Exalts Dorés, les Exalts Célestes et, par-dessus tout, les Empereurs Ascendants.
+Cependant, ces individus n'étaient pas les plus importants; les véritables enjeux résidaient dans les Exaltés Dorés, les Exaltés Célestes et, par-dessus tout, les Empereurs Ascendants.
 
 Pourtant, les grondements étaient survenus une semaine en avance... cela signifiait-il qu'un accident surviendrait dans une semaine? Xuan Luo semblait hésitant.
 

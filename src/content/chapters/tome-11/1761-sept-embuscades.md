@@ -60,9 +60,9 @@ Le sang fut instantanément absorbé par le visage fantomatique. En seulement tr
 
 Une fois le visage disparu, le monde sembla transmuté, bien qu'il fût difficile de discerner la nature exacte du changement. Cette illusion spectrale était la quatrième embuscade de Wang Lin!
 
-Le front de Wang Lin était trempé de sueur. Il s'essuya et prit une profonde inspiration. Il pointa le ciel de sa main droite et un rugissement fit trembler l'univers. Un minuscule point spectral apparut, puis se dilata rapidement pour devenir la Bête du Nether. Bien que son corps ne fût pas totalement déployé — mesurant seulement 1 000 pieds —, ses yeux froids et impitoyables auraient pu glacer le cœur de n'importe qui.
+Le front de Wang Lin était trempé de sueur. Il s'essuya et prit une profonde inspiration. Il pointa le ciel de sa main droite et un rugissement fit trembler l'univers. Un minuscule point spectral apparut, puis se dilata rapidement pour devenir la Bête des Limbes. Bien que son corps ne fût pas totalement déployé — mesurant seulement 1 000 pieds —, ses yeux froids et impitoyables auraient pu glacer le cœur de n'importe qui.
 
-Sous l'ordre de Wang Lin, la Bête du Nether ferma les yeux et son corps s'amincit, se transformant finalement en une brume épaisse qui enveloppa le monde. Tout devint flou dans ce brouillard impénétrable. Cette Bête du Nether était la cinquième embuscade!
+Sous l'ordre de Wang Lin, la Bête des Limbes ferma les yeux et son corps s'amincit, se transformant finalement en une brume épaisse qui enveloppa le monde. Tout devint flou dans ce brouillard impénétrable. Cette Bête des Limbes était la cinquième embuscade!
 
 L'avatar de Wang Lin se rassit sur le sable jaune, accablé par la fatigue. C'était la première fois qu'il déployait une telle série de sorts simultanément. Dans un combat ordinaire, il n'aurait jamais eu le temps de les enchaîner ainsi, mais ici, l' circumstances le permettaient.
 

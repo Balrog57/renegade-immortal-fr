@@ -28,7 +28,7 @@ L’Éminence Taureau Vert fronça les sourcils et fixa Wang Lin. Il prit le jad
 
 Après avoir vu tout ce que Wang Lin avait accompli pour trancher la Pilule Céleste, l’Éminence Taureau Vert prit une profonde inspiration. Il regarda Wang Lin avec un éclat mystérieux dans les yeux.
 
-Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pillules.
+Avec son niveau de culture, il pouvait naturellement juger que tout ce qu'il avait vu dans le jade était vrai. Grâce à ses propres divinations et aux rapports secrets qu'il avait reçus, il parvint à reconstituer clairement dans son esprit ce qui s'était passé dans la Mer des Pilules.
 
 Bien que Wang Lin fût guéri à 80 ou 90 %, il restait cette trace de blessure qui ne pouvait cicatriser rapidement. Tout cela confirmait l'authenticité de ce qui était enregistré dans le jade.
 

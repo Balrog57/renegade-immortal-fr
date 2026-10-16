@@ -96,7 +96,7 @@ La nuit n'existait plus et tout disparut. Tout revint à la normale, comme si ri
 
 « C'est... c'est le sort qu'il a passé deux mois à comprendre... C'est terrifiant! Si un tel pouvoir m'était infligé, seule la mort me serait réservée! »
 
-« Maître Fu Fengzi est un cultivateur de Purificateur du Nirvana, et pourtant il a été contraint de battre en retraite. Si Senior Wang n'avait pas été dépourvu d'intention meurtrière, il aurait été presque impossible pour Maître Fu Fengzi d'échapper à ce désastre! »
+« Maître Fu Fengzi est un cultivateur de Purificateur du Nirvana, et pourtant il a été contraint de battre en retraite. Si Aîné Wang n'avait pas été dépourvu d'intention meurtrière, il aurait été presque impossible pour Maître Fu Fengzi d'échapper à ce désastre! »
 
 Les trois frères Chen se regardèrent, partageant la même terreur dans leurs yeux.
 

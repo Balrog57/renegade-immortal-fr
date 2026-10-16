@@ -74,7 +74,7 @@ Sa voix était chargée d'un ressentiment désormais gravé dans ses os.
 
 Après avoir observé le jeune homme, le regard de Wang Lin se posa sur le vieillard.
 
-Le jeune homme barrait la vue de Wang Lin. Il l'observa un instant, puis, après une courte réflexion, il s'agenouilla brusquement. Il se mordit la lèvre inférieure jusqu'au sang et dit, avec un sourire amer: « Je vous en prie, ne tuez pas mon maître, tuez-moi à sa place! Je suis le chef junior de la Secte de l'Encre d'Eau. Si vous me capturez et me ramenez, vous serez certainement récompensés. Laissez mon maître partir, et je vous suivrai volontiers. Si vous refusez, vous n'obtiendrez que mon cadavre. »
+Le jeune homme barrait la vue de Wang Lin. Il l'observa un instant, puis, après une courte réflexion, il s'agenouilla brusquement. Il se mordit la lèvre inférieure jusqu'au sang et dit, avec un sourire amer: « Je vous en prie, ne tuez pas mon maître, tuez-moi à sa place! Je suis le chef cadet de la Secte de l'Encre d'Eau. Si vous me capturez et me ramenez, vous serez certainement récompensés. Laissez mon maître partir, et je vous suivrai volontiers. Si vous refusez, vous n'obtiendrez que mon cadavre. »
 
 Bien que le regard de Wang Lin fût calme, son cœur fut légèrement ému. Il fixa lentement le jeune homme, puis le vieil homme, avant de demander doucement: « Pourquoi vouloir échanger votre vie contre celle de votre maître? »
 
@@ -84,15 +84,15 @@ Le jeune homme resta silencieux un long moment avant de répondre avec amertume:
 
 Le jeune homme fut surpris, mais ses yeux s'illuminèrent d'espoir et d'excitation. Il courut aux côtés de son maître: « Maître, vous... vous êtes réveillé! »
 
-Wang Lin observa le vieil homme. Il joignit les mains et dit: « Ce disciple salue le Senior de la Secte de l'Encre d'Eau. »
+Wang Lin observa le vieil homme. Il joignit les mains et dit: « Ce disciple salue l'Aîné de la Secte de l'Encre d'Eau. »
 
 Le vieillard toussa plusieurs fois, ses traits devenant encore plus livides. Grâce au domaine de la vie et de la mort de Wang Lin, il percevait clairement l'épaisse aura de mort qui entourait le vieil homme. Il touchait à sa fin.
 
 Le vieillard leva la tête, regarda Wang Lin et dit lentement: « Jeune ami, mes blessures sont trop lourdes pour que je puisse te saluer dignement; j'espère que tu me pardonneras. Que viens-tu faire ici? »
 
-Wang Lin soupira et répondit: « La cachette du Senior a été découverte par les cultivateurs de Xue Yu, il est donc préférable que vous partiez immédiatement! » Après une courte réflexion, il sortit un flacon de pilules et le poussa vers le lit.
+Wang Lin soupira et répondit: « La cachette de l'Aîné a été découverte par les cultivateurs de Xue Yu, il est donc préférable que vous partiez immédiatement! » Après une courte réflexion, il sortit un flacon de pilules et le poussa vers le lit.
 
-« Les blessures du Senior sont trop graves pour que ce flacon puisse les guérir, mais il pourra au moins atténuer la douleur liée à la perte de sa culture. Cela devrait permettre au Senior de quitter ces lieux. Le monde est vaste, d'autres occasions de restaurer votre culture pourraient se présenter. »
+« Les blessures de l'Aîné sont trop graves pour que ce flacon puisse les guérir, mais il pourra au moins atténuer la douleur liée à la perte de sa culture. Cela devrait permettre à l'Aîné de quitter ces lieux. Le monde est vaste, d'autres occasions de restaurer votre culture pourraient se présenter. »
 
 Le vieil homme esquissa un faible sourire. Sans même regarder les pilules, il dit: « Jeune ami, j'ignore de quel secteur tu viens, mais si j'avais voulu partir, je l'aurais fait depuis longtemps. Je pourrais partir dès maintenant, quitte à accélérer la perte de ma culture, mais sais-tu pourquoi je ne suis pas parti? »
 

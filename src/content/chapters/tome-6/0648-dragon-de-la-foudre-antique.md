@@ -10,7 +10,7 @@ Grâce à l'énergie de l'épée qui lui ouvrait une voie, Wang Lin utilisa tout
 
 Ce qu'il devait faire maintenant était d'augmenter la distance au maximum afin de gagner du temps jusqu'à l'arrivée de Zhou Yi.
 
-« Ce Cupidité possède trop de trésors. J'ignore combien d'autres objets étranges il cache dans ce sac. Même si Senior Zhou Yi l'emporte, je crains que cela ne prenne un certain temps », grommela Wang Lin en fronçant les sourcils. L'énergie de l'épée continuait de briser la résistance alors qu'il se précipitait vers le bas.
+« Ce Cupidité possède trop de trésors. J'ignore combien d'autres objets étranges il cache dans ce sac. Même si Aîné Zhou Yi l'emporte, je crains que cela ne prenne un certain temps », grommela Wang Lin en fronçant les sourcils. L'énergie de l'épée continuait de briser la résistance alors qu'il se précipitait vers le bas.
 
 Derrière lui, la seconde âme originelle de Cupidité le poursuivait de près. Cette âme ressemblait à une petite silhouette faite de cristal, entourée d'éclairs noirs.
 

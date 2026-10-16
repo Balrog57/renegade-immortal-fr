@@ -84,7 +84,7 @@ Cependant, rien n'est absolu. Nombreux étaient ceux qui ne reconnaissaient pas 
 
 Ces opinions étaient contenues de son vivant, mais dans les trois années suivant la mort de Su Dao, leurs voix s'étaient fait plus pressantes. Durant le silence de Wang Lin, elles s'étaient muées en un tumulte de doutes.
 
-Wang Lin n'accordait aucune importance à ces futilités. Il poursuivait sa vie tranquille avec Big Fortune.
+Wang Lin n'accordait aucune importance à ces futilités. Il poursuivait sa vie tranquille avec Grande Fortune.
 
 Son silence ne fit qu'encourager ses détracteurs à devenir plus audacieux. Ils admettaient qu'il fût l'élève de Su Dao, mais niaient qu'il méritât le titre de grand érudit. Poussée par des individus aux motivations obscures, cette polémique s'étendit jusqu'à résonner dans tout le royaume de Zhao.
 
@@ -116,9 +116,9 @@ Il n'avait aucune intention de prouver quoi que ce soit. Peu importaient les voi
 
 Cependant, tout a une limite, et la limite de Wang Lin était ses parents. La colère, la douleur, le chagrin et la fureur de ses parents étaient sa propre colère, sa propre douleur, sa propre tristesse et sa propre rage.
 
-« Big Fortune, prends les dispositions nécessaires. Je donnerai des cours pendant dix ans. Durant ces dix prochaines années, j'invite quiconque au monde à venir dans la ville de Su pour apprendre de moi. Si quelqu'un parvient à prouver qu'il est mon supérieur, il pourra me prendre ce manoir. » Wang Lin agita ses manches et partit.
+« Grande Fortune, prends les dispositions nécessaires. Je donnerai des cours pendant dix ans. Durant ces dix prochaines années, j'invite quiconque au monde à venir dans la ville de Su pour apprendre de moi. Si quelqu'un parvient à prouver qu'il est mon supérieur, il pourra me prendre ce manoir. » Wang Lin agita ses manches et partit.
 
-Derrière lui, Big Fortune, bien qu'ayant atteint un âge avancé, était resté le même qu'il y a vingt ans. Il était transporté d'enthousiasme, tout aussi indigné qu'il l'avait été ces trois dernières années. Ces gens qui autrefois le respectaient ne se contentaient plus de l'exclure, ils se montraient désormais méprisants à son égard.
+Derrière lui, Grande Fortune, bien qu'ayant atteint un âge avancé, était resté le même qu'il y a vingt ans. Il était transporté d'enthousiasme, tout aussi indigné qu'il l'avait été ces trois dernières années. Ces gens qui autrefois le respectaient ne se contentaient plus de l'exclure, ils se montraient désormais méprisants à son égard.
 
 En entendant les paroles de Wang Lin, une lueur d'attente brilla dans son expression fière. Il s'empressa d'organiser tout cela.
 

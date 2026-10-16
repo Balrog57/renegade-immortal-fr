@@ -8,11 +8,11 @@ slug: lascendant-empyreen-aux-cheveux-blancs
 ---
 Chapitre 1973 - L'Ascendant Empyréen aux cheveux blancs!
 
-« Ne flèches se dispersant en d'innombrables traits pour former une main... Cela atteint à peine la puissance d'un Empyréen Exalt ayant franchi le septième palais... Vous neuf devriez posséder la puissance d'un Empyréen Exalt ayant franchi le quatrième palais. »
+« Ne flèches se dispersant en d'innombrables traits pour former une main... Cela atteint à peine la puissance d'un Empyréen Exalté ayant franchi le septième palais... Vous neuf devriez posséder la puissance d'un Empyréen Exalté ayant franchi le quatrième palais. »
 
 « Digne du Manoir Li, vos fondations sont profondes! » dit lentement Wang Lin en avançant.
 
-« Et parmi vous trois se trouvent un Ascendant Empyréen du dixième palais et deux Empyréens Exalts du septième palais. Avec votre puissance combinée, vous pourriez atteindre le sommet du dixième palais. Je n'ai tué personne en chemin, mais si vous attaquez tous les trois, je ne me retiendrai pas! » Le regard de Wang Lin balaya les centaines de personnes devant lui et s'arrêta sur trois emplacements distincts.
+« Et parmi vous trois se trouvent un Ascendant Empyréen du dixième palais et deux Empyréens Exaltés du septième palais. Avec votre puissance combinée, vous pourriez atteindre le sommet du dixième palais. Je n'ai tué personne en chemin, mais si vous attaquez tous les trois, je ne me retiendrai pas! » Le regard de Wang Lin balaya les centaines de personnes devant lui et s'arrêta sur trois emplacements distincts.
 
 Alors que ses paroles résonnaient, trois vieillards apparurent à ces endroits. L'homme situé juste devant Wang Lin était l'Ascendant Empyréen!
 
@@ -28,7 +28,7 @@ Lorsque la pression atteint un certain seuil, elle se transforme en suppression.
 
 Des grondements de tonnerre résonnèrent. Tandis que la vision dorée de Wang Lin se propageait, les arcs entre les mains des membres du Manoir Li volèrent en éclats.
 
-Même les arcs tenus par les neuf Empyréens Exalts se brisèrent en plusieurs morceaux, comme s'ils ne pouvaient supporter la pression du regard de Wang Lin.
+Même les arcs tenus par les neuf Empyréens Exaltés se brisèrent en plusieurs morceaux, comme s'ils ne pouvaient supporter la pression du regard de Wang Lin.
 
 Quant aux trois vieillards les plus puissants, mis à part l'Ascendant Empyréen, d'innombrables fissures apparurent sur leurs arcs avant que ceux-ci ne rompent également.
 
@@ -38,7 +38,7 @@ Le rugissement et le regard oppressif de Wang Lin firent en sorte que plus perso
 
 À cet instant, un silence de mort tomba sur les environs. Aucun cri ne retentit, mais tous les cultivateurs dont l'arc avait été brisé haletèrent, le cœur pétrifié par la peur infinie que dégageait le regard de Wang Lin.
 
-En particulier, les Empyréens Exalts semblaient vaguement deviner l'identité de Wang Lin, et leurs expressions se muèrent en horreur.
+En particulier, les Empyréens Exaltés semblaient vaguement deviner l'identité de Wang Lin, et leurs expressions se muèrent en horreur.
 
 « L'Ascendant Empyréen aux cheveux blancs... » Une voix ancienne et amère s'éleva de la salle de pierre après un long moment. La porte fut poussée et un vieil homme aux cheveux blancs en sortit.
 
@@ -58,9 +58,9 @@ Ce qui les terrifiait davantage encore était qu'ils avaient, en réalité, tent
 
 « Donnez-moi des explications », dit calmement Wang Lin en observant le vieil homme sorti de la salle de pierre. Ce dernier était également un Ascendant Empyréen. Wang Lin estimait qu'il avait franchi le onzième palais et qu'il faisait partie des treize individus bloqués au douzième palais.
 
-« Le Manoir Li compte deux Ascendants Empyréens et onze Empyréens Exalts... Et il existe trois manoirs de cette envergure dans la cité ancestrale. » Après avoir observé le Manoir Li, Wang Lin avait une compréhension claire de la hiérarchie des quatre rois de la cité.
+« Le Manoir Li compte deux Ascendants Empyréens et onze Empyréens Exaltés... Et il existe trois manoirs de cette envergure dans la cité ancestrale. » Après avoir observé le Manoir Li, Wang Lin avait une compréhension claire de la hiérarchie des quatre rois de la cité.
 
-« Plus tôt, le support d'arc de l'ancêtre a émis un bourdonnement, ce qui signifie que l'arc était à proximité. Autrefois, l'arc de l'ancêtre fut transmis à Li Guang, puis disparut sans laisser de trace... Ayant remarqué le son provenant du support, j'ai envoyé deux Empyréens Exalts dorés pour vérifier, mais leur comportement fut quelque peu excessif. Après tout, l'arc de l'ancêtre est d'une importance capitale pour ma famille Li... » Bien que le vieil homme tentât de soutenir le regard de Wang Lin, il sentait faiblement que la force de suppression émanant de ses yeux était trop puissante.
+« Plus tôt, le support d'arc de l'ancêtre a émis un bourdonnement, ce qui signifie que l'arc était à proximité. Autrefois, l'arc de l'ancêtre fut transmis à Li Guang, puis disparut sans laisser de trace... Ayant remarqué le son provenant du support, j'ai envoyé deux Empyréens Exaltés dorés pour vérifier, mais leur comportement fut quelque peu excessif. Après tout, l'arc de l'ancêtre est d'une importance capitale pour ma famille Li... » Bien que le vieil homme tentât de soutenir le regard de Wang Lin, il sentait faiblement que la force de suppression émanant de ses yeux était trop puissante.
 
 Wang Lin resta silencieux, les yeux fixés sur le vieillard.
 

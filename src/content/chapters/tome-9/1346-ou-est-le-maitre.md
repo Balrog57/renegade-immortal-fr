@@ -84,7 +84,7 @@ Un homme d'âge moyen vêtu de bleu apparut avec cette voix. Son apparition fut 
 
 La magnifique femme s'écria instantanément de joie: « Parrain!! »
 
-« Un Brisueur de Nirvana au sommet! » Les pupilles de Xu Liguo se rétractèrent et son corps trembla. Juste au moment où il allait battre en retraite, l'homme d'âge moyen leva la main droite et fit un geste nonchalant.
+« Un Briseur de Nirvana au sommet! » Les pupilles de Xu Liguo se rétractèrent et son corps trembla. Juste au moment où il allait battre en retraite, l'homme d'âge moyen leva la main droite et fit un geste nonchalant.
 
 Le corps de Xu Liguo gronda et se fragmenta, se transformant en brume noire. La femme qu'il tenait fut enveloppée par une force douce et transportée aux côtés de l'homme d'âge moyen.
 

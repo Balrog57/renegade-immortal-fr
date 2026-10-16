@@ -62,7 +62,7 @@ Dans le Royaume Extérieur, son premier arrêt fut la Terre Déchue. Là, il vit
 
 Quelques jours plus tard, Wang Lin leva le sceau de la Terre Déchue pour permettre aux habitants de partir à leur guise. Il emporta avec lui l'objet le plus précieux de ce lieu: l'aiguille d'une boussole.
 
-Ses empreintes se firent sentir partout dans le Royaume Extérieur. Il vit l'Estimé Scattered Soul, cet ami qu'il admirait tant autrefois.
+Ses empreintes se firent sentir partout dans le Royaume Extérieur. Il vit l'Estimé Âme Dispersée, cet ami qu'il admirait tant autrefois.
 
 De même, Wang Lin aperçut un bébé sur une planète de culture dans le Royaume Extérieur.
 
@@ -114,7 +114,7 @@ Le dragon de mer les accompagnait, veillant à ce que personne dans le monde des
 
 Avant son départ, Liu Jinbiao avait confié avec sérieux à Xu Liguo qu'il souhaitait poursuivre la forme ultime de la tromperie. Il estimait que leur coopération était excellente, mais qu'une autre personne pourrait la rendre parfaite.
 
-Xu Liguo avait accepté. Après en avoir discuté, ils avaient porté leur attention sur Zhong Big Red avec une pointe de nostalgie. Ils décidèrent que leur première étape serait de retrouver Zhong Big Red.
+Xu Liguo avait accepté. Après en avoir discuté, ils avaient porté leur attention sur Zhong Grand Rouge avec une pointe de nostalgie. Ils décidèrent que leur première étape serait de retrouver Zhong Grand Rouge.
 
 Treize, fidèle à lui-même, restait sur la planète Suzaku. Il avait décidé de demeurer ici pour protéger son maître jusqu'à son réveil.
 

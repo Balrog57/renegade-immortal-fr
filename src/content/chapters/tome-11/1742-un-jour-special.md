@@ -66,17 +66,17 @@ Alors qu'il traversait les étoiles, le Grand Empereur Xuan Luo jeta un regard e
 
 « Cet enfant est très rusé. Malheureusement... c'est un être céleste... Je me demande qui de Wang Lin ou de lui est le plus astucieux... Ce devrait être cet homme... » Xuan Luo secoua la tête et continua sa route.
 
-Quant à Wang Lin, il était assis sur le dos de la Bête Nether, les yeux clos, en pleine régénération rapide. Il avait été gravement blessé lors de ce voyage sur la planète des Cinq Éléments, mais tout cela en valait la peine!
+Quant à Wang Lin, il était assis sur le dos de la Bête des Limbes, les yeux clos, en pleine régénération rapide. Il avait été gravement blessé lors de ce voyage sur la planète des Cinq Éléments, mais tout cela en valait la peine!
 
 Après un temps indéterminé, Wang Lin ouvrit soudainement les yeux. Une lueur froide traversa son regard et il recracha lentement une bouffée d'air fétide.
 
 « La Secte Gui Yi est une force puissante dans la quête de la troisième âme. Maintenant qu'ils ont été forcés de sortir de l'ombre par mon intermédiaire... il est temps que je m'implique moi-même dans cette recherche. »
 
-« Troisième âme, qui êtes-vous? » La main droite de Wang Lin tapota le dos de la Bête Nether. La bête accéléra soudainement et disparut parmi les étoiles.
+« Troisième âme, qui êtes-vous? » La main droite de Wang Lin tapota le dos de la Bête des Limbes. La bête accéléra soudainement et disparut parmi les étoiles.
 
 Lorsqu'elle réapparut, elle se trouvait à l'extérieur de la rivière argentée entourant le nouveau Royaume Céleste.
 
-Wang Lin se leva et rangea la Bête Nether. Il resta là à méditer longuement en flottant. Sa silhouette, illuminée par la rivière argentée, dégageait une profonde solitude; c'était comme si son âme elle-même était empreinte de tristesse.
+Wang Lin se leva et rangea la Bête des Limbes. Il resta là à méditer longuement en flottant. Sa silhouette, illuminée par la rivière argentée, dégageait une profonde solitude; c'était comme si son âme elle-même était empreinte de tristesse.
 
 « Aujourd'hui est un jour spécial... » Wang Lin soupira et fit un pas en avant. Il se changea en un rayon de lumière et plongea dans la rivière argentée, traversant le flux pour pénétrer dans le Royaume Céleste.
 

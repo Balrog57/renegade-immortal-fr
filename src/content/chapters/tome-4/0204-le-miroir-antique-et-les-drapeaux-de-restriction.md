@@ -111,7 +111,7 @@ Cette peau semblait très familière à Wang Lin, notamment par la manière dont
 
 Il demanda: « Puis-je savoir d'où elle provient? »
 
-S'il avait posé cette question au début de sa Formation du Noyau, il n'aurait rien obtenu. Mais avec son niveau actuel, la jeune fille lui répondit avec un sourire: « Vous n'êtes pas le premier à poser la question, Senior. Obtenir une peau aussi complète est extrêmement difficile; elle a été prélevée sur le dragon au moment même de sa mort. »
+S'il avait posé cette question au début de sa Formation du Noyau, il n'aurait rien obtenu. Mais avec son niveau actuel, la jeune fille lui répondit avec un sourire: « Vous n'êtes pas le premier à poser la question, Aîné. Obtenir une peau aussi complète est extrêmement difficile; elle a été prélevée sur le dragon au moment même de sa mort. »
 
 Wang Lin hocha la tête et reporta son attention sur la jeune fille. Celle-ci posa ses graines et ajouta doucement: « Pour être honnête, je ne sais pas qui l'a obtenue. Elle a été échangée ici il y a deux cents ans, dans une succursale de Nan Dou à l'extérieur de la Mer des Démons, contre un fourneau à pilules. La rumeur dit que le cultivateur qui l'a échangée est mort près de la Mer des Démons. »
 
@@ -141,7 +141,7 @@ Alors qu'il s'apprêtait à poser la treizième restriction après un court repo
 
 Elle hésita, serra les dents et, au lieu de ranger l'objet, elle le prit en main pour sortir silencieusement. Dehors, elle lança un regard chargé de haine vers la chambre de Wang Lin avant de le dissimuler promptement.
 
-Elle se tint devant sa porte et demanda: « Senior, êtes-vous là? » Elle resta immobile, attendant. Une heure plus tard, elle reprit respectueusement: « Senior, junior doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
+Elle se tint devant sa porte et demanda: « Aîné, êtes-vous là? » Elle resta immobile, attendant. Une heure plus tard, elle reprit respectueusement: « Aîné, ce cadet doit partir en voyage et souhaite solliciter votre permission. » Après avoir parlé, elle recula lentement. Même lorsqu'elle atteignit l'entrée de la grotte, Wang Lin ne réagit pas.
 
 Les yeux de la femme s'illuminèrent. Elle effleura doucement la porte et partit. Durant le mois où Wang Lin était resté cloîtré, elle procédait ainsi à chaque départ. Wang Lin ricana intérieurement et, après son départ, se leva pour la suivre.
 

@@ -108,7 +108,7 @@ Situ Nan le dévisagea et éclata de rire. « Je suis Situ Nan! »
 
 En observant les trois frères, Situ Nan secoua la tête. « Ce vieil homme possède déjà assez de femmes et de fours de culture, vos juniors ne m'intéressent guère. Cependant, le frère de ce vieil homme est encore très jeune. Voyons voir... à peine mille ans, il est donc encore tout jeune. Soyez sans crainte, mon frère est très beau, et ces deux juniors pourraient bien ne pas lui plaire. Ne me faites pas perdre mon temps. Faites-les sortir, ou je vous tuerai tous pour les emporter! »
 
-« Aîné, Zhao Xue peut partir avec vous, mais je vous en prie, épargnez ma sœur junior! » Au loin, deux traînées de lumière arrivèrent, révélant deux femmes. L'une était Zhao Xue et à ses côtés se tenait Ling Er, d'un calme absolu.
+« Aîné, Zhao Xue peut partir avec vous, mais je vous en prie, épargnez ma sœur cadette! » Au loin, deux traînées de lumière arrivèrent, révélant deux femmes. L'une était Zhao Xue et à ses côtés se tenait Ling Er, d'un calme absolu.
 
 Situ Nan plissa les yeux en balayant Zhao Xue du regard, se félicitant intérieurement. Les rumeurs étaient vraies: cette fille, Zhao Xue, était une beauté froide, un excellent matériau pour une concubine.
 

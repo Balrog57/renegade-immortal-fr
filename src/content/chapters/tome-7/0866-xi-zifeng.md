@@ -12,33 +12,33 @@ Sous la conduite du vieil homme, ils se dirigèrent droit vers le flanc est du T
 
 À quelques kilomètres de la salle, le vieil homme s'arrêta et sourit. « Cher cultivateur Xu, le Seigneur du Temple n'a convoqué que vous; je ne peux donc pas vous accompagner. Vous pourrez entrer sans difficulté par vous-même! »
 
-Le regard de Wang Lin se posa sur l'immense salle située à plusieurs kilomètres de là. Il se tourna vers le vieil homme et dit: « Senior, merci de m'avoir guidé! »
+Le regard de Wang Lin se posa sur l'immense salle située à plusieurs kilomètres de là. Il se tourna vers le vieil homme et dit: « Aîné, merci de m'avoir guidé! »
 
-« Je ne suis aucunement un Senior. Puisque le cultivateur Xu a été convoqué par le Seigneur du Temple, vous n'êtes certainement pas une simple petite prise dans l'étang. Le moment venu, nous devrions apprendre à mieux nous connaître. » Le vieil homme secoua la tête avant de prendre congé et de s'en aller.
+« Je ne suis aucunement un Aîné. Puisque le cultivateur Xu a été convoqué par le Seigneur du Temple, vous n'êtes certainement pas une simple petite prise dans l'étang. Le moment venu, nous devrions apprendre à mieux nous connaître. » Le vieil homme secoua la tête avant de prendre congé et de s'en aller.
 
 Wang Lin déploya prudemment son sens divin et s'envola vers l'avant. Il se rapprocha progressivement de la salle principale et, lorsqu'il fut à proximité, il vit une silhouette debout à l'extérieur. Bien que le dos de cette personne lui soit tourné, elle semblait aussi imposante qu'une montagne.
 
-« Maître Yan Leizi! » Wang Lin ne fut pas surpris. En approchant, il atterrit et joignit les mains. « Salutations, Senior Maître Yan Leizi! »
+« Maître Yan Leizi! » Wang Lin ne fut pas surpris. En approchant, il atterrit et joignit les mains. « Salutations, Aîné Maître Yan Leizi! »
 
 « Devrais-je t'appeler Maître Démon Xu Mu ou Wang Lin du Système Stellaire de l'Alliance? » Maître Yan Leizi se retourna et fixa calmement Wang Lin. En posant son regard sur lui, il parut quelque peu surpris.
 
 « Scruteur du Nirvana? Bien, très bien! »
 
-L'expression de Wang Lin resta impassible. Il ne paniqua pas lorsqu'on révéla son identité et répondit avec calme: « Xu Mu ou Wang Lin, peu importe. Je ne pense pas que Senior m'ait convoqué ici uniquement pour connaître mon véritable nom. »
+L'expression de Wang Lin resta impassible. Il ne paniqua pas lorsqu'on révéla son identité et répondit avec calme: « Xu Mu ou Wang Lin, peu importe. Je ne pense pas qu'Aîné m'ait convoqué ici uniquement pour connaître mon véritable nom. »
 
 Maître Yan Leizi regarda Wang Lin et esquissa un sourire qui laissait transparaître une lueur d'admiration. « Bien, tu es digne de celui qui est lié par le destin à ce vieil homme. Peu importe que tu sois Wang Lin ou Xu Mu. Je veux savoir si tu es prêt à participer à la bataille contre le Système Stellaire de l'Alliance. »
 
-Wang Lin réfléchit silencieusement un instant avant de répondre lentement: « La force du Junior est dérisoire; même si je participe, cela ne changera guère la donne. »
+Wang Lin réfléchit silencieusement un instant avant de répondre lentement: « La force du cadet est dérisoire; même si je participe, cela ne changera guère la donne. »
 
 « Un cultivateur Scruteur du Nirvana comme toi ose prétendre que sa force est dérisoire? » Maître Yan Leizi éclata de rire, mais une lueur de froideur passa dans ses yeux.
 
-Wang Lin pesait ses mots et finit par hocher la tête. « Puisque le Senior Maître Yan Leizi me valorise ainsi, alors je participerai à la guerre! » Wang Lin avait déjà pris cette décision en son for intérieur depuis longtemps. Puisqu'il était venu pour le concours des 108 titres célestes, il serait inévitablement entraîné dans l'affrontement contre le Système Stellaire de l'Alliance.
+Wang Lin pesait ses mots et finit par hocher la tête. « Puisque l'Aîné Maître Yan Leizi me valorise ainsi, alors je participerai à la guerre! » Wang Lin avait déjà pris cette décision en son for intérieur depuis longtemps. Puisqu'il était venu pour le concours des 108 titres célestes, il serait inévitablement entraîné dans l'affrontement contre le Système Stellaire de l'Alliance.
 
 « Très bien. Garde précieusement le jeton que je t'ai donné. Il pourrait te servir grandement à l'avenir! Considère-le aussi comme la fortune que je t'avais initialement promise! » Maître Yan Leizi agita sa manche et une bourrasque de vent surgit soudainement devant Wang Lin. Dans un éclat de lumière, un réseau de transfert apparut.
 
 « Utilise ce réseau pour partir. Dans trois jours, ce vieil homme se rendra personnellement pour observer la compétition avec quelques amis. Ton frère aîné, Qing Shui, y sera également! » Sur ces mots, Maître Yan Leizi se détourna et pénétra dans la salle.
 
-Wang Lin regarda Maître Yan Leizi et demanda calmement: « Senior Maître Yan Leizi, pourriez-vous rendre la Bête du Tonnerre du Junior? »
+Wang Lin regarda Maître Yan Leizi et demanda calmement: « Aîné Maître Yan Leizi, pourriez-vous rendre la Bête du Tonnerre du cadet? »
 
 « Une fois que le passage sera ouvert, je te le rendrai naturellement! » La silhouette de Maître Yan Leizi disparut dans l'antre.
 
@@ -48,11 +48,11 @@ Il n'y avait plus personne. Il était évident que tous avaient été conduits v
 
 À peine apparu, Wang Lin se retourna aussitôt. Une femme se tenait derrière lui. Elle était d'une beauté éblouissante, telle une sculpture de jade, vêtue d'une robe bleue aux motifs aquatiques.
 
-« Êtes-vous le Senior Xu Mu? » Sa voix était cristalline et très agréable à l'oreille.
+« Êtes-vous l'Aîné Xu Mu? » Sa voix était cristalline et très agréable à l'oreille.
 
 Wang Lin hocha la tête.
 
-« Je suis Chen Shan et, sur ordre du Messager, je devais attendre le Senior. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'un poing. Elle hésita alors, le visage empourpré, et ajouta doucement: « Si le Senior a besoin d'un fourneau de culture pendant sa pratique, il peut appeler le Junior à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
+« Je suis Chen Shan et, sur ordre du Messager, je devais attendre l'Aîné. Voici votre jeton pour cette compétition céleste. Quant à votre résidence, toutes les informations s'y trouvent. » L'expression de Chen Shan était empreinte de respect lorsqu'elle tendit à Wang Lin un jeton de la taille d'un poing. Elle hésita alors, le visage empourpré, et ajouta doucement: « Si l'Aîné a besoin d'un fourneau de culture pendant sa pratique, il peut appeler le cadet à l'aide du jeton. Le Temple Céleste du Tonnerre est disposé à offrir tout le soutien nécessaire aux participants de ce concours. »
 
 Une fois sa phrase achevée, son visage devint encore plus rouge; elle s'inclina et se retira. Sa silhouette était des plus séduisantes et, en partant, elle laissa entrevoir avec subtilité le charme qui émanait de ses formes sous sa robe.
 

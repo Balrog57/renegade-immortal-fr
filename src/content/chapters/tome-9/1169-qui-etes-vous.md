@@ -16,7 +16,7 @@ Wang Lin réfléchit silencieusement.
 
 Ce visage gracieux ressemblait à celui de Lu Yanfei, qui s'était tenue au sommet de son pavillon pour observer silencieusement Wang Lin lorsqu'il avait quitté le continent de Mo Luo. Sa voix douce aussi.
 
-« J'espère que Senior viendra à la compétition centenaire qui aura lieu dans la secte principale... » Avec l'intelligence de Lu Yanfei, elle pouvait comprendre que le continent de Mo Luo ne pourrait retenir Wang Lin. Après tout, ce n'était qu'un point d'appui, et il n'était qu'un passant...
+« J'espère qu'Aîné viendra à la compétition centenaire qui aura lieu dans la secte principale... » Avec l'intelligence de Lu Yanfei, elle pouvait comprendre que le continent de Mo Luo ne pourrait retenir Wang Lin. Après tout, ce n'était qu'un point d'appui, et il n'était qu'un passant...
 
 Elle savait qu'il partirait une fois l'affaire avec la Secte de l'Origine réglée. Son départ avait eu lieu presque immédiatement après la résolution du désastre de la Secte du Dao Pourpre. Une fois parti... elle ne le reverrait probablement jamais.
 

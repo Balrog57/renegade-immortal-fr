@@ -26,7 +26,7 @@ Mais s'il s'agissait bien de l'individu qu'il avait en tête, il devait voir de 
 
 « Cette affaire a été scellée par Xuan Luo, l'Ancien Dao l'ignore donc. Xuan Luo n'a même pas hésité à déclarer que quiconque violerait ce secret serait mis à mort, quelle que soit son identité! »
 
-« Un Grand Empereur n'a pas le droit de décider de mon destin. S'il a agi ainsi autrefois, c'est parce qu'il pensait que son disciple obtiendrait la reconnaissance de l'Empereur Exalt Gu Dao! »
+« Un Grand Empereur n'a pas le droit de décider de mon destin. S'il a agi ainsi autrefois, c'est parce qu'il pensait que son disciple obtiendrait la reconnaissance de l'Empereur Exalté Gu Dao! »
 
 « Mais il ne peut être un descendant de la famille royale. Je ne crois pas qu'il obtiendra jamais la reconnaissance du Grand Empereur Gu Dao!! » L'Empereur de l'Ancien Dao conservait son sourire serein, mais sous cette façade se cachaient des siècles de jalousie!
 
@@ -96,7 +96,7 @@ Dans le palais de la cité céleste, l'Empereur apparut dans son pavillon favori
 
 « Maître, j'attends depuis trois jours le cadeau que vous m'aviez promis. » Le sourire de Wang Lin rendit le visage de Xuan Luo encore plus tourmenté.
 
-« Tu viens du monde des grottes où ton statut était très élevé. Dans le clan céleste, tu es l'Empereur Exalt aux cheveux blancs, le premier sous les Grands Empereurs! Mais dans le clan Ancien, en raison de la suprématie du pouvoir impérial, tu dois courber l'échine... »
+« Tu viens du monde des grottes où ton statut était très élevé. Dans le clan céleste, tu es l'Empereur Exalté aux cheveux blancs, le premier sous les Grands Empereurs! Mais dans le clan Ancien, en raison de la suprématie du pouvoir impérial, tu dois courber l'échine... »
 
 « Ton Maître s'y attendait, mais j'ai maintenant le sentiment de t'avoir lésé... » Xuan Luo regarda son disciple.
 

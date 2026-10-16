@@ -26,7 +26,7 @@ De loin, la scène était saisissante. Le fourneau vert s'effondrait encore, dis
 
 C'est à cet instant que des ondulations résonnèrent et que trois rayons de lumière convergèrent. Pourtant, lorsqu'ils révélèrent leur présence, les trois hommes tremblèrent de stupeur face au spectacle qui s'offrait à eux!
 
-Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Edge Cloud!
+Les trois arrivants étaient les autres détenteurs de l'armure d'âme du Taureau Céleste aux côtés de Wang Lin: Yun Yifeng, Tang Jia et le vieil homme Bord-des-Nuages!
 
 Après cent ans, ils étaient venus au Temple du Scorpion Vert pour une raison inconnue. Le voyage vers le temple avait été extrêmement ardu, mais une fois sur place, le chemin s'était révélé sans encombre. Ils n'avaient rien rencontré et avaient atteint la partie la plus profonde du sanctuaire.
 
@@ -34,7 +34,7 @@ Cependant, ce qui les attendait était cette lame capable de faire trembler les 
 
 « Wang Lin!! Il est donc vraiment ici!! » Yun Yifeng et Tang Jia furent tous deux stupéfaits.
 
-« N'était-il pas mort?! » Les pupilles d'Edge Cloud se rétractèrent, le visage empreint de choc.
+« N'était-il pas mort?! » Les pupilles d'Bord-des-Nuages se rétractèrent, le visage empreint de choc.
 
 La lame fendit l'air dans un éclat fulgurant alors que le cri de l'âme du scorpion atteignait son paroxysme. L'entité trembla, tentant de résister, mais elle ne devait pas seulement affronter la lame de Wang Lin — les lames de ses quatre corps vrais d'essence convergeaient également sur elle!
 
@@ -58,13 +58,13 @@ Tang Jia fut frappée par la même sensation. Le visage pâle, elle fixait Wang 
 
 Ce regard possédait une acuité capable de déchirer le monde lui-même. Il dégageait une force de suppression qui pouvait briser quiconque s'y heurtait!
 
-Comparé aux deux autres, Edge Cloud ressentit l'effet de manière encore plus brutale. Il avait déjà combattu Wang Lin par le passé, et ce dernier ne l'avait pas ménagé. Sous la puissance du regard, son cœur cogna violemment contre sa poitrine et il recula de trois pas. Son visage devint livide et son front se couvrit de sueur. Des échos tonitruants martelaient ses oreilles; il se sentit abandonné du monde, seul face à l'oppression des cieux.
+Comparé aux deux autres, Bord-des-Nuages ressentit l'effet de manière encore plus brutale. Il avait déjà combattu Wang Lin par le passé, et ce dernier ne l'avait pas ménagé. Sous la puissance du regard, son cœur cogna violemment contre sa poitrine et il recula de trois pas. Son visage devint livide et son front se couvrit de sueur. Des échos tonitruants martelaient ses oreilles; il se sentit abandonné du monde, seul face à l'oppression des cieux.
 
 Il eut même l'impression que les cieux qui l'écrasaient n'étaient autre que le regard de Wang Lin. Il lui semblait qu'une épée invisible résidait dans les yeux de Wang Lin, une lame qui ne s'était pas encore pleinement manifestée. Si elle le faisait, il serait instantanément mis en pièces!
 
-Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Edge Cloud battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à des milliers de kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
+Cette sensation était si puissante qu'il faillit sombrer dans la folie. Alors qu'il était sur le point de s'effondrer, les paroles de Wang Lin résonnèrent comme une loi universelle. Bord-des-Nuages battit en retraite frénétiquement, et ce n'est que lorsqu'il fut à des milliers de kilomètres de là qu'il retrouva un semblant de calme. Son corps était trempé de sueur, lui laissant un frisson glacial.
 
-Yun Yifeng et Tang Jia reculèrent également. N'ayant pas été directement oppressés par Wang Lin, leur retraite fut moins humiliante que celle d'Edge Cloud. Cependant, Yun Yifeng éprouvait une immense amertume. Il n'avait jamais imaginé rencontrer Wang Lin ici après un siècle, et encore moins assister à une telle scène.
+Yun Yifeng et Tang Jia reculèrent également. N'ayant pas été directement oppressés par Wang Lin, leur retraite fut moins humiliante que celle d'Bord-des-Nuages. Cependant, Yun Yifeng éprouvait une immense amertume. Il n'avait jamais imaginé rencontrer Wang Lin ici après un siècle, et encore moins assister à une telle scène.
 
 Les trois restèrent silencieux, songeant à la situation, avant de se retirer lentement. Ils ne quittèrent pas le temple du scorpion, mais s'arrêtèrent à une distance respectable de Wang Lin. Ils avaient encore une mission à accomplir et le temple n'était pas totalement détruit.
 
@@ -84,11 +84,11 @@ Il vit un filet de gaz noir s'échapper du corps du vieillard pour se condenser 
 
 Cette voix était si féroce qu'elle fit même tressaillir le cœur de Wang Lin, et ses yeux brillèrent d'un éclat vif.
 
-« Une âme fantôme!! Cet homme a formé une âme fantôme aussi puissante après sa mort!! » Cette âme était plusieurs fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie d'Extreme Sky! Elle était d'une qualité supérieure, infiniment proche de la perfection!
+« Une âme fantôme!! Cet homme a formé une âme fantôme aussi puissante après sa mort!! » Cette âme était plusieurs fois plus puissante que celle du cultivateur de la Tribulation du Vide de la Prairie d'Ciel Extrême! Elle était d'une qualité supérieure, infiniment proche de la perfection!
 
 Les yeux de Wang Lin pétillèrent et il agita sa manche sans hésiter. L'âme fantôme formée par le vieillard vola vers lui et fut emmagasinée!
 
-Avec cette âme et celle de la Prairie d'Extreme Sky, Wang Lin était confiant dans sa capacité à raffiner une Voile Fantomatique de qualité quasi parfaite!
+Avec cette âme et celle de la Prairie d'Ciel Extrême, Wang Lin était confiant dans sa capacité à raffiner une Voile Fantomatique de qualité quasi parfaite!
 
 Grâce à elle et à la Vice-Voile Fantomatique qu'il possédait déjà, il pourrait déployer des sorts d'illusion d'un niveau presque parfait!
 
@@ -106,4 +106,4 @@ Les yeux de Wang Lin s'illuminèrent. Son niveau de culture montrait des signes 
 
 « Cette fois, voyons jusqu'où ma culture peut s'élever!! Mon niveau était trop bas auparavant. J'espère pouvoir m'imposer au sommet du Continent Astral Immortel après cela!! »
 
-« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie d'Extreme Sky. Ils étaient tous là, gravés dans sa mémoire.
+« Et la Secte du Dao Démoniaque... je n'ai jamais oublié le serment que j'ai prêté durant ces cent ans!! » Wang Lin était empreint d'une intention meurtrière. Lorsqu'il ferma les yeux, il revit les visages de ceux qu'il avait connus dans la Prairie d'Ciel Extrême. Ils étaient tous là, gravés dans sa mémoire.

@@ -52,7 +52,7 @@ Dès son apparition, un parfum s'en dégagea. Ce bois semblait tout à fait ordi
 
 Cette fumée était singulière. Bien qu'elle fût ténue en se propageant, elle forma rapidement un nuage. Les bêtes moustiques furent soudainement piégées dans cette brume, tandis que Cupidité s'extrayait de l'essaim. Il s'avança sur la fumée et poursuivit Chen Long.
 
-« Senior Cupidité, Camarade Cultivateur Wang Lin, je prends ce jeton! Merci infiniment! » s'esclaffa Chen Long, les yeux déjà fixés sur la sortie au loin.
+« Aîné Cupidité, Camarade Cultivateur Wang Lin, je prends ce jeton! Merci infiniment! » s'esclaffa Chen Long, les yeux déjà fixés sur la sortie au loin.
 
 Wang Lin ricana en observant la silhouette de Chen Long s'éloigner. Ses yeux projetèrent une lueur spectrale lorsqu'il murmura: « Arrête! »
 

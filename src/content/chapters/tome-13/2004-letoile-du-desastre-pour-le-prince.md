@@ -30,7 +30,7 @@ Non seulement lui, mais les deux personnes derrière lui tournèrent la tête au
 
 Cependant, l'homme en armure dorée les ignora. Il observa Wang Lin avec confusion.
 
-« Ce membre du clan m'est très inconnu. Je suis le seigneur de la ville de Blackstone. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
+« Ce membre du clan m'est très inconnu. Je suis le seigneur de la ville de la Pierre Noire. Je me demande si ce membre du clan a besoin d'aide? » L'homme à l'armure dorée joignit les mains en signe de salut vers Wang Lin.
 
 « Je suis Kong Shi », sourit l'homme d'âge mûr aux yeux démoniaques en joignant également les mains.
 

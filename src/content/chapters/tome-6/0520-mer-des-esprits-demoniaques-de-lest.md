@@ -100,7 +100,7 @@ Ce n'est qu'une fois l'Art du Massacre Céleste parvenu à sa pleine maîtrise e
 
 « Je me demande quel niveau de culture je pourrai atteindre en 500 ans... » Une lueur étrange passa dans les yeux de Wang Lin alors qu'il poursuivait ses réflexions secrètes.
 
-« Il y a aussi la question du senior Zhou Yi. C'est une autre raison de ma présence ici. Avec le domaine du senior Zhou Yi dans la pagode, il ne devrait pas être difficile de localiser l'endroit où le Saint de l'Épée l'a scellé. Si je parviens à le sauver, son aide alliée aux épées célestes me conférera une puissance d'attaque redoutable en très peu de temps! »
+« Il y a aussi la question de l'aîné Zhou Yi. C'est une autre raison de ma présence ici. Avec le domaine de l'aîné Zhou Yi dans la pagode, il ne devrait pas être difficile de localiser l'endroit où le Saint de l'Épée l'a scellé. Si je parviens à le sauver, son aide alliée aux épées célestes me conférera une puissance d'attaque redoutable en très peu de temps! »
 
 « Enfin, il y a cette grande épée que j'ai aperçue à l'extérieur de la Mer des Esprits Démoniaques de l'Est. Elle était presque identique à la Richesse d'autrefois... » L'éclat dans les yeux de Wang Lin s'intensifia.
 

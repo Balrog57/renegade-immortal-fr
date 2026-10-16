@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1399 - Ancient Soul Restriction
 slug: restriction-de-lame-ancienne
 ---
-La femme sursauta un instant et une pointe d'ombre passa sur son visage, mais elle retrouva rapidement son calme. Affichant un sourire gracieux, elle s'inclina légèrement vers Wang Lin et dit: « Cette jeune fille a tiré une leçon de son erreur. Je me demande si Senior accepterait de me révéler son nom. »
+La femme sursauta un instant et une pointe d'ombre passa sur son visage, mais elle retrouva rapidement son calme. Affichant un sourire gracieux, elle s'inclina légèrement vers Wang Lin et dit: « Cette jeune fille a tiré une leçon de son erreur. Je me demande si Aîné accepterait de me révéler son nom. »
 
 Cette femme avait demandé le nom de Wang Lin à deux reprises, ce qui avait déjà attiré son attention. Bien qu'il ne connût aucun sortilège utilisant le nom d'autrui, le Grand Maître du Conseil Souverain possédait des techniques extrêmement étranges et insondables.
 

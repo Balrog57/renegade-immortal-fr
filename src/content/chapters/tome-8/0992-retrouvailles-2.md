@@ -8,7 +8,7 @@ slug: retrouvailles-2
 ---
 Tout en parlant, il recula et s'apprêta à partir.
 
-Les yeux des trois frères Chen étaient injectés de sang, en particulier ceux du Maître Yi Chen; on aurait dit que son cœur était déchiré. Bien que Ling Er fût une junior d'une génération différente, il la traitait comme sa propre fille. À cet instant, c'était comme s'il regardait un scélérat voler sa fille sous ses yeux.
+Les yeux des trois frères Chen étaient injectés de sang, en particulier ceux du Maître Yi Chen; on aurait dit que son cœur était déchiré. Bien que Ling Er fût une cadette d'une génération différente, il la traitait comme sa propre fille. À cet instant, c'était comme s'il regardait un scélérat voler sa fille sous ses yeux.
 
 Il serra les dents, se tourna vers le palais où se trouvait Wang Lin et s'inclina. Sa voix, empreinte de chagrin et d'indignation, s'éleva bruyamment: « Frère Wang, je vous en prie, aidez ce vieil homme une dernière fois! »
 

@@ -50,7 +50,7 @@ Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa Wang Lin, le visage assombr
 
 « Tu aurais pu brandir l'arc Li Guang pour terrasser ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Soie Bleue dans le Royaume Intérieur! »
 
-« Moi, Rêve Bleu, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
+« Moi, Rêve Bleu, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un cadet comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
 
 « La Perle Défiant le Ciel est entre tes mains. Si j'avais été avide, je l'aurais prise depuis longtemps! Tu n'avais même pas atteint la troisième étape à l'époque; si ce vieux avait voulu te tuer, il l'aurait fait bien plus tôt. Si ce n'était pour ce qui lie Qianmei et toi, pourquoi aurais-je attendu jusqu'ici? »
 
@@ -64,7 +64,7 @@ Li Qianmei versa des larmes. Elle comprenait enfin ce que son père avait fait p
 
 Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe de respect devant le Maître du Dao Rêve Bleu.
 
-« Ce junior ne doute pas de ce que le Senior a accompli... »
+« Ce cadet ne doute pas de ce que l'Aîné a accompli... »
 
 « Ne dis rien de plus, tu... » Le Maître du Dao Rêve Bleu vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
 

@@ -8,7 +8,7 @@ slug: ame-complete
 ---
 Chapitre 2042 - Âme Complète!
 
-La ville de Blackstone était restée la même qu'au moment de son départ. Elle ne croisa aucun garde sur son chemin, comme si le Seigneur de la Ville avait reçu un ordre.
+La ville de la Pierre Noire était restée la même qu'au moment de son départ. Elle ne croisa aucun garde sur son chemin, comme si le Seigneur de la Ville avait reçu un ordre.
 
 Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une était une vieille femme aux cheveux blancs et l'autre était une jeune fille.
 
@@ -54,7 +54,7 @@ Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
 « Mon frère cadet, Chi Man, est très proche du Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il a été accepté comme disciple du Seigneur Song.
 
-« Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Ancient Shi penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
+« Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Shi Antique penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
 
 L'expression de Wang Lin resta calme et, après avoir entendu cela, il réfléchit silencieusement un instant.
 
@@ -84,19 +84,19 @@ En observant Ji Du devant lui, Wang Lin voyait une personne redoutable. Quelqu'u
 
 Le Prince Ji Du resta agenouillé un moment encore avant de se relever respectueusement, une joie manifeste brillant dans ses yeux.
 
-« Avec le pouvoir du Parrain, Seigneur Song pourrait vraiment changer d'avis... Mais je dois aussi lancer mon plan. Cette fois, je dois me battre! Une fois que j'aurai réussi, dans deux cents ans, moi, Ji Du, serai l'empereur de l'Ancient Shi! »
+« Avec le pouvoir du Parrain, Seigneur Song pourrait vraiment changer d'avis... Mais je dois aussi lancer mon plan. Cette fois, je dois me battre! Une fois que j'aurai réussi, dans deux cents ans, moi, Ji Du, serai l'empereur de l'Shi Antique! »
 
 Excité, le Prince Ji Du prit plusieurs inspirations profondes avant de réprimer son enthousiasme. Il envoya immédiatement un ordre pour faire de cet endroit une zone interdite: quiconque oserait y pénétrer serait instantanément tué. Il fit même déployer plusieurs gardes pour protéger les lieux jour et nuit.
 
 Wang Lin entra dans la chambre secrète et fit le tour du regard. D'un geste de la main droite, il dispersa une multitude de restrictions à travers la pièce, scellant ainsi toute la chambre. Avec son niveau de culture actuel, les restrictions qu'il avait placées faisaient en sorte que même des Grands Empereurs ne pourraient entrer sans qu'il ne le sache.
 
-Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans l'Ancient Shi et à son aide pour que le Prince Ji Du devienne empereur.
+Il s'assit au sol et ses yeux s'illuminèrent. Au-delà du fait d'avoir renvoyé Song Zhi chez elle, il y avait une raison plus profonde à sa venue dans l'Shi Antique et à son aide pour que le Prince Ji Du devienne empereur.
 
-« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Purple Yang, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant de Gemini.
+« Une seule goutte de sang d'âme ne peut suffire à faire entrer le corps de Wan Er dans le Royaume Divin Immémorial... » Lorsqu'il était à la Secte Yang Pourpre, il avait consulté de nombreux récits concernant le Royaume Divin Immémorial provenant de Gemini.
 
 Certaines descriptions existaient. Quant à son apparition, nul ne le savait, mais d'après ce qu'il avait pu comprendre, une pression puissante pouvait y dissimuler un être des rouages du monde. Les âmes des défunts n'y entraient pas dans la réincarnation, comme si la réincarnation elle-même s'y arrêtait.
 
-Cela ressemblait énormément à ce que l'Enseignant Impérial de l'Ancient Dao avait affirmé. C'est pourquoi Wang Lin avait permis à l'Enseignant Impérial d'activer la formation et d'ouvrir le Royaume Divin Immémorial.
+Cela ressemblait énormément à ce que l'Enseignant Impérial de l'Dao Antique avait affirmé. C'est pourquoi Wang Lin avait permis à l'Enseignant Impérial d'activer la formation et d'ouvrir le Royaume Divin Immémorial.
 
 « Le corps de Wan Er ne peut survivre au Royaume Divin Immémorial, et selon l'Enseignant Impérial, bien que le sang d'âme puisse compenser cela, une goutte est manifestement loin d'être suffisante...
 
@@ -106,11 +106,11 @@ Cela ressemblait énormément à ce que l'Enseignant Impérial de l'Ancient Dao 
 
 C'était l'unique moyen d'avoir une chance d'obtenir à nouveau l'approbation de l'Ancêtre Ancestral et peut-être d'obtenir plus de sang d'âme!
 
-« Je ne peux plus retourner dans l'Ancient Dao, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empereurs. Ce droit appartient à l'empereur actuel.
+« Je ne peux plus retourner dans l'Dao Antique, et le droit d'ouvrir le Temple Ancestral n'est pas entre les mains des Grands Empereurs. Ce droit appartient à l'empereur actuel.
 
-« Même si Lou Chen est reconnu comme l'Empereur de l'Ancient Dao... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
+« Même si Lou Chen est reconnu comme l'Empereur de l'Dao Antique... je ne veux toujours pas retourner là-bas... » Wang Lin soupira, affichant une expression complexe.
 
-« Quant à l'Ancient Ji, je n'ai que peu de contacts avec eux. L'Ancient Shi me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
+« Quant à l'Ji Antique, je n'ai que peu de contacts avec eux. L'Shi Antique me convient bien mieux, d'autant plus que malgré l'ambition de Ji Du, il n'osera pas s'opposer à mes intentions.
 
 « 500 ans... Les 500 dernières années! » Wang Lin prit une profonde inspiration et agita la main. Un cercueil d'une clarté cristalline apparut devant lui.
 

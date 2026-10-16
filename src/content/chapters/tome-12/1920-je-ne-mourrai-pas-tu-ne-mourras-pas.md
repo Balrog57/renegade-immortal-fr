@@ -8,7 +8,7 @@ slug: je-ne-mourrai-pas-tu-ne-mourras-pas
 ---
 Chapitre 1920 - Je ne mourrai pas, tu ne mourras pas!
 
-Après avoir fusionné le Dao avec son corps, un coup de poing ou un coup de pied pouvait contenir une multitude de sorts. C'était la manière la plus puissante pour un Exalt Empyréen de manifester sa puissance. L'ancêtre de la Secte du Dao Démoniaque pouvait fusionner 27 sorts au sein de son poing; une force suffisante pour anéantir n'importe quel cultivateur de rang inférieur à l'Exalt Empyréen.
+Après avoir fusionné le Dao avec son corps, un coup de poing ou un coup de pied pouvait contenir une multitude de sorts. C'était la manière la plus puissante pour un Exalté Empyréen de manifester sa puissance. L'ancêtre de la Secte du Dao Démoniaque pouvait fusionner 27 sorts au sein de son poing; une force suffisante pour anéantir n'importe quel cultivateur de rang inférieur à l'Exalté Empyréen.
 
 La clé résidait dans le nombre de sorts pouvant être fusionnés, et non dans la diversité de ces derniers. Certains Exaltés Empyréens ne possédaient peut-être pas des dizaines de sorts différents, mais ils pouvaient en fusionner des dizaines d'un même type pour atteindre une puissance de combat similaire.
 
@@ -16,15 +16,15 @@ Tout était une question de quantité!
 
 Depuis que l'Art Rapide des Sorts avait atteint six Veines de Sortilèges, permettant à Wang Lin de créer 97 images rémanentes, sa vitesse avait atteint un degré terrifiant. Il pouvait désormais utiliser cette technique pour lancer instantanément 98 sorts.
 
-Il y parvenait parce que sa puissance de combat actuelle avait atteint le stade d'Exalt Empyréen. Si quelqu'un n'avait pas atteint ce niveau, même avec neuf Veines de Sortilèges, des centaines d'images rémanentes et le lancement de centaines de sorts, il ne ferait pas le poids face à un Exalt Empyréen.
+Il y parvenait parce que sa puissance de combat actuelle avait atteint le stade d'Exalté Empyréen. Si quelqu'un n'avait pas atteint ce niveau, même avec neuf Veines de Sortilèges, des centaines d'images rémanentes et le lancement de centaines de sorts, il ne ferait pas le poids face à un Exalté Empyréen.
 
-Même si un Exalt Empyréen apprenait l'Art Rapide des Sorts, s'il ne pouvait utiliser que 27 sorts, même si des centaines d'images rémanentes utilisaient ces sorts, ils n'afficheraient qu'une puissance équivalente à celle des 27 sorts que son corps original pouvait produire.
+Même si un Exalté Empyréen apprenait l'Art Rapide des Sorts, s'il ne pouvait utiliser que 27 sorts, même si des centaines d'images rémanentes utilisaient ces sorts, ils n'afficheraient qu'une puissance équivalente à celle des 27 sorts que son corps original pouvait produire.
 
 Car sa limite resterait de 27 sorts, et elle ne pourrait être dépassée. Tout comme une bouteille ne peut contenir qu'une certaine quantité d'eau: peu importe la quantité que vous tentez d'y verser, elle ne pourra en contenir qu'un certain volume.
 
 Mais Wang Lin était différent. Sa force de combat réelle était infiniment supérieure grâce à son corps du Dao Antique et au sang de l'âme. Ce sang de l'âme jouait un rôle vital.
 
-En conséquence, avec sa culture actuelle d'Exalt Doré empruntée, la puissance de combat qu'il pouvait déployer était encore plus immense.
+En conséquence, avec sa culture actuelle d'Exalté Doré empruntée, la puissance de combat qu'il pouvait déployer était encore plus immense.
 
 C'était aussi pour cette raison que Wang Lin pouvait combattre des êtres dépassant son niveau de culture après avoir fusionné ses pouvoirs anciens et célestes! Une autre raison pour laquelle Wang Lin était devenu si puissant ici, alors qu'il ne l'était pas autant dans le monde des grottes, était la présence de son avatar le plus puissant dans le vide!
 
@@ -56,7 +56,7 @@ Charge du Taureau Céleste!
 
 De loin, l'ombre gigantesque du Taureau Céleste enveloppa Wang Lin et percuta le trou noir de ses deux cornes noires.
 
-Si cette scène était une peinture, elle deviendrait un trésor inestimable à travers tout le Continent Astral Imortel.
+Si cette scène était une peinture, elle deviendrait un trésor inestimable à travers tout le Continent Astral Immortel.
 
 *Rumble, rumble, rumble, rumble!!*
 
@@ -70,7 +70,7 @@ L'expression du vieil homme aux cheveux roux changea brusquement. Ses yeux trahi
 
 « Une fusion de 98 sorts... Il ne peut pas fusionner le Dao avec son corps, mais cette méthode produit un effet similaire. S'il pouvait utiliser un sort de plus, ne serait-il pas encore plus puissant?! »
 
-« La limite d'un Exalt Empyréen est de 99; un de plus serait considéré comme atteignant le rang d'Ascendant Empyréen! Après avoir emprunté la puissance de l'armure d'âme, il est devenu terrifiant!! » Le vieil homme aux cheveux roux leva les mains et, dans un rugissement, lança plusieurs attaques.
+« La limite d'un Exalté Empyréen est de 99; un de plus serait considéré comme atteignant le rang d'Ascendant Empyréen! Après avoir emprunté la puissance de l'armure d'âme, il est devenu terrifiant!! » Le vieil homme aux cheveux roux leva les mains et, dans un rugissement, lança plusieurs attaques.
 
 « C'est presque comparable à un cultivateur Ascendant Empyréen! Il n'a pas fusionné son Dao avec son corps et ces 98 sorts ne forment pas un tout cohérent; ils ont été fusionnés par la force et ne sont pas parfaits, mais malgré cela, je parviens à peine à résister! »
 

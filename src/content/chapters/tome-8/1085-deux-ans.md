@@ -9,7 +9,7 @@ slug: deux-ans
 
 L'ensemble du système stellaire de l'Alliance retrouva son calme suite aux événements survenus dans la Grotte de l'Empereur Céleste. Bien que la grotte fût exiguë, elle était au cœur d'enjeux colossaux.
 
-L'Alliance de Culture avait subi de lourdes pertes lors de cette bataille. Maître Void était mort, et l'ancien Seigneur Céleste, devenu fou, s'était volatilisé. Ils avaient également perdu un grand nombre de cultivateurs célestes.
+L'Alliance de Culture avait subi de lourdes pertes lors de cette bataille. Maître du Vide était mort, et l'ancien Seigneur Céleste, devenu fou, s'était volatilisé. Ils avaient également perdu un grand nombre de cultivateurs célestes.
 
 Peu d'entre eux regagnèrent le quartier général de l'Alliance.
 
@@ -73,7 +73,7 @@ Au moment même où les ordres étaient envoyés, les Quatre Sectes Divines surg
 
 À cet instant, le système stellaire de l'Alliance était morcelé, devenu le champ de bataille de plusieurs puissances. Bien qu'Luotian fût la plus forte en apparence, l'équilibre restait précaire face au mystérieux Secte des Cadavres, aux célèbres Quatre Sectes Divines et aux vestiges de l'Alliance qui, armés de trésors et de sorts célestes, se battaient avec leur âme originelle en jeu.
 
-Toutefois, la querelle entre le Maître Flammespark de Luotian et l'Alliance de Culture ne pouvait être résolue par ce simple équilibre. Luotian lança une nouvelle fois son assaut contre les vestiges de l'Alliance au centre! Les flammes de la guerre se propagèrent et, au fil des combats, les pertes s'intensifièrent.
+Toutefois, la querelle entre le Maître Yan Leizi de Luotian et l'Alliance de Culture ne pouvait être résolue par ce simple équilibre. Luotian lança une nouvelle fois son assaut contre les vestiges de l'Alliance au centre! Les flammes de la guerre se propagèrent et, au fil des combats, les pertes s'intensifièrent.
 
 Pendant ce temps, au sein des Quatre Sectes Divines dans la région est, un champ d'étoiles brûlait. Au cœur de ce brasier trônait une immense pierre blanche sur laquelle était assis un jeune homme. Il portait une robe blanche et, bien qu'il paraisse ordinaire, il dégageait un tempérament singulier lui conférant l'aura d'un être céleste. Ses yeux étaient clos; tandis que sa poitrine se soulevait, deux dragons de gaz s'échappaient de ses narines. Ces derniers décrivèrent plusieurs cercles autour de lui avant qu'il ne les réinhale par le nez et la bouche.
 

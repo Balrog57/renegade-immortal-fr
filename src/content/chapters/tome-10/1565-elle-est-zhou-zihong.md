@@ -26,23 +26,23 @@ Ses paroles provoquèrent un tollé parmi les cultivateurs environnants.
 
 Tandis qu'ils débattaient, l'homme en blanc qui venait d'entrer se frotta le nez et s'approcha du cultivateur en noir. Il adressa un sourire gracieux au cultivateur excité et posa sa main sur lui. Il pressa le cultivateur en noir, qui s'apprêtait à se lever, pour le contraindre à rester assis.
 
-« Maître... » Le cultivateur en noir était Thirteen. Ses yeux brillaient d'excitation et son esprit était embrumé. Wang Lin était apparu si soudainement que Thirteen n'avait eu aucun avertissement.
+« Maître... » Le cultivateur en noir était Treize. Ses yeux brillaient d'excitation et son esprit était embrumé. Wang Lin était apparu si soudainement que Treize n'avait eu aucun avertissement.
 
 Le jeune homme en blanc était Wang Lin.
 
 Après avoir réglé les affaires du Royaume aux Sept Couleurs dans la Rivière des Invocations, Wang Lin se rendait sur la planète Suzaku pour rendre hommage à ses parents. Il comptait y affiner son karma, ainsi que ses essences de vie et de mort, de vrai et de faux.
 
-En passant par là, il avait senti la présence de Thirteen et l'aura de la statue du démon antique, ce qui l'avait amené ici.
+En passant par là, il avait senti la présence de Treize et l'aura de la statue du démon antique, ce qui l'avait amené ici.
 
-En voyant le Thirteen devenu un homme, Wang Lin afficha un regard de soulagement. Il se souvenait encore de leur première rencontre dans les Terres des Esprits Démoniaques. Sa détermination et sa loyauté étaient restées intactes; même après plus de 1 000 ans, Thirteen était toujours le même.
+En voyant le Treize devenu un homme, Wang Lin afficha un regard de soulagement. Il se souvenait encore de leur première rencontre dans les Terres des Esprits Démoniaques. Sa détermination et sa loyauté étaient restées intactes; même après plus de 1 000 ans, Treize était toujours le même.
 
-« Cet enfant ressemble de plus en plus à ce que j'étais à mes débuts. » Wang Lin soupira. L'aura froide de Thirteen rappelait étrangement la sienne lorsqu'il se trouvait sur la planète Suzaku.
+« Cet enfant ressemble de plus en plus à ce que j'étais à mes débuts. » Wang Lin soupira. L'aura froide de Treize rappelait étrangement la sienne lorsqu'il se trouvait sur la planète Suzaku.
 
-Thirteen prit une profonde inspiration et s'apprêta à parler, mais en voyant Wang Lin secouer la tête, il se tut. Cependant, l'excitation et le respect dans ses yeux étaient palpables.
+Treize prit une profonde inspiration et s'apprêta à parler, mais en voyant Wang Lin secouer la tête, il se tut. Cependant, l'excitation et le respect dans ses yeux étaient palpables.
 
 Pour lui, Wang Lin était son maître et son bienfaiteur. Sa vie entière avait basculé grâce à lui. Même s'il devait mourir, il n'oublierait jamais ce que Wang Lin lui avait offert.
 
-Il était Thirteen, le royal et impavide Thirteen!
+Il était Treize, le royal et impavide Treize!
 
 « Plus tard, durant cette guerre, on n'eut plus de nouvelles de lui. Je me souviens qu'il s'apprêtait à quitter le pays de Hou Feng, et je l'ai rencontré juste avant... » dit calmement la femme en violet, ce qui apaisa les discussions autour d'elle.
 
@@ -52,7 +52,7 @@ Personne n'avait remarqué l'entrée du jeune homme en blanc. Toute l'attention 
 
 En écoutant le récit, Wang Lin saisit une coupe et but une gorgée. Ses yeux étaient empreints de souvenirs et un léger sourire étira ses lèvres. Il se remémora Li Muwan traquée par ce cultivateur de la Formation du Noyau, son regard impuissant et ses appels à l'aide.
 
-Thirteen prit la cruche de vin et servit son maître.
+Treize prit la cruche de vin et servit son maître.
 
 « Un cultivateur de la Formation du Noyau? Humph, ce type est-il encore en vie? Il a osé s'en prendre au Seigneur du Royaume Scellé! S'il survit, c'est que son niveau de culture ne peut pas être très élevé. Même si le Seigneur du Royaume Scellé s'en moque, ce vieil homme, lui, lui arrachera l'âme! »
 
@@ -70,7 +70,7 @@ C'était la première fois que beaucoup de ces cultivateurs entendaient ce réci
 
 Ils croyaient presque entendre le rugissement assourdissant que Wang Lin avait poussé après avoir accompli sa vengeance et anéanti la famille Teng jusqu'à ses racines!
 
-Wang Lin méditait en silence, buvant ses coupes de vin une à une. Thirteen continuait de servir. C'était la première fois qu'il entendait l'histoire de Wang Lin, ce qui le maintenait lui aussi dans un mutisme respectueux.
+Wang Lin méditait en silence, buvant ses coupes de vin une à une. Treize continuait de servir. C'était la première fois qu'il entendait l'histoire de Wang Lin, ce qui le maintenait lui aussi dans un mutisme respectueux.
 
 « Bien, c'est ainsi qu'on doit concevoir une vengeance! »
 
@@ -82,17 +82,17 @@ Tandis que les murmures circulaient, la voix de la femme en violet continuait de
 
 Wang Lin but tout son vin d'un trait, posa sa coupe et regarda au loin. Le mal du pays l'assaillait; ses parents lui manquaient et il désirait les revoir.
 
-« Allons-y. » Wang Lin se leva et sortit de l'auberge. Thirteen laissa quelques pierres spirituelles et suivit Wang Lin.
+« Allons-y. » Wang Lin se leva et sortit de l'auberge. Treize laissa quelques pierres spirituelles et suivit Wang Lin.
 
 « Je n'ai connu que le passé du Seigneur du Royaume Scellé. Il avait initialement la possibilité de devenir le seigneur de la planète Suzaku, mais il a finalement choisi de partir... Sur la planète Suzaku, il existe une statue de lui veillant sur la planète... » Alors qu'elle parlait, la femme en violet sembla remarquer quelque chose et tourna inconsciemment la tête vers la porte de l'auberge.
 
-Son regard passa sur Thirteen et s'arrêta sur le dos de Wang Lin.
+Son regard passa sur Treize et s'arrêta sur le dos de Wang Lin.
 
 « Cet homme m'est familier... »
 
 Wang Lin souleva le rideau de la porte de l'auberge et tourna la tête. Il croisa le regard de la femme en violet qui l'observait et esquissa un sourire. Il secoua doucement la tête et sortit.
 
-Thirteen suivit Wang Lin hors de l'établissement.
+Treize suivit Wang Lin hors de l'établissement.
 
 La femme en violet trembla et resta pétrifiée. Le sourire de l'homme en blanc imprégna son esprit. Cette image commença à se superposer à celle de son passé.
 
@@ -108,22 +108,22 @@ Non seulement elle, mais tous les cultivateurs environnants se tournèrent égal
 
 Elle replaça machinalement une mèche de cheveux derrière son oreille et reprit le récit de ses souvenirs. En parlant, elle afficha un sourire mélancolique, se remémorant le sourire de Wang Lin lorsqu'il s'était retourné.
 
-Au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il semblait vouloir renverser le pic. Wang Lin se tenait là, Thirteen étant agenouillé devant lui.
+Au sommet d'une haute montagne, le vent soufflait avec une telle force qu'il semblait vouloir renverser le pic. Wang Lin se tenait là, Treize étant agenouillé devant lui.
 
-« Maître, Thirteen est prêt à vous suivre! »
+« Maître, Treize est prêt à vous suivre! »
 
-« Thirteen, tu es mon premier disciple et celui qui m'accompagne depuis le plus longtemps. » La voix de Wang Lin était douce et son regard envers Thirteen était empreint d'une grande bienveillance.
+« Treize, tu es mon premier disciple et celui qui m'accompagne depuis le plus longtemps. » La voix de Wang Lin était douce et son regard envers Treize était empreint d'une grande bienveillance.
 
-Thirteen hocha la tête avec respect, ses yeux brillant d'un profond attachement. Pour lui, Wang Lin était un maître qui lui était semblable à un père.
+Treize hocha la tête avec respect, ses yeux brillant d'un profond attachement. Pour lui, Wang Lin était un maître qui lui était semblable à un père.
 
-« Cependant, si un oiseau veut grandir, il doit affronter seul le vent et la pluie, braver la puissance du monde et surmonter les tempêtes pour s'élever au-dessus des nuages. Tu as très bien agi... » Wang Lin tapota l'épaule de Thirteen.
+« Cependant, si un oiseau veut grandir, il doit affronter seul le vent et la pluie, braver la puissance du monde et surmonter les tempêtes pour s'élever au-dessus des nuages. Tu as très bien agi... » Wang Lin tapota l'épaule de Treize.
 
-« Mais Maître... » Thirteen allait parler quand Wang Lin secoua la tête pour l'interrompre.
+« Mais Maître... » Treize allait parler quand Wang Lin secoua la tête pour l'interrompre.
 
-Wang Lin fit face à Thirteen et dit lentement: « Thirteen, mon disciple ne peut être un cultivateur qui reste sous ma protection. Mon disciple doit posséder le cœur d'un cultivateur défiant les cieux. Il doit avoir la détermination de lutter contre le destin! »
+Wang Lin fit face à Treize et dit lentement: « Treize, mon disciple ne peut être un cultivateur qui reste sous ma protection. Mon disciple doit posséder le cœur d'un cultivateur défiant les cieux. Il doit avoir la détermination de lutter contre le destin! »
 
 « Mon disciple doit être un dragon parmi les hommes, dominant le ciel lui-même. Il doit susciter l'admiration de tous lorsqu'il proclamera qu'il est mon premier disciple! »
 
-« Maître!! » Thirteen, exalté, hocha la tête vigoureusement.
+« Maître!! » Treize, exalté, hocha la tête vigoureusement.
 
-« Bien sûr, si quelqu'un ose t'opprimer, ton maître ne le permettra pas! À partir d'aujourd'hui, tu traceras ton propre chemin en tant que mon premier disciple! » Wang Lin avait passé plus de temps avec Thirteen qu'avec n'importe quel autre disciple et éprouvait pour lui un attachement unique. Tout en parlant, sa main droite lui caressa la tête.
+« Bien sûr, si quelqu'un ose t'opprimer, ton maître ne le permettra pas! À partir d'aujourd'hui, tu traceras ton propre chemin en tant que mon premier disciple! » Wang Lin avait passé plus de temps avec Treize qu'avec n'importe quel autre disciple et éprouvait pour lui un attachement unique. Tout en parlant, sa main droite lui caressa la tête.

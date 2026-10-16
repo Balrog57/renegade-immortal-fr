@@ -80,7 +80,7 @@ Le front du vieil homme se couvrit de sueur froide. Après avoir hésité, il s'
 
 Le regard de Wang Lin se posa sur elle. Bien que sa beauté ne puisse égaler celle de Li Muwan, elle était fort jolie, surtout son visage aussi blanc que le jade.
 
-Sous le regard de Wang Lin, les joues de la femme s'empourprèrent légèrement. Elle dit rapidement: « Aîné, si ce réseau se trouve au sommet de la montagne, alors la junior en a connaissance. »
+Sous le regard de Wang Lin, les joues de la femme s'empourprèrent légèrement. Elle dit rapidement: « Aîné, si ce réseau se trouve au sommet de la montagne, alors la cadette en a connaissance. »
 
 « Montre-moi le chemin! » Wang Lin s'envola vers le sommet de la montagne.
 
@@ -88,7 +88,7 @@ La femme suivit rapidement. Les deux autres cultivateurs de la Formation du Noya
 
 Guidés par la femme, ils arrivèrent bientôt au sommet. Un grand pavillon y avait été construit, avec des cloches suspendues aux angles du bâtiment. Ces cloches émettaient des sons très limpides et mélodieux.
 
-Une fois la cultivatrice posée au sol, son visage rougit alors qu'elle disait: « Aîné, c'est ici ma demeure. Cette zone n'appartenait pas à l'origine à la Secte Zi Yun. C'est pourquoi mon frère aîné ignorait l'existence de l'ancien réseau de transfert. La junior a découvert un passage secret par chance et a trouvé qu'un ancien réseau se trouvait sous le bâtiment. »
+Une fois la cultivatrice posée au sol, son visage rougit alors qu'elle disait: « Aîné, c'est ici ma demeure. Cette zone n'appartenait pas à l'origine à la Secte Zi Yun. C'est pourquoi mon frère aîné ignorait l'existence de l'ancien réseau de transfert. La cadet a découvert un passage secret par chance et a trouvé qu'un ancien réseau se trouvait sous le bâtiment. »
 
 Wang Lin hocha la tête. Auparavant, lorsqu'il avait balayé la zone avec son sens divin, il avait pourtant inspecté ce secteur sans rien trouver.
 

@@ -84,7 +84,7 @@ Quatre épées précieuses étaient plantées aux quatre coins de la formation. 
 
 Simultanément, des sphères de lumière de la taille d'un poing se trouvaient sur trois des quatre épées. Ces sphères dégageaient l'aura d'une puissante conscience divine.
 
-« Senior Zhou Yi... » Cela faisait de nombreuses années que Wang Lin n'avait pas vu Zhou Yi. Mais en cet instant, Zhou Yi était entouré par ce gaz pourpre. Si la lumière dorée entre ses sourcils était dévorée par ce gaz, alors Zhou Yi appartiendrait à jamais à Ling Tianhou, sans aucune chance de s'éveiller.
+« Aîné Zhou Yi... » Cela faisait de nombreuses années que Wang Lin n'avait pas vu Zhou Yi. Mais en cet instant, Zhou Yi était entouré par ce gaz pourpre. Si la lumière dorée entre ses sourcils était dévorée par ce gaz, alors Zhou Yi appartiendrait à jamais à Ling Tianhou, sans aucune chance de s'éveiller.
 
 La formation qui scellait et affinait Zhou Yi avait été conçue personnellement par Ling Tianhou. Il l'appelait la Formation de Transformation Démoniaque d'Affinement Céleste. Cette formation était extrêmement puissante, mais son efficacité reposait principalement sur les quatre épées au sol!
 

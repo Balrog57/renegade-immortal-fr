@@ -108,7 +108,7 @@ La secte entière fut plongée dans un silence de mort. Certains cultivateurs pl
 
 « Depuis que j'ai aperçu l'Aîné, mon cœur ne peut plus trouver le repos. Votre culture est transcendante et votre style est inégalable. En cet instant fugace, j'ai eu l'impression de vous avoir vu il y a d'innombrables cycles de réincarnation. Je ne pouvais m'empêcher de vouloir contempler votre présence un peu plus longtemps avant la fin de ma vie. À chaque regard, l'énergie spirituelle dans mon corps s'anime d'elle-même et ma culture augmente, comme si j'avais dévoré une infinité de fruits du tonnerre. Seul un être tel que vous possède une telle capacité. Même les Anciens du Clan du Tonnerre Dispersé, même le Chef du Clan, ne sauraient vous égaler à votre âge.
 
-« Aîné, ce Junior ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle!!! »
+« Aîné, ce cadet ne demande rien et est prêt à vous remettre tout ce qu'il a collecté. Je souhaite seulement que l'Aîné me permette de rester à ses côtés pour pouvoir l'observer souvent et être témoin de son ascension. Laissez-moi être votre serviteur, laissez-moi ouvrir la voie, laissez-moi massacrer tous vos ennemis, laissez-moi dédier ma vie à l'Aîné jusqu'à mon dernier souffle!!! »
 
 Même avec sa culture, Wang Lin ne put s'empêcher d'être surpris par les paroles de cet homme chétif, et il ne put s'empêcher de penser à Xu Liguo.
 

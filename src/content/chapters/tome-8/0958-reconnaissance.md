@@ -6,11 +6,11 @@ bookTitle: "Alliance's Secret"
 en: Chapter 958 - Recognition
 slug: reconnaissance
 ---
-L'expression de l'All-Voyant s'assombrit et il dit calmement: « Tant qu'il n'a pas trahi sa secte, il reste mon disciple! »
+L'expression de l'Omniscient s'assombrit et il dit calmement: « Tant qu'il n'a pas trahi sa secte, il reste mon disciple! »
 
-« Votre Secte du Destin Céleste veut protéger votre disciple? Est-ce que les disciples de ma Secte de l'Épée Da Lou sont morts pour rien?! Chen Long était le seul survivant parmi les 12 Épées, les autres ont tous été tués par Wang Lin! Ce vieil homme ne s'en prend pas aux faibles; tant que Wang Lin peut résister à trois rayons d'énergie d'épée, cette affaire sera oubliée! Si vous osez me barrer la route, All-Voyant, je risquerai tout pour entrer en guerre contre vous! » Le visage de Ling Tianhou était empreint d'une intention meurtrière. Bien qu'il s'adressât à l'All-Voyant, son regard restait verrouillé sur Wang Lin.
+« Votre Secte du Destin Céleste veut protéger votre disciple? Est-ce que les disciples de ma Secte de l'Épée Da Lou sont morts pour rien?! Chen Long était le seul survivant parmi les 12 Épées, les autres ont tous été tués par Wang Lin! Ce vieil homme ne s'en prend pas aux faibles; tant que Wang Lin peut résister à trois rayons d'énergie d'épée, cette affaire sera oubliée! Si vous osez me barrer la route, Omniscient, je risquerai tout pour entrer en guerre contre vous! » Le visage de Ling Tianhou était empreint d'une intention meurtrière. Bien qu'il s'adressât à l'Omniscient, son regard restait verrouillé sur Wang Lin.
 
-« Ce senior affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à Senior combien de rayons d'énergie d'épée du Saint de l'Épée Ling Tianhou il pourrait supporter? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
+« Cet aîné affirme que je n'ai pas la qualification pour détenir le jeton. Puis-je demander à l'Aîné combien de rayons d'énergie d'épée du Saint de l'Épée Ling Tianhou il pourrait supporter? » Wang Lin regarda le vieil homme qui ressemblait à une montagne de chair.
 
 Le vieil homme au corps semblable à une montagne de chair était extrêmement sombre. Il laissa échapper un reniflement froid et resta silencieux, mais une lueur d'intention meurtrière traversa ses yeux.
 
@@ -32,7 +32,7 @@ Une explosion fracassante retentit alors que l'espace devant le poing de Wang Li
 
 Plusieurs grondements secouèrent les cieux. Wang Lin recula de deux pas et, regardant calmement Ling Tianhou, il prononça lentement: « Premier rayon! »
 
-L'énergie d'épée de Ling Tianhou s'effondra et se propagea comme une tempête. L'All-Voyant agita ses larges manches et toute cette puissance disparut. Il regarda Wang Lin et afficha un sourire.
+L'énergie d'épée de Ling Tianhou s'effondra et se propagea comme une tempête. L'Omniscient agita ses larges manches et toute cette puissance disparut. Il regarda Wang Lin et afficha un sourire.
 
 Une lueur de froideur passa dans les yeux de Ling Tianhou, qui agita sa main droite sans hésiter. L'épée d'origine qui s'envola laissa échapper un chant d'épée aigu qui perçait les cieux. Puis, elle fonça directement sur Wang Lin avec son corps originel.
 
@@ -48,7 +48,7 @@ Avec sa ruse habituelle, Wang Lin avait déjà tout analysé. À cet instant, ap
 
 Alors que les 27 épées volantes s'élançaient toutes, Wang Lin pointa un doigt vers l'avant. Les 27 épées volèrent vers Ling Tianhou tandis que les âmes poussaient des hurlements funèbres!
 
-Même l'All-Voyant fut stupéfait par ce spectacle. Il avait déjà prévu le résultat, mais pas le processus. Il avait pressenti que la culture de Wang Lin aurait considérablement augmenté et qu'il reviendrait le jour où la lumière verte et violette couvrirait le ciel, mais il ignorait exactement quel niveau de culture Wang Lin aurait atteint.
+Même l'Omniscient fut stupéfait par ce spectacle. Il avait déjà prévu le résultat, mais pas le processus. Il avait pressenti que la culture de Wang Lin aurait considérablement augmenté et qu'il reviendrait le jour où la lumière verte et violette couvrirait le ciel, mais il ignorait exactement quel niveau de culture Wang Lin aurait atteint.
 
 Il avait même percé les secrets des multiples pouvoirs situés entre les sourcils de Wang Lin. Trois d'entre eux étaient des choses que lui-même redoutait!
 
@@ -86,9 +86,9 @@ Cependant, Wang Lin savait que Ling Tianhou n'avait utilisé aucun sortilège, s
 
 Une lueur étrange passa dans les yeux de Ling Tianhou, avant de disparaître. Il rit, ayant déjà oublié sa promesse de n'utiliser que trois attaques. Ses mains formèrent un sceau et il les agita; ses cheveux s'agitèrent sans vent, ses yeux s'illuminèrent et il cria: « Tu es digne que ce vieil homme utilise des sorts! Je ne connais que trois sortilèges: Sacrifice, Trou, Brise! Épée de sacrifice, première phase, invocation par le sang! »
 
-À ces mots, les cultivateurs environnants furent tous ébranlés. Le nom de Ling Tianhou était illustre; c'était un maître dont les sorts pouvaient ébranler les cieux. Chaque cultivateur savait que Ling Tianhou n'avait qu'un seul ennemi mortel: l'All-Voyant!
+À ces mots, les cultivateurs environnants furent tous ébranlés. Le nom de Ling Tianhou était illustre; c'était un maître dont les sorts pouvaient ébranler les cieux. Chaque cultivateur savait que Ling Tianhou n'avait qu'un seul ennemi mortel: l'Omniscient!
 
-Il utilisait rarement ses sortilèges, et presque chaque fois qu'il le faisait, c'était au cours d'une bataille contre l'All-Voyant.
+Il utilisait rarement ses sortilèges, et presque chaque fois qu'il le faisait, c'était au cours d'une bataille contre l'Omniscient.
 
 Pourtant, Ling Tianhou venait d'utiliser un sortilège de manière inattendue dans son combat contre Wang Lin. En conséquence, même si Wang Lin perdait, il deviendrait instantanément célèbre.
 
@@ -108,7 +108,7 @@ Wang Lin avait déjà raffiné 45 de ces épées dans le Royaume de la Massacre 
 
 Un grondement intense résonna à travers l'univers. Les sons de l'effondrement constant remplacèrent tout autre bruit.
 
-Si l'All-Voyant n'avait pas bloqué l'onde de choc de cet impact, une grande partie de la planète Tian Yun se serait probablement effondrée. Après le choc, le corps de Wang Lin fut repoussé en arrière. Ses 45 épées n'étaient pas endommagées, mais elles semblaient ternes alors qu'elles tournaient autour de lui.
+Si l'Omniscient n'avait pas bloqué l'onde de choc de cet impact, une grande partie de la planète Tian Yun se serait probablement effondrée. Après le choc, le corps de Wang Lin fut repoussé en arrière. Ses 45 épées n'étaient pas endommagées, mais elles semblaient ternes alors qu'elles tournaient autour de lui.
 
 Face à lui, l'épée formée par Ling Tianhou s'effondra et redevint quatre épées d'origine. Ling Tianhou n'avait pas été repoussé, bien que ses yeux brillassent de plaisir alors qu'il riait: « Wang Lin, la rancune entre toi et la Secte de l'Épée Da Lou est effacée. Ce vieil homme ne te reprendra pas le jeton. Puisque c'est toi qui l'as obtenu, c'est ta chance : quand nous irons à la grotte céleste, tu auras ta part! »
 
@@ -128,9 +128,9 @@ Il y avait aussi la quatrième sœur, qui était restée abattue tout ce temps. 
 
 Non seulement eux, mais presque tous ceux qui connaissaient Wang Lin étaient plongés dans une sorte de transe. À leurs yeux, la silhouette du Wang Lin d'autrefois fusionnait progressivement avec la figure vêtue de blanc qu'ils contemplaient maintenant.
 
-Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Senior, suis-je qualifié? »
+Wang Lin ne rangea pas ses 45 épées volantes; son regard balaya l'assistance avant de se poser sur le vieil homme à la stature de montagne de chair, et il dit calmement: « Aîné, suis-je qualifié? »
 
-Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à l'All-Voyant: « Camarade cultivateur All-Voyant, j'ai encore une série de pilules à raffiner, je ne vous dérangerai donc plus. »
+Le vieil homme réfléchit silencieusement avant de laisser échapper un reniflement froid et de dire à l'Omniscient: « Camarade cultivateur Omniscient, j'ai encore une série de pilules à raffiner, je ne vous dérangerai donc plus. »
 
 Sur ce, il cria aux quatre disciples qui le portaient: « Retour à la secte! »
 
@@ -138,9 +138,9 @@ Les quatre disciples acquiescèrent rapidement, soulevèrent son corps colossal 
 
 Le vieil homme debout sur la gourde regarda profondément Wang Lin et rit: « Le camarade cultivateur Wang s'est bien caché. Ce vieil homme s'appelle Tan du Rêve Étrange. Si vous en avez le temps, vous êtes le bienvenu sur ma Planète du Rêve. » Sur ces mots, il salua Wang Lin d'un geste des mains et partit.
 
-La personne qui s'en alla avec lui était le vieil homme maigre. Dès le début, il avait affiché une expression indifférente. Même en partant, il ne salua pas l'All-Voyant; il se contenta de partir.
+La personne qui s'en alla avec lui était le vieil homme maigre. Dès le début, il avait affiché une expression indifférente. Même en partant, il ne salua pas l'Omniscient; il se contenta de partir.
 
-La dernière à partir fut la belle femme d'âge moyen. Elle regarda Wang Lin et sourit: « Les épées volantes du camarade cultivateur Wang sont imprégnées d'une intention meurtrière. Cependant, un excès d'intention meurtrière peut être difficile à contrôler. Si vous en avez le temps, je vous prie de venir sur la planète Zi Xia. » Sur ce, elle s'inclina devant l'All-Voyant et partit, suivie par les quatre femmes.
+La dernière à partir fut la belle femme d'âge moyen. Elle regarda Wang Lin et sourit: « Les épées volantes du camarade cultivateur Wang sont imprégnées d'une intention meurtrière. Cependant, un excès d'intention meurtrière peut être difficile à contrôler. Si vous en avez le temps, je vous prie de venir sur la planète Zi Xia. » Sur ce, elle s'inclina devant l'Omniscient et partit, suivie par les quatre femmes.
 
 Alors qu'elles s'éloignaient, les yeux de la femme en robe rose brillèrent. Elle regarda Wang Lin avec un sourire: « Ma maîtresse excelle dans le raffinage, et ses tarifs ne sont pas élevés. »
 
@@ -152,14 +152,14 @@ La femme en robe rose demanda: « Sœur aînée Qian Qin, qu'avez-vous? »
 
 Qian Qin secoua la tête sans dire un mot.
 
-Sur ordre de l'All-Voyant, les membres de la Secte du Destin Céleste se dispersèrent. Sur la place, il ne restait plus que Wang Lin et l'All-Voyant. Une fois la foule partie, Wang Lin regarda calmement son maître.
+Sur ordre de l'Omniscient, les membres de la Secte du Destin Céleste se dispersèrent. Sur la place, il ne restait plus que Wang Lin et l'Omniscient. Une fois la foule partie, Wang Lin regarda calmement son maître.
 
 Maître et disciple se faisaient à nouveau face après des centaines d'années.
 
-Ils restèrent silencieux un long moment avant que l'All-Voyant ne demande lentement: « Que comptez-vous faire? »
+Ils restèrent silencieux un long moment avant que l'Omniscient ne demande lentement: « Que comptez-vous faire? »
 
 « Ce disciple souhaite entrer dans le Domaine des Esprits Démoniaques. » L'expression de Wang Lin était empreinte de respect.
 
-L'All-Voyant, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste de Luotian ou comme l'un des membres de la série du Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série du Oiseau Vermillon ne compte que trois personnes, vous y compris! »
+L'Omniscient, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste de Luotian ou comme l'un des membres de la série du Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série du Oiseau Vermillon ne compte que trois personnes, vous y compris! »
 
 Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série du Oiseau Vermillon. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.

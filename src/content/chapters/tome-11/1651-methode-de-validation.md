@@ -6,9 +6,9 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1651 - Method of Validation
 slug: methode-de-validation
 ---
-Les cultivateurs du Vide du Nirvana doivent dévorer des esprits du Dao pour solidifier leurs royaumes de Flamme Joss. Ils ont également besoin d'une quantité massive d'âmes de Flamme Joss. Cependant, ce royaume n'est qu'une force externe; ce n'est qu'en atteignant le stade du Esprit du Vide que l'on peut intégrer le royaume de la Flamme Joss à son propre corps. Ce faisant, les âmes de la Flamme Joss se mettent à leur service, leur permettant ainsi d'utiliser des sorts surpuissants.
+Les cultivateurs du Vide du Nirvana doivent dévorer des esprits du Dao pour solidifier leurs royaumes de Flamme Joss. Ils ont également besoin d'une quantité massive d'âmes de Flamme Joss. Cependant, ce royaume n'est qu'une force externe; ce n'est qu'en atteignant le stade de l'Esprit du Vide que l'on peut intégrer le royaume de la Flamme Joss à son propre corps. Ce faisant, les âmes de la Flamme Joss se mettent à leur service, leur permettant ainsi d'utiliser des sorts surpuissants.
 
-Il est extrêmement difficile de progresser à travers les quatre royaumes du Void. Passer du Esprit du Vide au Void Arcane est l'étape la plus ardue, car elle nécessite une essence éthérée!
+Il est extrêmement difficile de progresser à travers les quatre royaumes du Vide. Passer de l'Esprit du Vide au Vide Arcane est l'étape la plus ardue, car elle nécessite une essence éthérée!
 
 Les essences se divisent en essences corporelles et éthérées. Les éléments, comme les cinq éléments, sont considérés comme des essences corporelles. Celles-ci sont faciles à obtenir et ne requièrent pas une grande compréhension; il suffit d'en accumuler une quantité massive pour que l'essence se complète lentement.
 
@@ -16,9 +16,9 @@ C'est ainsi que les essences de feu et de tonnerre de Wang Lin s'étaient compl�
 
 Cependant, il restait les essences éthérées, telles que le karma, la vie et la mort, ou encore le vrai et le faux. Ces essences étaient extrêmement difficiles à obtenir car on ne pouvait pas les trouver: il fallait les comprendre.
 
-La raison pour laquelle il y avait si peu de cultivateurs du Void Arcane — à peine une douzaine parmi des centaines de millions — résidait dans la difficulté d'obtenir une essence éthérée.
+La raison pour laquelle il y avait si peu de cultivateurs du Vide Arcane — à peine une douzaine parmi des centaines de millions — résidait dans la difficulté d'obtenir une essence éthérée.
 
-Si l'on possédait déjà une essence éthérée lors du franchissement de la Porte du Void, le goulot d'étranglement du stade Esprit du Vide serait bien plus facile à surmonter. Cependant, trop peu de personnes avaient atteint la troisième étape avec une essence éthérée. Par conséquent, ils devaient soit en voler une, soit en comprendre une.
+Si l'on possédait déjà une essence éthérée lors du franchissement de la Porte du Vide, le goulot d'étranglement du stade Esprit du Vide serait bien plus facile à surmonter. Cependant, trop peu de personnes avaient atteint la troisième étape avec une essence éthérée. Par conséquent, ils devaient soit en voler une, soit en comprendre une.
 
 Bien qu'il soit difficile de compléter une essence après avoir atteint la troisième étape, au fil des âges innombrables, de nombreux êtres étranges et des génies avaient tenté l'expérience. Ils finirent par élaborer une méthode.
 
@@ -70,7 +70,7 @@ Sur les continents, les cultivateurs du Royaume Extérieur s'éveillèrent lorsq
 
 Le Sens Divin de Wang Lin était comme une tempête balayant la Mer Nuageuse, tel un lourd gourdin frappant au cœur de chaque cultivateur du Royaume Extérieur.
 
-Au plus profond de la Mer Nuageuse se trouvait une planète rare. C'était autrefois la planète de la Secte Briseuse de Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant des milliers de pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
+Au plus profond de la Mer Nuageuse se trouvait une planète rare. C'était autrefois la planète de la Secte Brise-Ciel, mais elle n'était plus que ruines. D'innombrables algues bleues et violettes y poussaient, atteignant des milliers de pieds de hauteur. De loin, on aurait dit que la planète avait poussé des poils.
 
 La planète entière était recouverte par ces algues. Au centre de cette étendue végétale se trouvaient d'immenses branches de plusieurs centaines de pieds d'épaisseur, et là trônait une fleur géante et violette!
 

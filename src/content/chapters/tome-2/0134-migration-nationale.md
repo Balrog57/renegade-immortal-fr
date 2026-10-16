@@ -96,7 +96,7 @@ Les quatre grandes sectes étaient très accoutumées à sceller les volcans et 
 
 L'un des vieillards à gauche prit la parole d'une voix sombre: « Que pense chacun de cette affaire? »
 
-« Senior Song, je n'ai vu ces bêtes de feu que dans de vieux registres. Ils indiquent qu'il s'agit de bêtes spirituelles. Les descriptions sont excessives, mais je crois qu'elles ne doivent pas être ignorées. Cependant, puisqu'il s'agit de bêtes spirituelles, je pense qu'elles peuvent être apprivoisées. Si nous six agissons, tout ira bien. Je refuse de croire que six cultivateurs de l'Âme Naissante ne puissent faire face à de simples bêtes de feu. » La personne qui parlait était un homme d'âge moyen. Bien que son visage fût doux et sa voix calme, ils étaient empreints de fierté.
+« Aîné Song, je n'ai vu ces bêtes de feu que dans de vieux registres. Ils indiquent qu'il s'agit de bêtes spirituelles. Les descriptions sont excessives, mais je crois qu'elles ne doivent pas être ignorées. Cependant, puisqu'il s'agit de bêtes spirituelles, je pense qu'elles peuvent être apprivoisées. Si nous six agissons, tout ira bien. Je refuse de croire que six cultivateurs de l'Âme Naissante ne puissent faire face à de simples bêtes de feu. » La personne qui parlait était un homme d'âge moyen. Bien que son visage fût doux et sa voix calme, ils étaient empreints de fierté.
 
 La belle femme qui avait rencontré Wang Lin sans pitié répliqua: « Absurde! Maître a croisé les bêtes spirituelles de feu une fois alors qu'elles n'étaient qu'au stade de la Formation du Noyau. Ce sont des esprits de feu naturels, toutes les techniques basées sur le feu sont donc inutiles contre elles. Seules les techniques de glace peuvent tenir un moment. Ne parlons même pas de les tuer ou de les apprivoiser. »
 

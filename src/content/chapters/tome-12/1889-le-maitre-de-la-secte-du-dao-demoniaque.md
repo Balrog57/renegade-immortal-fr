@@ -16,7 +16,7 @@ S'il voulait partir, il devait se donner corps et âme! Il devait être rapide, 
 
 Plus il resterait ici, plus ses chances de survie diminueraient!
 
-Dès qu'il eut prononcé ces deux mots, la frontière du Continent Meng Earth fut soudainement envahie par l'illusion d'une mer et enveloppée par les ténèbres de la nuit.
+Dès qu'il eut prononcé ces deux mots, la frontière du Continent Terre-Meng fut soudainement envahie par l'illusion d'une mer et enveloppée par les ténèbres de la nuit.
 
 Après l'apparition de Nuit Brisée, Wang Lin utilisa le sort le plus puissant qu'un cultivateur puisse déployer. Le soleil se leva, libérant une puissance capable de déchirer la nuit.
 
@@ -24,7 +24,7 @@ Quel que soit leur niveau de culture, les centaines de cultivateurs de la Secte 
 
 Il y avait aussi les cent personnes qui traversaient le réseau de transfert. Avant même que leurs corps ne puissent se condenser, ils périrent.
 
-Après Nuit Brisée, le monde changea de couleur. Hormis Wang Lin, il n'y avait plus aucune âme vivante. Son visage était d'une pâleur mortelle et son armure d'âme était sur le point de se dissiper. Sans hésiter, il chargea vers le Continent Meng Earth, situé à 1 000 kilomètres de là!
+Après Nuit Brisée, le monde changea de couleur. Hormis Wang Lin, il n'y avait plus aucune âme vivante. Son visage était d'une pâleur mortelle et son armure d'âme était sur le point de se dissiper. Sans hésiter, il chargea vers le Continent Terre-Meng, situé à 1 000 kilomètres de là!
 
 Ce n'était pas qu'il n'avait pas envisagé de détruire les sept réseaux de transfert, mais ces derniers étaient anormaux. Ils étaient restés intacts après Nuit Brisée, ce qui signifiait qu'il pouvait désormais les détruire rapidement!
 
@@ -86,7 +86,7 @@ Pourtant, sous les attaques frénétiques de Wang Lin, presque tous les cultivat
 
 Après ces assauts continus, trois des sept réseaux de transfert finirent par s'effondrer!
 
-Wang Lin fut repoussé et ne se trouvait plus qu'à 100 kilomètres du Continent Meng Earth, mais loin de l'accalmie, le sentiment de crise ne fit que croître.
+Wang Lin fut repoussé et ne se trouvait plus qu'à 100 kilomètres du Continent Terre-Meng, mais loin de l'accalmie, le sentiment de crise ne fit que croître.
 
 Les quatre réseaux de transfert restants n'étaient plus fixes; une force étrange les enveloppait, leur permettant de se déplacer d'une manière inconcevable pour un cultivateur. En un éclair, ils apparurent à 50 kilomètres de Wang Lin.
 
@@ -112,15 +112,15 @@ Ce n'était pas qu'ils n'avaient jamais affronté de puissants cultivateurs, mai
 
 Ce prix pourrait être la destruction d'une secte entière! Un coût si lourd qu'il réduirait les neuf sectes et treize factions en huit sectes et treize factions!
 
-Au moment où Wang Lin posa le pied sur le Continent Meng Earth, le reste de son armure d'âme retourna sous la forme du Tatouage du Taureau Céleste sur le côté droit de son visage. Une immense faiblesse l'envahit, mais il la réprima de toutes ses forces.
+Au moment où Wang Lin posa le pied sur le Continent Terre-Meng, le reste de son armure d'âme retourna sous la forme du Tatouage du Taureau Céleste sur le côté droit de son visage. Une immense faiblesse l'envahit, mais il la réprima de toutes ses forces.
 
 Il lui restait encore l'armure élémentaire terrestre en forme humaine. Bien qu'elle fût partiellement brisée, elle lui offrait toujours une protection puissante.
 
-Debout sur le Continent Meng Earth, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait traverser deux continents; cependant, l'arrivée massive de disciples de la Secte du Dao Démoniaque était une tout autre affaire.
+Debout sur le Continent Terre-Meng, il chancela alors que du sang coulait du coin de sa bouche, puis il s'enfonça dans la course. Il comprenait qu'en tant que cultivateur indépendant, il pouvait traverser deux continents; cependant, l'arrivée massive de disciples de la Secte du Dao Démoniaque était une tout autre affaire.
 
-La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Void Cloud de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. S'ils ne s'en souciaient guère, ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Meng Earth pour le poursuivre.
+La Secte du Dao Démoniaque devait en avoir tenu compte; autrement, ils n'auraient pas ordonné aux deux Messagers du Démon Vert de s'autodétruire, ni à Nuage du Vide de le retarder pour s'assurer qu'il reste sur le Continent du Démon Vert. S'ils ne s'en souciaient guère, ils auraient simplement ouvert la voie par le massacre jusqu'au Continent Terre-Meng pour le poursuivre.
 
-Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte du Dao Démoniaque s'arrêtèrent aux portes du Continent Meng Earth. Ils hésitèrent, ne poursuivant pas leur traque.
+Comme Wang Lin l'avait pressenti, les cultivateurs de la Secte du Dao Démoniaque s'arrêtèrent aux portes du Continent Terre-Meng. Ils hésitèrent, ne poursuivant pas leur traque.
 
 Mais à cet instant précis, quatre des réseaux de transfert brillèrent à nouveau. Trois d'entre eux transportèrent des dizaines de cultivateurs, tandis que le quatrième n'en dégagea qu'une seule personne!
 

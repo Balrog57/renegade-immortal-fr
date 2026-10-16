@@ -34,7 +34,7 @@ Aussitôt qu'il entendit ce bruit, un groupe de chevaux noirs surgit, les uns ap
 
 Un cri retentit de l'avant: « Quatrième Ma, que fais-tu?! »
 
-« Patron, j'ai trouvé un arbre à billets! Si nous brisons les jambes de ce gamin laid, nous pourrons l'utiliser pour bloquer les chariots de la compagnie d'escorte Heavenly Power sur la route. C'est bien mieux que d'utiliser nos propres frères! » L'homme massif marqué d'une cicatrice commanda à son cheval de charger.
+« Patron, j'ai trouvé un arbre à billets! Si nous brisons les jambes de ce gamin laid, nous pourrons l'utiliser pour bloquer les chariots de la compagnie d'escorte Puissance Céleste sur la route. C'est bien mieux que d'utiliser nos propres frères! » L'homme massif marqué d'une cicatrice commanda à son cheval de charger.
 
 L'homme balafrire chargea, souleva Wang Lin et sourit: « Patron, regardez! »
 
@@ -66,7 +66,7 @@ Sur ces mots, il sauta à terre et envoya Wang Lin rouler sur le bas-côté, ava
 
 Les convois reprirent leur marche, mais alors qu'ils passaient à l'endroit où se trouvait Wang Lin, des torches s'allumèrent soudainement tout autour d'eux et des rires emplirent l'air.
 
-« Compagnie d'escorte Heavenly Power, pensiez-vous que je ne vous pillerais pas si vous preniez le chemin détourné? Restez là pour moi! » Un cri puissant jaillit de la forêt alors que dix-huit hommes cruels en sortaient.
+« Compagnie d'escorte Puissance Céleste, pensiez-vous que je ne vous pillerais pas si vous preniez le chemin détourné? Restez là pour moi! » Un cri puissant jaillit de la forêt alors que dix-huit hommes cruels en sortaient.
 
 À l'aide d'une torche, l'un d'eux mit à feu la pâte appliquée sur Wang Lin. Celle-ci se mua en un gaz qui enveloppa rapidement les chariots.
 

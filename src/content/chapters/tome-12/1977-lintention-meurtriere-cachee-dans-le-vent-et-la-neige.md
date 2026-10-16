@@ -18,13 +18,13 @@ Le jeune homme à la chemise fleurie fixa Wang Lin et rugit: « Fou? C'est toi l
 
 « Eh... Se pourrait-il que ce soit vous, mon bienfaiteur? » Le fou se frotta les yeux et fit plusieurs fois le tour de Wang Lin. Le jeune homme en vert ne lui tenait plus la jambe et attendait sur le côté.
 
-« Très bien, admettons que ce soit toi. Maintenant que j'ai salué mon bienfaiteur, je te demande: qui a battu le grand-père de Little Flower? Était-ce lui! » Le jeune homme à la chemise fleurie pointa l'Enseignant Impérial, qui affichait un air contrarié.
+« Très bien, admettons que ce soit toi. Maintenant que j'ai salué mon bienfaiteur, je te demande: qui a battu le grand-père de Petite Fleur? Était-ce lui! » Le jeune homme à la chemise fleurie pointa l'Enseignant Impérial, qui affichait un air contrarié.
 
 La voix légèrement irritée de l'Empereur Céleste résonna depuis le Temple du Dao Céleste: « Dao Fei, si tu continues à faire des siennes, je te verrouillerai à nouveau dans une cellule! C'est la cérémonie de remise des titres; Luo Gong a lancé un défi et a échoué. Cela n'a rien à voir avec l'Enseignant Impérial. Recule! »
 
 « Ah? » Le jeune homme à la chemise fleurie fut déconcerté un instant. Confus, il ne parvenait pas à saisir la situation. Il se retourna et agrippa le jeune homme en robe verte derrière lui.
 
-« Aide-moi à y voir clair, je suis un peu perdu... Si le grand-père de Little Flower n'a pas été battu par l'Enseignant Impérial, alors qui est-ce? A-t-il défié mon Bienfaiteur? C'est incompréhensible... Vite, aide-moi à analyser la situation. »
+« Aide-moi à y voir clair, je suis un peu perdu... Si le grand-père de Petite Fleur n'a pas été battu par l'Enseignant Impérial, alors qui est-ce? A-t-il défié mon Bienfaiteur? C'est incompréhensible... Vite, aide-moi à analyser la situation. »
 
 Le jeune homme en vert affichait une expression amère lorsqu'il regarda Wang Lin, puis le jeune homme à la chemise fleurie avant de prendre la parole.
 
@@ -32,7 +32,7 @@ Le jeune homme en vert affichait une expression amère lorsqu'il regarda Wang Li
 
 « Des pilules? Oui, je suis toujours en train d'en raffiner! » Le jeune homme à la chemise fleurie sembla soudain se souvenir de quelque chose et se tourna pour partir. Cependant, il s'arrêta brusquement, se retourna et rugit vers le jeune homme en vert:
 
-« Quelque chose ne va pas. Le grand-père de Little Flower a été battu, je m'en souviens! Toi... Toi... Hmph, Little Red, arrête de faire le mort et découvre qui a battu le grand-père de Little Flower. Ce Roi te récompensera! »
+« Quelque chose ne va pas. Le grand-père de Petite Fleur a été battu, je m'en souviens! Toi... Toi... Hmph, Petit Rouge, arrête de faire le mort et découvre qui a battu le grand-père de Petite Fleur. Ce Roi te récompensera! »
 
 Le jeune homme à la chemise fleurie continua d'agiter son éventail tout en rugissant vers Xu Liguo, qui faisait semblant d'être mort.
 
@@ -44,7 +44,7 @@ Cependant, lorsque son regard croisa celui de Wang Lin, le corps de Xu Liguo tre
 
 Cette secousse tira Xu Liguo de sa confusion. Le visage pâle, il pointa Wang Lin du doigt et recula précipitamment.
 
-« C'est lui, c'est lui! Roi, c'est lui qui a blessé le grand-père de Little Flower! »
+« C'est lui, c'est lui! Roi, c'est lui qui a blessé le grand-père de Petite Fleur! »
 
 « Bien, alors c'est toi! » Le jeune homme à la chemise fleurie poussa un rugissement et cessa d'agiter son éventail. Il agrippa le cou de Wang Lin avec une expression féroce.
 
@@ -56,7 +56,7 @@ Wang Lin ferma les yeux, dissimulant la tristesse qui y régnait. Il savait que 
 
 L'Empereur Céleste fronça les sourcils et rugit: « Gardes de l'Armure Noire, expulsez-le du palais et interdisez-lui toute entrée! »
 
-« Attends un peu. Tu as osé blesser le grand-père de Little Flower. Ce Roi s'en souviendra... » La voix du jeune homme à la chemise fleurie s'estompa lentement. Lorsque Wang Lin ouvrit les yeux, le fou avait disparu — il ne restait qu'un éclat de lumière provenant du réseau de transfert.
+« Attends un peu. Tu as osé blesser le grand-père de Petite Fleur. Ce Roi s'en souviendra... » La voix du jeune homme à la chemise fleurie s'estompa lentement. Lorsque Wang Lin ouvrit les yeux, le fou avait disparu — il ne restait qu'un éclat de lumière provenant du réseau de transfert.
 
 « Dao Fei est ainsi depuis son retour. Parfois sa mémoire est floue, parfois elle est claire. Peut-être te reconnaîtra-t-il lorsque ses souvenirs reviendront », soupira l'Empereur Céleste. À cet instant, il n'était ni un Grand Empyréen, ni l'Empereur Céleste, mais un frère aîné.
 

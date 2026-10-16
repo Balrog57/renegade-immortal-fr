@@ -12,7 +12,7 @@ Au plus profond de la Grande Secte de l'Âme se dressait une montagne qui perça
 
 Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui résonnèrent, mais aucune ne parvint à l'arrêter. Il s'arrêta devant le Pic du Ciel Vert et joignit les mains. Sa voix résonna distinctement vers la montagne:
 
-« C’est le Jeune Wang Lin. Le Senior Taureau Vert est-il présent? »
+« C’est le Jeune Wang Lin. L'Aîné Taureau Vert est-il présent? »
 
 La Montagne du Ciel Vert trembla et toutes les restrictions environnantes disparurent. Une voix ancienne s'éleva de la montagne:
 

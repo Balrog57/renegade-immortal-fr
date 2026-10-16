@@ -26,7 +26,7 @@ Au moment où il s'échappait, il savait qu'il avait emprunté une voie sans ret
 
 La fuite de trois cent mille lieues touchait à sa fin, tandis que les cultivateurs de la Formation du Noyau poursuivaient Wang Lin avec acharnement.
 
-Le Grand Ancien déclara d'une voix lente: « Ce vieil homme veut voir jusqu'où ce junior peut courir. Pour avoir tué un Ancien de la Secte de la Lutte contre le Mal, même si tu t'enfuis aux confins les plus reculés du monde, tu es déjà mort. » Il agita la main et un symbole doré apparut soudainement. Puis, d'un mouvement vers l'avant, il projeta le symbole.
+Le Grand Ancien déclara d'une voix lente: « Ce vieil homme veut voir jusqu'où ce cadet peut courir. Pour avoir tué un Ancien de la Secte de la Lutte contre le Mal, même si tu t'enfuis aux confins les plus reculés du monde, tu es déjà mort. » Il agita la main et un symbole doré apparut soudainement. Puis, d'un mouvement vers l'avant, il projeta le symbole.
 
 La nuque de Wang Lin se hérissa, son corps frissonna, et il esquiva de justesse le symbole. Mais peu après, une série d'autres symboles surgit. Wang Lin les esquiva tous, serrant les dents tout en s'élançant avec précipitation. Graduellement, les cultivateurs derrière lui se rapprochaient. Une idée lui vint à l'esprit. Bien que cette méthode fût extrêmement périlleuse, si elle réussissait, tout danger s'évanouirait.
 

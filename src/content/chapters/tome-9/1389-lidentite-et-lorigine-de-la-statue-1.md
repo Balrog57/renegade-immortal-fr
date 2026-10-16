@@ -16,7 +16,7 @@ Le corps de Wang Lin rétrécissait progressivement à mesure qu'il avançait. L
 
 Après avoir vu Wang Lin s'emparer de son trésor le plus puissant, Cupidité eut l'impression qu'une épée lui transperçait le cœur. Une fois, deux fois, des centaines, des milliers, des dizaines de milliers de fois, l'épée martelait son cœur, infligeant à Cupidité une douleur si intense que du sang jaillissait du coin de sa bouche.
 
-« Ce n'est qu'un trésor, je pense que le Senior Cupidité ne sera pas mesquin. Autrefois, le Senior m'a donné beaucoup de trésors, et maintenant que nous nous retrouvons, j'accepterai volontiers ceux-ci. » Wang Lin sourit tout en examinant attentivement la statue brisée.
+« Ce n'est qu'un trésor, je pense que l'Aîné Cupidité ne sera pas mesquin. Autrefois, l'Aîné m'a donné beaucoup de trésors, et maintenant que nous nous retrouvons, j'accepterai volontiers ceux-ci. » Wang Lin sourit tout en examinant attentivement la statue brisée.
 
 L'expression de Wang Lin changea alors qu'il contemplait l'objet.
 

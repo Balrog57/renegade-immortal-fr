@@ -32,7 +32,7 @@ Situ Nan dit d'un ton dédaigneux: « Ce n'est rien de spécial. C'est simplemen
 
 Wang Lin ne savait s'il devait rire ou pleurer. Il répondit: « Inutile de vous comparer à tout bout de champ. Je sais déjà que vous êtes puissant. »
 
-Situ Nan renifla: « Quand j'avais mon corps, je ne me soucierais même pas d'un junior comme toi. Si ce n'était pas pour le fait que tu es la seule personne capable de m'entendre, je ne te parlerais même pas. »
+Situ Nan renifla: « Quand j'avais mon corps, je ne me soucierais même pas d'un cadet comme toi. Si ce n'était pas pour le fait que tu es la seule personne capable de m'entendre, je ne te parlerais même pas. »
 
 Peu de temps après, la vitesse du disque lumineux s'accéléra encore. Wang Lin parvint à peine à stabiliser son corps, tout en se plaignant intérieurement. Soudain, un nuage sombre apparut devant eux.
 

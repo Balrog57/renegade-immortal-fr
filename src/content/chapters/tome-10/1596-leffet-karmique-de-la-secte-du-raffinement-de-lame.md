@@ -28,17 +28,17 @@ Le ciel était d'une clarté absolue, sans l'ombre d'un nuage à l'horizon. La d
 
 Il semblait que l'été soit arrivé un peu plus tôt cette année, et que la saison des pluies fût partie prématurément.
 
-Big Fortune s'éveilla également. Il se frotta les yeux et regarda le ciel par la fenêtre. Il sourit immédiatement, pointa fièrement l'extérieur du doigt et commença à rugir:
+Grande Fortune s'éveilla également. Il se frotta les yeux et regarda le ciel par la fenêtre. Il sourit immédiatement, pointa fièrement l'extérieur du doigt et commença à rugir:
 
 « J'ai fait un rêve la nuit dernière! D'un simple geste de mon doigt, j'ai arrêté le tonnerre. Haha, voyez comme je suis puissant! Hmph, hmph, il semble que je ne sois effectivement pas ordinaire. C'est dommage... »
 
 Les pensées de Wang Lin s'enfoncèrent dans son esprit à l'apparition du soleil. Il n'avait pas dormi de la nuit, mais il ne se sentait pas fatigué. Cependant, une douleur lancinante irradiait entre ses sourcils.
 
-Il se massa le front et regarda Big Fortune. En voyant le sourire de ce dernier, il se sentit heureux lui aussi.
+Il se massa le front et regarda Grande Fortune. En voyant le sourire de ce dernier, il se sentit heureux lui aussi.
 
 « Tu es puissant. C'est ton rêve qui a fait disparaître l'orage, d'accord? »
 
-Big Fortune devint tout excité et se sentit encore plus fier.
+Grande Fortune devint tout excité et se sentit encore plus fier.
 
 Le temps passa rapidement. L'examen impérial du comté devait se tenir dans cinq jours. Tous les érudits venus pour l'épreuve attendaient avec impatience la fin de ce délai. Le matin du sixième jour, le ciel était toujours radieux et tous les candidats sortirent des diverses auberges en hâte vers les différents centres d'examen.
 
@@ -46,7 +46,7 @@ Durant ces cinq jours, Wang Lin s'était rendu au bureau pour soumettre son insc
 
 Wang Lin ne voulait pas échouer; il ne pouvait supporter l'idée de voir l'expression déçue de ses parents. Il ne voulait pas que son échec pousse ses proches à adresser à ses parents ces regards de fausse compassion qui n'étaient, en réalité, que des moqueries.
 
-Big Fortune s'était ennuyé durant ces cinq jours. Très actif, il était sorti seul pendant que Wang Lin étudiait. Il avait erré dans la ville et avait progressivement fait des rencontres. Il avait même réussi à devenir encore plus avare.
+Grande Fortune s'était ennuyé durant ces cinq jours. Très actif, il était sorti seul pendant que Wang Lin étudiait. Il avait erré dans la ville et avait progressivement fait des rencontres. Il avait même réussi à devenir encore plus avare.
 
 Le sixième jour, Wang Lin prit un bain et brûla un peu d'encens. Il enfila ensuite une robe blanche d'érudit et poussa un soupir de soulagement. Il mit son sac en bambou sur ses épaules et marcha vers le centre d'examen.
 
@@ -54,13 +54,13 @@ Il se dirigeait vers le troisième centre, situé à l'ouest de la ville. La rue
 
 D'un coup d'œil, on voyait de nombreux érudits se précipiter vers les lieux d'examen. Ils étaient pressés, inquiets ou très nerveux. Même en mangeant, ils dévoraient souvent leur nourriture en quelques bouchées avant de repartir prestement.
 
-Wang Lin prit plusieurs inspirations profondes pour se calmer lentement. Après avoir mangé quelques brioches, il arriva devant la zone d'examen accompagné de Big Fortune. Il y avait beaucoup de monde, mais aucun bruit ne régnait. La plupart des gens avaient les yeux fermés, se remémorant leurs lectures.
+Wang Lin prit plusieurs inspirations profondes pour se calmer lentement. Après avoir mangé quelques brioches, il arriva devant la zone d'examen accompagné de Grande Fortune. Il y avait beaucoup de monde, mais aucun bruit ne régnait. La plupart des gens avaient les yeux fermés, se remémorant leurs lectures.
 
 Deux fonctionnaires en robe surveillaient froidement les érudits. Leur présence imposait une atmosphère solennelle. Wang Lin resta calmement debout à observer la zone d'examen, retrouvant peu à peu son sang-froid.
 
-Big Fortune regardait partout, mais plus il observait, plus il devenait sombre de visage. Il vit que les autres jeunes érudits étaient bien plus jeunes que lui; en comparaison, il semblait déplacé.
+Grande Fortune regardait partout, mais plus il observait, plus il devenait sombre de visage. Il vit que les autres jeunes érudits étaient bien plus jeunes que lui; en comparaison, il semblait déplacé.
 
-Après avoir marmonné quelques mots, Big Fortune sortit des brioches et en prit de grandes bouchées.
+Après avoir marmonné quelques mots, Grande Fortune sortit des brioches et en prit de grandes bouchées.
 
 Peu après, l'examen commença. Le son d'une cloche retentit au loin, résonnant dans toute la ville. C'était un son grave et profond.
 
@@ -72,9 +72,9 @@ Une fois les érudits entrés dans la salle, chacun fut fouillé. Après s'être
 
 Ce fut la même chose pour Wang Lin. Après l'inspection de son sac en bambou, on le laissa entrer.
 
-Big Fortune agita les mains vers Wang Lin en poussant un rugissement. Bien que les gens aux alentours froncent les sourcils et le regardent avec dédain, il n'en avait cure.
+Grande Fortune agita les mains vers Wang Lin en poussant un rugissement. Bien que les gens aux alentours froncent les sourcils et le regardent avec dédain, il n'en avait cure.
 
-Wang Lin sourit et fit un signe de la main à Big Fortune avant de pénétrer dans la salle.
+Wang Lin sourit et fit un signe de la main à Grande Fortune avant de pénétrer dans la salle.
 
 Après avoir trouvé la place portant son nom, Wang Lin s'assit calmement et prêta attention à l'examinateur. Une fois que tous les érudits furent installés, ils retournèrent leurs copies et se concentrèrent.
 
@@ -118,7 +118,7 @@ Après son départ, le vieil examinateur ramassa la feuille de Wang Lin et la re
 
 « Une telle compréhension du karma peut-elle émaner d'un adolescent? Cet homme ne deviendra peut-être pas un pilier de l'administration, mais il sera un grand érudit! » Le vieil examinateur resta pensif un long moment avant d'entourer le nom de Wang Lin.
 
-Wang Lin sortit de la zone d'examen. Il aperçut Big Fortune qui, après avoir attendu toute la journée, s'était endormi contre un arbre. Il sourit et s'apprêtait à le réveiller quand soudain, le monde s'obscurcit. Un hurlement fantomatique retentit, et les ténèbres enveloppèrent Wang Lin et Big Fortune, semblant les isoler du reste de la ville.
+Wang Lin sortit de la zone d'examen. Il aperçut Grande Fortune qui, après avoir attendu toute la journée, s'était endormi contre un arbre. Il sourit et s'apprêtait à le réveiller quand soudain, le monde s'obscurcit. Un hurlement fantomatique retentit, et les ténèbres enveloppèrent Wang Lin et Grande Fortune, semblant les isoler du reste de la ville.
 
 Un homme d'âge moyen vêtu d'une robe noire émergea du vent noir. Une aura glaciale émanait de son corps alors qu'il fixait Wang Lin.
 

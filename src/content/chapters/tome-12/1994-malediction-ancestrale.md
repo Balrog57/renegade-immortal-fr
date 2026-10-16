@@ -82,7 +82,7 @@ Gemini réfléchit en silence. Comment ne pas avoir percé à jour leurs intenti
 
 « Si vous refusez, alors ne nous blâmez pas de vous tuer pour extraire votre pouvoir de lignée et accomplir cette étape! » dit calmement Jiu Di, sans aucune intention meurtrière apparente, bien que ses paroles fussent d'une froideur extrême.
 
-« Gemini, les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule entité. Si vous les absorbez, cela inversera l'incident survenu lors de votre réincarnation et augmentera même votre puissance! Cela vous permettra également de vous séparer et de fusionner à tout moment, au lieu de consumer votre force de Purple Yang pour maintenir cet état de fusion!
+« Gemini, les yeux de l'Ancêtre Céleste ne formaient autrefois qu'une seule entité. Si vous les absorbez, cela inversera l'incident survenu lors de votre réincarnation et augmentera même votre puissance! Cela vous permettra également de vous séparer et de fusionner à tout moment, au lieu de consumer votre force de Yang Pourpre pour maintenir cet état de fusion!
 
 « Wu Feng, ce vieil homme peut confirmer que les oreilles de l'Ancêtre Céleste perçoivent le son du Dao et la trace des lois du Continent Astral Immortel. Je vous promets de vous les donner. Fusionnez-les avec votre Dao et vous pourrez atteindre le sommet du Dao martial!
 

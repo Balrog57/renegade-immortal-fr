@@ -65,7 +65,7 @@ Pourtant, au même instant, un coup de tonnerre retentit dans le ciel et une imm
 
 Un reniflement froid émana du cercueil: « La Formation Qiankun de Scellement Démoniaque... Si je ne connaissais pas déjà cette formation, il m'aurait été très difficile d'entrer. »
 
-Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Je dois dire que vous deux, vieux débris, n'avez-vous pas honte de devoir vous liguer pour tuer un simple junior en stade de Formation de l'Âme? »
+Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Je dois dire que vous deux, vieux débris, n'avez-vous pas honte de devoir vous liguer pour tuer un simple cadet en stade de Formation de l'Âme? »
 
 « La Secte des Cadavres! » L'homme d'âge moyen retira son doigt. Ses yeux pétillèrent alors qu'il fixait le vieillard.
 

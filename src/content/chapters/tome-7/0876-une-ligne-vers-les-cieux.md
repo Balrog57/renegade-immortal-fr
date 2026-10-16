@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 876 - A Line to the Heavens
 slug: une-ligne-vers-les-cieux
 ---
-L'expression de Wang Lin était neutre, mais son cœur fut troublé. D'après ce qu'il avait perçu à travers l'illusion, il était clair qu'il y avait six parchemins. Wang Lin resta calme et joignit respectueusement ses mains. « Merci, Senior Lie Yunzi. »
+L'expression de Wang Lin était neutre, mais son cœur fut troublé. D'après ce qu'il avait perçu à travers l'illusion, il était clair qu'il y avait six parchemins. Wang Lin resta calme et joignit respectueusement ses mains. « Merci, Aîné Lie Yunzi. »
 
 Lie Yunzi rit et observa attentivement Wang Lin. D'un revers de manche, il fit signe à quelqu'un d'autre de poursuivre l'épreuve céleste.
 

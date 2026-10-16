@@ -56,7 +56,7 @@ Wang Lin hocha légèrement la tête et observa le Grand Secte de l'Âme. De là
 
 Il réfléchit un instant. Il n'existait pas de rancœur profonde entre lui et Yan Lu. C'était lui qui l'avait provoquée en premier en dévastant sa demeure. Si cela avait été un autre, elle aurait eu du mal à l'accepter.
 
-« Senior Taureau Vert, il n'est pas nécessaire de me chercher un autre pic. Cette Montagne du Filon de Feu me suffira! » dit Wang Lin en désignant la montagne dévastée.
+« Aîné Taureau Vert, il n'est pas nécessaire de me chercher un autre pic. Cette Montagne du Filon de Feu me suffira! » dit Wang Lin en désignant la montagne dévastée.
 
 « Quant à la nouvelle demeure, donnez-la à Yan Lu. » Il adressa un sourire à la belle jeune femme.
 

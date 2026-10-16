@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1855 - Heavenly Bull’s Third Meridian
 slug: le-troisieme-meridien-du-taureau-celeste
 ---
-Qu'il s'agisse des sept méridiens ou des disciples résidant dans la Mer des Pillules, tous n'étaient que des pions placés par le Grand Secte de l'Âme!
+Qu'il s'agisse des sept méridiens ou des disciples résidant dans la Mer des Pilules, tous n'étaient que des pions placés par le Grand Secte de l'Âme!
 
-Si le Grand Secte de l'Âme avait vraiment porté attention à cela, la Mer des Pillules n'aurait pas été si facilement raffinée! Bien que le Continent du Démon Vert fût puissant, il ne pouvait égaler le premier ancêtre du Grand Secte de l'Âme en matière de divination!
+Si le Grand Secte de l'Âme avait vraiment porté attention à cela, la Mer des Pilules n'aurait pas été si facilement raffinée! Bien que le Continent du Démon Vert fût puissant, il ne pouvait égaler le premier ancêtre du Grand Secte de l'Âme en matière de divination!
 
 Car ce premier ancêtre appartenait à la même lignée que l'actuel Maître Impérial. Un héritier du Dao issu des temps anciens!
 
@@ -48,7 +48,7 @@ Tandis que Wang Lin les observait, les deux compagnons de Yan Lu l'étudiaient �
 
 Xu Dongde regarda Wang Lin et pensa intérieurement: « Quelqu'un capable d'accéder aux septième et huitième étages du Pavillon des Écritures de l'Âme ne peut être sous-estimé! »
 
-« Cet homme a quitté la Mer des Pillules en toute sécurité et a également provoqué l'explosion de la Pilule Céleste. Je ne peux le juger sur les seules apparences... De plus, sa capacité à revenir si rapidement de la Mer des Pillules est tout aussi prodigieuse! » Lu Wenran observait Wang Lin. Lui aussi était revenu de la Mer des Pillules, mais grâce au Bateau Nuageux du premier ancêtre que possédait l'Enseignant Meng. C'était l'un des trésors les plus mystérieux du premier ancêtre, et sa vitesse était inimaginable.
+« Cet homme a quitté la Mer des Pilules en toute sécurité et a également provoqué l'explosion de la Pilule Céleste. Je ne peux le juger sur les seules apparences... De plus, sa capacité à revenir si rapidement de la Mer des Pilules est tout aussi prodigieuse! » Lu Wenran observait Wang Lin. Lui aussi était revenu de la Mer des Pilules, mais grâce au Bateau Nuageux du premier ancêtre que possédait l'Enseignant Meng. C'était l'un des trésors les plus mystérieux du premier ancêtre, et sa vitesse était inimaginable.
 
 « Bien, puisque tout le monde est présent, notre mission consiste à nous rendre au troisième méridien du Taureau Céleste pour parer à l'invasion du Continent du Démon Vert. Ce voyage sera une lutte entre la vie et la mort, et l'imprévisible sera la règle... Soyez tous sur vos gardes! » Lu Wenran prit une profonde inspiration et joignit les mains en signe de respect envers les trois autres.
 

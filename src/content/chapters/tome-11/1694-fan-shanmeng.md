@@ -82,9 +82,9 @@ Après avoir fusionné avec la protection, une aura puissante émana du navire e
 
 « Puisque tu coopères avec ma sœur et moi, je ne te cacherai rien. À l'époque, deux des neuf soleils, le Grand Empereur Dao Yi et le Grand Empereur Xuan Luo des anciens pays, apparurent près de notre Secte aux Sept Taoïsmes. Leurs pouvoirs étaient divins; ils se disputaient un fragment de stockage qui s'était échappé du Domaine Divin Immemorial.
 
-« Normalement, Seven-Colored et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
+« Normalement, Sept-Couleurs et moi ne pouvions pas intervenir dans cette affaire ni en tirer profit, mais finalement, la fortune nous a souri... Même encore aujourd'hui, je ne comprends toujours pas comment Dao Yi ou Xuan Luo n'ont pas remarqué qu'une pièce manquait, même si le fragment de stockage était brisé.
 
-« Ce morceau manquant est tombé entre les mains de Seven-Colored, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte aux Sept Taoïsmes.
+« Ce morceau manquant est tombé entre les mains de Sept-Couleurs, et c'est alors que j'ai découvert son véritable visage. Afin de dissimuler l'aura, j'ai sacrifié toute ma culture pour la supprimer totalement, espérant retourner rapidement à la Secte aux Sept Taoïsmes.
 
 « Cependant, durant le voyage de retour, il m'a poignardée dans le dos. Prise au dépourvu, j'ai vu ma culture entière aspirée pour servir à supprimer le fragment. Il a ensuite tenté de détruire mon âme, voulant m'éliminer par peur que la nouvelle ne se répande.
 
@@ -108,10 +108,10 @@ Après avoir médité en silence un instant, Wang Lin demanda lentement: « Quel
 
 « Quant à la nature exacte du Domaine Divin Immemorial, je l'ignore également. »
 
-« Vous avez dit que ce Seven-Colored est différent du Seven-Colored passé. J'ai besoin d'une réponse. » Les yeux de Wang Lin brillèrent alors qu'il fixait la silhouette floue qui martelait les protections du navire.
+« Vous avez dit que ce Sept-Couleurs est différent du Sept-Couleurs passé. J'ai besoin d'une réponse. » Les yeux de Wang Lin brillèrent alors qu'il fixait la silhouette floue qui martelait les protections du navire.
 
 La femme réfléchit un instant et finit par dire: « Il n'est pas complet! »
 
 « Je ne sais pas comment il a convaincu Li Guang de l'aider à tuer Ye Mo, mais je sais qu'après avoir révélé à Lian Daofei comment pénétrer dans la grotte, une bataille féroce a éclaté!
 
-« Cette bataille eut lieu peu après la mort de Ye Mo. Seven-Colored est ensuite entré en culture fermée à cause de ses blessures pour étudier ce qu'il avait obtenu de ce fragment. Ce n'est que plus tard que j'ai appris qu'un Dao Céleste se trouvait à l'intérieur de ce fragment! »
+« Cette bataille eut lieu peu après la mort de Ye Mo. Sept-Couleurs est ensuite entré en culture fermée à cause de ses blessures pour étudier ce qu'il avait obtenu de ce fragment. Ce n'est que plus tard que j'ai appris qu'un Dao Céleste se trouvait à l'intérieur de ce fragment! »

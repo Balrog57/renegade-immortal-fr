@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1154 - On the Verge
 slug: au-bord-du-gouffre
 ---
-« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité »! En tant qu'Ancien de la Secte Qing Hua, il avait atteint le stade initial de Briseur du Nirvana.
+« Noble Argent » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité »! En tant qu'Ancien de la Secte Qing Hua, il avait atteint le stade initial de Briseur du Nirvana.
 
 Il possédait des sorts terrifiants et, de par sa personnalité, si vous le provoquiez sans disposer d'un niveau de culture puissant ou d'une secte solide pour vous protéger, la seule issue était la mort.
 
@@ -16,9 +16,9 @@ Cette bataille l'avait rendu célèbre, et chaque secte de la région de rang 6 
 
 À cet instant, son expression était sombre alors qu'il siégeait sur la tête d'un python à la crinière de dragon. Tandis que la bête spirituelle traversait la région de rang 5, les disciples de la Secte Qing Hua le suivaient.
 
-« Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Money songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte Qing Hua avait accidentellement découvert des indices liés à la légendaire Pilule du Nirvana Vide ainsi qu'un jade révélant comment devenir un disciple central de la Secte Brise-Ciel.
+« Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Argent songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte Qing Hua avait accidentellement découvert des indices liés à la légendaire Pilule du Nirvana Vide ainsi qu'un jade révélant comment devenir un disciple central de la Secte Brise-Ciel.
 
-En tant que cultivateur natif de la Mer de Nuages, Noble Money connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
+En tant que cultivateur natif de la Mer de Nuages, Noble Argent connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
 
 Il y a 18 000 ans, dans la Mer de Nuages, la Secte Brise-Ciel était une puissance de rang 8 prête à intégrer la mighty région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Brise-Ciel avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Fléau des Cieux. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
 
@@ -34,7 +34,7 @@ Pourtant, la Secte Brise-Ciel, détenant le droit d'entrer dans la région de ra
 
 La région de rang 7 fut affectée et envoya ses propres cultivateurs, tandis que la région de rang 6 fut entraînée dans le conflit. Même la région de rang 5 ne fut pas épargnée, déclenchant une catastrophe qui balaya toute la Mer de Nuages.
 
-Cet événement fut d'une violence extrême. Même 18 000 ans plus tard, Noble Money en tremblait encore à l'idée.
+Cet événement fut d'une violence extrême. Même 18 000 ans plus tard, Noble Argent en tremblait encore à l'idée.
 
 Finalement, cela poussa la région de rang 9, qui n'intervenait presque jamais, à s'en mêler. Cette situation fut légèrement défavorable pour la Secte Brise-Ciel et, à ce moment-là, celle-ci se scinda!
 
@@ -66,19 +66,19 @@ Cependant, Shi Luoxing ne pensait pas que cette piste soit vraie! Il parvint pou
 
 Mais alors qu'il regagnait la Secte Qing Hua, il fut poursuivi par la Secte des Cinq Poisons. Les autres sectes de la région de rang 6 furent également informées de l'affaire.
 
-« Shi Luoxing, tiens bon! » L'énergie originelle de Noble Money fut injectée dans la bête spirituelle sous ses pieds. La créature accéléra encore davantage, perçant les couches de brouillard vers le continent sauvage.
+« Shi Luoxing, tiens bon! » L'énergie originelle de Noble Argent fut injectée dans la bête spirituelle sous ses pieds. La créature accéléra encore davantage, perçant les couches de brouillard vers le continent sauvage.
 
 Il ne dirigeait que la première vague de renforts. Derrière lui, presque toute la Secte Qing Hua était en mouvement.
 
-Alors qu'ils fendaient le brouillard stellaire, le regard de Noble Money se fit plus perçant lorsqu'il perçut un cultivateur dans le champ de son Sens Divin. Ce dernier montait sur un singe noir de mille pieds.
+Alors qu'ils fendaient le brouillard stellaire, le regard de Noble Argent se fit plus perçant lorsqu'il perçut un cultivateur dans le champ de son Sens Divin. Ce dernier montait sur un singe noir de mille pieds.
 
-Sur le chemin parcouru, ce cultivateur aux cheveux blancs n'était pas le premier qu'il croisait. Cependant, l'endroit n'étant pas loin du continent sauvage, Noble Money ne put s'empêcher d'être vigilant.
+Sur le chemin parcouru, ce cultivateur aux cheveux blancs n'était pas le premier qu'il croisait. Cependant, l'endroit n'étant pas loin du continent sauvage, Noble Argent ne put s'empêcher d'être vigilant.
 
 Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Lui seul, mais aussi une dizaine de disciples de la Secte Qing Hua, fixaient le cultivateur.
 
 Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa culture était singulière et que les étrangers ne pouvaient pas la percer immédiatement; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Scruteur du Nirvana.
 
-Noble Money détourna le regard. Il brûlait d'envie d'atteindre le continent sauvage. À première vue, il ne vit rien d'anormal chez ce cultivateur aux cheveux blancs qui semblait manifestement stupéfait par leur apparition soudaine.
+Noble Argent détourna le regard. Il brûlait d'envie d'atteindre le continent sauvage. À première vue, il ne vit rien d'anormal chez ce cultivateur aux cheveux blancs qui semblait manifestement stupéfait par leur apparition soudaine.
 
 D'après la carte stellaire qu'il possédait, plusieurs continents sauvages se trouvaient à proximité. En observant la trajectoire de l'homme, il était évident que celui-ci venait d'un autre continent sauvage.
 
@@ -90,20 +90,20 @@ Cependant, à cet instant précis, un rayon de lumière jaillit de la distance �
 
 Il s'agissait manifestement d'un message transmis par un jade. Ces sorts étaient utilisés au sein des sectes pour transférer des informations via des jades se déplaçant bien plus vite que les cultivateurs eux-mêmes. Ils n'avaient pas à craindre l'interception car, sans le sceau approprié, le jade s'effondrerait instantanément. Pour prévenir tout accident, plusieurs jades étaient souvent envoyés simultanément.
 
-Ce jade vola trop vite et dépassa Wang Lin en un clin d'œil avant de retomber dans la main de Noble Money, qui n'était pas encore loin. L'expression de ce dernier changea brusquement; sa main gauche traça un sceau unique pour vérifier le contenu. Dès que son Sens Divin pénétra dans le jade, son corps fut parcouru d'un tremblement.
+Ce jade vola trop vite et dépassa Wang Lin en un clin d'œil avant de retomber dans la main de Noble Argent, qui n'était pas encore loin. L'expression de ce dernier changea brusquement; sa main gauche traça un sceau unique pour vérifier le contenu. Dès que son Sens Divin pénétra dans le jade, son corps fut parcouru d'un tremblement.
 
 C'était un message envoyé par la seconde vague de cultivateurs. Il ne contenait qu'une seule information: la tablette spirituelle de Shi Luoxing s'était brisée!
 
 Shi Luoxing était mort!
 
-Le visage de Noble Money devint extrêmement sombre et il broya impitoyablement le jade. Soudain, son regard se posa sur Wang Lin. Il ne soupçonnait pas directement ce dernier, mais maintenant que Shi Luoxing était mort sans qu'on sache qui l'avait tué, tous — qu'il s'agisse de la Secte des Cinq Poisons ou de n'importe quelle autre secte de rang 6 — devenaient suspects!
+Le visage de Noble Argent devint extrêmement sombre et il broya impitoyablement le jade. Soudain, son regard se posa sur Wang Lin. Il ne soupçonnait pas directement ce dernier, mais maintenant que Shi Luoxing était mort sans qu'on sache qui l'avait tué, tous — qu'il s'agisse de la Secte des Cinq Poisons ou de n'importe quelle autre secte de rang 6 — devenaient suspects!
 
-Cette affaire était d'une importance capitale, et Noble Money préférait tuer mille innocents plutôt que de laisser un seul coupable s'échapper!
+Cette affaire était d'une importance capitale, et Noble Argent préférait tuer mille innocents plutôt que de laisser un seul coupable s'échapper!
 
-« Emmenez-le au continent sauvage! » ordonna Noble Money en pointant Wang Lin du doigt. Huit disciples s'élancèrent alors vers lui.
+« Emmenez-le au continent sauvage! » ordonna Noble Argent en pointant Wang Lin du doigt. Huit disciples s'élancèrent alors vers lui.
 
 Le visage de Wang Lin changea. Il se leva avec respect, tout en affichant la dose exacte de panique nécessaire: « Compagnons Cultivateurs, que signifie cela? »
 
 « Ne nous forcez pas à agir. Compagnon Cultivateur, suivez-nous, et vite! » Parmi les huit disciples, six étaient au stade Yang Corporel et deux au stade initial de Scruteur du Nirvana.
 
-S'ils avaient rencontré Wang Lin dans des circonstances normales, ils n'auraient jamais osé un tel acte, car sa culture était supérieure à la leur. Cependant, en présence de l'Ancien Noble Money et face à une affaire aussi cruciale pour leur secte, ils étaient devenus tous d'une hostilité sans faille.
+S'ils avaient rencontré Wang Lin dans des circonstances normales, ils n'auraient jamais osé un tel acte, car sa culture était supérieure à la leur. Cependant, en présence de l'Ancien Noble Argent et face à une affaire aussi cruciale pour leur secte, ils étaient devenus tous d'une hostilité sans faille.

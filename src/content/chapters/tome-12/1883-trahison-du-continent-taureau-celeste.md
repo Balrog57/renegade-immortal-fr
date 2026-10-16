@@ -8,7 +8,7 @@ slug: trahison-du-continent-taureau-celeste
 ---
 Chapitre 1883 - Trahison du Continent Taureau Céleste!
 
-« Ce junior ne comprend pas pourquoi tout le monde a reçu deux récompenses alors que je n'ai obtenu qu'une armure d'élément feu! » Wang Lin ne faisait preuve d'aucune politesse. Il n'était plus un simple disciple, il était désormais un Ancien du Grand Secte de l'Âme.
+« Ce cadet ne comprend pas pourquoi tout le monde a reçu deux récompenses alors que je n'ai obtenu qu'une armure d'élément feu! » Wang Lin ne faisait preuve d'aucune politesse. Il n'était plus un simple disciple, il était désormais un Ancien du Grand Secte de l'Âme.
 
 Par conséquent, il ne pouvait rester sans réagir. Même si l'interlocuteur était le Maître de la Secte Gui Yi, il comptait bien les remettre en question.
 
@@ -36,7 +36,7 @@ En entendant parler des âmes de vie, les pupilles de Wang Lin se rétractèrent
 
 Yun Yifeng, disciple de la Secte Gui Yi, n'hésita pas. Sa main droite toucha le point entre ses sourcils et son corps trembla. Une parcelle d'âme s'en échappa pour former une sphère qui vola vers le grand hall.
 
-Le vieil homme nommé Edge Cloud hésita un instant, mais ne refusa pas non plus. Il extirpa également une parcelle de son âme de vie et l'envoya vers le grand hall.
+Le vieil homme nommé Bord-des-Nuages hésita un instant, mais ne refusa pas non plus. Il extirpa également une parcelle de son âme de vie et l'envoya vers le grand hall.
 
 Quant à Tang Jia, elle réfléchit un moment puis serra les dents. Elle était prête à payer n'importe quel prix pour le développement de sa secte. Sans compter que c'était nécessaire, sinon elle ne pourrait jamais être téléportée depuis le Continent du Démon Vert.
 
@@ -68,7 +68,7 @@ Faute d'informations, il ne pouvait pas se permettre de perdre l'armure d'âme. 
 
 « Il y a un problème ici! La Secte Gui Yi connaît mon identité, sait que je viens du monde des grottes et connaît mon lien avec Xuan Luo, et pourtant... » Wang Lin ne comprenait pas, et il n'avait pas le temps de comprendre. Entre abandonner l'armure et affronter l'inconnu, ou garder l'armure et se battre, il choisit sans hésiter la seconde option!
 
-Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Edge Cloud. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire ne laissant apparaître que ses yeux et ses cheveux blancs qui flottaient sans qu'aucun vent ne soufflât.
+Au moment où la main géante se refermait, le tatouage du Taureau Céleste sur le côté droit du visage de Wang Lin libéra une lumière noire infinie, stupéfiant Yun Yifeng, Tang Jia et Bord-des-Nuages. La lueur noire enveloppa instantanément tout le corps de Wang Lin pour se transformer en d'innombrables filaments noirs. Ils prirent la forme d'une armure noire ne laissant apparaître que ses yeux et ses cheveux blancs qui flottaient sans qu'aucun vent ne soufflât.
 
 Le niveau de culture de Wang Lin bondit soudainement du stade avancé de l'Espace Spirituel au stade précoce de la Tribulation du Vide dès qu'il revêtit l'armure. Il leva la main droite et utilisa l'Empreinte de l'Esprit Guerrier. L'immense empreinte démoniaque à six doigts apparut et percuta de plein fouet la gigantesque main noire.
 
@@ -80,7 +80,7 @@ Avec son niveau de culture actuel, après avoir été frappé par les vestiges d
 
 Alors qu'il était repoussé, Wang Lin entendit ces mots. Il serra les dents, envahi par une émotion indescriptible. Il avait le sentiment diffus que ces trois objets étaient, à l'origine, ses propres récompenses...
 
-À la suite de cette annonce, l'expression d'Edge Cloud changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin!
+À la suite de cette annonce, l'expression d'Bord-des-Nuages changea radicalement, révélant un regard d'incrédulité. Sans hésiter, le tatouage du Taureau Céleste sur le côté droit de son visage s'illumina et enveloppa tout son corps, formant la même armure d'âme que celle de Wang Lin. Son niveau de culture augmenta considérablement, passant du stade intermédiaire de la Tribulation du Vide au stade avancé. En un éclair, il se lança à la poursuite de Wang Lin!
 
 S'il était si déterminé, c'était à cause de la Perle de Taureau Céleste!
 
@@ -98,7 +98,7 @@ Cette terre sainte ne pouvait atteindre sa perfection que lorsque trois perles �
 
 La Voile Fantôme de protection du Grand Secte de l'Âme était un secret hautement protégé. Son drapeau secondaire pouvait libérer une puissance colossale, même à distance.
 
-Ces deux objets suffisaient à rendre n'importe qui fou! C'était la raison pour laquelle Edge Cloud s'était lancé à la poursuite de Wang Lin avec une telle détermination et les yeux injectés de sang.
+Ces deux objets suffisaient à rendre n'importe qui fou! C'était la raison pour laquelle Bord-des-Nuages s'était lancé à la poursuite de Wang Lin avec une telle détermination et les yeux injectés de sang.
 
 Tang Jia trembla. Après un bref instant de réflexion, elle serra les dents et une lumière noire l'enveloppa. Son armure d'âme apparut, son niveau de culture atteignant le stade intermédiaire de la Tribulation du Vide, et elle partit également à sa poursuite.
 

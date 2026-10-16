@@ -8,7 +8,7 @@ slug: la-ville-numero-un-du-clan-celeste
 ---
 Chapitre 1970 - La Ville Numéro Un du Clan Céleste!
 
-Alors que la neige tombait, deux silhouettes descendirent l'une après l'autre de la Secte Purple Yang: Wang Lin et Liu Jinbiao.
+Alors que la neige tombait, deux silhouettes descendirent l'une après l'autre de la Secte Yang Pourpre: Wang Lin et Liu Jinbiao.
 
 Wang Lin avait cultivé en silence durant une année entière, imprégné de l'aura de sa ville natale qui lui manquait tant. Durant cette période, son essence de bois avait atteint la perfection et était sur le point de former un véritable corps d'essence.
 
@@ -22,11 +22,11 @@ Il n'en avait saisi qu'un infime fragment. C'était comme s'il venait d'ouvrir l
 
 « Atteindre le rang de Grand Exalté ne sera pas difficile... le plus ardu sera les essences éthérées... La cité impériale est la demeure de l'Ancêtre Céleste. Peut-être pourrai-je y trouver l'aura de l'épée de l'Ancêtre Céleste... » Wang Lin fit face au vent et à la neige en avançant.
 
-Se rendre de la Secte Purple Yang du Continent Oriental à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
+Se rendre de la Secte Yang Pourpre du Continent Oriental à la cité impériale du Continent Central représentait un voyage extrêmement long. Pour des cultivateurs ordinaires, même en volant à pleine vitesse, cela prendrait une éternité, à moins d'utiliser des formations de téléportation.
 
 La silhouette de Wang Lin fut enveloppée par le vent et la neige. Il fut progressivement recouvert par les flocons alors qu'il utilisait la Distorsion Spatiale pour quitter le Continent Oriental avec Liu Jinbiao et le dragon marin.
 
-Derrière eux, à la Secte Purple Yang, se tenaient Gu Ya et deux petites filles. Elles regardaient au loin, le regard empreint de mélancolie.
+Derrière eux, à la Secte Yang Pourpre, se tenaient Gu Ya et deux petites filles. Elles regardaient au loin, le regard empreint de mélancolie.
 
 « Est-ce qu'il reviendra...? » L'esprit de Wa Wa était quelque peu abattu.
 
@@ -76,7 +76,7 @@ Une montagne, un homme, un Grand Empyréen Jiu Dai; ensemble, ils faisaient en s
 
 Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
-C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Purple Yang, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gemini avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
+C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Yang Pourpre, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gemini avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
 Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Il faudrait plusieurs mois pour que les vents glaciaux et la neige qui balayaient le Continent Oriental recouvrent le Continent Central.
 

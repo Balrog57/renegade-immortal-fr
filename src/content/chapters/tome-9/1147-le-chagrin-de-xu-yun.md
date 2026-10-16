@@ -66,7 +66,7 @@ Les disciples de la secte le savaient tous et n'osaient pas venir ici pour cueil
 
 Si la pilule explosait, non seulement la maison serait détruite, mais le jardin lui-même en subirait les conséquences. Xu Yun frappa le sol de frustration, mais n'osa pas s'avancer pour l'interrompre.
 
-« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa culture élevée pour intimider une junior comme moi. Quel tyran! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
+« Hmph, s'il refuse d'aller dans la salle d'alchimie, c'est qu'il doit avoir son propre fourneau. Il ne sait que s'appuyer sur sa culture élevée pour intimider une cadette comme moi. Quel tyran! » Plus Xu Yun y pensait, plus sa colère grandissait. Elle finit par s'asseoir dehors pour attendre. Si la pilule explosait, elle ferait de son mieux pour protéger les herbes. Une grande partie de l'affection qu'elle portait autrefois à Wang Lin s'était évaporée.
 
 « Arrogant, quel arrogant! » En repensant au visage de Wang Lin, sa colère redoublait.
 

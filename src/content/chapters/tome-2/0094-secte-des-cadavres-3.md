@@ -86,6 +86,6 @@ Un jeune homme sur un pilier ouvrit les yeux. À cet instant précis, une lueur 
 
 « Qu'est-ce que c'est? » Un autre jeune homme ouvrit les yeux. Les deux se regardèrent, puis scrutèrent attentivement la formation. Peu après, un nouveau flash parcourut la structure et le nombre d'anneaux allumés passa de treize à vingt-huit.
 
-« Il semble qu'un Senior arrive. » Deux autres jeunes hommes ouvrirent les yeux. Une pointe de respect se lisait dans leurs regards froids alors qu'ils fixaient la formation.
+« Il semble qu'un Aîné arrive. » Deux autres jeunes hommes ouvrirent les yeux. Une pointe de respect se lisait dans leurs regards froids alors qu'ils fixaient la formation.
 
-Au même moment, un grondement émana de la structure tandis que les anneaux de lumière s'allumaient un à un, dépassant le nombre de vingt-huit. Les quatre derniers jeunes hommes ouvrirent les yeux, l'expression frappée par la stupeur. Lorsque quarante anneaux furent illuminés, ils se levèrent tous, tombèrent à genoux et formèrent un signe étrange en s'exclamant: « Bienvenue, Senior... »
+Au même moment, un grondement émana de la structure tandis que les anneaux de lumière s'allumaient un à un, dépassant le nombre de vingt-huit. Les quatre derniers jeunes hommes ouvrirent les yeux, l'expression frappée par la stupeur. Lorsque quarante anneaux furent illuminés, ils se levèrent tous, tombèrent à genoux et formèrent un signe étrange en s'exclamant: « Bienvenue, Aîné... »

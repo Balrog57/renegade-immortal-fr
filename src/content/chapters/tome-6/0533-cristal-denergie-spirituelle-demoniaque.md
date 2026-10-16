@@ -68,7 +68,7 @@ Wang Lin hocha la tête et dit: « Vérifie si tu peux voir ce qui se trouve à 
 
 Ouyang Hua saisit précipitamment le jade, le pressa contre son front et commença à visualiser. Le chant contenu dans le jade s'imprima rapidement dans sa mémoire.
 
-Le corps d'Ouyang Hua trembla tandis qu'il prenait une profonde inspiration pour contenir son émotion, et il dit: « Ce junior a vu. » Il changea inconsciemment la façon dont il se désignait.
+Le corps d'Ouyang Hua trembla tandis qu'il prenait une profonde inspiration pour contenir son émotion, et il dit: « Ce cadet a vu. » Il changea inconsciemment la façon dont il se désignait.
 
 Wang Lin acquiesça. Plus tôt, il avait utilisé son doigt pour forcer l'ouverture d'un méridien chez Ouyang Hua. Cette méthode était extrêmement tyrannique et entraînerait de lourdes conséquences à l'avenir, mais c'était le moyen le plus rapide d'augmenter sa culture!
 

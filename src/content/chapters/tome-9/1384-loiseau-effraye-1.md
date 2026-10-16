@@ -40,11 +40,11 @@ L'expression de tous les cultivateurs de la planète changea radicalement. Ils l
 
 Des grondements tonitruants déchirèrent le ciel et la terre trembla, comme si elle ne pouvait supporter la pression de tous ces cultivateurs descendant des cieux!
 
-Le nouveau territoire du Clan du Scorpion Noir se situait près de la grotte où Wang Lin cultivait auparavant. À cet instant, Zhong Big Red marchait les mains derrière le dos, l'air grave, tout en réprimandant certains membres du clan.
+Le nouveau territoire du Clan du Scorpion Noir se situait près de la grotte où Wang Lin cultivait auparavant. À cet instant, Zhong Grand Rouge marchait les mains derrière le dos, l'air grave, tout en réprimandant certains membres du clan.
 
-Le vieil homme nommé Zhang suivait Zhong Big Red avec un air respectueux, bien qu'une pointe de satisfaction se lisât dans ses yeux. Cela était d'autant plus marqué lorsqu'il voyait les cultivateurs du Clan du Scorpion Noir, pourtant dotés de niveaux de culture plus élevés, trembler sous les remontrances de Zhong Big Red.
+Le vieil homme nommé Zhang suivait Zhong Grand Rouge avec un air respectueux, bien qu'une pointe de satisfaction se lisât dans ses yeux. Cela était d'autant plus marqué lorsqu'il voyait les cultivateurs du Clan du Scorpion Noir, pourtant dotés de niveaux de culture plus élevés, trembler sous les remontrances de Zhong Grand Rouge.
 
-« Ce n'est pas que je souhaite vous réprimander, mais regardez ce que vous avez fait ces derniers jours! Cela fait déjà plusieurs jours et vous n'avez absolument rien trouvé! Lorsque Maître reviendra, vous devrez tous en assumer la responsabilité! Humph! » Zhong Big Red agita sa manche et laissa échapper un reniflement méprisant.
+« Ce n'est pas que je souhaite vous réprimander, mais regardez ce que vous avez fait ces derniers jours! Cela fait déjà plusieurs jours et vous n'avez absolument rien trouvé! Lorsque Maître reviendra, vous devrez tous en assumer la responsabilité! Humph! » Zhong Grand Rouge agita sa manche et laissa échapper un reniflement méprisant.
 
 Ce bruit fit pâlir les membres du Clan du Scorpion Noir. L'un d'eux hésita avant de joindre les mains et de dire: « À ce sujet... »
 
@@ -52,7 +52,7 @@ Mais avant qu'il ne puisse terminer, son expression changea radicalement et il l
 
 Le Patriarche du Clan du Scorpion Noir, qui siégeait dans la vallée à l'extérieur de la grotte de Wang Lin, ouvrit soudainement les yeux avec horreur et s'élança dans les airs.
 
-Zhong Big Red fut également saisi de stupeur en levant le regard. Son visage devint livide, pétrifié par l'effroi. Le vieil homme nommé Zhang eut également un haut-le-cœur, totalement stupéfait.
+Zhong Grand Rouge fut également saisi de stupeur en levant le regard. Son visage devint livide, pétrifié par l'effroi. Le vieil homme nommé Zhang eut également un haut-le-cœur, totalement stupéfait.
 
 Des ondulations couvraient le ciel comme la surface d'une mer déchaînée, et des vagues monstrueuses se formaient. Les rayons d'énergie de l'épée produisaient un hurlement puissant à mesure qu'ils approchaient!
 

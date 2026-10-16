@@ -10,7 +10,7 @@ Depuis la disparition de l'ancêtre de la famille Ran et de Xiaoyao Sanren, la f
 
 Au cours de ces vingt années de changements, les membres de la famille Sun étaient devenus arrogants.
 
-La ville de Vast Water possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
+La ville des Vastes Eaux possédait également une branche de la famille Sun. À cet instant, trois anciens au stade de la Formation de l'Âme étaient assis dans le hall principal du domaine de cette branche. Devant eux se tenaient toutes les personnes impliquées dans l'incident du restaurant.
 
 C'était la première fois que Qing Yi se retrouvait dans une telle situation, elle était donc très nerveuse. Elle gardait la tête baissée, affichant une attitude empreinte de respect.
 
@@ -18,11 +18,11 @@ Son maître, un cultivateur au stade de la Formation du Noyau, se tenait à ses 
 
 L'un des anciens de la famille Sun était un vieil homme au visage rubicond. Il entrouvrit les yeux et demanda d'une voix feutrée: « Cette personne a-t-elle vraiment dit cela? »
 
-Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Junior n'a certainement pas mal entendu. Cette personne a clairement dit: "juste cette fois!" »
+Le vieil homme au stade avancé de l'Âme Naissante, qui avait tenté d'intercepter Wang Lin, hocha rapidement la tête: « Ce cadet n'a certainement pas mal entendu. Cette personne a clairement dit: "juste cette fois!" »
 
 Un reniflement glacial émana d'un vieil homme en robe verte; ses yeux devinrent glaciaux tandis qu'il déclarait: « Il semble que quelqu'un cherche à provoquer notre famille Sun. Cet individu peut faire s'effondrer le noyau d'un cultivateur de la Formation du Noyau d'un simple regard, et a fait reculer trois cultivateurs de l'Âme Naissante d'un seul pas. Je crains qu'il ne soit au stade de la Transformation de l'Âme! »
 
-Le dernier ancien déclara calmement: « Et alors, s'il est un cultivateur de la Transformation de l'Âme? L'ancêtre de notre famille Sun est toujours présent, et il y a aussi ce senior qui nous protégera durant un siècle. Même la famille Huan de la planète Mille Illusions n'oserait provoquer ce senior. Avec lui à nos côtés, notre famille Sun ne s'effondrera pas! »
+Le dernier ancien déclara calmement: « Et alors, s'il est un cultivateur de la Transformation de l'Âme? L'ancêtre de notre famille Sun est toujours présent, et il y a aussi cet aîné qui nous protégera durant un siècle. Même la famille Huan de la planète Mille Illusions n'oserait provoquer cet aîné. Avec lui à nos côtés, notre famille Sun ne s'effondrera pas! »
 
 L'ancien au visage rouge reprit: « Quel est le nom de famille de cette personne? »
 
@@ -32,17 +32,17 @@ Le regard de l'ancien au visage rouge se posa sur Qing Yi.
 
 « Le sais-tu? »
 
-Le corps de Qing Yi trembla. Après avoir hésité un instant, elle secoua la tête: « Junior ne sait pas... »
+Le corps de Qing Yi trembla. Après avoir hésité un instant, elle secoua la tête: « Ce cadet ne sait pas... »
 
 « Quel culot! » Les yeux du vieil homme au visage rouge se plissèrent. Fort de son expérience, il comprit d'un seul regard que la jeune fille mentait.
 
-Qing Yi baissa amèrement la tête et murmura: « Junior ne sait vraiment pas. »
+Qing Yi baissa amèrement la tête et murmura: « Ce cadet ne sait vraiment pas. »
 
 L'ancien au visage rouge laissa échapper un reniflement méprisant, puis se leva: « Laissons cette affaire de côté pour l'instant. J'ai déjà informé le clan, et ils enverront un cultivateur de la Transformation de l'Âme pour régler cela. Quant à ce membre extérieur, puisqu'elle a quelqu'un d'autre dans son cœur, chassez-la de la famille Sun! »
 
 « Ce vieux souhaite voir sur quelle base cette personne ose proférer des paroles aussi arrogantes que "juste cette fois!" Sur la planète Ran Yun, nul n'ose s'adresser à ma famille Sun avec un tel ton! »
 
-Dans la partie nord de la ville de Vast Water, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
+Dans la partie nord de la ville des Vastes Eaux, l'enseigne du domicile de Wang Lin avait déjà été posée. Wang Lin avait personnellement écrit les deux caractères: « Résidence Wang ».
 
 Wang Lin n'avait pas remplacé les servantes de la demeure et continuait de les garder; de cette façon, le manoir était bien moins solitaire.
 
@@ -80,7 +80,7 @@ Alors que Wang Lin se tenait dans la cour sous le clair de lune, son ombre s'ét
 
 Cette nuit-là, Wang Ping ne dormit pas.
 
-Trois jours plus tard, un homme arriva à Vast Water City. Il portait un manteau noir et semblait assez âgé. Dès son arrivée, il se rendit à la branche de la famille Sun.
+Trois jours plus tard, un homme arriva à Ville des Vastes Eaux. Il portait un manteau noir et semblait assez âgé. Dès son arrivée, il se rendit à la branche de la famille Sun.
 
 Tous les cultivateurs de la branche familiale sortirent pour accueillir ce visiteur. Bien qu'ils aient pressenti que l'arrivant serait un cultivateur de la Transformation de l'Âme, lorsque les trois anciens virent qui était là, ils en eurent le souffle coupé et se montrèrent encore plus respectueux.
 

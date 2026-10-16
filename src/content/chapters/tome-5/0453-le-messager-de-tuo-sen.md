@@ -46,7 +46,7 @@ Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Ch
 
 Il contemplait les Étoiles Brisées et Chaotiques avec hésitation.
 
-« La tribulation divine ne provenait pas d'un ancien cultivateur, mais seulement d'un junior raffinant un trésor antique. Ce vieil homme a parcouru toute la planète au cours de ces dernières centaines d'années sans trouver le moindre ancien cultivateur, et mon estomac commence à se languir. Seul ici puis-je humer le parfum des anciens cultivateurs, mais cet endroit est bien trop dangereux. Dois-je y aller ou non?! »
+« La tribulation divine ne provenait pas d'un ancien cultivateur, mais seulement d'un cadet raffinant un trésor antique. Ce vieil homme a parcouru toute la planète au cours de ces dernières centaines d'années sans trouver le moindre ancien cultivateur, et mon estomac commence à se languir. Seul ici puis-je humer le parfum des anciens cultivateurs, mais cet endroit est bien trop dangereux. Dois-je y aller ou non?! »
 
 L'individu réfléchit un moment, puis ses yeux s'illuminèrent avant qu'il ne secoue la tête en marmonnant: « Laisse tomber. Je ne peux pas sacrifier ma vie pour mon appétit. Mes blessures se sont quelque peu remises, il est temps de quitter la planète Suzaku. Si je devais être découvert par ce Situ Nan, je serais incapable de l'emporter dans mon état actuel. »
 

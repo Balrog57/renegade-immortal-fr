@@ -6,9 +6,9 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1848 - Concealed
 slug: dissimulation
 ---
-Wang Lin avança et apparut au-dessus de la Mer des Pillules. En dessous de lui s'étendait la restriction invisible. Grâce à celle-ci, il n'avait pas à craindre d'être découvert par les cultivateurs se trouvant dans la zone.
+Wang Lin avança et apparut au-dessus de la Mer des Pilules. En dessous de lui s'étendait la restriction invisible. Grâce à celle-ci, il n'avait pas à craindre d'être découvert par les cultivateurs se trouvant dans la zone.
 
-Toutefois, Wang Lin restait extrêmement prudent et dissimula son aura. Il se déplaça telle une ombre, volant vers l'autre extrémité de la Mer des Pillules.
+Toutefois, Wang Lin restait extrêmement prudent et dissimula son aura. Il se déplaça telle une ombre, volant vers l'autre extrémité de la Mer des Pilules.
 
 En quelques enjambées, Wang Lin fusionna avec le monde et disparut. Lorsqu'il réapparut, il se trouvait dans le ciel, à proximité du Continent du Démon Vert. Ici, même la voûte céleste était parcourue par une multitude de cultivateurs du Continent du Démon Vert.
 
@@ -16,7 +16,7 @@ Ces derniers possédaient des niveaux de culture variés. La plupart étaient au
 
 À mesure que les cultivateurs du Continent du Démon Vert se multipliaient, ceux du Vide Arcane apparaissaient également, obligeant Wang Lin à ralentir davantage sa progression. Après avoir mûri sa réflexion, il plongea dans la restriction invisible en contrebas. Ses yeux s'injectèrent de sang alors qu'il s'immergeait dans la brume.
 
-Wang Lin possédait l'essence de la restriction. À cet instant, il pouvait imiter la barrière entourant la Mer des Pillules grâce à son essence; il était donc confiant de ne pas être remarqué durant un certain temps.
+Wang Lin possédait l'essence de la restriction. À cet instant, il pouvait imiter la barrière entourant la Mer des Pilules grâce à son essence; il était donc confiant de ne pas être remarqué durant un certain temps.
 
 Après avoir pénétré dans la septième couche de brouillard, Wang Lin se déplaça avec précaution pour localiser la boussole qui servait de centre à cette restriction. À mesure qu'il se rapprochait du Continent du Démon Vert, de plus en plus de cultivateurs passaient au-dessus de lui.
 
@@ -66,9 +66,9 @@ Autour d'eux se trouvaient des centaines de cultivateurs en robes vertes. Tels d
 
 Personne, pas même la femme, ne soupçonnait que Wang Lin se trouvait dans la septième couche de la restriction invisible au-dessus d'eux. Wang Lin les observa froidement, fixant particulièrement la boussole entre les mains de la femme.
 
-« C'est la boussole! Une fois que je l'aurai obtenue, je n'aurai plus besoin de me cacher dans la brume. C'est le seul objet capable de détecter mon entrée dans la Mer des Pillules... » Grâce à son essence de restriction, Wang Lin avait étudié ce mécanisme et savait que cette boussole en était la clé.
+« C'est la boussole! Une fois que je l'aurai obtenue, je n'aurai plus besoin de me cacher dans la brume. C'est le seul objet capable de détecter mon entrée dans la Mer des Pilules... » Grâce à son essence de restriction, Wang Lin avait étudié ce mécanisme et savait que cette boussole en était la clé.
 
-Seul cet instrument pouvait garantir qu'il resterait indétectable dans la mer. Il pourrait alors trouver Void Cloud, l'exterminer et s'échapper sain et sauf. La boussole était également son seul moyen de localiser Void Cloud; il serait impossible de débusquer un homme seul dans cette immensité sans elle!
+Seul cet instrument pouvait garantir qu'il resterait indétectable dans la mer. Il pourrait alors trouver Nuage du Vide, l'exterminer et s'échapper sain et sauf. La boussole était également son seul moyen de localiser Nuage du Vide; il serait impossible de débusquer un homme seul dans cette immensité sans elle!
 
 Cependant, la situation était périlleuse. Pour s'emparer de l'objet, il devrait sortir de sa dissimulation, révélant ainsi sa présence à tous ceux qui se trouvaient en bas.
 
@@ -86,15 +86,15 @@ Les yeux de la femme s'animèrent d'une lueur vive. Sa main gauche continuait de
 
 Ses agissements attirèrent l'attention du jeune homme à l'éventail. Il s'avança pour observer l'instrument et sourit.
 
-« Ne sois pas si paranoïaque. Avec le Frère Aîné Void Cloud ici, tout ira bien. »
+« Ne sois pas si paranoïaque. Avec le Frère Aîné Nuage du Vide ici, tout ira bien. »
 
 La femme réfléchit un instant avant de hocher la tête.
 
-« Le Frère Aîné Void Cloud est déjà à l'œuvre; bientôt, la Mer des Pillules disparaîtra. Nous pourrons alors contempler la puissance de la légendaire demi-Pilule Céleste! » La femme leva les yeux vers l'horizon.
+« Le Frère Aîné Nuage du Vide est déjà à l'œuvre; bientôt, la Mer des Pilules disparaîtra. Nous pourrons alors contempler la puissance de la légendaire demi-Pilule Céleste! » La femme leva les yeux vers l'horizon.
 
 Tapis dans le brouillard céleste, Wang Lin perçut vaguement leur conversation. En déduisant des indices de leurs expressions, son cœur rata un bond.
 
-C'est alors qu'un grondement tonitruant émana de la Mer des Pillules, qui commença à s'agiter violemment. Les vagues se mirent à déferler avec fureur.
+C'est alors qu'un grondement tonitruant émana de la Mer des Pilules, qui commença à s'agiter violemment. Les vagues se mirent à déferler avec fureur.
 
 Neuf vortex apparurent en divers points de la mer. Ils tournaient lentement, tandis qu'un rugissement capable de déchirer les cieux retentissait.
 
@@ -112,7 +112,7 @@ Pourtant, au moment précis où Wang Lin sortit du brouillard pour pénétrer da
 
 Le jeune homme à l'éventail remarqua le changement sur son visage et demanda précipitamment: « Que se passe-t-il? »
 
-« Quelque chose ne va pas. La boussole a tremblé comme un avertissement. Cela signifie qu'un cultivateur qui n'appartient pas au Continent du Démon Vert est entré dans la Mer des Pillules! » L'expression de la femme était d'une gravité extrême.
+« Quelque chose ne va pas. La boussole a tremblé comme un avertissement. Cela signifie qu'un cultivateur qui n'appartient pas au Continent du Démon Vert est entré dans la Mer des Pilules! » L'expression de la femme était d'une gravité extrême.
 
 « Cet individu est doué pour se cacher et je ne parviens pas à le débusquer immédiatement. Frère Zhao, aidez-moi. Je vais inverser la boussole pour analyser ce qui s'est produit à cet instant! »
 

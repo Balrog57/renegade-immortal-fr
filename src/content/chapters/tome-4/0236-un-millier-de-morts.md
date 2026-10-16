@@ -168,7 +168,7 @@ Teng Huayuan ne croyait pas que Wang Lin ait eu la capacité de poser lui-même 
 
 Face à la culture de Teng Huayuan, au stade avancé de l'Âme Naissante, Wang Lin ne lui semblait pas une menace de premier plan. Ce qu'il craignait, c'était la personne qui avait mis en place cette barrière. Il supposait que le niveau de culture de cet individu pouvait atteindre celui de la Formation de l'Âme.
 
-C'était là sa véritable préoccupation. Après réflexion, il se demanda quel genre de lien ce senior entretenait avec Wang Lin. Si leur relation n'était pas trop étroite, alors la famille pourrait y survivre. Teng Huayuan ne concevait même pas que cette restriction ait pu être l'œuvre de Wang Lin lui-même.
+C'était là sa véritable préoccupation. Après réflexion, il se demanda quel genre de lien cet aîné entretenait avec Wang Lin. Si leur relation n'était pas trop étroite, alors la famille pourrait y survivre. Teng Huayuan ne concevait même pas que cette restriction ait pu être l'œuvre de Wang Lin lui-même.
 
 Après avoir mûri sa pensée, il repartit, le visage sombre. À son retour, il activa toutes les formations de protection de la Ville de la Famille Teng, sans se soucier du coût. Il se mit ensuite en culture fermée pour maintenir son corps à son apogée et être prêt au combat à tout instant.
 

@@ -30,11 +30,11 @@ Mu Nan et Mu Bei fixèrent avec stupéfaction le gigantesque caractère rouge «
 
 Wang Lin les dévisagea froidement et demanda: « Le quartier général de la Secte Dou Xie compte-t-il des cultivateurs de l'Âme Naissante? »
 
-Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Dou Xie, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de la ville de Nan Dou. Comment ces seniors pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
+Mu Nan répondit précipitamment: « Aucun. Pas seulement la Secte Dou Xie, il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de la ville de Nan Dou. Comment ces aînés pourraient-ils être ici? Ils sont tous dans la mer intérieure. »
 
 Wang Lin fixa Mu Nan du regard jusqu'à ce que les jambes de ce dernier se mettent à trembler, avant de demander: « Quel est le niveau de culture du chef de la Secte Dou Xie? »
 
-Mu Bei fit un pas en avant et dit rapidement: « Senior, le chef de la Secte Dou Xie est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
+Mu Bei fit un pas en avant et dit rapidement: « Aîné, le chef de la Secte Dou Xie est au stade intermédiaire de la Formation du Noyau. Cependant, il est au sommet de son niveau et l'on dit qu'il n'est qu'à un pas du stade avancé. »
 
 Wang Lin ricana intérieurement. Une lueur de froideur traversa ses yeux alors qu'il déclarait: « Vous deux, montrez-moi le chemin. Nous allons nous rendre au quartier général de la Secte Dou Xie. »
 
@@ -84,11 +84,11 @@ Sans attendre qu'il ait fini sa phrase, Wang Lin pointa le Seigneur Démon au Ma
 
 « Qu'est-ce que c'est? » Wang Lin tendit la main et ramassa les deux fragments de jade. Il les scruta avec son Sens Divin, puis une expression de surprise traversa son visage. Après avoir rangé les morceaux dans son sac de rangement, il fixa Shang Guanmo qui était terrifié.
 
-« Un sortilège de mort!!! » Une sueur froide perla sur le front de Shang Guanmo. Ce jade lui avait été donné par son maître, décédé depuis longtemps. On disait qu'il pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante à pleine puissance. Durant toutes ces années, il était resté dans la partie extérieure de la Mer des Démons et s'était toujours caché dès qu'il croisait des cultivateurs de l'Âme Naissante, n'osant jamais les provoquer. S'il rencontrait quelqu'un dont le niveau de culture était inférieur au sien, il lui extorquait tout ce qu'il pouvait. C'est ainsi qu'il s'était fait un nom. Cependant, il comprit enfin la situation en voyant le regard glacial de Wang Lin et craignit que ce dernier ne dise à nouveau « meurs ». Ses jambes devinrent molles; il tomba brusquement à genoux et implora: « Senior, ayez pitié! Senior, ayez pitié! Le junior Shang Guanmo reconnaît ses torts, je vous en prie, pardonnez-moi! »
+« Un sortilège de mort!!! » Une sueur froide perla sur le front de Shang Guanmo. Ce jade lui avait été donné par son maître, décédé depuis longtemps. On disait qu'il pouvait bloquer l'attaque d'un cultivateur de l'Âme Naissante à pleine puissance. Durant toutes ces années, il était resté dans la partie extérieure de la Mer des Démons et s'était toujours caché dès qu'il croisait des cultivateurs de l'Âme Naissante, n'osant jamais les provoquer. S'il rencontrait quelqu'un dont le niveau de culture était inférieur au sien, il lui extorquait tout ce qu'il pouvait. C'est ainsi qu'il s'était fait un nom. Cependant, il comprit enfin la situation en voyant le regard glacial de Wang Lin et craignit que ce dernier ne dise à nouveau « meurs ». Ses jambes devinrent molles; il tomba brusquement à genoux et implora: « Aîné, ayez pitié! Aîné, ayez pitié! Le cadet Shang Guanmo reconnaît ses torts, je vous en prie, pardonnez-moi! »
 
 Mu Nan regardait la scène avec stupéfaction, puis jeta un regard furtif à Wang Lin. Face à ce regard froid, il n'osa plus nourrir les pensées qu'il avait eues auparavant. Mu Bei baissa également la tête pour dissimuler sa peur.
 
-Quand Shang Guanmo vit que le regard de Wang Lin demeurait glacial, son cœur rata un battement. Il serra les dents et dit: « Senior, le junior est prêt à devenir votre disciple et à obéir à chacun de vos ordres. Maître, je vous en prie, acceptez-moi comme disciple! » Il tourna alors les yeux vers Li Muwan et ajouta: « Vous devez être son épouse. S'il vous plaît, demandez-lui de m'accepter comme disciple! »
+Quand Shang Guanmo vit que le regard de Wang Lin demeurait glacial, son cœur rata un battement. Il serra les dents et dit: « Aîné, le cadet est prêt à devenir votre disciple et à obéir à chacun de vos ordres. Maître, je vous en prie, acceptez-moi comme disciple! » Il tourna alors les yeux vers Li Muwan et ajouta: « Vous devez être son épouse. S'il vous plaît, demandez-lui de m'accepter comme disciple! »
 
 Li Muwan rougit et regarda Wang Lin. Cependant, face à son expression austère, elle poussa un soupir et baissa la tête en silence.
 

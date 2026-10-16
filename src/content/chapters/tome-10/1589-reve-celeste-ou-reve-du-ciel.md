@@ -12,7 +12,7 @@ La planète Suzaku émettait une douce lueur. De loin, elle paraissait paisible.
 
 Cette particule de poussière marquait le lieu de la calamité de Wang Lin...
 
-Après la disparition du Vieux Fantôme Zhan, des ondulations de plus en plus nombreuses résonnèrent autour de la planète Suzaku. Bientôt, ces ondes couvrirent tout le ciel et des silhouettes sortirent anxieusement des ombres. Maître Hong Shan, Maître South Cloud, Qing Lin, Qing Shui... et bien d'autres.
+Après la disparition du Vieux Fantôme Zhan, des ondulations de plus en plus nombreuses résonnèrent autour de la planète Suzaku. Bientôt, ces ondes couvrirent tout le ciel et des silhouettes sortirent anxieusement des ombres. Maître Hong Shan, Maître Nuage du Sud, Qing Lin, Qing Shui... et bien d'autres.
 
 Ils n'apparurent pas tous d'un coup, mais l'un après l'autre. De puissants Sens Divins balayèrent la zone jusqu'à ce qu'ils se fixent sur la particule de poussière effondrée. Chacun médita silencieusement.
 

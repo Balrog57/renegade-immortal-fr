@@ -62,21 +62,21 @@ Près de lui se trouvait une petite chaise où siégeait un garçon d'environ se
 
 « Dai Niu... » Les yeux de Wang Lin se brouillèrent et il secoua doucement la tête. L'enfant devant lui n'était pas le Dai Niu de son rêve.
 
-« Senior, vous êtes resté dehors trop longtemps, entrez donc vous réchauffer. » L'homme posa son marteau et essuya sa sueur. Il se tourna vers Wang Lin et lui adressa un sourire.
+« Aîné, vous êtes resté dehors trop longtemps, entrez donc vous réchauffer. » L'homme posa son marteau et essuya sa sueur. Il se tourna vers Wang Lin et lui adressa un sourire.
 
 Wang Lin resta un instant interdit avant de hocher la tête avec un sourire. Il entra dans la forge, la chaleur ambiante faisant fondre une grande partie de la neige sur ses vêtements.
 
-« Femme, apporte un peu de bon vin chaud! » L'homme enfila une veste. Voyant que Wang Lin était âgé, il l'aida à s'asseoir et prit place à ses côtés. Il sourit: « Senior n'est pas du coin? »
+« Femme, apporte un peu de bon vin chaud! » L'homme enfila une veste. Voyant que Wang Lin était âgé, il l'aida à s'asseoir et prit place à ses côtés. Il sourit: « Aîné n'est pas du coin? »
 
 Wang Lin observa la boutique et dit doucement: « Je suis venu ici autrefois. En passant par ici de nouveau, j'ai voulu jeter un coup d'œil. »
 
 Le garçon regarda Wang Lin avec curiosité. À l'appel de sa mère, il se leva et courut vers eux. Peu après, une femme d'âge moyen apparut, tenant une cruche de vin. Elle avait l'air vertueuse et versa une coupe pour Wang Lin, les yeux empreints de compassion.
 
-« Senior, le temps est froid, buvez un peu de vin pour vous réchauffer. Êtes-vous venu chercher des proches? »
+« Aîné, le temps est froid, buvez un peu de vin pour vous réchauffer. Êtes-vous venu chercher des proches? »
 
 Wang Lin sourit sans répondre. Il prit la coupe et but d'un trait.
 
-« Senior, le vin de ma famille Ceng est excellent, n'est-ce pas? Haha! Mon grand-père n'était pas forgeron, mais vendeur de vin. C'est moi qui ai ouvert cette forge. » L'homme but à son tour et éclata de rire.
+« Aîné, le vin de ma famille Ceng est excellent, n'est-ce pas? Haha! Mon grand-père n'était pas forgeron, mais vendeur de vin. C'est moi qui ai ouvert cette forge. » L'homme but à son tour et éclata de rire.
 
 Le feu de la forge brûlait avec force, créant un contraste saisissant avec la neige extérieure et repoussant la morsure du froid. Wang Lin resta là, buvant le vin des Ceng, incapable de dire s'il était encore dans un rêve.
 

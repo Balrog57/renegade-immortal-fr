@@ -8,11 +8,11 @@ slug: le-fou
 ---
 Chapitre 1535 - Le Fou!
 
-Un ciel étoilé constait ce monde étrange à l'intérieur de la Bête Nether, mais il n'y avait aucune vie. Pour être plus précis, très peu de vies. Avant Wang Lin, il n'y avait qu'une seule autre personne!
+Un ciel étoilé constait ce monde étrange à l'intérieur de la Bête des Limbes, mais il n'y avait aucune vie. Pour être plus précis, très peu de vies. Avant Wang Lin, il n'y avait qu'une seule autre personne!
 
-C'était ce pauvre cultivateur qui avait été effrayé deux fois par la Bête Nether et qui pensait que le monde à l'intérieur de la créature était le véritable monde extérieur.
+C'était ce pauvre cultivateur qui avait été effrayé deux fois par la Bête des Limbes et qui pensait que le monde à l'intérieur de la créature était le véritable monde extérieur.
 
-Une planète de culture semi-effondrée se trouvait dans la Bête Nether. Cette planète n'était plus ronde, elle ne portait aucune végétation et régnait dans un silence absolu.
+Une planète de culture semi-effondrée se trouvait dans la Bête des Limbes. Cette planète n'était plus ronde, elle ne portait aucune végétation et régnait dans un silence absolu.
 
 Un cultivateur aux vêtements déchirés et à la barbe broussailleuse était accroupi là, fixant un corps au sol.
 

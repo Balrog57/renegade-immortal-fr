@@ -34,7 +34,7 @@ La brume de l'un des bassins se transformait immédiatement en givre avant de se
 
 L'un était glacial, l'autre brûlant!
 
-Le bassin froid contenait une eau glacée vieille de 30 000 ans provenant de la planète Heavenly Frost. Suzaku avait payé un prix exorbitant pour l'obtenir.
+Le bassin froid contenait une eau glacée vieille de 30 000 ans provenant de la planète Givre Céleste. Suzaku avait payé un prix exorbitant pour l'obtenir.
 
 Le bassin de flammes contenait un feu millénaire vieux de 30 000 ans issu de la planète Origin Fire, dont le coût était identique à celui du bassin froid.
 
@@ -144,7 +144,7 @@ Liu Mei regarda calmement Papillon Rouge sans prononcer un mot.
 
 Qian Feng s'arrêta à 10 mètres de Liu Mei. Il afficha un sourire révélant ses dents blanches et dit: « Jeune sœur apprentie, t'en vas-tu déjà? »
 
-Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derrière vous est-elle Papillon Rouge? »
+Liu Mei hocha la tête et murmura: « frère aîné Qian Feng, la personne derrière vous est-elle Papillon Rouge? »
 
 Qian Feng éclata de rire. « Papillon Rouge est déjà morte. Elle n'est plus que mon fourneau de concubine. Appelons-la simplement "Sans-Cœur". »
 

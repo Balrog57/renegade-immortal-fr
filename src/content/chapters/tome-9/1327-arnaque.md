@@ -116,8 +116,8 @@ Après avoir réfléchi un instant, Wang Lin fusionna avec le monde.
 
 « La femme en blanc est morte et son âme réside désormais dans mon Monde des Vents et des Pluies. Personne ne devrait prêter attention à moi pour l'instant… De cette façon, j'ai une chance de compléter mes essences! » Wang Lin se fondit dans le monde et déploya son Sens Divin.
 
-« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Scatter Thunder ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui existe depuis l'origine des temps, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
+« D'après les souvenirs des cultivateurs du Royaume Extérieur que j'ai dévorés, le Clan Tonnerre Dispersé ne possède pas de cultivateur de la troisième étape… Il existe un éclair qui existe depuis l'origine des temps, et c'est l'objet sacré du clan! C'est aussi la source qui permet au clan de contrôler le tonnerre! »
 
 « Si je dévore ce tonnerre, cela permettra à mon essence de tonnerre de croître… Quant aux Flammes Joss… Au final, laquelle de ces versions dit la vérité? » Wang Lin utilisa la Déformation Spatiale pour apparaître dans un domaine stellaire étranger. Un éclat de froideur passa dans ses yeux.
 
-« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Scatter Thunder.
+« Que ce soit vrai ou faux, je dois rester extrêmement vigilant. Je n'ai jamais compté sur les Flammes Joss dans ma culture. J'ai compris mon propre Dao, et même mes essences ont été créées sans dépendre de ces soi-disant Flammes Joss! » Le corps de Wang Lin fusionna à nouveau avec le monde alors qu'il se dirigeait vers le territoire du Clan Tonnerre Dispersé.

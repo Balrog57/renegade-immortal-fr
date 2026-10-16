@@ -66,40 +66,40 @@ Après avoir laissé Cupidité filer, Wang Lin fit volte-face pour retourner ver
 
 « Ce Cupidité est mon étoile porte-bonheur. Je ne peux pas le tuer, je dois le laisser partir. J'ai hâte de notre troisième rencontre. Il aura probablement encore plus de trésors à m'offrir! » Wang Lin sourit alors qu'il apparaissait au-dessus de la planète du Clan des Scorpions Noirs.
 
-Les quelque 1 000 cultivateurs du Clan de l'Évasion Nuageuse n'avaient pas osé partir et attendaient toujours là. Zhong Big Red était devenu plus enjoué et avait choisi quelques cultivateurs de haut niveau pour le soigner. Allongé, il continuait de laisser échapper des reniflements méprisants.
+Les quelque 1 000 cultivateurs du Clan de l'Évasion Nuageuse n'avaient pas osé partir et attendaient toujours là. Zhong Grand Rouge était devenu plus enjoué et avait choisi quelques cultivateurs de haut niveau pour le soigner. Allongé, il continuait de laisser échapper des reniflements méprisants.
 
 Chaque fois qu'il émettait un tel bruit, les cultivateurs environnants tremblaient.
 
-Ils regardaient Zhong Big Red avec respect. Ce n'était pas lui qu'ils craignaient, mais le Maître qui se trouvait derrière lui! L'expression de leur patriarche après avoir vu le jeton de jade leur avait fait comprendre qu'ils avaient provoqué une entité qu'ils ne devaient pas et qu'une calamité approchait.
+Ils regardaient Zhong Grand Rouge avec respect. Ce n'était pas lui qu'ils craignaient, mais le Maître qui se trouvait derrière lui! L'expression de leur patriarche après avoir vu le jeton de jade leur avait fait comprendre qu'ils avaient provoqué une entité qu'ils ne devaient pas et qu'une calamité approchait.
 
 Les membres du Clan des Scorpions Noirs qui s'étaient dispersés furent respectueusement reconduits les uns après les autres. Des pilules furent distribuées pour les aider à récupérer. Même le vieil homme nommé Zhang fut ramené.
 
-Deux cultivatrices du Clan de l'Évasion Nuageuse massaient les épaules de Zhong Big Red. Se sentant très à son aise, il déclara avec arrogance: « Je vous l'avais bien dit! Ce vieux vous l'avait clairement annoncé, mais personne ne m'a cru! À quoi servent vos yeux?! »
+Deux cultivatrices du Clan de l'Évasion Nuageuse massaient les épaules de Zhong Grand Rouge. Se sentant très à son aise, il déclara avec arrogance: « Je vous l'avais bien dit! Ce vieux vous l'avait clairement annoncé, mais personne ne m'a cru! À quoi servent vos yeux?! »
 
-« Ce n'est pas que ce vieux vous méprise, mais avec vos niveaux de culture, sans même parler de mon Maître, même moi je ne vous considère pas comme une menace. Un simple revers suffit pour vous écraser comme des fourmis! » Zhong Big Red leva le menton et les réprimanda avec dédain.
+« Ce n'est pas que ce vieux vous méprise, mais avec vos niveaux de culture, sans même parler de mon Maître, même moi je ne vous considère pas comme une menace. Un simple revers suffit pour vous écraser comme des fourmis! » Zhong Grand Rouge leva le menton et les réprimanda avec dédain.
 
 Les cultivateurs de l'Évasion Nuageuse acquiescèrent tous. Même les plus hautains n'osaient plus rien répliquer alors que tout leur clan risquait la destruction.
 
-Le patriarche et les anciens de l'Évasion Nuageuse se tenaient respectueusement aux côtés de Zhong Big Red, affichant des sourires flatteurs et hochant la tête sans cesse.
+Le patriarche et les anciens de l'Évasion Nuageuse se tenaient respectueusement aux côtés de Zhong Grand Rouge, affichant des sourires flatteurs et hochant la tête sans cesse.
 
-« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de culture était nettement supérieur; il aurait pu tuer Zhong Big Red d'un seul doigt, mais il devait désormais le servir avec les plus grands égards.
+« Seigneur, veuillez nous pardonner. Je ne connaissais pas votre identité. J'espère que vous direz du bien de nous, et en retour, je vous offrirai un présent généreux. » Le patriarche de l'Évasion Nuageuse ressentait une profonde amertume. Son niveau de culture était nettement supérieur; il aurait pu tuer Zhong Grand Rouge d'un seul doigt, mais il devait désormais le servir avec les plus grands égards.
 
-Zhong Big Red savourait le massage des cultivatrices. Il laissa échapper un reniflement et dit fièrement: « Puisque vous reconnaissez votre erreur, je devrais vous donner une chance de vous repentir, mais... »
+Zhong Grand Rouge savourait le massage des cultivatrices. Il laissa échapper un reniflement et dit fièrement: « Puisque vous reconnaissez votre erreur, je devrais vous donner une chance de vous repentir, mais... »
 
 Le patriarche de l'Évasion Nuageuse s'avança rapidement et agita la main pour sortir une bouteille de jade. Le cœur serré, il serra les dents et la lui tendit.
 
 « Ce n'est qu'un modeste présent, j'espère que Seigneur l'acceptera. »
 
-Zhong Big Red la saisit et l'examina. La joie illumina ses yeux lorsqu'il la rangea; il toussa alors: « Ce vieux fera de son mieux pour l'utiliser. »
+Zhong Grand Rouge la saisit et l'examina. La joie illumina ses yeux lorsqu'il la rangea; il toussa alors: « Ce vieux fera de son mieux pour l'utiliser. »
 
-À cet instant précis, des ondulations se propagèrent dans le ciel et Wang Lin en sortit. Dès qu'il apparut, l'expression de Zhong Big Red changea radicalement et il se redressa brusquement. Craignant d'être trop lent, il repoussa les cultivatrices qui l'entouraient, affichant un visage empreint de flatterie.
+À cet instant précis, des ondulations se propagèrent dans le ciel et Wang Lin en sortit. Dès qu'il apparut, l'expression de Zhong Grand Rouge changea radicalement et il se redressa brusquement. Craignant d'être trop lent, il repoussa les cultivatrices qui l'entouraient, affichant un visage empreint de flatterie.
 
-« Bienvenue, Maître, pour votre retour triomphal! Maître, Big Red ne vous a pas vu depuis si longtemps que je me sentais perdu. Même pendant ma culture, je ne parviens pas à trouver le calme sans réciter le nom du Maître cent fois. Et même ainsi, cela ne compare en rien au manque que ce petit éprouve en votre absence.
+« Bienvenue, Maître, pour votre retour triomphal! Maître, Grand Rouge ne vous a pas vu depuis si longtemps que je me sentais perdu. Même pendant ma culture, je ne parviens pas à trouver le calme sans réciter le nom du Maître cent fois. Et même ainsi, cela ne compare en rien au manque que ce petit éprouve en votre absence.
 
-« Ce n'est qu'en voyant le Maître et en étant à ses côtés que ce petit peut enfin trouver la paix. » Zhong Big Red s'avança rapidement en utilisant son art invincible. Simultanément, il veillait scrupuleusement à ne pas trop exagérer pour ne pas irriter Wang Lin.
+« Ce n'est qu'en voyant le Maître et en étant à ses côtés que ce petit peut enfin trouver la paix. » Zhong Grand Rouge s'avança rapidement en utilisant son art invincible. Simultanément, il veillait scrupuleusement à ne pas trop exagérer pour ne pas irriter Wang Lin.
 
 À cet instant, toute l'arrogance qu'il montrait devant le Clan de l'Évasion Nuageuse avait disparu, remplacée par une flatterie constante.
 
 C'était la première fois que les cultivateurs de l'Évasion Nuageuse assistaient à un tel spectacle et ils en restèrent stupéfaits. Même le patriarche, qui venait d'offrir le présent, était pétrifié. Il ne pouvait imaginer comment quelqu'un pouvait changer si radicalement en un instant.
 
-« Dépêchez-vous, faites place! Pourquoi restez-vous là? Ne bloquez pas le passage de mon Maître! » Zhong Big Red se précipita vers Wang Lin et écarte les cultivateurs de l'Évasion Nuageuse, y compris le patriarche, comme s'il avait totalement oublié la joie d'avoir reçu son cadeau.
+« Dépêchez-vous, faites place! Pourquoi restez-vous là? Ne bloquez pas le passage de mon Maître! » Zhong Grand Rouge se précipita vers Wang Lin et écarte les cultivateurs de l'Évasion Nuageuse, y compris le patriarche, comme s'il avait totalement oublié la joie d'avoir reçu son cadeau.

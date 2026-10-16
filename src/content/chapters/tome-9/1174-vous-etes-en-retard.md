@@ -68,7 +68,7 @@ Soudain, Wang Lin s'arrêta et se retourna lentement. Il fit face à la silhouet
 
 Il activa sa culture de Briseur du Nirvana au stade initial et une montagne gigantesque apparut devant lui. D'un geste de la main, cette montagne s'abattit sur Wang Lin!
 
-« Cadet, ne me reproche pas ma cruauté. Tu as blessé un junior de ma Secte de la Collection des Démons, tu dois donc être prêt à mourir! Aujourd'hui, ce vieil homme détruira ton corps et utilisera ton âme originelle pour raffiner une pilule! »
+« Cadet, ne me reproche pas ma cruauté. Tu as blessé un cadet de ma Secte de la Collection des Démons, tu dois donc être prêt à mourir! Aujourd'hui, ce vieil homme détruira ton corps et utilisera ton âme originelle pour raffiner une pilule! »
 
 L'expression de Wang Lin resta de marbre face à la montagne qui fonçait sur lui. Lorsqu'elle fut à cinq pieds de lui, il leva sa main droite et décocha un coup de poing. Ce poing et la montagne entrèrent en collision dans un fracas capable de briser les cieux.
 

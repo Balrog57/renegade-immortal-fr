@@ -42,7 +42,7 @@ Dès que le Sceau fut achevé, un grondement tonitruant secoua la silhouette vag
 
 Le messager des cieux qui avait tant fait souffrir Wang Lin était désormais si faible qu'il ne pouvait même pas résister à un seul coup.
 
-« Rétribution divine... De quel droit prétendez-vous m'infliger une rétribution divine? » Les paroles de Wang Lin étaient calmes, mais elles se propagèrent à travers la brume jusqu'aux oreilles du Maître South Cloud, de Situ Nan et des milliers de cultivateurs à l'extérieur.
+« Rétribution divine... De quel droit prétendez-vous m'infliger une rétribution divine? » Les paroles de Wang Lin étaient calmes, mais elles se propagèrent à travers la brume jusqu'aux oreilles du Maître Nuage du Sud, de Situ Nan et des milliers de cultivateurs à l'extérieur.
 
 Cette unique phrase suffit à faire bouillir le sang des cultivateurs du Royaume Intérieur. Elle était d'une arrogance extrême, mais personne n'osa la remettre en question!
 

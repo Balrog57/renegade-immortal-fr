@@ -30,7 +30,7 @@ Ce jeune homme en blanc n'était autre que Wang Lin!
 
 Wang Lin avait calculé que le retour de Papillon Rouge, qui avait perdu un bras, provoquerait inévitablement des remous à Suzaku.
 
-L'homme âgé se tint devant la jeune fille. Très prudent, il répondit respectueusement: « Senior, bien des choses se sont produites à Suzaku ces derniers temps. Je me demande de quel événement le senior parle? »
+L'homme âgé se tint devant la jeune fille. Très prudent, il répondit respectueusement: « Aîné, bien des choses se sont produites à Suzaku ces derniers temps. Je me demande de quel événement l'aîné parle? »
 
 Wang Lin eut un léger sourire et dit: « Raconte-moi tout ce qui s'est passé. »
 
@@ -42,13 +42,13 @@ Ignorant le regard réprobateur de son maître, la jeune fille poursuivit avec e
 
 Wang Lin réfléchit un instant avant d'esquisser un sourire discret. Il s'y attendait, et l'annonce ne le choqua guère. Au lieu de cela, il demanda nonchalamment: « À quoi ressemble ce Ceng Niu? Est-il recherché par Suzaku? »
 
-La jeune fille s'apprêtait à répondre quand son maître l'interrompit. L'homme âgé scruta attentivement Wang Lin et déclara: « Senior, Suzaku n'a émis aucun ordre d'arrestation pour Ceng Niu. »
+La jeune fille s'apprêtait à répondre quand son maître l'interrompit. L'homme âgé scruta attentivement Wang Lin et déclara: « Aîné, Suzaku n'a émis aucun ordre d'arrestation pour Ceng Niu. »
 
 Wang Lin eut un petit rire. Il dévisagea la jeune fille au-delà de l'homme, sortit une fiole de pilules de son sac, la lui lança et sourit: « Cette petite est honnête et intelligente, pas mal du tout, bien mieux que ton maître. Cette fiole de pilules t'aidera à atteindre le stade de la Formation du Noyau. C'est mon cadeau pour toi. » Sur ces mots, Wang Lin disparut.
 
 Le vortex d'éclairs se dissipa lentement avec la disparition de Wang Lin, et la pluie reprit de plus belle.
 
-L'homme âgé prit une grande inspiration. Même à présent, son cœur battait encore la chamade. Bien que ce senior ait souri tout au long de l'échange, il s'était senti comme face à un dieu. Il suffisait que le jeune homme lève la main pour que l'homme âgé soit mort.
+L'homme âgé prit une grande inspiration. Même à présent, son cœur battait encore la chamade. Bien que cet aîné ait souri tout au long de l'échange, il s'était senti comme face à un dieu. Il suffisait que le jeune homme lève la main pour que l'homme âgé soit mort.
 
 La jeune fille, tenant la fiole entre ses mains, demanda curieusement: « Maître, quel genre de pilules sont-ce? »
 
@@ -92,11 +92,11 @@ Il ajouta dans ses pensées: « Il y a aussi Ta Sen, de la terre de l'Ancien Die
 
 En pensant à Ta Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
 
-« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi de la Secte de l'Épée Da Lou. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lors de mon arrivée. » Wang Lin fronça les sourcils.
+« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. L'aîné Tian Yunzi est l'ennemi de la Secte de l'Épée Da Lou. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lors de mon arrivée. » Wang Lin fronça les sourcils.
 
-« Le vieillard de la Secte de l'Épée Da Lou est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
+« Le vieillard de la Secte de l'Épée Da Lou est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de cet aîné qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si l'aîné Tian Yunzi m'a remarqué là-bas. »
 
-« Le bilan de ce voyage au Royaume Céleste est excellent. Seule la pagode contenant le corps féminin sera difficile à obtenir. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
+« Le bilan de ce voyage au Royaume Céleste est excellent. Seule la pagode contenant le corps féminin sera difficile à obtenir. Puisque j'ai déjà accepté la requête de l'aîné Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par l'aîné Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
 
 « L'Épée Céleste de la Pluie... Une fois rentré à Chu, je devrai voir si je peux l'extraire. »
 

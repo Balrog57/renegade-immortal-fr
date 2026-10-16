@@ -14,7 +14,7 @@ De plus, ce qui la surprit véritablement, c'était son incapacité à percer le
 
 Quant aux trois autres, et particulièrement Sun Xueshan, ils se montraient extrêmement respectueux. Sun Xueshan était même transporté par une excitation frisant le fanatisme. Après avoir entendu les paroles de Ran Yue, il était intimement convaincu que cet homme devait être un Messager Céleste du Tonnerre.
 
-Sun Xueshan dit avec déférence: « Si le Senior souhaite se rendre sur la planète Ran Yun, ce junior est prêt à lui servir de guide. »
+Sun Xueshan dit avec déférence: « Si l'Aîné souhaite se rendre sur la planète Ran Yun, ce cadet est prêt à lui servir de guide. »
 
 Wang Lin hocha la tête et, assis sur son dragon d'argent, prit une direction vers le nord. Sun Xueshan suivit rapidement, avec Ran Yue et les autres en queue de procession.
 
@@ -34,7 +34,7 @@ L'expression de Wang Lin resta de marbre, mais son cœur tressaillit.
 
 Grâce à une simple phrase de Sun Xueshan, Wang Lin acquit une compréhension vague du système stellaire de Luotian.
 
-À ce moment-là, Ran Yue dit doucement: « Le Senior nous a sauvés, mais nous ne connaissons toujours pas votre nom... »
+À ce moment-là, Ran Yue dit doucement: « L'Aîné nous a sauvés, mais nous ne connaissons toujours pas votre nom... »
 
 Wang Lin répondit calmement: « Xu Mu. » Ignorant quand l'Omniscient et ses compagnons viendraient à sa poursuite, il préférait cacher son véritable nom.
 
@@ -44,7 +44,7 @@ Wang Lin répondit calmement: « Xu Mu. » Ignorant quand l'Omniscient et ses co
 
 En entendant Wang Lin se présenter sous le nom de Xu Mu, les pupilles de Sun Xueshan se rétractèrent également, et son respect redoubla.
 
-Ran Yue leva la tête et demanda: « D'où venez-vous, Senior Xu? » Aussitôt la question posée, elle le regretta amèrement. En tant que junior, une telle curiosité pouvait facilement provoquer la colère d'un supérieur. Elle ajouta précipitamment: « Senior, je vous prie de ne pas m'en vouloir; cette junior reconnaît son erreur. »
+Ran Yue leva la tête et demanda: « D'où venez-vous, Aîné Xu? » Aussitôt la question posée, elle le regretta amèrement. En tant que cadet, une telle curiosité pouvait facilement provoquer la colère d'un supérieur. Elle ajouta précipitamment: « Aîné, je vous prie de ne pas m'en vouloir; cette cadette reconnaît son erreur. »
 
 Wang Lin fixa calmement la femme. Elle était intelligente et empreinte d'une grande distinction; il était évident qu'elle dirigeait ce groupe.
 
@@ -64,7 +64,7 @@ Sans avoir traversé d'innombrables épreuves de vie ou de mort, peu importe leu
 
 Wang Lin les observa froidement. « Connaissez-vous la planète Dong Lin?! »
 
-Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom: le Massacre de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré toutes les familles d'une planète de culture.
+Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Aîné, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom: le Massacre de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré toutes les familles d'une planète de culture.
 
 La planète Dong Lin était un cauchemar terrifiant pour la plupart des habitants du système stellaire de Luotian.
 

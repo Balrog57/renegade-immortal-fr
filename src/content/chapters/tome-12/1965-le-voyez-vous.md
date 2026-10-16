@@ -40,7 +40,7 @@ Continent Central, au sommet du Mont Empereur. Le Grand Empyréen Jiu Di se tena
 
 L'Exalté Empyréen Hai Zi fut surprise et son cœur se remplit de joie.
 
-Continent Est, au sein de la Secte Purple Yang. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
+Continent Est, au sein de la Secte Yang Pourpre. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il continuait de murmurer:
 
 « Le 17e palais... cet homme a réellement franchi le 17e palais. Il sera certainement disputé par les autres Grands Empyréens! Petit Ancêtre, tu dois diviner sa position, nous devons le trouver au plus vite! »
 
@@ -98,7 +98,7 @@ La ville impériale était le centre du clan céleste et couvrait une zone immen
 
 Cette ville était si vaste qu'elle semblait infinie, comparable à un véritable continent!
 
-Dans la partie est de la ville, dans une rue animée, marchait un jeune homme vêtu d'une chemise fleurie. Il avançait à grands pas, l'air fier, suivi par plus d'une douzaine de gardes. Chaque garde était un cultivateur du troisième niveau, et le garde en robe pourpre était en réalité un Exalt Doré!
+Dans la partie est de la ville, dans une rue animée, marchait un jeune homme vêtu d'une chemise fleurie. Il avançait à grands pas, l'air fier, suivi par plus d'une douzaine de gardes. Chaque garde était un cultivateur du troisième niveau, et le garde en robe pourpre était en réalité un Exalté Doré!
 
 Tous ces gardes étaient des hommes qui suivaient silencieusement derrière lui.
 

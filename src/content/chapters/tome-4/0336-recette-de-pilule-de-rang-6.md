@@ -72,11 +72,11 @@ Le corps de Wang Lin disparut. Lorsqu'il réapparut, il se trouvait déjà à l'
 
 Le regard du vieil homme restait calme; il ne semblait dégager aucune énergie spirituelle. Lorsque Wang Lin apparut, les yeux de l'homme s'illuminèrent.
 
-« La junior Zhou Yanhong salue le Senior. » Sa voix était charmante et son expression aussi paisible que l'eau.
+« La cadet Zhou Yanhong salue l'Aîné. » Sa voix était charmante et son expression aussi paisible que l'eau.
 
 « Si vous n'avez pas une bonne raison de m'avoir attiré ici, ne me blâmez pas pour ma cruauté », dit Wang Lin, le visage impassible.
 
-Les yeux de la jeune fille en robe verte pétillèrent. Elle répliqua: « Le Senior est très rusé. Cette petite junior vous admire. »
+Les yeux de la jeune fille en robe verte pétillèrent. Elle répliqua: « L'Aîné est très rusé. Cette petite cadette vous admire. »
 
 Cette jeune fille était présente au troisième étage; elle savait donc tout ce qui s'était passé. Elle savait que Wang Lin était un cultivateur de la Formation de l'Âme, et après l'avoir vu offrir 20 000 pierres spirituelles, elle avait augmenté le prix de 10 000 supplémentaires. Il y avait forcément une raison à cela. De plus, après avoir quitté le Pavillon de Raffinage des Trésors, ils n'étaient pas partis immédiatement mais l'avaient attendu ici. Wang Lin comprit instantanément son stratagème.
 
@@ -96,9 +96,9 @@ Wang Lin n'avait aucune intention de le tuer. Son regard se porta sur la jeune f
 
 Ce dernier saisit la boîte, l'ouvrit, l'examina avec son Sens Divin pour en faire une copie, puis renvoya le jade à la jeune fille en demandant: « Parlez. Pourquoi m'avez-vous attiré ici? »
 
-La jeune fille rattrapa le jade, prit une profonde inspiration et dit: « Senior, cette junior a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
+La jeune fille rattrapa le jade, prit une profonde inspiration et dit: « Aîné, cette cadette a été impolie, mais elle y a été contrainte. Veuillez considérer la valeur de cette recette de pilule de rang 6 et aidez-moi une fois. »
 
-L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents: « Cette junior est issue de la Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma culture n'est pas assez élevée; j'espérais donc que le Senior puisse m'accompagner là-bas pour récupérer les restes de mon père. »
+L'expression de Wang Lin demeura imperturbable. La jeune fille serra les dents: « Cette cadet est issue de la Secte de la Brume de Zhou. Mon père est le maître de notre secte. Il y a 20 ans, il est entré dans le Cimetière des Immortels et n'en est jamais revenu. Ce Cimetière est l'un des deux endroits les plus dangereux de Suzaku, au même titre que la Vallée Désolée aux Neuf Fantômes. Ma culture n'est pas assez élevée; j'espérais donc que l'Aîné puisse m'accompagner là-bas pour récupérer les restes de mon père. »
 
 Sur ces mots, elle afficha un air de tristesse, se mordit la lèvre et attendit la réponse de Wang Lin.
 

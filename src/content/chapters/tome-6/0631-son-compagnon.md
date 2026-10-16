@@ -34,7 +34,7 @@ Wang Lin ferma les yeux et demanda calmement: « Qui? »
 
 « Son nom est Sun Yun. Je me demande si tu as déjà entendu parler de lui... » Une pointe de nostalgie imprégna la voix de l'Ancien Démon.
 
-« Sun Yun... » Wang Lin ouvrit les yeux. Après une courte réflexion, il déclara: « Senior Ancien Démon, il reste une dernière clause dans notre accord! »
+« Sun Yun... » Wang Lin ouvrit les yeux. Après une courte réflexion, il déclara: « Aîné Ancien Démon, il reste une dernière clause dans notre accord! »
 
 Une bourrasque de vent démoniaque surgit du Lac du Dragon, formant un vortex. Elle balaya la zone et disparut devant Wang Lin, révélant un jeune homme au physique profondément démoniaque.
 
@@ -60,7 +60,7 @@ Le jeune homme esquissa un sourire légèrement démoniaque. Il répondit: « Il
 
 « Prends ceci. Ton sens divin pourra y pénétrer et emprunter ma vue pour observer tout ce qui se trouve dans l'Abîme des Marées! Considère cela comme un présent pour avoir honoré notre accord! »
 
-Wang Lin saisit le jade, joignit les mains et dit: « Je vous remercie infiniment, Senior Ancien Démon. »
+Wang Lin saisit le jade, joignit les mains et dit: « Je vous remercie infiniment, Aîné Ancien Démon. »
 
 Le jeune homme sourit et secoua la tête. Il dit: « C'est moi qui devrais te remercier. Tu devrais partir; je dois me consacrer à une culture en isolement pendant un certain temps. »
 
@@ -96,13 +96,13 @@ Ses yeux s'ouvraient et se fermaient. Lorsqu'ils s'ouvraient, il dégageait un r
 
 Quatre autres personnes étaient assises en position de lotus à ses côtés. Tous portaient des robes bleues et une grande épée dans le dos. Leurs expressions étaient tout aussi sombres que la sienne.
 
-Soudain, la brume noire devant eux se mit à bouillonner. Une silhouette s'en extirpa rapidement, révélant un homme également vêtu de bleu. Son visage était amer lorsqu'il déclara: « Senior Cupidité, les bêtes dans la brume ne se sont pas dispersées... et... elles sont plus nombreuses qu'auparavant. »
+Soudain, la brume noire devant eux se mit à bouillonner. Une silhouette s'en extirpa rapidement, révélant un homme également vêtu de bleu. Son visage était amer lorsqu'il déclara: « Aîné Cupidité, les bêtes dans la brume ne se sont pas dispersées... et... elles sont plus nombreuses qu'auparavant. »
 
 L'homme d'âge moyen était Cupidité!
 
 Il laissa échapper un reniflement froid: « C'est moi qui ai sous-estimé cet endroit. Toutes les bêtes ici ont été aspirées de l'immensité de l'espace, puis renforcées par la force mystérieuse des lieux. Il est naturel que des créatures puissantes apparaissent ici. »
 
-À ce moment, un disciple de la Secte de l'Épée Da Lou, resté silencieux jusqu'alors, prit la parole: « Senior Cupidité, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y aie longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
+À ce moment, un disciple de la Secte de l'Épée Da Lou, resté silencieux jusqu'alors, prit la parole: « Aîné Cupidité, ces bêtes sont trop nombreuses et chacune d'elles est extrêmement féroce. Normalement, ces espèces sont très célèbres, mais bien que j'y aie longuement réfléchi, je ne parviens pas à me rappeler de quel type de créatures il s'agit. »
 
 Cet homme occupait une position singulière; il semblait que tous les autres disciples gravitaient autour de lui.
 

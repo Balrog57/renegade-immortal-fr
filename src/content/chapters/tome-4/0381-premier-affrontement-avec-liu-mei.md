@@ -82,7 +82,7 @@ Wang Lin commença à réfléchir. Dans son état actuel, il ne remarqua pas qu'
 
 Le regard de cette femme était complexe; il était empreint de confusion, de doute et d'impuissance.
 
-« De retour dans le Royaume Céleste, le senior Zhou Yi m'avait donné le cristal Ascendant qui peut m'aider à atteindre le stade Ascendant. Ce cristal doit être formé par la compréhension du domaine du cultivateur. »
+« De retour dans le Royaume Céleste, l'aîné Zhou Yi m'avait donné le cristal Ascendant qui peut m'aider à atteindre le stade Ascendant. Ce cristal doit être formé par la compréhension du domaine du cultivateur. »
 
 « Ascendant... Je me demande quand j'atteindrai ce stade! Pour l'instant, le sceau n'est pas levé, je n'ai donc même aucun espoir d'atteindre la Transformation de l'Âme... » Wang Lin soupira doucement.
 
@@ -104,21 +104,21 @@ Le vent de la montagne souffla, soulevant ses cheveux noirs et lui donnant l'all
 
 Liu Mei laissa échapper un léger soupir, puis sourit. Son sourire était comme une fleur éclose qui illumina instantanément les environs.
 
-« Senior apprenti Wang Lin, le jeune homme qui portait la grande épée dans son dos à la Secte Heng Yue. Ne vous souvenez-vous vraiment pas? »
+« Aîné apprenti Wang Lin, le jeune homme qui portait la grande épée dans son dos à la Secte Heng Yue. Ne vous souvenez-vous vraiment pas? »
 
 Wang Lin ne fut nullement surpris lorsqu'elle révéla son identité. Dès qu'elle s'était nommée Liu Mei, il l'avait déjà deviné.
 
 Wang Lin dit avec indifférence: « La Liu Mei que je connais est une disciple de la Secte Xuan Dao possédant des racines spirituelles d'eau, et non une disciple de Suzaku! »
 
-Liu Mei fut stupéfaite. Une telle expression apparaissait rarement sur son visage. Elle demanda doucement: « Que veut dire le senior apprenti Wang? »
+Liu Mei fut stupéfaite. Une telle expression apparaissait rarement sur son visage. Elle demanda doucement: « Que veut dire l'aîné apprenti Wang? »
 
 Wang Lin ne répondit pas, se contentant de regarder Liu Mei avec calme.
 
-Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que le senior apprenti Wang n'ait un malentendu... »
+Peu après, Liu Mei baissa la tête et dit d'une voix feutrée: « Je crains que l'aîné apprenti Wang n'ait un malentendu... »
 
 « Pour que vous puissiez apparaître à la Secte Xuan Dao tout en étant présente ici, à la Secte de l'Affinement de l'Âme, je ne crois pas qu'un autre pays que Suzaku puisse accomplir une telle chose! » Wang Lin l'interrompit et se détourna pour partir.
 
-Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, le senior apprenti Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Senior apprenti Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
+Liu Mei esquissa un sourire ténu: « Rien qu'avec cela, l'aîné apprenti Wang a pu déduire que je venais de Suzaku. Êtes-vous si sûr... Je pense que vous me testez simplement. Aîné apprenti Wang, je ne vous mentirai pas; je suis bel et bien une disciple de Suzaku. »
 
 Wang Lin secoua la tête, affichant un sourire moqueur: « Est-ce vraiment moi qui vous teste... J'ai vu un bracelet semblable au vôtre sur la main de Papillon Rouge... »
 

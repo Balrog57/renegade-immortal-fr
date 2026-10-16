@@ -68,7 +68,7 @@ Peu après, une bête de feu après l'autre fut touchée par ces étincelles rou
 
 Les créatures transformées s'envolèrent dans les airs pour poursuivre l'armée des cultivateurs. De plus en plus de bêtes de feu mutantes rejoignirent la traque, créant un spectacle terrifiant.
 
-Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Sanctuaire du Dieu de la Guerre. L'un des vieillards aux cheveux gris balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce junior qui a attiré les bêtes de feu ici? »
+Quant à l'armée de cultivateurs, parmi les dix membres de l'Âme Naissante revenant du combat, quatre rejoignirent le groupe du Sanctuaire du Dieu de la Guerre. L'un des vieillards aux cheveux gris balaya le chariot du regard et fixa Wang Lin. Sa voix était glaciale lorsqu'il demanda: « Est-ce ce cadet qui a attiré les bêtes de feu ici? »
 
 Wang Lin soutint le regard froid du vieillard et hocha la tête.
 

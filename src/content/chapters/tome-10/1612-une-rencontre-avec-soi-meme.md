@@ -44,21 +44,21 @@ Derrière le papier de la fenêtre, on devinait une silhouette voûtée. Cette f
 
 C'était un vieil homme, dont le visage était si marqué par les rides que ses yeux ne pouvaient plus s'ouvrir complètement. Assis là à fixer le feu, il resserra son manteau de coton après un long moment, puis consulta son poignet droit.
 
-Il s'appelait Big Fortune.
+Il s'appelait Grande Fortune.
 
-« Cela fait tant d'années... Il devrait bientôt revenir... » Big Fortune regarda son poignet droit, où une empreinte de paume dorée brillait faiblement. Il caressa doucement sa peau en se remémorant le passé.
+« Cela fait tant d'années... Il devrait bientôt revenir... » Grande Fortune regarda son poignet droit, où une empreinte de paume dorée brillait faiblement. Il caressa doucement sa peau en se remémorant le passé.
 
 Il avait attendu ici pendant trente-cinq ans. Il se souvenait encore du jour où Wang Lin lui avait dit d'attendre son retour.
 
-« Il a dit qu'il n'y aurait pas de trente-huitième année, alors il devrait bientôt être de retour... » Big Fortune semblait épuisé et se leva avec l'aide de sa canne. Juste au moment où il allait se retirer, les deux grands chiens, trop paresseux pour bouger, commencèrent à gémir.
+« Il a dit qu'il n'y aurait pas de trente-huitième année, alors il devrait bientôt être de retour... » Grande Fortune semblait épuisé et se leva avec l'aide de sa canne. Juste au moment où il allait se retirer, les deux grands chiens, trop paresseux pour bouger, commencèrent à gémir.
 
 Le bruit d'un chariot écrasant la neige parvint faiblement du lointain jusqu'à s'arrêter devant la cour. La porte du véhicule s'ouvrit et Wang Lin en sortit, faisant face au vent et aux flocons.
 
 Derrière lui, Li Muwan, devenue une femme âgée, apparut avec un sourire empreint de douceur. Elle se tint aux côtés de Wang Lin pour contempler la cour et la lumière tamisée qui s'en échappait.
 
-Dans un grincement, la porte de la maison fut poussée de l'intérieur. Big Fortune se tenait là, stupéfait, le regard tourné vers l'extérieur. À travers le blizzard, il aperçut Wang Lin et esquissa un sourire.
+Dans un grincement, la porte de la maison fut poussée de l'intérieur. Grande Fortune se tenait là, stupéfait, le regard tourné vers l'extérieur. À travers le blizzard, il aperçut Wang Lin et esquissa un sourire.
 
-« Je suis revenu. » Wang Lin regarda Big Fortune, tout aussi vieux, et sourit à son tour.
+« Je suis revenu. » Wang Lin regarda Grande Fortune, tout aussi vieux, et sourit à son tour.
 
 Le blizzard redoubla d'intensité.
 
@@ -68,7 +68,7 @@ Cette nuit-là, le vent hurlait avec violence. Cependant, les trois personnes à
 
 Ce n'est qu'au petit matin que la neige se fit plus rare et sporadique. La lumière du soleil toucha la couche blanche et, bien qu'elle ne la fît point fondre, elle apportait un sentiment de renouveau.
 
-La réverbération du soleil sur la neige était telle qu'il devenait difficile de garder les yeux ouverts. Le matin même, Wang Lin emmena Li Muwan et Big Fortune vers la tombe de ses parents, près du village.
+La réverbération du soleil sur la neige était telle qu'il devenait difficile de garder les yeux ouverts. Le matin même, Wang Lin emmena Li Muwan et Grande Fortune vers la tombe de ses parents, près du village.
 
 Agenouillés devant le monument, Li Muwan s'inclina aux côtés de son époux. Les deux restèrent silencieux un long moment.
 
@@ -90,7 +90,7 @@ Au printemps, la vie reprenait ses droits à Su. Une fois la neige fondue, l'ar�
 
 Wang Lin connaissait trop bien ce parfum. Tout comme lors de son premier séjour à Su, il loua une barque et acheta du vin d'osmanthus. Il s'asseyait sur l'embarcation avec Li Muwan pour boire le vin, contempler les levers et couchers de soleil, et simplement vivre.
 
-Big Fortune était toujours là, assis à leurs côtés, observant Wang Lin avec un sourire joyeux.
+Grande Fortune était toujours là, assis à leurs côtés, observant Wang Lin avec un sourire joyeux.
 
 « C'est une rencontre; il viendra, c'est certain. » Wang Lin leva sa cruche de vin. Il avait désormais atteint le crépuscule de sa vie. Des taches de vieillesse, plus sombres que jamais, marquaient ses mains. Il porta la cruche à ses lèvres et prit une gorgée.
 
@@ -118,7 +118,7 @@ C'était un jeune homme aux cheveux blancs. Ses yeux froids trahissaient une pro
 
 Leurs regards se croisèrent, et le monde devint flou. À cet instant, le temps sembla suspendre son vol. Pour être plus précis, le temps de ce monde s'arrêta net.
 
-Les mains de Li Muwan se figèrent au-dessus des cordes de la cithare, étouffant la musique. Big Fortune resta immobile, le regard fixé sur son poignet droit. La rivière cessa de couler et les feuilles de saule restèrent suspendues dans l'éther.
+Les mains de Li Muwan se figèrent au-dessus des cordes de la cithare, étouffant la musique. Grande Fortune resta immobile, le regard fixé sur son poignet droit. La rivière cessa de couler et les feuilles de saule restèrent suspendues dans l'éther.
 
 Tout dans ce monde s'immobilisa totalement.
 

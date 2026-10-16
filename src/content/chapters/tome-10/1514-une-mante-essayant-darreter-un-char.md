@@ -8,41 +8,41 @@ slug: une-mante-essayant-darreter-un-char
 ---
 Chapitre 1514 - Une mante essayant d'arrêter un char!
 
-Le rugissement de la Bête du Nether devint plus intense encore, et la terreur dans ses yeux s'accentua. Elle était terrifiée. Durant toute son existence, elle n'avait jamais été ainsi scrutée par autant de personnes qu'elle redoutait. Ces regards la faisaient trembler de peur.
+Le rugissement de la Bête des Limbes devint plus intense encore, et la terreur dans ses yeux s'accentua. Elle était terrifiée. Durant toute son existence, elle n'avait jamais été ainsi scrutée par autant de personnes qu'elle redoutait. Ces regards la faisaient trembler de peur.
 
-Avec son esprit limité, la Bête du Nether sentit que quelque chose n'allait pas. C'était comme si ces individus voulaient la transpercer de leurs yeux.
+Avec son esprit limité, la Bête des Limbes sentit que quelque chose n'allait pas. C'était comme si ces individus voulaient la transpercer de leurs yeux.
 
-Après avoir été effrayée, son rugissement retentit comme le tonnerre et se propagea au loin. Pour les autres, cela ressemblait à un cri de colère, mais en réalité, elle avait peur, une peur profonde... Si elle avait été dans le passé, elle se serait enfuie aussi vite que possible, mais maintenant qu'elle était devenue la bête d'essence vitale de Wang Lin, elle ressentait une affection pour lui. Tel un enfant se précipitant dans les bras de ses parents lorsqu'il est effrayé, la gigantesque Bête du Nether chargea vers Wang Lin.
+Après avoir été effrayée, son rugissement retentit comme le tonnerre et se propagea au loin. Pour les autres, cela ressemblait à un cri de colère, mais en réalité, elle avait peur, une peur profonde... Si elle avait été dans le passé, elle se serait enfuie aussi vite que possible, mais maintenant qu'elle était devenue la bête d'essence vitale de Wang Lin, elle ressentait une affection pour lui. Tel un enfant se précipitant dans les bras de ses parents lorsqu'il est effrayé, la gigantesque Bête des Limbes chargea vers Wang Lin.
 
 Cependant, cette action fut extrêmement terrifiante pour quiconque, excepté Wang Lin. Même s'ils connaissaient le tempérament de la bête, après l'avoir vue dévorer la tempête dorée, ils ne purent s'empêcher d'éprouver une immense crainte.
 
 Même les cultivateurs du troisième niveau reculèrent avec effroi. Pourtant, l'envie et la cupidité brillèrent dans les yeux de certains.
 
-« Si ce vieil homme obtenait l'une de ces bêtes, ma force augmenterait considérablement! » Le vieil homme en noir de la Rivière Invoquée, Zhou De, fixa la Bête du Nether en se léchant les lèvres.
+« Si ce vieil homme obtenait l'une de ces bêtes, ma force augmenterait considérablement! » Le vieil homme en noir de la Rivière Invoquée, Zhou De, fixa la Bête des Limbes en se léchant les lèvres.
 
-« Cette Bête du Nether a dévoré la tempête dorée... C'est... c'est différent des rumeurs! Si cette bête devenait mienne, alors... » Une lueur de cupidité passa dans les yeux de Maître Cloud Edge.
+« Cette Bête des Limbes a dévoré la tempête dorée... C'est... c'est différent des rumeurs! Si cette bête devenait mienne, alors... » Une lueur de cupidité passa dans les yeux de Maître Bord-des-Nuages.
 
-« Avec une telle bête à ses côtés, même sans être un cultivateur du troisième niveau, on suffirait à devenir célèbre! » Les autres cultivateurs des Sectes des Fantômes et des Démons contemplaient tous la Bête du Nether. Bien qu'ils fussent horrifiés par elle, la créature exerçait également sur eux une attraction irrésistible!
+« Avec une telle bête à ses côtés, même sans être un cultivateur du troisième niveau, on suffirait à devenir célèbre! » Les autres cultivateurs des Sectes des Fantômes et des Démons contemplaient tous la Bête des Limbes. Bien qu'ils fussent horrifiés par elle, la créature exerçait également sur eux une attraction irrésistible!
 
 « Une bête d'essence vitale! Ce Wang Lin a réellement réussi à apprivoiser cette bête... Le choix du Seigneur du Royaume Scellé n'était pas erroné... » Maître Hong Shan observa le vieil homme de la Secte des Cadavres.
 
-Tandis que tous reculaient, seul Wang Lin fit un pas en avant et posa doucement sa main droite sur la Bête du Nether. La peur dans les yeux de la créature disparut progressivement. Elle ressentait une grande chaleur auprès de Wang Lin, et l'essentiel de son effroi s'estompa.
+Tandis que tous reculaient, seul Wang Lin fit un pas en avant et posa doucement sa main droite sur la Bête des Limbes. La peur dans les yeux de la créature disparut progressivement. Elle ressentait une grande chaleur auprès de Wang Lin, et l'essentiel de son effroi s'estompa.
 
 En particulier, le sentiment de sécurité émanant de l'esprit de Wang Lin apaisa grandement sa crainte. Tel un petit chaton, elle utilisa sa tête gigantesque pour se frotter tendrement contre lui!
 
-Cependant, même ce geste fut terrifiant pour les autres cultivateurs. La Bête du Nether était tout simplement trop immense; bien que ses mouvements fussent doux, c'était comme si une montagne vous percutait. Lorsqu'elle vint se poser contre Wang Lin, un grondement tonitruant fit vibrer l'air!
+Cependant, même ce geste fut terrifiant pour les autres cultivateurs. La Bête des Limbes était tout simplement trop immense; bien que ses mouvements fussent doux, c'était comme si une montagne vous percutait. Lorsqu'elle vint se poser contre Wang Lin, un grondement tonitruant fit vibrer l'air!
 
-La puissance de cet impact était terrifiante. Le fracas qui en résulta n'était pas moins violent qu'un coup porté de plein fouet par un cultivateur du troisième niveau! Il fallait savoir qu'à Luotian, même Wang Lin avait été repoussé par la pleine puissance de la Bête du Nether. Cela témoignait de sa force colossale!
+La puissance de cet impact était terrifiante. Le fracas qui en résulta n'était pas moins violent qu'un coup porté de plein fouet par un cultivateur du troisième niveau! Il fallait savoir qu'à Luotian, même Wang Lin avait été repoussé par la pleine puissance de la Bête des Limbes. Cela témoignait de sa force colossale!
 
 Le vieil homme Zhou De, de la Rivière Invoquée, eut le souffle coupé. Toutes ses pensées d'asservir une bête aussi féroce s'évaporèrent instantanément.
 
 « Bien que le corps de ce vieil homme ne soit pas faible, il ne pourrait résister à une telle force... Si cette bête agissait ainsi souvent, alors... je devrais changer de corps sans cesse... Ce n'est pas une bête féroce que j'élève, mais un ancêtre! »
 
-Les yeux de Maître Cloud Edge s'écarquillèrent et il prit une profonde inspiration. Il secoua la tête avec un sourire amer en pensant: « Ce vieil homme ne peut pas se permettre d'élever cette bête. Si elle devenait joyeuse un jour et me frappait en plein combat, je... » Le regard de Maître Cloud Edge se remplit de terreur à l'idée des conséquences.
+Les yeux de Maître Bord-des-Nuages s'écarquillèrent et il prit une profonde inspiration. Il secoua la tête avec un sourire amer en pensant: « Ce vieil homme ne peut pas se permettre d'élever cette bête. Si elle devenait joyeuse un jour et me frappait en plein combat, je... » Le regard de Maître Bord-des-Nuages se remplit de terreur à l'idée des conséquences.
 
-Non seulement ces deux-là, mais tous ceux qui avaient convoité la Bête du Nether furent frappés de stupeur. Ce choc n'était pas moindre que lorsqu'ils virent la bête dévorer la tempête dorée.
+Non seulement ces deux-là, mais tous ceux qui avaient convoité la Bête des Limbes furent frappés de stupeur. Ce choc n'était pas moindre que lorsqu'ils virent la bête dévorer la tempête dorée.
 
-« L'impact de la Bête du Nether est tout simplement trop effrayant! »
+« L'impact de la Bête des Limbes est tout simplement trop effrayant! »
 
 « Si j'avais cette bête, je ne vivrais pas longtemps! »
 
@@ -50,7 +50,7 @@ Non seulement ces deux-là, mais tous ceux qui avaient convoité la Bête du Net
 
 La cruelle réalité fit instantanément s'effondrer toute cupidité, ramenant les cultivateurs environnants à la raison.
 
-Grâce à l'apaisement de Wang Lin, la Bête du Nether n'avait plus peur. Contre toute attente, une fois sa crainte dissipée, son étrange tempérament se manifesta... Elle remua doucement la queue, son expression devint féroce et elle recommença à rugir. Cependant, cette fois, elle rugissait contre les cultivateurs qui l'avaient effrayée. Son cri, allié à son air belliqueux, donnait l'impression qu'elle se précipiterait sans hésiter dès que Wang Lin lui donnerait l'ordre!
+Grâce à l'apaisement de Wang Lin, la Bête des Limbes n'avait plus peur. Contre toute attente, une fois sa crainte dissipée, son étrange tempérament se manifesta... Elle remua doucement la queue, son expression devint féroce et elle recommença à rugir. Cependant, cette fois, elle rugissait contre les cultivateurs qui l'avaient effrayée. Son cri, allié à son air belliqueux, donnait l'impression qu'elle se précipiterait sans hésiter dès que Wang Lin lui donnerait l'ordre!
 
 Plus surprenant encore, une épaisse couche de poils apparut sur sa peau lisse. Ces poils, censés être doux, se dressèrent soudainement, lui donnant une allure puissante.
 
@@ -58,9 +58,9 @@ Ses yeux s'écarquillèrent et son rugissement devint plus intense encore alors 
 
 Elle fit également un mouvement de charge, mais c'était comme si une corde invisible la retenait; elle ne pouvait franchir Wang Lin et ne pouvait que rugir plus fort.
 
-La colère de la Bête du Nether était terrifiante. À cet instant, Daoïste Eau fut envahi par le désespoir. Il n'aurait jamais imaginé que tous ses plans échoueraient à cause de cette étrange créature!
+La colère de la Bête des Limbes était terrifiante. À cet instant, Daoïste Eau fut envahi par le désespoir. Il n'aurait jamais imaginé que tous ses plans échoueraient à cause de cette étrange créature!
 
-Alors que l'attention de tous était captée par la Bête du Nether, passée de timide à féroce, Daoïste Eau prit soudainement la fuite.
+Alors que l'attention de tous était captée par la Bête des Limbes, passée de timide à féroce, Daoïste Eau prit soudainement la fuite.
 
 Les yeux de Wang Lin s'illuminèrent. Les autres pourraient oublier Daoïste Eau, mais lui ne l'oublierait pas. Wang Lin fit un pas en avant, et le monde trembla lorsqu'il chargea à la poursuite de Daoïste Eau!
 

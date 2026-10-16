@@ -74,7 +74,7 @@ Le visage de Zhou Peng s'assombrit. Sans ralentir, il continua sa fuite sur son 
 
 Wang Lin commença à s'inquiéter. Sa technique d'attraction n'avait qu'une portée limitée et, une fois cette distance franchie, sa puissance diminuait considérablement. Il craignait de ne pas pouvoir rattraper Zhou Peng avant que celui-ci ne rejoigne la secte. Il savait qu'il ne pouvait laisser aucune chance à sa fuite, car cela mettrait non seulement sa propre vie en péril, mais aussi celle de ses parents.
 
-Il s'adressa immédiatement à Situ Nan: « Senior Situ, existe-t-il un moyen de le capturer instantanément? »
+Il s'adressa immédiatement à Situ Nan: « Aîné Situ, existe-t-il un moyen de le capturer instantanément? »
 
 Situ Nan répondit calmement: « Il y en a un... mais... »
 

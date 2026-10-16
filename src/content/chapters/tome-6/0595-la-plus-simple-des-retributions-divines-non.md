@@ -72,7 +72,7 @@ La lumière rouge dans le ciel se condensa rapidement en une multitude de nuages
 
 Alors que Wang Lin se tenait derrière le tambour démoniaque, il regarda le ciel et prit une profonde inspiration.
 
-« Le Dao des cieux ne peut arrêter mon cœur Dao, mais il peut envoyer un châtiment pour effacer mon existence... C'est cela, la rétribution divine. J'ai déjà vu une rétribution divine à Qilin City, dans la Mer des Démons. Comparé à cela, ceci est bien plus puissant... »
+« Le Dao des cieux ne peut arrêter mon cœur Dao, mais il peut envoyer un châtiment pour effacer mon existence... C'est cela, la rétribution divine. J'ai déjà vu une rétribution divine à Ville de Qilin, dans la Mer des Démons. Comparé à cela, ceci est bien plus puissant... »
 
 Les nuages rouges s'amassèrent et, en un instant, des éclairs rouges commencèrent à se former. Si ces éclairs ne tombaient pas ou ne dégageaient pas d'aura, cette scène serait d'une beauté extrême!
 

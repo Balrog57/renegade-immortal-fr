@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1851 - Soul Order
 slug: ordre-de-lame
 ---
-Parmi les dizaines de milliers de cultivateurs, d'innombrables personnes périrent dans la Mer des Pilules. L'avatar de Void Cloud était trop proche et fut le premier à mourir. Peu importait la puissance de son intention d'épée, face à l'explosion de la Pilule Céleste, il n'était aussi fragile qu'un morceau de papier!
+Parmi les dizaines de milliers de cultivateurs, d'innombrables personnes périrent dans la Mer des Pilules. L'avatar de Nuage du Vide était trop proche et fut le premier à mourir. Peu importait la puissance de son intention d'épée, face à l'explosion de la Pilule Céleste, il n'était aussi fragile qu'un morceau de papier!
 
 Sous l'effet de l'effondrement, toute la Mer des Pilules disparut. Le Continent du Démon Vert perdit plus de dizaines de milliers de cultivateurs. Les autres ne purent échapper à cette force destructrice et furent envahis par le désespoir lorsqu'une ombre gigantesque apparut. Cette silhouette ressemblait à une personne, mais il était impossible d'en distinguer les traits clairement. D'un revers de manche, elle enveloppa les cultivateurs restants du Continent du Démon Vert.
 
@@ -60,7 +60,7 @@ Avant de commencer sa convalescence, il avait mis en place cette barrière. Il l
 
 « À en juger par le temps, ils ne devraient pas encore être arrivés, mais les tremblements du Continent du Taureau Céleste il y a trois jours ont dû attirer l'attention. » Wang Lin médita en se levant. Ses yeux brillèrent alors que sa main gauche s'étendait pour saisir un morceau de jade.
 
-Ce jade paraissait très commun, mais il contenait l'enregistrement de la seconde entrée de Wang Lin dans la Mer des Pilules: le moment où il détruisit les trois drapeaux, vola la boussole, trancha la Pilule Céleste et tua Void Cloud.
+Ce jade paraissait très commun, mais il contenait l'enregistrement de la seconde entrée de Wang Lin dans la Mer des Pilules: le moment où il détruisit les trois drapeaux, vola la boussole, trancha la Pilule Céleste et tua Nuage du Vide.
 
 L'enregistrement se poursuivait jusqu'au départ de Wang Lin de la Mer des Pilules.
 

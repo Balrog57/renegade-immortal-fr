@@ -58,7 +58,7 @@ Wang Lin ne pouvait maintenir cette méthode d'affinage intense très longtemps.
 
 Après douze heures, les yeux de Wang Lin brillèrent d'un éclat vif et il poussa un rugissement. D'un revers de main, il fit éclater la sphère de magma en une multitude de débris brûlants. À cet instant, l'épée brisée ne put plus résister à la chaleur extrême et fondit complètement. La seconde âme originelle de Wang Lin dévora l'acier fondu et retourna dans son corps.
 
-Les âmes de Maître du Vide et du Vraie-Vision regagnèrent également le Sceau Céleste des 18 Enfers.
+Les âmes du Maître du Vide et du Vraie-Vision regagnèrent également le Sceau Céleste des 18 Enfers.
 
 Wang Lin ferma les yeux pour cultiver un instant. Une épée rouge commença lentement à se condenser devant sa seconde âme originelle. Elle dégageait une puissance de massacre terrifiante qui, à la moindre pensée, s'apprêtait à jaillir.
 

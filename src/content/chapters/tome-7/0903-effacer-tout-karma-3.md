@@ -10,9 +10,9 @@ L'Ancêtre du Sang Écarlate était un homme prudent; il avait placé des sceaux
 
 Saisissant cette opportunité, il s'enfuit, tremblant de tous ses membres. Son esprit était vide; sa seule pensée était de s'échapper!
 
-Son cuir chevelu était engourdi et son cœur était rongé par la peur. Il avait toujours porté une épine dans son cœur, une douleur née lorsqu'il avait poursuivi une cultivatrice près de la frontière entre la Mer des Démons et le pays de Huo Fen. Il avait alors rencontré un junior qui avait sauvé cette femme avant de s'enfuir dans la Mer des Démons.
+Son cuir chevelu était engourdi et son cœur était rongé par la peur. Il avait toujours porté une épine dans son cœur, une douleur née lorsqu'il avait poursuivi une cultivatrice près de la frontière entre la Mer des Démons et le pays de Huo Fen. Il avait alors rencontré un cadet qui avait sauvé cette femme avant de s'enfuir dans la Mer des Démons.
 
-À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Ceng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Ceng Niu comme étant ce junior qui avait sauvé la cultivatrice et s'était enfui dans la Mer des Démons!
+À l'origine, il ne s'en serait aucunement soucié, mais au fil du temps, à mesure que le nom de « Ceng Niu » gagnait en renommée, il en eut le frisson. Il avait reconnu Ceng Niu comme étant ce cadet qui avait sauvé la cultivatrice et s'était enfui dans la Mer des Démons!
 
 Ce qui le glaça davantage fut la série d'événements qui suivirent. Ce Ceng Niu avait brillé lors de la guerre entre le Clan Immortel Délaissé et le pays de Suzaku. Par la suite, il apprit que la position actuelle de Suzaku avait été offerte à Zhou Wutai par Ceng Niu, qui n'était autre que Wang Lin. Tout cela l'avait rendu extrêmement méfiant, et ce n'est qu'après le départ de Wang Lin de la planète Suzaku qu'il s'était enfin détendu.
 

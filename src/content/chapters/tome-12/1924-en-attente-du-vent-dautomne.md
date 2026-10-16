@@ -26,7 +26,7 @@ Ce mot fut comme un coup de tonnerre éclatant au sein de la Secte Terrestre, cr
 
 Un seul mot, un simple son, suffisait à infliger de graves blessures à un Maître de Secte au stade avancé de la Tribulation du Vide. Les pupilles du vieil Ancien de l'Exaltation Dorée se rétractèrent et il joignit immédiatement les mains devant Wang Lin.
 
-« Aîné, je vous en prie, ne soyez pas en colère. Ce descendant est jeune dans sa culture. Bien que talentueux, il est trop téméraire et a été trop gâté par ce junior. Je vais immédiatement le destituer de son poste de Maître de Secte et vous le livrer pour que vous puissiez faire votre justice. Je trouverai une nouvelle personne pour assumer cette fonction! »
+« Aîné, je vous en prie, ne soyez pas en colère. Ce descendant est jeune dans sa culture. Bien que talentueux, il est trop téméraire et a été trop gâté par ce cadet. Je vais immédiatement le destituer de son poste de Maître de Secte et vous le livrer pour que vous puissiez faire votre justice. Je trouverai une nouvelle personne pour assumer cette fonction! »
 
 Ce revirement soudain stupéfia les près de mille disciples de rang 5. Ils regardèrent Wang Lin avec une terreur indescriptible.
 

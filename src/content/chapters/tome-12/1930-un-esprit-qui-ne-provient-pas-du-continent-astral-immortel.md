@@ -26,7 +26,7 @@ Les 97 images rémanentes et le corps original utilisèrent tous le même sort: 
 
 Par ce geste, les 97 images rémanentes fusionnèrent avec le corps de Wang Lin, et une ombre gigantesque surgit dans le monde. Cette ombre était un doigt qui semblait capable de soutenir le ciel et la terre!
 
-Le doigt apparut et pointa vers l'Exalt Empyréen Hai Zi!
+Le doigt apparut et pointa vers l'Exalté Empyréen Hai Zi!
 
 Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 98 sorts simultanés. Il avait alors écrasé l'ancêtre de la Secte du Dao Démoniaque, le forçant à utiliser la robe dao salvatrice que le Grand Empyréen Dao Yi lui avait donnée.
 
@@ -36,25 +36,25 @@ Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 der
 
 Il était déjà extrêmement puissant et n'avait plus rien à voir avec l'homme d'il y a 50 ans. Désormais, après avoir revêtu l'armure d'âme et utilisé l'Art de Sort Rapide pour fusionner 98 sorts en un seul, sa puissance était bien supérieure à celle de jadis!
 
-L'expression de l'Exalt Empyréen Hai Zi changea soudainement, son visage marqué par l'incrédulité. C'était la première fois qu'elle voyait Wang Lin déployer toute sa force, et ces 98 sorts firent trembler son cœur!
+L'expression de l'Exalté Empyréen Hai Zi changea soudainement, son visage marqué par l'incrédulité. C'était la première fois qu'elle voyait Wang Lin déployer toute sa force, et ces 98 sorts firent trembler son cœur!
 
 Alors que le doigt pointait, tout dans le monde sembla s'immobiliser. La brise marine cessa, les vagues se turent et le mouvement même de l'univers se figea.
 
-Cette force capable de tout stopper s'abattit sur l'Exalt Empyréen Hai Zi. Lorsqu'elle fut frappée, même sa main droite s'immobilisa et son âme originelle cessa de bouger!
+Cette force capable de tout stopper s'abattit sur l'Exalté Empyréen Hai Zi. Lorsqu'elle fut frappée, même sa main droite s'immobilisa et son âme originelle cessa de bouger!
 
 98 sorts d'Arrêt!
 
 Le visage de Wang Lin était pâle. Ce geste contenait toute sa puissance. Après l'apparition des 98 sorts d'Arrêt, un changement occulte, que Wang Lin ne pouvait expliquer lui-même, s'était produit. Cela ressemblait étrangement à la façon dont le monde s'était figé lorsque le Grand Empyréen Dao Yi était apparu.
 
-« Il n'y a aucune haine entre nous, je ne veux pas vous tuer! » Wang Lin regarda l'Exalt Empyréen Hai Zi pétrifiée, puis disparut dans les profondeurs de la mer.
+« Il n'y a aucune haine entre nous, je ne veux pas vous tuer! » Wang Lin regarda l'Exalté Empyréen Hai Zi pétrifiée, puis disparut dans les profondeurs de la mer.
 
-À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalt Empyréen, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un Grand Empyréen pouvait l'anéantir d'un simple coup de poing.
+À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalté Empyréen, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un Grand Empyréen pouvait l'anéantir d'un simple coup de poing.
 
 Cependant, maintenant, sans même avoir besoin de ses avatars, il pouvait fusionner neuf sorts dans son propre corps. Puis, grâce au pouvoir de compression mystérieux de ses avatars, il pouvait en fusionner 36, ce qui était bien plus puissant qu'auparavant!
 
 Auparavant, c'était une troupe de soldats dispersés; désormais, il y avait un général. Bien que le général ne fût pas seul à porter la force, la puissance des sorts avait considérablement augmenté!
 
-Après avoir immobilisé l'Exalt Empyréen Hai Zi, Wang Lin savait que cela ne durerait pas longtemps. Il se déplaça avec une vitesse fulgurante vers les abysses.
+Après avoir immobilisé l'Exalté Empyréen Hai Zi, Wang Lin savait que cela ne durerait pas longtemps. Il se déplaça avec une vitesse fulgurante vers les abysses.
 
 Le temps s'écoula lentement. Au quatrième souffle, Wang Lin atteignit la partie la plus profonde de la mer. La pression ici était suffisante pour broyer le corps d'un cultivateur ordinaire, mais elle ne posait aucun problème au Corps du Dao Antique de Wang Lin.
 

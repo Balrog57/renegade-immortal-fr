@@ -28,7 +28,7 @@ Qian Kun la poursuivait avec désinvolture. Il n'avait qu'une idée en tête: l'
 
 La voix sombre de Qian Kun résonna lentement: « Yun Fei, devant toi se trouvent les étoiles brisées et chaotiques. Dans la Mer des Diables, cet endroit est extrêmement dangereux. Jusqu'à présent, personne n'a jamais réussi à le traverser par simple chance. Veux-tu tenter l'expérience? »
 
-Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à 16 mètres des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Aîné, junior est arrivée ici par accident. Pourquoi devez-vous absolument me tuer? »
+Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à 16 mètres des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Aîné, ce cadet est arrivée ici par accident. Pourquoi devez-vous absolument me tuer? »
 
 La bouche de Qian Kun eut un tressaillement. L'épée sous ses pieds s'immobilisa à 33 mètres de la femme. Il jeta un coup d'œil vers les étoiles brisées derrière elle, esquissa un sourire et dit: « Je n'agis que sur ordre. Tu devrais te blâmer d'avoir pris ce qui ne t'appartenait pas. »
 
@@ -120,11 +120,11 @@ Qian Kun savait que même s'il s'enfuyait, si le jeune homme parvenait à franch
 
 De plus, si le jeune homme ne pouvait pas sortir de l'anneau, il serait en sécurité quoi qu'il fasse.
 
-Pensant cela, Qian Kun s'arrêta brusquement et joignit les mains. Il dit respectueusement: « Ce junior est un disciple de la cinquième génération du Palais Enchanté du Roi Poison. Qian Kun salue l'Aîné. »
+Pensant cela, Qian Kun s'arrêta brusquement et joignit les mains. Il dit respectueusement: « Ce cadet est un disciple de la cinquième génération du Palais Enchanté du Roi Poison. Qian Kun salue l'Aîné. »
 
 Le cœur de Yun Fei était affaibli par sa récente expérience de mort imminente et par ce spectacle. Sa conclusion rejoignait celle de Qian Kun, mais elle se disait que si elle fuyait, Qian Kun la tuerait, alors qu'en restant, elle avait peut-être une chance de survivre.
 
-Après réflexion, elle dit respectueusement: « Ce junior est Mo Yun de la Secte Qi Huang. Salutations, Aîné. »
+Après réflexion, elle dit respectueusement: « Ce cadet est Mo Yun de la Secte Qi Huang. Salutations, Aîné. »
 
 Le jeune aux cheveux blancs détourna le regard après un coup d'œil glacial. Il se tourna vers l'anneau des étoiles brisées et, après avoir réfléchi un instant, il ouvrit son sac de rangement, faisant apparaître une petite créature dans sa main.
 

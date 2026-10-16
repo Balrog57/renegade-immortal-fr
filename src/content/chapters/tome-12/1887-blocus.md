@@ -90,7 +90,7 @@ L'autodestruction simultanée de deux cultivateurs au stade intermédiaire de la
 
 Lorsque les deux messagers explosèrent, les yeux de Wang Lin s'illuminèrent et un profond sentiment de crise le submergea. Le danger ne venait pas de la puissance de l'explosion, mais de la raison pour laquelle ils avaient choisi de mourir ainsi!
 
-Le combat n'avait même pas commencé qu'ils avaient déjà opté pour l'autodestruction. C'était d'une étrangeté absolue. De plus, derrière lui se trouvait Void Cloud, qui contrôlait la puissante énergie d'épée. À trois, ils avaient largement de quoi combattre Wang Lin; l'autodestruction n'était absolument pas nécessaire!
+Le combat n'avait même pas commencé qu'ils avaient déjà opté pour l'autodestruction. C'était d'une étrangeté absolue. De plus, derrière lui se trouvait Nuage du Vide, qui contrôlait la puissante énergie d'épée. À trois, ils avaient largement de quoi combattre Wang Lin; l'autodestruction n'était absolument pas nécessaire!
 
 C'était une anomalie extrême!
 

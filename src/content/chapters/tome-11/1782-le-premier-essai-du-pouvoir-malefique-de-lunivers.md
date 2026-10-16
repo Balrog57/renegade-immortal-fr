@@ -84,7 +84,7 @@ Le calme de Wang Lin surprit Qin Mei, mais pour une raison inconnue, elle commen
 
 Des dizaines de regards se posèrent sur Wang Lin.
 
-Wang Lin avait déjà entendu ces mêmes paroles dans les souvenirs de Seven-Colored. Le nombre de participants était identique, et même les silhouettes dorées dans le ciel étaient les mêmes. La seule différence était que, dans la mémoire, la plupart de ces regards étaient dirigés vers Zhou Li.
+Wang Lin avait déjà entendu ces mêmes paroles dans les souvenirs de Sept-Couleurs. Le nombre de participants était identique, et même les silhouettes dorées dans le ciel étaient les mêmes. La seule différence était que, dans la mémoire, la plupart de ces regards étaient dirigés vers Zhou Li.
 
 Quant à Su Dao, bien qu'il reçît quelques regards, son cœur tremblait sous leur poids et il baissa la tête. Son attitude était pitoyable.
 
@@ -112,7 +112,7 @@ C'était une terre sombre et infinie. Le ciel était terne, comme recouvert d'un
 
 L'endroit imitait une zone du Continent Astral Immortel.
 
-Lorsque Wang Lin apparut, il se trouvait sur une plaine couverte d'herbes aussi hautes qu'un homme. L'endroit où il venait de surgir était exactement le même que dans les souvenirs de Seven-Colored.
+Lorsque Wang Lin apparut, il se trouvait sur une plaine couverte d'herbes aussi hautes qu'un homme. L'endroit où il venait de surgir était exactement le même que dans les souvenirs de Sept-Couleurs.
 
 À l'époque, Su Dao avait fini par perdre son jeton lors du premier essai et avait échoué. Il n'avait pu que regarder Zhou Li et plusieurs autres membres de sa lignée s'élever et briller.
 

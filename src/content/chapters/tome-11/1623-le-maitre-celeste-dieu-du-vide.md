@@ -26,7 +26,7 @@ Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, p
 
 « Règlementons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa le Maître Céleste Dieu du Vide et s'avança vers lui.
 
-« Myriad Red Cloud Void Dao! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables flammes de joss jaillirent, créant une multitude de nuages rouges incandescents. Des statues gigantesques émergèrent de ces nuages pourpres.
+« Dao du Vide des Myriades de Nuages Rouges! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables flammes de joss jaillirent, créant une multitude de nuages rouges incandescents. Des statues gigantesques émergèrent de ces nuages pourpres.
 
 « Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse plus bouger d'un pouce! » rugit le Maître Céleste Dieu du Vide en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
 

@@ -48,7 +48,7 @@ Sans aucun avertissement, dès l'instant où ces paroles furent prononcées, le 
 
 Après avoir recraché du sang, Wang Lin recula plus vite encore tout en criant:
 
-« N'est-ce pas un peu excessif pour un aîné d'attaquer un junior? Si cela s'ébruite, le nom de la famille Yao sera ruiné! »
+« N'est-ce pas un peu excessif pour un aîné d'attaquer un cadet? Si cela s'ébruite, le nom de la famille Yao sera ruiné! »
 
 L'expression du Dieu de Sang était glaciale alors qu'il levait sa main droite. Il dit doucement: « Si tu échappes à mon sort céleste, considère cela comme ta chance! » Tandis qu'il parlait, une lumière rouge se concentra au bout de son doigt. Un avaleur de sang apparut instantanément et fondit sur Wang Lin.
 

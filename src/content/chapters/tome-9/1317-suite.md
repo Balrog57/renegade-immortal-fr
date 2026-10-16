@@ -110,7 +110,7 @@ La femme tourna également la tête et posa les yeux sur Wang Lin.
 
 Leurs regards se rencontrèrent. Un sourire apparut sur les lèvres de Wang Lin. Li Qianmei s'était réveillée!
 
-« Mon père m'a dit de te donner mon nom. Je m'appelle Blue Moon. Qui es-tu? »
+« Mon père m'a dit de te donner mon nom. Je m'appelle Lune Bleue. Qui es-tu? »
 
 Wang Lin fut stupéfait un instant, puis plongea son regard dans celui de Li Qianmei. Après un long moment, une pointe d'amertume étira ses lèvres et il murmura: « Je m'appelle Wang Lin... » Sur ces mots, il cessa de lutter contre la force, et il fut instantanément projeté au loin.
 
@@ -118,9 +118,9 @@ La distance entre lui et la femme au sommet s'étira rapidement. Même leurs reg
 
 « Il vaut mieux que nous nous oubliions. Ce serait mieux ainsi... Ce serait mieux ainsi... » Wang Lin était plongé dans une émotion complexe et indicible. Tandis qu'il était emporté, il se retourna et s'éloigna dans le lointain.
 
-La confusion dans les yeux de Blue Moon s'intensifia. Elle ressentit une douleur sourde au cœur, une sensation d'étouffement. Tout ce qui l'entourait semblait devenir fluide, comme de l'eau. Elle se sentait immergée et regardait un oiseau s'éloigner de plus en plus.
+La confusion dans les yeux de Lune Bleue s'intensifia. Elle ressentit une douleur sourde au cœur, une sensation d'étouffement. Tout ce qui l'entourait semblait devenir fluide, comme de l'eau. Elle se sentait immergée et regardait un oiseau s'éloigner de plus en plus.
 
-Blue Moon ne se retourna pas et murmura doucement: « Père, pourquoi ai-je l'impression qu'il m'est si familier, comme s'il faisait partie de mes souvenirs... Quelque chose de très important, de très important... »
+Lune Bleue ne se retourna pas et murmura doucement: « Père, pourquoi ai-je l'impression qu'il m'est si familier, comme s'il faisait partie de mes souvenirs... Quelque chose de très important, de très important... »
 
 « La plus grande distance au monde n'est ni la fin de l'univers, ni le yin et le yang, mais le fait d'être oublié... Une relation erronée est née au mauvais endroit et au mauvais moment. Tout était faux dès le départ... Si vous pouvez recommencer après vous être oubliés, alors ton père ne vous en empêchera pas... Même s'il est choisi par le Royaume Céleste Ancien, ton père oserait se battre contre eux pour toi! » Au lieu de répondre à Li Qianmei, le Maître du Dao Rêve Bleu ferma les yeux et effleura la cithare.
 

@@ -16,7 +16,7 @@ Alors qu'il parlait, les yeux du maître de la Secte du Dao Démoniaque se rempl
 
 Car Wang Lin ne regardait pas la lumière dorée dans le ciel et avait ignoré l'édit impérial. Sans marquer de pause, il se rapprocha instantanément du maître de la Secte du Dao Démoniaque. Il leva sa main droite et frappa!
 
-Un grondement tonitruant résonna lorsque son coup atterrit. La pleine puissance de la culture de Wang Lin éclata, formant une force capable de terrifier n'importe quel cultivateur d'Exalt Doré.
+Un grondement tonitruant résonna lorsque son coup atterrit. La pleine puissance de la culture de Wang Lin éclata, formant une force capable de terrifier n'importe quel cultivateur d'Exalté Doré.
 
 Tuer quelqu'un sous l'autorité d'un édit impérial!
 
@@ -34,7 +34,7 @@ Wang Lin ignora totalement la silhouette dorée et s'avança vers le maître de 
 
 « Personne ne peut sauver celui que je veux tuer! » Wang Lin leva sa main droite et lança son troisième coup!
 
-Un fracas assourdissant retentit et toutes les sphères de foudre se désintégrèrent. Bien que le maître de la Secte du Dao Démoniaque fût un cultivateur d'Exalt Doré, il poussa un cri déchirant. Il cracha de nouveau du sang en étant projeté en arrière. Son corps semblait flétrir et une peur monstrueuse s'empara de son regard.
+Un fracas assourdissant retentit et toutes les sphères de foudre se désintégrèrent. Bien que le maître de la Secte du Dao Démoniaque fût un cultivateur d'Exalté Doré, il poussa un cri déchirant. Il cracha de nouveau du sang en étant projeté en arrière. Son corps semblait flétrir et une peur monstrueuse s'empara de son regard.
 
 « L'édit impérial est là. Si tu me tues, tu mourras sans aucun doute! » Le maître de la Secte du Dao Démoniaque était dans un état pitoyable, un brouillard de sang jaillissant de son corps. L'onde de choc du coup de Wang Lin se propageait encore en lui, l'épuisant presque totalement.
 
@@ -62,7 +62,7 @@ Wang Lin fit un pas en avant et se retrouva instantanément aux côtés du maît
 
 Un grondement sourd retentit, son expression s'assombrit et l'aura de la mort envahit son corps. Repoussé, il fut suivi par Wang Lin tel une flèche qui lança un autre coup!
 
-Plus de cent ans plus tard, la scène à l'extérieur du Continent Meng Earth — les têtes humaines volant dans les airs et Wang Lin tentant désespérément d'échapper au destin — surgit dans son esprit! Cette fois, il ne frappa pas, mais ouvrit la bouche et aspira!
+Plus de cent ans plus tard, la scène à l'extérieur du Continent Terre-Meng — les têtes humaines volant dans les airs et Wang Lin tentant désespérément d'échapper au destin — surgit dans son esprit! Cette fois, il ne frappa pas, mais ouvrit la bouche et aspira!
 
 « Meurs! » Wang Lin lança un coup de poing et le corps du maître de la Secte du Dao Démoniaque s'effondra. Son âme originelle hurla en tentant de s'échapper de son enveloppe dévastée.
 

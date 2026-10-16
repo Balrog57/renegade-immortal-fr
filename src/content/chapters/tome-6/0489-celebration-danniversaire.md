@@ -61,7 +61,7 @@ Ces rugissements émanaient des quatre bêtes qui tiraient le char. Leurs corps 
 
 Dix personnes se tenaient à dix endroits différents sur ce char de guerre. Elles portaient toutes des robes argentées et affichaient des expressions glaciales. Au centre du char trônait un siège où était assis un individu extrêmement corpulent; il ressemblait à une masse de chair posée sur une chaise. Cependant, sa peau était aussi lisse et limpide que du cristal, si éclatante que quiconque la regardait en serait ébloui.
 
-Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce junior est Zhao Xingsha, disciple de la division pourpre de la Secte du Destin Céleste. Salutations, Senior Démon Doré. »
+Dès que Zhao Xingsha vit le char de guerre doré, il fut frappé de stupeur. Il s'avança immédiatement et dit respectueusement: « Ce cadet est Zhao Xingsha, disciple de la division pourpre de la Secte du Destin Céleste. Salutations, Aîné Démon Doré. »
 
 Lorsque le char s'arrêta à 330 mètres de lui, une aura puissante se verrouilla instantanément sur lui. C'étaient les regards venimeux des quatre bêtes féroces; certaines laissaient même couler de la bave au coin de leur gueule. Au sommet du char, les dix individus fixaient silencieusement Zhao Xingsha de leurs yeux froids.
 
@@ -71,7 +71,7 @@ La culture de cet homme était trop puissante. Hormis quelques élus, personne n
 
 La masse de chair assise sur le siège fronça les sourcils et s'exclama: « Pourquoi ce petit garçon reste-t-il là, figé? Montrez-moi le chemin! »
 
-Zhao Xingsha prit une profonde inspiration. Son sourire serein revint sur son visage et il répondit respectueusement: « Par ici, Senior! » D'un geste de la main, il fit bouger la brume violette pour révéler un long passage.
+Zhao Xingsha prit une profonde inspiration. Son sourire serein revint sur son visage et il répondit respectueusement: « Par ici, Aîné! » D'un geste de la main, il fit bouger la brume violette pour révéler un long passage.
 
 Sous la guidance de Zhao Xingsha, le gigantesque char doré vola lentement vers la planète Tian Yun. Des scènes similaires se produisaient plusieurs fois par jour sur toute la planète. À mesure que les divers cultivateurs puissants arrivaient, les discussions à leur sujet devenaient monnaie courante. Il y avait souvent des échanges de techniques ou d'idées, mais chacun connaissait sa place, évitant ainsi tout incident majeur.
 

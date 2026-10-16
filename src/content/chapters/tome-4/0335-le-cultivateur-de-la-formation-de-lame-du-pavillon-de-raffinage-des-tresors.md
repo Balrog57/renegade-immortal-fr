@@ -50,7 +50,7 @@ Les yeux du vieil homme rencontrèrent ceux de Wang Lin, et il recula soudaineme
 
 Le vieil homme grommela intérieurement; il n'avait aucune envie de chercher des ennuis à un expert de la Formation de l'Âme.
 
-Mais la peur le paralysait. Il ne put que laisser échapper un sourire amer et dire: « Ce junior ignorait que senior était présent. J'ai été impétueux, j'espère que senior pourra me pardonner. »
+Mais la peur le paralysait. Il ne put que laisser échapper un sourire amer et dire: « Ce cadet ignorait que aîné était présent. J'ai été impétueux, j'espère que aîné pourra me pardonner. »
 
 Wang Lin commença à réfléchir. En posant les yeux sur ce vieil homme vêtu de pourpre, il ressentit une certaine familiarité. Il devait s'agir de quelqu'un qu'il avait connu.
 
@@ -84,17 +84,17 @@ Lorsqu'il était entré dans la pièce et avait reconnu Wang Lin comme le cultiv
 
 C'était un fait rare pour un cultivateur de la Formation de l'Âme. Le vieillard aux cheveux blancs était convaincu que s'il avait déjà rencontré quelqu'un, il ne l'aurait pas oublié.
 
-Wang Lin eut un sourire énigmatique et ne répondit pas. Il fit ensuite signe au vieillard en pourpre qui attendait dehors. Ce dernier poussa un soupir de soulagement, s'avança et dit: « Le junior Qiu Siping salue le Senior. »
+Wang Lin eut un sourire énigmatique et ne répondit pas. Il fit ensuite signe au vieillard en pourpre qui attendait dehors. Ce dernier poussa un soupir de soulagement, s'avança et dit: « Le cadet Qiu Siping salue l'Aîné. »
 
 Puis, se tournant vers le vieil homme aux cheveux blancs, il répéta la même formule.
 
-Le vieil homme aux cheveux blancs répondit poliment, mais son ton trahissait une pointe de mécontentement. Il trouvait acceptable que Wang Lin ne réponde pas à sa question, car ils étaient tous deux des cultivateurs de la Formation de l'Âme, mais pourquoi impliquer ce junior de l'Âme Naissante?
+Le vieil homme aux cheveux blancs répondit poliment, mais son ton trahissait une pointe de mécontentement. Il trouvait acceptable que Wang Lin ne réponde pas à sa question, car ils étaient tous deux des cultivateurs de la Formation de l'Âme, mais pourquoi impliquer ce cadet de l'Âme Naissante?
 
 Wang Lin sourit: « Cher cultivateur Qiu, cela fait bien des années que nous ne nous sommes pas vus. J'espère que vous allez bien. »
 
 Qiu Siping fut stupéfait. Même les yeux du vieil homme aux cheveux blancs s'animèrent en regardant Qiu Siping.
 
-Qiu Siping observa attentivement Wang Lin. Plus il le scrutait, plus Wang Lin lui semblait familier, sans qu'il ne puisse mettre le doigt sur quoi que ce soit. Il demanda prudemment: « Le Senior connaît le junior? »
+Qiu Siping observa attentivement Wang Lin. Plus il le scrutait, plus Wang Lin lui semblait familier, sans qu'il ne puisse mettre le doigt sur quoi que ce soit. Il demanda prudemment: « L'Aîné connaît le cadet? »
 
 Wang Lin sourit: « Cela fait si longtemps que je crains que vous n'ayez oublié. Si je n'avais pas entendu votre nom, j'en aurais fait autant. À l'époque, nous avions partagé les deux Âmes Naissantes, une pour chacun, ainsi que la carte. Vous vous en souvenez maintenant? »
 

@@ -28,9 +28,9 @@ Wang Wei n'oublierait jamais qu'il n'était alors qu'un simple et peu célèbre 
 
 À cet instant, Zhou Yi ouvrit les yeux et fixa Qing Shuang. Son regard mêlait amertume et tristesse, mais surtout, il était empreint de calme.
 
-« Senior Qing Lin, ce junior a une faveur à vous demander. » Wang Lin détourna le regard pour s'adresser à Qing Lin.
+« Aîné Qing Lin, ce cadet a une faveur à vous demander. » Wang Lin détourna le regard pour s'adresser à Qing Lin.
 
-« Demandes-tu en tant que junior ou en tant que mon disciple? » Le regard serein de Qing Lin se posa sur Wang Lin.
+« Demandes-tu en tant que cadet ou en tant que mon disciple? » Le regard serein de Qing Lin se posa sur Wang Lin.
 
 Wang Lin réfléchit silencieusement un instant avant de désigner Situ et de dire respectueusement: «... Maître, cet homme est un ami de ce disciple, et il est atteint d'un poison céleste... »
 

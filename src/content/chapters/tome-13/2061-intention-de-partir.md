@@ -12,7 +12,7 @@ Sang violet, le sang d'âme de l'Ancêtre Divin!
 
 L'aura spirituelle à l'intérieur devint encore plus puissante, teintant tout le ciel de violet!
 
-Toute la cité impériale d'Ancient Shi, y compris le nouvel Empereur Ji Du, contemplait le sang d'âme violet surplombant la statue de l'Ancêtre Divin. À cet instant, la lumière pourpre forma un halo et descendit rapidement depuis le sommet de la statue.
+Toute la cité impériale de Shi Antique, y compris le nouvel Empereur Ji Du, contemplait le sang d'âme violet surplombant la statue de l'Ancêtre Divin. À cet instant, la lumière pourpre forma un halo et descendit rapidement depuis le sommet de la statue.
 
 En un éclair, ce halo violet disparut dans les profondeurs du temple ancestral.
 
@@ -56,7 +56,7 @@ Finalement, lorsque toute la lumière pourpre eut pénétré le corps de Wang Li
 
 Le ciel retrouva lentement sa normale et plus aucune trace de violet ne subsistait. La statue de l'Ancêtre Divin resta calme, semblant toujours contempler le ciel avec dédain et mépris.
 
-Une fois le calme revenu, les habitants d'Ancient Shi sortirent de leur stupeur. Bien qu'une immense vague ait déferlé dans leurs cœurs, ils s'efforcèrent de garder une apparence sereine.
+Une fois le calme revenu, les habitants de Shi Antique sortirent de leur stupeur. Bien qu'une immense vague ait déferlé dans leurs cœurs, ils s'efforcèrent de garder une apparence sereine.
 
 Leurs regards portés vers le temple ancestral étaient empreints d'émotions diverses: envie, admiration, perplexité, mélancolie...
 
@@ -64,7 +64,7 @@ Leurs regards portés vers le temple ancestral étaient empreints d'émotions di
 
 Après quelques respirations, son corps passa de son état squelettique à celui qu'il avait lors de sa première entrée dans le temple, mais sa puissance était radicalement différente!
 
-Wang Lin ferma les yeux pour ressentir les mutations de son âme originelle. Celle-ci était désormais d'une puissance extrême. Lorsque son Sens Divin se déploya, il ne couvrit pas seulement tout le clan Ancient, mais s'étendit jusqu'à la vaste mer.
+Wang Lin ferma les yeux pour ressentir les mutations de son âme originelle. Celle-ci était désormais d'une puissance extrême. Lorsque son Sens Divin se déploya, il ne couvrit pas seulement tout le clan Antique, mais s'étendit jusqu'à la vaste mer.
 
 Il pouvait percevoir la Loi du monde, ressentir le mouvement de toutes choses et même voir le flux du temps.
 
@@ -82,7 +82,7 @@ Observant le ciel et la direction prise par Xuan Luo, Wang Lin resta pensif. Ses
 
 « Avant de partir, je dois aller voir mon Maître... » se dit-il.
 
-« Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Ancient est terminé. Il reste encore 300 ans avant l'ouverture du Royaume des Dieux Immémoriaux. Je ne veux pas passer ce temps sur le Continent Astral Immortel, je veux rentrer chez moi... »
+« Les Ponts du Piétinement des Cieux... je me demande si je peux atteindre le quatrième pont! Mais quoi qu'il advienne, mon temps au sein du clan Antique est terminé. Il reste encore 300 ans avant l'ouverture du Royaume des Dieux Immémoriaux. Je ne veux pas passer ce temps sur le Continent Astral Immortel, je veux rentrer chez moi... »
 
 « Je ramènerai Wan Er à la maison. » Wang Lin détourna les yeux du ciel et se dirigea vers le palais.
 
@@ -98,13 +98,13 @@ Ji Du fixa son parrain. Il sentait que ce dernier avait l'intention de partir.
 
 D'un geste de la main, il renvoya la couronne vers Ji Du. Elle se posa sur sa tête: il était désormais le véritable empereur!
 
-Avec un sourire, Wang Lin se retourna et fit un pas vers le vide. Il disparut de la cité impériale d'Ancient Shi, s'effaçant des regards de tous et des yeux de Ji Du.
+Avec un sourire, Wang Lin se retourna et fit un pas vers le vide. Il disparut de la cité impériale de Shi Antique, s'effaçant des regards de tous et des yeux de Ji Du.
 
 « Parrain! » cria Ji Du vers la direction où Wang Lin s'était volatilisé. Une profonde tristesse l'envahit face à ce départ. Il ne pouvait oublier que tout ce qu'il possédait n'était possible que grâce à Wang Lin.
 
 Wang Lin était parti.
 
-Il quitta Ancient Shi et tourna son regard vers le clan céleste, en direction de la Secte des Sept Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Antique qu'il avait quittée deux siècles plus tôt.
+Il quitta Shi Antique et tourna son regard vers le clan céleste, en direction de la Secte des Sept Dao. Après une courte réflexion, il se mit en route vers la cité impériale du Dao Antique qu'il avait quittée deux siècles plus tôt.
 
 Dans cette cité, personne à part Xuan Luo n'avait remarqué son arrivée. Dans les montagnes arrières du Temple du Dao Antique, Wang Lin vit Xuan Luo dans la demeure où il avait séjourné autrefois.
 
