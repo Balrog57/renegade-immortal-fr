@@ -72,7 +72,7 @@ L'homme à la robe noire recula promptement, le visage pâle. La destruction des
 
 Après un rire dément, il fit un pas en avant, puis s'immobilisa net. Lorsque son pied toucha le sol, un fracas retentit dans l'espace derrière lui et de nombreuses fissures apparurent.
 
-« Magnifique! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Illusoire Yin. À l'étape Corporel Yang, j'étais le premier sous l'étape Scruteur du Nirvana. Tu es digne de devenir mon opposant! »
+« Magnifique! Depuis que moi, Nangong Han, j'ai perfectionné mes lames, à part les aînés, personne à mon niveau n'a pu être mon adversaire. À l'étape Ascendant, j'étais le premier sous l'étape Yin Illusoire. À l'étape Corporel Yang, j'étais le premier sous l'étape Scruteur du Nirvana. Tu es digne de devenir mon opposant! »
 
 L'homme à la robe noire, Nangong Han, riait comme un fou tout en formant un sceau de ses mains. En un éclair, l'espace devant lui se tordit et neuf lames illusoires apparurent soudainement.
 

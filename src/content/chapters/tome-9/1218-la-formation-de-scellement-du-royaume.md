@@ -68,17 +68,17 @@ En temps normal, Tuo Sen aurait tué tout le monde. Cependant, en cet instant, s
 
 Après sa disparition, des Sens Divins arrivèrent, stupéfaits, pour inspecter les environs avant de repartir, ébranlés. Hormis quelques vieux monstres, personne ne connaissait la véritable raison de ce bouleversement de la Mer Nuageuse.
 
-Il existait un vide sous les quatre systèmes stellaires. C'était là que se trouvait la Formation de Scellement du Royaume. On pouvait pénétrer dans le Système Stellaire Ancien en perçant à cet endroit.
+Il existait un vide sous les quatre systèmes stellaires. C'était là que se trouvait la Formation de Scellement du Royaume. On pouvait pénétrer dans le Système Stellaire Antique en perçant à cet endroit.
 
 Tuo Sen apparut dans ce vide et scruta l'horizon. Son expression devint plus sombre encore. Durant tout ce temps, son Sens Divin s'était propagé partout sans parvenir à déceler l'aura de Wang Lin.
 
-« Système Stellaire Ancien... » Tuo Sen resta silencieux. Ses souvenirs n'étaient pas complets. Cependant, dans les fragments de mémoire qu'il avait obtenus, il existait quelques informations sur le Système Stellaire Ancien. Il se souvenait vaguement que Tu Si en était originaire... À cette époque, la Formation de Scellement du Royaume n'existait pas encore.
+« Système Stellaire Antique... » Tuo Sen resta silencieux. Ses souvenirs n'étaient pas complets. Cependant, dans les fragments de mémoire qu'il avait obtenus, il existait quelques informations sur le Système Stellaire Antique. Il se souvenait vaguement que Tu Si en était originaire... À cette époque, la Formation de Scellement du Royaume n'existait pas encore.
 
 Son regard semblait pouvoir transpercer la Formation de Scellement du Royaume et le Monde Extérieur. Il percevait le foyer qu'il connaissait dans ses souvenirs...
 
-Il chercha partout sans trouver l'aura de Wang Lin. La seule conclusion était que Wang Lin se trouvait dans le Système Stellaire Ancien! Les yeux de Tuo Sen devinrent glacials. Wang Lin était une proie qu'il devait dévorer, car c'était la seule façon pour lui d'atteindre la perfection!
+Il chercha partout sans trouver l'aura de Wang Lin. La seule conclusion était que Wang Lin se trouvait dans le Système Stellaire Antique! Les yeux de Tuo Sen devinrent glacials. Wang Lin était une proie qu'il devait dévorer, car c'était la seule façon pour lui d'atteindre la perfection!
 
-« Même si tu te caches dans le Système Stellaire Ancien, ce dieu te dévorera! Il n'y a aucun endroit dans ce monde où tu puisses t'échapper! » Sa main droite se serra en un poing et son corps colossal s'élança. D'innombrables ondulations apparurent dans le vide, comme si la réalité elle-même était écaillée couche après couche. Bientôt, une formation semblable à une toile d'araignée apparut sous lui!
+« Même si tu te caches dans le Système Stellaire Antique, ce dieu te dévorera! Il n'y a aucun endroit dans ce monde où tu puisses t'échapper! » Sa main droite se serra en un poing et son corps colossal s'élança. D'innombrables ondulations apparurent dans le vide, comme si la réalité elle-même était écaillée couche après couche. Bientôt, une formation semblable à une toile d'araignée apparut sous lui!
 
 Au moment où cette formation de toile d'araignée se manifesta dans le vide, Tuo Sen frappa de son poing droit. C'était le coup d'un véritable dieu ancien, le poing d'un dieu royal ancien!
 

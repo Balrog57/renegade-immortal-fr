@@ -16,11 +16,11 @@ La chaleur circulait dans tout son organisme, comme si une vie nouvelle avait é
 
 À l'instant même où son énergie originelle progressait, le feu intérieur se déchaîna et pulsa en lui. Son corps commença même à brûler, et une chaleur intense s'échappait de ses pores. C'était une scène absolument stupéfiante!
 
-Ce feu devint de plus en plus ardent, faisant apparaître la marque du Vermillion Bird dans son œil gauche. Un feu bleu jaillit de sa pupille et fusionna avec la chaleur qui bouillonnait en lui.
+Ce feu devint de plus en plus ardent, faisant apparaître la marque du Oiseau Vermillon dans son œil gauche. Un feu bleu jaillit de sa pupille et fusionna avec la chaleur qui bouillonnait en lui.
 
-Un cri de Vermillion Bird résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
+Un cri de Oiseau Vermillon résonna alors qu'un oiseau de feu bleu s'envolait de son œil gauche. Il s'enroula autour de Wang Lin, semblant trouver une immense sérénité dans cette union.
 
-Ce ne fut que quinze minutes plus tard que le Vermillion Bird retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
+Ce ne fut que quinze minutes plus tard que le Oiseau Vermillon retourna dans l'œil gauche de Wang Lin et que la chaleur interne commença à refluer.
 
 Wang Lin prit une profonde inspiration et s'exclama: « Quel vin excellent! »
 
@@ -28,7 +28,7 @@ Le vieil homme lança un regard bienveillant à Wang Lin avant de se retourner p
 
 « N'importe qui n'oserait pas boire ce vin; même des cultivateurs du troisième niveau hésiteraient. Pourtant, tu l'as avalé d'un trait. »
 
-« Quel genre de vin est-ce? » demanda Wang Lin en se léchant les lèvres. Cette seule gorgée avait déjà renforcé l'essence de feu en lui. Ce qui l'excitait davantage était que ce vin ait permis à son Vermillion Bird de se rapprocher de son prochain éveil!
+« Quel genre de vin est-ce? » demanda Wang Lin en se léchant les lèvres. Cette seule gorgée avait déjà renforcé l'essence de feu en lui. Ce qui l'excitait davantage était que ce vin ait permis à son Oiseau Vermillon de se rapprocher de son prochain éveil!
 
 « Ce n'est pas du vin, mais du sang », répondit le vieil homme avec un sourire d'une extrême bonté.
 
@@ -74,19 +74,19 @@ Le vieil homme agita sa canne pour maintenir le dragon en place. La bête, qui a
 
 « Malheur à toi, petit dragon de feu! Comment oses-tu fuir ce vieil homme?! » rugit le vieil homme en bondissant dans les airs. Il atterrit sur la tête du dragon hurlant et frappa sans pitié de sa main!
 
-À l'instant où le vieil homme leva la main gauche, l'esprit de Wang Lin vacilla et ses pupilles se contractèrent de stupeur. Il vit distinctement quelque chose apparaître derrière l'homme... un gigantesque Vermillion Bird!
+À l'instant où le vieil homme leva la main gauche, l'esprit de Wang Lin vacilla et ses pupilles se contractèrent de stupeur. Il vit distinctement quelque chose apparaître derrière l'homme... un gigantesque Oiseau Vermillon!
 
-Sa taille surpassait de loin celle du Vermillion Bird de Wang Lin et il couvrait le ciel tout entier. Une aura antique émanait de ce géant, enveloppé de flammes éthérées!
+Sa taille surpassait de loin celle du Oiseau Vermillon de Wang Lin et il couvrait le ciel tout entier. Une aura antique émanait de ce géant, enveloppé de flammes éthérées!
 
 Le Feu Éthéré!
 
 Dès son apparition, l'oiseau poussa un cri qui fit trembler les cieux!
 
-Wang Lin était pétrifié par la scène. La taille du Vermillion Bird, l'intensité des flammes et sa puissance surpassaient de loin celles de l'ancien Empereur Divin Vermillion Bird. Il n'y avait aucune comparaison possible!
+Wang Lin était pétrifié par la scène. La taille du Oiseau Vermillon, l'intensité des flammes et sa puissance surpassaient de loin celles de l'ancien Empereur Divin Oiseau Vermillon. Il n'y avait aucune comparaison possible!
 
 C'était la différence entre un jeune oiseau et son ancêtre primordial!
 
-La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Vermillion Bird bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré du Vermillion Bird!
+La main gauche du vieil homme s'abattit brusquement; au moment de l'impact, le gigantesque Oiseau Vermillon bougea pour fusionner avec sa main. En un instant, l'oiseau devint un avec le bras de l'homme. De loin, on ne distinguait plus la main du vieil homme, mais seulement le bec acéré du Oiseau Vermillon!
 
 En un clin d'œil, ce bec perça une protubérance sur le crâne du dragon, projetant un jet de sang salvateur.
 
@@ -104,19 +104,19 @@ En voyant l'exploit de Wang Lin, le vieil homme sourit. Il sauta de la tête du 
 
 Le dragon, furieux, n'osa pas rugir. Utilisant l'onde de choc du coup de pied du vieil homme, il plongea rapidement dans les profondeurs et disparut sans laisser de trace.
 
-« Bien! Tu es bel et bien un membre de mon Clan du Vermillion Bird, et tu sais que le gaspillage est une honte! » dit le vieil homme en atterrissant aux côtés de Wang Lin.
+« Bien! Tu es bel et bien un membre de mon Clan du Oiseau Vermillon, et tu sais que le gaspillage est une honte! » dit le vieil homme en atterrissant aux côtés de Wang Lin.
 
 Après avoir dévoré le sang de dragon, le feu intérieur de Wang Lin devint monstrueux et son visage s'empourpra. Sans prendre le temps de saluer le vieil homme, il s'assit pour faire circuler son énergie originelle.
 
 Le vieil homme resta debout près de lui et l'examina, affichant un sourire satisfait.
 
-« Je pensais ne plus jamais revoir un cadet... L'éveil du Vermillion Bird de cet enfant n'est qu'à un pas du Feu Éthéré; ce petit n'est pas ordinaire! »
+« Je pensais ne plus jamais revoir un cadet... L'éveil du Oiseau Vermillon de cet enfant n'est qu'à un pas du Feu Éthéré; ce petit n'est pas ordinaire! »
 
-« Il devrait être le sixième Empereur Divin Vermillion Bird de mon clan... Pas mal, vraiment pas mal! » Plus il l'observait, plus sa joie grandissait. Il s'accroupit même pour lui pincer les joues, puis tapota soigneusement le corps de Wang Lin.
+« Il devrait être le sixième Empereur Divin Oiseau Vermillon de mon clan... Pas mal, vraiment pas mal! » Plus il l'observait, plus sa joie grandissait. Il s'accroupit même pour lui pincer les joues, puis tapota soigneusement le corps de Wang Lin.
 
-« Oui, c'est définitivement un membre de mon Clan du Vermillion Bird et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
+« Oui, c'est définitivement un membre de mon Clan du Oiseau Vermillon et non une création de notre ennemi. Cependant, le corps de ce petit est en fait celui d'un Dieu Ancien... Haha, pas mal, pas mal du tout! » L'excitation brillait dans les yeux du vieil homme.
 
-« Le quatrième Vermillion Bird était trop frivole et ne pouvait cultiver mon sortilège. Le sixième semble plutôt froid et devrait être capable de... » Alors qu'il continuait à tâter le corps de Wang Lin, il s'interrompit brusquement.
+« Le quatrième Oiseau Vermillon était trop frivole et ne pouvait cultiver mon sortilège. Le sixième semble plutôt froid et devrait être capable de... » Alors qu'il continuait à tâter le corps de Wang Lin, il s'interrompit brusquement.
 
 « Le Yang de son âme originelle a été brisé... Je... » La haine se lut dans les yeux du vieil homme. Il cessa ses manipulations et s'assit lourdement.
 

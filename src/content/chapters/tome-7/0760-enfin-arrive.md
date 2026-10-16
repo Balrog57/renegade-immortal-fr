@@ -54,7 +54,7 @@ Par conséquent, Wang Lin arborait naturellement une aura arrogante durant son v
 
 « Souverain Sanguin! Je t'attends! » Les yeux de Wang Lin étaient d'une froideur extrême. Il était venu pour tuer!
 
-Son intention meurtrière avait atteint le niveau Illusoire Yin grâce à ce corps actuel. Même s'il croisait d'autres cultivateurs, ceux-ci hésiteraient et chercheraient à l'éviter.
+Son intention meurtrière avait atteint le niveau Yin Illusoire grâce à ce corps actuel. Même s'il croisait d'autres cultivateurs, ceux-ci hésiteraient et chercheraient à l'éviter.
 
 Wang Lin ne cherchait même pas de trésors, volant rapidement de fragment en fragment. À chaque arrivée sur un nouveau fragment, son sens divin se déployait avec frénésie.
 
@@ -62,7 +62,7 @@ Le temps s'écoula lentement. En un clin d'œil, cinq mois passèrent. Wang Lin 
 
 La puissance de ce corps et le sort lié à son sens divin avaient porté sa force à son apogée. En cinq mois, il avait acquis une certaine réputation parmi les cultivateurs des environs.
 
-En particulier, la puissance de ce corps capable de rivaliser avec des trésors magiques incitait de nombreux cultivateurs Ascendants à l'éviter de peur de le croiser. Même les cultivateurs Illusoire Yin fronçaient les sourcils et s'écartaient de son chemin.
+En particulier, la puissance de ce corps capable de rivaliser avec des trésors magiques incitait de nombreux cultivateurs Ascendants à l'éviter de peur de le croiser. Même les cultivateurs Yin Illusoire fronçaient les sourcils et s'écartaient de son chemin.
 
 Pourtant, Wang Lin ne progressait pas aveuglément. Il gravitait autour des fragments proches de celui où reposait son corps. Cette stratégie limitait ses mouvements mais présentait deux avantages.
 
@@ -94,7 +94,7 @@ Juste avant que le Souverain Sanguin ne pose le pied sur le fragment, Wang Lin s
 
 Même le fragment se mit à trembler.
 
-Tous les cultivateurs de ce fragment ressentirent immédiatement cette secousse au plus profond de leur âme, quel que soit leur niveau de culture. Même les cultivateurs Illusoire Yin et Corporel Yang n'y échappèrent pas...
+Tous les cultivateurs de ce fragment ressentirent immédiatement cette secousse au plus profond de leur âme, quel que soit leur niveau de culture. Même les cultivateurs Yin Illusoire et Corporel Yang n'y échappèrent pas...
 
 La disparité des niveaux de culture rendait toute résistance impossible; c'était comme si la puissance même des cieux descendait sur eux.
 

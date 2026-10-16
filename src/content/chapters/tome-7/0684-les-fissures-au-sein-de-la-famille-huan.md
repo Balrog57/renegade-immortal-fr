@@ -114,7 +114,7 @@ Il s'agissait du chef de la famille Huan, Huan Fengshen!
 
 Huan Wuqing demanda d'un ton bas: « Fengshen, es-tu également contre moi? »
 
-« Fengshen n'ose pas, Ancêtre. Que cet homme provienne ou non du Temple Céleste du Tonnerre, il possède une Bête du Tonnerre et une marionnette Illusoire Yin. Je me demande, Ancêtre, est-ce quelqu'un avec qui nous devrions nouer des liens, ou devons-nous nous battre à mort contre lui? »
+« Fengshen n'ose pas, Ancêtre. Que cet homme provienne ou non du Temple Céleste du Tonnerre, il possède une Bête du Tonnerre et une marionnette Yin Illusoire. Je me demande, Ancêtre, est-ce quelqu'un avec qui nous devrions nouer des liens, ou devons-nous nous battre à mort contre lui? »
 
 Les yeux de Huan Fengshen brillaient d'une lueur vive. Il regarda l'ancêtre sans fléchir et poursuivit: « Devenir son allié ajouterait un ami à notre famille, mais quel bénéfice tirerions-nous d'un combat à mort? Tout cela pour protéger une membre étrangère? Sa culture a été artificiellement portée au stade tardif de l'Ascendant, mais son domaine ne suit pas. Même si elle franchit un nouveau palier dans sa vie, elle butera au stade Yin et Yang. Je comprends vos intentions, Ancêtre, mais pour satisfaire votre seul désir, le risque est peut-être excessif! »
 

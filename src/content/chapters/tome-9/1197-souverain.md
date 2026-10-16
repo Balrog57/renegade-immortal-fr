@@ -16,7 +16,7 @@ Wang Lin tenait le jade tandis que son sens divin l'explorait attentivement.
 
 « Combien de temps s'est-il écoulé? Cela doit faire au moins 30 ans. Les Éveillés ont attaqué une fois de plus, et j'ai clairement vu l'Oncle-Maître parmi eux… Ils ont emporté le Cinquième Frère et le Sixième Frère… »
 
-« J'ai enfin maîtrisé la Restriction Temporelle. Avec les restes de ma secte, nous avons instauré une immense Restriction Temporelle dans une vallée. Le Neuvième Frère a sacrifié sa vie pour renforcer l'effet temporel de cette restriction. Avant de mourir, il m'a fait promettre de ramener ses restes à la Secte Heaven Breaking… Je l'ai promis, mais en serai-je capable? »
+« J'ai enfin maîtrisé la Restriction Temporelle. Avec les restes de ma secte, nous avons instauré une immense Restriction Temporelle dans une vallée. Le Neuvième Frère a sacrifié sa vie pour renforcer l'effet temporel de cette restriction. Avant de mourir, il m'a fait promettre de ramener ses restes à la Secte Brise-Ciel… Je l'ai promis, mais en serai-je capable? »
 
 « La Restriction Temporelle a protégé la vallée, et la vallée est devenue ma demeure… Cependant, je n'y ai trouvé aucune chaleur humaine. Je n'ai vu que des visages familiers devenir peu à peu étrangers. »
 
@@ -78,9 +78,9 @@ Après un long moment, il soupira et regarda le squelette de Sima Mo avec une ex
 
 S'il n'était pas devenu fou, cela signifiait que l'idée liée au Souverain avait réussi!
 
-« Je ne pensais pas que ce serait la faille spatiale que la Secte Heaven Breaking avait découverte autrefois… C'est aussi là qu'est apparue la recette de la pilule d'os de bête! Pourtant, comment l'os de bête et le jade ont-ils pu quitter cet endroit… Se pourrait-il que le Seizième Frère ait réussi à sortir d'ici, faisant ainsi réapparaître le jade et l'os dans la Mer des Nuages… »
+« Je ne pensais pas que ce serait la faille spatiale que la Secte Brise-Ciel avait découverte autrefois… C'est aussi là qu'est apparue la recette de la pilule d'os de bête! Pourtant, comment l'os de bête et le jade ont-ils pu quitter cet endroit… Se pourrait-il que le Seizième Frère ait réussi à sortir d'ici, faisant ainsi réapparaître le jade et l'os dans la Mer des Nuages… »
 
-« Et puis, il y a cette personne mentionnée dans le jade… Qui est-elle? Selon Sima Mo, la Secte Heaven Breaking ignorait l'existence de ce lieu à l'époque. Ils sont venus ici à cause des paroles de cet homme… Et des centaines d'années plus tard, Sima Mo a vu cet être mystérieux une nouvelle fois! » Wang Lin se frotta les tempes. Plus il en apprenait, plus il s'enfonçait dans la confusion.
+« Et puis, il y a cette personne mentionnée dans le jade… Qui est-elle? Selon Sima Mo, la Secte Brise-Ciel ignorait l'existence de ce lieu à l'époque. Ils sont venus ici à cause des paroles de cet homme… Et des centaines d'années plus tard, Sima Mo a vu cet être mystérieux une nouvelle fois! » Wang Lin se frotta les tempes. Plus il en apprenait, plus il s'enfonçait dans la confusion.
 
 Il leva la tête vers les neuf grottes scellées par la roche. Wang Lin s'approcha de la première et observa le rocher. Ses yeux s'illuminèrent; il le contempla longuement avant de poser sa main droite dessus. Son énergie originelle pénétra doucement la pierre.
 

@@ -22,17 +22,17 @@ Dans le ciel, le Maître Yan Leizi rit: « Qui a dit qu'il n'y aurait pas d'âme
 
 À l'intérieur de cette lumière se trouvait un miroir ancien de la taille d'une paume. Il grandit instantanément pour atteindre la taille d'un homme. La surface du miroir se tordit et une âme originelle s'en échappa. Dès son apparition, une énergie originelle dense se propagea.
 
-« L'âme originelle d'un cultivateur de l'Illusoire Yin! » Les yeux de Wang Lin se rétrécirent.
+« L'âme originelle d'un cultivateur de l'Yin Illusoire! » Les yeux de Wang Lin se rétrécirent.
 
 Le jeune homme maléfique observa l'âme originelle et dit lentement: « Rang 4 Céleste Supérieur. » Il ne se pressait pas, voulant voir comment ce soi-disant Maître Yan Leizi allait affiner le Royaume Céleste du Tonnerre. De plus, grâce à sa culture, il pouvait déceler que l'être dans le ciel n'était pas le corps originel du Maître Yan Leizi, mais un avatar.
 
-L'âme originelle du cultivateur de l'Illusoire Yin semblait confuse. Dès qu'elle apparut, le Maître Yan Leizi cria: « Quarantième-neuvième âme, va! »
+L'âme originelle du cultivateur de l'Yin Illusoire semblait confuse. Dès qu'elle apparut, le Maître Yan Leizi cria: « Quarantième-neuvième âme, va! »
 
 À ces mots, les yeux de l'âme originelle brillèrent intensément, comme si elle s'était enflammée elle-même. Elle joignit les mains devant le Maître Yan Leizi avant de disparaître en un clin d'œil. Par un procédé inconnu de Wang Lin, elle atteignit le quarante-neuvième fragment à la lisière du vortex et fusionna avec lui.
 
 Le quarantième-neuvième fragment sembla soudainement prendre vie, animé d'un esprit.
 
-Ce ne fut que le début. Sous les yeux de Wang Lin, des ondulations se succédèrent sur le miroir ancien. Tandis que le Maître Yan Leizi lançait ses appels, ces âmes originelles de cultivateurs de l'Illusoire Yin disparurent dans les divers fragments. Bientôt, vingt-huit des quarante-neuf fragments en rotation rapide contenaient une âme de trésor.
+Ce ne fut que le début. Sous les yeux de Wang Lin, des ondulations se succédèrent sur le miroir ancien. Tandis que le Maître Yan Leizi lançait ses appels, ces âmes originelles de cultivateurs de l'Yin Illusoire disparurent dans les divers fragments. Bientôt, vingt-huit des quarante-neuf fragments en rotation rapide contenaient une âme de trésor.
 
 « Âme de trésor, apparais encore une fois! » Les yeux du Maître Yan Leizi étaient empreints d'excitation alors que la surface du miroir se tordait violemment pour libérer une autre âme originelle. L'énergie émanant de celle-ci était manifestement plus puissante que les vingt-huit précédentes. Wang Lin eut un haut-le-cœur en reconnaissant l'âme originelle d'un cultivateur du Corporel Yang.
 

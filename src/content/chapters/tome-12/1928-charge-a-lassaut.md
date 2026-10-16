@@ -12,7 +12,7 @@ Neuf planètes semblèrent changer de trajectoire sous l'effet d'une force myst�
 
 Ce changement soudain contra Wang Lin à quitter sa position actuelle, mais les neuf planètes modifièrent leur course pour converger vers lui.
 
-« Serait-ce le premier niveau de l'Épreuve de l'Empyrean? » Les yeux de Wang Lin s'illuminèrent et il cessa d'esquiver. Il fit un pas en avant vers les planètes approchantes, leva la main droite et lança un coup de poing!
+« Serait-ce le premier niveau de l'Épreuve de l'Empyréen? » Les yeux de Wang Lin s'illuminèrent et il cessa d'esquiver. Il fit un pas en avant vers les planètes approchantes, leva la main droite et lança un coup de poing!
 
 « Invoquer le Vent! » Ce coup de poing intégrait neuf sorts « Invoquer le Vent ». L'impact engendra une tempête telle qu'on aurait dit qu'un véritable dragon noir percutait la première planète.
 
@@ -110,7 +110,7 @@ La luminosité était monstrueuse. En enveloppant la zone, elle fit briller les 
 
 Wang Lin jaillit du troisième palais et leva les yeux vers le quatrième. Sous le regard de tous, il s'élança sans la moindre hésitation vers le quatrième palais.
 
-« Cette Épreuve de l'Empyrean exige que toutes les planètes soient détruites simultanément. Si je les détruis une par une, c'est un échec! » Wang Lin restait serein; les trois premiers niveaux n'avaient pas été un véritable défi pour lui.
+« Cette Épreuve de l'Empyréen exige que toutes les planètes soient détruites simultanément. Si je les détruis une par une, c'est un échec! » Wang Lin restait serein; les trois premiers niveaux n'avaient pas été un véritable défi pour lui.
 
 En un éclair, il disparut dans le quatrième palais.
 

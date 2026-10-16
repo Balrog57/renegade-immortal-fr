@@ -1,12 +1,12 @@
 ---
 n: 1997
-title: "Le Soleil du Grand Empyrée!"
+title: "Le Soleil du Grand Empyréen!"
 book: 12
 bookTitle: Tenth Sun of the Immortal Astral Continent
 en: "Chapter 1997 - Sun of the Grand Empyrée!"
 slug: le-soleil-du-grand-empyrean
 ---
-Chapitre 1997 - Le Soleil du Grand Empyrée!
+Chapitre 1997 - Le Soleil du Grand Empyréen!
 
 Hai Zi réfléchit silencieusement et laissa échapper un soupir. Elle n'attaqua pas et ferma les yeux.
 
@@ -128,6 +128,6 @@ C'était sa forme la plus puissante après son avatar dans le vide! C'était son
 Derrière lui apparut la silhouette immense et étrange d'un soleil noir et blanc. Ce soleil était vaporeux, n'étant qu'un contour, mais il fit trembler les cœurs de Hai Zi, Jiu Di, Gemini et même de l'en fuite Dao Yi!
 
 « Ceci... ceci est... »
-« Ce n'est pas un sortilège, c'est... le soleil du Grand Empyrée! »
-« C'est impossible. Il n'est jamais allé dans le Royaume des Dieux Immémoriaux, comment pourrait-il posséder un soleil du Grand Empyrée?! Bien qu'il soit flou, c'est bel et bien la silhouette d'un soleil du Grand Empyrée! »
-« Il... il a réellement utilisé sa propre puissance pour condenser de force un soleil du Grand Empyrée! Cet homme... cet homme... »
+« Ce n'est pas un sortilège, c'est... le soleil du Grand Empyréen! »
+« C'est impossible. Il n'est jamais allé dans le Royaume des Dieux Immémoriaux, comment pourrait-il posséder un soleil du Grand Empyréen?! Bien qu'il soit flou, c'est bel et bien la silhouette d'un soleil du Grand Empyréen! »
+« Il... il a réellement utilisé sa propre puissance pour condenser de force un soleil du Grand Empyréen! Cet homme... cet homme... »

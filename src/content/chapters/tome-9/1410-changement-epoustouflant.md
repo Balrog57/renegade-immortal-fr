@@ -68,7 +68,7 @@ La Grand Maître Yun Luo se détendit également. Les blessures sur ses doigts a
 
 « Père... » Li Qianmei mordilla sa lèvre inférieure en se tournant vers son géniteur. Ses yeux étaient empreints de confusion, mais aussi de douleur et de supplication.
 
-Le Dao Maître Blue Dream soupira doucement et dit avec calme: « Je vais l'aider, sois rassurée. Cependant, j'ai le sentiment qu'il parviendra à surmonter cette calamité. »
+Le Maître du Dao Rêve Bleu soupira doucement et dit avec calme: « Je vais l'aider, sois rassurée. Cependant, j'ai le sentiment qu'il parviendra à surmonter cette calamité. »
 
 Dans l'Essai Humain, le corps de Wang Lin émettait toujours une lueur rouge et ses yeux brillaient d'une lutte acharnée contre le destin!
 

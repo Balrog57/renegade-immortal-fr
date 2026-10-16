@@ -86,7 +86,7 @@ Ces trois ombres restèrent là, fixant intensément Wang Lin qui avançait.
 
 « Lorsque j'étais dans le monde des cavernes, mes 27 étoiles n'étaient pas complètes; elles se sont progressivement stabilisées durant mes centaines d'années au sein du clan céleste, mais la puissance que je peux déployer est bien supérieure à celle de cet homme. »
 
-« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Seven-Colored, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Exalté Empyréen. Les chances qu'il soit un Ascendant Empyrean sont faibles, sans quoi il ne serait pas mort. »
+« C'est peut-être là toute la différence entre les lignées. Le niveau de culture de Ye Mo était manifestement supérieur à celui de Seven-Colored, c'est pourquoi ce dernier a eu besoin de l'aide de Li Guang. Selon ma compréhension de la cité ancestrale, le niveau de Li Guang devrait être celui d'un Exalté Empyréen. Les chances qu'il soit un Ascendant Empyréen sont faibles, sans quoi il ne serait pas mort. »
 
 « De ce point de vue, Ye Mo doit posséder une puissance similaire à celle d'un Exalté Empyréen. Il avait intégré ses 27 étoiles et passé les trois épreuves. Par conséquent, ce membre du clan Ancient est comparable aux Exaltés Empyréens. »
 
@@ -106,7 +106,7 @@ Le vieil homme sourit amèrement et hocha la tête.
 
 Wang Lin demanda avec désinvolture: « C'est assez intrigant. En a-t-on déjà choisi une? »
 
-« Cette fois, sous la conduite du prince Ji Du, nous avons parcouru six pays et sélectionné trois femmes. La dernière se trouve à Blackstone City. Après cela, nous retournerons à l'Ancient Dao. » Le vieil homme répondit promptement, n'osant rien lui cacher. Il frappa rapidement le diable ancien sous ses pieds.
+« Cette fois, sous la conduite du prince Ji Du, nous avons parcouru six pays et sélectionné trois femmes. La dernière se trouve à Ville de la Pierre Noire. Après cela, nous retournerons à l'Ancient Dao. » Le vieil homme répondit promptement, n'osant rien lui cacher. Il frappa rapidement le diable ancien sous ses pieds.
 
 Le corps du diable ancien trembla et, dans un effet d'ondulation, deux magnifiques femmes en sortirent. Leurs yeux étaient emplis de peur lorsqu'elles s'inclinèrent devant Wang Lin.
 

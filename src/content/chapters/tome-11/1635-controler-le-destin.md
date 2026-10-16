@@ -14,7 +14,7 @@ slug: controler-le-destin
 
 « Ce n'est pas étonnant qu'il ait dit que quelqu'un dans sa ville natale pourrait ressusciter Li Muwan, mais que lui ne le pouvait pas. Ce n'est pas étonnant... Ce n'est pas étonnant...
 
-« Si l’Estimé Scatter Spirit peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Astral Immortel peuvent être puissants!
+« Si l’Estimé Esprit Dispersé peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Astral Immortel peuvent être puissants!
 
 « Quand je sortirai de cette grotte pour entrer dans le Continent Astral Immortel, je veux voir si je peux déclencher un bain de sang. Voir si moi, simple cultivateur né dans une grotte, je peux me hisser au-dessus de ces puissants cultivateurs du Continent Astral Immortel! » Wang Lin riait comme un fou. Il n'était pas surpris par ce qui s'était passé aujourd'hui, car il nourrissait des spéculations à ce sujet depuis un certain temps. Cependant, il ne voulait pas y croire, il refusait de l'admettre. Il s'était même menti à lui-même pour ne pas y penser.
 
@@ -94,7 +94,7 @@ L'amour entre ses parents était calme et chaleureux. Même dans la mort, ils co
 
 Son Sens Divin enveloppa doucement les destins de ses parents. Il trouva Treize, Da Tou, Zhou Yi, Qing Shuang, Qing Lin...
 
-Il trouva Maître South Cloud, Maître Hong Shan, Wang Zhuo, le vieil Empereur Divin Vermillion Bird, Dun Tian...
+Il trouva Maître South Cloud, Maître Hong Shan, Wang Zhuo, le vieil Empereur Divin Oiseau Vermillon, Dun Tian...
 
 Il trouva encore plus de monde. Il trouva son propre enfant, Wang Ping, et Zhou Ru. Il prit leurs destins afin qu'ils ne soient plus asservis par les cieux, leur permettant de s'échapper des cieux comme il l'avait fait.
 

@@ -20,11 +20,11 @@ Le troisième venait du bel homme qui mangeait une pêche. Ses yeux brillaient e
 
 L'expression de Wang Lin resta calme alors que son regard balayait le père et la fille enveloppés de lumière bleue. Une lueur de complication passa dans ses yeux, mais elle se dissipa rapidement.
 
-Wang Lin joignit les mains et dit respectueusement: « Ce junior salue le Senior Dao Maître Blue Dream. »
+Wang Lin joignit les mains et dit respectueusement: « Ce junior salue le Senior Maître du Dao Rêve Bleu. »
 
-Dao Maître Blue Dream sourit, hocha la tête et répondit: « Je t'ai vraiment sous-estimé auparavant. »
+Maître du Dao Rêve Bleu sourit, hocha la tête et répondit: « Je t'ai vraiment sous-estimé auparavant. »
 
-Le vieil Oiseau Vermillon fut surpris d'apprendre que Wang Lin connaissait Dao Maître Blue Dream. Puis son regard glissa vers Li Qianmei; il esquissa un sourire espiègle avant de passer à autre chose. Enfin, son regard se fixa sur Maître Simo.
+Le vieil Oiseau Vermillon fut surpris d'apprendre que Wang Lin connaissait Maître du Dao Rêve Bleu. Puis son regard glissa vers Li Qianmei; il esquissa un sourire espiègle avant de passer à autre chose. Enfin, son regard se fixa sur Maître Simo.
 
 « Petit gamin, qu'est-ce que tu regardes? Es-tu mécontent de ce vieil homme? Veux-tu le défier? Viens donc te battre, ce vieux va jouer avec toi! » L'Oiseau Vermillon ne possédait aucune des manières d'un aîné alors qu'il fixait Maître Simo en faisant un geste provocateur de l'index.
 
@@ -88,9 +88,9 @@ Après avoir giflé Maître Simo à plusieurs reprises, l'Oiseau Vermillon déto
 
 « S'il réussit l'épreuve, il deviendra un véritable Jeune Empereur. Faire de lui votre ennemi revient à faire de ce vieil homme votre ennemi, et des Terres Tombées votre ennemi! » L'Oiseau Vermillon joignit les mains face à l'assemblée. Il prit Wang Lin par l'épaule et désigna le bel homme.
 
-« Petit compagnon, tu connais Dao Maître Blue Dream, je ne te le présenterai donc pas. Tu vois ce jeune homme qui mange une pêche? Ne le prends pas pour un enfant, c'est en réalité un vieux monstre. Tu as peut-être déjà entendu parler de lui: il est l'un des cinq maîtres, Dao Maître Miao Yin! »
+« Petit compagnon, tu connais Maître du Dao Rêve Bleu, je ne te le présenterai donc pas. Tu vois ce jeune homme qui mange une pêche? Ne le prends pas pour un enfant, c'est en réalité un vieux monstre. Tu as peut-être déjà entendu parler de lui: il est l'un des cinq maîtres, Maître du Dao Miao Yin! »
 
-L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait déjà entendu le nom de Dao Maître Miao Yin. Il observa le jeune homme, mais ne décela aucune trace de culture; Wang Lin joignit alors les mains en signe de salut.
+L'expression de Wang Lin resta calme, mais ses pensées s'emballèrent. Il avait déjà entendu le nom de Maître du Dao Miao Yin. Il observa le jeune homme, mais ne décela aucune trace de culture; Wang Lin joignit alors les mains en signe de salut.
 
 Le bel homme rit et hocha la tête vers Wang Lin.
 

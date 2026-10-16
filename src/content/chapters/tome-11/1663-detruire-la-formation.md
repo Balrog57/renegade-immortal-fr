@@ -38,7 +38,7 @@ Cette calamité était appelée la Tribulation Arcane. Elle se divisait en neuf 
 
 Même un être aussi puissant que le Souverain n'avait traversé que trois Tribulations Arcanes et n'avait pas eu le courage d'affronter la quatrième.
 
-Le Maître Dao Blue Dream n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
+Le Maître Maître du Dao Rêve Bleu n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
 
 Au cours des dizaines de milliers d'années, de nombreux talents étaient nés dans les Royaumes Intérieur et Extérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalt!
 

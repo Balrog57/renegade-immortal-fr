@@ -44,7 +44,7 @@ Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin; il était ter
 
 Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'avança vers le Taoïste Water, prêt à asséner son second coup!
 
-À cet instant précis, le Taoïste Water essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Heaven Breaking pour détruire le Dao Cœur de Wang Lin. La Secte Fantôme ne semblait pas non plus se soucier de son offre concernant les disciples Yin et Yang et ne montrait aucun signe d'apparition. Le Taoïste Water leva les yeux et rugit:
+À cet instant précis, le Taoïste Water essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Brise-Ciel pour détruire le Dao Cœur de Wang Lin. La Secte Fantôme ne semblait pas non plus se soucier de son offre concernant les disciples Yin et Yang et ne montrait aucun signe d'apparition. Le Taoïste Water leva les yeux et rugit:
 
 « Tai Aluo!! »
 

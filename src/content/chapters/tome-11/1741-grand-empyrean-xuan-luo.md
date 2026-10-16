@@ -1,12 +1,12 @@
 ---
 n: 1741
-title: "Grand Empyrée Xuan Luo!"
+title: "Grand Empyréen Xuan Luo!"
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1741 - Grand Empyrée Xuan Luo!"
 slug: grand-empyrean-xuan-luo
 ---
-Chapitre 1741 - Grand Empyrée Xuan Luo!
+Chapitre 1741 - Grand Empyréen Xuan Luo!
 
 Wang Lin s'éleva dans les airs et atterrit sur le dos de la gigantesque Bête du Néant en deux enjambées. La Bête du Néant était restée invisible jusqu'à ce que Wang Lin l'invoque.
 
@@ -74,6 +74,6 @@ La silhouette vague agita doucement sa main droite et des grondements de tonnerr
 
 Cette scène fit trembler les jambes du vieil homme nommé Ma. Et il n'était pas le seul; Yun Yifeng était dans le même état!
 
-« Grand... Grand Empyrée... » Les lèvres du vieil homme nommé Ma tremblaient. Il n'existait qu'une seule personne capable de détruire si aisément l'armure de la Secte Gui Yi et d'exiger des comptes sur l'irrespect envers le clan du Dao Antique.
+« Grand... Grand Empyréen... » Les lèvres du vieil homme nommé Ma tremblaient. Il n'existait qu'une seule personne capable de détruire si aisément l'armure de la Secte Gui Yi et d'exiger des comptes sur l'irrespect envers le clan du Dao Antique.
 
-« Grand Empyrée Xuan Luo! » Le vieil homme nommé Ma cracha du sang et recula de quelques pas, les yeux écarquillés par une terreur monstrueuse.
+« Grand Empyréen Xuan Luo! » Le vieil homme nommé Ma cracha du sang et recula de quelques pas, les yeux écarquillés par une terreur monstrueuse.

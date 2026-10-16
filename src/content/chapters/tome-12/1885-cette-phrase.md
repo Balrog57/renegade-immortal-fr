@@ -10,9 +10,9 @@ Chapitre 1885 - Cette phrase!
 
 Le Taureau Céleste chargea vers le soleil avec une fureur déchaînée. Le niveau de culture d'Edge Cloud était très élevé grâce à l'armure spirituelle, mais après que le Taureau Céleste se fut précipité vers le soleil, son propre niveau de culture chuta considérablement. Il retomba du stade avancé de la Tribulation du Vide au stade intermédiaire.
 
-Il avait utilisé ce sort en sacrifiant le peu de temps qu'il lui restait pour porter l'armure afin de briser Sundered Night!
+Il avait utilisé ce sort en sacrifiant le peu de temps qu'il lui restait pour porter l'armure afin de briser Nuit Brisée!
 
-Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Sundered Night s'effondra, il fut projeté en arrière sur des milliers de pieds.
+Tout cela se produisit en un éclair. Le Taureau Céleste percuta violemment le soleil dans un fracas de tonnerre. Wang Lin cracha du sang; lorsque Nuit Brisée s'effondra, il fut projeté en arrière sur des milliers de pieds.
 
 Quant à Edge Cloud, il semblait avoir vieilli de milliers d'années et du sang coulait de sa bouche alors qu'il reculait. Cependant, comment Wang Lin pouvait-il le laisser s'échapper? Ignorant ses blessures, il se précipita vers Edge Cloud. Il comptait profiter de la dissipation de l'armure spirituelle pour l'exterminer.
 
@@ -78,7 +78,7 @@ Le cœur de Wang Lin trembla et il referma sa main. Sa divination était trouble
 
 « La question de la récompense a ses propres raisons. Ce vieil homme ne changera pas. Si Wang Lin n'accepte pas rapidement, voici la preuve que ce vieil homme part maintenant! »
 
-Cette phrase provenait des cheveux que l'Ancêtre Vert Taureau avait laissés au maître de la Secte Gui Yi à l'intention de Wang Lin.
+Cette phrase provenait des cheveux que l'Ancêtre Taureau Vert avait laissés au maître de la Secte Gui Yi à l'intention de Wang Lin.
 
 Wang Lin médita attentivement ces mots. L'Œil de l'Âme n'avait révélé qu'un flou, et seule cette phrase était apparue. Il devait y avoir un sens caché!
 
@@ -88,11 +88,11 @@ Wang Lin répéta la phrase plusieurs fois, puis son corps fut soudain secoué p
 
 « Les derniers mots de chaque segment sont: là, changer, rapidement, partir! »
 « Il y a un changement, partez rapidement! »
-« Quelque chose a changé, partez! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Vert Taureau pour ordonner à Wang Lin de fuir sans tarder!
+« Quelque chose a changé, partez! » Wang Lin prit une profonde inspiration. Cette phrase était un avertissement secret. Quelle que soit la manière dont on l'interprétait, c'était le moyen utilisé par l'Ancêtre Taureau Vert pour ordonner à Wang Lin de fuir sans tarder!
 
-« Même avec le niveau de culture de l'Ancêtre Vert Taureau, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
+« Même avec le niveau de culture de l'Ancêtre Taureau Vert, il a dû passer par cette périphrase. Il craignait même que je ne comprenne pas et a collaboré avec le maître de la Secte Gui Yi pour m'offrir une récompense injuste afin de me pousser hors du Continent du Taureau Céleste… »
 
-« Une fois parti, cela signifie que je ne pourrai plus rester sur le Continent du Taureau Céleste et que je devrai m'en éloigner au plus vite… L'Ancêtre Vert Taureau veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent du Taureau Céleste, et que c'était là la cause du revirement soudain de la Grande Secte de l'Âme et de la Secte Gui Yi.
+« Une fois parti, cela signifie que je ne pourrai plus rester sur le Continent du Taureau Céleste et que je devrai m'en éloigner au plus vite… L'Ancêtre Taureau Vert veut que je quitte ce continent le plus rapidement possible… » Wang Lin réfléchit en silence. Il sentait qu'un immense mystère pesait sur le Continent du Taureau Céleste, et que c'était là la cause du revirement soudain de la Grande Secte de l'Âme et de la Secte Gui Yi.
 
 De la même manière, Wang Lin soupçonnait que ce mystère était probablement lié au Continent du Démon Vert. Il avait toujours douté de la véritable raison pour laquelle les deux continents s'étaient lancés dans la guerre...
 
@@ -118,8 +118,8 @@ Wang Lin fronça les sourcils et apparut. Il regarda Du Qing, qu'il n'avait pas 
 
 « Qui vous a dit de venir ici? »
 
-« Ancien Wang, c'est l'Ancêtre Vert Taureau de la Grande Secte de l'Âme qui m'a chargé il y a quelques mois d'arriver ici il y a trois jours pour vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
+« Ancien Wang, c'est l'Ancêtre Taureau Vert de la Grande Secte de l'Âme qui m'a chargé il y a quelques mois d'arriver ici il y a trois jours pour vous remettre quelque chose. » Du Qing atterrit rapidement devant Wang Lin et tendit la main droite. Une pierre noire apparut dans sa paume.
 
-Cette pierre semblait tout à fait ordinaire. Du Qing avait passé tout son voyage à chercher des indices, sans rien trouver. Pourtant, se souvenant du sérieux de l'expression de l'Ancêtre Vert Taureau, il était convaincu qu'il s'agissait d'un trésor.
+Cette pierre semblait tout à fait ordinaire. Du Qing avait passé tout son voyage à chercher des indices, sans rien trouver. Pourtant, se souvenant du sérieux de l'expression de l'Ancêtre Taureau Vert, il était convaincu qu'il s'agissait d'un trésor.
 
 Les yeux de Wang Lin s'illuminèrent lorsqu'il saisit la pierre noire et l'examina. Ses pupilles se rétractèrent: il percevait en elle l'aura de l'Œil de l'Âme.

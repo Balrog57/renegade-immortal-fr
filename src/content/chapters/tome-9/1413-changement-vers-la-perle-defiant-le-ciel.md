@@ -42,7 +42,7 @@ Dans cette vision, une silhouette indistincte était entourée d'une perle. Derr
 
 L'ensemble du Système Stellaire Antique était teinté de rouge sang!
 
-Elle vit la chair du Dao Maître Miao Yin s'effondrer et son âme originelle être détruite. Elle vit également les divers cultivateurs de la troisième étape du Système Stellaire Antique mourir tragiquement.
+Elle vit la chair du Maître du Dao Miao Yin s'effondrer et son âme originelle être détruite. Elle vit également les divers cultivateurs de la troisième étape du Système Stellaire Antique mourir tragiquement.
 
 Elle vit aussi l'effondrement de la Formation du Royaume Scellé!
 
@@ -54,9 +54,9 @@ Ce regard devint son cauchemar!
 
 Le Grand Maître Yun Luo cracha de nouveau du sang et recula de plusieurs centaines de pieds. Elle n'avait jamais ressenti une telle terreur auparavant.
 
-Le Dao Maître Miao Yin bondit également, dissipant le nuage sous ses pieds. Il saisit son éventail et, alors que son sens divin se déployait, son expression changea instantanément.
+Le Maître du Dao Miao Yin bondit également, dissipant le nuage sous ses pieds. Il saisit son éventail et, alors que son sens divin se déployait, son expression changea instantanément.
 
-Il n'était pas le seul; les yeux du Dao Maître Blue Dream se rétrécirent également. D'un geste de la main droite, il enveloppa sa fille d'une lumière bleue, son regard rivé sur le ciel déjà chaotique.
+Il n'était pas le seul; les yeux du Maître du Dao Rêve Bleu se rétrécirent également. D'un geste de la main droite, il enveloppa sa fille d'une lumière bleue, son regard rivé sur le ciel déjà chaotique.
 
 À cet instant, le ciel était saturé de brouillard et d'une force magnétique infinie! Le brouillard magnétique entourant la planète descendit soudainement!
 
@@ -86,7 +86,7 @@ Quant à la pâle Grand Maître Yun Luo, lorsqu'elle vit le brouillard magnétiq
 
 « Serait-ce... serait-il possible que cette silhouette floue soit lui!?! »
 
-Le Dao Maître Miao Yin fixait également l'encens terrestre. Son esprit tremblait et il rugit intérieurement: « La Perle Défiant le Ciel... c'est sans aucun doute le pouvoir de la Perle Défiant le Ciel!!! »
+Le Maître du Dao Miao Yin fixait également l'encens terrestre. Son esprit tremblait et il rugit intérieurement: « La Perle Défiant le Ciel... c'est sans aucun doute le pouvoir de la Perle Défiant le Ciel!!! »
 
 À l'intérieur de l'encens terrestre, Wang Lin était au moment crucial de la transformation de son feu en Feu Éthéré. Cependant, la Perle Défiant le Ciel, nichée en lui, entra soudainement en éruption d'énergie primordiale.
 

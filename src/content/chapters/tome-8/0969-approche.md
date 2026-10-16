@@ -66,6 +66,6 @@ Au sommet de cette tour siégeait le Saint de l'Épée, Ling Tianhou. Les quatre
 
 « Intéressant! Très intéressant! » Ling Tianhou ouvrit soudainement les yeux, laissant apparaître une lueur de froideur. Un sourire étira ses lèvres.
 
-« Combien de fois le maître a-t-il trahi son disciple? Ce vieil homme adore observer ces moments de l'All-Voyant... Cependant, ce Wang Lin est un membre de la Série Vermillion Bird. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
+« Combien de fois le maître a-t-il trahi son disciple? Ce vieil homme adore observer ces moments de l'All-Voyant... Cependant, ce Wang Lin est un membre de la Série Oiseau Vermillon. Même les Anciens de l'Alliance doivent réfléchir à deux fois avant d'agir contre un membre de cette série. Après tout, nul ne souhaite provoquer l'ancien souverain du Système Stellaire du Vide Brillant: les Quatre Sectes Divines! »
 
 « Peu importe. Wang Lin, si tu peux résister à un seul sort sans mourir, ce vieil homme viendra à ton aide! » Ling Tianhou sourit. Sa passion favorite consistait à causer des ennuis à l'All-Voyant.

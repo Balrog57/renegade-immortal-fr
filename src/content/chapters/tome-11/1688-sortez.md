@@ -56,13 +56,13 @@ Ces dizaines de Célestes connaissaient parfaitement cette aura. À son appariti
 
 Le firmament se distordit et une silhouette blanche apparut. Cette silhouette était celle de Wang Lin! Ce jade contenait un fragment de son Sens Divin. Bien qu'il ne s'agisse que d'une illusion, son regard glacial se propagea.
 
-« Vermillion Bird, Black Tortoise, Azure Dragon, White Tiger... est-ce là votre prétendu accord? » Les yeux de Wang Lin fixaient froidement les dizaines de Célestes avant qu'il n'agite ses manches.
+« Oiseau Vermillon, Tortue Noire, Dragon Azure, Tigre Blanc... est-ce là votre prétendu accord? » Les yeux de Wang Lin fixaient froidement les dizaines de Célestes avant qu'il n'agite ses manches.
 
 « Sortez d'ici immédiatement! » rugit-il.
 
 Avec ce rugissement, une intention meurtrière fulgurante se propagea, réveillant les souvenirs traumatiques de ces dizaines de Célestes. Ils poussèrent des cris et leurs visages pâlirent tandis qu'ils reculaient précipitamment. En un clin d'œil, ils quittèrent le nouveau Royaume Céleste.
 
-À l'extérieur du nouveau Royaume Céleste, parmi les douzaines de Célestes qui s'étaient retirés, se trouvait un vieil homme: l'Azure Dragon. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
+À l'extérieur du nouveau Royaume Céleste, parmi les douzaines de Célestes qui s'étaient retirés, se trouvait un vieil homme: l'Dragon Azure. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
 
 « Ce vieux n'a pas été assez strict et est arrivé trop tard. J'espère que, cher Compagnon Cultivateur, vous nous pardonnerez. Ce vieux vous donnera une explication! Heureusement, il n'y a eu aucune victime; alors, cher Compagnon, ne soyez pas en colère... Notre accord tient toujours. Nous, du Royaume Céleste Antique, ne tuerons pas un seul cultivateur du Royaume Intérieur! »
 

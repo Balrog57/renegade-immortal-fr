@@ -32,7 +32,7 @@ Il y a 50 ans, Wang Lin avait revêtu son armure d'âme et avait attaqué avec 9
 
 Même le Sens Divin du Grand Empyréen Dao Yi avait dû intervenir pour repousser le coup dévastateur de Wang Lin!
 
-Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années et avait pris le contrôle total de sa puissance. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyrés. Même face à l'ancêtre de la Secte du Dao Démoniaque, Wang Lin pourrait l'emporter sans porter son armure!
+Aujourd'hui, Wang Lin avait défié des adversaires en combat pendant les 50 dernières années et avait pris le contrôle total de sa puissance. Même sans l'armure d'âme, il pouvait vaincre de nombreux Exaltés Empyréens. Même face à l'ancêtre de la Secte du Dao Démoniaque, Wang Lin pourrait l'emporter sans porter son armure!
 
 Il était déjà extrêmement puissant et n'avait plus rien à voir avec l'homme d'il y a 50 ans. Désormais, après avoir revêtu l'armure d'âme et utilisé l'Art de Sort Rapide pour fusionner 98 sorts en un seul, sa puissance était bien supérieure à celle de jadis!
 
@@ -48,7 +48,7 @@ Le visage de Wang Lin était pâle. Ce geste contenait toute sa puissance. Aprè
 
 « Il n'y a aucune haine entre nous, je ne veux pas vous tuer! » Wang Lin regarda l'Exalt Empyréen Hai Zi pétrifiée, puis disparut dans les profondeurs de la mer.
 
-À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalt Empyré, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un Grand Empyré pouvait l'anéantir d'un simple coup de poing.
+À l'époque, ses 98 sorts ne pouvaient pas véritablement fusionner en un seul comme le ferait un Exalt Empyréen, et cela revenait finalement à une armée composée de soldats mais dépourvue de général. C'est pourquoi un Grand Empyréen pouvait l'anéantir d'un simple coup de poing.
 
 Cependant, maintenant, sans même avoir besoin de ses avatars, il pouvait fusionner neuf sorts dans son propre corps. Puis, grâce au pouvoir de compression mystérieux de ses avatars, il pouvait en fusionner 36, ce qui était bien plus puissant qu'auparavant!
 

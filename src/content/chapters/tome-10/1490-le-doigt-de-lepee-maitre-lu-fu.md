@@ -87,7 +87,7 @@ L'homme s'empara d'elle, prêt à l'utiliser pour sa culture avec une expression
 Après un fracas de tonnerre, ses yeux s'écarquillèrent et son corps s'effondra. Son sang macula la femme qui, soudainement, retrouva toute sa lucidité.
 
 Planète Shu Lou, famille Qian.
-Planète Heaven Breaking, famille Sun.
+Planète Brise-Ciel, famille Sun.
 Planète Xu Ling, famille Li.
 
 Des éclairs d'énergie d'épée frappèrent tous ces lieux, exécutant ceux qui avaient autrefois humilié Xi Zifeng!

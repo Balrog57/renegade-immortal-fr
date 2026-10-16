@@ -80,7 +80,7 @@ Cependant, à cet instant précis, une voix jaillit de la lumière bleue qui rec
 
 Cette voix surgit de manière extrêmement abrupte, et même la lumière bleue ne put l'intercepter. Alors que ce cri résonnait dans ce monde, l'expression du Souverain changea. Son regard, qui n'aurait dû fléchir même devant l'effondrement des cieux, fut saisi par une terreur extrême!
 
-Même lors de l'apparition du Maître Scarlet Soul, il n'avait pas réagi ainsi, mais à l'audition de ce seul mot, son esprit vacilla et il recula instinctivement. Son visage affichait une incrédulité et une peur si puissantes qu'il ne put les dissimuler!
+Même lors de l'apparition du Maître Âme Écarlate, il n'avait pas réagi ainsi, mais à l'audition de ce seul mot, son esprit vacilla et il recula instinctivement. Son visage affichait une incrédulité et une peur si puissantes qu'il ne put les dissimuler!
 
 « Haha, ce roi vous a enfin trouvé! Bon sang, vous avez vraiment abandonné ce roi, je ne l'autoriserai pas! » Dans la lumière bleue, le fou tenait une demi-cuisse de poulet à la main et affichait un regard suffisant. Il s'avança hors de la clarté azurée.
 

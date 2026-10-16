@@ -18,7 +18,7 @@ Tous les autres convoitaient le corps ou les sorts de l'Empereur Céleste Qing L
 
 « Puisque tu voulais sceller le démon antique et mettre en place de nombreux plans pour l'affronter à l'avenir, je vais tout détruire. Le démon antique n'est qu'un outil pour m'offrir un duel contre l'Empereur Céleste Qing Lin! » Personne ne pouvait deviner les pensées de l'Omniscient... Si quelqu'un le pouvait, c'était Ling Tianhou.
 
-Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil du Vermillion Bird de Wang Lin était un événement imprévu pour l'Omniscient. Dès cet instant, il ressentit une certaine pression.
+Cependant, au sein de la Grotte de l'Empereur Céleste, le premier éveil du Oiseau Vermillon de Wang Lin était un événement imprévu pour l'Omniscient. Dès cet instant, il ressentit une certaine pression.
 
 Dans son plan initial, le Démon Antique Ta Jia suivrait ses conseils et utiliserait une illusion pour tromper tout le monde. Ainsi, tous ceux qui entreraient deviendraient les instruments destinés à briser le plan que Qing Lin avait instauré au premier étage.
 
@@ -54,7 +54,7 @@ C'est à cet instant précis que le ciel s'effondra soudainement et que la loi d
 
 L'effondrement du ciel fut semblable au bris d'un miroir. Les fragments éclatés furent frappés par l'impact des flammes et projetés vers le bas.
 
-Derrière ces débris, un cri de Vermillion Bird, faisant trembler les cieux, résonna à travers toute la Terre des Esprits Démoniaques, émanant de l'esprit véritable de l'oiseau!
+Derrière ces débris, un cri de Oiseau Vermillon, faisant trembler les cieux, résonna à travers toute la Terre des Esprits Démoniaques, émanant de l'esprit véritable de l'oiseau!
 
 Cependant, face à la crise qui le frappait, Wang Lin n'eut pas le temps de lever les yeux. Mais en reculant, il sentit une loi familière apparaître autour de lui.
 

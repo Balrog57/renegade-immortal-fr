@@ -18,7 +18,7 @@ Même l'ancien démon Bei Lou esquissa un sourire, ses yeux empreints de dérisi
 
 De plus, bien qu'il ait été piégé dans la Terre des Esprits Démoniaques durant toutes ces années, il avait beaucoup appris sur l'Alliance de Culture grâce aux cultivateurs qui venaient ici. En réalité, il en connaissait les détails mieux que la plupart des gens.
 
-« Votre frère aîné, le Maître Zhong Xuan, était déjà une figure illustre avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin Azure Dragon des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
+« Votre frère aîné, le Maître Zhong Xuan, était déjà une figure illustre avant l'effondrement du Royaume Céleste et était considéré comme l'un des plus puissants cultivateurs. Lors de l'effondrement, il fut parmi les premiers, aux côtés de l'Empereur Divin Dragon Azure des Quatre Sectes Divines, à risquer sa vie pour piller le Royaume Céleste.
 
 « En fin de compte, il utilisa une méthode inconnue pour s'emparer de la majeure partie des héritages du Royaume Céleste de la Pluie, et ce n'est qu'alors que l'Alliance de Culture fut établie! Moi, Bei Lou, j'admire réellement un tel homme, mais vous... » Bei Lou secoua la tête, le regard moqueur.
 

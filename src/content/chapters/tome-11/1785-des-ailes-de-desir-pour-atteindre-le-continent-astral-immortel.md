@@ -46,7 +46,7 @@ L'expression de Wang Lin demeurait calme alors que les deux sceaux dans sa main 
 
 À cet instant, les huit corps véritables de son Essence apparurent tous et projetèrent leurs mains en avant.
 
-Des grondements tonitruants résonnèrent, et la cinquième fleur en pleine effondrement se dissipa, révélant rapidement le Maître du Dao Blue Dream, le vieil homme nommé Ma de la Planète des Cinq Éléments, Tang Shan et d'autres.
+Des grondements tonitruants résonnèrent, et la cinquième fleur en pleine effondrement se dissipa, révélant rapidement le Maître du Dao Rêve Bleu, le vieil homme nommé Ma de la Planète des Cinq Éléments, Tang Shan et d'autres.
 
 Se trouvaient également le Général Tortue Noire et le Général Oiseau Vermillon, tous deux gravement blessés.
 
@@ -90,7 +90,7 @@ Un fracas de tonnerre retentit lorsque le sceau explosa, enveloppant l'âme aux 
 
 À cet instant, Vieux Fantôme Zhan recula brusquement, créant des ondulations sous ses pas. L'âme à la cape qui entourait Vieux Fantôme Zhan était plongée dans une terreur infinie en voyant l'empreinte du sceau entre ses sourcils. Le sceau se dissipa pour ensuite envelopper tout son corps.
 
-Au loin, le Maître du Dao Blue Dream et ses compagnons étaient frappés de stupeur. Ils ne s'attendaient pas à ce que Wang Lin ait préparé une telle chose. Le vieil homme nommé Ma et Yun Yifeng regardèrent Wang Lin d'un regard complexe.
+Au loin, le Maître du Dao Rêve Bleu et ses compagnons étaient frappés de stupeur. Ils ne s'attendaient pas à ce que Wang Lin ait préparé une telle chose. Le vieil homme nommé Ma et Yun Yifeng regardèrent Wang Lin d'un regard complexe.
 
 Ils avaient initialement pensé que Xuan Luo interviendrait finalement pour régler le sort du monde des grottes. Mais Xuan Luo n'était jamais apparu, et tout reposait désormais sur les épaules de Wang Lin.
 

@@ -46,15 +46,15 @@ Au moment où sa main pressa le front de Wang Lin, une infime fluctuation émana
 
 Après un long moment, la main se retira et une voix rauque s'éleva de la bouche du vieil homme en vert.
 
-« Vous pouvez partir. Une fois que Lord Green Devil sera ressuscité, vous recevrez ce qui vous a été promis! »
+« Vous pouvez partir. Une fois que Seigneur Démon Vert sera ressuscité, vous recevrez ce qui vous a été promis! »
 
 À l'extérieur du bâtiment du scorpion, les yeux du maître de la Secte Dao Démoniaque brillèrent d'une lueur étrange. Il jeta un dernier regard au temple avant de disparaître.
 
 Ce n'est qu'une fois le maître parti que le vieil homme en robe verte contempla Wang Lin avec une excitation manifeste.
 
-« La famille de ce vieil homme a attendu si longtemps... Des générations de mortels ont servi de Ji Si pendant d'innombrables années, jusqu'à ce qu'un corps venu d'ailleurs apparaisse, tel Lord Green Devil! »
+« La famille de ce vieil homme a attendu si longtemps... Des générations de mortels ont servi de Ji Si pendant d'innombrables années, jusqu'à ce qu'un corps venu d'ailleurs apparaisse, tel Seigneur Démon Vert! »
 
-« Seul un corps de ce genre peut être possédé par Lord Green Devil pour lui permettre de renaître!! Cependant, la volonté du maître de la Secte Dao Démoniaque doit être effacée du corps véritable d'essence de tonnerre... » murmura l'homme en fixant Wang Lin avec exaltation. Sa voix résonna dans l'espace vert, empreinte d'une étrange folie.
+« Seul un corps de ce genre peut être possédé par Seigneur Démon Vert pour lui permettre de renaître!! Cependant, la volonté du maître de la Secte Dao Démoniaque doit être effacée du corps véritable d'essence de tonnerre... » murmura l'homme en fixant Wang Lin avec exaltation. Sa voix résonna dans l'espace vert, empreinte d'une étrange folie.
 
 L'esprit de Wang Lin demeurait dissimulé sous la protection de la Perle Défiant le Ciel. Il sentait que cette crise n'était pas un combat pour la survie, mais une immense fortune qui faisait bondir son cœur!
 
@@ -72,7 +72,7 @@ Il avait d'abord utilisé ses paroles, puis effacé la volonté du maître de la
 
 Après une longue attente, le corps d'essence de tonnerre ne montrait toujours aucun signe de réaction de la part de Wang Lin. Ce n'est qu'alors que le vieil homme se détendit et se sentit rassuré. Bien qu'il ne pût détecter ni la Perle Défiant le Ciel, ni l'esprit de Wang Lin, il murmura pour lui-même:
 
-« Ce corps est excellent. La prochaine étape sera la possession par Lord Green Devil... » Alors qu'il parlait, ses yeux se plissèrent et il commença à reculer lentement. Lorsqu'il fut à plusieurs centaines de pieds, il poussa soudain un rugissement rauque:
+« Ce corps est excellent. La prochaine étape sera la possession par Seigneur Démon Vert... » Alors qu'il parlait, ses yeux se plissèrent et il commença à reculer lentement. Lorsqu'il fut à plusieurs centaines de pieds, il poussa soudain un rugissement rauque:
 
 « Gardiens du Démon Vert, tuez-le! Son esprit est toujours là. Activez la Formation du Démon Vert, nous ne pouvons pas le laisser s'échapper! » Aussitôt, il battit en retraite, mais ses yeux fixaient Wang Lin avec une lueur sinistre.
 
@@ -94,11 +94,11 @@ Cette ondulation verte avait été générée par le sang frais que Ji Si avait 
 
 Ce n'est qu'à ce moment que le vieil homme en robe verte se détendit complètement et éclata d'un rire sonore. Cependant, dans son hilarité, il commença à tousser violemment.
 
-« Il n'y a plus de problème désormais. Ce corps ne possède plus de conscience ni d'esprit, mais... il est encore trop faible... Il doit encore être cultivé un peu avant de pouvoir supporter la descente de Lord Green Devil... »
+« Il n'y a plus de problème désormais. Ce corps ne possède plus de conscience ni d'esprit, mais... il est encore trop faible... Il doit encore être cultivé un peu avant de pouvoir supporter la descente de Seigneur Démon Vert... »
 
-« Bien qu'il possède huit essences, il lui manque la terre... L'essence de Lord Green Devil est la terre... Je dois l'ajouter... »
+« Bien qu'il possède huit essences, il lui manque la terre... L'essence de Seigneur Démon Vert est la terre... Je dois l'ajouter... »
 
-« Ce corps a huit essences, et avec l'essence de la terre, il en aura neuf... Neuf essences réunies feront de lui un Corps d'Essence. Une correspondance parfaite pour l'arrivée de Lord Green Devil. Une fois qu'il aura ressuscité et possédé ce corps, j'aurai accompli la mission de ma famille. Je pourrai alors retourner dans le Continent Central et apporter la fortune à mon lignage... »
+« Ce corps a huit essences, et avec l'essence de la terre, il en aura neuf... Neuf essences réunies feront de lui un Corps d'Essence. Une correspondance parfaite pour l'arrivée de Seigneur Démon Vert. Une fois qu'il aura ressuscité et possédé ce corps, j'aurai accompli la mission de ma famille. Je pourrai alors retourner dans le Continent Central et apporter la fortune à mon lignage... »
 
 « Cette affaire est trop cruciale, je dois encore me préparer davantage... »
 

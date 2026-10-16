@@ -60,7 +60,7 @@ Wang Lin sortit de la brume sanglante. Il ne daigna pas regarder l'Empereur du D
 
 Le cœur de l'Empereur du Dao Ancien tressaillit et son visage pâlit sous le regard de Wang Lin. Cependant, cette peur se mua immédiatement en une rage sans fin. Il était l'Empereur du Dao Ancien, une existence suprême au sein du Dao Ancien, un descendant de l'Ancêtre Ancien, le génie orgueilleux des cieux!!
 
-Il était reconnu par le Grand Empyre Gu Dao. Nul ne pouvait décider de son destin; sa volonté était celle du Dao Ancien. Et voilà que, la veille de son grand mariage, un être qu'il considérait comme une simple fourmi et dont il était jaloux tentait de lui dérober son impératrice. Cela le fit rire de rage.
+Il était reconnu par le Grand Empyréen Gu Dao. Nul ne pouvait décider de son destin; sa volonté était celle du Dao Ancien. Et voilà que, la veille de son grand mariage, un être qu'il considérait comme une simple fourmi et dont il était jaloux tentait de lui dérober son impératrice. Cela le fit rire de rage.
 
 « Wang Lin, tu es le disciple du Seigneur Xuan et le futur gardien du Dao Ancien. Je t'ai toujours traité avec égards. Tu ne voulais pas t'agenouiller, alors je ne t'ai pas forcé. Tu ne voulais pas assister au banquet, alors je t'ai laissé partir...
 

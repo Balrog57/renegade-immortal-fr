@@ -74,7 +74,7 @@ Chen Tianjun laissa échapper un froid renâcllement: « Venir ici était une er
 
 Maître Pin Cendré ne chercha pas à l'arrêter. Après le départ de Chen Tianjun, il reprit lentement: « Sans moi pour guider la voie, il sera incapable de rentrer. Je ne pensais pas que nous rencontrerions un Perdu si tôt. Compagnons cultivateurs Lu et Zhao, je connais une grotte de culture située entre les régions intérieure et extérieure de ce Royaume aux Sept Couleurs.
 
-« Vous connaissez tous le propriétaire de cette grotte. C'était le disciple principal de la Secte Brisant le Ciel il y a 18 000 ans: Sima Mo! »
+« Vous connaissez tous le propriétaire de cette grotte. C'était le disciple principal de la Secte Brise-Ciel il y a 18 000 ans: Sima Mo! »
 
 L'expression de la vieille femme en vert resta de marbre, comme si elle ne l'avait pas entendu.
 

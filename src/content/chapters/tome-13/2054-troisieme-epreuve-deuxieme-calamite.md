@@ -70,9 +70,9 @@ Il ignorait quand il reverrait son parrain, mais cette habitude ne le quitta jam
 
 Le temps passa lentement, et cette habitude devint un secret.
 
-Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il avait dépêché de nombreux experts puissants à Blackstone City pour surveiller secrètement une femme nommée Song Zhi.
+Outre cela, durant ces trente années, il n'oublia pas l'ordre de Wang Lin. Il avait dépêché de nombreux experts puissants à Ville de la Pierre Noire pour surveiller secrètement une femme nommée Song Zhi.
 
-Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Blackstone City et d'innombrables experts agissaient ainsi pour elle.
+Après plus d'un siècle, Song Zhi n'était plus la même et portait les marques du temps. Elle ignorait que le seigneur de Ville de la Pierre Noire et d'innombrables experts agissaient ainsi pour elle.
 
 En un éclair, vingt années supplémentaires passèrent. Cinquante ans après l'entrée de Wang Lin dans le temple ancestral, une cérémonie grandiose fut organisée au sein de l'Ancient Shi.
 
@@ -94,13 +94,13 @@ La femme fut surprise.
 
 « Ton parrain? » s'étonna-t-elle.
 
-« Parrain, j'ai pris une descendante de Lord Song pour épouse. Elle sera la future impératrice de l'Ancient Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
+« Parrain, j'ai pris une descendante de Seigneur Song pour épouse. Elle sera la future impératrice de l'Ancient Shi. Aujourd'hui, je l'ai amenée ici pour lui rendre hommage! » Ji Du parlait avec un respect profond, venant du plus profond de son cœur.
 
 Il se souviendrait à jamais que tout ce qu'il possédait lui avait été accordé par Wang Lin. Il n'oublierait jamais que sans lui, il n'aurait jamais eu la moindre chance de devenir empereur. Même la femme à ses côtés ne serait pas sa femme; elle appartiendrait à Chi Man.
 
 « Parrain, il reste cinquante ans avant que cet enfant ne devienne le nouvel empereur. Cet enfant espère pouvoir vous voir ce jour-là... »
 
-La femme sembla soudain se souvenir de quelque chose et regarda le temple avec stupeur. Elle se remémora vaguement que l'ancêtre de sa famille, Lord Song, avait un jour mentionné un nom. À l'évocation de ce nom, l'expression de Song Tian était devenue complexe, empreinte d'un immense respect.
+La femme sembla soudain se souvenir de quelque chose et regarda le temple avec stupeur. Elle se remémora vaguement que l'ancêtre de sa famille, Seigneur Song, avait un jour mentionné un nom. À l'évocation de ce nom, l'expression de Song Tian était devenue complexe, empreinte d'un immense respect.
 
 La femme murmura: « Wang... Seigneur Wang... »
 

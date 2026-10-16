@@ -60,7 +60,7 @@ Aussitôt, avec une vitesse d'incantation inégalée, Wang Lin forma des sceaux:
 
 Ces deux sorts ne suffiraient pas à blesser sérieusement son adversaire. Serrant les dents, Wang Lin enchaîna les sceaux et pointa le ciel. L'environnement se mit à gronder; le monde devint une mer obscure et tout s'assombrit. Soudain, une lumière solaire perça l'horizon.
 
-C'était la deuxième fois que Wang Lin utilisait *Sundered Night* depuis qu'il portait l'armure de l'âme.
+C'était la deuxième fois que Wang Lin utilisait *Nuit Brisée* depuis qu'il portait l'armure de l'âme.
 
 Tang Jia, ayant décidé de prêter main-forte, n'hésita pas. Ses mains tracèrent des sceaux et un fouet doré gigantesque surgit dans cette nuit noire. Le fouet fendit l'air avec une aura capable de dévaster les cieux, visant Edge Cloud. Sa vitesse d'incantation ne pouvait rivaliser avec celle de Wang Lin: là où ce dernier lançait trois sorts, elle n'en exécutait qu'un seul.
 
@@ -72,7 +72,7 @@ Un grondement de tonnerre résonna et la lance se brisa, mais d'innombrables fis
 
 Le rempart blanc vola en éclats et l'empreinte de la paume s'abattit sur Edge Cloud.
 
-Le visage de ce dernier pâlit sous le choc. Propulsé en arrière, il pressa ses doigts entre ses sourcils et poussa un rugissement de guerre. Tandis qu'il rugissait, l'image du Taureau Céleste apparut et rugit à son tour. Des ondulations se propagèrent et l'empreinte de la paume s'effondra, mais Wang Lin avait déjà lancé trois sorts. Alors que le choc de la paume se dissipait, *Sundered Night* enveloppa la zone, et un soleil levant surgit avec la puissance nécessaire pour déchirer la nuit!
+Le visage de ce dernier pâlit sous le choc. Propulsé en arrière, il pressa ses doigts entre ses sourcils et poussa un rugissement de guerre. Tandis qu'il rugissait, l'image du Taureau Céleste apparut et rugit à son tour. Des ondulations se propagèrent et l'empreinte de la paume s'effondra, mais Wang Lin avait déjà lancé trois sorts. Alors que le choc de la paume se dissipait, *Nuit Brisée* enveloppa la zone, et un soleil levant surgit avec la puissance nécessaire pour déchirer la nuit!
 
 « Un sort... un sort de Foi! » Après avoir été bombardé de sorts, Edge Cloud comprit enfin l'anomalie de ce soleil. Ses yeux se remplirent d'une terreur extrême et il tenta de reculer précipitamment.
 

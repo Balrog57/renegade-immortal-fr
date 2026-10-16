@@ -10,7 +10,7 @@ Voyant la détermination de Wang Lin, les yeux de Xuan Luo se plissèrent, mais 
 
 La pression exercée par le Mont Gu Dao devint une force indescriptible qui s'abattit sur Wang Lin dès qu'il posa le pied sur la 201e marche.
 
-L'écart de puissance entre la 200e et la 201e marche était immense. Si, auparavant, il s'agissait d'une vague déchaînée que Wang Lin devait affronter en déployant toute sa puissance et en brûlant l'empreinte de son Grand Empyre Sun pour à peine la franchir, c'était désormais l'océan tout entier qui s'écrasait sur lui.
+L'écart de puissance entre la 200e et la 201e marche était immense. Si, auparavant, il s'agissait d'une vague déchaînée que Wang Lin devait affronter en déployant toute sa puissance et en brûlant l'empreinte de son Grand Empyréen Sun pour à peine la franchir, c'était désormais l'océan tout entier qui s'écrasait sur lui.
 
 Après un seul pas, le visage de Wang Lin devint plus pâle encore. Son corps tremblait et le sang continuait de couler du coin de sa bouche. Ses os étaient broyés, sa chair et son sang déchirés, son âme originelle était sur le point de se briser et son âme allait être anéantie!
 
@@ -20,7 +20,7 @@ Cependant, Wang Lin ne recula pas. Même si poursuivre cette voie était extrêm
 
 S'il abandonnait, non seulement la fusion échouerait, mais cela laisserait une ombre dans son cœur. Une ombre envers Gu Dao, cette existence irrésistible. Cela pourrait engendrer une peur persistante et causer un préjudice immense à Wang Lin.
 
-« Grand Empyre Gu Dao... Je dois franchir ces 300 marches! » Le visage de Wang Lin se crispa, la douleur intérieure et extérieure le poussant à rugir vers le ciel. Pourtant, il réprima son cri, conservant cette force en lui pour accomplir le deuxième pas.
+« Grand Empyréen Gu Dao... Je dois franchir ces 300 marches! » Le visage de Wang Lin se crispa, la douleur intérieure et extérieure le poussant à rugir vers le ciel. Pourtant, il réprima son cri, conservant cette force en lui pour accomplir le deuxième pas.
 
 Lorsqu'il fit le deuxième pas, l'esprit de Wang Lin fut secoué et son corps trembla violemment, mais il sentit clairement ses pouvoirs célestes et anciens être fusionnés de force par cette pression.
 

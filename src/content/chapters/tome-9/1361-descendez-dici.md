@@ -104,10 +104,10 @@ Grâce à cette traction, Wang Lin parvint à arracher l'Éclair Éternel de que
 
 Cette scène laissa les innombrables cultivateurs du Clan du Tonnerre Éparpillé totalement stupéfaits!
 
-Une voix étouffée sortit du vortex, et même tout le Système Stellaire Ancien sembla trembler devant elle! « Lâche prise immédiatement. Ce n'est pas un trésor qu'une seule personne peut posséder. Si tu continues, je te tuerai! »
+Une voix étouffée sortit du vortex, et même tout le Système Stellaire Antique sembla trembler devant elle! « Lâche prise immédiatement. Ce n'est pas un trésor qu'une seule personne peut posséder. Si tu continues, je te tuerai! »
 
-À cet instant, les innombrables habitants du Système Stellaire Ancien entendirent cette voix!
+À cet instant, les innombrables habitants du Système Stellaire Antique entendirent cette voix!
 
 Au sein du Clan de la Soie Bleue sur le Mont Bleu, Li Qianmei regarda calmement vers l'horizon. De la confusion et une lutte intérieure brillaient dans ses yeux. C'était comme si... un souvenir qu'elle ne pouvait ni rompre ni oublier s'éveillait lentement.
 
-À ses côtés, le Maître Dao Blue Dream poussa un soupir et cessa de jouer de la cithare. Il était sur le point de parler quand son expression changea soudainement. Il se précipita hors de la demeure, le regard froid, fixant l'immensité du ciel étoilé!
+À ses côtés, le Maître Maître du Dao Rêve Bleu poussa un soupir et cessa de jouer de la cithare. Il était sur le point de parler quand son expression changea soudainement. Il se précipita hors de la demeure, le regard froid, fixant l'immensité du ciel étoilé!

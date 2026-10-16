@@ -12,7 +12,7 @@ Dès l'apparition de cette lueur noire, elle se transforma en une courte épée 
 
 Les lèvres de l'homme à la robe noire ne cessèrent pas de s'agiter et il continua de marmonner. Des rayons de lumière noire jaillirent de son entreconch et se changèrent en courtes épées. En un instant, plus d'une dizaine de lames volèrent vers Wang Lin.
 
-Wang Lin ne bougea pas. Le niveau de culture de cet homme à la robe noire était extrêmement élevé; il n'appartenait certainement pas aux stades Illusoire Yin ou Corporel Yang.
+Wang Lin ne bougea pas. Le niveau de culture de cet homme à la robe noire était extrêmement élevé; il n'appartenait certainement pas aux stades Yin Illusoire ou Corporel Yang.
 
 Cependant, puisque tout son corps n'était fait que d'os, à l'exception de sa tête, cela signifiait que peu importe sa puissance, il ne pouvait utiliser toute sa force.
 

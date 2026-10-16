@@ -108,7 +108,7 @@ Si Wang Lin avait voulu le poursuivre, l'individu n'aurait pu s'échapper, mais 
 
 Cependant, ses paroles résonnèrent comme le tonnerre aux oreilles de l'ombre rouge en fuite. Cela lui fit cracher du sang à nouveau, son visage marqué par la terreur.
 
-« Lui... Quel est son niveau de culture?! Quel est son niveau de culture?! Cette affaire doit être immédiatement rapportée à l'ancêtre. Cet homme doit être un Exalt Empyrean, et non un ordinaire! Malheur, Li Shan et moi nous sommes séparés. Je suis venu surveiller cet individu tandis que Li Shan est allé capturer son compagnon... » L'expression de la silhouette rouge changea brusquement; il sentit que les actions de la famille Li allaient provoquer une catastrophe majeure.
+« Lui... Quel est son niveau de culture?! Quel est son niveau de culture?! Cette affaire doit être immédiatement rapportée à l'ancêtre. Cet homme doit être un Exalt Empyréen, et non un ordinaire! Malheur, Li Shan et moi nous sommes séparés. Je suis venu surveiller cet individu tandis que Li Shan est allé capturer son compagnon... » L'expression de la silhouette rouge changea brusquement; il sentit que les actions de la famille Li allaient provoquer une catastrophe majeure.
 
 Wang Lin, toujours coiffé de son manteau à capuche, continuait sa route. Il n'avait pas de destination précise, voulant simplement marcher tranquillement. En avançant, il aperçut des lumières et entendit de la musique provenant de devant lui.
 

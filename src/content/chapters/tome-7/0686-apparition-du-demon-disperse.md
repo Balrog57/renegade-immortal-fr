@@ -66,11 +66,11 @@ Ce coup de poing portait la puissance du Démon Dispersé et la force de l'armur
 
 La main droite de la figure céleste traça un sceau et pointa vers l'avant. L'énergie spirituelle céleste environnante se condensa immédiatement pour former un vortex gigantesque. Celui-ci se précipita sur le dragon noir et, en un instant, les deux furent réduits à néant.
 
-La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète Thousand Illusion. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
+La figure céleste retira sa main et ouvrit les bras. Chacune de ses mains portait un sceau différent, et une énergie spirituelle infinie convergeait vers lui depuis toute la planète Mille Illusions. Par une méthode mystérieuse, cette énergie fut transformée en énergie spirituelle céleste.
 
-Cette énergie était si dense qu'elle semblait devenir solide, se condensant frénétiquement au-dessus de la main droite de l'entité céleste. En un clin d'œil, une faille apparut soudainement dans le cycle de l'énergie spirituelle de la planète Thousand Illusion!
+Cette énergie était si dense qu'elle semblait devenir solide, se condensant frénétiquement au-dessus de la main droite de l'entité céleste. En un clin d'œil, une faille apparut soudainement dans le cycle de l'énergie spirituelle de la planète Mille Illusions!
 
-À cet instant précis, Thousand Illusion fut privée de toute énergie spirituelle!
+À cet instant précis, Mille Illusions fut privée de toute énergie spirituelle!
 
 Toute l'énergie avait été convertie en énergie spirituelle céleste, formant une sphère blanc laiteux au-dessus de la paume de la figure céleste.
 
@@ -82,7 +82,7 @@ Ces deux mots furent prononcés dans la langue de l'ordre ancien. À cet instant
 
 Tendant sa main vers la terre en contrebas, Wang Lin prononça à nouveau les mots de l'ordre ancien: « Extrayez l'âme de la planète! »
 
-À cet instant, Thousand Illusion trembla et une aura antique commença à s'élever. La poigne du Démon Dispersé était capable d'arracher l'âme planétaire de Thousand Illusion.
+À cet instant, Mille Illusions trembla et une aura antique commença à s'élever. La poigne du Démon Dispersé était capable d'arracher l'âme planétaire de Mille Illusions.
 
 « Si tu utilises toute l'énergie spirituelle de la planète, alors j'utiliserai son âme! Voyons laquelle est la plus puissante! » Le Démon Dispersé rit et libéra une quantité phénoménale de flammes démoniaques.
 

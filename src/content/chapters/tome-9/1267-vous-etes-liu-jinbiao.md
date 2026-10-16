@@ -98,7 +98,7 @@ L'esprit de Wang Lin fut troublé alors qu'il fixait l'homme en fuite. Il ne reg
 
 Ce vieil homme nommé Liu Jinbiao était celui qui apparaissait dans la dernière vision lorsque Wang Lin prédisait son avenir. Pourtant, Wang Lin était perplexe, car le niveau de culture de cet homme était vraiment... bien trop bas!
 
-À en juger par ses apparences, il venait à peine de franchir le stade Ascendant pour atteindre le stade Illusoire Yin!
+À en juger par ses apparences, il venait à peine de franchir le stade Ascendant pour atteindre le stade Yin Illusoire!
 
 Même si des centaines d'hommes de son espèce étaient réunis, ils ne pourraient résister à l'attaque de Wang Lin. Pourtant, le vieil homme n'avait pas subi la moindre blessure grâce au jade. Cela fit briller les yeux de Wang Lin!
 

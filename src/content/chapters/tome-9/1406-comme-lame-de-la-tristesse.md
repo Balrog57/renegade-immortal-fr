@@ -110,7 +110,7 @@ Sur la Planète du Grand Empereur, tous les regards étaient rivés sur la silho
 
 Le vent léger soufflait, faisant flotter les longs cheveux et les vêtements de l'individu.
 
-Le vieux Vermillion Bird laissa poindre une pointe d'anxiété. En observant la silhouette, son inquiétude grandit.
+Le vieux Oiseau Vermillon laissa poindre une pointe d'anxiété. En observant la silhouette, son inquiétude grandit.
 
 « Pourquoi est-il si lent... Compte tenu de son niveau de culture, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure, voire qu'il l'allume au premier souffle. Cela fait maintenant près d'une heure, soit la majeure partie d'une journée ici. Se pourrait-il qu'il n'ait pas passé assez de temps à cultiver pour tout percer, et que son âme refuse de partir? »
 
@@ -118,9 +118,9 @@ Le Maître Simo laissa échapper un rictus méprisant en fixant la silhouette so
 
 La Grande Maîtresse Yun Luo fronça sévèrement les sourcils tandis que sa main droite, dissimulée dans sa manche, s'activait avec une rapidité accrue. Sa divination semblait atteindre un moment critique.
 
-À cet instant précis, le regard du vieux Vermillion Bird se contracta soudainement. Non seulement lui, mais la majorité des cultivateurs virent clairement deux larmes cristallines couler des yeux de la silhouette debout devant la première baguette d'encens.
+À cet instant précis, le regard du vieux Oiseau Vermillon se contracta soudainement. Non seulement lui, mais la majorité des cultivateurs virent clairement deux larmes cristallines couler des yeux de la silhouette debout devant la première baguette d'encens.
 
-Le Maître Dao Blue Dream observa les larmes et songea: « L'âme retourne vers sa patrie... Si l'âme est empreinte de tristesse, elle retourne au corps et des larmes de chagrin s'écoulent... Quelle puissante Épreuve Humaine... »
+Le Maître Maître du Dao Rêve Bleu observa les larmes et songea: « L'âme retourne vers sa patrie... Si l'âme est empreinte de tristesse, elle retourne au corps et des larmes de chagrin s'écoulent... Quelle puissante Épreuve Humaine... »
 
 À l'intérieur de l'Épreuve Humaine, Wang Lin se tenait au pied de la montagne de la Secte Heng Yue. Il contempla le village devant lui avant de détourner les yeux, une larme roulant sur sa joue.
 

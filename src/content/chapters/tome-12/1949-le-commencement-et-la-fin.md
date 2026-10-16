@@ -48,7 +48,7 @@ Lorsque Liu Jinbiao vit la lumière émanant de Wang Lin, son cœur trembla et i
 
 Dans l'œil gauche de Wang Lin, sous l'éclat de la lumière, les contours d'un soleil se formèrent lentement. Cependant, dès que la lumière se dissipa, la forme ne put prendre corps.
 
-« Je ne suis pas étranger à l'absolu commencement... Dans le monde des grottes, lorsque j'ai créé Sundered Night, elle contenait déjà le pouvoir de l'absolu commencement... Depuis lors, ma compréhension n'a cessé de croître. Puis, en arrivant sur le Continent Astral Immortel, mon Sundered Night intégrait la foi... »
+« Je ne suis pas étranger à l'absolu commencement... Dans le monde des grottes, lorsque j'ai créé Nuit Brisée, elle contenait déjà le pouvoir de l'absolu commencement... Depuis lors, ma compréhension n'a cessé de croître. Puis, en arrivant sur le Continent Astral Immortel, mon Nuit Brisée intégrait la foi... »
 
 « Je ne m'attendais pas à ce que cet absolu commencement produise également une essence... Une essence est une chose que l'on comprend si profondément qu'on peut la traverser et l'utiliser d'un simple geste de la main... » murmura Wang Lin alors qu'il s'immergeait pour la sixième fois dans le Bassin Dong Lin.
 
@@ -58,7 +58,7 @@ Le deuxième jour, juste avant l'aube, alors que le ciel était encore plongé d
 
 Le ciel était normalement sombre et le soleil n'était pas encore venu; il aurait fallu attendre encore un peu. Pourtant, dès que les yeux de Wang Lin s'ouvrirent, la lumière de son œil gauche jaillit. C'était comme si Wang Lin avait supplanté le soleil, dissipant l'obscurité du monde avec une demi-heure d'avance.
 
-« Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour! Sundered Night n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
+« Comprendre l'essence de l'absolu commencement permet de contrôler le lever du soleil et d'inverser la nuit et le jour! Nuit Brisée n'était qu'un sort auparavant, mais désormais, après avoir compris l'absolu commencement, elle peut remplacer le soleil! » grommela Wang Lin alors que la lumière de son œil gauche enveloppait tout son corps.
 
 Liu Jinbiao et le dragon marin s'étaient retirés depuis longtemps, n'osant s'approcher. Wang Lin, drapé dans une lumière aussi vive qu'un lever de soleil, s'éleva vers les cieux.
 

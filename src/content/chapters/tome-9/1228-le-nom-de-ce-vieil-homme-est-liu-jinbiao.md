@@ -20,7 +20,7 @@ La Secte de l'Origine ne pouvait l'accepter, mais elle n'osait s'y opposer. Si e
 
 Cette méthode brutale servait à garantir que les sectes de rang 8 continuent de croître en puissance, jusqu'au jour où toutes leurs branches seraient devenues assez puissantes pour que la Secte Divine leur accorde le statut de secte de rang 9.
 
-La rumeur disait que la Secte Brisant le Ciel et la Secte Fantôme s'étaient élevées de cette manière même.
+La rumeur disait que la Secte Brise-Ciel et la Secte Fantôme s'étaient élevées de cette manière même.
 
 Il y avait au total cinq sectes dans la région de rang 8: la Secte Éternelle, la Secte du Vent Ombrageux, la Secte du Chemin Arc-en-ciel, la Secte Répondant aux Cieux et la Secte de l'Âme Silencieuse. La Secte de l'Origine et la Secte du Dao Violet appartenaient à la grande secte de rang 8, la Secte Éternelle.
 
@@ -36,7 +36,7 @@ Une part de cette puissance servait d'étalage devant la secte de rang 9. Si le 
 
 Chaque secte de rang 8 commençait ses préparatifs très tôt pour cette compétition capitale. Les trois représentants choisis pour ce combat majeur étaient déjà désignés. Bien qu'ils ne soient pas ramenés à la secte principale, ils recevaient le même traitement que les disciples de base, et des membres de la secte principale se déplaçaient personnellement pour les instruire.
 
-Depuis que la Secte Brisant le Ciel avait quitté la région de rang 8, dix-sept compétitions avaient eu lieu, entre victoires et défaites dispersées parmi les sectes. Cependant, il y a 10 000 ans, avec l'ascension de la Secte de l'Âme Silencieuse, celle-ci avait remporté neuf victoires consécutives. Ce cycle marquait la 18e compétition depuis le départ de la Secte Brisant le Ciel. Si la Secte de l'Âme Silencieuse l'emportait à nouveau, son passage au rang 9 ne serait qu'une question de temps.
+Depuis que la Secte Brise-Ciel avait quitté la région de rang 8, dix-sept compétitions avaient eu lieu, entre victoires et défaites dispersées parmi les sectes. Cependant, il y a 10 000 ans, avec l'ascension de la Secte de l'Âme Silencieuse, celle-ci avait remporté neuf victoires consécutives. Ce cycle marquait la 18e compétition depuis le départ de la Secte Brise-Ciel. Si la Secte de l'Âme Silencieuse l'emportait à nouveau, son passage au rang 9 ne serait qu'une question de temps.
 
 La compétition sacrée de la Mer des Nuages, qui se tenait tous les 1 000 ans, était un événement animé durant plusieurs mois. De nombreuses cités et marchés commerciaux s'installaient dans la région de rang 8. On y trouvait souvent des escrocs profitant de l'occasion pour s'enrichir.
 

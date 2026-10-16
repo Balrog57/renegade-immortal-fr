@@ -16,7 +16,7 @@ Wang Lin esquissa un sourire fugace et secoua la tête sans répondre. Il contem
 
 « Je n'en dirai pas plus. Frère Du, si le destin le permet, nous nous reverrons. Adieu! » Wang Lin poussa un soupir et disparut d'un pas vers les cieux.
 
-En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner le Grand Secte des Âmes afin d'annoncer à l'Ancien Vert Taureau qu'il avait accompli sa mission.
+En observant la silhouette de Wang Lin s'éloigner, Du Qing comprit vaguement quelque chose. Il laissa échapper un soupir secret et secoua la tête. Puis, il se transforma en un rayon de lumière pour regagner le Grand Secte des Âmes afin d'annoncer à l'Ancien Taureau Vert qu'il avait accompli sa mission.
 
 Wang Lin fusionna avec le monde et quitta la Secte des Sept Dao. Il apparut dans un désert désolé, une contrée peu commune sur le Continent du Taureau Céleste.
 
@@ -42,7 +42,7 @@ Wang Lin ne connaissait que peu de choses sur les armures de la Secte Gui Yi, ma
 
 Cependant, ces armures ne pouvaient rivaliser avec celle contenue dans la sphère, ni par leur apparence, ni par leur aura! Même Wang Lin, malgré ses connaissances limitées, pouvait constater qu'elles n'étaient pas du même rang.
 
-Cette armure humanoïde était probablement une rareté, même au sein de la Secte Gui Yi! Wang Lin ignorait quel prix l'Ancien Vert Taureau avait dû payer pour en obtenir une pour lui.
+Cette armure humanoïde était probablement une rareté, même au sein de la Secte Gui Yi! Wang Lin ignorait quel prix l'Ancien Taureau Vert avait dû payer pour en obtenir une pour lui.
 
 Wang Lin resta silencieux, plongé dans ses pensées.
 
@@ -52,7 +52,7 @@ Wang Lin pouvait ressentir l'aura de la Voile Fantomatique principale, celle qui
 
 En contemplant cette petite voile, Wang Lin fut envahi par un sentiment indescriptible.
 
-La Voile Fantomatique de protection était cruciale pour le Grand Secte des Âmes. Pourtant, l'Ancien Vert Taureau la lui avait offerte de manière inattendue.
+La Voile Fantomatique de protection était cruciale pour le Grand Secte des Âmes. Pourtant, l'Ancien Taureau Vert la lui avait offerte de manière inattendue.
 
 Wang Lin ne put que méditer en silence.
 
@@ -76,7 +76,7 @@ Mais cette carte était d'une importance vitale pour Wang Lin en cet instant!
 
 En plus de la carte, la carapace offrait une description détaillée de la perle du Taureau Céleste, ce qui éclaira grandement l'esprit de Wang Lin.
 
-L'Ancien Vert Taureau n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
+L'Ancien Taureau Vert n'avait laissé qu'une seule phrase. Ce n'était pas un message transmis par le Sens Divin, mais une inscription gravée dans la carapace elle-même.
 
 « Bon voyage... Dans trois cents ans, reviens voir le Grand Secte des Âmes... » Il n'y avait aucune explication, ni mention des trois conditions. Cette unique phrase suffisait à clore le karma liant Wang Lin au Continent du Taureau Céleste.
 

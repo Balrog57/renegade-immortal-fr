@@ -10,7 +10,7 @@ Cette scène fit changer radicalement l'expression de tous les cultivateurs. Dè
 
 Ce spectacle terrifiant fit retenir un souffle de stupeur à l'assistance.
 
-En voyant cet étrange individu foncer vers la porte céleste, nul n'osa s'interposer. À cet instant précis, l'un des cultivateurs situés près de la porte s'élança. C'était un homme d'âge moyen vêtu d'une robe dorée. Ses yeux brillaient comme des éclairs et il se trouvait au stade Illusoire Yin. D'un revers de main sur son sac de rangement, il fit jaillir treize épées volantes.
+En voyant cet étrange individu foncer vers la porte céleste, nul n'osa s'interposer. À cet instant précis, l'un des cultivateurs situés près de la porte s'élança. C'était un homme d'âge moyen vêtu d'une robe dorée. Ses yeux brillaient comme des éclairs et il se trouvait au stade Yin Illusoire. D'un revers de main sur son sac de rangement, il fit jaillir treize épées volantes.
 
 D'un geste du doigt, il projeta les lames vers l'inconnu aux cheveux blancs.
 
@@ -26,7 +26,7 @@ Dès son apparition, sa main droite traça un sceau et frappa l'éclair pourpre.
 
 L'immense éclair rouge commença à se rétracter rapidement.
 
-À cet instant, les cultivateurs alentour réagirent enfin. Ils dégainèrent divers trésors et chargèrent l'inconnu. Parmi eux, une dizaine de cultivateurs au stade Illusoire Yin constituaient la force de frappe principale, fonçant droit sur l'homme aux cheveux blancs.
+À cet instant, les cultivateurs alentour réagirent enfin. Ils dégainèrent divers trésors et chargèrent l'inconnu. Parmi eux, une dizaine de cultivateurs au stade Yin Illusoire constituaient la force de frappe principale, fonçant droit sur l'homme aux cheveux blancs.
 
 « Le Royaume Céleste du Tonnerre va se refermer, et vous tous, vous serez ma nourriture! » Le regard de l'homme aux cheveux blancs était d'une froideur absolue. Sans même daigner considérer les attaques qui convergeaient vers lui, il disparut pour réapparaître derrière un cultivateur au stade Ascendant avancé. Sa vitesse défiait l'imagination.
 
@@ -58,7 +58,7 @@ Tous les cultivateurs situés dans ce périmètre de 3,3 kilomètres virent leur
 
 Pourtant, de plus en plus de cultivateurs se précipitaient vers la porte céleste. Après tout, elle représentait leur unique chance de survie.
 
-« Intéressant. Je veux voir combien d'entre vous, jeunes cultivateurs du Qi, parviendront réellement à s'échapper! » L'homme aux cheveux blancs éclata de rire alors que son corps disparaissait pour réapparaître derrière un cultivateur au stade Illusoire Yin.
+« Intéressant. Je veux voir combien d'entre vous, jeunes cultivateurs du Qi, parviendront réellement à s'échapper! » L'homme aux cheveux blancs éclata de rire alors que son corps disparaissait pour réapparaître derrière un cultivateur au stade Yin Illusoire.
 
 Ce dernier, le regard glacial, fit exploser son âme originelle sans la moindre hésitation. Son âme et son corps se transformèrent en énergie originelle pour s'effondrer. Bien qu'il ne pût échapper à la mort, il avait fait un choix: celui de mourir avec dignité!
 
@@ -70,7 +70,7 @@ Sous le fracas de l'explosion, l'homme aux cheveux blancs fronça les sourcils. 
 
 C'était un véritable massacre. Alors que la porte céleste était sur le point de s'évanouir, cette boucherie atteignit son paroxysme. La plupart des cultivateurs se ruaient comme des fous pour tenter de s'échapper, car la porte était leur ultime espoir.
 
-Cependant, avec les trente-deux clones couvrant la zone de 3,3 kilomètres, seuls les cultivateurs au stade Illusoire Yin pouvaient espérer approcher à moins de 330 mètres de la porte. Tous les autres périssaient bien avant d'atteindre cette limite. Quant à ceux qui atteignaient ce périmètre de 330 mètres, ils subissaient le même sort: ils mouraient dès l'apparition du corps originel de l'homme aux cheveux blancs.
+Cependant, avec les trente-deux clones couvrant la zone de 3,3 kilomètres, seuls les cultivateurs au stade Yin Illusoire pouvaient espérer approcher à moins de 330 mètres de la porte. Tous les autres périssaient bien avant d'atteindre cette limite. Quant à ceux qui atteignaient ce périmètre de 330 mètres, ils subissaient le même sort: ils mouraient dès l'apparition du corps originel de l'homme aux cheveux blancs.
 
 Des éclats de rire sinistres s'échappaient de sa gorge. À force de massacrer et de dévorer, son corps initialement maigre s'épaississait progressivement. On aurait dit que quelque chose bougeait à l'intérieur de lui, ce qui le rendait plus terrifiant encore.
 
@@ -78,9 +78,9 @@ L'aura qu'il dégageait devenait de plus en plus oppressante. À chaque fois qu'
 
 Une odeur de sang imprégna l'air et le désespoir s'empara des survivants. La porte céleste allait bientôt se dissiper totalement; il ne semblait plus rester qu'un instant avant sa disparition définitive. Une fois cet éclair rouge éteint, le Royaume Céleste du Tonnerre serait scellé à jamais.
 
-C'est alors que plus de dix rayons d'énergie d'épée surgirent du lointain. Ces lames étaient saturées d'énergie originelle et produisaient un rugissement strident en fonçant sur la scène. En tête, Zhan Konglie affichait un regard froid, suivi de plus de dix cultivateurs au stade Illusoire Yin. Tous chargeaient l'homme aux cheveux blancs.
+C'est alors que plus de dix rayons d'énergie d'épée surgirent du lointain. Ces lames étaient saturées d'énergie originelle et produisaient un rugissement strident en fonçant sur la scène. En tête, Zhan Konglie affichait un regard froid, suivi de plus de dix cultivateurs au stade Yin Illusoire. Tous chargeaient l'homme aux cheveux blancs.
 
-Simultanément, d'autres éclats de lumière apparurent d'une autre direction. Tang Yanfeng menait cette charge, le visage sombre, entouré de ses partisans. Outre les membres de sa propre famille, il était accompagné de cultivateurs d'autres lignées avec lesquels il entretenait de bonnes relations. Cependant, ils n'étaient tous qu'au stade Illusoire Yin.
+Simultanément, d'autres éclats de lumière apparurent d'une autre direction. Tang Yanfeng menait cette charge, le visage sombre, entouré de ses partisans. Outre les membres de sa propre famille, il était accompagné de cultivateurs d'autres lignées avec lesquels il entretenait de bonnes relations. Cependant, ils n'étaient tous qu'au stade Yin Illusoire.
 
 Ces deux groupes progressaient à une vitesse fulgurante vers l'inconnu. Avant même leur arrivée, des décharges d'énergie originelle et des trésors magiques furent lancés en éclaireurs. Les troupes de Tang Yanfeng et de Zhan Konglie déclenchèrent leurs assauts sans la moindre hésitation.
 
@@ -92,7 +92,7 @@ Ce cultivateur afficha un regard déterminé avant que son corps n'explose brusq
 
 Au même moment, Zhan Konglie chargea, un fourneau en cuivre à la main, porté par une intention meurtrière impétueuse. Tang Yanfeng mit également de côté sa querelle personnelle avec Shengong Hu; d'un revers de manches, il fit apparaître un brouillard blanc et s'élança dans la mêlée.
 
-Shengong Hu et Zhan Konglie n'hésitèrent pas une seconde. Trois puissants cultivateurs au stade Yang Corporel entamèrent simultanément leur assaut contre l'homme aux cheveux blancs. Les dix autres cultivateurs au stade Illusoire Yin ne battirent pas en retraite; ils déployèrent leurs trésors magiques pour lancer un siège généralisé.
+Shengong Hu et Zhan Konglie n'hésitèrent pas une seconde. Trois puissants cultivateurs au stade Yang Corporel entamèrent simultanément leur assaut contre l'homme aux cheveux blancs. Les dix autres cultivateurs au stade Yin Illusoire ne battirent pas en retraite; ils déployèrent leurs trésors magiques pour lancer un siège généralisé.
 
 Bien que les cultivateurs au stade Yang Corporel fussent peu nombreux, ceux de Shengong Hu n'étaient pas les seuls: deux autres experts du stade Yang Corporel s'élancèrent sans hésiter dans le brouillard blanc pour déchaîner leurs puissants sorts d'énergie originelle.
 

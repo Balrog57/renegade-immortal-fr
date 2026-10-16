@@ -20,7 +20,7 @@ Maître Simo n'eut pas le temps de s'interroger sur la cause de ce phénomène. 
 
 Ce changement d’expression provoqua une nouvelle fluctuation de ses émotions, faisant brûler le Feu Éthéré avec encore plus de violence!
 
-Le Vieux Vermillion Bird observa la scène et laissa échapper un rictus presque imperceptible. « Ces quelques gifles n'étaient pas seulement destinées à lui donner une leçon, mais aussi à planter la graine du Feu Éthéré en son sein. Autrement, il lui aurait été trop difficile de combattre un cultivateur du troisième niveau. Petit gars, tout dépendra de ta capacité à saisir cette opportunité... »
+Le Vieux Oiseau Vermillon observa la scène et laissa échapper un rictus presque imperceptible. « Ces quelques gifles n'étaient pas seulement destinées à lui donner une leçon, mais aussi à planter la graine du Feu Éthéré en son sein. Autrement, il lui aurait été trop difficile de combattre un cultivateur du troisième niveau. Petit gars, tout dépendra de ta capacité à saisir cette opportunité... »
 
 Wang Lin avait affronté d'innombrables situations de vie ou de mort; il ne laisserait passer aucune occasion. Voyant le Feu Éthéré rugir, une lueur froide passa dans ses yeux. Tout en réprimant les blessures subies précédemment, Wang Lin forma un sceau de ses mains et pointa vers l'avant.
 
@@ -34,7 +34,7 @@ En un éclair, ces dragons de feu jaillirent des corps des cultivateurs. Un tota
 
 De loin, la scène était absolument saisissante. À cet instant, il semblait que Wang Lin ne combattait pas Maître Simo seul; il avait rassemblé les émotions de tous les présents pour l'affronter!
 
-Dans le monde de la culture, personne à part Wang Lin ne pouvait accomplir un tel exploit avec le pouvoir du feu. Ni le Vermillion Bird de quatrième génération, ni même celui de deuxième génération!
+Dans le monde de la culture, personne à part Wang Lin ne pouvait accomplir un tel exploit avec le pouvoir du feu. Ni le Oiseau Vermillon de quatrième génération, ni même celui de deuxième génération!
 
 Bien que leur Feu Éthéré fût puissant, il avait ses limites: ils pouvaient l'émettre, mais pas l'absorber. En revanche, le Feu Éthéré de Wang Lin possédait la force magnétique de la Perle Défiant le Ciel. Après avoir absorbé le feu environnant, le monde trembla. Wang Lin agita ses manches et les innombrables dragons de Feu Éthéré chargèrent Maître Simo.
 
@@ -84,7 +84,7 @@ Les yeux de ces âmes étaient emplis de ferveur et dégageaient des Flammes de 
 
 Les cultivateurs environnants s'emballèrent et reculèrent, nul n'osant rester à proximité.
 
-Le Vieux Vermillion Bird vit ses yeux s'illuminer en fixant Maître Simo, sans pour autant trahir ses pensées.
+Le Vieux Oiseau Vermillon vit ses yeux s'illuminer en fixant Maître Simo, sans pour autant trahir ses pensées.
 
 « Mes disciples, adorez-moi! » rugit Maître Simo, et les innombrables âmes s'inclinèrent toutes devant lui!
 
@@ -118,7 +118,7 @@ Soudain, Wang Lin aperçut une minuscule silhouette assise au cœur de cette fla
 
 « Sauve-moi... » Au moment où le vent violet frappa, Wang Lin crut entendre une voix ténue émaner de la flamme entre les sourcils de Maître Simo!
 
-« Maître Simo possède donc tant de disciples des Flammes de l'Encens! » L'expression du Vieux Vermillion Bird changea et il s'apprêta à charger pour venir en aide au jeune homme.
+« Maître Simo possède donc tant de disciples des Flammes de l'Encens! » L'expression du Vieux Oiseau Vermillon changea et il s'apprêta à charger pour venir en aide au jeune homme.
 
 Cependant, juste au moment où il faisait un pas, la voix de Wang Lin résonna à travers le monde:
 

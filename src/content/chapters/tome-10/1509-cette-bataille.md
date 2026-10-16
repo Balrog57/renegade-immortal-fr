@@ -90,7 +90,7 @@ Lu Yanfei faisait partie des captifs, mais elle restait silencieuse et très cal
 
 Sans Lu Zihao ou sans Wang Lin, la Secte Origine n'existerait pas aujourd'hui!
 
-Au sein de la Secte Heaven Breaking, le maître de secte traîna son vieux corps et contempla sa secte avec une expression complexe. Puis il se calma progressivement et s'envola vers la Secte Divin.
+Au sein de la Secte Brise-Ciel, le maître de secte traîna son vieux corps et contempla sa secte avec une expression complexe. Puis il se calma progressivement et s'envola vers la Secte Divin.
 
 À l'intérieur de la Secte Divin, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Daoïste Eau l'avait aidée à restaurer sa culture il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun!
 

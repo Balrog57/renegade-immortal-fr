@@ -10,23 +10,23 @@ Ce jeune homme était Wang Lin, celui qui avait quitté la Terre des Esprits Dé
 
 Il y a deux ans, Wang Lin avait été gravement blessé sur la Terre des Esprits Démoniaques. Son corps était profondément endommagé et son âme originelle était sur le point de s'effondrer. De plus, à cause des paroles de Mu Bingmei, la douleur dans son cœur avait provoqué une explosion de ses blessures, le faisant perdre connaissance.
 
-Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme derrière lui était l'Empereur Divin du Vermillion Bird.
+Lorsqu'il se réveilla, il était assis sur cette pierre blanche. Le vieil homme derrière lui était l'Empereur Divin du Oiseau Vermillon.
 
-Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Vermillion Bird, tandis que son avatar était ici pour guérir.
+Au cours de ces deux années, l'avatar de Wang Lin et son corps originel s'étaient séparés. Son corps originel s'était enfoncé profondément dans la Planète Divine du Oiseau Vermillon, tandis que son avatar était ici pour guérir.
 
 Durant ces deux années, l'énergie d'origine du feu de Wang Lin avait progressé par bonds prodigieux. Lorsqu'il était à la Terre des Esprits Démoniaques, il avait déjà senti qu'il était proche du stade de Purificateur du Nirvana, mais il lui fallait encore une percée dans son domaine pour franchir le pas.
 
 Cette percée ne pouvait être forcée; plus on se montrait impatient, plus elle devenait difficile. Au cours des deux dernières années, Wang Lin avait continué à chercher la compréhension tout en absorbant l'énergie d'origine du feu. Son énergie d'origine était désormais presque à son apogée.
 
-« Le pouvoir de la Neuf Mystérieuses Transformations du Vermillion Bird augmente de plusieurs fois à chaque transformation. Cependant, ce sort est extrêmement difficile à cultiver et très peu d'Empereurs Divins du Vermillion Bird ont réussi à l'atteindre jusqu'à son apogée. » Derrière Wang Lin, le vieil homme leva sa main droite et pointa le dos de ce dernier.
+« Le pouvoir de la Neuf Mystérieuses Transformations du Oiseau Vermillon augmente de plusieurs fois à chaque transformation. Cependant, ce sort est extrêmement difficile à cultiver et très peu d'Empereurs Divins du Oiseau Vermillon ont réussi à l'atteindre jusqu'à son apogée. » Derrière Wang Lin, le vieil homme leva sa main droite et pointa le dos de ce dernier.
 
 Une vague d'énergie d'origine entra immédiatement dans le corps de Wang Lin en provenance du vieil homme.
 
-« Avec ton niveau de culture actuel, tes deux éveils, l'apparition du Vermillion Bird blanc et l'armure de flamme du Vermillion Bird, tu devrais être capable de maîtriser la première transformation! »
+« Avec ton niveau de culture actuel, tes deux éveils, l'apparition du Oiseau Vermillon blanc et l'armure de flamme du Oiseau Vermillon, tu devrais être capable de maîtriser la première transformation! »
 
 Soudain, toutes les flammes entourant Wang Lin se propagèrent vers l'extérieur. Des vagues de craquements retentirent alors dans les environs, tel un tonnerre rugissant qui résonnait à travers le champ d'étoiles.
 
-Sur l'une des Planètes Divines du Vermillion Bird, s'élevait une montagne perçant le ciel. Cette montagne était recouverte de flammes et brûlait sans cesse. Curieusement, une végétation y poussait; bien qu'elle ne fût pas verte, des arbres rouge pourpre couvraient les flancs de la montagne.
+Sur l'une des Planètes Divines du Oiseau Vermillon, s'élevait une montagne perçant le ciel. Cette montagne était recouverte de flammes et brûlait sans cesse. Curieusement, une végétation y poussait; bien qu'elle ne fût pas verte, des arbres rouge pourpre couvraient les flancs de la montagne.
 
 Une brise légère, chargée d'une vague de chaleur, souffla en faisant bruisser les feuilles. Combiné au tonnerre rugissant, l'ensemble possédait un certain charme.
 
@@ -36,7 +36,7 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 C'était Da Tou!
 
-Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divin du Vermillion Bird, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
+Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divin du Oiseau Vermillon, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
 
 Da Tou devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
@@ -50,9 +50,9 @@ Au moment où le tonnerre rugissant passa, la tempête s'arrêta soudainement, r
 
 Le corps de cet homme était immense, comme une véritable montagne de chair. En ce moment, il était couvert de sueur, mais cette montagne de chair ne semblait nullement diminuer de volume.
 
-Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein de la Secte Divin du Vermillion Bird est bien plus sûr que l'extérieur. »
+Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein de la Secte Divin du Oiseau Vermillon est bien plus sûr que l'extérieur. »
 
-« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Sundered Night* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Ancient Times*.
+« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Nuit Brisée* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Ancient Times*.
 
 En repensant au poing géant descendant du ciel, la peur de Maître Fu Fengzi devint encore plus intense.
 
@@ -72,13 +72,13 @@ Lorsque le tonnerre grondant traversa le ciel, l'homme ouvrit les yeux et une qu
 
 « Cet endroit maudit est trop chaud! Si ce n'était pas pour mon frère, je serais déjà parti depuis longtemps! » L'homme serra la glace encore plus fort, absorbant d'immenses quantités d'énergie froide.
 
-À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Briseur du Nirvana de la Secte Divin du Vermillion Bird. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
+À cet instant précis, un rayon de lumière rouge surgit du lointain. À mesure qu'il approchait, il se mua en l'un des anciens du Briseur du Nirvana de la Secte Divin du Oiseau Vermillon. Arrivé sur place, il fronça les sourcils et frappa le vide de sa main droite.
 
 Dans un bruit sourd, l'homme fut arraché à la glace et s'écrasa au sol.
 
 « Petit Situ, ce vieil homme a reçu l'ordre de l'Empereur Divin de libérer la toxine dans ton corps, tu dois donc écouter mes ordres. Sinon, ne me reproche pas de te donner une leçon! »
 
-Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divin du Vermillion Bird, il lui aurait été impossible de tenir deux ans.
+Cet homme était Situ Nan. Il avait été gravement blessé sur la Terre des Esprits Démoniaques, ce qui avait provoqué l'éruption de son poison. Sans la Secte Divin du Oiseau Vermillon, il lui aurait été impossible de tenir deux ans.
 
 Cependant, ces deux années furent extrêmement douloureuses pour lui. L'une des causes de sa souffrance était ce vieil homme exaspérant. Peu importait les tentatives de Situ Nan pour discuter avec lui, cela ne servait à rien. Le vieil homme semblait avoir le cœur de pierre et restait toujours à moins de mille pieds de Situ Nan. Chaque fois que Situ Nan perdait sa concentration, un sort lui était décoché.
 
@@ -96,7 +96,7 @@ Wang Lin prit une profonde inspiration. Tandis qu'il le faisait, sa main traça 
 
 Le vieil homme derrière Wang Lin devint encore plus pâle et l'aura de mort qui l'entourait s'intensifia. Il dit d'une voix rauque: « Je crains de ne pas pouvoir tenir beaucoup plus longtemps... »
 
-« J'espère que tu réussiras la première transformation avant ma mort. Ainsi, je pourrai partir l'esprit tranquille en te transmettant la Secte Divin du Vermillion Bird... Ce n'est qu'après avoir maîtrisé la première transformation que tu pourras contrôler le Trésor Sacré de la Secte Divin du Vermillion Bird. »
+« J'espère que tu réussiras la première transformation avant ma mort. Ainsi, je pourrai partir l'esprit tranquille en te transmettant la Secte Divin du Oiseau Vermillon... Ce n'est qu'après avoir maîtrisé la première transformation que tu pourras contrôler le Trésor Sacré de la Secte Divin du Oiseau Vermillon. »
 
 La main de Wang Lin revint à sa position initiale alors qu'il restait assis là. L'énergie brûlante circulait dans les méridiens de son corps. Il expira ensuite un souffle chaud et ouvrit les yeux.
 
@@ -104,9 +104,9 @@ Il était impossible de décrire la nature de ce regard; on ne pouvait que le co
 
 Wang Lin dit calmement: « L'Empereur Divin peut être serein. Je ferai de mon mieux. »
 
-« Vous avez dit que vous soupçonniez l'Empereur Divin Azure Dragon d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
+« Vous avez dit que vous soupçonniez l'Empereur Divin Dragon Azure d'être piégé dans le Royaume Céleste de la Pluie. Cette affaire est de grande envergure... mais l'ouverture du Royaume Céleste de la Pluie est contrôlée par l'Alliance de Culture. Sans le Cristal du Royaume Céleste de la Pluie, il est impossible de l'ouvrir... »
 
-« Avec la puissance actuelle de nos quatre Sectes Divins, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je vous laisse le soin de secourir l'Empereur Divin Azure Dragon. »
+« Avec la puissance actuelle de nos quatre Sectes Divins, nous ne pouvons pas encore rivaliser avec l'Alliance de Culture. Je trouverai un moyen d'obtenir le Cristal du Royaume Céleste de la Pluie, mais je vous laisse le soin de secourir l'Empereur Divin Dragon Azure. »
 
 La voix du vieil homme était empreinte de fatigue. Survivre aussi longtemps l'avait épuisé tant physiquement que mentalement. Mais il ne pouvait pas simplement abandonner les quatre Sectes Divins, alors il tenait bon pour la cause. Il devait endurer chaque jour la douleur incessante de son troisième Fléau Céleste.
 

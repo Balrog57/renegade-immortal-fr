@@ -30,7 +30,7 @@ L'homme aux cheveux noirs fut stupéfait en voyant cette personne. Il comprit im
 
 Lorsqu'il était arrivé, il avait été instantanément saisi par le regard de Wang Lin, si bien qu'il n'avait rien vu d'autre. Maintenant qu'il avait inspecté ses environs, il fut une fois de plus choqué!
 
-« Une Bête du Tonnerre aux cornes argentées! Une marionnette Illusoire Yin! Il... il est aussi un messager du Temple Céleste du Tonnerre! » L'homme aux cheveux noirs peinait à le croire. Il ne doutait pas de l'identité de Wang Lin, mais il ne pensait pas qu'un être aussi puissant puisse être un simple messager du Temple Céleste du Tonnerre.
+« Une Bête du Tonnerre aux cornes argentées! Une marionnette Yin Illusoire! Il... il est aussi un messager du Temple Céleste du Tonnerre! » L'homme aux cheveux noirs peinait à le croire. Il ne doutait pas de l'identité de Wang Lin, mais il ne pensait pas qu'un être aussi puissant puisse être un simple messager du Temple Céleste du Tonnerre.
 
 Avant qu'il ne puisse trop réfléchir, Wang Lin ouvrit les yeux une fois de plus. Son regard était redevenu normal. Plus tôt, non seulement l'homme aux cheveux noirs avait été choqué, mais Wang Lin lui-même avait été surpris par ce qui venait de se passer.
 
@@ -66,7 +66,7 @@ Même la Bête du Tonnerre à ses côtés baissa la tête, perdant toute trace d
 
 Wang Lin détourna le regard et demanda calmement: « Que se passe-t-il? » Son état d'esprit était encore quelque peu imprégné par le rêve irréel; même son ton en témoignait.
 
-Bien que la culture de Shengong Hu fût au stade du Yang Corporel, son esprit était grandement ébranlé. En particulier, avec son cœur désormais craintif, il serait à peine capable d'utiliser le pouvoir d'un cultivateur Illusoire Yin.
+Bien que la culture de Shengong Hu fût au stade du Yang Corporel, son esprit était grandement ébranlé. En particulier, avec son cœur désormais craintif, il serait à peine capable d'utiliser le pouvoir d'un cultivateur Yin Illusoire.
 
 Quant à la Bête du Tonnerre, elle n'osait même pas lever la tête. Le regard précédent lui avait fait perdre tout courage.
 

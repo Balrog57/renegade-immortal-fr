@@ -22,7 +22,7 @@ Trois Portes du Vide apparurent simultanément dans le monde. De loin, ce specta
 
 « Il... Que diable fait-il? Après avoir déployé tant d'efforts pour ouvrir la Porte du Vide... »
 
-« Même parmi les Cinq Maîtres du Système Stellaire Ancien, je n'ai jamais entendu parler de quelqu'un capable de faire une telle chose... Le Seigneur du Domaine Scellé... Le Seigneur du Domaine Scellé... »
+« Même parmi les Cinq Maîtres du Système Stellaire Antique, je n'ai jamais entendu parler de quelqu'un capable de faire une telle chose... Le Seigneur du Domaine Scellé... Le Seigneur du Domaine Scellé... »
 
 L'expression de Wang Lin restait calme alors qu'il contemplait les trois Portes du Vide. Il fit un pas en avant et chargea comme une météorite vers elles, sous les yeux de tous.
 
@@ -108,9 +108,9 @@ Cette sixième Porte était radicalement différente des cinq autres; elle étai
 
 Près de dix mille personnes ne purent même pas pousser un cri avant de mourir de vieillesse sous l'effet de cette onde, pour ensuite tomber en poussière.
 
-« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était le Maître Céleste Void God et l'autre était le Maître South Cloud. Même le jeune homme en robe verte n'en avait jamais entendu parler.
+« La Porte des Dix Mille Os du Vide! » Seules deux personnes ici reconnurent cette porte. L'une était le Maître Céleste Dieu du Vide et l'autre était le Maître South Cloud. Même le jeune homme en robe verte n'en avait jamais entendu parler.
 
-« Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Le Maître Céleste Void God regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
+« Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Le Maître Céleste Dieu du Vide regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
 
 « La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre immense à franchir. Les êtres capables de déclencher cette porte sont extrêmement rares, mais tant qu'ils survivent, ils deviendront assurément de puissants maîtres à l'avenir! »
 

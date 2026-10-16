@@ -24,7 +24,7 @@ Face à cette crise imminente, il poussa un soupir et prit une décision radical
 
 À l'extérieur du réseau de transfert, les yeux du gardien céleste, piégé au sein de la mer de sang, brillèrent intensément. Cette lumière fut si éclatante qu'elle enveloppa tout son corps avant d'éclater dans une aura destructrice.
 
-C'était comme si une tempête se déclenchait dans le corps du gardien céleste, des rayons de lumière dorée jaillissant de lui tels des épées. L'auto-explosion d'un cultivateur de l'Illusoire Yin créa une force destructrice terrifiante qui permit au gardien céleste de s'extraire de l'emprise du sort de l'Ancêtre Sanguin.
+C'était comme si une tempête se déclenchait dans le corps du gardien céleste, des rayons de lumière dorée jaillissant de lui tels des épées. L'auto-explosion d'un cultivateur de l'Yin Illusoire créa une force destructrice terrifiante qui permit au gardien céleste de s'extraire de l'emprise du sort de l'Ancêtre Sanguin.
 
 Bien que le sort de l'Ancêtre Sanguin n'ait plus le contrôle total sur le gardien céleste, il demeurait extraordinaire. En le raffinant, il parvint à réduire la puissance de l'auto-explosion de près de 60 %.
 

@@ -60,7 +60,7 @@ Sa puissance atteignit son apogée!
 
 Dans un fracas assourdissant, Wang Lin s'élança vers la surface avec cette section de l'os. Le garde céleste passa immédiatement à ses côtés pour charger vers l'autre segment.
 
-En comparaison, le garde céleste qui se trouvait au stade Illusoire Yin et pratiquait une méthode similaire à celle des anciens dieux était bien plus puissant que Wang Lin. Il atteignit l'os en un éclair et l'agrippa à deux mains. Lorsque le garde tira sur l'autre section de l'os, la terre trembla avec une violence inouïe.
+En comparaison, le garde céleste qui se trouvait au stade Yin Illusoire et pratiquait une méthode similaire à celle des anciens dieux était bien plus puissant que Wang Lin. Il atteignit l'os en un éclair et l'agrippa à deux mains. Lorsque le garde tira sur l'autre section de l'os, la terre trembla avec une violence inouïe.
 
 Le grondement ressemblait au déversement d'innombrables éclairs. Alors que le garde céleste maintenait l'os, son corps irradiait une lueur dorée teintée de rouge. Il traîna l'os et suivit de près Wang Lin.
 

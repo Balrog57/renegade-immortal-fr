@@ -14,7 +14,7 @@ Au-dessus de la place de la Secte du Destin Céleste, Bai Wei contemplait le cie
 
 « Wang Lin… Même si tu n'es pas mort durant toutes ces années, tu n'as sûrement pas beaucoup progressé. Je me demande seulement à quel point tu seras plus faible que moi, Zhao Xingsha! »
 
-Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce frère aîné. La culture de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Illusoire Yin!
+Bai Wei jeta un regard prudent vers l'homme d'âge moyen, éprouvant une profonde crainte envers ce frère aîné. La culture de Zhao Xingsha avait considérablement progressé durant sa retraite méditative. Il avait franchi le stade Ascendant et n'était plus qu'à un pas de l'Yin Illusoire!
 
 « Zhao Xingsha est devenu l'un des sept véritables disciples de l'Omniscient il y a trente ans. Il entretient une querelle avec Wang Lin; lorsqu'ils se rencontreront, il lui sera difficile de contenir son intention meurtrière. »
 

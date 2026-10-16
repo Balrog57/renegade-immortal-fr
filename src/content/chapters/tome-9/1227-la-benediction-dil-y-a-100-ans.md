@@ -96,13 +96,13 @@ Après le départ de Wang Lin, la paume du Royaume aux Sept Couleurs s'effondra 
 
 « Yue Er... » La voix ancienne s'évanouit peu à peu...
 
-À ce moment précis, au plus profond du Système Stellaire Ancien, résidait une famille nommée le Clan de la Soie Bleue. Ce clan occupait un domaine stellaire infini. Dans ce domaine se trouvait une planète d'apparence ordinaire, sur laquelle trônait une montagne enveloppée de lueurs bleues. Les mortels locaux l'appelaient la Montagne Bleue.
+À ce moment précis, au plus profond du Système Stellaire Antique, résidait une famille nommée le Clan de la Soie Bleue. Ce clan occupait un domaine stellaire infini. Dans ce domaine se trouvait une planète d'apparence ordinaire, sur laquelle trônait une montagne enveloppée de lueurs bleues. Les mortels locaux l'appelaient la Montagne Bleue.
 
 Une simple chaumière se trouvait au sommet de la montagne, oscillant doucement sous la brise. La porte s'ouvrit et un homme d'âge moyen au visage fatigué en sortit. Il leva les yeux vers le ciel et sa vue se troubla, comme si des larmes menaçaient de couler. Ses cheveux étaient bleus... Il contemplait l'azur, rempli de mélancolie.
 
-Si un habitant du Système Stellaire Ancien avait vu cela, il en aurait été stupéfait. L'un des cinq maîtres du Système Stellaire Ancien, le Maître Dao du Rêve Bleu, pouvait avoir un instant où il perdait le contrôle de ses émotions.
+Si un habitant du Système Stellaire Antique avait vu cela, il en aurait été stupéfait. L'un des cinq maîtres du Système Stellaire Antique, le Maître Dao du Rêve Bleu, pouvait avoir un instant où il perdait le contrôle de ses émotions.
 
-Le Maître Dao du Rêve Bleu était une légende dans le Système Stellaire Ancien. Le Clan de la Soie Bleue n'était qu'une petite famille, mais grâce à cet homme qui avait balayé le système, le clan était devenu un géant que nul n'osait provoquer!
+Le Maître Dao du Rêve Bleu était une légende dans le Système Stellaire Antique. Le Clan de la Soie Bleue n'était qu'une petite famille, mais grâce à cet homme qui avait balayé le système, le clan était devenu un géant que nul n'osait provoquer!
 
 « Meng Er, notre fille est née de nouveau... Elle portait ton bracelet avant d'entrer dans le cycle des réincarnations, et il porte la bénédiction de ton Clan du Rêve des Nuages qu'elle a héritée de toi. Si elle ne l'avait pas donné personnellement, même si quelqu'un d'autre avait reçu le bracelet, sa bénédiction n'aurait pas surgi », murmura l'homme pour lui-même, plongé dans ses souvenirs.
 
@@ -112,17 +112,17 @@ Après un long moment, des ondulations apparurent et se déformèrent. Un vieil 
 
 « Disparais! »
 
-L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un disciple du Souverain, face à l'un des cinq maîtres du Système Stellaire Ancien, il n'osait faire preuve de présomption. Il retourna immédiatement dans les ondulations et disparut sans laisser de trace.
+L'esprit du vieil homme trembla et il n'osa plus rien dire. Bien qu'il fût un disciple du Souverain, face à l'un des cinq maîtres du Système Stellaire Antique, il n'osait faire preuve de présomption. Il retourna immédiatement dans les ondulations et disparut sans laisser de trace.
 
 « Si cet enfant n'avait aucun lien avec Yue Er, tout irait bien, mais comment pourrais-je blesser quelqu'un qui apportera le bonheur à notre fille... Et qu'importe s'il possède la Perle Défiant le Ciel? J'ai obtenu ma culture par moi-même sans dépendre d'objets extérieurs. Que la cupidité du Souverain me regarde-t-elle? De plus, la Perle Défiant le Ciel appartenait autrefois au Seigneur du Domaine Scellé. Si je suis incapable de briser le sceau, cela pourrait ne pas être une bénédiction, mais une catastrophe. Le Seigneur du Domaine Scellé en est la preuve! Quant au sceau... c'est difficile, difficile, difficile!
 
 « C'est le Seigneur du Domaine Scellé qui a ouvert les neuf Royaumes aux Sept Couleurs, avant qu'ils ne soient repris par mon peuple. Je n'avais que la puissance de cette unique paume, et après cela, j'ai dû me retirer. Bien que le Souverain soit en culture de porte close depuis des dizaines de milliers d'années, ses complots sont trop profonds. Lorsqu'il m'a ordonné d'attaquer, je crains qu'il n'y ait eu un autre dessein!
 
-« Lorsque le Souverain entra dans le Domaine Scellé autrefois, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Ancien inspire encore la crainte chaque fois qu'on y pense.
+« Lorsque le Souverain entra dans le Domaine Scellé autrefois, il s'en échappa lourdement blessé. L'avertissement qui parcourut tout le Système Stellaire Antique inspire encore la crainte chaque fois qu'on y pense.
 
 « Le lieu où sont plantées les Fleurs aux Sept Couleurs a été scellé par le Souverain. À part le gardien, personne ne peut y pénétrer avec son corps réel. Il prétend que c'est pour éviter de perturber l'intention du Dao et permettre la croissance ininterrompue des fleurs, mais quelle est la véritable raison?
 
-« De plus, cet enfant n'est pas ordinaire. Sa puissance fait trembler le ciel et il possède le corps d'un Dieu Ancien Royal. Son caractère ressemble au mien; avec sa puissance actuelle, il a réussi l'incroyable de briser quatre de mes doigts. Parmi tous les jeunes, même dans le Système Stellaire Ancien, il serait considéré comme le plus puissant. S'il dispose de suffisamment de temps, il atteindra certainement les Royaumes du Vide. Il bénéficie aussi de la bénédiction et du soutien de Yue Er. J'ai fait du tort à Yue Er dans sa vie passée, et dans cette vie, je ne laisserai personne lui nuire... Je soutiendrai celui qu'elle soutient! Même le Souverain ne pourra m'arrêter! »
+« De plus, cet enfant n'est pas ordinaire. Sa puissance fait trembler le ciel et il possède le corps d'un Dieu Ancien Royal. Son caractère ressemble au mien; avec sa puissance actuelle, il a réussi l'incroyable de briser quatre de mes doigts. Parmi tous les jeunes, même dans le Système Stellaire Antique, il serait considéré comme le plus puissant. S'il dispose de suffisamment de temps, il atteindra certainement les Royaumes du Vide. Il bénéficie aussi de la bénédiction et du soutien de Yue Er. J'ai fait du tort à Yue Er dans sa vie passée, et dans cette vie, je ne laisserai personne lui nuire... Je soutiendrai celui qu'elle soutient! Même le Souverain ne pourra m'arrêter! »
 
 L'homme leva les yeux vers le ciel, les larmes coulant sur son visage.
 

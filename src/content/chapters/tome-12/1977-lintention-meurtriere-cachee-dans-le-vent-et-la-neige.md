@@ -58,7 +58,7 @@ L'Empereur Céleste fronça les sourcils et rugit: « Gardes de l'Armure Noire, 
 
 « Attends un peu. Tu as osé blesser le grand-père de Little Flower. Ce Roi s'en souviendra... » La voix du jeune homme à la chemise fleurie s'estompa lentement. Lorsque Wang Lin ouvrit les yeux, le fou avait disparu — il ne restait qu'un éclat de lumière provenant du réseau de transfert.
 
-« Dao Fei est ainsi depuis son retour. Parfois sa mémoire est floue, parfois elle est claire. Peut-être te reconnaîtra-t-il lorsque ses souvenirs reviendront », soupira l'Empereur Céleste. À cet instant, il n'était ni un Grand Empyre, ni l'Empereur Céleste, mais un frère aîné.
+« Dao Fei est ainsi depuis son retour. Parfois sa mémoire est floue, parfois elle est claire. Peut-être te reconnaîtra-t-il lorsque ses souvenirs reviendront », soupira l'Empereur Céleste. À cet instant, il n'était ni un Grand Empyréen, ni l'Empereur Céleste, mais un frère aîné.
 
 Wang Lin réfléchit en silence. Il était venu dans la cité ancestrale pour voir le fou. Même si celui-ci avait perdu la mémoire, Wang Lin n'avait aucun regret. Désormais, il voulait partir.
 
@@ -66,7 +66,7 @@ Wang Lin réfléchit en silence. Il était venu dans la cité ancestrale pour vo
 
 « Puisque tu possèdes des cheveux blancs et que tu as obtenu la mèche blanche de la Bête Lion Céleste, je te décerne le titre d'Ascendant Empyrée aux Cheveux Blancs! »
 
-« Tous les Ascendants Empyrées du clan céleste ont la possibilité d'entrer dans le lieu de culture clos de l'Ancêtre Céleste. Là-bas, tu recevras une immense fortune et jetteras des bases solides pour devenir un Grand Empyre! »
+« Tous les Ascendants Empyréens du clan céleste ont la possibilité d'entrer dans le lieu de culture clos de l'Ancêtre Céleste. Là-bas, tu recevras une immense fortune et jetteras des bases solides pour devenir un Grand Empyréen! »
 
 « Même ton niveau de culture y augmentera considérablement. Une personne possédant la lignée impériale n'a que trois chances d'y accéder au cours de sa vie. Quant à ceux qui ne possèdent pas cette lignée, ils ne pourront prétendre à cette chance qu'après avoir atteint le stade d'Ascendant Empyrée! »
 
@@ -102,7 +102,7 @@ La voix qui s'éleva n'était ni pressée ni lente, elle était d'une grande dou
 
 « Vous êtes venu dans la cité ancestrale, pourquoi ne pas être allé au Mont de l'Empereur... Aujourd'hui, le Mont de l'Empereur n'a pas ses feuilles rouges, mais il est couvert de neige. Wang Lin, je suis venue sur ordre du Maître pour vous inviter au Mont de l'Empereur. »
 
-« Puisque le Grand Empyre Jiu Di m'y invite, j'irai naturellement », répondit Wang Lin avec un léger sourire.
+« Puisque le Grand Empyréen Jiu Di m'y invite, j'irai naturellement », répondit Wang Lin avec un léger sourire.
 
 À travers la tempête, la lumière lunaire perçait les nuages. La neige s'accumulait tandis que les passants pressaient le pas, mais bientôt, la rue se vida. Wang Lin et Hai Zi affrontèrent la neige en descendant la rue. Ils laissèrent derrière eux quatre longues traînées d'empreintes qui furent rapidement ensevelies par la poudreuse.
 

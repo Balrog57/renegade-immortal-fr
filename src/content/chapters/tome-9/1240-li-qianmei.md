@@ -76,11 +76,11 @@ Alors que la lumière blanche approchait, elle ralentit, permettant à tous les 
 
 Li Qianmei!
 
-De la Secte Heaven Breaking de rang 9!
+De la Secte Brise-Ciel de rang 9!
 
 Un tumulte soudain éclata alors que près de cent mille cultivateurs présents reconnurent instantanément l'identité de la femme aux cheveux bleus!
 
-« Il s'agit de Li Qianmei de la Secte Heaven Breaking! Je ne pensais pas que la compétition de la Secte Éternelle attirerait sa présence! »
+« Il s'agit de Li Qianmei de la Secte Brise-Ciel! Je ne pensais pas que la compétition de la Secte Éternelle attirerait sa présence! »
 
 « Les rumeurs disaient qu'elle combattait la marée de bêtes au Secteur Démon. Il est inattendu qu'elle l'ait quitté pour venir ici! »
 
@@ -90,7 +90,7 @@ Les murmures se propagèrent sur toute la plateforme avec l'apparition de Li Qia
 
 Lu Yingjie vit également Li Qianmei, perchée haut dans le ciel, et ses yeux s'illuminèrent. Il connaissait Li Qianmei; elle lui avait autrefois posé trois questions.
 
-Même Zhao Long, aux côtés de Liu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Heaven Breaking de rang 9. Que ce soit son niveau de culture ou sa secte, il n'était pas de son rang.
+Même Zhao Long, aux côtés de Liu Yingjie, devint sérieux en levant les yeux. Il respectait Li Qianmei, issue de la Secte Brise-Ciel de rang 9. Que ce soit son niveau de culture ou sa secte, il n'était pas de son rang.
 
 L'homme chargé de la compétition aujourd'hui était un vieil homme nommé Feng Hai, accompagné de six autres Anciens de la Secte Éternelle. Ayant senti la présence de Li Qianmei, il s'élança immédiatement avec les Anciens et une trentaine de disciples. Ils furent suivis par les cent personnes responsables de l'événement.
 

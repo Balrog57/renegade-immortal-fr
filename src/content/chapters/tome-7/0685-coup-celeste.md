@@ -100,7 +100,7 @@ Les descendants de la famille Huan restèrent silencieux un instant avant de se 
 
 L'ancêtre des Huan laissa échapper un sourire lugubre en contemplant la foule, puis dit lentement: « Bande d'ordures! » Sur ce, il leva les yeux vers Wang Lin. Sa main droite traça un sceau et il hurla: « Jade de la Bonne Fortune, tue cet homme! »
 
-La silhouette formée par le jade commença à marcher pas à pas vers Wang Lin. À chaque mouvement, une quantité inimaginable d'énergie spirituelle céleste jaillissait de l'entité. Cette énergie était si dense qu'elle supprima totalement l'énergie spirituelle sur la planète Thousand Illusion, provoquant des explosions partout sur le globe.
+La silhouette formée par le jade commença à marcher pas à pas vers Wang Lin. À chaque mouvement, une quantité inimaginable d'énergie spirituelle céleste jaillissait de l'entité. Cette énergie était si dense qu'elle supprima totalement l'énergie spirituelle sur la planète Mille Illusions, provoquant des explosions partout sur le globe.
 
 La marionnette du garde céleste apparut en un éclair aux côtés de Wang Lin. La Bête du Tonnerre fit de même.
 
@@ -112,7 +112,7 @@ L'ancêtre des Huan ricana: « Jeune homme, je veux voir quels autres moyens tu 
 
 À cet instant, Liu Mei leva la tête vers Wang Lin. Ses yeux étaient encore empreints d'émotions complexes. Elle effleura son sac de rangement avant de baisser les mains.
 
-Le regard de Wang Lin était d'un calme absolu. S'il avait osé venir seul, s'il avait osé fouler le sol de la planète Thousand Illusion et se frayer un chemin jusqu'aux Huan, c'était à cause de cette idée folle qui l'habitait. Et en cet instant, il s'apprêtait à utiliser son coup mortel le plus puissant.
+Le regard de Wang Lin était d'un calme absolu. S'il avait osé venir seul, s'il avait osé fouler le sol de la planète Mille Illusions et se frayer un chemin jusqu'aux Huan, c'était à cause de cette idée folle qui l'habitait. Et en cet instant, il s'apprêtait à utiliser son coup mortel le plus puissant.
 
 En pensant à l'esprit vengeur logé dans la perle défiant le ciel, le cœur de Wang Lin fut traversé par une vague de douleur.
 

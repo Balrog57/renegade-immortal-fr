@@ -8,7 +8,7 @@ slug: fusion-de-lesprit-véritable
 ---
 L'Alliance de la Culture tout entière sembla trembler sous ce rugissement. Seul un homme arriva calmement devant le siège de l'Alliance. Il fixait froidement l'horizon, une lumière rouge représentant le Royaume du Ji scintillant dans son œil droit alors qu'il pénétrait à l'intérieur.
 
-À l'instant même où Sundered Night disparut et que Wang Lin réapparut dans les Terres de l'Esprit Démoniaque, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
+À l'instant même où Nuit Brisée disparut et que Wang Lin réapparut dans les Terres de l'Esprit Démoniaque, le chaos infini de la 18e couche de son Sceau Céleste des 18 Enfers fut transpercé par une puissance inimaginable, et trois âmes apparurent à l'intérieur!
 
 L'âme du Maître Vide lors de sa première Affliction Céleste, l'avatar aux robes violettes de l'Omniscient, et l'avatar aux robes jaunes de l'Omniscient!
 
@@ -20,7 +20,7 @@ Tuer trois personnes et réduire une quatrième à un simple vestige de volonté
 
 Le visage livide de Wang Lin affichait une expression terrifiante alors qu'il lançait un regard glacial à l'Omniscient et à ses avatars. L'épée de sang était toujours plantée dans sa poitrine, emprisonnée dans sa chair. Le sang s'écoulait de la blessure, teintant ses vêtements d'un rouge vif.
 
-Les trois grands avatars de l'Omniscient étaient désespérés, mais Wang Lin l'était tout autant. S'il ne l'avait pas été, il serait déjà mort! Bien que Sundered Night n'ait consommé aucune énergie d'origine lors de son utilisation à l'aube, les ennemis auxquels Wang Lin faisait face étaient trop puissants. Malgré l'absence de dépense d'énergie d'origine, son âme originelle s'était considérablement affaiblie.
+Les trois grands avatars de l'Omniscient étaient désespérés, mais Wang Lin l'était tout autant. S'il ne l'avait pas été, il serait déjà mort! Bien que Nuit Brisée n'ait consommé aucune énergie d'origine lors de son utilisation à l'aube, les ennemis auxquels Wang Lin faisait face étaient trop puissants. Malgré l'absence de dépense d'énergie d'origine, son âme originelle s'était considérablement affaiblie.
 
 À cet instant, l'aura qui émanait des paroles de Wang Lin était assez imposante pour réduire l'Omniscient au silence.
 
@@ -74,7 +74,7 @@ Lorsque les six anciens aperçurent Wang Lin, leurs visages exprimèrent un mél
 
 Leur excitation venait du fait qu'ils avaient parcouru tout ce chemin pour protéger l'être qui s'était éveillé. En voyant que Wang Lin était sain et sauf, ils poussèrent tous un soupir de soulagement.
 
-Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au moment où la loi d'origine apparut, ils furent eux aussi entraînés dans l'illusion de Sundered Night. Après avoir subi un sortilège aussi terrifiant, comment ne pas être stupéfaits?
+Cependant, ce qui les choqua, c'est que bien qu'ils fussent à l'extérieur, au moment où la loi d'origine apparut, ils furent eux aussi entraînés dans l'illusion de Nuit Brisée. Après avoir subi un sortilège aussi terrifiant, comment ne pas être stupéfaits?
 
 Une trace de crainte se mêlait à ce choc! Si ces six-là étaient ainsi affectés, qu'en serait-il des centaines d'autres membres de la Secte Divin de l'Oiseau Vermillon? Ils regardaient tous Wang Lin avec un fanatisme ardent. S'il n'y avait pas d'imprévu, cet homme serait leur prochain Empereur Divin!
 

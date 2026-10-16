@@ -8,11 +8,11 @@ slug: ame-dissimulee
 ---
 Chapitre 1832 - Âme Dissimulée!
 
-Au plus profond de la Grande Secte de l'Âme se dressait une montagne qui perçait les cieux. D'un vert éclatant, elle semblait d'une hauteur vertigineuse, comme si elle soutenait le monde entier. C’était une terre interdite de la Grande Secte de l'Âme; le lieu où résidait l'Ancêtre Vert Taureau.
+Au plus profond de la Grande Secte de l'Âme se dressait une montagne qui perçait les cieux. D'un vert éclatant, elle semblait d'une hauteur vertigineuse, comme si elle soutenait le monde entier. C’était une terre interdite de la Grande Secte de l'Âme; le lieu où résidait l'Ancêtre Taureau Vert.
 
 Wang Lin vola rapidement. Toutes les restrictions qui se dressaient devant lui résonnèrent, mais aucune ne parvint à l'arrêter. Il s'arrêta devant le Pic du Ciel Vert et joignit les mains. Sa voix résonna distinctement vers la montagne:
 
-« C’est le Jeune Wang Lin. Le Senior Vert Taureau est-il présent? »
+« C’est le Jeune Wang Lin. Le Senior Taureau Vert est-il présent? »
 
 La Montagne du Ciel Vert trembla et toutes les restrictions environnantes disparurent. Une voix ancienne s'éleva de la montagne:
 
@@ -22,11 +22,11 @@ Inconsciemment, Wang Lin déploya son Sens Divin pour scanner la montagne. Bien 
 
 « C’est une montagne formée par un trésor... » Wang Lin fendit les nuages en direction du sommet et atteignit bientôt le pic.
 
-Au Pic du Ciel Vert, l'Estimé Vert Taureau était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
+Au Pic du Ciel Vert, l'Estimé Taureau Vert était assis, sa robe verte flottant au vent avec ses longs cheveux blancs. Wang Lin resta calme lorsqu'il arriva face à lui et prit place.
 
 Une fois installé, Wang Lin prit la parole lentement: « Le Dao de l’Œil de l'Âme est en effet extraordinaire. Après 178 000 ans de culture, il pourrait peut-être rivaliser avec l'Instructeur Impérial Céleste. J'admire la profondeur de la Grande Secte de l'Âme. »
 
-En entendant cela, l'Estimé Vert Taureau rit. Il ne semblait nullement embarrassé, mais plutôt serein.
+En entendant cela, l'Estimé Taureau Vert rit. Il ne semblait nullement embarrassé, mais plutôt serein.
 
 « Oui, les paroles de l'Ancien Wang sont justes. Entrer dans ma Grande Secte de l'Âme et s'en enorgueillir immédiatement est une excellente chose. En fait, ce vieil homme pense la même chose. Si quelqu'un pouvait réellement s'isoler en culture pendant 178 000 ans pour porter le Dao de l’Œil de l'Âme à sa perfection, il aurait véritablement le pouvoir de rivaliser avec l'Instructeur Impérial! »
 
@@ -34,11 +34,11 @@ En entendant cela, l'Estimé Vert Taureau rit. Il ne semblait nullement embarras
 
 « Haha! Quoi qu'il en soit, ce vieil homme n'a jamais entendu parler de quiconque au sein de la Grande Secte de l'Âme ayant maîtrisé le Dao de l’Œil de l'Âme. Même l'ancêtre de la première génération n'avait réussi qu'à atteindre 4,1 milliards d'inscriptions. »
 
-« Cependant, le talent de l'Ancien Wang est prodigieux et vous avez traversé bien des épreuves. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Grande Secte de l'Âme. » L'Estimé Vert Taureau sourit en parlant.
+« Cependant, le talent de l'Ancien Wang est prodigieux et vous avez traversé bien des épreuves. Peut-être trouverez-vous un moyen de maîtriser le plus grand sort de ma Grande Secte de l'Âme. » L'Estimé Taureau Vert sourit en parlant.
 
-« Foutaises! » Wang Lin ne fit preuve d'aucune politesse. Il parlait rarement ainsi, mais il trouvait l'expression actuelle de l'Estimé Vert Taureau tout simplement trop malveillante.
+« Foutaises! » Wang Lin ne fit preuve d'aucune politesse. Il parlait rarement ainsi, mais il trouvait l'expression actuelle de l'Estimé Taureau Vert tout simplement trop malveillante.
 
-Après cette remarque, l'Estimé Vert Taureau fut un instant surpris. Il ne s'attendait pas à une telle réponse. Après avoir cligné des yeux, il se sentit effectivement un peu coupable et esquissa un sourire malicieux.
+Après cette remarque, l'Estimé Taureau Vert fut un instant surpris. Il ne s'attendait pas à une telle réponse. Après avoir cligné des yeux, il se sentit effectivement un peu coupable et esquissa un sourire malicieux.
 
 « Peu importe, ne parlons plus de cela. La Grande Secte de l'Âme a préparé trois cadeaux pour vous. Ils devraient vous être d'une grande utilité! » Sur ces mots, il agita la main droite et trois lueurs apparurent. Trois boîtes volèrent alors vers Wang Lin.
 
@@ -46,13 +46,13 @@ Wang Lin agita sa manche et rangea les trois coffrets sans même les regarder.
 
 « Faudra-t-il attendre 178 000 ans avant que je puisse les ouvrir? »
 
-L'Ancêtre Vert Taureau toussa et répondit rapidement: « Ce vieil homme l'ignore. Ces trois cadeaux furent préparés par l'ancêtre de la première génération et ont été transmis de génération en génération. Ils sont désormais à vous. Quant à leur contenu, je l'ignore. Si quoi que ce soit ne va pas, ne venez pas me voir... »
+L'Ancêtre Taureau Vert toussa et répondit rapidement: « Ce vieil homme l'ignore. Ces trois cadeaux furent préparés par l'ancêtre de la première génération et ont été transmis de génération en génération. Ils sont désormais à vous. Quant à leur contenu, je l'ignore. Si quoi que ce soit ne va pas, ne venez pas me voir... »
 
-Voyant Wang Lin froncer les sourcils, l'Estimé Vert Taureau se leva et pointa le ciel de sa main droite. Une déchirure apparut au-delà de la montagne, telle une gigantesque faille spatiale. À l'intérieur de cette brèche se trouvait un autre espace vaste, abritant un immense pavillon à neuf étages.
+Voyant Wang Lin froncer les sourcils, l'Estimé Taureau Vert se leva et pointa le ciel de sa main droite. Une déchirure apparut au-delà de la montagne, telle une gigantesque faille spatiale. À l'intérieur de cette brèche se trouvait un autre espace vaste, abritant un immense pavillon à neuf étages.
 
 Le pavillon était enveloppé d'une brume épaisse et semblait y planer. Une pression d'âme s'échappait de la faille; Wang Lin ressentait déjà la pression sans même y être entré.
 
-« Ce vieil homme doit encore affiner un fourneau de pilules. Vous pouvez entrer dans le Pavillon des Écritures de l'Âme et choisir un sort. La règle établie depuis des générations est que vous ne pouvez en choisir qu'un seul. Si vous souhaitez y retourner, vous devrez accomplir des tâches pour la secte! » Après avoir parlé, l'Estimé Vert Taureau partit prestement et disparut.
+« Ce vieil homme doit encore affiner un fourneau de pilules. Vous pouvez entrer dans le Pavillon des Écritures de l'Âme et choisir un sort. La règle établie depuis des générations est que vous ne pouvez en choisir qu'un seul. Si vous souhaitez y retourner, vous devrez accomplir des tâches pour la secte! » Après avoir parlé, l'Estimé Taureau Vert partit prestement et disparut.
 
 Wang Lin se leva, ignorant le départ de son interlocuteur. Il observa la faille, réfléchit un instant, puis s'y engagea.
 
@@ -75,7 +75,7 @@ Tandis que Wang Lin l'observait, la bête s'anima brusquement. L'espace environn
 
 Les yeux de Wang Lin s'illuminèrent. Il comprit que cette statue abritait l'âme d'une créature extrêmement puissante, scellée en elle. Cette âme avait fusionné avec la pierre et pouvait se manifester sous divers sorts.
 
-Wang Lin leva la main droite et le jade qu'avait fourni l'Estimé Vert Taureau apparut. Il ne sentit qu'un souffle rapide, puis vit un éclair rouge avant que le jade ne disparaisse sans laisser de trace. La gueule de la statue sembla mâcher, puis, un instant plus tard, elle recracha le jade.
+Wang Lin leva la main droite et le jade qu'avait fourni l'Estimé Taureau Vert apparut. Il ne sentit qu'un souffle rapide, puis vit un éclair rouge avant que le jade ne disparaisse sans laisser de trace. La gueule de la statue sembla mâcher, puis, un instant plus tard, elle recracha le jade.
 
 « Tu peux entrer dans le Pavillon des Écritures de l'Âme et choisir un sort! » La statue de pierre envoya ce message par Sens Divin avant de s'immobiliser. La distorsion spatiale disparut et elle reprit son apparence de statue normale.
 

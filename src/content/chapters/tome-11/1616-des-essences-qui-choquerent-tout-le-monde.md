@@ -112,7 +112,7 @@ Les milliers de cultivateurs du Royaume Intérieur les suivirent. En un instant,
 
 C’est alors qu'un reniflement glacial retentit au loin. Un nuage de brume violette apparut de nulle part. Trop rapide, il s'engouffra instantanément sur le champ de bataille et percuta le Maître South Cloud qui combattait le jeune homme en vert. Un fracas tonitruant éclata et le visage du Maître South Cloud devint livide. Déjà blessé, il fut projeté vers la planète Suzaku par l'impact.
 
-« L'un des Cinq Maîtres du Système Stellaire Ancien! Vite, repliez-vous vers la planète Suzaku et résistez avec la formation! »
+« L'un des Cinq Maîtres du Système Stellaire Antique! Vite, repliez-vous vers la planète Suzaku et résistez avec la formation! »
 
 À peine eut-il parlé que la brume violette balaya Situ Nan, le Maître Long Pan et le Maître Lu Fu. Le Maître Lu Fu cracha une importante quantité de sang et fut repoussé; son corps s'effondra et son âme originelle, très affaiblie, s'enfuit précipitamment.
 

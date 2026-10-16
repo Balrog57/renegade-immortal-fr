@@ -78,7 +78,7 @@ Alors que les cultivateurs du Royaume Extérieur étaient encore sous le choc de
 
 Dès que les couvercles brisèrent, de longs cheveux noirs se déployèrent hors des cercueils comme des mauvaises herbes. En un clin d'œil, cette chevelure noire envahit l'espace interstellaire.
 
-« Dieu Empereur Ancien qui as gardé mon Système Stellaire Ancien pendant d'innombrables années, ton corps fut divisé en neuf parties. Aujourd'hui, les neuf reviendront à l'unité. J'invoque ton âme immortelle pour détruire cette formation et tuer cet homme! » Les cinq cultivateurs du troisième stade s'agenouillèrent et s'inclinèrent simultanément. Ils mordirent la pointe de leur langue et crachèrent leur sang essentiel, lequel fut immédiatement absorbé par les neuf cercueils recouverts de cheveux.
+« Dieu Empereur Ancien qui as gardé mon Système Stellaire Antique pendant d'innombrables années, ton corps fut divisé en neuf parties. Aujourd'hui, les neuf reviendront à l'unité. J'invoque ton âme immortelle pour détruire cette formation et tuer cet homme! » Les cinq cultivateurs du troisième stade s'agenouillèrent et s'inclinèrent simultanément. Ils mordirent la pointe de leur langue et crachèrent leur sang essentiel, lequel fut immédiatement absorbé par les neuf cercueils recouverts de cheveux.
 
 Les dizaines de milliers d'autres cultivateurs du Royaume Extérieur firent de même, offrant leur propre sang essentiel aux cercueils. Une fois le sang absorbé, un grondement tonitruant secoua le système stellaire et les neuf cercueils explosèrent l'un après l'autre.
 

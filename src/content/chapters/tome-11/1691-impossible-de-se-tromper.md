@@ -56,7 +56,7 @@ Tout s’était passé très vite. Bien que l'empreinte se fût dissipée, le So
 
 « Wang Lin, je veux voir où tu pourras fuir cette fois! J'ai déjà scellé ce domaine stellaire, tu ne peux pas t'échapper! » Le Souverain était transporté par la joie. Il avait attendu trois ans pour ce jour!
 
-Alors que le Souverain allait l'atteindre, des hurlements résonnèrent au loin. Des ondulations se propagèrent et la septième concubine sortit, l'expression sombre. Au même moment, le Maître Dao Miao Yin et le Maître Démon Nine Heaven arrivèrent d'une autre direction vers Wang Lin.
+Alors que le Souverain allait l'atteindre, des hurlements résonnèrent au loin. Des ondulations se propagèrent et la septième concubine sortit, l'expression sombre. Au même moment, le Maître Dao Miao Yin et le Maître Démon Neuf Cieux arrivèrent d'une autre direction vers Wang Lin.
 
 Trois des Cinq Maîtres de l'Ancien Système Stellaire et la septième concubine impériale céleste. Chacun d'eux pouvait ébranler les Royaumes Intérieur et Extérieur, mais en cet instant, ils s'étaient tous unis pour tuer Wang Lin!
 
@@ -70,7 +70,7 @@ Ses yeux brillèrent. Alors que le Souverain était sur le point de le rejoindre
 
 « Impossible! Tu n'as la puissance que pour deux tirs, je ne peux me tromper, c'est impossible! Tu ne fais que sortir l'arc pour nous ridiculiser. Tu ne peux pas bander cet arc! » Le Souverain refusait de l'admettre. Il ne pouvait supporter que ses plans échouent encore et encore. Un tel coup était mortel pour lui; il menaçait de briser sa confiance et d'ébranler son Dao!
 
-À ce moment, non seulement le Souverain recula, mais même la septième concubine s'immobilisa. Le Maître Dao Miao Yin et le Maître Démon Nine Heaven cessèrent également leur progression, leurs visages marquant une profonde stupeur.
+À ce moment, non seulement le Souverain recula, mais même la septième concubine s'immobilisa. Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux cessèrent également leur progression, leurs visages marquant une profonde stupeur.
 
 Le visage du Souverain devint livide, puis la folie envahit son regard alors qu'il rugissait contre Wang Lin: « Tu joues la comédie! »
 
@@ -104,7 +104,7 @@ Quant au soleil, il ne put rien pour entraver la trajectoire du projectile. La f
 
 « Ce n'est pas possible... » La flèche fut trop rapide et traversa instantanément le Souverain. Son corps trembla sous la passe du projectile. Sa chair vola en éclats, les fragments de son être étant projetés à des dizaines de milliers de kilomètres.
 
-Le Maître Dao Miao Yin et le Maître Démon Nine Heaven crachèrent du sang et leurs corps s'effondrèrent. Leurs âmes originelles étaient sur le point de s'échapper lorsque Wang Lin, d'un revers de manche, les captura.
+Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux crachèrent du sang et leurs corps s'effondrèrent. Leurs âmes originelles étaient sur le point de s'échapper lorsque Wang Lin, d'un revers de manche, les captura.
 
 Seule la septième concubine ne fit que recracher une grande quantité de sang, gravement blessée par le passage de la flèche. En tant qu'impératrice céleste, elle possédait un trésor salvateur qui lui permit de survivre miraculeusement.
 

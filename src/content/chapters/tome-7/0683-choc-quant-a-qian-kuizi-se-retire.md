@@ -28,9 +28,9 @@ Wang Lin vit également Qian Kuizi. Ses pupilles se rétractèrent légèrement 
 
 « Voyageur, arrête-toi! » La voix de Qian Kuizi était faible au début, mais elle résonna comme un sortilège qui se propagea rapidement tel un coup de tonnerre. Le regard de Wang Lin devint glacial alors qu'il fixait Qian Kuizi.
 
-« Des paroles chargées de lois! » La lumière argentée provenant de la boussole stellaire de Wang Lin sembla faiblir sous la pression de ces paroles. Naturellement, il ne pouvait pas percer le niveau de culture de cet homme avec son propre Sens Divin. Cependant, grâce à la fusion du gardien céleste, il pouvait aisément déduire que cet homme se trouvait au stade Illusoire Yin de l'étape Yin et Yang.
+« Des paroles chargées de lois! » La lumière argentée provenant de la boussole stellaire de Wang Lin sembla faiblir sous la pression de ces paroles. Naturellement, il ne pouvait pas percer le niveau de culture de cet homme avec son propre Sens Divin. Cependant, grâce à la fusion du gardien céleste, il pouvait aisément déduire que cet homme se trouvait au stade Yin Illusoire de l'étape Yin et Yang.
 
-« Bien que la marionnette du gardien céleste soit également au stade Illusoire Yin, elle ne peut rivaliser avec un véritable cultivateur à ce niveau. » Wang Lin connaissait la faiblesse du gardien céleste. Toutefois, en raison des sorts qui lui étaient propres, il n'en demeurait pas moins puissant.
+« Bien que la marionnette du gardien céleste soit également au stade Yin Illusoire, elle ne peut rivaliser avec un véritable cultivateur à ce niveau. » Wang Lin connaissait la faiblesse du gardien céleste. Toutefois, en raison des sorts qui lui étaient propres, il n'en demeurait pas moins puissant.
 
 Les yeux de Qian Kuizi restaient calmes lorsqu'il demanda lentement: « Es-tu venu à cause de la famille Huan? » Son ton était empreint d'un certain dédain.
 
@@ -40,7 +40,7 @@ Debout sur sa boussole stellaire, Wang Lin fixa l'homme et répondit froidement:
 
 À ses yeux, cet enfant n'avait rien d'extraordinaire. Son niveau de culture était également très bas, ne dépassant même pas le stade intermédiaire de l'Ascendant. Mais lorsque le regard de Qian Kuizi tomba sur l'ombre sous les pieds de Wang Lin, ses yeux se plissèrent.
 
-« Une marionnette Illusoire Yin!!! » Bien que son expression fût calme, Qian Kuizi eut un haut-le-cœur intérieur.
+« Une marionnette Yin Illusoire!!! » Bien que son expression fût calme, Qian Kuizi eut un haut-le-cœur intérieur.
 
 « Quelle famille serait assez généreuse pour raffiner un puissant cultivateur du stade Yin et Yang en une marionnette afin de l'offrir à un junior? C'est... c'est tout simplement terrifiant! » En fixant l'ombre sous les pieds de Wang Lin, une trace d'avidité apparut dans ses yeux.
 
@@ -48,7 +48,7 @@ Le regard de Wang Lin resta froid alors qu'il disait calmement: « Aîné, il s'
 
 Qian Kuizi était tiraillé. D'un côté, il convoitait cette marionnette, mais de l'autre, il craignait le poids des antécédents de cet homme. Finalement, l'avidité triompha de la raison.
 
-À ses yeux, le prix d'une marionnette Illusoire Yin était bien trop élevé! Après tout, il agissait pour la famille Huan. Peu importe le temps qu'il faudrait à la famille de ce junior pour découvrir la vérité, il pourrait toujours rejeter la faute sur les Huan. Avec les familles Qian et Huan alliées, même une autre puissance devrait réfléchir à deux fois avant de déclencher un conflit.
+À ses yeux, le prix d'une marionnette Yin Illusoire était bien trop élevé! Après tout, il agissait pour la famille Huan. Peu importe le temps qu'il faudrait à la famille de ce junior pour découvrir la vérité, il pourrait toujours rejeter la faute sur les Huan. Avec les familles Qian et Huan alliées, même une autre puissance devrait réfléchir à deux fois avant de déclencher un conflit.
 
 Les yeux de Qian Kuizi s'illuminèrent et il dit lentement: « Remets-moi ta marionnette et ce vieil homme ne s'impliquera pas dans cette affaire! »
 
@@ -78,7 +78,7 @@ Le corps de la Bête du Tonnerre doubla soudainement de volume. Elle laissa éch
 
 « C'est... c'est... la Bête du Tonnerre!! » Qian Kuizi se leva brusquement, son expression changée radicalement. Il fixa la créature en haletant.
 
-« C'est donc cela! Voilà pourquoi tu possèdes une énergie d'épée si féroce et une marionnette Illusoire Yin! C'est parce que tu es un membre du Temple Céleste du Tonnerre! » Qian Kuizi prit une inspiration glacée. Il retira immédiatement toutes ses runes; son cœur ne convoitait plus la marionnette.
+« C'est donc cela! Voilà pourquoi tu possèdes une énergie d'épée si féroce et une marionnette Yin Illusoire! C'est parce que tu es un membre du Temple Céleste du Tonnerre! » Qian Kuizi prit une inspiration glacée. Il retira immédiatement toutes ses runes; son cœur ne convoitait plus la marionnette.
 
 Le visage de Qian Kuizi était pâle lorsqu'il dit rapidement: « Jeune ami, pardonne-moi; ce vieil homme a été imprudent. C'est un malentendu, un simple malentendu! » Il n'avait plus rien de l'attitude d'un puissant cultivateur.
 
@@ -96,7 +96,7 @@ L'expression de Wang Lin ne changea pas. Il fixa Qian Kuizi et demanda calmement
 
 Qian Kuizi eut un sourire amer, mais la colère lui serrait le cœur. Avec sa culture, même en découvrant que cet enfant venait du Temple Céleste du Tonnerre, il n'aurait pas parlé ainsi. Normalement, il ne tenait ce langage que face à quelqu'un de son propre rang.
 
-Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un membre du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Illusoire Yin pour le protéger.
+Cependant, en l'occurrence, c'était lui qui avait provoqué l'autre en premier et qui avait tenté de voler un membre du Temple Céleste du Tonnerre. Dans son esprit, cet enfant devait jouir d'un certain statut au sein du temple, sans quoi ils ne lui auraient pas fourni une marionnette Yin Illusoire pour le protéger.
 
 Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, je ne peux pas t'aider contre la famille Huan car nous appartenons à la même planète. De plus, puisque tu viens du Temple Céleste du Tonnerre, tu n'auras de toute façon pas besoin de mon aide. Mais sache que ma famille Qian ne participera pas à cette affaire et rompra tout lien avec la famille Huan! »
 

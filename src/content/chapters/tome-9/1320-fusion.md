@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1320 - Fuse
 slug: fusion
 ---
-Le premier sort que le Maître Dao Blue Dream déploya fut une technique offensive d'une puissance extrême!
+Le premier sort que le Maître Maître du Dao Rêve Bleu déploya fut une technique offensive d'une puissance extrême!
 
 Le second, le Bouclier de Lumière et d'Ombre, représentait l'apogée de la défense! Lorsque ces deux sorts se manifestaient, le monde entier changeait de couleur!
 
@@ -14,13 +14,13 @@ Wang Lin n'avait pas encore pleinement appréhendé l'Empreinte de Renversement 
 
 « Regarde attentivement, le troisième sort que je vais t'enseigner est la Fusion du Dao! Ce n'est ni un sort d'attaque ni un sort de défense, mais une technique du Dao qui fusionne ton sort avec ton essence d'une manière unique. Si tu parviens à maîtriser ce sort, tu pourras fusionner tous tes sorts pour en créer des dizaines de millions de différents, ou les condenser tous en un seul! »
 
-La voix du Maître Dao Blue Dream était calme. Après avoir manifesté l'Empreinte de Renversement Céleste et le Bouclier de Lumière et d'Ombre, il ne relâcha pas sa main droite. Au lieu de cela, ses doigts formèrent un sceau complexe et il pointa le vide.
+La voix du Maître Maître du Dao Rêve Bleu était calme. Après avoir manifesté l'Empreinte de Renversement Céleste et le Bouclier de Lumière et d'Ombre, il ne relâcha pas sa main droite. Au lieu de cela, ses doigts formèrent un sceau complexe et il pointa le vide.
 
 L'un des nuages qui avait été repoussé fondit rapidement vers lui pour entourer son doigt. Il se transforma en une sphère de brume qui commença à pivoter à une vitesse fulgurante.
 
 À mesure que la rotation s'accélérait, la brume disparut instantanément pour devenir une vapeur d'eau blanche. Cette vapeur tourbillonna également, formant un vortex.
 
-Cependant, le vortex changea de nouveau de forme, se transformant en une goutte d'eau scintillante au bout du doigt du Maître Dao Blue Dream, avant de commencer à pivoter encore plus vite.
+Cependant, le vortex changea de nouveau de forme, se transformant en une goutte d'eau scintillante au bout du doigt du Maître Maître du Dao Rêve Bleu, avant de commencer à pivoter encore plus vite.
 
 En observant ce phénomène, Wang Lin reçut une illumination.
 
@@ -30,41 +30,41 @@ Cette épée mesurait sept pieds de long pour trois pouces de large, dégageant 
 
 Du nuage à la brume, de la brume à l'eau, puis de l'eau à la glace, pour finir en une épée de glace! L'esprit de Wang Lin fut secoué en un instant, ayant le sentiment d'avoir vaguement saisi une vérité profonde.
 
-« Cette essence de brume a été transmutée par ce sort du Dao. Déploie deux sorts qui doivent être fusionnés! » lança le Maître Dao Blue Dream en regardant Wang Lin.
+« Cette essence de brume a été transmutée par ce sort du Dao. Déploie deux sorts qui doivent être fusionnés! » lança le Maître Maître du Dao Rêve Bleu en regardant Wang Lin.
 
 Sans hésiter, Wang Lin agita la main droite, et un vent noir hurla à travers le monde. Sept dragons noirs surgirent dans l'espace, déversant un air glacial capable d'éteindre toute forme de vie.
 
-« Oh? L'un des six sorts de l'Empereur Céleste Bai Fan, l'Appel du Vent! Bien que ce ne soit pas un sort du Dao, s'il est cultivé jusqu'à son apogée, il reste extrêmement puissant! » s'étonna le Maître Dao Blue Dream.
+« Oh? L'un des six sorts de l'Empereur Céleste Bai Fan, l'Appel du Vent! Bien que ce ne soit pas un sort du Dao, s'il est cultivé jusqu'à son apogée, il reste extrêmement puissant! » s'étonna le Maître Maître du Dao Rêve Bleu.
 
 Une fois l'Appel du Vent achevé, Wang Lin ne marqua aucune pause; sa main droite forma un sceau et il pointa les sept dragons noirs. Ces derniers poussèrent un rugissement assourdissant qui fit trembler l'univers. Tandis que des grondements de tonnerre résonnaient, une lueur jaillit et des gouttes de pluie apparurent de nulle part!
 
-« L'Invocation de la Pluie de Bai Fan! » fronça les sourcils le Maître Dao Blue Dream. Il ne s'attendait pas à ce que Wang Lin soit capable de lancer ces deux sorts. Le nom de « Bai Fan » ne lui était pas inconnu: il était le souverain du Royaume Céleste du Tonnerre, et ses sorts étaient extrêmement difficiles à intégrer.
+« L'Invocation de la Pluie de Bai Fan! » fronça les sourcils le Maître Maître du Dao Rêve Bleu. Il ne s'attendait pas à ce que Wang Lin soit capable de lancer ces deux sorts. Le nom de « Bai Fan » ne lui était pas inconnu: il était le souverain du Royaume Céleste du Tonnerre, et ses sorts étaient extrêmement difficiles à intégrer.
 
-« Cet enfant est en effet doué. Il a dû comprendre que je voulais l'aider à fusionner deux sorts, alors il a choisi ses techniques les plus puissantes... » Le Maître Dao Blue Dream regarda Wang Lin avec un sourire énigmatique, puis tendit sa main droite vers le vide.
+« Cet enfant est en effet doué. Il a dû comprendre que je voulais l'aider à fusionner deux sorts, alors il a choisi ses techniques les plus puissantes... » Le Maître Maître du Dao Rêve Bleu regarda Wang Lin avec un sourire énigmatique, puis tendit sa main droite vers le vide.
 
 Les sept dragons noirs tremblèrent soudainement et s'entrelacèrent pour former un vortex gigantesque qui absorba toutes les gouttes de pluie.
 
 Les grondements de tonnerre continuèrent de résonner. Le vortex grandit jusqu'à sembler remplacer la voûte céleste elle-même.
 
-« D'après ma compréhension, le but de l'Appel du Vent et de l'Invocation de la Pluie de Bai Fan était de couvrir le ciel par le vent et de recouvrir la terre par la pluie. Couvrir le ciel et la terre pour former un monde! La fusion de ces deux sorts devrait être comparable à la protection du Bouclier de Lumière et d'Ombre! » Le Maître Dao Blue Dream agita sa main droite, et le vortex géant dans le ciel rugit plus fort encore avant de commencer à s'étendre brusquement.
+« D'après ma compréhension, le but de l'Appel du Vent et de l'Invocation de la Pluie de Bai Fan était de couvrir le ciel par le vent et de recouvrir la terre par la pluie. Couvrir le ciel et la terre pour former un monde! La fusion de ces deux sorts devrait être comparable à la protection du Bouclier de Lumière et d'Ombre! » Le Maître Maître du Dao Rêve Bleu agita sa main droite, et le vortex géant dans le ciel rugit plus fort encore avant de commencer à s'étendre brusquement.
 
 Le ciel fut enveloppé par le vent et la terre fut submergée par la pluie. Il n'y avait plus aucune trace de lumière et la terre était devenue invisible. Même l'énergie originelle semblait absente; c'était comme si cet espace s'était détaché de l'univers pour former son propre monde!
 
 Ce monde pouvait être vaste ou minuscule. Il pouvait être aussi immense que l'univers ou aussi intime que soi-même, ce qui en faisait une forme de protection redoutable!
 
-D'un geste du Maître Dao Blue Dream, le monde trembla et reprit son état normal. Une petite sphère tourbillonnante noire flottait désormais aux côtés de l'épée de glace.
+D'un geste du Maître Maître du Dao Rêve Bleu, le monde trembla et reprit son état normal. Une petite sphère tourbillonnante noire flottait désormais aux côtés de l'épée de glace.
 
-« Que tu puisses comprendre ces trois sorts dépendra de ton propre destin. » Le Maître Dao Blue Dream fit un pas en avant et se changea en une lueur bleue. Seules ses dernières paroles, murmurées comme pour lui-même, résonnèrent après sa disparition:
+« Que tu puisses comprendre ces trois sorts dépendra de ton propre destin. » Le Maître Maître du Dao Rêve Bleu fit un pas en avant et se changea en une lueur bleue. Seules ses dernières paroles, murmurées comme pour lui-même, résonnèrent après sa disparition:
 
 « Si elle peut recouvrer la mémoire et oublier le Clan de la Soie Bleue... même si je deviens un traître au Système Stellaire Antique, qu'importe? » Ses mots étaient empreints de détermination, révélant son caractère et répondant à la question que Wang Lin s'était posée plus tôt...
 
 Les environs devinrent silencieux et le monde retrouva sa paix. Tout ce qui venait de se produire semblait n'être qu'une illusion, un simple souvenir.
 
-Wang Lin ne remarqua pas le départ du Maître Dao Blue Dream, ses yeux étant rivés sur l'épée de glace et la sphère noire. Son esprit était totalement absorbé par ce qui venait d'avoir lieu. Les trois sorts du Maître Dao Blue Dream défilaient rapidement dans son esprit alors qu'il tentait de les vérifier et de les assimiler.
+Wang Lin ne remarqua pas le départ du Maître Maître du Dao Rêve Bleu, ses yeux étant rivés sur l'épée de glace et la sphère noire. Son esprit était totalement absorbé par ce qui venait d'avoir lieu. Les trois sorts du Maître Maître du Dao Rêve Bleu défilaient rapidement dans son esprit alors qu'il tentait de les vérifier et de les assimiler.
 
 Le temps passa: trois jours, sept jours, une demi-lune... sans qu'il s'en rende compte, un mois s'était écoulé!
 
-Après un mois, Wang Lin était toujours assis là, immobile. Ses yeux étaient injectés de sang et empreints de confusion. Des tempêtes déferlaient dans son esprit, résonnant comme des coups de tonnerre. Wang Lin tentait de comprendre ces trois sorts grandioses, mais ces techniques contenaient l'essence même du monde. Même avec la démonstration personnelle et les explications du Maître Dao Blue Dream, leur apprentissage restait d'une difficulté extrême.
+Après un mois, Wang Lin était toujours assis là, immobile. Ses yeux étaient injectés de sang et empreints de confusion. Des tempêtes déferlaient dans son esprit, résonnant comme des coups de tonnerre. Wang Lin tentait de comprendre ces trois sorts grandioses, mais ces techniques contenaient l'essence même du monde. Même avec la démonstration personnelle et les explications du Maître Maître du Dao Rêve Bleu, leur apprentissage restait d'une difficulté extrême.
 
 « L'Empreinte de Renversement Céleste... faire du ciel la terre... » Wang Lin ferma les yeux comme s'il dormait, mais son esprit travaillait avec frénésie, tentant de déduire une restriction pour comprendre les changements opérés par ce sort.
 
@@ -108,6 +108,6 @@ Il agita la main droite. La terre ne s'écrasa pas et retourna instantanément �
 
 « Ce n'est pas la seule façon d'utiliser l'Empreinte de Renversement Céleste! Si l'on considère une personne comme un monde, alors sa chair, son sang et sa peau sont le ciel, et ses organes internes sont la terre. Inversez cela, et la létalité de ce sort augmentera considérablement! » Wang Lin médita silencieusement un instant, réprimant sa joie d'avoir compris cette technique. Il ferma les yeux et commença à assimiler le second sort!
 
-Alors que Wang Lin utilisait l'Empreinte de Renversement Céleste, sur la Montagne Bleue, la main du Maître Dao Blue Dream qui jouait de la cithare s'arrêta un instant.
+Alors que Wang Lin utilisait l'Empreinte de Renversement Céleste, sur la Montagne Bleue, la main du Maître Maître du Dao Rêve Bleu qui jouait de la cithare s'arrêta un instant.
 
 « Un être possédant cinq essences est véritablement stupéfiant. Il a réussi à maîtriser l'Empreinte de Renversement Céleste en seulement quatre mois... Je pensais qu'il lui faudrait plusieurs années... »

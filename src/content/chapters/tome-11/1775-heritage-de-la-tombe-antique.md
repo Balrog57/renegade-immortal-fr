@@ -18,11 +18,11 @@ Tout cela rappelait étrangement la manière dont le Souverain avait rassemblé 
 
 Le tueur avait été tué!
 
-Wang Lin poussa un soupir et joignit les mains en signe de respect devant le Maître Dao Blue Dream et ses compagnons.
+Wang Lin poussa un soupir et joignit les mains en signe de respect devant le Maître Maître du Dao Rêve Bleu et ses compagnons.
 
 « Merci infiniment pour cela. »
 
-Le regard du Maître Dao Blue Dream balaya le nain avant de se poser sur Wang Lin. Il déclara d'une voix lente: « Je ne peux pas beaucoup vous aider, mais quoi qu'il arrive, je ferai de mon mieux. C'est ma promesse! »
+Le regard du Maître Maître du Dao Rêve Bleu balaya le nain avant de se poser sur Wang Lin. Il déclara d'une voix lente: « Je ne peux pas beaucoup vous aider, mais quoi qu'il arrive, je ferai de mon mieux. C'est ma promesse! »
 
 Ses paroles pesaient lourdement sur les deux derniers mots.
 
@@ -46,7 +46,7 @@ Ce changement attira l'attention de Wang Lin. Il leva les yeux vers le ciel et s
 
 Le Vieux Fantôme Zhan avait rattrapé son retard!
 
-« Vous pouvez partir. Ce vieil homme vous a promis son aide, je tiendrai donc ma parole! » Le Maître Dao Blue Dream soupira tandis qu'une lumière bleue enveloppait son corps. Il fixa le ciel, l'œil chargé d'une intention de combat.
+« Vous pouvez partir. Ce vieil homme vous a promis son aide, je tiendrai donc ma parole! » Le Maître Maître du Dao Rêve Bleu soupira tandis qu'une lumière bleue enveloppait son corps. Il fixa le ciel, l'œil chargé d'une intention de combat.
 
 Tuo Sen réfléchit en silence et regarda Wang Lin. Sans mot dire, des bruits de craquements résonnèrent dans son corps. Il leva les yeux et serra les poings.
 
@@ -78,7 +78,7 @@ Grâce à son Sens Divin, Wang Lin vit clairement un cœur gigantesque vers lequ
 
 Tout ici différait de ce qu'il avait perçu lors de sa première approche de l'héritage, mais l'essence restait la même. Après tout, il n'avait alors entrevu que l'ombre de ce lieu, et c'était la première fois qu'il y pénétrait réellement.
 
-Wang Lin savait que le temps pressait. Il ignorait combien de temps Blue Dream et les autres pourraient contenir le Vieux Fantôme Zhan. Chaque seconde perdue pouvait permettre à ce dernier de les rattraper.
+Wang Lin savait que le temps pressait. Il ignorait combien de temps Rêve Bleu et les autres pourraient contenir le Vieux Fantôme Zhan. Chaque seconde perdue pouvait permettre à ce dernier de les rattraper.
 
 Il ne pouvait se permettre d'observer l'arrière-plan; il devait avancer. Il se déplaça à sa vitesse maximale, naviguant entre les vaisseaux sanguins.
 

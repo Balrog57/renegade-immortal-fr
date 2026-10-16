@@ -83,13 +83,13 @@ Zhou Yi ramena le sens divin de Wang Lin et disparut dans la brume. L'expression
 
 Le sens divin de l'inconnu était extrêmement étrange, ce qui le rendait incertain. Ce sens ressemblait à celui d'un cultivateur au début du stade Ascendant, mais un second sens s'y cachait. Ce second sens était d'une puissance phénoménale et portait une intention d'épée extrêmement tranchante!
 
-Avant de comprendre les capacités de son adversaire, Cupidité ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa culture originale était au stade Illusoire Yin, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
+Avant de comprendre les capacités de son adversaire, Cupidité ne voulait pas provoquer l'ennemi, d'autant qu'il était encore blessé. Sa culture originale était au stade Yin Illusoire, mais il n'était désormais qu'au sommet du stade Ascendant tardif. Durant toutes ces années, il n'avait pas réussi à retrouver son apogée.
 
-Cela ne signifiait pas que Situ Nan était infiniment puissant, mais plutôt que si un cultivateur du stade Illusoire Yin perdait sa culture, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre! Après tout, les stades Illusoire Yin et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
+Cela ne signifiait pas que Situ Nan était infiniment puissant, mais plutôt que si un cultivateur du stade Yin Illusoire perdait sa culture, il lui faudrait bien plus d'efforts pour la recouvrer que pour l'atteindre! Après tout, les stades Yin Illusoire et Corporel Yang sont des étapes cruciales, comme le moment où le papillon s'extrait de son cocon.
 
 Même pour Situ Nan, sans la force mystérieuse qui le nourrissait à l'intérieur de la Perle Défiant le Ciel et sans son talent prodigieux, il n'aurait jamais pu retrouver sa culture.
 
-Cependant, bien que celle de Cupidité soit limitée au sommet du stade Ascendant tardif, elle ne correspondait pas à celle d'un simple Ascendant. Avec les trésors accumulés au fil des âges, même un cultivateur Illusoire Yin devrait redoubler d'efforts pour le tuer. Un seul instant de négligence et Cupidité pourrait s'échapper.
+Cependant, bien que celle de Cupidité soit limitée au sommet du stade Ascendant tardif, elle ne correspondait pas à celle d'un simple Ascendant. Avec les trésors accumulés au fil des âges, même un cultivateur Yin Illusoire devrait redoubler d'efforts pour le tuer. Un seul instant de négligence et Cupidité pourrait s'échapper.
 
 Zhou Yi ramena le sens divin de Wang Lin et ils retrouvèrent leurs corps respectifs.
 

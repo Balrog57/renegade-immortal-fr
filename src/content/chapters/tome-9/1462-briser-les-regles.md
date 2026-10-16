@@ -38,7 +38,7 @@ L'intérieur de la forêt était vide, ne laissant que quelques arbres sur les l
 
 Wang Lin réfléchit un instant. Il avait l'intention d'emporter la forêt et le crâne avec lui. Cependant, il n'était pas sûr que le vortex se dissiperait s'il les emmenait. Si le vortex disparaissait, cela ne vaudrait pas le coup.
 
-Ce vortex était crucial pour Wang Lin. Il l'avait scanné avec son Sens Divin, mais il ignorait si ce vortex le transporterait vers le Système Stellaire Ancien; il savait seulement qu'il possédait la capacité de téléportation.
+Ce vortex était crucial pour Wang Lin. Il l'avait scanné avec son Sens Divin, mais il ignorait si ce vortex le transporterait vers le Système Stellaire Antique; il savait seulement qu'il possédait la capacité de téléportation.
 
 Après mûre réflexion, Wang Lin ne prit pas de risque inconsidéré. Ses mains formèrent des sceaux et une multitude de restrictions remplirent le ciel, scellant ainsi les lieux.
 

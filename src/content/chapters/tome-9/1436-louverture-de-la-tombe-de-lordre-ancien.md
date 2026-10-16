@@ -18,7 +18,7 @@ Le brouillard se mit à bouillonner comme s'il abritait un esprit, balayant les 
 
 Cette brume tourbillonnante s'étendit violemment dans toutes les directions. À l'origine, de nombreux cultivateurs observaient les lisières du brouillard; certains même, très puissants, s'aventuraient à l'intérieur pour inspecter la zone. Cependant, leurs expressions changèrent soudainement et ils entamèrent une retraite précipitée.
 
-L'ouverture de la Tombe de l'Ordre Ancien avait attiré l'attention de tous les puissants cultivateurs du Système Stellaire Ancien. Tous avaient tout abandonné pour se précipiter ici.
+L'ouverture de la Tombe de l'Ordre Ancien avait attiré l'attention de tous les puissants cultivateurs du Système Stellaire Antique. Tous avaient tout abandonné pour se précipiter ici.
 
 Pourtant, à cet instant, ces êtres furent frappés de stupeur et durent fuir!
 
@@ -86,7 +86,7 @@ Après cela, le visage du vieil homme pâlit et il se retira prestement. Il rugi
 
 Le brouillard surgit soudainement et des marques numériques apparurent entre les sourcils du Serpent aux yeux de lune et des deux autres, avant qu'ils ne soient aspirés. Le vieil homme s'échappa rapidement de la zone d'influence. Il réapparut sur une planète de culture lointaine et se mit à cultiver.
 
-Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Vermillion Bird appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer avec une culture affaiblie au risque de mourir. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
+Il y avait aussi le vieil homme vêtu de peaux de bêtes que le Vieux Oiseau Vermillon appelait l'Illustre Grande Désolation. Il observait le brouillard, les yeux brillants. Ne possédant aucun avatar, il n'osait pas entrer avec une culture affaiblie au risque de mourir. Tout en reculant, sa main tendue cherchait constamment dans le vide. Peu importe la distance, il saisissait un cultivateur pour le projeter dans la brume.
 
 Ces cultivateurs mouraient tous misérablement, transformés en squelettes. Cependant, le huitième homme trembla mais ne mourut pas; une marque numérique apparut entre ses sourcils!
 

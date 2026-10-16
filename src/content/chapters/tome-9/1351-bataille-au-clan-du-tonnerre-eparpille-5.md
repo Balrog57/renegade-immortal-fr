@@ -18,9 +18,9 @@ Il y avait aussi cette épée de sang bizarre et presque invincible qui lui avai
 
 De plus, l'essence de tonnerre de l'autre partie s'était rapprochée, chargée d'une volonté infinie. Elle avait déclenché le tonnerre en lui, et les attaques simultanées, venant de l'intérieur comme de l'extérieur, avaient laissé de nombreuses blessures sur son corps.
 
-Tout cela était une leçon qu'il payait au prix du sang. Ce choc avait réveillé l'Ancien en chef. Le jeune homme devant lui était son véritable rival! Conjugué au fait qu'il utilisait le Bouclier d'Ombre et de Lumière du Maître Dao Blue Dream, d'innombrables spéculations traversèrent son esprit!
+Tout cela était une leçon qu'il payait au prix du sang. Ce choc avait réveillé l'Ancien en chef. Le jeune homme devant lui était son véritable rival! Conjugué au fait qu'il utilisait le Bouclier d'Ombre et de Lumière du Maître Maître du Dao Rêve Bleu, d'innombrables spéculations traversèrent son esprit!
 
-Cependant, que ce soient les blessures ou le sort du Maître Dao Blue Dream, ils n'avaient fait qu'étonner l'Ancien. Ce qui le terrifiait réellement, c'était la maîtrise du timing de l'autre partie, ainsi que sa nature audacieuse et décisive!
+Cependant, que ce soient les blessures ou le sort du Maître Maître du Dao Rêve Bleu, ils n'avaient fait qu'étonner l'Ancien. Ce qui le terrifiait réellement, c'était la maîtrise du timing de l'autre partie, ainsi que sa nature audacieuse et décisive!
 
 « Au moment extrêmement périlleux où le tonnerre s'effondrait, il a utilisé le Bouclier d'Ombre et de Lumière pour contre-attaquer, me prenant au dépourvu. Cela semble simple, mais très peu de gens seraient capables de saisir le timing et de réussir une telle prouesse! Même moi, j'aurais hésité!
 

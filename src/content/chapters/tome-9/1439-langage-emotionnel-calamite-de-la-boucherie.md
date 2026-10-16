@@ -82,7 +82,7 @@ Des grondements sourds résonnèrent dans le ciel sombre, semblables à des rugi
 
 Le monde entier ressemblait à une chambre secrète dont la fenêtre aurait été accidentellement ouverte; désormais, la fenêtre se refermait et la pièce devenait étouffante.
 
-À l'intérieur du Système Stellaire Ancien, la faille dans le brouillard se rétracta rapidement avant de disparaître sans laisser de trace. Seul le brouillard subsista, comme s'il devait durer une éternité.
+À l'intérieur du Système Stellaire Antique, la faille dans le brouillard se rétracta rapidement avant de disparaître sans laisser de trace. Seul le brouillard subsista, comme s'il devait durer une éternité.
 
 La Tombe de l'Ordre Antique était close!
 

@@ -8,7 +8,7 @@ slug: sortilege-de-la-foi
 ---
 Le soleil émergeant des ténèbres dégageait la puissance de la loi originelle. Ce pouvoir capable de déchirer la nuit possédait une aura inexplicable. Cette aura appartenait à Wang Lin, car il en était le créateur.
 
-Pourtant, bien qu'elle lui appartînt, même lui ne comprenait pas ce qu'était cette aura! Il pressentait simplement qu'elle constituait la racine de Sundered Night et celle de la loi originelle. Elle était forgée par la foi de Wang Lin!
+Pourtant, bien qu'elle lui appartînt, même lui ne comprenait pas ce qu'était cette aura! Il pressentait simplement qu'elle constituait la racine de Nuit Brisée et celle de la loi originelle. Elle était forgée par la foi de Wang Lin!
 
 Cette foi était celle de déchirer la nuit noire pour s'extraire de l'ordinaire. C'était aussi une volonté défiant les cieux!
 
@@ -18,11 +18,11 @@ Alors, le pouvoir de déchirer cette nuit noire était sa véritable volonté d�
 
 À moins de posséder une telle volonté, nul ne pourrait créer un tel sortilège. S'il n'y avait rien pour lequel on serait prêt à tout sacrifier, il serait impossible de concevoir un tel prodige!
 
-Wang Lin ne le comprenait pas initialement, mais après avoir contemplé l'aura au cœur du soleil, il saisit vaguement pourquoi il avait pu créer Sundered Night!
+Wang Lin ne le comprenait pas initialement, mais après avoir contemplé l'aura au cœur du soleil, il saisit vaguement pourquoi il avait pu créer Nuit Brisée!
 
 Parce qu'il refusait d'abandonner Li Muwan, il allait déchirer la nuit noire du monde! Pour elle, il ferait en sorte que l'obscurité ne puisse plus jamais voiler ses yeux!
 
-C'était cela, Sundered Night!
+C'était cela, Nuit Brisée!
 
 C'était le sortilège que Wang Lin avait créé pour Li Muwan! Bien que ce sort n'ait rien à voir avec elle directement, le cœur, la volonté, les aspirations et la persévérance de Wang Lin s'y manifestaient avec une clarté absolue.
 
@@ -32,9 +32,9 @@ Combattre les hommes, combattre les bêtes, combattre la terre, combattre les ci
 
 Déchirer les voiles d'obscurité qui masquaient ses yeux pour chercher la lumière par-delà les ténèbres de la nuit!
 
-C'était Sundered Night!!
+C'était Nuit Brisée!!
 
-Wang Lin ne comprenait pas auparavant et se sentait lui-même confus. Cependant, grâce à l'Armure de l'Âme et à son niveau de culture actuel, il le comprit un peu mieux après avoir utilisé Sundered Night.
+Wang Lin ne comprenait pas auparavant et se sentait lui-même confus. Cependant, grâce à l'Armure de l'Âme et à son niveau de culture actuel, il le comprit un peu mieux après avoir utilisé Nuit Brisée.
 
 C'était le premier sort qu'il avait créé, et le seul imprégné de sa propre foi. Il accompagnait son âme indomptable et fusionnait avec elle pour former un sortilège surpassant les sorts Dao!
 
@@ -80,7 +80,7 @@ Ces trois catégories correspondent aux deux métamorphoses des domaines. Les so
 
 Cependant, ce dernier niveau n'était accessible qu'aux neuf Grands Empereurs! Tous les autres ne pouvaient que contempler cette cime depuis les profondeurs!
 
-Sundered Night était un sort créé par Wang Lin, contenant toute une vie passée à déchirer l'obscurité!
+Nuit Brisée était un sort créé par Wang Lin, contenant toute une vie passée à déchirer l'obscurité!
 
 La raison pour laquelle les Grands Empereurs pouvaient matérialiser leurs sorts résidait dans leur foi puissante, capable de créer quelque chose à partir du néant!
 
@@ -102,7 +102,7 @@ Wang Lin avait les yeux clos sous terre, mais il percevait tout ce qui se passai
 
 « Mes yeux ne sont plus noirs. Ils contenaient le feu et le tonnerre, ainsi que des restrictions dignes de lois... La nuit a noirci mes yeux, mais le feu brûlera la nuit, le tonnerre illuminera l'obscurité, et les restrictions briseront les règles. J'utiliserai mes yeux pour contempler la lumière! »
 
-La voix de Wang Lin résonna sur la mer engendrée par Sundered Night. Ces paroles s'engouffrèrent dans les oreilles des messagers du Démon Vert, de Zhang Daozong, du vieil homme nommé Zhao et des deux cultivatrices au début de la Tribulation du Vide. Ses mots résonnaient comme d'anciennes écritures taoïstes, mais ils étaient désormais imprégnés de la foi de Wang Lin!
+La voix de Wang Lin résonna sur la mer engendrée par Nuit Brisée. Ces paroles s'engouffrèrent dans les oreilles des messagers du Démon Vert, de Zhang Daozong, du vieil homme nommé Zhao et des deux cultivatrices au début de la Tribulation du Vide. Ses mots résonnaient comme d'anciennes écritures taoïstes, mais ils étaient désormais imprégnés de la foi de Wang Lin!
 
 Wang Lin ouvrit les yeux. À l'instant même, le soleil à l'horizon libéra une lumière éblouissante. Cette clarté se propagea sans fin, chargée de la foi de Wang Lin. Elle chassa les ténèbres pour traquer la foi de la lumière!
 

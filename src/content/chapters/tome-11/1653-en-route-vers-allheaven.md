@@ -106,7 +106,7 @@ On comptait un total de cinq cultivateurs du Vide Arcanique du Royaume Extérieu
 
 De plus, Wang Lin connaissait également les deux autres cultivateurs du Vide Arcanique: c'étaient la vieille femme et le vieil homme en noir qui l'avaient attaqué lors de cette crise de vie ou de mort.
 
-Hormis le Souverain, l'homme d'âge moyen décédé et le Maître Céleste Void God, tous ceux qui avaient participé à cette attaque étaient présents!
+Hormis le Souverain, l'homme d'âge moyen décédé et le Maître Céleste Dieu du Vide, tous ceux qui avaient participé à cette attaque étaient présents!
 
 Avec la présence de ces cultivateurs du Vide Arcanique, les cultivateurs du Royaume Intérieur ne pouvaient même pas tenter de détruire la formation planétaire par destruction mutuelle. Ils n'avaient d'autre choix que de regarder les planètes être anéanties une à une.
 

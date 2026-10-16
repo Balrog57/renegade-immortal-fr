@@ -56,9 +56,9 @@ Le vieil homme ferma soudainement les yeux. La lumière de sa marque tribale fai
 
 — Aucun cultivateur ne se cache ici, changeons de lieu! lança le vieil homme en agitant ses manches avant de s'élancer dans les airs à travers les nuages sombres. Tandis qu'il s'éloignait, les sept cultivateurs le suivirent.
 
-Des scènes similaires ne se produisaient pas seulement dans diverses villes, mais sur de nombreuses planètes à travers tout le Système Stellaire Ancien!
+Des scènes similaires ne se produisaient pas seulement dans diverses villes, mais sur de nombreuses planètes à travers tout le Système Stellaire Antique!
 
-Une fois l'Ordre du Système Stellaire Ancien prononcé, chaque clan devait s'y plier; ils avaient ainsi lancé une recherche minutieuse sur chaque planète de culture et chaque planète abandonnée. Les habitants du Système Stellaire Ancien formaient un filet gigantesque!
+Une fois l'Ordre du Système Stellaire Antique prononcé, chaque clan devait s'y plier; ils avaient ainsi lancé une recherche minutieuse sur chaque planète de culture et chaque planète abandonnée. Les habitants du Système Stellaire Antique formaient un filet gigantesque!
 
 L'expression de Wang Lin resta neutre et imperturbable lorsqu'ils partirent; ses yeux ne s'ouvrirent même pas. Le rugissement de l'éclair éternel s'affaiblissait, tout comme sa lutte!
 

@@ -8,7 +8,7 @@ slug: quatrieme-eveil
 ---
 Chapitre 1411 - Quatrième Éveil!
 
-« L'encens humain s'est éteint. C'est... cela n'est jamais arrivé auparavant. Même pendant mon épreuve et celle de la quatrième génération, l'encens ne s'est jamais éteint! L'encens s'est réellement éteint! » L'esprit du vieux Vermillion Bird tremblait alors qu'il contemplait le bâton d'encens humain éteint, et une terreur profonde se lisait dans ses yeux.
+« L'encens humain s'est éteint. C'est... cela n'est jamais arrivé auparavant. Même pendant mon épreuve et celle de la quatrième génération, l'encens ne s'est jamais éteint! L'encens s'est réellement éteint! » L'esprit du vieux Oiseau Vermillon tremblait alors qu'il contemplait le bâton d'encens humain éteint, et une terreur profonde se lisait dans ses yeux.
 
 « L'encens s'est éteint. Combien de temps a-t-il tenu durant l'épreuve? Sept respirations ou... l'infini... »
 
@@ -24,7 +24,7 @@ Wang Lin avait brisé le ciel de l'Épreuve Humaine et était apparu dans une co
 
 Alors que Wang Lin surgissait de ce gouffre, des flammes jaillirent de son corps. La terre entière fut illuminée par ce brasier.
 
-À la lisière de ces terres se dressait une montagne aride, au sommet de laquelle siégeait un homme. Il semblait d'âge moyen et une marque illusoire de Vermillion Bird trônait entre ses sourcils.
+À la lisière de ces terres se dressait une montagne aride, au sommet de laquelle siégeait un homme. Il semblait d'âge moyen et une marque illusoire de Oiseau Vermillon trônait entre ses sourcils.
 
 Il cultivait comme s'il n'avait pas bougé depuis des dizaines de milliers d'années. Cependant, à cet instant, il ouvrit les yeux et une lueur étrange y traversa.
 
@@ -38,7 +38,7 @@ L'indigo étant issu du bleu, les deux feux s'entremêlèrent. Après eux, un fe
 
 Les feux indigo, bleus et violets convergèrent tous vers lui simultanément. Le visage de Wang Lin se crispa et son âme fut sur le point de s'effondrer. Les quatre feux brûlaient en lui, rendant ses yeux opaques.
 
-En un instant, le feu intérieur perça son corps pour éclater vers l'extérieur. Les flammes rouge, orange, jaune et verte avaient déchiré sa chair. Même le Vermillion Bird logé en lui fut consumé jusqu'à la mort.
+En un instant, le feu intérieur perça son corps pour éclater vers l'extérieur. Les flammes rouge, orange, jaune et verte avaient déchiré sa chair. Même le Oiseau Vermillon logé en lui fut consumé jusqu'à la mort.
 
 L'âme de Wang Lin s'effondra.
 
@@ -48,17 +48,17 @@ L'expression de l'homme d'âge moyen à l'horizon changea. D'un geste de la main
 
 Au même moment, sur la Planète des Grands Empereurs, le corps de Wang Lin fut enveloppé d'une lumière septicolore. De fines fissures apparurent sur sa peau et le sang commença à suinter. C'était une scène effroyable.
 
-Le vieux Vermillion Bird n'hésita pas et se précipita près du second bâton d'encens en flammes. Ignorant la rapidité de sa combustion, il y posa sa main droite et y injecta son puissant Sens Divin.
+Le vieux Oiseau Vermillon n'hésita pas et se précipita près du second bâton d'encens en flammes. Ignorant la rapidité de sa combustion, il y posa sa main droite et y injecta son puissant Sens Divin.
 
-Le Dao Master Blue Dream fit de même et rejoignit le second bâton. Une lueur bleue enveloppa son corps tandis que son doigt touchait l'encens.
+Le Maître du Dao Rêve Bleu fit de même et rejoignit le second bâton. Une lueur bleue enveloppa son corps tandis que son doigt touchait l'encens.
 
-À l'intérieur de l'Épreuve Terrestre, le feu aux sept couleurs faisait rage. Même le Vermillion Bird de la première génération n'avait pu franchir cette épreuve sans la protection de l'Empereur Céleste. La rétribution consumait l'âme de Wang Lin.
+À l'intérieur de l'Épreuve Terrestre, le feu aux sept couleurs faisait rage. Même le Oiseau Vermillon de la première génération n'avait pu franchir cette épreuve sans la protection de l'Empereur Céleste. La rétribution consumait l'âme de Wang Lin.
 
 Alors que son âme se dissipait, trois forces vinrent à son secours. Pourtant, au moment où ces trois auras s'approchaient, une force étrange jaillit soudainement du cœur du feu septicolore.
 
 Cette force mystérieuse dégageait une aura antique, comme si elle était l'ancêtre de toutes choses.
 
-Dès que la marque de Vermillion Bird de l'homme d'âge moyen toucha cette puissance, elle fut repoussée à des milliers de kilomètres.
+Dès que la marque de Oiseau Vermillon de l'homme d'âge moyen toucha cette puissance, elle fut repoussée à des milliers de kilomètres.
 
 C'était comme si le pouvoir ainsi éveillé refusait toute approche; ou plus précisément, personne n'était digne de s'en approcher!
 
@@ -66,15 +66,15 @@ Les yeux de l'homme d'âge moyen se rétrécirent et il se redressa brusquement,
 
 « Qu'est-ce que... Qu'est-ce que c'est que cela?! »
 
-Le Sens Divin du vieux Vermillion Bird parvint sur les lieux, mais dès qu'il effleura la force mystérieuse, il fut projeté hors de l'Épreuve Terrestre.
+Le Sens Divin du vieux Oiseau Vermillon parvint sur les lieux, mais dès qu'il effleura la force mystérieuse, il fut projeté hors de l'Épreuve Terrestre.
 
-Le Sens Divin du Dao Master Blue Dream suivit, mais au contact de cette étrange puissance, des éclairs bleus jaillirent et il fut lui aussi expulsé de l'épreuve.
+Le Sens Divin du Maître du Dao Rêve Bleu suivit, mais au contact de cette étrange puissance, des éclairs bleus jaillirent et il fut lui aussi expulsé de l'épreuve.
 
-Sur la Planète des Grands Empereurs, la main droite du vieux Vermillion Bird fut violemment projetée en l'air. Ses yeux étaient empreints d'incrédulité et il recula inconsciemment de plusieurs pas.
+Sur la Planète des Grands Empereurs, la main droite du vieux Oiseau Vermillon fut violemment projetée en l'air. Ses yeux étaient empreints d'incrédulité et il recula inconsciemment de plusieurs pas.
 
 « Quel genre de pouvoir est-ce là?! »
 
-Le Dao Master Blue Dream sentit son doigt engourdi et se retira, sous le choc. Il connaissait bien Wang Lin et reconnut la force qui l'avait terrifié. C'était... la Perle Défiant le Ciel... Sans un mot, il retourna silencieusement aux côtés de Li Qianmei.
+Le Maître du Dao Rêve Bleu sentit son doigt engourdi et se retira, sous le choc. Il connaissait bien Wang Lin et reconnut la force qui l'avait terrifié. C'était... la Perle Défiant le Ciel... Sans un mot, il retourna silencieusement aux côtés de Li Qianmei.
 
 « Il ira bien! »
 
@@ -82,7 +82,7 @@ Maître Simo observait la scène, stupéfait. Il avait vu les deux puissances s'
 
 L'expression du Grand Maître Yun Luo devint plus sombre encore et ses mains s'activèrent avec précipitation. Elle sentait qu'elle était sur le point de percer les secrets qui se jouaient là.
 
-Le Dao Master Miao Yun se leva de son nuage, le regard brillant.
+Le Maître du Dao Miao Yun se leva de son nuage, le regard brillant.
 
 « Ce que le Daoiste Water disait était vrai! »
 
@@ -126,25 +126,25 @@ Le monde trembla!
 
 Il se transforma en un lotus de feu aux neuf couleurs!
 
-Ce lotus possédait neuf pétales de neuf teintes distinctes! À l'instant même de son apparition, un Vermillion Bird aux neuf couleurs jaillit du lotus!
+Ce lotus possédait neuf pétales de neuf teintes distinctes! À l'instant même de son apparition, un Oiseau Vermillon aux neuf couleurs jaillit du lotus!
 
-Le Vermillion Bird aux neuf couleurs semblait être né de nouveau au sein du lotus. Il s'envola vers le ciel et poussa un cri de Vermillion Bird!
+Le Oiseau Vermillon aux neuf couleurs semblait être né de nouveau au sein du lotus. Il s'envola vers le ciel et poussa un cri de Oiseau Vermillon!
 
 Le cri du quatrième éveil!
 
 Sur la Planète des Grands Empereurs, l'écho du réveil retentit. Le bâton d'encens terrestre ne s'était brûlé qu'à moitié lorsqu'il s'arrêta soudainement, dégageant une lumière aux neuf couleurs qui illumina la planète entière.
 
-Le vieux Vermillion Bird fut stupéfait avant de laisser échapper un rire tonitruant, l'excitation brillant dans ses yeux.
+Le vieux Oiseau Vermillon fut stupéfait avant de laisser échapper un rire tonitruant, l'excitation brillant dans ses yeux.
 
-« Il a réellement passé les neuf rétributions karmatiques et a allumé son cycle de feu karmique pour que son Vermillion Bird puisse accomplir son quatrième éveil. Ce quatrième éveil exige une quantité phénoménale de feu. S'il peut s'éveiller totalement et atteindre le royaume du Feu Éthéré, tout dépendra de cela! En tant qu'aîné, même si je dois tricher, je me dois de lui donner un coup de main! » Le vieux Vermillion Bird bondit dans les airs et disparut aux yeux de tous.
+« Il a réellement passé les neuf rétributions karmatiques et a allumé son cycle de feu karmique pour que son Oiseau Vermillon puisse accomplir son quatrième éveil. Ce quatrième éveil exige une quantité phénoménale de feu. S'il peut s'éveiller totalement et atteindre le royaume du Feu Éthéré, tout dépendra de cela! En tant qu'aîné, même si je dois tricher, je me dois de lui donner un coup de main! » Le vieux Oiseau Vermillon bondit dans les airs et disparut aux yeux de tous.
 
-En un instant, le rugissement d'un dragon retentit au loin, empreint de colère et d'indignation. On pouvait voir un dragon de 100 000 pieds de long être conduit par le vieux Vermillion Bird.
+En un instant, le rugissement d'un dragon retentit au loin, empreint de colère et d'indignation. On pouvait voir un dragon de 100 000 pieds de long être conduit par le vieux Oiseau Vermillon.
 
-Les cultivateurs alentour restèrent bouche bée tandis que le vieux Vermillion Bird transportait l'animal qui se débattait au-dessus du bâton d'encens. D'un revers de la main, il fit apparaître une blessure sur la croûte de la tête du dragon. Le sang tomba en cascade sur l'encens.
+Les cultivateurs alentour restèrent bouche bée tandis que le vieux Oiseau Vermillon transportait l'animal qui se débattait au-dessus du bâton d'encens. D'un revers de la main, il fit apparaître une blessure sur la croûte de la tête du dragon. Le sang tomba en cascade sur l'encens.
 
 Sous cette douleur cuisante, des larmes se rassemblèrent dans les yeux du dragon de feu. Empli de rancœur et de réticence, il se débattit avec encore plus de violence.
 
-Dans un fracas, le vieux Vermillion Bird atterrit sur le dragon. Une vague de feu pénétra le corps de la créature, faisant jaillir davantage de sang.
+Dans un fracas, le vieux Oiseau Vermillon atterrit sur le dragon. Une vague de feu pénétra le corps de la créature, faisant jaillir davantage de sang.
 
 « Bon sang, petit dragon, ne te débat pas n'importe comment! Si ce gamin réussit son éveil, ce vieil homme te libérera! »
 

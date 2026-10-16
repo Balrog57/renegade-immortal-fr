@@ -106,7 +106,7 @@ Après avoir réfléchi un moment, Wang Lin fit un pas en avant.
 
 Son cœur était calme, bien qu'empreint d'une pointe de prudence. Non loin de là, Shengong Hu était extrêmement excité en regardant Wang Lin: « Je peux enfin contempler le sortilège d'un Aîné. C'est une occasion unique dans une vie. Je dois observer attentivement, peut-être obtiendrai-je un éclaircissement! »
 
-Son excitation était immense, comparable à celle qu'il avait ressentie lorsqu'il avait franchi la première étape pour entrer dans le stade Illusoire Yin. En réalité, son émotion était plusieurs fois plus intense que cette fois-là.
+Son excitation était immense, comparable à celle qu'il avait ressentie lorsqu'il avait franchi la première étape pour entrer dans le stade Yin Illusoire. En réalité, son émotion était plusieurs fois plus intense que cette fois-là.
 
 Outre le fait que cet endroit fût propice à sa guérison, l'autre raison pour laquelle il souhaitait cultiver ici était de suivre Wang Lin. Il espérait obtenir des conseils de la part de ce dernier, ou ne serait-ce que d'observer ses sorts de loin.
 

@@ -88,7 +88,7 @@ De nombreux cultivateurs puissants remarquèrent la rupture du sceau par Maître
 
 Tout cela se produisit en un instant. Wang Lin était sur le point d'atteindre la brèche. Voyant Wang Lin s'apprêter à partir, les yeux du Souverain brillèrent d'une lueur mystérieuse. Il ne permettrait pas que son plan échoue, même si tout le Royaume Intérieur avait senti la rupture du sceau. Même si le Vieux Fantôme Zhan ou l'être mystérieux qui l'avait gravement blessé par un rugissement auparavant pouvaient apparaître instantanément, il n'allait pas laisser Wang Lin s'échapper!
 
-« Blue Dream! N'oubliez pas notre accord. Je vous aiderai à récupérer le corps de votre femme. » La voix du Souverain était calme. Simultanément, sa main droite desséchée pointa vers le ciel.
+« Rêve Bleu! N'oubliez pas notre accord. Je vous aiderai à récupérer le corps de votre femme. » La voix du Souverain était calme. Simultanément, sa main droite desséchée pointa vers le ciel.
 
 À peine eut-il parlé qu'un soupir sembla émaner des cieux. Alors que Wang Lin franchissait la brèche, une lumière bleue se rassembla pour former un écran de lumière bloquant sa progression. Non content de cela, l'éclat bleu jaillit et repoussa violemment Wang Lin vers l'intérieur.
 

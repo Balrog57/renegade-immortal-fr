@@ -102,7 +102,7 @@ Une femme se trouvait à l'intérieur de ce rayon. Elle était magnifique, mais 
 
 Il s'agissait de Li Qianmei, de la Secte Céleste Brisée de rang 9!
 
-Elle commença sa culture à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de culture, elle atteignit le sommet du stade Illusoire Yin.
+Elle commença sa culture à l'âge de cinq ans, atteignit l'Établissement des Fondations à sept ans, la Formation du Noyau à 19 ans, l'Âme Naissante à 26 ans, la Formation de l'Âme à 37 ans, la Transformation de l'Âme à 45 ans et l'Ascendant à 61 ans. Après cent ans de culture, elle atteignit le sommet du stade Yin Illusoire.
 
 Puis, toute la Secte Céleste Brisée consacra ses efforts à sa progression. Après plus de 400 ans, elle atteignit le sommet du stade Scrutateur du Nirvana. Puis, trois cents ans plus tard, elle devint une cultivatrice au milieu du stade Purificateur du Nirvana.
 

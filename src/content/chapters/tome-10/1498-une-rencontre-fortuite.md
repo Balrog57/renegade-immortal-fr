@@ -98,21 +98,21 @@ Wang Lin s'exclama: « Quel excellent vin! »
 
 Wang Lin sourit et évoqua brièvement quelques événements survenus dans le Royaume Extérieur.
 
-Le calme de Wang Lin fit briller les yeux de Maître Lu Fu. Cela fut particulièrement vrai lorsqu'il parla de la destruction du Clan Scatter Thunder, des sept millions de mondes et de sa rencontre avec le Daoïste Scattered Spirit.
+Le calme de Wang Lin fit briller les yeux de Maître Lu Fu. Cela fut particulièrement vrai lorsqu'il parla de la destruction du Clan Scatter Thunder, des sept millions de mondes et de sa rencontre avec le Daoïste Esprit Dispersé.
 
 Maître Lu Fu but une coupe de vin, son regard devenant sérieux.
 
-« Sept millions de mondes... Quel homme admirable, ce Daoïste Scattered Spirit! Bien qu'il n'ait pas atteint le troisième niveau, ses actes défient les cieux! »
+« Sept millions de mondes... Quel homme admirable, ce Daoïste Esprit Dispersé! Bien qu'il n'ait pas atteint le troisième niveau, ses actes défient les cieux! »
 
 Ling Dong et Zhou Jin savaient que la destruction du Clan Scatter Thunder était liée à Wang Lin, mais ignoraient les détails. En entendant cela, ils furent tous deux profondément émus.
 
 Sous un autre angle, la situation paraissait totalement différente. Zhou Jin et Ling Dong se regardèrent et réfléchirent en silence.
 
-Maître Yan Leizi et Lie Yunzi entendirent également les paroles de Wang Lin. Ils restèrent bouche bée, choqués par les actions de Wang Lin dans le Royaume Extérieur et admiratifs envers le Daoïste Scattered Spirit.
+Maître Yan Leizi et Lie Yunzi entendirent également les paroles de Wang Lin. Ils restèrent bouche bée, choqués par les actions de Wang Lin dans le Royaume Extérieur et admiratifs envers le Daoïste Esprit Dispersé.
 
-Maître Yan Leizi hésita un instant avant de joindre ses mains: « Senior Wang Lin, avez-vous revu le Daoïste Scattered Spirit par la suite? »
+Maître Yan Leizi hésita un instant avant de joindre ses mains: « Senior Wang Lin, avez-vous revu le Daoïste Esprit Dispersé par la suite? »
 
-Wang Lin secoua la tête. Après la destruction du Clan Scatter Thunder, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Scattered Spirit.
+Wang Lin secoua la tête. Après la destruction du Clan Scatter Thunder, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Esprit Dispersé.
 
 Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Royaume Extérieur. Ces récits palpitants firent briller les yeux de Maître Lu Fu. Il comprit que toutes les expériences de Wang Lin étaient authentiques, et il réalisa qu'il avait dû être incroyablement fort pour survivre à un tel calvaire.
 

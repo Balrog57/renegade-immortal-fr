@@ -100,7 +100,7 @@ Au centre de l'arène, Wang Lin se tenait debout dans sa robe blanche, entouré 
 
 « Le sort de la Tempête de Tonnerre de la famille Yao lui ressemble, mais sa puissance est dérisoire en comparaison! »
 
-Les yeux du vieil homme en robe pourpre du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure de Lord Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
+Les yeux du vieil homme en robe pourpre du Temple Céleste du Tonnerre s'illuminèrent. Un sourire apparut sur son visage: « J'ai entendu le Maître du Temple dire que ce Xu Mu était le petit-frère de disciple d'une génération inférieure de Seigneur Qing Shui. Cela semble plausible! Cependant, entre la Lame Céleste aux Neuf Accords, presque maîtrisée, et ce sort céleste qui ne peut former que deux dragons noirs, lequel est le plus fort? »
 
 Les dragons noirs rugissaient et continuaient de projeter un vent glacial tandis que Wang Lin avançait. Le souffle froid se dirigeait vers la pierre rouge où l'homme en noir était assis. Les yeux de ce dernier devinrent encore plus brillants, bien qu'il ne bougât point. Sa main droite traça un sceau, faisant s'élancer quatre des neuf lames dans les airs. Elles s'entrecroisèrent et se mirent à pivoter, engendrant une tempête. Dès que cette tempête de lames apparut, l'espace environnant commença à se fissurer, comme s'il ne pouvait plus supporter la pression.
 

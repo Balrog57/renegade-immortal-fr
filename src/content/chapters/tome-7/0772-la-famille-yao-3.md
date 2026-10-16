@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 772 - Yao Family (3)
 slug: la-famille-yao-3
 ---
-Le jeune homme esquissa un léger sourire et dit: « Il va bientôt mourir, mais cet homme est plutôt doué pour avoir tenu treize jours. Les cultivateurs qui l'ont précédé n'ont tenu que huit jours! Vieux Oncle, attrape-moi un cultivateur de l'Illusoire Yin la prochaine fois, afin que je puisse jouer un peu plus longtemps. De cette façon, mes vers d'âme octaires mûriront plus vite. »
+Le jeune homme esquissa un léger sourire et dit: « Il va bientôt mourir, mais cet homme est plutôt doué pour avoir tenu treize jours. Les cultivateurs qui l'ont précédé n'ont tenu que huit jours! Vieux Oncle, attrape-moi un cultivateur de l'Yin Illusoire la prochaine fois, afin que je puisse jouer un peu plus longtemps. De cette façon, mes vers d'âme octaires mûriront plus vite. »
 
 L'expression du vieil homme resta neutre lorsqu'il répondit: « D'accord! » C'était un mot très simple, mais empreint d'une immense confiance.
 

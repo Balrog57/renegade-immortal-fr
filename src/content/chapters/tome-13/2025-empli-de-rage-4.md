@@ -30,7 +30,7 @@ Cependant, lorsqu'il se trouva à moins de cent kilomètres du palais, plusieurs
 
 Peu après, une nuée de poussière s'éleva comme une armée de chevaux au galop et près de dix mille membres de l'Ancien Dao apparurent. Des milliers d'autres convergèrent de toutes les directions, formant une cage pour bloquer Wang Lin!
 
-« Il s'avère que c'est Lord Wang Lin. » Une silhouette descendit du ciel; en voyant Wang Lin, ses yeux s'illuminèrent mais son expression devint sombre.
+« Il s'avère que c'est Seigneur Wang Lin. » Une silhouette descendit du ciel; en voyant Wang Lin, ses yeux s'illuminèrent mais son expression devint sombre.
 
 « Lord n'était-il pas parti? Pourquoi forcez-vous l'entrée? Savez-vous que c'est une mort... » Avant qu'il ne puisse achever sa phrase, Wang Lin laissa échapper un rugissement.
 

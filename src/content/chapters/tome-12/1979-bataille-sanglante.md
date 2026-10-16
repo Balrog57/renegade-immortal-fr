@@ -42,7 +42,7 @@ Les environs devinrent totalement silencieux, jonchés d'ossements. Le brouillar
 
 L'Exalt Empyréen Hai Zi mordilla sa lèvre inférieure et le suivit. Cette bataille était une épreuve qu'elle aurait du mal à affronter. Plus de trente personnes avaient été mobilisées, et chacune possédait un niveau de culture d'Exalt Empyréen!
 
-L'Exalt Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart des Exalt Empyreens. Cependant, elle n'avait jamais vu ces trente individus auparavant — ils étaient tous des inconnus!
+L'Exalt Empyréen Hai Zi avait de nombreux amis et avait rencontré la plupart des Exalt Empyréens. Cependant, elle n'avait jamais vu ces trente individus auparavant — ils étaient tous des inconnus!
 
 « Ils ne sont pas des cultivateurs de niveau Exalt Empyréen, leur culture a été augmentée de force! Cela ne durera pas! » La raison pour laquelle Wang Lin en était si sûr était qu'il avait dévoré les âmes originelles de plus de trente d'entre eux. Il voulait les utiliser pour former une autre Veine Magique, mais il constata que leurs âmes n'étaient pas pures et qu'il faudrait du temps pour les raffiner.
 
@@ -70,7 +70,7 @@ Derrière eux, deux autres personnes émergèrent du vent et de la neige. Ces de
 
 « Messagers de l'armure spirituelle! » Wang Lin les reconnut d'un coup d'œil!
 
-« Ces deux-là m'sont inconnus. J'ai vu les 48 autres Ascendants Empyreens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure spirituelle... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures!
+« Ces deux-là m'sont inconnus. J'ai vu les 48 autres Ascendants Empyréens à la Secte du Soleil Violet, mais je n'ai jamais rencontré ceux-ci, et aucun d'eux ne possède d'armure spirituelle... Ils ont dû voir leur niveau de culture élevé au rang d'Ascendant Empyréen par une méthode spéciale avant de recevoir leurs armures!
 
 « Dans la cité ancestrale, la seule personne capable de faire cela est l'Empereur Céleste! »
 

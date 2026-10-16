@@ -76,7 +76,7 @@ D'un coup d'œil, ils virent que l'endroit était en ruines. Ils aperçurent la 
 
 « Que s'est-il passé? Jeune Maître, je vous en prie, calmez-vous! »
 
-« Nous sommes venus sur ordre de Lord Xuan pour enquêter. Jeune Maître, dites-nous ce qu'il en est. »
+« Nous sommes venus sur ordre de Seigneur Xuan pour enquêter. Jeune Maître, dites-nous ce qu'il en est. »
 
 Les neuf étaient sous le choc et joignirent les mains devant Wang Lin en signe de respect.
 
@@ -94,7 +94,7 @@ La silhouette de Wang Lin marqua un temps d'arrêt et il leva les yeux. Ses yeux
 
 « Vous osez m'arrêter?! »
 
-Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Le cuir chevelu engourdi par la peur, il joignit les mains et dit: « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres de Lord Xuan pour vous retenir. Une décision pourra être prise une fois que Lord Xuan sera arrivé. »
+Le vieil homme dont le niveau de culture était le plus élevé regarda Wang Lin avec effroi. Le cuir chevelu engourdi par la peur, il joignit les mains et dit: « Jeune Maître, ne soyez pas en colère. Nous suivons les ordres de Seigneur Xuan pour vous retenir. Une décision pourra être prise une fois que Seigneur Xuan sera arrivé. »
 
 « Maître Xuan Luo... » Wang Lin ressentit une douleur lancinante à la tête. Il savait que Xuan Luo était le gardien du Dao Antique, et que même l'actuel Empereur avait été choisi par lui, mais maintenant il allait...
 

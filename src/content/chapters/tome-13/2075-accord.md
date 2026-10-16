@@ -6,19 +6,19 @@ bookTitle: Light of the coming end
 en: Chapter 2075 - Agreement
 slug: accord
 ---
-« Maître Scarlet Soul... » Wang Lin laissa échapper un ricanement froid. À présent, il percevait clairement tout ce qui se tramait à l'extérieur du Royaume Céleste. Il vit le visage de Maître Scarlet Soul et celui du jeune homme, avec lequel il ressentait vaguement un lien de sang. Il vit également la formation protégeant le Royaume Céleste se faire ronger par une lumière sanguine.
+« Maître Âme Écarlate... » Wang Lin laissa échapper un ricanement froid. À présent, il percevait clairement tout ce qui se tramait à l'extérieur du Royaume Céleste. Il vit le visage de Maître Âme Écarlate et celui du jeune homme, avec lequel il ressentait vaguement un lien de sang. Il vit également la formation protégeant le Royaume Céleste se faire ronger par une lumière sanguine.
 
 Au vu de l'érosion, la formation devrait se dissiper d'ici environ deux jours.
 
-Lorsque Wang Lin avait libéré Maître Scarlet Soul, bien que celui-ci fût affaibli, il demeurait trop puissant pour lui. Désormais, le maître avait retrouvé son apogée, mais face à Wang Lin, il n'était plus qu'une simple fourmi.
+Lorsque Wang Lin avait libéré Maître Âme Écarlate, bien que celui-ci fût affaibli, il demeurait trop puissant pour lui. Désormais, le maître avait retrouvé son apogée, mais face à Wang Lin, il n'était plus qu'une simple fourmi.
 
 Une fourmi qu'il pourrait écraser d'innombrables fois d'un simple point de doigt.
 
 Dans un ricanement froid, Wang Lin fit un pas en avant et disparut de Luotian. Dès sa disparition, la porte de lumière s'évanouit comme si elle n'avait jamais existé.
 
-Lorsque Wang Lin réapparut, il ne se trouvait pas près de Maître Scarlet Soul, mais au sein du familier Royaume Céleste. Personne dans le Royaume ne remarqua son arrivée.
+Lorsque Wang Lin réapparut, il ne se trouvait pas près de Maître Âme Écarlate, mais au sein du familier Royaume Céleste. Personne dans le Royaume ne remarqua son arrivée.
 
-Il n'était plus question de Maître Scarlet Soul à l'extérieur.
+Il n'était plus question de Maître Âme Écarlate à l'extérieur.
 
 Le ciel du Royaume Céleste n'était plus bleu comme autrefois, mais d'un rouge sanglant. Il était pesant et oppressant. Cependant, malgré cette teinte funeste, les pavillons, les montagnes et les rivières dessinaient toujours la splendeur du Royaume Céleste.
 

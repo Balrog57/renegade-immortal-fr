@@ -52,7 +52,7 @@ Au loin, Wang Lin marqua une pause et se lécha les lèvres. Ses yeux étaient d
 
 Le visage des treize survivants devint pâle et lugubre. Ils fixèrent tous Wang Lin, qui leur apparaissait désormais comme un loup.
 
-La légende de Xu Mu hantait leurs esprits. L'un des cultivateurs Illusoire Yin serra les dents et ses mains formèrent immédiatement un sceau. L'énergie originelle circula dans son corps et une lumière blanche apparut devant lui. En un instant, cette lumière se transforma en une grande épée avant qu'il n'expulse de l'essence originelle. La lame devint féroce, comme capable de déchirer le vide.
+La légende de Xu Mu hantait leurs esprits. L'un des cultivateurs Yin Illusoire serra les dents et ses mains formèrent immédiatement un sceau. L'énergie originelle circula dans son corps et une lumière blanche apparut devant lui. En un instant, cette lumière se transforma en une grande épée avant qu'il n'expulse de l'essence originelle. La lame devint féroce, comme capable de déchirer le vide.
 
 La majorité des cultivateurs autour de lui poussèrent également des rugissements. En particulier, le dernier cultivateur Corporel Yang frappa sa sacoche, faisant apparaître d'innombrables aiguilles noires qu'il projeta vers Wang Lin.
 
@@ -90,7 +90,7 @@ La Paire Dao Fanée se lança également après un autre.
 
 Simultanément, Wang Lin frappa sa sacoche et l'Épée Céleste apparut. Xu Liguo surgit et, sans qu'aucun ordre ne soit donné par Wang Lin, il poussa un cri étrange en changeant de forme pour poursuivre l'un des fuyards.
 
-Xu Liguo éprouvait une certaine crainte. Bien qu'il ait hérité de l'intention d'épée antique, il n'avait jamais combattu de cultivateur Illusoire Yin. En cet instant, il pleurait intérieurement: « Maudit soit, je dois y aller à fond, à fond... »
+Xu Liguo éprouvait une certaine crainte. Bien qu'il ait hérité de l'intention d'épée antique, il n'avait jamais combattu de cultivateur Yin Illusoire. En cet instant, il pleurait intérieurement: « Maudit soit, je dois y aller à fond, à fond... »
 
 Trois trésors poursuivaient trois cibles différentes. Wang Lin fit un pas en avant et disparut.
 
@@ -98,7 +98,7 @@ Presque instantanément, Wang Lin apparut aux côtés d'un cultivateur en fuite.
 
 Dès qu'il retira son doigt, il disparut à nouveau. Un instant plus tard, le Sceau Céleste et la Paire Dao Fanée revinrent également. Seul Xu Liguo n'était pas de retour; il jurait tout en contrôlant l'Épée Céleste pour attaquer.
 
-Le cultivateur Illusoire Yin affichait une expression extrêmement sombre. Il ne voulait pas s'enliser avec cet esprit d'épée. Voir ses compagnons mourir les uns après les autres fit atteindre à sa peur un paroxysme.
+Le cultivateur Yin Illusoire affichait une expression extrêmement sombre. Il ne voulait pas s'enliser avec cet esprit d'épée. Voir ses compagnons mourir les uns après les autres fit atteindre à sa peur un paroxysme.
 
 Les injures de l'esprit d'épée l'agaçèrent profondément. Il activa l'énergie originelle de son corps, provoquant une onde de choc qui repoussa Xu Liguo. Refusant le combat, il s'enfuit à plus de 330 mètres et s'apprêta à se téléporter.
 

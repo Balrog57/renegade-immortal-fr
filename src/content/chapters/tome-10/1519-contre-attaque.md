@@ -80,7 +80,7 @@ Pourtant, ce massacre ne suffisait pas à forcer ces dizaines de milliers de cul
 
 Des grondements tonitruants retentirent. En explosant, ils libérèrent une force destructrice immense. Si Wang Lin n'avait pas possédé le corps d'un Dieu Ancien, il aurait été contraint de reculer face à ce chaos sanglant.
 
-« C'est Wang Lin! Tuez-le et vous pourrez intégrer le classement du Système Stellaire Ancien!! »
+« C'est Wang Lin! Tuez-le et vous pourrez intégrer le classement du Système Stellaire Antique!! »
 
 « Tuez-le!!! »
 
@@ -110,7 +110,7 @@ Simultanément, l'homme chétif piégé par le jade du Seigneur du Royaume Scell
 
 Cette guerre avait atteint son paroxysme dès le début!
 
-Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en faveur du Royaume Intérieur! Cependant, cette guerre ne montrait aucun signe d'achèvement. Dans le Système Stellaire Ancien, plus de dix clans s'étaient préparés depuis longtemps. À cet instant, l'ordre fut donné et ils furent téléportés via une matrice de transfert vers la brèche de la Formation de Scellement du Royaume!
+Grâce à la présence du Seigneur du Royaume Scellé, l'équilibre penchait en faveur du Royaume Intérieur! Cependant, cette guerre ne montrait aucun signe d'achèvement. Dans le Système Stellaire Antique, plus de dix clans s'étaient préparés depuis longtemps. À cet instant, l'ordre fut donné et ils furent téléportés via une matrice de transfert vers la brèche de la Formation de Scellement du Royaume!
 
 Parmi ces dix tribus se trouvaient 80 000 individus, dont deux cultivateurs du troisième stade. Ces deux derniers chargèrent vers l'ouverture!
 

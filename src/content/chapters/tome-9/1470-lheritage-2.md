@@ -62,9 +62,9 @@ Cette tombe antique ne contenait pas qu'une seule strate, mais trois niveaux! To
 
 Si l'on considérait la première couche de la tombe antique comme une formation, alors l'emplacement de ce trône en était le cœur et le centre!
 
-À cet instant également, Wang Lin vit d'innombrables âmes tourmentées dans la deuxième couche. Ce qui le terrifiait, c'était de voir des âmes dégageant une pression capable de rivaliser avec celle du Maître Dao Blue Dream!
+À cet instant également, Wang Lin vit d'innombrables âmes tourmentées dans la deuxième couche. Ce qui le terrifiait, c'était de voir des âmes dégageant une pression capable de rivaliser avec celle du Maître Maître du Dao Rêve Bleu!
 
-Il y avait aussi un lieu flou au plus profond de cette seconde couche. Une aura indescriptible et vertigineuse semblait y sommeiller. Dès que l'on pénétrait dans ce deuxième niveau, cette existence puissante s'éveillait. Même un être doté de la puissance du Maître Dao Blue Dream aurait du mal à y survivre!
+Il y avait aussi un lieu flou au plus profond de cette seconde couche. Une aura indescriptible et vertigineuse semblait y sommeiller. Dès que l'on pénétrait dans ce deuxième niveau, cette existence puissante s'éveillait. Même un être doté de la puissance du Maître Maître du Dao Rêve Bleu aurait du mal à y survivre!
 
 Et ce n'était que la deuxième couche; il restait encore la troisième!
 

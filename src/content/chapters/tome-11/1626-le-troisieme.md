@@ -102,7 +102,7 @@ Un puits se trouvait au centre du palais, et un homme en robe noire se tenait à
 
 Il baissa la tête vers le puits, rendant son expression illisible. Après un long moment, il leva sa main droite desséchée et pinça délicatement une flamme. Le chandelier s'éteignit et une fumée s'éleva. La fumée l'enveloppa, le dissimulant dans les ténèbres.
 
-« Lui... pourquoi est-il si difficile à tuer... Blue Dream m'a arrêté la première fois... La deuxième fois était un piège mortel, mais finalement, Maître... Maître s'est réellement manifesté! »
+« Lui... pourquoi est-il si difficile à tuer... Rêve Bleu m'a arrêté la première fois... La deuxième fois était un piège mortel, mais finalement, Maître... Maître s'est réellement manifesté! »
 
 « Maître a perdu la raison, il a réellement sauvé Wang Lin, malgré son tempérament... » Une voix rauque résonna dans l'obscurité avant de se déformer progressivement. C'était comme si le Souverain ne pouvait masquer la panique dans sa voix.
 

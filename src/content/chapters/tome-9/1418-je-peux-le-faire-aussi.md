@@ -12,7 +12,7 @@ Wang Lin fronça les sourcils. Les paroles de l'Oiseau Vermillon de la première
 
 « Les Cinq Doigts Brise-Vide sont un processus permettant de rassembler la puissance nécessaire pour déchirer le vide. Ce n'est qu'en cultivant jusqu'aux limites de la deuxième étape que l'on peut emprunter la puissance de son essence pour briser la Porte du Vide d'un seul coup! »
 
-« Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Vermillion Bird devienne un Dieu Ancien! » Une étrange lueur brilla dans les yeux de l'Oiseau Vermillon de la première génération alors qu'il contemplait l'épée de sang devant lui.
+« Votre culture est trop chaotique. Tout d'abord, votre corps de Dieu Ancien... Dieu Ancien, Dieu Ancien... Je ne m'attendais pas à ce qu'un membre de mon clan Oiseau Vermillon devienne un Dieu Ancien! » Une étrange lueur brilla dans les yeux de l'Oiseau Vermillon de la première génération alors qu'il contemplait l'épée de sang devant lui.
 
 « Ce vieil homme ne sait pas grand-chose sur la culture des Dieux Anciens, mais à mon époque, leur pouvoir faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Antique ne fût pas aussi puissant que le Souverain Céleste Antique, ce dernier le craignait pourtant toujours... »
 
@@ -34,7 +34,7 @@ Wang Lin regarda l'Oiseau Vermillon de la première génération et demanda calm
 
 « Abandonnez votre corps de Dieu Ancien, renoncez à votre essence de tonnerre qui semble complète mais demeure imparfaite, et abandonnez également toutes vos essences à l'exception de votre essence de feu... Restez dans l'Épreuve Céleste, et ce vieil homme vous aidera à atteindre la troisième étape d'ici cent ans! »
 
-« À partir de là, vous n'aurez plus qu'une seule essence: le feu du Vermillion Bird! Une fois la troisième étape atteinte, ce vieil homme vous enseignera la Flamme Éternelle du Vermillion Bird! Vous cultiverez ici en paix avec les oiseaux vermillions des deuxième et quatrième générations, et vous attendrez que ce vieil homme brise le sceau. Alors, il prendra tous les trois... et quittera cet endroit! » déclara lentement l'Oiseau Vermillon de la première génération.
+« À partir de là, vous n'aurez plus qu'une seule essence: le feu du Oiseau Vermillon! Une fois la troisième étape atteinte, ce vieil homme vous enseignera la Flamme Éternelle du Oiseau Vermillon! Vous cultiverez ici en paix avec les oiseaux vermillions des deuxième et quatrième générations, et vous attendrez que ce vieil homme brise le sceau. Alors, il prendra tous les trois... et quittera cet endroit! » déclara lentement l'Oiseau Vermillon de la première génération.
 
 « Quitter cet endroit? » Les yeux de Wang Lin s'illuminèrent. Il pressentait un sens caché derrière ces mots.
 
@@ -46,9 +46,9 @@ Le cœur de Wang Lin tressaillit et il s'apprêta à parler.
 
 « Je vous laisserai le temps de réfléchir, j'espère que vous en tiendrez compte sérieusement... » L'Oiseau Vermillon de la première génération poussa un soupir.
 
-La respiration de Wang Lin devint saccadée alors qu'il luttait intérieurement. Les paroles de l'Oiseau Vermillon de la première génération étaient extrêmement tentantes, plus encore que l'offre du Maître Dao Blue Dream!
+La respiration de Wang Lin devint saccadée alors qu'il luttait intérieurement. Les paroles de l'Oiseau Vermillon de la première génération étaient extrêmement tentantes, plus encore que l'offre du Maître Maître du Dao Rêve Bleu!
 
-Le Maître Dao Blue Dream n'appartenait pas au clan Vermillion Bird. Dans son cœur, Wang Lin penchait davantage vers l'Oiseau Vermillon de la première génération.
+Le Maître Maître du Dao Rêve Bleu n'appartenait pas au clan Oiseau Vermillon. Dans son cœur, Wang Lin penchait davantage vers l'Oiseau Vermillon de la première génération.
 
 Wang Lin hésita et demanda: « Si j'abandonne mon corps de Dieu Ancien et mes autres essences, une fois la troisième étape atteinte, pourrai-je recultiver mes essences? »
 

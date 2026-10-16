@@ -8,7 +8,7 @@ slug: trois-etapes-pour-bander-larc
 ---
 Cependant, aujourd'hui, il avait rencontré Wang Lin, celui qui avait compris l'essence du vrai et du faux!
 
-Wang Lin ne prit même pas les yeux ouverts. Au moment où le noyau du Maître Céleste Void God tenta de s'échapper, et que le jeune homme en robe verte se mit à battre en retraite avec terreur après avoir vu le Maître Céleste Void God être déchiqueté, Wang Lin leva sa main droite vers ses sourcils.
+Wang Lin ne prit même pas les yeux ouverts. Au moment où le noyau du Maître Céleste Dieu du Vide tenta de s'échapper, et que le jeune homme en robe verte se mit à battre en retraite avec terreur après avoir vu le Maître Céleste Dieu du Vide être déchiqueté, Wang Lin leva sa main droite vers ses sourcils.
 
 Sur ce geste, une lumière dorée infinie jaillit et une goutte de sang doré perla entre les sourcils de Wang Lin. Il la saisit de la main droite.
 
@@ -20,11 +20,11 @@ Pourtant, ce sang appartenait toujours à Wang Lin. Tant qu'il détenait ce sang
 
 Avec cet arc et son niveau de culture actuel, Wang Lin ne craignait ni le monde, ni aucun autre cultivateur! Cet arc représentait l'attaque la plus puissante de Wang Lin!
 
-Les yeux clos, la main gauche de Wang Lin tenait l'arc tandis que sa main droite tendait la corde. Il visa le Maître Céleste Void God en fuite et tira sur la corde.
+Les yeux clos, la main gauche de Wang Lin tenait l'arc tandis que sa main droite tendait la corde. Il visa le Maître Céleste Dieu du Vide en fuite et tira sur la corde.
 
 Un bourdonnement résonna, comme si l'espace était sur le point de s'effondrer ou était déjà en train de se désintégrer. L'espace autour de Wang Lin commença à s'écrouler strate après strate, prenant sa position de centre.
 
-Le Maître Céleste Void God laissa échapper un cri silencieux tandis qu'un sentiment de mort l'enveloppait. Il courut comme un fou et fusionna avec le monde, disparaissant en un instant des environs de la planète Suzaku.
+Le Maître Céleste Dieu du Vide laissa échapper un cri silencieux tandis qu'un sentiment de mort l'enveloppait. Il courut comme un fou et fusionna avec le monde, disparaissant en un instant des environs de la planète Suzaku.
 
 Il y avait aussi le jeune homme en robe verte. S'échappant avec précipitation dans la terreur, il déchira une faille spatiale pour s'y engouffrer.
 
@@ -74,19 +74,19 @@ Dans la partie nord du Vide Brillant, mille rayons de lumière représentant mil
 
 Il en fut de même partout dans le Vide Brillant. À mesure que les ondulations se propageaient, un nombre terrifiant de cultivateurs du Royaume Extérieur succombait!
 
-À la frontière entre le Vide Brillant et la Mer des Nuages, l'avatar du Maître Céleste Void God reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
+À la frontière entre le Vide Brillant et la Mer des Nuages, l'avatar du Maître Céleste Dieu du Vide reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
 
 « Qui peut le tuer quand il possède cette flèche?! Damnation, sans elle, je ne serais au plus mal que blessé, et ce n'est pas impossible de l'abattre. C'est juste... c'est juste que... pourquoi doit-il avoir cet arc et cette flèche!?! »
 
 « Souverain, c'est vous qui lui avez offert cet arc autrefois. Vous avez commis une erreur monumentale! Avec un tel arc, qui dans le Royaume Intérieur ou Extérieur peut l'affronter?! »
 
-« Ce vieil homme ne participera plus à cette guerre. Si mon avatar survit, il retournera vers mon corps originel! » La peur du Maître Céleste Void God avait atteint ses limites. Il s'enfuyait désormais vers la Mer des Nuages, voulant passer par l'ouverture de celle-ci. Il avait déjà décidé de ne plus jamais remettre les pieds dans le Royaume Intérieur!
+« Ce vieil homme ne participera plus à cette guerre. Si mon avatar survit, il retournera vers mon corps originel! » La peur du Maître Céleste Dieu du Vide avait atteint ses limites. Il s'enfuyait désormais vers la Mer des Nuages, voulant passer par l'ouverture de celle-ci. Il avait déjà décidé de ne plus jamais remettre les pieds dans le Royaume Intérieur!
 
 Pourtant, à cet instant précis, son expression changea radicalement et il se retourna. L'espace derrière lui se brisa et la flèche jaillit. Elle se déplaçait à une vitesse inimaginable, impossible à esquiver, et traversa son corps.
 
-Le corps du Maître Céleste Void God s'effondra et son aura disparut sans laisser de trace.
+Le corps du Maître Céleste Dieu du Vide s'effondra et son aura disparut sans laisser de trace.
 
-Au moment même où son avatar périait, un cri déchirant retentit dans un domaine stellaire enveloppé d'un brouillard infini au sein du Système Stellaire Antique. Le brouillard se contracta rapidement jusqu'à former une silhouette: c'était le corps originel du Maître Céleste Void God.
+Au moment même où son avatar périait, un cri déchirant retentit dans un domaine stellaire enveloppé d'un brouillard infini au sein du Système Stellaire Antique. Le brouillard se contracta rapidement jusqu'à former une silhouette: c'était le corps originel du Maître Céleste Dieu du Vide.
 
 Il cracha une bouchée de sang et tituba en reculant de quelques pas. Il regarda vers le Royaume Intérieur, les yeux emplis d'effroi.
 

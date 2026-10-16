@@ -10,11 +10,11 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Lorsque je suis redevenu lucide après ces trois mois, le Royaume Céleste s'était déjà effondré... »
 
-« Le nouveau Dieu Empereur Azure Dragon n'a pas écouté mes conseils et est allé inspecter le Royaume Céleste. Après cela, il n'est jamais revenu... »
+« Le nouveau Dieu Empereur Dragon Azure n'a pas écouté mes conseils et est allé inspecter le Royaume Céleste. Après cela, il n'est jamais revenu... »
 
 « Plusieurs centaines d'années ont passé. En raison de l'effondrement du Royaume Céleste, le Système Stellaire du Vide Brillant est devenu chaotique. C'est alors qu'une organisation appelée l'Alliance de Culture a fait son apparition, avec l'ombre du Royaume du Vide Brillant derrière elle. »
 
-« Cette Alliance de Culture a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace du Dieu Empereur Azure Dragon, mais ma troisième Affliction Céleste était arrivée bien avant l'heure. J'ai dû entrer en culture en vase clos, mais c'est précisément à ce moment-là que l'Alliance de Culture a lancé son attaque contre les Quatre Sectes Divins... »
+« Cette Alliance de Culture a utilisé une méthode inconnue pour s'emparer de la majorité des héritages du Royaume Céleste de la Pluie. J'avais initialement l'intention d'aller m'enquérir de la trace du Dieu Empereur Dragon Azure, mais ma troisième Affliction Céleste était arrivée bien avant l'heure. J'ai dû entrer en culture en vase clos, mais c'est précisément à ce moment-là que l'Alliance de Culture a lancé son attaque contre les Quatre Sectes Divins... »
 
 « Le Dieu Empereur Tortue Noire nous a trahis; bien que je l'aie gravement blessé, je n'ai pu le tuer à cause de ma troisième Affliction Céleste... »
 
@@ -26,7 +26,7 @@ slug: le-chaos-cause-par-tuo-sen
 
 « Cependant, le Royaume du Vide Brillant ne connaissait que l'existence du secret; il ignorait l'emplacement de cette planète de culture. Le Système Stellaire du Vide Brillant était trop vaste, et il était tout simplement impossible de trouver une seule planète de culture au hasard. De plus, la planète avait été transformée par les quatre premiers Dieu Empereurs, il était donc impossible d'y déceler quoi que ce soit d'anormal. »
 
-« Selon l'accord des quatre premiers Dieu Empereurs, seule chaque génération du Dieu Empereur Vermillion Bird peut connaître la position exacte de la planète! »
+« Selon l'accord des quatre premiers Dieu Empereurs, seule chaque génération du Dieu Empereur Oiseau Vermillon peut connaître la position exacte de la planète! »
 
 « C'est ainsi que la guerre entre l'Alliance et les Quatre Sectes Divins a éclaté! »
 
@@ -84,7 +84,7 @@ Le Maître Flemespark fronça les sourcils et pointa impitoyablement l'espace en
 
 Le Maître Flemespark tonna: « Lie Yunzi, parle clairement! Pourquoi la Secte des Cadavres t'a-t-elle tendu une embuscade? »
 
-« L'Empereur Divin Vermillion Bird est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
+« L'Empereur Divin Oiseau Vermillon est Wang Lin. Il voulait que je vous remette un jade. Sur le chemin du retour, j'ai été pris en embuscade par les membres de la Secte des Cadavres et j'ai été frappé par le Septième Poison Céleste... » Bien que le niveau de culture de Lie Yunzi fût supérieur à celui de Situ Nan, il n'avait pas encore atteint le stade du Briseur du Nirvana. Désormais privé de son corps physique, il n'était pas aussi doué que Situ Nan pour trouver d'autres moyens de supprimer le poison.
 
 Pour diverses raisons, le poison en lui était devenu extrêmement virulent.
 

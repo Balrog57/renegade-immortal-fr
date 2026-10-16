@@ -8,11 +8,11 @@ slug: combat
 ---
 Chi Hu dit: « Ceng Niu. Tout comme toi et moi, il vient également de la planète Suzaku. »
 
-« De la planète Suzaku? » Rouge Papillon fut surprise en repensant aux quatre autres.
+« De la planète Suzaku? » Papillon Rouge fut surprise en repensant aux quatre autres.
 
 À cet instant précis, la formation devant eux s'illumina soudainement. Lorsque son éclat atteignit son paroxysme, une silhouette apparut.
 
-« C'est lui! » Les yeux de Rouge Papillon s'illuminèrent. Sans un mot, sa main fendit l'air avec la rapidité de l'éclair et projeta une empreinte blanche vers la formation.
+« C'est lui! » Les yeux de Papillon Rouge s'illuminèrent. Sans un mot, sa main fendit l'air avec la rapidité de l'éclair et projeta une empreinte blanche vers la formation.
 
 Bang Bang Bang
 
@@ -20,13 +20,13 @@ L'empreinte traversa les airs comme un éclair.
 
 La silhouette qui émergea de la formation était Wang Lin. Dès son apparition, il sentit le danger; il frappa aussitôt le sol du pied pour briser la formation et se protégea derrière un nuage de fumée verte tout en reculant. D'un revers de la main droite, il lança le piège à bêtes. Dans un rugissement, une boule de foudre surgit et fonça vers l'empreinte.
 
-Simultanément, Wang Lin agita la main et le drapeau de restriction apparut dans sa paume. Une multitude de gaz de restriction jaillit en rugissant, dont le grondement porta à plus de dix kilomètres, tandis que Wang Lin, à l'intérieur, verrouillait son regard sur Rouge Papillon.
+Simultanément, Wang Lin agita la main et le drapeau de restriction apparut dans sa paume. Une multitude de gaz de restriction jaillit en rugissant, dont le grondement porta à plus de dix kilomètres, tandis que Wang Lin, à l'intérieur, verrouillait son regard sur Papillon Rouge.
 
 « Allez! »
 
 Sous l'ordre de Wang Lin, le gaz de restriction se mua en dragons qui chargèrent sans crainte, la gueule béante et féroce.
 
-Le visage de Rouge Papillon devint froid alors qu'elle frappait le sol du pied pour s'envoler en arrière. En même temps, elle agita sa main droite et une sculpture de glace apparut. Cette œuvre ressemblait à la sculpture mi-humaine, mi-serpent d'autrefois, si ce n'est que celle-ci avait les yeux clos. À l'instant où la sculpture se matérialisa, une lumière bleue jaillit de ses paupières closes.
+Le visage de Papillon Rouge devint froid alors qu'elle frappait le sol du pied pour s'envoler en arrière. En même temps, elle agita sa main droite et une sculpture de glace apparut. Cette œuvre ressemblait à la sculpture mi-humaine, mi-serpent d'autrefois, si ce n'est que celle-ci avait les yeux clos. À l'instant où la sculpture se matérialisa, une lumière bleue jaillit de ses paupières closes.
 
 Bang
 
@@ -38,7 +38,7 @@ La lumière bleue ne s'arrêta pas et poursuivit sa course. Le crapaud de tonner
 
 Même les dragons féroces formés par le gaz de restriction furent stoppés par la lumière bleue et montrèrent des signes de gel.
 
-Cette fois, Rouge Papillon avait utilisé l'un de ses trésors les plus puissants. Son objectif était d'abattre Wang Lin d'un seul coup.
+Cette fois, Papillon Rouge avait utilisé l'un de ses trésors les plus puissants. Son objectif était d'abattre Wang Lin d'un seul coup.
 
 Voyant son attaque neutralisée, Wang Lin recula immédiatement et pointa son front. Un à un, des âmes errantes jaillirent et encerclèrent Wang Lin en poussant des hurlements.
 
@@ -46,17 +46,17 @@ Wang Lin s'élança dans les airs. À cet instant, il ressemblait à un dieu dé
 
 « Dévorez! »
 
-D'un seul mot, plus de dix mille âmes errantes devinrent des spectres féroces et chargèrent sans peur vers Rouge Papillon. La lumière bleue n'eut que peu d'effet sur elles; après tout, les âmes errantes étaient déjà mortes et possédaient une résistance naturelle aux sorts.
+D'un seul mot, plus de dix mille âmes errantes devinrent des spectres féroces et chargèrent sans peur vers Papillon Rouge. La lumière bleue n'eut que peu d'effet sur elles; après tout, les âmes errantes étaient déjà mortes et possédaient une résistance naturelle aux sorts.
 
 Chi Hu réagit enfin. Il fronça les sourcils et cria: « Arrêtez! »
 
-L'expression de Rouge Papillon changea. Elle ricana en reculant rapidement. Les âmes errantes déferlèrent comme une marée, la poursuivant de près.
+L'expression de Papillon Rouge changea. Elle ricana en reculant rapidement. Les âmes errantes déferlèrent comme une marée, la poursuivant de près.
 
-Wang Lin déchaîna son intention de tuer; il agita son drapeau de restriction et plusieurs dizaines de filaments de gaz s'en échappèrent. Ils se réunirent pour former un immense javelot qui fonça vers Rouge Papillon.
+Wang Lin déchaîna son intention de tuer; il agita son drapeau de restriction et plusieurs dizaines de filaments de gaz s'en échappèrent. Ils se réunirent pour former un immense javelot qui fonça vers Papillon Rouge.
 
 Ce javelot était semblable à un fantôme, glissant comme l'éclair derrière les âmes errantes.
 
-Rouge Papillon recula encore.
+Papillon Rouge recula encore.
 
 Sa main effleura la sculpture de glace, la faisant croître soudainement jusqu'à atteindre la taille d'un homme devant elle. Elle poussa un rugissement et les yeux de la sculpture s'ouvrirent comme si l'objet était vivant.
 
@@ -64,7 +64,7 @@ La sculpture projeta alors des rayons de lumière bleue. Sous cette lueur, les �
 
 Cependant, le javelot formé par le gaz de restriction perça la lumière bleue et chargea.
 
-Le corps de Wang Lin s'élança à son tour. Il suivit de près le javelot en criant: « Rouge Papillon! Tes parents n'avaient personne pour leur rendre leurs derniers honneurs. Tu es une enfant ingrate! »
+Le corps de Wang Lin s'élança à son tour. Il suivit de près le javelot en criant: « Papillon Rouge! Tes parents n'avaient personne pour leur rendre leurs derniers honneurs. Tu es une enfant ingrate! »
 
 Voyant que Wang Lin chargeait personnellement, les âmes errantes n'osèrent pas rester en arrière. Elles volaient derrière lui comme la traîne d'un paon noir, renforçant sa prestance terrifiante.
 
@@ -90,13 +90,13 @@ La puissance combinée de l'effondrement du ciel et de la déchirure de la terre
 
 Même Chi Hu recula involontairement de quelques pas, les yeux écarquillés par le choc. Il ne s'attendait pas à ce que Ceng Niu possède une technique aussi terrifiante.
 
-« L'union d'un homme et de son trésor magique! » Chi Hu était stupéfait. Ses yeux brillèrent d'intérêt, mais il réprima rapidement son envie de combattre. « Cet homme doit être un génie de la famille Ceng. Si c'était moi, à moins d'utiliser le trésor que ma famille m'a confié, il me serait difficile d'échapper à un tel désastre. Cependant, cette Rouge Papillon est au stade avancé de la Formation de l'Âme... ce Ceng Niu est vraiment remarquable; il sait qu'il doit d'abord briser le cœur Dao de Rouge Papillon. Ce Ceng Niu n'est vraiment pas de taille ordinaire. »
+« L'union d'un homme et de son trésor magique! » Chi Hu était stupéfait. Ses yeux brillèrent d'intérêt, mais il réprima rapidement son envie de combattre. « Cet homme doit être un génie de la famille Ceng. Si c'était moi, à moins d'utiliser le trésor que ma famille m'a confié, il me serait difficile d'échapper à un tel désastre. Cependant, cette Papillon Rouge est au stade avancé de la Formation de l'Âme... ce Ceng Niu est vraiment remarquable; il sait qu'il doit d'abord briser le cœur Dao de Papillon Rouge. Ce Ceng Niu n'est vraiment pas de taille ordinaire. »
 
-Rouge Papillon était trop jeune, après tout. Comparée à un vieux monstre comme Wang Lin, qui avait vécu plus de 400 ans et percé les mystères de la nature humaine, sa force mentale était bien inférieure à celle de ce dernier. Les paroles de Wang Lin frappaient directement son cœur. Une lueur de rage apparut sur son visage alors qu'elle continuait de reculer.
+Papillon Rouge était trop jeune, après tout. Comparée à un vieux monstre comme Wang Lin, qui avait vécu plus de 400 ans et percé les mystères de la nature humaine, sa force mentale était bien inférieure à celle de ce dernier. Les paroles de Wang Lin frappaient directement son cœur. Une lueur de rage apparut sur son visage alors qu'elle continuait de reculer.
 
-Wang Lin avançait sans relâche tandis que Rouge Papillon ne faisait que reculer. Sachant que l'expérience de combat de la jeune femme était inférieure à la sienne, il en profita pour la traquer sans lui laisser le moindre répit.
+Wang Lin avançait sans relâche tandis que Papillon Rouge ne faisait que reculer. Sachant que l'expérience de combat de la jeune femme était inférieure à la sienne, il en profita pour la traquer sans lui laisser le moindre répit.
 
-L'intention de tuer embrasa les yeux de Rouge Papillon. En tant que génie de Xue Yu, elle n'avait jamais connu un moment aussi humiliant depuis sa naissance. Autrefois, dès qu'elle utilisait sa sculpture de glace, même des cultivateurs au stade avancé de la Formation de l'Âme fuyaient en panique.
+L'intention de tuer embrasa les yeux de Papillon Rouge. En tant que génie de Xue Yu, elle n'avait jamais connu un moment aussi humiliant depuis sa naissance. Autrefois, dès qu'elle utilisait sa sculpture de glace, même des cultivateurs au stade avancé de la Formation de l'Âme fuyaient en panique.
 
 De plus, Suzaku lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
 
@@ -110,27 +110,27 @@ Dès que la lumière apparut, elle se métamorphosa en une rose magnifique.
 
 Le javelot chargea et percuta la rose. Un pétale tomba et, au même instant, l'expression de Wang Lin changea: le javelot s'était effondré.
 
-Le visage de Rouge Papillon prit une teinte rouge surnaturelle pendant un instant avant que cela ne disparaisse.
+Le visage de Papillon Rouge prit une teinte rouge surnaturelle pendant un instant avant que cela ne disparaisse.
 
 Wang Lin soupira. Même une attaque d'une telle puissance n'avait pu tuer cette femme. Les cultivateurs au stade avancé de la Formation de l'Âme étaient véritablement redoutables.
 
 Alors qu'il reculait, le domaine impitoyable enveloppa son corps.
 
-Rouge Papillon fixa Wang Lin qui se retirait. Elle grinça des dents et déclara: « Tu es le premier à me forcer à utiliser mon trésor vital. Tu peux maintenant mourir en paix! »
+Papillon Rouge fixa Wang Lin qui se retirait. Elle grinça des dents et déclara: « Tu es le premier à me forcer à utiliser mon trésor vital. Tu peux maintenant mourir en paix! »
 
 Sur ces mots, elle tendit la main et arracha un pétale de la fleur.
 
-Chi Hu poussa un rugissement et s'éleva dans les airs. « Arrêtez! Camarade Rouge Papillon et Frère Ceng, c'est moi qui vous ai invités ici. Si vous persistez, ne me reprochez pas ma cruauté! »
+Chi Hu poussa un rugissement et s'éleva dans les airs. « Arrêtez! Camarade Papillon Rouge et Frère Ceng, c'est moi qui vous ai invités ici. Si vous persistez, ne me reprochez pas ma cruauté! »
 
 Wang Lin prit une profonde inspiration, concentrant toute son attention sur la résistance à l'invasion du domaine impitoyable, et dit froidement: « Camarade Chi Hu, ce n'est pas moi qui ai commencé tout ceci! »
 
-Le visage de Rouge Papillon resta glacial alors qu'elle lançait un regard à Chi Hu: « Cela n'a rien à voir avec toi! Retire-toi! »
+Le visage de Papillon Rouge resta glacial alors qu'elle lançait un regard à Chi Hu: « Cela n'a rien à voir avec toi! Retire-toi! »
 
-L'expression de Chi Hu changea. Il fixa Rouge Papillon et éclata d'un rire sonore. « Camarade Rouge Papillon, et si je décidais de m'en mêler? »
+L'expression de Chi Hu changea. Il fixa Papillon Rouge et éclata d'un rire sonore. « Camarade Papillon Rouge, et si je décidais de m'en mêler? »
 
-Rouge Papillon resta silencieuse et lança le pétale de fleur qui vola lentement vers Wang Lin. À cet instant, le sol trembla soudainement et des fissures déchirèrent le ciel. La puissance de ce simple pétale avait manifestement atteint les limites de ce fragment de Royaume Céleste.
+Papillon Rouge resta silencieuse et lança le pétale de fleur qui vola lentement vers Wang Lin. À cet instant, le sol trembla soudainement et des fissures déchirèrent le ciel. La puissance de ce simple pétale avait manifestement atteint les limites de ce fragment de Royaume Céleste.
 
-Chi Hu cria: « Rouge Papillon! »
+Chi Hu cria: « Papillon Rouge! »
 
 Les yeux de Wang Lin s'illuminèrent; il frappa son sac de stockage et une autre bannière de restriction apparut aussitôt. La bannière quitta sa main pour s'élancer dans les airs.
 

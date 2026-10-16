@@ -76,7 +76,7 @@ Des grondements tonitruants résonnèrent lorsque le poing fantomatique de Wang 
 
 Le Grand Maître Yun Luo observait la scène à distance. Elle leva sa main droite et pointa Wang Lin du doigt. Un ordre fut donné et les cultivateurs du Royaume Extérieur chargèrent!
 
-« Il est scellé! Tuez-le maintenant, et vous pourrez intégrer le classement du Système Stellaire Ancien! »
+« Il est scellé! Tuez-le maintenant, et vous pourrez intégrer le classement du Système Stellaire Antique! »
 
 « Cet homme est déjà sans espoir, tuez-le! »
 

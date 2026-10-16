@@ -18,15 +18,15 @@ Wang Lin fixa le grand hall et dit lentement: « Puisque cette décision a été
 
 À peine Wang Lin eut-il fini de parler qu'un rayon de lumière fantomatique jaillit du grand hall. Un brin de cheveux blancs se trouvait au cœur de ce rayon. Le cheveu explosa et une silhouette apparut.
 
-Il s'agissait de l'Ancêtre Vert Taureau!
+Il s'agissait de l'Ancêtre Taureau Vert!
 
 « La question des récompenses a ses propres raisons. Ce vieil homme ne changera pas d'avis. Si Wang Lin ne consent pas rapidement, voici la preuve que ce vieil homme laisse derrière lui en partant! »
 
-Wang Lin fixa la projection de l'Ancêtre Vert Taureau. Il savait qu'il ne s'agissait pas d'un avatar, mais d'une empreinte de Sens Divin.
+Wang Lin fixa la projection de l'Ancêtre Taureau Vert. Il savait qu'il ne s'agissait pas d'un avatar, mais d'une empreinte de Sens Divin.
 
 « La preuve t'a été donnée. Recule! » La voix glaciale du Maître de la Secte Gui Yi provint du grand hall.
 
-L'expression de Wang Lin demeura impassible. Si cette affaire était réellement une décision conjointe entre la Secte Gui Yi et le Grand Secte de l'Âme, alors face à une telle injustice, il n'aurait pas à s'inquiéter de son accord avec l'Ancêtre Vert Taureau.
+L'expression de Wang Lin demeura impassible. Si cette affaire était réellement une décision conjointe entre la Secte Gui Yi et le Grand Secte de l'Âme, alors face à une telle injustice, il n'aurait pas à s'inquiéter de son accord avec l'Ancêtre Taureau Vert.
 
 Wang Lin réfléchit silencieusement et ne parla plus, restant immobile et calme. Il fit mine de rien, ne montrant aucune amertume pour l'armure d'élément feu qui venait de lui être retirée.
 
@@ -50,7 +50,7 @@ Wang Lin songea en silence. Après un long moment, il regarda le grand hall et d
 
 Une lueur de froideur traversa le regard de Wang Lin. D'innombrables pensées traversèrent son esprit. Tout allait trop vite pour qu'il puisse comprendre la cause de ce revirement.
 
-Le changement d'attitude de l'Ancêtre Vert Taureau et les difficultés imposées par la Secte Gui Yi... Quelque chose dont Wang Lin n'avait pas conscience était en train de se jouer.
+Le changement d'attitude de l'Ancêtre Taureau Vert et les difficultés imposées par la Secte Gui Yi... Quelque chose dont Wang Lin n'avait pas conscience était en train de se jouer.
 
 Il sentait même que s'il remettait l'armure d'âme, il lui serait très difficile de quitter la Secte Gui Yi. Sans le renforcement de culture offert par l'armure, il se retrouverait dans une situation périlleuse.
 

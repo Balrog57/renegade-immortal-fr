@@ -60,7 +60,7 @@ Le temps passa lentement. Wang Lin se cloîtra chez lui, endurant une douleur d�
 
 Tel l'ancêtre de la Secte Dong Lin, resté dans une secte dévastée, n'ayant pour seule compagnie que ses souvenirs.
 
-« Dans ce monde... il y a quelqu'un d'autre avec un tel tempérament... Mais ce n'est pas Wan Er, c'est Song Zhi... Je l'ai rencontrée autrefois à Blackstone City... » Après un long moment, Wang Lin refoula la douleur et les souvenirs enfouis dans son cœur. Il ne voulait pas se montrer vulnérable; cela ne l'aiderait pas à retrouver l'âme de Wan Er.
+« Dans ce monde... il y a quelqu'un d'autre avec un tel tempérament... Mais ce n'est pas Wan Er, c'est Song Zhi... Je l'ai rencontrée autrefois à Ville de la Pierre Noire... » Après un long moment, Wang Lin refoula la douleur et les souvenirs enfouis dans son cœur. Il ne voulait pas se montrer vulnérable; cela ne l'aiderait pas à retrouver l'âme de Wan Er.
 
 Dans un profond soupir, Wang Lin ferma les yeux. Lorsqu'il les rouvrit, une certaine sérénité régnait. Pourtant, nichée au plus profond de ce calme, subsistait une ombre de tristesse.
 
@@ -72,11 +72,11 @@ Mais au moment même où il fermait les yeux, il les rouvrit brusquement. Ses ye
 
 « Ce n'est pas possible!!! »
 
-« J'ai rencontré cette Song Zhi à l'extérieur de Blackstone City. À l'époque, cette femme ne dégageait absolument pas le même sentiment qu'au palais. Elle était très ordinaire, tout à fait ordinaire. Bien qu'élégante, elle ne ressemblait en rien à ce que j'ai ressenti au palais! »
+« J'ai rencontré cette Song Zhi à l'extérieur de Ville de la Pierre Noire. À l'époque, cette femme ne dégageait absolument pas le même sentiment qu'au palais. Elle était très ordinaire, tout à fait ordinaire. Bien qu'élégante, elle ne ressemblait en rien à ce que j'ai ressenti au palais! »
 
 Le corps de Wang Lin tremblait.
 
-« Si elle avait été la même qu'au palais, il était impossible que je ne l'aie pas remarqué à Blackstone City. J'aurais dû ressentir ce soupçon de familiarité à l'époque! »
+« Si elle avait été la même qu'au palais, il était impossible que je ne l'aie pas remarqué à Ville de la Pierre Noire. J'aurais dû ressentir ce soupçon de familiarité à l'époque! »
 
 « Mais alors, je n'ai rien ressenti du tout, et pourtant, quand je l'ai revue au palais, cette sensation familière m'a frappé!!! »
 

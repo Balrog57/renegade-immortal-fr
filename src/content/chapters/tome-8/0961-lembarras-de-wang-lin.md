@@ -37,11 +37,11 @@ Les yeux de Wang Lin s'illuminèrent et sa main droite se tendit. Il tira la fem
 
 La femme en violet serra les dents, leva les yeux vers lui et dit doucement: « Si tu n'avais pas fui à l'époque, il est probable que tu aurais disparu mystérieusement au cours des derniers siècles! »
 
-« Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Illusoire Yin! »
+« Je présume que tu as déjà remarqué qu'au sein de la Secte du Destin Céleste, aucun des milliers de disciples internes et externes, et même aucun de nous, les disciples directs, n'a atteint le stade Yin Illusoire! »
 
 L'expression de Wang Lin resta sereine tandis qu'il contemplait silencieusement la femme.
 
-« Lorsqu'un cultivateur franchit le stade avancé de l'Ascendant pour atteindre le stade Illusoire Yin, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
+« Lorsqu'un cultivateur franchit le stade avancé de l'Ascendant pour atteindre le stade Yin Illusoire, il disparaît mystérieusement dans l'année qui suit. Cette affaire est un tabou au sein de la Secte du Destin Céleste. À l'époque, ton niveau de culture n'était pas assez élevé pour le savoir, et tu l'ignores probablement encore. »
 
 Le visage de Wang Lin ne trahit aucune émotion.
 

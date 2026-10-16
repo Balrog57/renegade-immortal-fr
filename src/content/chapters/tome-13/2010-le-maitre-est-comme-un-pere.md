@@ -46,7 +46,7 @@ Plus important encore, sous l'égide du regard de Wang Lin, il sentit son sang f
 
 L'Empereur de l'Ancien Dao sourit et tourna un regard glacial vers le vieil homme.
 
-« Recule. Le disciple de Lord Xuan possède le même statut que moi. Tu n'as pas le droit de parler! »
+« Recule. Le disciple de Seigneur Xuan possède le même statut que moi. Tu n'as pas le droit de parler! »
 
 Le vieil homme hocha précipitamment la tête, couvert de sueur. On ignorait si celle-ci provenait du rugissement de l'Empereur ou de la terreur inspirée par le regard de Wang Lin.
 
@@ -80,7 +80,7 @@ Cependant, la progression de Wang Lin avait dépassé toutes les attentes de Xua
 
 L'Empereur de l'Ancien Dao acquiesça avec un sourire. Il regarda Xuan Luo et s'inclina.
 
-« Je m'en vais maintenant. Je suis très heureux de t'avoir rencontré aujourd'hui, Wang Lin. Le choix de Lord Xuan est pour l'avenir de mon Ancien Dao! » Après avoir vu Xuan Luo hocher la tête, l'Empereur agita sa manche. Il ne daigna même pas regarder Wang Lin en se détournant pour partir. Ses gardes s'inclinèrent devant Xuan Luo et disparurent rapidement.
+« Je m'en vais maintenant. Je suis très heureux de t'avoir rencontré aujourd'hui, Wang Lin. Le choix de Seigneur Xuan est pour l'avenir de mon Ancien Dao! » Après avoir vu Xuan Luo hocher la tête, l'Empereur agita sa manche. Il ne daigna même pas regarder Wang Lin en se détournant pour partir. Ses gardes s'inclinèrent devant Xuan Luo et disparurent rapidement.
 
 Bientôt, la brume pourpre qui emplissait le ciel se dissipa, rendant à l'atmosphère son aspect normal.
 

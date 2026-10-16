@@ -10,7 +10,7 @@ Chapitre 1725 - Les qualifications pour prétendre à la suprématie!
 
 Le brouillard fut frappé par la lumière bleue et s'effondra instantanément. La bouche illusoire disparut à l'instant même où elle était apparue.
 
-Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière le Dao Maître Blue Dream et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher!
+Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière le Maître du Dao Rêve Bleu et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher!
 
 Une moitié de boussole se trouvait dans la main droite de Wang Lin!
 
@@ -32,13 +32,13 @@ L'Omniscient resta silencieux un instant pour réfléchir, puis une intention me
 
 « Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Devant moi, tu n'es qu'une fourmi, tu n'es pas l'âme de Seven-Colored. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
 
-L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Dao Maître Blue Dream s'avança. D'un revers de manche, il frappa l'Omniscient.
+L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Maître du Dao Rêve Bleu s'avança. D'un revers de manche, il frappa l'Omniscient.
 
-L'expression de l'Omniscient devint féroce. Au moment même où le Dao Maître Blue Dream attaquait, il poussa un rugissement.
+L'expression de l'Omniscient devint féroce. Au moment même où le Maître du Dao Rêve Bleu attaquait, il poussa un rugissement.
 
-« Tu n'es qu'une vie formée par le Dao Céleste! Comment oses-tu me barrer la route?! » L'Omniscient ne prêta aucune attention au Dao Maître Blue Dream. Il agita la main droite et percuta l'attaque de ce dernier.
+« Tu n'es qu'une vie formée par le Dao Céleste! Comment oses-tu me barrer la route?! » L'Omniscient ne prêta aucune attention au Maître du Dao Rêve Bleu. Il agita la main droite et percuta l'attaque de ce dernier.
 
-Un grondement de tonnerre résonna. Le visage du Dao Maître Blue Dream se crispa et il recula de quelques pas. L'expression de l'Omniscient resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin; il n'était plus qu'à moins de 100 pieds de lui!
+Un grondement de tonnerre résonna. Le visage du Maître du Dao Rêve Bleu se crispa et il recula de quelques pas. L'expression de l'Omniscient resta sombre, mais il ne recula nullement. Au contraire, il fonça encore plus vite vers Wang Lin; il n'était plus qu'à moins de 100 pieds de lui!
 
 Wang Lin restait calme. Il regarda l'Omniscient avec une pointe de mépris. Tandis que ce dernier se rapprochait, Wang Lin murmura doucement:
 
@@ -100,13 +100,13 @@ Il connaissait naturellement la Bête des Enfers, mais son corps avait été sci
 
 Toutes les âmes de l'Omniscient tremblèrent et hurlèrent. Elles tentèrent désespérément de s'éparpiller et de fuir dans 2 999 directions différentes.
 
-Le Dao Maître Blue Dream et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Enfers mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
+Le Maître du Dao Rêve Bleu et ses compagnons voulurent les poursuivre, mais Wang Lin les en empêcha. Il observa la Bête des Enfers mâcher avec sa gueule immense, l'air hébété. Après un long moment, la confusion disparut pour laisser place à une expression impitoyable.
 
 « Dévorons-les. Désormais, tu seras complète. » Wang Lin paraissait épuisé et s'assit sur le dos de la Bête des Enfers.
 
 La Bête des Enfers ouvrit soudainement sa gueule et chargea. À l'instant même, les 2 999 âmes furent enveloppées par une force d'aspiration colossale. Elles hurlèrent toutes en étant aspirées dans la gueule béante de la bête!
 
-« Aîné Blue Dream, Qing Lin et Aînée Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à l'Aîné Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
+« Aîné Rêve Bleu, Qing Lin et Aînée Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à l'Aîné Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
 
 Wang Lin joignit les mains en signe de respect envers les trois, paraissant encore plus las. Il s'assit sur le dos de la Bête des Enfers et disparut lentement dans le lointain.
 

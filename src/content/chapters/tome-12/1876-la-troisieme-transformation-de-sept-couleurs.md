@@ -48,7 +48,7 @@ Au plus profond de la terre, Wang Lin, fusionné avec le Taureau Céleste derri�
 
 Cependant, Wang Lin était raisonnable. Son armure d'âme contenait la culture et le sang de plus de mille cultivateurs restés dans le palais souterrain. Il ne pouvait les abandonner. Il devait au moins assurer leur sécurité avant de partir.
 
-Désormais, il allait surgir des entrailles de la terre pour terrasser trois vieux monstres de stade intermédiaire de la Tribulation du Vide et accomplir la deuxième tâche confiée par l'Ancêtre Vert Taureau!
+Désormais, il allait surgir des entrailles de la terre pour terrasser trois vieux monstres de stade intermédiaire de la Tribulation du Vide et accomplir la deuxième tâche confiée par l'Ancêtre Taureau Vert!
 
 Alors qu'il chargeait, le visage de Wang Lin était dissimulé par l'armure noire, ne laissant paraître que ses yeux froids et sa chevelure d'un blanc immaculé. Sa vitesse était prodigieuse; en un éclair, il n'était plus qu'à quelques milliers de pieds de la surface.
 

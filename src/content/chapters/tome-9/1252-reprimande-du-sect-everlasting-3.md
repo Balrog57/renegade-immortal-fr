@@ -68,7 +68,7 @@ Lâchant un soupir, Lu Yanfei vola tel un papillon vers l'arène. Elle y atterri
 
 « Même s'il ne vient pas, je dois mener ce combat jusqu'au bout! »
 
-C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Origin devait être dissous, elle s'était juré de ramener tous ses membres à la Secte Heaven Breaking.
+C'était une affaire privée de la Secte Éternelle, Li Qianmei n'avait donc aucune raison d'intervenir. Elle observa silencieusement la silhouette de Lu Yanfei. Cependant, si la Secte Origin devait être dissous, elle s'était juré de ramener tous ses membres à la Secte Brise-Ciel.
 
 Dès que Lu Yuncong et Lu Yanfei atteignirent l'arène, un silence s'installa et tous les regards se tournèrent vers eux. À cause d'une seule personne de la Secte Origin, ils avaient captivé l'attention générale. Pour la première fois, une si petite secte était remarquée par les innombrables cultivateurs présents.
 
@@ -82,7 +82,7 @@ Plus loin encore, au sein de la Secte Mountain Seeking, l'atmosphère était lug
 
 « Frère Zhao peut être rassuré, je ne laisserai pas passer cela! S'il ne vient pas, il aura de la chance; mais s'il vient, je le tuerai sur-le-champ! »
 
-« Même si Li Qianmei tente de m'arrêter, elle n'est qu'une personne seule; elle ne représente pas la Secte Heaven Breaking! Nous ne l'offenserons pas, mais cet homme mystérieux nommé Lu doit mourir! »
+« Même si Li Qianmei tente de m'arrêter, elle n'est qu'une personne seule; elle ne représente pas la Secte Brise-Ciel! Nous ne l'offenserons pas, mais cet homme mystérieux nommé Lu doit mourir! »
 
 Ce qui s'était passé sur la tribune était trop loin pour être entendu; seuls les membres de la Secte Éternelle en étaient informés. Ils n'avaient perçu qu'une image vague, sans pouvoir distinguer clairement les détails.
 

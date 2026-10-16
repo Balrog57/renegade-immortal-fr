@@ -24,7 +24,7 @@ Lorsqu'il réapparut, il se trouvait à la lisière du champ de bataille. Là, i
 
 Tant qu'il y aurait de grandes batailles, il y aurait d'innombrables morts de chaque côté. Wang Lin s'était lassé de ce genre de combats et ne souhaitait guère y participer. Il n'éprouvait aucune nostalgie qui le pousserait à rugir: « Les cultivateurs comme nous ne reculent jamais devant un combat! »
 
-Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Green Bull afin de rembourser la Grande Secte de l'Âme pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
+Il n'était présent que pour remplir les trois conditions fixées par l'Ancien Taureau Vert afin de rembourser la Grande Secte de l'Âme pour ces trois cadeaux! C'était là le caractère de Wang Lin; il rendait toujours la pareille!
 
 « Ce n'est pas le moment idéal pour affronter des cultivateurs de la Tribulation du Vide... Mais si l'un d'eux est gravement blessé, je pourrais peut-être avoir de la chance... » Les yeux de Wang Lin s'illuminèrent et son corps se mua en fumée alors qu'il se rapprochait de plus en plus du champ de bataille.
 

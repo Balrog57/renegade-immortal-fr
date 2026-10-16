@@ -88,7 +88,7 @@ Ces attaques incessantes ne laissèrent aucune chance de résistance au Maître 
 
 « Vie et Mort. » Wang Lin leva les deux mains. Sa main gauche, représentant la vie, pressa la poitrine du Maître Céleste Dieu du Vide. Le corps vieilli de ce dernier irradia soudainement de jeunesse et redevint jeune. Cependant, au moment où la main droite de Wang Lin retomba, cette jeunesse s'effondra. La vie et la mort entrèrent en collision brutale à l'intérieur du corps du Maître Céleste Dieu du Vide, comme pour le déchirer de l'intérieur.
 
-Le Maître Céleste Dieu du Vide saigna par tous ses orifices, son expression devenant plus féroce encore. En tant que l'un des Cinq Maîtres du Système Stellaire Ancien, sa dignité l'empêchait de céder. Dans un rugissement, son corps trembla et il parvint à briser le sort d'Arrêt. Dès que celui-ci fut rompu, sa pleine puissance de culture éclata.
+Le Maître Céleste Dieu du Vide saigna par tous ses orifices, son expression devenant plus féroce encore. En tant que l'un des Cinq Maîtres du Système Stellaire Antique, sa dignité l'empêchait de céder. Dans un rugissement, son corps trembla et il parvint à briser le sort d'Arrêt. Dès que celui-ci fut rompu, sa pleine puissance de culture éclata.
 
 Pourtant, Wang Lin resta calme. À l'instant même où le Maître Céleste Dieu du Vide se libérait, Wang Lin pointa son index droit.
 

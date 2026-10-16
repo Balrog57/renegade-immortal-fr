@@ -8,17 +8,17 @@ slug: croyez-moi-une-fois
 ---
 Chapitre 1986 - Croyez-moi une fois!
 
-« Est-ce moi, ou l'Ascendant Empyrean Ming Dao... Ou devrais-je dire que le véritable gagnant serait l'Empereur Céleste ou l'Enseignant Impérial? » Wang Lin resta calme et médita silencieusement. Ses émotions ne furent nullement affectées par les paroles de l'Enseignant Impérial.
+« Est-ce moi, ou l'Ascendant Empyréen Ming Dao... Ou devrais-je dire que le véritable gagnant serait l'Empereur Céleste ou l'Enseignant Impérial? » Wang Lin resta calme et médita silencieusement. Ses émotions ne furent nullement affectées par les paroles de l'Enseignant Impérial.
 
 Il observa l'Enseignant Impérial au-dessus de l'autel. Ses propos étaient un mélange de vérité et de mensonge. Cependant, Wang Lin était certain que ce prétendu héritage ne serait pas si simple!
 
 Wang Lin fixa l'Enseignant Impérial et dit lentement: « Je me demande comment vous souhaitez que je coopère afin d'obtenir la culture de l'Ancêtre Céleste? De plus, la rumeur veut que l'Ancêtre Céleste ait disparu; on ignore s'il est mort ou vivant. Dans quelle mesure cet héritage peut-il être réalisé? »
 
-« Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyrean Ming Dao qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de culture augmentera de façon incalculable!
+« Cette affaire est complexe, mais l'Empereur Céleste s'est déjà préparé minutieusement. Il a trouvé l'Ascendant Empyréen Ming Dao qui, même sans le lignage de l'Ancêtre Céleste, pourrait déjà devenir le plus puissant des Ascendants après vous. S'il obtient ce lignage, son niveau de culture augmentera de façon incalculable!
 
 « Sa haine envers vous se transformera en une obsession pour vous surpasser. Cette obsession pourra considérablement accroître sa vitalité et augmenter ses chances de survivre à la douleur de 40 %, lui permettant ainsi d'extraire avec succès tout son propre lignage pour être transformé en celui de l'Ancêtre Céleste!
 
-« À ce moment-là, il deviendra le second Ancêtre Céleste. L'Empereur Céleste a passé de nombreuses années à comploter avec l'Ascendant Empyrean Ming Dao. J'ignore encore ce que l'Empereur Céleste a fait pour qu'il soit si confiant de pouvoir contrôler le puissant Ming Dao une fois qu'il aura réussi le sort du Retour à l'Origine Ancestrale!
+« À ce moment-là, il deviendra le second Ancêtre Céleste. L'Empereur Céleste a passé de nombreuses années à comploter avec l'Ascendant Empyréen Ming Dao. J'ignore encore ce que l'Empereur Céleste a fait pour qu'il soit si confiant de pouvoir contrôler le puissant Ming Dao une fois qu'il aura réussi le sort du Retour à l'Origine Ancestrale!
 
 « J'ai tenté de diviner la vérité, mais tout n'était que flou. J'ai réussi à trouver quelques indices; il s'agirait de quelque chose de similaire à une possession ou à une marionnette! La clé, c'est ce bassin de sang! » L'Enseignant Impérial désigna le bassin situé devant l'autel.
 
@@ -50,13 +50,13 @@ Le temps passa, seconde après seconde. Pour la première fois, l'Enseignant Imp
 
 Cependant, l'expression de Wang Lin demeurait froide et imperturbable, révélant une cruauté latente. Son être aux cheveux noirs représentait le massacre et la destruction; ainsi, même si cette affaire était d'une tristesse infinie, il n'en serait pas affecté. De plus, il ne prêterait pas foi à ces paroles aussi facilement.
 
-Wang Lin observa l'Ascendant Empyrean Ming Dao qui se débattait dans le bassin et sentit la folie émaner de son corps.
+Wang Lin observa l'Ascendant Empyréen Ming Dao qui se débattait dans le bassin et sentit la folie émaner de son corps.
 
 « A-t-il perdu la raison? »
 
 « Son esprit a déjà été effacé par l'Empereur Céleste. La seule chose qui subsiste est sa haine et son intention meurtrière envers vous! » acquiesça l'Enseignant Impérial.
 
-Du point de vue de Wang Lin, cette haine ne semblait pas si profonde, mais compte tenu du Dao que cultivait l'Ascendant Empyrean Ming Dao, il en comprit la source.
+Du point de vue de Wang Lin, cette haine ne semblait pas si profonde, mais compte tenu du Dao que cultivait l'Ascendant Empyréen Ming Dao, il en comprit la source.
 
 Le temps s'écoulait lentement. L'Enseignant Impérial attendit amèrement un long moment. Face à l'indifférence de Wang Lin, il ne put s'empêcher de soupirer. Il serra les dents et reprit:
 
@@ -80,7 +80,7 @@ Wang Lin réfléchit un instant, puis agita la main droite pour ranger immédiat
 
 « Si ce que vous dites est vrai, alors je vous aiderai une fois! » Les paroles de Wang Lin pénétrèrent la goutte de sang qui se mit à briller. Wang Lin fit un geste de la main et elle s'immobilisa devant l'Enseignant Impérial.
 
-L'Enseignant Impérial fut transporté d'excitation en voyant la goutte de sang. Il pointa le bassin où se trouvait l'Ascendant Empyrean Ming Dao et dit:
+L'Enseignant Impérial fut transporté d'excitation en voyant la goutte de sang. Il pointa le bassin où se trouvait l'Ascendant Empyréen Ming Dao et dit:
 
 « Merci infiniment, Compagnon Cultivateur! En cet instant, chaque seconde compte. Je vous demande d'entrer dans le bassin afin que je puisse lancer le sort pendant que l'Empereur Céleste est occupé et que Ming Dao ne s'est pas encore réveillé, pour ainsi vous transférer l'héritage!
 
@@ -106,8 +106,8 @@ Wang Lin regarda l'Enseignant Impérial et médita silencieusement un instant av
 
 Ce mouvement fut infime, et l'ondulation causée par le contact avec l'eau masqua l'action pour que personne ne puisse la détecter. Un brin d'aura de massacre s'échappa de son pied droit.
 
-Dès l'apparition de cette aura, elle se projeta directement vers l'Ascendant Empyrean Ming Dao qui avait les yeux clos, et pénétra instantanément dans son corps.
+Dès l'apparition de cette aura, elle se projeta directement vers l'Ascendant Empyréen Ming Dao qui avait les yeux clos, et pénétra instantanément dans son corps.
 
 L'Enseignant Impérial était transporté d'excitation. Voyant Wang Lin entrer dans le bassin, il leva la main pour former un sceau et utilisa le reste de sa force vitale pour lancer le sort secret. Cependant, à cet instant précis, tout le palais devint soudainement glacial!
 
-L'Ascendant Empyrean Ming Dao ouvrit brusquement les yeux, sa confusion se muant en une folie déchaînée. Le froid émanait de son propre corps et, dès qu'il ouvrit les paupières, le bassin d'eau se changea instantanément en glace!
+L'Ascendant Empyréen Ming Dao ouvrit brusquement les yeux, sa confusion se muant en une folie déchaînée. Le froid émanait de son propre corps et, dès qu'il ouvrit les paupières, le bassin d'eau se changea instantanément en glace!

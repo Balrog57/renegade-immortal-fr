@@ -14,7 +14,7 @@ Cette scène les laissa transis.
 
 À leurs yeux, l'homme aux cheveux blancs n'était qu'une silhouette. Bien qu'il semblât lent, il était en réalité comme un éclair alors qu'il chargeait le jeune homme vêtu de pourpre monté sur la bête spirituelle noire.
 
-Le cri du jeune homme révélait l'effroi qui lui tenaillait le cœur. Bien que Rudy fût au stade Illusoire Yin, son statut élevé l'avait préservé de tels dangers jusqu'alors.
+Le cri du jeune homme révélait l'effroi qui lui tenaillait le cœur. Bien que Rudy fût au stade Yin Illusoire, son statut élevé l'avait préservé de tels dangers jusqu'alors.
 
 À l'origine, il pensait que ce serait un voyage facile et divertissant. Il croyait qu'avec la protection de Song Wude et son rang de jeune maître de la Secte Dao Pourpre, il pourrait faire ce qu'il voulait dans la région de rang 5!
 

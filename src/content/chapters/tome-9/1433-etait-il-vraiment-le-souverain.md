@@ -10,7 +10,7 @@ Chapitre 1433 - Était-il vraiment le Souverain?
 
 Une force inexplicable poussa Wang Lin à choisir, tout en l'empêchant de le faire, après avoir affronté ce dilemme indescriptible. Il se transforma en un rayon de lumière et s'éclipsa.
 
-Le Maître Dao Blue Dream l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
+Le Maître Maître du Dao Rêve Bleu l'avait déjà poussé à choisir une première fois, et l'Oiseau Vermillon de la première génération l'avait fait une seconde fois. Ces épreuves avaient permis à son cœur dao d'atteindre celui d'un maître d'une génération.
 
 Plus important encore, s'il n'était pas entré dans la mémoire du Maître Simo pour y découvrir un homme ayant vécu une vie similaire mais ayant choisi un chemin différent, Wang Lin aurait peut-être choisi de rester... pour devenir l'esclave du Souverain... Les paroles du Souverain avaient touché le point faible de Wang Lin!
 
@@ -24,7 +24,7 @@ Après un temps indéterminé, la confusion dans les yeux de Wang Lin se dissipa
 
 Heureusement, en tant qu'Ancien Dieu, la régénération de son corps physique était extrêmement puissante. C'était là une différence flagrante avec les cultivateurs ordinaires. Certaines blessures qui auraient nécessité un siècle de convalescence pour d'autres ne demanderaient que bien moins de temps à Wang Lin.
 
-« Wan Er, crois-moi, je viendrai personnellement te réveiller... Ensuite, avec Ping Er, nous pourrons vivre dans un village de montagne, quelque part où personne ne nous connaît, et passer une vie tranquille... Je veux aussi apprendre à Ping Er l'art de la sculpture, pour transmettre le métier de mon père... » murmura Wang Lin, soudain envahi par le mal du pays. Il désirait revoir le système stellaire de sa demeure. Bien que le Système Stellaire Ancien fût vaste, il n'y ressentait aucun sentiment d'appartenance.
+« Wan Er, crois-moi, je viendrai personnellement te réveiller... Ensuite, avec Ping Er, nous pourrons vivre dans un village de montagne, quelque part où personne ne nous connaît, et passer une vie tranquille... Je veux aussi apprendre à Ping Er l'art de la sculpture, pour transmettre le métier de mon père... » murmura Wang Lin, soudain envahi par le mal du pays. Il désirait revoir le système stellaire de sa demeure. Bien que le Système Stellaire Antique fût vaste, il n'y ressentait aucun sentiment d'appartenance.
 
 Dans ce vaste système stellaire, l'horizon semblait infini. Les étoiles brillaient, mais n'émettaient aucune chaleur; seule régnait une sensation de froid glacial. Wang Lin ressentit un puissant sentiment de solitude au plus profond de son cœur.
 
@@ -66,7 +66,7 @@ Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sep
 
 La culture de cet homme était extrêmement puissante. Il avait pu repousser l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits », il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
 
-« Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Ancien. Personne ne savait à quel clan il appartenait!
+« Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
 
 De plus, dans les Terres des Esprits Démoniaques, Wang Lin avait rencontré un individu qui s'était avéré être le disciple du Souverain! Cet homme utilisait des sorts de feu! Ce sort n'était pas celui d'un cultivateur ordinaire; il était manifeste que cet homme touchait aux limites de l'essence du feu.
 
@@ -82,7 +82,7 @@ Le vent d'automne soufflait et la silhouette de Wang Lin devint lentement floue,
 
 Le temps s'écoula lentement. En un clin d'œil, trois jours passèrent. Les blessures de l'âme originelle de Wang Lin ne s'amélioraient pas, mais elles cessaient de s'aggraver. En revanche, la majeure partie de ses blessures physiques avait guéri.
 
-Sans même utiliser ses sorts, avec seulement son pouvoir d'Ancien Dieu à 6 étoiles, il se trouvait à environ 50 % de son apogée. Wang Lin savait qu'il était pressé par le temps. Il avait gravement blessé l'homme qu'il soupçonnait être le Souverain, ce qui devait provoquer une onde de choc massive dans le Système Stellaire Ancien. Des gens devaient sûrement être à sa poursuite, sans compter la prime sur sa tête.
+Sans même utiliser ses sorts, avec seulement son pouvoir d'Ancien Dieu à 6 étoiles, il se trouvait à environ 50 % de son apogée. Wang Lin savait qu'il était pressé par le temps. Il avait gravement blessé l'homme qu'il soupçonnait être le Souverain, ce qui devait provoquer une onde de choc massive dans le Système Stellaire Antique. Des gens devaient sûrement être à sa poursuite, sans compter la prime sur sa tête.
 
 Quant aux Terres Déchues, elles avaient déjà été scellées par d'autres. S'il s'y précipitait maintenant, il ne pourrait pas y entrer et tomberait droit dans un piège! C'était pour cela qu'il faisait tout son possible pour recouvrer sa culture.
 

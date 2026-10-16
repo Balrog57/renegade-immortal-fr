@@ -110,7 +110,7 @@ C'est là ma réponse pour vous. » Les yeux de Wang Lin étaient empreints de n
 
 « Zheng Tianlin, ces deux-là sont mes plus proches amis, et ils sont désormais réincarnés au sein de votre secte. C'est une immense bénédiction pour vous. J'aiderai votre secte à trois reprises!! Si quoi que ce soit leur arrive, je reviendrai vous demander des comptes! » La voix de Wang Lin résonna dans le cœur du vieil homme de l'Exaltation Dorée. Simultanément, Wang Lin agita la main et un jade portant son empreinte vola vers le vieil homme.
 
-« Merci, Très Haut Empyrean!! » Le vieil homme de l'Exaltation Dorée trembla et s'inclina devant Wang Lin. C'était un présent inestimable!!
+« Merci, Très Haut Empyréen!! » Le vieil homme de l'Exaltation Dorée trembla et s'inclina devant Wang Lin. C'était un présent inestimable!!
 
 À cet instant, une brise souffla, faisant flotter les cheveux de l'homme et de la femme. Deux mèches de leurs chevelures s'entrelacèrent comme deux papillons dansants.
 

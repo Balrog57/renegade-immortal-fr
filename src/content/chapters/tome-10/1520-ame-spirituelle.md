@@ -68,7 +68,7 @@ L'attaque d'un cultivateur de l'Âme Spirituelle peut entraîner sa cible dans s
 
 Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade de l'Âme Spirituelle. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
 
-Wang Lin ressentit même une pointe de mépris envers les cultivateurs de l'Âme Spirituelle dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Blue Dream et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
+Wang Lin ressentit même une pointe de mépris envers les cultivateurs de l'Âme Spirituelle dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Rêve Bleu et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
 
 Cependant, en cet instant, ce mépris disparut sans laisser de trace. Wang Lin comprit!
 

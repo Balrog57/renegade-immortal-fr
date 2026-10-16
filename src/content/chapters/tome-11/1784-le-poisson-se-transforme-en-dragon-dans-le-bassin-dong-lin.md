@@ -116,6 +116,6 @@ La porte trembla dans un grondement de tonnerre. Une brèche apparut et le batta
 
 Au-delà de l'ouverture se trouvait le Continent Astral Immortel, le vaste monde réel!
 
-Wang Lin était le premier occupant de la grotte à atteindre cet endroit depuis que la porte avait été scellée. Il était impossible de décrire son émotion. Peut-être le Daoïste Scattered Spirit avait-il ressenti la même chose lorsqu'il quitta les Sept Millions de Mondes pour apparaître dans l'Ancien Système Stellaire.
+Wang Lin était le premier occupant de la grotte à atteindre cet endroit depuis que la porte avait été scellée. Il était impossible de décrire son émotion. Peut-être le Daoïste Esprit Dispersé avait-il ressenti la même chose lorsqu'il quitta les Sept Millions de Mondes pour apparaître dans l'Ancien Système Stellaire.
 
 À l'instant où la porte s'ouvrit, une déferlante d'aura pure du Continent Astral Immortel jaillit vers lui!

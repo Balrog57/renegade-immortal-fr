@@ -12,11 +12,11 @@ Si seulement Jiu Di avait demandé, il aurait pu l'ignorer. Il était venu au pa
 
 Et Wang Lin ne croyait pas que Jiu Di cesserait de supprimer la malédiction ancestrale au prix d'une récupération extrêmement pénible!
 
-Cependant, Wang Lin ne pouvait ignorer les paroles du Grand Empyre Gemini!
+Cependant, Wang Lin ne pouvait ignorer les paroles du Grand Empyréen Gemini!
 
-Dans son cœur, il avait déjà une dette envers le Grand Empyre Gemini. Puisqu'elle l'avait également sollicité, Wang Lin dut réfléchir en silence.
+Dans son cœur, il avait déjà une dette envers le Grand Empyréen Gemini. Puisqu'elle l'avait également sollicité, Wang Lin dut réfléchir en silence.
 
-Après un long moment, Wang Lin dit avec difficulté: « Donnez-moi une raison! » Il ne regarda pas Jiu Di, mais le Grand Empyre Gemini.
+Après un long moment, Wang Lin dit avec difficulté: « Donnez-moi une raison! » Il ne regarda pas Jiu Di, mais le Grand Empyréen Gemini.
 
 « L'Empereur Céleste est tombé. Lian Daofei est crucial pour le clan céleste... » soupira Gemini en regardant Wang Lin.
 
@@ -30,9 +30,9 @@ Elle regarda Wang Lin et dit calmement: « Cet endroit est le palais interdit. B
 
 « La personne que nous avons choisie est Lian Daofei! »
 
-« Il porte le lignage de l'Ancêtre Céleste et a hérité d'une partie de sa culture. Notre clan a également planté une graine en lui au fil des ans. Une fois activée, il deviendra un Grand Empyre grâce à l'héritage de l'Ancêtre Céleste qu'il a absorbé! »
+« Il porte le lignage de l'Ancêtre Céleste et a hérité d'une partie de sa culture. Notre clan a également planté une graine en lui au fil des ans. Une fois activée, il deviendra un Grand Empyréen grâce à l'héritage de l'Ancêtre Céleste qu'il a absorbé! »
 
-« Avec sa culture de Grand Empyre et le sort secret de notre clan, un effet de suppression pourra être maintenu. C'est pourquoi vous ne pouvez pas l'emmener... Si vous tentez de le prendre par la force, alors... je devrai également vous arrêter », dit doucement Hai Zi.
+« Avec sa culture de Grand Empyréen et le sort secret de notre clan, un effet de suppression pourra être maintenu. C'est pourquoi vous ne pouvez pas l'emmener... Si vous tentez de le prendre par la force, alors... je devrai également vous arrêter », dit doucement Hai Zi.
 
 Gemini soupira en regardant Wang Lin et reprit pour la seconde fois: « Wang Lin, laisse Lian Daofei ici. Sa vie ne sera pas en danger; il restera ici pour supprimer les 72 esprits. »
 
@@ -48,15 +48,15 @@ Le visage de Wang Lin pâlit instantanément, ses yeux tourmentés par un confli
 
 « Wang Lin... Laisse Lian Daofei ici. » C'était la troisième fois que Gemini formulait cette requête.
 
-Le temps passa lentement tandis que le dilemme de Wang Lin agitait son cœur comme une lame. Après un long moment, il poussa un soupir. Il ne pouvait pas emmener le fou par la force. Le Grand Empyre Gemini l'en empêcherait, et Jiu Di interviendrait également. Si les trois s'alliaient, Wang Lin ne pourrait pas lutter contre eux pour emporter l'homme.
+Le temps passa lentement tandis que le dilemme de Wang Lin agitait son cœur comme une lame. Après un long moment, il poussa un soupir. Il ne pouvait pas emmener le fou par la force. Le Grand Empyréen Gemini l'en empêcherait, et Jiu Di interviendrait également. Si les trois s'alliaient, Wang Lin ne pourrait pas lutter contre eux pour emporter l'homme.
 
-De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyre Gemini qui l'avait tant aidé... La Secte du Yang Pourpre pourrait même être anéantie.
+De plus, emmener le fou plongerait le clan céleste dans le chaos. Wang Lin s'en souciait peu, mais cela affecterait le Grand Empyréen Gemini qui l'avait tant aidé... La Secte du Yang Pourpre pourrait même être anéantie.
 
 Tout en méditant silencieusement, une expression amère se dessina sur le visage de Wang Lin. Il regarda le fou inconscient et ferma lentement les yeux.
 
 « Fou, le jour où moi, Wang Lin, je reviendrai au palais impérial, ce sera pour te secourir! Je le jure!! » Wang Lin agita sa main droite et rangea la tête de l'Ancêtre Céleste dans son espace de stockage. Il leva soudainement les yeux.
 
-« Jiu Di, nul besoin de me chercher. Je reviendrai un jour! » Après ces mots, Wang Lin s'élança vers le ciel sans un regard en arrière. Le cœur serré à l'idée d'abandonner le fou, il songea qu'il avait pourtant énormément gagné lors de ce voyage au palais impérial: une partie de l'héritage de l'Ancêtre Céleste, la tête de l'Ancêtre lui-même, et même l'esquisse de son propre soleil de Grand Empyre.
+« Jiu Di, nul besoin de me chercher. Je reviendrai un jour! » Après ces mots, Wang Lin s'élança vers le ciel sans un regard en arrière. Le cœur serré à l'idée d'abandonner le fou, il songea qu'il avait pourtant énormément gagné lors de ce voyage au palais impérial: une partie de l'héritage de l'Ancêtre Céleste, la tête de l'Ancêtre lui-même, et même l'esquisse de son propre soleil de Grand Empyréen.
 
 Mais en fin de compte, il ne pouvait toujours pas emmener le fou...
 
@@ -64,21 +64,21 @@ S'il avait eu le choix, Wang Lin aurait rendu toutes ces richesses pour pouvoir 
 
 « Avec la divination de l'ancêtre du clan Dao Wang, il a probablement vu l'Empereur Céleste posséder le fou... Peut-être faisait-il partie du plan, mais je l'ai brisé... »
 
-« Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyres étaient sans doute prévues par l'ancêtre du clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
+« Même l'autodestruction de l'Empereur Céleste et la répartition de la malédiction ancestrale entre les quatre Grands Empyréens étaient sans doute prévues par l'ancêtre du clan Dao Wang. Mais il ne leur a rien dit, et n'a pas tenté de l'empêcher... »
 
-« Peut-être l'a-t-il fait pour un membre de son clan de cette génération, Hai Zi... Tout cela pour apaiser ma colère envers son clan... Que voyait-il pour se montrer si bienveillant envers moi... Est-ce parce que, dans son esprit, mon existence est plus terrifiante qu'un Grand Empyre... »
+« Peut-être l'a-t-il fait pour un membre de son clan de cette génération, Hai Zi... Tout cela pour apaiser ma colère envers son clan... Que voyait-il pour se montrer si bienveillant envers moi... Est-ce parce que, dans son esprit, mon existence est plus terrifiante qu'un Grand Empyréen... »
 
 Wang Lin repensa aux paroles laissées par le génie du clan Dao Wang à la Secte de la Grande Âme. À tous ces respectueux « vous » que la voix utilisait.
 
-Le Grand Empyre Gemini regarda Lian Daofei, plongé dans son coma, et soupira. Elle suivit Wang Lin au loin.
+Le Grand Empyréen Gemini regarda Lian Daofei, plongé dans son coma, et soupira. Elle suivit Wang Lin au loin.
 
 Une fois sorti du ciel brisé du palais interdit, Wang Lin ne put s'empêcher de regarder en bas.
 
-Il vit Hai Zi utiliser le sort secret de son clan. Le fou inconscient projeta une lumière dorée éclatante. Tandis que cette lueur se répandait, un soleil d'or enveloppa l'homme. Dans cette expansion lumineuse, Wang Lin sentit les fluctuations d'un Grand Empyre émaner du corps de ce dernier.
+Il vit Hai Zi utiliser le sort secret de son clan. Le fou inconscient projeta une lumière dorée éclatante. Tandis que cette lueur se répandait, un soleil d'or enveloppa l'homme. Dans cette expansion lumineuse, Wang Lin sentit les fluctuations d'un Grand Empyréen émaner du corps de ce dernier.
 
-Cette puissance de Grand Empyre n'était pas une simple esquisse comme le soleil de Wang Lin, mais un astre pleinement formé. Lian Daofei était devenu le cinquième Grand Empyre du clan céleste après la chute de l'Empereur Céleste.
+Cette puissance de Grand Empyréen n'était pas une simple esquisse comme le soleil de Wang Lin, mais un astre pleinement formé. Lian Daofei était devenu le cinquième Grand Empyréen du clan céleste après la chute de l'Empereur Céleste.
 
-Toutefois, ce cinquième Grand Empyre dormirait éternellement sans jamais s'éveiller. Le but de son existence était de remplacer la tête de l'Ancêtre Céleste pour maintenir le sceau des 72 esprits!
+Toutefois, ce cinquième Grand Empyréen dormirait éternellement sans jamais s'éveiller. Le but de son existence était de remplacer la tête de l'Ancêtre Céleste pour maintenir le sceau des 72 esprits!
 
 Wang Lin observa le fou se métamorphoser en une montagne alors que le soleil doré enveloppait son corps. Cette montagne, entièrement d'or, s'élança vers les nuages!
 
@@ -94,9 +94,9 @@ Le palais était en ruines; à première vue, seule la statue se dressait là, s
 
 Wang Lin contempla la statue et médita en silence.
 
-Des ondulations résonnèrent à ses côtés alors que le Grand Empyre Gemini s'avançait.
+Des ondulations résonnèrent à ses côtés alors que le Grand Empyréen Gemini s'avançait.
 
-« L'ère de l'Ancêtre Céleste est révolue et sa protection s'est évanouie... Désormais, le clan céleste ne possédera plus aucune lignée d'Empereur Céleste. » Le Grand Empyre Gemini regarda la statue avec un soupir.
+« L'ère de l'Ancêtre Céleste est révolue et sa protection s'est évanouie... Désormais, le clan céleste ne possédera plus aucune lignée d'Empereur Céleste. » Le Grand Empyréen Gemini regarda la statue avec un soupir.
 
 Wang Lin dit calmement: « Merci... »
 
@@ -106,13 +106,13 @@ Gemini reprit lentement: « Vous ne pouviez effectivement pas emmener Lian Daofe
 
 L'expression de Wang Lin resta imperturbable alors qu'il se tournait vers elle. Quant à la manière dont elle avait percé son identité, il ne posa aucune question et n'essaya pas de le dissimuler.
 
-« Merci... » Wang Lin joignit les mains et s'inclina devant le Grand Empyre Gemini.
+« Merci... » Wang Lin joignit les mains et s'inclina devant le Grand Empyréen Gemini.
 
 « J'ai obtenu les yeux de l'Ancêtre Céleste, je vais donc retourner à la Secte du Yang Pourpre. Et vous? Partirez-vous, ou m'accompagnerez-vous à la Secte du Yang Pourpre? »
 
 Wang Lin tourna son regard vers le Continent de l'Est avant de déclarer: « Je veux retourner à la Secte de la Grande Âme... Puis je quitterai le clan céleste... »
 
-Le Grand Empyre Gemini réfléchit un instant et soupira.
+Le Grand Empyréen Gemini réfléchit un instant et soupira.
 
 « Je ne sais pas si vous aider était une bonne ou une mauvaise décision... » Elle secoua la tête, puis une lumière violette émana de son corps. Elle se divisa à nouveau en deux petites filles. Elles regardèrent Wang Lin avec leurs sourires innocents et lui firent signe de la main avant de s'envoler vers le ciel.
 

@@ -90,7 +90,7 @@ La seule personne, à l'intérieur comme à l'extérieur de la cité, qui ne s'�
 
 L'homme en armure dorée remarqua immédiatement que Wang Lin restait debout. Il fut saisi de stupéfaction et d'incrédulité. Kong Shi éprouva le même choc, et même le jeune homme en noir laissa paraître une lueur de terreur.
 
-Comment un simple prince pourrait-il contraindre Wang Lin à s'agenouiller? Même un Grand Empyrée ne l'y aurait pas forcé. Devant l'Empereur Céleste lui-même, Wang Lin n'avait eu besoin que de joindre les mains.
+Comment un simple prince pourrait-il contraindre Wang Lin à s'agenouiller? Même un Grand Empyréen ne l'y aurait pas forcé. Devant l'Empereur Céleste lui-même, Wang Lin n'avait eu besoin que de joindre les mains.
 
 Wang Lin observa calmement le démon ancien qui rugissait et vit la personne debout sur sa tête. Elle portait une robe royale et ses cheveux noirs flottaient au vent. C'était un jeune homme à l'apparence ordinaire, mais doté d'un tempérament indicible.
 

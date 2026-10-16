@@ -8,23 +8,23 @@ slug: ji-qiong
 ---
 Wang Lin dit calmement: « Je veux emporter les restes de l'ancien Empereur Divin. »
 
-L'Empereur Divin Azure Dragon réfléchit silencieusement un instant. La froideur dans ses yeux s'atténua légèrement, mais il retrouva bientôt son expression habituelle.
+L'Empereur Divin Dragon Azure réfléchit silencieusement un instant. La froideur dans ses yeux s'atténua légèrement, mais il retrouva bientôt son expression habituelle.
 
 « Je pense qu'il aurait préféré être enterré au sein des Quatre Sectes Divines. »
 
-« L'ancien Empereur Divin Vermillion Bird a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la liberté. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Azure Dragon.
+« L'ancien Empereur Divin Oiseau Vermillon a consacré sa vie aux Quatre Sectes Divines. Maintenant qu'il est mort, il mérite la liberté. Je vais l'emmener avec moi. » Le regard de Wang Lin affichait une détermination inébranlable alors qu'il agita sa main droite, faisant voler la pierre blanche vers l'Empereur Divin Dragon Azure.
 
-L'Empereur Divin Azure Dragon examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine Vermillion Bird se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Azure Dragon le figea, contraignant le vieil homme à soupirer et à se taire.
+L'Empereur Divin Dragon Azure examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine Oiseau Vermillon se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Dragon Azure le figea, contraignant le vieil homme à soupirer et à se taire.
 
 Wang Lin partit avec l'ancien Empereur Divin, dont le corps s'était transformé en pierre. Il quitta les Quatre Sectes Divines et retrouva Da Tou et sa compagnie qui l'attendaient.
 
-Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine Vermillion Bird avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
+Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine Oiseau Vermillon avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
 
-C'était parce que l'ancien Empereur Divin Vermillion Bird lui avait également légué le Manteau Vermillion Bird et le jeton formé par l'Esprit Vermillion Bird.
+C'était parce que l'ancien Empereur Divin Oiseau Vermillon lui avait également légué le Manteau Oiseau Vermillon et le jeton formé par l'Esprit Oiseau Vermillon.
 
-L'Empereur Divin Azure Dragon n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Vermillion Bird pouvait connaître — le secret qui avait causé la guerre entre les Quatre Sectes Divines et le Royaume de l'Espace Brillant — l'Empereur Divin Azure Dragon n'avait rien demandé.
+L'Empereur Divin Dragon Azure n'en avait absolument pas fait mention. Si l'on disait qu'il les avait oubliés... Wang Lin ne l'aurait pas cru. De plus, concernant le secret que seul l'Empereur Divin Oiseau Vermillon pouvait connaître — le secret qui avait causé la guerre entre les Quatre Sectes Divines et le Royaume de l'Espace Brillant — l'Empereur Divin Dragon Azure n'avait rien demandé.
 
-Après avoir éloigné tout le monde, l'Empereur Divin Azure Dragon s'assit dans la salle principale de la Secte Divine Azure Dragon. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
+Après avoir éloigné tout le monde, l'Empereur Divin Dragon Azure s'assit dans la salle principale de la Secte Divine Dragon Azure. Il paraissait épuisé, et les Quatre Trésors Sacrés flottaient devant lui.
 
 Cependant, son regard ne se portait pas sur les Trésors Sacrés, mais vers l'extérieur de la salle principale. Après un long moment, il soupira et détourna les yeux. Il murmura quelques mots que lui seul pouvait entendre.
 

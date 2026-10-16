@@ -12,13 +12,13 @@ Cette bataille fut un coup terrible porté au Royaume Extérieur. Elle permit au
 
 Les membres de plus d'une douzaine de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan des Hirondelles de Feu était mort, l'estimé Nan Zhao était mort, et même le seigneur du Palais de la Punition Céleste avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
 
-L'ensemble du Système Stellaire Ancien fut empreint de tristesse. Une tristesse intense qui se mua lentement en colère, une soif de vengeance!
+L'ensemble du Système Stellaire Antique fut empreint de tristesse. Une tristesse intense qui se mua lentement en colère, une soif de vengeance!
 
 Sous l'influence de cette rage, encore plus de clans du Royaume Extérieur réclamèrent la poursuite de la guerre. À mesure que les appels aux armes se multipliaient, le Conseil Souverain donna l'ordre de préparer la seconde bataille!
 
 Tout le Royaume Extérieur commença à se mobiliser. Ils attendaient, attendant la seconde bataille pour se venger!
 
-Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont le Dao Maître Blue Dream avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
+Certains vieux monstres qui étaient restés en cultivation recluse pendant des dizaines de milliers d'années, comme ceux dont le Maître du Dao Rêve Bleu avait parlé, sortirent de leur retraite. Ils fixaient le Royaume Intérieur avec une intention meurtrière!
 
 Le nom « Seigneur du Royaume Scellé Wang Lin » était désormais fermement gravé dans la mémoire du Royaume Extérieur. Ils serraient les dents de haine. C'était Wang Lin qui avait tué l'ancêtre du Clan des Hirondelles de Feu, qui avait tué l'estimé Nan Zhao, qui avait tué l'avatar du Grand Maître Yun Luo et qui avait détruit l'île où elle se trouvait, rendant sa trace inconnue!
 

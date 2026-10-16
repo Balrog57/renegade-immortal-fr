@@ -92,11 +92,11 @@ Pourtant, en témoignant du carnage de Wang Lin, elles ressentirent la peur pour
 
 Un nombre incalculable de bêtes féroces étaient mortes sous les sorts de Wang Lin; lui-même ne pouvait plus en compter le nombre. Il savait seulement que des bêtes féroces emplissaient l'horizon devant lui, et qu'il devait tuer, tuer, encore tuer!
 
-Il devait ouvrir un chemin de sang pour sortir Li Qianmei de la faille spatiale et l'emmener vers le Royaume Extérieur, peu importe la présence de Tuo Sen. Il devait l'amener auprès du Maître Dao Blue Dream, qui semblait avoir un lien avec elle!
+Il devait ouvrir un chemin de sang pour sortir Li Qianmei de la faille spatiale et l'emmener vers le Royaume Extérieur, peu importe la présence de Tuo Sen. Il devait l'amener auprès du Maître Maître du Dao Rêve Bleu, qui semblait avoir un lien avec elle!
 
-Le Maître Dao Blue Dream avait accepté de laisser partir Wang Lin après avoir vu le bracelet de Li Qianmei. Grâce à l'intelligence de Wang Lin et au statut d'orpheline de la jeune femme, il avait pu entrevoir certaines vérités.
+Le Maître Maître du Dao Rêve Bleu avait accepté de laisser partir Wang Lin après avoir vu le bracelet de Li Qianmei. Grâce à l'intelligence de Wang Lin et au statut d'orpheline de la jeune femme, il avait pu entrevoir certaines vérités.
 
-« Avec la puissance de ce Maître Dao Blue Dream, il pourra certainement sauver Li Qianmei! » C'était l'unique espoir de Wang Lin. Même s'il devait mourir, il l'enverrait là-bas!
+« Avec la puissance de ce Maître Maître du Dao Rêve Bleu, il pourra certainement sauver Li Qianmei! » C'était l'unique espoir de Wang Lin. Même s'il devait mourir, il l'enverrait là-bas!
 
 C'était sa dette envers elle, il devait la rembourser!
 

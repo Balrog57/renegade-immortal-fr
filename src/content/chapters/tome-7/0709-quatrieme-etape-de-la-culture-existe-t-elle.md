@@ -27,7 +27,7 @@ Après avoir passé l'année écoulée à absorber l'énergie spirituelle céles
 
 Peu de gens pouvaient atteindre la deuxième étape de la culture; c'était une difficulté telle que les cultivateurs du premier stade ne pouvaient même l'imaginer.
 
-Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Illusoire Yin lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
+Bien que Wang Lin n'ait pas encore atteint cette étape, ses quelques combats contre des cultivateurs de l'Yin Illusoire lui avaient fait réaliser la puissance phénoménale des cultivateurs de la deuxième étape.
 
 « La première étape de la culture était déjà extrêmement difficile. En repensant à ces 900 ans de culture, le danger se trouvait à chaque coin de rue. Le moindre instant d'inattention aurait pu détruire mon âme. Si ce n'était pour l'Aîné Zhou Yi, je serais déjà mort en tentant de percer le stade Ascendant.
 
@@ -63,7 +63,7 @@ Le grondement fit s'agiter tous les nuages de tonnerre créés par l'arrivée de
 
 Tout comme lors de l'arrivée du Daoïste du Tonnerre sur la planète Ran Yun, chaque cultivateur de la planète Mille Illusions trembla. Leurs corps et leurs âmes furent secoués par la puissance de la foudre.
 
-Après avoir libéré le troisième sceau, la force et l'héritage acquis par la Bête du Tonnerre la rendaient non moins puissante qu'un cultivateur de l'Illusoire Yin!
+Après avoir libéré le troisième sceau, la force et l'héritage acquis par la Bête du Tonnerre la rendaient non moins puissante qu'un cultivateur de l'Yin Illusoire!
 
 Wang Lin fronça les sourcils. Il ne souhaitait pas attirer autant d'attention. Il frappa la tête de la Bête du Tonnerre, ce qui la fit cesser immédiatement de rugir, et s'élança directement vers le sol.
 

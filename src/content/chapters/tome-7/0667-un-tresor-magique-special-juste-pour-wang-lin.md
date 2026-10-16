@@ -13,9 +13,9 @@ Un rayon de lumière rouge traversait le domaine nord du système stellaire de L
 
 Une femme se trouvait à l'intérieur du rayon de lumière rouge. En contemplant ce système stellaire inconnu, elle ne ressentait aucun sentiment d'appartenance.
 
-« La planète aux reflets de verre est la planète Thousand Illusion. C'est l'une des cinq étoiles principales du domaine nord du système stellaire de Luotian. Mei Er, mon système stellaire accorde une importance capitale aux lignées. Sans une lignée familiale, tu ne pourras pas pratiquer de méthodes de culture de niveau supérieur et tu ne recevras aucune protection de la part de ton clan.
+« La planète aux reflets de verre est la planète Mille Illusions. C'est l'une des cinq étoiles principales du domaine nord du système stellaire de Luotian. Mei Er, mon système stellaire accorde une importance capitale aux lignées. Sans une lignée familiale, tu ne pourras pas pratiquer de méthodes de culture de niveau supérieur et tu ne recevras aucune protection de la part de ton clan.
 
-« Désormais, en plus d'être ma disciple, tu seras aussi ma fille adoptive. Une fois de retour sur la planète Thousand Illusion, je pratiquerai le rituel d'échange de sang pour transformer ta lignée. À partir de ce jour, tu ne porteras plus le nom de Liu Mei, mais celui de Huan Mei! Es-tu d'accord? »
+« Désormais, en plus d'être ma disciple, tu seras aussi ma fille adoptive. Une fois de retour sur la planète Mille Illusions, je pratiquerai le rituel d'échange de sang pour transformer ta lignée. À partir de ce jour, tu ne porteras plus le nom de Liu Mei, mais celui de Huan Mei! Es-tu d'accord? »
 
 Les yeux du vieil homme brillaient alors qu'il regardait la femme. Il était très satisfait de sa disciple et ne voulait pas qu'elle souffre à cause des vieilles traditions du système stellaire de Luotian. Sans une lignée appropriée, elle n'aurait aucun statut. C'est pourquoi il n'hésita pas à utiliser ce rituel d'échange de lignée, une pratique rarement employée.
 
@@ -23,7 +23,7 @@ La femme réfléchit. Son maître lui en avait déjà parlé durant le voyage. A
 
 Le vieil homme éclata de rire, transporté par la joie. « Mei Er, ce vieux te mènera certainement au stade de cultivatrice de deuxième étape. Tu dépasseras même mon propre niveau de culture de Scruteur du Nirvana! »
 
-Le rayon de lumière rouge s'élança rapidement, ne laissant derrière lui que l'écho de ses rires alors qu'il fonçait droit vers la brillante planète Thousand Illusion.
+Le rayon de lumière rouge s'élança rapidement, ne laissant derrière lui que l'écho de ses rires alors qu'il fonçait droit vers la brillante planète Mille Illusions.
 
 En observant la planète, la femme pensa intérieurement: « Ce voyage vers le système stellaire de Luotian est une nouvelle vie pour moi... Wang Lin et tout ce qui s'est passé sur la planète Suzaku appartiennent désormais au passé. Avec son talent, il n'a probablement même pas encore atteint le stade Ascendant. De plus, rien ne garantit qu'il puisse réussir l'épreuve de la vie et de la mort lors de sa percée vers le stade Ascendant.
 
@@ -31,7 +31,7 @@ En observant la planète, la femme pensa intérieurement: « Ce voyage vers le s
 
 « Il est probablement encore sur la planète Suzaku. Comparé à moi... il n'est plus au même niveau. »
 
-Le rayon de lumière rouge pénétra l'atmosphère de la planète Thousand Illusion et disparut.
+Le rayon de lumière rouge pénétra l'atmosphère de la planète Mille Illusions et disparut.
 
 Sur la planète Ran Yun, une multitude de jades célestes flottaient autour de Wang Lin alors qu'il absorbait lentement l'énergie spirituelle céleste. Après sept jours, il ouvrit les yeux. Des éclairs dansaient au fond de ses pupilles, leur donnant un aspect singulier.
 

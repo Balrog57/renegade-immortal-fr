@@ -8,7 +8,7 @@ slug: reverie
 ---
 Maître Sud Nuage vit Wang Lin.
 
-Le Dao Maître Bleu Rêve vit également Wang Lin.
+Le Maître du Dao Bleu Rêve vit également Wang Lin.
 
 Dans le Royaume Céleste, tous ceux qui avaient rencontré Wang Lin virent cette silhouette aux cheveux et à la robe blancs. Le Seigneur du Royaume des Sceaux!
 
@@ -18,33 +18,33 @@ Désormais qu'ils le voyaient, tout le Royaume Céleste semblait bouillonner. Le
 
 Maître Sud Nuage n'avait que son âme originelle; avec le niveau de culture actuel de Wang Lin, celui-ci pouvait rassembler la puissance du monde pour lui façonner un nouveau corps. Maître Sud Nuage pourrait fusionner avec ce corps sans ressentir le moindre inconfort.
 
-Le Dao Maître Bleu Rêve hésita en regardant Wang Lin, mais il resta silencieux. Il attendait que Wang Lin condense un nouveau corps pour Maître Sud Nuage avant de tenter de lui parler, mais finalement, il laissa échapper un soupir.
+Le Maître du Dao Bleu Rêve hésita en regardant Wang Lin, mais il resta silencieux. Il attendait que Wang Lin condense un nouveau corps pour Maître Sud Nuage avant de tenter de lui parler, mais finalement, il laissa échapper un soupir.
 
 Wang Lin sourit et salua les visages familiers. Il vit également Xu Liguo et Liu Jinbiao discuter avec certains cultivateurs. Le dragon de mer de la taille d'un doigt sur l'épaule de Liu Jinbiao semblait très ennuyé. Lorsqu'un cultivateur tenta de le toucher, il montra les dents, ce qui fit rire l'intéressé.
 
 Treize aimait toujours la solitude. Il était assis non loin de là et ouvrait occasionnellement les yeux pour regarder Wang Lin avec respect.
 
-Wang Lin détourna son regard et s'avança seul vers le Dao Maître Bleu Rêve.
+Wang Lin détourna son regard et s'avança seul vers le Maître du Dao Bleu Rêve.
 
-Le visage du Dao Maître Bleu Rêve était encore pâle. Il était clair que ses blessures antérieures étaient très graves.
+Le visage du Maître du Dao Bleu Rêve était encore pâle. Il était clair que ses blessures antérieures étaient très graves.
 
-Wang Lin pointa le Dao Maître Bleu Rêve du doigt. La puissance du monde se rassembla et s'engouffra dans le corps de ce dernier, faisant reculer rapidement ses blessures.
+Wang Lin pointa le Maître du Dao Bleu Rêve du doigt. La puissance du monde se rassembla et s'engouffra dans le corps de ce dernier, faisant reculer rapidement ses blessures.
 
-Un instant plus tard, les traits du Dao Maître Bleu Rêve retrouvèrent leur couleur. Il prit une profonde inspiration et hocha la tête vers Wang Lin.
+Un instant plus tard, les traits du Maître du Dao Bleu Rêve retrouvèrent leur couleur. Il prit une profonde inspiration et hocha la tête vers Wang Lin.
 
-Le Dao Maître Bleu Rêve demanda lentement: « Ma fille... va-t-elle bien? »
+Le Maître du Dao Bleu Rêve demanda lentement: « Ma fille... va-t-elle bien? »
 
-Wang Lin resta silencieux, son expression plongée dans la réflexion, puis il s'assit devant le Dao Maître Bleu Rêve.
+Wang Lin resta silencieux, son expression plongée dans la réflexion, puis il s'assit devant le Maître du Dao Bleu Rêve.
 
-En voyant l'expression de Wang Lin, le cœur du Dao Maître Bleu Rêve sombra et son visage pâlit une fois de plus.
+En voyant l'expression de Wang Lin, le cœur du Maître du Dao Bleu Rêve sombra et son visage pâlit une fois de plus.
 
 « Que s'est-il passé... Wang Lin, dis-moi! »
 
-« Je n'ai pas pu la retrouver après sa réincarnation... » dit amèrement Wang Lin. Bien qu'il fût l'être le plus puissant du Continent Astral Immortel, il restait respectueux envers le Dao Maître Bleu Rêve car celui-ci l'avait aidé par le passé et était le père de Li Qianmei.
+« Je n'ai pas pu la retrouver après sa réincarnation... » dit amèrement Wang Lin. Bien qu'il fût l'être le plus puissant du Continent Astral Immortel, il restait respectueux envers le Maître du Dao Bleu Rêve car celui-ci l'avait aidé par le passé et était le père de Li Qianmei.
 
-Le Dao Maître Bleu Rêve ferma les yeux et murmura pour lui-même: « Tu ne l'as pas retrouvée... »
+Le Maître du Dao Bleu Rêve ferma les yeux et murmura pour lui-même: « Tu ne l'as pas retrouvée... »
 
-« Elle est allée sur le Continent Astral Immortel à cause de toi, et tu ne l'as pas retrouvée... Tu ne l'as pas retrouvée... » Le Dao Maître Bleu Rêve ouvrit les yeux et se mit à rire. Un rire empreint de déception et de colère.
+« Elle est allée sur le Continent Astral Immortel à cause de toi, et tu ne l'as pas retrouvée... Tu ne l'as pas retrouvée... » Le Maître du Dao Bleu Rêve ouvrit les yeux et se mit à rire. Un rire empreint de déception et de colère.
 
 À ce moment précis, un grondement sourd retentit dans le ciel couleur sang. Les nombreuses fissures célestes montraient des signes d'effondrement et un rire arrogant s'éleva d'en haut.
 
@@ -58,7 +58,7 @@ En particulier, lorsqu'il vit le mépris dans les yeux de Xu Liguo et Liu Jinbia
 
 Non loin de là, Treize regardait le ciel avec indifférence, bien qu'une lueur de froideur brille dans ses yeux.
 
-« Sa marque a disparu, elle devrait donc avoir recouvré ses souvenirs... Je l'ai cherchée longtemps, sans succès. Pourtant, je sens qu'elle se trouve quelque part sur le Continent Astral Immortel, et je la cherche maintenant... » Wang Lin ignora les grondements célestes pour s'adresser amèrement au Dao Maître Bleu Rêve.
+« Sa marque a disparu, elle devrait donc avoir recouvré ses souvenirs... Je l'ai cherchée longtemps, sans succès. Pourtant, je sens qu'elle se trouve quelque part sur le Continent Astral Immortel, et je la cherche maintenant... » Wang Lin ignora les grondements célestes pour s'adresser amèrement au Maître du Dao Bleu Rêve.
 
 « Dès qu'elle laissera échapper un soupçon de son aura, je pourrai la détecter... Même si je suis revenu dans le monde caverneux, je peux toujours ressentir sa présence... » murmura Wang Lin. Li Qianmei était spéciale pour lui. Bien qu'elle ne fût pas comme Li Muwan, elle était la deuxième femme à avoir marqué son cœur.
 
@@ -68,7 +68,7 @@ Il se souvenait encore des paroles que Li Qianmei lui avait murmurées avec une 
 
 « Wang Lin, euh, ne comprend rien aux sentiments... »
 
-En observant le visage de Wang Lin et en écoutant ses paroles, le Dao Maître Bleu Rêve réfléchit en silence. Il savait ce que ressentait Wang Lin, et il comprenait sa propre fille.
+En observant le visage de Wang Lin et en écoutant ses paroles, le Maître du Dao Bleu Rêve réfléchit en silence. Il savait ce que ressentait Wang Lin, et il comprenait sa propre fille.
 
 Le ciel gronda et commença à s'effondrer à grande échelle, révélant une brèche. La teinte sanglante se propagea à mesure que d'autres ouvertures apparaissaient, tandis que des rires résonnaient dans tout le Royaume Céleste.
 
@@ -84,7 +84,7 @@ Tandis que ces silhouettes de sang surgissaient, un jeune homme vêtu de rouge s
 
 Il vit Maître Sud Nuage le narguer du regard, et celui-ci possédait désormais un corps physique. Il vit également la belle Mu Bingmei; elle le regardait avec froideur, comme si elle contemplait un mort.
 
-Mais ce qui ébranla davantage son cœur fut le jeune homme en blanc assis devant le Dao Maître Bleu Rêve. Ce dernier ne le regardait pas directement, mais à sa vue, le corps du jeune homme se mit à trembler. Cette personne lui semblait étrangement familière.
+Mais ce qui ébranla davantage son cœur fut le jeune homme en blanc assis devant le Maître du Dao Bleu Rêve. Ce dernier ne le regardait pas directement, mais à sa vue, le corps du jeune homme se mit à trembler. Cette personne lui semblait étrangement familière.
 
 « Il... Il... » L'esprit du jeune homme en rouge fut secoué comme par un coup de tonnerre. Il avait peine à croire ses propres yeux.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 734 - Got a Great Bargain
 slug: une-excellente-affaire
 ---
-Le vieil homme laissa échapper un reniflement froid avant de se retirer et déclara: « Je n'ai atteint le stade de l'Illusoire Yin que depuis deux ans. Si j'avais quelques années de plus, peu importent les trésors dont tu disposes, tu ne ferais pas le poids face à ce vieil homme! »
+Le vieil homme laissa échapper un reniflement froid avant de se retirer et déclara: « Je n'ai atteint le stade de l'Yin Illusoire que depuis deux ans. Si j'avais quelques années de plus, peu importent les trésors dont tu disposes, tu ne ferais pas le poids face à ce vieil homme! »
 
 Wang Lin rétracta l'âme de la montagne dispersée et dit calmement: « Je discute avec vous de l'échange de ce sort! »
 
@@ -18,7 +18,7 @@ La lumière noire s'élança directement vers la planète de culture et disparut
 
 Wang Lin dit calmement: « Ce sort s'appelle le Doigt de la Mort! »
 
-Le vieil homme renifla et rétorqua: « Si je n'avais pas atteint le stade de l'Illusoire Yin, il aurait peut-être attiré mon attention, mais pour l'instant, il ne vaut rien! » Bien qu'il ait affirmé cela, il était secrètement stupéfait par sa tyrannie. Ce n'était pas la puissance du sort qui l'intéressait, mais sa capacité à absorber la vitalité.
+Le vieil homme renifla et rétorqua: « Si je n'avais pas atteint le stade de l'Yin Illusoire, il aurait peut-être attiré mon attention, mais pour l'instant, il ne vaut rien! » Bien qu'il ait affirmé cela, il était secrètement stupéfait par sa tyrannie. Ce n'était pas la puissance du sort qui l'intéressait, mais sa capacité à absorber la vitalité.
 
 La main droite de Wang Lin pointa une nouvelle fois et une aura démoniaque apparut autour de son bout de doigt. Elle jaillit comme un projectile et s'immobilisa devant le vieil homme.
 

@@ -22,7 +22,7 @@ Le Maître Sud Nuage eut le souffle coupé. Il devinait déjà qui avait eu la c
 
 « Bien, bien, bien! Comment le Seigneur du Royaume Scellé pourrait-il mourir! »
 
-Treize, Maître Lu Fu et l'affaibli Empereur Divin Azure Dragon tremblèrent tous, regardant le vortex près de la Porte du Vide avec une excitation fébrile. En particulier, Treize était transporté par l'émotion.
+Treize, Maître Lu Fu et l'affaibli Empereur Divin Dragon Azure tremblèrent tous, regardant le vortex près de la Porte du Vide avec une excitation fébrile. En particulier, Treize était transporté par l'émotion.
 
 Le Maître Long Pan sourit en contemplant le vortex. Il semblait voir la silhouette qui, autrefois, avait rugi furieusement contre lui.
 

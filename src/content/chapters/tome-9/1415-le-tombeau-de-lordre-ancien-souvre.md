@@ -24,7 +24,7 @@ L'œil gauche de cette silhouette floue abritait un vortex aux neuf couleurs!
 
 Le Maître Simo fixa Wang Lin et réfléchit silencieusement.
 
-Le Dao Maître Miao Yin regarda également Wang Lin. Une lueur étrange brillait dans ses yeux et il esquissa un rictus presque imperceptible.
+Le Maître du Dao Miao Yin regarda également Wang Lin. Une lueur étrange brillait dans ses yeux et il esquissa un rictus presque imperceptible.
 
 Le vieil Oiseau Vermillon se leva dans un rire, le cœur léger. Cependant, au vu de tout ce qui venait de se passer, Wang Lin l'avait une fois de plus stupéfié, en plus de posséder les cinq essences!
 
@@ -32,9 +32,9 @@ Le vieil Oiseau Vermillon rit de bon cœur: « Tu as brûlé le feu karmique aux
 
 Le vieil homme assis sur le lézard observa Wang Lin d'un œil différent. Il avait combattu le vieil Oiseau Vermillon bien trop de fois et savait à quel point le Feu Éthéré était puissant. Maintenant que Wang Lin avait atteint ce royaume, il ne put s'empêcher de lui accorder toute son attention.
 
-La femme derrière le Dao Maître Blue Dream observa silencieusement Wang Lin. Le Dao Maître Blue Dream vit son expression et poussa un soupir intérieur.
+La femme derrière le Maître du Dao Rêve Bleu observa silencieusement Wang Lin. Le Maître du Dao Rêve Bleu vit son expression et poussa un soupir intérieur.
 
-« Si seulement je n'avais pas effacé la mémoire de Yue Er et que j'avais fait rester Wang Lin pour l'aider dans sa culture... au lieu de simplement lui transmettre trois sorts... » Le Dao Maître Blue Dream ressentit, pour la première fois, des remords pour ce qu'il avait fait autrefois.
+« Si seulement je n'avais pas effacé la mémoire de Yue Er et que j'avais fait rester Wang Lin pour l'aider dans sa culture... au lieu de simplement lui transmettre trois sorts... » Le Maître du Dao Rêve Bleu ressentit, pour la première fois, des remords pour ce qu'il avait fait autrefois.
 
 Le regard de Wang Lin balaya l'assemblée et il prit une profonde inspiration. Il percevait les émotions qui émanaient de chacun d'eux. S'il le voulait, il pourrait transformer ces émotions en Feu Éthéré.
 
@@ -58,9 +58,9 @@ Wang Lin acquiesça et regarda dans la direction où le dragon s'était envolé.
 
 « Ancêtre Oiseau Vermillon de la première génération... L'Ancêtre du Clan de l'Oiseau Vermillon... L'un des quatre grands généraux sous les ordres du Souverain Céleste Ancien... Un tel être doit connaître de nombreux secrets... »
 
-« Si le Clan de l'Oiseau Vermillon se trouve dans le Système Stellaire Ancien, pourquoi le Clan du Moineau de Feu existe-t-il? »
+« Si le Clan de l'Oiseau Vermillon se trouve dans le Système Stellaire Antique, pourquoi le Clan du Moineau de Feu existe-t-il? »
 
-« Puisque le Clan de l'Oiseau Vermillon a perduré jusqu'à aujourd'hui, je présume que les Clans du Dragon Azur, de la Tortue Noire et du Tigre Blanc sont également vivants. Où sont-ils... »
+« Puisque le Clan de l'Oiseau Vermillon a perduré jusqu'à aujourd'hui, je présume que les Clans du Dragon Azure, de la Tortue Noire et du Tigre Blanc sont également vivants. Où sont-ils... »
 
 « Le Souverain Céleste Ancien est-il la même personne que l'Empereur Céleste Ancien, le Seigneur du Royaume Scellé, mentionné? Si ce n'est pas le cas, quelle est leur relation... »
 
@@ -74,7 +74,7 @@ Ses yeux étaient clos et un feu aux neuf couleurs brûlait entre ses sourcils.
 
 La main droite de la statue s'avança et sa paume s'ouvrit. La silhouette de Wang Lin fut enveloppée par un éclat de lumière et il apparut au creux de la paume.
 
-Dans le Système Stellaire Ancien, au sein d'un domaine stellaire paisible, des ondulations se firent entendre. Ces ondes ressemblaient à des vagues et se propageaient lentement dans toutes les directions. Peu après, un rayon de lumière fantomatique traversa l'espace.
+Dans le Système Stellaire Antique, au sein d'un domaine stellaire paisible, des ondulations se firent entendre. Ces ondes ressemblaient à des vagues et se propageaient lentement dans toutes les directions. Peu après, un rayon de lumière fantomatique traversa l'espace.
 
 Avant que cette lumière ne passe, il y avait là une planète abandonnée. Aucun être vivant n'y résidait et elle ne possédait aucune énergie spirituelle; elle était considérée comme une planète stérile.
 
@@ -82,4 +82,4 @@ Si des cultivateurs s'en approchaient, ils ne lui jetteraient même pas un regar
 
 Cependant, à cet instant précis, une fissure de trente mètres apparut au centre des ondulations. Une aura de mort infinie émana de la faille, la faisant s'élargir sans cesse.
 
-À travers la fissure, on pouvait apercevoir un autre monde, rempli d'innombrables rochers flottants... Sur ces rochers reposaient d'énormes têtes... Certains dieux anciens, certains démons anciens et certains diables anciens... La fissure atteignit mille pieds avant de cesser de s'étendre. Elle ressemblait à une gueule béante attendant que sa proie arrive... Son apparition déclencherait une tempête dans le Système Stellaire Ancien, choquant d'innombrables cultivateurs... Le tombeau de l'Ordre Ancien... S'ouvre!
+À travers la fissure, on pouvait apercevoir un autre monde, rempli d'innombrables rochers flottants... Sur ces rochers reposaient d'énormes têtes... Certains dieux anciens, certains démons anciens et certains diables anciens... La fissure atteignit mille pieds avant de cesser de s'étendre. Elle ressemblait à une gueule béante attendant que sa proie arrive... Son apparition déclencherait une tempête dans le Système Stellaire Antique, choquant d'innombrables cultivateurs... Le tombeau de l'Ordre Ancien... S'ouvre!

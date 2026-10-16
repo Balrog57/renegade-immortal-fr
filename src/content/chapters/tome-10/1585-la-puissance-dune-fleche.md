@@ -54,7 +54,7 @@ Dès son départ, une profonde gorge se creusa dans l'eau calme. Cette entaille 
 
 Une immense fissure apparut même dans le ciel. Elle continua de se propager, semblant prête à briser cette extrêmement puissante formation meurtrière destinée à l'anéantir!
 
-Les quatre individus fuyaient avec terreur. Le Maître Céleste Void God était le plus rapide et s'était déjà éloigné. Les deux concubines impériales célestes suivaient de près, leurs visages marqués par la douleur et le désespoir.
+Les quatre individus fuyaient avec terreur. Le Maître Céleste Dieu du Vide était le plus rapide et s'était déjà éloigné. Les deux concubines impériales célestes suivaient de près, leurs visages marqués par la douleur et le désespoir.
 
 L'homme en blanc possédait le niveau de culture et le statut les plus bas. Incapable de suivre la cadence, il prit du retard, se retrouvant ainsi comme la cible la plus proche de la flèche.
 
@@ -96,13 +96,13 @@ Le pendentif flotta devant elle tandis que la lumière aux sept couleurs envelop
 
 « Ma concubine la plus aimée, je te confie cette pierre. Elle pourra te protéger... Ainsi, même si un jour je ne suis plus là, elle sera toujours auprès de toi... » Ces paroles douces du Souverain Céleste résonnèrent encore dans ses oreilles.
 
-La flèche traversa ensuite la femme et poursuivit sa course vers le Maître Céleste Void God, qui se trouvait sous forme de brume. Un grondement de tonnerre secoua le monde lorsque le projectile percuta la brume.
+La flèche traversa ensuite la femme et poursuivit sa course vers le Maître Céleste Dieu du Vide, qui se trouvait sous forme de brume. Un grondement de tonnerre secoua le monde lorsque le projectile percuta la brume.
 
 Celle-ci s'effondra soudainement. En se dissipant, elle se condensa rapidement pour former un vieil homme vêtu de noir. Son visage était livide et, alors qu'il tentait de reculer, son corps se décomposa une fois de plus.
 
-Un cri déchirant retentit. En un laps de temps infime, le Maître Céleste Void God avait subi plusieurs effondrements. Lorsqu'il parvint à se reformer une dernière fois, la marque entre ses sourcils vola en éclats et la flèche lui transperça le corps.
+Un cri déchirant retentit. En un laps de temps infime, le Maître Céleste Dieu du Vide avait subi plusieurs effondrements. Lorsqu'il parvint à se reformer une dernière fois, la marque entre ses sourcils vola en éclats et la flèche lui transperça le corps.
 
-L'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Void God, esquissa un sourire amer avant d'exploser. Une immense quantité de brume se dissipa sans laisser de trace.
+L'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Dieu du Vide, esquissa un sourire amer avant d'exploser. Une immense quantité de brume se dissipa sans laisser de trace.
 
 « Souverain, ce vieil homme a bloqué la flèche pour vous! Vous devrez me donner des explications! » Son rugissement funèbre résonna alors qu'il s'évanouissait totalement.
 

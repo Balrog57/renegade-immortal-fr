@@ -14,7 +14,7 @@ slug: loiseau-vermillon-de-la-sixieme-generation
 
 « Le second royaume consiste à se tromper soi-même! À son apogée, soit l'on se perd pour devenir quelqu'un d'autre, soit l'on renaît en se souvenant de qui l'on est. On peut alors franchir le second royaume et être capable de revenir à soi à tout moment. Une telle personne est rare, et elle atteindrait la troisième étape du retour à sa forme véritable!
 
-« Si ce n'était pas parce que je me suis tellement appuyé sur le jade que mon cœur de Dao n'est pas assez fort, ce qui a entravé ma voie de la tromperie, alors même Lord Céleste ne pourrait pas me capturer si facilement!
+« Si ce n'était pas parce que je me suis tellement appuyé sur le jade que mon cœur de Dao n'est pas assez fort, ce qui a entravé ma voie de la tromperie, alors même Seigneur Céleste ne pourrait pas me capturer si facilement!
 
 « Maintenant que vous avez pris mon jade et détruit ce sur quoi je comptais, cela m'a donné une chance. Dans l'espace de stockage, ma tromperie a atteint le sommet du second royaume et j'ai fait un demi-pas vers le troisième! » Liu Jinbiao agita sa manche et afficha une expression froide.
 
@@ -22,7 +22,7 @@ Les yeux de Wang Lin s'illuminèrent et il dit lentement: « C'est plutôt inté
 
 Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du camarade cultivateur Jingbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
 
-Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Lord Xu. Tant que Lord Xu ne maltraite pas trop ce humble serviteur, il sera satisfait. »
+Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Seigneur Xu. Tant que Seigneur Xu ne maltraite pas trop ce humble serviteur, il sera satisfait. »
 
 Son changement fut si soudain qu'il surprit même Xu Liguo. Ce dernier jura intérieurement, ne sachant que dire.
 

@@ -40,15 +40,15 @@ Mu Bingmei resta immobile, observant les traînées de lumière s'éloigner. Deu
 
 Dans le ciel, Wang Lin contempla les environs familiers et son cœur s'apaisa. Il avait le sentiment diffus que les affaires dans le Monde des Grottes étaient loin d'être terminées.
 
-« Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec le Maître du Dao Blue Dream et le Maître South Cloud ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
+« Avec cette formation, à moins qu'un être comme le Souverain n'apparaisse, il n'y aura pas d'autre guerre entre les Royaumes Intérieur et Extérieur! Bien que plusieurs des Cinq Maîtres soient toujours en vie, ils sont tous gravement blessés. Avec le Maître du Dao Rêve Bleu et le Maître South Cloud ici, il ne devrait y avoir aucun problème. J'ai encore d'autres réflexions à mener.
 
-« Le Général Vermillion Bird est parti, et si la première génération de Vermillion Bird du Royaume Extérieur s'est réellement séparée du Général, alors il a dû partir... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
+« Le Général Oiseau Vermillon est parti, et si la première génération de Oiseau Vermillon du Royaume Extérieur s'est réellement séparée du Général, alors il a dû partir... Je me demande seulement si la deuxième génération et les autres sont toujours là... » Wang Lin mena silencieusement le groupe et quitta le Royaume Céleste.
 
 Il ne se dirigea pas vers la Terre Déchue.
 
 « La Terre Déchue n'est pas si simple... Le curseur de la Perle de la Transgression Céleste... » Les yeux de Wang Lin s'illuminèrent. Des conjectures l'habitaient, mais le moment n'était pas venu d'en chercher la clé.
 
-« Il y avait aussi le Maître Scarlet Soul, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Daoïste Water... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
+« Il y avait aussi le Maître Âme Écarlate, que j'ai libéré... Et cette personne mystérieuse qui semblait scellée dans le Royaume Céleste du Vent et qui m'avait aidé lors de mon combat contre le Daoïste Water... Cette personne a quitté le Royaume Céleste du Vent par la suite. J'ignore où elle se trouve, mais peut-être sera-t-elle attirée par l'ouverture de la porte.
 
 « Tant de choses et tant de lieux restent inexpliqués... » Wang Lin ferma les yeux tout en avançant. Il mit de côté tous ces doutes et spéculations pour ne les affronter qu'une fois revenu du Continent Astral Immortel.
 

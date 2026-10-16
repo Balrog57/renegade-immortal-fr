@@ -10,13 +10,13 @@ Le cœur de la cité ancestrale, le Palais Impérial Céleste!
 
 À l'aube, alors que le premier rayon de lumière perçait l'horizon pour chasser les ténèbres et révéler la splendeur du palais, les plus illustres cultivateurs de la ville et les hauts dignitaires commencèrent à affluer.
 
-La cérémonie de couronnement de l'Ascendant Empyré aux Cheveux Blancs. Cet événement avait déclenché une véritable tempête dans la cité ancestrale sept jours auparavant!
+La cérémonie de couronnement de l'Ascendant Empyréen aux Cheveux Blancs. Cet événement avait déclenché une véritable tempête dans la cité ancestrale sept jours auparavant!
 
-Au fil des ans, quiconque en était digne avait entendu parler de l'Ascendant Empyré aux Cheveux Blancs. Ce titre était devenu légendaire et mondialement connu.
+Au fil des ans, quiconque en était digne avait entendu parler de l'Ascendant Empyréen aux Cheveux Blancs. Ce titre était devenu légendaire et mondialement connu.
 
 Toutes les familles de cultivateurs s'étaient rendues sur la vaste place après avoir reçu l'autorisation de l'Empereur Céleste d'assister à cette cérémonie.
 
-En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de 10 000 individus. Tous possédaient des niveaux de culture extraordinaires, et certains étaient même des Ascendants Empyrés.
+En ce moment précis, le soleil s'élevait et une immense foule de cultivateurs s'était rassemblée. D'un seul coup d'œil, on comptait pas moins de 10 000 individus. Tous possédaient des niveaux de culture extraordinaires, et certains étaient même des Ascendants Empyréens.
 
 Même au sein du palais impérial, ces êtres recevaient le respect de tous ceux qui les entouraient.
 
@@ -62,19 +62,19 @@ Ce palais était trop vaste. Wang Lin ne pouvait en voir la fin, mais il sentait
 
 « Est-ce le Palais Impérial Céleste... » Wang Lin scruta l'horizon et aperçut une statue de pierre au loin; toutefois, l'éloignement la rendait floue. La statue semblait contempler éternellement le ciel.
 
-« Ascendant Empyré aux Cheveux Blancs, Wang Lin! » Une voix froide et majestueuse tonna comme le tonnerre depuis le temple et interrompit ses pensées. Wang Lin fronça les sourcils.
+« Ascendant Empyréen aux Cheveux Blancs, Wang Lin! » Une voix froide et majestueuse tonna comme le tonnerre depuis le temple et interrompit ses pensées. Wang Lin fronça les sourcils.
 
 L'homme qui avait parlé était le vieil homme en vert sorti du temple. Il observait Wang Lin au loin à travers les neuf portes.
 
-« Wang Lin, chaque Ascendant Empyré recevra un titre de Sa Majesté, mais avant la cérémonie de couronnement, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et vous serez tenu devant moi, la cérémonie débutera! »
+« Wang Lin, chaque Ascendant Empyréen recevra un titre de Sa Majesté, mais avant la cérémonie de couronnement, il doit subir une épreuve. Cette épreuve est constituée de ces neuf portes. Une fois que vous aurez franchi les neuf portes et vous serez tenu devant moi, la cérémonie débutera! »
 
 « À ce moment-là, Sa Majesté viendra personnellement vous nommer et le Maître Impérial viendra diviner votre destin! Toutes vos actions devant le Temple du Dao Céleste seront enregistrées et diffusées auprès de toutes les sectes des 72 continents! » Les paroles du vieil homme étaient empreintes de calme. Lorsqu'il eut fini, il ferma les yeux, ne lui accordant plus aucune attention.
 
 Cependant, tous les cultivateurs, y compris les quatre rois, les yeux rivés sur Wang Lin.
 
-Wang Lin resta immobile. Il avait entendu parler de cette cérémonie par le vieil homme de la famille Li. Chaque Ascendant Empyré devait effectivement traverser les neuf portes avant son intronisation.
+Wang Lin resta immobile. Il avait entendu parler de cette cérémonie par le vieil homme de la famille Li. Chaque Ascendant Empyréen devait effectivement traverser les neuf portes avant son intronisation.
 
-Pourtant, il ne s'agissait que d'un geste symbolique. Après tout, les Ascendants Empyrés étaient reconnus par l'Ancêtre Céleste et devaient affronter le dixième palais. Les portes n'étaient qu'une démonstration de la puissance impériale et, en réalité, ne possédaient aucune force réelle; on pouvait simplement les traverser.
+Pourtant, il ne s'agissait que d'un geste symbolique. Après tout, les Ascendants Empyréens étaient reconnus par l'Ancêtre Céleste et devaient affronter le dixième palais. Les portes n'étaient qu'une démonstration de la puissance impériale et, en réalité, ne possédaient aucune force réelle; on pouvait simplement les traverser.
 
 Le regard de Wang Lin balaya les neuf portes et s'arrêta sur les deux longues rangées de soldats en armure noire. Ces derniers ne manifestaient que des regards glacials fixés sur lui.
 

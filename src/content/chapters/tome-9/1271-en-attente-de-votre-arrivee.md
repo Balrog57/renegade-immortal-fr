@@ -90,7 +90,7 @@ Le temps passa progressivement et, en un clin d'œil, deux jours s'écoulèrent.
 
 Ces cent continents furent déplacés frénétiquement pour encercler le continent sauvage où se trouvait Wang Lin.
 
-Cette scène était suffisante pour choquer tous les cultivateurs de la région de rang 5. À cet instant, la zone occupée par les cent continents de Wang Lin couvrait déjà une immense partie de la région. De loin, cela ressemblait au domaine d'un clan du Système Stellaire Ancien!
+Cette scène était suffisante pour choquer tous les cultivateurs de la région de rang 5. À cet instant, la zone occupée par les cent continents de Wang Lin couvrait déjà une immense partie de la région. De loin, cela ressemblait au domaine d'un clan du Système Stellaire Antique!
 
 Ces continents sauvages encerclèrent Wang Lin pour former une formation gigantesque! Cette formation utilisait ces continents comme structure et atteignit un niveau de puissance terrifiant.
 

@@ -12,7 +12,7 @@ La Tribulation Arcane était une métamorphose située entre le Vide Arcane et l
 
 Si l'on ne parvenait pas à surmonter une Tribulation Arcane, on mourait. De nombreux cultivateurs du Vide Arcane redoutaient ces tribulations. Beaucoup préféraient rester au stade du Vide Arcane plutôt que de faire face à ces terrifiantes épreuves!
 
-À l'instar du Dao Master Blue Dream, qui était resté au sommet du Vide Arcane pendant une longue période sans jamais franchir le stade de la Tribulation Arcane.
+À l'instar du Maître du Dao Rêve Bleu, qui était resté au sommet du Vide Arcane pendant une longue période sans jamais franchir le stade de la Tribulation Arcane.
 
 Une fois engagé dans une Tribulation Arcane, c’était comme affronter neuf situations de vie ou de mort. Tout le monde n'avait pas un tel courage. La plupart des cultivateurs de la Tribulation Arcane passaient des milliers d'années, voire plus, pour surmonter lentement chaque étape.
 

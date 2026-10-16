@@ -100,17 +100,17 @@ Cependant, il ne quitta pas le Continent du Grand Sage; il se contenta de s'inst
 
 Après une profonde inspiration, Wang Lin ferma les yeux et son Sens Divin se concentra au sommet de sa tête. Il projeta un corps invisible qui s'élança vers le ciel.
 
-« Cette fois, je dois me faire un nom en un seul mouvement! Cette fois, je dois forcer tous les Exaltés Empyrés à lever les yeux pour me regarder... Cette fois, je deviendrai le premier parmi les Exaltés Empyrés!
+« Cette fois, je dois me faire un nom en un seul mouvement! Cette fois, je dois forcer tous les Exaltés Empyréens à lever les yeux pour me regarder... Cette fois, je deviendrai le premier parmi les Exaltés Empyréens!
 
-« Cette fois, je deviendrai le 49e Ascendant Empyré! Cette fois, j'utiliserai la puissance de l'armure d'âme du Taureau Céleste! »
+« Cette fois, je deviendrai le 49e Ascendant Empyréen! Cette fois, j'utiliserai la puissance de l'armure d'âme du Taureau Céleste! »
 
 Le Sens Divin de Wang Lin s'éleva vers les cieux telle une colonne de gaz invisible. Il continua sa montée jusqu'à ce que son esprit frémisse. Lorsque sa vision redevint claire, il reconnut l'Épreuve Empyrée!
 
-Il vit les palais flottant dans le ciel et les centaines d'Exaltés Empyrés assis devant le premier palais!
+Il vit les palais flottant dans le ciel et les centaines d'Exaltés Empyréens assis devant le premier palais!
 
-De même, ces Exaltés Empyrés aperçurent Wang Lin, qui venait d'atteindre l'ancien réseau de transfert!
+De même, ces Exaltés Empyréens aperçurent Wang Lin, qui venait d'atteindre l'ancien réseau de transfert!
 
-« L'Exalté Empyré aux cheveux blancs! »
+« L'Exalté Empyréen aux cheveux blancs! »
 
 « Je me souviens qu'il avait franchi les quatre premiers étages d'affilée autrefois. Je pensais qu'il tenterait le cinquième palais, mais il avait abandonné et était parti... »
 

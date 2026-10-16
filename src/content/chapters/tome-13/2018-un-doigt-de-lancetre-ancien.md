@@ -30,9 +30,9 @@ Bien qu'il ne s'agisse que d'une silhouette, c'était bel et bien le Soleil du G
 
 Sous ce Soleil du Grand Empyréen reposait une tête haute de 1 000 pieds. Elle n'avait ni yeux ni oreilles, et une profonde fissure marquait son crâne. C'était la tête de l'Ancêtre Céleste!
 
-Wang Lin avait disposé d'innombrables restrictions autour de cette grotte. Avec son niveau de culture actuel, ces barrières étaient extrêmement puissantes. Oubliez les Empyrés Exaltés, même les Empyrés Ascendants ne pourraient les ressentir.
+Wang Lin avait disposé d'innombrables restrictions autour de cette grotte. Avec son niveau de culture actuel, ces barrières étaient extrêmement puissantes. Oubliez les Empyréens Exaltés, même les Empyréens Ascendants ne pourraient les ressentir.
 
-Même des Grands Empyrés auraient du mal à les détecter sans une observation minutieuse. Cela s'expliquait par le fait que ces restrictions intégraient la fusion des pouvoirs céleste et ancien de Wang Lin! Il en avait extrait une fraction pour les combiner aux restrictions, leur conférant ainsi cette puissance redoutable.
+Même des Grands Empyréens auraient du mal à les détecter sans une observation minutieuse. Cela s'expliquait par le fait que ces restrictions intégraient la fusion des pouvoirs céleste et ancien de Wang Lin! Il en avait extrait une fraction pour les combiner aux restrictions, leur conférant ainsi cette puissance redoutable.
 
 La silhouette de Wang Lin apparut aux côtés de la tête de l'Ancêtre Céleste. Il avait créé cet espace pour nourrir son Soleil du Grand Empyréen. Selon ses analyses, une fois que son soleil aurait fusionné complètement avec la tête de l'Ancêtre Céleste, il deviendrait solide.
 

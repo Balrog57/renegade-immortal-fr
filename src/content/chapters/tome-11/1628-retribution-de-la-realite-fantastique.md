@@ -90,7 +90,7 @@ Parmi elles, Qing Shui, ayant retrouvé ses souvenirs après son éveil, rugissa
 Parmi elles, Tuo Sen, maudissant les cieux avec arrogance...
 Et bien d'autres encore...
 
-On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan du Tonnerre Dispersé. Les cultivateurs tombés et Maître Scattered Spirit lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
+On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan du Tonnerre Dispersé. Les cultivateurs tombés et Maître Esprit Dispersé lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
 
 Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de rétribution divine. La rétribution des cieux ayant utilisé l'illusion contre Wang Lin, celui-ci lui répondit par la même arme, utilisant son propre Dao pour ériger cette réponse divine.
 

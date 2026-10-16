@@ -26,19 +26,19 @@ Cette aura ne contenait qu'un sentiment d'inclusion. Au fil des âges, elle avai
 
 Le démon dispersé, contrôlant le corps de Wang Lin, tendit sa main droite. Son aura commença à converger dans sa paume avec une frénésie telle qu'en un clin d'œil, elle se mua en une brume grise. L'aura antique continua de fusionner avec cette brume et de se comprimer. Des détonations semblables à des coups de tonnerre jaillirent de la brume grise.
 
-C'était peut-être une illusion, mais à cet instant, Wang Lin eut l'impression que la planète Thousand Illusion perdait soudainement sa vitalité. L'herbe se flétrissait, les rivières s'évaporaient et les sommets se fissuraient...
+C'était peut-être une illusion, mais à cet instant, Wang Lin eut l'impression que la planète Mille Illusions perdait soudainement sa vitalité. L'herbe se flétrissait, les rivières s'évaporaient et les sommets se fissuraient...
 
-Tenant la brume grise en main, le démon dispersé laissa échapper un rire avant de charger la figure céleste. Il se déplaçait comme l'éclair, fonçant sur l'entité avec l'âme de la planète Thousand Illusion.
+Tenant la brume grise en main, le démon dispersé laissa échapper un rire avant de charger la figure céleste. Il se déplaçait comme l'éclair, fonçant sur l'entité avec l'âme de la planète Mille Illusions.
 
 Wang Lin sentait que son corps avait fusionné avec l'âme de la planète. Cette attaque ne reposait pas sur sa propre force, mais sur la puissance de la planète tout entière.
 
-La figure céleste fit également un pas en avant, portée par toute l'énergie spirituelle céleste transformée à partir des réserves de la planète Thousand Illusion. Elle agita la main et chargea directement le démon dispersé.
+La figure céleste fit également un pas en avant, portée par toute l'énergie spirituelle céleste transformée à partir des réserves de la planète Mille Illusions. Elle agita la main et chargea directement le démon dispersé.
 
 Deux sorts inimaginables se rapprochèrent jusqu'à leur collision finale.
 
 Boum! Boum! Boum!
 
-Un rugissement tonnerre retentit à travers la planète. À cet instant, environ trente à quarante pour cent des veines spirituelles de Thousand Illusion s'effondrèrent, générant de puissantes ondes de choc qui se propagèrent dans toutes les directions.
+Un rugissement tonnerre retentit à travers la planète. À cet instant, environ trente à quarante pour cent des veines spirituelles de Mille Illusions s'effondrèrent, générant de puissantes ondes de choc qui se propagèrent dans toutes les directions.
 
 L'impact fut si violent que tous les membres de la famille Huan furent contraints de reculer immédiatement. Ils commencèrent à activer l'énergie spirituelle ou l'énergie spirituelle céleste en eux, sentant que sans cela, leur propre corps s'effondrerait sous le choc.
 
@@ -50,7 +50,7 @@ Cependant, au moment de sa destruction, un rayon de lumière blanche jaillit du 
 
 Le visage de l'ancêtre de la famille Huan était livide. La famille avait transmis cet héritage: si le jade se brisait, il subsisterait un ultime sort défensif. Toutefois, ce sort était très faible. Sa seule utilité consistait à gagner un peu de temps en cas de crise pour s'enfuir, se rendre, se suicider ou laisser ses dernières volontés.
 
-La main droite du démon dispersé trembla, puis l'âme de la planète Thousand Illusion disparut. L'aura antique fusionna de nouveau avec la terre avant de s'évanouir progressivement.
+La main droite du démon dispersé trembla, puis l'âme de la planète Mille Illusions disparut. L'aura antique fusionna de nouveau avec la terre avant de s'évanouir progressivement.
 
 Le plus grand bénéficiaire de cette bataille était Wang Lin. Un combat impliquant de tels sorts était une expérience qu'un cultivateur de son niveau ne pourrait jamais espérer vivre; cela dépassait totalement son entendement.
 

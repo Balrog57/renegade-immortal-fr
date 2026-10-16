@@ -8,7 +8,7 @@ slug: le-debut-de-la-bataille-decisive
 ---
 Le tatouage blanc de l'Oiseau Vermillon sur son armure écarlate et ses cheveux blancs conféraient à Wang Lin une aura singulière. Bien qu'il fusionnât avec l'esprit véritable de l'Oiseau Vermillon, imprégné d'une puissante énergie originelle de feu, il ne pouvait masquer la pâleur de son visage.
 
-Sundered Night était extrêmement puissant, mais il n'avait qu'une compréhension infime de la loi originelle. L'utiliser par la force lui avait infligé de graves conséquences.
+Nuit Brisée était extrêmement puissant, mais il n'avait qu'une compréhension infime de la loi originelle. L'utiliser par la force lui avait infligé de graves conséquences.
 
 L'effet de ce sortilège était sans précédent en raison de l'apparition de la loi originelle, de l'esprit véritable de l'Oiseau Vermillon, du second éveil de Wang Lin et de son désespoir. Tous ces éléments avaient permis d'atteindre un paroxysme. C'était une prouesse qu'il ne pourrait reproduire, et même s'il y parvenait, elle ne serait pas aussi dévastatrice.
 

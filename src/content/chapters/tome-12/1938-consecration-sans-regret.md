@@ -10,7 +10,7 @@ La silhouette de Wang Lin apparut soudainement à la lisière de la Mer de Monta
 
 Ce n'est que lorsque Wang Lin fut loin du continent de la Mer de Montagnes, au sein du continent de la Forêt de la Mer de Montagnes, qu'il réapparut au-dessus d'une ancienne forêt de pins. Flottant au-dessus des cimes, il regarda derrière lui.
 
-Plus tôt, il avait utilisé *Sundered Night* pour éveiller la paume brisée, puis il s'était enfui sans hésiter. En sortant, il avait vaguement ressenti trois auras puissantes, capables de briser le monde, qui planaient là. Combiné à ses spéculations antérieures, il n'était pas difficile de deviner qui elles étaient.
+Plus tôt, il avait utilisé *Nuit Brisée* pour éveiller la paume brisée, puis il s'était enfui sans hésiter. En sortant, il avait vaguement ressenti trois auras puissantes, capables de briser le monde, qui planaient là. Combiné à ses spéculations antérieures, il n'était pas difficile de deviner qui elles étaient.
 
 Wang Lin s'assit au sommet d'un pin et prit une profonde inspiration. Le monde ici était vaste et bien plus serein qu'à l'intérieur du rideau de lumière.
 

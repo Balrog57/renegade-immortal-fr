@@ -84,7 +84,7 @@ Li Yuan s'adressa à la femme: « Madame Ge, bien que ces vibrations soient lié
 
 Wang Lin ne dit plus rien; son corps vacilla et il accéléra sa course. Il dépassa les deux autres et chargea en avant.
 
-Li Yuan regarda le dos de Wang Lin en pensant: « Il n'utilisait pas réellement toute sa force auparavant. Cet homme n'est pas simple! Mon instinct pour juger les gens ne m'a pas trompé! Comment quelqu'un capable de vaincre un cultivateur de l'Illusoire Yin pourrait-il être ordinaire?! »
+Li Yuan regarda le dos de Wang Lin en pensant: « Il n'utilisait pas réellement toute sa force auparavant. Cet homme n'est pas simple! Mon instinct pour juger les gens ne m'a pas trompé! Comment quelqu'un capable de vaincre un cultivateur de l'Yin Illusoire pourrait-il être ordinaire?! »
 
 Peu après que Wang Lin eut chargé dans le vide, ses yeux se contractèrent soudainement et il s'arrêta net. Il fixa l'horizon et vit une immense étendue de brouillard saturée d'énergie spirituelle céleste. Ce brouillard était infini et obstruait toute progression.
 

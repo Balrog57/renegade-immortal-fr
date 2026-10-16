@@ -28,13 +28,13 @@ De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensai
 
 Le visage de l'avatar de Wang Lin pâlit légèrement et il retira son doigt du corps original. Il se retourna et s'inclina respectueusement vers les étoiles.
 
-« Senior Blue Dream, Senior Qing Lin et Senior Hong Shang. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
+« Senior Rêve Bleu, Senior Qing Lin et Senior Hong Shang. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
 
-À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et le Maître Dao Blue Dream apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
+À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et le Maître Maître du Dao Rêve Bleu apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
 
 Ils étaient là depuis le début et avaient été témoins des confrontations entre Wang Lin et l'Omniscient.
 
-Le Maître Dao Blue Dream s'assit devant le corps original de Wang Lin. Il regarda l'avatar de Wang Lin et dit lentement: « Avec moi ici, tu peux être serein. Si tu parviens à trouver son corps original, alors peu importe sa puissance, il ne pourra pas s'échapper! »
+Le Maître Maître du Dao Rêve Bleu s'assit devant le corps original de Wang Lin. Il regarda l'avatar de Wang Lin et dit lentement: « Avec moi ici, tu peux être serein. Si tu parviens à trouver son corps original, alors peu importe sa puissance, il ne pourra pas s'échapper! »
 
 Wang Lin hocha la tête et joignit les mains en signe de respect envers les trois experts. Il s'avança vers l'est, là où se trouvait l'aura de l'Omniscient.
 
@@ -92,7 +92,7 @@ C'était comme chercher un chemin: il est difficile de progresser quand on est a
 
 Les yeux de Wang Lin brillaient intensément comme la pleine lune. Un sourire étira ses lèvres alors qu'il formait un sceau et pointait entre ses sourcils!
 
-« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantomatique pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de l'Omniscient! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière des Invocations sous la garde du Maître Dao Blue Dream, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
+« Avec ces 3 000 âmes pour guides, avec le Dao du Rêve pour chemin, j'emprunte l'illusion de la Voile Fantomatique pour rêver des 3 000 avatars et entrer dans la réincarnation! Cherchez le corps originel de l'Omniscient! » Au moment où Wang Lin pointa son front, son propre corps original, plongé au plus profond de la Rivière des Invocations sous la garde du Maître Maître du Dao Rêve Bleu, de Qing Lin et du Maître Hong Shan, ouvrit les yeux.
 
 « Je connais le chemin pour trouver son corps originel! » Ses yeux projetèrent une lumière étrange qui enveloppa tout son être. L'esprit du corps original de Wang Lin trembla. En empruntant les 3 000 âmes, il avait utilisé le Dao du Rêve pour ouvrir un passage vers le passé.
 
@@ -106,7 +106,7 @@ C'était là la méthode que Wang Lin avait conçue pour riposter!
 
 Ce qu'il vit, ce furent les étoiles. Il connaissait bien ce système stellaire: c'était la Rivière des Invocations. Il vit une météorite, et à l'intérieur de celle-ci se trouvait l'Omniscient! De l'autre côté siégeait un vieil homme plongé dans le coma. Ce vieil homme était Ling Tianhou!
 
-L'Omniscient affichait une expression douloureuse. Des traces de sang maculaient encore ses mains. Si les spéculations de Wang Lin étaient exactes, il s'agissait du sang du Dao Céleste altéré par l'Empereur Divin Azure Dragon!
+L'Omniscient affichait une expression douloureuse. Des traces de sang maculaient encore ses mains. Si les spéculations de Wang Lin étaient exactes, il s'agissait du sang du Dao Céleste altéré par l'Empereur Divin Dragon Azure!
 
 La douleur sur le visage de l'Omniscient s'intensifia et, après un temps indéterminé, il poussa un rugissement. Ses yeux s'ouvrirent et des ombres clignotèrent frénétiquement sur son visage. Ces ombres étaient ses avatars!
 

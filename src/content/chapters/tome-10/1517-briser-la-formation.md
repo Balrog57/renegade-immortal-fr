@@ -64,21 +64,21 @@ Levant les yeux vers le ciel, un éclat de froideur traversa son regard. Elle le
 
 Des vagues de musique de cithare émanaient du sommet du Mont Bleu, au sein du Clan de la Soie Bleue. Bien que mélodieuse, cette musique était étrange. Parfois empreinte d'une volonté d'embuscade et de mort, elle était parfois d'une douceur extrême. Ces deux extrêmes fusionnaient pour former une émotion complexe.
 
-Le Dao Maître Blue Dream ferma les yeux, ses mains dansant sur la cithare. Il semblait hésiter, comme s'il était face à un choix crucial!
+Le Maître du Dao Rêve Bleu ferma les yeux, ses mains dansant sur la cithare. Il semblait hésiter, comme s'il était face à un choix crucial!
 
 Li Qianmei était assise calmement en face de son père. Elle l'observait en silence, sans dire un mot.
 
 À cet instant précis, des ondulations résonnèrent au-dessus du Mont Bleu et un éclat de lumière dorée jaillit. C'était une broche, une parure que seule une femme porterait dans ses cheveux!
 
-La broche fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et le Dao Maître Blue Dream!
+La broche fendit le vide et fonça droit vers le Mont Bleu. Elle perça le toit de la demeure et s'enfonça impitoyablement dans le sol, entre Li Qianmei et le Maître du Dao Rêve Bleu!
 
-La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Le Dao Maître Blue Dream ouvrit les yeux et fixa la broche devant lui; une lutte douloureuse se lisait dans son regard.
+La musique de la cithare s'interrompit brusquement! L'une des cordes se rompit et s'envola dans les airs. Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa la broche devant lui; une lutte douloureuse se lisait dans son regard.
 
-Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Le Dao Maître Blue Dream se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
+Après un long moment, il laissa échapper un soupir et agita sa main droite. La corde brisée se détacha de l'instrument, enveloppée d'une lumière bleue. Le Maître du Dao Rêve Bleu se mordit la langue et cracha du sang. Ce sang fusionna avec la corde avant de s'élancer au loin.
 
 À l'extérieur de la Formation de Scellement du Domaine, le monde adjacent au palais noir trembla. Neuf pétales apparurent aux côtés de l'épée de cristal, formant une tempête monstrueuse!
 
-Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Dao Maître Blue Dream, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
+Simultanément, une lumière bleue jaillit violemment et un fragment de corde apparut. Cette corde, imprégnée du sang du Maître du Dao Rêve Bleu, de sa culture et liée à son esprit, contenait de puissantes Flammes Joss.
 
 Dans la partie extrême occidentale de l'Ancien Système Stellaire, le monde revêtait une teinte blanchâtre. Tout cultivateur s'y aventurant ressentait un froid glacial envahir son esprit. Même en activant leur culture, ils risquaient d'être gelés!
 

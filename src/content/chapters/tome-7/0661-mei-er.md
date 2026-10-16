@@ -24,11 +24,11 @@ Après un court moment de vol, Wang Lin fronça les sourcils. Les quatre étaien
 
 Wang Lin demanda calmement: « Quelles autres planètes de culture se trouvent aux alentours de la planète Ran Yun? »
 
-Sun Xueshan, qui observait secrètement la boussole stellaire sous les pieds de Wang Lin avec une admiration non dissimulée, répondit promptement: « La planète Ran Yun est affiliée à la planète Thousand Illusion, l'une des cinq planètes majeures du domaine Nord. Il existe également de nombreuses autres planètes sous l'influence de Thousand Illusion. » Il s'étonna un instant que Wang Lin ne le sache pas, mais se rassura en se disant qu'il y avait une multitude de planètes dans le système stellaire de Luotian.
+Sun Xueshan, qui observait secrètement la boussole stellaire sous les pieds de Wang Lin avec une admiration non dissimulée, répondit promptement: « La planète Ran Yun est affiliée à la planète Mille Illusions, l'une des cinq planètes majeures du domaine Nord. Il existe également de nombreuses autres planètes sous l'influence de Mille Illusions. » Il s'étonna un instant que Wang Lin ne le sache pas, mais se rassura en se disant qu'il y avait une multitude de planètes dans le système stellaire de Luotian.
 
 L'expression de Wang Lin resta de marbre, mais son cœur tressaillit.
 
-« La planète Thousand Illusion... Thousand Illusion... Ce nom me semble très familier. Autrefois, Zhuque Zi avait une disciple nommée Liu Mei, qui pratiquait la culture au sein du domaine Impitoyable de Thousand Illusion. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
+« La planète Mille Illusions... Mille Illusions... Ce nom me semble très familier. Autrefois, Zhuque Zi avait une disciple nommée Liu Mei, qui pratiquait la culture au sein du domaine Impitoyable de Mille Illusions. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
 
 « Le domaine Nord. Il semble que le système stellaire de Luotian soit divisé en quatre domaines: Est, Ouest, Nord et Sud. Je me trouve donc actuellement dans le domaine Nord. »
 
@@ -40,7 +40,7 @@ Wang Lin répondit calmement: « Xu Mu. » Ignorant quand l'Omniscient et ses co
 
 « Un nom de famille Xu... » Les yeux de Ran Yue vacillèrent et son esprit fut troublé. Elle sentit que l'identité de Wang Lin devenait encore plus mystérieuse.
 
-« Le clan Xu est la plus grande famille de la planète Thousand Illusion. La famille Xu est comme un arbre géant. Se pourrait-il qu'il soit issu de cette lignée... » Si elle n'avait pas déjà pressenti l'identité de Wang Lin, le fait qu'il se nomme Xu n'aurait pas eu de grand impact. Cependant, les révélations précédentes l'avaient tant bouleversée que son imagination s'emballait désormais sans retenue.
+« Le clan Xu est la plus grande famille de la planète Mille Illusions. La famille Xu est comme un arbre géant. Se pourrait-il qu'il soit issu de cette lignée... » Si elle n'avait pas déjà pressenti l'identité de Wang Lin, le fait qu'il se nomme Xu n'aurait pas eu de grand impact. Cependant, les révélations précédentes l'avaient tant bouleversée que son imagination s'emballait désormais sans retenue.
 
 En entendant Wang Lin se présenter sous le nom de Xu Mu, les pupilles de Sun Xueshan se rétractèrent également, et son respect redoubla.
 
@@ -116,7 +116,7 @@ Le vieil homme détourna les yeux. La femme devant lui était une rencontre fort
 
 Le domaine impitoyable n'était pas l'apanage d'un seul système stellaire, et il existait de multiples méthodes pour le cultiver. La clé résidait dans la compréhension du cœur. S'il était rare qu'un individu atteigne seul le stade des Mille Illusions, cela n'était pas en soi exceptionnel. Ce qui l'avait poussé à l'accepter comme disciple, c'était ce signe ténu de son évolution vers le stade des Dix Mille Illusions.
 
-Il était le Grand Ancien de la famille Huan sur la planète Thousand Illusion, la planète principale du domaine Nord du système stellaire de Luotian. Il avait vu passer de nombreux jeunes de sa lignée et, à l'exception de quelques rares élus, aucun n'égalait son talent. Même parmi ces privilégiés, leur potentiel restait bien inférieur au sien.
+Il était le Grand Ancien de la famille Huan sur la planète Mille Illusions, la planète principale du domaine Nord du système stellaire de Luotian. Il avait vu passer de nombreux jeunes de sa lignée et, à l'exception de quelques rares élus, aucun n'égalait son talent. Même parmi ces privilégiés, leur potentiel restait bien inférieur au sien.
 
 C'est pour cette raison qu'il avait pris la décision immédiate de faire d'elle sa disciple!
 

@@ -104,7 +104,7 @@ Alors que Wang Lin parlait, un monde apparut dans ses yeux et se mit soudainemen
 
 À cet instant, le monde extérieur gronda et commença à s'inverser!
 
-« Sort d'Inversion du Ciel du Maître du Dao Blue Dream! » L'expression de Maître Simo se fit grave et il agita sa main droite. Pour la première fois, il sortit un trésor: un drapeau de cent pieds apparut à ses côtés!
+« Sort d'Inversion du Ciel du Maître du Dao Rêve Bleu! » L'expression de Maître Simo se fit grave et il agita sa main droite. Pour la première fois, il sortit un trésor: un drapeau de cent pieds apparut à ses côtés!
 
 D'innombrables restrictions y étaient inscrites. Elles s'activèrent toutes simultanément, dégageant le pouvoir du temps!
 
@@ -114,7 +114,7 @@ Le drapeau de cent pieds s'ouvrit et la Restriction Temporelle s'en échappa. De
 
 À cet instant, le monde fut renversé. Le ciel se retrouva sous vos pieds et la terre au-dessus de votre tête; une scène capable de terrifier n'importe qui! Les pupilles du Patriarche du Clan du Dragon Blindé se contractèrent violemment.
 
-« Cet homme possède le sort du Maître du Dao Blue Dream!! Humph, même ainsi, je suis certain qu'il périra face au sort de Maître Simo! »
+« Cet homme possède le sort du Maître du Dao Rêve Bleu!! Humph, même ainsi, je suis certain qu'il périra face au sort de Maître Simo! »
 
 Wang Lin laissa échapper un rugissement et abattit sa main. Le monde gronda et le ciel commença à s'écraser sur Maître Simo!
 

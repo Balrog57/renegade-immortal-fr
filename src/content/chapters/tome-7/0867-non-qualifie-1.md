@@ -44,7 +44,7 @@ Désigné, le cultivateur hésita un instant, mais cette hésitation poussa Luo 
 
 Cette main colossale fendit l'air avec la rapidité de la foudre et saisit le cultivateur en un instant. Elle le traîna sans pitié vers le bas avant de le projeter sur le côté.
 
-Le visage du cultivateur devint instantanément livide. Il n'était qu'au stade de l'Illusoire Yin et, après avoir été saisi par cette main démoniaque, il eut la sensation que de la glace s'insinuait dans son corps pour solidifier son énergie d'origine. Dès qu'il toucha le sol, il se précipita pour s'asseoir en position du lotus.
+Le visage du cultivateur devint instantanément livide. Il n'était qu'au stade de l'Yin Illusoire et, après avoir été saisi par cette main démoniaque, il eut la sensation que de la glace s'insinuait dans son corps pour solidifier son énergie d'origine. Dès qu'il toucha le sol, il se précipita pour s'asseoir en position du lotus.
 
 Luo Su laissa paraître son impatience. Il ne considérait pas cette compétition pour le titre céleste comme digne de son temps. S'il n'avait pas été personnellement sollicité par le Seigneur du Temple — ce qui signifiait qu'il ne pouvait refuser — il ne serait jamais venu agir en tant que juge pour la première épreuve. En outre, il y avait une autre raison à sa présence ici.
 

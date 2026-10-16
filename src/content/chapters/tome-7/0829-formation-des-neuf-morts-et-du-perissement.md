@@ -58,9 +58,9 @@ Deux heures plus tard, son visage était blême. D'un pas, il atteignit la surfa
 
 Une fois au sol, Wang Lin frappa son sac de stockage et le drapeau de l'âme apparut. D'un revers de main, le drapeau se transforma en une brume noire qui enveloppa la planète. À l'intérieur de cette brume se trouvait l'Ancêtre Sanguin, les yeux clos. D'innombrables sceaux l'entouraient, ainsi que les âmes sans nombre contenues dans le drapeau.
 
-Sans hésiter, Wang Lin saisit une âme d'origine Illusoire Yin. Après l'avoir écrasée, sa main gauche traça une restriction.
+Sans hésiter, Wang Lin saisit une âme d'origine Yin Illusoire. Après l'avoir écrasée, sa main gauche traça une restriction.
 
-L'âme d'origine Illusoire Yin trembla et laissa échapper un regard glacial et terrifiant. Wang Lin projeta l'âme d'origine qui disparut dans les profondeurs de la planète.
+L'âme d'origine Yin Illusoire trembla et laissa échapper un regard glacial et terrifiant. Wang Lin projeta l'âme d'origine qui disparut dans les profondeurs de la planète.
 
 Wang Lin respirait avec difficulté. Avant que Li Yuan ne parte, il avait enseigné à Wang Lin toutes les restrictions de l'Annihilation. Bien qu'il n'en possédât pas l'héritage complet — ce qui limitait son usage et leur puissance — certaines restaient utilisables!
 
@@ -128,9 +128,9 @@ Au milieu des craquements tonitruants, une cage de foudre se forma dans cette zo
 
 Tout cela se produisit en un instant; c'était d'une rapidité inconcevable. Lorsque les cultivateurs s'en rendirent compte, la prison était déjà formée!
 
-Simultanément, l'un des fragments émit les fluctuations d'un cultivateur Illusoire Yin avant de s'effondrer brusquement.
+Simultanément, l'un des fragments émit les fluctuations d'un cultivateur Yin Illusoire avant de s'effondrer brusquement.
 
-Cela provoqua une explosion aussi puissante que celle d'un cultivateur Illusoire Yin. L'impact blessa gravement tous ceux dont la culture était inférieure au stade Illusoire Yin. Deux personnes crachèrent instantanément du sang, les yeux éteints.
+Cela provoqua une explosion aussi puissante que celle d'un cultivateur Yin Illusoire. L'impact blessa gravement tous ceux dont la culture était inférieure au stade Yin Illusoire. Deux personnes crachèrent instantanément du sang, les yeux éteints.
 
 L'explosion de ce fragment servit de signal, car les autres fragments explosèrent les uns après les autres. Finalement, la puissance combinée des explosions déferla sur la zone.
 
@@ -150,7 +150,7 @@ Cette voix émanait du seul fragment qui ne s'était pas encore effondré. Dès 
 
 Chaque cultivateur touché par cette onde fut instantanément tué, à moins que sa culture ne soit extrêmement puissante.
 
-Les yeux d'un cultivateur Illusoire Yin issu d'une famille du Domaine Nord furent remplis de terreur. Il était extrêmement proche de l'Ancêtre Sanguin et, dès que celui-ci s'effondra, l'onde le frappa de plein fouet. Il laissa échapper un gémissement misérable avant que son corps ne s'écroule. Même son âme d'origine ne put s'échapper et se dissipa.
+Les yeux d'un cultivateur Yin Illusoire issu d'une famille du Domaine Nord furent remplis de terreur. Il était extrêmement proche de l'Ancêtre Sanguin et, dès que celui-ci s'effondra, l'onde le frappa de plein fouet. Il laissa échapper un gémissement misérable avant que son corps ne s'écroule. Même son âme d'origine ne put s'échapper et se dissipa.
 
 Un autre cultivateur du Domaine Sud tentait de s'échapper, mais son corps se raidit instantanément lorsque l'onde le toucha. Il explosa aussitôt en une brume de sang.
 

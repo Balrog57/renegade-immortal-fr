@@ -60,7 +60,7 @@ En voyant son image aux cheveux blancs et à la robe blanche, son corps trembla.
 
 « Une chose était très étrange. J'avais émis des hypothèses à ce sujet... À propos de ma Perle Défiante du Ciel. Comment le Souverain Céleste aux Sept Couleurs a-t-il pu dérober la Perle Défiante du Ciel au Grand Empereur Dao Yi et à mon Maître sans attirer leur attention... »
 
-« Pourquoi est-ce que, dans le monde de la grotte, Blue Dream et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Astral Immortel, même à présent, personne ne l'a remarqué... »
+« Pourquoi est-ce que, dans le monde de la grotte, Rêve Bleu et les autres, y compris le Daoïste aux Sept Couleurs, pouvaient voir que je possédais la Perle Défiante du Ciel... alors que sur le Continent Astral Immortel, même à présent, personne ne l'a remarqué... »
 
 « Pourquoi mon propre Maître, Xuan Luo, n'a-t-il rien vu lorsqu'il s'est rendu dans le monde de la grotte? Peut-être l'avait-il décelée sans pour autant parler? »
 

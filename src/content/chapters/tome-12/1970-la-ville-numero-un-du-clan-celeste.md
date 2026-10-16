@@ -34,7 +34,7 @@ Derrière eux, à la Secte Purple Yang, se tenaient Gu Ya et deux petites filles
 
 Gu Ya soupira et dit: « Cela devrait... être possible... Je lui ai déjà donné le jade. S'il fait face à un danger dans le Continent Central, vous le saurez immédiatement. »
 
-« C'est notre accord avec lui. Le cas échéant, le Grand Empyre Gemini devra aller à son aide. »
+« C'est notre accord avec lui. Le cas échéant, le Grand Empyréen Gemini devra aller à son aide. »
 
 « Oui, c'est certain. Puisque le petit Wang Lin nous a choisis, nous ne laisserons personne l'intimider! » Wa Wa regarda Han Han, et les deux fillettes hochèrent la tête avec sérieux.
 
@@ -46,7 +46,7 @@ Même les capitales royales des trente-six anciens pays ne pouvaient rivaliser a
 
 Dans la Cité Ancestrale, il n'existait qu'une seule secte: celle dont était issu l'Enseignant Impérial. Elle s'était enracinée et fusionnée avec le lignage de l'Ancêtre Céleste. Ils souffraient ensemble et partageaient leur gloire!
 
-La secte était dirigée par les Empereurs Célestes. Chaque génération d'Empereur Céleste gagnait la loyauté de la secte. Une fois que leur lignage s'éveillait et qu'ils héritaient du titre de Grand Empyre des Huit Extrêmes, ils pouvaient changer le nom de la secte.
+La secte était dirigée par les Empereurs Célestes. Chaque génération d'Empereur Céleste gagnait la loyauté de la secte. Une fois que leur lignage s'éveillait et qu'ils héritaient du titre de Grand Empyréen des Huit Extrêmes, ils pouvaient changer le nom de la secte.
 
 L'Empereur Céleste de cette génération, Lian Daozhen, avait renommé cette mystérieuse secte: la Secte du Dao! Le maître de cette génération était l'actuel Enseignant Impérial, Shang Daoxuan!
 
@@ -72,11 +72,11 @@ En outre, il existait une puissance transcendante capable de rivaliser avec le p
 
 Le Mont Empereur!
 
-Une montagne, un homme, un Grand Empyre Jiu Dai; ensemble, ils faisaient en sorte que la Cité Ancestrale entière, le palais et des millions de montagnes semblent étouffer sous leur présence.
+Une montagne, un homme, un Grand Empyréen Jiu Dai; ensemble, ils faisaient en sorte que la Cité Ancestrale entière, le palais et des millions de montagnes semblent étouffer sous leur présence.
 
 Concernant la mystérieuse Secte du Dao, beaucoup supposaient que sa raison d'être était de contenir le Mont Empereur, qui semblait lui-même opprimer le pouvoir impérial!
 
-C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyres pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Purple Yang, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyre Gemini avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
+C'était une structure de pouvoir interne à la Cité Ancestrale que peu de gens ignoraient; seuls les Grands Empyréens pouvaient en percevoir clairement les rouages. Après avoir passé un an dans la Secte Purple Yang, Wang Lin souhaitait se rendre à la Cité Ancestrale. Le Grand Empyréen Gemini avait utilisé le sort de fusion d'âmes pour extraire ses souvenirs de la cité afin de les transmettre à Wang Lin.
 
 Les cinq grands continents du clan céleste étaient divisés en 72 continents plus petits. Les quatre saisons y étaient également légèrement différentes. Il faudrait plusieurs mois pour que les vents glaciaux et la neige qui balayaient le Continent Oriental recouvrent le Continent Central.
 
@@ -110,7 +110,7 @@ C'était avec de telles pensées qu'il était venu.
 
 Le vent cinglait son corps et la neige barrait sa route. Au crépuscule de ce jour, Wang Lin arriva devant la porte orientale. Comparé à cette cité orgueilleuse, il n'était qu'une minuscule fourmi.
 
-Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'était la Cité Ancestrale, avec ses deux Grands Empyres et la mystérieuse Secte du Dao. Même Xuan Luo n'oserait s'y aventurer sans raison; seuls des êtres comme Guo Dao en auraient le courage.
+Contrairement aux cités mortelles, il n'y avait aucune garde à la porte. C'était la Cité Ancestrale, avec ses deux Grands Empyréens et la mystérieuse Secte du Dao. Même Xuan Luo n'oserait s'y aventurer sans raison; seuls des êtres comme Guo Dao en auraient le courage.
 
 Au crépuscule, le ciel était gris. Tandis que le vent et la neige soufflaient, Wang Lin franchit la porte orientale. Son pied toucha le sol à l'intérieur de la Cité Ancestrale.
 

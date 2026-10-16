@@ -34,7 +34,7 @@ Cette méthode cruelle consistant à partager le poids de la malédiction ancest
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
-Seule la Grand Empyrée Gemini ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'inverser la faiblesse causée par l'incident lors de leur réincarnation.
+Seule la Grand Empyréen Gemini ne fut pas affectée par la malédiction, car elle n'était pas avide. Les deux fillettes se mirent en cultivation isolée dès leur retour afin de fusionner avec les yeux de l'Ancêtre Céleste. Une fois sorties de leur retraite, elles seraient capables d'inverser la faiblesse causée par l'incident lors de leur réincarnation.
 
 Le clan céleste comptait encore cinq Grands Empyréens, mais le cinquième dormait simplement dans l'espace sous le palais. Il s'était transformé en une montagne dorée pour réprimer les 72 esprits des 72 continents.
 

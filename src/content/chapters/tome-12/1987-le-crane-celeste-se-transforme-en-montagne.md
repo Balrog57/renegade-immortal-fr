@@ -66,9 +66,9 @@ Il recula brusquement, mais sous l'effet de la lumière dorée, ses cheveux chan
 
 Cette puissance contraignait Wang Lin à abandonner sa forme de massacre et de destruction pour retrouver sa forme aux cheveux blancs! Bien que ses cheveux ne soient plus noirs, il était toujours repoussé par la lumière dorée. L'onde de choc le fit cracher du sang et contracter ses pupilles. Il fixa les chaînes entourant le fou, les yeux écarquillés par le choc!
 
-« Ceci... est-ce là le pouvoir de la lignée de l'Ancêtre Céleste?! L'Empereur Céleste a-t-il choisi l'Ascendant Empyrean Ming Dao, ou son petit frère, Dao Fei?! » Tandis que Wang Lin reculait, l'Enseignant Impérial pointa l'Ascendant Empyrean Ming Dao du doigt, ce qui projeta le corps de Ming Dao en arrière.
+« Ceci... est-ce là le pouvoir de la lignée de l'Ancêtre Céleste?! L'Empereur Céleste a-t-il choisi l'Ascendant Empyréen Ming Dao, ou son petit frère, Dao Fei?! » Tandis que Wang Lin reculait, l'Enseignant Impérial pointa l'Ascendant Empyréen Ming Dao du doigt, ce qui projeta le corps de Ming Dao en arrière.
 
-Cependant, l'Ascendant Empyrean Ming Dao, en retrait, poussa un rugissement et sa peau commença à se décomposer rapidement. De nombreuses plaies apparurent sur son corps, et une lumière dorée jaillissait de ces blessures en même temps qu'elles pourrissaient.
+Cependant, l'Ascendant Empyréen Ming Dao, en retrait, poussa un rugissement et sa peau commença à se décomposer rapidement. De nombreuses plaies apparurent sur son corps, et une lumière dorée jaillissait de ces blessures en même temps qu'elles pourrissaient.
 
 Cela enveloppa son corps d'une lueur dorée non moins puissante que celle qui avait blanchi les cheveux de Wang Lin!
 
@@ -80,7 +80,7 @@ Le corps de Ming Dao était baigné de lumière dorée, mais la décomposition n
 
 Il n'utilisa aucun sort en s'approchant. La lumière dorée émanant de son corps était le sort et le trésor les plus redoutables. Wang Lin eut l'impression qu'un soleil entier se précipitait vers lui pour l'anéantir!
 
-L'expression de Wang Lin changea et il recula tout en activant son armure spirituelle. Il utilisait désormais toute sa puissance. *Sundered Night* apparut dans sa main gauche et *Ancient Dao No Celestials* dans sa droite!
+L'expression de Wang Lin changea et il recula tout en activant son armure spirituelle. Il utilisait désormais toute sa puissance. *Nuit Brisée* apparut dans sa main gauche et *Ancient Dao No Celestials* dans sa droite!
 
 Ce furent ses deux sorts les plus puissants qu'il utilisa pour bombarder Ming Dao!
 
@@ -90,7 +90,7 @@ Alors qu'un grondement retentissait, avant même que Wang Lin ne puisse en voir 
 
 « Shang Xuandao, oses-tu trahir cet Empereur?! »
 
-La paume dorée contenait la force destructrice d'un Grand Empyrée. Dès son apparition, elle absorba immédiatement la lumière dorée de Ming Dao et du fou. Lorsque toute cette puissance convergea, le palais entier fut secoué!
+La paume dorée contenait la force destructrice d'un Grand Empyréen. Dès son apparition, elle absorba immédiatement la lumière dorée de Ming Dao et du fou. Lorsque toute cette puissance convergea, le palais entier fut secoué!
 
 Le visage de l'Enseignant Impérial devint instantanément livide. Alors que la paume se refermait, il hurla:
 

@@ -62,7 +62,7 @@ Un tumulte empreint d'un choc sans précédent s'éleva.
 
 Au-delà d'eux, même le vieil Oiseau Vermillon écarquilla les yeux. Il n'avait pas pour intention que Wang Lin l'emporte contre Maître Simo. Tant qu'ils atteignaient une égalité grâce à son aide secrète, cela aurait suffi pour que Wang Lin démontre sa puissance!
 
-Être capable de tenir tête à un cultivateur du troisième niveau tout en étant au deuxième niveau suffisait à ébranler tout le Système Stellaire Ancien. Même si cela impliquait son soutien occulte et qu'il dissuadait Maître Simo d'utiliser ses techniques mortelles, la réalité demeurait immuable!
+Être capable de tenir tête à un cultivateur du troisième niveau tout en étant au deuxième niveau suffisait à ébranler tout le Système Stellaire Antique. Même si cela impliquait son soutien occulte et qu'il dissuadait Maître Simo d'utiliser ses techniques mortelles, la réalité demeurait immuable!
 
 Cependant, Wang Lin s'apprêtait à affiner Maître Simo. Cette perspective fit suffoquer le vieil Oiseau Vermillon.
 

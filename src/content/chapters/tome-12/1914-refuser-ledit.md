@@ -68,15 +68,15 @@ Cette douleur était telle que même son corps physique puissant et sa culture d
 
 Au son de cette voix, le dragon de mer lutta pour ouvrir les yeux, aveuglé par le soleil levant. Il vit Wang Lin émerger de la lumière, puis sombra soudainement dans une transe.
 
-« Grand Empyrée... » Aux yeux du dragon, le soleil derrière Wang Lin était véritablement un astre. Le dixième soleil du Continent Astral Immortel!
+« Grand Empyréen... » Aux yeux du dragon, le soleil derrière Wang Lin était véritablement un astre. Le dixième soleil du Continent Astral Immortel!
 
-Cette silhouette sous l'astre, cette puissance de foi colossale... c'était un Grand Empyrée!
+Cette silhouette sous l'astre, cette puissance de foi colossale... c'était un Grand Empyréen!
 
-Le propriétaire du dragon, l'Ancien Ancêtre de la Secte du Dao Démoniaque, n'était qu'un Exalté Empyrean; or, à cet instant, Wang Lin apparaissait comme un Grand Empyrée aux yeux de la bête. Le dragon sombra dans une transe; il aurait refusé de céder, même face à la mort, par pur orgueil. Mais en cet instant, il trembla et se prosterna sans hésitation.
+Le propriétaire du dragon, l'Ancien Ancêtre de la Secte du Dao Démoniaque, n'était qu'un Exalté Empyréen; or, à cet instant, Wang Lin apparaissait comme un Grand Empyréen aux yeux de la bête. Le dragon sombra dans une transe; il aurait refusé de céder, même face à la mort, par pur orgueil. Mais en cet instant, il trembla et se prosterna sans hésitation.
 
 « Je me rends! » Dès que ce commandement fut ancré dans son esprit, le sceau de son ancien maître s'effondra instantanément. Une bête au stade d'Exalté Doré ne pouvait être contrôlée par des moyens ordinaires; il fallait une aura immense pour la soumettre.
 
-Hormis les Grands Empyrées, nul ne pouvait asservir une telle créature céleste; on ne pouvait maintenir qu'une relation d'égalité. C'était le cas entre le dragon et son ancien maître.
+Hormis les Grands Empyréens, nul ne pouvait asservir une telle créature céleste; on ne pouvait maintenir qu'une relation d'égalité. C'était le cas entre le dragon et son ancien maître.
 
 Mais au moment de sa reddition, une aura d'âme verte jaillit de la tête du dragon. Wang Lin la saisit de la main.
 
@@ -106,7 +106,7 @@ La barrière renforcée par le maître de la Secte ne dura qu'un instant avant d
 
 Wang Lin le fixa froidement et chargea sans hésiter pour asséner un autre coup. Le maître de la Secte, agissant comme un fou, tenta de reculer en formant des sceaux, mais son corps trembla et il cracha du sang. Gravement blessé, il fut violemment repoussé.
 
-« Wang Lin, oses-tu me tuer?! L'Ancien Ancêtre de ma secte est un cultivateur Exalté Empyrean! Si tu me tues, ta mort sera atroce! »
+« Wang Lin, oses-tu me tuer?! L'Ancien Ancêtre de ma secte est un cultivateur Exalté Empyréen! Si tu me tues, ta mort sera atroce! »
 
 Wang Lin ne répondit rien. Il avança, prêt à porter un nouveau coup!
 

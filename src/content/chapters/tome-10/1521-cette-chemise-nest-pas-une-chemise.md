@@ -58,7 +58,7 @@ Cette rumeur ne mentionnait qu'une seule personne!
 
 Un éclair de froideur traversa les yeux de Maître Hong Shan alors qu'il chargeait l'Estimé Nan Zhao. Il allait tuer! À cet instant, parmi la seconde vague de cultivateurs du Royaume Extérieur, l'expression des deux cultivateurs de la troisième étape changea radicalement. Ils serrèrent les dents et chargèrent Maître Hong Shan!
 
-Maître Enlighten East reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Lin, Ling Dong et à la Hache Brisant le Ciel pour charger Maître Hong Shan!
+Maître Enlighten East reconnut également cette personne issue des rumeurs terrifiantes, et son visage se décomposa. Il cessa de prêter attention à Zhou Lin, Ling Dong et à la Hache Brise-Ciel pour charger Maître Hong Shan!
 
 Trois cultivateurs de la troisième étape!
 
@@ -82,11 +82,11 @@ Wang Lin envoya immédiatement un message tout en reculant pour se soigner. Ling
 
 Le Grand Maître Yun Luo se trouvait dans le Royaume Extérieur, encerclée par plus de 100 000 cultivateurs. Ses pupilles se rétractèrent. Elle ne s'attendait pas à ce que l'accident de la Formation de Scellement du Royaume cause de telles pertes dès leur entrée!
 
-La Hache Brisant le Ciel était le problème majeur. Désormais sans obstacle, elle fauchait les cultivateurs. Sa trajectoire était visible de loin, et à chaque coup, 5 000 cultivateurs mouraient misérablement!
+La Hache Brise-Ciel était le problème majeur. Désormais sans obstacle, elle fauchait les cultivateurs. Sa trajectoire était visible de loin, et à chaque coup, 5 000 cultivateurs mouraient misérablement!
 
 Le Grand Maître Yun Luo leva la main, pointa la hache et dit doucement: « En si peu de temps, mon Royaume Extérieur a déjà sacrifié près de 20 000 cultivateurs... »
 
-« Palais du Châtiment Céleste, Clan des Épées, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais du Châtiment Céleste levèrent tous les yeux. Ils chargèrent la Hache Brisant le Ciel sans l'ombre d'une hésitation!
+« Palais du Châtiment Céleste, Clan des Épées, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais du Châtiment Céleste levèrent tous les yeux. Ils chargèrent la Hache Brise-Ciel sans l'ombre d'une hésitation!
 
 Alors que la hache retombait une fois de plus, près d'un millier de cultivateurs apparurent silencieusement. Ils exécutèrent tous le même mouvement et une épée fantomatique noire sembla se matérialiser alors qu'ils s'élançaient en avant!
 

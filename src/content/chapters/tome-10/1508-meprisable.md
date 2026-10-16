@@ -42,7 +42,7 @@ Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le
 
 Il agita la main droite et le troisième jade disparut.
 
-« Maître de la Secte Heaven Breaking, viens voir ce vieil homme et je te donnerai la mort. Si tu ne viens pas, la Secte Heaven Breaking sera anéanti! »
+« Maître de la Secte Brise-Ciel, viens voir ce vieil homme et je te donnerai la mort. Si tu ne viens pas, la Secte Brise-Ciel sera anéanti! »
 
 Le quatrième jade fusionna avec l'univers.
 

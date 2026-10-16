@@ -66,7 +66,7 @@ Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de
 
 « Raffine! » ordonna Wang Lin, tandis que le feu virait au bleu. Sous cette chaleur intense, les Pilules d'Effondrement du Dragon commencèrent à éclater et à fondre.
 
-« Sortilège Dao, Fusion! Que tout dans ce monde — sorts, trésors, puissance, lois — fusionne pour moi! » Le sortilège de Dao du Maître Dao Blue Dream était extrêmement puissant et s'avérait d'une aide précieuse pour Wang Lin.
+« Sortilège Dao, Fusion! Que tout dans ce monde — sorts, trésors, puissance, lois — fusionne pour moi! » Le sortilège de Dao du Maître Maître du Dao Rêve Bleu était extrêmement puissant et s'avérait d'une aide précieuse pour Wang Lin.
 
 À cet instant, grâce au feu et au sortilège, les 10 000 pilules commençaient à être assimilées. La température des flammes ne cessait de croître.
 

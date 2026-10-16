@@ -80,11 +80,11 @@ Au même moment, la septième concubine était livide. Elle tituba en arrière, 
 
 « Wang Lin, je vais te tuer!! »
 
-Le Maître Dao Miao Yin et le Maître Démon Nine Heaven fonçaient à travers le système stellaire. Leur haine pour Wang Lin n'était en rien inférieure à celle du Souverain ou de la septième concubine. Bien qu'ils fussent blessés, cela n'émoussait en rien leur intention meurtrière. À cet instant, ils convergeaient vers Wang Lin, qu'ils avaient verrouillé comme cible!
+Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux fonçaient à travers le système stellaire. Leur haine pour Wang Lin n'était en rien inférieure à celle du Souverain ou de la septième concubine. Bien qu'ils fussent blessés, cela n'émoussait en rien leur intention meurtrière. À cet instant, ils convergeaient vers Wang Lin, qu'ils avaient verrouillé comme cible!
 
 « Avec tant de gens qui te traquent, je ne crois pas que tu puisses ressortir vivant! » sourit le Maître Dao Miao Yin.
 
-« Ce vieil homme va extraire un fragment de ton âme pour alimenter la Lanterne Céleste pendant dix mille ans. Ce n'est qu'en écoutant tes souffrances durant dix mille ans que ma haine pourra s'éteindre! » La haine brûlait dans les yeux du Maître Démon Nine Heaven.
+« Ce vieil homme va extraire un fragment de ton âme pour alimenter la Lanterne Céleste pendant dix mille ans. Ce n'est qu'en écoutant tes souffrances durant dix mille ans que ma haine pourra s'éteindre! » La haine brûlait dans les yeux du Maître Démon Neuf Cieux.
 
 Wang Lin banda effectivement l'arc une seconde fois. C'était la première fois qu'il le faisait deux fois de suite. Cette fois, son front était couvert de sueur. La goutte de sang céleste doré entre ses sourcils s'estompait rapidement alors qu'il tendait l'arc jusqu'à sa pleine extension. La flèche qui avait été tirée dans le Royaume Céleste Antique était réapparue sur la corde!
 
@@ -110,9 +110,9 @@ Les bruits semblaient s'éloigner de plus en plus. Wang Lin ne pouvait mesurer l
 
 Le Royaume Céleste Antique de l'Extérieur et celui de l'Intérieur étaient connectés de manière mystérieuse. Les quatre généraux affichaient des expressions solennelles, teintées d'une pointe de terreur, en observant le ciel tourmenté devant eux. Le ciel agissait comme un miroir, révélant une scène floue mais terrifiante de ce qui se passait dans le Royaume de l'Extérieur!
 
-« Cet enfant... cet enfant... il vaut mieux ne pas s'attirer ses foudres... » Après un long silence, le général Azure Dragon prit une profonde inspiration, l'effroi brillant dans ses yeux.
+« Cet enfant... cet enfant... il vaut mieux ne pas s'attirer ses foudres... » Après un long silence, le général Dragon Azure prit une profonde inspiration, l'effroi brillant dans ses yeux.
 
-Le général Black Tortoise médita silencieusement un instant avant de déclarer: « Il n'a certainement pas que deux flèches en réserve. Il n'est pas stupide et son esprit est aussi rusé qu'un démon. Comment laisserait-il les autres découvrir ses limites si facilement? Je parie qu'il en a au moins trois autres! »
+Le général Tortue Noire médita silencieusement un instant avant de déclarer: « Il n'a certainement pas que deux flèches en réserve. Il n'est pas stupide et son esprit est aussi rusé qu'un démon. Comment laisserait-il les autres découvrir ses limites si facilement? Je parie qu'il en a au moins trois autres! »
 
 Les quatre se regardèrent et acquiescèrent d'un signe de tête.
 

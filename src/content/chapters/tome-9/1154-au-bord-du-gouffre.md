@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1154 - On the Verge
 slug: au-bord-du-gouffre
 ---
-« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité »! En tant qu'Ancien de la Secte Clear Flower, il avait atteint le stade initial de Briseur du Nirvana.
+« Noble Money » pouvait sembler un nom très vulgaire, mais dans la région de rang 6, il était synonyme d'« implacabilité »! En tant qu'Ancien de la Secte Qing Hua, il avait atteint le stade initial de Briseur du Nirvana.
 
 Il possédait des sorts terrifiants et, de par sa personnalité, si vous le provoquiez sans disposer d'un niveau de culture puissant ou d'une secte solide pour vous protéger, la seule issue était la mort.
 
@@ -14,49 +14,49 @@ Il y a plus de 1 000 ans, une petite secte de la région de rang 6 avait osé tu
 
 Cette bataille l'avait rendu célèbre, et chaque secte de la région de rang 6 avait appris son nom.
 
-À cet instant, son expression était sombre alors qu'il siégeait sur la tête d'un python à la crinière de dragon. Tandis que la bête spirituelle traversait la région de rang 5, les disciples de la Secte Clear Flower le suivaient.
+À cet instant, son expression était sombre alors qu'il siégeait sur la tête d'un python à la crinière de dragon. Tandis que la bête spirituelle traversait la région de rang 5, les disciples de la Secte Qing Hua le suivaient.
 
-« Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Money songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte Clear Flower avait accidentellement découvert des indices liés à la légendaire Pilule du Nirvana Vide ainsi qu'un jade révélant comment devenir un disciple central de la Secte Heaven Breaking.
+« Je ne pensais pas que cette piste soit vraie! » Chaque fois que Noble Money songeait à cette affaire, son cœur s'emballait. Il y a plusieurs mois, la Secte Qing Hua avait accidentellement découvert des indices liés à la légendaire Pilule du Nirvana Vide ainsi qu'un jade révélant comment devenir un disciple central de la Secte Brise-Ciel.
 
 En tant que cultivateur natif de la Mer de Nuages, Noble Money connaissait évidemment l'événement cataclysmique qui s'était produit il y a 18 000 ans dans cette région.
 
-Il y a 18 000 ans, dans la Mer de Nuages, la Secte Heaven Breaking était une puissance de rang 8 prête à intégrer la mighty région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Heaven Breaking avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Fléau des Cieux. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
+Il y a 18 000 ans, dans la Mer de Nuages, la Secte Brise-Ciel était une puissance de rang 8 prête à intégrer la mighty région de rang 9. Deux mois avant ce transfert, ils avaient découvert accidentellement une fissure spatiale, un lieu saturé de restrictions et de dangers. La Secte Brise-Ciel avait rassemblé une immense quantité de cultivateurs pour pénétrer dans la faille, y compris des Anciens au stade Fléau des Cieux. Ils s'étaient frayé un passage au prix d'innombrables pertes humaines.
 
 Finalement, ils avaient découvert un cadavre dans les profondeurs de la fissure spatiale.
 
-Trois objets reposaient aux côtés du corps: une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Heaven Breaking étaient entrés en transe et avaient quitté précipitamment la fissure pour regagner leur secte.
+Trois objets reposaient aux côtés du corps: une pilule, une épée brisée et un fragment d'os de bête. Après avoir récupéré ces trois trésors, les Anciens de la Secte Brise-Ciel étaient entrés en transe et avaient quitté précipitamment la fissure pour regagner leur secte.
 
-Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer de Nuages! Il était possible que la Secte Heaven Breaking supplante la Secte Divin de rang 9!
+Leur découverte était trop incroyable; elle pouvait ébranler tout le système stellaire de la Mer de Nuages! Il était possible que la Secte Brise-Ciel supplante la Secte Divin de rang 9!
 
 Cependant, un traître s'était glissé parmi eux et la nouvelle avait fuité. Ce qui les attendait fut l'hostilité de toute la région de rang 8. D'innombrables vieux monstres, d'ordinaire si discrets, avaient participé à cette bataille qui les avait poussés à bout, les yeux injectés de sang.
 
-Pourtant, la Secte Heaven Breaking, détenant le droit d'entrer dans la région de rang 9, avait la puissance nécessaire pour combattre toute la région de rang 8. Un bain de sang s'était ainsi déversé sur la région de rang 8.
+Pourtant, la Secte Brise-Ciel, détenant le droit d'entrer dans la région de rang 9, avait la puissance nécessaire pour combattre toute la région de rang 8. Un bain de sang s'était ainsi déversé sur la région de rang 8.
 
 La région de rang 7 fut affectée et envoya ses propres cultivateurs, tandis que la région de rang 6 fut entraînée dans le conflit. Même la région de rang 5 ne fut pas épargnée, déclenchant une catastrophe qui balaya toute la Mer de Nuages.
 
 Cet événement fut d'une violence extrême. Même 18 000 ans plus tard, Noble Money en tremblait encore à l'idée.
 
-Finalement, cela poussa la région de rang 9, qui n'intervenait presque jamais, à s'en mêler. Cette situation fut légèrement défavorable pour la Secte Heaven Breaking et, à ce moment-là, celle-ci se scinda!
+Finalement, cela poussa la région de rang 9, qui n'intervenait presque jamais, à s'en mêler. Cette situation fut légèrement défavorable pour la Secte Brise-Ciel et, à ce moment-là, celle-ci se scinda!
 
-Une grande partie des membres de la Secte Heaven Breaking ne souhaitait pas se battre pour ces trois objets. Ils échangèrent la pilule et l'épée brisée contre leur survie, tout en poursuivant leur trajectoire vers la région de rang 9.
+Une grande partie des membres de la Secte Brise-Ciel ne souhaitait pas se battre pour ces trois objets. Ils échangèrent la pilule et l'épée brisée contre leur survie, tout en poursuivant leur trajectoire vers la région de rang 9.
 
-Une petite faction de la Secte Heaven Breaking prit le fragment d'os de bête et entama une lutte à mort contre ceux qui tentaient de les voler, avant de disparaître dans les méandres de l'histoire.
+Une petite faction de la Secte Brise-Ciel prit le fragment d'os de bête et entama une lutte à mort contre ceux qui tentaient de les voler, avant de disparaître dans les méandres de l'histoire.
 
-Quant à l'os de bête contenant la recette de la pilule, il disparut sans laisser de trace. Certains pensaient qu'il avait été saisi par les cultivateurs de la région de rang 9, d'autres croyaient qu'il était dissimulé au sein de l'une des sectes de rang 8 ayant combattu la Secte Heaven Breaking.
+Quant à l'os de bête contenant la recette de la pilule, il disparut sans laisser de trace. Certains pensaient qu'il avait été saisi par les cultivateurs de la région de rang 9, d'autres croyaient qu'il était dissimulé au sein de l'une des sectes de rang 8 ayant combattu la Secte Brise-Ciel.
 
-L'affaire se termina ainsi, et la destination de l'os de bête resta un mystère... jusqu'à ce que, 18 000 ans plus tard, la Secte Clear Flower découvre une piste.
+L'affaire se termina ainsi, et la destination de l'os de bête resta un mystère... jusqu'à ce que, 18 000 ans plus tard, la Secte Qing Hua découvre une piste.
 
-Que cette piste fût vraie ou fausse, elle secoua toute la Secte Clear Flower. Ils verrouillèrent immédiatement l'information et exécutèrent même certains disciples qui en étaient informés.
+Que cette piste fût vraie ou fausse, elle secoua toute la Secte Qing Hua. Ils verrouillèrent immédiatement l'information et exécutèrent même certains disciples qui en étaient informés.
 
-L'enjeu était trop colossal. La moindre négligence pouvait mener à la destruction de leur secte; après tout, la leçon sanglante apprise par la Secte Heaven Breaking servait d'avertissement.
+L'enjeu était trop colossal. La moindre négligence pouvait mener à la destruction de leur secte; après tout, la leçon sanglante apprise par la Secte Brise-Ciel servait d'avertissement.
 
-Comparée à l'ancienne Secte Heaven Breaking, la Secte Clear Flower n'était qu'une fourmi. Ils n'avaient aucune légitimité pour détenir ce fragment d'os de bête. Bien que gourmands, ils n'avaient pas l'intention de le garder pour eux.
+Comparée à l'ancienne Secte Brise-Ciel, la Secte Qing Hua n'était qu'une fourmi. Ils n'avaient aucune légitimité pour détenir ce fragment d'os de bête. Bien que gourmands, ils n'avaient pas l'intention de le garder pour eux.
 
 Ils espéraient trouver le fragment pour l'offrir à une puissante secte de rang 8, en échange de bénéfices immenses et d'une protection à long terme. Ils comptaient également utiliser cela pour obtenir l'appui d'une telle secte afin de devenir les seigneurs de la région de rang 6.
 
-Cependant, tout dépendait de la véracité de cette piste! S'ils la livraient à une secte de rang 8 et qu'elle s'avérait fausse, la Secte Clear Flower ne pourrait pas assumer la colère d'un tel pouvoir. C'est pourquoi ils n'osaient pas remettre l'indice sans l'avoir vérifié eux-mêmes.
+Cependant, tout dépendait de la véracité de cette piste! S'ils la livraient à une secte de rang 8 et qu'elle s'avérait fausse, la Secte Qing Hua ne pourrait pas assumer la colère d'un tel pouvoir. C'est pourquoi ils n'osaient pas remettre l'indice sans l'avoir vérifié eux-mêmes.
 
-Mais pour vérifier, ils devaient empêcher toute rumeur de se propager afin que les autres sectes de rang 6 ne soupçonnent rien. De plus, cette piste menait à une secte de la région de rang 3; un mouvement massif de disciples de la Secte Clear Flower aurait attiré les regards.
+Mais pour vérifier, ils devaient empêcher toute rumeur de se propager afin que les autres sectes de rang 6 ne soupçonnent rien. De plus, cette piste menait à une secte de la région de rang 3; un mouvement massif de disciples de la Secte Qing Hua aurait attiré les regards.
 
 C'était là leur principale crainte. Finalement, ils choisirent leur disciple principal le plus fiable, Shi Luoxing, pour emmener secrètement 19 disciples vers la région de rang 3.
 
@@ -64,17 +64,17 @@ Le niveau de culture de Shi Luoxing n'étant pas le plus élevé de la région d
 
 Cependant, Shi Luoxing ne pensait pas que cette piste soit vraie! Il parvint pourtant à obtenir facilement le fragment d'os de bête et un jade.
 
-Mais alors qu'il regagnait la Secte Clear Flower, il fut poursuivi par la Secte des Cinq Poisons. Les autres sectes de la région de rang 6 furent également informées de l'affaire.
+Mais alors qu'il regagnait la Secte Qing Hua, il fut poursuivi par la Secte des Cinq Poisons. Les autres sectes de la région de rang 6 furent également informées de l'affaire.
 
 « Shi Luoxing, tiens bon! » L'énergie originelle de Noble Money fut injectée dans la bête spirituelle sous ses pieds. La créature accéléra encore davantage, perçant les couches de brouillard vers le continent sauvage.
 
-Il ne dirigeait que la première vague de renforts. Derrière lui, presque toute la Secte Clear Flower était en mouvement.
+Il ne dirigeait que la première vague de renforts. Derrière lui, presque toute la Secte Qing Hua était en mouvement.
 
 Alors qu'ils fendaient le brouillard stellaire, le regard de Noble Money se fit plus perçant lorsqu'il perçut un cultivateur dans le champ de son Sens Divin. Ce dernier montait sur un singe noir de mille pieds.
 
 Sur le chemin parcouru, ce cultivateur aux cheveux blancs n'était pas le premier qu'il croisait. Cependant, l'endroit n'étant pas loin du continent sauvage, Noble Money ne put s'empêcher d'être vigilant.
 
-Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Lui seul, mais aussi une dizaine de disciples de la Secte Clear Flower, fixaient le cultivateur.
+Tout en avançant, son regard resta verrouillé sur l'homme aux cheveux blancs. Lui seul, mais aussi une dizaine de disciples de la Secte Qing Hua, fixaient le cultivateur.
 
 Ces regards étaient si pesants que le visage de Wang Lin devint pâle. Un choc visible traversa son expression alors qu'il contemplait avec stupeur ces dix rayons de lumière. Il s'immobilisa en plein vol, comme s'il avait oublié comment planer. Il savait que sa culture était singulière et que les étrangers ne pouvaient pas la percer immédiatement; cela risquait d'attirer des soupçons inutiles. C'est pourquoi il maintenait constamment son énergie originelle au stade intermédiaire de Scruteur du Nirvana.
 

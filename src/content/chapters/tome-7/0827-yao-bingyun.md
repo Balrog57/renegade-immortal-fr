@@ -46,7 +46,7 @@ Au cours de ces dix jours, la nouvelle de l'apparition de Xu Mu se répandit com
 
 Cet incident provoqua un immense tumulte. Certains qui avaient presque oublié le nom de Xu Mu se remémorèrent soudainement toutes les rumeurs qui circulaient sur lui dans le Royaume Céleste du Tonnerre.
 
-Ce qui choqua davantage l'assistance fut que, parmi les vingt-huit membres, il y avait trois cultivateurs Corporel Yang, neuf Illusoire Yin et seize cultivateurs au sommet du stade d'Ascendant. Malgré cette force de frappe, Xu Mu avait pu les massacrer avec aisance. Même parmi les deux survivants, l'un d'eux, une fois rentré chez lui, annonça immédiatement que sa famille de culture et sa planète ne participeraient pas au conflit opposant Xu Mu à la famille Yao!
+Ce qui choqua davantage l'assistance fut que, parmi les vingt-huit membres, il y avait trois cultivateurs Corporel Yang, neuf Yin Illusoire et seize cultivateurs au sommet du stade d'Ascendant. Malgré cette force de frappe, Xu Mu avait pu les massacrer avec aisance. Même parmi les deux survivants, l'un d'eux, une fois rentré chez lui, annonça immédiatement que sa famille de culture et sa planète ne participeraient pas au conflit opposant Xu Mu à la famille Yao!
 
 L'autre était un cultivateur Corporel Yang. Il se trouvait dans un état bien pire, son âme originelle étant gravement endommagée. Dès son retour, il s'était enfermé en culture isolée, déclarant également qu'il ne s'impliquerait pas dans cette affaire!
 
@@ -86,7 +86,7 @@ Wang Lin trouva un bassin sur cette planète et, une fois assis, frappa sa sacoc
 
 Wang Lin savait que le temps pressait. Il devait guérir rapidement pour retrouver son apogée, car c'était la seule condition pour survivre.
 
-Tout en cultivant, Wang Lin leva sa main droite vers la brume noire. Une âme originelle Illusoire Yin fut instantanément capturée. Avant que l'âme ne puisse supplier la clémence, Wang Lin la broya et dévora son énergie originelle.
+Tout en cultivant, Wang Lin leva sa main droite vers la brume noire. Une âme originelle Yin Illusoire fut instantanément capturée. Avant que l'âme ne puisse supplier la clémence, Wang Lin la broya et dévora son énergie originelle.
 
 Un instant plus tard, ses yeux brillèrent alors qu'il saisissait une autre âme pour la dévorer à son tour.
 

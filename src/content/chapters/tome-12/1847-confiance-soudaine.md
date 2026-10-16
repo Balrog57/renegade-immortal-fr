@@ -8,13 +8,13 @@ slug: confiance-soudaine
 ---
 Chapitre 1847 - Confiance soudaine!
 
-Leurs regards se croisèrent à cet instant, et l'esprit de Wang Lin fut secoué. Il emmena White Tiger et sa compagnie dans le sixième étage et chargea vers le septième. Son visage était pâle et son expression grave.
+Leurs regards se croisèrent à cet instant, et l'esprit de Wang Lin fut secoué. Il emmena Tigre Blanc et sa compagnie dans le sixième étage et chargea vers le septième. Son visage était pâle et son expression grave.
 
 Quant à Void Cloud, son esprit fut également agité alors qu'il contemplait le ciel d'un regard étrange.
 
 « Je pensais qu'en dehors de ces vieux briscards, seul Yun Yifeng pouvait susciter mon intérêt sur le Continent du Taureau Céleste... Je ne m'attendais pas à en rencontrer un autre aujourd'hui! La froideur dans ses yeux... C'est lui aussi un homme impitoyable... » sourit Void Cloud tout en tenant son épée et en s'élevant dans les airs.
 
-Wang Lin chargea dans le sixième étage. Il ne restait que le septième avant qu'il ne puisse quitter la Mer des Pillules avec White Tiger et sa compagnie. Cependant, Wang Lin n'avait pas le luxe de choisir. Le septième étage était le plus dense, et il ne pourrait pas trouver d'ouverture en peu de temps.
+Wang Lin chargea dans le sixième étage. Il ne restait que le septième avant qu'il ne puisse quitter la Mer des Pillules avec Tigre Blanc et sa compagnie. Cependant, Wang Lin n'avait pas le luxe de choisir. Le septième étage était le plus dense, et il ne pourrait pas trouver d'ouverture en peu de temps.
 
 De plus, avec le cultivateur nommé Void Cloud sur ses talons, il ne disposait que de peu de temps. Les yeux de Wang Lin brillèrent alors qu'il traversait le sixième étage. L'énergie de l'épée semblait sur le point de percer lorsque des lignes de sang apparurent dans ses yeux et que deux globes oculaires écarlates se matérialisèrent derrière lui.
 
@@ -56,7 +56,7 @@ Le gaz était une essence extrêmement difficile à obtenir. Plus précisément,
 
 Cette essence était bien plus précieuse que n'importe quelle autre!
 
-Dès l'apparition de l'essence de gaz, les paumes d'eau et de feu s'effondrèrent, mais c'est l'énergie de l'épée de Void Cloud qui céda la première. Une puissante onde de choc se propagea dans toutes les directions. Wang Lin recula et utilisa cette force pour propulser White Tiger et sa compagnie vers le septième étage.
+Dès l'apparition de l'essence de gaz, les paumes d'eau et de feu s'effondrèrent, mais c'est l'énergie de l'épée de Void Cloud qui céda la première. Une puissante onde de choc se propagea dans toutes les directions. Wang Lin recula et utilisa cette force pour propulser Tigre Blanc et sa compagnie vers le septième étage.
 
 Le corps de Void Cloud trembla et il recula de plusieurs pas sous l'impact. Un rugissement retentit: la marionnette Yi Si fut libérée par Wang Lin et chargea Void Cloud.
 
@@ -68,7 +68,7 @@ Tout cela se passa à une vitesse vertigineuse. En un éclair, l'énergie de l'�
 
 Void Cloud laissa échapper un gémissement étouffé tandis que du sang coulait du coin de sa bouche. Ces cinq filaments de gaz noir, chargés d'une intention meurtrière puissante, commencèrent à ravager son intérieur. Ils étaient très difficiles à extirper car ils contenaient également la puissance de l'Ancien Dao!
 
-« Cher confrère Void Cloud, nul besoin de m'escorter davantage. Nous nous reverrons dans le futur! » La voix de Wang Lin résonna dans les airs. Void Cloud leva les yeux pour voir la marionnette Yi Si, privée de son bras droit, se dissiper en une brume noire avant d'être récupérée par Wang Lin. Puis, Wang Lin emmena White Tiger et sa compagnie au septième étage et disparut sans laisser de trace.
+« Cher confrère Void Cloud, nul besoin de m'escorter davantage. Nous nous reverrons dans le futur! » La voix de Wang Lin résonna dans les airs. Void Cloud leva les yeux pour voir la marionnette Yi Si, privée de son bras droit, se dissiper en une brume noire avant d'être récupérée par Wang Lin. Puis, Wang Lin emmena Tigre Blanc et sa compagnie au septième étage et disparut sans laisser de trace.
 
 Ce n'est que lorsque Wang Lin fut loin que Void Cloud esquissa un sourire, mais c'était un sourire d'une noirceur extrême.
 
@@ -80,17 +80,17 @@ L'ensemble de la Mer des Pillules était devenu le domaine du Continent du Démo
 
 À l'extérieur de la Mer des Pillules, au-dessus du Continent du Taureau Céleste, Wang Lin vola sur des dizaines de milliers de kilomètres. Du sang s'écoulait du coin de sa bouche alors qu'il se retournait pour contempler la restriction entourant la Mer des Pillules d'un regard venimeux.
 
-« White Tiger, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin du Grand Secte de l'Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
+« Tigre Blanc, partez tous les trois... J'ai encore d'autres affaires à régler, je ne partirai pas avec vous. Cet endroit est loin du Grand Secte de l'Âme mais proche de la Secte Gui Yi. Si vous voulez leur rapporter ce qui s'est passé, dépêchez-vous. »
 
 « Quant au Grand Secte de l'Âme, je les informerai! » Wang Lin regarda la Mer des Pillules, le regard froid. Il agita la main droite et une pierre de jade apparut. C'était une pierre de message du Grand Secte de l'Âme. Après avoir transmis son message, il l'effaça d'un geste.
 
 Grâce à leur structure, les pierres de message voyageaient bien plus vite que les cultivateurs, mais Wang Lin ignorait quand le Grand Secte de l'Âme la recevrait précisément.
 
-En voyant la pierre de jade, White Tiger et sa compagnie comprirent qu'il s'agissait d'un objet utilisé en interne par le Grand Secte de l'Âme. Ils regardèrent Wang Lin comme s'ils voulaient parler, mais ils se retinrent.
+En voyant la pierre de jade, Tigre Blanc et sa compagnie comprirent qu'il s'agissait d'un objet utilisé en interne par le Grand Secte de l'Âme. Ils regardèrent Wang Lin comme s'ils voulaient parler, mais ils se retinrent.
 
 Wang Lin détourna les yeux de la Mer des Pillules. Remarquant leurs expressions, il dit lentement: « J'ai rejoint le Grand Secte de l'Âme et je suis devenu un Ancien. »
 
-« Prenez soin de vous! » White Tiger et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour ce qui s'était passé dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
+« Prenez soin de vous! » Tigre Blanc et sa compagnie joignirent les mains. Ils ne dirent pas merci, mais que ce soit pour cette nouvelle ou pour ce qui s'était passé dans le monde des grottes, ils garderaient cela gravé dans leur cœur.
 
 « Vous aussi, prenez soin de vous! » Wang Lin afficha un sourire sincère. Il leur rendit leur salut et jeta un coup d'œil à l'Oiseau Vermillon.
 

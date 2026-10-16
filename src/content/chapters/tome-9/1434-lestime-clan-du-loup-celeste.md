@@ -80,7 +80,7 @@ Sous son regard, la feuille se mua en lumière cristalline et se dissipa.
 
 « Ne sous-estimez pas cet individu. S'il n'était pas gravement blessé, il ne vous serait pas si facile de le capturer avec votre niveau de culture... » La jeune fille sourit en consultant sa boussole. « Nord-ouest, 378 496 kilomètres! »
 
-L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Dao Maître Miao Yin, l'un des cinq maîtres du Système d'Étoiles Anciennes, et c'était elle qui l'avait sollicité pour traquer Wang Lin.
+L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troisième pas, il ne souhaitait pas l'offenser outre mesure. Elle était la servante du Maître du Dao Miao Yin, l'un des cinq maîtres du Système d'Étoiles Anciennes, et c'était elle qui l'avait sollicité pour traquer Wang Lin.
 
 « Votre maître devrait être à la Tombe de l'Ordre Ancien. Quel est votre dessein en me cherchant? » L'homme n'était pas pressé de poursuivre sa proie.
 

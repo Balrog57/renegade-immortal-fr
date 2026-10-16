@@ -92,10 +92,10 @@ Cupidité poussa un cri, un hurlement lugubre et assourdissant. Sans hésiter, i
 
 Sa fuite fut aussi soudaine qu'imprévisible, tel un oiseau effrayé. Il n'eut même pas le temps de récupérer les trésors qu'il avait sortis... Tout cela fut si brusque que tous les cultivateurs, Big Red inclus, restèrent stupéfaits.
 
-« Quel genre de sort Lord Cupidité utilise-t-il? »
+« Quel genre de sort Seigneur Cupidité utilise-t-il? »
 « Il est incroyablement rapide, il a disparu en un instant... Serait-ce une préparation avant d'utiliser un trésor puissant? »
 « Son cri... on aurait dit que quelque chose avait mal tourné. Comme s'il avait rencontré quelque chose de terrifiant... »
-« Pourquoi ai-je l'impression que Lord Cupidité est en train de fuir...? »
+« Pourquoi ai-je l'impression que Seigneur Cupidité est en train de fuir...? »
 « Cupidité?! »
 
 « Cupidité! » La silhouette de Wang Lin émergea du monde, lui aussi surpris.

@@ -110,7 +110,7 @@ Le corps de Wang Lin fut enseveli profondément dans la terre avant de s'immobil
 
 Même son âme originelle subit un changement stupéfiant. Entourée par une telle richesse d'énergie, elle commença à l'absorber...
 
-Sa culture progressait rapidement vers le stade Illusoire Yin.
+Sa culture progressait rapidement vers le stade Yin Illusoire.
 
 Il n'aurait pas dû y avoir de nuages sur ce petit fragment, mais soudain, des masses nuageuses commencèrent à apparaître. Ces nuages étaient identiques à ceux qui étaient apparus dans la Terre des Esprits Démoniaques lorsque Wang Lin avait décidé de défier les cieux.
 

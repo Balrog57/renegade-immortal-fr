@@ -46,7 +46,7 @@ En contemplant la Perle Défiant le Ciel, Wang Lin était tout aussi stupéfait 
 
 « Cependant, bien que le Royaume Céleste ait disparu, Maître Bai Fan et quelques-uns de ses pairs ont ouvert leur propre monde. Ils ont emprunté les quatre grands passages menant au Royaume Céleste Antique pour créer leur propre terre, la nommant... le Royaume Céleste!
 
-« Les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair divisèrent la galaxie en quatre systèmes. Sous le Royaume Céleste du Vent se trouvait la Mer des Nuages; sous le Royaume Céleste de la Pluie se trouvait le Vide Brillant; sous le Royaume Céleste du Tonnerre se trouvait Luotian; et sous le Royaume Céleste de l'Éclair se trouvait Summoned River... Le système situé sous le Royaume Céleste de la Pluie s'est vu attribuer par d'autres le nom d'« Alliance ». Qui sait encore que cet endroit s'appelait autrefois le « Vide Brillant »... »
+« Les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair divisèrent la galaxie en quatre systèmes. Sous le Royaume Céleste du Vent se trouvait la Mer des Nuages; sous le Royaume Céleste de la Pluie se trouvait le Vide Brillant; sous le Royaume Céleste du Tonnerre se trouvait Luotian; et sous le Royaume Céleste de l'Éclair se trouvait Rivière Invoquée... Le système situé sous le Royaume Céleste de la Pluie s'est vu attribuer par d'autres le nom d'« Alliance ». Qui sait encore que cet endroit s'appelait autrefois le « Vide Brillant »... »
 
 Qing Shui poussa un soupir en contemplant le vide. C'était comme s'il regardait le Royaume Céleste du Tonnerre d'autrefois, la nostalgie embrumant son regard.
 

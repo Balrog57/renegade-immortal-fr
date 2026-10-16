@@ -84,7 +84,7 @@ Durant ces sept jours, Wang Lin ne bougea pas d'un iota, et la femme en blanc n'
 
 Après sept jours, Wang Lin ouvrit les yeux, le regard brillant. Son esprit était calme, mais la silhouette de cette femme occupait ses pensées, nourrissant son inquiétude.
 
-« Cette personne ne pensait pas que je la verrais avant de quitter le Clan de la Soie Bleue. Elle se tenait juste à l'extérieur du domaine stellaire du Clan… Le Clan possède le Daoïste Blue Dream, dont la culture est incalculable. C'est peut-être pour cela qu'elle n'est pas entrée dans leur territoire! »
+« Cette personne ne pensait pas que je la verrais avant de quitter le Clan de la Soie Bleue. Elle se tenait juste à l'extérieur du domaine stellaire du Clan… Le Clan possède le Daoïste Rêve Bleu, dont la culture est incalculable. C'est peut-être pour cela qu'elle n'est pas entrée dans leur territoire! »
 
 Les yeux de Wang Lin s'illuminèrent. Durant ces sept jours de culture, il se remémora soigneusement tout ce qui s'était produit depuis son entrée dans le Système Stellaire Antique. Il réalisa progressivement que cette sensation de choc était déjà faiblement présente lorsqu'il avait rencontré Tuo Sen.
 
@@ -102,17 +102,17 @@ Même lorsqu'il avait escorté Li Qianmei vers le Clan de la Soie Bleue, cette s
 
 Les yeux de Wang Lin se plissèrent. Tout en méditant, son énergie originelle circula dans son corps. Puis, son pouvoir d'Ancien Dieu parcourut ses membres et ses yeux devinrent plus éclatants.
 
-« Il y a un peu plus d'énergie originelle qu'auparavant… Bien que mon pouvoir d'Ancien Dieu n'ait pas augmenté, il semble plus dense… Comme s'il avait été compressé… En particulier, mon âme originelle et mon esprit semblent différents. Après ce qui vient de se passer, ils sont devenus plus sensibles… » Wang Lin regarda au loin. Son regard perça l'espace infini pour se poser sur la planète où se trouvait le Daoïste Blue Dream, et sur la montagne bleue qui s'y dressait!
+« Il y a un peu plus d'énergie originelle qu'auparavant… Bien que mon pouvoir d'Ancien Dieu n'ait pas augmenté, il semble plus dense… Comme s'il avait été compressé… En particulier, mon âme originelle et mon esprit semblent différents. Après ce qui vient de se passer, ils sont devenus plus sensibles… » Wang Lin regarda au loin. Son regard perça l'espace infini pour se poser sur la planète où se trouvait le Daoïste Rêve Bleu, et sur la montagne bleue qui s'y dressait!
 
 Il devina vaguement la réponse, affichant une expression complexe.
 
 Sous la force de résistance infinie qu'il avait dû braver pour gravir la montagne, son corps avait subi un changement radical. Bien que son niveau de culture n'ait pas progressé, l'ascension avait aiguisé ses sens. Cela lui avait permis de ressentir clairement ce choc!
 
-« Daoïste Blue Dream… Si tout cela était intentionnel, alors ma supposition précédente est correcte. La femme en blanc s'inquiétait pour le Daoïste Blue Dream, et c'est pourquoi elle n'est pas entrée dans le Clan! »
+« Daoïste Rêve Bleu… Si tout cela était intentionnel, alors ma supposition précédente est correcte. La femme en blanc s'inquiétait pour le Daoïste Rêve Bleu, et c'est pourquoi elle n'est pas entrée dans le Clan! »
 
-« Le Daoïste Blue Dream a utilisé cette méthode pour m'avertir secrètement qu'il y avait un danger à quitter le Clan de la Soie Bleue! » L'esprit de Wang Lin était celui d'un démon. Il lui suffisait d'une piste pour déduire la vérité comme on brise une restriction!
+« Le Daoïste Rêve Bleu a utilisé cette méthode pour m'avertir secrètement qu'il y avait un danger à quitter le Clan de la Soie Bleue! » L'esprit de Wang Lin était celui d'un démon. Il lui suffisait d'une piste pour déduire la vérité comme on brise une restriction!
 
-« Le rang de cette femme doit être immense si même le Daoïste Blue Dream n'ose pas me parler directement et préfère recourir à des indices! Si tout cela est vrai, alors qui diable est cette femme en blanc? Si le Daoïste Blue Dream a tout calculé, il devait savoir que je choisirais de rester dans le Clan… » L'expression de Wang Lin devint solennelle tandis qu'il contemplait silencieusement le ciel.
+« Le rang de cette femme doit être immense si même le Daoïste Rêve Bleu n'ose pas me parler directement et préfère recourir à des indices! Si tout cela est vrai, alors qui diable est cette femme en blanc? Si le Daoïste Rêve Bleu a tout calculé, il devait savoir que je choisirais de rester dans le Clan… » L'expression de Wang Lin devint solennelle tandis qu'il contemplait silencieusement le ciel.
 
 Il renonça simplement à l'idée de partir immédiatement. Il s'assit sur la montagne et commença à cultiver. La fatigue accumulée au fil des ans commença à se dissiper.
 
@@ -122,6 +122,6 @@ Les blessures subies lors de l'ascension de la montagne bleue avaient guéri. Sa
 
 Ce jour-là, une lumière bleue infinie apparut dans le ciel au-dessus de sa montagne. Cette lumière était douce et enveloppait le monde entier. Une silhouette vague s'en extirpa et se condensa progressivement.
 
-Wang Lin ouvrit les yeux et regarda calmement l'homme d'âge mûr qui sortait de la lumière bleue. Le Daoïste Blue Dream!
+Wang Lin ouvrit les yeux et regarda calmement l'homme d'âge mûr qui sortait de la lumière bleue. Le Daoïste Rêve Bleu!
 
 « Je possède neuf grands sorts. Es-tu prêt à les apprendre? »

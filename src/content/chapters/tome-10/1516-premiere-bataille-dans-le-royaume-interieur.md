@@ -26,7 +26,7 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 « Ce vieil homme est Maître Hong Shan. J'avais conclu un accord avec le Seigneur du Royaume Scellé. Maintenant que vous avez tué cet esclave et sauvé la Mer Nuageuse, vous êtes qualifié pour être le Seigneur du Royaume Scellé de cette génération! Cependant, l'invasion du Royaume Extérieur est imminente, et il sera difficile de résister avec nos seules forces, mais nous devons nous battre! Vous avez deux cultivateurs du troisième pas à vos côtés ainsi que votre propre force, mais cela reste insuffisant! »
 
-« Puisque vous êtes le Seigneur du Royaume Scellé de cette génération, êtes-vous prêt à livrer un combat à mort avec moi et l'ensemble du Royaume Intérieur? » Les yeux de Maître Hong Shan brillaient comme des éclairs alors qu'il fixait Wang Lin, dégageant une pression comparable à celle du Dao Maître Blue Dream.
+« Puisque vous êtes le Seigneur du Royaume Scellé de cette génération, êtes-vous prêt à livrer un combat à mort avec moi et l'ensemble du Royaume Intérieur? » Les yeux de Maître Hong Shan brillaient comme des éclairs alors qu'il fixait Wang Lin, dégageant une pression comparable à celle du Maître du Dao Rêve Bleu.
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 

@@ -100,7 +100,7 @@ Soudain, quatre-vingt-dix-neuf images rémanentes apparurent et se condensèrent
 
 L'Empereur Céleste, furieux, s'apprêta à attaquer, mais à ce moment précis, le Grand Empyréen Wu Feng rit. Il fit un pas en avant, un geste simple qui suffit à faire hésiter l'Empereur Céleste.
 
-Tous deux étaient des Grands Empyreés, et leurs auras étaient verrouillées l'une contre l'autre. Si l'un bougeait, Wu Feng agirait également. Grâce à ce délai, le doigt géant atteignit le réseau de transfert!
+Tous deux étaient des Grands Empyréens, et leurs auras étaient verrouillées l'une contre l'autre. Si l'un bougeait, Wu Feng agirait également. Grâce à ce délai, le doigt géant atteignit le réseau de transfert!
 
 L'Ascendant Empyréen Ming Dao leva les yeux et poussa un rugissement. Étant en plein processus de transfert, il ne pouvait pas attaquer. Il serra les dents et sortit du réseau. Au moment où il apparut, le doigt géant devant lui se dissipa, comme pour se moquer de lui!
 
@@ -126,4 +126,4 @@ L'Empereur s'apprêtait à parler, mais Wang Lin fut plus rapide. Il regarda l'A
 
 L'Empereur Céleste s'apprêta à les arrêter, mais Wu Feng l'en empêcha.
 
-« Lian Daozhen, il n'est pas nécessaire d'interférer dans une compétition entre Ascendants Empyreés. »
+« Lian Daozhen, il n'est pas nécessaire d'interférer dans une compétition entre Ascendants Empyréens. »

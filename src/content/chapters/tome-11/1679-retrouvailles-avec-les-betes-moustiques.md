@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1679 - Reunion With the Mosquito Beasts
 slug: retrouvailles-avec-les-betes-moustiques
 ---
-Li Qianmei finit par partir avec son père, Blue Dream. La cinquième concubine fut emmenée par ce dernier.
+Li Qianmei finit par partir avec son père, Rêve Bleu. La cinquième concubine fut emmenée par ce dernier.
 
-Ils retourneraient au clan Blue Silk pour y ramener toute leur lignée. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Blue Silk.
+Ils retourneraient au clan Soie Bleue pour y ramener toute leur lignée. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Soie Bleue.
 
-Avec le Dao Master Blue Dream présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Dao Master Blue Dream maintenant que son cœur de Dao n'était plus imparfait.
+Avec le Maître du Dao Rêve Bleu présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Maître du Dao Rêve Bleu maintenant que son cœur de Dao n'était plus imparfait.
 
-En effet, le Dao Master Blue Dream pouvait entrer dans la Tribulation Arcane dès qu'il le souhaitait. Une fois la Tribulation Arcane commencée, même le Souverain devrait se retirer.
+En effet, le Maître du Dao Rêve Bleu pouvait entrer dans la Tribulation Arcane dès qu'il le souhaitait. Une fois la Tribulation Arcane commencée, même le Souverain devrait se retirer.
 
 Li Qianmei disparut dans le Royaume Extérieur avec son père. Après leur départ, la lumière bleue à l'extérieur de la formation se dissipa lentement et le système stellaire redevint sombre.
 

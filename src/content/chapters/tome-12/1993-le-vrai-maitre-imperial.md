@@ -8,9 +8,9 @@ slug: le-vrai-maitre-imperial
 ---
 Chapitre 1993 - Le Vrai Maître Impérial!
 
-Des grondements tonitruants résonnèrent alors que les quatre Grands Empyrées tentaient de percer la lumière dorée. Le temps pressait, et l'Empereur Céleste savait qu'il ne s'était pas accordé un délai bien long!
+Des grondements tonitruants résonnèrent alors que les quatre Grands Empyréens tentaient de percer la lumière dorée. Le temps pressait, et l'Empereur Céleste savait qu'il ne s'était pas accordé un délai bien long!
 
-S'il ne parvenait pas à absorber par la force le pouvoir de l'Ancêtre Céleste avant que les quatre Grands Empyrées ne percent la lumière dorée, alors tout ce qu'il avait accompli serait vain.
+S'il ne parvenait pas à absorber par la force le pouvoir de l'Ancêtre Céleste avant que les quatre Grands Empyréens ne percent la lumière dorée, alors tout ce qu'il avait accompli serait vain.
 
 Il ne permettrait jamais une telle chose. Ayant atteint la dernière étape, il était sur le point de réussir et refusait catégoriquement d'échouer maintenant!
 
@@ -106,7 +106,7 @@ Pourtant, alors qu'il était sur le point de réussir l'absorption du pouvoir de
 
 Jiu Di réfléchit un instant puis déclara lentement: « Empereur Céleste, elle est ma fille! »
 
-« La raison pour laquelle j'ai pu vivre si longtemps avec une longévité infinie, et même devenir un Grand Empyrée, est due à l'aide du clan Dao Wang! Le clan s'était préparé à cela depuis fort longtemps, jusqu'à ce qu'ils prédisent l'apparition de Wang Lin. C'est alors qu'ils ont mis le plan à exécution! » Jiu Di regarda calmement l'Empereur Céleste, qui était pétrifié par la vérité.
+« La raison pour laquelle j'ai pu vivre si longtemps avec une longévité infinie, et même devenir un Grand Empyréen, est due à l'aide du clan Dao Wang! Le clan s'était préparé à cela depuis fort longtemps, jusqu'à ce qu'ils prédisent l'apparition de Wang Lin. C'est alors qu'ils ont mis le plan à exécution! » Jiu Di regarda calmement l'Empereur Céleste, qui était pétrifié par la vérité.
 
 Wang Lin entendit également ces paroles depuis l'intérieur de la tête de l'Ancêtre Céleste. Tandis que tous les regards étaient tournés vers Jiu Di et Hai Zi, son âme sortit de la Perle Défiant le Ciel pour reprendre le contrôle de son corps!
 

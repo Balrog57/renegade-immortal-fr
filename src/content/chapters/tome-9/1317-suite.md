@@ -14,7 +14,7 @@ L'homme d'âge moyen sortit de la lumière bleue. Il ne daigna même pas regarde
 
 Cet homme ressemblait énormément à Li Qianmei. Il était évident au premier coup d'œil qu'ils étaient parents.
 
-« Dao Master Blue Dream! » Wang Lin fixa l'homme. Il reconnut sa voix. Cette voix qui l'avait presque conduit à la mort!
+« Maître du Dao Rêve Bleu! » Wang Lin fixa l'homme. Il reconnut sa voix. Cette voix qui l'avait presque conduit à la mort!
 
 Il ne l'oublierait jamais!
 
@@ -26,13 +26,13 @@ Une force puissante enveloppa Wang Lin tandis qu'une autre enveloppait Li Qianme
 
 Il se détourna et s'éloigna en tenant Li Qianmei. La lumière bleue convergea vers lui jusqu'à ce qu'il disparaisse. Du début à la fin, il ne jeta pas un seul regard vers Wang Lin!
 
-Frappé par la tempête, Wang Lin recula de quelques pas avant de se stabiliser. L'expression complexe, il fixa l'endroit où le Dao Master Blue Dream avait disparu, puis resta silencieux.
+Frappé par la tempête, Wang Lin recula de quelques pas avant de se stabiliser. L'expression complexe, il fixa l'endroit où le Maître du Dao Rêve Bleu avait disparu, puis resta silencieux.
 
-Il était presque certain qu'un lien de parenté unissait le Dao Master Blue Dream et Li Qianmei. Puisque ce dernier l'avait emmenée, il possédait naturellement un moyen de la ressusciter.
+Il était presque certain qu'un lien de parenté unissait le Maître du Dao Rêve Bleu et Li Qianmei. Puisque ce dernier l'avait emmenée, il possédait naturellement un moyen de la ressusciter.
 
 Son plan initial était de quitter le Clan de la Soie Bleue ainsi que ce domaine stellaire. Après mûre réflexion, Wang Lin choisit de rester. Il voulait s'assurer que Li Qianmei se réveillerait véritablement.
 
-Tout en réfléchissant, Wang Lin se transforma en un rayon de lumière et fonça droit devant lui. Il pénétra progressivement dans les profondeurs du Clan de la Soie Bleue. Il n'avait pas besoin de déployer son Sens Divin, car il distinguait clairement, parmi les étoiles infinies, une planète de culture émettant une puissante lueur bleue. C'était là que se trouvait le Dao Master Blue Dream.
+Tout en réfléchissant, Wang Lin se transforma en un rayon de lumière et fonça droit devant lui. Il pénétra progressivement dans les profondeurs du Clan de la Soie Bleue. Il n'avait pas besoin de déployer son Sens Divin, car il distinguait clairement, parmi les étoiles infinies, une planète de culture émettant une puissante lueur bleue. C'était là que se trouvait le Maître du Dao Rêve Bleu.
 
 Cette planète de culture était baignée d'une lumière azurée; même l'intérieur de la planète semblait imprégné d'une clarté bleue qui irriguait les océans. Wang Lin avança et pénétra dans l'atmosphère de la planète.
 
@@ -64,7 +64,7 @@ Il était extrêmement rapide et ne marquait aucun temps d'arrêt. Tandis qu'il 
 
 Mais à ce moment précis, la résistance de la montagne devint terrifiante. C'était comme si une planète entière pesait sur lui, l'empêchant d'avancer. À chaque pas, il devait supporter une pression colossale. Plus surprenant encore: plus il montait, plus la résistance se multipliait!
 
-Le temps s'écoulait lentement. Li Qianmei était assise dans une demeure ordinaire au sommet de la montagne, les yeux clos, son corps émettant une lueur bleue. Son père, le Dao Master Blue Dream, siégeait derrière elle. Ses mains traçaient des sceaux et pointaient occasionnellement vers le vide.
+Le temps s'écoulait lentement. Li Qianmei était assise dans une demeure ordinaire au sommet de la montagne, les yeux clos, son corps émettant une lueur bleue. Son père, le Maître du Dao Rêve Bleu, siégeait derrière elle. Ses mains traçaient des sceaux et pointaient occasionnellement vers le vide.
 
 À chaque geste de sa main, le corps de Li Qianmei tremblait. Des gaz noirs s'échappaient de ses orifices pour se dissiper dans la pièce.
 
@@ -94,11 +94,11 @@ Une fois qu'il l'aurait vue, il partirait; mais avant cela, même si les cieux t
 
 À mesure qu'il approchait, la pression devenait inimaginable. Après avoir craché du sang à plusieurs reprises et alors que ses vaisseaux sanguins étaient sur le point d'éclater, Wang Lin avait gravi 90 % des marches.
 
-Au sommet, dans la demeure, le Dao Master Blue Dream ouvrit les yeux. La dernière trace de gaz noir quitta Li Qianmei, qui fut alors enveloppée d'une lumière bleue. Son visage flétri retrouva rapidement ses traits et ses cils frémirent alors qu'elle ouvrait lentement les yeux.
+Au sommet, dans la demeure, le Maître du Dao Rêve Bleu ouvrit les yeux. La dernière trace de gaz noir quitta Li Qianmei, qui fut alors enveloppée d'une lumière bleue. Son visage flétri retrouva rapidement ses traits et ses cils frémirent alors qu'elle ouvrait lentement les yeux.
 
 La porte de la maison s'ouvrit et la femme en rose entra. Son regard balaya Li Qianmei et elle sembla entrer en transe un instant. Après un long silence, elle dit doucement: « Il est sur le point d'arriver... Devrions-nous... »
 
-Le Dao Master Blue Dream baissa la tête vers la cithare. Il la toucha et murmura: « Yue Er, va... Dis-lui ton nom... »
+Le Maître du Dao Rêve Bleu baissa la tête vers la cithare. Il la toucha et murmura: « Yue Er, va... Dis-lui ton nom... »
 
 Li Qianmei hocha la tête et se leva avec grâce. Une pointe de confusion dans le regard, elle sortit de la maison. Elle vit le soleil se lever, et l'incertitude dans ses yeux s'accentua.
 
@@ -122,6 +122,6 @@ La confusion dans les yeux de Blue Moon s'intensifia. Elle ressentit une douleur
 
 Blue Moon ne se retourna pas et murmura doucement: « Père, pourquoi ai-je l'impression qu'il m'est si familier, comme s'il faisait partie de mes souvenirs... Quelque chose de très important, de très important... »
 
-« La plus grande distance au monde n'est ni la fin de l'univers, ni le yin et le yang, mais le fait d'être oublié... Une relation erronée est née au mauvais endroit et au mauvais moment. Tout était faux dès le départ... Si vous pouvez recommencer après vous être oubliés, alors ton père ne vous en empêchera pas... Même s'il est choisi par le Royaume Céleste Ancien, ton père oserait se battre contre eux pour toi! » Au lieu de répondre à Li Qianmei, le Dao Master Blue Dream ferma les yeux et effleura la cithare.
+« La plus grande distance au monde n'est ni la fin de l'univers, ni le yin et le yang, mais le fait d'être oublié... Une relation erronée est née au mauvais endroit et au mauvais moment. Tout était faux dès le départ... Si vous pouvez recommencer après vous être oubliés, alors ton père ne vous en empêchera pas... Même s'il est choisi par le Royaume Céleste Ancien, ton père oserait se battre contre eux pour toi! » Au lieu de répondre à Li Qianmei, le Maître du Dao Rêve Bleu ferma les yeux et effleura la cithare.
 
 « La plus grande distance... est d'être oublié... Meng Er, quand te souviendras-tu de moi... »

@@ -54,11 +54,11 @@ Le vieil homme aux cheveux roux s'arrêta et réfléchit un instant.
 
 « Peu importe. Le monde est un cycle de karma. La destruction de la Secte du Dao Démoniaque n'est qu'une calamité pour eux, mais elle m'a également libéré des affaires mondaines. Désormais, je peux me consacrer pleinement à la recherche du dao. » Le vieil homme soupira et regarda Wang Lin.
 
-« Le Grand Empyréen Dao Yi est extrêmement partial envers les siens, bien plus que les autres Grands Empyrées. Avec votre force actuelle, choisir de le suivre serait un excellent choix. »
+« Le Grand Empyréen Dao Yi est extrêmement partial envers les siens, bien plus que les autres Grands Empyréens. Avec votre force actuelle, choisir de le suivre serait un excellent choix. »
 
-« Parmi les Grands Empyrées, l'Empereur Céleste, le Grand Empyrée des Huit Extrêmes, est le plus fier. Le Grand Empyrée Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyrée Wu Feng du Continent Nord est le plus exigeant; hormis les Ascendants Empyrées, il recrute rarement des Exalt Empyréens. »
+« Parmi les Grands Empyréens, l'Empereur Céleste, le Grand Empyréen des Huit Extrêmes, est le plus fier. Le Grand Empyréen Jiu Di du Continent Central est le plus autoritaire. Le Grand Empyréen Wu Feng du Continent Nord est le plus exigeant; hormis les Ascendants Empyréens, il recrute rarement des Exalt Empyréens. »
 
-« Et le Grand Empyrée Gemini de la Secte du Dao Pourpre du Continent Est... était à l'origine le plus puissant des Grands Empyrées. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalt Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
+« Et le Grand Empyréen Gemini de la Secte du Dao Pourpre du Continent Est... était à l'origine le plus puissant des Grands Empyréens. Mais lors de la dernière réincarnation, son âme s'est scindée en deux et s'est transformée en deux individus distincts. Elle ne pourra pas se rétablir dans cette vie. Bien qu'on dise que sa personnalité est très douce, elle ne serait pas mon choix. » Le vieil homme savait qu'en comparaison d'un Exalt Empyréen, la Secte du Dao Démoniaque n'était qu'une fourmi. Il ne valait pas la peine de se mettre à dos un tel être pour une telle secte.
 
 Le plus important était que cet Exalt Empyréen était extrêmement puissant! Par conséquent, il partagea ces connaissances essentielles afin d'effacer l'amertume des affrontements passés.
 
@@ -72,9 +72,9 @@ Le vieil homme poursuivit lentement: « L'Épreuve Empyréenne comporte 19 nivea
 
 « L'Épreuve Empyréenne? » Les yeux de Wang Lin se rétrécirent. Il avait entendu le Grand Empyréen Dao Yi en parler plus tôt, mais il n'en saisissait pas la nature. Cependant, les explications du vieil homme lui permirent de mieux comprendre.
 
-« J'ai entendu dire par le Grand Empyréen Dao Yi que l'Épreuve Empyréenne avait été créée par l'Ancêtre Céleste et qu'elle reproduisait le Royaume Divin Immémorial. Si vous parvenez à franchir la 19e couche, vos chances de devenir un Grand Empyrée seront bien plus élevées que les autres une fois entré dans le Royaume Divin Immémorial! »
+« J'ai entendu dire par le Grand Empyréen Dao Yi que l'Épreuve Empyréenne avait été créée par l'Ancêtre Céleste et qu'elle reproduisait le Royaume Divin Immémorial. Si vous parvenez à franchir la 19e couche, vos chances de devenir un Grand Empyréen seront bien plus élevées que les autres une fois entré dans le Royaume Divin Immémorial! »
 
-« Il y a fort longtemps, le Grand Empyrée Wu Feng a franchi la 19e couche. Puis, lors d'une des ouvertures du Royaume Divin Immémorial, il a eu la chance de devenir un Grand Empyrée! » Le vieil homme ne cachait rien. Même s'il n'avait pas parlé, Wang Lin l'aurait appris en interagissant avec d'autres Exalt Empyréens. Ce n'étaient point des secrets.
+« Il y a fort longtemps, le Grand Empyréen Wu Feng a franchi la 19e couche. Puis, lors d'une des ouvertures du Royaume Divin Immémorial, il a eu la chance de devenir un Grand Empyréen! » Le vieil homme ne cachait rien. Même s'il n'avait pas parlé, Wang Lin l'aurait appris en interagissant avec d'autres Exalt Empyréens. Ce n'étaient point des secrets.
 
 Wang Lin demanda immédiatement: « Comment puis-je entrer dans l'Épreuve Empyréenne? »
 
@@ -82,19 +82,19 @@ Le vieil homme regarda le ciel et répondit lentement: « C'est très simple. D�
 
 « La rumeur prétend qu'au pays des anciens, l'Ancêtre a également reproduit le Royaume Divin Immémorial pour créer un terrain d'essai adapté au Clan Ancien. »
 
-« On raconte même que, surplombant ces deux épreuves, existerait une Épreuve de Grand Empyrée créée conjointement par les deux Ancêtres. Cependant, ce n'est qu'une rumeur et je n'en sais pas plus. » Le vieil homme termina son récit et joignit les mains vers Wang Lin.
+« On raconte même que, surplombant ces deux épreuves, existerait une Épreuve de Grand Empyréen créée conjointement par les deux Ancêtres. Cependant, ce n'est qu'une rumeur et je n'en sais pas plus. » Le vieil homme termina son récit et joignit les mains vers Wang Lin.
 
 « Confrère cultivateur, ce vieil homme vous a dit tout ce qu'il devait vous dire. Adieu! » Sans même jeter un regard aux ruines de la Secte du Dao Démoniaque, il se transforma en un rayon de lumière et disparut en un éclair.
 
 Wang Lin resta immobile, le regard perdu dans le vide, même après le départ du vieil homme. Il avait refusé l'offre du Grand Empyréen Dao Yi, renonçant ainsi à une opportunité immense, mais il n'avait aucun regret.
 
-« Cinq Grands Empyrées. Outre l'Empereur Céleste et Dao Yi, il en reste trois... Avec ma force actuelle, j'ai acquis de nouvelles perspectives après avoir combattu mon premier Exalt Empyréen. Plus je combattrai d'Exalt Empyréens, plus ma renommée grandira! »
+« Cinq Grands Empyréens. Outre l'Empereur Céleste et Dao Yi, il en reste trois... Avec ma force actuelle, j'ai acquis de nouvelles perspectives après avoir combattu mon premier Exalt Empyréen. Plus je combattrai d'Exalt Empyréens, plus ma renommée grandira! »
 
 « Et aussi, l'Épreuve Empyréenne... Je ne m'attendais pas à ce qu'un tel lieu existe sur le Continent Astral Immortel. Je me demande seulement si les paroles de l'ancêtre de la Secte du Dao Démoniaque étaient vraies ou fausses. »
 
 Wang Lin s'assit et médita. Au milieu des décombres, il revoyait sans cesse son combat contre l'ancêtre de la Secte du Dao Démoniaque et le coup de poing du Grand Empyréen Dao Yi.
 
-Ce coup de poing hantait son esprit, finissant par occulter tout le reste. Wang Lin était totalement absorbé par cette attaque du Grand Empyrée.
+Ce coup de poing hantait son esprit, finissant par occulter tout le reste. Wang Lin était totalement absorbé par cette attaque du Grand Empyréen.
 
 Ce coup semblait doux, mais il contenait une force que Wang Lin ne parvenait pas à appréhender. Le temps s'écoula, et plusieurs mois passèrent en un éclair.
 
@@ -110,7 +110,7 @@ Cette année ne fut pour lui qu'un instant fugace. Un jour, après cette année 
 
 « Ce coup de poing... j'ai calculé toutes les manières possibles d'y résister. J'ai simulé des millions de fois, mais pas une seule fois je n'ai pu l'esquiver... Ce n'était pourtant qu'un fragment du sens divin du Grand Empyréen Dao Yi... » Wang Lin soupira.
 
-L'euphorie liée à l'augmentation de son niveau de culture s'était estompée. Comparé à un Grand Empyrée, il était encore bien trop faible.
+L'euphorie liée à l'augmentation de son niveau de culture s'était estompée. Comparé à un Grand Empyréen, il était encore bien trop faible.
 
 « Cependant, malgré cela, j'ai acquis une compréhension immense, particulièrement lors du combat contre l'ancêtre de la Secte du Dao Démoniaque. Intégrer le dao au corps et un coup de poing contenant 27 sorts... Je peux imiter et apprendre cela! » Les yeux de Wang Lin étincelèrent. Ce combat lui avait apporté une sagesse inestimable.
 

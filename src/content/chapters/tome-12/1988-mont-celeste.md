@@ -56,7 +56,7 @@ Au contact de ce doigt, d'immenses ondulations parcoururent le vide entourant Mi
 
 Les yeux de Wang Lin brillèrent. La lumière dorée émanant du corps de Ming Dao était trop intense, une puissance que Wang Lin redoutait. Voyant l'Enseignant Impérial agir, il hésita un instant avant de charger à son tour.
 
-En s'approchant, il leva la main droite et invoqua *Sundered Night*. La terre devint mer et le ciel s'obscurcit, tandis qu'il se transformait en soleil. Une lumière éclatante jaillit, chargée de la puissance du sort de foi de Wang Lin. Fusionnant cette clarté capable de déchirer les ténèbres, il chargea Ming Dao.
+En s'approchant, il leva la main droite et invoqua *Nuit Brisée*. La terre devint mer et le ciel s'obscurcit, tandis qu'il se transformait en soleil. Une lumière éclatante jaillit, chargée de la puissance du sort de foi de Wang Lin. Fusionnant cette clarté capable de déchirer les ténèbres, il chargea Ming Dao.
 
 Simultanément, l'Enseignant Impérial, le visage livide, mordit sa langue. Utilisant ses dernières forces vitales, il cracha une gorgée de sang qui se condensa pour former un homme de sang. Ce dernier poussa un rugissement vers le ciel et chargea Ming Dao avec une expression féroce!
 
@@ -64,7 +64,7 @@ Wang Lin et l'Enseignant Impérial lancèrent tous deux des sorts dévastateurs 
 
 Ming Dao n'avait pas été aussi puissant initialement, mais la lumière dorée en son sein était indestructible et capable de neutraliser tout sort. Elle était assez puissante pour repousser quiconque et interdire toute approche. Tel un feu, que le papillon de nuit s'y précipite ou que la flamme s'abatte sur lui, l'insecte ne serait que cendres!
 
-Alors que l'homme de sang et le sort *Sundered Night* convergeaient vers Ming Dao, celui-ci hurla vers les cieux. Sa douleur semblait avoir atteint son paroxysme. Son corps, déjà largement décomposé, trembla puis explosa soudainement!
+Alors que l'homme de sang et le sort *Nuit Brisée* convergeaient vers Ming Dao, celui-ci hurla vers les cieux. Sa douleur semblait avoir atteint son paroxysme. Son corps, déjà largement décomposé, trembla puis explosa soudainement!
 
 Cet effondrement fut une séparation brutale de la chair et du sang; la force de sa propre substance explosa dans toutes les directions!
 
@@ -72,7 +72,7 @@ L'homme de sang chargea en plein cœur de l'explosion!
 
 Des bruits d'éclatement retentirent et l'homme de sang poussa un cri déchirant. La chair de Ming Dao transperça l'être de sang, qui se désintégra avant même d'avoir pu approcher de la cible!
 
-La puissance de l'Ancêtre Céleste résidait dans la chair et le sang de Ming Dao, les rendant aussi redoutables que n'importe quel sortilège. L'expression de Wang Lin changea et il recula précipitamment. Bien que la chair se soit dissipée sous l'effet de *Sundered Night*, certains fragments parvinrent à le toucher. Tandis qu'il esquivait, trois morceaux de chair percutèrent son corps.
+La puissance de l'Ancêtre Céleste résidait dans la chair et le sang de Ming Dao, les rendant aussi redoutables que n'importe quel sortilège. L'expression de Wang Lin changea et il recula précipitamment. Bien que la chair se soit dissipée sous l'effet de *Nuit Brisée*, certains fragments parvinrent à le toucher. Tandis qu'il esquivait, trois morceaux de chair percutèrent son corps.
 
 Ils frappèrent sa poitrine, sa jambe droite et son bras gauche. Une douleur fulgurante irradia de ces points, où une lumière dorée jaillit comme pour consumer ses membres.
 

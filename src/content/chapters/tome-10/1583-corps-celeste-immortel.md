@@ -96,21 +96,21 @@ D'un revers de main, son corps s'effondra une fois de plus.
 
 Bien que son corps se fût effondré, le sort fut tout de même exécuté. Le monde devint sombre comme s'il était enveloppé d'obscurité. Puis, au loin, un soleil commença à poindre.
 
-Sundered Night, le premier sort original de Wang Lin!
+Nuit Brisée, le premier sort original de Wang Lin!
 
 Le monde était trouble dans cette obscurité, mais cela ne pouvait masquer la lumière dorée entourant le corps décharné de Wang Lin. Cette lueur sembla fusionner avec le soleil levant et explosa avec la puissance nécessaire pour déchirer les ténèbres.
 
-La puissance de Sundered Night éclata.
+La puissance de Nuit Brisée éclata.
 
 À cet instant, le corps de Wang Lin se reforma une nouvelle fois. Il poussa un rugissement, le visage tordu par une douleur si intense qu'elle le rendait presque fou. Il agita la main et l'eau sous ses pieds gronda. Une porte de pierre gigantesque apparut!
 
-Dès que la porte surgit, une aura de temps évanescent enveloppa les environs. Le second sort original de Wang Lin, Flowing Time, fit son apparition.
+Dès que la porte surgit, une aura de temps évanescent enveloppa les environs. Le second sort original de Wang Lin, Temps Fluide, fit son apparition.
 
-Sundered Night et Flowing Time étaient des sorts extraordinaires. Alors que le corps de Wang Lin continuait de s'effondrer et de se reconstruire, ces sorts absorbaient son énergie céleste pour devenir encore plus puissants!
+Nuit Brisée et Temps Fluide étaient des sorts extraordinaires. Alors que le corps de Wang Lin continuait de s'effondrer et de se reconstruire, ces sorts absorbaient son énergie céleste pour devenir encore plus puissants!
 
-Le monde trembla et l'obscurité fut lacérée par la lumière dorée. Quatre des neuf lames furent anéanties par Sundered Night. Les cinq restantes entrèrent en collision avec Flowing Time. Finalement, seules trois lames atteignirent le corps de Wang Lin, avant de s'effondrer avec lui.
+Le monde trembla et l'obscurité fut lacérée par la lumière dorée. Quatre des neuf lames furent anéanties par Nuit Brisée. Les cinq restantes entrèrent en collision avec Temps Fluide. Finalement, seules trois lames atteignirent le corps de Wang Lin, avant de s'effondrer avec lui.
 
-L'autre femme, celle qui avait émis les prédictions, recula précipitamment, prise dans l'étreinte de Sundered Night et Flowing Time. Le choc et la panique provoquaient déjà une faille dans son cœur de Dao. Frappée par ces deux sorts célestes, elle cracha du sang et s'enfuit en hâte.
+L'autre femme, celle qui avait émis les prédictions, recula précipitamment, prise dans l'étreinte de Nuit Brisée et Temps Fluide. Le choc et la panique provoquaient déjà une faille dans son cœur de Dao. Frappée par ces deux sorts célestes, elle cracha du sang et s'enfuit en hâte.
 
 Elle n'avait plus aucune intention de combattre!
 

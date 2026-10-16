@@ -72,11 +72,11 @@ Dans la Terre Déchue, la Sélection des Anciens Délaissés était un événeme
 
 Le lieu de l'événement était la planète la plus mystérieuse de la Terre Déchue: la Planète du Grand Empereur!
 
-Cette planète était très célèbre dans le Système Stellaire Ancien et faisait l'objet de recherches de la part du Conseil Souverain. Les rumeurs à son sujet se répandaient partout dans le Système Stellaire Ancien.
+Cette planète était très célèbre dans le Système Stellaire Antique et faisait l'objet de recherches de la part du Conseil Souverain. Les rumeurs à son sujet se répandaient partout dans le Système Stellaire Antique.
 
 Quiconque voyait personnellement la Planète du Grand Empereur n'oubliait jamais un spectacle aussi saisissant!
 
-Il faut dire que la plupart des planètes de culture du Système Stellaire Ancien étaient sphériques. Bien que certaines fussent de formes irrégulières, elles restaient majoritairement rondes. C'était un phénomène très étrange que de nombreux puissants cultivateurs avaient tenté d'élucider.
+Il faut dire que la plupart des planètes de culture du Système Stellaire Antique étaient sphériques. Bien que certaines fussent de formes irrégulières, elles restaient majoritairement rondes. C'était un phénomène très étrange que de nombreux puissants cultivateurs avaient tenté d'élucider.
 
 Cependant, ils n'avaient trouvé que quelques indices sans jamais parvenir à la vérité. Ce n'est que lorsque le Conseil Souverain annonça les résultats de ses recherches qu'une explication fut donnée: une nouvelle loi nommée « la loi de rotation ».
 
@@ -90,13 +90,13 @@ Normalement, une force magnétique et de déchirement inimaginable régnait auto
 
 Ce n'est que lors de la Sélection des Anciens Délaissés que ces forces s'affaiblissaient considérablement, permettant l'apparition de plusieurs tunnels pour accéder à la planète.
 
-Outre les quelque 300 clans participant à la Sélection, on trouvait également des individus venus du Système Stellaire Ancien. La plupart étaient invités par ces clans et apportaient parfois leur aide lors des combats.
+Outre les quelque 300 clans participant à la Sélection, on trouvait également des individus venus du Système Stellaire Antique. La plupart étaient invités par ces clans et apportaient parfois leur aide lors des combats.
 
 Le Grand Empereur n'y prêtait aucune attention, ce qui devint peu à peu une règle tacite. Cependant, quiconque n'appartenait pas aux clans de la Terre Déchue ne pouvait prétendre au titre d'Ancien, sous peine de mort!
 
 À chaque Sélection des Anciens Délaissés, le Conseil Souverain envoyait des observateurs en tant qu'invités. Cela servait à témoigner de sa reconnaissance envers le Conseil Déchu et à rendre hommage au Grand Empereur. Ils venaient aussi pour observer et parfois soutenir certains clans.
 
-Parallèlement au Conseil Souverain, le Conseil Déchu envoyait également des invitations aux puissantes figures du Système Stellaire Ancien.
+Parallèlement au Conseil Souverain, le Conseil Déchu envoyait également des invitations aux puissantes figures du Système Stellaire Antique.
 
 Le Grand Empereur ignorait tout cela. Pour lui, la Sélection des Anciens Délaissés n'était qu'une simple festivité.
 
@@ -110,7 +110,7 @@ Une femme aux longs cheveux se tenait sur une gigantesque boussole octogonale à
 
 « Il y aura une compensation », murmura la femme aux longs cheveux en contemplant la Terre Déchue. Elle pensa intérieurement: « Être protégé par le Grand Empereur... Maintenant, je veux vraiment voir cet homme de mes propres yeux... Je me demande simplement s'il est l'être mentionné dans la prédiction de l'Ancêtre... »
 
-Dans une autre partie du Système Stellaire Ancien, une douce lumière bleue scintillait. Le Maître Dao Blue Dream marchait lentement, les mains derrière le dos.
+Dans une autre partie du Système Stellaire Antique, une douce lumière bleue scintillait. Le Maître Maître du Dao Rêve Bleu marchait lentement, les mains derrière le dos.
 
 Li Qianmei le suivait silencieusement.
 

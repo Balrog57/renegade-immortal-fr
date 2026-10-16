@@ -14,7 +14,7 @@ Mais lorsqu'elle arriva chez elle, elle vit deux personnes debout là. L'une ét
 
 « Tante Chang... Sœur Dong... Je suis rentrée. » Song Zhi mordit sa lèvre inférieure et sourit.
 
-À l'extérieur de Blackstone City, Wang Lin se tenait là où Song Zhi s'était tenue et contemplait la ville. Après un moment, il retira son Sens Divin. La femme était bien pitoyable. La fusion avec l'âme de Wan Er lui avait causé de grands maux. Sa mémoire était en désordre et elle ne savait plus qui elle était.
+À l'extérieur de Ville de la Pierre Noire, Wang Lin se tenait là où Song Zhi s'était tenue et contemplait la ville. Après un moment, il retira son Sens Divin. La femme était bien pitoyable. La fusion avec l'âme de Wan Er lui avait causé de grands maux. Sa mémoire était en désordre et elle ne savait plus qui elle était.
 
 Wang Lin aurait pu ignorer sa faiblesse et faire fi de sa vie pour séparer l'âme de Li Muwan. Cependant, le résultat aurait été l'extinction de sa force vitale.
 
@@ -32,7 +32,7 @@ Le Prince Ji Du était resté ici car, selon ses analyses, Wang Lin viendrait pr
 
 Wang Lin ne montra aucune émotion face au fait que Ji Du l'ait attendu. Au contraire, si Ji Du n'avait pas fait cela, cela signifierait qu'il ne serait pas utile à Wang Lin, et il serait alors très difficile pour lui d'obtenir le poste d'Empereur Antique.
 
-« Allons-y. » Wang Lin jeta un dernier regard vers Blackstone City puis s'éloigna dans la distance.
+« Allons-y. » Wang Lin jeta un dernier regard vers Ville de la Pierre Noire puis s'éloigna dans la distance.
 
 Ji Du réprima l'excitation dans son cœur et suivit Wang Lin.
 
@@ -50,9 +50,9 @@ Wang Lin, alors qu'il était à mi-chemin de la chambre, s'arrêta et regarda le
 
 Le Prince Ji Du parut impuissant et parla avec un sourire amer.
 
-« Le fils ignore ce qu'il a pu faire pour provoquer Lord Song. Généralement, lorsque je vais le voir, il ne me reçoit pas, et même quand je le rencontre au palais, il est très froid.
+« Le fils ignore ce qu'il a pu faire pour provoquer Seigneur Song. Généralement, lorsque je vais le voir, il ne me reçoit pas, et même quand je le rencontre au palais, il est très froid.
 
-« Mon frère cadet, Chi Man, est très proche de Lord Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il a été accepté comme disciple de Lord Song.
+« Mon frère cadet, Chi Man, est très proche de Seigneur Song. Il vit sur la Montagne de l'Origine et la rumeur dit qu'il a été accepté comme disciple de Seigneur Song.
 
 « Mon père semble aussi porter beaucoup d'intérêt à Chi Man. L'ensemble du clan Ancient Shi penche en sa faveur pour le prochain trône, » dit amèrement Ji Du.
 
@@ -84,7 +84,7 @@ En observant Ji Du devant lui, Wang Lin voyait une personne redoutable. Quelqu'u
 
 Le Prince Ji Du resta agenouillé un moment encore avant de se relever respectueusement, une joie manifeste brillant dans ses yeux.
 
-« Avec le pouvoir du Parrain, Lord Song pourrait vraiment changer d'avis... Mais je dois aussi lancer mon plan. Cette fois, je dois me battre! Une fois que j'aurai réussi, dans deux cents ans, moi, Ji Du, serai l'empereur de l'Ancient Shi! »
+« Avec le pouvoir du Parrain, Seigneur Song pourrait vraiment changer d'avis... Mais je dois aussi lancer mon plan. Cette fois, je dois me battre! Une fois que j'aurai réussi, dans deux cents ans, moi, Ji Du, serai l'empereur de l'Ancient Shi! »
 
 Excité, le Prince Ji Du prit plusieurs inspirations profondes avant de réprimer son enthousiasme. Il envoya immédiatement un ordre pour faire de cet endroit une zone interdite: quiconque oserait y pénétrer serait instantanément tué. Il fit même déployer plusieurs gardes pour protéger les lieux jour et nuit.
 

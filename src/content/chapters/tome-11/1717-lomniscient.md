@@ -78,7 +78,7 @@ L'âme de l'avatar de l'Omniscient resta là, immobile.
 
 « Aucun indice, et mes essences sont intactes. Ce n'est qu'une intuition. Mon intuition peut-elle se tromper? Cet avatar est lié au corps originel de l'Omniscient, et je veux l'utiliser pour le trouver. Pourtant, pourquoi ai-je l'impression que cet avatar et ce lien ne sont que des éléments du plan de l'Omniscient... » Le cœur de Wang Lin trembla. Il avait du mal à croire ses propres spéculations.
 
-« Dans la Terre des Esprits Démoniaques, j'ai tué l'avatar de l'Omniscient avec *Sundered Night* et j'ai pris son âme comme trophée. Se pourrait-il que ce soit un acte délibéré de sa part... C'est... c'est trop incroyable! » Wang Lin se remémora les événements passés, mais ne trouvait aucune trace d'une manipulation orchestrée par l'Omniscient.
+« Dans la Terre des Esprits Démoniaques, j'ai tué l'avatar de l'Omniscient avec *Nuit Brisée* et j'ai pris son âme comme trophée. Se pourrait-il que ce soit un acte délibéré de sa part... C'est... c'est trop incroyable! » Wang Lin se remémora les événements passés, mais ne trouvait aucune trace d'une manipulation orchestrée par l'Omniscient.
 
 Fixant l'âme de l'avatar, l'expression de Wang Lin changeait sans cesse, devenant de plus en plus sombre. Il ne comprenait pas. Ses yeux s'illuminèrent et il disparut instantanément.
 

@@ -90,7 +90,7 @@ Toujours dans le Système d'Étoiles Antique, il y avait une immense faille. Dan
 
 « Que va-t-il faire... »
 
-Ils n'étaient pas les seuls à spéculer sur les intentions de Wang Lin. Même des êtres tels que le Maître Dao Miao Yin, le Maître Démon Nine Heaven et leurs compagnons sortirent de leur léthargie de guérison. Ils observaient les étoiles avec des expressions sombres.
+Ils n'étaient pas les seuls à spéculer sur les intentions de Wang Lin. Même des êtres tels que le Maître Dao Miao Yin, le Maître Démon Neuf Cieux et leurs compagnons sortirent de leur léthargie de guérison. Ils observaient les étoiles avec des expressions sombres.
 
 La présence de Wang Lin exerçait une pression immense sur eux en raison de l'arc qu'il tenait.
 

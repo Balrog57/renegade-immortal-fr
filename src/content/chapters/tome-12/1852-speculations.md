@@ -88,7 +88,7 @@ Tous les sommets étaient en pleine effervescence, à l'exception de la montagne
 
 En jetant un regard vers elle, il vit Fan Shanmeng assise, immobile dans sa grotte.
 
-Wang Lin songea un instant puis agita sa manche. Il ne retourna pas sur sa propre montagne, mais se dirigea vers les profondeurs de la secte, là où se trouvait l'Ancêtre Vert Taureau.
+Wang Lin songea un instant puis agita sa manche. Il ne retourna pas sur sa propre montagne, mais se dirigea vers les profondeurs de la secte, là où se trouvait l'Ancêtre Taureau Vert.
 
 « Salutations, Ancien Wang! »
 « Le disciple du Pic de la Combustion du Dao salue l'Ancien Wang! »
@@ -100,24 +100,24 @@ Wang Lin ne s'arrêta pas, se contentant de hocher la tête en passant. Sa cultu
 
 Peu après, le Pic Céleste Vert apparut devant lui. Wang Lin se téléporta pour se retrouver à l'extérieur du pic et s'adressa solennellement à la montagne:
 
-« Wang Lin demande à saluer l'Illustre Vert Taureau! »
+« Wang Lin demande à saluer l'Illustre Taureau Vert! »
 
 Le Pic Céleste Vert différait de sa visite précédente; il était désormais recouvert d'une fine couche de brume verdâtre. À ses paroles, la brume s'écarta pour révéler une ouverture.
 
-« Entre! » La voix de l'Illustre Vert Taureau résonna.
+« Entre! » La voix de l'Illustre Taureau Vert résonna.
 
-Wang Lin n'hésita pas et franchit l'ouverture. Une fois qu'il fut entré, la brume se referma derrière lui. Il suivit le chemin jusqu'au cœur du Pic Céleste Vert. Là, il vit l'Illustre Vert Taureau assis au loin, une âme d'origine solide ressemblant à une petite silhouette dans sa paume. Cette petite personne était en train de faire des prosternations devant l'Ancien.
+Wang Lin n'hésita pas et franchit l'ouverture. Une fois qu'il fut entré, la brume se referma derrière lui. Il suivit le chemin jusqu'au cœur du Pic Céleste Vert. Là, il vit l'Illustre Taureau Vert assis au loin, une âme d'origine solide ressemblant à une petite silhouette dans sa paume. Cette petite personne était en train de faire des prosternations devant l'Ancien.
 
 Wang Lin resta en retrait et observa silencieusement cette minuscule entité.
 
-Un instant plus tard, la petite personne effectua six prosternations consécutives, paraissant épuisée. L'Illustre Vert Taureau referma sa main, faisant disparaître la silhouette.
+Un instant plus tard, la petite personne effectua six prosternations consécutives, paraissant épuisée. L'Illustre Taureau Vert referma sa main, faisant disparaître la silhouette.
 
-« J'ai obtenu ton jade. Cette affaire sera comptée comme un mérite! » L'Illustre Vert Taureau ouvrit lentement les yeux et regarda Wang Lin avec un sourire.
+« J'ai obtenu ton jade. Cette affaire sera comptée comme un mérite! » L'Illustre Taureau Vert ouvrit lentement les yeux et regarda Wang Lin avec un sourire.
 
 « Le Continent du Démon Vert a eu de nombreux petits conflits avec mon Continent du Taureau Céleste, mais c'est la première fois qu'ils entreprennent une action d'une telle ampleur. Ils ont réellement trouvé un moyen de raffiner la Mer de Pilules... »
 
-« Cette affaire ne se réglera pas de sitôt. Le Continent du Démon Vert possède trois grandes sectes, et leurs Ancêtres sont tous au même niveau de culture que moi. Cependant, ce n'est pas un problème. Je peux affronter deux d'entre eux à moi seul! » Les yeux de l'Illustre Vert Taureau brillaient d'une lueur froide. Le fait qu'il prenne l'initiative de dire cela signifiait que ce qu'il percevait via le Dao de l'Œil de l'Âme n'était guère encourageant.
+« Cette affaire ne se réglera pas de sitôt. Le Continent du Démon Vert possède trois grandes sectes, et leurs Ancêtres sont tous au même niveau de culture que moi. Cependant, ce n'est pas un problème. Je peux affronter deux d'entre eux à moi seul! » Les yeux de l'Illustre Taureau Vert brillaient d'une lueur froide. Le fait qu'il prenne l'initiative de dire cela signifiait que ce qu'il percevait via le Dao de l'Œil de l'Âme n'était guère encourageant.
 
-L'expression de Wang Lin resta imperturbable. Il s'assit face à l'Illustre Vert Taureau et prit soudain la parole:
+L'expression de Wang Lin resta imperturbable. Il s'assit face à l'Illustre Taureau Vert et prit soudain la parole:
 
 « Je veux l'illusion multicouche du neuvième étage du Pavillon des Écritures de l'Âme! »

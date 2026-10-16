@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1424 - Dream Dao Plants Inner Demon
 slug: le-dao-des-reves-seme-un-demon-interieur
 ---
-Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Sundered Night était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait utiliser ce sort sans consumer sa propre énergie d'origine.
+Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Nuit Brisée était extrêmement puissant, mais la loi d'origine était trop rare. Ce n'était qu'à l'aube qu'il pouvait utiliser ce sort sans consumer sa propre énergie d'origine.
 
-Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Sundered Night par la force, il devrait altérer l'espace et la planète autour de lui pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
+Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Nuit Brisée par la force, il devrait altérer l'espace et la planète autour de lui pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
 
-Quant à Flowing Time, bien qu'elle fût inférieure à Sundered Night en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps est tout et il est invisible; il est comparable aux cieux.
+Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps est tout et il est invisible; il est comparable aux cieux.
 
 Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Daoïste Water. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
 
@@ -32,7 +32,7 @@ Le Dao des Rêves, bien que son nom paraisse complexe, était en réalité une f
 
 Il transformait l'intention de Dao de l'adversaire en un démon intérieur pour détruire son cœur de Dao! Même les cultivateurs qui ne pratiquaient pas le Dao possédaient un démon intérieur. Et ce démon intérieur, c'était Wang Lin!
 
-Les sorts de Dao étaient des techniques extrêmement mystérieuses. Même les cultivateurs de la troisième étape n'en possédaient que peu; en détenir un seul était déjà une grande chance. Même quelqu'un d'aussi puissant que le Maître du Dao Blue Dream n'en possédait que quelques-uns.
+Les sorts de Dao étaient des techniques extrêmement mystérieuses. Même les cultivateurs de la troisième étape n'en possédaient que peu; en détenir un seul était déjà une grande chance. Même quelqu'un d'aussi puissant que le Maître du Dao Rêve Bleu n'en possédait que quelques-uns.
 
 Le Dao des Rêves pouvait ramener une personne à son passé! Bien qu'il ne puisse pas disperser le Dao comme le sort du vieil homme dans le Royaume aux Sept Couleurs, Wang Lin pouvait implanter un faux souvenir!
 

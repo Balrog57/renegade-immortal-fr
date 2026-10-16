@@ -34,9 +34,9 @@ Dans la chambre secrète, Wang Lin s'assit. Les deux corps véritables se tenaie
 
 « Si ma culture peut encore augmenter, je pourrai peut-être expulser totalement la malédiction ancestrale dans l'âme de l'Empereur Céleste et en prendre le contrôle! » Wang Lin prit une profonde inspiration et détacha son regard de ses corps véritables. Il fixa l'âme qui brûlait sous son feu d'âme au centre de la pièce. Au cours de ces cent années de raffinage, la grisaille de la décomposition s'était condensée jusqu'à la taille d'un poing de nourrisson, mais elle ne pouvait être totalement expulsée.
 
-« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Célestes et les Empyreans Ascendants. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
+« Mon chemin de culture est radicalement différent de celui des autres. Après le pic du Tribulant du Vide, il y a les Exaltés Célestes et les Empyréens Ascendants. Mais ces titres n'ont été ajoutés que par autrui; en réalité, les deux font partie du pic du Tribulant du Vide. Et chaque fois que mon niveau augmente, cela repose sur la division des royaumes... » Wang Lin fut soudainement envahi par l'anticipation. Il voulait savoir quel serait son niveau après avoir franchi le pic du Tribulant du Vide.
 
-Ses yeux pétillèrent d'excitation tandis qu'il murmurait: « Grand Empyrée... Ou serait-ce... »
+Ses yeux pétillèrent d'excitation tandis qu'il murmurait: « Grand Empyréen... Ou serait-ce... »
 
 « Ou serait-ce... la quatrième étape! Mais la quatrième étape existe-t-elle vraiment dans ce monde... L'Ancêtre Ancien et l'Ancêtre Céleste étaient-ils au quatrième stade? » Les yeux de Wang Lin brillèrent, le cœur battant d'impatience. Il leva la main droite et le corps des cinq éléments s'avança. Il se superposa à Wang Lin et fusionna totalement avec lui.
 
@@ -48,11 +48,11 @@ En un clin d'œil, le corps d'essence de massacre atteignit Wang Lin. Il ne s'ar
 
 Au fil de la fusion, la confusion s'installa dans les yeux de Wang Lin. Simultanément, son niveau de culture grimpa à une vitesse indescriptible et le monde changea de couleur. Sa culture semblait avoir brisé un goulot d'étranglement pour gravir rapidement vers un royaume mystérieux.
 
-Durant ce processus, son niveau dépassa instantanément le stade de l'Exalté Céleste pour atteindre bientôt celui de l'Empyrean Ascendant.
+Durant ce processus, son niveau dépassa instantanément le stade de l'Exalté Céleste pour atteindre bientôt celui de l'Empyréen Ascendant.
 
 La progression ne montrait aucun signe d'arrêt. Les yeux de Wang Lin devinrent encore plus confus, comme s'il allait perdre la raison. Tout lui semblait n'être qu'une illusion.
 
-Alors que sa culture continuait de croître, elle dépassa l'Empyrean Ascendant pour franchir une autre frontière: celle d'un Grand Empyrée!
+Alors que sa culture continuait de croître, elle dépassa l'Empyréen Ascendant pour franchir une autre frontière: celle d'un Grand Empyréen!
 
 Après un temps indéterminé, le corps d'essence de massacre et Wang Lin étaient presque totalement fusionnés, malgré un léger chevauchement. On aurait dit qu'ils allaient devenir un seul être. Les yeux de Wang Lin libérèrent une lueur argentée, empreinte de confusion.
 

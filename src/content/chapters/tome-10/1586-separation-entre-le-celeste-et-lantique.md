@@ -26,7 +26,7 @@ Et ce qui avait été pêché, c’était la planète Suzaku et Wang Lin lui-mê
 
 La concubine impériale céleste qui n'avait pas péri se tenait hébétée entre eux deux. Elle recula de quelques pas, plongée dans le silence.
 
-L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Blue Dream n'avait pas eu pitié de vous, vous seriez déjà devenu le pion de ce vieil homme. » Il serra ensuite l'arc avec nonchalance, et la flèche trembla avant de se dissiper dans sa main.
+L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Rêve Bleu n'avait pas eu pitié de vous, vous seriez déjà devenu le pion de ce vieil homme. » Il serra ensuite l'arc avec nonchalance, et la flèche trembla avant de se dissiper dans sa main.
 
 Il redoutait la puissance de cette flèche, c'est pourquoi il avait retardé son apparition. Il avait attendu que Wang Lin utilise l'arme pour se révéler.
 
@@ -108,11 +108,11 @@ Dès l'apparition du palais, le monde s'obscurcit; le sang antique de Wang Lin a
 
 Alors que sa voix résonnait et que le sang coulait, la fenêtre du palais noir trembla. Des craquements sinistres retentirent et elle s'effondra soudainement. Un rugissement puissant et exalté jaillit de l'ouverture brisée.
 
-« Maudit Ye Mo! Tu as scellé ce vieux maître, Scarlet Soul, pendant d'innombrables années. Aujourd'hui, ce vieux est enfin libre! » Dans un fracas, une ombre rougejaunte chargea hors du palais. On ne pouvait distinguer son visage, elle n'était qu'une silhouette de sang. Une aura terrifiante l'accompagnait.
+« Maudit Ye Mo! Tu as scellé ce vieux maître, Âme Écarlate, pendant d'innombrables années. Aujourd'hui, ce vieux est enfin libre! » Dans un fracas, une ombre rougejaunte chargea hors du palais. On ne pouvait distinguer son visage, elle n'était qu'une silhouette de sang. Une aura terrifiante l'accompagnait.
 
 Le Souverain étant trop proche, il fut percuté par cette ombre de sang dès son apparition. Il fut projeté en arrière de plusieurs centaines de pieds et sa capuche vola, révélant son visage.
 
-« Maître Scarlet Soul! »
+« Maître Âme Écarlate! »
 
 L'ombre rougejaunte éclata de rire sans même accorder un regard au Souverain ou à Wang Lin. En un éclair, elle fonça vers la concubine impériale céleste au loin. L'ombre enveloppa la femme qui poussa un cri strident; son corps délicat fondit et fut dévoré par l'entité sanglante.
 

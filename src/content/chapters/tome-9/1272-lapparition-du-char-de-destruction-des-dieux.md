@@ -96,4 +96,4 @@ Il prédisait que dans 12 heures, l'ennemi qui cherchait sa mort arriverait, et 
 
 Même réparée, cette épée ne suffirait pas à contrer cette crise, et Wang Lin n'avait nullement l'intention de la restaurer; il était trop tard pour cela. Ce qu'il convoitait, c'étaient les taches de sang sur le fer!
 
-« Je ne trouve aucune trace de l'origine de ce sang, mais je sens qu'il contient une force inimaginable. Il ressemble au sang d'un Dieu Ancien, tout en étant différent. Il est même un peu semblable au sang céleste dont l'Empereur Divin du Dragon Azur a parlé. » Wang Lin ouvrit soudainement la bouche et inspira profondément. Il avala l'épée de fer et commença à la raffiner au sein de son âme originelle!
+« Je ne trouve aucune trace de l'origine de ce sang, mais je sens qu'il contient une force inimaginable. Il ressemble au sang d'un Dieu Ancien, tout en étant différent. Il est même un peu semblable au sang céleste dont l'Empereur Divin du Dragon Azure a parlé. » Wang Lin ouvrit soudainement la bouche et inspira profondément. Il avala l'épée de fer et commença à la raffiner au sein de son âme originelle!

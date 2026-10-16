@@ -82,7 +82,7 @@ Elle avait toujours été hautaine et orgueilleuse. Dans les Royaumes Intérieur
 
 Elle attendait l'arrivée du Maître Hong Shan ou du Maître South Cloud! À l'instant où le Maître Hong Shan arriva, une vague de glace jaillit et enveloppa le Royaume Intérieur.
 
-Les neuf planètes gelées du Système Stellaire Ancien tremblèrent. Le garçon à l'intérieur de la glace sourit et fit un pas en avant!
+Les neuf planètes gelées du Système Stellaire Antique tremblèrent. Le garçon à l'intérieur de la glace sourit et fit un pas en avant!
 
 Ce n'était pas son corps qui bougeait, mais l'immense bloc de glace!
 

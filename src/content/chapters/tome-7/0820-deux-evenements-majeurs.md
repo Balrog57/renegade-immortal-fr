@@ -156,7 +156,7 @@ En volant, l'ampleur de leurs déplacements fut telle qu'ils furent détectés p
 
 Dès que Wang Lin s'approcha, trois rayons de lumière jaillirent de la planète, révélant trois individus. Parmi eux se trouvaient un homme d'âge moyen et deux vieillards.
 
-Une forte fluctuation d'énergie d'origine émanait des trois; il était clair qu'ils étaient tous au stade de l'Illusoire Yin.
+Une forte fluctuation d'énergie d'origine émanait des trois; il était clair qu'ils étaient tous au stade de l'Yin Illusoire.
 
 À leur apparition, leurs visages étaient graves. L'homme d'âge moyen regarda Wang Lin et dit calmement: « Camarade cultivateur, vous arrivez avec une telle hâte; je me demande ce que vous voulez! »
 

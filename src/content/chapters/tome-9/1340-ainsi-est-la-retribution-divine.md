@@ -22,11 +22,11 @@ Zhang Jingyun et ses compagnons adoptèrent une formation de siège pour préven
 
 « Le frère Zhou est un peu trop prudent. Cet homme n'est qu'au stade initial de l'Ascendant. Oubliez nos quatre attaques conjointes, l'un seul d'entre nous pourrait le tuer à sa guise! De plus, avec Senior Zhao ici, cet individu ne peut rien faire! »
 
-« C'est vrai, Senior Zhao est au stade Illusoire Yin et n'est qu'à un pas du stade Corporel Yang. Il se situe bien au-dessus de la multitude, et en sa présence, nous suivrons naturellement ses directives. »
+« C'est vrai, Senior Zhao est au stade Yin Illusoire et n'est qu'à un pas du stade Corporel Yang. Il se situe bien au-dessus de la multitude, et en sa présence, nous suivrons naturellement ses directives. »
 
 « Une fois que nous aurons rassemblé les traces de Tonnerre Spirituel provenant de ces individus, nous pourrons enfin former un Tonnerre Spirituel complet. Nous irons ensuite au Temple du Cristal de Tonnerre pour l'échanger contre ces quatre épées volantes de rang céleste! »
 
-Il ne fallut pas longtemps avant que la formation entourant les centaines de cultivateurs ne scintille et ne montre des signes d'activation. Certains devinrent impatients, d'autres furent transportés par l'excitation. Ils appréciaient manifestement l'idée de devenir le Dao Céleste. Même le cultivateur au stade Illusoire Yin du groupe de Zhang Jingyun était dans le même état, ses lèvres se recourbant en un sourire.
+Il ne fallut pas longtemps avant que la formation entourant les centaines de cultivateurs ne scintille et ne montre des signes d'activation. Certains devinrent impatients, d'autres furent transportés par l'excitation. Ils appréciaient manifestement l'idée de devenir le Dao Céleste. Même le cultivateur au stade Yin Illusoire du groupe de Zhang Jingyun était dans le même état, ses lèvres se recourbant en un sourire.
 
 Un instant plus tard, la formation gronda et Wang Lin ouvrit les yeux.
 

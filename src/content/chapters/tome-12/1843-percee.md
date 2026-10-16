@@ -18,7 +18,7 @@ Pourtant, bien que le trio souhaitât la quiétude, le destin en décida autreme
 
 Lorsque ces paroles parvinrent à ses oreilles, le visage pâle du Tigre Blanc esquissa un sourire amer.
 
-« Il est inutile que vous parliez. Comment pourrais-je m'échapper seul?! Nous sommes entrés dans le monde des grottes ensemble et, si la mort de Azure Dragon était compréhensible, n'avions-nous pas convenu de rester ici jusqu'à notre dernier souffle? N'avions-nous pas promis de trouver trois juniors talentueux pour transmettre notre Dao... »
+« Il est inutile que vous parliez. Comment pourrais-je m'échapper seul?! Nous sommes entrés dans le monde des grottes ensemble et, si la mort de Dragon Azure était compréhensible, n'avions-nous pas convenu de rester ici jusqu'à notre dernier souffle? N'avions-nous pas promis de trouver trois juniors talentueux pour transmettre notre Dao... »
 
 « Nous n'avons encore rien accompli, alors comment pourrais-je vivre en m'enfuyant seul?! » Le Tigre Blanc poussa un rugissement alors qu'il s'élançait, portant la Tortue Noire et l'Oiseau Vermillon.
 

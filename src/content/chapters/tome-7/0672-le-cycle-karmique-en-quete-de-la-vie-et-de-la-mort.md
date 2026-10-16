@@ -34,7 +34,7 @@ L'homme d'âge mûr soupira également et dit: « Je dois retourner chez moi pou
 
 Les deux s'élancèrent vers le nord et le sud sous forme de rayons de lumière rouge. L'ancêtre de la famille Ran resta seul, réfléchissant longuement dans le silence. Puis, poussant un profond soupir, il regarda au loin et murmura: « Peu importe. Se ruiner pour éviter une catastrophe... La question d'il y a quatre ans sera portée par ce Xu Mu. S'il ne meurt pas, nous serons hors de danger. Bien que cet homme ne semble pas être du genre à rompre sa promesse, je dois tout de même surveiller secrètement qu'il ne quitte pas la planète Ran Yun. »
 
-À cet instant, dans la partie sud de la planète Thousand Illusion, au domaine ancestral de la famille Huan, le chef de la famille, Huan Fenshen, se tenait respectueusement aux côtés d'un vieil homme. Ce dernier était plutôt maigre; c'était le même homme qui avait ramené Liu Mei du Système Stellaire de l'Alliance.
+À cet instant, dans la partie sud de la planète Mille Illusions, au domaine ancestral de la famille Huan, le chef de la famille, Huan Fenshen, se tenait respectueusement aux côtés d'un vieil homme. Ce dernier était plutôt maigre; c'était le même homme qui avait ramené Liu Mei du Système Stellaire de l'Alliance.
 
 La voix du vieil homme était glaciale: « S'il a disparu il y a quatre ans, pourquoi ne traitons-nous la question que maintenant? »
 

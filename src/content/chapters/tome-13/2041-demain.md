@@ -66,7 +66,7 @@ Durant cette année, Wang Lin n'avait pas été traqué par le Mont Gu Dao, et l
 
 Au-delà de ce lieu se trouvait l'Ancien Shi.
 
-« L'endroit où nous nous sommes rencontrés... Est-ce Blackstone City? » Les cheveux noirs de la femme furent balayés par le vent, et quelques mèches s'envolèrent vers le visage de Wang Lin, s'entremêlant à ses cheveux blancs.
+« L'endroit où nous nous sommes rencontrés... Est-ce Ville de la Pierre Noire? » Les cheveux noirs de la femme furent balayés par le vent, et quelques mèches s'envolèrent vers le visage de Wang Lin, s'entremêlant à ses cheveux blancs.
 
 Wang Lin ne répondit pas et disparut progressivement avec elle dans la pluie.
 
@@ -78,13 +78,13 @@ Mais elle parlait de moins en moins. Face à Wang Lin, elle devenait de plus en 
 
 Elle avait peur, mais elle était impuissante.
 
-Wang Lin voyait tout cela, mais il n'expliqua rien. Ils approchaient de Blackstone City.
+Wang Lin voyait tout cela, mais il n'expliqua rien. Ils approchaient de Ville de la Pierre Noire.
 
 Plusieurs mois encore passèrent.
 
-Alors que le soleil se couchait sur une montagne déserte, Song Zhi regarda au loin et demanda à l'homme à ses côtés: « Arriverons-nous à Blackstone City demain? »
+Alors que le soleil se couchait sur une montagne déserte, Song Zhi regarda au loin et demanda à l'homme à ses côtés: « Arriverons-nous à Ville de la Pierre Noire demain? »
 
-Wang Lin venait de lui dire qu'ils atteindraient sa ville natale, Blackstone City, le lendemain.
+Wang Lin venait de lui dire qu'ils atteindraient sa ville natale, Ville de la Pierre Noire, le lendemain.
 
 Wang Lin hocha la tête.
 
@@ -92,7 +92,7 @@ Song Zhi réfléchit un instant, puis sourit en regardant Wang Lin. Elle contemp
 
 « Wan Er est très chanceuse... J'espère que vous et elle serez heureux pour toujours. »
 
-À midi le lendemain, Blackstone City se dessinait au loin. La cité de pierre noire apparut à ses yeux, procurant à Song Zhi un sentiment de retour chez soi.
+À midi le lendemain, Ville de la Pierre Noire se dessinait au loin. La cité de pierre noire apparut à ses yeux, procurant à Song Zhi un sentiment de retour chez soi.
 
 À moins de cinq cents mètres de la ville, Wang Lin s'arrêta. Song Zhi le regarda et murmura: « Puis-je... toucher ton visage? »
 
@@ -114,6 +114,6 @@ Une demi-heure plus tard, elle se réveilla, les yeux empreints de confusion. El
 
 À cet instant, le soleil était presque couché, sur le point de disparaître. Song Zhi se leva et toucha son cou, où elle trouva un pendentif en jade dégageant une douce chaleur.
 
-Elle sentait que le fragment d'âme de Wan Er avait disparu. Elle n'était plus Song Zhi, mais elle n'avait subi aucune blessure. Pourtant, une vague d'émotion traversa son cœur et ses yeux s'embuèrent. Après un long moment, elle se retourna et marcha vers Blackstone City, qui n'était plus très loin.
+Elle sentait que le fragment d'âme de Wan Er avait disparu. Elle n'était plus Song Zhi, mais elle n'avait subi aucune blessure. Pourtant, une vague d'émotion traversa son cœur et ses yeux s'embuèrent. Après un long moment, elle se retourna et marcha vers Ville de la Pierre Noire, qui n'était plus très loin.
 
 C'était sa maison.

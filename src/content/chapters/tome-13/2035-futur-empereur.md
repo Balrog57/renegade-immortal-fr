@@ -28,7 +28,7 @@ Wang Lin se tint devant Luo Chen et contempla ce visage familier.
 
 « Toi... Quand t'es-tu séparé du Serpent aux yeux de lune? » demanda Wang Lin.
 
-« Après avoir suivi Lord Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empereur et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
+« Après avoir suivi Seigneur Xuan ici, ce dernier m'a aidé à me séparer du Serpent aux yeux de lune », répondit calmement l'homme en fixant Wang Lin. Il se rappelait sa première rencontre avec le jeune homme et la faiblesse dont il faisait alors preuve. Désormais, Wang Lin était devenu un Grand Empereur et avait même tué l'Empereur de l'Ancient Dao. L'Empereur Saint de l'Ancient Dao n'avait pu que regarder Wang Lin partir.
 
 La mer bleue se transformant en champs de mûriers — c'était une expression utilisée pour décrire un changement radical de paysage, mais en cet instant, c'était précisément ce que ressentait Luo Chen.
 
@@ -50,7 +50,7 @@ Luo Chen hocha la tête. À son arrivée dans l'Ancient Dao, il avait tout appri
 
 « Aide-moi à prendre soin des descendants de Ye Mo. » Wang Lin leva les yeux vers l'horizon de la cité impériale.
 
-« À vos ordres. Je réside actuellement dans le manoir de Lord Ye Mo », répondit promptement Luo Chen. Lorsqu'il était arrivé, il n'avait point de foyer; il avait choisi de ne pas loger au Temple de l'Ancient Dao pour suivre sa lignée vers les descendants de Ye Mo. Bien que ceux-ci fassent partie de la famille royale, ils avaient décliné et ne possédaient plus qu'un seul manoir.
+« À vos ordres. Je réside actuellement dans le manoir de Seigneur Ye Mo », répondit promptement Luo Chen. Lorsqu'il était arrivé, il n'avait point de foyer; il avait choisi de ne pas loger au Temple de l'Ancient Dao pour suivre sa lignée vers les descendants de Ye Mo. Bien que ceux-ci fassent partie de la famille royale, ils avaient décliné et ne possédaient plus qu'un seul manoir.
 
 Les descendants de Ye Mo avaient néanmoins accepté de l'accueillir.
 
@@ -72,7 +72,7 @@ Xuan Luo fixa longuement la direction prise par Wang Lin et poussa un soupir pro
 
 « Si je me souviens bien, ton nom est Luo Chen, n'est-ce pas? »
 
-« Luo Chen salue Lord Xuan. » La lumière argentée s'était dissipée, semblant se condenser à l'intérieur du corps de Luo Chen. En entendant la voix de Xuan Luo, il s'agenouilla avec un immense respect.
+« Luo Chen salue Seigneur Xuan. » La lumière argentée s'était dissipée, semblant se condenser à l'intérieur du corps de Luo Chen. En entendant la voix de Xuan Luo, il s'agenouilla avec un immense respect.
 
 Xuan Luo observa Luo Chen, semblant peser une décision. Un instant plus tard, son regard devint résolu et il acquiesça.
 
@@ -80,7 +80,7 @@ Xuan Luo observa Luo Chen, semblant peser une décision. Un instant plus tard, s
 
 Ye Wei manifesta une certaine hésitation face à Luo Chen, puis, après un long silence, elle soupira.
 
-« Je vais poursuivre ma culture en reclusion. Quant au candidat royal, je laisse Lord Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
+« Je vais poursuivre ma culture en reclusion. Quant au candidat royal, je laisse Seigneur Xuan décider. » Elle se détourna vers le cercueil baigné d'une lueur violette. Tandis que la lumière s'estompait, le cercueil s'enfonça de nouveau dans le sol.
 
 Jusqu'ici, le Grand Empereur Gu Dao n'était jamais apparu. Même ses messagers restaient absents, comme s'ils évitaient délibérément la situation.
 

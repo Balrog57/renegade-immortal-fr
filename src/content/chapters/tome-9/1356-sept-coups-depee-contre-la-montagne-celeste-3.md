@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1356 - Seven Sword Chops the Heavenly Mountain (3)
 slug: sept-coups-depee-contre-la-montagne-celeste-3
 ---
-Les yeux du Taoïste Scattered Spirit étaient empreints de tristesse, comme s'il ne voulait pas activer cette formation, mais il le devait. Il n'avait jamais rien imposé à quiconque; ses enseignements taoïstes s'étaient diffusés au fil des âges auprès d'innombrables cultivateurs et mortels...
+Les yeux du Taoïste Esprit Dispersé étaient empreints de tristesse, comme s'il ne voulait pas activer cette formation, mais il le devait. Il n'avait jamais rien imposé à quiconque; ses enseignements taoïstes s'étaient diffusés au fil des âges auprès d'innombrables cultivateurs et mortels...
 
 « Le monde dans lequel nous vivons est une illusion. Le Royaume Céleste dont on nous a parlé est un mensonge. Nous devons briser ce monde ensemble pour découvrir la vérité, pour sortir de cette existence et devenir de véritables... êtres humains! Tel est mon Dao! »
 
@@ -20,7 +20,7 @@ Les cultivateurs des 7 Millions de Mondes sortirent tous de leurs sectes respect
 
 « Nous ne sommes pas des cultivateurs stupides, nous ne sommes pas des êtres qui permettraient à autrui de nous détruire par la rétribution divine; nous avons chair et sang, nous connaissons la joie et la tristesse. Cultiver pour devenir un être céleste est le Grand Dao, et nous voulons atteindre le Royaume Céleste. Cependant, ce Royaume Céleste est faux, alors nous allons le détruire et devenir nous-mêmes des êtres célestes! »
 
-D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Taoïste Scattered Spirit pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa!
+D'innombrables cultivateurs au sommet de la Formation de l'Âme, dont la culture avait été scellée par le Taoïste Esprit Dispersé pour ne pas attirer la rétribution divine, sortirent de leurs cachettes. Ils contemplèrent le ciel d'un regard farouche, et leur puissance de volonté explosa!
 
 « Nous sommes des humains, pas du bétail destiné à l'abattoir. Nous sommes des cultivateurs, pas des outils que le Royaume Céleste utilise pour collecter la Foudre Spirituelle! Le Royaume Céleste s'effondrera et le monde se brisera. Nous voulons sortir de cette cage! »
 
@@ -32,7 +32,7 @@ Ce pouvoir était invincible; même le Dao Céleste tremblerait devant une telle
 
 Il ne s'agissait pas de la volonté d'un seul homme, mais de la volonté défiant les cieux d'innombrables êtres vivants des 7 Millions de Mondes!
 
-« J'utilise la chair et le sang de mes 7 Millions de Mondes pour briser ce sceau qui empêche toute force extérieure de pénétrer! » La voix puissante du Taoïste Scattered Spirit se propagea dans chaque recoin des 7 Millions de Mondes!
+« J'utilise la chair et le sang de mes 7 Millions de Mondes pour briser ce sceau qui empêche toute force extérieure de pénétrer! » La voix puissante du Taoïste Esprit Dispersé se propagea dans chaque recoin des 7 Millions de Mondes!
 
 Alors que sa voix résonnait, sa puissance augmenta soudainement, devenant toujours plus forte, formant une tempête déchaînée. Cette tempête était d'une puissance extrême, une chose que Wang Lin n'avait jamais vue de toute sa vie!
 
@@ -66,15 +66,15 @@ Les cultivateurs crachaient également du sang, mais libérant une volonté enco
 
 Ils n'avaient aucune voie de retraite!
 
-Les yeux du Maître Scatter Spirit étaient remplis d'une tristesse infinie alors qu'il s'asseyait et fermait les yeux. En fermant les paupières, il sembla se dissoudre dans le monde pour ne faire qu'un avec les 7 Millions de Mondes.
+Les yeux du Maître Esprit Dispersé étaient remplis d'une tristesse infinie alors qu'il s'asseyait et fermait les yeux. En fermant les paupières, il sembla se dissoudre dans le monde pour ne faire qu'un avec les 7 Millions de Mondes.
 
-À cet instant, une lumière immense émana du Taoïste Scattered Spirit. Il devint le centre de la tempête des 7 Millions de Mondes et gagna en puissance!
+À cet instant, une lumière immense émana du Taoïste Esprit Dispersé. Il devint le centre de la tempête des 7 Millions de Mondes et gagna en puissance!
 
 C'était comme si la formation avait acquis un esprit de formation!
 
 La tempête rugissait. Peu importait le nombre de bombardements de l'éclair éternel, la tempête ne bougeait pas!
 
-Une épée cristalline commença à se condenser au cœur de cette tempête. Dès son apparition, le monde trembla et elle flotta au-dessus du Taoïste Scattered Spirit.
+Une épée cristalline commença à se condenser au cœur de cette tempête. Dès son apparition, le monde trembla et elle flotta au-dessus du Taoïste Esprit Dispersé.
 
 Cette épée mesurait sept pieds de long pour trois pouces de large. Elle était radieuse et dégageait une lueur éblouissante!
 

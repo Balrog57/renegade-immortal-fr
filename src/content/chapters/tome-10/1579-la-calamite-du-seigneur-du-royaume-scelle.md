@@ -54,13 +54,13 @@ Dans le ciel azur, la lumière bleue se condensa lentement pour former une silho
 
 Wang Lin joignit les mains et dit calmement: « Wang Lin salue le Maître du Dao. »
 
-Le Maître du Dao Blue Dream observa silencieusement Wang Lin. Le temps passa lentement. Après un long moment, l'expression tourmentée dans ses yeux s'effaça pour laisser place à une résolution ferme, puis il prit la parole:
+Le Maître du Dao Rêve Bleu observa silencieusement Wang Lin. Le temps passa lentement. Après un long moment, l'expression tourmentée dans ses yeux s'effaça pour laisser place à une résolution ferme, puis il prit la parole:
 
 « La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les cultivateurs du Vide Arcanique du Royaume Extérieur. Les concubines impériales célestes ont également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
 
 « Ce monde ne peut subsister que trois heures... Durant ces trois heures, tu... trouveras difficile d'échapper à la mort!
 
-« Ce vieil homme te connaît, alors je suis venu te prévenir. Si tu veux blâmer quelqu'un, blâme le fait que tu sois... le Seigneur du Royaume Scellé! Le Seigneur du Royaume Scellé doit mourir! » Le Maître du Dao Blue Dream soupira, et sa silhouette se changea en une multitude de particules bleues qui se dissipèrent dans le vide.
+« Ce vieil homme te connaît, alors je suis venu te prévenir. Si tu veux blâmer quelqu'un, blâme le fait que tu sois... le Seigneur du Royaume Scellé! Le Seigneur du Royaume Scellé doit mourir! » Le Maître du Dao Rêve Bleu soupira, et sa silhouette se changea en une multitude de particules bleues qui se dissipèrent dans le vide.
 
 Alors qu'ils disparaissaient, de violentes ondulations secouèrent le ciel. Une silhouette émergea de ces remous. La forme était floue, on ne pouvait deviner qu'il s'agissait d'un vieil homme en robes grises.
 

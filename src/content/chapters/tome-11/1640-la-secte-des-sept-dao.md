@@ -44,7 +44,7 @@ Sa culture était mystérieuse; il avait fondé sa propre secte et rassemblé un
 
 Avec le temps, le vieil homme finit par devenir l'un des Cent Soldats Célestes, un expert puissant de la Secte des Sept Dao!
 
-Il n'était surpassé que par l'Oiseau Vermillon, le Dragon Azur, le Tigre Blanc et la Tortue Noire. Son statut était immense, et il pouvait obtenir toutes les lois et pilules qu'il désirait.
+Il n'était surpassé que par l'Oiseau Vermillon, le Dragon Azure, le Tigre Blanc et la Tortue Noire. Son statut était immense, et il pouvait obtenir toutes les lois et pilules qu'il désirait.
 
 Jusqu'au jour où...
 

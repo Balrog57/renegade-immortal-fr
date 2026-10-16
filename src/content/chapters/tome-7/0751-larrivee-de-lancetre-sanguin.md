@@ -16,9 +16,9 @@ De plus, même s'il n'avait pas été là, le destin de Ge Hong était scellé d
 
 « Pourtant, le regard de Ge Hong était étrange. Pourquoi a-t-elle voulu se retourner pour contempler la statue de pierre juste avant de mourir... »
 
-Li Yuan prit une profonde inspiration avant de se tourner vers Wang Lin et de dire d'un ton calme: « Frère Xu, mes restrictions ne sauraient égaler celles de mon ancêtre. Ce que je demande au frère Xu, c'est le sort qui vous a permis d'empêcher le cultivateur de l'Illusoire Yin de s'échapper! »
+Li Yuan prit une profonde inspiration avant de se tourner vers Wang Lin et de dire d'un ton calme: « Frère Xu, mes restrictions ne sauraient égaler celles de mon ancêtre. Ce que je demande au frère Xu, c'est le sort qui vous a permis d'empêcher le cultivateur de l'Yin Illusoire de s'échapper! »
 
-L'expression de Wang Lin resta neutre, mais son esprit s'agita. Par sa réponse, il pourrait déterminer si Li Yuan avait réellement été témoin de son combat contre le cultivateur de l'Illusoire Yin et l'avait vu utiliser le sort d'Arrêt!
+L'expression de Wang Lin resta neutre, mais son esprit s'agita. Par sa réponse, il pourrait déterminer si Li Yuan avait réellement été témoin de son combat contre le cultivateur de l'Yin Illusoire et l'avait vu utiliser le sort d'Arrêt!
 
 « Dans toute ma vie, c'était la première fois que je voyais un sort comme celui du frère Xu. Ce sort est d'une puissance telle qu'on peut le considérer comme inégalable; tout se fige en un instant. Avec l'aide du frère Xu, je suis convaincu de pouvoir briser totalement la statue de pierre et de restaurer la liberté de ma famille Li. »
 

@@ -20,7 +20,7 @@ Traverser le vide aurait dû être une affaire fort ennuyeuse. Après tout, le v
 
 Au début, Wang Lin n'y prêta pas attention, mais un mois plus tard, ils commencèrent à croiser de plus en plus de cultivateurs.
 
-La plupart d'entre eux étaient au stade de l'Ascendant, et occasionnellement, on pouvait apercevoir un cultivateur du stade Illusoire Yin.
+La plupart d'entre eux étaient au stade de l'Ascendant, et occasionnellement, on pouvait apercevoir un cultivateur du stade Yin Illusoire.
 
 Ils voyageaient seuls, en groupes de deux ou trois, ou accompagnés de leurs membres familiaux, défilant à toute vitesse. Ce phénomène attira l'attention de Wang Lin et Li Yuan.
 
@@ -52,7 +52,7 @@ Wang Lin garda un regard calme tandis qu'il observait silencieusement ces éclai
 
 Ces rayons d'énergie d'épée ne ralentirent pas et continuèrent leur course dans le vide. Cependant, juste au moment où ils étaient sur le point de disparaître, l'un d'eux tourna soudainement pour foncer vers Wang Lin.
 
-Simultanément, tous les rayons d'énergie d'épée s'arrêtèrent, se transformant en divers cultivateurs masculins et féminins. Tous possédaient un niveau de culture supérieur à celui de l'Ascendant. La plupart étaient au stade Illusoire Yin, et seuls quelques-uns atteignaient le stade Corporel Yang.
+Simultanément, tous les rayons d'énergie d'épée s'arrêtèrent, se transformant en divers cultivateurs masculins et féminins. Tous possédaient un niveau de culture supérieur à celui de l'Ascendant. La plupart étaient au stade Yin Illusoire, et seuls quelques-uns atteignaient le stade Corporel Yang.
 
 Une fois leurs silhouettes révélées, tous fixèrent le rayon d'énergie qui volait vers Wang Lin, les yeux emplis de perplexité.
 

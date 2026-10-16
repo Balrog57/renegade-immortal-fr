@@ -68,7 +68,7 @@ Le vieil homme fut stupéfait.
 
 « Cependant, l'eau est différente. On ne peut sous-estimer la ténacité de l'eau. Une fois accumulée en quantité suffisante, la puissance qu'elle peut supporter est phénoménale. Si le même coup frappait la mer, la force de réaction suffirait à faire imploser une personne! »
 
-Le vieux Vermillion Bird fixait Wang Lin, les yeux écarquillés. La crainte qu'il avait ressentie en découvrant les cinq essences du jeune homme refaisait surface.
+Le vieux Oiseau Vermillon fixait Wang Lin, les yeux écarquillés. La crainte qu'il avait ressentie en découvrant les cinq essences du jeune homme refaisait surface.
 
 « Une telle compréhension des lois célestes est une chose que je n'ai jamais vue auparavant. Cette clairvoyance est plus puissante que n'importe quel talent inné! L'obtention de ces essences n'était donc pas un coup de chance pour cet enfant! » Le vieil Oiseau Vermillon prit une profonde inspiration, son regard envers Wang Lin devenant encore plus étrange.
 
@@ -80,7 +80,7 @@ Dans les souvenirs divins de Wang Lin, une telle méthode d'utilisation de la fo
 
 Lorsqu'il repensa à son combat contre Tuo Sen, il était évident que ce dernier était bien plus fort. Leur affrontement n'avait été qu'un combat d'enfant contre un adulte! Il n'était pas exagéré de dire qu'il ne savait utiliser que la force brute des Dieux Anciens.
 
-Le vieux Vermillion Bird déglutit et soupira intérieurement. Ayant vécu si longtemps, il était devenu un vieil homme monstrueux et savait parfaitement jouer la comédie. Il dit lentement: « Bien, tout ce que tu as énoncé sont de simples vérités, précisément ce que je voulais te transmettre. »
+Le vieux Oiseau Vermillon déglutit et soupira intérieurement. Ayant vécu si longtemps, il était devenu un vieil homme monstrueux et savait parfaitement jouer la comédie. Il dit lentement: « Bien, tout ce que tu as énoncé sont de simples vérités, précisément ce que je voulais te transmettre. »
 
 Mais intérieurement, il fulminait: « Malédiction, je ne peux pas laisser ce gamin me démasquer. S'il découvre que ce vieil homme n'avait même pas pu comprendre cela à l'époque, toute ma dignité d'Ancien sera réduite à néant... Si j'avais su, je lui aurais transmis les sorts secrets du Tigre Blanc ou du Dragon Azure. Ces techniques ne sont pas destinées aux humains. Avec la compréhension de ce petit monstre, il devrait plutôt étudier ces choses-là. »
 
@@ -92,7 +92,7 @@ Wang Lin observa attentivement cette Flamme Éthérée et fut secrètement stup�
 
 « Cette Flamme Éthérée... Elle ne dégage aucune chaleur, et pourtant, elle donne l'illusion que mon âme est en train de brûler! »
 
-Grâce à la puissance de culture du vieux Vermillion Bird, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
+Grâce à la puissance de culture du vieux Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
 
 Dix mille cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
 

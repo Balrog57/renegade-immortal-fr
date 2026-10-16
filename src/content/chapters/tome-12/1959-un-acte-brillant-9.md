@@ -40,7 +40,7 @@ Ils se remémoraient leurs pensées lorsqu'il venait à peine de franchir le cin
 
 Désormais, ils ne pouvaient que lever les yeux vers cette silhouette céleste!
 
-Même Snow Rain et ses compagnons restaient silencieux, plongés dans leurs réflexions, mais la complexité de leurs sentiments s'était considérablement estompée. Après tout, l'écart était trop vaste — assez grand pour balayer toute autre pensée.
+Même Pluie de Neige et ses compagnons restaient silencieux, plongés dans leurs réflexions, mais la complexité de leurs sentiments s'était considérablement estompée. Après tout, l'écart était trop vaste — assez grand pour balayer toute autre pensée.
 
 « À l'époque, l'Ascendant Ming Dao s'était arrêté au 13e palais... Je me demande si cet homme pourra le surpasser... »
 
@@ -50,7 +50,7 @@ Quant à l'Ascendant Tiny Child, son visage était pâle après tout ce qu'il av
 
 « Le 13e palais... Il ne pourra certainement pas le passer!! »
 
-Plus de vingt Ascendants étaient venus ici avec Snow Rain et ses compagnons. Éparpillés dans l'Épreuve Empyréenne, ils observaient le ciel, témoins de cet événement historique!
+Plus de vingt Ascendants étaient venus ici avec Pluie de Neige et ses compagnons. Éparpillés dans l'Épreuve Empyréenne, ils observaient le ciel, témoins de cet événement historique!
 
 « Je me demande s'il pourra franchir le 13e palais... »
 

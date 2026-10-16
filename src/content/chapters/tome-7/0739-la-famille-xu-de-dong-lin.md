@@ -18,7 +18,7 @@ Wang Lin restait debout sur la terre ferme, levant calmement les yeux vers le ci
 
 Alors que le fantôme démoniaque approchait, le jeune homme au sommet baissa les yeux vers Wang Lin et lâcha froidement: « Tu cherches la mort! » Sans bouger, il fit converger la pluie environnante qui se condensa rapidement pour jaillir vers lui. La pluie prit la forme de flèches perçant l'air, fonçant sur Wang Lin dans un étrange sifflement.
 
-Le jeune homme se trouvait au stade Illusoire Yin, et il était évident qu'il n'était pas novice en matière de culture. Bien qu'il ne fût pas au sommet, il atteignait déjà le stade intermédiaire.
+Le jeune homme se trouvait au stade Yin Illusoire, et il était évident qu'il n'était pas novice en matière de culture. Bien qu'il ne fût pas au sommet, il atteignait déjà le stade intermédiaire.
 
 Sa culture pouvait rivaliser avec celle du Daoïste du Tonnerre, et ses sorts démoniaques le rendaient encore plus redoutable. Même le Daoïste du Tonnerre n'aurait pas nécessairement l'avantage contre lui.
 
@@ -30,7 +30,7 @@ Perché sur le fantôme démoniaque, le jeune homme déclara d'un ton calme et l
 
 Pourtant, avant qu'il n'ait fini sa phrase, Wang Lin ne recula pas; il avança au contraire. Il était déjà irrité par son enfermement dans le tunnel, et ce jeune homme qui l'attaquait avec une telle intention meurtrière n'arrangeait rien. C'était comme si, aux yeux de tous, il était si faible qu'on pouvait l'attaquer à sa guise.
 
-« Il semble que j'aie été trop discret dans le Système Stellaire de Luotian. » Si le jeune homme avait été au stade Corporel Yang, Wang Lin aurait peut-être hésité avant de battre en retraite. Mais il avait déjà tué des cultivateurs du stade Illusoire Yin par le passé; il marcha donc droit vers le fantôme.
+« Il semble que j'aie été trop discret dans le Système Stellaire de Luotian. » Si le jeune homme avait été au stade Corporel Yang, Wang Lin aurait peut-être hésité avant de battre en retraite. Mais il avait déjà tué des cultivateurs du stade Yin Illusoire par le passé; il marcha donc droit vers le fantôme.
 
 « Utiliser des sorts démoniaques devant moi! J'ai même combattu un démon errant! » D'un pas, Wang Lin s'élança dans les airs. Il leva sa main droite et son âme originelle s'anima. Une immense quantité de tonnerre jaillit de son corps pour se rassembler rapidement dans sa paume.
 
@@ -88,7 +88,7 @@ Ce coup représentait l'apogée de la puissance de la garde céleste; un coup ca
 
 L'enchaînement des événements le prit totalement au dépourvu. Entre l'attaque lente du début et la fulgurance qui suivit, le jeune homme ressentit une crise de vie ou de mort qu'il n'avait pas éprouvée depuis très longtemps. Il n'hésita pas à battre en retraite précipitamment, car ce coup lui fit frissonner les chairs.
 
-Il avait le sentiment que s'il ne reculait pas et qu'il subissait cet impact, même avec sa culture au stade Illusoire Yin, il mourrait sans aucun doute!
+Il avait le sentiment que s'il ne reculait pas et qu'il subissait cet impact, même avec sa culture au stade Yin Illusoire, il mourrait sans aucun doute!
 
 Alors que le jeune homme se repliait, le coup de poing de la garde céleste explosa. Sans hésiter, il se mordit la langue et cracha un sang d'essence chargé d'énergie originelle.
 

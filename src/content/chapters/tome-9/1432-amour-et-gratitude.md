@@ -22,7 +22,7 @@ Wang Lin était complètement figé et son esprit bourdonnait. Il resta silencie
 
 « Tant que vous acceptez de devenir le soldat de ce vieil homme, je pourrai tout accomplir pour vous! » La voix était faible, mais elle possédait quelque chose de magique qui sembla s'imprégner dans le corps de Wang Lin.
 
-Un tourment s'afficha dans les yeux de Wang Lin. Sa lutte intérieure n'avait jamais été aussi intense. Ni la proposition du Maître Dao Blue Dream ni les paroles de la première génération de l'Oiseau Vermillon ne pouvaient être comparées! Aucune d'elles n'avait directement frappé le point le plus vulnérable de son cœur!
+Un tourment s'afficha dans les yeux de Wang Lin. Sa lutte intérieure n'avait jamais été aussi intense. Ni la proposition du Maître Maître du Dao Rêve Bleu ni les paroles de la première génération de l'Oiseau Vermillon ne pouvaient être comparées! Aucune d'elles n'avait directement frappé le point le plus vulnérable de son cœur!
 
 Lorsque la proposition atteignit son cœur dao, l'impact fut comparable à celui de « Pêcher la Lune dans le Puits », et elle remonta jusqu'à l'âme de Wang Lin!
 
@@ -88,7 +88,7 @@ Pour ressusciter sa sœur, le Maître Simo avait abandonné la Secte Brisant les
 
 S'il n'avait pas vu les souvenirs du Maître Simo, le choix de Wang Lin aurait été encore plus déchirant.
 
-S'il n'avait pas connu la proposition du Maître Dao Blue Dream ou les paroles de la première génération d'Oiseau Vermillon, Wang Lin n'aurait peut-être jamais pu prendre la décision la plus cruciale de sa vie!
+S'il n'avait pas connu la proposition du Maître Maître du Dao Rêve Bleu ou les paroles de la première génération d'Oiseau Vermillon, Wang Lin n'aurait peut-être jamais pu prendre la décision la plus cruciale de sa vie!
 
 Une décision douloureuse, mais qu'il devait faire!
 

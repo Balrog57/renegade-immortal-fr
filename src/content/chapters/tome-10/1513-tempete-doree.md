@@ -42,7 +42,7 @@ C'était là la folie du Daoïste Eau: enterrer toute la Mer Nuageuse pour tuer 
 
 « Qui ose me tuer?! Qui peut me tuer?! » Le rire du Daoïste Eau était délirant. Il avait les raisons de rire. En tant que cultivateur de la troisième étape, personne n'était faible! Bien qu'il n'ait pas tout prévu, il avait un plan global. Il allait faire exploser la cloche dorée pour anéantir toute la Mer Nuageuse. Il était certain que cette tempête dorée causerait un impact majeur sur la Formation de Scellement du Royaume!
 
-Il était fort probable qu'une brèche apparaisse dans la formation. Il pourrait alors s'échapper vers le Système Stellaire Ancien. Fort de son immense mérite, il pourrait y faire tout ce qu'il souhaitait!
+Il était fort probable qu'une brèche apparaisse dans la formation. Il pourrait alors s'échapper vers le Système Stellaire Antique. Fort de son immense mérite, il pourrait y faire tout ce qu'il souhaitait!
 
 La tempête dorée grondait. Elle était sur le point de se propager et d'effondrer toute la Mer Nuageuse. Tous les continents flottants tremblèrent. Ce tremblement était le signe de l'effondrement d'un système stellaire!
 

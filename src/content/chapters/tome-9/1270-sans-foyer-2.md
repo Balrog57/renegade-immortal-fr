@@ -26,7 +26,7 @@ L'amertume sur le visage de Li Qianmei s'intensifia, mais sa détermination devi
 
 « Je veux y aller... »
 
-« Une personne ordinaire ne peut pas forcer la Secte Divine à annuler un concours de rang 8. Cet ordre a été émis par l'Ancien Supérieur de la Secte Divine, le Daoïste Water! Peux-tu faire quoi que ce soit face au Daoïste Water? Peux-tu l'arrêter? Oublie cela, même si toute ma Secte Heaven Breaking s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
+« Une personne ordinaire ne peut pas forcer la Secte Divine à annuler un concours de rang 8. Cet ordre a été émis par l'Ancien Supérieur de la Secte Divine, le Daoïste Water! Peux-tu faire quoi que ce soit face au Daoïste Water? Peux-tu l'arrêter? Oublie cela, même si toute ma Secte Brise-Ciel s'y rendait, cela servirait-il à quelque chose? » Le maître de Li Qianmei ferma les yeux.
 
 Li Qianmei se mordit la lèvre inférieure jusqu'au sang... La détermination dans ses yeux ne faiblit pas, elle devint plus ardente encore.
 
@@ -52,15 +52,15 @@ Le visage du maître de Li Qianmei était extrêmement sombre, empreint de doule
 
 « La disciple a déjà pris sa décision, je vous en prie, laissez-moi partir... » Li Qianmei regarda amèrement son maître.
 
-« Une fois que tu auras franchi les limites de la formation, tu ne feras plus partie de la Secte Heaven Breaking, et tu ne seras plus ma disciple. Dès lors, tu n'auras plus besoin de m'appeler "Maître", car une fois dehors, tu n'auras plus de maître! Réfléchis-y bien! » Le maître de Li Qianmei agita sa manche et la formation entourant Li Qianmei s'effondra. Les barrières se dispersèrent dans toutes les directions, libérant Li Qianmei.
+« Une fois que tu auras franchi les limites de la formation, tu ne feras plus partie de la Secte Brise-Ciel, et tu ne seras plus ma disciple. Dès lors, tu n'auras plus besoin de m'appeler "Maître", car une fois dehors, tu n'auras plus de maître! Réfléchis-y bien! » Le maître de Li Qianmei agita sa manche et la formation entourant Li Qianmei s'effondra. Les barrières se dispersèrent dans toutes les directions, libérant Li Qianmei.
 
-L'expression des anciens de la Secte Heaven Breaking changea radicalement, et l'un d'eux s'écria: « Maître de Secte, quelles sont vos intentions?! »
+L'expression des anciens de la Secte Brise-Ciel changea radicalement, et l'un d'eux s'écria: « Maître de Secte, quelles sont vos intentions?! »
 
 « Dégagez! » Le maître de Li Qianmei redressa soudainement la tête et poussa un rugissement. L'aura de celui qui avait surmonté la troisième Calamité Céleste jaillit de son corps. Les trois anciens crachèrent du sang et furent projetés en arrière.
 
 « Li Qianmei, ton Maître attend ton choix! » Le regard du maître de Li Qianmei se posa sur elle. Bien que sa voix fût calme, elle tremblait imperceptiblement.
 
-Li Qianmei fixa son maître, et le vide dans son cœur s'agrandit encore. Cette sensation se mua en une douleur extrême qui lui déchirait la poitrine. La Secte Heaven Breaking était sa maison... Son maître était comme un père... Pourtant, à cet instant, elle devait faire face à un choix!
+Li Qianmei fixa son maître, et le vide dans son cœur s'agrandit encore. Cette sensation se mua en une douleur extrême qui lui déchirait la poitrine. La Secte Brise-Ciel était sa maison... Son maître était comme un père... Pourtant, à cet instant, elle devait faire face à un choix!
 
 Le silence devint total alors que Li Qianmei affichait une expression de détresse absolue. Elle baissa la tête et s'agenouilla, effectuant six prosternations. En la regardant, les yeux de son maître ne trahissaient que regret et douleur.
 
@@ -72,13 +72,13 @@ Li Qianmei fixa longuement son maître. Des larmes coulèrent une dernière fois
 
 Après le départ de Li Qianmei, son maître ferma les yeux. La douleur qui lui serrait le cœur envahit tout son corps.
 
-Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense le Senior Daoïste Water et met la Secte Divine en colère, notre Secte Heaven Breaking n'en pourra pas subir les conséquences! Je dois informer la Secte Divine de cette affaire. Si la Secte Divine se fâche, vous devrez en payer le prix! »
+Un ancien, projeté au loin, rugit: « Maître de Secte! Si Li Qianmei offense le Senior Daoïste Water et met la Secte Divine en colère, notre Secte Brise-Ciel n'en pourra pas subir les conséquences! Je dois informer la Secte Divine de cette affaire. Si la Secte Divine se fâche, vous devrez en payer le prix! »
 
 Le maître de Li Qianmei se retourna brusquement et hurla vers l'ancien braillard: « Dégage, dégage, dégage!! » Sa culture du Fléau Céleste éclata, forçant l'ancien à cracher sans cesse du sang tandis qu'il était renvoyé comme un cerf-volant brisé. Dans un fracas, son corps s'effondra et son âme originelle s'échappa en terrifiant.
 
-« La Secte Heaven Breaking a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Daoïste Water, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
+« La Secte Brise-Ciel a été l'esclave de la Secte Divine pendant des dizaines de milliers d'années. Vous tous, vous êtes devenus comme des esclaves. Si vous craignez la Secte Divine, alors sachez que si Li Qianmei provoque la colère du Senior Daoïste Water, j'en assumerai seul la responsabilité! » Le maître de Li Qianmei agita sa manche et disparut.
 
-Sa voix résonna comme le tonnerre à travers toute la Secte Heaven Breaking. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des millénaires!
+Sa voix résonna comme le tonnerre à travers toute la Secte Brise-Ciel. Cependant, ses paroles ne purent ébranler le cœur des cultivateurs de la secte qui avaient été asservis par la Secte Divine pendant des millénaires!
 
 Tout comme le brouillard dans la Mer de Nuages, combien de personnes pouvaient réellement percer les brumes?
 

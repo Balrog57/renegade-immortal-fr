@@ -36,7 +36,7 @@ La mer redevint calme, comme si rien ne s'était produit. Wang Lin se détourna 
 
 Wang Lin avait tué l'avatar du Maître Ciel Dieu Vide et blessé gravement son corps original. Depuis, ce dernier n'avait jamais réintégré le Royaume Intérieur, mettant ainsi fin à leurs différends.
 
-Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Blue Dream et au Maître Sud Nuage. Il allait les résoudre lui-même!
+Cependant, laisser cet homme en vie poserait un problème majeur à l'avenir. Il ne voulait pas abandonner tous ces problèmes à Rêve Bleu et au Maître Sud Nuage. Il allait les résoudre lui-même!
 
 Son regard balaya les étoiles et son corps disparut.
 

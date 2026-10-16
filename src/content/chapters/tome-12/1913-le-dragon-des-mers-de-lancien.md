@@ -64,7 +64,7 @@ Tous les cultivateurs s'inclinèrent, et l'édit impérial portait un message qu
 
 Une fois la silhouette dorée partie, un silence absolu tomba sur le Grande Secte de l'Âme, à l'intérieur comme à l'extérieur.
 
-L'Ancien Green Bull regarda le ciel après la dissipation de la lumière dorée, l'expression tourmentée. Il soupira; trop de cultivateurs étaient morts dans cette guerre entre les deux continents, mais pour saisir cette chance, ils n'avaient pas d'autre choix!
+L'Ancien Taureau Vert regarda le ciel après la dissipation de la lumière dorée, l'expression tourmentée. Il soupira; trop de cultivateurs étaient morts dans cette guerre entre les deux continents, mais pour saisir cette chance, ils n'avaient pas d'autre choix!
 
 C'était l'opportunité unique d'entrer dans le temple ancestral!
 

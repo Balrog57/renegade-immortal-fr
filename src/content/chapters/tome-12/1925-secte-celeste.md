@@ -28,7 +28,7 @@ Dans un soupir et une bénédiction adressée à Zhou Yi et Qing Shuang, Wang Li
 
 L'ensemble du Continent Oriental ne comptait que quelques Exaltés Empyréens. Sur le Continent Céleste, la Secte Céleste faisait partie des neuf sectes et treize factions. L'Ancien Ancestral de la Secte Céleste était réputé être un génie de la même génération que Luo Yunhai.
 
-Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyrée Gemini; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
+Cependant, sa culture s'était arrêtée au stade d'Exalté Empyréen. Il avait autrefois suivi le Grand Empyréen Gemini; mais après un événement mystérieux, il était parti en silence. Il était retourné à la secte et n'en était plus sorti depuis des dizaines de milliers d'années.
 
 La Secte Céleste était l'organisation la plus puissante du Continent Céleste. Parmi les neuf sectes et treize factions, elle seule régnait sur l'intégralité du continent. Elle se distinguait des autres par sa structure: loin d'être une entité unique, elle possédait dix-neuf sectes branches réparties sur tout le territoire, contrôlant ainsi totalement les ressources du continent.
 
@@ -107,6 +107,6 @@ Les grondements tonitruants persistèrent durant trois jours. Enfin, Wang Lin so
 
 Tandis que la neige tombait, le vieil homme sortit et regarda dans la direction de Wang Lin avec un visage grave.
 
-« Il n'a pas utilisé toute sa force... Avec une telle culture, je me demande jusqu'où il parviendra lors de l'Épreuve de l'Empyrean. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
+« Il n'a pas utilisé toute sa force... Avec une telle culture, je me demande jusqu'où il parviendra lors de l'Épreuve de l'Empyréen. » Le vieil homme attendit que Wang Lin disparaisse complètement avant de partir.
 
-« Un nouvel Exalté Empyréen est apparu dans mon clan céleste. Cette affaire doit être rapportée au Grand Empyrée. » Ces dix jours de combat lui avaient également apporté de profondes révélations.
+« Un nouvel Exalté Empyréen est apparu dans mon clan céleste. Cette affaire doit être rapportée au Grand Empyréen. » Ces dix jours de combat lui avaient également apporté de profondes révélations.

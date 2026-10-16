@@ -104,7 +104,7 @@ Cependant, au moment où elle allait pénétrer dans la fissure spatiale, elle s
 
 La fissure de l'espace de stockage se referma après que la femme en argent fut entrée.
 
-Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, Shui Daozi, au Maître du Dao Blue Dream, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
+Pourtant, ses paroles déclenchèrent une onde de choc immense dans l'esprit de Wang Lin, et ses yeux brillèrent intensément. Du Seigneur du Royaume Scellé, Shui Daozi, au Maître du Dao Rêve Bleu, il avait appris que les Flammes Joss étaient la clé pour atteindre la troisième étape et le moyen de nourrir ses essences!
 
 Il était lui-même parvenu à cette conclusion, mais à présent, les paroles de la femme argentée disaient exactement le contraire!
 

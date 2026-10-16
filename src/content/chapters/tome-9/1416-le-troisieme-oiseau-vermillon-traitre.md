@@ -50,7 +50,7 @@ Sur la Planète de l'Empereur Suprême, tous les regards étaient tournés vers 
 
 Sur ces mots, il fit un pas en arrière. Son corps se changea en éclats de lumière et disparut. Ce changement soudain stupéfia l'assistance, et les visages de tous les cultivateurs du troisième niveau se crispèrent.
 
-Les yeux du Maître Dao Blue Dream se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis, s'adressant à Li Qianmei, il soupira et agita sa manche; une lumière bleue enveloppa les deux êtres avant qu'ils ne disparaissent.
+Les yeux du Maître Maître du Dao Rêve Bleu se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis, s'adressant à Li Qianmei, il soupira et agita sa manche; une lumière bleue enveloppa les deux êtres avant qu'ils ne disparaissent.
 
 Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Oiseau Vermillon sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
 

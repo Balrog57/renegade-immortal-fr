@@ -10,7 +10,7 @@ Tenant l'épée de fer rouillée, Wang Lin recula tandis que Noble Money chargea
 
 Ces deux âmes de combat étaient les atouts les plus puissants de Wang Lin, après la faible source originelle qu'il lui restait. Accompagné de cette épée de fer, il engageait désormais toute sa puissance.
 
-Après tout, la situation n'était plus comparable à celle de la grotte de Qing Lin, où son corps original pouvait encaisser toutes les attaques. Il disposait alors d'une puissance d'Ancien Dieu illimitée lui permettant de déclencher une attaque capable de faire trembler le ciel d'un simple coup de poing. Désormais, il n'avait aucune opportunité d'utiliser *Sundered Night*, et son bouclier s'était brisé en sauvant Qing Lin; il ne pouvait donc pas non plus utiliser le *Rêve des Temps Anciens* que l'Ancien Dieu à 8 étoiles avait laissé derrière lui.
+Après tout, la situation n'était plus comparable à celle de la grotte de Qing Lin, où son corps original pouvait encaisser toutes les attaques. Il disposait alors d'une puissance d'Ancien Dieu illimitée lui permettant de déclencher une attaque capable de faire trembler le ciel d'un simple coup de poing. Désormais, il n'avait aucune opportunité d'utiliser *Nuit Brisée*, et son bouclier s'était brisé en sauvant Qing Lin; il ne pouvait donc pas non plus utiliser le *Rêve des Temps Anciens* que l'Ancien Dieu à 8 étoiles avait laissé derrière lui.
 
 En cet instant, n'ayant que son avatar de cultivateur, il serait extrêmement difficile pour Wang Lin de tuer ce cultivateur!
 

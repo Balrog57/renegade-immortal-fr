@@ -24,7 +24,7 @@ Maître Nuage du Sud rugit: « Qu'y a-t-il à craindre de la mort?! »
 
 « Le créateur du Royaume Céleste, Wang Lin, reviendra un jour. Lorsqu'il reviendra, je veux voir comment une simple Secte Âme Écarlate et Maître Âme Écarlate pourront résister! »
 
-À côté de Maître Nuage du Sud siégeait le Dao Maître Rêve Bleu. Son visage était pâle tandis qu'il cultivait pour récupérer.
+À côté de Maître Nuage du Sud siégeait le Maître du Dao Rêve Bleu. Son visage était pâle tandis qu'il cultivait pour récupérer.
 
 « Wang Lin? Heureusement que cet homme est parti; sinon, il ne serait qu'une simple fourmi devant le Maître! La formation entourant le Royaume Céleste a été établie par Wang Lin, mais elle sera de toute façon brisée par le Maître. Si ce n'était pas parce que le Maître veut que le Royaume Céleste demeure intact, il aurait déjà écrasé tout cet endroit. »
 
@@ -44,7 +44,7 @@ Ses mains traçaient des sceaux, envoyant constamment des runes pour accélérer
 
 Jadis, lorsque Wang Lin avait été confronté au piège mortel du Souverain, il avait libéré une âme scellée par Ye Mo. Cette âme s'était échappée du piège et avait pris la fuite.
 
-Désormais, il avait recouvré sa culture et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Âme Écarlate. Il avait utilisé sa puissante culture pour blesser gravement le Dao Maître Rêve Bleu, puis il avait détruit le corps de Maître Nuage du Sud.
+Désormais, il avait recouvré sa culture et obtenu un corps. Après la disparition de Wang Lin pendant de nombreuses années, il avait fondé la Secte Âme Écarlate. Il avait utilisé sa puissante culture pour blesser gravement le Maître du Dao Rêve Bleu, puis il avait détruit le corps de Maître Nuage du Sud.
 
 Il fixa les terres du Royaume Céleste avec une expression cruelle.
 

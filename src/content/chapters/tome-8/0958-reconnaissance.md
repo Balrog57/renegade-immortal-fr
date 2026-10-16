@@ -52,7 +52,7 @@ Même l'All-Voyant fut stupéfait par ce spectacle. Il avait déjà prévu le r�
 
 Il avait même percé les secrets des multiples pouvoirs situés entre les sourcils de Wang Lin. Trois d'entre eux étaient des choses que lui-même redoutait!
 
-« Bien que j'aie calculé que cet enfant reviendrait, je n'ai pu calculer la raison. S'il a osé revenir sur la planète Tian Yun, c'est qu'il doit avoir un appui solide. La Marque du Vermillion Bird est l'un de ses soutiens! »
+« Bien que j'aie calculé que cet enfant reviendrait, je n'ai pu calculer la raison. S'il a osé revenir sur la planète Tian Yun, c'est qu'il doit avoir un appui solide. La Marque du Oiseau Vermillon est l'un de ses soutiens! »
 
 La belle femme fut également frappée de stupeur. La surprise illumina ses yeux et elle vit immédiatement à quel point ces 27 épées étaient extraordinaires.
 
@@ -160,6 +160,6 @@ Ils restèrent silencieux un long moment avant que l'All-Voyant ne demande lente
 
 « Ce disciple souhaite entrer dans le Domaine des Esprits Démoniaques. » L'expression de Wang Lin était empreinte de respect.
 
-L'All-Voyant, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste de Luotian ou comme l'un des membres de la série du Vermillion Bird des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série du Vermillion Bird ne compte que trois personnes, vous y compris! »
+L'All-Voyant, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste de Luotian ou comme l'un des membres de la série du Oiseau Vermillon des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série du Oiseau Vermillon ne compte que trois personnes, vous y compris! »
 
-Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série du Vermillion Bird. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.
+Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série du Oiseau Vermillon. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.

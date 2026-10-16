@@ -90,7 +90,7 @@ L'ancien, percevant l'intention meurtrière qui émanait de Wang Lin, frissonna 
 
 Le pavillon paraissait très ancien. Alors qu'ils entraient, une femme d'une trentaine d'années en sortit. À son passage, un parfum délicat embauma l'air.
 
-« Oh, ne serait-ce pas Lord Scorpione Noire? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
+« Oh, ne serait-ce pas Seigneur Scorpione Noire? N'êtes-vous pas venu il y a seulement quelques mois? Serait-ce parce que vous avez appris que j'ai acquis de nouveaux trésors et que vous venez vérifier? » La voix de la femme était mélodieuse et elle arborait un sourire charmant.
 
 Son regard balaya Wang Lin, et une pointe de choc traversa ses yeux.
 

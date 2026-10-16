@@ -96,11 +96,11 @@ Le niveau de culture du groupe de Wang Lin avait totalement dépassé ce que le 
 
 Wang Lin se tenait sur une hauteur et contemplait les fragments familiers du Royaume Céleste de la Pluie. Ses yeux brillèrent en se remémorant le passé, tandis qu'il cherchait progressivement le fragment où il avait autrefois entendu cet appel à l'aide!
 
-Une douzaine de personnes l'entouraient et tous les regards étaient tournés vers lui. Ils devaient suivre les directives de Wang Lin pour cette mission de sauvetage de l'Empereur Divin Azure Dragon. Après tout, il était l'Empereur Divin Vermillion Bird et, surtout, seul Wang Lin savait où l'Empereur Divin Azure Dragon était emprisonné!
+Une douzaine de personnes l'entouraient et tous les regards étaient tournés vers lui. Ils devaient suivre les directives de Wang Lin pour cette mission de sauvetage de l'Empereur Divin Dragon Azure. Après tout, il était l'Empereur Divin Oiseau Vermillon et, surtout, seul Wang Lin savait où l'Empereur Divin Dragon Azure était emprisonné!
 
 Le corps de Wang Lin s'élança. Un grondement tonitruant se fit entendre lorsqu'il plongea vers le bas. Personne n'hésita à le suivre.
 
-Il était impossible de rester ici trop longtemps, sous peine de provoquer l'effondrement total du Royaume Céleste de la Pluie. À ce moment-là, oubliez le sauvetage de l'Empereur Divin Azure Dragon, il serait même impossible de sauver Qing Lin!
+Il était impossible de rester ici trop longtemps, sous peine de provoquer l'effondrement total du Royaume Céleste de la Pluie. À ce moment-là, oubliez le sauvetage de l'Empereur Divin Dragon Azure, il serait même impossible de sauver Qing Lin!
 
 Ils devaient donc se hâter!
 
@@ -114,7 +114,7 @@ Il se souvenait parfaitement que l'appel venait d'une montagne ressemblant à un
 
 Wang Lin vola prestement dans cette direction.
 
-Il se rapprochait de plus en plus! Les Anciens de la Secte Divine Azure Dragon derrière lui étaient transportés par l'excitation. Ils avaient attendu ce jour pendant bien trop longtemps!
+Il se rapprochait de plus en plus! Les Anciens de la Secte Divine Dragon Azure derrière lui étaient transportés par l'excitation. Ils avaient attendu ce jour pendant bien trop longtemps!
 
 Plus leurs attentes étaient grandes, plus ils craignaient la déception. À cet instant, leurs cœurs étaient empreints d'inquiétude et même leur Dao vacillait.
 
@@ -122,7 +122,7 @@ Un instant plus tard, la montagne en forme de verrou apparut sous leurs yeux!
 
 « C'est ici que j'ai entendu l'appel à l'aide! » lança Wang Lin en pointant l'avant.
 
-Les Anciens de la Secte Divine Azure Dragon chargèrent vers la montagne.
+Les Anciens de la Secte Divine Dragon Azure chargèrent vers la montagne.
 
 « Sauvez-moi... sauvez-moi... » Une voix très faible résonna alors qu'ils approchaient de la montagne. Wang Lin s'arrêta net, mais tous ceux qui l'entouraient semblaient ne rien avoir entendu du tout.
 

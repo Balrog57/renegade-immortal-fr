@@ -82,7 +82,7 @@ L'aigle noir de l'homme en robe noire ne s'arrêta pas non plus. Alors que les s
 
 La puissance combinée d'une attaque de cinq experts au sommet du Système Stellaire de l'All-Heaven pouvait facilement détruire une planète; la destruction du Domaine Nord n'était pas impossible!
 
-À cet instant, leurs sorts formèrent une tempête dévastatrice capable de déchirer le vide. Cette tempête était si puissante que même les expressions des messagers du Temple Céleste du Tonnerre, à 50 000 kilomètres, changèrent. Certains, qui n'étaient qu'au stade de l'Illusoire Yin, devinrent livides et crachèrent du sang.
+À cet instant, leurs sorts formèrent une tempête dévastatrice capable de déchirer le vide. Cette tempête était si puissante que même les expressions des messagers du Temple Céleste du Tonnerre, à 50 000 kilomètres, changèrent. Certains, qui n'étaient qu'au stade de l'Yin Illusoire, devinrent livides et crachèrent du sang.
 
 Cette tempête percuta de plein fouet le doigt du Dieu Antique presque corporel!
 

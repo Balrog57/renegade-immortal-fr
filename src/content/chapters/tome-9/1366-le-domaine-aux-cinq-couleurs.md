@@ -102,9 +102,9 @@ Wang Lin prit une gorgée de vin tout en marchant dans les eaux boueuses des rue
 
 Il tenait toujours l'âme originelle dans sa main gauche et, dès qu'il entra, il la serra. L'âme s'effondra silencieusement tandis que Wang Lin en extrayait tous les souvenirs.
 
-Wang Lin n'aurait pas pris le risque inutile de tuer l'Ancien en robe taoïste, mais il avait besoin de connaître la situation actuelle dans le Système Stellaire Ancien. Il avait utilisé son tonnerre pour sectionner instantanément une partie de l'âme originelle du vieil homme afin d'en sonder la mémoire.
+Wang Lin n'aurait pas pris le risque inutile de tuer l'Ancien en robe taoïste, mais il avait besoin de connaître la situation actuelle dans le Système Stellaire Antique. Il avait utilisé son tonnerre pour sectionner instantanément une partie de l'âme originelle du vieil homme afin d'en sonder la mémoire.
 
-« C'est bien ce que je craignais, le Système Stellaire Ancien a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Ancien, mais aussi le filet de recherche qu'ils avaient déployé.
+« C'est bien ce que je craignais, le Système Stellaire Antique a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Antique, mais aussi le filet de recherche qu'ils avaient déployé.
 
 Avec un ricanement, Wang Lin agita la main et une âme originelle apparut dans sa paume. C'était celle du Grand Ancien du Clan du Tonnerre Dispersé. Ses yeux étaient clos et il était à l'agonie!
 
