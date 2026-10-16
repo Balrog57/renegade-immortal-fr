@@ -38,7 +38,7 @@ Maître Lu Fu n'était pas le seul au sein de ce vortex planétaire. Quatre Anci
 
 Si Wang Lin avait été là, il les aurait tous reconnus!
 
-Maître Flamespark du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao qui avait traqué Wang Lin avant d'être arrêté par le Dieu Sanglant, Qing Shui!
+Maître Flamespark du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao qui avait traqué Wang Lin avant d'être arrêté par le Dieu de Sang, Qing Shui!
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 
@@ -92,7 +92,7 @@ Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui 
 
 Il réalisa immédiatement que l'homme en blanc était Wang Lin. Il resta abasourdi, incapable de prononcer un seul mot!
 
-« Wang Lin!! C'est lui!! » Le visage du Dieu Sanglant devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui aurait dû mourir si Qing Shui n'était pas intervenu — puisse dégager une pression capable de le faire trembler!
+« Wang Lin!! C'est lui!! » Le visage du Dieu de Sang devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui aurait dû mourir si Qing Shui n'était pas intervenu — puisse dégager une pression capable de le faire trembler!
 
 Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. Il possédait la culture la plus faible ici. À cet instant, le tonnerre issu de l'âme originelle de Wang Lin avait laissé, comme prévu, une profonde fissure dans son cœur dao.
 
@@ -114,8 +114,8 @@ Les yeux de Maître Flamespark s'illuminèrent et il se calma progressivement. I
 
 L'expression de Lie Yunzi changea à maintes reprises avant qu'il ne laisse échapper un long soupir.
 
-Les plus nerveux restaient le Dieu Sanglant et Xiang Yundong.
+Les plus nerveux restaient le Dieu de Sang et Xiang Yundong.
 
 Un instant plus tard, Xiang Yundong joignit les mains devant Maître Lu Fu et lança un regard complexe aux trois autres. Il brûlait d'envie de transmettre cette nouvelle à sa famille au plus vite afin qu'ils puissent se préparer. Wang Lin était un être contre lequel même l'ancêtre d'Allheaven, Maître Lu Fu, osait à peine combattre; comment leur famille Xiang pourrait-elle faire face? La seule pensée le plongeait dans l'effroi.
 
-Quant au Dieu Sanglant, après avoir longuement réfléchi, il se rassit. Il... n'osait pas partir!
+Quant au Dieu de Sang, après avoir longuement réfléchi, il se rassit. Il... n'osait pas partir!

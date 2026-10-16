@@ -48,7 +48,7 @@ Puis, dans la demeure ancestrale, Wang Lin vit Yu Er et ses parents. En voyant l
 
 Wang Zhuo prit Yu Er comme disciple et lui transmit des méthodes de culture.
 
-Avant de partir, Wang Lin récupéra le Domaine de Ji contenu dans la pierre de jade de la demeure ancestrale et le remplaça par son propre Sens Divin.
+Avant de partir, Wang Lin récupéra le Royaume Ji contenu dans la pierre de jade de la demeure ancestrale et le remplaça par son propre Sens Divin.
 
 Wang Zhuo ne retourna pas à la Secte Tian Dao mais resta auprès de la famille Wang, dans la capitale. Deux cents ans auparavant, il avait été placé dans le ventre d'une femme enceinte de la lignée Wang. Il était resté physiquement proche de la famille Wang, tant dans sa vie passée que dans l'actuelle; ses sentiments pour eux étaient donc bien plus profonds que ceux de Wang Lin.
 

@@ -102,7 +102,7 @@ Les disciples de la Secte Démon agissaient comme une armée disciplinée. Dès 
 
 Une fois que plus aucun cultivateur ne se trouvait à l'extérieur, la formation de la secte fut activée. Son rugissement fut tonitruant, semblant rivaliser avec la Rétribution Divine. Bientôt, toutes les planètes de la Secte Démon furent protégées par la formation.
 
-« Personne au sein de mon Secte Démon n'a déclenché cette rétribution, donc le secte ne risque rien tant que la formation est active! Ce vieil homme veut voir qui a pu provoquer une telle Rétribution Infinie! » Les yeux du vieil homme brillaient d'une lueur intense, comme si son regard pouvait percer le vide pour scruter la faille spatiale.
+« Personne au sein de ma Secte Démon n'a déclenché cette rétribution, donc la secte ne risque rien tant que la formation est active! Ce vieil homme veut voir qui a pu provoquer une telle Rétribution Infinie! » Les yeux du vieil homme brillaient d'une lueur intense, comme si son regard pouvait percer le vide pour scruter la faille spatiale.
 
 Les nuages s'étendaient avec frénésie. En peu de temps, ils enveloppèrent totalement la région de rang 9. Les éclairs et les tonnerres étaient si denses à l'intérieur qu'ils auraient pu terrasser n'importe quel cultivateur.
 

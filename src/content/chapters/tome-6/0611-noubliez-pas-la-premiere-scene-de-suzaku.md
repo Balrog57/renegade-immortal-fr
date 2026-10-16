@@ -12,7 +12,7 @@ L’Étoile Sanguine.
 
 Une femme vêtue de pourpre chevauchait une épée de 10 mètres de long, fendant avec célérité l'immensité de l'espace. Trois autres femmes, parées de robes colorées, la poursuivaient de près.
 
-L'une des poursuivantes ricana: « Misérable! Tu as trahi la Secte de l'Eau Céleste et dérobé le trésor sacré de la jeune maîtresse du secte. Crois-tu vraiment pouvoir t’échapper? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de culture de rang 7. Tu ne pourras pas fuir! »
+L'une des poursuivantes ricana: « Misérable! Tu as trahi la Secte de l'Eau Céleste et dérobé le trésor sacré de la jeune maîtresse de la secte. Crois-tu vraiment pouvoir t’échapper? Même si cet endroit est sous l'influence de la planète Tian Yun, ma Planète des Cinq Éléments est également une planète de culture de rang 7. Tu ne pourras pas fuir! »
 
 La femme en pourpre serra les dents, le visage d'une pâleur extrême. Le voile violet qu'elle portait était déjà tombé.
 

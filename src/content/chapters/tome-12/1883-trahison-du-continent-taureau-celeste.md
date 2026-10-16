@@ -118,4 +118,4 @@ Ce n'est qu'après le départ de Tang Jia que Yun Yifeng se retourna et s'agenou
 
 Un long silence régna dans le grand hall, puis un soupir de lassitude résonna.
 
-Wang Lin progressait rapidement à travers la Secte Gui Yi. L'expression sombre, il déploya son Sens Divin, mais remarqua bientôt que quelque chose n'allait pas. Toute la Secte Gui Yi était plongée dans un silence de mort; il n'y avait pas une âme autour de lui. Même la formation de protection du secte n'était plus activée à cet instant.
+Wang Lin progressait rapidement à travers la Secte Gui Yi. L'expression sombre, il déploya son Sens Divin, mais remarqua bientôt que quelque chose n'allait pas. Toute la Secte Gui Yi était plongée dans un silence de mort; il n'y avait pas une âme autour de lui. Même la formation de protection de la secte n'était plus activée à cet instant.

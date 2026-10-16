@@ -6,7 +6,7 @@ bookTitle: Tenth Sun of the Immortal Astral Continent
 en: Chapter 1947 - Bubble of Annihilation
 slug: bulle-dannihilation
 ---
-La Secte Dong Lin au sein de l'illusion était magnifique sous les premiers rayons du soleil matinal. La lumière baignait le secte, tandis que les ombres devant le Temple Dong Lin ne cessaient de rétrécir.
+La Secte Dong Lin au sein de l'illusion était magnifique sous les premiers rayons du soleil matinal. La lumière baignait la secte, tandis que les ombres devant le Temple Dong Lin ne cessaient de rétrécir.
 
 Les membres de la Secte Dong Lin cultivaient en silence. Ils absorbaient tous la puissance du monde pour fortifier leurs corps.
 
@@ -92,7 +92,7 @@ Un rêve de mille ans...
 
 Dans le rêve de Wang Lin, le temps recula d'un millénaire, puis d'un autre, encore un autre... jusqu'à ce qu'il oublie lui-même le temps écoulé. La Secte Dong Lin était redevenu la Secte Dong Lin...
 
-La montagne était la même et l'eau restait limpide. D'innombrables disciples de la Secte Dong Lin cultivaient sous la lumière du matin, enveloppant tout le secte d'une brume légère.
+La montagne était la même et l'eau restait limpide. D'innombrables disciples de la Secte Dong Lin cultivaient sous la lumière du matin, enveloppant tout la secte d'une brume légère.
 
 Tout était calme, tout était paisible. On entendait les échos des conférences de Dao provenant de la grande salle où de nombreux disciples écoutaient avec attention.
 

@@ -31,9 +31,9 @@ Wang Lin demanda d'un ton grave: « Ainsi, si Zhuque Zi prend le contrôle du Cr
 
 Situ Nan répondit: « Il existe un objet appelé le Cœur de la Planète de Culture qui est lié au Cristal de la Planète de Culture. Seul l'actuel Suzaku en a la possession. Il devra sacrifier une partie de sa longévité pour l'activer, ce qui lui permettra de tuer n'importe qui. Une parcelle de votre âme se trouve dans le cristal; si vous voulez un avenir paisible lorsque vous quitterez la planète, vous devrez extraire votre âme du Cristal de la Planète de Culture. »
 
-« Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Domaine Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
+« Cela signifie donc que ce que j'ai entendu sur la capacité du Cristal de la Planète de Culture à aider le Royaume Ji à évoluer est faux », grommela Wang Lin en fronçant les sourcils.
 
-« C'est une question délicate car je n'ai pas le Domaine Ji sous la main pour l'étudier. Bien, nous en reparlerons quand j'aurai récupéré mes forces. Wang Lin, ne t'inquiète pas trop; je suis toujours là. » Situ Nan se tut et commença son processus de possession.
+« C'est une question délicate car je n'ai pas le Royaume Ji sous la main pour l'étudier. Bien, nous en reparlerons quand j'aurai récupéré mes forces. Wang Lin, ne t'inquiète pas trop; je suis toujours là. » Situ Nan se tut et commença son processus de possession.
 
 Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 

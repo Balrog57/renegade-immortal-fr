@@ -86,7 +86,7 @@ Un sentiment de rencontre avec un prédateur naturel envahit le cœur de chaque 
 
 Cette perturbation provoqua un chaos tel dans leurs esprits qu'ils furent au bord de l'effondrement. Ce tumulte rugissait en eux comme le tonnerre, frappant contre leurs tempes.
 
-L'âme de Pu Lin, déjà endommagée par l'attaque du Domaine de Ji, n'avait pas eu le temps de se régénérer malgré ses efforts de suppression. À cet instant, son âme vola en éclats; il cracha un flot de sang avant de s'effondrer. Son corps tressaillit violemment sur le sol et, à chaque spasme, du sang jaillissait de ses orifices.
+L'âme de Pu Lin, déjà endommagée par l'attaque du Royaume Ji, n'avait pas eu le temps de se régénérer malgré ses efforts de suppression. À cet instant, son âme vola en éclats; il cracha un flot de sang avant de s'effondrer. Son corps tressaillit violemment sur le sol et, à chaque spasme, du sang jaillissait de ses orifices.
 
 Le cœur de Qian Kun trembla. Sous le choc, le filet électrique qu'il tenait se brisa. Le visage décomposé, il recula de plusieurs pas dans une tentative désespérée de fuite. L'idée même de voler la flamme bleue s'était évaporée.
 

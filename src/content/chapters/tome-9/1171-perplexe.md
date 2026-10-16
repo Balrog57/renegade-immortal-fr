@@ -36,9 +36,9 @@ Les deux commencèrent à discuter, mais Tang Lihai n'aborda toujours pas le vé
 
 Wu Qing écouta un long moment avant de laisser paraître une pointe d'impatience. Il saisit une coupe et la frappa brusquement sur la table. Il fixa Wang Lin et déclara: « Cher cultivateur Lu, je ne suis pas doué pour les discours détournés. Je suis venu aujourd'hui vous demander si vous seriez prêt à devenir un ancien extérieur. »
 
-« Si vous acceptez, mon Secte du Rassemblement des Démons vous accueillera avec de grands présents! Même si vous refusez, après aujourd'hui, nous trois pourrons être considérés comme des connaissances. Pour nous, les cultivateurs, ceux que nous appelons "chers cultivateurs" peuvent être considérés comme des amis! »
+« Si vous acceptez, ma Secte du Rassemblement des Démons vous accueillera avec de grands présents! Même si vous refusez, après aujourd'hui, nous trois pourrons être considérés comme des connaissances. Pour nous, les cultivateurs, ceux que nous appelons "chers cultivateurs" peuvent être considérés comme des amis! »
 
-En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regardant Wang Lin: « J'allais vous aborder à ce sujet après avoir discuté davantage, mais j'ai oublié l'impatience de ce Wu Qing. Mon Secte du Rassemblement des Démons est très sincère; si vous devenez un ancien extérieur, nous vous fournirons tous les matériaux d'alchimie dont vous aurez besoin. Nous ne vous demandons qu'à agir au moment opportun pour maintenir la dignité de mon Secte! »
+En entendant les paroles de Wu Qing, Tang Lihai afficha un sourire amer en regardant Wang Lin: « J'allais vous aborder à ce sujet après avoir discuté davantage, mais j'ai oublié l'impatience de ce Wu Qing. Ma Secte du Rassemblement des Démons est très sincère; si vous devenez un ancien extérieur, nous vous fournirons tous les matériaux d'alchimie dont vous aurez besoin. Nous ne vous demandons qu'à agir au moment opportun pour maintenir la dignité de ma Secte! »
 
 Wang Lin réfléchit un instant et dit lentement: « Je dois y réfléchir. Que diriez-vous de ceci: je vous donnerai une réponse avant de quitter Peng Lai. »
 
@@ -66,7 +66,7 @@ L'homme d'âge moyen secoua la tête.
 
 « S'il l'a percé, alors oui. Sinon, non. » L'homme d'âge moyen détourna le regard et fronça les sourcils.
 
-« Quoi qu'il arrive, ne touchez pas à cet homme. Je ressens un danger extrême émanant de lui... Mon Secte du Rassemblement des Démons se retirera de cette affaire concernant le jade et la recette de pilule. Nous ne pouvons pas nous permettre d'y participer. » L'homme se massa les tempes, l'air épuisé.
+« Quoi qu'il arrive, ne touchez pas à cet homme. Je ressens un danger extrême émanant de lui... Ma Secte du Rassemblement des Démons se retirera de cette affaire concernant le jade et la recette de pilule. Nous ne pouvons pas nous permettre d'y participer. » L'homme se massa les tempes, l'air épuisé.
 
 Chaque cité possédait ses propres marchés, et ils étaient nombreux à être dispersés. Au cours des jours suivants, Wang Lin fit ses adieux à Li Qianmei et erra seul dans la ville.
 

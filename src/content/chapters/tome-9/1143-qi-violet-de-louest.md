@@ -84,7 +84,7 @@ Dès que Wang Lin pénétra dans le temple, la lumière violette de la fissure s
 
 Ce python était d'un violet noirâtre et ses yeux arboraient également un violet profond. En temps normal, quiconque subissait ce regard aurait été terrifié, mais cela n'eut aucun effet sur Wang Lin.
 
-Wang Lin ne da même pas un regard au python et passa devant lui. La créature laissa échapper un rugissement sourd, mais la peur se lisait dans ses yeux. Elle commença à reculer pour laisser passer Wang Lin, n'osant point l'attaquer.
+Wang Lin ne daigna même pas un regard au python et passa devant lui. La créature laissa échapper un rugissement sourd, mais la peur se lisait dans ses yeux. Elle commença à reculer pour laisser passer Wang Lin, n'osant point l'attaquer.
 
 En vérité, Wang Lin était arrivé ici il y a quatre jours. En termes de culture, ce python violet pouvait affronter des cultivateurs du stade avancé de la Divination du Nirvana, mais Wang Lin aurait pu l'éliminer sans effort.
 

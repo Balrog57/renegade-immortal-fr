@@ -14,7 +14,7 @@ Wang Lin se souvenait parfaitement de la façon dont il avait contemplé ce visa
 
 Tout semblait s'être produit dans cette illusion à l'instant précis où Wang Lin avait posé son regard sur le visage spectral.
 
-Sur le côté, Fan Shanlu réfléchit silencieusement un instant avant de déclarer lentement: « C'est le trésor de mon Secte de la Grande Âme, ainsi que la voile principale du Navire Démon des Âmes... »
+Sur le côté, Fan Shanlu réfléchit silencieusement un instant avant de déclarer lentement: « C'est le trésor de ma Secte de la Grande Âme, ainsi que la voile principale du Navire Démon des Âmes... »
 
 « Peu m'importe ce qui se passe entre vous deux sœurs. Il n'est pas nécessaire d'échanger des Serments de Sang, car nous partageons un objectif commun. S'il n'y a aucune intention cachée, alors nous pourrons coopérer. »
 

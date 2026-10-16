@@ -88,7 +88,7 @@ Lu Yanfei se mordit la lèvre, une pointe d'amertume marquant son beau visage.
 
 « Le plus ridicule est que mes trois frères aînés n'ont pas osé intervenir et ont considéré que l'affaire était classée... Ils veulent que je me sacrifie pour apporter la paix à la Secte Originel. Cependant, pensent-ils vraiment que la Secte Originel sera en sécurité une fois que j'appartiendrai à Lu Hai... »
 
-Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de mon Secte Originel est funeste... »
+Deux larmes coulèrent des yeux de Lu Yanfei, glissèrent le long de ses joues et tombèrent au sol, se mêlant à la pluie. Elle regarda silencieusement l'arc-en-ciel à l'horizon et murmura: « Un arc-en-ciel apparaît toujours après la pluie, mais... l'arc-en-ciel de ma Secte Originel est funeste... »
 
 L'expression de Wang Lin resta impassible. Voyant que la femme en rouge avait fini de parler, il se retourna et descendit la montagne. La femme en rouge ne l'arrêta pas cette fois et contempla silencieusement l'horizon. Après un long moment, son visage se fit déterminé et une intention meurtrière apparut dans ses yeux.
 

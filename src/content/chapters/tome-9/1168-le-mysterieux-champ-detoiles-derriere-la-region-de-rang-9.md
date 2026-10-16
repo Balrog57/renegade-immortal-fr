@@ -8,7 +8,7 @@ slug: le-mystérieux-champ-detoiles-derriere-la-region-de-rang-9
 ---
 Le continent de Peng Lai était extrêmement célèbre dans la région de rang 5. La majeure partie de cette renommée provenait de la Secte du Jade Précieux!
 
-Le Secte du Jade Précieux était la secte numéro un de la région de rang 5. Il comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
+La Secte du Jade Précieux était la secte numéro un de la région de rang 5. Il comptait de nombreux cultivateurs et, naturellement, une multitude de vieux monstres. Le continent sur lequel il se trouvait s'appelait Peng Lai, mais on l'appelait aussi le Royaume Céleste de Peng Lai.
 
 La taille de Peng Lai était bien plus vaste que celle de Mo Luo; elle était au moins une douzaine de fois plus grande. Il était un peu inapproprié de l'appeler un continent, car il s'agissait en réalité de la moitié d'une planète de culture!
 

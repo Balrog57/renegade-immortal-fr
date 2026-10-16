@@ -54,7 +54,7 @@ L'Illustre Taureau Vert sourit et regarda Wang Lin avec une admiration non dissi
 
 « Je l'ai su dès l'instant où tu as pénétré dans la formation du Grand Secte de l'Âme. Je t'ai vu entrer dans la montagne rouge, je t'ai vu rencontrer Fan Shanlu, j'ai vu ton absorption de la veine principale de feu terrestre... »
 
-« Tu as formé ce corps d'essence de feu au sein de mon Grand Secte de l'Âme, ce qui signifie que toi et mon secte êtes liés par le destin! Puisque nos destins sont liés, il n'est pas nécessaire de partir précipitamment. Wang Lin, deviens un Ancien de mon Grand Secte de l'Âme. Qu'en dis-tu? »
+« Tu as formé ce corps d'essence de feu au sein de mon Grand Secte de l'Âme, ce qui signifie que toi et ma secte êtes liés par le destin! Puisque nos destins sont liés, il n'est pas nécessaire de partir précipitamment. Wang Lin, deviens un Ancien de mon Grand Secte de l'Âme. Qu'en dis-tu? »
 
 Les yeux de Wang Lin brillèrent, mais il garda le silence.
 

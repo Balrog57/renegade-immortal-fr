@@ -18,9 +18,9 @@ Pourtant, sitôt le cri du vieil homme poussé, son expression changea radicalem
 
 Sans hésiter, le vieil homme au sommet du stade de Briseur du Nirvana fit jaillir toute l'énergie originelle de son corps dans une explosion violente. Une onde de choc, prenant son corps pour centre, se propagea rapidement.
 
-« Cet homme est gravement blessé. Si nous dispersons notre énergie, il ne pourra pas s'approcher... » Cependant, avant qu'il n'ait pu achever sa phrase, le brouillard noir apparut dans le vide derrière lui. À l'intérieur de ce brouillard, une paire d'yeux contenait des éclairs rouges. C'était le Domaine Ji. En un éclair, l'atmosphère devint aussi glaciale qu'une nuit d'hiver la plus sombre!
+« Cet homme est gravement blessé. Si nous dispersons notre énergie, il ne pourra pas s'approcher... » Cependant, avant qu'il n'ait pu achever sa phrase, le brouillard noir apparut dans le vide derrière lui. À l'intérieur de ce brouillard, une paire d'yeux contenait des éclairs rouges. C'était le Royaume Ji. En un éclair, l'atmosphère devint aussi glaciale qu'une nuit d'hiver la plus sombre!
 
-Les éclairs rouges captèrent les regards de tous les cultivateurs présents. Le Domaine Ji rouge sang devint l'unique obsession de leurs esprits!
+Les éclairs rouges captèrent les regards de tous les cultivateurs présents. Le Royaume Ji rouge sang devint l'unique obsession de leurs esprits!
 
 En particulier, les pupilles du vieil homme au sommet du stade de Briseur du Nirvana se rétractèrent en reflétant ces éclairs. La foudre jaillit du brouillard noir et chargea le vieil homme.
 

@@ -104,7 +104,7 @@ Tout au long du vol, Zhao Xingsha parlait sans relâche, fournissant des descrip
 
 Cet homme était empreint d'humour et doté d'une grande éloquence. Il savait transmettre ses propos avec aisance, ce qui permit à Wang Lin d'acquérir une compréhension rudimentaire de la secte.
 
-Wang Lin demanda: « Frère Aîné Zhao, combien de disciples le Senior Tout-Voyant possède-t-il? »
+Wang Lin demanda: « Frère Aîné Zhao, combien de disciples le Senior Omniscient possède-t-il? »
 
 Zhao Xingsha sourit doucement, puis sa main droite forma un sceau qu'il pointa devant lui. Les nuages qui les obstruaient se brisèrent soudainement, ouvrant un passage. Tandis qu'il s'avançait dans l'ouverture, il rit: « Jeune frère apprenti, Maître a accepté au total sept disciples. Nous sommes répartis en rouge, orange, jaune, vert, cyan, bleu et pourpre. Nous appartenons tous deux à la division pourpre. »
 

@@ -26,7 +26,7 @@ Le jeune homme aux cheveux blancs était devenu, pour lui, la créature la plus 
 
 La bête spirituelle noire tremblait sous lui et continuait de reculer. Cette créature avait déjà éveillé son intelligence, et sa crainte envers Wang Lin n'était en rien moindre que celle qu'elle éprouvait pour son maître.
 
-Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins que je ne le puisse, mon Secte Dao Pourpre vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
+Le jeune homme semblait avoir perdu la raison sous l'effet de la peur et hurla de toutes ses forces: « Si vous osez me blesser le moins que je ne le puisse, ma Secte Dao Pourpre vous traquera jusqu'à la fin de vos jours! » Sa main droite effleura sa sacoche de rangement et il en sortit un lotus noir.
 
 Le lotus était d'un noir absolu et fleurissait d'une manière démoniaque. Il émettait une lumière étrange qui enveloppait le visage tordu du jeune homme. Juste au moment où il allait utiliser ce trésor que son père lui avait offert, un doigt apparut devant lui. Ce doigt semblait empreint de douceur, mais il s'abattit instantanément entre ses sourcils.
 
@@ -76,7 +76,7 @@ Ses trois frères aînés fixaient d'un regard pensif l'endroit où Wang Lin ava
 
 Après un bref silence, les disciples directs des anciens éclatèrent en acclamations. Ils se tournèrent vers l'arc-en-ciel et regagnèrent la Secte de l'Origine aux côtés des quatre anciens.
 
-« Le Secte Dao Pourpre ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Rudy... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
+« La Secte Dao Pourpre ne restera pas sans rien faire lorsqu'ils apprendront la mort de Song Wude et de Rudy... » Tandis que les quatre anciens avançaient, l'un d'eux réprima son choc et projeta ses pensées vers les trois autres.
 
 « Avant la mort du Maître, il a mentionné "le nord" et "les cheveux blancs". Ce senior a les cheveux blancs; il est peut-être l'homme dont le Maître parlait. Peut-être que notre Secte de l'Origine n'est pas encore à son déclin! »
 

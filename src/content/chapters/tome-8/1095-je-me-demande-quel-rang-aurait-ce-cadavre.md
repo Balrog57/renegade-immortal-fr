@@ -112,9 +112,9 @@ La beauté de la femme s'intensifia et elle sourit: « Oh? Je me demande quel ge
 
 Wang Lin ne perdit pas de temps. D'un revers de manche, il envoya un morceau de jade vers la femme. Elle le rattrapa en souriant, sans trop se soucier du contenu de l'information.
 
-Pour elle, peu importe la rareté du cadavre recherché par Wang Lin, son Secte des Cadavres en posséderait forcément un. Son secte détenait même certains des rares Cadavres Inversés Bizarres des Cinq Éléments.
+Pour elle, peu importe la rareté du cadavre recherché par Wang Lin, sa Secte des Cadavres en posséderait forcément un. Sa secte détenait même certains des rares Cadavres Inversés Bizarres des Cinq Éléments.
 
-De plus, lorsqu'elle affirmait que ce cadavre était le premier rang, elle ne parlait que du monde extérieur. Au sein même de son Secte, il existait sept cadavres bien supérieurs à celui-ci.
+De plus, lorsqu'elle affirmait que ce cadavre était le premier rang, elle ne parlait que du monde extérieur. Au sein même de sa Secte, il existait sept cadavres bien supérieurs à celui-ci.
 
 Elle scruta négligemment le jade avec son Sens Divin, mais en un instant, sa main droite se mit à trembler. Son expression devint grave.
 

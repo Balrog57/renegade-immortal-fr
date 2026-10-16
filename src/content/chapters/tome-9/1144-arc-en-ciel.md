@@ -8,7 +8,7 @@ slug: arc-en-ciel
 ---
 Un rire arrogant résonna. Outre le vieil homme, il y avait aussi un jeune homme vêtu de pourpre. Son éclat de rire se propagea à travers le monde, empreint d'excitation et d'arrogance.
 
-« Désormais, ce Secte Origin appartient à ce jeune maître! »
+« Désormais, cette Secte Origin appartient à ce jeune maître! »
 
 Un grondement tonnerre retentit alors que la bête spirituelle noire géante pénétrait sur le continent de Mo Luo. Le vieil homme, debout sur la tête de la créature monumentale, regarda le jeune homme avec une affection protectrice et sourit.
 
@@ -28,7 +28,7 @@ Un soupir s'éleva des sommets du nord et de l'ouest. Deux vieillards s'envolèr
 
 Pourtant, même s'ils ne pouvaient plus le tolérer, que pouvaient-ils faire? Osaient-ils tuer le jeune maître de la Secte du Dao Pourpre? De plus, la puissance contenue dans les paroles de ce vieil homme suffisait à ébranler leurs cœurs.
 
-« Song Wude... Il avait perdu contre Maître autrefois. Maintenant que Maître est mort, il vient en personne... Se pourrait-il que mon Secte Origin soit vraiment destiné à sombrer dans la déchéance pour l'éternité... » Au sommet de la montagne du sud, Lu Yanfei se tenait dans le pavillon rouge, vêtue d'une robe écarlate. Son visage était empreint de tristesse et d'intention meurtrière. Sans hésiter, elle s'élança en un rayon de lumière rouge vers l'ouest.
+« Song Wude... Il avait perdu contre Maître autrefois. Maintenant que Maître est mort, il vient en personne... Se pourrait-il que ma Secte Origin soit vraiment destiné à sombrer dans la déchéance pour l'éternité... » Au sommet de la montagne du sud, Lu Yanfei se tenait dans le pavillon rouge, vêtue d'une robe écarlate. Son visage était empreint de tristesse et d'intention meurtrière. Sans hésiter, elle s'élança en un rayon de lumière rouge vers l'ouest.
 
 « Rudy, même si moi, Lu Yanfei, je dois mourir, je ne céderai pas devant vous!!! » Lu Yanfei se mordit la lèvre inférieure en volant. Des larmes coulèrent sur ses joues et se mêlèrent à la pluie; il était impossible de distinguer ses pleurs des précipitations...
 

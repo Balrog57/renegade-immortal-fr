@@ -38,19 +38,19 @@ La jeune fille allait répondre lorsqu'un rire chaleureux retentit près du port
 
 « Qu'as-tu à la jambe? » La femme remarqua aussitôt le sang sur la jambe de son mari. Elle s'agenouilla promptement pour examiner la blessure et ne vit qu'une égratignure superficielle.
 
-« Ce n'est rien. Avec Little White à mes côtés, les bêtes de la montagne ne peuvent pas me blesser. » L'homme rit tandis qu'une ombre jaillissait du portail pour bondir sur la jeune fille, la léchant sans interruption. C'était un grand chien noir.
+« Ce n'est rien. Avec Petit Blanc à mes côtés, les bêtes de la montagne ne peuvent pas me blesser. » L'homme rit tandis qu'une ombre jaillissait du portail pour bondir sur la jeune fille, la léchant sans interruption. C'était un grand chien noir.
 
 Toutefois, sa carrure ressemblait davantage à celle d'un tigre, ce qui donnait un spectacle saisissant.
 
-« Little White a encore essayé de rugir comme un tigre dans les montagnes. Je ne sais plus si c'est un tigre ou un chien... » L'homme regarda l'animal avec un sourire amer.
+« Petit Blanc a encore essayé de rugir comme un tigre dans les montagnes. Je ne sais plus si c'est un tigre ou un chien... » L'homme regarda l'animal avec un sourire amer.
 
-« Little White est gentil, il est si obéissant! » La jeune fille repoussa doucement le grand chien noir et caressa sa fourrure.
+« Petit Blanc est gentil, il est si obéissant! » La jeune fille repoussa doucement le grand chien noir et caressa sa fourrure.
 
 L'animal semblait adorer cela; il se coucha sur le dos, exposant son ventre. La jeune fille rit et commença à lui frotter le ventre. Le chien paraissait extrêmement confortable et laissait échapper des grognements dignes d'un véritable tigre.
 
 Toute la famille riait, ignorant la silhouette blanche qui flottait dans le ciel. Wang Lin contemplait cette famille heureuse et, en voyant le visage souriant de la jeune fille, il sourit à son tour.
 
-« Little White... J'avais presque oublié qu'il avait été emmené ici et qu'il avait aussi réincarné. Je ne m'attendais pas à ce qu'il se réincarne en un grand chien... Et à en juger par son allure, il a acquis de l'intelligence et une culture assez avancée. » Wang Lin sourit en voyant le grand chien s'étaler sur le sol pour savourer l'instant. Cependant, lorsque l'animal leva les yeux vers le ciel, il aperçut la silhouette de Wang Lin et fut saisi d'effroi.
+« Petit Blanc... J'avais presque oublié qu'il avait été emmené ici et qu'il avait aussi réincarné. Je ne m'attendais pas à ce qu'il se réincarne en un grand chien... Et à en juger par son allure, il a acquis de l'intelligence et une culture assez avancée. » Wang Lin sourit en voyant le grand chien s'étaler sur le sol pour savourer l'instant. Cependant, lorsque l'animal leva les yeux vers le ciel, il aperçut la silhouette de Wang Lin et fut saisi d'effroi.
 
 Son expression se remplit instantanément de peur. Le grand chien cligna des yeux et cessa net de grogner.
 
@@ -68,7 +68,7 @@ Ces mots surprisrent Wang Lin, qui afficha une expression complexe. Il observa l
 
 « Peut-être est-ce là la vie qu'elle souhaitait... »
 
-Cette nuit-là, elle fit un nouveau rêve. Dans ce rêve, elle portait un autre nom: Zhou Ru. Elle était accompagnée d'une silhouette noire nommée Little White. Elle passait son temps à taquiner cette silhouette et à lui faire faire des équilibres sur les mains...
+Cette nuit-là, elle fit un nouveau rêve. Dans ce rêve, elle portait un autre nom: Zhou Ru. Elle était accompagnée d'une silhouette noire nommée Petit Blanc. Elle passait son temps à taquiner cette silhouette et à lui faire faire des équilibres sur les mains...
 
 Elle avait aussi un oncle, qui était son parent le plus proche.
 

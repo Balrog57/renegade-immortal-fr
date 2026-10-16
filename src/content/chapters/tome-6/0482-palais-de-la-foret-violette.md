@@ -28,7 +28,7 @@ Son nom était Sun Yun, et il résidait au Pavillon du Nuage Violet! »
 
 Le regard de Wang Lin se fit sérieux alors qu'il demandait calmement: « Quel rapport cela a-t-il avec moi? »
 
-« En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi le secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul; il a alors scellé le Pavillon du Nuage Violet et a proclamé que la prochaine personne héritant de la Secte du Nuage Violet serait l'un de ses sept disciples directs! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit: « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun; vous seul venez d'une planète à la culture déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon du Nuage Violet, la discrimination est inévitable!
+« En temps normal, aucun. Mais il y a cent ans, Sun Yun a trahi la secte et s'est enfui pour une raison inconnue. Malgré cela, l'Ancêtre n'a pas envoyé de chasseur, il est parti personnellement. Un mois plus tard, l'Ancêtre est revenu seul; il a alors scellé le Pavillon du Nuage Violet et a proclamé que la prochaine personne héritant de la Secte du Nuage Violet serait l'un de ses sept disciples directs! » Le vieil homme marqua une pause à ce passage. Il regarda Wang Lin d'un air tourmenté, puis reprit: « Parmi les sept disciples de la division violette, les six autres ont grandi sur la planète Tian Yun; vous seul venez d'une planète à la culture déclinante. Même aux yeux des disciples ordinaires, vous êtes considéré comme un roturier et votre statut est inférieur au leur. Si tout était normal, ce ne serait pas si grave, mais puisque l'on vous a attribué le Pavillon du Nuage Violet, la discrimination est inévitable!
 
 De plus, votre niveau de culture n'est même pas si élevé; il est donc naturel que vos aînés vous voient comme une nuisance. À cause de l'Ancêtre, ils ne peuvent pas agir directement contre vous, mais les complots et les trahisons sont inéluctables! J'ai dit tout ce que je pouvais dire. Ce qui s'est passé aujourd'hui est notre faute. À partir de maintenant, mon frère et moi ne nous mêlerons plus jamais de vos affaires! »
 
@@ -50,7 +50,7 @@ Sans même y accorder d'importance, Wang Lin la jeta dans sa bouche. Dès que l'
 
 Une fois cela fait, Wang Lin regarda le vieil homme et demanda calmement: « Vous ne souhaitez pas partir? »
 
-Le vieil homme fixa l'homme avec stupéfaction. Il n'aurait jamais imaginé que celui-ci oserait enfreindre les règles du secte en dévorant une âme originelle sous ses yeux. Un tel acte relevait de la voie démoniaque!
+Le vieil homme fixa l'homme avec stupéfaction. Il n'aurait jamais imaginé que celui-ci oserait enfreindre les règles de la secte en dévorant une âme originelle sous ses yeux. Un tel acte relevait de la voie démoniaque!
 
 Son cœur trembla violemment; il recula de quelques pas et força un sourire: « Je m'en vais immédiatement. Je n'ai rien vu de ce qui s'est passé aujourd'hui! » Sur ces mots, il fit volte-face et s'enfuit de toutes ses forces.
 

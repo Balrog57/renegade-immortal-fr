@@ -38,7 +38,7 @@ Wang Lin observa les soldats démons d'un air calme. Il n'y vit que hostilité e
 
 Aucun soldat démon ne bougea d'un pouce. Tous leurs regards restaient rivés sur Sima Yan. Tant que ce dernier ne prononçait pas un mot, ils n'obéiraient à personne, fût-ce au nouveau commandant!
 
-Wang Lin ne da même pas un regard aux soldats environnants et traversa directement les dix régiments. Treize et Hu Pao le suivirent rapidement, l'expression sombre et silencieuse.
+Wang Lin ne daigna même pas un regard aux soldats environnants et traversa directement les dix régiments. Treize et Hu Pao le suivirent rapidement, l'expression sombre et silencieuse.
 
 Une fois les trois hommes partis, un éclat de rire s'éleva des dix mille soldats démons, un rire chargé de dédain et de mépris. Seul Sima Yan ne riait pas. Il fronça légèrement les sourcils. Il ne connaissait que peu de choses sur ce nouveau commandant, mais il savait que, s'il avait été à sa place, il n'aurait certainement pas pu partir si calmement sans faire de vagues!
 

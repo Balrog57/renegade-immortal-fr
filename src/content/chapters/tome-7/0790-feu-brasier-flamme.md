@@ -32,25 +32,25 @@ Des explosions retentirent soudainement lorsque les flammes entourant l'homme d'
 
 Dès sa formation, la boule de feu commença à se contracter comme si elle voulait consumer tout ce qui se trouvait à l'intérieur. Elle ne consumait pas seulement les choses tangibles, mais aussi l'intangible. De vastes pans de l'espace commencèrent à s'effondrer, comme si rien ne pouvait échapper à cette flamme.
 
-Seul le Domaine Ji jaillit de la boule de feu et se dirigea droit vers Wang Lin. Au moment précis où la boule de feu se contracta, le Domaine Ji chargea et percuta le corps de Wang Lin.
+Seul le Royaume Ji jaillit de la boule de feu et se dirigea droit vers Wang Lin. Au moment précis où la boule de feu se contracta, le Royaume Ji chargea et percuta le corps de Wang Lin.
 
-Une aura destructrice explosa instantanément à l'intérieur de son corps. Wang Lin vit clairement l'âme originelle du vieil homme s'effondrer sous l'assaut du Domaine Ji. Cependant, elle se reforma aussitôt avant de s'effondrer à nouveau.
+Une aura destructrice explosa instantanément à l'intérieur de son corps. Wang Lin vit clairement l'âme originelle du vieil homme s'effondrer sous l'assaut du Royaume Ji. Cependant, elle se reforma aussitôt avant de s'effondrer à nouveau.
 
 En un laps de temps très court, l'âme originelle du vieil homme subit d'innombrables cycles d'effondrement et de reformation. À chaque occurrence, son âme originelle s'affaiblissait un peu plus.
 
 Ces quelques respirations parurent une éternité à Wang Lin. Il commença à concentrer son âme originelle et, au moment où celle du vieil homme s'effondra, il agit sans l'ombre d'une hésitation.
 
-Wang Lin devait intervenir; autrement, si l'âme originelle du vieil homme devenait incapable de résister ou décidait de fuir, Wang Lin n'était pas certain de pouvoir repousser lui-même le Domaine Ji.
+Wang Lin devait intervenir; autrement, si l'âme originelle du vieil homme devenait incapable de résister ou décidait de fuir, Wang Lin n'était pas certain de pouvoir repousser lui-même le Royaume Ji.
 
-Après tout, le précédent Domaine Ji provenait du sceau. Bien que puissant, il était extrêmement instable, comme s'il manquait de fondations solides. Mais la situation actuelle était bien différente: ce Domaine Ji était d'une puissance redoutable!
+Après tout, le précédent Royaume Ji provenait du sceau. Bien que puissant, il était extrêmement instable, comme s'il manquait de fondations solides. Mais la situation actuelle était bien différente: ce Royaume Ji était d'une puissance redoutable!
 
-Au moment où l'âme originelle de Wang Lin entra en action, il ressentit immédiatement la puissance terrifiante du Domaine Ji. Son âme originelle trembla tandis que l'énergie originelle se propageait. Cette énergie enveloppa le Domaine Ji et le perça couche après couche, tel un couteau tranchant une feuille de papier.
+Au moment où l'âme originelle de Wang Lin entra en action, il ressentit immédiatement la puissance terrifiante du Royaume Ji. Son âme originelle trembla tandis que l'énergie originelle se propageait. Cette énergie enveloppa le Royaume Ji et le perça couche après couche, tel un couteau tranchant une feuille de papier.
 
-Heureusement, grâce à l'aide de Wang Lin, l'âme originelle du vieil homme eut un instant pour se rétablir. Au moment où le Domaine Ji était sur le point de transpercer l'âme originelle de Wang Lin, le vieil homme l'engloutit et continua d'utiliser son énergie originelle pour sceller le Domaine Ji.
+Heureusement, grâce à l'aide de Wang Lin, l'âme originelle du vieil homme eut un instant pour se rétablir. Au moment où le Royaume Ji était sur le point de transpercer l'âme originelle de Wang Lin, le vieil homme l'engloutit et continua d'utiliser son énergie originelle pour sceller le Royaume Ji.
 
 Tout cela parut extrêmement lent à Wang Lin, mais en réalité, la scène s'était déroulée en un éclair. Aucun des cultivateurs environnants n'en avait perçu les détails.
 
-« Dangereux! Cela est bien digne du Seigneur Céleste Qing Shui. Le Domaine Ji est effectivement époustouflant, et ce vieil homme n'a pas tout planifié pour rien. Hélas, je n'ai pu intervenir dans mon propre corps et j'ai failli voir mes plans échouer. Je ne pensais pas que le Seigneur Céleste Qing Shui posséderait encore une telle force après avoir été scellé durant tant d'années! » La voix fatiguée du vieil homme résonna dans l'esprit de Wang Lin.
+« Dangereux! Cela est bien digne du Seigneur Céleste Qing Shui. Le Royaume Ji est effectivement époustouflant, et ce vieil homme n'a pas tout planifié pour rien. Hélas, je n'ai pu intervenir dans mon propre corps et j'ai failli voir mes plans échouer. Je ne pensais pas que le Seigneur Céleste Qing Shui posséderait encore une telle force après avoir été scellé durant tant d'années! » La voix fatiguée du vieil homme résonna dans l'esprit de Wang Lin.
 
 À cet instant, la boule de feu se contracta rapidement jusqu'à n'atteindre plus que 3,3 mètres de large avant de s'effondrer. Cela provoqua une explosion de toute la puissance condensée, décuplant sa force.
 
@@ -76,4 +76,4 @@ Tang Yanfeng resta stupéfait, les yeux rivés sur la silhouette au sein des fla
 
 C'est alors qu'une voix grave résonna.
 
-« Ne pas mourir face au Domaine Ji... vous êtes très fort! » Une statue apparut au milieu des flammes. Lorsqu'elle se brisa, un jeune homme en sortit. Il était extrêmement beau, mais une légère aura maléfique flottait autour de lui.
+« Ne pas mourir face au Royaume Ji... vous êtes très fort! » Une statue apparut au milieu des flammes. Lorsqu'elle se brisa, un jeune homme en sortit. Il était extrêmement beau, mais une légère aura maléfique flottait autour de lui.

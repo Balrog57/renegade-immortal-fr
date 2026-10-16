@@ -48,7 +48,7 @@ Li Qianmei allait également partir. Elle avait reçu un appel urgent de son ma�
 
 On aurait dit que quelque chose de caché s'agitait.
 
-Li Qianmei ne pouvait désobéir aux ordres de son maître. Le Secte Briseur de Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
+Li Qianmei ne pouvait désobéir aux ordres de son maître. La Secte Briseur de Ciel lui avait tout donné et son maître l'avait élevée. Bien qu'il n'en eût pas dicté la raison, elle ne l'avait jamais vu employer des paroles aussi brusques.
 
 Elle n'eut que le temps de dire adieu avant d'entrer dans la formation de transfert de la Secte Éternelle. Après plusieurs transferts successifs, elle atteignit la Secte Briseur de Ciel.
 

@@ -46,7 +46,7 @@ Bien que l'ombre se soit brisée, Wang Lin n'était pas blessé. Tout ceci faisa
 
 Si Wang Lin était venu sur la planète des Cinq Éléments, c'était précisément pour ce coup de poing!!
 
-Son but était de forcer l'apparition de toutes les forces cachées de la planète. Il voulait tester la puissance de cette seconde force occulte agissant aux côtés du Tout-Voyant. Il voulait voir à quel point ce « clou » était tranchant et jusqu'à quelle profondeur il était enfoncé!
+Son but était de forcer l'apparition de toutes les forces cachées de la planète. Il voulait tester la puissance de cette seconde force occulte agissant aux côtés de l'Omniscient. Il voulait voir à quel point ce « clou » était tranchant et jusqu'à quelle profondeur il était enfoncé!
 
 Ce n'est qu'une fois cela pleinement compris qu'il pourrait mettre à exécution son plan pour trouver la troisième âme!
 

@@ -42,7 +42,7 @@ Il y avait aussi les deux femmes cultivatrices au stade initial de la Tribulatio
 
 Zhang Daozong était stupéfait. Il fixait la paume géante, les yeux écarquillés par l'incrédulité!
 
-« La Grande Empreinte de la Main du Démon Dao! C'est la Grande Empreinte de la Main du Démon Dao! Une empreinte à six doigts!!! C'est le sort le plus puissant de mon Secte du Démon Dao, un secret qui n'est transmis à personne d'autre! »
+« La Grande Empreinte de la Main du Démon Dao! C'est la Grande Empreinte de la Main du Démon Dao! Une empreinte à six doigts!!! C'est le sort le plus puissant de ma Secte du Démon Dao, un secret qui n'est transmis à personne d'autre! »
 
 « Seul le maître de chaque génération peut apprendre ce sort. Les autres membres de la secte ne peuvent même pas l'étudier, et encore moins ceux de l'extérieur! Ce Wang Lin... Comment... Comment a-t-il pu connaître ce sort?! »
 

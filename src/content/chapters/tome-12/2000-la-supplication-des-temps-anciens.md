@@ -30,7 +30,7 @@ Seuls les Ascendants Empyréens purent survivre grâce à leur puissante culture
 
 Une fois que tous les Exaltés et Ascendants Empyréens sous les ordres de Dao Yi eurent aidé à porter le fardeau, Dao Yi chercha des cultivateurs du troisième niveau avec acharnement. Même s'ils ne pouvaient l'aider qu'à supporter une infime fraction de la malédiction, cela lui serait d'un immense secours.
 
-Cette méthode cruelle consistant à partager le poids de la malédiction ancestrale fit que la Secte Dao Yi manqua de devenir un secte morte...
+Cette méthode cruelle consistant à partager le poids de la malédiction ancestrale fit que la Secte Dao Yi manqua de devenir une secte morte...
 
 Jiu Di ramena Hai Zi au Mont de l'Empereur et entra immédiatement en cultivation isolée. Sa puissance lui permettait de dissiper lentement la malédiction par ses propres moyens. De plus, avec l'aide de Hai Zi, le pouvoir de la malédiction s'estomperait progressivement avec le temps.
 
@@ -52,11 +52,11 @@ Les disciples envoyés à la cité ancestrale étaient retournés dans leurs sec
 
 Le Grand Secte de l'Âme.
 
-Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion du secte fut confiée aux Anciens, sans qu'il n'impose de conditions particulières. La montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
+Après le départ de Wang Lin, l'Illustre Taureau Vert était entré en cultivation isolée, se détournant des affaires mondaines. La gestion de la secte fut confiée aux Anciens, sans qu'il n'impose de conditions particulières. La montagne offerte à Wang Lin devait être préservée et transformée en une terre interdite où nul ne pourrait pénétrer.
 
 Beaucoup étaient perplexes face à cette décision. Lorsque la renommée de Wang Lin s'étala lors de l'Épreuve Empyréenne, et que les rumeurs concernant l'Ascendant aux cheveux blancs se répandirent, les membres du Grand Secte de l'Âme furent déconcertés. Ce n'est qu'en suivant divers indices qu'ils comprirent que Wang Lin était bel et bien cet Exalté Empyréen aux cheveux blancs. Ils saisirent alors vaguement le sens des actions de l'Illustre Taureau Vert.
 
-Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans le secte et pouvait décider de questions importantes. Elle aurait pu quitter sa montagne pour s'installer dans les profondeurs du Grand Secte de l'Âme afin d'obtenir une grotte plus luxueuse.
+Yan Luan, une ancienne du passé, occupait désormais un poste élevé dans la secte et pouvait décider de questions importantes. Elle aurait pu quitter sa montagne pour s'installer dans les profondeurs du Grand Secte de l'Âme afin d'obtenir une grotte plus luxueuse.
 
 Mais elle ne partit jamais. Du sommet de sa montagne, elle pouvait apercevoir la grotte de Wang Lin au loin. Chaque fois qu'elle se remémorait le passé, elle restait là, debout, contemplant silencieusement la montagne de Wang Lin.
 
@@ -68,7 +68,7 @@ Il avait été personnellement nommé Ancien par l'Illustre Taureau Vert, bien q
 
 Le temps s'écoulait. Au fil des innombrables levers et couchers de soleil, le Grand Secte de l'Âme semblait immuable, tout comme le Continent du Taureau Céleste. Les montagnes restaient les mêmes, et les pavillons étaient identiques à ceux d'autrefois.
 
-Wang Lin se tenait devant le Grand Secte de l'Âme, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension du secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait ressenti un lien avec le Grand Secte de l'Âme. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
+Wang Lin se tenait devant le Grand Secte de l'Âme, contemplant ce lieu familier. Lorsqu'il était arrivé ici la première fois, sa compréhension de la secte n'était que vague. Il avait fini par croire qu'il en connaissait tous les rouages jusqu'à ce qu'il parte et vive mille expériences. Finalement, au palais impérial, si loin de là, il avait ressenti un lien avec le Grand Secte de l'Âme. Il comprit enfin que, même maintenant, il restait des mystères insondables sur ce lieu.
 
 « Le clan Dao Wang... Un génie que nul ne pouvait surpasser... L'ancêtre de ce Grand Secte de l'Âme est peut-être mort, ou peut-être est-il encore de ce monde... Mais son plan s'étendait sur des éons et il avait prédit les événements d'aujourd'hui. Il avait manigancé contre tout le monde. À ses yeux, chacun n'était qu'un pion... »
 
@@ -78,7 +78,7 @@ Wang Lin regarda le Grand Secte de l'Âme avec une expression complexe. Il étai
 
 Dans un soupir, Wang Lin s'avança vers le Grand Secte de l'Âme.
 
-Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres du secte, personne ne remarqua son arrivée.
+Son niveau de culture actuel étant bien supérieur à celui de l'Illustre Taureau Vert et de tous les membres de la secte, personne ne remarqua son arrivée.
 
 Au sein du Grand Secte de l'Âme, Wang Lin vit Du Qing et Yan Luan, cette dernière se tenant sur la montagne vêtue d'une robe rouge flamboyant. Il aperçut également Fan Shanmeng et Fan Shanlu.
 

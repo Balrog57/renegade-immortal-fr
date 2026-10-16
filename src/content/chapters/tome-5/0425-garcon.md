@@ -76,7 +76,7 @@ L'arrivée de Zhuque Zi avait plongé Du Tian dans le désespoir; pourtant, les 
 
 Il s'assit en position de lotus, un sourire aux lèvres, et ferma lentement les yeux.
 
-« Grand frère apprenti, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, toi, Maître, ainsi que tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte de Raffinement des Âmes. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, mon Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte de Raffinement des Âmes… »
+« Grand frère apprenti, ta prédiction s'est réalisée… Moi, Du Tian, je peux te rencontrer, toi, Maître, ainsi que tous nos ancêtres, avec le sourire. Je, Du Tian, ne suis pas un pécheur envers la Secte de Raffinement des Âmes. J'ai trouvé un nouvel espoir pour lui. Je vois déjà qu'à l'avenir, ma Secte deviendra une puissance dépassant les pays de culture de rang 6. Moi, Du Tian, j'ai laissé ma marque dans l'histoire de la Secte de Raffinement des Âmes… »
 
 « Maître, j'ai réussi à accomplir ce que je vous avais promis. Je, Du Tian, suis prêt à effacer ma conscience pour entrer dans le drapeau de l'âme pour l'éternité! »
 

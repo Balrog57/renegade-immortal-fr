@@ -64,7 +64,7 @@ Au moment de son trépas, l'homme comprit clairement la force de Wang Lin. Il n'
 
 À la mort de l'homme à la robe rouge, les 30 000 cultivateurs et les dizaines de cultivateurs du troisième niveau tentèrent de fuir. Cependant, Wang Lin avait déjà scellé la Secte du Dao Démoniaque; aucune évasion n'était possible.
 
-Wang Lin restait là, le regard froid. Il observa le lac au centre du secte et l'île qui s'y trouvait.
+Wang Lin restait là, le regard froid. Il observa le lac au centre de la secte et l'île qui s'y trouvait.
 
 « Tu ne te montreras toujours pas! » Les paroles de Wang Lin résonnèrent comme le tonnerre, mais aucun son ne vint du lac!
 
@@ -72,9 +72,9 @@ Wang Lin restait là, le regard froid. Il observa le lac au centre du secte et l
 
 « Vous n'auriez jamais dû rejoindre la Secte du Dao Démoniaque... » Wang Lin se détourna et s'éloigna. Il apparut devant un autre cultivateur du troisième niveau qui, dans un hurlement, vit son front percé par le doigt de Wang Lin.
 
-Simultanément, le sceau entourant la Secte du Dao Démoniaque gronda. Le périmètre se contracta rapidement. Tout membre du secte touchant le sceau mourait instantanément.
+Simultanément, le sceau entourant la Secte du Dao Démoniaque gronda. Le périmètre se contracta rapidement. Tout membre de la secte touchant le sceau mourait instantanément.
 
-Puisqu'il avait déclaré qu'il détruirait le secte, il l'exécuterait. Pas un seul membre ne serait épargné!
+Puisqu'il avait déclaré qu'il détruirait la secte, il l'exécuterait. Pas un seul membre ne serait épargné!
 
 Wang Lin se déplaçait avec indifférence, éliminant un à un ces dizaines de cultivateurs du troisième niveau. Debout au bord du lac à moitié vide, il contemplait l'île. Les cris déchiraient l'air alors qu'une masse considérable de cultivateurs de la Secte du Dao Démoniaque succombait.
 
@@ -102,11 +102,11 @@ De plus, le Maître de la Secte savait pertinemment que Wang Lin possédait enco
 
 Alors que le Maître de la Secte subissait les hurlements extérieurs, son regard se glaça. Dehors, Wang Lin observa le lac et vit une ombre s'agiter sous l'eau.
 
-Le sceau en contraction rapide avait tué la plupart des cultivateurs et détruit de nombreux édifices, laissant le secte en ruines. Il se concentrait désormais vers le centre du lac!
+Le sceau en contraction rapide avait tué la plupart des cultivateurs et détruit de nombreux édifices, laissant la secte en ruines. Il se concentrait désormais vers le centre du lac!
 
 À cet instant précis, sur le Continent du Taureau Céleste, un événement majeur survint!
 
-Le Secte Gui Yi était encerclé par d'innombrables cultivateurs du Continent du Démon Vert. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
+La Secte Gui Yi était encerclé par d'innombrables cultivateurs du Continent du Démon Vert. Ils s'étaient lancés dans une boucherie frénétique pour tenter de briser la formation de la Secte Gui Yi. Les deux camps comptaient sept ou huit génies émergents, et les deux armées combattaient sans égard pour leur vie.
 
 Tous les cultivateurs de la Tribulation du Vide, y compris le Maître de la Secte et les autres experts du Continent du Démon Vert, levèrent la tête vers le ciel!
 

@@ -82,9 +82,9 @@ On pouvait dire que la clé de la culture de Wang Lin résidait dans les essence
 
 Bien que le concept d'essence semble simple, les obtenir et les parfaire était extrêmement difficile. En contemplant cette goutte d'essence aquatique, Wang Lin ne put s'empêcher de prendre une profonde inspiration.
 
-Ce n'était pas la première fois qu'il obtenait une telle goutte dans sa vie; c'était la deuxième! La première fois venait du mystérieux Tout-Voyant. C'est grâce à cette goutte et à sa chance sur la Planète des Cinq Éléments que son essence aquatique avait atteint la petite complétion.
+Ce n'était pas la première fois qu'il obtenait une telle goutte dans sa vie; c'était la deuxième! La première fois venait du mystérieux Omniscient. C'est grâce à cette goutte et à sa chance sur la Planète des Cinq Éléments que son essence aquatique avait atteint la petite complétion.
 
-Cependant, la goutte qu'il tenait là dépassait de loin ce que le Tout-Voyant lui avait donné. Il était impossible de les comparer; c'était comme comparer la lune éclatante à une luciole!
+Cependant, la goutte qu'il tenait là dépassait de loin ce que l'Omniscient lui avait donné. Il était impossible de les comparer; c'était comme comparer la lune éclatante à une luciole!
 
 « Cette goutte d'essence aquatique est le troisième cadeau que je t'ai préparé. J'ai raffiné 99 rivières dans le Continent du Fleuve Céleste et j'ai également utilisé de nombreux cultivateurs possédant des essences aquatiques pour les nourrir. Je ne sais pas si ton essence sera complète après l'avoir absorbée, mais même si ce n'est pas le cas, elle ne sera qu'à un cheveu de l'aboutissement... »
 

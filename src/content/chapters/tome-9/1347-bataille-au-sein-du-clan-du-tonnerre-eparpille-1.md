@@ -8,9 +8,9 @@ slug: bataille-au-sein-du-clan-du-tonnerre-eparpille-1
 ---
 Wang Lin ne les arrêta pas. Il regarda l'homme d'âge moyen terrifié saisir la magnifique femme, tout aussi effrayée, et ils disparurent en un instant.
 
-« Les cultivateurs du stade Briseur du Nirvana de l'autre royaume doivent mourir... » Les yeux de Wang Lin s'illuminèrent et le Domaine Ji se lança. La foudre rouge chargea immédiatement!
+« Les cultivateurs du stade Briseur du Nirvana de l'autre royaume doivent mourir... » Les yeux de Wang Lin s'illuminèrent et le Royaume Ji se lança. La foudre rouge chargea immédiatement!
 
-Le Domaine Ji influença le tonnerre infini du ciel, et le grondement s'intensifia, comme si la voûte céleste allait s'effondrer! Le tonnerre déferla sur la planète telle une tempête éternelle; il semblait que la planète entière était devenue une prison de foudre!
+Le Royaume Ji influença le tonnerre infini du ciel, et le grondement s'intensifia, comme si la voûte céleste allait s'effondrer! Le tonnerre déferla sur la planète telle une tempête éternelle; il semblait que la planète entière était devenue une prison de foudre!
 
 Alors que l'homme d'âge moyen reculait, son visage était empreint d'une peur monstrueuse. Il utilisa des sorts et une multitude de trésors pour tenter de résister à cette foudre rouge qui lui infligeait un sentiment de danger sans précédent!
 
@@ -88,7 +88,7 @@ Le vieil homme se tenait au sommet du dragon de tonnerre; il tendit la main et u
 
 Wang Lin regarda calmement cet homme et secoua la tête.
 
-« Tu n'es pas qualifié pour m'affronter. » Les yeux de Wang Lin s'illuminèrent et son Domaine Ji se projeta à une vitesse inimaginable. Il déchira le vide et entra en collision directe avec le dragon de tonnerre.
+« Tu n'es pas qualifié pour m'affronter. » Les yeux de Wang Lin s'illuminèrent et son Royaume Ji se projeta à une vitesse inimaginable. Il déchira le vide et entra en collision directe avec le dragon de tonnerre.
 
 Des grondements assourdissants retentirent. Le dragon de tonnerre trembla et poussa un cri plaintif avant de s'effondrer. Les yeux du premier cultivateur au Fléau Céleste étaient remplis d'une horreur indescriptible. Il agita la main droite pour tenter de bloquer la foudre rouge avec son épée!
 
@@ -98,11 +98,11 @@ Les yeux du vieil homme étaient pétris de terreur. La mort ne s'était jamais 
 
 « Arrête! » Alors que ce rugissement résonnait, un homme grand et d'âge moyen sortit du temple. En une seule enjambée, il franchit la barrière pour se placer aux côtés du cultivateur au Fléau Céleste.
 
-Cependant, sa vitesse restait trop lente comparée à celle du Domaine Ji. À l'instant même où il apparut, le Domaine Ji avait déjà transpercé la tête du cultivateur et ressorti de l'autre côté.
+Cependant, sa vitesse restait trop lente comparée à celle du Royaume Ji. À l'instant même où il apparut, le Royaume Ji avait déjà transpercé la tête du cultivateur et ressorti de l'autre côté.
 
 Les yeux de ce dernier devinrent flous et il cracha du sang. Son corps s'effondra, mais son âme originelle jaillit hors de lui. Il était gravement blessé, mais pas mort!
 
-Wang Lin fronça les sourcils. N'étant pas ici avec son corps original, il ne possédait qu'une puissance limitée pour son Domaine Ji. C'était la raison pour laquelle il n'avait pu achever totalement ce cultivateur au premier niveau de Fléau Céleste.
+Wang Lin fronça les sourcils. N'étant pas ici avec son corps original, il ne possédait qu'une puissance limitée pour son Royaume Ji. C'était la raison pour laquelle il n'avait pu achever totalement ce cultivateur au premier niveau de Fléau Céleste.
 
 « Tu oses te rebeller?! » L'homme grand saisit l'âme originelle de son clan et fixa Wang Lin, les yeux remplis d'une intention meurtrière! L'aura d'un troisième niveau de Fléau Céleste se propagea de son corps; elle était terrifiante. Des ondulations se propagèrent dans l'espace lui-même.
 

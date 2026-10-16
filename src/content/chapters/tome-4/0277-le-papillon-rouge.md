@@ -98,7 +98,7 @@ Un éclat rouge apparut dans les yeux de la marionnette. Alors que la glace et l
 
 Simultanément, au cœur de l'explosion, un éclair rouge chargea vers la vieille femme.
 
-Cet éclair rouge était le Domaine Ji de Wang Lin. Bien que son effet sur les cultivateurs de la Formation de l'Âme fût limité, il suffisait à ébranler leur conscience.
+Cet éclair rouge était le Royaume Ji de Wang Lin. Bien que son effet sur les cultivateurs de la Formation de l'Âme fût limité, il suffisait à ébranler leur conscience.
 
 La vieille femme ne se soucia guère de l'éclair rouge, mais elle fronça légèrement les sourcils face à l'explosion de la marionnette d'Âme Naissante. Elle posa sa main sur la tour de glace, faisant jaillir des rayons de lumière blanche de toutes les fenêtres. Ces rayons se condensèrent autour d'elle, formant un bouclier de glace de 33 mètres de diamètre.
 

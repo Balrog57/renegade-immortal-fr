@@ -52,7 +52,7 @@ Cependant, aujourd'hui, la situation s'était totalement inversée. À cet insta
 
 « Nous ne pouvons pas laisser cet homme entrer dans la Secte Divin! »
 
-« L'ordre de la Secte Divin est de défendre jusqu'à la mort! Des cultivateurs comme nous ne craignent pas la mort! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. Le Secte Divin était derrière eux; c'était leur vie même et la raison de leur culture!
+« L'ordre de la Secte Divin est de défendre jusqu'à la mort! Des cultivateurs comme nous ne craignent pas la mort! » Les cultivateurs au visage pâle étaient forcés de battre en retraite. La Secte Divin était derrière eux; c'était leur vie même et la raison de leur culture!
 
 Au cours des dizaines de milliers d'années écoulées, la position de la Secte Divin était une chose que les cultivateurs de la Mer des Nuages respectaient et pour laquelle ils étaient prêts à mourir!
 

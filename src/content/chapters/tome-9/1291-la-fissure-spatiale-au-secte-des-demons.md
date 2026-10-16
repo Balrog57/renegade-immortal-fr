@@ -52,7 +52,7 @@ Des bêtes de rang 12 rôdaient dans le brouillard de la région de rang 9, mais
 
 En chemin, Wang Lin se déplaçait à une vitesse suprême. Des grondements tonitruants éclataient alors qu'il déchirait le brouillard devant lui, fonçant vers le champ de bataille de la Secte des Démons sous la guidance de la vieille femme.
 
-Le Secte des Démons était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux!
+La Secte des Démons était l'organisation la plus mystérieuse de la région de rang 9. La rumeur disait que ses disciples étaient peu nombreux, mais que chacun d'entre eux était un cultivateur prodigieux!
 
 Stationnés sur le champ de bataille depuis d'innombrables années pour repousser les vagues d'invasions de bêtes féroces, les membres de la Secte des Démons étaient imprégnés d'une intention meurtrière constante. De plus, comme ils ne quittaient presque jamais leur domaine, les habitants de la Mer des Nuages les considéraient comme l'égal de la Secte Divin!
 

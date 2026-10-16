@@ -50,13 +50,13 @@ Durant ces dix années, la femme s'était soigneusement dissimulée dans le pala
 
 Wang Lin fronça les sourcils. Après avoir réfléchi un instant, il décida de ne plus y penser. Son sens divin ne se concentra plus sur la cité, mais balaya la planète Suzaku à la recherche de la Secte des Cadavres.
 
-Le Secte des Cadavres était une organisation tentaculaire. Non seulement aux abords de la planète, mais rien qu'en restant sur Suzaku, Wang Lin se souvenait que le secte était présent dans presque tous les pays.
+La Secte des Cadavres était une organisation tentaculaire. Non seulement aux abords de la planète, mais rien qu'en restant sur Suzaku, Wang Lin se souvenait que la secte était présent dans presque tous les pays.
 
 Cependant, à travers les souvenirs de cette femme, il comprit que la Secte des Cadavres avait été réorganisé. Ils étaient désormais concentrés en un seul lieu, qui était devenu le quartier général de la Secte sur la planète Suzaku.
 
 Ce qui était intéressant, c'est que ce nouveau quartier général se trouvait dans le pays de Zhao, là même où la Secte des Cadavres de Zhao opérait autrefois!
 
-Après avoir nettoyé les membres du secte dans diverses cités, Wang Lin se dirigea droit vers le siège de la Secte des Cadavres à Zhao. Il se déplaçait à une vitesse fulgurante et arriva bientôt à destination.
+Après avoir nettoyé les membres de la secte dans diverses cités, Wang Lin se dirigea droit vers le siège de la Secte des Cadavres à Zhao. Il se déplaçait à une vitesse fulgurante et arriva bientôt à destination.
 
 Cela faisait des centaines d'années qu'il n'était pas venu ici. En fixant le marécage qui s'étendait devant lui, son regard devint glacial et il murmura: « Intéressant. Il y a bien plus de restrictions ici qu'auparavant. »
 
@@ -74,11 +74,11 @@ Wang Lin pénétra dans le conduit avec calme, suivi par Ta Shan. Quant au garç
 
 En descendant ce passage secret, Wang Lin ressentit une pointe de mélancolie. Il était venu ici deux fois, il y a des siècles, et à chaque fois, il avait dû faire preuve d'une prudence extrême. Désormais, il pouvait agir à sa guise.
 
-Alors qu'il progressait, il déploya son sens divin sur tout la Secte des Cadavres afin de bloquer toutes les issues. Il était ici pour traquer le chef du secte. Qu'il s'agisse d'aujourd'hui ou d'autrefois, Wang Lin n'avait jamais éprouvé la moindre bienveillance envers eux. Sans parler du fait qu'ils avaient osé utiliser la famille Wang pour nourrir des esprits vengeurs.
+Alors qu'il progressait, il déploya son sens divin sur tout la Secte des Cadavres afin de bloquer toutes les issues. Il était ici pour traquer le chef de la secte. Qu'il s'agisse d'aujourd'hui ou d'autrefois, Wang Lin n'avait jamais éprouvé la moindre bienveillance envers eux. Sans parler du fait qu'ils avaient osé utiliser la famille Wang pour nourrir des esprits vengeurs.
 
 Wang Lin n'éprouvait aucun sentiment particulier envers ces descendants dont le lien remontait à plus de dix générations. Cependant, ils étaient les descendants de la lignée Wang, et les voir ainsi maltraités l'enrageait profondément.
 
-En chemin, tout cultivateur de la Secte des Cadavres détecté par son sens divin s'effondrait et mourait sur le coup. Les membres du secte étaient nombreux; leurs visages étaient sombres de terreur alors qu'ils tentaient désespérément de fuir. Mais avec le sens divin de Wang Lin scellant les passages, aucune évasion n'était possible!
+En chemin, tout cultivateur de la Secte des Cadavres détecté par son sens divin s'effondrait et mourait sur le coup. Les membres de la secte étaient nombreux; leurs visages étaient sombres de terreur alors qu'ils tentaient désespérément de fuir. Mais avec le sens divin de Wang Lin scellant les passages, aucune évasion n'était possible!
 
 Soudain, une rafale d'énergie d'épée jaillit du passage vers lui.
 
@@ -100,7 +100,7 @@ Au moment où la momie disparut, ses yeux retrouvèrent une clarté éphémère.
 
 Tous ces embusqueurs n'étaient que des marionnettes de cadavres.
 
-Wang Lin poursuivit sa marche vers le quartier général de la Secte des Cadavres. Arrivé à un certain point, son regard devint glacial et il scruta l'horizon. Son regard semblait capable de percer les parois pour sonder l'intérieur de la grotte. Il y vit huit immenses formations de transfert, au sein desquelles de nombreux membres du secte se tenaient debout. Les formations s'activèrent et commencèrent à disparaître lentement.
+Wang Lin poursuivit sa marche vers le quartier général de la Secte des Cadavres. Arrivé à un certain point, son regard devint glacial et il scruta l'horizon. Son regard semblait capable de percer les parois pour sonder l'intérieur de la grotte. Il y vit huit immenses formations de transfert, au sein desquelles de nombreux membres de la secte se tenaient debout. Les formations s'activèrent et commencèrent à disparaître lentement.
 
 « Vous ne pourrez pas tous vous échapper! » se dit calmement Wang Lin. Son sens divin balaya les huit formations, provoquant leur effondrement immédiat. En un instant, trois d'entre elles furent détruites, projetant les disciples de la Secte des Cadavres dans une fissure spatiale.
 

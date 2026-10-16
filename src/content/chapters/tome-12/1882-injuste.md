@@ -42,7 +42,7 @@ Ce jeune homme était Yun Yifeng, de la Secte Gui Yi!
 
 Yun Yifeng atterrit aux côtés de Wang Lin et rit. En voyant Wang Lin, il ressentit une immense joie. En repensant à ce qui s'était passé dans le monde des grottes, ils avaient été à la fois ennemis et amis. C'était complexe, et ce souvenir l'emplissait d'émotion. Après tout, ces dizaines de milliers d'années passées dans le monde des grottes représentaient la majeure partie de sa vie.
 
-« Frère Wang, après avoir quitté la grotte, j'ai immédiatement utilisé la puissance de mon secte pour te chercher, mais sans succès. Je ne m'attendais pas à ce que tu apparaisses ainsi. J'étais si heureux que je voulais naturellement poursuivre notre combat », dit sincèrement Yun Yifeng en ouvrant les bras vers Wang Lin.
+« Frère Wang, après avoir quitté la grotte, j'ai immédiatement utilisé la puissance de ma secte pour te chercher, mais sans succès. Je ne m'attendais pas à ce que tu apparaisses ainsi. J'étais si heureux que je voulais naturellement poursuivre notre combat », dit sincèrement Yun Yifeng en ouvrant les bras vers Wang Lin.
 
 Wang Lin marqua un temps d'arrêt et observa Yun Yifeng. Après une courte réflexion, il s'avança et lui serra chaleureusement la main dans une étreinte fraternelle.
 
@@ -64,7 +64,7 @@ Tang Jia prit un air sérieux et déclara doucement: « Secte Xiu Shen, Tang Jia
 
 « Secte de la Grande Âme, Wang Lin! » dit lentement Wang Lin avant d'inspecter les lieux. Il remarqua que lorsque la voix avait résonné, une restriction invisible avait enveloppé la zone, empêchant quiconque de communiquer avec l'extérieur.
 
-Ce qui le surprit secrètement était que les fluctuations du monde étaient également perturbées ici; il était donc impossible de diviner ce qui s'y passait par les arts divinatoires. Il ne s'agissait pas d'une simple restriction individuelle, mais d'une partie de la formation protégeant l'intégralité du secte.
+Ce qui le surprit secrètement était que les fluctuations du monde étaient également perturbées ici; il était donc impossible de diviner ce qui s'y passait par les arts divinatoires. Il ne s'agissait pas d'une simple restriction individuelle, mais d'une partie de la formation protégeant l'intégralité de la secte.
 
 « Trois des sept méridiens du Taureau Céleste ont été détruits et trois Messagers du Taureau Céleste sont tombés... Vous quatre avez défendu les méridiens et accompli de grands mérites! Après concertation avec la Grande Âme, ceux qui ont excellé doivent être récompensés! » La voix majestueuse dégageait une aura ancestrale, comme si elle avait vécu depuis des éons, oubliant le passage du temps.
 
@@ -78,7 +78,7 @@ Ce qui le surprit secrètement était que les fluctuations du monde étaient ég
 
 « Tang Jia! » La voix résonna à nouveau.
 
-« Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ton Secte Xiu Shen de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor de la Secte Gui Yi! »
+« Tu as gardé le sixième méridien et accompli des mérites. Je permettrai à ta Secte Xiu Shen de tripler sa taille, de recruter trois fois plus de disciples et d'obtenir trois fois plus de ressources de culture. Je te remettrai également l'armure élémentaire d'eau, un trésor de la Secte Gui Yi! »
 
 Un rayon de lumière bleue jaillit de la grande salle, se transformant en une mer qui sembla remplir le monde. Elle s'élança et enveloppa Tang Jia, pénétrant ses pores. Le corps de la jeune femme trembla et des ondulations parcoururent ses yeux autrefois calmes. Elle s'inclina respectueusement: « Merci, Maître de Secte. »
 
@@ -86,7 +86,7 @@ Un rayon de lumière bleue jaillit de la grande salle, se transformant en une me
 
 Yun Yifeng devint solennel et fit un pas en avant avec une révérence.
 
-« Tu as gardé le quatrième méridien et accompli des mérites. Comme tu possèdes déjà l'armure élémentaire du secte, je t'enseignerai l'un de mes quatre sorts et te remettrai l'un de mes trésors célestes: la Dague de l'Esprit Massacreur! » Tandis que ses paroles résonnaient, deux rayons de lumière jaillirent de la salle. L'un était un jade et l'autre une dague. Cette dernière était singulière, dotée de neuf pointes dégageant une aura terrifiante.
+« Tu as gardé le quatrième méridien et accompli des mérites. Comme tu possèdes déjà l'armure élémentaire de la secte, je t'enseignerai l'un de mes quatre sorts et te remettrai l'un de mes trésors célestes: la Dague de l'Esprit Massacreur! » Tandis que ses paroles résonnaient, deux rayons de lumière jaillirent de la salle. L'un était un jade et l'autre une dague. Cette dernière était singulière, dotée de neuf pointes dégageant une aura terrifiante.
 
 « Merci, Maître de Secte! » Yun Yifeng, ravi, accepta les deux objets en s'inclinant devant la grande salle.
 

@@ -76,7 +76,7 @@ Lin Yi acquiesça: « Ces cinq sont bel et bien des marionnettes humaines. »
 
 L'homme svelte de la Secte Tian Dao observa les environs en fronçant les sourcils: « Pourquoi le compagnon de culture Ye n'est-il pas ici...? »
 
-Lin Yi secoua la tête et répondit: « La Secte des Cadavres n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement: « Le Secte des Cadavres... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
+Lin Yi secoua la tête et répondit: « La Secte des Cadavres n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement: « La Secte des Cadavres... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
 
 Fort de cette pensée, Lin Yi se tourna soudainement vers le cultivateur de l'Âme Naissante de la Vallée Wu Feng et déclara: « La Vallée Wu Feng n'a pas non plus conservé son jeton et est disqualifiée. Cependant, ils ont cédé leur jeton à une autre secte; celle-ci est donc autorisée à détenir deux jetons, puisqu'il n'y a aucune limite quant au nombre de jetons que l'on peut posséder. »
 

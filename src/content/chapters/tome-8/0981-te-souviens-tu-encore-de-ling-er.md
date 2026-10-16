@@ -10,21 +10,21 @@ Chapitre 981 - Te souviens-tu encore de Ling Er?
 
 Wang Lin hésita un instant, puis tourna son regard vers la planète située derrière les frères Chen. L'énergie spirituelle qui en émanait était si dense qu'un simple coup d'œil lui permit de deviner la splendeur de ce monde.
 
-Voyant l'hésitation de Wang Lin, Maître Yi Chen s'empressa de dire: « Frère Wang, hormis notre planète Water Spirit, aucune autre dans un rayon de centaines de milliers de kilomètres n'est aussi propice à la culture. De plus, cette planète est vaste; nous ne perturberons nullement votre cultivation. »
+Voyant l'hésitation de Wang Lin, Maître Yi Chen s'empressa de dire: « Frère Wang, hormis notre planète Esprit d'Eau, aucune autre dans un rayon de centaines de milliers de kilomètres n'est aussi propice à la culture. De plus, cette planète est vaste; nous ne perturberons nullement votre cultivation. »
 
 Les maîtres Yi Xing et Yi Long perçurent également les intentions de Maître Yi Chen et s'empressèrent de persuader Wang Lin.
 
 Wang Lin hocha la tête et joignit les mains en signe de respect. « Puisqu'il en est ainsi, je vais devoir vous importuner, mes frères. »
 
-Maître Yi Chen rit: « Aucun dérangement! Accueillir le frère Wang Lin sur notre planète est un honneur pour nous. Par ici! » Tout en parlant, il fit quelques pas en arrière et fit signe à Lei Ji de diriger son immense corps vers la planète Water Spirit.
+Maître Yi Chen rit: « Aucun dérangement! Accueillir le frère Wang Lin sur notre planète est un honneur pour nous. Par ici! » Tout en parlant, il fit quelques pas en arrière et fit signe à Lei Ji de diriger son immense corps vers la planète Esprit d'Eau.
 
 Au fur et à mesure de leur progression, le corps de Lei Ji rétrécissait jusqu'à devenir celui d'un colosse suivant Wang Lin et Big Head. Quant à Maître Hollow Wind, il n'osa plus ouvrir la bouche et se contenta de suivre Wang Lin.
 
 En chemin, les frères Chen discutèrent avec Wang Lin, mais leurs propos restaient superficiels. Ils ne posèrent aucune question sur les événements survenus aux abords de la ville de Ghost Eye.
 
-Étant tous de puissants cultivateurs, il ne leur fallut que peu de temps pour approcher la planète Water Spirit et pénétrer dans son atmosphère. Les vents violents qui y soufflaient furent impuissants à les ébranler; franchir l'atmosphère n'était pour eux qu'une formalité insignifiante.
+Étant tous de puissants cultivateurs, il ne leur fallut que peu de temps pour approcher la planète Esprit d'Eau et pénétrer dans son atmosphère. Les vents violents qui y soufflaient furent impuissants à les ébranler; franchir l'atmosphère n'était pour eux qu'une formalité insignifiante.
 
-Bientôt, ils eurent traversé la couche atmosphérique. Wang Lin descendit sur la planète Water Spirit, traité avec les égards dus à une étoile par les frères Chen.
+Bientôt, ils eurent traversé la couche atmosphérique. Wang Lin descendit sur la planète Esprit d'Eau, traité avec les égards dus à une étoile par les frères Chen.
 
 Dès qu'ils sortirent de l'atmosphère, ils ressentirent une énergie spirituelle d'une densité exceptionnelle. Wang Lin prit une profonde inspiration, les yeux empreints d'admiration. En voyant cela, les trois frères Chen éprouvèrent un sentiment de fierté secrète. C'était la planète de culture la plus riche dans un rayon de centaines de milliers de kilomètres. Sans leur Maître, ils n'auraient jamais pu s'approprier un tel monde.
 
@@ -102,7 +102,7 @@ Son énergie originelle emplit son corps tandis que sa culture de Scruteur du Ni
 
 Durant ce laps de temps, les trois frères Chen passèrent, mais ils ne le dérangèrent pas. Après avoir attendu un moment, ils prirent congé et partirent.
 
-Tard dans la nuit, trois jours plus tard, les étoiles brillaient intensément dans le ciel de la planète Water Spirit et le vent nocturne soufflait doucement. Le vent faisait bruisser les feuilles, mais tout le reste était plongé dans un silence profond.
+Tard dans la nuit, trois jours plus tard, les étoiles brillaient intensément dans le ciel de la planète Esprit d'Eau et le vent nocturne soufflait doucement. Le vent faisait bruisser les feuilles, mais tout le reste était plongé dans un silence profond.
 
 Wang Lin était assis au cœur du palais. Après trois jours d'immobilité absolue, il ouvrit soudainement les yeux. Deux rayons de lumière vive jaillirent de ses pupilles.
 

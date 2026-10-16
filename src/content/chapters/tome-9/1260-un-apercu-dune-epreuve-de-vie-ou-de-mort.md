@@ -36,7 +36,7 @@ Les gens préféreraient traverser le Monde de la Brume Animale plutôt que de p
 
 Le Maître de la Secte Éternel poussa un soupir. Bien qu'il ait tenté de surestimer la force de Wang Lin, il était, en fin de compte, resté bien trop loin de la réalité. Que ce soit ce doigt, l'extraction de l'âme planétaire, la Nuit Déchirée ou le sort temporel utilisé à la fin, tout cela suffisait à démontrer la puissance de Wang Lin.
 
-« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre des Grands Anciens! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Mon Secte Éternel doit absolument conserver un tel cultivateur... Cependant, avec lui, mon Secte Éternel s'élèvera lors de la compétition avec les autres sectes de rang 8! »
+« Cet homme doit être un cultivateur du Fléau Céleste, mais en raison de ses blessures, son niveau de culture a chuté. Pourtant, ses sorts lui permettent de lutter contre des Grands Anciens! De plus, il n'a aucune malveillance; autrement, il aurait utilisé une multitude de trésors pour prolonger cette bataille! Ma Secte Éternel doit absolument conserver un tel cultivateur... Cependant, avec lui, ma Secte Éternel s'élèvera lors de la compétition avec les autres sectes de rang 8! »
 
 Lu Yanfei regarda la silhouette de Wang Lin, sous le choc. Même elle ne s'attendait pas à ce qu'il soit aussi puissant. En repensant aux paroles de son maître avant sa mort, les yeux de Lu Yanfei s'illuminèrent.
 
@@ -104,7 +104,7 @@ Wang Lin le suivit immédiatement, mais avant de partir, il se retourna et laiss
 
 Le Grand Ancien s'envola aux côtés de Wang Lin et commença à lui présenter la Secte Éternel. Ils discutèrent et rirent, dans une ambiance joyeuse, comme si l'incident désagréable n'avait jamais eu lieu.
 
-Le Secte Éternel ne se trouvait pas sur cette planète de culture, mais ailleurs. Les trois étant des cultivateurs puissants, leur vitesse était prodigieuse. Guidés par le Maître, ils quittèrent la planète pour s'élancer vers une autre, et le secte apparut progressivement devant eux!
+La Secte Éternel ne se trouvait pas sur cette planète de culture, mais ailleurs. Les trois étant des cultivateurs puissants, leur vitesse était prodigieuse. Guidés par le Maître, ils quittèrent la planète pour s'élancer vers une autre, et la secte apparut progressivement devant eux!
 
 En tant que secte de rang 8, le domaine de la Secte Éternel englobait la planète de culture tout entière. De nombreux édifices spectaculaires se dressaient aux quatre coins de l'astre, et d'innombrables places remplissaient le paysage.
 

@@ -54,7 +54,7 @@ L'expression de Wang Lin resta indifférente alors qu'il avançait d'un pas supp
 
 Un grondement tonitruant retentit et un nouveau flot de sang jaillit de sa poitrine. Sa main droite s'agrippa à son torse: son cœur venait de s'effondrer sous la pression du domaine de Wang Lin!
 
-Wang Lin ne da même pas un regard à cet homme. D'un pas, il sembla s'élever vers les cieux; il atteignit la silhouette gigantesque et la frappa avec désinvolture de sa paume droite!
+Wang Lin ne daigna même pas un regard à cet homme. D'un pas, il sembla s'élever vers les cieux; il atteignit la silhouette gigantesque et la frappa avec désinvolture de sa paume droite!
 
 Simultanément, la foudre fulmina dans son œil droit. Le symbole électrique s'échappa de son regard pour venir se loger entre les sourcils de l'illusion.
 

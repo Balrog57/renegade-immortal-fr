@@ -30,7 +30,7 @@ En un instant seulement, ces centaines de cultivateurs tremblèrent avant de s'e
 
 « Le Royaume Ji... » murmura Wang Lin en observant les environs. Il fixa l'homme couvert de sang, et une lueur d'illumination traversa son regard.
 
-« Ce n'est que la première illusion, celle du pays de Clear Water... » Wang Lin traversa les flaques de sang qui jonchaient le sol pour marcher vers l'homme.
+« Ce n'est que la première illusion, celle du pays de Qing Shui... » Wang Lin traversa les flaques de sang qui jonchaient le sol pour marcher vers l'homme.
 
 Le sang teintait la terre de pourpre et chaque goutte éparpillée portait la haine de Qing Shui. Cette essence était si dense qu'elle semblait impossible à laver.
 

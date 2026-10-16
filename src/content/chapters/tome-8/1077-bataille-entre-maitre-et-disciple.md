@@ -94,7 +94,7 @@ C'était comme si l'équilibre même du monde avait été rompu par l'Origine So
 
 Alors que le corps de l'Omniscient était contraint à l'arrêt, l'un des six anciens de la Secte Divine de l'Oiseau Vermillon afficha une folie déterminée. Leur tâche était d'assurer la sécurité de Wang Lin, mais celui-ci se trouvait dans une situation de vie ou de mort. Si Wang Lin mourait sous leurs yeux, cela reviendrait à anéantir tout espoir pour la Secte Divine de l'Oiseau Vermillon.
 
-Ceux qui n'appartenaient pas au secte ne pourraient jamais comprendre la douleur et la frustration accumulées pendant des dizaines de milliers d'années. À cet instant, le vieil homme esquissa un sourire amer et ouvrit les bras. La folie embrasa son regard alors qu'il commençait à détruire son âme d'origine!
+Ceux qui n'appartenaient pas à la secte ne pourraient jamais comprendre la douleur et la frustration accumulées pendant des dizaines de milliers d'années. À cet instant, le vieil homme esquissa un sourire amer et ouvrit les bras. La folie embrasa son regard alors qu'il commençait à détruire son âme d'origine!
 
 L'autodestruction d'un cultivateur du niveau de la destruction du Nirvana!
 

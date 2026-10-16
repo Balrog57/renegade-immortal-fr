@@ -50,7 +50,7 @@ La main droite du vieillard traça un sceau et le projeta vers l'homme. Le sceau
 
 Après avoir fait cela, il lança un regard sombre à Wang Lin et dit: « Votre méthode est vraiment impitoyable. Pensez-vous que ma famille Sun restera les bras croisés en apprenant cela?! »
 
-Wang Lin ne da même pas un regard au vieillard. Il reposa sa cruche de vin et dit calmement: « Ping Er, allons-nous. » Sur ce, il se leva et se dirigea vers la sortie.
+Wang Lin ne daigna même pas un regard au vieillard. Il reposa sa cruche de vin et dit calmement: « Ping Er, allons-nous. » Sur ce, il se leva et se dirigea vers la sortie.
 
 Wang Ping sourit à Qing Yi. En voyant ce sourire, le visage de la jeune fille s'empourpra. Wang Ping éprouvait déjà de bons sentiments pour elle, car lorsque sa maîtresse s'était montrée hostile, elle avait tenté de l'en empêcher.
 

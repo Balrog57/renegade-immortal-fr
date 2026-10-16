@@ -58,7 +58,7 @@ Au total, trois cent soixante sommets principaux constituaient les racines du Gr
 
 Certains pics étaient très distants, d'autres très proches. Les vallées de chaque chaîne de montagnes abritaient d'innombrables pavillons magnifiques, des temples, des places et des grottes.
 
-Les cent mille disciples du Grand Secte de l'Âme résidaient dans ces vallées et pratiquaient une multitude de méthodes de culture différentes. Le secte possédait de nombreux sorts; outre ceux hérités de la destruction d'innombrables autres sectes au fil des ans, les disciples disposaient de nombreuses techniques à leur portée.
+Les cent mille disciples du Grand Secte de l'Âme résidaient dans ces vallées et pratiquaient une multitude de méthodes de culture différentes. La secte possédait de nombreux sorts; outre ceux hérités de la destruction d'innombrables autres sectes au fil des ans, les disciples disposaient de nombreuses techniques à leur portée.
 
 À cet instant, la montagne rouge avait totalement changé. Elle n'était plus rouge, mais d'un violet sombre. Elle était parsemée de fissures et dans un état pitoyable.
 
@@ -72,7 +72,7 @@ Dès que Wang Lin et l'Estimé Taureau Vert apparurent à l'horizon, Yan Lu tour
 
 Après être retourné au Grand Secte de l'Âme, l'expression de Wang Lin resta inchangée, bien que ses émotions fussent très différentes. Lors de sa première entrée, il s'était faufilé; cette fois, il passait par la grande porte.
 
-Il n'avait pas échangé un mot avec l'Estimé Taureau Vert durant le trajet. En apercevant le Grand Secte de l'Âme, l'Estimé était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait du secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était la propriétaire de la veine principale de feu terrestre, celle-là même qui avait traqué Wang Lin dans les profondeurs!
+Il n'avait pas échangé un mot avec l'Estimé Taureau Vert durant le trajet. En apercevant le Grand Secte de l'Âme, l'Estimé était sur le point de parler quand il fronça soudainement les sourcils. Wang Lin remarqua également le phénix géant qui surgissait de la secte. Cette jeune femme était magnifique, mais empreinte d'une soif de sang effrayante. C'était la propriétaire de la veine principale de feu terrestre, celle-là même qui avait traqué Wang Lin dans les profondeurs!
 
 « Petit voleur, tu as détruit ma montagne. Je ne laisserai pas passer cela! » La jeune femme ne laissa aucun répit à l'Estimé Taureau Vert pour s'exprimer. Avec son niveau de culture, comment aurait-elle pu ignorer la situation? L'Ancien avait ramené Wang Lin, non comme un prisonnier, mais plutôt comme un invité.
 

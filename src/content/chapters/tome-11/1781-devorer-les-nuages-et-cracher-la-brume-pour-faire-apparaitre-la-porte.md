@@ -26,7 +26,7 @@ La rivière continuait son cours, tandis que les souvenirs du troisième esprit 
 
 La Secte Dong Lin était l'un des Neuf Sectes et Treize Factions de cette région. Bien qu'il ne fût pas aussi puissant que la Secte du Soleil Pourpre, il était empreint d'un grand mystère; ses disciples sortaient rarement.
 
-Les trois grandes techniques du secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
+Les trois grandes techniques de la secte étaient célèbres sur le Continent Astral Immortel et se transmettaient depuis l'Antiquité.
 
 Parmi elles, l'Art Céleste du Dao des Nuages était particulièrement profond. Il se concentrait sur les nuages du monde, aussi éthéré que le Grand Dao lui-même. En s'intégrant aux nuages, on pouvait emprunter leur essence pour lancer les grands sorts du Dao des Nuages!
 

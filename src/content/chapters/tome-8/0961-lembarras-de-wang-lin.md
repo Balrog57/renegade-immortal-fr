@@ -45,7 +45,7 @@ L'expression de Wang Lin resta sereine tandis qu'il contemplait silencieusement 
 
 Le visage de Wang Lin ne trahit aucune émotion.
 
-La femme en violet le regarda. Constatant qu'aucune réaction ne venait de lui, son cœur sombra et elle serra les dents: « Je sais que tu ne me crois peut-être pas, mais moi, Zhao Xinmeng, j'ai rejoint le secte à l'âge de sept ans et j'ai cultivé pendant mille ans... »
+La femme en violet le regarda. Constatant qu'aucune réaction ne venait de lui, son cœur sombra et elle serra les dents: « Je sais que tu ne me crois peut-être pas, mais moi, Zhao Xinmeng, j'ai rejoint la secte à l'âge de sept ans et j'ai cultivé pendant mille ans... »
 
 Sans attendre la suite, Wang Lin secoua la tête et dit: « N'as-tu pas peur que Maître découvre que tu parles de cela ici? »
 

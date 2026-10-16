@@ -100,17 +100,17 @@ Wang Lin ne chercha pas à découvrir ce que contenait la pierre. Il savait qu'i
 
 Outre l'ancien Empereur Divin, le glyphe que Qing Lin lui avait confié lui permettait de ne point s'inquiéter. Tant qu'il activerait ce glyphe, il pourrait retourner dans le nouveau Royaume Céleste de la Pluie!
 
-Zhou Ru était assise au sommet d'une montagne, cultivant dans le Royaume du Vide Brillant. Little White était à ses côtés, contemplant paresseusement les nuages, sans que l'on puisse deviner ses pensées.
+Zhou Ru était assise au sommet d'une montagne, cultivant dans le Royaume du Vide Brillant. Petit Blanc était à ses côtés, contemplant paresseusement les nuages, sans que l'on puisse deviner ses pensées.
 
 Soudain, le sens divin de Wang Lin atteignit les lieux. Le corps de Zhou Ru trembla instantanément et elle ouvrit brusquement les yeux.
 
 « Oncle!!! »
 
-Même Little White fut pris d'un tressaillement; il se redressa rapidement pour scruter l'horizon.
+Même Petit Blanc fut pris d'un tressaillement; il se redressa rapidement pour scruter l'horizon.
 
 Le visage de Zhou Ru était rouge vif, trahissant une immense excitation. Elle cherchait Wang Lin depuis si longtemps que, dès qu'elle perçut sa voix, son cœur ne put s'empêcher de s'emballer.
 
-Sans hésiter, elle se changea en un rayon de lumière et vola vers la source du sens divin, suivie par Little White. Ce dernier, la grosse tête oscillante, restait sur ses gardes, car il craignait encore ce cultivateur qui l'avait autrefois terrifié.
+Sans hésiter, elle se changea en un rayon de lumière et vola vers la source du sens divin, suivie par Petit Blanc. Ce dernier, la grosse tête oscillante, restait sur ses gardes, car il craignait encore ce cultivateur qui l'avait autrefois terrifié.
 
 Après le départ de Zhou Ru, une femme d'une beauté exceptionnelle apparut du vide là où elle se trouvait. Elle regarda devant elle avec une expression complexe et amère, avant de faire un pas en avant.
 

@@ -62,7 +62,7 @@ L'expression de Cupidité resta parfaitement neutre. Après être apparu, il se 
 
 Ling Tianhou ne daigna pas regarder Chen Long; il fixa Cupidité et dit d'un ton menaçant: « Cupidité, tu as sacrément du cran! »
 
-Bien que le cœur de Cupidité ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ton Secte de l'Épée Da Lou? »
+Bien que le cœur de Cupidité ait raté un battement, son visage ne trahit rien. Il lança un regard glacial à Chen Long et répliqua: « Petit garnement, est-ce que ce vieil homme a personnellement tué un seul membre de ta Secte de l'Épée Da Lou? »
 
 Chen Long le dévisagea avec haine. La présence de son maître lui donnait du courage, et il hurla: « Même si vous ne les avez pas tués de vos propres mains, vous nous avez piégés dans la brume violette! Sans cela, comment mes jeunes frères auraient-ils pu mourir?! »
 

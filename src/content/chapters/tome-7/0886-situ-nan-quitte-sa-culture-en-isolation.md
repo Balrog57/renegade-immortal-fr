@@ -10,27 +10,27 @@ slug: situ-nan-quitte-sa-culture-en-isolation
 
 À cet instant, l'esprit de Wang Lin était saturé par les concepts d'Invocation de la Pluie et d'Arsenal Magique. Il s'y était plongé, continuant à les absorber et à les comprendre.
 
-Qing Shu réfléchissait en silence. Après un long moment, il regarda Wang Lin avec une expression empreinte d'adieu. Il dit lentement: « Tu as perdu trop de force vitale; ton Senior Frère n'est pas en mesure de t'aider pour cela. Tous mes sorts sont axés sur le combat et aucun ne peut servir à guérir. Le seul sort non-combat que j'ai appris de Maître était Dévorer. Tu m'as vu l'utiliser dans le Royaume Céleste du Tonnerre. Désormais, je vais te le transmettre! »
+Qing Shui réfléchissait en silence. Après un long moment, il regarda Wang Lin avec une expression empreinte d'adieu. Il dit lentement: « Tu as perdu trop de force vitale; ton Senior Frère n'est pas en mesure de t'aider pour cela. Tous mes sorts sont axés sur le combat et aucun ne peut servir à guérir. Le seul sort non-combat que j'ai appris de Maître était Dévorer. Tu m'as vu l'utiliser dans le Royaume Céleste du Tonnerre. Désormais, je vais te le transmettre! »
 
-Tandis que Qing Shu parlait, il plaça une fois de plus sa main droite entre les sourcils de Wang Lin. Les informations concernant Dévorer s'engouffrèrent dans l'esprit de Wang Lin avec frénésie.
+Tandis que Qing Shui parlait, il plaça une fois de plus sa main droite entre les sourcils de Wang Lin. Les informations concernant Dévorer s'engouffrèrent dans l'esprit de Wang Lin avec frénésie.
 
 « Ce sort peut facilement être détourné de son usage. Maître a beaucoup hésité avant de me l'enseigner. Maintenant que tu l'as appris, tu ne dois l'utiliser qu'en dernier recours! »
 
-Qing Shu laissa échapper un soupir. En contemplant le visage vieilli de Wang Lin, il retira sa main droite. Puis, il mordit l'extrémité de sa langue et traça une étrange rune avec son sang. La rune dégageait une puissante odeur de sang. Dès qu'elle apparut, toute la poussière de l'espace recula rapidement.
+Qing Shui laissa échapper un soupir. En contemplant le visage vieilli de Wang Lin, il retira sa main droite. Puis, il mordit l'extrémité de sa langue et traça une étrange rune avec son sang. La rune dégageait une puissante odeur de sang. Dès qu'elle apparut, toute la poussière de l'espace recula rapidement.
 
-« Ta perte de force vitale est trop grave. Cette rune pourra t'aider à te protéger un peu! » Qing Shu agita sa main droite. La rune s'imprima sur la poitrine de Wang Lin et disparut.
+« Ta perte de force vitale est trop grave. Cette rune pourra t'aider à te protéger un peu! » Qing Shui agita sa main droite. La rune s'imprima sur la poitrine de Wang Lin et disparut.
 
 Le corps de Wang Lin trembla violemment. Son apparence se rétablit rapidement et, un instant plus tard, il retrouva son état initial, exception faite de ses cheveux blancs. Les dommages causés par la perte de force vitale ne se voyaient plus sur son corps; ils étaient totalement dissimulés.
 
 « Cette rune ne peut pas restaurer la force vitale et ne peut pas être utilisée sur une âme. Sinon, tu ne serais pas dans cet état. »
 
-Qing Shu se retourna, s'élança vers les étoiles et disparut progressivement.
+Qing Shui se retourna, s'élança vers les étoiles et disparut progressivement.
 
 « Junior Frère, à partir de maintenant, sois prudent... La méthode pour restaurer le Royaume Ji est liée à la rétribution divine. Cependant, n'emprunte pas ce chemin tant que tu n'as pas atteint le stade du Briseur du Nirvana. Avant cela, évite-le! »
 
-Qing Shu était parti...
+Qing Shui était parti...
 
-Le corps de Wang Lin trembla, puis il reprit conscience. Tout ce qui avait été dit résonnait encore dans ses oreilles. Il fixa la direction où Qing Shu s'était éclipsé et resta plongé dans une longue réflexion silencieuse.
+Le corps de Wang Lin trembla, puis il reprit conscience. Tout ce qui avait été dit résonnait encore dans ses oreilles. Il fixa la direction où Qing Shui s'était éclipsé et resta plongé dans une longue réflexion silencieuse.
 
 Wang Lin murmura doucement: « Merci. » En partant, il ressentit un sentiment indescriptible au fond de son cœur.
 

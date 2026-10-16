@@ -8,7 +8,7 @@ slug: deuxieme-generation-de-suzaku-situ-nan
 ---
 Chapitre 419 - Deuxième génération de Suzaku? Situ Nan?
 
-D’un ton arrogant, Du Tian déclara: « Voici la puissance du drapeau d'âmes au milliard d'âmes de mon Secte de Raffinement des Âmes. Qu'en penses-tu? »
+D’un ton arrogant, Du Tian déclara: « Voici la puissance du drapeau d'âmes au milliard d'âmes de ma Secte de Raffinement des Âmes. Qu'en penses-tu? »
 
 Wang Lin répondit: « Très puissant! »
 
@@ -40,7 +40,7 @@ Du Tian secoua la tête. « Trop de temps a passé pour que l'on se souvienne en
 
 Wang Lin insista: « Qu'est-il arrivé à lui, finalement? »
 
-Du Tian répondit d'une voix lente: « On ignore ce qu'est devenu son corps. » Il soupira et continua: « La rumeur veut que la bataille contre ces cultivateurs étrangers fut tout aussi intense que celle contre l'esprit ancestral du Clan Immortel Abandonné. En fin de compte, l'ancêtre de mon Secte de Raffinement des Âmes ne fit pas le poids; après tout, il n'était qu'un cultivateur Ascendant au début de son stade. Il utilisa la quatrième âme pour s'échapper et parvint à tuer l'un des cultivateurs étrangers. Cependant, la quatrième âme fut gravement endommagée et est tombée dans un sommeil profond depuis lors. Selon mes calculs, elle aurait dû être presque totalement rétablie à présent. »
+Du Tian répondit d'une voix lente: « On ignore ce qu'est devenu son corps. » Il soupira et continua: « La rumeur veut que la bataille contre ces cultivateurs étrangers fut tout aussi intense que celle contre l'esprit ancestral du Clan Immortel Abandonné. En fin de compte, l'ancêtre de ma Secte de Raffinement des Âmes ne fit pas le poids; après tout, il n'était qu'un cultivateur Ascendant au début de son stade. Il utilisa la quatrième âme pour s'échapper et parvint à tuer l'un des cultivateurs étrangers. Cependant, la quatrième âme fut gravement endommagée et est tombée dans un sommeil profond depuis lors. Selon mes calculs, elle aurait dû être presque totalement rétablie à présent. »
 
 « Bien que la bataille ait été remportée, la deuxième génération de Suzaku fut traquée par les cultivateurs étrangers et disparut. »
 

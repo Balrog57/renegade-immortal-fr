@@ -8,11 +8,11 @@ slug: laura-de-lomniscient
 ---
 Chapitre 1946 - L'Aura de l'Omniscient!
 
-« Au fil des innombrables années, j’ai étudié cette inscription. Je veux savoir qui a détruit mon Secte Dong Lin et quelles étaient ses intentions!
+« Au fil des innombrables années, j’ai étudié cette inscription. Je veux savoir qui a détruit ma Secte Dong Lin et quelles étaient ses intentions!
 
-« Mon Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la culture.
+« Ma Secte Dong Lin n'a jamais été impliqué dans les querelles du monde et a toujours suivi des règles de secte strictes. Les disciples sortent rarement, et encore moins créent des inimitiés avec autrui. Même moi, j'ai peu d'amis et je me suis consacré uniquement à la culture.
 
-« Pourtant, la Secte Dong Lin, ma demeure… a été détruit… Je suis allé voir un Grand Empereur pour qu’il m’aide à diviner, mais même lui n'a pu déterminer la cause de la destruction de mon Secte Dong Lin…
+« Pourtant, la Secte Dong Lin, ma demeure… a été détruit… Je suis allé voir un Grand Empereur pour qu’il m’aide à diviner, mais même lui n'a pu déterminer la cause de la destruction de ma Secte Dong Lin…
 
 « J'ai consulté les cinq Grands Empereurs et même l'Enseignant Impérial, mais aucun d'eux n'a rien trouvé. Seul l'Enseignant Impérial a craché une bouchée de sang pendant la divination, ses yeux emplis de terreur… Cependant, cette peur n'a duré qu'un instant avant d'être remplacée par la confusion…
 
@@ -32,7 +32,7 @@ Des crevasses apparurent sur le sol sous les pieds du vieil homme, signes d'une 
 
 À l'extérieur, la place fut ravagée et le déclin s'étendit. Les montagnes perdirent leur verdure pour devenir des terres mortes. L'eau s'évapora, et ce qui restait de liquide dégageait une odeur nauséabonde.
 
-Les disciples de la Secte Dong Lin, y compris les deux cultivateurs d'Exaltation Dorée, avaient disparu sans laisser de trace. Le Secte Dong Lin tout entier était devenu une terre désolée.
+Les disciples de la Secte Dong Lin, y compris les deux cultivateurs d'Exaltation Dorée, avaient disparu sans laisser de trace. La Secte Dong Lin tout entier était devenu une terre désolée.
 
 Seuls des squelettes jonchaient l'ensemble du secteur…
 
@@ -44,7 +44,7 @@ Une ligne de mots tracés en sang marquait la stèle!
 
 « Verrouillez le destin des cieux et scellez l'au-delà. Ceux qui n'atteignent pas le vrai Dao sombreront dans une mer de souffrance et perdront à jamais la voie du véritable Dao. Marchez sur le chemin du vrai Dao! »
 
-Les mots écrits en sang n'étaient plus d'un rouge vif, mais étaient depuis longtemps séchés en un brun sombre. Une aura de terreur émanait de la stèle, enveloppant tout la Secte Dong Lin. Le ciel s'obscurcit, comme si une main gigantesque avait occulté le soleil au-dessus du secte.
+Les mots écrits en sang n'étaient plus d'un rouge vif, mais étaient depuis longtemps séchés en un brun sombre. Une aura de terreur émanait de la stèle, enveloppant tout la Secte Dong Lin. Le ciel s'obscurcit, comme si une main gigantesque avait occulté le soleil au-dessus de la secte.
 
 C'était comme si cette force aveuglait les cieux eux-mêmes!
 
@@ -84,7 +84,7 @@ L'écriture et l'aura ici ne sont pas identiques à celles de la stèle du Royau
 
 « Vous devez me le dire. Si je peux obtenir ma vengeance, je suis prêt à devenir l'esclave jusqu'à la mort de celui qui me fournira cet indice… » Le vieil homme parlait lentement, ses paroles empreintes d'une foi et d'une détermination stupéfiantes.
 
-Une fois son discours terminé, le vieil homme agita sa main droite et une brise légère souffla. Le temple retrouva son apparence originelle. La montagne redevint verte, l'eau claire, les oiseaux chantèrent de nouveau, et le parfum des fleurs embauma la secte. Les disciples, ignorant qu'ils étaient déjà morts, vivaient joyeusement dans un Secte Dong Lin débordant de vitalité.
+Une fois son discours terminé, le vieil homme agita sa main droite et une brise légère souffla. Le temple retrouva son apparence originelle. La montagne redevint verte, l'eau claire, les oiseaux chantèrent de nouveau, et le parfum des fleurs embauma la secte. Les disciples, ignorant qu'ils étaient déjà morts, vivaient joyeusement dans une Secte Dong Lin débordant de vitalité.
 
 La stèle extérieure disparut et les amas d'ossements ne furent plus visibles. Liu Jinbiao regarda l'endroit où la stèle se trouvait, sentant ses cheveux se hérisser de peur.
 
@@ -104,15 +104,15 @@ D'une voix éraillée, le vieil homme demanda: « Êtes-vous simplement de passa
 
 « Cet individu a perdu contre l'Ancêtre Céleste et fut scellé ici. Il est mort depuis longtemps, mais son âme ne s'est pas évanouie; elle fusionna avec la rivière souterraine du continent. Le Bassin Dong Lin est l'un des points où elle affleure...
 
-« Un cultivateur ne peut entrer dans le Bassin Dong Lin que deux fois. À la troisième tentative, la mort est immédiate. Peu d'étrangers savent que mon Secte Dong Lin possède ce bassin. Ceux qui le savent seraient prêts à payer n'importe quel prix pour y accéder.
+« Un cultivateur ne peut entrer dans le Bassin Dong Lin que deux fois. À la troisième tentative, la mort est immédiate. Peu d'étrangers savent que ma Secte Dong Lin possède ce bassin. Ceux qui le savent seraient prêts à payer n'importe quel prix pour y accéder.
 
-« Des rumeurs circulent, tant à l'intérieur qu'à l'extérieur de la secte, affirmant que le Bassin Dong Lin peut aider à former des Corps Véritables d'Essence, mais c'est faux… Si cela était vrai, mon Secte Dong Lin serait depuis longtemps la première secte du clan céleste. Nous ne pourrions pas le garder, et un Grand Empereur se l'approprierait bien avant.
+« Des rumeurs circulent, tant à l'intérieur qu'à l'extérieur de la secte, affirmant que le Bassin Dong Lin peut aider à former des Corps Véritables d'Essence, mais c'est faux… Si cela était vrai, ma Secte Dong Lin serait depuis longtemps la première secte du clan céleste. Nous ne pourrions pas le garder, et un Grand Empereur se l'approprierait bien avant.
 
 « Malgré cela, les convoitises sont nombreuses, mais en raison de la réputation du premier ancêtre de la Secte Dong Lin, le Grand Empereur Dong Lin, et du fait que le bassin est immuable et que son effet s'affaiblit avec le temps, personne n'est venu tenter de le voler. »
 
 « Le Grand Empereur Dong Lin? » Les yeux de Wang Lin se rétrécirent. C'était la première fois qu'il entendait ce nom.
 
-« Les cinq Grands Empereurs du clan céleste ne sont pas éternels, et certains tombent… L'ancêtre de première génération de mon Secte Dong Lin était un Grand Empereur, mais il est tombé… Personne ne sait où son corps a disparu… De nombreuses personnes ont cherché ses restes, y compris certains Grands Empereurs ultérieurs, mais sans succès...
+« Les cinq Grands Empereurs du clan céleste ne sont pas éternels, et certains tombent… L'ancêtre de première génération de ma Secte Dong Lin était un Grand Empereur, mais il est tombé… Personne ne sait où son corps a disparu… De nombreuses personnes ont cherché ses restes, y compris certains Grands Empereurs ultérieurs, mais sans succès...
 
 « Une rumeur prétend que si l'on parvient à trouver le corps de l'ancêtre, il serait possible de devenir un Grand Empereur sans subir les épreuves du Royaume Divin Immémorial… Mais ce n'est qu'une légende », dit calmement le vieil homme.
 

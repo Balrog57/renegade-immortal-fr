@@ -100,9 +100,9 @@ Finalement, au moment même où le jeune homme maléfique atteignait le disposit
 
 Le jeune homme poussa un rugissement et forma un sceau de sa main. Au moment où Wang Lin s'effaçait, il chargea dans les anneaux de lumière. Utilisant une technique inconnue, il força la matrice à se réactiver, disparaissant lui aussi parmi les lueurs.
 
-Wang Lin ressentit un péril mortel durant le processus de transfert. Il percevait distinctement un Sens Divin d'une puissance dépassant l'entendement qui s'abattait sur lui tel un tourbillon. La terreur l'envahit. Juste au moment où ce Sens Divin allait le percuter, son Domaine Ji projeta un éclair rouge épais et inédit vers le jeune homme.
+Wang Lin ressentit un péril mortel durant le processus de transfert. Il percevait distinctement un Sens Divin d'une puissance dépassant l'entendement qui s'abattait sur lui tel un tourbillon. La terreur l'envahit. Juste au moment où ce Sens Divin allait le percuter, son Royaume Ji projeta un éclair rouge épais et inédit vers le jeune homme.
 
-L'impact du Domaine Ji fit vaciller le Sens Divin un instant. À cet instant précis, une lumière apparut à l'autre extrémité et Wang Lin chargea vers elle avec précipitation.
+L'impact du Royaume Ji fit vaciller le Sens Divin un instant. À cet instant précis, une lumière apparut à l'autre extrémité et Wang Lin chargea vers elle avec précipitation.
 
 En sortant de la matrice, il cracha violemment plusieurs bouffées de sang. L'Âme Naissante formée par son avatar avait rétréci et semblait sur le point de s'effondrer à tout moment. Mais sans s'arrêter, Wang Lin se déplaça avec célérité. Il disparut pour réapparaître cinquante kilomètres plus loin. Cependant, il ne chercha pas à fuir davantage; au lieu de cela, il sortit un fil rouge de son sac de rangement.
 

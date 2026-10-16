@@ -29,7 +29,7 @@ Lorsqu'ils réapparurent, ils se trouvaient tous à l'intérieur de l'écran de 
 — Il est en effet étrange que des moustiques géants de mon système stellaire de la Mer de Nuages apparaissent ici. Heureusement qu'ils n'étaient pas plus nombreux. S'il s'était agi d'une horde de dizaines de milliers, comme ce que nous avons vu dans le Royaume Céleste du Vent...
 
 Il trembla, le regard empli de terreur.
-— Oublie cela. Il est inutile d'y songer davantage. Nous avons accompli la mission demandée par le secte. Nous devons partir au plus vite; j'ai un mauvais pressentiment.
+— Oublie cela. Il est inutile d'y songer davantage. Nous avons accompli la mission demandée par la secte. Nous devons partir au plus vite; j'ai un mauvais pressentiment.
 
 Ils échangèrent un regard et poursuivirent leur vol. Un instant plus tard, une immense formation composée de débris apparut devant eux. Des éclats de lumière verte émanaient de la structure. En outre, près d'une centaine de cultivateurs s'affairaient à déplacer des débris pour les ajouter à l'édifice.
 
@@ -57,7 +57,7 @@ Ils se mutuellement l'avidité et la détermination.
 — Grâce à cet écran de lumière verte, il sera difficile pour les cultivateurs de l'Alliance de pénétrer ici. Même si un cultivateur au stade du Briseur du Nirvana arrivait, il lui faudrait plusieurs jours pour briser cette formation offerte par une secte de rang 8. Nous devons simplement gagner du temps pour retourner dans le système de la Mer de Nuages. S'ils osent nous poursuivre jusque-là... Hmph, nous ferons en sorte qu'ils n'en reviennent jamais!
 — Accélérez la construction de la formation! conclurent-ils d'un commun accord.
 
-Les trois jeunes qui avaient ramené les bêtes étaient transportés par l'excitation. Puisque les Anciens avaient validé leur coup, ils étaient désormais hors de danger. De retour au secte, les récompenses ne tarderaient pas.
+Les trois jeunes qui avaient ramené les bêtes étaient transportés par l'excitation. Puisque les Anciens avaient validé leur coup, ils étaient désormais hors de danger. De retour à la secte, les récompenses ne tarderaient pas.
 
 Le blessé à la jambe ricana avec morgue:
 — Hehe, j'ai hâte de voir le maître de ces bêtes arriver. Je veux voir comment il tentera de briser l'écran de lumière et comment il devra regarder, impuissant, nos départs avec ses propres moustiques!

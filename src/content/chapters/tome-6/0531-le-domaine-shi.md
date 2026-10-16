@@ -68,17 +68,17 @@ Le corps de Wang Lin trembla; il s'arrêta brusquement, figé dans les airs. Ses
 
 « Ji, Dao, Shi! » Son cœur battait la chamade.
 
-Après avoir obtenu le Domaine Ji, Wang Lin avait entrepris une recherche effrénée d'informations à son sujet. Sa plus grande découverte provenait d'une grotte située profondément sous une plaine dans la Mer des Démons. Il y avait là une vaste collection de livres anciens, et c'est là qu'il avait trouvé une description détaillée du Domaine Ji.
+Après avoir obtenu le Royaume Ji, Wang Lin avait entrepris une recherche effrénée d'informations à son sujet. Sa plus grande découverte provenait d'une grotte située profondément sous une plaine dans la Mer des Démons. Il y avait là une vaste collection de livres anciens, et c'est là qu'il avait trouvé une description détaillée du Royaume Ji.
 
-En cherchant des informations sur le Domaine Ji, il avait également découvert des détails sur les deux autres domaines, tout aussi célèbres!
+En cherchant des informations sur le Royaume Ji, il avait également découvert des détails sur les deux autres domaines, tout aussi célèbres!
 
 Le Domaine Dao, le Domaine Shi!
 
 Les yeux de Wang Lin s'illuminèrent et il se plongea dans ses pensées.
 
-« Début de l'Âme... Les trois domaines sont trois sphères d'énergie spirituelle qui existent depuis fort longtemps. Si le Domaine Ji a été capable de transformer l'énergie spirituelle en sens divin, alors les deux autres domaines devraient pouvoir changer également. L'état du Début de l'Âme pourrait-il être un effet du Domaine Shi se transformant en sens divin...
+« Début de l'Âme... Les trois domaines sont trois sphères d'énergie spirituelle qui existent depuis fort longtemps. Si le Royaume Ji a été capable de transformer l'énergie spirituelle en sens divin, alors les deux autres domaines devraient pouvoir changer également. L'état du Début de l'Âme pourrait-il être un effet du Domaine Shi se transformant en sens divin...
 
-Si le Domaine Ji est la mort, alors le Domaine Shi est la vie. Si le Domaine Shi est converti en sens divin, cela signifie-t-il que mon sens divin aura une vie infinie et ne mourra jamais, ou qu'il sera la création...
+Si le Royaume Ji est la mort, alors le Domaine Shi est la vie. Si le Domaine Shi est converti en sens divin, cela signifie-t-il que mon sens divin aura une vie infinie et ne mourra jamais, ou qu'il sera la création...
 
 Je cultive le domaine de la vie et de la mort du Ciel. Si je peux fusionner les domaines Ji et Shi, en utilisant le domaine Ji pour la mort et le domaine Shi pour la vie, cela achèverait-il mon domaine... » En songeant à cela, Wang Lin esquissa un sourire amer et secoua la tête. Il valait mieux ne pas trop s'emballer, car cela paraissait bien trop irréaliste.
 

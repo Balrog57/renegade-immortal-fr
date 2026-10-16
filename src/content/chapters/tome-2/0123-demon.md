@@ -102,7 +102,7 @@ L'expression de Wang Lin devint sombre alors qu'il volait vers le réseau de tra
 
 Plus ils avançaient, plus ils croisaient de cadavres, mais à mesure que Wang Lin approchait, toutes les âmes errantes s'écartaient, n'osant entraver sa route.
 
-Une telle scène attira inévitablement l'attention des cultivateurs environnants. Quelqu'un prit les devants et des groupes de cultivateurs commencèrent à suivre le quatuor. Wang Lin ne da même pas un regard en arrière et continua sa progression.
+Une telle scène attira inévitablement l'attention des cultivateurs environnants. Quelqu'un prit les devants et des groupes de cultivateurs commencèrent à suivre le quatuor. Wang Lin ne daigna même pas un regard en arrière et continua sa progression.
 
 Les âmes errantes hésitèrent un instant avant de dévorer prudemment un cultivateur resté en arrière. Réalisant que Wang Lin n'en avait cure, elles se précipitèrent aussitôt sur les autres membres du groupe qui le suivait. Des cris déchirèrent l'air alors que les survivants s'enfuyaient avec leurs propres compagnons.
 

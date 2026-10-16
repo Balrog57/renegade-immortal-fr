@@ -84,7 +84,7 @@ La longue épée rouge resta suspendue, immobile, dans les airs.
 
 L'Empereur Divin de l'Oiseau Vermillon médita silencieusement tandis que son corps devenait de plus en plus transparent. En regardant la direction de la fuite de l'Omniscient, il secoua la tête: « Je vieillis... Si j'avais été dans la force de l'âge, cet Omniscient n'aurait pas pu échapper au deuxième style des Quatre Trésors Sacrés... »
 
-Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Vide Brillant, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de mon Secte des Quatre Divinités? »
+Il poussa un soupir en observant l'assemblée. Lorsque son regard finit par se poser sur le vieil homme du Vide Brillant, il dit d'une voix lente: « Vieux ami, allez-vous redevenir l'ennemi de ma Secte des Quatre Divinités? »
 
 Le vieil homme du Vide Brillant réfléchit un instant. Il observa l'Ancien Démon Ta Jia, désormais scellé, puis les Trésors Sacrés qui flottaient encore là.
 
@@ -111,7 +111,7 @@ L'Empereur Divin sourit et hocha la tête: « Très bien! »
 Sur ces mots, les disciples de la Secte des Quatre Divinités se dispersèrent pour secourir les blessés. Quant aux cultivateurs de l'Alliance, ils se retirèrent tous, la peur au ventre.
 
 « Beaucoup de mes compagnons ont perdu leur corps... »
-« Le Secte des Quatre Divinités les aidera à reconstruire leurs corps! »
+« La Secte des Quatre Divinités les aidera à reconstruire leurs corps! »
 « Mon frère, Situ, est empoisonné par un venin de la Secte des Cadavres... »
 « Je m'en chargerai! »
 « Mon bienfaiteur, Zhou Yi, exige la résurrection de Qing Lin! »
@@ -141,7 +141,7 @@ L'Empereur Divin agita sa manche et le corps de Wang Lin s'éleva dans les airs.
 
 Déjà gravement blessé, ce rugissement chargé de siècles de souffrance refoulée affecta son esprit. Il cracha une bouchée de sang et sa vision s'obscurcit...
 
-Le Secte des Quatre Divinités... était parti. Ils avaient emmené tout le monde...
+La Secte des Quatre Divinités... était parti. Ils avaient emmené tout le monde...
 
 Deux larmes coulèrent des yeux de Mu Bingmei, une douleur déchirante lui broyant le cœur. Elle cracha du sang à son tour et s'effondra.
 

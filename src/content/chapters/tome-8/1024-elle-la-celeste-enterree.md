@@ -62,7 +62,7 @@ Ces tatouages étaient d'un rouge sang profond, certains encore reliés à des l
 
 Une silhouette vague émergea lentement des profondeurs du vortex, portée par le rugissement et les tatouages. À mesure que la forme s'élevait, une aura monstrueuse et maléfique se manifesta!
 
-Cette aura était si puissante que le corps de Ling Tianhou en trembla. Cette silhouette floue lui fit frissonner le cuir chevelu! Même le Tout-Voyant ne l'avait jamais fait ressentir ainsi; même le Maître du Vide n'en était pas capable!
+Cette aura était si puissante que le corps de Ling Tianhou en trembla. Cette silhouette floue lui fit frissonner le cuir chevelu! Même l'Omniscient ne l'avait jamais fait ressentir ainsi; même le Maître du Vide n'en était pas capable!
 
 Ce n'était pas une question de niveau de culture, mais un tremblement de l'âme, comme s'il faisait face à son ennemi naturel!
 
@@ -70,7 +70,7 @@ On ne pouvait deviner que la silhouette vague était celle d'une femme qu'en voy
 
 Ses yeux avaient été arrachés de force!
 
-Même le Tout-Voyant laissa paraître un signe de choc en apercevant la silhouette!
+Même l'Omniscient laissa paraître un signe de choc en apercevant la silhouette!
 
 « C'est... Pourrait-il s'agir... d'elle!!! »
 

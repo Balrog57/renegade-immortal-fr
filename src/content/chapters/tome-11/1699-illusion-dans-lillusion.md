@@ -54,7 +54,7 @@ Le visage de Fan Shanlu était d'une pâleur mortelle tandis qu'elle repensait m
 
 « Pour que votre sœur possède un sort d'illusion aussi puissant, je présume que la Secte des Âmes est célèbre pour ses sorts d'illusion sur le Continent Astral Immortel. Des illusions, toujours des illusions... » Wang Lin prit une profonde inspiration.
 
-Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard complexe: « Le Secte des Âmes est en effet renommé pour ses sorts d'illusion. Tout le monde n'est pas apte à les apprendre. Ma sœur possède ce talent et a déjà atteint le stade de la double illusion!
+Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard complexe: « La Secte des Âmes est en effet renommé pour ses sorts d'illusion. Tout le monde n'est pas apte à les apprendre. Ma sœur possède ce talent et a déjà atteint le stade de la double illusion!
 
 « L'illusion dans l'illusion dont vous parliez était la double illusion. Un pas de plus, et ce serait la triple illusion; nous n'aurions alors pu nous en échapper. »
 

@@ -34,15 +34,15 @@ Il existait de nombreuses sectes sur la planète Tian Yun, mais la plus éminent
 
 La Secte du Destin Céleste enseignait que tout dans la vie dépendait du destin. Tout était déjà écrit; on ne pouvait ni forcer les choses, ni y échapper. Ce précepte conférait à la secte une aura de transcendance.
 
-L'auteur de ce précepte était un homme respecté par la majorité de la population de la planète Tian Yun: le Tout-Voyant.
+L'auteur de ce précepte était un homme respecté par la majorité de la population de la planète Tian Yun: l'Omniscient.
 
-À cet instant, le Tout-Voyant ouvrit les yeux après sa méditation en porte close. Une expression de douceur régnait sur son visage et, bien qu'il fût aux cheveux blancs, il ne paraissait pas vieux, ce qui renforçait son aspect transcendant. Ses yeux brillants dégageaient plus d'énergie que ceux de nombreux jeunes gens.
+À cet instant, l'Omniscient ouvrit les yeux après sa méditation en porte close. Une expression de douceur régnait sur son visage et, bien qu'il fût aux cheveux blancs, il ne paraissait pas vieux, ce qui renforçait son aspect transcendant. Ses yeux brillants dégageaient plus d'énergie que ceux de nombreux jeunes gens.
 
 Aucune trace de mort ne l'habitait; il était empreint d'une vitalité infinie.
 
 Il se trouvait actuellement dans la Pagode du Destin Céleste de la Secte du Destin Céleste. Ses yeux révélèrent soudain une lueur mystérieuse et il murmura pour lui-même: « En rendant visite à un vieil ami, je suis passé près d'une planète de culture semi-déclinante et j'y ai rencontré un enfant. Cet enfant était capable de comprendre le domaine de la vie et de la mort du cycle de la réincarnation et tentait d'atteindre le stade de la Formation de l'Âme. Peu de gens peuvent en arriver là; voyant que sa culture était insuffisante, je lui avais donné un indice en lui disant que je l'accepterais comme disciple honorifique pendant cent ans. Aujourd'hui, j'ai soudainement eu une intuition... Je crois que cet enfant arrivera bientôt... J'ignore à quel niveau de culture il se trouve actuellement, mais s'il parvient jusqu'ici et que sa culture n'est pas au moins au stade avancé de la Formation de l'Âme, je serais déçu... »
 
-Le Tout-Voyant réfléchit un instant avant de secouer légèrement la tête et de refermer les yeux.
+L'Omniscient réfléchit un instant avant de secouer légèrement la tête et de refermer les yeux.
 
 À l'intérieur du Tombeau de Suzaku, Wang Lin avait ralenti sa progression et limitait son Sens Divin à une portée plus restreinte. Il y avait tout simplement trop de ces formes de vie aux alentours, et certaines d'entre elles seraient difficiles à affronter pour lui, à moins d'utiliser l'Étendard des Mille Millions d'Âmes.
 

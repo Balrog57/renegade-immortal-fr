@@ -66,7 +66,7 @@ Bien qu'Allheaven ait déjà retiré à Wang Lin son titre de Céleste du Tonner
 
 Maître Flamespark et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
 
-Le Secte des Cadavres, Allheaven et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer des Démons selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
+La Secte des Cadavres, Allheaven et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer des Démons selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
 
 En réalité, aucun camp n'avait envoyé une armée immense; au total, on comptait environ 7 000 cultivateurs. Ils constituaient la première vague d'exploration. Car bien que les informations de Wang Lin fussent hautement crédibles, il fallait encore les vérifier. D'autres cultivateurs stagnaient en orbite autour de la planète Suzaku, regroupés par factions, attendant les nouvelles de cette avant-garde.
 

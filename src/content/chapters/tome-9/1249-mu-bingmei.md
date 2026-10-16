@@ -74,7 +74,7 @@ Wang Lin sortit de la fissure et pénétra dans la région de rang 8. Il contemp
 
 « J’ai obtenu une grande quantité de bêtes moustiques lors de ce voyage dans le Royaume Céleste du Vent, bien que cela ne suffise pas encore. Cependant, si mes blessures guérissent et que je peux compter sur la coopération des bêtes moustiques, je ne serai plus impuissant face à Tuo Sen! J’ai juste besoin de plus de temps pour permettre au roi des moustiques d'évoluer, puis je pourrai obtenir encore plus de bêtes! »
 
-Dans la Secte Éternel de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait une partie d'une planète. Le Secte du Dao Pourpre dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
+Dans la Secte Éternel de rang 8, la compétition régionale de rang 5 se déroulait sur une plateforme qui occupait une partie d'une planète. La Secte du Dao Pourpre dominait la compétition, et presque personne ne pouvait rivaliser avec eux.
 
 Des grondements résonnèrent sur la plateforme, attirant l'attention des 100 000 cultivateurs environnants. Feng Hai et les autres membres de la Secte Éternel étaient assis dans la partie la plus intérieure des gradins. À ses côtés se trouvaient le vieil homme aux cheveux roux et quelques puissants cultivateurs de la Secte Éternel.
 
@@ -94,7 +94,7 @@ Cette femme souriait, le regard brillant. Sa voix était aussi mélodieuse qu'un
 
 Le vieil homme en blanc sourit et ne revint pas sur le sujet, mais ils continuèrent de discuter. Il jetait parfois un regard vers la femme indifférente, sans parvenir à deviner son identité.
 
-À cet instant, sur la plateforme, Lu Yuncong sortit de la zone de la Secte du Dao Pourpre. En tant que maître du secte, il devait lui aussi participer. Sa robe pourpre lui conférait une allure éthérée et majestueuse; il ressemblait à une montagne inébranlable!
+À cet instant, sur la plateforme, Lu Yuncong sortit de la zone de la Secte du Dao Pourpre. En tant que maître de la secte, il devait lui aussi participer. Sa robe pourpre lui conférait une allure éthérée et majestueuse; il ressemblait à une montagne inébranlable!
 
 De l'autre côté se trouvait le maître d'une autre secte de rang 5. C'était un vieil homme vêtu de noir, dont l'expression était extrêmement disgracieuse.
 

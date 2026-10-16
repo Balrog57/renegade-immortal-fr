@@ -92,7 +92,7 @@ Quand Shang Guanmo vit que le regard de Wang Lin demeurait glacial, son cœur ra
 
 Li Muwan rougit et regarda Wang Lin. Cependant, face à son expression austère, elle poussa un soupir et baissa la tête en silence.
 
-Wang Lin fixa froidement Shang Guanmo. Le Domaine Ji afflua dans son esprit et des éclairs rouges brillèrent dans ses yeux. Shang Guanmo observait attentivement Wang Lin depuis tout ce temps et réalisa que la situation était désespérée. Il savait que si Wang Lin avait pu activer son jade de protection au point de le briser, sa puissance d'attaque devait être comparable à celle d'un cultivateur de l'Âme Naissante. Conjugué au sortilège de mort, il devina que même en fuyant, la mort serait inévitable.
+Wang Lin fixa froidement Shang Guanmo. Le Royaume Ji afflua dans son esprit et des éclairs rouges brillèrent dans ses yeux. Shang Guanmo observait attentivement Wang Lin depuis tout ce temps et réalisa que la situation était désespérée. Il savait que si Wang Lin avait pu activer son jade de protection au point de le briser, sa puissance d'attaque devait être comparable à celle d'un cultivateur de l'Âme Naissante. Conjugué au sortilège de mort, il devina que même en fuyant, la mort serait inévitable.
 
 Accablé par l'anxiété, il pointa son front et son sang d'essence d'âme s'en échappa. Cette goutte de sang était de couleur dorée. Dès qu'elle apparut, le corps de Shang Guanmo trembla tandis que l'énergie spirituelle en lui s'emballait. Il semblait que son niveau de culture était sur le point de chuter.
 

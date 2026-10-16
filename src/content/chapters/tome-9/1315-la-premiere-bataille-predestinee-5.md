@@ -100,7 +100,7 @@ Quant à Wang Lin, il cracha également du sang car il était trop proche du doi
 
 Son corps était incapable de résister. Cependant, au moment où l'onde de choc allait le submerger, Wang Lin poussa un rugissement. Une flamme bleue, le tonnerre céleste, le karma, la vie et la mort, ainsi que le vrai et le faux, jaillirent tous de son corps!
 
-Cinq essences apparurent simultanément, formant un vortex pour contrer l'onde de choc. Au même moment, les yeux de Wang Lin virèrent au rouge et le Domaine Ji surgit!
+Cinq essences apparurent simultanément, formant un vortex pour contrer l'onde de choc. Au même moment, les yeux de Wang Lin virèrent au rouge et le Royaume Ji surgit!
 
 Des bruits de craquements continuèrent de résonner alors que le corps de Wang Lin reculait. Portant presque la moitié du doigt divin — qui ressemblait à une petite planète de culture — il commença à fusionner avec le monde. Il s'apprêtait à partir en utilisant la Distorsion Spatiale.
 

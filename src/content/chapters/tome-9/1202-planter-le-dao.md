@@ -100,7 +100,7 @@ Le regard de Wang Lin balaya le visage de Chen Tianjun avant qu'il ne secoue la 
 
 Chen Tianjun hésita et murmura: « Ce n'est pas un problème. Emmenez-moi simplement quand le compagnon Lu partira. Il n'y a pas d'urgence. Si vous avez besoin que je fasse quoi que ce soit, demandez-le moi. »
 
-Après avoir fini de parler, voyant que l'expression de Wang Lin demeurait impassible, comme s'il n'acceptait pas sa proposition, il se précipita: « Compagnon Lu, grâce à ma connaissance des bêtes féroces et aux sorts de mon Secte des Bêtes de Combat, je peux vous aider à rassembler des cristaux d'origine auprès des innombrables bêtes de brume qui peuplent ces lieux. J'ai grossièrement calculé qu'il y a au moins une centaine de bêtes de brume et une quantité incalculable de cristaux d'origine. Si le compagnon promet de me sortir d'ici, je prendrai le risque de tous les récolter! Une fois partis, il y aura également une grande récompense à la clé! »
+Après avoir fini de parler, voyant que l'expression de Wang Lin demeurait impassible, comme s'il n'acceptait pas sa proposition, il se précipita: « Compagnon Lu, grâce à ma connaissance des bêtes féroces et aux sorts de ma Secte des Bêtes de Combat, je peux vous aider à rassembler des cristaux d'origine auprès des innombrables bêtes de brume qui peuplent ces lieux. J'ai grossièrement calculé qu'il y a au moins une centaine de bêtes de brume et une quantité incalculable de cristaux d'origine. Si le compagnon promet de me sortir d'ici, je prendrai le risque de tous les récolter! Une fois partis, il y aura également une grande récompense à la clé! »
 
 Wang Lin fut tenté. Après avoir pesé le pour et le contre, il hocha la tête et remit un morceau de jade à Chen Tianjun.
 

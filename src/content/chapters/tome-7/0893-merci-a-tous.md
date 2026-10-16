@@ -80,13 +80,13 @@ En disant cela, il croisa le regard de Wang Lin et fut stupéfait. Il avait la v
 
 Cependant, à cet instant précis, un grondement tonitruant retentit au loin et une masse de nuages sombres s'abattit sur les lieux. Parallèlement, un rugissement colérique jaillit de la tempête:
 
-« Quel culot! Vous osez profaner la demeure ancestrale des Wang?! Mon Secte Xuan Dao garde ce lieu depuis des générations. Votre intrusion signifie que vous pensez que mon Secte Xuan Dao n'existe pas! »
+« Quel culot! Vous osez profaner la demeure ancestrale des Wang?! Ma Secte Xuan Dao garde ce lieu depuis des générations. Votre intrusion signifie que vous pensez que ma Secte Xuan Dao n'existe pas! »
 
 Un homme émergea au milieu du tumulte. Il avait une chevelure blanche et les yeux brillants d'éclat. En s'avançant, l'aura puissante d'un cultivateur au stade précoce de la Transformation de l'Âme se manifesta.
 
 Voyant ce vieil homme, les cultivateurs environnants adoptèrent une attitude respectueuse. Il était évident que son prestige en ces lieux était immense.
 
-« Le Secte Xuan Dao... » Le regard de Wang Lin envers le vieil homme devint légèrement plus doux. Il hocha la tête et demanda lentement: « Puisque vous avez atteint le stade de la Transformation de l'Âme, le pays de Zhao a-t-il atteint le rang 5? »
+« La Secte Xuan Dao... » Le regard de Wang Lin envers le vieil homme devint légèrement plus doux. Il hocha la tête et demanda lentement: « Puisque vous avez atteint le stade de la Transformation de l'Âme, le pays de Zhao a-t-il atteint le rang 5? »
 
 Le vieil homme, qui était arrivé furieux, fut déconcerté. Il fronça les sourcils et répondit: « Mon pays de Zhao est devenu un pays de culture de rang 5 il y a 300 ans. Tous les cultivateurs de la planète Suzaku le savent! Qui êtes-vous?! » Pourtant, en fixant Wang Lin, une sensation de familiarité l'assaillit, comme s'il l'avait déjà rencontré autrefois.
 
@@ -98,7 +98,7 @@ Il se souvint qu'en atteignant le stade de la Formation de l'Âme dans le pays d
 
 Wang Lin demanda avec un sourire: « Durant toutes ces années, est-ce votre Secte Xuan Dao qui a gardé ce lieu? Tous ces cultivateurs sont-ils des disciples de la Secte Xuan Dao? »
 
-Le vieil homme fronça les sourcils et scruta le groupe de Wang Lin. Pour une raison inconnue, sa colère fut brusquement réprimée, comme si l'homme devant lui était un être très proche. Il hésita un instant avant de répondre: « Ce n'est pas seulement mon Secte Xuan Dao. De temps à autre, une secte différente de la planète Suzaku vient monter la garde. Ceux qui viennent sont tous des figures respectées ou des génies dotés d'un talent exceptionnel destinés à être portés par leur secte. »
+Le vieil homme fronça les sourcils et scruta le groupe de Wang Lin. Pour une raison inconnue, sa colère fut brusquement réprimée, comme si l'homme devant lui était un être très proche. Il hésita un instant avant de répondre: « Ce n'est pas seulement ma Secte Xuan Dao. De temps à autre, une secte différente de la planète Suzaku vient monter la garde. Ceux qui viennent sont tous des figures respectées ou des génies dotés d'un talent exceptionnel destinés à être portés par leur secte. »
 
 « Garder la demeure ancestrale des Wang est un immense honneur pour les cultivateurs de la planète Suzaku! » Le vieil homme ne savait pas pourquoi il fournissait autant de détails à Wang Lin; il ne comprenait même pas lui-même ses propres motivations.
 

@@ -33,9 +33,9 @@ Dans la partie occidentale du Territoire des Esprits Démoniaques, terres appart
 
 À cet instant, les piliers du nord et de l'ouest semblèrent entrer en résonance, scintillant violemment. Leur puissance croît alors qu'ils tentaient de briser la barrière des 50 kilomètres pour s'étendre davantage! Simultanément, un autre pilier de lumière jaillit au sud. Une quantité encore plus massive d'énergie spirituelle céleste entra en éruption, déclenchant une nouvelle bataille entre les forces célestes et démoniaques.
 
-Le Tout-Voyant, assis dans la deuxième grotte, observait la formation d'un regard calme. Pourtant, une lueur étrange, presque imperceptible, traversa ses yeux.
+L'Omniscient, assis dans la deuxième grotte, observait la formation d'un regard calme. Pourtant, une lueur étrange, presque imperceptible, traversa ses yeux.
 
-« Sept jours... » réfléchit silencieusement le Tout-Voyant. Il était impossible de deviner ses pensées ou ses émotions.
+« Sept jours... » réfléchit silencieusement l'Omniscient. Il était impossible de deviner ses pensées ou ses émotions.
 
 L'apparition successive des trois piliers de lumière dans le Territoire des Esprits Démoniaques attira l'attention des puissances locales. Le changement radical de l'énergie démoniaque provoqua la panique parmi eux. Ce territoire, resté immuable durant d'innombrables années, subissait une métamorphose inimaginable!
 

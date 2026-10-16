@@ -54,7 +54,7 @@ Situ Nan reprit d'un ton lent: « Je vais libérer la glace maintenant. Zhou Pen
 
 Wang Lin fut stupéfait. Il hésita un instant avant de lâcher: « Extraire ses organes et les raffiner? Mais c'est... »
 
-Situ Nan rit intérieurement: « C'est une étape indispensable pour créer des marionnettes. Si tu n'en es pas capable, je ne pourrai pas t'aider. » Il pensa aussitôt: « Gamin, tu n'as jamais vu le sang, comment deviendras-tu un être sanguinaire? Cette technique n'est pas si complexe, mais c'est une excellente occasion de t'ouvrir les yeux. Petit, tu finiras par devenir un membre de mon Secte Démoniaque, c'est inéluctable! »
+Situ Nan rit intérieurement: « C'est une étape indispensable pour créer des marionnettes. Si tu n'en es pas capable, je ne pourrai pas t'aider. » Il pensa aussitôt: « Gamin, tu n'as jamais vu le sang, comment deviendras-tu un être sanguinaire? Cette technique n'est pas si complexe, mais c'est une excellente occasion de t'ouvrir les yeux. Petit, tu finiras par devenir un membre de ma Secte Démoniaque, c'est inéluctable! »
 
 Tout en pensant cela, Situ Nan s'exclama brusquement: « Je libère la glace! Tu as une demi-heure, alors ne perds pas de temps. Pense à ce qu'il avait l'intention de faire à tes parents! »
 

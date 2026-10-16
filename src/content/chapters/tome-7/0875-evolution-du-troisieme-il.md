@@ -36,11 +36,11 @@ Cependant, à cet instant, ses yeux brillaient d'un éclat inédit. Il fit trois
 
 Non seulement lui, mais tous les vieux monstres sur la natte de prière furent stupéfaits. Tout comme Lie Yunzi, ils ne portaient pas grand cas aux performances de Wang Lin lors des deux derniers essais, trouvant cela simplement divertissant. Mais à présent, ils commençaient tous à lui accorder une attention sérieuse.
 
-Les pupilles du Dieu Sanglant se rétractèrent alors qu'il fixait Wang Lin. Tout en étant choqué, une intention meurtrière surgit de nouveau dans son cœur!
+Les pupilles du Dieu de Sang se rétractèrent alors qu'il fixait Wang Lin. Tout en étant choqué, une intention meurtrière surgit de nouveau dans son cœur!
 
 « Cet enfant a pu entrer dans cet état en une seconde. On ne peut pas le laisser vivre! » Alors qu'il formulait cette pensée, il sentit une intention meurtrière se verrouiller sur lui. Il se retourna et vit Qing Shui le regarder froidement.
 
-Le Dieu Sanglant laissa échapper un reniflement glacial. Il réprima son intention meurtrière et la cacha profondément au fond de son cœur.
+Le Dieu de Sang laissa échapper un reniflement glacial. Il réprima son intention meurtrière et la cacha profondément au fond de son cœur.
 
 Les autres ancêtres des familles possédant des héritages du royaume céleste observaient la scène avec intensité.
 

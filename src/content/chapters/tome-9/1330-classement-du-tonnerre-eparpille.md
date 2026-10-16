@@ -94,10 +94,10 @@ Alors qu'il observait ces fruits, quatre rayons de lumière foncèrent vers la g
 
 L'un des trois hommes derrière lui pointa la direction et dit: « Oncle, la grotte de Qi Zhi est juste devant. C'est le seul vieux monstre de l'Âme Naissante au stade précoce dans un rayon de 5 000 kilomètres, et il a amassé de nombreux trésors au fil des ans. »
 
-Le vieil homme de l'Âme Naissante intermédiaire hocha la tête, imperturbable, et dit lentement: « Très bien. Ensuite, vous trois pourrez vous rendre à la Secte du Tonnerre Céleste pour récolter vos bénéfices. En échange de votre aide à mon Secte du Tonnerre Céleste, vous ne serez naturellement pas maltraités. »
+Le vieil homme de l'Âme Naissante intermédiaire hocha la tête, imperturbable, et dit lentement: « Très bien. Ensuite, vous trois pourrez vous rendre à la Secte du Tonnerre Céleste pour récolter vos bénéfices. En échange de votre aide à ma Secte du Tonnerre Céleste, vous ne serez naturellement pas maltraités. »
 
 Les yeux des trois cultivateurs de la Formation du Noyau pétillèrent de joie. Celui qui avait parlé exprima rapidement sa gratitude dans un rire: « Oncle pourra certainement échanger ces trésors contre une multitude de cristaux de tonnerre. Votre statut à la Secte du Tonnerre Céleste s'en trouvera grandement élevé! »
 
-Le cultivateur de l'Âme Naissante intermédiaire regarda le subordonné et ajouta doucement: « Je n'utiliserai pas ces cristaux pour moi-même, je les remettrai au Maître de la Secte. Le Maître de mon Secte est très proche du Classement du Tonnerre Éparpillé. Bientôt, il y figurera! »
+Le cultivateur de l'Âme Naissante intermédiaire regarda le subordonné et ajouta doucement: « Je n'utiliserai pas ces cristaux pour moi-même, je les remettrai au Maître de la Secte. Le Maître de ma Secte est très proche du Classement du Tonnerre Éparpillé. Bientôt, il y figurera! »
 
 À ces paroles, les trois cultivateurs de la Formation du Noyau furent stupéfaits et leur respect envers lui devint immense.

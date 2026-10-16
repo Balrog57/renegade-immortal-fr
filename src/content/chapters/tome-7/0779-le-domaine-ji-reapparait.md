@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: "Chapter 779 - Ji Realm Reappears!"
 slug: le-domaine-ji-reapparait
 ---
-Chapitre 779 - Le Domaine Ji réapparaît!
+Chapitre 779 - Le Royaume Ji réapparaît!
 
 Wang Lin s'arrêta. Il fixa silencieusement l'œil qui était apparu au centre du vortex.
 
@@ -40,7 +40,7 @@ Li Yuan hocha la tête sans poser davantage de questions. Sa main gauche traça 
 
 Soudain, un éclair rouge jaillit et tout le tonnerre se désintégra. L'éclair rouge chargea directement vers Wang Lin, provoquant un changement radical sur son visage. Un sentiment très familier émanait de cet éclair rouge. Ce sentiment qui frappait son âme fit contracter ses pupilles.
 
-« C'est... le Domaine Ji! »
+« C'est... le Royaume Ji! »
 
 Il recula sans réfléchir et, dans sa retraite, se fondit dans les environs. L'éclair rouge percuta de plein fouet le corps de Wang Lin.
 
@@ -58,17 +58,17 @@ Li Yuan songea: « Quel genre de sort est cette lumière rouge?! »
 
 L'éclair rouge faisait rage au sein de l'âme originelle de Wang Lin, imprégné d'une intention meurtrière. Cependant, avant qu'il ne puisse exploser, il fut aussitôt encerclé par des couches successives de la dense énergie originelle de Wang Lin.
 
-Cela empêcha l'éclair rouge de déployer toute sa puissance. Pourtant, c'était le Domaine Ji, et il était d'une puissance phénoménale. Bien qu'entourée d'énergie originelle, cette dernière se désintégrait rapidement de l'intérieur. Il était évident que les réserves de Wang Lin deviendraient bientôt inefficaces.
+Cela empêcha l'éclair rouge de déployer toute sa puissance. Pourtant, c'était le Royaume Ji, et il était d'une puissance phénoménale. Bien qu'entourée d'énergie originelle, cette dernière se désintégrait rapidement de l'intérieur. Il était évident que les réserves de Wang Lin deviendraient bientôt inefficaces.
 
-C'est parce que Wang Lin connaissait extrêmement bien le Domaine Ji qu'il ne paniqua pas, continuant à superposer des couches d'énergie originelle. Grâce à son expérience passée avec le Domaine Ji, son âme originelle n'était pas totalement sans défense face à lui.
+C'est parce que Wang Lin connaissait extrêmement bien le Royaume Ji qu'il ne paniqua pas, continuant à superposer des couches d'énergie originelle. Grâce à son expérience passée avec le Royaume Ji, son âme originelle n'était pas totalement sans défense face à lui.
 
-Après tout, il avait été autrefois le maître du Domaine Ji!
+Après tout, il avait été autrefois le maître du Royaume Ji!
 
 En conséquence, cet éclair rouge ne détruisit pas immédiatement son âme originelle, lui laissant une chance de résister. Si cela avait été quelqu'un d'autre, même avec un niveau de culture supérieur à celui de Wang Lin, cette personne serait sans aucun doute morte!
 
 Fort heureusement, Wang Lin possédait une vaste quantité d'énergie originelle non encore absorbée dans son corps. Avec une persévérance sans faille, il enveloppa sans cesse l'éclair rouge d'énergie pour compenser la vitesse à laquelle celle-ci se désintégrait.
 
-Pendant que Wang Lin affrontait le Domaine Ji, à 5 000 kilomètres de là, au niveau du trou sombre, un cultivateur s'approcha avec hésitation.
+Pendant que Wang Lin affrontait le Royaume Ji, à 5 000 kilomètres de là, au niveau du trou sombre, un cultivateur s'approcha avec hésitation.
 
 C'était l'un de ceux qui surveillaient Wang Lin. Il ne s'était pas éloigné mais errait dans les environs, espérant que, après le départ de Xu Mu, il pourrait trouver un trésor que ce dernier n'aurait pas estimé à sa juste valeur.
 
@@ -102,9 +102,9 @@ Lorsque Wang Lin ouvrit les yeux, son corps était trempé de sueur. Le visage p
 
 Mais ses yeux brillèrent d'une lueur particulière et il retira sa main.
 
-« Si je me contentais d'expulser le Domaine Ji, ce serait un tel gâchis. Il vaut mieux le garder en moi; il pourrait bien me sauver la vie à un moment crucial! » Wang Lin réfléchit un instant en observant son âme originelle. La trace du Domaine Ji l'obligerait à consommer énormément d'énergie originelle pour la maintenir sous contrôle.
+« Si je me contentais d'expulser le Royaume Ji, ce serait un tel gâchis. Il vaut mieux le garder en moi; il pourrait bien me sauver la vie à un moment crucial! » Wang Lin réfléchit un instant en observant son âme originelle. La trace du Royaume Ji l'obligerait à consommer énormément d'énergie originelle pour la maintenir sous contrôle.
 
-Mais comparée à l'énergie originelle, la valeur de ce Domaine Ji était inestimable. Le cœur de Wang Lin manqua un battement alors qu'il prenait sa décision après une courte réflexion.
+Mais comparée à l'énergie originelle, la valeur de ce Royaume Ji était inestimable. Le cœur de Wang Lin manqua un battement alors qu'il prenait sa décision après une courte réflexion.
 
 Il se leva et rangea son trésor. À cet instant précis, il sentit une secousse provenant du sol. Ce tremblement émanait du tunnel situé à 5 000 kilomètres de là.
 

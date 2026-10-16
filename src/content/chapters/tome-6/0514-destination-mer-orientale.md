@@ -72,7 +72,7 @@ Wang Lin se déplaça comme l'éclair et, en plein vol, se transforma en un giga
 
 « Zhou Yi m'a aidé autrefois, et il est maintenant piégé dans cette mer. Il y a quelques personnes à qui je dois une dette, et je les rembourserai toutes. Je dois tenter de l'aider. C'est la deuxième raison! »
 
-« Le Maître Tout-Voyant se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon implantation sur la planète Tian Yun. C'est la troisième raison! »
+« Le Maître Omniscient se soucie du destin céleste et n'agirait pas sans raison. S'il veut que j'y aille, c'est qu'il a ses motifs. Si je refuse, je m'opposerai au destin, ce qui rendra difficile mon implantation sur la planète Tian Yun. C'est la troisième raison! »
 
 « Je ne sais seulement pas si j'aurai la chance de trouver de quoi augmenter l'élément métallique de la Perle Défiant le Ciel. Si elle est complète, elle apportera sans doute de grands bénéfices à Wan Er et pourrait même l'éveiller... » Wang Lin toucha son front, affichant un regard empreint de douce nostalgie.
 

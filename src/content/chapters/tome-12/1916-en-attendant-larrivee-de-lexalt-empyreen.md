@@ -12,7 +12,7 @@ Après avoir dévoré le Maître de la Secte Dao Démon, Wang Lin ferma les yeux
 
 Un instant plus tard, Wang Lin ouvrit les yeux et agita sa manche. La terre trembla, tout comme le lac et l'île à moitié effondrés. Tandis qu'une tempête balayait les lieux, ils furent totalement détruits.
 
-Le Secte Dao Démon s'était effondré!
+La Secte Dao Démon s'était effondré!
 
 L'émissaire impérial, baigné dans une lumière dorée, resta là avec une expression embarrassée. Ce n'est que lorsque Wang Lin ouvrit les yeux qu'il joignit les mains avec un sourire amer.
 

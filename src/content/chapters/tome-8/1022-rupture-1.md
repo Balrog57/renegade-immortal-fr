@@ -126,7 +126,7 @@ Une telle chaleur pouvait détruire n'importe quelle chair, aussi résistante so
 
 Chapitre 1022.1 - Rupture (2)
 
-Au sein de la Secte des Quatre Divinités, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de ce secte!
+Au sein de la Secte des Quatre Divinités, une antique maxime se transmettait depuis les temps primordiaux. Cette phrase englobait l'essence même des héritages de cette secte!
 
 « Des Quatre Divinités qui s'éveillent: la Tortue Noire est la plus rapide, le Tigre Blanc est le plus féroce, le Dragon Azure est le plus puissant et l'Oiseau Vermillon est le plus difficile! »
 

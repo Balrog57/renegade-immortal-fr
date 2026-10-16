@@ -18,7 +18,7 @@ C'est là que la Secte des Cadavres intervient. Que ce soit pour quelqu'un qui a
 
 Les corps fournis par la Secte des Cadavres possèdent tous un excellent talent et ont été entraînés selon la méthode de culture fournie par la secte depuis leur plus jeune âge. Chaque branche de la Secte des Cadavres propose différentes méthodes de culture à ses disciples.
 
-Le Secte des Cadavres traite avec de nombreuses sectes des pays de rang 4 ou 5, et certaines d'entre elles concluent des accords exclusifs afin d'obtenir des corps plus rapidement. L'une des clauses de ces accords stipule que la secte doit fournir sa méthode de culture de base, faisant ainsi d'une branche une véritable ferme à corps personnelle pour ladite secte.
+La Secte des Cadavres traite avec de nombreuses sectes des pays de rang 4 ou 5, et certaines d'entre elles concluent des accords exclusifs afin d'obtenir des corps plus rapidement. L'une des clauses de ces accords stipule que la secte doit fournir sa méthode de culture de base, faisant ainsi d'une branche une véritable ferme à corps personnelle pour ladite secte.
 
 La branche de Zhao de la Secte des Cadavres est issue d'une secte démoniaque d'un pays de rang 5. Sa méthode de culture se nomme la Méthode des Enfers.
 

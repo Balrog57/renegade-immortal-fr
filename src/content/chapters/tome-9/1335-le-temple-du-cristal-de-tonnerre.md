@@ -24,7 +24,7 @@ C'était un lieu interdit!
 
 Ce n'était que durant les trois jours d'ouverture que le brouillard vert se dissipait légèrement, révélant un passage pour les membres du Clan du Tonnerre Dispersé.
 
-Le Secte du Tonnerre Céleste était assez éloigné du Temple. En réalité, il se trouvait dans une région reculée de la planète, tout comme le pays de Zhao sur la planète Suzaku. Personne ne lui prêtait attention et personne ne venait l'explorer. Même si des cultivateurs puissants s'y établissaient, à moins d'un bouleversement majeur, cette région demeurait insignifiante à l'échelle de cette immense planète de culture.
+La Secte du Tonnerre Céleste était assez éloigné du Temple. En réalité, il se trouvait dans une région reculée de la planète, tout comme le pays de Zhao sur la planète Suzaku. Personne ne lui prêtait attention et personne ne venait l'explorer. Même si des cultivateurs puissants s'y établissaient, à moins d'un bouleversement majeur, cette région demeurait insignifiante à l'échelle de cette immense planète de culture.
 
 Par exemple, Yu Fei n'avait jamais voyagé au-delà de 50 000 kilomètres. Bien que les habitants de ce rayon le connaissent, dès qu'il quittait la zone, il redevenait un inconnu. Il en allait de même pour Big Red.
 

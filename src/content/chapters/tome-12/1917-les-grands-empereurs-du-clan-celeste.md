@@ -42,11 +42,11 @@ En vérité, il n'avait pas grand-chose donné au fou; c'était plutôt le fou q
 
 « L'Empereur Céleste du Continent Central a hérité des Huit Dao Extrêmes de l'Ancêtre Céleste et est le Grand Empereur Huit Extrêmes! »
 
-« Le Secte Purple Yang du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gemini! »
+« La Secte Purple Yang du Continent de l'Est, le plus puissant des neuf sectes et treize factions, abrite le Grand Empereur Gemini! »
 
-« Le Secte Dao Yi du Continent Sud possède le Grand Empereur Dao Yi! »
+« La Secte Dao Yi du Continent Sud possède le Grand Empereur Dao Yi! »
 
-« Le Secte de l'Univers du Continent Nord possède le Grand Empereur Wu Feng! »
+« La Secte de l'Univers du Continent Nord possède le Grand Empereur Wu Feng! »
 
 « Dans le Continent Central, il existe un autre Grand Empereur aux côtés de l'Empereur Céleste, et c'est le Grand Empereur Jiu Di! »
 

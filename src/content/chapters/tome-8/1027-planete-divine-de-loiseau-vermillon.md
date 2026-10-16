@@ -142,9 +142,9 @@ Dès que la scène apparut, la femme tourna soudainement le regard. Ses yeux vid
 « L'Ancêtre Saint du Clan des Tatouages, Qiu Yao! »
 « Et l'homme devant elle... pourrait-il être l'Empereur Céleste Qing Lin?! »
 
-Maître Vide, le Tout-Voyant et tous les autres apparurent également dans l'image!
+Maître Vide, l'Omniscient et tous les autres apparurent également dans l'image!
 
-« Maître Vide et le Tout-Voyant sont là aussi! »
+« Maître Vide et l'Omniscient sont là aussi! »
 « Cette personne a traversé l'Éveil de l'Oiseau Vermillon dans un lieu si périlleux... Maître Vide est une figure clé de l'Alliance. Il ne permettra certainement pas à ma Secte de l'Oiseau Vermillon d'avoir un tel éveil! »
 « Cependant, je n'ai jamais vu celui qui s'est éveillé. Comment a-t-il obtenu la Lignée de l'Oiseau Vermillon? »
 

@@ -18,9 +18,9 @@ L'esprit du vieil Empereur Divin et ses dizaines de milliers d'années de dévou
 
 Ce qui excitait tant Wang Lin était ce que le vieil Empereur Divin lui avait confié.
 
-« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte Divin de l'Oiseau Vermillon...
+« Je m'appelle Lu Yun, et je suis né dans le monde antique des raffineurs de Qi. Je suis devenu l'apprenti alchimiste de la quatrième génération de l'Empereur Divin de l'Oiseau Vermillon. Je suis reconnaissant envers le quatrième Empereur de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli certains exploits en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte Divin de l'Oiseau Vermillon...
 
-À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Mon Secte Divin de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
+À l'âge de 11 463 ans, le Clan du Tatou a envahi le monde extérieur et a semé le chaos. Ma Secte Divin de l'Oiseau Vermillon a aidé le Royaume Céleste à combattre le Clan du Tatou! Par la suite, le quatrième Empereur Divin est parti avec les trois autres Empereurs Divins pour rejoindre le monde extérieur. Avant leur départ, j'ai été désigné comme le cinquième Empereur Divin de l'Oiseau Vermillon! »
 
 Le regard de Wang Lin restait fixé sur le petit Cristal de Mutation de Feu Brûlant, et ses yeux s'illuminèrent.
 

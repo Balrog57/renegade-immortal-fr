@@ -98,7 +98,7 @@ Ling Tianhou déclara: « Omniscient, autrefois votre disciple Wang Lin a pris l
 
 À ce moment-là, l'Omniscient avait gardé une expression sereine et n'avait prononcé qu'une seule phrase:
 
-« Lorsque la lumière verte et pourpre emplira le ciel, vous pourrez tous venir à mon Secte du Destin Céleste et contempler le mystère des cieux! »
+« Lorsque la lumière verte et pourpre emplira le ciel, vous pourrez tous venir à ma Secte du Destin Céleste et contempler le mystère des cieux! »
 
 Tôt ce matin, le ciel autrefois limpide au-dessus de la planète Tian Yun avait été soudainement enveloppé de vert et de pourpre. Ces couleurs étaient magnifiques et semblaient teinter la planète entière.
 

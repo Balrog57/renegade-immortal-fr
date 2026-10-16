@@ -90,7 +90,7 @@ Ses yeux brillèrent alors qu'il fixait une silhouette mince apparue à 330 mèt
 
 Mo Lihai ne remarqua l'apparition de Wang Lin qu'à cet instant, ce qui le détendit légèrement.
 
-Wang Lin ne da même pas un regard à l'homme et continua sa route. Cependant, dans le regard du membre de la Secte de l'Épée Da Lou, une pointe de colère apparut.
+Wang Lin ne daigna même pas un regard à l'homme et continua sa route. Cependant, dans le regard du membre de la Secte de l'Épée Da Lou, une pointe de colère apparut.
 
 L'homme dit froidement: « La rumeur prétend que le septième disciple de la Division Pourpre est d'une arrogance extrême. En vous voyant aujourd'hui, il semble que les rumeurs soient vraies! »
 

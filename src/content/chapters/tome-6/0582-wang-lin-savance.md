@@ -98,7 +98,7 @@ Shi Xiao retira sa main et déclara calmement: « Je l'ai dit, tu n'es pas à la
 
 Il atteignit Shi Xiao en trois enjambées et grimaça: « Petite poupée, moi, le vénérable Tian Kui de la Secte des Esprits Géants, je suis l'adjoint du général démon Mu Yun! »
 
-Wang Lin observa l'homme massif. Le Secte des Esprits Géants était une puissance majeure de la planète Tian Yun, semblable au Clan des Démons Géants par son culte de la force brute!
+Wang Lin observa l'homme massif. La Secte des Esprits Géants était une puissance majeure de la planète Tian Yun, semblable au Clan des Démons Géants par son culte de la force brute!
 
 Le géant poussa un rugissement et fit un pas en avant; alors, une énergie spirituelle céleste jaillit de ses pores pour se transformer en brume. Dissimulé dans ce nuage, il fonça sur Shi Xiao!
 

@@ -46,7 +46,7 @@ Le silence devint total. Près de 100 000 regards étaient braqués sur Wang Lin
 
 Sa démarche n'était pas rapide, mais chaque pas qu'il faisait faisait rater un battement aux membres de la Secte Recherchant la Montagne. Ils avaient l'impression de faire face à une bête féroce des temps anciens qui s'apprêtait à ouvrir sa gueule pour les dévorer.
 
-Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un cultivateur au stade de Briseur du Nirvana, il n'avait pas le courage d'affronter Wang Lin. En repensant au fait que cet homme était celui qui avait contraint son secte à déplacer tout un continent, son cuir chevelu en fut engourdi; il n'osait même plus envisager la moindre résistance.
+Le Maître de la Secte Recherchant la Montagne était livide. Bien qu'il fût un cultivateur au stade de Briseur du Nirvana, il n'avait pas le courage d'affronter Wang Lin. En repensant au fait que cet homme était celui qui avait contraint sa secte à déplacer tout un continent, son cuir chevelu en fut engourdi; il n'osait même plus envisager la moindre résistance.
 
 « Dans la région de rang 7, la Secte Recherchant la Montagne n'est qu'une petite secte. Il ne serait pas sage pour un simple Ancien de s'opposer à un tel être! » Ses yeux brillèrent et il se tourna vers l'Ancien principal. Ce dernier possédait une culture profonde, étant au stade intermédiaire du Briseur du Nirvana.
 

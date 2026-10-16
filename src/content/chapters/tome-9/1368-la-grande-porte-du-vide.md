@@ -41,9 +41,9 @@ Wang Lin esquissa un ricanement. Les six types de tonnerres accompagnateurs éta
 
 « En matière de tonnerres accompagnateurs, on dit qu'il faut suivre les règles et les rechercher. Mais si je décrète qu'ils sont des tonnerres accompagnateurs, alors ils le seront! » Wang Lin n'avait jamais été du genre à suivre les règles. Puisqu'il ignorait quels devaient être ces trois types, il allait simplement les créer lui-même!
 
-« Je veux voir si je peux atteindre la troisième étape grâce à l'achèvement de mon essence du tonnerre! » Les yeux de Wang Lin brillèrent d'un rouge écarlate et son Domaine Ji jaillit!
+« Je veux voir si je peux atteindre la troisième étape grâce à l'achèvement de mon essence du tonnerre! » Les yeux de Wang Lin brillèrent d'un rouge écarlate et son Royaume Ji jaillit!
 
-« Le Domaine Ji est une rétribution divine, et c'est aussi un tonnerre! Peu importe ce qu'était la rétribution divine auparavant, désormais, tu es le Tonnerre Ji, mon septième type de tonnerre accompagnateur. Moi, Wang Lin, suis le tonnerre des cieux. Mes paroles sont les ordres que tu suivras pour l'éternité! Tonnerre Ji, reviens! »
+« Le Royaume Ji est une rétribution divine, et c'est aussi un tonnerre! Peu importe ce qu'était la rétribution divine auparavant, désormais, tu es le Tonnerre Ji, mon septième type de tonnerre accompagnateur. Moi, Wang Lin, suis le tonnerre des cieux. Mes paroles sont les ordres que tu suivras pour l'éternité! Tonnerre Ji, reviens! »
 
 Sous la volonté de Wang Lin, le Tonnerre Ji gronda et chargea vers son œil droit. Il pénétra la pupille et s'y imprégna! Il devint le septième type de tonnerre accompagnateur! À cet instant, dans l'œil droit de Wang Lin, sept types de tonnerres tournaient autour de son essence. Une aura d'une puissance inouïe explosa de son corps!
 

@@ -56,7 +56,7 @@ Wang Lin tint le jade et le parcourut de son Sens Divin. Il vit instantanément 
 
 « Il y a même un Lion-Bête Épée! Ce vieux s'en portera pour parier sur cette bête! » Le vieil homme couvert de cicatrices éclata de rire. Son Sens Divin ajusta le jade, puis il le lança à Ouyang Long.
 
-Wang Lin examina calmement chaque bête féroce contenue dans le jade. Il n'était pas un expert en créatures sauvages; tout ce qu'il savait provenait des archives de la Secte de l'Origine, ce qui s'avérait insuffisant. La plupart des bêtes présentes ne figuraient pas dans les registres de son secte.
+Wang Lin examina calmement chaque bête féroce contenue dans le jade. Il n'était pas un expert en créatures sauvages; tout ce qu'il savait provenait des archives de la Secte de l'Origine, ce qui s'avérait insuffisant. La plupart des bêtes présentes ne figuraient pas dans les registres de sa secte.
 
 Wang Lin acquit ainsi de nombreuses connaissances sur les bêtes féroces en inspectant le jade. Voyant que la majorité des autres avaient déjà lancé leurs jades, Wang Lin choisit une bête nommée « Vent et Nuage », plaça cent jades célestes et le renvoya à Ouyang Long.
 

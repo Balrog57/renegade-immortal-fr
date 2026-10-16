@@ -136,9 +136,9 @@ Zhong Big Red s'élança rapidement pour éviter d'être tué par les siens. En 
 
 Les yeux de Wang Lin s'illuminèrent en observant Zhong Big Red. Puis il se retourna et agita ses manches. Un courant d'air enveloppa Zhong Big Red et l'envoya dans l'espace de stockage de Wang Lin pour rejoindre Xu Liguo. D'un pas, Wang Lin franchit une distance incommensurable pour réapparaître là où le Daoïste Esprit Dispersé combattait les cultivateurs du Fléau Céleste du Clan du Tonnerre Dispersé.
 
-Les sortsily fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Domaine de Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il transperça le crâne d'un premier cultivateur du Fléau Céleste, faisant imploser son âme originelle. Puis il frappa un second cultivateur, faisant exploser sa tête.
+Les sortsily fusaient de toutes parts. À l'apparition de Wang Lin, ses yeux brillèrent d'un rouge vif. Son Royaume Ji jaillit comme un éclair rouge, d'une rapidité fulgurante. Il transperça le crâne d'un premier cultivateur du Fléau Céleste, faisant imploser son âme originelle. Puis il frappa un second cultivateur, faisant exploser sa tête.
 
-« Compagnon Daoïste Esprit Dispersé, prends soin de toi. Je m'en vais! » Wang Lin fit un pas de plus, rétracta son Domaine de Ji et disparut sans laisser de trace!
+« Compagnon Daoïste Esprit Dispersé, prends soin de toi. Je m'en vais! » Wang Lin fit un pas de plus, rétracta son Royaume Ji et disparut sans laisser de trace!
 
 Son apparition et ses deux morts instantanées terrifièrent ceux qui combattaient le Daoïste Esprit Dispersé. Ce dernier éclata d'un rire sonore.
 

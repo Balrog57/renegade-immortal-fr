@@ -26,7 +26,7 @@ Cependant, alors que la mer rugissante approchait, l'homme d'âge mûr revêtu d
 
 « Maître, le disciple est arrivé trop tard... » Le visage de Wang Wei était livide alors qu'il reculait de plusieurs centaines de pieds pour rejoindre Zhou Yi. Il regarda l'homme d'âge mûr avec une douleur profonde dans les yeux, mais il la réprima rapidement pour afficher un regard déterminé. Zhou Yi ne s'était pas encore remis de ses blessures infligées au Maître Vide et était en grand danger. Wang Wei fit un geste de la main; Zhou Yi comprit instantanément son intention. Il lança un dernier regard à Wang Lin avant de se transformer en une lueur de lumière pour être rangé dans le sac de Wang Wei.
 
-Dans le ciel, après que la mer de Wang Wei eut été brisée, le doigt du Tout-Voyant, qui semblait pouvoir soutenir les cieux, descendit. Imprégné d'une puissante énergie originelle, il descendait lentement depuis la voûte céleste. Bien que sa descente paraisse lente, sa vitesse réelle était extrême.
+Dans le ciel, après que la mer de Wang Wei eut été brisée, le doigt de l'Omniscient, qui semblait pouvoir soutenir les cieux, descendit. Imprégné d'une puissante énergie originelle, il descendait lentement depuis la voûte céleste. Bien que sa descente paraisse lente, sa vitesse réelle était extrême.
 
 Des grondements retentirent, comme si le doigt ouvrait une brèche dans le ciel. Même le brouillard noir fut transpercé alors qu'il s'abattait sur l'homme en dessous.
 
@@ -36,7 +36,7 @@ C'était comme si une puissance bien supérieure à ce sort l'avait brisé en de
 
 Le vacarme était capable de faire trembler les cieux. Le doigt qui avait fait frissonner Wang Lin s'effondra et disparut en un clin d'œil.
 
-Tout cela se produisit en un instant. Dès que l'homme d'âge mûr fit un pas, les sorts de Wang Wei et du Tout-Voyant furent anéantis.
+Tout cela se produisit en un instant. Dès que l'homme d'âge mûr fit un pas, les sorts de Wang Wei et de l'Omniscient furent anéantis.
 
 Pourtant, l'homme en armure ne s'arrêta pas et fit un autre pas. Il se déplaçait à une vitesse indescriptible et arriva instantanément devant l'Ancien Démon Bei Lou. Les huit étoiles de son œil gauche scintillèrent alors qu'il levait sa main droite pour balayer d'un geste nonchalant toutes les illusions invoquées par les petits fanions.
 
@@ -48,7 +48,7 @@ Des grondements sourds résonnaient à l'intérieur du brouillard. La brume noir
 
 « Et alors?! Cela suffit amplement pour vous tuer tous! » Une voix rauque et sinistre s'éleva, accompagnée de fluctuations magiques. Lorsqu'elle atteignit les oreilles de chacun, c'était comme si des os étaient frottés les uns contre les autres. Un frisson glacial parcourut le cœur de tous les présents.
 
-Les yeux du Tout-Voyant brillèrent d'une lueur étrange, puis il chargea inopinément dans le brouillard noir. Les grondements s'intensifièrent. Wang Wei serra les dents et se précipita lui aussi dans l'obscurité.
+Les yeux de l'Omniscient brillèrent d'une lueur étrange, puis il chargea inopinément dans le brouillard noir. Les grondements s'intensifièrent. Wang Wei serra les dents et se précipita lui aussi dans l'obscurité.
 
 Ces trois puissances avaient pénétré le brouillard noir, et les collisions assourdissantes de leurs sorts résonnaient. Des fluctuations folles d'énergie originelle et d'énergie spirituelle céleste se propageaient dans l'air.
 

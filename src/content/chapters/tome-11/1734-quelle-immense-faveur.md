@@ -54,7 +54,7 @@ Ce qui exalta davantage Wang Lin fut la parole suivante du Général de l'Eau:
 
 Les mains de Na Duo formèrent un sceau et une lumière dorée jaillit, l'enveloppant d'une armure. Il sortit de la tour, protégé par cette armure.
 
-« Projetez vos Sens Divins dans la formation! Aujourd'hui, mon Secte Gui Yi éliminera un démon de ce monde! » rugit Na Duo en formant un nouveau sceau. Son Sens Divin se précipita vers le vortex céleste.
+« Projetez vos Sens Divins dans la formation! Aujourd'hui, ma Secte Gui Yi éliminera un démon de ce monde! » rugit Na Duo en formant un nouveau sceau. Son Sens Divin se précipita vers le vortex céleste.
 
 Il y a toujours ceux qui s'évertuent à dépeindre les autres comme maléfiques pour se draper dans la justice. Ils calomnient et propagent des rumeurs, comme si leur force ne pouvait s'exprimer pleinement sans cette imposture.
 
@@ -78,7 +78,7 @@ Wang Lin, à l'intérieur, avait les yeux brillants d'excitation tandis qu'il ap
 
 Elle continuait de rétrécir!
 
-Le regard de Wang Lin était empreint d'illumination. Sa main gauche continuait d'imiter les mouvements par réflexe, tandis que sa main droite agitait le vide. La goutte d'essence d'eau qu'il avait obtenue du Tout-Voyant apparut dans sa paume.
+Le regard de Wang Lin était empreint d'illumination. Sa main gauche continuait d'imiter les mouvements par réflexe, tandis que sa main droite agitait le vide. La goutte d'essence d'eau qu'il avait obtenue de l'Omniscient apparut dans sa paume.
 
 « Je comprends! » Wang Lin leva soudain la tête et la goutte d'essence d'eau dans sa main brilla intensément. Elle se mit à pivoter et, sous l'éclat de cette lumière cristalline, la goutte ressemblait désormais à un cristal pur!
 

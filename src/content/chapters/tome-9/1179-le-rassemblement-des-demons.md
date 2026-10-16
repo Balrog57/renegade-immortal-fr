@@ -98,7 +98,7 @@ L'expression du garçon devint également grave, et il joignit les mains à son 
 
 « Maître Bo Tain est mon frère aîné. Je suis Chen Tainjun. » La voix de l'homme robuste était calme, teintée d'une pointe de fierté.
 
-« Cet homme est un Nirvana Briseur de stade précoce... Mais le fait qu'il puisse attirer l'attention de tous ces vieux monstres au stade intermédiaire signifie qu'au-delà de son secte, il cache autre chose. Plus important encore, la technique de ce Secte de la Bête de Bataille est intéressante. De plus, il a affirmé être arrivé alors que personne ne l'avait remarqué. Il y a là une anomalie! » Wang Lin détourna le regard de l'homme robuste.
+« Cet homme est un Nirvana Briseur de stade précoce... Mais le fait qu'il puisse attirer l'attention de tous ces vieux monstres au stade intermédiaire signifie qu'au-delà de sa secte, il cache autre chose. Plus important encore, la technique de cette Secte de la Bête de Bataille est intéressante. De plus, il a affirmé être arrivé alors que personne ne l'avait remarqué. Il y a là une anomalie! » Wang Lin détourna le regard de l'homme robuste.
 
 « La capacité de dissimulation de la Secte de la Bête de Bataille est en effet remarquable. Je n'avais pas réalisé que mon frère Chen était déjà là! » Maître Pin Cendré se leva en riant.
 

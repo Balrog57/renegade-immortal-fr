@@ -102,7 +102,7 @@ Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait l'âme errante. Il ordo
 
 L'âme errante obéit. Son corps trembla alors qu'elle se retournait pour faire face à Wang Lin.
 
-Wang Lin ne da même pas un regard au groupe de Zhou Zihong en s'avançant vers l'entité. Il avait dévoré de nombreuses âmes errantes — si ce n'était pas 10 000, au moins 8 000. Bien qu'il n'en ait pas tenu un compte exact, il remarqua que cette âme était singulière.
+Wang Lin ne daigna même pas un regard au groupe de Zhou Zihong en s'avançant vers l'entité. Il avait dévoré de nombreuses âmes errantes — si ce n'était pas 10 000, au moins 8 000. Bien qu'il n'en ait pas tenu un compte exact, il remarqua que cette âme était singulière.
 
 Les âmes qu'il avait dévorées auparavant ressemblaient à des sens divins dotés de vie; elles possédaient une intelligence minimale et ne cherchaient qu'à tout dévorer.
 

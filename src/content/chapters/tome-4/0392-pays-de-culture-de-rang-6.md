@@ -68,13 +68,13 @@ La tentative sur sa vie deux ans auparavant l'avait presque tué et lui avait fa
 
 « Il a été poussé de force au stade de Transformation de l'Âme et peut être considéré comme le plus faible des cultivateurs de ce rang. Mon corps original est devenu un Dieu Ancien à trois étoiles; si je fusionne avec lui, je pourrai l'affronter. » Les yeux de Wang Lin brillèrent tandis que sa silhouette se fondait dans les ténèbres.
 
-Un mois plus tard, dans la vallée située au sein de Chu, Zhou Ru jouait avec Little White, le crapaud tonnerre se prélassait au soleil et Tie Yan cultivait. Ce dernier était très proche du stade de Formation de l'Âme et s'apprêtait à comprendre son propre domaine.
+Un mois plus tard, dans la vallée située au sein de Chu, Zhou Ru jouait avec Petit Blanc, le crapaud tonnerre se prélassait au soleil et Tie Yan cultivait. Ce dernier était très proche du stade de Formation de l'Âme et s'apprêtait à comprendre son propre domaine.
 
 Le crapaud tonnerre ouvrit soudainement les yeux, ses grands globes oculaires tournés vers l'extérieur de la vallée.
 
 Un jeune homme vêtu de blanc entra dans la vallée avec un sourire. Le domaine de niveau Ascendant provenant de la pagode n'avait aucun effet sur lui.
 
-Zhou Ru se frotta les yeux et poussa immédiatement un cri de joie. Elle sauta du dos de Little White et s'écria: « Oncle! Oncle! »
+Zhou Ru se frotta les yeux et poussa immédiatement un cri de joie. Elle sauta du dos de Petit Blanc et s'écria: « Oncle! Oncle! »
 
 Wang Lin rit, prit la petite Zhou Ru dans ses bras, puis tourna son regard vers Tie Yan.
 
@@ -86,15 +86,15 @@ Bien que son visage restât impassible, ses mains se mirent à trembler: « Vrai
 
 Zhou Ru serra Wang Lin contre elle et demanda précipitamment: « Oncle, où est mon grand tigre? Où est le grand tigre que tu m'as promis en partant? »
 
-Little White, qui écoutait, fut saisi d'excitation. Il pensa: « Il semble que la vie misérable de ce seigneur tigre touche à sa fin. Si cette petite diablesse prend un nouvel animal de compagnie, elle devrait me laisser partir. »
+Petit Blanc, qui écoutait, fut saisi d'excitation. Il pensa: « Il semble que la vie misérable de ce seigneur tigre touche à sa fin. Si cette petite diablesse prend un nouvel animal de compagnie, elle devrait me laisser partir. »
 
-En songeant à la vie de luxe qui l'attendait et aux nombreuses tigresses qu'il n'avait pas vues depuis longtemps, Little White ne put s'empêcher de s'emballer.
+En songeant à la vie de luxe qui l'attendait et aux nombreuses tigresses qu'il n'avait pas vues depuis longtemps, Petit Blanc ne put s'empêcher de s'emballer.
 
 « Un grand tigre... » Wang Lin se frotta le nez. Il avait effectivement oublié cela; après tout, ce voyage l'avait beaucoup éprouvé.
 
 Zhou Ru fit la moue: « Oncle, quand tu es parti, tu avais dit que tu n'oublierais pas... »
 
-En entendant cela, la vision de Little White devint noire; tous ses espoirs et ses rêves s'évaporaient. Il soupira intérieurement, se demandant pourquoi sa vie était si tragique.
+En entendant cela, la vision de Petit Blanc devint noire; tous ses espoirs et ses rêves s'évaporaient. Il soupira intérieurement, se demandant pourquoi sa vie était si tragique.
 
 Wang Lin eut un sourire désolé et frotta la tête de Zhou Ru: « Écoute, l'oncle est là pour t'emmener quelque part. Je te trouverai un grand tigre plus tard. »
 
@@ -102,15 +102,15 @@ Zhou Ru n'était qu'une enfant et, en entendant cela, elle retrouva instantaném
 
 « L'oncle va chercher un ami! » Une pointe d'intention meurtrière apparut dans les yeux de Wang Lin.
 
-Le cœur de Little White trembla et son espoir renaquit, plus fort que jamais. Il se dit que si les deux partaient, il retrouverait sa liberté. En y pensant, l'excitation le gagna à nouveau.
+Le cœur de Petit Blanc trembla et son espoir renaquit, plus fort que jamais. Il se dit que si les deux partaient, il retrouverait sa liberté. En y pensant, l'excitation le gagna à nouveau.
 
 Wang Lin dit: « Petite Ru Er, entre dans la pagode. Ce voyage sera très long; rester dans la pagode garantira ta sécurité. Sois sage, maintenant. »
 
 Zhou Ru acquiesça rapidement, l'air enthousiaste. Dès qu'elle comprit qu'elle pouvait partir, elle fut ravie.
 
-« Little White, viens avec moi! »
+« Petit Blanc, viens avec moi! »
 
-Little White poussa un grognement de tristesse, ses espoirs étant une fois de plus brisés. Il jeta un regard mélancolique vers la montagne, comme si des tigresses l'y attendaient encore. Finalement, sous les assauts et les tapes de Zhou Ru, il accepta de la suivre dans la pagode.
+Petit Blanc poussa un grognement de tristesse, ses espoirs étant une fois de plus brisés. Il jeta un regard mélancolique vers la montagne, comme si des tigresses l'y attendaient encore. Finalement, sous les assauts et les tapes de Zhou Ru, il accepta de la suivre dans la pagode.
 
 La main droite de Wang Lin traça un sceau. La pagode rétrécit rapidement et il la rangea avec soin.
 

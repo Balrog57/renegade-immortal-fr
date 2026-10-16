@@ -60,7 +60,7 @@ La femme à ses côtés joignit également ses mains, son regard balayant Wang L
 
 Wang Lin observa les deux disciples de la Secte Dong Lin devant lui. Il poussa un soupir intérieur, afficha une expression douce et hocha la tête.
 
-Guidé par les disciples, Wang Lin vola vers le centre de la secte. Le Secte Dong Lin était vaste, et tout au long de son voyage, il vit un lieu débordant de vie.
+Guidé par les disciples, Wang Lin vola vers le centre de la secte. La Secte Dong Lin était vaste, et tout au long de son voyage, il vit un lieu débordant de vie.
 
 Il vit également de nombreuses grues voletter dans le ciel. Au sol, que ce soit dans la cour d'alchimie ou dans les résidences, des disciples étaient assis, pratiquant leur culture ou discutant entre eux.
 
@@ -120,7 +120,7 @@ Le vieil homme resta silencieux un moment, songeant. Puis, il prit la cruche et 
 
 Le vieil homme contempla le grand temple au loin et dit lentement: « Peut-être... Je suis assis ici depuis très longtemps. Peut-être êtes-vous réellement venu ici par votre rêve. »
 
-Il demanda doucement: « Le Secte Dong Lin de votre rêve était-il identique à celui-ci? »
+Il demanda doucement: « La Secte Dong Lin de votre rêve était-il identique à celui-ci? »
 
 « Le même. » En regardant le vieillard, Wang Lin pouvait ressentir toute sa détresse.
 
@@ -138,4 +138,4 @@ Quelle émotion pouvait transformer un être en une telle créature? Quelle tris
 
 Le vieil homme parla soudainement, et ses paroles firent trembler le cœur de Wang Lin! « Verrouillez le destin des cieux et scellez les enfers. Ceux qui n'atteignent pas le véritable Dao sombreront dans un océan de souffrance et perdront à jamais la voie du vrai Dao. Suivez le chemin du véritable Dao! »
 
-« C'était écrit sur une tablette de pierre, avec le sang de mon Secte Dong Lin, par le coupable... »
+« C'était écrit sur une tablette de pierre, avec le sang de ma Secte Dong Lin, par le coupable... »

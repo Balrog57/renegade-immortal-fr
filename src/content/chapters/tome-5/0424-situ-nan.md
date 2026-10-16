@@ -57,7 +57,7 @@ Les yeux de l'Ancien s'illuminèrent et, esquissant un sourire qui n'en était p
 
 L'expression de l'homme d'âge moyen resta de marbre, puis il sourit. « Quel en est le résultat? »
 
-L'Ancien de la Secte des Cadavres rit: « Cela, je l'ignore. Mais avec la connaissance que possède mon Secte sur le Suzaku actuel, s'il s'y est rendu, c'est qu'il était au moins sûr de lui à 80 %. Votre Clan de l'Immortel Déchu devrait se montrer prudent! »
+L'Ancien de la Secte des Cadavres rit: « Cela, je l'ignore. Mais avec la connaissance que possède ma Secte sur le Suzaku actuel, s'il s'y est rendu, c'est qu'il était au moins sûr de lui à 80 %. Votre Clan de l'Immortel Déchu devrait se montrer prudent! »
 
 L'expression de l'homme d'âge moyen n'avait pas encore changé. Il allait prendre la parole quand son visage se décomposa soudainement. Il tourna le regard vers Pilu, à l'extrémité nord du continent Suzaku. De là, il ressentit une aura qui le fit trembler.
 

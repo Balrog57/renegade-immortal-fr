@@ -20,9 +20,9 @@ Lorsque les pays de rang 4 visitaient la Secte Ciel Nuageux, ils suppliaient pou
 
 Au moment où les nuages noirs apparurent, Wang Lin jeta Liu Fei sur le côté. Il frappa son sac de rangement et serra le drapeau de restriction dans sa main. Sous le contrôle de Wang Lin, le drapeau grandit et l'entoura ainsi que Li Muwan.
 
-Simultanément, le Domaine Ji de Wang Lin se manifesta. La puissante pression revint, faisant changer soudainement l'expression des cinq ancêtres de la Secte Ciel Nuageux. Ils sortirent rapidement divers trésors pour se protéger.
+Simultanément, le Royaume Ji de Wang Lin se manifesta. La puissante pression revint, faisant changer soudainement l'expression des cinq ancêtres de la Secte Ciel Nuageux. Ils sortirent rapidement divers trésors pour se protéger.
 
-Le Domaine Ji lança un éclair rouge qui perça les nuages noirs et chargea vers le front de Cheng Bailiang.
+Le Royaume Ji lança un éclair rouge qui perça les nuages noirs et chargea vers le front de Cheng Bailiang.
 
 Cheng Bailiang était un cultivateur de l'Âme Naissante au stade avancé, il pouvait donc sentir que cet éclair rouge contenait la puissance nécessaire pour détruire tout ce qu'il touchait. Dans ce moment critique, son corps recula rapidement. Ses yeux s'écarquillèrent soudainement tandis que sa main formait des sceaux; son Âme Naissante apparut au-dessus de sa tête et commença également à former des sceaux.
 
@@ -38,7 +38,7 @@ Le front de Cheng Bailiang était couvert de sueur froide. Il venait de frôler 
 
 Les quatre cultivateurs de l'Âme Naissante derrière lui montrèrent tous des signes de peur.
 
-Wang Lin ne dit toujours pas un mot en observant Cheng Bailiang. Il soupira secrètement. Les cultivateurs de l'Âme Naissante au stade avancé n'étaient pas comme les autres. C'était la première fois que son Domaine Ji était arrêté par quelqu'un.
+Wang Lin ne dit toujours pas un mot en observant Cheng Bailiang. Il soupira secrètement. Les cultivateurs de l'Âme Naissante au stade avancé n'étaient pas comme les autres. C'était la première fois que son Royaume Ji était arrêté par quelqu'un.
 
 Cheng Bailiang prit une profonde inspiration. Son expression était sérieuse lorsqu'il dit d'une voix sombre: « Quel trésor puissant! Mais maintenant que le trésor a été envoyé dans la faille dimensionnelle, je veux voir quelles autres techniques vous possédez! Insectes d'Encre Violette, dévorez cette personne ainsi que cette salope! » Cheng Bailiang agita sa main droite et le nuage noir chargea immédiatement vers Wang Lin et Li Muwan.
 
@@ -72,19 +72,19 @@ L'expression de Wang Lin était sereine alors qu'il disait: « Vous pouvez, mais
 
 Les cinq hommes levèrent les yeux, le visage paniqué.
 
-Alors qu'il lançait le fil rouge, le corps de Wang Lin s'élança, son Domaine Ji jaillissant à nouveau, suivi de près par le drapeau de restriction.
+Alors qu'il lançait le fil rouge, le corps de Wang Lin s'élança, son Royaume Ji jaillissant à nouveau, suivi de près par le drapeau de restriction.
 
-L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Domaine Ji s'abattit sur Cheng Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de rétribution divine.
+L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Royaume Ji s'abattit sur Cheng Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de rétribution divine.
 
-Le visage de Cheng Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il put utiliser sa culture pour rediriger la destruction du Domaine Ji vers sa propre conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
+Le visage de Cheng Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il put utiliser sa culture pour rediriger la destruction du Royaume Ji vers sa propre conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
 
 Song Qing et les autres anciens accoururent pour protéger Cheng Bailiang.
 
-Le drapeau de restriction suivit de près le Domaine Ji, atteignant un autre cultivateur de l'Âme Naissante avant de l'encercler.
+Le drapeau de restriction suivit de près le Royaume Ji, atteignant un autre cultivateur de l'Âme Naissante avant de l'encercler.
 
 L'expression du cultivateur était sombre, mais tant qu'il n'était pas confronté à l'éclair rouge, il ne craignait rien outre mesure. Mais juste au moment où il allait s'extraire de l'obscurité, tout devint soudainement noir. Il réalisa qu'il venait d'entrer dans une sorte de restriction.
 
-Tout cela se produisit avec une rapidité fulgurante. Presque au même instant où Wang Lin lança la foudre divine, il attaqua Cheng Bailiang avec son Domaine Ji et piégea un autre cultivateur avec son drapeau.
+Tout cela se produisit avec une rapidité fulgurante. Presque au même instant où Wang Lin lança la foudre divine, il attaqua Cheng Bailiang avec son Royaume Ji et piégea un autre cultivateur avec son drapeau.
 
 En conséquence, il ne restait plus que trois personnes.
 
@@ -148,27 +148,27 @@ Cependant, lorsque son avatar fusionna avec son corps principal, un problème su
 
 Tout avait commencé comme prévu. L'avatar fusionna avec le corps principal pour l'aider à franchir le seuil de l'Âme Naissante.
 
-Pourtant, il avait sous-estimé la difficulté de briser le goulot d'étranglement du Domaine Ji. Combien de génies avaient été piégés par les limites du Domaine Ji, incapables de progresser?
+Pourtant, il avait sous-estimé la difficulté de briser le goulot d'étranglement du Royaume Ji. Combien de génies avaient été piégés par les limites du Royaume Ji, incapables de progresser?
 
-On pourrait dire qu'un dépassement au sein du Domaine Ji est une tâche impossible, car le Domaine Ji n'est en réalité qu'une autre forme de rétribution divine. Comment un simple mortel pourrait-il affecter la volonté des cieux? Même les cultivateurs n'en ont pas le pouvoir; ce pouvoir appartient aux cieux.
+On pourrait dire qu'un dépassement au sein du Royaume Ji est une tâche impossible, car le Royaume Ji n'est en réalité qu'une autre forme de rétribution divine. Comment un simple mortel pourrait-il affecter la volonté des cieux? Même les cultivateurs n'en ont pas le pouvoir; ce pouvoir appartient aux cieux.
 
 Lors des dernières étapes du processus de fusion, Wang Lin ne parvint pas à faire atteindre le stade de l'Âme Naissante à son corps principal. Dans un geste de désespoir, il força son avatar à se contracter jusqu'à ce qu'il s'installe dans le dantian de son corps principal en tant que substitut à l'Âme Naissante.
 
-Bien que cette méthode lui ait permis d'élever temporairement le niveau de culture de son corps principal au stade de l'Âme Naissante et de donner à son Domaine Ji la puissance de ce même stade, cela ne pouvait durer. Chaque fois qu'il utilisait son Domaine Ji, il épuisait une quantité massive de l'énergie originelle de son avatar et de sa propre perception divine.
+Bien que cette méthode lui ait permis d'élever temporairement le niveau de culture de son corps principal au stade de l'Âme Naissante et de donner à son Royaume Ji la puissance de ce même stade, cela ne pouvait durer. Chaque fois qu'il utilisait son Royaume Ji, il épuisait une quantité massive de l'énergie originelle de son avatar et de sa propre perception divine.
 
-Le Domaine Ji n'était plus sa propre puissance mais agissait désormais comme un trésor. Pour utiliser un trésor, il fallait de la puissance spirituelle. Mais pour utiliser le Domaine Ji, il devait non seulement dépenser énormément de puissance spirituelle, mais aussi son sens divin et l'énergie de son Âme Naissante.
+Le Royaume Ji n'était plus sa propre puissance mais agissait désormais comme un trésor. Pour utiliser un trésor, il fallait de la puissance spirituelle. Mais pour utiliser le Royaume Ji, il devait non seulement dépenser énormément de puissance spirituelle, mais aussi son sens divin et l'énergie de son Âme Naissante.
 
 Bien que la situation fût frustrante, elle n'était pas sans avantages. Lors de la fusion, la durée de vie de trente ans de l'avatar avait naturellement disparu. Désormais, il n'y avait plus de distinction réelle entre le corps principal et l'avatar. S'il devait y avoir une nuance, c'est que son Âme Naissante était l'avatar et son corps physique était le corps principal.
 
-Pour être précis, son niveau de culture se situait actuellement au sommet du début du stade de l'Âme Naissante, et le Domaine Ji constituait son dernier recours.
+Pour être précis, son niveau de culture se situait actuellement au sommet du début du stade de l'Âme Naissante, et le Royaume Ji constituait son dernier recours.
 
 Sans cela, la Secte Ciel Nuageux n'aurait pas d'avenir.
 
-L'usage répété du Domaine Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé plusieurs pilules, il finit par se stabiliser.
+L'usage répété du Royaume Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé plusieurs pilules, il finit par se stabiliser.
 
 Cette récupération dura sept jours entiers, bien qu'en réalité, un seul jour ne se fût écoulé.
 
-En sortant de l'espace de la Perle Défiant le Ciel, les yeux de Wang Lin brillèrent. Bien que son Domaine Ji ait évolué vers une existence semblable à celle d'un trésor magique, il avait au moins réussi à franchir le stade de la Formation du Noyau pour atteindre celui de l'Âme Naissante.
+En sortant de l'espace de la Perle Défiant le Ciel, les yeux de Wang Lin brillèrent. Bien que son Royaume Ji ait évolué vers une existence semblable à celle d'un trésor magique, il avait au moins réussi à franchir le stade de la Formation du Noyau pour atteindre celui de l'Âme Naissante.
 
 Il était temps de retourner dans le pays de Zhao pour se venger!
 
@@ -188,7 +188,7 @@ Après un long moment, Li Muwan mordilla sa lèvre inférieure et murmura: « Vo
 
 Une lueur froide traversa les yeux de Wang Lin. Il hocha la tête: « Cette fois, lorsque je reviendrai, je ferai couler les rivières avec le sang de la famille Teng. Tu devrais venir avec moi également. »
 
-Le front de Li Muwan se crispa. Après réflexion, elle dit: « Chaque fois que vous utilisez votre Domaine Ji, cela épuise une grande partie de votre énergie d'Âme Naissante. Ce n'est pas une solution viable à long terme... » Elle leva la tête vers lui avec détermination: « Je veux rester à la Secte Ciel Nuageux. C'est le seul endroit où j'aurai les matériaux et les conditions pour pratiquer l'alchimie. Si je parviens à créer une pilule de rang 6, cela pourrait énormément aider votre situation actuelle. »
+Le front de Li Muwan se crispa. Après réflexion, elle dit: « Chaque fois que vous utilisez votre Royaume Ji, cela épuise une grande partie de votre énergie d'Âme Naissante. Ce n'est pas une solution viable à long terme... » Elle leva la tête vers lui avec détermination: « Je veux rester à la Secte Ciel Nuageux. C'est le seul endroit où j'aurai les matériaux et les conditions pour pratiquer l'alchimie. Si je parviens à créer une pilule de rang 6, cela pourrait énormément aider votre situation actuelle. »
 
 Wang Lin se tut. Il la regarda et demanda: « En êtes-vous sûre? »
 

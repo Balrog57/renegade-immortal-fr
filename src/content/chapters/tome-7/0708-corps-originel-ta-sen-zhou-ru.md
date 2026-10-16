@@ -126,13 +126,13 @@ Autrefois, sans l'intervention de Wang Lin, l'héritage de la connaissance lui a
 
 Planète Suzaku, sommet du Mont Suzaku.
 
-Les longs cheveux de Zhou Ru flottaient au vent et sa robe battait contre elle. Elle paraissait bien plus mature qu'autrefois. Derrière elle, Little White était allongé au sol, le regard paresseux.
+Les longs cheveux de Zhou Ru flottaient au vent et sa robe battait contre elle. Elle paraissait bien plus mature qu'autrefois. Derrière elle, Petit Blanc était allongé au sol, le regard paresseux.
 
 Zhou Ru tenait une sacoche de stockage dans sa main. Cet objet était très ancien et portait les stigmates de centaines d'années d'histoire.
 
 « Oncle, je peux enfin ouvrir la sacoche que vous m'avez laissée... » murmura-t-elle doucement en baissant les yeux vers l'objet. Son sens divin pénétra la sacoche pour l'ouvrir.
 
-Il n'y avait rien à l'intérieur... Seul un rayon de lumière blanche jaillit et s'engouffra entre les sourcils de Zhou Ru. Son corps trembla, ses doigts se desserrèrent et la sacoche fut emportée par le vent. Little White poussa un rugissement et se redressa brusquement, ne comprenant pas ce qui venait de se produire.
+Il n'y avait rien à l'intérieur... Seul un rayon de lumière blanche jaillit et s'engouffra entre les sourcils de Zhou Ru. Son corps trembla, ses doigts se desserrèrent et la sacoche fut emportée par le vent. Petit Blanc poussa un rugissement et se redressa brusquement, ne comprenant pas ce qui venait de se produire.
 
 La lumière blanche disparut dans l'esprit de Zhou Ru, libérant un sceau... Les souvenirs enfouis apparurent alors lentement devant elle.
 
@@ -140,7 +140,7 @@ La lumière blanche disparut dans l'esprit de Zhou Ru, libérant un sceau... Les
 
 Des larmes coulèrent sur les joues de Zhou Ru. Après un long moment, elle baissa la tête et s'assit en serrant ses genoux contre sa poitrine, incapable d'arrêter ses sanglots.
 
-« Little White, il se trouve que l'oncle ne voulait jamais que je le retrouve... »
+« Petit Blanc, il se trouve que l'oncle ne voulait jamais que je le retrouve... »
 
 ***
 

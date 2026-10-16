@@ -82,7 +82,7 @@ Après plusieurs heures, l'essaim traversait le ciel. Wang Lin, debout sur le do
 
 Tandis que l'essaim traversait le ciel, Wang Lin continuait de déployer d'innombrables restrictions. C'était grâce à l'effondrement de ces barrières que son troupeau parvenait à garder l'avantage.
 
-Cependant, les bêtes moustiques poursuivantes se rapprochaient de plus en plus, et une bourrasque de vent à l'odeur fétide s'approchait d'eux. Les yeux de Wang Lin s'illuminèrent alors que son esprit pénétrait dans le Sceau Céleste pour fusionner avec l'âme du Tout-Voyant.
+Cependant, les bêtes moustiques poursuivantes se rapprochaient de plus en plus, et une bourrasque de vent à l'odeur fétide s'approchait d'eux. Les yeux de Wang Lin s'illuminèrent alors que son esprit pénétrait dans le Sceau Céleste pour fusionner avec l'âme de l'Omniscient.
 
 En un instant, l'aura de Wang Lin changea radicalement; il affichait un regard serein, comme si tout dans le monde était sous son contrôle. Sa main droite s'étendit vers le vide et une perle de pierre jaillit de son espace de stockage.
 
@@ -98,7 +98,7 @@ Une boussole gigantesque surgit de nulle part. Large de 10 000 pieds, elle déga
 
 Dans sa rotation, une force puissante se propagea.
 
-Les yeux de Wang Lin s'illuminèrent alors que son esprit se sépare de celui du Tout-Voyant. Son visage pâlit; après tout, il était trop gravement blessé et ne s'était pas encore rétabli. À cet instant, au lieu de contempler le résultat du sort des Désobéissants, il ouvrit les bras. Un gaz noir apparut et se transforma en dragons sombres qui encerclèrent l'essaim de moustiques, les emportant rapidement au loin!
+Les yeux de Wang Lin s'illuminèrent alors que son esprit se sépare de celui de l'Omniscient. Son visage pâlit; après tout, il était trop gravement blessé et ne s'était pas encore rétabli. À cet instant, au lieu de contempler le résultat du sort des Désobéissants, il ouvrit les bras. Un gaz noir apparut et se transforma en dragons sombres qui encerclèrent l'essaim de moustiques, les emportant rapidement au loin!
 
 Peu après, un grondement sourd provint de derrière Wang Lin. Le monde lui-même semblait trembler sous l'onde de choc puissante qui se propageait. Sans se retourner, Wang Lin fonça comme un fou avec son essaim.
 

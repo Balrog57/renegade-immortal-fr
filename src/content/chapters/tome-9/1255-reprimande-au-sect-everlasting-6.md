@@ -12,7 +12,7 @@ Ces cultivateurs d'élite étaient souvent choisis par la Secte Éternelle pour 
 
 Cette voix calme émanait d'un homme d'âge moyen vêtu d'une robe. Il paraissait serein et son teint était légèrement jaunâtre, comme s'il souffrait d'une grave maladie. Après avoir parlé, il sauta de la plateforme; on aurait dit que des nuages invisibles se formaient sous ses pieds alors qu'il approchait progressivement de l'arène.
 
-Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition du secte principal. Son niveau de culture était élevé; il dégageait une aura de Briseur du Nirvana de stade avancé.
+Cet homme, Yun Shan, était très célèbre dans la région de rang 7. En temps normal, il restait en culture de porte close et ne s'aventurait guère à l'extérieur. Il n'était sorti que pour la compétition de la secte principal. Son niveau de culture était élevé; il dégageait une aura de Briseur du Nirvana de stade avancé.
 
 La rumeur disait qu'il était l'un des trois représentants de la Secte Éternelle pour la compétition entre les sectes de rang 8. La Secte Éternelle lui avait accordé une attention particulière au cours des 1 000 dernières années. D'immenses quantités de pilules, de trésors magiques et même de sorts lui avaient été envoyées pour l'aider. Même l'un des sept Grands Anciens de la Secte Éternelle était allé l'instruire pendant 1 000 ans.
 

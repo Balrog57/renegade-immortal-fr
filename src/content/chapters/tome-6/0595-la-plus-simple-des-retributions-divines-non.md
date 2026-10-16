@@ -20,7 +20,7 @@ Un nuage rouge descendit de l'espace. Il émergeait du vide, et nul n'en connais
 
 Dès que cette lumière rouge commença sa descente, une aura capable de faire trembler toute vie dans l'univers se mit à se propager.
 
-Sur la planète Tian Yun, le Tout-Voyant avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux tout pas calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre des Esprits Démoniaques et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
+Sur la planète Tian Yun, l'Omniscient avait les yeux clos, se préparant pour le plan prévu dans deux cents ans. Soudain, il ouvrit les yeux, révélant une lueur mystérieuse alors qu'il fixait l'espace. Son expression changea légèrement et sa main traça un sceau. Après avoir calculé pendant un moment, il fronça les sourcils et murmura: « Une rétribution divine est descendue... Avec l'interférence de la puissance céleste, je ne peux tout pas calculer avec précision. Mais j'ai pu déterminer que la rétribution divine a frappé la Terre des Esprits Démoniaques et qu'elle a un lien avec ma planète Tian Yun... Étrange! »
 
 Sur la planète Da Lou, au sein de la Secte de l'Épée Da Lou, le Saint de l'Épée Lin Tianhou se tenait près d'un gigantesque fourneau alchimique, les yeux étincelants.
 

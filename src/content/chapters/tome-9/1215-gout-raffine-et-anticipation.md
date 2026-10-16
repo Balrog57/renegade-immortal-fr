@@ -16,7 +16,7 @@ La terre trembla et s'effondra strate après strate. Finalement, elle ne devint 
 
 La poitrine du vieil homme aux cheveux blancs était tachée de sang, et un filet rouge continuait de suinter du coin de sa bouche. Son regard était trouble, empreint d'incrédulité et de choc! En vérité, dès l'instant où il avait aperçu la Perle Défiant le Ciel dans les souvenirs de Wang Lin, son sortilège dao s'était effondré et sa vitalité s'était éteinte. Le choc qu'il ressentit fut comparable à l'explosion de millions d'éclairs dans ses oreilles, le plongeant dans une terreur profonde.
 
-Puis, alors que son sortilège dao s'effritait, il vit le Domaine Ji de Wang Lin naître. Cela lui fit cracher du sang et le laissa extrêmement affaibli. Il perdit presque toute capacité de réflexion, l'esprit embrumé. Ce fut un combat acharné entre son sortilège dao et le Domaine Ji, entre son sortilège dao et la Perle Défiant le Ciel. Il n'avait aucune chance de victoire!
+Puis, alors que son sortilège dao s'effritait, il vit le Royaume Ji de Wang Lin naître. Cela lui fit cracher du sang et le laissa extrêmement affaibli. Il perdit presque toute capacité de réflexion, l'esprit embrumé. Ce fut un combat acharné entre son sortilège dao et le Royaume Ji, entre son sortilège dao et la Perle Défiant le Ciel. Il n'avait aucune chance de victoire!
 
 Wang Lin leva la tête et, dès qu'il eut prononcé ces mots chargés de soif de sang, il chargea comme l'éclair vers le vieil homme. Ses doigts formèrent une épée et visèrent directement le point entre les sourcils du vieillard!
 

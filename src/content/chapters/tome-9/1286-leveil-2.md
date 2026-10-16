@@ -72,7 +72,7 @@ La vieille femme ricana. Après un long silence, elle reprit: « Tu veux savoir?
 
 « Je ne sais pas comment vous vous êtes rencontrés, mais savais-tu qu'il y a dix ans, Li Qianmei a renoncé à l'immense opportunité de devenir disciple de la Secte Démon pour abandonner ce dernier? Elle fut la première à quitter le champ de bataille, tout cela pour rencontrer quelqu'un à la Secte Éternel!
 
-« Le Secte Démon ne voulait évidemment pas de cela, et même son propre Secte Briseur de Ciel n'était pas satisfait. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
+« La Secte Démon ne voulait évidemment pas de cela, et même son propre Secte Briseur de Ciel n'était pas satisfait. Une fois un tel précédent établi, d'autres ne respecteraient plus les règles, naturellement! Ce qu'elle a perdu n'a rien à voir avec toi, et même si tu l'ignorais, cela ne te ferait aucun mal! »
 
 Wang Lin était bouleversé. Il ignorait tout de cela. Lorsqu'il avait rencontré Li Qianmei à la Secte Éternel, elle n'avait jamais mentionné ces faits.
 
@@ -112,7 +112,7 @@ Wang Lin réfléchit un instant et demanda d'une voix feutrée: « Où est-elle.
 
 « S'il existe vraiment un tel passage, comment pourrait-elle en revenir saine et sauve? Et même s'il n'y en a pas, les bêtes qui hantent ces profondeurs sont terrifiantes. Elle va mourir!
 
-« Sans parler du fait qu'en ce moment même, elle a perdu la majeure partie de sa force vitale et que son niveau de culture a chuté drastiquement à cause de cet épuisement de vie. Comment peut-elle survivre? Le Secte Démon veut qu'elle meure sur le champ de bataille pour servir d'exemple!
+« Sans parler du fait qu'en ce moment même, elle a perdu la majeure partie de sa force vitale et que son niveau de culture a chuté drastiquement à cause de cet épuisement de vie. Comment peut-elle survivre? La Secte Démon veut qu'elle meure sur le champ de bataille pour servir d'exemple!
 
 « Pour récupérer son sang d'âme, elle s'est déjà enfoncée dans les profondeurs du champ de bataille au sein de la fissure spatiale. Les gens de la Secte Démon ne la laisseront pas revenir, alors elle n'a eu d'autre choix que de me demander d'apporter ce sang d'âme. Maintenant, tu sais! Elle refusait que je te le dise, mais puisque tu as demandé, quel droit ai-je de te cacher la vérité? Je veux que tu saches tout cela! » La voix de la vieille femme était glaciale, et chaque mot frappait le cœur de Wang Lin comme une lame acérée.
 

@@ -28,7 +28,7 @@ Un instant plus tard, plusieurs silhouettes jaillirent de la lumière émeraude.
 
 « Salutations, Empereur Divin de l'Oiseau Vermillon! » Après que les neuf vieillards furent sortis du brouillard vert et eurent aperçu l'homme d'âge moyen, ils manifestèrent leur respect en joignant les mains.
 
-« L'Éveilleur de l'Oiseau Vermillon est apparu; je dois emprunter le trésor sacré de votre Secte Divin de l'Azure Dragon. Et je demande à vous tous de me suivre! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divins de la Tortue Noire et du Tigre Blanc. Le Secte Divin de l'Azure Dragon était le dernier.
+« L'Éveilleur de l'Oiseau Vermillon est apparu; je dois emprunter le trésor sacré de votre Secte Divin de l'Azure Dragon. Et je demande à vous tous de me suivre! » L'homme d'âge moyen était l'âme originelle de l'Empereur Divin de l'Oiseau Vermillon. Pour s'assurer que rien ne tourne mal lors de ce voyage, il s'était déjà rendu auprès des Sectes Divins de la Tortue Noire et du Tigre Blanc. La Secte Divin de l'Azure Dragon était le dernier.
 
 Les neuf anciens de la Secte Divin de l'Azure Dragon se regardèrent sans longtemps hésiter. L'un des trois anciens en tête hocha respectueusement la tête: « Nous obéirons aux ordres de l'Empereur Divin de l'Oiseau Vermillon! »
 

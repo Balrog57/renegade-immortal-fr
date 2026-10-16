@@ -18,17 +18,17 @@ Fort de ses quatre cents années d'expérience dans la culture et de ses confron
 
 Wang Lin avait longtemps arpenté le chemin du sang, mais tous ces massacres n'avaient rien à voir avec la compréhension des cieux. Il pressentait que s'il continuait sur cette voie, il ne serait jamais capable d'atteindre l'étape de la Formation de l'Âme.
 
-En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de l'Âme Naissante. Le Domaine Ji de son corps principal l'empêchait d'atteindre ce stade; seul son avatar avait atteint le début de l'Âme Naissante.
+En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de l'Âme Naissante. Le Royaume Ji de son corps principal l'empêchait d'atteindre ce stade; seul son avatar avait atteint le début de l'Âme Naissante.
 
 Alors qu'il marchait sur la route, le corps de Wang Lin changea progressivement: son corps principal s'enfonça en lui pour sombrer dans un profond sommeil, tandis que son avatar se manifestait à l'extérieur.
 
-Wang Lin était arrivé à une certaine compréhension concernant son Domaine Ji; il ne chercherait donc plus à forcer le franchissement de ses blocages. Il ne dépendrait plus autant de ce domaine non plus. Désormais, il ne serait pour lui qu'un autre trésor magique.
+Wang Lin était arrivé à une certaine compréhension concernant son Royaume Ji; il ne chercherait donc plus à forcer le franchissement de ses blocages. Il ne dépendrait plus autant de ce domaine non plus. Désormais, il ne serait pour lui qu'un autre trésor magique.
 
 Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateurs de la Formation de l'Âme. Pour que ce trésor gagne en puissance, il aurait besoin de trésors célestes extrêmement rares, tel le Cristal Planétaire de Culture d'un pays de rang 6.
 
-Après avoir renoncé à l'usage immédiat du Domaine Ji, Wang Lin décida d'utiliser son avatar pour suivre la voie d'un cultivateur. Si un jour son avatar atteignait le stade de la Transformation de l'Âme, il aurait peut-être une chance d'obtenir ce cristal. Une fois raffiné, cela lui donnerait peut-être l'opportunité de briser les limites de son Domaine Ji.
+Après avoir renoncé à l'usage immédiat du Royaume Ji, Wang Lin décida d'utiliser son avatar pour suivre la voie d'un cultivateur. Si un jour son avatar atteignait le stade de la Transformation de l'Âme, il aurait peut-être une chance d'obtenir ce cristal. Une fois raffiné, cela lui donnerait peut-être l'opportunité de briser les limites de son Royaume Ji.
 
-Wang Lin prit une profonde inspiration et extirpa le Domaine Ji de sa conscience. Il comprenait que la chose la plus importante était d'acquérir une compréhension des cieux, mais il avait passé la majeure partie de sa vie sur la voie de la tuerie, une voie incomplète. S'il voulait comprendre les cieux, il devait recommencer depuis le commencement et devenir un mortel.
+Wang Lin prit une profonde inspiration et extirpa le Royaume Ji de sa conscience. Il comprenait que la chose la plus importante était d'acquérir une compréhension des cieux, mais il avait passé la majeure partie de sa vie sur la voie de la tuerie, une voie incomplète. S'il voulait comprendre les cieux, il devait recommencer depuis le commencement et devenir un mortel.
 
 Si l'on veut devenir un immortel, il faut d'abord redevenir un mortel.
 

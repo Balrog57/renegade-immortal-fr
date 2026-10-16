@@ -56,9 +56,9 @@ La vieille femme en blanc regarda Wang Lin, stupéfaite. Cette vitesse fulgurant
 
 Elle ressentit également la détermination de Wang Lin à travers cette vitesse! C'était une aura qu'on ne pourrait arrêter, même si des dizaines de milliers de personnes voulaient sa mort!
 
-« Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. Le Secte de l'Âme Marine de rang 4 possède une formation de transfert vers la Secte de la Musique Céleste de rang 6, qui est une branche de la Secte Éternel. Ils ont une formation vers la Secte Éternel de rang 8... »
+« Il n'y a pas de formations de transfert dans les régions de rang 3 ou inférieur. La Secte de l'Âme Marine de rang 4 possède une formation de transfert vers la Secte de la Musique Céleste de rang 6, qui est une branche de la Secte Éternel. Ils ont une formation vers la Secte Éternel de rang 8... »
 
-« Le Secte Éternel possède également une formation de transfert pour atteindre la région de rang 9 à la vitesse la plus rapide possible! Une fois que nous serons dans la région de rang 9, je vous dirai où se trouve la Secte Démoniaque! »
+« La Secte Éternel possède également une formation de transfert pour atteindre la région de rang 9 à la vitesse la plus rapide possible! Une fois que nous serons dans la région de rang 9, je vous dirai où se trouve la Secte Démoniaque! »
 
 « C'est la voie la plus rapide, mais les formations de transfert nécessitent énormément de cristaux d'origine, et je n'en ai pas assez. Ces formations ne sont généralement pas ouvertes, et on ne les prête pas si facilement... »
 
@@ -74,7 +74,7 @@ La région de rang 2 défila en un éclair sous l'impulsion de Wang Lin. Un frac
 
 À cette vitesse, Wang Lin franchit la région de rang 2 puis celle de rang 3. Il pénétra dans la région de rang 4 et atterrit sur le continent où se trouvait la Secte de l'Âme Marine!
 
-Le Secte de l'Âme Marine était une branche de la Secte de l'Âme Silencieuse. Puisque la Secte de l'Âme Silencieuse était la plus puissante secte de rang 8, la Secte de l'Âme Marine avait toujours été dominant dans la région de rang 4; rarement osait-on les provoquer.
+La Secte de l'Âme Marine était une branche de la Secte de l'Âme Silencieuse. Puisque la Secte de l'Âme Silencieuse était la plus puissante secte de rang 8, la Secte de l'Âme Marine avait toujours été dominant dans la région de rang 4; rarement osait-on les provoquer.
 
 Le maître de la secte était un cultivateur au sommet du stade Scruteur du Nirvana. Il était assez puissant pour dominer toute la région de rang 4!
 

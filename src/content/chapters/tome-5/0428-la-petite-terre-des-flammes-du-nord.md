@@ -42,7 +42,7 @@ L'origine de cet enfant démoniaque était prodigieuse!
 
 Pour parler de l'origine de cet enfant démoniaque, il faut d'abord évoquer la Secte des Cadavres!
 
-Le Secte des Cadavres est une secte immense; aucune autre secte sur la planète Suzaku ne peut lui être comparée. En réalité, la Secte des Cadavres possède des branches sur de nombreuses planètes.
+La Secte des Cadavres est une secte immense; aucune autre secte sur la planète Suzaku ne peut lui être comparée. En réalité, la Secte des Cadavres possède des branches sur de nombreuses planètes.
 
 C'est une organisation tentaculaire dont les racines s'étendent sur de multiples planètes de culture. Ils sont impliqués dans le commerce de corps et la collecte d'objots d'origines mystérieuses.
 

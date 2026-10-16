@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 243 - Teng Yi
 slug: teng-one
 ---
-Teng Yi ne chercha ni à esquiver ni à bloquer. Il se contenta de subir les attaques. Cependant, même Wang Lin ne pouvait tenir longtemps en déchaînant de tels assauts, particulièrement le Domaine de Ji, qui endommageait sa propre Âme Naissante à chaque utilisation.
+Teng Yi ne chercha ni à esquiver ni à bloquer. Il se contenta de subir les attaques. Cependant, même Wang Lin ne pouvait tenir longtemps en déchaînant de tels assauts, particulièrement le Royaume Ji, qui endommageait sa propre Âme Naissante à chaque utilisation.
 
 Le corps de Wang Lin disparut pour réapparaître cinquante kilomètres plus loin. Il sortit une fiole de jade et en vida tout le contenu dans sa bouche afin de restaurer son énergie spirituelle.
 
@@ -62,7 +62,7 @@ Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les 
 
 Cette méthode n'appartenait pas à Zhao, mais au messager de la Tour Céleste.
 
-En cultivant cette voie, le sens divin et l'âme fusionnent avec le corps, ce qui expliquait pourquoi le Domaine de Ji de Wang Lin avait perdu sa capacité de mise à mort instantanée.
+En cultivant cette voie, le sens divin et l'âme fusionnent avec le corps, ce qui expliquait pourquoi le Royaume Ji de Wang Lin avait perdu sa capacité de mise à mort instantanée.
 
 Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de culture de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
 

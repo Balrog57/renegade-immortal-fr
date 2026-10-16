@@ -20,7 +20,7 @@ Wang Lin eut un sourire narquois et répondit: « Bien sûr que je le savais; vo
 
 Le vieil homme laissa échapper un léger reniflement méprisant.
 
-L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « Le Secte des Cadavres! »
+L'un des cultivateurs réalisa qui était ce vieil homme et s'écria: « La Secte des Cadavres! »
 
 À l'instant même où ces mots furent prononcés, les expressions de tous changèrent radicalement.
 

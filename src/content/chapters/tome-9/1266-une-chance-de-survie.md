@@ -14,7 +14,7 @@ Il traversait ses propres difficultés; il devait agir ainsi pour la sécurité 
 
 Mu Bingmei était confuse face à tout cela, mais elle sentait vaguement que quelque chose n'allait pas. Elle s'était rendue à la Secte Divin avec Wang Shanshan, mais elle n'avait pas vu le maître de celle-ci, qui était pourtant la figure la plus puissante de la Secte Divin: le Grand Ancien, le Daoïste Eau!
 
-Dès son entrée à la Secte Divin, elle avait été placée dans une salle de culture isolée. Le Secte Divin fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
+Dès son entrée à la Secte Divin, elle avait été placée dans une salle de culture isolée. La Secte Divin fournissait toutes les pilules nécessaires, mais elle n'était pas autorisée à sortir!
 
 Si elle avait su que la compétition entre sectes de rang 8 avait été annulée, son intelligence l'aurait poussée à la suspicion. Même sans trouver la véritable cause, elle aurait perçu des indices.
 

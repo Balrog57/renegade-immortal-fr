@@ -64,7 +64,7 @@ Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Daoïste Shui
 
 « Celui qui le tuera résoudra une calamité pour notre Royaume Intérieur!
 
-« Celui qui éliminera cet individu deviendra le Maître de la Secte de mon Secte Divin!!
+« Celui qui éliminera cet individu deviendra le Maître de la Secte de ma Secte Divin!!
 
 « Celui qui tuera cette personne pourra avoir ce vieil homme comme esclave pendant mille ans!!! »
 

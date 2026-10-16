@@ -84,7 +84,7 @@ Le Vice-Commandant Xuan retint son souffle. Cette scène lui rappelait son propr
 
 « Tu oses! » L'homme en armure dorée tendit la main vers le ciel et une lumière solaire intense se rassembla dans sa paume. La clarté se condensa pour former une lance d'or, donnant l'impression qu'il tenait un morceau de soleil entre ses mains. Il la projeta alors avec force vers Wang Lin!
 
-Wang Lin ne da même pas un regard à la lance dorée; il fit un pas et disparut. Il saisit à nouveau Ao Di en plein vol et le secoua violemment!
+Wang Lin ne daigna même pas un regard à la lance dorée; il fit un pas et disparut. Il saisit à nouveau Ao Di en plein vol et le secoua violemment!
 
 Ao Di eut l'impression de subir un choc titanesque lorsqu'une vague d'énergie pénétra son corps par sa main droite, provoquant une série de craquements sinistres! Ses os se détachèrent de la chair avant de voler en éclats. La douleur qui irradiait désormais de tout son être était des dizaines de fois plus intense que celle de ses méridiens détruits.
 

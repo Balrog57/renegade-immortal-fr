@@ -10,7 +10,7 @@ Chapitre 1509 - Cette Bataille!!
 
 Dans la région de rang 9 de la Mer des Nuages, la Secte Fantôme!
 
-Le Secte Fantôme était extrêmement mystérieux au sein de la Mer des Nuages, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine culture à porte close au sein de la Secte Fantôme.
+La Secte Fantôme était extrêmement mystérieux au sein de la Mer des Nuages, et ses disciples sortaient rarement. À cet instant, un vieil homme était en pleine culture à porte close au sein de la Secte Fantôme.
 
 Ce vieil homme portait une robe verte, son expression était sombre, et il était entouré de flammes fantomatiques, ce qui lui donnait un air extrêmement sinistre.
 
@@ -82,15 +82,15 @@ La froideur dans les yeux de l'homme en rouge s'intensifia et il esquissa un sou
 
 « Puisque ce petit gars est parti de lui-même, voyons quel est le jugement du Seigneur du Royaume Scellé... Après tout, ce sont leurs propres affaires internes! »
 
-Dans la région de rang 7 de la Mer des Nuages, les branches de la Secte Divin chargèrent vers la Secte Origine qui vivait en paix depuis des centaines d'années! Le Secte Origine ne put opposer aucune résistance et ses membres furent rapidement capturés. Ils furent aussitôt transférés vers la Secte Divin de rang 9.
+Dans la région de rang 7 de la Mer des Nuages, les branches de la Secte Divin chargèrent vers la Secte Origine qui vivait en paix depuis des centaines d'années! La Secte Origine ne put opposer aucune résistance et ses membres furent rapidement capturés. Ils furent aussitôt transférés vers la Secte Divin de rang 9.
 
-Le Secte Divin n'avait qu'à donner un seul ordre pour que ces disciples massacrent tout le monde au sein de la Secte Origine!
+La Secte Divin n'avait qu'à donner un seul ordre pour que ces disciples massacrent tout le monde au sein de la Secte Origine!
 
 Lu Yanfei faisait partie des captifs, mais elle restait silencieuse et très calme. Elle avait anticipé depuis longtemps que ce jour pourrait arriver, et elle ne ressentait aucun regret. Non seulement elle, mais tous les membres de la Secte Origine ressentaient la même chose!
 
 Sans Lu Zihao ou sans Wang Lin, la Secte Origine n'existerait pas aujourd'hui!
 
-Au sein de la Secte Heaven Breaking, le maître de secte traîna son vieux corps et contempla son secte avec une expression complexe. Puis il se calma progressivement et s'envola vers la Secte Divin.
+Au sein de la Secte Heaven Breaking, le maître de secte traîna son vieux corps et contempla sa secte avec une expression complexe. Puis il se calma progressivement et s'envola vers la Secte Divin.
 
 À l'intérieur de la Secte Divin, Mu Bingmei ouvrit les yeux au sein de la formation. Elle agita ensuite sa main semblable à du jade. Une pilule apparut dans sa paume. Daoïste Eau l'avait aidée à restaurer sa culture il y a des centaines d'années, mais le prix était de consommer cette pilule au moment opportun!
 

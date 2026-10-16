@@ -65,7 +65,7 @@ Son sens divin s'étendit pour couvrir la majeure partie de la lune. Après avoi
 
 « La Secte du Raffinement de l'Âme doit posséder d'importantes réserves de pierres célestes… Les autres sectes en ont certainement aussi… Je ne peux pas les demander, alors je devrai les voler. Je dois atteindre le stade de la Transformation de l'Âme! » Les yeux de Wang Lin s'illuminèrent, puis son corps disparut.
 
-Zhou Ru était apathique. Montée sur le dos de Little White, elle contemplait la vaste plaine qui s'étendait devant elle.
+Zhou Ru était apathique. Montée sur le dos de Petit Blanc, elle contemplait la vaste plaine qui s'étendait devant elle.
 
 « Me laisser seule ici pendant qu'il part faire je ne sais quoi, c'est exaspérant! » Elle mordit avec force un fruit qu'elle tenait à la main.
 
@@ -73,7 +73,7 @@ Zhou Ru était apathique. Montée sur le dos de Little White, elle contemplait l
 
 Une voix familière atteignit ses oreilles. Sursautant, elle se retourna immédiatement. Derrière elle, la silhouette de Wang Lin apparut lentement.
 
-« Oncle! » Le visage de Zhou Ru s'illumina de joie. Elle sauta du dos de Little White et, en quelques enjambées, se jeta dans les bras de Wang Lin.
+« Oncle! » Le visage de Zhou Ru s'illumina de joie. Elle sauta du dos de Petit Blanc et, en quelques enjambées, se jeta dans les bras de Wang Lin.
 
 Zhou Ru n'était plus une enfant; elle avait désormais vingt ans.
 
@@ -85,7 +85,7 @@ Zhou Ru essuya ses larmes et répondit joyeusement: « On s'en va? D'accord, d'a
 
 Wang Lin regarda Zhou Ru. Il l'avait vue grandir, tout comme Da Niu. Il frappa son sac de rangement, et la pagode s'envola pour atterrir à ses côtés. En voyant l'objet, Zhou Ru fit la moue: « Oncle, je me souviens que quand j'étais petite, j'ai failli mourir de faim dans cette pagode… »
 
-Wang Lin agita sa main droite et une abondance de fruits de la lune remplit l'intérieur de la pagode. Une fois que Zhou Ru et Little White furent entrés, Wang Lin leva les yeux vers le ciel. Un point noir grandissait lentement jusqu'à ce qu'il s'agisse de la bête moustique.
+Wang Lin agita sa main droite et une abondance de fruits de la lune remplit l'intérieur de la pagode. Une fois que Zhou Ru et Petit Blanc furent entrés, Wang Lin leva les yeux vers le ciel. Un point noir grandissait lentement jusqu'à ce qu'il s'agisse de la bête moustique.
 
 Elle poussa un rugissement et atterrit devant Wang Lin, l'œil pétillant de joie. Sa grande gueule lécha Wang Lin de toutes parts; elle semblait l'avoir énormément regretté.
 

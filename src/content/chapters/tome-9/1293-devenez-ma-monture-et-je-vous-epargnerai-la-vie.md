@@ -8,13 +8,13 @@ slug: devenez-ma-monture-et-je-vous-epargnerai-la-vie
 ---
 Chapitre 1293 - Devenez ma monture et je vous épargnerai la vie!
 
-Le Secte Démon possédait six planètes de culture. Ces six planètes formaient un cercle parfait; une configuration simple, mais qui dégageait une aura terrifiante.
+La Secte Démon possédait six planètes de culture. Ces six planètes formaient un cercle parfait; une configuration simple, mais qui dégageait une aura terrifiante.
 
 C'était une formation!
 
 Une immense formation composée de six planètes de culture. Cette structure était assez puissante pour anéantir le monde. Elle avait été placée par le Maître de la Secte Démon comme ultime ligne de défense contre les bêtes féroces!
 
-Le Secte Démon était divisé en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux; ils travaillaient souvent de manière isolée!
+La Secte Démon était divisé en six branches distinctes, chacune stationnée sur une planète différente. Plusieurs Anciens géraient chaque division, mais ils interagissaient rarement entre eux; ils travaillaient souvent de manière isolée!
 
 Ce phénomène avait été instauré par le premier et unique Maître de la Secte Démon, et perdurait encore aujourd'hui.
 
@@ -36,7 +36,7 @@ Quant aux neuf yeux dans le ciel, les simples disciples de la Secte Démon en co
 
 Parmi les Anciens, des rumeurs circulaient selon lesquelles la séparation de la Secte Démon et de la Secte Dieu était due à un ordre du premier Maître de la lignée. Ce dernier avait ordonné qu'un groupe de la Secte Dieu soit stationné ici pour des générations afin de garder ce lieu, interdisant à la moindre bête de sortir vivante de la faille spatiale!
 
-Certains prétendaient même que le Maître de la Secte Dieu était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. Le Secte Dieu serait actuellement dirigé par l'un de ses esclaves agissant en son nom.
+Certains prétendaient même que le Maître de la Secte Dieu était la même personne que le Maître de la Secte Démon... On disait qu'il venait du Royaume Céleste Ancien... On racontait qu'il avait disparu depuis longtemps, et que nul ne savait s'il était mort ou vivant. La Secte Dieu serait actuellement dirigé par l'un de ses esclaves agissant en son nom.
 
 C'était pour cette raison que la Secte Démon n'obéissait pas aux ordres de la Secte Dieu et possédait les moyens nécessaires pour lui faire face!
 

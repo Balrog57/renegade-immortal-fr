@@ -96,7 +96,7 @@ La quatrième personne était une femme. Vêtue d'une robe bleue, ses cheveux re
 
 L'apparition de ces cultivateurs de l'Alliance attira l'attention de tous. Les membres de l'Alliance, surpris, se rallièrent rapidement pour contenir leur retraite.
 
-Du côté d'Allheaven, le Dieu Sanglant et les trois ancêtres observaient la scène avec froideur.
+Du côté d'Allheaven, le Dieu de Sang et les trois ancêtres observaient la scène avec froideur.
 
 Maître Flamespark s'avança et d'un geste de la main droite, projeta une mer de flammes vers l'avant. Simultanément, le Serpent aux yeux de lune poussa un rugissement et déploya ses tentacules.
 

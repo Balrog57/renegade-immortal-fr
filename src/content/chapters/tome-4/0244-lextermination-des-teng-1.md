@@ -24,9 +24,9 @@ Bien sûr, il possédait d'autres trésors magiques, mais ils étaient bien trop
 
 Wang Lin réfléchit un instant, puis sortit trois sacs de rangement. Le sentiment de danger provoqué par son manque de trésors le poussa à jeter un coup d'œil à ces trois sacs.
 
-À travers cette bataille, Wang Lin réalisa que le Domaine du Ji n'était pas invincible. Il existait dans ce monde des choses capables de résister, voire de contrer son pouvoir. Certes, s'il parvenait à cultiver son Domaine du Ji jusqu'à son apogée, cela ne poserait aucun problème, mais porter le Domaine du Ji à un tel niveau était tout simplement trop difficile.
+À travers cette bataille, Wang Lin réalisa que le Royaume Ji n'était pas invincible. Il existait dans ce monde des choses capables de résister, voire de contrer son pouvoir. Certes, s'il parvenait à cultiver son Royaume Ji jusqu'à son apogée, cela ne poserait aucun problème, mais porter le Royaume Ji à un tel niveau était tout simplement trop difficile.
 
-Par conséquent, les trésors magiques devenaient cruciaux. Il ne voulait pas placer tous ses espoirs sur son Domaine du Ji, car si celui-ci devenait un jour inefficace, tout serait vain.
+Par conséquent, les trésors magiques devenaient cruciaux. Il ne voulait pas placer tous ses espoirs sur son Royaume Ji, car si celui-ci devenait un jour inefficace, tout serait vain.
 
 Fixant les trois sacs de rangement, Wang Lin prit une profonde inspiration. Il agita le drapeau de restriction qui enveloppa la zone d'une fumée noire. Puis, il pointa sa tempe et les deux démons sortirent pour assurer sa garde.
 
@@ -42,7 +42,7 @@ Au moment où sa main toucha le sac, une force puissante lui opposa une résista
 
 Il prit une profonde inspiration et pressa sa main sur le sac. À chaque pression, un fragment du sens divin de l'Empereur Ancien était extrait, mais la progression était extrêmement lente et, parallèlement, la contre-attaque que Wang Lin ressentait augmentait.
 
-Après un quart d'heure, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Domaine du Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
+Après un quart d'heure, le front de Wang Lin était couvert de sueur. Il prit une profonde inspiration et consomma quelques pilules pour stabiliser son corps. Serrant les dents, il activa son Royaume Ji dans sa main droite et pressa le sac avec toute son énergie spirituelle.
 
 Cette fois, la vitesse augmenta considérablement, mais la consommation d'énergie spirituelle de Wang Lin s'intensifia également. Après avoir englouti plusieurs flacons de pilules, une lumière blanche jaillit soudainement du sac de rangement avant de se dissiper.
 
@@ -70,7 +70,7 @@ Il prit ce sac et le scruta avec son sens divin. Les barrières protectrices sur
 
 Il avait l'impression de contempler une montagne de trésors dont il ne pourrait jamais s'emparer, peu importent ses efforts.
 
-Après un soupir, Wang Lin prit un autre sac de rangement et le scanna avec son sens divin. Sentant une résistance, il serra les dents et utilisa toute son énergie spirituelle et son Domaine du Ji pour tenter d'effacer le sens divin qui protégeait le sac.
+Après un soupir, Wang Lin prit un autre sac de rangement et le scanna avec son sens divin. Sentant une résistance, il serra les dents et utilisa toute son énergie spirituelle et son Royaume Ji pour tenter d'effacer le sens divin qui protégeait le sac.
 
 Mais dès que son énergie spirituelle toucha l'objet, son corps trembla et il sentit sa propre conscience s'éloigner. Un paysage familier apparut devant lui tandis qu'un jeune homme à l'allure maléfique volait à une vitesse que Wang Lin jugeait incroyable.
 
@@ -82,7 +82,7 @@ Wang Lin remarqua surtout que la terre sur laquelle ce jeune homme planait étai
 
 Si l'individu n'avait pas manifesté d'intention meurtrière, Wang Lin n'aurait pas hésité à lui rendre le sac. Mais puisque celui-ci dégageait une volonté de tuer si puissante, cela signifiait que même s'il rendait le trésor, il ne serait pas épargné.
 
-Le cœur de Wang Lin sombra. Il hésita un instant, puis augmenta immédiatement la puissance de son énergie spirituelle et de son Domaine du Ji pour balayer le sens divin du sac.
+Le cœur de Wang Lin sombra. Il hésita un instant, puis augmenta immédiatement la puissance de son énergie spirituelle et de son Royaume Ji pour balayer le sens divin du sac.
 
 Le temps passa lentement. Bien que le sens divin sur le sac s'estompât progressivement, à ce rythme, il faudrait plusieurs centaines d'années pour l'éliminer totalement.
 

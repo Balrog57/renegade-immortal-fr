@@ -42,7 +42,7 @@ Après avoir été surpris un instant, ce dragon stupide laissa échapper un rug
 
 Il avait suivi ce chemin plus de dix fois sans jamais rencontrer le moindre danger. Il possédait également un sort étrange pour dissimuler son aura; à moins qu'on ne le cherche délibérément, ce dragon était difficile à trouver.
 
-Normalement, lorsqu'il rencontrait un cultivateur plus faible que lui, ce dragon déployait sa puissance pour effrayer l'inconnu et l'obliger à rejoindre docilement son Secte du Dragon Céleste.
+Normalement, lorsqu'il rencontrait un cultivateur plus faible que lui, ce dragon déployait sa puissance pour effrayer l'inconnu et l'obliger à rejoindre docilement sa Secte du Dragon Céleste.
 
 Cependant, aujourd'hui, il n'aurait jamais pu imaginer qu'il tomberait nez à nez avec une telle concentration de Sens Divins en plein milieu de son voyage. Ces Sens Divins le faisaient trembler; certains étaient si puissants qu'ils lui donnaient l'impression d'avaler des litres de salive de dragon.
 

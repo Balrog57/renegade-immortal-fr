@@ -106,4 +106,4 @@ La terre trembla et la mer de feu rugit. Un fracas assourdissant secoua une part
 
 « L'essence véritable de feu est formée. Bien que mon niveau de culture n'ait pas évolué, ma force a doublé! Je ne peux pas encore égaler un cultivateur au stade initial de la Tribulation du Vide, mais j'ai désormais les moyens de me protéger! Si la situation devenait critique et que j'utilisais le Dao Antique, "No Celestial", ainsi que le Dao du Feu Extrême, je pourrais tuer un cultivateur de la Tribulation du Vide... Mais le prix serait bien trop lourd... » Tandis qu'il se tenait sur la montagne, ses yeux brillaient d'une lueur intense. Des ondulations apparurent sous ses pieds alors qu'il s'apprêtait à partir.
 
-« Petit ami, vous êtes venu en invité dans mon Secte de la Grande Âme pour repartir ainsi sans un mot? » Une voix antique résonna derrière lui.
+« Petit ami, vous êtes venu en invité dans ma Secte de la Grande Âme pour repartir ainsi sans un mot? » Une voix antique résonna derrière lui.

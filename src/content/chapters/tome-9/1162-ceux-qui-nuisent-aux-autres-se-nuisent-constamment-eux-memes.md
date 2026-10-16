@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1162 - Those Who Harm Others are Constantly Hurting Themselves
 slug: ceux-qui-nuisent-aux-autres-se-nuisent-constamment-eux-memes
 ---
-Le Secte des Cinq Pois de rang 6 était considéré comme une force relativement puissante parmi les sectes de ce niveau; il était l'égal de la Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
+La Secte des Cinq Pois de rang 6 était considéré comme une force relativement puissante parmi les sectes de ce niveau; il était l'égal de la Secte de la Fleur Claire. De nombreuses frictions existaient entre les deux sectes, et elles se livraient à de constantes joutes.
 
 Zhou Hai était un disciple central de la Secte des Cinq Pois. Son niveau de culture n'était pas aussi élevé que celui de la Vieille Femme Poisonneuse, se situant seulement au début du stade de la Purification du Nirvana. Cependant, il était un membre influent de la Secte des Cinq Pois, et la secte lui accordait une importance considérable.
 
@@ -16,7 +16,7 @@ Zhou Hai était un disciple central de la Secte des Cinq Pois. Son niveau de cul
 
 Un éclair de froideur passa dans les yeux de Zhou Hai alors qu'il fixait le cultivateur en noir: « Zhao Yu, j'ai enduré tes provocations tout au long du voyage. Si tu continues tes sarcasmes, ne me reproche pas de ne plus me retenir! »
 
-« Le Secte des Cinq Pois est donc bien puissant. Je veux voir si votre secte oserait affronter mon Secte de la Collection Démoniaque! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
+« La Secte des Cinq Pois est donc bien puissant. Je veux voir si votre secte oserait affronter ma Secte de la Collection Démoniaque! » Le cultivateur en noir sourit, mais ce sourire était d'une froideur extrême.
 
 La lueur bleue de l'œil droit de Zhou Hai s'intensifia, mais à cet instant précis, un reniflement glacial retentit près d'eux.
 
@@ -38,7 +38,7 @@ Peu de temps après, ils arrivèrent au-dessus de la Secte de l'Origine avec cet
 
 Les quatre avaient entendu la nouvelle selon laquelle les sectes de rang 6 avaient envahi la région de rang 5 à la recherche de quelque chose. Cependant, compte tenu de leur niveau de culture et de leur statut, les anciens ignoraient ce que ces puissantes sectes cherchaient précisément.
 
-Li Xiangdong prit une profonde inspiration. En approchant, il joignit les mains et déclara: « Le Secte de l'Origine salue les sectes du domaine supérieur. » Les deux anciens derrière lui firent de même.
+Li Xiangdong prit une profonde inspiration. En approchant, il joignit les mains et déclara: « La Secte de l'Origine salue les sectes du domaine supérieur. » Les deux anciens derrière lui firent de même.
 
 L'homme d'âge moyen joignit ses mains à son tour: « Je suis Feng Peishan, de la Secte du Sort Dao! »
 

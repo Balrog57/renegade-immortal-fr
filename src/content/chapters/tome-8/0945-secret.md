@@ -42,7 +42,7 @@ En contemplant la Perle Défiant le Ciel, Wang Lin était tout aussi stupéfait 
 
 « Il pensait à l'origine que le Royaume Céleste Antique serait éternel, mais ce jour-là... Les arbres géants qui soutenaient le Royaume Céleste Antique, aux quatre points cardinaux, s'effondrèrent et le royaume disparut sans laisser de trace... Même après avoir passé une vie entière à chercher, le Maître n'a pu trouver la moindre empreinte du Royaume Céleste Antique...
 
-« La disparition du Royaume Céleste Antique marqua l'effondrement du monde de culture antique et inaugura une ère nouvelle. Le monde était en confusion; sans le Royaume Céleste Antique, comment des célestes pourraient-ils exister... C'est ainsi que naquirent les affineurs de Qi... Moi, Qing Shui, j'étais un affineur de Qi. J'étais l'héritier du pays de Clear Water.
+« La disparition du Royaume Céleste Antique marqua l'effondrement du monde de culture antique et inaugura une ère nouvelle. Le monde était en confusion; sans le Royaume Céleste Antique, comment des célestes pourraient-ils exister... C'est ainsi que naquirent les affineurs de Qi... Moi, Qing Shui, j'étais un affineur de Qi. J'étais l'héritier du pays de Qing Shui.
 
 « Cependant, bien que le Royaume Céleste ait disparu, Maître Bai Fan et quelques-uns de ses pairs ont ouvert leur propre monde. Ils ont emprunté les quatre grands passages menant au Royaume Céleste Antique pour créer leur propre terre, la nommant... le Royaume Céleste!
 

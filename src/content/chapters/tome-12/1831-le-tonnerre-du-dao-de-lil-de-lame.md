@@ -20,7 +20,7 @@ Wang Lin cultiva un instant avant d'ouvrir les yeux, dont le regard brillait d'u
 
 « Grand Secte de l'Âme... » Wang Lin retourna sa main droite et une pierre de jade violette apparut. Ce jade dégageait une aura antique mêlée à une trace de décomposition.
 
-« Le Dao de l'Œil de l'Âme... La personne que je connaissais et qui excellait dans la divination était le Tout-Voyant! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar du Tout-Voyant pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
+« Le Dao de l'Œil de l'Âme... La personne que je connaissais et qui excellait dans la divination était l'Omniscient! Qing Lin possédait également un sort de Dao similaire... Ce sort était extrêmement efficace pour la divination. À l'époque, j'avais emprunté l'avatar de l'Omniscient pour diviner, ce qui m'avait sauvé de nombreuses crises de vie ou de mort... »
 
 « Désormais, avec le Dao de l'Œil de l'Âme, je dois l'apprendre; sinon, il me sera difficile d'évoluer sur le continent Astral Immortel... Plus important encore, cela m'aidera à me dissimuler et rendra ma divination bien plus complexe pour autrui... » Songea Wang Lin tandis que son sens divin pénétrait dans le jade qu'il tenait.
 
@@ -100,7 +100,7 @@ Après une longue réflexion, Wang Lin ne parvenait toujours pas à oublier le v
 
 « Cette affaire est trop étrange... Cependant, ce Dao de l'Œil de l'Âme peut effectivement percevoir les changements du futur. Je devrai approfondir cette culture, peut-être pourrai-je alors l'utiliser pour retrouver Situ, Qing Shui, Li Qianmei et les autres... » Wang Lin songea tout en réprimant le choc dans son cœur. Fort de sa culture et de ses expériences, il était capable de maîtriser même des événements cataclysmiques pour retrouver son calme.
 
-« Trois jours se sont écoulés... Je me demande ce que l'Ancien Taureau Vert a préparé pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon des Écritures de l'Âme pour choisir des sorts... » Les yeux de Wang Lin s'illuminèrent. Il songea aux divers sorts d'illusion du Grand Secte de l'Âme, notamment celui qu'Yan Lu avait utilisé pour invoquer l'âme de l'ancêtre du secte.
+« Trois jours se sont écoulés... Je me demande ce que l'Ancien Taureau Vert a préparé pour moi... Il a aussi dit que je pouvais entrer dans le Pavillon des Écritures de l'Âme pour choisir des sorts... » Les yeux de Wang Lin s'illuminèrent. Il songea aux divers sorts d'illusion du Grand Secte de l'Âme, notamment celui qu'Yan Lu avait utilisé pour invoquer l'âme de l'ancêtre de la secte.
 
 Après avoir mûri sa décision, Wang Lin sortit de la grotte. Il se tint sur la montagne et vit immédiatement Fan Shanmeng, qui paraissait extrêmement affaiblie.
 
@@ -110,4 +110,4 @@ Elle était toujours là. En voyant Wang Lin, son visage exprima une émotion co
 
 Elle n'avait nulle part ailleurs où aller...
 
-Wang Lin se transforma en un rayon de lumière et se dirigea vers les profondeurs du Grand Secte de l'Âme. Le jade que l'Ancien Taureau Vert lui avait confié pour franchir les restrictions contenait une carte de tous les sommets du secte. Il savait désormais exactement où se trouvait le Pic Céleste Vert.
+Wang Lin se transforma en un rayon de lumière et se dirigea vers les profondeurs du Grand Secte de l'Âme. Le jade que l'Ancien Taureau Vert lui avait confié pour franchir les restrictions contenait une carte de tous les sommets de la secte. Il savait désormais exactement où se trouvait le Pic Céleste Vert.

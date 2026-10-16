@@ -70,7 +70,7 @@ L'expression de l'Ancien Maître Impérial du Dao changea et il sembla hésiter,
 
 Le Massacre s'avança et dit froidement: « Oh? Tu n'as pas besoin de me dire cela, mais tu dois me dire qui tu es! »
 
-« Sept-Couleurs est cet homme, Tout-Voyant est cet homme, et l'Ancien Maître Impérial du Dao est également cet homme. Même ceci... » Alors qu'il parlait, le corps du vieillard trembla de nouveau dans un hurlement de douleur.
+« Sept-Couleurs est cet homme, Omniscient est cet homme, et l'Ancien Maître Impérial du Dao est également cet homme. Même ceci... » Alors qu'il parlait, le corps du vieillard trembla de nouveau dans un hurlement de douleur.
 
 L'Ancien Maître Impérial du Dao devint soudainement farouche: « Je ne peux pas le dire! Wang Lin, cette formation est cruciale pour moi, mais elle l'est tout autant pour toi. Si tu persistes à vouloir la détruire, je ne t'en empêcherai plus! »
 

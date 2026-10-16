@@ -16,9 +16,9 @@ Wang Lin hocha la tête et réfléchit. Un instant plus tard, il regarda Du Qing
 
 « Où se trouve la Secte Dong Lin? »
 
-« Le Secte Dong Lin? » L'expression de Du Qing se figea soudainement. Après un court moment de réflexion, il prit la parole:
+« La Secte Dong Lin? » L'expression de Du Qing se figea soudainement. Après un court moment de réflexion, il prit la parole:
 
-« Le Secte Dong Lin est l'une des neuf sectes et treize factions. Il se situe dans la partie nord du continent oriental, sur le Grand Continent Sage. La rumeur dit que cette secte est très mystérieuse et que peu de disciples en sortent jamais. »
+« La Secte Dong Lin est l'une des neuf sectes et treize factions. Il se situe dans la partie nord du continent oriental, sur le Grand Continent Sage. La rumeur dit que cette secte est très mystérieuse et que peu de disciples en sortent jamais. »
 
 Wang Lin posa quelques questions supplémentaires, puis afficha un air de lassitude. Du Qing était aussi rusé qu'un démon, comment ne pas deviner l'intention de Wang Lin? Il se leva rapidement pour partir et, avant de s'en aller, prononça un serment:
 

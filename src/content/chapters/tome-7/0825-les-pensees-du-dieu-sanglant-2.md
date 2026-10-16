@@ -80,7 +80,7 @@ Cependant, sous la puissance du vent déchaîné par le dragon noir, les nuages 
 
 « Quoi... Quel est ce sort céleste?! » Le corps de Yao Changdong trembla; il serra les dents et cracha une bouffée d'énergie originelle essentielle. Sa main droite s'activa rapidement et il cria: « Âme Sanguine, six cycles! »
 
-Après avoir utilisé ce sort, le visage de Yao Changdong devint livide. Ce sort céleste de l'Âme Sanguine lui avait été transmis par l'Ancêtre, le Dieu Sanglant. On disait que c'était l'un des plus grands sorts de leur ancêtre céleste.
+Après avoir utilisé ce sort, le visage de Yao Changdong devint livide. Ce sort céleste de l'Âme Sanguine lui avait été transmis par l'Ancêtre, le Dieu de Sang. On disait que c'était l'un des plus grands sorts de leur ancêtre céleste.
 
 À son apogée, il pouvait atteindre dix-neuf cycles, mais avec le niveau de culture actuel de Yao Changdong, il ne pouvait en gérer que six, et même ainsi, cela consommait la majeure partie de son énergie originelle.
 

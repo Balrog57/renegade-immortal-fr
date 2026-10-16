@@ -24,11 +24,11 @@ Cependant, cette révélation brutale eut un impact violent sur Lie Yunzi. Son c
 
 « Sa force est déjà comparable à celle d'un cultivateur du troisième pas. Maintenant, avec cet esclave en plus, il... sa puissance atteint déjà le sommet au sein du Royaume Intérieur!! »
 
-Blood God était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de culture, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
+Dieu de Sang était totalement abasourdi. Il n'osait croire ce qu'il voyait. En principe, compte tenu de son âge et de son niveau de culture, une pensée aussi enfantine ne devrait pas lui traverser l'esprit, mais il ne pouvait s'en empêcher.
 
 « Une hallucination... Ce doit être une hallucination... Un cultivateur du troisième pas si rare que tous les cultivateurs admirent, comment un tel être pourrait-il accepter de devenir l'esclave de quelqu'un d'autre... C'est impossible!! »
 
-Cependant, le raisonnement de Blood God fut interrompu par une autre spéculation qui provoqua une immense onde de choc dans son esprit.
+Cependant, le raisonnement de Dieu de Sang fut interrompu par une autre spéculation qui provoqua une immense onde de choc dans son esprit.
 
 « S'il n'est pas consentant, se pourrait-il que Wang Lin l'ait forcé... Cela devrait être impossible. Bien que sa puissance soit comparable à celle d'un cultivateur du troisième pas, comment pourrait-il contraindre un tel être... C'est un cultivateur du troisième pas, le troisième pas! Dans Allheaven, ce vieil homme n'a vu que Maître Lu Fu... »
 

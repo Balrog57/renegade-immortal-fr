@@ -75,7 +75,7 @@ Quel que soit leur courage, ils n'oseraient jamais provoquer Xu Mu! Quant à sav
 
 La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan de l'Immortel Délaissé fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait la Secte Ciel Nuageux. Sur la planète Suzaku, il était le plus ancien et son niveau de culture avait considérablement progressé au fil des ans. Les deux cultivateurs d'Allheaven n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur la Secte Ciel Nuageux!
 
-« Le Secte Ciel Nuageux... Quel objet peut bien effrayer deux puissants cultivateurs Ascendants au sommet de leur stade? Et à en juger par leurs expressions, ils ont été terrifiés jusqu'aux tréfonds de leur âme. » Yun Quezi avait vu de ses propres yeux la panique sur les visages des deux fuyards, ce qui le laissa extrêmement perplexe.
+« La Secte Ciel Nuageux... Quel objet peut bien effrayer deux puissants cultivateurs Ascendants au sommet de leur stade? Et à en juger par leurs expressions, ils ont été terrifiés jusqu'aux tréfonds de leur âme. » Yun Quezi avait vu de ses propres yeux la panique sur les visages des deux fuyards, ce qui le laissa extrêmement perplexe.
 
 Il déploya son sens divin et le verrouilla soudainement sur la statue de Wang Lin dans la Secte Ciel Nuageux.
 

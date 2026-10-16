@@ -88,17 +88,17 @@ Une silhouette apparut à mille pieds de Wang Lin!
 
 Le vieil homme aux cheveux roux portait une robe pourpre bordée d'un motif Tai Chi sur l'épaule droite. Ce motif était rouge feu, comme s'il incarnait le Dao lui-même!
 
-Le vieillard resta là et, après un long moment, fixa Wang Lin en disant: « Est-ce toi qui as détruit mon Secte du Dao Démoniaque? » Il était d'un calme absolu, ne montrant aucune émotion. Pourtant, sa voix déclencha d'innombrables échos de plus en plus intenses. Finalement, le ciel gronda, la terre rugit, et une onde de choc terrifiante frappa le corps de Wang Lin.
+Le vieillard resta là et, après un long moment, fixa Wang Lin en disant: « Est-ce toi qui as détruit ma Secte du Dao Démoniaque? » Il était d'un calme absolu, ne montrant aucune émotion. Pourtant, sa voix déclencha d'innombrables échos de plus en plus intenses. Finalement, le ciel gronda, la terre rugit, et une onde de choc terrifiante frappa le corps de Wang Lin.
 
 Wang Lin resta immobile, ses pupilles se rétractant légèrement, et répondit calmement: « Oui! »
 
-« Après avoir détruit mon Secte du Dao Démoniaque, tu as encore attendu ici. Vas-tu me défier? » Voyant l'impassibilité de Wang Lin, le regard du vieil homme devint plus intense.
+« Après avoir détruit ma Secte du Dao Démoniaque, tu as encore attendu ici. Vas-tu me défier? » Voyant l'impassibilité de Wang Lin, le regard du vieil homme devint plus intense.
 
 Wang Lin fixa l'homme et dit simplement: « Oui! »
 
 « Bien! » L'ancêtre de la Secte du Dao Démoniaque ne montra ni mépris ni colère. À son niveau de culture, toutes les fluctuations émotionnelles avaient disparu. Il était un Exalt Émérite subordonné au Grand Exalt Dao Yi. Bien qu'il ne fût pas le plus puissant des Exaltés Émérites, il se situait toujours au sommet du Clan Céleste.
 
-« Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de mon Secte! » L'ancêtre agita sa manche et lança un coup de poing vers Wang Lin.
+« Je vais t'accorder l'opportunité de me défier. Si tu peux encaisser trois de mes coups, alors j'oublierai la destruction de ma Secte! » L'ancêtre agita sa manche et lança un coup de poing vers Wang Lin.
 
 Ce coup fit changer les couleurs du monde et déforma les ruines de la Secte du Dao Démoniaque. Tout bascula; c'était comme si cet espace était devenu une existence distincte.
 

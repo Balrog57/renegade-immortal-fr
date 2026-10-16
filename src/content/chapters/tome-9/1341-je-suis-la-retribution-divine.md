@@ -58,9 +58,9 @@ Simultanément, les trois cultivateurs Ascendants ainsi que le cultivateur nomm�
 
 Pourtant, ce qui les attendait était le regard écarlate de Wang Lin. Un éclair rouge jaillit de ses yeux!
 
-Le Domaine Ji!
+Le Royaume Ji!
 
-La majeure partie du Domaine Ji résidait dans le corps originel de Wang Lin, et seule une infime fraction l'avait accompagné via son Sens Divin. Néanmoins, il l'utilisa car le Domaine Ji était la Rétribution Divine elle-même!
+La majeure partie du Royaume Ji résidait dans le corps originel de Wang Lin, et seule une infime fraction l'avait accompagné via son Sens Divin. Néanmoins, il l'utilisa car le Royaume Ji était la Rétribution Divine elle-même!
 
 « Puisque je suis la Rétribution Divine, j'utiliserai naturellement la rétribution divine pour vous anéantir tous! » L'éclair rouge jaillit directement vers un cultivateur. Ses yeux s'illuminèrent d'une lueur rouge et il poussa un cri déchirant. En un éclair, la foudre traversa son corps et détruisit tout. Il s'effondra comme le vieil homme mort sous la rétribution divine!
 
@@ -68,13 +68,13 @@ La majeure partie du Domaine Ji résidait dans le corps originel de Wang Lin, et
 
 Cependant, même le Maître Zhou Tian n'aurait pu s'autodétruire devant Wang Lin, encore moins ce petit cultivateur Ascendant!
 
-Dès qu'il sortit ses trésors, tous furent pulvérisés par la foudre du Domaine Ji. Même son corps, qui s'apprêtait à exploser, fut comme une flamme étouffée par l'eau lorsque l'éclair rouge le frappa. Son corps fut convulsé, le sang jaillit de tous ses orifices, sa structure fut annihilée et son âme originelle vola en éclats!
+Dès qu'il sortit ses trésors, tous furent pulvérisés par la foudre du Royaume Ji. Même son corps, qui s'apprêtait à exploser, fut comme une flamme étouffée par l'eau lorsque l'éclair rouge le frappa. Son corps fut convulsé, le sang jaillit de tous ses orifices, sa structure fut annihilée et son âme originelle vola en éclats!
 
 Tout cela se produisit en un instant. Tuer ces individus ne demanda aucun effort à Wang Lin!
 
-« De simples cultivateurs Ascendants osent se comparer au Dao Céleste. Ce sera là la cause de la ruine du Clan Tonnerre Dispersé! » Après avoir parlé, Wang Lin se tourna vers le cultivateur Yin Illusoire. Il ne daigna même pas regarder le dernier Ascendant nommé Zhou alors que celui-ci était balayé par le Domaine Ji.
+« De simples cultivateurs Ascendants osent se comparer au Dao Céleste. Ce sera là la cause de la ruine du Clan Tonnerre Dispersé! » Après avoir parlé, Wang Lin se tourna vers le cultivateur Yin Illusoire. Il ne daigna même pas regarder le dernier Ascendant nommé Zhou alors que celui-ci était balayé par le Royaume Ji.
 
-« À ton tour! » Alors que Wang Lin prononçait ces mots, le Domaine Ji qui venait de tuer trois cultivateurs pivota brusquement et s'engouffra instantanément dans le corps du cultivateur Yin Illusoire. Ses yeux s'obscurcirent et son âme originelle périt. Cependant, son corps resta intact et tomba au sol!
+« À ton tour! » Alors que Wang Lin prononçait ces mots, le Royaume Ji qui venait de tuer trois cultivateurs pivota brusquement et s'engouffra instantanément dans le corps du cultivateur Yin Illusoire. Ses yeux s'obscurcirent et son âme originelle périt. Cependant, son corps resta intact et tomba au sol!
 
 Au moment où le corps toucha terre, Wang Lin s'empara de la marque de clan!
 

@@ -12,7 +12,7 @@ Wang Lin fronça les sourcils et ricana intérieurement. Puis, il activa sa tech
 
 Le visage de l'Ancien Ouyang changea instantanément. « Junior, oses-tu! » Sur ces mots, il agita sa manche et une épée volante à l'aspect antique apparut. Dès qu'elle fut libérée, le vent commença à tourbillonner, formant une lame gigantesque dans les airs qui s'abattit avec puissance.
 
-À l'instant où l'épée apparut, une pointe d'intention meurtrière brilla dans les yeux de l'Ancien Ouyang. Ce disciple était devenu bien trop puissant et représenterait, à l'avenir, une menace pour son Secte Xuan Dao. Il voulait saisir cette occasion pour détruire sa culture.
+À l'instant où l'épée apparut, une pointe d'intention meurtrière brilla dans les yeux de l'Ancien Ouyang. Ce disciple était devenu bien trop puissant et représenterait, à l'avenir, une menace pour sa Secte Xuan Dao. Il voulait saisir cette occasion pour détruire sa culture.
 
 Le visage de Huang Long s'assombrit. Réalisant les intentions d'Ouyang, il sortit immédiatement son épée. Wang Lin laissa échapper un rire; sa technique d'attraction atteignit son paroxysme et la main invisible qu'il avait créée devint tangible.
 

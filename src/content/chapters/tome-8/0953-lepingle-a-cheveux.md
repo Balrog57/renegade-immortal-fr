@@ -12,13 +12,13 @@ Son visage était livide, du sang s'écoulait du coin de sa bouche et ses yeux �
 
 Un rayon de lumière rouge descendit de la brume pourpre. Il était d'une rapidité fulgurante, mais il ne chargea pas l'homme aux cheveux violets. Contre toute attente, il s'abattit sur le Maître Dieu Démon!
 
-L'expression du Maître Dieu Démon changea radicalement et il tenta d'esquiver. Cependant, face au Domaine Ji de Qing Shui, il n'en avait pas la capacité. Le Domaine Ji perça directement sa poitrine.
+L'expression du Maître Dieu Démon changea radicalement et il tenta d'esquiver. Cependant, face au Royaume Ji de Qing Shui, il n'en avait pas la capacité. Le Royaume Ji perça directement sa poitrine.
 
 Les yeux du vieil homme s'éteignirent instantanément et son corps s'effondra. On pourrait dire que sa mort fut l'une des plus rapides parmi les cultivateurs du Purificateur du Nirvana. Au moment de son trépas, une mélancolie infinie l'enveloppa.
 
 L'éclair rouge ne s'arrêta pas après avoir transpercé le corps du vieil homme; il balaya toute la zone. On n'entendit que des explosions tandis que les corps de la plupart des cultivateurs environnants s'effondraient!
 
-C'était là la puissance du Domaine Ji de Qing Shui!
+C'était là la puissance du Royaume Ji de Qing Shui!
 
 Wang Lin s'était déjà préparé à ouvrir son troisième œil et à utiliser l'énergie d'origine pour faire face à l'assaut du Maître Dieu Démon. Cependant, grâce à l'intervention de Qing Shui, il put immédiatement poursuivre le Maître Fantôme Vide.
 
@@ -114,7 +114,7 @@ Au loin, Qing Shui avançait calmement. Derrière lui, le Maître Fantôme Vide 
 
 Dans sa main, Qing Shui tenait l'épingle à cheveux pourpre. Son regard s'adoucissait peu à peu, mais il était empreint de douleur et de nostalgie.
 
-« Le Créateur aime jouer avec les hommes... » Dans sa vie, Qing Shui n'avait versé des larmes que deux fois. La première fut lorsque le pays de Clear Water fut détruit et ses parents assassinés. Il n'était alors qu'un modeste cultivateur ayant échappé de justesse à une mort certaine. Il avait pleuré de chagrin et d'indignation.
+« Le Créateur aime jouer avec les hommes... » Dans sa vie, Qing Shui n'avait versé des larmes que deux fois. La première fut lorsque le pays de Qing Shui fut détruit et ses parents assassinés. Il n'était alors qu'un modeste cultivateur ayant échappé de justesse à une mort certaine. Il avait pleuré de chagrin et d'indignation.
 
 La seconde fut lorsqu'il sombra dans la folie au sein du Royaume Céleste du Tonnerre et tua l'élue de son cœur. Il avait alors versé des larmes de remords!
 

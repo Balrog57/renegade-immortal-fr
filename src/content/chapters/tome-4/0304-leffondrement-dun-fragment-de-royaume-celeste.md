@@ -38,7 +38,7 @@ Une fois entré, il vit Wang Lin ramasser le morceau de métal sur la poitrine d
 
 Mais dès que sa main toucha l'arme, il poussa un gémissement misérable alors que des trous se formaient dans sa chair.
 
-Wang Lin ne da même pas un regard vers lui et s'élança hors de la grotte. Il sortit son drapeau de restriction, qui émit de nombreux dragons faits de brume noire. Ces derniers encerclèrent Wang Lin, puis il chargea directement vers le haut, perçant les parois.
+Wang Lin ne daigna même pas un regard vers lui et s'élança hors de la grotte. Il sortit son drapeau de restriction, qui émit de nombreux dragons faits de brume noire. Ces derniers encerclèrent Wang Lin, puis il chargea directement vers le haut, perçant les parois.
 
 Les yeux de Sun Lei devinrent rouges de rage; il poussa un rugissement de frustration et tendit à nouveau la main vers l'épée. Cette fois, il endura la douleur et parvint enfin à saisir l'épée céleste. Cependant, au même instant, un cri perçant lui échappa alors que sa main était transpercée de multiples fois. Une partie de l'énergie de l'épée traversa sa main pour frapper sa poitrine, faisant fondre l'armure d'argent qu'il portait.
 

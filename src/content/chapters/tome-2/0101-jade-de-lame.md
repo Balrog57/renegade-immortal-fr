@@ -18,7 +18,7 @@ Le temps passa lentement. Trois jours plus tard, Ye Zizai revint sur la plaine s
 
 Lorsqu'il réapparut, il se trouvait déjà dans sa propre chambre. Il était très troublé en songeant à son accord avec les trois autres sectes démoniaques.
 
-L'examen de qualification pour accéder au champ de bataille étranger avait été remporté par les sectes démoniaques auparavant, mais la présence actuelle de Punnan Zi et de son Secte Xuan Dao rendait l'issue incertaine.
+L'examen de qualification pour accéder au champ de bataille étranger avait été remporté par les sectes démoniaques auparavant, mais la présence actuelle de Punnan Zi et de sa Secte Xuan Dao rendait l'issue incertaine.
 
 Les sourcils froncés, il murmura: « Es-tu certain de pouvoir tuer Punnan Zi? »
 

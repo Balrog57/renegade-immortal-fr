@@ -10,47 +10,47 @@ Chapitre 1722 - Son identité!!
 
 L'image qui apparut cette fois-ci était une planète de culture. Wang Lin connaissait bien cette planète: c'était la planète Tian Yun!
 
-Le Tout-Voyant se trouvait dans une pièce secrète dissimulée au sein de la Secte Tian Yun. Devant lui siégeaient neuf jeunes gens, tous inconscients.
+L'Omniscient se trouvait dans une pièce secrète dissimulée au sein de la Secte Tian Yun. Devant lui siégeaient neuf jeunes gens, tous inconscients.
 
-Les yeux du Tout-Voyant brillaient d'une lueur étrange tandis qu'il les contemplait. Il ouvrit la bouche et inspira profondément. Les neuf jeunes furent alors dévorés par lui.
+Les yeux de l'Omniscient brillaient d'une lueur étrange tandis qu'il les contemplait. Il ouvrit la bouche et inspira profondément. Les neuf jeunes furent alors dévorés par lui.
 
-Son corps trembla et son expression trahit une vive douleur. Il ferma lentement les yeux et sombra dans le sommeil. Des années passèrent. Après un temps indéterminé, le Tout-Voyant rouvrit les yeux, le regard empreint d'une clarté absolue.
+Son corps trembla et son expression trahit une vive douleur. Il ferma lentement les yeux et sombra dans le sommeil. Des années passèrent. Après un temps indéterminé, l'Omniscient rouvrit les yeux, le regard empreint d'une clarté absolue.
 
 « C'est mon 97e éveil... Le prochain candidat pour mon sommeil et mon réveil est Ling Tianhou! »
 
-Wang Lin observait tout cela avec une expression calme, mais une vague de trouble déferla dans son cœur. Il ne s'attendait pas à ce que ces éveils soient le résultat de la dévoration d'autrui par le Tout-Voyant!
+Wang Lin observait tout cela avec une expression calme, mais une vague de trouble déferla dans son cœur. Il ne s'attendait pas à ce que ces éveils soient le résultat de la dévoration d'autrui par l'Omniscient!
 
-« Il doit être l'une des trois âmes ou l'un des sept fragments du Souverain Céleste aux Sept Couleurs. Seule cette hypothèse peut expliquer comment il s'éveille de manière répétée! » Wang Lin fixa le Tout-Voyant, son regard devenant glacial.
+« Il doit être l'une des trois âmes ou l'un des sept fragments du Souverain Céleste aux Sept Couleurs. Seule cette hypothèse peut expliquer comment il s'éveille de manière répétée! » Wang Lin fixa l'Omniscient, son regard devenant glacial.
 
-L'image changea une fois de plus, montrant le Tout-Voyant à différentes époques. Jusqu'à ce qu'il voie, à un moment donné, le Tout-Voyant assis au-dessus d'une planète abandonnée. Après avoir dévoré le cultivateur qu'il avait sélectionné, il s'était éveillé une fois de plus.
+L'image changea une fois de plus, montrant l'Omniscient à différentes époques. Jusqu'à ce qu'il voie, à un moment donné, l'Omniscient assis au-dessus d'une planète abandonnée. Après avoir dévoré le cultivateur qu'il avait sélectionné, il s'était éveillé une fois de plus.
 
 Il quittait la planète et, alors qu'il volait dans les airs, il s'arrêta soudainement. Il regarda en bas et aperçut une planète de culture terne, jaunâtre et à moitié abandonnée.
 
 Il laissa échapper un léger murmure et un sourire se dessina progressivement sur son visage. Il projeta lentement son Sens Divin.
 
-« Il est rare de voir une compréhension aussi profonde sur une planète aussi délabrée. Cependant, avec votre simple niveau de culture d'Âme Naissante, vous ne devriez pas être trop gourmand dans votre quête de la Formation de l'Âme. Si vous persistez ainsi, je crains que même après des millions d'années, vous ne trouviez toujours pas la source. À ce moment-là, votre corps aura complètement décomposé. Y avez-vous pensé? » Tout en parlant, le Tout-Voyant leva la main droite et exerça une pression vers le bas sur la planète moribonde.
+« Il est rare de voir une compréhension aussi profonde sur une planète aussi délabrée. Cependant, avec votre simple niveau de culture d'Âme Naissante, vous ne devriez pas être trop gourmand dans votre quête de la Formation de l'Âme. Si vous persistez ainsi, je crains que même après des millions d'années, vous ne trouviez toujours pas la source. À ce moment-là, votre corps aura complètement décomposé. Y avez-vous pensé? » Tout en parlant, l'Omniscient leva la main droite et exerça une pression vers le bas sur la planète moribonde.
 
-« Le nom de ce vieil homme est le Tout-Voyant. Aujourd'hui, je vous témoigne ma bonne volonté. Si vous parvenez à quitter cette planète abandonnée pour venir me trouver sur la planète Tian Yun, je vous accepterai comme disciple nommé pour cent ans! »
+« Le nom de ce vieil homme est l'Omniscient. Aujourd'hui, je vous témoigne ma bonne volonté. Si vous parvenez à quitter cette planète abandonnée pour venir me trouver sur la planète Tian Yun, je vous accepterai comme disciple nommé pour cent ans! »
 
-Le sourire du Tout-Voyant s'élargit davantage. D'un revers de manche, il s'éloigna dans le lointain.
+Le sourire de l'Omniscient s'élargit davantage. D'un revers de manche, il s'éloigna dans le lointain.
 
 « Cet enfant n'est pas mauvais. Je peux l'élever un peu afin qu'il soit dévoré par mon avatar. Cependant, son niveau de culture est trop bas; il est difficile de dire s'il pourra être utile ou non... Pourtant, j'ai le sentiment que cet enfant sera extraordinaire! »
 
 En voyant cela, l'esprit de Wang Lin trembla violemment. Il fixa la planète terne et jaune, comme si son esprit était bombardé. L'aura émanant de cette planète fit tout comprendre à Wang Lin!
 
-Alors que le corps original de Wang Lin était immergé dans la réincarnation du Tout-Voyant dans le monde extérieur, tous les avatars du Tout-Voyant levèrent leur main droite et pointèrent l'espace entre leurs sourcils!
+Alors que le corps original de Wang Lin était immergé dans la réincarnation de l'Omniscient dans le monde extérieur, tous les avatars de l'Omniscient levèrent leur main droite et pointèrent l'espace entre leurs sourcils!
 
-Les yeux du premier Tout-Voyant apparu dans la partie orientale de la Rivière des Invocations brillèrent d'une lueur étrange. Il leva également sa main droite et pointa son propre front.
+Les yeux du premier Omniscient apparu dans la partie orientale de la Rivière des Invocations brillèrent d'une lueur étrange. Il leva également sa main droite et pointa son propre front.
 
 « Ce vieil homme dormira pour la dernière fois et s'éveillera pour la dernière fois. Cette fois, je mènerai à bien le plan que j'ai commencé il y a d'innombrables années! » Il ferma les yeux et son doigt pénétra lentement son crâne.
 
-À cet instant, les corps du Tout-Voyant s'effondrèrent soudainement, et des grondements tonitruants résonnèrent à travers les quatre systèmes stellaires. Les 3 000 Tout-Voyants s'écroulèrent, et une âme jaillit de chacun d'eux. Chaque âme se précipita vers l'avatar de Wang Lin!
+À cet instant, les corps de l'Omniscient s'effondrèrent soudainement, et des grondements tonitruants résonnèrent à travers les quatre systèmes stellaires. Les 3 000 Omniscients s'écroulèrent, et une âme jaillit de chacun d'eux. Chaque âme se précipita vers l'avatar de Wang Lin!
 
 « Voyons si tu es plus rapide que moi! Lorsque ce vieil homme complotait contre toi, tu n'étais qu'un simple cultivateur de l'Âme Naissante. Sans lui, ton corps aurait déjà pourri! Tout ce que tu es m'appartient! » Les 3 000 âmes chargèrent, projetant des ondes de force d'âme qui fusionnèrent entre elles. Cela créa un son fracassant qui résonna dans l'esprit de l'avatar de Wang Lin.
 
-Tandis que les trois mille âmes fonçaient sur l'avatar de Wang Lin, son corps original vit défiler encore plus d'éveils de la réincarnation du Tout-Voyant!
+Tandis que les trois mille âmes fonçaient sur l'avatar de Wang Lin, son corps original vit défiler encore plus d'éveils de la réincarnation de l'Omniscient!
 
-L'individu que Wang Lin observait était devenu totalement différent du Tout-Voyant, comme s'il s'agissait d'une autre personne. S'il n'avait pas verrouillé l'aura, il n'aurait jamais cru que tous ces individus disparates étaient le Tout-Voyant!
+L'individu que Wang Lin observait était devenu totalement différent de l'Omniscient, comme s'il s'agissait d'une autre personne. S'il n'avait pas verrouillé l'aura, il n'aurait jamais cru que tous ces individus disparates étaient l'Omniscient!
 
 Dans l'ancien monde de la culture, avant l'effondrement des quatre Royaumes Célestes, un homme d'âge moyen vêtu de bleu flottait au-dessus d'une planète. Avec un sourire, il dévora un jeune homme inconscient qui se trouvait devant lui.
 
@@ -62,15 +62,15 @@ Ce jeune homme était son unique disciple!
 
 Les dévorations répétées, parfois multiples, parfois uniques, furent toutes perçues par Wang Lin. Ce qu'il vit le stupéfia!
 
-« Quelle est donc l'identité du Tout-Voyant pour dépendre de la dévoration pour s'éveiller? Et que cherche-t-il à éveiller? »
+« Quelle est donc l'identité de l'Omniscient pour dépendre de la dévoration pour s'éveiller? Et que cherche-t-il à éveiller? »
 
-À l'extérieur, dans la Rivière des Invocations, les centaines d'avatars du Tout-Voyant convergèrent vers Wang Lin et pénétrèrent dans son avatar.
+À l'extérieur, dans la Rivière des Invocations, les centaines d'avatars de l'Omniscient convergèrent vers Wang Lin et pénétrèrent dans son avatar.
 
-L'expression de l'avatar de Wang Lin restait calme; il demeurait assis là, comme s'il ne se souciait guère de leur intrusion. L'âme de l'avatar du Tout-Voyant devint de plus en plus puissante jusqu'à occuper la quasi-totalité du corps de Wang Lin.
+L'expression de l'avatar de Wang Lin restait calme; il demeurait assis là, comme s'il ne se souciait guère de leur intrusion. L'âme de l'avatar de l'Omniscient devint de plus en plus puissante jusqu'à occuper la quasi-totalité du corps de Wang Lin.
 
 À ce moment précis, les âmes des trois autres systèmes stellaires arrivèrent rapidement. Tout cela se produisit à une vitesse fulgurante, mais du point de vue du corps original de Wang Lin, chaque mouvement semblait d'une lenteur extrême.
 
-Le corps original de Wang Lin vit les éveils du Tout-Voyant se succéder encore et encore, jusqu'au troisième éveil. Ce n'était plus l'époque de la culture ancienne, mais celle de la culture immémoriale!
+Le corps original de Wang Lin vit les éveils de l'Omniscient se succéder encore et encore, jusqu'au troisième éveil. Ce n'était plus l'époque de la culture ancienne, mais celle de la culture immémoriale!
 
 Le système stellaire de l'ère immémoriale était foisonnant de planètes. Il y avait là des cultivateurs et non des êtres célestes, car les Royaumes Célestes n'existaient pas encore. Ils cultivaient l'aura du monde.
 
@@ -88,17 +88,17 @@ En voyant cela, le cœur de Wang Lin, qui s'était déjà apaisé, rugit de nouv
 
 « Il a dévoré le septième fragment du Souverain Céleste aux Sept Couleurs!! S'il n'est pas l'une des trois âmes ou l'un des sept fragments, alors qui est-il?! Il a été capable de dévorer un fragment d'âme du Souverain Céleste aux Sept Couleurs! »
 
-Après avoir assisté personnellement à plus de 90 réincarnations, Wang Lin constata que la capacité de dévoration du Tout-Voyant semblait s'affaiblir à chaque fois. Lors de la troisième, il pouvait dévorer une planète; mais après 90 fois, il ne pouvait plus que dévorer des êtres humains!
+Après avoir assisté personnellement à plus de 90 réincarnations, Wang Lin constata que la capacité de dévoration de l'Omniscient semblait s'affaiblir à chaque fois. Lors de la troisième, il pouvait dévorer une planète; mais après 90 fois, il ne pouvait plus que dévorer des êtres humains!
 
 Wang Lin fixa le vieil homme souriant, ses pupilles se contractant.
 
-L'image disparut, et lorsqu'elle réapparut, c'était le deuxième éveil du Tout-Voyant!
+L'image disparut, et lorsqu'elle réapparut, c'était le deuxième éveil de l'Omniscient!
 
 Cette fois, ce qui apparut devant Wang Lin était un système stellaire étranger. Non seulement ce système était inconnu, mais il ne présentait aucun signe de vie. D'innombrables planètes de culture jonchaient l'espace, mais sans la moindre trace d'existence vivante!
 
 C'était un système stellaire mort, ou plutôt, c'était la phase primordiale du monde caverneux avant que la vie ne soit engendrée!
 
-Dans ce système sans vie, Wang Lin forgea progressivement une pensée inimaginable. Cette pensée était la véritable identité du Tout-Voyant!
+Dans ce système sans vie, Wang Lin forgea progressivement une pensée inimaginable. Cette pensée était la véritable identité de l'Omniscient!
 
 À l'instant même où cette idée germa dans son esprit, une faible aura d'âme se rapprocha rapidement. Wang Lin se retourna et vit une illusion au sein de cette aura. La silhouette était floue et contenait le pouvoir de l'un des fragments d'âme du Souverain Céleste aux Sept Couleurs!
 

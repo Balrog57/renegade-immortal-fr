@@ -86,7 +86,7 @@ La peur dans les yeux de l'homme en noir ne pouvait s'estomper. La simple pensé
 
 Cette attaque des vingt-trois épées l'avait fait perdre toute confiance.
 
-« Le Secte de l'Oiseau Vermillon renaîtra grâce à cet homme. Non seulement ils retrouveront leur gloire passée, mais ils atteindront de nouveaux sommets! Cet homme... possède une origine source! Qui lui a donné l'origine source... » L'homme en noir tremblait, et la terreur dans son regard s'intensifiait.
+« La Secte de l'Oiseau Vermillon renaîtra grâce à cet homme. Non seulement ils retrouveront leur gloire passée, mais ils atteindront de nouveaux sommets! Cet homme... possède une origine source! Qui lui a donné l'origine source... » L'homme en noir tremblait, et la terreur dans son regard s'intensifiait.
 
 Le corps de Maître Void s'écrasa au sol. Son visage était pâle et il était dans un état lamentable. Ses yeux étaient emplis de frustration!
 

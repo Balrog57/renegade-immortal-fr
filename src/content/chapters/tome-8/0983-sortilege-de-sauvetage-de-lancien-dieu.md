@@ -64,7 +64,7 @@ Même avec sa force mentale, Wang Lin ne put s'empêcher d'être ému.
 
 L'actuel Wang Lin arborait de longs cheveux et son œil droit était devenu extrêmement singulier. Il était d'un bleu profond, d'une apparence absolument inoubliable.
 
-À ce moment précis, loin de la planète Water Spirit, un rayon de lumière convergeait vers la planète Tian Yun. À l'intérieur de ce rayon se trouvait Situ Nan. Il était entouré d'une énergie d'origine dense. Ses cheveux noirs flottaient au vent, révélant une carrure robuste, tandis qu'une pointe de malicieuse arrogance marquait son visage. Cela lui donnait l'apparence d'un dieu démon!
+À ce moment précis, loin de la planète Esprit d'Eau, un rayon de lumière convergeait vers la planète Tian Yun. À l'intérieur de ce rayon se trouvait Situ Nan. Il était entouré d'une énergie d'origine dense. Ses cheveux noirs flottaient au vent, révélant une carrure robuste, tandis qu'une pointe de malicieuse arrogance marquait son visage. Cela lui donnait l'apparence d'un dieu démon!
 
 Il n'était pas seul; une femme l'accompagnait. Elle était d'une beauté saisissante, dotée d'un charme irrésistible. Elle portait une robe de soie qui, en plein vol, collait à son corps, révélant ses courbes parfaitement dessinées.
 

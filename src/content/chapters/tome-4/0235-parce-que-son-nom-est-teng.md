@@ -98,7 +98,7 @@ Soudain, une violente bourrasque générée par la force d'une paume s'engouffra
 
 Le visage de la jeune femme devint livide.
 
-Wang Lin ne da même pas un regard à l'homme assommé et reprit froidement: « Je te pose la question une nouvelle fois: de qui es-tu la descendante? » En réalité, dès qu'il avait vu sa maison, il avait eu des soupçons. Il était impossible que la demeure soit restée intacte sans que quelqu'un en prenne soin. Bien qu'elle paraisse identique, elle avait été reconstruite pour retrouver son aspect d'origine.
+Wang Lin ne daigna même pas un regard à l'homme assommé et reprit froidement: « Je te pose la question une nouvelle fois: de qui es-tu la descendante? » En réalité, dès qu'il avait vu sa maison, il avait eu des soupçons. Il était impossible que la demeure soit restée intacte sans que quelqu'un en prenne soin. Bien qu'elle paraisse identique, elle avait été reconstruite pour retrouver son aspect d'origine.
 
 La jeune femme afficha un regard déterminé. Elle serra les dents: « Mon père est Wang Yunfei. Puisque vous m'avez suivie jusqu'ici, pourquoi poser ces questions? »
 
@@ -234,7 +234,7 @@ Tout cela, parce que son nom était Teng!
 
 La paume droite de Wang Lin percuta la tête du jeune homme. Ses organes internes furent pulvérisés et son âme fut capturée par le drapeau. Sans aucune pitié dans le regard, Wang Lin s'élança à nouveau. À ce moment, les cultivateurs de l'Âme Naissante l'avaient rattrapé. Un homme au visage rouge apparut devant lui et, bien qu'effrayé, dit rapidement: « Cher collègue, je vous en prie, arrêtez-vous. Si un problème existe, nous pouvons en discuter. »
 
-Wang Lin ne da même pas un regard à l'individu. Son royaume de Ji s'activa instantanément et, en un éclair, les yeux de l'homme s'éteignirent. En passant devant lui, Wang Lin le frappa, faisant éclater son corps et son Âme Naissante en mille morceaux qui tombèrent au sol.
+Wang Lin ne daigna même pas un regard à l'individu. Son royaume de Ji s'activa instantanément et, en un éclair, les yeux de l'homme s'éteignirent. En passant devant lui, Wang Lin le frappa, faisant éclater son corps et son Âme Naissante en mille morceaux qui tombèrent au sol.
 
 Une voix aussi glaciale que l'hiver s'échappa de la bouche de Wang Lin: « Quiconque tentera de m'arrêter commettra le même crime que la famille Teng! »
 
@@ -288,7 +288,7 @@ Quant à Teng You, dès qu'elle ouvrit les yeux, elle vit la tête de Teng Xuan 
 
 Ils étaient condamnés à mourir car ces deux frères et sœurs s'appelaient Teng!
 
-Après les avoir tués, il scella leurs âmes, attacha leurs corps et quitta le pavillon. Les cultivateurs de l'Âme Naissante de la secte se tenaient tous devant le pavillon en silence. Wang Lin ne da même pas un regard vers eux alors qu'il sautait sur le dos de la bête moustique pour partir, l'étendard du dragon traînant derrière lui. Sur cet étendard reposaient sept cadavres.
+Après les avoir tués, il scella leurs âmes, attacha leurs corps et quitta le pavillon. Les cultivateurs de l'Âme Naissante de la secte se tenaient tous devant le pavillon en silence. Wang Lin ne daigna même pas un regard vers eux alors qu'il sautait sur le dos de la bête moustique pour partir, l'étendard du dragon traînant derrière lui. Sur cet étendard reposaient sept cadavres.
 
 Wang Lin ne ralentit pas tandis que la bête s'éloignait de la Secte Tian Dao. De loin, les sept corps attachés à la bannière ressemblaient aux plumes d'un paon émettant une lueur sanglante.
 

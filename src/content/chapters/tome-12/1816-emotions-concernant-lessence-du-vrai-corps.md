@@ -38,7 +38,7 @@ Dès que l'empreinte dorée apparut, l'âme du dragon de feu trembla et ses yeux
 
 Wang Lin resta calme et pointa le dragon qui fuyait. L'empreinte dorée brilla intensément et s'élança vers la distance.
 
-Wang Lin ne da même pas un regard au résultat avant de se retourner vers le dragon de feu qui était réprimé par Du Qing.
+Wang Lin ne daigna même pas un regard au résultat avant de se retourner vers le dragon de feu qui était réprimé par Du Qing.
 
 Au moment où il se retourna, un grondement tonnerre retentit au loin. Un éclair de lumière dorée jaillit et l'empreinte vola vers Wang Lin. La présence du dragon de feu pouvait être ressentie à l'intérieur, et celui-ci poussa un rugissement désespéré.
 

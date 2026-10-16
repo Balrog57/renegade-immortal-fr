@@ -50,7 +50,7 @@ Un vent glacial s'en échappa avec sauvagerie tandis qu'un rugissement retentiss
 
 « Wang Lin!! Ce Dieu t'a enfin trouvé!! »
 
-Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Déformation Spatiale. Tout en fusionnant avec le monde, il se retourna pour faire face à Tuo Sen qui surgissait de la brèche. Ses yeux brillèrent d'un rouge écarlate tandis que le Domaine Ji se transformait en éclairs rouges et fonçait sur Tuo Sen.
+Wang Lin continua sa progression. Au lieu de se téléporter, il utilisa la Déformation Spatiale. Tout en fusionnant avec le monde, il se retourna pour faire face à Tuo Sen qui surgissait de la brèche. Ses yeux brillèrent d'un rouge écarlate tandis que le Royaume Ji se transformait en éclairs rouges et fonçait sur Tuo Sen.
 
 Tuo Sen afficha une expression féroce, serra le poing de sa main droite et lança un coup de poing dévastateur.
 
@@ -64,7 +64,7 @@ Son corps trembla violemment et il cracha un flot de sang. Le brouillard noir qu
 
 La main droite de Tuo Sen marqua une pause, et ses yeux brillèrent d'une lueur étrange!
 
-« Rétribution Divine du Domaine Ji!! »
+« Rétribution Divine du Royaume Ji!! »
 
 Son expression changea. Incapable de détruire les éclairs rouges à l'intérieur de lui, il les laissa continuer leur œuvre destructrice. Toutefois, le dommage restait minime comparé à l'incroyable capacité de régénération d'un Dieu Ancien. Mais Tuo Sen étant déjà blessé, cela constituait un danger latent.
 
@@ -76,7 +76,7 @@ Cette plaie portait l'aura de la Hache Brise-Ciel; il était donc extrêmement d
 
 Wang Lin n'était pas surpris de croiser Tuo Sen ici. Cependant, bien qu'il sache que Tuo Sen le traquait pour le tuer, comment Wang Lin aurait-il pu ne pas braver la mort?
 
-Une fois son corps réapparu, il agita sa main gauche et l'Épée de Sang se matérialisa. Il commença à se téléporter sans plus attendre. Outre le Domaine Ji, il possédait encore cette épée de sang!
+Une fois son corps réapparu, il agita sa main gauche et l'Épée de Sang se matérialisa. Il commença à se téléporter sans plus attendre. Outre le Royaume Ji, il possédait encore cette épée de sang!
 
 Cette arme était également un trésor de Dieu Ancien. Bien qu'elle ne fût pas à la hauteur de la Hache Brise-Ciel, elle pouvait infliger de lourds dégâts aux Dieux Anciens. Lors de son bref contact avec Tuo Sen, Wang Lin avait remarqué que ce dernier était bien plus faible que lorsqu'il l'avait affronté dans la Terre du Dieu Ancien.
 
@@ -106,7 +106,7 @@ Les hurlements de douleur déchirèrent le ciel de cette planète imprégnée de
 
 Un vieil homme vêtu de vert s'élança hors de la planète en rugissant: « Quel démon ose venir dévorer sur ma planète Devil Na?! » Une aura verte l'enveloppait. C'était un cultivateur ayant atteint le premier stade du Fléau Céleste!
 
-« Un puissant cultivateur! » Les yeux de Wang Lin devinrent glacials et il se lécha les lèvres. Soudain, son corps entier se mua en un éclair du Domaine Ji qui perça le brouillard pour frapper le vieillard.
+« Un puissant cultivateur! » Les yeux de Wang Lin devinrent glacials et il se lécha les lèvres. Soudain, son corps entier se mua en un éclair du Royaume Ji qui perça le brouillard pour frapper le vieillard.
 
 L'expression du vieil homme changea; il s'apprêtait à résister quand une voix lugubre résonna:
 

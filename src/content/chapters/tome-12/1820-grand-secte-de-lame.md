@@ -20,7 +20,7 @@ Après un long moment, Wang Lin ferma les yeux et déploya son Sens Divin. Il pe
 
 Une volonté de feu prodigieuse résidait dans ce filon principal. Cette volonté n'autorisait personne à l'envahir, et ce n'était qu'au sein même du Grand Secte de l'Âme qu'elle faiblissait considérablement.
 
-Le filon principal émergeait des profondeurs au niveau du Grand Secte de l'Âme. On pourrait dire que ce n'était pas tant le secte qui importait, mais plutôt que la montagne elle-même constituait le principal filon de feu terrestre s'étendant à la surface.
+Le filon principal émergeait des profondeurs au niveau du Grand Secte de l'Âme. On pourrait dire que ce n'était pas tant la secte qui importait, mais plutôt que la montagne elle-même constituait le principal filon de feu terrestre s'étendant à la surface.
 
 Ce n'était pas une œuvre humaine, mais le fruit de l'évolution de la nature. On ne pouvait que dire que le Grand Secte de l'Âme avait choisi un emplacement extrêmement judicieux.
 

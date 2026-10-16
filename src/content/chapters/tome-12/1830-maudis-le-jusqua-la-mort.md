@@ -30,7 +30,7 @@ Même Yan Lu, dont le visage oscillait entre l'ombre et la colère, s'inclina re
 
 Yan Lu réfléchit en silence. Elle était initialement réticente, mais en songeant aux sorts terrifiants de Wang Lin, elle hocha sobrement la tête.
 
-« Cette affaire est close pour le moment. Tout ce qui concerne l'Ancien Wang est un secret du Grand Secte de l'Âme. Quiconque enfreindra cette règle sera puni par les lois du secte! » L'Illustre Taureau Vert lança un regard solennel à l'assemblée avant que son attention ne se porte sur Wang Lin.
+« Cette affaire est close pour le moment. Tout ce qui concerne l'Ancien Wang est un secret du Grand Secte de l'Âme. Quiconque enfreindra cette règle sera puni par les lois de la secte! » L'Illustre Taureau Vert lança un regard solennel à l'assemblée avant que son attention ne se porte sur Wang Lin.
 
 « Ancien Wang, bienvenue au Grand Secte de l'Âme! » sourit l'Illustre Taureau Vert.
 

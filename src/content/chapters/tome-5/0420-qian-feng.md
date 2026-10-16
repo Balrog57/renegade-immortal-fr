@@ -48,7 +48,7 @@ De son point de vue, Wang Lin était simplement trop mesquin. Compte tenu de son
 
 Même lorsqu'il combattait le jeune maître du Clan des Immortels Abandonnés, il n'avait jamais été placé dans une position aussi humiliante.
 
-Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de mon Secte de la Raffinement de l'Âme. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
+Cette scène ravissait Du Tian. Il éclata de rire en pensant: « Ce Ceng Niu possède véritablement l'essence de ma Secte de la Raffinement de l'Âme. Si l'on doit agir, il faut savoir saisir la meilleure opportunité. »
 
 À cet instant, Qian Feng était encerclé par le sous-étendard des âmes d'un milliard. Les innombrables fragments d'âmes créaient une pression écrasante, particulièrement les douze âmes primaires qui représentaient un danger mortel pour lui.
 
@@ -104,7 +104,7 @@ Qian Feng ne daigna même pas regarder Papillon Rouge; il continuait de fixer l'
 
 Wang Lin et Du Tian regagnèrent rapidement la Secte de la Raffinement de l'Âme.
 
-Le Secte était resté tel qu'ils l'avaient laissé. À leur retour, Du Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
+La Secte était resté tel qu'ils l'avaient laissé. À leur retour, Du Tian ne prit même pas de repos avant d'emmener Wang Lin directement vers la montagne arrière.
 
 Une fois à l'intérieur, Du Tian tendit un sac de rangement à Wang Lin. Il le regarda et dit: « Concentre-toi uniquement sur l'atteinte du stade de la Transformation de l'Âme. Avec moi pour te protéger, tant que je serai en vie, personne ne t'importunera! »
 
@@ -126,6 +126,6 @@ Une pointe de tristesse apparut dans ses yeux alors qu'il murmurait: « Ancêtre
 
 Il désigna l'étendard et une âme primaire s'en échappa. Cette âme affichait une expression douce et dégageait une aura céleste.
 
-Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan des Immortels Abandonnés et le pays de Suzaku, notre Secte de la Raffinement de l'Âme sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider mon Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
+Du Tian fixa l'âme. Il soupira et murmura pour lui-même: « Grand frère apprenti, je ne sais pas si j'ai raison ou tort d'avoir confié l'étendard à Ceng Niu. Cependant, avec la guerre entre le Clan des Immortels Abandonnés et le pays de Suzaku, notre Secte de la Raffinement de l'Âme sera difficile à sauver. Mais ce Ceng Niu quittera la planète, il pourra ainsi aider ma Secte à renaître ailleurs. C'est peut-être là le véritable sens de votre prédiction... »
 
-Du Tian regarda l'âme primaire si paisible et murmura: « J'ai vécu ma vie non pas en espérant l'éternité, mais en espérant mourir en paix. Tous les anciens de mon Secte ont volontairement renoncé au cycle de la réincarnation et ont effacé leur conscience pour devenir des âmes primaires. Moi, Du Tian, je ne ferai pas exception! Grand frère apprenti, attends-moi! Je te rejoindrai bientôt! »
+Du Tian regarda l'âme primaire si paisible et murmura: « J'ai vécu ma vie non pas en espérant l'éternité, mais en espérant mourir en paix. Tous les anciens de ma Secte ont volontairement renoncé au cycle de la réincarnation et ont effacé leur conscience pour devenir des âmes primaires. Moi, Du Tian, je ne ferai pas exception! Grand frère apprenti, attends-moi! Je te rejoindrai bientôt! »

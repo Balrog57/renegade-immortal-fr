@@ -78,7 +78,7 @@ L'homme regarda avec regret le champ d'étoiles ardent et les planètes lointain
 
 Il lança un dernier regard profond à Wang Lin avant de se détourner. Il marchait avec élégance, comme s'il venait d'être libéré de millénaires de pression.
 
-« Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Je fus le disciple alchimiste de la quatrième génération de l'Empereur Divin Vermillion Bird. Je suis reconnaissant envers lui de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de mon Secte...
+« Mon nom est Lu Yun, et je suis né dans l'ancien monde des raffineurs de Qi. Je fus le disciple alchimiste de la quatrième génération de l'Empereur Divin Vermillion Bird. Je suis reconnaissant envers lui de ne pas m'avoir abandonné et de m'avoir enseigné la culture du Qi. À l'âge de 1 327 ans, j'ai accompli mes premiers succès en tant que raffineur de Qi. J'ai suivi l'Empereur Divin et été témoin de la gloire de ma Secte...
 
 À l'âge de 2 945 ans, je devins un ancien de la Secte Divin Vermillion Bird.
 À l'âge de 4 760 ans, je devins l'un des anciens principaux et franchis ma première Affliction Céleste.
@@ -91,7 +91,7 @@ C'est alors que j'appris un secret qui fait trembler les cieux sur nos Quatre Se
 
 En même temps, je découvris que les premiers Empereurs et membres des Quatre Sectes provenaient d'une petite planète de culture, à l'époque où le Royaume Céleste Antique existait encore. Cette planète est la racine de nos quatre sectes, mais aussi la route du retour...
 
-Cette planète est toujours sous le contrôle de mon Secte Divin Vermillion Bird, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
+Cette planète est toujours sous le contrôle de ma Secte Divin Vermillion Bird, et les trois autres sectes n'y ont jamais objecté, car peu de gens en étaient informés. Afin de prévenir tout incident futur, cela fut devenu le secret le plus profond au sein des Quatre Sectes depuis la première génération d'Empereurs. Même l'Empereur Céleste Qing Lin l'ignorait.
 
 Après que les quatre Empereurs Divins eurent pris le contrôle du Système Stellaire du Vide Brillant, ils créèrent de nombreuses planètes similaires. En multipliant ces mondes pour égarer les esprits, presque personne ne put identifier la planète originelle. De plus, la première génération d'Empereurs utilisa diverses méthodes pour la dissimuler, garantissant qu'elle ne soit pas découverte, même après des millénaires.
 

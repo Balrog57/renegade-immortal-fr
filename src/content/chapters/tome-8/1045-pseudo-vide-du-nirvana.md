@@ -68,7 +68,7 @@ En examinant attentivement le pavillon, les yeux de Wang Lin s'illuminèrent: il
 
 « À en juger par l'état de cette restriction, elle n'a pas été brisée il y a longtemps », pensa Wang Lin, devenant extrêmement prudent. Il était évident qu'il n'était pas le seul à comprendre les mécanismes de ce lieu.
 
-« Lors de l'effondrement du Lac Funéraire Céleste, tout le monde fut dispersé. Il doit y avoir des gens qui ont brisé la restriction avant moi; je ne sais juste pas qui ils sont. » Wang Lin observa les environs. Le premier étage de la Grotte de l'Empereur Céleste n'était pas vaste et pouvait être aisément couvert par son sens divin. Cependant, à moins d'être fou, personne n'oserait étendre son sens divin dans un endroit parsemé de tant de restrictions. Même le Tout-Voyant aurait été très prudent et ne l'aurait fait qu'en étant acculé.
+« Lors de l'effondrement du Lac Funéraire Céleste, tout le monde fut dispersé. Il doit y avoir des gens qui ont brisé la restriction avant moi; je ne sais juste pas qui ils sont. » Wang Lin observa les environs. Le premier étage de la Grotte de l'Empereur Céleste n'était pas vaste et pouvait être aisément couvert par son sens divin. Cependant, à moins d'être fou, personne n'oserait étendre son sens divin dans un endroit parsemé de tant de restrictions. Même l'Omniscient aurait été très prudent et ne l'aurait fait qu'en étant acculé.
 
 Après une courte réflexion, Wang Lin contourna le pavillon et s'avança dans l'herbe. Ses yeux brillaient d'une lueur analytique. Sans s'arrêter, il continua sa course.
 

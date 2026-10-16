@@ -12,13 +12,13 @@ Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système St
 
 À l'origine, la Secte des Cadavres n'avait aucune intention de s'impliquer; il préférait rester en retrait pour profiter de la situation, car il semblait que qu'il s'agisse d'Allheaven ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte des Cadavres.
 
-Le Secte des Cadavres se souciait peu du fait que les cultivateurs d'Allheaven fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. Le Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
+La Secte des Cadavres se souciait peu du fait que les cultivateurs d'Allheaven fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
 
 Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte des Cadavres, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Premier Roi ainsi que le Maître de la Secte des Cadavres à sortir de leur retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
 
 En fin de compte, le Premier Roi de la Secte des Cadavres fut totalement vaincu. Si ce n'était pas pour les autres motivations de l'Empereur Divin du Dragon Azure, il lui aurait été facile de l'exterminer!
 
-Cette bataille avait profondément ébranlé la Secte des Cadavres et leur avait fait prendre la mesure de la puissance des Quatre Sectes Divines. Ils éprouvèrent également une terreur extrême envers l'Empereur Divin du Dragon Azure. Le Secte des Cadavres fut contraint d'obéir aux ordres des Quatre Sectes Divines et entama sa guerre contre Allheaven!
+Cette bataille avait profondément ébranlé la Secte des Cadavres et leur avait fait prendre la mesure de la puissance des Quatre Sectes Divines. Ils éprouvèrent également une terreur extrême envers l'Empereur Divin du Dragon Azure. La Secte des Cadavres fut contraint d'obéir aux ordres des Quatre Sectes Divines et entama sa guerre contre Allheaven!
 
 Ce fut un affrontement titanesque entre les deux systèmes stellaires. C'est au cours de cette guerre que Tuo Sen s'éveilla et brisa la formation entourant la planète Suzaku!
 

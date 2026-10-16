@@ -8,7 +8,7 @@ slug: reprimande-au-secte-everlasting-8
 ---
 « Merci, Compagnon Cultivateur Lu, pour votre clémence! » Le visage de Du Lin était livide alors qu'il joignait les mains. Le sang coulait du coin de sa bouche et il s'éclipsa rapidement sous la pluie, le dos empreint d'une profonde défaite.
 
-En tant que Grand Ancien de la Vallée des Pins Pourpres de rang 7 et l'une des figures centrales du secte principal, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
+En tant que Grand Ancien de la Vallée des Pins Pourpres de rang 7 et l'une des figures centrales de la secte principal, une quantité immense de pilules lui avait été octroyée. Même de puissants cultivateurs étaient venus lui enseigner le Dao; il pensait avoir atteint les sommets. Pourtant, aujourd'hui, son adversaire ne s'était même pas pleinement déployé. Un seul sort capable d'extraire l'âme de la planète l'avait pourtant terrassé!
 
 En vérité, lorsqu'il avait vu Wang Lin extraire l'âme de la planète, il avait su qu'il était perdu. Il espérait néanmoins pouvoir résister un instant ou deux. Mais la réalité était cruelle: ce fut une défaite totale.
 
@@ -74,7 +74,7 @@ Le regard de Li Qianmei se glaça et une intention meurtrière jaillit de son co
 
 Les yeux de Mu Bingmei devinrent froids et l'énergie originelle en elle s'agita, révélant sa culture de Briseur du Nirvana. Ses mains formèrent un sceau et elle s'apprêtait à attaquer, mais elle sentit immédiatement une force irrésistible la subjuguer, rendant toute utilisation de sa culture impossible.
 
-La puissance du Maître de la Secte Éternelle était désormais révélée au monde. Être capable de diriger un secte de rang 8 signifiait que sa culture dépassait l'entendement!
+La puissance du Maître de la Secte Éternelle était désormais révélée au monde. Être capable de diriger une secte de rang 8 signifiait que sa culture dépassait l'entendement!
 
 Le visage de Mu Bingmei pâlit. Elle percevait l'intention meurtrière tapie dans la pression du Maître de la Secte. Bien qu'il s'agisse probablement d'un simulacre, cette inquiétude troublait son esprit. N'ayant pas le temps de réfléchir, elle forma un sceau étrange, un sort transmis par des générations de Saintesses du Vide Brillant.
 

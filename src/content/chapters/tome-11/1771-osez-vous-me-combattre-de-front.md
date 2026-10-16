@@ -122,4 +122,4 @@ Tang Shan ne resta pas en retrait non plus. Elle n'hésita pas à former un scea
 
 La plupart des sorts étaient orientés vers l'attaque, et même les sorts de protection ne pouvaient généralement être utilisés que sur soi-même. Ceux capables d'agir sur autrui étaient extrêmement rares. C'était la première fois que Wang Lin voyait un tel sort capable de protéger quelqu'un d'autre!
 
-Le Secte des Portes Célestes auquel appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des treize grands secteurs, mais il restait célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!
+La Secte des Portes Célestes auquel appartenait Tang Shan n'était qu'une petite secte et ne faisait pas partie des treize grands secteurs, mais il restait célèbre. La raison en était simple: la plupart de leurs sorts étaient des techniques de protection conçues pour protéger les autres!

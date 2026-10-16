@@ -96,9 +96,9 @@ La silhouette semblait sur le point de rompre. Wang Lin poussa un rugissement et
 
 Au moment où elles furent renvoyées, la silhouette lumineuse s'effondra. Le visage de Wang Lin était livide, mais ses yeux brûlaient d'une intention meurtrière. Un éclat sanglant jaillit et l'épée de sang suivit les ondes de choc réfléchies!
 
-« Meurs! » La marque de tonnerre dans son œil droit clignota, dégageant un flux démoniaque, et s'élança après l'épée de sang. Ses yeux devinrent rouges et son Domaine Ji fut projeté simultanément!
+« Meurs! » La marque de tonnerre dans son œil droit clignota, dégageant un flux démoniaque, et s'élança après l'épée de sang. Ses yeux devinrent rouges et son Royaume Ji fut projeté simultanément!
 
-Tout se passa à une vitesse fulgurante. En un instant, les ondes réfléchies furent projetées avec l'épée de sang, l'essence du tonnerre et la foudre du Domaine Ji!
+Tout se passa à une vitesse fulgurante. En un instant, les ondes réfléchies furent projetées avec l'épée de sang, l'essence du tonnerre et la foudre du Royaume Ji!
 
 L'Ancien, en reculant, agita la main pour résister à la puissance des ondes. Cependant, à cet instant, son expression changea radicalement et ses yeux furent remplis d'un choc total! Il n'aurait jamais pu imaginer que Wang Lin soit aussi audacieux et accomplisse une chose aussi incroyable dans une telle situation!
 
@@ -116,6 +116,6 @@ Cependant, à cet instant précis, un rugissement assourdissant chargé d'une co
 
 C'était l'Ancien en chef du Clan du Tonnerre Éparpillé, mais il était plus puissant qu'auparavant. Son aura colossale formait une tempête autour de lui; il était infiniment proche de la troisième étape!
 
-Ses vêtements étaient en lambeaux et un trou percé par l'épée de sang marquait sa poitrine. Une fissure barrait la marque entre ses sourcils, causée par le Domaine Ji. Son corps était couvert de blessures dues à l'essence de tonnerre de Wang Lin, et son âme originelle était également endommagée par les ondes de choc!
+Ses vêtements étaient en lambeaux et un trou percé par l'épée de sang marquait sa poitrine. Une fissure barrait la marque entre ses sourcils, causée par le Royaume Ji. Son corps était couvert de blessures dues à l'essence de tonnerre de Wang Lin, et son âme originelle était également endommagée par les ondes de choc!
 
 « Tu es mort! Avec ma vitalité infinie du cinquième Fléau Céleste, avec mon statut d'esclave de l'Éclair Éternel... j'ouvre le monde ancien et j'invoque l'ancien... Dragon du Tonnerre!!! »

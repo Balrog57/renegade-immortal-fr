@@ -6,13 +6,13 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 174 - The devils mutation
 slug: la-mutation-du-demon
 ---
-Le regard de Wang Lin devint glacial tandis qu'il fixait le nouveau démon. Son Domaine Ji quitta son corps, prit la forme d'un dragon rouge, puis poussa un rugissement contre la petite créature.
+Le regard de Wang Lin devint glacial tandis qu'il fixait le nouveau démon. Son Royaume Ji quitta son corps, prit la forme d'un dragon rouge, puis poussa un rugissement contre la petite créature.
 
 Sa majesté de dévoreur d'âmes se manifesta soudainement avec éclat. Sans parler de la petite créature, même le démon Xu Liguo fut si terrifié qu'il s'effondra au sol, n'osant plus bouger. La pression d'un prédateur naturel fit trembler son cœur.
 
 La petite bête commença à se débattre en émettant ses propres rugissements, mais comparés au cri de Wang Lin, ils étaient empreints d'impuissance. La petite créature finit par supplier de grâce par le regard.
 
-Le dragon formé par le Domaine Ji de Wang Lin fixa froidement la petite créature pendant un long moment avant de finalement retourner dans son corps. Il agita ensuite la main et sortit un étendard d'âmes. Le démon n'hésita pas une seconde: il se transforma en brume rouge pour s'engouffrer dans l'étendard.
+Le dragon formé par le Royaume Ji de Wang Lin fixa froidement la petite créature pendant un long moment avant de finalement retourner dans son corps. Il agita ensuite la main et sortit un étendard d'âmes. Le démon n'hésita pas une seconde: il se transforma en brume rouge pour s'engouffrer dans l'étendard.
 
 Wang Lin laissa une parcelle de son Sens Divin dans l'étendard avant de le ranger dans son sac de rangement. Puis, d'un revers de main, des fils apparurent dans toute la pièce. C'était une contre-mesure qu'il avait mise en place contre le démon.
 
@@ -100,6 +100,6 @@ Xu Liguo sourit immédiatement, affichant une expression de soumission envers le
 
 Il grommela intérieurement: « Tu attends! Attends seulement! Pousse-moi trop loin et je me battrai contre toi à mort! »
 
-Wang Lin ne da même pas un regard à Xu Liguo. Il tenait secrètement la pierre de jade que Li Muwan lui avait donnée. Son Sens Divin se déploya pour inspecter les petites créatures une à une. Finalement, il découvrit qu'une dizaine d'entre elles étaient des mutants, car elles possédaient des Sens Divins bien plus puissants.
+Wang Lin ne daigna même pas un regard à Xu Liguo. Il tenait secrètement la pierre de jade que Li Muwan lui avait donnée. Son Sens Divin se déploya pour inspecter les petites créatures une à une. Finalement, il découvrit qu'une dizaine d'entre elles étaient des mutants, car elles possédaient des Sens Divins bien plus puissants.
 
 Alors qu'il observait, Wang Lin parvint à identifier un total de dix variantes, avant que l'une d'elles ne s'élance soudainement devant le second démon en poussant plusieurs cris aigus.

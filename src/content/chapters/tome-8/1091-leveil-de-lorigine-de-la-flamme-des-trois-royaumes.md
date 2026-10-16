@@ -31,7 +31,7 @@ Enfin, lorsque Wang Lin atteignit la dernière planète de la Secte Divin de l'O
 
 Les rugissements tonitruants qui résonnèrent remplacèrent tout autre son dans la voûte étoilée.
 
-La planète principale finale de la Secte Divin de l'Oiseau Vermillon était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres du secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
+La planète principale finale de la Secte Divin de l'Oiseau Vermillon était également celle où se trouvait Ren Tao. À cet instant, en entendant les membres de la secte acclamer son rival à ses côtés, son expression devint encore plus sombre. Il fixa Wang Lin d'un regard venimeux.
 
 Près de lui, Liao Yun regardait Ren Tao avec dédain. Il s'élança dans les airs vers Wang Lin, qui était entouré d'une foule immense, et dit respectueusement: « Liao Yun salue le Divin Empereur! » Il était empreint de révérence. Personne ne connaissait mieux Wang Lin que ceux qui s'étaient rendus sur la Terre des Esprits Démoniaques, et il en faisait partie.
 
@@ -39,13 +39,13 @@ Le sortilège de Wang Lin avait suscité l'admiration totale de ceux qui avaient
 
 Feng Shan hésita un instant avant de s'envoler également pour saluer Wang Lin aux côtés de Liao Yun.
 
-La majorité des membres du secte présents sur la planète accueillirent joyeusement Wang Lin.
+La majorité des membres de la secte présents sur la planète accueillirent joyeusement Wang Lin.
 
 Les visages sombres de Ren Tao, des quelques anciens et des autres fidèles, formaient un contraste saisissant avec l'allégresse générale.
 
 Ren Tao redressa brusquement la tête pour fixer Wang Lin, qui souriait avec la foule, et hurla: « Wang Lin, je te défie! » Il n'avait pas le choix. Si Wang Lin poursuivait ainsi, il n'aurait plus aucune chance de devenir le Divin Empereur.
 
-Au sein de la Secte Divin de l'Oiseau Vermillon, le Divin Empereur était un dieu! Quiconque osait s'opposer à lui devenait l'ennemi de tout le secte. Cependant, il existait une loi au sein de la Secte qui donnait à Ren Tao l'audace de défier Wang Lin!
+Au sein de la Secte Divin de l'Oiseau Vermillon, le Divin Empereur était un dieu! Quiconque osait s'opposer à lui devenait l'ennemi de tout la secte. Cependant, il existait une loi au sein de la Secte qui donnait à Ren Tao l'audace de défier Wang Lin!
 
 Ce rugissement traversa les étoiles et imposa immédiatement le silence. Tous les regards se tournèrent vers Ren Tao.
 
@@ -59,7 +59,7 @@ Les trois vieillards derrière Ren Tao firent un pas en avant pour l'entourer, p
 
 « Ren Tao, oses-tu?! Allez-vous tous les trois vous opposer ouvertement au commandement du vieil empereur? » Un grand homme s'avança de la foule. C'était l'un des anciens du stade Briseur du Nirvana qui s'était trouvé sur la Terre des Esprits Démoniaques.
 
-« Ancien Zhou, les lois de mon Secte Divin de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai? »
+« Ancien Zhou, les lois de ma Secte Divin de l'Oiseau Vermillon stipulent que lorsqu'un Divin Empereur transmet son titre au suivant, tous les membres ont le droit de contester sa position. N'est-ce pas vrai? »
 
 « Idiot téméraire! » Un éclair de froideur passa dans les yeux de l'Ancien Zhou. Il ricana mais n'intervint pas et recula de quelques pas.
 
@@ -87,7 +87,7 @@ Non seulement la Nuit Déchirée avait tué Maître Vide, mais deux avatars de l
 
 « Quoi qu'il en soit, tu es un membre de la Secte Divin de l'Oiseau Vermillon, je t'accorderai donc une mort par les flammes! » Wang Lin agita sa main droite et, à cet instant, un corps spirituel fantomatique apparut derrière lui.
 
-« Neuf Transformations Mystérieuses! » Dès l'apparition de cet esprit, une agitation immense parcourut les membres du secte. Des regards encore plus exaltés se tournèrent vers Wang Lin!
+« Neuf Transformations Mystérieuses! » Dès l'apparition de cet esprit, une agitation immense parcourut les membres de la secte. Des regards encore plus exaltés se tournèrent vers Wang Lin!
 
 Les Neuf Transformations Mystérieuses étaient un sortilège que seul le Divin Empereur pouvait apprendre.
 

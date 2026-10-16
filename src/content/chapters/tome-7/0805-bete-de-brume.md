@@ -92,7 +92,7 @@ Outre lui, tous les cultivateurs environnants brandissaient leurs trésors. Leur
 
 Les yeux de Wang Lin s'illuminèrent et, d'un mouvement du doigt, il fit s'envoler le sceau fragmentaire. Le corps de l'individu nommé Ta Shan était brisé en de multiples endroits et le sang s'écoulait de tous ses orifices. Pourtant, il n'était pas mort, et son regard vers Wang Lin était chargé d'une intention de combat ardente.
 
-Wang Lin ne da pas attention à cet homme, mais fixa les bêtes formées par la brume. Ses yeux continuaient de luire tandis qu'il observait ces créatures.
+Wang Lin ne daigna pas attention à cet homme, mais fixa les bêtes formées par la brume. Ses yeux continuaient de luire tandis qu'il observait ces créatures.
 
 Ces bêtes de brume venaient tout juste de se former; elles possédaient des corps, mais leurs esprits n'étaient pas encore lucides. De plus, la réaction du clan fut extrêmement rapide et ils possédaient une grande expérience dans le combat contre ces entités. En un instant, de nombreuses bêtes furent aspirées par les trésors.
 

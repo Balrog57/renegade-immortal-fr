@@ -48,7 +48,7 @@ Xu Liguo tenait un homme. Ses vêtements étaient en lambeaux, comme s'il venait
 
 « Maître, avez-vous besoin d'aide? Ce petit vous garantit qu'il fera du bon travail, et ce ne sera pas comme au Clan du Tonnerre Dispersé! » Xu Liguo jeta Liu Jinbiao sur le côté et se frotta les mains avec empressement.
 
-Wang Lin ne da pas un regard à Xu Liguo, mais fixa Liu Jinbiao, qui se mit à trembler. Son cœur était envahi par une peur indicible. Après avoir été jeté dans l'espace de stockage, il avait subi les tourments de Xu Liguo. Il était dévasté et misérable; chaque pensée évoquant Xu Liguo était pour lui un véritable cauchemar.
+Wang Lin ne daigna pas un regard à Xu Liguo, mais fixa Liu Jinbiao, qui se mit à trembler. Son cœur était envahi par une peur indicible. Après avoir été jeté dans l'espace de stockage, il avait subi les tourments de Xu Liguo. Il était dévasté et misérable; chaque pensée évoquant Xu Liguo était pour lui un véritable cauchemar.
 
 Wang Lin demanda lentement: « Liu Jinbiao... admets-tu tes torts? »
 

@@ -10,7 +10,7 @@ Une âme originelle de dragon antique était absolument prodigieuse aux yeux de 
 
 Lorsque l'ancêtre posa le regard sur l'âme originelle de Wang Lin, ses yeux trahirent une expression complexe. Il poussa un soupir, s'avança et joignit les mains. « Haut... Haut Céleste, cet humble serviteur souhaiterait vous demander... »
 
-Wang Lin ne da aucune attention au vieil homme. Il atteignit le char de guerre. Après avoir fixé la sixième rune un instant, Wang Lin la dévora sans la moindre hésitation. Puis, il dévora directement la septième rune également.
+Wang Lin ne daigna aucune attention au vieil homme. Il atteignit le char de guerre. Après avoir fixé la sixième rune un instant, Wang Lin la dévora sans la moindre hésitation. Puis, il dévora directement la septième rune également.
 
 Cette scène fit plisser les yeux de l'assistance qui observa la scène avec une attention accrue.
 

@@ -62,9 +62,9 @@ La terreur se lut dans ses yeux et, tout comme Maître Flamespark, il contempla 
 
 « Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de bataille? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse me sauver! Il... il est devenu si puissant!! »
 
-Blood God ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
+Dieu de Sang ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
 
-En tant qu'ancêtre de la famille Yao, en tant que Blood God d'Allheaven, il était extrêmement hautain. Il avait rarement connu l'état de tremblement, mais à présent, il avait véritablement peur!
+En tant qu'ancêtre de la famille Yao, en tant que Dieu de Sang d'Allheaven, il était extrêmement hautain. Il avait rarement connu l'état de tremblement, mais à présent, il avait véritablement peur!
 
 La force de Wang Lin lui inspirait une crainte telle qu'il se sentait impuissant. En voyant l'expression de Maître Lu Fu vaciller, le désespoir l'envahit. Pourtant, une infime lueur d'espoir subsistait dans son cœur:
 
@@ -88,15 +88,15 @@ Wang Lin esquissa un léger sourire et continua de progresser vers le vortex.
 
 « Sur la planète Suzaku, nous faisions équipe et pouvions être considérés comme amis. Normalement, je devrais être heureux de vous voir, compagnon cultivateur, mais pourquoi avez-vous tué onze de ceux qui aidaient à l'installation de la formation? » Les yeux de Maître Lu Fu se plissèrent, une lueur glaciale les traversant.
 
-L'expression de Wang Lin resta neutre. Il leva la main pour désigner Blood God, aux côtés de Maître Lu Fu, et dit lentement: « J'ai naturellement mes propres raisons pour les avoir tués. Il n'y a pas de querelle entre nous, et je n'ai aucune intention de vous combattre. Je ne veux que cette personne! »
+L'expression de Wang Lin resta neutre. Il leva la main pour désigner Dieu de Sang, aux côtés de Maître Lu Fu, et dit lentement: « J'ai naturellement mes propres raisons pour les avoir tués. Il n'y a pas de querelle entre nous, et je n'ai aucune intention de vous combattre. Je ne veux que cette personne! »
 
-L'esprit de Blood God vacilla et tout le sang quitta son visage. C'était comme si toute sa vitalité avait été tranchée par le simple geste du doigt de Wang Lin.
+L'esprit de Dieu de Sang vacilla et tout le sang quitta son visage. C'était comme si toute sa vitalité avait été tranchée par le simple geste du doigt de Wang Lin.
 
 Wang Lin s'arrêta à mille pieds du vortex. L'homme devant lui était l'ancêtre d'Allheaven, une force majeure dans la lutte contre le Royaume Extérieur. Sur la planète Suzaku, ils avaient collaboré un court instant. Bien que Wang Lin ne se soucie guère de son rang, il entendait lui témoigner le respect dû à un cultivateur du troisième pas.
 
 L'expression de Maître Lu Fu devint sombre et une hésitation perla dans ses yeux.
 
-« Maître Lu Fu!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Blood God était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
+« Maître Lu Fu!! Seul Junior peut vous emmener dans cet endroit... » Le visage de Dieu de Sang était livide, empreint de désespoir. Mais alors qu'il parlait, Maître Lu Fu l'interrompit.
 
 « Ce vieil homme prendra sa propre décision! »
 

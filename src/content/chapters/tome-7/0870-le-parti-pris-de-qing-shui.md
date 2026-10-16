@@ -10,9 +10,9 @@ Le visage de Wang Lin était d'une pâleur mortelle lorsqu'il sentit soudainemen
 
 Quant à Luo Su, il cracha lui aussi un flot de sang et fut forcé de reculer. Une fois stabilisé, il fixa Wang Lin d'un regard meurtrier.
 
-Le Maître Flamespark n'avait pris parti pour aucun des deux camps lorsqu'il les sépara de force. Cependant, le sang versé par Wang Lin avait provoqué l'irruption du Domaine Ji de Qing Shui!
+Le Maître Flamespark n'avait pris parti pour aucun des deux camps lorsqu'il les sépara de force. Cependant, le sang versé par Wang Lin avait provoqué l'irruption du Royaume Ji de Qing Shui!
 
-« Il n'est pas quelqu'un que tu peux tuer. Tu n'en as pas la qualification! » Le Domaine Ji apparut et le monde changea de teintes. Une aura glaciale enveloppa les environs!
+« Il n'est pas quelqu'un que tu peux tuer. Tu n'en as pas la qualification! » Le Royaume Ji apparut et le monde changea de teintes. Une aura glaciale enveloppa les environs!
 
 Cette aura froide était imprégnée d'une force extrême. Les expressions des vieux monstres installés sur les tapis de prière changèrent toutes. C'était la première fois qu'ils contemplaient le sortilège le plus puissant du Seigneur Céleste Qing Shui!
 
@@ -38,7 +38,7 @@ Qing Shui répondit calmement: « Tu as fait cracher le sang à Xu Mu, alors j'a
 
 Le Maître Flamespark fixa Qing Shui et tonna: « Je n'avais aucun parti pris auparavant. Qing Shui, si tu ne me donnes pas d'explication, alors même si nous devons renoncer à la compétition pour le titre céleste, je me battrai contre toi! »
 
-« Ce n'était qu'un accident. Si tu veux te battre, alors battons-nous! » L'œil droit de Qing Shui brilla d'un éclat rouge. Ayant absorbé la rétribution divine, son Domaine Ji s'était quelque peu restauré. Ses vieilles habitudes commençaient déjà à refaire surface.
+« Ce n'était qu'un accident. Si tu veux te battre, alors battons-nous! » L'œil droit de Qing Shui brilla d'un éclat rouge. Ayant absorbé la rétribution divine, son Royaume Ji s'était quelque peu restauré. Ses vieilles habitudes commençaient déjà à refaire surface.
 
 Il n'était pas nécessaire de tuer Luo Su. S'il y avait une raison, c'est parce que Qing Shui faisait preuve de partialité! Il ne pouvait rendre la pareille à la bonté de son maître. Même si celui-ci n'avait fait qu'une plaisanterie à l'époque, il était désormais d'un sérieux absolu et tenait chaque parole de son maître pour sacrée. Dans son cœur, Xu Mu était son frère cadet, et tant qu'il serait là, personne n'aurait le droit de s'en prendre à lui! De plus, Qing Shui avait clairement décelé l'intention meurtrière dans les yeux de Luo Su. Il se devait d'éliminer un tel individu!
 
@@ -72,7 +72,7 @@ Les murmures de la foule parvinrent aux oreilles du Maître Flamespark. Il regar
 
 Qing Shui ferma les yeux et ne répondit pas.
 
-Le Maître Flamespark soupira intérieurement. C'était lui qui avait brisé le sceau de Qing Shui. Bien que la culture de ce dernier ne fût pas totalement restaurée, une observation attentive lui avait permis de déceler une puissance cachée dans le corps de Qing Shui. Cette force n'était pas son Domaine Ji, mais elle lui inspirait tout de même une crainte profonde; il ne voulait donc pas qu'une futilité de cette nature ne vienne entacher leur relation.
+Le Maître Flamespark soupira intérieurement. C'était lui qui avait brisé le sceau de Qing Shui. Bien que la culture de ce dernier ne fût pas totalement restaurée, une observation attentive lui avait permis de déceler une puissance cachée dans le corps de Qing Shui. Cette force n'était pas son Royaume Ji, mais elle lui inspirait tout de même une crainte profonde; il ne voulait donc pas qu'une futilité de cette nature ne vienne entacher leur relation.
 
 Plus important encore, l'éminent aîné qui avait capturé la Bête Lunaire lui avait lui-même conseillé de ne pas provoquer Qing Shui. À l'époque, même Bai Fan avait utilisé la bienveillance en le prenant comme apprenti pour rallier Qing Shui à sa cause, plutôt que d'utiliser la force pour le soumettre.
 

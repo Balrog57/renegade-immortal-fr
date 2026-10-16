@@ -92,7 +92,7 @@ L'expression de Wang Lin resta imperturbable. Il ne connaissait que deux personn
 
 « Qu'en est-il de la Secte Gui Yi? Cette secte se trouve également sur le Continent du Taureau Céleste. Comment se compare-t-elle au Grand Secte des Âmes? » Le niveau de culture de Kang Ren n'étant pas élevé, il ne pouvait rivaliser avec Du Qing en termes de connaissances. Wang Lin ne disposait que de peu d'informations extraites de lui.
 
-« Le Secte Gui Yi est très puissant et semble actuellement surpasser légèrement le Grand Secte des Âmes. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein de la Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un! »
+« La Secte Gui Yi est très puissant et semble actuellement surpasser légèrement le Grand Secte des Âmes. Le classement des neuf sectes et treize factions pourrait changer. Ces dernières années, un disciple nommé Yun Yifeng a émergé au sein de la Secte Gui Yi. Sa culture est impressionnante et son talent immense. Hormis la génération plus ancienne, c'est l'expert numéro un! »
 
 « J'ai eu des contacts avec cet homme. Il est extraordinaire! » Du Qing se remémora comment Yun Yifeng, d'un simple revers de sabre, avait contraint plusieurs membres du Grand Secte des Âmes à battre en retraite.
 

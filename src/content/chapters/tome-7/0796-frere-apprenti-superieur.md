@@ -22,15 +22,15 @@ Cependant, la rumeur veut que ce parchemin détienne la véritable raison de l'e
 
 Qing Shui, nous ne sommes pas ennemis! Si ces raisons vous déplaisent toujours, alors ne disons plus rien et en décidons par le combat. Je ne me retiendrai pas et j'utiliserai toute la puissance de ce trésor magique! » Une lueur d'intention meurtrière traversa les yeux du Maître Flamespark. Les quarante-neuf fragments cessèrent soudainement de tourner, mais une aura terrifiante s'en échappa.
 
-Qing Shui regarda froidement le Maître Flamespark, tandis qu'une aura glaciale se propageait lentement autour de lui. Le cœur du Maître Flamespark sombra et il poussa un soupir. Il avait vraiment tout tenté. Durant des dizaines de milliers d'années, il avait épluché les archives du Royaume Céleste pour traquer les causes et les conséquences de nombreux événements. Finalement, il s'était lancé dans le raffinage du Royaume Céleste et l'obtention du Domaine Ji pour l'assister.
+Qing Shui regarda froidement le Maître Flamespark, tandis qu'une aura glaciale se propageait lentement autour de lui. Le cœur du Maître Flamespark sombra et il poussa un soupir. Il avait vraiment tout tenté. Durant des dizaines de milliers d'années, il avait épluché les archives du Royaume Céleste pour traquer les causes et les conséquences de nombreux événements. Finalement, il s'était lancé dans le raffinage du Royaume Céleste et l'obtention du Royaume Ji pour l'assister.
 
 Hélas, il ne s'attendait pas à ce que le résultat soit tel qu'il se présentait.
 
-Qing Shui dit calmement: « Si vous mentez, je ferai exploser le Domaine Ji! » Son œil droit brilla d'un rouge éclatant et un rayon de lumière pourpre jaillit instantanément. Au moment où l'éclair s'approcha, toute la glace entourant le Maître Flamespark disparut. La foudre fonça directement vers l'un des fragments devant lui.
+Qing Shui dit calmement: « Si vous mentez, je ferai exploser le Royaume Ji! » Son œil droit brilla d'un rouge éclatant et un rayon de lumière pourpre jaillit instantanément. Au moment où l'éclair s'approcha, toute la glace entourant le Maître Flamespark disparut. La foudre fonça directement vers l'un des fragments devant lui.
 
-Peu après, des éclairs du Domaine Ji jaillirent de l'œil droit de Qing Shui pour frapper chacun des fragments.
+Peu après, des éclairs du Royaume Ji jaillirent de l'œil droit de Qing Shui pour frapper chacun des fragments.
 
-L'intégralité du trésor de la Formation Céleste dégageait une aura glaciale et des lueurs d'éclairs rouges. L'objet tout entier exsudait l'aura du Domaine Ji.
+L'intégralité du trésor de la Formation Céleste dégageait une aura glaciale et des lueurs d'éclairs rouges. L'objet tout entier exsudait l'aura du Royaume Ji.
 
 « Le Seigneur Céleste peut être rassuré, ce vieil homme ne ment pas! » rit le Maître Flamespark en formant un sceau de la main droite avant de la presser en avant. Les quarante-neuf fragments tournèrent dans le ciel, formant un immense vortex noir.
 
@@ -58,7 +58,7 @@ Le vent résonnait à travers le Royaume Céleste du Tonnerre comme des gémisse
 
 Alors qu'il volait, Wang Lin était incapable de fusionner avec le monde. Il devait naviguer avec précaution pour éviter les fissures spatiales, errant sans but dans le Royaume Céleste du Tonnerre.
 
-« La porte céleste est fermée, comment pourrais-je quitter cet endroit... De plus, ce Seigneur Céleste Qing Shui... aurait-il remarqué que j'ai autrefois possédé le Domaine Ji... »
+« La porte céleste est fermée, comment pourrais-je quitter cet endroit... De plus, ce Seigneur Céleste Qing Shui... aurait-il remarqué que j'ai autrefois possédé le Royaume Ji... »
 
 La silhouette de Wang Lin vacilla alors qu'il esquivait une faille spatiale, puis, comme si un éclair l'avait frappé, ses yeux s'illuminèrent. Il se remémora soudainement ce que Shengong Hu lui avait dit des années auparavant lors de sa présentation du Royaume Céleste du Tonnerre.
 

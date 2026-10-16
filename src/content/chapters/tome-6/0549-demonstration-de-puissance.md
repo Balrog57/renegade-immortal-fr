@@ -86,7 +86,7 @@ L'un d'eux cria précipitamment: « Arrêtez! »
 
 Cinquante kilomètres n'étaient pas une grande distance. Bientôt, un nuage de poussière apparut au loin alors que neuf mille soldats démons chargeaient vers la position de Wang Lin.
 
-Wang Lin ne da même pas un regard vers eux; il ouvrit les bras et les énergies spirituelles démoniaques et célestes de son corps formèrent un vortex. À cet instant, l'énergie spirituelle démoniaque des centaines de soldats tués par l'épée céleste et la lame en croissant quitta leurs corps pour être aspirée par Wang Lin.
+Wang Lin ne daigna même pas un regard vers eux; il ouvrit les bras et les énergies spirituelles démoniaques et célestes de son corps formèrent un vortex. À cet instant, l'énergie spirituelle démoniaque des centaines de soldats tués par l'épée céleste et la lame en croissant quitta leurs corps pour être aspirée par Wang Lin.
 
 L'énergie démoniaque était si dense qu'elle créa un tourbillon dont Wang Lin était le centre. Lorsque les neuf mille soldats arrivèrent, Wang Lin avait fini d'absorber l'énergie. Il pointa le doigt vers le ciel, faisant revenir l'épée céleste et la lame en croissant. Ces armes flottèrent au-dessus de sa tête, émettant des vibrations stridentes.
 

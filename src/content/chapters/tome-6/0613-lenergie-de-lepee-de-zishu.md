@@ -76,15 +76,15 @@ Par conséquent, cette énergie d'épée était devenue bien plus versatile. Com
 
 Si Wang Lin pouvait accomplir cela, c'était parce que sa culture avait atteint le stade initial d'Ascendant. De plus, pour faciliter l'usage par ses disciples, lorsque Ling Tianhou leur avait offert ces énergies, il en avait effacé son propre Sens Divin, les transformant ainsi en objets sans maître.
 
-Par ce simple geste, Ling Tianhou protégeait ses disciples bien mieux que le Tout-Voyant! Il offrait à ses disciples un puissant rayon d'énergie d'épée, là où le Tout-Voyant ne leur donnait que des trésors de sauvetage de piètre qualité.
+Par ce simple geste, Ling Tianhou protégeait ses disciples bien mieux que l'Omniscient! Il offrait à ses disciples un puissant rayon d'énergie d'épée, là où l'Omniscient ne leur donnait que des trésors de sauvetage de piètre qualité.
 
-Ling Tianhou avait prévu que Cupidité se rende dans le Domaine des Esprits Démoniaques pour protéger ses disciples, mais le Tout-Voyant n'en ferait pas autant.
+Ling Tianhou avait prévu que Cupidité se rende dans le Domaine des Esprits Démoniaques pour protéger ses disciples, mais l'Omniscient n'en ferait pas autant.
 
 Cela tenait en grande partie à leurs Daos respectifs. Le Dao de Ling Tianhou était celui de la tyrannie. Cela le rendait extrêmement protecteur envers les siens; nul étranger n'était autorisé à s'en prendre à son peuple!
 
 Personne ne pouvait intimider les disciples de la Secte de l'Épée Da Lou. C'est précisément pour cette raison que, malgré sa piètre réputation, tous les disciples vouaient un respect immense au Saint de l'Épée Ling Tianhou. Toutefois, cela limitait aussi le nombre de cultivateurs extrêmement puissants au sein du secteur, car il était très difficile d'atteindre la véritable puissance sous une telle protection!
 
-À l'opposé se trouvait la Secte du Destin Céleste. Le Dao du Tout-Voyant consistait à suivre la volonté des cieux. C'était un cultivateur typique de la voie céleste: la vie et la mort de ses disciples étaient dictées par les cieux, et leur force déterminée par le destin; il n'intervenait que rarement par la force.
+À l'opposé se trouvait la Secte du Destin Céleste. Le Dao de l'Omniscient consistait à suivre la volonté des cieux. C'était un cultivateur typique de la voie céleste: la vie et la mort de ses disciples étaient dictées par les cieux, et leur force déterminée par le destin; il n'intervenait que rarement par la force.
 
 Bien que le secteur fût ainsi structuré, cela permettait à la Secte du Destin Céleste de compter de nombreux experts. Ses sept véritables disciples étaient déjà tous puissants, sans même mentionner les innombrables membres cachés qui avaient survécu à d'infimes et d'innombrables situations de vie ou de mort.
 

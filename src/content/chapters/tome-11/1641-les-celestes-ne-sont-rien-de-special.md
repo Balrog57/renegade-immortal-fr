@@ -20,7 +20,7 @@ Des grondements tonitruants résonnèrent et ces statues s'effondrèrent une à 
 
 En un éclair, sept ou huit Célestes apparurent autour de Wang Lin. Ils dégageaient une lumière dorée et leurs yeux étaient empreints de colère. Ils fixaient Wang Lin, mais aucun ne prit la parole.
 
-Wang Lin ne da même pas un regard à ces individus. Ces gens avaient peut-être été puissants autrefois, mais ils ne suscitaient plus son intérêt aujourd'hui. En songeant à la difficulté qu'impliquerait une fouille de leurs âmes, Wang Lin abandonna l'idée et les laissa le suivre à distance.
+Wang Lin ne daigna même pas un regard à ces individus. Ces gens avaient peut-être été puissants autrefois, mais ils ne suscitaient plus son intérêt aujourd'hui. En songeant à la difficulté qu'impliquerait une fouille de leurs âmes, Wang Lin abandonna l'idée et les laissa le suivre à distance.
 
 Toutefois, si quiconque osait l'attaquer, Wang Lin n'aurait aucun mal à tuer quelques Célestes. En fait, il n'en avait pas encore assez tué. S'il n'avait pas d'autres projets, ces gens n'auraient eu aucune chance de survivre face à lui.
 

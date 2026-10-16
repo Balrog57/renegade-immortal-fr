@@ -86,7 +86,7 @@ Enfin, il rangea soigneusement la carapace de tortue et regarda une dernière fo
 
 « Je reviendrai... » murmura Wang Lin avant de faire volte-face. Il s'élança dans le ciel, suivant les frontières indiquées par la carte. Il se dirigeait vers la Secte Dong Lin!
 
-Le Secte Dong Lin se situait dans la partie septentrionale du Continent Est, sur le Grand Continent Sage. Il se trouvait à cinq continents de distance du Continent du Taureau Céleste! Le voyage était immense et un vol direct prendrait des années. Même en utilisant la Déformation Spatiale, comme Wang Lin ne pouvait l'utiliser de manière répétée, cela lui prendrait tout de même un à deux ans.
+La Secte Dong Lin se situait dans la partie septentrionale du Continent Est, sur le Grand Continent Sage. Il se trouvait à cinq continents de distance du Continent du Taureau Céleste! Le voyage était immense et un vol direct prendrait des années. Même en utilisant la Déformation Spatiale, comme Wang Lin ne pouvait l'utiliser de manière répétée, cela lui prendrait tout de même un à deux ans.
 
 Et pour atteindre la Secte Dong Lin, il y avait un passage obligé: le Continent du Démon Vert! S'il choisissait de contourner, il perdrait encore plus de temps et devrait parcourir bien plus que cinq continents, traversant des zones encore plus périlleuses.
 

@@ -24,9 +24,9 @@ La vie de Qing Shui avait été tragique; il n'avait connu que l'amertume. Sa fe
 
 Pourtant, cela n'avait fait qu'accentuer la douleur de Qing Shui. À mesure que ses souvenirs refaisaient surface, il sombra dans une folie totale.
 
-Fou de chagrin! Il avait connu la dévastation dès sa jeunesse. Prince du pays de Clear Water, traqué par des assassins, il avait éveillé son Domaine Ji face au désespoir et à la tristesse. Puis, il était retourné dans son pays natal, animé d'une haine monstrueuse et d'une intention meurtrière sans égale!
+Fou de chagrin! Il avait connu la dévastation dès sa jeunesse. Prince du pays de Qing Shui, traqué par des assassins, il avait éveillé son Royaume Ji face au désespoir et à la tristesse. Puis, il était retourné dans son pays natal, animé d'une haine monstrueuse et d'une intention meurtrière sans égale!
 
-Cette nuit-là, des rivières de sang coulèrent dans le pays de Clear Water! De nombreux cultivateurs périrent!
+Cette nuit-là, des rivières de sang coulèrent dans le pays de Qing Shui! De nombreux cultivateurs périrent!
 
 Il avait obtenu sa vengeance, mais la joie s'était envolée de son existence. Il ne vivait plus que pour tuer, tuer et encore tuer! Son intention meurtrière était terrifiante et, à force de massacres, il finit par pénétrer dans le Royaume Céleste du Tonnerre!
 

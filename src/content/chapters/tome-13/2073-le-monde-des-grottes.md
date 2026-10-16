@@ -42,7 +42,7 @@ L'âme du Taureau Céleste poussa un rugissement vers les cieux, puis se transfo
 
 Après le départ de son âme, le Continent du Taureau Céleste sembla différent, bien que ce changement fût difficile à déceler. Wang Lin fixa l'endroit où le Taureau avait disparu, puis se dirigea vers la Secte des Sept Voies.
 
-Le Secte des Sept Voies, le lieu même du monde des grottes.
+La Secte des Sept Voies, le lieu même du monde des grottes.
 
 La montagne était enveloppée d'une brume épaisse qui limitait la vue. Le site était totalement désert; personne n'y avait mis les pieds depuis fort longtemps. Pourtant, une silhouette se tenait au pied de la montagne, le regard tourné vers les hauteurs.
 
@@ -54,13 +54,13 @@ L'homme afficha une expression complexe et murmura pour lui-même: « Secte des 
 
 Lorsqu'il traversa la brume pour atteindre le sommet, il découvrit les pavillons de la Secte des Sept Voies. Ses yeux étaient emplis de confusion.
 
-Il contempla les lieux pendant un long moment avant de laisser échapper un soupir. Il erra à travers les ruines du secte jusqu'à atteindre l'immense porte de pierre située dans la montagne arriére. La porte, intégrée à la roche, était totalement scellée. De la mousse y poussait, exhalant une odeur de décomposition.
+Il contempla les lieux pendant un long moment avant de laisser échapper un soupir. Il erra à travers les ruines de la secte jusqu'à atteindre l'immense porte de pierre située dans la montagne arriére. La porte, intégrée à la roche, était totalement scellée. De la mousse y poussait, exhalant une odeur de décomposition.
 
 L'homme ferma les yeux devant la porte de pierre.
 
 Lorsqu'il les rouvrit, il fixa l'entrée et murmura amèrement: « La porte du monde des grottes... »
 
-« Derrière cette porte se trouve le monde des grottes... C'est là que je suis réincarné. » L'homme soupira. Après avoir recouvré les souvenirs de sa vie antérieure, il avait quitté son secte pour suivre une intuition qui l'avait mené jusqu'ici.
+« Derrière cette porte se trouve le monde des grottes... C'est là que je suis réincarné. » L'homme soupira. Après avoir recouvré les souvenirs de sa vie antérieure, il avait quitté sa secte pour suivre une intuition qui l'avait mené jusqu'ici.
 
 Il était arrivé à la Secte des Sept Voies, devant le passage vers le monde des grottes.
 
@@ -100,7 +100,7 @@ Wang Lin ouvrit la porte du monde des grottes. À l'ouverture, une lumière puis
 
 La porte se referma une fois de plus.
 
-Le Secte des Sept Voies resta enveloppé de brume, ruine délaissée que plus personne ne regardait.
+La Secte des Sept Voies resta enveloppé de brume, ruine délaissée que plus personne ne regardait.
 
 ***
 
@@ -128,6 +128,6 @@ Le corps du Maître South Cloud s'était effondré, ne laissant subsister que so
 
 Le ciel du Royaume Céleste était rouge sang, strié d'ombres révélant des expressions féroces. On aurait dit qu'une légion de spectres hantait cette teinte écarlate.
 
-« Le Maître vous a donné cinq jours pour choisir. Trois jours se sont écoulés, il n'en reste que deux. J'espère que vous choisirez avec sagesse et rejoindrez mon Secte de l'Âme Écarlate. Sinon... mourez! » Dans ce ciel sanglant, un jeune homme vêtu d'une robe rouge s'adressait aux nombreux cultivateurs en contrebas d'un ton sinistre.
+« Le Maître vous a donné cinq jours pour choisir. Trois jours se sont écoulés, il n'en reste que deux. J'espère que vous choisirez avec sagesse et rejoindrez ma Secte de l'Âme Écarlate. Sinon... mourez! » Dans ce ciel sanglant, un jeune homme vêtu d'une robe rouge s'adressait aux nombreux cultivateurs en contrebas d'un ton sinistre.
 
 « Quant à toi, Mu Bingmei, il ne te reste que deux jours. Dans deux jours, une fois la formation entourant le Nouveau Royaume Céleste brisée, soit tu deviendras ma partenaire de Dao, soit je massacrerai la planète Suzaku et je détruirai cette statue de cet individu nommé Lin! »

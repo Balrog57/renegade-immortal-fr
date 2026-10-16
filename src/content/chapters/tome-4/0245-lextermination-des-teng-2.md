@@ -36,7 +36,7 @@ Sur ordre de Teng Huayuan, les quatre disparurent. Lorsqu'ils réapparurent, ils
 
 Comment la vengeance de Wang Lin pouvait-elle être contenue par seulement quatre hommes? Bien que Wang Lin paraisse calme, une lueur de folie brûlait dans son cœur. Aujourd'hui, il allait déverser quatre cents ans de rage. Aujourd'hui, il deviendrait un fou, un fou assoiffé de sang!
 
-Sans la moindre hésitation, dès l'apparition des quatre cultivateurs de l'Âme Naissante, le Domaine de Ji de Wang Lin s'anima. Sous une salve d'éclairs rouges, les quatre experts poussèrent des cris déchirants avant même d'avoir pu utiliser leurs trésors. Le Domaine de Ji forma une cage qui les emprisonna.
+Sans la moindre hésitation, dès l'apparition des quatre cultivateurs de l'Âme Naissante, le Royaume Ji de Wang Lin s'anima. Sous une salve d'éclairs rouges, les quatre experts poussèrent des cris déchirants avant même d'avoir pu utiliser leurs trésors. Le Royaume Ji forma une cage qui les emprisonna.
 
 Simultanément, Wang Lin se précipita dans la cage. Sa main fendit l'air comme une lame et trancha la tête du premier. Il envoya ensuite la tête d'un coup de pied vers la tour.
 
@@ -48,7 +48,7 @@ Wang Lin se retourna soudainement. Une épée volante était apparue dans sa mai
 
 La tour de têtes s'agrandit encore.
 
-Tout cela se déroulait avec une rapidité fulgurante. En un instant, deux des quatre étaient morts. Les deux autres, piégés dans la cage, étaient incapables de résister. Empli d'une haine viscérale, Wang Lin hurla: « Tuez! » La cage du Domaine de Ji se referma et trancha les deux derniers cultivateurs de l'Âme Naissante.
+Tout cela se déroulait avec une rapidité fulgurante. En un instant, deux des quatre étaient morts. Les deux autres, piégés dans la cage, étaient incapables de résister. Empli d'une haine viscérale, Wang Lin hurla: « Tuez! » La cage du Royaume Ji se referma et trancha les deux derniers cultivateurs de l'Âme Naissante.
 
 Une pluie de sang et de morceaux de chair tomba du ciel. Cependant, sous le contrôle de Wang Lin, leurs têtes restèrent intactes.
 
@@ -76,7 +76,7 @@ L'expression de Wang Lin resta imperturbable. Il frappa son sac de rangement et 
 
 Peu importait leurs efforts, tout était vain. Cette fois, Teng Huayuan poussa un rugissement et fit tournoyer un étrange coup de vent pour tenter de briser la technique de Wang Lin.
 
-Wang Lin eut un ricanement méprisant. Son Domaine de Ji jaillit et, dès l'impact, l'étrange vent se dissipa.
+Wang Lin eut un ricanement méprisant. Son Royaume Ji jaillit et, dès l'impact, l'étrange vent se dissipa.
 
 Wang Lin serra le poing droit et plus de cent personnes explosèrent. Un déluge de sang tomba du ciel.
 

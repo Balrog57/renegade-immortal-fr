@@ -86,7 +86,7 @@ Mais quand elle est dégainée, elle tue!
 
 Sa main droite bougea d'un mouvement qui semblait lent, mais qui fut en réalité fulgurant. Il pointa la tête de l'homme. Après un craquement sinistre, celui-ci cracha une bouchée de sang et mourut instantanément. Son Âme Naissante s'en échappa, tentant de fuir avec un visage terrifié.
 
-Wang Lin ne da même pas un regard à la fuite; il se retourna et poussa un rugissement silencieux. Sous l'effet de ce cri, une fumée noire apparut au-dessus de sa tête. Sa forme de dévoreur d'âmes jaillit et engloutit immédiatement l'Âme Naissante qui tentait de s'enfuir.
+Wang Lin ne daigna même pas un regard à la fuite; il se retourna et poussa un rugissement silencieux. Sous l'effet de ce cri, une fumée noire apparut au-dessus de sa tête. Sa forme de dévoreur d'âmes jaillit et engloutit immédiatement l'Âme Naissante qui tentait de s'enfuir.
 
 La neige tombante n'osait plus approcher Wang Lin. Chaque flocon semblait s'écarter de lui, comme si aucun ne voulait défier ce démon.
 

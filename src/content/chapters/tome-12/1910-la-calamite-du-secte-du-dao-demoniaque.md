@@ -16,7 +16,7 @@ La plupart des quelque 30 000 cultivateurs étaient en pleine culture. Lorsque c
 
 Le brouillard céleste grondait violemment, et dix-huit ombres semblaient encercler une seule personne. À chaque assaut, des échos de tonnerre faisaient vibrer l'atmosphère.
 
-« Attaque ennemie! Tous les cultivateurs du troisième stade, déployez la formation! » Une voix anxieuse s'éleva d'une montagne située dans la partie nord du secte. Bientôt, un nuage rouge convergea, transportant un homme d'âge moyen vêtu d'une robe rouge.
+« Attaque ennemie! Tous les cultivateurs du troisième stade, déployez la formation! » Une voix anxieuse s'éleva d'une montagne située dans la partie nord de la secte. Bientôt, un nuage rouge convergea, transportant un homme d'âge moyen vêtu d'une robe rouge.
 
 Dès son apparition, il agita ses manches. Les nuages rouges qui l'entouraient s'élancèrent vers le brouillard dans le ciel.
 
@@ -26,7 +26,7 @@ Parmi eux se trouvaient des hommes et des femmes, tous l'expression grave. Une f
 
 Peu après, un rayon de lumière dorée jaillit de la partie sud de la Secte du Dao Démoniaque. La lumière se mua en un vieil homme qui vint se placer aux côtés de l'homme en robe rouge. Il contemplait le ciel d'un air sombre, son regard exhalant une froideur glaciale!
 
-« Tu oses forcer la formation de protection de mon Secte du Dao Démoniaque? Ce vieil homme veut voir qui ose faire preuve d'une telle audace! » Sur ces mots, il chargea dans le brouillard céleste.
+« Tu oses forcer la formation de protection de ma Secte du Dao Démoniaque? Ce vieil homme veut voir qui ose faire preuve d'une telle audace! » Sur ces mots, il chargea dans le brouillard céleste.
 
 Au sein du brouillard, Wang Lin, enveloppé dans sa robe blanche, avançait lentement. Devant lui, dix-huit silhouettes rugissaient en se précipitant vers lui, chacune dégageant une aura terrifiante.
 
@@ -62,9 +62,9 @@ Il connaissait la puissance de cette formation. Elle était capable de bloquer t
 
 Tandis que la lumière solaire dispersée descendait sur eux, une silhouette en robe blanche se tenait là, silencieuse. Un regard froid, dissimulé sous sa capuche, fixait les 30 000 cultivateurs stupéfaits de la Secte du Dao Démoniaque!
 
-Le vieil homme à la robe dorée réprima ses tremblements et rugit: « Qui êtes-vous, Monsieur?! Pourquoi avez-vous forcé l'entrée de mon Secte du Dao Démoniaque et détruit notre formation? »
+Le vieil homme à la robe dorée réprima ses tremblements et rugit: « Qui êtes-vous, Monsieur?! Pourquoi avez-vous forcé l'entrée de ma Secte du Dao Démoniaque et détruit notre formation? »
 
-« Mon Secte du Dao Démoniaque est l'un des neuf sectes et treize factions du Continent de l'Est, et nous possédons un ancêtre Exalté Empyréen! Monsieur, vous cachez votre visage pour surgir ici, contre qui nourrissez-vous une telle rancune?! » Outre le vieil homme, le cœur de l'homme d'âge moyen en robe rouge battait la chamade. Bien qu'il fût au stade avancé de la Tribulation du Vide, il n'avait pu lui-même percer la formation de brouillard, et encore moins la détruire d'une manière aussi prodigieuse!
+« Ma Secte du Dao Démoniaque est l'un des neuf sectes et treize factions du Continent de l'Est, et nous possédons un ancêtre Exalté Empyréen! Monsieur, vous cachez votre visage pour surgir ici, contre qui nourrissez-vous une telle rancune?! » Outre le vieil homme, le cœur de l'homme d'âge moyen en robe rouge battait la chamade. Bien qu'il fût au stade avancé de la Tribulation du Vide, il n'avait pu lui-même percer la formation de brouillard, et encore moins la détruire d'une manière aussi prodigieuse!
 
 Si ces deux-là étaient ainsi terrifiés, que dire des dizaines de cultivateurs du troisième stade qui venaient de frôler la mort? Tous fixaient Wang Lin avec effroi.
 
@@ -78,7 +78,7 @@ Après avoir parlé, il agita sa main droite et écarta la robe qui couvrait son
 
 Dès que Wang Lin souleva sa capuche, les yeux du vieil homme à la robe dorée se remplirent d'incrédulité.
 
-« Wang Lin!!! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent de la Terre Meng. Le Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme!
+« Wang Lin!!! » Il le reconnut instantanément. Il ne pouvait oublier le massacre effroyable aux frontières du Continent de la Terre Meng. La Secte du Dao Démoniaque avait envoyé une armée de cultivateurs, et la plupart d'entre eux avaient été massacrés par lui. Si le Maître de Secte n'était pas intervenu à la fin, il aurait été extrêmement difficile de capturer cet homme!
 
 « C'est lui!! » haleta l'homme en robe rouge, qui reconnut également Wang Lin! Il avait participé à cette bataille autrefois. Il avait vu la puissance dévastatrice de Wang Lin lorsqu'il sombrait dans la folie. Il avait vu Wang Lin massacrer ses propres compagnons de secte et avait perçu l'intention meurtrière monstrueuse qui brûlait dans ses yeux.
 
@@ -98,7 +98,7 @@ Les deux cultivateurs au stade avancé de la Tribulation du Vide n'étaient pas 
 
 « Disparaisse du Continent Astral Immortel. Que toute la secte soit détruite et que son nom s'efface à jamais! » La Lame Yin mesurait désormais près de trente pieds de long, dépassant même la taille de Wang Lin. Il leva sa main droite et le soleil se refléta sur la lame, émettant une lumière blanche et glaciale. Une énergie Yin monstrueuse enveloppa alors Wang Lin!
 
-Dès que la Lame Yin apparut, Wang Lin chargea vers les cultivateurs en contrebas. Sa vitesse était plus fulgurante que l'éclair. Il n'avait nul besoin de recourir à de grands sorts, car il comptait utiliser cette lame pour massacrer l'intégralité du secte!
+Dès que la Lame Yin apparut, Wang Lin chargea vers les cultivateurs en contrebas. Sa vitesse était plus fulgurante que l'éclair. Il n'avait nul besoin de recourir à de grands sorts, car il comptait utiliser cette lame pour massacrer l'intégralité de la secte!
 
 De cette manière, il pourrait reconstruire sa tour de têtes!
 

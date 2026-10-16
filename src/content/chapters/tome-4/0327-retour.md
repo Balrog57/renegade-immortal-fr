@@ -56,7 +56,7 @@ L'homme âgé prit la fiole et jeta un œil à l'intérieur; son expression chan
 
 La jeune fille se sentait frustrée. Ce n'est que lorsqu'ils furent à plus de 5 kilomètres que la patience de l'homme âgé s'épuisa et qu'il finit par répondre.
 
-Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Clear Water! »
+Les yeux de l'homme brillaient d'excitation: « Disciple, à moins qu'il ne se soit trompé de pilules, cet homme doit être une puissance incommensurable. Ces pilules s'appellent des Pilules de la Terre Brisée. Ce sont des trésors pour les cultivateurs au stade de la Formation du Noyau. Il y en a trois dans cette fiole... Trois pilules suffiraient à provoquer une catastrophe dans notre pays de Qing Shui! »
 
 La jeune fille resta bouche bée.
 

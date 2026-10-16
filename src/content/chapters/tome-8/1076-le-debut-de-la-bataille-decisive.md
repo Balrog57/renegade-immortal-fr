@@ -22,9 +22,9 @@ Cette douleur intense ne fit pas chanceler Wang Lin. Au contraire, il serra les 
 
 L'énergie originelle de feu dans son corps l'empêchait normalement de ressentir le froid. Mais, en raison de la faiblesse de son âme originelle, il avait l'impression d'être plongé dans un monde de neige, le corps recouvert de glace.
 
-Le vieil homme qui avait crié auparavant joignit les mains en signe de respect envers Wang Lin: « Nous sommes l'avant-garde de la Secte Divine de l'Oiseau Vermillon, envoyée pour vous retrouver. Presque tout mon secte a été déployé pour assurer votre sécurité absolue! »
+Le vieil homme qui avait crié auparavant joignit les mains en signe de respect envers Wang Lin: « Nous sommes l'avant-garde de la Secte Divine de l'Oiseau Vermillon, envoyée pour vous retrouver. Presque tout ma secte a été déployé pour assurer votre sécurité absolue! »
 
-« Le Secte Divine de l'Oiseau Vermillon... » Wang Lin regarda le vieil homme et hocha la tête. Ce simple geste fit irradier une pointe de douleur dans sa poitrine, mais il l'endura. Peu importe les raisons de leur venue, Wang Lin n'oublierait pas leur aide.
+« La Secte Divine de l'Oiseau Vermillon... » Wang Lin regarda le vieil homme et hocha la tête. Ce simple geste fit irradier une pointe de douleur dans sa poitrine, mais il l'endura. Peu importe les raisons de leur venue, Wang Lin n'oublierait pas leur aide.
 
 Pourtant, bien qu'entouré par les membres de la Secte Divine de l'Oiseau Vermillon, il ne ressentait aucune sécurité. Non loin de là, le regard de l'Ancien Démon Ta Jia les balaya d'une expression extrêmement étrange.
 

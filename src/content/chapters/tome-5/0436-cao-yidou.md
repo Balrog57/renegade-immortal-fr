@@ -20,7 +20,7 @@ Il se trouvait sur l'un des « yeux » de la formation au moment de sa dispariti
 
 Des cultivateurs pratiquaient dans chacune de ces grottes. Leurs niveaux de culture variaient: la plupart étaient au stade de l'Établissement des Fondations, quelques-uns atteignaient la Formation du Noyau, et les cultivateurs de l'Âme Naissante étaient encore plus rares.
 
-Le Sens Divin de Wang Lin se propagea, et l'intégralité de la Secte des Cadavres apparut dans son esprit. Il porta une attention particulière à la grotte située au centre du secte.
+Le Sens Divin de Wang Lin se propagea, et l'intégralité de la Secte des Cadavres apparut dans son esprit. Il porta une attention particulière à la grotte située au centre de la secte.
 
 Li Qingping pratiquait tranquillement dans la grande grotte centrale. Derrière lui flottait un nuage de brouillard noir duquel s'étiraient d'innombrables tentacules.
 
@@ -66,7 +66,7 @@ Il entretenait un lien mystérieux avec Li Qingping. Le mouvement brusque de Cao
 
 Des ondulations parcoururent l'air alors que Wang Lin émergeait. En apparaissant, il lança un regard glacial à Li Qingping.
 
-Ce simple regard fit trembler le corps du maître du secte, qui fut soudain couvert de sueur froide. Il jura intérieurement; ce regard était comme une épée transperçant son être. Même son Âme Naissante semblait gelée et tout son corps était glacé. C'était comme s'il se trouvait totalement nu, n'ayant plus aucun secret à cacher devant cet homme.
+Ce simple regard fit trembler le corps du maître de la secte, qui fut soudain couvert de sueur froide. Il jura intérieurement; ce regard était comme une épée transperçant son être. Même son Âme Naissante semblait gelée et tout son corps était glacé. C'était comme s'il se trouvait totalement nu, n'ayant plus aucun secret à cacher devant cet homme.
 
 Wang Lin dit froidement: « Toi, tais-toi! » Puis il tourna son regard vers le brouillard noir qui se recroquevillait dans un coin de la grotte.
 

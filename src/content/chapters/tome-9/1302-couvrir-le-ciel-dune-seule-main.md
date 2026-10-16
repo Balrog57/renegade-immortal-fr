@@ -86,9 +86,9 @@ Ce flash intense fit changer radicalement l'expression de Shui Daozi, qui cracha
 
 Il fixa le vide, hébété, et lâcha un rugissement qui ébranla les cieux!
 
-Le Secte Céleste Brisant de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection du secte!
+La Secte Céleste Brisant de rang 9 avait également entendu ce tonnerre et vu les nuages tourbillonnants. Ils déployèrent immédiatement la formation de protection de la secte!
 
-Le Maître de la Secte Céleste Brisant, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection du secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale de la Secte Démon!
+Le Maître de la Secte Céleste Brisant, assis dans sa chambre close, fixait silencieusement le ciel étoilé. Après un long moment, il poussa un soupir et agita ses manches. Il brisa la formation de protection de la secte et chargea à travers les nuages de rétribution divine vers la fissure spatiale de la Secte Démon!
 
 Outre la Secte Démon, la Secte Divin et la Secte Céleste Brisant, il y avait encore la Secte Fantôme! À cet instant, au plus profond des nuages, se trouvait une planète de culture dont la formation de protection était ouverte. Cependant, une ombre immense planait sur la formation. Cette ombre possédait une seule corne, telle un dieu démon!
 

@@ -128,6 +128,6 @@ Ces voix froides résonnèrent à travers le monde et frappèrent les oreilles d
 
 Il ignorait leurs noms, mais il avait gravé leurs visages dans sa mémoire. Ces centaines de têtes représentaient presque la moitié des survivants de la Prairie du Ciel Extrême...
 
-« Vous n'aimez pas les têtes humaines? Voici le premier cadeau que mon Secte du Dao Démoniaque vous offre! » Une voix venimeuse résonna dans l'air.
+« Vous n'aimez pas les têtes humaines? Voici le premier cadeau que ma Secte du Dao Démoniaque vous offre! » Une voix venimeuse résonna dans l'air.
 
 « Secte du Dao Démoniaque... Si je quitte cet endroit aujourd'hui, je reviendrai et je réduirai votre secte en cendres!! » Les yeux de Wang Lin brillèrent d'une lumière rouge monstrueuse, et il fit ce serment dans son cœur. C'était la première fois qu'il ressentait un désir aussi brûlant de détruire une secte sur le Continent Astral Immortel!

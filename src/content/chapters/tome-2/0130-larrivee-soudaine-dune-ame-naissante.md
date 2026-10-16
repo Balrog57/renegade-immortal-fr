@@ -46,7 +46,7 @@ La femme leva la main dans une pose qui aurait fait chavirer le cœur de n'impor
 
 Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa le milieu de son front et une petite étincelle de lumière argentée en sortit.
 
-Wang Lin ne da même pas un second regard à l'objet avant de s'élancer à nouveau. En chemin, il se demandait si les paroles de la femme étaient sincères ou non, mais quoi qu'il en soit, il n'était pas prudent d'offenser une cultivatrice de l'Âme Naissante pour le moment.
+Wang Lin ne daigna même pas un second regard à l'objet avant de s'élancer à nouveau. En chemin, il se demandait si les paroles de la femme étaient sincères ou non, mais quoi qu'il en soit, il n'était pas prudent d'offenser une cultivatrice de l'Âme Naissante pour le moment.
 
 Par conséquent, Wang Lin n'hésita pas à rendre l'essence sanguine de l'âme de Zhou Zihong.
 

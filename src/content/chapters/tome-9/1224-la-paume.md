@@ -44,7 +44,7 @@ La vieille femme en vert était livide, mais elle n'hésita pas à charger pour 
 
 Chen Tianjun fut le dernier à s'élancer. Debout sous Wang Lin, il agita la main et tous les pores de son corps s'ouvrirent. L'aura d'âmes bestiales apparut jusqu'à ce que plus de dix âmes l'entourent! Parmi elles se trouvaient deux âmes de rang 12. Bien qu'elles fussent extrêmement faibles et moins puissantes que lorsqu'elles étaient vivantes, cela restait impressionnant!
 
-Wang Lin ne da aucune attention aux trois compagnons. L'étoile faite de loi scintilla entre ses sourcils. Puis, d'un mouvement de la main droite, le trident apparut. Il le saisit fermement.
+Wang Lin ne daigna aucune attention aux trois compagnons. L'étoile faite de loi scintilla entre ses sourcils. Puis, d'un mouvement de la main droite, le trident apparut. Il le saisit fermement.
 
 « Et qu'en est-il du pouvoir d'une seule paume? » Wang Lin s'élança en riant face au vortex qui descendait du ciel. On aurait dit que le firmament s'effondrait pour s'écraser sur la terre. Toute vie serait broyée! Aucune chance de survie!
 

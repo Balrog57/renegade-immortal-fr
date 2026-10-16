@@ -28,9 +28,9 @@ Situ Nan insista pour le pousser: « Qu'y a-t-il de si difficile? Je vais t'ense
 
 Wang Lin jeta un coup d'œil vers lui, mais avant qu'il ne puisse répondre, le disciple vêtu de noir nommé Zhang intervint: « Huang Dashan, si tu as du temps à perdre, tu devrais plutôt cultiver au lieu de demander à quelqu'un de prendre soin de toi. »
 
-Huang Dashan eut un sourire en coin et répliqua: « Le secte n'existe plus. Parmi les disciples intérieurs restants, le grand frère Wang Lin est le plus fort. Peu importe mes efforts de culture, je ne pourrai jamais l'égaler, alors autant être son subordonné. »
+Huang Dashan eut un sourire en coin et répliqua: « La secte n'existe plus. Parmi les disciples intérieurs restants, le grand frère Wang Lin est le plus fort. Peu importe mes efforts de culture, je ne pourrai jamais l'égaler, alors autant être son subordonné. »
 
-Le frère Zhang se tourna vers Wang Lin. Il se remémora l'époque où il avait accompagné les trois disciples sur la montagne pour leurs tests d'entrée dans le secte. Il soupira secrètement: « Wang Lin, tes progrès sont véritablement inattendus. Je t'admire sincèrement. »
+Le frère Zhang se tourna vers Wang Lin. Il se remémora l'époque où il avait accompagné les trois disciples sur la montagne pour leurs tests d'entrée dans la secte. Il soupira secrètement: « Wang Lin, tes progrès sont véritablement inattendus. Je t'admire sincèrement. »
 
 Wang Lin esquissa un sourire amer, incapable de répondre. Il avait toujours éprouvé un grand respect pour le frère Zhang. Ce dernier était l'un des rares disciples intérieurs qui, loin de se moquer de lui, l'avait toujours encouragé.
 
@@ -40,7 +40,7 @@ Les yeux du frère Zhang s'illuminèrent. Il fixa Lu Song et répondit: « Bien 
 
 Lu Song laissa échapper un soupir. Il s'assit à côté de Wang Lin, lui tapota l'épaule et dit: « Wang Lin, la Secte Heng Yue n'existe plus que de nom. Je vais être franc avec toi: si tu étais resté à la Secte Xuan Dao, tu aurais eu un avenir bien plus radieux qu'en venant ici avec nous. »
 
-Puis, il adressa un sourire amer au frère Zhang et ajouta: « Zhang Dekun, ton entêtement est resté le même. À quoi bon cette promesse de dix ans alors que le secte n'existe même plus? Hélas. »
+Puis, il adressa un sourire amer au frère Zhang et ajouta: « Zhang Dekun, ton entêtement est resté le même. À quoi bon cette promesse de dix ans alors que la secte n'existe même plus? Hélas. »
 
 Wang Lin regarda Lu Song. Il écarta l'épaule pour s'éloigner du contact et demanda: « L'ancien frère Lu Song n'est-il pas resté, lui non plus, à la Secte Xuan Dao? »
 
@@ -54,7 +54,7 @@ Le visage de Zhang Dekun resta de marbre et il ne dit mot. Lors de la compétiti
 
 Lu Song lui avait alors lancé que s'il n'était pas convaincu, il pourrait venir le défier dix ans plus tard.
 
-Lu Song reprit avec franchise: « Frère Zhang, je ferai de mon mieux pour réparer ce qui s'est passé il y a dix ans. Mais actuellement, le secte traverse une période difficile; nous, les disciples intérieurs, devons donc nous serrer les coudes. Oublions les disciples de niveau 5 ou inférieur. Parmi nous quatre, Huang Dashan est au 5e niveau, Zhang Dekun au 6e, et moi je suis au 8e. Et toi, Wang Lin, à quel niveau es-tu? »
+Lu Song reprit avec franchise: « Frère Zhang, je ferai de mon mieux pour réparer ce qui s'est passé il y a dix ans. Mais actuellement, la secte traverse une période difficile; nous, les disciples intérieurs, devons donc nous serrer les coudes. Oublions les disciples de niveau 5 ou inférieur. Parmi nous quatre, Huang Dashan est au 5e niveau, Zhang Dekun au 6e, et moi je suis au 8e. Et toi, Wang Lin, à quel niveau es-tu? »
 
 Wang Lin vit que tous les regards étaient braqués sur lui. Il réfléchit un instant, puis répondit honnêtement: « 14e niveau de Condensation de Qi. »
 

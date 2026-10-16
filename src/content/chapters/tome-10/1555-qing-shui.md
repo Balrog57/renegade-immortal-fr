@@ -52,7 +52,7 @@ Pourtant, au moment où il approchait, Qing Shui leva brusquement la tête. Ses 
 
 « Tuer, tuer, tuer!! Je vais tout massacrer, je vais tous vous tuer, tuer jusqu'à ce qu'il ne reste plus rien, tuer toute vie!! »
 
-Ces rugissements dégageaient une intention meurtrière terrifiante. Wang Lin étant à moins de mille pieds, il subit le choc de plein fouet. Cette intention était assez puissante pour briser le cœur du Dao; elle ressemblait au Domaine de Ji, capable de pénétrer l'esprit et de tuer par la simple peur!
+Ces rugissements dégageaient une intention meurtrière terrifiante. Wang Lin étant à moins de mille pieds, il subit le choc de plein fouet. Cette intention était assez puissante pour briser le cœur du Dao; elle ressemblait au Royaume Ji, capable de pénétrer l'esprit et de tuer par la simple peur!
 
 Les yeux de Wang Lin trahirent sa tristesse. Il devinait certaines choses, mais d'autres restaient mystérieuses. Malgré cette intention meurtrière, il continua d'avancer.
 
@@ -60,13 +60,13 @@ Mille pieds, huit cents pieds, six cents pieds... jusqu'à trois cents pieds!
 
 Lorsqu'il fut à trois cents pieds de lui, Qing Shui fixa Wang Lin tandis que son corps se convulsait. Ses pupilles se rétractèrent soudainement et un éclair rouge jaillit.
 
-Cet éclair rouge était son Domaine de Ji!
+Cet éclair rouge était son Royaume Ji!
 
 Alors qu'il rugissait, l'éclair rouge fonça sur Wang Lin. La proximité étant extrême, la foudre le frappa instantanément. Une intention meurtrière d'une puissance inouïe éclata de l'éclair, doublée de la force de l'essence!
 
 C'était l'Essence du Massacre!
 
-Des grondements tonitruants résonnèrent. Lorsque l'éclair fut sur le point de le percuter, Wang Lin forma un sceau et balaya l'air de la main. L'éclair rouge heurta sa paume et s'effondra. Wang Lin sentit son bras engourdi tandis que la puissance du Domaine de Ji s'infiltrait dans son corps. Il sentit cette force tenter de dévaster son esprit, mais il parvint rapidement à la réprimer.
+Des grondements tonitruants résonnèrent. Lorsque l'éclair fut sur le point de le percuter, Wang Lin forma un sceau et balaya l'air de la main. L'éclair rouge heurta sa paume et s'effondra. Wang Lin sentit son bras engourdi tandis que la puissance du Royaume Ji s'infiltrait dans son corps. Il sentit cette force tenter de dévaster son esprit, mais il parvint rapidement à la réprimer.
 
 Alors qu'il s'apprêtait à franchir la distance restante, Qing Shui ouvrit la bouche et poussa le rugissement le plus puissant que Wang Lin ait entendu depuis son arrivée.
 
@@ -116,7 +116,7 @@ Dans ces visions, un petit pays mortel était renversé et un jeune prince fuyai
 
 L'image changea: le jeune homme intégrait une secte et y subissait des humiliations. Il se tenait sur un pic, son corps chétif poussant un cri de détresse. Il haïssait les cieux, la terre et toute forme de vie!
 
-Le Domaine de Ji était né!
+Le Royaume Ji était né!
 
 La lumière aux sept couleurs persistait dans le ciel, et la silhouette semblait observer le jeune homme en contrebas.
 

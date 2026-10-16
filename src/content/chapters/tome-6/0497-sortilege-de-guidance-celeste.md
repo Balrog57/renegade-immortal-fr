@@ -68,7 +68,7 @@ Après avoir démontré ce sort, l'Omniscient ne déclara pas la fin de cette s�
 
 Après tout, nul n'ignorait que la Division Violette était bien trop faible.
 
-La Division Jaune comptait six personnes. Le Troisième Frère de la Division Jaune portait le titre de véritable disciple. Cependant, il y a trente ans, il avait disparu lors d'un voyage hors du secte et on n'avait plus jamais eu de ses nouvelles.
+La Division Jaune comptait six personnes. Le Troisième Frère de la Division Jaune portait le titre de véritable disciple. Cependant, il y a trente ans, il avait disparu lors d'un voyage hors de la secte et on n'avait plus jamais eu de ses nouvelles.
 
 À cet instant, les six membres de la Division Jaune affichaient des visages aussi calmes qu'un étang sans une ride. La femme d'âge moyen se tenant au bout de la file s'avança et dit respectueusement à l'Omniscient: « Cette disciple renonce! »
 

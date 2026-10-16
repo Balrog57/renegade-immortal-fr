@@ -38,7 +38,7 @@ Dès l'apparition de cette voix, tous les cultivateurs environnants firent preuv
 
 Mu Bingmei apparut devant l'assemblée et regarda Wang Lin avec une expression complexe.
 
-Au même moment, deux rayons de lumière jaillirent du lointain pour arriver devant Wang Lin. Ces rayons se transformèrent en Zhou Ru et Little White. En voyant Wang Lin, Zhou Ru fut prise d'une vive émotion.
+Au même moment, deux rayons de lumière jaillirent du lointain pour arriver devant Wang Lin. Ces rayons se transformèrent en Zhou Ru et Petit Blanc. En voyant Wang Lin, Zhou Ru fut prise d'une vive émotion.
 
 « Oncle!! C'est vraiment toi!! » Les yeux de Zhou Ru devinrent rouges et les larmes montèrent à ses yeux.
 

@@ -98,7 +98,7 @@ Sun Tai réfléchit longuement avant de se lever. Il regarda par la fenêtre et 
 
 Wang Lin ne rouvrit pas les yeux et répondit simplement: « Parlez. »
 
-« Si vous me raccompagnez vraiment dans vingt ans, je vous prie de ramener mes cendres sur la planète Dark Moon du Système Stellaire de l'Alliance. Il y a une montagne qui perce le ciel. Je me souviens qu'il y avait un village au pied de cette montagne. Veuillez déposer mes cendres là-bas. »
+« Si vous me raccompagnez vraiment dans vingt ans, je vous prie de ramener mes cendres sur la planète Anyue du Système Stellaire de l'Alliance. Il y a une montagne qui perce le ciel. Je me souviens qu'il y avait un village au pied de cette montagne. Veuillez déposer mes cendres là-bas. »
 
 Wang Lin soupira, puis ouvrit les yeux et adressa un signe de tête à Sun Tai.
 

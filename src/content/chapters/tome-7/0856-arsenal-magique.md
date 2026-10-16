@@ -24,7 +24,7 @@ Des arcs électriques traversaient le corps de Qing Shui, lui conférant une app
 
 « Il ne m'a fallu que quelques instants pour maîtriser Invoquer le Vent. Pour Appeler la Pluie, un mois. Cependant, l'Arsenal Magique m'a pris plus d'un siècle pour en comprendre pleinement les secrets! » Qing Shui soupira tout en formant un nouveau sceau de sa main droite.
 
-Une lumière cristalline sembla apparaître silencieusement lors de son geste. Ce mouvement força les innombrables armes issues du sort du Dieu Sanglant à s'interrompre instantanément!
+Une lumière cristalline sembla apparaître silencieusement lors de son geste. Ce mouvement força les innombrables armes issues du sort du Dieu de Sang à s'interrompre instantanément!
 
 Sous les yeux de Wang Lin, la lumière cristalline se divisa en de multiples lueurs. L'une d'elles prit la forme d'un vieil homme. À son apparition, une aura de mort dense émanait de lui, mais aussi une puissante énergie d'origine, créant ainsi une sensation étrange et paradoxale.
 
@@ -46,13 +46,13 @@ Tandis que Qing Shui parlait, toutes les lumières cristallines disparurent pour
 
 « Roi Céleste de Rang 7, Yun Meng. J'ai tué cette femme dans une lutte pour la suprématie! »
 
-Les yeux de Qing Shui étaient baignés de nostalgie. À mesure qu'il parlait, une âme illusoire apparaissait après l'autre. Non seulement les yeux de Wang Lin s'écarquillèrent, mais le Dieu Sanglant fut lui aussi profondément choqué.
+Les yeux de Qing Shui étaient baignés de nostalgie. À mesure qu'il parlait, une âme illusoire apparaissait après l'autre. Non seulement les yeux de Wang Lin s'écarquillèrent, mais le Dieu de Sang fut lui aussi profondément choqué.
 
 En particulier, les âmes des célestes étaient toutes empreintes d'une intention meurtrière et d'un ressentiment accablant. C'était comme si elles avaient toutes péri en étant habitées par une immense injustice, refusant de pénétrer dans le cycle de la réincarnation. Dès leur apparition, l'endroit sembla se transformer en purgatoire!
 
 « Roi Céleste de Rang 9, Yao Haiqing. Je l'ai tué avec le sort céleste Éparpillement! »
 
-Une âme céleste semblable à celle du Dieu Sanglant apparut, son corps saturé d'une aura de mort. À sa vue, l'expression du Dieu Sanglant changea radicalement!
+Une âme céleste semblable à celle du Dieu de Sang apparut, son corps saturé d'une aura de mort. À sa vue, l'expression du Dieu de Sang changea radicalement!
 
 « Seigneur Céleste de Rang 1, Liu Yun. Je l'ai tué lors de la bataille contre le Seigneur Céleste du Vent! »
 
@@ -72,13 +72,13 @@ Wang Lin ne doutait pas de l'identité de ces êtres. Une vague de choc déferla
 
 Même Wang Lin fut stupéfait par le palmarès de combat de Qing Shui!
 
-Alors que Qing Shui parlait, les innombrables âmes célestes libérèrent une aura si puissante qu'elle pouvait renverser les mondes. À cet instant précis, toutes chargèrent vers le Dieu Sanglant!
+Alors que Qing Shui parlait, les innombrables âmes célestes libérèrent une aura si puissante qu'elle pouvait renverser les mondes. À cet instant précis, toutes chargèrent vers le Dieu de Sang!
 
-Le visage du Dieu Sanglant était livide. Il n'aurait jamais imaginé que l'Arsenal Magique de l'Empereur Céleste Bai Fan, mentionné dans ses archives familiales, fût aussi terrifiant!
+Le visage du Dieu de Sang était livide. Il n'aurait jamais imaginé que l'Arsenal Magique de l'Empereur Céleste Bai Fan, mentionné dans ses archives familiales, fût aussi terrifiant!
 
-« Quel genre d'empereur céleste est-ce là? C'est un dieu démon! » Le Dieu Sanglant battit en retraite précipitamment. Tout ce qui venait de se produire lui glaçait le sang. Les archives familiales mentionnaient effectivement l'ancêtre céleste Yao Haiqing, mais bien que les détails fussent vagues, rien n'indiquait qu'il avait été terrassé par le Seigneur Céleste Qing Shui!
+« Quel genre d'empereur céleste est-ce là? C'est un dieu démon! » Le Dieu de Sang battit en retraite précipitamment. Tout ce qui venait de se produire lui glaçait le sang. Les archives familiales mentionnaient effectivement l'ancêtre céleste Yao Haiqing, mais bien que les détails fussent vagues, rien n'indiquait qu'il avait été terrassé par le Seigneur Céleste Qing Shui!
 
-Tout en reculant, les yeux du Dieu Sanglant devinrent rouge sang et un éclat démoniaque jaillit entre ses sourcils alors qu'il hurlait: « Plantes, attaquez! »
+Tout en reculant, les yeux du Dieu de Sang devinrent rouge sang et un éclat démoniaque jaillit entre ses sourcils alors qu'il hurlait: « Plantes, attaquez! »
 
 Les armes formées par les innombrables plumes chargèrent immédiatement les âmes célestes. À ce moment-là, des grondements retentirent dans un rayon de 500 kilomètres, créant une tempête inimaginable qui balaya l'horizon.
 
@@ -86,25 +86,25 @@ L'ampleur de ce combat affectait tout le Domaine du Sud. L'effondrement des éto
 
 Si cela perdurait, une catastrophe inévitable se produirait!
 
-Yao Yun ne cessait de reculer. Son corps irradiait un éclat démoniaque pour résister à la pression qui poussait le Dieu Sanglant, mais sa culture était insuffisante et il subissait des blessures continues. Il perdait tout courage, et même le démon logé en lui était sur le point de s'effondrer!
+Yao Yun ne cessait de reculer. Son corps irradiait un éclat démoniaque pour résister à la pression qui poussait le Dieu de Sang, mais sa culture était insuffisante et il subissait des blessures continues. Il perdait tout courage, et même le démon logé en lui était sur le point de s'effondrer!
 
-Des bruits de tonnerre résonnaient tandis que le sort du Dieu Sanglant continuait de se désintégrer. Aucune des plumes transformées en armes ne pouvait résister et elles volèrent toutes en éclats!
+Des bruits de tonnerre résonnaient tandis que le sort du Dieu de Sang continuait de se désintégrer. Aucune des plumes transformées en armes ne pouvait résister et elles volèrent toutes en éclats!
 
-Alors que le Dieu Sanglant tentait de fuir, une âme céleste apparut devant lui et explosa. La force brutale de l'explosion percuta le corps du Dieu Sanglant.
+Alors que le Dieu de Sang tentait de fuir, une âme céleste apparut devant lui et explosa. La force brutale de l'explosion percuta le corps du Dieu de Sang.
 
-Ce n'était pas la seule; d'innombrables âmes célestes se rassemblèrent autour de lui. L'intention meurtrière qui s'accumulait fit naître, pour la première fois, une véritable terreur dans les yeux du Dieu Sanglant!
+Ce n'était pas la seule; d'innombrables âmes célestes se rassemblèrent autour de lui. L'intention meurtrière qui s'accumulait fit naître, pour la première fois, une véritable terreur dans les yeux du Dieu de Sang!
 
 Cela faisait une éternité qu'il n'avait pas ressenti une telle menace de mort!
 
-Le Dieu Sanglant redoutait par-dessus tout ces âmes qui furent autrefois des seigneurs célestes, car chacune d'elles possédait une aura terrifiante!
+Le Dieu de Sang redoutait par-dessus tout ces âmes qui furent autrefois des seigneurs célestes, car chacune d'elles possédait une aura terrifiante!
 
 S'il n'y en avait eu qu'une seule, il aurait pu la détruire aisément; même deux n'auraient pas été un problème. Mais étant blessé, il se retrouvait dans un état pitoyable.
 
-« Qing Shui, comptes-tu me tuer?! » L'expression du Dieu Sanglant était féroce alors qu'il agitait ses larges manches. Une quantité phénoménale d'énergie originelle, capable de faire s'effondrer le ciel et de briser les lois, commença à s'accumuler frénétiquement.
+« Qing Shui, comptes-tu me tuer?! » L'expression du Dieu de Sang était féroce alors qu'il agitait ses larges manches. Une quantité phénoménale d'énergie originelle, capable de faire s'effondrer le ciel et de briser les lois, commença à s'accumuler frénétiquement.
 
 « Et alors si je te tue? » D'un pas assuré, Qing Shui avança et tendit la main droite. Une énergie glaciale se rassembla instantanément pour former une masse d'air noir.
 
-Le Dieu Sanglant afficha un regard déterminé en reculant pour rejoindre Yao Yun. Il pointa sa main droite entre les yeux de ce dernier. Les yeux de Yao Yun s'écarquillèrent soudainement et son corps se rétracta rapidement, comme si son âme originelle et sa chair étaient aspirées par la chose logée en lui.
+Le Dieu de Sang afficha un regard déterminé en reculant pour rejoindre Yao Yun. Il pointa sa main droite entre les yeux de ce dernier. Les yeux de Yao Yun s'écarquillèrent soudainement et son corps se rétracta rapidement, comme si son âme originelle et sa chair étaient aspirées par la chose logée en lui.
 
 Un cri déchirant s'échappa de sa bouche et ses yeux devinrent injectés de sang. Pourtant, à cet instant, la confusion dans son regard disparut pour laisser place à une clarté inédite!
 
@@ -114,10 +114,10 @@ Durant ce processus, le corps de Yao Yun se désintégra encore plus vite, car i
 
 Le regard de Yao Yun devint d'une lucidité absolue et il esquissa un sourire pitoyable. Il se remémorait enfin les souvenirs qu'il n'avait pu retrouver pendant des millénaires!
 
-« La famille Yao n'existe plus... » Son corps tomba des étoiles. Tandis qu'il chutait, l'âme du démon ancien s'échappa et, chargée d'une puissante aura démoniaque, elle pénétra dans le corps du Dieu Sanglant.
+« La famille Yao n'existe plus... » Son corps tomba des étoiles. Tandis qu'il chutait, l'âme du démon ancien s'échappa et, chargée d'une puissante aura démoniaque, elle pénétra dans le corps du Dieu de Sang.
 
-Tout cela se produisit en un éclair. Lorsque le Dieu Sanglant absorba l'âme du démon ancien, son corps irradia une aura démoniaque foudroyante. Ses yeux brillèrent alors qu'il agitait ses manches pour déchirer le vide!
+Tout cela se produisit en un éclair. Lorsque le Dieu de Sang absorba l'âme du démon ancien, son corps irradia une aura démoniaque foudroyante. Ses yeux brillèrent alors qu'il agitait ses manches pour déchirer le vide!
 
 Un bruit de déchirure retentit tandis qu'une longue faille s'ouvrait, laissant flotter lentement une lampe ancienne!
 
-« Qing Shui, puisque tu cherches la mort, ne blâme pas ce vieillard pour avoir tué un céleste! » L'expression du Dieu Sanglant devint hideuse, et l'ombre gigantesque d'un démon ancien de plusieurs dizaines de mètres apparut devant lui. Ses yeux rouge sang fixèrent Qing Shui avant de laisser échapper un rugissement silencieux!
+« Qing Shui, puisque tu cherches la mort, ne blâme pas ce vieillard pour avoir tué un céleste! » L'expression du Dieu de Sang devint hideuse, et l'ombre gigantesque d'un démon ancien de plusieurs dizaines de mètres apparut devant lui. Ses yeux rouge sang fixèrent Qing Shui avant de laisser échapper un rugissement silencieux!
