@@ -36,7 +36,7 @@ Jie Donglei afficha un regard de regret alors que son corps se changeait en cend
 
 « C'est... c'était un cultivateur d'épée! » Le visage de Li Muwan était empreint de choc. La scène précédente faisait encore trembler tout son corps.
 
-De nombreux cultivateurs avaient été des cultivateurs d'épée dans l'Antiquité, mais de nos jours, peu se consacraient exclusivement à la voie de l'épée; ils s'en servaient plutôt comme trésors.
+Dans l'Antiquité, les cultivateurs d'épée étaient nombreux, mais de nos jours, peu se consacraient exclusivement à la voie de l'épée; ils s'en servaient plutôt comme trésors.
 
 La vitesse et la puissance d'un cultivateur d'épée surpassent celles des cultivateurs ordinaires. Bien qu'il existe de multiples méthodes de culture de l'épée, il faut une technique de rang supérieur et une épée d'une qualité exceptionnelle pour véritablement libérer la puissance terrifiante d'un tel combattant.
 
@@ -92,7 +92,7 @@ Puis, après avoir disposé plusieurs formations autour de lui, Wang Lin concent
 
 C'était la première fois que Wang Lin pénétrait dans la perle défiant le ciel après avoir atteint le stade de la Formation du Noyau. Au moment où il y entra, Shang Guanmo, qui gérait la Secte de la Lutte contre le Mal, trembla en sentant que ce démon terrifiant s'était volatilisé.
 
-Pour être plus précis, son essence de sang de l'âme avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
+Pour être plus précis, son sang d'âme avait disparu sans laisser de trace. Choqué et terrifié, il s'élança dans les airs. Après un moment, il se retourna, le regard empreint d'incrédulité.
 
 Li Muwan, qui venait de descendre de la tête du dragon, fut surprise en levant les yeux avant de laisser échapper un soupir.
 

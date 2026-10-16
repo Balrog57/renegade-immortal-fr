@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 165 - Palpitating with Eagerness
 slug: le-cur-battant-dimpatience
 ---
-Le vieil homme grommela: « C’est vraiment ennuyeux! » Il leva froidement les yeux vers Zhao Chuanliang et lança: « Je n’ai pas envie de tuer pour le moment, alors dégage! » Le vieil homme ne mentait pas; la mystérieuse Secte des Cadavres était bien plus effrayant pour lui que les pays de culture de rang 4 ou 5.
+Le vieil homme grommela: « C’est vraiment ennuyeux! » Il leva froidement les yeux vers Zhao Chuanliang et lança: « Je n’ai pas envie de tuer pour le moment, alors dégage! » Le vieil homme ne mentait pas; la mystérieuse Secte des Cadavres était bien plus effrayante pour lui que les pays de culture de rang 4 ou 5.
 
 À moins d'y être contraint, il n'avait aucune envie de se battre avec eux. Ce qui l'irritait le plus, c'était que ce combat n'était même pas pour lui, mais pour un junior avec lequel il n'avait aucun lien, si ce n'est qu'il avait besoin d'utiliser ce gamin.
 

@@ -16,7 +16,7 @@ Pourtant, elle ne s'effondra pas!
 
 Mais une force puissante s'en échappa et frappa le corps de Wang Lin. Son visage pâlit instantanément et il cracha une bouchée de sang en reculant sous l'impact de cette puissance.
 
-La crise ne prit pas fin là. La force traversa la tablette, et vague après vague, elle s'abattit sur le corps de Wang Lin. Il cracha du sang à trois reprises consécutives, mais son visage affichait une expression farouche.
+La crise ne prit pas fin là. La force traversa le sceau, et vague après vague, elle s'abattit sur le corps de Wang Lin. Il cracha du sang à trois reprises consécutives, mais son visage affichait une expression farouche.
 
 « Ce n'est pas si facile de me tuer! » Wang Lin maintint le sceau fragmentaire d'une main et, de l'autre, frappa son sac de contenance, faisant apparaître un écran.
 

@@ -156,7 +156,7 @@ Wang Lin murmura: « Toujours pas assez! » Grâce à son Sens Divin, il constat
 
 Les yeux de Wang Lin s'illuminèrent alors que plusieurs objets sortaient de son sac. Sans même les regarder, il en saisit un et le lança avec précision dans le fourneau.
 
-L'objet tomba dans une flamme cyan. Bien que la vitesse de rotation n'ait pas augmenté, la température intérieure doubla instantanément. Le chaudron vert devint alors d'un rouge incandescent.
+Dès que l'objet tomba, une flamme cyan jaillit. Bien que la vitesse de rotation n'ait pas augmenté, la température intérieure doubla instantanément. Le chaudron vert devint alors d'un rouge incandescent.
 
 Pourtant, il ne fondait toujours pas.
 

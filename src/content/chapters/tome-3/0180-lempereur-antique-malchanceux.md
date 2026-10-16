@@ -156,7 +156,7 @@ Effectivement, comme s'il l'avait prédit, des piliers de lumière rouge surgire
 
 Un par un, il brisa les piliers de lumière. En moins de deux respirations, ils avaient tous disparu. Il avait franchi cette restriction avec aisance.
 
-L'Empereur Antique avança. Il visait la deuxième restriction située à plusieurs centaines de pieds. Après avoir parcouru plusieurs centaines de pieds, son visage changea brusquement. Au moment où il sortit de la zone, un brouillard noir l'enveloppa. C'était manifestement très différent des lumières rouges et des bruits de bêtes entendus précédemment.
+L'Empereur Antique avança. Il visait la deuxième restriction située à plusieurs centaines de pieds. Après avoir parcouru plusieurs milliers de pieds, son visage changea brusquement. Au moment où il sortit de la zone, un brouillard noir l'enveloppa. C'était manifestement très différent des lumières rouges et des bruits de bêtes entendus précédemment.
 
 Peu après, d'innombrables épées noires et lumières rouges apparurent et foncèrent sur lui. Leur vitesse était telle qu'au moment où il les perçut, elles étaient déjà sur lui.
 

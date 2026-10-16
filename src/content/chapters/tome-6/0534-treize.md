@@ -132,7 +132,7 @@ S'il ne s'effondra pas, ce n'était pas par force, mais parce que Wang Lin ne le
 
 La charge s'interrompit net et, sans la moindre hésitation, le lion poussa un cri misérable avant de faire demi-tour pour fuir. À cet instant, une silhouette émergea du fond de la vallée.
 
-D'un seul pas, Wang Lin franchit des dizaines de mètres et apparut dans le ciel.
+D'un seul pas, Wang Lin franchit des centaines de mètres et apparut dans le ciel.
 
 Le corps du fragment d'âme du lion tremblait. Il sentait émaner de l'homme devant lui une puissance à laquelle il ne pouvait absolument pas résister.
 

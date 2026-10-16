@@ -16,7 +16,7 @@ En plus de cela, tous les bâtiments situés dans un rayon de cinq kilomètres s
 
 Seules les quelques personnes dont la culture était équivalente ou supérieure à celle des cultivateurs de la Transformation de l'Âme purent survivre à cette tempête.
 
-Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éleva des fragments de chair éparpillés pour foncer vers Wang Lin. Quatre nouveaux filaments s'ajoutèrent à celui de Sima Yan : ces cinq gaz, pareils à autant de dragons azurés, tournoyèrent entre les doigts de sa main gauche.
+Au même moment, le gaz de massacre formé par l'Art du Massacre Céleste s'éleva des fragments de chair éparpillés pour foncer vers Wang Lin. Quatre nouveaux filaments s'ajoutèrent à celui de Sima Yan: ces cinq gaz, pareils à autant de dragons azurés, tournoyèrent entre les doigts de sa main gauche.
 
 « Quel sort puissant! » Une voix grave résonna devant lui. Une fois la poussière retombée, la silhouette massive du général démoniaque apparut.
 

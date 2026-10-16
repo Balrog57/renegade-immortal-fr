@@ -124,4 +124,4 @@ Tandis que Zhao Xingsha parlait, il forma un sceau et commença à réciter une 
 
 L'expression de Wang Lin resta imperturbable. Il ouvrit la bouche et le drapeau des âmes apparut. D'un coup sec, toutes les âmes primaires restantes surgirent.
 
-Sous les ordres de Wang Lin, ces âmes primaires chargèrent droit sur Zhao Xingsha. Au même moment, Wang Lin lança un objet de sa main droite: le cercle de bronze se transforma en char de guerre et atterrit sur le côté.
+Sous les ordres de Wang Lin, ces âmes primaires chargèrent droit sur Zhao Xingsha. Au même moment, Wang Lin lança un objet de sa main droite: le piège à bêtes se transforma en char de guerre et atterrit sur le côté.
