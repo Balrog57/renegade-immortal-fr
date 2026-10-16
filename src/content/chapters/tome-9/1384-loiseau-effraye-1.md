@@ -26,7 +26,7 @@ Wang Lin médita encore un instant avant de s'arrêter net. Une possibilité lui
 
 Peut-être que ces deux hypothèses sont les véritables raisons de son revirement! Cependant, ce ne sont que des spéculations. Je ne sais pas si l'une d'elles est vraie.
 
-De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Déchus dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Courbure Spatiale pour se diriger vers le Clan du Scorpion Noir.
+De plus, il a puni le Patriarche du Dragon Blindé en envoyant son messager pour me faire étalage de sa puissance... Et enfin, il m'ordonne de participer à la sélection des Anciens Délaissés dans trois mois... Cette affaire est étrange. Je n'aurai qu'à m'y rendre dans trois mois pour découvrir les objectifs de ce Grand Empereur! » Les yeux de Wang Lin s'illuminèrent et il se concentra. Il utilisa la Courbure Spatiale pour se diriger vers le Clan du Scorpion Noir.
 
 Le groupe de Cupidité progressait à une vitesse fulgurante et convergeait rapidement vers le Clan du Scorpion Noir. Ces mille cultivateurs traversaient l'espace, créant d'immenses ondulations alors qu'ils approchaient de la planète du clan.
 

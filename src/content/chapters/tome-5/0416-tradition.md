@@ -76,7 +76,7 @@ Cependant, les deux connaissaient la manœuvre; ils se contentèrent de repousse
 
 L'un était un vieil homme vêtu d'une robe violette, entouré de deux scorpions rouge sang. Il cria brusquement: « Vieux fantôme Du Tian, il n'y a plus de jades célestes! »
 
-L'autre était une vieille femme portant une robe de palais. Bien que son visage fût marqué par les rides, ses yeux brillaient d'éclat. Elle toussa pour couper la parole au vieil homme et, fixant Du Tian, déclara: « Vieux fantôme Du Tian, nous ne pouvons rien vous donner. Lors de l'attaque du Clan des Immortels Déchus, j'ai été gravement blessée et il m'a fallu une immense quantité de jades célestes pour m'en remettre. Compte tenu de l'avenir, nous n'avons rien à vous céder. »
+L'autre était une vieille femme portant une robe de palais. Bien que son visage fût marqué par les rides, ses yeux brillaient d'éclat. Elle toussa pour couper la parole au vieil homme et, fixant Du Tian, déclara: « Vieux fantôme Du Tian, nous ne pouvons rien vous donner. Lors de l'attaque du Clan des Immortels Délaissés, j'ai été gravement blessée et il m'a fallu une immense quantité de jades célestes pour m'en remettre. Compte tenu de l'avenir, nous n'avons rien à vous céder. »
 
 Le regard de Du Tian se fit sérieux et se posa sur la vieille femme. Il pointa son front, libérant l'aura de mort qu'il contenait jusque-là. Sa voix était rauque: « Yan Hong, il me reste moins de deux ans à vivre. »
 

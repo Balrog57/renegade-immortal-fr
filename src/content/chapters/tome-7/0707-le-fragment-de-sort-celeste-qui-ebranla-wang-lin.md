@@ -51,7 +51,7 @@ Les deux rayons d'énergie d'épée de Ling Tianhou flottaient dans les airs, é
 
 Le regard de Wang Lin se posa sur la Bête du Tonnerre.
 
-S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de Guerre Tueur de Dieux sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
+S'il n'avait pas été confronté à une situation de vie ou de mort, Wang Lin n'aurait jamais ouvert le troisième sceau du Char de Guerre Divin sans préparation. Après tout, ce char était extrêmement difficile à contrôler; la moindre erreur aurait provoqué un contrecoup dévastateur.
 
 Pourtant, durant ces six mois, la réaction de la Bête du Tonnerre avait été inattendue. Non seulement elle n'avait montré aucun signe de rébellion, mais elle avait suivi toutes ses commandes.
 

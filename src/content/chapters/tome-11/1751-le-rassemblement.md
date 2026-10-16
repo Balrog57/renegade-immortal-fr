@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1751 - People Gather
 slug: le-rassemblement
 ---
-Le brouillard d'Allheaven entourant la planète de Wang Lin s'agita violemment alors que plusieurs plaques de pierre convergeaient en un éclair. Elles ne fusionnaient pas, mais s'assemblaient pour dessiner une esquisse.
+Le brouillard de Luotian entourant la planète de Wang Lin s'agita violemment alors que plusieurs plaques de pierre convergeaient en un éclair. Elles ne fusionnaient pas, mais s'assemblaient pour dessiner une esquisse.
 
 Cette structure était encore incomplète et sa forme demeurait incertaine. Cependant, l'aura et la pression qu'elle dégageait firent vibrer le cœur de Wang Lin lorsqu'il la vit.
 

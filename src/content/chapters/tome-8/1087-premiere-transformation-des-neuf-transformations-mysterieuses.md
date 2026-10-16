@@ -22,9 +22,9 @@ La région orientale des Quatre Sectes Divines n'était pas trop impliquée dans
 
 Toutefois, ces intrus ne purent provoquer de grands remous et furent éliminés par les gardes des Quatre Sectes Divines. Même ceux possédant une culture puissante qui réussirent à échapper aux gardes furent balayés par les Anciens des Quatre Sectes Divines dès qu'ils s'enfoncèrent plus profondément dans le territoire.
 
-La guerre entre Allheaven et l'Alliance se poursuivait, tandis que la Secte des Corps restait relativement calme. Néanmoins, des membres de la Secte des Corps étaient toujours présents sur les champs de bataille. Ils semblaient collecter les corps, qu'ils soient intacts ou endommagés. Parallèlement, ils commencèrent à contacter les deux camps pour reprendre leur commerce originel: la vente de cadavres.
+La guerre entre Luotian et l'Alliance se poursuivait, tandis que la Secte des Corps restait relativement calme. Néanmoins, des membres de la Secte des Corps étaient toujours présents sur les champs de bataille. Ils semblaient collecter les corps, qu'ils soient intacts ou endommagés. Parallèlement, ils commencèrent à contacter les deux camps pour reprendre leur commerce originel: la vente de cadavres.
 
-La prolongation du conflit permit à la Secte des Corps d'être accueillie favorablement par tous; de grandes quantités de corps étaient vendues aux forces d'Allheaven et de l'Alliance. De même, le jade céleste, les trésors, les matériaux et toutes sortes d'objets d'échange affluèrent vers la Secte des Corps.
+La prolongation du conflit permit à la Secte des Corps d'être accueillie favorablement par tous; de grandes quantités de corps étaient vendues aux forces de Luotian et de l'Alliance. De même, le jade céleste, les trésors, les matériaux et toutes sortes d'objets d'échange affluèrent vers la Secte des Corps.
 
 Seuls le Royaume du Vide Brillant et les Quatre Sectes Divines jouissaient de la paix, comme s'ils étaient coupés du reste du monde.
 

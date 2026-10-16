@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 710 - Attachment
 slug: attachement
 ---
-Les cinq planètes majeures du domaine nordique du Système Stellaire d'Allheaven possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
+Les cinq planètes majeures du domaine nordique du Système Stellaire de Luotian possédaient chacune de nombreuses planètes de culture sous leur autorité, sur lesquelles résidaient de multiples familles de cultivateurs. Wang Lin, monté sur le dos de la Bête du Tonnerre, se dirigea directement vers la famille Qian.
 
 Les cultivateurs du second niveau de la famille Qian s'étaient entrés en retraite de culture depuis longtemps; par conséquent, toute la gestion de la famille incombait à Qian Kuizi. Lorsque Wang Lin pénétra sur la planète Mille Illusions, Qian Kuizi le remarqua instantanément.
 
@@ -14,7 +14,7 @@ En voyant arriver Wang Lin sur la Bête du Tonnerre, il fut convaincu que les pr
 
 En songeant aux puissants trésors et sorts que cet individu avait démontrés soixante-dix ans plus tôt lors de la bataille contre l'ancêtre de la famille Huan, le cœur de Qian Kuizi trembla.
 
-« Le messager du Temple Céleste du Tonnerre sur lequel ma famille Qian comptait est mort dans le Royaume Céleste du Tonnerre il y a plusieurs milliers d'années. Dans le Système Stellaire d'Allheaven, à moins de faire partie des familles anciennes, chacun doit s'appuyer sur un messager du Temple Céleste du Tonnerre pour survivre... » Qian Kuizi hésitait. Sa décision actuelle déterminerait l'avenir et le développement de la famille Qian.
+« Le messager du Temple Céleste du Tonnerre sur lequel ma famille Qian comptait est mort dans le Royaume Céleste du Tonnerre il y a plusieurs milliers d'années. Dans le Système Stellaire de Luotian, à moins de faire partie des familles anciennes, chacun doit s'appuyer sur un messager du Temple Céleste du Tonnerre pour survivre... » Qian Kuizi hésitait. Sa décision actuelle déterminerait l'avenir et le développement de la famille Qian.
 
 « Malheureusement, tous les cultivateurs du second niveau de la famille sont en retraite de culture. Je ne peux pas les déranger, sinon j'aurais quelqu'un avec qui discuter de cela. »
 
@@ -42,17 +42,17 @@ Wang Lin esquissa un léger sourire et dit: « Cela me convient fort bien. Compa
 
 Qian Kuizi réfléchit silencieusement. Bien que les Fruits d'Ascension Céleste fussent cruciaux pour accéder au Royaume Céleste du Tonnerre, obtenir le soutien d'un messager du Temple Céleste du Tonnerre était bien plus important.
 
-Sa seule hésitation concernait l'avenir de cet homme. Il fallait savoir que dans le Système Stellaire d'Allheaven, une fois qu'une famille était sous la protection d'un messager, elle ne pouvait en obtenir une autre avant la mort de ce dernier.
+Sa seule hésitation concernait l'avenir de cet homme. Il fallait savoir que dans le Système Stellaire de Luotian, une fois qu'une famille était sous la protection d'un messager, elle ne pouvait en obtenir une autre avant la mort de ce dernier.
 
 « Avec les ressources de ma famille Qian, nous pourrions attirer un messager ayant atteint le second niveau. Cependant, ces messagers du second niveau sont tous d'une arrogance extrême. Obtenir leur soutien exigerait des ressources démesurées. La culture de cet homme est encore faible, mais son potentiel futur est infini. Bien que ce ne soit qu'un pari, si je parie correctement ici... » Qian Kuizi continuait d'hésiter.
 
-Dans le Système Stellaire d'Allheaven, si une famille n'était pas soutenue par un messager du Temple Céleste du Tonnerre, cela signifiait qu'elle était privée de sa protection. Les conséquences d'une telle situation étaient extrêmement graves.
+Dans le Système Stellaire de Luotian, si une famille n'était pas soutenue par un messager du Temple Céleste du Tonnerre, cela signifiait qu'elle était privée de sa protection. Les conséquences d'une telle situation étaient extrêmement graves.
 
-Le Temple Céleste du Tonnerre était une entité gigantesque qui enveloppait le Système Stellaire d'Allheaven. Sa méthode de contrôle était très primitive et différait grandement de la façon dont l'Alliance de Culture gérait le Système Stellaire de l'Alliance.
+Le Temple Céleste du Tonnerre était une entité gigantesque qui enveloppait le Système Stellaire de Luotian. Sa méthode de contrôle était très primitive et différait grandement de la façon dont l'Alliance de Culture gérait le Système Stellaire de l'Alliance.
 
-Dans le Système Stellaire d'Allheaven, le Temple Céleste du Tonnerre disposait d'un nombre fixe de messagers qui ne changeait jamais; il en maintenait toujours quatre-vingt-dix-neuf.
+Dans le Système Stellaire de Luotian, le Temple Céleste du Tonnerre disposait d'un nombre fixe de messagers qui ne changeait jamais; il en maintenait toujours quatre-vingt-dix-neuf.
 
-Ces quatre-vingt-dix-neuf messagers avaient chacun un grand nombre de familles sous leur tutelle, leur permettant ainsi de développer leurs propres forces. C'était là la particularité unique du Système Stellaire d'Allheaven.
+Ces quatre-vingt-dix-neuf messagers avaient chacun un grand nombre de familles sous leur tutelle, leur permettant ainsi de développer leurs propres forces. C'était là la particularité unique du Système Stellaire de Luotian.
 
 Les forces du Daoïste du Tonnerre n'étaient pas dans le domaine nordique; il n'était venu ici que sur ordre pour enquêter. C'est par excès de confiance qu'il était venu seul, ce qui avait causé sa perte.
 

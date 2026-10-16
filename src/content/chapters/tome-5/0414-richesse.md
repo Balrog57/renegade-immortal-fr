@@ -124,7 +124,7 @@ Une demi-lune plus tard, il ressortit de la faille spatiale, le sourcil froncé.
 
 « Je crains que l'épée ne soit déjà détruite... »
 
-« Je dois vite retourner à la Secte du Raffinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation avant de quitter définitivement Zhao.
+« Je dois vite retourner à la Secte du Affinement de l'Âme et trouver une multitude de jades célestes pour atteindre le stade de la Transformation de l'Âme! » Sur ces mots, Wang Lin disparut. Lorsqu'il réapparut, il se trouvait dans une ancienne matrice de téléportation avant de quitter définitivement Zhao.
 
 Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un pays désormais sous le joug du Clan des Immortels Délaissés, dont les habitants étaient devenus leurs serviteurs — un homme portant un chapeau de paille se tenait à la frontière. Il était enveloppé d'une aura dorée.
 
@@ -134,4 +134,4 @@ Dans un pays de culture de rang 4 situé à l'ouest de la planète Suzaku — un
 
 Il fit un pas et disparut.
 
-Dans une ancienne matrice de téléportation du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte du Raffinement de l'Âme.
+Dans une ancienne matrice de téléportation du pays de Pilu, une lumière éclatante jaillit et Wang Lin en sortit. Il s'élança immédiatement dans les airs, fonçant droit vers la Secte du Affinement de l'Âme.

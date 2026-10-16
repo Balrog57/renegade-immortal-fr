@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 397 - Giant Demon Clan
 slug: le-clan-des-demons-geants
 ---
-L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte du Raffinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau spirituel.
+L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte du Affinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau spirituel.
 
 Avec ces douze fragments d'âmes de la Transformation de l'Âme, la puissance de ce drapeau était déjà suffisante pour ébranler les cieux.
 
@@ -20,9 +20,9 @@ Tout ce que Wang Lin voyait se trouvait à l'intérieur du drapeau de l'âme. Le
 
 L'âme originelle de Wang Lin s'avança et saisit le drapeau. Il sentit soudain son corps trembler, puis son âme originelle fut renvoyée dans son corps physique.
 
-Au sommet de la Montagne du Raffinement de l'Âme, Wang Lin ouvrit les yeux. Rien ne semblait être devant lui, pourtant il pouvait sentir, au plus profond de lui, un drapeau pourpre et doré que son âme originelle était en train de raffiner.
+Au sommet de la Montagne du Affinement de l'Âme, Wang Lin ouvrit les yeux. Rien ne semblait être devant lui, pourtant il pouvait sentir, au plus profond de lui, un drapeau pourpre et doré que son âme originelle était en train de raffiner.
 
-« Ancêtre du Clan des Démons Géants, ceci sera une calamité dont vous aurez bien du mal à vous échapper! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte du Raffinement de l'Âme.
+« Ancêtre du Clan des Démons Géants, ceci sera une calamité dont vous aurez bien du mal à vous échapper! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte du Affinement de l'Âme.
 
 Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa culture en méditation fermée.
 

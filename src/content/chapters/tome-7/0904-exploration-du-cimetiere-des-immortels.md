@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 904 - Exploring the Immortal Graveyard
 slug: exploration-du-cimetiere-des-immortels
 ---
-Un vieil homme était assis près de l'immense fosse où le Clan des Immortels Déchus avait autrefois été scellé sur la planète Suzaku. Ce vieil homme portait une robe rouge et une chevelure rousse. Une plante scintillait sur son front, déployant onze feuilles. Cependant, au sommet de la onzième feuille, une douzième demi-feuille s'épanouissait.
+Un vieil homme était assis près de l'immense fosse où le Clan des Immortels Délaissés avait autrefois été scellé sur la planète Suzaku. Ce vieil homme portait une robe rouge et une chevelure rousse. Une plante scintillait sur son front, déployant onze feuilles. Cependant, au sommet de la onzième feuille, une douzième demi-feuille s'épanouissait.
 
-Si cette demi-feuille s'ouvrait complètement, ce vieil homme deviendrait instantanément un membre du Clan des Immortels Déchus à douze feuilles!
+Si cette demi-feuille s'ouvrait complètement, ce vieil homme deviendrait instantanément un membre du Clan des Immortels Délaissés à douze feuilles!
 
-Au sein du Clan des Immortels Déchus, un membre à douze feuilles équivalait à un cultivateur de l'Yin Illusoire!
+Au sein du Clan des Immortels Délaissés, un membre à douze feuilles équivalait à un cultivateur de l'Yin Illusoire!
 
 Le vieil homme restait assis là, silencieux. Il demeurait immobile, comme s'il était éternel.
 
@@ -18,7 +18,7 @@ Ce jour-là, quatre rayons de lumière traversèrent le ciel, et le vieil homme 
 
 Wang Lin atterrit sur le sol et observa la fosse profonde ainsi que le vieil homme qui dévorait des yeux Ta Shan. Après une courte réflexion, il dit lentement: « Cela fait longtemps, Senior Yun Quezi. »
 
-Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Déchus? »
+Le vieil homme était Yun Quezi, et ses yeux étaient empreints de choc. Il détourna son regard de Ta Shan, une tempête s'emparant de son cœur. Il fixa Wang Lin et dit d'un ton amer: « Je n'ai commencé la culture qu'après toi, nul besoin de m'appeler "senior". Compagnon cultivateur Wang Lin, est-il un membre de mon Clan des Immortels Délaissés? »
 
 Yun Quezi pointa Ta Shan du doigt.
 
@@ -32,11 +32,11 @@ Lei Ji suivit à son tour. Il témoignait un immense respect envers Wang Lin, su
 
 Yun Quezi esquissa un sourire amer et son corps vacilla alors qu'il pénétrait dans la fosse.
 
-En chemin, Wang Lin ne se pressait pas. Il progressait lentement à travers le Cimetière des Immortels. Le Clan des Immortels Déchus avait quitté les lieux, laissant derrière lui un vide absolu.
+En chemin, Wang Lin ne se pressait pas. Il progressait lentement à travers le Cimetière des Immortels. Le Clan des Immortels Délaissés avait quitté les lieux, laissant derrière lui un vide absolu.
 
-À mesure qu'il descendait de strate en strate, Wang Lin se souvint que la profondeur maximale qu'il ait atteinte était la onzième couche. Là, il avait rencontré le troisième ancêtre du Clan des Immortels Déchus et avait été traqué par elle jusqu'à ce qu'il sorte le parchemin scellant la femme de la famille Xiang. Ce n'est que grâce à cela qu'il avait pu échapper à cette crise.
+À mesure qu'il descendait de strate en strate, Wang Lin se souvint que la profondeur maximale qu'il ait atteinte était la onzième couche. Là, il avait rencontré le troisième ancêtre du Clan des Immortels Délaissés et avait été traqué par elle jusqu'à ce qu'il sorte le parchemin scellant la femme de la famille Xiang. Ce n'est que grâce à cela qu'il avait pu échapper à cette crise.
 
-À travers l'horreur qui avait marqué le visage du troisième ancêtre, Wang Lin comprit que le parchemin était d'une manière ou d'une autre lié au Clan des Immortels Déchus.
+À travers l'horreur qui avait marqué le visage du troisième ancêtre, Wang Lin comprit que le parchemin était d'une manière ou d'une autre lié au Clan des Immortels Délaissés.
 
 Plus il descendait, plus l'obscurité s'épaississait, comme si aucun être vivant n'avait foulé ce sol depuis des centaines d'années. Il n'y avait aucun signe de vie, seulement une riche énergie Yin.
 
@@ -46,7 +46,7 @@ Cependant, cette énergie Yin était dérisoire. Il n'avait même pas besoin d'a
 
 Au fil de sa descente, l'énergie Yin formait un vortex devant lui, comme pour lui ouvrir le passage.
 
-Tout en avançant, Wang Lin réfléchissait. Le Clan des Immortels Déchus et le Clan des Immortels Délaissés étaient manifestement issus du même peuple. Il en était désormais certain après avoir observé la réaction de Yun Quezi face au garçon à la grosse tête.
+Tout en avançant, Wang Lin réfléchissait. Le Clan des Immortels Délaissés et le Clan des Immortels Délaissés étaient manifestement issus du même peuple. Il en était désormais certain après avoir observé la réaction de Yun Quezi face au garçon à la grosse tête.
 
 Ce clan ne craignait pas l'énergie spirituelle céleste issue des jades célestes, mais dès que l'énergie originelle céleste émanait d'un être céleste, une force surgissait de leur âme pour les contraindre à la soumission.
 
@@ -68,7 +68,7 @@ Cette onzième couche n'était pas vaste. De nombreux ravins creusaient le sol, 
 
 La onzième couche était déserte, seul le murmure du liquide en mouvement troublait le silence.
 
-Yun Quezi dit d'une voix lente: « C'est l'une des marques ancestrales du Clan des Immortels Déchus. Cet endroit comptait au total dix-neuf couches. Hormis les ancêtres primordiaux, les descendants ne pouvaient atteindre que la seizième couche. Personne ne pouvait pénétrer dans les trois dernières. »
+Yun Quezi dit d'une voix lente: « C'est l'une des marques ancestrales du Clan des Immortels Délaissés. Cet endroit comptait au total dix-neuf couches. Hormis les ancêtres primordiaux, les descendants ne pouvaient atteindre que la seizième couche. Personne ne pouvait pénétrer dans les trois dernières. »
 
 Wang Lin hocha la tête, puis déploya son Sens Divin pour débusquer l'entrée de la douzième couche. En un éclair, il chargea vers elle.
 
@@ -80,7 +80,7 @@ Au centre trônait une mare d'eau noire. Elle dégageait des ondes d'énergie Yi
 
 « Cet endroit est assez intéressant », murmura Wang Lin en se rapprochant de la mare pour l'examiner avec attention.
 
-Yun Quezi resta silencieux un instant avant de déclarer: « À l'époque, seuls les ancêtres ayant atteint le stade des douze feuilles pouvaient entrer. Ces cercueils sont sans doute ceux d'ancêtres de mon Clan des Immortels Déchus. La rumeur prétend que la dix-huitième couche renferme l'origine même de notre clan! Quant à la dix-neuvième, on dit qu'elle abrite les âmes résiduelles du premier ancêtre... Compagnon cultivateur Wang, si vous parvenez à forcer l'entrée de la dix-huitième couche, je vous prie de jeter un œil sur notre passé et de me permettre de comprendre l'origine de mon ancêtre. »
+Yun Quezi resta silencieux un instant avant de déclarer: « À l'époque, seuls les ancêtres ayant atteint le stade des douze feuilles pouvaient entrer. Ces cercueils sont sans doute ceux d'ancêtres de mon Clan des Immortels Délaissés. La rumeur prétend que la dix-huitième couche renferme l'origine même de notre clan! Quant à la dix-neuvième, on dit qu'elle abrite les âmes résiduelles du premier ancêtre... Compagnon cultivateur Wang, si vous parvenez à forcer l'entrée de la dix-huitième couche, je vous prie de jeter un œil sur notre passé et de me permettre de comprendre l'origine de mon ancêtre. »
 
 Il regarda Wang Lin. Le petit garçon d'autrefois avait disparu, remplacé par un puissant cultivateur capable de faire trembler la planète Suzaku d'un simple pas.
 
@@ -90,7 +90,7 @@ Wang Lin regarda Yun Quezi et hocha la tête. Il lui devait une dette, bien qu'i
 
 L'énergie Yin émanant de l'eau noire était extrêmement puissante et protégée par un sceau. De l'avis de Wang Lin, même un expert au sommet du stade du Yang Corporel ne pourrait briser ce sceau.
 
-De plus, le sceau imposait des exigences de lignée. Pour quiconque n'appartenait pas au Clan des Immortels Déchus, l'accès était encore plus ardu.
+De plus, le sceau imposait des exigences de lignée. Pour quiconque n'appartenait pas au Clan des Immortels Délaissés, l'accès était encore plus ardu.
 
 « Pas étonnant que personne n'ait pu atteindre la dix-septième couche. Un sceau d'une telle puissance n'est pas à la portée d'un cultivateur ordinaire », songea Wang Lin en fixant la mare noire. Il avait, lui aussi, ses propres raisons de venir ici.
 

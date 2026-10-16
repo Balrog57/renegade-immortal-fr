@@ -50,7 +50,7 @@ Un instant plus tard, il perdit également le contrôle de sa main droite et de 
 
 Wang Lin laissa échapper un rugissement de douleur, mais celui-ci s'affaiblit peu à peu. Ses yeux exprimaient une lutte acharnée, mais celle-ci perdait force inexorablement. Son corps fut projeté vers le haut, hors de son contrôle.
 
-« Avec ce corps, ce vieil homme pourra faire tout ce qu'il voudra dans ce monde! Il ne me reste plus qu'à achever cet ultime affinage et même la Perle Défiant les Cieux sera à moi! » Le rire du vieillard sortit de la bouche de Wang Lin. Son expression était déformée alors qu'il s'envolait hors de la planète Suzaku.
+« Avec ce corps, ce vieil homme pourra faire tout ce qu'il voudra dans ce monde! Il ne me reste plus qu'à achever cet ultime affinage et même la Perle Défiant le Ciel sera à moi! » Le rire du vieillard sortit de la bouche de Wang Lin. Son expression était déformée alors qu'il s'envolait hors de la planète Suzaku.
 
 Cependant, alors qu'il s'élevait dans les airs, la main gauche de Wang Lin traça un sceau et pointa vers le Champ de Bataille Étranger, situé dans la 18e couche du Clan des Tatouages.
 

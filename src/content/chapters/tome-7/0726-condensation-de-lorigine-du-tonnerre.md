@@ -18,11 +18,11 @@ Wang Lin réfléchit un instant. Le Royaume Céleste du Tonnerre l'intéressait 
 
 Shengong Hu fut surpris. Après une courte hésitation, il émit quelques spéculations basées sur les paroles de Wang Lin.
 
-Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme: « Ce vieil homme n'est pas originaire du Système Stellaire d'Allheaven! »
+Le regard de Wang Lin resta serein lorsqu'il déclara d'un ton calme: « Ce vieil homme n'est pas originaire du Système Stellaire de Luotian! »
 
 Les pensées confuses qui agitaient l'esprit de Shengong Hu s'évanouirent instantanément. Au moment même où Wang Lin parlait, il était parvenu à la même conclusion. Dans son esprit, seule une telle origine pouvait correspondre au statut de Wang Lin.
 
-« Aîné, le Royaume Céleste du Tonnerre de mon Système Stellaire d'Allheaven n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
+« Aîné, le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian n'est pas trop gravement endommagé. La limite de culture est le stade avancé de l'Ascendant. Cependant, le Palais Céleste du Tonnerre dispose d'une méthode permettant aux cultivateurs de la deuxième étape d'y entrer. La condition préalable est qu'ils n'utilisent pas une force dépassant le début du stade Scruteur du Nirvana. »
 
 Wang Lin hocha la tête et demanda quelques précisions supplémentaires. Ce Royaume Céleste du Tonnerre ressemblait à celui de la Pluie; après tout, il y avait des éons, les Royaumes Célestes de la Pluie et du Tonnerre étaient tous deux des passages vers l'ancien Royaume Céleste.
 

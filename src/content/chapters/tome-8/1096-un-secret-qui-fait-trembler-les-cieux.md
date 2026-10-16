@@ -26,7 +26,7 @@ Après avoir hésité, elle dit prudemment: « Je crains de ne pas pouvoir assis
 
 Wang Lin ne chercha pas à la retenir et laissa Li Yingzhi quitter la salle. Elle se transforma en un rayon de lumière et disparut rapidement.
 
-Wang Lin détourna le regard du point où la femme avait disparu. Il avait déjà lancé l'appât; il ne lui restait plus qu'à voir si Allheaven et la Secte des Cadavres mordraient à l'hameçon.
+Wang Lin détourna le regard du point où la femme avait disparu. Il avait déjà lancé l'appât; il ne lui restait plus qu'à voir si Luotian et la Secte des Cadavres mordraient à l'hameçon.
 
 « Ils seront certainement tentés! » Wang Lin se retourna vers Mo Zhi avec un sourire. Il se leva, et son armure ainsi que sa cape disparurent. Vêtu d'une robe blanche, il joignit les mains en signe de respect envers Mo Zhi: « Frère Mo, de nombreuses années ont passé depuis notre dernière rencontre. Vous avez toujours l'air aussi éblouissant! »
 

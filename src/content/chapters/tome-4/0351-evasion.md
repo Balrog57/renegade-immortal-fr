@@ -78,9 +78,9 @@ Ce jour-là, à l'entrée menant du deuxième au troisième étage, une lumière
 
 Au moment presque exact où Wang Lin apparut, il disparut à nouveau.
 
-Il y a un demi-mois, lorsqu'il avait aperçu le vieillard bossu en arrivant au deuxième étage, il s'était précipité dans la Perle Défiant les Cieux sans l'ombre d'une hésitation.
+Il y a un demi-mois, lorsqu'il avait aperçu le vieillard bossu en arrivant au deuxième étage, il s'était précipité dans la Perle Défiant le Ciel sans l'ombre d'une hésitation.
 
-Cela faisait longtemps qu'il n'avait pas eu besoin de se terrer dans la Perle Défiant les Cieux.
+Cela faisait longtemps qu'il n'avait pas eu besoin de se terrer dans la Perle Défiant le Ciel.
 
 Face à un shaman aux sept feuilles, dont la puissance égalait celle d'un cultivateur de la Transformation de l'Âme, Wang Lin savait qu'il n'avait aucune chance. Une fois repéré, la seule issue possible serait la mort.
 

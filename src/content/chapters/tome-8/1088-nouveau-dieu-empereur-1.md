@@ -60,11 +60,11 @@ En un instant, ce tatouage se mua en énergie d'origine et pénétra rapidement 
 
 Wang Lin ignorait que les membres de la Secte Divine du Vermillion Bird observaient tous l'ascension d'un nouveau Dieu Empereur grâce à leurs sens divins par une méthode spéciale! Des personnes familières regardaient également la scène.
 
-Lei Ji et Big Head étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix sur le point de s'éveiller, subissant une divine rétribution.
+Lei Ji et Da Tou étaient sur un sommet montagneux. Ils cessèrent leur culture pour lever les yeux vers le ciel. Tous deux pressentaient vaguement que Wang Lin était tel un phénix sur le point de s'éveiller, subissant une divine rétribution.
 
 « Maître... »
 
-Dans le désert, la tempête s'était dissipée. Master Hollow Wind leva les yeux vers le ciel et murmura: « Quelle puissante énergie d'origine. Se pourrait-il que... se pourrait-il qu'il récolte enfin les fruits de ses trois années de culture? »
+Dans le désert, la tempête s'était dissipée. Maître Fu Fengzi leva les yeux vers le ciel et murmura: « Quelle puissante énergie d'origine. Se pourrait-il que... se pourrait-il qu'il récolte enfin les fruits de ses trois années de culture? »
 
 Sur une autre planète de culture, Situ Nan interrompit sa pratique et regarda le ciel, les yeux brillants d'une pointe de tension. L'Ancien du Vermillion Bird à ses côtés ne le pressa pas de reprendre sa culture; il contemplait lui aussi le ciel avec un mélange d'anticipation et d'excitation.
 

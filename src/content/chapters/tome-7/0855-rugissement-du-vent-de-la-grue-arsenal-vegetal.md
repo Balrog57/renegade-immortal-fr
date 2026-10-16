@@ -14,13 +14,13 @@ Wang Lin contemplait la scène avec stupeur. En entendant les paroles de Qing Sh
 
 C'était une sensation très singulière pour lui, comme si elle ne s'était pas manifestée en son for intérieur depuis une éternité.
 
-Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte du Raffinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première confrontation avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
+Pourtant, il se souvenait vaguement de l'époque où il se trouvait sur la planète Suzaku, lorsque le Maître Dun Tian, de la Secte du Affinement de l'Âme, lui avait procuré ce sentiment. Puis Situ Nan, qui fut à la fois son mentor et son ami, lui avait transmis cette même sensation. De même, lors de sa première confrontation avec l'Omniscient alors qu'il tentait d'atteindre le stade de la Formation de l'Âme.
 
 Zhou Yi lui avait également donné ce sentiment.
 
 La vie de Wang Lin suivait un principe immuable: si les autres ne l'offensaient pas, il ne les offenserait pas. De même, si quelqu'un lui témoignait de la gratitude, aussi infime fût-elle, Wang Lin la chérissait.
 
-Il n'avait pas oublié la bienveillance de Dun Tian; dans son cœur, il portait toujours l'esprit de la Secte du Raffinement de l'Âme.
+Il n'avait pas oublié la bienveillance de Dun Tian; dans son cœur, il portait toujours l'esprit de la Secte du Affinement de l'Âme.
 
 Il n'avait pas non plus oublié la bonté de Situ Nan, à qui il n'avait pas hésité à offrir un objet aussi précieux que le Char de Guerre Divin. Si Situ Nan se trouvait dans une situation périlleuse, Wang Lin savait que même si cela devait lui coûter la vie, tant qu'une possibilité de le sauver existait, il ne reculerait jamais.
 

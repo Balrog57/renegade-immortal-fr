@@ -88,7 +88,7 @@ Après un long moment, Wang Lin serra le poing et la sphère se dissipa.
 
 « Tatou Flétri... C'est une création propre au Clan du Tatou; si un étranger souhaite l'utiliser, il doit obtenir l'aide d'un membre du clan pour l'activer. Son pouvoir se divise principalement en quatre types: le sceau, l'effondrement, l'évasion et la rupture! » Tout en réfléchissant, Wang Lin frappa son sac de rangement, faisant apparaître un talisman jaune orné de runes complexes. Il paraissait très ancien et sa couleur était délavée.
 
-Wang Lin possédait initialement deux de ces talismans obtenus d'Allheaven. Il les avait étudiés longuement sans parvenir à comprendre leur usage. La seule fois où il en avait utilisé un, c'était lors de son combat contre un membre de la famille Yao à Allheaven.
+Wang Lin possédait initialement deux de ces talismans obtenus de Luotian. Il les avait étudiés longuement sans parvenir à comprendre leur usage. La seule fois où il en avait utilisé un, c'était lors de son combat contre un membre de la famille Yao à Luotian.
 
 En observant le gaz vert, Wang Lin put en conclure que ce talisman était bien un Tatou Flétri!
 

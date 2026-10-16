@@ -30,17 +30,17 @@ La main droite de Lie Yunzi s'étira et le Parchemin de Bataille revint dans sa 
 
 Sur les 147 participants, il ne restait plus que 112 personnes.
 
-Alors que Lie Yunzi regagnait son tapis de prière, le regard du Maître Flamespark balaya les 112 survivants. Ses yeux brillaient comme des torches et il déclara d'une voix lente: « Les trois épreuves sont terminées, et tous ceux qui restent ici sont l'élite de cette génération. À l'origine, les Six Voies Mystérieuses du Vide devaient tester votre Dao, mais puisque votre nombre est déjà proche de 108, nous passerons directement à "Une Ligne vers les Cieux"! »
+Alors que Lie Yunzi regagnait son tapis de prière, le regard du Maître Yan Leizi balaya les 112 survivants. Ses yeux brillaient comme des torches et il déclara d'une voix lente: « Les trois épreuves sont terminées, et tous ceux qui restent ici sont l'élite de cette génération. À l'origine, les Six Voies Mystérieuses du Vide devaient tester votre Dao, mais puisque votre nombre est déjà proche de 108, nous passerons directement à "Une Ligne vers les Cieux"! »
 
 « "Une Ligne vers les Cieux" est l'ultime étape de la compétition pour le titre céleste. Parmi les 108 personnes qui obtiendront un titre, les 36 premiers seront nommés "Célestes du Ciel"! »
 
 « Dans l'épreuve d'une ligne vers le ciel, vous n'existez que sous forme de phantoms. Même si vous mourez, votre corps physique ne subira que des dommages mineurs, ce qui n'aura que peu d'impact sur vous! »
 
-Une fois son discours achevé, Maître Flamespark frappa son sac de rangement et un objet octogonal apparut dans sa main. Il le lança en l'air et le bois octogonal grandit brusquement. En un instant, il mesurait plus de cent pieds de large et des éclats de lumière multicolore s'en échappaient tandis qu'il tournait dans le ciel.
+Une fois son discours achevé, Maître Yan Leizi frappa son sac de rangement et un objet octogonal apparut dans sa main. Il le lança en l'air et le bois octogonal grandit brusquement. En un instant, il mesurait plus de cent pieds de large et des éclats de lumière multicolore s'en échappaient tandis qu'il tournait dans le ciel.
 
-« Entrez sur la place! » Après le cri de Maître Flamespark, les 112 cultivateurs marchèrent vers la place et s'assirent en position du lotus.
+« Entrez sur la place! » Après le cri de Maître Yan Leizi, les 112 cultivateurs marchèrent vers la place et s'assirent en position du lotus.
 
-Peu après, Maître Flamespark lança un sceau et des rayons de lumière jaillirent de l'objet octogonal. Chaque rayon vint frapper l'un des 112 cultivateurs présents sur la place.
+Peu après, Maître Yan Leizi lança un sceau et des rayons de lumière jaillirent de l'objet octogonal. Chaque rayon vint frapper l'un des 112 cultivateurs présents sur la place.
 
 Au moment où la lumière aux cinq couleurs se projeta sur eux, tous les cultivateurs, y compris Wang Lin, perdirent connaissance.
 
@@ -58,7 +58,7 @@ Les yeux de Wang Lin s'illuminèrent.
 
 « À moins d'être certain d'être plus fort, je ne peux pas déployer mon sens divin ici. Sinon, je serais immédiatement localisé et ciblé! »
 
-Wang Lin réfléchit silencieusement. Après avoir fait circuler son énergie d'origine pour inspecter son corps, il put discerner certains indices. C'était exactement comme l'avait affirmé Maître Flamespark. Le corps présent ici était identique au sien, mais après sa mort, cela n'aurait que peu d'impact sur son véritable corps.
+Wang Lin réfléchit silencieusement. Après avoir fait circuler son énergie d'origine pour inspecter son corps, il put discerner certains indices. C'était exactement comme l'avait affirmé Maître Yan Leizi. Le corps présent ici était identique au sien, mais après sa mort, cela n'aurait que peu d'impact sur son véritable corps.
 
 « Une ligne vers le ciel sans véritable mort permettrait à de nombreux cultivateurs manquant d'expérience de traverser une épreuve de vie ou de mort. Je crains que ce ne soit là le véritable but du Temple Céleste du Tonnerre: former de véritables cultivateurs! » Wang Lin fronça les sourcils et tenta de se fondre dans l'environnement. Cependant, comme il ne s'agissait pas du monde réel, cela n'eut aucun effet. Après une courte réflexion, une bouffée de fumée l'enveloppa et il disparut.
 

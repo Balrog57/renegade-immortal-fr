@@ -106,7 +106,7 @@ Simultanément, l'immense figure s'inclina devant Wang Lin, s'avança vers le so
 
 À cet instant, tous les cultivateurs de l'Âme Naissante à Zhao remarquèrent la perturbation.
 
-Punnan Zi, qui était en plein vol, s'arrêta net, son expression changeant radicalement. Il déploya précipitamment son sens divin pour vérifier.
+Pu Nanzi, qui était en plein vol, s'arrêta net, son expression changeant radicalement. Il déploya précipitamment son sens divin pour vérifier.
 
 Au même moment, à la Tour Céleste au centre de Zhao, un homme gras ouvrit les yeux en pleine culture et fixa la direction de Wang Lin avec incrédulité.
 

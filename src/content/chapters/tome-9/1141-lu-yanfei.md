@@ -98,7 +98,7 @@ Elle regarda dans la direction où Wang Lin s'était éloigné.
 
 Wang Lin descendit la montagne et entra dans la cour, toujours sous son parapluie. Xu Yun était encore en pleine culture lorsque Wang Lin rentra dans la maison, et ses yeux s'illuminèrent.
 
-« Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer des Nuages serait très différent de l'Alliance ou d'Allheaven. Maintenant que j'ai écouté l'Ancien de la Secte Originel, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! La Mer des Nuages était remplie de brouillard, et dans ce brouillard se trouvait un monde appartenant aux bêtes spirituelles... »
+« Je savais déjà, d'après les souvenirs de Zhao Yu, que ce Système d'Étoiles de la Mer des Nuages serait très différent de l'Alliance ou de Luotian. Maintenant que j'ai écouté l'Ancien de la Secte Originel, il semble qu'une majorité de cultivateurs utilisent des bêtes spirituelles... Leur alchimie est également unique! La Mer des Nuages était remplie de brouillard, et dans ce brouillard se trouvait un monde appartenant aux bêtes spirituelles... »
 
 Wang Lin commença à réfléchir, surtout en repensant aux paroles de l'Ancien. Il existait bel et bien une pilule capable d'aider à atteindre le stade Ascendant!
 

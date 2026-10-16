@@ -30,7 +30,7 @@ On aurait dit qu'une bataille titanesque avait eu lieu ici des années auparavan
 
 Conjuguées aux ondulations qui saturaient l'espace, il était impossible pour le Sens Divin de percevoir quoi que ce soit. C'était devenu une zone où le Sens Divin était inutile!
 
-Une légère odeur de sang flottait encore dans l'air, témoignant de la tragédie qui s'était déroulée ici! Wang Lin se souvenait clairement que la bataille entre Allheaven et l'Alliance n'avait pas été d'une telle intensité. Il n'y avait qu'une seule explication à ce changement!
+Une légère odeur de sang flottait encore dans l'air, témoignant de la tragédie qui s'était déroulée ici! Wang Lin se souvenait clairement que la bataille entre Luotian et l'Alliance n'avait pas été d'une telle intensité. Il n'y avait qu'une seule explication à ce changement!
 
 « J'ignore combien de temps j'ai passé à l'intérieur de la Bête du Néant. Je me demande combien d'autres batailles contre le Royaume Extérieur ont eu lieu... Les Royaumes aux Sept Couleurs auraient dû être découverts et détruits... » Wang Lin s'apprêtait à faire son troisième pas, mais avant de poser le pied au sol, une lueur glaciale traversa ses yeux et il regarda au loin.
 

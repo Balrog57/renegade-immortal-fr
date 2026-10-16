@@ -70,11 +70,11 @@ Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait Cupidité et dit lentem
 
 Cupidité n'osa rien cacher et parla précipitamment.
 
-« Après avoir échappé au Serpent aux yeux de lune, je ne suis pas mort, mais je me suis caché sur une planète à moitié abandonnée dans Allheaven. Je m'y cachais pour vous échapper et j'ai passé du temps à récupérer mes forces.
+« Après avoir échappé au Serpent aux yeux de lune, je ne suis pas mort, mais je me suis caché sur une planète à moitié abandonnée dans Luotian. Je m'y cachais pour vous échapper et j'ai passé du temps à récupérer mes forces.
 
 « Après un long moment, ne voyant aucune trace de votre poursuite, j'ai réalisé que vous pensiez probablement que j'étais mort. J'ai alors retrouvé une certaine paix d'esprit et je me suis concentré sur ma guérison sur cette planète jusqu'à ce que je sois totalement rétabli. C'est alors que j'ai décidé de partir.
 
-« À ce moment-là, vous n'étiez plus dans Allheaven. L'ensemble du Système Stellaire Allheaven était extrêmement désert, car la majorité des cultivateurs étaient partis vers le Système Stellaire de l'Alliance pour la guerre. Cela m'a donné une opportunité.
+« À ce moment-là, vous n'étiez plus dans Luotian. L'ensemble du Système Stellaire Luotian était extrêmement désert, car la majorité des cultivateurs étaient partis vers le Système Stellaire de l'Alliance pour la guerre. Cela m'a donné une opportunité.
 
 « Je voyageai en toute sécurité, ne voulant pas retourner dans le système stellaire de l'Alliance. De plus, comme j'avais été dévoré par le serpent aux yeux de lune, une odeur fétide s'était imprégnée de mon corps et de mon âme originelle. Cette puanteur persistait et était devenue insupportable.
 

@@ -26,7 +26,7 @@ Sur l'invitation de Wang Lin, les deux s'envolèrent vers l'horizon, laissant le
 
 En particulier, les trois frères Chen furent stupéfaits par ce changement soudain. Ce n'est que bien plus tard qu'ils sourirent avec amertume. Étant tous des cultivateurs du Scruteur du Nirvana et dotés d'une grande intelligence, ils réalisèrent à cet instant qu'il y avait 80 % de chances que le « frère » dont Situ Nan parlait en emmenant Zhao Xue et Ling Er ne soit autre que Wang Lin.
 
-Le Maître Hollow Wind ne put que sourire amèrement en secouant la tête. Puis, il regarda la femme vêtue d'argent qui était sortie du sort de Situ Nan, le cœur empli de doute.
+Le Maître Fu Fengzi ne put que sourire amèrement en secouant la tête. Puis, il regarda la femme vêtue d'argent qui était sortie du sort de Situ Nan, le cœur empli de doute.
 
 Tous se dispersèrent. À cet instant, Wang Lin et Situ Nan s'assirent au sommet de la montagne où Wang Lin avait compris la Nuit Déchirée. Le vent de la montagne fouettait leurs vêtements alors que les deux échangeaient sur ce qu'ils avaient vécu durant ces centaines d'années.
 
@@ -34,7 +34,7 @@ Une table en jade blanc trônait entre eux, avec un pichet de vin et divers obje
 
 Wang Lin prit sa coupe, en but une gorgée, puis secoua la tête: « Si ce n'était pour certains imprévus sur le chemin de la planète Tian Yun, je n'en serais pas à mon niveau de culture actuel. »
 
-Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe en riant: « J'ai entendu parler de la guerre entre Allheaven et l'Alliance sur la planète Feng Luan, ainsi que de la renommée du Céleste du Tonnerre d'Allheaven. Je ne m'attendais pas à ce que ce soit toi! »
+Situ Nan afficha une expression entre le sourire et la moue, puis posa sa coupe en riant: « J'ai entendu parler de la guerre entre Luotian et l'Alliance sur la planète Feng Luan, ainsi que de la renommée du Céleste du Tonnerre de Luotian. Je ne m'attendais pas à ce que ce soit toi! »
 
 Le visage de Wang Lin resta impassible et il sourit simplement: « J'ai juste eu de la chance. »
 

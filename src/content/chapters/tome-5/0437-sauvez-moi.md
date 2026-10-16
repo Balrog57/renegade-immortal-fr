@@ -60,9 +60,9 @@ Ce qui stupéfia Wang Lin, c'est qu'une hache ténue et vacillante scintillait s
 
 Il en était désormais certain: cet être était l'ancêtre fondateur du Clan des Démons Géants, celui qui avait conduit son clan jusqu'ici.
 
-C'était lui qui, armé de sa hache monumentale, s'était jeté dans l'armée du Clan des Immortels Déchus pour terrasser trois chamans à neuf feuilles.
+C'était lui qui, armé de sa hache monumentale, s'était jeté dans l'armée du Clan des Immortels Délaissés pour terrasser trois chamans à neuf feuilles.
 
-Wang Lin comprenait désormais parfaitement la hiérarchie du Clan des Immortels Déchus. En faisant abstraction de ceux qui n'atteignaient pas le stade des sept feuilles, les chamans à sept et huit feuilles étaient comparables à des cultivateurs au stade de la Transformation de l'Âme, tandis que les chamans à neuf feuilles s'apparentaient à des cultivateurs au début du stade Ascendant.
+Wang Lin comprenait désormais parfaitement la hiérarchie du Clan des Immortels Délaissés. En faisant abstraction de ceux qui n'atteignaient pas le stade des sept feuilles, les chamans à sept et huit feuilles étaient comparables à des cultivateurs au stade de la Transformation de l'Âme, tandis que les chamans à neuf feuilles s'apparentaient à des cultivateurs au début du stade Ascendant.
 
 Parvenir à tuer trois cultivateurs de niveau Ascendant n'était pas une mince affaire, d'autant plus qu'il l'avait fait en chargeant au cœur même des troupes ennemies. Une telle férocité et une telle force de combat étaient rarissimes.
 

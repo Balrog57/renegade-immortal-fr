@@ -58,7 +58,7 @@ Quant à Zhong Big Red, il était devenu encore plus hardi; il était désormais
 
 « Il existe 372 petits clans dans la Terre Déchue. Mon Clan du Scorpion Noir est au bas de l'échelle. Nous ne contrôlons que cette planète presque abandonnée et comptons peu de membres... »
 
-« Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Déchus qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
+« Le Système Stellaire Antique possède le Conseil Souverain, tandis que la Terre Déchue est gouvernée par le Conseil Déchu. Il y a un total de 13 Anciens Délaissés qui dirigent la Terre Déchue. Quant au Grand Empereur de la Terre Déchue, il contrôle le Conseil Déchu. Il est très mystérieux, et la rumeur dit qu'il est un cultivateur du troisième niveau, c'est pourquoi cet endroit n'est pas sous le contrôle du Conseil Souverain. »
 
 « Les membres du Conseil Déchu ne sont pas immuables. Tous les cent ans, ils peuvent être contestés, et le vainqueur devient le nouvel Ancien. La rumeur prétend qu'au fil des ans, le Conseil Souverain a secrètement envoyé de nombreuses personnes ici pour tenter de s'emparer d'un siège d'Ancien. Cependant, aucune n'a jamais réussi, et toutes sont mortes de manière inexplicable lors du défi. »
 

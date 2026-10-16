@@ -54,7 +54,7 @@ Bien que son visage fût peu gracieux, son corps possédait un charme féminin. 
 
 Alors qu'ils se trouvaient à plusieurs centaines de mètres de Wang Lin, l'homme cria: « Je suis Murong Yun. Puis-je connaître votre nom? »
 
-Wang Lin resta calme et esquissa un sourire. « Je suis Qing Mu! » Qing Mu était le nom que Wang Lin utilisait lorsqu'il était entré dans la Secte du Raffinement de l'Âme.
+Wang Lin resta calme et esquissa un sourire. « Je suis Qing Mu! » Qing Mu était le nom que Wang Lin utilisait lorsqu'il était entré dans la Secte du Affinement de l'Âme.
 
 Wang Lin parvint à percevoir leurs niveaux de culture d'un seul coup d'œil. Le jeune homme était au milieu du stade de la Formation de l'Âme, tandis que la femme était au début de ce stade. À l'extérieur de la Tombe Suzaku, ils auraient pu être considérés comme puissants, mais ici, où tant de gens avaient péri, ils semblaient un peu faibles.
 

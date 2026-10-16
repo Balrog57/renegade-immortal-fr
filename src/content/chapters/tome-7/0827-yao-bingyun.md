@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 827 - Yao Bingyun
 slug: yao-bingyun
 ---
-Des ondulations apparurent dans une zone étoilée et lumineuse du Système Stellaire d'Allheaven. Les pas de Wang Lin étaient chancelants et son visage était pâle. La bataille contre Yao Changdong avait été trop périlleuse; s'il avait été un tant soit peu imprudent, il serait déjà mort.
+Des ondulations apparurent dans une zone étoilée et lumineuse du Système Stellaire de Luotian. Les pas de Wang Lin étaient chancelants et son visage était pâle. La bataille contre Yao Changdong avait été trop périlleuse; s'il avait été un tant soit peu imprudent, il serait déjà mort.
 
 « Yao Changdong était digne d'un véritable cultivateur du stade initial de l'Éclaireur du Nirvana. L'écart entre nous était immense! Cependant, si j'avais moi-même atteint le stade de l'Éclaireur du Nirvana, le tuer n'aurait pas été difficile. » Le regard de Wang Lin devint féroce. Il ne pouvait pas rester fusionné avec le monde trop longtemps. Dès qu'il réapparut, il s'élança rapidement. Après quelques respirations, il se fondit à nouveau dans le monde sans la moindre hésitation.
 
@@ -50,9 +50,9 @@ Ce qui choqua davantage l'assistance fut que, parmi les vingt-huit membres, il y
 
 L'autre était un cultivateur Corporel Yang. Il se trouvait dans un état bien pire, son âme originelle étant gravement endommagée. Dès son retour, il s'était enfermé en culture isolée, déclarant également qu'il ne s'impliquerait pas dans cette affaire!
 
-Cette série de nouvelles réveilla brutalement le souvenir de Xu Mu dans l'esprit des cultivateurs du Système Stellaire d'Allheaven!
+Cette série de nouvelles réveilla brutalement le souvenir de Xu Mu dans l'esprit des cultivateurs du Système Stellaire de Luotian!
 
-Presque simultanément, la fuite de la nouvelle selon laquelle Yao Changdong, un Éclaireur du Nirvana au stade initial, avait été tué par Xu Mu, déchira le ciel. Cela déclencha une tempête qui balaya tout le Système Stellaire d'Allheaven!
+Presque simultanément, la fuite de la nouvelle selon laquelle Yao Changdong, un Éclaireur du Nirvana au stade initial, avait été tué par Xu Mu, déchira le ciel. Cela déclencha une tempête qui balaya tout le Système Stellaire de Luotian!
 
 Sous l'Ordre Céleste de la famille Yao, celui qui était envoyé pour tuer était devenu la proie. Au-delà de la stupéfaction des cultivateurs, cela gravait encore plus profondément le nom de « Xu Mu » dans les mémoires.
 
@@ -68,7 +68,7 @@ C'était une lutte de compréhension: celui qui possédait la maîtrise la plus 
 
 Si l'autre personne réapparaissait la première, Wang Lin conserverait l'initiative et ne permettrait pas à son adversaire de localiser sa position exacte.
 
-Wang Lin avait déjà expérimenté cet état de fusion prolongée lorsque Maître Flamespark avait pris le contrôle de son corps. À présent, il serrait les dents pour maintenir cette symbiose avec le monde.
+Wang Lin avait déjà expérimenté cet état de fusion prolongée lorsque Maître Yan Leizi avait pris le contrôle de son corps. À présent, il serrait les dents pour maintenir cette symbiose avec le monde.
 
 Le temps s'écoulait lentement. Bien que la compréhension de Yao Bingyun fût profonde, elle ne pouvait égaler l'expérience vécue par Wang Lin. Au seizième jour, elle ne put plus tenir et émergea du vide.
 

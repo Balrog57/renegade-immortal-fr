@@ -30,7 +30,7 @@ Dieu de Sang était totalement abasourdi. Il n'osait croire ce qu'il voyait. En 
 
 Cependant, le raisonnement de Dieu de Sang fut interrompu par une autre spéculation qui provoqua une immense onde de choc dans son esprit.
 
-« S'il n'est pas consentant, se pourrait-il que Wang Lin l'ait forcé... Cela devrait être impossible. Bien que sa puissance soit comparable à celle d'un cultivateur du troisième pas, comment pourrait-il contraindre un tel être... C'est un cultivateur du troisième pas, le troisième pas! Dans Allheaven, ce vieil homme n'a vu que Maître Lu Fu... »
+« S'il n'est pas consentant, se pourrait-il que Wang Lin l'ait forcé... Cela devrait être impossible. Bien que sa puissance soit comparable à celle d'un cultivateur du troisième pas, comment pourrait-il contraindre un tel être... C'est un cultivateur du troisième pas, le troisième pas! Dans Luotian, ce vieil homme n'a vu que Maître Lu Fu... »
 
 Les trois étaient déjà stupéfaits par l'apparition de l'Estimé Ling Dong. Un tollé s'éleva parmi les dizaines de milliers de cultivateurs qui avaient été repoussés par le Royaume Céleste du Vent.
 
@@ -44,7 +44,7 @@ Sous cette pression, ils ne parvenaient plus à tenir debout. La peur les submer
 
 « La même aura que l'Ancêtre. C'est sans aucun doute un cultivateur du troisième pas!! »
 
-« Un cultivateur du troisième pas! Trois cultivateurs du troisième pas sont apparus simultanément à Allheaven!! Absurde, c'est absolument absurde!!! Pendant des dizaines de milliers d'années, il n'y avait que l'Ancêtre, et maintenant... »
+« Un cultivateur du troisième pas! Trois cultivateurs du troisième pas sont apparus simultanément à Luotian!! Absurde, c'est absolument absurde!!! Pendant des dizaines de milliers d'années, il n'y avait que l'Ancêtre, et maintenant... »
 
 « Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il est parti. Pourtant, après 800 ans, sa culture a atteint un niveau aussi terrifiant... Un cultivateur du troisième pas comme esclave... Incroyable!! »
 
@@ -58,7 +58,7 @@ Ce cri résonna et étouffa la peur des dizaines de milliers de cultivateurs. D�
 
 « Ce vieil homme vous a sous-estimé. Vous avez bel et bien pris un cultivateur du troisième pas pour esclave. Le niveau de culture de cet individu est égal au mien et il possède bien plus de Flammes Joss que moi. Je ne suis même pas son égal! »
 
-La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs d'Allheaven présents.
+La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs de Luotian présents.
 
 « Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Vide du Nirvana! »
 
@@ -66,11 +66,11 @@ La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs d'Allhe
 
 Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui avaient été choqués par l'apparition de Ling Dong poussèrent à nouveau des rugissements fervents.
 
-« Ancêtre d'Allheaven! Ancêtre Allheaven! »
+« Ancêtre de Luotian! Ancêtre Luotian! »
 
-« Ancêtre d'Allheaven! Ancêtre Allheaven! »
+« Ancêtre de Luotian! Ancêtre Luotian! »
 
-Ces voix s'unirent rapidement. C'était le cri de dizaines de milliers de cultivateurs, un rugissement qu'ils lâchaient alors qu'ils étaient sur le point de s'effondrer, afin de se redresser et de porter Allheaven vers le haut!
+Ces voix s'unirent rapidement. C'était le cri de dizaines de milliers de cultivateurs, un rugissement qu'ils lâchaient alors qu'ils étaient sur le point de s'effondrer, afin de se redresser et de porter Luotian vers le haut!
 
 Leurs voix ressemblaient à une inondation dévastatrice! Elles fusionnèrent avec la tempête pour former un momentum indescriptible. De faibles Flammes Joss s'élevaient également des têtes des cultivateurs en direction de Maître Lu Fu!
 
@@ -84,9 +84,9 @@ En un éclair, dix-huit trésors apparurent un à un au milieu de la tempête. C
 
 Une force indescriptible s'accumula dans la tempête et se projeta vers Wang Lin et l'Estimé Ling Dong!
 
-Les rugissements des dizaines de milliers de cultivateurs d'Allheaven parvinrent aux oreilles de Wang Lin!
+Les rugissements des dizaines de milliers de cultivateurs de Luotian parvinrent aux oreilles de Wang Lin!
 
-« Ancêtre d'Allheaven! Ancêtre Allheaven! »
+« Ancêtre de Luotian! Ancêtre Luotian! »
 
 L'élan de Maître Lu Fu atteignit son paroxysme. Il leva soudainement le pied et chargea vers Wang Lin!
 
@@ -128,7 +128,7 @@ Rumble, rumble, rumble, rumble!
 
 Le Royaume Céleste du Vent fut déchiré et dissipé, ne laissant derrière lui que Maître Lu Fu, plus terrifié encore qu'auparavant!
 
-« Pas seulement un esclave du troisième pas... Il y en a deux!! Deux esclaves du troisième pas. Ceci... Ceci... Ceci... » Maître Lu Fu était devenu comme Master Flamespark et ses compagnons: totalement abasourdi. Ses yeux étaient remplis d'incrédulité, comme si on lui avait jeté de l'eau glacée au visage. Son corps tremblait et l'idée même de combattre s'était envolée. Il n'en avait plus la force, il n'osait plus même essayer!!
+« Pas seulement un esclave du troisième pas... Il y en a deux!! Deux esclaves du troisième pas. Ceci... Ceci... Ceci... » Maître Lu Fu était devenu comme Maître Yan Leizi et ses compagnons: totalement abasourdi. Ses yeux étaient remplis d'incrédulité, comme si on lui avait jeté de l'eau glacée au visage. Son corps tremblait et l'idée même de combattre s'était envolée. Il n'en avait plus la force, il n'osait plus même essayer!!
 
 Le loup de sang apparu derrière Zhou Jin fit penser à une rumeur à Maître Lu Fu!
 

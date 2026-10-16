@@ -52,7 +52,7 @@ Le ciel fut bientôt saturé de traînées lumineuses et, un instant plus tard, 
 
 Peu après l'apparition des ombres, des cercueils commencèrent à descendre. Il y avait des cercueils de toutes tailles, entourés par une multitude de cultivateurs.
 
-En volant vers la Mer des Démons, ils aperçurent naturellement la statue gigantesque posée au sol: celle de la Secte Ciel Nuageux. Un cultivateur arrogant d'Allheaven vit qu'une minuscule planète comme celle-ci avait osé ériger une telle statue. Il eut l'impression qu'elle lui était familière, mais n'y prêta pas attention. Il laissa échapper un reniflement méprisant et s'apprêta à la détruire sur son passage.
+En volant vers la Mer des Démons, ils aperçurent naturellement la statue gigantesque posée au sol: celle de la Secte Ciel Nuageux. Un cultivateur arrogant de Luotian vit qu'une minuscule planète comme celle-ci avait osé ériger une telle statue. Il eut l'impression qu'elle lui était familière, mais n'y prêta pas attention. Il laissa échapper un reniflement méprisant et s'apprêta à la détruire sur son passage.
 
 Cependant, alors que sa main droite allait descendre, une voix féminine retentit derrière lui: « Arrêtez! »
 
@@ -62,11 +62,11 @@ La femme qui venait de parler était Xi Zifeng. Elle lança un regard glacial au
 
 Sur ce, elle l'ignora, contemplant la statue d'un regard complexe avant de soupirer et de s'envoler. Le cultivateur arrogant fronça les sourcils et examina attentivement l'œuvre. Plus il la scrutait, plus elle lui semblait familière, jusqu'à ce que ses yeux s'écarquillent de terreur. « C'est... le Céleste du Tonnerre, Xu Mu! »
 
-Bien qu'Allheaven ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, et il ne pouvait l'ignorer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
+Bien qu'Luotian ait déjà retiré à Wang Lin son titre de Céleste du Tonnerre, la bataille de Wang Lin pour ce titre restait célèbre. Ce n'était pas un événement que l'on oublierait en quelques centaines d'années. Le cuir chevelu du cultivateur arrogant se hérissa. Il savait que le nom taoïste de Xu Mu était Maître Démon, et il ne pouvait l'ignorer. Sentant qu'il serait vain de détruire la statue d'un tel être, il fit volte-face et s'éloigna rapidement.
 
-Maître Flamespark et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
+Maître Yan Leizi et son entourage, ainsi que les membres de la Secte des Cadavres, remarquèrent également la scène. Une fois les ordres donnés, plus personne n'osa envisager de briser la statue.
 
-La Secte des Cadavres, Allheaven et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer des Démons selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
+La Secte des Cadavres, Luotian et les diverses puissances de l'Alliance s'étaient tous rassemblés sur la planète Suzaku. Ils convergeaient rapidement vers la Mer des Démons selon les informations reçues. La planète Suzaku n'étant pas très vaste, ils atteignirent bientôt leur destination.
 
 En réalité, aucun camp n'avait envoyé une armée immense; au total, on comptait environ 7 000 cultivateurs. Ils constituaient la première vague d'exploration. Car bien que les informations de Wang Lin fussent hautement crédibles, il fallait encore les vérifier. D'autres cultivateurs stagnaient en orbite autour de la planète Suzaku, regroupés par factions, attendant les nouvelles de cette avant-garde.
 

@@ -70,7 +70,7 @@ La seconde était d'accepter et de devenir une marionnette... Il échangerait tr
 
 À cet instant précis, sur la lointaine planète Yun Xia, un brouillard dense recouvrait tout. Une aura glaciale émanait de l'intérieur, forçant chaque cultivateur de passage à faire un détour.
 
-Dans le système stellaire d'Allheaven, la planète Yun Xia était une terre de mort. Très peu de cultivateurs qui y pénétraient en revenaient vivants.
+Dans le système stellaire de Luotian, la planète Yun Xia était une terre de mort. Très peu de cultivateurs qui y pénétraient en revenaient vivants.
 
 Soudain, le brouillard épais commença à s'agiter violemment, comme si quelque chose tentait de s'en extraire. Ce tumulte dans la brume devint de plus en plus intense.
 
@@ -80,4 +80,4 @@ Alors qu'il était sur le point de franchir la limite du brouillard, son visage 
 
 Cet homme s'appelait Cupidité. Saisi par le tentacule et entraîné rapidement vers le bas, il regarda le brouillard dense qui l'entourait, ses yeux révélant un désespoir total.
 
-« J'ai passé ma vie à chercher des trésors, et je n'aurais jamais cru qu'une telle chose m'arriverait... Wang Lin, tout cela est de ta faute! Si tu n'étais pas venu dans ce maudit système stellaire d'Allheaven, comment se fait-il que ce vieux soit envoyé ici?! Si je n'avais pas été envoyé ici, comment aurais-je pu pénétrer sur cette planète terrifiante?! »
+« J'ai passé ma vie à chercher des trésors, et je n'aurais jamais cru qu'une telle chose m'arriverait... Wang Lin, tout cela est de ta faute! Si tu n'étais pas venu dans ce maudit système stellaire de Luotian, comment se fait-il que ce vieux soit envoyé ici?! Si je n'avais pas été envoyé ici, comment aurais-je pu pénétrer sur cette planète terrifiante?! »

@@ -34,9 +34,9 @@ L'expression de Ta Shan ne changea pas en voyant Wang Lin; il afficha seulement 
 
 Wang Lin sourit et fit un signe de la main à Ta Shan. Ce dernier fit un pas, se transforma en une ombre et disparut derrière Wang Lin.
 
-« Ensuite, Big Head et Lei Ji. » Wang Lin ferma les yeux pour chercher l'empreinte sur Big Head. Après un long moment, il fronça les sourcils.
+« Ensuite, Da Tou et Lei Ji. » Wang Lin ferma les yeux pour chercher l'empreinte sur Da Tou. Après un long moment, il fronça les sourcils.
 
-« L'empreinte de Big Head est très faible, comme si elle pouvait se dissiper à tout instant. » Il fit un pas, des ondulations apparurent et il disparut.
+« L'empreinte de Da Tou est très faible, comme si elle pouvait se dissiper à tout instant. » Il fit un pas, des ondulations apparurent et il disparut.
 
 Une silhouette massive se déplaçait parmi les étoiles, laissant derrière elle une traînée de sang. Son corps était couvert de blessures et, à chaque enjambée, une quantité considérable de sang s'en écoulait.
 
@@ -50,7 +50,7 @@ De plus, le dos du garçon était enfoncé et se décomposait à une vitesse ful
 
 « Lei Ji, laisse-moi derrière toi et fuis! » Du sang noir s'échappa du coin de la bouche du garçon à la grosse tête, et ses yeux avaient perdu toute lueur.
 
-La grande silhouette commença à se déplacer encore plus vite après avoir réfléchi un instant. Après un long moment, elle dit: « Big Head, tu as été blessé pour me sauver. Moi, Lei Ji, je suis un membre du Clan des Démons Géants, comment pourrais-je simplement t'abandonner? Même si je te laisse, ils ne cesseront pas de nous poursuivre! Leur cible, c'est moi! Ne dis plus rien et concentre-toi sur ta guérison! »
+La grande silhouette commença à se déplacer encore plus vite après avoir réfléchi un instant. Après un long moment, elle dit: « Da Tou, tu as été blessé pour me sauver. Moi, Lei Ji, je suis un membre du Clan des Démons Géants, comment pourrais-je simplement t'abandonner? Même si je te laisse, ils ne cesseront pas de nous poursuivre! Leur cible, c'est moi! Ne dis plus rien et concentre-toi sur ta guérison! »
 
 Le cultivateur à la grosse tête eut un sourire amer en contemplant les étoiles devant lui, son regard devenant encore plus morne. Il sembla apercevoir sa mère, telle qu'elle était il y a de nombreuses années. Elle ne semblait pas le gronder, mais le regardait d'un air doux en l'appelant.
 
@@ -64,7 +64,7 @@ Le corps du garçon trembla sous l'effet d'un froid glacial. Ce froid n'était p
 
 Ses yeux se fermèrent lentement comme s'il était enveloppé par les ténèbres, perdant progressivement conscience.
 
-« Big Head, tiens bon! Je suis sûr que Maître viendra nous chercher! » Juste au moment où le garçon allait sombrer, le rugissement de Lei Ji déchira le silence.
+« Da Tou, tiens bon! Je suis sûr que Maître viendra nous chercher! » Juste au moment où le garçon allait sombrer, le rugissement de Lei Ji déchira le silence.
 
 Le corps du garçon à la grosse tête tressaillit et il réussit de justesse à ouvrir les yeux. Il esquissa un sourire amer et murmura: « Est-ce vraiment le cas... »
 

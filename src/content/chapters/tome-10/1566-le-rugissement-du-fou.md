@@ -32,7 +32,7 @@ Il n'absorba pas immédiatement la statue de l'ancien démon dans son œil gauch
 
 Wang Lin ne souhaitait pas l'absorber si cela pouvait être évité.
 
-Il voulait attendre que cette ancienne statue grandisse encore un peu. Quant au démon ancien qu'il avait capturé dans Allheaven, il le gardait toujours scellé. Le moment n'était pas encore venu de l'utiliser.
+Il voulait attendre que cette ancienne statue grandisse encore un peu. Quant au démon ancien qu'il avait capturé dans Luotian, il le gardait toujours scellé. Le moment n'était pas encore venu de l'utiliser.
 
 Il avait promis une chance de survie à ce démon ancien, et Wang Lin n'oubliait rien.
 

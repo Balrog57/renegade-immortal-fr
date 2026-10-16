@@ -26,7 +26,7 @@ Les cheveux de l'homme à la robe rouge étaient ébouriffés; il semblait avoir
 
 Ses bras s'étendirent soudainement de plusieurs fois leur taille, offrant un spectacle extrêmement terrifiant!
 
-Wang Lin avait déjà vu Big Head utiliser ce genre de sort, mais il n'était pas aussi prodigieux que celui de l'homme à la robe rouge. Non seulement ses jambes se flétrissaient, mais son corps tout entier semblait dépérir. Toute sa chair et son sang se rassemblèrent dans ses bras pour percuter la seconde empreinte de paume dans le ciel!
+Wang Lin avait déjà vu Da Tou utiliser ce genre de sort, mais il n'était pas aussi prodigieux que celui de l'homme à la robe rouge. Non seulement ses jambes se flétrissaient, mais son corps tout entier semblait dépérir. Toute sa chair et son sang se rassemblèrent dans ses bras pour percuter la seconde empreinte de paume dans le ciel!
 
 Des grondements tonitruants secouèrent le monde. La seconde empreinte, créée par le vrai corps des cinq éléments, entra en collision avec l'homme à la robe rouge. L'empreinte s'effondra et le corps de l'homme trembla violemment. Il continua de reculer, tandis que son bras gauche explosait en une brume sanglante.
 

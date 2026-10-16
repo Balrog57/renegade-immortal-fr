@@ -18,7 +18,7 @@ Cette clarté ne dura que quelques respirations avant de disparaître, laissant 
 
 Le bouclier devant Wang Lin avait atteint une hauteur de près de 3 300 mètres. Il ressemblait à une barrière gigantesque séparant le Yin et le Yang! Le bouclier était recouvert d'une lueur azurée diffuse qui rendait les environs brumeux, comme si ce trésor n'était pas censé exister dans ce monde.
 
-Wang Lin prit une profonde inspiration et chargea vers le bouclier. Au loin, Maître Hollow Wind luttait. Il s'était autrefois demandé quelle serait la puissance de ce trésor une fois son sceau levé, mais ce qu'il voyait dépassait désormais son imagination.
+Wang Lin prit une profonde inspiration et chargea vers le bouclier. Au loin, Maître Fu Fengzi luttait. Il s'était autrefois demandé quelle serait la puissance de ce trésor une fois son sceau levé, mais ce qu'il voyait dépassait désormais son imagination.
 
 Il avait eu l'intention de le voler, mais en pensant au sceau qui marquait ses propres sourcils, il ne put s'empêcher d'abandonner l'idée. Il ignorait quel genre de châtiment il subirait s'il brisait son propre sceau.
 
@@ -42,15 +42,15 @@ Bien qu'il ne soit pas aussi puissant que la véritable Lance de l'Extermination
 
 Si un non-Ancien Dieu l'obtenait, il ne pourrait en utiliser qu'une infime partie. Et si le sceau était totalement ouvert, le bouclier refuserait tout propriétaire! Car, en fin de compte, il ne reconnaîtrait pour maître qu'un Ancien Dieu!
 
-Wang Lin se tint suspendu dans les airs et dit calmement: « Maître Hollow Wind, attaquez-moi une fois de toute votre puissance! »
+Wang Lin se tint suspendu dans les airs et dit calmement: « Maître Fu Fengzi, attaquez-moi une fois de toute votre puissance! »
 
-Maître Hollow Wind hésita un instant avant que ses mains ne forment un sceau, enveloppant son corps d'une lumière violette. Cette lumière se mua en une tablette de pierre qui fendit le ciel vers Wang Lin dans un sifflement strident.
+Maître Fu Fengzi hésita un instant avant que ses mains ne forment un sceau, enveloppant son corps d'une lumière violette. Cette lumière se mua en une tablette de pierre qui fendit le ciel vers Wang Lin dans un sifflement strident.
 
 D'innombrables runes scintillaient sur la tablette, dégageant une aura monstrueuse qui s'abattit sur Wang Lin. Des craquements déchirèrent l'espace autour de lui et des fissures spatiales apparurent instantanément.
 
 Cependant, juste au moment où la tablette allait percuter Wang Lin, le bouclier de lumière azurée brilla et se déplaça à une vitesse incroyable pour intercepter l'attaque. La tablette de pierre et le bouclier entrèrent en collision.
 
-Un fracas assourdissant retentit, puis la tablette de pierre vola en éclats. Si cela n'avait été que cela, ce ne serait pas si grave, mais ce qui choqua Maître Hollow Wind fut que l'énergie d'origine de la tablette brisée fut totalement absorbée par le bouclier.
+Un fracas assourdissant retentit, puis la tablette de pierre vola en éclats. Si cela n'avait été que cela, ce ne serait pas si grave, mais ce qui choqua Maître Fu Fengzi fut que l'énergie d'origine de la tablette brisée fut totalement absorbée par le bouclier.
 
 Le bouclier brilla d'un éclat intense!
 

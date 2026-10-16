@@ -56,7 +56,7 @@ Le messager à ses côtés s'arrêta également, affichant un air dubitatif. Il 
 
 Le membre du Clan du Serpent de l'Âme afficha un regard de désespoir. Derrière lui, les membres de son clan virent leurs visages se décomposer sous l'effet de la peur.
 
-« Son péché ne mérite pas la mort, mais le Clan du Serpent de l'Âme est privé de son droit de participer à la Sélection des Anciens Déchus! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
+« Son péché ne mérite pas la mort, mais le Clan du Serpent de l'Âme est privé de son droit de participer à la Sélection des Anciens Délaissés! » La voix de Wang Lin était basse, mais elle résonna distinctement aux oreilles de tous les cultivateurs.
 
 Ceux qui chargeaient l'homme s'arrêtèrent net et reculèrent derrière Wang Lin sans aucune hésitation.
 
@@ -70,7 +70,7 @@ Wang Lin pointa le 13e Ancien Déchu du doigt et dit lentement au messager: « D
 
 Le messager hésita un instant, mais face à la froideur qui brillait dans les yeux de Wang Lin, il acquiesça.
 
-« Le Clan du Ruisseau Tourbillonnant perd également sa place dans la Sélection des Anciens Déchus! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche de l'Évasion Nuageuse, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
+« Le Clan du Ruisseau Tourbillonnant perd également sa place dans la Sélection des Anciens Délaissés! » Après avoir parlé, Wang Lin tourna son regard vers le Patriarche de l'Évasion Nuageuse, non loin de là, et ajouta: « Brisez-vous un bras, et que cela ne se reproduise plus! »
 
 Le Patriarche de l'Évasion Nuageuse sentit la sueur perler sur son front. Il savait que Wang Lin était puissant; il avait délibérément poussé le 13e Ancien Déchu à provoquer ce dernier, sans s'attendre à ce que Wang Lin remarque son manège.
 

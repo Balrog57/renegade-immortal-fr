@@ -16,7 +16,7 @@ Par conséquent, il était rare que des cultivateurs au stade Scruteur du Nirvan
 
 Après tout, le nom « Xu Mu » était devenu trop célèbre et celui de « Maître Démon » exhalait encore une odeur de sang. Ce Xu Mu avait toujours été discret, mais il agissait désormais avec une ostentation frappante. Il était clair qu'il visait la première place; autant la lui offrir. Il n'y avait aucun intérêt à rivaliser avec lui et à déclencher une querelle inutile.
 
-Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Flamme de Terre. Il maintint sa condition physique à son apogée afin de se préparer pour les finales dans le système stellaire d'Allheaven!
+Sept jours passèrent rapidement. Durant cette période, Wang Lin cultiva dans une résidence préparée par une famille de cultivateurs sur la planète Flamme de Terre. Il maintint sa condition physique à son apogée afin de se préparer pour les finales dans le système stellaire de Luotian!
 
 Au cours de ces sept jours, Shengong Hu fut le premier à venir le voir. Il n'interrogea pas Wang Lin sur sa culture, il discuta simplement du Dao et repartit avec quelques enseignements. Il s'inclina devant Wang Lin avec respect dans le regard. Bien que son attitude ne fût plus aussi intense qu'auparavant, l'actuel Wang Lin avait désormais gagné son approbation.
 
@@ -54,7 +54,7 @@ Les 108 participants restants entrèrent progressivement dans la formation. Wang
 
 La formation brilla intensément puis disparut, emportant les 108 personnes avec elle.
 
-Le Temple Céleste du Tonnerre était une entité extrêmement puissante dans le système stellaire d'Allheaven. Au fil des générations, en étendant leur influence, ils étaient devenus la force publique la plus dominante de tout le système!
+Le Temple Céleste du Tonnerre était une entité extrêmement puissante dans le système stellaire de Luotian. Au fil des générations, en étendant leur influence, ils étaient devenus la force publique la plus dominante de tout le système!
 
 L'emplacement du Temple Céleste du Tonnerre demeurait un mystère; nul ne savait où il se trouvait précisément. Même les messagers n'y accédaient qu'en utilisant une formation spéciale, sans autre moyen de retour possible.
 

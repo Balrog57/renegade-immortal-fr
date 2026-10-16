@@ -46,7 +46,7 @@ D'un revers de manches, il sortit de la chambre. Il regarda les quatre hommes de
 
 « L'ancien dieu à l'intérieur de la fissure spatiale liée à la planète Suzaku est sur le point de s'éveiller! Cependant, nous avons suivi les ordres du Souverain Divin et avons mis en place la grande formation primordiale en utilisant le sang des quatre clans! »
 
-En entendant ces mots, l'Empereur Divin du Dragon Azure hocha silencieusement la tête. Il regarda au loin d'un regard complexe et, après un long moment, une froideur glaciale passa dans ses yeux. Sa voix, empreinte d'une intention meurtrière, tonna: « Le Royaume du Vide Brillant est plongé dans le chaos depuis trop longtemps, et Allheaven en a profité pour envahir. Convoquez tous les membres des Quatre Sectes Divines. Je vais reprendre le contrôle du Royaume du Vide Brillant. Tous les cultivateurs devront soit se soumettre, soit mourir! »
+En entendant ces mots, l'Empereur Divin du Dragon Azure hocha silencieusement la tête. Il regarda au loin d'un regard complexe et, après un long moment, une froideur glaciale passa dans ses yeux. Sa voix, empreinte d'une intention meurtrière, tonna: « Le Royaume du Vide Brillant est plongé dans le chaos depuis trop longtemps, et Luotian en a profité pour envahir. Convoquez tous les membres des Quatre Sectes Divines. Je vais reprendre le contrôle du Royaume du Vide Brillant. Tous les cultivateurs devront soit se soumettre, soit mourir! »
 
 Les quatre anciens furent stupéfaits, mais leurs yeux s'illuminèrent d'excitation. Ils se précipitèrent pour transmettre cet ordre qui fit trembler le ciel à l'ensemble de la Secte Divine des Quatre!
 

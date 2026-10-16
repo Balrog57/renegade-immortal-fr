@@ -60,7 +60,7 @@ La brume dissipée réapparut progressivement, mais elle n'était plus aussi den
 
 Wang Lin apparut parmi les étoiles et marcha silencieusement vers l'avant. Avoir tué le Daoïste Water avait apaisé une grande partie de son cœur. Désormais, il allait rentrer chez lui!
 
-En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressivement. Ni Allheaven ni la Mer Nuageuse n'étaient sa maison. Il n'avait qu'un seul foyer, et c'était le Système Stellaire du Vide Brillant!
+En regardant vers sa terre natale, le visage de Wang Lin s'adoucit progressivement. Ni Luotian ni la Mer Nuageuse n'étaient sa maison. Il n'avait qu'un seul foyer, et c'était le Système Stellaire du Vide Brillant!
 
 « Frère aîné Qing Shui, je n'avais pas la force de vous sauver autrefois, mais aujourd'hui, me voilà! » Wang Lin fit un pas en avant et chargea vers le Système Stellaire du Vide Brillant!
 

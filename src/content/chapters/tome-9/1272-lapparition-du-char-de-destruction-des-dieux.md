@@ -1,6 +1,6 @@
 ---
 n: 1272
-title: "L'Apparition du Char de Destruction des Dieux"
+title: "L'Apparition du Char de Guerre Divin"
 book: 9
 bookTitle: Peak of the Cloud Sea
 en: Chapter 1272 - The God Slaying Chariot Appears Once More
@@ -12,9 +12,9 @@ Autour de Wang Lin se trouvaient désormais cent continents sauvages. Ils étaie
 
 Wang Lin et la femme en argent avaient enveloppé ces continents avec trois des grandes restrictions, formant une tempête capable de déchiqueter les cieux. Cependant, Wang Lin continuait de la contenir, refusant qu'elle n'éclate avant que les continents environnants ne soient raffinés en un immense trésor de restriction grâce à l'usage de ces trois grandes restrictions!
 
-Maître Flamespark avait emprunté des fragments du Royaume Céleste du Tonnerre pour raffiner un trésor. Bien que les matériaux de Wang Lin fussent de moindre qualité, sa méthode était équivalente, voire légèrement supérieure grâce aux trois grandes restrictions.
+Maître Yan Leizi avait emprunté des fragments du Royaume Céleste du Tonnerre pour raffiner un trésor. Bien que les matériaux de Wang Lin fussent de moindre qualité, sa méthode était équivalente, voire légèrement supérieure grâce aux trois grandes restrictions.
 
-Si Maître Flamespark devait combattre Wang Lin à cet instant, il perdrait sans aucun doute!
+Si Maître Yan Leizi devait combattre Wang Lin à cet instant, il perdrait sans aucun doute!
 
 Ces cent continents sauvages dégageaient une pression colossale, mais Wang Lin continuait de la réprimer jusqu'à ce qu'elle soit dissimulée. Il n'était pas assez arrogant pour croire pouvoir tromper un cultivateur du troisième niveau, mais il voulait que sa puissance se condense en un point précis avant l'éruption!
 
@@ -46,21 +46,21 @@ Alors que les bêtes s'effondraient, ces tatouages flottèrent au-dessus des con
 
 « Même des êtres au stade du Fléau Céleste mourraient sans aucun doute s'ils étaient frappés par ces trois mouvements mortels! Mais ceci n'est pas la limite de mes 2 000 ans de culture! » Wang Lin avait tout donné pour cette bataille. Il prit une profonde inspiration, tendit la main et ouvrit son espace de stockage. Un éclair de tonnerre s'en échappa.
 
-Au moment où le tonnerre apparut, un rugissement retentit. La bête de tonnerre formée par le Char de Guerre des Dieux était apparue! Dès son apparition, Wang Lin agita la main droite et toutes les fioritures que Maître Flamespark avait ajoutées s'effondrèrent, lui rendant sa forme puissante d'autrefois.
+Au moment où le tonnerre apparut, un rugissement retentit. La bête de tonnerre formée par le Char de Guerre Divin était apparue! Dès son apparition, Wang Lin agita la main droite et toutes les fioritures que Maître Yan Leizi avait ajoutées s'effondrèrent, lui rendant sa forme puissante d'autrefois.
 
 *Roar!*
 
 La bête de tonnerre poussa un rugissement et son regard devint d'une intensité redoutable. Ayant déjà acquis une intelligence, elle savait que Wang Lin faisait face à une crise.
 
-« Il reste encore plusieurs sceaux sur ce Char de Guerre des Dieux. Par le passé, je ne les aurais pas brisés, mais maintenant, je le peux! » Wang Lin prit une profonde inspiration et souffla vers l'avant.
+« Il reste encore plusieurs sceaux sur ce Char de Guerre Divin. Par le passé, je ne les aurais pas brisés, mais maintenant, je le peux! » Wang Lin prit une profonde inspiration et souffla vers l'avant.
 
 Une rafale de vent sortit de sa bouche et frappa la bête de tonnerre. La créature trembla violemment, émettant des craquements comme si un miroir se brisait.
 
-« Libérez tous les sceaux du second Char de Guerre des Dieux! » Les yeux de Wang Lin s'ouvrirent brusquement, révélant un regard glacial. Alors que le vent atteignait le char, il cracha une bouchée de sang qui s'écrasa également sur l'engin de guerre.
+« Libérez tous les sceaux du second Char de Guerre Divin! » Les yeux de Wang Lin s'ouvrirent brusquement, révélant un regard glacial. Alors que le vent atteignait le char, il cracha une bouchée de sang qui s'écrasa également sur l'engin de guerre.
 
 La bête de tonnerre poussa un cri de douleur tandis que son corps s'étendait rapidement. Les sceaux sur sa carcasse s'effondrèrent à un rythme effréné jusqu'à ce qu'ils fussent tous levés!
 
-Le Char de Guerre des Dieux, qui n'avait pu assaillir le Royaume Céleste avant de s'effondrer, se révélait une fois de plus au monde!
+Le Char de Guerre Divin, qui n'avait pu assaillir le Royaume Céleste avant de s'effondrer, se révélait une fois de plus au monde!
 
 À mesure que la bête de tonnerre grandissait, elle atteignit des dizaines de milliers de pieds de haut. Son corps changea radicalement: sa moitié inférieure devint un gigantesque char de guerre! Sa partie supérieure se métamorphosa également pour devenir une lance colossale. Cette lance, reliée au char, dégageait un tonnerre incessant lorsqu'elle apparut devant Wang Lin!
 
@@ -70,7 +70,7 @@ Une aura capable d'ébranler les cieux explosa du char et frappa le corps de Wan
 
 La main droite de Wang Lin s'étira à nouveau et un papillon aux cinq couleurs apparut, tournoyant autour de lui. Un écureuil de sang accompagnait également le papillon.
 
-« Ce troisième Char de Guerre des Dieux est le plus puissant! Même maintenant, je ne peux l'ouvrir totalement, mais hormis le dernier, je suis confiant dans ma capacité à libérer les autres! » La main de Wang Lin forma un sceau; du sang jaillit et se déposa sur le papillon.
+« Ce troisième Char de Guerre Divin est le plus puissant! Même maintenant, je ne peux l'ouvrir totalement, mais hormis le dernier, je suis confiant dans ma capacité à libérer les autres! » La main de Wang Lin forma un sceau; du sang jaillit et se déposa sur le papillon.
 
 En un instant, le papillon trembla, ses ailes semblant s'immobiliser. Puis, un gigantesque cocon apparut progressivement autour de lui!
 

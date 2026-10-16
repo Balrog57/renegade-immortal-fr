@@ -68,7 +68,7 @@ Au même instant, dans le Vide Brillant, alors que des ondulations résonnaient 
 
 À l'instant même, ils fixèrent tous la Rivière des Invocations!
 
-Simultanément, des ondes de choc parcoururent Allheaven et la Mer Nuageuse. Le nombre total d'avatars à travers les quatre systèmes stellaires atteignait désormais 3 000!
+Simultanément, des ondes de choc parcoururent Luotian et la Mer Nuageuse. Le nombre total d'avatars à travers les quatre systèmes stellaires atteignait désormais 3 000!
 
 C'étaient les 3 000 avatars de l'Omniscient, tous les corps qu'il avait acquis par sa dévoration constante au cours de ses 98 éveils!
 

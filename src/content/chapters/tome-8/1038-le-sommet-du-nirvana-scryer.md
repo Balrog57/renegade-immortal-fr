@@ -54,11 +54,11 @@ Cependant, l'apparition d'un oiseau vermillon de plusieurs centaines de milliers
 
 En chemin, même les météores qui croisaient sa route furent réduits en cendres par l'Oiseau Vermillon. Cela choqua de nombreux cultivateurs de l'Alliance, qui commencèrent à spéculer.
 
-Même Allheaven obtint immédiatement des informations sur l'apparition de l'Oiseau Vermillon. Lorsque le Maître Flamespark apprit la nouvelle, il se mit aussitôt à rire.
+Même Luotian obtint immédiatement des informations sur l'apparition de l'Oiseau Vermillon. Lorsque le Maître Yan Leizi apprit la nouvelle, il se mit aussitôt à rire.
 
-La guerre que Allheaven avait mise en suspens venait de reprendre à grande échelle. Ils utilisèrent la région nord comme base pour lancer leur offensive.
+La guerre que Luotian avait mise en suspens venait de reprendre à grande échelle. Ils utilisèrent la région nord comme base pour lancer leur offensive.
 
-D'autres cultivateurs d'Allheaven arrivèrent également. Presque tous les membres d'Allheaven furent mobilisés pour attaquer l'Alliance de toutes leurs forces!
+D'autres cultivateurs de Luotian arrivèrent également. Presque tous les membres de Luotian furent mobilisés pour attaquer l'Alliance de toutes leurs forces!
 
 Wang Lin ignorait tout cela. À cet instant, il était assis dans sa cavité, cultivant les yeux clos. De temps à autre, il extrayait une âme originelle pour la dévorer. Heureusement, il disposait en suffisance d'âmes originelles dans son sac pour se nourrir.
 

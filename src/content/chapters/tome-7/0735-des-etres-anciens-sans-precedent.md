@@ -124,4 +124,4 @@ En un instant, cette foudre déchaînée perça le vide et disparut avec Wang Li
 
 Sa vitesse était presque indescriptible, comme si le temps s'était compressé en un clin d'œil. Cet espace était manifestement différent de l'espace ordinaire. Wang Lin ne put rien percevoir de son environnement avant d'avoir déjà traversé la zone.
 
-De nombreux cultivateurs du Système Stellaire d'Allheaven étaient sur la route menant au Royaume Céleste du Tonnerre. Ils n'avaient pas à voler par leurs propres moyens, car ils étaient automatiquement attirés par les fourneaux de tonnerre vers la porte céleste, dans l'attente de son ouverture.
+De nombreux cultivateurs du Système Stellaire de Luotian étaient sur la route menant au Royaume Céleste du Tonnerre. Ils n'avaient pas à voler par leurs propres moyens, car ils étaient automatiquement attirés par les fourneaux de tonnerre vers la porte céleste, dans l'attente de son ouverture.

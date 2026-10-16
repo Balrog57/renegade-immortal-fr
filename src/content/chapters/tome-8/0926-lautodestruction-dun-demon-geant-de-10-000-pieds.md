@@ -10,7 +10,7 @@ Après avoir parlé, le vieil homme en robe noire et le jeune homme en robe blan
 
 Lie Yunzi serra les dents et pointa un autre parchemin de bataille. Dès que son Sens Divin y pénétra, l'un des quinze Lou Fu s'effondra pour se transformer en une silhouette de sang afin de combattre le vieil homme sur la planète de culture.
 
-À cet instant, un membre du clan des Démons Géants de 10 000 pieds surgit. S’il avait rencontré n’importe quel cultivateur d'Allheaven plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
+À cet instant, un membre du clan des Démons Géants de 10 000 pieds surgit. S’il avait rencontré n’importe quel cultivateur de Luotian plus faible que lui, il l'aurait saisi et écrasé dans un rugissement avant de l'engloutir.
 
 Ce membre du clan des Démons Géants était au sommet du stade Corporel Yang; son corps, exceptionnellement puissant, pouvait absorber bien plus d'énergie originelle que les cultivateurs ordinaires. Bien qu'il ne fût qu'au sommet du stade Corporel Yang, il pouvait rivaliser avec n'importe quel cultivateur ordinaire du début du stade Scruteur du Nirvana.
 
@@ -82,7 +82,7 @@ Après cet ordre, la planète de culture s'éleva et tourna avec une célérité
 
 Simultanément, une onde rouge écarlate se propagea depuis la planète. Sous le contrôle du vieil homme, elle s'étendit vers l'avant à une vitesse prodigieuse.
 
-Cette onde était trop rapide. En se propageant, elle affecta plusieurs cultivateurs d'Allheaven qui commencèrent à trembler; en un instant, leurs corps entiers, ainsi que leurs sacs de rangement, s'effondrèrent.
+Cette onde était trop rapide. En se propageant, elle affecta plusieurs cultivateurs de Luotian qui commencèrent à trembler; en un instant, leurs corps entiers, ainsi que leurs sacs de rangement, s'effondrèrent.
 
 L'onde fonça droit sur le bois géant. L'expression de Wang Lin changea, et Lie Yunzi ouvrit les yeux pour hurler: « Xu Mu, Zi Yan, éparpillez-vous rapidement! Occupez-vous de vos affaires et ne vous souciez plus de protéger ce vieil homme! »
 
@@ -98,11 +98,11 @@ Wang Lin esquiva l'onde de loin. Cependant, tout autour de lui, c'était le chao
 
 Une lueur glaciale passa dans les yeux de Wang Lin; il ne prit même pas la peine d'esquiver. L'épée frappa son corps avant de rebondir. Il se retourna alors et pointa du doigt.
 
-Ce geste concentrait l'énergie originelle et la puissance d'un Ancien Dieu. L'attaque atteignit directement l'assaillant. La terreur envahit les yeux de cet homme qui, alors qu'il tentait de battre en retraite, vit une immense brume de sang exploser de son corps. Son âme originelle s'enfuit en panique, mais un autre cultivateur d'Allheaven la saisit et la broya sur-le-champ.
+Ce geste concentrait l'énergie originelle et la puissance d'un Ancien Dieu. L'attaque atteignit directement l'assaillant. La terreur envahit les yeux de cet homme qui, alors qu'il tentait de battre en retraite, vit une immense brume de sang exploser de son corps. Son âme originelle s'enfuit en panique, mais un autre cultivateur de Luotian la saisit et la broya sur-le-champ.
 
-Le cultivateur d'Allheaven fixait Wang Lin avec une intention meurtrière évidente. Il se lécha les lèvres et dit d'une voix rauque: « Xu Mu, pourquoi ne pas nous mesurer à nouveau? Voyons qui en tuera le plus! »
+Le cultivateur de Luotian fixait Wang Lin avec une intention meurtrière évidente. Il se lécha les lèvres et dit d'une voix rauque: « Xu Mu, pourquoi ne pas nous mesurer à nouveau? Voyons qui en tuera le plus! »
 
-Ce cultivateur d'Allheaven n'était autre que le Vice-Céleste du Tonnerre, Xu Ting!
+Ce cultivateur de Luotian n'était autre que le Vice-Céleste du Tonnerre, Xu Ting!
 
 L'expression de Wang Lin resta impassible tandis qu'il répondait calmement: « Si tu veux vraiment comparer, pourquoi ne pas voir qui parviendra à tuer cette femme? » Tout en parlant, il désigna la femme en robe bleue.
 

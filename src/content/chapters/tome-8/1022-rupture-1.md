@@ -246,7 +246,7 @@ La silhouette de l'Omniscient apparut dans le ciel effondré. Il observa tous ce
 
 Ling Tianhou, Situ Nan et l'Omniscient n'étaient pas les seuls à ressentir la puissance de cette mer de feu. Tous les habitants des 99 royaumes la ressentaient.
 
-Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Big Head, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître Void!
+Un à un, les royaumes s'effondraient, et de plus en plus de personnes commençaient à apparaître dans l'espace dévasté. Da Tou, les trois frères Chen, le vieillard sur la gourde, l'homme en noir, et même Maître Void!
 
 Cependant, cet effondrement ne cessait pas; il continuait de se propager. Cette destruction était infusée du pouvoir de chaque royaume, créant une force que nul ne pouvait stopper. Elle devenait de plus en plus puissante en chargeant vers le dernier royaume du monde de la bouteille!
 

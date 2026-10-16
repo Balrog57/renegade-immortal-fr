@@ -30,7 +30,7 @@ Perché sur le fantôme démoniaque, le jeune homme déclara d'un ton calme et l
 
 Pourtant, avant qu'il n'ait fini sa phrase, Wang Lin ne recula pas; il avança au contraire. Il était déjà irrité par son enfermement dans le tunnel, et ce jeune homme qui l'attaquait avec une telle intention meurtrière n'arrangeait rien. C'était comme si, aux yeux de tous, il était si faible qu'on pouvait l'attaquer à sa guise.
 
-« Il semble que j'aie été trop discret dans le Système Stellaire d'Allheaven. » Si le jeune homme avait été au stade Corporel Yang, Wang Lin aurait peut-être hésité avant de battre en retraite. Mais il avait déjà tué des cultivateurs du stade Illusoire Yin par le passé; il marcha donc droit vers le fantôme.
+« Il semble que j'aie été trop discret dans le Système Stellaire de Luotian. » Si le jeune homme avait été au stade Corporel Yang, Wang Lin aurait peut-être hésité avant de battre en retraite. Mais il avait déjà tué des cultivateurs du stade Illusoire Yin par le passé; il marcha donc droit vers le fantôme.
 
 « Utiliser des sorts démoniaques devant moi! J'ai même combattu un démon errant! » D'un pas, Wang Lin s'élança dans les airs. Il leva sa main droite et son âme originelle s'anima. Une immense quantité de tonnerre jaillit de son corps pour se rassembler rapidement dans sa paume.
 

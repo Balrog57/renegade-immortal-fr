@@ -54,9 +54,9 @@ Le garçon à la grosse tête fut soudainement couvert de sueur froide et recula
 
 L'expression de Wang Lin se glaça et il s'arrêta.
 
-Une lueur de joie apparut dans les yeux du garçon, qui s'élança immédiatement. Il ouvrit la bouche et hurla: « Xu Mu, toi et moi ne sommes pas ennemis! C'est moi qui ai été imprudent. Je m'en vais maintenant! » Son cœur battait la chamade. C'était une véritable question de vie ou de mort. Il jura que s'il parvenait à s'échapper, il retournerait immédiatement au camp principal des cultivateurs d'Allheaven pour dénoncer l'identité de Xu Mu.
+Une lueur de joie apparut dans les yeux du garçon, qui s'élança immédiatement. Il ouvrit la bouche et hurla: « Xu Mu, toi et moi ne sommes pas ennemis! C'est moi qui ai été imprudent. Je m'en vais maintenant! » Son cœur battait la chamade. C'était une véritable question de vie ou de mort. Il jura que s'il parvenait à s'échapper, il retournerait immédiatement au camp principal des cultivateurs de Luotian pour dénoncer l'identité de Xu Mu.
 
-« Xu Mu! Je me souviendrai de cette journée pour ma vengeance. Je ruinerai ta réputation dans le Système Stellaire d'Allheaven. Lorsque des aînés comme le Dieu du Sang viendront traquer un traître comme toi, je veux voir comment tu t'échapperas! Même si ton frère aîné est Qing Shui, il ne pourra pas te protéger! » Le garçon à la grosse tête serra les dents, mais il n'osa pas révéler ses pensées. Il leva les yeux vers le ciel et vit l'atmosphère. Tant qu'il briserait la couche atmosphérique, ce Xu Mu n'oserait pas attaquer avec des centaines de cultivateurs comme témoins.
+« Xu Mu! Je me souviendrai de cette journée pour ma vengeance. Je ruinerai ta réputation dans le Système Stellaire de Luotian. Lorsque des aînés comme le Dieu du Sang viendront traquer un traître comme toi, je veux voir comment tu t'échapperas! Même si ton frère aîné est Qing Shui, il ne pourra pas te protéger! » Le garçon à la grosse tête serra les dents, mais il n'osa pas révéler ses pensées. Il leva les yeux vers le ciel et vit l'atmosphère. Tant qu'il briserait la couche atmosphérique, ce Xu Mu n'oserait pas attaquer avec des centaines de cultivateurs comme témoins.
 
 Wang Lin ricana. Il savait parfaitement ce que le garçon tramait. Il leva sa main droite et le son d'une cloche résonna à l'intérieur de son corps.
 
@@ -94,6 +94,6 @@ Alors qu'il rugissait, un craquement fracassant retentit comme un coup de tonner
 
 L'expression de Wang Lin demeura neutre. S'il n'utilisait pas de sorts puissants, c'était parce qu'il avait d'autres projets pour ce garçon. En utilisant des techniques trop dévastatrices, il ne pourrait plus se retenir, car il ne maîtrisait pas encore assez bien le contrôle de ses pouvoirs avec sa culture actuelle.
 
-De plus, cet individu était l'un des 36 Célestes du Paradis. Wang Lin n'était pas encore prêt à rompre définitivement ses liens avec le Système Stellaire d'Allheaven. Il pouvait tuer un cultivateur ordinaire, mais pas un Céleste du Paradis près de la planète Suzaku, surtout sous les yeux de centaines de cultivateurs. Ce ne serait pas une décision judicieuse!
+De plus, cet individu était l'un des 36 Célestes du Paradis. Wang Lin n'était pas encore prêt à rompre définitivement ses liens avec le Système Stellaire de Luotian. Il pouvait tuer un cultivateur ordinaire, mais pas un Céleste du Paradis près de la planète Suzaku, surtout sous les yeux de centaines de cultivateurs. Ce ne serait pas une décision judicieuse!
 
 Cependant, face à l'attitude de Wang Lin, puisque l'autre partie l'avait provoqué, il ne comptait naturellement pas les laisser s'en tirer. Il avait déjà un plan pour gérer parfaitement la situation.

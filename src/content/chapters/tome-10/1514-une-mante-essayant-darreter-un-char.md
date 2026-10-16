@@ -32,7 +32,7 @@ En particulier, le sentiment de sécurité émanant de l'esprit de Wang Lin apai
 
 Cependant, même ce geste fut terrifiant pour les autres cultivateurs. La Bête du Nether était tout simplement trop immense; bien que ses mouvements fussent doux, c'était comme si une montagne vous percutait. Lorsqu'elle vint se poser contre Wang Lin, un grondement tonitruant fit vibrer l'air!
 
-La puissance de cet impact était terrifiante. Le fracas qui en résulta n'était pas moins violent qu'un coup porté de plein fouet par un cultivateur du troisième niveau! Il fallait savoir qu'à Allheaven, même Wang Lin avait été repoussé par la pleine puissance de la Bête du Nether. Cela témoignait de sa force colossale!
+La puissance de cet impact était terrifiante. Le fracas qui en résulta n'était pas moins violent qu'un coup porté de plein fouet par un cultivateur du troisième niveau! Il fallait savoir qu'à Luotian, même Wang Lin avait été repoussé par la pleine puissance de la Bête du Nether. Cela témoignait de sa force colossale!
 
 Le vieil homme Zhou De, de la Rivière Invoquée, eut le souffle coupé. Toutes ses pensées d'asservir une bête aussi féroce s'évaporèrent instantanément.
 

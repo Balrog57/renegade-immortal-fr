@@ -110,7 +110,7 @@ Fort de cette pensée, Huan Wuqing fixait Liu Mei d'un regard étrange.
 
 Les yeux de Liu Mei restaient calmes. Forte de son intelligence, elle avait déjà perçu des indices lorsqu'ils se trouvaient dans le Système Stellaire de l'Alliance. Elle savait que personne ne faisait preuve de bonté sans une raison, à moins qu'il ne s'agisse de ses proches. S'il y avait de la bienveillance, elle cachait forcément un dessein caché.
 
-Toutefois, la puissance de Huan Wuqing était irrésistible. Elle n'avait pu que feindre l'ignorance, se laisser mener dans le Système Stellaire d'Allheaven et accepter le rituel de lignée. Dès l'instant où Huan Wuqing avait accepté de compromettre sa propre culture pour l'aider à atteindre le sommet du stade tardif de l'Ascendant, elle eut la certitude qu'il cachait un mobile profond derrière ses actes.
+Toutefois, la puissance de Huan Wuqing était irrésistible. Elle n'avait pu que feindre l'ignorance, se laisser mener dans le Système Stellaire de Luotian et accepter le rituel de lignée. Dès l'instant où Huan Wuqing avait accepté de compromettre sa propre culture pour l'aider à atteindre le sommet du stade tardif de l'Ascendant, elle eut la certitude qu'il cachait un mobile profond derrière ses actes.
 
 Elle était impuissante. Avec son statut passé de disciple du Suzaku, comment ne pas savoir les dommages causés par une augmentation forcée du niveau de culture?
 

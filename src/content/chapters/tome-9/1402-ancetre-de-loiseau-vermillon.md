@@ -60,7 +60,7 @@ Le clair de lune était intense et la brise légère continuait de souffler, fai
 
 Après une nuit de culture, l'essence de feu dans le corps de Wang Lin était devenue bien plus forte. Cependant, il restait une barrière au quatrième éveil de l'Oiseau Vermillon que Wang Lin ne parvenait pas encore à franchir.
 
-La Sélection des Anciens Déchus avait déjà commencé à l'aube.
+La Sélection des Anciens Délaissés avait déjà commencé à l'aube.
 
 Ce n'est que lorsque le soleil fut haut dans le ciel, presque à midi, que le sang de dragon que Wang Lin avait dévoré commença lentement à se dissiper. Le visage de Wang Lin retrouva son aspect normal et il ouvrit les yeux.
 
@@ -82,7 +82,7 @@ L'esprit de Wang Lin trembla et il leva soudainement les yeux.
 
 Le vieil homme sourit: « Pour les détails, tu les connaîtras une fois que tu auras passé l'Épreuve Divine de l'Oiseau Vermillon. Cette épreuve est nécessaire, et pour toi, elle pourrait être une chance inouïe de percer vers le royaume du Feu Éthéré. Cependant, elle est extrêmement difficile, alors ne te laisse pas écraser par la pression. » Le vieil homme regarda vers le nord-ouest. Après une courte réflexion, il ajouta avec une pointe d'insatisfaction:
 
-« Pourquoi n'as-tu pas accepté le défi du Maître Simo? Les membres de mon clan ne craignent pas les combats! Une fois l'épreuve tentée, libère ta puissance et affronte-le. Ceux qui sont invités ici ne pourront rien te faire! La sélection des Anciens Déchus n'est qu'un jeu d'enfant. La raison principale d'inviter autant de cultivateurs de la troisième étape est de leur faire savoir qu'un nouveau Jeune Empereur est apparu dans les Terres Déchus!
+« Pourquoi n'as-tu pas accepté le défi du Maître Simo? Les membres de mon clan ne craignent pas les combats! Une fois l'épreuve tentée, libère ta puissance et affronte-le. Ceux qui sont invités ici ne pourront rien te faire! La sélection des Anciens Délaissés n'est qu'un jeu d'enfant. La raison principale d'inviter autant de cultivateurs de la troisième étape est de leur faire savoir qu'un nouveau Jeune Empereur est apparu dans les Terres Déchus!
 
 « Tu es un membre de mon clan, peu importe que tu viennes du Royaume Intérieur ou non! Si tu quittes cet endroit, je ne pourrai pas te protéger, mais tant que tu seras ici, je veux voir qui oserait t'approcher! Rappelle-toi, mon clan doit être tyrannique et partial. Nous devons l'être pour avoir une place dans ce vieux monde chaotique. C'est ainsi que l'on impose le respect et la crainte! Au lieu de te cacher, montre ta puissance! Ce Maître Simo est ta cible. Qu'importe qu'il soit un cultivateur de la troisième étape? Utilise-le pour démontrer ta force! »
 

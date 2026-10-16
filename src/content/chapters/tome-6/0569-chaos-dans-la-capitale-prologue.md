@@ -104,7 +104,7 @@ Le temps s'écoula rapidement et, en un clin d'œil, Wang Lin avait passé quatr
 
 Wang Lin ne demanda pas quand débuterait la bataille entre les généraux démons. Il savait que Mo Lihai ferait appel à lui le moment venu. N'étant pas pressé, il consacrait son temps, outre sa culture, à une profonde méditation sur l'Art du Massacre Céleste. Après le carnage de la Cité du Démon Antique, sa compréhension de cet art s'était considérablement approfondie.
 
-Wang Lin passa ainsi ses trois mois au sein de la Tribu du Raffinement de l'Âme. Lorsqu'il ne cultivait pas, il méditait sur l'Art du Massacre Céleste. Pour lui, un changement de lieu n'altérait en rien sa détermination.
+Wang Lin passa ainsi ses trois mois au sein de la Tribu du Affinement de l'Âme. Lorsqu'il ne cultivait pas, il méditait sur l'Art du Massacre Céleste. Pour lui, un changement de lieu n'altérait en rien sa détermination.
 
 Le calme imperturbable de Wang Lin attira l'attention des deux sergents qui lui étaient assignés, et ils finirent par éprouver une véritable admiration pour lui. À leurs yeux, un homme de son niveau qui s'appliquait avec une telle rigueur deviendrait sans aucun doute un général démon à l'avenir.
 

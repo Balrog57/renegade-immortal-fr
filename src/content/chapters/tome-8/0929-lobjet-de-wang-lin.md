@@ -42,7 +42,7 @@ Le corps gigantesque du Serpent aux yeux de lune suivit le doigt du dieu ancien 
 
 Les yeux du Serpent aux yeux de lune étaient extrêmement clairs, sans aucune trace de confusion. Wang Lin eut la sensation que, lorsqu'il regardait le serpent, celui-ci le scrutait en retour.
 
-La libération du Serpent aux yeux de lune avait redonné un immense moral aux cultivateurs d'Allheaven. Cette bataille était pleine de rebondissements: tantôt l'Alliance tenait l'avantage, tantôt Allheaven reprenait le dessus.
+La libération du Serpent aux yeux de lune avait redonné un immense moral aux cultivateurs de Luotian. Cette bataille était pleine de rebondissements: tantôt l'Alliance tenait l'avantage, tantôt Luotian reprenait le dessus.
 
 À cet instant, le Serpent aux yeux de lune réapparut, et la pression qu'il dégageait fit trembler les étoiles. Le doigt du dieu ancien ne se dissipa pas et continua de balayer l'espace à une vitesse fulgurante.
 
@@ -76,9 +76,9 @@ Les quatre autres fleurs ouvrirent leurs ouvertures et projetèrent de grandes q
 
 Simultanément, les yeux de la sculpture brillèrent d'un rouge éclatant, lui donnant un aspect véritablement vivant. Elle ouvrit ses bras comme pour embrasser quelque chose, puis se précipita dans le gaz noir pour s'agripper directement au doigt du dieu ancien. Des lignes noires jaillirent de son corps et se propagèrent instantanément sur l'attaque divine.
 
-Wang Lin observa la scène de loin et esquissa un sourire narquois. Si le doigt du dieu ancien pouvait être brisé si facilement, les cultivateurs d'Allheaven n'auraient pas déployé tant d'efforts pour acheminer le Serpent aux yeux de lune ici.
+Wang Lin observa la scène de loin et esquissa un sourire narquois. Si le doigt du dieu ancien pouvait être brisé si facilement, les cultivateurs de Luotian n'auraient pas déployé tant d'efforts pour acheminer le Serpent aux yeux de lune ici.
 
-Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Allheaven ait préparée pour cette guerre! Le regard de Wang Lin glissa vers le bois géant au loin.
+Ce serpent pouvait être considéré comme l'arme la plus puissante qu'Luotian ait préparée pour cette guerre! Le regard de Wang Lin glissa vers le bois géant au loin.
 
 « Je doute que charger en avant soit la seule chose que ce bois puisse faire. Après y avoir si longtemps posé le pied, j'ai senti qu'il y avait autre chose à l'intérieur... » Des centaines de pensées traversèrent son esprit. La bataille entre les deux systèmes stellaires avait infiniment élargi ses horizons.
 

@@ -14,7 +14,7 @@ Wang Lin avait le cœur au bord des lèvres, observant attentivement l'évolutio
 
 Bien que ce fût le moment idéal pour lancer une attaque surprise, Wang Lin ne fit rien. Cette femme lui inspirait un puissant sentiment de crise. Lorsqu'elle avait utilisé ce fragment d'origine source, Wang Lin avait été terrifié.
 
-Bien que Maître Flamespark possédât l'aura d'une origine source, même lui ne pouvait s'en servir. Pourtant, cette femme avait réellement utilisé une origine source, ce qui était inimaginable pour Wang Lin.
+Bien que Maître Yan Leizi possédât l'aura d'une origine source, même lui ne pouvait s'en servir. Pourtant, cette femme avait réellement utilisé une origine source, ce qui était inimaginable pour Wang Lin.
 
 Face à un tel ennemi, tenter une attaque surprise était inutile.
 
@@ -66,7 +66,7 @@ En reculant, une pointe d'hésitation traversa le regard de Wang Lin. Il s'arrê
 
 Situ Nan fronça les sourcils et s'immobilisa également. Plus tôt, il s'était éclipsé seul pour chercher des trésors, mais il avait vite perçu la crise à laquelle Wang Lin faisait face.
 
-En particulier, la disparition de Maître Hollow Wind et des autres l'avait profondément troublé. Cependant, avec la présence de Wang Lin ici, il ne pouvait pas s'enfuir seul; il avait donc pris le risque de venir pour tenter de créer une opportunité d'évasion.
+En particulier, la disparition de Maître Fu Fengzi et des autres l'avait profondément troublé. Cependant, avec la présence de Wang Lin ici, il ne pouvait pas s'enfuir seul; il avait donc pris le risque de venir pour tenter de créer une opportunité d'évasion.
 
 Lorsqu'il vit Wang Lin s'arrêter, Situ Nan fit de même sans hésiter. Il fixa froidement la femme en blanc qui s'approchait.
 
@@ -124,7 +124,7 @@ En arrière-plan, des nuages sculptés complétaient la scène. Mais ces nuages 
 
 Lorsque Wang Lin fixa l'homme, il sentit un bourdonnement envahir son esprit et une aura inimaginable percuta son corps.
 
-C'était l'aura la plus puissante que Wang Lin ait jamais ressentie. Que ce soit Qing Shui, Maître Flamespark ou même l'Omniscient, leurs auras étaient bien moindres. Même le mystérieux Ancien du troisième pas d'Allheaven était légèrement moins puissant.
+C'était l'aura la plus puissante que Wang Lin ait jamais ressentie. Que ce soit Qing Shui, Maître Yan Leizi ou même l'Omniscient, leurs auras étaient bien moindres. Même le mystérieux Ancien du troisième pas de Luotian était légèrement moins puissant.
 
 Cette aura était si colossale qu'elle créait un impact invisible. Un seul regard de Wang Lin suffit à faire trembler son corps et à le faire cracher du sang. Il recula précipitamment, voulant mobiliser son énergie originelle, pour découvrir avec horreur que celle-ci se rétractait. Elle s'était repliée sur elle-même, comme si elle craignait d'apparaître devant une telle puissance!
 

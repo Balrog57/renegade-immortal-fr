@@ -1,12 +1,12 @@
 ---
 n: 1479
-title: "Le système stellaire d'Allheaven en préparation de guerre"
+title: "Le système stellaire de Luotian en préparation de guerre"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: Chapter 1479 - The Allheaven Star System That is Preparing for War
 slug: le-systeme-stellaire-dallheaven-en-preparation-de-guerre
 ---
-L'atmosphère était tendue dans le système stellaire d'Allheaven. Dans la partie nord-ouest d'Allheaven, une formation magnifique composée de 439 planètes se dressait avec majesté. De nombreux cultivateurs se tenaient à l'extérieur de la formation, déposant des sceaux pour en renforcer la structure.
+L'atmosphère était tendue dans le système stellaire de Luotian. Dans la partie nord-ouest de Luotian, une formation magnifique composée de 439 planètes se dressait avec majesté. De nombreux cultivateurs se tenaient à l'extérieur de la formation, déposant des sceaux pour en renforcer la structure.
 
 Plus loin encore, des rayons de lumière rouge rugissaient tandis qu'innombrables cultivateurs, agissant sous les ordres, sélectionnaient de vastes quantités de planètes propices à la culture, lesquelles étaient entraînées ici par la force.
 
@@ -14,19 +14,19 @@ Au cœur de cette formation planétaire flottait un nuage de brume. Cette brume 
 
 Ce vieil homme portait une robe taoïste et dégageait une aura de majesté sans pour autant paraître colérique. Son visage était légèrement pâle, mais des grondements de tonnerre résonnaient en lui, comme si son corps abritait d'innombrables éclairs.
 
-Ce vieil homme était un cultivateur du troisième niveau d'Allheaven. Un cultivateur du stade initial du Vide du Nirvana: Maître Lu Fu!
+Ce vieil homme était un cultivateur du troisième niveau de Luotian. Un cultivateur du stade initial du Vide du Nirvana: Maître Lu Fu!
 
 En tant que rare expert du troisième niveau au sein du Royaume Intérieur, le statut de Maître Lu Fu était extrêmement élevé. Tous les autres cultivateurs n'étaient que des fourmis à ses yeux!
 
-On pouvait dire que Maître Lu Fu était le gardien de l'ensemble du système stellaire d'Allheaven et l'artisan véritable de la guerre lancée contre le système stellaire de l'Alliance. Seul Tuo Sen l'avait contraint à fuir dans un état pitoyable.
+On pouvait dire que Maître Lu Fu était le gardien de l'ensemble du système stellaire de Luotian et l'artisan véritable de la guerre lancée contre le système stellaire de l'Alliance. Seul Tuo Sen l'avait contraint à fuir dans un état pitoyable.
 
-Lorsque Tuo Sen était réapparu à Allheaven, Maître Lu Fu avait été terrifié et s'était caché grâce à un sort spécial. Il n'était revenu à la lumière qu'une fois Tuo Sen parti.
+Lorsque Tuo Sen était réapparu à Luotian, Maître Lu Fu avait été terrifié et s'était caché grâce à un sort spécial. Il n'était revenu à la lumière qu'une fois Tuo Sen parti.
 
 Il s'était soigné durant toutes ces années. Bien qu'il n'ait pas disposé de suffisamment de Flammes Joss, il avait utilisé ses propres méthodes pour se remettre lentement de son combat contre Tuo Sen.
 
-Tout était paisible, mais en ce jour, alors que Wang Lin quittait la tombe antique pour arriver à Allheaven, Maître Lu Fu ouvrit les yeux et ceux-ci s'illuminèrent!
+Tout était paisible, mais en ce jour, alors que Wang Lin quittait la tombe antique pour arriver à Luotian, Maître Lu Fu ouvrit les yeux et ceux-ci s'illuminèrent!
 
-Cependant, avant même qu'il ne puisse réfléchir, il ressentit la pression de la puissance de Wang Lin qui se propageait à travers tout Allheaven. L'expression de Maître Lu Fu changea radicalement et il se redressa brusquement. Ses yeux étaient empreints de choc. Il regardait droit devant lui, comme si son regard pouvait percer l'univers pour voir Wang Lin!
+Cependant, avant même qu'il ne puisse réfléchir, il ressentit la pression de la puissance de Wang Lin qui se propageait à travers tout Luotian. L'expression de Maître Lu Fu changea radicalement et il se redressa brusquement. Ses yeux étaient empreints de choc. Il regardait droit devant lui, comme si son regard pouvait percer l'univers pour voir Wang Lin!
 
 Pourtant, avant qu'il ne puisse distinguer quoi que ce soit, une force colossale s'engouffra dans son Sens Divin, perturbant ses pensées. Tout devint flou devant lui.
 
@@ -38,13 +38,13 @@ Maître Lu Fu n'était pas le seul au sein de ce vortex planétaire. Quatre Anci
 
 Si Wang Lin avait été là, il les aurait tous reconnus!
 
-Maître Flamespark du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao qui avait traqué Wang Lin avant d'être arrêté par le Dieu de Sang, Qing Shui!
+Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao qui avait traqué Wang Lin avant d'être arrêté par le Dieu de Sang, Qing Shui!
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 
 Xiang Yundong était celui qui avait conduit Wang Lin sur la planète Dong Lin et qui avait permis à l'ancêtre de la famille Xiang de tromper ce dernier, lui aspirant ainsi presque toute sa force vitale!
 
-Maître Flamespark suivait Maître Lu Fu depuis le plus longtemps. En voyant l'expression du vieil homme changer, il fut stupéfait. Après une brève hésitation, il joignit les mains et demanda respectueusement: « Aîné, que se passe-t-il? »
+Maître Yan Leizi suivait Maître Lu Fu depuis le plus longtemps. En voyant l'expression du vieil homme changer, il fut stupéfait. Après une brève hésitation, il joignit les mains et demanda respectueusement: « Aîné, que se passe-t-il? »
 
 Le regard de Lie Yunzi et des autres devint sombre. Un pressentiment funeste envahit leurs cœurs. Maître Lu Fu était une existence d'une puissance inimaginable au troisième niveau. Une telle présence relevait de la légende, et peu de choses pouvaient infliger un tel trouble à ses émotions.
 
@@ -58,9 +58,9 @@ Ils pressentaient vaguement la raison pour laquelle une existence légendaire te
 
 Les yeux de Maître Lu Fu brillaient d'une lueur vive. Il avait toujours été prudent durant sa vie et s'était rarement aventuré dans l'inconnu. La seule fois où il avait pris un risque, il en avait payé le prix fort face à Tuo Sen. Non seulement il avait failli mourir, mais il avait dû fuir Tuo Sen comme un chien errant.
 
-Par conséquent, ses actions étaient devenues d'une prudence extrême. La pression qu'il venait de ressentir était assez puissante pour l'ébranler. En cet instant, alors que la situation restait obscure, il refusait de s'y exposer lui-même. Après une courte réflexion, il ordonna: « Vous quatre, configurez le Miroir d'Allheaven. Ce vieil homme veut voir qui est cette personne et pourquoi elle a débarqué à Allheaven! »
+Par conséquent, ses actions étaient devenues d'une prudence extrême. La pression qu'il venait de ressentir était assez puissante pour l'ébranler. En cet instant, alors que la situation restait obscure, il refusait de s'y exposer lui-même. Après une courte réflexion, il ordonna: « Vous quatre, configurez le Miroir de Luotian. Ce vieil homme veut voir qui est cette personne et pourquoi elle a débarqué à Luotian! »
 
-Maître Flamespark et les autres acquiescèrent respectueusement en tentant de reprendre leur calme. Ils se déplacèrent rapidement vers les quatre coins pour s'asseoir, leurs mains formant promptement des sceaux. Ce sort était une technique que Maître Lu Fu leur avait transmise pour qu'ils la pratiquent; ils en maîtrisaient désormais presque parfaitement l'usage.
+Maître Yan Leizi et les autres acquiescèrent respectueusement en tentant de reprendre leur calme. Ils se déplacèrent rapidement vers les quatre coins pour s'asseoir, leurs mains formant promptement des sceaux. Ce sort était une technique que Maître Lu Fu leur avait transmise pour qu'ils la pratiquent; ils en maîtrisaient désormais presque parfaitement l'usage.
 
 Alors que leurs mains traçaient les sceaux, une lumière blanche jaillit. Cette clarté devint de plus en plus intense entre les quatre hommes. Un instant plus tard, un miroir blanc apparut!
 
@@ -68,7 +68,7 @@ Alors que leurs mains traçaient les sceaux, une lumière blanche jaillit. Cette
 
 Les ondulations s'apaisèrent soudainement et l'image cessa d'être déformée. Un système stellaire apparut dans le miroir, et une silhouette aux cheveux blancs, vêtue d'une robe blanche, progressait lentement à travers les astres!
 
-Wang Lin avançait lentement dans le système stellaire d'Allheaven. Tout lui semblait familier. Bien qu'Allheaven ne fût pas l'Alliance, Wang Lin y avait laissé trop de traces.
+Wang Lin avançait lentement dans le système stellaire de Luotian. Tout lui semblait familier. Bien qu'Luotian ne fût pas l'Alliance, Wang Lin y avait laissé trop de traces.
 
 « Je me demande si les gens que je connais sont toujours là... » Wang Lin laissa échapper un soupir, puis fronça soudainement les sourcils en levant les yeux vers les étoiles. Le tatouage de tonnerre dans son œil droit étincela.
 
@@ -84,7 +84,7 @@ Dans un fracas assourdissant, le miroir vola en éclats. L'expression de Maître
 
 Cependant, un tonnerre infini s'éleva dans les cieux, créant des grondements incessants qui secouèrent tous les cultivateurs aux alentours! Pour eux, le tonnerre recouvrait les étoiles comme si une divine retribution descendait sur le monde!
 
-Maître Flamespark cracha du sang et se retira précipitamment. Ses yeux étaient écarquillés d'incrédulité. À cet instant, une voix rugissait frénétiquement dans son cœur:
+Maître Yan Leizi cracha du sang et se retira précipitamment. Ses yeux étaient écarquillés d'incrédulité. À cet instant, une voix rugissait frénétiquement dans son cœur:
 
 « Wang Lin!!! C'est Wang Lin!!! » Il avait clairement vu ses cheveux blancs et sa robe blanche. Il ne pourrait jamais oublier la silhouette de Wang Lin!
 
@@ -110,12 +110,12 @@ Un éclair de complexité traversa le regard de Maître Lu Fu, puis il s'enfonç
 
 Alors que ces paroles pénétraient leurs esprits, ils restèrent plongés dans une méditation silencieuse.
 
-Les yeux de Maître Flamespark s'illuminèrent et il se calma progressivement. Il se demanda s'il avait maltraité Wang Lin; au contraire, il l'avait même un peu aidé. Il se sentait confiant, bien qu'une pointe de choc persistât dans son esprit.
+Les yeux de Maître Yan Leizi s'illuminèrent et il se calma progressivement. Il se demanda s'il avait maltraité Wang Lin; au contraire, il l'avait même un peu aidé. Il se sentait confiant, bien qu'une pointe de choc persistât dans son esprit.
 
 L'expression de Lie Yunzi changea à maintes reprises avant qu'il ne laisse échapper un long soupir.
 
 Les plus nerveux restaient le Dieu de Sang et Xiang Yundong.
 
-Un instant plus tard, Xiang Yundong joignit les mains devant Maître Lu Fu et lança un regard complexe aux trois autres. Il brûlait d'envie de transmettre cette nouvelle à sa famille au plus vite afin qu'ils puissent se préparer. Wang Lin était un être contre lequel même l'ancêtre d'Allheaven, Maître Lu Fu, osait à peine combattre; comment leur famille Xiang pourrait-elle faire face? La seule pensée le plongeait dans l'effroi.
+Un instant plus tard, Xiang Yundong joignit les mains devant Maître Lu Fu et lança un regard complexe aux trois autres. Il brûlait d'envie de transmettre cette nouvelle à sa famille au plus vite afin qu'ils puissent se préparer. Wang Lin était un être contre lequel même l'ancêtre de Luotian, Maître Lu Fu, osait à peine combattre; comment leur famille Xiang pourrait-elle faire face? La seule pensée le plongeait dans l'effroi.
 
 Quant au Dieu de Sang, après avoir longuement réfléchi, il se rassit. Il... n'osait pas partir!

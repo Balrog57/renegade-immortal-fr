@@ -114,7 +114,7 @@ Le bruit de deux métaux percutant l'un contre l'autre résonna dans la zone. Po
 
 L'homme sourit, puis son corps se mit à trembler avant de se transformer en une brume noire qui fonça sur Wang Lin. Partout où elle passait, la terre se fissurait et la végétation se flétrissait.
 
-Wang Lin recula d'un pas, les yeux étincelants. Il agita la main et le piège à bêtes s'échappa de son poignet pour atterrir au sol et se transformer en Chariot Tueur de Dieux.
+Wang Lin recula d'un pas, les yeux étincelants. Il agita la main et le piège à bêtes s'échappa de son poignet pour atterrir au sol et se transformer en Char de Guerre Divin.
 
 Une intention meurtrière envahit le regard de Wang Lin. Cet adversaire avait commencé par cette technique d'avatar interdit; elle était extrêmement puissante, et sans la multitude de trésors dont disposait Wang Lin, il n'aurait pu tenir tête.
 

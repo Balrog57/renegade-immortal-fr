@@ -68,7 +68,7 @@ Wang Lin se leva et ramassa les sacs de contenance des défunts. Il contempla le
 
 Alors qu'il réfléchissait, les yeux de Wang Lin s'illuminèrent soudainement en repensant aux paroles entendues à l'intérieur du tableau.
 
-« Le Maître Sans Souci dessinera un tableau pour l'ouverture initiale du Pavillon des Collections... » Les yeux de Wang Lin brillèrent davantage lorsqu'il se remémora les sceaux manuels du garçon sous l'arbre.
+« Le Maître Xiaoyaozi dessinera un tableau pour l'ouverture initiale du Pavillon des Collections... » Les yeux de Wang Lin brillèrent davantage lorsqu'il se remémora les sceaux manuels du garçon sous l'arbre.
 
 « Lorsque j'ai utilisé ces sceaux auparavant, j'ai senti le pavillon trembler... » Le cœur de Wang Lin fit un bond. Il se précipita immédiatement auprès du Pavillon des Collections.
 

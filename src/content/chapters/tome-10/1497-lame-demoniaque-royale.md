@@ -66,7 +66,7 @@ Un coup de poing de l'Ordre Ancien capable de percer les cieux!
 
 Alors que ce coup partait, la tête de l'Ordre Ancien derrière Wang Lin se déforma pour fusionner avec son poing.
 
-Des grondements tonitruants résonnèrent à travers les étoiles. Le domaine stellaire entier sembla s'immobiliser. Ce puissant coup de poing fonça en avant sous le regard des dizaines de milliers de cultivateurs, de Maître Lu Fu, ainsi que de Maître Flamespark et Lie Yunzi!
+Des grondements tonitruants résonnèrent à travers les étoiles. Le domaine stellaire entier sembla s'immobiliser. Ce puissant coup de poing fonça en avant sous le regard des dizaines de milliers de cultivateurs, de Maître Lu Fu, ainsi que de Maître Yan Leizi et Lie Yunzi!
 
 Les divers sorts lancés par le démon ancien s'effondrèrent tous dans un cri misérable!
 

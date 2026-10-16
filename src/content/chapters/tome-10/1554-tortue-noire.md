@@ -6,37 +6,37 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1554 - Black Tortoise
 slug: tortue-noire
 ---
-« Maître Flamespark, les événements du passé ne sont pas ce que vous pensez... » Maître Zhong Xuan était empreint de remords et de tristesse envers son maître. En partant, il jeta un dernier regard à Maître Flamespark avec une expression complexe.
+« Maître Yan Leizi, les événements du passé ne sont pas ce que vous pensez... » Maître Zhong Xuan était empreint de remords et de tristesse envers son maître. En partant, il jeta un dernier regard à Maître Yan Leizi avec une expression complexe.
 
 Il n'y avait aucun vent parmi les étoiles, et même s'il y en avait, il ne serait que le fruit d'un sortilège. La tempête que Maître Long Pan avait engendrée avait brisé la lumière rouge et libéré tous les sceaux, de sorte que le Royaume aux Sept Couleurs apparut clairement devant Wang Lin.
 
 Alors que la lumière aux sept couleurs émanait de la faille, un rugissement de folie s'en échappa. C'était un cri bestial, imprégné de soif de sang et d'une intention meurtrière.
 
-En entendant ce rugissement, Wang Lin se calma. Il observa silencieusement la faille aux sept couleurs et, après un long moment, reporta son regard sur Maître Flamespark.
+En entendant ce rugissement, Wang Lin se calma. Il observa silencieusement la faille aux sept couleurs et, après un long moment, reporta son regard sur Maître Yan Leizi.
 
-Le regard de Maître Flamespark était toujours fixé là où Maître Zhang Xuan avait disparu. La haine qui brûlait dans ses yeux était puissante.
+Le regard de Maître Yan Leizi était toujours fixé là où Maître Zhang Xuan avait disparu. La haine qui brûlait dans ses yeux était puissante.
 
-Wang Lin ignorait tout de la vendetta opposant Maître Flamespark à Maître Zhong Xuan. Cependant, à voir comment Maître Flamespark déployait tous ses efforts pour lancer une attaque contre l'Alliance après s'être réfugié à Allheaven, il était évident que cette rancœur était aussi profonde que l'océan!
+Wang Lin ignorait tout de la vendetta opposant Maître Yan Leizi à Maître Zhong Xuan. Cependant, à voir comment Maître Yan Leizi déployait tous ses efforts pour lancer une attaque contre l'Alliance après s'être réfugié à Luotian, il était évident que cette rancœur était aussi profonde que l'océan!
 
 « Je ne peux pas vous aider dans cette affaire... » Wang Lin laissa échapper un soupir. Il connaissait le pouvoir de la haine; elle suffisait à rendre un homme fou.
 
-Maître Flamespark réfléchit en silence et, après un long moment, détourna les yeux. Puis, il joignit les mains et murmura: « Les affaires entre Junior et Maître Zhong Xuan sont privées, le Seigneur du Royaume Scellé n'a donc pas à s'en préoccuper. La situation globale est plus importante, Junior le comprend bien... Si, au terme de cette guerre, Junior meurt, alors cette affaire prendra fin, tout comme si c'était lui qui mourait... »
+Maître Yan Leizi réfléchit en silence et, après un long moment, détourna les yeux. Puis, il joignit les mains et murmura: « Les affaires entre Junior et Maître Zhong Xuan sont privées, le Seigneur du Royaume Scellé n'a donc pas à s'en préoccuper. La situation globale est plus importante, Junior le comprend bien... Si, au terme de cette guerre, Junior meurt, alors cette affaire prendra fin, tout comme si c'était lui qui mourait... »
 
-« Cependant, si à la fin nous sommes tous deux encore en vie, alors il sera temps pour Junior de se venger! » Maître Flamespark dissimula la haine dans son regard. Il avait enduré cela pendant d'innombrables années et ne craindrait pas d'attendre un peu plus longtemps.
+« Cependant, si à la fin nous sommes tous deux encore en vie, alors il sera temps pour Junior de se venger! » Maître Yan Leizi dissimula la haine dans son regard. Il avait enduré cela pendant d'innombrables années et ne craindrait pas d'attendre un peu plus longtemps.
 
 Il ne pourrait jamais oublier ce qui s'était passé autrefois. À l'origine, il était le meilleur ami de Maître Zhong Xuan. C'est aussi grâce à lui que lui et son partenaire de Dao avaient rejoint l'Alliance.
 
 Tous trois débattaient souvent du Dao, et il était si éclairé par la sagesse de Maître Zhong Xuan qu'il acceptait de lui obéir. Maître Zhong Xuan était également extrêmement courtois, et les deux étaient de grands amis. Au début, leur relation était limpide comme l'eau, mais avec le temps, elle s'était bonifiée comme un grand vin.
 
-Pourtant, tout cela avait basculé à cause d'un événement. Maître Flamespark se réveillait souvent de sa culture, le souvenir gravé dans son esprit tournant en boucle. Chaque fois, il serrait les poings et laissait échapper un rugissement de colère et d'humiliation.
+Pourtant, tout cela avait basculé à cause d'un événement. Maître Yan Leizi se réveillait souvent de sa culture, le souvenir gravé dans son esprit tournant en boucle. Chaque fois, il serrait les poings et laissait échapper un rugissement de colère et d'humiliation.
 
 Il ne voulait pas s'en remémorer le détail, mais ce souvenir était si profondément ancré qu'il était devenu une épine dans son cœur. Cette épine, enfouie au plus profond de lui, avait commencé à pourrir. Elle avait corrodé sa chair et son sang, devenant une douleur éternelle!
 
 Wang Lin soupira et secoua la tête. « Si vous parvenez à absorber le pouvoir du Dragon Noir de la Flamme Joss, ce sera pour vous une immense fortune. À présent, je vais pénétrer dans ce Royaume aux Sept Couleurs. Il est semé d'embûches, ne me suivez pas... »
 
-Maître Flamespark hocha la tête et fit ses adieux à Wang Lin avant de partir. Il paraissait quelque peu abattu, vieux et impuissant; une trace de solitude émanait de sa personne.
+Maître Yan Leizi hocha la tête et fit ses adieux à Wang Lin avant de partir. Il paraissait quelque peu abattu, vieux et impuissant; une trace de solitude émanait de sa personne.
 
-Ce n'est qu'une fois Maître Flamespark parti que Wang Lin détourna le regard. La haine entre Maître Flamespark et Maître Zhong Xuan impliquait manifestement des affaires privées. Wang Lin ne souhaitait pas spéculer, et il n'en avait nullement l'intention.
+Ce n'est qu'une fois Maître Yan Leizi parti que Wang Lin détourna le regard. La haine entre Maître Yan Leizi et Maître Zhong Xuan impliquait manifestement des affaires privées. Wang Lin ne souhaitait pas spéculer, et il n'en avait nullement l'intention.
 
 Bien que cette histoire fût enfouie dans les replis du temps, elle devait encore faire mal, telle une eau qui s'est écoulée entre vos doigts. Bien qu'elle ait disparu, la sensation de froid demeurait, étouffant la chaleur et se propageant à travers tout le corps...
 

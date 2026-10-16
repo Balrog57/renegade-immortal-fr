@@ -12,7 +12,7 @@ Cependant, oubliez-le; même si l'ancêtre du Clan de l'Hirondelle de Feu renais
 
 Quant au cultivateur du Clan de l'Hirondelle de Feu, il n'eut le temps de faire que la moitié d'un pas en arrière avant que la lumière dorée ne l'enveloppe. Il poussa un cri déchirant et son âme originelle s'effondra sans aucune résistance.
 
-Le grand oiseau de feu noir qu'il avait invoqué pour dévorer Maître Flamespark était imprégné de terreur. Ayant acquis une certaine intelligence, il commença à paniquer. Cependant, il fut lui aussi enveloppé par la lumière dorée et rayé de l'existence!
+Le grand oiseau de feu noir qu'il avait invoqué pour dévorer Maître Yan Leizi était imprégné de terreur. Ayant acquis une certaine intelligence, il commença à paniquer. Cependant, il fut lui aussi enveloppé par la lumière dorée et rayé de l'existence!
 
 Le cultivateur du Clan du Lou Céleste trembla. Il ne vit même pas la mort de son compagnon, car tout ce qui se trouvait devant lui fut remplacé par une lumière dorée. Il pouvait vaguement distinguer la silhouette floue de Wang Lin derrière cet éclat.
 
@@ -30,9 +30,9 @@ Aujourd'hui, il revoyait cette figure terrifiante. Sous l'emprise de cette peur 
 
 Avec un sourire tordu, il oublia de fuir. Sa peau fondit instantanément et son âme originelle s'effondra. Son existence disparut sur-le-champ!
 
-Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultivateurs du Royaume Extérieur était aussi simple que d'écraser des fourmis. Il se retourna et regarda Maître Flamespark, qui était à la fois stupéfait et exalté.
+Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultivateurs du Royaume Extérieur était aussi simple que d'écraser des fourmis. Il se retourna et regarda Maître Yan Leizi, qui était à la fois stupéfait et exalté.
 
-« Vice-commandant de la ligne de front du Nord-Ouest d'Allheaven, cinquante-troisième rang du Seigneur du Royaume Scellé, Maître Flamespark salue le Seigneur du Royaume Scellé! » Maître Flamespark, fébrile, joignit les mains et s'inclina avec respect.
+« Vice-commandant de la ligne de front du Nord-Ouest de Luotian, cinquante-troisième rang du Seigneur du Royaume Scellé, Maître Yan Leizi salue le Seigneur du Royaume Scellé! » Maître Yan Leizi, fébrile, joignit les mains et s'inclina avec respect.
 
 « Seigneur du Royaume Scellé, le Royaume Intérieur a succombé... Les Royaumes aux Sept Couleurs ont été laissés ici il y a des dizaines de milliers d'années par le Souverain. Après sa disparition, Maître Hong Shan et les autres ont mobilisé toute la force du Royaume Intérieur pour les retrouver. Au final, en incluant celui qui se trouvait au Siège de l'Alliance, nous n'en avons trouvé que cinq au total!
 
@@ -56,15 +56,15 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Nous sommes maintenant dans la neuvième année suivant la troisième bataille. Selon les calculs de Maître Hong Shan, il ne faudra pas longtemps avant que le Royaume Extérieur ne brise la lumière antique. Ils entreront alors pour unir leurs forces aux deux Royaumes aux Sept Couleurs restants. Le Royaume Intérieur est en péril! »
 
-Maître Flamespark expliqua rapidement à Wang Lin tout ce qui s'était passé. Il avait été gravement blessé lors de la troisième bataille et son niveau de culture avait chuté. Autrement, il n'aurait pas été traqué par deux cultivateurs du Nirvana Shatter.
+Maître Yan Leizi expliqua rapidement à Wang Lin tout ce qui s'était passé. Il avait été gravement blessé lors de la troisième bataille et son niveau de culture avait chuté. Autrement, il n'aurait pas été traqué par deux cultivateurs du Nirvana Shatter.
 
 Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et parut extrêmement sinistre. Ses blessures se rouvrirent et il semblait toucher à sa fin.
 
-« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Allheaven. Celui de la Mer des Nuages a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui du Vide Brillant, tous se trouvaient à la Rivière des Invocations!
+« Seigneur du Royaume Scellé!! Le Royaume Intérieur est en danger. Il n'y avait pas de Royaume aux Sept Couleurs dans Luotian. Celui de la Mer des Nuages a été détruit par vous. Après votre disparition, nous avons découvert les cinq autres sites. Hormis celui du Vide Brillant, tous se trouvaient à la Rivière des Invocations!
 
 « En conséquence, la Rivière des Invocations est tombée dès le début de la seconde bataille... À ce jour, nous ne pouvons toujours pas reprendre ce territoire, devenu une province du Royaume Extérieur. Ils y oppriment sans cesse les cultivateurs locaux.
 
-« Lors de la première bataille, la Mer des Nuages faillit s'effondrer, mais elle est restée sous notre contrôle. Allheaven est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière des Invocations. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
+« Lors de la première bataille, la Mer des Nuages faillit s'effondrer, mais elle est restée sous notre contrôle. Luotian est le secteur le plus stable et n'a pas subi de grands bouleversements. Cependant, le Vide Brillant subit le même sort que la Rivière des Invocations. En raison du Royaume aux Sept Couleurs situé au Siège de l'Alliance, ce système stellaire est contrôlé par les deux camps!
 
 « Maître Hong Shan a tenté de détruire les Royaumes aux Sept Couleurs restants par crainte de devoir affronter deux fronts lors de la quatrième bataille. Il a essayé maintes fois, mais le Royaume Intérieur n'a plus la puissance nécessaire pour les anéantir... Tout le monde est en culture fermée... »
 
@@ -72,30 +72,30 @@ Wang Lin médita silencieusement, une lueur de froideur dans les yeux. Il ne s'�
 
 « La Rivière des Invocations est tombée... le Siège de l'Alliance est occupé par les cultivateurs du Royaume Extérieur... » Une intention meurtrière traversa le regard de Wang Lin.
 
-« Pourquoi es-tu ici? » L'intention meurtrière de Wang Lin fit fuir inconsciemment la lumière dorée. Lorsqu'elle toucha Maître Flamespark, il se sentit comme une fourmi face à un dieu; Wang Lin était pour lui comme les cieux eux-mêmes. Il avait depuis longtemps pressenti que Wang Lin était devenu encore plus puissant qu'auparavant.
+« Pourquoi es-tu ici? » L'intention meurtrière de Wang Lin fit fuir inconsciemment la lumière dorée. Lorsqu'elle toucha Maître Yan Leizi, il se sentit comme une fourmi face à un dieu; Wang Lin était pour lui comme les cieux eux-mêmes. Il avait depuis longtemps pressenti que Wang Lin était devenu encore plus puissant qu'auparavant.
 
 « Le Seigneur du Royaume Scellé a dit que vous viendriez... Je... je ne croyais pas que vous étiez mort, et j'ai deviné que vous surgiriez ici dès votre réapparition. Alors, je suis venu ici de nombreuses fois au fil des ans...
 
-« De plus, j'ai reçu l'ordre de Maître Hong Shan d'observer ce lieu. Si quoi que ce soit arrive au Royaume aux Sept Couleurs, je dois le signaler. » Maître Flamespark se montrait extrêmement respectueux et n'osait croiser le regard de Wang Lin. Cette lumière dorée lui inspirait une crainte révérencielle.
+« De plus, j'ai reçu l'ordre de Maître Hong Shan d'observer ce lieu. Si quoi que ce soit arrive au Royaume aux Sept Couleurs, je dois le signaler. » Maître Yan Leizi se montrait extrêmement respectueux et n'osait croiser le regard de Wang Lin. Cette lumière dorée lui inspirait une crainte révérencielle.
 
-Wang Lin leva la main droite et fit un geste vers Maître Flamespark tout en réfléchissant. Un rayon de lumière dorée s'élança vers Maître Flamespark, faisant trembler son corps. Les veines de son visage se gonflèrent et une sueur abondante perla sur sa peau, mais ses yeux devinrent plus brillants que jamais.
+Wang Lin leva la main droite et fit un geste vers Maître Yan Leizi tout en réfléchissant. Un rayon de lumière dorée s'élança vers Maître Yan Leizi, faisant trembler son corps. Les veines de son visage se gonflèrent et une sueur abondante perla sur sa peau, mais ses yeux devinrent plus brillants que jamais.
 
 Soudain, il poussa un rugissement de douleur. La sueur qui émanait de son corps était sombre et malodorante, mais son aura dispersée commença à se condenser; elle montrait même des signes d'une percée imminente!
 
-En un instant, les yeux de Maître Flamespark s'illuminèrent et ses cheveux blancs devinrent soudainement noirs. Son apparence passa de celle d'un vieillard à celle d'un homme d'âge mûr. Ses yeux étaient remplis d'incrédulité alors qu'il contemplait son propre corps, et son excitation grandit encore.
+En un instant, les yeux de Maître Yan Leizi s'illuminèrent et ses cheveux blancs devinrent soudainement noirs. Son apparence passa de celle d'un vieillard à celle d'un homme d'âge mûr. Ses yeux étaient remplis d'incrédulité alors qu'il contemplait son propre corps, et son excitation grandit encore.
 
-« Ceci... ceci est... Merci... Merci, Seigneur du Royaume Scellé!! » Une ferveur brûlante brillait dans les yeux de Maître Flamespark tandis qu'il s'inclinait profondément devant Wang Lin. Il sentait clairement que la lumière dorée avait provoqué la renaissance de son corps. Cette même lumière qui l'avait oppressé avait tout changé!
+« Ceci... ceci est... Merci... Merci, Seigneur du Royaume Scellé!! » Une ferveur brûlante brillait dans les yeux de Maître Yan Leizi tandis qu'il s'inclinait profondément devant Wang Lin. Il sentait clairement que la lumière dorée avait provoqué la renaissance de son corps. Cette même lumière qui l'avait oppressé avait tout changé!
 
 Il ignorait la nature de cette clarté dorée, mais il devinait qu'elle émanait d'une source prodigieuse!
 
 « Suis-moi pour détruire ce royaume! » Wang Lin s'avança vers l'ancien Siège de l'Alliance, désormais occupé par les cultivateurs du Royaume Extérieur.
 
-Cette simple phrase révélait la confiance et la détermination inébranlables de Wang Lin. Cela insuffla à Maître Flamespark un sentiment d'assurance inexplicable. Tant que Wang Lin marchait, peu importait la dangerosité du Royaume aux Sept Couleurs, l'ennemi ne pourrait en aucun cas l'arrêter!
+Cette simple phrase révélait la confiance et la détermination inébranlables de Wang Lin. Cela insuffla à Maître Yan Leizi un sentiment d'assurance inexplicable. Tant que Wang Lin marchait, peu importait la dangerosité du Royaume aux Sept Couleurs, l'ennemi ne pourrait en aucun cas l'arrêter!
 
-Une intention meurtrière brilla dans les yeux de Maître Flamespark et il hocha la tête. Refoulant son excitation, il suivit Wang Lin. En observant la silhouette légèrement dorée de ce dernier, il eut la sensation que Wang Lin n'appartenait plus à ce monde.
+Une intention meurtrière brilla dans les yeux de Maître Yan Leizi et il hocha la tête. Refoulant son excitation, il suivit Wang Lin. En observant la silhouette légèrement dorée de ce dernier, il eut la sensation que Wang Lin n'appartenait plus à ce monde.
 
 Cette lumière dorée lui inspirait une telle crainte qu'il ressentait presque le besoin de l'adorer.
 
-Maître Flamespark suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, l'Éminent Maître Tian Zhao, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un cultivateur de la troisième étape au début du Vide Spirituel! Il reste une grande quantité de restrictions et de trésors dans l'Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
+Maître Yan Leizi suivit Wang Lin et dit respectueusement: « Seigneur du Royaume Scellé, le vice-doyen du Conseil Souverain, l'Éminent Maître Tian Zhao, se trouve à l'intérieur du Royaume aux Sept Couleurs du Siège de l'Alliance. C'est également un cultivateur de la troisième étape au début du Vide Spirituel! Il reste une grande quantité de restrictions et de trésors dans l'Alliance; même Maître Zhong Xuan est toujours en vie et est devenu un chien du Royaume Extérieur! »
 
 « Aucun problème. » La voix de Wang Lin restait calme alors qu'il se rapprochait inexorablement du Siège de l'Alliance de Culture.

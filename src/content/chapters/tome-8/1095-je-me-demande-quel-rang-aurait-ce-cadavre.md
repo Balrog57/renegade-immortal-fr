@@ -12,11 +12,11 @@ Les yeux de Wang Lin s'illuminèrent tandis que sa main droite se tendait pour s
 
 « Puisque vous avez déjà pris les Parchemins de Bataille, puis-je partir? » Lie Yunzi avait dû remettre personnellement les trésors les plus précieux de la famille Zhan. C'était une épreuve presque insupportable pour lui, mais il savait aussi que même s'il s'y opposait, Wang Lin finirait probablement par les obtenir. Il n'avait d'autre choix que de céder.
 
-Si quelqu'un d'autre avait été l'Empereur Divin, même si Lie Yunzi l'avait offensé, il n'aurait été, au plus, qu'emprisonné, car personne n'oserait le tuer. Après tout, il venait d'Allheaven! Allheaven était une entité extrêmement mystérieuse pour l'Alliance, et cette part d'inconnu aurait été un atout pour Lie Yunzi.
+Si quelqu'un d'autre avait été l'Empereur Divin, même si Lie Yunzi l'avait offensé, il n'aurait été, au plus, qu'emprisonné, car personne n'oserait le tuer. Après tout, il venait de Luotian! Luotian était une entité extrêmement mystérieuse pour l'Alliance, et cette part d'inconnu aurait été un atout pour Lie Yunzi.
 
-Très peu de membres de l'Alliance comprenaient réellement Allheaven, tout comme Allheaven ne comprenait pas l'Alliance.
+Très peu de membres de l'Alliance comprenaient réellement Luotian, tout comme Luotian ne comprenait pas l'Alliance.
 
-Cependant, Wang Lin connaissait très bien Allheaven, ayant été autrefois le Céleste du Tonnerre. Allheaven n'avait donc rien de mystérieux pour lui.
+Cependant, Wang Lin connaissait très bien Luotian, ayant été autrefois le Céleste du Tonnerre. Luotian n'avait donc rien de mystérieux pour lui.
 
 Mais cela restait secondaire. Le facteur crucial était la perception que Lie Yunzi avait de Wang Lin. Il savait que cet homme était impitoyable, audacieux et décisif. Si ce dernier avait voulu le tuer, il ne l'aurait pas emprisonné, car une prison offrirait toujours une chance de contre-attaque. Wang Lin aurait choisi l'assaut décisif, et Lie Yunzi n'aurait eu aucune chance de survie.
 
@@ -26,9 +26,9 @@ Une fois les parchemins rangés, le regard de Wang Lin s'anima et il dit d'un to
 
 Le cœur de Lie Yunzi sombra tandis qu'il fixait Wang Lin en serrant les dents. « Vous avez déjà pris les Parchemins de Bataille et j'ai déjà payé le prix! Que voulez-vous de plus?! »
 
-L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Allheaven et les Quatre Sectes Divins.
+L'expression de Wang Lin demeura calme lorsqu'il reprit lentement: « Vous avez prétendu que j'avais dérobé un trésor important de votre famille Zhan. Vous devez m'en fournir une explication! » Wang Lin le dévisagea. Il aurait voulu tuer cet homme, mais cela ne ferait qu'aggraver les tensions entre Luotian et les Quatre Sectes Divins.
 
-Le tuer n'entrait pas dans le plan de Wang Lin pour traiter avec Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divins et Allheaven se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
+Le tuer n'entrait pas dans le plan de Wang Lin pour traiter avec Tuo Sen. Plus important encore, si les relations entre les Quatre Sectes Divins et Luotian se détérioraient, ce sont la Secte des Cadavres et l'Alliance qui en profiteraient.
 
 Qing Shui se trouvait très probablement au quartier général de l'Alliance, sans compter la bienveillance de l'ancien Empereur Divin. Tous ces paramètres empêchaient Wang Lin de tuer Lie Yunzi pour le moment.
 
@@ -48,25 +48,25 @@ Wang Lin agita ses manches et les six Lou Fu furent aspirés dans son sac de ran
 
 « Je m'en vais! » Lie Yunzi se retourna pour partir. Il ne pouvait plus supporter de rester au sein de la Secte Divin de l'Oiseau Vermillon.
 
-« Ne partez pas si vite. J'ai une chose que je dois demander à Lie Yunzi de transmettre au Senior Maître Flamespark! » Wang Lin agita la main droite et un morceau de jade vola vers Lie Yunzi.
+« Ne partez pas si vite. J'ai une chose que je dois demander à Lie Yunzi de transmettre au Senior Maître Yan Leizi! » Wang Lin agita la main droite et un morceau de jade vola vers Lie Yunzi.
 
 Lie Yunzi fronça les sourcils et son Sens Divin scruta le jade. Soudain, son expression changea radicalement; il leva les yeux, le regard brillant d'une intensité soudaine.
 
 « Cette affaire... »
 
-Wang Lin sourit sans rien ajouter. « Si le Senior Maître Flamespark est intéressé, il pourra venir me trouver à la Secte Divin de l'Oiseau Vermillon! »
+Wang Lin sourit sans rien ajouter. « Si le Senior Maître Yan Leizi est intéressé, il pourra venir me trouver à la Secte Divin de l'Oiseau Vermillon! »
 
 Lie Yunzi rangea soigneusement le jade. Puis, il regarda Wang Lin. Il avait l'impression de ne plus pouvoir percer l'âme de l'homme devant lui. Il poussa un soupir et partit précipitamment.
 
 « Les biens de ma famille Zhan ne doivent pas tomber entre les mains d'étrangers... Wang Lin, un jour, je les reprendrai. Si je ne te tue pas, alors je ne suis pas Lie Yunzi! » Lie Yunzi quitta la planète de culture et s'élança dans les airs à toute allure.
 
-« Cependant, ce jade laissé par Wang Lin est une affaire qui pourrait ébranler le ciel. Je dois l'apporter au Maître Flamespark au plus vite! Si cela est vrai, c'est absolument terrifiant! » Lie Yunzi était déterminé. Chaque instant passé sur place lui était une humiliation suprême.
+« Cependant, ce jade laissé par Wang Lin est une affaire qui pourrait ébranler le ciel. Je dois l'apporter au Maître Yan Leizi au plus vite! Si cela est vrai, c'est absolument terrifiant! » Lie Yunzi était déterminé. Chaque instant passé sur place lui était une humiliation suprême.
 
 Sa main droite s'avança pour extraire un objet d'une fissure devant lui. C'était une pierre noire qu'il broya instantanément en poudre. La poudre ne se dispersa pas, mais se condensa rapidement autour de lui, formant une traînée qui s'enroula autour de Lie Yunzi.
 
 En un instant, la vitesse de Lie Yunzi fut décuplée et il disparut sans laisser de trace.
 
-Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divins à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide d'Allheaven.
+Quelques jours plus tard, après avoir quitté la région Est contrôlée par les Quatre Sectes Divins à sa vitesse maximale, Lie Yunzi se précipitait vers la région Nord sous l'égide de Luotian.
 
 Le deuxième jour de son entrée dans la région Nord, alors qu'il fonçait tête baissée, un rayon de lumière jaillit vers lui. Ce trait lumineux était d'une rapidité fulgurante et portait une puissance capable de fendre la terre.
 
@@ -84,7 +84,7 @@ La sphère explosa soudainement, l'onde de choc venant heurter le rayon lumineux
 
 Cependant, une traînée rouge commença à se propager de sa poitrine à travers tout son corps. Un sourire qui n'en était pas un étira les lèvres de Lie Yunzi, mais ses yeux étaient emplis de terreur.
 
-« Du poison! C'est le poison de la Secte des Cadavres! » Allheaven avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte des Cadavres. Lie Yunzi étant l'un des cultivateurs les plus puissants d'Allheaven, il reconnut instantanément la signature de ce poison!
+« Du poison! C'est le poison de la Secte des Cadavres! » Luotian avait recueilli de nombreuses informations sur les méthodes d'attaque de la Secte des Cadavres. Lie Yunzi étant l'un des cultivateurs les plus puissants de Luotian, il reconnut instantanément la signature de ce poison!
 
 Pris d'une terreur pure, Lie Yunzi s'enfuit comme un possédé.
 

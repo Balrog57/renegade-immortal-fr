@@ -16,7 +16,7 @@ L'Empereur Divin Azure Dragon réfléchit silencieusement un instant. La froideu
 
 L'Empereur Divin Azure Dragon examina attentivement la pierre. Il poussa un soupir et ne dit plus un mot. Il se détourna ensuite pour partir, suivi par les sept anciens. L'un des anciens de la Secte Divine Vermillion Bird se tourna vers Wang Lin; il ouvrit la bouche comme s'il voulait dire quelque chose, mais le regard de l'Empereur Divin Azure Dragon le figea, contraignant le vieil homme à soupirer et à se taire.
 
-Wang Lin partit avec l'ancien Empereur Divin, dont le corps s'était transformé en pierre. Il quitta les Quatre Sectes Divines et retrouva Big Head et sa compagnie qui l'attendaient.
+Wang Lin partit avec l'ancien Empereur Divin, dont le corps s'était transformé en pierre. Il quitta les Quatre Sectes Divines et retrouva Da Tou et sa compagnie qui l'attendaient.
 
 Les Quatre Sectes Divines n'auraient plus aucun lien avec lui, mais l'expression de l'ancien de la Secte Divine Vermillion Bird avait intrigué Wang Lin. Il sentait vaguement qu'il y avait quelque chose qu'il ignorait.
 
@@ -28,7 +28,7 @@ Après avoir éloigné tout le monde, l'Empereur Divin Azure Dragon s'assit dans
 
 Cependant, son regard ne se portait pas sur les Trésors Sacrés, mais vers l'extérieur de la salle principale. Après un long moment, il soupira et détourna les yeux. Il murmura quelques mots que lui seul pouvait entendre.
 
-Après avoir envoyé Big Head et sa compagnie dans le nouveau Royaume Céleste de la Pluie, il n'avait plus aucune inquiétude. Il flotta calmement parmi les étoiles, ses yeux brillant comme des astres. Une aura puissante enveloppa Wang Lin, qui fut totalement imprégné d'une intention de combat.
+Après avoir envoyé Da Tou et sa compagnie dans le nouveau Royaume Céleste de la Pluie, il n'avait plus aucune inquiétude. Il flotta calmement parmi les étoiles, ses yeux brillant comme des astres. Une aura puissante enveloppa Wang Lin, qui fut totalement imprégné d'une intention de combat.
 
 « Tuo Sen, cela fait plus de 1 000 ans. Nous devrons, en fin de compte, nous affronter! » L'aura de Wang Lin était monstrueuse alors qu'il fendait les étoiles. Utilisant la Déviation Spatiale, il se dirigea rapidement vers la planète familière Suzaku!
 

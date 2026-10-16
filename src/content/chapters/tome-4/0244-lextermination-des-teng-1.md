@@ -116,7 +116,7 @@ En ce jour, le sang versé à la Cité de la Famille Teng suffirait à recouvrir
 
 Ce fut également le jour où tout le pays de Zhao entendit le nom de « Wang Lin », le cultivateur aux cheveux blancs qui glaça les cœurs de tous.
 
-Simultanément, le nom de Wang Lin remplaça celui de Punnan Zi comme le premier cultivateur de Zhao, marquant la chute de l'ancienne génération.
+Simultanément, le nom de Wang Lin remplaça celui de Pu Nanzi comme le premier cultivateur de Zhao, marquant la chute de l'ancienne génération.
 
 Tôt le matin, à cinq mille kilomètres de la Cité de la Famille Teng, Wang Lin volait sur sa bête-moustique. Bien que les cadavres derrière lui commençaient à pourrir, sous l'effet de sa technique, les têtes demeuraient en parfait état.
 

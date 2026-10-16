@@ -39,9 +39,9 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Comment ma vie pourrait-elle être entre les mains d'un autre?! »
 
-« Pas étonnant que tant de pays de culture aient trahi Suzaku dès l'apparition du Clan des Immortels Déchus. Pas étonnant que Zhuque Zi ait voulu anéantir les pays de culture de rang 5 susceptibles d'atteindre le rang 6. Voilà donc la raison de tout cela. »
+« Pas étonnant que tant de pays de culture aient trahi Suzaku dès l'apparition du Clan des Immortels Délaissés. Pas étonnant que Zhuque Zi ait voulu anéantir les pays de culture de rang 5 susceptibles d'atteindre le rang 6. Voilà donc la raison de tout cela. »
 
-« Si Zhuque Zi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan des Immortels Déchus risquerait d'être anéanti. »
+« Si Zhuque Zi pouvait encore contrôler le Cristal de la Planète de Culture, la situation ne serait pas telle qu'elle est aujourd'hui. Avec une attaque concertée de tous les cultivateurs de la planète, le Clan des Immortels Délaissés risquerait d'être anéanti. »
 
 « S'il en avait eu le contrôle, Zhuque Zi aurait pu s'emparer de l'Étendard de l'Âme au Milliard d'Âmes du senior Du Tian bien plus tôt, plutôt que d'attendre jusqu'à maintenant. »
 
@@ -63,25 +63,25 @@ Wang Lin resta immobile. Après un long moment, son regard devint glacial.
 
 « Je dois retourner à Chu pour ramener Zhou Ru chez elle. » Les yeux de Wang Lin s'illuminèrent alors qu'il se détournait pour s'élancer vers Chu.
 
-En chemin, le ciel était presque entièrement occulté par des nuages noirs. Ces nuages étaient peuplés de membres du Clan des Immortels Déchus qui les utilisaient pour fondre sur le continent Suzaku.
+En chemin, le ciel était presque entièrement occulté par des nuages noirs. Ces nuages étaient peuplés de membres du Clan des Immortels Délaissés qui les utilisaient pour fondre sur le continent Suzaku.
 
-Plus Wang Lin en voyait, plus son humeur s'assombrissait. Bien qu'il détestât Zhuque Zi, il restait un cultivateur; en chemin, il abattit d'innombrables membres du Clan des Immortels Déchus. Hélas, ils étaient si nombreux qu'il dut renoncer et se fondre dans la masse pour continuer sa route vers Chu.
+Plus Wang Lin en voyait, plus son humeur s'assombrissait. Bien qu'il détestât Zhuque Zi, il restait un cultivateur; en chemin, il abattit d'innombrables membres du Clan des Immortels Délaissés. Hélas, ils étaient si nombreux qu'il dut renoncer et se fondre dans la masse pour continuer sa route vers Chu.
 
-Presque tous les pays de culture de rang 3 ou moins avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Déchus.
+Presque tous les pays de culture de rang 3 ou moins avaient été détruits ou étaient tombés sous le joug du Clan des Immortels Délaissés.
 
 Tous les membres du clan s'étaient rassemblés sur le continent Suzaku lorsque la seconde bataille avec le pays de Suzaku éclata!
 
-Durant leur progression vers le continent, le Clan des Immortels Déchus avait attaqué tous ceux qui croisaient sa route. Un grand nombre de pays de culture de rang 4 avaient péri dans leur sillage.
+Durant leur progression vers le continent, le Clan des Immortels Délaissés avait attaqué tous ceux qui croisaient sa route. Un grand nombre de pays de culture de rang 4 avaient péri dans leur sillage.
 
 La planète entière était baignée de sang.
 
 De moins en moins de cultivateurs apparaissaient dans le ciel de la planète Suzaku, et l'obscurité des nuages noirs semblait désormais omniprésente.
 
-L'attaque que le Clan des Immortels Déchus préparait depuis des dizaines de milliers d'années venait enfin de se déchaîner avec toute sa fureur sur la planète Suzaku.
+L'attaque que le Clan des Immortels Délaissés préparait depuis des dizaines de milliers d'années venait enfin de se déchaîner avec toute sa fureur sur la planète Suzaku.
 
 Le pays de Suzaku entama immédiatement une contre-attaque acharnée dès le début du second affrontement. Qian Feng fut nommé commandant de cette bataille, et tous les cultivateurs devaient se soumettre à ses ordres.
 
-De vastes contingents de cultivateurs furent déployés en divers points pour combattre le Clan des Immortels Déchus.
+De vastes contingents de cultivateurs furent déployés en divers points pour combattre le Clan des Immortels Délaissés.
 
 Chaque pays de culture de rang 5 devint un champ de bataille. La planète entière tremblait, sur le point de s'effondrer sous le poids de cette guerre.
 
@@ -107,7 +107,7 @@ Le frère cadet du Suzaku de cette génération, celui qui avait perdu la lutte 
 
 Il surgit soudainement sur le même champ de bataille que Zhuque Zi et lui lança une attaque surprise, blessant gravement ce dernier.
 
-L'identité d'Yunque Zi était celle du second ancêtre du Clan des Immortels Déchus!
+L'identité d'Yunque Zi était celle du second ancêtre du Clan des Immortels Délaissés!
 
 Wang Lin apprit cela alors qu'il regagnait Chu. Le choc qui le traversa fut indescriptible. Il avait le pressentiment qu'Yunque Zi viendrait à sa rencontre.
 
@@ -117,7 +117,7 @@ Au moment où il pénétra dans le réseau, Wang Lin s'arrêta et se retourna po
 
 « Frère Wang, cela fait bien des années que nous ne nous sommes vus. Vous souvenez-vous encore de moi? » L'homme corpulent s'arrêta à 33 mètres de lui et retira son chapeau.
 
-Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Secte de Jade Céleste était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Déchus avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
+Du côté est du continent Suzaku, l'expression de l'ancêtre Ascendant de la Secte de Jade Céleste était exécrable. Plus tôt, il avait été frappé par l'onde de choc de l'Esprit Ancestral, subissant des blessures qu'il avait dû réprimer. Puis, la bataille contre le Clan des Immortels Délaissés avait éclaté, ne lui laissant aucun répit avant de retourner au combat.
 
 Lors de la bataille d'il y a trois jours, le cinquième ancêtre était apparu une fois de plus. Durant leur affrontement, ses blessures s'étaient rouvertes, le contraignant à la fuite. Il se dirigeait vers la Secte de Jade Céleste, ayant décidé qu'il n'aiderait pas Zhuque Zi tant que ses blessures ne seraient pas guéries.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 725 - The First Person to Pledge
 slug: la-première-personne-a-preter-allegeance
 ---
-Aux yeux de l'homme aux cheveux noirs, la silhouette de Wang Lin paraissait infiniment immense. Il était même convaincu que personne dans le Système Stellaire d'Allheaven ne pourrait rester indemne sous un tel regard, pas même le chef du Temple Céleste du Tonnerre!
+Aux yeux de l'homme aux cheveux noirs, la silhouette de Wang Lin paraissait infiniment immense. Il était même convaincu que personne dans le Système Stellaire de Luotian ne pourrait rester indemne sous un tel regard, pas même le chef du Temple Céleste du Tonnerre!
 
 En particulier, le mépris qui émanait de ces yeux donnait l'impression que le monde entier n'était qu'une simple fourmi. Ce sentiment fit trembler le corps de l'homme aux cheveux noirs. Compte tenu de sa fierté, il n'avait jamais ressenti un tel respect envers quiconque!
 
@@ -16,7 +16,7 @@ Lorsque l'écart de puissance n'est pas trop grand, on est enclin à la résista
 
 Les mortels ont une vision des rêves, les cultivateurs ont une vision du Dao.
 
-Cependant, cette Vision du Dao n'était qu'une légende. L'homme aux cheveux noirs ne connaissait que des rumeurs selon lesquelles une personne était apparue dans le Système Stellaire d'Allheaven il y a d'innombrables années. Cette personne, par sa seule force, n'avait utilisé qu'un seul sort pour vaincre tous les cultivateurs de la deuxième étape du Système Stellaire d'Allheaven!
+Cependant, cette Vision du Dao n'était qu'une légende. L'homme aux cheveux noirs ne connaissait que des rumeurs selon lesquelles une personne était apparue dans le Système Stellaire de Luotian il y a d'innombrables années. Cette personne, par sa seule force, n'avait utilisé qu'un seul sort pour vaincre tous les cultivateurs de la deuxième étape du Système Stellaire de Luotian!
 
 Même parmi ces cultivateurs de la deuxième étape, à l'exception d'une poignée d'individus, la plupart n'avaient même pas eu le temps d'utiliser un seul sort ou trésor magique avant de succomber!
 
@@ -36,7 +36,7 @@ Avant qu'il ne puisse trop réfléchir, Wang Lin ouvrit les yeux une fois de plu
 
 « Est-ce que cette sensation de tout à l'heure pourrait être la troisième étape... » Wang Lin réfléchit silencieusement. Cette sensation était quelque chose qui ne pouvait être obtenu que par le hasard et non par la volonté. Cependant, son niveau de culture était trop bas. C'était un ressenti qu'il pouvait garder au fond de son cœur, mais qu'il ne pouvait pas encore pleinement comprendre.
 
-Les scènes réalistes du rêve irréel lui avaient ouvert la porte vers la troisième étape. Si quelqu'un dans le Système Stellaire d'Allheaven ou de l'Alliance l'apprenait, ils deviendraient tous fous pour obtenir cette perle!
+Les scènes réalistes du rêve irréel lui avaient ouvert la porte vers la troisième étape. Si quelqu'un dans le Système Stellaire de Luotian ou de l'Alliance l'apprenait, ils deviendraient tous fous pour obtenir cette perle!
 
 Le but ultime de personnes comme l'Omniscient était la troisième étape. Ils étaient prêts à tout pour elle! Pour eux, la troisième étape demeurait insaisissable. Ils continuaient d'avancer dans l'obscurité, cherchant amèrement.
 
@@ -48,7 +48,7 @@ Après avoir entrevu le Dao de la troisième étape, les futurs accomplissements
 
 Si un étranger avait vu cela, il en aurait été extrêmement stupéfait. Il faut dire que Shengong Hu était d'une fierté extrême et d'une grande cruauté. Même parmi les messagers du Temple Céleste du Tonnerre, c'était une personne difficile à traiter, et la plupart des familles de culture n'oseraient pas le provoquer.
 
-Plus important encore, le talent de cet homme était prodigieux. Le seigneur du Temple Céleste du Tonnerre avait lui-même déclaré que le talent de Shengong Hu pouvait être considéré comme faisant partie des trente meilleurs du Système Stellaire d'Allheaven.
+Plus important encore, le talent de cet homme était prodigieux. Le seigneur du Temple Céleste du Tonnerre avait lui-même déclaré que le talent de Shengong Hu pouvait être considéré comme faisant partie des trente meilleurs du Système Stellaire de Luotian.
 
 Cette personne n'avait cultivé que depuis 1 000 ans. En seulement mille ans, il était parvenu au stade du Yang Corporel, et ce, au sommet de celui-ci. Un tel talent inspirait aux gens une crainte encore plus grande que sa cruauté.
 
@@ -98,7 +98,7 @@ Voyant Wang Lin secouer la tête, Shengong Hu s'exclama immédiatement: « Aîn�
 
 Tout en parlant, sa main traça un sceau avant de pointer son front. Une lumière noire contenant son domaine et son âme Dao s'échappa de son crâne.
 
-Dans le Système Stellaire d'Allheaven, une personne qui prête allégeance peut choisir ce qu'elle abandonne. L'âme Dao est la chose la plus précieuse que l'on puisse offrir.
+Dans le Système Stellaire de Luotian, une personne qui prête allégeance peut choisir ce qu'elle abandonne. L'âme Dao est la chose la plus précieuse que l'on puisse offrir.
 
 Une fois que l'âme Dao est contrôlée par autrui, bien que cela ne soit pas synonyme de mort, le cœur Dao peut en être affecté. Les conséquences sont d'une portée bien plus durable.
 

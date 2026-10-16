@@ -14,7 +14,7 @@ Ils aspiraient à obtenir l'Arbre Tout-Ciel, ce trésor personnellement affiné 
 
 Même Lie Yunzi et son groupe étaient ébranlés, dissimulant à peine la lueur de convoitise dans leurs yeux.
 
-Seul le Maître Flamespark ne semblait guère affecté, car il possédait déjà un trésor raffiné à partir du Royaume Céleste du Tonnerre. Cependant, celui-ci avait été affiné par les mains mêmes du Maître Lu Fu, ce qui lui conférait une dimension symbolique radicalement différente.
+Seul le Maître Yan Leizi ne semblait guère affecté, car il possédait déjà un trésor raffiné à partir du Royaume Céleste du Tonnerre. Cependant, celui-ci avait été affiné par les mains mêmes du Maître Lu Fu, ce qui lui conférait une dimension symbolique radicalement différente.
 
 Dans cette immobilité pesante, la voix du Maître Lu Fu résonna lentement.
 
@@ -22,17 +22,17 @@ Le regard de Wang Lin balaya l'Arbre Tout-Ciel, et ses pupilles se rétractèren
 
 Un héritage pour ces dizaines de milliers de cultivateurs!
 
-Ces individus provenaient des diverses lignées d'Allheaven; presque tous étaient présents. Le rassemblement de leur sang équivalait à l'essence même d'Allheaven.
+Ces individus provenaient des diverses lignées de Luotian; presque tous étaient présents. Le rassemblement de leur sang équivalait à l'essence même de Luotian.
 
-Tant qu'un être était un cultivateur d'Allheaven, il pouvait contrôler ce trésor. Un tel héritage sanguin, d'une portée aussi vaste, était extrêmement rare!
+Tant qu'un être était un cultivateur de Luotian, il pouvait contrôler ce trésor. Un tel héritage sanguin, d'une portée aussi vaste, était extrêmement rare!
 
-La racine de l'Arbre Tout-Ciel était constituée par la lumière stellaire d'Allheaven. Elle avait également été affinée par le Maître Lu Fu, court-circuitant ainsi le besoin de temps pour sa maturation.
+La racine de l'Arbre Tout-Ciel était constituée par la lumière stellaire de Luotian. Elle avait également été affinée par le Maître Lu Fu, court-circuitant ainsi le besoin de temps pour sa maturation.
 
 Ce trésor aurait dû être considéré comme une création naissante nécessitant du temps pour atteindre la perfection. Cependant, le Maître Lu Fu, doté d'une grande sagacité, avait utilisé la poussière éternelle accumulée durant des éons, conférant ainsi au trésor une aura d'antiquité!
 
-Plus stupéfiant encore était l'intention de combat imprégnée dans l'objet. Il s'agissait de l'intention de bataille unifiée que tous les cultivateurs d'Allheaven voulaient porter contre le Royaume Extérieur. Ce trésor ne présentait aucune faille! Il était un symbole!
+Plus stupéfiant encore était l'intention de combat imprégnée dans l'objet. Il s'agissait de l'intention de bataille unifiée que tous les cultivateurs de Luotian voulaient porter contre le Royaume Extérieur. Ce trésor ne présentait aucune faille! Il était un symbole!
 
-Si Wang Lin détruisait ce trésor, il briserait le momentum même qu'Allheaven mobilisait pour cette guerre! Le Maître Lu Fu l'avait compris et avait déployé la ruse d'un vieux monstre ayant vécu des dizaines de milliers d'années!
+Si Wang Lin détruisait ce trésor, il briserait le momentum même qu'Luotian mobilisait pour cette guerre! Le Maître Lu Fu l'avait compris et avait déployé la ruse d'un vieux monstre ayant vécu des dizaines de milliers d'années!
 
 Un tel trésor n'était le fait que de cultivateurs du troisième pas, et il leur était impossible d'en créer autant!
 
@@ -44,7 +44,7 @@ Le rire du Maître Lu Fu fit vibrer les étoiles. La fierté qui transparaissait
 
 Le Maître Lu Fu regarda Wang Lin et dit avec lenteur: « Le trésor de ce vieil homme est achevé. Je demande à notre camarade cultivateur de l'affiner; je veux voir quel genre de trésor tu sauras créer! »
 
-« Les cultivateurs d'Allheaven possèdent assez d'intention de bataille, mais il leur manque une intention de tuer... l'odeur du sang. » Wang Lin leva la main droite et tendit doucement le geste vers la formation en contrebas.
+« Les cultivateurs de Luotian possèdent assez d'intention de bataille, mais il leur manque une intention de tuer... l'odeur du sang. » Wang Lin leva la main droite et tendit doucement le geste vers la formation en contrebas.
 
 En un instant, une planète de culture s'éleva avant de s'effondrer. Tandis que d'innombrables fragments volaient en éclats, une goutte de liquide doré flotta devant Wang Lin.
 
@@ -72,19 +72,19 @@ Une aura de mort enveloppa la zone.
 
 L'intention meurtrière redoubla d'intensité, faisant trembler les étoiles!
 
-« À Allheaven, j'ai tué tant de gens... Les cieux et la terre en seraient teints de pourpre! »
+« À Luotian, j'ai tué tant de gens... Les cieux et la terre en seraient teints de pourpre! »
 
 « Dans la Mer des Nuages, le brouillard de sang me suivait et l'intention de tuer était omniprésente... » Les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre reculèrent, le visage blême. Ils fixaient Wang Lin avec une terreur indescriptible.
 
-« Dans le Royaume aux Sept Couleurs, la moisson des Dao... » L'expression du Maître Flamespark et de son groupe changea radicalement. Lorsque le Dieu de Sang ressentit cette intention meurtrière, il cracha du sang.
+« Dans le Royaume aux Sept Couleurs, la moisson des Dao... » L'expression du Maître Yan Leizi et de son groupe changea radicalement. Lorsque le Dieu de Sang ressentit cette intention meurtrière, il cracha du sang.
 
-« Dans l'Ancien Système Stellaire, le sang coulait à flots comme des rivières... » Le domaine stellaire trembla tandis qu'une lueur sanglante l'illuminait. La propagation se poursuivit, et d'innombrables cultivateurs d'Allheaven furent saisis de stupeur par cette intention meurtrière.
+« Dans l'Ancien Système Stellaire, le sang coulait à flots comme des rivières... » Le domaine stellaire trembla tandis qu'une lueur sanglante l'illuminait. La propagation se poursuivit, et d'innombrables cultivateurs de Luotian furent saisis de stupeur par cette intention meurtrière.
 
-« Le Clan du Tonnerre dispersé, l'extermination de tout un clan... » D'innombrables âmes tourmentées semblèrent apparaître, poussant des rugissements funèbres. Le cœur des cultivateurs d'Allheaven vacilla.
+« Le Clan du Tonnerre dispersé, l'extermination de tout un clan... » D'innombrables âmes tourmentées semblèrent apparaître, poussant des rugissements funèbres. Le cœur des cultivateurs de Luotian vacilla.
 
 « La Tombe de l'Ordre Ancestral était imprégnée de sang... » Le Maître Lu Fu prit une inspiration glacée. L'intention meurtrière que Wang Lin dégageait le stupéfia lui aussi!
 
-« Je suis retourné à Allheaven et la planète Dong Lin s'est effondrée!! » La main droite de Wang Lin poursuivit sa danse. Toute l'intention meurtrière de sa vie commença à converger, transformant les neuf gouttes de liquide doré en un rouge sanglant!
+« Je suis retourné à Luotian et la planète Dong Lin s'est effondrée!! » La main droite de Wang Lin poursuivit sa danse. Toute l'intention meurtrière de sa vie commença à converger, transformant les neuf gouttes de liquide doré en un rouge sanglant!
 
 Il leva soudain la tête et fixa le Maître Lu Fu à travers les cent pieds de l'Arbre Tout-Ciel.
 
@@ -92,7 +92,7 @@ Il leva soudain la tête et fixa le Maître Lu Fu à travers les cent pieds de l
 
 L'Arbre Tout-Ciel trembla comme s'il ne pouvait supporter cette pression et menaçait de s'effondrer.
 
-« Comparée à ma vie, l'intention meurtrière des cultivateurs d'Allheaven est insuffisante pour lutter contre le destin! » Wang Lin agita sa main droite, et les neuf gouttes de liquide rouge sang se condensèrent pour former un cristal de sang!
+« Comparée à ma vie, l'intention meurtrière des cultivateurs de Luotian est insuffisante pour lutter contre le destin! » Wang Lin agita sa main droite, et les neuf gouttes de liquide rouge sang se condensèrent pour former un cristal de sang!
 
 Ce cristal contenait toute l'intention meurtrière de Wang Lin. Une fois formé, il fonça vers le Maître Lu Fu!
 
@@ -102,11 +102,11 @@ Les dizaines de milliers de cultivateurs furent terrifiés par cette intention m
 
 Le vortex derrière le Maître Lu Fu s'interrompit net. Le Dieu de Sang pâlit et continua sa retraite. Lie Yunzi recula lui aussi, les yeux écarquillés par l'effroi. Il ne pouvait faire autrement: aux yeux de Lie Yunzi, le Maître Lu Fu n'affrontait pas Wang Lin, mais une montagne de cadavres et une mer de sang!
 
-Le Maître Flamespark resta silencieux, observant Wang Lin avec une expression complexe.
+Le Maître Yan Leizi resta silencieux, observant Wang Lin avec une expression complexe.
 
 L'intention meurtrière de ce cristal pouvait repousser des dizaines de milliers de cultivateurs. C'était là toute la puissance de Wang Lin!
 
-« Ce trésor n'a aucune essence, ni de mon sang, ni de l'intention de bataille d'Allheaven, et il est dépourvu de tous vos stratagèmes... Il ne contient que mon intention meurtrière. Et ce seul trésor suffit à détruire votre Arbre Tout-Ciel! »
+« Ce trésor n'a aucune essence, ni de mon sang, ni de l'intention de bataille de Luotian, et il est dépourvu de tous vos stratagèmes... Il ne contient que mon intention meurtrière. Et ce seul trésor suffit à détruire votre Arbre Tout-Ciel! »
 
 Le Maître Lu Fu poussa un rugissement et agita la main pour stopper le cristal de sang. Son esprit vacillait et la peur se lisait dans ses yeux. Il n'avait jamais pensé qu'un être puisse posséder une intention meurtrière aussi dense. C'était la première fois qu'il rencontrait un tel cultivateur!
 
@@ -120,7 +120,7 @@ Wang Lin regarda le Maître Lu Fu et dit lentement: « Parce qu'il a été affin
 
 Ses paroles étaient légères, mais empreintes d'une confiance absolue!
 
-Le visage du Maître Lu Fu se décomposa tandis qu'il fixait le cristal de sang. Son cœur était amer. Il savait qu'il avait sous-estimé la ruse de Wang Lin. Il avait l'intention d'utiliser les préparatifs de guerre d'Allheaven pour le subjuguer, mais si l'arbre était détruit, cela briserait la détermination des cultivateurs face au Royaume Extérieur.
+Le visage du Maître Lu Fu se décomposa tandis qu'il fixait le cristal de sang. Son cœur était amer. Il savait qu'il avait sous-estimé la ruse de Wang Lin. Il avait l'intention d'utiliser les préparatifs de guerre de Luotian pour le subjuguer, mais si l'arbre était détruit, cela briserait la détermination des cultivateurs face au Royaume Extérieur.
 
 Cependant, Wang Lin n'avait pas seulement percé à jour son plan, il l'avait retourné contre lui. C'était une surprise totale. Si une véritable confrontation avait lieu entre les deux trésors, ce serait un combat sans merci!
 

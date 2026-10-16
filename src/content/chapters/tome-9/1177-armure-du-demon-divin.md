@@ -44,7 +44,7 @@ Cependant, la majorité de ces doutes furent dissipés par le départ de Li Qian
 
 Il s'agissait d'une pierre de montagne incomplète. Elle était endommagée de toutes parts, un véritable désastre; elle avait une apparence très laide.
 
-En contemplant cette pierre, Wang Lin sembla revivre tous les combats qu'il avait menés à Allheaven. La montagne s'y était également effondrée. Wang Lin n'avait pu en rassembler qu'un fragment et l'avait condensé. Elle était devenue un trésor inutile dans son espace de stockage.
+En contemplant cette pierre, Wang Lin sembla revivre tous les combats qu'il avait menés à Luotian. La montagne s'y était également effondrée. Wang Lin n'avait pu en rassembler qu'un fragment et l'avait condensé. Elle était devenue un trésor inutile dans son espace de stockage.
 
 « 1 000 jades célestes! » Après un moment de silence, une voix s'éleva parmi les cultivateurs.
 

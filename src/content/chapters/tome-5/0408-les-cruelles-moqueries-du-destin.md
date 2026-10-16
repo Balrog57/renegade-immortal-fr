@@ -114,7 +114,7 @@ Une puissante force d'aspiration émana de la roue vers Li Muwan.
 
 Wang Lin leva soudainement la tête. Ses yeux devinrent d'une froideur extrême lorsqu'il déclara: « Sans ma permission, oublie que tu n'es même pas la véritable loi céleste; mais même si tu l'étais, ne pense pas pouvoir l'emporter! »
 
-Il pointa son front et la Perle Défiant les Cieux apparut. D'un revers de main, il fit entrer l'Âme Naissante de Li Muwan dans la perle, laquelle retourna aussitôt à l'intérieur de son corps.
+Il pointa son front et la Perle Défiant le Ciel apparut. D'un revers de main, il fit entrer l'Âme Naissante de Li Muwan dans la perle, laquelle retourna aussitôt à l'intérieur de son corps.
 
 L'Émissaire des Cieux lança un regard pensif à Wang Lin, ses yeux empreints de confusion. Puis son corps disparut lentement et, en un clin d'œil, les nuages et la roue s'évanouirent également.
 

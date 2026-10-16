@@ -16,9 +16,9 @@ Mo Zhi regarda Wang Lin, secoua la tête et soupira. « Dommage. Puisque frère 
 
 Son regard se posa ensuite sur Yunque Zi.
 
-« Le Clan des Immortels Abandonnés... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yunque Zi, acceptez-vous? »
+« Le Clan des Immortels Délaissés... le tiers de la planète Suzaku peut vous être accordé, mais tous les 1 000 ans, vous devrez remettre le crâne d'un membre du clan ayant au moins neuf feuilles. Yunque Zi, acceptez-vous? »
 
-Le cœur d'Yunque Zi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance de la Culture; le Clan des Immortels Abandonnés n'avait aucune chance de s'y opposer.
+Le cœur d'Yunque Zi se serra d'amertume. Il savait qu'il n'avait aucun droit de refuser pour l'instant. Cet homme représentait l'Alliance de la Culture; le Clan des Immortels Délaissés n'avait aucune chance de s'y opposer.
 
 Il hocha vigoureusement la tête. Yunque Zi sembla soudainement vieillir et son regard devint terne.
 
@@ -124,7 +124,7 @@ Ce « rêve » impliquant Liu Mei ne pouvait en rien influencer la résolution d
 
 L'épisode de la Tombe de Suzaku touchait à sa fin.
 
-Quant au Clan des Immortels Abandonnés, après la sortie d'Yunque Zi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
+Quant au Clan des Immortels Délaissés, après la sortie d'Yunque Zi de la tombe, ils se retirèrent tous vers le nord-ouest pour s'installer sur un continent. Ils n'auraient plus de contacts fortuits avec les autres cultivateurs.
 
 De nombreux cultivateurs étaient tombés durant la guerre sur la planète Suzaku, laissant de nombreuses sectes extrêmement affaiblies; ces dernières commencèrent donc à recruter massivement des disciples.
 

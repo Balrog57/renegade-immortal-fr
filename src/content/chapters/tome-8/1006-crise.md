@@ -10,9 +10,9 @@ Tandis que Maître Yi Long contenait temporairement deux soldats, Maître Yi Xia
 
 Désormais, il ne restait plus qu'un seul soldat!
 
-Juste au moment où le soldat allait charger dans la brume blanche, les yeux de Maître Hollow Wind s'illuminèrent. Sa main tendue fit trembler le soldat, puis le tira en arrière. Maître Hollow Wind affrontait désormais quatre soldats célestes.
+Juste au moment où le soldat allait charger dans la brume blanche, les yeux de Maître Fu Fengzi s'illuminèrent. Sa main tendue fit trembler le soldat, puis le tira en arrière. Maître Fu Fengzi affrontait désormais quatre soldats célestes.
 
-Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Hollow Wind et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre de l'Esprit Démoniaque à l'époque et s'il n'avait pas été déterminé à briser les restrictions, même en atteignant ce stade, il n'aurait eu aucun moyen de faire face à l'esprit floral ou aux soldats célestes.
+Bien que ces dix soldats célestes possédaient des corps puissants, ce n'était pas une tâche insurmontable pour Maître Fu Fengzi et ses compagnons. Wang Lin se sentit chanceux en voyant cela. S'il ne s'était pas enfui de la Terre de l'Esprit Démoniaque à l'époque et s'il n'avait pas été déterminé à briser les restrictions, même en atteignant ce stade, il n'aurait eu aucun moyen de faire face à l'esprit floral ou aux soldats célestes.
 
 L'expression de Wang Lin demeurait calme alors qu'il marchait vers le palais central. Cependant, avant même qu'il ne puisse s'en approcher, un changement choquant se produisit.
 
@@ -86,7 +86,7 @@ Wang Lin remarqua l'expression singulière qui traversa le visage du vieil homme
 
 Un grondement assourdissant retentit, comme si la grotte entière tremblait, et d'innombrables fissures parcoururent le sol. La carapace de la tortue vacilla violemment, mais ne montra aucun signe de rupture.
 
-À ce moment-là, Maître Hollow Wind et ses compagnons avaient achevé les soldats célestes, et le cadavre argenté avait fini d'absorber les esprits floraux. Son visage était désormais rosé, semblant avoir subi une transformation mystérieuse.
+À ce moment-là, Maître Fu Fengzi et ses compagnons avaient achevé les soldats célestes, et le cadavre argenté avait fini d'absorber les esprits floraux. Son visage était désormais rosé, semblant avoir subi une transformation mystérieuse.
 
 « Brisez cette formation! » Sur un ordre de Wang Lin, chacun utilisa ses divers sorts en ciblant la carapace.
 
@@ -98,7 +98,7 @@ Wang Lin fronça les sourcils, secrètement stupéfait. La capacité protectrice
 
 « Je me demande si les grottes célestes où l'Omniscient et Ling Tianhou sont entrés possédaient des carapaces semblables. S'ils en avaient une, comment ont-ils fait pour la briser... » Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait l'objet.
 
-Non seulement lui était sous le choc, mais Maître Hollow Wind et ses compagnons l'étaient tout autant, leurs regards convergeant vers la carapace.
+Non seulement lui était sous le choc, mais Maître Fu Fengzi et ses compagnons l'étaient tout autant, leurs regards convergeant vers la carapace.
 
 Alors que tous la fixaient, celle-ci se mit à scintiller, révélant progressivement le palais qu'elle protégeait.
 
@@ -106,15 +106,15 @@ Le palais était plongé dans une obscurité totale, rendant toute vision imposs
 
 Ces pas possédaient une force étrange; dès qu'ils atteignirent les oreilles de chacun, ils se synchronisèrent inopinément avec leur propre rythme cardiaque. C'était comme si chaque pas martelait leurs cœurs.
 
-L'expression de Maître Hollow Wind changea; il fit circuler l'énergie d'origine dans son corps avec rapidité pour réussir à dissocier ses battements cardiaques du son des pas.
+L'expression de Maître Fu Fengzi changea; il fit circuler l'énergie d'origine dans son corps avec rapidité pour réussir à dissocier ses battements cardiaques du son des pas.
 
-Cependant, les trois frères Chen, Big Head et Lei Ji n'avaient pas une culture suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
+Cependant, les trois frères Chen, Da Tou et Lei Ji n'avaient pas une culture suffisante pour y parvenir. À mesure que les pas approchaient, leurs visages devinrent livides.
 
 Seul le cadavre argenté resta de marbre. Étant un cadavre doté d'intelligence, l'absence de battements cardiaques la rendait insensible.
 
 Le visage de Wang Lin s'assombrit progressivement. Possédant le corps d'un Dieu Ancien, il pouvait endurer ce genre d'attaque mentale.
 
-Les pas se firent de plus en plus nets, comme si quelqu'un émergeait des profondeurs du palais. Les visages des trois frères Chen pâlirent encore davantage et les veines sur le front de Big Head se gonflèrent.
+Les pas se firent de plus en plus nets, comme si quelqu'un émergeait des profondeurs du palais. Les visages des trois frères Chen pâlirent encore davantage et les veines sur le front de Da Tou se gonflèrent.
 
 Lei Ji, qui avait le niveau de culture le plus bas, tremblait de tout son corps. Il recula de quelques pas, incapable de supporter la pression. Il poussa un rugissement et son corps s'étendit jusqu'à atteindre plusieurs centaines de pieds de haut pour enfin pouvoir tenir bon.
 

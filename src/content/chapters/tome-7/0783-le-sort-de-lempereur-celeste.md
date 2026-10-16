@@ -126,7 +126,7 @@ Soudain, tout le vacarme cessa lorsqu'une silhouette s'avança. Cette figure ét
 
 L'être flotta dans les airs et prit place. Un sourire sembla éclairer son visage tandis qu'une voix claire résonnait:
 
-« Aujourd'hui, Maître Sans Souci peindra l'ouverture du Pavillon des Collections. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
+« Aujourd'hui, Maître Xiaoyaozi peindra l'ouverture du Pavillon des Collections. Le seigneur céleste m'a commandé cette peinture et m'a invité à assister à l'œuvre; j'ai donc pris la liberté d'inviter mes chers compagnons célestes pour écouter mon prêche sur le Dao pendant que la peinture s'accomplit. Voici le Dao que je connais! »
 
 Tandis qu'il parlait, l'être leva la main droite et un vent rugissant surgit. Ce vent devint noir et recouvrit le firmament. En balayant le ciel, il se mua en neuf dragons noirs. Les rugissements de ces créatures et leur aura colossale firent changer la couleur du ciel. Alors que le vent noir déferlait, les neuf dragons crachèrent des rafales glaciales. Cette puissance inimaginable donnait l'impression que la vie humaine n'était qu'une flamme vacillante; quiconque serait touché par ce vent mourrait instantanément!
 
@@ -136,7 +136,7 @@ C'était comme si toute créature vivante s'éteignait au contact de cette bourr
 
 L'esprit de Wang Lin fut secoué par une douleur indicible, comme si on cherchait à le déchirer en lambeaux. Son âme originelle s'effondra aussitôt, ses fragments se dispersant dans le vide.
 
-C'est à cet instant qu'une force douce émana du néant pour envelopper l'âme originelle de Wang Lin. Une voix claire éclata d'un rire: « Le sort de l'Empereur Céleste est extraordinaire. Ce sort nommé "Invoquer le Vent", ce seigneur va l'inscrire sur la peinture de Maître Sans Souci. Cette œuvre sera conservée au neuvième étage du Pavillon des Collections. Quant à savoir si quelqu'un pourra en comprendre le secret, cela dépendra de sa chance! »
+C'est à cet instant qu'une force douce émana du néant pour envelopper l'âme originelle de Wang Lin. Une voix claire éclata d'un rire: « Le sort de l'Empereur Céleste est extraordinaire. Ce sort nommé "Invoquer le Vent", ce seigneur va l'inscrire sur la peinture de Maître Xiaoyaozi. Cette œuvre sera conservée au neuvième étage du Pavillon des Collections. Quant à savoir si quelqu'un pourra en comprendre le secret, cela dépendra de sa chance! »
 
 Sous l'effet de cette voix, l'âme originelle de Wang Lin sembla se transformer en encre pour écrire deux caractères:
 
@@ -148,7 +148,7 @@ Le corps de Wang Lin trembla lorsqu'il rouvrit les yeux. Son regard était empre
 
 « C'est cela, la chance... » murmura-t-il après une profonde inspiration, tout en fixant le tableau. Tout ce qui venait de se produire lui semblait d'un réel absolu.
 
-« L'Empereur Céleste... le seigneur céleste... et Maître Sans Souci, l'auteur de la peinture... » En observant la toile, Wang Lin réalisa enfin que le peintre était la même personne que celle qui avait créé les peintures qu'il avait vues dans l'espace de stockage!
+« L'Empereur Céleste... le seigneur céleste... et Maître Xiaoyaozi, l'auteur de la peinture... » En observant la toile, Wang Lin réalisa enfin que le peintre était la même personne que celle qui avait créé les peintures qu'il avait vues dans l'espace de stockage!
 
 Après une longue méditation silencieuse, Wang Lin se leva. Il ne daigna même pas regarder le jade céleste sur le côté avant de partir. Comparé à ce qu'il venait d'obtenir, tout le reste du neuvième étage n'était plus que poussière.
 

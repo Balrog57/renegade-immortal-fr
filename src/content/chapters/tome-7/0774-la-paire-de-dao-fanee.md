@@ -90,7 +90,7 @@ Quant au sac de rangement du Jeune Maître Yao, il contenait également divers o
 
 C'était un talisman en papier!
 
-Comparé à cela, le reste n'avait aucune importance. C'était le deuxième talisman de ce genre qu'il trouvait depuis son arrivée dans le Système Solaire Allheaven.
+Comparé à cela, le reste n'avait aucune importance. C'était le deuxième talisman de ce genre qu'il trouvait depuis son arrivée dans le Système Solaire Luotian.
 
 Après réflexion, Wang Lin frappa son propre sac de rangement et l'autre talisman apparut dans sa main. Les deux étaient de taille similaire, mais les symboles tracés dessus différaient.
 
@@ -102,7 +102,7 @@ Avec son niveau de culture précédent, il n'aurait pas pu les remarquer.
 
 Lorsqu'il prit le dernier sac de rangement, ses yeux s'illuminèrent et il murmura: « L'esprit du vieil homme était confus, mais son objectif dans le Royaume Céleste du Tonnerre était très clair. Il comptait emmener le jeune maître de la famille Yao à la Galerie des Collections pour obtenir un sort céleste! »
 
-Wang Lin avait appris des souvenirs du vieillard qu'il existait un fragment scellé par les forces combinées des quatre familles du Système Solaire Allheaven, possédant des héritages du Royaume Céleste.
+Wang Lin avait appris des souvenirs du vieillard qu'il existait un fragment scellé par les forces combinées des quatre familles du Système Solaire Luotian, possédant des héritages du Royaume Céleste.
 
 Sur ce fragment scellé se trouvait la Galerie des Collections. Elle renfermait des sorts célestes qui étaient encore parfaitement conservés.
 

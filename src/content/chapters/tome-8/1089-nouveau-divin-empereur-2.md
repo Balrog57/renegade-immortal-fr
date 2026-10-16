@@ -92,7 +92,7 @@ Les deux autres futurs candidats au titre de Divin Empereur réfléchissaient en
 
 Liao Yun était à l'origine une personne arrogante dotée d'un talent exceptionnel. Au sein de la Secte Divin de l'Oiseau Vermillon, son prestige n'était surpassé que par celui de Ren Tao. S'il n'était pas convaincu par Wang Lin au début, depuis la bataille des Terres de l'Esprit Démon, chaque pensée concernant ce dernier le faisait suer à froid.
 
-Il était passé d'un scepticisme teinté d'arrogance à une peur profonde en un instant. Durant ces trois années, il avait appris à connaître Wang Lin par l'intermédiaire de Big Head et avait même fini par éprouver du respect pour lui!
+Il était passé d'un scepticisme teinté d'arrogance à une peur profonde en un instant. Durant ces trois années, il avait appris à connaître Wang Lin par l'intermédiaire de Da Tou et avait même fini par éprouver du respect pour lui!
 
 À ses yeux, le plan de Ren Tao ressemblait à celui d'une mante essayant d'arrêter un char: Ren Tao se surestimait!
 
@@ -132,4 +132,4 @@ Ce regard portait également une puissance de tonnerre extrême. Partout où Wan
 
 Seul Ren Tao réprima la panique qui lui nouait le cœur, son visage devenant plus sombre encore.
 
-C'est à ce moment précis que l'Alliance, Allheaven, la Secte des Corps et les diverses forces composées des vestiges de l'Alliance furent toutes alertées!
+C'est à ce moment précis que l'Alliance, Luotian, la Secte des Corps et les diverses forces composées des vestiges de l'Alliance furent toutes alertées!

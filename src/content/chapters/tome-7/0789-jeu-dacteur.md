@@ -60,7 +60,7 @@ Les yeux de l'homme aux cheveux blancs s'illuminèrent et sa main droite tendit 
 
 Au même moment, la main droite de Wang Lin forma un sceau et pressa en avant. Le Tatouage d'Os de Bête se transforma immédiatement en l'immense os de bête doté de quatre pointes. Un éclat fantomatique jaillit tandis que l'aura maléfique fonçait vers l'homme aux cheveux blancs.
 
-« La Paire du Dao Flétri du Maître Sans Souci!! » Les yeux de l'homme aux cheveux blancs trahirent une incrédulité totale.
+« La Paire du Dao Flétri du Maître Xiaoyaozi!! » Les yeux de l'homme aux cheveux blancs trahirent une incrédulité totale.
 
 Les yeux de l'os de bête projetèrent un éclat spectral et l'aura maléfique fit apparaître une teinte grise au pied de l'homme aux cheveux blancs, qui se propagea rapidement. Ce dernier esquissa un sourire sinistre et fit un pas impitoyable en avant. Un bang retentit à l'intérieur de son corps, et les zones grises externes s'effondrèrent instantanément!
 
@@ -136,7 +136,7 @@ L'apparence de cette âme était identique à celle du vieil homme mystérieux q
 
 Son corps ne portait aucune cicatrice, mais ses yeux étaient saturés d'intention meurtrière.
 
-« Le sort céleste de Bai Fan, l'épée céleste de Qing Shuang, le trésor du Maître Sans Souci et le corps d'un être digne d'un Roi Céleste... Depuis mon éveil, tu es le cultivateur de Qi le plus puissant que j'aie rencontré. Tu es digne de porter un nom! »
+« Le sort céleste de Bai Fan, l'épée céleste de Qing Shuang, le trésor du Maître Xiaoyaozi et le corps d'un être digne d'un Roi Céleste... Depuis mon éveil, tu es le cultivateur de Qi le plus puissant que j'aie rencontré. Tu es digne de porter un nom! »
 
 L'apparence de cet homme ressemblait à celle du vieil homme aux cheveux blancs, mais il semblait bien plus jeune. Tandis qu'il parlait, sa main droite frappa la statue qui fondit instantanément pour former une lance noire qu'il tint fermement.
 

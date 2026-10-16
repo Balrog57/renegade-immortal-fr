@@ -76,7 +76,7 @@ Mais s'il reste des sentiments persistants dans le cœur, même la mort peut êt
 
 « Tu veux me tuer? Alors... mourons ensemble! » Alors que l'immense planète de culture s'écrasait, Wang Lin ouvrit les bras. Les trois vortex s'agitèrent frénétiquement et les essences de feu et de tonnerre à l'intérieur de son corps jaillirent!
 
-Cette attaque dépassait les cent coups de la vie, elle était plus puissante que le Char de Guerre du Dieu Tueur. C'était une attaque utilisant les essences que Wang Lin venait de comprendre pour lancer le sortilège le plus fulgurant de sa vie, son ultime sort!
+Cette attaque dépassait les cent coups de la vie, elle était plus puissante que le Char de Guerre Divin. C'était une attaque utilisant les essences que Wang Lin venait de comprendre pour lancer le sortilège le plus fulgurant de sa vie, son ultime sort!
 
 Le ciel et la terre grondèrent tandis que le brouillard stellaire s'effondrait et se dissipait. Toute la région de rang 5 vola en éclats et cinq gigantesques fissures spatiales apparurent dans la région de rang 6, devenant une ligne de démarcation éternelle dans la Mer des Nuages!
 

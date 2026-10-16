@@ -39,13 +39,13 @@ La rumeur prétend que l'usage du Sceau Mystérieux de Suzaku exige un prix, mai
 
 L'être de nuages se désintégra. Le visage de Du Tian était livide alors qu'il fixait Zhuque Zi, puis il éclata soudain d'un rire: « Mon espérance de vie est presque épuisée. Pouvoir voir un vieux voleur comme toi dans cet état est une véritable satisfaction! »
 
-L'expression de Zhuque Zi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, surtout pour l'utiliser en attaque. Il l'avait fait car il devait préserver ses forces pour la bataille contre le Clan des Immortels Abandonnés.
+L'expression de Zhuque Zi était affreuse et il haletait. Il n'aurait pas utilisé le Sceau Mystérieux de Suzaku s'il n'y avait pas été contraint, surtout pour l'utiliser en attaque. Il l'avait fait car il devait préserver ses forces pour la bataille contre le Clan des Immortels Délaissés.
 
-« Du Tian, votre Secte du Raffinement d'Âmes était autrefois une branche de Suzaku et vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Abandonnés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte du Raffinement d'Âmes un pays souverain à nouveau. »
+« Du Tian, votre Secte du Raffinement d'Âmes était autrefois une branche de Suzaku et vos ancêtres combattirent aux côtés de la première génération de Suzaku contre le Clan des Immortels Délaissés. Pourquoi vous montrer si obstiné aujourd'hui? Si vous me remettez l'étendard de l'âme, je vous aiderai à reconstruire la secte, je vous aiderai à rassembler des disciples et même à faire de la Secte du Raffinement d'Âmes un pays souverain à nouveau. »
 
-Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan des Immortels Abandonnés a déjà commencé; je crains que tu ne puisses pas rester ici bien longtemps. »
+Les yeux de Du Tian s'illuminèrent, puis il afficha un sourire malicieux. « Vieux voleur Zhuque, je vois clair dans ton jeu. Tu as peur d'être blessé; sinon, tu ne te serais pas retrouvé dans une position aussi embarrassante. La guerre avec le Clan des Immortels Délaissés a déjà commencé; je crains que tu ne puisses pas rester ici bien longtemps. »
 
-Zhuque Zi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan des Immortels Abandonnés soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan des Immortels Abandonnés périra à coup sûr! Du Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
+Zhuque Zi fronça les sourcils et dit froidement: « Bien que l'ancêtre à onze feuilles du Clan des Immortels Délaissés soit puissant, j'ai un atout dans ma manche. Une fois qu'il sera révélé, le Clan des Immortels Délaissés périra à coup sûr! Du Tian, je te le demande une dernière fois: remettras-tu l'étendard de l'âme? »
 
 Le regard de Du Tian devint glacial. Il prit une inspiration sifflante et agita la main. Une lumière dorée et pourpre commença à scintiller sur l'étendard, mais elle était instable.
 

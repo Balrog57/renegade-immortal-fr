@@ -14,17 +14,17 @@ Lorsqu'il était parti, il venait d'atteindre le stade d'Ascendant. À son retou
 
 « Omniscient, Ling Tianhou… Moi, Wang Lin, suis de retour! » Les yeux de Wang Lin brillèrent. Dans son sac, il possédait toujours la clé de la grotte des Terres de l'Esprit Démoniaque; il s'était assuré de la garder en lieu sûr.
 
-Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Scruteur du Nirvana et, même dans le système stellaire d'Allheaven, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
+Le niveau de culture de Wang Lin n'était pas élevé lorsqu'il résidait encore dans le système stellaire de l'Alliance. La puissance la plus haute qu'il connaissait ne dépassait pas les pays de culture de rang 7. Cependant, il était désormais un cultivateur du Scruteur du Nirvana et, même dans le système stellaire de Luotian, il avait attiré l'attention des vieux monstres. Maintenant qu'il était revenu, il pourrait déclencher une tempête s'il le souhaitait.
 
-Toutefois, Wang Lin savait parfaitement que l'Alliance ne pouvait être comparée à Allheaven. Les eaux de l'Alliance étaient bien trop profondes.
+Toutefois, Wang Lin savait parfaitement que l'Alliance ne pouvait être comparée à Luotian. Les eaux de l'Alliance étaient bien trop profondes.
 
-« Je dois rester prudent face au conflit entre le système stellaire d'Allheaven et celui de l'Alliance. Je ne dois pas m'y mêler imprudemment. » Les yeux de Wang Lin s'illuminèrent tandis qu'il décidait d'adopter une stratégie de « l'attente ».
+« Je dois rester prudent face au conflit entre le système stellaire de Luotian et celui de l'Alliance. Je ne dois pas m'y mêler imprudemment. » Les yeux de Wang Lin s'illuminèrent tandis qu'il décidait d'adopter une stratégie de « l'attente ».
 
 Dès son retour dans le système stellaire de l'Alliance, la prudence de Wang Lin avait décuplé. Il savait que les cultivateurs de l'Alliance, et particulièrement ces vieux briscards, étaient tous extrêmement rusés. Sans parler de ceux qui atteignaient son propre niveau de culture.
 
 Si l'on commettait la moindre imprudence, ne serait-ce qu'un instant, on pouvait être dévoré sans même s'en rendre compte!
 
-Ici, le modèle des familles de culture d'Allheaven n'existait pas. C'était la loi de la jungle, un monde de culture impitoyable.
+Ici, le modèle des familles de culture de Luotian n'existait pas. C'était la loi de la jungle, un monde de culture impitoyable.
 
 « Cependant, avec mon niveau de culture après avoir fusionné avec mon corps original, je n'aurai plus aucune raison de trembler dans le système stellaire de l'Alliance! » Le regard de Wang Lin devint glacial. Dès son arrivée, il prit immédiatement contact avec son corps original pour déterminer leurs positions respectives.
 
@@ -108,7 +108,7 @@ Peu de temps après, un rayon d'énergie d'épée s'échappa de la planète de c
 
 Les yeux de la vieille femme étaient empreints d'inquiétude. Lorsqu'elle s'approcha, un cultivateur se rapprocha et dit respectueusement: « Salutations, Maître Bai Xue! »
 
-La vieille femme hocha la tête en regardant au loin et déclara lentement: « Soyez prudents. Si une anomalie survient, signalez-la immédiatement. La guerre fait rage et ma planète Suzaku est trop proche des cultivateurs d'Allheaven. C'est un moment de vie ou de mort! »
+La vieille femme hocha la tête en regardant au loin et déclara lentement: « Soyez prudents. Si une anomalie survient, signalez-la immédiatement. La guerre fait rage et ma planète Suzaku est trop proche des cultivateurs de Luotian. C'est un moment de vie ou de mort! »
 
 Le corps du cultivateur trembla et il baissa la tête en signe d'acquiescement.
 

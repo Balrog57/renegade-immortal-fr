@@ -27,11 +27,11 @@ Le visage de Teng Huayuan était sombre, car il ignorait si Wang Lin était mort
 
 Les gens à l'extérieur de la vallée Jue Ming partirent progressivement, emportant avec eux l'histoire de Wang Lin. Finalement, chaque cultivateur de Zhao finit par connaître son nom.
 
-Punnan Zi ramena les disciples à la Secte Xuan Dao. Une disciple le suivait: c'était Liu Mei. Elle avait tout observé et ressentait une amertume profonde dans son cœur. Elle ne savait pas pourquoi, mais elle éprouvait une pointe d'affection pour Wang Lin. Cette affection, loin de s'estomper avec le temps, refaisait surface dans son esprit au cœur de la nuit.
+Pu Nanzi ramena les disciples à la Secte Xuan Dao. Une disciple le suivait: c'était Liu Mei. Elle avait tout observé et ressentait une amertume profonde dans son cœur. Elle ne savait pas pourquoi, mais elle éprouvait une pointe d'affection pour Wang Lin. Cette affection, loin de s'estomper avec le temps, refaisait surface dans son esprit au cœur de la nuit.
 
 Wang Zhuo et Wang Hao apprirent également ce qui s'était passé près de la vallée Jue Ming. La haine qu'ils vouaient à Wang Lin pour les destructions qu'il avait causées disparut peu à peu. Tous deux savaient qu'ils n'avaient pas l'audace d'affronter des cultivateurs de l'Âme Naissante, mais cela ne signifiait pas qu'ils renonçaient à leur vengeance. Wang Zhuo et Wang Hao étaient déterminés à tuer Teng Huayuan; c'était l'objectif de leur vie.
 
-Au retour de Punnan Zi, il apprit la tragédie de la famille Wang. Sous les supplications de Liu Mei, il accepta de prendre Wang Hao comme disciple. Liu Mei savait que c'était la seule chose qu'elle pouvait faire pour aider Wang Lin, même s'il ne le saurait jamais.
+Au retour de Pu Nanzi, il apprit la tragédie de la famille Wang. Sous les supplications de Liu Mei, il accepta de prendre Wang Hao comme disciple. Liu Mei savait que c'était la seule chose qu'elle pouvait faire pour aider Wang Lin, même s'il ne le saurait jamais.
 
 Teng Huayuan retourna à la Cité de la Famille Teng avec ce sentiment d'effroi et se lança dans une culture en méditation fermée. Il jura de ne pas ressortir avant d'avoir atteint le stade avancé de l'Âme Naissante.
 

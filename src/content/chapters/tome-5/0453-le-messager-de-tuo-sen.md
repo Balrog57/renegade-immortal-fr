@@ -40,7 +40,7 @@ Un instant plus tard, Wang Lin poussa un soupir et s'envola vers le lointain.
 
 Planète Suzaku, Mer des Diables.
 
-La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Déchus. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Déchus et finit par être conquise par eux.
+La Mer des Diables fut l'un des premiers lieux attaqués par le Clan des Immortels Délaissés. Après tout, elle était très proche de leur base. De plus, la brume qui servait de barrière naturelle depuis dix mille ans avait disparu et, suite aux attaques de multiples autres nations, la Mer des Diables était en plein chaos. Dans son état actuel, elle n'avait aucun moyen de résister au Clan des Immortels Délaissés et finit par être conquise par eux.
 
 Actuellement, une personne se tenait à l'extérieur des Étoiles Brisées et Chaotiques, dans la Mer des Diables. Cet individu était enveloppé d'une aura mortelle et sa silhouette était indistincte. Des images de squelettes apparaissaient tout autour de lui, formant une véritable forêt d'ossements.
 
@@ -80,9 +80,9 @@ Dans la mer de sang, aux profondeurs des terres du Dieu Ancien, sur l'unique pil
 
 « Je devrai remercier Tu Si. Lorsqu'il a choisi cet endroit pour diviser sa conscience, certains indigènes l'ont élevé au rang de dieu. Tout cela est consigné dans ce dernier cristal de connaissance. Tu Si leur a répondu en leur offrant les anciens lieux sacrificiels du Dieu Ancien. »
 
-« Bien que des éons aient passé et que cette race indigène ait disparu, le dernier bastion du Clan des Immortels Déchus est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
+« Bien que des éons aient passé et que cette race indigène ait disparu, le dernier bastion du Clan des Immortels Délaissés est le dernier des anciens lieux sacrificiels du Dieu Ancien. Si je m'y rends, je pourrai utiliser certains de mes sorts. »
 
-« Un descendant du Clan des Immortels Déchus dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour le faire passer de l'étape des onze feuilles à celle des douze feuilles. Cela lui a permis de briser le sceau du Clan et de s'ouvrir un chemin dans le monde de la culture. »
+« Un descendant du Clan des Immortels Délaissés dormait là-bas, et afin d'obtenir le Cristal de Planète de Culture, j'ai sacrifié énormément pour le faire passer de l'étape des onze feuilles à celle des douze feuilles. Cela lui a permis de briser le sceau du Clan et de s'ouvrir un chemin dans le monde de la culture. »
 
 « Tout cela s'est déroulé selon mes plans, et l'emplacement du Cristal de Planète de Culture est enfin révélé. Wang Lin, mon messager t'a enfin retrouvé. Bien que tu aies beaucoup changé, comment pourrais-je, moi Tuo Sen, t'oublier? Ton sens divin est gravé dans mon cœur. Peu importe où tu te cacheras, je te trouverai! »
 

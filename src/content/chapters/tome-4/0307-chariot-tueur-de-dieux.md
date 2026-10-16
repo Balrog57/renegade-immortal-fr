@@ -1,6 +1,6 @@
 ---
 n: 307
-title: Chariot Tueur de Dieux
+title: Char de Guerre Divin
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 307 - God Slaying Chariot
@@ -8,7 +8,7 @@ slug: chariot-tueur-de-dieux
 ---
 Cette grotte comptait neuf salles, toutes vides, mais à cet instant, les yeux de Wang Lin étaient fixés sur la plus grande pièce, l'air pensif.
 
-Le morceau de métal indiquait clairement comment ouvrir les portes de ces salles et précisait qu'il y en avait au total dix. L'emplacement du Chariot Tueur de Dieux se trouvait dans la dixième salle.
+Le morceau de métal indiquait clairement comment ouvrir les portes de ces salles et précisait qu'il y en avait au total dix. L'emplacement du Char de Guerre Divin se trouvait dans la dixième salle.
 
 « Il n'y a que neuf salles de pierre. Où est la dixième? » Wang Lin fronça les sourcils. Il avait déjà déployé son sens divin, mais n'avait rien trouvé d'autre.
 

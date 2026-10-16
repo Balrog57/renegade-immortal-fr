@@ -64,15 +64,15 @@ Le vortex avait quitté les plaines de cette planète abandonnée, mais son rire
 
 La zone dévastée de 10 000 pieds sur la plaine fut peu à peu comblée par la neige. Tout comme les empreintes de Wang Lin, tout disparut...
 
-Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de culture de rang 9. Le Royaume Céleste du Tonnerre possédait Allheaven, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de culture et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
+Les quatre grands Royaumes Célestes possédaient chacun un système stellaire sous leur autorité. Le Royaume Céleste de la Pluie possédait l'Alliance, qui ne comptait qu'un seul pays de culture de rang 9. Le Royaume Céleste du Tonnerre possédait Luotian, qui abritait des lignées détenant des héritages de l'Antiquité. Ces environnements disparates faisaient que les méthodes de culture et les orientations des cultivateurs de chaque système étaient radicalement différentes. Bien qu'ils fussent tous des cultivateurs, le fossé entre eux était immense.
 
-Contrairement aux règles strictes de l'Alliance, Allheaven offrait plus de liberté. Cependant, toute cette liberté pouvait être sacrifiée pour l'honneur de la famille!
+Contrairement aux règles strictes de l'Alliance, Luotian offrait plus de liberté. Cependant, toute cette liberté pouvait être sacrifiée pour l'honneur de la famille!
 
 L'honneur primait sur tout!
 
 La Mer Nuageuse, sous le Royaume Céleste du Vent, était bien différente de ces systèmes...
 
-Le Système Stellaire de la Mer Nuageuse était plus vaste qu'Allheaven. On pouvait dire que, parmi les quatre systèmes stellaires, celui de la Mer Nuageuse était le plus immense. À première vue, l'espace n'était pas sombre, mais recouvert d'une fine couche de brume. Ce brouillard imprégnait presque toute la Mer Nuageuse et entravait le Sens Divin à un certain degré.
+Le Système Stellaire de la Mer Nuageuse était plus vaste qu'Luotian. On pouvait dire que, parmi les quatre systèmes stellaires, celui de la Mer Nuageuse était le plus immense. À première vue, l'espace n'était pas sombre, mais recouvert d'une fine couche de brume. Ce brouillard imprégnait presque toute la Mer Nuageuse et entravait le Sens Divin à un certain degré.
 
 En raison de ce brouillard présent depuis une éternité, le Système Stellaire de la Mer Nuageuse ne ressemblait pas à un système d'étoiles, mais plutôt à une mer de nuages. C'était là l'origine de son nom.
 
@@ -82,7 +82,7 @@ Même la manipulation spatiale était sévèrement affectée. Bien qu'elle fût 
 
 Nul ne connaissait l'origine de cette brume. Ce voile qui emplissait la Mer Nuageuse semblait exister depuis l'époque précédant la disparition du Royaume Céleste Antique...
 
-Contrairement à Allheaven et à l'Alliance, divisés selon les points cardinaux, la Mer Nuageuse n'obéissait pas à cette logique. La brume rendait la détermination des directions exactes presque impossible pour les cultivateurs.
+Contrairement à Luotian et à l'Alliance, divisés selon les points cardinaux, la Mer Nuageuse n'obéissait pas à cette logique. La brume rendait la détermination des directions exactes presque impossible pour les cultivateurs.
 
 Le brouillard ne permettait pas non plus une division géographique classique; le système était plutôt structuré selon la concentration de la brume. De l'intérieur vers l'extérieur, il y avait un total de neuf rangs!
 

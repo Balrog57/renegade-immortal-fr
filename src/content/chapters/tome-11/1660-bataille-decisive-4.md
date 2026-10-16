@@ -64,7 +64,7 @@ Après ce troisième tour, il restait encore un peu de force résiduelle qui fit
 
 Ce faisant, la roue tourna une fois de plus et compléta enfin son quatrième tour! Cette rotation provoqua un bourdonnement dans tout le système stellaire. Une force étrange fusionna l'âme originelle de Wang Lin avec toutes celles des cultivateurs du Royaume Intérieur pour lancer un balayage dévastateur.
 
-Sous ce souffle, tous les cultivateurs restants du Royaume Extérieur, où qu'ils fussent dans Allheaven, tremblèrent et virent leurs corps s'effondrer.
+Sous ce souffle, tous les cultivateurs restants du Royaume Extérieur, où qu'ils fussent dans Luotian, tremblèrent et virent leurs corps s'effondrer.
 
 La vieille femme qui avait tenté de tuer Wang Lin frémit et disparut: son âme fut totalement détruite!
 

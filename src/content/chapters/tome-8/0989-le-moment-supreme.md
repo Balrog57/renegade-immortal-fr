@@ -6,41 +6,41 @@ bookTitle: "Alliance's Secret"
 en: Chapter 989 - The Strongest Moment
 slug: le-moment-supreme
 ---
-Maître Hollow Wind n'était pas certain que Wang Lin ait créé ce sort qui avait failli lui faire perdre la raison. Il ressentait seulement que le sort était d'une puissance redoutable, et il voyait rarement un sort d'une telle envergure!
+Maître Fu Fengzi n'était pas certain que Wang Lin ait créé ce sort qui avait failli lui faire perdre la raison. Il ressentait seulement que le sort était d'une puissance redoutable, et il voyait rarement un sort d'une telle envergure!
 
-Si Maître Hollow Wind pensait que Wang Lin avait conçu son propre sort, c'était en raison de ses innombrables années d'expérience en culture et de son stade de culture au début du Purificateur du Nirvana. En éprouvant le sort, Maître Hollow Wind avait ressenti un manque de maîtrise!
+Si Maître Fu Fengzi pensait que Wang Lin avait conçu son propre sort, c'était en raison de ses innombrables années d'expérience en culture et de son stade de culture au début du Purificateur du Nirvana. En éprouvant le sort, Maître Fu Fengzi avait ressenti un manque de maîtrise!
 
 Ce manque de maîtrise ne provenait pas du fait que l'utilisateur n'était pas familier avec la technique, mais du sort lui-même. C’est comme un jade qui vient d'être poli: il semble très lisse, mais si vous le touchez, vous constaterez qu'il est encore un peu rugueux.
 
-Cela conduisit Maître Hollow Wind à poser sa question hésitante après avoir longuement réfléchi.
+Cela conduisit Maître Fu Fengzi à poser sa question hésitante après avoir longuement réfléchi.
 
-Wang Lin regarda calmement Maître Hollow Wind et hocha la tête.
+Wang Lin regarda calmement Maître Fu Fengzi et hocha la tête.
 
-Ce simple hochement fit naître une tempête dans le cœur de Maître Hollow Wind. Il fixa Wang Lin, abasourdi, incapable de prononcer un mot pendant un long moment.
+Ce simple hochement fit naître une tempête dans le cœur de Maître Fu Fengzi. Il fixa Wang Lin, abasourdi, incapable de prononcer un mot pendant un long moment.
 
-Les sorts auto-créés n'étaient pas l'apanage de n'importe qui. D'après l'expérience de Maître Hollow Wind, il avait entendu dire que seuls les vieux monstres au stade du Briseur du Nirvana étaient qualifiés pour concevoir des sorts qui leur étaient propres.
+Les sorts auto-créés n'étaient pas l'apanage de n'importe qui. D'après l'expérience de Maître Fu Fengzi, il avait entendu dire que seuls les vieux monstres au stade du Briseur du Nirvana étaient qualifiés pour concevoir des sorts qui leur étaient propres.
 
 En somme, tout sort auto-créé possédait une puissance dépassant l'imagination!
 
-« Auto-créé... » Maître Hollow Wind afficha une expression amère. Il n'aurait jamais imaginé que ce Wang Lin puisse créer un tel sort, et avec une telle puissance...
+« Auto-créé... » Maître Fu Fengzi afficha une expression amère. Il n'aurait jamais imaginé que ce Wang Lin puisse créer un tel sort, et avec une telle puissance...
 
-En repensant à la sensation de son corps se déchirant, le visage de Maître Hollow Wind pâlit. La douleur de ses membres lacérés était toujours présente, particulièrement vive dans son bras droit qui s'était déjà effondré.
+En repensant à la sensation de son corps se déchirant, le visage de Maître Fu Fengzi pâlit. La douleur de ses membres lacérés était toujours présente, particulièrement vive dans son bras droit qui s'était déjà effondré.
 
-Maître Hollow Wind comprit que si Wang Lin n'avait pas voulu le tuer, il aurait déjà succombé sous l'effet de ce sort auto-créé.
+Maître Fu Fengzi comprit que si Wang Lin n'avait pas voulu le tuer, il aurait déjà succombé sous l'effet de ce sort auto-créé.
 
-Tandis que des centaines d'idées traversaient l'esprit de Maître Hollow Wind, Wang Lin réfléchissait également. Le choc que la Nuit Brisée avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Hollow Wind. En fait, il était encore plus stupéfait!
+Tandis que des centaines d'idées traversaient l'esprit de Maître Fu Fengzi, Wang Lin réfléchissait également. Le choc que la Nuit Brisée avait infligé à Wang Lin n'était pas moindre que celui ressenti par Maître Fu Fengzi. En fait, il était encore plus stupéfait!
 
-« Ma culture actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade final, mais loin du sommet du stade de fin de Scruteur du Nirvana. La différence entre ma culture et celle d'un Purificateur du Nirvana est immense, alors pourquoi la Nuit Brisée a-t-elle pu blesser si facilement Maître Hollow Wind... »
+« Ma culture actuelle n'est qu'au sommet du milieu du stade Scruteur du Nirvana, un pas avant le stade final, mais loin du sommet du stade de fin de Scruteur du Nirvana. La différence entre ma culture et celle d'un Purificateur du Nirvana est immense, alors pourquoi la Nuit Brisée a-t-elle pu blesser si facilement Maître Fu Fengzi... »
 
 Wang Lin continua de méditer sur ce problème.
 
 Tout en réfléchissant, il leva sa main droite et ses yeux brillèrent intensément. Le ressenti de la Nuit Brisée apparut dans son esprit et une lumière dorée jaillit de sa paume. Cette lueur était aussi éclatante que le soleil ardent!
 
-Maître Hollow Wind, terrifié, endurait la douleur pour se relever et battre en retraite. Il ne vit pas que Wang Lin fronça les sourcils.
+Maître Fu Fengzi, terrifié, endurait la douleur pour se relever et battre en retraite. Il ne vit pas que Wang Lin fronça les sourcils.
 
 Wang Lin agita la main droite et la lumière dorée se dissipa.
 
-Maître Hollow Wind poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent cette fois, et la perte de mon bras droit est un rappel cinglant de mon erreur. Moi, Maître Hollow Wind, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
+Maître Fu Fengzi poussa un soupir et dit respectueusement: « Je me souviendrai de la clémence du Compagnon Cultivateur Wang! J'ai été imprudent cette fois, et la perte de mon bras droit est un rappel cinglant de mon erreur. Moi, Maître Fu Fengzi, je jure par mon Dao que cela ne se reproduira pas une seconde fois! »
 
 Bien qu'il ait admis sa défaite face à Wang Lin, il nourrissait toujours une rancœur. À l'origine, il avait décidé de se rebeller dans la Terre des Esprits Démoniques.
 
@@ -50,15 +50,15 @@ Quant à savoir si ce sort avait réellement été créé par Wang Lin, il ne s'
 
 Toutefois, que ce soit vrai ou faux n'avait plus d'importance. Le choc provoqué par le sort l'avait poussé à abandonner toute idée de rébellion. D'une certaine manière, il s'en sentait soulagé, n'ayant plus à porter ce poids.
 
-De plus, après avoir reçu la clémence deux fois, Maître Hollow Wind savait qu'il n'y aurait pas de troisième chance!
+De plus, après avoir reçu la clémence deux fois, Maître Fu Fengzi savait qu'il n'y aurait pas de troisième chance!
 
-Wang Lin regarda calmement Maître Hollow Wind. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
+Wang Lin regarda calmement Maître Fu Fengzi. Ils étaient tous deux des hommes sensés, il n'était donc pas nécessaire de multiplier les avertissements. Il se contenta de hocher la tête et laissa l'affaire derrière lui.
 
-« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Hollow Wind commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniques.
+« Compagnon Cultivateur Wang, d'après ce que je sais des vieux monstres de la planète Tian Yun, la Terre des Esprits Démoniques devrait bientôt s'ouvrir. Cela pourrait arriver dans quelques mois, ou au plus tard dans une demi-année. Je suis gravement blessé et dois me retirer en culture fermée; je ne vous dérangerai donc pas davantage. » Désormais résolu à aider Wang Lin, Maître Fu Fengzi commença progressivement à envisager ce qui pourrait se passer dans la Terre des Esprits Démoniques.
 
-Après avoir salué Wang Lin, Maître Hollow Wind retourna à son palais pour commencer sa culture.
+Après avoir salué Wang Lin, Maître Fu Fengzi retourna à son palais pour commencer sa culture.
 
-Une fois Maître Hollow Wind parti, Wang Lin fronça les sourcils en observant sa main droite. Après un moment de silence, il utilisa à nouveau la Nuit Brisée et la lumière dorée réapparut.
+Une fois Maître Fu Fengzi parti, Wang Lin fronça les sourcils en observant sa main droite. Après un moment de silence, il utilisa à nouveau la Nuit Brisée et la lumière dorée réapparut.
 
 Dès l'apparition de cette lueur, l'énergie d'origine dans le corps de Wang Lin se rua vers sa main telle une meute de chevaux sauvages et incontrôlables.
 
@@ -88,7 +88,7 @@ Une illumination divine apparut dans les yeux de Wang Lin. D'une simple pensée,
 
 « Le moment où le soleil dépasse l'horizon est celui où je suis à mon apogée! »
 
-Lorsqu'il retourna au palais, son regard se fit glacial et il murmura: « Hormis Maître Hollow Wind, je me demande bien qui sera le premier à croiser ma route alors que je suis à la hauteur de ma puissance! »
+Lorsqu'il retourna au palais, son regard se fit glacial et il murmura: « Hormis Maître Fu Fengzi, je me demande bien qui sera le premier à croiser ma route alors que je suis à la hauteur de ma puissance! »
 
 Wang Lin s'assit en position de lotus. Ses mains formèrent alors des sceaux et d'innombrables restrictions emplirent le palais. Il pointa ensuite l'espace entre ses sourcils pour activer la restriction du cœur, libérant une multitude de lignes noires.
 

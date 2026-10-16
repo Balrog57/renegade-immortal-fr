@@ -16,9 +16,9 @@ Les trois frères Chen étaient en pleine culture lorsqu'ils ouvrirent soudainem
 
 Cependant, ce sens divin était d'une puissance telle que, dès leur apparition, ils durent reculer de milliers de pieds et déployer toute leur force pour tenter de tenir bon.
 
-Big Head et Lei Ji ressentirent également cette onde dévastatrice. Le niveau de culture de Lei Ji n'étant pas assez élevé, il cracha immédiatement du sang. Pourtant, loin d'être effrayé, il affichait un visage sombre de détermination.
+Da Tou et Lei Ji ressentirent également cette onde dévastatrice. Le niveau de culture de Lei Ji n'étant pas assez élevé, il cracha immédiatement du sang. Pourtant, loin d'être effrayé, il affichait un visage sombre de détermination.
 
-Big Head résista à l'impact du sens divin et rejoignit le palais de Wang Lin. Là, il se tint aux côtés de Ta Shan pour protéger la demeure de Wang Lin.
+Da Tou résista à l'impact du sens divin et rejoignit le palais de Wang Lin. Là, il se tint aux côtés de Ta Shan pour protéger la demeure de Wang Lin.
 
 Quant aux cultivateurs juniors, ils étaient tous extrêmement pâles. Ceux qui n'étaient que légèrement blessés crachaient du sang, tandis que les plus touchés s'évanouissaient. Seules Zhao Xue et Ling Er, protégées par des artefacts confiés par les trois frères Chen, parvinrent à peine à tenir debout.
 
@@ -26,7 +26,7 @@ Ce sens divin d'une arrogance extrême balaya le palais où se trouvait Wang Lin
 
 Le sens divin de Wang Lin était presque totalement lié à la charogne féminine. À moins qu'un être ne possède un niveau de culture bien supérieur, il n'aurait perçu que la charogne elle-même. Après tout, celle-ci se trouvait également au stade Purificateur du Nirvana.
 
-Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Hollow Wind brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard; il traça un sceau et pointa le doigt vers l'avant.
+Le sens divin marqua une hésitation avant de continuer sa course. Au loin, les yeux du Maître Fu Fengzi brillèrent puis se plissèrent. Tandis que le sens divin se propageait, une lueur sombre traversa son regard; il traça un sceau et pointa le doigt vers l'avant.
 
 Le sens divin s'accumula comme un tourbillon avant de reculer dans un éclat de rire.
 
@@ -82,7 +82,7 @@ Mais si l'on comprenait les lois, on pouvait utiliser la *transformation* en com
 
 Cette fameuse « transformation » consistait en un changement qualitatif: en absorbant l'énergie originelle puis en la comprimant de manière répétée, elle se transformait en une puissance mystérieuse que les cultivateurs Purificateur du Nirvana appelaient la « puissance de la loi ».
 
-En vérité, le sort créé par Wang Lin appartenait à cette puissance de la loi! C'était un phénomène extrêmement rare chez les cultivateurs Purificateur du Nirvana, et plus encore chez les Scruteur du Nirvana. Voilà pourquoi le Maître Hollow Wind était si stupéfait!
+En vérité, le sort créé par Wang Lin appartenait à cette puissance de la loi! C'était un phénomène extrêmement rare chez les cultivateurs Purificateur du Nirvana, et plus encore chez les Scruteur du Nirvana. Voilà pourquoi le Maître Fu Fengzi était si stupéfait!
 
 Situ Nan cria alors que le vortex de 30 mètres devant lui se contracta jusqu'à n'atteindre que la taille de sa main, avant de foncer droit sur la formation planétaire.
 

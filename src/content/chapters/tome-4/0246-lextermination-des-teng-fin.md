@@ -54,45 +54,45 @@ Wang Lin leva sa main droite. Son doigt irradia une lumière dorée tandis qu'il
 
 Mais à cet instant précis, un rugissement retentit au loin: « Arrête! »
 
-En entendant cette voix, Teng Huayuan reconnut immédiatement Punnan Zi. Une étincelle d'excitation brilla en lui; il savait qu'il avait peut-être une chance de survivre aujourd'hui. Son regard tourné vers Wang Lin se fit soudainement meurtrier.
+En entendant cette voix, Teng Huayuan reconnut immédiatement Pu Nanzi. Une étincelle d'excitation brilla en lui; il savait qu'il avait peut-être une chance de survivre aujourd'hui. Son regard tourné vers Wang Lin se fit soudainement meurtrier.
 
 Son instinct de survie s'était réveillé. S'il restait une once de chance, il ne se laisserait pas abattre si facilement. Quelle histoire de rancœur effacée? Il n'avait dit cela que parce qu'il pensait sa mort imminente.
 
 S'il survivait aujourd'hui, il trouverait un moyen d'atteindre le stade de la Formation de l'Âme, quel qu'en soit le prix, afin de pouvoir tuer Wang Lin avec la plus grande cruauté pour se venger.
 
-Cependant, il avait surestimé Punnan Zi et sous-estimé Wang Lin. Le Sens Divin de Wang Lin était aussi puissant que celui d'un cultivateur au stade de la Formation de l'Âme. Comment aurait-il pu ne pas remarquer Punnan Zi de si loin et le laisser l'interrompre?
+Cependant, il avait surestimé Pu Nanzi et sous-estimé Wang Lin. Le Sens Divin de Wang Lin était aussi puissant que celui d'un cultivateur au stade de la Formation de l'Âme. Comment aurait-il pu ne pas remarquer Pu Nanzi de si loin et le laisser l'interrompre?
 
-Au moment où Punnan Zi apparut, Wang Lin projeta la lumière dorée de son doigt sur le front de Teng Huayuan et l'acheva.
+Au moment où Pu Nanzi apparut, Wang Lin projeta la lumière dorée de son doigt sur le front de Teng Huayuan et l'acheva.
 
 C'était bien comme Teng Huayuan l'avait prédit; la querelle entre les familles Teng et Wang était terminée. La famille Teng était désormais totalement effacée de ce monde.
 
-La silhouette de Punnan Zi apparut soudainement devant lui. Il regarda le sang qui inondait le sol, le cadavre de Teng Huayuan dont le visage avait esquissé une lueur d'espoir de vivre, et enfin la tour de têtes. Il ne put s'empêcher de frissonner.
+La silhouette de Pu Nanzi apparut soudainement devant lui. Il regarda le sang qui inondait le sol, le cadavre de Teng Huayuan dont le visage avait esquissé une lueur d'espoir de vivre, et enfin la tour de têtes. Il ne put s'empêcher de frissonner.
 
 Sans perdre un instant, il forma un sceau de sa main. Des faisceaux de lumière verte et rouge jaillirent de son sac de rangement.
 
-L'expression de Wang Lin resta sereine alors qu'il fixait Punnan Zi: « Tu es en retard. »
+L'expression de Wang Lin resta sereine alors qu'il fixait Pu Nanzi: « Tu es en retard. »
 
-Punnan Zi regarda Wang Lin, stupéfait. Après l'avoir scruté attentivement, il s'exclama: « Tu... tu es un disciple de la Secte Heng Yue! »
+Pu Nanzi regarda Wang Lin, stupéfait. Après l'avoir scruté attentivement, il s'exclama: « Tu... tu es un disciple de la Secte Heng Yue! »
 
-Wang Lin fixa Punnan Zi et, sans un mot, son Royaume Ji jaillit. Cependant, au moment où l'éclair rouge atteignit Punnan Zi, les lumières verte et rouge formèrent un bouclier protecteur. Lorsque le Royaume Ji percuta la barrière, les deux lumières éclatèrent d'un vif éclat. Finalement, elles réussirent à bloquer l'attaque, mais leur intensité s'estompa considérablement.
+Wang Lin fixa Pu Nanzi et, sans un mot, son Royaume Ji jaillit. Cependant, au moment où l'éclair rouge atteignit Pu Nanzi, les lumières verte et rouge formèrent un bouclier protecteur. Lorsque le Royaume Ji percuta la barrière, les deux lumières éclatèrent d'un vif éclat. Finalement, elles réussirent à bloquer l'attaque, mais leur intensité s'estompa considérablement.
 
-L'expression de Punnan Zi changea radicalement. Sans perdre une seconde, il mordit le bout de sa langue et cracha du sang sur les lumières protectrices.
+L'expression de Pu Nanzi changea radicalement. Sans perdre une seconde, il mordit le bout de sa langue et cracha du sang sur les lumières protectrices.
 
-Punnan Zi pointa Wang Lin du doigt et hurla: « Va! »
+Pu Nanzi pointa Wang Lin du doigt et hurla: « Va! »
 
 Soudain, les lueurs verte et rouge s'élancèrent en avant, déchirant l'espace sur leur passage. Wang Lin pointa sa main droite et toutes les restrictions des drapeaux de restriction surgirent sous la forme de dragons pour tenter d'intercepter les lumières.
 
 Mais la qualité de ces énergies était extrêmement élevée. Les restrictions ne purent que ralentir leur progression, sans parvenir à les stopper.
 
-Les yeux de Wang Lin s'illuminèrent alors que son Royaume Ji réapparaissait. Sa cible n'était pas les lumières verte et rouge, mais Punnan Zi.
+Les yeux de Wang Lin s'illuminèrent alors que son Royaume Ji réapparaissait. Sa cible n'était pas les lumières verte et rouge, mais Pu Nanzi.
 
-Le visage de Punnan Zi se décomposa. Alors qu'il faisait face à une situation de vie ou de mort, une main gigantesque apparut de nulle part et saisit l'éclair du Royaume Ji. La main serra légèrement et l'éclair rouge fut pulvérisé, mais au même moment, la main géante trembla et émit un faible grognement.
+Le visage de Pu Nanzi se décomposa. Alors qu'il faisait face à une situation de vie ou de mort, une main gigantesque apparut de nulle part et saisit l'éclair du Royaume Ji. La main serra légèrement et l'éclair rouge fut pulvérisé, mais au même moment, la main géante trembla et émit un faible grognement.
 
-Peu après, un homme d'âge moyen, vêtu de vêtements luxueux sur un ventre quelque peu rebondi, apparut devant Punnan Zi. Il jeta un regard surpris à Wang Lin avant de manifester une expression d'extase: « C'était donc toi! » Sur ce, il agita la main droite et les lumières verte et rouge revinrent rapidement flotter autour de lui.
+Peu après, un homme d'âge moyen, vêtu de vêtements luxueux sur un ventre quelque peu rebondi, apparut devant Pu Nanzi. Il jeta un regard surpris à Wang Lin avant de manifester une expression d'extase: « C'était donc toi! » Sur ce, il agita la main droite et les lumières verte et rouge revinrent rapidement flotter autour de lui.
 
-L'apparition de cet homme permit à Punnan Zi de se détendre un peu. Il s'inclina et dit: « Salutations, noble messager. »
+L'apparition de cet homme permit à Pu Nanzi de se détendre un peu. Il s'inclina et dit: « Salutations, noble messager. »
 
-Bien que Punnan Zi fût rassuré, il en eut le cuir chevelu qui picotait. Il ignorait la nature exacte de cet éclair rouge, mais lorsqu'il l'avait vu approcher, il avait senti qu'il pouvait mourir instantanément. Ce sentiment de danger, il ne l'avait ressenti que sur le champ de bataille étranger.
+Bien que Pu Nanzi fût rassuré, il en eut le cuir chevelu qui picotait. Il ignorait la nature exacte de cet éclair rouge, mais lorsqu'il l'avait vu approcher, il avait senti qu'il pouvait mourir instantanément. Ce sentiment de danger, il ne l'avait ressenti que sur le champ de bataille étranger.
 
 Il n'avait aucun doute: si le noble messager n'était pas intervenu, il serait déjà un cadavre. Il regarda Wang Lin avec un mélange de peur profonde et de regret.
 

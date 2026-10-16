@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 695 - Wang Pings Request
 slug: la-requete-de-wang-ping
 ---
-Depuis la disparition de l'ancêtre de la famille Ran et de Carefree Shanren, la famille Sun avait repris la position de la famille Ran sur la planète Ran Yun grâce à Sun Xi. Ils étaient devenus plus puissants que l'ancienne lignée Ran, s'imposant comme la force dominante de la planète.
+Depuis la disparition de l'ancêtre de la famille Ran et de Xiaoyao Sanren, la famille Sun avait repris la position de la famille Ran sur la planète Ran Yun grâce à Sun Xi. Ils étaient devenus plus puissants que l'ancienne lignée Ran, s'imposant comme la force dominante de la planète.
 
 Au cours de ces vingt années de changements, les membres de la famille Sun étaient devenus arrogants.
 

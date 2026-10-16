@@ -50,9 +50,9 @@ Wang Lin recula de quelques pas et parla avec calme. Il savait que Lie Yunzi ne 
 
 Tandis que Lie Yunzi fixait Wang Lin, mille pensées se bousculaient dans son esprit. Il connaissait naturellement les dangers du troisième parchemin. Au fil des âges, tous ceux qui avaient tenté de l'ouvrir avaient péri instantanément. Lui-même n'osait toujours pas s'y aventurer.
 
-De plus, ce Xu Mu avait accompli de grands mérites pour Allheaven. S'il piégeait réellement ce Xu Mu ou si celui-ci mourait en consultant le parchemin, Maître Flamespark interviendrait sans doute.
+De plus, ce Xu Mu avait accompli de grands mérites pour Luotian. S'il piégeait réellement ce Xu Mu ou si celui-ci mourait en consultant le parchemin, Maître Yan Leizi interviendrait sans doute.
 
-Toutefois, Lie Yunzi ne s'en souciait guère. Il savait que Maître Flamespark ne se retournerait pas contre lui pour une simple affaire de cadet lors de cette guerre.
+Toutefois, Lie Yunzi ne s'en souciait guère. Il savait que Maître Yan Leizi ne se retournerait pas contre lui pour une simple affaire de cadet lors de cette guerre.
 
 Ce qui l'inquiétait, c'était Qing Shui!
 
@@ -62,7 +62,7 @@ De son point de vue, Qing Shui était un fou furieux. Il était fort probable qu
 
 « Au cours des âges, la seule personne que j'ai rencontrée capable de percevoir le domaine à l'intérieur du parchemin fut Xu Mu. S'il meurt, je ne sais pas quand je retrouverai un tel talent... Il vaut mieux entretenir de bons rapports avec lui! » En réfléchissant ainsi, Lie Yunzi eut un éclat de rire et ses yeux se remplirent d'admiration. Il hocha la tête et déclara:
 
-« Bien, tu n'es pas du tout impulsif. Tu es digne d'être le Céleste du Tonnerre d'Allheaven! Xu Mu, bien que ma famille Zhan ne possède pas de sort comme la famille Xiang pour aider à régénérer ton fragment d'âme, nous avons un sort qui permet de renforcer l'âme. À l'avenir, lorsque tu reviendras chercher ce vieil homme pour consulter le troisième parchemin, je ne te laisserai pas repartir les mains vides. Je t'enseignerai ce sort! Je te promets également de t'aider en une chose, en utilisant toute la puissance de la famille Zhan, tant que cela relève de nos capacités! »
+« Bien, tu n'es pas du tout impulsif. Tu es digne d'être le Céleste du Tonnerre de Luotian! Xu Mu, bien que ma famille Zhan ne possède pas de sort comme la famille Xiang pour aider à régénérer ton fragment d'âme, nous avons un sort qui permet de renforcer l'âme. À l'avenir, lorsque tu reviendras chercher ce vieil homme pour consulter le troisième parchemin, je ne te laisserai pas repartir les mains vides. Je t'enseignerai ce sort! Je te promets également de t'aider en une chose, en utilisant toute la puissance de la famille Zhan, tant que cela relève de nos capacités! »
 
 Lie Yunzi venait de faire une immense promesse. Le visage de Wang Lin exprima sa gratitude et il dit respectueusement: « Merci, Senior. Vous pouvez être tranquille à ce sujet! »
 
@@ -70,9 +70,9 @@ Lie Yunzi sourit en hochant la tête: « Peu importe. Puisque vous avez rendez-v
 
 Wang Lin joignit les mains et partit. Après quelques pas, il se transforma en un rayon de lumière et disparut au loin.
 
-Dès que Wang Lin fut parti, l'expression de Lie Yunzi redevint lugubre et il marmonna: « Maître Flamespark ne se disputera pas avec moi pour une chose aussi insignifiante, mais il y a Qing Shui... Cependant, Qing Shui ne vivra plus longtemps... Une fois qu'il sera mort, je veux voir comment tu échapperas à moi, Xu Mu! »
+Dès que Wang Lin fut parti, l'expression de Lie Yunzi redevint lugubre et il marmonna: « Maître Yan Leizi ne se disputera pas avec moi pour une chose aussi insignifiante, mais il y a Qing Shui... Cependant, Qing Shui ne vivra plus longtemps... Une fois qu'il sera mort, je veux voir comment tu échapperas à moi, Xu Mu! »
 
-Après avoir quitté cette planète de culture, l'expression de Wang Lin devint sombre. Lorsqu'il fut convoqué par Lie Yunzi, il n'avait pas d'autre choix que de s'y rendre, sous peine de l'offenser. S'il voulait emprunter la puissance d'Allheaven pour conjurer une crise future, il devait répondre à cette convocation.
+Après avoir quitté cette planète de culture, l'expression de Wang Lin devint sombre. Lorsqu'il fut convoqué par Lie Yunzi, il n'avait pas d'autre choix que de s'y rendre, sous peine de l'offenser. S'il voulait emprunter la puissance de Luotian pour conjurer une crise future, il devait répondre à cette convocation.
 
 De plus, ils avaient maintenu une certaine relation, il n'avait donc aucune raison de décliner.
 
@@ -80,7 +80,7 @@ Puisqu'il n'avait pas le choix, et avec toute la ruse qui le caractérisait, Wan
 
 En analysant la situation, Wang Lin avait compris que rencontrer Lie Yunzi n'était pas dénué d'avantages. La réalité lui donna raison: non seulement il avait obtenu davantage d'énergie d'origine et appris l'origine du Parchemin de Bataille, mais il avait aussi acquis une bille de sang de Lou Fu.
 
-S'il n'était pas venu voir Lie Yunzi, les troubles à venir auraient été bien plus violents. Après tout, Lie Yunzi était l'un des vieux monstres d'Allheaven!
+S'il n'était pas venu voir Lie Yunzi, les troubles à venir auraient été bien plus violents. Après tout, Lie Yunzi était l'un des vieux monstres de Luotian!
 
 Tout en volant, Wang Lin se remémora les événements et son expression se calma progressivement. Il eut un ricanement méprisant avant de disparaître parmi les étoiles.
 

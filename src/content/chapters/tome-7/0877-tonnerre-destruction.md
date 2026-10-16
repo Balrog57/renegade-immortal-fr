@@ -100,7 +100,7 @@ La terre tremblait violemment, comme si l'apocalypse avait sonné!
 
 Cela ne concernait pas seulement le champ de bataille. À l'extérieur, dans le Temple Céleste du Tonnerre, la pièce de bois octogonale suspendue dans les airs s'agita frénétiquement. Des rayons de tonnerre apparurent et parcoururent l'objet. D'immenses éclairs surgirent dans le ciel comme s'ils étaient invoqués, convergeant tous vers la pièce de bois comme pour lui rendre un culte!
 
-Maître Flamespark se leva brusquement et fixa l'objet octogonal. Son expression était sombre alors qu'il formait deux sceaux de ses mains. D'innombrables sceaux furent projetés sur la pièce de bois, qui finit par cesser progressivement de trembler.
+Maître Yan Leizi se leva brusquement et fixa l'objet octogonal. Son expression était sombre alors qu'il formait deux sceaux de ses mains. D'innombrables sceaux furent projetés sur la pièce de bois, qui finit par cesser progressivement de trembler.
 
 À cet instant, les cultivateurs environnants étaient tous plongés dans diverses spéculations sur ce qui se tramait.
 

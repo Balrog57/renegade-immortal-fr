@@ -16,7 +16,7 @@ La statue de pierre s'effondra soudainement en un tas de gravats, soulevant une 
 
 « Le Royaume Extérieur... » Pour une raison quelconque, lorsque Wang Lin vit cette scène à travers la statue, son sang commença à bouillir!
 
-Lorsqu'il avait vu la bataille entre Allheaven et l'Alliance, d'innombrables cultivateurs étaient morts, mais il n'avait pas ressenti cela. Lorsqu'il fut témoin de la grande calamité causée par un trésor entraînant la mort de cultivateurs sans nombre, il n'avait pas ressenti cela non plus. Il avait vu les grandes factions au sein de l'Alliance se livrer bataille, mais il n'avait pas ressenti cela.
+Lorsqu'il avait vu la bataille entre Luotian et l'Alliance, d'innombrables cultivateurs étaient morts, mais il n'avait pas ressenti cela. Lorsqu'il fut témoin de la grande calamité causée par un trésor entraînant la mort de cultivateurs sans nombre, il n'avait pas ressenti cela non plus. Il avait vu les grandes factions au sein de l'Alliance se livrer bataille, mais il n'avait pas ressenti cela.
 
 Pourtant, à cet instant, sans même savoir pourquoi, en voyant cette scène — et surtout la mort de tous ces ancêtres célestes — il sentit le sang lui monter à la tête.
 
@@ -98,7 +98,7 @@ Finalement, la lumière dorée jaillit du squelette pour fusionner avec le mot �
 
 Le mot doré « Bataille » vola directement vers Wang Lin et se logea entre ses sourcils! L'esprit de Wang Lin trembla.
 
-« Ce vieil homme est Zhan Xingye. Je sais que le Souverain tentera de me forcer à céder dans le futur. Cependant, en tant que cultivateur du Système Stellaire d'Allheaven, je préférerais mourir plutôt que de servir les gens du Royaume Extérieur. Que celui qui hérite de mon Dao comprenne cette intention de combat et se fraye un chemin vers le Royaume Extérieur par le massacre. Qu'il offre leur sang à mon esprit... »
+« Ce vieil homme est Zhan Xingye. Je sais que le Souverain tentera de me forcer à céder dans le futur. Cependant, en tant que cultivateur du Système Stellaire de Luotian, je préférerais mourir plutôt que de servir les gens du Royaume Extérieur. Que celui qui hérite de mon Dao comprenne cette intention de combat et se fraye un chemin vers le Royaume Extérieur par le massacre. Qu'il offre leur sang à mon esprit... »
 
 Le cœur de Wang Lin fut envahi par une intention de bataille monstrueuse, et d'innombrables scènes de Zhan Xingye affrontant le monde apparurent dans son esprit. Ces images contenaient une compréhension puissante du combat et, à mesure que sa compréhension s'approfondissait, son domaine commença à fusionner avec cette intention de bataille, provoquant un changement stupéfiant.
 

@@ -131,7 +131,7 @@ Une fois son âme originelle entrée dans la boussole des étoiles, sa vitesse a
 
 Cependant, ce mode de déplacement était épuisant pour son âme originelle. Déjà gravement blessée, celle-ci voyait ses blessures s'aggraver et sa lumière faiblir.
 
-Wang Lin traversa le domaine Nord et atteignit le domaine Sud du système stellaire d'Allheaven!
+Wang Lin traversa le domaine Nord et atteignit le domaine Sud du système stellaire de Luotian!
 
 Se déplacer à pleine vitesse sur une aussi longue période affaiblit progressivement son âme originelle, qui ne pouvait plus tenir longtemps. Cependant, le Serpent aux yeux de lune ralentit également avant de s'arrêter net à la frontière du domaine Sud. Il émit quelques grondements étouffés, mais n'osa pas franchir la limite.
 
@@ -177,7 +177,7 @@ Tous les os du corps de Cupidité étaient brisés et ses entrailles s'étaient 
 
 Loin de mourir, ses yeux étaient empreints d'extase.
 
-Lorsqu'il était arrivé dans le système stellaire Allheaven, son corps était couvert de marques. Chacune de ces marques renfermait un pouvoir inimaginable capable de le tuer instantanément. Cependant, lorsque le doigt du Dieu Ancien s'était approché, un phénomène mystérieux s'était produit, provoquant l'effondrement simultané de toutes les marques!
+Lorsqu'il était arrivé dans le système stellaire Luotian, son corps était couvert de marques. Chacune de ces marques renfermait un pouvoir inimaginable capable de le tuer instantanément. Cependant, lorsque le doigt du Dieu Ancien s'était approché, un phénomène mystérieux s'était produit, provoquant l'effondrement simultané de toutes les marques!
 
 Seule la marque de l'Omniscient subsistait.
 

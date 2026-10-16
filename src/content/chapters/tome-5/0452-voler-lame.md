@@ -56,9 +56,9 @@ Mais ils étaient bien trop nombreux pour quelqu'un de son niveau de culture act
 
 S'ajoutant à cela, des centaines de millions de fragments d'âme plus faibles s'approchaient. Après avoir pesé le pour et le contre, il n'avait aucune intention de combattre et s'enfuit rapidement.
 
-Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a cent ans ait déjà atteint le stade de la Transformation de l'Âme et possède ce Drapeau de l'Âme d'un Milliard d'Âmes que le Clan des Immortels Déchus redoutait tant.
+Il n'aurait jamais imaginé que le gamin qu'il aurait pu facilement tuer il y a cent ans ait déjà atteint le stade de la Transformation de l'Âme et possède ce Drapeau de l'Âme d'un Milliard d'Âmes que le Clan des Immortels Délaissés redoutait tant.
 
-Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan des Immortels Déchus. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
+Le vieil homme pouvait même sentir qu'une grande partie des fragments d'âme portait l'aura de son propre Clan des Immortels Délaissés. Ils devaient être les membres de son clan capturés et raffinés lors de la guerre passée.
 
 Au moment où le vieillard tentait de s'échapper, la femme qui poursuivait Wang Lin arriva. En voyant la scène dans la gorge, ses yeux s'illuminèrent. Elle se transforma en eau et se déplaça silencieusement vers l'homme.
 

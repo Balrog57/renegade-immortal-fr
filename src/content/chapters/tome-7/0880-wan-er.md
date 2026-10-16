@@ -12,11 +12,11 @@ Wang Lin le savait!
 
 Des ondulations apparurent au centre du bassin céleste et l'énergie spirituelle céleste commença à se répandre. Les cultivateurs environnants méditaient silencieusement sur les avantages et les inconvénients de la situation. Entrer ou non devint un choix déchirant pour eux.
 
-Maître Flamespark ne les força pas, mais observa calmement les jeunes devant lui.
+Maître Yan Leizi ne les força pas, mais observa calmement les jeunes devant lui.
 
-Non seulement lui, mais tous les observateurs alentour ainsi que les messagers du Temple Céleste du Tonnerre regardaient attentivement. Tous les cultivateurs du Système Stellaire d'Allheaven observaient également la scène avec ferveur.
+Non seulement lui, mais tous les observateurs alentour ainsi que les messagers du Temple Céleste du Tonnerre regardaient attentivement. Tous les cultivateurs du Système Stellaire de Luotian observaient également la scène avec ferveur.
 
-C'était comme si tout le Système Stellaire d'Allheaven était tombé dans un silence de mort. Tous les cultivateurs s'étaient tus.
+C'était comme si tout le Système Stellaire de Luotian était tombé dans un silence de mort. Tous les cultivateurs s'étaient tus.
 
 C'était un choix difficile. Personne ne pouvait dire lequel était le bon ou le mauvais!
 
@@ -72,13 +72,13 @@ De plus, le fait le plus crucial était que lorsque le bassin céleste était ap
 
 Parmi le Tonnerre Céleste, le Vice-Tonnerre Céleste et les 36 Célestes du Ciel, un total de 17 personnes choisirent d'entrer dans le bassin céleste. En plus de Wang Lin, Nangong Han, Shengong Hu et Zhan Konglie, une douzaine d'autres personnes choisirent de ne pas y entrer.
 
-« C'est votre propre choix. Ne le regrettez pas dans le futur! » Les yeux de Maître Flamespark balayèrent la foule. Il leva sa main droite et pointa vers l'avant. Dans un grondement, le bassin céleste s'éleva dans les airs et disparut.
+« C'est votre propre choix. Ne le regrettez pas dans le futur! » Les yeux de Maître Yan Leizi balayèrent la foule. Il leva sa main droite et pointa vers l'avant. Dans un grondement, le bassin céleste s'éleva dans les airs et disparut.
 
-« Je vous en prie, la Pierre de Bénédiction Céleste! » Le cri de Maître Flamespark était empreint d'un immense respect. À peine eut-il parlé que les nuages commencèrent à bouger. Ils se transformèrent en dragons de nuages qui se mirent à tournoyer autour de la zone.
+« Je vous en prie, la Pierre de Bénédiction Céleste! » Le cri de Maître Yan Leizi était empreint d'un immense respect. À peine eut-il parlé que les nuages commencèrent à bouger. Ils se transformèrent en dragons de nuages qui se mirent à tournoyer autour de la zone.
 
 Des vagues de pression écrasante descendirent du ciel et enveloppèrent les lieux.
 
-Tous les cultivateurs du Système Stellaire d'Allheaven observaient la scène avec attention.
+Tous les cultivateurs du Système Stellaire de Luotian observaient la scène avec attention.
 
 Un instant plus tard, l'un des dragons célestes descendit des cieux et cracha une pierre. Cette pierre ne mesurait que cinq pieds de long, mais lorsqu'elle toucha le sol, elle fit trembler inlassablement tout le Temple Céleste du Tonnerre.
 
@@ -88,7 +88,7 @@ Une puissante énergie spirituelle céleste balaya la zone et commença à se pr
 
 Les yeux de Xu Ting s'illuminèrent et il s'avança. Il arriva aux côtés de la pierre et, en la contemplant, fut frappé de stupeur.
 
-D'innombrables noms étaient gravés sur la Pierre de Bénédiction Céleste. Chaque nom dégageait une aura puissante, et l'on y trouvait même les noms de nombreuses figures illustres du Système Stellaire d'Allheaven. Cela renforça son désir ardent de graver son propre nom. Il leva la main droite, chercha une place et commença à graver.
+D'innombrables noms étaient gravés sur la Pierre de Bénédiction Céleste. Chaque nom dégageait une aura puissante, et l'on y trouvait même les noms de nombreuses figures illustres du Système Stellaire de Luotian. Cela renforça son désir ardent de graver son propre nom. Il leva la main droite, chercha une place et commença à graver.
 
 À cet instant, un flash de lumière verte jaillit. Une force colossale pénétra le corps de Xu Ting et le repoussa. Xu Ting ricana et l'énergie d'origine céleste en son sein déferla. Une brume noire apparut entre ses sourcils et s'engouffra dans son doigt. Il grava impitoyablement la Pierre de Bénédiction Céleste.
 
@@ -96,7 +96,7 @@ Il parvint tout juste à graver son nom. Une fois terminé, il eut l'impression 
 
 Wang Lin observa Xu Ting. Si ce dernier était si épuisé, c'était parce qu'une partie de son âme d'origine s'était détachée pour être absorbée par la pierre. Wang Lin devint immédiatement vigilant.
 
-Maître Flamespark hocha la tête. Quiconque pouvait graver son nom sur la pierre devait posséder une culture impressionnante. Il était très satisfait de Xu Ting; cet homme brillerait certainement lors de la bataille contre le Système Stellaire de l'Alliance.
+Maître Yan Leizi hocha la tête. Quiconque pouvait graver son nom sur la pierre devait posséder une culture impressionnante. Il était très satisfait de Xu Ting; cet homme brillerait certainement lors de la bataille contre le Système Stellaire de l'Alliance.
 
 Après Xu Ting, les 36 Célestes du Ciel s'avancèrent tous à leur tour. Cependant, hormis Nangong Han, le cultivateur aux six doigts et le garçon à la grosse tête, personne d'autre ne réussit à graver son nom.
 
@@ -104,7 +104,7 @@ Wang Lin fut le dernier. Ses yeux étaient calmes alors qu'il marchait lentement
 
 Ses réflexions attirèrent tous les regards. Wang Lin avait été très remarqué lors du concours de titres célestes. Lorsqu'il avait choisi de ne pas entrer dans le bassin céleste, cela avait suscité une vague de discussions. Le voir maintenant ainsi pensif devant la pierre poussa les cultivateurs alentour à émettre leurs propres conjectures.
 
-Non seulement eux, mais tous les habitants du Système Stellaire d'Allheaven qui voyaient la pierre étaient concentrés et observaient attentivement.
+Non seulement eux, mais tous les habitants du Système Stellaire de Luotian qui voyaient la pierre étaient concentrés et observaient attentivement.
 
 Ils voulaient savoir si ce Xu Mu allait renoncer. S'il ne renonçait pas, parviendrait-il à graver son nom? Bien que presque aucun d'entre eux n'ignorât la légende ou l'origine de la Pierre de Bénédiction Céleste.
 
@@ -118,9 +118,9 @@ Des éclats de lumière crue jaillirent de la pierre. Lorsque Wang Lin acheva le
 
 Pourtant, juste au moment où son âme d'origine était sur le point de fusionner avec la pierre, Wang Lin leva brusquement la tête. En utilisant la force de la pierre, il recula de quelques pas et parvint à interrompre le processus.
 
-Les yeux de Maître Flamespark se plissèrent et il lança un regard significatif à Wang Lin. Il avait vu que l'âme d'origine de Wang Lin ne s'était pas fusionnée avec la pierre. De plus, le nom gravé n'était ni celui de Wang Lin, ni celui de Xu Mu, mais celui de Maître Démon!
+Les yeux de Maître Yan Leizi se plissèrent et il lança un regard significatif à Wang Lin. Il avait vu que l'âme d'origine de Wang Lin ne s'était pas fusionnée avec la pierre. De plus, le nom gravé n'était ni celui de Wang Lin, ni celui de Xu Mu, mais celui de Maître Démon!
 
-« Ce Xu Mu est bel et bien un membre du Système Stellaire de l'Alliance. Il n'est pas avide et fait preuve de prudence! » Maître Flamespark détourna le regard.
+« Ce Xu Mu est bel et bien un membre du Système Stellaire de l'Alliance. Il n'est pas avide et fait preuve de prudence! » Maître Yan Leizi détourna le regard.
 
 « À présent, voici la dernière récompense pour le Tonnerre Céleste, le Vice-Tonnerre Céleste et les 36 Célestes du Ciel. Vous trente-huit pouvez chacun formuler un vœu. Le Temple Céleste du Tonnerre, la famille Xiang et la famille Gongsun feront de notre mieux pour vous aider! Toutefois, si quelqu'un formule délibérément une requête impossible, sa récompense sera annulée! »
 

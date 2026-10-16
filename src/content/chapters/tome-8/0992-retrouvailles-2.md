@@ -20,13 +20,13 @@ Situ Nan s'apprêtait initialement à partir, mais lorsqu'il entendit « Frère 
 
 Sur ces mots, il fit un pas et chargea vers le palais où se trouvait Wang Lin.
 
-Si Situ Nan n'était pas allé vers Wang Lin, le Maître Hollow Wind ne serait pas apparu. Ce dernier était déjà blessé, il n'aurait donc jamais aidé les trois frères Chen. Cependant, maintenant que Situ Nan s'approchait de Wang Lin, il se sentait obligé d'agir!
+Si Situ Nan n'était pas allé vers Wang Lin, le Maître Fu Fengzi ne serait pas apparu. Ce dernier était déjà blessé, il n'aurait donc jamais aidé les trois frères Chen. Cependant, maintenant que Situ Nan s'approchait de Wang Lin, il se sentait obligé d'agir!
 
 Les êtres ayant atteint son niveau de culture étaient assez directs. Pourtant, après plusieurs rencontres avec Wang Lin, ses sentiments étaient complexes. Wang Lin l'avait laissé partir à deux reprises. Bien que ce ne fût que pour obtenir son aide dans la Terre des Esprits Démoniaques, c'était lui qui avait eu tort les deux fois, il n'éprouvait donc aucune rancune.
 
-Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Hollow Wind s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, ce dernier apparut devant lui.
+Par conséquent, s'il n'intervenait pas maintenant, cela serait déraisonnable. Les yeux du Maître Fu Fengzi s'illuminèrent et il renonça à soigner ses propres blessures. Alors que Situ Nan se trouvait à moins de cinq kilomètres du palais de Wang Lin, ce dernier apparut devant lui.
 
-L'expression du Maître Hollow Wind était calme lorsqu'il dit lentement: « Confrère cultivateur, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir! »
+L'expression du Maître Fu Fengzi était calme lorsqu'il dit lentement: « Confrère cultivateur, puisque vous avez déjà pris les personnes que vous convoitez, le mieux serait de partir! »
 
 Les yeux de Situ Nan se plissèrent, mais son expression était empreinte d'impatience et il cria: « Si tu n'étais pas blessé, tu ne serais même pas à la hauteur, mais en l'état actuel, tu n'es absolument pas qualifié pour me barrer la route! » Tout en parlant, Situ Nan leva sa main droite et pointa le doigt sans hésiter.
 
@@ -36,19 +36,19 @@ Alors que ce doigt était projeté, le ciel changea de couleur et une aura de mo
 
 Empruntant l'infime étincelle de vie qui apparaîtrait dans une terre saturée de mort, il permettait au Doigt des Enfers de contenir une trace ténue de vitalité!
 
-En conséquence, il créa son propre équilibre Yin et Yang, devenant un sort féroce qui fonça droit sur le Maître Hollow Wind.
+En conséquence, il créa son propre équilibre Yin et Yang, devenant un sort féroce qui fonça droit sur le Maître Fu Fengzi.
 
-Le Maître Hollow Wind forma un sceau de ses mains et fit un geste ample. Une immense quantité d'énergie originelle se rassembla et entra en collision avec le Doigt des Enfers.
+Le Maître Fu Fengzi forma un sceau de ses mains et fit un geste ample. Une immense quantité d'énergie originelle se rassembla et entra en collision avec le Doigt des Enfers.
 
-Un fracas retentit, le corps du Maître Hollow Wind trembla et il fut contraint de reculer de plusieurs dizaines de pieds. Cependant, le Doigt des Enfers ne fut nullement affecté et continua sa poursuite après une brève pause.
+Un fracas retentit, le corps du Maître Fu Fengzi trembla et il fut contraint de reculer de plusieurs dizaines de pieds. Cependant, le Doigt des Enfers ne fut nullement affecté et continua sa poursuite après une brève pause.
 
 Le mépris emplissait les yeux de Situ Nan lorsqu'il hurla: « Mutation des Enfers! »
 
 À la suite de son cri, le vent des enfers se contracta rapidement et une aura destructrice se propagea avec frénésie.
 
-L'expression du Maître Hollow Wind changea radicalement. Voyant naturellement que ce vent était anormal, il recula sans hésiter.
+L'expression du Maître Fu Fengzi changea radicalement. Voyant naturellement que ce vent était anormal, il recula sans hésiter.
 
-Situ Nan ne prêta aucune attention au Maître Hollow Wind et marcha droit vers le palais de Wang Lin. Ta Shan et Big Head voulurent l'intercepter, mais Situ Nan agita sa manche. Big Head fut projeté au loin, tandis que Ta Shan parvint à maintenir sa position; après tout, il était un garde céleste. Ce dernier lança alors un coup de poing!
+Situ Nan ne prêta aucune attention au Maître Fu Fengzi et marcha droit vers le palais de Wang Lin. Ta Shan et Da Tou voulurent l'intercepter, mais Situ Nan agita sa manche. Da Tou fut projeté au loin, tandis que Ta Shan parvint à maintenir sa position; après tout, il était un garde céleste. Ce dernier lança alors un coup de poing!
 
 Ce coup créa un bang sonique qui chargea vers Situ Nan.
 

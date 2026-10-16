@@ -36,7 +36,7 @@ Ta Shan afficha une expression amère et murmura: « Dans mon enfance, j'entenda
 
 Wang Lin réfléchit en silence. Lorsqu'il avait entendu le vieil homme affirmer qu'ils étaient le Clan des Immortels Élus, il avait eu une intuition.
 
-« Le Clan des Immortels Élus... Le Clan des Immortels Abandonnés... Un choix fait pour abandonner... »
+« Le Clan des Immortels Élus... Le Clan des Immortels Délaissés... Un choix fait pour abandonner... »
 
 « Dites-moi, existe-t-il des immortels dans ce monde? Êtes-vous un immortel? » Ta Shan leva la tête et fixa Wang Lin. Sa voix était très basse, mais son impact était plus puissant qu'un rugissement.
 
@@ -50,7 +50,7 @@ Ta Shan laissa échapper un sourire misérable, recula de quelques pas et marmon
 
 Wang Lin fixa le Fourneau Yin Mystérieux et demanda lentement: « Qu'y a-t-il à l'intérieur de ce fourneau? »
 
-Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Sans Souci a introduit mon clan dans le corps de la Bête des Ténèbres pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
+Ta Shan murmura: « Je l'ignore. Les archives du clan disent qu'il y a d'innombrables années, le Roi Céleste Xiaoyaozi a introduit mon clan dans le corps de la Bête des Ténèbres pour garder ce Fourneau Yin Mystérieux jusqu'à son retour. »
 
 « Comment puis-je quitter cet endroit? » demanda Wang Lin en détournant le regard.
 
@@ -122,7 +122,7 @@ Le vieil homme réfléchit silencieusement. Après un instant, il inclina respec
 
 Wang Lin fixa la porte. En voyant le vieil homme l'ouvrir, il avait clairement vu ce dernier utiliser le tatouage entre ses sourcils; c'était manifestement son tatouage de vie.
 
-Tout en réfléchissant, Wang Lin frappa sa sacoche de stockage. Lorsqu'il était encore sur la planète Suzaku, il avait récupéré de nombreux crânes du Clan des Immortels Abandonnés. Dans un éclat de lumière, plusieurs crânes apparurent devant lui.
+Tout en réfléchissant, Wang Lin frappa sa sacoche de stockage. Lorsqu'il était encore sur la planète Suzaku, il avait récupéré de nombreux crânes du Clan des Immortels Délaissés. Dans un éclat de lumière, plusieurs crânes apparurent devant lui.
 
 Chaque crâne portait un tatouage complexe. Après les avoir examinés de près, Wang Lin les rangea. Puis, ses yeux brillèrent et il leva le regard vers le ciel.
 

@@ -34,7 +34,7 @@ Wang Lin poussa un rugissement et afficha une expression de douleur. Les lignes 
 
 La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur verte et commença à l'absorber.
 
-Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Ce sort de la Secte des Immortels Abandonnés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
+Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Ce sort de la Secte des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
 
 Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient pleinement formées et la dixième était partiellement achevée.
 
@@ -108,7 +108,7 @@ Le corps original poursuivait sa traque.
 
 « Cher compagnon cultivateur, nous ne nous connaissons même pas; pourquoi agir ainsi?! » La voix du vieil homme était étranglée par la peur. Il était déjà terrifié par la puissance des coups de cet homme.
 
-Hormis le guerrier du clan des Immortels Abandonnés, il n'avait jamais rencontré un tel cultivateur. D'un seul coup de poing, il pouvait détruire des trésors magiques; d'un simple pas, il créait des déchirures spatiales. Tout cela terrifiait le vieillard.
+Hormis le guerrier du clan des Immortels Délaissés, il n'avait jamais rencontré un tel cultivateur. D'un seul coup de poing, il pouvait détruire des trésors magiques; d'un simple pas, il créait des déchirures spatiales. Tout cela terrifiait le vieillard.
 
 Le corps original grogna et se fit encore plus féroce. D'un coup de poing, un sort semblable à une restriction apparut soudainement autour du vieil homme et de la femme au voile blanc.
 

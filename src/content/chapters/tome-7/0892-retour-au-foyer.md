@@ -14,7 +14,7 @@ Le sort de scellement, quant à lui, n'atteignait pas la perfection en matière 
 
 Wang Lin en était parfaitement conscient. Lorsque le sceau se posa entre les sourcils du garçon à la grosse tête, son corps trembla. Toute l'énergie d'origine céleste de son être commença à s'activer et un sceau identique se forma sur son âme originelle. Le garçon prit une profonde inspiration, se redressa avec un sourire amer et dit respectueusement: « Salutations, Maître. »
 
-Wang Lin regarda le garçon et ordonna: « Va à l'extérieur de la planète et renvoie les cultivateurs d'Allheaven. Quant à toi, reste ici. »
+Wang Lin regarda le garçon et ordonna: « Va à l'extérieur de la planète et renvoie les cultivateurs de Luotian. Quant à toi, reste ici. »
 
 Le garçon acquiesça promptement et poussa un soupir. Il s'élança dans les airs et fendit le ciel.
 
@@ -40,7 +40,7 @@ Dès que Zhou Wutai perçut ce sens divin, son corps trembla et son esprit fut b
 
 Les émotions de Yun Quezi étaient encore plus tourmentées. Le sens divin de Wang Lin l'avait également fait frissonner. Le petit garçon d'autrefois avait atteint un niveau de culture inimaginable. Il poussa un soupir, ayant l'impression de pouvoir encore voir la silhouette du jeune homme qui payait ses boissons au restaurant.
 
-Il songea à la bataille entre lui et Zhu Quezi, au conflit entre le Clan des Immortels Abandonnés et le pays de Suzaku. Désormais, tout cela semblait si insignifiant...
+Il songea à la bataille entre lui et Zhu Quezi, au conflit entre le Clan des Immortels Délaissés et le pays de Suzaku. Désormais, tout cela semblait si insignifiant...
 
 Par coïncidence, Zhou Wutai et Yun Quezi scellèrent l'information concernant le retour de Wang Lin. Hormis les cultivateurs qui s'étaient éveillés prématurément, personne d'autre ne savait que Wang Lin était revenu.
 

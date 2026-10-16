@@ -32,7 +32,7 @@ L'ombre d'une épée fendit le Royaume Céleste du Tonnerre. La glace environnan
 
 Une silhouette se tenait à la pointe de l'épée. Cet être était aussi éthéré que l'arme elle-même. Il regarda calmement devant lui avec un sourire avant de disparaître, emporté par l'épée.
 
-Plus de cent ondulations apparurent en divers points des quatre régions du Système Stellaire d'Allheaven. Bien qu'elles fussent apparues à des endroits différents, elles le furent toutes simultanément.
+Plus de cent ondulations apparurent en divers points des quatre régions du Système Stellaire de Luotian. Bien qu'elles fussent apparues à des endroits différents, elles le furent toutes simultanément.
 
 Un cultivateur se trouvait dans chaque ondulation. Tous ceux qui émergeaient étaient transportés par l'excitation. Le sentiment d'avoir échappé à la mort les plongea dans une transe dès qu'ils aperçurent les étoiles.
 
@@ -66,9 +66,9 @@ En particulier, ceux qui avaient été secourus par Xu Mu ne cessaient d'exagér
 
 Les anciens interrogèrent les témoins. Lorsqu'ils entendirent parler des divers sorts utilisés lors du combat contre l'étrange homme aux cheveux blancs, ils furent terrifiés.
 
-Le nom de « Xu Mu » devint une tempête dans le Système Stellaire d'Allheaven. Pourtant, personne ne le revit plus. C'était comme s'il s'était soudainement volatilisé, demeurant un mystère absolu.
+Le nom de « Xu Mu » devint une tempête dans le Système Stellaire de Luotian. Pourtant, personne ne le revit plus. C'était comme s'il s'était soudainement volatilisé, demeurant un mystère absolu.
 
-Système Stellaire d'Allheaven, domaine occidental.
+Système Stellaire de Luotian, domaine occidental.
 
 C'était un vaste domaine dominé par une immense nébuleuse émettant des lueurs éblouissantes. La formation des étoiles y était étrange et souvent hypnotique.
 

@@ -16,17 +16,17 @@ L'esprit de Lie Yunzi trembla; il se leva et recula de quelques pas. Fixant l'ho
 
 Il ne put achever sa phrase.
 
-L'homme en armure déclara lentement: « J'ai entendu dire que Wang Lin est votre Céleste du Tonnerre d'Allheaven. Est-ce vous qui convoitez sa personne, ou est-ce votre Temple du Céleste du Tonnerre qui le réclame? »
+L'homme en armure déclara lentement: « J'ai entendu dire que Wang Lin est votre Céleste du Tonnerre de Luotian. Est-ce vous qui convoitez sa personne, ou est-ce votre Temple du Céleste du Tonnerre qui le réclame? »
 
-Lie Yunzi fronça les sourcils: « Bien que cet homme appartienne à mon Allheaven, son statut de Céleste du Tonnerre a déjà été révoqué... » Il fixa l'homme en armure et ajouta: « Bien que je sois venu ici pour le demander, cela relève également de la volonté du Temple du Céleste du Tonnerre. »
+Lie Yunzi fronça les sourcils: « Bien que cet homme appartienne à mon Luotian, son statut de Céleste du Tonnerre a déjà été révoqué... » Il fixa l'homme en armure et ajouta: « Bien que je sois venu ici pour le demander, cela relève également de la volonté du Temple du Céleste du Tonnerre. »
 
-Alors que l'homme en armure observait Lie Yunzi, son sourire semblait transparaître à travers l'armure elle-même. Il dit d'une voix lente: « Oh? Je me demande bien quel grief lie Wang Lin à vous et à Allheaven. »
+Alors que l'homme en armure observait Lie Yunzi, son sourire semblait transparaître à travers l'armure elle-même. Il dit d'une voix lente: « Oh? Je me demande bien quel grief lie Wang Lin à vous et à Luotian. »
 
 L'inquiétude dans le cœur de Lie Yunzi s'accentua. Après une courte réflexion, il répondit: « Il entretient de nombreux liens avec le Temple du Céleste du Tonnerre, mais il serait fastidieux de les énumérer un par un. Cependant, envers moi, il a dérobé un trésor précieux de ma famille; je dois donc naturellement le récupérer. »
 
 « Ainsi, c'est la raison pour laquelle vous voulez Wang Lin. C'est compréhensible. » L'homme en armure hocha la tête, mais les quatre anciens qui l'entouraient affichèrent des expressions étranges sans toutefois prendre la parole.
 
-« J'espère que l'Empereur Divin acceptera ma requête. Après tout, mon Allheaven et les Quatre Sectes Divins ont un ennemi commun: l'Alliance! » Lie Yunzi se détendit légèrement. Bien qu'arrogant, il n'oserait pas offenser les Quatre Sectes Divins. Même si ces derniers avaient décliné, leur influence restait profonde; même Allheaven les craignait.
+« J'espère que l'Empereur Divin acceptera ma requête. Après tout, mon Luotian et les Quatre Sectes Divins ont un ennemi commun: l'Alliance! » Lie Yunzi se détendit légèrement. Bien qu'arrogant, il n'oserait pas offenser les Quatre Sectes Divins. Même si ces derniers avaient décliné, leur influence restait profonde; même Luotian les craignait.
 
 « Vous dites que Wang Lin a pris un trésor important de votre famille Zhan. Comment se fait-il que je n'en sache rien? » La question soudaine de l'homme en armure fit sursauter Lie Yunzi.
 
@@ -40,7 +40,7 @@ Avant qu'il ne puisse réagir, l'homme en armure se leva et posa sa main sur son
 
 Le contraste était si violent qu'il dépassait l'entendement de Lie Yunzi. Il fixait Wang Lin, le regard empreint d'incrédulité, mais sa terreur ne faisait que croître.
 
-L'un des quatre anciens aux côtés de Wang Lin fit un pas en avant et déclara d'un ton sombre: « Vous osez! Même si vous représentez le Temple du Céleste du Tonnerre d'Allheaven, vous n'avez aucun droit de juger l'Empereur Divin Vermillion Bird! »
+L'un des quatre anciens aux côtés de Wang Lin fit un pas en avant et déclara d'un ton sombre: « Vous osez! Même si vous représentez le Temple du Céleste du Tonnerre de Luotian, vous n'avez aucun droit de juger l'Empereur Divin Vermillion Bird! »
 
 D'un seul pas, la pression d'un cultivateur du Brise-Nirvana se propagea et s'abattit sur Lie Yunzi!
 
@@ -48,9 +48,9 @@ Déjà sous le choc, Lie Yunzi cracha une bouchée de sang lorsque cette pressio
 
 « Vous... »
 
-« Lie Yunzi, êtes-vous venu ici au nom d'Allheaven pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant à la Secte Divin Vermillion Bird réclamer l'Empereur Divin? C'est proprement absurde! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
+« Lie Yunzi, êtes-vous venu ici au nom de Luotian pour me féliciter de mon accession au trône d'Empereur Divin, ou êtes-vous ici pour m'humilier en venant à la Secte Divin Vermillion Bird réclamer l'Empereur Divin? C'est proprement absurde! » L'expression de Wang Lin était sombre et sa voix aussi glaciale que le vent des enfers.
 
-« Cette affaire revient à envoyer quelqu'un au Temple du Céleste du Tonnerre pour exiger le Maître Flamespark. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divin Vermillion Bird. Demain, votre Allheaven en paiera le prix! »
+« Cette affaire revient à envoyer quelqu'un au Temple du Céleste du Tonnerre pour exiger le Maître Yan Leizi. Lie Yunzi, à moins que vous ne me fournissiez une explication satisfaisante aujourd'hui, vous ne quitterez pas la Secte Divin Vermillion Bird. Demain, votre Luotian en paiera le prix! »
 
 « Ce n'est pas moi qui rends les choses difficiles. Le compagnon cultivateur Mo Zhi, du pays de Chu Yun, peut en être témoin! » Wang Lin ne laissa aucune chance à Lie Yunzi; il lança son assaut comme un coup de tonnerre!
 
@@ -74,9 +74,9 @@ La belle femme de la Secte des Cadavres garda également le silence. Elle observ
 
 La sueur perla lentement sur le front de Lie Yunzi. Il était évident qu'avec son niveau de culture, il ne pourrait s'échapper des Quatre Sectes Divins. En impliquant le Temple du Céleste du Tonnerre, Wang Lin avait été d'une cruauté sans nom. Ce n'était plus une affaire personnelle; c'était tout le Temple du Céleste du Tonnerre qui insultait l'Empereur Divin Vermillion Bird!
 
-C'était exactement le contraire de l'intention initiale d'Allheaven.
+C'était exactement le contraire de l'intention initiale de Luotian.
 
-« J'ai été imprudent, mais c'est une affaire personnelle et cela n'a rien à voir avec Allheaven! » Après un long moment, Lie Yunzi afficha une expression amère. Bien qu'il fût réticent, il fut contraint de joindre les mains devant Wang Lin pour s'expliquer.
+« J'ai été imprudent, mais c'est une affaire personnelle et cela n'a rien à voir avec Luotian! » Après un long moment, Lie Yunzi afficha une expression amère. Bien qu'il fût réticent, il fut contraint de joindre les mains devant Wang Lin pour s'expliquer.
 
 La colère qui bouillonnait en lui était assez puissante pour brûler le monde, et l'humiliation suffisait à dévorer son esprit. Autrefois, ce Wang Lin devait le respecter et composer avec ses humeurs; il pouvait l'éliminer à tout moment.
 
@@ -94,11 +94,11 @@ Wang Lin fit mine de n'avoir rien entendu et continua d'observer sa main droite.
 
 Les veines de Lie Yunzi gonflèrent tandis qu'il réprimait sa rage. En voyant les quatre anciens du Brise-Nirvana entourant Wang Lin, son esprit vacilla. Après une réflexion rapide, il força un air respectueux et dit: « J'espère que l'Empereur Divin ne tiendra pas rigueur de l'erreur de ce vieil homme. J'ai été imprudent, mais je n'avais nullement l'intention d'insulter... »
 
-Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Allheaven! Je me souviens très bien de votre réponse. Je me demande quel objet du Temple du Céleste du Tonnerre je détiens actuellement. »
+Wang Lin fixa sa main droite et déclara lentement: « Imprudent! Je vous ai demandé si cette affaire était personnelle ou si elle concernait Luotian! Je me souviens très bien de votre réponse. Je me demande quel objet du Temple du Céleste du Tonnerre je détiens actuellement. »
 
-« Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte des Cadavres et Mo Zhi n'avaient pas été là, il aurait tout déversé. Même s'il risquait de mourir, Allheaven se vengerait pour lui.
+« Vous! » Lie Yunzi leva la tête, réprimant la rage qui allait exploser. À cet instant, il n'osait pas s'emporter... Si la femme de la Secte des Cadavres et Mo Zhi n'avaient pas été là, il aurait tout déversé. Même s'il risquait de mourir, Luotian se vengerait pour lui.
 
-Cependant, l'autre partie avait pris l'ascendant. Avec les témoins présents, même Allheaven ne voudrait pas déclencher une guerre contre l'Alliance et les Quatre Sectes Divins pour une requête aussi absurde.
+Cependant, l'autre partie avait pris l'ascendant. Avec les témoins présents, même Luotian ne voudrait pas déclencher une guerre contre l'Alliance et les Quatre Sectes Divins pour une requête aussi absurde.
 
 Le regard de Wang Lin était d'une noirceur extrême. Lie Yunzi savait que s'il ne maîtrisait pas sa colère, il serait tué instantanément.
 

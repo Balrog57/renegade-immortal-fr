@@ -18,25 +18,25 @@ Après un moment de silence, les cultivateurs environnants commencèrent à chuc
 
 « Cette personne n'est certainement pas à sous-estimer. Il vaut mieux ne pas le provoquer. Il sera sans aucun doute parmi les trois premiers de la compétition! »
 
-Même les yeux de certains vieux monstres s'illuminèrent. Une pointe d'admiration se lisait dans leurs regards alors qu'ils observaient Wang Lin. Ce dont leur Système Stellaire Allheaven avait besoin, c'étaient des cultivateurs juniors comme lui!
+Même les yeux de certains vieux monstres s'illuminèrent. Une pointe d'admiration se lisait dans leurs regards alors qu'ils observaient Wang Lin. Ce dont leur Système Stellaire Luotian avait besoin, c'étaient des cultivateurs juniors comme lui!
 
 En particulier, l'ancêtre de la famille Xiang hocha la tête. Plus il regardait Wang Lin, plus il l'appréciait. Il se souciait peu de la perte subie par le Temple Céleste du Tonnerre; il pensait simplement que ce Xu Mu ressemblait beaucoup aux membres de son propre clan: il dégageait une aura maléfique!
 
 Les messagers célestes restèrent sans voix et cessèrent de battre le tambour. Dans leur esprit, si Xu Mu persistait, même s'ils battaient du tambour jusqu'à ce qu'il soit réduit en miettes, cela ne servirait à rien. Ils se regardèrent avec un sourire amer. Cependant, leurs regards envers Wang Lin ne contenaient aucune jalousie, mais plutôt une trace d'admiration.
 
-Wang Lin ignora tout cela. Après avoir quitté la place, il joignit les mains devant Maître Flamespark et dit: « Junior a commis une erreur. J'espère que Senior ne m'en tiendra pas rigueur. » Ses paroles ressemblaient fort à celles de son aîné, Qing Shui. Lorsque le Seigneur Céleste Qing Shui entendit cela, il esquissa un sourire.
+Wang Lin ignora tout cela. Après avoir quitté la place, il joignit les mains devant Maître Yan Leizi et dit: « Junior a commis une erreur. J'espère que Senior ne m'en tiendra pas rigueur. » Ses paroles ressemblaient fort à celles de son aîné, Qing Shui. Lorsque le Seigneur Céleste Qing Shui entendit cela, il esquissa un sourire.
 
-Maître Flamespark sourit et répondit: « Ce n'est rien. Abandonner un simple lac de tonnerre et le clone d'un esprit du tonnerre pour aider un junior puissant à croître en force est un juste prix. Quant à la destruction du lac, obtenir suffisamment de mérites militaires lors de la bataille contre le Système Stellaire de l'Alliance suffira! » Sur ce, il pointa son index droit. D'un seul geste, le monde sembla trembler et une énergie originelle infinie se rassembla. Cette énergie se transforma soudainement en une rune.
+Maître Yan Leizi sourit et répondit: « Ce n'est rien. Abandonner un simple lac de tonnerre et le clone d'un esprit du tonnerre pour aider un junior puissant à croître en force est un juste prix. Quant à la destruction du lac, obtenir suffisamment de mérites militaires lors de la bataille contre le Système Stellaire de l'Alliance suffira! » Sur ce, il pointa son index droit. D'un seul geste, le monde sembla trembler et une énergie originelle infinie se rassembla. Cette énergie se transforma soudainement en une rune.
 
 Cette rune était empreinte de vitalité. Les pupilles de Wang Lin se rétractèrent. Il pouvait clairement ressentir une trace d'énergie originelle source dans cette rune! Bien que ce ne fût qu'un fragment, il conférait à la rune un pouvoir infini!
 
-Maître Flamespark fit claquer ses doigts et la rune s'envola vers la place. Dès que la rune toucha le sol, l'énergie originelle se dispersa. Le fragment d'énergie originelle source pénétra également la place. Les cultivateurs environnants s'exclamèrent alors que la place fissurée commençait à se reformer comme si le temps remontait le cours de son flux.
+Maître Yan Leizi fit claquer ses doigts et la rune s'envola vers la place. Dès que la rune toucha le sol, l'énergie originelle se dispersa. Le fragment d'énergie originelle source pénétra également la place. Les cultivateurs environnants s'exclamèrent alors que la place fissurée commençait à se reformer comme si le temps remontait le cours de son flux.
 
 Même les pierres qui s'étaient transformées en cendres et s'étaient dissipées réapparurent du vide pour reconstituer l'esplanade. Tout cela se produisit en un instant. La place entière était revenue à la normale; la seule différence était l'absence de tonnerre.
 
 Après avoir observé ce spectacle, Wang Lin sembla atteindre une forme d'illumination.
 
-« La suivante sera la dernière des trois épreuves: l'épreuve céleste! » Maître Flamespark se tourna vers Lie Yunzi et dit: « Cher Camarade Cultivateur Lie Yunzi, je vous en prie! »
+« La suivante sera la dernière des trois épreuves: l'épreuve céleste! » Maître Yan Leizi se tourna vers Lie Yunzi et dit: « Cher Camarade Cultivateur Lie Yunzi, je vous en prie! »
 
 Lie Yunzi leva sa main droite et tendit le bras vers le vide. Une fissure apparut, d'où jaillit un air glacial. Puis, Lie Yunzi plongea la main dans la brèche et en retira un parchemin. Ce parchemin était vieux et dégageait une aura antique.
 
@@ -48,9 +48,9 @@ Bien que ce ne fût qu'un mot, il dégageait une intention de tuer si intense qu
 
 « Le trésor de la famille Zhan, le Parchemin de la Bataille! »
 
-« L'un des dix trésors du Système Stellaire Allheaven, le Parchemin de la Bataille. Seuls les membres de la famille Zhan sont autorisés à le consulter, mais cette fois, il a pu élargir mes horizons! »
+« L'un des dix trésors du Système Stellaire Luotian, le Parchemin de la Bataille. Seuls les membres de la famille Zhan sont autorisés à le consulter, mais cette fois, il a pu élargir mes horizons! »
 
-« C'est donc ce trésor! La rumeur dit que la famille Zhan ne s'appelait pas initialement "Zhan", mais que leur ancêtre a trouvé ce trésor par accident. Après l'avoir cultivé avec acharnement, ils ont changé de nom pour devenir le clan guerrier du Système Stellaire Allheaven! »
+« C'est donc ce trésor! La rumeur dit que la famille Zhan ne s'appelait pas initialement "Zhan", mais que leur ancêtre a trouvé ce trésor par accident. Après l'avoir cultivé avec acharnement, ils ont changé de nom pour devenir le clan guerrier du Système Stellaire Luotian! »
 
 Des vagues de bavardages résonnèrent. Les yeux de Lie Yunzi restèrent calmes lorsqu'il déclara: « Ce vieil homme sera responsable de l'épreuve céleste! » Sa voix était sereine tandis qu'il agitait négligemment sa main droite.
 
@@ -64,7 +64,7 @@ Lie Yunzi regarda Zhan Konglie et dit lentement: « Zhan Konglie, tu passes en p
 
 Wang Lin fixa Zhan Konglie et, après un instant, son expression devint sérieuse. Au bout de huit secondes, il sembla que le sens divin de Zhan Konglie se divisât en deux, une partie fusionnant avec le parchemin.
 
-À cet instant précis, une trace d'énergie originelle source, environ cent fois plus faible que celle manifestée par Maître Flamespark, émana du Parchemin de la Bataille. Cependant, à la dixième seconde, elle s'effondra, comme si le corps de Zhan Konglie n'avait pas pu contenir cette infime trace d'énergie originelle source.
+À cet instant précis, une trace d'énergie originelle source, environ cent fois plus faible que celle manifestée par Maître Yan Leizi, émana du Parchemin de la Bataille. Cependant, à la dixième seconde, elle s'effondra, comme si le corps de Zhan Konglie n'avait pas pu contenir cette infime trace d'énergie originelle source.
 
 Il aurait été très difficile pour des cultivateurs ordinaires de remarquer cela. Si Wang Lin n'avait pas vu la troisième étape à l'intérieur de sa Perle Défiant le Ciel, il n'aurait jamais perçu ce secret. Pourtant, ce qu'il venait de voir provoqua une immense onde de choc dans son cœur!
 
@@ -98,7 +98,7 @@ Les yeux de Lie Yunzi brillèrent intensément. À ce moment, il devint solennel
 
 Non seulement Lie Yunzi, mais les vieux monstres sur les tapis de prière perçurent également le secret du trésor de la famille Zhan. Une force étrange résidait en son sein: plus on entrait rapidement dans cet état, plus on pouvait recevoir d'héritage. Cependant, parmi eux, très peu savaient que cette puissance était la clé de la troisième étape qu'ils poursuivaient tous avec acharnement!
 
-Les yeux de Maître Flamespark reflétèrent une lueur mystérieuse. Il ne regardait pas le parchemin, mais fixait Xu Ting en pensant: « Cet homme possède ce talent... »
+Les yeux de Maître Yan Leizi reflétèrent une lueur mystérieuse. Il ne regardait pas le parchemin, mais fixait Xu Ting en pensant: « Cet homme possède ce talent... »
 
 Après dix secondes, Xu Ting s'éveilla soudainement. À cet instant, les yeux de Wang Lin brillèrent d'une intensité indécelable. Il vit l'infime trace d'énergie originelle source du parchemin pénétrer le corps de Xu Ting... et une très petite portion resta réellement à l'intérieur de lui.
 
@@ -118,11 +118,11 @@ Xu Ting hocha la tête et se retira respectueusement, jetant un regard sombre à
 
 L'apparition de Wang Lin attira immédiatement l'attention générale. Après tout, lors de cette compétition pour le titre céleste, son nom avait ébranlé les esprits. Il avait combattu Luo Su à l'épreuve humaine et dévoré l'esprit du tonnerre à l'épreuve terrestre. Tous les cultivateurs attendaient avec impatience la performance de Xu Mu lors de la troisième épreuve!
 
-Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Hormis eux et les vieux monstres sur les tapis de prière représentant l'élite du Système Stellaire Allheaven, tous les autres regardaient avec un sourire.
+Cette anticipation était palpable; même certains ancêtres de grandes familles de culture observaient attentivement. Non seulement ils se souvenaient du nom « Xu Mu », mais ils avaient aussi mémorisé son apparence. Hormis eux et les vieux monstres sur les tapis de prière représentant l'élite du Système Stellaire Luotian, tous les autres regardaient avec un sourire.
 
 Seul le Dieu de Sang laissa échapper un reniflement froid. Après réflexion, il posa également son regard sur Wang Lin.
 
-Maître Flamespark sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
+Maître Yan Leizi sourit intérieurement. Il avait un mal de tête concernant ce Wang Lin. Quoi qu'il en soit, ce junior était lié à lui et, compte tenu des relations entre Wang Lin et Qing Shui, il n'était pas sage de l'opprimer. Wang Lin avait fait subir une lourde perte au Temple Céleste du Tonnerre lors des deux premières épreuves. Cependant, puisque Lie Yunzi était responsable de l'épreuve céleste, quel que soit l'incident qui surviendrait, ce ne serait pas lui qui en pâtirait, mais Lie Yunzi.
 
 À cet instant, une lueur d'attente brilla dans ses yeux alors qu'il contemplait Wang Lin.
 

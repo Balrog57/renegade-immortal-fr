@@ -1,12 +1,12 @@
 ---
 n: 1527
-title: "Le mouvement d'Allheaven et de la Rivière Invoquée!"
+title: "Le mouvement de Luotian et de la Rivière Invoquée!"
 book: 10
 bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1527 - Allheaven and Summoned River Move!"
 slug: le-mouvement-dallheaven-et-de-la-riviere-invoquee
 ---
-Chapitre 1527 - Le mouvement d'Allheaven et de la Rivière Invoquée!
+Chapitre 1527 - Le mouvement de Luotian et de la Rivière Invoquée!
 
 Un éclair de lumière de hache fendit l'air, et l'espace lui-même sembla prêt à se déchirer. Le grondement assourdissant dégageait une pression qui ébranla le cœur des cultivateurs envahisseurs.
 
@@ -108,7 +108,7 @@ L'océan de poison rugissait à travers les étoiles et des dizaines de milliers
 
 Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... plus de neuf cents planètes de culture jaillirent brusquement!
 
-Les renforts d'Allheaven étaient arrivés!
+Les renforts de Luotian étaient arrivés!
 
 Encore plus loin, des éclairs surgirent de nulle part. Ils déchirèrent le vide et se rapprochèrent à une vitesse fulgurante. Ce n'étaient pas quelques éclairs, mais une multitude infinie!
 

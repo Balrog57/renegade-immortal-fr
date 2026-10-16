@@ -52,7 +52,7 @@ Wang Lin s'extirpa avec peine de son choc. Il regarda Papillon Rouge et dit lent
 
 « Lui... A-t-il une famille? » Papillon Rouge mordilla sa lèvre inférieure. Après un long silence, elle sembla avoir pris une décision.
 
-Wang Lin fronça les sourcils et observa attentivement Papillon Rouge. Il se remémora ce qui s'était passé à Allheaven, lorsque Qing Shui se tenait devant elle. Wang Lin avait vu de loin qu'il bloquait une attaque pour la protéger.
+Wang Lin fronça les sourcils et observa attentivement Papillon Rouge. Il se remémora ce qui s'était passé à Luotian, lorsque Qing Shui se tenait devant elle. Wang Lin avait vu de loin qu'il bloquait une attaque pour la protéger.
 
 « Son frère aîné a mené une vie amère... Son clan a péri durant son enfance. Après cela, il est entré dans le Royaume Céleste et sa femme est morte... Il avait aussi une fille qui est entrée de nouveau et de nouveau dans le cycle de la réincarnation. Elle a probablement tout oublié du passé... S'il lui reste vraiment un parent, ce serait cette fille... » parla doucement Wang Lin.
 
@@ -66,7 +66,7 @@ Papillon Rouge tituba de quelques pas en arrière et son visage devint instantan
 
 « Merci... »
 
-Lorsqu'elle prononça ces deux mots, elle ne s'entendit même pas les dire. Elle se transforma en un rayon de lumière rouge et fonça vers Allheaven. Sa vitesse atteignait la limite autorisée par son niveau de culture. Elle retournait à Allheaven pour retrouver Qing Shui!
+Lorsqu'elle prononça ces deux mots, elle ne s'entendit même pas les dire. Elle se transforma en un rayon de lumière rouge et fonça vers Luotian. Sa vitesse atteignait la limite autorisée par son niveau de culture. Elle retournait à Luotian pour retrouver Qing Shui!
 
 Papillon Rouge était partie!
 

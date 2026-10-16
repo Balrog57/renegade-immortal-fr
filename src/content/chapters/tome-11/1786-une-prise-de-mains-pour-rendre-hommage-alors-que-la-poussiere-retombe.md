@@ -8,7 +8,7 @@ slug: une-prise-de-mains-pour-rendre-hommage-alors-que-la-poussiere-retombe
 ---
 La porte s'ouvrit complètement!
 
-Dans Allheaven, le fourneau géant recouvert de gaz noirs au cœur du monde caverne trembla. Le gaz noir se brisa centimètre par centimètre.
+Dans Luotian, le fourneau géant recouvert de gaz noirs au cœur du monde caverne trembla. Le gaz noir se brisa centimètre par centimètre.
 
 Une fissure gigantesque apparut au milieu du fourneau, laissant jaillir une lumière dorée. Des grondements tonitruants résonnèrent à mesure que la faille s'agrandissait. Finalement, le fourneau se fendit en deux.
 
@@ -16,7 +16,7 @@ Au moment de sa rupture, une porte dorée aussi vaste que le monde apparut. La p
 
 Lorsque la porte se manifesta, les ruines à l'extérieur du fourneau se désintégrèrent pour devenir un espace connecté au reste du monde caverne.
 
-Tous les cultivateurs présents ressentirent un tremblement qui se propagea dans tout le monde caverne. Tandis que l'écho de la secousse résonnait, l'entrée du cœur du monde caverne à Allheaven disparut soudainement pour laisser place au fourneau!
+Tous les cultivateurs présents ressentirent un tremblement qui se propagea dans tout le monde caverne. Tandis que l'écho de la secousse résonnait, l'entrée du cœur du monde caverne à Luotian disparut soudainement pour laisser place au fourneau!
 
 La porte dorée issue du fourneau dégageait une lumière infinie qui enveloppait tout le monde caverne!
 
@@ -66,7 +66,7 @@ Devait-il partir ou rester...
 
 Tuo Sen, ou Tu Si, méditait également en silence. Il fixait la porte dorée, mais on ignorait ce qui occupait ses pensées.
 
-À Allheaven, à l'extérieur de la porte dorée, plusieurs rayons de lumière convergèrent. Des cultivateurs du monde caverne arrivaient de loin. En voyant la porte, ils furent tous frappés de stupeur.
+À Luotian, à l'extérieur de la porte dorée, plusieurs rayons de lumière convergèrent. Des cultivateurs du monde caverne arrivaient de loin. En voyant la porte, ils furent tous frappés de stupeur.
 
 Le regard de Wang Lin se détacha enfin de la porte après un long moment. Il constata que, depuis qu'il avait quitté la cinquième fleur, ses huit corps de vérité essentiels avaient disparu. Son essence d'eau n'était encore qu'au stade de la petite complétude, et les sept autres essences étaient dissimulées.
 

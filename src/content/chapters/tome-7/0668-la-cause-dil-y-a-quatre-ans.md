@@ -30,7 +30,7 @@ Le regard de Sun Xi devint sérieux. « Frère Xu, ma famille Sun ne peut effect
 
 Wang Lin marqua une pause et jeta un regard oblique vers Sun Xi, avant de détourner les yeux et de continuer son chemin.
 
-« Je pense que le frère Xu sait aussi que chaque fois que le Royaume Céleste du Tonnerre de mon Système Stellaire d'Allheaven s'ouvre, tous les Chaudrons du Tonnerre nécessaires à l'entrée sont contrôlés par la Salle Céleste du Tonnerre. Il est impossible pour un étranger de les obtenir. Seules les personnes issues de mon Système Stellaire d'Allheaven ou les familles enregistrées dans la Salle Céleste du Tonnerre peuvent obtenir une place. » Sun Xi gardait les yeux à demi clos, comme s'il ne faisait qu'énoncer des détails banals.
+« Je pense que le frère Xu sait aussi que chaque fois que le Royaume Céleste du Tonnerre de mon Système Stellaire de Luotian s'ouvre, tous les Chaudrons du Tonnerre nécessaires à l'entrée sont contrôlés par la Salle Céleste du Tonnerre. Il est impossible pour un étranger de les obtenir. Seules les personnes issues de mon Système Stellaire de Luotian ou les familles enregistrées dans la Salle Céleste du Tonnerre peuvent obtenir une place. » Sun Xi gardait les yeux à demi clos, comme s'il ne faisait qu'énoncer des détails banals.
 
 Peu de personnes ayant atteint le stade Ascendant manquaient de ruse. Sun Xi, étant l'ancêtre fondateur de sa lignée, était extrêmement fin stratège. Plus tôt, sous la pression de Wang Lin, il avait dû feindre la faiblesse, mais il entamait désormais sa contre-attaque.
 
@@ -74,11 +74,11 @@ Au moment où il entra, Wang Lin ressentit soudain une sensation étrange, comme
 
 « L'empreinte sur son corps est très légère; la majeure partie s'est déjà dissipée. Il y a un problème ici! »
 
-Sun Xi regarda Wang Lin et dit lentement: « Frère Xu, cette pilule de rang 8 possède une histoire particulière. Elle ne provient pas de la planète Ran Yun, mais d'un cultivateur étranger gravement blessé qui s'est enfui ici. L'Ancêtre de la famille Ran, Carefree Jushi et moi-même avons collaboré pour la dérober. Le cultivateur est mort sous les coups de l'Ancêtre de la famille Ran. »
+Sun Xi regarda Wang Lin et dit lentement: « Frère Xu, cette pilule de rang 8 possède une histoire particulière. Elle ne provient pas de la planète Ran Yun, mais d'un cultivateur étranger gravement blessé qui s'est enfui ici. L'Ancêtre de la famille Ran, Xiaoyao Jushi et moi-même avons collaboré pour la dérober. Le cultivateur est mort sous les coups de l'Ancêtre de la famille Ran. »
 
 Wang Lin fronça les sourcils. Il jeta un regard à Sun Xi mais garda le silence. Il n'avait aucune envie de s'immiscer dans de tels secrets, mais Sun Xi continuait malgré tout. Cela devait avoir un lien avec la faveur qu'il souhaitait lui demander.
 
-Sun Xi fit mine de ne pas remarquer le regard de Wang Lin et poursuivit: « Cela remonte à quatre ans. Cette pilule est extrêmement précieuse, surtout pour des cultivateurs Ascendants comme nous. Il n'y en avait pas une, mais cinq au total. Carefree Jushi et moi en avons obtenu une chacun. L'Ancêtre de la famille Ran, étant au stade intermédiaire de l'Ascendance, a pris les trois autres. »
+Sun Xi fit mine de ne pas remarquer le regard de Wang Lin et poursuivit: « Cela remonte à quatre ans. Cette pilule est extrêmement précieuse, surtout pour des cultivateurs Ascendants comme nous. Il n'y en avait pas une, mais cinq au total. Xiaoyao Jushi et moi en avons obtenu une chacun. L'Ancêtre de la famille Ran, étant au stade intermédiaire de l'Ascendance, a pris les trois autres. »
 
 L'expression de Wang Lin resta imperturbable alors qu'il fixait le deuxième étage, feignant de ne pas écouter.
 
@@ -88,7 +88,7 @@ Wang Lin tourna la tête vers Sun Xi et dit d'un ton neutre: « Cher compagnon c
 
 Sun Xi eut un léger sourire: « Frère Xu, si je ne vous avais pas raconté cette histoire, quelqu'un d'autre l'aurait fait. Cette ville appartient à ma famille Sun, et pourtant la pilule est vendue aux enchères ici. Je pense qu'avec votre sagesse, vous en comprenez la raison. »
 
-Le visage de Wang Lin demeura impassible. Il avait eu des doutes auparavant, mais comme il ne connaissait pas bien le Système Stellaire d'Allheaven, il n'y avait pas prêté attention. Cependant, maintenant que Sun Xi l'avait souligné, son regard balaya le deuxième étage et devint glacial.
+Le visage de Wang Lin demeura impassible. Il avait eu des doutes auparavant, mais comme il ne connaissait pas bien le Système Stellaire de Luotian, il n'y avait pas prêté attention. Cependant, maintenant que Sun Xi l'avait souligné, son regard balaya le deuxième étage et devint glacial.
 
 Sun Xi surveillait attentivement l'expression de Wang Lin. En y décelant cette froideur, il ressentit un soulagement: son objectif était atteint. Il cessa de parler, se versa une tasse de thé et commença à la déguster.
 

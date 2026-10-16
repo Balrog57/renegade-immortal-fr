@@ -74,7 +74,7 @@ Ce processus de transmutation dura un temps indéterminé. Durant toute cette p�
 
 Puis, un jour, son corps commença à exhaler un parfum. Cette fragrance était enivrante, comme si une herbe spirituelle venait d'être déterrée.
 
-Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — le raffinement du corps — est achevée. Place maintenant à la seconde: le raffinement de l'âme originelle. »
+Le parfum s'échappa de la grotte, faisant briller les yeux de Du Tian. Un éclat d'admiration passa dans son regard et il soupira: « La première étape de la Transformation de l'Âme — le raffinement du corps — est achevée. Place maintenant à la seconde: le affinement de l'âme originelle. »
 
 Il exécuta un sceau manuel, et une lumière noire enveloppa immédiatement la grotte pour empêcher la fragrance de se propager.
 

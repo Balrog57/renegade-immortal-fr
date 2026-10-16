@@ -8,11 +8,11 @@ slug: planete-dong-lin
 ---
 Au moment où le passage vers le Système Stellaire de l'Alliance s'ouvrit, la fissure fut soudainement déchirée, se propageant rapidement à travers le ciel étoilé.
 
-À cet instant, tous les cultivateurs du Système Stellaire d'Allheaven observaient attentivement. Des regards avides émanaient de chaque planète de culture du Système Stellaire d'Allheaven, comme si ces yeux pouvaient percer les pierres de transmission sonore pour pénétrer directement dans le Système Stellaire de l'Alliance.
+À cet instant, tous les cultivateurs du Système Stellaire de Luotian observaient attentivement. Des regards avides émanaient de chaque planète de culture du Système Stellaire de Luotian, comme si ces yeux pouvaient percer les pierres de transmission sonore pour pénétrer directement dans le Système Stellaire de l'Alliance.
 
-« La bataille entre le Système Stellaire d'Allheaven et le Système Stellaire de l'Alliance commence! » Maître Flamespark sourit tandis que son cri résonnait à travers tout le Système Stellaire d'Allheaven.
+« La bataille entre le Système Stellaire de Luotian et le Système Stellaire de l'Alliance commence! » Maître Yan Leizi sourit tandis que son cri résonnait à travers tout le Système Stellaire de Luotian.
 
-La voix de Maître Flamespark tonna soudainement: « Grande armée de culture de l'est, du sud, de l'ouest et du nord, frayez-vous un chemin dans le Système Stellaire de l'Alliance! En trois jours, prenez possession de trois planètes de culture pour notre Système Stellaire d'Allheaven afin de les utiliser comme bases! »
+La voix de Maître Yan Leizi tonna soudainement: « Grande armée de culture de l'est, du sud, de l'ouest et du nord, frayez-vous un chemin dans le Système Stellaire de l'Alliance! En trois jours, prenez possession de trois planètes de culture pour notre Système Stellaire de Luotian afin de les utiliser comme bases! »
 
 Alors que sa voix résonnait, l'armée de 10 000 cultivateurs située sur le flanc est du Temple Céleste du Tonnerre leva silencieusement les yeux. Sous le commandement de l'homme en armure, ils se précipitèrent tous vers la fissure tels des météores.
 
@@ -28,7 +28,7 @@ Les armées de l'ouest et du sud suivirent le mouvement. Le ciel fut couvert d'�
 
 « Tuez! » On ne sut qui avait crié, mais cela fit atteindre l'intention de combat des cultivateurs environnants à son paroxysme.
 
-« Système Stellaire d'Allheaven, activez le grand réseau de transfert! » Alors que Maître Flamespark hurlait, les pierres de transmission sonore de toutes les planètes de culture s'effondrèrent pour former un immense réseau de transfert.
+« Système Stellaire de Luotian, activez le grand réseau de transfert! » Alors que Maître Yan Leizi hurlait, les pierres de transmission sonore de toutes les planètes de culture s'effondrèrent pour former un immense réseau de transfert.
 
 Un par un, les cultivateurs entrèrent dans le réseau sous la direction de leurs ancêtres. Lorsqu'ils réapparurent, ils se trouvaient déjà aux côtés de la fissure menant au Système Stellaire de l'Alliance.
 
@@ -36,7 +36,7 @@ Dès leur apparition, ils s'élancèrent immédiatement dans la brèche, les yeu
 
 À mesure que de plus en plus de cultivateurs pénétraient dans le Système Stellaire de l'Alliance, une catastrophe commença lentement à se dessiner.
 
-Maître Flamespark, arborant un sourire, entra lui aussi dans la fissure pour rejoindre le Système Stellaire de l'Alliance. À l'instant même de son arrivée, son visage révéla une haine monstrueuse!
+Maître Yan Leizi, arborant un sourire, entra lui aussi dans la fissure pour rejoindre le Système Stellaire de l'Alliance. À l'instant même de son arrivée, son visage révéla une haine monstrueuse!
 
 « Zhong Xuanzi, ce vieil homme est de retour! »
 
@@ -50,7 +50,7 @@ La scène qui s'offrait à eux fit changer radicalement l'expression des cultiva
 
 Leur chef était un homme d'âge moyen. L'expression sombre, il cria sans hésiter: « Dispersez-vous! Que chacun batte en retraite vers la planète Xuan Ting par ses propres moyens! » Puis, il se retira rapidement.
 
-Les visages des cultivateurs de l'Alliance changèrent, mais malgré la noirceur de leurs regards, aucune trace de panique n'y figurait. C'était là la différence fondamentale entre les cultivateurs de l'Alliance et ceux d'Allheaven.
+Les visages des cultivateurs de l'Alliance changèrent, mais malgré la noirceur de leurs regards, aucune trace de panique n'y figurait. C'était là la différence fondamentale entre les cultivateurs de l'Alliance et ceux de Luotian.
 
 Dans le Système Stellaire de l'Alliance, le massacre était une chose banale. Ceux qui avaient survécu jusqu'ici avaient tout enduré; aucun d'entre eux n'était moins rusé qu'un renard ou extrêmement sournois.
 
@@ -58,15 +58,15 @@ Dans le Système Stellaire de l'Alliance, le massacre était une chose banale. C
 
 Certains avaient même le regard brillant en fuyant, espérant attirer des poursuivants pour les tuer et s'emparer de leurs trésors. Toutes sortes de plans insidieux traversaient leur esprit.
 
-Les cultivateurs d'Allheaven n'étaient pas encore organisés. Certains l'aperçurent et se précipitèrent à la poursuite des fuyards de l'Alliance.
+Les cultivateurs de Luotian n'étaient pas encore organisés. Certains l'aperçurent et se précipitèrent à la poursuite des fuyards de l'Alliance.
 
-L'un des assaillants d'Allheaven utilisa rapidement un sort en poursuivant sa proie, faisant cracher une large bouchée de sang à un cultivateur de l'Alliance. Ce dernier perdit tout entrain; sa vitesse ralentit et ses yeux se remplirent de désespoir.
+L'un des assaillants de Luotian utilisa rapidement un sort en poursuivant sa proie, faisant cracher une large bouchée de sang à un cultivateur de l'Alliance. Ce dernier perdit tout entrain; sa vitesse ralentit et ses yeux se remplirent de désespoir.
 
-Alors que le cultivateur d'Allheaven riait, il fit un pas en avant pour l'achever. Pourtant, au moment où il s'approcha, le désespoir disparut des yeux du fuyard de l'Alliance. Au lieu de cela, celui-ci ricana et riposta!
+Alors que le cultivateur de Luotian riait, il fit un pas en avant pour l'achever. Pourtant, au moment où il s'approcha, le désespoir disparut des yeux du fuyard de l'Alliance. Au lieu de cela, celui-ci ricana et riposta!
 
 Après quelques bruits secs, un gémissement misérable retentit. Finalement, c'est le cultivateur de l'Alliance qui s'échappa rapidement au loin, un sac à la main.
 
-Derrière lui, le corps du cultivateur d'Allheaven s'effondra et se dissipa.
+Derrière lui, le corps du cultivateur de Luotian s'effondra et se dissipa.
 
 Cette scène se répéta avec tous les autres poursuivants.
 
@@ -86,7 +86,7 @@ Wang Lin répondit calmement: « Junior comprend! »
 
 En entendant cela, le vieux Xiang se tut de nouveau.
 
-La planète Dong Lin était une existence très mystérieuse au sein du Système Stellaire d'Allheaven. Cette planète n'avait pas de position fixe et était en mouvement constant. Pendant qu'il volait, le vieux Xiang sortait parfois un jade rouge, comme s'il cherchait quelque chose.
+La planète Dong Lin était une existence très mystérieuse au sein du Système Stellaire de Luotian. Cette planète n'avait pas de position fixe et était en mouvement constant. Pendant qu'il volait, le vieux Xiang sortait parfois un jade rouge, comme s'il cherchait quelque chose.
 
 Ce jour-là, sous la direction du vieux Xiang, Wang Lin aperçut au loin une planète de culture extrêmement frappante.
 
@@ -104,7 +104,7 @@ La main droite du vieux Xiang forma un sceau et pointa une direction. L'une des 
 
 Lorsqu'ils réapparurent, ils étaient sur la planète Dong Lin. Une brise légère laissait passer une odeur de sang; toute la planète dégageait un sentiment de violence.
 
-Debout sur la planète Dong Lin, Wang Lin prit une profonde inspiration. L'aura ici était totalement différente de celle des autres planètes de culture du Système Stellaire d'Allheaven.
+Debout sur la planète Dong Lin, Wang Lin prit une profonde inspiration. L'aura ici était totalement différente de celle des autres planètes de culture du Système Stellaire de Luotian.
 
 Le vieux Xiang ne les emmena pas vers la demeure familiale. Au lieu de cela, il chargea vers l'ouest. Dans la zone extrême de l'ouest, à des milliers de kilomètres de là, s'étendait un cimetière très chaotique!
 
@@ -112,7 +112,7 @@ La terre était d'un rouge sombre et exhalait une odeur de sang entêtante. Des 
 
 Plus on s'enfonçait, moins on trouvait de membres sectionnés. Des tombes dévastées se pressaient partout, densément regroupées. Bien que l'expression de Wang Lin restât calme, son cœur était bouleversé.
 
-Ayant pratiqué la méthode de culture de la Secte du Raffinement de l'Âme, il était extrêmement sensible aux âmes. Il y avait ici d'innombrables âmes brisées. Même à son apogée, le drapeau des milliards d'âmes contenait bien moins d'âmes que cet endroit.
+Ayant pratiqué la méthode de culture de la Secte du Affinement de l'Âme, il était extrêmement sensible aux âmes. Il y avait ici d'innombrables âmes brisées. Même à son apogée, le drapeau des milliards d'âmes contenait bien moins d'âmes que cet endroit.
 
 « Si j'absorbais les âmes d'ici, je pourrais préparer le drapeau des âmes en un instant! » Wang Lin observa les environs et réfléchit silencieusement.
 

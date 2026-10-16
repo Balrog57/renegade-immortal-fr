@@ -54,11 +54,11 @@ Wang Lin réfléchit silencieusement tout en observant le vieillard. L'autre se 
 
 Après mûre réflexion, les yeux de Wang Lin s'illuminèrent et il demanda avec lenteur: « Depuis combien de temps aucun Céleste n'est-il venu? »
 
-L'expression du vieil homme s'assombrit alors qu'il répondait respectueusement: « Cela fait une éternité que le dernier décret céleste n'a été envoyé par le Roi Céleste Carefree. Quant à la durée exacte, ce humble serviteur est incapable de la calculer. »
+L'expression du vieil homme s'assombrit alors qu'il répondait respectueusement: « Cela fait une éternité que le dernier décret céleste n'a été envoyé par le Roi Céleste Xiaoyaozi. Quant à la durée exacte, ce humble serviteur est incapable de la calculer. »
 
 « Carefree... » Wang Lin comprit soudain pourquoi le vieil homme ne quittait pas sa main droite du regard. Il leva cette main pour exposer pleinement le Tatouage de l'Os de la Bête, fixa le vieillard et demanda: « Connaissez-vous ceci? »
 
-Les yeux du vieil homme s'emplirent d'exaltation lorsqu'il déclara respectueusement: « C'est le trésor du Roi Céleste Carefree, la Paire de Dao Flétrie. Je la reconnais naturellement. Si vous la possédez, c'est que vous êtes un proche du Roi Céleste Carefree. Êtes-vous venu pour le Fourneau Yin Mystérieux? »
+Les yeux du vieil homme s'emplirent d'exaltation lorsqu'il déclara respectueusement: « C'est le trésor du Roi Céleste Xiaoyaozi, la Paire de Dao Flétrie. Je la reconnais naturellement. Si vous la possédez, c'est que vous êtes un proche du Roi Céleste Xiaoyaozi. Êtes-vous venu pour le Fourneau Yin Mystérieux? »
 
 Wang Lin regarda le vieil homme sans répondre. Son regard se porta vers le continent situé derrière l'homme.
 
@@ -84,6 +84,6 @@ Le vieil homme remarqua le regard de Wang Lin et dit respectueusement: « Haut C
 
 Wang Lin ignorait ce qu'étaient les bêtes de brume et se contenta d'un signe de tête silencieux. Toutefois, dans son for intérieur, il était très intrigué par cet endroit.
 
-« Maître Carefree, le Clan des Immortels Délaissés et le Fourneau Yin Mystérieux... Que cache donc réellement ce lieu? »
+« Maître Xiaoyaozi, le Clan des Immortels Délaissés et le Fourneau Yin Mystérieux... Que cache donc réellement ce lieu? »
 
 Alors que Wang Lin était plongé dans ses pensées, un bruit parvint du lointain.

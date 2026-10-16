@@ -26,7 +26,7 @@ Ces cieux ne sont pas mes cieux! Aux yeux des autres, le ciel et la terre étaie
 
 En atteignant cette étape, Wang Lin avait touché à la limite de son domaine. Il se trouvait également dans le cercle qu'il avait tracé autour de Li Qianmei et Lu Yuncong.
 
-Cependant, l'apparition de Qing Lin et la possession de la Perle Défiant les Cieux permirent au domaine karmique de Wang Lin de subir une autre métamorphose après avoir atteint sa complétion. Son domaine évolua et il commença à explorer les origines du vrai et du faux!
+Cependant, l'apparition de Qing Lin et la possession de la Perle Défiant le Ciel permirent au domaine karmique de Wang Lin de subir une autre métamorphose après avoir atteint sa complétion. Son domaine évolua et il commença à explorer les origines du vrai et du faux!
 
 Le domaine du vrai et du faux exigeait une compréhension si profonde que les gens ordinaires n'étaient tout simplement pas qualifiés pour le saisir. Cela se situait déjà à la frontière du Dao céleste, à un seul pas de l'essence même!
 

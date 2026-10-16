@@ -46,7 +46,7 @@ Ce vortex n'était pas très puissant, mais après une observation minutieuse, W
 
 Ce Sens Divin était mêlé à l'aura de Dieu Antique. D'une manière ou d'une autre, ils avaient fusionné totalement. Par conséquent, à moins de posséder la puissance d'un Dieu Antique, il serait impossible de s'en défaire.
 
-Quant à savoir si des cultivateurs du troisième niveau pouvaient y parvenir, Wang Lin l'ignorait. Il savait cependant que Maître Hollow Wind n'en avait pas été capable, ce qui expliquait pourquoi ce Sens Divin était encore là aujourd'hui.
+Quant à savoir si des cultivateurs du troisième niveau pouvaient y parvenir, Wang Lin l'ignorait. Il savait cependant que Maître Fu Fengzi n'en avait pas été capable, ce qui expliquait pourquoi ce Sens Divin était encore là aujourd'hui.
 
 « Qu'un Sens Divin ait été laissé à l'intérieur de ce bouclier... Il y a là quelque chose de suspect », songea Wang Lin. S'il ne retirait pas ce Sens Divin, l'aura de Dieu Antique ne pourrait être libérée, et la puissance du bouclier resterait ainsi totalement bridée.
 
@@ -92,15 +92,15 @@ Grâce à cette lumière, Ling Er ne ressentit qu'un certain inconfort. Les sour
 
 À l'horizon, un géant était accroupi, et sa silhouette perçait déjà les cieux. Si ce géant se redressait, il lui suffirait d'un pas pour faire s'effondrer la planète entière.
 
-Big Head et sa compagnie sortirent également, pétrifiés par le spectacle. Le corps de Lei Ji trembla et une immense révérence envahit ses yeux alors qu'il contemplait l'illusion derrière le bouclier. Il se souvenait parfaitement que sur la planète Géant Démon, il existait un totem dans le Sanctuaire Royal qui était un objet sacré pour le clan. Cet objet représentait un géant semblable à celui-ci!
+Da Tou et sa compagnie sortirent également, pétrifiés par le spectacle. Le corps de Lei Ji trembla et une immense révérence envahit ses yeux alors qu'il contemplait l'illusion derrière le bouclier. Il se souvenait parfaitement que sur la planète Géant Démon, il existait un totem dans le Sanctuaire Royal qui était un objet sacré pour le clan. Cet objet représentait un géant semblable à celui-ci!
 
-Maître Hollow Wind fut le premier à remarquer l'anomalie. Flottant dans les airs, il affichait une expression extrêmement complexe en observant l'immense bouclier aux côtés de Wang Lin. Il avait obtenu ce bouclier en tuant un ennemi. Après l'avoir étudié, il avait été choqué, pressentant un lien avec les Quatre Sectes Divines.
+Maître Fu Fengzi fut le premier à remarquer l'anomalie. Flottant dans les airs, il affichait une expression extrêmement complexe en observant l'immense bouclier aux côtés de Wang Lin. Il avait obtenu ce bouclier en tuant un ennemi. Après l'avoir étudié, il avait été choqué, pressentant un lien avec les Quatre Sectes Divines.
 
 Il n'aurait pas osé l'utiliser si tôt; il ne l'avait sorti que par nécessité vitale. Il pouvait briser la marque du dragon d'azur, mais avec sa culture, il percevait le vortex azur en dessous. Peu importaient ses tentatives, il ne parvenait pas à briser le vortex, il avait donc dû laisser le trésor tel quel.
 
 À présent, il ne s'attendait pas à ce que Wang Lin brise le sceau du vortex dès l'obtention de l'objet. En conséquence, il redoutait inconsciemment encore plus Wang Lin.
 
-« Ce Wang Lin n'est pas un homme ordinaire! Ce ne serait pas un tel déshonneur pour mon identité que de le suivre », soupira Maître Hollow Wind.
+« Ce Wang Lin n'est pas un homme ordinaire! Ce ne serait pas un tel déshonneur pour mon identité que de le suivre », soupira Maître Fu Fengzi.
 
 L'expression de Wang Lin était grave tandis qu'il fixait le bouclier en pleine expansion. Celui-ci était passé de plus de trois cents mètres à près de mille mètres.
 

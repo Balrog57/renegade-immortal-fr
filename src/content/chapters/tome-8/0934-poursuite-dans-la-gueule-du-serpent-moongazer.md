@@ -22,7 +22,7 @@ Une fois capté par le vortex formé par l'effondrement de l'espace, il était d
 
 Le bras du Dieu Antique qui s'était lancé avait marqué un temps d'arrêt à l'apparition de Qing Shui. Cependant, le Serpent aux yeux de lune était aveuglé par la rage, et au moment où l'Estimé Xuan Bao utilisa son sortilège, le bras fonça en avant.
 
-Simultanément, un rire retentit à travers les étoiles. C'était Maître Flamespark, qui s'était libéré de Wudo Chan. Ses mains formèrent un sceau et des dizaines de fragments célestes jaillirent, couvrant une zone de milliers de kilomètres de large avec un vortex.
+Simultanément, un rire retentit à travers les étoiles. C'était Maître Yan Leizi, qui s'était libéré de Wudo Chan. Ses mains formèrent un sceau et des dizaines de fragments célestes jaillirent, couvrant une zone de milliers de kilomètres de large avec un vortex.
 
 Une riche énergie spirituelle céleste se propagea, remplissant le vortex d'une puissance colossale alors qu'il chargeait vers l'Estimé Xuan Bao!
 
@@ -30,7 +30,7 @@ Une riche énergie spirituelle céleste se propagea, remplissant le vortex d'une
 
 Les yeux de Wudo Chan s'illuminèrent et il suivit de près. Il comptait aider l'Estimé Xuan Bao à surmonter cette crise de vie ou de mort!
 
-L'Estimé Xuan Bao sentit son cuir chevelu se crisper. Cette bataille pourrait être la plus périlleuse de sa vie, si l'on ne comptait l'effondrement du Royaume Céleste. Devant lui se tenait Qing Shui, derrière lui le Serpent aux yeux de lune, et au-dessus de lui Maître Flamespark!
+L'Estimé Xuan Bao sentit son cuir chevelu se crisper. Cette bataille pourrait être la plus périlleuse de sa vie, si l'on ne comptait l'effondrement du Royaume Céleste. Devant lui se tenait Qing Shui, derrière lui le Serpent aux yeux de lune, et au-dessus de lui Maître Yan Leizi!
 
 Il n'y avait aucune possibilité d'esquive. Face à cette crise imminente, la puissante origine céleste de l'Estimé Xuan Bao jaillit de son corps pour former d'innombrables barrières!
 
@@ -40,7 +40,7 @@ Alors que l'énergie d'origine céleste l'enveloppait, le bras du Dieu Antique d
 
 À ce moment précis, Qing Shui arriva, entraînant avec lui plusieurs éclairs rouges. Après une série de grondements, l'Estimé Xuan Bao cracha immédiatement du sang.
 
-Lorsque les fragments célestes de Maître Flamespark atteignirent leur cible, le corps de l'Estimé Xuan Bao s'effondra. Son âme d'origine fut expulsée et était sur le point de se dissiper, mais une robe dorée l'entourait, compensant constamment les impacts jusqu'à ce qu'elle finisse par éclater!
+Lorsque les fragments célestes de Maître Yan Leizi atteignirent leur cible, le corps de l'Estimé Xuan Bao s'effondra. Son âme d'origine fut expulsée et était sur le point de se dissiper, mais une robe dorée l'entourait, compensant constamment les impacts jusqu'à ce qu'elle finisse par éclater!
 
 Ce bouleversement fit s'étendre davantage l'espace déchiré. Plus de dix mille kilomètres d'espace étaient désormais transformés en une zone de destruction pure!
 
@@ -76,7 +76,7 @@ Dans un éclat de lumière verte, un homme en sortit. Vêtu d'une robe verte, il
 
 Un bois géant illusoire apparut soudainement autour du dragon et s'abattit sur lui!
 
-« Ce vieil homme est le neuvième ancien des familles antiques d'Allheaven. Comment pourrais-je vous laisser vous échapper? »
+« Ce vieil homme est le neuvième ancien des familles antiques de Luotian. Comment pourrais-je vous laisser vous échapper? »
 
 Le dragon doré fut bloqué par le bois illusoire, mais ses yeux se mirent à briller. Il ouvrit la gueule et de la terre noire en jaillit, chargée d'une aura de mort extrêmement puissante!
 
@@ -86,7 +86,7 @@ L'homme à la robe verte, Yi Muzi, transforma sa main droite en paume et frappa 
 
 « Vous ne pouvez pas vous échapper! » Avec un sourire, Yi Muzi agita sa main droite. Les morceaux de bois géants s'élancèrent, forçant le dragon doré à reculer sans cesse.
 
-À ce moment-là, Wudo Chan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Flamespark profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes plusieurs fois.
+À ce moment-là, Wudo Chan s'approcha pour aider, mais Qing Shui laissa échapper un grognement glacial et un éclair rouge jaillit. Maître Yan Leizi profita de cette opportunité. D'un mouvement de la main, il fit grandir le vortex formé par les fragments célestes plusieurs fois.
 
 Parallèlement, le bras du Dieu Antique formé par le Serpent aux yeux de lune arriva également. Cependant, le Serpent aux yeux de lune avait perdu toute raison. Non seulement il haïssait l'Estimé Xuan Bao, mais il en avait fait payer à tous les autres.
 
@@ -106,17 +106,17 @@ Qing Shui n'était pas seul. Wudo Chan, appartenant au Palais Xuan et entretenan
 
 Les yeux de Wang Lin s'illuminèrent. Il attendait cette opportunité depuis longtemps. Sans hésiter, le tonnerre jaillit de son corps et, profitant de sa vitesse fulgurante, il chargea le Serpent aux yeux de lune.
 
-Maître Flamespark hésita un instant tandis que les yeux du vieil homme Yi Muzi s'animaient. Il semblait avoir un plan alors qu'il pénétrait à son tour dans la gueule du serpent.
+Maître Yan Leizi hésita un instant tandis que les yeux du vieil homme Yi Muzi s'animaient. Il semblait avoir un plan alors qu'il pénétrait à son tour dans la gueule du serpent.
 
 À cet instant, le corps gigantesque du Serpent aux yeux de lune était presque entièrement entré dans la fissure et sa gueule s'était déjà refermée. Il était sur le point de disparaître de cet espace.
 
 Wang Lin se rapprocha du Serpent aux yeux de lune et atterrit sur son immense corps. Il s'apprêtait à bondir pour pénétrer à l'intérieur.
 
-Maître Flamespark vit naturellement Wang Lin. Il soupira et ne perdit plus de temps. Il tendit la main vers le vide, un fragment céleste de la taille d'un poing apparut dans sa paume et il le lança vers Wang Lin.
+Maître Yan Leizi vit naturellement Wang Lin. Il soupira et ne perdit plus de temps. Il tendit la main vers le vide, un fragment céleste de la taille d'un poing apparut dans sa paume et il le lança vers Wang Lin.
 
 « Vous avez grandement contribué à l'effort. Cet objet devrait vous protéger. Grâce à lui, je pourrai retrouver votre position et vous sauver, ainsi que Qing Shui! »
 
-Il renonça à entrer. Après tout, il devait encore présider la guerre entre Allheaven et l'Alliance. Quant à savoir pourquoi Wang Lin s'enfonçait dans le Serpent aux yeux de lune, Maître Flamespark ne le comprenait pas; il imaginait seulement que le jeune homme voulait sauver Qing Shui.
+Il renonça à entrer. Après tout, il devait encore présider la guerre entre Luotian et l'Alliance. Quant à savoir pourquoi Wang Lin s'enfonçait dans le Serpent aux yeux de lune, Maître Yan Leizi ne le comprenait pas; il imaginait seulement que le jeune homme voulait sauver Qing Shui.
 
 « Peut-être que cet enfant a d'autres intentions! »
 
@@ -126,4 +126,4 @@ Lorsque Wang Lin attrapa le fragment céleste qui rétrécissait, il sentit imm�
 
 À cet instant précis, le Serpent aux yeux de lune sombra complètement dans le vortex. Cependant, sa masse était telle qu'il agrandit considérablement le vortex, provoquant un effondrement encore plus vaste.
 
-Alors que l'espace s'effondrait dans un fracas assourdissant, Maître Flamespark soupira et se retourna pour chercher les cultivateurs d'Allheaven dispersés.
+Alors que l'espace s'effondrait dans un fracas assourdissant, Maître Yan Leizi soupira et se retourna pour chercher les cultivateurs de Luotian dispersés.

@@ -182,11 +182,11 @@ Alors que les ondes se dissipaient, la zone était saturée de sang. Cette fois-
 
 Ces cultivateurs arrivés en renfort se précipitèrent à la suite de Wang Lin. Les membres de la famille Yao avaient les yeux injectés de sang alors qu'ils le traquaient.
 
-D'innombrables cultivateurs étaient morts à cause de cette grande formation, si bien que le nom de Xu Mu se répandit comme une traînée de poudre dans tout le Système Stellaire Allheaven. Même certains vieux monstres portèrent leur regard sur ce conflit entre la famille Yao et Xu Mu.
+D'innombrables cultivateurs étaient morts à cause de cette grande formation, si bien que le nom de Xu Mu se répandit comme une traînée de poudre dans tout le Système Stellaire Luotian. Même certains vieux monstres portèrent leur regard sur ce conflit entre la famille Yao et Xu Mu.
 
 Tout en résistant de sa propre force aux innombrables familles de cultivateurs et à la famille Yao, non seulement il avait survécu, mais il avait également tué plusieurs personnes, s'adjugeant le titre de Maître Démon. Puis, en utilisant une formation, il avait massacré d'innombrables cultivateurs, ébranlant l'esprit de ses poursuivants!
 
-Il avait même effrayé des familles de cultivateurs au point de les faire reculer. Cela fit de Xu Mu une nouvelle étoile montante dans le Système Stellaire Allheaven!
+Il avait même effrayé des familles de cultivateurs au point de les faire reculer. Cela fit de Xu Mu une nouvelle étoile montante dans le Système Stellaire Luotian!
 
 Les récits des combats entre Xu Mu et la famille Yao furent propagés et devinrent connus de tous les cultivateurs du système.
 

@@ -58,13 +58,13 @@ Toutefois, afin de forcer Wang Lin à révéler ses deux flèches, il l'avait so
 
 « Bien qu'il ne soit pas parfait, il lui en manque encore une... Mais ils ont tous hérité du pouvoir des Anciens et se sont entretués pour provoquer les changements du ciel. Cela pourrait créer des fissures dans la formation! » Les yeux du Souverain s'illuminèrent.
 
-Au même moment, les neuf parties du corps de l'homme d'âge moyen se rassemblèrent et se condensèrent lentement. Au plus profond d'Allheaven, il existait une zone d'espace infinie. Il n'y avait aucune planète là-bas, pas même un soupçon de vie.
+Au même moment, les neuf parties du corps de l'homme d'âge moyen se rassemblèrent et se condensèrent lentement. Au plus profond de Luotian, il existait une zone d'espace infinie. Il n'y avait aucune planète là-bas, pas même un soupçon de vie.
 
 Pourtant, on y trouvait d'innombrables particules de poussière invisibles à l'œil nu. Et dans l'une de ces particules de poussière se cachait un autre monde!
 
 C'était un monde de glace, entier et contenu dans un grain de poussière. Il était infini, et tout ce que l'on percevait semblait scellé dans la glace. Même les nuages et la terre dégageaient un froid glacial.
 
-C'était là que se situait la planète Dong Lin, le foyer de la seule famille ancienne d'Allheaven! Une femme Dieu Ancien résidait ici!
+C'était là que se situait la planète Dong Lin, le foyer de la seule famille ancienne de Luotian! Une femme Dieu Ancien résidait ici!
 
 Bien que la bataille entre les Royaumes Intérieur et Extérieur se soit étendue aux quatre grands systèmes stellaires, elle n'avait pas affecté ce lieu. En tant que famille ancienne, ils avaient eu la capacité d'échapper à la destruction au milieu de ces guerres; ils savaient rester cachés.
 

@@ -70,7 +70,7 @@ Une pression écrasante les enveloppa, formant une force de suppression absolue.
 
 « Qui... qui est là?! »
 
-« Serait-ce un cultivateur du troisième niveau du Royaume Intérieur? Mais tous leurs experts de ce niveau sont à Allheaven! Comment quelqu'un a-t-il pu franchir toutes les barrières pour arriver ici?! »
+« Serait-ce un cultivateur du troisième niveau du Royaume Intérieur? Mais tous leurs experts de ce niveau sont à Luotian! Comment quelqu'un a-t-il pu franchir toutes les barrières pour arriver ici?! »
 
 De nombreux cultivateurs, qu'ils soient en train d'utiliser des fours de culture ou d'exploiter des mortels et des captifs du Royaume Intérieur, furent frappés de stupeur. Tremblants de sueur froide, ils s'envolèrent vers les cieux.
 

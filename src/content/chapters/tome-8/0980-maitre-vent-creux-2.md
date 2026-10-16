@@ -44,13 +44,13 @@ Wang Lin réfléchit un instant, puis retira lentement son poing. Il prit le bou
 
 En voyant Wang Lin retirer son coup, le vieil homme poussa un soupir de soulagement avant d'observer attentivement le jeune homme.
 
-Wang Lin leva sa main droite et forma un sceau. D'un geste, une restriction s'envola. C'était la même empreinte d'esclave que celle utilisée sur Big Head, et elle se fixa entre les sourcils du vieil homme.
+Wang Lin leva sa main droite et forma un sceau. D'un geste, une restriction s'envola. C'était la même empreinte d'esclave que celle utilisée sur Da Tou, et elle se fixa entre les sourcils du vieil homme.
 
 Le vieil homme n'osa pas résister et permit à Wang Lin de poser le sceau. L'empreinte clignota plusieurs fois entre ses sourcils avant de disparaître.
 
 « Occupez-vous de vos affaires et suivez-moi! » Wang Lin ne daigna même pas regarder le vieil homme avant de disparaître. Lorsqu'il réapparut, il se tenait sur le dos de Lei Ji, puis s'assit.
 
-Les sept hommes en noir avaient déjà été éliminés par Big Head. Se léchant les lèvres, Big Head retourna aux côtés de Wang Lin.
+Les sept hommes en noir avaient déjà été éliminés par Da Tou. Se léchant les lèvres, Da Tou retourna aux côtés de Wang Lin.
 
 Le vieil homme poussa un soupir, puis revint sur le bateau en un éclair. Il convoqua tous ses disciples et, après avoir donné quelques ordres, les laissa partir avec l'embarcation. Il rejoignit le dos de Lei Ji avant Wang Lin et eut un sourire amer: « Suivant les ordres du camarade cultivateur, j'ai réglé toutes les affaires triviales. Mon vrai nom est Chen Feng et mon surnom est Maître Vent Creux. Aujourd'hui, j'ai perdu face à vous et je n'en ai aucun regret. Moi, Chen Feng, respecterai ma promesse de vous aider dans la Terre des Esprits Démoniaques. Cependant, j'espère qu'après notre retour, le camarade cultivateur relâchera le sceau et qu'il n'y aura aucune rancune entre nous! »
 

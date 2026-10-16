@@ -1,6 +1,6 @@
 ---
 n: 914
-title: Plan pour massacrer Allheaven
+title: Plan pour massacrer Luotian
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 914 - Plan to Slaughter Allheaven
@@ -40,9 +40,9 @@ Wang Lin effleura vaguement l'essence même de la loi. Un sourire apparut sur se
 
 Tout en riant, il regagna le sommet de la montagne d'un seul pas. Il se tint là et leva les yeux vers les nuages. À cet instant, la pluie tombait toujours, mais elle se transformait en vapeur d'eau à trois pouces de lui. Bientôt, une couche de nuages enveloppa Wang Lin.
 
-Cette scène était identique à celle de l'arrivée de Maître Flamespark. Cependant, les nuages autour de Wang Lin étaient ténus. Ceux de Maître Flamespark semblaient capables de faire s'effondrer le monde sur simple ordre.
+Cette scène était identique à celle de l'arrivée de Maître Yan Leizi. Cependant, les nuages autour de Wang Lin étaient ténus. Ceux de Maître Yan Leizi semblaient capables de faire s'effondrer le monde sur simple ordre.
 
-Pourtant, si le sens divin de Maître Flamespark descendait sur la planète et voyait cela, il en serait stupéfait. Car ce nuage n'était pas causé par un sort d'énergie originelle, mais était un signe manifeste des lois.
+Pourtant, si le sens divin de Maître Yan Leizi descendait sur la planète et voyait cela, il en serait stupéfait. Car ce nuage n'était pas causé par un sort d'énergie originelle, mais était un signe manifeste des lois.
 
 C'était l'œuvre du pouvoir de la loi. Ce n'était pas une action délibérée; cela consistait à modifier subtilement l'espace environnant pour que les gouttes de pluie se transmutent en nuages. Ce nuage lui-même était un sort d'une puissance infinie!
 
@@ -108,7 +108,7 @@ Wang Lin s'assit au sol, le regard serein. Il avait compris *Invoquer la Pluie*,
 
 Il n'y avait pas qu'une seule silhouette, mais d'innombrables formes traversant les étoiles. De nombreuses ondulations se propageaient autour d'elles, les faisant avancer encore plus vite.
 
-Après avoir pénétré dans la région occidentale, elles rencontrèrent peu après une équipe de cultivateurs Allheaven. Le chef de file était le cultivateur aux six doigts. Il dirigeait l'équipe vers le nord. La région occidentale étant sous le contrôle d'Allheaven, en tant qu'être céleste, il devait naturellement ouvrir la voie vers le nord.
+Après avoir pénétré dans la région occidentale, elles rencontrèrent peu après une équipe de cultivateurs Luotian. Le chef de file était le cultivateur aux six doigts. Il dirigeait l'équipe vers le nord. La région occidentale étant sous le contrôle de Luotian, en tant qu'être céleste, il devait naturellement ouvrir la voie vers le nord.
 
 Tout au long du trajet, il faisait preuve d'une prudence extrême. Son sens divin était déployé afin que, au moindre signe de trouble, il puisse réagir immédiatement.
 
@@ -124,6 +124,6 @@ Son corps tremblait à chaque fois qu'une figure illusoire s'engouffrait en lui.
 
 Regardant son propre corps, le cultivateur aux six doigts esquissa un sourire singulier et murmura: « Ce corps est acceptable! »
 
-Derrière lui, les cultivateurs Allheaven sortirent un à un, arborant tous des sourires étranges.
+Derrière lui, les cultivateurs Luotian sortirent un à un, arborant tous des sourires étranges.
 
-« Le plan du Temple Mystérieux pour anéantir Allheaven commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Allheaven doivent être éradiqués! Parmi les quatre Saints, le Démon Saint Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Allheaven découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »
+« Le plan du Temple Mystérieux pour anéantir Luotian commencera bientôt... Après ce grand bouleversement, notre tâche ne se limitera pas à Xu Mu; les vestiges des cultivateurs Luotian doivent être éradiqués! Parmi les quatre Saints, le Démon Saint Noir et le Saint de l'Origine du Dao Céleste sont arrivés. Cette fois, les cultivateurs Luotian découvriront que la porte de notre Système Stellaire de l'Alliance n'est pas si facile à franchir! »

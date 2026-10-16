@@ -76,9 +76,9 @@ Peu de temps après, Wang Lin aperçut Situ Nan et ses compagnons.
 
 Les trois frères Chen étaient assis là, en pleine culture, entourés d'un gaz blanc. Il était évident qu'ils avaient épuisé une grande partie de leur énergie à briser une restriction et qu'ils se remettaient.
 
-Big Head se tenait aux côtés des trois frères. Ce qui surprit Wang Lin, c'est que Big Head possédait un talent inattendu pour les restrictions. Il guidait Lei Ji dans le calcul nécessaire pour en briser une nouvelle.
+Da Tou se tenait aux côtés des trois frères. Ce qui surprit Wang Lin, c'est que Da Tou possédait un talent inattendu pour les restrictions. Il guidait Lei Ji dans le calcul nécessaire pour en briser une nouvelle.
 
-Maître Hollow Wind avait également étudié les restrictions et était devenu la force principale de l'opération. Quant à Situ Nan et la femme en argent, ils étaient chargés de parer toute riposte qui pourrait survenir une fois les protections brisées.
+Maître Fu Fengzi avait également étudié les restrictions et était devenu la force principale de l'opération. Quant à Situ Nan et la femme en argent, ils étaient chargés de parer toute riposte qui pourrait survenir une fois les protections brisées.
 
 L'arrivée lente de Wang Lin attira immédiatement l'attention de tous. Situ Nan, présent depuis plusieurs jours, commençait à perdre patience. Les restrictions environnantes le rendaient étourdi, car ses connaissances en la matière étaient limitées. À ses yeux, peu importait la puissance d'une restriction: tant que son niveau de culture était assez élevé, il pourrait la briser.
 
@@ -88,27 +88,27 @@ En voyant Wang Lin revenir, les yeux de Situ Nan s'illuminèrent et il éclata d
 
 Sur ces mots, il n'attendit même pas la réponse de Wang Lin. Il s'engouffra dans une forêt de bambous adjacente et disparut.
 
-Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le supprimer temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Hollow Wind et regarda devant lui.
+Compte tenu du niveau de culture de Situ Nan, Wang Lin ne s'inquiétait pas pour lui. Quant au poison, ils avaient trouvé ensemble un moyen de le supprimer temporairement sans avoir recours à une cultivatrice. Dans le pire des cas, Situ Nan serait simplement piégé et Wang Lin pourrait venir le secourir plus tard. Sans s'arrêter, Wang Lin rejoignit Maître Fu Fengzi et regarda devant lui.
 
 Une petite rivière coulait à cent pas de là, enveloppée d'une fine couche de brume. Un pont de pierre reliait les deux rives. Ce pont était l'unique entrée.
 
-« Cet endroit est très étrange. Nous sommes bloqués ici depuis dix heures. Peu importe mes calculs, je ne parviens pas à saisir la logique de cette restriction. Cependant, j'ai le sentiment que si nous tentons de l'ouvrir par la force, cela déclenchera une réaction en chaîne inimaginable. Nous ne pouvons donc pas agir brutalement. » Maître Hollow Wind hocha la tête vers Wang Lin pour lui expliquer la situation en détail. Il craignait que Wang Lin, ignorant tout des restrictions, n'exige de forcer le passage.
+« Cet endroit est très étrange. Nous sommes bloqués ici depuis dix heures. Peu importe mes calculs, je ne parviens pas à saisir la logique de cette restriction. Cependant, j'ai le sentiment que si nous tentons de l'ouvrir par la force, cela déclenchera une réaction en chaîne inimaginable. Nous ne pouvons donc pas agir brutalement. » Maître Fu Fengzi hocha la tête vers Wang Lin pour lui expliquer la situation en détail. Il craignait que Wang Lin, ignorant tout des restrictions, n'exige de forcer le passage.
 
 L'expression de Wang Lin resta neutre tandis que son regard se posait sur le pont de pierre; il ne dit mot.
 
-« Cette grotte céleste est à double couche, et nous nous trouvons à la jonction entre les couches intérieure et extérieure. Une fois la rivière franchie, nous pénétrerons dans la partie interne de la grotte. Les restrictions ici sont trop complexes pour être surmontées rapidement. Big Head a suggéré de ne pas traverser le pont, mais plutôt de briser le flanc pour entrer par la rivière. » Maître Hollow Wind parlait tout en jetant un regard à Big Head, dont les yeux brillaient alors qu'il ordonnait à Lei Ji de porter des coups aux restrictions qui les séparaient du passage.
+« Cette grotte céleste est à double couche, et nous nous trouvons à la jonction entre les couches intérieure et extérieure. Une fois la rivière franchie, nous pénétrerons dans la partie interne de la grotte. Les restrictions ici sont trop complexes pour être surmontées rapidement. Da Tou a suggéré de ne pas traverser le pont, mais plutôt de briser le flanc pour entrer par la rivière. » Maître Fu Fengzi parlait tout en jetant un regard à Da Tou, dont les yeux brillaient alors qu'il ordonnait à Lei Ji de porter des coups aux restrictions qui les séparaient du passage.
 
-Maître Hollow Wind fronça les sourcils en observant la rivière et ajouta: « Les trois frères Chen sont trop épuisés et se rétablissent. Le plan du cultivateur Situ était d'attendre leur récupération pour briser l'obstacle de concert. Mais je reste réservé sur cette méthode. »
+Maître Fu Fengzi fronça les sourcils en observant la rivière et ajouta: « Les trois frères Chen sont trop épuisés et se rétablissent. Le plan du cultivateur Situ était d'attendre leur récupération pour briser l'obstacle de concert. Mais je reste réservé sur cette méthode. »
 
 De son point de vue, Wang Lin ne pouvait pas avoir pratiqué la culture pendant si longtemps. Il avait appris quelques choses sur lui.
 
-« Atteindre un tel niveau de culture en seulement un millénaire est inconcevable. Je crains que ce Wang Lin ne connaisse rien aux restrictions. Après tout, il n'a pas eu le temps de les maîtriser! Tout reposera sur moi et Big Head. » Maître Hollow Wind soupira intérieurement. Il savait que ses propres capacités n'étaient pas exceptionnelles; s'il gérait les restrictions de la couche extérieure, il sentait déjà perdre le contrôle à ce point de jonction.
+« Atteindre un tel niveau de culture en seulement un millénaire est inconcevable. Je crains que ce Wang Lin ne connaisse rien aux restrictions. Après tout, il n'a pas eu le temps de les maîtriser! Tout reposera sur moi et Da Tou. » Maître Fu Fengzi soupira intérieurement. Il savait que ses propres capacités n'étaient pas exceptionnelles; s'il gérait les restrictions de la couche extérieure, il sentait déjà perdre le contrôle à ce point de jonction.
 
-Wang Lin observa le pont de pierre et ne put s'empêcher de froncer les sourcils. Il comprenait pourquoi Maître Hollow Wind était bloqué. C'était exactement comme il l'avait dit: si la barrière était brisée par la force, la réaction en chaîne serait catastrophique.
+Wang Lin observa le pont de pierre et ne put s'empêcher de froncer les sourcils. Il comprenait pourquoi Maître Fu Fengzi était bloqué. C'était exactement comme il l'avait dit: si la barrière était brisée par la force, la réaction en chaîne serait catastrophique.
 
 « Je crains que ce ne soit là le premier obstacle pour pénétrer dans la partie intérieure de la grotte céleste. »
 
-Bien que les cent pas devant eux semblassent ordinaires, outre les avertissements de Maître Hollow Wind, Wang Lin percevait d'autres menaces potentielles. Les restrictions ici différaient grandement de celles de la couche extérieure.
+Bien que les cent pas devant eux semblassent ordinaires, outre les avertissements de Maître Fu Fengzi, Wang Lin percevait d'autres menaces potentielles. Les restrictions ici différaient grandement de celles de la couche extérieure.
 
 « Je dois tester cela pour voir si mes soupçons sont fondés. » Les yeux de Wang Lin s'illuminèrent et il prononça lentement: « Cadavre Argenté! »
 
@@ -116,6 +116,6 @@ La femme en argent plissa les yeux et se tint aux côtés de Wang Lin. Son regar
 
 Wang Lin ne la regarda pas. Ses yeux restèrent fixés sur le pont de pierre alors qu'il disait calmement: « Avancez de dix pas! »
 
-Maître Hollow Wind ne put s'empêcher de froncer les sourcils. À ses yeux, c'était l'acte le plus imprudent qui soit. La restriction pourrait être activée précisément de cette manière.
+Maître Fu Fengzi ne put s'empêcher de froncer les sourcils. À ses yeux, c'était l'acte le plus imprudent qui soit. La restriction pourrait être activée précisément de cette manière.
 
 Cependant, il se contenta de regarder Wang Lin sans mot dire. Au lieu de cela, il recula de quelques pas et commença à observer attentivement.

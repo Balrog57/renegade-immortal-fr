@@ -16,7 +16,7 @@ En revenant, son cœur battait la chamade. Une fois de retour, elle baissa immé
 
 L'ancêtre de la famille Xi soupira intérieurement en voyant cela, une expression complexe dans le regard.
 
-« Entrez dans le lac de tonnerre! » À cet instant, la voix du Maître Flamespark résonna entre ciel et terre. Sa voix se mua en un tonnerre grondant, provoquant un changement radical au sein du lac. L'espace ouvert au centre fut soudainement saturé d'éclairs, et la place entière se transforma en un véritable lac de foudre!
+« Entrez dans le lac de tonnerre! » À cet instant, la voix du Maître Yan Leizi résonna entre ciel et terre. Sa voix se mua en un tonnerre grondant, provoquant un changement radical au sein du lac. L'espace ouvert au centre fut soudainement saturé d'éclairs, et la place entière se transforma en un véritable lac de foudre!
 
 Alors que des vagues de tonnerre déferlaient dans le lac, la pression qui s'en dégageait faisait frémir le cuir chevelu de la majorité des cultivateurs à la simple vue du spectacle.
 
@@ -44,7 +44,7 @@ Une sensation extrêmement agréable l'envahit aussitôt, comme s'il était chez
 
 Après avoir trouvé un espace dégagé, Wang Lin s'assit en position du lotus.
 
-« La seconde épreuve commence maintenant! Le tambour marquera le temps! » Après le cri du Maître Flamespark, deux messagers arrivèrent immédiatement. Une lueur noire jaillit entre eux et un grand tambour apparut.
+« La seconde épreuve commence maintenant! Le tambour marquera le temps! » Après le cri du Maître Yan Leizi, deux messagers arrivèrent immédiatement. Une lueur noire jaillit entre eux et un grand tambour apparut.
 
 *Dong!* Un coup de tambour profond résonna soudainement entre ciel et terre, semblant couvrir le rugissement du tonnerre. Un coup de tambour correspondait à une respiration!
 

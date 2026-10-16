@@ -57,9 +57,9 @@ La clarté de son esprit s'estompa peu à peu alors que l'aube pointait à l'hor
 
 « Même les neuf soleils cherchent leur voie, mais nul ne la trouve. Nous ne pouvons que profiter du temps imposé par la réincarnation pour méditer... Le Dao Céleste est issu du Royaume Divin Primordial. J'ignore quand ce royaume mystérieux est apparu ou quand l'humanité parviendra à le comprendre pleinement... Ah. » Xuan Luo leva sa main droite et observa son index, où un cercle noir tournait lentement, émettant l'aura du Dao Céleste.
 
-Au petit matin, la lumière chassa les ténèbres. Lorsque les premiers rayons frappèrent la terre, Wang Lin cessa de méditer et prit une profonde inspiration. Il se leva et leva les yeux avec un regard complexe. D'un pas, il disparut au loin. À cet instant, sa silhouette semblait rivaliser avec le soleil levant alors qu'il fendait le ciel pour sortir du fleuve argenté. Il fonçait vers Allheaven!
+Au petit matin, la lumière chassa les ténèbres. Lorsque les premiers rayons frappèrent la terre, Wang Lin cessa de méditer et prit une profonde inspiration. Il se leva et leva les yeux avec un regard complexe. D'un pas, il disparut au loin. À cet instant, sa silhouette semblait rivaliser avec le soleil levant alors qu'il fendait le ciel pour sortir du fleuve argenté. Il fonçait vers Luotian!
 
-Des ondulations résonnèrent alors que Wang Lin se fondait dans le vide. Lorsqu'il réapparut, il était déjà à Allheaven. Un seul pas pour traverser tout un système stellaire!
+Des ondulations résonnèrent alors que Wang Lin se fondait dans le vide. Lorsqu'il réapparut, il était déjà à Luotian. Un seul pas pour traverser tout un système stellaire!
 
 Une fois apparu, il ne déploya pas son Sens Divin mais ferma les yeux. Xie Qing était son disciple, lié à lui par le karma; grâce à ce lien, il pouvait ressentir l'existence de Xie Qing sans avoir recours à son Sens Divin.
 
@@ -67,6 +67,6 @@ Après un long moment, Wang Lin ouvrit les yeux et se tourna vers l'est, son reg
 
 « M'attends-tu vraiment...? » Wang Lin soupira et marcha vers l'est. Son corps fusionna lentement avec le vide jusqu'à disparaître.
 
-À cet instant, à Allheaven, les quatre généraux volaient en avant. La bête de brume géante secoua la tête et poursuivit sa recherche, ses yeux brillant d'une intensité nouvelle, comme si elle avait décelé une trace. Le Vieux Fantôme Zhan suivait les généraux, l'œil vif; il avait compris le sens du regard de la bête!
+À cet instant, à Luotian, les quatre généraux volaient en avant. La bête de brume géante secoua la tête et poursuivit sa recherche, ses yeux brillant d'une intensité nouvelle, comme si elle avait décelé une trace. Le Vieux Fantôme Zhan suivait les généraux, l'œil vif; il avait compris le sens du regard de la bête!
 
-Toujours à Allheaven, le Daoïste aux Sept Couleurs pénétra depuis la frontière avec le Fleuve Invoqué. N'ayant rien trouvé dans le fleuve, il commença à explorer minutieusement Allheaven.
+Toujours à Luotian, le Daoïste aux Sept Couleurs pénétra depuis la frontière avec le Fleuve Invoqué. N'ayant rien trouvé dans le fleuve, il commença à explorer minutieusement Luotian.

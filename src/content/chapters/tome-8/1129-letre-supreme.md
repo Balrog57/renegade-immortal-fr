@@ -52,7 +52,7 @@ Bien que leurs niveaux de culture variaient, tous ces anciens possédaient des s
 
 Tous les anciens que Wang Lin avait croisés n'étaient que les plus faibles de la mer de sang. Il n'avait pas encore aperçu le moindre des puissants anciens cultivateurs.
 
-« Je me demande où sont passés Maître Flamespark et ces puissants membres de la Secte des Cadavres! » Wang Lin déploya son Sens Divin pour scruter les environs. Le vide était trop vaste pour qu'il puisse le couvrir entièrement. Le huitième jour, Wang Lin s'arrêta soudainement et regarda devant lui.
+« Je me demande où sont passés Maître Yan Leizi et ces puissants membres de la Secte des Cadavres! » Wang Lin déploya son Sens Divin pour scruter les environs. Le vide était trop vaste pour qu'il puisse le couvrir entièrement. Le huitième jour, Wang Lin s'arrêta soudainement et regarda devant lui.
 
 Une lueur rouge sang apparut brusquement dans le vide, au loin. Un grondement de tonnerre accompagna la propagation de cette lumière écarlate. Celle-ci parcourut une distance indéfinie avant de surgir sous les yeux de Wang Lin.
 
@@ -60,27 +60,27 @@ En regardant en arrière, la vague de lumière rouge s'était déjà éloignée 
 
 Cette onde de sang avait provoqué une puissante fluctuation d'énergie originelle. Seul un cultivateur d'une force exceptionnelle pouvait engendrer un tel choc.
 
-Le visage de Maître Flamespark était livide alors qu'il fixait un vieil homme vêtu de rouge. L'homme était entièrement cramoisi, jusqu'au fond de ses yeux. Pourtant, aucune trace de folie ne se lisait sur son visage, seulement un calme glacial.
+Le visage de Maître Yan Leizi était livide alors qu'il fixait un vieil homme vêtu de rouge. L'homme était entièrement cramoisi, jusqu'au fond de ses yeux. Pourtant, aucune trace de folie ne se lisait sur son visage, seulement un calme glacial.
 
-Les fluctuations de sorts déferlaient autour d'eux. Les deux combattants reculèrent sans échanger un mot. Le vieil homme en rouge agita ses manches et une mer de sang apparut. Cette mer se mua en dragon et chargea Maître Flamespark dans un rugissement.
+Les fluctuations de sorts déferlaient autour d'eux. Les deux combattants reculèrent sans échanger un mot. Le vieil homme en rouge agita ses manches et une mer de sang apparut. Cette mer se mua en dragon et chargea Maître Yan Leizi dans un rugissement.
 
-Dès son apparition, le dragon développa huit autres têtes, devenant un dragon de sang à neuf têtes. Il poussa un cri qui ébranla les cieux et fondit sur Maître Flamespark.
+Dès son apparition, le dragon développa huit autres têtes, devenant un dragon de sang à neuf têtes. Il poussa un cri qui ébranla les cieux et fondit sur Maître Yan Leizi.
 
-« Encore ce tour! » Maître Flamespark recula promptement, ses mains formant un sceau alors qu'il pressait son front. Une perle incandescente apparut entre ses sourcils. D'un geste du doigt, il transforma la perle en une mer de flammes qui s'élança vers le dragon à neuf têtes.
+« Encore ce tour! » Maître Yan Leizi recula promptement, ses mains formant un sceau alors qu'il pressait son front. Une perle incandescente apparut entre ses sourcils. D'un geste du doigt, il transforma la perle en une mer de flammes qui s'élança vers le dragon à neuf têtes.
 
-Tandis que les grondements tonnerre résonnaient, le vieil homme en rouge avança. Il se déplaça avec la rapidité de l'éclair à travers le dragon de sang et la mer de flammes pour surgir devant Maître Flamespark. Il leva alors sa main droite et frappa impitoyablement!
+Tandis que les grondements tonnerre résonnaient, le vieil homme en rouge avança. Il se déplaça avec la rapidité de l'éclair à travers le dragon de sang et la mer de flammes pour surgir devant Maître Yan Leizi. Il leva alors sa main droite et frappa impitoyablement!
 
-Maître Flamespark était déjà sur ses gardes. Il recula une nouvelle fois et cracha un objet: un petit fragment qui grandit instantanément. C'était un fragment du Royaume Céleste.
+Maître Yan Leizi était déjà sur ses gardes. Il recula une nouvelle fois et cracha un objet: un petit fragment qui grandit instantanément. C'était un fragment du Royaume Céleste.
 
-Un choc fracassant retentit lorsque la main du vieil homme percuta le fragment, le repoussant en retour. Ce dernier lança un regard froid à Maître Flamespark et ses mains formèrent un sceau. En agitant la main, une expression de douleur apparut sur son visage: d'innombrables bulles de sang gonflèrent sur sa peau. Cette vision était si terrifiante qu'elle en glaçait le sang.
+Un choc fracassant retentit lorsque la main du vieil homme percuta le fragment, le repoussant en retour. Ce dernier lança un regard froid à Maître Yan Leizi et ses mains formèrent un sceau. En agitant la main, une expression de douleur apparut sur son visage: d'innombrables bulles de sang gonflèrent sur sa peau. Cette vision était si terrifiante qu'elle en glaçait le sang.
 
-Maître Flamespark combattait cet ancien cultivateur depuis un jour déjà, et ils étaient toujours dans une impasse. Voyant la peau de son adversaire se métamorphoser ainsi, Maître Flamespark fut déconcerté et se mit immédiatement sur ses gardes. Sa main droite plongea dans le vide; une fissure s'ouvrit et un éventail en sortit.
+Maître Yan Leizi combattait cet ancien cultivateur depuis un jour déjà, et ils étaient toujours dans une impasse. Voyant la peau de son adversaire se métamorphoser ainsi, Maître Yan Leizi fut déconcerté et se mit immédiatement sur ses gardes. Sa main droite plongea dans le vide; une fissure s'ouvrit et un éventail en sortit.
 
 Cet éventail était d'un blanc immaculé, comme sculpté dans le jade.
 
 À l'instant où l'éventail apparut, toutes les bulles de sang sur le vieil homme éclatèrent, le couvrant de sang. Il laissa échapper un rugissement bestial et son corps se mit à gonfler. Les veines de son corps saillirent et il ne ressemblait plus à un être humain.
 
-Son corps vacilla et il chargea instantanément Maître Flamespark. Ce dernier recula et s'apprêtait à utiliser l'éventail lorsqu'il s'interrompit soudainement. Son expression devint respectueuse et il rangea l'objet.
+Son corps vacilla et il chargea instantanément Maître Yan Leizi. Ce dernier recula et s'apprêtait à utiliser l'éventail lorsqu'il s'interrompit soudainement. Son expression devint respectueuse et il rangea l'objet.
 
 Une main âgée apparut silencieusement devant le vieil homme en pleine charge. L'index de cette main pointa doucement vers l'avant.
 
@@ -94,11 +94,11 @@ Un vieil homme vêtu de noir émergea du vide. Son expression était calme, tein
 
 « Je ne pensais pas qu'il se cachait vraiment ici... »
 
-Maître Flamespark afficha un visage empreint de respect et dit: « Salutations, Être Suprême. »
+Maître Yan Leizi afficha un visage empreint de respect et dit: « Salutations, Être Suprême. »
 
 Le vieil homme en noir fronça les sourcils et murmura pour lui-même: « Un tel tumulte ne suffit même pas à le faire apparaître. Quel est donc son but véritable...? »
 
-« Ô Être Suprême... Autrefois, sur la planète Suzaku, ce trésor... ces paroles... » Maître Flamespark n'avait pas souhaité venir ici, mais il s'agissait d'un ordre de cet homme, et il n'avait aucun moyen de s'y opposer. À cet instant, il évoqua vaguement cette existence terrifiante.
+« Ô Être Suprême... Autrefois, sur la planète Suzaku, ce trésor... ces paroles... » Maître Yan Leizi n'avait pas souhaité venir ici, mais il s'agissait d'un ordre de cet homme, et il n'avait aucun moyen de s'y opposer. À cet instant, il évoqua vaguement cette existence terrifiante.
 
 Le vieil homme resta silencieux, plongé dans ses pensées. Après un long moment, il secoua la tête et poussa un soupir.
 

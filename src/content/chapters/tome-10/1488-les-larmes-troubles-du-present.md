@@ -52,7 +52,7 @@ Le vieil homme n'était qu'au stade initial du Scruteur du Nirvana; il ressentit
 
 Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la compétition. À l'époque, cet homme n'était qu'au stade du Yang Corporel, mais il était déjà une existence qu'il admirait.
 
-Il n'osait manifester aucun manque de respect devant lui. Cet homme s'était illustré lors de la guerre avec l'Alliance; il était devenu célèbre tant à Allheaven qu'au sein de l'Alliance, et l'homme d'âge moyen devait admettre qu'il n'était qu'une fourmi face à lui.
+Il n'osait manifester aucun manque de respect devant lui. Cet homme s'était illustré lors de la guerre avec l'Alliance; il était devenu célèbre tant à Luotian qu'au sein de l'Alliance, et l'homme d'âge moyen devait admettre qu'il n'était qu'une fourmi face à lui.
 
 « Il est parti depuis longtemps, il est peut-être même mort... » Avant que l'homme d'âge moyen ne puisse finir sa phrase, le vieil homme l'interrompit par un ricanement.
 
@@ -110,6 +110,6 @@ Au moment où il prononça son nom, les quelque cent cultivateurs furent ébranl
 
 Wang Lin!
 
-Un nom qui avait autrefois fait trembler Allheaven!
+Un nom qui avait autrefois fait trembler Luotian!
 
 « Je ne suis pas Xi Zifeng... Senior se trompe... » dit la femme qui reculait d'une voix tremblante, comme si elle n'avait plus aucune issue.

@@ -118,8 +118,8 @@ Pourtant, ce jour-là, un rayon de lumière transportant une aura terrifiante su
 
 Cette fois, il était venu avec son corps originel. Derrière lui se dressait l'image d'un aigle noir de 330 mètres de haut. Les yeux de cet aigle, semblables à des éclairs, étaient d'une froideur absolue.
 
-Dès son apparition, des grondements tonitruants retentirent au loin. C'était Maître Flamespark, qui s'était approché en un seul pas.
+Dès son apparition, des grondements tonitruants retentirent au loin. C'était Maître Yan Leizi, qui s'était approché en un seul pas.
 
-Au moment où Maître Flamespark apparut, une lueur rouge jaillit et une formation octogonale de 33 kilomètres de large se déploya dans l'espace. La pression qu'elle dégageait était si puissante qu'on pouvait la ressentir même à une distance immense.
+Au moment où Maître Yan Leizi apparut, une lueur rouge jaillit et une formation octogonale de 33 kilomètres de large se déploya dans l'espace. La pression qu'elle dégageait était si puissante qu'on pouvait la ressentir même à une distance immense.
 
 Alors que la formation octogonale scintillait de rouge, une aura capable de faire trembler les cieux se propagea lentement. La formation brilla intensément et quatre silhouettes en sortirent!

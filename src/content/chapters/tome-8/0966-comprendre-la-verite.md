@@ -8,9 +8,9 @@ slug: comprendre-la-vérité
 ---
 Maître Yi Chen semblait avoir atteint une certaine illumination. Il tenait sa coupe de vin sans la reposer pendant un long moment.
 
-« Le frère Wang fait-il référence au Système Stellaire d'Allheaven lorsqu'il évoque les familles cultivatrices? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit: « En parlant du Système Stellaire d'Allheaven, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
+« Le frère Wang fait-il référence au Système Stellaire de Luotian lorsqu'il évoque les familles cultivatrices? » Maître Yi Chen afficha un air d'intérêt. Après que Wang Lin eut acquiescé, Maître Yi Chen poursuivit: « En parlant du Système Stellaire de Luotian, ils sont en effet bien différents. Il est stupéfiant qu'ils aient pu progresser autant en se concentrant sur les familles cultivatrices. Si l'Alliance de la Culture ne me l'avait pas dit, je ne l'aurais pas cru. »
 
-« La bataille d'Allheaven contre l'Alliance au nord a contraint cette dernière à battre en retraite. Leur puissance ne doit pas être sous-estimée. »
+« La bataille de Luotian contre l'Alliance au nord a contraint cette dernière à battre en retraite. Leur puissance ne doit pas être sous-estimée. »
 
 Tandis qu'il parlait, des coups de tonnerre retentirent dans le ciel nocturne et les nuages se rassemblèrent progressivement pour occulter la lune. L'humidité envahit la région, puis un éclair qui illumina la nuit s'abattit avec fracas.
 

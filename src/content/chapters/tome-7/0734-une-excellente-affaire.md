@@ -60,7 +60,7 @@ Pour la première fois, une hésitation apparut sur le visage du vieil homme. Il
 
 Cependant, ce sort du troisième œil était un héritage familial; il ne pouvait donc pas être enseigné ainsi à des étrangers. L'origine de la technique était inconnue, semblant provenir d'une acquisition fortuite de ses ancêtres.
 
-Si cela s'était passé dans le Système Stellaire de l'Alliance, une famille comme la sienne n'aurait jamais pu garder un tel secret pour elle seule. Mais dans le Système Stellaire d'Allheaven, où les clans détenaient le pouvoir, presque chaque lignée possédait ses propres héritages, et ceux-ci n'étaient pas faciles à dérober.
+Si cela s'était passé dans le Système Stellaire de l'Alliance, une famille comme la sienne n'aurait jamais pu garder un tel secret pour elle seule. Mais dans le Système Stellaire de Luotian, où les clans détenaient le pouvoir, presque chaque lignée possédait ses propres héritages, et ceux-ci n'étaient pas faciles à dérober.
 
 Ce qui était plus important encore, c'était qu'il fût la première personne de sa lignée à réussir à le maîtriser depuis que sa famille l'avait obtenu.
 

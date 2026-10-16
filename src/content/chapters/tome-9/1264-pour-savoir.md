@@ -10,7 +10,7 @@ Les regards de Wang Lin et de Mu Bingmei se croisèrent par l'ouverture de la po
 
 Ce silence différait de celui qu'il ressentait auprès de Li Qianmei, mais il ne savait pas exactement en quoi. Il semblait que dans la vie de Wang Lin, outre Li Muwan, il y aurait aussi quelqu'un nommée Liu Mei ou Mu Bingmei pour l'accompagner...
 
-La planète Suzaku était ainsi... Allheaven était ainsi... et désormais, dans la Mer des Nuages, c'était encore ainsi.
+La planète Suzaku était ainsi... Luotian était ainsi... et désormais, dans la Mer des Nuages, c'était encore ainsi.
 
 Dans ce silence, Mu Bingmei baissa la tête et avança lentement. Elle franchit le seuil, entra dans la cour et s'arrêta à dix pieds de Wang Lin.
 
@@ -36,7 +36,7 @@ Cependant, rien de tout cela n'importait. Lorsqu'il avait quitté le Système d'
 
 « Tuo Sen! » Les yeux de Wang Lin changèrent soudainement, laissant poindre une lueur de froideur.
 
-« Il s'est échappé. L'armée d'Allheaven s'est effondrée. Il a tué d'innombrables cultivateurs, les forçant à battre en retraite vers Allheaven. Ils n'osent plus entrer dans l'Alliance... Allheaven possède un puissant cultivateur nommé Maître Lu Fu. Il a évité le Système d'Alliance des Étoiles pour ne pas avoir à affronter Tuo Sen! » Les paroles de Mu Bingmei étaient calmes, mais leur contenu choqua Wang Lin. Ce dernier prit une profonde inspiration tandis que son aura se condensait en lui; il était tel un volcan sur le point d'exploser.
+« Il s'est échappé. L'armée de Luotian s'est effondrée. Il a tué d'innombrables cultivateurs, les forçant à battre en retraite vers Luotian. Ils n'osent plus entrer dans l'Alliance... Luotian possède un puissant cultivateur nommé Maître Lu Fu. Il a évité le Système d'Alliance des Étoiles pour ne pas avoir à affronter Tuo Sen! » Les paroles de Mu Bingmei étaient calmes, mais leur contenu choqua Wang Lin. Ce dernier prit une profonde inspiration tandis que son aura se condensait en lui; il était tel un volcan sur le point d'exploser.
 
 Pourtant, Mu Bingmei n'en avait pas fini; elle n'avait pas encore livré toutes les nouvelles!
 
@@ -82,7 +82,7 @@ Ses intentions étaient nobles.
 
 Wang Lin baissa la tête. En voyant le visage pâle et éploré de Mu Bingmei ainsi que le remords dans ses yeux, il soupira doucement: « Ce n'est rien. »
 
-« Cette affaire n'a aucun lien avec toi. J'ai personnellement vu le cultivateur du troisième niveau d'Allheaven, Maître Lu Fu, être vaincu et frôler la mort. Avec la puissance de Tuo Sen, s'il avait voulu laisser une empreinte indétectable en toi, tu n'aurais jamais pu la trouver. »
+« Cette affaire n'a aucun lien avec toi. J'ai personnellement vu le cultivateur du troisième niveau de Luotian, Maître Lu Fu, être vaincu et frôler la mort. Avec la puissance de Tuo Sen, s'il avait voulu laisser une empreinte indétectable en toi, tu n'aurais jamais pu la trouver. »
 
 La voix de Wang Lin était douce. Il percevait naturellement les bonnes intentions de Mu Bingmei.
 

@@ -99,7 +99,7 @@ Trois jours plus tard, la force commença lentement à se dissiper et le corps d
 
 Wang Lin ouvrit les yeux avec une pointe d'inquiétude. En regardant le piège sur son poignet droit, son regard se glaça.
 
-« La succion était assez puissante pour épuiser une pierre spirituelle de qualité supérieure... Char de guerre tueur de dieux... Je devrai trouver le moment de voir si tu es digne de ce nom. »
+« La succion était assez puissante pour épuiser une pierre spirituelle de qualité supérieure... Char de Guerre Divin... Je devrai trouver le moment de voir si tu es digne de ce nom. »
 
 Wang Lin réfléchit un instant. Il ne rangea pas les sept pierres restantes, mais les garda sur lui. D'après son expérience, le piège allait probablement aspirer son énergie spirituelle après chaque usage; il était plus prudent de conserver ces pierres à portée de main.
 

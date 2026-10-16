@@ -22,7 +22,7 @@ Wang Lin n'était pas du genre à se laisser malmener. Son regard se glaça et s
 
 Sans s'arrêter, il continua sa marche. Tandis que la lueur rouge enveloppait la main, des bruits de craquements retentirent et celle-ci se dissipa. Wang Lin atterrit sur la place, joignit les mains en signe de respect envers Luo Su et dit calmement: « Je vous prie de bien vouloir me conseiller! »
 
-En voyant cela, les yeux de Maître Flamespark s'illuminèrent. La vue de cette lumière rouge fut pour lui comme une illumination; une pointe d'admiration transparut dans son regard envers Wang Lin.
+En voyant cela, les yeux de Maître Yan Leizi s'illuminèrent. La vue de cette lumière rouge fut pour lui comme une illumination; une pointe d'admiration transparut dans son regard envers Wang Lin.
 
 « Cet enfant possède réellement un tel sort. Bien que sa puissance soit limitée, ce sort contient un Grand Dao! »
 

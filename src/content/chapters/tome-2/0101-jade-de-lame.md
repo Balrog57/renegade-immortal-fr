@@ -18,9 +18,9 @@ Le temps passa lentement. Trois jours plus tard, Ye Zizai revint sur la plaine s
 
 Lorsqu'il réapparut, il se trouvait déjà dans sa propre chambre. Il était très troublé en songeant à son accord avec les trois autres sectes démoniaques.
 
-L'examen de qualification pour accéder au champ de bataille étranger avait été remporté par les sectes démoniaques auparavant, mais la présence actuelle de Punnan Zi et de sa Secte Xuan Dao rendait l'issue incertaine.
+L'examen de qualification pour accéder au champ de bataille étranger avait été remporté par les sectes démoniaques auparavant, mais la présence actuelle de Pu Nanzi et de sa Secte Xuan Dao rendait l'issue incertaine.
 
-Les sourcils froncés, il murmura: « Es-tu certain de pouvoir tuer Punnan Zi? »
+Les sourcils froncés, il murmura: « Es-tu certain de pouvoir tuer Pu Nanzi? »
 
 Une voix rauque s'échappa du corps de Ye Zizai: « Bien que ce junior ne soit qu'au milieu du stade de l'Âme Naissante, il se trouve au sommet de cette étape. S'il a de la chance, il pourra percer le stade avancé d'ici cent ans et devenir le maître d'un pays de culture de rang 3. Si ma possession est complète, il ne sera pas un problème, mais pour l'instant, je ne souhaite pas compliquer les choses. »
 

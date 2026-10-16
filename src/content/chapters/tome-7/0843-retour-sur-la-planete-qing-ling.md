@@ -8,11 +8,11 @@ slug: retour-sur-la-planete-qing-ling
 ---
 Au moment où Wang Lin disparut, d'innombrables tentacules surgirent du vide et s'enroulèrent autour de la formation de transfert, provoquant son effondrement.
 
-Profitant de l'aide de Lie Yunzi et de ses compagnons pour entraver le Serpent aux yeux de lune, Maître Flamespark ferma les yeux et hurla: « Scelle-le! »
+Profitant de l'aide de Lie Yunzi et de ses compagnons pour entraver le Serpent aux yeux de lune, Maître Yan Leizi ferma les yeux et hurla: « Scelle-le! »
 
 D'innombrables fragments du Royaume Céleste grondèrent avant de converger vers le Serpent aux yeux de lune de toutes parts.
 
-Alors que le Serpent aux yeux de lune laissait échapper un rugissement de rage, tout son corps se précipita en avant. La colère l'habitait et le danger qu'il percevait émanant de Maître Flamespark le rendait presque fou!
+Alors que le Serpent aux yeux de lune laissait échapper un rugissement de rage, tout son corps se précipita en avant. La colère l'habitait et le danger qu'il percevait émanant de Maître Yan Leizi le rendait presque fou!
 
 Lorsqu'il percuta les fragments célestes, le Serpent aux yeux de lune s'arrêta soudainement. Ses yeux étaient empreints de terreur alors qu'il fixait l'horizon.
 
@@ -24,11 +24,11 @@ Cette personne était extrêmement floue; il était impossible d'en distinguer l
 
 « C'est lui! »
 
-« Maître Flamespark a réellement réussi à l'inviter! »
+« Maître Yan Leizi a réellement réussi à l'inviter! »
 
 Les quatre autres personnes changèrent immédiatement d'expression pour adopter une attitude respectueuse.
 
-Une fois cette figure illusoire apparue, les yeux de Maître Flamespark furent remplis d'extase. L'individu marcha vers le Serpent aux yeux de lune. Le corps colossal du serpent trembla, comme si l'aura de cet homme provoquait en lui une terreur primordiale.
+Une fois cette figure illusoire apparue, les yeux de Maître Yan Leizi furent remplis d'extase. L'individu marcha vers le Serpent aux yeux de lune. Le corps colossal du serpent trembla, comme si l'aura de cet homme provoquait en lui une terreur primordiale.
 
 Le Serpent aux yeux de lune recula lentement!
 
@@ -52,7 +52,7 @@ Wang Lin fronça les sourcils mais se détendit aussitôt. Ces Sens Divins se ve
 
 Wang Lin regarda le vieil homme et les membres du Clan des Immortels Délaissés et demanda: « Le voyage jusqu'ici a-t-il été sans encombre? »
 
-Le vieil homme prit une profonde inspiration et répondit: « Bénéficiaire, la route fut sûre. Cependant, en chemin, nous avons appris qu'une famille Yao du Système Stellaire d'Allheaven avait lancé une chasse contre vous... »
+Le vieil homme prit une profonde inspiration et répondit: « Bénéficiaire, la route fut sûre. Cependant, en chemin, nous avons appris qu'une famille Yao du Système Stellaire de Luotian avait lancé une chasse contre vous... »
 
 Wang Lin secoua la tête. « Cette affaire est déjà derrière nous, n'en parlez plus. Puisque vous êtes ici, installez-vous. Je dois entrer en culture fermée pendant plusieurs mois; protégez bien cet endroit. »
 

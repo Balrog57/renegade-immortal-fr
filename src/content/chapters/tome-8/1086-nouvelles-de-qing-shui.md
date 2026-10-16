@@ -34,13 +34,13 @@ Une personne était assise au sommet de la montagne. Cette personne avait une t�
 
 « Le niveau de culture du Maître continue d'augmenter... Je dois m'adapter à ce nouveau corps le plus rapidement possible. »
 
-C'était Big Head!
+C'était Da Tou!
 
-Le corps de Big Head s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divin du Vermillion Bird, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
+Le corps de Da Tou s'était effondré sur la Terre des Esprits Démoniaques. Après être arrivé à la Secte Divin du Vermillion Bird, il avait reçu l'aide des anciens du Briseur du Nirvana. En utilisant le feu comme chair, le bois comme os et l'énergie d'origine comme sang, ils l'avaient aidé à reformer un corps identique au précédent.
 
-Big Head devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
+Da Tou devait continuer à raffiner ce corps et à s'en familiariser pour pouvoir utiliser des sorts encore plus puissants qu'auparavant.
 
-Big Head n'était pas le seul ici. Lei Ji était assis dans une grotte au loin, le corps couvert d'une sueur brûlante. Devant lui se trouvaient quelques fioles de jade rouge contenant les pilules qu'il absorbait.
+Da Tou n'était pas le seul ici. Lei Ji était assis dans une grotte au loin, le corps couvert d'une sueur brûlante. Devant lui se trouvaient quelques fioles de jade rouge contenant les pilules qu'il absorbait.
 
 Le tonnerre rugissant dans le ciel s'estompa et s'éloigna à travers le champ d'étoiles ardent. Au sein de ce champ d'étoiles, une planète de forme irrégulière était traversée par une tempête sur un désert rouge.
 
@@ -52,9 +52,9 @@ Le corps de cet homme était immense, comme une véritable montagne de chair. En
 
 Après avoir essuyé la sueur sur son visage, le vieil homme leva les yeux vers le ciel avec un sourire amer et secoua la tête. « Depuis qu'il a rencontré ce Wang Lin, ce vieil homme est frappé par la malchance. J'ai même été gravement blessé à la Terre des Esprits Démoniaques, hélas... Heureusement, ce Wang Lin n'est pas un homme sans scrupules. Être au sein de la Secte Divin du Vermillion Bird est bien plus sûr que l'extérieur. »
 
-« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Hollow Wind songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Sundered Night* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Ancient Times*.
+« Le sceau de Wang Lin a été levé il y a deux ans, mais après la bataille à la Terre des Esprits Démoniaques, même sans ce sceau, je n'oserais pas chercher querelle à Wang Lin. Ses sorts sont trop terrifiants! » Lorsque Maître Fu Fengzi songea aux sorts que Wang Lin avait utilisés sur la Terre des Esprits Démoniaques, il fut saisi de crainte. *Sundered Night* suffisait déjà à l'effrayer, alors ne parlons même pas de *Dream of Ancient Times*.
 
-En repensant au poing géant descendant du ciel, la peur de Maître Hollow Wind devint encore plus intense.
+En repensant au poing géant descendant du ciel, la peur de Maître Fu Fengzi devint encore plus intense.
 
 Le tonnerre rugissant continua de se propager.
 

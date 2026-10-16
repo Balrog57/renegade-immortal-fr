@@ -72,7 +72,7 @@ Une aura de deuil enveloppa toute la région orientale de l'Alliance...
 
 La gloire passée s'était envolée avec le vent. La quête sans regret n'appartenait plus qu'au passé. Le présent était plongé dans la tristesse des temps révolus, mais il existerait à jamais... dans les cœurs de tous les membres des Quatre Sectes Divines.
 
-Après le décès de l'ancien Empereur Divin de l'Oiseau Vermillon, Allheaven rappela tous ses cultivateurs. Sous le commandement du Maître Flamespark, ils se dirigèrent vers la planète Suzaku! Même la seule famille possédant un héritage du monde antique de la culture vint d'Allheaven pour les rejoindre! Les palais du Temple Céleste du Tonnerre se déplaçaient parmi les cultivateurs, dégageant des vagues de pression écrasantes.
+Après le décès de l'ancien Empereur Divin de l'Oiseau Vermillon, Luotian rappela tous ses cultivateurs. Sous le commandement du Maître Yan Leizi, ils se dirigèrent vers la planète Suzaku! Même la seule famille possédant un héritage du monde antique de la culture vint de Luotian pour les rejoindre! Les palais du Temple Céleste du Tonnerre se déplaçaient parmi les cultivateurs, dégageant des vagues de pression écrasantes.
 
 Non seulement eux, mais la Secte des Cadavres envoya presque l'intégralité de ses membres vers la planète Suzaku! De longues processions de disciples portant des cercueils traversaient les étoiles, telle une marche funèbre.
 

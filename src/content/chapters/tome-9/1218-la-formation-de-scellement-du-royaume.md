@@ -22,9 +22,9 @@ Cette personne portait les stigmates indélébiles du passage du temps. C'était
 
 Son corps majestueux dégageait une aura indescriptible par sa simple présence sur cette planète abandonnée, enveloppant tout le champ stellaire. Toutes les créatures de ce domaine tremblaient de terreur!
 
-C'était le Système Stellaire d'Allheaven...
+C'était le Système Stellaire de Luotian...
 
-Tous les cultivateurs du Système Stellaire d'Allheaven étaient saisis par l'effroi. Ce sentiment de tension et de peur était irrésistible.
+Tous les cultivateurs du Système Stellaire de Luotian étaient saisis par l'effroi. Ce sentiment de tension et de peur était irrésistible.
 
 Certaines bêtes sauvages n'osaient même plus bouger face à cette aura. C'était comme si, par une simple volonté de cet être, leurs corps pouvaient s'effondrer en tas de sang en guise de sacrifice.
 
@@ -38,7 +38,7 @@ Alors qu'il rugissait, de puissantes vibrations se propagèrent à travers les �
 
 L'effondrement de la planète ouvrit d'innombrables fissures spatiales d'où s'engouffrait un vent glacial. Cependant, cela n'affecta nullement le géant, qui continua de rugir.
 
-Alors que son cri résonnait à travers Allheaven, d'innombrables bêtes sauvages explosèrent en une brume de sang et de nombreux cultivateurs crachèrent du sang. Ils finirent soit gravement blessés, soit morts!
+Alors que son cri résonnait à travers Luotian, d'innombrables bêtes sauvages explosèrent en une brume de sang et de nombreux cultivateurs crachèrent du sang. Ils finirent soit gravement blessés, soit morts!
 
 Une onde sonore invisible balaya le système stellaire. Chaque fois qu'elle frappait une planète, celle-ci en tremblait violemment.
 
@@ -50,7 +50,7 @@ Les barrières des quatre royaumes célestes étaient insignifiantes pour lui. I
 
 Sa démarche n'était pas rapide, mais ses enjambées étaient immenses. D'un seul pas, il franchissait une distance incommensurable. Un vortex géant rempli de brouillard apparut devant lui. C'était la Mer Nuageuse!
 
-S'avançant vers le vortex, Tuo Sen disparut d'Allheaven pour s'enfoncer... dans la Mer Nuageuse!
+S'avançant vers le vortex, Tuo Sen disparut de Luotian pour s'enfoncer... dans la Mer Nuageuse!
 
 À l'instant où il pénétra dans la Mer Nuageuse, tous les cultivateurs des sectes de rang 9 ressentirent instantanément une aura qui les ébranla jusqu'à la moelle.
 

@@ -8,9 +8,9 @@ slug: laura-de-larmure-de-cuir
 ---
 De l'autre côté, l'homme en robe noire apparut soudainement. Sa main droite traça un sceau et s'empara du vide, créant un immense vortex. Ce tourbillon traversa l'espace, et tout cultivateur qui le touchait disparaissait instantanément.
 
-Maître Flamespark et l'homme en robe noire étaient d'une rapidité extrême. Tandis que le vieil homme en robe rouge immobilisait le Serpent aux yeux de lune, ils repoussèrent les cultivateurs environnants un par un.
+Maître Yan Leizi et l'homme en robe noire étaient d'une rapidité extrême. Tandis que le vieil homme en robe rouge immobilisait le Serpent aux yeux de lune, ils repoussèrent les cultivateurs environnants un par un.
 
-S'ils croisaient un membre de la famille Yao, le regard de Maître Flamespark se glaçait et il utilisait intentionnellement dix pour cent de force supplémentaire. Cela leur infligeait de graves blessures avant qu'ils ne fusionnent avec le monde pour disparaître.
+S'ils croisaient un membre de la famille Yao, le regard de Maître Yan Leizi se glaçait et il utilisait intentionnellement dix pour cent de force supplémentaire. Cela leur infligeait de graves blessures avant qu'ils ne fusionnent avec le monde pour disparaître.
 
 Le Serpent aux yeux de lune était furieux!
 
@@ -30,23 +30,23 @@ Le doigt créé par le Serpent aux yeux de lune fit trembler l'esprit du vieil h
 
 Alors que le Serpent aux yeux de lune rugissait une fois de plus, le doigt du dieu antique pressa lentement vers le bas sur le sceau octogonal!
 
-Lorsque le doigt percuta le sceau, celui-ci se brisa en d'innombrables fragments sans la moindre résistance et fut projeté en arrière. Le visage du vieil homme empourpra de pâleur; il fut repoussé avec les débris vers Maître Flamespark et l'homme d'âge moyen.
+Lorsque le doigt percuta le sceau, celui-ci se brisa en d'innombrables fragments sans la moindre résistance et fut projeté en arrière. Le visage du vieil homme empourpra de pâleur; il fut repoussé avec les débris vers Maître Yan Leizi et l'homme d'âge moyen.
 
 À présent, ces deux derniers avaient déjà évacué tous les cultivateurs environnants.
 
-Maître Flamespark fixa le doigt du Serpent aux yeux de lune. Ses yeux brillaient d'excitation: « Quelle magnifique bête lunaire! Si je t'envoie dans le Système Stellaire de l'Alliance, Xuan Zhongzi en sera certainement stupéfait! »
+Maître Yan Leizi fixa le doigt du Serpent aux yeux de lune. Ses yeux brillaient d'excitation: « Quelle magnifique bête lunaire! Si je t'envoie dans le Système Stellaire de l'Alliance, Xuan Zhongzi en sera certainement stupéfait! »
 
 Alors que le Serpent aux yeux de lune rugissait, le doigt devant lui s'abattit rapidement sur les trois hommes.
 
 On aurait dit qu'un véritable dieu antique était apparu, levant son doigt pour pointer le bas!
 
-« Compagnons cultivateurs, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être en encaisser un coup ou en porter un. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Flamespark rit en se précipitant vers le doigt du dieu antique.
+« Compagnons cultivateurs, nous ne pouvons résister à l'attaque la plus puissante de cette bête. Si nos corps réels étaient ici, nous pourrions peut-être en encaisser un coup ou en porter un. Maintenant que notre objectif est atteint, pourquoi ne pas expérimenter personnellement la puissance de cette créature? » Maître Yan Leizi rit en se précipitant vers le doigt du dieu antique.
 
 Au moment où il chargea, des flammes enveloppèrent son corps. Une flamme monstrueuse jaillit et l'encercla totalement.
 
-Le doigt du Serpent aux yeux de lune arriva et pressa sur Maître Flamespark. Ce dernier poussa un rugissement en formant un sceau de ses mains, tandis que la flamme à l'intérieur de son corps se condensa en un dragon. Le dragon de feu s'élança vers le doigt du dieu antique.
+Le doigt du Serpent aux yeux de lune arriva et pressa sur Maître Yan Leizi. Ce dernier poussa un rugissement en formant un sceau de ses mains, tandis que la flamme à l'intérieur de son corps se condensa en un dragon. Le dragon de feu s'élança vers le doigt du dieu antique.
 
-Ce dragon de flammes représentait tout ce que Maître Flamespark possédait. Alors que le dragon fonçait, son propre corps disparut, ne laissant même aucune trace de son âme originelle. Il n'y avait plus que le dragon de feu qui percuta le doigt.
+Ce dragon de flammes représentait tout ce que Maître Yan Leizi possédait. Alors que le dragon fonçait, son propre corps disparut, ne laissant même aucune trace de son âme originelle. Il n'y avait plus que le dragon de feu qui percuta le doigt.
 
 Un fracas assourdissant résonna dans la majeure partie du Domaine Nord. Le dragon de flammes s'effondra alors que l'incendie incessant s'enroulait autour du doigt du dieu antique, brûlant avec violence.
 
@@ -70,13 +70,13 @@ Le regard du Serpent aux yeux de lune devint glacial; il ouvrit la gueule et tou
 
 À cet instant, dans une pièce secrète du Temple Céleste du Tonnerre, trois personnes étaient assises. Une formation ancienne occupait la pièce, et les trois hommes siégeaient aux points clés de celle-ci.
 
-Parmi eux se trouvait Maître Flamespark. Il ouvrit les yeux, affichant une certaine hésitation. Simultanément, les deux autres ouvrirent également les yeux: le vieil homme en robe rouge et l'homme d'âge moyen en robe noire.
+Parmi eux se trouvait Maître Yan Leizi. Il ouvrit les yeux, affichant une certaine hésitation. Simultanément, les deux autres ouvrirent également les yeux: le vieil homme en robe rouge et l'homme d'âge moyen en robe noire.
 
 L'homme en robe noire déclara: « Très puissant! »
 
 L'homme en robe rouge nommé Xiang ajouta lentement: « Cette bête est effectivement telle que nos registres familiaux le disent. Nous ne devrions pas la provoquer sans précaution! »
 
-Une lueur de folie brilla dans les yeux de Maître Flamespark alors qu'il disait calmement: « Puisqu'il en est ainsi, nous devons rassembler plus de monde et commencer à planifier la capture de cette bête! »
+Une lueur de folie brilla dans les yeux de Maître Yan Leizi alors qu'il disait calmement: « Puisqu'il en est ainsi, nous devons rassembler plus de monde et commencer à planifier la capture de cette bête! »
 
 Dans le Domaine Oriental, au sein du hall ancestral de la famille Yao, plus de dix jetons derrière Dieu Sang se brisèrent. Il rassembla d'un revers de manche le gaz blanc qui en émanait.
 
@@ -88,9 +88,9 @@ Après une longue méditation silencieuse, la main droite de Dieu Sang agrippa l
 
 Le nom de « Maître Démon Xu Mu » était désormais connu de tous les cultivateurs après la tragédie du Domaine Nord! Malgré la poursuite de la famille Yao et d'innombrables autres cultivateurs, non seulement il n'était pas mort, mais il avait utilisé l'immense bête pour mener une contre-attaque terrifiante!
 
-Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait tout le Système Stellaire Allheaven. Aucune famille de culture ne souhaitait plus s'impliquer dans ce conflit entre lui et la famille Yao.
+Cela avait causé la perte de la plupart des cultivateurs et avait stupéfait tout le Système Stellaire Luotian. Aucune famille de culture ne souhaitait plus s'impliquer dans ce conflit entre lui et la famille Yao.
 
-Les nouvelles rapportées par les survivants se propagèrent comme une tempête à travers le Système Stellaire Allheaven: Maître Démon Xu Mu ne devait pas être provoqué, à moins d'une nécessité absolue!
+Les nouvelles rapportées par les survivants se propagèrent comme une tempête à travers le Système Stellaire Luotian: Maître Démon Xu Mu ne devait pas être provoqué, à moins d'une nécessité absolue!
 
 Cet homme était d'une folie pure. Non seulement il était puissant, mais il était aussi sanguinaire qu'un démon. Non seulement il était prêt à massacrer des cultivateurs de bas niveau, mais pour se venger, il était capable de réveiller cette bête colossale pour provoquer une catastrophe!
 

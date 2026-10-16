@@ -46,7 +46,7 @@ En contemplant la Perle Défiant le Ciel, Wang Lin était tout aussi stupéfait 
 
 « Cependant, bien que le Royaume Céleste ait disparu, Maître Bai Fan et quelques-uns de ses pairs ont ouvert leur propre monde. Ils ont emprunté les quatre grands passages menant au Royaume Céleste Antique pour créer leur propre terre, la nommant... le Royaume Céleste!
 
-« Les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair divisèrent la galaxie en quatre systèmes. Sous le Royaume Céleste du Vent se trouvait la Mer des Nuages; sous le Royaume Céleste de la Pluie se trouvait le Vide Brillant; sous le Royaume Céleste du Tonnerre se trouvait Allheaven; et sous le Royaume Céleste de l'Éclair se trouvait Summoned River... Le système situé sous le Royaume Céleste de la Pluie s'est vu attribuer par d'autres le nom d'« Alliance ». Qui sait encore que cet endroit s'appelait autrefois le « Vide Brillant »... »
+« Les Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair divisèrent la galaxie en quatre systèmes. Sous le Royaume Céleste du Vent se trouvait la Mer des Nuages; sous le Royaume Céleste de la Pluie se trouvait le Vide Brillant; sous le Royaume Céleste du Tonnerre se trouvait Luotian; et sous le Royaume Céleste de l'Éclair se trouvait Summoned River... Le système situé sous le Royaume Céleste de la Pluie s'est vu attribuer par d'autres le nom d'« Alliance ». Qui sait encore que cet endroit s'appelait autrefois le « Vide Brillant »... »
 
 Qing Shui poussa un soupir en contemplant le vide. C'était comme s'il regardait le Royaume Céleste du Tonnerre d'autrefois, la nostalgie embrumant son regard.
 
@@ -88,7 +88,7 @@ Wang Lin eut un haut-le-cœur et ses yeux brillèrent. Il avait souvent croisé 
 
 En pensant au vieil homme et au jeune homme, une idée jaillit soudainement dans l'esprit de Wang Lin.
 
-« Ce vide n'entoure pas seulement l'Alliance, il entoure les quatre systèmes situés sous les quatre Royaumes Célestes! » Qing Shui soupira et marmonna: « Après la guerre contre le clan des Tatouages, je commençai à montrer des signes de folie, mais à l'époque, je n'y prêtai aucune attention... Par la suite, vous avez dû apprendre ce qui s'est passé par Maître Flamespark. »
+« Ce vide n'entoure pas seulement l'Alliance, il entoure les quatre systèmes situés sous les quatre Royaumes Célestes! » Qing Shui soupira et marmonna: « Après la guerre contre le clan des Tatouages, je commençai à montrer des signes de folie, mais à l'époque, je n'y prêtai aucune attention... Par la suite, vous avez dû apprendre ce qui s'est passé par Maître Yan Leizi. »
 
 Wang Lin réfléchit un instant en observant Qing Shui. Après un long moment, il dit lentement: « Frère aîné, ce vieil homme a affirmé qu'il était du clan antique de la Lune Dévorante, issu du Clan Céleste Immemorial... »
 
@@ -102,7 +102,7 @@ Un immense mystère semblait saturer l'atmosphère, mais il restait dissimulé d
 
 L'énergie d'origine céleste dans le corps de Qing Shui fut finalement totalement scellée. Il s'affaiblissait progressivement et, au troisième jour, perdit la capacité de voler.
 
-Wang Lin soutint Qing Shui tout en continuant de progresser dans le vide. Le fragment céleste que Maître Flamespark leur avait confié flottait devant eux, émettant une lueur douce. C'était comme s'il avait établi un lien avec le monde extérieur pour guider leur chemin.
+Wang Lin soutint Qing Shui tout en continuant de progresser dans le vide. Le fragment céleste que Maître Yan Leizi leur avait confié flottait devant eux, émettant une lueur douce. C'était comme s'il avait établi un lien avec le monde extérieur pour guider leur chemin.
 
 Soutenant Qing Shui, Wang Lin suivit le fragment céleste. Au neuvième jour, Qing Shui était extrêmement faible. Il observa le vide et le fragment dérivant avant de dire: « Une fois que j'aurai extrait les souvenirs de l'âme originelle de l'estimé Xuan Bao, tu devras conserver cette âme. Elle contient une immense quantité d'énergie d'origine céleste, elle te sera d'une grande utilité! »
 
@@ -112,6 +112,6 @@ La même froideur, la même cruauté et la même solitude.
 
 Ce jour-là, le fragment céleste brilla soudainement d'un éclat intense et s'immobilisa. Tandis qu'il rayonnait, un vortex apparut devant lui.
 
-Sur ce vortex se dressait un autel où d'innombrables cultivateurs entonnaient des chants. Maître Flamespark se tenait sur l'autel, un sourire aux lèvres, et sa voix s'éleva:
+Sur ce vortex se dressait un autel où d'innombrables cultivateurs entonnaient des chants. Maître Yan Leizi se tenait sur l'autel, un sourire aux lèvres, et sa voix s'éleva:
 
 « Bienvenue de retour! » Un chœur de voix reprit en écho : « Bienvenue de retour! »

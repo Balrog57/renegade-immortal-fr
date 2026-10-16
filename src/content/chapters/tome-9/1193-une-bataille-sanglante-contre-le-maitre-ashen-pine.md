@@ -62,7 +62,7 @@ Le corps de Wang Lin trembla lorsqu'il sentit une aura déchaînée s'engouffrer
 
 Maître Void, l'Omniscient et Wu Qing apparurent tous et chargèrent l'âpre Âme Naissante sanglante.
 
-En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de l'Allheaven et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
+En outre, une multitude d'âmes de bataille sortirent du Sceau Céleste: des Célestes, des cultivateurs de le Luotian et de l'Alliance. Cela enveloppa immédiatement la zone d'une aura violente.
 
 Cette scène fit pousser un cri de stupeur chez le Maître Pin Cendré. Il pensait avoir surestimé Wang Lin, mais les quelques trésors que ce dernier avait montrés suffisaient déjà à terrifier des cultivateurs ordinaires.
 

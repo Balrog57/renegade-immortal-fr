@@ -16,7 +16,7 @@ S'il l'avait su, peut-être n'aurait-il pas pu prononcer ces quatre mots si simp
 
 Wang Lin se tenait à des centaines de milliers de pieds de la planète Dong Ling. Il contemplait cette planète, bien plus vaste que la planète Tian Yun. L'intention meurtrière dans ses yeux ne faisait que croître.
 
-Lorsqu'il était revenu de l'Alliance, il était habité par l'espoir de ressusciter Li Muwan. Il s'était frayé un chemin à travers Allheaven pour finalement remporter le titre de Céleste du Tonnerre et obtenir une promesse de la famille Xiang.
+Lorsqu'il était revenu de l'Alliance, il était habité par l'espoir de ressusciter Li Muwan. Il s'était frayé un chemin à travers Luotian pour finalement remporter le titre de Céleste du Tonnerre et obtenir une promesse de la famille Xiang.
 
 À l'époque, Wang Lin ne voulait pas se faire d'ennemis parmi la puissante famille Xiang; il ne souhaitait que le réveil de Li Muwan.
 
@@ -88,7 +88,7 @@ Que pouvait bien être la tempête engendrée par son simple pas face à cela? �
 
 La lumière des formations vacilla violemment sur les dizaines de petites planètes environnantes. Soudain, neuf d'entre elles s'effondrèrent!
 
-Des grondements tonitruants résonnèrent et se propagèrent dans tous les domaines stellaires de la partie orientale d'Allheaven. Lorsque ces neuf planètes s'écrasèrent, tous les cultivateurs qui s'y trouvaient furent instantanément tués!
+Des grondements tonitruants résonnèrent et se propagèrent dans tous les domaines stellaires de la partie orientale de Luotian. Lorsque ces neuf planètes s'écrasèrent, tous les cultivateurs qui s'y trouvaient furent instantanément tués!
 
 Même les vingt-sept vieillards qui contrôlaient ces neuf planètes ne purent rien faire. Ils moururent dans la terreur et le choc!
 

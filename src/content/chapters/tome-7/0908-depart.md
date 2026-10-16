@@ -24,7 +24,7 @@ Après avoir renvoyé Wang Lin, les yeux du vieux cultivateur brillèrent d'une 
 
 Le corps de Wang Lin apparut au sommet d'une montagne sur la planète Suzaku, le visage pâle. Il regarda en direction du Clan des Immortels Délaissés et commença à réfléchir.
 
-« Le niveau de culture de ce vieux cultivateur est extrêmement élevé. Je crains qu'il ne soit un vieux monstre au même niveau que Maître Flamespark, voire plus puissant encore. Quel est donc le but de cet homme en restant si longtemps sur la planète Suzaku? »
+« Le niveau de culture de ce vieux cultivateur est extrêmement élevé. Je crains qu'il ne soit un vieux monstre au même niveau que Maître Yan Leizi, voire plus puissant encore. Quel est donc le but de cet homme en restant si longtemps sur la planète Suzaku? »
 
 « Tout d'abord, je peux confirmer que l'ouverture des deux dernières couches du Clan des Immortels Délaissés est l'un de ses objectifs. Je ne sais juste pas s'il a connaissance de la Terre des Dieux Anciens... » Les yeux de Wang Lin s'illuminèrent, puis il partit rapidement.
 
@@ -104,7 +104,7 @@ Les deux lancèrent des sorts à une cadence effrénée, provoquant des explosio
 
 Wang Lin resta calme. Toujours sur le dos de Lei Ji, il leva soudainement la main droite. D'innombrables éclairs apparurent brusquement et convergèrent, transformant la zone environnante en un véritable enfer de tonnerre!
 
-Les yeux de l'homme en robe rouge se plissèrent et le rocher sous lui s'arrêta net à mille pieds de Wang Lin. Il afficha un sourire glacial et déclara lentement: « Tu es donc digne du titre de Céleste du Tonnerre d'Allheaven. Tu es véritablement digne de ce nom! »
+Les yeux de l'homme en robe rouge se plissèrent et le rocher sous lui s'arrêta net à mille pieds de Wang Lin. Il afficha un sourire glacial et déclara lentement: « Tu es donc digne du titre de Céleste du Tonnerre de Luotian. Tu es véritablement digne de ce nom! »
 
 Sur ces mots, il agita la main droite et les cinq épées de sang restantes furent projetées dans cinq directions, faisant de lui le centre de l'attaque.
 

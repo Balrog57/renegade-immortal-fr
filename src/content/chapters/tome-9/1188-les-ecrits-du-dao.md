@@ -20,9 +20,9 @@ Alors que cette lumière obscure recouvrait la région, une clarté argentée é
 
 « La Restriction des 18 Fleurs de Prunier! »
 
-Cette restriction n'était pas là depuis longtemps; elle avait été placée il y a seulement un jour. Apparemment, la vieille femme en vert en était l'auteur. La Restriction des 18 Fleurs de Prunier était dérivée de l'une des quatre grandes restrictions anciennes: la Restriction de l'Annihilation. Si Wang Lin n'était pas allé à Allheaven, il n'aurait pas pu la briser.
+Cette restriction n'était pas là depuis longtemps; elle avait été placée il y a seulement un jour. Apparemment, la vieille femme en vert en était l'auteur. La Restriction des 18 Fleurs de Prunier était dérivée de l'une des quatre grandes restrictions anciennes: la Restriction de l'Annihilation. Si Wang Lin n'était pas allé à Luotian, il n'aurait pas pu la briser.
 
-Cependant, lors de son passage à Allheaven, Wang Lin avait hérité de l'une des quatre grandes restrictions anciennes, la Restriction de l'Annihilation. Cette restriction des 18 Fleurs de Prunier étant issue de celle-ci, il ne lui serait pas difficile de la briser.
+Cependant, lors de son passage à Luotian, Wang Lin avait hérité de l'une des quatre grandes restrictions anciennes, la Restriction de l'Annihilation. Cette restriction des 18 Fleurs de Prunier étant issue de celle-ci, il ne lui serait pas difficile de la briser.
 
 « La vieille femme en vert a laissé cette restriction ici. C'est sans doute une embuscade doublée d'un avertissement... » Les yeux de Wang Lin brillèrent. Il s'apprêtait à avancer lorsqu'il s'arrêta soudainement, examinant avec soin la Restriction des 18 Fleurs de Prunier au sol.
 
@@ -52,7 +52,7 @@ Sans perdre un instant, Wang Lin grimpa la montagne avec la rapidité de l'écla
 
 Wang Lin commença à méditer tout en gravissant la montagne.
 
-« Lorsque j'ai quitté le système stellaire d'Allheaven, Li Yuan a dit que si l'on parvenait à maîtriser les quatre grandes restrictions anciennes et à les fusionner, on pourrait comprendre le royaume Abstrait... L'Abstrait est le sommet des restrictions! Pourtant, depuis les innombrables années où la loi des restrictions s'est détachée de la naissance du monde, personne n'a pu atteindre ce royaume. » Wang Lin poussa un soupir et cessa d'y songer. Il se concentra plutôt sur la traque de la piste laissée par Maître Pin Cendré.
+« Lorsque j'ai quitté le système stellaire de Luotian, Li Yuan a dit que si l'on parvenait à maîtriser les quatre grandes restrictions anciennes et à les fusionner, on pourrait comprendre le royaume Abstrait... L'Abstrait est le sommet des restrictions! Pourtant, depuis les innombrables années où la loi des restrictions s'est détachée de la naissance du monde, personne n'a pu atteindre ce royaume. » Wang Lin poussa un soupir et cessa d'y songer. Il se concentra plutôt sur la traque de la piste laissée par Maître Pin Cendré.
 
 Une demi-journée s'écoula. Wang Lin se tenait au sommet de la montagne, baigné par une lumière aux sept couleurs. Cette aura l'enveloppait, le faisant ressembler, vu de loin, à un dieu céleste.
 

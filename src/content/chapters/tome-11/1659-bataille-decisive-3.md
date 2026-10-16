@@ -92,7 +92,7 @@ Plus loin encore, la femme en violet de la Rivière des Appels se déchaînait t
 
 Une vieille femme du Vide Arcanique du Royaume Extérieur lui faisait face! La dernière des trois concubines impériales célestes affrontait Maître Hong Shan. Ce dernier n'était manifestement pas de taille, mais il parvenait tant bien que mal à la contenir.
 
-Au loin, une multitude de cultivateurs du Royaume Intérieur périrent, mais plus de 100 000 cultes du Royaume Extérieur avaient déjà été massacrés. Les rumeurs de la boucherie résonnaient dans tout Allheaven.
+Au loin, une multitude de cultivateurs du Royaume Intérieur périrent, mais plus de 100 000 cultes du Royaume Extérieur avaient déjà été massacrés. Les rumeurs de la boucherie résonnaient dans tout Luotian.
 
 Wang Lin se retourna soudainement, les yeux injectés de folie. Si les cultivateurs du Vide Arcanique du Royaume Extérieur ne mouraient pas, cette bataille ne prendrait jamais fin. Tandis qu'il pivotait, ses étoiles de Dieu Antique brillèrent et le Fourneau de l'Empereur apparut. Dès son apparition, il s'étendit pour recouvrir toute la zone environnante, englobant la concubine impériale céleste et le vieil homme en noir.
 

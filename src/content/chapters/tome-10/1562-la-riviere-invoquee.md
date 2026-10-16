@@ -86,7 +86,7 @@ Alors que les trois avançaient, ils échangeaient des messages. À cet instant 
 
 Lorsque les ondulations finirent leur course, les trois cultivateurs du Royaume Extérieur tremblèrent, incapables de pousser le moindre cri. D'innombrables fissures apparurent sur leurs corps et ils s'effondrèrent soudainement. Leurs âmes originelles furent déchirées et ils périrent.
 
-Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Allheaven et dans la Mer de Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
+Des scènes similaires se produisaient ailleurs dans le Vide Brillant, à Luotian et dans la Mer de Nuages. Peu de temps après que le Maître Long Pan eut déferlé sur la zone, les cultivateurs du Royaume Extérieur restants subirent la folie de Qing Shui.
 
 Les fleurs de sang s'épanouissaient, révélant la beauté de leur mort.
 

@@ -68,7 +68,7 @@ Cette scène se produisit simultanément en de multiples endroits à travers le 
 
 Les belligérants du Pays des Démons de Feu cessèrent tous le combat. Ils levèrent les yeux vers le ciel avec incertitude et confusion.
 
-Car non seulement de nombreux membres de la Tribu du Raffinement de l'Âme s'étaient cachés parmi les soldats démons durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
+Car non seulement de nombreux membres de la Tribu du Affinement de l'Âme s'étaient cachés parmi les soldats démons durant les cent dernières années, mais beaucoup de généraux des deux camps en étaient également issus.
 
 À cet instant, d'innombrables généraux démons tremblèrent légèrement, et une traînée d'énergie de massacre s'échappa de chacun de leurs fronts avant de disparaître. Après avoir perdu cette essence, ils utilisèrent immédiatement leurs propres techniques pour s'enfuir au plus vite.
 
@@ -90,7 +90,7 @@ Le monde entier fut instantanément drapé d'un épais gaz gris. Ce gaz n'était
 
 Cette division provoqua le passage de cent mille filaments à un million de filaments d'énergie de massacre!
 
-Ces un million de filaments pouvaient encore se diviser, mais Wang Lin n'avait atteint que le stade de la petite perfection dans l'Art Céleste du Massacre; un million était donc sa limite! C'était là une raison cruciale pour laquelle il ne participait pas lui-même aux combats, préférant utiliser les membres de la Tribu du Raffinement de l'Âme pour nourrir cette énergie!
+Ces un million de filaments pouvaient encore se diviser, mais Wang Lin n'avait atteint que le stade de la petite perfection dans l'Art Céleste du Massacre; un million était donc sa limite! C'était là une raison cruciale pour laquelle il ne participait pas lui-même aux combats, préférant utiliser les membres de la Tribu du Affinement de l'Âme pour nourrir cette énergie!
 
 « Brisez! » Les cheveux de Wang Lin voltèrent dans les airs alors qu'il pointa soudainement le voile d'énergie spirituelle démoniaque.
 

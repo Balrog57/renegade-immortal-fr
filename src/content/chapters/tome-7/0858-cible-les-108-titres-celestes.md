@@ -16,15 +16,15 @@ Qing Shui fit demi-tour, marcha vers le vide et disparut lentement... Juste avan
 
 Wang Lin regarda la silhouette de Qing Shui s'éloigner et réfléchit longuement en silence avant de joindre les mains vers cette direction. Il saisit le cristal de glace, puis disparut sans laisser de trace.
 
-« Cette personne doit être un cultivateur du troisième niveau. Un tel être incroyable existe donc au sein du Système Stellaire d'Allheaven... » Wang Lin se dirigea rapidement vers le lieu où se trouvait la famille de Li Yuan.
+« Cette personne doit être un cultivateur du troisième niveau. Un tel être incroyable existe donc au sein du Système Stellaire de Luotian... » Wang Lin se dirigea rapidement vers le lieu où se trouvait la famille de Li Yuan.
 
 « J'ignore seulement s'il existe un cultivateur du troisième niveau dans le Système Stellaire de l'Alliance... Cette personne est trop puissante, même un cultivateur Briseur du Nirvana ne pourrait lui résister... » La silhouette de Wang Lin fendit les étoiles, ses yeux brillant d'un éclat singulier.
 
 « Cependant, j'ai pu percevoir la direction du troisième niveau grâce à la Perle Défiant le Ciel... » Les yeux de Wang Lin brillèrent davantage alors qu'il traversait l'espace en utilisant la Déformation Spatiale.
 
-Il existait une planète de culture dans un système reculé du Domaine Sud. Cette planète se nommait Annihilation. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire d'Allheaven!
+Il existait une planète de culture dans un système reculé du Domaine Sud. Cette planète se nommait Annihilation. Il y a fort longtemps, elle était célèbre non seulement dans le Domaine Sud, mais à travers tout le Système Stellaire de Luotian!
 
-C'était la famille Li, détentrice de restrictions héritées des temps anciens! Maîtrisant la Restriction d'Annihilation, la famille Li était extrêmement puissante et son nom avait autrefois ébranlé le Système Stellaire d'Allheaven. Cependant, avec le déclin de la lignée et la fuite de la Restriction d'Annihilation, la famille Li perdit son pouvoir.
+C'était la famille Li, détentrice de restrictions héritées des temps anciens! Maîtrisant la Restriction d'Annihilation, la famille Li était extrêmement puissante et son nom avait autrefois ébranlé le Système Stellaire de Luotian. Cependant, avec le déclin de la lignée et la fuite de la Restriction d'Annihilation, la famille Li perdit son pouvoir.
 
 Plus aucune trace de la gloire des Li ne subsistait. Les souvenirs étaient enfouis et ne brillaient plus. À mesure que la famille Li dépérissait, même le souvenir qu'en gardaient les hommes s'estompait; c'était comme si elle n'avait jamais existé.
 

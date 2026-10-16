@@ -44,9 +44,9 @@ Wang Lin fit fi de tout cela. Assis là, il commença à saisir les lois du tonn
 
 Sur le tapis de prière, les yeux de Qing Shui se plissèrent et il esquissa un léger sourire.
 
-À ses côtés, Maître Flamespark fut d'abord surpris avant de laisser échapper un sourire amer. Il avait oublié que, sans son aide, ce Xu Mu aurait presque pu se cultiver en esprit de tonnerre. Non seulement cette épreuve terrestre ne représentait aucun défi pour lui, mais c'était comme si Xu Mu entrait dans sa propre arrière-cour!
+À ses côtés, Maître Yan Leizi fut d'abord surpris avant de laisser échapper un sourire amer. Il avait oublié que, sans son aide, ce Xu Mu aurait presque pu se cultiver en esprit de tonnerre. Non seulement cette épreuve terrestre ne représentait aucun défi pour lui, mais c'était comme si Xu Mu entrait dans sa propre arrière-cour!
 
-« Tant pis. Je considérerai cela comme une compensation pour avoir emprunté sa bête de tonnerre et pour réparer ma relation passée avec Qing Shui! » Maître Flamespark sourit tristement, mais n'interrompit pas Wang Lin.
+« Tant pis. Je considérerai cela comme une compensation pour avoir emprunté sa bête de tonnerre et pour réparer ma relation passée avec Qing Shui! » Maître Yan Leizi sourit tristement, mais n'interrompit pas Wang Lin.
 
 Quant à l'esprit du tonnerre, après avoir été effrayé par Wang Lin, il se comportait comme un enfant réprimandé par son aîné. Il poussa un rugissement et chargea les autres cultivateurs pour évacuer sa frustration.
 

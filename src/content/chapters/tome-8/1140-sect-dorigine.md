@@ -68,7 +68,7 @@ Ce sort provoqua l'excitation du jeune homme simple, et même celui en bleu lais
 
 Si cette jeune fille avait délaissé son attitude froide, ce geste aurait été empreint de charme.
 
-Wang Lin entra dans la cour d'un pas calme. Le parfum des herbes l'assaillit, et une seule inspiration lui procura un sentiment de fraîcheur. Bien qu'il paraisse impassible, il était intérieurement stupéfait: de nombreuses plantes dans cette cour étaient déjà éteintes dans l'Alliance et à Allheaven.
+Wang Lin entra dans la cour d'un pas calme. Le parfum des herbes l'assaillit, et une seule inspiration lui procura un sentiment de fraîcheur. Bien qu'il paraisse impassible, il était intérieurement stupéfait: de nombreuses plantes dans cette cour étaient déjà éteintes dans l'Alliance et à Luotian.
 
 « Vous vivrez là », dit Xu Yun en désignant la petite maison en bois devant elle. Elle avait observé Wang Lin attentivement, troublée par son calme excessif. S'il avait été un cultivateur, cela n'aurait rien eu de spécial, mais peu importait ses vérifications, ce Ceng Niu ne dégageait aucune trace d'énergie spirituelle. Cela la surprenait au plus haut point.
 

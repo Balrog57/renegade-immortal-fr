@@ -60,7 +60,7 @@ On pourrait dire qu'il s'agissait d'une forme d'obsession. Grâce à ces questio
 
 Plus d'une douzaine de rayons de lumière, menés par Wang Lin, traversèrent les étoiles. La culture de chacun étant élevée, ils se déplaçaient tels des météores. La vitesse de Li Qianmei était un peu plus lente, mais grâce à l'attention de Wang Lin, cela ne posait aucun problème.
 
-À quelques jours de l'échéance d'un mois, Wang Lin mena le groupe devant la porte, à Allheaven. La porte dorée dégageait des éclats de lumière divine et paraissait spectaculaire de loin.
+À quelques jours de l'échéance d'un mois, Wang Lin mena le groupe devant la porte, à Luotian. La porte dorée dégageait des éclats de lumière divine et paraissait spectaculaire de loin.
 
 Cette porte était si immense qu'elle semblait soutenir le système stellaire tout entier. Xuan Luo était assis près de l'entrée, enveloppé d'une aura dorée. Une pression écrasante émanait de son corps et imprégnait les environs.
 

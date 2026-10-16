@@ -22,7 +22,7 @@ Alors que ces âmes fusionnaient, la voix lugubre de l'Omniscient résonna dans 
 
 « Comment peux-tu rivaliser avec ce vieil homme? Ce vieil homme peut désormais prendre possession de ton corps. Ton corps originel a-t-il trouvé le mien? »
 
-Plus de mille âmes de l'Omniscient, provenant de la Rivière des Invocations et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Nuageuse et d'Allheaven approchaient.
+Plus de mille âmes de l'Omniscient, provenant de la Rivière des Invocations et du Vide Brillant, avaient déjà fusionné avec l'avatar de Wang Lin. Celles de la Mer Nuageuse et de Luotian approchaient.
 
 Alors que l'image du second éveil de l'Omniscient s'effondrait, Wang Lin vit la scène de son premier éveil!
 

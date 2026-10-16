@@ -72,13 +72,13 @@ Cependant, à mesure que les planètes étaient anéanties et que les strates de
 
 La femme en rose tourna la tête et murmura doucement: « Née cultivatrice du Royaume Intérieur pour mourir en tant qu'âme au sein même du Royaume Intérieur... C'est juste que mon cœur est un peu réticent... Je ne lui ai pas encore dit qui je suis... »
 
-Des dizaines de milliers de cultivateurs du Royaume Extérieur bombardaient la partie occidentale de la formation, et l'écran lumineux était sur le point de céder. Sur la planète, Xi Zihong se mordait la lèvre inférieure aux côtés des autres cultivateurs d'Allheaven. Zhang Conglie et Shengong Hu étaient également présents.
+Des dizaines de milliers de cultivateurs du Royaume Extérieur bombardaient la partie occidentale de la formation, et l'écran lumineux était sur le point de céder. Sur la planète, Xi Zihong se mordait la lèvre inférieure aux côtés des autres cultivateurs de Luotian. Zhang Conglie et Shengong Hu étaient également présents.
 
-Le Maître Flamespark se trouvait parmi eux.
+Le Maître Yan Leizi se trouvait parmi eux.
 
-Tous étaient des cultivateurs d'Allheaven, et ils se sentaient impuissants face à cette marée de cultivateurs extérieurs, regardant l'écran de lumière se désagréger peu à peu. Ils attendaient l'effondrement final pour libérer leur ultime force vitale.
+Tous étaient des cultivateurs de Luotian, et ils se sentaient impuissants face à cette marée de cultivateurs extérieurs, regardant l'écran de lumière se désagréger peu à peu. Ils attendaient l'effondrement final pour libérer leur ultime force vitale.
 
-« Quand l'écran brisera, nous déclencherons tous notre autodestruction. Êtes-vous prêts...? » demanda le Maître Flamespark d'une voix basse.
+« Quand l'écran brisera, nous déclencherons tous notre autodestruction. Êtes-vous prêts...? » demanda le Maître Yan Leizi d'une voix basse.
 
 Ils n'étaient pas le premier groupe à choisir cette voie. Presque toutes les planètes de culture présentes avaient opté pour l'autodestruction dès que leur écran protecteur serait rompu.
 

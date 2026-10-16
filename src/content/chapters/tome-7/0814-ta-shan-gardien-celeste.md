@@ -22,11 +22,11 @@ Le regard de Wang Lin devint glacial et il frappa son sac de rangement. Le drape
 
 Les yeux de Wang Lin restèrent froids alors qu'il demanda lentement: « Quel trésor de grande valeur? »
 
-Le messager cria immédiatement: « Une Pierre d'Allheaven! Je sais où le Camarade Cultivateur peut obtenir une Pierre d'Allheaven. Si vous promettez de me laisser partir, je vous y mènerai sans attendre! »
+Le messager cria immédiatement: « Une Pierre de Luotian! Je sais où le Camarade Cultivateur peut obtenir une Pierre de Luotian. Si vous promettez de me laisser partir, je vous y mènerai sans attendre! »
 
 Le visage de Wang Lin ne trahissait aucune émotion tandis que sa main droite formait un sceau. Le nuage noir dévora instantanément l'âme originelle et la scella à l'intérieur du drapeau.
 
-« Une Pierre d'Allheaven... » Wang Lin réfléchit un instant, puis passa à autre chose. Ses yeux se posèrent sur les trois drapeaux en suspens dans les airs et il tendit la main. Lorsqu'ils tombèrent dans sa paume, il cracha de l'énergie originelle pour les raffiner. Après avoir effacé le sens divin qu'ils contenaient pour y imprimer le sien, Wang Lin les rangea et commença à méditer.
+« Une Pierre de Luotian... » Wang Lin réfléchit un instant, puis passa à autre chose. Ses yeux se posèrent sur les trois drapeaux en suspens dans les airs et il tendit la main. Lorsqu'ils tombèrent dans sa paume, il cracha de l'énergie originelle pour les raffiner. Après avoir effacé le sens divin qu'ils contenaient pour y imprimer le sien, Wang Lin les rangea et commença à méditer.
 
 « C'est un rare trésor protecteur! » Après le temps nécessaire pour que la moitié d'un bâton d'encens brûle, les yeux de Wang Lin s'illuminèrent. Il lança les trois drapeaux en l'air, qui se mirent à tourner rapidement autour de lui. Un vortex violet se forma, offrant un certain degré de protection.
 

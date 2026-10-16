@@ -112,11 +112,11 @@ Il scella tous les clans sur son passage, même ceux dépourvus de maître de la
 
 Car Wang Lin avait laissé des sceaux mystérieux sur leurs clans et leurs mondes!
 
-« Il n'est pas nécessaire de s'inquiéter du Système d'Étoiles Anciennes... Quant aux autres lieux, il n'est pas encore temps de les explorer... » Wang Lin se tenait devant la formation séparant les Royaumes Intérieur et Extérieur. Il contempla longuement le Système d'Étoiles Anciennes avant de franchir la barrière pour se diriger vers Allheaven.
+« Il n'est pas nécessaire de s'inquiéter du Système d'Étoiles Anciennes... Quant aux autres lieux, il n'est pas encore temps de les explorer... » Wang Lin se tenait devant la formation séparant les Royaumes Intérieur et Extérieur. Il contempla longuement le Système d'Étoiles Anciennes avant de franchir la barrière pour se diriger vers Luotian.
 
 À ce stade, Wang Lin avait accompli sa dernière tâche dans le monde des grottes; il était sur le point de partir!
 
-À Allheaven, la porte dorée émettait une lueur éblouissante. Xuan Luo y était assis, le regard perdu au loin, lorsqu'il aperçut Wang Lin.
+À Luotian, la porte dorée émettait une lueur éblouissante. Xuan Luo y était assis, le regard perdu au loin, lorsqu'il aperçut Wang Lin.
 
 La silhouette de Wang Lin apparut et il s'inclina devant Xuan Luo.
 

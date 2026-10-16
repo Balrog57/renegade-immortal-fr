@@ -14,7 +14,7 @@ Les yeux de Wang Lin s'illuminèrent. Son expression ne changea pas, et son rega
 
 « Jeune Empereur? »
 
-Le messager arborait toujours ce sourire respectueux sur son visage et dit rapidement: « Le Grand Empereur a déjà transmis l'ordre au Pays Déchu. Vous êtes désormais le Jeune Empereur désigné par le Grand Empereur, et vous vous situez au-dessus des treize Anciens Déchus! »
+Le messager arborait toujours ce sourire respectueux sur son visage et dit rapidement: « Le Grand Empereur a déjà transmis l'ordre au Pays Déchu. Vous êtes désormais le Jeune Empereur désigné par le Grand Empereur, et vous vous situez au-dessus des treize Anciens Délaissés! »
 
 L'expression de Wang Lin resta neutre et il ne dit mot.
 
@@ -64,7 +64,7 @@ L'homme d'âge mûr joignit les mains et sourit à Wang Lin: « Jeune Empereur, 
 
 « Seigneur Jeune Empereur, le Grand Empereur vous confie ce jeton de jade. Il représente votre identité. Il équivaut à la présence même du Grand Empereur. Personne n'osera vous défier dans le Pays Déchu. »
 
-« Le Grand Empereur a également précisé que vous devrez assister à la sélection des Anciens Déchus dans trois mois. » Après avoir remis le jeton, le messager joignit les mains et disparut au loin.
+« Le Grand Empereur a également précisé que vous devrez assister à la sélection des Anciens Délaissés dans trois mois. » Après avoir remis le jeton, le messager joignit les mains et disparut au loin.
 
 Wang Lin leva le jeton de jade et l'examina attentivement. Il était fait de matériaux très communs et ne portait qu'un seul mot: « Empereur ». Le caractère avait été tracé d'un seul trait, dégageant une aura antique, mais une force étrange émanait manifestement du mot.
 

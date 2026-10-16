@@ -60,7 +60,7 @@ Wang Lin progressait lentement, plongé dans ses pensées.
 
 Le troisième œil apparut instantanément, avant d'être remplacé par les cinq étoiles du Dieu Ancien. Bientôt, une perle surgit, puis tout disparut, ne laissant qu'une marque rouge dégageant une légère chaleur.
 
-« Si Maître Flamespark ne m'avait pas donné suffisamment d'énergie originelle pour atteindre le stade intermédiaire du Scruteur du Nirvana une fois mon domaine atteint un certain niveau, et si je n'avais pas obtenu l'héritage de Lou Chen pour devenir un Dieu Ancien Royal à 5 étoiles, je n'aurais même pas remarqué cette marque supplémentaire! Cette marque contient la puissance des flammes du ciel et de la terre. Lorsque mon Sens Divin s'y concentre, j'entends le cri ténu de l'Oiseau Vermillon... Je ne l'avais pas lors de mon retour sur la planète Suzaku; par conséquent, cela doit être lié au Chef de Secte Huanglong. »
+« Si Maître Yan Leizi ne m'avait pas donné suffisamment d'énergie originelle pour atteindre le stade intermédiaire du Scruteur du Nirvana une fois mon domaine atteint un certain niveau, et si je n'avais pas obtenu l'héritage de Lou Chen pour devenir un Dieu Ancien Royal à 5 étoiles, je n'aurais même pas remarqué cette marque supplémentaire! Cette marque contient la puissance des flammes du ciel et de la terre. Lorsque mon Sens Divin s'y concentre, j'entends le cri ténu de l'Oiseau Vermillon... Je ne l'avais pas lors de mon retour sur la planète Suzaku; par conséquent, cela doit être lié au Chef de Secte Huanglong. »
 
 Les yeux de Wang Lin s'illuminèrent. La marque de l'Oiseau Vermillon sur son front scintilla et il s'élança en avant.
 

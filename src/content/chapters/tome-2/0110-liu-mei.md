@@ -12,11 +12,11 @@ La disciple serra les dents et répondit précipitamment: « C'est au point de r
 
 Le visage de Li Shan changea soudainement, puis il laissa échapper un sourire amer sous le regard de Wang Lin qui pesait sur lui.
 
-« Il est entre les mains de l'aînée Liu Mei... » Il voulut mentir, mais dès qu'il croisa le regard de Wang Lin, il ne put s'empêcher de dire la vérité. Il n'avait jamais ressenti une telle pression, même lors de sa rencontre avec l'ancêtre Punnan Zi.
+« Il est entre les mains de l'aînée Liu Mei... » Il voulut mentir, mais dès qu'il croisa le regard de Wang Lin, il ne put s'empêcher de dire la vérité. Il n'avait jamais ressenti une telle pression, même lors de sa rencontre avec l'ancêtre Pu Nanzi.
 
 « L'aînée Liu Mei? » Wang Lin réfléchit un instant. L'image d'une femme d'une grande beauté lui vint à l'esprit. Il regarda Li Shan et demanda: « A-t-elle atteint le stade de l'Établissement des Fondations? »
 
-Li Shan hocha la tête avec envie et dit: « L'ancêtre Punnan Zi l'a personnellement aidée à atteindre le stade de l'Établissement des Fondations. »
+Li Shan hocha la tête avec envie et dit: « L'ancêtre Pu Nanzi l'a personnellement aidée à atteindre le stade de l'Établissement des Fondations. »
 
 Wang Lin resta pensif, incapable de ne pas repenser à tout ce qui s'était passé sur la montagne Heng Yue. Les images de ses parents lui apparurent et son cœur se serra de douleur.
 
@@ -62,7 +62,7 @@ Wang Lin avait la sensation profonde que depuis que son énergie spirituelle ava
 
 L'épée brillait d'un éclat vert en tournoyant autour de Wang Lin, sa pointe dirigée vers les membres de la Secte Xuan Dao. Si l'on regardait attentivement la course de l'arme, elle semblait marquer des pauses, mais Wang Lin la forçait aussitôt à reprendre son mouvement.
 
-L'expression des disciples de la Secte Xuan Dao changea radicalement. Liu Feng, stupéfait, sentit son cœur trembler et des perles de sueur perler sur son front. Il avait toujours considéré Wang Lin comme un modèle à atteindre; lorsqu'il avait atteint l'Établissement des Fondations grâce à Punnan Zi un an auparavant, il pensait l'avoir surpassé.
+L'expression des disciples de la Secte Xuan Dao changea radicalement. Liu Feng, stupéfait, sentit son cœur trembler et des perles de sueur perler sur son front. Il avait toujours considéré Wang Lin comme un modèle à atteindre; lorsqu'il avait atteint l'Établissement des Fondations grâce à Pu Nanzi un an auparavant, il pensait l'avoir surpassé.
 
 Mais au vu de la situation, non seulement Wang Lin avait déjà atteint l'Établissement des Fondations, mais sa culture était également d'une étrangeté absolue. Le frère aîné Ma, qui se trouvait au stade intermédiaire de l'Établissement des Fondations, était mort en une seule attaque.
 

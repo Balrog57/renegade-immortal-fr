@@ -37,7 +37,7 @@ Le vieil homme poursuivait sa traque. Plus il avançait, plus il était stupéfa
 
 « Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple de Suzaku! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
 
-Le Clan des Immortels Abandonnés ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan des Immortels Abandonnés s'emparait des corps de cultivateurs décédés. Autrement, la Mer des Démons et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
+Le Clan des Immortels Délaissés ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan des Immortels Délaissés s'emparait des corps de cultivateurs décédés. Autrement, la Mer des Démons et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
 
 Les yeux du vieil homme projetèrent une lueur mystérieuse tandis qu'il continuait sa poursuite. Il eut un ricanement méprisant: « Ce junior doit posséder de nombreuses pilules, mais peu importe leur nombre, il finira par en manquer. Et lorsqu'il sera à bout, je le raffinerai en marionnette! »
 
@@ -47,7 +47,7 @@ Ce jour-là, alors que Wang Lin pilotait encore la boussole stellaire pour s'éc
 
 « Une autre attaque! » Wang Lin dut instantanément diviser son attention. Une partie de son esprit restait concentrée sur le contrôle de la boussole, tandis que l'autre tentait de supprimer la puissance du tatouage.
 
-Après un long moment, il ouvrit les yeux. Le tatouage dans ses yeux était plus net qu'auparavant et ses mains étaient entièrement couvertes de motifs. Si un cultivateur voyait Wang Lin à cet instant, il aurait cru voir un membre du Clan des Immortels Abandonnés.
+Après un long moment, il ouvrit les yeux. Le tatouage dans ses yeux était plus net qu'auparavant et ses mains étaient entièrement couvertes de motifs. Si un cultivateur voyait Wang Lin à cet instant, il aurait cru voir un membre du Clan des Immortels Délaissés.
 
 Le visage de Wang Lin était sombre alors qu'il laissait échapper un soupir. Il sentait que le tatouage s'était enfoncé dans son âme originelle et commençait à se propager. Une fois que l'âme originelle serait entièrement recouverte, il deviendrait ce que le vieillard appelait une marionnette de tatouage.
 

@@ -18,7 +18,7 @@ Pour elle, une simple fente représentait des milliers de pieds de large. Dès q
 
 ROAR!!!
 
-Il était impossible de décrire la puissance de ce rugissement. En se propageant, l'espace lui-même trembla. Tout Allheaven put l'entendre distinctement!
+Il était impossible de décrire la puissance de ce rugissement. En se propageant, l'espace lui-même trembla. Tout Luotian put l'entendre distinctement!
 
 Tandis que le rugissement résonnait, une puissance éruptive jaillit du corps de la Bête du Néant, forçant cette ouverture à s'élargir. 1 000 pieds, 3 000 pieds, 8 000 pieds, 10 000 pieds!!
 

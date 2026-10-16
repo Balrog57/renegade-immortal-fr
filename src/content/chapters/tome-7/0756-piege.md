@@ -46,7 +46,7 @@ Ce fragment du Royaume Céleste du Tonnerre s'écroula sous la foulée de cette 
 
 De plus en plus de déchirures spatiales, dévorant tout sur leur passage, apparurent dans le ciel. Le sol continuait de se rompre et de sombrer dans le vide. Certains pans furent engloutis par les failles spatiales et disparurent sans laisser de trace.
 
-Une heure plus tard, le ciel n'était plus que néant et la terre n'existait plus. L'un des fragments restants du Royaume Céleste du Tonnerre avait disparu à jamais. Ce changement radical terrifia les quelques cultivateurs du Système Stellaire Allheaven présents sur le fragment. Tous tentèrent désespérément de fuir.
+Une heure plus tard, le ciel n'était plus que néant et la terre n'existait plus. L'un des fragments restants du Royaume Céleste du Tonnerre avait disparu à jamais. Ce changement radical terrifia les quelques cultivateurs du Système Stellaire Luotian présents sur le fragment. Tous tentèrent désespérément de fuir.
 
 La peur de la mort leur fit perdre tout discernement. Pourtant, peu d'entre eux purent échapper à l'effondrement du fragment.
 
@@ -88,7 +88,7 @@ Peu après, il retira son Sens Divin, le visage plus sombre encore. Les déchiru
 
 « Bien que la situation soit ainsi, au moins cet endroit est sûr! » Wang Lin observa silencieusement la vallée lointaine et commença à peser ses options.
 
-« L'Ancêtre de Sang est réellement venu dans le Système Stellaire Allheaven... Lorsqu'il est apparu, il ne m'a même pas laissé le temps de parler avant de tenter de me capturer. Il était manifestement prêt à fouiller mon âme pour découvrir où se trouve Yao Xixue... » Wang Lin toucha son sac de rangement.
+« L'Ancêtre de Sang est réellement venu dans le Système Stellaire Luotian... Lorsqu'il est apparu, il ne m'a même pas laissé le temps de parler avant de tenter de me capturer. Il était manifestement prêt à fouiller mon âme pour découvrir où se trouve Yao Xixue... » Wang Lin toucha son sac de rangement.
 
 « Si je livre Yao Xixue, l'Ancêtre de Sang viendra-t-il toujours à ma poursuite... » Après avoir réfléchi un instant, Wang Lin fit sortir le garde céleste pour monter la garde auprès de Li Yuan. Puis, d'un revers de main, il isola les environs. Il frappa ensuite son sac de rangement et une sphère de restriction en sortit. Elle grandit jusqu'à atteindre la taille d'un homme avant de s'ouvrir telle une fleur de lotus.
 
@@ -116,7 +116,7 @@ Un instant plus tard, Li Yuan ouvrit lentement les yeux en expulsant une bouffé
 
 Wang Lin poussa un soupir. Après avoir reculé de quelques pas, il joignit les mains en signe de respect envers Li Yuan et dit: « J'ai fait peser un fardeau sur vous, Frère Li. Cet homme s'appelle l'Ancêtre de Sang. Sa culture est insondable et j'ai un différend avec lui. Lorsque nous partirons, vous devrez filer en premier pour ne pas être davantage impliqué. »
 
-Li Yuan esquissa un sourire amer: « Frère Xu, la culture de cet homme n'est pas une simple culture du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que son niveau de culture ne dépasse le stade du Briseur Nirvana; il se situe au moins au stade du Purificateur Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Allheaven... Comment avez-vous pu provoquer un tel être? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
+Li Yuan esquissa un sourire amer: « Frère Xu, la culture de cet homme n'est pas une simple culture du second niveau. Ma Restriction d'Annihilation n'est qu'au quatrième niveau et, bien que je l'aie utilisée avec le Cœur de la Restriction, il a tout de même pu s'échapper. Je crains que son niveau de culture ne dépasse le stade du Briseur Nirvana; il se situe au moins au stade du Purificateur Nirvana... Avec une telle puissance, c'est une existence de premier rang dans le Système Stellaire Luotian... Comment avez-vous pu provoquer un tel être? Hélas... Si ma restriction d'annihilation avait atteint le septième niveau, j'aurais peut-être pu l'enfermer. »
 
 Wang Lin resta calme et répondit lentement: « Frère Li, cherchons d'abord la sortie. Nous pourrons discuter une fois en sécurité. »
 

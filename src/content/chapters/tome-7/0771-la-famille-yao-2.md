@@ -93,7 +93,7 @@ Il tapota ses vêtements comme pour balayer toute la morosité des derniers jour
 
 Mon objectif est un sort céleste! Wan Er, ne t'inquiète pas, j'irai certainement sur la planète Dong Lin! Dès qu'il y aura la moindre lueur d'espoir pour ton réveil, moi, Wang Lin, je ferai tout ce qui est en mon pouvoir pour me battre! »
 
-Wang Lin plaça sa main droite entre ses sourcils. Sa progression en culture le rendait encore plus confiant quant à la résurrection de Li Muwan! Outre l'évasion face à ces vieux monstres, la raison principale de sa venue dans le Système Stellaire d'Allheaven était de ressusciter Li Muwan!
+Wang Lin plaça sa main droite entre ses sourcils. Sa progression en culture le rendait encore plus confiant quant à la résurrection de Li Muwan! Outre l'évasion face à ces vieux monstres, la raison principale de sa venue dans le Système Stellaire de Luotian était de ressusciter Li Muwan!
 
 Wang Lin ne cessait de penser à Li Muwan tout en traversant le vide. Son objectif était le fragment qui se trouvait devant lui.
 

@@ -102,6 +102,6 @@ La main gauche du garçon s'avança et le feu pénétra étrangement dans sa pau
 
 Le garçon, qui était assis, se leva brusquement en voyant la vision. En se levant, six des sept jades gravés s'effondrèrent, à l'exception de celui portant le nom « Lu Zihao »!
 
-Une énergie source, similaire à celle du Maître Lu Fu d'Allheaven, jaillit du garçon et fit même trembler violemment le brouillard entourant la planète de culture!
+Une énergie source, similaire à celle du Maître Lu Fu de Luotian, jaillit du garçon et fit même trembler violemment le brouillard entourant la planète de culture!
 
 « C'est lui! Même si nous devons tuer mille innocents, nous ne pouvons pas laisser passer un seul suspect! »

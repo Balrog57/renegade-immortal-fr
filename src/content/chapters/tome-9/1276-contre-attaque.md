@@ -38,9 +38,9 @@ Certains des nombreux volcans illusoires apparus précédemment dégageaient de 
 
 Wang Lin serrait toujours fermement le trident dans sa main!
 
-« Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Li Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Noire* et *Ciels Clairs*, la tâche aurait été ardue. Cependant, comparés à *Lune Noire* et *Ciels Clairs*, ceux-ci ne sont que de simples tours! » Le Taoïste de l'Eau secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Tueur de Dieux formé par la Bête de Tonnerre.
+« Six des Sorts Célestes Triples du Ciel Tonnerre de Bai Fan. Si ce Li Zihao les avait tous appris, il aurait peut-être été difficile de le tuer. Même s'il n'avait appris que *Lune Noire* et *Ciels Clairs*, la tâche aurait été ardue. Cependant, comparés à *Lune Noire* et *Ciels Clairs*, ceux-ci ne sont que de simples tours! » Le Taoïste de l'Eau secoua la tête et ne prêta plus attention à Wang Lin. Au lieu de cela, il se dirigea vers le Char de Guerre Divin formé par la Bête de Tonnerre.
 
-Son regard balaya le Char de Guerre Tueur de Dieux et il laissa échapper un reniflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée.
+Son regard balaya le Char de Guerre Divin et il laissa échapper un reniflement froid. Il leva sa main droite et frappa violemment, provoquant l'effondrement du char de guerre. La Bête de Tonnerre fut détruite alors qu'elle était encore figée.
 
 « Ce trésor présente trop de défauts. Puisque je n'en ai pas besoin, je vais le détruire! » Le Taoïste de l'Eau était extrêmement arrogant et possédait une personnalité excentrique. Il aimait détruire les objets que d'autres chérissaient, pourvu qu'ils lui soient inutiles.
 
@@ -48,7 +48,7 @@ En tant que cultivateur du troisième niveau au stade initial du Nirvana Vide, l
 
 Lorsque le char de guerre formé par la Bête de Tonnerre s'effondra, les yeux de Wang Lin se remplirent de chagrin. La douleur dans son cœur se mua en une flamme invisible et infinie qui brûlait en lui. Mais tout restait confiné à l'intérieur de son corps. Ce deuil fit couler deux traînées de larmes de sang de ses yeux!
 
-Le Char de Guerre Tueur de Dieux l'avait accompagné pendant si longtemps, et le voilà détruit.
+Le Char de Guerre Divin l'avait accompagné pendant si longtemps, et le voilà détruit.
 
 Un cri intérieur éclata comme une tempête alors qu'il fixait le Taoïste de l'Eau d'un regard sombre.
 
@@ -58,11 +58,11 @@ Le regard du Taoïste de l'Eau glissa sur Wang Lin. Sa passion était d'observer
 
 En voyant le regard de Wang Lin, le Taoïste de l'Eau se sentit d'autant plus satisfait, car il pensait que Wang Lin était le détenteur de la Perle Défiant le Ciel et le descendant de son Maître.
 
-En avançant, le Taoïste de l'Eau arriva près du Char de Guerre Tueur de Dieux aux sept couleurs. Ses yeux brillèrent d'une lueur étrange tandis qu'il agitait sa manche pour s'en emparer. Cependant, un éclair de lumière jaillit et le papillon aux sept couleurs apparut. Le papillon battit des ailes avant de se dissiper en une multitude de particules lumineuses.
+En avançant, le Taoïste de l'Eau arriva près du Char de Guerre Divin aux sept couleurs. Ses yeux brillèrent d'une lueur étrange tandis qu'il agitait sa manche pour s'en emparer. Cependant, un éclair de lumière jaillit et le papillon aux sept couleurs apparut. Le papillon battit des ailes avant de se dissiper en une multitude de particules lumineuses.
 
-Une fois la dissipation terminée, le Char de Guerre Tueur de Dieux aux sept couleurs n'était plus qu'un objet ordinaire.
+Une fois la dissipation terminée, le Char de Guerre Divin aux sept couleurs n'était plus qu'un objet ordinaire.
 
-« L'esprit du trésor a préféré s'autodétruire plutôt que d'être capturé par ce vieil homme... » Les yeux du Taoïste de l'Eau devinrent froids alors qu'il leva la main pour frapper. Le Char de Guerre Tueur de Dieux et son esprit furent déchirés.
+« L'esprit du trésor a préféré s'autodétruire plutôt que d'être capturé par ce vieil homme... » Les yeux du Taoïste de l'Eau devinrent froids alors qu'il leva la main pour frapper. Le Char de Guerre Divin et son esprit furent déchirés.
 
 « Maintenant, voyons si tu possèdes la Perle Défiant le Ciel! » Le Taoïste de l'Eau laissa échapper un reniflement froid et se retourna vers Wang Lin. À cet instant, il semblait que le monde tremblait et que toutes les étoiles s'étaient éteintes. Wang Lin et le Taoïste de l'Eau étaient les deux seuls êtres restants. Son regard portait une force pénétrante terrifiante lorsqu'il se posa directement sur Wang Lin.
 

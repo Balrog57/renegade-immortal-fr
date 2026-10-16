@@ -36,7 +36,7 @@ L'autre partie n'avait émis qu'un simple reniflement, mais cela avait suffi à 
 
 Étant au cinquième niveau de la Calamité Céleste, il reconnut immédiatement qu'il faisait face à un cultivateur de la troisième étape qu'il ne pouvait offenser. Cependant, il ne comprenait pas quelle offense il avait pu commettre pour provoquer une telle punition.
 
-Il n'avait même pas imaginé que ce cultivateur de la troisième étape ne provenait pas du Système Stellaire Antique, mais du Royaume Intérieur. Il savait que tous les cultivateurs du Royaume Intérieur s'étaient rassemblés à Allheaven pour leur ultime lutte et qu'il était impossible qu'ils soient ici.
+Il n'avait même pas imaginé que ce cultivateur de la troisième étape ne provenait pas du Système Stellaire Antique, mais du Royaume Intérieur. Il savait que tous les cultivateurs du Royaume Intérieur s'étaient rassemblés à Luotian pour leur ultime lutte et qu'il était impossible qu'ils soient ici.
 
 Tandis qu'il paniquait, avant même d'avoir pu achever sa phrase, sa vision fut inondée d'une lumière blanche. Il leva les yeux vers la faille et vit un jeune homme vêtu de blanc traverser l'aura de mort.
 

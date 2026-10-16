@@ -96,7 +96,7 @@ Grâce à cela, la vitesse de Wang Lin atteignit un paroxysme alors qu'il traver
 
 Pourtant, son cœur battait encore la chamade, comme s'il était dans un rêve. Tout ce qui s'était produit sur ce continent et tout ce qu'il avait acquis lui semblaient encore irréels.
 
-Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer de Nuages. Cela serait vrai même au sein de l'Alliance ou d'Allheaven, car cette recette était de nature à rendre les cultivateurs fous!
+Après avoir réprimé son excitation, Wang Lin comprit parfaitement que si l'information concernant la recette de la pilule s'ébruitait, il ferait l'objet d'une traque incessante dans le Système Stellaire de la Mer de Nuages. Cela serait vrai même au sein de l'Alliance ou de Luotian, car cette recette était de nature à rendre les cultivateurs fous!
 
 En particulier les vieux monstres, toujours en culture solitaire, ayant atteint le sommet du stade de Briseur du Nirvana et se préparant pour leur Affliction Céleste, feraient n'importe quoi pour obtenir une telle pilule.
 

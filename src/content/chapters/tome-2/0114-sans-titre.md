@@ -56,7 +56,7 @@ Cet homme était le messager laissé à Zhao, Lin Yi.
 
 Lin Yi laissa échapper un rire et déclara: « Tout le monde, je suis ici pour aider les messagers des pays de culture supérieure à ouvrir la porte du champ de bataille étranger. Je ne m'immiscerai pas dans votre droit d'entrée, alors soyez sans crainte. »
 
-Derrière Lin Yi se trouvaient Punnan Zi, l'ancêtre de la Secte Xuan Dao, le cultivateur aux cheveux blancs de la Secte Piao Miao, et un homme svelte appartenant à la Secte Tian Dao.
+Derrière Lin Yi se trouvaient Pu Nanzi, l'ancêtre de la Secte Xuan Dao, le cultivateur aux cheveux blancs de la Secte Piao Miao, et un homme svelte appartenant à la Secte Tian Dao.
 
 Accompagnant Lin Yi, ces trois hommes atterrirent au centre de la clairière. Tous les autres cultivateurs de l'Âme Naissante les suivirent rapidement pour se ranger à leurs côtés.
 

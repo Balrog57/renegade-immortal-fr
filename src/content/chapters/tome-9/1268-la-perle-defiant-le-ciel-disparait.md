@@ -104,7 +104,7 @@ Liu Jinbiao continuait de se prosterner, terrifié par Wang Lin, implorant sa gr
 
 « Le crime de cet homme ne mérite effectivement pas la mort. Il a trompé autrui pendant des années, mais cela ne me concerne pas. Cependant, il a tenté de duper la Secte Originel, il doit donc être puni! Xu Liguo, tu te plains toujours de ta solitude, je te donne donc cet homme. Donne-lui une bonne leçon ou deux! » Le sens divin de Wang Lin se posa sur Xu Liguo, qui ne s'était pas manifesté depuis longtemps.
 
-Xu Liguo était déprimé et maudissait en son cœur depuis des centaines d'années. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Allheaven; il aspirait constamment à les revivre.
+Xu Liguo était déprimé et maudissait en son cœur depuis des centaines d'années. Les beautés lui manquaient, et il pensait surtout aux méfaits qu'il avait commis à Luotian; il aspirait constamment à les revivre.
 
 Alors qu'il sombrait dans sa mélancolie, il entendit soudain le message de Wang Lin et vit Liu Jinbiao tomber dans son espace de stockage. Ses yeux s'illuminèrent d'excitation et il faillit pousser un rugissement de joie.
 

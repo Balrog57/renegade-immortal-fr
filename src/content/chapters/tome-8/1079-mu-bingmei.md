@@ -20,7 +20,7 @@ En vérité, c’était son intention. Cependant, à l'instant même où Wang Li
 
 « Ta Shan... » L'expression de Wang Lin était hagarde, mais son regard devint plus acéré encore. À cet instant, Ta Shan l'aidait à se redresser, tandis que du sang coulait du coin de sa bouche.
 
-Wang Lin prit une profonde inspiration et dit: « Lâche-moi et va aider Big Head! » Sa main serra le fourreau de son épée alors qu'il fixait l'Omniscient avec une intention meurtrière monstrueuse.
+Wang Lin prit une profonde inspiration et dit: « Lâche-moi et va aider Da Tou! » Sa main serra le fourreau de son épée alors qu'il fixait l'Omniscient avec une intention meurtrière monstrueuse.
 
 Il semblait être redevenu celui qu'il était sur la planète Suzaku: un démon à l'intention meurtrière terrifiante!
 
@@ -28,7 +28,7 @@ Il semblait être redevenu celui qu'il était sur la planète Suzaku: un démon 
 
 Ta Shan hésita un instant avant de se retirer silencieusement. Il regarda Wang Lin et, pendant un court instant, une lueur de vie revint dans les yeux de ce dernier.
 
-Puis, Ta Shan fit brusquement volte-face et chargea vers Big Head et Maître Hollow Wind.
+Puis, Ta Shan fit brusquement volte-face et chargea vers Da Tou et Maître Fu Fengzi.
 
 Wang Lin avait demandé à Ta Shan de partir car il savait qu'avec son niveau de culture, même doté de l'héritage de l'Ancêtre Saint du Clan des Tatouages, il n'était pas assez puissant pour arrêter l'Omniscient. Bien que Ta Shan ne semblât pas gravement blessé par ce coup, Wang Lin savait qu'il ne pourrait pas en encaisser un second!
 
@@ -90,7 +90,7 @@ Même le Démon Ancien Ta Jia afficha un regard étrange.
 
 « Maître... » Ta Shan serra le poing, le corps tremblant.
 
-« Maître! » L'âme originelle de Big Head fixait droit devant lui, ressentant une douleur indescriptible envahir son essence.
+« Maître! » L'âme originelle de Da Tou fixait droit devant lui, ressentant une douleur indescriptible envahir son essence.
 
 « Petit Lin! » Situ Nan, qui combattait l'avatar de l'Omniscient, était couvert de sang. À cet instant, il fixait la position de Wang Lin, les yeux injectés de sang!
 

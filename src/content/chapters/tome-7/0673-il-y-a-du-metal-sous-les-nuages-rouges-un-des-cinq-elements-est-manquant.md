@@ -58,7 +58,7 @@ Wang Lin rangea ses affaires, les yeux brillants de réflexion.
 
 Sun Xi était assis en position de lotus dans le foyer ancestral de la famille Sun, prêt pour sa culture. Cependant, il sursauta et tourna brusquement la tête en entendant la voix de Wang Lin.
 
-« Gravez tout ce que vous savez sur la carte du système stellaire d'Allheaven et envoyez-la-moi. »
+« Gravez tout ce que vous savez sur la carte du système stellaire de Luotian et envoyez-la-moi. »
 
 Les yeux de Sun Xi s'illuminèrent et il hocha légèrement la tête. Il sortit un morceau de jade, se concentra un instant dessus, puis le lança immédiatement; l'objet disparut au loin.
 
@@ -70,11 +70,11 @@ La pierre de jade en main, Wang Lin commença à réfléchir. Durant ces dix jou
 
 Ce jour-là, Wang Lin se leva et sortit de la maison. Il disparut pour réapparaître à des dizaines de milliers de kilomètres de la ville, avant de foncer droit vers l'atmosphère.
 
-À cet instant précis, l'ancêtre de la famille Ran, le Sage sans Souci, et Sun Xi apparurent devant lui.
+À cet instant précis, l'ancêtre de la famille Ran, le Sage Xiaoyaozi, et Sun Xi apparurent devant lui.
 
 L'expression de l'ancêtre de la famille Ran était sombre alors qu'il regardait Wang Lin et demanda: « Partez-vous, Compagnon Cultivateur Xu? »
 
-L'expression du Sage sans Souci était différente; il dissimulait manifestement sa colère. Seul Sun Xi affichait un sourire amer. Lorsqu'il avait entendu Wang Lin réclamer la carte, il avait eu un mauvais pressentiment, mais il n'imaginait pas que ce Xu Mu ait réellement l'intention de partir.
+L'expression du Sage Xiaoyaozi était différente; il dissimulait manifestement sa colère. Seul Sun Xi affichait un sourire amer. Lorsqu'il avait entendu Wang Lin réclamer la carte, il avait eu un mauvais pressentiment, mais il n'imaginait pas que ce Xu Mu ait réellement l'intention de partir.
 
 Wang Lin les regarda froidement et dit calmement: « Je ne briserai pas ma promesse. Ce voyage durera au maximum un an, ou peut-être seulement quelques mois. »
 
@@ -82,7 +82,7 @@ S'ils ne lui avaient pas donné toutes ces pierres célestes, Wang Lin n'aurait 
 
 Après avoir entendu l'explication de Wang Lin, l'ancêtre de la famille Ran hésita: « J'ignore quelle urgence retient le Compagnon Cultivateur Xu. Nous pourrions peut-être nous charger d'une ou deux de ces affaires à votre place. »
 
-Le Sage sans Souci ajouta d'un ton sérieux: « Ne nous en veuillez pas, Compagnon Cultivateur Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
+Le Sage Xiaoyaozi ajouta d'un ton sérieux: « Ne nous en veuillez pas, Compagnon Cultivateur Xu. Nous vous avons tout donné, et moins de quinze jours plus tard, vous voulez déjà quitter la planète Ran Yun. Nous ne pouvons que nourrir des soupçons. »
 
 « Compagnon Cultivateur Xu, je crois en votre intégrité, mais cette affaire... » Sun Xi eut un sourire amer.
 
@@ -104,13 +104,13 @@ Il se transforma en un rayon de lumière arc-en-ciel et plongea dans l'atmosphè
 
 Le jeune homme sous le rocher était l'un d'entre eux. Il était en pleine culture lorsqu'il fut frappé par le sens divin de Huan Dong infusé d'énergie céleste. Son cœur fut endommagé, la faisant cracher du sang et l'affaiblissant instantanément.
 
-Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, le Sage sans Souci et Sun Xi devinrent soudainement livides.
+Beaucoup de cultivateurs subissaient le même sort sur Ran Yun. L'ancêtre de la famille Ran, le Sage Xiaoyaozi et Sun Xi devinrent soudainement livides.
 
 Les mots « famille Huan » furent comme une épée invincible perçant leurs cœurs, faisant vaciller leurs expressions.
 
 « Ils sont arrivés... La famille Huan... est arrivée... » murmura Sun Xi avec amertume. Il regarda Wang Lin avec un regard empreint de désespoir, mais qui contenait aussi une lueur d'espoir.
 
-L'ancêtre de la famille Ran en était de même, fixant Wang Lin du même regard que le Sage sans Souci.
+L'ancêtre de la famille Ran en était de même, fixant Wang Lin du même regard que le Sage Xiaoyaozi.
 
 L'expression de Wang Lin resta imperturbable, mais ses yeux révélèrent une pointe de froideur.
 

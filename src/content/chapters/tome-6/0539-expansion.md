@@ -8,7 +8,7 @@ slug: expansion
 ---
 Toute la population de la zone d'un rayon de cinq kilomètres fut absorbée par la tribu installée dans la vallée. Même le vieil homme aux robes grises accepta ce sort et ne manifesta aucune intention de résistance.
 
-De plus en plus de personnes commencèrent à étudier le sort de raffinement de l'âme, un sujet qui intéressait vivement le vieil homme aux robes grises.
+De plus en plus de personnes commencèrent à étudier le sort de affinement de l'âme, un sujet qui intéressait vivement le vieil homme aux robes grises.
 
 La taille de la tribu augmenta considérablement. En incluant les nouveaux captifs, le nombre d'hommes au sein de la tribu dépassait désormais les 500 individus. Cela faisait d'elle une tribu de taille moyenne parmi celles des environs.
 
@@ -16,19 +16,19 @@ Avec une telle concentration de personnes en un seul point, l'espace devint exig
 
 La zone de protection de cette nouvelle formation s'étendait désormais sur environ 10 kilomètres de large, résolvant ainsi le problème de l'espace.
 
-Chaque nouvelle tribu avait besoin d'un nom. Après qu'Ouyang Hua eut posé la question à plusieurs reprises, Wang Lin la nomma la Tribu du Raffinement de l'Âme.
+Chaque nouvelle tribu avait besoin d'un nom. Après qu'Ouyang Hua eut posé la question à plusieurs reprises, Wang Lin la nomma la Tribu du Affinement de l'Âme.
 
 Le centre de cette nouvelle zone de 10 kilomètres était la vallée. Tous les habitants s'étaient déplacés hors de celle-ci, et la vallée fut transformée en une zone interdite dont seul Wang Lin était le maître. À moins d'être convoqués par lui, nul n'était autorisé à y pénétrer.
 
-En outre, des membres de la Tribu du Raffinement de l'Âme se tenaient à l'entrée, tels des gardes.
+En outre, des membres de la Tribu du Affinement de l'Âme se tenaient à l'entrée, tels des gardes.
 
-Cette vallée devint le symbole du pouvoir suprême de la tribu. Wang Lin, l'unique résident des lieux, était vénéré par tous les membres de la Tribu du Raffinement de l'Âme.
+Cette vallée devint le symbole du pouvoir suprême de la tribu. Wang Lin, l'unique résident des lieux, était vénéré par tous les membres de la Tribu du Affinement de l'Âme.
 
 Les règles de Wang Lin demeuraient inchangées. Il n'existait toujours que trois méthodes pour obtenir les chants après le troisième stade.
 
-Tous les membres de la Tribu du Raffinement de l'Âme consacraient tout leur temps à la culture. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
+Tous les membres de la Tribu du Affinement de l'Âme consacraient tout leur temps à la culture. Hormis les patrouilles, il n'y avait presque personne à l'extérieur, car chacun cultivait au sein de sa demeure.
 
-La Tribu du Raffinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques; elle ressemblait davantage à une secte de culture nouvellement née.
+La Tribu du Affinement de l'Âme était radicalement différente de toutes les autres tribus de la Terre des Esprits Démoniaques; elle ressemblait davantage à une secte de culture nouvellement née.
 
 La vie de Wang Lin devint très paisible, car il était le seul habitant de la vallée. Toutes les anciennes habitations avaient été supprimées par lui, et l'endroit ressemblait désormais presque au Royaume Céleste.
 
@@ -66,19 +66,19 @@ Si Wang Lin y avait pensé, d'autres le pourraient aussi. Désormais, tout dépe
 
 Aux yeux de Wang Lin, l'énergie spirituelle démoniaque était une alternative aux jades célestes, car elle pouvait accélérer sa culture!
 
-Au cours de ces deux années, la Tribu du Raffinement de l'Âme continua de croître. À mesure que le besoin pour le chant suivant s'intensifiait, les membres quittaient la vallée pour s'entraîner. En complément, chaque mois, des équipes revenaient de raids contre des tribus plus petites, rapportant des captifs et diverses quantités de cristaux démoniaques.
+Au cours de ces deux années, la Tribu du Affinement de l'Âme continua de croître. À mesure que le besoin pour le chant suivant s'intensifiait, les membres quittaient la vallée pour s'entraîner. En complément, chaque mois, des équipes revenaient de raids contre des tribus plus petites, rapportant des captifs et diverses quantités de cristaux démoniaques.
 
 Il convient de noter que les formations utilisées pour se défendre contre les étrangers n'avaient presque aucun effet sur les autochtones. Ces formations semblaient conçues pour repousser la Nuit des Esprits Démoniaques et tenir les intrus à l'extérieur.
 
-Avec le temps, la population de la Tribu du Raffinement de l'Âme continua d'augmenter, au point que la zone de 10 kilomètres parut insuffisante.
+Avec le temps, la population de la Tribu du Affinement de l'Âme continua d'augmenter, au point que la zone de 10 kilomètres parut insuffisante.
 
 Il fut donc nécessaire d'étendre la formation une fois de plus. Wang Lin y consacra trois jours d'étude avant d'agrandir le périmètre de 10 kilomètres supplémentaires. Désormais dotée d'un territoire de 20 kilomètres, la tribu pouvait être considérée comme l'une des plus puissantes dans un rayon de plusieurs dizaines de milliers de kilomètres!
 
-L'accroissement du nombre de membres entraîna une hausse du nombre de pratiquants du sort de raffinement de l'âme. Wang Lin savait que les fragments d'âme contenus dans les drapeaux d'âme devaient être nourris de nombreuses fois pour atteindre leur pleine puissance.
+L'accroissement du nombre de membres entraîna une hausse du nombre de pratiquants du sort de affinement de l'âme. Wang Lin savait que les fragments d'âme contenus dans les drapeaux d'âme devaient être nourris de nombreuses fois pour atteindre leur pleine puissance.
 
 Plutôt que d'enseigner aux gens comment les entretenir, il choisit d'utiliser le drapeau d'âme au milliard d'âmes pour nourrir ces fragments. Le drapeau s'étendit et enveloppa le ciel de la zone de 20 kilomètres de nuages noirs.
 
-Dès l'apparition de ces nuages, une onde de choc parcourut la Tribu du Raffinement de l'Âme. De nombreux membres se précipitèrent dehors, tandis que les plus puissants s'enveloppèrent dans leurs propres drapeaux d'âme pour tenter de s'élever et comprendre ce qui se passait.
+Dès l'apparition de ces nuages, une onde de choc parcourut la Tribu du Affinement de l'Âme. De nombreux membres se précipitèrent dehors, tandis que les plus puissants s'enveloppèrent dans leurs propres drapeaux d'âme pour tenter de s'élever et comprendre ce qui se passait.
 
 « Libérez vos fragments d'âme dans les nuages noirs pendant une durée déterminée chaque jour. Cela rendra les fragments d'âme encore plus puissants! » La voix de Wang Lin résonna à travers les 20 kilomètres de territoire.
 
@@ -86,9 +86,9 @@ Dès l'apparition de ces nuages, une onde de choc parcourut la Tribu du Raffinem
 
 Une fois les nuages noirs apparus, les fragments d'âme des tribalisés hurlèrent et s'agitèrent dans l'obscurité tout au long de la journée.
 
-Les habitants de la Tribu du Raffinement de l'Âme finirent par s'habituer à libérer leurs fragments pour qu'ils soient nourris dans ces nuages, lesquels devinrent le symbole unique de la tribu.
+Les habitants de la Tribu du Affinement de l'Âme finirent par s'habituer à libérer leurs fragments pour qu'ils soient nourris dans ces nuages, lesquels devinrent le symbole unique de la tribu.
 
-Au sein de la tribu, tout le monde ne pratiquait pas le sort de raffinement de l'âme. Certains n'en étaient absolument pas capables et ne pouvaient donc servir que de chasseurs pour subvenir aux besoins de tous.
+Au sein de la tribu, tout le monde ne pratiquait pas le sort de affinement de l'âme. Certains n'en étaient absolument pas capables et ne pouvaient donc servir que de chasseurs pour subvenir aux besoins de tous.
 
 Treize était l'un de ces chasseurs.
 

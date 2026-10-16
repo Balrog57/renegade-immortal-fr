@@ -56,7 +56,7 @@ Des rayons de lumière dorée apparurent de nulle part et se propagèrent dans t
 
 Deux caractères anciens ornaient cette porte dorée. Ces deux mots formaient un nom!
 
-Le nom d'une famille qui existait dans Allheaven et dans le Royaume Intérieur depuis bien trop longtemps!
+Le nom d'une famille qui existait dans Luotian et dans le Royaume Intérieur depuis bien trop longtemps!
 
 Dong Ling!
 

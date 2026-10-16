@@ -34,7 +34,7 @@ Les trois dragons noirs de Flammes Joss poussèrent des rugissements qui ébranl
 
 L'espace environnant semblait sur le point de s'effondrer sous la force du vent. Des craquements résonnèrent et de multiples failles spatiales apparurent.
 
-Le Maître Flamespark, situé derrière lui, vit ses pupilles se rétracter et ses cheveux se hérisser. Il percevait clairement une force extrêmement terrifiante émanant du vent généré par les dragons noirs.
+Le Maître Yan Leizi, situé derrière lui, vit ses pupilles se rétracter et ses cheveux se hérisser. Il percevait clairement une force extrêmement terrifiante émanant du vent généré par les dragons noirs.
 
 Cette puissance pouvait briser l'espace lui-même. Si la moindre étincelle de cette force l'atteignait, son corps et son âme originelle seraient anéantis. Il sentait que même si le Maître Lu Fu arrivait, celui-ci devrait se retirer rapidement. Le moindre relâchement entraînerait des blessures graves pour le Maître Lu Fu!
 
@@ -88,7 +88,7 @@ Les dizaines de milliers de cultivateurs étaient agenouillés et les dragons no
 
 Wang Lin, l'expression sereine, marcha vers l'Estimé Maître Tian Zhao.
 
-Le Maître Flamespark se lécha inconsciemment les lèvres sèches, l'esprit vide face à ce spectacle. Il n'osait croire ce qu'il voyait.
+Le Maître Yan Leizi se lécha inconsciemment les lèvres sèches, l'esprit vide face à ce spectacle. Il n'osait croire ce qu'il voyait.
 
 Dès que l'Estimé Maître Tian Zhao aperçut cette lumière dorée, ses yeux furent inondés d'une terreur extrême et il laissa échapper un cri incontrôlable. Il sembla se remémorer quelque chose en voyant cette lueur, son expression changea radicalement et il recula comme un fou.
 

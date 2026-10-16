@@ -24,13 +24,13 @@ Cependant, un simple coup d'œil suffit à Wang Lin pour avoir l'impression qu'u
 
 Si Wang Lin en était réduit à cet état, les autres étaient dans un sort pire encore.
 
-Les yeux du Maître Hollow Wind s'écarquillèrent et devinrent injectés de sang avant qu'il ne crache une bouchée de sang. Son corps montagneux trembla et se rétracta rapidement jusqu'à n'atteindre plus que la moitié de sa taille originale. Une immense quantité d'énergie originelle envahit son esprit alors qu'il reculait de plusieurs dizaines de pieds avant de s'immobiliser. Le visage pâle, terrifié par la situation, il hurla: « Fleur Céleste! »
+Les yeux du Maître Fu Fengzi s'écarquillèrent et devinrent injectés de sang avant qu'il ne crache une bouchée de sang. Son corps montagneux trembla et se rétracta rapidement jusqu'à n'atteindre plus que la moitié de sa taille originale. Une immense quantité d'énergie originelle envahit son esprit alors qu'il reculait de plusieurs dizaines de pieds avant de s'immobiliser. Le visage pâle, terrifié par la situation, il hurla: « Fleur Céleste! »
 
 Les trois frères Chen furent incapables de résister. Sous l'effet d'un seul regard, les yeux du Maître Yi Chen devinrent vitreux et des craquements sinistres résonnèrent dans sa poitrine. Il cracha une large traînée de sang et chuta du ciel, la panique atteignant ses yeux un sommet de terreur.
 
 Quant au Maître Yi Xiang et au Maître Yi Long, c'était comme si leurs cœurs avaient été transpercés; le sang jaillit de leurs pores, trempant leurs vêtements. Ils tombèrent du ciel et commencèrent à cultiver sans la moindre hésitation.
 
-Big Head et Lei Ji subirent le même sort.
+Da Tou et Lei Ji subirent le même sort.
 
 Le corps massif de Lei Ji ne put supporter le choc psychologique. Il tomba à genoux, le visage livide.
 
@@ -76,11 +76,11 @@ Non seulement le gravier, mais même l'eau de la rivière semblait cesser de cou
 
 Le corps de Wang Lin bondit soudainement et la Lance Tueuse de Dieux s'élança avec une grâce meurtrière. À mesure qu'elle avançait, c'était comme si l'espace lui-même était tranché.
 
-Tenant fermement sa lance, Wang Lin fendit l'air tel un éclair vers la carapace de tortue. En approchant, la détermination embrasa son regard et il hurla: « Maître Hollow Wind, dépouille d'argent, aidez-moi à briser cette coquille! »
+Tenant fermement sa lance, Wang Lin fendit l'air tel un éclair vers la carapace de tortue. En approchant, la détermination embrasa son regard et il hurla: « Maître Fu Fengzi, dépouille d'argent, aidez-moi à briser cette coquille! »
 
-Le Maître Hollow Wind serra les dents et s'élança. Son corps se rétracta rapidement jusqu'à atteindre la taille d'un homme ordinaire. Puis, il dégagea une lueur dorée et une gigantesque tablette de pierre apparut!
+Le Maître Fu Fengzi serra les dents et s'élança. Son corps se rétracta rapidement jusqu'à atteindre la taille d'un homme ordinaire. Puis, il dégagea une lueur dorée et une gigantesque tablette de pierre apparut!
 
-De nombreuses runes ornaient cette tablette qui émettait un éclat d'or. Lorsque le Maître Hollow Wind la projeta vers l'avant, elle fendit l'air dans un sifflement en direction de la carapace.
+De nombreuses runes ornaient cette tablette qui émettait un éclat d'or. Lorsque le Maître Fu Fengzi la projeta vers l'avant, elle fendit l'air dans un sifflement en direction de la carapace.
 
 Un choc violent retentit lorsque la tablette percuta la coquille, provoquant des éclats de lumière frénétiques. La dépouille d'argent cracha alors une fumée multicolore qui se dirigea droit sur la cible. Cette brume enveloppa la carapace et commença à la dissoudre.
 
@@ -102,7 +102,7 @@ Quant à la fumée multicolore, elle se mua immédiatement en une fleur polychro
 
 La silhouette blanche s'avança et leva sa main magnifique. Elle fixa froidement Wang Lin du regard et le pointa du doigt!
 
-À cet instant précis, les pupilles de Wang Lin se rétractèrent brusquement; il ouvrit la bouche et expulsa un objet. C'était le trésor de protection que Maître Flamespark lui avait offert: un fragment du Royaume Céleste du Tonnerre!
+À cet instant précis, les pupilles de Wang Lin se rétractèrent brusquement; il ouvrit la bouche et expulsa un objet. C'était le trésor de protection que Maître Yan Leizi lui avait offert: un fragment du Royaume Céleste du Tonnerre!
 
 Le fragment présentait quelques fissures causées par le sort de l'Omniscient!
 

@@ -62,7 +62,7 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 « Ce disciple devait protéger l'Alliance. Pour que l'Alliance survive, je devais conclure un accord avec le Royaume Extérieur... Le Conseil Souverain du Royaume Extérieur a promis de protéger l'Alliance!
 
-« Maître, vous dormiez, vous ignorez donc qu'il y a près de mille ans, Allheaven a lancé une attaque contre l'Alliance. L'Alliance fut déchirée et seul son Quartier Général fut préservé. À cette époque, ce disciple a tenté de vous appeler, mais vous n'avez pas répondu...
+« Maître, vous dormiez, vous ignorez donc qu'il y a près de mille ans, Luotian a lancé une attaque contre l'Alliance. L'Alliance fut déchirée et seul son Quartier Général fut préservé. À cette époque, ce disciple a tenté de vous appeler, mais vous n'avez pas répondu...
 
 « Ce disciple n'éprouve aucun attachement pour le Royaume Intérieur. S'ils sont venus attaquer mon Alliance, pourquoi ne pourrions-nous pas aider les cultivateurs du Royaume Extérieur?
 
@@ -88,7 +88,7 @@ Cependant, cette expression plongea Maître Zhong Xuan dans le désespoir. Son c
 
 « Maître, ce disciple n'avait pas l'intention d'ouvrir le sceau du Royaume aux Sept Couleurs!! C'est le Seigneur Céleste Qing Shui qui s'est frayé un chemin jusqu'ici et qui a forcé ce disciple à briser le sceau!! C'est lui qui a ouvert le Royaume aux Sept Couleurs! Ce disciple n'y est pour rien, c'est lui le coupable! »
 
-Les yeux de Wang Lin se plissèrent sur Maître Zhong Xuan. L'aura de Maître Flamespark était empreinte d'une haine monstrueuse, et sa respiration devint rauque.
+Les yeux de Wang Lin se plissèrent sur Maître Zhong Xuan. L'aura de Maître Yan Leizi était empreinte d'une haine monstrueuse, et sa respiration devint rauque.
 
 Maître Long Pan sembla ignorer ces paroles; son regard vers Maître Zhong Xuan devint plus tendre encore.
 

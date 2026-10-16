@@ -50,7 +50,7 @@ Sous cette pression inimaginable, le sang jaillit du corps de Wang Lin. Il étai
 
 L'esprit de Wang Lin était désormais limpide, toutes les pensées inutiles ayant été balayées. Une seule idée occupait son esprit: « défier! »
 
-Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que Wang Lin avait scellée et supprimée durant son séjour à Allheaven, refleurissait une fois de plus!
+Autrefois, il avait défié les cieux dans la Terre des Esprits Démoniaques pour atteindre le stade Ascendant. Ici, il faisait face à cette pression une fois de plus dans la Terre des Esprits Démoniaques. Cette nature rebelle, que Wang Lin avait scellée et supprimée durant son séjour à Luotian, refleurissait une fois de plus!
 
 Tout était une question de karma!
 

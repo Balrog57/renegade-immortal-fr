@@ -88,7 +88,7 @@ L'homme d'âge moyen en robe violette avait le niveau de culture le plus bas. Bi
 
 Dans le monde de la culture, bien que les cultivateurs de rang inférieur possèdent parfois des surnoms, ceux-ci ne devenaient guère célèbres. Ils n'avaient rien de la portée des noms portés par les véritables puissances. Pour un cultivateur du second échelon, un surnom était souvent une reconnaissance mutuelle et la synthèse condensée de toute une existence.
 
-Jusqu'à ce jour, Wang Lin n'avait pas véritablement de surnom. S'il en avait un, ce serait celui qu'il avait acquis à Allheaven par ses massacres: Maître Démon!
+Jusqu'à ce jour, Wang Lin n'avait pas véritablement de surnom. S'il en avait un, ce serait celui qu'il avait acquis à Luotian par ses massacres: Maître Démon!
 
 Après une courte réflexion, Wang Lin déclara lentement: « Mon surnom est Maître Démon! »
 

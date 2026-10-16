@@ -138,7 +138,7 @@ Wang Lin cracha du sang et fut projeté en arrière de plus de 33 mètres. Son �
 
 Les yeux du géant de glace projetèrent une lueur spectrale. Il ignora l'âme originelle de Wang Lin pour se diriger vers son corps physique.
 
-« Char de guerre, activation! » Les yeux de Wang Lin brillèrent. Le temps qu'il avait mis à retarder le géant avait permis au Char Tueur de Dieux de s'activer.
+« Char de guerre, activation! » Les yeux de Wang Lin brillèrent. Le temps qu'il avait mis à retarder le géant avait permis au Char de Guerre Divin de s'activer.
 
 L'esprit bestial poussa un rugissement et s'élança. Toutes les chaînes qui le retenaient avaient disparu. Cependant, au lieu de charger le géant de glace, la bête se précipita vers Wang Lin.
 

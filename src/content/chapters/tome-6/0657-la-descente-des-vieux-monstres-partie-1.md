@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 657 - The Old Monsters Descend (part 1)
 slug: la-descente-des-vieux-monstres-partie-1
 ---
-« Le système stellaire d'Allheaven! » Les pupilles de Wang Lin se contractèrent. Dans ses souvenirs, il n'existait aucune information concernant le système stellaire d'Allheaven. Même dans les souvenirs de Tu Si, il n'y avait rien à ce sujet.
+« Le système stellaire de Luotian! » Les pupilles de Wang Lin se contractèrent. Dans ses souvenirs, il n'existait aucune information concernant le système stellaire de Luotian. Même dans les souvenirs de Tu Si, il n'y avait rien à ce sujet.
 
 La femme à l'intérieur du parchemin trembla. Elle semblait vouloir se retourner, mais une force invisible l'en empêchait.
 
@@ -26,9 +26,9 @@ La femme fut surprise. Elle afficha un sourire amer et dit: « Il y a très long
 
 « Cependant, une rumeur a été transmise. On disait que le Domaine Céleste avait abandonné les cultivateurs pour quitter cet univers. Les seules traces restantes étaient les quatre tunnels qui permettaient autrefois de s'y rendre. Après d'innombrables années, ces quatre tunnels devinrent des lieux où les cultivateurs de haut niveau devaient se rendre, et devinrent les Royaumes Célestes. Ces quatre Royaumes Célestes sont respectivement... le Vent, la Pluie, le Tonnerre et l'Éclair... »
 
-« Sous chacun des quatre Royaumes Célestes se trouve un système stellaire correspondant. Au-dessus de mon système stellaire d'Allheaven se trouve le Royaume Céleste du Tonnerre... »
+« Sous chacun des quatre Royaumes Célestes se trouve un système stellaire correspondant. Au-dessus de mon système stellaire de Luotian se trouve le Royaume Céleste du Tonnerre... »
 
-« La perle défiant le ciel n'appartient pas au système stellaire de l'Alliance; elle est apparue pour la première fois dans mon système stellaire d'Allheaven. Personne ne sait comment cette perle est apparue, mais lors de son apparition, tous les grands cultivateurs du système d'Allheaven ont ressenti l'existence de l'ancien Domaine Céleste... »
+« La perle défiant le ciel n'appartient pas au système stellaire de l'Alliance; elle est apparue pour la première fois dans mon système stellaire de Luotian. Personne ne sait comment cette perle est apparue, mais lors de son apparition, tous les grands cultivateurs du système de Luotian ont ressenti l'existence de l'ancien Domaine Céleste... »
 
 Les yeux de Wang Lin se rétrécirent alors qu'il regardait froidement le parchemin, mais il resta silencieux.
 
@@ -38,15 +38,15 @@ Les yeux de Wang Lin se rétrécirent alors qu'il regardait froidement le parche
 
 Un éclair de froideur passa dans ses yeux alors qu'il pointait le ciel et disait: « C'est vous qui avez mis en place le réseau de transfert! »
 
-La femme à l'intérieur du parchemin réfléchit longuement avant de secouer la tête. « Je ne suis pas entrée dans le système stellaire de l'Alliance par ici, mais ce réseau de transfert a bel et bien été créé par un cultivateur du système d'Allheaven. Ce réseau n'est plus fonctionnel, à moins de posséder une pierre d'Allheaven. Même un jade céleste ne peut l'activer. »
+La femme à l'intérieur du parchemin réfléchit longuement avant de secouer la tête. « Je ne suis pas entrée dans le système stellaire de l'Alliance par ici, mais ce réseau de transfert a bel et bien été créé par un cultivateur du système de Luotian. Ce réseau n'est plus fonctionnel, à moins de posséder une pierre de Luotian. Même un jade céleste ne peut l'activer. »
 
-« Je vous ai dit tout ce que je sais sur la perle défiant le ciel. Quant à l'âme qui s'y trouve, mon ancêtre pourra certainement vous aider. Tant que vous me ramenez dans le système stellaire d'Allheaven et me renvoyez chez moi, je demanderai sans faute à l'ancêtre de vous aider à ressusciter l'âme qu'elle renferme! »
+« Je vous ai dit tout ce que je sais sur la perle défiant le ciel. Quant à l'âme qui s'y trouve, mon ancêtre pourra certainement vous aider. Tant que vous me ramenez dans le système stellaire de Luotian et me renvoyez chez moi, je demanderai sans faute à l'ancêtre de vous aider à ressusciter l'âme qu'elle renferme! »
 
-Le regard de Wang Lin resta glacial alors qu'il fixait la femme pendant un long moment avant de détourner les yeux. Dès qu'il avait vu le nom du système stellaire d'Allheaven, il avait retrouvé son calme. Ce que disait la femme visait manifestement à l'inciter à se rendre dans ce système.
+Le regard de Wang Lin resta glacial alors qu'il fixait la femme pendant un long moment avant de détourner les yeux. Dès qu'il avait vu le nom du système stellaire de Luotian, il avait retrouvé son calme. Ce que disait la femme visait manifestement à l'inciter à se rendre dans ce système.
 
-Wang Lin demanda calmement: « À quelle secte du système stellaire d'Allheaven appartenez-vous? »
+Wang Lin demanda calmement: « À quelle secte du système stellaire de Luotian appartenez-vous? »
 
-« Le système d'Allheaven n'est pas comme votre système de l'Alliance. Il n'y a pas de sectes, seulement des familles de cultivateurs. Ma famille est la famille Xiang, sur la planète Dong Lin. »
+« Le système de Luotian n'est pas comme votre système de l'Alliance. Il n'y a pas de sectes, seulement des familles de cultivateurs. Ma famille est la famille Xiang, sur la planète Dong Lin. »
 
 Wang Lin sembla peser le pour et le contre. Un instant plus tard, il dit: « Je crains de ne pas pouvoir traverser ce vortex avec mon niveau de culture actuel... »
 
@@ -110,19 +110,19 @@ Plusieurs mois passèrent avant que la fluctuation ne réapparaisse, pour ne tro
 
 Wang Lin songea à cela tout en s'élevant.
 
-« Seuls environ trente pour cent de ses paroles étaient vraies, mais le système stellaire d'Allheaven ne devrait pas être une invention, sinon elle n'aurait pas insisté pour que je l'y emmène. »
+« Seuls environ trente pour cent de ses paroles étaient vraies, mais le système stellaire de Luotian ne devrait pas être une invention, sinon elle n'aurait pas insisté pour que je l'y emmène. »
 
 Les yeux de Wang Lin brillèrent alors qu'il flottait vers le haut. La force d'aspiration ici était puissante. Bien que Wang Lin ait fini par fusionner avec cette force, il ressentait toujours une pression entravant sa montée.
 
 Il prit une grande inspiration et frappa son sac de rangement. La formation des sept étoiles s'en échappa pour l'entourer, créant une poussée phénoménale pour l'aider à s'élever.
 
-« La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système d'Allheaven, personne ne saura que je possède la perle défiant le ciel. »
+« La famille Xiang sur la planète Dong Lin... Même si cette famille n'a aucun lien avec cette femme, je devrais pouvoir trouver des indices sur son identité. Puisqu'elle prétend que l'ancêtre de sa lignée peut ressusciter Wan Er, cela vaut la peine de vérifier. Sans ce parchemin qui me suit, même en me rendant dans le système de Luotian, personne ne saura que je possède la perle défiant le ciel. »
 
 « Après tout, cette Terre des Esprits Démoniaques est saturée de dangers, et l'Omniscient et sa suite peuvent surgir à tout moment. Une fois qu'ils seront là, notre rencontre sera inévitable. Face à des cultivateurs dont le niveau de culture dépasse mon imagination, je serai impuissant. »
 
 Alors qu'il s'élevait, le regard de Wang Lin se fit glacial.
 
-« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Cupidité que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système d'Allheaven! »
+« Cependant, puisque ce dernier jeton est entre mes mains, ils ne pourront pas pénétrer dans la véritable grotte sans moi. Même s'ils viennent sur la Terre des Esprits Démoniaques, cela sera inutile. Et même s'ils apprennent par Cupidité que je possède le jeton, il sera trop tard. Je serai déjà parti pour le système de Luotian! »
 
 « Une fois que mon niveau de culture aura atteint un point où je pourrai rivaliser avec l'Omniscient et ses compagnons, alors je pourrai revenir et percer le secret de cette grotte! »
 

@@ -15,15 +15,15 @@ Cet individu portait une robe verte et semblait âgé d'une trentaine d'années.
 
 Wang Lin parcourut toute la distance ainsi. Il n'utilisa pas la Déviation Spatiale, se contentant de marcher calmement parmi les étoiles. Cela faisait quatre jours qu'il était revenu du vide.
 
-Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis le vide avec l'aide du Maître Flamespark. Wang Lin n'avait que peu parlé de ce qui s'était passé dans le vide; il n'avait pas approfondi la question des localisations d'Yi Muzi, de Wudo Chan ou du Serpent aux yeux de lune.
+Il y a quatre jours, lui et Qing Shui avaient ouvert le passage de retour depuis le vide avec l'aide du Maître Yan Leizi. Wang Lin n'avait que peu parlé de ce qui s'était passé dans le vide; il n'avait pas approfondi la question des localisations d'Yi Muzi, de Wudo Chan ou du Serpent aux yeux de lune.
 
-Le Maître Flamespark n'avait pas posé trop de questions, mais lorsqu'ils évoquèrent le Serpent aux yeux de lune, il fronça les sourcils.
+Le Maître Yan Leizi n'avait pas posé trop de questions, mais lorsqu'ils évoquèrent le Serpent aux yeux de lune, il fronça les sourcils.
 
-Wang Lin ne s'attarda pas longtemps avec le Maître Flamespark. Il décida de partir en prétextant une affaire personnelle. Le Maître Flamespark réfléchit silencieusement un long moment et ne força pas Wang Lin à rester. Bien qu'il fût incapable de percer les mystères du corps divin ancien de Wang Lin malgré un niveau de culture bien supérieur, il pouvait ressentir une aura puissante émanant de lui qui le frappait de stupeur.
+Wang Lin ne s'attarda pas longtemps avec le Maître Yan Leizi. Il décida de partir en prétextant une affaire personnelle. Le Maître Yan Leizi réfléchit silencieusement un long moment et ne força pas Wang Lin à rester. Bien qu'il fût incapable de percer les mystères du corps divin ancien de Wang Lin malgré un niveau de culture bien supérieur, il pouvait ressentir une aura puissante émanant de lui qui le frappait de stupeur.
 
 Bien que cette aura fût redoutable aujourd'hui, avec le temps, elle croîtrait jusqu'à atteindre un degré absolument terrifiant.
 
-Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa rapidement. Après tout, son énergie d'origine céleste n'avait jamais disparu; elle était simplement supprimée par le sceau. Après avoir recouvré sa pleine puissance, Qing Shui ne resta pas auprès du Maître Flamespark. Il disparut parmi les étoiles, laissant son emplacement inconnu.
+Une fois de retour, le sceau qui entravait la culture de Qing Shui se dissipa rapidement. Après tout, son énergie d'origine céleste n'avait jamais disparu; elle était simplement supprimée par le sceau. Après avoir recouvré sa pleine puissance, Qing Shui ne resta pas auprès du Maître Yan Leizi. Il disparut parmi les étoiles, laissant son emplacement inconnu.
 
 En apparence, lors de leur départ, il semblait qu'ils n'avaient eu aucun contact, mais Wang Lin savait que Qing Shui viendrait le retrouver. Après tout, ce dernier n'avait pas encore exploré les souvenirs de l'Illustre Xuan Bao.
 
@@ -31,7 +31,7 @@ En songeant à ce qui s'était passé dans le vide, Wang Lin ressentit un profon
 
 Wang Lin n'aurait jamais imaginé que la perle défiant le ciel déclencherait inopinément une guerre monumentale entre les quatre Royaumes Célestes!
 
-« La grande guerre entre les quatre Royaumes Célestes fut certainement plus féroce que la bataille entre Allheaven et l'Alliance... » Wang Lin soupira en traversant la nébuleuse. À un moment donné, il se retourna et resta immobile.
+« La grande guerre entre les quatre Royaumes Célestes fut certainement plus féroce que la bataille entre Luotian et l'Alliance... » Wang Lin soupira en traversant la nébuleuse. À un moment donné, il se retourna et resta immobile.
 
 Un instant plus tard, des ondulations se propagèrent de l'endroit où il fixait le vide, et Qing Shui en sortit. Il regarda Wang Lin avec admiration dans les yeux. L'expression de Wang Lin était sereine lorsqu'il sourit: « Frère aîné est arrivé. »
 
@@ -41,7 +41,7 @@ Wang Lin remarqua immédiatement une puissante odeur de sang émanant du corps d
 
 « En chemin, j'ai entendu quelques personnes prononcer ton nom; je suis donc allé massacrer quelques cultivateurs de l'Alliance qui étaient doués pour se cacher! » Bien que Qing Shui l'ait dit avec désinvolture, Wang Lin savait que ce n'était absolument pas une mince affaire.
 
-La réalité était conforme à ses explications. Le Royaume de la Massacre de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes près des cultivateurs d'Allheaven.
+La réalité était conforme à ses explications. Le Royaume de la Massacre de l'Alliance avait poursuivi sa traque du Céleste Xu Mu. Bien que Wang Lin se soit enfoncé dans le vide, ils n'avaient pas renoncé et étaient restés à proximité. Cependant, au lieu de se disperser, ils s'étaient divisés en deux équipes près des cultivateurs de Luotian.
 
 Hélas, ce Royaume de la Massacre avait une chance déplorable: l'un de ses groupes tomba nez à nez avec Qing Shui. Tous furent exécutés, et même leur chef fut dévoré par Qing Shui.
 

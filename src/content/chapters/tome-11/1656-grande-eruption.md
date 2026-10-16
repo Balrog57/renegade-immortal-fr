@@ -24,7 +24,7 @@ Dao Feishan, qui se trouvait à moins de cent pieds de Mu Bingmei, fut saisi d'e
 
 Il se retourna brusquement!
 
-Il y avait aussi cette autre planète de culture où se trouvaient d'innombrables personnes connaissant Wang Lin. Xi Zifeng, Zhan Conglie, Shengong Hu, Maître Flamespark, et bien d'autres encore! Tous regardaient au loin et virent la puissante flèche percer le vide!
+Il y avait aussi cette autre planète de culture où se trouvaient d'innombrables personnes connaissant Wang Lin. Xi Zifeng, Zhan Conglie, Shengong Hu, Maître Yan Leizi, et bien d'autres encore! Tous regardaient au loin et virent la puissante flèche percer le vide!
 
 C'était une flèche longue de plusieurs centaines de milliers de pieds, dotée du pouvoir de détruire les cieux eux-mêmes. La pointe de la flèche était circulaire; elle hurlait à travers l'espace, provoquant l'effondrement du vide sur son passage. Rien ne pouvait l'arrêter!
 

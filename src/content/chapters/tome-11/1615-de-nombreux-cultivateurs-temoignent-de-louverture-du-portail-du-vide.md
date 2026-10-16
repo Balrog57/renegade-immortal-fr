@@ -36,21 +36,21 @@ Ces cultivateurs provenaient tous du Royaume Extérieur. Ils portaient tous une 
 
 Ils encerclaient le dernier bastion du Brillant Void, sous la conduite du Maître South Cloud. Ils s'apprêtaient à livrer une bataille à mort.
 
-À l'origine, le Maître South Cloud ne souhaitait pas rester ici. Cependant, les cultivateurs du Brillant Void étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Allheaven.
+À l'origine, le Maître South Cloud ne souhaitait pas rester ici. Cependant, les cultivateurs du Brillant Void étaient déjà épuisés par ces décennies de lutte. Leurs yeux étaient injectés de sang à force de tuer, et ils ne voulaient pas évacuer vers Luotian.
 
-À leurs yeux, même s'ils se réfugiaient à Allheaven, tout serait inutile!
+À leurs yeux, même s'ils se réfugiaient à Luotian, tout serait inutile!
 
-Lorsque l'armée du Royaume Extérieur massacrerait son chemin jusqu'à Allheaven, où pourraient-ils fuir?
+Lorsque l'armée du Royaume Extérieur massacrerait son chemin jusqu'à Luotian, où pourraient-ils fuir?
 
 S'ils devaient mourir, ils mourraient dans leur patrie. S'ils devaient combattre jusqu'au bout, alors ils combattraient jusqu'à la mort sur la terre natale du Seigneur du Royaume Scellé, la planète Suzaku!
 
 La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cultivateurs du Brillant Void affichaient des sourires comme s'ils avaient oublié la mort!
 
-Situ Nan était également présent. Il aurait dû partir pour Allheaven avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu. Lui, Situ Nan, ne pouvait accepter de partir seul.
+Situ Nan était également présent. Il aurait dû partir pour Luotian avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu. Lui, Situ Nan, ne pouvait accepter de partir seul.
 
 « Et alors si je meurs? » sourit Situ Nan, ses cheveux blancs flottant au vent alors qu'il chargeait les cultivateurs du Royaume Extérieur dans sa robe pourpre. Au fil des ans, grâce à l'enseignement attentif de Qing Lin et à son talent prodigieux, il avait ouvert le Portail du Vide avec l'aide de ce dernier et était devenu un cultivateur du troisième pas il y a 30 ans!
 
-Aux côtés de Situ Nan, Thirteen, Big Head et les autres étaient restés également. Bien que leurs niveaux de culture ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
+Aux côtés de Situ Nan, Thirteen, Da Tou et les autres étaient restés également. Bien que leurs niveaux de culture ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
 
 Parmi eux se trouvaient aussi le Maître Long Pan et le Maître Lu Fu.
 
@@ -58,7 +58,7 @@ Après son réveil, le Maître Long Pan gardait un souvenir profond de Wang Lin 
 
 Il n'était pas obligé de venir, mais le Maître Long Pan l'avait fait malgré tout. Il n'avait pas emmené son disciple, Xuan Zhong. Utilisant une puissance équivalente à celle d'un cultivateur du Vide Arcane, il employait la peinture des Rivières et des Montagnes pour empêcher les cultivateurs du Royaume Extérieur de briser la planète Suzaku.
 
-Le Maître Lu Fu n'était pas non plus retourné à Allheaven, bien qu'il fût l'ancêtre d'Allheaven. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté silencieusement pour combattre!
+Le Maître Lu Fu n'était pas non plus retourné à Luotian, bien qu'il fût l'ancêtre de Luotian. Cependant, au cours des dernières décennies, il avait été témoin d'innombrables morts et avait trop vu. Profondément ému par Wang Lin, il était resté silencieusement pour combattre!
 
 « Ce vieil homme combattra jusqu'à la mort... » Les yeux du Maître Lu Fu étaient injectés de folie.
 

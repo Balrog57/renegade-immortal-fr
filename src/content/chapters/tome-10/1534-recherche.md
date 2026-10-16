@@ -48,7 +48,7 @@ La Secte Fantôme avait également envoyé une grande quantité de cultivateurs 
 
 Les cultivateurs du Fleuve Invoqué avaient laissé une partie de leur groupe stationnée ici, à l'extérieur du vortex de brume, avec la belle femme d'âge mûr comme chef, avant de s'y installer.
 
-Les cultivateurs d'Allheaven avaient également laissé une partie des leurs. Le reste était retourné chez lui pour se préparer au second affrontement!
+Les cultivateurs de Luotian avaient également laissé une partie des leurs. Le reste était retourné chez lui pour se préparer au second affrontement!
 
 Le Système Stellaire de Vide Brillant, qui n'était jamais apparu lors de cette bataille, envoya 10 000 cultivateurs une fois le combat terminé. Ils étaient menés par une femme vêtue d'une robe bleu aquatique et s'établirent à l'extérieur du vortex de brume.
 
@@ -56,7 +56,7 @@ Cette femme était très belle mais aussi extrêmement froide. La froideur de so
 
 Lors de la première bataille, le Grand Maître Yun Luo avait stupéfié Maître Hong Shan et les autres. C'était à cause d'elle que l'armée du Royaume Intérieur avait été extrêmement passive; ils n'avaient même pas pu déployer de formation.
 
-La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts du Fleuve Invoqué et d'Allheaven, ils auraient subi de lourdes pertes!
+La capacité du Grand Maître Yun Luo à déployer ses troupes et à pratiquer la divination avait laissé une impression profonde sur le Grand Maître Hong Shan et ses compagnons! Si le Seigneur du Royaume Scellé n'avait pas tué son avatar, alors même avec l'arrivée des renforts du Fleuve Invoqué et de Luotian, ils auraient subi de lourdes pertes!
 
 Très peu de grandes guerres avaient eu lieu au sein du Royaume Intérieur. Au fil des dizaines de milliers d'années, ils avaient lentement perdu l'habitude de ce type de combat. Cette bataille fut une leçon, mais elle permit aussi à Maître Hong Shan et aux autres de comprendre que, même avec un niveau de culture élevé, une armée sans chef n'était qu'un tas de sable!
 
@@ -88,7 +88,7 @@ Le nom de Wang Lin devint une légende dans le Royaume Intérieur! Cependant, ce
 
 Maître Lu Fu croyait que le Seigneur du Royaume Scellé était toujours vivant!
 
-Xi Zifeng d'Allheaven et Xie Qing de la planète Ling Dong croyaient aussi que leur maître était toujours en vie!
+Xi Zifeng de Luotian et Xie Qing de la planète Ling Dong croyaient aussi que leur maître était toujours en vie!
 
 Shengong Hu et Zhan Konglei le croyaient également!
 
@@ -98,13 +98,13 @@ Mu Bingmei, qui était devenue la maîtresse de la Secte Divine grâce à une si
 
 Accablé par le chagrin, Situ Nan abandonna sa culture dans le Royaume Céleste de la Pluie pour se livrer silencieusement à la boisson. Il buvait avec excès et riait en levant les yeux vers le ciel. Pourtant, tout en riant, ses larmes coulaient inexorablement. Il but pendant trois jours, rit pendant trois jours et pleura pendant trois jours. Par la suite, il prit la décision de quitter le Royaume Céleste de la Pluie. Il allait retrouver son frère!
 
-Lorsqu'il partit, Zhou Ru était en larmes. À sa demande déterminée, elle partit avec Situ Nan… Big Head et Lei Ji partirent deux jours après lui. Ils allaient chercher leur maître… Le premier à quitter le Royaume Céleste de la Pluie ne fut pas Situ Nan, mais Treize. Lorsqu'il apprit la situation, il partit sans hésiter, emportant la statue de Wang Lin!
+Lorsqu'il partit, Zhou Ru était en larmes. À sa demande déterminée, elle partit avec Situ Nan… Da Tou et Lei Ji partirent deux jours après lui. Ils allaient chercher leur maître… Le premier à quitter le Royaume Céleste de la Pluie ne fut pas Situ Nan, mais Treize. Lorsqu'il apprit la situation, il partit sans hésiter, emportant la statue de Wang Lin!
 
 Beaucoup cherchaient le Seigneur du Royaume Scellé Wang Lin, mais malgré leurs efforts, ils ne purent trouver la moindre piste…
 
 « Où es-tu… » Situ Nan et Zhou Ru contemplaient l'immensité du système stellaire.
 
-« Où es-tu… » Dans le Système Stellaire d'Allheaven, Xi Zifeng, Xie Qing et les autres fixaient silencieusement le ciel étoilé.
+« Où es-tu… » Dans le Système Stellaire de Luotian, Xi Zifeng, Xie Qing et les autres fixaient silencieusement le ciel étoilé.
 
 Dans la Secte Divine, après avoir réglé quelques affaires triviales, la très épuisée Mu Bingmei but un bol de soupe médicinale. Elle regarda silencieusement le ciel depuis son pavillon et murmura pour elle-même: « Où es-tu… »
 

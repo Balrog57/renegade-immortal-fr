@@ -10,9 +10,9 @@ Après avoir quitté la planète Ran Yun, Wang Lin ne fit aucune escale. Tandis 
 
 Cette ultime affaire était une tâche que Wang Lin se devait d'accomplir!
 
-Il existait un lieu extrêmement désolé dans Allheaven, noyé dans un brouillard épais. Si l'on s'y aventurait au hasard, on risquait fort de s'y perdre et d'y rester piégé à jamais.
+Il existait un lieu extrêmement désolé dans Luotian, noyé dans un brouillard épais. Si l'on s'y aventurait au hasard, on risquait fort de s'y perdre et d'y rester piégé à jamais.
 
-C'était une terre interdite à Allheaven!
+C'était une terre interdite à Luotian!
 
 Les cultivateurs venaient rarement en ces lieux. Quiconque passait à proximité choisissait d'éviter cet endroit, n'osant même pas s'en approcher.
 
@@ -26,13 +26,13 @@ Après avoir quitté le Royaume Céleste du Tonnerre, il avait été envoyé ici
 
 Il avait également vu cette immense créature semblable à une baleine: la Bête du Néant!
 
-La dernière chose que Wang Lin devait accomplir à Allheaven était... chasser la Bête du Néant!
+La dernière chose que Wang Lin devait accomplir à Luotian était... chasser la Bête du Néant!
 
 La Bête du Néant était extrêmement vaste et puissante. Pourtant, elle était d'une timidité extrême et se cachait de tous ses ennemis. Son tempérament craintif ne correspondait absolument pas à l'immensité de son corps.
 
 Malgré cela, très peu de choses dans ce monde osaient la provoquer. Même si Maître Lu Fu savait qu'elle se trouvait là, il n'avait jamais eu l'audace d'envisager de chasser cette bête.
 
-Même Maître Lu Fu ne pouvait rien faire contre elle, ce qui témoignait de sa puissance phénoménale. Si son tempérament avait été violent, Allheaven aurait subi une calamité sans précédent.
+Même Maître Lu Fu ne pouvait rien faire contre elle, ce qui témoignait de sa puissance phénoménale. Si son tempérament avait été violent, Luotian aurait subi une calamité sans précédent.
 
 Même si le Serpent Regardant la Lune était plus grand qu'elle, il n'oserait pas non plus la provoquer!
 

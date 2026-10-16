@@ -92,6 +92,6 @@ Une multitude de cultivateurs suivaient cet Oiseau Vermillon, parmi lesquels se 
 
 Au même moment, une voix majestueuse retentit depuis la planète située au-dessus du vortex, au siège de l'Alliance de Culture:
 
-« Suspendez le combat avec Allheaven. Envoyez toutes les forces vers la grotte de Qing Lin! »
+« Suspendez le combat avec Luotian. Envoyez toutes les forces vers la grotte de Qing Lin! »
 
 Dès que cette voix résonna, le corps de Qing Shui apparut à l'extérieur du siège de l'Alliance. Il fixa le bâtiment tandis qu'un éclat rouge du Royaume Ji brillait dans son regard.

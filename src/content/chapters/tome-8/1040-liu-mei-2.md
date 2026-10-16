@@ -16,7 +16,7 @@ L'homme ouvrit soudainement les yeux, laissant apparaître deux regards enragés
 
 À cet instant, l'esprit de Wang Lin avait déjà quitté les lieux.
 
-Dans la région nord du système stellaire de l'Alliance, des dizaines de milliers de cultivateurs d'Allheaven combattaient l'Alliance. Maître Flamespark et ses compagnons faisaient partie de ceux-là.
+Dans la région nord du système stellaire de l'Alliance, des dizaines de milliers de cultivateurs de Luotian combattaient l'Alliance. Maître Yan Leizi et ses compagnons faisaient partie de ceux-là.
 
 L'Alliance comptait également de puissants cultivateurs. Les deux camps venaient à peine de commencer leur bataille, mais les pertes étaient déjà innombrables.
 
@@ -98,9 +98,9 @@ C'était comme un cercle qui se contractait rapidement. En un instant, il balaya
 
 Le vieil homme du Royaume du Vide Brillant qui avait remarqué Wang Lin fixa le ciel et commença à méditer.
 
-Les combats dans la région nord faisaient toujours rage. Au moment où l'esprit de Wang Lin se contracta, les expressions de Maître Flamespark et de ses compagnons changèrent profondément.
+Les combats dans la région nord faisaient toujours rage. Au moment où l'esprit de Wang Lin se contracta, les expressions de Maître Yan Leizi et de ses compagnons changèrent profondément.
 
-« Wang Lin!! » Maître Flamespark laissa échapper un cri d'incrédulité. C'était un spectacle rare de le voir ainsi. Non seulement lui, mais tous ceux qui connaissaient Wang Lin furent terrifiés par ce phénomène!
+« Wang Lin!! » Maître Yan Leizi laissa échapper un cri d'incrédulité. C'était un spectacle rare de le voir ainsi. Non seulement lui, mais tous ceux qui connaissaient Wang Lin furent terrifiés par ce phénomène!
 
 Au siège de l'Alliance de Culture, sur la planète flottante au-dessus du vortex: dans la pièce secrète, l'homme d'âge moyen ouvrit soudainement les yeux, le regard chargé de choc!
 

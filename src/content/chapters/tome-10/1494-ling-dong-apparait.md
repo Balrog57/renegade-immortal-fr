@@ -16,7 +16,7 @@ Le Maître Lu Fu, déjà furieux à cause du premier combat, éclata d'un rire d
 
 Cet élan était semblable à une tempête et secoua le domaine stellaire grâce à son essence du vent. À cet instant, neuf dragons de vent de cent mille pieds apparurent et rugirent!
 
-Leurs rugissements faisaient trembler les cieux, comme si une tempête d'une puissance extrême balayait tout Allheaven!
+Leurs rugissements faisaient trembler les cieux, comme si une tempête d'une puissance extrême balayait tout Luotian!
 
 Le vent hurlait à travers le monde!
 
@@ -38,7 +38,7 @@ Cependant, ce Royaume Céleste du Vent était totalement différent de celui que
 
 On pouvait clairement voir la porte de pierre géante au centre du Royaume Céleste. D'innombrables êtres célestes étaient agenouillés sous cette porte, comme s'ils lui rendaient un culte!
 
-Des vagues d'énergie spirituelle céleste se propagèrent et enveloppèrent bientôt tout Allheaven!
+Des vagues d'énergie spirituelle céleste se propagèrent et enveloppèrent bientôt tout Luotian!
 
 Une mélodie céleste retentit également, procurant une sensation immédiate de rafraîchissement à quiconque l'entendait. De nombreuses bêtes célestes y évoluaient!
 
@@ -64,7 +64,7 @@ Tout cela se produisit en un instant. L'épée brisée chargea tandis que le roy
 
 Sa main droite forma un sceau et il pointa la formation planétaire située en dessous de lui. Les centaines de planètes commencèrent à bouger et les auras des âmes planétaires se propagèrent!
 
-À mesure que la formation s'animait, l'aura des âmes des planètes devenait plus intense, faisant trembler le Système Stellaire d'Allheaven. En grandissant, même les trois autres systèmes stellaires pouvaient ressentir la puissance de cette formation!
+À mesure que la formation s'animait, l'aura des âmes des planètes devenait plus intense, faisant trembler le Système Stellaire de Luotian. En grandissant, même les trois autres systèmes stellaires pouvaient ressentir la puissance de cette formation!
 
 « Ce vieil homme a préparé cette formation pour les ennemis du Royaume Extérieur. Puisque tu veux te battre, je veux voir comment tu lutteras au sein de cette formation planétaire! » La robe du Maître Lu Fu flotta au vent et l'aura des âmes planétaires se renforça encore. Un vortex apparut, emplissant la zone environnante d'une pression terrifiante.
 
@@ -80,7 +80,7 @@ La formation planétaire pivota et les centaines d'âmes planétaires se mirent 
 
 L'expression de Wang Lin restait sereine. Alors que le Maître Lu Fu se rapprochait, les sept étoiles divines entre ses sourcils commencèrent à tourner. La puissance d'un Dieu Antique à 7 étoiles capable de rivaliser avec un cultivateur de la troisième étape éclata soudainement!
 
-C'était la première fois que Wang Lin révélait pleinement sa puissance de Dieu Antique à 7 étoiles dans tout Allheaven!
+C'était la première fois que Wang Lin révélait pleinement sa puissance de Dieu Antique à 7 étoiles dans tout Luotian!
 
 Les pupilles du Maître Lu Fu se contractèrent, mais il n'avait aucune intention de reculer. En un clin d'œil, il se retrouva à moins de cinq cents pieds de Wang Lin! Le regard de ce dernier restait calme, et cette sérénité suffisait à terrifier autrui et empêchait le Maître Lu Fu de déceler la moindre faille!
 
@@ -106,7 +106,7 @@ Ce qui le terrifiait par-dessus tout, c'étaient les Flammes Joss infinies qui �
 
 « Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape?! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Si un tel être existait, il n'y avait même plus besoin de parler des autres.
 
-Le Maître Flamespark fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de culture ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave!
+Le Maître Yan Leizi fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de culture ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave!
 
 Esclave Antique, Esclave Antique!
 
@@ -116,12 +116,12 @@ Il était tout à fait normal pour un cultivateur d'avoir un esclave, mais cet e
 
 Même dans le Royaume Extérieur, une telle nouvelle provoquerait une onde de choc monumentale, et plus encore dans le Royaume Intérieur, où l'on ne voyait qu'exceptionnellement un cultivateur de la troisième étape tous les dizaines de milliers d'années!
 
-Même si on avait dit au Maître Flamespark qu'Allheaven s'effondrerait, il n'en serait pas moins bouleversé!
+Même si on avait dit au Maître Yan Leizi qu'Luotian s'effondrerait, il n'en serait pas moins bouleversé!
 
-L'apparition de l'Estimé Ling Dong, cette force mystérieuse, cette pression qui faisait trembler l'espace, cette aura qui terrifiait les cultivateurs, cette puissance plus grande encore que celle de l'ancêtre d'Allheaven, et l'expression du Maître Lu Fu révélaient tout!
+L'apparition de l'Estimé Ling Dong, cette force mystérieuse, cette pression qui faisait trembler l'espace, cette aura qui terrifiait les cultivateurs, cette puissance plus grande encore que celle de l'ancêtre de Luotian, et l'expression du Maître Lu Fu révélaient tout!
 
 Cet homme était un cultivateur de la troisième étape!
 
-L'esprit du Maître Flamespark vacilla et devint vide. Ses yeux devinrent vitreux.
+L'esprit du Maître Yan Leizi vacilla et devint vide. Ses yeux devinrent vitreux.
 
-« Il... Quelle fortune a-t-il donc rencontrée... Non seulement il peut affronter un cultivateur de la troisième étape, mais il possède carrément un esclave de la troisième étape... La troisième étape... La troisième étape!!! Je n'ai rencontré que le Maître Lu Fu en des dizaines de milliers d'années. C'est... je ne peux pas y croire... Je ne peux pas le croire!!! » L'esprit du Maître Flamespark était plongé dans la confusion. Il ne pouvait concevoir ce qu'il voyait: un cultivateur de la troisième étape était l'esclave de Wang Lin!
+« Il... Quelle fortune a-t-il donc rencontrée... Non seulement il peut affronter un cultivateur de la troisième étape, mais il possède carrément un esclave de la troisième étape... La troisième étape... La troisième étape!!! Je n'ai rencontré que le Maître Lu Fu en des dizaines de milliers d'années. C'est... je ne peux pas y croire... Je ne peux pas le croire!!! » L'esprit du Maître Yan Leizi était plongé dans la confusion. Il ne pouvait concevoir ce qu'il voyait: un cultivateur de la troisième étape était l'esclave de Wang Lin!

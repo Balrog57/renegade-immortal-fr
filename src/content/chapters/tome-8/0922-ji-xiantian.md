@@ -24,7 +24,7 @@ L'ancêtre de la famille Shengong était resté silencieux jusqu'alors, quand il
 
 Wang Lin réfléchit en silence. Un instant plus tard, sans hésiter, il toucha l'espace entre ses sourcils et le Dao de Shengong Hu s'envola. L'ancêtre de la famille Shengong s'en saisit, l'examina un instant, puis le rangea. Il ne prêta plus aucune attention à Wang Lin et reporta son regard vers l'avant.
 
-Le Serpent aux yeux de lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses filets hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs d'Allheaven s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
+Le Serpent aux yeux de lune ouvrait la voie à une vitesse fulgurante. Ses innombrables tentacules se déployaient pour envelopper tout cultivateur de l'Alliance qu'il croisait sur son passage. Les victimes prises dans ses filets hurlaient tandis que leurs corps dépérissaient jusqu'à devenir des momies. Les cultivateurs de Luotian s'approchaient alors de ces cadavres desséchés pour leur ravir leurs sacs de rangement et leurs trésors.
 
 L'arbre géant suivait de près le Serpent aux yeux de lune en direction de la région nord!
 
@@ -32,13 +32,13 @@ Le Serpent aux yeux de lune et l'arbre géant étaient d'une rapidité extrême,
 
 À cet instant, une guerre titanesque éclata dans la région nord!
 
-À l'origine, les cultivateurs de l'Alliance, menés par l'un des quatre saints, le Saint Démon du Noir, détenaient un avantage considérable. La destruction de la région ouest avait décimé un grand nombre de cultivateurs d'Allheaven et avait coupé leur retraite. L'armée d'Allheaven qui chargeait dans la région nord se trouvait donc sans aucun soutien.
+À l'origine, les cultivateurs de l'Alliance, menés par l'un des quatre saints, le Saint Démon du Noir, détenaient un avantage considérable. La destruction de la région ouest avait décimé un grand nombre de cultivateurs de Luotian et avait coupé leur retraite. L'armée de Luotian qui chargeait dans la région nord se trouvait donc sans aucun soutien.
 
 Par conséquent, l'Alliance possédait les meilleures chances de victoire lors de cette première grande bataille entre les deux systèmes stellaires.
 
-Cependant, la contre-attaque de Maître Flammespark et l'intervention des 18 Lou Fu inversèrent immédiatement la situation dans la région nord. Les cultivateurs de l'Alliance furent réprimés par les 18 Lou Fu. Mais ce n'était pas là le plus grand problème; le véritable tournant fut que l'isolement des cultivateurs d'Allheaven fut brisé par l'arbre géant!
+Cependant, la contre-attaque de Maître Flammespark et l'intervention des 18 Lou Fu inversèrent immédiatement la situation dans la région nord. Les cultivateurs de l'Alliance furent réprimés par les 18 Lou Fu. Mais ce n'était pas là le plus grand problème; le véritable tournant fut que l'isolement des cultivateurs de Luotian fut brisé par l'arbre géant!
 
-Désormais, les cultivateurs d'Allheaven n'étaient plus isolés. Il leur suffisait de tenir jusqu'à l'arrivée des renforts pour que le camp d'Allheaven reprenne un avantage absolu!
+Désormais, les cultivateurs de Luotian n'étaient plus isolés. Il leur suffisait de tenir jusqu'à l'arrivée des renforts pour que le camp de Luotian reprenne un avantage absolu!
 
 L'expression du Saint Démon du Noir était sombre. Comment pouvait-il laisser Maître Flammespark agir à sa guise? Pourtant, le Dieu de Sang était un être doté d'un niveau de culture extrêmement élevé. Tandis qu'ils se affrontaient, les collisions de leurs sorts étaient cataclysmiques et leurs grondements résonnaient à travers les étoiles.
 
@@ -70,23 +70,23 @@ La région nord entière trembla et une intention meurtrière traversa les yeux 
 
 Cette voix était trop aiguë, presque stridente, et portait en elle des fluctuations d'énergie d'origine inimaginables.
 
-Alors que ce cri résonnait, tous les cultivateurs d'Allheaven furent saisis de tremblements. Certains crachèrent du sang tandis que leur énergie d'origine s'échappait de leurs corps, entraînant leur mort immédiate!
+Alors que ce cri résonnait, tous les cultivateurs de Luotian furent saisis de tremblements. Certains crachèrent du sang tandis que leur énergie d'origine s'échappait de leurs corps, entraînant leur mort immédiate!
 
 Même l'un des 18 Lou Fu s'effondra soudainement sous la violence de ce cri!
 
 Une quantité infinie d'énergie d'origine provenant du monde afflua des cultivateurs et du Lou Fu déchus pour pénétrer dans la silhouette féminine.
 
-« Ji Xiantian, je ne t'ai pas vue depuis de nombreuses années. Tu es toujours aussi efféminée! » Les yeux de Maître Flammespark restèrent calmes alors qu'il agitait sa main droite. Des flammes infinies enveloppèrent immédiatement la zone et, en se propageant, repoussèrent tous les cultivateurs d'Allheaven à plus de 5 000 kilomètres.
+« Ji Xiantian, je ne t'ai pas vue depuis de nombreuses années. Tu es toujours aussi efféminée! » Les yeux de Maître Flammespark restèrent calmes alors qu'il agitait sa main droite. Des flammes infinies enveloppèrent immédiatement la zone et, en se propageant, repoussèrent tous les cultivateurs de Luotian à plus de 5 000 kilomètres.
 
-Bien que la distance fût de 5 000 kilomètres, elle restait dans le rayon d'action des Lou Fu. C'est ainsi que la grande guerre commença véritablement. Une multitude de cultivateurs de l'Alliance et d'Allheaven s'engagèrent dans des combats à mort.
+Bien que la distance fût de 5 000 kilomètres, elle restait dans le rayon d'action des Lou Fu. C'est ainsi que la grande guerre commença véritablement. Une multitude de cultivateurs de l'Alliance et de Luotian s'engagèrent dans des combats à mort.
 
-C'était une bataille chaotique; la moindre imprudence pouvait provoquer l'effondrement du corps et l'extinction de l'âme d'origine! À l'origine, les cultivateurs d'Allheaven n'étaient pas de taille face à ceux de l'Alliance; l'un se remettait du choc tandis que l'autre était préparé. Cependant, sous l'influence des Lou Fu, la situation s'équilibra instantanément.
+C'était une bataille chaotique; la moindre imprudence pouvait provoquer l'effondrement du corps et l'extinction de l'âme d'origine! À l'origine, les cultivateurs de Luotian n'étaient pas de taille face à ceux de l'Alliance; l'un se remettait du choc tandis que l'autre était préparé. Cependant, sous l'influence des Lou Fu, la situation s'équilibra instantanément.
 
 Il devint alors difficile de prédire le vainqueur. Toutefois, à petite échelle, l'Alliance conservait l'avantage!
 
 Des éclats de trésors magiques emplirent l'espace. Dans ce tumulte, les deux camps subirent des pertes. Au loin, un cultivateur de l'Alliance cracha du sang et tenta de battre en retraite. Mais avant même d'avoir parcouru cent pieds, sa poitrine fut transpercée par une épée volante lancée au hasard. Son âme d'origine s'échappa alors, mais fut immédiatement frappée par les ondes d'un sort, provoquant son effondrement définitif.
 
-Les yeux de trois cultivateurs d'Allheaven devinrent rouges alors qu'ils poussaient leur culture à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
+Les yeux de trois cultivateurs de Luotian devinrent rouges alors qu'ils poussaient leur culture à son paroxysme pour contrôler leurs trésors magiques. Au moment où ils déclenchèrent un sort, un rayon de lumière les traversa, et ils moururent l'un après l'autre.
 
 Le rayon de lumière se mua en une silhouette humaine au visage sombre. Alors qu'il s'apprêtait à poursuivre son action après s'être léché les lèvres, une lueur sanglante jaillit. Il poussa un cri et tout son corps se changea en sang. C'était le Dieu de Sang et le Saint Démon du Noir qui passaient par là au milieu de leur propre combat.
 

@@ -30,11 +30,11 @@ Même sans la présence d'un cultivateur du troisième pas, s'infiltrer dans le 
 
 Wang Lin se tenait calmement devant le domaine stellaire du Clan du Tonnerre Éparpillé. Devant lui, le tonnerre fulminait et rugissait. C'était comme un océan de foudre où les éclairs dansaient tels des serpents d'argent!
 
-D'un seul regard, ce spectacle pouvait ébranler le cœur de la plupart des cultivateurs et leur interdire de faire le moindre pas en avant! Cet endroit était plusieurs fois plus puissant que le lac de tonnerre que Wang Lin avait rencontré à Allheaven.
+D'un seul regard, ce spectacle pouvait ébranler le cœur de la plupart des cultivateurs et leur interdire de faire le moindre pas en avant! Cet endroit était plusieurs fois plus puissant que le lac de tonnerre que Wang Lin avait rencontré à Luotian.
 
 Avant même de s'en approcher, il sentait distinctement chaque poil de son corps être attiré par une force magnétique. Même l'espace entourant ce lac de tonnerre était saturé de puissance électrique, capable d'exploser par intermittence en rafales tonitruantes.
 
-À l'époque où Wang Lin se trouvait à Allheaven, même après avoir dévoré la moitié d'un ancien dragon du tonnerre et obtenu l'âme originelle du dragon du tonnerre, l'entrée aurait été extrêmement difficile. Il aurait probablement dû battre en retraite, sans quoi le tonnerre l'aurait tué avant même que le Clan du Tonnerre Éparpillé n'ait à intervenir.
+À l'époque où Wang Lin se trouvait à Luotian, même après avoir dévoré la moitié d'un ancien dragon du tonnerre et obtenu l'âme originelle du dragon du tonnerre, l'entrée aurait été extrêmement difficile. Il aurait probablement dû battre en retraite, sans quoi le tonnerre l'aurait tué avant même que le Clan du Tonnerre Éparpillé n'ait à intervenir.
 
 Cependant, après avoir absorbé la puissance du tonnerre de la statue du clan, du fruit Dao, puis avoir engendré sa propre essence de tonnerre, le contrôle de Wang Lin sur l'électricité avait atteint un degré terrifiant. Il observa silencieusement devant lui et, après un long moment, il pénétra dans le domaine stellaire du Clan du Tonnerre Éparpillé!
 

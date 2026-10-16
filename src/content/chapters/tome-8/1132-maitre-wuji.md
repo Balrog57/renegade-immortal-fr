@@ -14,7 +14,7 @@ Par le passé, sur la planète Suzaku, Wang Lin avait rencontré une personne po
 
 Alors que les grondements du dragon de sang résonnaient, la puissance temporelle émanant de son corps décupla. Elle était bien plus puissante qu'un simple domaine; elle était devenue une loi! Cette loi avait été instaurée par le dragon de sang qui utilisait ce sortilège!
 
-La loi du temps enveloppa l'intégralité du vide. Un groupe d'une douzaine de cultivateurs Allheaven s'y trouvait; tant qu'ils ne croisaient pas de cultivateurs anciens trop puissants, ils pouvaient tenir bon. Cependant, lorsque cette puissance temporelle les traversa, le plus faible d'entre eux trembla. Il avait l'apparence d'un homme dans la vingtaine, bien que ce ne fût pas son âge réel.
+La loi du temps enveloppa l'intégralité du vide. Un groupe d'une douzaine de cultivateurs Luotian s'y trouvait; tant qu'ils ne croisaient pas de cultivateurs anciens trop puissants, ils pouvaient tenir bon. Cependant, lorsque cette puissance temporelle les traversa, le plus faible d'entre eux trembla. Il avait l'apparence d'un homme dans la vingtaine, bien que ce ne fût pas son âge réel.
 
 Son corps se mit à trembler de manière incontrôlable, comme si une énergie glaciale s'était infiltrée en lui. Des rides apparurent sur sa peau, se superposant rapidement les unes aux autres. Il ressentit une fatigue extrême et sa culture sembla stagner.
 
@@ -42,11 +42,11 @@ Chaque fois qu'un cultivateur succombait à la loi du temps, une aura invisible 
 
 Les huit rois de la Secte des Cadavres n'étaient nullement affectés par cette loi du temps. Ils progressaient, de plus en plus près, vers le dragon de sang!
 
-Dans la direction opposée, Maître Flamespark suivait respectueusement le vieil homme en noir. Bien que ce dernier ne semblât pas se déplacer rapidement, chaque pas qu'il faisait donnait l'impression que le vide se contractait sous lui. C'était comme si cette distance infinie n'était plus qu'un pouce de long...
+Dans la direction opposée, Maître Yan Leizi suivait respectueusement le vieil homme en noir. Bien que ce dernier ne semblât pas se déplacer rapidement, chaque pas qu'il faisait donnait l'impression que le vide se contractait sous lui. C'était comme si cette distance infinie n'était plus qu'un pouce de long...
 
 Il ne s'agissait pas d'une Déviation Spatiale où il fusionnait avec le monde, mais plutôt d'une réduction du vide! Il n'avait nul besoin de fusionner avec le monde, car il *était* le monde; même un royaume entier n'était pour lui qu'un pouce de distance!
 
-Il ne se précipitait pas, avançant pas à pas selon un certain rythme. Le respect dans les yeux de Maître Flamespark s'intensifiait. En suivant le vieil homme, il se trouvait naturellement dans le rayon d'action de ce sortilège mystérieux.
+Il ne se précipitait pas, avançant pas à pas selon un certain rythme. Le respect dans les yeux de Maître Yan Leizi s'intensifiait. En suivant le vieil homme, il se trouvait naturellement dans le rayon d'action de ce sortilège mystérieux.
 
 Au moment où la puissance de la loi enveloppa le vide, Wang Lin la ressentit également. Cependant, son corps était fait de roche, et l'âge de cette roche était impossible à calculer. Cette loi l'entoura, mais peu importait le temps qui passait sans que le vent ne souffle, la roche restait la roche...
 
@@ -62,9 +62,9 @@ Les dragons de sang avaient absorbé l'aura d'innombrables cultivateurs morts so
 
 Une voix émana du vide et se propagea lentement à travers l'espace.
 
-« Wu, attends que je vienne! » Dès que cette voix prononça ces mots, le vieil homme au loin s'arrêta et son regard devint grave. Maître Flamespark resta silencieux. C'était la deuxième fois qu'il entendait cette voix, mais cette fois, l'arrogance monstrueuse était encore plus palpable.
+« Wu, attends que je vienne! » Dès que cette voix prononça ces mots, le vieil homme au loin s'arrêta et son regard devint grave. Maître Yan Leizi resta silencieux. C'était la deuxième fois qu'il entendait cette voix, mais cette fois, l'arrogance monstrueuse était encore plus palpable.
 
-Cette arrogance méprisait la loi et dédaignait les cieux. Pourtant, Maître Flamespark ne trouva pas ces paroles insolentes... La puissance de la lance manifestée hors de la planète Suzaku prouvait que cet individu était plus que qualifié pour une telle arrogance!
+Cette arrogance méprisait la loi et dédaignait les cieux. Pourtant, Maître Yan Leizi ne trouva pas ces paroles insolentes... La puissance de la lance manifestée hors de la planète Suzaku prouvait que cet individu était plus que qualifié pour une telle arrogance!
 
 Les huit rois de la Secte des Cadavres s'arrêtèrent tous, fixant le vortex au loin tout en réfléchissant silencieusement. Cependant, bientôt, des lueurs fantomatiques et divers degrés d'avidité apparurent dans leurs yeux.
 

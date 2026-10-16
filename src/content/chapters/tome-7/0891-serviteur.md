@@ -70,25 +70,25 @@ Du début à la fin, Wang Lin demeura serein. Il esquiva le sang et sa main fend
 
 Le corps de ce dernier trembla violemment sous l'impact tandis qu'il était projeté au loin, des craquements sinistres résonnant dans ses os. Le sort de Liaison ne s'était pas encore dissipé quand Wang Lin fit un pas pour le poursuivre.
 
-Cependant, à cet instant précis, son expression changea: des rayons d'énergie d'épée descendirent du ciel. C'étaient les cultivateurs d'Allheaven qui, ayant pressenti une anomalie, avaient percé l'atmosphère pour descendre avec une puissance colossale.
+Cependant, à cet instant précis, son expression changea: des rayons d'énergie d'épée descendirent du ciel. C'étaient les cultivateurs de Luotian qui, ayant pressenti une anomalie, avaient percé l'atmosphère pour descendre avec une puissance colossale.
 
 Leur apparition exerça une pression immédiate et écrasante sur la planète Suzaku. Les habitants de la planète n'avaient jamais vu autant de cultivateurs aussi puissants; tous furent frappés de stupeur.
 
-En descendant, les cultivateurs d'Allheaven aperçurent immédiatement Wang Lin et le garçon à la grosse tête. En voyant Wang Lin, leurs visages se décomposèrent.
+En descendant, les cultivateurs de Luotian aperçurent immédiatement Wang Lin et le garçon à la grosse tête. En voyant Wang Lin, leurs visages se décomposèrent.
 
 Wang Lin ne s'arrêta pas. Tout en poursuivant sa course, il frappa son sac de contenance, libérant le Drapeau du Tigre Céleste qui témoignait de son statut de Céleste du Tonnerre.
 
-Dès l'apparition du drapeau, un rugissement de tigre féroce retentit. Une brume violette enveloppa la bannière qui se mua en un tigre impétueux, rugissant directement vers les cultivateurs d'Allheaven suspendus dans le ciel.
+Dès l'apparition du drapeau, un rugissement de tigre féroce retentit. Une brume violette enveloppa la bannière qui se mua en un tigre impétueux, rugissant directement vers les cultivateurs de Luotian suspendus dans le ciel.
 
 « Je mène un duel. Tous, attendez à l'extérieur. Quiconque osera désobéir sera tué! » Wang Lin ne daigna même pas regarder en arrière tandis que ses doigts se posaient une nouvelle fois entre les sourcils du garçon. De nouveaux craquements déchirèrent le corps de ce dernier avant qu'il ne soit impitoyablement broyé contre le sol.
 
 Un immense cratère se forma dans un fracas assourdissant, faisant trembler la terre environnante.
 
-Les plus perspicaces parmi les centaines de cultivateurs d'Allheaven battirent en retraite immédiatement, maudissant intérieurement leur curiosité. S'ils l'avaient su, ils ne seraient jamais venus. Un combat entre deux détenteurs de titres célestes n'était pas un affrontement à leur portée.
+Les plus perspicaces parmi les centaines de cultivateurs de Luotian battirent en retraite immédiatement, maudissant intérieurement leur curiosité. S'ils l'avaient su, ils ne seraient jamais venus. Un combat entre deux détenteurs de titres célestes n'était pas un affrontement à leur portée.
 
-Menés par quelques individus, tous les cultivateurs d'Allheaven suivirent le mouvement et se retirèrent, quittant la planète Suzaku sans oser interférer.
+Menés par quelques individus, tous les cultivateurs de Luotian suivirent le mouvement et se retirèrent, quittant la planète Suzaku sans oser interférer.
 
-Ce revirement soudain fit comprendre à tous les cultivateurs de la planète Suzaku que l'ancêtre de leur monde, Wang Lin, jouissait d'un rang extrêmement élevé parmi les puissants d'Allheaven!
+Ce revirement soudain fit comprendre à tous les cultivateurs de la planète Suzaku que l'ancêtre de leur monde, Wang Lin, jouissait d'un rang extrêmement élevé parmi les puissants de Luotian!
 
 Wang Lin atterrit au fond du cratère et fixa le garçon à la grosse tête. Le sort de Liaison venait de prendre fin; le visage du garçon était livide, couvert de sang, ses yeux pétris de terreur alors qu'il contemplait Wang Lin.
 

@@ -62,13 +62,13 @@ Dès l'apparition de cette lueur, une aura qui n'appartenait pas à ce monde se 
 
 Au même moment, dans la région occidentale lointaine de l'Alliance, un vieil homme était assis sur la prairie d'une planète de culture très commune. Vêtu de noir, il était d'un calme imperturbable, comme si rien au monde ne pouvait troubler sa sérénité.
 
-Si Wang Lin avait été là, il aurait immédiatement reconnu ce vieil homme comme celui qui avait stoppé le combat entre Qing Shui et l'ancêtre de la famille Yao à Allheaven!
+Si Wang Lin avait été là, il aurait immédiatement reconnu ce vieil homme comme celui qui avait stoppé le combat entre Qing Shui et l'ancêtre de la famille Yao à Luotian!
 
 Ses yeux étaient sereins tandis qu'il contemplait l'herbe verte à ses côtés. Sous son regard, l'herbe commença à croître de manière étrange: elle passait du stade de bourgeon à celui d'herbe desséchée en un clin d'œil, pour redevenir aussitôt un bourgeon. Ce cycle se répétait sans fin.
 
 Il leva sa main droite pour cueillir une pousse, mais sa main trembla soudainement. Ses yeux furent remplis d'incrédulité.
 
-Si Master Flamespark avait vu l'expression du vieil homme, il aurait été profondément choqué. Cet homme qu'il respectait tant était toujours resté calme et n'avait jamais montré une telle expression!
+Si Maître Yan Leizi avait vu l'expression du vieil homme, il aurait été profondément choqué. Cet homme qu'il respectait tant était toujours resté calme et n'avait jamais montré une telle expression!
 
 Le vieil homme agita ses manches et son corps devint transparent avant de disparaître. Nul ne connaissait son niveau de culture ou le sortilège utilisé, mais lorsqu'il réapparut, il se trouvait précisément là où Wang Lin avait subi la rétribution divine!
 
@@ -96,11 +96,11 @@ Le Sens Divin de Wang Lin se projeta sans hésiter vers la tête de l'âme origi
 
 Quinze minutes plus tard, Wang Lin retira son Sens Divin et sourit.
 
-« La structure de ce Système d'Étoiles de la Mer Nuageuse est radicalement différente de celle de l'Alliance et d'Allheaven, elle me convient parfaitement... De plus, ce Royaume Céleste du Vent est en fait rempli de bêtes moustiques... Je ne pensais pas que la barrière entourant la Mer Nuageuse serait la plus faible des quatre systèmes stellaires. Il suffira d'une formation spéciale pour la briser. » Les yeux de Wang Lin brillèrent alors qu'il regardait l'âme originelle dans sa main, avant de la ranger soigneusement dans son espace de stockage.
+« La structure de ce Système d'Étoiles de la Mer Nuageuse est radicalement différente de celle de l'Alliance et de Luotian, elle me convient parfaitement... De plus, ce Royaume Céleste du Vent est en fait rempli de bêtes moustiques... Je ne pensais pas que la barrière entourant la Mer Nuageuse serait la plus faible des quatre systèmes stellaires. Il suffira d'une formation spéciale pour la briser. » Les yeux de Wang Lin brillèrent alors qu'il regardait l'âme originelle dans sa main, avant de la ranger soigneusement dans son espace de stockage.
 
 « Je peux utiliser cette âme originelle comme guide en employant le sortilège du Frère Aîné Qing Shui. Maintenant, il ne me manque que la formation. Heureusement, les matériaux nécessaires pour celle-ci ne sont pas trop difficiles à trouver. Il me suffit de comprendre pleinement la structure pour pouvoir en créer une. Si tout ce que j'ai préparé pour Tuo Sen s'avère insuffisant, alors le Système d'Étoiles de la Mer Nuageuse sera mon ultime recours! »
 
-Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda la Secte Divin de l'Oiseau Vermillon et murmura: « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Allheaven, la Secte des Cadavres et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en pleine tempête... »
+Wang Lin réfléchit un instant avant de se lever et de prendre une profonde inspiration. Il regarda la Secte Divin de l'Oiseau Vermillon et murmura: « Très bien, il ne me reste plus qu'à attendre que le vieux Empereur Divin revienne avec le Cristal du Royaume Céleste de la Pluie... Luotian, la Secte des Cadavres et les forces de l'Alliance ont tous supposé que j'avais envoyé les jades pour pouvoir pêcher en pleine tempête... »
 
 « En vérité, vous n'avez deviné que la moitié. Mon autre objectif est de vous conduire tous vers la Terre du Dieu Antique, afin qu'aucun d'entre vous ne puisse saboter le plan des Quatre Sectes Divins visant à sauver l'Empereur Divin du Dragon Azure dans le Royaume Céleste de la Pluie! »
 

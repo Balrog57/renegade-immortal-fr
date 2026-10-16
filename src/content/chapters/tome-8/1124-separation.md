@@ -88,7 +88,7 @@ L'ancien de la Secte du Dragon Azure lança d'une voix grave en poursuivant Wang
 
 Wang Lin l'ignora. En pénétrant dans le champ d'étoiles ardent, il projeta son Sens Divin avec l'aide des flammes. Il utilisa la courbure spatiale pour se déplacer rapidement et balayer l'ensemble de la zone.
 
-Cependant, il ne trouva aucune trace de Big Head ou de ses compagnons. L'expression de Wang Lin s'assombrit instantanément. Il se retourna et fixa froidement les sept anciens qui le traquaient.
+Cependant, il ne trouva aucune trace de Da Tou ou de ses compagnons. L'expression de Wang Lin s'assombrit instantanément. Il se retourna et fixa froidement les sept anciens qui le traquaient.
 
 « Où sont-ils?! » Wang Lin les fixa intensément avant de se calmer de force. Il savait que la colère ne résoudrait rien; il devait rester lucide.
 

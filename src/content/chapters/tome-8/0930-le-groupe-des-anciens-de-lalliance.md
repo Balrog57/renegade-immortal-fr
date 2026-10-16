@@ -14,13 +14,13 @@ Parmi les deux cadavres argentés, le mâle était trop gravement endommagé, Wa
 
 « Puisque je participe à une guerre, personne ne pourra rien récriminer si je m'empare d'un trésor, surtout quand le champ de bataille est aussi chaotique. » Les yeux de Wang Lin s'illuminèrent alors qu'il profitait du tumulte provoqué par l'explosion du doigt du Dieu Antique pour foncer vers le cadavre féminin.
 
-Cependant, Wang Lin n'était pas le seul à vouloir pêcher en eaux troubles. Plusieurs autres personnes manifestaient un intérêt pour ce corps. Parmi eux figuraient des cultivateurs d'Allheaven et de l'Alliance.
+Cependant, Wang Lin n'était pas le seul à vouloir pêcher en eaux troubles. Plusieurs autres personnes manifestaient un intérêt pour ce corps. Parmi eux figuraient des cultivateurs de Luotian et de l'Alliance.
 
 Sept individus s'élancèrent vers le cadavre depuis des directions différentes. Wang Lin n'était pas le plus proche, mais il fut le plus rapide.
 
 Tandis qu'il chargeait, une froideur fusa dans son regard. Il ne lui faudrait que quelques respirations pour atteindre sa proie, mais ses yeux brillèrent et il ralentit calmement.
 
-Au moment où il diminua sa vitesse, un cultivateur d'Allheaven s'élança, se rapprocha du cadavre et tendit la main. Simultanément, un cultivateur de l'Alliance surgit également, mais sans tenter de saisir le corps; au lieu de cela, il ouvrit la bouche et cracha un rayon d'énergie d'épée directement sur le cultivateur d'Allheaven.
+Au moment où il diminua sa vitesse, un cultivateur de Luotian s'élança, se rapprocha du cadavre et tendit la main. Simultanément, un cultivateur de l'Alliance surgit également, mais sans tenter de saisir le corps; au lieu de cela, il ouvrit la bouche et cracha un rayon d'énergie d'épée directement sur le cultivateur de Luotian.
 
 Les deux engagèrent un combat au corps à corps. Cela peut paraître complexe, mais tout se déroula avec une rapidité fulgurante. Tandis qu'ils s'affrontaient, un autre cultivateur profita de la mêlée pour s'approcher. Il saisit le bras de la femme et s'apprêta à prendre la fuite.
 
@@ -28,9 +28,9 @@ Pourtant, à cet instant précis, ce cultivateur se retourna soudainement, le re
 
 Ce changement terrifiant stupéfia les deux combattants. Ils jetèrent un regard au cadavre féminin et n'osèrent plus l'approcher. Après une hésitation, trois personnes, dont Wang Lin, accélérèrent la cadence pour passer devant les autres.
 
-Les yeux de Wang Lin s'illuminèrent et le fourneau du Dieu Antique apparut autour de lui. En un instant, il échangea sa place avec l'un des cultivateurs d'Allheaven qui avait pris la tête de la course.
+Les yeux de Wang Lin s'illuminèrent et le fourneau du Dieu Antique apparut autour de lui. En un instant, il échangea sa place avec l'un des cultivateurs de Luotian qui avait pris la tête de la course.
 
-Le cultivateur d'Allheaven fut pris de saisissement lorsqu'il sentit une force puissante l'aspirer. Lorsqu'il retrouva la vue, il réalisa qu'il avait échangé sa position avec Wang Lin. Connaissant l'identité de ce dernier, il laissa échapper un sourire amer et renonça à ce trésor pour se précipiter vers le suivant.
+Le cultivateur de Luotian fut pris de saisissement lorsqu'il sentit une force puissante l'aspirer. Lorsqu'il retrouva la vue, il réalisa qu'il avait échangé sa position avec Wang Lin. Connaissant l'identité de ce dernier, il laissa échapper un sourire amer et renonça à ce trésor pour se précipiter vers le suivant.
 
 Après avoir utilisé son sort, Wang Lin atteignit le cadavre féminin. Les deux cultivateurs les plus proches virent que tout le monde convergeait vers la proie; ils serrèrent les dents et saisirent le corps presque au même instant.
 

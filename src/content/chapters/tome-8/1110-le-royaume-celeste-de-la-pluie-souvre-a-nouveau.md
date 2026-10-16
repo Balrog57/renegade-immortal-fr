@@ -34,7 +34,7 @@ Le corps de Ta Shan trembla alors qu'il levait les yeux vers Wang Lin. Après un
 
 « Tu fabriques des talismans depuis ton arrivée. Si tu n'avais pas déjà un plan, tu ne ferais pas cela. » C'était la première fois que Wang Lin rencontrait Ta Shan depuis quelques années. Wang Lin éprouvait lui aussi des sentiments complexes à l'idée de retrouver son ancien garde céleste.
 
-Ta Shan hocha la tête et murmura: « Je veux revoir les membres de mon clan à Allheaven. Maître, en plus des talismans que j'ai faits pour moi-même, j'en ai aussi fait trois pour vous. Ils sont de type Vitesse, Effondrement et Sceau! » Tout en parlant, il sortit trois peaux de bêtes et les tendit respectueusement à Wang Lin.
+Ta Shan hocha la tête et murmura: « Je veux revoir les membres de mon clan à Luotian. Maître, en plus des talismans que j'ai faits pour moi-même, j'en ai aussi fait trois pour vous. Ils sont de type Vitesse, Effondrement et Sceau! » Tout en parlant, il sortit trois peaux de bêtes et les tendit respectueusement à Wang Lin.
 
 Ces trois talismans avaient été confectionnés avec des peaux extrêmement rares. L'effort investi dans leur création était bien supérieur à la normale.
 
@@ -120,7 +120,7 @@ En un instant, le cristal brilla d'un éclat fulgurant, et une quantité inimagi
 
 Un grondement tonnerre retentit alors que la porte du Royaume Céleste de la Pluie apparaissait lentement au-dessus de la planète de la Secte Divin de l'Oiseau Vermillon! À cet instant, tous les cultivateurs ayant atteint un certain niveau de culture ressentirent cette fluctuation. Les plus expérimentés comprirent immédiatement: le Royaume Céleste de la Pluie venait de s'ouvrir!
 
-Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Allheaven, la Secte des Corps et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
+Au même moment, les fours de pluie apparurent à travers tout le Système Stellaire de l'Alliance. Cependant, Luotian, la Secte des Corps et les diverses forces de l'Alliance s'étaient déjà rassemblés autour de la planète Suzaku. Bien que stupéfaits, ils n'avaient pas le temps de s'en inquiéter.
 
 « Les personnes de notre niveau de culture risquent de rendre le Royaume Céleste de la Pluie instable et de provoquer un effondrement massif. Nous devons secourir l'Empereur Divin du Dragon Azure au plus vite!!! » Après avoir lancé cet avertissement, Wang Lin chargea vers la porte du Royaume Céleste de la Pluie! Derrière lui, les 35 Anciens, Situ Nan, Wang Wei, Hu Juan et les autres s'élancèrent à sa suite.
 

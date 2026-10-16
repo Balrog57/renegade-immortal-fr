@@ -30,11 +30,11 @@ En tournant, elle enveloppa le continent du Royaume Céleste du Vent. De loin, l
 
 « La destruction du Royaume Céleste de la Foudre est irrémédiable. Il ne pourra subsister que comme une rivière gardienne pour le futur Royaume Céleste. » Wang Lin soupira tout en dirigeant le continent du Royaume Céleste du Vent et la rivière argentée pour quitter les lieux.
 
-Le troisième endroit qu'il devait visiter était le Royaume Céleste du Tonnerre à Allheaven!
+Le troisième endroit qu'il devait visiter était le Royaume Céleste du Tonnerre à Luotian!
 
-Wang Lin connaissait très bien le Royaume Céleste du Tonnerre, car il y avait parcouru de nombreux endroits. Bientôt, le gigantesque continent du Royaume Céleste du Vent, entouré de la rivière argentée, apparut dans Allheaven.
+Wang Lin connaissait très bien le Royaume Céleste du Tonnerre, car il y avait parcouru de nombreux endroits. Bientôt, le gigantesque continent du Royaume Céleste du Vent, entouré de la rivière argentée, apparut dans Luotian.
 
-Les ondulations causées par leur arrivée furent immédiatement remarquées par les cultivateurs en convalescence à Allheaven. Tous tremblèrent et déployèrent leur Sens Divin. Ce qu'ils virent les laissa stupéfaits.
+Les ondulations causées par leur arrivée furent immédiatement remarquées par les cultivateurs en convalescence à Luotian. Tous tremblèrent et déployèrent leur Sens Divin. Ce qu'ils virent les laissa stupéfaits.
 
 À l'entrée du Royaume Céleste du Tonnerre, le coup de tonnerre qui gardait la porte avait disparu depuis longtemps, emporté par Wang Lin des années auparavant. De retour en ces lieux familiers, il n'hésita pas à pénétrer dans le Royaume Céleste du Tonnerre.
 

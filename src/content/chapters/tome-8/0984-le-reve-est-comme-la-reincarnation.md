@@ -22,7 +22,7 @@ Situ Nan s'amusait gaiement pour le moment. À cet instant précis, sur la loint
 
 Les passants se dispersèrent et le calme revint sur la planète Esprit d'Eau.
 
-Beaucoup ne connaîtraient pas de nuit paisible, et certains ne pourraient même plus cultiver. C'était le cas des trois frères Chen, du Maître Hollow Wind, ainsi que de la jeune fille nommée Ling Er.
+Beaucoup ne connaîtraient pas de nuit paisible, et certains ne pourraient même plus cultiver. C'était le cas des trois frères Chen, du Maître Fu Fengzi, ainsi que de la jeune fille nommée Ling Er.
 
 Même accroupie, elle ne pouvait oublier cette silhouette qui transperçait les cieux. Incapable de cultiver, elle ne faisait que se retourner dans son lit, incapable de trouver le repos.
 
@@ -106,7 +106,7 @@ Wang Lin poussa un soupir et observa attentivement la couronne avant de la range
 
 « Si je parviens à raffiner et à contrôler le prochain objet, j'aurai plus d'assurance pour mon voyage vers la Terre des Esprits Démoniaques. » Wang Lin prit une profonde inspiration et frappa son sac de rangement. Un cadavre féminin émettant une lueur argentée apparut devant lui.
 
-Lors de la grande bataille entre Allheaven et l'Alliance, cette femme faisait partie des trois cadavres raffinés les plus puissants déployés par l'Alliance. Après qu'elle eut été blessée, Wang Lin avait réussi à s'en emparer.
+Lors de la grande bataille entre Luotian et l'Alliance, cette femme faisait partie des trois cadavres raffinés les plus puissants déployés par l'Alliance. Après qu'elle eut été blessée, Wang Lin avait réussi à s'en emparer.
 
 La femme portait une robe argentée qui soulignait ses courbes magnifiques. De son vivant, elle aurait été une femme enchanteresse. Mais à présent, son visage était livide et une terrifiante explosion d'énergie Yin émanait de son corps, emplissant la pièce.
 

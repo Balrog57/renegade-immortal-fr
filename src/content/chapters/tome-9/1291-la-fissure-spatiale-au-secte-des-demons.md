@@ -26,7 +26,7 @@ C'était une puissance acquise au prix de sa propre vie, il était donc difficil
 
 Il ressentait sa propre force. Cette puissance lui donnait l'impression de tenir le monde entier entre ses poings lorsqu'il les serrait. La confiance inondait son cœur!
 
-« Mon objectif est de devenir un cultivateur du troisième niveau, pour tuer le Daoïste Water et l'ancêtre de la famille Allheaven qui m'a trompé avec le sort Qixi! » [1]
+« Mon objectif est de devenir un cultivateur du troisième niveau, pour tuer le Daoïste Water et l'ancêtre de la famille Luotian qui m'a trompé avec le sort Qixi! » [1]
 
 Avant son combat contre le Daoïste Water, Wang Lin considérait le troisième niveau comme un royaume légendaire et dévastateur, capable de briser le ciel, que seuls les vrais dieux pouvaient atteindre. Chaque fois qu'il y pensait, cela exerçait sur lui une pression si puissante qu'elle semblait pouvoir tout détruire, une force à laquelle il ne pouvait résister.
 

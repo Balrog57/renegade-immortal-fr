@@ -110,7 +110,7 @@ Mu Bingmei resta seule sur la montagne. Elle se tint là en silence et leva sa m
 
 « Wang Lin, où êtes-vous?! » Ses larmes tombèrent sur l'épée de cristal, produisant un son cristallin tandis qu'elles glissaient le long de la lame...
 
-Alors que Mu Bingmei murmurait ces mots, une lueur jaillit dans l'espace calme et sombre en direction d'Allheaven. La lumière se mua en une porte, et une personne en sortit.
+Alors que Mu Bingmei murmurait ces mots, une lueur jaillit dans l'espace calme et sombre en direction de Luotian. La lumière se mua en une porte, et une personne en sortit.
 
 Robe blanche, cheveux blancs.
 
@@ -118,7 +118,7 @@ Wang Lin.
 
 « Cet endroit est... » Wang Lin regarda autour de lui et esquissa un sourire.
 
-« Allheaven... » Son sourire exprimait une joie profonde. L'aura familière des lieux lui confirmait qu'il était enfin chez lui.
+« Luotian... » Son sourire exprimait une joie profonde. L'aura familière des lieux lui confirmait qu'il était enfin chez lui.
 
 Son sens divin se propagea inconsciemment dans toutes les directions.
 

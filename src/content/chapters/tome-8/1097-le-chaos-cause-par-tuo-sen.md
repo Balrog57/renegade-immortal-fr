@@ -104,7 +104,7 @@ Il ne fallut pas longtemps pour que tous les Anciens présents puissent voir le 
 
 L'un des vieillards réfléchit un instant et dit lentement: « Nous ignorons si ceci est vrai ou s'il s'agit d'un mensonge... »
 
-« Si une telle personne parvient à s'échapper, ce sera une catastrophe pour tout le Système Stellaire de l'Alliance. Bien que cela ne nous concerne pas directement, si les informations contenues dans ce jade sont vraies, alors mon Allheaven perdrait tout espoir d'occuper l'Alliance. Nous devrions immédiatement retourner à Allheaven et renforcer nos protections... Si cette personne pénètre à Allheaven... » Les yeux de l'Ancien étaient remplis de terreur.
+« Si une telle personne parvient à s'échapper, ce sera une catastrophe pour tout le Système Stellaire de l'Alliance. Bien que cela ne nous concerne pas directement, si les informations contenues dans ce jade sont vraies, alors mon Luotian perdrait tout espoir d'occuper l'Alliance. Nous devrions immédiatement retourner à Luotian et renforcer nos protections... Si cette personne pénètre à Luotian... » Les yeux de l'Ancien étaient remplis de terreur.
 
 « Cela est probablement faux! Une telle personne ne peut pas exister. Le contenu prétend que même nous, cultivateurs au stade du Briseur du Nirvana, serions gravement blessés, voire tués, d'un simple geste du doigt. C'est absurde! » Certains, refusant d'y croire, laissèrent échapper des reniflements méprisants.
 
@@ -118,4 +118,4 @@ L'étrange réaction du Maître Flemespark ne surprit aucun des Anciens; au cont
 
 Un instant plus tard, l'expression du Maître Flemespark changea une nouvelle fois. Tourné vers l'ouest, il joignit les mains et dit respectueusement: « À vos ordres! » Ses yeux devinrent sévères alors qu'il balayait la foule du regard: « Cessez toutes les hostilités avec l'Alliance et convoquez ici tous les cultivateurs au stade du Voyant de Nirvana ou au-dessus. Attendez mon commandement après mon retour de la Terre des Quatre Sectes Divins! »
 
-La même scène se produisit au sein de la Secte des Cadavres. Seule une différence subsistait: comparé à Allheaven, le jade que Li Yingzhi avait rapporté avait plongé la Secte des Cadavres dans un chaos absolu face à son contenu!
+La même scène se produisit au sein de la Secte des Cadavres. Seule une différence subsistait: comparé à Luotian, le jade que Li Yingzhi avait rapporté avait plongé la Secte des Cadavres dans un chaos absolu face à son contenu!

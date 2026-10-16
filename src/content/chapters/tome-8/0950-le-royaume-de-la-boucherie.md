@@ -56,7 +56,7 @@ Tout cela se produisit en un instant; une rapidité incroyable. Tous les cultiva
 
 « Xu Mu!! »
 
-« C'est le Céleste du Tonnerre d'Allheaven, Xu Mu! » Quelqu'un reconnut immédiatement l'identité de Wang Lin.
+« C'est le Céleste du Tonnerre de Luotian, Xu Mu! » Quelqu'un reconnut immédiatement l'identité de Wang Lin.
 
 Le visage de Wang Lin restait de marbre. Il y avait plusieurs centaines de cultivateurs devant lui. Bien qu'ils fussent nombreux, il ne considérait aucun d'eux comme une menace! Autrefois, il aurait été impossible pour lui de faire face à de tels adversaires. Cependant, maintenant qu'il était devenu un Dieu Ancien Royal de 5 étoiles, tout était différent!
 

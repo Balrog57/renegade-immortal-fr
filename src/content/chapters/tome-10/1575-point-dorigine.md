@@ -18,7 +18,7 @@ Ce sceau lui ouvrait une voie, un autre chemin pour se débarrasser de la force 
 
 Les yeux de Wang Lin étaient empreints de réflexion, mais après un long moment, il ne put s'empêcher de soupirer. Il ressentit un mélange de complexité et d'absurdité. C’était comme un cycle de réincarnation qui se superposait à lui-même.
 
-S'il n'avait pas quitté la planète Suzaku, il ne serait jamais allé dans les Terres des Esprits Démoniaques. Il n'aurait alors jamais utilisé la faille de ce lieu pour entrer dans Allheaven. Et s'il n'était pas allé à Allheaven, il n'aurait pu pénétrer dans la Bête du Néant.
+S'il n'avait pas quitté la planète Suzaku, il ne serait jamais allé dans les Terres des Esprits Démoniaques. Il n'aurait alors jamais utilisé la faille de ce lieu pour entrer dans Luotian. Et s'il n'était pas allé à Luotian, il n'aurait pu pénétrer dans la Bête du Néant.
 
 S'il n'avait pas connu la Bête du Néant, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été dévoré par elle lors de leur première bataille à la Mer des Nuages. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu l'ascendance céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
 

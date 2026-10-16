@@ -90,7 +90,7 @@ En entendant cela, un éclair de compréhension traversa l'esprit de Wang Lin.
 
 Le visage de Wang Lin s'assombrit. La Secte des Cadavres recelait trop de secrets. Il ignorait si la possession des corps du Clan des Démons Géants était une priorité absolue pour eux.
 
-Quoi qu'il en soit, cette affaire permettait à Wang Lin de percer certains mystères entourant la secte. Alors que l'armée Allheaven approchait, il était convaincu que tous les secrets de la Secte des Cadavres finiraient par éclater au grand jour.
+Quoi qu'il en soit, cette affaire permettait à Wang Lin de percer certains mystères entourant la secte. Alors que l'armée Luotian approchait, il était convaincu que tous les secrets de la Secte des Cadavres finiraient par éclater au grand jour.
 
 Alors que la plante démoniaque poussait un cri strident, ses vignes chargèrent Wang Lin avec fureur, cherchant à le mettre en pièces. Wang Lin eut un sourire et cracha le Sceau Céleste. Celui-ci grandit instantanément, libérant des centaines de milliers de runes dorées vers la plante.
 

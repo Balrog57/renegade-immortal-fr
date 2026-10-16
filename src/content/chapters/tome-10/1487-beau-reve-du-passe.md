@@ -28,7 +28,7 @@ Lorsque son identité d'ancien dieu fut révélée, tout prit sens. Pourquoi le 
 
 Pourquoi Wang Lin avait-il vu toute sa force vitale emportée par l'ancêtre de la famille Xiang! La force vitale qui lui avait été dérobée était celle d'un ancien dieu!
 
-Bien que Wang Lin ne sache pas tout cela, il en comprenait la majeure partie alors qu'il voyageait à travers Allheaven!
+Bien que Wang Lin ne sache pas tout cela, il en comprenait la majeure partie alors qu'il voyageait à travers Luotian!
 
 Après avoir examiné les souvenirs de l'ancêtre de la famille Xiang, Wang Lin avait appris que la vitalité absorbée par l'ancêtre n'était que le fruit de sa propre cupidité, dictée par sa méthode de culture. L'ancêtre n'avait pas non plus l'intention de laisser Wang Lin repartir vivant. En réalité, dès l'instant où Wang Lin entra sur la planète Dong Ling, l'ancêtre de la famille Xiang avait perçu en lui le ressentiment d'un membre de son propre clan... Après avoir savouré ce ressentiment, il sut de qui il s'agissait.
 
@@ -48,11 +48,11 @@ Wang Lin avait appris tout cela en fouillant l'âme de l'ancêtre de la famille 
 
 « Le Dieu de Sang m'a poursuivi autrefois. Si ce n'était pas pour le Frère Qing Shui, mon avatar serait mort. Comment pourrais-je oublier? De plus, le Dieu de Sang possède un ancien démon en lui... Mon avatar de démon antique a besoin de puissance de démon antique à présent... Par ailleurs, bien que je n'aie pas fait de promesse à cette fille de la famille Yao, j'en ai fait une dans son rêve, ce qui a laissé derrière elle du karma... Il est temps que je m'occupe de cela. » Wang Lin disparut au loin.
 
-La planète Dong Ling était brisée et toutes les familles de la planète s'étaient effondrées. Les échos des combats sur Dong Ling se propagèrent, et la nouvelle fut rapidement connue des cultivateurs d'Allheaven.
+La planète Dong Ling était brisée et toutes les familles de la planète s'étaient effondrées. Les échos des combats sur Dong Ling se propagèrent, et la nouvelle fut rapidement connue des cultivateurs de Luotian.
 
-La planète Dong Ling était la plus féroce d'Allheaven. Son effondrement et sa destruction suffirent à choquer l'ensemble d'Allheaven.
+La planète Dong Ling était la plus féroce de Luotian. Son effondrement et sa destruction suffirent à choquer l'ensemble de Luotian.
 
-À ce moment-là, dans la partie sud d'Allheaven, un groupe de cent cultivateurs avançait silencieusement. Une femme faisait partie de ce groupe.
+À ce moment-là, dans la partie sud de Luotian, un groupe de cent cultivateurs avançait silencieusement. Une femme faisait partie de ce groupe.
 
 Cette femme n'était plus jeune; elle avait l'apparence d'une femme d'âge moyen. Son visage portait les stigmates du temps alors qu'elle progressait sans mot dire avec ses compagnons.
 
@@ -68,9 +68,9 @@ Son niveau de culture n'était pas très élevé, seulement Corporel Yang. Pourt
 
 Presque tous les membres de sa famille étaient morts lors de la guerre contre l'Alliance. Même l'ancêtre qu'elle aimait le plus avait été gravement blessé durant le conflit avant de mourir pour protéger une ancienne divinité près de la planète Suzaku afin de la sauver. Toute sa lignée s'était éteinte.
 
-Après la guerre, elle était retournée à Allheaven, épuisée et blessée, pour découvrir que sa famille n'existait plus. Elle avait versé des larmes devant les ruines du foyer familial avant de partir en silence. Elle avait cultivé seule, errante et sans abri.
+Après la guerre, elle était retournée à Luotian, épuisée et blessée, pour découvrir que sa famille n'existait plus. Elle avait versé des larmes devant les ruines du foyer familial avant de partir en silence. Elle avait cultivé seule, errante et sans abri.
 
-Il était très difficile pour une femme de survivre dans le chaos d'Allheaven après la guerre. Bien qu'elle eût conservé quelques amis, une fois sa famille disparue, à quoi bon... À cette époque, elle était encore jeune et possédait un visage superbe.
+Il était très difficile pour une femme de survivre dans le chaos de Luotian après la guerre. Bien qu'elle eût conservé quelques amis, une fois sa famille disparue, à quoi bon... À cette époque, elle était encore jeune et possédait un visage superbe.
 
 Beaucoup convoitaient sa beauté, et beaucoup lui avaient promis de l'aider dans sa culture. Pour une femme vulnérable, survivre sans subir d'humiliations était ardu, tant son éclat attirait les convoitises.
 
@@ -78,13 +78,13 @@ Elle ressemblait à Lu Feiyan de la Secte Originelle, mais elle était plus déc
 
 Une beauté est souvent née sous une mauvaise étoile, et peut-être qu'en se privant de cette beauté, le malheur l'abandonnerait.
 
-Elle n'avait pas oublié ses désirs passés. Elle voulait devenir comme l'ancêtre, devenir une puissante cultivatrice. Posséder son propre monde au sein d'Allheaven.
+Elle n'avait pas oublié ses désirs passés. Elle voulait devenir comme l'ancêtre, devenir une puissante cultivatrice. Posséder son propre monde au sein de Luotian.
 
 Cependant, ce souhait ne faisait que s'éloigner... Si ce n'était pour cette figure gravée dans son cœur, elle serait depuis longtemps devenue le « fourneau » de quelqu'un d'autre, sacrifiant son corps en échange de protection et du droit de continuer sa culture.
 
 Mais cette figure l'avait empêchée de s'humilier. Elle refusait de sombrer si bas. Bien que cet homme l'ait peut-être oubliée, ne se souvenant même plus de son nom, elle, elle se souvenait... Elle ne pouvait oublier cette silhouette menant les cultivateurs hors du Royaume Céleste du Tonnerre en plein effondrement... Elle ne pouvait oublier ce guerrier combattant les messagers du Temple Céleste du Tonnerre.
 
-Plus encore, elle ne pouvait oublier celui qui avait bouleversé Allheaven pour devenir le Ciel du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
+Plus encore, elle ne pouvait oublier celui qui avait bouleversé Luotian pour devenir le Ciel du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
 
 Le passé était comme une fumée qui traversa rapidement son esprit. Bientôt, une planète de culture regorgeant d'énergie spirituelle apparut devant eux.
 

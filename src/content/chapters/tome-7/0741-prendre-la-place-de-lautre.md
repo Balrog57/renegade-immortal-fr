@@ -98,7 +98,7 @@ Les fluctuations célestes qui s'en dégageaient étaient extrêmement étranges
 
 En contemplant les fragments, Wang Lin commença à réfléchir. Soudain, ses yeux se plissèrent et il murmura pour lui-même: « Pourrait-il s'agir d'un outil d'origine brisé? »
 
-À cet instant, une lumière rouge sang traversa rapidement le Système Stellaire d'Allheaven. Au bout de cette lueur se trouvait une planète rouge sombre.
+À cet instant, une lumière rouge sang traversa rapidement le Système Stellaire de Luotian. Au bout de cette lueur se trouvait une planète rouge sombre.
 
 Cette planète était immense et dégageait une aura très singulière. Il était impossible de déterminer si elle émanait d'une énergie spirituelle céleste, démoniaque ou diabolique. En somme, elle était profondément mystérieuse.
 
@@ -112,7 +112,7 @@ Le silence était total. Après un long moment, la planète rouge sombre s'arrê
 
 « Lorsque ton père a quitté la famille, n'avait-il pas dit que, peu importe le nombre de générations qui passeraient, vous ne reviendriez jamais... »
 
-Yao Kong poussa un soupir. Il n'avait vraiment pas voulu revenir dans le Système Stellaire d'Allheaven ni utiliser la Pierre d'Allheaven que son père lui avait laissée.
+Yao Kong poussa un soupir. Il n'avait vraiment pas voulu revenir dans le Système Stellaire de Luotian ni utiliser la Pierre de Luotian que son père lui avait laissée.
 
 Cependant, s'il ne revenait pas, il ne pourrait trouver la paix. Tout cela, il le faisait pour sa fille, Yao Xixue!
 

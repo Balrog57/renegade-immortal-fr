@@ -54,7 +54,7 @@ Tout cela ne prit qu'un instant!
 
 L'esprit de Wang Lin était sous le choc. Ses pupilles se rétractèrent immédiatement lorsqu'un individu exposa ainsi son plan, mais il retrouva vite son calme. L'admiration dans les yeux de l'homme s'intensifia. Il ne regardait plus Wang Lin ni le dragon de sang en plein effondrement, mais pointa le vortex de sa main droite!
 
-Ce n'était qu'un doigt, mais aux yeux de Wang Lin, ce doigt pouvait percer le monde. Il se remémora l'époque d'Allheaven, où un seul doigt de cet homme avait brisé la barrière spatiale entre Allheaven et l'Alliance.
+Ce n'était qu'un doigt, mais aux yeux de Wang Lin, ce doigt pouvait percer le monde. Il se remémora l'époque de Luotian, où un seul doigt de cet homme avait brisé la barrière spatiale entre Luotian et l'Alliance.
 
 Le vortex dans le ciel s'arrêta soudainement, cessant de tourner face à ce doigt. Il s'ouvrit progressivement, exposant un monde qui demeurait rouge sang, même en l'absence de la mer de sang!
 
@@ -74,7 +74,7 @@ L'humain et le dieu, liés par le destin, se contemplèrent silencieusement à t
 
 La bouche de Tuo Sen eut un tressaillement et il fit un pas. Il quitta la montagne pour s'élever au-dessus du vortex. Son regard balaya les environs.
 
-Lorsque Maître Flamespark croisa le regard de Tuo Sen, son esprit fut ébranlé. Il sentit inopinément ses propres battements de cœur s'accélérer. Son cœur martelait sa poitrine, sa bouche se dessécha, son visage pâlit davantage et il recula inconsciemment. Il n'osait pas regarder Tuo Sen; c'était comme si cet homme était le ciel lui-même!
+Lorsque Maître Yan Leizi croisa le regard de Tuo Sen, son esprit fut ébranlé. Il sentit inopinément ses propres battements de cœur s'accélérer. Son cœur martelait sa poitrine, sa bouche se dessécha, son visage pâlit davantage et il recula inconsciemment. Il n'osait pas regarder Tuo Sen; c'était comme si cet homme était le ciel lui-même!
 
 « Déchets! »
 
@@ -82,7 +82,7 @@ Le regard de Tuo Sen était empreint de mépris. Lorsqu'il se posa sur les huit 
 
 « Au moins, les déchets sont des êtres humains. Vous, vous êtes pires que des déchets! »
 
-Les huit rois possédaient un statut très élevé au sein de la Secte des Cadavres. Cependant, en cet instant, sous le regard de Tuo Sen, ils étaient dans une situation plus pitoyable encore que celle de Maître Flamespark. Leurs visages étaient livides et ils reculaient sans cesse. Ce regard semblait presque palpable, au point de leur faire perdre la raison.
+Les huit rois possédaient un statut très élevé au sein de la Secte des Cadavres. Cependant, en cet instant, sous le regard de Tuo Sen, ils étaient dans une situation plus pitoyable encore que celle de Maître Yan Leizi. Leurs visages étaient livides et ils reculaient sans cesse. Ce regard semblait presque palpable, au point de leur faire perdre la raison.
 
 Ils avaient l'impression que si cet homme entrait en colère, même les cieux devraient s'incliner!
 

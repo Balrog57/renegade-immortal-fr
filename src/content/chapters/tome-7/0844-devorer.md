@@ -6,11 +6,11 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 844 - Devour
 slug: devorer
 ---
-Une tempête qui ébranla la quasi-totalité des cultivateurs balaya le système stellaire d'Allheaven. La bête féroce et gigantesque qui avait massacré d'innombrables cultivateurs avait été capturée vivante par le Temple Céleste du Tonnerre!
+Une tempête qui ébranla la quasi-totalité des cultivateurs balaya le système stellaire de Luotian. La bête féroce et gigantesque qui avait massacré d'innombrables cultivateurs avait été capturée vivante par le Temple Céleste du Tonnerre!
 
-Très peu de gens savaient comment cela avait été accompli, mais le résultat stupéfia tous les cultivateurs du système stellaire d'Allheaven!
+Très peu de gens savaient comment cela avait été accompli, mais le résultat stupéfia tous les cultivateurs du système stellaire de Luotian!
 
-À cet instant précis, la renommée du Temple Céleste du Tonnerre atteignit son apogée! Elle surpassait même les quelques lignées possédant des héritages de l'Antiquité, devenant un symbole de puissance pour le système stellaire d'Allheaven.
+À cet instant précis, la renommée du Temple Céleste du Tonnerre atteignit son apogée! Elle surpassait même les quelques lignées possédant des héritages de l'Antiquité, devenant un symbole de puissance pour le système stellaire de Luotian.
 
 Profitant de cet émoi, la compétition officielle des 36 Tian Gang et 72 Di Sha pour les titres célestes commença!
 
@@ -18,7 +18,7 @@ Profitant de cet émoi, la compétition officielle des 36 Tian Gang et 72 Di Sha
 
 « Chaque être céleste lors de la guerre contre le Système Stellaire de l'Alliance sera un leader, et leurs familles recevront leurs propres planètes de culture! »
 
-La nouvelle concernant l'attribution de titres célestes par le Temple Céleste du Tonnerre circulait depuis longtemps, mais elle ne commençait à se concrétiser qu'à présent. Cela plongea tous les cultivateurs du système stellaire d'Allheaven dans une véritable frénésie.
+La nouvelle concernant l'attribution de titres célestes par le Temple Céleste du Tonnerre circulait depuis longtemps, mais elle ne commençait à se concrétiser qu'à présent. Cela plongea tous les cultivateurs du système stellaire de Luotian dans une véritable frénésie.
 
 Tous les membres principaux de nombreuses familles de culture se mirent en route!
 
@@ -32,7 +32,7 @@ Si cette nouvelle était une tempête, l'annonce suivante du Temple Céleste du 
 
 Une fois que le Temple Céleste du Tonnerre aura choisi les 108 êtres célestes, il ouvrira le passage vers le Système Stellaire de l'Alliance. La guerre contre le Système Stellaire de l'Alliance pourra alors commencer!
 
-Le système stellaire d'Allheaven tout entier entra en émoi. Tous les cultivateurs n'attendaient qu'une chose: le jour où ils pourraient se frayer un chemin par le carnage jusqu'au Système Stellaire de l'Alliance! Une intention meurtrière dense imprégna le système stellaire d'Allheaven!
+Le système stellaire de Luotian tout entier entra en émoi. Tous les cultivateurs n'attendaient qu'une chose: le jour où ils pourraient se frayer un chemin par le carnage jusqu'au Système Stellaire de l'Alliance! Une intention meurtrière dense imprégna le système stellaire de Luotian!
 
 Wang Lin ignorait tout de cela. Il était déjà en culture fermée depuis dix jours! Durant cette période, il avait constamment absorbé l'énergie originelle contenue en Yao Bingyun.
 

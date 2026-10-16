@@ -49,7 +49,7 @@ Wang Lin déclara froidement: « Ce qui doit disparaître disparaîtra naturelle
 
 À cet instant, un point rose apparut sur le parchemin et se mua en une silhouette charmante. Cette figure n'était pas Li Muwan, mais celle que Xu Liguo appelait sans cesse la « petite sœur fée ».
 
-La troisième ancêtre du Clan des Immortels Abandonnés s'était réincarnée en cultivatrice et avait obtenu son propre domaine; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à sa culture et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
+La troisième ancêtre du Clan des Immortels Délaissés s'était réincarnée en cultivatrice et avait obtenu son propre domaine; pourtant, lorsqu'elle retourna parmi les siens, elle renonça à sa culture et laissa son âme originelle se briser. Toutefois, son domaine était d'une telle ténacité qu'il ne s'était pas dissipé.
 
 Après l'avoir capturée, Wang Lin l'avait conservée dans son sac de rangement. C'était là le véritable atout de Wang Lin contre Liu Mei.
 
@@ -105,7 +105,7 @@ Une fois son fragment d'âme en sa possession, les affaires de la planète Suzak
 
 Ces dernières années, Wang Lin avait le pressentiment que Tuo Sen, issu de la Terre des Dieux Anciens, s'échapperait bientôt. Il était convaincu qu'il n'avait aucune chance de l'affronter.
 
-Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Abandonnés, Yunque Zi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
+Pendant ce temps, sur le flanc est du continent Suzaku, dans une zone enveloppée de nuages noirs, l'ancêtre du Clan des Immortels Délaissés, Yunque Zi, le troisième ancêtre et deux esprits ancestraux à dix feuilles étaient réunis.
 
 Leurs plantes de vie scintillaient sur leurs fronts et, entre eux, reposait un crâne.
 

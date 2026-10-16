@@ -22,11 +22,11 @@ La femme fut surprise et fit quelques pas en avant. Fixant Wang Lin de son regar
 
 La femme en blanc fronça les sourcils et dit calmement: « Pas étonnant que tu aies osé envahir cette grotte; tu possèdes effectivement quelques qualifications. » Sur ces mots, sa main de jade pointa sur le côté.
 
-Maître Hollow Wind, qui s'apprêtait à s'enfuir en cas de problème, fut immédiatement encerclé par des fleurs en pleine floraison. Le parfum l'enveloppa et son visage devint instantanément livide. Il se laissa tomber pour cultiver au milieu de cette mer de fleurs, faisant fi du danger imminent. Il devait impérativement cultiver pour expulser le poison de son corps le plus vite possible.
+Maître Fu Fengzi, qui s'apprêtait à s'enfuir en cas de problème, fut immédiatement encerclé par des fleurs en pleine floraison. Le parfum l'enveloppa et son visage devint instantanément livide. Il se laissa tomber pour cultiver au milieu de cette mer de fleurs, faisant fi du danger imminent. Il devait impérativement cultiver pour expulser le poison de son corps le plus vite possible.
 
-Dès qu'il s'assit, les fleurs se refermèrent sur lui, l'encerclant totalement. De loin, on pouvait voir une mer de fleurs infinie, mais Maître Hollow Wind avait disparu.
+Dès qu'il s'assit, les fleurs se refermèrent sur lui, l'encerclant totalement. De loin, on pouvait voir une mer de fleurs infinie, mais Maître Fu Fengzi avait disparu.
 
-Les trois frères Chen et Big Head étaient terrifiés. Ils voulurent battre en retraite, mais ils furent submergés par les fleurs. Avant même qu'ils ne puissent lancer un sort, la mer de fleurs les engloutit.
+Les trois frères Chen et Da Tou étaient terrifiés. Ils voulurent battre en retraite, mais ils furent submergés par les fleurs. Avant même qu'ils ne puissent lancer un sort, la mer de fleurs les engloutit.
 
 Quant au cadavre argenté, elle fut également ensevelie par cette mer florale, rendant sa présence invisible.
 
@@ -42,7 +42,7 @@ Un sifflement aigu, capable de percer l'âme originelle, résonna instantanémen
 
 Elle était si rapide que même Wang Lin ne put en suivre la trajectoire. Il n'entendait plus que les bruits d'impacts résonner autour de lui alors qu'il reculait.
 
-Chaque choc signifiait que le bouclier azur était atteint. Un sentiment de vie ou de mort enveloppa le corps de Wang Lin. Il ne parvenait pas à sonder sa culture, mais il sentait que son niveau de cultivation était bien plus terrifiant que celui de Maître Flamespark.
+Chaque choc signifiait que le bouclier azur était atteint. Un sentiment de vie ou de mort enveloppa le corps de Wang Lin. Il ne parvenait pas à sonder sa culture, mais il sentait que son niveau de cultivation était bien plus terrifiant que celui de Maître Yan Leizi.
 
 La femme leva à nouveau sa main droite, formant un sceau étrange, et murmura: « Fleur Funéraire! »
 

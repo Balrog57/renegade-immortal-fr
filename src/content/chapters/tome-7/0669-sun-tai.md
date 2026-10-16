@@ -88,13 +88,13 @@ Wang Lin réfléchit un instant puis prononça lentement: « Sun Tai. »
 
 Dès que ces deux mots atteignirent les oreilles du vieil homme, tout son corps fut secoué par un tremblement. Il tourna brusquement la tête vers Wang Lin et s'exclama avec choc: « Vous... C'est vraiment vous! »
 
-Wang Lin sonda Sun Tai de son Sens Divin avant de froncer les sourcils: « Comment le pouvoir de la lignée de l'Ancêtre du Clan des Démons Géants a-t-il pu vous envoyer dans le système stellaire d'Allheaven? »
+Wang Lin sonda Sun Tai de son Sens Divin avant de froncer les sourcils: « Comment le pouvoir de la lignée de l'Ancêtre du Clan des Démons Géants a-t-il pu vous envoyer dans le système stellaire de Luotian? »
 
 Sun Tai afficha une expression amère: « J'ai moi-même été perplexe pendant des centaines d'années. Selon mes connaissances, la puissance de cette lignée ne devrait pas être aussi grande. »
 
 Wang Lin demanda: « La marque sur votre corps est très faible. Pourquoi? »
 
-Sun Tai réfléchit un instant: « Connaissez-vous la planète Dong Lin dans le système stellaire d'Allheaven? »
+Sun Tai réfléchit un instant: « Connaissez-vous la planète Dong Lin dans le système stellaire de Luotian? »
 
 Les yeux de Wang Lin se plissèrent, mais il ne laissa pas Sun Tai poursuivre. D'un revers de manche, il fit disparaître les deux hommes. Ils réapparurent devant sa demeure, dans la partie nord de la ville. Wang Lin fit entrer Sun Tai à l'intérieur.
 

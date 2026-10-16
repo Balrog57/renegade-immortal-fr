@@ -1,6 +1,6 @@
 ---
 n: 350
-title: Le Pouvoir du Char de Destruction des Dieux
+title: Le Pouvoir du Char de Guerre Divin
 book: 4
 bookTitle: Clean Sweep
 en: Chapter 350 - Power of the God Slaying Chariot
@@ -102,11 +102,11 @@ Chi Mu fit un pas en avant et lâcha un coup de poing qui généra une onde de c
 
 « Si mon corps originel était ici, je pourrais certainement rivaliser avec cet homme », pensa Wang Lin, les yeux brillants. Il agita la main droite et le piège à bêtes vola vers l'avant.
 
-Dans un fracas assourdissant, le Char de Guerre du Dieu Tueur apparut devant lui. La bête enchaînée au char lança un regard glacial à Chi Mu avant de pousser un rugissement qui fit trembler les cieux.
+Dans un fracas assourdissant, le Char de Guerre Divin apparut devant lui. La bête enchaînée au char lança un regard glacial à Chi Mu avant de pousser un rugissement qui fit trembler les cieux.
 
 Chi Mu fut stupéfait et son visage pâlit.
 
-« Char de Guerre du Dieu Tueur, voyons si tu es digne de ton nom! » Les yeux de Wang Lin devinrent froids. S'il ne tuait pas cet homme maintenant, il ne pourrait jamais s'échapper.
+« Char de Guerre Divin, voyons si tu es digne de ton nom! » Les yeux de Wang Lin devinrent froids. S'il ne tuait pas cet homme maintenant, il ne pourrait jamais s'échapper.
 
 La bête sur le char de guerre se tourna soudainement vers Wang Lin. Après l'avoir dévisagé, elle poussa un second rugissement. Les pointes du char émettent une lumière noire qui se concentra lentement sur l'esprit de la bête.
 

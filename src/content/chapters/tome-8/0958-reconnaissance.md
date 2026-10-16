@@ -160,6 +160,6 @@ Ils restèrent silencieux un long moment avant que l'All-Voyant ne demande lente
 
 « Ce disciple souhaite entrer dans le Domaine des Esprits Démoniaques. » L'expression de Wang Lin était empreinte de respect.
 
-L'All-Voyant, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste d'Allheaven ou comme l'un des membres de la série du Vermillion Bird des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série du Vermillion Bird ne compte que trois personnes, vous y compris! »
+L'All-Voyant, les mains derrière le dos, répondit calmement: « Vous en avez la qualification. Que ce soit en tant que Tonnerre Céleste de Luotian ou comme l'un des membres de la série du Vermillion Bird des Quatre Sectes Divines. Pour autant que je sache, cette génération de la série du Vermillion Bird ne compte que trois personnes, vous y compris! »
 
 Wang Lin réfléchit en silence. Il ne savait pas grand-chose sur la série du Vermillion Bird. Bien qu'il fût touché par ces paroles, son visage ne trahit aucune émotion.

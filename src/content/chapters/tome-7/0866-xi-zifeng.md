@@ -18,29 +18,29 @@ Le regard de Wang Lin se posa sur l'immense salle située à plusieurs kilomètr
 
 Wang Lin déploya prudemment son sens divin et s'envola vers l'avant. Il se rapprocha progressivement de la salle principale et, lorsqu'il fut à proximité, il vit une silhouette debout à l'extérieur. Bien que le dos de cette personne lui soit tourné, elle semblait aussi imposante qu'une montagne.
 
-« Maître Flamespark! » Wang Lin ne fut pas surpris. En approchant, il atterrit et joignit les mains. « Salutations, Senior Maître Flamespark! »
+« Maître Yan Leizi! » Wang Lin ne fut pas surpris. En approchant, il atterrit et joignit les mains. « Salutations, Senior Maître Yan Leizi! »
 
-« Devrais-je t'appeler Maître Démon Xu Mu ou Wang Lin du Système Stellaire de l'Alliance? » Maître Flamespark se retourna et fixa calmement Wang Lin. En posant son regard sur lui, il parut quelque peu surpris.
+« Devrais-je t'appeler Maître Démon Xu Mu ou Wang Lin du Système Stellaire de l'Alliance? » Maître Yan Leizi se retourna et fixa calmement Wang Lin. En posant son regard sur lui, il parut quelque peu surpris.
 
 « Scruteur du Nirvana? Bien, très bien! »
 
 L'expression de Wang Lin resta impassible. Il ne paniqua pas lorsqu'on révéla son identité et répondit avec calme: « Xu Mu ou Wang Lin, peu importe. Je ne pense pas que Senior m'ait convoqué ici uniquement pour connaître mon véritable nom. »
 
-Maître Flamespark regarda Wang Lin et esquissa un sourire qui laissait transparaître une lueur d'admiration. « Bien, tu es digne de celui qui est lié par le destin à ce vieil homme. Peu importe que tu sois Wang Lin ou Xu Mu. Je veux savoir si tu es prêt à participer à la bataille contre le Système Stellaire de l'Alliance. »
+Maître Yan Leizi regarda Wang Lin et esquissa un sourire qui laissait transparaître une lueur d'admiration. « Bien, tu es digne de celui qui est lié par le destin à ce vieil homme. Peu importe que tu sois Wang Lin ou Xu Mu. Je veux savoir si tu es prêt à participer à la bataille contre le Système Stellaire de l'Alliance. »
 
 Wang Lin réfléchit silencieusement un instant avant de répondre lentement: « La force du Junior est dérisoire; même si je participe, cela ne changera guère la donne. »
 
-« Un cultivateur Scruteur du Nirvana comme toi ose prétendre que sa force est dérisoire? » Maître Flamespark éclata de rire, mais une lueur de froideur passa dans ses yeux.
+« Un cultivateur Scruteur du Nirvana comme toi ose prétendre que sa force est dérisoire? » Maître Yan Leizi éclata de rire, mais une lueur de froideur passa dans ses yeux.
 
-Wang Lin pesait ses mots et finit par hocher la tête. « Puisque le Senior Maître Flamespark me valorise ainsi, alors je participerai à la guerre! » Wang Lin avait déjà pris cette décision en son for intérieur depuis longtemps. Puisqu'il était venu pour le concours des 108 titres célestes, il serait inévitablement entraîné dans l'affrontement contre le Système Stellaire de l'Alliance.
+Wang Lin pesait ses mots et finit par hocher la tête. « Puisque le Senior Maître Yan Leizi me valorise ainsi, alors je participerai à la guerre! » Wang Lin avait déjà pris cette décision en son for intérieur depuis longtemps. Puisqu'il était venu pour le concours des 108 titres célestes, il serait inévitablement entraîné dans l'affrontement contre le Système Stellaire de l'Alliance.
 
-« Très bien. Garde précieusement le jeton que je t'ai donné. Il pourrait te servir grandement à l'avenir! Considère-le aussi comme la fortune que je t'avais initialement promise! » Maître Flamespark agita sa manche et une bourrasque de vent surgit soudainement devant Wang Lin. Dans un éclat de lumière, un réseau de transfert apparut.
+« Très bien. Garde précieusement le jeton que je t'ai donné. Il pourrait te servir grandement à l'avenir! Considère-le aussi comme la fortune que je t'avais initialement promise! » Maître Yan Leizi agita sa manche et une bourrasque de vent surgit soudainement devant Wang Lin. Dans un éclat de lumière, un réseau de transfert apparut.
 
-« Utilise ce réseau pour partir. Dans trois jours, ce vieil homme se rendra personnellement pour observer la compétition avec quelques amis. Ton frère aîné, Qing Shui, y sera également! » Sur ces mots, Maître Flamespark se détourna et pénétra dans la salle.
+« Utilise ce réseau pour partir. Dans trois jours, ce vieil homme se rendra personnellement pour observer la compétition avec quelques amis. Ton frère aîné, Qing Shui, y sera également! » Sur ces mots, Maître Yan Leizi se détourna et pénétra dans la salle.
 
-Wang Lin regarda Maître Flamespark et demanda calmement: « Senior Maître Flamespark, pourriez-vous rendre la Bête du Tonnerre du Junior? »
+Wang Lin regarda Maître Yan Leizi et demanda calmement: « Senior Maître Yan Leizi, pourriez-vous rendre la Bête du Tonnerre du Junior? »
 
-« Une fois que le passage sera ouvert, je te le rendrai naturellement! » La silhouette de Maître Flamespark disparut dans l'antre.
+« Une fois que le passage sera ouvert, je te le rendrai naturellement! » La silhouette de Maître Yan Leizi disparut dans l'antre.
 
 Wang Lin réfléchit un instant avant de franchir le réseau de transfert. Lorsqu'il réapparut, il se trouvait dans la salle extérieure, à côté des quatre réseaux de transfert.
 
@@ -68,9 +68,9 @@ Enfin, apparurent les membres des deux familles ancestrales qui organisaient cet
 
 Le champ de bataille pour le titre céleste fut fixé sur la place du lac de tonnerre, une étendue de 3,3 kilomètres de large!
 
-À l'extérieur de la place, plus de dix tapis de prière en jade blanc émettaient des ondes d'énergie spirituelle céleste. Maître Flamespark était assis sur l'un d'entre eux. À ses côtés siégeait le Seigneur Céleste Qing Shui, les yeux clos, comme s'il était totalement indifférent à ce qui l'entourait.
+À l'extérieur de la place, plus de dix tapis de prière en jade blanc émettaient des ondes d'énergie spirituelle céleste. Maître Yan Leizi était assis sur l'un d'entre eux. À ses côtés siégeait le Seigneur Céleste Qing Shui, les yeux clos, comme s'il était totalement indifférent à ce qui l'entourait.
 
-À mesure que la foule s'épaississait, l'ancêtre de la famille Xiang apparut. Il salua Maître Flamespark et prit place sur un tapis de prière adjacent au sien.
+À mesure que la foule s'épaississait, l'ancêtre de la famille Xiang apparut. Il salua Maître Yan Leizi et prit place sur un tapis de prière adjacent au sien.
 
 Tandis qu'ils discutaient, un homme vêtu de noir nommé Gongsun fit son apparition et s'assit.
 
@@ -78,7 +78,7 @@ Peu après, la famille Yao et les trois autres familles dotées d'héritages cé
 
 Lorsque les familles Shengong et Zhan arrivèrent, l'ancêtre des Shengong et Lie Yunzi s'installèrent successivement sur leurs tapis respectifs. Bientôt, divers ancêtres de différentes familles de culture arrivèrent et prirent place.
 
-À midi pile, les yeux de Maître Flamespark s'illuminèrent. Il déclara d'une voix calme: « Que la bataille pour les 108 titres célestes du Système Stellaire Allheaven commence! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Céleste du Tonnerre. Une multitude de réseaux de transfert apparurent dans le ciel; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
+À midi pile, les yeux de Maître Yan Leizi s'illuminèrent. Il déclara d'une voix calme: « Que la bataille pour les 108 titres célestes du Système Stellaire Luotian commence! » Sa voix se mua en d'innombrables coups de tonnerre qui résonnèrent à travers tout le Temple Céleste du Tonnerre. Une multitude de réseaux de transfert apparurent dans le ciel; ils étaient tous de taille identique et, un à un, des cultivateurs en émergèrent.
 
 Wang Lin faisait partie des participants!
 
@@ -100,13 +100,13 @@ Non loin de Xi Zifeng siégeait une vieille femme. Bien qu'elle ne fût manifest
 
 Elle fronça les sourcils en regardant Xi Zifeng et soupira: « Une relation maudite! »
 
-Wang Lin, suspendu dans les airs, observait avec calme les cultivateurs du Système Stellaire Allheaven. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de l'Ancêtre de Sang, et beaucoup le surpassaient largement.
+Wang Lin, suspendu dans les airs, observait avec calme les cultivateurs du Système Stellaire Luotian. Ses yeux se posèrent particulièrement sur ceux qui siégeaient sur les tapis de prière. Chacun d'eux possédait un niveau de culture non inférieur à celui de l'Ancêtre de Sang, et beaucoup le surpassaient largement.
 
-Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Flamespark, imperturbable, déclara lentement: « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la culture de chacun! Les six voies mystérieuses représentent le cycle du Dao! »
+Lorsque les 325 réseaux de transfert furent tous déployés, tous les participants se révélèrent. Maître Yan Leizi, imperturbable, déclara lentement: « Cette compétition est divisée en trois épreuves, six voies et une seule ligne vers le ciel! Les trois épreuves du Ciel, de la Terre et de l'Humain testeront la culture de chacun! Les six voies mystérieuses représentent le cycle du Dao! »
 
 « Les trois épreuves et les six voies permettront de sélectionner les 108 titres célestes. Ensuite, ils s'affronteront dans une bataille à mort sur la ligne unique vers les cieux. Les 36 combattants ayant obtenu le plus de victimes recevront les titres célestes! Leurs noms seront également gravés sur la Pierre Céleste! »
 
-Ses paroles provoquèrent une onde de choc immense dans la région. Même les occupants des tapis de prière furent stupéfaits, leurs regards convergeant tous vers Maître Flamespark.
+Ses paroles provoquèrent une onde de choc immense dans la région. Même les occupants des tapis de prière furent stupéfaits, leurs regards convergeant tous vers Maître Yan Leizi.
 
 L'ancêtre de la famille Xiang et l'homme en noir nommé Gongsun furent également frappés de stupeur et tournèrent leurs yeux vers le maître du temple!
 

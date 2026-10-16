@@ -80,7 +80,7 @@ S'il avait tenté cette fuite par le sang alors que les ondes étaient à leur a
 
 Il n'était vraiment pas disposé à utiliser l'évasion par le sang, sauf en dernier recours. Bien que ce ne fût qu'un instant, dans son esprit, le danger était tout aussi grand que lorsqu'il avait affronté Wang Lin sur la ligne menant au ciel!
 
-La haine qu'il vouait à Wang Lin était désormais indescriptible. Il se retourna et rugit: « Xu Mu, toi... » Il voulait utiliser ce cri pour dénoncer le comportement de Wang Lin afin que les cultivateurs d'Allheaven et les vieux monstres soupçonnent ce dernier.
+La haine qu'il vouait à Wang Lin était désormais indescriptible. Il se retourna et rugit: « Xu Mu, toi... » Il voulait utiliser ce cri pour dénoncer le comportement de Wang Lin afin que les cultivateurs de Luotian et les vieux monstres soupçonnent ce dernier.
 
 Cependant, au moment où il allait parler, ses mots furent couverts par le rire de Wang Lin. Alors que Xu Ting reculait, Wang Lin chargea vers les ondulations rouge écarlate en riant: « Le compagnon cultivateur Xu est effectivement fiable. Puisque tu m'as aidé à affaiblir ces ondes, moi, Xu Mu, je ne l'oublierai pas. Si je parvins à tuer cette femme, tu recevras également le mérite du coup fatal! »
 

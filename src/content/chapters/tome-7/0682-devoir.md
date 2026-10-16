@@ -30,7 +30,7 @@ Wang Lin soupira: « Frère Sun, nul besoin d'en arriver là... »
 
 Sun Xi réfléchit silencieusement. Il prit une profonde inspiration, joignit les mains devant Wang Lin et dit amèrement: « Xu... Frère Xu, nous trois avons dissimulé nos clones auparavant afin de vous entraîner dans ce pétrin et de faire de vous notre bouc émissaire... Je... »
 
-Wang Lin murmura: « Oublie cela, ne parlons plus de cette affaire. L'ancêtre de la famille Ran et Carefree Sanren sont-ils en sécurité pour le moment? »
+Wang Lin murmura: « Oublie cela, ne parlons plus de cette affaire. L'ancêtre de la famille Ran et Xiaoyao Sanren sont-ils en sécurité pour le moment? »
 
 Sun Xi répondit rapidement: « L'ancêtre de la famille Ran a créé un clone il y a des centaines d'années. Il a déjà quitté la planète Ran Yun. J'ignore où il se trouve, mais je pense qu'il ne court aucun danger. Quant à Zhao Chuanwen, bien qu'il n'ait pu affiner de clone, il possède un sort mystérieux capable de diviser son âme originelle. Je suppose qu'il a quitté la planète Ran Yun depuis longtemps. »
 

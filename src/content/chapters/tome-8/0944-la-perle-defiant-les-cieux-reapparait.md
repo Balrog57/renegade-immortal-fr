@@ -1,12 +1,12 @@
 ---
 n: 944
-title: "La Perle Défiant les Cieux Réapparaît!"
+title: "La Perle Défiant le Ciel Réapparaît!"
 book: 8
 bookTitle: "Alliance's Secret"
 en: "Chapter 944 - Heaven Defying Bead Reappears!"
 slug: la-perle-defiant-les-cieux-reapparait
 ---
-Chapitre 944 - La Perle Défiant les Cieux Réapparaît!
+Chapitre 944 - La Perle Défiant le Ciel Réapparaît!
 
 La voix triste de Lou Chen résonna à travers le vide pour atteindre les oreilles de Wang Lin. L'esprit de Wang Lin trembla et il ressentit une forme de résonance!
 
@@ -90,15 +90,15 @@ La marque lunaire située entre ses sourcils se fendit en deux, projetant le vie
 
 Pourtant, ce n'était pas cela qui avait fait exploser la marque, ni ce qui avait fait cracher du sang au vieil homme. À cet instant précis, une perle noire et blanche flottait entre les sourcils de Wang Lin!
 
-La Perle Défiant les Cieux!
+La Perle Défiant le Ciel!
 
-Au moment où Wang Lin fut dévoré par la marque lunaire, la Perle Défiant les Cieux s'était mise à bouger d'elle-même et s'était échappée de ses sourcils.
+Au moment où Wang Lin fut dévoré par la marque lunaire, la Perle Défiant le Ciel s'était mise à bouger d'elle-même et s'était échappée de ses sourcils.
 
 Dès l'apparition de la perle, une force mystérieuse en émana. La marque lunaire fut incapable de résister et s'effondra soudainement!
 
-À cet instant, un gaz noir et blanc enveloppa la Perle Défiant les Cieux. Ce gaz jaillit, traversa le filet scintillant et chargea directement le vieil homme.
+À cet instant, un gaz noir et blanc enveloppa la Perle Défiant le Ciel. Ce gaz jaillit, traversa le filet scintillant et chargea directement le vieil homme.
 
-Le vieil homme hurla, son visage déformé par l'effroi. C'était comme s'il avait reconnu la Perle Défiant les Cieux. Son regard vers Wang Lin était chargé d'une peur inimaginable.
+Le vieil homme hurla, son visage déformé par l'effroi. C'était comme s'il avait reconnu la Perle Défiant le Ciel. Son regard vers Wang Lin était chargé d'une peur inimaginable.
 
 « Toi... Tu es... »
 
@@ -106,7 +106,7 @@ Il perdit tout sang-froid et recula, sous le choc. La terreur dans ses yeux atte
 
 Cependant, il fut trop lent. Le gaz noir et blanc franchit le filet qui scellait ce vide. En s'élançant, le gaz s'étendit et accéléra pour traquer le vieil homme.
 
-En un instant, le gaz noir et blanc le rattrapa. Que le vieil homme tentât la téléportation ou la fusion avec le monde, tout devint vain face au gaz émanant de la Perle Défiant les Cieux.
+En un instant, le gaz noir et blanc le rattrapa. Que le vieil homme tentât la téléportation ou la fusion avec le monde, tout devint vain face au gaz émanant de la Perle Défiant le Ciel.
 
 Lorsque le gaz se referma sur lui, il enveloppa le vieil homme. Son corps trembla violemment, ses yeux étaient remplis d'effroi et son cœur battait si fort qu'il n'entendait plus rien d'autre.
 

@@ -58,7 +58,7 @@ Il explora les montagnes environnantes, capturant de petits animaux, tandis que 
 
 Wang Lin fronça les sourcils en les observant. Il renforça le Royaume Ji protégeant la grotte avant de creuser une autre cavité sur le côté pour y jeter le reste des petits animaux capturés.
 
-Une fois terminé, il se frappa le front et la Perle Défiant les Cieux apparut. La perle fit un tour autour de lui avant de plonger immédiatement dans la vigne du Fruit d'Or Brûlant à ses côtés.
+Une fois terminé, il se frappa le front et la Perle Défiant le Ciel apparut. La perle fit un tour autour de lui avant de plonger immédiatement dans la vigne du Fruit d'Or Brûlant à ses côtés.
 
 Tous les fruits sur la vigne rétrécirent et disparurent à vue d'œil, tandis que tout l'élément bois était absorbé par la bille de pierre.
 
@@ -68,7 +68,7 @@ Un éclair de joie traversa le visage de Wang Lin alors qu'il tendait la main po
 
 Wang Lin prit une profonde inspiration. Après avoir réfléchi un instant, il quitta la grotte et courut vers les volcans. Il lui fallut trois jours pour récolter toutes les vignes de Fruits d'Or Brûlants de la zone, les faisant ainsi disparaître de cette région.
 
-La Perle Défiant les Cieux possédait désormais cinq feuilles.
+La Perle Défiant le Ciel possédait désormais cinq feuilles.
 
 Trois jours plus tard, Wang Lin inspecta à nouveau la petite grotte et vit des déjections sur le sol. Un petit animal tremblait dans un coin. Après avoir digéré la nourriture consommée trois jours auparavant, il n'avait plus rien mangé depuis et était désormais très affaibli.
 

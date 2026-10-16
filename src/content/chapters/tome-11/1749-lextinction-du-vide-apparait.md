@@ -8,7 +8,7 @@ slug: lextinction-du-vide-apparait
 ---
 Chapitre 1749 - L'Extinction du Vide apparaît!
 
-Dans la partie orientale du vaste Système Stellaire d'Allheaven se trouvait une planète. Bien que cette planète possédât de l'énergie spirituelle, celle-ci n'était pas dense; c'était une planète de culture ordinaire.
+Dans la partie orientale du vaste Système Stellaire de Luotian se trouvait une planète. Bien que cette planète possédât de l'énergie spirituelle, celle-ci n'était pas dense; c'était une planète de culture ordinaire.
 
 Après les deux guerres, il ne restait plus beaucoup de cultivateurs sur ce monde. Seuls des cultivateurs de l'Établissement des Fondations et de la Formation du Noyau subsistaient. La plupart des sectes avaient été abandonnées.
 

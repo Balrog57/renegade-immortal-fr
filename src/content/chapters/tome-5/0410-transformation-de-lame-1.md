@@ -63,7 +63,7 @@ Un mois plus tard, toutes les pierres célestes de Wang Lin s'étaient brisées 
 
 Son sens divin s'étendit pour couvrir la majeure partie de la lune. Après avoir achevé 1 % de sa conversion, son sens divin était devenu plus puissant.
 
-« La Secte du Raffinement de l'Âme doit posséder d'importantes réserves de pierres célestes… Les autres sectes en ont certainement aussi… Je ne peux pas les demander, alors je devrai les voler. Je dois atteindre le stade de la Transformation de l'Âme! » Les yeux de Wang Lin s'illuminèrent, puis son corps disparut.
+« La Secte du Affinement de l'Âme doit posséder d'importantes réserves de pierres célestes… Les autres sectes en ont certainement aussi… Je ne peux pas les demander, alors je devrai les voler. Je dois atteindre le stade de la Transformation de l'Âme! » Les yeux de Wang Lin s'illuminèrent, puis son corps disparut.
 
 Zhou Ru était apathique. Montée sur le dos de Petit Blanc, elle contemplait la vaste plaine qui s'étendait devant elle.
 
@@ -99,6 +99,6 @@ La lune n'étant pas loin de la planète Suzaku, il ne fallut qu'un demi-mois po
 
 « Qu'est-ce que c'est que ça? » Wang Lin fronça les sourcils en scannant la planète. Il percevait une aura puissante émanant de là, provenant d'une plante gigantesque faite de brouillard noir.
 
-« C'est… le Clan des Immortels Abandonnés! » Les yeux de Wang Lin devinrent glacials alors qu'il fondait sur la planète Suzaku tel un météore.
+« C'est… le Clan des Immortels Délaissés! » Les yeux de Wang Lin devinrent glacials alors qu'il fondait sur la planète Suzaku tel un météore.
 
 Perçant l'atmosphère planétaire, la boussole des étoiles descendit à une vitesse fulgurante. Il aperçut au loin une dizaine de cultivateurs engagés dans des combats à mort, et il en reconnut un parmi eux.

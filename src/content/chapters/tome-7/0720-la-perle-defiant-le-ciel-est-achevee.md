@@ -102,7 +102,7 @@ Une restriction se forma et recouvrit la zone touchée par la lumière violette.
 
 Aucune créature vivante ne pouvait franchir cette restriction!
 
-C'était comme si la zone couverte par la lumière violette avait été extraite du Système Stellaire d'Allheaven par un sortilège inimaginable, pour être isolée de tout le reste.
+C'était comme si la zone couverte par la lumière violette avait été extraite du Système Stellaire de Luotian par un sortilège inimaginable, pour être isolée de tout le reste.
 
 Seule cette porte gigantesque subsistait dans ce monde.
 

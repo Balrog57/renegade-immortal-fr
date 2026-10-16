@@ -42,7 +42,7 @@ Il comprit enfin pourquoi l'ancêtre de la famille Ran avait offert cette pilule
 
 Cette simple phrase fit trembler le corps de Sun Tai, et un sentiment complexe envahit son cœur. Ce petit cultivateur d'autrefois osait lui parler ainsi, mais hélas, une seule phrase suffisait à faire vaciller son âme.
 
-Sun Tai dit amèrement: « Je... Lorsque j'ai été transféré vers le Système Stellaire Allheaven, je suis apparu près de la planète Dong Lin. J'y ai vécu pendant près d'un siècle, travaillant pour la famille Lu. Ce n'est qu'après cela que j'ai enfin regagné ma liberté.
+Sun Tai dit amèrement: « Je... Lorsque j'ai été transféré vers le Système Stellaire Luotian, je suis apparu près de la planète Dong Lin. J'y ai vécu pendant près d'un siècle, travaillant pour la famille Lu. Ce n'est qu'après cela que j'ai enfin regagné ma liberté.
 
 La marque dans mon corps a été brisée par un membre de la famille Lu. Je... je n'avais aucune idée que la marque existait encore. »
 

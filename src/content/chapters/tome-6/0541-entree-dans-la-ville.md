@@ -6,9 +6,9 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 541 - Entering The City
 slug: entree-dans-la-ville
 ---
-Alors que les membres de la tribu du Raffinement de l'Âme sortaient lentement, quelqu'un s'agenouilla soudainement et, bientôt, chaque membre de la tribu s'inclina dans la direction où Wang Lin s'était envolé.
+Alors que les membres de la tribu du Affinement de l'Âme sortaient lentement, quelqu'un s'agenouilla soudainement et, bientôt, chaque membre de la tribu s'inclina dans la direction où Wang Lin s'était envolé.
 
-Dans leurs cœurs, Wang Lin était l'ancêtre de toute la tribu du Raffinement de l'Âme. Tant qu'il serait là, la tribu ne serait jamais détruite.
+Dans leurs cœurs, Wang Lin était l'ancêtre de toute la tribu du Affinement de l'Âme. Tant qu'il serait là, la tribu ne serait jamais détruite.
 
 Ouyang Hua s'agenouilla également. Ces quatre dernières années défilèrent dans son esprit. Sa culture avait grimpé en flèche durant cette période, et tout cela lui semblait n'être qu'un rêve.
 
@@ -16,7 +16,7 @@ En regardant les plus de 5 000 membres de la tribu derrière lui, le seul mot qu
 
 Wang Lin s'éloigna pas à pas jusqu'à disparaître progressivement de la vue de tous, mais personne ne se redressa.
 
-À cinq kilomètres de la tribu du Raffinement de l'Âme, Wang Lin frappa son sac de stockage et une lumière pourpre et dorée en jaillit. Elle se transforma en une bête gigantesque d'une taille d'environ trente-trois mètres, de couleur pourpre et or, dont la gueule acérée était particulièrement oppressante.
+À cinq kilomètres de la tribu du Affinement de l'Âme, Wang Lin frappa son sac de stockage et une lumière pourpre et dorée en jaillit. Elle se transforma en une bête gigantesque d'une taille d'environ trente-trois mètres, de couleur pourpre et or, dont la gueule acérée était particulièrement oppressante.
 
 C'était la bête moustique!
 
@@ -58,7 +58,7 @@ Auparavant, lorsque Wang Lin était entré pour la première fois dans les Terre
 
 Il y avait des tribus fortes et faibles, grandes et petites, et leur population variait considérablement.
 
-« Si ma tribu du Raffinement de l'Âme parvient à unir toutes les tribus des Terres des Esprits Démoniques, elle deviendra une force capable de choquer les neuf pays de cette région! » Les yeux de Wang Lin devinrent froids.
+« Si ma tribu du Affinement de l'Âme parvient à unir toutes les tribus des Terres des Esprits Démoniques, elle deviendra une force capable de choquer les neuf pays de cette région! » Les yeux de Wang Lin devinrent froids.
 
 Après sept jours, la Grande Muraille Antique apparut au loin. Lorsqu'ils furent à 50 kilomètres de la cité, Wang Lin rangea la bête moustique et lui, Treize et Hu Pao atterrirent sur le sol.
 

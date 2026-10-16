@@ -104,11 +104,11 @@ La Perle Défiant le Ciel était divisée entre le yin et le yang. Les deux n'é
 
 « Soleil et lune, yin et yang... » Tandis qu'il méditait, la Bête du Tonnerre volait à travers l'espace étoilé. Après un temps indéterminé, Wang Lin frappa son sac de rangement et un jade apparut dans sa main.
 
-C'était un objet laissé par Shengong Hu: une carte stellaire détaillée du domaine sud du Système Stellaire d'Allheaven. Elle contenait des descriptions précises, ce qui permettrait à Wang Lin de ne pas se perdre.
+C'était un objet laissé par Shengong Hu: une carte stellaire détaillée du domaine sud du Système Stellaire de Luotian. Elle contenait des descriptions précises, ce qui permettrait à Wang Lin de ne pas se perdre.
 
 La région devant lui était considérée comme la zone sauvage du domaine sud. La plupart des planètes y étaient désertes et sans particularité. Les cultivateurs puissants s'y rendaient rarement. Cependant, des mortels y vivaient sur certaines planètes, aux côtés de quelques familles de culture de bas rang.
 
-« Dans vingt ans, je dois me préparer pour le voyage vers le Royaume Céleste du Tonnerre. De plus, certains de mes sorts nécessitent des ajustements. Beaucoup d'entre eux ne sont pas conformes à la troisième étape que j'ai aperçue. Si je continue à les utiliser, ma voie sera erronée. En particulier, je dois rapidement collecter les esprits vengeurs nécessaires pour ma Rivière des Enfers. Et il est temps que je possède ma propre planète de culture dans le Système Stellaire d'Allheaven! »
+« Dans vingt ans, je dois me préparer pour le voyage vers le Royaume Céleste du Tonnerre. De plus, certains de mes sorts nécessitent des ajustements. Beaucoup d'entre eux ne sont pas conformes à la troisième étape que j'ai aperçue. Si je continue à les utiliser, ma voie sera erronée. En particulier, je dois rapidement collecter les esprits vengeurs nécessaires pour ma Rivière des Enfers. Et il est temps que je possède ma propre planète de culture dans le Système Stellaire de Luotian! »
 
 Alors qu'il réfléchissait, ses yeux s'illuminèrent. Devant lui se trouvait une planète délaissée, mais pleine de vitalité, ce qui signifiait qu'une multitude de mortels y vivaient. La raison pour laquelle il avait choisi cet endroit était sa grande similitude avec la planète Suzaku!
 

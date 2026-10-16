@@ -28,7 +28,7 @@ Ce n'est qu'une fois la possession accomplie qu'il pourrait utiliser la lignée 
 
 Le regard de Wang Lin était glacial alors qu'il observait l'ancêtre du Clan des Démons Géants. Il pointa l'étendard des âmes, et une nouvelle salve de fragments d'âmes s'élança.
 
-Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant les Cieux. Il devait le tuer, quoi qu'il en coûte.
+Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant le Ciel. Il devait le tuer, quoi qu'il en coûte.
 
 Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex colossal apparut soudainement au-dessus de l'ancêtre du Clan des Démons Géants.
 

@@ -26,7 +26,7 @@ Ce fut comme s'il entendait le monde entier s'effondrer autour de lui.
 
 Poussé par une peur intense, l'homme parvint à trouver le courage de se relever brusquement. Il recula tout en paraissant anxieux et rugit: « Zhou Cong Yun, tu me calomnies! En tant que messager du Temple Céleste du Tonnerre, j'ai le droit d'ordonner à chacun d'entre vous de déplacer la planète, et vous devez tous obéir à mes commandements. Comment oses-tu m'insulter ainsi? Quelles sont tes intentions? »
 
-« Aîné, n'écoutez pas les calomnies de cet homme! J'ai tout fait pour aider Allheaven à se préparer au combat. Je n'ai absolument pas forcé la cultivatrice Xi Zi. Je connais même la cultivatrice Xi Zi, alors comment pourrais-je... » L'homme d'âge moyen recula rapidement jusqu'à une distance de plus de mille pieds.
+« Aîné, n'écoutez pas les calomnies de cet homme! J'ai tout fait pour aider Luotian à se préparer au combat. Je n'ai absolument pas forcé la cultivatrice Xi Zi. Je connais même la cultivatrice Xi Zi, alors comment pourrais-je... » L'homme d'âge moyen recula rapidement jusqu'à une distance de plus de mille pieds.
 
 Wang Lin observa l'homme qui fuyait avec le même regard glacial qu'il avait posé sur la destruction de la planète Dong Lin. Ayant traversé tant d'épreuves, il comprit immédiatement la vérité d'un simple coup d'œil.
 
@@ -36,13 +36,13 @@ Beaucoup de choses peuvent survenir en huit cents ans. Le passé n'était qu'un 
 
 Wang Lin fixa l'homme d'âge moyen qui reculait, terrorisé. Une lueur de froideur traversa ses yeux et il leva la main droite.
 
-« Tu ne peux pas me tuer! Je suis un messager du Temple Céleste du Tonnerre! J'agis sous les ordres du Temple pour préparer le combat! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Céleste du Tonnerre et tu entraveras les préparatifs de guerre d'Allheaven. Non seulement tu seras l'ennemi d'Allheaven, mais tu te feras aussi l'ennemi des quatre systèmes stellaires! »
+« Tu ne peux pas me tuer! Je suis un messager du Temple Céleste du Tonnerre! J'agis sous les ordres du Temple pour préparer le combat! Si tu me tues maintenant, tu deviendras l'ennemi du Temple Céleste du Tonnerre et tu entraveras les préparatifs de guerre de Luotian. Non seulement tu seras l'ennemi de Luotian, mais tu te feras aussi l'ennemi des quatre systèmes stellaires! »
 
 « Mon niveau de culture n'est pas élevé, mais je reste une force capable de résister au Royaume Extérieur! Je veux combattre le Royaume Extérieur, je veux consacrer toute ma force à lutter pour le Royaume Intérieur, tu ne peux pas me tuer! Même si tu veux ma mort, donne-moi la chance de combattre le Royaume Extérieur et de mourir sur le champ de bataille! » L'homme d'âge moyen reculait en hurlant toutes les excuses qui lui passaient par la tête.
 
 Dans sa jeunesse, il avait été un homme de mots, vif et éloquent. Face à la mort, son talent s'exprimait avec une intensité totale!
 
-« Je n'aurai aucun regret si je meurs au combat. Je ne veux pas mourir à Allheaven avant d'avoir pu consumer ma vie. J'ai eu tort, mais mon crime ne mérite pas la peine de mort! Si tu dois me tuer, accorde-moi cent ans de vie pour que je puisse combattre pour le Royaume Intérieur! »
+« Je n'aurai aucun regret si je meurs au combat. Je ne veux pas mourir à Luotian avant d'avoir pu consumer ma vie. J'ai eu tort, mais mon crime ne mérite pas la peine de mort! Si tu dois me tuer, accorde-moi cent ans de vie pour que je puisse combattre pour le Royaume Intérieur! »
 
 S'il s'était agi d'un cultivateur ordinaire, ces paroles l'auraient touché et il aurait pu lui laisser la vie sauve. Ce discours était impressionnant, empreint d'une volonté de mourir pour le Royaume Intérieur.
 
@@ -68,7 +68,7 @@ La pilule dégageait de puissantes fluctuations d'énergie originelle. Sa simple
 
 ***
 
-À l'intérieur d'Allheaven, sur une planète à moitié abandonnée, la neige tombait du ciel, recouvrant la terre d'un manteau blanc. Dans la partie septentrionale de la planète se dressait une montagne enneigée.
+À l'intérieur de Luotian, sur une planète à moitié abandonnée, la neige tombait du ciel, recouvrant la terre d'un manteau blanc. Dans la partie septentrionale de la planète se dressait une montagne enneigée.
 
 Xi Zifeng se tenait au sommet. Le visage pâle, elle avait réprimé ses larmes par la force de sa volonté tandis qu'elle méditait en silence.
 
@@ -106,7 +106,7 @@ Elle s'inclina dans la neige et murmura: « Ce disciple salue le Maître... » L
 
 Cependant, ces trous furent rapidement comblés par la chute de la neige... Wang Lin dit doucement: « Viens avec moi... »
 
-Xi Zifeng se redressa et murmura: « La demeure de ce disciple est à Allheaven... »
+Xi Zifeng se redressa et murmura: « La demeure de ce disciple est à Luotian... »
 
 Wang Lin réfléchit en silence. Après un long moment, il agita la main droite. Une puissante vague d'énergie originelle pénétra le corps de Xi Zifeng. Tout en consolidant son âme originelle, il y insuffla autant de compréhension qu'elle pouvait actuellement supporter.
 

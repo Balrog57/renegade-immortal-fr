@@ -51,7 +51,7 @@ Le Qilin poussa un rugissement puissant et se débattit avec acharnement, faisan
 
 Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà aussi fort qu'un cultivateur au stade tardif de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il atteindrait bientôt la puissance d'un cultivateur de la Transformation de l'Âme.
 
-Le regard de Wang Lin s'assombrit. Il leva la main droite et le piège à bêtes vola hors de sa main; il atterrit sur le côté et se transforma en char de guerre tueur de dieux. La bête avait considérablement faibli après son combat contre Papillon Rouge, mais dès qu'elle vit le Qilin, son corps trembla et ses yeux s'emplirent d'avidité.
+Le regard de Wang Lin s'assombrit. Il leva la main droite et le piège à bêtes vola hors de sa main; il atterrit sur le côté et se transforma en Char de Guerre Divin. La bête avait considérablement faibli après son combat contre Papillon Rouge, mais dès qu'elle vit le Qilin, son corps trembla et ses yeux s'emplirent d'avidité.
 
 En voyant la bête spirituelle, le Qilin poussa un rugissement comme s'il venait de croiser son ennemi naturel. Il cessa de lutter contre les restrictions pour révéler une intention purement combative.
 

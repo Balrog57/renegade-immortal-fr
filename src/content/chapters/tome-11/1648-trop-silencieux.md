@@ -8,7 +8,7 @@ slug: trop-silencieux
 ---
 Alors que Wang Lin se tenait au sommet de la statue, son regard balaya le monde. Il vit les visages familiers parmi les rayons de lumière qui fonçaient vers lui. Il vit la détermination sur ces traits connus et sentit, dans leurs rugissements, leur volonté de sacrifier leur vie.
 
-Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Treize, son serviteur Big Head, son frère Situ, son aîné South Cloud et bien d'autres encore. Les regards de ces milliers de cultivateurs convergeaient comme si un même sang bouillonnant les reliait.
+Il y avait là des personnes que Wang Lin connaissait, notamment son disciple Treize, son serviteur Da Tou, son frère Situ, son aîné South Cloud et bien d'autres encore. Les regards de ces milliers de cultivateurs convergeaient comme si un même sang bouillonnant les reliait.
 
 Ce sentiment de sang chaud ne disparaîtrait pas; au plus, il se stabiliserait avec le passage des années. Cependant, à l'instant de la crise, cette ferveur jaillissait de nouveau.
 
@@ -46,7 +46,7 @@ Pour lui, les survivants du Royaume Extérieur n'avaient nulle part où se cache
 
 Alors que des grondements monstrueux résonnaient, une douzaine de cultivateurs du Royaume Extérieur furent détectés à plusieurs millions de kilomètres devant lui. Chacun d'eux portait une marque entre les sourcils et ils fuyaient en panique.
 
-Ils se dirigeaient vers Allheaven, car la plupart des envahisseurs du Royaume Extérieur s'y trouvaient. Les autres systèmes stellaires ne comptaient que peu de présence.
+Ils se dirigeaient vers Luotian, car la plupart des envahisseurs du Royaume Extérieur s'y trouvaient. Les autres systèmes stellaires ne comptaient que peu de présence.
 
 Avant même qu'ils ne puissent s'éloigner, les hurlements derrière eux les frappèrent. Sous le choc, ils accélérèrent leur fuite.
 

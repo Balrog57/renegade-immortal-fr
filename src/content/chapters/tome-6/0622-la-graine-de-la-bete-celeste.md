@@ -106,7 +106,7 @@ Des centaines de fils bleus se précipitèrent vers Wang Lin.
 
 Wang Lin n'était pas étranger à cette scène. Autrefois, il avait affronté une armée de nourriture pour bêtes célestes des centaines de fois plus vaste. Ici, il n'y en avait pas même un millier, il n'avait donc aucune nervosité.
 
-Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte du Raffinement de l'Âme apparut!
+Il frappa son sac de stockage et un drapeau d'âme apparut dans sa main. Ayant déjà des doutes avant de venir, il était préparé. Il agita le drapeau et le qilin qu'il avait obtenu à la Secte du Affinement de l'Âme apparut!
 
 Bien que cette bête ne soit que l'âme d'un qilin, elle possédait encore une part de son héritage. En apparaissant, elle poussa un rugissement. Son corps trembla et sa tête massive se fixa instantanément sur la nourriture pour bêtes célestes qui fonçait sur lui.
 

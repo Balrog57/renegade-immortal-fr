@@ -48,7 +48,7 @@ Après tout, au sein de la région de rang 5, la Secte Dao Pourpre était assez 
 
 Cependant, toutes ces menaces étaient vaines face à Wang Lin. Un simple Lu Yuncong ou un simple Secte Dao Pourpre n'étaient pas dignes, aux yeux de Wang Lin, de constituer une menace pour son existence!
 
-Qu'il s'agisse du Céleste du Tonnerre d'Allheaven, de l'Empereur Divin de l'Oiseau Vermillon, du disciple de la génération suivante du Céleste Empereur Bai Fang, du jeune apprenti du Seigneur Céleste Qing Shui ou du disciple de l'actuel Céleste Empereur Qing Lin, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Dao Pourpre pouvait offrir.
+Qu'il s'agisse du Céleste du Tonnerre de Luotian, de l'Empereur Divin de l'Oiseau Vermillon, du disciple de la génération suivante du Céleste Empereur Bai Fang, du jeune apprenti du Seigneur Céleste Qing Shui ou du disciple de l'actuel Céleste Empereur Qing Lin, chacun de ces titres pesait bien plus lourd que tout ce que la Secte Dao Pourpre pouvait offrir.
 
 Les plus de 1 000 ans d'expérience de culture de Wang Lin n'avaient rien à voir avec le talent d'un génie comme Lu Yuncong. La menace de la Secte Dao Pourpre était une plaisanterie; elle ne représentait même pas un cheveu sur la tête de Tuo Sen!
 

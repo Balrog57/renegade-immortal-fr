@@ -62,7 +62,7 @@ Les avatars de l'Omniscient convergèrent également. Wang Wei et Hu Juan serrè
 
 Simultanément, les quelque cent disciples de la Secte Divine de l'Oiseau Vermillon n'attendirent aucun ordre. Ils s'assirent tous en position de lotus. Leurs mains tracèrent des sceaux et, en un instant, toutes leurs âmes originelles jaillirent.
 
-Dès que leurs âmes originelles apparurent, une chaleur intense se fit sentir. Ce qui stupéfia Big Head et les autres, fut qu'aussitôt manifestées, ces âmes commencèrent à fusionner.
+Dès que leurs âmes originelles apparurent, une chaleur intense se fit sentir. Ce qui stupéfia Da Tou et les autres, fut qu'aussitôt manifestées, ces âmes commencèrent à fusionner.
 
 Il faut savoir que l'âme originelle est l'essence même de la culture d'un individu. En raison des différences de domaines, une telle fusion était normalement impossible; toute tentative de fusion ne serait qu'une dévoration. À moins de posséder un trésor défiant les cieux, deux âmes originelles ne pouvaient coexister.
 
@@ -70,7 +70,7 @@ Pourtant, ces cent âmes fusionnèrent rapidement pour former un géant de flamm
 
 En voyant cela, les pupilles de Wang Lin se contractèrent. Une pointe de curiosité envers la Secte Divine de l'Oiseau Vermillon naquit en lui.
 
-Les six grands cultivateurs Briseurs de Nirvana et le géant de feu formé par les âmes des disciples affrontaient l'Ancien Démon Ta Jia. Wang Wei, Hu Juan et l'Impératrice Fleur combattirent les cinq avatars de l'Omniscient. Sur le flanc, Maître Hollow Wind, Situ Nan — qui réprimait de force son poison —, Big Head et les autres utilisaient leurs sorts pour prêter main-forte. En un instant, la bataille devint d'une intensité extrême.
+Les six grands cultivateurs Briseurs de Nirvana et le géant de feu formé par les âmes des disciples affrontaient l'Ancien Démon Ta Jia. Wang Wei, Hu Juan et l'Impératrice Fleur combattirent les cinq avatars de l'Omniscient. Sur le flanc, Maître Fu Fengzi, Situ Nan — qui réprimait de force son poison —, Da Tou et les autres utilisaient leurs sorts pour prêter main-forte. En un instant, la bataille devint d'une intensité extrême.
 
 L'Impératrice Fleur ne devait pas seulement lutter contre l'avatar de l'Omniscient, elle devait aussi gérer l'entité humanoïde. La terre dans un rayon de cinquante kilomètres grondait et divers sortilèges illuminaient le paysage.
 

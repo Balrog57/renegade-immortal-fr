@@ -52,7 +52,7 @@ Wang Lin ne prêta aucune attention à Ling Er; son regard restait verrouillé s
 
 Ce sentiment étrange s'intensifia de nouveau. Cependant, même après que le soleil fut monté dans les airs, Wang Lin n'atteignit pas l'éveil.
 
-Le temps passa lentement et les jours défilèrent. Wang Lin avait oublié depuis combien de temps il était assis là. Il remarqua même que les frères Chen, Maître Vent Creux et Big Head étaient tous venus s'installer à proximité.
+Le temps passa lentement et les jours défilèrent. Wang Lin avait oublié depuis combien de temps il était assis là. Il remarqua même que les frères Chen, Maître Vent Creux et Da Tou étaient tous venus s'installer à proximité.
 
 Il scrutait sans cesse l'horizon, ses yeux injectés de sang. Pourtant, cela ne l'importait guère. C'était comme si tout le reste avait disparu du monde, et que seule importait l'instant où le soleil se lèverait.
 
@@ -76,7 +76,7 @@ Loin d'eux, les yeux de Maître Vent Creux brillèrent. Il regarda le sommet et 
 
 Maître Vent Creux était tiraillé intérieurement.
 
-Big Head, Ta Shan et Lei Ji étaient également venus. Après tout, Wang Lin cultivait ici depuis un mois entier, et les trois ne pouvaient s'empêcher d'être préoccupés.
+Da Tou, Ta Shan et Lei Ji étaient également venus. Après tout, Wang Lin cultivait ici depuis un mois entier, et les trois ne pouvaient s'empêcher d'être préoccupés.
 
 Alors que le soleil se levait et se couchait, le temps s'écoula rapidement. Un autre mois s'était écoulé.
 

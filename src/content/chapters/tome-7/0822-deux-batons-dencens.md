@@ -40,7 +40,7 @@ Wang Lin ne pouvait donc que faire au mieux: il extrayait divers trésors pour s
 
 Il y avait également deux morceaux de jade dans leurs sacs. D'après leurs souvenirs, ces jades servaient à contacter la famille Yao. On pouvait dire que la famille Yao avait déployé des forces considérables pour s'en prendre à lui.
 
-Presque chaque cultivateur du Système Stellaire d'Allheaven ayant atteint la deuxième étape possédait une copie de ce jade. Un portrait de Wang Lin y était inscrit.
+Presque chaque cultivateur du Système Stellaire de Luotian ayant atteint la deuxième étape possédait une copie de ce jade. Un portrait de Wang Lin y était inscrit.
 
 Tenant les deux jades, l'expression de Wang Lin devint sombre. Il scruta l'horizon.
 
@@ -60,7 +60,7 @@ Il nourrissait de nombreux griefs contre les quatre grandes familles, particuli�
 
 Il se transforma en météore et fendit la voûte étoilée.
 
-« La famille Yao est trop vaste, il n'y a donc aucun endroit sûr dans le Système Stellaire d'Allheaven... De plus, il existe certainement des individus aussi puissants, voire plus que l'Ancêtre de Sang! » Wang Lin fronça les sourcils, le cœur assombri.
+« La famille Yao est trop vaste, il n'y a donc aucun endroit sûr dans le Système Stellaire de Luotian... De plus, il existe certainement des individus aussi puissants, voire plus que l'Ancêtre de Sang! » Wang Lin fronça les sourcils, le cœur assombri.
 
 En volant, des ondulations apparurent sous ses pieds. La moitié de son corps fusionnait avec le monde, mais il n'utilisait pas la Déviation Spatiale. Il maintint cet état pour poursuivre sa route.
 
@@ -72,7 +72,7 @@ Simultanément, sept autres faisceaux de lumière surgirent de la gauche et de l
 
 Sept autres rayons de lumière accoururent également de derrière lui.
 
-Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Entre la réception de l'information et maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire d'Allheaven! »
+Tout semblait bloqué. Le regard de Wang Lin devint glacial et il murmura: « Entre la réception de l'information et maintenant, seul le temps de la combustion de deux bâtons d'encens s'est écoulé. Il semble que les membres de la famille Yao soient dispersés à travers tout le Système Stellaire de Luotian! »
 
 Le corps de Wang Lin ne bougea pas. Il balaya l'assemblée du regard et ses yeux se plissèrent.
 

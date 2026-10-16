@@ -36,7 +36,7 @@ Les yeux de Wang Lin s'illuminèrent tandis qu'il murmurait pour lui-même: « I
 
 À l'extérieur du Royaume Céleste, tout se passait comme Wang Lin l'avait prévu. Même après avoir traversé le Dao Céleste, ils n'avaient pas renoncé à la recherche de la troisième âme. À cet instant, ils se trouvaient dans la Mer Nuageuse, progressant en formation, tandis que la gourde au-dessus de leurs têtes pulvérisait d'importantes quantités de brouillard.
 
-Ce brouillard servait de guide, et les quatre hommes le suivaient lentement. Ils volaient entre les étoiles et les continents flottants, se dirigeant vers Allheaven.
+Ce brouillard servait de guide, et les quatre hommes le suivaient lentement. Ils volaient entre les étoiles et les continents flottants, se dirigeant vers Luotian.
 
 Le Vieux Fantôme Zhan les suivait, l'expression sombre. Ils maintenaient un certain équilibre pour ne pas se déranger mutuellement.
 
@@ -68,13 +68,13 @@ Après avoir anéanti toute vie, des volutes de fumée s'échappèrent du contin
 
 « Plus la bête absorbe l'aura de réincarnation de la troisième âme, mieux elle pourra juger de son emplacement. Elle a déjà dévoré plusieurs fois, c'est donc presque imminent! »
 
-Les quatre généraux se regardèrent puis quittèrent ce continent mort. Ils suivirent la bête de brume jusqu'aux confins de la Mer Nuageuse. Cet endroit menait vers Allheaven!
+Les quatre généraux se regardèrent puis quittèrent ce continent mort. Ils suivirent la bête de brume jusqu'aux confins de la Mer Nuageuse. Cet endroit menait vers Luotian!
 
 Le Vieux Fantôme Zhan suivait derrière. En fixant la bête, ses yeux brillèrent d'espoir.
 
-« Il semble que la troisième âme soit dans Allheaven! J'ai passé le plus clair de mon temps dans Allheaven. Si la troisième âme s'y trouve vraiment, alors ce sera une personne ou une bête... »
+« Il semble que la troisième âme soit dans Luotian! J'ai passé le plus clair de mon temps dans Luotian. Si la troisième âme s'y trouve vraiment, alors ce sera une personne ou une bête... »
 
-De l'autre côté d'Allheaven se trouvait le Vide Brillant. Un nuage aux sept couleurs traversait rapidement le système stellaire. Le Daoïste aux Sept Couleurs fronça les sourcils en observant une goutte de sang cristallin dans sa main.
+De l'autre côté de Luotian se trouvait le Vide Brillant. Un nuage aux sept couleurs traversait rapidement le système stellaire. Le Daoïste aux Sept Couleurs fronça les sourcils en observant une goutte de sang cristallin dans sa main.
 
 Il avait exploré tout le Vide Brillant, à l'exception de la planète des Cinq Éléments. Il avait inspecté chaque centimètre du système stellaire, chaque planète et chaque grain de poussière, mais n'avait trouvé aucun indice.
 

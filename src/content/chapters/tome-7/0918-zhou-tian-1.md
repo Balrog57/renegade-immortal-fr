@@ -16,7 +16,7 @@ Xi Zifeng était rongée par l'anxiété tandis qu'elle s'enfuyait, les dents se
 
 Un homme d'âge moyen ricana en frappant son sac de rangement pour en sortir une aiguille dorée. Il la lança, et celle-ci vola droit vers Xi Zifeng.
 
-« Cette cultivatrice d'Allheaven sera mon 19ème fourneau de culture. Haha, je n'ai jamais goûté à une femme d'Allheaven auparavant. Il semble que je ne sois pas venu ici en vain! » L'homme d'âge moyen éclata de rire, tandis que l'épée volante sous ses pieds s'accélérait encore davantage.
+« Cette cultivatrice de Luotian sera mon 19ème fourneau de culture. Haha, je n'ai jamais goûté à une femme de Luotian auparavant. Il semble que je ne sois pas venu ici en vain! » L'homme d'âge moyen éclata de rire, tandis que l'épée volante sous ses pieds s'accélérait encore davantage.
 
 Voyant que l'aiguille dorée allait lui transpercer le dos, Xi Zifeng fit brusquement demi-tour et forma un sceau. Un éclair de lumière argentée jaillit pour tenter d'arrêter l'aiguille.
 
@@ -54,7 +54,7 @@ Tout s'était passé si vite que Xi Zifeng resta stupéfaite un instant, avant q
 
 Wang Lin observa calmement les cultivateurs qui reculaient précipitamment. Les mots qu'il venait de prononcer portaient en eux une émanation de la loi dont il venait d'atteindre l'illumination. Ses paroles étaient devenues une loi, convertie en une force de volonté pure.
 
-Les yeux de l'homme d'âge moyen reflétaient l'effroi et le choc. Une voix hurlait dans son esprit, lui faisant être certain qu'il faisait face à l'une des puissances suprêmes d'Allheaven!
+Les yeux de l'homme d'âge moyen reflétaient l'effroi et le choc. Une voix hurlait dans son esprit, lui faisant être certain qu'il faisait face à l'une des puissances suprêmes de Luotian!
 
 Cependant, il fut incapable d'émettre le moindre son, car son corps s'effondra sous la force de sa retraite forcée.
 
@@ -64,7 +64,7 @@ Tout comme dans la Terre des Démons, lorsque le Démon Dispersé pouvait faire 
 
 L'âme originelle de l'homme d'âge moyen s'échappa et commença à se dissiper. Alors qu'elle était sur le point de s'éteindre, une voix féminine émana du vide:
 
-« Tu es bel et bien digne d'être le Céleste du Tonnerre d'Allheaven, Xu Mu! » À l'instant où cette voix apparut, une silhouette surgit des étoiles lointaines. C'était un homme d'âge moyen au visage jaune terreux. Derrière lui s'étendaient d'innombrables ombres noires semblables à de longs manteaux flottant parmi les astres.
+« Tu es bel et bien digne d'être le Céleste du Tonnerre de Luotian, Xu Mu! » À l'instant où cette voix apparut, une silhouette surgit des étoiles lointaines. C'était un homme d'âge moyen au visage jaune terreux. Derrière lui s'étendaient d'innombrables ombres noires semblables à de longs manteaux flottant parmi les astres.
 
 L'être qui parlait était le cultivateur aux six doigts!
 

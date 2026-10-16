@@ -120,11 +120,11 @@ L'homme d'âge moyen qui s'était tu finit par dire: « Grand frère aîné, et 
 
 Ying Yang se frotta les tempes: « Cela reviendrait à nous faire un ennemi de la famille Teng. Bien que Teng Huayuan et moi soyons au stade avancé de l'Âme Naissante, je sais que je ne serais pas son égal en combat. »
 
-Un silence pesant s'installa. Après un moment, les yeux d'Ying Yang s'illuminèrent alors qu'il tranchait: « Ce vieux voleur Punnan Zi n'est toujours pas apparu, il doit y avoir quelque chose qui cloche. Peu importe. Teng Huayuan est connu pour sa rancune tenace. Si nous livrons les membres de la famille Teng maintenant et que Teng Huayuan survit, nos problèmes ne feront que commencer. Cadet, donne l'ordre d'activer toutes les formations défensives. Je les contrôlerai personnellement. Nous devons repousser cet homme. »
+Un silence pesant s'installa. Après un moment, les yeux d'Ying Yang s'illuminèrent alors qu'il tranchait: « Ce vieux voleur Pu Nanzi n'est toujours pas apparu, il doit y avoir quelque chose qui cloche. Peu importe. Teng Huayuan est connu pour sa rancune tenace. Si nous livrons les membres de la famille Teng maintenant et que Teng Huayuan survit, nos problèmes ne feront que commencer. Cadet, donne l'ordre d'activer toutes les formations défensives. Je les contrôlerai personnellement. Nous devons repousser cet homme. »
 
 L'homme hocha la tête, mais hésita: « Grand frère, et si Teng Huayuan... finissait par mourir? »
 
-Les yeux d'Ying Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Punnan Zi. Il interviendra à coup sûr. Et même si son propre niveau n'est pas suffisant, la présence de la personne de la Tour Céleste ne suffira-t-elle pas? »
+Les yeux d'Ying Yang brillèrent d'un éclat malicieux: « Ne sous-estime pas Pu Nanzi. Il interviendra à coup sûr. Et même si son propre niveau n'est pas suffisant, la présence de la personne de la Tour Céleste ne suffira-t-elle pas? »
 
 L'homme fut stupéfait, avant d'acquiescer d'un regard comprenant la situation.
 

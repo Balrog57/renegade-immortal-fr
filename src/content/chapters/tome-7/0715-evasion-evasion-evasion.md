@@ -74,7 +74,7 @@ Une excitation qu'il n'avait pas ressentie depuis cent ans envahit son corps. Il
 
 Il se remémora les cent dernières années. Il avait passé presque tout ce temps dans la zone d'excrétion de la bête. Pour lui, c'était une infamie! En particulier, cette odeur nauséabonde qu'il ne pourrait jamais oublier; bien que l'effluve eût disparu, il avait l'impression de pouvoir encore la sentir.
 
-Cupidité jura que, une fois échappé, il ne mettrait plus jamais les pieds dans le domaine nordique du système stellaire d'Allheaven. À l'avenir, lorsqu'il chasserait des trésors, il devrait être prudent, extrêmement prudent, et encore plus prudent!
+Cupidité jura que, une fois échappé, il ne mettrait plus jamais les pieds dans le domaine nordique du système stellaire de Luotian. À l'avenir, lorsqu'il chasserait des trésors, il devrait être prudent, extrêmement prudent, et encore plus prudent!
 
 Voyant la fissure se rapprocher, l'excitation de Cupidité atteignit son apogée!
 

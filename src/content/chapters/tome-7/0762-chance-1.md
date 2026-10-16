@@ -88,7 +88,7 @@ D'innombrables petites gouttes de sang flottaient dans le vide du Royaume Céles
 
 Chaque goutte contenait une trace de l'âme originelle de l'Ancêtre Sanguin et une immense quantité d'énergie originelle. Lors de l'effondrement de l'espace de stockage, il avait utilisé trois Pilules d'Âme Sanguine ainsi qu'un sort secret de la famille Yao pour survivre.
 
-Lorsqu'il était arrivé dans le Système Stellaire d'Allheaven, l'Ancêtre Sanguin s'était montré trop confiant et n'avait pas pris de Pilule d'Âme Sanguine à l'avance. S'il l'avait fait, il serait apparu sur la Planète Sanguine du Système Stellaire de l'Alliance.
+Lorsqu'il était arrivé dans le Système Stellaire de Luotian, l'Ancêtre Sanguin s'était montré trop confiant et n'avait pas pris de Pilule d'Âme Sanguine à l'avance. S'il l'avait fait, il serait apparu sur la Planète Sanguine du Système Stellaire de l'Alliance.
 
 Ces gouttes de sang n'étaient pas totalement immobiles dans le vide, mais convergeaient étroitement les unes vers les autres. Une fois leur fusion accomplie, il s'éveillerait.
 

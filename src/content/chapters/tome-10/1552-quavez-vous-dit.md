@@ -8,11 +8,11 @@ slug: quavez-vous-dit
 ---
 Chapitre 1552 - Qu'avez-vous dit?
 
-Dans le système stellaire d'Allheaven, le Royaume Céleste du Tonnerre, presque anéanti, n'était plus que ruines. Il n'y laissait aucune trace de vie.
+Dans le système stellaire de Luotian, le Royaume Céleste du Tonnerre, presque anéanti, n'était plus que ruines. Il n'y laissait aucune trace de vie.
 
 Des fissures spatiales brisées apparaissaient sporadiquement, scintillant avant de disparaître, tels des fragments emportés par le vent.
 
-Maître Flamespark avait emporté la majeure partie des continents du Royaume Céleste du Tonnerre. Ce qui restait n'était que quelques rochers irréguliers flottant lentement dans ce monde dévasté.
+Maître Yan Leizi avait emporté la majeure partie des continents du Royaume Céleste du Tonnerre. Ce qui restait n'était que quelques rochers irréguliers flottant lentement dans ce monde dévasté.
 
 Au plus profond des ruines du Royaume Céleste du Tonnerre, un cercle de lumière brillait. Ce cercle, large de près de dix mille pieds, ressemblait à une sphère lumineuse.
 
@@ -122,7 +122,7 @@ Les grondements tonitruants résonnèrent et le monde vacilla. L'aura de l'homme
 
 Wang Lin eut un sourire colérique et fixa l'homme dans la lumière blanche. Il agita sa main droite et un arc surgit de son corps!
 
-« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. La Mer des Nuages a failli être rayée de la carte, la Rivière des Invocations est tombée, Allheaven déploie tous ses efforts et le Vide Brillant est à l'agonie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
+« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. La Mer des Nuages a failli être rayée de la carte, la Rivière des Invocations est tombée, Luotian déploie tous ses efforts et le Vide Brillant est à l'agonie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
 
 Je suis l'actuel Seigneur du Royaume Scellé. Je suis venu pour détruire le Royaume aux Sept Couleurs, sauver mon frère aîné Qing Shui et massacrer les cultivateurs du Royaume Extérieur. De quel droit m'interdisez-vous de faire cela?! »
 

@@ -40,7 +40,7 @@ La silhouette de Wang Lin apparut dans le ciel au-dessus du continent de Mo Luo.
 
 Après avoir franchi la barrière lumineuse entourant le continent, la mer de nuages apparut devant lui. Dans le jade contenu au sein du temple taoïste, outre les informations sur l'alchimie et les âmes de bêtes, figurait une carte stellaire de la région de rang 5 à laquelle appartenait le continent de Mo Luo. Après avoir étudié cette carte, Wang Lin découvrit qu'en plus des continents habités, il existait un autre type de territoires appelés « continents sauvages ».
 
-Ils ressemblaient aux planètes abandonnées de l'Alliance ou d'Allheaven. Cependant, dans la mer de nuages, ces continents sauvages ne possédaient pas de tours noires et restaient donc enveloppés par le brouillard stellaire. Ils servaient de repaires à de nombreuses bêtes féroces.
+Ils ressemblaient aux planètes abandonnées de l'Alliance ou de Luotian. Cependant, dans la mer de nuages, ces continents sauvages ne possédaient pas de tours noires et restaient donc enveloppés par le brouillard stellaire. Ils servaient de repaires à de nombreuses bêtes féroces.
 
 C'est sur ces continents que poussaient souvent les herbes les plus précieuses.
 

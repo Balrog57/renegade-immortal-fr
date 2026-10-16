@@ -120,7 +120,7 @@ Yunque Zi fixa l'inconnu et murmura pour lui-même: « Ye Wuyou? »
 
 « Zhuque Zi, ta durée de vie a atteint son terme, tu devrais être mort. Il est inutile de te forcer à rester! Tenter de briser le Cristal de la Planète de Culture est considéré comme un crime majeur au sein de l'Alliance de Culture. Compte tenu du fait que tu avais tes raisons, je ne poursuivrai pas cette affaire pour l'instant, mais tu dois quitter ce monde immédiatement! »
 
-Le visage de Zhuque Zi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Je peux partir, mais le Clan des Immortels Abandonnés... »
+Le visage de Zhuque Zi était empreint d'amertume alors qu'il hochait silencieusement la tête. Ses yeux s'illuminèrent et il dit: « Je peux partir, mais le Clan des Immortels Délaissés... »
 
 L'homme masqué l'interrompit: « Je m'en occuperai! »
 

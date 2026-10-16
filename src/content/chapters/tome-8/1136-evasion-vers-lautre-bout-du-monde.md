@@ -106,7 +106,7 @@ Un fracas tonitruant résonna alors que l'épée brisée était repoussée et en
 
 « Je ne peux pas laisser le vieil homme en noir se faire dévorer par l'étoile de Tuo Sen! » C'était la seule pensée qui occupait l'esprit de Wang Lin. Dès que la lance marqua son arrêt, il chargea sans hésiter. Sa vitesse atteignit ses limites alors qu'il se projetait devant la lance gigantesque.
 
-Son action fit rétrécir les pupilles du vieil homme en noir, fit trembler Maître Flamespark et plongea les huit rois de la Secte des Cadavres dans une terreur absolue. Wang Lin ferma les yeux et, au moment où la Lance Tueuse de Dieux allait l'atteindre, son corps se désintégra, ne laissant derrière lui qu'un fragment d'âme originelle. Avant de disparaître, ce fragment forma un sceau et envoya une commande à la Lance Tueuse de Dieux:
+Son action fit rétrécir les pupilles du vieil homme en noir, fit trembler Maître Yan Leizi et plongea les huit rois de la Secte des Cadavres dans une terreur absolue. Wang Lin ferma les yeux et, au moment où la Lance Tueuse de Dieux allait l'atteindre, son corps se désintégra, ne laissant derrière lui qu'un fragment d'âme originelle. Avant de disparaître, ce fragment forma un sceau et envoya une commande à la Lance Tueuse de Dieux:
 
 « J'utilise ma volonté pour entraver votre chemin! »
 
@@ -114,13 +114,13 @@ La Lance Tueuse de Dieux vacilla un instant, mais une aura violente en jaillit s
 
 « Je garderai la première étoile de l'ancien dieu pour toi! » Ce furent les derniers mots que Wang Lin entendit avant que son âme originelle ne soit annihilée...
 
-L'obstruction de Wang Lin et ce bref sursis permirent au vieil homme d'entrer dans le vortex et de disparaître. Maître Flamespark et les huit rois de la Secte des Cadavres s'engouffrèrent également dans le vortex pour s'évanouir.
+L'obstruction de Wang Lin et ce bref sursis permirent au vieil homme d'entrer dans le vortex et de disparaître. Maître Yan Leizi et les huit rois de la Secte des Cadavres s'engouffrèrent également dans le vortex pour s'évanouir.
 
-La Lance Tueuse de Dieux percuta directement le vortex, provoquant une onde de choc dévastatrice. Maître Flamespark venait à peine de franchir le vortex lorsqu'il fut frappé par cette force. Il cracha du sang et parut instantanément affaibli. Ses deux jambes explosèrent et même son âme originelle devint instable.
+La Lance Tueuse de Dieux percuta directement le vortex, provoquant une onde de choc dévastatrice. Maître Yan Leizi venait à peine de franchir le vortex lorsqu'il fut frappé par cette force. Il cracha du sang et parut instantanément affaibli. Ses deux jambes explosèrent et même son âme originelle devint instable.
 
-Il laissa échapper un sourire misérable, sa haine envers Tuo Sen n'ayant d'égale que celle qu'il vouait à Maître Zong Xuan! Voyant la force revenir, une folie dévorante s'empara de Maître Flamespark. Il était sur le point de sacrifier son corps pour permettre l'évasion de son âme originelle.
+Il laissa échapper un sourire misérable, sa haine envers Tuo Sen n'ayant d'égale que celle qu'il vouait à Maître Zong Xuan! Voyant la force revenir, une folie dévorante s'empara de Maître Yan Leizi. Il était sur le point de sacrifier son corps pour permettre l'évasion de son âme originelle.
 
-Le vieil homme en noir apparut aux côtés de Maître Flamespark, l'attrapa et disparut.
+Le vieil homme en noir apparut aux côtés de Maître Yan Leizi, l'attrapa et disparut.
 
 Les huit rois de la Secte des Cadavres réussirent enfin à s'échapper, mais la force dévastatrice les rattrapa aussitôt. Leurs corps tremblèrent et s'effondrèrent tandis que huit auras froides tentaient de s'enfuir. Cependant, face à cette puissance terrifiante, cinq d'entre eux furent pulvérisés.
 

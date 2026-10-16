@@ -70,7 +70,7 @@ Certains avaient été les ennemis de Wang Lin, d'autres ses proches, mais en ce
 
 Une aura de tristesse enveloppa le système stellaire. Les cultivateurs du Royaume Extérieur qui s'étaient précipités sur les lieux furent terrifiés par ce spectacle.
 
-À Allheaven, sur les dix-neuf planètes restantes, tous les cultivateurs se levèrent et s'inclinèrent vers les étoiles sans qu'aucun ne les dirige.
+À Luotian, sur les dix-neuf planètes restantes, tous les cultivateurs se levèrent et s'inclinèrent vers les étoiles sans qu'aucun ne les dirige.
 
 Maître South Cloud, Situ Nan, Maître Hong Shan, Qing Lin et les autres se levèrent sans exception, contemplant le ciel avec tristesse et respect!
 

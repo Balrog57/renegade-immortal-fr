@@ -14,15 +14,15 @@ Cependant, ce choc disparut rapidement et les yeux de Maître Lu Fu s'illuminèr
 
 « Heureusement, il n'a pas encore atteint le troisième stade! Tant qu'il n'a pas franchi cette étape, je ne crois pas qu'il oserait défier ce vieil homme! Peu importe s'il possède deux essences, ce ne sont que de la mauvaise herbe. S'il ne me provoque pas, cela m'importe peu; mais s'il ose faire un pas de travers, ce vieil homme lui enseignera ce qu'est réellement l'existence d'un cultivateur du troisième stade au début du Vide du Nirvana! »
 
-La planète Dong Ling, le lieu le plus mystérieux d'Allheaven! Wang Lin avait entendu parler de cet endroit par le passé.
+La planète Dong Ling, le lieu le plus mystérieux de Luotian! Wang Lin avait entendu parler de cet endroit par le passé.
 
-Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale d'Allheaven. Même pour un cultivateur au stade de Briseur du Nirvana, il était extrêmement difficile de localiser la planète Dong Ling.
+Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale de Luotian. Même pour un cultivateur au stade de Briseur du Nirvana, il était extrêmement difficile de localiser la planète Dong Ling.
 
 Même en utilisant son Sens Divin, on ne pouvait la trouver en raison de la structure unique de la planète. La grande majorité des cultivateurs devait s'en remettre à la vue nue pour la débusquer.
 
 Cependant, cela ne concernait pas Wang Lin!
 
-À cet instant, dans l'immensité de la partie orientale d'Allheaven, une planète de culture imposante flottait lentement. Des cratères étaient parsemés sur toute sa surface. La planète émettait une lueur jaune sombre et dégageait une pression écrasante.
+À cet instant, dans l'immensité de la partie orientale de Luotian, une planète de culture imposante flottait lentement. Des cratères étaient parsemés sur toute sa surface. La planète émettait une lueur jaune sombre et dégageait une pression écrasante.
 
 La planète Dong Ling!
 
@@ -46,7 +46,7 @@ Wang Lin, dont la vitalité avait été dérobée par l'Ancêtre, était revenu 
 
 Cette nouvelle avait secoué toute la famille Xiang. Après un instant de réflexion, le chef actuel de la famille et le Grand Ancien émirent immédiatement l'Ordre de Sang de Dong Ling!
 
-La famille Xiang était le véritable souverain secret de la planète Dong Ling, mais elle montrait rarement son visage. Même les cultivateurs d'Allheaven l'ignoraient, ne sachant que la présence de trois grandes familles sur la planète Dong Ling!
+La famille Xiang était le véritable souverain secret de la planète Dong Ling, mais elle montrait rarement son visage. Même les cultivateurs de Luotian l'ignoraient, ne sachant que la présence de trois grandes familles sur la planète Dong Ling!
 
 Les Xu, les Lu et les Liu!
 
@@ -58,17 +58,17 @@ Toutes les formations de la planète Dong Ling avaient été posées par la fami
 
 Enfin, la famille Liu s'était illustrée par le développement de trésors magiques. Leur Sortilège des Poupées de Sang était une fusion terrifiante de sorts et d'objets magiques. La rumeur disait que depuis sa création, il n'avait été utilisé qu'une seule fois.
 
-Cependant, lors de cet unique usage, il avait presque anéanti toute vie dans la partie orientale d'Allheaven, comme si l'apocalypse était survenue!
+Cependant, lors de cet unique usage, il avait presque anéanti toute vie dans la partie orientale de Luotian, comme si l'apocalypse était survenue!
 
 Ces trois grandes familles se livraient des combats incessants, utilisant ces méthodes cruelles pour maintenir la vitalité de leurs lignées. Pourtant, seuls quelques vieux monstres savaient qu'en vérité, les Xu, les Lu et les Liu n'étaient que des branches de la famille Xiang!
 
-La famille Xiang était la plus puissante du système stellaire d'Allheaven! Elle pouvait rivaliser avec le Temple Céleste du Tonnerre, lequel serait même en position de faiblesse! Bien sûr, cela était entendu sans compter Maître Lu Fu.
+La famille Xiang était la plus puissante du système stellaire de Luotian! Elle pouvait rivaliser avec le Temple Céleste du Tonnerre, lequel serait même en position de faiblesse! Bien sûr, cela était entendu sans compter Maître Lu Fu.
 
-La famille Xiang était tel un béhémoth assoupi. Dès son réveil, elle ébranlerait tout le système stellaire d'Allheaven!
+La famille Xiang était tel un béhémoth assoupi. Dès son réveil, elle ébranlerait tout le système stellaire de Luotian!
 
 C'est pour cette raison que Xiang Yundong, représentant de la famille Xiang, avait été choisi parmi les quatre disciples ayant appris un sortilège du Dao auprès de Maître Lu Fu, malgré sa culture manifestement insuffisante!
 
-Le choix des quatre personnes par Maître Lu Fu cachait une signification profonde, qu'il s'agisse du Dieu de Sang, de Lie Yunzi ou de Maître Flamespark!
+Le choix des quatre personnes par Maître Lu Fu cachait une signification profonde, qu'il s'agisse du Dieu de Sang, de Lie Yunzi ou de Maître Yan Leizi!
 
 Une rumeur circulait parmi certains vieux monstres. Elle concernait la famille Xiang, mais personne ne savait si elle était vraie ou fausse. Peut-être seul Maître Lu Fu pourrait-il l'authentifier!
 
@@ -78,7 +78,7 @@ La famille Xiang n'existait que pour monter la garde devant les portes de cette 
 
 Cette famille de culture antique existait depuis bien avant l'effondrement du Royaume Céleste. La puissance qu'elle avait accumulée était inimaginable!
 
-Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Allheaven lorsque Maître Lu Fu déclencha la guerre, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
+Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Luotian lorsque Maître Lu Fu déclencha la guerre, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
 
 L'ordre consistait à octroyer les titres célestes. Il s'agissait du vieil homme qui avait tenté de sceller l'essence du Serpent aux yeux de lune: Maître Yi Mu.
 

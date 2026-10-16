@@ -10,7 +10,7 @@ slug: laura-de-lancien-dieu
 
 En un clin d'œil, l'espace autour de l'Estimé Xuan Bao s'effondra. Tandis que les grondements faisaient écho, l'expression de l'Estimé Xuan Bao demeura calme. Il pointa du doigt la flèche de trois cents pieds et lança: « Nirvana Vide! »
 
-Les pupilles du Maître Flamespark se rétractèrent et il devint grave. Il se souvenait de cette flèche. C'était l'un des grands trésors de l'Alliance, la Flèche du Pseudo-Nirvana Vide!
+Les pupilles du Maître Yan Leizi se rétractèrent et il devint grave. Il se souvenait de cette flèche. C'était l'un des grands trésors de l'Alliance, la Flèche du Pseudo-Nirvana Vide!
 
 La rumeur prétendait que l'origine de cette flèche était inconnue et qu'elle existait depuis une éternité; elle était là dès l'époque du Royaume Céleste. On disait également que la tache de sang qui la maculait lui conférait des pouvoirs étranges.
 
@@ -26,11 +26,11 @@ Une fois apparu, le doigt d'ancien dieu fonça immédiatement vers la flèche.
 
 Le Serpent aux yeux de lune laissa échapper un rugissement de rage et d'innombrables serpents aux yeux de lune jaillirent de son corps. Ils étaient des centaines de milliers, de tailles diverses. À leur apparition, le champ de bataille devint encore plus chaotique.
 
-Ce combat ne se jouait plus entre Allheaven et l'Alliance, mais entre l'Alliance et le Serpent aux yeux de lune!
+Ce combat ne se jouait plus entre Luotian et l'Alliance, mais entre l'Alliance et le Serpent aux yeux de lune!
 
 Lorsque ces innombrables serpents jaillirent, les expressions des cultivateurs de l'Alliance changèrent radicalement. Ils battirent en retraite précipitamment, mais leur vitesse ne faisait pas le poids face aux serpents aux yeux de lune. Ces derniers se dispersèrent et entamèrent un véritable bain de sang.
 
-Au milieu du chaos, certains cultivateurs d'Allheaven furent touchés. Quant à Wang Lin, un serpent aux yeux de lune de trente mille pieds chargea vers lui. L'expression de ce dernier fut sombre alors qu'il l'évitait prestement, refusant de s'enliser dans le combat.
+Au milieu du chaos, certains cultivateurs de Luotian furent touchés. Quant à Wang Lin, un serpent aux yeux de lune de trente mille pieds chargea vers lui. L'expression de ce dernier fut sombre alors qu'il l'évitait prestement, refusant de s'enliser dans le combat.
 
 Wang Lin savait que la seule raison pour laquelle ces petits serpents aux yeux de lune apparaissaient était de condenser le doigt d'ancien dieu le plus puissant!
 
@@ -128,7 +128,7 @@ Cette scène fit changer d'expression l'Estimé Xuan Bao qui s'approchait!
 
 « Impossible! Selon les anciens récits, un Serpent aux yeux de lune ordinaire ne peut absolument pas survivre à un trésor du Pseudo-Nirvana Vide. Bien que ce spécimen soit grand et féroce, il devrait être mortellement blessé! »
 
-Le Maître Flamespark ricana en observant la scène:
+Le Maître Yan Leizi ricana en observant la scène:
 
 « Senior a dit que le but d'envoyer ce Serpent aux yeux de lune dans l'Alliance était de l'enrager. Plus sa rage est grande, plus les dégâts causés par cette bête seront immenses! »
 

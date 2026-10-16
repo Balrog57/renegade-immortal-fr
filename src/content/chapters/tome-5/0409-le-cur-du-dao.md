@@ -106,13 +106,13 @@ Même Tianyun Zi n'aurait jamais imaginé que le jeune cultivateur pour lequel i
 
 Si Tianyun Zi l'avait su, Wang Lin ne serait pas resté un simple disciple honorifique pendant cent ans, il serait devenu un véritable disciple doté de privilèges réels.
 
-« Situ, une fois que j'aurai atteint le stade de la Transformation de l'Âme, j'aurai le pouvoir de te réveiller... » Wang Lin prit une profonde inspiration en portant la main à son front. Peu après, son corps commença à s'effacer alors qu'il pénétrait dans la Perle Défiant les Cieux.
+« Situ, une fois que j'aurai atteint le stade de la Transformation de l'Âme, j'aurai le pouvoir de te réveiller... » Wang Lin prit une profonde inspiration en portant la main à son front. Peu après, son corps commença à s'effacer alors qu'il pénétrait dans la Perle Défiant le Ciel.
 
-À l'intérieur de la Perle Défiant les Cieux, la grande âme de Situ Nan flottait. Wang Lin apparut à ses côtés et la contempla en silence.
+À l'intérieur de la Perle Défiant le Ciel, la grande âme de Situ Nan flottait. Wang Lin apparut à ses côtés et la contempla en silence.
 
 Après avoir absorbé les deux bras, l'âme de Situ Nan n'était plus transparente; elle était désormais plus dense. Son âme dégageait une pression colossale, plusieurs fois supérieure à celle de l'ancêtre Du Tian.
 
-« Situ... » Wang Lin fixa silencieusement Situ Nan pendant un long moment avant de faire un pas et d'apparaître dans la partie est de la Perle Défiant les Cieux.
+« Situ... » Wang Lin fixa silencieusement Situ Nan pendant un long moment avant de faire un pas et d'apparaître dans la partie est de la Perle Défiant le Ciel.
 
 Une autre Âme Naissante se trouvait ici.
 
@@ -120,7 +120,7 @@ Cependant, les yeux de cette Âme Naissante étaient clos, comme si elle dormait
 
 « Wan Er... » Les yeux de Wang Lin s'adoucirent.
 
-Le liquide spirituel entourant Wan Er était la rosée de la Perle Défiant les Cieux. Wang Lin avait recueilli cette rosée durant l'année écoulée. Son but était d'aider à réparer l'Âme Naissante de Li Muwan et, avec le temps, de la rendre encore plus puissante.
+Le liquide spirituel entourant Wan Er était la rosée de la Perle Défiant le Ciel. Wang Lin avait recueilli cette rosée durant l'année écoulée. Son but était d'aider à réparer l'Âme Naissante de Li Muwan et, avec le temps, de la rendre encore plus puissante.
 
 « Wan Er, tu m'as attendu trois cents ans. Moi, Wang Lin, je n'ai aucun moyen de te rendre cela. Je protégerai ton Âme Naissante jusqu'à ton réveil, jusqu'à mon dernier souffle. » Wang Lin contempla l'Âme Naissante de Li Muwan durant un long moment...
 
@@ -138,7 +138,7 @@ Elle ressentit les lèvres de Wang Lin et sa chaleur. Cette chaleur portait en e
 
 L'amour est comme un fleuve; la rive gauche est le rire joyeux capable d'illuminer mille ans de tristesse, et la rive droite est un silence éternel qui persiste sous la lueur des bougies. Ce qui coule entre les deux, ce sont les années de solitude qui s'estompent.
 
-Wang Lin se détourna et quitta la Perle Défiant les Cieux. Bien qu'il en soit sorti physiquement, son cœur y demeurait pour l'éternité.
+Wang Lin se détourna et quitta la Perle Défiant le Ciel. Bien qu'il en soit sorti physiquement, son cœur y demeurait pour l'éternité.
 
 Au sommet de la montagne, sous la lumière des étoiles au milieu de la nuit, la silhouette solitaire sous la pluie semblait sur le point d'être brisée par le vent.
 

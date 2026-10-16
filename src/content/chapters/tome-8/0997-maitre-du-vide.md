@@ -42,7 +42,7 @@ Le vieil homme en robe dorée poussa un soupir et dit lentement: « Lorsque toi 
 
 Ling Tianhou réfléchit, mais la nostalgie dans ses yeux s'intensifia.
 
-« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Allheaven devenait sérieuse et mon frère aîné, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et l'Omniscient, j'ai décidé de venir pour clore le litige entre vous deux! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
+« Lorsque j'ai reçu ton jade il y a quelques mois, j'hésitais sur ma venue. Je ne voulais pas venir, car la guerre avec Luotian devenait sérieuse et mon frère aîné, Zhong Xuanzi, ne peut pas créer d'avatar. Cependant, compte tenu de ce qui s'est passé entre toi et l'Omniscient, j'ai décidé de venir pour clore le litige entre vous deux! » En parlant, le regard du vieil homme laissait transparaître une détermination profonde.
 
 L'esprit de Ling Tianhou trembla tandis qu'il contemplait le vieillard: « Merci, Maître du Vide. »
 
@@ -50,7 +50,7 @@ L'esprit de Ling Tianhou trembla tandis qu'il contemplait le vieillard: « Merci
 
 Ling Tianhou et l'homme en violet suivirent le mouvement dans le vortex.
 
-Wang Lin réfléchit un instant avant que ses yeux ne s'illuminent; il partit avec Situ Nan, suivi par Maître Vent Creux et la femme en argent. Derrière eux se trouvaient les trois frères Chen et Big Head. Tous volèrent vers le vortex.
+Wang Lin réfléchit un instant avant que ses yeux ne s'illuminent; il partit avec Situ Nan, suivi par Maître Vent Creux et la femme en argent. Derrière eux se trouvaient les trois frères Chen et Da Tou. Tous volèrent vers le vortex.
 
 La silhouette de Lei Ji rétrécit jusqu'à n'être plus qu'un colosse, et il suivit l'assemblée dans le vortex.
 

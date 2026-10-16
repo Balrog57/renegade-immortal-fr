@@ -20,19 +20,19 @@ Wang Lin hocha la tête et, assis sur son dragon d'argent, prit une direction ve
 
 Après un court moment de vol, Wang Lin fronça les sourcils. Les quatre étaient bien trop lents. À cette allure, il leur faudrait sept jours. Il réfléchit un instant avant de ralentir la boussole stellaire pour s'aligner sur leur rythme.
 
-Étant étranger au système stellaire d'Allheaven, il n'était pas pressé de se précipiter. Au contraire, il jugeait préférable de mieux comprendre ce système afin de faciliter ses futurs déplacements.
+Étant étranger au système stellaire de Luotian, il n'était pas pressé de se précipiter. Au contraire, il jugeait préférable de mieux comprendre ce système afin de faciliter ses futurs déplacements.
 
 Wang Lin demanda calmement: « Quelles autres planètes de culture se trouvent aux alentours de la planète Ran Yun? »
 
-Sun Xueshan, qui observait secrètement la boussole stellaire sous les pieds de Wang Lin avec une admiration non dissimulée, répondit promptement: « La planète Ran Yun est affiliée à la planète Thousand Illusion, l'une des cinq planètes majeures du domaine Nord. Il existe également de nombreuses autres planètes sous l'influence de Thousand Illusion. » Il s'étonna un instant que Wang Lin ne le sache pas, mais se rassura en se disant qu'il y avait une multitude de planètes dans le système stellaire d'Allheaven.
+Sun Xueshan, qui observait secrètement la boussole stellaire sous les pieds de Wang Lin avec une admiration non dissimulée, répondit promptement: « La planète Ran Yun est affiliée à la planète Thousand Illusion, l'une des cinq planètes majeures du domaine Nord. Il existe également de nombreuses autres planètes sous l'influence de Thousand Illusion. » Il s'étonna un instant que Wang Lin ne le sache pas, mais se rassura en se disant qu'il y avait une multitude de planètes dans le système stellaire de Luotian.
 
 L'expression de Wang Lin resta de marbre, mais son cœur tressaillit.
 
 « La planète Thousand Illusion... Thousand Illusion... Ce nom me semble très familier. Autrefois, Zhuque Zi avait une disciple nommée Liu Mei, qui pratiquait la culture au sein du domaine Impitoyable de Thousand Illusion. Il ne devrait pas y avoir de lien... Après tout, il s'agit d'un système stellaire différent. »
 
-« Le domaine Nord. Il semble que le système stellaire d'Allheaven soit divisé en quatre domaines: Est, Ouest, Nord et Sud. Je me trouve donc actuellement dans le domaine Nord. »
+« Le domaine Nord. Il semble que le système stellaire de Luotian soit divisé en quatre domaines: Est, Ouest, Nord et Sud. Je me trouve donc actuellement dans le domaine Nord. »
 
-Grâce à une simple phrase de Sun Xueshan, Wang Lin acquit une compréhension vague du système stellaire d'Allheaven.
+Grâce à une simple phrase de Sun Xueshan, Wang Lin acquit une compréhension vague du système stellaire de Luotian.
 
 À ce moment-là, Ran Yue dit doucement: « Le Senior nous a sauvés, mais nous ne connaissons toujours pas votre nom... »
 
@@ -66,7 +66,7 @@ Wang Lin les observa froidement. « Connaissez-vous la planète Dong Lin?! »
 
 Le visage de Ran Yue s'affaissa et elle dit respectueusement: « Senior, la planète Dong Lin est la première planète du domaine Nord. Elle porte un autre nom: le Massacre de Dong Lin. Cette planète a aussi une particularité étrange: elle apparaît parfois, puis disparaît soudainement... » Ran Yue ne dit pas le reste: tous ceux qui venaient de Dong Lin étaient des êtres impitoyables. Un jour, un cultivateur originaire de cette planète avait massacré toutes les familles d'une planète de culture.
 
-La planète Dong Lin était un cauchemar terrifiant pour la plupart des habitants du système stellaire d'Allheaven.
+La planète Dong Lin était un cauchemar terrifiant pour la plupart des habitants du système stellaire de Luotian.
 
 Après cela, même Sun Xueshan n'osait plus croiser le regard de Wang Lin. Son cœur était rongé par l'incertitude. Il ignorait pourquoi ce certain Xu Mu souhaitait se rendre sur la planète Ran Yun.
 
@@ -116,8 +116,8 @@ Le vieil homme détourna les yeux. La femme devant lui était une rencontre fort
 
 Le domaine impitoyable n'était pas l'apanage d'un seul système stellaire, et il existait de multiples méthodes pour le cultiver. La clé résidait dans la compréhension du cœur. S'il était rare qu'un individu atteigne seul le stade des Mille Illusions, cela n'était pas en soi exceptionnel. Ce qui l'avait poussé à l'accepter comme disciple, c'était ce signe ténu de son évolution vers le stade des Dix Mille Illusions.
 
-Il était le Grand Ancien de la famille Huan sur la planète Thousand Illusion, la planète principale du domaine Nord du système stellaire d'Allheaven. Il avait vu passer de nombreux jeunes de sa lignée et, à l'exception de quelques rares élus, aucun n'égalait son talent. Même parmi ces privilégiés, leur potentiel restait bien inférieur au sien.
+Il était le Grand Ancien de la famille Huan sur la planète Thousand Illusion, la planète principale du domaine Nord du système stellaire de Luotian. Il avait vu passer de nombreux jeunes de sa lignée et, à l'exception de quelques rares élus, aucun n'égalait son talent. Même parmi ces privilégiés, leur potentiel restait bien inférieur au sien.
 
 C'est pour cette raison qu'il avait pris la décision immédiate de faire d'elle sa disciple!
 
-Après avoir passé des siècles à ses côtés, il avait appris à l'aimer de plus en plus. Il en était venu à renoncer même à sa quête de la perle défiant le ciel pour pouvoir la ramener dans le système stellaire d'Allheaven.
+Après avoir passé des siècles à ses côtés, il avait appris à l'aimer de plus en plus. Il en était venu à renoncer même à sa quête de la perle défiant le ciel pour pouvoir la ramener dans le système stellaire de Luotian.

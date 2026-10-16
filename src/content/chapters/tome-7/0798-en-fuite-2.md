@@ -34,7 +34,7 @@ Sans attendre la réponse de Zhan Yun, Xi Zifeng l'examina de plus près et son 
 
 En parlant, ses joues s'empourprèrent.
 
-Wang Lin observa la femme. Elle était un peu plus belle que Zhan Yun. Il se souvenait vaguement qu'elle se trouvait à la porte céleste et qu'elle faisait partie de ceux qui avaient été projetés dans le vide lorsque Maître Flamespark contrôlait son corps.
+Wang Lin observa la femme. Elle était un peu plus belle que Zhan Yun. Il se souvenait vaguement qu'elle se trouvait à la porte céleste et qu'elle faisait partie de ceux qui avaient été projetés dans le vide lorsque Maître Yan Leizi contrôlait son corps.
 
 Fronçant les sourcils, Wang Lin sentit que la situation devenait embarrassante. S'il avait su que cela arriverait, il n'aurait jamais sauvé Zhan Yun, quoi qu'il advienne. Il demanda: « Avez-vous des jades célestes, tous les trois? »
 

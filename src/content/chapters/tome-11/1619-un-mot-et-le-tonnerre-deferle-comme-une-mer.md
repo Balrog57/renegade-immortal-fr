@@ -92,8 +92,8 @@ Un grondement tonitruant balaya la Rivière Invoquée. Des masses de cultivateur
 
 « Que... s'est-il passé... »
 
-Alors que le tonnerre et la foudre de la Mer des Nuages, du Vide Brillant et de la Rivière Invoquée se mettaient en mouvement, le dernier à être affecté fut Allheaven! Allheaven n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers le Vide Brillant de toutes parts.
+Alors que le tonnerre et la foudre de la Mer des Nuages, du Vide Brillant et de la Rivière Invoquée se mettaient en mouvement, le dernier à être affecté fut Luotian! Luotian n'avait pas été capturé et appartenait toujours au Royaume Intérieur. À cet instant, les cultivateurs du Royaume Intérieur observaient tous le tonnerre déferler vers le Vide Brillant de toutes parts.
 
-Alors que l'appel de Wang Lin résonnait à travers tout Allheaven, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit telle une rivière d'argent. Il fonça droit vers le Vide Brillant!
+Alors que l'appel de Wang Lin résonnait à travers tout Luotian, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit telle une rivière d'argent. Il fonça droit vers le Vide Brillant!
 
-Le Vide Brillant, Allheaven, la Mer des Nuages et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin aux cheveux blancs, qui tenait la main levée vers les cieux!
+Le Vide Brillant, Luotian, la Mer des Nuages et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin aux cheveux blancs, qui tenait la main levée vers les cieux!

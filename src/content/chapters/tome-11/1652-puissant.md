@@ -10,13 +10,13 @@ Chapitre 1652 - Puissant!
 
 Wang Lin se trouvait dans la Mer des Nuages!
 
-Il ne s'était pas rendu directement à Allheaven. Il ne pouvait pas renverser cette guerre par sa seule force. Même en utilisant l'Arc Li Guang, il ne pourrait que modifier temporairement le cours de la bataille.
+Il ne s'était pas rendu directement à Luotian. Il ne pouvait pas renverser cette guerre par sa seule force. Même en utilisant l'Arc Li Guang, il ne pourrait que modifier temporairement le cours de la bataille.
 
 Il devait réfléchir à la manière de tenir bon pendant trois ans.
 
 Dans trois ans, lorsque les habitants du Royaume Céleste Antique sortiraient, il devrait encore aller détruire le Royaume Céleste Antique du Monde Extérieur. Tout cela nécessitait l'Arc Li Guang, et il n'avait pas assez d'énergie céleste pour utiliser l'arc à maintes reprises!
 
-Par conséquent, connaissant le danger qui résidait à Allheaven, il choisit de ne pas s'y rendre en massacrant tout sur son passage. Il allait d'abord décimer les cultivateurs du Monde Extérieur dans les autres systèmes stellaires. Il avait besoin de leurs têtes et de leurs âmes originelles pour achever la formation la plus puissante!
+Par conséquent, connaissant le danger qui résidait à Luotian, il choisit de ne pas s'y rendre en massacrant tout sur son passage. Il allait d'abord décimer les cultivateurs du Monde Extérieur dans les autres systèmes stellaires. Il avait besoin de leurs têtes et de leurs âmes originelles pour achever la formation la plus puissante!
 
 Alors que Wang Lin avançait, il passa devant de nombreux continents. À mesure que la mort se répandait, le nombre de têtes derrière lui dépassa les 50 000!
 

@@ -10,7 +10,7 @@ Chapitre 1523 - Déroute!
 
 Le massacre sur le champ de bataille ne devrait connaître aucun répit. En cet instant, l'ampleur des combats était d'une étendue prodigieuse et la mort tragique de tous ces cultivateurs était un spectacle qu'on n'avait pas vu depuis des dizaines de milliers d'années.
 
-Même la lutte entre Allheaven et l'Alliance n'avait pas atteint une telle intensité en si peu de temps!
+Même la lutte entre Luotian et l'Alliance n'avait pas atteint une telle intensité en si peu de temps!
 
 Pourtant, au moment où Wang Lin prit la parole, le champ de bataille autour de lui sombra soudainement dans le silence!
 

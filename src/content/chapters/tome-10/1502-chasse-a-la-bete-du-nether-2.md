@@ -78,7 +78,7 @@ Le corps de la Bête du Nether trembla soudainement et un rugissement de colère
 
 Cette force se propagea rapidement, faisant tourbillonner frénétiquement tout le brouillard à l'intérieur du domaine stellaire. Vu de l'extérieur, on aurait dit que la brume explosait vers l'extérieur à un rythme effréné, telle une catastrophe précédant l'effondrement d'un domaine stellaire!
 
-Tous les cultivateurs d'Allheaven sentirent le monde trembler!
+Tous les cultivateurs de Luotian sentirent le monde trembler!
 
 Wang Lin, étant le plus proche de la Bête du Nether, fut violemment repoussé de plusieurs milliers de pieds par l'impact. Chaque pas qu'il faisait faisait gronder et s'effondrer l'espace sous ses pieds, révélant un réseau illusoire: c'était la Formation de Scellement du Royaume!!
 

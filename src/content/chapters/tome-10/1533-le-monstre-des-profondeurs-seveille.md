@@ -42,7 +42,7 @@ Au moment où il pénétra dans la Formation de Scellement du Royaume, le mot bl
 
 La structure trembla. Avant même que les esprits de la formation ne puissent apparaître, une large fissure se creusa et la corde de l'arc s'engouffra dans le Royaume Intérieur.
 
-Ceux qui se trouvaient au plus près de la Formation de Scellement du Royaume n'étaient pas les cultivateurs de la Rivière Invoquée ou d'Allheaven, mais les dizaines de milliers d'envahisseurs du Royaume Extérieur piégés par les Feuilles Anciennes de Wang Lin.
+Ceux qui se trouvaient au plus près de la Formation de Scellement du Royaume n'étaient pas les cultivateurs de la Rivière Invoquée ou de Luotian, mais les dizaines de milliers d'envahisseurs du Royaume Extérieur piégés par les Feuilles Anciennes de Wang Lin.
 
 À cet instant, la corde de l'arc balaya la zone scellée par les Feuilles Anciennes. Il n'y eut aucun cri de détresse, car tout fut trop rapide. Ce n'est qu'une fois le passage de la corde terminé que les dizaines de milliers de cultivateurs du Royaume Extérieur s'effondrèrent. La corde de l'arc était une force qu'ils ne pouvaient supporter: ils furent tranchés en deux!
 
@@ -96,7 +96,7 @@ Cette tempête était assez puissante pour détruire un système stellaire, et p
 
 Tandis que des grondements tonitruants résonnaient, la tempête dorée percuta la Formation de Scellement du Royaume et explosa vers l'extérieur. Une force destructrice surgit soudainement!
 
-Les visages des cultivateurs de la Rivière Invoquée, d'Allheaven et de Mer de Nuages pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
+Les visages des cultivateurs de la Rivière Invoquée, de Luotian et de Mer de Nuages pâlirent. Les yeux du Maître Hong Shan et de ses compagnons devinrent rouges. Ils utilisèrent désespérément leurs sorts pour déplacer de force ces dizaines de milliers de cultivateurs. En un clin d'œil, plus aucun cultivateur du Royaume Intérieur ne resta sur ce champ de bataille!
 
 Tous les cultivateurs du Royaume Intérieur furent évacués par le Maître Hong Shan et ses pairs. Même eux disparurent en un instant.
 

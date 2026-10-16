@@ -58,7 +58,7 @@ Le regard empreint de calme, il avança. D'un pas, il se posa sur la mourante Fo
 
 Tout en réfléchissant, Wang Lin leva le pied droit et l'écrasa au sol. Dans un fracas assourdissant, toute la Formation de Scellement du Royaume trembla et sa structure immense, semblable à un filet, se manifesta. La formation se révéla à travers tout le Royaume Intérieur!
 
-Même les dizaines de milliers de cultivateurs en convalescence à Allheaven ouvrirent les yeux pour contempler la Formation de Scellement du Royaume!
+Même les dizaines de milliers de cultivateurs en convalescence à Luotian ouvrirent les yeux pour contempler la Formation de Scellement du Royaume!
 
 La puissance de ce pas força la formation à se dévoiler totalement. Ce n'était qu'en la révélant ainsi que Wang Lin permettrait à cette structure moribonde d'achever son dernier souffle.
 

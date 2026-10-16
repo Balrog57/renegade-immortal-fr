@@ -104,12 +104,12 @@ Un fracas tonnerre retentit alors que l'homme tatoué reculait, portant Wang Lin
 
 La fumée entourant son corps fut rapidement absorbée pour le guérir, et une partie de cette essence pénétra également le corps de Wang Lin.
 
-Au même moment, le cri déchirant de Big Head retentit. Son corps avait été détruit par l'avatar de l'Omniscient et son âme originelle était gravement endommagée; il était sur le point de s'éteindre.
+Au même moment, le cri déchirant de Da Tou retentit. Son corps avait été détruit par l'avatar de l'Omniscient et son âme originelle était gravement endommagée; il était sur le point de s'éteindre.
 
-C'est alors que Lei Ji, pourtant mort sérieusement blessé, poussa un rugissement. Se trouvant à proximité, il se précipita devant Big Head pour intercepter l'attaque de l'avatar de l'Omniscient.
+C'est alors que Lei Ji, pourtant mort sérieusement blessé, poussa un rugissement. Se trouvant à proximité, il se précipita devant Da Tou pour intercepter l'attaque de l'avatar de l'Omniscient.
 
 Boum!
 
-Le corps de Lei Ji s'effondra et son âme originelle faillit se dissiper. Maître Hollow Wind agita ses manches pour recueillir l'âme originelle de Lei Ji, mais au prix d'une épée de l'un des avatars de l'Omniscient qui lui transperça la poitrine.
+Le corps de Lei Ji s'effondra et son âme originelle faillit se dissiper. Maître Fu Fengzi agita ses manches pour recueillir l'âme originelle de Lei Ji, mais au prix d'une épée de l'un des avatars de l'Omniscient qui lui transperça la poitrine.
 
-Maître Hollow Wind cracha du sang et recula avec un sourire amer, avant de se précipiter vers les deux frères Chen, également grièvement blessés.
+Maître Fu Fengzi cracha du sang et recula avec un sourire amer, avant de se précipiter vers les deux frères Chen, également grièvement blessés.

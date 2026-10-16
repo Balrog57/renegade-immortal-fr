@@ -60,13 +60,13 @@ En conséquence, une tempête colossale s'abattit sur la région sud!
 
 Elle ne put s'empêcher de paniquer. Si ce jade était authentique, peu importait; mais elle n'en était pas sûre. Si le contenu du jade s'avérait faux, elle devrait en assumer des conséquences inimaginables. Après tout, c'était elle qui l'avait rapporté.
 
-« Aucun problème. L'Empereur Divin de l'Oiseau Vermillon t'a dit de l'apporter ici. Étant donné son statut, il y a 70 % de chances que ce soit vrai. Les Quatre Sectes Divines ne diffuseraient pas de fausses nouvelles aussi facilement. Cela reviendrait à provoquer inutilement ma Secte des Cadavres, Allheaven et le reste des forces de l'Alliance! »
+« Aucun problème. L'Empereur Divin de l'Oiseau Vermillon t'a dit de l'apporter ici. Étant donné son statut, il y a 70 % de chances que ce soit vrai. Les Quatre Sectes Divines ne diffuseraient pas de fausses nouvelles aussi facilement. Cela reviendrait à provoquer inutilement ma Secte des Cadavres, Luotian et le reste des forces de l'Alliance! »
 
 « Cependant, je devrai personnellement me rendre aux Quatre Sectes Divines! »
 
 Les deux morceaux de jade étaient comme deux mains invisibles géantes manipulant les cœurs d'innombrables personnes. C'était un courant sous-marin qui s'était mis en mouvement, annonçant un événement capable de briser les cieux.
 
-De même, lorsque Mo Zhi retourna dans le pays de Chu Yun, les trois jades furent rapidement envoyés aux trois autres puissantes forces de l'Alliance. Simultanément, avec la trêve d'Allheaven, une multitude de cultivateurs quittèrent le champ de bataille.
+De même, lorsque Mo Zhi retourna dans le pays de Chu Yun, les trois jades furent rapidement envoyés aux trois autres puissantes forces de l'Alliance. Simultanément, avec la trêve de Luotian, une multitude de cultivateurs quittèrent le champ de bataille.
 
 Les membres de la Secte des Cadavres cessèrent tout commerce avec les deux camps et regagnèrent précipitamment leur secte. Ces changements étranges ne manquèrent pas d'attirer l'attention des cultivateurs de l'Alliance.
 
@@ -76,15 +76,15 @@ Un grand crapaud trônait à ses côtés. Des éclairs continuaient de jaillir a
 
 Alors que la grande guerre approchait, Wang Lin savait qu'il ne lui restait plus beaucoup de temps. Il devait perfectionner ses sorts autant que possible pour espérer survivre à la prochaine bataille d'envergure.
 
-Dans le même temps, il attendait que la Secte des Cadavres et Allheaven envoient de nouveau des émissaires. Wang Lin était certain que les deux jades distincts qu'il avait envoyés forceraient ces deux puissances à venir à lui!
+Dans le même temps, il attendait que la Secte des Cadavres et Luotian envoient de nouveau des émissaires. Wang Lin était certain que les deux jades distincts qu'il avait envoyés forceraient ces deux puissances à venir à lui!
 
 L'esprit de Wang Lin était extraordinaire, bien qu'il utilisât rarement la ruse. S'il n'avait pas agi par la manipulation auparavant, ce n'était pas par incapacité, mais en raison de son statut passé. Alors, tout ce qu'il entreprenait ne restait que de petits tours de passe-passe. Mais avec les Quatre Sectes Divines pour lui, il pouvait désormais orchestrer des stratagèmes de grande envergure!
 
 Il avait ouvertement diffusé la nouvelle concernant le dieu ancien, et tout le monde savait que Wang Lin devait comploter quelque chose. Quiconque possédait un minimum d'intelligence pouvait le voir clairement.
 
-Si Wang Lin n'était pas devenu l'Empereur Divin de l'Oiseau Vermillon en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il s'en serait tiré mal pour lui-même. Que ce soit la Secte des Cadavres ou Allheaven, ils l'auraient d'abord capturé pour l'interroger.
+Si Wang Lin n'était pas devenu l'Empereur Divin de l'Oiseau Vermillon en diffusant cette information, cela n'aurait eu aucun effet. Au contraire, il s'en serait tiré mal pour lui-même. Que ce soit la Secte des Cadavres ou Luotian, ils l'auraient d'abord capturé pour l'interroger.
 
-Cependant, à présent, ni la Secte des Cadavres ni Allheaven n'avaient le choix. Après tout, il existait une troisième force avec laquelle ils ne pourraient jamais s'entendre: les cultivateurs de l'Alliance! De plus, les mystères entourant les Quatre Sectes Divines et leur ancien statut d'hégémon du système suffisaient à dissuader quiconque. Ils savaient que le prix de la guerre serait trop élevé!
+Cependant, à présent, ni la Secte des Cadavres ni Luotian n'avaient le choix. Après tout, il existait une troisième force avec laquelle ils ne pourraient jamais s'entendre: les cultivateurs de l'Alliance! De plus, les mystères entourant les Quatre Sectes Divines et leur ancien statut d'hégémon du système suffisaient à dissuader quiconque. Ils savaient que le prix de la guerre serait trop élevé!
 
 C'était là la véritable raison pour laquelle Wang Lin osait répandre cette nouvelle.
 
@@ -96,7 +96,7 @@ C'était aussi l'une des raisons principales pour lesquelles il avait accepté s
 
 C'est pour cette raison que sa diffusion de la nouvelle concernant Tuo Sen était d'autant plus crédible. De plus, nul besoin de mentir: une fois arrivés au Domaine de l'Ancien Dieu sur la planète Suzaku, ils sauraient immédiatement si cela était vrai ou non!
 
-« Allheaven, la Secte des Cadavres, l'Alliance des Cultivateurs... Je me demande si ces trois forces seront capables de faire face à Tuo Sen... » Wang Lin réfléchit un instant, puis cessa d'y penser.
+« Luotian, la Secte des Cadavres, l'Alliance des Cultivateurs... Je me demande si ces trois forces seront capables de faire face à Tuo Sen... » Wang Lin réfléchit un instant, puis cessa d'y penser.
 
 En réalité, attirer ces trois forces vers la planète Suzaku n'était que la première phase de son plan. Il avait en réserve un autre plan infaillible!
 

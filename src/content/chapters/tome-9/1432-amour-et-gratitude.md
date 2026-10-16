@@ -48,7 +48,7 @@ Le visage de Wang Lin était livide et le conflit dans son esprit atteignait un 
 
 Cette voix devint de plus en plus forte jusqu'à devenir un rugissement faisant trembler les cieux dans l'esprit de Wang Lin. Son visage pâlit et il recula inconsciemment de quelques pas. Ses yeux étaient injectés de sang, il tremblait et son esprit était au bord de l'effondrement. Cette lutte pour choisir s'était transformée en un déluge qui le noyait.
 
-« Si un jour le Souverain me demande de tuer Situ... que ferais-je... Si un jour le Souverain me demandait de tuer Qing Shui... que ferais-je... Si un jour le Souverain m'ordonnait de massacrer mon chemin pour retourner dans le Royaume Intérieur, comment pourrais-je affronter tous ces visages familiers... Zhou Yi, Zhou Ru, Big Head, tout le monde... Si un jour le Souverain m'ordonnait de nuire à la deuxième génération d'Oiseau Vermillon... serais-je capable de le faire... »
+« Si un jour le Souverain me demande de tuer Situ... que ferais-je... Si un jour le Souverain me demandait de tuer Qing Shui... que ferais-je... Si un jour le Souverain m'ordonnait de massacrer mon chemin pour retourner dans le Royaume Intérieur, comment pourrais-je affronter tous ces visages familiers... Zhou Yi, Zhou Ru, Da Tou, tout le monde... Si un jour le Souverain m'ordonnait de nuire à la deuxième génération d'Oiseau Vermillon... serais-je capable de le faire... »
 
 Un sourire misérable se dessina sur le visage de Wang Lin, et une traînée de sang choquante coula du coin de sa bouche. Son cœur était déchiré en deux par cette décision, et la douleur était indescriptible!
 
@@ -56,7 +56,7 @@ Wan Er était son tout et sa seule faiblesse. Il n'autoriserait personne à lui 
 
 Cependant, certaines choses étaient encore plus importantes que sa propre existence! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des émotions dont il ne pouvait se défaire!
 
-« À partir de maintenant, je te confie la Secte de la Raffinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de la Raffinement de l'Âme, Dun Tian, avait transmis les trésors de sa secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
+« À partir de maintenant, je te confie la Secte de la Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de la Affinement de l'Âme, Dun Tian, avait transmis les trésors de sa secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
 
 « Moi, Wang Lin, je ne m'agenouillerai jamais devant les cieux, sauf par respect pour Situ! »
 

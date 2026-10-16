@@ -106,7 +106,7 @@ Cette scène soudaine fit sursauter l'ancêtre de la famille Ran et ses compagno
 
 « Liu Mei... » Wang Lin fronça les sourcils, et des images de la planète Suzaku défilèrent devant ses yeux, incluant ce qui s'était passé dans le Tombeau de Suzaku.
 
-« Cette femme a eu une chance inouïe de parvenir au Système Stellaire d'Allheaven... » Wang Lin réfléchit longuement en silence. Il leva les yeux vers le ciel et partit sans dire un mot.
+« Cette femme a eu une chance inouïe de parvenir au Système Stellaire de Luotian... » Wang Lin réfléchit longuement en silence. Il leva les yeux vers le ciel et partit sans dire un mot.
 
 L'ancêtre de la famille Ran et son groupe n'osèrent plus l'entraver. Ils regardèrent impuissants la silhouette de Wang Lin s'éloigner progressivement.
 

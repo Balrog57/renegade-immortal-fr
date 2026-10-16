@@ -22,7 +22,7 @@ La femme en argent obéit instantanément. Sa main droite étincela et se mua en
 
 La femme en argent se retira calmement hors du périmètre des cent pas.
 
-Maître Hollow Wind fut stupéfait par cette démonstration, ses yeux brillant d'intérêt. Non seulement lui, mais les trois frères Chen furent également saisis de stupeur, jetant à Wang Lin des regards empreints d'étrangeté.
+Maître Fu Fengzi fut stupéfait par cette démonstration, ses yeux brillant d'intérêt. Non seulement lui, mais les trois frères Chen furent également saisis de stupeur, jetant à Wang Lin des regards empreints d'étrangeté.
 
 Sans leur laisser le temps de réfléchir, Wang Lin fit un pas en avant et bondit. Il atterrit précisément là où le dixième pas de la femme en argent avait marqué le sol.
 
@@ -30,7 +30,7 @@ Sans leur laisser le temps de réfléchir, Wang Lin fit un pas en avant et bondi
 
 Des éclairs de déduction traversèrent son regard alors qu'il poursuivait ses calculs. Toutes les restrictions de la zone des cent pas se dessinèrent lentement dans son esprit.
 
-Wang Lin avait étudié les restrictions dans la Terre de l'Ancien Dieu et les avait perfectionnées pendant plus de mille ans. Puis, à Allheaven, il avait hérité de la restriction d'Annihilation!
+Wang Lin avait étudié les restrictions dans la Terre de l'Ancien Dieu et les avait perfectionnées pendant plus de mille ans. Puis, à Luotian, il avait hérité de la restriction d'Annihilation!
 
 Bien que les restrictions fussent puissantes, Wang Lin n'était plus celui qu'il était autrefois. Si sa progression dans l'étude des restrictions n'avait pas été aussi fulgurante que sa culture, elle n'en demeurait pas moins extrêmement rapide. Wang Lin savait que son talent pour la culture était limité, mais il possédait une compréhension prodigieuse lorsqu'il s'agissait des restrictions.
 
@@ -54,13 +54,13 @@ Tout dans le monde pouvait être piégé par des restrictions. Un univers entier
 
 Tout en déduisant, il leva les pieds et fit dix pas supplémentaires!
 
-Les restrictions de la zone s'activèrent immédiatement, comme une pierre jetée dans un lac, déclenchant une réaction en chaîne. La puissance émanant de ces ondulations choqua même Maître Hollow Wind!
+Les restrictions de la zone s'activèrent immédiatement, comme une pierre jetée dans un lac, déclenchant une réaction en chaîne. La puissance émanant de ces ondulations choqua même Maître Fu Fengzi!
 
 « Les restrictions célestes sont véritablement complexes! Je me demande comment l'Omniscient et Ling Tianhou ont brisé les restrictions de leur grotte. » Les yeux de Wang Lin s'illuminèrent. Il ne s'arrêta pas et continua d'avancer.
 
 Du sable apparut dans la zone, comme si elle s'était transformée en désert, recouvrant tout l'espace. Le sable et la pierre formèrent une tempête rugissante qui fonça droit sur Wang Lin.
 
-Les spectateurs extérieurs ne pouvaient rien voir, mais Maître Hollow Wind et ses compagnons étaient de puissants cultivateurs. Ils n'avaient nul besoin de leurs yeux; ils utilisèrent leur Sens Divin pour percevoir l'impact titanesque au sein de cette zone de cent pas.
+Les spectateurs extérieurs ne pouvaient rien voir, mais Maître Fu Fengzi et ses compagnons étaient de puissants cultivateurs. Ils n'avaient nul besoin de leurs yeux; ils utilisèrent leur Sens Divin pour percevoir l'impact titanesque au sein de cette zone de cent pas.
 
 L'expression de Wang Lin resta imperturbable. Au moment où la tempête chargea, il leva la main droite et une restriction s'en échappa. Cette restriction frappa la tempête, provoquant son effondrement immédiat. Cependant, l'assaut était trop vaste; il semblait couvrir le monde entier.
 
@@ -72,7 +72,7 @@ Cette simple restriction était le fruit de calculs innombrables. Le temps, le l
 
 Bien que cela paraisse simple, ce n'était pas chose aisée pour un mortel ordinaire.
 
-Les yeux de Maître Hollow Wind brillèrent tandis qu'il fixait Wang Lin. Il eut un souffle court, terrassé par ce qu'il observait. Il ne pouvait croire que Wang Lin, dont la culture n'était pas si ancienne, possède une telle maîtrise des restrictions.
+Les yeux de Maître Fu Fengzi brillèrent tandis qu'il fixait Wang Lin. Il eut un souffle court, terrassé par ce qu'il observait. Il ne pouvait croire que Wang Lin, dont la culture n'était pas si ancienne, possède une telle maîtrise des restrictions.
 
 « Son calme n'est pas une façade, il est véritablement serein. Je crains qu'il n'ait déjà tout déduit. Il ne va pas forcer le passage, il va utiliser les restrictions pour briser les restrictions! »
 
@@ -110,7 +110,7 @@ La demeure d'un être céleste ne pouvait être simple; Wang Lin le savait parfa
 
 « Je me demande seulement ce qui se cache dans les profondeurs de cette grotte pour contrôler les restrictions et empêcher quiconque d'entrer. »
 
-Maître Hollow Wind afficha un regard d'admiration tandis que lui, les trois frères Chen et Big Head le suivaient rapidement.
+Maître Fu Fengzi afficha un regard d'admiration tandis que lui, les trois frères Chen et Da Tou le suivaient rapidement.
 
 Wang Lin, immobile sur le pont, examina attentivement ce qui se dressait devant lui. La partie intérieure de la grotte ressemblait à un jardin parsemé de fleurs. Bien qu'il s'agisse d'une demeure céleste, l'abondance de couleurs donnait aux observateurs une impression de désordre magnifique.
 

@@ -8,7 +8,7 @@ slug: vue-sur-la-mer
 ---
 Wang Lin partit.
 
-Il disparut du monde des grottes. Sur une planète ordinaire de l'Allheaven, il y avait une femme. Elle portait des vêtements violets et ses cheveux lui arrivaient à la taille. Ses cheveux étaient emportés par le vent et sa robe dégageait une élégance naturelle.
+Il disparut du monde des grottes. Sur une planète ordinaire de le Luotian, il y avait une femme. Elle portait des vêtements violets et ses cheveux lui arrivaient à la taille. Ses cheveux étaient emportés par le vent et sa robe dégageait une élégance naturelle.
 
 Elle regarda le ciel. Sous le soleil, si l'on observait attentivement, on pouvait distinguer la finesse de ses sourcils. Elle était empreinte de confusion. Elle sentit un sens divin arriver et stagner près d'elle un instant avant de repartir.
 

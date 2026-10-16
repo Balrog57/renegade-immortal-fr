@@ -40,7 +40,7 @@ Le deuxième rayon était un aiguille géante. Elle descendit rapidement pour fu
 
 Une aura puissante émana du sol et résonna à travers le monde.
 
-Le troisième rayon était une perle, une perle blanche: la Perle Défiant les Cieux!
+Le troisième rayon était une perle, une perle blanche: la Perle Défiant le Ciel!
 
 Elle flotta dans l'espace en émettant une douce lueur. Son apparition permit à l'ensemble de l'objet, la Boussole des Frontières, de devenir complet.
 
@@ -48,9 +48,9 @@ Wang Lin murmura doucement: « Retirez-vous! »
 
 À l'instant même où il parla, la terre trembla et se rétracta brusquement, laissant derrière elle un immense nuage de brume. Un instant plus tard, le continent disparut, la montagne enneigée aux sept couleurs s'évanouit; tout dans le monde, à l'exception du pont sur lequel Wang Lin et Li Muwan se trouvaient, cessa d'exister. Tout avait disparu — tout s'était transformé en une boussole de la taille d'une paume!
 
-La boussole bourdonna et flotta au-dessus de la main gauche de Wang Lin tout en continuant de pivoter. Elle rétrécit encore une fois, et ce qui apparut dans la main de Wang Lin n'était plus que la Perle Défiant les Cieux!
+La boussole bourdonna et flotta au-dessus de la main gauche de Wang Lin tout en continuant de pivoter. Elle rétrécit encore une fois, et ce qui apparut dans la main de Wang Lin n'était plus que la Perle Défiant le Ciel!
 
-La Perle Défiant les Cieux était l'élément le plus crucial de la Boussole des Frontières, et elle ne paraissait pas différente une fois la boussole complète.
+La Perle Défiant le Ciel était l'élément le plus crucial de la Boussole des Frontières, et elle ne paraissait pas différente une fois la boussole complète.
 
 Tenant la perle, Wang Lin regarda en arrière. Il ne voyait ni ciel ni terre, seulement le vide. Au bout de ce néant, il aperçut une silhouette.
 

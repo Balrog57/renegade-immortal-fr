@@ -48,7 +48,7 @@ Wang Lin fronça les sourcils et lança un regard froid à Liu Mei avant de se d
 
 Wang Lin s'arrêta et se retourna. Ses yeux devinrent de glace: « Il n'est pas nécessaire de me tester. Je suis Wang Lin. Si vous continuez à m'importuner comme sur la planète Suzaku, ne me reprochez pas de vous tuer! »
 
-À cet instant, le cœur de Liu Mei était à l'opposé de son apparence; il était en plein tumulte. Elle n'aurait jamais imaginé croiser Wang Lin dans le système stellaire Allheaven, et sa culture était si puissante qu'elle ne pouvait plus la sonder.
+À cet instant, le cœur de Liu Mei était à l'opposé de son apparence; il était en plein tumulte. Elle n'aurait jamais imaginé croiser Wang Lin dans le système stellaire Luotian, et sa culture était si puissante qu'elle ne pouvait plus la sonder.
 
 Des scènes du passé défilèrent soudainement devant ses yeux. En fixant Wang Lin, l'émotion complexe qui habitait son regard s'intensifia: « À part vous, personne d'autre n'a un regard aussi froid. Vous avez changé d'apparence, vous avez tout changé, mais vous ne pouvez pas changer votre regard. Je crains que vous ne vous soyez transformé uniquement pour que je ne puisse pas vous reconnaître. »
 
@@ -122,7 +122,7 @@ Zhou Ru et Papillon Rouge apparurent du vide. Au même moment, le père de Wang 
 
 « Wang Lin, te souviens-tu encore de moi... » Wang Zhuo sortit du néant; il n'était plus un vieillard, mais un jeune homme plein de vigueur.
 
-« Disciple, tu dois te souvenir de transmettre l'héritage de la Secte du Raffinement de l'Âme... » La silhouette antique de Du Tian émergea du vide.
+« Disciple, tu dois te souvenir de transmettre l'héritage de la Secte du Affinement de l'Âme... » La silhouette antique de Du Tian émergea du vide.
 
 Peu après, des figures familières apparurent une à une. Chacune d'elles contemplait silencieusement Wang Lin. Leurs regards différaient: certains étaient complexes, d'autres empreints de perte, de joie ou de tristesse...
 

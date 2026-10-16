@@ -40,7 +40,7 @@ En un instant, la statue de pierre s'effondra en une multitude de fragments. Cep
 
 L'expression de Wang Lin était grave alors qu'il hochait la tête.
 
-Li Yuan poussa un soupir amer et dit lentement: « Il y a fort longtemps, ma famille Li était célèbre dans le système stellaire Allheaven comme l'une des six anciennes familles de culture. Notre clan cultivait le Dao des restrictions. À chaque génération, certains réussissaient à franchir la première étape pour atteindre la seconde.
+Li Yuan poussa un soupir amer et dit lentement: « Il y a fort longtemps, ma famille Li était célèbre dans le système stellaire Luotian comme l'une des six anciennes familles de culture. Notre clan cultivait le Dao des restrictions. À chaque génération, certains réussissaient à franchir la première étape pour atteindre la seconde.
 
 À cette époque, la famille Li était au zénith!
 
@@ -58,11 +58,11 @@ Au fil des âges, c'est à cause de cette empreinte que la famille Li a progress
 
 Jusqu'à ce qu'il y ait des dizaines de milliers d'années, ma famille Li ait vu naître un génie incomparable; il possédait un talent bien supérieur à celui de tous nos ancêtres. Il avait une compréhension terrifiante des restrictions. S'il était né avant que la famille Li ne soit marquée par l'empreinte, il serait devenu l'être le plus puissant de notre lignée!
 
-Bien que la culture de cet ancêtre fût bloquée au sommet du stade tardif de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il sacrifia sa propre longévité pour quitter le système stellaire Allheaven. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
+Bien que la culture de cet ancêtre fût bloquée au sommet du stade tardif de l'Ascendant, sa maîtrise des restrictions faisait que même des cultivateurs de la seconde étape hésitaient à le provoquer. Afin de briser l'empreinte d'esclavage qui pesait sur ma famille, il sacrifia sa propre longévité pour quitter le système stellaire Luotian. Il voyagea pour rencontrer les plus grands experts en restrictions, dans l'espoir de trouver un remède.
 
 Dans le système stellaire Alliance, il échangea ses connaissances contre un parchemin appartenant à un puissant cultivateur. Dans le système stellaire Cloud Dust, sous le Royaume Céleste du Vent, il troqua les économies de la famille contre une boussole.
 
-Avant que sa vie ne s'éteigne, il retourna dans le système Allheaven auprès des siens. La moitié des membres restants de la famille Li offrit volontairement leur vie, utilisant leurs âmes pour imiter l'âme du céleste afin de raffiner une épée de fer!
+Avant que sa vie ne s'éteigne, il retourna dans le système Luotian auprès des siens. La moitié des membres restants de la famille Li offrit volontairement leur vie, utilisant leurs âmes pour imiter l'âme du céleste afin de raffiner une épée de fer!
 
 Il utilisa cette épée pour rassembler les âmes, les condensa avec la boussole, puis les scella grâce au parchemin. Alors que la fin de la vie de cet ancêtre approchait, le Royaume Céleste du Tonnerre s'ouvrit. Il emporta ces trois trésors, ainsi que tous les espoirs de la famille Li, dans le Royaume Céleste du Tonnerre.
 

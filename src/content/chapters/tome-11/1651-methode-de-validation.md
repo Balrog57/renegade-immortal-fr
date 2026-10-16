@@ -90,7 +90,7 @@ Cette statue n'était pas celle d'un homme, mais celle d'une chauve-souris géan
 
 Un vieil homme vêtu de rouge était assis sur la statue, et la marque entre ses sourcils représentait une chauve-souris noire! Dès que le Sens Divin de Wang Lin balaya les lieux, le vieil homme ouvrit les yeux avec horreur. Il se leva brusquement et scruta le ciel, le visage blême.
 
-Au même moment, à Allheaven, les cultivateurs du Royaume Extérieur avaient rassemblé des centaines de milliers d'individus ainsi que plusieurs cultivateurs de la troisième étape pour préparer cette bataille. Certains de ces gens avaient participé au meurtre de Wang Lin!
+Au même moment, à Luotian, les cultivateurs du Royaume Extérieur avaient rassemblé des centaines de milliers d'individus ainsi que plusieurs cultivateurs de la troisième étape pour préparer cette bataille. Certains de ces gens avaient participé au meurtre de Wang Lin!
 
 Ces centaines de milliers de cultivateurs du Royaume Extérieur formaient un cercle qui semblait couvrir l'espace infini. Ils paraissaient épuisés, mais leur férocité ne s'était pas émoussée.
 

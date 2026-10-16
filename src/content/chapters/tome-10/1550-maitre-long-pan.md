@@ -16,13 +16,13 @@ Cette restriction était extrêmement complexe; elle utilisait la douzaine de pl
 
 Wang Lin n'avait jamais rien vu de tel, et ses yeux s'illuminèrent à cette découverte.
 
-« Cette planète est très intéressante... Maître Flamespark, lorsque vous étiez un Ancien de l'Alliance, aviez-vous entendu parler de cet astre? »
+« Cette planète est très intéressante... Maître Yan Leizi, lorsque vous étiez un Ancien de l'Alliance, aviez-vous entendu parler de cet astre? »
 
-Maître Flamespark sortit de sa torpeur causée par le choc précédent. Il devint encore plus respectueux et répondit rapidement: « Le disciple a entendu dire certaines choses. Cette planète de culture n'est pas naturelle; elle a été raffinée par l'Alliance en utilisant de nombreuses autres planètes. Cultiver sur son sol ne demande que la moitié des efforts! »
+Maître Yan Leizi sortit de sa torpeur causée par le choc précédent. Il devint encore plus respectueux et répondit rapidement: « Le disciple a entendu dire certaines choses. Cette planète de culture n'est pas naturelle; elle a été raffinée par l'Alliance en utilisant de nombreuses autres planètes. Cultiver sur son sol ne demande que la moitié des efforts! »
 
 « Sous le sort inconnu du Maître Long Pan, elle est devenue la seconde formation de l'Alliance. On disait que cette formation était bien plus puissante que le vortex... Cependant, les étrangers étaient rarement autorisés à venir ici, le disciple n'a donc jamais pu constater sa véritable puissance. »
 
-Après avoir fini de parler, Maître Flamespark sembla se souvenir de quelque chose et ajouta: « Le Maître Long Pan était l'Ancien suprême de l'Alliance et aussi le maître de Zhong Xuan! Cependant, il est décédé depuis longtemps. »
+Après avoir fini de parler, Maître Yan Leizi sembla se souvenir de quelque chose et ajouta: « Le Maître Long Pan était l'Ancien suprême de l'Alliance et aussi le maître de Zhong Xuan! Cependant, il est décédé depuis longtemps. »
 
 « Pas nécessairement. » Les yeux de Wang Lin s'illuminèrent tandis qu'il fixait la planète immense. Il pouvait ressentir quatre auras à l'intérieur. Trois d'entre elles tremblaient, empreintes d'une vive nervosité.
 
@@ -40,31 +40,31 @@ Le dragon noir se recroquevilla comme un escargot, le corps contracté par la pe
 
 Une lueur glaciale passa dans ses yeux et il serra impitoyablement. Le dragon noir poussa un cri tandis que la main droite de Wang Lin s'enfonçait en lui. Les milliers de cultivateurs du Royaume Intérieur qu'il avait dévorés furent extraits, libérés pour entrer dans le cycle de la réincarnation.
 
-Wang Lin projeta le dragon noir des Flammes Joss vers Maître Flamespark.
+Wang Lin projeta le dragon noir des Flammes Joss vers Maître Yan Leizi.
 
 « Vous souvenez-vous que lorsque nous nous sommes rencontrés, vous avez dit que j'étais votre destin? Je vous offre ceci. Les Flammes Joss sont toxiques, mais pour vous, les bénéfices surpasseront peut-être les inconvénients. Avec ces Flammes Joss, si l'occasion se présente, vous pourriez devenir un cultivateur du troisième niveau! »
 
-Le corps de Maître Flamespark trembla sous une émotion monstrueuse. Il saisit le dragon noir scellé par Wang Lin, incapable de trouver ses mots. Bouleversé par cette excitation et un sentiment complexe, il s'inclina profondément devant Wang Lin!
+Le corps de Maître Yan Leizi trembla sous une émotion monstrueuse. Il saisit le dragon noir scellé par Wang Lin, incapable de trouver ses mots. Bouleversé par cette excitation et un sentiment complexe, il s'inclina profondément devant Wang Lin!
 
 Comment aurait-il pu oublier leur première rencontre? Lorsqu'il avait dit qu'ils étaient liés par le destin, ce n'était qu'une plaisanterie. Il ne s'attendait pas à ce que cette boutade finisse par créer un tel karma!
 
 « La famille Shengong a un enfant nommé Shengong Hu, est-il toujours en vie? » Wang Lin tourna ensuite son regard vers les cultivateurs du Royaume Extérieur. Pour lui, ces gens étaient déjà morts.
 
-Les mains de Maître Flamespark tremblèrent tandis qu'il rangeait le dragon noir. C'était un vieux monstre ayant cultivé pendant des dizaines de milliers d'années; il réprima son excitation et dit respectueusement: « Shengong Hu? Le disciple s'en souvient, il est toujours à Allheaven. »
+Les mains de Maître Yan Leizi tremblèrent tandis qu'il rangeait le dragon noir. C'était un vieux monstre ayant cultivé pendant des dizaines de milliers d'années; il réprima son excitation et dit respectueusement: « Shengong Hu? Le disciple s'en souvient, il est toujours à Luotian. »
 
 Une pointe de nostalgie traversa le regard de Wang Lin. Le souvenir de Shengong Hu refit surface. À l'époque, il était plus faible que lui, mais Shengong Hu avait décidé de reconnaître Wang Lin comme son seigneur. Chaque fois qu'il y pensait, un sourire étirait ses lèvres.
 
-« Ce Shengong Hu m'a aidé autrefois. Lorsque vous retournerez à Allheaven, prenez soin de lui pour moi... » Wang Lin agita la main droite et le second dragon noir vola vers lui. Après avoir extrait les âmes des cultivateurs du Royaume Intérieur et scellé la créature, il la lança à Maître Flamespark.
+« Ce Shengong Hu m'a aidé autrefois. Lorsque vous retournerez à Luotian, prenez soin de lui pour moi... » Wang Lin agita la main droite et le second dragon noir vola vers lui. Après avoir extrait les âmes des cultivateurs du Royaume Intérieur et scellé la créature, il la lança à Maître Yan Leizi.
 
 « Aidez-moi à lui transmettre ceci. Dites-lui que c'est mon cadeau pour avoir reconnu ma seigneurie! »
 
-Maître Flamespark fut stupéfait un instant, envahi par une pointe d'envie. Il hocha rapidement la tête et rangea le second dragon noir des Flammes Joss.
+Maître Yan Leizi fut stupéfait un instant, envahi par une pointe d'envie. Il hocha rapidement la tête et rangea le second dragon noir des Flammes Joss.
 
 Le regard doré de Wang Lin se posa sur le troisième dragon noir. Une froideur glaciale émana de ses yeux lorsqu'il déclara lentement:
 
 « Tu peux comprendre mes paroles. Dévore tous les cultivateurs ici et détruis cette formation pour moi. Je te donnerai alors une chance de vivre! » Le dragon noir frémit et leva les yeux vers lui. Puis, il fit volte-face et poussa un rugissement avant de charger les cultivateurs du Royaume Extérieur.
 
-Des cris déchirants résonnèrent à travers les étoiles. Même Maître Flamespark en eut le teint qui se crispa. Bien qu'il fût lui-même un cultivateur du Royaume Intérieur, voir la lutte fragile et désespérée des cultivateurs du Royaume Extérieur face au dragon noir était un spectacle atroce.
+Des cris déchirants résonnèrent à travers les étoiles. Même Maître Yan Leizi en eut le teint qui se crispa. Bien qu'il fût lui-même un cultivateur du Royaume Intérieur, voir la lutte fragile et désespérée des cultivateurs du Royaume Extérieur face au dragon noir était un spectacle atroce.
 
 Observant cette scène avec une certaine satisfaction, il ressentit un respect encore plus profond pour la cruauté de Wang Lin.
 
@@ -92,9 +92,9 @@ Une lumière blanche jaillit de la planète géante. Cette clarté s'élança da
 
 Le corps éthéré du vieillard était lié à la planète; c'était comme si l'astre lui-même était son être!
 
-« Quiconque offense l'Alliance sera détruit! » Une voix antique émana de l'âme logée dans le vieil homme. Cette voix pénétra l'âme de Wang Lin ainsi que le corps de Maître Flamespark.
+« Quiconque offense l'Alliance sera détruit! » Une voix antique émana de l'âme logée dans le vieil homme. Cette voix pénétra l'âme de Wang Lin ainsi que le corps de Maître Yan Leizi.
 
-En voyant le vieillard aux cheveux blancs, les yeux de Maître Flamespark s'écarquillèrent et il s'exclama: « Maître Long Pan!!! »
+En voyant le vieillard aux cheveux blancs, les yeux de Maître Yan Leizi s'écarquillèrent et il s'exclama: « Maître Long Pan!!! »
 
 De loin, le Quartier Général de l'Alliance de Culture offrait un spectacle terrifiant. La planète géante ressemblait à un corps sans jambes, et les deux lignes de planètes servaient de bras!
 
@@ -108,7 +108,7 @@ Le maître de Maître Zhong Xuan, le Maître Long Pan, devait être arrivé au c
 
 Aucun vieux monstre ne devait être sous-estimé. Quiconque pouvait concevoir une telle méthode faisait preuve d'une intelligence extrême. Wang Lin regarda le vieillard; bien qu'ils fussent ennemis, il ressentait une pointe d'admiration dans son cœur.
 
-Maître Flamespark observait la scène, l'esprit vif, et après un instant de réflexion, il laissa échapper un halètement:
+Maître Yan Leizi observait la scène, l'esprit vif, et après un instant de réflexion, il laissa échapper un halètement:
 
 « Je n'ai rencontré le Maître Long Pan qu'une seule fois. Je pensais qu'il était déjà mort. Je ne m'attendais pas... je ne m'attendais pas à une telle chose! »
 

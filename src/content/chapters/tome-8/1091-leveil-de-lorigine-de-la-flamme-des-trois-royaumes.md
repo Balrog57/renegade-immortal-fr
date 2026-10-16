@@ -14,7 +14,7 @@ Ces clameurs exprimaient l'enthousiasme et les attentes que tous les membres de 
 
 De plus en plus de cultivateurs suivaient Wang Lin. En particulier, les plus jeunes le regardaient avec une profonde révérence. À mesure qu'il progressait, toujours plus de membres de la Secte de l'Oiseau Vermillon se mettaient en marche derrière lui.
 
-« Maître! » Un cri enthousiaste s'éleva parmi les membres de la Secte, faisant marquer un temps d'arrêt à Wang Lin. Lei Ji et Big Head volèrent rapidement vers lui.
+« Maître! » Un cri enthousiaste s'éleva parmi les membres de la Secte, faisant marquer un temps d'arrêt à Wang Lin. Lei Ji et Da Tou volèrent rapidement vers lui.
 
 Wang Lin esquissa un sourire et hocha la tête aux deux compagnons.
 
@@ -22,7 +22,7 @@ Alors qu'il continuait sa route, un rire joyeux retentit et Situ Nan apparut. Il
 
 Le sourire de Wang Lin s'élargit. Les blessures de Situ Nan avaient guéri et sa culture était devenue encore plus puissante; même son poison était désormais maîtrisé.
 
-La femme en argent et Maître Hollow Wind suivirent Situ Nan. La femme en argent restait silencieusement dans l'ombre de Wang Lin. Quant à Maître Hollow Wind, bien que son expression fût empreinte de respect, la joie qui brillait dans ses yeux venait du plus profond de son cœur.
+La femme en argent et Maître Fu Fengzi suivirent Situ Nan. La femme en argent restait silencieusement dans l'ombre de Wang Lin. Quant à Maître Fu Fengzi, bien que son expression fût empreinte de respect, la joie qui brillait dans ses yeux venait du plus profond de son cœur.
 
 Enfin, lorsque Wang Lin atteignit la dernière planète de la Secte Divin de l'Oiseau Vermillon, le nombre de membres du secteur était suffisant pour occulter le ciel.
 

@@ -66,7 +66,7 @@ Tandis que l'éclair fendait l'espace, Wang Lin ouvrit les yeux et commença à 
 
 S'il voulait se rendre au Royaume Céleste du Tonnerre, il lui fallait un fourneau de tonnerre. Sans cela, aucun moyen n'était possible pour y pénétrer. Wang Lin le savait parfaitement.
 
-Cependant, le Système Stellaire Allheaven différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite un nombre défini de fourneaux à chaque famille de culture.
+Cependant, le Système Stellaire Luotian différait du Système Stellaire de l'Alliance. Les fourneaux n'étaient pas dispersés au hasard. Pour une raison inconnue, ils apparaissaient tous ensemble à l'intérieur du Temple Céleste du Tonnerre. Le temple attribuait ensuite un nombre défini de fourneaux à chaque famille de culture.
 
 Il ne restait plus que trois mois avant l'ouverture du Royaume Céleste du Tonnerre. C'était le moment où toutes les familles recevraient leurs fourneaux. Les yeux de Wang Lin s'illuminèrent et il prit une décision.
 
@@ -76,7 +76,7 @@ En vérité, s'il avait cherché Shengong Hu, il aurait pu lui en obtenir un. Ce
 
 Tous les cultivateurs entrant dans le Royaume Céleste du Tonnerre n'avaient pas encore atteint la deuxième étape. Après tout, les cultivateurs de la deuxième étape étaient rares; la plupart se situaient entre les stades de Transformation de l'Âme et d'Ascendant.
 
-Dans le domaine sud du Système Stellaire Allheaven, grâce au jade laissé par Shengong Hu, Wang Lin trouva une planète de culture. Il ne prit pas la peine de vérifier le nom des deux familles présentes. À chaque ouverture du Royaume Céleste du Tonnerre, ces deux familles obtenaient un ou deux fourneaux. Plus important encore, aucune d'elles n'avait de membre dépassant le sommet du stade avancé de l'Ascendant.
+Dans le domaine sud du Système Stellaire Luotian, grâce au jade laissé par Shengong Hu, Wang Lin trouva une planète de culture. Il ne prit pas la peine de vérifier le nom des deux familles présentes. À chaque ouverture du Royaume Céleste du Tonnerre, ces deux familles obtenaient un ou deux fourneaux. Plus important encore, aucune d'elles n'avait de membre dépassant le sommet du stade avancé de l'Ascendant.
 
 Une fois arrivé sur la planète, Wang Lin l'explora avec son sens divin. Il constata que les chefs des deux familles n'étaient pas là. Il flotta parmi les étoiles, ferma les yeux et se mit à cultiver.
 

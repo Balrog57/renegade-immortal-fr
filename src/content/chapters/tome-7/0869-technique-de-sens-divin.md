@@ -134,6 +134,6 @@ Luo Su et Wang Lin accélérèrent de plus en plus. L'un attaquait avec son sens
 
 Les explosions se succédèrent et le combat devint de plus en plus acharné!
 
-« Assez! » Alors que leur affrontement atteignait son apogée, Maître Flamespark laissa échapper un rugissement, les sourcils froncés. Accompagné de ce cri, une puissante énergie originelle comprima l'espace entre les deux combattants. Cela força le combat à s'interrompre et les deux adversaires à reculer!
+« Assez! » Alors que leur affrontement atteignait son apogée, Maître Yan Leizi laissa échapper un rugissement, les sourcils froncés. Accompagné de ce cri, une puissante énergie originelle comprima l'espace entre les deux combattants. Cela força le combat à s'interrompre et les deux adversaires à reculer!
 
 Un éclair d'intention meurtrière brilla dans les yeux de Qing Shui. Il laissa échapper un reniflement froid et un rayon du Royaume Ji jaillit!

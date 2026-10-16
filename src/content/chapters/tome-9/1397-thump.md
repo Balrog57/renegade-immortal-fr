@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1397 - Thump
 slug: thump
 ---
-La veille de la Sélection des Anciens Déchus, Wang Lin arriva aux abords de la Planète de l'Empereur avec le Clan du Scorpion Obscur et le Clan de l'Évasion Nuageuse. En découvrant cette étrange planète, les yeux de Wang Lin se rétrécirent.
+La veille de la Sélection des Anciens Délaissés, Wang Lin arriva aux abords de la Planète de l'Empereur avec le Clan du Scorpion Obscur et le Clan de l'Évasion Nuageuse. En découvrant cette étrange planète, les yeux de Wang Lin se rétrécirent.
 
 La Planète de l'Empereur était enveloppée d'une couche d'illusion, comme si elle était dissimulée par un voile de brume. Pourtant, de vastes déchirures spatiales s'y trouvaient, prêtes à dévorer tout ce qui pénétrerait dans cette brume illusoire.
 
@@ -26,7 +26,7 @@ Quant à Wang Lin, grâce à son propre Sens Divin, très peu de personnes parve
 
 L'expression de Wang Lin resta impassible tandis qu'il fixait froidement l'horizon.
 
-« Chaque Sélection des Anciens Déchus se déroule sur la Planète de l'Empereur, mais elle est normalement inaccessible. Une fois que tout le monde est rassemblé, un tunnel s'ouvre de l'intérieur pour permettre l'entrée, » murmura le Patriarche du Clan du Scorpion Obscur à Wang Lin.
+« Chaque Sélection des Anciens Délaissés se déroule sur la Planète de l'Empereur, mais elle est normalement inaccessible. Une fois que tout le monde est rassemblé, un tunnel s'ouvre de l'intérieur pour permettre l'entrée, » murmura le Patriarche du Clan du Scorpion Obscur à Wang Lin.
 
 « Nous ne sommes pas arrivés trop tard, le tunnel devrait donc s'ouvrir bientôt. »
 

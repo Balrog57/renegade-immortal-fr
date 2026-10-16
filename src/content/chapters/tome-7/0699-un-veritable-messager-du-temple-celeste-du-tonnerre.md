@@ -118,7 +118,7 @@ Wang Ping la regarda, puis soupira en murmurant: « Pourquoi faire de telles cho
 
 Un érudit d'âge moyen était assis sur le dos de la bête. Sa culture était suffisamment puissante pour qu'il ne soit nullement perturbé par les décharges électriques qui traversaient son corps.
 
-L'éclair fonçait à une vitesse prodigieuse vers le domaine nord du Système Stellaire d'Allheaven.
+L'éclair fonçait à une vitesse prodigieuse vers le domaine nord du Système Stellaire de Luotian.
 
 Son objectif était limpide: la planète Ran Yun, dans le domaine nord!
 
@@ -128,7 +128,7 @@ D'après les investigations, il semblait que le messager suspect n'avait pas qui
 
 Le niveau de culture de cet homme d'âge moyen avait déjà dépassé le premier stade et se situait au niveau de l'Illusion Yin. Assis sur sa Bête du Tonnerre, il pénétra dans le domaine nord sans ralentir, fonçant droit vers la planète Ran Yun.
 
-« Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire d'Allheaven, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
+« Il y a même des gens qui osent usurper l'identité d'un messager du Temple Céleste du Tonnerre. Une telle insolence ne s'était pas vue depuis bien longtemps! » ricana l'homme. En tant que messager du Temple Céleste du Tonnerre, son pouvoir était immense. Dans tout le Système Stellaire de Luotian, hormis quelques anciennes familles de culture, presque personne n'osait provoquer le Temple.
 
 « Laisse-moi, Daoïste du Tonnerre, véritable messager du Temple Céleste du Tonnerre, faire face à cet individu. Ne pensez pas que l'usage de quelques sorts de foudre suffit pour prétendre être un envoyé du Temple. Les véritables membres du Temple possèdent une Bête du Tonnerre! » Le Daoïste du Tonnerre tapota la tête de sa monture de la main droite.
 

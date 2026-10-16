@@ -10,13 +10,13 @@ Chapitre 881 - « Je suis d'accord! »
 
 Wang Lin ne manifesta pas ce violent bouleversement émotionnel. Ses yeux se calmèrent progressivement, mais derrière ce calme brûlait une flamme ardente.
 
-Il ne fut pas le premier à s'avancer; il attendit que les autres expriment leurs demandes avant de marcher lentement vers l'avant. Il joignit les mains devant Maître Flamespark et dit respectueusement: « Le disciple a une requête! »
+Il ne fut pas le premier à s'avancer; il attendit que les autres expriment leurs demandes avant de marcher lentement vers l'avant. Il joignit les mains devant Maître Yan Leizi et dit respectueusement: « Le disciple a une requête! »
 
-Maître Flamespark regarda Wang Lin et dit calmement: « Xu Mu, expose ta requête. »
+Maître Yan Leizi regarda Wang Lin et dit calmement: « Xu Mu, expose ta requête. »
 
 « La requête du disciple est de reformer la chair d'une Âme Naissante brisée et de l'éveiller! » Tandis que Wang Lin parlait, sa voix ne trahit aucune émotion. Cependant, son cœur battait si fort qu'il semblait sur le point d'exploser dans sa poitrine.
 
-« Oh? » Les yeux de Maître Flamespark se plissèrent. Il réfléchit un instant avant de regarder le vieil homme Xiang et de dire: « Cette requête n'est pas difficile. Depuis les temps anciens, la famille Xiang possède un sort censé être très puissant. Il devrait pouvoir répondre à tes exigences. Qu'en dis-tu, Honorable Cultivateur Xiang? »
+« Oh? » Les yeux de Maître Yan Leizi se plissèrent. Il réfléchit un instant avant de regarder le vieil homme Xiang et de dire: « Cette requête n'est pas difficile. Depuis les temps anciens, la famille Xiang possède un sort censé être très puissant. Il devrait pouvoir répondre à tes exigences. Qu'en dis-tu, Honorable Cultivateur Xiang? »
 
 Le vieil homme Xiang esquissa un léger sourire. Il admirait beaucoup Wang Lin. Il sourit et dit: « Xu Mu, je présume que l'Âme Naissante dont tu parles a vu son corps détruit et a subi de graves blessures, ce qui l'a plongée dans un sommeil profond. Cela ne devrait pas être difficile! Sors cette Âme Naissante et laisse ce vieil homme l'examiner d'abord! »
 
@@ -42,7 +42,7 @@ Tout s'était transformé en cendres et avait disparu. Une seule pensée résonn
 
 « Même si les cieux veulent que tu meures, je te ramènerai! »
 
-C'est pour cette promesse que Wang Lin était venu dans le Système Stellaire d'Allheaven! C'est pour elle qu'il se tenait devant le Temple Céleste du Tonnerre!
+C'est pour cette promesse que Wang Lin était venu dans le Système Stellaire de Luotian! C'est pour elle qu'il se tenait devant le Temple Céleste du Tonnerre!
 
 Lorsque Wang Lin sortit l'Âme Naissante de Li Muwan, Xi Zifeng, dont les yeux étaient rivés sur lui, faillit s'effondrer. Son visage devint livide, son corps trembla et elle sentit son cœur se briser.
 
@@ -88,13 +88,13 @@ Le corps de Wang Lin trembla comme si des dizaines de milliers d'éclairs avaien
 
 « Et je répète: ce n'est qu'une infime chance. Si cela échoue, ta longévité ne sera pas restaurée. Réfléchis-y mûrement. Si tu acceptes, je pourrai soumettre ta requête à l'Ancêtre une fois! »
 
-Un silence de mort s'installa. La voix de l'Ancêtre de la famille Xiang résonna à travers les cieux et la terre, atteignant les oreilles de tous. À cet instant, chaque cultivateur du Système Stellaire d'Allheaven entendit ses paroles.
+Un silence de mort s'installa. La voix de l'Ancêtre de la famille Xiang résonna à travers les cieux et la terre, atteignant les oreilles de tous. À cet instant, chaque cultivateur du Système Stellaire de Luotian entendit ses paroles.
 
 Pour une infime chance de la voir revivre, il devait sacrifier la majeure partie de sa vie. Cela en valait-il la peine?
 
 Cette question tourmentait le cœur de chaque témoin.
 
-Le vieil homme Xiang admirait sincèrement Wang Lin. Il n'avait aucun dessein égoïste ni aucune intention malveillante en énonçant cela devant tous les cultivateurs du Système Stellaire d'Allheaven.
+Le vieil homme Xiang admirait sincèrement Wang Lin. Il n'avait aucun dessein égoïste ni aucune intention malveillante en énonçant cela devant tous les cultivateurs du Système Stellaire de Luotian.
 
 Wang Lin regarda la sphère de restriction dans sa main. Son regard semblait vouloir la transpercer alors qu'il contemplait Li Muwan et dit lentement: « Je suis d'accord! »
 
@@ -110,4 +110,4 @@ Wang Lin regarda Qing Shui, ses yeux exprimant sa gratitude. Il hocha la tête. 
 
 Après cela, les autres présentèrent leurs requêtes. Il est à noter que Xu Ting et Nangong Han firent la même demande: ils souhaitaient entrer dans le Pavillon des Trésors pour apprendre des sorts célestes. Une fois que chacun eut reçu sa récompense, le don céleste prit fin!
 
-À l'instant même où il s'acheva, le rire de Maître Flamespark retentit. Flottant au-dessus de son tapis de prière, il agita ses manches. Ses yeux brillèrent et il cria: « Compagnons cultivateurs, aidez-moi à ouvrir le passage vers le Système Stellaire de l'Alliance! La guerre est sur le point de commencer! »
+À l'instant même où il s'acheva, le rire de Maître Yan Leizi retentit. Flottant au-dessus de son tapis de prière, il agita ses manches. Ses yeux brillèrent et il cria: « Compagnons cultivateurs, aidez-moi à ouvrir le passage vers le Système Stellaire de l'Alliance! La guerre est sur le point de commencer! »

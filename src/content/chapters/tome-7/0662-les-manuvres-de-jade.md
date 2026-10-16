@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 662 - Scheming Jade
 slug: les-manuvres-de-jade
 ---
-Système stellaire d'Allheaven, planète Ran Yun.
+Système stellaire de Luotian, planète Ran Yun.
 
 Au moment où Wang Lin apparut, trois puissants sens divins se précipitèrent vers lui. Dès leur arrivée, Wang Lin disparut, n'émettant plus aucune aura. Deux d'entre eux semblant se méfier l'un de l'autre, ils se retirèrent après avoir fouillé la zone.
 
@@ -14,7 +14,7 @@ Seul le dernier sens divin balaya avec acharnement toute la planète. N'ayant ri
 
 Le reniflement froid de cet individu se propagea sur toute la planète et atteignit les oreilles de Wang Lin.
 
-La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea: « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire d'Allheaven est intéressant. Une énergie spirituelle si riche, pourtant cette planète de culture n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
+La silhouette de Wang Lin apparut dans une plaine de la partie nord de la planète. Il leva la tête vers le ciel et songea: « Un Ascendant au stade intermédiaire et deux cultivateurs Ascendants au stade initial. Ce système stellaire de Luotian est intéressant. Une énergie spirituelle si riche, pourtant cette planète de culture n'abrite que trois puissances, et chacune ne possède qu'un seul cultivateur Ascendant. »
 
 « Si cette planète Ran Yun avait fait partie de l'Alliance de Culture, je crains qu'elle n'ait été pillée, conquise par un vieux monstre du deuxième échelon, ou qu'un pays de culture de rang 6 ne s'y soit installé. Il est impossible qu'une telle planète ne compte que trois Ascendants au sein du système stellaire de l'Alliance. »
 
@@ -24,7 +24,7 @@ La culture de Wang Lin atteignait déjà le stade initial de l'Ascendant et son 
 
 Bien sûr, ce n'était pas le cas pour les vieux monstres qui se trouvaient au deuxième échelon.
 
-« Je ne devrais pas être découvert si je me cache ici. Même si l'Omniscient et ses compagnons me traquent jusqu'au système stellaire d'Allheaven, ils ne penseront pas que je puisse me cacher sur une planète de culture comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
+« Je ne devrais pas être découvert si je me cache ici. Même si l'Omniscient et ses compagnons me traquent jusqu'au système stellaire de Luotian, ils ne penseront pas que je puisse me cacher sur une planète de culture comme celle-ci. » Les yeux de Wang Lin s'illuminèrent, puis perdirent progressivement de leur férocité. Bien qu'ils fussent toujours limpides, leur éclat saisissant avait totalement disparu.
 
 « À en juger par l'expression de ces quatre petits gars, la planète Dong Lin est extrêmement puissante. Avant d'être assez fort, je ne peux pas m'y rendre! »
 
@@ -92,7 +92,7 @@ Ce phénomène piqua la curiosité de Wang Lin. Il n'avait jamais vu une concept
 
 Un quart d'heure plus tard, la perle projeta une lumière bleue intense. Celle-ci était très douce, mais elle éteignit la bougie. La perle était désormais la seule source de lumière dans la pièce.
 
-« Il y a trois restrictions à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire d'Allheaven est bien supérieur. »
+« Il y a trois restrictions à l'intérieur de cette perle. Les trois servent à recueillir la fumée, à la transformer en chaleur, puis à utiliser cette chaleur pour produire de la lumière. Sur ce point, le système stellaire de Luotian est bien supérieur. »
 
 Une légère odeur de santal émanait de la perle, une senteur qui apaisait l'esprit.
 

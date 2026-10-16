@@ -48,7 +48,7 @@ Le corps de Wang Lin trembla lorsqu'il reprit ses esprits, et il recula sans hé
 
 « L'ancêtre de la famille Zhan, Zhan Xingye! »
 
-L'expression de Wang Lin devint sombre. Il savait que l'ancêtre de la famille Zhan d'Allheaven avait disparu parmi les étoiles, sans laisser de trace. Zhan Xingye était un talent hors du commun qui, à un moment donné, avait découvert accidentellement le Parchemin de la Bataille. Il l'avait étudié pour maîtriser le Domaine de la Bataille avant de disparaître en quête d'un royaume supérieur.
+L'expression de Wang Lin devint sombre. Il savait que l'ancêtre de la famille Zhan de Luotian avait disparu parmi les étoiles, sans laisser de trace. Zhan Xingye était un talent hors du commun qui, à un moment donné, avait découvert accidentellement le Parchemin de la Bataille. Il l'avait étudié pour maîtriser le Domaine de la Bataille avant de disparaître en quête d'un royaume supérieur.
 
 Malgré les recherches de ses descendants, personne n'avait jamais retrouvé la moindre piste sur sa localisation.
 

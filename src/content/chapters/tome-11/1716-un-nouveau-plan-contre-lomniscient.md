@@ -64,7 +64,7 @@ Le Maître Dao Blue Dream était assis dans une hutte qu'il avait bâtie lui-mê
 
 Le Maître Dao Blue Dream estimait que la culture de Li Qianmei était encore insuffisante; c'est pourquoi, lorsqu'il avait emmené les membres du Clan de la Soie Bleue ici, il l'avait contrainte à une culture isolée afin qu'elle puisse appréhender son essence.
 
-Après avoir simplement échangé avec plusieurs de ses amis, Wang Lin s'éloigna. Il était accompagné de Situ Nan, Zhou Ru, Big Head, Treize et d'autres. Ils s'installèrent dans les montagnes du nord.
+Après avoir simplement échangé avec plusieurs de ses amis, Wang Lin s'éloigna. Il était accompagné de Situ Nan, Zhou Ru, Da Tou, Treize et d'autres. Ils s'installèrent dans les montagnes du nord.
 
 Durant cette période, Wang Lin était allé rendre visite au Maître Dao Blue Dream. Lorsqu'il apprit que Li Qianmei était en culture fermée, il poussa un soupir de soulagement pour une raison qui lui échappait.
 
@@ -82,9 +82,9 @@ En voyant la maturité de Zhou Ru, Wang Lin ressentait de la chaleur, mais aussi
 
 Il avait le sentiment d'avoir fait du tort à Wan Er. Sa souffrance était un secret qu'il seul portait, une douleur que lui seul pouvait percevoir. Et deux mille ans suffisaient à tout enfouir.
 
-Il y avait aussi Treize et Big Head. Ils cultivaient ici. Grâce aux conseils occasionnels de Wang Lin, ils avaient acquis de nombreux éveils. Wang Lin avait restitué le sang spirituel de Big Head et levé le sceau de serviteur, lui offrant ainsi sa liberté.
+Il y avait aussi Treize et Da Tou. Ils cultivaient ici. Grâce aux conseils occasionnels de Wang Lin, ils avaient acquis de nombreux éveils. Wang Lin avait restitué le sang spirituel de Da Tou et levé le sceau de serviteur, lui offrant ainsi sa liberté.
 
-Pourtant, Big Head ne choisit pas de partir; parfois, il contemplait le ciel avec mélancolie. Wang Lin savait qu'il avait le mal du pays, mais que son foyer n'existait plus. Ses souvenirs d'une enfance douloureuse étaient devenus précieux, et il refusait de s'en défaire.
+Pourtant, Da Tou ne choisit pas de partir; parfois, il contemplait le ciel avec mélancolie. Wang Lin savait qu'il avait le mal du pays, mais que son foyer n'existait plus. Ses souvenirs d'une enfance douloureuse étaient devenus précieux, et il refusait de s'en défaire.
 
 Treize était un homme simple qui ne se compliquait pas l'esprit. Il ne souhaitait qu'une chose: cultiver pour devenir le disciple le plus puissant de son maître. Si celui-ci avait besoin de lui, il sacrifierait tout, y compris sa vie.
 

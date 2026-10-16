@@ -10,11 +10,11 @@ Après cette bataille, le champ de bataille de la région nord avait été presq
 
 Le vortex au centre tournait avec frénésie, aspirant d'immenses quantités de poussière qui disparaissaient en son sein.
 
-Il n'y eut ni victoire ni défaite dans ce combat. Pour Allheaven comme pour l'Alliance, il s'agissait d'une simple phase de reconnaissance mutuelle, mais le prix à payer pour ce tâtonnement fut extrêmement élevé.
+Il n'y eut ni victoire ni défaite dans ce combat. Pour Luotian comme pour l'Alliance, il s'agissait d'une simple phase de reconnaissance mutuelle, mais le prix à payer pour ce tâtonnement fut extrêmement élevé.
 
 La mort de dizaines de milliers de cultivateurs força les deux camps à marquer une pause, comme si chacun préparait méticuleusement ses forces pour la prochaine bataille.
 
-Du côté d'Allheaven, une multitude de cultivateurs se retirèrent pour se rassembler entre les régions occidentale et septentrionale afin de récupérer. L'Alliance, quant à elle, s'était plongée dans un silence total, bien que la nouvelle de cet affrontement ait déjà parcouru tous ses rangs.
+Du côté de Luotian, une multitude de cultivateurs se retirèrent pour se rassembler entre les régions occidentale et septentrionale afin de récupérer. L'Alliance, quant à elle, s'était plongée dans un silence total, bien que la nouvelle de cet affrontement ait déjà parcouru tous ses rangs.
 
 Ce jour-là, une silhouette apparut près du vortex. C’était un homme aux cheveux blancs vêtu d'une robe jaune. Si Wang Lin avait été présent, il l'aurait immédiatement reconnu comme étant Huanglong.
 
@@ -22,11 +22,11 @@ Huanglong flottait calmement dans le vide, contemplant le vortex en contrebas. L
 
 « Bien que cette bataille de reconnaissance ressemble à une égalité, en réalité, l'Alliance a perdu! » songea Huanglong en observant le champ de bataille. Il pouvait aisément imaginer l'intensité des combats qui venaient de se dérouler.
 
-« L'Alliance des Cultivateurs a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Flamespark. Intéressant! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Flamespark autrefois, je donne une telle opportunité à mes Quatre Sectes Divines! » Les yeux de Huanglong s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
+« L'Alliance des Cultivateurs a toujours fait preuve d'arrogance, et cette guerre n'est que la conséquence de l'affaire avec Maître Yan Leizi. Intéressant! Je ne m'attendais pas à ce qu'en aidant accidentellement Maître Yan Leizi autrefois, je donne une telle opportunité à mes Quatre Sectes Divines! » Les yeux de Huanglong s'illuminèrent tandis qu'il examinait attentivement le champ de bataille avant de s'avancer dans le vide.
 
 « Je dois discuter de cela avec les trois autres. Mes Quatre Sectes Divines attendent ce jour depuis bien trop longtemps! Je me demande seulement... si la planète de culture de rang 9 qui soutient l'Alliance des Cultivateurs interviendra... Après tout, ils ne reconnaissent que l'Alliance... » Huanglong disparut progressivement, plongé dans ses réflexions.
 
-« Je présume que la Secte des Cadavres médite également sur cette question. L'arrivée d'Allheaven a rompu l'équilibre de l'Alliance! Et il y a aussi ce Wang Lin. Cet enfant est remarquable; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Flamespark, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Allheaven. » Huanglong sourit avant de s'évanouir parmi les étoiles.
+« Je présume que la Secte des Cadavres médite également sur cette question. L'arrivée de Luotian a rompu l'équilibre de l'Alliance! Et il y a aussi ce Wang Lin. Cet enfant est remarquable; le laisser participer à la bataille fera de lui l'avant-garde de mes Quatre Sectes Divines. Avec la culture de Maître Yan Leizi, il devrait être capable de percevoir ma marque. Cela peut être considéré comme un indice de l'attitude de mes Quatre Sectes Divines envers Luotian. » Huanglong sourit avant de s'évanouir parmi les étoiles.
 
 « Cette bataille n'est pas assez vaste. Qu'elle gagne en intensité et consume davantage de forces de l'Alliance des Cultivateurs! Mes Quatre Sectes Divines ont trop longtemps patienté, il est temps que la puissance que nous avons accumulée éclate enfin! »
 
@@ -60,7 +60,7 @@ Pourtant, une spéculation subsistait dans le cœur de quelques rares individus.
 
 Le Serpent aux yeux de lune dérivait dans cette obscurité sans fin, sans direction précise. C'était comme si la force mystérieuse des lieux n'avait aucune prise sur lui.
 
-Wang Lin se trouvait à l'intérieur du corps du Serpent aux yeux de lune. Il tenait toujours le fragment céleste que Maître Flamespark lui avait confié. Son Sens Divin balaya l'objet et y déposa sa propre empreinte. Au même instant, un rugissement émana du fragment et un éclair de tonnerre jaillit.
+Wang Lin se trouvait à l'intérieur du corps du Serpent aux yeux de lune. Il tenait toujours le fragment céleste que Maître Yan Leizi lui avait confié. Son Sens Divin balaya l'objet et y déposa sa propre empreinte. Au même instant, un rugissement émana du fragment et un éclair de tonnerre jaillit.
 
 Le tonnerre se dispersa devant Wang Lin. Alors que les éclairs ricochaient dans toutes les directions, la Bête du Tonnerre aux cornes argentées apparut. Une chaîne entourait son cou et de nombreux talismans pendaient de son corps, lui donnant un aspect quelque peu désordonné.
 
@@ -78,7 +78,7 @@ Se frottant le nez, Wang Lin tapota la tête de la créature en disant: « En r�
 
 C'était une tentative de réconfort, mais dès qu'il eut prononcé ces mots, la Bête du Tonnerre cessa brusquement de grogner. Elle tourna la tête avec vivacité, faisant tinter la chaîne autour de son cou. Les talismans en papier sur son corps s'agitèrent tandis qu'elle fixait Wang Lin d'un regard dubitatif.
 
-Il était évident qu'elle doutait. Elle avait entendu ces mêmes paroles de la part de Maître Flamespark à trop de reprises. Chaque fois que ce dernier la voyait, il lui disait la même chose.
+Il était évident qu'elle doutait. Elle avait entendu ces mêmes paroles de la part de Maître Yan Leizi à trop de reprises. Chaque fois que ce dernier la voyait, il lui disait la même chose.
 
 Wang Lin sourit amèrement. Il ne savait vraiment pas comment consoler cette bête. Il éprouvait une profonde sympathie pour elle, surtout après avoir constaté son état. Il imaginait toute la souffrance qu'elle avait endurée durant toutes ces années.
 

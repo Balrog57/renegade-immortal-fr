@@ -30,9 +30,9 @@ La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'espr
 
 Des rires éclatèrent. Chacun utilisait son énergie originelle pour tirer lentement la planète hors de son orbite. L'astre était progressivement entraîné vers l'avant.
 
-L'homme d'âge mûr était Zhan Konglie. Il tenait lui aussi un fil ténu entre ses mains et tirait la planète. Il rit: « Cette décision a été prise par notre ancêtre d'Allheaven, Maître Lu Fu, ainsi que par les représentants des trois autres systèmes stellaires. Je n'en sais pas plus que vous. Si une nouvelle se présente, je vous en informerai. Pourquoi tant de précipitation? »
+L'homme d'âge mûr était Zhan Konglie. Il tenait lui aussi un fil ténu entre ses mains et tirait la planète. Il rit: « Cette décision a été prise par notre ancêtre de Luotian, Maître Lu Fu, ainsi que par les représentants des trois autres systèmes stellaires. Je n'en sais pas plus que vous. Si une nouvelle se présente, je vous en informerai. Pourquoi tant de précipitation? »
 
-À la mention du Maître Lu Fu, les yeux des cultivateurs s'emplirent de ferveur. Ils n'avaient appris l'existence de Maître Lu Fu que depuis quelques années seulement. À leurs yeux, il était l'être le plus puissant d'Allheaven. Tant que Maître Lu Fu existerait, Allheaven perdurerait éternellement!
+À la mention du Maître Lu Fu, les yeux des cultivateurs s'emplirent de ferveur. Ils n'avaient appris l'existence de Maître Lu Fu que depuis quelques années seulement. À leurs yeux, il était l'être le plus puissant de Luotian. Tant que Maître Lu Fu existerait, Luotian perdurerait éternellement!
 
 Observant la foule autour de lui, Zhan Konglie poussa un soupir intérieur. Bien que son regard fût empreint de respect, il n'y avait aucune ferveur en lui. C'était comme si une force l'avait dépouillé de toute passion bien longtemps auparavant.
 
@@ -42,7 +42,7 @@ Cette ferveur envers cet être ne s'était pas dissipée avec le temps. Au contr
 
 « Mais où est-il maintenant... » Une trace de nostalgie bien cachée perçait son regard. Il pensait souvent au passé.
 
-Cette personne qui avait marqué Allheaven n'avait pas seulement affecté sa vie, mais aussi celle de Shengong Hu. En pensant à ce dernier, il laissa échapper un ricanement froid. Au fil des ans, Shengong Hu s'était toujours opposé à lui, et les deux avaient multiplié les affrontements.
+Cette personne qui avait marqué Luotian n'avait pas seulement affecté sa vie, mais aussi celle de Shengong Hu. En pensant à ce dernier, il laissa échapper un ricanement froid. Au fil des ans, Shengong Hu s'était toujours opposé à lui, et les deux avaient multiplié les affrontements.
 
 Les cent cultivateurs continuèrent leur progression, volant de plus en plus vite, fonçant à travers le système stellaire.
 
@@ -58,7 +58,7 @@ Nul ne pouvait percevoir clairement son apparence. C'était comme si tout regard
 
 Ce n'est que lorsque les cent cultivateurs eurent entraîné la planète devant l'homme en blanc qu'ils purent enfin se détendre.
 
-« La culture de cet individu n'est pas simple. À en juger par son allure, il ne semble pas venir d'Allheaven... »
+« La culture de cet individu n'est pas simple. À en juger par son allure, il ne semble pas venir de Luotian... »
 
 « Actuellement, la barrière entre les quatre systèmes stellaires est ouverte. Tant qu'ils connaissent le chemin, ils peuvent voyager à leur guise. Cet homme doit être issu d'un autre système stellaire. »
 
@@ -94,7 +94,7 @@ Zhan Konglie ne s'arrêta qu'après un long moment. Une expression amère marqua
 
 « Pourquoi ne m'as-tu pas appelé... » Il resta là, immobile, longtemps... Zhan Konglie s'inclina légèrement, puis repartit.
 
-Système stellaire d'Allheaven. Dans ses profondeurs se trouvait un domaine stellaire presque vide. L'endroit était très désolé et les planètes de culture y étaient pauvres en énergie spirituelle. Pourtant, une petite planète de culture émettait une lueur douce.
+Système stellaire de Luotian. Dans ses profondeurs se trouvait un domaine stellaire presque vide. L'endroit était très désolé et les planètes de culture y étaient pauvres en énergie spirituelle. Pourtant, une petite planète de culture émettait une lueur douce.
 
 Les océans couvraient 70 % de cette planète et les terres émergées étaient parsemées. De loin, elle ressemblait à une sphère bleue.
 

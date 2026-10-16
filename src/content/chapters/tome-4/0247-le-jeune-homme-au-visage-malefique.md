@@ -14,9 +14,9 @@ Bien que l'expression de Wang Lin fût restée impassible, l'énergie spirituell
 
 Le géant hocha la tête. Son regard balaya l'endroit désigné par Wang Lin et il agita doucement sa main.
 
-L'expression de l'homme d'âge moyen changea soudainement lorsqu'il ressentit un immense sentiment de danger; il saisit alors Punnan Zi, qui fixait le ciel d'un air hébété, et le plaça devant lui en guise de bouclier.
+L'expression de l'homme d'âge moyen changea soudainement lorsqu'il ressentit un immense sentiment de danger; il saisit alors Pu Nanzi, qui fixait le ciel d'un air hébété, et le plaça devant lui en guise de bouclier.
 
-Le corps de Punnan Zi se transforma en poussière, tout comme la main droite de l'homme d'âge moyen.
+Le corps de Pu Nanzi se transforma en poussière, tout comme la main droite de l'homme d'âge moyen.
 
 L'homme laissa échapper un gémissement de douleur. Le visage pâle, il recula précipitamment. Simultanément, il plongea sa main gauche dans son sac de rangement et en sortit une pierre de jade. Sans la moindre hésitation, il la broya. Une lumière blanche jaillit du jade, l'enveloppa, puis il disparut sur le champ.
 
@@ -32,7 +32,7 @@ En vérité, sa supposition était très exacte. Ce que l'homme avait utilisé �
 
 Le messager était véritablement terrifié par Wang Lin. Selon ses connaissances, la technique employée par Wang Lin était celle du Clan des Démons Géants. La puissance d'une telle technique était terrifiante; même lui n'était pas certain de pouvoir la bloquer.
 
-Ayant déjà vu cette technique à deux reprises à Zhao, il était convaincu que Wang Lin pouvait l'utiliser une troisième fois. Face à un tel ennemi, bien que Wang Lin ne fût qu'au stade de l'Âme Naissante, il n'osait pas le provoquer. C'est pourquoi il n'avait pas hésité à utiliser Punnan Zi comme bouclier pour s'offrir le temps nécessaire à sa fuite.
+Ayant déjà vu cette technique à deux reprises à Zhao, il était convaincu que Wang Lin pouvait l'utiliser une troisième fois. Face à un tel ennemi, bien que Wang Lin ne fût qu'au stade de l'Âme Naissante, il n'osait pas le provoquer. C'est pourquoi il n'avait pas hésité à utiliser Pu Nanzi comme bouclier pour s'offrir le temps nécessaire à sa fuite.
 
 Wang Lin s'assit en tailleur au sol pour récupérer son énergie spirituelle. Après un long moment, il se leva, agita sa main droite et ramassa la tour composée des têtes des membres de la famille Teng.
 

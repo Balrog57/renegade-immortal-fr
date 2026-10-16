@@ -74,7 +74,7 @@ Il avait déjà perdu la notion du temps. Il ignorait depuis combien de temps il
 
 « Je crains que le Maître ne puisse plus attendre. S'il est retourné au clan de l'Ancien Dao, alors une fois que j'atteindrai le Continent Astral Immortel, je devrai compter sur moi-même... » Les yeux de Wang Lin brillèrent d'une détermination farouche.
 
-« Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Allheaven, puis à la Mer des Nuages. Plus tard, j'ai rejoint le Système Stellaire Ancestral par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité! »
+« Ce n'est pas un problème. Autrefois, j'ai quitté la planète Suzaku seul pour explorer le Vide Brillant. Puis je suis passé du Vide Brillant à Luotian, puis à la Mer des Nuages. Plus tard, j'ai rejoint le Système Stellaire Ancestral par mes propres moyens. Maintenant, je me rendrai également seul sur le Continent Astral Immortel, ce n'est qu'une formalité! »
 
 « D'un autre côté, je dois rapidement augmenter mon niveau de culture sur le Continent Astral Immortel... Il y a aussi la Secte Dong Lin que je dois visiter. Si je peux entrer dans le Bassin Dong Lin... » À cette pensée, le cœur de Wang Lin s'emballa. On pouvait dire qu'il brûlait d'envie d'entrer dans le Bassin Dong Lin!
 

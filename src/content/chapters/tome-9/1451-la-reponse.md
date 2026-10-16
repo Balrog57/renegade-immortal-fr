@@ -42,7 +42,7 @@ Plus il apprenait, plus tout devenait mystérieux. Wang Lin avait une intuition 
 
 « Le Dao céleste possède du sang, et il doit être élevé par cette pilule... Qu'est-ce donc que le Dao céleste!?! » Wang Lin songeait tout en fixant le ciel.
 
-« Peut-être le Dao céleste est-il un trésor, une pilule ou une bête féroce... » L'expression de Wang Lin se complexifia et il se remémora sa rencontre avec la Bête des Enfers à Allheaven... Cette bête était gigantesque et contenait un autre monde en son sein. Wang Lin resta immobile, l'air sombre, tandis que son esprit se remettait peu à peu du choc. Il enfouit ses spéculations au plus profond de son cœur. À cet instant, à l'intérieur du Four Impérial, l'esprit du Dao de rang 4 était presque totalement rétabli. Ses rugissements ressemblaient au fracas d'un vent déchaîné.
+« Peut-être le Dao céleste est-il un trésor, une pilule ou une bête féroce... » L'expression de Wang Lin se complexifia et il se remémora sa rencontre avec la Bête des Enfers à Luotian... Cette bête était gigantesque et contenait un autre monde en son sein. Wang Lin resta immobile, l'air sombre, tandis que son esprit se remettait peu à peu du choc. Il enfouit ses spéculations au plus profond de son cœur. À cet instant, à l'intérieur du Four Impérial, l'esprit du Dao de rang 4 était presque totalement rétabli. Ses rugissements ressemblaient au fracas d'un vent déchaîné.
 
 Cependant, cet esprit du Dao n'avait plus rien de mystérieux pour Wang Lin. « Un simple esprit de pilule. Bien que tu aies été raffiné à partir de neuf soleils, tu as perdu l'essentiel de ta puissance au fil des éons. Puisque tu as eu la chance de ne pas être utilisé pour élever le Dao céleste, alors laisse-moi t'utiliser à la place! »
 

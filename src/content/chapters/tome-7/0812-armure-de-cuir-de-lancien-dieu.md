@@ -60,7 +60,7 @@ Tout en réfléchissant, il toucha son sac de rangement et une armure de cuir ap
 
 Une flamme blanche surgit soudainement et enveloppa l'armure. Celle-ci ne montra aucun changement sous les flammes, mais Wang Lin ne s'arrêta pas pour autant et expulsa davantage d'énergie originelle.
 
-Le précédent propriétaire était très probablement Maître Sans Souci. Bien qu'il fût mort, sa culture était immense. Même à présent, une trace de sens divin, brisé mais indépendant, imprégnait encore l'armure.
+Le précédent propriétaire était très probablement Maître Xiaoyaozi. Bien qu'il fût mort, sa culture était immense. Même à présent, une trace de sens divin, brisé mais indépendant, imprégnait encore l'armure.
 
 « Si quelques dizaines de milliers d'années de plus s'étaient écoulées, je crains que ce fragment de conscience divine ne se soit éveillé de lui-même. Il aurait développé sa propre volonté et serait devenu le nouvel esprit de l'Armure de Cuir de l'Ancien Dieu! » Grâce à son niveau de culture, Wang Lin était capable de percer la nature profonde des choses. Bien que tous les esprits de trésors ne se forment pas ainsi, c'était le cas pour la majorité d'entre eux.
 

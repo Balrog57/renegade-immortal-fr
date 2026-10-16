@@ -58,7 +58,7 @@ Levant sa main de jade, elle forma un sceau, pointa le vide et murmura: « À l'
 
 Sitôt ses mots prononcés, une formation gigantesque de cinquante kilomètres de large apparut silencieusement dans le vide devant elle! Cette formation, suspendue à l'envers, tournait rapidement. Un gaz violet et noir en s'échappait, et soudain, une chaîne pourpre tomba de l'intérieur de la formation.
 
-Un cultivateur Allheaven se trouvait en dessous; n'ayant pas pu esquiver assez vite, il fut frappé par la chaîne. Son corps s'effondra instantanément et son âme originelle fut piégée par le lien.
+Un cultivateur Luotian se trouvait en dessous; n'ayant pas pu esquiver assez vite, il fut frappé par la chaîne. Son corps s'effondra instantanément et son âme originelle fut piégée par le lien.
 
 De loin, on pouvait voir que l'âme originelle du cultivateur semblait collée à la chaîne. Malgré ses luttes, il ne pouvait s'échapper.
 

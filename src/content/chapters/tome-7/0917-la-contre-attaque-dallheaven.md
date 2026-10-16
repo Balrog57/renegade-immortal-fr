@@ -1,12 +1,12 @@
 ---
 n: 917
-title: "La contre-attaque d'Allheaven"
+title: "La contre-attaque de Luotian"
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 917 - Allheavens Counter-attack
 slug: la-contre-attaque-dallheaven
 ---
-Ces dix-huit sphères de sang descendirent, enveloppant la zone d'une aura oppressante. Cette pression n'eut aucun effet sur les cultivateurs d'Allheaven, qui s'illuminèrent tous d'un éclat rouge en réponse.
+Ces dix-huit sphères de sang descendirent, enveloppant la zone d'une aura oppressante. Cette pression n'eut aucun effet sur les cultivateurs de Luotian, qui s'illuminèrent tous d'un éclat rouge en réponse.
 
 Cependant, pour les cultivateurs de l'Alliance qui chargeaient, leurs esprits furent saisis de terreur!
 
@@ -34,9 +34,9 @@ De plus, si un cultivateur y fusionnait une partie de son propre sang, non seule
 
 L'expression du Saint Démon Noir était sombre; il s'apprêtait à charger pour détruire les dix-huit Lou Fu. Cependant, à cet instant précis, le Dieu du Sang surgit du vide et bloqua le Saint Démon Noir dans un éclat de rire.
 
-Le visage de Maître Flamespark demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire d'Allheaven.
+Le visage de Maître Yan Leizi demeura impassible tandis qu'il pointait l'arrière. Ce geste semblait capable de percer le vide. Il déchira les fissures spatiales qui recouvraient la région ouest et pénétra le tunnel reliant au Système Stellaire de Luotian.
 
-Dans le Système Stellaire d'Allheaven, des dizaines de milliers de cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
+Dans le Système Stellaire de Luotian, des dizaines de milliers de cultivateurs avaient activé leur culture. Un objet se dressait parmi eux!
 
 Cet objet était un morceau de bois. Cependant, ce bois mesurait cent mille pieds de long et dix mille pieds de large!
 
@@ -50,15 +50,15 @@ Ce morceau de bois possédait le pouvoir de tout transpercer et gagna progressiv
 
 Sa célérité était telle que le sifflement qu'il produisait pouvait ébranler l'esprit. La puissance qu'il contenait était inimaginable. La barrière formée par les fissures spatiales ne put absolument rien opposer à la force de cet impact. Alors que des grondements incessants résonnaient, d'immenses ondes de choc se propagèrent dans toutes les directions. Au centre de ces remous, le bois géant chargea et força l'ouverture d'un passage.
 
-Une multitude de cultivateurs d'Allheaven suivirent le bois géant, chargeant dans l'Alliance avec une intention meurtrière!
+Une multitude de cultivateurs de Luotian suivirent le bois géant, chargeant dans l'Alliance avec une intention meurtrière!
 
 Les expressions des cultivateurs de l'Alliance arrivés par les tableaux de transfert changèrent radicalement. Ils voulurent esquiver, mais l'impact du bois géant les en empêcha totalement. Même s'ils étaient éloignés, ils furent aspirés par la puissante tempête engendrée par l'objet.
 
 Certains cultivateurs furent frappés de plein fouet par le bois. Leurs corps et leurs âmes originelles furent pulvérisés, ne laissant derrière eux qu'une brume de sang. Cependant, comparée à la taille du bois, cette quantité de sang était insignifiante.
 
-Les dix-huit Lou Fu étaient le premier grand trésor préparé par les cultivateurs d'Allheaven, et ce bois géant était le second, mais ce n'était pas encore la fin!
+Les dix-huit Lou Fu étaient le premier grand trésor préparé par les cultivateurs de Luotian, et ce bois géant était le second, mais ce n'était pas encore la fin!
 
-Le bois géant avait ouvert la voie à travers la barrière des fissures spatiales. Des ondes se propagèrent sur la barrière et un rugissement qui secoua toute la région ouest jaillit du tunnel menant au Système Stellaire d'Allheaven.
+Le bois géant avait ouvert la voie à travers la barrière des fissures spatiales. Des ondes se propagèrent sur la barrière et un rugissement qui secoua toute la région ouest jaillit du tunnel menant au Système Stellaire de Luotian.
 
 Ce rugissement déchira la région ouest et ébranla violemment les cultivateurs de l'Alliance. Certains d'entre eux saignèrent même par leurs orifices sous l'effet des vibrations.
 
@@ -88,7 +88,7 @@ Cette grande bataille commença dans les régions ouest et septentrionale avant 
 
 Des ondes de sorts se propagèrent, affectant d'innombrables zones!
 
-Au milieu de ce massacre intense, la moindre imprudence de la part d'un cultivateur de l'Alliance ou d'Allheaven signifiait une mort immédiate. Le Serpent Regardant la Lune, enragé, semblait capable de distinguer les deux camps. Il épargnait rarement les cultivateurs d'Allheaven, mais massacrait sans relâche ceux de l'Alliance.
+Au milieu de ce massacre intense, la moindre imprudence de la part d'un cultivateur de l'Alliance ou de Luotian signifiait une mort immédiate. Le Serpent Regardant la Lune, enragé, semblait capable de distinguer les deux camps. Il épargnait rarement les cultivateurs de Luotian, mais massacrait sans relâche ceux de l'Alliance.
 
 De ce fait, les cultivateurs de l'Alliance étaient immédiatement désavantagés!
 

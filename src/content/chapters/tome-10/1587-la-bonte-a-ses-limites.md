@@ -72,7 +72,7 @@ Dans le Royaume du Vide Brillant, au sein du Royaume Céleste de la Pluie, Qing 
 
 Les cultivateurs du troisième niveau de la Rivière Invoquée ressentirent également cette aura et s'activèrent tous avec anxiété.
 
-À Allheaven, un individu vêtu de vert marchait silencieusement parmi les étoiles. Il scrutait l'horizon d'un air sombre, comme en quête de quelque chose qu'il ne trouvait pas.
+À Luotian, un individu vêtu de vert marchait silencieusement parmi les étoiles. Il scrutait l'horizon d'un air sombre, comme en quête de quelque chose qu'il ne trouvait pas.
 
 Cet homme était Qing Shui. Il laissa échapper un soupir et s'apprêtait à reprendre sa marche lorsqu'il se retourna soudainement. Son regard se figea vers le Vide Brillant.
 

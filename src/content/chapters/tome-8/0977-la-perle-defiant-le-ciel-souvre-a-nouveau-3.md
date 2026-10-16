@@ -16,7 +16,7 @@ Une atmosphère brûlante se manifesta dans un rayon de mille pieds autour de lu
 
 Wang Lin resta assis dans cet environnement relativement calme pendant dix jours. Durant ces dix jours, il demeura immobile, totalement absorbé par les changements radicaux qui s'opéraient au sein de son corps.
 
-Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Scruteur du Nirvana après la bataille entre Allheaven et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
+Sa culture n'était qu'à un cheveu d'atteindre le stade intermédiaire du Scruteur du Nirvana après la bataille entre Luotian et l'Alliance. Pendant ces dix jours, il n'y eut aucun changement dans sa progression. Après tout, l'illumination est une chose que l'on peut rechercher, mais non forcer.
 
 Cependant, au onzième jour, alors que la perle défiant le ciel changeait une fois de plus, la situation bascula!
 

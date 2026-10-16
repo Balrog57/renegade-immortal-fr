@@ -14,7 +14,7 @@ C'était comme une véritable punition divine!
 
 L'homme en robe rouge nommé Yu Fei observa la scène et éclata de rire. Cependant, ce rire était empreint d'un froid glacial.
 
-« Bien, tu possèdes enfin l'aura d'un Céleste du Tonnerre du Système Stellaire d'Allheaven. Ce ne fut pas une perte de temps de venir personnellement te couper la tête. Si tu meurs, tu pourras sourire même dans l'au-delà. Tous ceux que j'ai exécutés étaient célèbres! »
+« Bien, tu possèdes enfin l'aura d'un Céleste du Tonnerre du Système Stellaire de Luotian. Ce ne fut pas une perte de temps de venir personnellement te couper la tête. Si tu meurs, tu pourras sourire même dans l'au-delà. Tous ceux que j'ai exécutés étaient célèbres! »
 
 « Arrogant! » L'expression de Wang Lin était glaciale. D'un geste du doigt, il décupla la puissance du tonnerre environnant. Les éclairs provenant de dizaines de milliers de kilomètres commencèrent à converger. Vu d'en haut, on aurait dit que toute cette zone s'était transformée en un lac de tonnerre.
 

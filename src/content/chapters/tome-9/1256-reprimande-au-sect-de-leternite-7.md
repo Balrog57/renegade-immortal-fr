@@ -72,7 +72,7 @@ L'aura antique contenue dans cette sphère semblait capable de provoquer la déc
 
 C’était la première fois que Wang Lin extrayait l'âme d'une planète! Mais pour être plus exact, c'était la deuxième!
 
-La première fois, c'était lorsque le démon dispersé avait pris possession de son corps lors du combat à Allheaven! La seconde fut lorsque Wang Lin avait extrait l'âme planétaire pour aider à la transformation de la planète Suzaku; mais à l'époque, il ne maîtrisait pas encore cette technique, n'en ayant qu'une compréhension superficielle.
+La première fois, c'était lorsque le démon dispersé avait pris possession de son corps lors du combat à Luotian! La seconde fut lorsque Wang Lin avait extrait l'âme planétaire pour aider à la transformation de la planète Suzaku; mais à l'époque, il ne maîtrisait pas encore cette technique, n'en ayant qu'une compréhension superficielle.
 
 Cependant, aujourd'hui, cette troisième fois pouvait être considérée comme la véritable seconde. Car le domaine de Wang Lin s'était étendu, son niveau de culture avait augmenté et son étoile de loi s'était formée, lui permettant d'extraire presque parfaitement l'âme planétaire pour le combat!
 

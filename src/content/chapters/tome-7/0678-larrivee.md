@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 678 - Coming
 slug: larrivee
 ---
-En contemplant Liu Mei, qui descendait du ciel telle une divinité, non seulement Carefree Sanren, mais aussi Sun Xi perdirent toute intention de combattre et commencèrent à lutter contre eux-mêmes.
+En contemplant Liu Mei, qui descendait du ciel telle une divinité, non seulement Xiaoyao Sanren, mais aussi Sun Xi perdirent toute intention de combattre et commencèrent à lutter contre eux-mêmes.
 
 Seul l'ancêtre de la famille Ran, dont la culture avait atteint le stade intermédiaire de l'Ascendant, parvenait à peine à garder l'esprit clair, mais il ne pourrait tenir longtemps. Dans son esprit, la voix de la femme céleste résonnait comme un chant divin. Ses paroles semblaient s'insinuer dans son âme, éveillant même en lui des émois mortels.
 
@@ -24,19 +24,19 @@ Liu Mei afficha un regard de résignation et joua doucement avec ses cheveux. Sa
 
 Liu Mei dit d'une voix suave: « Puisque vous comptez brûler vos âmes, alors brûlez-les un peu plus intensément. »
 
-À la suite de ces paroles, le fanatisme dans les yeux de Carefree Sanren, derrière l'ancêtre de la famille Ran, devint encore plus ardent, teinté d'une forme d'obsession. Il était déjà plongé dans un état chaotique; à ses yeux, les cieux et la terre n'existaient plus, seule importait la silhouette de la femme devant lui.
+À la suite de ces paroles, le fanatisme dans les yeux de Xiaoyao Sanren, derrière l'ancêtre de la famille Ran, devint encore plus ardent, teinté d'une forme d'obsession. Il était déjà plongé dans un état chaotique; à ses yeux, les cieux et la terre n'existaient plus, seule importait la silhouette de la femme devant lui.
 
 Sans aucune hésitation, il fit un pas en avant pour barrer la route à l'ancêtre de la famille Ran. L'âme originelle dans son corps s'embrasa soudainement. Cette combustion ne consumait pas seulement son âme originelle, mais aussi son corps physique.
 
 « Il y a aussi vous. » Le regard de Liu Mei se posa sur Sun Xi.
 
-Sun Xi venait à peine de calmer son cœur, mais en entendant les paroles de Liu Mei, celui-ci s'effondra totalement. Son corps trembla et le fanatisme envahit ses yeux, tout comme chez Carefree Sanren. Il brûla son âme originelle et son corps sans la moindre hésitation pour obtenir un instant de puissance absolue. Son doigt forma une épée qu'il pointa vers l'ancêtre de la famille Ran.
+Sun Xi venait à peine de calmer son cœur, mais en entendant les paroles de Liu Mei, celui-ci s'effondra totalement. Son corps trembla et le fanatisme envahit ses yeux, tout comme chez Xiaoyao Sanren. Il brûla son âme originelle et son corps sans la moindre hésitation pour obtenir un instant de puissance absolue. Son doigt forma une épée qu'il pointa vers l'ancêtre de la famille Ran.
 
 L'ancêtre de la famille Ran esquissa un sourire pitoyable: « Zhao Chuanwen, Sun Xi, je pleure pour vous deux! »
 
-Cependant, Carefree Sanren et Sun Xi semblaient ne rien entendre; ils libérèrent leurs sorts sans tarder et entamèrent leur combat à mort contre l'ancêtre de la famille Ran. Les grondements tonitruants et les éclats de sorts firent trembler la terre et obscurcirent le ciel.
+Cependant, Xiaoyao Sanren et Sun Xi semblaient ne rien entendre; ils libérèrent leurs sorts sans tarder et entamèrent leur combat à mort contre l'ancêtre de la famille Ran. Les grondements tonitruants et les éclats de sorts firent trembler la terre et obscurcirent le ciel.
 
-Les corps de Carefree Sanren et Sun Xi se dissipèrent rapidement. Pourtant, chaque fragment de chair qui disparaissait renforçait leur culture. Ils combattirent avec une fureur de démons contre l'ancêtre de la famille Ran.
+Les corps de Xiaoyao Sanren et Sun Xi se dissipèrent rapidement. Pourtant, chaque fragment de chair qui disparaissait renforçait leur culture. Ils combattirent avec une fureur de démons contre l'ancêtre de la famille Ran.
 
 Liu Mei esquissa un léger sourire. Elle n'avait vraiment pas besoin d'escorter personne: tant qu'elle serait présente, d'innombrables cultivateurs seraient prêts à se sacrifier pour elle.
 
@@ -48,7 +48,7 @@ Sa culture progressant trop vite, son domaine ne put suivre, ce qui le cantonnai
 
 Dans un rugissement, son corps se dissipa rapidement tandis que ses mains traçaient des sceaux à une vitesse fulgurante. Il referma brusquement les paumes, et une lumière éblouissante les enveloppa. Ce n'était pas un sortilège, mais la méthode la plus directe pour utiliser l'énergie originelle de son corps. Cette énergie se mua en une lumière dorée qui, lorsqu'il ouvrit les mains, jaillit dans toutes les directions telle une pluie d'épées acérées.
 
-À cet instant, les corps de Sun Xi et Carefree Sanren étaient sur le point de disparaître. Il ne leur restait plus que la moitié de leur être, le reste s'étant déjà évaporé dans le vide. Le fanatisme dans leurs yeux atteignit son paroxysme et, sans hésiter, les deux décidèrent de déclencher une autodestruction.
+À cet instant, les corps de Sun Xi et Xiaoyao Sanren étaient sur le point de disparaître. Il ne leur restait plus que la moitié de leur être, le reste s'étant déjà évaporé dans le vide. Le fanatisme dans leurs yeux atteignit son paroxysme et, sans hésiter, les deux décidèrent de déclencher une autodestruction.
 
 Boum!
 Boum!
@@ -57,7 +57,7 @@ L'autodestruction de cultivateurs Ascendants brûlant leur âme originelle et le
 
 Le ciel sembla s'effondrer et la terre se fendit. Les mers de la planète Ran Yun s'élevèrent sur environ 330 mètres avant de s'abattre sur les terres, comme si la planète elle-même était en proie à une rage divine. Sous l'impulsion de ces autodestructions, les veines spirituelles de la planète Ran Yun commencèrent toutes à exploser.
 
-Les âmes originelles et les corps de Sun Xi et Carefree Sanren se dissipèrent. Même au moment de leur agonie, ils n'avaient pas retrouvé la raison.
+Les âmes originelles et les corps de Sun Xi et Xiaoyao Sanren se dissipèrent. Même au moment de leur agonie, ils n'avaient pas retrouvé la raison.
 
 L'ancêtre de la famille Ran se trouvait au centre du chaos. Bien qu'il ait pu résister grâce à sa puissante culture, il finit couvert de sang. Ses yeux injectés de sang fixèrent Liu Mei qui demeurait impassible, et il s'écria: « Quelle salope dégoûtante! Cette bataille ne concernait que toi et moi; pourquoi l'avoir étendue aux mortels et à cette planète?! »
 
@@ -81,7 +81,7 @@ Dans une ville située dans la partie sud de la planète Ran Yun, un jeune homme
 
 Depuis quatre ans, après avoir réalisé qu'ils avaient commis une erreur fatale en tuant un membre de la famille Huan, les trois s'étaient consacrés entièrement au raffinage de clones. Ils n'avaient pas utilisé de méthodes spéciales, et ces clones étaient si faibles qu'ils étaient incapables de combattre. Cependant, c'était tout de même un moyen de survie.
 
-L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des centaines d'années, atteignant un niveau lui permettant de quitter la planète. Il s'était échappé avec les autres membres du clan en secret il y a deux ans. Quant à Carefree Sanren, ses capacités étaient plus limitées; il ne pouvait pas diviser son âme originelle pour créer un clone, mais il possédait d'autres moyens dont personne n'ignorait la nature exacte.
+L'ancêtre de la famille Ran avait secrètement affiné un clone pendant des centaines d'années, atteignant un niveau lui permettant de quitter la planète. Il s'était échappé avec les autres membres du clan en secret il y a deux ans. Quant à Xiaoyao Sanren, ses capacités étaient plus limitées; il ne pouvait pas diviser son âme originelle pour créer un clone, mais il possédait d'autres moyens dont personne n'ignorait la nature exacte.
 
 Bien que ce Sun Xi ait réussi à raffiner un clone, sa culture n'était qu'au stade de la Formation du Noyau, ce qui l'empêchait tout simplement de quitter la planète. Auparavant, lorsqu'il avait cherché Wang Lin, il comptait lui demander de l'aide à ce sujet. Cependant, avant même de pouvoir poser la question, Wang Lin l'avait repoussé.
 

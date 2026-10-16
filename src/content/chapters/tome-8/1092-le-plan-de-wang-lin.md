@@ -80,13 +80,13 @@ Wang Lin s'était cultivé pendant plus de mille ans; il n'était plus le petit 
 
 « Tuo Sen... Je ne te laisserai pas t'échapper si facilement. Ce monde est imprégné d'avidité. Je me demande combien de personnes seront attirées par la promesse d'un Ancien Dieu à huit étoiles... » Wang Lin afficha un sourire sinistre.
 
-À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds autour de Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Allheaven et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
+À ce moment précis, un flux de flammes surgit du lointain. Lorsqu'il atteignit la centaine de pieds autour de Wang Lin, les flammes se dissipèrent pour révéler un ancien vêtu de rouge. Le vieil homme, d'un calme olympien, regarda Wang Lin et déclara lentement: « Empereur Divin, la Secte des Cadavres, Luotian et le pays de Chu Yun ont tous envoyé des émissaires; ils attendent dans la salle arrière. Souhaitez-vous les recevoir? »
 
 Cet ancien n'était pas l'un des six qui s'étaient rendus au Domaine de l'Esprit Démon. Wang Lin savait seulement qu'il s'appelait Xu et qu'il se trouvait au stade intermédiaire du Briseur du Nirvana. Il jouissait d'un grand prestige parmi les anciens de ce rang.
 
 Au cours des derniers jours, de nombreux émissaires de l'Alliance étaient venus le féliciter. Wang Lin n'avait naturellement pas reçu ces personnes, car les membres et les anciens de la Secte Divine de l'Oiseau Vermillon s'en chargeaient.
 
-Quant à Allheaven et la Secte des Cadavres, c'était la première fois qu'ils envoyaient quelqu'un. Wang Lin réfléchit un instant à son plan pour affronter Tuo Sen, puis changea d'avis sur sa décision de ne pas rencontrer ces émissaires.
+Quant à Luotian et la Secte des Cadavres, c'était la première fois qu'ils envoyaient quelqu'un. Wang Lin réfléchit un instant à son plan pour affronter Tuo Sen, puis changea d'avis sur sa décision de ne pas rencontrer ces émissaires.
 
 Wang Lin se leva et dit calmement: « Je vais les rencontrer. »
 
@@ -118,4 +118,4 @@ Si Wang Lin avait été présent, il aurait instantanément reconnu le vieil hom
 
 À ce moment-là, un junior de la Secte Divine de l'Oiseau Vermillon entra pour apporter des fruits et du thé. Après les avoir déposés, il se retira aussitôt.
 
-La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi d'Allheaven. Je suis Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »
+La belle femme saisit sa tasse et souffla sur le thé. Elle leva les yeux vers le vieillard et sourit: « Je présume que vous êtes Lie Yunzi de Luotian. Je suis Li Yingzhi de la Secte des Cadavres. Salutations, Aîné. »

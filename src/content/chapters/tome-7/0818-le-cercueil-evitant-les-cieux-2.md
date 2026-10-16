@@ -42,9 +42,9 @@ Il se souvenait distinctement d'avoir violé une loi céleste. Bien que son maî
 
 À l'époque, le sort utilisé par l'Empereur Céleste Bai Fan était précisément « Invoque le Vent »!
 
-Sous la puissance d'« Invoque le Vent », son corps entier s'était effondré et ses os s'étaient dissipés. Si son maître, Maître Sans Souci, n'était pas intervenu, même son crâne n'aurait pas survécu.
+Sous la puissance d'« Invoque le Vent », son corps entier s'était effondré et ses os s'étaient dissipés. Si son maître, Maître Xiaoyaozi, n'était pas intervenu, même son crâne n'aurait pas survécu.
 
-Après cela, Maître Sans Souci l'avait envoyé ici pour garder ce cercueil. Ce n'est que grâce à cette immense formation et à d'innombrables années de culture qu'il avait enfin pu expulser les traces du sort pour reconstituer son squelette.
+Après cela, Maître Xiaoyaozi l'avait envoyé ici pour garder ce cercueil. Ce n'est que grâce à cette immense formation et à d'innombrables années de culture qu'il avait enfin pu expulser les traces du sort pour reconstituer son squelette.
 
 En revoyant ce sort à cet instant, il en perdit la raison. Il recula précipitamment, ouvrit la bouche sans hésiter et cracha un objet. C'était un noyau bleu qui, dès son apparition, teinta l'environnement de sa lueur azurée.
 
@@ -62,7 +62,7 @@ Le sort « Invoque le Vent » était trop vicieux. Une fois introduit dans l'org
 
 « Maudit soit! Comment cet homme peut-il connaître "Invoque le Vent"?! Je dois compter sur le trésor que Maître m'a offert! » L'homme à la robe noire était plongé dans une profonde mélancolie. Tandis que le noyau bleu résistait au vent noir, il s'éloignait rapidement.
 
-Wang Lin, les yeux empreints de soif de sang, fixa l'homme. Il sortit sans hésiter le Char de Guerre du Dieu Assassin. Dans un éclat de lumière aux cinq couleurs, le papillon multicolore apparut.
+Wang Lin, les yeux empreints de soif de sang, fixa l'homme. Il sortit sans hésiter le Char de Guerre Divin. Dans un éclat de lumière aux cinq couleurs, le papillon multicolore apparut.
 
 Une fois manifesté, ses ailes frémirent légèrement, dispersant une poudre aux cinq couleurs qui parut d'une beauté sublime.
 

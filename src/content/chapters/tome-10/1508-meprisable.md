@@ -52,7 +52,7 @@ Le cinquième jade se désintégra pour fusionner avec le vide, emportant un sou
 
 Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Daoïste Shui s'était un peu dissipée. Pourtant, le malaise persistait, et il saisit le sixième jade. Un instant plus tard, une intention meurtrière brûla dans ses yeux.
 
-« Mer des Nuages, Rivière Invoquée, Allheaven et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divin et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divin et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
+« Mer des Nuages, Rivière Invoquée, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divin et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divin et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
 
 « Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également dérobé le trésor de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Démon, mais il ne pourra échapper à ce vieil homme!
 

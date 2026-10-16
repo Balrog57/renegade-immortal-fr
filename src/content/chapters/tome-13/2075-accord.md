@@ -14,7 +14,7 @@ Lorsque Wang Lin avait libéré Maître Scarlet Soul, bien que celui-ci fût aff
 
 Une fourmi qu'il pourrait écraser d'innombrables fois d'un simple point de doigt.
 
-Dans un ricanement froid, Wang Lin fit un pas en avant et disparut d'Allheaven. Dès sa disparition, la porte de lumière s'évanouit comme si elle n'avait jamais existé.
+Dans un ricanement froid, Wang Lin fit un pas en avant et disparut de Luotian. Dès sa disparition, la porte de lumière s'évanouit comme si elle n'avait jamais existé.
 
 Lorsque Wang Lin réapparut, il ne se trouvait pas près de Maître Scarlet Soul, mais au sein du familier Royaume Céleste. Personne dans le Royaume ne remarqua son arrivée.
 
@@ -54,7 +54,7 @@ En observant cette femme à la fois familière et étrangère, Wang Lin ressenti
 
 La Secte Heng Yue lui apparut en mémoire, ainsi que la jeune fille radieuse. Puis, dans la Tombe du Suzaku, cette silhouette d'une beauté suffocante.
 
-Cette image changeait sans cesse. Du moment passé dans le système stellaire d'Allheaven au rugissement amer de Wang Ping, jusqu'à l'instant précis où Wang Lin avait quitté le monde des grottes. Ses souvenirs défilaient comme une fresque picturale.
+Cette image changeait sans cesse. Du moment passé dans le système stellaire de Luotian au rugissement amer de Wang Ping, jusqu'à l'instant précis où Wang Lin avait quitté le monde des grottes. Ses souvenirs défilaient comme une fresque picturale.
 
 Ce jour-là, une pluie légère tombait sur le Royaume Céleste. Dans cette averse, une femme en blanc flottait telle une feuille de saule.
 
@@ -68,7 +68,7 @@ En un instant, elle sembla revoir la Secte Heng Yue d'il y a des millénaires. P
 
 Elle vit l'homme qui l'avait arrêtée dans la Tombe du Suzaku et qui l'avait fixée avec froideur.
 
-Et à Allheaven, l'homme qui avait poussé un cri déchirant en apprenant la mort de son avatar, le regard empli de chagrin.
+Et à Luotian, l'homme qui avait poussé un cri déchirant en apprenant la mort de son avatar, le regard empli de chagrin.
 
 Enfin, les images s'arrêtèrent sur l'instant où l'homme quitta le monde des grottes. La pluie tombait ce jour-là, empreinte d'une mélancolie de séparation.
 

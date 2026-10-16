@@ -72,7 +72,7 @@ L'Omniscient observa la Formation des Neuf Dragons et déclara d'un ton calme: �
 
 Tandis qu'ils discutaient, deux autres distorsions spatiales apparurent de part et d'autre de la formation. Il s'agissait du Couple de Culture Céleste et de Wang Lin.
 
-Une silhouette illusoire suivait le couple de cultivateurs célestes. Derrière Wang Lin se trouvaient Situ Nan, Maître Hollow Wind et leurs compagnons. Dès que les deux groupes furent face à face, ils commencèrent à jauger leurs adversaires.
+Une silhouette illusoire suivait le couple de cultivateurs célestes. Derrière Wang Lin se trouvaient Situ Nan, Maître Fu Fengzi et leurs compagnons. Dès que les deux groupes furent face à face, ils commencèrent à jauger leurs adversaires.
 
 À l'instant où Wang Lin apparut, la silhouette derrière Wang Wei trembla en l'observant attentivement. Ses yeux trahissaient un mélange de regret et de satisfaction.
 

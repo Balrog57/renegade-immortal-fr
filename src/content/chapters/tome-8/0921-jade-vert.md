@@ -10,7 +10,7 @@ Le tremblement provenant de son corps originel fit briller les yeux de Wang Lin.
 
 Fixant au loin le Serpent aux yeux de lune et ses innombrables tentacules oscillantes, Wang Lin était profondément choqué.
 
-« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour exterminer la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Allheaven savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
+« À l'époque, j'ai emprunté le Serpent aux yeux de lune pour exterminer la famille Yao et je me suis caché à l'intérieur de son corps. Je pensais que quelqu'un dans Luotian savait quelque chose sur cette créature. Quel genre d'individu pourrait capturer le Serpent aux yeux de lune pour l'envoyer dans l'Alliance comme une arme?! Serait-ce... lui?! » Wang Lin haleta, son esprit dérivant vers la silhouette qu'il avait croisée à deux reprises.
 
 La première fois, c'était lors de la bataille entre Qing Shui et le Dieu de Sang. La seconde, lors des 108 bénédictions célestes, lorsqu'il avait déchiré le passage entre les deux systèmes stellaires!
 
@@ -46,9 +46,9 @@ Le jeune homme ne prêta aucune attention au regard de Wang Lin. Il restait conc
 
 Si ces trois individus avaient capté l'attention de Wang Lin, c'est parce qu'il était incapable de percer leur niveau de culture!
 
-Tandis que Wang Lin les observait, les cultivateurs sur le bois dirigèrent également leurs regards vers lui. Compte tenu de sa réputation dans le système stellaire Allheaven, il ne fallut pas longtemps pour qu'ils le reconnaissent, d'autant plus que le rugissement du Tigre Volant retentissait derrière lui.
+Tandis que Wang Lin les observait, les cultivateurs sur le bois dirigèrent également leurs regards vers lui. Compte tenu de sa réputation dans le système stellaire Luotian, il ne fallut pas longtemps pour qu'ils le reconnaissent, d'autant plus que le rugissement du Tigre Volant retentissait derrière lui.
 
-En suivant le bois géant, ils croisèrent quelques cultivateurs d'Allheaven, mais ils n'étaient qu'une poignée et semblaient dans un état lamentable.
+En suivant le bois géant, ils croisèrent quelques cultivateurs de Luotian, mais ils n'étaient qu'une poignée et semblaient dans un état lamentable.
 
 À cet instant, l'équipe que Wang Lin avait rassemblée comptait des centaines de personnes, ce qui attira les regards de tous les cultivateurs aux alentours du bois géant. Il était évident que c'était la présence de Xu Mu qui avait attiré une telle foule!
 

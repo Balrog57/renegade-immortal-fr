@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 841 - Shattered Star of an Ancient God
 slug: letoile-brisee-dun-dieu-ancien
 ---
-Les sept individus qui atteignaient presque l'apogée du Système Stellaire d'Allheaven avaient entamé une guerre contre le Serpent aux yeux de lune!
+Les sept individus qui atteignaient presque l'apogée du Système Stellaire de Luotian avaient entamé une guerre contre le Serpent aux yeux de lune!
 
 Le corps du Serpent aux yeux de lune s'était éveillé de sa forme enroulée. Il laissa échapper un rugissement féroce tandis qu'il changeait de forme, ses tentacules imposants ondulant dans l'espace. Pour la première fois, une pointe de vigilance perçait dans son regard.
 
@@ -26,7 +26,7 @@ Un langage complexe, semblable à celui des humains, s'entremêlait à ce rugiss
 
 Le vieillard en robe rouge pointa le ciel et fusionna avec la formation octogonale. La formation resta suspendue au-dessus du Serpent aux yeux de lune et fit pleuvoir sur lui un tonnerre flamboyant. Simultanément, les éclairs rouges émanant des quatre jeunes restreignaient étroitement les mouvements de la créature.
 
-L'homme en robe noire se métamorphosa en un aigle géant de 330 mètres. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent aux yeux de lune, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire d'Allheaven!
+L'homme en robe noire se métamorphosa en un aigle géant de 330 mètres. Son corps colossal ressemblait à celui d'un véritable rapace alors qu'il décrivait des cercles autour du Serpent aux yeux de lune, l'attaquant de ses griffes. Même une véritable planète de culture s'effondrerait facilement sous la puissance de ses assauts. Sa culture était si élevée qu'il pouvait prétendre au rang des plus grands cultivateurs du Système Stellaire de Luotian!
 
 L'ancêtre de la famille Shengong s'approcha du Serpent aux yeux de lune en un seul pas. En ouvrant les bras, des filaments de tonnerre parcoururent son corps avec frénésie. Le tonnerre jaillissait sous forme de dragons tonnerreux et, bien qu'ils ne fussent pas issus d'un ancien dragon de tonnerre, ils provenaient d'un esprit du tonnerre!
 
@@ -34,7 +34,7 @@ Pas moins de dix mille de ces dragons rugissants s'élancèrent, prenant l'ancê
 
 Lie Yunzi, de la famille Zhan, était tel un spectre blanc; sa vitesse était proprement phénoménale. Armé d'une épée d'argent, son arme perçait le corps du serpent en un éclair, brillant d'un éclat si intense qu'il aurait pu aveugler n'importe quel cultivateur. L'épée d'argent s'étendait jusqu'à transpercer l'autre côté de la créature!
 
-C'était là le sort qui permettait à Lie Yunzi de faire trembler le Système Stellaire d'Allheaven: le Sort Céleste du Mouvement du Cœur! Tant que sa volonté le dictait, rien ne pouvait l'arrêter!
+C'était là le sort qui permettait à Lie Yunzi de faire trembler le Système Stellaire de Luotian: le Sort Céleste du Mouvement du Cœur! Tant que sa volonté le dictait, rien ne pouvait l'arrêter!
 
 Le Daoïste aux Cinq Couleurs se transforma en cinq rayons de lumière. Cette luminescence semblait contenir une puissance immense alors qu'elle tournait pour former un vaste vortex. Le tourbillon emplissait le monde et continuait de s'étendre. Soudain, l'ombre de quatre-vingt-dix-neuf jeunes filles apparut. Elles affichaient toutes un air solennel et s'assirent en position du lotus au sein du vortex. Une aura extrêmement féminine émanait de leurs corps, se condensant violemment en un esprit maléfique hideux qui chargea le Serpent aux yeux de lune.
 
@@ -42,7 +42,7 @@ Le visage du Dieu du Sang était empreint d'indifférence lorsqu'il explosa en u
 
 Des grondements incessants résonnaient dans l'intérieur du Serpent aux yeux de lune.
 
-La main de Maître Flamespark traça un sceau, faisant apparaître d'innombrables fragments devant lui. Chaque fragment était un morceau du Royaume Céleste! Sous son contrôle, les fragments se mirent à pivoter, et une puissante force céleste créa une tempête parmi les étoiles!
+La main de Maître Yan Leizi traça un sceau, faisant apparaître d'innombrables fragments devant lui. Chaque fragment était un morceau du Royaume Céleste! Sous son contrôle, les fragments se mirent à pivoter, et une puissante force céleste créa une tempête parmi les étoiles!
 
 Pour cette opération, presque tout le Domaine Nord avait été évacué par le Temple Céleste du Tonnerre. Tout cela n'avait qu'un but: capturer ce Serpent aux yeux de lune!
 
@@ -58,7 +58,7 @@ Le sortilège ne s'arrêta pas là. Après avoir libéré les doigts divins, l'�
 
 Une multitude de tentacules se détachèrent de son corps en tourbillonnant. Soudain, des poils poussèrent sur eux et ils se transformèrent tous en Serpents aux yeux de lune de 33 kilomètres de long!
 
-Hormis le Dieu du Sang, qui était entré dans le corps du serpent et ne pouvait voir l'extérieur, les six autres étaient pétrifiés. Même les pupilles de Maître Flamespark se rétractèrent, empreintes d'effroi.
+Hormis le Dieu du Sang, qui était entré dans le corps du serpent et ne pouvait voir l'extérieur, les six autres étaient pétrifiés. Même les pupilles de Maître Yan Leizi se rétractèrent, empreintes d'effroi.
 
 « Ceci... Quel genre de bête lunaire est-ce là? Les anciens grimoires n'ont jamais mentionné qu'une bête lunaire puisse posséder un tel sort! »
 

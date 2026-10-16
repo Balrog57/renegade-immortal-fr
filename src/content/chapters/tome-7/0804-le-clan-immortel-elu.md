@@ -34,7 +34,7 @@ L'amertume se fit plus intense sur le visage du vieil homme. Après un silence, 
 
 Wang Lin garda le silence, se contentant de regarder calmement le vieil homme.
 
-Ce dernier hésita, puis murmura: « Mon clan suivait les ordres du Roi Céleste Carefree pour garder le Fourneau Yin Mystérieux. Cependant, depuis 30 000 ans, le Fourneau s'ouvre une fois tous les cent ans. À chaque ouverture, il libère une immense quantité de brume noire. Cette brume se transforme en bêtes démoniaques et les plus puissantes peuvent même prendre forme humaine.
+Ce dernier hésita, puis murmura: « Mon clan suivait les ordres du Roi Céleste Xiaoyaozi pour garder le Fourneau Yin Mystérieux. Cependant, depuis 30 000 ans, le Fourneau s'ouvre une fois tous les cent ans. À chaque ouverture, il libère une immense quantité de brume noire. Cette brume se transforme en bêtes démoniaques et les plus puissantes peuvent même prendre forme humaine.
 
 « D'innombrables membres de mon clan sont morts à cause de ces bêtes de brume humanoïdes.
 

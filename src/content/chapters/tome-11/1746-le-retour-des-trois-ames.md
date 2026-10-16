@@ -46,7 +46,7 @@ Les trois âmes apparurent une fois les sept fragments dispersés, puis elles di
 
 Là-bas, il devint le Daoïste aux Sept Couleurs et hérita de tous les sorts du Souverain Céleste aux Sept Couleurs!
 
-La deuxième âme s'envola dans la direction opposée et entra dans le cycle des réincarnations. Après d'innombrables cycles, elle devint une bête à l'apparence ordinaire dans Allheaven.
+La deuxième âme s'envola dans la direction opposée et entra dans le cycle des réincarnations. Après d'innombrables cycles, elle devint une bête à l'apparence ordinaire dans Luotian.
 
 Sa mémoire s'éveilla lentement, et au moment où elle fut totalement éveillée, un vieil homme mourant s'écrasa sur la planète où il se trouvait.
 
@@ -110,11 +110,11 @@ C'était comme s'il existait un cycle de karma entre eux! Cependant, Wang Lin ne
 
 Son karma était initialement complet, mais en voyant la troisième âme se transformer en Su Dao, il fut plongé dans la confusion.
 
-Dans sa confusion, il vit Su Dao mourir de vieillesse avec un sourire. Après sa mort, la troisième âme s'envola et changea une fois de plus de direction. Cette fois, elle se dirigea vers Allheaven!
+Dans sa confusion, il vit Su Dao mourir de vieillesse avec un sourire. Après sa mort, la troisième âme s'envola et changea une fois de plus de direction. Cette fois, elle se dirigea vers Luotian!
 
 Le cœur de Wang Lin bondit. Au vu du temps écoulé, on approchait de la dernière réincarnation!
 
-Il suivit la troisième âme profondément dans Allheaven, où l'âme devint un poisson dans la rivière d'une planète nommée Qing Ling!
+Il suivit la troisième âme profondément dans Luotian, où l'âme devint un poisson dans la rivière d'une planète nommée Qing Ling!
 
 Ce poisson grandit lentement et nagea à travers les rivières. Il passa toute sa vie ainsi jusqu'à sa mort.
 

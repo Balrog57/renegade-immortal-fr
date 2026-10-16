@@ -1,22 +1,22 @@
 ---
 n: 660
-title: Arrivée à Allheaven
+title: Arrivée à Luotian
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 660 - Arriving in Allheaven
 slug: arrivee-a-allheaven
 ---
-Le système stellaire d'Allheaven.
+Le système stellaire de Luotian.
 
-La lueur des étoiles se répandait infiniment dans toutes les directions. Le système stellaire d'Allheaven était vaste et comptait de nombreuses planètes de culture. Hormis quelques individus au sein du système stellaire de l'Alliance, la plupart des cultivateurs ignoraient l'existence d'autres systèmes.
+La lueur des étoiles se répandait infiniment dans toutes les directions. Le système stellaire de Luotian était vaste et comptait de nombreuses planètes de culture. Hormis quelques individus au sein du système stellaire de l'Alliance, la plupart des cultivateurs ignoraient l'existence d'autres systèmes.
 
-Cependant, le système stellaire d'Allheaven était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre.
+Cependant, le système stellaire de Luotian était différent. Presque tous savaient qu'il existait un système stellaire sous chacun des Royaumes Célestes du Vent, de la Pluie, du Tonnerre et de la Foudre.
 
 Cela tenait au fait que l'Alliance de Culture était la seule puissance du système stellaire de l'Alliance et qu'elle avait dissimulé bien des secrets. À l'exception de Wang Lin, presque chaque cultivateur pensait que l'Alliance de Culture était l'unique puissance sous les étoiles.
 
-Le système stellaire d'Allheaven jouissait de beaucoup plus de liberté. Toutefois, certains secrets restaient étroitement gardés.
+Le système stellaire de Luotian jouissait de beaucoup plus de liberté. Toutefois, certains secrets restaient étroitement gardés.
 
-Une différence majeure entre les deux systèmes stellaires résidait dans le fait qu'il n'y avait pas de sectes à Allheaven; on n'y trouvait que des familles de cultivateurs. Ce qui importait au système stellaire d'Allheaven, c'étaient les lignées!
+Une différence majeure entre les deux systèmes stellaires résidait dans le fait qu'il n'y avait pas de sectes à Luotian; on n'y trouvait que des familles de cultivateurs. Ce qui importait au système stellaire de Luotian, c'étaient les lignées!
 
 C'est uniquement par le sang que les gens se rassemblaient pour fonder leur propre force.
 
@@ -62,7 +62,7 @@ C'était Wang Lin!
 
 Après que Wang Lin eut pénétré dans le vortex, ce fut comme s'il avait traversé une matrice de transfert. À sa sortie, il se retrouva au milieu des étoiles. Des nébuleuses brillantes l'entouraient, mais il n'y avait âme qui vive.
 
-C'était un système stellaire inconnu pour Wang Lin; ce n'était pas son foyer, le système stellaire de l'Alliance. Il se trouvait dans le système stellaire d'Allheaven, sous le Royaume Céleste du Tonnerre.
+C'était un système stellaire inconnu pour Wang Lin; ce n'était pas son foyer, le système stellaire de l'Alliance. Il se trouvait dans le système stellaire de Luotian, sous le Royaume Céleste du Tonnerre.
 
 Après une courte réflexion, Wang Lin sortit sa boussole stellaire. Puis, avec une pointe de confusion, il commença à errer à travers le système.
 
@@ -84,7 +84,7 @@ L'expression de Wang Lin demeurait calme tandis qu'il passait les quatre individ
 
 Des exclamations s'élevèrent de l'intérieur du nuage. Les visages des captifs devinrent instantanément livides. Sun Xueshan cria avec précipitation: « Aîné, nous possédons une Pierre Rouge Brillante! Si vous nous sauvez, nous vous la donnerons en guise de remerciement immédiat! »
 
-Wang Lin ignora l'offre, ne sachant pas ce qu'était cette pierre. Il observa la brume et se mit à réfléchir. Il était trop peu familier avec le système d'Allheaven; il devait obtenir des informations au plus vite afin de pouvoir rejoindre la famille Xiang dont la femme dans le parchemin avait parlé.
+Wang Lin ignora l'offre, ne sachant pas ce qu'était cette pierre. Il observa la brume et se mit à réfléchir. Il était trop peu familier avec le système de Luotian; il devait obtenir des informations au plus vite afin de pouvoir rejoindre la famille Xiang dont la femme dans le parchemin avait parlé.
 
 Les quatre prisonniers ne pouvaient pas voir l'extérieur. À cet instant, hormis Ran Yue, les trois autres étaient rongés par la tension et l'anxiété.
 
@@ -110,7 +110,7 @@ Le dragon de foudre rugit et une immense quantité de brume se dissipa. L'éclai
 
 En un clin d'œil, alors que le tonnerre se dissipait, les Insectes de Brume Noire s'envolèrent au loin. Les quatre individus s'échappèrent aussitôt et rejoignirent Wang Lin. Tous, sans exception, avaient l'impression d'avoir échappé aux griffes de la mort, mais ce qu'ils ressentaient par-dessus tout, c'était un choc indescriptible.
 
-Le regard de Sun Xueshan vers Wang Lin était empreint de stupeur. En tant qu'habitant du système d'Allheaven, il n'ignorait rien des sorts de tonnerre. Bien qu'il ne puisse pas en pratiquer lui-même, le système d'Allheaven était lié au Royaume Céleste du Tonnerre, et c'est là que les sorts de foudre étaient les plus puissants.
+Le regard de Sun Xueshan vers Wang Lin était empreint de stupeur. En tant qu'habitant du système de Luotian, il n'ignorait rien des sorts de tonnerre. Bien qu'il ne puisse pas en pratiquer lui-même, le système de Luotian était lié au Royaume Céleste du Tonnerre, et c'est là que les sorts de foudre étaient les plus puissants.
 
 Son choc venait de la puissance brute qui émanait de cet éclair. Il n'arrivait pas à concevoir quel sort pouvait transformer un simple rayon illusoire en une attaque contenant des traces de véritable puissance céleste! C'était une prouesse que même les anciens et les ancêtres de sa famille ne pourraient accomplir!
 

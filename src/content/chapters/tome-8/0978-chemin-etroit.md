@@ -58,21 +58,21 @@ L'expression de Wang Lin restait neutre, et il laissa même poindre un léger so
 
 Le petit rayon de lumière se rapprocha instantanément. Lorsque la lumière se dissipa, elle révéla une silhouette étrange. Cet individu possédait une tête démesurée pour un corps très mince. Sa chevelure était rare, et l'on pouvait clairement distinguer le réseau de veines sous sa peau.
 
-« Salutations, Maître! » Cet étrange cultivateur n'était autre que Big Head. Lorsque Wang Lin s'était rendu sur la planète Tian Yun, lui et Lei Ji avaient été laissés ici pour attendre son appel.
+« Salutations, Maître! » Cet étrange cultivateur n'était autre que Da Tou. Lorsque Wang Lin s'était rendu sur la planète Tian Yun, lui et Lei Ji avaient été laissés ici pour attendre son appel.
 
 Lei Ji arriva bientôt et, lorsqu'il se posa, il regarda respectueusement Wang Lin. Il dit: « Lei Ji salue le Maître. »
 
-Big Head hésita un instant avant de demander: « Le voyage du Maître s'est-il bien déroulé? »
+Da Tou hésita un instant avant de demander: « Le voyage du Maître s'est-il bien déroulé? »
 
 Wang Lin leur adressa un signe de tête et répondit lentement: « Tout s'est bien passé, malgré quelques problèmes. Je suis venu aujourd'hui pour vous emmener trouver une planète où vous pourrez pratiquer en isolement. L'environnement de cette planète est trop rude et ne convient pas à la culture. »
 
-Big Head acquiesça: « Cet endroit n'est effectivement pas adapté à la pratique en isolement. Non seulement il est abandonné, mais il s'effondre par morceaux toutes les deux heures. »
+Da Tou acquiesça: « Cet endroit n'est effectivement pas adapté à la pratique en isolement. Non seulement il est abandonné, mais il s'effondre par morceaux toutes les deux heures. »
 
-Wang Lin cessa de perdre son temps en paroles et agita ses manches. Il emmena Big Head et Lei Ji hors de cette planète délaissée pour s'élancer parmi les étoiles.
+Wang Lin cessa de perdre son temps en paroles et agita ses manches. Il emmena Da Tou et Lei Ji hors de cette planète délaissée pour s'élancer parmi les étoiles.
 
 Parmi les astres, Lei Ji étira ses membres et se prosterna. Dans un rugissement, son corps grandit jusqu'à atteindre trois cent trente mètres de hauteur.
 
-Wang Lin atterrit sur le dos de Lei Ji et s'assit. Big Head suivit Wang Lin et se tint à ses côtés comme une sentinelle. Une ombre vacilla derrière lui, et Ta Shan apparut avec une expression indifférente.
+Wang Lin atterrit sur le dos de Lei Ji et s'assit. Da Tou suivit Wang Lin et se tint à ses côtés comme une sentinelle. Une ombre vacilla derrière lui, et Ta Shan apparut avec une expression indifférente.
 
 Wang Lin pointa la main droite vers l'avant et Lei Ji chargea dans un rugissement. Tout au long du voyage, Wang Lin resta calme, bien qu'il fût impossible d'éviter de croiser des cultivateurs appartenant à la planète Tian Yun. Effrayés par la stature de Lei Ji, ils s'écartaient tous sur leur passage. Personne n'osait leur barrer la route.
 

@@ -64,7 +64,7 @@ Sa gueule s'élargit, créant une force d'aspiration colossale. Les dizaines de 
 
 Ce ne fut pas seulement leur sort: les dizaines de milliers de cultivateurs étaient également sur le point d'être aspirés. Heureusement, Wang Lin tapota la tête de la bête pour l'empêcher de les engloutir.
 
-Wang Lin comprenait la Bête du Nether. Une fois qu'elle aurait absorbé ces dizaines de milliers de cultivateurs, elle entrerait probablement dans un sommeil de plusieurs années pour les digérer. C'était précisément ce que Wang Lin voulait éviter, et la raison pour laquelle il n'avait pas invoqué la Bête du Nether lors de la bataille à Allheaven. Cette bête ne s'endormirait pas simplement en dévorant des âmes de bêtes féroces; une Bête du Nether éveillée était bien plus utile à Wang Lin!
+Wang Lin comprenait la Bête du Nether. Une fois qu'elle aurait absorbé ces dizaines de milliers de cultivateurs, elle entrerait probablement dans un sommeil de plusieurs années pour les digérer. C'était précisément ce que Wang Lin voulait éviter, et la raison pour laquelle il n'avait pas invoqué la Bête du Nether lors de la bataille à Luotian. Cette bête ne s'endormirait pas simplement en dévorant des âmes de bêtes féroces; une Bête du Nether éveillée était bien plus utile à Wang Lin!
 
 La gueule de la Bête du Nether se referma lentement sous les yeux terrifiés des cultivateurs du Royaume Extérieur. Cependant, pour leur plus grande horreur, elle rouvrit bientôt la bouche dans un hoquet tremblant. Elle semblait meurtrie et l'effroi brillait encore dans ses yeux; elle craignait toujours les dizaines de bêtes féroces qu'elle venait d'avaler.
 

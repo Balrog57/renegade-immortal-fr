@@ -40,7 +40,7 @@ En examinant l'arbre desséché, Wang Lin avait compris qu'un crâne immense ét
 
 Wang Lin avait ressenti une force vitale violente sous le sol et l'avait provoquée pour forcer la créature à attaquer. C'est pourquoi il s'était envolé pour frapper le premier, sans la moindre hésitation.
 
-Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent aux yeux de lune d'Allheaven, et encore moins cette bête qui, bien que similaire, était bien plus faible!
+Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent aux yeux de lune de Luotian, et encore moins cette bête qui, bien que similaire, était bien plus faible!
 
 Même Ling Dong, qui approchait du troisième stade, était devenu son esclave. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin!
 

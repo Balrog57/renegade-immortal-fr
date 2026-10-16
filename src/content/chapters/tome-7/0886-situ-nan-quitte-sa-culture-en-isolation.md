@@ -80,23 +80,23 @@ Trois jours plus tard, Wang Lin quitta cette planète abandonnée avec Li Muwan 
 
 La voix mélancolique de Wang Lin se propagea à travers les étoiles. Sa tristesse était si puissante qu'elle semblait s'attarder dans l'espace.
 
-Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dans le Système Stellaire de l'Alliance. Depuis la zone ouest du système, l'armée des cultivateurs Allheaven ravageait tout sur son passage. Sous les assauts des Allheaven, les planètes de culture tombaient une à une et les cultivateurs qui y résidaient battaient en retraite.
+Durant ce court laps de temps d'un demi-mois, un bain de sang avait éclaté dans le Système Stellaire de l'Alliance. Depuis la zone ouest du système, l'armée des cultivateurs Luotian ravageait tout sur son passage. Sous les assauts des Luotian, les planètes de culture tombaient une à une et les cultivateurs qui y résidaient battaient en retraite.
 
 C'était comme si la fin du monde était arrivée. Ce qui était étrange, c'est que l'Alliance de Culture ne bougeait pas. Ils ne semblaient nullement inquiets, comme s'ils se contentaient d'observer la scène depuis la lisière.
 
-Le camp Allheaven était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même le Maître Flamespark et ses compagnons étaient rongés par le doute.
+Le camp Luotian était très suspicieux et ne parvenait pas à déterminer l'attitude de l'Alliance. Même le Maître Yan Leizi et ses compagnons étaient rongés par le doute.
 
-Si la même chose s'était produite dans le Système Stellaire Allheaven, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
+Si la même chose s'était produite dans le Système Stellaire Luotian, le Temple Céleste du Tonnerre aurait immédiatement organisé une contre-attaque. Ils n'auraient jamais laissé à l'adversaire la chance de prendre pied pour se rétablir!
 
-Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Allheaven étaient de rang 6; ils n'avaient trouvé aucune planète de rang 7.
+Non seulement l'Alliance de Culture restait silencieuse, mais aucune planète de culture de rang 7 ne s'était manifestée. Toutes les planètes occupées par les cultivateurs Luotian étaient de rang 6; ils n'avaient trouvé aucune planète de rang 7.
 
-Cette situation singulière troublait davantage les cultivateurs Allheaven. En apparence, le camp Allheaven semblait triomphant. Cependant, devoir faire face à l'inconnu sans pouvoir anticiper les mouvements de l'adversaire rendait tous les vieux monstres du Système Stellaire Allheaven profondément mal à l'aise.
+Cette situation singulière troublait davantage les cultivateurs Luotian. En apparence, le camp Luotian semblait triomphant. Cependant, devoir faire face à l'inconnu sans pouvoir anticiper les mouvements de l'adversaire rendait tous les vieux monstres du Système Stellaire Luotian profondément mal à l'aise.
 
-Mais ce n'était pas là le point principal. Durant ces quinze jours de combats, l'efficacité martiale des pays de culture de rang 6 avait terriblement stupéfié les cultivateurs Allheaven!
+Mais ce n'était pas là le point principal. Durant ces quinze jours de combats, l'efficacité martiale des pays de culture de rang 6 avait terriblement stupéfié les cultivateurs Luotian!
 
-Ces regards sanguinaires, ces plans rusés, ces trésors complexes et tant d'autres choses causèrent de lourdes pertes aux Allheaven. Ce contraste saisissant leur fit comprendre que si leurs niveaux de culture étaient identiques, ce sont les Allheaven qui perdraient!
+Ces regards sanguinaires, ces plans rusés, ces trésors complexes et tant d'autres choses causèrent de lourdes pertes aux Luotian. Ce contraste saisissant leur fit comprendre que si leurs niveaux de culture étaient identiques, ce sont les Luotian qui perdraient!
 
-Ce qui choqua encore plus les Allheaven, c'est que tous les cultivateurs de l'Alliance tuaient avec une détermination implacable et possédaient une expérience de combat phénoménale. Les Allheaven avaient le sentiment que chaque membre de l'Alliance était issu de la planète Dong Lin!
+Ce qui choqua encore plus les Luotian, c'est que tous les cultivateurs de l'Alliance tuaient avec une détermination implacable et possédaient une expérience de combat phénoménale. Les Luotian avaient le sentiment que chaque membre de l'Alliance était issu de la planète Dong Lin!
 
 À ce moment précis, une aura puissante éclata soudainement d'une planète abandonnée sur le flanc ouest du Système Stellaire de l'Alliance. Peu après, un grondement assourdissant résonna sur toute la planète et se propagea avec frénésie.
 

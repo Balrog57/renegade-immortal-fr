@@ -38,13 +38,13 @@ Au bout de cet espace vide se trouvait la porte du Royaume Céleste du Tonnerre.
 
 Cet éclair était rouge sombre; il émergeait du néant et son autre extrémité s'y perdait comme un fleuve. Cependant, aucune trace de vie n'en émanait, comme s'il s'agissait d'un être dont la vie s'était éteinte.
 
-De nombreuses légendes circulaient sur cet éclair dans le Système Stellaire d'Allheaven. La plus acceptée soutenait qu'à l'origine, il n'y avait pas de porte vers le Royaume Céleste du Tonnerre. Le Royaume entier était un lac de tonnerre gigantesque qui ne nécessitait aucune entrée.
+De nombreuses légendes circulaient sur cet éclair dans le Système Stellaire de Luotian. La plus acceptée soutenait qu'à l'origine, il n'y avait pas de porte vers le Royaume Céleste du Tonnerre. Le Royaume entier était un lac de tonnerre gigantesque qui ne nécessitait aucune entrée.
 
 Quant à cet éclair rouge sombre, il aurait été formé par les âmes de tous les êtres célestes lors de l'effondrement du Royaume Céleste. Il était devenu la porte après la catastrophe.
 
 À ce moment-là, plusieurs personnes étaient déjà assises en position du lotus sous cet éclair rouge sombre. Shengong Hu comptait parmi elles.
 
-Outre les messagers du Temple Céleste du Tonnerre, on trouvait quelques rares cultivateurs solitaires du Système Stellaire d'Allheaven. Dans un système régi par des familles de culture, les solitaires étaient peu nombreux. Sans un niveau de culture terrifiant pour se protéger, la survie était bien difficile.
+Outre les messagers du Temple Céleste du Tonnerre, on trouvait quelques rares cultivateurs solitaires du Système Stellaire de Luotian. Dans un système régi par des familles de culture, les solitaires étaient peu nombreux. Sans un niveau de culture terrifiant pour se protéger, la survie était bien difficile.
 
 Presque chaque cultivateur solitaire était une existence puissante.
 

@@ -24,7 +24,7 @@ Cependant, malgré tous ses efforts, aucune modification n'était apparue sur le
 
 « Par conséquent, ses calculs seront erronés et je pourrai briser son stratagème! » Les yeux de Wang Lin étaient froids alors qu'il fixait le Clairvoyant aux robes grises. Plus il y réfléchissait, plus cela semblait réalisable.
 
-« Quant à la possibilité que la perle soit découverte... Depuis que je l'ai obtenue, même ce mystérieux cultivateur de la troisième étape d'Allheaven n'a pu la détecter. Je ne crois pas que le Clairvoyant puisse y parvenir! »
+« Quant à la possibilité que la perle soit découverte... Depuis que je l'ai obtenue, même ce mystérieux cultivateur de la troisième étape de Luotian n'a pu la détecter. Je ne crois pas que le Clairvoyant puisse y parvenir! »
 
 Quant à Ling Tianhou, son expression était sombre. La raison pour laquelle il était venu ici n'était pas d'aider Wang Lin, mais simplement parce qu'il aimait semer le trouble dans tout ce que le Clairvoyant entreprenait.
 

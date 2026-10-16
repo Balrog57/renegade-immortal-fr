@@ -36,29 +36,29 @@ Après avoir réfléchi un instant, Wang Lin décida de ne pas les envoyer dans 
 
 « Allons-y! » dit Wang Lin d'un ton calme avant de faire un pas pour quitter la planète. Lei Ji et ses compagnons le suivirent rapidement.
 
-À ce moment précis, toute la région occidentale était sous l'emprise des cultivateurs d'Allheaven. Tandis que des masses imposantes de ces derniers traversaient le tunnel entre les deux systèmes, ils prenaient possession des planètes une à une. Il était évident qu'ils considéraient désormais cet endroit comme faisant partie d'Allheaven!
+À ce moment précis, toute la région occidentale était sous l'emprise des cultivateurs de Luotian. Tandis que des masses imposantes de ces derniers traversaient le tunnel entre les deux systèmes, ils prenaient possession des planètes une à une. Il était évident qu'ils considéraient désormais cet endroit comme faisant partie de Luotian!
 
-Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs d'Allheaven s'épaississait. Il n'y avait pas une seule planète de culture de rang 7 dans cette région, seulement des planètes de rang 6. Tout cela était fort étrange.
+Tandis que la région occidentale tombait, l'ombre qui planait sur les puissants cultivateurs de Luotian s'épaississait. Il n'y avait pas une seule planète de culture de rang 7 dans cette région, seulement des planètes de rang 6. Tout cela était fort étrange.
 
 Cependant, rien ne changea pendant très longtemps. Malgré leurs doutes persistants, ils lancèrent une seconde vague d'attaques sur ordre du Temple Céleste du Tonnerre. Leur cible, cette fois, était la région nord.
 
-Des groupes de cultivateurs d'Allheaven s'élancèrent rapidement vers la région nord, portés par des rayons d'énergie d'épée!
+Des groupes de cultivateurs de Luotian s'élancèrent rapidement vers la région nord, portés par des rayons d'énergie d'épée!
 
 En passant, ils générèrent un fracas tel que l'espace lui-même semblait sur le point de s'effondrer. L'énergie d'épée émise par des dizaines de milliers de cultivateurs fit changer les couleurs du monde.
 
 Les épées volantes défiaient la hauteur du ciel et menaçaient de faire basculer le monde. Inconsciemment, elles dégageaient une sensation de pouvoir inverser le temps et fendre les cieux.
 
-Les cultivateurs d'Allheaven étaient empreints d'une intention meurtrière alors qu'ils quittaient les planètes de culture pour poursuivre leur progression.
+Les cultivateurs de Luotian étaient empreints d'une intention meurtrière alors qu'ils quittaient les planètes de culture pour poursuivre leur progression.
 
-Le Maître Flamespark, porté par une sphère de flammes avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise imminent. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
+Le Maître Yan Leizi, porté par une sphère de flammes avec un groupe de cultivateurs autour de lui, affichait une expression sombre. Alors qu'ils se frayaient un chemin vers le Système Stellaire de l'Alliance, il ressentit un sentiment de crise imminent. Lorsqu'il tentait de prédire l'avenir, il ne percevait qu'une lumière sanguine dense qui l'empêchait de voir clair.
 
 Ils furent contraints de poursuivre leur offensive dans la région nord car ils étaient restés trop longtemps dans la région occidentale. Ils ne pouvaient pas battre en retraite sans combattre; ainsi, bien qu'il sût que l'Alliance complotait, il fut forcé de foncer!
 
-« Même s'il y a un complot, ce vieil homme n'a pas peur. De plus, l'Alliance n'est pas la seule à avoir une carte cachée. J'ai également soigneusement prévu des contre-mesures pour nombre des ruses que l'Alliance aurait pu concevoir! » Une lueur de froideur passa dans les yeux du Maître Flamespark, empreints d'une intention meurtrière.
+« Même s'il y a un complot, ce vieil homme n'a pas peur. De plus, l'Alliance n'est pas la seule à avoir une carte cachée. J'ai également soigneusement prévu des contre-mesures pour nombre des ruses que l'Alliance aurait pu concevoir! » Une lueur de froideur passa dans les yeux du Maître Yan Leizi, empreints d'une intention meurtrière.
 
-De vastes cohortes de cultivateurs d'Allheaven chevauchant des rayons d'énergie d'épée traversèrent la région occidentale pour atteindre la région nord.
+De vastes cohortes de cultivateurs de Luotian chevauchant des rayons d'énergie d'épée traversèrent la région occidentale pour atteindre la région nord.
 
-Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Allheaven. Cette aura explosa avec frénésie et, en un instant, un impact destructeur s'abattit sur la planète de culture.
+Alors que ces forces chargeaient vers le nord, une aura antique jaillit soudainement d'une des planètes de la région occidentale déjà conquise par Luotian. Cette aura explosa avec frénésie et, en un instant, un impact destructeur s'abattit sur la planète de culture.
 
 Des centaines de cultivateurs vivaient sur cette planète; ils tentèrent de fuir dans une panique totale. Mais ce qu'ils aperçurent fut la dernière chose qu'ils virent de leur vie.
 
@@ -76,40 +76,40 @@ Des explosions fracassantes résonnèrent. À mesure que l'onde destructrice se 
 
 Les fissures étaient si nombreuses qu'il ne fallut qu'un instant pour qu'elles finissent par toutes se rejoindre!
 
-Tous les cultivateurs d'Allheaven situés dans un rayon de dizaines de milliers de kilomètres furent frappés par ce choc, voyant leurs corps et leurs âmes originelles instantanément détruits.
+Tous les cultivateurs de Luotian situés dans un rayon de dizaines de milliers de kilomètres furent frappés par ce choc, voyant leurs corps et leurs âmes originelles instantanément détruits.
 
 À cet instant, ce ne fut pas la seule planète à exploser. Cela arriva partout.
 
 Toutes les planètes de culture de la région occidentale s'effondrèrent avec frénésie, formant une onde de choc titanesque qui envahit toute la région!
 
-Un tel mouvement n'était l'apanage que de l'Alliance de Culture. « Puisque tous les cultivateurs d'Allheaven sont venus, alors je vous laisserai tous mourir dans la région occidentale! »
+Un tel mouvement n'était l'apanage que de l'Alliance de Culture. « Puisque tous les cultivateurs de Luotian sont venus, alors je vous laisserai tous mourir dans la région occidentale! »
 
-Faisant fi de la vie de chaque créature de la région occidentale, ils lancèrent un plan terrifiant pour massacrer les forces d'Allheaven!
+Faisant fi de la vie de chaque créature de la région occidentale, ils lancèrent un plan terrifiant pour massacrer les forces de Luotian!
 
 L'effondrement frénétique s'intensifia. Tandis que les planètes s'écrasaient, la tempête née de ce chaos balaya la région. De multiples déchirures spatiales apparurent sous l'effet de la tempête pour finalement fusionner.
 
 Le fracas tonitruant résonna et la région occidentale parut sombrer dans la fin du monde! L'effondrement à grande échelle provoqua une multitude de failles spatiales, projetant au hasard des fragments rocheux chargés d'une puissance destructrice.
 
-Ce fut un véritable massacre. La plupart des cultivateurs d'Allheaven ne purent même pas riposter et furent balayés par la tempête.
+Ce fut un véritable massacre. La plupart des cultivateurs de Luotian ne purent même pas riposter et furent balayés par la tempête.
 
-À mesure que les failles spatiales s'élargissaient, des vents glacials en jaillirent pour se fondre dans la tempête, formant un vortex gigantesque. Ce vortex était si vaste qu'il couvrit la majeure partie de la région occidentale, coupant ainsi la route aux cultivateurs d'Allheaven qui tentaient de rejoindre le Système Stellaire d'Allheaven par le tunnel depuis la région nord.
+À mesure que les failles spatiales s'élargissaient, des vents glacials en jaillirent pour se fondre dans la tempête, formant un vortex gigantesque. Ce vortex était si vaste qu'il couvrit la majeure partie de la région occidentale, coupant ainsi la route aux cultivateurs de Luotian qui tentaient de rejoindre le Système Stellaire de Luotian par le tunnel depuis la région nord.
 
 Alors que la tempête allait se dissiper, d'innombrables silhouettes apparurent et des matrices de transfert se matérialisèrent les unes après les autres. Les cultivateurs de l'Alliance de Culture sortirent des matrices.
 
 « Tuez! » Des rugissements capables de fendre les étoiles retentirent!
 
-Les yeux du Maître Flamespark devinrent rouges de rage. Il avait tout prévu, mais il n'avait pas imaginé que l'Alliance détruirait la région occidentale pour provoquer un tel impact.
+Les yeux du Maître Yan Leizi devinrent rouges de rage. Il avait tout prévu, mais il n'avait pas imaginé que l'Alliance détruirait la région occidentale pour provoquer un tel impact.
 
-Simultanément, des rayons d'énergie d'épée traversèrent le domaine nord lors de l'arrivée des cultivateurs de l'Alliance. Ils chargèrent les forces d'Allheaven en panique qui tentaient de s'échapper.
+Simultanément, des rayons d'énergie d'épée traversèrent le domaine nord lors de l'arrivée des cultivateurs de l'Alliance. Ils chargèrent les forces de Luotian en panique qui tentaient de s'échapper.
 
 Dans le domaine nord, une ondulation parcourut les rangs de l'armée de l'Alliance. Un vieil homme vêtu de noir en sortit et son rire résonna à travers le monde alors qu'il avançait.
 
-« Maître Flamespark, cela faisait longtemps. Vous souvenez-vous encore du vieux Saint Démon Black Fiend? »
+« Maître Yan Leizi, cela faisait longtemps. Vous souvenez-vous encore du vieux Saint Démon Black Fiend? »
 
-Les yeux du Maître Flamespark virèrent au rouge vif, mais son expression ne trahissait aucune réaction face à cette provocation. Il dit calmement: « Ainsi, c'était là votre plan? Très bien! Laissez-moi vous montrer les sorts de mes cultivateurs d'Allheaven! »
+Les yeux du Maître Yan Leizi virèrent au rouge vif, mais son expression ne trahissait aucune réaction face à cette provocation. Il dit calmement: « Ainsi, c'était là votre plan? Très bien! Laissez-moi vous montrer les sorts de mes cultivateurs de Luotian! »
 
-Le Maître Flamespark leva la main et pointa vers le haut. Une immense fissure fut silencieusement déchirée dans le ciel. Cette brèche était si vaste qu'elle ressemblait à un fleuve couvrant l'immensité céleste.
+Le Maître Yan Leizi leva la main et pointa vers le haut. Une immense fissure fut silencieusement déchirée dans le ciel. Cette brèche était si vaste qu'elle ressemblait à un fleuve couvrant l'immensité céleste.
 
 Au même instant, une pression colossale s'en échappa et dix-huit sphères de sang, larges de plus de cent pieds, descendirent des cieux!
 
-« Votre Système Stellaire de l'Alliance a osé détruire la région occidentale; comment mon Système Stellaire d'Allheaven pourrait-il ne pas réagir? Puisque vous avez tué certains des miens, je tuerai les vôtres! » La voix du Maître Flamespark était empreinte d'une absolue confiance.
+« Votre Système Stellaire de l'Alliance a osé détruire la région occidentale; comment mon Système Stellaire de Luotian pourrait-il ne pas réagir? Puisque vous avez tué certains des miens, je tuerai les vôtres! » La voix du Maître Yan Leizi était empreinte d'une absolue confiance.

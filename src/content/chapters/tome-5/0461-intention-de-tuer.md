@@ -56,7 +56,7 @@ Lorsque Wang Lin avait vu Yunque Zi et le vieil homme contenir l'attaque, il n'e
 
 Face à cette puissance, son âme originelle commença à trembler, montrant des signes d'instabilité. Non seulement cela, mais chaque partie de son corps semblait écrasée par d'innombrables montagnes.
 
-Cette sensation ne lui était pas étrangère; c'était exactement la même pression qu'il avait ressentie au niveau du filon spirituel sous la Secte du Raffinement de l'Âme, si ce n'est que celle-ci était des milliers de fois plus intense.
+Cette sensation ne lui était pas étrangère; c'était exactement la même pression qu'il avait ressentie au niveau du filon spirituel sous la Secte du Affinement de l'Âme, si ce n'est que celle-ci était des milliers de fois plus intense.
 
 Avant même que l'énergie de l'épée ne le percute, le sang commença déjà à s'écouler du coin de la bouche de Wang Lin, mais son regard ne montrait aucun signe de défaite.
 

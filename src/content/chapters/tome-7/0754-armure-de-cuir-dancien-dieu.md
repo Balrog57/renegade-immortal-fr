@@ -56,7 +56,7 @@ Wang Lin eut un léger sourire: « La maîtrise des restrictions du Frère Li es
 
 « La Restriction du Prunier est une déclinaison de la Restriction d'Annihilation. Cependant, elle a été diffusée à l'extérieur, et c'est ainsi que le monde profane en a découvert l'existence. » Li Yuan parlait avec une assurance profonde.
 
-Wang Lin regarda Li Yuan et dit: « Avec la puissance de la Restriction d'Annihilation, il doit y avoir énormément de personnes qui la recherchent dans le Système Stellaire de l'Allheaven... »
+Wang Lin regarda Li Yuan et dit: « Avec la puissance de la Restriction d'Annihilation, il doit y avoir énormément de personnes qui la recherchent dans le Système Stellaire de le Luotian... »
 
 Li Yuan eut un sourire désabusé et hocha la tête. « Je ne veux pas vous mentir, Frère Xu. Durant les innombrables années où la famille Li a souffert sous l'empreinte d'esclave, la Restriction d'Annihilation a été transmise à l'extérieur de la famille à sept reprises! Et chaque fois, c'était par nécessité ultime. »
 

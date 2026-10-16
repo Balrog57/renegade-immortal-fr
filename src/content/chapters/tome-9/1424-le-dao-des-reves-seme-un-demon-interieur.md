@@ -12,7 +12,7 @@ Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Sunder
 
 Quant à Flowing Time, bien qu'elle fût inférieure à Sundered Night en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps est tout et il est invisible; il est comparable aux cieux.
 
-Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Daoïste Water. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant les Cieux. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
+Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Daoïste Water. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
 
 À l'intérieur du Domaine du Dao, deux sorts apparurent dans l'esprit de Wang Lin. Le premier était le sort qui avait gravement blessé l'Omniscient et qui était le sort salvateur d'un Dieu Ancien à 8 étoiles: le Rêve des Temps Anciens!
 

@@ -22,9 +22,9 @@ Puisque Maître Lu Fu s'obstinait, Wang Lin n'avait rien contre l'idée de lui d
 
 Les yeux de Maître Lu Fu s'illuminèrent et il fixa le point entre les sourcils de Wang Lin. Il perçut une intention de combat monstrueuse qui fit se rétracter ses pupilles, et il changea rapidement d'avis.
 
-« Cher Compagnon Cultivateur Wang Lin, le système stellaire Allheaven ne peut supporter un combat entre nous deux à pleine puissance. Une fois que la Formation de Scellement du Royaume sera déclenchée, cela n'en vaudra pas la peine... Que diriez-vous d'une Bataille Littéraire, en deux manches gagnantes! »
+« Cher Compagnon Cultivateur Wang Lin, le système stellaire Luotian ne peut supporter un combat entre nous deux à pleine puissance. Une fois que la Formation de Scellement du Royaume sera déclenchée, cela n'en vaudra pas la peine... Que diriez-vous d'une Bataille Littéraire, en deux manches gagnantes! »
 
-« Si vous gagnez, je remettrai personnellement le Dieu de Sang, mais si vous perdez, vous devrez partir immédiatement! Vous ne serez pas autorisé à entrer dans Allheaven sans mon approbation! »
+« Si vous gagnez, je remettrai personnellement le Dieu de Sang, mais si vous perdez, vous devrez partir immédiatement! Vous ne serez pas autorisé à entrer dans Luotian sans mon approbation! »
 
 « Osez-vous affronter ce vieil homme dans une Bataille Littéraire? » Maître Lu Fu sentait que même s'il combattait Wang Lin, cela se solderait par un match nul, les menant à une impasse.
 
@@ -46,7 +46,7 @@ C'est ainsi que fut formé le Pacte de la Bataille Littéraire!
 
 Wang Lin esquissa un sourire en regardant Maître Lu Fu. Il agita sa manche et rit: « Très bien. Puisque vous souhaitez une Bataille Littéraire, je consens à vous accompagner. »
 
-En entendant cela, Maître Lu Fu se détendit légèrement. Pourtant, en voyant l'intention de combat dans les yeux de Wang Lin, il sentit que ce dernier débordait de confiance et eut le vague pressentiment qu'une catastrophe approchait. Toujours prudent, et en tant qu'ancêtre d'Allheaven, il ne pouvait se permettre la défaite.
+En entendant cela, Maître Lu Fu se détendit légèrement. Pourtant, en voyant l'intention de combat dans les yeux de Wang Lin, il sentit que ce dernier débordait de confiance et eut le vague pressentiment qu'une catastrophe approchait. Toujours prudent, et en tant qu'ancêtre de Luotian, il ne pouvait se permettre la défaite.
 
 C'est pour cela qu'il avait proposé le Pacte de la Bataille Littéraire. Voyant Wang Lin accepter, il ne put s'empêcher de ricaner intérieurement.
 
@@ -60,9 +60,9 @@ L'expression de Maître Lu Fu resta imperturbable et il hocha la tête, tout en 
 
 Il ne perdit plus de temps avec Wang Lin et agita la main. Le vortex autour de lui commença à tournoyer, libérant une brume infinie. Une tempête s'éleva et il jaillit du vortex pour apparaître au-dessus de la formation géante.
 
-Derrière lui, les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre levèrent les yeux. Leurs regards débordaient de ferveur et de respect. Maître Lu Fu, l'ancêtre d'Allheaven!
+Derrière lui, les dizaines de milliers de cultivateurs du Temple Céleste du Tonnerre levèrent les yeux. Leurs regards débordaient de ferveur et de respect. Maître Lu Fu, l'ancêtre de Luotian!
 
-Même les trois personnes à l'intérieur du vortex devinrent respectueuses. Pour le peuple d'Allheaven, Maître Lu Fu était un dieu! Pouvoir observer personnellement leur ancêtre raffiner un trésor suffisait à faire battre leurs cœurs d'excitation.
+Même les trois personnes à l'intérieur du vortex devinrent respectueuses. Pour le peuple de Luotian, Maître Lu Fu était un dieu! Pouvoir observer personnellement leur ancêtre raffiner un trésor suffisait à faire battre leurs cœurs d'excitation.
 
 « Aujourd'hui, ce vieil homme va raffiner un trésor qui restera au Temple Céleste du Tonnerre. Une fois la bataille contre le Royaume Extérieur commencée, un Classement Céleste sera établi. Ceux qui tueront le plus grand nombre de cultivateurs ennemis durant les trois premiers mois recevront ce trésor! » Les paroles de Maître Lu Fu résonnèrent aux oreilles de tous les cultivateurs.
 
@@ -74,17 +74,17 @@ Maître Lu Fu se tenait à mille pieds de Wang Lin, surplombant la formation. Il
 
 En un éclair, une ombre de lumière stellaire se dessina: c'était l'ombre d'un arbre géant! Cet arbre, fait de pure lumière astrale, dégageait un éclat éblouissant. À première vue, il semblait constitué d'innombrables planètes. Ce colosse de centaines de milliers de pieds de haut flottait ainsi parmi les étoiles.
 
-« Que la poussière qui remplit Allheaven depuis l'Antiquité serve de corps à l'arbre! Condensez-la en trésor! » La voix de Maître Lu Fu résonna tandis que sa main gauche balayait le firmament. Le domaine stellaire entier gronda, et ce grondement se propagea dans tout Allheaven.
+« Que la poussière qui remplit Luotian depuis l'Antiquité serve de corps à l'arbre! Condensez-la en trésor! » La voix de Maître Lu Fu résonna tandis que sa main gauche balayait le firmament. Le domaine stellaire entier gronda, et ce grondement se propagea dans tout Luotian.
 
-Cela se transforma en d'innombrables ondulations. À cet instant, une multitude de particules de poussière invisibles furent forcées de se révéler, attirées par une puissante force de succion. C'était comme si une tempête ayant balayé tout Allheaven transportait l'infini des poussières vers cet arbre de lumière stellaire.
+Cela se transforma en d'innombrables ondulations. À cet instant, une multitude de particules de poussière invisibles furent forcées de se révéler, attirées par une puissante force de succion. C'était comme si une tempête ayant balayé tout Luotian transportait l'infini des poussières vers cet arbre de lumière stellaire.
 
 Ces particules n'étaient, en réalité, que de la simple poussière. Mais lorsqu'elles pénétrèrent dans l'arbre céleste, elles cessèrent d'être diffuses pour prendre rapidement une forme définie.
 
 L'expression de Wang Lin resta sereine alors qu'il observait le raffinage de Maître Lu Fu. L'arbre de lumière stellaire, haut de centaines de milliers de pieds, apparut instantanément comme s'il avait toujours été solide! En utilisant l'espace pour la terre, la poussière pour les nutriments et la lumière des étoiles pour l'âme, c'était comme si un arbre ancestral venait soudainement de surgir!
 
-Une puissance colossale émana lentement de cet arbre, accompagnée d'une vitalité débordante. Cela galvanisa les dizaines de milliers de cultivateurs d'Allheaven qui se tenaient derrière Maître Lu Fu!
+Une puissance colossale émana lentement de cet arbre, accompagnée d'une vitalité débordante. Cela galvanisa les dizaines de milliers de cultivateurs de Luotian qui se tenaient derrière Maître Lu Fu!
 
-« Le trésor a pris forme, mais il lui manque une essence. Bien que ce vieil homme soit originaire d'Allheaven, j'ai été honoré par le Royaume Céleste du Vent et j'y ai acquis la compréhension de l'essence du vent. Maintenant, fusionnons mon essence de vent dans cet arbre! »
+« Le trésor a pris forme, mais il lui manque une essence. Bien que ce vieil homme soit originaire de Luotian, j'ai été honoré par le Royaume Céleste du Vent et j'y ai acquis la compréhension de l'essence du vent. Maintenant, fusionnons mon essence de vent dans cet arbre! »
 
 Maître Lu Fu ouvrit les bras et, d'un geste, un vent puissant jaillit de son corps. Neuf vortex apparurent dans ses yeux et, à chaque rotation, la bourrasque s'intensifiait. En un instant, toutes les tempêtes du monde semblèrent converger et être emprisonnées. Une puissance terrifiante se forma et chargea l'arbre géant.
 
@@ -92,7 +92,7 @@ Wang Lin resta calme lorsque le vent frappa son corps. Ses essences de tonnerre 
 
 La violente rafale percuta le grand arbre, le faisant trembler comme s'il sortait d'un sommeil séculaire. L'aura d'un trésor de type pseudo Vide du Nirvana se propagea.
 
-« Maintenant, il possède l'essence, mais il lui manque le sang! Puisque ce vieil homme prévoit de laisser ce trésor à Allheaven, il doit être nourri par le sang des cultivateurs d'Allheaven! » Les yeux de Maître Lu Fu s'illuminèrent et sa main droite pointa les dizaines de milliers de cultivateurs devant lui.
+« Maintenant, il possède l'essence, mais il lui manque le sang! Puisque ce vieil homme prévoit de laisser ce trésor à Luotian, il doit être nourri par le sang des cultivateurs de Luotian! » Les yeux de Maître Lu Fu s'illuminèrent et sa main droite pointa les dizaines de milliers de cultivateurs devant lui.
 
 D'un balayage de la main, une goutte de sang se forma entre les sourcils de chaque cultivateur pour converger vers lui. Puis, Maître Lu Fu mordit le bout de sa langue et cracha son propre sang de cultivateur du troisième niveau. Les deux gouttes fusionnèrent et il agita sa manche. Le sang s'envola immédiatement vers l'arbre pour s'y mêler.
 
@@ -104,6 +104,6 @@ Après ces manipulations, Maître Lu Fu laissa échapper un rugissement. Les vor
 
 L'arbre de centaines de milliers de pieds trembla et se rétracta brutalement. Il fut compressé jusqu'à n'atteindre que cent pieds. Son aura choquante se déploya, faisant trembler l'espace lui-même!
 
-« Ce trésor sera nommé l'Arbre d'Allheaven. Qu'en pense le Compagnon Cultivateur? » Maître Lu Fu affichait un regard fier, teinté d'un profond soulagement. Il avait utilisé Allheaven comme racine, les cultivateurs comme sang, sa propre essence comme noyau et sa culture pour le comprimer. Bien que ce ne fût pas le trésor le plus puissant, réussir un tel raffinage en si peu de temps le laissait très satisfait!
+« Ce trésor sera nommé l'Arbre de Luotian. Qu'en pense le Compagnon Cultivateur? » Maître Lu Fu affichait un regard fier, teinté d'un profond soulagement. Il avait utilisé Luotian comme racine, les cultivateurs comme sang, sa propre essence comme noyau et sa culture pour le comprimer. Bien que ce ne fût pas le trésor le plus puissant, réussir un tel raffinage en si peu de temps le laissait très satisfait!
 
 En particulier, l'effort requis pour sacrifier cette part de sang et d'énergie essentielle lui avait coûté cher, mais pour remporter cette Bataille Littéraire, il avait tout donné.

@@ -62,7 +62,7 @@ Il semblait avoir oublié qu'il n'allait pas raccompagner Wang Lin.
 
 Wang Lin rangea l'ancien démon qu'il tenait en main, puis réfléchit un instant.
 
-Ce changement soudain stupéfia les dizaines de milliers de cultivateurs environnants. Même Maître Flamespark et Lie Yunzi furent déconcertés, incapables de réagir immédiatement. Cependant, étant des êtres puissants, ils comprirent que Maître Lu Fu était sincèrement ravi. Ils devinèrent également ses intentions.
+Ce changement soudain stupéfia les dizaines de milliers de cultivateurs environnants. Même Maître Yan Leizi et Lie Yunzi furent déconcertés, incapables de réagir immédiatement. Cependant, étant des êtres puissants, ils comprirent que Maître Lu Fu était sincèrement ravi. Ils devinèrent également ses intentions.
 
 Il n'y avait aucune vendetta entre Wang Lin et Maître Lu Fu. Wang Lin revenait du Royaume Extérieur et allait bientôt devenir une figure légendaire du Royaume Intérieur. Il était naturel de vouloir entretenir de bonnes relations avec un tel homme. De son côté, Wang Lin se montrait très courtois et offrait à Maître Lu Fu une porte de sortie honorable. S'il ne faisait pas preuve de discernement, il aurait vécu ces dizaines de milliers d'années pour rien.
 
@@ -84,9 +84,9 @@ Des montagnes célestes apparurent, remplissant rapidement le vortex. Puis, au c
 
 Un pavillon apparut près du lac, où deux célestes tenaient deux pots de jade. Des rafales d'énergie spirituelle céleste émanaient des récipients; leur simple parfum suffisait à rafraîchir l'esprit.
 
-Maître Flamespark et Lie Yunzi se tenaient respectueusement sur le côté, observant la scène avec des expressions complexes.
+Maître Yan Leizi et Lie Yunzi se tenaient respectueusement sur le côté, observant la scène avec des expressions complexes.
 
-Les dizaines de milliers de cultivateurs environnants s'approchèrent lentement, mais ils se dispersèrent sur ordre de Maître Flamespark pour retourner à la mise en place de la formation.
+Les dizaines de milliers de cultivateurs environnants s'approchèrent lentement, mais ils se dispersèrent sur ordre de Maître Yan Leizi pour retourner à la mise en place de la formation.
 
 Les deux hommes s'assirent dans le pavillon. Zhou Jin et Ling Dong furent également invités par Maître Lu Fu, et des célestes leur servirent du vin. Maître Lu Fu prit une coupe et rit: « Oublions les désagréments passés avec ce breuvage! » Il but la coupe d'un trait.
 
@@ -108,9 +108,9 @@ Ling Dong et Zhou Jin savaient que la destruction du Clan Scatter Thunder était
 
 Sous un autre angle, la situation paraissait totalement différente. Zhou Jin et Ling Dong se regardèrent et réfléchirent en silence.
 
-Maître Flamespark et Lie Yunzi entendirent également les paroles de Wang Lin. Ils restèrent bouche bée, choqués par les actions de Wang Lin dans le Royaume Extérieur et admiratifs envers le Daoïste Scattered Spirit.
+Maître Yan Leizi et Lie Yunzi entendirent également les paroles de Wang Lin. Ils restèrent bouche bée, choqués par les actions de Wang Lin dans le Royaume Extérieur et admiratifs envers le Daoïste Scattered Spirit.
 
-Maître Flamespark hésita un instant avant de joindre ses mains: « Senior Wang Lin, avez-vous revu le Daoïste Scattered Spirit par la suite? »
+Maître Yan Leizi hésita un instant avant de joindre ses mains: « Senior Wang Lin, avez-vous revu le Daoïste Scattered Spirit par la suite? »
 
 Wang Lin secoua la tête. Après la destruction du Clan Scatter Thunder, il avait été traqué et avait dû fuir précipitamment, n'ayant plus eu aucun contact avec le Daoïste Scattered Spirit.
 
@@ -118,7 +118,7 @@ Puis Wang Lin parla de la poursuite menée par le Conseil Souverain dans le Roya
 
 Wang Lin ne mentionna pas la Terre Déchue ni d'autres affaires cruciales. Pourtant, cela suffisait à stupéfier Maître Lu Fu, surtout lorsqu'il entendit parler de ce qui concernait le Souverain.
 
-Si de tels récits produisaient cet effet, il n'était même pas nécessaire de mentionner l'état de Maître Flamespark et Lie Yunzi. Après avoir entendu décrire tous ces dangers, ils comprirent enfin comment Wang Lin avait atteint un tel niveau de culture!
+Si de tels récits produisaient cet effet, il n'était même pas nécessaire de mentionner l'état de Maître Yan Leizi et Lie Yunzi. Après avoir entendu décrire tous ces dangers, ils comprirent enfin comment Wang Lin avait atteint un tel niveau de culture!
 
 Leurs regards vers Wang Lin étaient empreints d'une immense admiration. Lie Yunzi le ressentit plus intensément encore en repensant au passé. Il éprouvait des sentiments complexes, mais il savait que Wang Lin n'avait pas obtenu tout cela par simple chance!
 

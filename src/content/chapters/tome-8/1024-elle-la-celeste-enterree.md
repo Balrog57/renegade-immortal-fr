@@ -30,7 +30,7 @@ Chacun sentit son corps fermement saisi par une main gigantesque, entraîné ver
 
 Les trois frères Chen étaient les plus proches. Incapables de résister à la succion, ils furent immédiatement aspirés dans le vortex.
 
-Big Head lutta un instant, mais fut lui aussi emporté.
+Da Tou lutta un instant, mais fut lui aussi emporté.
 
 Quant aux quatre disciples de la belle femme d'âge moyen, elles possédaient les niveaux de culture les plus bas. Wang Lin s'était demandé pourquoi cette femme les avait traînées ici.
 

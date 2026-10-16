@@ -10,7 +10,7 @@ slug: la-haine-de-yao-xixue-2
 
 Ce sentiment ne dura qu'un instant avant de s'évanouir, comme s'il n'avait jamais existé. Derrière lui, Situ Nan et les autres apparurent, flottant dans les airs pour contempler les lieux en contrebas.
 
-Hormis le Maître Hollow Wind, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen appartenaient à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
+Hormis le Maître Fu Fengzi, c’était la première fois que le groupe venait ici. Bien que les trois frères Chen appartenaient à un pays de rang 7, ils ne s'étaient pas intéressés à la Terre des Esprits Démoniaques auparavant. Désormais arrivés, ils ne purent s'empêcher d'observer les environs avec curiosité.
 
 En revenant dans ce lieu familier, Wang Lin ressentit un pincement de regret. Sa première pensée n'avait pas été de se rendre à la grotte céleste, mais d'aller vérifier l'état du Clan des Âmes Raffinées. À l'époque, il avait dû fuir dans l'urgence. Avec le recul, ce sentiment de culpabilité l'habitait.
 
@@ -40,7 +40,7 @@ Wang Lin laissa échapper un soupir en contemplant ce monde familier. Il tapota 
 
 Après avoir remis l'objet à Situ Nan et lui expliqué comment lever certaines restrictions, ce dernier regarda Wang Lin d'un air entendu. Il connaissait suffisamment bien son compagnon pour comprendre que Wang Lin allait retrouver de vieux amis.
 
-Par conséquent, il ne perdit pas de temps. Avec sa culture, ainsi que celle du Maître Hollow Wind, de la femme en argent, des trois frères Chen et de Big Head, briser ces restrictions ne serait pas une tâche insurmontable! La véritable difficulté résiderait probablement dans la dernière barrière.
+Par conséquent, il ne perdit pas de temps. Avec sa culture, ainsi que celle du Maître Fu Fengzi, de la femme en argent, des trois frères Chen et de Da Tou, briser ces restrictions ne serait pas une tâche insurmontable! La véritable difficulté résiderait probablement dans la dernière barrière.
 
 Situ Nan activa le jeton selon la méthode de Wang Lin. Ils disparurent tous pour entrer dans la grotte céleste et commencer à forcer les restrictions.
 

@@ -12,7 +12,7 @@ Leur force écrasante fit s'effondrer la volonté de combat de Maître Lu Fu! Il
 
 Malgré son niveau de culture, Maître Lu Fu ne pouvait qu'éprouver une immense amertume en contemplant stupéfait ce qui se déroulait sous ses yeux.
 
-Il savait qu'il avait commis une erreur monumentale! Une erreur fatale: il avait eu le tort de sous-estimer la culture de Wang Lin! Lorsque Wang Lin était retourné à Allheaven, Maître Lu Fu pensait qu'il avait le pouvoir de l'affronter et qu'il ne devait pas le provoquer imprudemment.
+Il savait qu'il avait commis une erreur monumentale! Une erreur fatale: il avait eu le tort de sous-estimer la culture de Wang Lin! Lorsque Wang Lin était retourné à Luotian, Maître Lu Fu pensait qu'il avait le pouvoir de l'affronter et qu'il ne devait pas le provoquer imprudemment.
 
 Ce jugement avait changé lorsqu'il vit l'épée de pluie sur la planète Qing Ling. Maître Lu Fu crut alors avoir percé le niveau de culture de Wang Lin et se détendit un peu.
 
@@ -52,9 +52,9 @@ La confiance qu'ils avaient puisée dans le discours de Maître Lu Fu s'effondra
 
 « Deux cultivateurs de la troisième étape comme esclaves. Ce Wang Lin... Quelle est donc sa véritable identité? Comment a-t-il pu accomplir une telle chose... »
 
-Le Maître Flamespark avait perdu toute capacité de réflexion. Tout ce qui s'était produit durant ce court laps de temps l'avait tant choqué qu'il en était devenu engourdi. Malgré cet engourdissement, l'apparition de Zhou Jin lui infligeait toujours une douleur lancinante à l'esprit.
+Le Maître Yan Leizi avait perdu toute capacité de réflexion. Tout ce qui s'était produit durant ce court laps de temps l'avait tant choqué qu'il en était devenu engourdi. Malgré cet engourdissement, l'apparition de Zhou Jin lui infligeait toujours une douleur lancinante à l'esprit.
 
-« Deux... Deux... Peut-être y en a-t-il un troisième... Un quatrième... » murmura Maître Flamespark pour lui-même.
+« Deux... Deux... Peut-être y en a-t-il un troisième... Un quatrième... » murmura Maître Yan Leizi pour lui-même.
 
 Les yeux de Lie Yunzi étaient également emplis de confusion. Il fixait le vide, ses pensées semblant s'évaporer. Il n'était plus capable de réfléchir.
 
@@ -62,7 +62,7 @@ N'importe quel cultivateur de la deuxième étape du Royaume Intérieur aurait p
 
 Le cœur du Dieu Sanguin battait la chamade et le désespoir emplissait son regard. Il n'aurait jamais pu imaginer une telle éventualité. Même Maître Lu Fu avait été contraint de reculer. Le monde était vaste, mais en cet instant, il avait l'impression d'être dans une cage!
 
-À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Allheaven et s'engouffrèrent dans les trois autres systèmes stellaires!
+À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Luotian et s'engouffrèrent dans les trois autres systèmes stellaires!
 
 Dans le système stellaire de Mer de Nuages, au sein de la chambre secrète de la Secte de Dieu.
 
@@ -112,11 +112,11 @@ Bien que son corps fût présent, il ressemblait à un corps spirituel, dépourv
 
 Debout dans la cour, il leva les yeux vers le sommet de la montagne. Une pointe d'adoration se manifesta sur son visage, sans l'ombre d'un regret dans ses yeux... Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais briser ce monde! »
 
-Dans le système stellaire de l'Alliance, là où se trouvait la Secte des Cadavres effondrée, un regard semblant pouvoir se matérialiser se tourna vers Allheaven.
+Dans le système stellaire de l'Alliance, là où se trouvait la Secte des Cadavres effondrée, un regard semblant pouvoir se matérialiser se tourna vers Luotian.
 
 « La promesse du Seigneur du Royaume Scellé... serait-ce lui...? »
 
-Dans le système stellaire d'Allheaven, au cœur de la magnifique formation planétaire, Wang Lin regarda calmement Maître Lu Fu. Il ne chercha pas à l'humilier, mais passa lentement devant lui pour se diriger vers le stupéfait Dieu Sanguin.
+Dans le système stellaire de Luotian, au cœur de la magnifique formation planétaire, Wang Lin regarda calmement Maître Lu Fu. Il ne chercha pas à l'humilier, mais passa lentement devant lui pour se diriger vers le stupéfait Dieu Sanguin.
 
 Le visage de Maître Lu Fu était livide; il laissa Wang Lin passer sans chercher à l'arrêter. Son expression complexe trahissait une profonde amertume.
 

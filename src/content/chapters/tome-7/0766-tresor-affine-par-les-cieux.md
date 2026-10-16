@@ -18,7 +18,7 @@ Le lien entre son âme et son avatar devenait plus stable.
 
 Il convient de noter que bien que ce voyage ait attiré l'attention de certains cultivateurs puissants, il n'était pas lié aux dieux anciens. Après tout, ces derniers avaient disparu depuis bien trop longtemps.
 
-Dans le Système Stellaire d'Allheaven, un fragment dérivait lentement dans le vide du Royaume Céleste du Tonnerre. À cet instant, une masse de nuages qui n'auraient jamais dû apparaître se condensa rapidement autour de ce fragment, et des grondements sourds se cachaient en leur sein.
+Dans le Système Stellaire de Luotian, un fragment dérivait lentement dans le vide du Royaume Céleste du Tonnerre. À cet instant, une masse de nuages qui n'auraient jamais dû apparaître se condensa rapidement autour de ce fragment, et des grondements sourds se cachaient en leur sein.
 
 Peu après, un éclair jaillit des nuages et frappa le fragment. Le tonnerre se propagea rapidement à travers lui, trouva Wang Lin dans son état de coma et pénétra dans son corps.
 

@@ -102,7 +102,7 @@ Tout le monde n'était pas prêt à affronter la réincarnation et l'inconnu du 
 
 Maître Hong Shan choisit de se réincarner, tandis que Maître South Cloud hésita longuement avant de décider de rester.
 
-D'autres connaissances, comme Zhan Konglie ou Maître Flamespark, choisirent également de rester, refusant de quitter les lieux.
+D'autres connaissances, comme Zhan Konglie ou Maître Yan Leizi, choisirent également de rester, refusant de quitter les lieux.
 
 Il ne restait plus que deux jours avant la fin de la demi-lune. Le crépuscule tombait et l'obscurité enveloppait le monde, ne laissant deviner que les silhouettes des montagnes. La pénombre possédait une beauté singulière, telle une peinture aux tons dorés.
 

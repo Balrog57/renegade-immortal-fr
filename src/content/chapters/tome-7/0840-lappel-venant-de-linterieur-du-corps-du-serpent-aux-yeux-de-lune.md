@@ -12,13 +12,13 @@ Les quatre garçons s'assirent en position du lotus et un noyau de sang jaillit 
 
 Le vieil homme vêtu de rouge sortit de la formation gigantesque. Bien que son visage fût calme, ses yeux étaient glacials. Son corps dégageait une puissante intention meurtrière, dirigée contre le Serpent aux yeux de lune.
 
-Les yeux du Maître Flamespark s'illuminèrent en voyant les quatre garçons et il sourit: « Cher cultivateur Xiang, vous avez donc amené les Quatre Fils du Sceau Divin de la famille Xiang. Avec cela, nos chances augmentent! Le cher cultivateur Gongsun a-t-il invité d'autres amis à participer? »
+Les yeux du Maître Yan Leizi s'illuminèrent en voyant les quatre garçons et il sourit: « Cher cultivateur Xiang, vous avez donc amené les Quatre Fils du Sceau Divin de la famille Xiang. Avec cela, nos chances augmentent! Le cher cultivateur Gongsun a-t-il invité d'autres amis à participer? »
 
 L'homme vêtu de noir, Gongsun, répondit calmement: « Le patriarche de la famille Shengong et Lie Yunzi de la famille Zhan! »
 
-Le vieil homme nommé Xiang apparut aux côtés du Maître Flamespark en souriant: « Ce vieil homme n'a pas invité beaucoup de monde, seulement le Dieu du Sang et le Daoïste aux Cinq Couleurs. Je pense qu'ils ne devraient plus tarder. »
+Le vieil homme nommé Xiang apparut aux côtés du Maître Yan Leizi en souriant: « Ce vieil homme n'a pas invité beaucoup de monde, seulement le Dieu du Sang et le Daoïste aux Cinq Couleurs. Je pense qu'ils ne devraient plus tarder. »
 
-En entendant le nom de « Dieu du Sang », le Maître Flamespark eut un ricanement intérieur et déclara: « Je n'ai invité qu'une seule personne. Quant à savoir de qui il s'agit, vous le saurez bien assez tôt. »
+En entendant le nom de « Dieu du Sang », le Maître Yan Leizi eut un ricanement intérieur et déclara: « Je n'ai invité qu'une seule personne. Quant à savoir de qui il s'agit, vous le saurez bien assez tôt. »
 
 Alors qu'il parlait, un rayon de lumière argentée fendit l'horizon. Un homme d'âge mûr se tenait sur ce flux argenté; son apparence rappelait celle de Shengong Hu. En un éclair, il apparut devant l'assemblée.
 
@@ -36,17 +36,17 @@ Le vieil homme de la famille Xiang rit: « Pour attirer l'attention du Daoïste 
 
 Tandis qu'ils discutaient, le patriarche de la famille Shengong restait de marbre, les yeux rivés sur le Serpent aux yeux de lune. Quant à l'homme en noir, il était encore plus silencieux.
 
-Le visage du Maître Flamespark demeurait serein. Bien que le niveau de culture du Daoïste aux Cinq Couleurs fût élevé, cela ne méritait pas son attention.
+Le visage du Maître Yan Leizi demeurait serein. Bien que le niveau de culture du Daoïste aux Cinq Couleurs fût élevé, cela ne méritait pas son attention.
 
 C'est alors qu'une silhouette apparut au loin. Vêtu de blanc, il ressemblait à un jeune homme, mais dégageait une aura antique. Cet ensemble lui conférait un magnétisme étrange.
 
 Il ne chevauchait aucun trésor magique; il marchait simplement sur le vide. D'un calme absolu, il arriva devant l'assemblée, les observa, puis joignit les mains sans prononcer un mot.
 
-« Lie Yunzi! » Les yeux du Maître Flamespark se plissèrent.
+« Lie Yunzi! » Les yeux du Maître Yan Leizi se plissèrent.
 
 L'homme en blanc hocha légèrement la tête et resta immobile, toujours silencieux.
 
-« La rumeur prétend que Lie Yunzi de la famille Zhan a un tempérament de feu. Une fois, dans une rage folle, il a anéanti treize familles de culture! Sa réputation l'a précédé! » Le Maître Flamespark détourna le regard pour scruter soudainement l'horizon.
+« La rumeur prétend que Lie Yunzi de la famille Zhan a un tempérament de feu. Une fois, dans une rage folle, il a anéanti treize familles de culture! Sa réputation l'a précédé! » Le Maître Yan Leizi détourna le regard pour scruter soudainement l'horizon.
 
 Une masse de lumière rouge surgit au loin, et une odeur de sang se propagea rapidement à travers l'espace. Cette lueur sanglante apparut à une quarantaine de mètres des cultivateurs avant de se condenser instantanément en une silhouette!
 
@@ -54,9 +54,9 @@ Il s'agissait d'un vieil homme aux sourcils rouges, vêtu d'une robe écarlate q
 
 « Dieu du Sang! » À sa vue, tous les vieux monstres plissèrent les yeux. Lie Yunzi et le patriarche Shengong ne firent exception.
 
-Le Dieu du Sang détourna son regard pour balayer l'assemblée d'un œil impitoyable. Enfin, il fixa le Maître Flamespark et dit calmement: « Maître Flamespark, vous avez dérobé l'âme originelle de mon petit-fils. Dès que le tunnel vers le Système Stellaire de l'Alliance sera ouvert, nous nous affronterons! »
+Le Dieu du Sang détourna son regard pour balayer l'assemblée d'un œil impitoyable. Enfin, il fixa le Maître Yan Leizi et dit calmement: « Maître Yan Leizi, vous avez dérobé l'âme originelle de mon petit-fils. Dès que le tunnel vers le Système Stellaire de l'Alliance sera ouvert, nous nous affronterons! »
 
-Une lueur de froideur passa dans les yeux du Maître Flamespark, qui sourit: « Ce sera un honneur de vous accompagner! »
+Une lueur de froideur passa dans les yeux du Maître Yan Leizi, qui sourit: « Ce sera un honneur de vous accompagner! »
 
 À cet instant, des éclairs de tonnerre déchirèrent le Domaine du Nord. Presque tous les messagers du Temple Céleste du Tonnerre étaient sortis. Ils encerclèrent le Serpent aux yeux de lune, formant un blocus circulaire à 50 000 kilomètres de la créature.
 

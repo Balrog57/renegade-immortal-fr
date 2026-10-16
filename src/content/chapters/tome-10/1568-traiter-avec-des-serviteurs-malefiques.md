@@ -72,7 +72,7 @@ Le regard de Wang Lin resta imperturbable lorsqu'il fixa le jeune homme en noir 
 
 « Tu m'as déjà vu? »
 
-Le jeune homme était transporté par l'émotion. Il s'approcha rapidement et dit respectueusement: « Ce junior a vécu à Allheaven pendant un certain temps et était présent lors de la première bataille de la Mer de Nuages. Je faisais partie de l'armée d'Allheaven et j'ai aperçu le Seigneur du Royaume Scellé de loin. De plus, ayant reçu le jade de la Mer de Nuages, j'avais une idée vague de votre apparence. »
+Le jeune homme était transporté par l'émotion. Il s'approcha rapidement et dit respectueusement: « Ce junior a vécu à Luotian pendant un certain temps et était présent lors de la première bataille de la Mer de Nuages. Je faisais partie de l'armée de Luotian et j'ai aperçu le Seigneur du Royaume Scellé de loin. De plus, ayant reçu le jade de la Mer de Nuages, j'avais une idée vague de votre apparence. »
 
 Après avoir parlé, il jeta un regard au fou derrière Wang Lin et parut honteux. Il voulut expliquer quelque chose, mais finit par ne trouver les mots.
 

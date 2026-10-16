@@ -13,7 +13,7 @@ Avec son niveau de culture, un pays de culture de rang 6 ne méritait pas son at
 
 À mesure qu'il s'approchait lentement, l'expression de la vieille femme située aux abords de la planète Suzaku devint sombre. Les autres cultivateurs l'accompagnèrent; ils utilisèrent leur vitesse fulgurante pour retourner sur la planète Suzaku.
 
-En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs d'Allheaven devant lui rirent également. À leurs yeux, ce type de planète de culture était tout simplement trop faible! N'importe quel cultivateur du stade Yin Illusoire pourrait massacrer la planète entière!
+En voyant cela, le garçon à la grosse tête éclata de rire, et son sourire stupide s'accentua. Non seulement lui, mais les cultivateurs de Luotian devant lui rirent également. À leurs yeux, ce type de planète de culture était tout simplement trop faible! N'importe quel cultivateur du stade Yin Illusoire pourrait massacrer la planète entière!
 
 « Messager Céleste, laissez-nous, deux frères, aller sur cette planète! » Un homme d'âge moyen sortit de derrière le garçon à la grosse tête. Il n'était même pas au stade Yin Illusoire, mais seulement au sommet du dernier stade de l'Ascendant. Son regard envers le garçon à la grosse tête était empreint de respect.
 
@@ -43,11 +43,11 @@ Simultanément, certains cultivateurs qui ne se souciaient guère des affaires m
 
 Dans la Secte Ciel Nuageux, Tie Yan était déjà vieux et ses yeux étaient voilés. Son corps était entouré d'une aura de mort, sa durée de vie atteignant bientôt son terme. Il lutta pour se tenir debout sur la place de la Secte Ciel Nuageux et regarda silencieusement le ciel.
 
-À cet instant, tous les cultivateurs de la planète Suzaku levèrent les yeux. Les divers membres des sectes, du rang 5 au rang 3, observaient le ciel avec gravité. Les deux météores représentant une catastrophe imminente pour la planète Suzaku venaient de descendre! Ces deux météores n'étaient autres que les deux frères du Système Stellaire d'Allheaven!
+À cet instant, tous les cultivateurs de la planète Suzaku levèrent les yeux. Les divers membres des sectes, du rang 5 au rang 3, observaient le ciel avec gravité. Les deux météores représentant une catastrophe imminente pour la planète Suzaku venaient de descendre! Ces deux météores n'étaient autres que les deux frères du Système Stellaire de Luotian!
 
 Dès leur arrivée, les deux frères rirent de manière incontrôlée. Leur rire était d'une arrogance extrême, mais ils en avaient les qualifications. Sur la planète Suzaku, un cultivateur Ascendant au sommet du stade tardif représentait une force puissante, et puisqu'ils étaient deux, ils constituaient une puissance redoutable.
 
-« Même cette planète abandonnée compte tant de cultivateurs. Si elle était dans mon Système Stellaire d'Allheaven, personne ne s'embêterait à occuper un tel endroit. Le Système Stellaire de l'Alliance est tout juste médiocre! » Tandis que leurs rires se propageaient, l'un d'eux déploya sa puissance avec frénésie et son sens divin balaya la planète Suzaku.
+« Même cette planète abandonnée compte tant de cultivateurs. Si elle était dans mon Système Stellaire de Luotian, personne ne s'embêterait à occuper un tel endroit. Le Système Stellaire de l'Alliance est tout juste médiocre! » Tandis que leurs rires se propageaient, l'un d'eux déploya sa puissance avec frénésie et son sens divin balaya la planète Suzaku.
 
 Instantanément, les puissances de la planète Suzaku — Yun Quezi, Zhou Wutai et les autres cultivateurs Ascendants — s'élancèrent rapidement dans les airs. Ils étaient prêts pour la guerre!
 
@@ -57,23 +57,23 @@ Cependant, à cet instant précis, le cultivateur qui déployait son sens divin 
 
 Une immense statue se dressait à la porte de la Secte Ciel Nuageux. C'était une statue de Wang Lin! Cette statue, d'un réalisme saisissant, reproduisait fidèlement l'apparence de Wang Lin. En particulier, le froid qui émanait de son regard, capable de transpercer les os!
 
-Lorsque l'autre cultivateur d'Allheaven vit l'expression de son frère, il fut stupéfait. Son sens divin se déploya et se verrouilla sur la statue. Son corps trembla et la terreur qu'il manifesta fut dix fois, non, cent fois plus intense!
+Lorsque l'autre cultivateur de Luotian vit l'expression de son frère, il fut stupéfait. Son sens divin se déploya et se verrouilla sur la statue. Son corps trembla et la terreur qu'il manifesta fut dix fois, non, cent fois plus intense!
 
 « Démon... Maître Démon Xu Mu! »
 
-Leurs deux crânes picotèrent instantanément et leurs cœurs battirent la chamade. Ils se regardèrent avec incrédulité et virent la panique dans les yeux de l'autre. Le nom de « Maître Démon Xu Mu » était tout simplement trop célèbre dans le Système Stellaire d'Allheaven!
+Leurs deux crânes picotèrent instantanément et leurs cœurs battirent la chamade. Ils se regardèrent avec incrédulité et virent la panique dans les yeux de l'autre. Le nom de « Maître Démon Xu Mu » était tout simplement trop célèbre dans le Système Stellaire de Luotian!
 
 Lors de la compétition pour le titre céleste, il avait obtenu le rang de Céleste du Tonnerre et pouvait commander 3 000 cultivateurs. Un tel prestige n'était pas l'apanage d'un homme ordinaire. Oubliez-les, même leurs ancêtres auraient dû se montrer respectueux face au Maître Démon Xu Mu. Même le Messager Céleste, le garçon à la grosse tête, tremblerait devant lui.
 
 Ils pestèrent intérieurement. Leur arrogance et leur intention meurtrière s'étaient évanouies, remplacées par la panique. Sans hésiter, les deux s'enfuirent avec précipitation. Ils savaient trop bien ce que le nom de Maître Démon Xu Mu représentait: le massacre, un massacre sans fin. S'opposer à cet homme signifiait une mort certaine!
 
-Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes de l'Allheaven, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
+Le frère cadet du Seigneur Céleste Qing Shui, un Céleste du Tonnerre, numéro un des jeunes de le Luotian, bienfaiteur d'innombrables familles de culture, et celui qui avait infligé de lourdes pertes à la famille Yao après avoir été traqué par eux! Chacune de ces prouesses suffisait à faire mourir ces deux frères mille fois!
 
 À cet instant, ils ne cherchèrent même pas à comprendre ce qui se passait. Perdus dans leur effroi, ils ne voulaient qu'une chose: partir le plus vite possible. Avec leur intelligence, ils étaient sûrs de ne pas s'être trompés. Cette statue était Xu Mu!
 
 Quel que soit leur courage, ils n'oseraient jamais provoquer Xu Mu! Quant à savoir pourquoi une statue de Xu Mu se trouvait ici et faisait l'objet d'un tel culte, c'était une question qu'ils ne souhaitaient pas connaître. Le regret qui les rongeait était déjà monstrueux. S'ils l'avaient su, ils ne seraient jamais venus, car une telle situation aurait indéniablement offensé Xu Mu.
 
-La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan de l'Immortel Délaissé fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait la Secte Ciel Nuageux. Sur la planète Suzaku, il était le plus ancien et son niveau de culture avait considérablement progressé au fil des ans. Les deux cultivateurs d'Allheaven n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur la Secte Ciel Nuageux!
+La fuite précipitée des deux frères choqua tous les cultivateurs de la planète Suzaku. C'était particulièrement vrai pour Zhou Wutai qui s'était préparé à un combat acharné; ce changement soudain de situation le prit de court. Non seulement lui, mais même le Clan de l'Immortel Délaissé fut profondément stupéfait. Seuls les yeux de Yun Quezi se rétrécirent alors qu'il fixait la Secte Ciel Nuageux. Sur la planète Suzaku, il était le plus ancien et son niveau de culture avait considérablement progressé au fil des ans. Les deux cultivateurs de Luotian n'avaient fui que lorsque leurs sens divins s'étaient verrouillés sur la Secte Ciel Nuageux!
 
 « La Secte Ciel Nuageux... Quel objet peut bien effrayer deux puissants cultivateurs Ascendants au sommet de leur stade? Et à en juger par leurs expressions, ils ont été terrifiés jusqu'aux tréfonds de leur âme. » Yun Quezi avait vu de ses propres yeux la panique sur les visages des deux fuyards, ce qui le laissa extrêmement perplexe.
 
@@ -85,4 +85,4 @@ Zhou Wutai et d'autres vieux monstres eurent la même pensée. Tous étaient per
 
 Tie Yan regarda la statue de Wang Lin. Ses yeux brillaient d'excitation tandis qu'il murmurait: « Bienfaiteur, ce doit être mon bienfaiteur! »
 
-Quant aux deux frères d'Allheaven, ils fuyaient en panique hors de la planète Suzaku lorsqu'ils aperçurent immédiatement le cultivateur à la grosse tête et ses compagnons. Le garçon à la grosse tête avait les yeux clos; il les ouvrit, fronça les sourcils, puis demanda calmement: « Que se passe-t-il? »
+Quant aux deux frères de Luotian, ils fuyaient en panique hors de la planète Suzaku lorsqu'ils aperçurent immédiatement le cultivateur à la grosse tête et ses compagnons. Le garçon à la grosse tête avait les yeux clos; il les ouvrit, fronça les sourcils, puis demanda calmement: « Que se passe-t-il? »

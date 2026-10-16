@@ -90,7 +90,7 @@ Ce dernier soupira: « Camarade cultivateur Teng, laissez cet homme en vie. Il m
 
 Teng Huayuan ricana en désignant Wang Zhuo et Wang Hao: « Vous n'interviendrez donc pas pour ces deux-là? »
 
-Le cultivateur esquissa un léger sourire face à lui: « Camarade cultivateur Teng, pourquoi posez-vous une question si évidente? Bien sûr, je ne vous en empêcherai pas, mais si le Senior Punnan Zi me l'interroge, je devrai lui dire la vérité. »
+Le cultivateur esquissa un léger sourire face à lui: « Camarade cultivateur Teng, pourquoi posez-vous une question si évidente? Bien sûr, je ne vous en empêcherai pas, mais si le Senior Pu Nanzi me l'interroge, je devrai lui dire la vérité. »
 
 Teng Huayuan dévisagea le cultivateur. Après un long silence, il frappa le sol de ses pieds et tout le domaine de la famille Wang fut réduit en gravats.
 

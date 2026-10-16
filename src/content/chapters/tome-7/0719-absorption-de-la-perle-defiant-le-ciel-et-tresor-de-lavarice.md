@@ -34,7 +34,7 @@ Les yeux de Wang Lin brillaient comme le feu alors qu'il exécutait un sceau man
 
 Comparée à l'immense montagne, la Perle Défiant le Ciel paraissait insignifiante.
 
-L'expression de Wang Lin était extrêmement prudente. Cette perle était son trésor numéro un, issu du Système Stellaire d'Allheaven. Son sens divin restait déployé; au moindre signe de trouble, il prendrait immédiatement les mesures nécessaires.
+L'expression de Wang Lin était extrêmement prudente. Cette perle était son trésor numéro un, issu du Système Stellaire de Luotian. Son sens divin restait déployé; au moindre signe de trouble, il prendrait immédiatement les mesures nécessaires.
 
 C'est pour cette raison qu'il avait dû attendre que son corps soit totalement formé avant de sortir la Perle Défiant le Ciel. Sans son corps, il ne pouvait user de toute sa puissance. Sortir la perle prématurément aurait été trop dangereux et imprudent.
 

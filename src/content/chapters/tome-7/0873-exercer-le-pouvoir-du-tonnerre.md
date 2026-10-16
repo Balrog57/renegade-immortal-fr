@@ -30,7 +30,7 @@ Au cours de ce processus, une force de tonnerre colossale, cachée sous terre, j
 
 On aurait dit que la divine rétribution descendait sur le Temple Céleste du Tonnerre. Les expressions de tous les cultivateurs environnants changèrent et ils se retirèrent rapidement. Même les yeux de certains ancêtres s'illuminèrent.
 
-Alors que la tempête se propageait à nouveau, les vieux monstres sur les tapis de prière plissèrent les yeux. Maître Flamespark afficha un sourire amer avant de lever sa main droite pour presser le ciel. Un grondement retentit et la tempête qui jaillissait disparut.
+Alors que la tempête se propageait à nouveau, les vieux monstres sur les tapis de prière plissèrent les yeux. Maître Yan Leizi afficha un sourire amer avant de lever sa main droite pour presser le ciel. Un grondement retentit et la tempête qui jaillissait disparut.
 
 À cet instant, un tonnerre infini se précipitait vers l'esprit du tonnerre. L'âme originelle du dragon de tonnerre antique de Wang Lin, qui avait dévoré la moitié de l'esprit, ressentit soudain une pulsion irrésistible. Wang Lin n'avait jamais ressenti un tel élan auparavant. Cependant, alors que la moitié de l'esprit du tonnerre qu'il avait consommée se transformait en un tonnerre infini au sein de son âme originelle, il ne put plus contenir cette pulsion. C'était comme si un rugissement grondait en lui et qu'il ne pouvait plus le retenir.
 
@@ -52,7 +52,7 @@ Même les yeux du Dieu de Sang s'illuminèrent d'une lueur froide.
 
 Pour la première fois, Qing Shui rit et s'exclama: « Bien! »
 
-« L'âme originelle du dragon de tonnerre antique!! » Un choc apparut dans les yeux de Maître Flamespark et une veine saillit sur son visage. Il voulut se lever pour interrompre cela, mais après avoir hésité un instant, il ne fit que soupirer. Avec la présence de Qing Shui, il n'avait aucune raison d'entraver Wang Lin dans sa dévoration de l'esprit du tonnerre. Autrement, s'il venait à briser une opportunité aussi unique qu'une fois dans une vie, Qing Shui serait sans aucun doute furieux!
+« L'âme originelle du dragon de tonnerre antique!! » Un choc apparut dans les yeux de Maître Yan Leizi et une veine saillit sur son visage. Il voulut se lever pour interrompre cela, mais après avoir hésité un instant, il ne fit que soupirer. Avec la présence de Qing Shui, il n'avait aucune raison d'entraver Wang Lin dans sa dévoration de l'esprit du tonnerre. Autrement, s'il venait à briser une opportunité aussi unique qu'une fois dans une vie, Qing Shui serait sans aucun doute furieux!
 
 Si les vieux monstres réagissaient ainsi, il n'était même pas nécessaire de parler des autres. Tandis que Xu Ting observait la scène, une immense vague se souleva dans son cœur. Il commença à méditer silencieusement:
 
@@ -76,6 +76,6 @@ Son âme originelle du dragon de tonnerre s'étendit immédiatement sur plus de 
 
 Lorsqu'il se redressa, la zone entourant Wang Lin était en ruines et il ne restait plus aucune trace de tonnerre!
 
-L'expression de Maître Flamespark était extrêmement disgracieuse et son cœur lui faisait mal. Il regarda Wang Lin, incapable de prononcer un mot pendant un long moment. Finalement, il ne put que laisser échapper un profond soupir.
+L'expression de Maître Yan Leizi était extrêmement disgracieuse et son cœur lui faisait mal. Il regarda Wang Lin, incapable de prononcer un mot pendant un long moment. Finalement, il ne put que laisser échapper un profond soupir.
 
 Les environs étaient plongés dans un silence total... un silence identique à celui qui avait suivi la mort de Luo Su par Qing Shui.

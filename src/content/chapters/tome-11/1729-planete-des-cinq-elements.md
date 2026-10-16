@@ -8,7 +8,7 @@ slug: planete-des-cinq-elements
 ---
 Le Vide Brillant existait depuis d'innombrables années. Quant à la durée exacte de son existence, nul ne le savait. Peut-être que le propriétaire originel de cette demeure, le Souverain Céleste aux Sept Couleurs, en avait le secret.
 
-Depuis la naissance de Wang Lin jusqu'à aujourd'hui, plus de 2 000 ans s'étaient écoulés, et le Vide Brillant avait traversé deux guerres. La première fut la guerre contre Allheaven; ce fut un chaos absolu marqué par d'innombrables morts.
+Depuis la naissance de Wang Lin jusqu'à aujourd'hui, plus de 2 000 ans s'étaient écoulés, et le Vide Brillant avait traversé deux guerres. La première fut la guerre contre Luotian; ce fut un chaos absolu marqué par d'innombrables morts.
 
 Cependant, comparée à la seconde, la première n'était rien. Il s'agissait de la guerre entre les Royaumes Intérieur et Extérieur. Le Vide Brillant était alors devenu une ruine désolée. Que ce soient les cultivateurs ou les mortels, tous poussaient des hurlements de désespoir.
 

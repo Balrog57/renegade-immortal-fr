@@ -72,7 +72,7 @@ L'attaque fut trop rapide. L'homme eut à peine le temps de lever les yeux que l
 
 Seul l'arrosoir tomba au sol, intact.
 
-Planète Zi Miao, famille Lou. En tant qu'une des quatre grandes familles du domaine sud d'Allheaven, le jeune maître possédait une culture élevée. Soutenu par son clan, peu osaient le provoquer.
+Planète Zi Miao, famille Lou. En tant qu'une des quatre grandes familles du domaine sud de Luotian, le jeune maître possédait une culture élevée. Soutenu par son clan, peu osaient le provoquer.
 
 À ce moment précis, le jeune maître était en méditation profonde. Nu, il dominait une cultivatrice, poussant des rugissements bestiaux.
 
@@ -96,7 +96,7 @@ Une escouade de près de cent cultivateurs transportait deux planètes de cultur
 
 Cependant, alors qu'ils progressaient, un rayon d'énergie d'épée surgit. Avant que quiconque ne puisse réagir, l'attaque perça le corps du vieil homme, qui rendit l'âme sur-le-champ!
 
-Des scènes identiques se produisirent partout dans Allheaven!
+Des scènes identiques se produisirent partout dans Luotian!
 
 Quiconque avait offensé Xi Zifeng fut foudroyé par un rayon d'énergie d'épée!
 
@@ -110,9 +110,9 @@ Le dernier rayon d'énergie chargea profondément dans le vortex et frappa un vi
 
 Cette scène soudaine terrifia tous les présents, plongeant les membres du Temple Céleste du Tonnerre dans l'effroi.
 
-Wang Lin n'avait tué personne de trop, et n'en avait épargné aucun. Il avait utilisé son Sens Divin pour libérer près de cent rayons d'énergie d'épée afin de balayer Allheaven! C'était la dernière chose qu'il accomplirait pour Xi Zifeng!
+Wang Lin n'avait tué personne de trop, et n'en avait épargné aucun. Il avait utilisé son Sens Divin pour libérer près de cent rayons d'énergie d'épée afin de balayer Luotian! C'était la dernière chose qu'il accomplirait pour Xi Zifeng!
 
-Tout en avançant, Wang Lin apparut à l'extérieur de la gigantesque formation bâtie par Allheaven!
+Tout en avançant, Wang Lin apparut à l'extérieur de la gigantesque formation bâtie par Luotian!
 
 Il scruta les profondeurs de cette structure composée de centaines de planètes. Les innombrables cultivateurs du Temple Céleste du Tonnerre restèrent silencieux tandis qu'il progressait lentement.
 

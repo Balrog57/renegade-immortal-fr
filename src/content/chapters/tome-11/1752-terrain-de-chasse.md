@@ -68,7 +68,7 @@ Ce n'est qu'une fois tout le monde disparu que Xuan Luo émergea du vide. Il obs
 
 "L'épreuve de cet enfant doit s'achever ici."
 
-Le monde de la grotte était toujours enveloppé de brume, mais les grondements qui l'avaient ébranlé finirent par s'apaiser jusqu'au silence total. À Allheaven, la porte du cœur du monde de la grotte restait ouverte, comme si elle attendait tous ceux qui étaient dignes d'y entrer.
+Le monde de la grotte était toujours enveloppé de brume, mais les grondements qui l'avaient ébranlé finirent par s'apaiser jusqu'au silence total. À Luotian, la porte du cœur du monde de la grotte restait ouverte, comme si elle attendait tous ceux qui étaient dignes d'y entrer.
 
 Cependant, le cœur de la grotte n'était accessible qu'aux êtres possédant le lignage du Continent Astral Immortel. Pour les autres, la seule option était d'emprunter une âme, à l'instar du Maître Dao Blue Dream!
 

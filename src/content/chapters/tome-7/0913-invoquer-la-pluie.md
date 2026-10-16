@@ -8,41 +8,41 @@ slug: invoquer-la-pluie
 ---
 L'expression du vieil homme se ternit et il s'écria: « Quel tueur Xu Fei? Xu Mu, me prends-tu pour un enfant de trois ans? N'invente pas de noms, et encore moins celui de Domaine de l'Abattage! »
 
-Le visage de Wang Lin demeura impassible; il ne daigna même pas regarder le vieil homme. Au lieu de cela, son regard se posa sur Maître Flamespark.
+Le visage de Wang Lin demeura impassible; il ne daigna même pas regarder le vieil homme. Au lieu de cela, son regard se posa sur Maître Yan Leizi.
 
-Tandis que Maître Flamespark fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance de Culture possède bel et bien un Domaine de l'Abattage, et le Duo Assassin de l'Âme y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
+Tandis que Maître Yan Leizi fixait Wang Lin, la froideur de ses traits s'adoucit et il dit: « L'Alliance de Culture possède bel et bien un Domaine de l'Abattage, et le Duo Assassin de l'Âme y existe réellement. Cependant, as-tu la preuve que tu l'as tué? »
 
-Dès que Maître Flamespark prit la parole, le vieil homme à ses côtés se tut immédiatement.
+Dès que Maître Yan Leizi prit la parole, le vieil homme à ses côtés se tut immédiatement.
 
-Sans changer d'expression, Wang Lin frappa son sac de rangement, faisant apparaître une demi-branche d'arbre dans sa main. Des éclairs de tonnerre tourbillonnaient encore autour du bois. Wang Lin la projeta directement vers Maître Flamespark.
+Sans changer d'expression, Wang Lin frappa son sac de rangement, faisant apparaître une demi-branche d'arbre dans sa main. Des éclairs de tonnerre tourbillonnaient encore autour du bois. Wang Lin la projeta directement vers Maître Yan Leizi.
 
-Dans un rugissement de tonnerre, la branche vola vers Maître Flamespark qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Domaine de l'Abattage. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
+Dans un rugissement de tonnerre, la branche vola vers Maître Yan Leizi qui l'attrapa. En l'examinant de plus près, il reconnut aussitôt qu'il s'agissait de l'un des trésors précieux du Domaine de l'Abattage. Grâce à sa culture, il pouvait ressentir deux forces au sein de la branche: l'une appartenait manifestement à Wang Lin, et l'autre était une aura puissante et maléfique!
 
-« Pas mal, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau vice-doyen du Domaine de l'Abattage! » Le regard de Maître Flamespark envers Wang Lin se fit empreint d'admiration.
+« Pas mal, c'est bel et bien l'énergie d'épée d'un cultivateur de niveau vice-doyen du Domaine de l'Abattage! » Le regard de Maître Yan Leizi envers Wang Lin se fit empreint d'admiration.
 
 Après avoir inspecté la branche, il la renvoya à Wang Lin avec un sourire: « Bien, Xu Mu, tu peux cultiver ici en toute tranquillité. Dans un mois, les renforts arriveront et tu rejoindras l'armée pour envahir la région du Nord! »
 
 Wang Lin inclina respectueusement la tête et joignit ses mains en signe d'acquiescement.
 
-Maître Flamespark rit et lança un regard chargé de sous-entendus au garçon au grand crâne avant de partir. Le vieil homme qui l'accompagnait le suivit rapidement. Les deux disparurent à l'horizon.
+Maître Yan Leizi rit et lança un regard chargé de sous-entendus au garçon au grand crâne avant de partir. Le vieil homme qui l'accompagnait le suivit rapidement. Les deux disparurent à l'horizon.
 
-L'expression de Wang Lin était neutre, mais il se détendit intérieurement. Lorsqu'il était entré dans la région occidentale, sous l'influence de la sphère d'Allheaven, il avait déjà un plan en tête. C'était la raison pour laquelle il avait risqué de sortir la Branche de l'Arbre du Tonnerre du Monde avant la bataille finale: il l'avait utilisée pour gagner leur confiance.
+L'expression de Wang Lin était neutre, mais il se détendit intérieurement. Lorsqu'il était entré dans la région occidentale, sous l'influence de la sphère de Luotian, il avait déjà un plan en tête. C'était la raison pour laquelle il avait risqué de sortir la Branche de l'Arbre du Tonnerre du Monde avant la bataille finale: il l'avait utilisée pour gagner leur confiance.
 
-Parmi les étoiles, l'expression satisfaite de Maître Flamespark s'effaça pour laisser place à un visage de marbre, rendant ses pensées impénétrables. Le vieil homme à ses côtés eut une illumination et dit aussitôt: « Seigneur du Temple, de mon point de vue, ce Xu Mu ment manifestement. De plus, ce garçon au grand crâne est l'un des Cieux Célestiaux, mais il est contrôlé par Xu Mu! À mon avis... »
+Parmi les étoiles, l'expression satisfaite de Maître Yan Leizi s'effaça pour laisser place à un visage de marbre, rendant ses pensées impénétrables. Le vieil homme à ses côtés eut une illumination et dit aussitôt: « Seigneur du Temple, de mon point de vue, ce Xu Mu ment manifestement. De plus, ce garçon au grand crâne est l'un des Cieux Célestiaux, mais il est contrôlé par Xu Mu! À mon avis... »
 
-Maître Flamespark se retourna et lança un regard glacial au vieil homme. Devant cette menace, le corps de ce dernier trembla et il s'empressa d'avaler la fin de sa phrase.
+Maître Yan Leizi se retourna et lança un regard glacial au vieil homme. Devant cette menace, le corps de ce dernier trembla et il s'empressa d'avaler la fin de sa phrase.
 
-Après avoir détourné les yeux, Maître Flamespark marcha vers le vide.
+Après avoir détourné les yeux, Maître Yan Leizi marcha vers le vide.
 
-« Ce Xu Mu... n'est pas simple! Quatre pouvoirs sont entremêlés entre ses sourcils. Même avec ma culture, je ne peux en percevoir qu'un seul, et c'est manifestement le plus faible! » songea Maître Flamespark tout en progressant parmi les étoiles.
+« Ce Xu Mu... n'est pas simple! Quatre pouvoirs sont entremêlés entre ses sourcils. Même avec ma culture, je ne peux en percevoir qu'un seul, et c'est manifestement le plus faible! » songea Maître Yan Leizi tout en progressant parmi les étoiles.
 
 Le pouvoir qu'il avait réussi à identifier balaya ses doutes initiaux, et il laissa échapper un soupir. Il connaissait bien ce pouvoir; pour être exact, il s'agissait de la marque de l'Oiseau Vermillon.
 
 Il fallait atteindre un certain niveau de culture pour pouvoir distinguer cette marque entre les sourcils de Wang Lin.
 
-« Ce Xu Mu n'était pas aussi étrange avant de rejoindre le Système Stellaire de l'Alliance, mais après avoir disparu quelques jours, ces phénomènes bizarres sont apparus... La marque de l'Oiseau Vermillon... Cet homme m'a aidé autrefois. Peu importe! » Maître Flamespark secoua la tête et disparut avec le vieil homme.
+« Ce Xu Mu n'était pas aussi étrange avant de rejoindre le Système Stellaire de l'Alliance, mais après avoir disparu quelques jours, ces phénomènes bizarres sont apparus... La marque de l'Oiseau Vermillon... Cet homme m'a aidé autrefois. Peu importe! » Maître Yan Leizi secoua la tête et disparut avec le vieil homme.
 
-La nouvelle du retour de Xu Mu se répandit comme une traînée de poudre. Après tout, Xu Mu était trop célèbre dans le Système Stellaire d'Allheaven pour que son retour passe inaperçu auprès des cultivateurs locaux.
+La nouvelle du retour de Xu Mu se répandit comme une traînée de poudre. Après tout, Xu Mu était trop célèbre dans le Système Stellaire de Luotian pour que son retour passe inaperçu auprès des cultivateurs locaux.
 
 Le plus frustré de tous était sans doute Xu Ting. En apprenant la nouvelle, il réfléchit un instant avant de partir en trombe avec une équipe de cultivateurs; il avait besoin de trouver une planète de culture pour décharger sa colère.
 

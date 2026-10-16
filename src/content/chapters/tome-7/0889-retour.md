@@ -16,7 +16,7 @@ Après avoir médité en silence un instant, Wang Lin se leva et quitta la plan�
 
 « Planète Suzaku... » Des ondulations apparurent sous les pieds de Wang Lin alors qu'il fusionnait avec le monde.
 
-À l'extérieur de la planète Suzaku, la question du garçon à la grosse tête venait tout juste d'atteindre les oreilles des deux cultivateurs Allheaven.
+À l'extérieur de la planète Suzaku, la question du garçon à la grosse tête venait tout juste d'atteindre les oreilles des deux cultivateurs Luotian.
 
 Les deux cultivateurs réprimèrent la panique dans leurs cœurs. L'un d'eux dit rapidement: « Messager Céleste, nous avons vu une statue sur cette planète de culture... »
 
@@ -100,7 +100,7 @@ Tie Yan était assis sur la place, près de la statue. Il la contemplait en rica
 
 Les yeux de Yun Quezi, gravement blessé, s'illuminèrent. Il avait naturellement remarqué l'expression du garçon à la grosse tête. En voyant que même ce dernier était terrifié devant la statue du jeune garçon, Wang Lin, Yun Quezi fut frappé de stupeur.
 
-« Ces cultivateurs Allheaven connaissent-ils ce petit garçon, Wang Lin? Pourtant, cela n'expliquerait pas cette expression, à moins que... » Une idée, qu'il jugeait elle-même extrêmement absurde, traversa son esprit.
+« Ces cultivateurs Luotian connaissent-ils ce petit garçon, Wang Lin? Pourtant, cela n'expliquerait pas cette expression, à moins que... » Une idée, qu'il jugeait elle-même extrêmement absurde, traversa son esprit.
 
 Zhou Wutai éprouvait le même sentiment. Bien que blessé, il comptait tout donner pour honorer la promesse faite à Wang Lin. Tant que Suzaku subsisterait, le peuple vivrait! Si Suzaku disparaissait, ils mourraient tous!
 
@@ -108,7 +108,7 @@ Quant au garçon à la grosse tête, son esprit vacillait tandis qu'il fixait la
 
 « Je ne peux vraiment pas provoquer Xu Mu pour une simple planète de culture abandonnée. Cependant, cette statue de Xu Mu semble exister depuis des centaines d'années... »
 
-« Ce Xu Mu n'appartient pas au Système Stellaire Allheaven!! Il est un cultivateur du Système Stellaire Alliance, c'est forcément ça! » Le cœur du garçon battait la chamade. Il avait le sentiment de tenir un immense secret. Grâce à cela, il pourrait ruiner Xu Mu et peut-être même causer sa perte!
+« Ce Xu Mu n'appartient pas au Système Stellaire Luotian!! Il est un cultivateur du Système Stellaire Alliance, c'est forcément ça! » Le cœur du garçon battait la chamade. Il avait le sentiment de tenir un immense secret. Grâce à cela, il pourrait ruiner Xu Mu et peut-être même causer sa perte!
 
 Le garçon à la grosse tête éclata d'un rire fou, puis ses yeux brillèrent et il fit un pas en avant. Arrivé près de la statue, il leva la main et frappa impitoyablement en criant: « Brise-toi! » Il n'osait pas affronter Xu Mu directement et ne pouvait faire cela que pour évacuer sa frustration.
 

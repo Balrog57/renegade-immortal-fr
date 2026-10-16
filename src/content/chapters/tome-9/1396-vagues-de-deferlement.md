@@ -8,7 +8,7 @@ slug: vagues-de-deferlement
 ---
 La planète Scorpion Obscur était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète en étaient affectées.
 
-Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Déchus, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et commença toutes à se condenser vers un point unique!
+Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et commença toutes à se condenser vers un point unique!
 
 Ce changement soudain attira l'attention du Clan Scorpion Obscur et du Clan de l'Évasion Nuageuse. Alors qu'ils déployaient leur Sens Divin pour observer, ils remarquèrent que la dense énergie démoniaque convergeait toute vers la grotte de Wang Lin!
 
@@ -68,7 +68,7 @@ L'expression de Wang Lin était sereine, mais une pointe de joie régnait dans s
 
 Une feuille jaune et un arbre scellé!
 
-Dans la Terre Déchue, la Sélection des Anciens Déchus était un événement sacré. Tous les petits clans qualifiés pour concourir s'apprêtaient!
+Dans la Terre Déchue, la Sélection des Anciens Délaissés était un événement sacré. Tous les petits clans qualifiés pour concourir s'apprêtaient!
 
 Le lieu de l'événement était la planète la plus mystérieuse de la Terre Déchue: la Planète du Grand Empereur!
 
@@ -88,17 +88,17 @@ Nul ne savait pourquoi la Planète du Grand Empereur était ainsi. C'était la t
 
 Normalement, une force magnétique et de déchirement inimaginable régnait autour de la planète. Les cultivateurs y constataient que leurs trésors devenaient inutiles et que même leur culture était supprimée.
 
-Ce n'est que lors de la Sélection des Anciens Déchus que ces forces s'affaiblissaient considérablement, permettant l'apparition de plusieurs tunnels pour accéder à la planète.
+Ce n'est que lors de la Sélection des Anciens Délaissés que ces forces s'affaiblissaient considérablement, permettant l'apparition de plusieurs tunnels pour accéder à la planète.
 
 Outre les quelque 300 clans participant à la Sélection, on trouvait également des individus venus du Système Stellaire Ancien. La plupart étaient invités par ces clans et apportaient parfois leur aide lors des combats.
 
 Le Grand Empereur n'y prêtait aucune attention, ce qui devint peu à peu une règle tacite. Cependant, quiconque n'appartenait pas aux clans de la Terre Déchue ne pouvait prétendre au titre d'Ancien, sous peine de mort!
 
-À chaque Sélection des Anciens Déchus, le Conseil Souverain envoyait des observateurs en tant qu'invités. Cela servait à témoigner de sa reconnaissance envers le Conseil Déchu et à rendre hommage au Grand Empereur. Ils venaient aussi pour observer et parfois soutenir certains clans.
+À chaque Sélection des Anciens Délaissés, le Conseil Souverain envoyait des observateurs en tant qu'invités. Cela servait à témoigner de sa reconnaissance envers le Conseil Déchu et à rendre hommage au Grand Empereur. Ils venaient aussi pour observer et parfois soutenir certains clans.
 
 Parallèlement au Conseil Souverain, le Conseil Déchu envoyait également des invitations aux puissantes figures du Système Stellaire Ancien.
 
-Le Grand Empereur ignorait tout cela. Pour lui, la Sélection des Anciens Déchus n'était qu'une simple festivité.
+Le Grand Empereur ignorait tout cela. Pour lui, la Sélection des Anciens Délaissés n'était qu'une simple festivité.
 
 Wang Lin se rendit sur la Planète du Grand Empereur avec le Clan Scorpion Obscur et le Clan de l'Évasion Nuageuse.
 

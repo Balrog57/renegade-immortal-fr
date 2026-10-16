@@ -78,7 +78,7 @@ Ces corps et ces têtes se déployaient comme un éventail tandis que Wang Lin s
 
 Une fois le massacre terminé, deux vieillards sortirent de la Vallée de Wu Feng. Il s'agissait des cultivateurs de l'Âme Naissante de la vallée. Loin d'être en colère, une excitation brûlante brillait dans leurs yeux alors que l'un d'eux s'exclamait: « La famille Teng est finie! »
 
-L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de culture de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si Punnan Zi, en intervenant, serait capable de l'arrêter? Même s'il échoue, cela ne nous affectera pas. »
+L'autre hocha la tête en riant. « C'est vrai. Le niveau de culture de cet individu est prodigieux. Il doit être issu d'une secte démoniaque d'un pays de culture de rang supérieur. À en juger par ses actes, il compte anéantir la famille Teng. Je me demande si Pu Nanzi, en intervenant, serait capable de l'arrêter? Même s'il échoue, cela ne nous affectera pas. »
 
 « Jeune frère apprenti, j'ai l'impression que ce visage m'est très familier, mais malgré mes efforts, je n'arrive pas à me souvenir où je l'ai déjà vu. »
 

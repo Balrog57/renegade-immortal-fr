@@ -116,9 +116,9 @@ Wang Zhuo ajouta: « La rumeur dit que le Clan des Immortels Délaissés a envoy
 
 Wang Lin réfléchit. Il n'aurait jamais imaginé qu'en si peu de temps, un tel bouleversement puisse se produire.
 
-« La Secte du Raffinement de l'Âme… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte du Raffinement de l'Âme pour voir si les choses y avaient changé.
+« La Secte du Affinement de l'Âme… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte du Affinement de l'Âme pour voir si les choses y avaient changé.
 
-Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte du Raffinement de l'Âme.
+Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte du Affinement de l'Âme.
 
 Wang Zhuo marqua une pause et demanda lentement: « Wang Lin, pouvez-vous retourner à Zhao et le sauver du péril? »
 

@@ -12,29 +12,29 @@ Face aux sept rayons de lumière formés par les sept hommes en noir et à leur 
 
 « Voyons si ma culture actuelle peut vaincre des cultivateurs du stade initial de Purificateur du Nirvana! »
 
-Big Head se lécha les lèvres, une soif de sang brillant dans ses yeux. Cela faisait bien longtemps qu'il n'avait pas tué personne. En voyant ces sept hommes en noir, une intention meurtrière ne put s'empêcher d'envahir son cœur.
+Da Tou se lécha les lèvres, une soif de sang brillant dans ses yeux. Cela faisait bien longtemps qu'il n'avait pas tué personne. En voyant ces sept hommes en noir, une intention meurtrière ne put s'empêcher d'envahir son cœur.
 
-Big Head demanda respectueusement: « Maître, puis-je les tuer? »
+Da Tou demanda respectueusement: « Maître, puis-je les tuer? »
 
-« Comme tu voudras! » La voix de Wang Lin était calme, mais elle poussa soudainement Big Head à lever la tête et à s'élancer. Il fut d'une rapidité fulgurante et disparut en un éclair.
+« Comme tu voudras! » La voix de Wang Lin était calme, mais elle poussa soudainement Da Tou à lever la tête et à s'élancer. Il fut d'une rapidité fulgurante et disparut en un éclair.
 
 L'expression du vieil homme devint sombre alors qu'il fixait Lei Ji, qui se rapprochait de plus en plus. Ses yeux trahissaient une lueur étrange tandis qu'il observait attentivement Lei Ji, et la cupidité s'empara de son cœur.
 
 « Une monture du Clan des Démons Géants est effectivement un atout précieux. Que Wang Lin rencontre ce vieil homme est sa perte! Ce garde à grosse tête est un cultivateur au stade Scruteur du Nirvana... Et cette marionnette possède aussi une certaine force... Bien que ce Wang Lin puisse combattre Ling Tianhou, ce n'était dû qu'à la puissance de son trésor. Qui n'a pas de trésors?! »
 
-Big Head fit un pas et arriva devant les sept hommes en noir. Un sourire étira ses lèvres alors que sa main droite se tendait vers l'un d'eux!
+Da Tou fit un pas et arriva devant les sept hommes en noir. Un sourire étira ses lèvres alors que sa main droite se tendait vers l'un d'eux!
 
-Ces sept hommes étaient tous au-dessus du stade Ascendant, plus précisément au stade Yin Illusoire. Dès que Big Head tendit la main, ils bougèrent avec une rapidité extrême pour former une formation, concentrant toute leur puissance sur un seul homme. Le meneur leva la main droite, traça un sceau et pointa Big Head du doigt.
+Ces sept hommes étaient tous au-dessus du stade Ascendant, plus précisément au stade Yin Illusoire. Dès que Da Tou tendit la main, ils bougèrent avec une rapidité extrême pour former une formation, concentrant toute leur puissance sur un seul homme. Le meneur leva la main droite, traça un sceau et pointa Da Tou du doigt.
 
 Le dernier des sept perdit instantanément toute vigueur. Puis ce fut le tour du sixième, et ainsi de suite, tandis que toute leur puissance convergeait vers l'homme en tête. Finalement, toute cette énergie jaillit du sceau formé par le premier combattant.
 
-Un tigre noir apparut et chargea Big Head dans un rugissement.
+Un tigre noir apparut et chargea Da Tou dans un rugissement.
 
-Big Head rit et, sans la moindre hésitation, serra violemment son poing. À cet instant précis, les yeux du vieil homme sur le bateau s'illuminèrent; il leva la main droite et pointa l'avant!
+Da Tou rit et, sans la moindre hésitation, serra violemment son poing. À cet instant précis, les yeux du vieil homme sur le bateau s'illuminèrent; il leva la main droite et pointa l'avant!
 
-Un rayon de lumière noire jaillit à une vitesse prodigieuse en direction de Big Head!
+Un rayon de lumière noire jaillit à une vitesse prodigieuse en direction de Da Tou!
 
-Wang Lin, assis sur le dos de Lei Ji, vit ses yeux s'éclairer. D'un seul pas, il descendit de Lei Ji et apparut aux côtés de Big Head. Sans même regarder la lumière noire, Wang Lin agita négligemment la main.
+Wang Lin, assis sur le dos de Lei Ji, vit ses yeux s'éclairer. D'un seul pas, il descendit de Lei Ji et apparut aux côtés de Da Tou. Sans même regarder la lumière noire, Wang Lin agita négligemment la main.
 
 Dans un fracas assourdissant, la lumière noire se désintégra. Wang Lin regarda calmement le vieil homme et dit d'un ton lent: « Oses-tu me défier? »
 
@@ -72,7 +72,7 @@ Boum, boum, boum!!
 
 L'explosion fut si violente qu'elle fit trembler les cieux, et l'onde de choc se propagea avec frénésie. Le bateau noir fut immédiatement repoussé, et même Lei Ji dut reculer.
 
-Quant aux cultivateurs menés par le vieil homme, ils battirent également en retraite. Seul Big Head affichait un sourire carnassier en chargeant les sept hommes en noir, tandis que Wang Lin et le vieil homme s'affrontaient. Les corps s'écroulaient et le sang éclaboussait partout. Quelques gouttes atterrirent près de sa bouche, et Big Head les lèche avec avidité.
+Quant aux cultivateurs menés par le vieil homme, ils battirent également en retraite. Seul Da Tou affichait un sourire carnassier en chargeant les sept hommes en noir, tandis que Wang Lin et le vieil homme s'affrontaient. Les corps s'écroulaient et le sang éclaboussait partout. Quelques gouttes atterrirent près de sa bouche, et Da Tou les lèche avec avidité.
 
 Lorsque les neuf runes explosèrent, loin de se rassurer, le vieil homme fut encore plus choqué. Il recula sans hésiter.
 

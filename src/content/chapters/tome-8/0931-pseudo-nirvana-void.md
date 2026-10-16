@@ -6,7 +6,7 @@ bookTitle: Alliance's Secret
 en: Chapter 931 - Pseudo Nirvana Void
 slug: pseudo-nirvana-void
 ---
-« Je ne pensais pas que les archives de l'ancien Royaume Céleste de la Pluie étaient réellement vraies! » L'Estimé Xuan Bao sourit en observant le Serpent aux yeux de lune avancer, encerclé par les cultivateurs d'Allheaven.
+« Je ne pensais pas que les archives de l'ancien Royaume Céleste de la Pluie étaient réellement vraies! » L'Estimé Xuan Bao sourit en observant le Serpent aux yeux de lune avancer, encerclé par les cultivateurs de Luotian.
 
 Ses yeux s'illuminèrent et sa main droite fendit l'air tandis qu'il murmurait: « Gardes Célestes de la Pluie! »
 
@@ -30,7 +30,7 @@ Après l'apparition des quatre gardes célestes en armure dorée, l'expression d
 
 Alors que le Serpent aux yeux de lune rugissait, ses tentacules balayaient tout sur leur passage. Simultanément, le Dieu de Sang et les autres qui l'entouraient s'élancèrent immédiatement contre les quatre gardes célestes. Le Dieu de Sang forma un sceau en avançant; une lumière sanglante se propagea alors qu'il agit de la main.
 
-Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les faire hésiter un instant. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs d'Allheaven.
+Une mer de sang surgit de nulle part et chargea en avant. Cependant, lorsque cette mer de sang percuta les gardes célestes, elle ne fit que les faire hésiter un instant. Les gardes se scindèrent en quatre directions pour encercler le Serpent aux yeux de lune aux côtés des cultivateurs de Luotian.
 
 La main droite de l'Estimé Xuan Bao s'enfonça à nouveau dans le vide et une autre fissure apparut. Soudain, neuf papillons noirs en sortirent.
 
@@ -56,7 +56,7 @@ Le visage de Wang Lin était sombre. La bataille actuelle n'était plus de son r
 
 Nombreux étaient ceux qui avaient l'intention de profiter de ce chaos pour dérober des trésors; il n'était donc pas surprenant que plusieurs cultivateurs se livrent bataille autour de la sculpture, empêchant quiconque de s'en approcher.
 
-L'arrivée de Wang Lin attira immédiatement l'attention des combattants, qui changèrent de direction sans hésiter. Les cultivateurs d'Allheaven hésitèrent un instant, mais les cultivateurs de l'Alliance envoyèrent aussitôt quelques hommes à la poursuite de Wang Lin.
+L'arrivée de Wang Lin attira immédiatement l'attention des combattants, qui changèrent de direction sans hésiter. Les cultivateurs de Luotian hésitèrent un instant, mais les cultivateurs de l'Alliance envoyèrent aussitôt quelques hommes à la poursuite de Wang Lin.
 
 Le visage de Wang Lin restait calme alors qu'il formait un sceau de la main droite avant de l'agiter. Une bourrasque chargea furieusement en avant et, dans la foulée, Wang Lin lança un coup de poing impitoyable.
 

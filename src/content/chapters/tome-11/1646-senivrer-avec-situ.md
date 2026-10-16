@@ -56,7 +56,7 @@ Wang Lin avança silencieusement jusqu'à Situ Nan. Ses yeux confus trahissaient
 
 Sur une montagne sans nom de la planète Suzaku, Wang Lin et Situ Nan s'assirent. Ils regardèrent le ciel s'obscurcir en buvant du vin en silence.
 
-Personne ne vint les déranger. Les milliers de cultivateurs restèrent sur la planète à cultiver. Ils attendaient que Wang Lin redescende de la montagne. Ils attendaient qu'il les emmène à Allheaven, pour sauver Allheaven et protéger le Royaume Intérieur!
+Personne ne vint les déranger. Les milliers de cultivateurs restèrent sur la planète à cultiver. Ils attendaient que Wang Lin redescende de la montagne. Ils attendaient qu'il les emmène à Luotian, pour sauver Luotian et protéger le Royaume Intérieur!
 
 « Situ, pourquoi les gens vivent-ils... » Tandis que Wang Lin sirotait son vin, l'incertitude dans ses yeux s'intensifiait.
 

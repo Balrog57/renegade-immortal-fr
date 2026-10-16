@@ -94,7 +94,7 @@ Le Taoïste Water projeta cette cloche vers le poing de Wang Lin!
 
 Une énergie spirituelle céleste d'une pureté extrême se répandit à travers le monde. La cloche dorée émit un son cristallin et, au moment où elle rencontra le poing de Wang Lin, une ondulation dorée éclata!
 
-Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis la Secte Dieu comme épicentre... La Mer des Nuages, l'Alliance, la Rivière Invoquée et Allheaven furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
+Cette onde contenait un sort du Dao provenant du Royaume Céleste Antique. Dès son apparition, elle se propagea à une vitesse inimaginable depuis la Secte Dieu comme épicentre... La Mer des Nuages, l'Alliance, la Rivière Invoquée et Luotian furent balayées par cette ondulation. C'était comme si tout ce qui était caché dans ces systèmes stellaires était soudainement révélé.
 
 La gigantesque Formation de Scellement du Royaume, qui emprisonnait le Royaume Intérieur, apparut pour la première fois!
 
@@ -102,7 +102,7 @@ Dans le Système Stellaire de la Mer des Nuages, des groupes de cultivateurs voy
 
 Dans le Système Stellaire de la Rivière Invoquée, d'innombrables cultivateurs circulaient dans le système en préparation pour la guerre. À cet instant, l'onde dorée se répandit et fut comme un voile mystérieux que l'on déchire. La Formation de Scellement du Royaume apparut devant eux!
 
-Dans le Système Stellaire d'Allheaven, des groupes de cultivateurs déplaçaient les planètes de culture. Cependant, à cet instant, ils restèrent tous pétrifiés en contemplant la Formation de Scellement du Royaume sous leurs pieds!
+Dans le Système Stellaire de Luotian, des groupes de cultivateurs déplaçaient les planètes de culture. Cependant, à cet instant, ils restèrent tous pétrifiés en contemplant la Formation de Scellement du Royaume sous leurs pieds!
 
 Il en fut de même pour le Système Stellaire de l'Alliance. Toutes les petites forces de l'Alliance furent terrifiées et cessèrent leurs activités. Tous fixaient le filet doré qui était apparu après le passage de l'onde dorée!
 

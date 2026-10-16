@@ -68,7 +68,7 @@ Les scènes s'enchaînèrent, du pays de Zhao à la Secte des Cadavres, puis à 
 
 Puis il retourna à Zhao, où il massacra la famille Teng. La bataille contre Xue Yue, le Royaume Céleste de la Pluie, suivie du meurtre de l'ancêtre du pays de Xue Yue [1] et de l'ancêtre du Clan des Démons Géants. Ensuite vinrent la bataille entre le Clan des Immortels Délaissés et le pays Suzaku, ainsi que les événements survenus dans la Tombe de Suzaku. Tout défilait comme si Wang Lin revivait sa propre existence.
 
-La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Allheaven, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre de Sang, l'intérieur de la Bête de l'Enfer, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la compétition pour le Titre Céleste où il obtint le premier rang sur une ligne menant au ciel.
+La Secte Tian Yun, la Terre des Esprits Démoniaques, l'Art du Massacre Céleste, le Système Stellaire Luotian, l'ancêtre de la famille Huan, le Royaume Céleste du Tonnerre, le meurtre de l'Ancêtre de Sang, l'intérieur de la Bête de l'Enfer, l'assassinat des êtres célestes, le massacre des membres de la famille Yao dans le Domaine Occidental, et tout cela jusqu'à la compétition pour le Titre Céleste où il obtint le premier rang sur une ligne menant au ciel.
 
 Finalement, ses souvenirs s'arrêtèrent. Wang Lin fut tiré de sa torpeur. Il eut l'impression qu'une force puissante l'avait saisi pour le tirer vers le haut. Puis, il ouvrit soudainement les yeux. Il était trempé de sueur et la montagne se dressait toujours devant lui.
 

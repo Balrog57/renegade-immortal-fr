@@ -44,7 +44,7 @@ C'était la première fois que Wang Lin voyait une planète de culture depuis so
 
 Dans la Mer des Nuages, la majorité des cultivateurs n'avaient jamais vu de planète de culture auparavant, seulement des continents flottants. La stupeur de voir une planète pour la première fois se lisait sans peine sur leurs visages.
 
-Pourtant, pour Wang Lin, une planète de culture n'avait rien d'extraordinaire. Il était né sur une planète de culture, il avait accepté son maître sur une planète de culture et, à Allheaven, il possédait même sa propre planète de culture.
+Pourtant, pour Wang Lin, une planète de culture n'avait rien d'extraordinaire. Il était né sur une planète de culture, il avait accepté son maître sur une planète de culture et, à Luotian, il possédait même sa propre planète de culture.
 
 Sans parler du vaste champ d'étoiles au sein de la Secte Divine de l'Oiseau Vermillon.
 

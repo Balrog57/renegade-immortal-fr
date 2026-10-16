@@ -72,7 +72,7 @@ Il avait cherché maintes méthodes pour s'en débarrasser, mais cette odeur ré
 
 Cette douleur le torturait encore aujourd'hui. Cela faisait culminer sa haine envers l'Omniscient, Wang Lin, et le Serpent aux yeux de lune!
 
-« Omniscient, si vous ne m'aviez pas forcé à aller à Allheaven, je ne me serais pas retrouvé dans un état aussi misérable. Et il y a aussi ce serpent aux yeux de lune... Ce vieil homme jure qu'il va le réduire en miettes! »
+« Omniscient, si vous ne m'aviez pas forcé à aller à Luotian, je ne me serais pas retrouvé dans un état aussi misérable. Et il y a aussi ce serpent aux yeux de lune... Ce vieil homme jure qu'il va le réduire en miettes! »
 
 « Le plus important, c'est Wang Lin! Cet homme... cet homme est mon ennemi juré! Il m'a volé tous mes trésors. Mon fourneau de téléportation, mon ancien dragon de tonnerre, ma Peinture Montagne et Rivière, mon âme de montagne... Tous les trésors que j'ai rassemblés pendant des dizaines de milliers d'années lui ont été dérobés! »
 
@@ -84,7 +84,7 @@ Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à W
 
 « Mon ennemi de toujours! Sur la planète Suzaku, la Perle Bravant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
 
-« Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Allheaven pour traquer Wang Lin. Puis, après avoir souffert aux mains du Serpent aux yeux de lune, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais! »
+« Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis, après avoir souffert aux mains du Serpent aux yeux de lune, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais! »
 
 « Puis, juste au moment où je m'apprêtais à échapper au Serpent aux yeux de lune, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture! » Cupidité se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
 

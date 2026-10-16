@@ -20,13 +20,13 @@ Dès que les ordres furent donnés, les milliers de cultivateurs des planètes m
 
 En un éclair, le rideau de lumière s'intensifia pour atteindre mille couches, dix mille couches, cent mille couches, un million, dix millions... jusqu'à atteindre quatre-vingt-dix-neuf millions de couches!
 
-La lueur du rideau perça l'espace et se propagea dans toutes les directions. Elle inonda la partie orientale d'Allheaven. Même les trois autres domaines purent apercevoir cette lumière puissante à l'est!
+La lueur du rideau perça l'espace et se propagea dans toutes les directions. Elle inonda la partie orientale de Luotian. Même les trois autres domaines purent apercevoir cette lumière puissante à l'est!
 
-Tout Allheaven fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, toutes les planètes de culture et l'armée de cultivateurs en mouvement virent tous cette lumière jaillir de l'est!
+Tout Luotian fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, toutes les planètes de culture et l'armée de cultivateurs en mouvement virent tous cette lumière jaillir de l'est!
 
-Dans une zone éloignée de la planète Dong Ling, là où se déroulaient les préparatifs principaux d'Allheaven, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
+Dans une zone éloignée de la planète Dong Ling, là où se déroulaient les préparatifs principaux de Luotian, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
 
-À ses côtés, le Maître Flamespark, le Dieu du Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Ling.
+À ses côtés, le Maître Yan Leizi, le Dieu du Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Ling.
 
 « La planète Dong Ling existe depuis des temps immémoriaux. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
 
@@ -50,7 +50,7 @@ L'Ordre Antique était une existence bien supérieure aux Dieux Anciens! Car les
 
 Ce fantôme était flou et ne représentait qu'une tête. Une tête dépourvue d'œil gauche!
 
-Cette tête était immense et couvrait tout le ciel! Une pression écrasante se répandit dans tout le domaine oriental d'Allheaven!
+Cette tête était immense et couvrait tout le ciel! Une pression écrasante se répandit dans tout le domaine oriental de Luotian!
 
 À l'instant où cette aura surgit, tous les cultivateurs qui la ressentirent furent frappés de stupeur. C'était comme s'ils percevaient quelque chose dépassant leur entendement!
 

@@ -94,7 +94,7 @@ Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure v
 
 Wang Lin avait fouillé la mémoire de Cupidité et appris que ses paroles étaient pour l'essentiel vraies. Il en avait également tiré deux points clés!
 
-Le premier concernait l'endroit où le vortex était apparu dans Allheaven.
+Le premier concernait l'endroit où le vortex était apparu dans Luotian.
 
 Le second indiquait l'endroit où Cupidité était apparu après être sorti de cette tombe antique!
 

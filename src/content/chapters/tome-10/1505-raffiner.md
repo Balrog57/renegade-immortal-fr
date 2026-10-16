@@ -92,7 +92,7 @@ Face à cette urgence, Wang Lin se calma. Il fixa froidement l'espace de 800 mil
 
 Ce n'était pas un espace plat; il s'étendait des cieux les plus hauts jusqu'aux profondeurs mêmes de l'enfer!
 
-La partie disparue révélait la Formation de Scellement du Royaume! Quant à la zone raffinée, elle devint un gouffre qui subsisterait une éternité dans Allheaven!
+La partie disparue révélait la Formation de Scellement du Royaume! Quant à la zone raffinée, elle devint un gouffre qui subsisterait une éternité dans Luotian!
 
 Tout en réfléchissant, Wang Lin agita sa main droite et des centaines de milliers de restrictions apparurent. Sa main gauche s'activait également, créant d'innombrables images rémanentes. Utilisant sa vitesse maximale, il multiplia les restrictions à l'infini!
 

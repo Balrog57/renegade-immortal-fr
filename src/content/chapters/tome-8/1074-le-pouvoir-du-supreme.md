@@ -82,7 +82,7 @@ Le Omniscient vit immédiatement qu'il s'agissait de la loi d'origine, l'essence
 
 « Il a détruit trois de mes avatars. Wang Lin, ma plus grande erreur a été de t'accepter comme disciple et de te donner la chance de quitter la planète Suzaku! » Le Omniscient grinçait des dents. Il prit une profonde inspiration pour réprimer le choc dans son esprit et se força au calme.
 
-Il n'était pas le seul. Situ Nan, Big Head, Maître Vent Creux et tous les autres étaient stupéfaits. Maître Vent Creux était légèrement moins choqué car il avait déjà fait l'expérience de la Nuit Brisée par le passé. Son cuir chevelu lui semblait engourdi et une peur persistante s'installait dans son cœur.
+Il n'était pas le seul. Situ Nan, Da Tou, Maître Vent Creux et tous les autres étaient stupéfaits. Maître Vent Creux était légèrement moins choqué car il avait déjà fait l'expérience de la Nuit Brisée par le passé. Son cuir chevelu lui semblait engourdi et une peur persistante s'installait dans son cœur.
 
 Même Wang Wei et Hu Juan étaient essoufflés. Ils se regardèrent, voyant la terreur reflétée dans les yeux de l'autre. À l'instant même, ils avaient été entraînés dans cette illusion, comme s'ils avaient été placés dans un espace distinct. Ils ne pouvaient que regarder, impuissants.
 
@@ -102,7 +102,7 @@ Au siège de l'Alliance de Culture, là où étaient conservés les jetons de vi
 
 Simultanément, le son d'une cloche résonna dans tout le siège de l'Alliance. Une partie des cultivateurs présents leva les yeux vers le lieu de conservation des jetons de vie.
 
-Depuis le début de la guerre contre Allheaven, des morts s'enchaînaient chaque jour, mais ils n'étaient pas assez éminents pour que leurs jetons soient conservés au siège. La cloche signalant un décès n'avait retenti que quelques fois; au maximum cinq fois d'affilée.
+Depuis le début de la guerre contre Luotian, des morts s'enchaînaient chaque jour, mais ils n'étaient pas assez éminents pour que leurs jetons soient conservés au siège. La cloche signalant un décès n'avait retenti que quelques fois; au maximum cinq fois d'affilée.
 
 Avec l'arrogance de l'Alliance de Culture, ils ne se souciaient guère de la morale; ils déclencheraient une guerre de vengeance à grande échelle. Quiconque oserait tuer un membre important de l'Alliance deviendrait l'ennemi de toute l'organisation!
 

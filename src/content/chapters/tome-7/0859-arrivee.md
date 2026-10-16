@@ -12,7 +12,7 @@ C'était la première fois que des titres célestes étaient attribués depuis l
 
 Tout cela avait porté la compétition pour les titres célestes à son apogée!
 
-Ils utilisaient cette compétition pour porter l'intention de bataille de tout le Système Stellaire d'Allheaven à son paroxysme avant l'affrontement contre le Système Stellaire de l'Alliance!
+Ils utilisaient cette compétition pour porter l'intention de bataille de tout le Système Stellaire de Luotian à son paroxysme avant l'affrontement contre le Système Stellaire de l'Alliance!
 
 D'innombrables familles de cultivateurs des quatre domaines enverraient leurs représentants dans les arènes désignées. Ensuite, sous la direction d'un Messager du Temple Céleste du Tonnerre agissant comme juge, 108 personnes seraient choisies dans chaque domaine pour être envoyées au Temple Céleste du Tonnerre pour la compétition finale!
 
@@ -48,7 +48,7 @@ Bien que Shengong Hu n'eût pas voulu céder, il finit par s'y résoudre. Pourta
 
 Toutefois, ce qui suivit dépassa toutes les attentes de Shengong Hu. Son seigneur attaqua la famille Yao à plusieurs reprises, massacra de nombreux cultivateurs et s'empara du titre de Maître Démon.
 
-Finalement, une bataille tellurique dans le Domaine Nord fit résonner le nom de « Xu Mu » à travers tout le Système Stellaire d'Allheaven!
+Finalement, une bataille tellurique dans le Domaine Nord fit résonner le nom de « Xu Mu » à travers tout le Système Stellaire de Luotian!
 
 Bien que tout cela parût glorieux en apparence, cela différait grandement de l'impression que Shengong Hu s'en était faite. Il resta silencieux un long moment, remémorant les événements passés, le cœur amer.
 
@@ -64,7 +64,7 @@ Zhan Konglie éprouvait une amertume similaire. Il était aussi perspicace que S
 
 Zhan Yun était assise sur une pierre bleue derrière Zhan Konglie. En voyant son cousin froncer les sourcils, elle soupira. Elle comprenait parfaitement que son cousin pensait au Senior...
 
-Durant cette période, le nom du Senior s'était illustré dans tout le Système Stellaire d'Allheaven. Chaque fois qu'elle se remémorait les événements du Royaume Céleste du Tonnerre, elle en était saisie de stupeur. Si ce n'était grâce à l'initiative du Senior, elle serait déjà morte.
+Durant cette période, le nom du Senior s'était illustré dans tout le Système Stellaire de Luotian. Chaque fois qu'elle se remémorait les événements du Royaume Céleste du Tonnerre, elle en était saisie de stupeur. Si ce n'était grâce à l'initiative du Senior, elle serait déjà morte.
 
 Sur une autre pierre rouge siégeait Tang Yanfeng. En observant la scène, il laissa échapper un renâclement froid mais garda le silence.
 

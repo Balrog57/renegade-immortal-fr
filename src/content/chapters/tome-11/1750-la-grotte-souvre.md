@@ -28,15 +28,15 @@ Simultanément, dans les diverses régions du Royaume Extérieur, les concubines
 
 « Le cœur de la grotte s'est ouvert!! » Un instant plus tard, les concubines s'élancèrent depuis divers points du Royaume Extérieur vers le Royaume Intérieur!
 
-Au même moment, dans le Royaume Intérieur, au sein du Vide Brillant, la zone entourant la planète Suzaku trembla. Le brouillard tourbillonna et le vide à l'extérieur de la planète se déchira silencieusement! L'aura du champ de bataille étranger s'échappa de la faille tandis que des fragments volaient rapidement pour se rassembler et former une autre plaque de schiste! Cette plaque, semblable à un petit continent, vola vers Allheaven dès son apparition!
+Au même moment, dans le Royaume Intérieur, au sein du Vide Brillant, la zone entourant la planète Suzaku trembla. Le brouillard tourbillonna et le vide à l'extérieur de la planète se déchira silencieusement! L'aura du champ de bataille étranger s'échappa de la faille tandis que des fragments volaient rapidement pour se rassembler et former une autre plaque de schiste! Cette plaque, semblable à un petit continent, vola vers Luotian dès son apparition!
 
-Ce n'était pas le seul endroit. Des plaques identiques se formaient également dans les trois autres systèmes stellaires. Un nombre inconnu de plaques se précipitait vers Allheaven depuis tous les recoins du monde de la grotte!
+Ce n'était pas le seul endroit. Des plaques identiques se formaient également dans les trois autres systèmes stellaires. Un nombre inconnu de plaques se précipitait vers Luotian depuis tous les recoins du monde de la grotte!
 
-Alors que ces plaques fonçaient en avant, l'expression du Daoïste aux Sept Couleurs, qui effectuait des recherches à Allheaven, changea radicalement. Son corps trembla tandis qu'il fixait l'horizon, une rage monstrueuse déferlant dans son cœur!
+Alors que ces plaques fonçaient en avant, l'expression du Daoïste aux Sept Couleurs, qui effectuait des recherches à Luotian, changea radicalement. Son corps trembla tandis qu'il fixait l'horizon, une rage monstrueuse déferlant dans son cœur!
 
 « La troisième âme a été trouvée!!! Le cœur de la grotte s'est ouvert! Qui? Qui a trouvé la troisième âme le premier?! » Le Daoïste aux Sept Couleurs semblait avoir perdu la raison alors qu'il chargeait en avant.
 
-Les quatre généraux se trouvaient également à Allheaven. La bête géante de brouillard devant eux poussa un gémissement et trembla, n'osant plus bouger. Le grondement résonna à travers le système stellaire et le brouillard apparut soudainement. L'aura de l'ouverture du cœur emplit chaque parcelle du monde de la grotte!
+Les quatre généraux se trouvaient également à Luotian. La bête géante de brouillard devant eux poussa un gémissement et trembla, n'osant plus bouger. Le grondement résonna à travers le système stellaire et le brouillard apparut soudainement. L'aura de l'ouverture du cœur emplit chaque parcelle du monde de la grotte!
 
 Les expressions des quatre généraux changèrent brusquement. Ils peinaient à y croire; ils pensaient être les plus rapides, mais ils furent choqués de découvrir que quelqu'un avait trouvé la troisième âme avant eux!
 
@@ -50,17 +50,17 @@ Malheureusement, le monde de la grotte était plongé dans le chaos; même en d�
 
 Alors que le Vieux Fantôme Zhan progressait, une ombre gigantesque apparut devant lui. Cette silhouette immense portait une cape de brouillard qui dissimulait son visage, ne laissant paraître que des yeux sombres et sinistres. Ses cheveux flottaient et son corps colossal recouvrait la majeure partie du ciel. Cette figure encercla le Vieux Fantôme Zhan. C'était l'une des trois âmes, celle qui détenait toute la compréhension du Dao!
 
-C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Allheaven sans hésiter!
+C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Luotian sans hésiter!
 
 Il y avait aussi la femme qui n'était pas allée dans le Royaume Céleste mais était restée sur une planète de la Rivière de l'Invocation. Cette femme, nommée Zi Xia, était l'une des concubines. Elle réfléchit silencieusement un instant avant de serrer les dents et de s'élancer.
 
-Tandis que tout le monde de la grotte basculait, les grandes plaques commençaient à charger vers Allheaven. Dans le Vide Brillant, sur la planète cachée des Cinq Éléments, le groupe de cultivateurs mené par le vieil homme nommé Ma hésita un court instant. Puis, dans un soupir, ils se précipitèrent vers Allheaven!
+Tandis que tout le monde de la grotte basculait, les grandes plaques commençaient à charger vers Luotian. Dans le Vide Brillant, sur la planète cachée des Cinq Éléments, le groupe de cultivateurs mené par le vieil homme nommé Ma hésita un court instant. Puis, dans un soupir, ils se précipitèrent vers Luotian!
 
-Yun Yifeng suivit le vieil homme Ma et tourna son regard vers Allheaven. Ses yeux brillaient d'une lueur étrange.
+Yun Yifeng suivit le vieil homme Ma et tourna son regard vers Luotian. Ses yeux brillaient d'une lueur étrange.
 
 « Wang Lin, notre dernière bataille n'avait pas eu de conclusion. Peut-être pourrons-nous déterminer un vainqueur au cœur de la grotte! »
 
-Le monde de la grotte grondait violemment et le brouillard se mouvait comme une mer déchaînée. Vu d'en haut, on aurait dit que l'intégralité du monde s'était transformée en un océan de brume, seul Allheaven, où se trouvait Wang Lin, demeurant limpide. Il était devenu une lumière éclatante dans les ténèbres!
+Le monde de la grotte grondait violemment et le brouillard se mouvait comme une mer déchaînée. Vu d'en haut, on aurait dit que l'intégralité du monde s'était transformée en un océan de brume, seul Luotian, où se trouvait Wang Lin, demeurant limpide. Il était devenu une lumière éclatante dans les ténèbres!
 
 À cet instant, dans le Royaume Céleste, Qing Shui se tenait devant sa demeure et contemplait le ciel nuageux. Il ressentit un appel dans son esprit, un appel qui l'irritait profondément. Également dans le Royaume Céleste, Situ Nan sortit de sa culture. Il regarda devant lui d'un air sombre, mais nul ne savait à quoi il pensait.
 
@@ -70,7 +70,7 @@ Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. 
 
 Le brouillard afflua de toutes les directions du monde de la grotte pour se rassembler dans le ciel!
 
-À ce moment précis, Wang Lin se tenait dans la vallée sur la planète d'Allheaven. Ses yeux étaient empreints de tristesse et de colère alors qu'il regardait son disciple Xie Qing l'appeler « Maître » une dernière fois avant de mourir avec un sourire! Il était furieux que les cieux s'acharnent ainsi contre lui!
+À ce moment précis, Wang Lin se tenait dans la vallée sur la planète de Luotian. Ses yeux étaient empreints de tristesse et de colère alors qu'il regardait son disciple Xie Qing l'appeler « Maître » une dernière fois avant de mourir avec un sourire! Il était furieux que les cieux s'acharnent ainsi contre lui!
 
 « Si les cieux ne me respectent pas, alors je détruirai les cieux! » Wang Lin leva les yeux vers le ciel sombre, la troisième âme à la main! Dès l'apparition de cette âme, il établit une connexion avec elle. Il comprit que le cœur de la grotte s'était ouvert!
 

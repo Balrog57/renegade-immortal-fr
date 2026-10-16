@@ -12,7 +12,7 @@ Cet être pitoyable se trouvait toujours dans le royaume de la Bête de l'Infram
 
 Elle fusionna avec la seconde étoile de Wang Lin avant de disparaître.
 
-Contemplant l'Allheaven au loin, Wang Lin constata qu'il avait accompli les quatre tâches. Il avait réglé une partie de son karma et revu quelques anciens amis.
+Contemplant le Luotian au loin, Wang Lin constata qu'il avait accompli les quatre tâches. Il avait réglé une partie de son karma et revu quelques anciens amis.
 
 Wang Lin ne pouvait espérer davantage et s'enfonça dans l'immensité avec un soupir.
 
@@ -20,7 +20,7 @@ Le royaume à l'intérieur de la Bête de l'Inframonde était sans limites; un c
 
 Le cultivateur était confus et perplexe. Il songeait à cela depuis des centaines d'années... « Bon sang, de quel domaine stellaire s'agit-il? Je n'ai rencontré aucune créature vivante depuis des siècles. Pourrais-je être dans une faille spatiale? Je ne le crois pas! Il doit bien y avoir un moyen de sortir! » Le vieux cultivateur s'encourageait ainsi depuis des centaines d'années afin de préserver sa santé mentale tout en poursuivant ses recherches...
 
-Dans l'Allheaven, une planète maculée de sang flottait parmi les étoiles. Au milieu de la voûte céleste, cette planète émettait une lumière rouge monstrueuse qui illuminait toute la zone. On pouvait ressentir sa puissante aura sanguine même les yeux fermés.
+Dans le Luotian, une planète maculée de sang flottait parmi les étoiles. Au milieu de la voûte céleste, cette planète émettait une lumière rouge monstrueuse qui illuminait toute la zone. On pouvait ressentir sa puissante aura sanguine même les yeux fermés.
 
 La silhouette de Wang Lin apparut aux abords de cette planète sanglante.
 

@@ -6,7 +6,7 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 867 - Not qualified (1)
 slug: non-qualifie-1
 ---
-La voix de Maître Flamespark était calme lorsqu'il déclara lentement: « C’est bel et bien cette pierre! »
+La voix de Maître Yan Leizi était calme lorsqu'il déclara lentement: « C’est bel et bien cette pierre! »
 
 Les yeux du vieil homme s'assombrirent légèrement et il ajouta: « La rumeur prétend que cette pierre est un vestige de l'ancien Royaume Céleste. Si l'on parvient à y inscrire son nom, son âme peut accéder directement à cet ancien Royaume Céleste qui, dit-on, a disparu! Je ne m'attendais pas à ce que la Pierre de l'Investiture Céleste se trouve dans le Temple Céleste du Tonnerre! »
 
@@ -16,13 +16,13 @@ Un silence absolu tomba sur les environs. Hormis quelques rares privilégiés, p
 
 Néanmoins, de nombreux cultivateurs ignoraient tout de l'ancien Royaume Céleste et se tournèrent vers les ancêtres de leurs clans respectifs.
 
-Maître Flamespark reprit calmement: « La Pierre de l'Investiture Céleste s'est brisée en d'innombrables fragments lors de l'effondrement du Royaume Céleste du Tonnerre. Mon Temple Céleste du Tonnerre ne l'a pas récupérée, inutile donc de s'y attarder. C’est lorsque ce senior a capturé la Bête Lunaire qu'il m’a trouvé et m’a remis un fragment de la taille de mon poing! »
+Maître Yan Leizi reprit calmement: « La Pierre de l'Investiture Céleste s'est brisée en d'innombrables fragments lors de l'effondrement du Royaume Céleste du Tonnerre. Mon Temple Céleste du Tonnerre ne l'a pas récupérée, inutile donc de s'y attarder. C’est lorsque ce senior a capturé la Bête Lunaire qu'il m’a trouvé et m’a remis un fragment de la taille de mon poing! »
 
 À ces mots, tous les vieux monstres installés sur les tapis de prière se turent, cessant toute interrogation à ce sujet.
 
 « Les trois épreuves du Ciel, de la Terre et de l'Homme. La première épreuve est celle de l'Homme. Si vous pouvez tenir dix respirations, alors vous réussissez! »
 
-« Luo Su, entre dans le lac du tonnerre! » La voix de Maître Flamespark résonna dans toute la zone tandis qu'un rayon de lumière verte s'approchait. Cette lumière se mua devant tout le monde en un homme d'âge moyen vêtu de robes vertes.
+« Luo Su, entre dans le lac du tonnerre! » La voix de Maître Yan Leizi résonna dans toute la zone tandis qu'un rayon de lumière verte s'approchait. Cette lumière se mua devant tout le monde en un homme d'âge moyen vêtu de robes vertes.
 
 L'homme joignit les mains en signe de respect et déclara: « Selon les ordres du Seigneur du Temple! » Tout en parlant, il descendit vers la place. Il se tint au sommet de celle-ci, les mains derrière le dos, une trace d'orgueil perçant son expression sereine.
 

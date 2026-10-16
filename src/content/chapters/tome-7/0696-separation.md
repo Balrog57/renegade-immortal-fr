@@ -22,13 +22,13 @@ Sun Qiming reprit d'un ton solennel: « La famille Sun est puissante et occupe l
 
 Les yeux de Sun Qiming se posèrent sur le jeune homme et il dit calmement: « Jeune homme de la famille Yun, cette affaire a commencé à cause de vous. Préparez-vous, car elle pourrait ne pas être aussi facile à régler! »
 
-Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Mer de Nuages. La planète Mer de Nuages était l'une des planètes principales de la partie nord du système stellaire Allheaven. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
+Ce jeune homme en robe violette s'appelait Yun Wufeng. Il était un membre de la famille Yun de la planète Mer de Nuages. La planète Mer de Nuages était l'une des planètes principales de la partie nord du système stellaire Luotian. Son talent était trop médiocre pour cultiver, il était donc considéré comme un membre externe de la famille. Il était venu ici avec la caravane de la famille Yun, mais à cause de Qing Yi, il n'était pas reparti avec elle et était resté sur place. Pour les familles de culture ordinaires, avant que le niveau d'un individu n'atteigne le stade de la Transformation de l'Âme, il est impossible de quitter sa planète. Cependant, pour une grande lignée comme la famille Yun, il existait des moyens d'extraire les membres dont la culture était inférieure au stade de la Transformation de l'Âme.
 
 En raison de son talent défaillant, il n'était pas choyé par la famille Yun. Pourtant, ici sur la planète Ran Yun, sa simple identité suffisait à ce que toutes les familles de culture lui témoignent un respect extrême.
 
 Après tout, la famille Yun était la première famille de la planète Mer de Nuages, surpassant même la puissance de la famille Huan.
 
-Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune culture, tant qu'il se trouvait dans la partie nord du système stellaire Allheaven, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
+Yun Wufeng eut un ricanement intérieur de mépris. Bien qu'il n'ait aucune culture, tant qu'il se trouvait dans la partie nord du système stellaire Luotian, personne n'oserait le provoquer, car cela reviendrait à se faire un ennemi de la famille Yun.
 
 Arrivés dans la partie nord de la ville de Vast Water, Sun Qiming et sa suite s'arrêtèrent à cent pieds du manoir Wang.
 
@@ -70,7 +70,7 @@ Sun Qiming fixa le vieillard et hocha la tête.
 
 Même le jeune homme en robe violette sembla comprendre quelque chose. Il réfléchit un instant, puis son expression devint extrêmement laide. Il se souvenait clairement que lorsqu'il avait informé l'Ancien responsable de la caravane de son intention de rester, celui-ci l'avait prévenu qu'il ne devait jamais provoquer une seule personne sur la planète Ran Yun. Cette personne était Xu Mu, celui qui avait balayé la famille Huan et fait en sorte que les familles Qian et Xu n'osent plus intervenir!
 
-Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Allheaven au cours des trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en avaient encore le vertige.
+Le nom de « Xu Mu » s'était propagé dans toute la région nord du système stellaire Luotian au cours des trente dernières années. Après tout, la bataille contre la famille Huan avait été si terrifiante que d'innombrables cultivateurs en avaient encore le vertige.
 
 Accablé par un sentiment de malaise, Yun Wufeng retourna dans sa chambre à la demeure de la famille Sun. Qing Yi était assise là, le visage pâle. Sa culture étant scellée, elle n'était plus qu'une mortelle. Après avoir été chassée de la famille Sun, elle avait été capturée et emmenée ici.
 

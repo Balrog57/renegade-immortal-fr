@@ -38,7 +38,7 @@ La silhouette de Wang Lin s'effaça alors qu'elle fusionnait avec ces mots. Pour
 
 Wang Lin traversa les étoiles. Un puissant sentiment de regret pesait sur lui. Bien que le voyage fût court, l'humeur persistait en lui.
 
-La zone située entre les régions occidentale et septentrionale était devenue une zone tampon pour les cultivateurs d'Allheaven. Une planète de culture se trouvait à proximité du champ de bataille. Cette planète était restée relativement intacte et, bien qu'il n'y eût plus beaucoup d'énergie spirituelle, Lie Yunzi s'en moquait peu.
+La zone située entre les régions occidentale et septentrionale était devenue une zone tampon pour les cultivateurs de Luotian. Une planète de culture se trouvait à proximité du champ de bataille. Cette planète était restée relativement intacte et, bien qu'il n'y eût plus beaucoup d'énergie spirituelle, Lie Yunzi s'en moquait peu.
 
 Lie Yunzi était assis au sommet d'une montagne sur la planète. À ses côtés se tenait un jeune homme à l'expression sombre. Bien qu'assis là, il regardait au loin comme s'il attendait quelque chose.
 
@@ -46,7 +46,7 @@ Si Wang Lin avait été présent, il aurait reconnu ce jeune homme comme étant 
 
 Treize sphères de sang flottaient autour de Lie Yunzi. Ces treize sphères étaient les restes des Lou Fu.
 
-Il n'y avait que peu de cultivateurs d'Allheaven ici, seulement quelques individus sous la direction de Lie Yunzi. Il était présent précisément parce que ces treize Lou Fu empêcheraient l'Alliance de lancer une nouvelle attaque!
+Il n'y avait que peu de cultivateurs de Luotian ici, seulement quelques individus sous la direction de Lie Yunzi. Il était présent précisément parce que ces treize Lou Fu empêcheraient l'Alliance de lancer une nouvelle attaque!
 
 Son sens divin était projeté à travers les treize Lou Fu, ce qui lui permettait de couvrir une zone bien plus vaste qu'à la normale. Par conséquent, rien dans le secteur ne pouvait échapper à son sens divin.
 
@@ -56,7 +56,7 @@ Lie Yunzi, assis au sommet de la montagne, ouvrit lentement les yeux. À l'insta
 
 Toutes fixaient une seule direction, créant une pression colossale. Cette force formait un sort capable d'effondrer les étoiles.
 
-Lie Yunzi esquissa un léger sourire et dit lentement: « Tu es venu. » Grâce à sa culture, il pouvait naturellement voir que Wang Lin avait subi des changements, mais il ne le mentionna pas et n'interrogea pas le jeune homme. Après tout, il était inférieur au Maître Flamespark et ne pouvait donc pas percer totalement ses secrets.
+Lie Yunzi esquissa un léger sourire et dit lentement: « Tu es venu. » Grâce à sa culture, il pouvait naturellement voir que Wang Lin avait subi des changements, mais il ne le mentionna pas et n'interrogea pas le jeune homme. Après tout, il était inférieur au Maître Yan Leizi et ne pouvait donc pas percer totalement ses secrets.
 
 Une lueur de froideur passa dans les yeux de Xu Ting. Il laissa échapper un grognement méprisant et ne cacha pas son intention meurtrière en fixant Wang Lin.
 

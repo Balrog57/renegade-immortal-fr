@@ -86,7 +86,7 @@ Après neuf pas, il revit ses parents; après neuf autres pas, il vit Mu Bingmei
 
 Wang Lin vit Situ Nan, Qing Shui, Dun Tian, le vieil Oiseau Vermillon et tant d'autres qui l'avaient aidé. Il les regarda les yeux grands ouverts et continua d'avancer.
 
-Big Head, Papillon Rouge, Qing Shuang, Zhou Ru, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
+Da Tou, Papillon Rouge, Qing Shuang, Zhou Ru, Qing Lin... et bien d'autres encore. Wang Lin semblait revivre toute son existence à mesure que ces visages apparaissaient.
 
 Tout au long de ce chemin, Wang Lin ne chercha pas à contrôler ses émotions. Il pleura, sourit, ressentit la douleur et la tristesse... Il continua ainsi pendant longtemps. Il ne sut quand il franchit le troisième pont, mais lorsqu'il atteignit son extrémité, tout disparut. Il resta là un instant et soupira. Il regarda longuement en arrière avant de quitter le troisième pont.
 

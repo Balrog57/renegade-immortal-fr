@@ -100,7 +100,7 @@ Il esquissa un sourire en regardant l'homme en armure et secoua la tête: « Un 
 
 L'Omniscient, Ling Tianhou, Master Void, Situ Nan et la belle femme d'âge moyen apparurent l'un après l'autre derrière Bei Lou!
 
-Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Big Head sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Sable Marqué d'Étoiles.
+Le vieil homme sur la gourde, l'homme en noir marqué du dragon caché, les trois frères Chen et Da Tou sortirent également de la bouteille. Suivirent ensuite la femme enveloppée d'énergie démoniaque et l'Ancien Sun, qui portait le Sable Marqué d'Étoiles.
 
 Tous ceux qui étaient entrés dans la grotte céleste, à l'exception de Wang Lin et du Couple de Culture du Nuage Céleste, étaient apparus!
 

@@ -102,7 +102,7 @@ Si les cieux entravaient sa marche, il briserait les cieux. Si la terre barrait 
 
 D'un seul pas, Wang Lin atteignit le sommet de sa propre statue. Il se tint là, affrontant le vent et le rougeoiement du couchant, contemplant le monde.
 
-« Compagnons cultivateurs de la planète Suzaku! Êtes-vous prêts à me suivre vers Allheaven pour combattre les cultivateurs du Royaume Extérieur? »
+« Compagnons cultivateurs de la planète Suzaku! Êtes-vous prêts à me suivre vers Luotian pour combattre les cultivateurs du Royaume Extérieur? »
 
 La voix puissante de Wang Lin se mua en une onde monstrueuse qui résonna sur toute la planète Suzaku, et les cultivateurs qui attendaient son signal ouvrirent tous les yeux. Leurs regards brillants reflétaient la même résolution.
 

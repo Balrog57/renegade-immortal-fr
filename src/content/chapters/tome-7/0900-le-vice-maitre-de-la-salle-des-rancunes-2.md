@@ -92,12 +92,12 @@ Sur cette planète, une statue imposante du Vermillon perçait les cieux. Cette 
 
 Soudain, la silhouette du jeune homme apparut à des milliers de pieds de là, comme s'il ne pouvait supporter la température. Dès son apparition, il se mit à transpirer abondamment.
 
-« Rapport! L'armée d'Allheaven a occupé 60 % de la région occidentale. Onze équipes arrivent de onze directions différentes. Leurs chefs sont les 108 Célestes nouvellement nommés! Celui qui mène est le Vice-Céleste du Tonnerre, Xu Ting! »
+« Rapport! L'armée de Luotian a occupé 60 % de la région occidentale. Onze équipes arrivent de onze directions différentes. Leurs chefs sont les 108 Célestes nouvellement nommés! Celui qui mène est le Vice-Céleste du Tonnerre, Xu Ting! »
 
 « Y a-t-il une trace de Xu Mu? » Après un moment de silence, l'un des vieillards au sommet de la statue prit la parole. Bien que sa voix fût douce, la température grimpa soudainement, comme si les lois de la nature en étaient modifiées.
 
-Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pas s'effondrer et répondit: « L'emplacement du Céleste du Tonnerre d'Allheaven, Xu Mu, est toujours inconnu. Nous le recherchons activement! »
+Le jeune homme recula précipitamment de plusieurs centaines de pieds pour ne pas s'effondrer et répondit: « L'emplacement du Céleste du Tonnerre de Luotian, Xu Mu, est toujours inconnu. Nous le recherchons activement! »
 
-Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs d'Allheaven sont redoutables. »
+Un autre vieil homme sourit. « En moins de deux mois, ils n'ont réussi à prendre que 60 %. Les cultivateurs de Luotian sont redoutables. »
 
-Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance de Culture va se dérouler. Il devrait donner une leçon profonde aux cultivateurs d'Allheaven. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »
+Le dernier vieil homme dit calmement: « Voyons comment le plan de l'Alliance de Culture va se dérouler. Il devrait donner une leçon profonde aux cultivateurs de Luotian. Malheureusement, l'Empereur Sacré n'est pas présent, sinon ma Planète du Saint Vermillon pourrait également en tirer de grands bénéfices. »

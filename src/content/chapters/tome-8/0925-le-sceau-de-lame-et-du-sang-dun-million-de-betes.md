@@ -58,7 +58,7 @@ Sous cette odeur de sang écrasante, la poudre noire se mit à bouger mystérieu
 
 La poudre noire se mua en une sphère gigantesque qui emprisonna le serpent à l'intérieur. Seuls ses rugissements étouffés continuaient de résonner parmi les étoiles.
 
-À ce moment précis, les dizaines de milliers de cultivateurs de l'Alliance qui avaient sauté des tours avant leur effondrement chargèrent vers les cultivateurs d'Allheaven!
+À ce moment précis, les dizaines de milliers de cultivateurs de l'Alliance qui avaient sauté des tours avant leur effondrement chargèrent vers les cultivateurs de Luotian!
 
 Cette scène stupéfia ces derniers. Lie Yunzi et l'ancêtre de la famille Shengong se regardèrent, puis sautèrent immédiatement du bois géant. La main droite de Lie Yunzi s'élança dans le vide pour rassembler l'énergie d'origine du monde, qu'il condensa en près de cent petits fanions!
 
@@ -68,7 +68,7 @@ Lie Yunzi portait une mission d'une importance capitale!
 
 Il saisit une partie des fanions et les lança sur le côté en criant: « 72 Célestes Terrestres, rassemblez vos équipes et exterminez tous les cultivateurs de l'Alliance! »
 
-« Ordre reçu! » Des dizaines de cultivateurs d'Allheaven s'envolèrent aussitôt. Ils faisaient partie des 108 Célestes, bien que tous ne fussent pas présents ici. Ils saisirent leurs fanions et menèrent leurs troupes dans une bataille chaotique contre les cultivateurs de l'Alliance descendus des tours.
+« Ordre reçu! » Des dizaines de cultivateurs de Luotian s'envolèrent aussitôt. Ils faisaient partie des 108 Célestes, bien que tous ne fussent pas présents ici. Ils saisirent leurs fanions et menèrent leurs troupes dans une bataille chaotique contre les cultivateurs de l'Alliance descendus des tours.
 
 L'instant d'après, des grondements et le fracas incessant des trésors magiques résonnèrent parmi les étoiles. Leurs éclats de lumière incessants dégageaient une intention de massacre monstrueuse.
 
@@ -86,17 +86,17 @@ Cette silhouette était un homme fait de sang pur. Dès son apparition, il pouss
 
 L'être de sang se dirigea vers l'affrontement entre le Dieu du Sang et le Saint Démon Noir. Dès son arrivée, le Saint Démon Noir fut contraint dans une situation désastreuse et dut battre en retraite.
 
-L'âme originelle de Lie Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Flamespark ou même du Dieu du Sang, son rôle dans cette guerre entre Allheaven et l'Alliance était crucial!
+L'âme originelle de Lie Yunzi trembla, et il dut s'asseoir immédiatement pour se rétablir. Bien que sa culture ne fût pas aussi puissante que celle du Maître Yan Leizi ou même du Dieu du Sang, son rôle dans cette guerre entre Luotian et l'Alliance était crucial!
 
 Les 18 Lou Fu n'appartenaient pas à la famille Zhan, mais seule la famille Zhan possédait le sort pour les contrôler. Ce secret ne pouvait être transmis à des étrangers; seuls quelques membres de la lignée Zhan pouvaient l'utiliser!
 
 Ce sort était issu d'un fragment de compréhension et d'héritage provenant des Parchemins de Bataille.
 
-Bien que cela paraisse complexe, c'était l'un des grands secrets du Système Stellaire Allheaven.
+Bien que cela paraisse complexe, c'était l'un des grands secrets du Système Stellaire Luotian.
 
 « Ne laissez personne de la famille Zhan toucher aux sphères de sang Lou Fu! »
 
-Cependant, ce secret avait été brisé lors des préparatifs de la guerre contre l'Alliance. Le Maître Flamespark, l'ancêtre de la famille Xiang, l'homme d'âge mûr de la famille Gongsun et plusieurs vieux monstres avaient tous décidé de laisser Lie Yunzi contrôler les 18 Lou Fu!
+Cependant, ce secret avait été brisé lors des préparatifs de la guerre contre l'Alliance. Le Maître Yan Leizi, l'ancêtre de la famille Xiang, l'homme d'âge mûr de la famille Gongsun et plusieurs vieux monstres avaient tous décidé de laisser Lie Yunzi contrôler les 18 Lou Fu!
 
 Dès que son âme originelle fut quelque peu rétablie, Lie Yunzi pointa un autre Parchemin de Bataille!
 

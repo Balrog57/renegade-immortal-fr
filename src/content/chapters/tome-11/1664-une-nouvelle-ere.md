@@ -106,11 +106,11 @@ Dès que le jade se brisa, la Formation de Scellement du Royaume s'effondra soud
 
 À cet instant, le Vide Brillant ne fut plus ceint par la Formation de Scellement du Royaume. La Rivière Invoquée était désormais totalement exposée au Royaume Extérieur.
 
-En cet instant, Allheaven et la Mer Nuageuse étaient enfin libres!
+En cet instant, Luotian et la Mer Nuageuse étaient enfin libres!
 
 Après des dizaines de milliers d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
 
-Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler la Flamme Joss s'était évanouie. À Allheaven, tous les cultivateurs du troisième niveau affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
+Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler la Flamme Joss s'était évanouie. À Luotian, tous les cultivateurs du troisième niveau affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
 
 Wang Lin avait détruit la Formation de Scellement du Royaume!
 

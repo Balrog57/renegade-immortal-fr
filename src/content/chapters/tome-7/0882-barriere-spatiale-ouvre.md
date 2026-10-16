@@ -8,15 +8,15 @@ slug: barriere-spatiale-ouvre
 ---
 Chapitre 882 - Barrière spatiale, ouvre!
 
-Maître Flamespark flottait dans les airs, ses mains formant un sceau tandis que des éclats de lumière noire jaillissaient de son front. À l'apparition de ces lumières noires, elles se transformèrent rapidement en fragments d'un continent.
+Maître Yan Leizi flottait dans les airs, ses mains formant un sceau tandis que des éclats de lumière noire jaillissaient de son front. À l'apparition de ces lumières noires, elles se transformèrent rapidement en fragments d'un continent.
 
 Des dizaines de fragments célestes couvrirent instantanément le ciel, dégageant une pression inimaginable. Cela poussa chaque cultivateur du Temple Céleste du Tonnerre à activer sa culture pour résister à cette force.
 
-À première vue, on aurait dit que le ciel était scindé en deux. Des rayons de lumière transperçaient l'interstice formé par l'intersection des fragments. Lorsque tous les cultivateurs du Système Stellaire d'Allheaven virent cela, leurs esprits tremblèrent et leur sang se mit à bouillir.
+À première vue, on aurait dit que le ciel était scindé en deux. Des rayons de lumière transperçaient l'interstice formé par l'intersection des fragments. Lorsque tous les cultivateurs du Système Stellaire de Luotian virent cela, leurs esprits tremblèrent et leur sang se mit à bouillir.
 
-Les yeux de Maître Flamespark révélaient une haine qu'il avait dissimulée pendant des dizaines de milliers d'années. Il prit une profonde inspiration et ouvrit les bras. Tandis que les fragments tournaient, des grondements retentirent dans le ciel. Ce bruit était si intense qu'il fit changer les couleurs du monde.
+Les yeux de Maître Yan Leizi révélaient une haine qu'il avait dissimulée pendant des dizaines de milliers d'années. Il prit une profonde inspiration et ouvrit les bras. Tandis que les fragments tournaient, des grondements retentirent dans le ciel. Ce bruit était si intense qu'il fit changer les couleurs du monde.
 
-D'innombrables fragments recouvraient la voûte céleste. À cet instant, sous l'impulsion des mouvements de Maître Flamespark, ils commencèrent à pivoter lentement. Leur rotation fut d'abord lente, puis s'accéléra progressivement. Un sifflement commença soudainement à se propager de plus en plus loin, pénétrant le Temple Céleste du Tonnerre jusqu'à ce que les régions environnantes puissent tous l'entendre.
+D'innombrables fragments recouvraient la voûte céleste. À cet instant, sous l'impulsion des mouvements de Maître Yan Leizi, ils commencèrent à pivoter lentement. Leur rotation fut d'abord lente, puis s'accéléra progressivement. Un sifflement commença soudainement à se propager de plus en plus loin, pénétrant le Temple Céleste du Tonnerre jusqu'à ce que les régions environnantes puissent tous l'entendre.
 
 Alors que ces fragments tournaient autour d'un point central, un vortex apparut dans le ciel. Ce vortex était d'une puissance colossale et générait une tempête. Tandis que les grondements et les sifflements persistaient, la scène devint véritablement apocalyptique!
 
@@ -28,19 +28,19 @@ Au fil du temps, cette puissance s'intensifia et continua de s'accumuler dans le
 
 Ce son ressemblait aux battements de cœur des cultivateurs. Chaque fois qu'il retentissait, il ébranlait l'esprit des présents, comme si un marteau géant frappait leurs poitrines.
 
-Ils n'étaient pas les seuls. Presque tous les cultivateurs du Système Stellaire d'Allheaven pouvaient vaguement percevoir ce son!
+Ils n'étaient pas les seuls. Presque tous les cultivateurs du Système Stellaire de Luotian pouvaient vaguement percevoir ce son!
 
 Chaque fois que ce bruit résonnait, d'innombrables ondulations apparaissaient dans le ciel et se propageaient à l'infini. À mesure que le vortex grandissait, les sons qu'il émettait devenaient d'une intensité inouïe.
 
 Cela pouvait être comparé au tonnerre. Ce fracas puissant était le résultat de cette force extrême frappant la barrière spatiale!
 
-Les cheveux blancs de Maître Flamespark flottaient au vent alors qu'il hurlait: « Compagnons cultivateurs, aidez-moi! »
+Les cheveux blancs de Maître Yan Leizi flottaient au vent alors qu'il hurlait: « Compagnons cultivateurs, aidez-moi! »
 
 Les yeux des vieux monstres installés sur les tapis de prière brillèrent intensément, y compris ceux du Dieu Sanguin. Ils s'envolèrent tous dans les airs et s'assirent avant de déployer leurs divers sorts. Ces sortilèges furent projetés dans le vortex, multipliant sa puissance par plusieurs fois.
 
 Les bruits d'éclatement devinrent encore plus violents et la force de rotation atteignit son paroxysme. Cette force agissait comme une perceuse acérée qui s'acharnait sur le vide, tentant désespérément de le percer!
 
-Maître Flamespark forma un sceau de ses mains et cria: « Pouvoir du Royaume du Tonnerre! » Des bêtes de tonnerre surgirent des dizaines de fragments. Elles poussèrent des rugissements avant de se transformer en éclairs de foudre et de charger vers le centre du vortex.
+Maître Yan Leizi forma un sceau de ses mains et cria: « Pouvoir du Royaume du Tonnerre! » Des bêtes de tonnerre surgirent des dizaines de fragments. Elles poussèrent des rugissements avant de se transformer en éclairs de foudre et de charger vers le centre du vortex.
 
 Boum!
 
@@ -54,11 +54,11 @@ Le bruit d'un miroir se brisant résonna une nouvelle fois. Le Dieu Sanguin, env
 
 L'ancêtre de la famille Xian et l'homme nommé Gongsun firent un pas en avant. Puis, divers vieux monstres lancèrent leurs attaques. Pendant un long moment, le vortex commença à s'étendre davantage, sous une pluie ininterrompue d'explosions!
 
-Finalement, Maître Flamespark mordit le bout de sa langue et cracha son essence de sang. Le sang se mua en une brume écarlate qui fusionna avec le monde.
+Finalement, Maître Yan Leizi mordit le bout de sa langue et cracha son essence de sang. Le sang se mua en une brume écarlate qui fusionna avec le monde.
 
-Les yeux de Maître Flamespark devinrent rouges alors qu'il hurlait: « Terre du Royaume Céleste, ouvre les cieux et fend la terre! »
+Les yeux de Maître Yan Leizi devinrent rouges alors qu'il hurlait: « Terre du Royaume Céleste, ouvre les cieux et fend la terre! »
 
-Diverses silhouettes illusoires apparurent au-dessus des dizaines de fragments qui composaient le vortex géant. Ces figures étaient les âmes que Maître Flamespark avait scellées à l'intérieur des fragments!
+Diverses silhouettes illusoires apparurent au-dessus des dizaines de fragments qui composaient le vortex géant. Ces figures étaient les âmes que Maître Yan Leizi avait scellées à l'intérieur des fragments!
 
 Une fois apparues, elles pénétrèrent immédiatement dans le vortex pour s'y fondre. À cet instant, une puissance inimaginable se manifesta. Le plus terrifiant était qu'une trace du Royaume Ji résidait au sein de cette force!
 
@@ -68,13 +68,13 @@ L'éclair rouge imprégné du pouvoir du Royaume Ji s'enfonça dans les profonde
 
 Boum!
 
-Le Temple Céleste du Tonnerre tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire d'Allheaven furent témoins d'une scène que les pierres de transmission sonore ne leur feraient jamais oublier!
+Le Temple Céleste du Tonnerre tout entier trembla, le ciel changea de couleur et les nuages furent balayés. Tous les cultivateurs du Système Stellaire de Luotian furent témoins d'une scène que les pierres de transmission sonore ne leur feraient jamais oublier!
 
 Le vortex dans le ciel trembla soudainement et une petite fissure fut déchirée de force. Dès son apparition, la brèche se propagea rapidement pour atteindre, en un instant, plus de cent pieds de large. C'était une cicatrice qui faisait frémir les cœurs.
 
 Des tourbillons noirs s'agitaient sur les bords de la faille.
 
-Il avait fallu tant d'efforts pour ouvrir une brèche dans la barrière spatiale vers le Système Stellaire de l'Alliance; comment Maître Flamespark aurait-il pu la laisser se refermer? Il avait trop attendu ce jour. Ses yeux étaient injectés de sang et son visage affichait une expression féroce. Sa main droite forma un sceau, il pointa le ciel et hurla: « Contenez les Cieux! »
+Il avait fallu tant d'efforts pour ouvrir une brèche dans la barrière spatiale vers le Système Stellaire de l'Alliance; comment Maître Yan Leizi aurait-il pu la laisser se refermer? Il avait trop attendu ce jour. Ses yeux étaient injectés de sang et son visage affichait une expression féroce. Sa main droite forma un sceau, il pointa le ciel et hurla: « Contenez les Cieux! »
 
 À l'intérieur du vortex, l'un des fragments se rétracta soudainement pour se refermer instantanément sur la fissure. Puis, le fragment reprit immédiatement de l'ampleur. Un grondement retentit tandis que la brèche était maintenue ouverte par la pression du fragment.
 
@@ -84,11 +84,11 @@ Pourtiment, son effondrement réussit à retarder suffisamment la fermeture de l
 
 Alors que davantage de fragments s'y engouffraient, la fissure fut impitoyablement déchirée et s'élargit considérablement. Elle gagna mille pieds!
 
-À cet instant, les cultivateurs du Temple Céleste du Tonnerre étaient transportés par l'enthousiasme. Non seulement eux, mais tous les cultivateurs du Système Stellaire d'Allheaven virent la scène, et une intention meurtrière envahit l'ensemble du système.
+À cet instant, les cultivateurs du Temple Céleste du Tonnerre étaient transportés par l'enthousiasme. Non seulement eux, mais tous les cultivateurs du Système Stellaire de Luotian virent la scène, et une intention meurtrière envahit l'ensemble du système.
 
 À l'extérieur du Temple Céleste du Tonnerre, les armées des quatre côtés levèrent les yeux pour fixer la brèche qui surplombait le monde.
 
-Une aura n'appartenant pas au Système Stellaire d'Allheaven, et à laquelle Wang Lin était très familier, émanait de la faille. C'était l'aura du Système Stellaire de l'Alliance!
+Une aura n'appartenant pas au Système Stellaire de Luotian, et à laquelle Wang Lin était très familier, émanait de la faille. C'était l'aura du Système Stellaire de l'Alliance!
 
 Des étoiles brillantes que Wang Lin connaissait bien apparurent dans la brèche.
 

@@ -84,7 +84,7 @@ Surtout, ce dernier avait parlé de soumission. Cette information fit chanceler 
 
 Si tout cela ne faisait que l'interroger, la réponse de Shengong Hu le glaça d'effroi; c'était assez pour faire dresser les poils sur sa peau.
 
-« Seigneur! » Ce mot n'était pas prononcé à la légère dans le Système Stellaire d'Allheaven. C'était particulièrement vrai pour des cultivateurs du deuxième stade comme eux.
+« Seigneur! » Ce mot n'était pas prononcé à la légère dans le Système Stellaire de Luotian. C'était particulièrement vrai pour des cultivateurs du deuxième stade comme eux.
 
 Ce n'est qu'après s'être voué à une existence puissante que l'on appelait autrui « Seigneur »!
 

@@ -18,17 +18,17 @@ L'apparition d'un nouvel Empereur Divin suffisait à provoquer une immense fluct
 
 À cet instant précis, alors que Wang Lin achevait sa première transformation, l'énergie originelle de tout le Système Stellaire de l'Alliance commença à onduler, prenant pour centre la Secte du Vermillion Bird.
 
-Allheaven occupait les régions occidentales et septentrionales du Système Stellaire de l'Alliance. Les messagers du Temple Céleste du Tonnerre étaient partout. Après avoir annexé avec succès ces deux régions, le Temple Céleste du Tonnerre y exerçait désormais une domination suprême.
+Luotian occupait les régions occidentales et septentrionales du Système Stellaire de l'Alliance. Les messagers du Temple Céleste du Tonnerre étaient partout. Après avoir annexé avec succès ces deux régions, le Temple Céleste du Tonnerre y exerçait désormais une domination suprême.
 
-Des palais noirs, semblables à de petites collines, flottaient parmi les étoiles en avançant lentement. Une multitude de cultivateurs d'Allheaven entouraient chaque palais.
+Des palais noirs, semblables à de petites collines, flottaient parmi les étoiles en avançant lentement. Une multitude de cultivateurs de Luotian entouraient chaque palais.
 
 Au moins cent palais formaient ainsi une armée imposante, progressant vers les diverses forces de l'Alliance situées dans la région centrale.
 
-Malgré leur nombre, aucun bruit ne se faisait entendre, si ce n'est le sifflement des épées volantes. Après des années de combat, les cultivateurs d'Allheaven avaient changé; leur immaturité avait laissé place à une aura de meurtre féroce.
+Malgré leur nombre, aucun bruit ne se faisait entendre, si ce n'est le sifflement des épées volantes. Après des années de combat, les cultivateurs de Luotian avaient changé; leur immaturité avait laissé place à une aura de meurtre féroce.
 
 À cet instant, les fluctuations de l'énergie originelle se propagèrent et passèrent près d'eux. Cependant, compte tenu de leur niveau de culture, il leur était très difficile de percevoir ces subtils changements énergétiques.
 
-Pourtant, à l'intérieur d'un palais situé à l'arrière, dont la taille avoisinait dix fois celle des autres, Maître Flamespark ouvrit soudainement les yeux alors qu'il était en méditation assidue.
+Pourtant, à l'intérieur d'un palais situé à l'arrière, dont la taille avoisinait dix fois celle des autres, Maître Yan Leizi ouvrit soudainement les yeux alors qu'il était en méditation assidue.
 
 Lorsqu'il ouvrit les yeux, les dix autres anciens présents dans le palais firent de même, leurs regards brillant d'une lueur vive.
 
@@ -36,15 +36,15 @@ L'un des anciens déclara d'une voix lente: « Cette fluctuation de l'énergie o
 
 « Se pourrait-il qu'un trésor puissant soit apparu dans la région orientale de l'Alliance? »
 
-Maître Flamespark réfléchit et secoua la tête. « Cette fluctuation n'est pas la naissance d'un trésor puissant... La région orientale appartient aux Quatre Sectes Divins... Serait-ce possible... qu'un nouvel Empereur Divin soit apparu? » Les yeux de Maître Flamespark s'illuminèrent. Il n'en était pas tout à fait certain; après tout, il avait quitté l'Alliance depuis longtemps.
+Maître Yan Leizi réfléchit et secoua la tête. « Cette fluctuation n'est pas la naissance d'un trésor puissant... La région orientale appartient aux Quatre Sectes Divins... Serait-ce possible... qu'un nouvel Empereur Divin soit apparu? » Les yeux de Maître Yan Leizi s'illuminèrent. Il n'en était pas tout à fait certain; après tout, il avait quitté l'Alliance depuis longtemps.
 
-« Les Quatre Sectes Divins? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de mon armée d'Allheaven! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
+« Les Quatre Sectes Divins? Si l'Alliance de Culture n'est pas de taille face à nous, une si petite secte s'effondrerait simplement sous la pression de mon armée de Luotian! » Un vieil homme aux cheveux roux, à l'intérieur du palais, afficha un regard empreint de mépris et de fierté.
 
-Maître Flamespark regarda le vieillard roux et dit: « Les Quatre Sectes Divins ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel! »
+Maître Yan Leizi regarda le vieillard roux et dit: « Les Quatre Sectes Divins ne sont certainement pas ce que tu imagines. Cette fluctuation de l'énergie originelle est probablement la naissance d'un nouvel Empereur Divin. Je me demande simplement lequel! »
 
 Il ne savait pas pourquoi un sentiment de malaise accompagnait cette fluctuation de l'énergie originelle. Ce sentiment était mystérieux, mais d'une clarté absolue.
 
-Une autre personne ressentit cette fluctuation: un vieil homme vêtu de noir. Il venait tout juste de sortir du tunnel reliant Allheaven à la région occidentale de l'Alliance.
+Une autre personne ressentit cette fluctuation: un vieil homme vêtu de noir. Il venait tout juste de sortir du tunnel reliant Luotian à la région occidentale de l'Alliance.
 
 Il leva immédiatement la tête et scruta l'horizon. Son regard semblait capable de percer les confins du système stellaire, et ses yeux s'illuminèrent.
 

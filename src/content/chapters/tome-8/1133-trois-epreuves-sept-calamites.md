@@ -10,27 +10,27 @@ La voix de Tuo Sen résonna à travers le vide, suivie du rugissement du dragon 
 
 Cependant, cela témoignait de l'arrogance de Tuo Sen; autrement, il n'aurait pas ordonné au dragon de sang d'ouvrir le vortex menant à la mer de sang!
 
-L'homme âgé vêtu de noir n'attaqua pas; il se contenta de contempler silencieusement le dragon de sang. Nul ne savait ce qu'il pensait. Les yeux de Maître Flamespark s'illuminèrent, puis il fit un pas en avant et chargea la créature.
+L'homme âgé vêtu de noir n'attaqua pas; il se contenta de contempler silencieusement le dragon de sang. Nul ne savait ce qu'il pensait. Les yeux de Maître Yan Leizi s'illuminèrent, puis il fit un pas en avant et chargea la créature.
 
 Au loin, les huit rois de la Secte des Cadavres se lancèrent vers le dragon de sang tels huit glaives!
 
-Le dragon de sang restait vigilant. La formation étrange que les huit avaient créée lui avait fait subir d'importants dommages. À cet instant, ses yeux s'animèrent et il chargea les huit rois de la Secte des Cadavres, ignorant totalement Maître Flamespark.
+Le dragon de sang restait vigilant. La formation étrange que les huit avaient créée lui avait fait subir d'importants dommages. À cet instant, ses yeux s'animèrent et il chargea les huit rois de la Secte des Cadavres, ignorant totalement Maître Yan Leizi.
 
 Sa vitesse était telle qu'il laissait derrière lui des images rémanentes.
 
 Les huit membres de la Secte des Cadavres se dispersèrent rapidement pour encercler le dragon de sang. Tous formèrent des sceaux et bombardèrent la créature de sorts!
 
-Alors que Maître Flamespark s'approchait, il agita la main et une mer de flammes apparut. Les flammes se muèrent en un dragon de feu qui entama le combat contre le dragon de sang. Simultanément, la main gauche de Maître Flamespark s'étira pour extraire une cloche de son espace de stockage.
+Alors que Maître Yan Leizi s'approchait, il agita la main et une mer de flammes apparut. Les flammes se muèrent en un dragon de feu qui entama le combat contre le dragon de sang. Simultanément, la main gauche de Maître Yan Leizi s'étira pour extraire une cloche de son espace de stockage.
 
 Cette cloche, faite d'os et enveloppée d'une couche métallique, émit des sons de résonance dès qu'elle apparut. Bien que le tintement ne fût pas cristallin, une onde de choc se projeta immédiatement vers le dragon de sang.
 
 Le regard du dragon de sang devint assoiffé de sang. À l'origine, il n'avait qu'une seule paire de pupilles, mais après avoir invoqué un sort inconnu, celles-ci se divisèrent en deux, puis encore une fois. En un instant, huit paires de pupilles apparurent dans ses yeux.
 
-Un sentiment de crise envahit immédiatement le cœur de Maître Flamespark et des huit rois de la Secte des Cadavres. Cependant, ils étaient des cultivateurs puissants ayant franchi le sommet du stade de la Rupture du Nirvana et survécu à leurs cinq Fléaux Célestes. Forts d'une longue existence et d'une expérience de combat extrêmement riche, dès qu'ils détectèrent ce danger, ils ne cherchèrent pas à esquiver, mais... attaquèrent!
+Un sentiment de crise envahit immédiatement le cœur de Maître Yan Leizi et des huit rois de la Secte des Cadavres. Cependant, ils étaient des cultivateurs puissants ayant franchi le sommet du stade de la Rupture du Nirvana et survécu à leurs cinq Fléaux Célestes. Forts d'une longue existence et d'une expérience de combat extrêmement riche, dès qu'ils détectèrent ce danger, ils ne cherchèrent pas à esquiver, mais... attaquèrent!
 
-Lorsqu'un sort puissant est en cours d'incantation, au moment même où sa puissance atteint son apogée, c'est aussi son instant le plus vulnérable! C'était une leçon que les neuf avaient apprise au fil d'innombrables années. La main droite de Maître Flamespark toucha l'espace entre ses sourcils et quarante-cinq fragments s'envolèrent instantanément. Ces derniers grossirent rapidement pour se transformer en quarante-cinq Fragments du Royaume Céleste du Tonnerre qui recouvrirent le ciel!
+Lorsqu'un sort puissant est en cours d'incantation, au moment même où sa puissance atteint son apogée, c'est aussi son instant le plus vulnérable! C'était une leçon que les neuf avaient apprise au fil d'innombrables années. La main droite de Maître Yan Leizi toucha l'espace entre ses sourcils et quarante-cinq fragments s'envolèrent instantanément. Ces derniers grossirent rapidement pour se transformer en quarante-cinq Fragments du Royaume Céleste du Tonnerre qui recouvrirent le ciel!
 
-« Pouvoir du Royaume Céleste du Tonnerre! » D'un geste de la main, Maître Flamespark déclencha un grondement assourdissant tandis que les quarante-cinq fragments s'abattaient sur le dragon de sang!
+« Pouvoir du Royaume Céleste du Tonnerre! » D'un geste de la main, Maître Yan Leizi déclencha un grondement assourdissant tandis que les quarante-cinq fragments s'abattaient sur le dragon de sang!
 
 La pression de la descente des fragments semblait égaler la puissance des cieux. Un fracas tonitruant retentit et d'innombrables pans du corps du dragon de sang s'effondrèrent.
 
@@ -44,9 +44,9 @@ Les pupilles du dragon de sang se rétractèrent, puis l'une des huit paires com
 
 L'obscurité ne dura qu'un instant avant de se dissiper.
 
-Cependant, après ce regain, quatre des quarante-cinq fragments de Maître Flamespark furent réduits en poussière et les quarante et un restants furent repoussés.
+Cependant, après ce regain, quatre des quarante-cinq fragments de Maître Yan Leizi furent réduits en poussière et les quarante et un restants furent repoussés.
 
-Les yeux de Maître Flamespark se remplirent de stupeur!
+Les yeux de Maître Yan Leizi se remplirent de stupeur!
 
 La sphère de glace formée par les huit rois de la Secte des Cadavres fut également frappée par une méthode inconnue, provoquant son effondrement. Tous les huit crachèrent du sang, le regard chargé de choc.
 
@@ -56,7 +56,7 @@ L'homme âgé qui méditait leva les yeux et fronça les sourcils, avant de pour
 
 Wang Lin observait la bataille depuis le lointain sans s'approcher. Cette obscurité soudaine lui avait inspiré un puissant sentiment de danger, le rendant d'autant plus réticent à s'avancer. Cependant, en revoyant le dragon de sang une seconde fois, Wang Lin eut une impression de familiarité. Ce sentiment se propagea dans son cœur et ses yeux s'illuminèrent soudainement.
 
-Il percevait naturellement Maître Flamespark et l'homme en noir. En voyant ce dernier, Wang Lin comprit que le dragon de sang ne pourrait pas faire grand-chose.
+Il percevait naturellement Maître Yan Leizi et l'homme en noir. En voyant ce dernier, Wang Lin comprit que le dragon de sang ne pourrait pas faire grand-chose.
 
 Pourtant, l'homme âgé fronçait les sourcils comme absorbé par ses pensées; il ne daignait même pas regarder le dragon.
 
@@ -70,7 +70,7 @@ Cette fois, l'obscurité dura deux respirations!
 
 Après ces deux respirations, les yeux de Wang Lin se remplirent de confusion et il recula de quelques pas. Des craquements sinistres retentirent alors que sept fissures apparaissaient sur son corps. Son visage devint sombre, révélant par endroits la teinte de la pierre.
 
-Maître Flamespark, le plus proche du dragon, pâlit et battit en retraite. Les fragments du Royaume Céleste tourbillonnaient devant lui avant que plusieurs d'entre eux ne se brisent.
+Maître Yan Leizi, le plus proche du dragon, pâlit et battit en retraite. Les fragments du Royaume Céleste tourbillonnaient devant lui avant que plusieurs d'entre eux ne se brisent.
 
 Quant aux huit rois de la Secte des Cadavres, deux d'entre eux s'effondrèrent instantanément tandis que les six autres reculaient. L'un d'eux sortit précipitamment deux cercueils supplémentaires de son espace de stockage. Deux silhouettes floues s'y engouffrèrent immédiatement.
 
@@ -82,7 +82,7 @@ Pourtéanmoins, en un instant, la glace se mua en une épée de plus de mille pi
 
 Dès l'apparition de l'épée, une pression écrasante et une sensation de tranchant absolu se firent sentir. Elle chargea le dragon de sang avec une énergie d'épée dévastatrice!
 
-Les yeux de Maître Flamespark s'écarquillèrent; il mordit le bout de son doigt pour tracer rapidement une rune. Il frappa celle-ci, qui s'envola en brillant d'un rouge sanglant. Les fragments restants se dispersèrent pour charger le dragon de sang de toutes les directions, semblant vouloir l'encercler.
+Les yeux de Maître Yan Leizi s'écarquillèrent; il mordit le bout de son doigt pour tracer rapidement une rune. Il frappa celle-ci, qui s'envola en brillant d'un rouge sanglant. Les fragments restants se dispersèrent pour charger le dragon de sang de toutes les directions, semblant vouloir l'encercler.
 
 Le dragon de sang devint sérieux et ses six pupilles restantes brillèrent à nouveau. Cette fois, ce n'était pas une seule paire qui prenait le dessus; les pupilles se dispersèrent pour occuper tout l'œil!
 
@@ -90,7 +90,7 @@ Instantanément, le monde fut plongé dans le noir, et après trois respirations
 
 Wang Lin recula sans hésiter pour esquiver la puissance des ténèbres. Cependant, son regard restait obstinément fixé sur le dragon de sang. Il ressentait l'aura d'un ancien dieu de plus en plus nettement émaner de la créature.
 
-Le visage de Maître Flamespark devint encore plus livide, mais il continua sa progression. Ses mains formaient des sceaux tandis que les douzaines de fragments du Royaume Céleste convergeaient vers le dragon!
+Le visage de Maître Yan Leizi devint encore plus livide, mais il continua sa progression. Ses mains formaient des sceaux tandis que les douzaines de fragments du Royaume Céleste convergeaient vers le dragon!
 
 L'épée formée par les huit rois se trouvait désormais à moins de mille pieds du dragon de sang. Des bruits de craquements émanaient de l'arme, comme si elle subissait une attaque colossale!
 
@@ -102,13 +102,13 @@ Wang Lin recula encore plus vite, mais ses yeux demeuraient graves alors qu'il s
 
 L'épée des huit rois de la Secte des Cadavres semblait avoir ralenti. Après quatre respirations, elle n'avait progressé que de deux cents pieds avant que des craquements ne retentissent et qu'une fissure n'apparaisse sur la lame.
 
-Les veines de Maître Flamespark étaient saillantes, mais les fragments continuaient de converger vers le dragon.
+Les veines de Maître Yan Leizi étaient saillantes, mais les fragments continuaient de converger vers le dragon.
 
 Mais tout cela fut balayé en un instant lorsque l'obscurité engloutit le vide!
 
 Un grondement retentit au sein des ténèbres, suivi du rugissement furieux du dragon de sang. Après cinq respirations, l'obscurité se dissipa et les yeux de Wang Lin brillèrent d'un éclat intense. Il ne recula plus, mais chargea le dragon de sang!
 
-La grande épée formée par les huit rois se brisa, et les huit guerriers crachèrent du sang en battant en retraite. Du sang jaillit de la bouche de Maître Flamespark, qui fut contraint de reculer de trois pas avant de se stabiliser.
+La grande épée formée par les huit rois se brisa, et les huit guerriers crachèrent du sang en battant en retraite. Du sang jaillit de la bouche de Maître Yan Leizi, qui fut contraint de reculer de trois pas avant de se stabiliser.
 
 Une blessure immense, longue de dix mille pieds, s'étirait de la tête du dragon jusqu'à son corps. De loin, cette plaie était terrifiante! Aucun sang n'en coulait; à la place, des cristaux de la taille d'un poing, semblables à de la chair, suintaient de l'entaille.
 

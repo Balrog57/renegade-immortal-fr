@@ -10,7 +10,7 @@ Le Dieu du Sang n'hésita pas à exploser en un vaste nuage de sang pour utilise
 
 À l'extérieur, tous les tentacules du Serpent aux yeux de lune se détachèrent pour se transformer en d'innombrables serpents plus petits. Ce spectacle fit haleter de stupeur tous les vieux monstres environnants.
 
-Les yeux de Maître Flamespark s'illuminèrent et ses mains formèrent des sceaux sans la moindre hésitation. Les innombrables fragments entourèrent immédiatement la zone. Au même instant, Maître Flamespark laissa échapper un rugissement tandis que des ondes de puissance mystérieuse se propageaient.
+Les yeux de Maître Yan Leizi s'illuminèrent et ses mains formèrent des sceaux sans la moindre hésitation. Les innombrables fragments entourèrent immédiatement la zone. Au même instant, Maître Yan Leizi laissa échapper un rugissement tandis que des ondes de puissance mystérieuse se propageaient.
 
 Chaque fragment était imprégné d'une force colossale. Ils encerclèrent tous les serpents aux yeux de lune et tournèrent à une vitesse fulgurante, formant un vortex gigantesque.
 
@@ -34,19 +34,19 @@ Le vieil homme en robe rouge créa d'innombrables formations octogonales, mais t
 
 Du sang s'échappa du coin de la bouche du vieil homme.
 
-Les yeux de Maître Flamespark devinrent injectés de sang. Il poussa un rugissement et, d'un geste de la main formant un sceau, fit s'étendre les fragments du Royaume Céleste. C'était comme si le Royaume Céleste du Tonnerre lui-même était apparu en ces lieux!
+Les yeux de Maître Yan Leizi devinrent injectés de sang. Il poussa un rugissement et, d'un geste de la main formant un sceau, fit s'étendre les fragments du Royaume Céleste. C'était comme si le Royaume Céleste du Tonnerre lui-même était apparu en ces lieux!
 
 À première vue, on aurait dit que les serpents aux yeux de lune étaient encerclés par des fragments du Royaume Céleste! La foudre reliait les fragments entre eux, emprisonnant le Serpent aux yeux de lune à l'intérieur, tandis que les fragments commençaient à se contracter!
 
 À cet instant, le Domaine Nord entier trembla, comme si l'espace lui-même était sur le point de s'effondrer!
 
-« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Flamespark tonna comme le tonnerre. Son bras se tendit et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
+« Compagnons cultivateurs, aidez-moi à sceller cette bête! » La voix de Maître Yan Leizi tonna comme le tonnerre. Son bras se tendit et les veines de son visage saillirent alors qu'il déployait toute sa puissance!
 
-Une trace de "Retour aux Origines" émana du corps de Maître Flamespark. Bien que ce ne fût qu'une étincelle, elle suffit à plonger le Serpent aux yeux de lune dans la panique!
+Une trace de "Retour aux Origines" émana du corps de Maître Yan Leizi. Bien que ce ne fût qu'une étincelle, elle suffit à plonger le Serpent aux yeux de lune dans la panique!
 
 Il se souvint que, dans ses souvenirs les plus lointains, la voix terrifiante qui l'avait averti possédait cette même aura. Sauf que l'aura de cette voix était encore plus puissante!
 
-Le Serpent aux yeux de lune fut saisi par le même sentiment d'effroi en ressentant l'aura de Maître Flamespark. Il se remémora que lorsqu'il percevait cette présence, c'était comme s'il retournait à sa vie passée au sein du corps du Dieu Antique, là où il vivait sans conscience!
+Le Serpent aux yeux de lune fut saisi par le même sentiment d'effroi en ressentant l'aura de Maître Yan Leizi. Il se remémora que lorsqu'il percevait cette présence, c'était comme s'il retournait à sa vie passée au sein du corps du Dieu Antique, là où il vivait sans conscience!
 
 De féroces rugissements s'échappèrent de son corps. Puis, sa masse gigantesque s'agita frénétiquement et une voix étrange sortit de sa gueule. Tous les doigts de Dieu Antique des petits serpents commencèrent à converger vers le corps principal.
 

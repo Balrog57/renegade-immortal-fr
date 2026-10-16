@@ -66,13 +66,13 @@ Ce cri fut assourdissant. Bien qu'il se trouvât au 17e étage du Cimetière des
 
 D'immenses nuages d'orage apparurent soudainement dans le ciel. Saturés d'éclairs, ils descendirent massivement, se dirigeant droit vers le Cimetière des Immortels.
 
-Le tonnerre était omniprésent. En s'accumulant, il remplit le gouffre profond du Clan des Immortels Abandonnés. La fosse agissait comme un entonnoir, aspirant toute la foudre qui s'y précipitait.
+Le tonnerre était omniprésent. En s'accumulant, il remplit le gouffre profond du Clan des Immortels Délaissés. La fosse agissait comme un entonnoir, aspirant toute la foudre qui s'y précipitait.
 
 Les changements ne se limitèrent pas à la planète Suzaku; l'espace environnant fut également bouleversé. De nombreux dragons de tonnerre se formèrent dans le vide et chargèrent vers la planète.
 
 D'innombrables éclairs, provenant d'une zone s'étendant sur des dizaines de milliers de kilomètres autour de la planète Suzaku, convergeaient vers elle. Vu de loin, on aurait cru que la région entière était devenue un enfer de tonnerre!
 
-Ce fracas incessant résonnait à travers les étoiles. Le tonnerre se condensa et s'engouffra dans le gouffre du Clan des Immortels Abandonnés.
+Ce fracas incessant résonnait à travers les étoiles. Le tonnerre se condensa et s'engouffra dans le gouffre du Clan des Immortels Délaissés.
 
 C'était comme si la foudre partait en pèlerinage pour vénérer l'ancêtre de tous les éclairs. Tous ces décharges s'élançaient sans la moindre hésitation.
 

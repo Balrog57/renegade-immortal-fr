@@ -14,7 +14,7 @@ L'homme qu'ils encerclaient était Li Shan, une connaissance de Wang Lin rencont
 
 Si Li Shan avait pu venir, c'est parce qu'il excellait dans la fabrication de fausses pilules magiques et qu'il était un maître hors pair du vol.
 
-Grâce à ces talents, Punnan Zi avait enfreint les règles pour le laisser passer. Ce dernier lui avait également confié un trésor magique capable de dissimuler sa présence. Le revers de la médaille était que plus il l'utilisait, moins ce trésor s'avérait efficace.
+Grâce à ces talents, Pu Nanzi avait enfreint les règles pour le laisser passer. Ce dernier lui avait également confié un trésor magique capable de dissimuler sa présence. Le revers de la médaille était que plus il l'utilisait, moins ce trésor s'avérait efficace.
 
 Li Shan possédait réellement du savoir-faire. Sous la protection de ses compagnons, il avait réussi à dérober de nombreux objets au cours des combats, dont deux jetons.
 

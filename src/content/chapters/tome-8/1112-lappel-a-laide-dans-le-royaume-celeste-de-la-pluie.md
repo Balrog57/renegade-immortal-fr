@@ -42,9 +42,9 @@ La lumière rouge brilla intensément et la lance jaillit de la Mer des Démons.
 
 Après des dizaines de milliers d'années, l'arme du clan royal des anciens dieux apparaissait une fois de plus!
 
-Toutes les forces situées à l'extérieur de la planète Suzaku ressentirent cette aura qui faisait trembler les cieux. Alors qu'elles s'apprêtaient à intervenir, la Lance de l’Extermination Divine fondit sur l'un des palais du Temple Céleste du Tonnerre d'Allheaven!
+Toutes les forces situées à l'extérieur de la planète Suzaku ressentirent cette aura qui faisait trembler les cieux. Alors qu'elles s'apprêtaient à intervenir, la Lance de l’Extermination Divine fondit sur l'un des palais du Temple Céleste du Tonnerre de Luotian!
 
-Dans un éclair rouge, la lance perça le palais. Celui-ci trembla et vola en éclats. La Lance de l’Extermination Divine ne s'arrêta pas là; elle transperça tous les palais d'Allheaven, provoquant leur effondrement total.
+Dans un éclair rouge, la lance perça le palais. Celui-ci trembla et vola en éclats. La Lance de l’Extermination Divine ne s'arrêta pas là; elle transperça tous les palais de Luotian, provoquant leur effondrement total.
 
 Même la Secte des Corps subit un coup terrible. Tous les cercueils s'écroulèrent un à un devant le passage de la lance. Même les marionnettes de cadavres à l'intérieur furent réduites en poussière!
 
@@ -54,7 +54,7 @@ Parmi eux se trouvait une vieille femme au stade Briseur du Nirvana du côté de
 
 Celle-ci pensait pouvoir stopper la lance un instant grâce à sa culture de début de stade Briseur du Nirvana en utilisant un sortilège. Cependant, la Lance de l’Extermination Divine ignora tous les sorts et lui transperça directement la poitrine. Ses yeux se remplirent d'incrédulité lorsqu'elle regarda le trou béant dans son torse. Un instant plus tard, son corps s'effondra et même son âme originelle se dissipa.
 
-Les pupilles de Master Flamespark se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Corps envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine!
+Les pupilles de Maître Yan Leizi se rétractèrent. Lui et les autres Anciens s'élancèrent. La Secte des Corps envoya également des cultivateurs pour attaquer la Lance de l’Extermination Divine!
 
 Mais juste au moment où ces derniers allaient frapper, la lance fit demi-tour et retourna vers la planète Suzaku. Elle regagna la Mer des Démons et disparut à nouveau dans le Pays de l'Ancien Dieu.
 
@@ -62,13 +62,13 @@ Une voix rauque résonna à travers la planète et jusque dans l'espace au momen
 
 « Je vous attends tous! »
 
-Un silence de mort s'installa alors que Master Flamespark et les Anciens affichaient des visages graves. Certains Anciens pâlirent, le regard empreint d'incrédulité.
+Un silence de mort s'installa alors que Maître Yan Leizi et les Anciens affichaient des visages graves. Certains Anciens pâlirent, le regard empreint d'incrédulité.
 
 « Ceci... Qu'est-ce que c'est?! »
 
-« Ce que Wang Lin disait était vrai! » Les yeux de Master Flamespark brillèrent. S'il était venu, c'était sur l'ordre d'une personne à Allheaven qu'il respectait profondément. Il se devait de répondre présent!
+« Ce que Wang Lin disait était vrai! » Les yeux de Maître Yan Leizi brillèrent. S'il était venu, c'était sur l'ordre d'une personne à Luotian qu'il respectait profondément. Il se devait de répondre présent!
 
-Après une courte réflexion, Master Flamespark cria: « Tous les cultivateurs, suivez-moi vers la planète Suzaku! » Sur ce, il s'élança vers la planète. Les Anciens et d'innombrables cultivateurs l'emboîtèrent!
+Après une courte réflexion, Maître Yan Leizi cria: « Tous les cultivateurs, suivez-moi vers la planète Suzaku! » Sur ce, il s'élança vers la planète. Les Anciens et d'innombrables cultivateurs l'emboîtèrent!
 
 La Secte des Corps marqua une pause avant qu'une voix semblable au frottement de pierres ne résonne:
 

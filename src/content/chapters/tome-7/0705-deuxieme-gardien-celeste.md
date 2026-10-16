@@ -48,9 +48,9 @@ L'expression du Daoïste du Tonnerre devint sombre. Tout au long de son trajet, 
 
 À cet instant, la formation d'épée aux sept étoiles arriva et encercla le Daoïste du Tonnerre. Alors que l'énergie d'épée se précipitait sur lui, le Daoïste sortit un jade et le broya. Une explosion de tonnerre et d'éclairs jaillit alors tout autour de lui, formant une barrière.
 
-La barrière de foudre trembla violemment. À l'intérieur, le Daoïste du Tonnerre fixa Wang Lin et s'exclama avec urgence: « Cher collègue cultivateur Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire d'Allheaven! »
+La barrière de foudre trembla violemment. À l'intérieur, le Daoïste du Tonnerre fixa Wang Lin et s'exclama avec urgence: « Cher collègue cultivateur Xu, j'ai été imprudent dans cette affaire, mais pourquoi aller si loin?! Je suis un membre du Temple Céleste du Tonnerre; si vous me tuez, il vous sera difficile de circuler dans le Système Stellaire de Luotian! »
 
-« Si je ne vous tue pas, il me sera tout de même difficile de circuler dans le Système Stellaire d'Allheaven! » rétorqua Wang Lin d'une voix froide. Puis il frappa son sac, faisant apparaître l'Étendard des Mille Millions d'Âmes. L'étendard de trente pieds de large émettait des gémissements fantomatiques capables de secouer l'âme originelle.
+« Si je ne vous tue pas, il me sera tout de même difficile de circuler dans le Système Stellaire de Luotian! » rétorqua Wang Lin d'une voix froide. Puis il frappa son sac, faisant apparaître l'Étendard des Mille Millions d'Âmes. L'étendard de trente pieds de large émettait des gémissements fantomatiques capables de secouer l'âme originelle.
 
 D'un seul coup, tous les fragments d'âmes s'envolèrent. Parmi eux, outre les fragments de la Transformation de l'Âme, se trouvaient même quelques fragments d'Ascendant.
 

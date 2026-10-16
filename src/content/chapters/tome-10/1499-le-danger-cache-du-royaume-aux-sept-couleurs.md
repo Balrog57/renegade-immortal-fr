@@ -14,7 +14,7 @@ Wang Lin réfléchit un instant et dit: « Le cultivateur de la troisième étap
 
 Zhan Xingye était la gloire de la famille Zhan, mais cette gloire s'était effondrée avec les nouvelles rapportées par Wang Lin!
 
-L'expression du Maître Flamespark changea également. Bien qu'il ne soit pas originaire d'Allheaven, il y résidait depuis longtemps et en faisait désormais partie. Il avait lui aussi entendu parler de la grandeur de l'Ancêtre de la famille Zhan! On pouvait dire que la position actuelle de la famille Zhan à Allheaven découlait de son illustre lignée!
+L'expression du Maître Yan Leizi changea également. Bien qu'il ne soit pas originaire de Luotian, il y résidait depuis longtemps et en faisait désormais partie. Il avait lui aussi entendu parler de la grandeur de l'Ancêtre de la famille Zhan! On pouvait dire que la position actuelle de la famille Zhan à Luotian découlait de son illustre lignée!
 
 Zhan Xingye!
 
@@ -36,7 +36,7 @@ Le Maître Lu Fu regarda également Wang Lin tout en réfléchissant.
 
 Alors que Wang Lin évoquait le Royaume aux sept couleurs et mentionnait son hypothèse sur le fait que le Souverain avait planté ces fruits du Dao, Lie Yunzi prit une inspiration glaciale. Pourtant, son intention meurtrière ne faiblit pas; au contraire, son instinct de combat devint plus intense encore! Cet élan guerrier était un héritage que la famille Zhan devait porter à bout de bras!
 
-Le Maître Flamespark sentit son esprit vaciller. Ce que Wang Lin révélait sur le Royaume aux sept couleurs lui rappelait des événements terrifiants du passé.
+Le Maître Yan Leizi sentit son esprit vaciller. Ce que Wang Lin révélait sur le Royaume aux sept couleurs lui rappelait des événements terrifiants du passé.
 
 Le Maître Lu Fu, bouleversé, se leva soudainement. Il joignit les mains en signe de respect devant Wang Lin et dit: « Camarade cultivateur Wang, cette affaire est trop grave. L'existence même du Royaume aux sept couleurs représente un danger latent pour le Royaume Intérieur. Une fois que le Royaume Extérieur aura envahi nos terres, je crains que ce royaume n'apporte un désastre inimaginable à notre monde! »
 
@@ -48,19 +48,19 @@ Ce n'était pas impossible!
 
 Wang Lin hocha la tête. Il était revenu pour informer le Royaume Intérieur de ses découvertes, désireux d'apporter sa contribution à la guerre qui s'annonçait.
 
-Après avoir entendu parler du Royaume aux sept couleurs, le Maître Flamespark resta silencieux. Son visage était sombre et incertain tandis que les pièces du puzzle du passé s'assemblaient dans son esprit.
+Après avoir entendu parler du Royaume aux sept couleurs, le Maître Yan Leizi resta silencieux. Son visage était sombre et incertain tandis que les pièces du puzzle du passé s'assemblaient dans son esprit.
 
-Wang Lin remarqua ce changement. Il regarda le Maître Flamespark et demanda: « Camarade cultivateur Flamespark, savez-vous où se trouvent les autres Royaumes aux sept couleurs? »
+Wang Lin remarqua ce changement. Il regarda le Maître Yan Leizi et demanda: « Camarade cultivateur Yan Leizi, savez-vous où se trouvent les autres Royaumes aux sept couleurs? »
 
-À ces mots, le Maître Lu Fu tourna immédiatement le regard vers lui. Ayant également remarqué l'altération de l'expression du Maître Flamespark, il attendait sa réponse.
+À ces mots, le Maître Lu Fu tourna immédiatement le regard vers lui. Ayant également remarqué l'altération de l'expression du Maître Yan Leizi, il attendait sa réponse.
 
-Le Maître Flamespark joignit les mains devant le Maître Lu Fu et Wang Lin et dit: « Autrefois, j'étais poursuivi par l'Alliance et je me suis enfui vers Allheaven... » Tout en parlant, il fixa Wang Lin.
+Le Maître Yan Leizi joignit les mains devant le Maître Lu Fu et Wang Lin et dit: « Autrefois, j'étais poursuivi par l'Alliance et je me suis enfui vers Luotian... » Tout en parlant, il fixa Wang Lin.
 
 « Il y a de nombreuses raisons liées à mes affaires privées, je n'en dirai donc pas davantage. À l'époque, j'étais encore un Ancien de l'Alliance et j'ai aperçu par inadvertance un monde étrange au siège de l'Alliance... Senior Wang Lin, je me demande si le Royaume aux sept couleurs dont vous parlez abrite les Éveillés... ou les Perdus... »
 
 L'expression de Wang Lin se fit solennelle et il hocha la tête.
 
-Le Maître Flamespark poursuivit: « Alors, il doit y avoir un Royaume aux sept couleurs au siège même de l'Alliance! »
+Le Maître Yan Leizi poursuivit: « Alors, il doit y avoir un Royaume aux sept couleurs au siège même de l'Alliance! »
 
 Une lueur de froideur traversa le regard du Maître Lu Fu. Il joignit les mains devant Wang Lin: « Camarade cultivateur Wang, je ne peux rester vous divertir davantage aujourd'hui. Je dois me rendre à la Secte Démoniaque au plus vite... »
 
@@ -70,29 +70,29 @@ Wang Lin se leva et dit calmement: « Je m'occuperai du Royaume aux sept couleur
 
 Le banquet fut bref, mais le choc ressenti par le Maître Lu Fu et ses compagnons était tout aussi puissant que celui de la bataille précédente. Après avoir pris congé, le Maître Lu Fu agita sa manche et disparut parmi les étoiles.
 
-Wang Lin replaça Zhou Jin et Ling Dong dans le Fourneau Impérial. Il s'apprêtait à partir pour régler la dernière affaire d'Allheaven quand le Maître Flamespark hésita, avant de serrer les dents et de joindre les mains devant lui.
+Wang Lin replaça Zhou Jin et Ling Dong dans le Fourneau Impérial. Il s'apprêtait à partir pour régler la dernière affaire de Luotian quand le Maître Yan Leizi hésita, avant de serrer les dents et de joindre les mains devant lui.
 
 « Senior, je connais très bien l'Alliance et j'ai une profonde rancune envers le Maître Zhong Xuan. Si vous vous rendez à l'Alliance, puis-je vous accompagner? »
 
 Wang Lin réfléchit un instant et répondit: « C'est possible, mais mes mouvements sont incertains. Bien que je m'y rende, je ne connais pas encore le moment précis... »
 
-« Aucun problème, je peux m'y rendre et attendre là-bas. Une fois que vous serez à l'Alliance, il vous suffira de déployer votre Sens Divin pour me trouver. J'espère que le Senior pourra tenir compte de nos relations passées et ne pas me rejeter. » Le Maître Flamespark regardait Wang Lin avec sincérité.
+« Aucun problème, je peux m'y rendre et attendre là-bas. Une fois que vous serez à l'Alliance, il vous suffira de déployer votre Sens Divin pour me trouver. J'espère que le Senior pourra tenir compte de nos relations passées et ne pas me rejeter. » Le Maître Yan Leizi regardait Wang Lin avec sincérité.
 
-Le Maître Flamespark n'avait presque jamais supplié quiconque de sa vie, et prononcer de telles paroles à celui qui était son junior autrefois rendait son expression tourmentée.
+Le Maître Yan Leizi n'avait presque jamais supplié quiconque de sa vie, et prononcer de telles paroles à celui qui était son junior autrefois rendait son expression tourmentée.
 
-Wang Lin observa le Maître Flamespark. Il se souvenait distinctement que dans le Royaume Céleste du Tonnerre, ce dernier avait combattu un Qing Shui blessé. Le Maître Flamespark avait également emprunté la bête de tonnerre de Wang Lin et utilisé une méthode puissante pour retrouver le Royaume Céleste du Tonnerre.
+Wang Lin observa le Maître Yan Leizi. Il se souvenait distinctement que dans le Royaume Céleste du Tonnerre, ce dernier avait combattu un Qing Shui blessé. Le Maître Yan Leizi avait également emprunté la bête de tonnerre de Wang Lin et utilisé une méthode puissante pour retrouver le Royaume Céleste du Tonnerre.
 
 Wang Lin pesa le pour, puis dit lentement: « D'accord! »
 
-Une fois ses mots prononcés, il agita sa manche et disparut de la formation en un clin d'œil. Le Maître Flamespark et Lie Yunzi fixèrent l'endroit où Wang Lin avait disparu, les traits marqués par une émotion complexe.
+Une fois ses mots prononcés, il agita sa manche et disparut de la formation en un clin d'œil. Le Maître Yan Leizi et Lie Yunzi fixèrent l'endroit où Wang Lin avait disparu, les traits marqués par une émotion complexe.
 
-« On vieillit... On vieillit vraiment... » soupira le Maître Flamespark.
+« On vieillit... On vieillit vraiment... » soupira le Maître Yan Leizi.
 
 « L'avenir du Royaume Intérieur appartient à ce monde... » murmura Lie Yunzi en secouant la tête. Les souvenirs de sa rencontre avec Wang Lin défilèrent dans son esprit.
 
-Wang Lin traversa Allheaven à une vitesse fulgurante. À chaque pas, il franchissait des distances incommensurables. Sur les quatre affaires qu'il devait régler à Allheaven, trois étaient accomplies; il n'en restait plus qu'une!
+Wang Lin traversa Luotian à une vitesse fulgurante. À chaque pas, il franchissait des distances incommensurables. Sur les quatre affaires qu'il devait régler à Luotian, trois étaient accomplies; il n'en restait plus qu'une!
 
-Cette dernière affaire n'était ni une vengeance, ni la résolution d'un karma, mais un moyen de se renforcer pour préparer la bataille contre le Royaume Extérieur! Il avait repéré quelque chose à Allheaven!
+Cette dernière affaire n'était ni une vengeance, ni la résolution d'un karma, mais un moyen de se renforcer pour préparer la bataille contre le Royaume Extérieur! Il avait repéré quelque chose à Luotian!
 
 Cette chose l'avait profondément stupéfié, et même en y pensant maintenant, il en ressentait encore le choc. À l'époque, il n'était pas qualifié pour l'obtenir, mais désormais, il possédait la force nécessaire pour la trouver et la capturer!
 
@@ -110,7 +110,7 @@ Alors qu'il progressait, une étincelle de soif de combat brillait dans ses yeux
 
 La Planète des Mille Illusions, la planète Ran Yun!
 
-Il y a plus de mille ans, lorsque Wang Lin était arrivé à Allheaven via la faille du Pays des Esprits Démoniaques, il avait atterri sur la planète Ran Yun... C'est là qu'il avait accompagné Wang Ping durant toute une vie... Il avait marché aux côtés de Wang Ping, parcourant les montagnes, traversant les rivières et naviguant sur les mers!
+Il y a plus de mille ans, lorsque Wang Lin était arrivé à Luotian via la faille du Pays des Esprits Démoniaques, il avait atterri sur la planète Ran Yun... C'est là qu'il avait accompagné Wang Ping durant toute une vie... Il avait marché aux côtés de Wang Ping, parcourant les montagnes, traversant les rivières et naviguant sur les mers!
 
 Il avait offert à Wang Ping un cœur capable de supporter le poids du monde. Il lui avait donné une vie de gloire, de richesse et la position suprême du pouvoir... Cependant, ce que Wang Lin n'avait pu lui offrir, c'était un corps complet... Le souvenir de ce siècle de liens entre père et fils remonta dans le cœur de Wang Lin en voyant Ran Yun. Une douleur autrefois estompée ressurgit avec cette émotion.
 

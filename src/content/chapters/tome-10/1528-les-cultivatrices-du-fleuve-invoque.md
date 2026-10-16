@@ -14,17 +14,17 @@ Les éclairs projetaient des grondements tonitruants. Ils étaient si rapides qu
 
 Une chose était particulièrement surprenante: la majorité d'entre eux étaient des femmes!
 
-C'était un phénomène extrêmement rare dans Allheaven, la Mer Nuageuse et l'Alliance! Parmi les dizaines de milliers de cultivateurs du Fleuve Invoqué, seuls quelques milliers étaient des hommes!
+C'était un phénomène extrêmement rare dans Luotian, la Mer Nuageuse et l'Alliance! Parmi les dizaines de milliers de cultivateurs du Fleuve Invoqué, seuls quelques milliers étaient des hommes!
 
 Les cultivateurs du Fleuve Invoqué affichaient tous une expression grave; ils étaient déterminés et empreints d'une intention meurtrière! Bien qu'elles fussent des femmes, leur soif de sang n'avait rien à envier aux hommes en cet instant!
 
 Une cultivatrice à l'allure de lettrée, vêtue d'une longue tunique, se tenait sur un éclair en forme de dragon. Ses cheveux flottaient au vent, révélant un visage d'une grande beauté. À ses côtés, une superbe femme d'âge mûr suivait silencieusement le mouvement sur un autre éclair!
 
-Du côté d'Allheaven, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de culture. Ils venaient de diverses familles, mais ils étaient unis par un seul but! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée!
+Du côté de Luotian, une multitude de cultivateurs surgit à travers les ondulations, accompagnée des planètes de culture. Ils venaient de diverses familles, mais ils étaient unis par un seul but! Le Maître Lu Fu, en tête, chargeait avec une expression sombre. D'un revers de manche, il fit jaillir son épée brisée!
 
-À cet instant, ils n'étaient plus des cultivateurs du Fleuve Invoqué ou d'Allheaven; ils étaient tous les membres des cultivateurs du Royaume Intérieur!
+À cet instant, ils n'étaient plus des cultivateurs du Fleuve Invoqué ou de Luotian; ils étaient tous les membres des cultivateurs du Royaume Intérieur!
 
-L'arrivée des renforts d'Allheaven et du Fleuve Invoqué galvanisa les quelques milliers de cultivateurs restants de la Mer Nuageuse. Ils n'avaient déjà plus peur de la mort, et l'arrivée de ces alliés les rendit encore plus ardents!
+L'arrivée des renforts de Luotian et du Fleuve Invoqué galvanisa les quelques milliers de cultivateurs restants de la Mer Nuageuse. Ils n'avaient déjà plus peur de la mort, et l'arrivée de ces alliés les rendit encore plus ardents!
 
 Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux, leurs cœurs étaient ébranlés. Tandis que l'océan empoisonné et les bêtes moustiques attaquaient, des cris de détresse résonnaient et ils se dispersèrent rapidement.
 
@@ -44,11 +44,11 @@ La femme au visage de savante resta calme et déclara d'une voix douce: « Ma s�
 
 Quant au Maître Hong Shan, la belle femme d'âge mûr et le Maître Lu Fu, ils rejoignirent la bataille, allégeant ainsi le fardeau du Maître Hong Shan. Cependant, le jeune homme au regard froid devint sombre.
 
-L'assaut combiné d'Allheaven et du Fleuve Invoqué infligea des pertes encore plus lourdes à l'armée du Royaume Extérieur déjà en déroute. Les cris déchirants de l'agonie semblaient résonner pour l'éternité!
+L'assaut combiné de Luotian et du Fleuve Invoqué infligea des pertes encore plus lourdes à l'armée du Royaume Extérieur déjà en déroute. Les cris déchirants de l'agonie semblaient résonner pour l'éternité!
 
 Bien que la plupart des cultivateurs du Fleuve Invoqué fussent des femmes, leurs attaques étaient d'une férocité extrême. Spécialisées dans la vitesse, elles fusaient à travers le champ de bataille sur leurs éclairs, lançant leurs assauts les plus dévastateurs!
 
-À Allheaven, des grondements tonitruants résonnaient au sein de la formation composée de plus de 900 planètes. Des fantômes de planètes surgissaient et percutaient les cultivateurs du Royaume Extérieur!
+À Luotian, des grondements tonitruants résonnaient au sein de la formation composée de plus de 900 planètes. Des fantômes de planètes surgissaient et percutaient les cultivateurs du Royaume Extérieur!
 
 Alors que l'océan empoisonné faisait rage, les cultivateurs du Royaume Extérieur hurlaient de douleur en se dissolvant un à un dans des flaques de sang! Les bêtes moustiques attaquaient en masse; elles encerclaient souvent une proie pour, en un instant, lui aspirer le sang et l'énergie originelle, ne laissant derrière elles qu'une carcasse momifiée.
 
@@ -60,13 +60,13 @@ La mort de l'ancêtre du Clan du Moineau de Feu avait ébranlé leur foi! Le cri
 
 « Cette guerre... nous l'avons perdue... » Les cultivateurs du Royaume Extérieur s'enfuirent dans la panique, fuyant frénétiquement. Ils voulaient désespérément quitter le Royaume Intérieur. Pour eux, les défenseurs étaient des déments qui ne se souciaient ni de leur vie ni de leur mort, cherchant seulement à en emporter un de plus avec eux!
 
-L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer Nuageuse attaquaient sans égard pour leur propre vie. Les forces d'Allheaven chargeaient tandis que celles du Fleuve Invoqué fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie!
+L'océan de poison rugissait, les bêtes moustiques sifflaient, et les cultivateurs de la Mer Nuageuse attaquaient sans égard pour leur propre vie. Les forces de Luotian chargeaient tandis que celles du Fleuve Invoqué fondaient sur l'ennemi tels des éclairs. Le tout formait un immense filet de boucherie!
 
 Wang Lin leva la Hache Bris-Ciel et chargea. À chaque coup de sa hache, des vies s'éteignaient. Ses vêtements blancs étaient désormais trempés de sang. Puis, Wang Lin se mua en un nuage de brume et fonça dans la mêlée. Cette brume, large de plus de 100 000 pieds, enveloppa une multitude de cultivateurs dont la force vitale fut instantanément aspirée, les transformant en eau sanglante.
 
 C'était la contre-attaque!
 
-Tout comme les cultivateurs de la Mer Nuageuse avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes d'Allheaven et du Fleuve Invoqué, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
+Tout comme les cultivateurs de la Mer Nuageuse avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et du Fleuve Invoqué, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
 
 C'est alors que la troisième armée du Système d'Étoiles Anciennes arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Néant Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
 

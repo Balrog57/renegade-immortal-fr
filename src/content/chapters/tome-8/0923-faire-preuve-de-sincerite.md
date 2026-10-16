@@ -6,7 +6,7 @@ bookTitle: "Alliance's Secret"
 en: Chapter 923 - Expression Sincerity
 slug: faire-preuve-de-sincerite
 ---
-Maître Flamespark ne lança pas la boule blanche de flammes, mais l'écrasa impitoyablement. La sphère de feu s'effondra et se métamorphosa en d'innombrables phénix qui poussèrent des cris stridents avant de foncer droit sur Ji Xiantian.
+Maître Yan Leizi ne lança pas la boule blanche de flammes, mais l'écrasa impitoyablement. La sphère de feu s'effondra et se métamorphosa en d'innombrables phénix qui poussèrent des cris stridents avant de foncer droit sur Ji Xiantian.
 
 Ji Xiantian agita les bras et laissa échapper un rire aigu. Les glaciers infinis qui s'étaient formés derrière lui se mirent à gronder alors qu'ils avançaient.
 
@@ -14,7 +14,7 @@ Les deux combattants ne cessèrent pas leur assaut, déchaînant divers sorts. L
 
 Toute la région nord fut plongée dans une bataille chaotique.
 
-Les yeux de Maître Flamespark s'illuminèrent et il agita sa main droite. Plusieurs fragments du Royaume Céleste apparurent et il hurla: « Roue Céleste! »
+Les yeux de Maître Yan Leizi s'illuminèrent et il agita sa main droite. Plusieurs fragments du Royaume Céleste apparurent et il hurla: « Roue Céleste! »
 
 À ces mots, les fragments célestes autour de lui se mirent à gronder et à pivoter frénétiquement. Une tempête se leva soudainement de ce mouvement.
 
@@ -22,11 +22,11 @@ Alors que la tempête balayait les environs, tous les cultivateurs affectés fur
 
 L'expression de Ji Xiantian devint sombre; il leva la main et cria: « Loi de la Glace! »
 
-En un instant, une énergie glaciale infinie se propagea follement depuis sa main. Sous des grondements incessants, d'innombrables glaciers jaillirent et se précipitèrent vers Maître Flamespark.
+En un instant, une énergie glaciale infinie se propagea follement depuis sa main. Sous des grondements incessants, d'innombrables glaciers jaillirent et se précipitèrent vers Maître Yan Leizi.
 
-« Glace! » Une intention meurtrière traversa le regard de Ji Xiantian alors qu'il pointait Maître Flamespark du doigt.
+« Glace! » Une intention meurtrière traversa le regard de Ji Xiantian alors qu'il pointait Maître Yan Leizi du doigt.
 
-À cet instant, un froid puissant enveloppa Maître Flamespark. Ce froid était imprégné de Loi et, en un clin d'œil, il forma des couches de glace qui emprisonnèrent le maître des flammes à l'intérieur.
+À cet instant, un froid puissant enveloppa Maître Yan Leizi. Ce froid était imprégné de Loi et, en un clin d'œil, il forma des couches de glace qui emprisonnèrent le maître des flammes à l'intérieur.
 
 C'est alors que le rugissement du Serpent Observateur de la Lune résonna à travers les étoiles. Son cri secoua le monde, semblant faire vaciller la réalité sous les yeux de tous.
 
@@ -34,25 +34,25 @@ Cette scène fit changer les expressions de ceux qui se trouvaient du côté de 
 
 Le Saint Démon du Fiend Noir et le Saint Démon du Dragon des Nuages, qui combattaient le Dieu de Sang et sa troupe, eurent le visage assombri et reculèrent rapidement.
 
-Ji Xiantian laissa échapper un froid renâclant et ses yeux brillèrent. Au lieu de battre en retraite, il chargea droit sur Maître Flamespark, piégé dans la glace. Une fois à portée, il pressa ses mains sur la glace sans l'ombre d'une hésitation.
+Ji Xiantian laissa échapper un froid renâclant et ses yeux brillèrent. Au lieu de battre en retraite, il chargea droit sur Maître Yan Leizi, piégé dans la glace. Une fois à portée, il pressa ses mains sur la glace sans l'ombre d'une hésitation.
 
-À cet instant, une force destructrice s'engouffra dans la glace. Cette puissance s'accumula mystérieusement pour charger vers Maître Flamespark.
+À cet instant, une force destructrice s'engouffra dans la glace. Cette puissance s'accumula mystérieusement pour charger vers Maître Yan Leizi.
 
-Pourtant, à l'intérieur de la glace, les yeux de Maître Flamespark laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Brise-Nirvana à un niveau phénoménal.
+Pourtant, à l'intérieur de la glace, les yeux de Maître Yan Leizi laissèrent transparaître un éclat froid et il esquissa un sourire. La culture qu'il avait dissimulée commença à déferler comme une folie, passant du stade tardif du Brise-Nirvana à un niveau phénoménal.
 
 « Tu... Tu as percé le niveau!!! » L'expression de Ji Xiantian changea radicalement et il s'apprêta à reculer sans délai.
 
-Des fissures apparurent sur la glace qui emprisonnait Maître Flamespark, recouvrant soudainement toute la structure. Puis, en un instant, la glace vola en éclats et les innombrables fragments furent projetés dans toutes les directions.
+Des fissures apparurent sur la glace qui emprisonnait Maître Yan Leizi, recouvrant soudainement toute la structure. Puis, en un instant, la glace vola en éclats et les innombrables fragments furent projetés dans toutes les directions.
 
-Maître Flamespark rit, fit un pas et fusionna avec le monde. Bien qu'immobile, dès qu'il s'unit au monde, son énergie originelle se propagea avec une violence inouïe.
+Maître Yan Leizi rit, fit un pas et fusionna avec le monde. Bien qu'immobile, dès qu'il s'unit au monde, son énergie originelle se propagea avec une violence inouïe.
 
-L'énergie originelle du monde commença alors à vibrer violemment, interférant directement avec la Distorsion Spatiale. Simultanément, Maître Flamespark forma un sceau de la main et une flamme rouge jaillit tel un dragon rugissant.
+L'énergie originelle du monde commença alors à vibrer violemment, interférant directement avec la Distorsion Spatiale. Simultanément, Maître Yan Leizi forma un sceau de la main et une flamme rouge jaillit tel un dragon rugissant.
 
-Peu après, Maître Flamespark cracha une bouffée d'énergie originelle essentielle. Celle-ci retomba sur les fragments célestes en rotation, bloquant totalement la retraite de Ji Xiantian.
+Peu après, Maître Yan Leizi cracha une bouffée d'énergie originelle essentielle. Celle-ci retomba sur les fragments célestes en rotation, bloquant totalement la retraite de Ji Xiantian.
 
 Les fragments célestes tremblèrent et tournèrent dix fois plus vite qu'auparavant, se précipitant pour emprisonner Ji Xiantian à leur tour.
 
-La tempête générée par les fragments en rotation rugit, et le visage de Ji Xiantian s'assombrit. Il poussa sa main vers l'extérieur pour rassembler une masse d'énergie originelle afin de s'en extraire, mais Maître Flamespark s'avança et des flammes immenses jaillirent de son corps. Il pointa du doigt et les flammes s'élancèrent, enveloppant la tempête. Certaines flammes fusionnèrent avec le tourbillon, lui donnant l'apparence d'un dragon de feu!
+La tempête générée par les fragments en rotation rugit, et le visage de Ji Xiantian s'assombrit. Il poussa sa main vers l'extérieur pour rassembler une masse d'énergie originelle afin de s'en extraire, mais Maître Yan Leizi s'avança et des flammes immenses jaillirent de son corps. Il pointa du doigt et les flammes s'élancèrent, enveloppant la tempête. Certaines flammes fusionnèrent avec le tourbillon, lui donnant l'apparence d'un dragon de feu!
 
 À ce moment précis, au loin, le Serpent Observateur de la Lune arriva comme par téléportation. Il paraissait extrêmement féroce avec ses innombrables tentacules!
 
@@ -60,9 +60,9 @@ Des rugissements éclatèrent. Pendant un instant, les deux camps cessèrent leu
 
 Le Saint Démon du Fiend Noir ne jeta qu'un regard au Serpent Observateur de la Lune avant de sentir son cuir chevelu s'engourdir; il esquissa un sourire amer et se retira prestement. Quant au Saint Démon du Dragon des Nuages, il afficha une expression d'incrédulité.
 
-Ji Xiantian fut stupéfait. Son énergie originelle déferla tandis qu'il tentait de s'échapper de ce siège. Cependant, comment Maître Flamespark pouvait-il le laisser faire? Les bras de Maître Flamespark se tendirent et il injecta davantage d'énergie originelle dans les flammes pour maintenir Ji Xiantian prisonnier.
+Ji Xiantian fut stupéfait. Son énergie originelle déferla tandis qu'il tentait de s'échapper de ce siège. Cependant, comment Maître Yan Leizi pouvait-il le laisser faire? Les bras de Maître Yan Leizi se tendirent et il injecta davantage d'énergie originelle dans les flammes pour maintenir Ji Xiantian prisonnier.
 
-Dans les étoiles lointaines, ce qui suivit immédiatement le Serpent Observateur de la Lune fut le bois géant. D'une taille colossale, il changea soudainement de direction pour foncer vers Maître Flamespark et droit sur Ji Xiantian.
+Dans les étoiles lointaines, ce qui suivit immédiatement le Serpent Observateur de la Lune fut le bois géant. D'une taille colossale, il changea soudainement de direction pour foncer vers Maître Yan Leizi et droit sur Ji Xiantian.
 
 Le bois géant n'était pas encore arrivé que une force étrange enveloppa le monde. Des grondements infinis en émanèrent et sa vitesse s'accrut encore!
 
@@ -80,7 +80,7 @@ Les ondes provoquées par l'arrivée du bois géant étaient indescriptibles. À
 
 Aucun être, aucun trésor magique, aucun objet, pas même une planète de culture ne pouvait stopper son impact ou lui infliger le moindre dommage. Ce bois géant était capable de soutenir l'arrivée du Royaume Céleste Antique; désormais, tout ce qui constellait les étoiles devait s'effondrer devant lui!
 
-Le bois géant frappa avec un impact inimaginable, comme s'il voulait percer l'espace même! Il se referma instantanément sur la tempête que Maître Flamespark avait utilisée pour piéger Ji Xiantian.
+Le bois géant frappa avec un impact inimaginable, comme s'il voulait percer l'espace même! Il se referma instantanément sur la tempête que Maître Yan Leizi avait utilisée pour piéger Ji Xiantian.
 
 Sans technique complexe ni éclat de sort, le bois géant percuta directement les fragments célestes en rotation.
 
@@ -106,7 +106,7 @@ Les lumières bleues autour de Ji Xiantian s'éteignirent une à une; en un inst
 
 Ce recul précipité était dû à la force brute du bois géant; on aurait pu dire que ce n'était rien d'autre que le bois qui le repoussait!
 
-Au moment où le bois géant percuta Ji Xiantian, une intention meurtrière brilla dans les yeux de Maître Flamespark. Les flammes s'élevèrent autour de lui et il pressa impitoyablement Ji Xiantian!
+Au moment où le bois géant percuta Ji Xiantian, une intention meurtrière brilla dans les yeux de Maître Yan Leizi. Les flammes s'élevèrent autour de lui et il pressa impitoyablement Ji Xiantian!
 
 Alors que les flammes convergeaient vers lui, trois autres couches de lumière bleue s'effondrèrent!
 
@@ -114,7 +114,7 @@ L'effroi envahit le regard de Ji Xiantian; tout s'était passé trop vite. Neuf 
 
 Leurs sorts se transformèrent en forces incessantes qui frappèrent le corps de Ji Xiantian!
 
-Ji Xiantian fut assailli par le bois géant, Maître Flamespark, Lie Yunzi et l'ancêtre de la famille Shengong. Tous leurs sorts étaient d'une puissance extrême, sans parler de celui de Maître Flamespark, dont le niveau de culture surpassait celui de Ji Xiantian. Devant une telle salve, Ji Xiantian faillit perdre la raison!
+Ji Xiantian fut assailli par le bois géant, Maître Yan Leizi, Lie Yunzi et l'ancêtre de la famille Shengong. Tous leurs sorts étaient d'une puissance extrême, sans parler de celui de Maître Yan Leizi, dont le niveau de culture surpassait celui de Ji Xiantian. Devant une telle salve, Ji Xiantian faillit perdre la raison!
 
 Cependant, il était, après tout, un vieux monstre célèbre depuis des dizaines de milliers d'années pour sa vie de massacres. Bien qu'il fût en pleine crise, il n'allait pas mourir si facilement!
 
@@ -122,8 +122,8 @@ Face au péril, Ji Xiantian laissa échapper un rire et décida de faire explose
 
 Un grondement tonitruant retentit lors de l'explosion des quatre couches. L'impact repoussa Lie Yunzi ainsi que l'ancêtre de la famille Shengong.
 
-Même Maître Flamespark hésita un instant avant de pousser un soupir et de battre en retraite. Bien qu'il fût capable de tuer Ji Xiantian, il en sortirait blessé, ce qui constituerait un grand désavantage dans le Système Stellaire de l'Alliance!
+Même Maître Yan Leizi hésita un instant avant de pousser un soupir et de battre en retraite. Bien qu'il fût capable de tuer Ji Xiantian, il en sortirait blessé, ce qui constituerait un grand désavantage dans le Système Stellaire de l'Alliance!
 
-Après avoir repoussé les trois puissants cultivateurs, le visage de Ji Xiantian était livide et il cracha une large traînée de sang. Il avait utilisé l'explosion de son intention bleue pour s'échapper et hurla: « Maître Flamespark, si ce vieil homme ne se venge pas, alors je ne suis plus un homme! » Derrière lui, le Serpent Observateur de la Lune approchait. Il tendit la main vers le vide et des fissures apparurent. À cet instant, il se moquait d'être perdu dans les failles; il s'apprêtait à s'y engouffrer.
+Après avoir repoussé les trois puissants cultivateurs, le visage de Ji Xiantian était livide et il cracha une large traînée de sang. Il avait utilisé l'explosion de son intention bleue pour s'échapper et hurla: « Maître Yan Leizi, si ce vieil homme ne se venge pas, alors je ne suis plus un homme! » Derrière lui, le Serpent Observateur de la Lune approchait. Il tendit la main vers le vide et des fissures apparurent. À cet instant, il se moquait d'être perdu dans les failles; il s'apprêtait à s'y engouffrer.
 
-À ce moment-là, Wang Lin se tenait sur le bois géant. Bien qu'un peu éloigné, il fut tout de même affecté par l'impact, qui rendit l'énergie originelle de son corps instable. Il regarda Ji Xiantian s'éloigner à toute vitesse, puis fixa Maître Flamespark. Serrant les dents, il pointa le doigt vers l'avant et cria: « Arrêtez! »
+À ce moment-là, Wang Lin se tenait sur le bois géant. Bien qu'un peu éloigné, il fut tout de même affecté par l'impact, qui rendit l'énergie originelle de son corps instable. Il regarda Ji Xiantian s'éloigner à toute vitesse, puis fixa Maître Yan Leizi. Serrant les dents, il pointa le doigt vers l'avant et cria: « Arrêtez! »

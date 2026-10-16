@@ -1,6 +1,6 @@
 ---
 n: 793
-title: Maître Flamespark
+title: Maître Yan Leizi
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 793 - Master Flamespark
@@ -74,4 +74,4 @@ Wang Lin était sidéré. Il n'entendait plus que le craquement de l'espace qui 
 
 Un rire arrogant résonna à travers le Royaume Céleste. Au même moment, le vieil homme mystérieux apparut et s'exclama avec exaltation: « J'ai pénétré dans ce Royaume Céleste des centaines de fois et j'ai planifié cela depuis des dizaines de milliers d'années! Dans ce monde, qui d'autre possède le courage de ce vieil homme? Raffiner le Royaume Céleste et comploter contre l'illustre Seigneur Céleste Qing Shui... Haha, qui d'autre oserait?! »
 
-« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Allheaven?! Grâce à cela, je pourrai briser la barrière spatiale et, dès lors, mon Système Stellaire Allheaven n'aura plus besoin de la Pierre Allheaven pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Xuan, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Allheaven pour écraser l'Alliance de Culture! »
+« Ce vieil homme fera de la moitié du Royaume Céleste du Tonnerre un trésor. Qui pourra rivaliser avec moi dans le Système Stellaire Luotian?! Grâce à cela, je pourrai briser la barrière spatiale et, dès lors, mon Système Stellaire Luotian n'aura plus besoin de la Pierre Luotian pour pénétrer librement dans le Système Stellaire de l'Alliance. Maître Zhong Xuan, lorsque j'ai été contraint au départ, j'ai déclaré qu'un jour, je prendrais les millions de cultivateurs du Système Stellaire Luotian pour écraser l'Alliance de Culture! »

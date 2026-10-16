@@ -78,7 +78,7 @@ Wang Lin avait rencontré d'innombrables personnes au cours de sa vie, mais peu 
 
 Après réflexion, Wang Lin esquissa un sourire et murmura: « Lu Zihao… Cette identité me permettra de prendre racine dans le Système Stellaire de la Mer des Nuages! »
 
-La raison pour laquelle Wang Lin accordait tant d'importance à son identité résidait dans son expérience à Allheaven. Il ne l'avait pas remarqué alors, mais finalement, son identité était devenue transparente pour tous les puissants cultivateurs, ce qui lui avait causé de nombreux désagréments. Après tout, ils tendaient tous à rejeter ceux qui n'appartenaient pas à leur propre système.
+La raison pour laquelle Wang Lin accordait tant d'importance à son identité résidait dans son expérience à Luotian. Il ne l'avait pas remarqué alors, mais finalement, son identité était devenue transparente pour tous les puissants cultivateurs, ce qui lui avait causé de nombreux désagréments. Après tout, ils tendaient tous à rejeter ceux qui n'appartenaient pas à leur propre système.
 
 Avec son niveau de culture, gérer la question de son identité était complexe. Bien que cela ne résolve pas tout parfaitement, cela lui offrait une voie pour y parvenir.
 

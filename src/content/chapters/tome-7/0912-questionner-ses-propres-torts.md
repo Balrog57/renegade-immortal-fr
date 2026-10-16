@@ -6,31 +6,31 @@ bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 912 - Question Ones Wrongs
 slug: questionner-ses-propres-torts
 ---
-Le corps imposant de Lei Ji dégageait une pression colossale alors qu'il traversait rapidement la région occidentale de l'Alliance. Non loin de là, des éclats d'énergie d'épée fendaient l'air; c'était un groupe de cultivateurs d'Allheaven.
+Le corps imposant de Lei Ji dégageait une pression colossale alors qu'il traversait rapidement la région occidentale de l'Alliance. Non loin de là, des éclats d'énergie d'épée fendaient l'air; c'était un groupe de cultivateurs de Luotian.
 
 Le meneur était l'un des Célestes Terrestres. Lorsqu'il aperçut la silhouette gigantesque de Lei Ji, il se montra immédiatement vigilant. Même les cultivateurs derrière lui se préparèrent à affronter un adversaire redoutable, et des éclairs de sorts jaillirent.
 
 À cet instant précis, les yeux du chef se rétrécirent en découvrant Wang Lin et le garçon à la grosse tête sur le dos de Lei Ji. Il eut un haut-le-cœur, recula brusquement de quelques pas et dit respectueusement: « Salutations, Céleste du Tonnerre. »
 
-Le nom de « Xu Mu » était illustre à Allheaven, et il avait personnellement été témoin des exploits héroïques de Wang Lin. Il l'admirait profondément, et son admiration était d'une sincérité absolue.
+Le nom de « Xu Mu » était illustre à Luotian, et il avait personnellement été témoin des exploits héroïques de Wang Lin. Il l'admirait profondément, et son admiration était d'une sincérité absolue.
 
-Wang Lin hocha légèrement la tête sans dire un mot. La vitesse de Lei Ji était telle qu'il passa rapidement devant ces cultivateurs. Ce n'est que lorsque Wang Lin fut loin que le cultivateur regarda en arrière avec envie et s'exclama: « Posséder une monture pareille est digne du titre de Céleste du Tonnerre d'Allheaven. »
+Wang Lin hocha légèrement la tête sans dire un mot. La vitesse de Lei Ji était telle qu'il passa rapidement devant ces cultivateurs. Ce n'est que lorsque Wang Lin fut loin que le cultivateur regarda en arrière avec envie et s'exclama: « Posséder une monture pareille est digne du titre de Céleste du Tonnerre de Luotian. »
 
 Il n'était pas le seul à envier Wang Lin; les autres cultivateurs ne ressentaient que l'admiration et l'envie envers lui.
 
-Alors que Lei Ji progressait, ils croisèrent encore davantage de cultivateurs d'Allheaven. Il était évident que cette zone était entièrement occupée par Allheaven. Lorsque ces derniers aperçurent Wang Lin, ils se montrèrent tous respectueux; quant à Lei Ji, sa vue les plongea dans la stupeur et l'admiration.
+Alors que Lei Ji progressait, ils croisèrent encore davantage de cultivateurs de Luotian. Il était évident que cette zone était entièrement occupée par Luotian. Lorsque ces derniers aperçurent Wang Lin, ils se montrèrent tous respectueux; quant à Lei Ji, sa vue les plongea dans la stupeur et l'admiration.
 
-Après l'apparition de Xu Mu, la nouvelle s'était propagée parmi tous les cultivateurs d'Allheaven. Durant cette période, de nombreuses rumeurs avaient circulé sur lui.
+Après l'apparition de Xu Mu, la nouvelle s'était propagée parmi tous les cultivateurs de Luotian. Durant cette période, de nombreuses rumeurs avaient circulé sur lui.
 
 La grande majorité affirmait que Xu Mu n'osait pas combattre ou qu'il les avait trahis pour rejoindre l'Alliance. Xu Ting, ravi d'entendre cela, alimentait secrètement ces médisances.
 
-La vieille génération de cultivateurs d'Allheaven ne fit rien pour les stopper. De plus, comme Wang Lin avait disparu le premier, les rumeurs devinrent de plus en plus exagérées. Par exemple, l'idée que « Xu Mu est un espion de l'Alliance » était devenue une croyance largement partagée.
+La vieille génération de cultivateurs de Luotian ne fit rien pour les stopper. De plus, comme Wang Lin avait disparu le premier, les rumeurs devinrent de plus en plus exagérées. Par exemple, l'idée que « Xu Mu est un espion de l'Alliance » était devenue une croyance largement partagée.
 
 Les mouvements de Lei Ji attiraient l'attention de nombreux cultivateurs. Beaucoup regardaient Wang Lin avec respect, mais d'autres le dévisageaient d'un air moqueur, comme s'ils attendaient de voir un bon spectacle.
 
-Un jour plus tard, Lei Ji s'arrêta devant une planète abandonnée. L'énergie spirituelle y était devenue rare; même les cultivateurs d'Allheaven qui l'occupaient ne s'en souciaient guère et n'y avaient laissé que quelques sentinelles.
+Un jour plus tard, Lei Ji s'arrêta devant une planète abandonnée. L'énergie spirituelle y était devenue rare; même les cultivateurs de Luotian qui l'occupaient ne s'en souciaient guère et n'y avaient laissé que quelques sentinelles.
 
-Wang Lin observa attentivement la planète délaissée. Cet endroit était en effet très reculé. Bien qu'occupé par Allheaven, il n'empêcherait pas Wang Lin d'y pratiquer sa culture en vase clos.
+Wang Lin observa attentivement la planète délaissée. Cet endroit était en effet très reculé. Bien qu'occupé par Luotian, il n'empêcherait pas Wang Lin d'y pratiquer sa culture en vase clos.
 
 Après réflexion, Wang Lin descendit du dos de Lei Ji et se dirigea vers la planète. Le garçon à la grosse tête et Ta Shan le suivirent immédiatement. Quant à Lei Ji, son corps rétrécit pour reprendre la forme d'un homme de neuf mètres de haut et les suivit.
 
@@ -70,14 +70,14 @@ Immergé dans la vision de la pluie, Wang Lin était totalement absorbé. Pourta
 
 « Xu Mu, reconnaissez-vous votre crime? » rugit l'un d'eux. C'était un vieil homme que Wang Lin avait déjà aperçu. S'il se souvenait bien, cet homme était l'Ancien chargé des punitions!
 
-Le Maître Flamespark se tenait à ses côtés, l'expression sombre, fixant Wang Lin d'un regard glacial. La pluie s'était transformée en une masse de nuages qui semblaient brûler d'une flamme invisible, dégageant une pression inimaginable. C'était comme s'il pouvait, d'une simple pensée, utiliser ces nuages pour faire s'effondrer le monde.
+Le Maître Yan Leizi se tenait à ses côtés, l'expression sombre, fixant Wang Lin d'un regard glacial. La pluie s'était transformée en une masse de nuages qui semblaient brûler d'une flamme invisible, dégageant une pression inimaginable. C'était comme s'il pouvait, d'une simple pensée, utiliser ces nuages pour faire s'effondrer le monde.
 
 « Quel crime? » demanda Wang Lin d'un ton calme en regardant le vieil homme.
 
-« Ce vieux monsieur vous demande où vous étiez et ce que vous faisiez pendant la guerre contre l'Alliance! Vous êtes le Céleste du Tonnerre du Système Stellaire d'Allheaven, et pourtant vous avez disparu avant le conflit. Comment cela ne peut-il pas être un crime? »
+« Ce vieux monsieur vous demande où vous étiez et ce que vous faisiez pendant la guerre contre l'Alliance! Vous êtes le Céleste du Tonnerre du Système Stellaire de Luotian, et pourtant vous avez disparu avant le conflit. Comment cela ne peut-il pas être un crime? »
 
-Le Maître Flamespark n'avait toujours pas parlé, mais son visage se fit plus sévère. Au cours des derniers jours, il avait déployé son Sens Divin sur tout le territoire d'Allheaven sans parvenir à trouver Wang Lin. Quant aux régions plus éloignées, il restait prudent et n'osait pas s'y aventurer sans précaution.
+Le Maître Yan Leizi n'avait toujours pas parlé, mais son visage se fit plus sévère. Au cours des derniers jours, il avait déployé son Sens Divin sur tout le territoire de Luotian sans parvenir à trouver Wang Lin. Quant aux régions plus éloignées, il restait prudent et n'osait pas s'y aventurer sans précaution.
 
 L'expression de Wang Lin resta imperturbable alors qu'il répondit calmement: « Je suis allé tuer le tueur Yu Fei du Domaine de Massacre de l'Alliance. »
 
-À ces mots, le vieil homme fut stupéfait et les yeux du Maître Flamespark s'illuminèrent.
+À ces mots, le vieil homme fut stupéfait et les yeux du Maître Yan Leizi s'illuminèrent.

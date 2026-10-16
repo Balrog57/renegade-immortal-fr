@@ -100,4 +100,4 @@ Un ciel étoilé parsemé d'innombrables planètes de culture... Cela ressemblai
 
 « C'est donc... » Wang Lin contempla le vortex, bouleversé. À cet instant, il retrouva son calme.
 
-La femme à l'intérieur du parchemin murmura doucement: « Mon foyer... Le système stellaire d'Allheaven. »
+La femme à l'intérieur du parchemin murmura doucement: « Mon foyer... Le système stellaire de Luotian. »

@@ -74,11 +74,11 @@ L'expression de Wang Lin se détendit alors qu'il poursuivait sa réflexion.
 
 Wang Lin esquissa un sourire amer en dirigeant la boussole stellaire droit vers la planète Ran Yun. Sous les éclats de lumière argentée, il s'éloignait progressivement de la planète Yun Xia.
 
-Sur la planète Ran Yun, l'ancêtre de la famille Ran, Carefree Sanren et Sun Xi scrutaient le ciel. Leurs visages étaient d'une gravité mortelle.
+Sur la planète Ran Yun, l'ancêtre de la famille Ran, Xiaoyao Sanren et Sun Xi scrutaient le ciel. Leurs visages étaient d'une gravité mortelle.
 
 « Une formation de scellement planétaire... » Le visage de Sun Xi était empreint d'amertume.
 
-Carefree Sanren répliqua: « La famille Huan n'agirait jamais ainsi. S'ils avaient eu le temps de mettre en place une telle formation, ils seraient déjà descendus sur la planète Ran Yun. »
+Xiaoyao Sanren répliqua: « La famille Huan n'agirait jamais ainsi. S'ils avaient eu le temps de mettre en place une telle formation, ils seraient déjà descendus sur la planète Ran Yun. »
 
 L'ancêtre de la famille Ran médita longuement avant de dire: « Je crains que cette mise en scène n'ait été préparée pour permettre à Huan Mei, la nouvelle fille adoptive de l'ancêtre des Huan, de faire étalage de sa puissance. »
 
@@ -86,13 +86,13 @@ L'ancêtre de la famille Ran médita longuement avant de dire: « Je crains que 
 
 L'ancêtre de la famille Ran poursuivit: « Ils ne parviendront pas à nous exterminer. Ces dernières années, nous avons secrètement envoyé les membres les plus talentueux de nos lignées hors de la planète. Tant qu'ils subsistent, la flamme de nos familles continuera de brûler. »
 
-« Hélas, nos racines sont toutes ancrées sur Ran Yun; comment aurions-nous pu déplacer l'intégralité de nos clans en si peu de temps? Si nous avions agi trop vite, cette affaire aurait éclaté prématurément. » Carefree Sanren eut un sourire amer.
+« Hélas, nos racines sont toutes ancrées sur Ran Yun; comment aurions-nous pu déplacer l'intégralité de nos clans en si peu de temps? Si nous avions agi trop vite, cette affaire aurait éclaté prématurément. » Xiaoyao Sanren eut un sourire amer.
 
 Sun Xi hésita et dit: « Peut-être que le cultivateur Xu Mu reviendra... »
 
 L'ancêtre de la famille Ran serra les dents: « Humph! S'il ne revient pas une fois que nous aurons été capturés par la famille Huan, je l'entraînerai dans ma chute. Comment puis-je le laisser emporter tous ces jades célestes gratuitement?! Il avait promis de nous protéger, mais il s'est éclipsé au moment de la crise. Quel homme méprisable! »
 
-Carefree Sanren resta silencieux, perdu dans ses pensées.
+Xiaoyao Sanren resta silencieux, perdu dans ses pensées.
 
 Sun Xi soupira: « Laisse tomber. Même s'il revient, que pourra-t-il faire? L'ancêtre de la famille Huan a déjà atteint le deuxième niveau; qui pourrait l'arrêter? La rumeur prétend que la famille Huan comptait deux ancêtres au deuxième niveau. L'un d'eux est mort lors du combat pour le Royaume Céleste du Tonnerre, il n'en reste donc qu'un seul. Bien qu'il ne soit plus aussi puissant qu'autrefois, sa simple présence rendra toute résistance inutile. »
 
@@ -100,7 +100,7 @@ Les trois hommes sombrèrent dans un silence pesant, rongés par les remords li�
 
 Soudain, l'expression de l'ancêtre de la famille Ran changea radicalement et il s'exclama: « Ils arrivent! »
 
-Sun Xi et Carefree Sanren levèrent la tête. Ils sentirent le danger descendre du ciel, et leurs visages devinrent encore plus sombres.
+Sun Xi et Xiaoyao Sanren levèrent la tête. Ils sentirent le danger descendre du ciel, et leurs visages devinrent encore plus sombres.
 
 Des ondes de fluctuations frappèrent l'atmosphère tandis qu'une pression quasi infinie s'abattait sur eux.
 
@@ -110,7 +110,7 @@ Son expression était aussi calme que l'eau alors qu'elle se rapprochait lenteme
 
 L'ancêtre de la famille Ran dit: « Frère Sun, frère Zhao, nous avons passé la majeure partie de nos vies à combattre. Maintenant que notre avenir est scellé, pourquoi ne pas donner tout ce qu'il nous reste? Même si nous mourons, nous mourrons sans regrets! » Bien que sa voix fût basse, elle vibrait d'une intention de combat. En levant les yeux vers le ciel, ses pupilles brûlaient d'un éclat ardent.
 
-« Frère Ran est un héros. Puisque tu brûles ton âme, laisse-moi t'accompagner! » Carefree Sanren laissa échapper un rire, et une flamme ardente apparut également dans ses yeux.
+« Frère Ran est un héros. Puisque tu brûles ton âme, laisse-moi t'accompagner! » Xiaoyao Sanren laissa échapper un rire, et une flamme ardente apparut également dans ses yeux.
 
 Sun Xi afficha un regard décisif et sourit: « Tant pis. Cultiver toute une vie signifie oser défier les cieux et réprimander les généraux célestes. Comment pourrais-je reculer maintenant? »
 
@@ -120,4 +120,4 @@ Cette puissance colossale atteignit son apogée lorsque la silhouette magnifique
 
 Le corps de Liu Mei descendit du ciel; elle observa les trois hommes et murmura: « Ils brûlent leurs âmes originelles... » Sa voix était d'une beauté pure, semblable à une brise printanière balayant la terre, mais elle recelait également une force mystérieuse.
 
-Carefree Sanren fixa Liu Mei dans le ciel. La flamme dans ses yeux s'estompa progressivement, laissant place à une lueur de fanatisme...
+Xiaoyao Sanren fixa Liu Mei dans le ciel. La flamme dans ses yeux s'estompa progressivement, laissant place à une lueur de fanatisme...

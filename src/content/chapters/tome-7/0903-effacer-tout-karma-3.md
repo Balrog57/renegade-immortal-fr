@@ -84,7 +84,7 @@ Bien que la planète Suzaku n'ait pas atteint la qualité d'une planète de rang
 
 Zhou Wutai, debout au sommet du mont Suzaku, regarda le ciel d'un regard complexe. Il expira profondément et murmura: « Merci, Frère Wang! »
 
-Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait pour trait à Huanglong sourit en secouant la tête. « Utiliser l'âme de sept planètes pour restaurer la vitalité d'une seule n'est pas un calcul rentable. Cependant, cela montre clairement à quel point cet enfant tient à sa patrie, et c'est louable. J'ignore ce qu'il choisira lors de la bataille entre le Système Stellaire Allheaven et le Système Stellaire de l'Alliance. »
+Dans le pays de Suzaku, devant une secte, un vieux cultivateur ressemblant trait pour trait à Huanglong sourit en secouant la tête. « Utiliser l'âme de sept planètes pour restaurer la vitalité d'une seule n'est pas un calcul rentable. Cependant, cela montre clairement à quel point cet enfant tient à sa patrie, et c'est louable. J'ignore ce qu'il choisira lors de la bataille entre le Système Stellaire Luotian et le Système Stellaire de l'Alliance. »
 
 Wang Lin contempla la terre avant de faire un pas et de disparaître. Lorsqu'il réapparut, il se trouvait dans une vallée. Celle-ci était restée identique à son départ.
 
@@ -96,6 +96,6 @@ Au centre se dressait une tour, haute de dizaines de milliers de pieds. Des cha�
 
 L'Alliance des Cultivateurs était divisée en deux sectes, quatre temples et huit domaines. Il s'agissait du domaine de l'Abattage!
 
-Une silhouette fantomatique surgit du vide. Elle se déplaça avec la rapidité de l'éclair pour atterrir au-dessus d'un bâtiment. La figure s'agenouilla, révélant qu'il s'agissait d'un vieil homme. Il s'inclina vers la tour centrale et déclara: « Des traces du nouveau Céleste du Tonnerre d'Allheaven, Xu Mu, ont été découvertes! »
+Une silhouette fantomatique surgit du vide. Elle se déplaça avec la rapidité de l'éclair pour atterrir au-dessus d'un bâtiment. La figure s'agenouilla, révélant qu'il s'agissait d'un vieil homme. Il s'inclina vers la tour centrale et déclara: « Des traces du nouveau Céleste du Tonnerre de Luotian, Xu Mu, ont été découvertes! »
 
-« Duo des Tueurs d'Âmes, apportez-moi la tête de Xu Mu! Ce sera un présent pour les cultivateurs d'Allheaven, offert par le domaine de l'Abattage! » Une voix glaciale et sinistre résonna depuis la tour.
+« Duo des Tueurs d'Âmes, apportez-moi la tête de Xu Mu! Ce sera un présent pour les cultivateurs de Luotian, offert par le domaine de l'Abattage! » Une voix glaciale et sinistre résonna depuis la tour.

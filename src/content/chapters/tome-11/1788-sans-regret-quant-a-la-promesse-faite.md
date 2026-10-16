@@ -60,13 +60,13 @@ Quant à Tuo Sen, après avoir salué Wang Lin, il marcha machinalement vers l'h
 
 Le système stellaire infini était d'une beauté sublime, les nébuleuses brillant de mille feux. Pourtant, aux yeux de Wang Lin, il était impossible de dire si elles étaient réelles ou illusoires.
 
-Après un long moment, il détacha son regard des étoiles et s'élança à travers elles. Il ne quittait pas Allheaven, mais se dirigeait vers l'endroit où se trouvait autrefois la planète Dong Lin.
+Après un long moment, il détacha son regard des étoiles et s'élança à travers elles. Il ne quittait pas Luotian, mais se dirigeait vers l'endroit où se trouvait autrefois la planète Dong Lin.
 
 La planète Dong Lin s'était effondrée, ne laissant derrière elle qu'une faille. Cette brèche menait à la seconde fleur gelée.
 
 Avant de partir, Wang Lin avait quelques comptes à régler. Il y avait l'ancienne déesse Yun Na. Wang Lin lui avait promis de l'aider à échapper au monde gelé.
 
-La planète Dong Lin se situait à l'opposé de la porte dorée dans Allheaven. Bien qu'éloignée, la lumière dorée atteignait encore ces lieux, enveloppant le domaine stellaire de son éclat.
+La planète Dong Lin se situait à l'opposé de la porte dorée dans Luotian. Bien qu'éloignée, la lumière dorée atteignait encore ces lieux, enveloppant le domaine stellaire de son éclat.
 
 La faille menant au monde gelé ressemblait à une blessure béante dans le système stellaire. Elle scintillait, libérant parfois une énergie glaciale qui venait teinter d'or le domaine environnant.
 
@@ -82,7 +82,7 @@ Wang Lin se tint devant la faille et, par son Sens Divin, envoya un message dans
 
 « Il est venu... » Fermant les yeux, un nuage de fumée s'échappa de ses sourcils et disparut dans la glace devant elle.
 
-Cette essence quitta son corps pour dériver vers Wang Lin. Bientôt, elle apparut à l'entrée d'Allheaven!
+Cette essence quitta son corps pour dériver vers Wang Lin. Bientôt, elle apparut à l'entrée de Luotian!
 
 Elle vit Wang Lin. Cependant, une couche de glace les séparait toujours.
 
@@ -124,7 +124,7 @@ Wang Lin avait fait la même promesse à une autre personne. Elle se trouvait da
 
 Cette Fan Shanlu était une femme pitoyable. Elle était la première concubine du Souverain Céleste et la sœur cadette de Fan Shanmen. Cependant, elle était restée trop longtemps dans le monde des grottes et s'était retrouvée piégée dans l'illusion de sa sœur aînée afin d'obtenir le Sang du Serment de Wang Lin.
 
-« Elle est originaire du Continent Astral Immortel, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Allheaven pour pénétrer dans la Mer des Nuages. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
+« Elle est originaire du Continent Astral Immortel, elle n'a donc pas besoin de se réincarner pour partir... » Wang Lin avança et traversa Luotian pour pénétrer dans la Mer des Nuages. Il s'enfonça dans les profondeurs de la faille où se trouvait Fan Shanlu.
 
 Outre le fait de sauver Fan Shanlu, il y avait une chose que Wang Lin avait presque oubliée. Dans le dernier mois précédant son départ, un souvenir lui revint soudainement à l'esprit.
 

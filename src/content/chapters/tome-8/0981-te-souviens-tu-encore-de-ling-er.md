@@ -18,7 +18,7 @@ Wang Lin hocha la tête et joignit les mains en signe de respect. « Puisqu'il e
 
 Maître Yi Chen rit: « Aucun dérangement! Accueillir le frère Wang Lin sur notre planète est un honneur pour nous. Par ici! » Tout en parlant, il fit quelques pas en arrière et fit signe à Lei Ji de diriger son immense corps vers la planète Esprit d'Eau.
 
-Au fur et à mesure de leur progression, le corps de Lei Ji rétrécissait jusqu'à devenir celui d'un colosse suivant Wang Lin et Big Head. Quant à Maître Hollow Wind, il n'osa plus ouvrir la bouche et se contenta de suivre Wang Lin.
+Au fur et à mesure de leur progression, le corps de Lei Ji rétrécissait jusqu'à devenir celui d'un colosse suivant Wang Lin et Da Tou. Quant à Maître Fu Fengzi, il n'osa plus ouvrir la bouche et se contenta de suivre Wang Lin.
 
 En chemin, les frères Chen discutèrent avec Wang Lin, mais leurs propos restaient superficiels. Ils ne posèrent aucune question sur les événements survenus aux abords de la ville de Ghost Eye.
 
@@ -64,7 +64,7 @@ Elle aimait énormément cette paire de clochettes; elle les portait constamment
 
 Maître Yi Chen sourit en observant la scène. En regardant Wang Lin, une idée germa dans son esprit. Il sourit: « Ling Er, le Senior Wang va rester quelque temps. Ne le dérange pas. » Sur ces mots, il entraîna Wang Lin vers l'intérieur.
 
-Wang Lin adressa un signe de tête à Ling Er et s'avança. Big Head et Ta Shan le suivirent. Maître Hollow Wind jeta un regard aux deux femmes et poussa un soupir avant de les suivre à son tour.
+Wang Lin adressa un signe de tête à Ling Er et s'avança. Da Tou et Ta Shan le suivirent. Maître Fu Fengzi jeta un regard aux deux femmes et poussa un soupir avant de les suivre à son tour.
 
 Ling Er tira la langue, le rouge ne l'ayant pas encore quittée. Elle recommença joyeusement à bavarder avec Zhao Xue tandis que les grues célestes s'envolèrent vers l'horizon.
 
@@ -80,9 +80,9 @@ De grands arbres s'élançaient vers le ciel au sein de ces montagnes. L'endroit
 
 Ta Shan s'avança pour suivre Wang Lin.
 
-Big Head hésita un instant avant de choisir un palais avec Lei Ji. Cette demeure était très proche de celle de Wang Lin; ainsi, si celui-ci les appelait, ils pourraient arriver instantanément.
+Da Tou hésita un instant avant de choisir un palais avec Lei Ji. Cette demeure était très proche de celle de Wang Lin; ainsi, si celui-ci les appelait, ils pourraient arriver instantanément.
 
-Quant à Maître Hollow Wind, il soupira et choisit un endroit un peu plus éloigné. Inconsciemment, il n'avait guère envie d'être trop près de Wang Lin, mais il garda à l'esprit la limite des 50 kilomètres.
+Quant à Maître Fu Fengzi, il soupira et choisit un endroit un peu plus éloigné. Inconsciemment, il n'avait guère envie d'être trop près de Wang Lin, mais il garda à l'esprit la limite des 50 kilomètres.
 
 D'un pas assuré, Wang Lin atteignit la résidence qu'il avait choisie. Après un tour d'horizon, son regard exprima son admiration. Chaque palais était unique, mais tous étaient magnifiques.
 
@@ -114,7 +114,7 @@ Cette lueur azur rendit immédiatement le palais brumeux. À l'intérieur de cet
 
 Ce bouclier azur tourna quatre fois autour de Wang Lin avant de s'immobiliser devant lui. Même la lueur émanant du bouclier semblait se figer.
 
-En contemplant le bouclier dans cette lumière azur, les yeux de Wang Lin s'illuminèrent. Lorsque Maître Hollow Wind l'avait sorti la première fois, Wang Lin avait perçu une aura d'Ancien Dieu en lui.
+En contemplant le bouclier dans cette lumière azur, les yeux de Wang Lin s'illuminèrent. Lorsque Maître Fu Fengzi l'avait sorti la première fois, Wang Lin avait perçu une aura d'Ancien Dieu en lui.
 
 Cependant, cette aura n'était pas puissante, comme si elle était scellée. Si Wang Lin n'avait été lui-même un Ancien Dieu, personne n'aurait pu le déceler.
 

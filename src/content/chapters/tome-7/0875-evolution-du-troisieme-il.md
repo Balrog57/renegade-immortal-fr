@@ -46,7 +46,7 @@ Les autres ancêtres des familles possédant des héritages du royaume céleste 
 
 L'admiration de l'ancêtre de la famille Xiang s'intensifia. Plus il regardait Wang Lin, plus il était ravi. Il pensa: « Cet enfant n'est pas un simple poisson dans un étang! »
 
-Maître Flamespark sourit, et en voyant le choc de Lie Yunzi, son sourire s'élargit.
+Maître Yan Leizi sourit, et en voyant le choc de Lie Yunzi, son sourire s'élargit.
 
 Zhan Konglie connaissait les affaires de la famille. Lorsqu'il vit Wang Lin entrer dans cet état en une seule seconde, il eut un haut-le-cœur, totalement stupéfait. Quant à Xu Ting, il fronça les sourcils, le cœur lourd de sentiments complexes. Il était initialement un enfant favorisé par les cieux, mais lors de l'essai humain, Xu Mu lui avait volé la vedette. Puis, lors de l'essai terrestre, il s'était révélé bien inférieur à Xu Mu. Maintenant, lors de l'essai céleste, il était loué par Lie Yunzi, mais tout cela s'était instantanément envolé. C'était comme si son rival, Xu Mu, était devenu son ennemi juré!
 

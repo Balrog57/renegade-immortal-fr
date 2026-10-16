@@ -40,7 +40,7 @@ Le symbole yin-yang de la vie et de la mort apparut autour des flammes et du ton
 
 Cinq essences apparurent au plus profond des pupilles de Wang Lin. Tandis qu'elles tournaient rapidement, Wang Lin ouvrit soudainement les yeux et regarda droit devant lui! Son regard pouvait percer tous les obstacles du monde et lui permettre de voir la source de toutes choses!
 
-Ce regard était infiniment proche du sortilège du Regard du Dao que Wang Lin avait utilisé accidentellement dans le Système Stellaire Allheaven!
+Ce regard était infiniment proche du sortilège du Regard du Dao que Wang Lin avait utilisé accidentellement dans le Système Stellaire Luotian!
 
 Cependant, dès l'instant où ses yeux s'ouvrirent, ses pupilles se rétractèrent. Tous les poils de son corps se hérissèrent et l'énergie originelle dans son corps circula frénétiquement, faisant briller ses yeux comme la foudre!
 

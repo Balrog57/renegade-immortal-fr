@@ -12,7 +12,7 @@ slug: remous-de-lordre
 
 Le visage de Tang Yanfeng demeura impassible tandis qu'il fixait l'orifice noir scellé, avant de lâcher d'une voix lente: « Vous y avez aussi pensé... »
 
-La femme hocha la tête et répondit: « Bien qu'il existe de nombreuses familles nommées Xu dans le système stellaire d'Allheaven, la plupart sont méconnues. Pour qu'un cultivateur de type Corporel Yang apparaisse, et avec une telle puissance, il ne peut s'agir que de la famille Xu de la planète Dong Lin! Les descendants de la planète Dong Lin n'étaient pas apparus depuis bien longtemps. Cette personne pourrait-elle être... »
+La femme hocha la tête et répondit: « Bien qu'il existe de nombreuses familles nommées Xu dans le système stellaire de Luotian, la plupart sont méconnues. Pour qu'un cultivateur de type Corporel Yang apparaisse, et avec une telle puissance, il ne peut s'agir que de la famille Xu de la planète Dong Lin! Les descendants de la planète Dong Lin n'étaient pas apparus depuis bien longtemps. Cette personne pourrait-elle être... »
 
 Les pupilles de la femme se rétractèrent et elle cessa de parler.
 

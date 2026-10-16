@@ -72,7 +72,7 @@ Seul le grondement du vortex en rotation subsistait. Le tourbillon descendit len
 
 En tenant la lumière verte, Wang Lin comprit naturellement les intentions de Qiu Yao. Selon elle, ce sortilège du Tatouage Fané exigeait l'aide du Clan du Tatou, créant ainsi une chaîne invisible liant Wang Lin à ce clan.
 
-« Si elle est si confiante, c'est que le Tatouage Fané ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie d'origine à Allheaven...
+« Si elle est si confiante, c'est que le Tatouage Fané ne peut pas être un sort ordinaire! » Les yeux de Wang Lin s'illuminèrent alors qu'il se remémorait le talisman jaune capable de sceller l'énergie d'origine à Luotian...
 
 « Serait-ce possible...? » Ses yeux se plissèrent.
 

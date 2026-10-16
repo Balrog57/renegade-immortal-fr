@@ -70,13 +70,13 @@ Ce n'est qu'une fois Treize parti que Wang Lin laissa échapper un soupir. En fi
 
 « S'il parvient à maîtriser la méthode de raffinement corporel du Clan du Démon Géant, je lui enseignerai le premier stade de la Tactique de l'Ancien Dieu. S'il échoue, cela signifiera simplement qu'il n'est pas destiné à l'apprendre. »
 
-En un clin d'œil, deux années supplémentaires s'écoulèrent. Durant cette période, la Tribu du Raffinement de l'Âme connut une croissance fulgurante. Sa taille ne cessa de croître, passant de 20 kilomètres à environ 150 kilomètres de large, et la tribu comptait désormais plus de 5 000 hommes.
+En un clin d'œil, deux années supplémentaires s'écoulèrent. Durant cette période, la Tribu du Affinement de l'Âme connut une croissance fulgurante. Sa taille ne cessa de croître, passant de 20 kilomètres à environ 150 kilomètres de large, et la tribu comptait désormais plus de 5 000 hommes.
 
-Dans un rayon de 50 000 kilomètres, à l'exception de deux tribus de dix mille membres chacune, toutes les autres avaient été dévorées par la Tribu du Raffinement de l'Âme.
+Dans un rayon de 50 000 kilomètres, à l'exception de deux tribus de dix mille membres chacune, toutes les autres avaient été dévorées par la Tribu du Affinement de l'Âme.
 
 Au cours de ces deux ans, Wang Lin était intervenu à trois reprises pour neutraliser des individus puissants issus de tribus ennemies. Cependant, dans cette terre désolée, quelle que soit leur force, ils ne faisaient pas le poids face à lui.
 
-Il faut reconnaître que le plan de Wang Lin — fonder sa propre puissance dans ce désert — portait ses fruits. Il commandait désormais une force de 5 000 hommes maîtrisant le sort de raffinement de l'âme. Bien qu'ils fussent peu puissants individuellement, ils frappaient avec une force colossale lorsqu'ils libéraient tous leurs fragments d'âme simultanément.
+Il faut reconnaître que le plan de Wang Lin — fonder sa propre puissance dans ce désert — portait ses fruits. Il commandait désormais une force de 5 000 hommes maîtrisant le sort de affinement de l'âme. Bien qu'ils fussent peu puissants individuellement, ils frappaient avec une force colossale lorsqu'ils libéraient tous leurs fragments d'âme simultanément.
 
 Si on leur laissait assez de temps pour croître, Wang Lin dirigerait une puissance redoutable!
 
@@ -94,17 +94,17 @@ Quatre ans auparavant, Wang Lin avait eu l'occasion d'y aller, mais il s'en éta
 
 Après quatre ans, Wang Lin pouvait enfin se rendre à la Grande Muraille Antique sans inquiétude. Même s'il ne parvenait pas à y établir une assise solide, il aurait tout de même la capacité d'infléchir le cours des événements en sa faveur.
 
-Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu du Raffinement de l'Âme. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
+Pour faciliter les communications, il passa un demi-mois à fabriquer deux jades de transmission vocale. Il en garda un sur lui et laissa l'autre au sein de la Tribu du Affinement de l'Âme. S'il n'avait pas manqué de matériaux, il aurait installé une formation de transfert dans la tribu afin de pouvoir y revenir instantanément.
 
 Cette fois, Wang Lin ne partirait pas seul. Deux jeunes l'accompagneraient, et l'un d'eux était Treize!
 
 L'autre s'appelait Huo Pao. Originaire d'une petite tribu, il avait déjà éveillé son énergie spirituelle démoniaque. Il possédait deux étoiles de cette énergie lorsqu'il rejoignit la tribu, étant alors le premier expert de son clan d'origine.
 
-Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Raffinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
+Ouyang Hua l'avait personnellement capturé et contraint à boire une soupe effaçant les souvenirs, faisant de lui un membre de la Tribu du Affinement de l'Âme. Ce jeune homme était doté d'un talent exceptionnel pour la culture. Avec son point de départ de deux étoiles, il avait rapidement surpassé tout le monde, talonnant même Ouyang Hua.
 
 À l'heure actuelle, il avait déjà atteint le cinquième stade et possédait 93 drapeaux d'âme ainsi que 31 âmes primaires. Sa force actuelle n'était guère différente de celle d'un cultivateur de la Formation du Noyau.
 
-Wang Lin voyait en lui un génie. Bien que le sort de raffinement de l'âme fût facile à apprendre, atteindre le stade de la Formation du Noyau en seulement quatre ans dépassait toutes les espérances de Wang Lin. L'une des raisons majeures était son bagage initial de deux étoiles d'énergie spirituelle démoniaque, couplé à la richesse de cette énergie dans ces terres, mais c'était la première fois que Wang Lin croisait un talent tel que celui de Huo Pao!
+Wang Lin voyait en lui un génie. Bien que le sort de affinement de l'âme fût facile à apprendre, atteindre le stade de la Formation du Noyau en seulement quatre ans dépassait toutes les espérances de Wang Lin. L'une des raisons majeures était son bagage initial de deux étoiles d'énergie spirituelle démoniaque, couplé à la richesse de cette énergie dans ces terres, mais c'était la première fois que Wang Lin croisait un talent tel que celui de Huo Pao!
 
 S'il atteignait le stade de la Formation de l'Âme en cent ans, il rattraperait Papillon Rouge en termes de talent! En réalité, il serait même supérieur à ce dernier!
 
@@ -114,4 +114,4 @@ Le respect que Huo Pao vouait à Wang Lin n'était pas moindre que celui de Trei
 
 Quant à Treize, la robustesse de son corps avait atteint un degré stupéfiant. Même face à Huo Pao, il ne serait pas désavantagé. Cela tenait en grande partie à sa détermination et à ses efforts acharnés. Depuis qu'il avait obtenu la méthode de raffinement corporel, il avait passé de nombreux jours et nuits à cultiver. En matière de sérieux envers la culture, il était le premier de la tribu.
 
-Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu du Raffinement de l'Âme, suivi par Huo Pao et Treize tels des gardes d'élite.
+Ce matin-là, au moment où le soleil s'élevait dans le ciel, Wang Lin sortit de la Tribu du Affinement de l'Âme, suivi par Huo Pao et Treize tels des gardes d'élite.

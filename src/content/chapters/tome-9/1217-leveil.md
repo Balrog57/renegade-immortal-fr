@@ -8,27 +8,27 @@ slug: leveil
 ---
 Depuis que Wang Lin était entré dans le Royaume aux Sept Couleurs, le temps s'était écoulé avec rapidité; quatre-vingt-dix-neuf années s'étaient déjà passées...
 
-Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance de Culture. Elles avaient également contraint la Secte des Cadavres à coopérer pour repousser l'armée d'Allheaven.
+Au cours de ces 99 ans, un changement cataclysmique avait secoué le Système Stellaire de l'Alliance. Les Quatre Sectes Divines s'étaient déployées avec force, balayant les vestiges de l'Alliance de Culture. Elles avaient également contraint la Secte des Cadavres à coopérer pour repousser l'armée de Luotian.
 
-À l'origine, la Secte des Cadavres n'avait aucune intention de s'impliquer; il préférait rester en retrait pour profiter de la situation, car il semblait que qu'il s'agisse d'Allheaven ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte des Cadavres.
+À l'origine, la Secte des Cadavres n'avait aucune intention de s'impliquer; il préférait rester en retrait pour profiter de la situation, car il semblait que qu'il s'agisse de Luotian ou des Quatre Sectes Divines, aucun des deux camps ne pourrait l'emporter sans l'aide de la Secte des Cadavres.
 
-La Secte des Cadavres se souciait peu du fait que les cultivateurs d'Allheaven fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
+La Secte des Cadavres se souciait peu du fait que les cultivateurs de Luotian fussent des envahisseurs! Ce qui importait à ses yeux, c'était l'immense commerce de vente et d'achat de corps que la guerre générait. La Secte des Cadavres espérait même que ce conflit ne s'interrompe jamais.
 
 Cependant, tout cela fut ruiné par un homme: l'Empereur Divin du Dragon Azure. Il s'était précipité au sein de la Secte des Cadavres, massacrant de ses propres mains de nombreux Anciens et blessant gravement les rois restants. Cela avait contraint le Premier Roi ainsi que le Maître de la Secte des Cadavres à sortir de leur retraite. Les deux hommes s'étaient livrés à une bataille qui avait ébranlé tout le système stellaire!
 
 En fin de compte, le Premier Roi de la Secte des Cadavres fut totalement vaincu. Si ce n'était pas pour les autres motivations de l'Empereur Divin du Dragon Azure, il lui aurait été facile de l'exterminer!
 
-Cette bataille avait profondément ébranlé la Secte des Cadavres et leur avait fait prendre la mesure de la puissance des Quatre Sectes Divines. Ils éprouvèrent également une terreur extrême envers l'Empereur Divin du Dragon Azure. La Secte des Cadavres fut contraint d'obéir aux ordres des Quatre Sectes Divines et entama sa guerre contre Allheaven!
+Cette bataille avait profondément ébranlé la Secte des Cadavres et leur avait fait prendre la mesure de la puissance des Quatre Sectes Divines. Ils éprouvèrent également une terreur extrême envers l'Empereur Divin du Dragon Azure. La Secte des Cadavres fut contraint d'obéir aux ordres des Quatre Sectes Divines et entama sa guerre contre Luotian!
 
 Ce fut un affrontement titanesque entre les deux systèmes stellaires. C'est au cours de cette guerre que Tuo Sen s'éveilla et brisa la formation entourant la planète Suzaku!
 
-Son apparition provoqua la stupeur à Allheaven. Tuo Sen agissait selon ses humeurs. Peu après son réveil, certains cultivateurs d'Allheaven l'avaient provoqué. Il s'était alors précipité sur le champ de bataille, massacrant des dizaines de milliers de cultivateurs d'Allheaven!
+Son apparition provoqua la stupeur à Luotian. Tuo Sen agissait selon ses humeurs. Peu après son réveil, certains cultivateurs de Luotian l'avaient provoqué. Il s'était alors précipité sur le champ de bataille, massacrant des dizaines de milliers de cultivateurs de Luotian!
 
 Une fois son carnage terminé, il partit en ne laissant qu'une seule phrase:
 
 « Vous êtes tous trop faibles. »
 
-Aucun des cultivateurs d'Allheaven n'osa le poursuivre, pas même Maître Lufu, qui se terrât de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
+Aucun des cultivateurs de Luotian n'osa le poursuivre, pas même Maître Lufu, qui se terrât de peur. Il s'était enfui loin du Système Stellaire de l'Alliance et n'osait plus y poser le pied!
 
 Heureusement, après son apparition, Tuo Sen ne resta pas longtemps dans le Système Stellaire de l'Alliance. Il se dirigea d'abord vers les Quatre Sectes Divines. Fort de sa puissance de Dieu Ancien et de celle de ses étoiles, il parvint à blesser gravement l'Empereur Divin du Dragon Azure en un seul coup. Il fit s'effondrer le champ stellaire des Quatre Sectes Divines, y laissant d'innombrables fissures qui empêchaient toute intrusion! Cependant, Tuo Sen ne tua pas l'Empereur Divin du Dragon Azure et lança une nouvelle fois:
 
@@ -54,7 +54,7 @@ Il cherchait l'être qu'il devait dévorer!
 
 Cependant, cet individu semblait avoir disparu de ce monde. Malgré ses recherches acharnées, Tuo Sen ne put en trouver la moindre trace.
 
-L'apparition de Tuo Sen avait radicalement modifié la situation dans le Système Stellaire de l'Alliance, tout en la stabilisant. Les cultivateurs d'Allheaven s'étaient tous retirés vers leur propre système stellaire à cause de lui. Cette guerre qui durait depuis des centaines d'années prit fin grâce à Tuo Sen.
+L'apparition de Tuo Sen avait radicalement modifié la situation dans le Système Stellaire de l'Alliance, tout en la stabilisant. Les cultivateurs de Luotian s'étaient tous retirés vers leur propre système stellaire à cause de lui. Cette guerre qui durait depuis des centaines d'années prit fin grâce à Tuo Sen.
 
 Seul un rugissement qui fit trembler le système stellaire tout entier résonna avant son départ:
 

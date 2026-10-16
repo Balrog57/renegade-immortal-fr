@@ -24,7 +24,7 @@ S'il s'agissait d'un dieu ancien d'une seule étoile, cela ne ferait rire qu'un 
 
 Cependant, l'énorme Serpent aux yeux de lune qui se dressait devant Wang Lin n'avait rien d'une plaisanterie!
 
-Le corps de Wang Lin dégageait une lueur froide alors que sa vitesse et celle du garde céleste atteignaient leurs limites pour s'échapper en emportant l'os. Il avait tenté de l'absorber avec la Perle Défiant les Cieux, mais pour une raison quelconque, le processus était d'une lenteur exaspérante et ne pouvait s'achever en peu de temps.
+Le corps de Wang Lin dégageait une lueur froide alors que sa vitesse et celle du garde céleste atteignaient leurs limites pour s'échapper en emportant l'os. Il avait tenté de l'absorber avec la Perle Défiant le Ciel, mais pour une raison quelconque, le processus était d'une lenteur exaspérante et ne pouvait s'achever en peu de temps.
 
 À cet instant, un grondement violent résonna à travers la planète Yun Xia. Ce son était si puissant qu'il serait réducteur de ne l'appeler que tonnerre. Ce rugissement de rage retentit à travers les étoiles et put être entendu au loin.
 

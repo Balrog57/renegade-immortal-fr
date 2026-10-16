@@ -1,6 +1,6 @@
 ---
 n: 834
-title: Le Maître Flamespark réapparaît
+title: Le Maître Yan Leizi réapparaît
 book: 7
 bookTitle: Fame Shakes Allheaven Star System
 en: Chapter 834 - Master Flamespark Reappears
@@ -56,45 +56,45 @@ Si le Serpent aux yeux de lune s'éveillait pleinement, ce serait une catastroph
 
 À cet instant, trois silhouettes se tenaient dans l'espace, à 50 000 kilomètres de la zone où le Serpent aux yeux de lune semait le chaos. Ces figures étaient floues, mais chacune dégageait une aura terrifiante.
 
-Le Maître Flamespark comptait parmi les trois!
+Le Maître Yan Leizi comptait parmi les trois!
 
-Le Maître Flamespark esquissa un sourire et dit lentement: « Je ne pensais pas que ce petit gars les mènerait jusqu'à la bête lunaire. Cependant, s'il n'avait pas agi ainsi, il n'aurait pas attiré mon attention. »
+Le Maître Yan Leizi esquissa un sourire et dit lentement: « Je ne pensais pas que ce petit gars les mènerait jusqu'à la bête lunaire. Cependant, s'il n'avait pas agi ainsi, il n'aurait pas attiré mon attention. »
 
 « Chers compagnons cultivateurs, j'ai planifié cela depuis de nombreuses années, et cette bête lunaire fait partie de mon dessein. Je vous ai conduits ici pour que vous puissiez constater la puissance de la bête. »
 
-« Maintenant que vous l'avez vue, que pensez-vous de mon plan? » Le Maître Flamespark détourna son regard et sourit.
+« Maintenant que vous l'avez vue, que pensez-vous de mon plan? » Le Maître Yan Leizi détourna son regard et sourit.
 
-À ses côtés se tenait un homme d'âge moyen vêtu d'une robe violette, arborant un symbole yin et yang sur la poitrine. Il fronça les sourcils et déclara calmement: « Maître Flamespark, votre plan est une folie! »
+À ses côtés se tenait un homme d'âge moyen vêtu d'une robe violette, arborant un symbole yin et yang sur la poitrine. Il fronça les sourcils et déclara calmement: « Maître Yan Leizi, votre plan est une folie! »
 
 « D'un certain point de vue, c'est vrai, mais une fois qu'il réussira, cela augmentera notre taux de succès de 10 %! » La troisième personne était un vieillard en robe rouge. Bien qu'il ait une apparence douce, la froideur de son regard révélait qu'il n'était nullement bienveillant.
 
 L'homme en violet renifla mais ne reprit pas la parole.
 
-« C'est fou, certes, mais si les cultivateurs du Système Stellaire Allheaven entrent en guerre contre le Système Stellaire de l'Alliance, ils auront besoin d'une puissance suffisante, sans quoi ils n'auront aucune chance! »
+« C'est fou, certes, mais si les cultivateurs du Système Stellaire Luotian entrent en guerre contre le Système Stellaire de l'Alliance, ils auront besoin d'une puissance suffisante, sans quoi ils n'auront aucune chance! »
 
-« Trop peu de cultivateurs du Système Stellaire Allheaven ont connu des affrontements entre la vie et la mort. C'est le revers de la culture basée sur les clans familiaux. Dans le Système Stellaire de l'Alliance, on doit souvent se méfier des autres, même de ses propres compagnons de secte. La moindre négligence conduit à la mort. Cet environnement a rendu ceux qui en sont sortis extrêmement féroces et rusés! »
+« Trop peu de cultivateurs du Système Stellaire Luotian ont connu des affrontements entre la vie et la mort. C'est le revers de la culture basée sur les clans familiaux. Dans le Système Stellaire de l'Alliance, on doit souvent se méfier des autres, même de ses propres compagnons de secte. La moindre négligence conduit à la mort. Cet environnement a rendu ceux qui en sont sortis extrêmement féroces et rusés! »
 
 « En observant simplement Xu Mu, vous devriez mieux comprendre que je ne saurais l'expliquer! »
 
 L'homme d'âge moyen en violet réfléchit. L'homme en rouge sourit: « Ce Xu Mu est excellent. Il est tout à fait apte à devenir un sujet de ma planète Dong Lin! »
 
-Les yeux du Maître Flamespark brillèrent et il éclata de rire. « Les 108 titres célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Allheaven! »
+Les yeux du Maître Yan Leizi brillèrent et il éclata de rire. « Les 108 titres célestes que nous recherchons sont faits pour des gens comme lui! C'est avec eux en tête que nous pourrons mener un baptême sanglant aux cultivateurs du Système Stellaire Luotian! »
 
 « De ce point de vue, il semble que le vieux Dieu Sang soit le plus décisif. Pour que sa famille puisse s'adapter à la guerre sanglante du Système Stellaire de l'Alliance, il a été prêt à sacrifier ce trésor afin de permettre aux siens de subir ce baptême! » L'homme en rouge nommé Xiang sourit.
 
-« Le Dieu Sang veut simplement obtenir davantage de bénéfices lors du conflit contre le Système Stellaire de l'Alliance. Cependant, même moi, je ne m'attendais pas à une telle détermination. Ce trésor n'avait plus qu'un seul usage, et il ne l'a pas gardé pour lui... » Le Maître Flamespark secoua la tête avec une pointe de pitié dans les yeux, doublée d'une trace d'admiration.
+« Le Dieu Sang veut simplement obtenir davantage de bénéfices lors du conflit contre le Système Stellaire de l'Alliance. Cependant, même moi, je ne m'attendais pas à une telle détermination. Ce trésor n'avait plus qu'un seul usage, et il ne l'a pas gardé pour lui... » Le Maître Yan Leizi secoua la tête avec une pointe de pitié dans les yeux, doublée d'une trace d'admiration.
 
-L'homme d'âge moyen qui s'était tu soudainement dit froidement: « D'après nos enquêtes, ce Xu Mu vient du Système Stellaire de l'Alliance. Maître Flamespark, vous lui accordez tant d'importance; n'avez-vous pas peur qu'il nous trahisse une fois de retour chez lui? »
+L'homme d'âge moyen qui s'était tu soudainement dit froidement: « D'après nos enquêtes, ce Xu Mu vient du Système Stellaire de l'Alliance. Maître Yan Leizi, vous lui accordez tant d'importance; n'avez-vous pas peur qu'il nous trahisse une fois de retour chez lui? »
 
-Le regard du Maître Flamespark devint glacial. Il fixa l'homme et sourit: « Compagnon cultivateur Gong Sun, je suis moi aussi originaire du Système Stellaire de l'Alliance. N'avez-vous pas peur que, bien que j'aie organisé tout ceci, je finisse par vous trahir une fois revenu là-bas? »
+Le regard du Maître Yan Leizi devint glacial. Il fixa l'homme et sourit: « Compagnon cultivateur Gong Sun, je suis moi aussi originaire du Système Stellaire de l'Alliance. N'avez-vous pas peur que, bien que j'aie organisé tout ceci, je finisse par vous trahir une fois revenu là-bas? »
 
 L'homme en violet le regarda froidement, puis détourna les yeux sans poser davantage de questions.
 
-Le Maître Flamespark renifla avec mépris et pensa: « Durant cette période, j'ai enquêté sur les origines de ce Xu Mu. Il est traqué et a été contraint de fuir ici, une situation très similaire à la mienne. Avec son tempérament, les chances qu'il nous trahisse sont infimes. Et s'il le faisait, je n'aurais qu'à le tuer. Nul besoin que vous me fassiez la leçon! Qui se soucie d'une famille héritière de l'ancien temps? Vous ne méritez même pas mon attention! »
+Le Maître Yan Leizi renifla avec mépris et pensa: « Durant cette période, j'ai enquêté sur les origines de ce Xu Mu. Il est traqué et a été contraint de fuir ici, une situation très similaire à la mienne. Avec son tempérament, les chances qu'il nous trahisse sont infimes. Et s'il le faisait, je n'aurais qu'à le tuer. Nul besoin que vous me fassiez la leçon! Qui se soucie d'une famille héritière de l'ancien temps? Vous ne méritez même pas mon attention! »
 
-« Peu importe, puisque le Maître Flamespark est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire Allheaven. Réfléchissons maintenant à la manière de la chasser! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
+« Peu importe, puisque le Maître Yan Leizi est confiant, n'en parlons plus. Il est temps pour nous d'agir contre cette bête! Après tout, si trop de personnes meurent, ce sera une perte pour notre Système Stellaire Luotian. Réfléchissons maintenant à la manière de la chasser! » L'homme en rouge nommé Xiang regarda au loin, comme si son regard pouvait percer l'horizon à des dizaines de milliers de kilomètres.
 
-« Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Flamespark devint frénétique tandis que son corps vacilla et disparut. Les deux autres s'évanouirent également.
+« Ce n'est pas difficile. En unissant nos forces et avec l'aide de ces vieux monstres, une fois le passage ouvert, nous pourrons certainement la précipiter dans le Système Stellaire de l'Alliance. À ce moment-là... » Le regard du Maître Yan Leizi devint frénétique tandis que son corps vacilla et disparut. Les deux autres s'évanouirent également.
 
 Tandis que le Serpent aux yeux de lune déversait sa rage, ses innombrables tentacules balayaient l'espace, fauchant les vies des cultivateurs. L'espace environnant commença à se fragmenter, faisant trembler violemment le cœur des survivants et les empêchant de se téléporter.
 
@@ -110,4 +110,4 @@ L'homme en rouge cria: « Dépêchez-vous, je ne peux pas le contenir longtemps!
 
 La rage du Serpent aux yeux de lune sous le motif octogonal atteignit son paroxysme. Il poussa un rugissement et chargea vers le haut avec acharnement.
 
-Simultanément, la silhouette du Maître Flamespark surgit du vide devant le serpent. D'un revers de manches, il attira une multitude de cultivateurs qui disparurent instantanément.
+Simultanément, la silhouette du Maître Yan Leizi surgit du vide devant le serpent. D'un revers de manches, il attira une multitude de cultivateurs qui disparurent instantanément.

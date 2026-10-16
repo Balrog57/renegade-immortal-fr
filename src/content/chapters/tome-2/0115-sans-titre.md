@@ -50,7 +50,7 @@ Les paroles de Lin Yi laissèrent l'assemblée stupéfaite. Bien qu'il fût dél
 
 Teng Huayuan n'osait faire preuve d'arrogance devant Lin Yi, mais il ne put s'empêcher de froncer les sourcils, incapable de saisir l'implication de ses propos.
 
-Les yeux de Punnan Zi s'illuminèrent tandis qu'il observait le jeune homme en l'air avec une expression étrange. Plus il le regardait, plus ce dernier lui semblait familier, mais malgré de longues réflexions, il ne parvint pas à mettre un nom sur ce visage et fut plongé dans la confusion. Il se disait que, peu importe l'apparence de ce jeune homme, il n'était qu'au stade de l'Établissement des Fondations; alors pourquoi Teng Huayuan hésitait-il à agir?
+Les yeux de Pu Nanzi s'illuminèrent tandis qu'il observait le jeune homme en l'air avec une expression étrange. Plus il le regardait, plus ce dernier lui semblait familier, mais malgré de longues réflexions, il ne parvint pas à mettre un nom sur ce visage et fut plongé dans la confusion. Il se disait que, peu importe l'apparence de ce jeune homme, il n'était qu'au stade de l'Établissement des Fondations; alors pourquoi Teng Huayuan hésitait-il à agir?
 
 Non seulement lui, mais tous les cultivateurs au stade de l'Âme Naissante étaient profondément perplexes.
 

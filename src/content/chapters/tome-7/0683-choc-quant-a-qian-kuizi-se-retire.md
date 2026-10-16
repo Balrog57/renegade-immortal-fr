@@ -84,7 +84,7 @@ Le visage de Qian Kuizi était pâle lorsqu'il dit rapidement: « Jeune ami, par
 
 « J'ai effectivement tenté de voler quelque chose au Temple Céleste du Tonnerre, c'est vraiment... » Le visage de Qian Kuizi était empreint d'amertume.
 
-Il pouvait provoquer n'importe quelle famille du Système Stellaire d'Allheaven, mais il n'oserait jamais provoquer le Temple Céleste du Tonnerre. Il n'osait même pas leur témoigner la moindre marque d'irrespect. Pour lui, les trois mots « Temple Céleste du Tonnerre » désignaient une existence intouchable.
+Il pouvait provoquer n'importe quelle famille du Système Stellaire de Luotian, mais il n'oserait jamais provoquer le Temple Céleste du Tonnerre. Il n'osait même pas leur témoigner la moindre marque d'irrespect. Pour lui, les trois mots « Temple Céleste du Tonnerre » désignaient une existence intouchable.
 
 À l'origine, compte tenu de son niveau de culture et de sa force mentale, il n'aurait pas cru aussi fermement que Wang Lin appartenait au Temple Céleste du Tonnerre. En fin de compte, ce qui lui avait donné cette certitude, c'était la Bête du Tonnerre!
 
@@ -102,7 +102,7 @@ Après une courte hésitation, Qian Kuizi eut un sourire forcé. « Jeune ami, j
 
 « Je veux des jades célestes », dit Wang Lin en regardant calmement Qian Kuizi.
 
-Qian Kuizi fut surpris: « Votre Temple Céleste du Tonnerre manque encore de jades célestes? Soit, je te les donnerai! » Il sourit amèrement intérieurement, pensant que c'était là le prix de sa cupidité. On ne provoquait pas les gens du Temple Céleste du Tonnerre. Même en ignorant le fait que chacun d'eux possédait un sortilège de protection vitale, s'il tuait cet individu, il n'y aurait plus une seule place dans tout le Système Stellaire d'Allheaven pour que sa famille Qian puisse exister!
+Qian Kuizi fut surpris: « Votre Temple Céleste du Tonnerre manque encore de jades célestes? Soit, je te les donnerai! » Il sourit amèrement intérieurement, pensant que c'était là le prix de sa cupidité. On ne provoquait pas les gens du Temple Céleste du Tonnerre. Même en ignorant le fait que chacun d'eux possédait un sortilège de protection vitale, s'il tuait cet individu, il n'y aurait plus une seule place dans tout le Système Stellaire de Luotian pour que sa famille Qian puisse exister!
 
 « Si ce garçon veut des jades célestes, je parie qu'il en veut une quantité astronomique. Il n'a pas précisé le nombre, il compte donc sur moi pour décider... » Qian Kuizi serra les dents et sortit un sac de rangement. Le cœur lourd, il lança le sac à Wang Lin avant de faire volte-face pour s'envoler vers la planète Mille Illusions.
 

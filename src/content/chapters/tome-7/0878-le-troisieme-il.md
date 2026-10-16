@@ -20,7 +20,7 @@ Dans le Temple Céleste du Tonnerre, sur la place, le garçon à la grosse tête
 
 « Non... »
 
-Le Maître Flamespark ordonna: « Assieds-toi! »
+Le Maître Yan Leizi ordonna: « Assieds-toi! »
 
 Le corps du garçon à la grosse tête tremblait, son cœur battait la chamade et son esprit était en plein chaos. Plus tôt, il avait voulu tout donner pour traquer le corps de Wang Lin et se venger. Cependant, en jetant un regard autour de lui, il constata qu'il n'y avait que 108 personnes. Quatre manquaient à l'appel!
 
@@ -48,7 +48,7 @@ Shengong Hu laissa ses pensées vagabonder. Après avoir hésité un moment, il 
 
 Wang Lin parcourut le champ de bataille avec un sourire narquois.
 
-« Quel magnifique champ de massacre. Des vrais parmi les faux, et des faux parmi les vrais! Le plan du Maître Flamespark est d'une profondeur redoutable! Je l'admire! En excluant les 108 personnes à l'extérieur, quatre sur 112 sont entrées avec leurs corps réels! Les deux que j'ai tués plus tôt possédaient leurs sacs, il en reste donc un autre près de moi! Je ne sais juste pas qui c'est. »
+« Quel magnifique champ de massacre. Des vrais parmi les faux, et des faux parmi les vrais! Le plan du Maître Yan Leizi est d'une profondeur redoutable! Je l'admire! En excluant les 108 personnes à l'extérieur, quatre sur 112 sont entrées avec leurs corps réels! Les deux que j'ai tués plus tôt possédaient leurs sacs, il en reste donc un autre près de moi! Je ne sais juste pas qui c'est. »
 
 Tandis que Wang Lin progressait, son sens divin se propageait sans aucune restriction. S'il détectait un cultivateur, il se précipitait immédiatement sur lui. En chemin, Wang Lin ne montrait aucune pitié. Puisqu'il s'agissait d'un champ de massacre, quiconque y entrait était prêt à tuer ou à être tué. Et comme ces morts n'étaient pas définitives, tous les cultivateurs rencontrés par Wang Lin peinaient à s'échapper! Cependant, avant de frapper, Wang Lin vérifiait si l'autre pouvait ouvrir son sac de rangement ou non. S'il ne le pouvait pas, alors il attaquait.
 
@@ -152,7 +152,7 @@ Shengong Hu prit une profonde inspiration en regardant Wang Lin. Cette lumière 
 
 Alors que les yeux du cultivateur aux six doigts étaient remplis de terreur, ils brillèrent aussi d'une lueur de férocité. Il se rua sur Wang Lin!
 
-« Il doit être blessé, c'est donc ma meilleure chance de le tuer. Une fois que j'aurai tué le Maître Démon, même si ce n'est qu'un monde illusoire, moi, Zhou Xingdao, je deviendrai célèbre dans tout le Système Stellaire d'Allheaven!! » Le cultivateur aux six doigts se déplaçait comme l'éclair, le cœur battant à tout rompre. Un éclat de lumière bleue apparut sur son sixième doigt.
+« Il doit être blessé, c'est donc ma meilleure chance de le tuer. Une fois que j'aurai tué le Maître Démon, même si ce n'est qu'un monde illusoire, moi, Zhou Xingdao, je deviendrai célèbre dans tout le Système Stellaire de Luotian!! » Le cultivateur aux six doigts se déplaçait comme l'éclair, le cœur battant à tout rompre. Un éclat de lumière bleue apparut sur son sixième doigt.
 
 Il était trop rapide et atteignit Wang Lin en un instant.
 

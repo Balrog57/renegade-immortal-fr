@@ -30,7 +30,7 @@ Wang Lin ouvrit les yeux et secoua silencieusement la tête. Il s'éloigna d'un 
 
 Il marchait très lentement, le regard perdu parmi les étoiles. Tout lui semblait si familier, mais plus ce sentiment était pur, plus sa mélancolie grandissait.
 
-Il ne comprenait pas pourquoi il se sentait plus accablé que lorsqu'il était revenu d'Allheaven. Peut-être avait-il trop vécu et été allé trop loin cette fois...
+Il ne comprenait pas pourquoi il se sentait plus accablé que lorsqu'il était revenu de Luotian. Peut-être avait-il trop vécu et été allé trop loin cette fois...
 
 « Ne fais pas ça. Si tu es dans cet état, ce roi sera triste lui aussi... Ce roi ressent aussi la nostalgie du pays. Petit Rouge, Petit Argent, où êtes-vous passés, espèces de garnements? Pourquoi ne venez-vous pas trouver ce roi? Le pays me manque, je veux rentrer chez moi... » Le fou suivait Wang Lin, lentement imprégné par les émotions de ce dernier, finissant lui aussi par sombrer dans la déprime.
 

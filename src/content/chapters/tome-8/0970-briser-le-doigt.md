@@ -94,7 +94,7 @@ Alors que le doigt pressait vers lui, l'expression de Wang Lin devint sombre. Il
 
 « L'Omniscient ne m'a même pas demandé le Yang Extrême. Il y a quelque chose derrière tout cela! » Wang Lin poussa un soupir, mais son intention de combat ne faiblit pas. Ses yeux s'illuminèrent alors qu'il frappait son sac de stockage, faisant apparaître un fragment de la taille d'une main dans sa paume.
 
-Ce fragment lui avait été offert par Maître Flamespark après que Wang Lin eut accompli de grands exploits pour Allheaven!
+Ce fragment lui avait été offert par Maître Yan Leizi après que Wang Lin eut accompli de grands exploits pour Luotian!
 
 Alors que le doigt géant descendait, une bourrasque puissante se leva, comme pour éteindre la vie de Wang Lin. La terre autour de lui s'effondra à nouveau. La zone était déjà dévastée, et maintenant elle s'enfonçait davantage!
 

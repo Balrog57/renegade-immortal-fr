@@ -6,7 +6,7 @@ bookTitle: Arriving on Tian Yun
 en: Chapter 566 - Hu Pao, The Old Man, And The Armor
 slug: hu-pao-le-vieil-homme-et-larmure
 ---
-La vallée centrale de la Tribu du Raffinement de l'Âme était un domaine qui n'appartenait qu'à Wang Lin. En ce moment, il était assis au cœur de la vallée, tandis que Treize se tenait agenouillé devant lui, le regard brillant d'excitation.
+La vallée centrale de la Tribu du Affinement de l'Âme était un domaine qui n'appartenait qu'à Wang Lin. En ce moment, il était assis au cœur de la vallée, tandis que Treize se tenait agenouillé devant lui, le regard brillant d'excitation.
 
 Cela faisait déjà trois jours que Wang Lin était revenu à la tribu, et il avait réveillé Treize par un sortilège.
 
@@ -14,15 +14,15 @@ Dès son réveil, Treize avait vu Wang Lin, et son cœur s'était instantanémen
 
 Après avoir évoqué Hu Pao, Wang Lin laissa échapper un soupir. La disparition de Hu Pao de la Prison des Ténèbres était très étrange. Avec son Sens Divin au sommet du stade tardif de la Transformation de l'Âme, il avait balayé toute la ville sans trouver la moindre trace de lui.
 
-Hu Pao pratiquait la technique de raffinement de l'âme que Wang Lin lui avait enseignée; par conséquent, en fin de compte, le contrôle ultime des fragments d'âme appartenait à Wang Lin. Pourtant, Wang Lin ne parvenait pas à localiser les fragments d'âme raffinés par Hu Pao.
+Hu Pao pratiquait la technique de affinement de l'âme que Wang Lin lui avait enseignée; par conséquent, en fin de compte, le contrôle ultime des fragments d'âme appartenait à Wang Lin. Pourtant, Wang Lin ne parvenait pas à localiser les fragments d'âme raffinés par Hu Pao.
 
 « Si Hu Pao n'est pas mort, il doit se trouver dans un lieu mystérieux. Il n'y a aucune autre explication à mon incapacité à le trouver... » Wang Lin réfléchit un instant avant de renoncer à cette affaire. Il avait déjà fait tout ce qu'il pouvait.
 
 Il leva les yeux pour regarder Treize. L'une des raisons pour lesquelles il avait emmené Hu Pao et Treize à la Cité du Démon Antique était de les tester.
 
-S'ils réussissaient l'épreuve, il leur enseignerait de nouvelles techniques. Pour Hu Pao, outre le raffinement de l'âme, il y avait aussi l'extraction d'âmes!
+S'ils réussissaient l'épreuve, il leur enseignerait de nouvelles techniques. Pour Hu Pao, outre le affinement de l'âme, il y avait aussi l'extraction d'âmes!
 
-Cependant, ce sortilège d'extraction d'âmes exigeait bien plus d'efforts que le raffinement de l'âme. Bien que Wang Lin l'ait modifié, il ne l'enseignerait pas à la légère.
+Cependant, ce sortilège d'extraction d'âmes exigeait bien plus d'efforts que le affinement de l'âme. Bien que Wang Lin l'ait modifié, il ne l'enseignerait pas à la légère.
 
 Quant à Treize, l'idée initiale de lui transmettre la Tactique du Dieu Antique fut immédiatement écartée. La Tactique du Dieu Antique était une chose qu'il ne pourrait jamais enseigner!
 
@@ -36,13 +36,13 @@ Wang Lin le scruta avec son Sens Divin et pensa: « C'est bien ça! » Les Neuf 
 
 Treize saisit le jade avec excitation. Sa gratitude envers Wang Lin était déjà indescriptible. Il se prosterna au sol, effectua plusieurs kowtows et s'exclama: « Ancêtre, Treize ne vous écoutera que vous pour le reste de sa vie! »
 
-« Garde bien la Tribu du Raffinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
+« Garde bien la Tribu du Affinement de l'Âme. Maintenant, va! » Wang Lin agita sa main droite et une brise légère envoya Treize hors de la vallée.
 
 Wang Lin resta seul dans la vallée. Le ciel était voilé par un brouillard noir. Ce brouillard était formé par le Drapeau d'un Milliard d'Âmes, et son utilisation pour nourrir les fragments d'âme offrait les meilleurs résultats possibles.
 
 « Je me sentais en sécurité en laissant le drapeau ici lorsque j'étais à la Cité du Démon Antique. Cependant, la capitale est trop loin, je ne peux donc pas laisser le drapeau ici! » Wang Lin leva les yeux vers le brouillard noir dans le ciel avant de fermer les yeux pour commencer sa culture.
 
-À ce moment-là, loin à l'ouest de la Tribu du Raffinement de l'Âme, presque à mi-chemin à travers le Pays du Démon Céleste, s'étendait un désert infini.
+À ce moment-là, loin à l'ouest de la Tribu du Affinement de l'Âme, presque à mi-chemin à travers le Pays du Démon Céleste, s'étendait un désert infini.
 
 Cet endroit était réputé pour être une zone extrêmement périlleuse dans les Terres des Esprits Démoniaques!
 
@@ -70,7 +70,7 @@ L'expression du vieillard resta glaciale: « Si ce n'était pas pour le fait que
 
 Hu Pao afficha une expression complexe et déclara: « Si je peux raffiner tous les fragments d'âme ici, la première chose que je ferai sera de tuer ce Wang Lin! »
 
-Le vieil homme regarda Hu Pao et demanda: « Il t'a pourtant enseigné le sort de raffinement de l'âme. Pourquoi t'obstines-tu à vouloir sa mort? »
+Le vieil homme regarda Hu Pao et demanda: « Il t'a pourtant enseigné le sort de affinement de l'âme. Pourquoi t'obstines-tu à vouloir sa mort? »
 
 Hu Pao réfléchit un instant avant de ricaner: « Bien qu'il m'ait enseigné ce sort, il avait des intentions cachées. Si Wang Lin n'avait pas provoqué la colère de Sima Yan, je n'aurais jamais été jeté dans la Prison des Ténèbres! »
 
@@ -106,8 +106,8 @@ Après un long moment, la lueur se posa sur les yeux du vieil homme, comme pour 
 
 Le corps du vieillard était trempé de sueur lorsqu'il dit simplement: « Oui! » Il se leva ensuite et quitta respectueusement le sommet de la tour. Il redescendit au premier étage et s'assit en position du lotus, paraissant nettement plus détendu cette fois-ci.
 
-« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de raffinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en deux heures de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
+« Si cet enfant, Hu Pao, parvient à absorber une multitude de fragments d'âme, alors en combinant la nature mystérieuse de la technique de affinement de l'âme et mes compétences en alchimie, sa culture pourra progresser rapidement en peu de temps. Je le laisserai ensuite pratiquer l'Art Momentané du Maître afin de condenser toute sa longévité et son potentiel en deux heures de puissance, pour qu'il devienne l'un des Gardiens Démoniaques! »
 
-« Ce sort de raffinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne peut pas rester éveillé trop longtemps, je ne peux donc pas gaspiller son temps avec une si petite affaire... »
+« Ce sort de affinement de l'âme est très mystérieux, mais j'ai le sentiment qu'un défaut s'y cache. Cependant, le Maître ne peut pas rester éveillé trop longtemps, je ne peux donc pas gaspiller son temps avec une si petite affaire... »
 
-« Si ce n'était pas pour le fait que Hu Pao maîtrise ce sort de raffinement mystérieux, il n'aurait ni les qualifications ni le statut nécessaires pour devenir un Gardien Démoniaque! Si cette expérience réussit, je devrai aller inspecter cette Tribu du Raffinement de l'Âme! »
+« Si ce n'était pas pour le fait que Hu Pao maîtrise ce sort de raffinement mystérieux, il n'aurait ni les qualifications ni le statut nécessaires pour devenir un Gardien Démoniaque! Si cette expérience réussit, je devrai aller inspecter cette Tribu du Affinement de l'Âme! »

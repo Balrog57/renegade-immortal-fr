@@ -1,6 +1,6 @@
 ---
 n: 1653
-title: En route vers Allheaven
+title: En route vers Luotian
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1653 - Heading to Allheaven
@@ -72,9 +72,9 @@ Dès que Wang Lin ouvrit les yeux, des milliers de têtes, y compris celle du vi
 
 Il jeta un dernier regard sur la Mer des Nuages avant de se diriger vers sa destination finale!
 
-Cet endroit était Allheaven. C'était là que se trouvaient beaucoup de personnes familières pour Wang Lin. C'était là que la bataille ultime devait se jouer!
+Cet endroit était Luotian. C'était là que se trouvaient beaucoup de personnes familières pour Wang Lin. C'était là que la bataille ultime devait se jouer!
 
-Wang Lin marcha vers Allheaven tandis que les hurlements des dizaines de milliers de têtes résonnaient à travers les étoiles. Sous ses pas, la roue immobile le suivait.
+Wang Lin marcha vers Luotian tandis que les hurlements des dizaines de milliers de têtes résonnaient à travers les étoiles. Sous ses pas, la roue immobile le suivait.
 
 « Formation du Karma, manifeste-toi! » La voix de Wang Lin résonna faiblement. Les dizaines de milliers de têtes volèrent au-dessus de lui et pivotèrent pour former un nouveau vortex gigantesque.
 
@@ -84,9 +84,9 @@ La main droite de Wang Lin se referma lentement en un poing. Au moment où il fe
 
 Wang Lin était ainsi encadré par deux roues, l'une au-dessus, l'autre en dessous. Il trônait entre elles tel un dieu céleste contrôlant la vie, la mort et le karma. Ses longs cheveux blancs flottants dégageaient une intention meurtrière glaciale.
 
-« Allheaven... » La silhouette de Wang Lin vacilla et il disparut avec les deux roues. Lorsqu'il réapparut, il se trouvait à Allheaven.
+« Luotian... » La silhouette de Wang Lin vacilla et il disparut avec les deux roues. Lorsqu'il réapparut, il se trouvait à Luotian.
 
-À Allheaven, des centaines de milliers de cultivateurs du Royaume Extérieur encerclaient la formation planétaire des 999 planètes. Les cultivateurs du Royaume Intérieur restants sur ces mondes affichaient tous une expression de douleur. Ils savaient que le Royaume Intérieur avait perdu cette guerre!
+À Luotian, des centaines de milliers de cultivateurs du Royaume Extérieur encerclaient la formation planétaire des 999 planètes. Les cultivateurs du Royaume Intérieur restants sur ces mondes affichaient tous une expression de douleur. Ils savaient que le Royaume Intérieur avait perdu cette guerre!
 
 Ces 999 planètes de culture avaient été choisies dans les quatre grands systèmes stellaires et constituaient le fondement même du Royaume Intérieur. Pourtant, elles ne pouvaient contenir les signes d'effondrement face aux sorts des cultivateurs du Royaume Extérieur qui les bombardaient. On aurait dit qu'elles pouvaient être détruites à tout instant.
 
@@ -112,7 +112,7 @@ Avec la présence de ces cultivateurs du Vide Arcanique, les cultivateurs du Roy
 
 Outre ces experts, sept autres cultivateurs de la troisième étape étaient présents. Leurs niveaux variaient du Vide Nirvana au Vide Esprit. C'étaient eux qui menaient les assauts du Royaume Extérieur depuis sept directions différentes.
 
-Ces grondements tonitruants résonnaient dans tout Allheaven et secouaient l'esprit de chacun.
+Ces grondements tonitruants résonnaient dans tout Luotian et secouaient l'esprit de chacun.
 
 En plus de ces sept individus, une femme se trouvait parmi le groupe des cultivateurs du Royaume Extérieur. Cette femme était d'une grande beauté et contemplait la formation planétaire d'un regard froid, mais une pointe d'inquiétude se cachait dans ses yeux.
 

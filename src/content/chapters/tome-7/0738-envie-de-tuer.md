@@ -64,7 +64,7 @@ Cette question lui brûlait le cœur depuis qu'il avait découvert l'existence d
 
 Après sa rencontre avec Shengong Hu, Wang Lin fit quelques suppositions et commença à comprendre.
 
-Outre les jades célestes, le Royaume Céleste du Tonnerre recelait des pilules et des trésors célestes. Bien que certains soient pillés à chaque ouverture, il en restait toujours. Quant à savoir si l'on pouvait en trouver, tout dépendait de la fortune de chacun. Des rumeurs circulaient même sur l'existence de sorts célestes complets. Bien que la plupart fussent lacunaires, les cultivateurs du Système Stellaire d'Allheaven étaient convaincus que des sorts intègrait y existaient!
+Outre les jades célestes, le Royaume Céleste du Tonnerre recelait des pilules et des trésors célestes. Bien que certains soient pillés à chaque ouverture, il en restait toujours. Quant à savoir si l'on pouvait en trouver, tout dépendait de la fortune de chacun. Des rumeurs circulaient même sur l'existence de sorts célestes complets. Bien que la plupart fussent lacunaires, les cultivateurs du Système Stellaire de Luotian étaient convaincus que des sorts intègrait y existaient!
 
 À cela s'ajoutait une autre raison cruciale: à ce jour, huit corps de célestiaux parfaitement intacts avaient été découverts dans le Royaume Céleste du Tonnerre.
 
@@ -72,7 +72,7 @@ Si l'on trouvait le reste d'un être céleste, même un simple indice, on pouvai
 
 Si l'on parvenait à obtenir un corps de célestiaux par ses propres moyens pour le remettre au Temple, les gains personnels seraient inimaginables. Même pour la famille du découvreur, ce serait une récolte prodigieuse. De plus, si celui qui trouvait le corps possédait suffisamment de talent, il pourrait même devenir le disciple de l'un des dix grands Anciens. Dès lors, il s'élèverait au-dessus des autres et son avenir serait sans limites!
 
-Mais ce qui attirait véritablement les cultivateurs de la deuxième étape du Système Stellaire d'Allheaven, c'étaient les puits d'énergie originelle!
+Mais ce qui attirait véritablement les cultivateurs de la deuxième étape du Système Stellaire de Luotian, c'étaient les puits d'énergie originelle!
 
 Il y a plus de 10 000 ans, un cultivateur découvrit un puits d'énergie originelle semi-abandonné. Ce dernier n'était qu'au stade Ascendant, mais après avoir cultivé dans ce puits, il franchit miraculeusement la première étape pour atteindre la deuxième!
 
@@ -84,7 +84,7 @@ L'énergie originelle contenue dans ces puits était d'une richesse extrême et 
 
 Diverses rumeurs propagées par divers individus attirèrent d'innombrables cultivateurs vers le Royaume Céleste du Tonnerre.
 
-En plus des puits, les cultivateurs d'Allheaven utilisaient un outil appelé « outil originel ». L'énergie qu'il contenait différait de celle des jades célestes. Si un cultivateur de la première étape l'absorbait, elle se transformait en énergie spirituelle céleste, mais si un cultivateur de la deuxième étape l'absorbait, elle devenait de l'énergie originelle!
+En plus des puits, les cultivateurs de Luotian utilisaient un outil appelé « outil originel ». L'énergie qu'il contenait différait de celle des jades célestes. Si un cultivateur de la première étape l'absorbait, elle se transformait en énergie spirituelle céleste, mais si un cultivateur de la deuxième étape l'absorbait, elle devenait de l'énergie originelle!
 
 Toutes ces raisons avaient tenté Wang Lin. Il s'étonnait également de n'avoir jamais entendu parler de telles choses dans le Royaume Céleste de la Pluie.
 
@@ -98,13 +98,13 @@ Wang Lin s'arrêta, fixant la scène.
 
 Sur un fragment quelque part dans le Royaume Céleste du Tonnerre, un vieil homme, les mains derrière le dos, contemplait une montagne imposante. Il se lécha les lèvres, prêt à avancer, mais s'arrêta soudainement comme s'il avait détecté quelque chose, puis rit. « Ce petit gars a pris un raccourci, sans quoi il lui aurait été impossible de partir en sept jours. Mais prendre un raccourci n'est pas un mal. Puisque tu souhaites tant devenir l'homme du destin de ce vieil homme, alors je l'accepterai avec réticence! »
 
-« Cependant, des affaires plus importantes m'attendent. Ce vieil homme a préparé des matériaux pendant des dizaines de milliers d'années pour que ce projet réussisse enfin! Une fois que j'aurai récupéré cette âme de montagne et mis en place la Grande Formation d'Allheaven, je viendrai te trouver! »
+« Cependant, des affaires plus importantes m'attendent. Ce vieil homme a préparé des matériaux pendant des dizaines de milliers d'années pour que ce projet réussisse enfin! Une fois que j'aurai récupéré cette âme de montagne et mis en place la Grande Formation de Luotian, je viendrai te trouver! »
 
 Les yeux du vieil homme brillaient d'excitation. Avec son expérience, peu de choses pouvaient l'émouvoir. Si quelque chose apportait de l'allégresse à sa vie, c'était ce plan terrifiant sur lequel il travaillait depuis des millénaires!
 
 Le vieil homme gloussa en faisant un pas vers la montagne imposante.
 
-« Ce vieil homme deviendra le premier du Système Stellaire d'Allheaven! Une fois ce plan achevé, je pourrai balayer le Système Stellaire de l'Alliance et faire mourir ce maudit Maître Zhong Xuan sans qu'il n'ait de sépulture! »
+« Ce vieil homme deviendra le premier du Système Stellaire de Luotian! Une fois ce plan achevé, je pourrai balayer le Système Stellaire de l'Alliance et faire mourir ce maudit Maître Zhong Xuan sans qu'il n'ait de sépulture! »
 
 Quant à Wang Lin, il atterrit lentement, tendit la main et extirpa l'objet du sol. L'objet était incomplet, comme s'il s'agissait d'un fragment de vase.
 

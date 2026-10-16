@@ -30,7 +30,7 @@ Ses yeux devinrent froids et un sourire sardonique étira ses lèvres tandis qu'
 
 Passant de Yang Corporel à Scruteur du Nirvana, qui était au rang 1 d'Immortel Céleste, il atteignit rapidement le début du stade Scruteur du Nirvana, soit le rang 3 d'Immortel Céleste.
 
-« Maître Sans Souci, vous m'avez bien trompé!! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 d'Immortel Céleste, sans même ralentir.
+« Maître Xiaoyaozi, vous m'avez bien trompé!! » Les yeux de Long Daozi se remplirent d'une intention meurtrière alors que sa culture explosait. Elle grimpa au rang 6 d'Immortel Céleste, sans même ralentir.
 
 En poursuivant sa course, l'expression de Wang Lin changea légèrement. Il pouvait sentir que les fluctuations d'énergie spirituelle céleste émanant du coffre devenaient de plus en plus puissantes.
 
@@ -42,7 +42,7 @@ Et cela ne s'arrêta pas là. Lorsque sa culture atteignit le rang 9 d'Immortel 
 
 Sa culture avait transcendé le niveau d'Immortel Céleste pour atteindre celui de Roi Céleste!
 
-« Rang 3 Roi Céleste! Maître Sans Souci, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
+« Rang 3 Roi Céleste! Maître Xiaoyaozi, vous n'êtes qu'un Roi Céleste de rang 9. Désormais, moi aussi, Long Daozi, je suis un Roi Céleste! Une fois que j'aurai tué ce junior et pris son trésor, tant que je ne retournerai pas dans le Royaume Céleste, vous ne me trouverez jamais dans ce vaste monde! » Long Daozi éclata de rire en levant la main pour presser le couvercle du cercueil. Celui-ci s'envola et Long Daozi en sortit fièrement.
 
 Wang Lin s'arrêta net, l'expression extrêmement sombre. Cependant, ses yeux se plissèrent alors qu'il observait la scène.
 
@@ -64,7 +64,7 @@ Les yeux de Long Daozi furent envahis par la terreur. Tel un fou, il hurla avec 
 
 Long Daozi rugit vers les cieux: « Maître, je vous ai protégé pendant d'innombrables années! Pourquoi voulez-vous me tuer?! Vous aviez dit que tant qu'il resterait une parcelle d'âme, ce coffre pourrait l'aider à se reformer. Je l'ai utilisé pour récupérer mon corps, alors pourquoi s'est-il effondré?! Pourquoi?! »
 
-« Maître Sans Souci, si je ne vous avais pas aidé à trouver les indices du Coffre Évitant le Ciel, comment aurais-je pu briser la loi céleste?! Et pourtant, vous me traitez ainsi!! Je crains que si j'avais écouté vos conseils et que j'étais entré dans le coffre après le réveil de votre fils, le résultat aurait été le même!! Vous vouliez ma mort! » La tête de Long Daozi se dissipa progressivement. Son âme originelle s'effondra également pour ne devenir qu'une partie du néant.
+« Maître Xiaoyaozi, si je ne vous avais pas aidé à trouver les indices du Coffre Évitant le Ciel, comment aurais-je pu briser la loi céleste?! Et pourtant, vous me traitez ainsi!! Je crains que si j'avais écouté vos conseils et que j'étais entré dans le coffre après le réveil de votre fils, le résultat aurait été le même!! Vous vouliez ma mort! » La tête de Long Daozi se dissipa progressivement. Son âme originelle s'effondra également pour ne devenir qu'une partie du néant.
 
 Comme la poussière retournant à la poussière et la terre à la terre...
 
@@ -84,7 +84,7 @@ Wang Lin saisit le cercueil. Le regard sérieux, il l'examina avec précaution a
 
 En voyant cet objet, il pensa à Li Muwan.
 
-« Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'Omniscient, il s'était rendu dans le système stellaire Allheaven pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
+« Planète Dong Lin! Avec ma culture actuelle, je devrais pouvoir y jeter un œil! » Les yeux de Wang Lin brillèrent d'une lueur intense. Outre le besoin d'éviter l'Omniscient, il s'était rendu dans le système stellaire Luotian pour chercher la famille Xiang sur la planète Dong Lin, afin de trouver un moyen de ressusciter Li Muwan.
 
 Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsque cette femme avait évoqué le réveil de Li Muwan dans l'Abîme des Marées.
 
@@ -92,7 +92,7 @@ Wang Lin n'oublierait jamais le choc et l'impulsion qu'il avait ressentis lorsqu
 
 Peu importe la difficulté ou le danger, Wang Lin choisirait de tout affronter! Il y a des choses dans la vie que l'on doit accomplir, quels que soient les périls!
 
-Dans la partie ouest du système stellaire Allheaven, au plus profond du Domaine Étrange, personne n'avait mis les pieds depuis une éternité. L'endroit semblait être une zone interdite, saturée d'un brouillard gris si dense qu'on ne pouvait voir à plus de trente-trois mètres.
+Dans la partie ouest du système stellaire Luotian, au plus profond du Domaine Étrange, personne n'avait mis les pieds depuis une éternité. L'endroit semblait être une zone interdite, saturée d'un brouillard gris si dense qu'on ne pouvait voir à plus de trente-trois mètres.
 
 La brume dérivait lentement, comme promise à l'éternité.
 
@@ -120,4 +120,4 @@ Poussé par le brouillard, Wang Lin se retourna lorsqu'il fut sorti et vit la b�
 
 La bête remarqua également Wang Lin et sa troupe. Elle referma lentement sa gueule avant de reculer pour disparaître dans les profondeurs. Hormis le tourbillon de brume, sa silhouette était désormais invisible.
 
-Wang Lin avait disparu pendant près de six mois avant de réapparaître dans le système stellaire Allheaven. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux pointait sa lance directement vers Wang Lin!
+Wang Lin avait disparu pendant près de six mois avant de réapparaître dans le système stellaire Luotian. À cet instant précis, deux événements apocalyptiques qui secouèrent tous les cultivateurs venaient de se produire! Et l'un d'eux pointait sa lance directement vers Wang Lin!
