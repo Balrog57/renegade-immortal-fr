@@ -52,7 +52,7 @@ Le sens divin de Wang Lin la suivit rapidement, et son expression changea aussit
 
 Au centre de la grotte se trouvait un petit morceau de jade blanc émettant une dense énergie spirituelle céleste.
 
-Outre le jade, reposait un squelette aux os noirs. Des lambeaux de vêtements jonchaient les restes, mais devant sa poitrine se trouvait un morceau de métal qui dégageait une pression puissante.
+Outre le jade, reposait un squelette aux os noirs. Des lambeaux de vêtements jonchaient les restes, mais devant sa poitrine se trouvait un morceau de métal doré qui dégageait par moments une pression puissante.
 
 En plus de tout cela, cet individu tenait également une épée. Cette arme ressemblait étrangement à l'épée céleste qu'il avait aperçue dans l'illusion.
 
@@ -108,7 +108,7 @@ Mais une pression puissante émana soudain de l'arme. C'était comme si la main 
 
 Il décida de renoncer au morceau de métal et s'élança hors de la grotte en longeant la paroi. L'essaim retourna dans la cavité, suivie d'un rugissement terrifiant provenant de l'intérieur. La ligne noire jaillit de la grotte et agita son corps un court instant avant de poursuivre la direction prise par Wang Lin.
 
-Wang Lin se déplaçait aussi vite que possible à travers les cavernes; en volant, il libéra des âmes errantes d'un simple commandement pour tenter de confondre la ligne noire qui le traquait.
+Wang Lin se déplaçait aussi vite que possible à travers les cavernes; en chemin, il pointa le doigt entre ses sourcils pour appeler des âmes errantes, leur laissa à chacune une trace de pensée divine puis les dispersa, afin de confondre la ligne noire qui le traquait.
 
 Tout au long de sa fuite, il sentait les âmes errantes être détruites une à une. À travers elles, il pouvait voir que la ligne noire semblait avoir sombré dans la folie, car elle perçait les murs des grottes et annihilait chaque âme sur son passage.
 

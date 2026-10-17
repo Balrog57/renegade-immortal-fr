@@ -13,7 +13,7 @@ Chi Hu sourit et répondit: « Il sera certes difficile si nous ne sommes que de
 
 Les yeux de Wang Lin s'illuminèrent. Il déclara: « Je ne peux pas vous donner de réponse immédiate. Laissez-moi y réfléchir quelques jours. »
 
-Chi Hu acquiesça. « Naturellement! Que diriez-vous de ceci: si le frère Ceng accepte, rejoignez-moi ici dans un mois. Mais si vous n'êtes pas arrivé d'ici là, je ne vous attendrai pas. » Sur ces mots, il sortit un autre morceau de jade et le tendit à Wang Lin.
+Chi Hu acquiesça. « Naturellement! Que diriez-vous de ceci: si le frère Ceng accepte, rejoignez-moi dans un mois sur le fragment que marque cette carte de jade. Mais si vous n'êtes pas arrivé d'ici là, je ne vous attendrai pas. » Sur ces mots, il sortit un autre morceau de jade et le tendit à Wang Lin.
 
 Wang Lin réceptionna le jade et remarqua qu'il était identique à celui de la Secte Da Luo. Il servait à se téléporter à travers le Royaume Céleste. Cependant, contrairement à celui de la Secte Da Luo, seul un fragment était illuminé.
 
@@ -39,7 +39,7 @@ Il frappa sa sacoche de rangement et un morceau de jade blanc apparut dans sa ma
 
 Wang Lin savait qu'après le stade de la Transformation de l'Âme, en plus d'approfondir sa propre compréhension du Dao, l'énergie spirituelle du monde ne suffisait plus à la culture. Plus on en possédait, mieux c'était.
 
-Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang; même Suzaku serait descendu pour s'en emparer.
+Il connaissait la valeur inestimable de l'énergie spirituelle céleste. Si ce morceau de jade avait été placé à Suzaku, il aurait provoqué un bain de sang; même le Pays de Suzaku serait intervenu pour s'en emparer.
 
 Après un bref examen, Wang Lin rangea le jade. Bien que son âme originelle ait subi des dommages lors de ce voyage, les trésors obtenus en valaient largement la peine. Il prit une profonde inspiration avant de sortir un autre objet: le morceau de métal provenant de la poitrine du squelette.
 
@@ -47,15 +47,15 @@ Sun Lei avait prétendu qu'il s'agissait d'un trésor céleste de type défensif
 
 Dès que son Sens Divin pénétra dans le métal, il fut pris d'un vertige soudain tandis qu'une masse d'informations inondait son esprit.
 
-Après un long moment, Wang Lin afficha un regard d'émerveillement et ses yeux s'illuminèrent. Si les informations contenues dans ce métal étaient vraies, alors cet objet était le plus précieux des trois trésors. Ce morceau de métal fonctionnait comme un fragment de jade: il renfermait la méthode de raffinage d'un Charriot Tueur de Dieux.
+Après un long moment, Wang Lin afficha un regard d'émerveillement et ses yeux s'illuminèrent. Si les informations contenues dans ce métal étaient vraies, alors cet objet était le plus précieux des trois trésors. Ce morceau de métal fonctionnait comme un fragment de jade: il renfermait la méthode de raffinage d'un Char de Guerre Divin.
 
-D'après les descriptions, ce squelette fut autrefois connu sous le nom de Céleste Trésor Céleste. Après être entré dans le Royaume Céleste, il avait consacré tout son temps au raffinage de trésors, délaissant totalement sa propre culture. En vérité, la raison pour laquelle il était parvenu à atteindre le stade requis pour accéder au Royaume Céleste était de prolonger sa vie afin d'accomplir le rêve de toute une existence: créer le trésor le plus puissant de l'univers.
+D'après les descriptions, ce squelette fut autrefois connu sous le nom de Céleste des Trésors Célestes. Après être entré dans le Royaume Céleste, il avait consacré tout son temps au raffinage de trésors, délaissant totalement sa propre culture. En vérité, la raison pour laquelle il était parvenu à atteindre le stade requis pour accéder au Royaume Céleste était de prolonger sa vie afin d'accomplir le rêve de toute une existence: créer le trésor le plus puissant de l'univers.
 
-Malheureusement, ce rêve s'était brisé avec la destruction du Royaume Céleste; le Charriot Tueur de Dieux n'avait jamais atteint le stade souhaité et était resté scellé dans sa grotte. Avant que le Royaume Céleste ne soit détruit, il était sorti chercher des matériaux pour poursuivre ses travaux, mais il mourut tragiquement avant son retour. Ne voulant pas que l'œuvre de sa vie ne soit perdue, il avait laissé ces informations dans ce morceau de métal pour les générations futures.
+Malheureusement, ce rêve s'était brisé avec la destruction du Royaume Céleste; le Char de Guerre Divin n'avait jamais atteint le stade souhaité et était resté scellé dans sa grotte. Avant que le Royaume Céleste ne soit détruit, il était sorti chercher des matériaux pour poursuivre ses travaux, mais il mourut tragiquement avant son retour. Ne voulant pas que l'œuvre de sa vie ne soit perdue, il avait laissé ces informations dans ce morceau de métal pour les générations futures.
 
-À l'intérieur du métal, cet homme avait consigné de nombreux détails sur le Charriot Tueur de Dieux inachevé, y compris des méthodes de production minutieuses. Il avait également laissé la localisation de sa grotte, exhortant quiconque la trouverait à récupérer le charriot et, si possible, à poursuivre ses recherches.
+À l'intérieur du métal, cet homme avait consigné de nombreux détails sur le Char de Guerre Divin inachevé, y compris des méthodes de production minutieuses. Il avait également laissé la localisation de sa grotte, exhortant quiconque la trouverait à récupérer le charriot et, si possible, à poursuivre ses recherches.
 
-Wang Lin prit une grande inspiration. La méthode de fabrication de ce charriot était extrêmement complexe. Beaucoup des matériaux requis avaient déjà disparu, rendant sa production impossible. Cependant, d'après les écrits, Wang Lin comprit qu'il existait plusieurs de ces Chariots Tueur de Dieux dans sa grotte, ce qui l'excitait au plus haut point.
+Wang Lin prit une grande inspiration. La méthode de fabrication de ce charriot était extrêmement complexe. Beaucoup des matériaux requis avaient déjà disparu, rendant sa production impossible. Cependant, d'après les écrits, Wang Lin comprit qu'il existait plusieurs de ces Chars de Guerre Divin dans sa grotte, ce qui l'excitait au plus haut point.
 
 Après réflexion, il se leva, rangea le drapeau de restriction et marcha vers le vortex. Les personnes sur la plateforme, voyant Wang Lin approcher, reculèrent. La plupart d'entre eux étaient au stade de l'Âme Naissante; ils n'osaient pas entrer dans le vortex, espérant seulement pouvoir dépouiller un voyageur blessé à sa sortie du Royaume Céleste.
 
@@ -65,11 +65,11 @@ Wang Lin ne leur jeta même pas un regard et sauta dans le vortex.
 
 Le corps de Wang Lin continua sa descente jusqu'à ce qu'il atterrisse sur un fragment de la partie est. Il observa les environs avant de s'envoler rapidement pour retourner sur la plateforme. Puis, il entra à nouveau dans le vortex. Il répéta l'opération maintes fois avant de finir par atterrir sur un fragment de la partie ouest.
 
-Selon les descriptions du Céleste Trésor Céleste, sa grotte se trouvait à l'intérieur d'une montagne en forme de tigre. Wang Lin scruta l'horizon, mais ne vit aucune montagne de cette forme. Il réfléchit un moment. Bien que la tâche fût ardue, il ne renonça pas et continua ses recherches. En chemin, il croisa deux autres cultivateurs qui se contentèrent de s'observer avant de passer leur chemin.
+Selon les descriptions du Céleste des Trésors Célestes, sa grotte se trouvait à l'intérieur d'une montagne en forme de tigre. Wang Lin scruta l'horizon, mais ne vit aucune montagne de cette forme. Il réfléchit un moment. Bien que la tâche fût ardue, il ne renonça pas et continua ses recherches. En chemin, il croisa deux autres cultivateurs qui se contentèrent de s'observer avant de passer leur chemin.
 
 De nombreux jours passèrent sans qu'il ne trouve quoi que ce soit; il retourna donc sur la plateforme pour entrer une nouvelle fois dans le vortex. Les gens sur la plateforme l'avaient vu revenir et plonger dans le vortex à plusieurs reprises, mais nul ne savait ce qu'il cherchait, et personne n'osait poser de question.
 
-Ce jour-là, Wang Lin atterrit à nouveau et constata qu'il se trouvait du côté est du Royaume Céleste. Il poussa un soupir. Si cela continuait ainsi, combien d'années lui faudrait-il pour explorer tous les fragments de l'ouest? La grotte du Céleste Trésor Céleste était tout simplement trop difficile à localiser.
+Ce jour-là, Wang Lin atterrit à nouveau et constata qu'il se trouvait du côté est du Royaume Céleste. Il poussa un soupir. Si cela continuait ainsi, combien d'années lui faudrait-il pour explorer tous les fragments de l'ouest? La grotte du Céleste des Trésors Célestes était tout simplement trop difficile à localiser.
 
 Alors qu'il s'apprêtait à s'envoler de nouveau, il ressentit soudainement une fluctuation de sorts au loin. Il vit alors deux silhouettes foncer vers lui. L'une était entourée de nuages noirs, tandis que la seconde était un jeune homme vêtu d'une robe blanche, arborant un sourire glacial.
 
@@ -115,8 +115,8 @@ Wang Lin réfléchit un moment avant d'ouvrir le jade qu'il venait de recevoir e
 
 Dans la partie occidentale du Royaume Céleste, il existait un fragment abritant une montagne en forme de tigre, mais à cet instant, ladite montagne était fendue en deux. Wang Lin flottait dans les airs, observant calmement ce relief. Il avait finalement trouvé cette montagne sur le troisième fragment qu'il avait testé grâce aux transferts du jeune homme en blanc. Bien qu'elle ne fût pas exactement conforme à la description du métal, l'apparence générale y était.
 
-Le corps de Wang Lin s'élança vers la montagne. Au pied de celle-ci, il découvrit la grotte du Céleste Trésor Céleste. En apercevant l'entrée, son visage s'assombrit. Les murs de la grotte étaient déjà brisés et portaient les stigmates de techniques dévastatrices; elle avait manifestement été ravagée il y a fort longtemps. Wang Lin pénétra lentement à l'intérieur.
+Le corps de Wang Lin s'élança vers la montagne. Au pied de celle-ci, il découvrit la grotte du Céleste des Trésors Célestes. En apercevant l'entrée, son visage s'assombrit. Les murs de la grotte étaient déjà brisés et portaient les stigmates de techniques dévastatrices; elle avait manifestement été ravagée il y a fort longtemps. Wang Lin pénétra lentement à l'intérieur.
 
 La grotte n'était guère vaste et semblait totalement vide. Wang Lin laissa échapper un sourire amer: il avait passé tant de temps à chercher ce lieu, pour finalement arriver trop tard.
 
-Mais à cet instant précis, les yeux de Wang Lin s'illuminèrent soudainement.
+Mais à cet instant précis, le regard de Wang Lin se figea soudainement.

@@ -20,7 +20,7 @@ Une douleur inimaginable se propagea soudainement dans tout son corps.
 
 À cet instant, dans une vallée entourée de montagnes à Chu, on pouvait entendre des rires cristallins et les cris d'un tigre empreints de ressentiment.
 
-Le printemps régnait dans la vallée et le sol était recouvert d'herbe verte. La petite Zhou Ru portait un manteau brodé d'une pivoine, un pantalon rouge, et ses cheveux étaient coiffés en deux petites nattes. Elle était assise sur le dos d'un tigre aux rayures noires, affichant un immense sourire. « Petit Blanc, tu n'as pas écouté ce qu'on t'a dit, alors je te punis en te faisant manger avec des baguettes aujourd'hui! »
+Le printemps régnait dans la vallée et le sol était recouvert d'herbe verte. La petite Zhou Ru portait un manteau brodé d'une pivoine, un pantalon rouge, et ses cheveux étaient coiffés en deux petites nattes. Elle était assise sur le dos d'un tigre aux rayures noires, affichant un immense sourire. « Petit Blanc, tu n'as pas écouté ce qu'on t'a dit, alors je te punis en te faisant manger avec des baguettes ce soir! »
 
 Le tigre laissa échapper un grognement teinté de tristesse.
 
@@ -34,15 +34,15 @@ Le grognement de Petit Blanc était désormais chargé d'un désespoir encore pl
 
 Le tigre émit un grognement sourd en guise de réponse peu enthousiaste. Il se demandait encore comment un tigre comme lui allait imiter le miaulement d'un chat.
 
-Tie Yi, assis sous la pagode, regardait la petite Zhou Ru d'un regard empreint de douceur. Après un moment, il poussa un léger soupir.
+Tie Yan, assis sous la pagode, regardait la petite Zhou Ru d'un regard empreint de douceur. Après un moment, il poussa un léger soupir.
 
 La nouvelle de la disparition de Wang Lin s'était déjà propagée jusqu'à Chu, mais il avait décidé de ne rien dire à Zhou Ru. Il était convaincu qu'avec la puissance de son bienfaiteur, celui-ci serait capable de surmonter n'importe quel danger.
 
 Si le bienfaiteur avait dit qu'il reviendrait dans neuf ans, alors il reviendrait certainement d'ici là.
 
-Un regard de foi inébranlable brilla dans les yeux de Tie Yi.
+Un regard de foi inébranlable brilla dans les yeux de Tie Yan.
 
-À 330 mètres de Tie Yi se trouvait le crapaud tonnerre. Il restait simplement là, profitant du soleil chaud. Cela faisait presque un an qu'il n'avait pas bougé d'un pouce.
+À 330 mètres de Tie Yan se trouvait le crapaud tonnerre. Il restait simplement là, profitant du soleil chaud. Cela faisait presque un an qu'il n'avait pas bougé d'un pouce.
 
 Tout en contemplant les nuages blancs dans le ciel, le crapaud tonnerre repensait parfois à sa vie dans la terre de l'Ancien Dieu. Depuis sa naissance, il y avait grandi. Des batailles incessantes contre d'autres bêtes pour la nourriture et le territoire y étaient monnaie courante, et c'étaient souvent des combats à mort.
 
@@ -56,7 +56,7 @@ Le temps passa lentement. En un clin d'œil, le printemps s'acheva et juin arriv
 
 Juin n'avait peut-être aucune signification particulière pour la plupart des gens, mais pour les disciples de la secte extérieure de la Secte de l'Affinement de l'Âme à Pilu, c'était une période cruciale.
 
-La compétition entre les disciples de la secte extérieure allait avoir lieu ce mois-ci. À l'issue d'une série de duels, un disciple de la secte extérieure deviendrait un disciple de la secte intérieure.
+La compétition entre les disciples de la secte extérieure allait avoir lieu ce mois-ci. À l'issue d'une série d'éliminations, un seul disciple parmi plus de dix mille disciples de la secte extérieure deviendrait un disciple de la secte intérieure.
 
 Wang Lin sortit de sa culture en méditation et ouvrit les yeux. Son regard était limpide, mais si l'on y regardait de plus près, on aurait dit qu'ils brillaient comme un ciel étoilé.
 
@@ -66,13 +66,13 @@ Le petit morceau de jade céleste avait été entièrement absorbé par Wang Lin
 
 Wang Lin murmura: « Sommet du stade avancé de l'Âme Naissante. » Il se leva lentement, prit une profonde inspiration et sortit de la grotte.
 
-« Ce que je comprends est le domaine de la vie et de la mort céleste. Plus je perce les cycles de la vie et de la mort du monde, plus ils s'entrelacent. Auparavant, je pensais que la vie était la vie et la mort était la mort, mais désormais, la vie peut être la mort et la mort peut être la vie. »
+« Ce que je comprends est le domaine de la vie et de la mort céleste. Plus je perce les cycles de la vie et de la mort du monde, moins je parviens à m'en détacher. Auparavant, je pensais que la vie était la vie et la mort était la mort, mais désormais, la vie peut être la mort et la mort peut être la vie. »
 
 « Moi, Wang Lin, j'ai passé la majeure partie de mon existence à tuer, j'ai donc fait l'expérience de la mort. En comparaison avec la mort, je n'ai pas vécu grand-chose de la vie. La nouvelle vie de Li Muwan est une forme de vie, et ma propre renaissance en est une autre, mais cela ne suffit toujours pas! » Wang Lin sortit de la grotte. Il regarda les montagnes lointaines et secoua doucement la tête.
 
 « Ma perception a changé après ma renaissance des cendres, particulièrement durant ces quelques mois au Village du Nuage de Feu. Les souvenirs de cet endroit sont profondément gravés en moi. Je vois la vie comme la vie et la mort comme la mort. Puis je vois la vie non pas comme la vie et la mort non pas comme la mort. Ces deux perceptions correspondent respectivement aux stades initial et intermédiaire de la Formation de l'Âme. » Les vêtements de Wang Lin claquèrent bruyamment sous la brise.
 
-« Cette expérience m'a apporté une certaine illumination. Si je pouvais revenir à la perception où la vie est la vie et la mort est la mort, alors mon domaine atteindrait le stade avancé de la Formation de l'Âme. »
+« Cette expérience m'a apporté une certaine illumination. Si je parvenais à trouver ce point d'unité et à revenir à la perception où la vie est la vie et la mort est la mort, alors mon domaine atteindrait le stade avancé de la Formation de l'Âme. »
 
 « Cependant, j'aurai besoin d'une autre percée pour atteindre le sommet du stade avancé de la Formation de l'Âme. Pour y parvenir, mon domaine devra également atteindre sa complétion. »
 

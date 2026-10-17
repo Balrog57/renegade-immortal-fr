@@ -8,7 +8,7 @@ slug: dans-lespace-de-la-perle
 ---
 Une fois qu'il aura atteint le stade intermédiaire de l'Établissement des Fondations, il pourra utiliser plusieurs techniques puissantes, telle que celle de la Secte des Cadavres qui lui permettra d'invoquer des fantômes pour combattre à ses côtés.
 
-Afin d'arracher l'étendard d'âme de Teng Huayuan lors de leur affrontement, Wang Lin cherchait désespérément une idée.
+Afin d'arracher l'étendard d'âme de Teng Huayuan lors de leur affrontement, Wang Lin se creusait la tête et était résolu à déployer tous les moyens à sa disposition.
 
 Après avoir pris une décision, il sortit une gourde contenant du liquide spirituel, toucha la perle, puis entra dans l'espace de la perle défiant le ciel.
 
@@ -22,9 +22,9 @@ Bien qu'il ne puisse pas les toucher, il pouvait aisément les contrôler par la
 
 Wang Lin avait interrogé Situ Nan à propos de ces lumières, mais même lui n'était pas certain de ce qui s'y passait. Selon Situ Nan, cette perle défiant le ciel était extrêmement étrange. Cet espace n'en était qu'une des fonctions. Hormis la manipulation du temps, Situ Nan n'avait rien d'autre découvert sur l'objet.
 
-Situ Nan savait seulement qu'avec son statut de cultivateur le plus puissant d'un pays de rang 6, personne sur sa planète de culture n'osait l'affronter avant qu'il ne possède la perle.
+Situ Nan savait seulement qu'avec son statut de cultivateur le plus puissant d'un pays de rang 6, après s'être emparé de la perle, personne sur sa planète de culture n'aurait dû oser le provoquer.
 
-Cependant, une fois la perle en sa possession, des cultivateurs d'une puissance phénoménale étaient apparus pour tenter de le tuer. Ils l'avaient contraint à abandonner son corps et à se réfugier dans la perle défiant le ciel, ne lui permettant de survivre que de justesse.
+Pourtant, il n'en fut rien: des cultivateurs d'une puissance phénoménale étaient apparus pour tenter de le tuer. Ils l'avaient contraint à abandonner son corps et à se réfugier dans la perle défiant le ciel, ne lui permettant de survivre que de justesse.
 
 Situ Nan avait confié à Wang Lin que, d'après ses analyses, ceux qui le traquaient n'étaient certainement pas originaires de sa planète. Situ Nan en était persuadé car, ayant atteint son niveau actuel, il connaissait tous les experts du monde; et pour celui qui était considéré comme le numéro un de sa planète, son niveau de culture était extrêmement élevé.
 
@@ -40,13 +40,13 @@ Situ Nan avait partagé tout cela avec Wang Lin et l'avait averti maintes fois d
 
 Situ Nan avait calculé que si cet individu provenait réellement d'un pays de rang 7, il lui serait facile pour eux d'envoyer un ordre de recherche dans un pays de rang 6. Ils devaient donc agir avec la plus grande discrétion.
 
-Wang Lin méditait profondément sur tout cela. Mais au-delà des autres fonctions possibles de la perle défiant le ciel, la simple manipulation du temps était déjà une prouesse défiant les lois célestes. Pour les cultivateurs, le niveau de culture est synonyme de vie. Chaque fois qu'un être atteint un nouveau stade, sa longévité augmente.
+Wang Lin méditait profondément sur tout cela. Mais au-delà des autres fonctions possibles de la perle défiant le ciel, la simple manipulation du temps était déjà une prouesse défiant les lois célestes. Les cultivateurs courent toujours contre le temps; pour le dire franchement, le niveau de culture est synonyme de vie. Chaque fois qu'un être atteint un nouveau stade, sa longévité augmente.
 
-À cela s'ajoutait le sentiment de supériorité que l'on ressent une fois au sommet. Il faut admettre que dans le monde de la culture, la progression est primordiale. Que sont les mortels et les cultivateurs de Condensation de Qi pour un cultivateur de l'Établissement des Fondations? Bien qu'il soit brutal de dire qu'ils ne sont pas au même niveau que des chiens ou des porcs, c'est ainsi que fonctionne la réalité de la culture.
+À cela s'ajoutait le sentiment de supériorité que l'on ressent une fois au sommet. Il faut savoir que la hiérarchie du monde de la culture est extrêmement stricte. Que sont les mortels et les cultivateurs de Condensation de Qi pour un cultivateur de l'Établissement des Fondations? Bien qu'il soit brutal de dire qu'ils ne sont pas au même niveau que des chiens ou des porcs, c'est ainsi que fonctionne la réalité de la culture.
 
 De même, aux yeux des cultivateurs de l'Âme Naissante, ceux de la Formation du Noyau et de l'Établissement des Fondations sont perçus comme les mortels et les cultivateurs de Condensation de Qi. Et si quelqu'un atteint le stade de la Transformation de l'Âme, alors tous ceux qui sont au stade de la Formation de l'Âme ou en dessous sont des êtres qu'il peut massacrer à sa guise.
 
-Le regard de Wang Lin devint déterminé. Il avait déjà goûté à la cruauté du monde de la culture. Ce monde était bien plus impitoyable que le monde mortel, et il devait s'endurcir pour survivre.
+Le regard de Wang Lin devint déterminé. Il avait déjà goûté à la cruauté du monde de la culture. Ce monde était bien plus impitoyable que le monde mortel: sélection naturelle, loi du plus fort, et pour survivre, il devait devenir plus puissant!
 
 Il devait devenir si puissant que chacun le craindrait. Ce n'est qu'à ce prix qu'il ne serait plus victime des autres.
 
@@ -58,8 +58,8 @@ C'était une fonction que Situ Nan avait découverte après que la perle défian
 
 Wang Lin franchit la porte. Il se trouvait toujours dans l'espace de la perle défiant le ciel, mais le paysage avait changé. Devant lui flottait un géant d'environ neuf mètres de haut, assis en tailleur dans les airs. Une multitude d'objets luminescents entouraient cette silhouette colossale.
 
-En y regardant de plus près, les traits du géant étaient ordinaires, mais une énergie Yin semblait s'agglutiner autour de lui. Son corps n'était pas solide, particulièrement sa poitrine qui présentait un énorme vide, comme si elle allait se dissiper à tout instant. Des ondes d'énergie spirituelle fluctuaient autour de son corps.
+En y regardant de plus près, les traits du géant étaient ordinaires, mais une énergie Yin semblait s'agglutiner autour de lui. Son corps n'était pas solide mais translucide, particulièrement sa poitrine, presque entièrement transparente, comme si elle allait se dissiper à tout instant. On y distinguait de denses ondes d'énergie spirituelle.
 
-À cet instant, les yeux du géant étaient clos, son corps irradiait et il ignorait totalement la présence de Wang Lin.
+À cet instant, les yeux du géant étaient clos, son corps s'illuminait et s'assombrissait tour à tour, et il ignorait totalement la présence de Wang Lin.
 
-Wang Lin fixa le géant. Ce n'était pas la première fois qu'il voyait l'Âme Naissante de Situ Nan, mais chaque rencontre le laissait stupéfait. Il se demanda si, son Âme Naissante étant déjà d'une telle démesure, quelle devait être la taille réelle du corps de Situ Nan?
+Wang Lin fixa le géant. Ce n'était pas la première fois qu'il voyait l'Âme Naissante de Situ Nan, mais chaque rencontre le laissait stupéfait. Il s'était toujours dit que si l'Âme Naissante était déjà si immense, l'ancien corps de Situ Nan devait être plus imposant encore.

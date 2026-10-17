@@ -26,7 +26,7 @@ Bien qu'il eût façonné d'innombrables représentations de ce vieillard, aucun
 
 Ce jour-là, Wang Lin contempla la sculpture du vieil homme. Il poussa un soupir et agita la main au-dessus de l'œuvre. La sculpture se changea en poussière. Puis, il se leva et ouvrit la porte de sa boutique.
 
-La douce lumière du soleil baigna son corps alors qu'il s'asseyait sur une chaise en bois pour observer les passants. L'atelier de ferronnerie de l'autre côté de la rue s'était agrandi plusieurs fois au cours de ces dix dernières années.
+La douce lumière du soleil baigna son corps alors qu'il s'asseyait sur une chaise en bois pour observer les passants. L'atelier de ferronnerie de l'autre côté de la rue s'était agrandi plusieurs fois au cours de ces neuf dernières années.
 
 Peu après, un garçon de quatre ans passa la tête hors de l'atelier. En voyant Wang Lin, il afficha un large sourire et courut vers lui, une cruche de vin à la main. Après avoir remis le vin à Wang Lin, il demanda: « Grand-père Wang, je vous ai volé ce vin en cachette. Où sont les bonbons? »
 
@@ -34,17 +34,17 @@ Wang Lin esquissa un sourire. Il frotta la tête du garçon et sortit une pilule
 
 Le garçon avala rapidement le bonbon avec un air satisfait. Puis, posant sa tête sur ses deux petites mains, il demanda: « Grand-père Wang, est-ce que ce vin est bon? Je vous vois en boire tous les jours. »
 
-Wang Lin sourit faiblement. À cet instant, un jeune homme robuste sortit de l'atelier de ferronnerie. On pouvait voir une ressemblance frappante entre ce jeune homme et le petit garçon d'autrefois. En voyant Wang Lin, ses yeux furent inondés d'émotion et il s'exclama: « Oncle Wang, vous ne devez plus boire aujourd'hui! »
+Wang Lin sourit faiblement. À cet instant, un jeune homme robuste sortit de l'atelier de ferronnerie. On pouvait voir une ressemblance frappante entre ce jeune homme et l'adolescent robuste d'autrefois. En voyant Wang Lin, ses yeux furent inondés d'émotion et il s'exclama: « Oncle Wang, vous ne devez plus boire aujourd'hui! »
 
 Wang Lin rit et répondit: « D'accord, juste un dernier verre et je m'arrête. Da Niu, comment va ton père? »
 
 Le visage de Da Niu s'assombrit alors qu'il répondait: « Toujours la même maladie. Ce n'est rien de grave. »
 
-Wang Lin soupira intérieurement. Il ne pouvait interférer dans la vie d'un mortel. Vieillir et tomber malade faisait partie du cycle naturel de l'existence. Da Niu avait épousé la fille du boutiquier Zhao, et ce petit garçon était son fils.
+Wang Lin soupira intérieurement. Il ne pouvait interférer dans la vie d'un mortel. Naître, vieillir, tomber malade et mourir faisaient partie du cycle naturel de l'existence. Il y a six ans, Da Niu avait épousé la fille du boutiquier Zhao, du magasin de tailleur, et ce petit garçon était son fils.
 
 Le bambin tira sur les manches de Wang Lin et demanda: « Grand-père Wang, tu ne m'as toujours pas dit si ce vin est bon ou non! »
 
-Da Niu regarda Wang Lin. Il soupira secrètement et dit: « Ce que grand-père Wang boit n'est pas du vin, mais du ginseng... »
+Da Niu regarda Wang Lin. Il soupira secrètement et dit: « Ce que grand-père Wang boit n'est pas du vin, mais la vie... »
 
 Wang Lin regarda Da Niu avec approbation, puis dit: « Da Niu, ramène l'enfant à la maison. Je vais faire un tour dans le quartier. »
 
@@ -70,7 +70,7 @@ Désormais, chaque fois que Wang Lin sortait, ces commerçants accouraient pour 
 
 En vérité, les loyers n'étaient pas si élevés, mais tous ceux qui résidaient ici depuis longtemps savaient que Wang Lin était d'une grande bonté, et ils avaient commencé à retarder leurs paiements. Finalement, ne pas payer le loyer en était devenu une habitude pour tout le monde.
 
-Après tout, nul mortel ne souhaitait dilapider son argent. Chacun pensait: « Plus on en garde, mieux c'est. »
+Après tout, l'argent ne brûle les doigts que de bien peu de mortels: pour tous, plus il y en a, mieux c'est.
 
 Wang Lin ne s'en souciait guère; il laissait les choses suivre leur cours, y voyant une part de sa compréhension des Cieux.
 
@@ -80,21 +80,21 @@ Tous les commerçants poussèrent un soupir de soulagement et s'éclipsèrent.
 
 Wang Lin continua sa marche, les mains derrière le dos. Peu après, il atteignit l'extrémité de la rue. Mais à cet instant précis, un grand cheval monté par un homme d'âge moyen chargea vers lui. L'expression de l'homme était affreuse et du sang frais suintait du coin de sa bouche.
 
-L'homme contourna l'angle de la rue et, en passant devant Wang Lin, ses yeux s'écarquillèrent de terreur. Il tira brusquement sur les rênes et, tandis que le cheval poussait un long hennissement, il sauta de selle. Il se précipita devant Wang Lin, mais avant même d'avoir pu articuler un mot, il cracha une bouchée de sang.
+L'homme contourna l'angle de la rue et venait de passer le coin de la rue lorsqu'il aperçut soudain Wang Lin. Il tira brusquement sur les rênes et, tandis que le cheval poussait un long hennissement, il sauta de selle. Il se précipita devant Wang Lin, mais avant même d'avoir pu articuler un mot, il cracha une bouchée de sang.
 
 Parmi le sang, on distinguait des fragments d'organes internes. Le visage livide, il s'agenouilla au sol et supplia: « Je vous en prie, sauvez-moi, Monsieur Wang! »
 
 L'expression de Wang Lin resta impassible alors qu'il observait l'homme. Il s'agissait de Xu Tao, celui qui lui rendait régulièrement visite lors des fêtes pour lui offrir d'importantes sommes d'argent.
 
-Wang Lin dit simplement: « Si un problème survient, dites-le-moi. »
+Wang Lin dit simplement: « Quel que soit le problème, racontez-le calmement. »
 
 « Monsieur Wang, son Altesse est en danger! » Après avoir entendu les paroles frénétiques de Xu Tao, Wang Lin comprit peu à peu la situation. Son Altesse avait, d'une manière ou d'une autre, offensé un cultivateur extrêmement puissant. Dès l'apparition de ce dernier, tous les cultivateurs aux alentours s'étaient retirés, refusant de s'impliquer.
 
-Aujourd'hui, son Altesse se terrait dans le palais. Le cultivateur estimant qu'il serait trop fastidieux d'y pénétrer, il déversait toute sa rage sur les partisans du prince.
+Aujourd'hui, son Altesse se terrait dans le palais. Le cultivateur, semblant avoir des réserves à y pénétrer, déversait toute sa rage sur les partisans du prince.
 
-Xu Tao était perspicace. Lorsqu'il avait senti le danger, il s'était enfui immédiatement, mais il avait tout de même été frappé par le cultivateur, ce qui l'avait plongé dans la panique. À cet instant, Wang Lin était son seul recours.
+Xu Tao était perspicace. Lorsqu'il avait senti le danger, il s'était enfui immédiatement, mais il avait tout de même été gravement blessé d'un simple balayage de la main du cultivateur. Dans sa panique, la seule personne à laquelle il avait pensé était Wang Lin.
 
-Alors que Xu Tao parlait, un jeune cultivateur apparut au détour du chemin. Il marchait d'un air hautain vers lui.
+Alors que Xu Tao parlait, un jeune cultivateur vêtu d'une robe daoïste rouge entra dans la rue. Il marchait d'un air hautain vers lui.
 
 En voyant le cultivateur, le corps de Xu Tao fut parcouru de tremblements et il cracha une nouvelle bouchée de sang avant de s'effondrer. Il lança un regard désespéré à Wang Lin: « Sauvez-moi! » puis il perdit connaissance.
 
@@ -102,7 +102,7 @@ Le cultivateur ricana en regardant Wang Lin et fit un geste de la main. Immédia
 
 À ses yeux, bien que Wang Lin ne fût qu'un mortel, le fait que Xu Tao se soit réfugié auprès de lui prouvait que leur lien était profond; autant les tuer tous les deux.
 
-Quant aux troubles causés par des mortels, son maître s'en chargerait. En pensant ainsi, son expression devint particulièrement malveillante.
+Quant aux ennuis que pourrait causer le meurtre de mortels, son maître les assumerait. En pensant ainsi, son expression devint particulièrement malveillante.
 
 Wang Lin fronça les sourcils. Si ce cultivateur n'avait ciblé que Xu Tao, il ne serait pas intervenu. Bien que Xu Tao lui ait témoigné beaucoup de respect au fil des ans, cela ne suffisait pas à justifier une action de sa part.
 
@@ -114,4 +114,4 @@ Mais ce fut une réaction trop tardive. D'un mouvement de la main de Wang Lin, l
 
 Le visage du petit cultivateur vira au rouge et il cracha une bouchée de sang. La destruction du crâne avait endommagé son âme. Puis, sans dire un mot, le jeune homme s'enfuit, terrorisé.
 
-Wang Lin fixa froidement la silhouette qui fuyait. Il ne l'acheva pas car il était presque parvenu à sa transformation en mortel et ne voulait pas gaspiller d'efforts pour une si futilité.
+Wang Lin fixa froidement la silhouette qui fuyait. Il ne l'acheva pas car il était presque parvenu à sa transformation en mortel et ne voulait pas, pour une telle broutille, ruiner l'état d'esprit entretenu depuis tant d'années.

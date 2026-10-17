@@ -26,13 +26,13 @@ Des créatures jamais vues auparavant apparaissaient et disparaissaient. Parfois
 
 Cette scène se répétait en de nombreux endroits à travers Suzaku. Un cultivateur muni d'un Chaudron de Pluie apparaissait là où ces visions surgissaient.
 
-À cet instant, dans un pays de rang 4 situé dans la partie sud-est de Suzaku, un géant de la Secte du Démon Géant tenait un Chaudron de Pluie dans sa main. Son visage semblait empreint d'une antiquité sacrée. Son corps s'éleva lentement et, tandis qu'il flottait, il se transforma peu à peu pour reprendre l'apparence d'un homme ordinaire.
+À cet instant, dans un pays de rang 4 situé dans la partie sud-est de Suzaku, un géant du Clan du Démon Géant tenait un Chaudron de Pluie dans sa main. Son visage semblait empreint d'une antiquité sacrée. Son corps s'éleva lentement et, tandis qu'il flottait, il se transforma peu à peu pour reprendre l'apparence d'un homme ordinaire.
 
-Sous lui, les anciens de la Secte du Démon Géant affichaient tous des expressions très graves.
+Sous lui, les chefs de secte du Clan du Démon Géant affichaient tous des expressions très graves.
 
 « Soyez tous rassurés; avec le trésor de la secte, je vais certainement obtenir une immense quantité d'énergie spirituelle céleste! » La voix de l'homme était empreinte d'une assurance absolue.
 
-À l'extrémité nord-est de Suzaku, dans une montagne, un jeune homme vêtu de peaux de bêtes contemplait le ciel. Lui aussi tenait un Chaudron de Pluie dans sa main. Il laissa échapper un sourire malveillant, puis s'éleva dans les airs.
+À l'extrémité nord-est de Suzaku, dans une montagne déserte, un jeune homme vêtu de peaux de bêtes, debout sur un immense arbre, contemplait le ciel. Lui aussi tenait un Chaudron de Pluie dans sa main. Il laissa échapper un sourire malveillant, puis s'éleva dans les airs.
 
 Sous ses pieds, une masse noire apparut soudainement en émettant un bourdonnement assourdissant. En y regardant de plus près, on pouvait voir que cette masse était composée d'une multitude d'insectes ne dépassant pas la taille d'un ongle.
 
@@ -60,9 +60,9 @@ Les royaumes célestes du Vent, de la Pluie, du Tonnerre et de l'Éclair se trou
 
 Cependant, les royaumes célestes étant divisés en de nombreux fragments, il y avait peu de chances que tous se rejoignent sur la même parcelle.
 
-En ce moment, dans un pays de culture de rang 2, un vieil homme à l'allure négligée dévorait une cuisse de poulet en ricanant: « C'est ouvert. Si tu utilises correctement le chapeau de paille que ce vieux te donne, tu pourras préserver ta vie. Sinon, tu risques d'y mourir. »
+En ce moment, dans un pays de culture de rang 2, un vieil homme à l'allure négligée dévorait une cuisse de poulet en ricanant: « C'est ouvert. Si tu utilises correctement le chapeau de paille que ce vieux te prête, tu pourras préserver ta vie. Sinon, tu risques d'y mourir. »
 
-Entouré par le filet d'énergie spirituelle céleste, Wang Lin s'élevait de plus en plus haut. Le pays sous ses pieds devenait de plus en plus minuscule, et il ressentit la même sensation que lorsqu'il avait cherché son domaine pour la première fois.
+Entouré par le filet d'énergie spirituelle céleste, Wang Lin s'élevait de plus en plus haut. Le pays sous ses pieds devenait de plus en plus minuscule, et il ressentit la même sensation que lorsqu'il était devenu mortel.
 
 Cependant, cette fois-ci, ce n'était pas seulement son sens divin qui était ainsi sollicité, mais tout son corps.
 
@@ -84,7 +84,7 @@ Bientôt, guidé par l'énergie céleste, il émergea de la couche nuageuse. Une
 
 Ce qu'il découvrit était le véritable espace intersidéral.
 
-Il avait vu l'espace à maintes reprises à travers les souvenirs du Dieu Ancien et lors de sa recherche de domaine, mais c'était la première fois qu'il en faisait l'expérience directe.
+Il avait vu l'espace à maintes reprises à travers les souvenirs du Dieu Ancien Tu Si et lorsqu'il était devenu mortel, mais c'était la première fois qu'il en faisait l'expérience directe.
 
 Cette sensation était radicalement différente de tout ce qu'il avait connu.
 

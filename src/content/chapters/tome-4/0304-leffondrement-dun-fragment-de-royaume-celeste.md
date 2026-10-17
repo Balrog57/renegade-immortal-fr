@@ -46,9 +46,9 @@ Sun Lei retira promptement sa main et renonça à l'épée. Il poussa un rugisse
 
 Mais rien au monde ne peut être parfaitement calculé. La créature céleste noire se libéra soudainement de la glace noire, poussa un rugissement strident et chargea vers Sun Lei.
 
-L'expression de Sun Lei changea brusquement, ses yeux emplis d'incrédulité. Son maître avait pourtant affirmé que le trésor gèlerait une zone pendant dix respirations. Cela aurait dû durer dix respirations, comment cela pouvait-il être moins?
+L'expression de Sun Lei changea brusquement, ses yeux emplis d'incrédulité. Ce trésor de sa secte, réputé geler une zone pendant dix respirations, devait durer exactement dix respirations. Comment cela pouvait-il être moins?
 
-Il ignorait que, parce que la créature céleste noire avait absorbé la boule de foudre du crapaud tonnerre, elle avait acquis une parcelle du pouvoir des cieux, réduisant ainsi le temps de gel d'une respiration.
+Il ignorait que, parce que la créature céleste noire avait absorbé la boule de foudre du crapaud de tonnerre, elle avait acquis une parcelle du pouvoir des cieux, réduisant ainsi le temps de gel d'une respiration.
 
 De plus, le domaine temporel de Wang Lin avait légèrement ralenti la glace noire, ce qui l'avait raccourcie d'une autre respiration.
 
@@ -134,6 +134,6 @@ Sous le tourbillon se trouvait une plateforme, sur laquelle quelques personnes l
 
 Son corps disparut pour réapparaître sur la plateforme. Il cracha une bouchée de sang et s'effondra. Utilisant ses dernières forces, il pointa son front, et d'innombrables âmes errantes en jaillirent.
 
-Wang Lin avait rassemblé des dizaines de milliers d'âmes errantes lors de son voyage sur le champ de bataille étranger. Maintenant qu'elles étaient toutes libérées, elles formèrent un tourbillon noir autour de lui. Cela fit changer l'expression de tous les spectateurs sur la plateforme, qui reculèrent immédiatement.
+Wang Lin avait rassemblé plus de dix mille âmes errantes lors de son voyage sur le champ de bataille étranger. Maintenant qu'elles étaient toutes libérées, elles formèrent un tourbillon noir autour de lui. Cela fit changer l'expression de tous les spectateurs sur la plateforme, qui reculèrent immédiatement.
 
 Wang Lin s'écroula au sol. Il lutta pour s'asseoir en position du lotus avant d'engloutir sept ou huit flacons de pilules et de commencer sa culture.

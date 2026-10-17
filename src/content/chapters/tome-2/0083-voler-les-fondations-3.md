@@ -10,21 +10,21 @@ Deux jours plus tard, Wang Lin se trouvait près d'un ruisseau; il remplissait s
 
 Il lança son épée volante, rangea sa gourde, franchit la rivière d'un bond et s'enfonça plus profondément dans la forêt.
 
-Un instant plus tard, Teng Li poursuivit Wang Lin avec précaution, n'osant utiliser aucun pouvoir spirituel. Il avait l'air pitoyable: ses vêtements étaient déchirés, son armure avait perdu son éclat et son bras droit pendait, inerte, alors qu'il tentait de rattraper sa proie.
+Un instant plus tard, Teng Li poursuivit Wang Lin avec précaution, n'osant utiliser aucun pouvoir spirituel. Il avait l'air pitoyable: son armure intérieure avait perdu son éclat d'or et s'était en grande partie détachée, et son bras droit pendait, inerte, sous son épaule, alors qu'il tentait de rattraper sa proie.
 
 Les cheveux en bataille, le visage pâle et les yeux brûlants de rage, sa haine envers Wang Lin avait atteint un degré inimaginable. Lui qui avait toujours été traité comme un génie depuis l'enfance ne s'était jamais retrouvé dans une situation aussi humiliante.
 
 Tout cela était de la faute de Wang Lin.
 
-Les lianes d'il y a deux jours avaient failli lui coûter la vie. Il n'aurait jamais cru que de si petites lianes puissent être aussi mortelles. Lorsque le liquide projeté par l'une d'elles avait touché son armure, il avait commencé à dissoudre les plaques de métal.
+Les étranges lianes d'il y a deux jours l'avaient mené au bord de la mort. Il n'aurait jamais cru que de si insignifiantes lianes puissent être aussi puissantes. Lorsque le liquide projeté par l'une d'elles avait touché son armure intérieure, celle-ci avait commencé à fondre.
 
-Si cela s'était arrêté là, il aurait pu l'éliminer avec son épée volante. Cependant, ces lianes étaient immortelles: chaque fois qu'il en coupait une, elle se divisait en plusieurs autres. Même les sphères de foudre générées par son épée n'avaient pu les stopper.
+Si cela s'était arrêté là, passe encore, il aurait pu les attaquer avec son épée volante. Cependant, ces lianes semblaient impossibles à tuer: chaque fois qu'il en tranchait une, elle devenait deux, et elles ne cessaient de se multiplier. Même les sphères de foudre portées par son épée n'avaient pu les éliminer complètement.
 
-À cela s'étaient ajoutées les attaques sournoises de l'étrange épée volante de Wang Lin, qui avait fini par blesser son bras droit.
+À cela s'étaient ajoutées les attaques sournoises de l'étrange épée volante de Wang Lin, qui apparaissait de temps à autre; c'était elle qui avait blessé son bras droit.
 
-Finalement, Teng Li avait dû utiliser le trésor de survie offert par son grand-père. Ce trésor était extrêmement puissant, mais ne possédait qu'un usage unique. Il ne l'avait jamais employé depuis qu'il l'avait reçu, mais il savait que s'il ne s'en servait pas maintenant, il ne pourrait pas sauver sa propre vie.
+Finalement, Teng Li n'avait eu d'autre choix que de sortir le trésor de survie que le patriarche de la famille Teng lui avait donné: un lingot d'une puissance immense. Ce lingot n'avait qu'une seule attaque. Depuis qu'il l'avait reçu, Teng Li n'avait jamais affronté de crise l'obligeant à s'en servir, mais il y a deux jours, il avait compris que s'il ne l'utilisait pas, il y laisserait sa vie.
 
-Grâce à la puissance du trésor, la majorité des lianes fut détruite et le reste se rétracta sous terre. Teng Li profita de cette opportunité pour enfin s'échapper.
+Sous l'énorme puissance de ce lingot, la majorité des lianes fut détruite et le reste se rétracta sous terre. Teng Li profita de cette opportunité pour se précipiter hors de la zone.
 
 En y repensant, son front se couvrait de sueur froide. Quant à Wang Lin, il le détestait désormais viscéralement.
 
@@ -36,7 +36,7 @@ L'eau était fraîche et douce. Teng Li se sentit revigoré et s'apprêtait à b
 
 Teng Li recula promptement sans la moindre hésitation, invoquant sa propre épée volante pour parer l'attaque. Les deux armes entrèrent en collision, mais l'épée verte était clairement désavantagée. Après quelques échanges, l'épée verte, marquée par de nouvelles égratignures, brilla soudainement avant de disparaître.
 
-Teng Li regarda ses cheveux coupés par la petite épée verte et hurla de toutes ses forces: « Maudit soit-tu! Je jure que si je t'attrape, je te ferai subir toutes les tortures du monde avant de raffiner ton âme! »
+Teng Li regarda ses cheveux coupés par la petite épée verte et hurla de toutes ses forces: « Maudit soit-tu! Je jure que si je t'attrape, je te ferai subir toutes les tortures du monde, puis j'arracherai ton âme pour la raffiner vivante! »
 
 Wang Lin courait à travers la jungle quand son visage devint soudainement rouge et qu'il cracha une bouchée de sang. L'épée verte venait d'apparaître à ses côtés. Il ressentit une douleur au cœur en voyant les nouvelles égratignures sur l'arme. Une lueur froide passa dans ses yeux tandis qu'il continuait sa course.
 
@@ -48,29 +48,29 @@ Sans un mot, Wang Lin changea de direction vers le nord-ouest. Peu de temps apr�
 
 Le spectacle qui s'offrit à lui fit se rétracter ses pupilles.
 
-Sous la lumière lunaire gisait un arbre gigantesque, totalement déraciné. La zone était dévastée, ne laissant apparaître qu'un cadavre au sol.
+Sous la lumière lunaire, les arbres géants qui touchaient le ciel avaient été arrachés avec leurs racines et gisaient en désordre tout autour, dégageant une clairière. Un cadavre entièrement putréfié, dépourvu de toute trace de vie, gisait au sol.
 
-Au-dessus du corps flottait une perle verte tandis que l'énergie spirituelle convergeait de toutes les directions, formant de multiples petits tourbillons.
+Au-dessus de sa tête flottait une perle verte et, de toutes les directions, des filets d'énergie spirituelle convergeaient vers elle, formant autour de la sphère verte de multiples tourbillons.
 
-Situ Nan, stupéfait, s'exclama d'un ton surpris: « Un Cœur Vert? Je ne pensais pas trouver un Cœur Vert provenant d'un pays de rang 4 ici. »
+Situ Nan, stupéfait, s'exclama d'un ton surpris: « Un Noyau Vert? Je ne pensais pas qu'il y aurait, dans un pays de rang 3, quelqu'un qui cultive la Grande Méthode du Noyau Vert, propre à la voie démoniaque des pays de rang 4. »
 
-Wang Lin demanda: « Qu'est-ce qu'un Cœur Vert? »
+Wang Lin demanda: « Qu'est-ce qu'un Noyau Vert? »
 
-« C'est la technique de culture spéciale des sectes démoniaques des pays de rang 4, le Cœur Vert, ou Faux Cœur. Contrairement aux noyaux normaux, on peut posséder autant de Cœurs Verts que l'on veut. Je me souviens d'un fou d'un pays de rang 4 qui en possédait des dizaines de milliers. Même des cultivateurs de la Transformation de l'Âme de pays de rang 5 n'oseraient pas le provoquer. Il faut dire qu'au-delà de sa capacité à augmenter ta culture, ce qui rend le Cœur Vert mortel, c'est son explosion. C'est d'une puissance terrifiante quand des dizaines de milliers de ces cœurs explosent simultanément. »
+« C'est la manière de former un noyau propre à la voie démoniaque des pays de rang 4. Le Noyau Vert est aussi appelé noyau explosif. Contrairement au noyau d'or orthodoxe, dont on ne peut avoir qu'un seul, il n'y a aucune limite au nombre de Noyaux Verts. Je me souviens d'un fou, dans un pays de rang 4, qui en possédait des dizaines de milliers. Bien qu'il ne fût qu'au stade de la Formation du Noyau, même les maîtres de la Transformation de l'Âme des pays de rang 5 ne voulaient pas le provoquer à la légère. Il faut dire qu'au-delà de sa capacité à augmenter ta culture, ce qui rend le Noyau Vert si redoutable, c'est son auto-explosion. Quand plus de dix mille Noyaux Verts explosent ensemble, hé hé, la puissance n'a rien d'ordinaire. »
 
-Les yeux de Wang Lin s'illuminèrent et il demanda soudain: « Combien de Cœurs Verts cet individu possède-t-il? Peux-tu le dire? »
+Les yeux de Wang Lin s'illuminèrent et il demanda soudain: « Combien de Noyaux Verts cet individu possède-t-il? Peux-tu le dire? »
 
-« Lui? Un seul est déjà une prouesse pour lui, et cet être n'est plus vivant. C'est clairement un zombie doté d'intelligence. C'était probablement un cultivateur démoniaque d'un pays de rang 4 qui a utilisé une technique avant sa mort pour se transformer en mort-vivant. »
+« Lui? Un seul est déjà beaucoup, et cet être n'est clairement pas un vivant. Ce doit être un zombie doté d'un début d'intelligence, probablement un cultivateur démoniaque d'un pays de rang 4 qui, à l'instant de sa mort, a utilisé une technique secrète pour se transformer en zombie. »
 
 Ce zombie avait manifestement déjà repéré Wang Lin. Sans bouger, il leva légèrement un doigt. Une lumière verte jaillit droit vers le front de Wang Lin.
 
 Wang Lin recula prestement pour esquiver l'éclair vert.
 
-La lumière ne poursuivit pas sa course; elle décrivit un cercle avant de s'immobiliser. Elle projeta une image floue d'où émana une voix indistincte:
+La lumière ne poursuivit pas sa course; elle décrivit un cercle autour de lui avant de se condenser soudain en une silhouette illusoire qui fixa Wang Lin et émit une voix indistincte:
 
-« Pars... de cet endroit... ou tu... mourras. » Sur ces mots, l'image s'effaça. Rapidement, l'immense fluctuation d'énergie spirituelle disparut sans laisser de trace, comme si elle avait été totalement occultée.
+« Dégage... de cet endroit... toi... mort... » Sur ces mots, la silhouette vacilla et se changea en d'innombrables points verts qui disparurent alentour. Aussitôt, l'immense fluctuation d'énergie spirituelle disparut sans laisser de trace, comme si elle avait été totalement occultée.
 
-Wang Lin recula avec prudence, sans même ciller. Après un instant, une lueur froide traversa son regard; il ne chercha plus à fuir, mais déploya son Sens Divin, attendant que Teng Li le rattrape.
+Wang Lin recula avec prudence et s'éloigna rapidement, sans même ciller. Une lueur froide traversa son regard; il ne continua plus à fuir devant Teng Li, mais se tint droit au loin, déploya son sens divin et attendit que Teng Li le rattrape.
 
 L'épée volante de Teng Li tournait autour de lui, écartant tout obstacle sur sa route. Il remarqua soudain quelque chose et sourit. Pointant un doigt vers l'avant, il projeta son épée.
 
@@ -80,11 +80,11 @@ Wang Lin pointa l'avant avec son index droit et l'épée volante verte apparut. 
 
 Soudain, quatre caractères dorés s'illuminèrent sur le jade.
 
-Teng Li eut un sourire carnassier. Il se mordit le doigt et projeta une goutte de son sang sur son épée volante. L'arme trembla brusquement, libérant une lueur démoniaque avant de croître pour devenir une épée gigantesque. Plusieurs sphères de foudre apparurent également, bien qu'en nombre bien moindre qu'auparavant.
+Teng Li eut un sourire carnassier. Il se mordit le doigt et projeta une goutte de son sang sur son épée volante. L'arme trembla brusquement, libérant une lueur rouge démoniaque avant de grossir aussitôt pour devenir une épée gigantesque. Plusieurs sphères de foudre apparurent également, bien qu'en nombre bien moindre qu'auparavant.
 
 Dès que la grande épée se manifesta, elle dégagea une aura glaciale tandis que Teng Li l'abattait avec force.
 
-La petite épée de Wang Lin se téléporta pour surgir derrière Teng Li. Juste avant que le coup ne porte son effet, Teng Li toucha son sac de rangement; une cloche apparut soudainement et se fixa sur lui.
+La petite épée de Wang Lin se téléporta pour surgir derrière Teng Li. Juste avant que le coup ne porte son effet, Teng Li tapota son sac de rangement; une petite cloche en jaillit, grossit instantanément, devint semi-transparente et le recouvrit.
 
 La petite épée verte frappa la cloche, provoquant des ondes de choc à sa surface.
 
@@ -106,9 +106,9 @@ Teng Li ricana en agitant sa main gauche. Soudain, plus d'une dizaine de sphère
 
 Wang Lin pensa intérieurement: « C'est mauvais signe! » Il ne s'attendait pas à ce que le zombie soit aussi vulnérable et s'apprêtait déjà à fuir.
 
-Le zombie réalisa également que la situation lui échappait. Dans un ultime élan de survie, il poussa un hurlement et cracha un Cœur Vert. Dès son apparition, le cœur explosa.
+Le zombie réalisa également que la situation lui échappait. Dans un ultime élan de survie, il poussa un hurlement et cracha un Noyau Vert. Dès son apparition, le noyau explosa dans un fracas colossal.
 
-Une onde d'énergie se propagea en cercle autour du zombie. Toutes les plantes environnantes furent réduites en poussière. Teng Li, qui était trop proche, se mordit la langue et cracha du sang sur la cloche fixée à son corps.
+Une onde annulaire se propagea en cercle autour du zombie. Tous les arbres environnants furent instantanément réduits en cendres. Teng Li, qui était trop proche, se mordit la langue et cracha du sang sur la cloche fixée à son corps.
 
 En un éclair, la cloche passa d'un état semi-transparent à une forme plus solide, couverte de motifs anciens.
 

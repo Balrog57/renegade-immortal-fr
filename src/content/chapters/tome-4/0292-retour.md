@@ -20,7 +20,7 @@ Plusieurs jeunes disciples regardaient Sun Wen avec admiration.
 
 Sun Wen appréciait énormément ce genre de regards. D'un geste de la main, il fit signe à l'une des filles de lui apporter immédiatement le bol. Il saisit la cuillère et mangea une prune accompagnée d'un peu de soupe, ressentant aussitôt une sensation de fraîcheur se propager dans tout son corps.
 
-Cette prune n'était pas un fruit ordinaire, mais une herbe spéciale qui ne poussait qu'à Gong Sun. En consommer une seule bouchée suffisait à augmenter considérablement la culture de celui qui la mangeait.
+Cette prune n'était pas un fruit ordinaire, mais une herbe spéciale qui ne poussait qu'à Gong Sun. En consommer une seule bouchée suffisait à consolider considérablement la culture de celui qui la mangeait.
 
 Cela était d'autant plus vrai pour une soupe préparée spécifiquement ainsi; c'était comme si l'on buvait le nectar de la prune.
 
@@ -58,7 +58,7 @@ Une fois dehors, il observa les environs d'un air confus avant de fixer son rega
 
 Sun Wen frissonna sous le regard de Wang Lin. Il eut l'impression que toutes ses pensées étaient mises à nu. Il répondit rapidement: « Ce lieu n'est pas Gong Sun, mais le site d'entraînement des cadets. C'est le pays de culture de rang 3, Wu Wen. »
 
-Wang Lin réfléchit un instant. Il avait déjà vu Wu Wen sur une carte. C'était un petit pays situé à l'extrémité sud de la planète. La Mer des Démons se trouvait à une demi-planète de là; le voyage de retour s'annonçait donc très long.
+Wang Lin réfléchit un instant. Il avait déjà vu Wu Wen sur une carte. C'était un petit pays situé plutôt à l'est de la planète. La Mer des Démons se trouvait à une demi-planète de là; le voyage de retour s'annonçait donc très long.
 
 Wang Lin avait parcouru de vastes distances dans le champ de bataille étranger afin de collecter des âmes errantes.
 
@@ -96,7 +96,7 @@ Ces quatre êtres ne quittaient jamais Suzaku et ne se souciaient guère des aff
 
 Ils n'interviendraient que si des cultivateurs d'une autre planète venaient semer le chaos.
 
-Wang Lin prit une profonde inspiration. Les bêtes spirituelles et les démons étaient prêts. Même l'éventail aux deux seules plumes avait été raffiné par lui dans le champ de bataille étranger.
+Wang Lin prit une profonde inspiration. Les bêtes spirituelles, les drapeaux de restrictions et les démons étaient prêts. Même l'éventail aux deux seules plumes avait été raffiné par lui dans le champ de bataille étranger.
 
 Quant aux trois mystérieuses gaines d'épée, elles avaient également été raffinées par son âme originelle.
 
@@ -124,4 +124,4 @@ Trois mois plus tard, après avoir parcouru les sept pays de culture environnant
 
 Il était trop difficile de trouver des arbres millénaires, et même les spécimens centenaires se faisaient rares.
 
-Dans l'intimité de sa grotte, Wang Lin chassa toute pensée futilité et s'immergea totalement dans son art de la sculpture.
+Dans l'intimité de sa grotte, Wang Lin chassa toute pensée futile et s'immergea totalement dans son art de la sculpture.

@@ -18,9 +18,9 @@ Cependant, étant en conflit latent avec la Secte Heng Yue depuis de nombreuses 
 
 C’étaient eux, les véritables adversaires sur lesquels ils devaient se concentrer.
 
-Le chef de secte, Huang Long, scruta les disciples de la Secte Xuan Dao. Son regard s'arrêta sur le jeune homme et la jeune femme dotés de racines spirituelles d'eau pure. Il soupira intérieurement. Au cours des cinq cents dernières années, la Secte Heng Yue avait véritablement décliné, faute de successeurs de talent. Même la Secte Xuan Dao, qui n'était qu'une petite secte obscure il y a cinq siècles, parvenait désormais à surpasser régulièrement la Secte Heng Yue. Il pensait initialement qu'ils l'emporteraient cette fois-ci, mais l'apparition de deux disciples aux racines spirituelles d'un seul élément l'inquiétait profondément.
+Le chef de secte, Huang Long, scruta les disciples de la Secte Xuan Dao. Son regard s'arrêta sur le jeune homme et la jeune femme dotés d'une racine spirituelle d'eau unique. Il soupira intérieurement. Au cours des cinq cents dernières années, la Secte Heng Yue avait véritablement décliné, faute de successeurs de talent. Même la Secte Xuan Dao, qui n'était qu'une petite secte obscure il y a cinq siècles, parvenait désormais à surpasser régulièrement la Secte Heng Yue. Il pensait initialement qu'ils l'emporteraient cette fois-ci, mais l'apparition de deux disciples aux racines spirituelles d'un seul élément l'inquiétait profondément.
 
-« Faut-il vraiment faire sortir les disciples vêtus de pourpre? Ils sont actuellement en entraînement... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, et il prit enfin une décision.
+« Faut-il vraiment faire sortir les disciples vêtus de pourpre? Mais ils sont en retraite de mort... » Soudain, le regard de Huang Long se posa sur le disciple resté tout au fond, et il prit enfin une décision.
 
 « Très bien. Puisqu'ils ont envoyé ce disciple, il est temps que nos disciples principaux sortent, eux aussi. »
 
@@ -28,15 +28,15 @@ Sur cette pensée, il eut un rire et dit: « Ami Ouyang, vos disciples doivent �
 
 Les trois anciens de la Secte Xuan Dao hochèrent la tête et le suivirent dans la salle principale.
 
-Les anciens de la Secte Heng Yue emboîtèrent leur pas. L'Ancien Xu fut le dernier à entrer. Il se tourna vers les disciples et lança: « Wang Zhuo, tu es chargé de veiller sur les disciples de la Secte Xuan Dao. Si un problème survient, ton maître ne te pardonnera pas! »
+Les anciens de la Secte Heng Yue emboîtèrent leur pas. L'Ancien Dao Xu fut le dernier à entrer. Il se tourna vers les disciples et lança: « Wang Zhuo, tu es chargé de veiller sur les disciples de la Secte Xuan Dao. Si un problème survient, ton maître ne te pardonnera pas! »
 
 Wang Zhuo semblait s'y attendre. Il répondit respectueusement: « Maître n'a aucune inquiétude à avoir. Je prendrai grand soin de nos frères et sœurs de la Secte Xuan Dao. »
 
-L'Ancien Xu sourit aux disciples de la Secte Xuan Dao et ajouta: « Disciples de la Secte Xuan Dao, si vous avez le moindre besoin, adressez-vous à Wang Zhuo. Ce vieillard est trop âgé pour vous importuner. Profitez-en pour faire connaissance; l'avenir du monde de la culture repose entre vos mains. » Sur ces mots, il entra dans la salle principale avec un léger sourire.
+L'Ancien Dao Xu sourit aux disciples de la Secte Xuan Dao et ajouta: « Disciples de la Secte Xuan Dao, si vous avez le moindre besoin, adressez-vous à Wang Zhuo. Ce vieillard est trop âgé pour vous importuner. Profitez-en pour faire connaissance; l'avenir du monde de la culture repose entre vos mains. » Sur ces mots, il entra dans la salle principale avec un léger sourire.
 
 Dès que les anciens furent partis, les disciples se détendirent immédiatement. Certaines disciples femmes de la Secte Heng Yue s'approchèrent du jeune homme aux racines spirituelles d'eau pour engager la conversation, leurs yeux brillant d'admiration.
 
-Outre les disciples de la Secte Heng Yue au 6ème niveau, certains membres de la Secte Xuan Dao se joignirent à eux pour échanger sur leurs expériences. Les autres disciples commencèrent également à discuter entre eux, tandis que beaucoup observaient avec étonnement l'immobile centipède.
+Outre les disciples de la Secte Heng Yue au 6ème niveau, certains membres de la Secte Xuan Dao se joignirent à eux pour échanger sur leurs expériences. Les autres disciples commencèrent également à discuter entre eux, tandis que beaucoup observaient avec étonnement l'immobile mille-pattes.
 
 Wang Lin, ne souhaitant pas se mêler à la foule, s'écarta pour s'asseoir sur quelques marches. Contempler le ciel bleu et les nuages blancs tout en se baignant dans la lumière du soleil lui procurait un grand confort.
 
@@ -52,7 +52,7 @@ Wang Lin se frotta le nez en souriant: « Aînée Zhou, n'avez-vous pas vous aus
 
 La jeune femme soupira d'un air morose: « J'ai atteint le 3ème niveau il y a trois ans, mais désormais, tous les disciples qui étaient plus faibles que moi à l'époque m'ont dépassée. C'est peut-être parce que je n'arrive pas à rompre mes liens avec le monde mortel. »
 
-Wang Lin réfléchit un instant avant de dire: « Le chemin est impitoyable. Si l'aînée Zhou souhaite progresser, elle doit comprendre cette vérité. »
+Wang Lin réfléchit un instant avant de dire: « Le Grand Dao est impitoyable. Si l'aînée Zhou souhaite progresser, elle doit couper ses liens avec le monde mortel. »
 
 La jeune femme Zhou fixa Wang Lin de ses beaux yeux et, dévoilant sa dentition éclatante, dit: « Jeune frère Wang, je vois que tu as déjà atteint le sommet du 3ème niveau et que tu peux percer à tout moment. Je pense que tu me dépasseras bientôt toi aussi. »
 
@@ -60,14 +60,14 @@ Wang Lin contempla cette beauté à couper le souffle. Il eut un sourire amer et
 
 La jeune femme Zhou resta stupéfaite. Elle hésita, puis demanda: « Jeune frère Wang, pardonne mon impudence, mais quels sont ces liens mortels que tu ne peux rompre? »
 
-Wang Lin secoua la tête sans répondre. Son esprit était envahi de pensées pour ses parents.
+Wang Lin secoua la tête sans répondre. Le visage vieilli de ses parents surgit dans son esprit. La piété filiale est la première des vertus; comment trancher d'un simple geste la dette envers ses parents? Il en était incapable.
 
 Voyant sa réticence, Zhou soupira: « Moi, je ne peux pas rompre mes liens avec ma famille. La culture est trop impitoyable. Peut-être ne suis-je pas faite pour cela. »
 
 Wang Lin s'apprêtait à répliquer, quand soudain il tourna la tête et vit Wang Zhuo les fixer, lui et Zhou, d'un regard malveillant.
 
-À cet instant, la voix de Wang Zhuo retentit: « Frères et sœurs de la Secte Xuan Dao, vous avez dit que ce centipède aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un jeune frère, voyez-vous. La culture est une perte de temps pour lui; le charger d'attraper des animaux vivants pour nourrir cette centipède est une tâche bien plus appropriée à sa condition. »
+À cet instant, la voix de Wang Zhuo retentit: « Frères et sœurs de la Secte Xuan Dao, vous avez dit que ce mille-pattes aimait manger des animaux vivants. Laissez-nous, membres de la Secte Heng Yue, nous en occuper durant votre séjour. J'ai un jeune frère, voyez-vous. La culture est une perte de temps pour lui; le charger d'attraper des animaux pour nourrir ce mille-pattes est une tâche bien plus appropriée à sa condition. »
 
-Le disciple aux racines spirituelles d'eau hésita et dit: « Frère Wang Zhuo, c'est un peu déplacé. La nature de cette centipède est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
+Le disciple aux racines spirituelles d'eau hésita et dit: « Frère Wang Zhuo, c'est un peu déplacé. La nature de ce mille-pattes est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
 
 Wang Zhuo répondit avec une expression feinte de douceur: « Ne t'inquiète pas, frère Liu. Comment un cultivateur pourrait-il reculer devant le danger? Vous êtes nos invités; ces corvées doivent nous incomber, à nous, la Secte Heng Yue. »

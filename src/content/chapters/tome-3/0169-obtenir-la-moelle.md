@@ -22,7 +22,7 @@ Le corps du bossu disparut soudainement. Lorsqu'il réapparut, il se trouvait d�
 
 Il se tenait en titubant sur un pilier de pierre, fixant la créature serpentine d'un regard pensif. Des lambeaux de gaz noir s'échappant de la pustule qu'il avait percée étaient aspirés par le crapaud assis sur son épaule.
 
-Les mains du Seigneur Démon des Six Désirs s'activèrent pour former des sceaux tout en récitant un chant mystérieux. Au même moment, l'Empereur Antique lança sa cloche, jetant un regard furtif vers Wang Lin.
+Au moment où l'Empereur Antique lançait sa cloche, les mains du Seigneur Démon des Six Désirs s'activèrent pour former des sceaux étranges tout en récitant un chant mystérieux. Puis son regard balaya les lieux et se posa sur Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent. Il recula rapidement et, sans la moindre hésitation, sortit son talisman de niveau Âme Naissante. Simultanément, il cracha son épée de cristal. Celle-ci flotta devant lui, sa pointe dirigée vers le Seigneur Démon des Six Désirs.
 
@@ -34,7 +34,7 @@ Le corps du jeune homme se mit à convulser violemment. Un gaz noir s'échappa d
 
 Le jeune homme oscillait de gauche à droite, pétrifié par la confusion.
 
-Sa main droite pointait l'épée noire alors que le Seigneur Démon des Six Désirs entamait ses incantations. L'arme grandit progressivement jusqu'à devenir une épée gigantesque.
+La main droite posée sur l'épée noire, le Seigneur Démon des Six Désirs émit quelques sons complexes et indéchiffrables. L'arme grandit progressivement jusqu'à devenir une épée gigantesque.
 
 Tout cela se produisit en un éclair. À cet instant précis, le serpent entra en collision avec l'onde de choc de la cloche et cracha de nouveau sa fumée noire. Le Seigneur Démon des Six Désirs ordonna: « Va! »
 
@@ -42,9 +42,9 @@ L'épée noire s'élança soudainement et s'abattit sur le haut du crâne de la 
 
 Ce mouvement fit jaillir le sang du nez et de la bouche du jeune homme aux côtés du Seigneur Démon des Six Désirs. Son corps devint d'une faiblesse extrême, et la confusion dans son regard s'accentua.
 
-L'Empereur Antique tourna sa main droite, faisant sonner la cloche avec une cadence encore plus rapide. Une salve d'ondes de choc fut ainsi projetée vers la créature.
+L'Empereur Antique rappela la cloche de sa main droite et la fit tournoyer, ses sonneries toujours plus lourdes et plus serrées. D'innombrables ondes de choc, cercle après cercle, se propagèrent frénétiquement vers la créature.
 
-Alors que la créature serpentine repoussait une fois de plus l'épée noire, elle fut frappée par les ondes de choc de la cloche. Elle secoua soudainement son corps, révélant un regard assoiffé de sang avant d'ouvrir la gueule. Alors qu'elle s'ouvrait, capable d'engloutir une petite montagne, une silhouette fantomatique s'en échappa brusquement. L'expression de l'Empereur Antique changea et il fit disparaître sa cloche en hâte.
+Alors que la créature serpentine repoussait une fois de plus l'épée noire, elle fut frappée par les ondes de choc de la cloche. Elle secoua soudainement son corps, révélant un regard assoiffé de sang avant d'ouvrir la gueule. Alors qu'elle s'ouvrait, capable d'engloutir une petite montagne, une silhouette fantomatique s'en échappa brusquement. L'expression de l'Empereur Antique changea: sa cloche venait de disparaître soudain en plein ciel.
 
 Le Sens Divin de Wang Lin était resté focalisé sur la créature serpentine tout au long du combat. Lorsqu'elle avait ouvert la gueule, il avait clairement vu un serpent plus petit s'envoler. Ce dernier avait mordu la cloche avant de se retirer prestement.
 
@@ -52,13 +52,13 @@ Les yeux du Bossu Meng brillèrent alors qu'il observait la créature depuis un 
 
 Wang Lin remarqua le comportement anormal du bossu. Il se méfiait de tous les présents, et plus particulièrement de cet expert en poisons.
 
-À ce moment-là, le regard du Seigneur Démon des Six Désirs revint sur le jeune homme. Il pointa la tête de ce dernier et hurla: « Colère! »
+À ce moment-là, le regard du Seigneur Démon des Six Désirs revint sur le jeune homme. Il posa le doigt sur le front de ce dernier et lança d'un ton sec et grave: « Colère! »
 
 Un gaz rouge violacé s'échappa de la bouche et du nez du jeune homme, prenant la forme d'une autre épée qui flotta devant le Seigneur Démon des Six Désirs.
 
 L'expression de Duanmu Ji était sombre alors qu'il lançait un regard à Wang Qingyue. Un accord tacite sembla passer entre eux; ils bondirent tous deux vers le corps du serpent, sortirent leurs trésors magiques et entamèrent leurs assauts.
 
-Duanmu Ji n'utilisait plus sa gourde, mais un marteau colossal. À chaque mouvement de l'arme, des sphères de foudre se formaient pour s'abattre sur sa cible.
+Duanmu Ji n'utilisait plus sa calebasse, mais un immense poinçon aux reflets d'argent. À chaque coup porté, d'innombrables sphères de foudre se condensaient dans le vide et s'abattaient avec l'arme sur sa cible.
 
 Wang Qingyue n'utilisait aucun trésor magique. Ses mains formèrent un sceau, et les anciens caractères représentant le métal, le bois, l'eau, le feu et la terre apparurent. Ils constituèrent une formation des cinq éléments qui percuta violemment le corps du serpent.
 
@@ -82,7 +82,7 @@ Au même moment, une lumière verte passa à ses côtés: c'était le Bossu Meng
 
 Cependant, ce sourire semblait empreint d'une certaine cruauté.
 
-Le Bossu Meng dépassa Wang Lin. Son objectif était le second serpent tapi dans l'estomac de la créature. Voyant cela, Wang Lin changea immédiatement de trajectoire. Il suivit l'œsophage pour s'enfoncer plus profondément; sa cible était la colonne vertébrale de la bête.
+Le Bossu Meng dépassa Wang Lin. Son objectif était l'autre serpent logé dans la gueule de la créature. Voyant cela, Wang Lin changea immédiatement de trajectoire. Il suivit l'œsophage pour s'enfoncer plus profondément; sa cible était la colonne vertébrale de la bête.
 
 Li Muwan lui avait dit un jour que, pour ces créatures semblables à des dragons, la partie la plus précieuse n'était pas le noyau, mais la moelle. C'était pour cette moelle que Wang Lin risquait sa vie.
 
@@ -108,4 +108,4 @@ Ses yeux brillèrent alors qu'il se déplaçait rapidement vers un autre point: 
 
 C'est à ce moment que le petit serpent intérieur commença à trembler, libérant des lambeaux de gaz noir. Wang Lin esquiva prestement sur le côté et chargea vers la tête du serpent.
 
-Bientôt, il atteignit la tête. Une fine membrane rouge scintillait précisément à la jonction de la tête et du cou. Wang Lin prit une profonde inspiration et mobilisa toute l'énergie spirituelle de son corps. Il frappa son sac de rangement et, soudain, des centaines d'épées volantes apparurent. Son Sens Divin se propagea pour prendre le contrôle de chacune d'elles. Les pointes de toutes les épées furent dirigées vers le filament rouge, l'attaquant avec acharnement.
+Bientôt, il atteignit la tête. Une fine membrane aux reflets rouges recouvrait précisément la jonction de la tête et du cou. Wang Lin prit une profonde inspiration et mobilisa toute l'énergie spirituelle de son corps. Il frappa son sac de rangement et, soudain, des centaines d'épées volantes apparurent. Son Sens Divin se propagea pour prendre le contrôle de chacune d'elles. Les pointes de toutes les épées furent dirigées vers la membrane, qu'elles criblèrent frénétiquement.

@@ -12,7 +12,7 @@ Xin Hai regarda Shangguan Yun et dit: « Mon frère aîné est allé accueillir 
 
 La formation brilla intensément et treize personnes en sortirent.
 
-Le visage de Teng Huayuan s'assombrit davantage alors qu'il pressait une autre âme dans l'étendard. Il ricana intérieurement: « Wang Lin, si tu es vraiment assez impitoyable pour ne pas te soucier de ta famille et que tu refuses de sortir, alors je devrai admettre que je t'ai sous-estimé. Mais même si tu parviens à t'échapper, une fois que j'aurai atteint le stade intermédiaire de l'Âme Naissante, je pourrai accroître la puissance de la malédiction pour te traquer. »
+Le visage de Teng Huayuan s'assombrit davantage alors qu'il écrasait une autre âme dans l'étendard. Il ricana intérieurement: « Wang Lin, si tu es vraiment assez impitoyable pour ne pas te soucier de ta famille et que tu refuses de sortir, alors je devrai admettre que je t'ai sous-estimé. Mais même si tu parviens à t'échapper, une fois que j'aurai atteint le stade intermédiaire de l'Âme Naissante, je pourrai accroître la puissance de la malédiction pour te traquer. »
 
 Les cultivateurs à l'extérieur de la vallée reprirent leurs discussions.
 
@@ -28,7 +28,7 @@ Les cultivateurs à l'extérieur de la vallée reprirent leurs discussions.
 
 Tandis que les murmures circulaient, les visages des deux cultivateurs de l'Âme Naissante de la Secte He Huan, Chen Huan et Chen Yan, devinrent livides. Ils échangèrent un soupir avant que leurs expressions ne redeviennent neutres.
 
-Les disciples de la Secte He Huan se précipitèrent vers Chen Huan et Chen Yan, le visage empreint de gravité et d'émotion. La disciple qui menait le groupe lança rapidement un jade de transmission vocale aux deux experts de l'Âme Naissante dès leur arrivée.
+Les disciples de la Secte He Huan se précipitèrent vers Chen Huan et Chen Yan, abattus, le visage empreint de sentiments complexes. La disciple qui menait le groupe lança rapidement un jade de transmission vocale aux deux experts de l'Âme Naissante dès leur arrivée.
 
 Chen Huan fronça les sourcils. Il plaça le jade contre son front et fut frappé de stupeur. Il reporta aussitôt son regard sur Wang Ying et demanda: « Est-ce vrai? »
 
@@ -56,7 +56,7 @@ Cet homme était le messager laissé à Zhao, Lin Yi.
 
 Lin Yi laissa échapper un rire et déclara: « Tout le monde, je suis ici pour aider les messagers des pays de culture supérieure à ouvrir la porte du champ de bataille étranger. Je ne m'immiscerai pas dans votre droit d'entrée, alors soyez sans crainte. »
 
-Derrière Lin Yi se trouvaient Pu Nanzi, l'ancêtre de la Secte Xuan Dao, le cultivateur aux cheveux blancs de la Secte Piao Miao, et un homme svelte appartenant à la Secte Tian Dao.
+Derrière Lin Yi se trouvaient Pu Nanzi, l'ancêtre de la Secte Xuan Dao, le cultivateur aux cheveux blancs de la Secte Piao Miao, et un vieillard maigre et sec de la Secte Tian Dao.
 
 Accompagnant Lin Yi, ces trois hommes atterrirent au centre de la clairière. Tous les autres cultivateurs de l'Âme Naissante les suivirent rapidement pour se ranger à leurs côtés.
 
@@ -64,7 +64,7 @@ Xin Hai profita de l'occasion pour se poster près du vieil homme aux cheveux bl
 
 Après avoir reçu le message de Xin Hai, il hocha calmement la tête.
 
-La formation s'illumina une nouvelle fois et cinq personnes en sortirent. Dès leur apparition, une vague d'énergie glaciale se propagea. Les yeux des cinq individus étaient injectés de sang. Ils inspectèrent les environs avant de trouver un coin pour s'asseoir.
+La formation s'illumina une nouvelle fois et cinq personnes en sortirent. Dès leur apparition, une vague d'énergie glaciale se propagea. Les yeux des cinq individus étaient injectés de sang. Ils inspectèrent les environs avant de se diriger vers un coin, où ils s'assirent en tailleur sans dire un mot.
 
 « De quelle secte proviennent-ils? » La rumeur repartit de plus belle.
 
@@ -74,14 +74,14 @@ Xu Mei, qui se tenait aux côtés de Lin Yi, laissa échapper un rire: « Seigne
 
 Lin Yi acquiesça: « Ces cinq sont bel et bien des marionnettes humaines. »
 
-L'homme svelte de la Secte Tian Dao observa les environs en fronçant les sourcils: « Pourquoi le compagnon de culture Ye n'est-il pas ici...? »
+Le vieillard maigre et sec de la Secte Tian Dao observa les environs en fronçant les sourcils: « Pourquoi le compagnon de culture Ye n'est-il pas ici...? »
 
 Lin Yi secoua la tête et répondit: « La Secte des Cadavres n'a pas respecté la règle exigeant de conserver le jeton au sein de la Vallée Jue Ming; ils sont donc disqualifiés. Son absence n'a aucune importance. » Sur ces mots, il jeta un regard nonchalant vers la foule du nord-ouest et pensa secrètement: « La Secte des Cadavres... Cette fois, plusieurs membres supplémentaires achèveront leur possession pour recouvrer leur culture... »
 
-Fort de cette pensée, Lin Yi se tourna soudainement vers le cultivateur de l'Âme Naissante de la Vallée Wu Feng et déclara: « La Vallée Wu Feng n'a pas non plus conservé son jeton et est disqualifiée. Cependant, ils ont cédé leur jeton à une autre secte; celle-ci est donc autorisée à détenir deux jetons, puisqu'il n'y a aucune limite quant au nombre de jetons que l'on peut posséder. »
+Fort de cette pensée, Lin Yi se tourna soudainement vers le cultivateur de l'Âme Naissante de la Vallée Wu Feng et déclara: « La Vallée Wu Feng n'a pas non plus conservé son jeton et est disqualifiée. Cependant, ils ont cédé leur jeton à une autre secte; la secte qui a reçu ce jeton n'est donc soumise à aucune restriction et peut détenir deux jetons. »
 
 Le cultivateur de l'Âme Naissante de la Vallée Wu Feng était un vieil homme au visage sombre. Son expression resta de marbre alors qu'il fixait Teng Huayuan.
 
 Teng Huayuan, lui aussi, garda le silence. Bien qu'il fût un Ancien invité, il avait dû payer un prix exorbitant pour obtenir ce jeton.
 
-La formation s'illumina une nouvelle fois. Soudain, le cœur de Teng Huayuan s'emballa alors qu'il percevait la malédiction. Il fixa la formation, guettant l'apparition de Wang Lin. Dès que celui-ci se manifesterait, il se téléporterait instantanément vers lui.
+La formation s'illumina une nouvelle fois. Soudain, le cœur de Teng Huayuan tressaillit: il sentait le fil de la malédiction se rapprocher. Une lueur sanguinaire apparut sur son visage; il plissa les yeux et fixa la formation, guettant l'apparition de Wang Lin. Dès que celui-ci se manifesterait, il se téléporterait instantanément vers lui.

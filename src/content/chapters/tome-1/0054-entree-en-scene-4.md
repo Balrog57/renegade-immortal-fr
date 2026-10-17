@@ -14,7 +14,7 @@ Il faut dire que seule l'atteinte du stade de l'Âme Naissante permettait la lon
 
 Zhang Kuang savait que si cette eau spirituelle était proposée en échange auprès d'autres sectes, elles en deviendraient folles, en particulier les cultivatrices aux stades de l'Établissement des Fondations ou de la Formation du Noyau.
 
-Mais lorsqu'il retourna vérifier, Wang Lin avait déjà disparu. Il n'y avait qu'une soixantaine de disciples internes au sein de la Secte Heng Yue. Il les inspecta tous, mais ne trouva aucun individu lui ressemblant.
+Mais lorsqu'il retourna vérifier, Wang Lin avait déjà disparu. Il n'y avait que quelques dizaines de disciples internes au sein de la Secte Heng Yue. Il les inspecta tous, mais ne trouva aucun individu lui ressemblant.
 
 Il resta plongé dans la mélancolie pendant un long moment. Il avait également tenté de surveiller Wang Lin, mais après avoir découvert que celui-ci n'était qu'au 3ème niveau de culture, il s'était persuadé que ce n'était pas lui.
 
@@ -22,7 +22,7 @@ Pourtant, à présent, il était sûr à 100 % que cet homme était Wang Lin. Ce
 
 « Ce Wang Lin a déjà atteint un niveau de culture aussi élevé! Heureusement que je ne lui ai rien fait à l'époque. Hélas, le secret de cette eau spirituelle devra rester enfoui dans mon cœur. Peu importe que Wang Lin soit réellement cet homme ou non, car le monde de la culture est trop cruel. Sans parler des compagnons d'une même secte, même les frères se tueraient entre eux. Avec la puissance de culture de Wang Lin, je serais incapable de riposter! » Zhang Kuang décida de ne plus jamais chercher à provoquer Wang Lin.
 
-Il se remémora aussi involontairement l'épisode dans les montagnes arrières, lorsqu'il pensait que Wang Lin n'était même pas au premier niveau et qu'il lui avait tendu la main. Il se demanda ce que Wang Lin avait réellement pensé de lui à ce moment-là.
+Il se remémora aussi involontairement l'épisode dans les montagnes arrières, lorsqu'il pensait que Wang Lin n'était même pas au premier niveau et qu'il l'avait transporté un bout de chemin. Il se demanda ce que Wang Lin avait réellement pensé de lui à ce moment-là.
 
 Il y avait aussi cet incident au bord de la rivière. En y repensant, Zhang Kuang en eut un frisson. Il était soulagé de ne rien avoir fait alors, sans quoi il aurait été fini.
 

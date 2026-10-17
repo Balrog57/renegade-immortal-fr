@@ -36,15 +36,15 @@ Alors qu'il regagnait le jardin d'herbes, l'expression de Wang Lin changea souda
 
 Avant même d'entrer, une voix exubérante retentit de l'intérieur.
 
-« Je dois vous le dire, frères de la Secte Heng Yue, cette épée volante que je possède est l'un des trésors incomparables de la Secte Xuan Dao! Elle s'appelle l'Épée de l'Argent de Midi. Renseignez-vous pour savoir combien de difficultés j'ai dû surmonter pour la dérober! Si l'un d'entre vous souhaite l'acheter, il devra jurer de ne pas l'utiliser lors de l'échange dans trois jours, sinon je refuse la vente! »
+« Je dois vous le dire, frères de la Secte Heng Yue, cette épée volante que je possède est l'un des trésors incomparables de la Secte Xuan Dao! Elle s'appelle l'Épée aux Pièces d'Or Zi Wu. Vous pouvez vous renseigner! J'ai eu toutes les peines du monde à la dérober cette fois-ci. Si l'un d'entre vous souhaite l'obtenir en échange, il devra jurer d'un serment solennel de ne pas la sortir lors de l'échange dans trois jours, sinon je refuse la vente! »
 
 Quelqu'un demanda aussitôt, dubitatif: « Ce trésor est-il vraiment aussi incroyable que tu le prétends? »
 
 « Moi, Li Shan, je ne mentirais jamais! Si vous ne me croyez pas, tant pis! Je peux vendre cette épée volante n'importe où! »
 
-Wang Lin avait déjà trouvé l'endroit inhabituel, car de nombreux disciples des deux sectes s'y étaient rassemblés. En s'approchant, il vit un disciple de la Secte Xuan Dao d'une vingtaine d'années tenant une épée faite de pièces de monnaie qui émettait une lueur bleue, tout en vantant son épée avec emphase.
+Wang Lin avait déjà trouvé l'endroit inhabituel, car de nombreux disciples des deux sectes s'y étaient rassemblés. En s'approchant, il vit un disciple de la Secte Xuan Dao d'une vingtaine d'années, au visage carré, aux sourcils épais et à l'allure droite et intègre, tenant une petite épée composée de pièces de cuivre qui émettait une lueur bleue, debout au centre, tout en la vantant avec emphase.
 
-Les disciples de la Secte Xuan Dao aux alentours affichaient tous des expressions étranges. L'un d'eux finit par ne plus pouvoir se retenir. Il toussa et dit: « Ce que le Jeune Frère Li Shan affirme est exact. Cette Épée de l'Argent de Midi est bel et bien un trésor de notre Secte Xuan Dao, mais je dois préciser que celle que tient le Jeune Frère Li Shan est une contrefaçon. Elle n'en demeure pas moins utile pour certaines choses. »
+Les disciples de la Secte Xuan Dao aux alentours affichaient tous des expressions étranges. L'un d'eux finit par ne plus pouvoir se retenir. Il toussa et dit: « Ce que le Junior frère Li Shan affirme est exact. L'Épée aux Pièces d'Or Zi Wu est bel et bien un trésor de notre Secte Xuan Dao, mais je dois préciser que celle que tient le Junior frère Li Shan est une contrefaçon. Elle n'en demeure pas moins utile pour certaines choses. »
 
 Les disciples de la Secte Heng Yue échangèrent quelques mots entre eux. Puis, un disciple du 5ème niveau s'avança. Wang Lin se souvint que ce disciple s'appelait Zhao. Le disciple Zhao s'approcha de Li Shan et ils discutèrent jusqu'à conclure un échange, tous deux arborant un sourire.
 
@@ -58,14 +58,12 @@ Li Shan ne s'en offusqua pas et dit en souriant: « Puisque tu l'as déjà achet
 
 Sur ces mots, il sortit une sphère noire et la lança contre un mur. Dans un fracas sourd, des fissures apparurent sur la paroi. Une brume sombre envahit l'endroit de l'impact, dégageant une odeur fétide.
 
-Li Shan déclara, le visage fier et souriant: « Alors, qu'en dites-vous? Cette Bombe de Foudre Noire et Nauséabonde Invincible est mon arme secrète personnelle! Bien que sa puissance soit limitée, si elle atteint quelqu'un, cette boue est une substance que même moi, je ne peux pas laver. Quant à l'odeur, c'est un mélange que j'ai concocté après avoir rassemblé les humeurs de dizaines de bêtes. N'importe qui en serait écœuré! »
+Li Shan déclara, le visage fier et souriant: « Alors, qu'en dites-vous? Cette Bombe de Foudre Noire et Nauséabonde Invincible est mon arme secrète personnelle! Bien que sa puissance soit limitée, si elle atteint quelqu'un, cette cendre noire est une substance que même moi, je ne peux pas laver. Quant à l'odeur, c'est un mélange que j'ai concocté après avoir rassemblé les humeurs de dizaines de bêtes. N'importe qui en serait écœuré! »
 
 L'assistance était stupéfaite et se regardait, la bouche bée. Quelques disciples féminins se pincèrent le nez en reculant de quelques pas. Wang Lin fut lui aussi surpris. Il projeta son Sens Divin et son expression devint soudainement étrange.
 
 Les disciples de la Secte Xuan Dao se sentaient tous extrêmement mal à l'aise, mais Li Shan était célèbre au sein de leur secte pour ses inventions bizarres. Personne n'osait le provoquer, car nul ne voulait être la cible de l'une de ses bombes puantes.
 
-Cette bombe de boue noire invincible était véritablement renommée dans la Secte Xuan Dao; en secret, elle pouvait presque rivaliser avec l'un des véritables trésors de la secte.
+Cette Bombe de Foudre Noire et Nauséabonde Invincible était extrêmement célèbre au sein de la Secte Xuan Dao; en secret, elle pouvait presque rivaliser avec plusieurs des véritables trésors de la secte.
 
 « Alors, qu'en avez-vous pensé? Cette fois, je vous montre mon atout caché! Mais je maintiens ce que j'ai dit précédemment: vous ne pouvez pas l'utiliser lors de l'échange dans trois jours, sinon je refuse de vous la vendre! » Li Shan afficha un air sérieux, tout en riant intérieurement: « Espèces d'imbéciles, plus je vous interdis de l'utiliser, plus vous serez tentés de le faire lors de l'échange. Hé hé, quel spectacle cela va être! Les Anciens me féliciteront certainement et me donneront même quelques trésors magiques en récompense! »
-
-Sur ces mots, ses yeux brillèrent d'excitation et il commença à crier pour attirer l'attention.

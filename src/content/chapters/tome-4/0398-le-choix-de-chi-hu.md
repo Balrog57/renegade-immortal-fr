@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 398 - Chi Hus choice
 slug: le-choix-de-chi-hu
 ---
-La silhouette de Chi Hu se déplaça comme un éclair et arriva presque instantanément après avoir entendu ces mots. Il regarda les membres de son clan qui portaient chacun une marque claire et sombre sur le front.
+La silhouette de Chi Hu se déplaça comme un éclair et arriva presque instantanément après avoir entendu ces mots. Il regarda les membres de son clan qui portaient chacun une marque légère et une marque profonde sur le front.
 
 Chi Hu ne pouvait détecter que de très faibles fluctuations d'énergie spirituelle. Il était évident que leur culture avait déjà été scellée.
 
@@ -26,17 +26,17 @@ Le cœur de Chi Hu était lourd d'amertume. Il afficha un visage tendu et dit: �
 
 Wang Lin regarda Chi Hu et soupira doucement. « Chi Hu, dis-moi où se trouve l'ancêtre du Clan des Démons Géants et j'irai le trouver. Quant aux autres membres, je ne leur ferai aucun mal. »
 
-« Quel audace! »
+« Quelle audace! »
 
 « Quelle folie! »
 
-D'innombrables insultes fusèrent de la part des membres du clan environnants, puis trois vieillards vêtus de pourpre, arborant des haches sur le front, s'avancèrent.
+D'innombrables insultes fusèrent de la part des membres du clan environnants, puis trois vieillards vêtus de pourpre, arborant une marque de hache noire sur le front, s'avancèrent.
 
 Leur apparition fut accompagnée d'une puissante pression spirituelle.
 
 Wang Lin jeta un coup d'œil vers eux. Les trois étaient au sommet du stade avancé de la Formation de l'Âme. Ils possédaient également des traces d'énergie spirituelle céleste en eux; ils étaient clairement sur le point de franchir l'étape de la Transformation de l'Âme.
 
-L'un des anciens pourpres déclara d'un ton lugubre: « Ceng Niu, je suis le Grand Ancien du Clan des Démons Géants. Je te défie en duel! »
+L'un des anciens pourpres déclara d'un ton lugubre: « Ceng Niu, je suis Tian Mu, le Grand Ancien du Clan des Démons Géants. Je te défie en duel! »
 
 Le regard de Wang Lin était glacial. Il fixa l'ancien et dit: « Tu n'en es pas digne! » Sur ce, il se tourna de nouveau vers Chi Hu pour attendre sa réponse.
 
@@ -162,7 +162,7 @@ Avec son tempérament, comment aurait-il pu accepter d'être manipulé? C'est po
 
 Même si la vérité sur sa nature de Dieu Ancien était révélée, il avait une issue. Les Dieux Anciens avaient disparu depuis des éons et n'étaient plus que des légendes. Même si Zhu Quezi voyait Wang Lin, il ne pourrait confirmer s'il s'agissait réellement d'un tel être. Après tout, certains se concentraient sur le raffinement de leur corps; le Clan des Démons Géants en était l'illustration parfaite.
 
-Wang Lin avait déjà tout prévu. Il n'avait pas l'intention de rester longtemps à Suzaku; il comptait partir pour la planète Tian Yun une fois qu'il aurait obtenu le drapeau d'un milliard d'âmes!
+Wang Lin avait déjà tout prévu. Il n'avait pas l'intention de rester longtemps à Suzaku; il comptait partir pour la planète Tian Yun une fois qu'il aurait obtenu le véritable drapeau d'un milliard d'âmes!
 
 « Ancêtre du Clan des Démons Géants, sors de ta cachette! » cria Wang Lin, flottant dans les airs. Sa voix se propagea à travers tout le territoire.
 

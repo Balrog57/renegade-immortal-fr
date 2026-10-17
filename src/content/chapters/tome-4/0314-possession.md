@@ -126,13 +126,13 @@ Même les dragons possèdent des écailles sensibles; si l'on les touche, cela p
 
 Le visage de Chi Hu s'assombrit immédiatement. Il hésita un instant, mais n'osa pas résister; il laissa échapper un soupir et s'envola vers Zhou Yi.
 
-Un arc-en-ciel apparut sous l'effet d'une technique inconnue de Zhou Yi qui frappa le front de Chi Hu, forçant ce dernier à lutter contre l'influence.
+Grâce à une technique inconnue, Zhou Yi s'assit en lotus dans les airs. Un immense arc-en-ciel aux sept couleurs jaillit du sommet de son crâne et s'abattit sur celui de Chi Hu, dont les yeux se mirent à lutter.
 
 Zhou Yi dit calmement: « Deviens mon avatar pour un temps. Non seulement tu ne mourras pas, mais tu pourras expérimenter mon domaine. »
 
 Chi Hu hésita encore avant d'abandonner toute résistance. Ses yeux brillèrent de plus en plus intensément alors que son niveau de culture s'envolait soudainement.
 
-« Haha! Parmi ces trois petits gars, j'ai choisi celui qui possède un corps naturel aux cinq éléments. Tu as choisi l'ancien Clan des Démons Géants. Le seul qui reste est un humain ordinaire et inutile. Dégage! » Le vieil homme rit en fixant Wang Lin.
+« Haha! Parmi ces trois petits gars, j'ai choisi celui qui possède un corps naturel aux cinq éléments. Tu as choisi un Démon Géant au sang ancestral. Le seul qui reste est un humain ordinaire et inutile. Dégage! » Le vieil homme rit en fixant Wang Lin.
 
 L'expression de Wang Lin resta sereine. Il lança un regard glacial au vieil homme avant de se retourner pour partir. Il ne voulait pas s'impliquer dans ce chaos. Puisqu'on lui avait dit de partir, il s'exécutait.
 

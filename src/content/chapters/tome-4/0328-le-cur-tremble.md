@@ -30,7 +30,7 @@ Wang Lin savait que sans son aide constante pour injecter de l'énergie dans le 
 
 Tandis qu'il songeait ainsi, une douce vibration émana de son poignet, comme si la créature lui répondait.
 
-À ce moment précis, au sein de la Secte Nuage Céleste de Chu, Li Muwan était assise dans la cour orientale, une cithare entre les mains. Ses doigts semblables au jade glissaient sur les cordes, composant une mélodie sublime. Les ondes sonores délicates semblaient porter le poids de la nostalgie.
+À ce moment précis, au sein de la Secte du Ciel Nuageux de Chu, Li Muwan était assise dans la cour orientale, une cithare entre les mains. Ses doigts semblables au jade glissaient sur les cordes, composant une mélodie sublime. Les ondes sonores délicates semblaient porter le poids de la nostalgie.
 
 Ces cent dernières années avaient semblé passer en un instant pour Wang Lin, mais pour Li Muwan, elles avaient été bien trop longues.
 
@@ -58,11 +58,11 @@ Song Qing réfléchit un instant avant de soupirer. « Il y a cent ans, il étai
 
 Ce souvenir était devenu son démon intérieur.
 
-« Hélas, même s'il a atteint le stade avancé de l'Âme Naissante, il ne pourra pas sauver la Secte Nuage Céleste... » Le visage de Liu Fei était empreint d'amertume.
+« Hélas, même s'il a atteint le stade avancé de l'Âme Naissante, il ne pourra pas sauver la Secte du Ciel Nuageux... » Le visage de Liu Fei était empreint d'amertume.
 
 Song Qing marqua une longue pause avant d'esquisser un sourire amer. « Ce cultivateur étranger a anéanti la Secte du Ciel Bleu il y a trois jours. Je me demande qui sera le prochain... »
 
-Liu Fei répondit amèrement: « Même le messager seigneurial a été mis en fuite par les techniques de cet individu. Le destin de notre Secte Nuage Céleste est déjà scellé. »
+Liu Fei répondit amèrement: « Même le messager seigneurial a été mis en fuite par les techniques de cet individu. Le destin de notre Secte du Ciel Nuageux est déjà scellé. »
 
 « Parmi les quatre Grands Anciens au stade avancé de l'Âme Naissante, l'Ancien Liu Chang est mort il y a trente ans lorsqu'il n'a pu atteindre la Formation de l'Âme, et maintenant, nul ne sait si l'Ancien Gong Sun vivra ou mourra... »
 
@@ -86,7 +86,7 @@ Li Muwan demanda calmement: « Avez-vous des nouvelles de l'Ancien Gong Sun? »
 
 Li Muwan réfléchit un instant. Après un long silence, elle eut un sourire triste: « Avez-vous trouvé la moindre information sur l'origine de ce cultivateur? »
 
-Liu Fei murmura: « Nous savons seulement que cet homme ne semble pas très âgé et qu'il utilise divers insectes venimeux. Il est également imprégné d'une aura sanguinaire. Il y a un mois, il est apparu soudainement dans Chu. Il a détruit trois sectes en sept jours, et il y a trois jours, la Secte du Ciel Bleu fut anéantie. Seuls quelques disciples extérieurs qui étaient partis rendre visite à leurs familles ont survécu. »
+Liu Fei murmura: « Nous savons seulement que cet homme ne semble pas très âgé et qu'il utilise divers insectes venimeux. Il est également imprégné d'une aura sanguinaire. Il y a un mois, il est apparu soudainement dans Chu. Il a détruit trois sectes en sept jours, tuant plusieurs cultivateurs de l'Âme Naissante, et il y a trois jours, la Secte du Ciel Bleu fut anéantie. Seuls quelques disciples extérieurs qui étaient partis rendre visite à leurs familles ont survécu. »
 
 Li Muwan regarda par la fenêtre. Après un long moment, elle s'apprêtait à parler, quand son visage devint soudainement rouge. Son corps se mit à trembler et elle fut prise d'une violente quinte de toux.
 
@@ -98,9 +98,9 @@ Li Muwan plaqua sa main droite sur sa bouche. Ce n'est qu'après avoir toussé u
 
 « Maître, la pilule d'extension de vie d'Ouyang Zi fait l'objet de recherches depuis plusieurs années. S'il réussit, vous pourrez vivre plus longtemps! »
 
-Li Muwan secoua la tête: « C'est impossible. Même si cela pouvait aider, cela ne ferait que prolonger ma vie de quelques années. Je sens mon corps vieillir depuis dix ans. Peut-être que dans peu de temps, mes cheveux seront tous blancs... De plus, ce désastre est une calamité dont la Secte Nuage Céleste ne pourra s'échapper... »
+Li Muwan secoua la tête: « C'est impossible. Même si cela pouvait aider, cela ne ferait que prolonger ma vie de quelques années. Je sens mon corps vieillir depuis dix ans. Peut-être que dans peu de temps, mes cheveux seront tous blancs... De plus, ce désastre est une calamité dont la Secte du Ciel Nuageux ne pourra s'échapper... »
 
-Song Qing dit amèrement: « Maître, nous pouvons solliciter l'aide de la Secte du Démon Géant. Ce cultivateur étranger a fait fuir leur messager, ils sont donc contraints d'agir. Il nous suffit de tenir bon jusqu'à là. »
+Song Qing dit amèrement: « Maître, nous pouvons solliciter l'aide du Clan des Démons Géants. Ce cultivateur étranger a fait fuir leur messager, ils sont donc contraints d'agir. Il nous suffit de tenir bon jusqu'à là. »
 
 « Le Clan des Démons Géants... » murmura doucement Li Muwan en secouant la tête. « Ils ne nous voient que comme des outils pour l'alchimie... De plus, l'affaire entre Ceng Niu et le jeune maître du clan les tient dans un étau; ils n'auront probablement pas le temps de se soucier de nous. »
 
@@ -114,7 +114,7 @@ Li Muwan murmura: « Vous pouvez partir et transmettre mes dernières volontés 
 
 Liu Fei demanda: « Maître, et vous? Pourquoi ne pas venir avec nous? »
 
-Une profonde tristesse brilla dans les yeux de Li Muwan. À cet instant, elle n'éprouvait aucune peur. Même si la Secte Nuage Céleste était condamnée, elle refusait de partir. Si elle devait mourir, elle mourrait ici. C'était son pacte avec Wang Lin.
+Une profonde tristesse brilla dans les yeux de Li Muwan. À cet instant, elle n'éprouvait aucune peur. Même si la Secte du Ciel Nuageux était condamnée, elle refusait de partir. Si elle devait mourir, elle mourrait ici. C'était son pacte avec Wang Lin.
 
 Sans répondre, elle secoua doucement la tête. Elle fixa le ciel bleu à l'extérieur et l'image de Wang Lin envahit son esprit.
 

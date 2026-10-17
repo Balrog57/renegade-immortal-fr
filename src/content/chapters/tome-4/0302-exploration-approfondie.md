@@ -40,7 +40,7 @@ Le sixième frère cadet regarda autour de lui et, sans avancer, répondit: « L
 
 Wang Lin sourit légèrement en voyant comment le sixième frère cadet esquivait la question, et demanda: « Que voulez-vous dire par là? »
 
-Les yeux du sixième frère cadet s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, compagnon cultivateur. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Lou. Je m'y suis simplement infiltré. »
+Les yeux du sixième frère cadet s'illuminèrent d'une expression mystérieuse: « Ne vous inquiétez pas, compagnon cultivateur. Mon nom est Sun Lei. Je n'ai aucune crainte à vous l'avouer: je ne fais pas réellement partie de la Secte Da Luo. Je m'y suis simplement infiltré. »
 
 Wang Lin resta silencieux.
 
@@ -94,11 +94,11 @@ Sun Lei prit une grande inspiration, fixa Wang Lin et demanda: « Compagnon cult
 
 Wang Lin dit avec nonchalance: « J'ai remarqué que lorsque les compagnons cultivateurs sont arrivés, vous étiez capables de détecter les failles avant même qu'elles n'apparaissent... »
 
-Sun Lei laissa échapper un rire. Il tapa sur son sac de rangement et en sortit un morceau de jade. Il le lança à Wang Lin en disant: « La Tactique de Recherche Complète. C'est une technique de la Secte Da Lou. Je peux vous l'offrir comme présent sans problème. »
+Sun Lei laissa échapper un rire. Il tapa sur son sac de rangement et en sortit un morceau de jade. Il le lança à Wang Lin en disant: « La Tactique de Recherche Complète. C'est une technique de la Secte Da Luo. Je peux vous l'offrir comme présent sans problème. »
 
-Wang Lin prit le jade, le rangea après l'avoir inspecté, puis dit: « Vous êtes effectivement prompt à prendre des décisions, je ne vais donc plus tourner autour du pot non plus. Je veux la gourde qui se trouve dans le sac de votre troisième frère cadet, et alors je serai prêt à prendre ce risque avec vous. »
+Wang Lin prit le jade, le rangea après l'avoir inspecté, puis dit: « Vous êtes effectivement prompt à prendre des décisions, je ne vais donc plus tourner autour du pot non plus. Je veux la gourde qui se trouve dans le sac de votre troisième frère aîné, et alors je serai prêt à prendre ce risque avec vous. »
 
-« Impossible! » répondit Sun Lei sans l'ombre d'une hésitation. « Cette gourde est la raison même de mon infiltration dans la Secte Da Lou, alors ne me compliquez pas la tâche. »
+« Impossible! » répondit Sun Lei sans l'ombre d'une hésitation. « Cette gourde est la raison même de mon infiltration dans la Secte Da Luo, alors ne me compliquez pas la tâche. »
 
 Wang Lin fronça les sourcils.
 

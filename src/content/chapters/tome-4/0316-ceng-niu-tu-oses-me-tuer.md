@@ -20,7 +20,7 @@ Wang Lin n'en eut qu'un aperçu furtif, et son cœur ne put s'empêcher de tress
 
 Il prit une profonde inspiration. En regardant autour de lui, il vit que Chi Hu ne cultivait plus, mais marchait, hébété, vers le cadavre. Cependant, après une dizaine de mètres, il commença à lutter pour reprendre ses esprits, révélant un visage terrifié.
 
-Même Papillon Rouge afficha une expression de confusion, mais elle restait une femme et son regard s'éclaircit rapidement. Wang Lin, les yeux tremblants, ne quitta pas Papillon Rouge du regard.
+Même Papillon Rouge afficha une expression de confusion, mais elle restait une femme et son regard s'éclaircit rapidement. Les yeux de Wang Lin étincelèrent et se verrouillèrent sur Papillon Rouge.
 
 Le vieil homme de la Secte des Cadavres détourna les yeux. « Cette fille a dû être un personnage important du Royaume Céleste lorsqu'elle était vivante. Même moi, j'ai été fasciné par elle. »
 
@@ -40,7 +40,7 @@ Il percuta les chaînes de toute sa puissance. À chaque impact, les chaînes é
 
 Bang! Bang!
 
-À force de percuter les liens, l'environnement commença à vaciller et le sol se fissura. Les yeux de Zhou Yi étaient rouges de sang, son regard empreint d'une haine terrifiante. Il y avait là une trace d'obsession, et pour cette obsession, il était devenu fou. Pour elle, il était devenu insensé!
+À force de percuter les liens, le ciel alentour montra de nouveau des signes d'effondrement et le sol se fissura. Les yeux de Zhou Yi étaient rouges de sang, son regard empreint d'une haine terrifiante. Il y avait là une trace d'obsession, et pour cette obsession, il était devenu fou. Pour elle, il était devenu insensé!
 
 « Rends-moi Ting Er! »
 
@@ -48,7 +48,7 @@ Bang! Bang!
 
 Voyant que le vieillard allait s'engouffrer dans le tunnel pour s'enfuir, les yeux de Zhou Yi semblèrent saigner. Il avait déjà tout oublié. Dans ce monde, il ne restait plus que ce cadavre qui s'éloignait de lui, sa Ting Er!
 
-Les souvenirs des instants passés avec elle inondèrent son esprit. Ayant perdu Ting Er... bien que son origine n'eût plus de cœur, il pouvait en ressentir la douleur. Une douleur qui émanait de son âme, de son âme originelle.
+Les souvenirs des instants passés avec elle inondèrent son esprit. Ayant perdu Ting Er... bien que son âme originelle n'eût plus de cœur, il pouvait en ressentir la douleur. Une douleur qui émanait de son âme, de son âme originelle.
 
 Cette douleur était trop puissante, trop dévastatrice...
 
@@ -56,7 +56,7 @@ Cette douleur était trop puissante, trop dévastatrice...
 
 « Tu brûles ton âme originelle? Espèce de... fou! » Le visage du vieil homme se décomposa. Brûler son âme originelle signifiait la mort. Zhou Yi était prêt à mourir pour un cadavre.
 
-Lorsqu'un cultivateur au stade de la Transformation de l'Âme brûle son âme originelle, il acquiert une puissance proche de celle d'un expert au stade avancé de la Transformation de l'Âme. Dès que son âme se reforma, il chargea avec une rapidité fulgurante.
+Lorsqu'un cultivateur au stade intermédiaire de la Transformation de l'Âme brûle son âme originelle, il acquiert une puissance proche de celle d'un expert au stade avancé de la Transformation de l'Âme. Dès que son âme se reforma, il chargea avec une rapidité fulgurante.
 
 Tel un homme de feu, il rattrapa presque instantanément le vieillard près du tunnel.
 
@@ -90,7 +90,7 @@ Wang Lin était d'une rapidité prodigieuse. En un instant, il ne fut plus qu'à
 
 Après ce cri, tout le gaz se rassembla pour former la lance que Wang Lin tenait en main alors qu'il avançait vers elle.
 
-« Papillon Rouge, ne voulais-tu donc pas encore te mesurer à moi?! » L'actuel Wang Lin ressemblait à un ange vengeur alors qu'il s'élançait avec sa lance.
+« Papillon Rouge, ne voulais-tu donc pas encore te mesurer à moi?! » L'actuel Wang Lin ressemblait à un dieu céleste alors qu'il s'élançait avec sa lance.
 
 *Rip!*
 

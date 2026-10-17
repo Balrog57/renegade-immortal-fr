@@ -12,15 +12,15 @@ Alors qu'il était perdu dans ses pensées, il entendit Wang Hao s'exclamer: « 
 
 Un silence s'abattit rapidement sur la scène. 230 Pilules de Rassemblement de Qi représentaient déjà un prix extrêmement haut; peu de gens pouvaient s'aligner. Mais la Pilule de Bonne Fortune était si rare que peu de cultivateurs étaient prêts à s'en séparer.
 
-Le vendeur de la pilule eut un sourire narquois et déclara avec arrogance: « Tu espères obtenir ma Pilule de Bonne Fortune pour seulement 230 Pilules de Rassemblement de Qi? Si le prix n'atteint pas les 2000 pilules, je ne négocierai pas! »
+Le vendeur de la pilule eut un sourire narquois et déclara avec arrogance: « Tu espères obtenir ma Pilule de Bonne Fortune pour seulement 230 Pilules de Rassemblement de Qi? Tu rêves! Si le prix n'atteint pas les 2000 pilules, je n'échange pas! »
 
 Wang Lin prêta une attention particulière à sa voix. Après avoir réfléchi un instant, il pressentit secrètement qu'il s'agissait de Wang Zhuo, mais il n'en était pas certain, car l'individu était totalement dissimulé par le brouillard noir.
 
-Wang Hao haussa les épaules et garda le silence. L'assistance était stupéfaite par l'arrogance de cet homme.
+Wang Hao baissa la tête et garda longtemps le silence. L'assistance était stupéfaite par l'arrogance de cet homme.
 
-L'organisateur toussa et intervint: « Bien, puisque cette personne refuse de céder sa Pilule de Bonne Fortune, passons à la suite des échanges. »
+L'organisateur toussa et intervint: « Bien, puisque personne n'échange la Pilule de Bonne Fortune, passons à la suite des échanges. »
 
-Peu de temps après, un autre participant sortit pour présenter ses marchandises. Bientôt, ce fut au tour de Wang Lin. Il s'avança, sortit un petit flacon et annonça: « Un liquide mystérieux dont une seule goutte équivaut à une pilule de rassemblement de Qi. Ce flacon en contient environ cent. Je recherche uniquement les incantations pour le 4e niveau ou plus. » Une fois ses paroles prononcées, il ouvrit le flacon. Tout le monde put ressentir l'énergie spirituelle qui s'en dégageait.
+Peu de temps après, un autre participant sortit pour présenter ses marchandises. Bientôt, ce fut au tour de Wang Lin. Il s'avança, sortit un petit flacon et annonça: « Un liquide mystérieux dont une seule goutte équivaut à une pilule de rassemblement de Qi. Ce flacon en contient environ cent. Je recherche uniquement les incantations postérieures au 3e niveau. » Une fois ses paroles prononcées, il ouvrit le flacon. Tout le monde put ressentir l'énergie spirituelle qui s'en dégageait.
 
 Beaucoup furent instantanément fascinés. Bien que les Pilules de Rassemblement de Qi regorgent d'énergie spirituelle, elles demeuraient des produits finis. Ce liquide, en revanche, offrait de multiples usages, comme le raffinage de nouvelles pilules. Même pour la forge de trésors, tels que des épées volantes, il permettrait d'accroître leur puissance spirituelle.
 
@@ -30,13 +30,13 @@ Wang Lin haussa un sourcil et demanda: « Seulement le 4e niveau? »
 
 Un autre cria: « Et si nous échangions les incantations des 4e, 5e et 6e niveaux contre ce liquide mystérieux? »
 
-Wang Lin réfléchit un instant, secoua la tête et déclara: « Je veux les incantations du 4e au 15e niveau. »
+Wang Lin réfléchit un instant, secoua la tête et déclara: « Je veux les incantations du 3e au 15e niveau. »
 
-« Frère, ne nous mets pas la barre trop haut! Même le second frère apprenti Zhang Kuang, qui a remporté la compétition l'an dernier, n'est qu'au 6e niveau et ils ne possèdent que les incantations des 7e, 8e et 9e niveaux. Quant aux niveaux allant du 10e au 15e, seuls quelques grands frères apprentis les détiennent! »
+« Frère, ne nous mets pas la barre trop haut! Même le second frère apprenti Zhang Kuang, qui a remporté la compétition l'an dernier, n'est qu'au 6e niveau et il ne possède que les incantations des 7e, 8e et 9e niveaux. Quant aux niveaux allant du 10e au 15e, à part quelques Anciens, personne ne les possède! »
 
 Wang Lin fut interdit. Il hésita un moment lorsqu'une voix s'éleva non loin de là: « Si tu possèdes 200 gouttes de ce liquide, je peux te donner les incantations des niveaux 4 à 9! »
 
-Tous les regards se tournèrent vers la provenance de la voix et virent un homme vêtu de pourpre s'avancer vers le Wang Lin déguisé. Il semblait avoir vingt-huit ou vingt-neuf ans, mais son expression était glaciale. Lorsqu'il arriva, il inspecta les environs, plongeant l'assistance dans la stupeur. Ils s'inclinèrent respectueusement: « Second frère apprenti Zhang Kuang! »
+Tous les regards se tournèrent vers la provenance de la voix et virent un homme vêtu de pourpre s'avancer vers le Wang Lin déguisé. Il semblait avoir vingt-huit ou vingt-neuf ans, mais son expression était glaciale, et il n'avait pas pris de pilule de déguisement. Lorsqu'il arriva, il inspecta les environs, plongeant l'assistance dans un silence craintif. Ils s'inclinèrent respectueusement: « Salutations, second frère apprenti! »
 
 L'homme en pourpre ne leur prêta aucune attention et s'adressa directement à Wang Lin: « En as-tu 200 gouttes? »
 
@@ -48,11 +48,11 @@ L'homme en pourpre réfléchit un instant. Il lança un morceau de jade et dit: 
 
 Wang Lin saisit le jade et l'examina pour s'assurer qu'il contenait ce dont il avait besoin. Il sortit un second flacon et déposa les deux récipients au sol, sans pour autant se rapprocher de l'homme.
 
-L'homme en pourpre regarda Wang Lin, puis d'un geste de la main, fit voler les deux flacons vers lui. Après les avoir inspectés avec son Sens Divin, il déclara: « Si tu trouves davantage de ce liquide, viens me chercher dans les montagnes arrières. Qu'il s'agisse de Pilules de Bonne Fortune, d'épées volantes, de tablettes de compétences ou même d'incantations du 10e niveau ou plus... je peux tout obtenir! » Sur ces mots, il fit volte-face et partit.
+L'homme en pourpre regarda Wang Lin, puis d'un geste de la main, fit voler les deux flacons vers lui. Après les avoir inspectés avec son Sens Divin, il déclara: « Si tu trouves davantage de ce liquide, viens me chercher dans les montagnes arrières. Qu'il s'agisse de Pilules de Bonne Fortune, d'épées volantes, de talismans de jade ou même d'incantations du 10e niveau ou plus... je peux tout obtenir! » Sur ces mots, il fit volte-face et partit.
 
 Les yeux de Wang Lin se plissèrent et son regard devint glacial. Les dernières paroles de cet homme étaient d'une perfidie absolue. Si les autres membres de la foule n'avaient peut-être pas saisi l'implication immédiate, Wang Lin, toujours avisé, en avait percé le sens profond.
 
-Ce que l'homme venait de dire signifiait que n'importe qui pouvait lui apporter ce liquide mystérieux pour l'échanger. Cela plaçait Wang Lin dans une position extrêmement périlleuse. Bien qu'il ne puisse pas lire dans les pensées d'autrui, il sentait que des regards le surveillaient secrètement.
+Ce que l'homme venait de dire signifiait que n'importe qui pouvait lui apporter ce liquide mystérieux pour l'échanger. Cela plaçait Wang Lin dans une position extrêmement périlleuse. Bien qu'il ne puisse pas voir les regards des autres, il avait l'impression d'avoir des aiguilles plantées dans le dos: manifestement, certains le surveillaient en secret.
 
 Cependant, ayant décidé de sortir cette eau de source, il s'était déjà préparé à une telle éventualité. Il ne céda pas à la panique et inspecta calmement son environnement.
 
@@ -62,10 +62,10 @@ Wang Lin ne partit pas avec Wang Hao; il fixa plusieurs dizaines de talismans su
 
 Wang Hao, qui était perspicace, comprit immédiatement la raison de ce départ précipité. Il utilisa rapidement un talisman pour quitter le lieu des échanges. Les disciples ayant révélé des trésors de valeur firent de même et s'éclipsèrent promptement.
 
-Les quelques disciples qui nourrissaient des intentions malveillantes envers Wang Lin après avoir vu le liquide mystérieux furent pris de court. Ils voulurent le poursuivre, mais ne virent qu'une ombre. Après quelques jurons, ils repartirent.
+Les quelques disciples qui nourrissaient des intentions malveillantes envers Wang Lin après avoir vu le liquide mystérieux furent pris de court. Ils voulurent le poursuivre, mais ne purent même plus apercevoir son ombre. Après quelques jurons, ils repartirent.
 
-Certains disciples possédant un niveau de culture plus élevé ne s'étaient pas déplacés pour tenter des vols flagrants. Après tout, il s'agissait d'un échange entre membres d'une même secte; si un meurtre ou un vol était commis et découvert par le maître de la victime, les conséquences seraient désastreuses.
+Certains disciples d'un niveau de culture plus élevé ne pouvaient pas, eux non plus, se lancer ouvertement à sa poursuite. Après tout, il s'agissait d'un échange entre membres d'une même secte; si un meurtre ou un vol était commis et découvert par le maître de la victime, les conséquences seraient désastreuses.
 
 En courant, Wang Lin continuait d'ajouter des talismans sur ses jambes. La vitesse conférée par ces talismans s'accumulait; ainsi, avec quelques dizaines d'entre eux, il regagna rapidement la cour de la secte.
 
-L'homme en pourpre était celui qu'il craignait le plus. Il ne retourna pas immédiatement à sa maison des tâches, mais se réfugia dans une pièce vide. Ce n'est qu'au lever du jour, lorsque son déguisement disparut, que Wang Lin quitta prudemment les lieux. Heureusement, sur le chemin du retour, il ne croisa personne.
+L'homme en pourpre était celui qu'il craignait le plus. Il ne retourna pas immédiatement à sa maison des tâches, mais se réfugia dans une pièce vide. Ce n'est qu'au lever du jour, lorsque son déguisement disparut, que Wang Lin quitta prudemment les lieux. Heureusement, sur le chemin du retour, il ne remarqua rien d'anormal.

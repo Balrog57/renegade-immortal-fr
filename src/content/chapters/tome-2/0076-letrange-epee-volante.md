@@ -8,7 +8,7 @@ slug: letrange-epee-volante
 ---
 Liu San se retourna brusquement. Il grinça des dents et s'exclama: « Tu étais vraiment un espion! »
 
-Les yeux de Yang Sen bouillonnaient de rage alors qu'il fixait Wang Lin. Les pupilles de l'homme au visage sombre se rétractèrent; il comprit que la méthode employée par Wang Lin pour s'emparer de la boîte n'était pas du ressort d'un simple mortel.
+Les yeux de Yang Sen bouillonnaient de rage alors qu'il fixait Wang Lin, les poings serrés. Les pupilles de l'homme au visage sombre se rétractèrent; il comprit que la méthode employée par Wang Lin pour s'emparer de la boîte n'était pas du ressort d'un simple mortel.
 
 L'érudit d'âge moyen était également stupéfait. Il regarda Wang Lin d'un air complexe et poussa un soupir.
 
@@ -18,7 +18,7 @@ Le geste de Song Xing déconcerta le groupe de Liu San, mais celui-ci n'intervin
 
 Wang Lin ne leva même pas la tête. Au lieu de cela, il ouvrit la boîte et découvrit un ginseng très flétri. Le corps de ce ginseng était minuscule, mais il possédait d'innombrables racines. Un talisman jaune recouvrait la plante, dissimulant l'énergie spirituelle qu'elle renfermait.
 
-Song Xing s'était déjà approché. Il esquissa un sourire, prêt à lui fracasser le crâne. Soudain, son corps trembla comme si une force invisible l'avait stoppé net. Song Xing fut projeté sur le côté et ne parvint pas à se relever.
+Song Xing s'était déjà approché. Il esquissa un sourire, prêt à lui briser la nuque. Soudain, son corps trembla comme s'il avait été saisi par une grande main invisible. Song Xing fut violemment projeté en arrière, s'écrasa au sol et ne parvint pas à se relever de longtemps.
 
 La scène bizarre qui se déroulait sous leurs yeux laissa tout le monde interdit. Wang Lin ne déchira pas le talisman, mais observa le ginseng un long moment. Puis, il soupira et dit: « Tu vois un vieil ami et tu ne daignes même pas sortir pour le saluer? »
 
@@ -30,7 +30,7 @@ Le jeune homme ne daigna même pas regarder Song Xing, qui crachait du sang, mai
 
 Wang Lin regarda le jeune homme sans dire un mot. Au lieu de cela, il sortit un papier jaune de son sac de rangement.
 
-En voyant le papier, le jeune homme au regard glacial fut frappé de stupeur. Il observa Wang Lin un instant de plus, puis fronça les sourcils. Il dit: « Ami, qu'est-ce que c'est là? Je t'en prie, donne-moi ce ginseng. Il est d'une importance capitale pour moi. »
+En voyant le papier, le jeune homme au regard glacial fut frappé de stupeur. Il observa Wang Lin un instant de plus, puis fronça les sourcils. Il dit: « Qu'est-ce que c'est? Je ne connais pas cela. Ami, donne-moi ce ginseng. Il est d'une importance capitale pour moi. »
 
 Wang Lin fut interdit et fixa le jeune homme devant lui un long moment. Un doute germa dans son cœur. Il déploya son Sens Divin et perçut une anomalie dans le ciel. Il eut un sourire froid intérieur, puis lança le ginseng en disant: « Laisse tomber. Je me suis trompé de personne. »
 
@@ -40,11 +40,11 @@ Le nuage sombre descendit rapidement. À mesure qu'il s'approchait du sol, un é
 
 À l'instant même de son apparition, un garde de l'escorte explosa en une brume de sang. Puis, plusieurs autres gardes explosèrent à leur tour, se transformant en une brume sanglante.
 
-La brume de sang se déplaça étrangement dans les airs, se regroupant rapidement pour former une goutte de sang étincelante.
+La brume de sang se déplaça étrangement dans les airs, se regroupant rapidement pour former une goutte de sang étincelante d'un éclat doré.
 
-L'homme d'âge moyen ouvrit la bouche et aspira. La goutte de sang pénétra sa gorge et son visage s'empourpra. Il dit: « Zhang Hu, tu as rencontré quelqu'un que tu connais. Pourquoi as-tu peur de l'admettre? »
+L'homme d'âge moyen ouvrit la bouche et aspira. La goutte de sang pénétra sa gorge et son visage rougit légèrement. Il se frotta le coin des lèvres, une lueur étrange dans les yeux, et dit: « Zhang Hu, tu as rencontré quelqu'un que tu connais. Pourquoi as-tu peur de l'admettre? »
 
-Le visage de Zhang Hu se glaça instantanément et il répondit respectueusement: « Maître, ce disciple ne connaît pas cet homme. »
+Le visage de Zhang Hu tressaillit et il répondit respectueusement: « Maître, ce disciple ne connaît pas cet homme. »
 
 L'expression de Wang Lin resta calme. Il projeta son Sens Divin et fut stupéfait: cet homme d'âge moyen avait déjà atteint le sommet du 15e niveau.
 
@@ -58,15 +58,15 @@ Le visage de Zhang Hu changea brusquement. Il se précipita devant son maître e
 
 Une lueur froide traversa les yeux de l'homme d'âge moyen. Il ordonna: « Pars. Va rassembler l'essence sanguine de tous les mortels ici. Cela ne te regarde pas. »
 
-Zhang Hu s'apprêtait à répliquer, mais l'homme d'âge moyen ricana en murmurant quelques mots. Le visage de Zhang Hu devint brusquement livide; il commença à saigner par toutes ses orifices tandis que des perles de sueur dégoulinaient de son front.
+Zhang Hu s'apprêtait à répliquer, mais l'homme d'âge moyen ricana en murmurant quelques mots. Le visage de Zhang Hu devint brusquement livide et tout son corps fut pris de convulsions; il commença à saigner par les sept orifices tandis que des perles de sueur dégoulinaient de son front.
 
 Wang Lin arqua un sourcil. Il activa sa technique d'attraction et tendit la main vers l'homme d'âge moyen. L'expression de ce dernier changea légèrement. Dans un reniflement méprisant, il cracha une lueur verte qui se mua en une épée volante pour frapper la main de Wang Lin.
 
-La technique d'attraction de Wang Lin avait atteint un niveau inimaginable. Sa main se divisa en deux: l'une saisit Zhang Hu, tandis que l'autre intercepta l'épée volante.
+La technique d'attraction de Wang Lin avait atteint la perfection. Sa main se divisa en deux: l'une saisit Zhang Hu, tandis que l'autre intercepta l'épée volante.
 
-La petite épée verte se mit à vibrer, et la lumière qu'elle émettait vacilla violemment. L'expression de l'homme d'âge moyen changea soudainement; il sortit un fourreau noir de son sac de rangement et, sans un mot, projeta plusieurs lueurs rouges de sa main.
+La petite épée verte se mit à vibrer, et la lumière qu'elle émettait vacilla violemment. L'expression de l'homme d'âge moyen changea soudainement; il sortit un fourreau noir de son sac de rangement et, sans un mot, le lança aussitôt, puis ses deux mains, changeant de sceaux, projetèrent plusieurs lueurs rouges.
 
-Dès que le fourreau apparut, l'épée verte saisie par la technique d'attraction disparut subitement. Lorsqu'elle réapparut, elle se trouvait déjà contre le fourreau et fusionna avec lui.
+Dès que le fourreau apparut, l'épée verte saisie par la technique d'attraction disparut subitement. Lorsqu'elle réapparut, elle avait déjà échappé à la grande main de la technique d'attraction et se trouvait contre le fourreau, avec lequel elle fusionna rapidement.
 
 Bien que le visage de Wang Lin fût impassible, son cœur fut secoué: c'était la première fois que sa technique d'attraction échouait. Une lueur froide brilla dans ses yeux. Il frappa son sac de rangement et plusieurs morceaux de bois noir en sortirent. Ces fragments fusionnèrent pour former un fouet qui s'élança rapidement.
 
@@ -74,7 +74,7 @@ La voix de Situ Nan résonna à l'oreille de Wang Lin: « Wang Lin, il y a quelq
 
 Au moment où l'épée volante pénétra le fourreau, elle émit un bourdonnement strident, comme si elle rencontrait une résistance phénoménale. Après avoir pénétré d'un cinquième de sa longueur, elle ne put plus avancer davantage. L'épée verte vira soudainement au bleu et se retira brusquement du fourreau pour taillader le fouet.
 
-Ce fouet était un objet qu'il avait obtenu de Sun Dazhu. Durant son entraînement en méditation fermée, il l'avait affiné pour qu'il lui appartienne, suivant les conseils de Situ Nan.
+Ce fouet était un objet qu'il avait obtenu de Sun Dazhu. Durant son entraînement en méditation fermée, il l'avait affiné pour qu'il lui appartienne, suivant les conseils de Situ Nan. Bien que le niveau de culture de Sun Dazhu fût peu élevé, il était après tout un aîné de la Secte Heng Yue, et son sac de rangement contenait pas mal de choses.
 
 Wang Lin contrôla le fouet pour qu'il contourne l'épée volante et chargea directement l'homme d'âge moyen.
 

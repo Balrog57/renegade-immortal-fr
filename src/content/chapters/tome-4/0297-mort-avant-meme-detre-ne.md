@@ -10,13 +10,13 @@ Les yeux de Wang Lin s'illuminèrent et son corps disparut soudainement à l'int
 
 Bien que les deux possédaient le même niveau de culture, la différence entre leurs Sens Divins était trop vaste. C’est ainsi que Wang Lin put détecter le cultivateur aux robes vertes dès son apparition, alors que celui-ci ne put percevoir Wang Lin qu'une fois approché.
 
-Il fit un pas dans la formation avant de se retourner pour faire face au brouillard noir qui s'avançait vers lui. Le regard froid qui régnait sur son visage devint plus glacial encore.
+Le cultivateur aux robes vertes posa un pied dans la formation, puis se retourna pour regarder le brouillard noir qui fonçait vers lui au loin. Le sourire sur ses lèvres devint plus glacial encore.
 
 Cependant, à cet instant précis, la silhouette de Wang Lin apparut soudainement au-dessus de la formation; et dès son apparition, il lança une cloche.
 
 Le visage du cultivateur aux robes vertes pâlit brusquement. Il n'aurait jamais imaginé que Wang Lin fût aussi rapide. Cette brève hésitation permit à la cloche, agrandie à plusieurs mètres de haut, d'envelopper le cultivateur et de l'emprisonner.
 
-Sur ce, Wang Lin agita la main. Le drapeau de restriction et la cloche lui revinrent promptement. Son corps disparut dans les airs et, lorsqu'il réapparut, il était déjà au sol.
+Sur ce, Wang Lin tendit la main droite et le drapeau de restriction retomba dans sa paume. D'une secousse, il l'étendit pour envelopper la cloche avec lui, puis ils disparurent sur place et, lorsqu'il réapparut, il était déjà au sol.
 
 « Tu ne pourras pas t'échapper! » dit simplement Wang Lin, comme s'il se parlait à lui-même.
 
@@ -28,9 +28,9 @@ Peu de temps après, le vacarme provenant de la cloche redoubla d'intensité. Ou
 
 Wang Lin savait que l'épée était tranchante et ignorait si la cloche pourrait y résister. Il laissa échapper un froid reniflement et ses mains s'activèrent avec encore plus de rapidité. À mesure que les sceaux se multipliaient sur la cloche, le tintement devenait de plus en plus strident, tandis que les sons émanant de l'intérieur s'étiolaient peu à peu.
 
-Cette cloche était un trésor magique issu de l'ancien monde de la culture. Sa fonction principale consistait à emprisonner autrui pour ensuite utiliser une série de sceaux afin de le raffiner. Elle pouvait même raffiner des âmes originelles, à condition que l'utilisateur possède un niveau de culture supérieur à celui de la proie, sous peine de subir un contrecoup.
+Cette cloche était un trésor magique laissé par des cultivateurs de l'Antiquité. Sa fonction principale consistait à emprisonner autrui pour ensuite utiliser une série de sceaux afin de le raffiner. Elle pouvait même raffiner des âmes originelles, à condition que l'utilisateur possède un niveau de culture légèrement supérieur à celui de la proie, sous peine de subir un contrecoup.
 
-Une fois qu'un cultivateur de la Formation de l'Âme a formé son âme originelle, il est difficile pour lui de mourir lors d'un duel singulier, à moins d'être attaqué simultanément par plusieurs adversaires. Cependant, si un expert au stade tardif de la Formation de l'Âme passe à l'action, tout change.
+Une fois qu'un cultivateur de la Formation de l'Âme a formé son âme originelle, il est difficile de le tuer définitivement lors d'un duel singulier, même en l'emportant, à moins qu'il ne soit attaqué simultanément par plusieurs adversaires. Cependant, si un expert au stade tardif de la Formation de l'Âme passe à l'action, tout change.
 
 Bien entendu, si la cible est déjà considérablement affaiblie, la donne est différente. C'était ce qui était arrivé à Meng le Bossu: lourdement affaibli, il fut piégé par Wang Lin et finit par mourir sous le coup du bras doré du Seigneur Démon de l'Ouragan.
 
@@ -38,19 +38,19 @@ Bien entendu, si la cible est déjà considérablement affaiblie, la donne est d
 
 D'un mouvement de la main droite, il fit rétrécir la cloche. Celle-ci vola vers lui et il la rangea. Il ne se précipita pas pour l'ouvrir, car il savait que, bien que le cultivateur fût mort, celui-ci avait probablement mis en place une forme de représailles avant de rendre l'âme.
 
-Les représailles d'un cultivateur de la Formation de l'Âme au moment de sa mort étaient terrifiantes; avec la prudence qui le caractérisait, Wang Lin n'oserait pas vérifier immédiatement. Il décida de poursuivre le raffinage pendant dix jours, un demi-mois, voire plus longtemps, jusqu'à ce que tout soit parfaitement purifié.
+Les représailles d'un cultivateur de la Formation de l'Âme au moment de sa mort étaient terrifiantes; avec la prudence qui le caractérisait, Wang Lin n'oserait pas vérifier immédiatement. Il décida de laisser la cloche, grâce à sa propre capacité de raffinage, continuer à raffiner l'homme pendant dix jours, un demi-mois, voire plus longtemps, afin que la riposte de cet homme à l'agonie meure dans l'œuf!
 
-Cette méthode de Wang Lin était pour le moins singulière!
+Ce stratagème de Wang Lin était d'une cruauté implacable!
 
-Il se leva. Le crapaud de tonnerre avait déjà repris sa forme de bracelet de bronze et s'était rétracté sur son poignet. Il réfléchit un instant. Alors qu'il s'apprêtait à inspecter méticuleusement ce fragment, son expression changea soudainement. Il sortit le drapeau de restriction pour se protéger et s'assit rapidement après avoir avalé quelques pilules.
+Il se leva. Le Crapaud du Tonnerre avait déjà repris sa forme de bracelet de bronze et s'était rétracté sur son poignet. Il réfléchit un instant. Alors qu'il s'apprêtait à inspecter méticuleusement ce fragment, son expression changea soudainement. Il sortit le drapeau de restriction pour se protéger et s'assit rapidement après avoir avalé quelques pilules.
 
 L'énergie spirituelle de son corps était rapidement absorbée par le bracelet de bronze. Après un long moment, l'absorption cessa enfin et Wang Lin ouvrit les yeux. Il avala encore quelques pilules pour récupérer la totalité de son énergie spirituelle.
 
-Wang Lin marmonna: « Au début, c'était une fois tous les six jours, mais maintenant c'est tous les quatre jours. Bien que ce crapaud de tonnerre soit utile, sa maintenance coûte bien trop d'énergie spirituelle. À l'avenir, je devrai infuser le bracelet par anticipation, car si cela se produit en plein combat, la situation sera périlleuse. »
+Wang Lin marmonna: « Au début, c'était une fois tous les six jours, mais maintenant c'est tous les quatre jours. Bien que ce Crapaud du Tonnerre soit utile, sa maintenance coûte bien trop d'énergie spirituelle. À l'avenir, je devrai infuser le bracelet par anticipation, car si cela se produit en plein combat, la situation sera périlleuse. »
 
 Il se leva et s'envola vers le palais. N'ayant rien trouvé dans celui-ci, il élargit son champ de recherche.
 
-Le fragment sur lequel il se trouvait n'était pas immense, mais il n'était pas non plus minuscule; sa taille était comparable à celle de Zhao. Bien qu'il puisse couvrir l'ensemble du fragment de son Sens Divin, l'énergie spirituelle céleste restait indétectable par ses sens, à moins d'être à proximité immédiate.
+Le fragment sur lequel il se trouvait n'était pas immense, mais il n'était pas non plus minuscule; sa taille était presque comparable à celle du pays de Zhao. Bien qu'il puisse couvrir l'ensemble du fragment de son Sens Divin, l'énergie spirituelle céleste restait indétectable par ses sens, à moins d'être à proximité immédiate.
 
 Wang Lin passa un mois à explorer ce fragment. Il constata qu'en dehors du palais, il n'y avait aucune autre construction aux alentours.
 
@@ -68,7 +68,7 @@ Au sommet de la montagne, il découvrit une grotte. L'entrée avait déjà été
 
 La grotte n'était pas vaste, comptant seulement sept ou huit pièces. Wang Lin l'inspecta, mais ne trouva rien. Quelqu'un devait être venu la vider il y a de cela bien longtemps.
 
-Avant d'entrer, Wang Lin était déjà préparé. Bien qu'il n'ait rien trouvé, il n'était pas découragé. Son but était de déceler des vestiges de restrictions. Il voulait comprendre la nature des restrictions utilisées par les êtres célestes; si il pouvait en étudier certaines, cela l'aiderait grandement à atteindre le seuil des 999 restrictions sur son drapeau.
+Avant d'entrer, Wang Lin était déjà préparé. Bien qu'il n'ait rien trouvé, il n'était pas découragé. Son but était de déceler des vestiges de restrictions. Il voulait comprendre la nature des restrictions utilisées par les êtres célestes; s'il pouvait en étudier certaines, cela l'aiderait grandement à atteindre le stade de complétion intermédiaire des 999 groupes de restrictions de son drapeau.
 
 Après une inspection minutieuse, il constata que la plupart des protections avaient disparu, mais ce n'était pas le cas pour toutes. Il fut ravi de découvrir, dans l'une des pièces, les restes d'une restriction.
 
@@ -110,4 +110,4 @@ Wang Lin vit qu'à l'intérieur ne se trouvaient qu'un sac de rangement et une �
 
 Wang Lin eut un ricanement méprisant. D'un geste du doigt, il dissipa le Qi d'épée. Un cri strident accompagna la disparition du dernier vestige de l'âme originelle.
 
-Le cultivateur aux robes vertes avait placé son âme originelle dans l'épée afin de lancer une ultime attaque avant de mourir. Cependant, après avoir été raffinée si longtemps, son âme ne pouvait plus soutenir un tel effort. Sa tentative désespérée fut balayée sans difficulté par Wang Lin.
+Le cultivateur aux robes vertes avait placé son âme originelle dans l'épée afin de lancer une ultime attaque avant de mourir. Cependant, après avoir été raffinée si longtemps, son âme ne pouvait plus soutenir un tel effort. Sa tentative désespérée fut ainsi étouffée dans l'œuf, sans difficulté, par Wang Lin.

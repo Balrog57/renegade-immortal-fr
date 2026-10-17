@@ -6,11 +6,11 @@ bookTitle: The Mediocre Youth
 en: Chapter 19 - Chased out
 slug: chasse
 ---
-En repensant à ces courges, il ne put contenir sa colère. Peu importe la manière dont il les examinait sur le chemin du retour, elles semblaient tout à fait ordinaires. Il en avait même évidé l'intérieur pour les remplir d'eau de source, mais un autre apprenti l'avait repéré et s'était moqué de lui.
+En repensant à ces gourdes, il ne put contenir sa colère. Peu importe la manière dont il les examinait sur le chemin du retour, elles semblaient tout à fait ordinaires. Il en avait même évidé l'intérieur pour les remplir d'eau de source, mais plusieurs frères de discipline l'avaient vu en chemin et s'étaient tous moqués de lui.
 
-Wang Lin ricana intérieurement, mais afficha un visage d'innocence en disant: « Je ne sais pas ce qu'est l'énergie spirituelle. J'ai simplement entendu dire que vous me donneriez une pierre spirituelle si je vous rapportais une courge. Pourriez-vous m'expliquer ce qu'est l'énergie spirituelle? »
+Wang Lin ricana intérieurement, mais afficha un visage d'innocence en disant: « Je ne sais pas ce qu'est l'énergie spirituelle. J'ai simplement entendu dire que vous me donneriez une pierre spirituelle si je vous rapportais une gourde. Pourriez-vous m'expliquer ce qu'est l'énergie spirituelle? »
 
-Sun Dazhu en eut le vertige. Il fixa Wang Lin intensément pendant un long moment. Il commença à soupçonner que cette courge était véritablement unique et que ce gamin stupide l'avait ramassée par pur coup de chance.
+Sun Dazhu en eut le vertige. Il fixa Wang Lin intensément pendant un long moment. Il commença à soupçonner que cette gourde était véritablement unique et que ce gamin stupide l'avait ramassée par pur coup de chance.
 
 Après réflexion, il réalisa que les propos de Wang Lin étaient cohérents. Ce n'est qu'en atteignant le premier niveau de la Condensation de Qi que l'on peut déceler l'énergie spirituelle environnante. En y songeant, il regretta d'avoir introduit des substances dans sa nourriture. Le talent de ce gamin était déjà médiocre, et avec ce médicament, il lui faudrait au moins trente à cinquante ans avant d'atteindre le premier niveau de la Condensation de Qi.
 
@@ -18,11 +18,11 @@ Sun Dazhu soupira, mais il n'était pas prêt à renoncer. Il sortit avec hésit
 
 Wang Lin la saisit promptement et, après avoir exprimé sa gratitude, retourna dans sa chambre.
 
-Sun Dazhu resta planté là un long moment avant de soupirer et de marmonner pour lui-même: « C'est le seul moyen de savoir s'il ment. »
+Sun Dazhu resta planté là un long moment avant de soupirer et de marmonner pour lui-même: « Qui ne sacrifie pas son enfant n'attrape pas le loup. Il ne me reste plus que cette dernière méthode pour savoir s'il ment. Il faut qu'il atteigne au plus vite le premier niveau; une fois qu'il l'aura atteint, il comptera comme entré dans la voie de la culture, et je préfère voir ma culture reculer d'un palier plutôt que de renoncer à lui appliquer la Recherche d'Âme. Ainsi, je ne violerai pas la loi du ciel et de la terre qui interdit à un cultivateur n'ayant pas atteint la Formation du Noyau de l'utiliser sur un mortel. »
 
-La Recherche d'Âme était une technique immortelle simple. Le pire résultat possible pour la cible était la mort, due à l'éclatement de son âme; le meilleur, c'était de devenir un idiot.
+La Recherche d'Âme était une technique immortelle simple, mais d'une cruauté extrême. Neuf fois sur dix, la cible mourait aussitôt, son âme dispersée; dans le meilleur des cas, elle restait idiote à vie.
 
-Cependant, cette technique d'âme présentait des inconvénients. Avant d'atteindre le stade de la Formation du Noyau, si elle était utilisée sur un mortel, l'utilisateur subirait les mêmes dommages que sa cible.
+Pour cette raison même, cette technique d'âme était soumise à des restrictions. Avant d'atteindre le stade de la Formation du Noyau, si elle était utilisée sur un mortel, l'utilisateur subirait les mêmes dommages que sa cible.
 
 Si la cible était elle aussi un cultivateur, cette restriction ne s'appliquait plus. Néanmoins, on ne pouvait l'utiliser que trois fois dans une vie, et chaque usage entraînait la perte d'un niveau de culture pour l'utilisateur.
 
@@ -44,7 +44,7 @@ Sa vision devint noire. Il lâcha le bol et sentit qu'il allait sombrer dans le 
 
 « Cultive vite. Je vais t'aider à l'absorber. » Sun Dazhu posa avec réticence sa main sur la poitrine de Wang Lin.
 
-Une sensation de fraîcheur pénétra le crâne de Wang Lin, éclaircissant son esprit. Il se mit aussitôt à cultiver. Sun Dazhu regarda tristement le bol au sol. Il murmura quelques mots, puis sortit plusieurs pierres spirituelles de faible qualité qu'il disposa autour de Wang Lin. Il pensa: « Petit, cette fois, j'investis énormément en toi. À l'avenir, tu devras me rembourser tout cela. »
+Un souffle de fraîcheur lui parvint de la poitrine, et l'esprit de Wang Lin s'éclaircit. Il se mit aussitôt à cultiver. Sun Dazhu regarda tristement le bol au sol. Il murmura quelques mots, puis sortit plusieurs pierres spirituelles de faible qualité qu'il disposa autour de Wang Lin. Il pensa: « Petit, cette fois, j'investis énormément en toi. À l'avenir, tu devras me rembourser tout cela. »
 
 Au bout d'un moment, la sensation de fourmillements apparut enfin. Sun Dazhu pouvait clairement sentir le corps de Wang Lin condenser l'énergie spirituelle issue du remède. Une expression de joie éclaira son visage.
 
@@ -64,9 +64,9 @@ Un mois passa rapidement. Durant ce mois, Wang Lin se rendit à la source pour c
 
 Tout au long de ce mois, il donna chaque jour des remèdes à Wang Lin pour l'aider à condenser son Qi, mais tous échouèrent. Le tempérament de Sun Dazhu devint de plus en plus colérique.
 
-Le point le plus crucial que Sun Dazhu remarqua fut que l'énergie spirituelle dans la courge disparaissait lentement. Après seulement un mois, l'eau qui remplissait la courge n'était plus que de l'eau de source ordinaire.
+Le point le plus crucial que Sun Dazhu remarqua fut que l'énergie spirituelle dans la gourde disparaissait lentement. Après seulement un mois, l'eau qui remplissait la gourde n'était plus que de l'eau de source ordinaire.
 
-Finalement, la courge devint identique à une courge normale. Sun Dazhu était déçu. Après analyse, il en conclut qu'il s'agissait d'une courge banale, ayant été, d'une manière ou d'une autre, imprégnée d'énergie spirituelle. Ce gamin l'avait sans doute trouvée par pur hasard; les chances qu'il possède d'autres objets de ce type étaient infimes.
+Finalement, la gourde devint identique à une gourde normale. Sun Dazhu était déçu. Après analyse, il en conclut qu'il s'agissait d'une gourde banale, ayant été, d'une manière ou d'une autre, imprégnée d'énergie spirituelle. Ce gamin l'avait sans doute trouvée par pur hasard; les chances qu'il possède d'autres objets de ce type étaient infimes.
 
 Cette conviction, bien que douloureuse pour son cœur, s'enracinait en lui. Durant ce mois, il n'avait rien fait d'autre que surveiller Wang Lin et préparer des médicaments. Tout cet effort avait été vain. Il appela Wang Lin avec colère, le réprimanda et, d'un revers de manche, l'expulsa de la cour.
 

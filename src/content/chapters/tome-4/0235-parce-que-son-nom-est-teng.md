@@ -50,7 +50,7 @@ Les yeux de Wang Lin étaient emplis de tristesse lorsqu'il alluma trois bâtons
 
 Une fois ses paroles achevées, il réfléchit un moment, puis, dans un mouvement soudain, disparut sur place.
 
-Peu après, on aperçut une voiture à chevaux fonçant vers le village de montagne. C'était un vieil homme en robes blanches qui la conduisait; il était évident qu'il s'agissait d'un artiste martial du monde mortel.
+Peu après, on aperçut une voiture à chevaux fonçant vers le village de montagne. C'était un vieil homme en robe de paille qui la conduisait; il était évident qu'il s'agissait d'un artiste martial du monde mortel.
 
 Il fit claquer le fouet et, dans un bruit sec, les chevaux accélérèrent encore davantage.
 
@@ -68,11 +68,11 @@ Dès qu'elle fut sortie, son corps trembla. La servante tint fermement le parapl
 
 Simultanément, la servante s'exclama avec mécontentement: « Ma dame, pourquoi devions-nous venir ici ce soir sous la pluie? Nous aurions pu venir demain. Et si vous tombiez malade? »
 
-Même dans le regard chaleureux du vieil homme, on percevait une pointe de regret.
+Même dans le regard chaleureux du vieil homme, on percevait une pointe de reproche.
 
-La jeune dame sourit et, en marchant, dit: « Vous l'ignorez, mais avant que grand-père ne meure, il avait dit que quoi qu'il arrive, un descendant devait venir visiter ce lieu en ce jour précis. C'est une tradition familiale. »
+La jeune dame sourit et, en marchant, dit: « Vous l'ignorez, mais avant que grand-père ne meure, il avait dit que quoi qu'il arrive, un descendant devait venir visiter ce lieu chaque année en ce jour précis. C'est une tradition familiale. »
 
-La servante n'était toujours pas convaincue: « Ma dame, cet endroit est si loin de la capitale. Pourquoi devons-nous revenir ici ainsi? Y a-t-il quelque chose d'important caché ici? J'ai entendu dire par l'autre servante que ce lieu était autrefois l'une des branches de la famille Wang. »
+La servante n'était toujours pas convaincue: « Ma dame, cet endroit est si loin de la capitale. Pourquoi devons-nous revenir ici chaque année? Y a-t-il quelque chose d'important caché ici? J'ai entendu dire par l'autre servante que ce lieu était autrefois l'une des branches de la famille Wang. »
 
 La jeune dame empêcha le vieil homme d'ouvrir le portail et leva sa main semblable au jade pour le pousser elle-même. Elle sourit à la servante: « C'est la première fois que tu m'accompagnes, alors tu ne sais pas encore. Quand nous en aurons le temps, je t'expliquerai. »
 
@@ -82,7 +82,7 @@ La jeune femme prit une profonde inspiration. Alors que la servante s'apprêtait
 
 La servante fit la moue mais acquiesça docilement.
 
-La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa une natte devant elles et s'agenouilla. Après avoir effectué ses kowtows, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasée d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
+La jeune femme sourit, toussa quelques fois, puis marcha lentement vers le hall principal. Une fois à l'intérieur, elle regarda les deux tablettes. Elle disposa une natte devant elles et s'agenouilla. Après avoir effectué ses kowtows, elle s'apprêta à sortir de l'encens, mais ses yeux se figèrent sur les trois bâtons presque consumés. Au moment où elle allait pousser un cri, elle sentit une bourrasque d'air glacial envahir la pièce. Elle se pétrifia, le front couvert de sueur froide; elle sentit que le moindre mouvement entraînerait sa mort instantanée.
 
 Elle vit alors un jeune homme aux cheveux blancs entrer lentement dans la pièce.
 
@@ -104,7 +104,7 @@ La jeune femme afficha un regard déterminé. Elle serra les dents: « Mon père
 
 Wang Lin fronça les sourcils: « Quel est le lien entre toi et les personnes dont les noms sont gravés sur ces tablettes? »
 
-«... C'est la demeure ancestrale du frère de mon ancêtre. » La jeune femme était perplexe. Si cet homme était un envoyé d'un ennemi de son père, pourquoi poser de telles questions?
+«... C'est la famille entière du frère aîné de mon ancêtre. » La jeune femme était perplexe. Si cet homme était un envoyé d'un ennemi de son père, pourquoi poser de telles questions?
 
 Le cœur de Wang Lin tressaillit. Sa voix n'était plus neutre; elle tremblait légèrement lorsqu'il demanda: « Quel est le nom de ton ancêtre? »
 
@@ -122,9 +122,9 @@ Les yeux de la jeune femme s'écarquillèrent: « Comment... comment savez-vous 
 
 Le temps passe et les hommes vont et viennent. Après avoir appris pour l'oncle quatrième, l'état d'esprit de Wang Lin changea. Après un long silence, il regarda la jeune femme et dit lentement: « Il y a une énergie Yin nocive dans ton corps. Ta mère était-elle blessée lorsqu'elle était enceinte de toi? »
 
-Les paroles de Wang Lin plongèrent l'esprit de la jeune femme dans le chaos. Il faut dire que si Wang Lin avait pu l'inspecter minutieusement, ses suppositions auraient pu paraître logiques. Pourtant, très peu de gens connaissaient l'existence de cette énergie Yin; la plupart pensaient simplement qu'elle était née avec une constitution fragile.
+Les paroles de Wang Lin plongèrent l'esprit de la jeune femme dans le chaos. Il faut dire que ce qu'il avait dit auparavant pouvait, après une enquête minutieuse, laisser quelques traces. Pourtant, très peu de gens connaissaient la cause de cette blessure Yin; la plupart savaient seulement qu'elle était de constitution fragile depuis l'enfance.
 
-La jeune femme fixa Wang Lin et demanda d'une voix tremblante: « Vous... qui êtes-vous donc? » Elle avait déjà conclu qu'il s'agissait d'un assassin envoyé par les ennemis de son père, mais si tel était le cas, comment pouvait-il savoir autant de choses?
+La jeune femme fixa Wang Lin et demanda d'une voix tremblante: « Vous... qui êtes-vous donc? » Elle commençait déjà à douter qu'il s'agisse d'un assassin envoyé par les ennemis de son père, car si tel était le cas, comment pourrait-il savoir autant de choses?
 
 Wang Lin agita la main droite et un nuage de brume verte commença à se rassembler au front de la jeune femme. La teinte devint de plus en plus sombre jusqu'à ce que Wang Lin, d'un nouveau geste, fasse disparaître le gaz sans laisser de trace.
 
@@ -134,9 +134,9 @@ Elle mordilla sa lèvre et demanda: « Vous... vous êtes un immortel? »
 
 Wang Lin eut un petit rire: « Un immortel... en quelque sorte. » En voyant que l'oncle quatrième avait laissé des descendants prospérant à la capitale, Wang Lin ne put s'empêcher de ressentir un apaisement.
 
-Il réfléchit un instant, regarda la jeune femme et dit: « À vrai dire, je suis aussi considéré comme ton ancêtre. J'avais conclu un pacte avec le quatrième oncle: si je devenais immortel, je protégerais sa famille en reconnaissance de l'opportunité qu'il m'avait offerte. » Sur ce, il frappa son sac de rangement et en sortit des flacons de pilules: « Il y a ici 72 pilules. Chaque descendant peut en prendre une. Ils ne doivent pas être gourmands, mais tu es autorisée à en prendre trois. »
+Il réfléchit un instant, regarda la jeune femme et dit: « À vrai dire, je suis aussi considéré comme ton ancêtre. J'avais conclu un pacte avec le quatrième oncle: si je devenais immortel, je protégerais sa famille en reconnaissance de l'opportunité qu'il m'avait offerte. » Sur ce, il frappa son sac de rangement et en sortit des flacons de pilules: « Il y a ici 72 pilules. Chaque descendant de la lignée directe ne peut en prendre qu'une dans sa vie. Ils ne doivent pas être gourmands, mais tu es autorisée à en prendre trois. »
 
-Après avoir remis le flacon à la jeune femme, il réfléchit encore et pointa son doigt entre ses sourcils. Après en avoir extrait une goutte de sang, il sortit un morceau de jade de son sac. Il y déposa une parcelle de son royaume de Ji, puis se tourna vers elle. Son expression devint grave et froide: « J'ai laissé un fragment de mon sens divin dans ce jade. Aucun cultivateur à Zhao ne pourra résister plus d'un instant à sa puissance. Cependant, ce jade ne peut être utilisé que trois fois. Garde-le pour l'instant. Seuls les descendants de la famille Wang peuvent l'utiliser. Sois prudente et utilise-le avec sagesse. »
+Après avoir remis le flacon à la jeune femme, il réfléchit encore et pointa son doigt entre ses sourcils. Après en avoir extrait une goutte de sang, il sortit un morceau de jade de son sac. Il y déposa une marque de son Royaume Ji, puis se tourna vers elle. Son expression devint grave et froide: « J'ai laissé un fragment de mon sens divin dans ce jade. Aucun cultivateur à Zhao ne pourra résister plus d'un instant à sa puissance. Cependant, ce jade ne peut être utilisé que trois fois. Garde-le pour l'instant. Seuls les descendants de la famille Wang peuvent l'utiliser. Sois prudente et utilise-le avec sagesse. »
 
 Après avoir lancé le jade à la jeune femme, Wang Lin agita ses manches et disparut de la pièce.
 
@@ -226,15 +226,15 @@ Wang Lin esquissa un sourire cruel. D'un geste, il attira le jeune homme vers lu
 
 Wang Lin serra le poing et, dans un craquement sinistre, les yeux du jeune homme sortirent de leurs orbites et il mourut sur le coup. De sa main gauche, Wang Lin frappa son sac pour en sortir un drapeau d'âme qui absorba l'essence du défunt.
 
-Wang Lin jeta le corps derrière lui. Simultanément, une longue bannière de dragon jaillit de son sac et enveloppa la dépouille, tenue par la bête moustique.
+Wang Lin jeta le corps derrière lui. Simultanément, un long tendon de dragon jaillit de son sac et lia solidement la dépouille, son autre extrémité étant tenue dans la gueule de la bête moustique.
 
 Tout cela se déroula sous les yeux de l'ensemble de la Secte Tian Dao. Wang Lin avait tué cet homme avec une rapidité et une netteté effrayantes. Puis, il chargea le hall principal vers un autre jeune homme qui, les poings serrés, affichait une expression d'indignation. Après cet instant, il n'aurait plus jamais l'occasion de les desserrer.
 
 Tout cela, parce que son nom était Teng!
 
-La paume droite de Wang Lin percuta la tête du jeune homme. Ses organes internes furent pulvérisés et son âme fut capturée par le drapeau. Sans aucune pitié dans le regard, Wang Lin s'élança à nouveau. À ce moment, les cultivateurs de l'Âme Naissante l'avaient rattrapé. Un homme au visage rouge apparut devant lui et, bien qu'effrayé, dit rapidement: « Cher collègue, je vous en prie, arrêtez-vous. Si un problème existe, nous pouvons en discuter. »
+La paume droite de Wang Lin percuta la tête du jeune homme. Ses organes internes furent pulvérisés et son âme fut capturée par le drapeau. Sans aucune pitié dans le regard, Wang Lin s'élança à nouveau. À ce moment, les cultivateurs de l'Âme Naissante l'avaient rattrapé. Un homme au visage rouge apparut devant lui et, bien qu'effrayé, dit rapidement: « Cher confrère, je vous en prie, arrêtez-vous. Si un problème existe, nous pouvons en discuter. »
 
-Wang Lin ne daigna même pas un regard à l'individu. Son royaume de Ji s'activa instantanément et, en un éclair, les yeux de l'homme s'éteignirent. En passant devant lui, Wang Lin le frappa, faisant éclater son corps et son Âme Naissante en mille morceaux qui tombèrent au sol.
+Wang Lin ne daigna même pas un regard à l'individu. Son Royaume Ji s'activa instantanément et, en un éclair, les yeux de l'homme se voilèrent de gris et son sens divin vola en éclats. En passant devant lui, Wang Lin le frappa, faisant éclater son corps et son Âme Naissante en mille morceaux qui tombèrent au sol.
 
 Une voix aussi glaciale que l'hiver s'échappa de la bouche de Wang Lin: « Quiconque tentera de m'arrêter commettra le même crime que la famille Teng! »
 
@@ -246,13 +246,13 @@ Ensuite, les cultivateurs se regardèrent. Ils mordirent leur lèvre inférieure
 
 Une femme magnifique volait vers la Secte Tian Dao, le visage paniqué. Elle ne voulait pas mourir. Ses yeux étaient emplis de terreur. Elle ne voulait pas mourir, mais son nom était Teng!
 
-Wang Lin brisa impitoyablement sa colonne vertébrale. Après avoir recueilli son âme, il projeta son corps en arrière. La bannière de dragon s'élança à nouveau pour l'envelopper. À cet instant, trois corps ornaient la bannière.
+Wang Lin broya impitoyablement ses vertèbres cervicales. Après avoir recueilli son âme, il projeta son corps en arrière. Le tendon de dragon s'élança à nouveau pour l'enrouler. À cet instant, trois corps y étaient attachés.
 
 Wang Lin ne s'arrêta pas. Sur les quatre personnes restantes, deux étaient dans la montagne arrière et les deux autres fuyaient. L'une d'elles était presque hors de portée de la formation de la Secte Tian Dao.
 
 Les yeux de Wang Lin étaient de glace. Il se déplaça et apparut instantanément à l'extérieur de la secte. Il vit un jeune homme voler frénétiquement en regardant sans cesse derrière lui. Cependant, la tête que le jeune homme tournait n'aurait plus jamais l'occasion de se retourner, car son nom était Teng!
 
-Wang Lin lui envoya une pichenette sur la poitrine. Le corps du jeune homme trembla et il mourut instantanément. Wang Lin emprisonna son âme, renvoya le corps vers la bannière de dragon, puis fonça vers sa prochaine cible.
+Wang Lin lui envoya une pichenette sur la poitrine. Le corps du jeune homme trembla et il mourut instantanément. Wang Lin emprisonna son âme, renvoya le corps vers le tendon de dragon, puis fonça vers sa prochaine cible.
 
 Les cultivateurs de l'Âme Naissante qui le suivaient étaient horrifiés. Ils partageaient tous la même pensée: quand la famille Teng avait-elle offensé un tel démon?
 
@@ -266,7 +266,7 @@ Le visage du vieil homme ne montrait ni panique ni chagrin, mais une expression 
 
 Cependant, son destin était déjà scellé car son nom était Teng!
 
-Lorsque Wang Lin apparut devant lui, il cessa de voler et regarda le démon d'un air sombre: « Aîné, quel grief avez-vous contre notre famille Teng? Il doit y avoir un malentendu... »
+Lorsque Wang Lin apparut devant lui, il cessa de voler et regarda le démon d'un air sombre: « Senior, quel grief avez-vous contre notre famille Teng? Il doit y avoir un malentendu... »
 
 Wang Lin ne dit mot. Sans laisser l'homme finir, il agita la main et une épée volante noire jaillit de son sac. La lame transperça la poitrine du vieil homme. Son corps devint noir; il mourut avant d'avoir pu terminer sa phrase.
 
@@ -288,9 +288,9 @@ Quant à Teng You, dès qu'elle ouvrit les yeux, elle vit la tête de Teng Xuan 
 
 Ils étaient condamnés à mourir car ces deux frères et sœurs s'appelaient Teng!
 
-Après les avoir tués, il scella leurs âmes, attacha leurs corps et quitta le pavillon. Les cultivateurs de l'Âme Naissante de la secte se tenaient tous devant le pavillon en silence. Wang Lin ne daigna même pas un regard vers eux alors qu'il sautait sur le dos de la bête moustique pour partir, l'étendard du dragon traînant derrière lui. Sur cet étendard reposaient sept cadavres.
+Après les avoir tués, il scella leurs âmes, attacha leurs corps et quitta le pavillon. Les cultivateurs de l'Âme Naissante de la secte se tenaient tous devant le pavillon en silence. Wang Lin ne daigna même pas un regard vers eux alors qu'il sautait sur le dos de la bête moustique pour partir, le tendon de dragon traînant derrière lui. Au bout de ce tendon étaient attachés sept cadavres.
 
-Wang Lin ne ralentit pas tandis que la bête s'éloignait de la Secte Tian Dao. De loin, les sept corps attachés à la bannière ressemblaient aux plumes d'un paon émettant une lueur sanglante.
+Wang Lin ne ralentit pas tandis que la bête s'éloignait de la Secte Tian Dao. De loin, les sept corps attachés au tendon de dragon ressemblaient aux plumes d'un paon émettant une lueur sanglante.
 
 Ce n'est que lorsque Wang Lin disparut à l'horizon qu'ils purent enfin reprendre leur souffle. L'un d'eux chuchota: « La famille Teng est finie... »
 

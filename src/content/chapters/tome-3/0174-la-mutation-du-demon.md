@@ -34,23 +34,23 @@ Tout en avançant lentement, il déploya son Sens Divin pour observer attentivem
 
 Quelques jours plus tard, l'expression de Wang Lin changea. À travers son Sens Divin, il vit un nuage noir foncer rapidement vers lui.
 
-À chaque mouvement du nuage noir, les tornades noires tentaient d'esquiver. Celles qui n'étaient pas assez rapides se dispersaient en d'innombrables petites créatures et étaient aussitôt dévorées par le nuage. Wang Lin remit la pilule dans sa bouche tout en fixant le nuage noir, s'enfonçant encore plus profondément.
+Partout où passait le nuage noir, les tornades noires s'écartaient; de temps à autre, celles qui n'esquivaient pas à temps s'effondraient aussitôt en petites créatures et étaient avalées par le nuage. Wang Lin remit la pilule antipoison dans sa bouche tout en fixant le nuage noir, et s'enfonça lentement plus profondément.
 
-Peu de temps après, le nuage passa. Derrière lui se trouvait la tornade reine. Elle tournait actuellement à une vitesse folle pour générer le maximum de vent; c'était elle qui propulsait le nuage noir si rapidement.
+Peu de temps après, le nuage noir arriva en rugissant. Derrière lui se trouvait, bien en vue, le roi des tornades. Il tournait à une vitesse folle, soulevant d'innombrables vents violents; c'était cela qui poussait le nuage noir si rapidement.
 
-La tornade reine poussa le nuage noir au-delà de la position de Wang Lin et s'éloigna dans les profondeurs. Peu après, la tornade reine revint. Cette fois, elle se déplaçait encore plus vite, poussant des hurlements tonitruants avant de disparaître à nouveau.
+Le roi des tornades poussa le nuage noir qui traversa en un éclair le lieu où Wang Lin se cachait, puis s'éloigna au loin. Peu après, le roi des tornades revint. Cette fois, il se déplaçait encore plus vite, poussant des hurlements violents avant de repasser en un éclair et de disparaître au loin.
 
-Une fois le calme revenu, Wang Lin continua sa progression lente. Il eut un ricanement amer. Ce nuage noir devait avoir été créé par Bossu Meng. Sans la tornade reine pour le repousser, les petites créatures auraient énormément souffert une fois le nuage dispersé.
+Une fois qu'il fut parti, Wang Lin continua lentement sa progression. Il ricana intérieurement. Ce nuage noir était sans aucun doute l'œuvre de Bossu Meng; vu sa puissance, si le roi des tornades ne l'avait pas dispersé, une fois répandu, les petites créatures auraient sans doute subi de lourdes pertes.
 
-Après réflexion, ses yeux s'illuminèrent. Bossu Meng devait posséder de nombreux trésors et pilules; si ces petites créatures parvenaient à le tuer, Wang Lin pourrait peut-être s'en emparer. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, le cœur de Wang Lin se mit à battre plus vite. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
+Après réflexion, ses yeux s'illuminèrent: si ces petites créatures parvenaient à tuer Bossu Meng, il y aurait sûrement sur lui de nombreux trésors et pilules. En songeant aux richesses d'un puissant cultivateur de la Formation de l'Âme, Wang Lin ne put s'empêcher d'être tenté. Cependant, il chassa rapidement cette idée. Comparés aux trésors, sa vie était bien plus précieuse.
 
 Après un soupir, Wang Lin abandonna ces pensées irréalistes et reprit sa marche. Toutefois, après avoir confirmé la position de Bossu Meng, il ne marcha plus en ligne droite, mais fit un détour.
 
-Une demi-lune plus tard, il traversa une zone remplie de tornades noires qui le stupéfia dès qu'il les perçut par son Sens Divin.
+Une demi-lune plus tard, grâce à sa grande prudence, il contourna un groupe de tornades noires qui l'avait stupéfié dès qu'il l'avait perçu par son Sens Divin.
 
-Le groupe de tornades était extrêmement dense. Le nombre de petites créatures là devait excéder les cent millions. Wang Lin en eut le vertige. Cela le rendit encore plus prudent; il passa un mois entier à contourner ce groupe de tourbillons.
+Le groupe de tornades était extrêmement dense. Le nombre de petites créatures qu'il contenait devait dépasser plusieurs centaines de millions. Wang Lin en eut la chair de poule. Cela le rendit encore plus prudent; il passa un mois entier à contourner ce groupe de tourbillons.
 
-La plupart des tornades noires avaient été attirées par Bossu Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, le danger réel restait limité. Wang Lin se trouvait alors à l'intérieur d'une tour noire tout en surveillant la position de Bossu Meng.
+La plupart des tornades de cette terre avaient été attirées par Bossu Meng, ainsi, bien qu'il y eût quelques frayeurs en chemin, il n'y eut pas de véritable danger. Wang Lin se trouvait alors à l'intérieur d'une tour noire et, se retournant pour regarder derrière lui, il vit que Bossu Meng se trouvait là-bas!
 
 Après un ricanement intérieur, il quitta la tour et poursuivit sa route. Au loin, il pouvait distinguer un vortex gigantesque dans le ciel.
 
@@ -60,19 +60,19 @@ Wang Lin prit une profonde inspiration et marcha vers le vortex. À ce stade, il
 
 Cependant, l'évasion terrestre n'augmentait la vitesse uniquement lorsqu'on était sous terre. Tant qu'il y avait de la terre sous ses pieds, bien que ce ne fût pas aussi rapide qu'une épée volante, cela restait plus véloce que la course.
 
-Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que son savoir n'était rien comparé à la véritable technique d'évasion terrestre, celle qui, disait-on, permettait de parcourir plusieurs milliers de kilomètres en quelques respirations.
+Ces derniers mois, Wang Lin avait utilisé cette technique sans relâche, et sa maîtrise s'en trouvait grandement accrue. Il sentait que sa maîtrise n'était qu'un vernis comparée à la véritable technique d'évasion terrestre décrite dans la tablette de jade de l'évasion terrestre, celle qui permettait de raccourcir le sol et de parcourir plusieurs milliers de kilomètres en un instant.
 
 Tout en soupirant, il n'oublia pas de maintenir son Sens Divin déployé pour inspecter les environs. Par chance, de vastes quantités de tornades noires étaient attirées par Bossu Meng. En avançant ainsi, Wang Lin ne rencontra guère de danger.
 
-Trois jours plus tard, le vortex était désormais à portée de vue. Alors qu'il progressait, l'expression de Wang Lin changea brusquement et il s'enfouit dans le sol. Soudain, une force puissante se mit à lui résister. Il vida une grande gorgée de liquide spirituel pour obtenir la puissance nécessaire pour la repousser.
+Trois jours plus tard, le vortex était désormais à portée de vue. Alors qu'il progressait, l'expression de Wang Lin changea brusquement et il s'enfouit dans le sol. Soudain, une force puissante se mit à lui résister. Il avala une grande gorgée de liquide spirituel et mobilisa l'énergie spirituelle de son corps pour y résister.
 
-Non loin de là, dix tornades noires apparurent soudainement en direction du vortex. Leur cible était Bossu Meng. Lorsqu'elles atteignirent l'endroit où se cachait Wang Lin, elles s'arrêtèrent brusquement et commencèrent à encercler la zone.
+Non loin de là, plus d'une dizaine de tornades noires apparurent soudainement. Elles venaient du vortex, et leur cible était la direction de Bossu Meng. Lorsqu'elles atteignirent l'endroit où se cachait Wang Lin, elles s'arrêtèrent brusquement et commencèrent à encercler la zone.
 
 Le cœur de Wang Lin sombra. Il avait tenté d'entrer dans l'espace de la perle défiant le ciel auparavant, mais il n'y était pas parvenu depuis son arrivée dans ce désert. Autrement, il se serait contenté de s'y réfugier jusqu'à ce que les tornades passent.
 
 Wang Lin observa le vortex au loin et commença à calculer. Serrant les dents, il frappa son sac de rangement pour en faire sortir le démon. En voyant toutes ces petites créatures au-dessus d'eux, le démon fut pris d'une excitation soudaine et chargea immédiatement vers elles.
 
-Hélas, dès son apparition, les dix tornades environnantes poussèrent des hurlements. Plus de dix mille Sens Divins fusionnèrent pour s'abattre sur le démon.
+Hélas, dès son apparition, la dizaine de tornades environnantes poussèrent des hurlements. Plus de dix mille Sens Divins fusionnèrent pour s'abattre sur le démon.
 
 Le démon poussa un cri misérable. Cette attaque combinée de Sens Divin était au-dessus de ses forces. Son corps commença à dégager une fumée verte, et il voulut reculer vers Wang Lin, mais une seconde attaque survint.
 
@@ -82,13 +82,13 @@ Après ce cri, toutes les tornades s'interrompirent et cessèrent de tourner, r�
 
 Les yeux du second démon devinrent rouges alors qu'il poussait un autre cri. Les petites créatures commencèrent toutes à reculer, le regard empreint de terreur face au nouveau venu.
 
-Wang Lin était surpris. Ses yeux brillèrent tandis qu'il réfléchissait. Quant à Xu Liguo, il se sentait profondément humilié. On pouvait dire que retrouver la mémoire n'était pas toujours une bénédiction; au moins, il ne ressentait pas cette honte avant cela. À cet instant, il pensa secrètement: « C'est trop honteux! J'ai été sauvé par mon petit frère... Peu importe, j'étais le premier à suivre ce démon. Non, si ça continue, chaque petit frère que ce démon créera sera plus fort que moi. Non, je ne peux pas laisser cela arriver! »
+Wang Lin était surpris. Ses yeux brillèrent tandis qu'il réfléchissait. Quant à Xu Liguo, il se sentait profondément humilié. On pouvait dire que retrouver la mémoire n'était pas toujours une bénédiction; au moins, il ne ressentait pas cette honte avant cela. À cet instant, il pensa secrètement: « C'est trop honteux! J'ai été sauvé par mon petit frère... Peu importe, j'étais le premier à suivre ce monstre. Non, si ça continue, chaque petit frère que ce monstre créera sera plus fort que moi. Non, je ne peux pas laisser cela arriver! »
 
 Le démon serra les dents et chargea l'une des tornades. Après avoir saisi quelques petites créatures, il commença à les dévorer.
 
 Les petites créatures paniquèrent et tentèrent de s'enfuir, mais le second démon poussa un autre cri. Elles n'osèrent plus bouger; la peur dans leurs yeux s'intensifia.
 
-Plus Wang Lin observait, plus son regard s'illuminait. Une idée lui vint soudainement: le second démon devait être perçu comme une mutation par ces créatures. Il devait exister un lien mystérieux entre eux pour provoquer une telle réaction.
+Plus Wang Lin observait, plus son regard s'illuminait. Une idée lui vint soudainement: le second démon devait se situer, aux yeux de ces créatures, entre le semblable et l'étranger. Il devait y avoir en lui un changement singulier qui le plaçait au-dessus de ses semblables, d'où la scène présente.
 
 Si cela était vrai, la raison pour laquelle les Sens Divins de ces petites créatures pouvaient fusionner devenait logique. Ses yeux brillèrent alors qu'il émergeait de sous terre.
 
@@ -100,6 +100,6 @@ Xu Liguo sourit immédiatement, affichant une expression de soumission envers le
 
 Il grommela intérieurement: « Tu attends! Attends seulement! Pousse-moi trop loin et je me battrai contre toi à mort! »
 
-Wang Lin ne daigna même pas un regard à Xu Liguo. Il tenait secrètement la pierre de jade que Li Muwan lui avait donnée. Son Sens Divin se déploya pour inspecter les petites créatures une à une. Finalement, il découvrit qu'une dizaine d'entre elles étaient des mutants, car elles possédaient des Sens Divins bien plus puissants.
+Wang Lin ne daigna même pas un regard à Xu Liguo. Il serrait discrètement dans sa main la tablette de jade défensive que Li Muwan lui avait offerte. Son Sens Divin se déploya pour inspecter les petites créatures une à une. Finalement, il découvrit que, dans chacun de ces plus de dix groupes de petites créatures, se trouvait un mutant dont le Sens Divin était nettement plus puissant que celui de ses semblables.
 
-Alors qu'il observait, Wang Lin parvint à identifier un total de dix variantes, avant que l'une d'elles ne s'élance soudainement devant le second démon en poussant plusieurs cris aigus.
+Pendant qu'il observait, l'un de la dizaine de mutants qu'il avait repérés s'élança soudainement, s'arrêta devant le second démon et émit une série de sons aigus.

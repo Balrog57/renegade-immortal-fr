@@ -130,7 +130,7 @@ Naturellement, les deux clans restaient en contact; on pouvait dire que le Clan 
 
 « Puisque cela a été personnellement consigné par Xi Zu lui-même, je vous crois et je me joindrai à vous pour ce voyage. Je ne convoite aucun trésor autre que ce cercueil de jade céleste. Il doit être à moi! » La voix de Papillon Rouge était empreinte d'une détermination absolue.
 
-Chi Hu fronça les sourcils, pensant intérieurement que cette Papillon Rouge était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Ceng Niu si le butin était partagé entre elles deux.
+Chi Hu fronça les sourcils, pensant intérieurement que cette Papillon Rouge était bien trop autoritaire. Bien qu'il fût lui aussi intéressé par le cercueil de jade, ces trois épées célestes étaient son véritable objectif. Si l'on n'était que deux, cela aurait pu convenir, mais il ne resterait rien pour Ceng Niu si le butin était partagé entre eux deux.
 
 Chi Hu réfléchit un instant avant de dire lentement: « Estimée cultivatrice Papillon Rouge, cette affaire ne se décide pas aussi aisément. Après tout, en plus de nous deux, une troisième personne va se joindre à notre expédition. »
 

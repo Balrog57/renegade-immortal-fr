@@ -48,7 +48,7 @@ Autour du fourreau se trouvaient quatre ombres à l'apparence humaine. Elles ét
 
 En voyant cela de loin, Wang Lin s'arrêta brusquement. Son regard restait calme alors qu'il agissait d'un geste de la main droite.
 
-Soudain, le fourreau d'épée trembla et l'intérieur du rocher noir commença à s'agiter. Cependant, les quatre ombres se tournèrent subitement vers Wang Lin, leurs yeux fantomatiques fixés sur lui.
+Soudain, le fourreau d'épée trembla et l'intérieur du rocher noir commença à s'agiter. Cependant, les quatre ombres se tournèrent subitement vers Wang Lin, leurs yeux fantomatiques, où brillait une lueur bleue, fixés sur lui.
 
 Le regard de Wang Lin demeura impassible; il ne prononça pas un mot.
 
@@ -64,7 +64,7 @@ L'ombre poussa un cri misérable tandis qu'un gaz noir jaillissait de son corps.
 
 Cependant, au moment même où elle allait s'évanouir, Wang Lin lança un second faisceau d'énergie spirituelle qui pénétra l'ombre en train de se dissiper, la forçant à se reformer pour se transformer en une statue de démon!
 
-Cette statue était basée sur un monstre connu sous le nom de « You » dans les souvenirs de Tu Si. Elle avait été façonnée par son domaine de vie et de mort. Dès son apparition, elle poussa un rugissement et chargea les trois ombres restantes.
+Cette statue était basée sur un ennemi nommé « You » dans les souvenirs de Tu Si. Elle avait été façonnée par son domaine de vie et de mort. Dès son apparition, elle poussa un rugissement et chargea les trois ombres restantes.
 
 Le corps de Wang Lin n'avait pas bougé, car son âme originelle était toujours immergée dans son domaine de vie et de mort. Il contrôlait la statue qu'il avait créée par l'intermédiaire de son domaine.
 
@@ -72,7 +72,7 @@ C'était la première fois que Wang Lin utilisait une véritable technique de Fo
 
 Toutes les techniques reposent sur le domaine propre du cultivateur et sont créées par lui-même.
 
-Les trois ombres autour du fourreau poussèrent des cris stridents. L'une d'elles sauta sur le fourreau d'épée et s'enfuit avec lui.
+Les trois ombres autour du fourreau poussèrent des cris stridents. L'une d'elles bondit sur le fourreau d'épée et fusionna avec lui, puis l'enroula et jaillit du rocher noir pour s'enfuir au loin.
 
 Quant aux deux autres, elles se tournèrent vers la statue avec leurs regards spectraux et bondirent sur elle. L'une des ombres explosa en d'innombrables éclats noirs qui pénétrèrent la statue de toutes parts.
 
@@ -104,9 +104,9 @@ Le corps de Wang Lin se mouva et disparut. Lorsqu'il réapparut, il se trouvait 
 
 Il apparut à l'extérieur de la vallée Jue Ming. Sans perdre un instant, il s'envola rapidement.
 
-Un mois plus tard, Wang Lin sortit d'un réseau de transfert loin de Zhao.
+Un mois plus tard, Wang Lin sortit d'un ancien réseau de transfert loin de Zhao.
 
-Il marmonna: « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la porte céleste ne devrait pas tarder. Bien que je vienne d'atteindre le stade de Formation de l'Âme et que je sois encore loin de la Transformation de l'Âme, une chance subsiste. Une fois que j'aurai atteint la Transformation de l'Âme, Situ Nan pourra se réveiller. Il a dit un jour qu'il était le premier cultivateur de Suzaku, il doit donc connaître le cristal planétaire de culture. Il devrait pouvoir m'aider à obtenir ce trésor. »
+Il marmonna: « Avec l'apparition du Chaudron de la Pluie, l'ouverture de la porte céleste ne devrait pas tarder. Bien que je vienne d'atteindre le stade initial de la Formation de l'Âme et que je sois encore loin de la Transformation de l'Âme, une chance subsiste. Une fois que j'aurai atteint la Transformation de l'Âme, Situ Nan pourra se réveiller. Il a dit un jour qu'il était le premier cultivateur de Suzaku, il doit donc connaître le cristal planétaire de culture. Il devrait pouvoir m'aider à obtenir ce trésor. »
 
 « Reste à savoir si je pourrai également ressusciter maman et papa une fois que j'aurai atteint la Transformation de l'Âme... mais mon domaine est celui de la vie et de la mort. Plus je comprends le cycle de la réincarnation, plus je réalise à quel point il est difficile de s'y opposer. Cet objectif de ressusciter mes parents sera extrêmement ardu... » Wang Lin poussa un soupir.
 

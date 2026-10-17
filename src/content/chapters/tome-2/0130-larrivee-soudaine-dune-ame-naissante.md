@@ -10,21 +10,21 @@ slug: larrivee-soudaine-dune-ame-naissante
 
 Lin Tao réagit promptement, pensant qu'une fois de retour, il devrait avoir une longue discussion avec son cousin. C’était une question de vie ou de mort; quoi qu’il en coûte, il devait obtenir une copie de cette carte.
 
-Les vêtements de Yang Xiong étaient trempés de sueur froide. La brise glaciale qui soufflait sur lui le faisait frissonner. Des vagues de froid l'envahirent alors qu'il réalisait qu'il venait de frôler la mort.
+Les vêtements de Yang Xiong étaient trempés de sueur froide. Une légère brise soufflait sur lui et le faisait frissonner. Des vagues de froid l'envahirent alors qu'il réalisait qu'il venait de frôler la mort.
 
 Zhou Zihong lança un regard calme à Yang Xiong avant de partir.
 
-Wang Lin volait sans but dans le ciel, plongé dans ses pensées. Peu de temps après, son regard s'illumina. Quoi qu'il arrive, il ne pouvait pas se rendre à ce Sanctuaire du Dieu de la Guerre. Sans parler du fait que si l'un de ces trois individus envisageait la rébellion, les secrets qu'il détenait actuellement ne pourraient absolument pas être dissimulés à un cultivateur de l'Âme Naissante.
+Wang Lin volait sans but dans le ciel, plongé dans ses pensées. Peu de temps après, son regard s'illumina. Quoi qu'il arrive, il ne pouvait pas se rendre à ce Sanctuaire du Dieu de la Guerre. Sans même parler de savoir si Zhou, Yang et Lin tramaient quelque complot, le seul secret de sa possession ne pouvait absolument pas être dissimulé devant un cultivateur de l'Âme Naissante.
 
-Il était fort probable que l'ancêtre de l'Âme Naissante avait déjà utilisé une méthode étrange pour découvrir qu'il avait possédé Mai Liang. En y pensant, il ressentit soudainement une pointe de crainte; son visage s'assombrit et sa vitesse augmenta.
+Il était fort probable que l'ancêtre de l'Âme Naissante du Sanctuaire avait déjà découvert, à partir d'indices infimes, qu'il avait possédé Ma Liang. En y pensant, il ressentit soudainement une pointe de crainte; son visage s'assombrit et sa vitesse augmenta.
 
 Wang Lin avait déjà spéculé que cela arriverait, mais les actions du groupe de Yang Xiong ne faisaient que lui en donner la confirmation.
 
-Alors qu'il volait, une voix douce pénétra soudainement ses oreilles. « Petit ami, pourriez-vous s'il vous plaît me rendre l'essence sanguine de l'âme de mon disciple? » Cette voix était magnifique, d'une douceur mélodieuse à l'oreille.
+Alors qu'il volait, une voix douce pénétra soudainement ses oreilles. « Jeune ami, pourriez-vous rendre l'essence de sang de l'âme de mon petit-disciple? » Cette voix était magnifique, d'une douceur mélodieuse à l'oreille.
 
-Le corps de Wang Lin s'arrêta brusquement. Devant lui, une femme enchanteresse s'avançait.
+Le corps de Wang Lin s'arrêta brusquement. Devant lui, dans la brume tourbillonnante, prit forme une femme enchanteresse qui s'avança vers lui.
 
-Les pas de la femme étaient aussi légers que les nuages, chacun produisant un léger bruissement. Elle portait une robe de cour bleue dont la partie inférieure était ornée de pans triangulaires de tissu vert jade. Une ceinture entourait sa taille, d'où s'échappaient de longs rubans. Sa tenue dégageait une impression d'intelligence et d'élégance.
+Les pas de la femme étaient légers, chacun s'accompagnant d'un léger tintement. Elle portait une robe de cour bleu ciel dont l'ourlet était orné de nombreux pans triangulaires superposés de tissu vert jade. Une jupe-tablier ceignait sa taille, d'où s'échappaient de longs rubans. Portée par cette jeune femme, la robe de cour lui conférait naturellement une grâce vive et aérienne.
 
 La femme était d'une grande beauté. Sans aucun maquillage, son visage arborait une légère rougeur et sa peau avait la blancheur de la crème.
 
@@ -32,19 +32,19 @@ La femme était d'une grande beauté. Sans aucun maquillage, son visage arborait
 
 L'expression de Wang Lin était restée impassible, mais dans son cœur, il était en alerte maximale. Il ne parvenait pas à percevoir le niveau de culture de cette femme. C'était clairement une cultivatrice de l'Âme Naissante.
 
-Wang Lin la regarda calmement et dit: « Quel est le nom du petit-disciple de l'Aînée? »
+Wang Lin la regarda sans détourner les yeux et dit: « Quel est le nom du petit-disciple de Senior? »
 
 La femme esquissa un sourire gracieux et répondit d'une voix suave: « Le nom de mon petit-disciple est Zhou Zihong. »
 
-Wang Lin hocha la tête sans hésiter et déclara avec détermination: « Très bien. Une fois que je serai à mille kilomètres, je rendrai l'essence sanguine de l'âme. Autrement, même si l'Aînée intervient, je détruirai l'essence sanguine. »
+Wang Lin hocha la tête sans hésiter et déclara avec détermination: « Très bien. Une fois que je serai à mille kilomètres, je rendrai l'essence sanguine de l'âme. Autrement, même si Senior intervient, je ferai tout pour détruire l'essence sanguine. »
 
-La femme regarda Wang Lin et dit: « Petit ami n'a pas besoin d'être aussi nerveux. J'ai déjà entendu parler de vous par Zihong. C'est grâce à votre aide que les trois ont pu retourner en toute sécurité au Sanctuaire du Dieu de la Guerre. Rien que pour cela, cela compense la possession de Mai Liang. En faisant abstraction de tout le reste, parce que vous avez sauvé Zihong, je peux vous pardonner tout ce qui s'est passé. »
+La femme regarda Wang Lin et dit: « Jeune ami n'a pas besoin d'être aussi nerveux. J'ai déjà entendu parler de vous par Zihong. C'est grâce à votre aide que les trois ont pu retourner en toute sécurité au Sanctuaire du Dieu de la Guerre. Rien que pour cela, cela compense la possession de Ma Liang. En faisant abstraction de tout le reste, parce que vous avez sauvé Zihong, je peux vous pardonner tout ce qui s'est passé. »
 
-Wang Lin fut surpris et scruta attentivement les yeux de la femme. Il vit qu'elle ne semblait pas mentir. Après une courte réflexion, il dit: « Veuillez ne pas me blâmer, Aînée. Veuillez attendre que je sois à mille kilomètres avant que je ne rende l'essence sanguine de l'âme. »
+Wang Lin fut surpris et scruta attentivement les yeux de la femme. Il vit qu'elle ne semblait pas mentir. Après une courte réflexion, il dit: « Veuillez ne pas me blâmer, Senior. Veuillez attendre que je sois à mille kilomètres avant que je ne rende l'essence sanguine de l'âme. »
 
-La femme leva la main dans une pose qui aurait fait chavirer le cœur de n'importe quel homme. Elle secoua la tête et rit: « Mille kilomètres... Je vais vous appeler Mai Liang. Mai Liang, mille kilomètres ne représentent que quelques respirations pour moi. Si je voulais vous tuer, à moins que vous ne puissiez vous échapper à dix mille kilomètres, cela serait inutile. Soit, si vous insistez, allez-y. »
+La femme releva la tête, dévoilant une beauté incomparable qui aurait fait chavirer le cœur de n'importe quel homme. Elle secoua la tête et rit: « Mille kilomètres... Je vais vous appeler Ma Liang. Ma Liang, mille kilomètres ne représentent que quelques respirations pour moi. Si je voulais vous tuer, à moins que vous ne puissiez vous échapper à dix mille kilomètres, cela serait inutile. Soit, si vous insistez, allez-y. »
 
-Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa le milieu de son front et une petite étincelle de lumière argentée en sortit.
+Sans un mot, le corps de Wang Lin s'élança dans les airs, laissant derrière lui une traînée de lumière arc-en-ciel. Une heure plus tard, il avait déjà parcouru trois mille kilomètres. Il s'arrêta à l'embouchure d'un volcan pour reprendre son souffle. Après avoir ajusté son énergie spirituelle, il pointa le milieu de son front et une tache de lumière d'un blanc nacré en sortit.
 
 Wang Lin ne daigna même pas un second regard à l'objet avant de s'élancer à nouveau. En chemin, il se demandait si les paroles de la femme étaient sincères ou non, mais quoi qu'il en soit, il n'était pas prudent d'offenser une cultivatrice de l'Âme Naissante pour le moment.
 
@@ -56,11 +56,11 @@ La femme contempla la lueur avec une expression tendre et aimante. Après avoir 
 
 Pendant deux jours, hormis quelques pauses nécessaires, il avait volé sans interruption. Comme cette femme n'était jamais réapparue, il se détendit un peu, mais soudain, ses yeux se fixèrent sur le sol, non loin de lui.
 
-À cet instant précis, plusieurs éclats d'épées jaillirent du lointain en direction de sa position. Après avoir aperçu Wang Lin, ils changèrent brusquement de trajectoire pour foncer sur lui. À leur arrivée, sept ou huit jeunes atterrirent près de lui, le fixant avec des regards hostiles.
+À cet instant précis, plusieurs éclats d'épées jaillirent du lointain en direction de sa position. Après avoir aperçu Wang Lin, ils changèrent brusquement de trajectoire pour foncer sur lui. À leur arrivée, sept ou huit jeunes atterrirent autour de lui, le fixant avec des regards hostiles.
 
-Parmi eux, le plus remarquable était un jeune homme en tête. Son visage était aussi blanc que le jade et son allure très raffinée. Sa culture se situait au stade avancé de l'Établissement des Fondations, frôlant déjà la pseudo-Formation du Noyau. Vêtu d'une robe pourpre, il se tenait debout sur une épée volante verte, dégageant une aura très noble.
+Parmi eux, le plus remarquable était un jeune homme en tête. Son visage était aussi blanc que le jade et son allure très raffinée. Sa culture se situait au stade avancé de l'Établissement des Fondations, frôlant déjà la pseudo-Formation du Noyau. Vêtu d'une robe de python pourpre, il se tenait debout sur une épée volante verte, dégageant une aura très noble.
 
-À ses côtés suivait une jeune fille vêtue de rouge. Une légère teinte rosée sur son visage pâle lui donnait un air empreint de grâce qui incitait à l'affection.
+À ses côtés suivait une jeune fille vêtue de rouge. Son visage délicat et élégant était légèrement pâle, et son air attendrissant faisait battre les cœurs.
 
 Le regard du jeune homme se fit glacial alors qu'il murmurait à la jeune fille: « Wan Er, est-ce lui? »
 
@@ -84,21 +84,21 @@ L'apparence de cet homme était tout à fait ordinaire, si ce n'est que ses yeux
 
 Wang Lin le regarda, puis s'envola sans même lui accorder une seconde attention.
 
-Sun Youcai le suivit rapidement et demanda d'un ton sournois: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démoniaque. »
+Sun Youcai le suivit rapidement et demanda d'un ton volubile: « Camarade cultivateur, de quelle secte venez-vous? Je suis un disciple de la Secte Démoniaque. »
 
-Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il donna un coup de pied dans le vide pour s'élancer du sol et, en un clin d'œil, retrouva la hauteur de Wang Lin. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes en Condensation de Qi pour servir de fourneaux. »
+Le sourcil de Wang Lin se fronça légèrement. Sans dire un mot, il utilisa son énergie spirituelle pour accélérer. Sa vitesse augmenta soudainement, laissant Sun Youcai loin derrière. Ce dernier le regarda et ricana intérieurement tout en gardant une expression neutre. Il se tapa les cuisses et, d'un bond, rattrapa Wang Lin en un clin d'œil. Il poursuivit: « Camarade cultivateur, je suis vraiment désolé pour ce qui s'est passé. C'est entièrement la faute de cette fille. Ah, vous allez à l'Atelier du Ravin, n'est-ce pas? Et si nous faisions route ensemble? Je connais beaucoup de monde dans les environs et je peux même vous dénicher quelques femmes-fourneaux du pays de Zhou au stade de la Condensation de Qi. »
 
-« Quelle vitesse! » Le cœur de Wang Lin tressaillit lorsqu'il se tourna vers Sun Youcai avec un sourire. En voyant ce sourire, Sun Youcai sentit soudain sa peau se hérisser. Ce sentiment disparut aussi vite qu'il était apparu et il secoua la tête. Il pensait que cet homme n'était qu'au stade intermédiaire de l'Établissement des Fondations; avec sa propre culture au stade avancé, il ne pouvait se tromper. Il esquissa un sourire lent et demanda: « Qu'en dites-vous, camarade? »
+« Quelle vitesse! » Le cœur de Wang Lin tressaillit lorsqu'il se tourna vers Sun Youcai avec un sourire. En voyant ce sourire, Sun Youcai sentit soudain sa peau se hérisser. Ce sentiment disparut aussi vite qu'il était apparu et il secoua la tête. Il pensait que cet homme n'était qu'au stade intermédiaire de l'Établissement des Fondations; avec sa propre culture au stade avancé, il ne pouvait se tromper. Il sourit et dit: « Qu'en dites-vous, camarade? »
 
 Wang Lin ricana intérieurement et déclara avec détermination: « Très bien, alors je vais devoir vous importuner, frère Sun. »
 
-Le cœur de Sun Youcai fit un bond. Il ne s'attendait pas à ce que Wang Lin accepte si facilement. Il avait préparé une foule de répliques qui devaient maintenant être inutiles. Cependant, il réagit promptement: « Aucun problème. C'est ma faute d'avoir utilisé un camarade pour me cacher. Quel est votre nom? »
+Le cœur de Sun Youcai fit un bond. Il ne s'attendait pas à ce que Wang Lin accepte si facilement. Il avait préparé une foule de répliques qui devaient maintenant être inutiles. Cependant, il réagit promptement: « Aucun problème. C'est moi qui me suis servi de vous le premier pour échapper à mes ennemis. Je me charge de tout! Comment dois-je vous appeler? »
 
-« Je m'appelle Mai Liang. Je suis un disciple du Sanctuaire du Dieu de la Guerre. » Wang Lin esquissa un sourire discret. Aux yeux de Sun Youcai, ce sourire paraissait empreint de naïveté, mais seul Wang Lin en connaissait la vérité.
+« Je m'appelle Ma Liang. Je suis un disciple du Sanctuaire du Dieu de la Guerre. » Wang Lin esquissa un sourire discret. Aux yeux de Sun Youcai, ce sourire paraissait empreint de naïveté, mais seul Wang Lin en connaissait la vérité.
 
-Sun Youcai afficha un sourire malicieux. Il regarda autour de lui et murmura: « Frère Mai, j'ai entendu dire que votre Sanctuaire du Dieu de la Guerre possède une beauté nommée Zhou Ziwei. Notre futur chef de secte l'a vue il y a six mois et en a été totalement envoûté. Puisque vous venez de là-bas, est-elle vraiment si belle? »
+Sun Youcai afficha un sourire malicieux. Il regarda autour de lui et murmura: « Frère Ma, j'ai entendu dire que votre Sanctuaire du Dieu de la Guerre possède une beauté nommée Zhou Ziwei. Notre jeune chef de secte l'a vue il y a six mois et en a été totalement envoûté. Puisque vous venez de là-bas, est-elle vraiment si belle? »
 
-Wang Lin fut surpris et demanda: « Zhou Ziwei? Parlez-vous de la sœur aînée de l'apprentissage, Zhou Zihong? »
+Wang Lin fut surpris et demanda: « Zhou Ziwei? Parlez-vous de la sœur aînée Zhou Zihong? »
 
 Sun Youcai se frappa soudain le front en souriant. « Quelle mémoire! C'est bien elle, Zhou Zihong. Alors, comment est-elle? »
 

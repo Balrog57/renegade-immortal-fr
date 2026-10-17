@@ -8,15 +8,15 @@ slug: mortel
 ---
 Après l'affrontement entre Wang Lin et Papillon Rouge, le nom de Ceng Niu acquit un prestige encore plus grand, et les trésors qu'il avait utilisés furent aperçus par tous les émissaires des différents pays de culture. Une fois ces émissaires retournés dans leurs contrées respectives, la nouvelle se répandit comme une traînée de poudre.
 
-Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre de l'Extermination des Dieux, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
+Qu'il s'agisse du drapeau de restriction, de l'épée céleste ou du Char de Guerre Divin, ces objets devinrent soudainement les sujets de conversation les plus brûlants parmi les cultivateurs.
 
 L'individu nommé Ceng Niu fut désormais considéré comme l'être le plus puissant de tout le continent Suzaku en dessous du stade de la Transformation de l'Âme.
 
-Simultanément, le Mont Suzaku diffusa un message indiquant que Papillon Rouge entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Papillon Rouge avait connu une percée lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
+Simultanément, le Mont Suzaku diffusa un message indiquant que Papillon Rouge entrait en culture de méditation pendant plus d'un siècle pour tenter de franchir le stade de la Transformation de l'Âme. Personne ne mit cela en doute; après tout, si Papillon Rouge avait gagné une compréhension lors de son combat, il était naturel qu'elle se retire en méditation pour consolider ses acquis.
 
 Cependant, au fil du temps, les gens découvrirent que Ceng Niu avait disparu.
 
-Nul ne savait où il s'était rendu; on savait seulement qu'il s'était volatilisé sans laisser de trace alors qu'il se rendait au Mont Suzaku pour recevoir son ordre.
+Nul ne savait où il s'était rendu; on savait seulement qu'il s'était volatilisé sans laisser de trace alors qu'il se rendait au Mont Suzaku pour rendre compte de sa mission.
 
 Cette affaire provoqua une véritable tempête. Le vieil homme qui portait le titre de Seigneur de Suzaku sortit de sa méditation et tourna son regard vers le nord.
 
@@ -24,7 +24,7 @@ Trois jours auparavant, des ondes contenant de l'énergie spirituelle céleste �
 
 En outre, il avait également ressenti la puissance de la lignée du Clan des Démons Géants.
 
-Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yue et que le Clan des Démons Géants y avait pris part.
+Bien que la culture sur Suzaku fût puissante, il n'était pas un dieu capable de lire l'avenir. Suzaku était vaste et complexe; ainsi, après de longues recherches, il découvrit que l'affaire concernant Ceng Niu avait été déclenchée par Xue Yu et que le Clan des Démons Géants y avait pris part.
 
 Toutefois, il ne parvint pas à identifier l'autre cultivateur du stade de la Transformation de l'Âme.
 
@@ -36,7 +36,7 @@ Cependant, à ses yeux, Wang Lin n'était qu'un des fours de culture de Liu Mei.
 
 « Liu Mei, rends-toi à l'extrémité nord du continent Suzaku. Wang Lin s'y trouve... » Après avoir laissé ce message à Liu Mei, le vieil homme retourna en méditation.
 
-Les actions de Xue Yue allaient à l'encontre de sa volonté. Ils seraient sans aucun doute en danger à l'avenir.
+Les actions de Xue Yu allaient à l'encontre de sa volonté. Ils seraient sans aucun doute en danger à l'avenir.
 
 La silhouette de Liu Mei s'éleva du Mont Suzaku et se transforma en un rayon de lumière qui fonça vers la pointe nord du continent.
 
@@ -80,7 +80,7 @@ L'homme fronça les sourcils. Il regarda la fillette et lui lança: « Sois poli
 
 La petite tira la langue sans répondre. Au lieu de cela, elle courut dans la maison pour aider sa mère à mettre la table.
 
-L'homme se leva et regarda le jeune homme. Il dit: « Jeune frère, ne lui en veux pas; Er Yi a toujours été ainsi. Viens, laisse-moi voir à quel point tu t'es rétabli. »
+L'homme se leva et regarda le jeune homme. Il dit: « Jeune frère, ne lui en veux pas; Er Ya a toujours été ainsi. Viens, laisse-moi voir à quel point tu t'es rétabli. »
 
 Le jeune homme hocha la tête et s'assit près de lui. Il tendit son bras, qui était extrêmement mince, ressemblant à de l'os enveloppé de peau.
 
@@ -90,7 +90,7 @@ Le jeune homme réfléchit, puis acquiesça.
 
 En voyant le jeune homme dans cet état, l'homme d'âge moyen soupira. Il l'avait rencontré un mois auparavant alors qu'il cueillait des plantes médicinales en montagne. Le garçon était à l'agonie lorsqu'il l'avait trouvé. Étant médecin et père, il avait décidé de l'accueillir pour le soigner.
 
-Les blessures étaient terribles. Même ses organes internes étaient déplacés et endommagés. L'homme n'avait aucune certitude de pouvoir le guérir; il s'en en remettait au destin. Pourtant, le corps du jeune homme était étrange. Après dix jours, son état s'améliorait et il finit par se réveiller.
+Les blessures étaient terribles. Même ses organes internes étaient déplacés et endommagés. L'homme n'avait aucune certitude de pouvoir le guérir; il s'en remettait au destin. Pourtant, le corps du jeune homme était étrange. Après dix jours, son état s'améliorait et il finit par se réveiller.
 
 Cependant, une fois éveillé, l'homme découvrit que le garçon ne pouvait pas parler; il était muet.
 
@@ -98,13 +98,13 @@ Cependant, une fois éveillé, l'homme découvrit que le garçon ne pouvait pas 
 
 La petite fit la moue: « Maman, je ne veux pas manger avec le muet. Il est tellement laid que je ne peux pas supporter de manger à côté de lui. »
 
-« Toi! » L'homme d'âge moyen fixa la fillette du regard. La femme se plaça rapidement devant l'enfant et déposa quelques mets dans son bol: « Er Yi, va manger à l'intérieur. »
+« Toi! » L'homme d'âge moyen fixa la fillette du regard. La femme se plaça rapidement devant l'enfant et déposa quelques mets dans son bol: « Er Ya, va manger à l'intérieur. »
 
 La petite bouda. Elle s'apprêtait à répliquer quand le jeune homme saisit son bol de ses mains tremblantes. Il se leva, sortit de la cour, s'assit sur un rocher et fixa le riz dans son bol, plongé dans ses pensées.
 
 Nul dans le monde de la culture ne savait où il se trouvait. C'était Wang Lin.
 
-Celui qui avait autrefois brillé était désormais réduit à cet état. Tout cela était dû à Xue Yue et au Clan des Démons Géants.
+Celui qui avait autrefois brillé était désormais réduit à cet état. Tout cela était dû à Xue Yu et au Clan des Démons Géants.
 
 La main droite de Wang Lin trembla lorsqu'il reposa son bol sur le rocher. Il laissa échapper un sourire amer. Un mois auparavant, son âme originelle s'était effondrée.
 
@@ -142,7 +142,7 @@ Il secoua amèrement la tête et sortit de l'abri. Son corps était toujours ch�
 
 À cet instant précis, la jeune fille sortit de la maison. En voyant Wang Lin, elle fit la moue: « Muet Laid, tu es déjà là depuis un mois! Quand est-ce que tu pars? Ma maison n'est pas une œuvre de charité; comment pourrions-nous avoir assez de nourriture en trop pour te nourrir? »
 
-La femme sortit de la maison et la réprimanda: « Er Yi, combien de fois ton père t'a-t-il dit de l'appeler oncle! »
+La femme sortit de la maison et la réprimanda: « Er Ya, combien de fois ton père t'a-t-il dit de l'appeler oncle! »
 
 La fillette poussa un reniflement mécontent et lança: « Xiu Cai, suis-moi! » Sur ce, elle se dirigea vers le portail.
 

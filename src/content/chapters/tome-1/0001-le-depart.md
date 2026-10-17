@@ -8,9 +8,9 @@ slug: le-depart
 ---
 Tie Zhu était assis au bord d'un petit chemin du village, contemplant le ciel bleu d'un air absent. Tie Zhu n'était pas son véritable nom, mais un surnom. En raison de sa santé fragile durant son enfance, son père, craignant qu'il ne survive pas, lui avait donné ce nom par tradition.
 
-Son vrai nom était Wang Lin. La famille Wang était considérée comme une lignée importante dans la région, une famille d'ébénistes. Elle était renommée et possédait plusieurs boutiques spécialisées dans les articles en bois.
+Son vrai nom était Wang Lin. Le nom Wang était un grand nom dans les villages des alentours; la famille descendait d'une lignée de menuisiers, et elle était assez renommée, surtout dans la ville du district, où elle possédait plusieurs boutiques spécialisées dans les articles en bois.
 
-Le père de Tie Zhu était le second fils de la famille. Né d'une concubine, il ne pouvait hériter de l'entreprise familiale; il avait donc quitté le domicile paternel après son mariage pour s'installer dans ce village.
+Le père de Tie Zhu était le second fils de la famille. Né d'une concubine, il ne pouvait hériter des affaires importantes de la famille; il avait donc quitté la ville du district après son mariage pour s'installer dans ce village.
 
 Toutefois, grâce au savoir-faire de son père en menuiserie, la famille de Tie Zhu vivait assez confortablement, sans avoir à se soucier du couvert ou des vêtements. Ils jouissaient d'un grand respect au sein du village.
 
@@ -74,7 +74,7 @@ L'homme frotta la tête de Tie Zhu et conclut: « Deuxième frère, belle-sœur,
 
 Confus, Tie Zhu regarda ses parents et son oncle, incapable de saisir l'importance de l'échange. « Des immortels? Que sont les immortels? » demanda-t-il d'une voix hésitante.
 
-Le visage de l'homme s'assombrit de sérieux. Il regarda Tie Zhu et dit: « Tie Zhu, les immortels sont ceux qui peuvent voler dans le ciel. Ils appartiennent à un monde que nous, simples mortels, ne pouvons comprendre. »
+Le visage de l'homme s'assombrit de sérieux. Il regarda Tie Zhu et dit: « Tie Zhu, les immortels sont des êtres capables de voler dans le ciel. Chacun d'eux possède d'immenses pouvoirs surnaturels, qu'il n'est pas à nous, simples mortels, de chercher à comprendre. »
 
 Bien que perplexe, une curiosité ardente pour ces êtres grandit en Tie Zhu.
 
@@ -112,7 +112,7 @@ Le père de Tie Zhu accordait une importance capitale à ces visites, car beauco
 
 Après en avoir discuté avec sa femme, ils décidèrent de recevoir tout le monde dignement. Ils dépensèrent une petite fortune pour engager le maître du village afin de rédiger des invitations officielles pour leurs parents. Le maître ne demanda pas d'argent, mais souhaita simplement que Tie Zhu reconnaisse qu'il avait grandi sous son éducation; ce que le garçon accepta volontiers, car c'était la vérité.
 
-Une fois les invitations envoyées à la majeure partie de la famille Wang, l'affluence fut telle que le père de Tie Zhu dut déplacer la réception sur la place du village pour y organiser un grand banquet. Les villageois aidèrent à servir les invités tout en louant sans cesse les mérites de Tie Zhu.
+Une fois les invitations envoyées à la majeure partie de la famille Wang, l'affluence fut telle que le père de Tie Zhu dut choisir la place au centre du village pour la réception, et y fit dresser des centaines de tables de banquet. Les villageois aidèrent à servir les invités tout en louant sans cesse les mérites de Tie Zhu.
 
 Le père de Tie Zhu avait conduit sa femme et son fils à l'entrée du village pour accueillir personnellement chaque parent et présenter chaque parenté à Tie Zhu.
 
@@ -128,25 +128,25 @@ Tie Zhu, perplexe, demanda: « Est-ce que le quatrième oncle vient? »
 
 Son père secoua la tête: « Ton quatrième oncle a envoyé une lettre. Il ne pourra pas revenir avant la fin du mois. »
 
-À cet instant, une autre calèche arriva à l'entrée du village. Un homme d'une cinquantaine d'années en descendit et s'adressa au père de Tie Zhu: « Deuxième frère, félicitations! »
+À cet instant, une autre calèche arriva à l'entrée du village. Un homme d'une cinquantaine d'années en descendit et regarda le père de Tie Zhu, soupira doucement et dit: « Deuxième frère, félicitations! »
 
-Le visage de ce dernier se crispa et il répondit: « Grand frère! »
+Le visage de ce dernier exprima des sentiments mêlés. Après un long moment, il dit: « Grand frère... »
 
 Le vieil homme balaya la foule du regard et s'arrêta sur Tie Zhu. Il sourit: « Deuxième frère, c'est donc lui ton fils? Pas mal! Peut-être sera-t-il vraiment sélectionné. »
 
 Le père de Tie Zhu fronça les sourcils et répliqua: « Tie Zhu n'a peut-être pas de grands exploits, mais il est intelligent et aime étudier. Il sera sans aucun doute choisi. »
 
-« Ce n'est pas forcément vrai. Lorsque les sectes immortelles recherchent des disciples, les critères sont extrêmement stricts. Je vois bien que ce gamin est bien stupide. Y aller ne sera qu'une perte de temps pour lui », lança une voix hautaine depuis la calèche. Un adolescent de seize ou dix-sept ans en descendit.
+« Ce n'est pas forcément vrai. Lorsque les sectes immortelles recherchent des disciples, les critères sont extrêmement stricts, et tout dépend de l'affinité avec les immortels. Je vois bien que ce gamin est bien stupide. Y aller ne sera qu'une perte de temps pour lui », lança une voix hautaine depuis la calèche. Un adolescent de seize ou dix-sept ans en descendit.
 
 Le jeune homme était d'une grande beauté, avec des sourcils comme des lames d'épée, un visage de jade et un regard chargé de dédain. Le père de Tie Zhu le foudroya du regard, tandis que Wang Lin lui lança une observation silencieuse mais profonde.
 
-Le visage du vieil homme changea de couleur et il s'écria: « Wang Zhuo, comment peux-tu être aussi impoli?! C'est ton deuxième oncle et ton petit frère Wang Lin! Pourquoi ne les salues-tu pas? » Il se tourna vers le père de Tie Zhu: « Mon fils a des propos déplacés. Deuxième frère, ne lui en veux pas, mais... » Il marqua une pause avant de reprendre: « Mais deuxième frère, l'admission dans une secte immortelle n'est pas une mince affaire, c'est une question de destin. Si la famille Wang a obtenu trois places cette fois-ci, c'est uniquement parce que la Secte Heng Yue s'est montrée très intéressée par mon fils. »
+Le visage du vieil homme se fit grave et il s'écria: « Wang Zhuo, comment peux-tu être aussi impoli?! C'est ton deuxième oncle et ton petit frère Wang Lin! Pourquoi ne les salues-tu pas? » Il se tourna vers le père de Tie Zhu: « Mon fils a des propos déplacés. Deuxième frère, ne lui en veux pas, mais... » Il marqua une pause avant de reprendre: « Mais deuxième frère, l'admission dans une secte immortelle n'est pas une mince affaire, il faut de l'affinité. Si la famille Wang a obtenu trois places cette fois-ci, c'est uniquement parce que l'Immortel Dao Xu de la Secte Heng Yue a remarqué mon fils; c'est ce qui a éveillé l'intérêt de la secte pour notre famille Wang et valu trois places, dont celle de mon fils. »
 
 Le père de Tie Zhu renifla: « Si ton fils peut réussir, alors le mien sera également sélectionné! »
 
-Le jeune homme rit, ignorant les remontrances de son père. Avec mépris, il dit: « Ainsi, tu es donc l'oncle? Je te conseille de ne pas être aussi optimiste. La voie de la culture est extrêmement complexe; seul un être sur dix mille peut espérer l'embrasser. Comment pourrait-il rivaliser avec moi qui, bien que n'étant pas encore un disciple officiel, ai été personnellement choisi par un maître immortel? »
+Le jeune homme rit, ignorant les remontrances de son père. Avec mépris, il dit: « Ainsi, tu es donc l'oncle? Je te conseille de ne pas être aussi optimiste. Ce système de culture de l'immortalité est si sélectif que, sans être d'un sur dix mille, ce n'en est pas loin. Ce nigaud ne peut pas se comparer à moi, le jeune maître: je suis un disciple déjà désigné d'avance par le maître immortel. Peut-il se mesurer à moi? »
 
-Une pointe de fierté traversa le visage du vieil homme, qui finit par réprimander le jeune homme avant de l'entraîner vers le banquet.
+Une pointe de fierté traversa le visage du vieil homme, qui réprimanda encore quelques instants le jeune homme, salua le père de Tie Zhu en joignant le poing contre la paume, puis l'entraîna vers le banquet.
 
 « Tie Zhu, ne t'inquiète pas. Même si tu n'es pas sélectionné, ce n'est pas grave. Il y aura toujours l'examen du district l'année prochaine », dit sincèrement son père après avoir réprimé sa colère.
 
@@ -156,9 +156,9 @@ Le père de Tie Zhu tapota doucement l'épaule de son fils, les yeux emplis d'es
 
 Ils continuèrent à saluer la parentèle. Le père ramena Tie Zhu vers le banquet où régnait une effervescence joyeuse.
 
-Le père de Tie Zhu s'exclama: « Chers parents, chers villageois, moi, Wang Tianshui, ne suis pas un homme très cultivé et n'ai guère de grands discours à tenir. Mais aujourd'hui, mon cœur est léger car mon fils a la chance de devenir un disciple de la Secte Heng Yue. C'est le plus beau jour de ma vie. Je ne dirai rien de plus, mais merci à tous d'être venus. » Il leva son coupe et vida le vin d'un trait.
+Le père de Tie Zhu s'exclama: « Chers parents, chers villageois, moi, Wang Tianshui, ne suis pas un homme très cultivé et n'ai guère de grands discours à tenir. Mais aujourd'hui, mon cœur est léger car mon fils a la chance de devenir un disciple de la Secte Heng Yue. C'est le plus beau jour de ma vie. Je ne dirai rien de plus, mais merci à tous d'être venus. » Il leva sa coupe et vida le vin d'un trait.
 
-« Deuxième frère, ton fils est brillant depuis l'enfance. Il sera certainement choisi, tout comme le fils de Wang Zhuo, et deviendra un immortel! »
+« Deuxième frère, ton fils est brillant depuis l'enfance. Il sera certainement choisi, tout comme le petit Wang Zhuo, et deviendra un immortel! »
 « Deuxième frère, avoir un fils comme Tie Zhu signifie que tu n'as pas vécu ta vie en vain. À l'avenir, il ne te restera qu'à récolter les fruits de cette fortune. »
 « Tie Zhu, fais la fierté de ton père! Tu dois entrer dans la Secte Heng Yue, coûte que coûte! »
 

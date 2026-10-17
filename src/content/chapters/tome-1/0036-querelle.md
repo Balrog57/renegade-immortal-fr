@@ -12,35 +12,35 @@ Le temps s'écoula en un éclair, et en un clin d'œil, deux ans s'étaient éco
 
 Bien que deux ans se soient écoulés dans le monde réel, il avait en réalité passé treize ans en entraînement à porte close.
 
-L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'énergie spirituelle liquide, il constata que chaque fois qu'il cultivait dans le monde réel, l'énergie spirituelle y était plusieurs fois plus dense qu'à l'extérieur des montagnes arrières.
+L'énergie spirituelle ici était extrêmement riche, ce qui l'impressionna grandement. Bien qu'elle ne puisse égaler l'eau de source spirituelle, il constata que chaque fois qu'il cultivait dans le monde réel, l'énergie spirituelle y était plusieurs fois plus dense qu'à l'extérieur.
 
-À partir du deuxième niveau, sa culture ralentit considérablement. Après avoir cultivé dans l'espace de rêve pendant plus de six ans, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après d'innombrables tentatives, il réussit enfin son percée.
+À partir du deuxième niveau, sa culture ralentit considérablement. Après avoir cultivé dans l'espace de rêve pendant plus de six ans, il atteignit la limite du deuxième niveau. Il entreprit alors de briser cette barrière pour atteindre le troisième. Après plusieurs tentatives, il réussit enfin sa percée.
 
 Cependant, ce qui le plongeait dans la confusion et la détresse était que, durant les sept années suivantes, bien qu'il ait atteint le sommet du troisième niveau, il ne parvenait pas à passer au quatrième, quels que soient ses efforts. Ce n'était pas par manque d'énergie spirituelle; il sentait une force mystérieuse l'arrêter chaque fois qu'il atteignait le point critique.
 
 Et ce troisième niveau de Condensation de Qi était également singulier. Il ne ressemblait ni au premier ni au deuxième niveau, où, une fois le sommet atteint, on ne pouvait plus condenser d'énergie spirituelle supplémentaire.
 
-Bien que Wang Lin eût le sentiment d'avoir atteint ses limites, le troisième niveau ne semblait pas en avoir. S'il continuait à cultiver, son énergie spirituelle ne cesserait de croître et continuerait de transformer son corps.
+Bien que Wang Lin eût le sentiment d'avoir atteint ses limites, le troisième niveau ne semblait pas en avoir. S'il continuait à cultiver, son énergie spirituelle ne cesserait de croître et continuerait de transformer son corps. Si son corps n'avait pas encore eu la sensation d'être au troisième niveau de Condensation de Qi, Wang Lin aurait cru avoir déjà percé et atteint le quatrième niveau, voire plus.
 
 Cela laissa Wang Lin très surpris, mais peu importaient ses réflexions, il ne parvenait pas à trouver d'explication.
 
 Aujourd'hui, toute l'eau de fonte avait été épuisée. Il ne lui restait plus qu'une seule gourde d'énergie spirituelle liquide. Cette gourde l'accompagnait depuis longtemps; c'était l'une des trois que Wang Lin avait enterrées dans les montagnes. Il en avait utilisé deux pour faire apparaître le dixième nuage sur la perle et, se remémorant qu'il avait failli mourir lors de sa dernière gorgée, il s'en montrait très prudent et la gardait précieusement dans son sac de rangement.
 
-Après une légère hésitation, Wang Lin ne sortit pas cette gourde. D'après ses calculs, la quantité d'énergie spirituelle contenue dans ce récipient avait déjà atteint un stade terrifiant. Il pourrait toujours l'utiliser une fois qu'il aurait atteint un niveau de Condensation de Qi supérieur.
+Après une légère hésitation, Wang Lin ne sortit pas cette gourde. D'après ses calculs, la quantité d'énergie spirituelle contenue dans ce récipient avait déjà atteint un stade terrifiant. Ayant déjà été averti par le passé, il valait mieux se montrer prudent. Il pourrait toujours l'utiliser une fois qu'il aurait atteint un niveau de Condensation de Qi supérieur.
 
 Il se leva et s'étira. Il marcha jusqu'au levier et le tira. Dans un rugissement, la porte de pierre s'ouvrit. La lumière du soleil inonda la grotte, éblouissant Wang Lin. Une fois ses yeux accoutumés à la clarté, il sortit de la cavité et prit une profonde inspiration.
 
-En regardant vers le bas, il vit une multitude de personnes discuter dans la vallée. Il semblait que beaucoup d'entre elles trouvaient la culture ennuyeuse et venaient pour socialiser.
+En regardant vers le bas, il vit un bon nombre de personnes assises en méditation ou en train de discuter dans la vallée. De toute évidence, elles étaient en retraite depuis longtemps et, ne supportant plus la monotonie, étaient sorties se détendre.
 
-Après avoir réfléchi un instant, il activa une technique pour dissimuler son niveau de culture au premier niveau de Condensation de Qi. D'un revers de manches, il s'élança et son corps descendit lentement vers le sol, flottant dans les airs.
+Après avoir réfléchi un instant, il activa une technique pour dissimuler son niveau de culture au premier niveau de Condensation de Qi. D'un revers de manches, une poussée monta sous ses pieds et, soulevant son corps, le fit redescendre lentement vers le sol.
 
 Durant les treize années passées dans l'espace de rêve, il avait parfaitement maîtrisé la technique d'attraction. Il n'avait même plus besoin de réciter l'incantation; sa seule volonté suffisait à l'activer.
 
-C'était ce qu'il faisait en ce moment même en appliquant la technique d'attraction sur son propre corps. On pouvait certes affirmer qu'une fois la technique d'attraction portée à un certain niveau, elle devenait praticable, mais cela n'était vrai que pour des mouvements lents. Dès que l'on accélérait, la difficulté augmentait drastiquement.
+C'était ce qu'il faisait en ce moment même en appliquant la technique d'attraction sur son propre corps. On pouvait certes affirmer qu'une fois la technique d'attraction portée à un certain niveau, elle devenait praticable, mais cela n'était vrai que pour des mouvements lents. Dès que l'on accélérait, on perdait forcément le contrôle.
 
-Mais Wang Lin se sentait désormais si confiant que, même s'il devait voler rapidement, il ne perdrait pas le contrôle. Sans plus de dix ans de pratique intensive de cette technique, cela aurait été impossible.
+Mais Wang Lin se sentait désormais si confiant que, même s'il devait voler rapidement, il ne perdrait pas le contrôle. Sans une dizaine d'années de pratique de cette technique, cela aurait été impossible.
 
-Toutefois, qui aurait eu le temps de gaspiller dix ans à pratiquer une technique de si bas niveau? Tous les cultivateurs étaient engagés dans une course contre la montre. S'ils disposaient de tant de temps, pourquoi ne pas pratiquer des techniques de rang supérieur?
+Toutefois, qui aurait eu le temps de gaspiller plus de dix ans à pratiquer une technique de si bas niveau? Tous les cultivateurs étaient engagés dans une course contre la montre. S'ils disposaient de tant de temps, pourquoi ne pas pratiquer des techniques de rang supérieur?
 
 Afin de ne pas attirer l'attention, Wang Lin atterrit avec précaution dans la vallée. À peine eut-il touché le sol qu'il entendit des railleries: « Le soleil se lève vraiment à l'ouest! Même le moins que rien, ce Wang Lin, a atteint le premier niveau de Condensation de Qi et peut enfin descendre de la falaise sans aide. »
 
@@ -48,9 +48,9 @@ Wang Lin tourna la tête et regarda Wang Zhuo avec indifférence. Quelques perso
 
 Un jeune homme vêtu de blanc, âgé de vingt-quatre ou vingt-cinq ans, éclata de rire: « Wang Lin, tu ne devrais pas être ici. Tu devrais rester avec les disciples honoraires à la maison des tâches. Au moins là-bas, tu peux te sentir important, mais ici, tu es le plus médiocre d'entre nous tous. »
 
-Wang Lin sonda la zone de son Sens Divin. Wang Zhuo était au même niveau que lui, au sommet du troisième niveau, tandis que le jeune homme en blanc avait atteint le sommet du quatrième niveau et pouvait franchir l'étape à tout moment.
+Wang Lin sonda la zone de son Sens Divin. Wang Zhuo avait atteint comme lui le troisième niveau, tandis que le jeune homme en blanc avait atteint le sommet du quatrième niveau et pouvait franchir l'étape à tout moment. Wang Lin était très perplexe: lui qui n'était qu'au troisième niveau, comment pouvait-il percer aisément à jour la culture de personnes plus fortes que lui? Et l'énergie spirituelle du jeune homme en blanc semblait même un peu plus faible que la sienne. Wang Lin garda le silence et ne dit rien de ses doutes, convaincu qu'il y avait là un grand mystère.
 
-Wang Zhuo déclara d'un ton orgueilleux: « Wang Lin, tu étais bien malin il y a deux ans. Tu savais que tu n'étais pas mon égal, alors tu as simplement abandonné. Mais laisse-moi te dire une chose: une poubelle restera toujours une poubelle. Tu ne me rattraperas jamais. J'étais le meilleur nouveau venu il y a deux ans, et toi, qu'es-tu? »
+Wang Zhuo déclara d'un ton orgueilleux: « Wang Lin, tu étais bien malin lors du grand tournoi d'il y a deux ans. Tu savais que tu n'étais pas mon égal, alors tu as simplement abandonné. Mais laisse-moi te dire une chose: une poubelle restera toujours une poubelle. Tu ne me rattraperas jamais. J'étais le meilleur nouveau venu il y a deux ans, et toi, qu'es-tu? »
 
 Le jeune homme en blanc à ses côtés ricana: « Cher frère cadet, va me chercher de l'eau à la rivière là-bas. Ton frère aîné est d'humeur clémente, je pourrais peut-être te donner quelques conseils. » En parlant, il lança une bouteille qui atterrit aux pieds de Wang Lin.
 

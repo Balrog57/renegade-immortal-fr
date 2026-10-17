@@ -54,17 +54,17 @@ Wang Lin fronça légèrement les sourcils et s'arrêta avant d'entrer dans le r
 
 Wang Lin avait vécu 500 ans; même l'être le plus stupide finirait par devenir aussi rusé qu'un renard, et lui ne l'était pas. Ces cinq siècles lui avaient offert l'expérience nécessaire pour percer bien des mystères. En combinant divers indices, il avait déjà tout compris lorsqu'il s'était réveillé deux ans auparavant.
 
-Les yeux de Wang Lin s'illuminèrent et il pénétra dans l'ancien réseau de transfert. Il plaça un jade céleste dans la formation et, soudain, une carte parsemée de dix points brillants apparut.
+Les yeux de Wang Lin s'illuminèrent et il pénétra dans l'ancien réseau de transfert. Il plaça un jade céleste dans la formation et, soudain, une carte parsemée de plus de dix points brillants apparut.
 
 Wang Lin toucha l'un des points de sa main droite. La carte disparut et le réseau de transfert s'activa. Alors que la lumière devenait de plus en plus intense, la silhouette de Wang Lin s'effaça lentement.
 
 Un ancien réseau de transfert dans le pays de Pilu scintilla, et une silhouette en émergea. Celle-ci ne marqua pas de pause et fonça directement vers la Secte de l'Affinement de l'Âme.
 
-La nuit, les trois montagnes de la Secte de l'Affinement de l'Âme ressemblaient à trois épées acérées pointées vers les cieux. La silhouette de Wang Lin apparut aux abords du secteur; il traversa la formation défensive et s'élança vers les neuf anneaux dorés.
+La nuit, les trois montagnes de la Secte de l'Affinement de l'Âme ressemblaient à trois épées acérées pointées vers les cieux. La silhouette de Wang Lin apparut aux abords de la secte; il traversa la formation défensive et s'élança vers les neuf anneaux dorés.
 
-Les neuf anneaux brillèrent, puis un homme d'âge moyen se matérialisa. En voyant Wang Lin, il afficha une expression complexe avant de soupirer: « Moi, Ouyang Tian, je salue le jeune maître du secteur. »
+Les neuf anneaux brillèrent, puis un homme d'âge moyen se matérialisa. En voyant Wang Lin, il afficha une expression complexe avant de soupirer: « Moi, Ouyang Tian, je salue le jeune maître de la secte. »
 
-« Jeune maître du secteur... » Les yeux de Wang Lin brillèrent. Il comprit que Du Tian avait dû informer ces cultivateurs de la Formation de l'Âme de leurs échanges.
+« Jeune maître de la secte... » Les yeux de Wang Lin brillèrent. Il comprit que Du Tian avait dû informer ces cultivateurs de la Formation de l'Âme de leurs échanges.
 
 Wang Lin joignit les mains et dit: « Compagnon cultivateur Ouyang, je souhaite saluer l'Ancien. »
 
@@ -100,7 +100,7 @@ Plusieurs lueurs pourpres et dorées étaient visibles à l'intérieur du drapea
 
 C'était le second objet que l'Ancien Du Tian avait placé dans le sac, celui-là même qui avait provoqué l'expression si complexe d'Ouyang Tian. Wang Lin était revenu pour emprunter un trésor à l'Ancien afin de pouvoir abattre le patriarche du Clan des Démons Géants.
 
-Cependant, ce n'était pas le véritable drapeau; le vrai se trouvait aux côtés de Du Tian durant sa méditation. Celui-ci était un sous-drapeau issu du principal. Il ne contenait qu'une fraction de la puissance du véritable artefact et ne pouvait être utilisé que deux fois avant de disparaître.
+Cependant, ce n'était pas le véritable drapeau; le vrai se trouvait aux côtés de Du Tian durant sa méditation. Celui-ci était un sous-drapeau issu du principal. Il ne contenait qu'un tiers de la puissance du véritable artefact et ne pouvait être utilisé que deux fois avant de disparaître.
 
 Malgré cela, ce sous-drapeau était inestimable. Les yeux de Wang Lin brillèrent et il s'en saisit. Au moment du contact, son âme originelle trembla et se projeta hors de son corps pour pénétrer dans le drapeau d'âme. Aussitôt, il eut la sensation de basculer dans un enfer réservé aux cultivateurs.
 

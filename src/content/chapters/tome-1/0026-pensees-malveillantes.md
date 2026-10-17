@@ -58,7 +58,7 @@ Zhang Hu leva les yeux vers lui. Son visage, déformé par une expression sombre
 
 Wang Lin resta silencieux. Il ne s'était jamais attendu à une telle issue.
 
-Zhang Hu prit une profonde inspiration, le visage empreint de détermination. Il s'approcha du cadavre et le fouilla un moment. Il en sortit un sac de stockage contenant des centaines de talismans que les disciples honoraires utilisaient pour rendre visite à leurs familles. À cela s'ajoutait un petit livret relié par une ficelle. Zhang Hu parcourut rapidement l'ouvrage avant de le glisser dans ses vêtements.
+Zhang Hu prit une profonde inspiration, le visage empreint de détermination. Il s'approcha du cadavre et le fouilla un moment. Il en sortit un baluchon de toile grise; l'ayant ouvert, il y vit plusieurs centaines de talismans immortels que les disciples honoraires utilisaient pour rendre visite à leurs familles. À cela s'ajoutait un petit livret relié par une ficelle. Zhang Hu parcourut rapidement l'ouvrage avant de le glisser dans ses vêtements.
 
 Il fouilla ensuite la pièce et finit par découvrir un compartiment secret sous le lit. À l'intérieur se trouvait un morceau de papier jaune.
 
@@ -70,4 +70,4 @@ Zhang Hu fronça les sourcils. « Wang Lin, ne parlons plus de cela. J'ai assez 
 
 Wang Lin accepta amèrement le talisman, sans ajouter un mot.
 
-« Wang Lin, je m'en vais. Cela n'a rien à voir avec toi. Si la secte enquête, elle ne trouvera que moi. D'ici là, j'aurai déjà quitté la secte Heng Yue. Humph, le pays de Zhao est vaste. Je ne crois pas rester un disciple honorifique toute ma vie. » L'expression de Zhang Hu était indéchiffrable. Après un long moment, il se détourna lentement et quitta la pièce.
+« Wang Lin, je m'en vais. Cela n'a rien à voir avec toi. Si la secte enquête, elle ne trouvera que moi. D'ici là, j'aurai déjà quitté la secte Heng Yue. Humph, le pays de Zhao est vaste. Je ne crois pas rester un disciple honoraire toute ma vie. » L'expression de Zhang Hu était indéchiffrable. Après un long moment, il se détourna lentement et quitta la pièce.

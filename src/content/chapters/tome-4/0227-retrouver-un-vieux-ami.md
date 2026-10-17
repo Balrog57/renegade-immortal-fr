@@ -10,9 +10,9 @@ Wang Lin vola à une vitesse fulgurante. En un rien de temps, il atteignit à no
 
 Le paysage devant lui devint soudainement flou. Des ondulations apparurent, comme une pierre jetée dans une eau calme. Bientôt, l'ancienne restriction se manifesta.
 
-Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de stockage et les disposa à leur emplacement précis sur le dispositif.
+Le corps de Wang Lin disparut pour réapparaître à l'intérieur du réseau de transfert. Il sortit quelques matériaux de son sac de stockage et les posa sur le réseau de transfert pour rétablir les parties qu'il avait démontées autrefois.
 
-Peu après, il jeta un regard vers la direction de la Secte Ciel Nuageux. Le visage empreint de détermination, il se retourna et plaça la pierre spirituelle de haute qualité dans le réseau de transfert.
+Peu après, il jeta un regard vers la direction de la Secte Ciel Nuageux. Le visage empreint de détermination, il sortit une pierre spirituelle de haute qualité en forme de losange, prit une profonde inspiration et la plaça lentement dans le réseau de transfert.
 
 Soudain, l'autel s'anima et des rayons de lumière en jaillirent. Des vagues d'énergie spirituelle émanèrent de la pierre jusqu'à ce que celle-ci soit réduite en poussière.
 
@@ -24,21 +24,21 @@ Dans les terres désolées de la Mer des Démons, un grondement sourd émana du 
 
 Il observa la scène familière qui s'offrait à lui et poussa un soupir. Il s'éleva dans les airs et, après une brève pause, s'élança rapidement vers l'est.
 
-L'objectif de Wang Lin était de trouver une carte des anciens réseaux de transfert ainsi qu'une carte de la planète Suzaku. Il avait rassemblé de nombreuses cartes à Chu, mais n'avait pas réussi à remettre la main sur Zhao.
+L'objectif de Wang Lin était de trouver une carte des anciens réseaux de transfert ainsi qu'une carte de la planète Suzaku. Il avait rassemblé de nombreuses cartes à Chu, mais n'y avait jamais vu l'emplacement de Zhao.
 
 Après avoir analysé les cartes, Wang Lin en déduisit que Zhao devait se trouver de l'autre côté de la Mer des Démons.
 
 Alors qu'il volait, son expression changea soudainement et un sourire étira ses lèvres. En utilisant son Sens Divin, semblable à celui de la Formation de l'Âme, il parvint à débusquer un vieil ami.
 
-Depuis l'apparition de la rétribution divine dans la Mer des Démons, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer des Démons était désormais exposée aux yeux de tous. Le voile protecteur originel s'était évanoui.
+Depuis l'apparition de la rétribution divine dans la Mer des Démons, le brouillard qui la recouvrait avait totalement disparu. Après plusieurs années de pluie noire, la Mer des Démons était désormais exposée aux yeux de tous. Son ancien voile de mystère s'était évanoui sans laisser de trace.
 
 Dans les 999 cités et les vastes étendues sauvages de la Mer des Démons vivaient de nombreux individus odieux. Beaucoup d'entre eux, recherchés par différents pays, cherchaient refuge dans cette région.
 
-La disparition du brouillard déclencha une série d'événements. D'abord, de nombreux pays ambitieux de rang 4 jetèrent leur dévolu sur la Mer des Démons.
+La disparition du brouillard déclencha une série d'événements. D'abord, quelques pays ambitieux de rang 4 jetèrent leur dévolu sur la Mer des Démons.
 
 Peu après, diverses sectes et familles de culture envoyèrent des groupes de disciples dans la zone. Une tempête était sur le point de déferler sur cette région.
 
-Quant à la pluie noire, elle fut éliminée par quelques cultivateurs extrêmement puissants, sans quoi la Mer des Démons serait devenue inhabitable. Cette eau contenait un poison qui semblait inoffensif en petites quantités, mais qui provoquait des maladies après une exposition prolongée. Normalement, les cultivateurs n'étaient pas affectés par les maux terrestres, mais cette pluie avait tué de nombreux cultivateurs de bas niveau au cours de ces dernières années.
+Quant à la pluie noire, elle fut éliminée par quelques cultivateurs extrêmement puissants, sans quoi la Mer des Démons serait devenue inhabitable. Cette eau contenait un poison qui semblait inoffensif au début, mais qui provoquait des épidémies après une exposition prolongée. Normalement, les cultivateurs n'étaient pas affectés par les maux terrestres, mais cette pluie avait tué de nombreux cultivateurs de bas niveau au cours de ces dernières années.
 
 Finalement, plusieurs puissants experts firent front commun pour chasser la pluie noire de la Mer des Démons. Cependant, cette vague de maladies avait gravement affaibli la région.
 
@@ -54,7 +54,7 @@ Après un long moment, il fronça les sourcils. D'un revers de manche, il descen
 
 Dès qu'il eut atterri, deux personnes sortirent de la cité: un homme et une femme. L'homme avait le dos légèrement voûté et toussait sans cesse; sa silhouette frêle donnait l'impression qu'il peinait à marcher.
 
-La femme à ses côtés était son exact opposé. Non seulement elle était magnifique, mais elle dégageait également une aura de héroïne éclatante.
+La femme à ses côtés était son exact opposé. Non seulement elle était magnifique, mais elle dégageait également une aura d'héroïne éclatante.
 
 Tous deux portaient des robes bleues et semblaient appartenir à la même secte.
 
@@ -64,13 +64,13 @@ La jeune fille poussa un léger reniflement méprisant. Elle fixa l'homme souffr
 
 L'homme eut un son de surprise. Il regarda l'homme malade et demanda: « Frère Li, quel genre de fourreau? Puis-je voir cela? »
 
-L'homme nommé Li esquissa un sourire amer. D'un geste de la main, il fit apparaître un fourreau d'apparence très ordinaire. Il déclara: « J'ai trouvé ce fourreau très étrange. J'ai le sentiment qu'il contient une aura particulière, alors j'ai dû l'acheter. Laisse tomber. Cette fois, c'est pour ma pomme. Déduisez simplement le coût de notre prochain partage de profits. »
+L'homme nommé Li esquissa un sourire amer. D'un geste de la main, il fit apparaître un fourreau d'aspect très ancien. Il déclara: « J'ai trouvé ce fourreau très étrange. J'ai le sentiment qu'il contient une aura particulière, alors j'ai dû l'acheter. Laisse tomber. Cette fois, c'est pour ma pomme. Déduisez simplement le coût de notre prochain partage de profits. »
 
 La jeune fille renifla de nouveau. Elle fixa le fourreau et marmonna: « Quel genre de fourreau de pacotille peut bien coûter le cœur d'une bête spirituelle de faible qualité? »
 
 L'homme nommé Qiu agita la main et le fourreau vola vers lui. Après l'avoir examiné avec sérieux, il hocha la tête et dit: « Ce fourreau est effectivement étrange. Le frère Li n'a peut-être pas tout à fait tort. » Sur ce, il lui rendit l'objet.
 
-La jeune fille se tourna vers Qiu et dit d'un ton grave: « Très bien, partons. Frère Qiu, je veux une confirmation: êtes-vous certain de savoir où se trouve la Bête aux Huit Griffes? »
+La jeune fille se tourna vers Qiu et dit d'un ton grave: « Très bien, partons. Frère Qiu, je veux une confirmation: êtes-vous certain qu'il y a bien une Bête aux Huit Griffes à cet endroit? »
 
 L'homme nommé Qiu sourit et acquiesça.
 
@@ -78,7 +78,7 @@ Il toucha son sac de stockage et un navire gigantesque apparut dans les airs. Il
 
 Le navire était d'une rapidité fulgurante. Laissant derrière lui une traînée arc-en-ciel, il disparut au loin.
 
-Pendant le voyage, outre Qiu, les deux autres restaient assis, en tailleur, pratiquant leur culture. Ce n'était pas la première fois qu'ils empruntaient ce navire, mais à chaque trajet, ils devaient méditer pour concentrer leur énergie spirituelle, sans quoi ils ne pourraient supporter une telle puissance.
+Pendant le voyage, outre Qiu, les deux autres restaient assis, en tailleur, pratiquant leur culture. Ce n'était pas la première fois qu'ils empruntaient ce navire, mais à chaque trajet, ils devaient méditer pour concentrer leur énergie spirituelle, sans quoi ils ne pourraient supporter une telle vitesse.
 
 Un regard de mépris traversa le visage de Qiu. Bien que ces deux-là fussent au stade avancé de la Formation du Noyau, leurs fondations étaient bien précaires. À son époque, lorsqu'il atteignait lui aussi ce stade, il n'avait aucun mal à voyager sur un tel navire.
 
@@ -86,7 +86,7 @@ Autrefois, alors qu'il était au stade avancé de la Formation du Noyau, peu de 
 
 Il l'avait cru jusqu'à sa rencontre avec un individu: un jeune homme aux cheveux blancs et au cœur de glace.
 
-Ses yeux s'illuminèrent à la pensée de cet homme. Après un long moment, il esquissa un sourire et pensa: « Frère Wang, après avoir dévoré cette Âme Naissante, j'ai réussi à atteindre le stade de l'Âme Naissante. J'ignore si vous y êtes parvenu... si ce n'est pas le cas, lorsque nous nous reverrons, je devrai vous rendre la pareille. »
+Ses yeux s'illuminèrent à la pensée de cet homme. Après un long moment, il esquissa un sourire et pensa: « Frère Wang, après avoir dévoré cette Âme Naissante, j'ai réussi à atteindre le stade de l'Âme Naissante. J'ignore si vous y êtes parvenu... si ce n'est pas le cas, lorsque nous nous reverrons, j'effacerai l'humiliation d'autrefois. »
 
 Après quatre jours de voyage, le navire s'arrêta au-dessus d'une terre désolée. L'homme nommé Li et la jeune femme héroïque ouvrirent les yeux. Une lueur froide passa dans le regard de la fille qui demanda: « Frère Qiu, où se cache la Bête aux Huit Griffes? »
 
@@ -94,9 +94,9 @@ Qiu Siping prit une profonde inspiration. Sans un mot, il sortit un morceau de b
 
 Cette odeur était si dense qu'elle se propageait lentement; même le vent ne parvenait pas à la dissiper. Bientôt, l'effluve se répandit de plus en plus loin. Soudain, un cri semblable aux pleurs d'un nouveau-né retentit au loin. Le regard de Qiu Siping se fixa sur une direction précise et il dirigea le navire vers celle-ci. Au même moment, la jeune fille afficha un visage exalté: « La boue entre les mains du frère Qiu est vraiment magique. Il y a bel et bien une Bête aux Huit Griffes là-bas! »
 
-Qiu Siping garda son calme et dit: « Je traque cette bête depuis longtemps, je connais ses habitudes. Si mon niveau de culture n'était pas trop faible, je l'aurais déjà capturée. Cette fois, je vais devoir compter sur vous deux. »
+Qiu Siping garda son calme et dit: « Je traque cette bête depuis des mois, je connais ses habitudes. Si mon niveau de culture n'était pas trop faible, je l'aurais déjà capturée. Cette fois, je vais devoir compter sur vous deux. »
 
-La jeune fille releva le menton: « Bien sûr! Le frère Qiu n'est qu'au stade intermédiaire de la Formation du Noyau. Laissez-nous nous occuper de la mise à mort! »
+La jeune fille releva le menton: « Bien sûr! Vous n'êtes qu'au stade intermédiaire de la Formation du Noyau. Laissez-nous nous occuper de la mise à mort! »
 
 Sur ce, elle s'élança hors du navire. Quant à l'homme malade nommé Li, il esquissa un sourire amer et la suivit précipitamment.
 
@@ -104,13 +104,13 @@ Qiu Siping ricana intérieurement. Avec sa culture au début du stade de l'Âme 
 
 Il les suivit tranquillement tandis que les cris de la jeune fille résonnaient au loin et que des éclats de lumière provenant de trésors magiques déchiraient l'air.
 
-La Bête aux Huit Griffes n'était, en fin de compte, qu'un calmar géant de la Mer des Démons. Sa culture n'était pas négligeable et, grâce à la pluie noire, elle avait acquis une certaine intelligence, atteignant le niveau d'une bête spirituelle de faible qualité.
+La Bête aux Huit Griffes n'était, en fin de compte, qu'un poulpe géant de la Mer des Démons. Sa culture n'était pas négligeable et, grâce à la pluie noire, elle avait acquis une certaine intelligence, atteignant le niveau d'une bête spirituelle de faible qualité.
 
-Cependant, cette créature était singulière. Même des cultivateurs au stade de l'Âme Naissante pouvaient s'arracher les cheveux face à elle. Si un expert de ce stade pouvait aisément se défendre, la peau de la Bête aux Huit Griffes était aussi dure que celle d'une bête spirituelle de qualité moyenne. À moins d'atteindre le stade avancé de l'Âme Naissante, il était impossible de la blesser.
+Cependant, cette créature était singulière. Même des cultivateurs au stade de l'Âme Naissante pouvaient s'arracher les cheveux face à elle. Ses pouvoirs divins n'étaient que de faible qualité et faciles à affronter, mais sa chair et sa peau atteignaient le niveau d'une bête spirituelle de qualité moyenne. À moins d'atteindre le stade avancé de l'Âme Naissante, il était impossible de la blesser.
 
 En conséquence, tous les chasseurs de bêtes sauvages la fuyaient dès qu'ils l'apercevaient.
 
-Pourtant, elle restait une proie très lucrative. Contrairement aux autres monstres, elle possédait huit cœurs. De plus, la technique de poison du Palais Enchanté était extrêmement efficace contre elle. La chasse à cette bête était devenue l'une des activités principales du Palais Enchanté, et tous ses disciples se réjouissaient de s'y essayer.
+Pourtant, elle restait une proie très lucrative. Contrairement aux autres monstres, elle possédait huit cœurs. De plus, la technique de poison du Palais Enchanté était extrêmement efficace contre elle. La chasse à cette bête était devenue l'activité exclusive du Palais Enchanté, et tous ses disciples se réjouissaient de s'y essayer.
 
 Qiu Siping avait déjà pris sa décision: une fois que ces deux juniors auraient tué la bête, il les assassinerait pour s'emparer de leurs cœurs.
 
@@ -118,13 +118,13 @@ Mais à cet instant précis, un immense Sens Divin balaya la zone. Les deux comb
 
 Plus étrange encore, sous l'effet de ce balayage sensoriel, la Bête aux Huit Griffes elle-même trembla. Étant une créature animale, elle était naturellement sensible à l'énergie spirituelle et perçut une puissance terrifiante émanant de ce Sens Divin. Elle poussa un rugissement, recula et se réfugia dans une grotte, tremblante, n'osant plus sortir.
 
-Qiu Siping fut le plus réactif de tous. Étant au début du stade de l'Âme Naissante, il sentit, dès que le Sens Divin passa, qu'il avait été totalement percé à jour. Non seulement cela, mais il sentit son Âme Naissante vaciller, comme si elle allait s'échapper de son corps. Ce sentiment bouleversa son expression. Il se remémora alors ces quelques excentriques pratiquant la Formation de l'Âme qui avaient éliminé la pluie noire.
+Qiu Siping fut le plus réactif de tous. Étant au début du stade de l'Âme Naissante, il sentit, dès que le Sens Divin passa, qu'il avait été totalement percé à jour. Non seulement cela, mais il sentit son Âme Naissante vaciller, comme si elle allait s'échapper de son corps. Ce sentiment bouleversa son expression. Il se remémora alors ces quelques vieux monstres de la Formation de l'Âme qui avaient éliminé la pluie noire.
 
 L'homme nommé Li fit quelques pas en arrière. Il rangea son trésor et adopta une attitude très respectueuse. Même la jeune fille, d'ordinaire intrépide, devint soumise et se tint silencieusement aux côtés de l'homme.
 
 « Cher compagnon de culture Qiu, cela faisait longtemps! »
 
-Qiu Siping fut stupéfait. Il demanda: « L'Aîné me connaît? »
+Qiu Siping fut stupéfait. Il demanda: « Senior, vous me connaissez? »
 
 Au même moment, un jeune homme aux cheveux blancs s'approcha lentement. Bien que sa démarche fût lente, en un clin d'œil, il apparut à une trentaine de mètres de l'assemblée.
 
@@ -134,10 +134,10 @@ Cet homme était Wang Lin. Son regard balaya Li et la jeune fille avant de se po
 
 « Le frère Qiu est d'humeur très joyeuse. Avec votre culture d'Âme Naissante, vous jouez avec deux juniors en Formation du Noyau. Très intéressant. » Les paroles de Wang Lin étaient posées, mais lorsqu'elles atteignirent l'homme et la femme, elles furent comme des éclairs les faisant sursauter.
 
-Ces deux-là n'étaient pas stupides. En entendant les mots de Wang Lin, leurs visages s'assombrirent instantanément. Ils se regardèrent, puis tournèrent vers Wang Lin un regard empreint de gratitude en joignant les mains. Ils reculèrent lentement avant de s'enfuir à toute vitesse dans le lointain.
+Ces deux-là n'étaient pas stupides. En entendant les mots de Wang Lin, leurs visages s'assombrirent instantanément. Ils se regardèrent, puis tournèrent vers Wang Lin un regard empreint de gratitude en joignant les mains. Ils reculèrent rapidement avant de s'enfuir à toute vitesse dans le lointain.
 
 Qiu Siping laissa échapper un sourire amer. Une lueur froide passa dans ses yeux alors qu'il sortait un petit tambour de son sac de stockage. Il frappa le tambour, et deux fils noirs presque invisibles s'élancèrent vers les fuyards.
 
-Les fils étaient d'une rapidité extrême. Mais au moment où ils allaient les rattraper, une lumière verte apparut pour les traquer. Lorsque la lueur verte disparut, les deux individus avaient déjà disparu sans laisser de trace.
+Les fils étaient d'une rapidité extrême. Mais au moment où ils allaient les rattraper, une lumière verte apparut derrière les deux fuyards et emprisonna les fils. Lorsque la lueur verte disparut, les deux individus avaient déjà disparu sans laisser de trace.
 
-Le visage de Qiu Siping était méconnaissable de rage. Bien qu'il détestât Wang Lin de tout son être, il prit une profonde inspiration et dit: « Cher compagnon de culture, cela faisait longtemps. »
+Le visage de Qiu Siping était très sombre. Bien qu'il détestât Wang Lin de tout son être, il prit une profonde inspiration et dit: « Cher compagnon de culture, cela faisait longtemps. »

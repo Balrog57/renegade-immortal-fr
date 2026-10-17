@@ -8,7 +8,7 @@ slug: futur-frere-instructeur
 ---
 Quelque part dans le vide, le vieil homme perché sur le Qilin entendit également l'hymne des épées alors qu'un groupe de lames fonçait derrière lui.
 
-Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Lou deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser ce Tian Yunzi.
+Le vieil homme hésita. Toutes ces épées étaient des épées célestes. S'il parvenait à les saisir et à en offrir une à chacun de ses disciples, sa Secte de l'Épée Da Luo deviendrait la première secte de Tian Yun. Cela lui permettrait de surpasser ce Tian Yunzi.
 
 Après une longue lutte intérieure, il poussa un soupir. Il décida de ne pas bloquer les épées célestes et s'écarta du chemin.
 
@@ -26,7 +26,7 @@ Outre les créatures étranges qui y résidaient, il existait un autre danger: s
 
 Toutefois, la vitesse des épées célestes était si prodigieuse que tout le monde ne pouvait les suivre. En conséquence, les cultivateurs dispersés dans le vide se répartissaient selon leurs capacités.
 
-Certains cultivateurs étaient assez instruits pour comprendre le danger. Lorsqu'ils virent les épées célestes pour la première fois, la cupidité les emporta et ils tentèrent d'en saisir une ou deux. Aucun d'eux ne vécut assez longtemps pour en témoigner.
+Certains cultivateurs manquaient de connaissances et d'expérience. Lorsqu'ils virent les épées célestes pour la première fois, la cupidité les emporta et ils tentèrent d'en saisir une ou deux. Aucun d'eux ne vécut assez longtemps pour en témoigner.
 
 Pourtant, malgré ces morts, certains refusèrent de croire aux rumeurs et tentèrent de s'emparer des épées par la force.
 
@@ -42,7 +42,7 @@ Les autres maugréaient secrètement dans leur cœur, tout en affichant des expr
 
 À ce moment précis, un autre groupe d'épées célestes passa à proximité. Comme elles n'étaient pas proches d'eux, les trois cultivateurs se contentèrent de les regarder sans plus d'attention.
 
-Cependant, ces épées libérèrent de puissants hymnes. Le groupe qui passait s'arrêta soudainement, fit demi-tour et se dirigea droit sur eux.
+Cependant, les trois épées captives libérèrent de puissants hymnes. Le groupe qui passait s'arrêta soudainement, fit demi-tour et se dirigea droit sur eux.
 
 Leurs visages changèrent instantanément; le vieil homme abandonna brusquement ses efforts pour retenir les lames et prit la fuite. La barrière déjà instable s'effondra subitement.
 
@@ -72,7 +72,7 @@ Les yeux de Chi Hu brillèrent et il murmura: « Stade avancé de la Formation d
 
 Wang Lin resta calme et dit: « C'est au frère Chi Hu de décider si nous devons fuir ou combattre. » Wang Lin n'utilisait pas la vitesse maximale de la boussole. S'il l'activait pleinement, il pourrait facilement semer un cultivateur au stade avancé de la Formation de l'Âme.
 
-Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng a osé combattre Papillon Rouge, qui n'était qu'au début de la Formation de l'Âme. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
+Chi Hu laissa échapper un rire, se redressa, craqua ses articulations et déclara: « Le frère Ceng, alors qu'il n'était qu'au début de la Formation de l'Âme, a osé combattre Papillon Rouge. Moi, Chi Hu, au milieu de la Formation de l'Âme, je veux aussi défier un cultivateur au stade avancé! Une fois le combat terminé, nous fuirons! » Il sauta de la boussole et hurla: « Si tu veux chevaucher cette boussole, montre-moi d'abord ta force! »
 
 Le visage de l'homme d'âge moyen resta sombre, empreint d'un certain dédain. Loin de s'arrêter, il accéléra encore et lança: « Ainsi, ce sont des membres du Clan des Démons Géants. Dégagez! »
 
@@ -86,9 +86,9 @@ Un gaz gris se mua en une flèche qui fonça vers Chi Hu. Dès l'apparition de c
 
 « Domaine de mort! » rugit Chi Hu en frappant sa poitrine du poing. Une soudaine vague de fierté émana de lui tandis que son corps se mettait à crépiter. Sa stature s'élargit brusquement, devenant un géant d'une dizaine de mètres de haut. La hache sur son front scintillait frénétiquement.
 
-Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi l'utilisa pour combattre Papillon Rouge, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
+Cette hache était un trésor crucial de son clan. Elle différait grandement de la boussole stellaire qui n'avait que peu d'utilités. Ce n'était pas un objet solide; bien qu'elle eût été brisée lorsque Zhou Yi, qui le possédait, combattit Papillon Rouge, elle pouvait se reformer. Cependant, chaque fragmentation l'affaiblissait légèrement.
 
-Dès que la hache apparut, Chi Hu s'empara de l'air tel un dieu démon et abattit son coup sur le gaz gris.
+Dès que la hache apparut, Chi Hu la saisit d'une main et, tel un dieu démon, fit un pas en avant et l'abattit sur le gaz gris.
 
 *Bang!*
 
@@ -96,7 +96,7 @@ Le gaz gris s'effondra et la hache dans la main de Chi Hu trembla; il dut recule
 
 L'homme d'âge moyen s'interrompit. Il ricana en frappant son sac de rangement, d'où surgit un cristal. Il pointa la pierre qui se transforma soudainement en liquide. Il serra le poing pour lui donner une forme de diamant, puis la projeta en criant: « Essaie donc de toucher à ça! »
 
-En voyant ce cristal, Chi Hu fut saisi d'un frisson et des pensées meurtrières faillirent troubler son esprit. Wang Lin, lui, sentit son cœur se glacer. Toutes sortes d'impulsions meurtrières parasitèrent son esprit, faisant sursauter son âme.
+En voyant ce cristal, Chi Hu fut saisi d'un frisson. Toutes sortes de pensées meurtrières faillirent troubler son esprit et son cœur fut ébranlé.
 
 Les yeux de Wang Lin se fixèrent sur la roche et il dit: « Chi Hu, partons! »
 
@@ -110,7 +110,7 @@ L'expression de l'homme d'âge moyen changea brusquement alors qu'il rattrapait 
 
 Après un long moment, les yeux de l'homme s'illuminèrent. Il s'arrêta, fixa l'endroit où la boussole avait disparu et eut un reniflement méprisant.
 
-« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Lou tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Lou soit du même rang que ma Secte Tian Yun, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
+« Le Maître avait prédit que l'épée céleste de la Pluie s'éveillerait et que la Secte de l'Épée Da Luo tenterait de s'en emparer. Il m'a chargé de les stopper pour ne pas rompre l'équilibre des pouvoirs sur Tian Yun. Dommage, j'aurais vraiment aimé m'amuser avec ces deux juniors. Humph, bien que la Secte de l'Épée Da Luo soit du même rang que ma Secte Tian Yun, tant que le Maître agit, il n'y a aucune inquiétude à avoir! »
 
 L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
@@ -118,7 +118,7 @@ L'homme lança un regard froid vers l'horizon avant de s'éloigner.
 
 Chi Hu, assis en position de lotus sur la boussole, demanda: « Frère Ceng, qu'était ce cristal en forme de diamant? Pourquoi ne m'as-tu pas laissé combattre? Bien que cet homme fût au stade avancé de la Formation de l'Âme, mon Clan des Démons Géants est spécial. Je ne pouvais peut-être pas le vaincre, mais je n'avais pas peur! »
 
-Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en qi maléfique. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal d'intention meurtrière. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
+Tout en dirigeant la boussole stellaire, Wang Lin répondit: « Lorsqu'une personne tue trop, son aura meurtrière se transforme en qi maléfique. Lorsque l'on tue encore davantage, celle-ci se condense en liquide. Et quand elle devient encore plus dense, elle se mue en cristal. C'est le cristal de sang de qi maléfique. À moins que tu ne cultives toi-même un domaine de mort, il endommagera ton âme originelle dès l'instant où tu le toucheras! »
 
 Chi Hu commença à réfléchir. Il se remémora ses propres émotions lorsqu'il avait vu la pierre apparaître et hocha la tête.
 

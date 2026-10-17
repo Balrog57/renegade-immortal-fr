@@ -10,7 +10,7 @@ Après avoir récolté une grande quantité d'eau de source dans la montagne, Wa
 
 Après avoir bu plusieurs grandes gorgées d'eau de source, il sentit son corps s'échauffer. Il fixa ensuite la perle pour entrer dans le rêve.
 
-Dans l'espace infini du rêve, Wang Lin s'assit en tailleur et commença à cultiver. Tandis qu'il pratiquait, les lumières environnantes devinrent plus douces. Sans que Wang Lin ne s'en aperçoive, ces lueurs pénétraient dans son corps.
+Dans l'espace infini du rêve, Wang Lin s'assit en tailleur et commença à cultiver. Tandis qu'il pratiquait les yeux fermés, les corps lumineux environnants émirent de doux faisceaux de lumière qui, en l'atteignant, se changeaient en petits points lumineux et pénétraient sans bruit dans son corps. Wang Lin ne s'aperçut de rien.
 
 Après y avoir passé une journée entière, toute l'énergie spirituelle contenue dans l'eau s'était dissipée. Mais cette fois, il pouvait clairement ressentir la différence au sein de son organisme. Auparavant, lorsqu'il achevait les médicaments de Sun Dazhu, il ressentait une chaleur, mais au moment le plus critique, toute l'énergie spirituelle se dispersait.
 
@@ -62,13 +62,13 @@ Soudain, une idée lui traversa l'esprit. Il sentait qu'il tenait quelque chose,
 
 Après un long moment, son visage s'illumina lorsqu'il saisit un point crucial: si l'eau imprégnée d'énergie spirituelle ne pouvait être introduite, l'énergie spirituelle qui pénétrait dans son propre corps, elle, ne disparaissait pas.
 
-Il comprenait désormais qu'on ne pouvait pas faire entrer d'objets contenant de l'énergie spirituelle, mais s'il y réfléchissait avec soin, il pourrait trouver une faille.
+Il comprenait désormais qu'on ne pouvait pas faire entrer d'objets contenant de l'énergie spirituelle, mais cela n'avait donc rien d'absolu: s'il trouvait un moyen, il pourrait peut-être y faire entrer l'eau de source chargée d'énergie spirituelle.
 
 Après cinquante heures, il quitta précipitamment sa chambre et explora la montagne jusqu'à ce qu'il trouve quelques courges sauvages qu'il ramena chez lui.
 
 Il était convaincu que les trois gourdes précédentes n'avaient pu entrer dans l'espace du rêve parce qu'elles avaient été trempées si longtemps dans l'eau spirituelle que l'énergie en était fusionnée.
 
-Désormais, il remplissait ces courges fraîchement cueillies avec de l'eau de source enrichie. Il pourrait ainsi tromper la perle pour les faire pénétrer dans le rêve.
+Désormais, il remplissait ces courges fraîchement cueillies avec de l'eau de source enrichie. Il pourrait ainsi tromper l'espace du rêve pour les y faire pénétrer.
 
 Cinq heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courges sur l'épaule. À sa grande surprise, il constata qu'elles étaient toutes avec lui.
 
@@ -80,4 +80,4 @@ Les lumières environnantes recommencèrent silencieusement à pénétrer dans s
 
 Avec le talent de Wang Lin, sans la perle mystérieuse et l'eau de source enrichie, il lui aurait fallu des années pour atteindre ce stade. En ajoutant l'Herbe de Dispersion du Qi à l'équation, il lui aurait fallu trente à cinquante ans avant d'y parvenir.
 
-Prendre les médicaments de Sun Dazhu quotidiennement pendant un mois avait accéléré le processus. Wang Lin utilisait également inconsciemment la Technique de Dispersion du Qi, qui neutralisait l'effet de l'Herbe de Dispersion du Qi. Mais même ainsi, cela lui aurait pris dix ans. Cependant, maintenant, Wang Lin ne manquait d'aucune énergie spirituelle. Grâce à cette perle de pierre qui lui permettait de s'entraîner dix fois plus vite, le premier niveau de Condensation de Qi était désormais à portée de main.
+Prendre les médicaments de Sun Dazhu quotidiennement pendant un mois avait accéléré le processus. Wang Lin avait aussi, sans le vouloir, dispersé sa culture, ce qui avait éliminé l'Herbe de Dispersion du Qi. Mais même ainsi, cela lui aurait pris dix ans. Cependant, maintenant, Wang Lin ne manquait d'aucune énergie spirituelle. Grâce à cette perle de pierre qui lui permettait de s'entraîner dix fois plus vite, le premier niveau de Condensation de Qi était désormais à portée de main.

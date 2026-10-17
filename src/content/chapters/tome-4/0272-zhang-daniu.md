@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 272 - Zhang Daniu
 slug: zhang-daniu
 ---
-Chaque fois qu'il voyait quelqu'un mourir de froid, la douleur qui lui transperçait le cœur était comme si on l'enfonçait d'un poignard. Ce n'était pas par simple compassion, mais parce qu'un sentiment de crainte et d'inquiétude pour sa femme l'envahissait à chaque fois.
+Chaque fois qu'il voyait quelqu'un mourir de froid, la douleur qui lui transperçait le cœur était comme si on l'enfonçait d'un poignard. Ce n'était pas par simple compassion, mais parce qu'un profond désespoir, mêlé de nostalgie et d'inquiétude pour sa femme, l'envahissait à chaque fois.
 
 Il craignait que son épouse ne finisse par le quitter si elle ne pouvait supporter ces conditions de vie infernales.
 
@@ -36,7 +36,7 @@ Durant ces jours sombres, de nombreux mortels tentaient de s'enfuir en secret ve
 
 On racontait que dans les pays voisins, il ne neigeait pas. C'était là-bas que régnait le véritable printemps; tout y était normal et le soleil y brillait de mille feux.
 
-Le matin, Da Niu fut le premier à s'éveiller. Il se leva de son lit. Derrière lui dormait le second fils de la famille Zhou, de la même rue. Ce jeune homme était un travailleur acharné qui collaborait souvent avec Da Niu.
+Le matin, Da Niu fut le premier à s'éveiller. Il se leva de son lit. À côté de lui dormait le second fils de la famille Zhou, de la même rue, un jeune homme d'une vingtaine d'années, dans la force de l'âge. Il était toujours affecté à la même équipe que Da Niu et l'aidait souvent à en faire davantage.
 
 C'était un garçon simple. Da Niu tenta de le bousculer pour le réveiller, mais il se figea instantanément. En posant sa main sur le nez du garçon, il esquissa un sourire amer. « Il est mort... » murmura-t-il.
 
@@ -78,7 +78,7 @@ Après un long moment, Da Niu sentit soudain son corps se réchauffer alors qu'u
 
 Da Niu tourna la tête et aperçut le jeune homme apparu derrière lui. Ce dernier paraissait bien plus jeune que lui, mais ses yeux dégageaient une lueur ancestrale.
 
-Da Niu ne connaissait pas ce visage, et pourtant... c'était l'oncle Wang qu'il appelait de ses vœux.
+Ce visage n'était pas celui d'un étranger pour Da Niu; il le reconnut même au premier regard. C'était l'oncle Wang, qu'il appelait de ses vœux.
 
 Mais l'apparence actuelle de cet homme était radicalement différente du vieillard qu'il avait connu. En regardant Wang Lin, Da Niu se souvint soudain de la toute première fois où il avait franchi le seuil de la boutique de ce dernier.
 

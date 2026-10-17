@@ -8,7 +8,7 @@ slug: pays-de-culture-de-rang-6
 ---
 « Même si Yun Quezi m'avait sollicité personnellement, si je ne l'avais pas voulu, je me contenterais d'expulser Liu Mei sans pour autant vous offrir les deux autres cadeaux. » La lueur mystérieuse dans les yeux de Du Tian devint plus intense encore.
 
-« Que tu sois Ceng Niu ou Wang Lin, cela n'a aucune importance. Depuis que ma Secte du Raffinement des Âmes est arrivée sur la planète Suzaku, nous avons compté un total de 36 ancêtres de Transformation de l'Âme. Leurs âmes résident toutes dans le drapeau de l'âme. Je suis le 37ème, et mon frère aîné était le 36ème! »
+« Que tu sois Ceng Niu ou Wang Lin, cela n'a aucune importance. Depuis que ma Secte de l'Affinement de l'Âme est arrivée sur la planète Suzaku, nous avons compté un total de 36 ancêtres de Transformation de l'Âme. Leurs âmes résident toutes dans le drapeau de l'âme. Je suis le 37ème, et mon frère aîné était le 36ème! »
 
 L'expression de Wang Lin changea. Il leva la tête et fixa les deux anneaux de sang.
 
@@ -16,23 +16,23 @@ Du Tian dit d'une voix lente: « Jeune ami, nul besoin de regarder; mon frère a
 
 Wang Lin réfléchit en silence.
 
-La lueur mystérieuse dans les yeux de Du Tian s'intensifia alors qu'il fixait Wang Lin et déclara, mot pour mot: « Jeune ami, j'ai une question à te poser. Es-tu prêt à rejoindre ma Secte du Raffinement des Âmes, à en devenir le prochain successeur et à jurer sur ton domaine que tu aideras un jour ma Secte à devenir un pays de culture de rang 6?! »
+La lueur mystérieuse dans les yeux de Du Tian s'intensifia alors qu'il fixait Wang Lin et déclara, mot pour mot: « Jeune ami, j'ai une question à te poser. Es-tu prêt à rejoindre ma Secte de l'Affinement de l'Âme, à en devenir le prochain successeur et à jurer sur ton domaine que tu aideras un jour ma Secte à devenir un pays de culture de rang 6?! »
 
 Wang Lin ne répondit pas immédiatement, mais demanda: « Pourquoi moi? »
 
 « Yun Quezi n'est qu'une partie de la raison. La raison principale réside toutefois dans mon frère aîné. Jeune ami Ceng Niu, le domaine de mon frère n'avait aucune capacité offensive, mais il était le seul à posséder un tel don sur toute la planète. Même sur d'autres mondes, c'est extrêmement rare. » Du Tian afficha un regard empreint de respect.
 
-« Ce domaine est celui de la clairvoyance! Il lui restait initialement cent ans de vie, mais il les a tous consumés pour activer son domaine afin de trouver une voie de survie pour ma Secte du Raffinement des Âmes, et pourtant, il a échoué... »
+« Ce domaine est celui de la prescience! Il lui restait initialement cent ans de vie, mais il les a tous consumés pour activer son domaine afin de trouver une voie d'avenir pour ma Secte de l'Affinement de l'Âme, et pourtant, il a échoué... »
 
 Wang Lin fronça les sourcils, attendant la fin de son récit. Si le vieil homme commençait à prétendre que le frère aîné avait prédit que Wang Lin serait leur espoir, il ne l'écouterait plus.
 
-Du Tian fixa Wang Lin avec une pointe de folie: « Bien que mon frère aîné soit mort, le moment de son trépas fut aussi celui de ton arrivée dans ma secte! »
+Du Tian fixa Wang Lin avec une pointe de folie: « Bien que mon frère aîné soit mort, le moment de son trépas fut aussi celui de ton arrivée aux portes de ma secte! »
 
 Wang Lin fut stupéfait.
 
 « C'est peut-être une coïncidence, ou peut-être n'est-ce que l'entêtement de ce vieil homme, mais ma longévité touche à sa fin et je ne peux plus attendre. Je suis prêt à parier que c'est le domaine de mon frère qui t'a conduit ici! » Du Tian laissa échapper un sourire amer. Il savait qu'il ne faisait, en grande partie, que se voiler la vérité.
 
-« La Secte du Raffinement des Âmes n'a personne pour me succéder. Bien que je puisse défier le Suzaku actuel grâce au drapeau de l'âme, une fois que je serai mort, la Secte est finie... Le drapeau sera saisi par le Suzaku et, sans lui, la Secte du Raffinement des Âmes s'éteindra. »
+« La Secte de l'Affinement de l'Âme n'a personne pour me succéder. Bien que je puisse défier le Suzaku actuel grâce au drapeau de l'âme, une fois que je serai mort, la Secte est finie... Le drapeau sera saisi par le Suzaku et, sans lui, la Secte de l'Affinement de l'Âme s'éteindra. »
 
 Wang Lin réfléchit un instant. Il leva la tête et dit: « Si j'accepte, vous me remettrez le drapeau de l'âme. »
 
@@ -40,13 +40,13 @@ Du Tian hocha la tête: « Je te remettrai le drapeau de l'âme lorsque ma vie a
 
 « Un pays de culture de rang 6... » Wang Lin secoua la tête avec un sourire amer. « Avec mon niveau de culture actuel, c'est bien trop difficile. »
 
-Du Tian soupira: « Ceng Niu, il ne me reste que dix ans à vivre. Durant ces dix années, je peux assurer ta sécurité, mais après cela, tu seras livré à toi-même. Que tu réussisses ou non importe peu, mais retiens mes paroles. Souviens-toi que la Secte du Raffinement des Âmes ne t'a fait aucun mal et t'a offert le drapeau de l'âme. Cela suffira. »
+Du Tian soupira: « Ceng Niu, il ne me reste que dix ans à vivre. Durant ces dix années, je peux assurer ta sécurité, mais après cela, tu seras livré à toi-même. Que tu réussisses ou non importe peu, mais retiens mes paroles. Souviens-toi que la Secte de l'Affinement de l'Âme ne t'a fait aucun mal et t'a offert le drapeau de l'âme. Cela suffira. »
 
 Wang Lin pesait ses mots. Après un long silence, il hocha la tête: « Je ferai de mon mieux. »
 
 Les yeux de Du Tian s'illuminèrent. Il regarda Wang Lin et éclata de rire. Puis, d'un revers de main sur son sac de rangement, il projeta une pierre de jade dorée vers Wang Lin.
 
-« Ma Secte du Raffinement des Âmes n'est pas portée sur les fioritures. Cette pierre contient le manuel de scellement de l'âme utilisé pour contrôler le drapeau d'un milliard d'âmes. C'est le cœur de notre secte. À partir d'aujourd'hui, tu es le seul disciple central de la Secte du Raffinement des Âmes. »
+« Ma Secte de l'Affinement de l'Âme n'est pas portée sur les fioritures. Cette pierre contient le manuel de scellement de l'âme utilisé pour contrôler le drapeau d'un milliard d'âmes. C'est le cœur de notre secte. À partir d'aujourd'hui, tu es le seul disciple central de la Secte de l'Affinement de l'Âme. »
 
 Wang Lin prit la pierre de jade, l'examina rapidement avant de la ranger dans son sac.
 
@@ -56,7 +56,7 @@ Wang Lin esquissa un léger sourire: « Aucun problème. Si je n'étais pas capa
 
 Du Tian observa Wang Lin. Après une courte réflexion, il acquiesça: « Puisque tu en es si sûr, je n'en dirai pas plus. Tu peux partir. » Sur ce, il disparut dans l'anneau de sang.
 
-Wang Lin joignit respectueusement les mains, puis s'éclipsa pour quitter la Secte du Raffinement des Âmes.
+Wang Lin joignit respectueusement les mains, puis s'éclipsa pour quitter la Secte de l'Affinement de l'Âme.
 
 La vitesse de Wang Lin était celle d'une météorite fendant la nuit. Ses cheveux flottaient au gré du vent et ses yeux brillaient comme des étoiles.
 
@@ -100,7 +100,7 @@ Wang Lin eut un sourire désolé et frotta la tête de Zhou Ru: « Écoute, l'on
 
 Zhou Ru n'était qu'une enfant et, en entendant cela, elle retrouva instantanément sa joie: « Où allons-nous? Oncle, m'emmènes-tu jouer? »
 
-« L'oncle va chercher un ami! » Une pointe d'intention meurtrière apparut dans les yeux de Wang Lin.
+« L'oncle va retrouver un vieil ami! » Une pointe d'intention meurtrière apparut dans les yeux de Wang Lin.
 
 Le cœur de Petit Blanc trembla et son espoir renaquit, plus fort que jamais. Il se dit que si les deux partaient, il retrouverait sa liberté. En y pensant, l'excitation le gagna à nouveau.
 
@@ -124,8 +124,8 @@ Voici le véritable Wang Lin: le corps original à l'extérieur et la culture de
 
 À cet instant, le ciel changea de couleur. Le tonnerre résonna dans les cieux et de lourdes gouttes de pluie commencèrent à tomber.
 
-Sous la pluie, Wang Lin ressemblait à un dieu démon alors qu'il fixait Xue Yue.
+Sous la pluie, Wang Lin ressemblait à un dieu démon alors qu'il fixait Xue Yu.
 
-« Li Yuanfeng de Xue Yue, l'ancêtre du Clan des Démons Géants, et Sun Tai, qui a profité de l'occasion pour me sceller... Maintenant que j'ai recouvré ma culture, je viens réclamer mes dettes auprès de chacun d'entre vous! »
+« Li Yuanfeng de Xue Yu, l'ancêtre du Clan des Démons Géants, et Sun Tai, qui a profité de l'occasion pour me sceller... Maintenant que j'ai recouvré ma culture, je viens réclamer mes dettes auprès de chacun d'entre vous! »
 
 « Le premier sur la liste est Li Yuanfeng. Voyons si la culture de Transformation de l'Âme que tu as obtenue par la force est plus puissante que mon corps original fusionné avec mon avatar! »

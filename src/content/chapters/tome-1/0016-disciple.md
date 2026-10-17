@@ -22,7 +22,7 @@ Wang Lin feignait le calme, mais son cœur rata un battement; il chercha fébril
 
 L'Ancien Sun l'examina longuement avant de se tourner vers lui: « Wang Lin, qu'as-tu mis dans cette gourde? »
 
-Wang Lin joua la comédie de l'innocence: « Ancien, cette gourde est remplie d'eau de source de la montagne. Cette eau est vraiment prodigieuse. Chaque fois que je suis fatigué, il me suffit d'en boire un peu pour me sentir immédiatement revigoré. Enfant, j'ai lu qu'un objet utilisé par les immortels possédait toujours des vertus. Je ne m'attendais pas à ce que même l'eau de source soit aussi extraordinaire. Ancien, si vous désirez cette eau, il y en a dix cuves entières au dépôt. Chaque cuve est de la taille d'une maison. Et c'est moi qui ai tout puisé. »
+Wang Lin joua la comédie de l'innocence: « Ancien, cette gourde est remplie d'eau de source de la montagne. Cette eau est vraiment prodigieuse. Chaque fois que je suis fatigué, il me suffit d'en boire un peu pour me sentir immédiatement revigoré. Enfant, j'ai lu qu'un objet utilisé par les immortels possédait toujours des vertus. Je ne m'attendais pas à ce que même l'eau de source soit aussi extraordinaire. Ancien, si vous désirez cette eau, il y en a dix cuves entières au local des corvées. Chaque cuve est de la taille d'une maison. Et c'est moi qui ai tout puisé. »
 
 L'Ancien Sun ouvrit la gourde et en huma le contenu. Soudain, son expression changea et il demanda avec empressement: « Qui t'a questionné sur l'eau? Dis-moi vite où tu as trouvé cette gourde! »
 
@@ -34,7 +34,7 @@ Il était fort probable que la mort de l'herbe bleue et de la fleur de nuit pour
 
 Cessant ses réflexions, son expression changea brusquement alors qu'il examinait attentivement l'objet. Il fronça les sourcils et fixa froidement Wang Lin: « Wang Lin, tu es bien audacieux. Oser mentir à un Ancien? On dirait que tu n'as plus envie de rester dans la Secte Heng Yue! »
 
-Wang Lin afficha un visage perplexe et répondit rapidement: « Ancien, je ne vous mens pas. Il y a bel et bien dix cuves d'eau de source au dépôt. »
+Wang Lin afficha un visage perplexe et répondit rapidement: « Ancien, je ne vous mens pas. Il y a bel et bien dix cuves d'eau de source au local des corvées. »
 
 Sans lui laisser finir, l'Ancien Sun laissa échapper un rire colérique: « Tu oses encore jouer l'innocent avec moi? Je te questionnais sur la gourde! Elle semble avoir été récemment détachée de sa vigne. Wang Lin, je te donne une dernière chance de me dire où tu as obtenu cet objet, ou je t'expulse de la Secte Heng Yue dès aujourd'hui! »
 
@@ -42,7 +42,7 @@ Le visage de Wang Lin se mua en une expression de colère. Animé par un élan d
 
 « J'ai dû redoubler d'efforts pour sortir cette gourde de la rivière. Si elle vous intéresse, prenez-la, tout simplement! Pourquoi dire que je mens? Et quel est le rapport avec la vigne? Quelqu'un a pu la détacher et la jeter à l'eau. Vous me questionnez, mais à qui dois-je poser la question, moi? »
 
-L'Ancien Sun regarda les patates douces restantes, puis la gourde. Il réfléchit un instant: « Bien que je convoite cette gourde, voler le trésor d'un disciple honorifique pour ensuite l'expulser serait trop indigne. Si la nouvelle se répandait, ma réputation serait ruinée. Et si les autres membres de la secte découvraient l'existence de cette gourde, je ne pourrais empêcher personne de s'en emparer. Ce gamin me ment encore; il doit exister d'autres gourdes de ce type. Si je parviens à toutes les obtenir, ma maîtrise de la création de pilules passera à un autre niveau. »
+L'Ancien Sun regarda les patates douces restantes, puis la gourde. Il réfléchit un instant: « Bien que je convoite cette gourde, voler le trésor d'un disciple honorifique pour ensuite l'expulser serait trop indigne. Si la nouvelle se répandait, ma réputation serait ruinée. Et si les autres membres de la secte découvraient l'existence de cette gourde, je ne pourrais empêcher personne de s'en emparer. Ce gamin me ment encore; il doit exister d'autres gourdes de ce type. Si je parviens à toutes les obtenir, ma culture fera un bond en avant grâce aux pilules que je raffinerai. »
 
 Sur cette pensée, il changea soudainement d'expression et s'exclama: « Tu as vraiment eu une vie difficile, petit. J'ignorais que tu devais rester une semaine entière sans manger. Maintenant que je suis au courant, je vais régler cela. Même les disciples honorifiques restent des disciples de la Secte Heng Yue! »
 

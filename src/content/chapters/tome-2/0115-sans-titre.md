@@ -12,9 +12,9 @@ Teng Huayuan était sur le point de se téléporter lorsqu'il s'arrêta brusquem
 
 Le visage de Teng Huayuan devint d'une noirceur extrême. De sa main droite, il écrasa une douzaine d'âmes avant de retrouver son calme.
 
-Dès l'apparition du disciple, celui-ci courut précipitamment vers Teng Huayuan et le vieillard vêtu de noir. Il s'agenouilla au sol et, la voix tremblante de terreur, s'exclama: « Ils sont morts... ils sont tous morts! Même le frère aîné Wang Peng est mort! J'étais loin, alors j'ai pu m'échapper... »
+Dès l'apparition du disciple, celui-ci courut précipitamment vers Teng Huayuan et le vieillard au visage sombre. Il s'agenouilla au sol et, la voix tremblante de terreur, s'exclama: « Ancêtre, ils sont morts... ils sont tous morts! Même le frère aîné Wang Peng est mort! J'étais loin, alors j'ai pu m'échapper... »
 
-Le vieillard à la robe noire fixa le disciple. Soudain, il frappa le jeune homme de la paume sur le sommet du crâne et lâcha: « S'ils sont tous morts, tu ne devrais pas être le seul survivant. » Sur ces mots, la tête du disciple vola en éclats comme une pastèque.
+Le vieillard au visage sombre fixa le disciple. Soudain, il frappa le jeune homme de la paume sur le sommet du crâne et lâcha: « S'ils sont tous morts, tu ne devrais pas être le seul survivant. » Sur ces mots, la tête du disciple vola en éclats comme une pastèque.
 
 Une brise légère souffla et l'odeur du sang se propagea. Les petites sectes alentour tombèrent dans un silence de mort, leurs regards tournés vers le vieillard. Plus personne n'osait mentionner la Vallée Wu Feng.
 
@@ -34,7 +34,7 @@ Un éclat glacial passa dans les yeux du jeune homme. Au moment où la main de T
 
 Tous les disciples sortis de la vallée s'emportèrent dans un tumulte d'indignation. À l'intérieur de la vallée, ils avaient tous tremblé devant Wang Lin et avaient souffert pendant trois mois à cause de lui; mais maintenant que leurs aînés étaient là, ils retrouvaient leur courage.
 
-Teng Huayuan n'avait pas imaginé que Wang Lin puisse se téléporter et fut déconcerté. C'était ainsi qu'il avait réussi à s'échapper. Le visage sombre, il hurla: « Wang Lin, je veux voir jusqu'où tu pourras fuir! »
+Teng Huayuan n'avait pas imaginé que Wang Lin puisse se téléporter et, pris de court, laissa sa cible lui échapper. Mais aussitôt, le visage sombre, il hurla: « Wang Lin, je veux voir jusqu'où tu pourras fuir! »
 
 À cet instant précis, un cri retentit du côté de la Secte He Huan.
 
@@ -42,7 +42,7 @@ Teng Huayuan n'avait pas imaginé que Wang Lin puisse se téléporter et fut dé
 
 À ces mots, tous les cultivateurs présents commencèrent à s'agiter en fixant le jeune homme. Même Lin Yi montra un intérêt certain; il afficha une expression de surprise avant de ricaner en secouant silencieusement la tête.
 
-Teng Huayuan tonna: « Chers compagnons de culture, cet individu a tué mon arrière-arrière-petit-fils, nous avons donc un différend personnel. Aujourd'hui, je vais l'exécuter et je ne prendrai rien de ses possessions, mais que celui qui ose s'interposer ne me reproche pas de faire de lui mon ennemi! »
+Teng Huayuan tonna: « Chers compagnons de culture, cet individu a tué mon arrière-arrière-petit-fils, nous avons donc une haine irréconciliable. Aujourd'hui, je vais l'exécuter et je ne prendrai rien de ses possessions, mais que celui qui ose s'interposer ne me reproche pas de faire de lui mon ennemi! »
 
 Lin Yi éclata soudain de rire: « Très bien, cultivateurs de Zhao, ne vous mêlez pas de cela. Je veux voir si toi, Teng Huayuan, tu oseras vraiment le tuer. »
 
@@ -66,12 +66,12 @@ Et ce n'était pas fini. Lorsqu'il atteignit le stade final de la Formation du N
 
 Le silence qui suivit était terrifiant. Ils n'auraient jamais imaginé voir le niveau de culture d'un individu bondir du début de l'Établissement des Fondations au début de l'Âme Naissante.
 
-Mais la progression ne s'arrêta pas là. Le jeune homme leva la main et sa culture grimpa jusqu'au milieu du stade de l'Âme Naissante. Ce ne fut qu'une fois ce niveau atteint qu'il cessa enfin.
+Mais la progression ne s'arrêta pas là. Le jeune homme leva les deux mains, le corps bien droit, et sa culture grimpa jusqu'au milieu du stade de l'Âme Naissante. Ce ne fut qu'une fois ce niveau atteint qu'il cessa enfin.
 
-À cet instant, le visage du jeune homme était empreint d'une aura maléfique, ses cheveux flottaient de manière surnaturelle, et il pointa Teng Huayuan du doigt en demandant: « Oses-tu te mesurer à moi? »
+À cet instant, le visage du jeune homme était empreint d'une aura maléfique, ses cheveux flottaient de manière surnaturelle, et il pointa Teng Huayuan du doigt en articulant un mot à la fois: « Oses-tu te mesurer à moi? »
 
 Pour tous les présents, la pression exercée par ce jeune homme était désormais celle, absolument authentique, d'un véritable expert. Même les cultivateurs au stade de l'Âme Naissante affichaient une incrédulité totale dans leurs yeux.
 
-Lin Yi se frotta le menton charnu. Il esquissa un sourire ténu en observant le jeune homme et pensa secrètement: « De quelle famille provient ce petit morveux qui vient jouer sur mon territoire? Il possède la Perle des Mille Illusions d'un pays de rang 5. Je suppose que ses soutiens ne sont pas négligeables. Ces trésors d'illusion sont rares, même à la Cité des Illusions. Je me souviens que cette perle se divise en trois rangs, allant de l'Âme Naissante à la Transformation de l'Âme. Plus la perle est puissante, plus le statut de son propriétaire est élevé. »
+Lin Yi se frotta le menton charnu. Il esquissa un sourire ténu en observant le jeune homme et pensa secrètement: « De quelle famille provient ce petit morveux qui vient jouer sur mon territoire? Il possède la Métamorphose des Mille Illusions de la Cité des Illusions d'un pays de rang 5. Je suppose que ses soutiens ne sont pas négligeables. Ces trésors des Mille Illusions sont rares, même à la Cité des Illusions. Je me souviens qu'il se divise en trois rangs, allant de l'Âme Naissante à la Transformation de l'Âme. Plus le rang est élevé, plus le statut de son propriétaire est noble. »
 
 Le visage de Teng Huayuan était extrêmement disgracieux alors qu'il fixait le jeune homme dans le ciel. Il comprit soudainement le sens des paroles de Lin Yi. Après une brève hésitation, il lâcha un reniflement froid: « Wang Lin, je ne crois pas que tu sois au stade de l'Âme Naissante. Comment aurais-tu pu pénétrer dans la Vallée Jue Ming? Si tu es en dessous du stade de la Formation de l'Âme, c'est impossible! »

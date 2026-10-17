@@ -40,7 +40,7 @@ Yun Fei avait alors pesé le pour et le contre. Si cet homme avait un cultivateu
 
 C'est ce matin-là qu'un cultivateur au stade intermédiaire de la Formation du Noyau lui avait remis un morceau de jade contenant l'enregistrement détaillé de tous les effets de cette restriction. Elle en était restée stupéfaite.
 
-Il faut dire que, bien qu'elle ait consulté de nombreux experts, elle n'avait jamais détaillé les effets de la restriction. Les seuls capables d'en connaître les moindres détails étaient celui qui l'avait posée et celui qui pourrait la briser.
+Il faut dire que, bien qu'elle ait consulté de nombreux experts, elle n'avait jamais détaillé les effets de la restriction. Les seuls capables d'en connaître les moindres détails étaient celui qui l'avait posée et elle-même.
 
 En voyant ce jade, le cœur hésitant de Yun Fei s'était raffermi; elle avait décidé de tenter sa chance. Et c'est ainsi qu'ils en étaient arrivés là.
 
@@ -50,11 +50,11 @@ En voyant ce jade, le cœur hésitant de Yun Fei s'était raffermi; elle avait d
 
 Yun Fei réprima sa peur et commença l'ascension des marches.
 
-Bientôt, elle atteignit le pavillon au sommet. L'homme à l'intérieur était un quadragénaire vêtu d'une robe. Il était très beau et dégageait une aura de puissance propre aux grandes familles. Dès qu'il vit Yun Fei, ses yeux s'illuminèrent.
+Bientôt, elle atteignit le pavillon au sommet. L'occupant était un homme d'âge mûr vêtu d'une robe de brocart. Il était très beau et dégageait une aura de puissance propre aux grandes familles. Dès qu'il vit Yun Fei, ses yeux s'illuminèrent.
 
 L'homme pensa: « C'est bel et bien une restriction antique! », mais son expression resta impassible lorsqu'il dit d'un ton neutre: « Je peux lever la restriction, mais tu dois me dire qui l'a placée sur toi. »
 
-Yun Fei hésita un instant et murmura: « Aîné, la junior ne peut vous le dire. Pourrait-on plutôt échanger une cargaison de pilules? »
+Yun Fei hésita un instant et murmura: « Aîné, la junior ne peut vous le dire. Pourrait-on plutôt échanger une fournée de pilules? »
 
 L'homme réfléchit un moment avant de secouer la tête. Il déclara: « Si tu ne me le dis pas, je ne lèverai rien. Sache qu'au sein de la Mer des Démons, peu peuvent briser cette restriction. Réfléchis-y. »
 
@@ -72,15 +72,15 @@ Ses yeux brillèrent d'avidité. Il se mordit le doigt et laissa tomber une gout
 
 Mais un changement soudain survint. Une ombre jaillit des cheveux de Yun Fei, révélant la tête d'une bête. Elle passa devant le front de la jeune femme et engloutit la lumière noire et blanche.
 
-Puis, l'ombre se tourna vers Yun Fei et aspira une grande bouffée d'air. Les yeux de Yun Fei s'égarèrent, injectés de sang, tandis que son âme était aspirée dans la gueule de la bête.
+Puis, l'ombre se tourna vers Yun Fei et aspira une grande bouffée d'air. Les yeux de Yun Fei jaillirent de leurs orbites, injectés de sang, tandis que son âme était aspirée dans la gueule de la bête.
 
 Tout cela se produisit à une vitesse fulgurante, presque en un clin d'œil. L'âme de Yun Fei venait d'être capturée.
 
 En vérité, dès qu'elle avait foulé le chemin en forme de dragon, son destin était scellé. Seule la mort l'attendait. Si elle avait écouté Wang Lin et attendu patiemment qu'il quitte la Mer des Démons, elle aurait eu une chance de survivre.
 
-Simultanément, le corps de la bête s'étendit pour envelopper celui de Yun Fei. Un sac de rangement, un fourneau à pilules et un noyau doré furent emportés par la créature alors qu'elle s'apprêtait à partir.
+Simultanément, le corps de la bête s'étendit pour envelopper celui de Yun Fei. Un sac de rangement, un fourneau à pilules et un noyau doré d'un or pâle furent emportés par la créature alors qu'elle s'apprêtait à partir.
 
-En voyant la bête, l'expression de l'homme changea radicalement. Il ignorait tout de cette créature capable d'une telle capacité étrange à dévorer les âmes. Il soupçonna que cette bête était là depuis toujours et qu'elle possédait un maître, ce qui le rendit très nerveux.
+En voyant la bête, l'expression de l'homme changea radicalement. Il ignorait tout de cette créature capable d'une telle capacité étrange à dévorer les âmes. Il se demanda si cette bête vivait cachée là depuis toujours ou si elle avait un maître, ce qui le rendit très nerveux.
 
 Mais bientôt, il retrouva son calme. Voyant la bête s'apprêter à s'enfuir, son regard devint glacial. D'un geste de la main, il fit en sorte que le brouillard formant le chemin dragonique encercle la créature.
 
@@ -90,13 +90,13 @@ Dans un fracas sourd, la brume noire se mit à trembler et se mua en une armée 
 
 Le second démon fut bloqué par le brouillard noir devant lui, tandis que les soldats noirs approchaient par l'arrière. De multiples lueurs colorées jaillirent des armes des soldats et tombèrent en pluie sur le démon.
 
-Mais cette bête était le second démon de Wang Lin. Bien qu'elle ne fût pas extrêmement puissante, elle possédait des capacités d'évasion prodigieuses; même lors de sa première capture par Wang Lin, elle avait failli s'échapper.
+Mais cette bête était le second démon de Wang Lin. Sa puissance n'était peut-être pas très grande, mais sa férocité dépassait l'imagination; lorsque Wang Lin l'avait soumise, il avait lui-même failli subir un retour de flamme, ce qui en dit long.
 
-Le second démon n'hésita pas et engloutit le noyau de Yun Fei. Il doubla soudainement de volume, puis se divisa en dix, puis en cent. Soudain, cent bêtes se retrouvèrent piégées dans le pavillon.
+Le second démon n'hésita pas et engloutit le noyau de Yun Fei. Il grossit aussitôt d'un cran, puis se divisa en dix, puis en cent. Soudain, cent bêtes se pressèrent au sein du cercle d'encerclement.
 
 Les cent créatures poussèrent des cris perçants dont les ondes de choc ondulèrent dans les environs. Puis, toutes battirent des ailes à l'unisson pour créer un puissant tourbillon et s'en servir pour charger vers la sortie.
 
-Grâce aux ondes sonores qui ouvrirent la voie et au tourbillon qui suivait, le brouillard bloquant le passage perdit sa cohésion physique et s'effondra. Même certains soldats qui poursuivaient la bête furent détruits. Le tourbillon balaya ensuite totalement les restes de la brume effondrée.
+Grâce aux ondes sonores qui ouvrirent la voie et au tourbillon qui suivait, le brouillard bloquant le passage perdit sa cohésion physique et s'effondra. Même les soldats qui chargeaient virent leur élan brisé. Le tourbillon balaya ensuite totalement les restes de la brume effondrée.
 
 L'homme d'âge moyen observa le tourbillon avec un intérêt grandissant. Il fit bouger sa main droite et frappa le tambour à nouveau.
 
@@ -104,13 +104,13 @@ Boum, boum, boum, boum. Quatre coups résonnèrent en série, et la brume s'agit
 
 « Je me moque de savoir qui est ton maître. Aucune bête spirituelle qui attire mon attention n'a jamais réussi à s'échapper. Je sais que tu peux me comprendre, alors écoute bien. Jusqu'ici, je ne cherchais qu'à te bloquer et non à t'attaquer, mais dans trois respirations, si tu ne m'obéis pas, je passerai à l'offensive! »
 
-Le second démon laissa échapper un rire. Les corps qu'il avait créés fusionnèrent à nouveau au sein du tourbillon, et il lança soudainement une attaque d'âme contre l'homme.
+Le second démon poussa un hurlement strident. Les corps qu'il avait créés fusionnèrent à nouveau au sein du tourbillon, et il lança soudainement une attaque d'âme contre l'homme.
 
 L'attaque spirituelle, semblable à un éclair, perça tous les obstacles sur son chemin. Même le brouillard noir se dispersa instantanément au contact de la foudre. En un clin d'œil, elle atteignit l'homme.
 
-Le visage de ce dernier changea brusquement. Il recula, se mordit les lèvres et cracha du sang frais. Lorsque l'attaque spirituelle frappa le sang, un sifflement se fit entendre et l'assaut fut légèrement freiné.
+Le visage de ce dernier changea brusquement. Il recula, se mordit le bout de la langue et cracha du sang frais. Lorsque l'attaque spirituelle frappa le sang, un sifflement se fit entendre et l'assaut fut légèrement freiné.
 
-Simultanément, l'homme sortit un morceau de bois noir de son sac de rangement. Le visage marqué par la peur, il rugit: « Absorbe! »
+Simultanément, l'homme sortit un morceau de bois noir de son sac de rangement. Le visage crispé et féroce, il rugit: « Absorbe! »
 
 À cet instant, l'attaque spirituelle fut irrésistiblement attirée vers le bois noir, mais juste au moment où elle allait percuter l'objet, le second démon poussa un rugissement et l'attaque se divisa en cent filaments qui se retirèrent promptement.
 
@@ -122,15 +122,15 @@ Dès l'apparition de la voix, un bourdonnement se fit entendre. L'homme leva rap
 
 Les bêtes formées par le brouillard noir étaient sur le point d'attaquer le tourbillon lorsqu'un cri retentit de son centre, suivi d'une explosion de vent qui pulvérisa toutes les créatures de brume.
 
-Pendant ce temps, le second démon poussa un rire et s'élança, fusionnant avec le tourbillon. Furieux, il prit le contrôle du vortex et se mit à ravager le brouillard environnant dans une rage dévastatrice.
+Pendant ce temps, le second démon poussa un cri et s'élança, fusionnant avec le tourbillon. Furieux, il prit le contrôle du vortex et se mit à ravager le brouillard environnant dans une rage dévastatrice.
 
 L'homme ne daigna même pas regarder le tourbillon, fixant l'horizon d'un regard prudent. Il vit un homme aux cheveux blancs, vêtu de noir, s'avancer lentement vers lui. Bien que ses pas semblassent lents, il se déplaçait en réalité avec une rapidité fulgurante. En quelques battements de cils, l'homme apparut au sommet de la montagne.
 
 Les pupilles de l'homme se contractèrent. Il frappa à nouveau le tambour et tout le brouillard environnant se condensa rapidement en huit sphères de brume noire qui flottèrent autour de lui.
 
-Les yeux de Qiu Siping s'illuminèrent. Il dit calmement: « Vous devez être celui qui maîtrise les restrictions antiques. »
+Le regard de Qiu Siping vacilla. Il dit calmement: « Vous devez être celui qui maîtrise les restrictions antiques. »
 
-L'homme aux cheveux blancs était Wang Lin. D'un geste de la main, il fit sortir du gigantesque tourbillon le sac de rangement et le fourneau à pilules. Sans les regarder, il les saisit fermement. Ce n'est qu'une fois ces objets sécurisés qu'il daigna poser son regard sur l'homme. Wang Lin vit que celui-ci avait déjà atteint le sommet du stade avancé de la Formation du Noyau et n'était qu'à un pas du stade de l'Âme Naissante.
+L'homme aux cheveux blancs était Wang Lin. D'un geste de la main, il fit sortir du gigantesque tourbillon le sac de rangement et le fourneau à pilules. Il les rangea dans son sein sans les examiner, et ce n'est qu'ensuite qu'il daigna poser son regard sur l'homme. Wang Lin vit que celui-ci avait déjà atteint le sommet du stade avancé de la Formation du Noyau et n'était qu'à un pas du stade de l'Âme Naissante.
 
 Mais tant que l'adversaire n'était pas un cultivateur au stade de l'Âme Naissante, Wang Lin n'aurait aucun mal à l'abattre. Son regard devint glacial: « Je suis le maître de cette bête. Vous disiez vouloir la voler, n'est-ce pas? Eh bien, essayez donc. Je vous accorde une chance. »
 
@@ -140,7 +140,7 @@ Qiu Siping fronça les sourcils. Il percevait que Wang Lin était également au 
 
 Wang Lin fit un geste calme pour faire revenir le second démon vers lui. Soudain, des éclairs rouges jaillirent de ses yeux tandis que son âme du Royaume Ji se manifestait. Une force de suppression colossale envahit l'espace.
 
-Qiu Siping allait répliquer quand il vit l'éclat rouge dans les yeux de Wang Lin. Son cœur sombra. Il n'aurait jamais cru que Wang Lin s'empêcherait de parler pour passer directement à l'assassinat. La colère l'envahit: Wang Lin avait le même niveau de culture que lui; même s'il possédait un trésor magique, il en possédait lui aussi.
+Qiu Siping allait répliquer quand il vit l'éclat rouge dans les yeux de Wang Lin. Son cœur sombra. Il n'aurait jamais cru que Wang Lin n'attendrait même pas qu'il ait fini de parler pour tenter de le tuer d'emblée. La colère l'envahit: Wang Lin avait le même niveau de culture que lui; même s'il possédait un trésor magique, il en possédait lui aussi.
 
 Il poussa un grognement, recula prestement et agita la main pour que les huit sphères de brouillard se déploient en une épaisse couche protectrice. Le regard de Qiu Siping devint froid: puisque Wang Lin refusait le dialogue, il allait combattre d'abord et discuter ensuite.
 
@@ -152,11 +152,11 @@ L'expression de Qiu Siping changea brusquement. Tout en reculant, il forma un sc
 
 Une ombre de mort, qu'il n'avait pas ressentie depuis longtemps, plana sur son cœur. Sans un mot, il sortit le morceau de bois noir utilisé plus tôt. Dès qu'il le saisit, l'âme du Royaume Ji de Wang Lin percuta l'objet.
 
-Des craquements sinistres se firent entendre et, dans un fracas, le bois explosa. L'éclair rouge quitta le morceau de bois pour pénétrer directement dans le corps de Qiu Siping.
+Des craquements se firent entendre et, dans un fracas, le bois explosa. L'éclair rouge quitta le morceau de bois pour pénétrer directement dans le corps de Qiu Siping.
 
 Le corps de ce dernier trembla et ses yeux devinrent troubles, mais après avoir recraché du sang, son regard redevint clair, bien que désormais empreint d'une terreur pure. Sans dire un mot, il fit volte-face pour s'enfuir.
 
-Wang Lin laissa échapper un son de surprise. Cet homme n'était pas mort sous l'assaut de son âme du Royaume Ji. Cela le surprit réellement, car la seule autre fois où cela était arrivé, c'était hors de la Mer des Démons face à un individu nommé Shang Guan Mo, qui avait utilisé un morceau de jade mystérieux pour s'échapper.
+Wang Lin laissa échapper un son de surprise. Cet homme n'était pas mort sous l'assaut de son âme du Royaume Ji. Cela le surprit réellement, car la seule autre fois où cela était arrivé, c'était à la périphérie de la Mer des Démons face à un individu nommé Shang Guan Mo, qui avait utilisé un morceau de jade mystérieux pour s'échapper.
 
 Les yeux de Wang Lin brillèrent d'intérêt. Il poursuivit Qiu Siping comme l'éclair et apparut devant lui.
 
@@ -180,4 +180,4 @@ Qiu Siping s'empressa de continuer: « À moins de disposer de pilules pour aide
 
 Wang Lin jeta un coup d'œil vers lui: « Deuxième phrase! »
 
-« Je n'ai pas de pilules, mais je connais quelque chose de bien supérieur. Si l'on ingère cela, atteindre le stade de l'Âme Naissante devient une formalité. Ce dont je parle, c'est l'Âme Naissante d'un cultivateur au stade de l'Âme Naissante! Je connais un endroit à Gui Xi où résident au moins deux cultivateurs de ce rang! » conclut Qiu Siping d'un seul trait.
+« Je n'ai pas de pilules, mais je connais quelque chose de bien supérieur. Si l'on ingère cela, atteindre le stade de l'Âme Naissante devient une formalité. Ce dont je parle, c'est l'Âme Naissante d'un cultivateur au stade de l'Âme Naissante! Je connais un endroit où se trouvent au moins deux Âmes Naissantes en Gui Xi! » conclut Qiu Siping d'un seul trait.

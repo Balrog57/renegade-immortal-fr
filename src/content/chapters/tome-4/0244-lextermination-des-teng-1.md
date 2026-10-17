@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 244 - Exterminating Teng (1)
 slug: lextermination-des-teng-1
 ---
-Non seulement Wang Lin n'avait pas eu à utiliser la foudre de la rétribution divine, mais il avait également obtenu une goutte de sang du Dieu Ancien. Bien que cette goutte ne fût guère pure et qu'elle disparût après une seule utilisation, elle était néanmoins suffisante pour lui sauver la vie une fois.
+Non seulement Wang Lin n'avait pas eu à utiliser le fil de rétribution divine, mais il avait également obtenu une goutte de sang du Dieu Ancien. Bien que cette goutte ne fût guère pure et qu'elle disparût après une seule utilisation, elle était néanmoins suffisante pour lui sauver la vie une fois.
 
 Wang Lin agita la main et le drapeau de restriction lui revint. Il observa l'objet et décida qu'une fois l'affaire avec la famille Teng réglée, il devrait trouver un lieu capable de résister à la foudre de la rétribution divine afin d'y placer la dernière restriction sur le drapeau. Ainsi, celui-ci atteindrait son premier niveau de perfectionnement et sa puissance augmenterait considérablement; il ne serait plus comme aujourd'hui, où il n'avait presque aucun effet sur l'ennemi.
 
@@ -28,7 +28,7 @@ Wang Lin réfléchit un instant, puis sortit trois sacs de rangement. Le sentime
 
 Par conséquent, les trésors magiques devenaient cruciaux. Il ne voulait pas placer tous ses espoirs sur son Royaume Ji, car si celui-ci devenait un jour inefficace, tout serait vain.
 
-Fixant les trois sacs de rangement, Wang Lin prit une profonde inspiration. Il agita le drapeau de restriction qui enveloppa la zone d'une fumée noire. Puis, il pointa sa tempe et les deux démons sortirent pour assurer sa garde.
+Fixant les trois sacs de rangement, Wang Lin prit une profonde inspiration. Il agita le drapeau de restriction qui enveloppa la zone d'une fumée noire. Puis, il pointa le milieu de son front et les deux démons sortirent pour assurer sa garde.
 
 Après avoir hésité un instant, il ne fit pas appel à la marionnette. Celle-ci avait subi des dommages lors de l'affrontement contre Teng Yi et n'était plus apte à servir de garde.
 
@@ -58,7 +58,7 @@ Longtemps après, la lumière disparut lentement. Wang Lin fixa les deux gaines;
 
 Il les observa encore un moment avant de les ranger. Il frappa ensuite le sac de l'Empereur Ancien, qui se changea en poussière.
 
-Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: ne savait-il pas s'il devait s'en réjouir ou se sentir impuissant?
+Wang Lin soupira. Après avoir déployé tant d'efforts pour ouvrir ce sac, n'y trouver qu'une telle chose le laissait perplexe: il ne savait s'il devait s'en réjouir ou se sentir impuissant.
 
 Il hésita, puis reporta son attention sur les deux autres sacs de rangement. L'un appartenait à la mystérieuse momie du temple de bataille de Huo Fen.
 

@@ -30,7 +30,7 @@ Wang Lin devait tuer cet ancêtre qui savait qu'il possédait la Perle Défiant 
 
 Le ciel entier sembla être déplacé par une main gigantesque, puis un vortex colossal apparut soudainement au-dessus de l'ancêtre du Clan des Démons Géants.
 
-Cette scène était identique à celle que Wang Lin avait vue lorsqu'il l'avait utilisé contre Sun Tai.
+Cette scène était identique à celle que Wang Lin avait vue lorsque l'ancêtre l'avait utilisé contre Sun Tai.
 
 À cet instant, d'innombrables fragments d'âmes enveloppèrent l'ancêtre du Clan des Démons Géants, s'acharnant à le dévorer. L'ancêtre laissa échapper un rire sinistre.
 
@@ -50,7 +50,7 @@ Le regard de Wang Lin demeura calme. Alors qu'il était aspiré par le vortex, i
 
 L'ancêtre de cette génération du Clan des Démons Géants était mort!
 
-Cependant, le pouvoir de lignée avait déjà été activé et le corps de Wang Lin fut entraîné. Au moment où il pénétra dans le vortex, il tendit sa main droite, et tous les fragments d'âmes se lient rapidement pour former une chaîne afin de l'empêcher d'être aspiré.
+Cependant, le pouvoir de lignée avait déjà été activé et le corps de Wang Lin fut entraîné. Au moment où il pénétra dans le vortex, il tendit sa main droite, et tous les fragments d'âmes se lièrent rapidement pour former une chaîne afin de l'empêcher d'être aspiré.
 
 Profitant du répit offert par cette chaîne d'âmes, il activa la formation qu'il avait préparée à l'avance. Sentant l'aspiration s'intensifier, il rappela promptement tous les fragments d'âmes et, bien entendu, n'oublia pas le sac de l'ancêtre du Clan des Démons Géants. La force de succion augmenta encore, et Wang Lin comprit qu'il ne pouvait plus résister.
 
@@ -128,12 +128,12 @@ Il y avait naturellement quelques artefacts, mais bien que puissants, ils n'avai
 
 Cependant, deux objets captèrent l'attention de Wang Lin.
 
-L'un était une bouteille de jade rouge à moitié vide contenant un liquide semblable à du sang. En le sentant, Wang Lin confirma qu'il s'agissait bien de sang. Cette substance lui était étrangement familière.
+L'un était une bouteille de jade rouge à moitié vide contenant un liquide semblable à du sang. En le sentant, Wang Lin confirma qu'il s'agissait bien de sang. Cette substance lui était étrangement familière. La bouteille était rangée à part, dans un coin du sac.
 
 En tenant la bouteille, il se souvint soudainement: lors de l'extermination de la famille Teng, il avait trouvé une fiole similaire sur Teng Yi.
 
 « Ce sang contient une trace du lignage des anciens dieux. À l'époque, j'avais utilisé cette bouteille pour activer une capacité d'ancien dieu! » Les yeux de Wang Lin s'illuminèrent.
 
-« Bien que mon corps originel soit devenu un ancien dieu par la pratique de la tactique de l'ancien dieu, cela reposait entièrement sur ma propre culture. À l'époque, je n'avais obtenu que l'héritage des connaissances et non celui du pouvoir; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine! »
+« Bien que mon corps originel soit devenu un ancien dieu par la pratique de la tactique de l'ancien dieu, cela reposait entièrement sur ma propre culture. À l'époque, je n'avais obtenu que l'héritage des souvenirs de l'ancien dieu Tu Si et non celui du pouvoir; certaines capacités me manquent donc encore. C'est un atout précieux, que je laisse mon corps originel l'absorber ou que je m'en serve pour déclencher une capacité. Quel que soit le prix de cette bataille, l'obtention de ceci en valait la peine! »
 
 Wang Lin prit une profonde inspiration et rangea soigneusement la petite bouteille dans son sac de rangement.

@@ -96,7 +96,7 @@ Son chemin semblait empreint d'émotion, mais était impitoyable; et pourtant, a
 
 C'est pourquoi sa réplique fut une véritable contre-attaque. D'abord, en rappelant la limite des cent ans. Ensuite, en exposant la nature impitoyable de Zhou Wutai et en invoquant la tristesse future de ce dernier. Simultanément, il semait une graine de doute dans le cœur du petit cultivateur.
 
-Zhou Wutai esquissa un sourire amer, regarda Wang Lin, puis se leva. Il joignit les mains, hésita un instant, avant de dire à Xu Tao: « Dites à votre prince de livrer l'objet au temple sous trois jours, et je laisserai passer cela. » Sur ces mots, il jeta un dernier regard à Wang Lin avant de tourner le dos et de partir.
+Zhou Wutai esquissa un sourire amer, regarda Wang Lin, puis se leva. Il joignit les mains, hésita un instant, avant de dire à Xu Tao: « Dites à votre prince de livrer le Ding de Pluie au temple sous trois jours, et je laisserai passer cela. » Sur ces mots, il jeta un dernier regard à Wang Lin avant de tourner le dos et de partir.
 
 Le petit cultivateur, totalement déconcerté, suivit précipitamment son maître. Il avait le sentiment d'avoir vécu une journée extrêmement étrange: son maître n'avait pas agi normalement et ne s'était pas vengé pour lui.
 
@@ -116,6 +116,6 @@ Il observa alors attentivement et constata que rien n'était arrivé à la bouti
 
 Même son Altesse Royale lui avait ordonné d'offrir des cadeaux à Wang Lin chaque année lors du Nouvel An. Comme il le faisait depuis plus de dix ans, lorsque le danger menaçait, la première personne à laquelle il pensait était Wang Lin.
 
-Mais il n'aurait jamais imaginé que Wang Lin soit assez puissant pour forcer celui qui avait contraint le prince à se cacher dans le palais et les immortèles eux-mêmes à renoncer si facilement.
+Mais il n'aurait jamais imaginé que Wang Lin soit assez puissant pour que celui qui avait empêché le roi de se montrer, forcé les immortels à reculer et contraint le prince à se cacher dans le palais renonce si facilement à sa poursuite en quelques mots.
 
 Il faut dire qu'il y a quelques jours à peine, Son Altesse aurait souhaité pouvoir lui céder le Ding de Pluie pour sauver sa propre vie.

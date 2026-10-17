@@ -10,7 +10,7 @@ Aux yeux de Zhan Bai, son voyage vers le Royaume Céleste n'était qu'une source
 
 « Je ne pensais pas que Ceng Niu puisse arracher un bras à Papillon Rouge. Désormais, cet homme est célèbre dans tout Suzaku. Humph, cette renommée aurait dû être la mienne. Attends un peu, Ceng Niu, un jour nous nous affronterons! »
 
-Zhan Bai ricana, puis fronça bientôt les sourcils en marmonnant: « La grenouille tonitruante de Ceng Niu est l'ennemie naturelle de mes insectes, ce sera donc un peu difficile. » Ses yeux s'illuminèrent et il prit une décision. Cette fois, il devait s'enfoncer plus profondément dans la Vallée Désolée des Neuf Fantômes pour obtenir l'insecte roi. Avec l'insecte roi, même la grenouille tonitruante perdrait de son efficacité.
+Zhan Bai ricana, puis fronça bientôt les sourcils en marmonnant: « La grenouille tonitruante de Ceng Niu est l'ennemie naturelle de mes insectes, ce sera donc un peu difficile. » Ses yeux s'illuminèrent et il prit une décision. Cette fois, il devait s'enfoncer plus profondément dans la Vallée Désolée des Neuf Fantômes pour obtenir le Roi des Insectes. Avec le Roi des Insectes, même la grenouille tonitruante perdrait de son efficacité.
 
 « Il est plus prudent de ne pas provoquer Ceng Niu avant cela. Si cet homme a pu arracher un bras à Papillon Rouge, alors son niveau de culture ne doit pas être réellement celui d'un début de stade de Formation de l'Âme comme il le laisse paraître. Cependant, Suzaku est vaste. Même si je veux m'en prendre à lui, il sera difficile de le localiser. » Zhan Bai renifla. En un clin d'œil, il arriva devant la Secte du Ciel Nuageux.
 

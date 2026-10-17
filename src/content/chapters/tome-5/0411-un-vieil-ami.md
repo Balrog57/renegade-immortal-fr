@@ -26,7 +26,7 @@ Wang Zhuo laissa échapper un sourire amer en regardant un autre membre de sa se
 
 En un instant, la météorite disparut et un homme aux longs cheveux blancs apparut, parcourant la distance en quelques pas seulement.
 
-Les expressions des quatre membres du Clan changèrent radicalement. Ils réalisèrent que cet homme aux cheveux blancs dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans aux sept feuilles de leur propre clan.
+Les expressions des quatre membres du Clan changèrent radicalement. Ils réalisèrent que cet homme aux cheveux blancs dégageait une aura qui les faisait trembler; ils n'avaient ressenti un tel pouvoir que chez les chamans à sept feuilles ou plus de leur propre clan.
 
 « Transformation de l'Âme… » L'un des quatre membres du Clan Délaissé trembla et s'exclama. Sans la moindre hésitation, il fit demi-tour et s'enfuit. Les trois autres le suivirent précipitamment.
 
@@ -36,7 +36,7 @@ Tout s'était déroulé si vite que Wang Zhuo et ses compagnons restèrent total
 
 Wang Lin se tourna vers Wang Zhuo et sourit. « Wang Zhuo, me reconnaissez-vous? »
 
-« Aîné… vous… c'est vous… » Wang Zhuo fut stupéfait et reconnut immédiatement Wang Lin comme l'homme qui avait atteint le stade de la Formation de l'Âme à la Montagne Heng Yue.
+« Senior… vous… c'est vous… » Wang Zhuo fut stupéfait et reconnut immédiatement Wang Lin comme l'homme qui avait atteint le stade de la Formation de l'Âme à la Montagne Heng Yue.
 
 Wang Lin secoua la tête et dit: « Nous ne nous sommes pas vus depuis de nombreuses années et vous avez déjà atteint le stade avancé de la Formation du Noyau. C'est digne d'être célébré. Laissez faire, je vais vous aider à franchir le stade de l'Âme Naissante! » Sur ces mots, Wang Lin pointa le point entre les sourcils de Wang Zhuo.
 
@@ -80,7 +80,7 @@ Au sommet d'une montagne, Wang Zhuo s'éveilla lentement. Ses yeux étaient d'ab
 
 « Wang Zhuo. » Wang Lin se retourna et sourit.
 
-Wang Zhuo fixa Wang Lin tandis que les souvenirs du passé l'assaillaient, jusqu'à ce moment où sa femme mourut dans ses bras; il laissa alors échapper un soupir.
+Wang Zhuo fixa Wang Lin tandis que les souvenirs du passé l'assaillaient, jusqu'à ce moment où sa femme de sa vie passée mourut dans ses bras; il laissa alors échapper un soupir.
 
 « Merci… »
 
@@ -116,9 +116,9 @@ Wang Zhuo ajouta: « La rumeur dit que le Clan des Immortels Délaissés a envoy
 
 Wang Lin réfléchit. Il n'aurait jamais imaginé qu'en si peu de temps, un tel bouleversement puisse se produire.
 
-« La Secte du Affinement de l'Âme… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte du Affinement de l'Âme pour voir si les choses y avaient changé.
+« La Secte de l'Affinement de l'Âme… » Wang Lin prit une profonde inspiration. Il devait retourner rapidement à la Secte de l'Affinement de l'Âme pour voir si les choses y avaient changé.
 
-Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte du Affinement de l'Âme.
+Les informations de Wang Zhuo n'étaient que des rumeurs et non des faits avérés, il ne pouvait donc rien savoir de la Secte de l'Affinement de l'Âme.
 
 Wang Zhuo marqua une pause et demanda lentement: « Wang Lin, pouvez-vous retourner à Zhao et le sauver du péril? »
 
@@ -128,7 +128,7 @@ Planète Suzaku, pays de Zhao, une nuit pluvieuse.
 
 Une calèche galopait aux abords de la capitale de Zhao.
 
-Un homme robuste et vigoureux siégeait à l'avant de la calèche et faisait claquer son fouet. « Allez! Allez! » Il semblait très anxieux et ne cessait de regarder derrière lui.
+Un homme robuste et vigoureux au crâne rasé siégeait à l'avant de la calèche et faisait claquer son fouet. « Allez! Allez! » Il semblait très anxieux et ne cessait de regarder derrière lui.
 
 Les chevaux, sentant la morsure du fouet, hennissaient et accéléraient encore davantage.
 

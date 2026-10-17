@@ -64,7 +64,7 @@ Les yeux de Wang Lin s'illuminèrent. Sa main droite bougea, tissant de nombreus
 
 Au loin, le vieil homme frissonna. Il se dit que la montagne de l'Affinement de l'Âme venait d'accueillir une nouvelle entité qu'on ne pouvait point offenser.
 
-L'homme d'âge moyen poussa un rugissement de rage face à la destruction de sa demeure. Il s'élança dans un rayon de lumière rouge et, sans dire un mot, sortit un petit drapeau violet. Des centaines d'âmes s'en échappèrent aussitôt.
+L'homme d'âge moyen poussa un rugissement de rage face à la destruction de sa demeure. Il s'élança sous la forme d'un arc-en-ciel et, sans dire un mot, sortit un petit drapeau violet. Des centaines d'âmes s'en échappèrent aussitôt.
 
 Parmi ces âmes se trouvaient des hommes et des femmes. Elles poussèrent des cris stridents et chargèrent Wang Lin.
 
@@ -94,13 +94,13 @@ Wang Lin observa l'homme. Sans l'attaquer, il agita la main pour faire voler le 
 
 « C'est là la véritable méthode pour fabriquer les drapeaux de l'âme; cependant, elle semble incomplète... » Wang Lin rétracta son Sens Divin en fronçant les sourcils.
 
-L'une des femmes, vêtue d'une robe bleue, remarqua l'expression de Wang Lin et demanda: « Senior frère apprenti, avez-vous remarqué que la méthode semble incomplète? »
+L'une des femmes, vêtue d'une robe vert jade, remarqua l'expression de Wang Lin et demanda: « Senior frère apprenti, avez-vous remarqué que la méthode semble incomplète? »
 
 Wang Lin leva les yeux vers elles. Toutes deux étaient au stade intermédiaire de la Formation du Noyau.
 
 Il demanda: « Pourquoi en est-il ainsi? »
 
-La femme en robe bleue répondit promptement: « Vous devez être Qing Mu, le vainqueur de la récente compétition des disciples de la secte extérieure. Moi, votre sœur apprentie, je m'appelle Xu Yun. Xu Yun salue son senior frère apprenti. Quant à l'incomplétude du drapeau, c'est parce que la méthode est divisée en trois parties. Chaque partie correspond au nom des trois montagnes: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
+La femme en robe vert jade répondit promptement: « Vous devez être Qing Mu, le vainqueur de la récente compétition des disciples de la secte extérieure. Moi, votre sœur apprentie, je m'appelle Xu Yun. Xu Yun salue son senior frère apprenti. Quant à l'incomplétude du drapeau, c'est parce que la méthode est divisée en trois parties. Chaque partie correspond au nom des trois montagnes: l'Affinement de l'Âme, l'Extraction de l'Âme et le Scellement de l'Âme. »
 
 « En combinant les trois méthodes, vous obtiendrez la véritable technique de fabrication du drapeau de l'âme. »
 
@@ -130,7 +130,7 @@ Bien qu'il ne puisse plus absorber directement la puissance du filon comme autre
 
 Après s'être assis en position du lotus, il déploya son Sens Divin. Ce qu'il découvrit le stupéfia.
 
-Au plus profond du filon spirituel, une masse de gaz noirs bloquait tout Sens Divin. L'énergie spirituelle du filon était littéralement absorbée par cette brume noire.
+Au plus profond du filon spirituel, une masse de gaz noirs bloquait tout Sens Divin. L'énergie spirituelle du filon était lentement absorbée, en minces filaments, par cette brume noire.
 
 Le Sens Divin de Wang Lin atteignait la limite de ce gaz. Il percevait occasionnellement les hurlements d'âmes émanant de l'intérieur de cette masse obscure.
 

@@ -28,11 +28,11 @@ La nuit venue, Wang Lin se tenait devant la pièce de pierre, le regard tourné 
 
 À Zhao, dans les profondeurs de la montagne Heng Yue, un jeune homme aux cheveux roux et au visage aussi glacial qu'une glace éternelle ouvrit soudainement les yeux.
 
-Lorsqu'il ouvrit les yeux, tout le pays de Zhao trembla. C'était comme si une sorte de démon s'éveillait, terrassant chaque cultivateur de Zhao par sa présence.
+Lorsqu'il ouvrit les yeux, le tonnerre gronda soudain sur tout le pays de Zhao. C'était comme si une sorte de monstre venait de naître, et tous les cultivateurs furent secoués.
 
 Les yeux de son corps originel étaient empreints de froideur et de cruauté. Sur son front tourbillonnaient deux étoiles pourpres, et des éclairs violets enveloppaient son corps.
 
-Il tourna légèrement la tête. Son regard semblait pouvoir percer la terre alors qu'il fixait Chu. Il déchira le sol et s'enfonça dans les profondeurs souterraines de Chu.
+Il tourna légèrement la tête. Son regard semblait pouvoir percer la terre alors qu'il fixait Chu au loin. Il se leva lentement, déchira le sol d'une main et, depuis les profondeurs de la terre, se dirigea à grands pas vers Chu.
 
 Six mois passèrent rapidement.
 
@@ -48,11 +48,11 @@ Tenant la pilule, Wang Lin regarda Li Muwan, qui agonisait sur son lit de mort. 
 
 Au cours de ces dernières années, Wang Lin l'avait vue vieillir lentement, sa beauté s'étiolant peu à peu.
 
-Un chagrin infini emplissait la mer de son cœur. Cependant, cette mer était trop profonde, trop vaste. Finalement, elle se mua en deux courants de larmes.
+La poussière de sa vie passée et la terre de cette vie se mêlaient à un chagrin infini pour combler la mer de son cœur. Cependant, cette mer était trop profonde, trop vaste. Finalement, elle se mua en deux courants de larmes.
 
 Il avait emprunté le chemin qui défie les cieux et avait cultivé le domaine de la vie et de la mort. Sa vie fut faite de tourments, et bien que son cœur fût las, il continuait de croire. Pourtant, en cet instant, même si son expression restait immuable, son cœur vieillissait au rythme de la jeune fille devant lui.
 
-À ses yeux, l'âge de cette femme n'était qu'une illusion. À ses yeux, elle resterait à jamais telle qu'elle était dans la Mer des Démons, lorsqu'elle jouait de la cithare dans son pavillon, lorsqu'elle se tenait là à le regarder partir.
+À ses yeux, l'âge de cette femme n'était qu'une illusion. À ses yeux, elle resterait à jamais telle qu'elle était dans la Mer des Démons, lorsqu'elle jouait de la cithare dans son pavillon de Chu, lorsqu'elle se tenait là à le regarder partir.
 
 Wang Lin effleura doucement le visage de Li Muwan et glissa lentement la pilule dans sa bouche. La pilule fondit instantanément, et le visage de la jeune femme devint rouge.
 
@@ -66,7 +66,7 @@ La voix de Wang Lin parvint jusqu'à eux: « Prenez Ouyang Zi et attendez-moi da
 
 Tie Yan ne dit mot. Il saisit rapidement Ouyang Zi et partit avec Lu Fei. Ce n'est que lorsqu'ils furent à plus de cinquante kilomètres qu'ils se retournèrent pour regarder en arrière.
 
-Bien que la maison de pierre fût détruite, le corps de Li Muwan flottait toujours dans les airs. Des quantités immenses d'énergie spirituelle affluaient en elle, faisant rougir son visage. Lentement, un noyau doré commença à se former dans son corps.
+Bien que la maison de pierre fût détruite, le corps de Li Muwan flottait toujours dans les airs. Des quantités immenses d'énergie spirituelle affluaient en elle, faisant rougir son visage. Lentement, un noyau doré terne commença à se former dans son corps.
 
 Dès l'apparition du noyau doré, toute l'énergie spirituelle s'y précipita.
 
@@ -118,7 +118,7 @@ C'était comme si une main gigantesque parcourait le parchemin, créant des onde
 
 Dès l'apparition du parchemin, un rugissement tonitruant retentit dans tout Chu.
 
-Le corps de Li Muwan se décomposa rapidement et se changea en poussière en tombant au sol. Son Âme Naissante se dissipait également avec rapidité.
+Le corps de Li Muwan se changea très vite en ossements desséchés qui, tombant du ciel, se dispersèrent à l'horizon. Son Âme Naissante, elle aussi morte, commençait à se dissiper peu à peu.
 
 Cependant, alors que le parchemin de la vie et de la mort de Wang Lin couvrait le ciel, la vitesse de dissipation de son Âme Naissante ralentit.
 
@@ -126,7 +126,7 @@ Wang Lin chargea alors et apparut dans les airs. Il tendit la main vers le parch
 
 Une fois le parchemin déployé, une scène étrange se produisit. Des nuages rouges recouvraient le ciel, et deux lueurs terrifiantes apparurent au sein des volutes pourpres. Elles semblaient observer Wang Lin.
 
-Ce regard à la fois inconnu et familier fit trembler le corps de Wang Lin. Pourtant, il continua de fixer le ciel avec obstination. Derrière lui, l'Âme Naissante de Li Muwan était protégée par le parchemin.
+Ce regard à la fois inconnu et familier fit trembler le corps de Wang Lin. Pourtant, il continua de fixer le ciel avec obstination. Sous lui, l'Âme Naissante de Li Muwan était protégée par le parchemin.
 
 Wang Lin utilisait son propre domaine de la vie et de la mort pour empêcher l'Âme Naissante de Li Muwan de se dissiper.
 
@@ -144,7 +144,7 @@ Les yeux de Wang Lin s'illuminèrent. Il leva la tête et percuta la main gigant
 
 Bang!
 
-L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps sur environ 3,3 mètres. Cependant, il la ramena promptement en lui et déploya son Sens Divin. Il cherchait quelque chose.
+L'âme originelle de Wang Lin fut violemment secouée. Elle fut expulsée de son corps sur environ 3,3 mètres. Cependant, il la ramena promptement en lui. Un filet de sang coula au coin de ses lèvres alors qu'il filait au loin, et il déploya son Sens Divin avec frénésie. Il cherchait quelque chose.
 
 La main géante se rétracta et les deux yeux au sein des nuages rouges réapparurent pour fixer le parchemin dans la main de Wang Lin. Puis, la main descendit de nouveau.
 

@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 241 - Wang Zhuo
 slug: wang-zhuo
 ---
-Après que l'âme dévoreuse de Wang Lin eut tué les six membres clés de la famille Teng, elle retourna rapidement dans son corps.
+Après que l'âme dévoreuse de Wang Lin eut tué les six membres clés de la famille Teng, elle ne poursuivit pas le massacre et retourna à la plus grande vitesse dans son corps.
 
 Wang Lin ouvrit les yeux et resta pensif un moment. Lorsqu'il avait tué cet homme d'âge moyen, il avait aperçu une silhouette qui l'avait bouleversé. S'il ne s'était pas trompé, cet homme était Wang Zhuo.
 
@@ -18,21 +18,21 @@ Wang Lin réfléchit un instant, puis se lança à sa poursuite.
 
 Teng Xiu Xiu était submergée par la tristesse. Bien qu'elle fuyait, elle ne pouvait retenir ses larmes. Elle ignorait ce qu'était devenu son père, mais un pressentiment pesait si lourd sur son cœur qu'elle en avait le souffle coupé.
 
-Les émotions complexes qui habitaient Wang Zhuo s'intensifièrent. Bien qu'il ait ressenti une certaine satisfaction en voyant les membres de la famille Teng périr, il éprouvait désormais un profond tourment. Son corps fut secoué par un tremblement; il s'arrêta et ferma les yeux, hanté par le souvenir de sa propre famille massacrée par les Teng.
+Les émotions complexes qui habitaient Wang Zhuo s'intensifièrent. Bien qu'il ait ressenti une certaine satisfaction en voyant les membres de la famille Teng périr, il éprouvait désormais, sans savoir pourquoi, une profonde inquiétude. Son corps fut secoué par un tremblement; il s'arrêta et ferma les yeux, hanté par le souvenir de son clan entier massacré avec cruauté par Teng Huayuan.
 
 Voyant que Wang Zhuo s'était immobilisé, Teng Xiu Xiu s'arrêta elle aussi. Elle le dévisagea en mordant sa lèvre inférieure; à cet instant, cet homme, son époux, était le seul pilier sur lequel elle pouvait compter.
 
-Après un moment, Wang Zhuo ouvrit les yeux et se gifla violemment à plusieurs reprises. Il voulait se heurter la conscience, se rappeler avec force que la famille Teng était son ennemi et qu'il ne devait éprouver aucun sentiment pour Teng Xiu Xiu.
+Après un moment, Wang Zhuo ouvrit les yeux et se gifla violemment à plusieurs reprises. Il voulait se réveiller complètement, se rappeler avec force que la famille Teng était son ennemi et qu'il ne devait éprouver aucun sentiment pour Teng Xiu Xiu.
 
 Tant qu'ils portaient le nom des Teng, ils devaient mourir!
 
 Teng Xiu Xiu s'avança précipitamment pour l'intercepter, ses larmes coulant sans fin.
 
-Wang Zhuo endurcit son cœur. D'un geste brusque, il repoussa Teng Xiu Xiu sur le côté et tonna: « Pars! Désormais, tu et moi n'avons plus rien en commun! »
+Wang Zhuo endurcit son cœur. D'un geste brusque du bras, il repoussa la main de Teng Xiu Xiu sur le côté et lâcha froidement: « Pars! Désormais, toi et moi n'avons plus rien en commun! »
 
-Le regard de Teng Xiu Xiu ne reflétait que le désespoir. Elle ne réalisa même pas qu'elle mordait sa lèvre si fort qu'elle en saignait. En pleurs, elle tenta de s'agripper à lui. Mais Wang Zhuo esquiva à nouveau et lâcha froidement: « Tu refuses de partir? Alors je m'en vais! » Sur ces mots, il prit son envol dans la direction opposée.
+Le regard de Teng Xiu Xiu ne reflétait que le désespoir. Elle ne réalisa même pas qu'elle mordait sa lèvre si fort qu'elle en saignait. En pleurs, elle tenta de s'agripper à lui. Mais Wang Zhuo esquiva à nouveau et lâcha froidement: « Tu refuses de partir? Alors je m'en vais! » Sur ces mots, il s'envola lentement dans la direction opposée.
 
-Teng Xiu Xiu resta pétrifiée, fixant le dos de Wang Zhuo. Le désespoir qui l'habitait s'accentua; elle eut l'impression que son cœur était lacéré par un poignard. Son visage devint d'un rouge maladif avant qu'elle n'expire une bouffée de sang et ne pâlisse, tentant tant bien que mal de tenir debout.
+Teng Xiu Xiu resta pétrifiée, fixant le dos de Wang Zhuo. Le désespoir qui l'habitait s'accentua; elle eut l'impression que son cœur était lacéré par un poignard. Son visage devint d'un rouge maladif avant qu'elle ne crache une gorgée de sang. Elle vacilla plusieurs fois et, le visage pâle, parvint à se tenir debout.
 
 En vérité, au moment où Wang Zhuo s'était détourné, il avait senti son propre cœur se déchirer. Mais en pensant au massacre de ses proches, il s'était forcé à endurcir son âme. À cet instant, la douleur de Wang Zhuo n'était en rien moindre que celle de Teng Xiu Xiu.
 
@@ -40,21 +40,21 @@ Teng Xiu Xiu esquissa un sourire pitoyable et appela doucement Wang Zhuo: « Ne 
 
 Le corps de Wang Zhuo fut parcouru d'un spasme. Serrant les poings, il se retourna brusquement vers elle et hurla: « Dégage! »
 
-Puis, il accéléra instantanément et disparut, ne laissant derrière lui qu'un sillage vide en un clin d'œil.
+Puis, il fila à toute vitesse et, en un clin d'œil, disparut sans laisser de trace.
 
-Du sang s'écoula de nouveau de la bouche de Teng Xiu Xiu alors qu'elle fixait l'endroit où Wang Zhuo avait disparu. Elle esquissa un sourire amer, les yeux emplis de confusion. Bien que le monde fût vaste, elle ne savait plus où aller. Des deux hommes qui comptaient le plus pour elle, l'un était peut-être mort et l'autre l'avait abandonnée. Pour une femme, ce n'était rien de moins que l'effondrement du ciel.
+Du sang s'écoula de nouveau du coin des lèvres de Teng Xiu Xiu; elle regarda longuement l'endroit où Wang Zhuo avait disparu, puis se détourna avec un sourire amer, les yeux emplis de confusion. Bien que le monde fût vaste, elle ne savait plus où aller. Des deux hommes qui comptaient le plus pour elle, elle ignorait si l'un était vivant ou mort et l'autre l'avait abandonnée. Pour une femme, ce n'était rien de moins que l'effondrement du ciel.
 
 Wang Zhuo vola durant plus de cinq kilomètres. Ses mains saignaient à force d'avoir serré les poings. Les visions de la mort de ses proches assaillirent son esprit, mais l'image de la tristesse et du désespoir de Teng Xiu Xiu finit par les occulter.
 
-Après un long moment, Wang Zhuo atterrit au sol. Il s'agenouilla face à sa terre natale, effectua des kowtows vigoureux et déclara: « Père, mère, votre fils est... ingrat! »
+Après un long moment, Wang Zhuo atterrit au sol. Il s'agenouilla face à sa terre natale, effectua des kowtows vigoureux et déclara: « Père, mère, votre fils est... sans piété filiale! »
 
 Une fois ses paroles achevées, il ferma les yeux et deux larmes coulèrent sur ses joues. Puis, il se redressa et partit à la hâte rejoindre Teng Xiu Xiu.
 
-En se retournant, il eut l'impression de voir les membres de sa famille, et particulièrement ses parents, le foudroyer du regard. Ils le pointaient tous du doigt, le traitant de traître et de fils indigne de la famille Wang.
+En se retournant, il eut l'impression de voir les membres de sa famille, et particulièrement ses parents, le regarder d'un air douloureux. Ils le pointaient tous du doigt, le traitant de traître et de fils indigne de la famille Wang.
 
-Le cœur de Wang Zhuo était brisé alors qu'il poursuivait Teng Xiu Xiu. Bientôt, il aperçut la silhouette confuse de la jeune femme en plein vol. En sentant sa présence, elle se retourna, affichant un sourire empreint de douceur.
+Le cœur de Wang Zhuo était brisé alors qu'il poursuivait Teng Xiu Xiu. Bientôt, il aperçut la silhouette confuse de la jeune femme en plein vol. En sentant sa présence, elle se retourna et le regarda, hébétée; une lueur de tendresse apparut peu à peu dans ses yeux.
 
-Mais au moment où ils allaient se rejoindre, une puissante intention de meurtre fondit sur eux. Un jeune homme aux cheveux blancs flottant au vent, chevauchant une bête-moustique géante, s'approchait d'eux à toute vitesse. Derrière lui traînaient les cadavres innombrables de la famille Teng, suivis par une odeur de sang écœurante.
+Mais au moment où ils allaient se rejoindre, une aura meurtrière glaciale se répandit lentement depuis l'horizon. Sur une bête-moustique géante, un jeune homme aux cheveux blancs flottant au vent les observait froidement. Derrière lui s'entassaient les cadavres innombrables de la famille Teng, et à mesure qu'il approchait, une odeur de sang extrêmement dense les saisissait de plein fouet.
 
 Le visage de Teng Xiu Xiu devint livide. Instinctivement, elle se réfugia derrière Wang Zhuo, le corps tremblant.
 
@@ -79,12 +79,12 @@ Avant qu'il ne puisse achever sa phrase, Wang Lin trancha d'un ton neutre: « To
 
 Le corps de Teng Xiu Xiu fut secoué par un tressaillement. Le regard qu'elle lança à Wang Lin était empreint d'une haine profonde. En entendant ces mots, Wang Zhuo comprit que Wang Lin connaissait déjà la véritable identité de Teng Xiu Xiu. Les tourments dans son cœur redoublèrent de violence.
 
-Wang Lin réfléchit un instant, scruta l'horizon et demanda: « Wang Hao est-il toujours à la Secte Xuan Dao? »
+Wang Lin réfléchit un instant, regarda le soleil couchant à l'horizon et dit lentement: « Wang Hao est-il toujours à la Secte Xuan Dao? »
 Wang Zhuo secoua la tête et répondit amèrement: « Il n'a pas réussi à atteindre la Formation du Noyau... il est déjà... mort. »
 
 Wang Lin ferma les yeux et soupira: « Toi et elle devriez quitter l'État de Zhao. » Sur ce, sans même un regard en arrière, il remonta sur sa bête-moustique.
 
-Les actes de Wang Zhuo avaient pourtant clairement montré qu'il ne voulait pas la mort de Teng Xiu Xiu.
+Chacun a sa propre volonté: la série d'actes de Wang Zhuo avait clairement exprimé sa pensée, il ne voulait pas la mort de Teng Xiu Xiu.
 
 Wang Zhuo observa la silhouette de Wang Lin s'éloigner, le cœur de plus en plus tourmenté. Les images de la mort de ses parents défilaient devant ses yeux; ils le fixaient tous, le traitant de traître à la famille Wang!
 
@@ -94,7 +94,7 @@ Wang Zhuo marqua une pause. Ses yeux s'adoucirent tandis qu'il disait doucement:
 
 Teng Xiu Xiu sursauta, puis éclata de nouveau en sanglots. Durant tout le temps où ils avaient été ensemble, c'était la première fois que Wang Zhuo l'appelait par son petit nom.
 
-Cependant, son sourire s'éteignit instantanément: la main de Wang Zhuo était posée sur son Tian Lin. Dans un jaillissement d'énergie spirituelle, il mit fin à la vie de son épouse.
+Cependant, son sourire s'éteignit instantanément: la main de Wang Zhuo était posée sur son Tian Ling. Dans un jaillissement d'énergie spirituelle, il mit fin à la vie de son épouse.
 
 Teng Xiu Xiu mourut sans douleur, dans les bras de son amant...
 
@@ -104,16 +104,18 @@ Sur ces mots, il s'agenouilla face à sa demeure natale et effectua plusieurs ko
 
 « Xiu Xiu, n'aie pas peur, je te rejoins... »
 
-Sur la bête-moustique, le corps de Wang Lin fut soudain parcouru d'un frisson. Il sentit distinctement la lueur représentant Wang Zhuo s'éteindre dans son sens divin. Après un instant de réflexion, il disparut de la monture.
+Sur la bête-moustique, le corps de Wang Lin fut soudain parcouru d'un frisson. Il sentit distinctement le point lumineux représentant l'épouse de Wang Zhuo s'éteindre dans son sens divin. Après un instant de réflexion, il disparut de la monture.
 
-Lorsqu'il réapparut, il se tenait aux côtés du corps de Wang Zhuo. Un sentiment complexe l'habitait. Il comprenait que Wang Zhuo avait été déchiré entre sa famille et son amante; en fin de compte, il n'avait pu tuer celle qu'il aimait de ses propres mains pour apaiser la culpabilité envers les siens. Et après avoir perdu sa femme, il s'était donné la mort pour honorer son amour.
+Lorsqu'il réapparut, il se tenait aux côtés des corps de Wang Zhuo et de sa femme. Un sentiment complexe l'habitait. Il comprenait que Wang Zhuo avait été déchiré entre sa famille et celle qu'il aimait; en fin de compte, il n'avait pu que tuer de ses propres mains celle qu'il aimait pour combler la culpabilité envers les siens.
 
-Wang Lin resta silencieux, puis pointa son doigt vers le front de Wang Zhuo. Graduellement, une faible flamme spirituelle, capable de s'éteindre à tout moment, apparut dans sa main. Il soupira et disparut des lieux.
+En même temps, après la mort de sa femme, il ne lui restait plus qu'à mourir, afin que son amour pour elle trouve une fin accomplie.
 
-Dans la partie nord-est de la capitale, au sein d'une vaste demeure appartenant à la famille Wang, un jeune homme aux cheveux blancs fit son apparition. Il traversa la propriété comme une ombre transparente; aucun des serviteurs ne sembla le remarquer.
+Wang Lin resta silencieux, puis pointa son doigt vers le front de Wang Zhuo. Graduellement, une faible flamme d'âme, prête à se dissiper à tout instant, s'éleva du front de Wang Zhuo et fut saisie par Wang Lin. Il soupira et disparut des lieux.
 
-Après avoir erré un moment dans la maison, il s'arrêta devant un bâtiment. À l'intérieur siégeait une femme dont le ventre était arrondi par une grossesse avancée.
+Dans la partie nord-est de la capitale, au sein d'une vaste demeure appartenant à la famille Wang, un jeune homme aux cheveux blancs fit son apparition. Son corps semblait transparent et il flânait dans la cour; aucun des serviteurs ne lui prêtait attention.
+
+Après avoir erré un moment dans la maison, il arriva dans le pavillon d'une cour annexe. Dans une pièce, une femme était allongée sur son lit, le bas-ventre légèrement arrondi: elle était manifestement enceinte.
 
 Le jeune homme l'observa un instant, puis sortit une sphère de lumière blanche. Dans un soupir, il la projeta. La lumière pénétra dans le ventre de la femme. L'enfant, encore incomplet et n'ayant pas encore formé sa propre âme, fusionna progressivement avec cette lueur blanche.
 
-« Cet être entrera un jour dans le monde de la culture. Peut-être aurons-nous l'occasion de nous revoir, » murmura le jeune homme en s'éloignant.
+« En venant au monde comme être humain, tu devras entrer dans le monde de la culture. Peut-être qu'un jour, toi et moi aurons l'occasion de nous revoir, » murmura le jeune homme en se détournant pour partir.

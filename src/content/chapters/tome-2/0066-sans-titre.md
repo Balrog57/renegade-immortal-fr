@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 66 - The Journey on the Jade Disc
 slug: le-voyage-sur-le-disque-de-jade
 ---
-Liu Wenju se leva et sortit un morceau de jade. Il le lança en l'air et forma rapidement plusieurs sceaux de la main. Puis, il cracha une bouffée d'énergie essence et le jade commença à tournoyer dans les airs.
+Liu Wenju se leva et sortit un morceau de jade. Il le lança en l'air et forma rapidement plusieurs sceaux de la main. Puis, il cracha une bouffée d'énergie du noyau et le jade commença à tournoyer dans les airs.
 
 La vieille femme nommée Wang fit également apparaître un morceau de jade qui fusionna avec le premier. Le jade continuait de pivoter en dégageant une lumière arc-en-ciel. Les rayons colorés tombèrent sur le sol et recouvrirent tout dans un rayon de dix mètres autour du jade, jusqu'à former un disque lumineux.
 
@@ -44,7 +44,7 @@ Cet arrêt et ce redémarrage soudains exercèrent une pression énorme sur tous
 
 Wang Lin peinait déjà à garder son équilibre. Avec ce changement brusque de mouvement, la rafale de force déséquilibra son corps et le força à reculer.
 
-Une énergie froide émana de la perle mystérieuse sur sa poitrine et pénétra dans son corps. Une fois l'énergie parcouru ses membres, elle permit de stabiliser sa position sur le disque.
+Une énergie froide émana de la perle mystérieuse sur sa poitrine et pénétra dans son corps. Une fois que l'énergie eut parcouru ses membres, elle permit de stabiliser sa position sur le disque.
 
 Au moment où le disciple projeté arriva devant lui, Wang Lin vit l'effroi sur son visage. Sans dire un mot, il saisit la main du garçon et, d'un mouvement sec, le renvoya sur le disque.
 

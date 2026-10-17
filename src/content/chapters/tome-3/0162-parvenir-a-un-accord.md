@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 162 - Reaching an Agreement
 slug: parvenir-a-un-accord
 ---
-Alors que le vieil homme prononçait ces mots, il agita la main et des éclairs jaillirent de toutes les directions. Bientôt, une cage de foudre emprisonna Wang Lin.
+Alors que le vieil homme prononçait ces mots, il tendit sa grande main pour saisir l'air et des éclairs se rassemblèrent de toutes les directions. Bientôt, une cage de foudre emprisonna Wang Lin.
 
 Le visage de Wang Lin était sombre. Il cessa tout mouvement, se tourna vers le vieil homme et demanda froidement: « Que désire ce senior? »
 
@@ -20,7 +20,7 @@ Le vieil homme marqua une pause avant de secouer la tête. « Ce n'est pas encor
 
 L'expression de Wang Lin resta calme, mais il fut très tenté. Il avait entendu parler de la pilule de transformation terrestre par Li Muwan et savait qu'elle était extrêmement rare. C'était une pilule utilisée pour aider à augmenter le niveau de culture d'un cran durant le stade de la Formation du Noyau. Elle offrait une forte chance d'élever un cultivateur du début de la Formation du Noyau au stade intermédiaire. Bien que les chances de passer du stade intermédiaire au stade tardif fussent moindres, elle augmenterait tout de même son énergie spirituelle et jetterait les bases de son avenir.
 
-Wang Lin réfléchit encore un moment avant de lever les yeux vers le vieil homme, mais il ne dit mot. Il était perplexe. Bien qu'il ne puisse percevoir le niveau de culture du vieil homme, celui-ci avait pu détruire la formation de protection de l'Union Huo Fen d'une seule paume et effrayer des cultivateurs de l'Âme Naissante par un simple rugissement. Il devait soit se trouver au sommet du stade tardif de l'Âme Naissante, soit avoir déjà franchi le stade de la Formation de l'Âme.
+Wang Lin réfléchit encore un moment avant de lever les yeux vers le vieil homme, mais il ne dit mot. Il était perplexe. Bien qu'il ne puisse percevoir le niveau de culture du vieil homme, celui-ci avait pu détruire la formation de protection de l'Union Huo Fen d'une seule paume et effrayer des cultivateurs de l'Âme Naissante par un simple rugissement. Il devait soit avoir atteint la grande perfection du stade tardif de l'Âme Naissante, le royaume de la pseudo-Formation de l'Âme, soit avoir déjà dépassé l'Âme Naissante et être véritablement entré dans la Formation de l'Âme.
 
 Avec un tel niveau de culture, le vieil homme aurait pu facilement imposer des restrictions à Wang Lin pour le menacer, ou même le transformer en une marionnette asservie à ses moindres ordres. Il ne semblait donc pas nécessaire qu'il cherche à marchander avec lui.
 
@@ -48,7 +48,7 @@ Le vieil homme déclara fermement: « Que voulez-vous? Dites-le franchement. »
 
 « Je veux savoir à quel point l'endroit où je me rends est dangereux », répondit Wang Lin d'une voix calme mais résolue.
 
-Le vieil homme eut un rire bref. « Ce vieux monsieur ne vous mentira pas sur la dangerosité des lieux. Les cultivateurs du début de l'Âme Naissante ont 90 % de chances de mourir. Quant à ceux du stade intermédiaire, ils peuvent survivre avec un peu de chance. Seuls les cultivateurs du stade tardif ayant atteint le stade pseudo-Formation de l'Âme peuvent s'y déplacer en toute sécurité, mais même eux risquent la mort s'ils manquent de prudence. »
+Le vieil homme eut un rire bref. « Ce vieux monsieur ne vous mentira pas sur la dangerosité des lieux. Les cultivateurs du début de l'Âme Naissante ont 90 % de chances de mourir. Quant à ceux du stade intermédiaire, ils peuvent survivre avec un peu de chance. Seuls les cultivateurs du stade tardif ayant atteint le stade pseudo-Formation de l'Âme peuvent aller y jeter un coup d'œil, mais même eux meurent s'ils manquent de prudence. »
 
 « Cependant, bien que cet endroit soit périlleux, les richesses y sont immenses. Trésors magiques, pilules, méthodes de culture... on peut dire que tout ce que vous désirez s'y trouve. Il existe également la légendaire Pilule de Transformation de l'Âme. Avec une seule dose, vous pourriez devenir un cultivateur de la Transformation de l'Âme. »
 
@@ -66,11 +66,11 @@ Et s'il continuait à refuser, le vieil homme finirait par le tuer dans un accè
 
 Wang Lin hocha la tête et dit calmement: « D'accord, j'accepte! »
 
-Le vieil homme fixa Wang Lin un long moment avant de demander soudainement: « Ces deux dernières fois où vous avez totalement disparu... comment avez-vous fait? »
+Le vieil homme fixa Wang Lin un long moment avant de demander soudainement: « Ces deux dernières fois où votre présence a totalement disparu... comment avez-vous fait? »
 
 Wang Lin soutint son regard sans dire un mot. Un silence pesant s'installa entre eux. Finalement, le vieil homme détourna les yeux et cessa ses interrogations. Il dit froidement: « Allons-y. Il reste moins de six mois avant que cet endroit ne s'ouvre. Si vous tentez de vous échapper en chemin, vous n'aurez pas de seconde chance. Je vous raffinerai sur-le-champ. » Puis, il traça rapidement un symbole dans l'air qui s'engouffra dans le corps de Wang Lin.
 
-« C'est un marqueur de Sens Divin. Cela ne vous fera aucun mal, cela sert uniquement à vous traquer. Une fois arrivés sur place, je vous en libérerai. »
+« C'est un marqueur de Sens Divin. Cela ne vous fera aucun mal, cela sert uniquement à vous empêcher de disparaître de nouveau. Une fois arrivés sur place, je vous en libérerai. »
 
 Wang Lin s'y était préparé; il aurait agi de la même manière s'il avait été à sa place. De plus, si le vieil homme avait voulu lui imposer des restrictions nuisibles, il ne lui aurait pas fallu attendre ce moment précis.
 
@@ -80,21 +80,21 @@ Le vieil homme fronça les sourcils en fixant Wang Lin: « De quoi s'agit-il? »
 
 Wang Lin eut une pensée soudaine et demanda: « Le senior a-t-il entendu parler du Sentier Divin du Sanctuaire du Dieu de la Guerre? »
 
-Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, le petit voyou qui l'avait découverte avait provoqué un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Sentier Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
+Le vieil homme ricana. « La méthode de culture qui peut augmenter les chances de former son Âme Naissante... À l'époque, quand le gamin du Sanctuaire du Dieu de la Guerre l'a obtenue, cela a fait un tel tollé. Cependant, même si vous y allez, vous ne trouverez pas le Sentier Divin original à moins de vous rendre dans un pays de culture de rang 4 nommé Tian Gang. »
 
 L'expression de Wang Lin resta impassible, mais son cœur manqua un battement. Comme il s'en doutait, le Sanctuaire du Dieu de la Guerre ne possédait plus le Sentier Divin originel.
 
-Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Huo Fen. Les yeux du vieil homme s'illuminèrent avant qu'il ne suive Wang Lin avec nonchalance.
+Cependant, il n'allait pas renoncer avant d'être allé vérifier par lui-même. Il s'envola donc vers l'Union Huo Fen. Le regard du vieil homme scintilla à plusieurs reprises avant qu'il ne suive Wang Lin sans se presser.
 
 Peu de temps après, la montagne de l'Union Huo Fen apparut. Il attendit que le vieil homme soit à ses côtés avant de crier: « Ma Liang salue le senior Feng Luan du Sanctuaire du Dieu de la Guerre! »
 
-Sa voix tonna à travers la montagne. Bientôt, plusieurs personnes sortirent des hauteurs. Une femme magnifique dirigeait le groupe: c'était Feng Luan.
+Sa voix tonna à travers la montagne. Bientôt, plusieurs personnes sortirent des hauteurs. Une femme en tenue de cour dirigeait le groupe: c'était Feng Luan.
 
-La première chose qu'elle remarqua fut le vieil homme derrière Wang Lin, ce qui fit se rétracter ses pupilles, avant que son regard ne se pose sur Wang Lin. Elle fut secrètement stupéfaite. En seulement quelques années, il avait déjà formé son noyau. Pourtant, en pensant au fait qu'il avait pris possession d'un corps, elle comprit qu'il devait déjà être au stade de la Formation du Noyau, ce qui expliquait sa progression fulgurante. Elle réfléchit un instant avant de demander froidement: « La personne que vous recherchiez ces trois dernières années, c'était vous? »
+La première chose qu'elle remarqua fut le vieil homme derrière Wang Lin, ce qui fit se rétracter ses pupilles, avant que son regard ne se pose sur Wang Lin. Elle fut secrètement stupéfaite. En seulement quelques années, il avait déjà formé son noyau. Pourtant, en pensant au fait qu'il avait pris possession d'un corps, elle conclut qu'il avait sans doute déjà formé son noyau avant cette prise de possession, ce qui expliquait qu'il l'ait reformé si vite. Elle resta silencieuse un instant avant de demander froidement: « La personne que celui-ci cherche depuis trois ans, c'était vous? »
 
 Wang Lin resta calme et esquiva la question: « Senior Feng Luan, le junior a une requête que j'espère voir acceptée. »
 
-Feng Luan jeta un regard terrifié vers le vieil homme avant de dire calmement: « Parlez. »
+Feng Luan jeta un regard très méfiant vers le vieil homme avant de dire calmement: « Parlez. »
 
 Wang Lin articula lentement: « Le junior aimerait consulter le Sentier Divin. »
 
@@ -108,10 +108,10 @@ L'expression du vieil homme demeura indifférente. Il n'était pas stupide; il c
 
 Pensant ainsi, il lança: « Petit ami, je t'attendrai ici. Si tu es blessé de quelque manière que ce soit, je m'assurerai que chaque être vivant sur cette montagne soit enterré avec toi. »
 
-Le corps du vieillard au visage rouge frissonna légèrement, mais il reprit vite contenance. Accompagné de Wang Lin, il s'enfonça dans la montagne arrière et s'arrêta devant une dalle de pierre.
+Le corps du vieillard au visage rouge frissonna légèrement, mais il reprit vite contenance. Accompagné de Wang Lin, il gagna l'arrière du pic et s'arrêta devant une demeure de pierre.
 
 Le vieillard au visage rouge décida de rompre le silence en se tournant vers Wang Lin: « Devrais-je t'appeler Wang Lin? »
 
 Wang Lin acquiesça silencieusement.
 
-L'homme prit une profonde inspiration et dit d'un ton pesant: « Wang Lin, laisse tout ce qui s'est passé dans le passé derrière toi. Peu importe les ennuis dans lesquels tu t'es fourré, ne traîne pas le Sanctuaire du Dieu de la Guerre avec toi. Si tu peux me promettre cela, alors j'ouvrirai le temple pour que tu puisses voir le Sentier Divin! »
+L'homme prit une profonde inspiration et dit d'un ton pesant: « Wang Lin, laisse tout ce qui s'est passé dans le passé derrière toi. Peu importe les ennuis dans lesquels tu t'es fourré, ne traîne pas le Sanctuaire du Dieu de la Guerre avec toi. Si tu peux jurer de t'y tenir, alors j'ouvrirai la demeure de pierre pour que tu puisses voir le Sentier Divin! »

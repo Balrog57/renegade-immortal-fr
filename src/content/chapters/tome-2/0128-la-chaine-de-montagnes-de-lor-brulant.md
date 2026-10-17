@@ -8,15 +8,15 @@ slug: la-chaine-de-montagnes-de-lor-brulant
 ---
 Wang Lin agita sa main droite pour ouvrir la porte de pierre et sortit.
 
-À cet instant, le ciel était d’un bleu limpide à perte de vue. Son corps s'élança et il vola vers un volcan voisin. Dès qu'il eut quitté l'espace du rêve, son sens divin détecta une fluctuation d'élément bois à l'intérieur du cratère.
+À cet instant, le ciel était d’un bleu limpide à perte de vue. Son corps s'élança et il suivit la chaîne de montagnes en direction d'un cratère. En sortant de l'espace de rêve, son sens divin avait aussitôt détecté, dans les volcans alentour, une fluctuation d'énergie spirituelle de l'élément bois.
 
-Peu de temps après, Wang Lin arriva à l'embouchure du volcan et scruta l'intérieur. Des vagues de chaleur s'échappaient des profondeurs. Les yeux de Wang Lin s'illuminèrent et il sauta sans la moindre hésitation, utilisant une technique d'attraction pour contrôler sa descente.
+Peu de temps après, Wang Lin arriva à l'embouchure du volcan et scruta l'intérieur. Une lumière rouge sombre en jaillissait et des vagues de chaleur étouffante lui soufflaient au visage. Les yeux de Wang Lin s'illuminèrent et il sauta sans la moindre hésitation, utilisant une technique d'attraction pour contrôler sa descente.
 
 La Chaîne de Montagnes de l'Or Brûlant était une cordillère célèbre dans Huo Fen. Sa renommée tirait son origine d'un ingrédient alchimique qui y poussait: le Fruit de l'Or Brûlant.
 
-Ce fruit est un composant essentiel à la fabrication de la Pilule d'Harmonie Spirituelle. L'énergie spirituelle de ce pays est saturée de l'élément feu; l'absorber sur une longue période nuit gravement au corps des cultivateurs. Ainsi, comme la Pilule d'Harmonie Spirituelle permet de réguler l'énergie spirituelle interne, elle est extrêmement prisée par les cultivateurs locaux.
+Ce fruit est un composant essentiel à la fabrication de la Pilule d'Harmonie Spirituelle. L'énergie spirituelle de ce pays est saturée de l'élément feu; l'absorber sur une longue période nuit gravement au corps des cultivateurs. Ainsi, comme la Pilule d'Harmonie Spirituelle permet de tempérer et de diluer l'élément feu, elle est extrêmement prisée par les cultivateurs locaux.
 
-On peut dire que cette pilule est l'une des plus consommées à Huo Fen. Il existe de nombreuses recettes pour la fabriquer, chacune ayant des degrés d'efficacité variables, mais la plus populaire est celle qui utilise le Fruit de l'Or Brûlant.
+On peut dire que cette pilule est l'une des plus consommées à Huo Fen. Il existe des dizaines de recettes pour la fabriquer, chacune ayant des degrés d'efficacité variables, mais la plus populaire est celle qui utilise le Fruit de l'Or Brûlant.
 
 Ce fruit ne pousse que dans l'embouchure des volcans, et seulement au sein d'un massif volcanique, jamais de manière isolée.
 
@@ -26,15 +26,15 @@ Ce jour-là, les quatre sectes avaient envoyé leurs disciples en avance. Chaque
 
 Il y avait au total trois disciples de la Secte des Cadavres: deux hommes et une femme. Ils portaient des cercueils sur leur dos et se tenaient à l'ouverture du volcan, attendant le moment opportun pour descendre.
 
-Le temps passa lentement. Voyant que de la fumée verte s'échappait des trois autres volcans, les trois autres sectes plongèrent dans leurs cratères respectifs. Les trois disciples de la Secte des Cadavres affichèrent des visages perplexes. La femme fronça les sourcils et demanda: « Frère aîné Mai, sais-tu ce qui se passe? »
+Le temps passa lentement. Voyant qu'un qi vert et parfumé s'élevait des trois autres volcans, les trois autres sectes plongèrent dans leurs cratères respectifs. Les trois disciples de la Secte des Cadavres affichèrent des visages perplexes. La femme fronça les sourcils et demanda: « Frère aîné Ma, sais-tu ce qui se passe? »
 
-L'homme nommé Mai fronçait également les sourcils lorsqu'il répondit: « La fumée verte signifie que le Fruit de l'Or Brûlant est mûr et prêt pour la récolte. Les quatre volcans devraient atteindre la maturité exactement au même moment. Frère aîné Zhou, penses-tu que nous devrions descendre vérifier? »
+L'homme nommé Ma fronçait également les sourcils lorsqu'il répondit: « Le qi vert signifie que le Fruit de l'Or Brûlant est mûr et prêt pour la récolte. Les quatre volcans devraient atteindre la maturité exactement au même moment. Frère aîné Zhou, penses-tu que nous devrions descendre vérifier? »
 
-Le jeune homme nommé Zhou réfléchit un instant, puis secoua la tête: « Attendons encore un peu. Si la fumée verte ne sort pas pour dissiper les gaz toxiques du volcan, nous courrons un grand danger en descendant. »
+Le jeune homme nommé Zhou réfléchit un instant, puis secoua la tête: « Attendons encore un peu. Si le qi vert ne sort pas pour dissoudre le poison de feu du volcan, nous courrons un grand danger en descendant. »
 
-Le temps s'écoulait péniblement. Voyant que la fumée verte s'épaississait dans les trois autres volcans, les trois disciples devinrent impatients. Le jeune homme nommé Zhou serra les dents et lâcha: « Très bien, descendons voir. » Alors qu'il s'apprêtait à sauter, une aura glaciale émana de l'intérieur du volcan.
+Le temps s'écoulait péniblement. Voyant que le qi vert s'épaississait dans les trois autres volcans, les trois disciples devinrent impatients. Le jeune homme nommé Zhou serra les dents et lâcha: « Très bien, descendons voir. » Alors qu'il s'apprêtait à sauter, une aura glaciale émana de l'intérieur du volcan.
 
-Peu après, un jeune homme empreint d'une froideur absolue apparut. Les trois disciples restèrent stupéfaits en le regardant s'envoler, portant une vigne violette aussi épaisse qu'un être humain.
+Peu après, un jeune homme empreint d'une froideur absolue apparut. Les trois disciples restèrent stupéfaits en le regardant s'envoler, portant une vigne violette plus épaisse qu'un homme.
 
 Cette vigne était chargée de Fruits de l'Or Brûlant.
 
@@ -42,13 +42,13 @@ Cet homme n'était autre que Wang Lin. À son apparition, il ne daigna même pas
 
 Wang Lin avait donc décidé d'arracher la racine entière du Fruit de l'Or Brûlant. Cependant, ce qui le rendait impuissant, c'est qu'il ne pouvait pas ranger cette vigne dans son sac de rangement; il était donc contraint de la porter. S'il n'avait pas un tel besoin de ces fruits à élément bois, il ne se serait pas donné tant de mal.
 
-Le jeune homme nommé Zhou déglutit difficilement en fixant la vigne sur l'épaule de Wang Lin. Son expression changea à plusieurs reprises. C'était sa troisième année de récolte ici. Au maximum, ils ne prenaient que dix fruits, car la racine utilise les fruits comme nutriments pour sa propre survie.
+Le jeune homme nommé Zhou déglutit difficilement en fixant la vigne sur l'épaule de Wang Lin. Son expression changea à plusieurs reprises. C'était sa troisième année de récolte ici. Il savait que l'on ne pouvait cueillir que dix fruits au maximum par an: la racine ne produit ses fruits que pour les absorber elle-même, et c'est ainsi qu'elle survit dans ce lieu brûlant.
 
 Si l'on prélève trop de fruits, la racine meurt. Et si la racine meurt, plus aucun Fruit de l'Or Brûlant n'apparaîtra dans ce volcan.
 
-Mais cet individu venait d'arracher la racine entière! Ignorait-il que la racine mourrait quatre heures après avoir été déterrée? Furieux de voir que Wang Lin n'était qu'au stade intermédiaire de l'Établissement des Fondations et qu'il osait les ignorer pour emporter la racine, il hurla: « Arrête! Peu importe ta secte, tu vas payer le prix pour avoir détruit la racine du Fruit de l'Or Brûlant! »
+Mais cet individu venait d'arracher la racine entière! Ignorait-il que la racine mourrait quatre heures après avoir été déterrée? Zhou Gang, furieux de voir que Wang Lin n'était qu'au stade intermédiaire de l'Établissement des Fondations et qu'il osait les ignorer pour emporter la racine, hurla: « Arrête! Peu importe ta secte, tu vas payer le prix pour avoir détruit la racine du Fruit de l'Or Brûlant! »
 
-Sur ce, il frappa le cercueil derrière lui et se redressa brusquement. Le couvercle grinça en glissant vers la droite, laissant sortir une main noire. Des volutes de gaz noir s'échappèrent de ses doigts et une odeur de décomposition commença immédiatement à se propager.
+Sur ce, il frappa le cercueil derrière lui. Celui-ci s'éleva et se dressa à côté de lui dans un grondement. Le couvercle grinça en s'entrouvrant d'un coin vers la droite, et une main noire et desséchée en sortit. Des volutes de gaz noir s'échappèrent de ses doigts et une odeur de décomposition commença immédiatement à se propager.
 
 Les deux autres disciples posèrent également leurs cercueils et fixèrent Wang Lin avec colère.
 
@@ -56,39 +56,39 @@ Wang Lin se retourna, observa les trois individus et frotta la Vigne de l'Or Br�
 
 Zhou Gang ricana: « Tu vas immédiatement te couper les bras et les jambes, t'arracher les yeux et nous suivre pour être jugé par le chef de secte! » Sans attendre la réponse de Wang Lin, il pointa le cercueil du doigt. Le couvercle glissa davantage jusqu'à s'envoler, laissant sortir une momie totalement noire. Celle-ci bondit soudainement sur Wang Lin, les mains enveloppées de gaz noir.
 
-Simultanément, les deux autres disciples frappèrent leurs cercueils. Deux autres momies en sortirent, se mirent en formation et chargèrent Wang Lin.
+Simultanément, les deux autres disciples frappèrent leurs cercueils. Deux autres momies en sortirent; les trois momies se placèrent en triangle et chargèrent Wang Lin.
 
 Le regard de Wang Lin devint glacial alors qu'un fracas retentissait dans l'océan doré de sa conscience. Un éclair rouge jaillit soudainement de ses yeux. Les corps des trois disciples de la Secte des Cadavres furent secoués; leurs yeux s'obscurcirent et ils moururent, leur âme ayant été instantanément détruite.
 
 Puis, Wang Lin leva nonchalamment la tête pour observer les trois marionnettes cadavériques. Deux d'entre elles commencèrent immédiatement à pourrir, se transformant en tas d'ossements blancs.
 
-Seule la marionnette de Zhou Gang ne subit aucun dommage. Elle s'interrompit brusquement dans sa charge. Ses yeux sans émotion brillèrent d'une lueur dorée alors qu'elle fixait Wang Lin avec une expression d'horreur pure. Elle recula précipitamment, tentant de s'enfuir.
+Seule la marionnette de Zhou Gang ne subit aucun dommage. Elle s'interrompit brusquement dans sa charge. Ses yeux sans éclat laissèrent soudain filtrer une lueur vive alors qu'elle fixait Wang Lin avec une expression d'horreur pure. Elle recula précipitamment, tentant de s'enfuir.
 
 Wang Lin ricana : « Fais un pas de plus et tu mourras! »
 
-Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Cher compagnon de culture, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas impulsif! »
+Ses paroles furent ignorées par la marionnette qui, s'enveloppant de gaz noir, s'élança pour fuir. Mais soudain, elle poussa un cri misérable alors qu'une lueur s'échappait de son corps. Cette lumière prit la forme d'un petit être qui s'inclina devant Wang Lin et supplia: « Camarade cultivateur, je vous en prie, ayez pitié! Je suis Xu Liguo, disciple de la secte Tian Gang, issu d'un pays de culture de rang 4. Je vous ai offensé à l'instant, je le reconnais. Si vous avez besoin de quoi que ce soit, nous pouvons négocier. Je vous en prie, ne soyez pas impulsif! »
 
 Ce petit être était mort de peur. Il avait voulu fuir, mais il avait soudainement ressenti une force destructrice pénétrer son corps. Pressentant le danger, il s'était précipitamment extrait de l'enveloppe charnelle.
 
-Bien qu'il fût un cultivateur de l'Âme Naissante, il avait été gravement blessé lors d'une guerre. Il avait réussi à sauver son Âme Naissante, mais ses blessures étaient telles que celle-ci était sur le point de se dissiper. Ses proches avaient rassemblé une fortune colossale pour lui acheter un corps auprès de la Secte des Cadavres.
+Bien qu'il fût un cultivateur de l'Âme Naissante, il avait été gravement blessé lors d'un grand combat. Il avait réussi à sauver son Âme Naissante, mais ses blessures étaient telles que celle-ci était sur le point de se dissiper. Finalement, un ami très proche avait dépensé d'énormes ressources pour le mettre en contact avec la Secte des Cadavres et lui acheter un corps.
 
-Les corps fournis par la Secte des Cadavres étaient célèbres dans les pays de culture de rang 4 et 5. Ils possédaient tous un talent exceptionnel et leur apparence pouvait être personnalisée selon les désirs du client. Ils offraient même aux cultivateurs excentriques des corps du sexe opposé. Tant que l'on en avait les moyens, la Secte des Cadavres offrait une solution satisfaisante.
+Les corps fournis par la Secte des Cadavres étaient célèbres dans les pays de culture de rang 4 et 5. Tous possédaient déjà une base d'énergie spirituelle et un talent exceptionnel, et leur apparence pouvait être personnalisée selon les désirs du client. Ils offraient même aux cultivateurs excentriques des corps du sexe opposé. Tant que l'on en avait les moyens, la Secte des Cadavres offrait une solution satisfaisante.
 
-Plus important encore, ces corps ne présentaient aucun défaut et, moyennant un supplément, une protection totale était garantie durant le processus de possession.
+Plus important encore, la prise de possession d'un corps ne causait jamais le moindre problème et, moyennant un supplément, une protection totale était garantie durant la période de récupération.
 
 De plus, les recherches de la Secte des Cadavres sur l'art de la possession avaient atteint un niveau prodigieux; ils fournissaient des instructions extrêmement détaillées pour guider le possesseur lors de la transition.
 
-Si l'on pouvait payer le prix, on pouvait choisir n'importe quel corps, quel que soit son niveau de culture. Comme chacun le sait, pour un cultivateur de l'Âme Naissante, le corps idéal est celui d'un autre cultivateur de l'Âme Naissante. Utiliser le corps d'un expert de la Formation du Noyau affaiblirait considérablement sa culture et prendrait une éternité à récupérer.
+Si l'on pouvait payer le prix, on pouvait choisir n'importe quel corps, quel que soit son niveau de culture. Comme chacun le sait, pour un cultivateur de l'Âme Naissante, le corps idéal est celui d'un autre cultivateur de l'Âme Naissante. Utiliser le corps d'un expert de la Formation du Noyau affaiblirait considérablement sa culture et demanderait beaucoup de temps pour être récupéré.
 
-Pour ceux qui n'avaient pas les moyens d'acquérir un corps de la Formation du Noyau, il ne restait que les modèles d'Établissement des Fondations à bas prix. Même pour un cultivateur de l'Âme Naissante, le temps nécessaire pour retrouver son niveau initial serait alors interminable.
+Pour ceux qui n'avaient pas les moyens d'acquérir un corps de la Formation du Noyau, il ne restait que les modèles d'Établissement des Fondations à bas prix. Même pour un cultivateur de l'Âme Naissante, le temps nécessaire pour retrouver son niveau initial demanderait alors de nombreuses années.
 
 Xu Liguo faisait partie de ces cultivateurs de l'Âme Naissante qui n'avaient pas les moyens de s'offrir mieux.
 
-Si les corps du stade de l'Âme Naissante étaient les plus coûteux, ils ne représentaient pas la principale source de revenus de la Secte des Cadavres.
+Si le commerce de la Secte des Cadavres s'était limité aux corps du stade de l'Âme Naissante, elle ne serait pas si puissante; en réalité, ces corps ne représentaient pas sa principale source de revenus.
 
-Le corps parfait pour un cultivateur de la Formation de l'Âme est celui d'un autre expert de la Formation de l'Âme, mais obtenir un tel spécimen en parfait état est une tâche quasi impossible. De plus, presque tous les experts de ce stade sont soutenus par de grandes sectes issues de pays de rang 5, ce qui les rend inaccessibles.
+Le corps parfait pour un cultivateur de la Transformation de l'Âme est celui d'un autre expert de la Transformation de l'Âme, mais obtenir un tel spécimen intact est extrêmement difficile. De plus, presque tous les experts de ce stade ont derrière eux une grande secte de rang 5: toucher à l'un d'eux ébranle tout le reste.
 
-Cependant, la Secte des Cadavres peut résoudre ce problème si le prix est payé. Le corps sera celui d'un expert de la Formation de l'Âme, mais peu importe vos recherches, vous ne saurez jamais d'où il provient.
+Cependant, la Secte des Cadavres peut résoudre ce problème si le prix est payé. Le corps sera celui d'un expert de la Transformation de l'Âme, mais peu importe vos recherches, vous ne saurez jamais d'où il provient.
 
 C'est le plus grand secret de la Secte des Cadavres, et nul n'en connaît la vérité. Une rumeur prétend même que la secte est capable de fournir aux plus grands experts du seul pays de rang 6, Suzaku, des corps parfaitement adaptés.
 
@@ -96,4 +96,4 @@ C'est une organisation puissante et mystérieuse. Les chefs de chaque sous-secte
 
 Mais le véritable quartier général se trouve-t-il réellement dans un pays de rang 5? Personne n'a la réponse.
 
-Une chose est certaine: personne n'oserait s'en prendre à la Secte des Cadavres dans les pays de rang 4 ou supérieur. Quant aux pays de rang 3 ou moins, tant qu'on ne touche pas à ses fondements et qu'on ne nuit pas à ses récoltes, elle ne s'en soucie guère. Après tout, ces régions ne sont pour elle qu'un élevage de corps de bas niveau et un terrain d'affaires lucratif.
+Une chose est certaine: personne n'oserait s'en prendre à la Secte des Cadavres dans les pays de rang 4 ou supérieur. Quant aux pays de rang 3 ou moins, tant qu'on ne touche pas à ses fondements et qu'on ne nuit pas à ses récoltes, elle ne s'en soucie guère. Après tout, ces régions ne sont pour elle qu'un élevage de bas niveau, et non un lieu de commerce.

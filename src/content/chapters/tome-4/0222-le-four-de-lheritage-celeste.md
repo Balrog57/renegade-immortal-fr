@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 222 - Heaven Stealing Seven Furnace
 slug: le-four-de-lheritage-celeste
 ---
-La pilule Tian Li était un remède capable d'augmenter les chances de réussir la Formation du Noyau. C'était une pilule rare, destinée uniquement aux membres éminents d'une secte ou à ceux ayant apporté une contribution majeure.
+La pilule Tian Li était un remède capable d'augmenter les chances de réussir la Formation du Noyau. C'était une pilule rare, souvent un remède secret des sectes, que seuls pouvaient prendre ceux ayant apporté une certaine contribution à la secte ou les disciples centraux.
 
-Cinq pilules Tian Li représentaient déjà une quantité phénoménale. Après tout, Li Muwan n'était qu'une seule personne; il avait dû lui falloir des années d'efforts pour les confectionner.
+Cinq pilules Tian Li représentaient déjà une quantité phénoménale. Après tout, Li Muwan n'était qu'une seule personne; les avoir raffinées en une centaine d'années n'avait rien d'une chose simple.
 
 Après les avoir examinées un instant, Wang Lin en prit une et la porta à sa bouche.
 
@@ -16,7 +16,7 @@ Cette pilule Tian Li était nettement plus puissante que celle que son corps pri
 
 Le temps passa lentement et la première pilule Tian Li échoua. Bien qu'elle n'ait pas produit l'effet escompté, elle déplaça néanmoins toute l'énergie spirituelle de Wang Lin vers son dantian.
 
-La deuxième pilule Tian Li échoua également, mais l'énergie spirituelle dans le corps de Wang Lin devint encore plus concentrée. De l'extérieur, le dantian de Wang Lin ressemblait à un océan et tous les méridiens de son corps étaient tels des rivières. L'énergie spirituelle coulait depuis les méridiens vers son dantian, formant un tourbillon en son centre.
+La deuxième pilule Tian Li échoua également, mais l'énergie spirituelle dans le corps de Wang Lin devint encore plus concentrée. En regardant à l'intérieur de lui-même, le dantian de Wang Lin ressemblait à un océan et tous les méridiens de son corps étaient tels des rivières. L'énergie spirituelle coulait depuis les méridiens vers son dantian, formant un tourbillon en son centre.
 
 À chaque rotation de ce tourbillon, toute l'énergie spirituelle de son corps entrait en effervescence. Le processus avait quelque chose d'inquiétant.
 
@@ -26,15 +26,15 @@ Wang Lin ne prit pas immédiatement la quatrième pilule; il s'assit pour cultiv
 
 Ces trois gouttes de liquide doré étaient le fruit de toute l'énergie spirituelle de son corps. À l'instant même où la troisième goutte apparut, l'énergie spirituelle disparut de chaque recoin du corps de Wang Lin, et jusqu'au tourbillon de son dantian commença lentement à s'estomper.
 
-Wang Lin utilisa la tactique de l'Ancien Dieu. Cependant, au lieu que l'énergie spirituelle soit absorbée par ses tissus, il la contraignit à circuler impérieusement à travers son corps.
+Wang Lin cultivait la tactique de l'Ancien Dieu. Cependant, sous son blocage forcé, l'énergie spirituelle n'était pas absorbée par son corps physique mais formait un cycle de circulation à l'intérieur de son corps.
 
 Pour les Anciens Dieux, les notions d'Établissement des Fondations, de Formation du Noyau ou d'Âme Naissante n'existaient pas. Aucun d'entre eux ne renonçant à leur méthode de puissance extérieure, personne, hormis Wang Lin, n'avait jamais utilisé la tactique de l'Ancien Dieu pour cultiver la puissance intérieure.
 
 Ainsi, lorsque toute l'énergie spirituelle de son corps se condensa en trois gouttes de liquide doré, Wang Lin fut plongé dans la confusion, mais aucun souvenir ne lui permit d'en comprendre la raison.
 
-Il sentait clairement que dans chaque goutte de ce liquide doré résidait assez d'énergie spirituelle pour égaler un cultivateur au stade de la Formation du Noyau. Cela lui rappelait sa présence dans la Vallée Jue Ming, au pays de Zhao, lorsqu'il avait utilisé son Royaume Ji pour former la perle d'essence froide.
+Il sentait clairement que dans chaque goutte de ce liquide doré résidait une énergie spirituelle au moins égale à l'attaque à pleine puissance d'un cultivateur de la Formation du Noyau. Cela lui rappelait sa présence dans la Vallée Jue Ming, au pays de Zhao, lorsqu'il avait utilisé son Royaume Ji pour former la perle d'essence froide.
 
-Cependant, à l'époque, le corps de Wang Lin avait été détruit et son Royaume Ji avait fusionné avec son âme; il ne pourrait plus jamais réutiliser cette technique de la perle d'essence froide.
+Cependant, par la suite, le corps de Wang Lin avait été détruit et son Royaume Ji avait fusionné avec son âme; il ne pourrait plus jamais réutiliser cette technique de la perle d'essence froide.
 
 Les yeux de Wang Lin s'illuminèrent en contemplant les trois gouttes dorées. Il saisit la troisième bouteille. Celle-ci n'avait pas de sceau de cire et contenait plus de trente pilules noires.
 
@@ -56,11 +56,11 @@ Simultanément, sous l'effet des deux pilules Tian Li, le dantian de Wang Lin se
 
 Les fragments brisés de son dantian fusionnèrent avec le liquide doré et l'énergie spirituelle des pilules Tian Li. Tout finit par s'unir pour former un noyau doré de la taille d'un poing dans le bas-ventre de Wang Lin.
 
-De nombreuses lignes reliaient désormais le noyau doré aux méridiens. Une immense poussée d'énergie spirituelle jaillit lorsque le noyau tourna une fois sur lui-même.
+D'innombrables tentacules fins et longs s'étaient développés sur le noyau doré et se connectaient à tous les méridiens. Une immense poussée d'énergie spirituelle jaillit lorsque le noyau tourna une fois sur lui-même.
 
 Au même instant, Wang Lin ouvrit les yeux. Son regard brillait d'une intensité nouvelle alors qu'il franchissait le seuil entre l'Établissement des Fondations et la Formation du Noyau.
 
-Pendant ce temps, Li Muwan passait ses journées à la bibliothèque depuis plus d'un mois. Durant cette période, elle ne l'avait presque jamais quittée, cherchant sans relâche un moyen de briser le sceau.
+Pendant ce temps, Li Muwan passait ses journées à la bibliothèque depuis près d'un mois. Durant cette période, elle ne l'avait presque jamais quittée, cherchant sans relâche un moyen de briser le sceau.
 
 En réalité, elle avait déjà découvert trois méthodes pour ouvrir le sceau de la pilule, mais chacune comportait le risque de réduire l'efficacité du remède ou de le rendre inutile.
 
@@ -72,9 +72,9 @@ Mais malgré ses analyses, il ne parvenait pas à en saisir la nature. Quant au 
 
 L'épée volante que Sun Zhenwei avait offerte à Wang Lin n'avait toujours donné aucun signe de vie. Bien que cela fût normal, Sun Zhenwei sentait que quelque chose clochait.
 
-Cependant, il ne restait qu'un mois avant la cérémonie du couple de culture. Chaque fois qu'un membre de la secte venait le féliciter, il était obligé de les recevoir, ce qui l'empêchait de se consacrer pleinement à ses soupçons.
+Cependant, il ne restait qu'un peu plus d'un mois avant la cérémonie du couple de culture. Chaque fois que des gens de diverses sectes venaient le féliciter, il devait les recevoir, ce qui l'empêchait de se consacrer pleinement à ses soupçons.
 
-Les quelques cultivateurs au stade de l'Âme Naissante de la Secte Ciel Nuageux savaient que Li Muwan n'appréciait guère l'idée de cette cérémonie; ils ne s'interrogeaient donc pas sur sa présence prolongée à la bibliothèque. Ils avaient même ouvert les zones secrètes habituellement interdites pour elle, espérant ainsi apaiser les tensions.
+Les quelques ancêtres de la Secte Ciel Nuageux, au stade avancé de l'Âme Naissante, savaient que Li Muwan n'appréciait guère l'idée de cette cérémonie; ils ne s'interrogeaient donc pas sur sa présence prolongée à la bibliothèque. Ils avaient même grand ouvert pour elle la bibliothèque intérieure, rarement accessible, afin de réparer un peu la fissure creusée entre eux par la cérémonie.
 
 À vingt jours de la cérémonie, Li Muwan trouva enfin une autre méthode, dotée d'un taux de réussite plus élevé.
 
@@ -86,25 +86,25 @@ Après sa décision, elle enregistra promptement la méthode. Elle ne partit tou
 
 En vérité, Li Muwan avait consigné énormément de connaissances durant son mois de séjour. Ses lectures ne se limitaient pas au sceau de la pilule.
 
-Elle agissait ainsi pour tromper autrui. Li Muwan n'était pas novice dans le monde de la culture. Après tant d'épreuves, son esprit déjà vif était devenu tranchant et froid.
+Elle agissait ainsi pour tromper autrui. Li Muwan n'était pas novice dans le monde de la culture. Après tant d'épreuves, son esprit déjà brillant s'était aguerri et affûté.
 
 Sans cette lucidité, il lui aurait été presque impossible de survivre en tant que femme dans ce monde impitoyable de la culture.
 
-Cette prudence, elle l'avait largement puisée en observant Wang Lin. On pourrait dire qu'elle avait acquis une part de sa vigilance lors de leur passage dans la Mer des Démons. Cette prudence lui avait sauvé la vie à maintes reprises après leur séparation.
+Cette prudence n'était pas sans lien avec Wang Lin. On pouvait dire qu'une partie de sa vigilance était une habitude acquise peu à peu durant les années passées avec lui dans la Mer des Démons. Cette prudence lui avait sauvé la vie à maintes reprises après leur séparation.
 
 Elle savait que dans la Secte Ciel Nuageux, certains, notamment Sun Zhenwei, cherchaient à découvrir l'objet de ses recherches.
 
 Sa prudence jouait donc un rôle crucial. Même si quelqu'un venait l'espionner, il lui serait extrêmement difficile de débusquer sa véritable quête.
 
-Même en traçant la technique d'enregistrement qu'elle utilisait, les espions n'y trouveraient rien de probant. Durant son séjour, elle avait consigné tant de choses que les informations sur le sceau ne représentaient qu'une infime fraction de ses notes.
+Même en traçant la technique d'enregistrement qu'elle utilisait, les espions n'y trouveraient rien de probant. Pour tromper autrui, elle avait réparti l'essentiel de ses copies en plus de dix branches, et les informations sur le sceau ne représentaient qu'une infime fraction de cette masse.
 
-Peu après son départ, Sun Zhenwei entra dans la bibliothèque. Il sortit un jeton violet sur lequel était inscrit clairement le mot « Nuage ».
+Peu après son départ, Sun Zhenwei entra dans la bibliothèque. Il sortit un jeton or pourpre sur lequel était inscrit clairement le mot « Nuage ».
 
 À l'instant où le jeton apparut, l'espace à trois mètres devant lui se distordit et deux hommes en robes grises en émergèrent. Ils regardèrent le jeton avant de s'agenouiller: « Le disciple de la secte extérieure salue l'Ordre Nuage », déclarèrent-ils.
 
 « Cette bibliothèque a toujours été gardée par la secte extérieure. Qu'avez-vous découvert durant ce mois passé à espionner Li Muwan? » Le visage de Sun Zhenwei n'était plus empreint de douceur, mais révélait une lueur d'obscurité.
 
-L'un des hommes murmura: « Les recherches de l'Ancienne Li étaient éparpillées, allant des recettes de pilules aux effets médicaux. D'après nos observations, rien ne semblait se démarquer. »
+L'un des hommes murmura: « Les recherches de l'Ancienne Li étaient éparpillées, allant des recettes de pilules aux propriétés des herbes. D'après nos observations, rien ne semblait se démarquer. »
 
 Sun Zhenwei fronça les sourcils. Il ne croyait pas que Li Muwan gaspillerait un mois à étudier des choses insignifiantes. Après réflexion, il demanda: « A-t-elle enregistré quelque chose? »
 
@@ -116,13 +116,13 @@ L'homme en robe grise poursuivit: « L'Ancienne Li est très intelligente et pru
 
 Sun Zhenwei eut un ricanement méprisant. Il l'avait soupçonné, mais il se rappela qu'il ne restait que vingt jours. Il avait hâte de voir jusqu'où Li Muwan pourrait aller.
 
-Il n'avait plus crainte des alliés de Li Muwan. Lors de la cérémonie du couple de culture, de nombreux ancêtres au stade de l'Âme Naissante seraient présents. Si cette personne tentait quoi que ce soit, les ancêtres s'en chargeraient pour lui.
+Il ne craignait plus non plus celui que connaissait Li Muwan. La cérémonie du couple de culture avait été décrétée par plusieurs ancêtres: si cette personne venait la perturber, il n'aurait même pas à intervenir, les ancêtres au stade avancé de l'Âme Naissante feraient en sorte qu'elle ne reparte pas.
 
 Une fois le stade de la Formation du Noyau atteint, Wang Lin avait consommé plusieurs bouteilles de pilules. Alors que la tactique de l'Ancien Dieu absorbait toute l'énergie spirituelle, sa culture grimpa brusquement, le faisant passer du début au milieu du stade de la Formation du Noyau.
 
 Cependant, Wang Lin trouvait cette progression trop lente. Bravant les conséquences, il continua de prendre des pilules, mais sentit leur efficacité décliner.
 
-Li Muwan l'avait prévenu de ce phénomène. C'était ce qui arrivait au corps après une consommation excessive de médicaments. Ce mystérieux processus consistait en quoi? Bien que toute l'énergie spirituelle fût présente dans la pilule, dès qu'elle pénétrait le corps de Wang Lin, une grande partie se dissipait avant même que la tactique de l'Ancien Dieu ne puisse s'activer.
+Li Muwan l'avait prévenu de ce phénomène. C'était une forme d'accoutumance: après une consommation excessive de médicaments, le corps subit d'étranges changements. Bien que toute l'énergie spirituelle fût présente dans la pilule, dès qu'elle pénétrait le corps de Wang Lin, une grande partie se dissipait avant même que la tactique de l'Ancien Dieu ne puisse s'activer.
 
 Ce phénomène était appelé la barrière corporelle.
 
@@ -130,37 +130,37 @@ C'était un obstacle auquel tout consommateur intensif de pilules était confron
 
 Il n'y avait pas d'autre issue. Peu importe le temps qui passait, cette barrière resterait ancrée dans l'organisme.
 
-Après plusieurs jours de consommation ininterrompue, la barrière corporelle apparut chez Wang Lin. Mais il ne pouvait plus s'arrêter, et Li Muwan avait anticipé cela.
+Après plusieurs jours de consommation ininterrompue, la barrière corporelle apparut chez Wang Lin. Mais cela ne l'empêcha pas de continuer, et Li Muwan avait depuis longtemps prévu une parade.
 
 Avec une maîtresse alchimiste comme elle, Wang Lin n'avait même pas à se soucier des pilules, car elle avait tout préparé avec perfection.
 
-Wang Lin ramassa la bouteille au sol. Ce qu'elle contenait était la clé pour franchir la barrière corporelle: les pilules de Brèche de Barrière. Bien que nommées ainsi, elles ne supprimaient pas réellement la barrière; c'étaient des préparations composées de matériaux rares que Li Muwan avait créées pour aider le corps à mieux absorber l'effet des pilules.
+Wang Lin prit le deuxième flacon en partant de la droite. Ce qu'il contenait était la clé pour franchir la barrière corporelle: les pilules de Brèche de Barrière. Bien que nommées ainsi, elles ne supprimaient pas réellement la barrière; c'étaient des préparations composées de matériaux rares que Li Muwan avait créées pour aider le corps à mieux absorber l'effet des pilules.
 
 À première vue, il ne s'agissait que de pilules de rang 1, mais utilisées correctement, elles offraient des effets prodigieux.
 
-Après avoir ingéré plusieurs bouteilles d'un coup, Wang Lin constata que si la vitesse de dissipation de l'énergie spirituelle n'avait pas ralenti, le taux d'absorption par son corps avait considérablement augmenté.
+Après avoir ingéré plusieurs bouteilles d'un coup, Wang Lin constata que si la vitesse de dissipation de l'énergie spirituelle n'avait pas ralenti, le taux d'absorption par son corps s'était soudain accéléré.
 
 Pour une personne normale, ce gain de vitesse ne se traduirait que par une absorption légèrement plus rapide.
 
 Mais avec la tactique de l'Ancien Dieu, cette légère accélération offrait à Wang Lin suffisamment de temps pour capturer la masse d'énergie spirituelle qui, normalement, se serait dissipée.
 
-Grâce à cette méthode, la culture de Wang Lin bondit du milieu au stade avancé de la Formation du Noyau. Bien qu'il n'ait pas atteint le sommet de ce stade, il était désormais très proche de l'Âme Naissante.
+Grâce à cette méthode, la culture de Wang Lin bondit du milieu au stade avancé de la Formation du Noyau. Bien qu'il n'ait pas atteint la grande perfection de ce stade, il en était désormais très proche.
 
 Cependant, toutes les pilules fournies par Li Muwan étaient épuisées.
 
-Ce jour-là, Wang Lin s'éveilla de sa culture à l'intérieur de la Perle Défiant le Ciel. Il sentit un appel de l'esprit Xu Liguo. Selon son accord avec Li Muwan, il comprit que cela signifiait qu'elle avait trouvé le moyen d'ouvrir le sceau.
+Ce jour-là, Wang Lin s'éveilla de sa culture à l'intérieur de la Perle Défiant le Ciel. Il sentit un appel du démon Xu Liguo. Selon son accord avec Li Muwan, il comprit que cela signifiait qu'elle avait trouvé le moyen d'ouvrir le sceau.
 
 Wang Lin se leva et fit un pas en avant. Son corps s'estompa soudainement, comme s'il perçait l'espace pour disparaître sans laisser de trace.
 
-Dans un jardin de la cour nord, des éclats de lumière dorée apparurent du vide et fusionnèrent pour former une silhouette humaine. Rapidement, la forme se solidifia, révélant Wang Lin.
+Dans la chambre de la cour nord, des éclats de lumière dorée apparurent du vide et fusionnèrent pour former une silhouette humaine. Rapidement, la forme se solidifia, révélant Wang Lin.
 
 Dès son apparition, ses yeux se fixèrent sur l'épée volante qu'il avait laissée au sol. D'un geste, il la ramassa. Une restriction basée sur le Sens Divin avait été placée sur l'arme. La technique était ingénieuse mais, comme il s'en doutait, elle servait à la surveillance.
 
 Wang Lin lança calmement l'épée qui se planta dans le sol. Il ouvrit la porte de sa chambre et se dirigea vers la grille.
 
-Mais soudain, ses pas s'arrêtèrent: la porte s'ouvrit silencieusement et Zhou Lin entra.
+Mais soudain, ses pas s'arrêtèrent: la porte de la cour s'ouvrit silencieusement et Zhou Lin entra.
 
-En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit: « Elle m'a chargé de vous conduire quelque part pour vous rencontrer. »
+En voyant Wang Lin, les yeux du jeune homme se fixèrent sur lui. Il détecta immédiatement le changement. Avant sa retraite de porte fermée, Wang Lin n'était qu'au troisième niveau de Condensation de Qi; il ne pouvait même pas sonder sa culture actuelle. Même si Wang Lin n'était pas encore au stade avancé de la Formation du Noyau, Zhou Lin estimait qu'il se situait au moins au stade intermédiaire. Il esquissa un sourire amer et dit: « Ma maîtresse est surveillée et ne peut venir en personne. Elle m'a chargé de vous conduire quelque part. Hélas. »
 
 Wang Lin le regarda calmement et acquiesça.
 
@@ -168,9 +168,9 @@ Zhou Lin entra dans le jardin et referma la grille. Il observa Wang Lin d'un air
 
 Zhou Lin secoua la tête. Il était censé être en retraite, mais Li Muwan lui avait envoyé un message pour qu'il sorte prématurément. Orphelin sauvé par Li Muwan, il lui vouait un respect et une gratitude infinis.
 
-D'après les paroles de sa maîtresse, il comprit que le disciple qu'elle avait pris sous son aile était son ami. Il lui fallut un long moment pour assimiler l'information. C'est pourquoi, face au niveau de culture de Wang Lin, il fut seulement stupéfait et non surpris; il préféra supposer que la culture de Wang Lin avait toujours été aussi élevée et qu'il l'avait simplement dissimulée jusqu'ici.
+D'après les paroles de sa maîtresse, il comprit que le disciple qu'il avait lui-même recueilli était l'ami de sa maîtresse. Il lui fallut un long moment pour assimiler l'information. C'est pourquoi, face au niveau de culture de Wang Lin, il fut seulement stupéfait et non surpris; il préféra supposer que la culture de Wang Lin avait toujours été aussi élevée et qu'il l'avait simplement dissimulée jusqu'ici.
 
-Zhou Lin arriva devant sa chambre. Il agita la main et la porte brilla avant de s'ouvrir.
+Zhou Lin arriva devant sa chambre. Il fit un geste des deux mains: un rideau de lumière s'ouvrit soudain sur la demeure, puis la porte s'ouvrit d'elle-même vers l'intérieur.
 
 Il se retourna pour regarder Wang Lin, puis entra dans la pièce.
 
@@ -180,13 +180,13 @@ Wang Lin se méfiait de tous. Bien que Zhou Lin lui ait été sympathique et soi
 
 Sous le balayage de son Sens Divin, il ne perçut qu'une fluctuation d'énergie spirituelle provenant du fourneau à pilules; tout le reste semblait normal.
 
-Dès que Zhou Lin entra dans la pièce, il toucha sa sacoche et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de quelques pas, traçant des sceaux qu'il projeta vers l'objet. Le fourneau brilla et s'enfonça de dix centimètres dans le sol.
+Dès que Zhou Lin entra dans la pièce, il toucha sa sacoche et en sortit trois morceaux de jade qu'il plaça sous le fourneau. Il recula de deux pas, retourna les mains et projeta un éclat de lumière spirituelle. Les trois jades brillèrent d'une lueur verte et le fourneau, secoué tout entier, s'enfonça lentement de dix centimètres dans le sol.
 
-Zhou Lin prit une grande inspiration et saisit le fourneau. Après l'avoir fait pivoter plusieurs fois, un rayon de lumière apparut sur le mur devant lui.
+Zhou Lin prit une grande inspiration et saisit le fourneau. Après l'avoir fait pivoter d'un demi-tour de gauche à droite, un rayon de lumière apparut sur le mur devant lui.
 
 Ce rayon se déplaçait comme un dragon agitant sa queue, traçant avec rapidité une formation complexe.
 
-Zhou Lin recula respectueusement: « Cette formation mène à une chambre secrète que ma maîtresse a préparée en secret, dont aucun étranger n'a connaissance. Oncle, je vous en prie, entrez. Je monterai la garde ici et vous préviendrai au moindre incident. »
+Zhou Lin recula respectueusement: « Cette formation mène à une chambre secrète, une salle d'alchimie que ma maîtresse a préparée en secret, dont aucun étranger n'a connaissance. Oncle, je vous en prie, entrez. Je monterai la garde ici et vous préviendrai au moindre incident. »
 
 Wang Lin resta immobile, fixant la formation sur le mur. Après un instant, il interrogea Zhou Lin: « Votre maîtresse se trouve-t-elle dans cette chambre secrète? »
 
@@ -202,6 +202,6 @@ Il savait aussi que sa maîtresse préparait des choses mystérieuses liées à 
 
 Lorsque Wang Lin réapparut, il vit Li Muwan.
 
-Devant lui se trouvait une petite chambre. Bien que l'espace fût restreint, l'élément le plus frappant était le fourneau à pilules. Sur celui-ci trôyaient sept dragons noirs qui crachaient une fumée violette s'élevant lentement pour se condenser en une sphère pourpre.
+Devant lui se trouvait une petite chambre. Bien que l'espace fût restreint, l'élément le plus frappant était le fourneau à pilules. Sur celui-ci étaient moulés sept dragons noirs qui crachaient une fumée violette s'élevant lentement pour se condenser en une sphère pourpre.
 
-Au cœur de cette sphère se trouvait un petit fourneau surmonté d'un papier jaune. Les yeux de Li Muwan étaient rivés sur l'objet, le visage tendu. Lorsqu'elle vit Wang Lin, elle murmura: « Juste au-dessus de nous se trouve la place principale de la Secte Ciel Nuageux. Pour briser ce sceau, nous devrons emprunter la puissance des sept Fours Voleurs de Ciel. »
+Au cœur de cette sphère se trouvait un petit fourneau surmonté d'un papier jaune. Les yeux de Li Muwan étaient rivés sur l'objet, le visage tendu. Lorsqu'elle vit Wang Lin, elle murmura: « Juste au-dessus de nous se trouve la place du grand hall de la Secte Ciel Nuageux. Pour briser ce sceau, nous devrons emprunter la puissance des sept Fours à Pilules « Vol de Ciel ». »

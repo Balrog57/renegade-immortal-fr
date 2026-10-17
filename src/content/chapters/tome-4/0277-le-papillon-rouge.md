@@ -16,13 +16,13 @@ Quant à l'origine de ces esprits, nul ne le savait. En fin de compte, le maîtr
 
 Cependant, bien que son maître ait payé le prix de sa culture, elle n'avait tout de même pas pu prédire la nature de cette épreuve.
 
-Après un certain temps, cette question fut mise de côté, mais une petite partie du cœur de chacun restait dans l'attente de cette épreuve.
+Après un certain temps, cette question fut mise de côté, mais quelques rares personnes gardaient au fond du cœur l'attente de cette épreuve.
 
 Juste avant cette guerre, le maître du Papillon Rouge eut soudainement une vision. En saisissant cette chance, elle put discerner un indice sur son épreuve.
 
 C'est pourquoi, avant le conflit, elle avait demandé au Papillon Rouge de remettre ses Cinq Esprits Élémentaires à sa sœur apprentie aînée, afin que celle-ci puisse mener Xue Yu dans la bataille contre l'Alliance des Quatre Sectes.
 
-En vérité, tout s'était déroulé selon les plans de son maître. En utilisant sa sœur comme substitut, le Papillon Rouge avait pu esquiver cette épreuve.
+En vérité, tout s'était déroulé selon les plans de son maître. En utilisant sa sœur comme substitut, le Papillon Rouge avait brisé cette épreuve: il s'agissait de répondre à la tribulation, non de l'éviter.
 
 Par conséquent, dès que sa sœur mourrait, l'épreuve prendrait fin et son chemin futur serait exempt d'obstacles. C'est la raison pour laquelle elle était sortie de la faille.
 
@@ -82,15 +82,15 @@ Wang Lin serra les dents et pensa: « Explosez! Explosez! Explosez! »
 
 Soudain, les démons explosèrent à l'intérieur de la glace bleue, se transformant en un nuage de fumée noire.
 
-Le corps de Wang Lin ne ralentit jamais. Il utilisa la fumée pour disparaître de la vue. Lorsqu'il réapparut, il se trouvait déjà à plus de 1 000 kilomètres. Il reprit sa course effrénée tout en pointant à nouveau son front du doigt. Cette fois, il ordonna à tous les démons, excepté Xu Ligou, d'exploser.
+Le corps de Wang Lin ne ralentit jamais. Il utilisa la fumée pour disparaître de la vue. Lorsqu'il réapparut, il se trouvait déjà à plus de 1 000 kilomètres. Il reprit sa course effrénée tout en pointant à nouveau son front du doigt. Cette fois, il ordonna à tous les démons, excepté Xu Liguo, d'exploser.
 
-Ce n'est qu'après quelques secondes de fuite que Wang Lin sentit que certains démons avaient effectivement explosé. Bien que la fumée fût désormais plus épaisse, cette sensation d'une aiguille dans son dos persistait.
+Ce n'est qu'après quelques secondes de fuite que Wang Lin sentit que les démons avaient tous explosé. Bien que la fumée fût désormais plus épaisse, cette sensation d'une aiguille dans son dos persistait.
 
 « Tu ne pourras pas t'échapper! » La voix lugubre de la vieille femme retentit derrière lui. La tour de glace de quatre-vingts étages émergea de la fumée noire, la vieille femme siégeant à son sommet. Son visage était sombre.
 
 Wang Lin ne se retourna pas. Il frappa son sac de rangement et un nuage de fumée noire apparut. Cette fumée se condensa pour former une marionnette d'Âme Naissante. Wang Lin se retourna soudainement, formant un sceau de la main tandis que des éclairs rouges jaillissaient de ses yeux. Les éclairs pénétrèrent la marionnette alors qu'il hurlait: « Va! »
 
-Soudain, la marionnette chargea la vieille femme avec une fureur déchaînée. Cette dernière resta immobile au sommet de la tour de glace, le mépris dans ses yeux s'intensifiant. Elle tendit la main pour saisir l'ennemie, et soudain, la neige et la glace du sol s'élevèrent pour intercepter la marionnette.
+Soudain, la marionnette chargea la vieille femme avec une fureur déchaînée. Cette dernière resta immobile au sommet de la tour de glace, le mépris dans ses yeux s'intensifiant. Elle pointa le sol de la main droite, et soudain, la neige et la glace du sol se dressèrent en pointes acérées, couche après couche, pour intercepter la marionnette.
 
 Tout en continuant sa fuite, les yeux de Wang Lin devinrent froids alors qu'il pensait: « Explose! »
 
@@ -110,4 +110,4 @@ Cette brève confusion affaiblit le bouclier de glace qui l'entourait. Privé du
 
 C'est à ce moment précis que la vieille femme retrouva ses sens. Elle laissa échapper un reniflement glacial et sa robe blanche se gonfla. Dans une série de craquements, l'explosion de la marionnette fut stoppée par la formation mystérieuse inscrite sur son vêtement.
 
-Une fois la fumée dissipée, la vieille femme prit une grande inspiration. Elle retourna dans sa tour de glace sans dire un mot et s'apprêta à partir.
+Une fois la brume rouge dissipée, le visage de la vieille femme changea radicalement et elle inspira une bouffée d'air froid. Elle retourna dans sa tour de glace sans dire un mot et s'apprêta à partir.

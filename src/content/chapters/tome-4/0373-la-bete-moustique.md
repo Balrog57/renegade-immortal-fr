@@ -26,7 +26,7 @@ C'était un sac gris. En le prenant, l'homme sentit qu'il était d'une légèret
 
 « Qu'est-ce que c'est? » L'homme réfléchit un instant avant de déployer toute sa force pour tenter de déchirer le tissu. Malgré tous ses efforts, même jusqu'à ce que les veines de son front saillissent, il ne parvint pas à l'entrouvrir.
 
-« Ceci... ne serait-ce pas la soie du ver de soie céleste? Oui, cela doit l'être; autrement, comment pourrais-je échouer ainsi? La légende raconte que la soie du ver de soie céleste craint par-dessus tout l'eau. Humph, je ne crois pas que je sois incapable de brûler ceci! » L'homme colossal plaça le sac dans la cheminée.
+« Ceci... ne serait-ce pas la soie du ver de soie céleste? Oui, cela doit l'être; autrement, comment pourrais-je échouer ainsi? La légende raconte que la soie du ver de soie céleste craint par-dessus tout le feu. Humph, je ne crois pas que je sois incapable de brûler ceci! » L'homme colossal saisit un chandelier et plaça le sac au-dessus de la flamme.
 
 Il s'écoula un long moment sans qu'aucun changement ne survienne. L'homme resta stupéfait; il ne ressentait même aucune chaleur émanant du sac.
 
@@ -36,7 +36,7 @@ Lorsque la lame glissa sur l'objet, l'homme fut pétrifié par la surprise. Il r
 
 Il plaça soigneusement le sac contre son torse, puis ses yeux brillèrent de malice: « Je me demande bien où ce petit morveux a déniché un tel trésor. Il faudra que j'aille lui demander. »
 
-Fort de cette pensée, il se leva et chargea vers la prison. Sur son passage, tous ceux qui le croisaient affichaient des sourires satisfaits.
+Fort de cette pensée, il se leva et chargea vers la prison. Sur son passage, tous les bandits qui le croisaient affichaient un air obséquieux.
 
 L'homme massif atteignit rapidement la prison.
 
@@ -50,7 +50,7 @@ L'un d'eux répondit promptement: « Dans la cellule du nord. »
 
 Le garde se précipita vers une clôture métallique et la souleva en souriant: « Patron... »
 
-Avant qu'il n'ait pu achever sa phrase, il s'effondra brusquement au sol. La clôture tomba à son tour. Un bruit de chute dans l'eau retentit derrière la grille, puis un jeune homme en émergea, flottant.
+Avant qu'il n'ait pu achever sa phrase, il s'effondra brusquement au sol. La clôture tomba à son tour. Un bruit de chute dans l'eau retentit derrière la grille, puis un jeune homme au visage couvert de cicatrices en émergea, flottant.
 
 Le regard de ce jeune homme était empreint de froideur et de rage.
 
@@ -130,7 +130,7 @@ Un jour, Wang Lin ouvrit les yeux au fond du puits. Toutes ses blessures étaien
 
 « Cet endroit n'est pas une veine spirituelle, et pourtant cette eau est chargée d'énergie spirituelle. C'est assez étrange. »
 
-Après réflexion, Wang Lin s'enfonça plus profondément dans l'eau. Lorsqu'il cultivait, il flottait à la surface sans couler.
+Après réflexion, Wang Lin s'enfonça plus profondément dans l'eau. Auparavant, lorsqu'il cultivait, il restait à demi flottant, sans s'immerger complètement.
 
 Sa culture s'étant légèrement stabilisée, il décida de mener une exploration. Toutefois, son niveau actuel étant trop bas, il se fit la promesse d'appeler la bête moustique en cas de danger.
 

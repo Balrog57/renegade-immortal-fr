@@ -60,7 +60,7 @@ Après un très long moment, Chi Hu dit: « Merci. »
 
 Wang Lin esquissa un léger sourire. Il ne répondit pas, car il savait ce que Chi Hu voulait dire. Plus tôt, il lui suffisait de prononcer un seul mot pour que Sun Tai tue Chi Hu.
 
-Chi Hu prit une grande inspiration et déclara: « Soyez rassuré; je ne dirai à personne ce qui s'est passé aujourd'hui. Moi, Chi Hu, je le jure sur mon Clan du Démon Géant! »
+Chi Hu prit une grande inspiration et déclara: « Soyez rassuré; je ne dirai à personne ce qui s'est passé aujourd'hui. Moi, Chi Hu, je le jure sur mon Clan des Démons Géants! »
 
 Le temps passa lentement. Même avec la vitesse de la boussole stellaire, il fallut un certain temps pour contourner les fragments et atteindre le vortex.
 
@@ -98,9 +98,9 @@ La première réaction fut celle des ancêtres de la famille Ceng qui consultèr
 
 En conséquence, les rumeurs concernant Ceng Niu devinrent un sujet de conversation majeur parmi les cultivateurs. Beaucoup cherchaient à découvrir la véritable identité de ce mystérieux individu, mais sans succès. Le pays de Suzaku réagissait à tout cela avec une indifférence inhabituelle, comme si rien ne s'était passé.
 
-L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Ceng Niu n'était peut-être pas réellement de leur sang, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Ceng Niu dans la terreur, tout en lui procurant une pointe de fierté.
+L'individu nommé Ceng Niu devint le jeune prodige numéro un de Suzaku. Bien que la famille Ceng ait affirmé que ce Ceng Niu n'était pas le Ceng Niu en question, peu de gens les croyaient et de nombreux visiteurs vinrent les interroger. Cela plongea le véritable Ceng Niu dans la terreur, tout en lui procurant une pointe de fierté.
 
-L'affaire refit surface brusquement lorsque le jeune maître du Clan du Démon Géant revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
+L'affaire refit surface brusquement lorsque le jeune maître du Clan des Démons Géants revint il y a trois jours. Le retour de Chi Hu attira une foule de visiteurs, et Suzaku envoya même un émissaire pour enquêter sur l'affaire Ceng Niu.
 
 Chi Hu ne dit pas un mot sur l'identité de Ceng Niu, et lorsqu'il fut pressé par le messager de Suzaku, il se contenta de dire: « Je ne connais pas le vrai nom de cette personne, je sais seulement qu'on l'appelle Ceng Niu. Sa culture est impénétrable, et quant à sa rancœur envers Papillon Rouge, j'en ignore la raison. Cependant, d'après ce que j'ai vu, c'est la cultivatrice Papillon Rouge qui a continué à agir contre lui. Finalement, Ceng Niu a été contraint de réagir. Si j'ai proféré le moindre mensonge, alors que mon âme se dissipe! »
 

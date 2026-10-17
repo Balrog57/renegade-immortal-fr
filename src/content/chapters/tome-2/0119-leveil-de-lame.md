@@ -6,9 +6,9 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 119 - Soul Awakens
 slug: leveil-de-lame
 ---
-Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent. Si l'Union de Culture ne venait pas stabiliser les lieux, cet endroit se serait déjà effondré.
+Les déchirures spatiales sur le champ de bataille étranger résultent des innombrables batailles qui s'y déroulent. À présent au bord de l'effondrement, cet endroit se serait déjà écroulé et réduit au néant si l'Union de Culture ne le consolidait pas de temps à autre par de grands sortilèges.
 
-De l'autre côté des déchirures spatiales s'étend une mer d'étoiles, un lieu saturé d'énergie et peuplé de créatures étranges.
+De l'autre côté des déchirures spatiales s'étend une mer d'étoiles sans limites, un lieu saturé d'énergies violentes et peuplé d'innombrables créatures mystérieuses.
 
 Il n'est pas vrai que personne n'ait jamais réussi à sortir des déchirures. Cependant, les cultivateurs de la Transformation de l'Âme ont été téléportés presque instantanément après leur entrée, avant même que la force d'aspiration n'atteigne sa puissance maximale.
 
@@ -24,11 +24,11 @@ Un jour, une ombre gigantesque flotta soudainement vers la lumière. À y regard
 
 Une hache noire!
 
-Si des membres du Clan des Démons Géants se trouvaient ici, ils reconnaîtraient instantanément cela comme le signe de leur tribu ancestrale. Ce signe désignait un Démon Antique, autrement dit un démon de la haute Antiquité.
+Si des membres du Clan des Démons Géants se trouvaient ici, ils reconnaîtraient instantanément que cette hache désignait un démon ancestral de leur clan, autrement dit un démon de la haute Antiquité.
 
-Au moment où le corps toucha la lumière, un filet de fumée s'en échappa. Cette fumée prit la forme humaine et, animée par un regard avide, bondit vers la lumière. Il s'agissait d'une créature spéciale vivant dans le champ de bataille étranger: elle dévorait tout, qu'il s'agisse de cadavres, de trésors magiques ou d'âmes.
+Au moment où le corps toucha la lumière, un filet de fumée s'en échappa. Cette fumée se changea en une créature illusoire dotée de deux cornes sur la tête et, animée par un regard avide, bondit vers la lumière. Il s'agissait d'une espèce mystérieuse propre à l'intérieur des failles spatiales: elle dévorait tout, qu'il s'agisse de cadavres, de trésors magiques ou d'âmes.
 
-Elle se jeta sur le corps, mais poussa un cri et tenta de s'enfuir. Cependant, la lumière absorba instantanément la créature, ne laissant derrière elle que le cadavre. Après avoir dévoré cette entité, la lumière devint plus brillante et le feu d'âme en son sein gagna en intensité.
+Elle se jeta sur la lumière, mais poussa un cri et tenta de s'enfuir. Cependant, la lumière absorba instantanément la créature, ne laissant derrière elle que le cadavre. Après avoir dévoré cette entité, la lumière devint plus brillante et le feu d'âme en son sein gagna en intensité.
 
 À cet instant précis, Wang Lin s'éveilla.
 
@@ -44,7 +44,7 @@ Sans certitude, peut-être parce que ce corps contenait l'âme de Wang Lin, dava
 
 Plus il devenait puissant, plus ces créatures surgissaient en masse, comme possédées par une folie dévorante. Wang Lin ignorait que le corps qu'il occupait agissait comme une gigantesque balise dans ce monde obscur.
 
-Wang Lin ne savait pas exactement combien de temps s'était écoulé. Depuis son éveil, il ressentait une faim constante et avait dévoré de nombreuses créatures. Il savait seulement qu'à chaque fois qu'il en absorbait une, il sentait son esprit devenir plus limpide.
+Wang Lin ne savait pas exactement combien de temps s'était écoulé. Depuis son éveil, il vivait dans un état hébété et avait dévoré d'innombrables créatures. Il savait seulement qu'à chaque fois qu'il en absorbait une, il sentait son esprit devenir plus limpide.
 
 Enfin, un jour, Wang Lin se souvint du moment de sa naissance, des seize années passées avec ses parents, des jours à la Secte Heng Yue... et il se souvint enfin de Teng Huayuan.
 
@@ -60,11 +60,11 @@ Une fois tous ses souvenirs retrouvés, il réalisa que son Sens Divin était de
 
 Impuissant, Wang Lin quitta le corps du géant. Le froid revint une fois de plus. Il flotta dans l'espace, cherchant un nouveau corps à posséder. Ce processus de voyage à travers le vide pour trouver un cadavre dura très longtemps. De même, les créatures mystérieuses continuaient d'affluer pour être dévorées.
 
-Son âme devint encore plus puissante. Dévorer ces entités était progressivement devenu une habitude pour Wang Lin. Il cessait de les dévorer lorsqu'il devait se défendre, mais il les traquait activement le reste du temps.
+Son Sens Divin devint encore plus vaste. Dévorer ces entités était progressivement devenu une habitude pour Wang Lin. Peu à peu, il passa de la dévoration passive à l'attaque active.
 
-On pourrait dire que Wang Lin était resté ici trop longtemps. Assez longtemps pour fouiller ses propres souvenirs à maintes reprises et analyser tout ce qu'il avait accompli. Lorsqu'il eut fini, il réalisa qu'il n'avait plus rien à faire. C'est alors qu'il se souvint soudainement du livre de formations qu'il avait acheté.
+On pourrait dire que Wang Lin était resté ici trop longtemps. Assez longtemps pour fouiller ses propres souvenirs à maintes reprises et analyser tout ce qu'il avait accompli. Lorsqu'il eut fini, il réalisa qu'il n'avait plus rien à faire. C'est alors qu'il se souvint soudainement du livre de formations qu'il avait obtenu.
 
-Il en récita immédiatement le contenu et commença à l'étudier. Lorsqu'il eut parfaitement maîtrisé les formations de base, il retomba dans l'ennui.
+Il en rappela immédiatement le contenu et se mit à le déduire sans relâche. Lorsqu'il eut parfaitement maîtrisé les formations de base, il retomba dans l'ennui.
 
 Au cours de ces années innombrables, Wang Lin avait aperçu de nombreuses déchirures spatiales menant à la sortie, mais son Sens Divin était devenu bien trop vaste pour s'engouffrer dans ces petites failles. Cependant, il découvrit qu'à mesure que son Sens Divin grandissait, les déchirures se fissuraient lorsqu'il s'y heurtait. Mais après une ou deux collisions, la déchirure disparaissait automatiquement.
 
@@ -74,18 +74,18 @@ Cette existence perdura longtemps. Chaque fois qu'il voyait une déchirure spati
 
 Mais avec le temps, Wang Lin constata que les créatures mystérieuses du vide semblaient avoir disparu. Malgré tous ses efforts, il ne parvenait plus à en trouver une seule. Il élargit alors son champ de recherche. Un jour, Wang Lin ressentit un Sens Divin de taille similaire à la sienne. C'était la première fois qu'il trouvait une âme divine aussi puissante que lui.
 
-Une voix indistincte pénétra son âme: « Tu as réussi l'épreuve! » dit-elle.
+Une voix indistincte pénétra son âme: « Tu as franchi la limite! » dit-elle.
 
 Wang Lin fut surpris. Il utilisa rapidement la même méthode pour envoyer un message: « Comment puis-je partir d'ici? »
 
 « Partir? Pourquoi voudrais-tu partir? Il n'y a aucun moyen de s'enfuir... » Après avoir envoyé ce message, l'émetteur recula lentement et disparut.
 
-Wang Lin réfléchit. Il percevait une certaine froideur dans les paroles de cette âme. Il réalisa qu'au sein de ce vide, il existait des âmes dotées de Sens Divins aussi puissants, voire plus puissants que le sien. Ils devaient chacun posséder son propre territoire. Si Wang Lin pénétrait dans celui d'un autre, ce serait une bataille à mort.
+Wang Lin réfléchit. Il perçut un sens caché dans les paroles de cette âme. Il comprit qu'au sein de ce vide, il devait exister des âmes dotées de Sens Divins aussi puissants, voire plus puissants que le sien. Ils devaient chacun posséder son propre territoire. Si Wang Lin pénétrait dans celui d'un autre, ce serait une bataille à mort.
 
-Après cette rencontre inattendue, Wang Lin explore d'autres directions et découvrit trois autres âmes dotées de Sens Divins aussi vastes que le sien. Grâce à quelques échanges, il comprit qu'avec sa force actuelle, il était incapable de briser une déchirure spatiale en un ou deux coups.
+Après cette rencontre inattendue, Wang Lin explora d'autres directions et découvrit trois autres âmes dotées de Sens Divins aussi vastes que le sien. Grâce à quelques échanges, il comprit qu'avec sa force actuelle, il était incapable de briser une déchirure spatiale en un ou deux coups.
 
 Mais la détermination de Wang Lin à revenir était inébranlable. Il eut une idée insensée: il déploya son Sens Divin pour couvrir l'intégralité de son territoire. Plus son Sens Divin s'étendait, plus les perturbations qu'il causait étaient violentes.
 
-Wang Lin surveilla attentivement la zone couverte par son Sens Divin. En un point de cette zone, une déchirure spatiale apparut soudainement. Sans hésiter, Wang Lin envoya une parcelle de son Sens Divin dans la faille. Au moment où elle y pénétra, il coupa brusquement le lien avec cette partie de lui-même. Dès que la déchirure disparut, il perdit tout contact avec ce fragment de son Sens Divin.
+Wang Lin surveilla attentivement la zone couverte par son Sens Divin. En un point de cette zone, une minuscule déchirure spatiale apparut soudainement. Sans hésiter, Wang Lin envoya une parcelle de son Sens Divin dans la faille. Au moment où elle y pénétra, il coupa brusquement le lien avec cette partie de lui-même. Dès que la déchirure disparut, il perdit tout contact avec ce fragment de son Sens Divin.
 
-L'expression de Wang Lin ne changea pas tandis qu'il attendait l'apparition de la prochaine déchirure spatiale.
+Aucune émotion ne troubla Wang Lin tandis qu'il attendait l'apparition de la prochaine déchirure spatiale.

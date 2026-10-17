@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 172 - Earth Trial
 slug: lepreuve-de-la-terre
 ---
-Il resta là un long moment. Le chemin suivi par les piliers s'enroulait en une spirale ascendante. Wang Lin continua de voler pendant une demi-lune, suivant les piliers de pierre jusqu'à ce qu'il atteigne enfin le sommet.
+Il se trouvait déjà en ces lieux depuis très longtemps. Le chemin suivi par les piliers s'enroulait en une spirale ascendante. Wang Lin continua de voler pendant une demi-lune, suivant les piliers de pierre jusqu'à ce qu'il atteigne enfin le sommet.
 
 C'était la destination finale de ces piliers. Un vortex gigantesque se trouvait ici, et tous les piliers de pierre semblaient s'y engouffrer.
 
@@ -16,13 +16,13 @@ Wang Lin ferma légèrement les yeux. L'épée volante chargea vers le vortex et
 
 Lorsqu'elle atteignit le vortex, elle eut l'effet d'un objet s'enfonçant dans la boue. Après un instant, elle finit par traverser lentement et émergea de l'autre côté. Ce qui apparut devant Wang Lin fut un monde baigné d'une lumière éclatante. Une épaisse couche de glace recouvrait le sol. Le ciel était sombre, mais une clarté persistait, brillant et se reflétant sur la glace.
 
-Le vent tourbillonnait sur la glace avant de s'éloigner vers l'horizon.
+Une brise légère tourbillonnait sur la glace avant de s'éloigner vers l'horizon.
 
-L'endroit était d'une immensité sans fin, mais on pouvait distinguer des tours noires au loin. La plus proche ne mesurait que cent pieds de haut, mais plus les tours étaient éloignées, plus elles gagnaient en hauteur. La plus lointaine, que Wang Lin pouvait apercevoir, dépassait les quatre cents pieds.
+L'endroit était d'une immensité sans fin, mais on pouvait distinguer au loin des tours noires dressées à intervalles réguliers. La plus proche ne mesurait que cent pieds de haut, mais plus les tours étaient éloignées, plus elles gagnaient en hauteur. La plus lointaine, que Wang Lin pouvait apercevoir, dépassait les quatre cents pieds.
 
-Ces tours noires s'alignaient en une ligne droite.
+Ces tours noires s'alignaient en une ligne droite, et leur hauteur croissante donnait une impression de grandeur extrême.
 
-Elles attiraient le regard car elles étaient taillées dans une pierre d'ébène. Même lorsque la lumière se reflétait sur la glace pour frapper les tours, elle était intégralement absorbée; aucune lueur ne rebondissait sur leur surface.
+Ces tours attiraient surtout le regard car elles étaient entièrement taillées dans une roche noire. Même lorsque la lumière se reflétait sur la glace pour frapper les tours, elle était intégralement absorbée; aucune lueur ne rebondissait sur leur surface.
 
 L'épée volante marqua une pause ici avant de repartir à travers le vortex pour revenir dans la main de Wang Lin.
 
@@ -46,7 +46,7 @@ Le démon se lécha les lèvres, fixant l'âme avec une avidité gourmande avant
 
 Le regard de Wang Lin devint soudainement glacial alors que son Sens Divin du Royaume Ji jaillissait. Le démon poussa un hurlement de douleur et une fumée verte recouvrit à nouveau son corps. Il commença à supplier pour sa vie avant de marcher, malgré lui, vers le vortex.
 
-En utilisant la trace de Sens Divin qu'il avait laissée en lui, Wang Lin vit une nouvelle fois la scène de l'autre côté du tourbillon, mais l'expression de son démon changea brusquement.
+En utilisant la trace de Sens Divin qu'il avait laissée en lui, Wang Lin vit une nouvelle fois la scène de l'autre côté du tourbillon, mais son expression changea aussitôt.
 
 Cette fois, après avoir traversé le vortex, ce n'était pas un monde de glace, mais une mer de feu. C'était véritablement un océan ardent. Plus on regardait profondément, plus les flammes s'obscurcissaient. Au loin, une mer de feux noirs déchaînés colorait le ciel de pourpre. Une vague de chaleur fulgurante s'en échappa.
 
@@ -58,19 +58,19 @@ Wang Lin réfléchit un instant. Ses yeux brillèrent alors qu'il pointa de nouv
 
 Wang Lin jeta un regard au démon, sortit une autre âme et la lui lança. Le démon l'avala instantanément, affichant l'expression d'un héros prêt au sacrifice avant de charger à nouveau dans le vortex.
 
-Cette fois, le monde intérieur changea encore pour devenir un monde de sable. Il était peuplé d'innombrables grands cactus et de nombreux tornades au loin.
+Cette fois, le monde intérieur changea encore pour devenir un monde de sable. D'innombrables grands cactus s'y dressaient et, au loin, des rangées de tornades grises se déplaçaient lentement.
 
 La rangée de tours noires qui s'étirait à l'infini était identique aux deux autres mondes.
 
-Les yeux de Wang Lin pétillèrent. Les tests suivants étaient une montagne de lames et une jungle. En combinant le tout, ils représentaient le métal, le bois, l'eau, le feu et la terre: les cinq éléments.
+Les yeux de Wang Lin pétillèrent. Les épreuves suivantes qu'il testa furent une montagne de lames et une jungle d'arbres géants. En combinant le tout, ils représentaient le métal, le bois, l'eau, le feu et la terre: les cinq éléments.
 
-Wang Lin comprit soudainement pourquoi Duanmu Ji était parti à la recherche de Wang Qingyue. Avec la technique d'évasion des cinq éléments de celle-ci, quel que soit le test — montagne de lames, jungle, monde de glace, mer de feu ou désert infini —, ils pourraient les franchir avec une grande facilité.
+Wang Lin comprit soudainement pourquoi Duanmu Ji était parti à la recherche de Wang Qingyue. Avec la technique d'évasion des cinq éléments de celui-ci, quel que soit le test — montagne de lames, jungle, monde de glace, mer de feu ou désert infini —, ils pourraient les franchir avec une grande facilité.
 
 Si Wang Lin pouvait choisir, il opterait sans hésiter pour le désert. Après tout, il maîtrisait la technique d'évasion terrestre, ce qui s'avérerait extrêmement utile ici.
 
-Après réflexion, Wang Lin vola vers le sommet d'un pilier de pierre voisin et l'utilisa pour se propulser vers le vortex. Il jeta un coup d'œil au démon qui, dans un soupir, entra docilement dans le tourbillon.
+Après réflexion, Wang Lin se posa d'un bond léger sur un pilier de pierre voisin et se laissa porter lentement jusqu'au vortex. Il jeta un coup d'œil au démon qui, dans un soupir, entra docilement dans le tourbillon.
 
-Peu après, alors que la pierre était sur le point d'entrer, Wang Lin sauta brusquement derrière une autre pierre. Le démon en ressortit avec une mine déconfite et retourna dans le vortex.
+Peu après, alors que la pierre était sur le point d'entrer, Wang Lin recula aussitôt pour se poser sur une autre pierre. Le démon en ressortit avec une mine déconfite et retourna dans le vortex.
 
 Le manège se poursuivit ainsi, et lors de la quatrième tentative du démon, les yeux de Wang Lin s'illuminèrent et il chargea lui-même dans le vortex.
 
@@ -86,11 +86,11 @@ Alors que Wang Lin examinait attentivement les lieux, son expression se fit grav
 
 En l'observant de profil, il remarqua qu'un endroit de la surface était plus élevé que le reste. Il s'approcha pour mieux voir et agita la main pour créer une brise qui balaya la poussière.
 
-Une série de mots commença à apparaître sur la table. Wang Lin agit encore quelques fois, et le souffle qu'il avait généré permit aux caractères de devenir plus lisibles.
+Une série de mots commença à apparaître sur la table. Wang Lin agita encore la main à quelques reprises, et le souffle qu'il avait généré permit aux caractères de devenir plus lisibles.
 
-Il était évident que ces mots avaient été laissés par des voyageurs passés par là, recouverts par les poussières du temps.
+Il était évident que ces mots avaient été écrits sur la table par quelqu'un d'autrefois, puis recouverts peu à peu par les poussières accumulées au fil des ans.
 
-« Parce que j'ai pénétré dans ce lieu, j'ai décidé de laisser ma signature! » Ces quelques mots étaient empreints d'une telle puissance qu'ils semblaient exercer une force de poussée sur lui. Il réfléchit un instant avant de quitter la tour noire.
+« Moi, j'ai pénétré en ce lieu et j'y laisse mon écriture pour trace! » Ces quelques mots, d'une vigueur et d'une force remarquables, dégageaient une aura indicible qui semblait se précipiter sur lui. Il les contempla en silence un moment, puis redescendit et quitta la tour noire.
 
 Dès qu'il sortit, le hurlement du vent revint avec fracas. Le sable rageait dans le ciel, l'obscurcissant totalement.
 
@@ -100,11 +100,11 @@ L'expression de Wang Lin resta de marbre. Il avait anticipé une telle réaction
 
 Cette fois, Wang Lin sentit nettement une force s'opposer à son utilisation de la technique d'évasion terrestre. Cependant, cette résistance n'était pas démesurée; il lui suffit d'utiliser un peu d'énergie spirituelle pour la contrer, ce qui lui permit de franchir les 50 kilomètres en toute sécurité.
 
-Arrivé à la deuxième tour, il l'explora sans rien trouver. Il ignorait si l'Empereur Antique et ses compagnons avaient également affronté cette épreuve terrestre. Toutefois, d'après leurs propos et la mention du bouclier de glace, il semblait qu'ils allaient plutôt subir l'épreuve aquatique.
+Arrivé à la deuxième tour, il l'explora sans rien trouver. Il ignorait si l'Empereur Antique et ses compagnons avaient également affronté cette épreuve terrestre. Toutefois, d'après leurs propos et la mention du Bouclier du Vent Glacial, il semblait qu'ils comptaient plus probablement passer par l'épreuve aquatique, la terre des glaciers.
 
-À cet instant précis, à des dizaines de milliers de kilomètres devant Wang Lin, Bossu Meng se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
+À cet instant précis, à plus de dix mille kilomètres devant Wang Lin, Bossu Meng se tenait dans une tour noire, l'air sombre. Il regarda dehors et vit que les vents noirs encerclaient la zone. Le hurlement du vent, s'infiltrant dans la tour, ressemblait aux lamentations des fantômes.
 
-Il était dans un état lamentable. Même le crapaud sur son épaule semblait affaibli, agitant sa tête en émettant de faibles coassements.
+Il était dans un état lamentable. Même le crapaud sur son épaule semblait affaibli, la tête pendante, en émettant de faibles gargouillis.
 
 En touchant l'animal, il sentit une haine profonde lui envahir le cœur. Quelques mois auparavant, lui, le Seigneur Démon des Six Désirs et les autres avaient été pourchassés par le dragon rouge. Aucun d'eux n'était de taille face à la créature; même en unissant leurs forces, ils ne pouvaient l'égaler. Finalement, chacun avait dû fuir pour sa survie.
 
@@ -112,15 +112,15 @@ L'objectif de tous était le tourbillon au sommet du passage. Seul l'accès à c
 
 Ils avaient initialement prévu de traverser la première épreuve ensemble pour en réduire la difficulté grâce à leur puissance combinée, tout en préservant leur énergie spirituelle pour la seconde épreuve.
 
-Malheureusement, le dragon rouge était d'une puissance telle que sa seule présence les avait contraints à la fuite. Arrivés devant le vortex, ils s'y étaient précipités sans autre pensée que celle de survivre. En conséquence, chacun s'était retrouvé projeté dans un environnement différent.
+Malheureusement, le dragon rouge était trop puissant et ses techniques surnaturelles trop difficiles à contrer, si bien qu'ils n'avaient pu que fuir à toute vitesse. Arrivés devant le vortex, ils s'y étaient précipités sans autre pensée que celle de survivre. En conséquence, chacun s'était retrouvé projeté dans un environnement différent.
 
 Bossu Meng était tombé sur l'épreuve terrestre. En voyant le désert, son cœur sombra. Ils avaient prévu de passer par l'épreuve aquatique, le monde de glace. La dernière fois qu'ils étaient venus ici, ils avaient réussi à franchir l'épreuve de l'eau après de nombreux échecs mortels. Bien que périlleuse, cette étape était connue de ces quatre chanceux qui s'étaient préparés en conséquence.
 
 Cependant, Bossu Meng n'avait jamais affronté l'épreuve terrestre. Il n'avait eu d'autre choix que de serrer les dents et de tenter le tout pour le tout. Les cinq mille premiers kilomètres furent relativement sûrs, mais ensuite, le vent noir obscurcit le ciel et se mit à le frapper violemment. Des créatures mystérieuses nichées dans ces vents utilisaient des attaques sonores, rendant toute défense extrêmement difficile.
 
-Au début, ces créatures n'étaient pas nombreuses et il les éliminait une à une avec son poison. Mais il réalisa vite que plus il en tuait, plus elles apparaissaient. Lors de la dernière grande bataille, il avait entendu les cris d'au moins dix mille de ces êtres.
+Au début, ces créatures n'étaient pas nombreuses et il les éliminait une à une avec son poison. Mais il réalisa vite que plus il en tuait, plus elles apparaissaient. Lors de la dernière grande bataille, il avait entendu rugir en chœur au moins plusieurs dizaines de milliers de ces êtres.
 
-Pourtant, Bossu Meng était un cultivateur de la Formation de l'Âme spécialisé dans le poison. Bien que les attaques sonores l'aient obligé à redoubler de vigilance, il finit par toutes les terrasser. Mais sitôt qu'il reprenait sa marche, dix mille nouvelles créatures surgissaient.
+Pourtant, Bossu Meng était un cultivateur de la Formation de l'Âme spécialisé dans le poison. Bien que les attaques sonores l'aient obligé à redoubler de vigilance, il finit par toutes les terrasser. Mais sitôt qu'il reprenait sa marche, plus de cent mille nouvelles créatures surgissaient.
 
 Après en avoir tué cent mille, il y en avait un million. Après un million, dix millions. Dans chaque tornade noire grouillaient des créatures innombrables. En réalité, ces vents noirs étaient générés par le battement d'ailes de ces êtres.
 
@@ -128,9 +128,9 @@ Il continua son massacre jusqu'à perdre le compte. Son énergie spirituelle s'�
 
 Bien qu'il fût un cultivateur de la Formation de l'Âme doté de poisons, il était ébranlé. L'ennemi était trop nombreux; il craignait que s'il parvenait à éliminer les bêtes à l'extérieur, dix fois plus n'apparaîtraient aussitôt.
 
-Les tornades noires étaient omniprésentes dans ce désert infini. Multiplier leur nombre par dix, cent, mille ou même dix mille semblait inévitable. À cette pensée, le cœur de Bossu Meng se glaça.
+Les tornades noires étaient omniprésentes dans ce désert infini. Sans parler de dix fois plus, cent, mille ou même dix mille fois plus de créatures était tout à fait possible. À cette pensée, le cœur de Bossu Meng se glaça.
 
-Bien qu'aucune créature ne fût puissante individuellement, si elles étaient un milliard ou dix milliards, leurs attaques sonores combinées pourraient briser l'âme d'un cultivateur de la Formation de l'Âme comme lui et pulvériser son corps.
+Bien qu'aucune créature ne fût puissante individuellement, si elles étaient un milliard ou dix milliards, leurs attaques sonores combinées pourraient broyer sur-le-champ le sens divin d'un cultivateur de la Formation de l'Âme comme lui et même réduire son corps en miettes.
 
 Plus Wang Lin progressait, plus il était perplexe. Il avait parcouru plus de mille kilomètres sans rencontrer d'autre danger que quelques grandes tornades. Seule la résistance souterraine s'intensifiait, le forçant à ralentir. Plus de la moitié de son énergie spirituelle servait désormais uniquement à contrer cette pression.
 
@@ -138,13 +138,13 @@ Wang Lin apparut devant une tour noire de mille pieds de haut qui perçait le ci
 
 Il s'approcha et inspecta soigneusement chaque étage. Au sommet de la tour, il découvrit de nombreuses empreintes qui avaient troublé la poussière.
 
-Wang Lin prit une profonde inspiration. Il ignorait si quelqu'un d'autre avait déjà affronté l'épreuve terrestre avant lui, mais les marques indiquaient que ce passage était récent.
+Wang Lin prit une profonde inspiration. Il pouvait désormais l'affirmer: quelqu'un était entré avant lui dans cette épreuve terrestre, et d'après les traces dans la poussière, cette personne n'était pas passée là depuis longtemps.
 
 Debout au sommet de la tour, il observa l'horizon. De là, sa vue était immense, mais hormis les innombrables tornades noires, le désert semblait vide.
 
 Après réflexion, il décida de ralentir sa progression. Peu importait qui l'avait précédé; s'il les rencontrait, il risquait d'être dominé. Cependant, en contrôlant la distance entre eux, il pourrait emprunter leur puissance pour franchir l'épreuve sereinement.
 
-Fort de cette stratégie, Wang Lin avança avec prudence grâce à sa technique d'évasion terrestre. Il atteignit ainsi la tour située à cinq mille kilomètres du départ. En chemin, chaque fois qu'il croisait une tour noire, il envoyait le démon en éclaireur. Ce n'est qu'une fois la zone vérifiée par le démon qu'il entrait lui-même.
+Fort de cette stratégie, Wang Lin avança avec prudence grâce à sa technique d'évasion terrestre. Trois jours plus tard, il atteignit ainsi la tour située à cinq mille kilomètres du départ. En chemin, chaque fois qu'il croisait une tour noire, il envoyait le démon en éclaireur. Ce n'est qu'une fois la zone vérifiée par le démon qu'il entrait lui-même.
 
 Le temps s'écoula. Une demi-lune plus tard, les tours atteignaient huit mille pieds de hauteur. Wang Lin regarda vers le bas depuis le sommet.
 
@@ -152,13 +152,13 @@ Il avait pris l'habitude de grimper au sommet de chaque tour pour scruter l'hori
 
 Les yeux de Wang Lin brillèrent d'intérêt. Il les observa un moment avant de redescendre et de s'enfoncer de nouveau sous terre.
 
-La résistance souterraine était devenue écrasante. Il devait désormais consacrer 80 % de son énergie spirituelle à lutter contre la pression pour maintenir sa technique d'évasion terrestre. Soudain, son Sens Divin détecta une lueur noire dans le sable devant lui. Une odeur nauséabonde s'en dégagea; sans hésiter, Wang Lin sortit la pilule que Bossu Meng lui avait donnée et l'avala. Puis, il remonta à la surface.
+La résistance souterraine était devenue écrasante. Il devait désormais consacrer 80 % de son énergie spirituelle à lutter contre la pression pour maintenir sa technique d'évasion terrestre. Soudain, son Sens Divin détecta une lueur noire dans le sable devant lui. Une odeur nauséabonde s'en dégagea; sans hésiter, Wang Lin sortit la pilule antipoison que Bossu Meng lui avait donnée et la garda dans sa bouche. Puis, il remonta à la surface.
 
 C'était la première fois qu'il émergeait avant d'atteindre une tour.
 
 Dès son apparition, le hurlement des vents redoubla de violence. La pression exercée par les rafales sur son corps était douloureuse. Mais Wang Lin n'en avait cure; il confectionna un sceau et hurla: « Va! »
 
-Un vent étrange surgit soudainement. Il zigzagua entre les tornades noires avant de balayer le désert. Peu à peu, on aurait dit qu'une main invisible passait un peigne dans le sable, débusquant d'innombrables cadavres de bêtes noires.
+Un vent étrange surgit soudainement. Il zigzagua entre les tornades noires avant de balayer le désert. Peu à peu, comme remué par une main invisible, le sable se souleva par couches, dévoilant d'innombrables cadavres de bêtes noires enfouis dessous.
 
 Ces créatures, de la taille d'un poing, possédaient de fines ailes et des visages féroces aux gueules acérées.
 
@@ -184,7 +184,7 @@ Ces sons s'unirent pour former une onde sonore massive tandis que leurs sens div
 
 Wang Lin fronça les sourcils et rétracta promptement son Sens Divin. Il frappa son sac de rangement et le démon en jaillit. En voyant l'épée de pure conscience, il s'emballa et chargea sans attendre d'ordres.
 
-Alors que le démon s'élançait, l'épée de sens divin et l'onde sonore frappèrent successivement. Le démon poussa un rugissement exalté tandis que son corps se changeait en un nuage de fumée. Cette brume se répandit pour envelopper l'épée formée par les consciences des petites bêtes. Quant à l'onde sonore, elle n'eut aucun effet sur le démon qui, n'ayant pas de corps physique, la laissa passer à travers lui.
+Alors que le démon s'élançait, l'épée de sens divin et l'onde sonore frappèrent successivement. Le démon poussa un rugissement exalté tandis que son corps se changeait en un nuage de fumée noire. Cette brume se répandit pour envelopper l'épée formée par les consciences des petites bêtes. Quant à l'onde sonore, elle n'eut aucun effet sur le démon qui, n'ayant pas de corps physique, la laissa passer à travers lui.
 
 Simultanément, Wang Lin ouvrit la bouche et cracha une lueur cristalline. L'épée de cristal fondit sur la nuée de créatures, les faisant toutes s'éparpiller. Elles étaient si nombreuses qu'elles semblaient occulter le ciel.
 

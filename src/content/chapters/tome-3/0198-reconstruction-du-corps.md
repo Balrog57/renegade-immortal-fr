@@ -8,7 +8,7 @@ slug: reconstruction-du-corps
 ---
 De nombreux cristaux de glace bleus flottaient parmi les nuages, chacun mesurant environ 33 mètres de large. Wang Lin balaya la zone du regard et en décompta un total de 94.
 
-En inspectant la zone, il remarqua que l'un des cristaux était plus petit que les autres. Wang Lin reconnut immédiatement qu'il s'agissait du cristal que le Magicien Démon Céleste avait tenté de s'approprier lorsqu'il avait ouvert ce tunnel.
+En inspectant la zone, il remarqua que l'un des cristaux était plus petit que les autres. Wang Lin reconnut immédiatement qu'il s'agissait du cristal que le Magicien Démon Céleste avait saisi après avoir ouvert ce passage au prix de tant d'efforts.
 
 Les yeux de Wang Lin s'illuminèrent. Il comprenait enfin que l'héritage de connaissances de l'Ancien Dieu n'était pas constitué d'un seul cristal, mais de 94.
 
@@ -24,13 +24,13 @@ Alors que ce cycle se poursuivait, des marées de douleur engloutirent complète
 
 En réalité, Wang Lin ne devrait rien ressentir sous sa forme d'âme, mais il éprouvait une douleur irradiant dans toute son essence, comme si d'innombrables insectes le dévoraient.
 
-Ce sentiment persista. Même lorsqu'il avait absorbé la première partie de l'héritage autrefois, il n'avait pas ressenti cela. Peu à peu, il perdit le contrôle de son âme. Une partie de celle-ci s'échappa sous forme de filaments ténus et finit par l'entourer pour former un cocon.
+Ce sentiment persista. Même lorsqu'il avait absorbé la première partie de l'héritage autrefois, il n'avait pas ressenti cela. Peu à peu, il perdit le contrôle de son âme. Son âme se dispersa malgré lui, se changeant en filaments qui se refermèrent tous ensemble pour l'envelopper et former un cocon ovale.
 
 Le cocon formé par son âme brillait d'un bleu semblable aux cristaux de glace. En fait, il ressemblait à un cristal de glace légèrement plus grand.
 
-Pendant que ce processus se déroulait, l'âme de Wang Lin entra dans un état de chaos. Il avait déjà ressenti cela lorsqu'il avait absorbé la première partie de l'héritage. Pourtant, même après cette première expérience, celle-ci n'était qu'un ruisseau qui coule, tandis que celle-ci était comparable à une rivière en furie.
+Pendant que ce processus se déroulait, l'esprit de Wang Lin plongea dans le chaos. Il avait déjà ressenti cela lorsqu'il avait absorbé la première partie de l'héritage; mais, du point de vue de l'intensité, si la première fois n'avait été qu'un ruisseau qui coule, cette fois-ci était un fleuve en crue.
 
-Il se sentait comme une feuille sur cette rivière déchaînée, impuissant, emporté par les hauts et les bas des rapides. Chaque vague intensifiait sa douleur.
+Il était comme une barque solitaire sur ce fleuve, ballottée au gré de ses remous. Chaque déferlement du fleuve ajoutait encore à sa douleur.
 
 Soudain, une lumière apparut devant ses yeux. Bientôt, une scène familière se matérialisa devant lui: un espace vide où scintillaient d'innombrables points de lumière.
 
@@ -40,33 +40,33 @@ Peu après, un sentiment d'engourdissement commença à se propager dans chaque 
 
 Lentement, Wang Lin sentit son âme progresser, et ces points de lumière devinrent de plus en plus grands. Finalement, ils se transformèrent en planètes gigantesques. Bientôt, il aperçut la masse colossale de l'Ancien Dieu.
 
-Wang Lin savait déjà que le jeune homme qu'il avait vu auparavant était l'Ancien Dieu Tu Si lorsqu'il était enfant, et que le géant devant lui, de la taille d'une planète, était l'adulte Tu Si.
+Wang Lin savait déjà que le nourrisson qu'il avait vu la fois précédente était l'Ancien Dieu Tu Si dans sa jeunesse, et que le géant devant lui, de la taille d'une planète, était l'adulte Tu Si.
 
 Le visage de Tu Si semblait très ordinaire. La seule exception était la présence de huit étoiles disposées en cercle entre ses sourcils. De plus, sa peau était très rugueuse et parcourue d'innombrables fissures. Cependant, ces fissures étaient à peine visibles; il était difficile de les remarquer si l'on n'observait pas Tu Si avec une extrême attention.
 
-Mais après un examen minutieux, on pouvait voir d'innombrables crevasses. Sa peau ressemblait à une carapace fissurée.
+Mais après un examen minutieux, on pouvait voir d'innombrables crevasses. Sa peau ressemblait aux fissures d'une carapace de tortue.
 
-À ce moment-là, les yeux de Tu Si brillaient d'un éclat intense, fixant une planète au loin avec un air pensif. Peu après, sa main massive s'étendit légèrement dans un geste de saisie, faisant éclater la planète en poussière, qui disparut parmi les innombrables points lumineux.
+À ce moment-là, les yeux de Tu Si brillaient d'un éclat intense, fixant une planète au loin avec un air pensif. Peu après, sa main massive s'étendit légèrement dans un geste de saisie, faisant voler la planète en éclats; elle se changea en une brume grise qui se dissipa parmi les innombrables points lumineux.
 
-De ce nuage de poussière s'échappa une lumière dorée. D'un revers de main, la lumière changea de direction pour voler vers Tu Si. Bientôt, elle se posa dans sa paume et se mua en une pépite d'or d'environ trois mètres.
+De cette brume grise jaillit soudain une lumière dorée. Tu Si tendit la main pour la saisir: la lumière changea aussitôt de direction et vint se poser dans sa paume, où elle se mua en un bloc d'or d'environ trois mètres.
 
 L'objet était clairement une sorte de matériau. Il ressemblait à de l'or, sans en être. C'était de la pierre, mais pas tout à fait. Il présentait des stries noires. Tout en le tenant, Tu Si fit un autre geste de saisie de l'autre main et une autre planète explosa.
 
 Et ainsi, après une durée indéterminée, plus de trente planètes avaient été détruites. À ce stade, divers matériaux de couleurs différentes gisaient dans ses mains.
 
-Ensuite, les deux mains de Tu Si s'activèrent et tous les matériaux fusionnèrent. Il se concentra intensément et récita des chants qui se fondirent dans la matière.
+Ensuite, les deux mains de Tu Si s'activèrent et tous les matériaux fusionnèrent. Il se concentra intensément et, par moments, lançait quelques sceaux qui se fondaient dans la matière.
 
-Peu après, il ferma puis rouvrit les yeux. À l'instant où ses paupières s'ouvrirent, les huit étoiles sur son front commencèrent à tourner comme si elles étaient vivantes, projetant des rayons de lumière dorée dans le matériau.
+Peu après, il ferma puis rouvrit les yeux. À l'instant où ses paupières s'ouvrirent, les huit étoiles sur son front commencèrent à tourner comme si elles étaient vivantes, projetant huit rayons de lumière stellaire dans le matériau.
 
 Après un long moment, un chaudron carré aux reflets arc-en-ciel apparut dans sa main.
 
-Ce chaudron dégageait une aura de majesté. Un sentiment de puissance capable de détruire le monde s'en échappait, tandis que d'innombrables vortex apparaissaient à proximité. L'âme de Wang Lin ressentit une force d'aspiration en voyant le chaudron; un sentiment de terreur l'envahit alors qu'il le regardait nerveusement.
+Ce chaudron dégageait une aura de majesté. Un sentiment de puissance capable de détruire le monde s'en échappait, tandis que d'innombrables vortex apparaissaient à proximité. En voyant le chaudron, l'âme de Wang Lin ressentit comme une force d'aspiration; secrètement saisi d'effroi, il fixa le chaudron en silence.
 
-Tu Si observa le chaudron et secoua la tête avec un air de pitié. Il le saisit, l'examina encore un instant, puis le lança vers une planète. Il disparut à l'intérieur de celle-ci.
+Tu Si observa le chaudron et secoua légèrement la tête, le visage empreint de regret. Il le saisit, l'examina encore un instant, puis le lança vers une planète. Il disparut à l'intérieur de celle-ci.
 
 Tu Si soupira. Son corps s'anima et, après quelques pas, il disparut dans le vide.
 
-Wang Lin avait été témoin de tout ce qui venait de se produire. Tu Si tentait manifestement de créer un artefact. Après avoir utilisé plus de trente planètes comme ressources, Wang Lin aurait espéré que ce chaudron carré soit un objet légendaire, mais il n'aurait jamais imaginé que Tu Si se contenterait de l'observer un instant avant de le rejeter par déception.
+Wang Lin avait été témoin de tout ce qui venait de se produire. Tu Si tentait manifestement de créer un artefact. Après avoir utilisé plus de trente planètes comme ressources, Wang Lin jugeait que ce chaudron carré appartenait déjà à la catégorie des artefacts légendaires, mais il n'aurait jamais imaginé que Tu Si n'en serait pas satisfait et qu'après l'avoir regardé quelques instants, il le jetterait négligemment.
 
 Si un tel trésor tombait entre les mains d'un cultivateur, celui-ci serait pratiquement invincible. Wang Lin fixa la planète où le chaudron s'était abîmé et soupira intérieurement.
 
@@ -92,9 +92,9 @@ En jetant un coup d'œil au miroir, Wang Lin fut soudain pris d'un frisson. Il f
 
 Dans le miroir, il voyait cette silhouette semi-transparente. Bien que translucide, on pouvait en distinguer les traits: ce n'était pas le visage fin et élégant de Ma Liang, mais un visage très ordinaire.
 
-Wang Lin resta immobile, fixant son reflet avec une émotion complexe. Il se fit la promesse qu'un jour, il retrouverait son ancien corps.
+Wang Lin resta immobile, fixant son reflet avec une émotion complexe. Il n'avait jamais imaginé qu'un jour il reverrait cette apparence qui avait été la sienne.
 
-Il avait oublié depuis combien d'années son corps avait été détruit par Teng Huayuan, mais il n'avait jamais oublié le corps que ses parents lui avaient donné. Chaque souvenir de ce passé remplissait son cœur d'une haine viscérale envers Teng Huayuan.
+Il avait oublié depuis combien d'années son corps avait été détruit par Teng Huayuan, mais il n'avait jamais oublié le visage que ses parents lui avaient donné. Chaque fois qu'il y repensait, son cœur se remplissait de regret et d'une haine profonde envers Teng Huayuan.
 
 Après un long moment, Wang Lin soupira et retrouva son calme. Il déplaça son âme pour entourer rapidement un autre cristal de glace bleu.
 
@@ -120,11 +120,11 @@ Graduellement, le doute s'installa dans le cœur de Wang Lin. Il n'avait fait qu
 
 Ce corps, à l'exception de l'absence de noyau, était exactement le même qu'un corps normal.
 
-Wang Lin réfléchit et se coupa le bras gauche. Du sang rouge perla de la blessure. En contemplant ce sang, Wang Lin comprit enfin: il avait véritablement recréé son ancien corps.
+Wang Lin réfléchit un instant et, d'un geste de la main gauche, s'entailla le bras. Une plaie apparut et du sang rouge vif en coula. En contemplant ce sang, Wang Lin comprit enfin: il avait véritablement recréé son ancien corps.
 
-Il ferma les yeux et, après avoir inspecté son âme, constata qu'elle n'avait subi aucun changement. Au sein de son âme, le cercle de foudre éclatante entourant le noyau du dévoreur d'âmes tournait, et chaque rotation envoyait des ondes qui étendaient la puissance de son âme.
+Il ferma les yeux et, après avoir inspecté son âme, constata qu'elle n'avait subi aucun changement. Dans sa Mer des Âmes, l'éclair rouge formé par le sens divin du Royaume Ji tournoyait autour du noyau d'âme du dévoreur d'âmes, et à chaque tour, de grandes vagues se levaient et se propageaient alentour.
 
-Au sein de son âme, que ce soit la perle défiant le ciel ou le royaume Ji, tout restait inchangé.
+Dans toute sa Mer des Âmes, que ce soit la perle défiant le ciel ou le sens divin du Royaume Ji, rien n'était anormal.
 
 Après avoir soigneusement exploré son corps, il ouvrit les yeux et serra les poings.
 
@@ -134,9 +134,9 @@ Il leva la tête, le regard devenu glacial. Il déclara: « Teng Huayuan, tu as 
 
 Les yeux de Wang Lin s'illuminèrent. Lorsqu'il était arrivé ici, il ne s'attendait pas à trouver 94 cristaux de glace, ce qui avait bouleversé son plan initial.
 
-Il avait prévu d'absorber l'héritage de connaissances, de trouver la pierre d'encre nécessaire à la fabrication du Drapeau de Restriction, puis de retourner dans son corps pour quitter la Terre de l'Ancien Dieu où il était prisonnier depuis tant d'années.
+Il avait prévu d'absorber l'héritage de connaissances, de trouver la pierre d'encre nécessaire à la fabrication du Drapeau de Restriction, puis de retourner à l'endroit où il avait laissé son corps pour quitter la Terre de l'Ancien Dieu où il était prisonnier depuis tant d'années.
 
-Si tout s'était déroulé comme prévu, sa récolte aurait été immense. Non seulement il avait appris l'art des restrictions et la méthode de fabrication du drapeau, mais il avait aussi obtenu les sacs de rangement de Bossu Meng et de l'Empereur Antique. Sans oublier le piège à bêtes et les 20 pierres spirituelles de qualité supérieure. Avec les 10 instruments, sa récolte aurait été véritablement prodigieuse.
+Si tout s'était déroulé comme prévu, sa récolte aurait été immense. Non seulement il avait appris l'art des restrictions et la méthode de fabrication du drapeau, mais il avait aussi obtenu les sacs de rangement de Bossu Meng et de l'Empereur Antique. Sans oublier l'anneau de contrôle des bêtes et les 20 pierres spirituelles de qualité supérieure. Avec les 10 instruments, sa récolte aurait été véritablement prodigieuse.
 
 Et il y avait, par-dessus tout, l'inestimable héritage de connaissances.
 
@@ -150,7 +150,7 @@ Au fil du temps, la vitesse à laquelle Wang Lin fusionnait avec les cristaux de
 
 Wang Lin restait assis tranquillement en tailleur dans le cocon. Il ferma les yeux. Après un très long moment, il les rouvrit, et ils dégageaient une lumière mystérieuse.
 
-Bien que Wang Lin ressemble désormais au jeune homme de Zhao d'autrefois, l'aura qu'il dégageait était radicalement différente. Avec ses cheveux blancs flottant autour de lui, il exhalait l'allure d'un étranger extrêmement dangereux, tel un fauve sauvage dont la simple présence glaçait les cœurs.
+Bien que Wang Lin ressemble désormais au jeune homme de Zhao d'autrefois, l'aura qu'il dégageait était radicalement différente. Avec ses cheveux blancs flottant autour de lui, il donnait l'impression qu'il valait mieux ne pas l'approcher, d'un danger extrême, tel un fauve sauvage dont la seule vue glaçait les cœurs.
 
 L'étoile sur son front était apparue après le 57e cristal. À l'instant où elle se manifesta, il eut l'impression que son esprit était frappé par la foudre, devenant d'une clarté absolue.
 
@@ -162,13 +162,13 @@ Bien qu'il ignorât comment obtenir les autres étoiles, Wang Lin était convain
 
 Même s'il en savait peu sur cette étoile, après avoir absorbé plus de 50 cristaux, Wang Lin comprit pourquoi son corps s'était reformé.
 
-Les Anciens Dieux se consacraient à la perfection de leur enveloppe charnelle. Chaque Ancien Dieu utilisait toute l'énergie spirituelle absorbée pour affiner son corps. En conséquence, même pour eux, le corps finissait par atteindre une limite de croissance.
+Les Anciens Dieux se consacraient à la perfection de leur enveloppe charnelle. Chaque Ancien Dieu employait la plus grande partie de l'énergie spirituelle obtenue à renforcer son corps. En conséquence, même pour eux, le corps finissait par atteindre une limite de croissance.
 
-À ce stade, il devenait nécessaire d'étendre le corps, sans quoi la culture s'arrêterait. Seule l'expansion corporelle permettait d'atteindre des niveaux de culture supérieurs. On pouvait dire que plus le corps d'un Ancien Dieu était vaste, plus il pouvait stocker d'énergie spirituelle. Une fois cette limite atteinte, le corps subissait une reconstruction, ce qui équivalait à atteindre un nouveau stade de culture.
+À ce stade, il devenait nécessaire d'étendre le corps, sans quoi la culture s'arrêterait. Seule l'expansion corporelle permettait d'atteindre des niveaux de culture supérieurs. On pouvait dire que plus le corps d'un Ancien Dieu était vaste, plus il pouvait stocker d'énergie spirituelle. Une fois cette limite atteinte, le corps subissait une reconstruction, ce qui constituait un changement qualitatif.
 
 Chaque Ancien Dieu traversait d'innombrables expansions et reconstructions corporelles. Plus ils en subissaient, plus ils devenaient puissants.
 
-Et après chaque reconstruction, la taille de l'âme de l'Ancien Dieu augmentait également. Pour les Anciens Dieux, il n'y avait pas de stades de culture distincts; seule comptait la force de l'âme et celle du corps.
+Et après chaque reconstruction, la puissance de l'âme de l'Ancien Dieu augmentait également. Pour les Anciens Dieux, il n'y avait pas de stades de culture distincts; seule comptait la force de l'âme et celle du corps.
 
 L'héritage de connaissances que Wang Lin avait absorbé contenait les souvenirs d'une vie entière de Tu Si. Bien que ce dernier soit mort à l'âge adulte en pratiquant la Technique Divine de Transformation de l'Encre Fluide, il avait vécu huit reconstructions corporelles.
 
@@ -176,7 +176,7 @@ Chaque reconstruction était une expérience inoubliable pour les Anciens Dieux,
 
 Mais en entrant dans cette zone et en absorbant pleinement un cristal de glace, le processus de reconstruction s'était automatiquement déclenché.
 
-Ainsi, le corps de Wang Lin avait commencé à se reformer, utilisant son âme comme noyau et sa mémoire comme modèle. Pour lui, ce processus n'avait rien d'exceptionnel; quiconque recevrait cet héritage subirait la même épreuve.
+Ainsi, le corps de Wang Lin avait commencé à se reformer, l'âme servant de guide et la mémoire de fondement. Tout cela n'avait rien d'une chance fortuite; quiconque recevrait cet héritage de l'Ancien Dieu subirait le même processus.
 
 Cependant, cette reformation lui permit de recréer son corps originel.
 
@@ -192,9 +192,9 @@ Mais selon l'analyse de Wang Lin, sa reconstruction n'était pas achevée, sans 
 
 Ce n'étaient que des spéculations, car il n'avait pas encore acquis ce souvenir, mais il était certain d'obtenir la réponse sous peu.
 
-Après avoir absorbé 57 cristaux de glace, les fragments de chants, de techniques et de souvenirs commençaient à s'assembler. Cela plongeait son âme dans un chaos profond. Parfois, l'âme de Wang Lin devenait confuse; il croyait être Tu Si, puis se rappelait qu'il était Wang Lin.
+Après avoir absorbé 57 cristaux de glace, les fragments de chants, de techniques et de souvenirs commençaient à s'assembler en fragments de conscience plus complets, qui se mêlaient à son âme au point qu'il ne pouvait plus les distinguer. Parfois, l'âme de Wang Lin devenait confuse; il croyait être Tu Si, puis se rappelait qu'il était Wang Lin.
 
-Ce tumulte intérieur lui inspirait un sentiment de désespoir. Bien que Tu Si fût mort et qu'une possession fût impossible, Wang Lin craignait qu'en absorbant tout l'héritage sans une vigilance constante, il ne finisse par croire qu'il était Tu Si et en oublier sa véritable identité.
+Ce tumulte intérieur lui inspirait un vif sentiment de danger. Bien que Tu Si fût mort et qu'une possession fût impossible, Wang Lin craignait qu'en absorbant tout l'héritage sans une vigilance constante, il ne finisse par croire qu'il était Tu Si et en oublier sa véritable identité.
 
 C'est pour cette raison qu'il avait ralenti son rythme, n'attaquant le cristal suivant qu'après avoir totalement assimilé le précédent.
 
@@ -202,4 +202,4 @@ Grâce à cela, le chaos de son âme s'était considérablement atténué. Bien 
 
 Malgré la lenteur du processus, la constance était la clé. Wang Lin ne se pressait pas et absorbait l'héritage avec patience.
 
-Le temps s'écoulait. Wang Lin avait totalement perdu la notion du temps dans ce lieu. Chaque fois qu'il sortait de son cocon, son âme demeurait dans un état de chaos pendant une durée indéterminée.
+Le temps s'écoulait. Wang Lin avait totalement perdu la notion du temps dans ce lieu. Chaque fois qu'il fusionnait et se changeait en cocon, il sombrait dans le chaos, et il ne parvenait plus à démêler combien de jours s'étaient écoulés.

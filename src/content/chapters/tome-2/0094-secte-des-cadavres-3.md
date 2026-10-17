@@ -14,19 +14,19 @@ Wu Yu hocha vivement la tête et dit sincèrement: « Je peux utiliser le reste 
 
 Wang Lin fixa Wu Yu. Il esquissa un mince sourire et dit: « Si vous avez la capacité d'ouvrir une telle formation, pourquoi ne pas y retourner vous-même? »
 
-Wu Yu soupira et répondit: « La marionnette cadavérique ne peut s'éloigner de moi de plus de cinquante kilomètres, et je ne peux pas m'éloigner d'elle de cinquante kilomètres non plus. Si la marionnette sortait de ce périmètre, elle mourrait instantanément. Si j'avais encore mon corps, mon âme en subirait de lourdes blessures, mais je ne suis plus qu'une Âme Naissante. Je n'ai vraiment pas envie de mourir avec cette marionnette. »
+Wu Yu soupira et répondit: « La marionnette cadavérique ne peut s'éloigner de moi de plus de cinquante kilomètres, et je ne peux pas m'éloigner d'elle de cinquante kilomètres non plus. Si la distance entre nous dépassait cette limite, elle mourrait instantanément. Si j'avais encore mon corps, mon esprit en subirait de lourds dommages, mais je ne suis plus qu'une Âme Naissante: mon Âme Naissante se dissiperait et s'éteindrait. Je ne veux pas mourir, et à moins d'y être acculé, je n'ai surtout pas envie de périr avec cette marionnette. »
 
-La fréquence des tremblements de la statue augmentait. Voyant que l'expression de Wang Lin n'avait toujours pas changé, Wu Yu serra la mâchoire et déclara: « Moi, Wu Yu, je jure sur mon Âme Naissante que je ne vous veux aucun mal, alors je vous en prie, aidez-moi, jeune ami. Je peux même vous offrir Adai. Les neuf talismans étaient déjà sur lui lorsque je l'ai trouvé, et ils possèdent une puissance inimaginable. »
+La fréquence des tremblements de la statue augmentait. Voyant que l'expression de Wang Lin n'avait toujours pas changé, Wu Yu serra la mâchoire et déclara: « Moi, Wu Yu, je jure sur mon Âme Naissante que, si mes paroles contiennent la moindre fausseté, je serai dévoré par la marionnette cadavérique. Jeune ami, aidez-moi une fois. Je peux même vous offrir Adai. Les neuf talismans de papier sur lui étaient déjà là lorsque je l'ai trouvé, et ils possèdent une puissance insondable. »
 
-« De plus, je sens que votre énergie spirituelle possède des propriétés Yin. J'utilise moi aussi une méthode de culture Yin. Je suppose que vous êtes venu ici pour utiliser l'énergie Yin afin de cultiver. L'énergie Yin de cet endroit est de type Infernal. Si vous allez à la Secte des Cadavres, il existe un lieu de culture qui possède une énergie Yin de type Terrestre. »
+« De plus, je sens que votre énergie spirituelle penche vers l'attribut Yin. La méthode de culture de ma Secte des Cadavres est elle aussi de nature Yin. Puisque vous avez pu venir dans cette jungle, je suppose que vous cultivez en vous servant de l'énergie Yin d'ici. L'énergie Yin de ces ruines appartient aux lieux de Yin infernal parmi Ciel, Terre, Mystique et Infernal. Si vous allez à la Secte des Cadavres, cela vous sera très profitable, car elle possède un lieu de retraite doté d'une énergie Yin de qualité Terrestre. »
 
 Wang Lin plissa les yeux et demanda: « Si la Secte des Cadavres possède un lieu doté d'une énergie Yin de type Terrestre, pourquoi êtes-vous venu ici pour tenter votre percée? »
 
 Wu Yu lança à Wang Lin un regard profond. Ce jeune homme était extrêmement prudent. Peu importait ses tentatives de persuasion, le visage de Wang Lin restait de marbre.
 
-Après avoir entendu la question de Wang Lin, il eut un sourire amer et dit: « Jeune ami, j'ai déjà juré sur mon Âme Naissante. Cette marionnette cadavérique n'est pas un être vivant. Chaque fois qu'elle est sur le point de réaliser une percée, elle doit absorber l'énergie Yin de type Infernal, c'est pourquoi je l'ai amenée ici. »
+Après avoir entendu la question de Wang Lin, il eut un sourire amer et dit: « Jeune ami, j'ai déjà juré sur mon Âme Naissante. Cette marionnette cadavérique n'est pas un être vivant. Chaque fois que sa puissance atteint un certain palier, elle doit absorber une fois l'énergie Yin de qualité Infernale, c'est pourquoi je l'ai amenée ici. »
 
-À cet instant précis, la statue trembla violemment et des fissures apparurent sur tout son corps. Une série de craquements retentit alors que les brèches s'élargissaient, donnant l'impression que la statue était sur le point de s'effondrer. L'expression de Wu Yu devint soudainement très anxieuse: « Jeune ami, si vous souhaitez cultiver votre technique Yin à la Secte des Cadavres, vous pouvez prétendre être mon disciple. Je vous téléporterai directement là-bas et ils ne se douteront de rien. Jeune ami, réfléchissez-y bien. »
+À cet instant précis, la statue trembla violemment et des fissures apparurent sur tout son corps. Une série de craquements retentit alors que les brèches s'élargissaient, donnant l'impression que la statue était sur le point de s'effondrer. L'expression de Wu Yu devint soudainement très anxieuse: « Jeune ami, si vous souhaitez cultiver votre technique Yin à la Secte des Cadavres, vous pouvez prétendre être mon disciple. Je vous téléporterai directement là-bas et ils ne se douteront de rien. Jeune ami, le temps presse, décidez vous-même. »
 
 À peine eut-il fini de parler que la statue secoua violemment une nouvelle fois. Les fissures couvraient désormais l'intégralité de la structure et certains fragments commencèrent à se détacher.
 
@@ -38,37 +38,37 @@ Wu Yu prit une profonde inspiration. Ses mains enchaînaient les mudras de mani�
 
 Au même moment, la statue se brisa dans un fracas assourdissant et une voix glaciale résonna: « Maître, je veux voir où vous comptez fuir cette fois. »
 
-Wu Yu afficha un visage horrifié. Sans attendre que la formation de transfert ne soit totalement ouverte, il cria: « Jeune ami, partez vite! Que je survive ou non dépend désormais de vous! » Sur ces mots, il fut aspiré dans la statue de pierre qui flottait dans les airs.
+Wu Yu afficha un visage horrifié. Sans attendre que la formation de transfert ne soit totalement ouverte, il cria: « Jeune ami, partez vite! Que je survive ou non dépend désormais de vous! » Sur ces mots, son corps disparut en un instant et s'engouffra dans l'être de pierre qui flottait, assis, à côté.
 
 Simultanément, Wang Lin se précipita vers la formation de transfert. Celle-ci était instable et semblait sur le point de s'effondrer. L'étrange compagnon hésita un instant avant de suivre Wang Lin dans le transfert.
 
-À l'instant précis où ils disparurent, la statue s'effondra complètement. Le jeune homme apparut avec un sourire moqueur, mais au moment où il aperçut la formation de transfert, son expression changea radicalement.
+À cet instant précis, la statue s'effondra dans un fracas. L'homme desséché, le regard moqueur, s'apprêtait à parler quand il fixa soudain la formation de transfert, et son visage changea plusieurs fois de couleur.
 
-Quant à Wang Lin, après avoir pénétré dans la formation, il se retrouva dans un tunnel. Il sentait son corps s'étirer tandis qu'une multitude de points lumineux défilaient comme des étoiles dans le ciel. En regardant en arrière, il vit Adai, qui scrutait les environs avec inquiétude. Lorsqu'Adai remarqua que Wang Lin le regardait, il lui cria quelques mots étranges. Ses yeux n'étaient plus empreints de méfiance envers Wang Lin, mais de pure confusion.
+Quant à Wang Lin, après avoir pénétré dans la formation, il se retrouva dans un tunnel circulaire. Il sentait son corps s'étirer à l'infini tandis qu'une multitude de points lumineux scintillaient autour de lui comme des étoiles. En regardant en arrière, il vit Adai qui le suivait, l'air stupéfait, regardant sans cesse à gauche et à droite. Lorsqu'Adai remarqua que Wang Lin le regardait, il lui montra les dents. Ses yeux n'étaient plus empreints de méfiance envers Wang Lin, mais de pure confusion.
 
 Après un temps indéterminé, une lumière apparut au bout du tunnel. Elle grandit de plus en plus jusqu'à envahir presque tout l'espace. Wang Lin et Adai ressentirent une force d'aspiration provenant de cette clarté et furent aspirés à leur tour.
 
-La Secte des Cadavres était une secte démoniaque de Zhao. Bien qu'elle fût moins puissante que la première des sectes, la Secte du Démon Céleste, elle s'avérait bien plus mystérieuse. On pouvait dire qu'elle était la secte la plus énigmatique de tout le royaume.
+La Secte des Cadavres était une secte démoniaque de Zhao. Bien qu'elle fût moins puissante que la première des sectes démoniaques, la Secte Tian Dao, elle l'emportait par son caractère insondable. Sans exagérer, on pouvait dire qu'elle était la secte la plus mystérieuse de tout Zhao.
 
 Le nombre de ses disciples, sa localisation exacte, ou encore le nombre de cultivateurs de l'Âme Naissante qu'elle comptait, tout cela demeurait inconnu du monde extérieur. Des rumeurs allaient même jusqu'à prétendre que la Secte des Cadavres avait été totalement anéantie.
 
-En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de culture. Les disciples de la Secte des Cadavres n'avaient qu'une seule chance pour raffiner un cadavre; une fois l'acte accompli, ils ne pourraient plus jamais en raffiner un autre.
+En somme, c'était une secte extrêmement discrète, mais une discrétion telle que le monde ne pouvait l'oublier. La seule chose dont les gens savaient était leur méthode de culture. Les disciples de la Secte des Cadavres n'avaient qu'une seule chance dans leur vie pour raffiner un cadavre; une fois le raffinage réussi, il ne changeait plus jamais de toute leur vie.
 
-C'était une technique prodigieuse. Pour les disciples de cette secte, outre leur propre culture, le développement de leur marionnette cadavérique était tout aussi crucial. La raison pour laquelle cette technique était si miraculeuse résidait dans le fait que, cinq cents ans auparavant, un disciple au stade de l'Établissement des Fondations avait possédé une marionnette cadavérique de niveau Âme Naissante.
+C'était une technique pleine de miracles. Pour les disciples de cette secte, outre leur propre culture, le niveau de culture de leur marionnette cadavérique était tout aussi crucial. Si cette technique passait pour miraculeuse, c'est que, cinq cents ans auparavant, un disciple de la Secte des Cadavres au stade avancé de l'Établissement des Fondations avait eu à ses côtés une marionnette cadavérique de niveau Âme Naissante.
 
 Bien que ce disciple ait mystérieusement disparu, son exploit avait provoqué une immense agitation à Zhao, particulièrement chez les cultivateurs de bas niveau qui rêvaient désormais de rejoindre la Secte des Cadavres. Mais peu importaient les recherches entreprises, la secte demeurait comme un nuage errant, insaisissable pour quiconque.
 
-Dans une région située à l'extrême ouest de Zhao se trouvait une zone enveloppée d'énergie Yin toute l'année. Même les cultivateurs n'y mettaient souvent les pieds. Car outre l'omniprésence du Yin, la zone était imprégnée d'une énergie des Neuf Terres que même les cultivateurs de l'Âme Naissante évitaient. Quiconque se trouvait en dessous de ce stade subissait de graves blessures au simple contact de cette essence.
+Dans l'extrême ouest de Zhao s'étendait une immense plaine enveloppée toute l'année d'une énergie glaciale de Yin. Même les cultivateurs y mettaient rarement les pieds. Car outre l'omniprésence du Yin, la zone était imprégnée d'une énergie des Neuf Terres que même les cultivateurs de l'Âme Naissante évitaient. Quiconque se trouvait en dessous de ce stade subissait de graves blessures au simple contact de cette essence.
 
 On supposait que des zones soumises à de telles restrictions devaient dissimuler de grands trésors. C'était la conviction de nombreux cultivateurs. Finalement, quelques sectes démoniaques s'étaient alliées pour envoyer leurs experts briser ces entraves et fouiller la zone. Mais à leur grande surprise, il n'y avait absolument rien. Certains avaient même étendu leurs recherches dans les profondeurs du sol, sans succès.
 
 Cette chasse au trésor était devenue une plaisanterie, et ils furent moqués par les sectes orthodoxes. Peu à peu, en raison de ses dangers et de l'absence de butin, l'endroit fut oublié de tous.
 
-Au centre de la plaine se trouvait une zone noyée dans le brouillard. Sous ce brouillard s'étendait un marais qui occupait la majeure partie du terrain, et sous ce dernier se cachait une grotte gigantesque. De nombreux tunnels reliaient cette caverne centrale à des grottes plus petites, formant un réseau souterrain complexe.
+Au centre de la plaine se trouvait une zone noyée dans le brouillard. Sous ce brouillard s'étendait un marais qui occupait la majeure partie du terrain, et sous ce dernier se cachait une grotte gigantesque. De nombreux tunnels reliaient cette caverne centrale à des grottes plus petites, formant un réseau souterrain complexe qui se ramifiait encore et encore, si bien que presque tout le sous-sol de la plaine était densément occupé par des grottes grandes et petites.
 
 C'était là que résidait la plus mystérieuse secte démoniaque de Zhao: la Secte des Cadavres.
 
-La plus grande grotte, située au centre, était aussi vaste que les salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. Des vagues infinies d'énergie pourpre émanaient de ces piliers. D'innombrables symboles et motifs étranges y étaient gravés, reliés par des filaments de lumière. Vu d'en haut, on pouvait voir que ces lueurs formaient un total de quarante-neuf anneaux de lumière.
+La plus grande grotte, située au centre, était aussi vaste que les salles principales de la Secte Heng Yue. À l'intérieur se dressaient huit piliers de bois violet formant une formation. De lentes ondulations d'énergie spirituelle s'en échappaient, sans commencement ni fin. D'innombrables symboles et motifs antiques y étaient gravés, d'aspect solennel. Entre les huit piliers, plusieurs lignes de lumière phosphorescente les reliaient; vues d'en haut, ces lignes s'entrecroisaient pour former des anneaux de lumière imbriqués les uns dans les autres, quarante-neuf en tout.
 
 Assis sur ces huit piliers, huit jeunes hommes trônaient, chacun avec un cercueil flottant derrière lui.
 
@@ -76,9 +76,9 @@ Soudain, cinq anneaux s'illuminèrent et un jeune homme vêtu de bleu apparut da
 
 Le jeune homme en bleu s'inclina rapidement: « Branche de la Secte des Cadavres de Lu, dans un pays de culture de rang 2. Je m'appelle Lin Yi et je suis ici pour participer à l'examen de promotion. »
 
-Le jeune homme sur le pilier lui lança un regard glacial: « Dix-huitième grotte sur la droite. Va. »
+Le jeune homme sur le pilier le regarda d'un air indifférent: « Dix-huitième grotte sur la droite. Va. »
 
-Le disciple en bleu joignit respectueusement ses mains et quitta la formation. Après avoir calculé un instant, il pénétra dans une grotte. Le jeune homme sur le pilier hocha légèrement la tête, cessa de prêter attention à l'arrivant et referma les yeux.
+Le disciple en bleu salua respectueusement, poing dans la paume, et quitta la formation. Après avoir regardé autour de lui et calculé un instant, il s'engouffra dans l'un des innombrables passages. Le jeune homme sur le pilier hocha légèrement la tête, cessa de prêter attention à l'arrivant et referma les yeux.
 
 Au cours des heures suivantes, d'autres personnes émergèrent de la formation de transfert. L'individu le plus puissant fit s'allumer treize anneaux, ce qui poussa deux des huit jeunes hommes à ouvrir les yeux. Le temps passa lentement. Les anneaux de la formation s'illuminèrent de nouveau, cette fois pour six unités.
 
@@ -88,4 +88,4 @@ Un jeune homme sur un pilier ouvrit les yeux. À cet instant précis, une lueur 
 
 « Il semble qu'un Senior arrive. » Deux autres jeunes hommes ouvrirent les yeux. Une pointe de respect se lisait dans leurs regards froids alors qu'ils fixaient la formation.
 
-Au même moment, un grondement émana de la structure tandis que les anneaux de lumière s'allumaient un à un, dépassant le nombre de vingt-huit. Les quatre derniers jeunes hommes ouvrirent les yeux, l'expression frappée par la stupeur. Lorsque quarante anneaux furent illuminés, ils se levèrent tous, tombèrent à genoux et formèrent un signe étrange en s'exclamant: « Bienvenue, Senior... »
+À peine ces mots prononcés, l'énergie spirituelle à l'extérieur de la formation se contracta brusquement, un grondement émana de la structure et les anneaux de lumière, de vingt-huit, s'allumèrent frénétiquement, l'un après l'autre. Les quatre derniers jeunes hommes ouvrirent les yeux, frappés de stupeur. Lorsque quarante anneaux furent illuminés, les huit se levèrent sans un mot, mirent tous un genou à terre, formèrent d'étranges sceaux des deux mains et s'écrièrent d'une même voix: « Bienvenue, Senior... »

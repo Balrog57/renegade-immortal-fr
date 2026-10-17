@@ -12,13 +12,13 @@ Le regard de Wang Lin était glacial alors qu'il fixait Zhou Wutai et avança d'
 
 Tous les dix pas, il tuerait quelqu'un!
 
-Il ne fallut que dix pas à Wang Lin pour rattraper l'homme vêtu de noir. Une lueur étrange traversa son regard alors qu'il soupirait: « Tu as gâché mon humeur, tu dois donc mourir. » Sur ces mots, il fit un geste désinvolte de la main droite, projetant le domaine Ji qui pénétra instantanément dans le corps du cultivateur.
+Il ne fallut que dix pas à Wang Lin pour rattraper l'homme vêtu de noir. Une lueur étrange traversa son regard alors qu'il soupirait: « Tu as gâché mon humeur, tu dois donc mourir. » Sur ces mots, il fit un geste désinvolte de la main droite, projetant le Royaume Ji, devenu un éclair rouge, qui pénétra instantanément dans le corps du cultivateur.
 
 L'homme n'eut même pas le temps d'émettre un son avant de chuter du ciel. En percutant le sol, il atterrit précisément sur l'amas de neige devant l'atelier de fer de Da Niu.
 
-Son Âme Naissante n'eut pas le temps de s'échapper; elle fut instantanément pulvérisée par le domaine Ji.
+Son Âme Naissante n'eut pas le temps de s'échapper; elle fut instantanément pulvérisée par le Royaume Ji.
 
-Bien que le domaine Ji de Wang Lin ne puisse pas tuer des cultivateurs au stade de la Formation de l'Âme avant qu'il n'obtienne le trésor planétaire de Suzaku, il était amplement suffisant pour des cultivateurs de l'Âme Naissante.
+Bien que le Royaume Ji de Wang Lin ne puisse pas tuer des cultivateurs au stade de la Formation de l'Âme avant qu'il n'obtienne le trésor planétaire de Suzaku, il était amplement suffisant pour des cultivateurs de l'Âme Naissante.
 
 Après avoir tué ces trois hommes, il se retourna et fixa Zhou Wutai.
 
@@ -40,7 +40,7 @@ Cependant, s'ils avaient été trois, il n'aurait pu qu'espérer une impasse. À
 
 Le corps de Wang Lin redescendit lentement du ciel. Dès qu'il toucha la neige, sa silhouette se rétracta instantanément. Il passa de l'état de démon à celui de mortel, puis à celui d'un vieillard au crépuscule de sa vie.
 
-Il lissa ses vêtements et prit une gorgée de sa gourde avant de le lancer vers Zhou Wutai. En cet instant, il ne différait en rien d'un simple mortel.
+Il lissa ses vêtements et prit une gorgée de sa gourde avant de la lancer vers Zhou Wutai. En cet instant, il ne différait en rien d'un simple mortel.
 
 Zhou Wutai rattrapa la gourde, fixant l'atelier de Wang Lin avec une pointe d'effroi. Il se jura qu'il devait faire de Wang Lin un ami, et non un ennemi.
 
@@ -68,7 +68,7 @@ Le vieil homme arracha une cuisse de poulet et en croqua une bouchée. « Jeune 
 
 Intrigué, Wang Lin fixa le vieil homme et demanda: « L'Aîné sait-il ce qui se passe au sein de l'Alliance des Quatre Sectes? »
 
-Le vieil homme redressa fièrement le menton: « Il n'est rien dans ce monde de culture que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance a réussi à dérober un Chaudron de Pluie à un cultivateur de Xue Yu, et ils sont tous là pour le récupérer. Ce n'est qu'une bagatelle. »
+Le vieil homme redressa fièrement le menton: « Il n'est rien dans ce monde de culture que ce vieux ne sache. C'est simplement qu'un petit cultivateur de l'Alliance s'est procuré, on ne sait comment, un Chaudron de Pluie de Xue Yu; naturellement, ils sont venus le réclamer. Ce n'est qu'une bagatelle. »
 
 « Un Chaudron de Pluie... » Wang Lin réfléchit un instant. Il se souvint soudainement que, plus de dix ans auparavant, Zhou Wutai, le cultivateur aux grandes oreilles, avait eu des démêlés avec le prince, et que le terme Chaudron de Pluie y avait été prononcé.
 

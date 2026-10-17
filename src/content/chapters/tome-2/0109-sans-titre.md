@@ -12,7 +12,7 @@ Grâce à ce guide, les sectes qui avaient déjà perdu leurs jetons purent expl
 
 La Secte He Huan fut la dernière secte à détenir encore un jeton. La disciple féminine qui dirigeait le groupe ne remit pas l'objet, mais tourna son regard vers la seule autre secte restante: la Vallée Wu Feng.
 
-Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix ans, au regard perçant. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de culture en méditation pour parfaire sa formation.
+Le chef de la Vallée Wu Feng était un vieil homme approchant les soixante-dix ans, au regard perçant. Il se trouvait déjà au stade de pseudo-Formation du Noyau et n'aurait besoin que de quelques années de retraite pour avoir peut-être une chance d'atteindre la Formation du Noyau.
 
 Il fixa Wang Lin et ricana: « Petit morveux, ce vieux doit te remercier d'avoir rassemblé tous ces jetons pour moi. Laisse-les derrière toi et disparais d'ici. »
 
@@ -20,7 +20,7 @@ Le front du chef de la Secte He Huan se détendit. Après avoir échangé quelqu
 
 Le regard de Wang Lin balaya le groupe avant de se poser sur l'arrogant vieillard. Puis, sans dire un mot, il frappa son sac de rangement et un grain de riz cyan apparut en suspens dans l'air.
 
-L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. Il était convaincu qu'il aurait pu éliminer ces gens aussi proprement que Wang Lin l'avait fait. À ses yeux, ce dernier cachait sa force, mais il n'atteignait au mieux que le pic du stade avancé de l'Établissement des Fondations. Il était persuadé que son propre niveau de culture était équivalent à celui de Wang Lin. Et puisque, à niveau égal, il détenait l'un des trésors emblématiques de la Vallée Wu Feng — l'Ombrelle de Foudre Céleste et de Feu Éolien —, sa victoire lui semblait assurée.
+L'expression du vieil homme laissait transparaître son mépris pour Wang Lin. Il était convaincu qu'il aurait pu éliminer ces gens aussi proprement que Wang Lin l'avait fait. À ses yeux, ce dernier cachait sa force, mais il n'atteignait au mieux que le pic du stade avancé de l'Établissement des Fondations. Il était persuadé que son propre niveau de culture était équivalent à celui de Wang Lin. Et puisque, à niveau égal, il détenait l'un des trésors emblématiques de la Vallée Wu Feng — l'Ombrelle de Foudre Céleste, de Vent et de Feu —, sa victoire lui semblait assurée.
 
 En voyant que Wang Lin ne sortait qu'un insignifiant petit point de lumière, un sourire condescendant s'étira sur son visage. Il cria à ses disciples: « Reculez tous, et regardez comment je vais détruire cet insolent gamin! »
 
@@ -32,7 +32,7 @@ Wang Lin fit un mouvement brusque et saisit le stupéfait Li Shan alors qu'il re
 
 Le visage du vieil homme était empreint de dédain. Il frappa l'ombrelle pour l'ouvrir, et aussitôt, un faisceau de lumière dorée jaillit.
 
-Soudain, un vent étrange surgit et tourbillonna autour de l'ombrelle. Les flammes dorées semblèrent alors prendre vie, embrasant instantanément la zone environnante.
+Soudain, un vent étrange surgit et tourbillonna autour de l'ombrelle. Les flammes dorées peintes sur l'ombrelle semblèrent alors prendre vie et se détachèrent d'elle, tandis qu'une chaleur étouffante envahissait les alentours.
 
 C’est à cet instant précis que le grain cyan percuta la bordure du vent étrange. L'instant d'après, le feu doré enveloppa le grain.
 
@@ -44,7 +44,7 @@ Le spectacle était aussi impétueux que dix mille chevaux au galop. En un insta
 
 Le vent est normalement intangible, mais sous la puissance du Royaume Ji, il se mua en éclats de glace bleue qui s'écrasèrent au sol. Les flammes dorées suivirent: elles n'eurent même pas le temps de s'éteindre qu'elles furent figées. Pour qui regardait de près, on aurait dit que les flammes brûlaient encore prisonnières de la glace.
 
-Quant au trésor de la Vallée Wu Feng, l'Ombrelle de Foudre Céleste et de Feu Éolien, il resta figé en position ouverte, recouvert par la glace bleue.
+Quant au trésor de la Vallée Wu Feng, l'Ombrelle de Foudre Céleste, de Vent et de Feu, il resta figé à demi ouvert, recouvert par la glace bleue.
 
 Le vieillard au stade pseudo-Formation du Noyau n'eut même pas le temps de réagir. Son visage, encore empreint de dédain et de fierté, fut instantanément pétrifié par la glace.
 
@@ -56,16 +56,16 @@ L'esprit de Li Shan devint vide alors qu'il contemplait, hébété, la scène qu
 
 Les disciples de la Secte He Huan avaient réussi à échapper au désastre car ils se trouvaient à 500 mètres de là, mais ils n'osaient plus bouger, le regard glacial de Wang Lin les clouant sur place.
 
-Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glace plongea les membres de la Secte He Huan dans un état de stupeur totale. En observant ces quelque dix sculptures de glace, la disciple féminine qui dirigeait le groupe pâlit et sortit le jeton sans l'ombre d'une hésitation. Une fois le jeton déposé avec précaution au sol, Wang Lin lança: « Combien y a-t-il de jetons au total? »
+Voir les disciples de la Vallée Wu Feng se transformer ainsi en statues de glace plongea les membres de la Secte He Huan dans un état de stupeur totale. En observant la dizaine de sculptures de glace aux postures variées qui se trouvaient non loin, la disciple féminine qui dirigeait le groupe pâlit et sortit le jeton sans l'ombre d'une hésitation. Une fois le jeton déposé avec précaution au sol, Wang Lin lança: « Combien y a-t-il de jetons au total? »
 
 Le corps de la jeune femme trembla. Réprimant sa peur, elle répondit d'une voix vacillante: « Il y en a sept en tout. »
 
-L'expression de Wang Lin resta inchangée tandis qu'il calculait mentalement. La Vallée Wu Feng n'avait pas de jeton; dans sa main, il possédait celui de la Secte Piao Miao, deux de la Secte Xuan Dao et un de la Secte He Huan. Il en avait quatre au total. Il ne lui en manquait que trois pour tous les obtenir. Cependant, le jeton appartenant à la secte des cadavres avait disparu dans la formation avec les disciples au stade avancé de l'Établissement des Fondations. Hormis celui-là, il n'en restait que deux.
+L'expression de Wang Lin resta inchangée tandis qu'il calculait mentalement. La Vallée Wu Feng n'avait pas de jeton; dans sa main, il possédait celui de la Secte Piao Miao, deux de la Secte Xuan Dao et un de la Secte He Huan. Il en avait quatre au total. Il ne lui en manquait que trois pour tous les obtenir. Cependant, le jeton appartenant à la Secte des Cadavres avait disparu dans la formation avec les disciples au stade avancé de l'Établissement des Fondations. Hormis celui-là, il n'en restait que deux.
 
-Avant d'entrer dans la Vallée Jue Ming, Yi Zizai lui avait expliqué que la compétition consistait à dérober les jetons d'autrui. Grâce à cela et aux explications de Situ Nan sur l'accès au champ de bataille étranger, il commençait à entrevoir l'ensemble du mécanisme. Il se tourna vers la disciple et demanda soudainement:
+Avant d'entrer dans la Vallée Jue Ming, Ye Zizai lui avait expliqué que la compétition consistait à dérober les jetons d'autrui. Grâce à cela et aux explications de Situ Nan sur l'accès au champ de bataille étranger, il commençait à entrevoir l'ensemble du mécanisme. Il se tourna vers la disciple et demanda soudainement:
 
 « Combien de places sont disponibles pour entrer sur le champ de bataille étranger? »
 
-La jeune femme fut surprise. Elle hésita, mais face au regard froid de Wang Lin, elle frissonna et répondit précipitamment: « Trois. Il n'y a que trois places. » Craignant que ses explications ne soient insuffisantes et qu'elles ne provoquent la colère de Wang Lin, elle ajouta aussitôt: « Il y a sept jetons au total, mais si plus de trois jetons subsistent sans être détruits, la vallée perd sa chance d'entrer sur le champ de bataille étranger. »
+La jeune femme fut surprise. Elle hésita, mais face au regard froid de Wang Lin, elle frissonna et répondit précipitamment: « Trois. Il n'y a que trois places. » Craignant que ses explications ne soient insuffisantes et qu'elles ne provoquent la colère de Wang Lin, elle ajouta aussitôt: « Il y a sept jetons au total, mais lorsque le passage vers le champ de bataille étranger s'ouvrira, si plus de trois jetons subsistent sans avoir été détruits, le pays de Zhao perdra son droit d'entrer sur le champ de bataille étranger. »
 
-Wang Lin lui lança un regard et la disciple fut immédiatement saisie par l'effroi. Elle dit d'un ton anxieux: « Camarade... camarade cultivateur, parmi les trois jetons restants, je sais où se trouve l'un d'eux. Si vous nous laissez partir, je peux vous le dire. »
+Wang Lin lui lança un regard et la disciple fut immédiatement saisie par l'effroi. Elle dit d'un ton anxieux: « Camarade... camarade cultivateur, parmi les trois jetons restants, je sais où se trouve l'un d'eux. Si vous m'épargnez, je vous dirai tout sans rien cacher. »

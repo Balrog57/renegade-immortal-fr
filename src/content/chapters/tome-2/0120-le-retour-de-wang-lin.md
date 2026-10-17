@@ -6,15 +6,15 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 120 - Return of Wang Lin
 slug: le-retour-de-wang-lin
 ---
-Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un rocher gigantesque, il triait le butin accumulé ces dernières années lorsque son jade de transmission se mit soudainement à vibrer.
+Xu Hao était un disciple de sixième génération de la Secte des Arts Spirituels, située dans le pays de culture de rang 3 de Julu. Assis au sommet d'un gigantesque rocher flottant, il triait le butin accumulé ces dernières années lorsque son jade de transmission se mit soudainement à vibrer.
 
 Xu Hao fronça les sourcils et pressa le jade contre son front. Une voix extrêmement pressée pénétra son esprit.
 
-« Vite, rendez-vous au 48e degré nord-ouest. Un fragment de sens divin sans propriétaire vient d'apparaître. »
+« Vite, rendez-vous dans l'angle nord-ouest, à 48 degrés. Un fragment de sens divin sans propriétaire vient d'apparaître. »
 
 L'émetteur du message était Ge Yang, un ami qu'il avait rencontré sur le champ de bataille étranger. Tous deux étaient des cultivateurs au stade avancé de l'Établissement des Fondations. Ils avaient l'habitude de s'allier pour tuer et piller les trésors des autres, avec une entente remarquable.
 
-Dès que Xu Hao entendit ces mots, son expression changea instantanément, envahie par l'excitation. Le sens divin était la chose la plus précieuse du champ de bataille étranger, bien plus encore que les trésors magiques.
+Dès que Xu Hao entendit ces mots, son expression changea instantanément, envahie par l'excitation. Le sens divin était la chose la plus précieuse du champ de bataille étranger, plus rare encore que les trésors magiques intacts.
 
 Seuls les puissants cultivateurs, dont l'Âme Naissante avait quitté le corps après la mort puis avait été anéantie à son tour, avaient une infime chance de laisser échapper un fragment de sens divin.
 
@@ -22,7 +22,7 @@ Xu Hao n'en comprenait pas tous les usages précis, mais il savait qu'à son arr
 
 Ces objets devaient être livrés dès leur obtention en échange d'une récompense spécifique. Fort de cette pensée, Xu Hao s'élança rapidement vers le nord-ouest.
 
-À son arrivée, il découvrit qu'une foule immense s'était déjà rassemblée. Au loin, une vaste barrière entourait un point bleu qui flottait immobile dans les airs.
+À son arrivée, il découvrit qu'une foule immense s'était déjà rassemblée. Au loin, un immense dôme enfermait une vaste tache de lumière bleue qui flottait immobile dans les airs.
 
 Les yeux de Xu Hao brillèrent de cupidité; il tapa sur son sac de rangement, en sortit une fourche noire et chargea.
 
@@ -68,19 +68,19 @@ Mai Liang avait repéré un objet magique. Il ressemblait énormément à la lue
 
 Il adressa un sourire amer à l'épée violette devant lui, pensant secrètement que si sa navette ne lui avait pas été volée, il aurait facilement pu la rattraper sans être dans un tel état.
 
-En repensant au navire, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan des Démons Géants le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
+En repensant à la navette, ses pensées dérivèrent vers cette lueur noire. Depuis plus de dix ans, il ne pouvait s'empêcher de fantasmer sur ce trésor. Puisque des membres du Clan des Démons Géants le pourchassaient pour s'en emparer, il devait s'agir d'un objet défiant les cieux.
 
 Chaque fois qu'il y pensait, il ne pouvait que soupirer.
 
-Mai Liang marmonna pour lui-même: « Le tunnel de transfert pour sortir d'ici ne s'ouvrira ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans sera atteinte. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi! Surtout, n'accepte pas le frère aîné: c'est une bête à face humaine. Moi seul t'aime vraiment. »
+Mai Liang marmonna pour lui-même: « Le tunnel de transfert pour sortir d'ici ne s'ouvre ni trop tôt, ni trop tard, mais précisément quand ma limite de cinquante ans est sur le point d'expirer. Mais quoi qu'il arrive, je pourrai enfin rentrer chez moi. Ces dernières années sont devenues bien trop dangereuses à cause de ces sens divins qui apparaissent partout. Une fois que j'aurai récupéré cette épée volante, je retournerai au point de rassemblement. Héhé, petite sœur apprentie, attends-moi! Surtout, n'accepte pas le frère aîné: c'est une bête à face humaine. Moi seul t'aime vraiment. »
 
-« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle ne doit pas paraître de plus de trente ans. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Sanctuaire du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme de vingt ans. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré.
+« Mais cinquante ans se sont écoulés... À quoi ressemble ma petite sœur maintenant? Eh bien... elle pratique la méthode du Dieu de la Guerre et j'ai entendu dire qu'elle permet de rester jeune, alors elle doit avoir l'air d'une trentaine d'années. Si elle est devenue une vieille femme, alors autant que j'abandonne. Humph, sur les dizaines de personnes du Temple du Dieu de la Guerre venues ici, il n'en reste qu'une dizaine. À mon retour, le chef de secte concentrera ses ressources sur moi pour favoriser ma culture. Et le flacon de pilules que j'ai reçu est extrêmement puissant. Une seule pilule me maintiendra jeune. Même de retour, je ne ressemblerai qu'à un jeune homme d'une vingtaine d'années. Grâce à cela, je pourrai séduire toutes les femmes que je veux! » Mai Liang laissa échapper un sourire malicieux, soudainement revigoré; il lui sembla même aller un peu plus vite.
 
 Alors qu'il se complaisait dans sa fierté, deux rayons de lumière convergèrent brusquement vers lui. En un clin d'œil, ils furent à ses côtés. L'un des rayons le dépassa pour fondre sur l'épée violette, révélant un jeune homme d'environ trente ans. Son visage s'assombrit alors qu'il saisissait l'épée volante et la rangeait dans son sac de rangement sans dire un mot. Il se tourna ensuite pour fixer froidement Mai Liang.
 
-L'autre rayon de lumière révéla un homme d'âge mûr vêtu de noir. Il se tint derrière Mai Liang et lui adressa un léger sourire.
+L'autre rayon de lumière révéla un homme d'âge mûr vêtu de noir. Il se tint derrière Mai Liang et lui lança un sourire équivoque.
 
-Le visage de Mai Liang se décomposa: « Xu Hao, Ge Yang! » grommela-t-il intérieurement. Il les avait déjà aperçus de loin; ces deux-là avaient une réputation sinistre, car ils aimaient tuer pour voler les trésors d'autrui.
+Le visage de Mai Liang se décomposa: « Xu Hao, Ge Yang! » s'exclama-t-il malgré lui, se lamentant intérieurement. Il les avait déjà aperçus de loin; ces deux-là avaient une réputation sinistre, car ils aimaient tuer pour voler les trésors d'autrui.
 
 Décidé, Mai Liang arracha son sac de rangement et le lança à Xu Hao. « Camarades cultivateurs, voici tout ce que j'ai trouvé durant mon séjour ici. Prenez tout. Je ne demande qu'une chose: ma vie! » implora-t-il.
 
@@ -90,7 +90,7 @@ Mai Liang se détendit et s'apprêtait à reculer quand son expression changea b
 
 Ge Yang fit un geste de la main. Alors que l'épée revenait vers lui, il déclara: « Je n'ai jamais dit que je te laisserais partir. » Sur ce, il s'éloigna sans même accorder un regard à Mai Liang.
 
-Xu Hao émit un grognement et secoua la tête. Il savait que Ge Yang avait tué Mai Liang par pure frustration de ne pas avoir eu le sac en premier. Ils avaient un accord: le sac appartient au premier qui s'en saisit, et personne ne peut contester.
+Xu Hao claqua la langue et secoua la tête devant Mai Liang agonisant, puis il se leva pour suivre Ge Yang. Il savait que Ge Yang avait tué Mai Liang par pure frustration de ne pas avoir eu le sac en premier. Ils avaient un accord: le sac appartient au premier qui s'en saisit, et personne ne peut contester.
 
 Si Mai Liang avait donné le sac à Ge Yang, Xu Hao aurait agi de la même manière.
 
@@ -104,6 +104,6 @@ La blessure à sa poitrine se referma à vue d'œil. Rapidement, il fut totaleme
 
 Soudain, partout sur le champ de bataille étranger, tous les fragments de sens divin appartenant à Wang Lin — qu'ils fussent dans un sac de rangement, en cours de raffinage, logés dans un corps ou disputés par des combattants — se mirent à vibrer violemment.
 
-Les morceaux de son sens divin commencèrent à converger les uns après les autres vers lui, depuis les confins du champ de bataille étranger.
+Les morceaux de son sens divin jaillirent frénétiquement des trésors magiques, des sacs de rangement et des corps et, sans se soucier de rien, commencèrent à converger les uns après les autres vers lui, depuis les confins du champ de bataille étranger.
 
 Une panique sans précédent s'empara du cœur de chaque cultivateur qui détenait un fragment de ce sens divin.

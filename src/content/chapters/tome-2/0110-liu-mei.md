@@ -12,9 +12,9 @@ La disciple serra les dents et répondit précipitamment: « C'est au point de r
 
 Le visage de Li Shan changea soudainement, puis il laissa échapper un sourire amer sous le regard de Wang Lin qui pesait sur lui.
 
-« Il est entre les mains de l'aînée Liu Mei... » Il voulut mentir, mais dès qu'il croisa le regard de Wang Lin, il ne put s'empêcher de dire la vérité. Il n'avait jamais ressenti une telle pression, même lors de sa rencontre avec l'ancêtre Pu Nanzi.
+« Il est entre les mains de l'Ancienne Liu Mei... » Il voulut mentir, mais dès qu'il croisa le regard de Wang Lin, il ne put s'empêcher de dire la vérité. Il n'avait jamais ressenti une telle pression, même lors de sa rencontre avec l'ancêtre Pu Nanzi.
 
-« L'aînée Liu Mei? » Wang Lin réfléchit un instant. L'image d'une femme d'une grande beauté lui vint à l'esprit. Il regarda Li Shan et demanda: « A-t-elle atteint le stade de l'Établissement des Fondations? »
+« L'Ancienne Liu Mei? » Wang Lin réfléchit un instant. L'image d'une femme d'une grande beauté lui vint à l'esprit. Il regarda Li Shan et demanda: « A-t-elle atteint le stade de l'Établissement des Fondations? »
 
 Li Shan hocha la tête avec envie et dit: « L'ancêtre Pu Nanzi l'a personnellement aidée à atteindre le stade de l'Établissement des Fondations. »
 
@@ -36,9 +36,9 @@ D'un ton neutre, Wang Lin déclara: « Li Shan, fais appeler les membres de la S
 
 Le front de Li Shan était couvert de sueur. Avec un sourire amer, il sortit un jade de son sac de rangement. Il le pressa contre son front, puis, après un instant, le lança en avant. Le jade fendit l'air comme une flèche jusqu'à disparaître de vue.
 
-Peu après, des anneaux de lumière apparurent au sol, s'élevant pour devenir des piliers de lumière.
+Peu après, des anneaux de lumière blanche apparurent soudain au sol, de plus en plus lumineux, jusqu'à former une série d'immenses piliers circulaires qui s'élevaient vers le ciel.
 
-À l'intérieur de ces piliers, dix personnes étaient assises en tailleur. Parmi elles se trouvait une jeune femme d'une beauté capable de faire bondir les cœurs. Son expression était solennelle, ses mains formaient un vase et un plumeau flottait au-dessus de sa tête. Ce dernier ressemblait à des cheveux blancs d'où émanaient des ondes de lumière blanche.
+À l'intérieur de ces piliers, environ dix personnes étaient assises en tailleur, chacune formant un sceau de la main. Parmi elles se trouvait une jeune femme d'une beauté capable de faire bondir les cœurs. Son expression était solennelle, ses mains formaient un vase et un plumeau flottait au-dessus de sa tête. Ses filaments ressemblaient à des cheveux blancs et son manche à du jade noir comme l'encre; des ondes circulaires s'en propageaient en cercles successifs.
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il scrutait les visages de ces dix individus.
 
@@ -50,19 +50,19 @@ Cet homme était le frère de Liu Mei, Liu Feng. Wang Lin l'examina de son Sens 
 
 Wang Lin les fixa et soupira: « Secte Xuan Dao... peu importe. Remettez-moi votre jeton et je ne vous compliquerai pas la tâche. »
 
-L'un des dix disciples, un vieil homme, se leva en soupirant: « Quel junior arrogant, exigeant de nous remettre notre jeton sur-le-champ. Liu Feng, le connais-tu? »
+L'un des dix disciples, un vieil homme, se leva, le visage sombre, fixa Wang Lin et dit avec un ricanement froid: « D'où sort ce junior? Quelle arrogance, exigeant de nous remettre notre jeton sur-le-champ. Liu Feng, le connais-tu? »
 
 Liu Feng sourit amèrement et répondit: « Frère aîné Ma, il... c'est Wang Lin. »
 
-Le vieil homme nommé Ma fut surpris, puis il ricana: « C'est donc toi. Mais même si tu as atteint l'Établissement des Fondations, tu n'as pas le droit d'être aussi arrogant devant nous. Dégage! » Sur ces mots, il agita la main et une immense bourrasque de vent s'abattit sur Wang Lin.
+Le vieil homme nommé Ma fut surpris, puis il ricana: « C'est donc toi. Mais même si tu as atteint l'Établissement des Fondations, tu n'as pas le droit d'être aussi arrogant devant nous. Dégage! » Sur ces mots, il secoua sa manche et un ouragan se leva à même le sol pour atteindre Wang Lin en un clin d'œil.
 
-Wang Lin ne prit même pas la peine d'esquiver. À l'instant où le vent atteignit moins de cinq mètres de lui, il se transforma en éclats de glace qui chutèrent au sol. Simultanément, un éclair de lumière verte jaillit; le corps du vieil homme Ma fut secoué par un trou béant qui apparut dans sa poitrine. Puis, son corps entier se figea et il rendit l'âme.
+Wang Lin ne prit même pas la peine d'esquiver. À l'instant où le vent atteignit moins de cinq mètres de lui, il se transforma en éclats de glace qui chutèrent au sol. Simultanément, un éclair de lumière verte jaillit; le corps du vieil homme Ma fut secoué tandis qu'une blessure grosse comme un bol apparaissait dans sa poitrine. Aussitôt, son corps entier se changea en statue de glace et il rendit l'âme.
 
 Wang Lin avait la sensation profonde que depuis que son énergie spirituelle avait changé, une puissante intention de tuer habitait son esprit. Il avait failli perdre le contrôle à plusieurs reprises, alors il avait simplement renoncé à tenter de la maîtriser.
 
-L'épée brillait d'un éclat vert en tournoyant autour de Wang Lin, sa pointe dirigée vers les membres de la Secte Xuan Dao. Si l'on regardait attentivement la course de l'arme, elle semblait marquer des pauses, mais Wang Lin la forçait aussitôt à reprendre son mouvement.
+L'épée brillait d'un éclat vert et dégageait une aura sinistre en rôdant autour de Wang Lin, sa pointe dirigée vers les membres de la Secte Xuan Dao. Si l'on regardait attentivement la course de l'arme, elle semblait marquer des pauses, mais Wang Lin la forçait aussitôt à reprendre son mouvement.
 
-L'expression des disciples de la Secte Xuan Dao changea radicalement. Liu Feng, stupéfait, sentit son cœur trembler et des perles de sueur perler sur son front. Il avait toujours considéré Wang Lin comme un modèle à atteindre; lorsqu'il avait atteint l'Établissement des Fondations grâce à Pu Nanzi un an auparavant, il pensait l'avoir surpassé.
+L'expression des disciples de la Secte Xuan Dao changea radicalement. Liu Feng, stupéfait, sentit son cœur trembler et des perles de sueur perler sur son front. Il avait toujours secrètement considéré Wang Lin comme un but à dépasser; lorsqu'il avait atteint l'Établissement des Fondations grâce à Pu Nanzi un an auparavant, il avait cru l'avoir complètement surpassé.
 
 Mais au vu de la situation, non seulement Wang Lin avait déjà atteint l'Établissement des Fondations, mais sa culture était également d'une étrangeté absolue. Le frère aîné Ma, qui se trouvait au stade intermédiaire de l'Établissement des Fondations, était mort en une seule attaque.
 
@@ -76,6 +76,6 @@ Après avoir rangé le jeton, Wang Lin lança un regard glacial à Liu Mei. Il s
 
 Après un long moment, Liu Mei détourna les yeux et soupira. Son charme inégalable semblait n'avoir aucun effet sur Wang Lin.
 
-De retour dans sa grotte, Wang Lin sortit les cinq jetons. Après une courte réflexion, il écrasa quatre d'entre eux sans la moindre hésitation et rangea le dernier dans son sac de rangement. Il utilisa sa technique de force d'attraction pour déplacer des rochers afin de sceller l'entrée de la grotte. Une fois ses formations défensives installées, il commença sa culture en méditation fermée.
+De retour dans sa grotte, Wang Lin sortit les cinq jetons. Après une courte réflexion, il écrasa quatre d'entre eux sans la moindre hésitation et rangea le dernier dans son sac de rangement. Il utilisa sa technique d'attraction pour déplacer des rochers afin de sceller l'entrée de la grotte. Après avoir disposé quelques formations d'alerte, il commença sa culture en méditation fermée.
 
 Il devait être pleinement préparé pour la bataille qui l'attendait dans deux mois.

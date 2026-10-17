@@ -10,7 +10,7 @@ Après avoir projeté sa paume, toute l'énergie spirituelle contenue dans le co
 
 Lorsque Papillon Rouge leva la tête, Wang Lin avait déjà disparu. Un éclat de froideur passa dans son regard.
 
-« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, son cœur Dao est puissant, il est extrêmement prudent, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être un disciple d'élite formé à grands frais par un pays de culture de rang 5 de la planète Suzaku... » Les yeux de Papillon Rouge s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
+« Cette personne a accès à une matrice de transfert, son identité ne doit donc pas être ordinaire. De plus, ses techniques de Dao sont extraordinaires, il est audacieux et méticuleux, possède un domaine étrange et une quantité infinie de trésors magiques. Il doit être un disciple d'élite formé à grands frais par un pays de culture de rang 5 de la planète Suzaku... » Les yeux de Papillon Rouge s'illuminèrent alors qu'elle se retournait pour s'envoler au loin, à la recherche d'énergie spirituelle céleste.
 
 Wang Lin n'examina pas soigneusement le fragment vers lequel il se dirigeait cette fois; il en choisit un au hasard. À son arrivée, il ne put s'empêcher d'être stupéfait. Ce fragment ressemblait à un monde de feu où la lave recouvrait le sol. Par intermittence, des bulles bouillonnantes éclataient, dégageant une odeur âcre.
 
@@ -18,7 +18,7 @@ Le ciel était sombre et, de temps à autre, des failles spatiales apparaissaien
 
 Wang Lin flottait dans les airs tout en observant les environs. Ce fragment était très différent des deux autres qu'il avait visités. Il semblait prêt à s'effondrer à tout moment, particulièrement à cause des failles spatiales qui parsemaient le ciel comme autant de gueules de démons.
 
-Wang Lin fronça les sourcils. Il ignorait pourquoi les matrices de transfert de la Secte Da Lou étaient toutes situées sur ces fragments dangereux. Cela signifiait-il que plus un fragment était périlleux, plus il recelait d'énergie spirituelle céleste?
+Wang Lin fronça les sourcils. Il ignorait pourquoi les matrices de transfert de la Secte Da Luo étaient toutes situées sur ces fragments dangereux. Cela signifiait-il que plus un fragment était périlleux, plus il recelait d'énergie spirituelle céleste?
 
 Wang Lin s'élança hors de la matrice de transfert, ces questions en tête. Il déploya son sens divin tout en descendant pour éviter les failles spatiales. Tout se déroulait normalement jusqu'à ce qu'il se trouve à 330 mètres du sol lorsqu'une faille spatiale apparut silencieusement à ses côtés.
 
@@ -26,13 +26,13 @@ Wang Lin fut surpris, car son sens divin ne l'avait absolument pas détectée. C
 
 La faille apparut et disparut presque instantanément.
 
-Le front de Wang Lin était couvert de sueur froide alors qu'il regardait sur le côté. Une large partie de ses vêtements avait disparu, comme si elle avait été dévorée.
+Le front de Wang Lin était couvert de sueur froide alors qu'il regardait sur le côté. Une large partie de ses vêtements, à gauche, avait disparu, comme si elle avait été dévorée.
 
 Il scruta attentivement les environs. À cet instant, le danger dans ce fragment pouvait rivaliser avec celui des terres de l'Ancien Dieu.
 
 La manière dont cette faille spatiale était apparue était tout simplement trop sinistre. Wang Lin n'avait même pas été capable de la détecter à l'avance. Après une courte réflexion, il reprit sa descente lente. Il lui fallut le temps d'un bâtonnet d'encens pour se poser à une trentaine de mètres du sol.
 
-Cette altitude constituait un niveau relativement sûr. Peu de failles spatiales apparaissaient à cette hauteur et la chaleur de la lave n'était pas trop intense. Mais la prudence de Wang Lin ne diminua d'un iota tandis qu'il progressait lentement. Il voulait comprendre pourquoi la Secte Da Lou avait placé une matrice de transfert ici.
+Cette altitude constituait un niveau relativement sûr. Peu de failles spatiales apparaissaient à cette hauteur et la chaleur de la lave n'était pas trop intense. Mais la prudence de Wang Lin ne diminua d'un iota tandis qu'il progressait lentement. Il voulait comprendre pourquoi la Secte Da Luo avait placé une matrice de transfert ici.
 
 L'environnement n'était pas totalement silencieux. Des grondements ébranlaient le sol par intermittence, ou des bulles de chaleur éclataient. Ces sons s'entremêlant créaient une atmosphère oppressante qui semblait brûler jusque dans les cœurs.
 
@@ -64,7 +64,7 @@ L'ombre de Wang Lin apparut à l'extérieur, puis son corps disparut tandis qu'i
 
 « Troisième frère aîné, après tant d'années, restera-t-il seulement des âmes de bêtes célestes? Et même s'il en reste, il sera difficile de les obtenir à nous deux seuls. »
 
-« Sixième frère cadet, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Une fois que nous en aurons trouvé une et que nous l'aurons ramenée à la secte, nous aurons accompli un grand acte pour elle. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste Qi Lin ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Lou célèbre. »
+« Sixième frère cadet, tu ne comprends pas. S'il reste des âmes de bêtes célestes, elles seront très faibles faute d'énergie spirituelle céleste pour se nourrir. Si nous en trouvons une et que nous la ramenons à la secte pour l'élever, nous aurons accompli un grand exploit. Autrefois, l'Ancêtre avait trouvé une âme de bête céleste Qi Lin ici, ce qui lui permit d'unifier la planète Tian Dun et de rendre la Secte Da Luo célèbre. »
 
 Wang Lin fut intrigué en les écoutant. Bien qu'il ignorât ce qu'était précisément le Temple des Bêtes Célestes, à en juger par son nom et les propos de ces deux hommes, il avait ses propres conjectures.
 
@@ -88,7 +88,7 @@ La pierre bougea à nouveau, révélant un trou de la taille d'un poing dans le 
 
 L'homme frappa rapidement sa sacoche de rangement et en sortit une petite calebasse verte. L'énergie spirituelle fut aussitôt absorbée par l'objet.
 
-« Sixième frère cadet, la récolte est excellente cette fois-ci. Il y a assez d'énergie pour former deux morceaux de jade céleste, un pour chacun de nous, et suffisamment pour satisfaire le minimum requis par la secte. » Le troisième frère aîné laissa échapper un rire tout en repoussant lentement la statue à sa place.
+« Sixième frère cadet, la récolte est excellente cette fois-ci. Il y a assez d'énergie pour condenser deux cristaux, un pour chacun de nous, ce qui suffit pour satisfaire le minimum requis par la secte. » Le troisième frère aîné laissa échapper un rire tout en repoussant lentement la statue à sa place.
 
 Le sixième frère cadet hocha la tête, observa la calebasse et demanda: « Est-ce donc la Calebasse de Purification de l'Âme? »
 
@@ -96,7 +96,7 @@ Le troisième frère aîné sortit une pilule et l'avala. Il agita la calebasse 
 
 Wang Lin observa la scène via son sens divin et son attention se porta instantanément sur la calebasse. C'était un trésor inestimable. S'il en possédait une, cela réduirait considérablement le temps nécessaire pour raffiner l'énergie spirituelle céleste et lui permettrait d'en accumuler davantage.
 
-Il esquissa un sourire glacial. À en juger par leur allure, ces deux-là appartenaient à la Secte Da Lou. Puisqu'il avait déjà offensé la secte, autant trouver un moyen de lui dérober ce trésor.
+Il esquissa un sourire glacial. À en juger par leur allure, ces deux-là appartenaient à la Secte Da Luo. Puisqu'il avait déjà offensé la secte, autant trouver un moyen de lui dérober ce trésor.
 
 Les deux étaient des cultivateurs au stade initial de la Formation de l'Âme, bien que le sixième frère cadet vienne tout juste d'atteindre ce stade et que sa culture ne fût pas encore stable. Cependant, ils devaient avoir des ressources pour se défendre; Wang Lin n'agit pas avec imprudence et attendit le moment opportun.
 

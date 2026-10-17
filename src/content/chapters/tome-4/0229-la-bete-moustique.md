@@ -6,21 +6,21 @@ bookTitle: Clean Sweep
 en: Chapter 229 - Mosquito Beast
 slug: la-bete-moustique
 ---
-Le démon singe se transforma en une traînée floue et chargea la bête moustique. Cette dernière battit des ailes une seule fois et s'échappa instantanément de l'assaut du démon.
+Le démon singe se transforma en une traînée floue et chargea la bête moustique. Cette dernière battit des ailes une seule fois, sa vitesse doubla aussitôt et elle sema le démon en un clin d'œil.
 
 Wang Lin observait la scène avec clarté depuis sa position. Il frappa son sac de rangement, d'où surgit un miroir de bronze. Il lança l'artefact et traça un sceau. Soudain, un rayon de lumière verte jaillit du miroir pour frapper la bête moustique.
 
-Le corps de la créature s'immobilisa brusquement, mais un gaz sombre commença rapidement à s'en échapper. Dès que la lumière verte entra en contact avec ce gaz ténébreux, elle se changea en pierre.
+Le corps de la créature s'immobilisa brusquement, mais un filet de gaz gris commença rapidement à s'en échapper. Dès que la lumière verte entra en contact avec ce gaz gris, elle se changea en pierre en un clin d'œil.
 
-Xu Liguo fut stupéfait. Il songea intérieurement que cette bête était véritablement puissante et qu'il avait eu de la chance de ne pas s'y confronter lui-même. Profitant du fait que Wang Lin ne le regardait pas, il recula discrètement, décidé qu'à moins d'y être contraint par son maître, il n'irait pas chercher la petite bête.
+Xu Liguo fut stupéfait. Il songea intérieurement que cette bête était véritablement puissante et qu'il avait eu de la chance de ne pas s'y confronter lui-même. Profitant du fait que Wang Lin ne le regardait pas, il recula discrètement, décidé qu'à moins d'y être contraint par son maître, il n'irait pas s'attirer des ennuis.
 
 Les yeux de Wang Lin s'illuminèrent, son intérêt pour la créature ne faisant que croître. Il changea de technique et projeta celle-ci vers le miroir de bronze. L'objet se mit soudain à pivoter jusqu'à ce que son revers fasse face à la bête moustique. Rapidement, une image de la bête apparut sur l'arrière du miroir. En l'espace de quelques respirations, l'image poussa quelques rugissements et s'élança hors du miroir.
 
-La bête issue du miroir dégagea une bourrasque de vent et fonça sur la bête moustique. Si l'on avait placé les deux créatures côte à côte, il aurait été difficile de les distinguer.
+La bête issue du miroir grandit aussitôt au vent et devint presque identique à la bête qui s'enfuyait. Si l'on avait placé les deux créatures côte à côte, il aurait été difficile de les distinguer.
 
-Le rugissement de cette simulacre attira l'attention de la bête moustique. Elle se retourna, vit sa propre copie créée par le miroir, et son appendice devint rouge sang. Au lieu de fuir, elle fit volte-face et chargea son double.
+Le rugissement de ce simulacre attira l'attention de la bête moustique. Elle se retourna, vit sa propre copie créée par le miroir, et son appendice devint rouge sang. Au lieu de fuir, elle fit volte-face et chargea son double.
 
-Bientôt, les deux antagonistes se rejoignirent. Des nuages de poussière grise jaillirent dans toutes les directions tandis qu'elles tourbillonnaient l'une autour de l'autre, tentant de s'enterrer mutuellement avec leurs proboscis.
+Bientôt, les deux antagonistes se rejoignirent. Des nuages de poussière grise jaillirent dans toutes les directions tandis qu'elles s'esquivaient l'une l'autre, tentant sans cesse de se transpercer mutuellement avec leurs proboscis.
 
 Wang Lin, resté à distance, observait attentivement cet affrontement. La poussière grise semblait être une technique propre à la bête, et son proboscis constituait son arme principale.
 
@@ -28,15 +28,15 @@ Après avoir réfléchi un instant, Wang Lin fit glisser sa main sur le miroir d
 
 L'animal fut déconcerté, mais poussa rapidement quelques cris de rage. La moustique fixa Wang Lin, sa bouche redevenant rouge. Cependant, elle n'osa pas l'attaquer. Après un court instant, elle fit demi-tour pour s'enfuir.
 
-Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection des nuages de la Mer des Démons, il y avait de fortes chances que l'artefact soit réduit en poussière.
+Un éclair passa dans les yeux de Wang Lin et il lança: « Tu comptes fuir? » Sur ces mots, il agita la main droite et un petit drapeau apparut dans sa paume. Une puissante intention meurtrière émanait de l'objet. C'était le drapeau de restriction d'attribut unique. Il s'agissait du trésor le plus puissant de Wang Lin; même lui n'osait pas le raffiner jusqu'au premier niveau de complétion, car si le drapeau atteignait ce stade, la rétribution divine frapperait et, sans la protection du brouillard de la Mer des Démons, il y avait de fortes chances que l'artefact soit réduit en poussière.
 
 En conséquence, il s'était arrêté à 98 groupes de restrictions.
 
-La bête avait déjà acquis une certaine expérience; dès qu'elle aperçut le drapeau, elle fut frappée d'horreur. Elle agita frénétiquement ses ailes pour accélérer sa fuite.
+La bête était déjà dotée d'une conscience spirituelle; dès qu'elle aperçut le drapeau, elle fut frappée d'horreur. Elle agita frénétiquement ses ailes pour accélérer sa fuite.
 
 Wang Lin gardait un regard calme, le drapeau de restriction serré dans sa main droite. Il l'agita et une restriction jaillit. L'énergie s'élança comme une météorite vers la bête moustique.
 
-En un clin d'œil, la restriction rattrapa sa proie. La stupeur dans les yeux de la créature se mua en terreur alors qu'elle libérait du gaz sombre pour tenter de bloquer l'assaut. Cependant, ce gaz ne pouvait rivaliser avec la puissance offensive de la restriction, qui atteignit la bête moustique sans le moindre obstacle.
+En un clin d'œil, la restriction rattrapa sa proie. La stupeur dans les yeux de la créature se mua en terreur alors qu'elle libérait du gaz gris pour tenter de bloquer l'assaut. Cependant, ce gaz ne pouvait rivaliser avec la puissance offensive de la restriction, qui atteignit la bête moustique sans le moindre obstacle.
 
 L'animal trembla instantanément et tomba du ciel. Wang Lin le rattrapa.
 
@@ -54,7 +54,7 @@ Le corps de la bête trembla et gonfla considérablement.
 
 Wang Lin se frotta le menton et observa la créature un long moment. Il sortit un sac de rangement et en déversa tous les noyaux qu'il contenait, les offrant à la bête moustique.
 
-Une lueur de frénésie passa dans les yeux de la bête alors qu'elle dévorait les noyaux avec empressement. À chaque noyau consommé, elle augmentait de volume. Comparée à son état initial, elle était désormais deux fois plus imposante.
+Une lueur de frénésie passa dans les yeux de la bête alors qu'elle dévorait les noyaux avec empressement. À chaque noyau consommé, elle augmentait de volume. En particulier, lorsqu'elle avala le noyau d'une bête spirituelle de qualité moyenne, son corps fit plus que doubler de taille d'un coup.
 
 Après avoir englouti des dizaines de noyaux, le corps de la bête moustique atteignait environ la taille d'un veau. Par conséquent, les minuscules poils de son corps noir étaient devenus bien plus visibles. Ses ailes mesuraient plus de trois mètres de long et généraient des rafales de vent à chaque battement.
 
@@ -68,4 +68,4 @@ Wang Lin bondit et se posa sur le dos de la bête. Il lui envoya un message par 
 
 Wang Lin sentait le vent violent fouetter son visage. Il était évident qu'après avoir dévoré tous les noyaux, non seulement le corps de la bête moustique avait grandi, mais sa vitesse s'était également accrue.
 
-Wang Lin enviait le bateau de Qiu Siping. Bien qu'il puisse créer des tornades avec de petites bêtes, elles n'étaient pas aussi véloces. Mais désormais, avec cette bête moustique comme monture, il était plus rapide que l'embarcation de Qiu Siping. Même comparée à sa propre vitesse de vol, elle ne lui faisait pas beaucoup de différence.
+Wang Lin enviait le bateau de Qiu Siping. Bien qu'il puisse créer des tornades avec de petites bêtes prises à la Terre du Dieu Ancien, elles n'étaient pas aussi véloces. Mais désormais, avec cette bête moustique comme monture, il était plus rapide que l'embarcation de Qiu Siping. Même comparée à sa propre vitesse de vol, elle n'avait rien à lui envier.

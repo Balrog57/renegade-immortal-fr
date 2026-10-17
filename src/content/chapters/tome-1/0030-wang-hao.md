@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: Chapter 30 - Wang Hao
 slug: wang-hao
 ---
-« Dois-je être encore plus déraisonnable? » Pour quitter la maison des corvées, Wang Lin était prêt à tout. Il voulait vraiment tester les limites de la patience des anciens.
+« Dois-je être encore plus déraisonnable? » Pour quitter la maison des corvées, Wang Lin était prêt à tout. Il voulait vraiment tester les limites de ces Oncles-Maîtres aînés.
 
 En privé, parmi les disciples honoraires, en plus des qualificatifs de « déchet » et de « sans vergogne », il s'était vu attribuer un autre titre: le Roi au Cœur Noir. Comparé au surnom du disciple Liu, « la Belette », cela se situait à un tout autre niveau.
 
@@ -14,9 +14,9 @@ Après avoir pratiqué pendant un an dans l'espace de rêve, l'énergie spiritue
 
 Après tant d'échecs, ses efforts ne furent pas vains puisqu'il finit par percer et atteindre ce second stade.
 
-Les pores de sa peau suintaient une graisse noire. Après s'être lavé, Wang Lin s'observa: ses yeux brillaient comme des éclairs. Son apparence était radicalement différente de celle d'autrefois.
+Les pores de sa peau suintaient une graisse noire. Après s'être lavé, Wang Lin contempla son reflet dans l'eau: ses yeux brillaient comme des éclairs. Dans l'ensemble, il semblait lui aussi un peu différent d'autrefois.
 
-Il se frotta le menton et songea: « Il ne me reste plus que le chant pour le troisième niveau. Si je retourne voir Sun Dazhu pour lui demander les chants des niveaux suivants et qu'il découvre que j'ai atteint le deuxième niveau, il me questionnera certainement sur la manière dont j'y suis parvenu. Si je ne peux pas l'expliquer correctement, cela m'attirera de gros ennuis. »
+Il se frotta le menton et songea: « Pour l'instant, je n'ai que le chant du troisième niveau. Si je retourne voir Sun Dazhu pour lui demander les chants des niveaux suivants et qu'il découvre que j'ai atteint le deuxième niveau, il me questionnera certainement sur la manière dont j'y suis parvenu. Si je ne peux pas l'expliquer correctement, cela m'attirera de gros ennuis. »
 
 Après avoir réfléchi un moment sans trouver de solution satisfaisante, il ne put s'empêcher de froncer les sourcils.
 
@@ -24,17 +24,17 @@ Dans un soupir, Wang Lin commença à pratiquer la Technique d'Attraction de For
 
 Un autre mois s'écoula. Le comportement de Wang Lin à la maison des corvées ne cessait d'irriter les disciples honoraires. L'hiver était arrivé et la secte commençait à se préparer pour la compétition annuelle des disciples internes.
 
-Cette année marquait la compétition des disciples honoraires de la Secte Heng Yue, un événement qui n'avait lieu que tous les dix ans. Si l'un d'eux se classait parmi les trois premiers, il obtiendrait le droit de devenir l'assistant d'un disciple interne. Tous les disciples honoraires affinaient leurs techniques de combat et complotaient secrètement.
+Cette année marquait la compétition des disciples honoraires de la Secte Heng Yue, un événement qui n'avait lieu que tous les dix ans. Si l'un d'eux se classait parmi les trois premiers, il obtiendrait le droit de devenir l'assistant d'un disciple interne. Tous les disciples honoraires piaffaient d'impatience; des remous agitaient la secte en secret, et chacun avait ses propres plans.
 
-Par conséquent, les tâches liées à la maison des corvées subissaient des retards, car chacun était trop occupé.
+Ainsi, l'affaire de la maison des corvées fut mise de côté et plus personne ne s'en soucia.
 
 Wang Lin était très déçu de devoir encore s'occuper de la maison des corvées. Quant à la compétition des disciples internes, il n'avait nullement l'intention d'y participer. S'il avait du temps libre, pourquoi ne pas le consacrer plutôt à sa culture dans l'espace de rêve?
 
-Ce jour-là, la neige commença à tomber sur la montagne Heng Yue. De loin, le paysage ressemblait à un royaume de givre.
+Ce jour-là, une grande neige scella toute la montagne Heng Yue; de gros flocons comme des plumes d'oie tombaient du ciel. De loin, tout était vêtu d'argent, glaces et neiges à perte de vue.
 
 Wang Lin ne pratiquait pas, mais se tenait silencieusement dans la cour. La Technique d'Attraction de Force était activée, comme si une main géante repoussait la neige pour l'empêcher de se poser sur lui.
 
-En regardant vers sa demeure, il se remémora l'époque où ses parents maintenaient le poêle allumé pour garder la maison chaude à cette période de l'année.
+En regardant au loin vers son village de montagne, il se remémora l'époque où ses parents maintenaient le poêle allumé pour garder la maison chaude à cette période de l'année.
 
 Il s'asseyait près du foyer pour lire. Son père sculptait à ses côtés, tandis que sa mère préparait les légumes marinés. Parfois, fatigué de sa lecture, il s'asseyait près de son père pour le regarder travailler. Lorsqu'il était d'humeur enjouée, il allait l'aider. Il y avait tant de joie entre eux.
 
@@ -42,17 +42,17 @@ Wang Lin se souvint également des toupies en bois sous son lit; il les sortait 
 
 En pensant à tout cela, Wang Lin prit une profonde inspiration. Un cultivateur doit rompre tous ses liens mortels, et ces souvenirs n'étaient que des distractions susceptibles de perturber sa culture. Wang Lin ferma les yeux. Lorsqu'il les rouvrit, son esprit était limpide. Il ne pouvait rompre tous ses liens avec le monde mortel; il choisit donc de les enfouir profondément dans son cœur.
 
-Alors qu'il était plongé dans ses souvenirs, son expression changea soudainement. Étant désormais au deuxième niveau de la Condensation de Qi, il avait éveillé sa capacité de Sens Divin. Tout cela était décrit dans l'ouvrage sur les Trois Niveaux de la Condensation de Qi.
+Alors qu'il était plongé dans ses souvenirs, son expression changea soudainement. Étant désormais au deuxième niveau de la Condensation de Qi, il avait éveillé sa capacité de Sens Divin. Tout cela était décrit dans l'ouvrage sur les Trois Étapes de Condensation de Qi.
 
 Grâce à un balayage de son Sens Divin, il perçut que Wang Hao se dirigeait vers lui. Un instant plus tard, la porte s'ouvrit. Wang Hao entra, coiffé d'un bonnet et vêtu d'un manteau de cuir. Il regarda Wang Lin avec surprise et dit: « Frère Tie Zhu, n'as-tu pas froid? Tu es si peu vêtu et tu restes dehors ainsi. »
 
 Wang Lin eut un petit rire: « J'avais calculé que tu viendrais me voir, alors je suis sorti pour t'accueillir, petit coquin. » Il ne ressentait aucune fraîcheur. Depuis qu'il avait atteint le deuxième niveau de la Condensation de Qi, il sentait que son corps était bien plus vigoureux qu'auparavant.
 
-Wang Hao eut un sourire en coin. Il entra et observa attentivement Wang Lin avant de dire: « Frère Tie Zhu, comment se fait-il que je te trouve un peu différent d'il y a quelques mois? »
+Wang Hao éclata de rire. Il entra, ôta son bonnet et observa attentivement Wang Lin avant de dire: « Frère Tie Zhu, comment se fait-il que je te trouve un peu différent d'il y a quelques mois? »
 
-Répondit Wang Lin: « C'est naturel. J'ai atteint le deuxième niveau de la Condensation de Qi; je peux désormais me considérer comme un immortel! »
+Wang Lin plaisanta: « C'est naturel. J'ai atteint le deuxième niveau de la Condensation de Qi; je peux désormais me considérer comme un immortel! »
 
-La bouche de Wang Hao se crispa. Il entra dans la pièce et rétorqua: « Ne te vante pas. Nos talents sont à peu près de même niveau. J'ai bénéficié de l'aide de pilules de Rassemblement de Qi et je n'ai toujours pas atteint le premier niveau. Alors toi, atteindre le deuxième? Impossible. »
+Wang Hao fit une moue dédaigneuse. Il se dirigea vers la pièce et rétorqua: « Ne te vante pas. Nos talents sont à peu près de même niveau. J'ai bénéficié de l'aide de pilules de Rassemblement de Qi et je n'ai toujours pas atteint le premier niveau. Alors toi, atteindre le deuxième? Impossible. »
 
 Wang Lin ne chercha pas à se justifier. Parfois, dire la vérité ne suffisait pas à être cru, et mentir risquait d'éveiller des soupçons. De toute façon, ses liens avec Wang Hao n'étaient pas profonds; mieux valait rester sur ses gardes. Accorder sa confiance au premier regard n'était pas dans les habitudes de Wang Lin.
 

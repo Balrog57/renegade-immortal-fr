@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 318 - Two gifts
 slug: deux-cadeaux
 ---
-Une perle rouge de la taille d'un poing apparut sur le front de Zhou Yi, mais elle se désintégra immédiatement pour fusionner avec la météorite en flammes.
+Une perle rouge de la taille d'un poing apparut au-dessus de la tête de Zhou Yi, mais elle se désintégra immédiatement pour fusionner avec la météorite en flammes.
 
 Les flammes entourant la météorite disparurent, révélant une silhouette de lumière rouge qui se tenait entre la terre et les cieux. Son visage trahissait un profond regret alors que son doigt gauche pointait nonchalamment le vieil homme.
 
@@ -18,9 +18,9 @@ Il dit d'un ton amer: « Ascendant... »
 
 Il fut autrefois un disciple très talentueux de la Secte des Cinq Éléments, doté d'une détermination bien supérieure à celle d'un homme ordinaire. Il cultiva la Méthode des Cinq Éléments et surpassa tous ses pairs les uns après les autres, jusqu'à devenir finalement le disciple du seul Ancien au stade avancé de la Transformation de l'Âme de la secte, tandis que son niveau de culture ne cessait de croître.
 
-Lorsqu'il atteignit le stade de la Formation de l'Âme, son maître lui offrit le Chaudron de la Pluie, mais nul n'aurait pu prédire à quel point il changerait.
+Lorsqu'il atteignit le stade de la Formation de l'Âme, son maître lui offrit le Chaudron de la Pluie et il entra pour la première fois dans le Royaume Céleste, mais nul n'aurait pu prédire qu'il en serait totalement transformé.
 
-Dans le Royaume Céleste, il entra dans l'un de ses palais et vit cette dépouille féminine. Dès cet instant, il fut envoûté par elle et abandonna son ancienne identité.
+Dans le Royaume Céleste, il entra par hasard dans un pavillon élégant et vit du premier regard cette dépouille féminine allongée sur un lit. Dès cet instant, comme poussé par une force étrange, il se perdit lui-même.
 
 À ses yeux, ce cadavre était son tout.
 
@@ -72,7 +72,7 @@ Dans les airs, ces jades célestes formèrent une pagode. Zhou Yi regarda la dé
 
 Au moment où il toucha la pagode, une force mystérieuse pénétra son corps. Une empreinte supplémentaire venait de marquer son âme originelle.
 
-« Cette pagode contient mon domaine. Si tu trouves un endroit isolé et que tu y déposes cette pagode, elle formera une barrière d'un rayon de cinquante kilomètres. À moins qu'un être n'ait un niveau de culture supérieur au mien actuel, personne ne pourra franchir la barrière sans ton consentement. »
+« Cette pagode contient mon domaine. Si tu trouves un endroit glacial et que tu y déposes cette pagode, elle formera une barrière d'un rayon de cinquante kilomètres. À moins qu'un être n'ait un niveau de culture supérieur au mien actuel, personne ne pourra franchir la barrière sans ton consentement. »
 
 Zhou Yi sourit à Wang Lin en désignant son propre front. Un jade rouge de la taille d'un ongle apparut, et il le lança vers Wang Lin.
 
@@ -124,7 +124,7 @@ Le Grand Ancien de la Secte des Cadavres poussa un soupir et se tourna étrangem
 
 Chi Hu contemplait la scène, le regret au cœur atteignant un niveau monstrueux.
 
-« Un esclave de niveau Transformation de l'Âme... si je ramenais cela à mon clan, je ne serais plus le jeune maître, mais le chef du clan! Avec une telle personne entre mes mains, je pourrais parcourir la planète librement, au-delà même du pays de Suzaku. Je n'aurais pas dû hésiter! »
+« Un esclave de niveau Transformation de l'Âme... si je ramenais cela à mon clan, je ne serais plus le jeune maître, mais le chef du clan! Avec une telle personne entre mes mains, je pourrais parcourir la planète librement, hormis le pays de Suzaku. Je n'aurais pas dû hésiter! »
 
 Le corps de Zhou Yi touchait à sa fin. Il ne semblait plus solide; il paraissait prêt à disparaître. Il regarda autour de lui et dit finalement à Wang Lin: « Prends bien soin d'elle. »
 

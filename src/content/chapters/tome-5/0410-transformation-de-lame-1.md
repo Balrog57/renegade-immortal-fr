@@ -63,7 +63,7 @@ Un mois plus tard, toutes les pierres célestes de Wang Lin s'étaient brisées 
 
 Son sens divin s'étendit pour couvrir la majeure partie de la lune. Après avoir achevé 1 % de sa conversion, son sens divin était devenu plus puissant.
 
-« La Secte du Affinement de l'Âme doit posséder d'importantes réserves de pierres célestes… Les autres sectes en ont certainement aussi… Je ne peux pas les demander, alors je devrai les voler. Je dois atteindre le stade de la Transformation de l'Âme! » Les yeux de Wang Lin s'illuminèrent, puis son corps disparut.
+« La Secte de l'Affinement de l'Âme doit posséder d'importantes réserves de pierres célestes… Les autres sectes en ont certainement aussi… Je ne peux pas les demander, alors je devrai les voler. Je dois atteindre le stade de la Transformation de l'Âme! » Les yeux de Wang Lin s'illuminèrent, puis son corps disparut.
 
 Zhou Ru était apathique. Montée sur le dos de Petit Blanc, elle contemplait la vaste plaine qui s'étendait devant elle.
 

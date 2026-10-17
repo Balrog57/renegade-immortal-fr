@@ -28,7 +28,7 @@ Wang Lin profita du moment où la vieille femme fut stupéfaite par le Royaume J
 
 Ce fragment était l'atout qui avait permis à Wang Lin de survivre à de nombreuses crises, et il devait encore s'en servir aujourd'hui pour rester en vie.
 
-Ce n'était pas qu'il n'avait pas envisagé de l'utiliser pour la menacer; c'était parce que de nombreux cultivateurs de Xue Yu étaient présents. Il aurait pu la menacer, mais une fois qu'elle serait partie pour ramener renforts, il se retrouverait dans une situation périlleuse.
+Ce n'était pas qu'il n'avait pas envisagé de l'utiliser pour la menacer; c'était parce que de nombreux cultivateurs de Xue Yu étaient présents. Il aurait pu la menacer, mais une fois qu'elle serait partie prévenir d'autres cultivateurs, il se retrouverait dans une situation périlleuse.
 
 La situation idéale était donc de la tuer avec ce fragment avant même qu'elle ne s'en rende compte.
 
@@ -88,7 +88,7 @@ L'homme d'âge moyen resta là, fixant le ciel d'un air hébété et lugubre. Pl
 
 Après avoir réfléchi un instant, il joignit les mains et cria: « Compagnon cultivateur qui as attiré la rétribution divine, je suis Ou Zhi de Suzaku! Je te demande d'attirer à nouveau la rétribution divine; je te récompenserai richement! »
 
-Face au silence prolongé, l'homme soupira. Il tendit la main pour saisir le vide. Un cri retentit alors qu'un bras gigantesque couvert d'une aura bleue volait vers lui. Le bras atterrit dans sa main avant de tomber en poussière.
+Face au silence prolongé, l'homme soupira. Il tendit la main pour saisir le vide. Un cri retentit alors qu'un bras gigantesque ruisselant de sang bleu volait vers lui. Le bras atterrit dans sa main avant de tomber en poussière.
 
 La créature serpent n'avait plus qu'un seul bras. L'expression de Papillon Rouge était calme, mais une trace de colère sous-jacente y perçait.
 
@@ -102,7 +102,7 @@ Presque tous les cultivateurs de l'Alliance des Quatre Sectes périrent dans l'a
 
 Le temps passa lentement. Après avoir vécu là pendant un an, Papillon Rouge suivit l'homme d'âge moyen vers Suzaku.
 
-Quant au chaudron de pluie, malgré les recherches acharnées des cultivateurs de Xue Yu, il resta introuvable. Ils étaient convaincus qu'il était entre les mains des survivants de l'Alliance des Quatre Sectes.
+Quant au Chaudron de Pluie, malgré les recherches acharnées des cultivateurs de Xue Yu, il resta introuvable. Ils étaient convaincus qu'il était entre les mains des survivants de l'Alliance des Quatre Sectes.
 
 Après que Xue Yu prit le contrôle du pays, une masse immense de mortels de l'ancien Xue Yu migra vers ces terres. La neige continua de tomber, rendant le nouveau Xue Yu éternellement glacial.
 

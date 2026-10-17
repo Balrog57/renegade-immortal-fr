@@ -6,31 +6,31 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 177 - King poison cauldron
 slug: le-chaudron-du-roi-poison
 ---
-Le regard de Wang Lin scintillait tandis qu'il fixait le pont de pierre. Durant ces trois jours, il avait observé l'ouvrage sans jamais oser y poser le pied.
+Le regard de Wang Lin scintillait tandis qu'il fixait le pont de pierre. Durant ces trois jours, il avait observé l'ouvrage sans jamais y avoir posé le pied.
 
 Hormis ce pont, rien d'autre n'existait dans ce monde grisâtre.
 
-Wang Lin réfléchit un instant avant d'un geste de la main. Les quarante-deux tornades derrière lui cessèrent brusquement de tourbillonner. Elles se transformèrent en des dizaines de milliers de petites créatures qui commencèrent à se disperser.
+Wang Lin réfléchit un instant avant de balayer l'air derrière lui de la main droite. Les quarante-deux tornades derrière lui cessèrent brusquement de tourbillonner. Elles se transformèrent en des dizaines de milliers de petites créatures qui commencèrent à se disperser.
 
 Wang Lin ferma légèrement les yeux et utilisa sa connexion avec le second démon pour percevoir ces petites bêtes. Elles s'éparpillèrent, ne laissant derrière elles que le bruissement de leurs ailes. Après un moment, même ces sons s'éteignirent.
 
 Après une très longue attente, il ouvrit soudainement les yeux et s'envola vers le nord-ouest. Les petites créatures commencèrent à converger de toutes les directions pour reformer les tornades derrière lui.
 
-Peu de temps après, Wang Lin s'arrêta devant une stèle de pierre haute de plus de 99 mètres. La tablette émettait une lueur rouge qui lui conférait un aspect démoniaque. Quelques petites créatures se trouvaient sur la pierre, battant des ailes dans un bourdonnement incessant.
+Peu de temps après, Wang Lin s'arrêta devant une stèle de pierre haute d'environ 99 mètres. Sa couleur tirait légèrement sur le rouge et elle dégageait une aura maléfique. Quelques petites créatures se trouvaient sur la pierre, battant des ailes dans un bourdonnement incessant.
 
 En voyant arriver Wang Lin, ces créatures volèrent vers lui et rejoignirent les tornades derrière lui. Wang Lin vit alors trois grands caractères inscrits sur la stèle: « Chemin sans Retour ».
 
 Ces trois mots dégageaient une aura d'antiquité. Wang Lin les observa un instant avant de déplacer son regard vers le coin inférieur droit. Il l'examina attentivement, puis fit un geste de la main. Une bourrasque souffla, balayant la poussière et la saleté de la stèle pour révéler une petite ligne de texte.
 
-« J'ai traversé l'épreuve terrestre et capturé la créature reine qui s'y trouvait avant d'arriver sur ce Chemin sans Retour. Cet endroit est fascinant; si quelqu'un le découvre un jour, considérez cela comme le destin. Je vous donnerai un conseil: méditez sur le sens de "Sans Retour". »
+« J'ai traversé l'épreuve terrestre, soumis son roi des bêtes, et suis entré sur ce Chemin sans Retour. Cet endroit est assez intéressant, c'est pourquoi je laisse ces quelques mots: que celui qui viendra après moi, s'il en a le destin, n'oublie pas de méditer soigneusement sur ces deux mots, "sans retour". »
 
-L'expression de Wang Lin resta impassible, mais il était intérieurement stupéfait. Ces quelques mots étaient identiques à ceux qu'il avait vus dans la tour noire. Ils avaient manifestement été écrits par la même personne.
+L'expression de Wang Lin resta impassible, mais il était intérieurement stupéfait. Ces petits caractères étaient exactement de la même écriture que ceux qu'il avait vus dans la tour noire en entrant dans l'épreuve terrestre. Ils avaient manifestement été écrits par la même personne.
 
-À en juger par ces lignes, l'épreuve terrestre n'avait été qu'une simple formalité pour cet individu. Même la puissante créature reine de ce lieu avait été capturée par lui.
+À en juger par ces lignes, l'épreuve terrestre n'avait été qu'une simple formalité pour cet individu. Même le puissant roi des bêtes, la tornade qui perçait le ciel, avait pu être soumis par lui.
 
-Cependant, après réflexion, Wang Lin plissa les yeux. Si cette personne avait capturé la créature reine lors de l'épreuve terrestre, pourquoi était-elle encore là? Il devait y avoir une part de mensonge dans ces propos. Le terme « capturer » impliquait que la créature suivait désormais son maître.
+Cependant, après réflexion, Wang Lin plissa les yeux. Si cette personne avait soumis le roi des bêtes de l'épreuve terrestre, pourquoi était-il encore là? Ces propos étaient sans doute en grande partie faux. Le sens du mot « soumettre » était évident: le seul mot « soumis » signifiait déjà que la bête suivait son maître.
 
-Il existait bien sûr la possibilité qu'il l'ait réellement capturée et qu'une autre soit née après d'innombrables années.
+Il existait bien sûr la possibilité qu'il ait réellement soumis un roi des bêtes et que, durant d'innombrables années, un autre soit né dans l'épreuve terrestre.
 
 Wang Lin ne cherchait pas à savoir si cela était vrai ou faux. Son regard revint sur les mots « Chemin sans Retour » et il se mit à méditer.
 
@@ -38,7 +38,7 @@ Après un long moment, il fit volte-face et s'envola vers le pont de pierre, les
 
 De retour au pont, Wang Lin frappa son sac de rangement, et le démon Xu Liguo en sortit immédiatement. Il lança un regard jaloux aux petites créatures et grommela intérieurement: « Et alors s'il a une multitude de petits frères qui le suivent? Moi, je ne me traînerai jamais de petits frères derrière moi! »
 
-Wang Lin regarda le pont de pierre et le désigna du doigt. Cette fois, Xu Liguo se précipita vers l'ouvrage sans tenter de marchander comme autrefois. Plein d'énergie, il regarda fièrement la tornade en pensant: « Tu vois ça? Ce démon pense toujours que je suis plus important. Pourquoi ne laisserait-il pas le numéro deux s'en charger à sa place? »
+Wang Lin regarda le pont de pierre et le désigna du doigt. Cette fois, Xu Liguo se précipita vers l'ouvrage sans tenter de marchander comme autrefois. Plein d'énergie, il jeta un regard en coin et fier à la tornade en pensant: « Tu as vu ça? Mon maître, ce monstre, me juge toujours digne de confiance. Sinon, pourquoi ne laisserait-il pas le numéro deux s'en charger? »
 
 Lorsqu'il croisa le regard de Wang Lin, il afficha un air conciliant avant de voler vers le pont. Il parcourut une longue distance sans rencontrer de danger et fit même plusieurs fois le tour du pont avant de revenir.
 
@@ -54,7 +54,7 @@ Cependant, Wang Lin remarqua que lorsqu'un groupe de créatures tentait le passa
 
 Les yeux de Wang Lin scintillèrent alors qu'il murmurait: « Sans retour... Sans retour... Cela signifie que dès que l'on fait un pas en avant, on ne peut plus faire marche arrière... » Il médita sur cette pensée sans pour autant poser le pied sur le pont.
 
-Il s'assit en position du lotus près de l'ouvrage et sortit deux sacs de rangement. L'un d'eux était en fil d'or noir; c'était celui qu'il avait dérobé au cadavre mystérieux lorsqu'il apprenait le Chemin Divin dans le Temple du Dieu de la Guerre.
+Il s'assit en position du lotus près de l'ouvrage et sortit deux sacs de rangement. L'un d'eux était en fil d'or noir; c'était celui qu'il avait dérobé au cadavre mystérieux, dans la grotte du Sanctuaire du Dieu de la Guerre où étaient gravés les arts du Chemin Divin.
 
 Malheureusement, une force mystérieuse entravait le sac, empêchant son Sens Divin de pénétrer à l'intérieur pour l'ouvrir. Wang Lin savait que ce sac était imprégné du Sens Divin d'autrui et qu'il devait l'effacer avant de pouvoir l'utiliser.
 
@@ -66,7 +66,7 @@ L'autre sac de rangement était celui qu'il avait volé à Bossu Meng. Le Sens D
 
 Wang Lin ricana intérieurement. Ses yeux s'illuminèrent en l'ouvrant. Il contenait effectivement les économies de plusieurs milliers d'années d'un cultivateur au stade de la Formation de l'Âme. Rien qu'en pierres spirituelles, plus de 300 000 étaient entassées comme une petite montagne, toutes de haute qualité.
 
-Ce qui fit briller davantage le regard de Wang Lin fut la présence de deux pierres entourées d'une aura: des pierres spirituelles extrêmement rares et de qualité suprême.
+Ce qui fit briller davantage le regard de Wang Lin fut la présence, paisiblement rangés à l'intérieur, de deux cristaux en forme de losange entourés d'un halo: des pierres spirituelles extrêmement rares et de qualité suprême.
 
 Le cœur de Wang Lin rata un battement. Ces deux seules pierres valaient à elles seules le risque de voler Bossu Meng.
 
@@ -86,13 +86,13 @@ De plus, Bossu Meng était spécialisé dans l'alchimie et le poison, et le sac 
 
 Un jade vert foncé attira particulièrement son attention. C'était une méthode de culture dont le nom ne tenait qu'en un mot: *Ming* (Sous-monde).
 
-Cette méthode était décrite comme provenant du dieu démon Qi, qui utilisait le poison comme fondement de son Dao. Elle comptait neuf étapes, et dès la sixième, même des cultivateurs de la Formation de l'Âme ne pourraient résister au venin.
+Appelons-la la Méthode Ming. Elle décrivait en détail un art capable d'ébranler le ciel et la terre et de faire pleurer les démons, qui prenait le poison pour entrer dans le Dao. Elle comptait neuf niveaux, et d'après sa description, dès le sixième, même des cultivateurs de la Formation de l'Âme ne pourraient échapper à ses attaques de poison.
 
-Cependant, cette voie était extrêmement cruelle. Le pratiquant devait endurer une douleur inimaginable, car divers poisons devaient être injectés dans le corps pour créer un organisme entièrement empoisonné.
+Cependant, cette méthode était extrêmement tyrannique. Le pratiquant devait endurer ce qu'un homme ordinaire ne peut endurer, car divers poisons devaient stimuler le corps jusqu'à atteindre un état où tout l'être n'était plus que poison.
 
-Cet effet secondaire persistait jusqu'à l'atteinte du neuvième niveau. C'est alors que tout le poison serait expulsé du corps pour former le véritable Poison du Sous-monde, permettant au pratiquant de retrouver une apparence normale. Avant cela, le corps subirait des déformations; la première manifestation étant l'apparition de pustules sur la peau.
+De plus, ce n'est qu'en atteignant le neuvième niveau, celui du retour à la simplicité originelle, que le corps expulserait le poison pour former le véritable Poison Ming et que le pratiquant redeviendrait un être normal. Avant cela, le corps subirait toutes sortes de mutations, la plus flagrante étant l'apparition de pustules.
 
-Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Bossu Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en une coquille vide dont l'unique savoir est de tuer.
+Après avoir fini sa lecture, Wang Lin réfléchit et renonça à cette voie. Bossu Meng devait avoir cette odeur fétide précisément parce qu'il pratiquait cette méthode. Bien que Wang Lin ne se soucie guère de son apparence, le jade précisait que la culture de cette technique remplissait le corps de poison. Il existait un risque que le venin envahisse la conscience, transformant l'individu en un mort-vivant qui ne sait que tuer.
 
 C'était la raison principale de son renoncement. Bien qu'il ne puisse pas pratiquer cette méthode, les jades contenaient de nombreuses techniques qu'il pourrait utiliser s'il disposait du poison nécessaire.
 
@@ -102,7 +102,7 @@ Il sortit tous les flacons du sac et utilisa les jades pour les identifier. Pres
 
 Cette pilule anti-poison n'était que de qualité moyenne. Pour accroître son efficacité, il fallait la consommer avec un poison léger.
 
-Wang Lin rangea tout dans son sac et jeta les restes de Bossu Meng au sol. Puis, il saisit un objet et son expression se fit grave.
+Wang Lin rangea tout dans son sac et jeta au sol le sac de rangement de Bossu Meng. Puis, il saisit un objet et son expression se fit grave.
 
 Il s'agissait du trésor vital de Bossu Meng: le chaudron vert.
 
@@ -126,15 +126,15 @@ Wang Lin se serait senti frustré s'il ne pouvait pas utiliser un tel trésor. S
 
 Le visage de Wang Lin devint sombre. Il leva la tête vers le pont de pierre. Ses yeux brillèrent lorsqu'il ordonna à l'épée cristalline de sortir. L'épée tourna autour de lui quelques fois avant de se stabiliser devant lui.
 
-Wang Lin regarda l'arme volante avec une expression nostalgique. Serrant les dents, il frappa l'épée cristalline. L'arme trembla avant d'émettre un chant d'épée. Des lignes rouges apparurent alors sur sa lame.
+Wang Lin regarda l'arme volante avec une expression hésitante. Serrant les dents, il frappa l'épée cristalline. L'arme trembla avant d'émettre un chant d'épée. Des lignes rouges apparurent alors sur sa lame.
 
-C'était l'essence sanguine de l'âme qu'il avait utilisée pour l'affinement sanguin à Zhao. Bien que son corps et celui de l'épée aient été détruits, la technique d'affinement sanguin était d'une tyrannie absolue, gravant l'essence de l'âme dans l'esprit même de l'arme.
+C'était l'essence de sang qu'il avait condensée par la technique d'affinement sanguin, à l'époque, au pays de Zhao. Bien que l'épée et son corps aient été détruits ensemble, la technique d'affinement sanguin était d'une tyrannie absolue, et elle s'était gravée de force sur l'esprit de l'épée.
 
-Cet esprit d'épée n'avait initialement ni forme ni intelligence, mais après avoir séjourné dans l'âme de Wang Lin durant tant d'années et suite à sa transformation en dévoreur d'âmes, il avait acquis une étincelle de conscience.
+Cet esprit d'épée n'avait initialement ni forme ni conscience, mais après avoir séjourné dans la mer de conscience de Wang Lin durant tant d'années et suite à sa transformation en dévoreur d'âmes, il avait acquis une étincelle de conscience.
 
 Ce n'est qu'en utilisant la technique d'affinement du Sanctuaire du Dieu de la Guerre pour lui donner un nouveau corps que sa transformation fut achevée.
 
-On pouvait dire que cette épée avait énormément servi Wang Lin. D'innombrables vies avaient été fauchées par elle. L'arme avait accumulé une telle intention meurtrière qu'elle pouvait désormais être considérée comme un trésor de mort.
+On pouvait dire que cette épée avait énormément servi Wang Lin. D'innombrables vies avaient été fauchées par elle. L'arme avait accumulé une telle intention meurtrière qu'elle pouvait désormais être considérée comme une arme sinistre.
 
 Wang Lin, le visage solennel, passa sa main droite au-dessus de la lame. Les lignes de sang devinrent si marquées que l'épée se fissura le long de ces veines et s'effondra au sol en morceaux.
 
@@ -172,9 +172,9 @@ Ce nuage de fumée brisa le vortex vert avant de retourner mystérieusement à l
 
 Une série de rugissements tonitruants s'échappa de l'objet et des fissures commencèrent à apparaître sur sa surface. Wang Lin se concentra pour observer le chaudron vert: il commençait enfin à fondre, mais d'une lenteur exaspérante. À ce rythme, le fourneau risquait de voler en éclats avant la fin du processus.
 
-Les yeux de Wang Lin scintillèrent. Il leva sa main droite et une flamme bleue apparut, faisant chuter instantanément la température ambiante. C'était la Flamme de l'Inframonde, créée lors de sa maîtrise de la Méthode d'Ascension des Enfers.
+Les yeux de Wang Lin scintillèrent. Il leva sa main droite et une flamme bleue apparut, faisant chuter instantanément la température ambiante. C'était la Flamme de Glace des Enfers, apparue lorsqu'il avait porté la Méthode d'Ascension des Enfers à la grande maîtrise.
 
-Cette flamme glaciale s'était déjà fusionnée avec son Noyau d'Or; elle ne disparaîtrait jamais, mais une utilisation excessive risquait de endommager son noyau.
+Cette flamme glaciale s'était déjà fusionnée avec son Noyau d'Or; elle ne disparaîtrait jamais, mais une utilisation excessive risquait d'endommager son noyau.
 
 C'est pourquoi il ne l'utilisait que comme ultime recours.
 
@@ -184,7 +184,7 @@ Wang Lin était d'une concentration absolue pour contrôler cette flamme afin qu
 
 À cet instant, les fissures sur le fourneau augmentèrent brusquement, mais avant qu'elles ne se propagent, la flamme de glace les enveloppa, stabilisant l'ouvrage.
 
-Après quelques respirations, Wang Lin était couvert de sueur. Il avait pris un risque immense: une maîtrise parfaite de la flamme aidait à maintenir le fourneau intact, mais la moindre erreurnel accélérait sa destruction.
+Après quelques respirations, Wang Lin était couvert de sueur. Il avait pris un risque immense: une maîtrise parfaite de la flamme aidait à maintenir le fourneau intact, mais la moindre erreur accélérerait sa destruction.
 
 Grâce au renforcement de la flamme glaciale, la fissuration fut ralentie. Cependant, s'il ne régulait pas la froideur de la flamme, cela entraverait la fonte du chaudron. Wang Lin devait maintenir un équilibre précaire: une température assez basse pour stabiliser le fourneau, mais assez élevée pour permettre au chaudron de fondre.
 
@@ -202,7 +202,7 @@ Deux rangées d'innombrables petites épines poussèrent sur les flancs de l'arm
 
 L'épée volante était désormais d'un vert sombre et parfaitement solidifiée. Elle contenait le venin du Chaudron du Roi Poison: si quelqu'un était touché, même si la lame ne tuait pas instantanément, le poison finirait par achever sa victime.
 
-Même un cultivateur au stade de l'Âme Naissante aurait de grandes difficultés à échapper à la mort après avoir été frappé par cette arme. Après tout, ce venin provenait du trésor de Bossu Meng.
+Même un cultivateur au stade de l'Âme Naissante ne pourrait échapper à la mort s'il était frappé par surprise par cette arme. Après tout, ce venin provenait du trésor de Bossu Meng.
 
 Cependant, après avoir reformé cette épée, il n'osait plus chercher à l'absorber; il choisit de la nourrir au sein de son Noyau d'Or. Même lors de son utilisation, il devrait rester vigilant, car s'il était touché par sa propre arme, sa survie serait compromise.
 

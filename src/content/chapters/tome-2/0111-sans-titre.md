@@ -18,9 +18,9 @@ Il songea d'abord à ses grains de riz cyan. Il avait déjà récupéré celui q
 
 Après avoir soigneusement rangé les trois grains, Wang Lin réfléchit encore un instant avant de fouiller dans ses sacs de rangement. Ayant tué de nombreux individus récemment, il lui restait encore une grande quantité d'objets à examiner.
 
-Après de longues recherches, Wang Lin sortit une perle ronde. Cette perle ne mesurait qu'un dixième de la taille d'un poing. Elle était parfaitement lisse, sans aucun motif, bien que quelques fissures marquent ses flancs.
+Après de longues recherches, Wang Lin sortit une perle ronde. Bien plus petite que la perle défiant le ciel, elle ne mesurait qu'un dixième de la taille d'un poing. Elle était parfaitement lisse, sans aucun motif, bien que quelques fissures marquent ses flancs.
 
-En tenant la perle, il ne put s'empêcher de penser à l'étrange homme nommé Adai. C'était le premier cadeau qu'Adai lui avait offert. Il contempla la perle, le regard brillant d'une lueur particulière.
+En tenant la perle, il ne put s'empêcher de penser à l'étrange homme nommé Adai. C'était le premier trésor magique qu'Adai lui avait offert. Il soupira légèrement, chassa ses pensées et contempla la perle, le regard brillant d'une lueur particulière.
 
 Après un long moment, ses lèvres se courbèrent en un sourire glacial. Il remit la perle dans son sac de rangement, prit une profonde inspiration et expulsa une lueur verte.
 
@@ -58,13 +58,13 @@ Finalement, tout le liquide disparut. En contemplant l'épée, Wang Lin vit que 
 
 Ce qui surprit le plus Wang Lin fut que la garde de l'épée avait presque totalement disparu. Auparavant, le ratio entre la garde et la lame était de 1:5, mais il était désormais de 1:15. À ce stade, on pouvait pratiquement ignorer l'existence de la garde.
 
-Ce que Wang Lin ignorait, c'est que cette épée volante, raffinée par son sang, était en pleine évolution.
+Ce que Wang Lin ignorait, c'est que cette épée volante, raffinée par son sang, subissait lentement une métamorphose extrême à mesure que son Royaume Ji se consolidait.
 
-Une fois que cette évolution atteindrait sa phase finale, l'épée acquerrait la propriété du Royaume Ji et deviendrait d'une puissance redoutable.
+Une fois cette métamorphose parvenue au Royaume Ji, les propriétés de l'épée atteindraient, dans un domaine précis, le point ultime de l'extrême.
 
 Wang Lin testa l'épée et découvrit qu'elle se déplaçait plus vite qu'auparavant. Lorsqu'il utilisait toute sa puissance, elle était si rapide que ses yeux ne pouvaient plus la suivre. Conjuguée à sa capacité de téléportation, cette épée volante représentait une existence terrifiante.
 
-Au minimum, si un cultivateur au stade de la Formation du Noyau, dépourvu de trésor défensif actif, était frappé par l'épée, son salut ne serait pas garanti. C'était là le pouvoir du Royaume Ji appliqué à un trésor magique: il permettait à l'objet de briser ses limites pour atteindre un état extrême.
+Au minimum, si un cultivateur au stade de la Formation du Noyau, n'ayant pas activé de trésor défensif ou ne portant pas d'armure, était frappé par l'épée, son salut ne serait pas garanti. C'était là le pouvoir du Royaume Ji appliqué à un trésor magique: il permettait à l'objet de briser ses propres limites et pousser un attribut unique à l'extrême.
 
 Cependant, face à un cultivateur de l'Âme Naissante, cela restait insuffisant. Après tout, Wang Lin n'était qu'au stade de l'Établissement des Fondations. Même avec le Royaume Ji, il était encore bien trop faible.
 

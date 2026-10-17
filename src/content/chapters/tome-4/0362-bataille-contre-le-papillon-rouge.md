@@ -16,7 +16,7 @@ Wang Lin dit: « Attendez un instant! »
 
 Le garçon s'arrêta, se retourna et fixa Wang Lin.
 
-Bien que la pièce fût sombre, il pouvait encore distinguer clairement les traits du garçon. Ce dernier était très jeune, n'avait qu'environ 13 ou 14 ans.
+Bien que la pièce fût sombre, il pouvait encore distinguer clairement les traits du garçon. Ce dernier était très jeune, n'avait qu'environ 13 ou 14 ans, avec le teint clair et des traits fins.
 
 Sans attendre qu'il soit interrogé par Wang Lin, le garçon ouvrit la bouche et désigna l'intérieur. Il n'y avait que la moitié de sa langue.
 
@@ -30,7 +30,7 @@ En observant les fruits sur le plateau, il réfléchit un instant avant de se re
 
 Le temps passa et, en un clin d'œil, trois jours s'écoulèrent. Durant cette période, seul le garçon vint dans sa chambre. Le matin du deuxième jour, Wang Lin sortit, mais découvrit que tous les serviteurs avaient perdu la moitié de leur langue, les rendant incapables de parler.
 
-De plus, une grande partie de la zone était recouverte de puissantes restrictions qui les empêchaient d'aller trop loin. Wang Lin ne serait pas en mesure de briser l'une d'elles en peu de temps.
+De plus, à de nombreux endroits se trouvaient de puissantes restrictions que Wang Lin ne pouvait pas briser en peu de temps.
 
 Il y avait quelque chose de sinistre dans cet endroit.
 
@@ -38,7 +38,7 @@ Wang Lin médita un moment, puis renonça à ses réflexions. Il se concentra su
 
 Dix jours passèrent sans aucune distraction. Ce jour-là, alors qu'il était en pleine culture, il ouvrit soudainement les yeux et vit un homme d'âge mûr assis face à lui. L'homme versa une tasse de thé et regarda Wang Lin.
 
-Cet homme était élégant, sans être extrêmement beau. Il n'avait pas de barbe, mais présentait une légère barbe de quelques jours. Ses yeux étaient brillants, bien que semblant voilés par une sorte de brume. Bien qu'il ne parlât pas, il dégageait une aura de majesté.
+Cet homme avait un port imposant. Il n'avait pas de barbe, mais présentait une légère barbe de quelques jours. Ses yeux étaient brillants, bien que semblant voilés par une sorte de brume. Bien qu'il ne parlât pas, il dégageait une aura de majesté.
 
 Le regard de Wang Lin resta calme. Il n'était nullement surpris que cet homme ait pu entrer sans qu'il s'en aperçoive. De nombreuses personnes possédant un niveau de culture supérieur au sien se trouvaient ici. Il n'était plus un jeune garçon débutant en culture; il ne se laissait pas facilement impressionner.
 
@@ -110,9 +110,9 @@ Le Papillon Rouge baissa les yeux vers sa manche vide avant de lever la tête. S
 
 Non seulement Wang Lin était le premier à l'avoir vaincue, mais il lui avait même arraché un bras. Si Wang Lin l'avait battue lors d'un combat direct, bien qu'elle l'aurait détesté, sa haine n'aurait pas été aussi viscérale.
 
-Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tentant de briser son cœur taoïste. Durant toutes ces années, son niveau de culture n'avait pas progressé. Tout cela était de la faute de Wang Lin.
+Mais ce jour-là, Wang Lin avait frappé alors qu'elle était au plus bas, tentant de briser son cœur dao. Durant toutes ces années, son niveau de culture n'avait pas progressé. Tout cela était de la faute de Wang Lin.
 
-Seul en le tuant pourrait-elle restaurer son cœur taoïste.
+Ce n'est qu'en le tuant qu'elle pourrait restaurer son cœur dao.
 
 L'expression de Wang Lin resta imperturbable alors qu'il fixait calmement le Papillon Rouge.
 
@@ -130,27 +130,27 @@ Une fois que les deux furent entrés, la porte s'étendit instantanément pour c
 
 En entrant dans la porte de lumière, Wang Lin comprit qu'il s'agissait d'une matrice de transfert. Il apparut au cœur d'un massif montagneux désolé.
 
-Les environs étaient d'un calme plat et aucune lumière ne filtrait du ciel. Une aura oppressante imprégnait l'air.
+Les environs étaient d'un calme plat et aucune lumière ne filtrait du ciel. Une aura irritante enveloppait le ciel.
 
-De gigantesques chênes séculaires poussaient partout. À 33 mètres de lui, un immense python rouge le fixait froidement en tirant la langue.
+De gigantesques arbres antiques poussaient çà et là. À 33 mètres de lui, un python à motifs rouges, gros comme un seau, laissait pendre sa tête d'une fourche d'arbre et le fixait froidement en tirant la langue.
 
 Un cri retentit depuis le ciel: « Ceng Niu! »
 
 Wang Lin s'élança dans les airs et vit un rayon de lumière rouge foncer vers lui. Avant même qu'elle n'atteigne sa cible, une aura glaciale s'était déjà propagée.
 
-Cette aura se condensa en fines particules de glace qui, à 33 mètres de Wang Lin, formèrent une sculpture de glace monumentale.
+Cette aura se condensa en particules de glace de la taille d'un pouce qui, à 33 mètres de Wang Lin, formèrent une sculpture de glace monumentale.
 
 Cette statue de glace mesurait plus de 33 mètres de haut et avait une forme humaine. Son visage était inexpressif tandis qu'elle projetait son poing gigantesque sur Wang Lin.
 
 Les yeux de Wang Lin s'illuminèrent et il recula.
 
-Un éclat de lumière rouge apparut au sommet de la sculpture de glace, et le Papillon Rouge en émergea. Ses yeux étaient froids alors qu'elle fixait Wang Lin et murmura quelques mots. Une lumière vive jaillit et se mua en une rose de glace flottant devant elle.
+Un éclat de lumière rouge apparut au sommet de la sculpture de glace, et le Papillon Rouge en émergea. Ses yeux étaient froids alors qu'elle fixait Wang Lin et exhala un éclat brillant qui se mua en une rose de glace flottant devant elle.
 
 Elle avait résolu de ne pas s'engager dans un long combat contre Ceng Niu. Elle utiliserait la méthode la plus rapide pour l'éliminer.
 
 Alors que le géant de glace lançait son coup, le Papillon Rouge arracha un pétale de rose et le projeta en avant. Le pétale oscillait comme un navire sur une mer déchaînée.
 
-Wang Lin laissa échapper un reniflement méprisant. Il agita sa main droite et le drapeau de restriction apparut dans sa paume. Un gaz de restriction s'en échappa sous la forme de dragons qui s'entrelacèrent pour fusionner en un poing gigantesque, venant percuter celui du géant de glace.
+Wang Lin laissa échapper un reniflement méprisant. Il agita sa main droite et le drapeau de restriction apparut dans sa paume. Un gaz de restriction s'en échappa sous la forme de dragons féroces qui s'entrelacèrent pour fusionner en un gigantesque poing noir, venant percuter celui du géant de glace.
 
 Bang!
 

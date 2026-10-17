@@ -16,7 +16,7 @@ Les seules pensées qui occupaient l'esprit de Wang Hao et Wang Zhuo étaient la
 
 Le cultivateur aux allures d'immortel afficha une expression complexe. Il soupira et se détourna pour ne plus avoir à les regarder.
 
-Teng Huayuan sourit en pénétrant dans la demeure. Il referma le poing. Lorsqu'il l'ouvrit de nouveau, un anneau de lumière violette apparut, empêchant quiconque de s'échapper.
+Teng Huayuan sourit en pénétrant dans la demeure. Il joignit les mains; en les écartant, une onde annulaire violette se propagea et enveloppa toute la demeure, empêchant quiconque de s'échapper.
 
 Puis, d'un pas assuré, il pénétra dans l'une des maisons annexes où vivaient les serviteurs. Des vagues de cris déchirants s'élevèrent de la demeure tandis que le drapeau recueillait des flux de gaz jaunâtre.
 
@@ -36,13 +36,13 @@ Teng Huayuan se retourna avec un ricanement méprisant. D'un revers de main, il 
 
 Cet homme et cette femme étaient le troisième oncle et la tante de Wang Lin, qui étaient également les parents de Wang Hao.
 
-La main droite de Teng Huayuan s'étira, et le père de Wang Hao fut soulevé dans les airs, une main enserrant sa gorge. Son visage devint instantanément pourpre et il ouvrit la bouche dans une expression d'agonie pure.
+La main droite de Teng Huayuan s'étira, et le père de Wang Hao fut soulevé dans les airs, ses deux mains agrippées à sa gorge. Son visage devint instantanément pourpre et il ouvrit la bouche dans une expression d'agonie pure.
 
 Les yeux de Wang Hao devinrent injectés de sang alors que ses larmes coulaient sans fin. Il poussa un rugissement et s'apprêta à s'élancer, mais Wang Zhuo le maintint de force. Wang Zhuo chuchota: « Wang Hao, ne sois pas imprudent. Cet homme est un cultivateur de l'Âme Naissante. »
 
-Teng Huayuan ricana. Sa main droite se referma brutalement. Dans un craquement sinistre, la tête du père de Wang Hao fut broyée. Son corps s'effondra au sol, puis son âme s'en échappa pour être instantanément capturée par le drapeau.
+Teng Huayuan ricana. Sa main droite se referma brutalement. Dans une détonation, la tête du père de Wang Hao se changea en brume de sang. La moitié de son corps s'effondra au sol, puis son âme s'en échappa pour être instantanément capturée par le drapeau.
 
-« Non! » La voix de Wang Hao devint rauque. Une douleur fulgurante lui lacéra la poitrine alors qu'il crachait du sang. Fixant le cadavre de son père, il murmura: « Pourquoi... pourquoi...? »
+« Non! » La voix de Wang Hao devint rauque. Sa poitrine lui sembla frappée par un énorme rocher et il cracha du sang. Fixant le cadavre de son père, il murmura: « Pourquoi... pourquoi...? »
 
 Teng Huayuan saisit à nouveau la mère de Wang Hao, lui brisa le crâne et jeta son corps devant son fils.
 
@@ -58,7 +58,7 @@ Au milieu des hurlements, son âme fut arrachée par Teng Huayuan, et il rendit 
 
 Wang Hao contemplait la scène, hébété. Il ne réalisa même pas que la main de Wang Zhuo qui le maintenait avait déjà gravé des marques sanglantes sur sa peau. Wang Zhuo n'osait pas chercher ses propres parents dans la foule; il baissa ses yeux injectés de sang.
 
-Le quatrième oncle de Wang Lin, ayant vécu longtemps en pleine nature, faisait preuve d'un courage bien supérieur à la moyenne. Il esquissa un sourire amer, comme s'il avait tiré les conclusions nécessaires. Sa femme était morte l'année précédente et son fils avait déjà été envoyé dans une secte martiale; il n'avait donc plus rien à perdre. Il demanda d'une voix forte:
+Le quatrième oncle de Wang Lin, ayant vécu longtemps en pleine nature, faisait preuve d'un courage bien supérieur à la moyenne. Il esquissa un sourire amer, comme s'il avait tiré les conclusions nécessaires. Sa femme était morte de maladie l'année précédente et son fils avait été envoyé depuis de nombreuses années dans une secte martiale pour s'aguerrir; il n'avait donc plus rien à perdre. Il demanda d'une voix forte:
 
 « Immortel, quelle offense ma famille Wang a-t-elle commise à votre égard? Je sais que les mortels ne sont que des fourmis à vos yeux, mais même les fourmis ont le droit de connaître la cause de leur perte. »
 
@@ -76,9 +76,9 @@ Parmi les survivants, le père de Wang Zhuo tomba à genoux et demanda: « Immor
 
 Un éclat glacial traversa les yeux de Teng Huayuan tandis qu'il pensait secrètement: « Wang Lin... donc c'est ainsi qu'il s'appelle! » Il fixa le père de Wang Zhuo, tendit la main pour le saisir et l'étudia de près. Il plongea son regard dans le sien et exigea mot pour mot: « Dis-moi tout sur ce Wang Lin! »
 
-Le père de Wang Zhuo livra promptement toutes les informations sur Wang Lin, y compris le lieu de résidence de ses parents. Dans son esprit, il fulminait: « Mourrez tous, mourez! Même si ce n'est pas lui qui l'a tué, la famille Wang est condamnée, alors vos parents doivent périr également! »
+Le père de Wang Zhuo livra promptement toutes les informations sur Wang Lin, y compris le lieu de résidence de ses parents. Dans son esprit, il fulminait: « Mourrez tous, mourez! Même si ce n'est pas toi qui l'as tué, la famille Wang n'existe plus: que tes parents soient enterrés avec nous! »
 
-Une fois ses informations recueillies, Teng Huayuan éclata d'un rire. Il referma le poing et, lorsqu'il l'ouvrit, une sphère de foudre apparut. Il la projeta négligemment, libérant une onde de choc circulaire.
+Une fois ses informations recueillies, Teng Huayuan éclata d'un rire. Il joignit les mains et, en les écartant, une sphère de foudre apparut entre elles. Il la poussa négligemment, libérant une onde de choc circulaire.
 
 Le père de Wang Zhuo fut le plus proche. Dès que l'onde le toucha, son corps fut secoué et se changea en poussière avec ses vêtements. À mesure que les ondulations se propageaient, quiconque était atteint mourait sur le coup, son âme étant aspirée par le drapeau.
 
@@ -90,17 +90,17 @@ Ce dernier soupira: « Camarade cultivateur Teng, laissez cet homme en vie. Il m
 
 Teng Huayuan ricana en désignant Wang Zhuo et Wang Hao: « Vous n'interviendrez donc pas pour ces deux-là? »
 
-Le cultivateur esquissa un léger sourire face à lui: « Camarade cultivateur Teng, pourquoi posez-vous une question si évidente? Bien sûr, je ne vous en empêcherai pas, mais si le Senior Pu Nanzi me l'interroge, je devrai lui dire la vérité. »
+Le cultivateur esquissa un léger sourire face à lui: « Camarade cultivateur Teng, pourquoi posez-vous une question si évidente? Si vous les tuez devant moi, je ne m'en mêlerai pas sur le moment, mais si le Senior Pu Nanzi de la Secte Xuan Dao me pose la question, je devrai naturellement lui dire la vérité. »
 
 Teng Huayuan dévisagea le cultivateur. Après un long silence, il frappa le sol de ses pieds et tout le domaine de la famille Wang fut réduit en gravats.
 
 Quant à Wang Zhuo et ses compagnons, il ne leur accorda même pas un regard alors qu'il s'élançait vers les parents de Wang Lin.
 
-Le corps de Wang Zhuo tremblait devant les ruines. Après une longue réflexion, il s'agenouilla et se prosterna avec ferveur. Son front saignait et son expression était d'une gravité absolue.
+Le corps de Wang Zhuo tremblait devant les ruines. Après un court silence, il s'agenouilla et se prosterna à plusieurs reprises avec force. Son front était brisé et le sang lui couvrait le visage. À cet instant, ses traits avaient pris une expression légèrement féroce.
 
 Wang Hao serra les dents, laissa échapper un rire déchirant et s'effondra.
 
-Wang Zhuo se releva et souleva Wang Hao. Il inclina respectueusement le cultivateur avant de s'envoler vers la Secte Xuan Dao. Tous ses souvenirs liés à la famille Wang venaient d'être balayés.
+Wang Zhuo se releva et souleva Wang Hao. Il inclina respectueusement le cultivateur avant de s'envoler vers la Secte Xuan Dao. Les frictions d'autrefois furent balayées avec l'anéantissement de la famille Wang.
 
 Le cultivateur aux allures d'immortel soupira: « C'est un véritable péché. J'ignore si mon acte est juste ou injuste... mais cet homme d'âge moyen n'est vraiment pas ordinaire. Je sauverai qui je peux. » Sur cette pensée, il agita ses manches et disparut du domaine de la famille Wang, emportant le quatrième oncle de Wang Lin avec lui.
 
@@ -110,18 +110,18 @@ Des vagues de cris misérables émanaient du drapeau, provoquant des rafales de 
 
 Une fois arrivé au village, il déploya son Sens Divin. Il localisa rapidement la demeure de Wang Lin et s'y précipita.
 
-Quinze minutes plus tard, Teng Huayuan sortit de la maison. D'un geste de sa main droite, il frappa le drapeau qui grandit jusqu'à atteindre une taille gigantesque tandis qu'il recrachait un peu de Sang Primordial. Des hurlements s'élevèrent du drapeau alors que des ondulations s'y propageaient. Lentement, ces ondes disparurent pour révéler une image: celle de Wang Lin se déplaçant avec précipitation à travers une jungle.
+Quinze minutes plus tard, Teng Huayuan sortit de la maison. D'un geste de sa main droite, il frappa le drapeau qui grandit jusqu'à atteindre une taille gigantesque tandis qu'il se mordait le bout de la langue et crachait une gorgée de sang de l'Âme Naissante. Des hurlements s'élevèrent du drapeau alors que des ondulations s'y propageaient. Lentement, ces ondes disparurent pour révéler une image: celle de Wang Lin se déplaçant avec précipitation à travers une jungle.
 
 Teng Huayuan sourit et pointa l'image du doigt.
 
-Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il dirigeait ses trois poursuivants vers le lieu de rassemblement de la Secte des Cadavres. Soudain, il trébucha, tomba à demi à genoux et cracha un jet de sang.
+Quant à Wang Lin, sous l'effet d'une sensation d'horreur inexplicable, il dirigeait ses trois poursuivants vers le lieu de rassemblement de la Secte des Cadavres. Soudain, une douleur sans précédent lui frappa la poitrine, comme si un souffle lui était arraché; il poussa un gémissement, trébucha, tomba à demi à genoux et cracha un jet de sang.
 
 La douleur! Une douleur inimaginable! Une douleur indescriptible!
 
-Cette souffrance submergeait Wang Lin comme un déluge. Les cultivateurs étant extrêmement sensibles à certaines énergies, Wang Lin ressentit une panique inédite. Les visages de ses parents apparurent devant lui.
+Cette souffrance submergeait Wang Lin comme un déluge. Les cultivateurs étant extrêmement sensibles à certaines énergies, Wang Lin ressentit une panique inédite. Les visages bienveillants de ses parents lui apparurent malgré lui.
 
 Peu après, Wang Lin fut témoin d'une scène dont il se souviendrait pour le reste de sa vie.
 
-« Non! » Deux filets de sang jaillirent de ses yeux. Son expression était suppliciée, son corps tremblait et des filaments d'énergie spirituelle Yin s'agitaient violemment en lui, totalement hors de contrôle. Chaque plante dans un rayon de trente-trois mètres autour de lui fut instantanément gelée. Cette aura glaciale ne cessait de gagner en puissance.
+« Non! » Deux traînées de larmes de sang coulèrent de ses yeux. Son expression était suppliciée, son corps tremblait et des filaments d'énergie spirituelle Yin s'agitaient violemment en lui, totalement hors de contrôle. Chaque plante dans un rayon de trente-trois mètres autour de lui fut instantanément changée en cristaux bleus. Cette aura glaciale ne cessait de gagner en puissance.
 
-C'est à cet instant précis que le « Ji » à l'intérieur de Wang Lin grimpa sans fin, atteignant le Royaume du Ji!
+C'est à cet instant précis que le « Ji » à l'intérieur de Wang Lin grimpa sans fin, atteignant le Royaume Ji, le Ji où l'on pousse toute chose à l'extrême!

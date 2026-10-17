@@ -34,7 +34,7 @@ Une gigantesque boule de feu fonçait depuis là. L'onde de chaleur précéda la
 
 Une fois le chemin dégagé, la boule de feu traversa le vide et explosa dans le ciel au-dessus du fragment. Elle se dispersa en d'innombrables météores projetés dans toutes les directions. Au cœur de l'explosion se trouvait un Qilin entouré de flammes vertes. Il expira deux jets de vapeur blanche par les naseaux tout en fixant les trois dragons dorés.
 
-« C'est... un Qilin céleste! La bête gardienne de la Secte de l'Épée Da Lou! »
+« C'est... un Qilin céleste! La bête gardienne de la Secte de l'Épée Da Luo! »
 
 « Cette bête appartient au Saint de l'Épée Ling Tianhou. Ce vieux maître est ici! »
 
@@ -52,11 +52,11 @@ Après deux impacts, le visage de Wang Lin devint livide et un filet de sang s'�
 
 Ils n'étaient pas les seuls: de nombreuses personnes avaient le sang coulant des lèvres, leurs visages empreints de choc et d'effroi.
 
-Quelques-uns, ayant reconnu le Qilin, baissèrent rapidement la tête en ricanant intérieurement: « Hmph, le Saint de l'Épée de la Secte Da Lou n'est pas un adversaire à notre portée. Son niveau de culture surpasse les cieux et ces quatre épées sont ses trésors de vie, forgés par sa propre culture. Elles ne disparaissent jamais et peuvent se multiplier en milliers de lames. Si votre culture n'est pas assez élevée, le simple fait de les regarder vous blessera. Si vous tentez de forcer votre regard, vous pourriez même en mourir. »
+Quelques-uns, ayant reconnu le Qilin, baissèrent rapidement la tête en ricanant intérieurement: « Hmph, le Saint de l'Épée de la Secte Da Luo n'est pas un adversaire à notre portée. Son niveau de culture surpasse les cieux et ces quatre épées sont ses trésors de vie, forgés par sa propre culture. Elles ne disparaissent jamais et peuvent se multiplier en milliers de lames. Si votre culture n'est pas assez élevée, le simple fait de les regarder vous blessera. Si vous tentez de forcer votre regard, vous pourriez même en mourir. »
 
 Wang Lin prit une profonde inspiration, frappa son sac de rangement pour en sortir le drapeau de restriction. Le drapeau se transforma en une brume noire qui l'enveloppa rapidement. Il avala quelques pilules et commença à cultiver, ce qui permit à une légère rougeur de revenir sur ses joues.
 
-Après l'apparition du Qilin, celui-ci expulsa deux jets d'air brûlant avant de charger.
+Après l'apparition du Qilin, celui-ci expulsa deux jets d'air, puis avança un sabot.
 
 À cet instant, le vieil homme assis sur le Qilin ouvrit les yeux. Il fixa la femme en robe blanche avec un visage empreint de gravité. Son expression était sombre lorsqu'il demanda lentement: « Êtes-vous une Céleste? »
 
@@ -70,7 +70,7 @@ Les yeux du vieil homme s'illuminèrent de rage. En tant que premier ou second p
 
 La femme en robe blanche resta imperturbable. Ses yeux étaient empreints de mélancolie alors qu'elle fixait le Qilin plutôt que l'homme, et dit: « Créature maléfique, même vos ancêtres n'osaient agir ainsi devant moi. Auriez-vous perdu votre mémoire héréditaire après l'effondrement du royaume céleste? »
 
-Une pointe de confusion passa dans les yeux du Qilin. Le visage de l'homme devint renfrogné et une fumée noire apparut sur sa main. Il projeta cette fumée dans la tête du Qilin. Terrifiée, la créature vit son trouble disparaître pour laisser place à une expression de sauvagerie.
+Une pointe de confusion passa dans les yeux du Qilin. Le visage de l'homme devint renfrogné et une lueur noire apparut sur sa main. Il l'abattit sur la tête du Qilin. Le trouble de la créature disparut pour laisser place à une expression de sauvagerie.
 
 La femme secoua la tête: « Ainsi, ce n'est qu'une bête inférieure qui n'a jamais reçu d'héritage. » Sur ce, elle leva la main et pointa le Qilin.
 
@@ -86,11 +86,11 @@ Après deux impacts, deux des épées volèrent en éclats. Le visage du vieil h
 
 Le quatrième dragon aux côtés de la femme devenait de plus en plus tangible. Il était presque achevé.
 
-« Ce n'est pas une Céleste ordinaire!!! La façon dont elle s'exprime... pourrait-elle être une Reine Céleste...? » Le vieil homme était terrifié. En seulement deux gestes, elle avait brisé deux de ses épées. Même Tian Yunzi ne l'aurait pas fait. Comment ne serait-il pas bouleversé?
+« Ce n'est pas une Céleste ordinaire!!! La façon dont elle s'exprime... pourrait-elle être un Roi Céleste...? » Le vieil homme était terrifié. En seulement deux gestes, elle avait brisé deux de ses épées. Même Tian Yunzi ne l'aurait pas fait. Comment ne serait-il pas bouleversé?
 
 « Tant pis, au pire je n'obtiendrai pas l'épée céleste aujourd'hui... Heu, quelque chose ne va pas! » Le vieil homme s'interrompit soudainement, plongé dans une réflexion alors qu'il observait le fragment.
 
-« Si elle est vraiment une Reine Céleste et que je l'ai offensée, la loi céleste punirait cela par la destruction de mon âme originelle. Pourtant, elle ne m'a pas tué... Je comprends maintenant. Ce n'est pas qu'elle refuse de me tuer, c'est qu'elle veut me faire fuir! »
+« Si elle est vraiment un Roi Céleste et que je l'ai offensée, la loi céleste punirait cela par la destruction de mon âme originelle. Pourtant, elle ne m'a pas tué... Je comprends maintenant. Ce n'est pas qu'elle refuse de me tuer, c'est qu'elle veut me faire fuir! »
 
 Sans hésiter, l'homme fit volte-face et chargea à nouveau vers le fragment. Cette fois, les deux épées restantes se multiplièrent: de deux à quatre, puis de quatre à huit. En un clin d'œil, plus de cent lames l'accompagnaient dans sa course effrénée.
 
@@ -102,7 +102,7 @@ Mais le vieil homme revint.
 
 La femme en robe blanche resta calme. Elle se tourna vers la masse pourpre sur le front du dragon, soupira, puis fit un pas en avant pour affronter l'adversaire.
 
-« Reine Céleste, je veux voir de quel pouvoir dispose une Céleste! » hurla l'homme en chargeant.
+« Roi Céleste, je veux voir de quel pouvoir dispose une Céleste! » hurla l'homme en chargeant.
 
 La femme agita la main. Une série de détonations fracassantes retentit, comme si les cieux se déchiraient. Les cent épées semblèrent heurter un mur métallique indestructible avant de toutes voler en éclats. Le visage du vieil homme changea radicalement et il recula promptement, ses mains continuant de tracer des sceaux tout en battant en retraite.
 
@@ -110,10 +110,10 @@ Des écrans de lumière défensive apparurent devant lui, mais chaque protection
 
 Bang! Bang! Bang! Bang!
 
-Ce n'est qu'au trois-centième écran de lumière que celui-ci se contenta de trembler au lieu de se briser. Le visage du vieil homme était livide, mais ses yeux ne montraient pas de panique, seulement une excitation fébrile. Car il percevait clairement que le corps de la femme vacillait; une lueur de mort apparut sur son visage.
+Ce n'est qu'après plus de trois cents écrans de lumière que le dernier se contenta de trembler au lieu de se briser. Le visage du vieil homme était livide, mais ses yeux ne montraient pas de panique, seulement une excitation fébrile. Car il percevait clairement que le corps de la femme vacillait; une lueur de mort apparut sur son visage.
 
 « Une Céleste n'est donc pas plus forte que cela! » Il rit et joignit les mains devant sa poitrine. Lorsqu'il les écarta, des éclairs jaillirent entre ses paumes. La foudre prit la forme d'une épée qui, sous son contrôle, fonça sur la femme en robe blanche.
 
 L'expression de cette dernière demeura sereine. Elle soupira et agita la main, mais cette fois, après son geste, l'aura de mort sur son corps s'intensifia considérablement.
 
-Une voix grave émana de la tête de l'un des dragons dorés: « Ting Er... Laisse-moi sortir d'ici. Si tu utilises l'énergie spirituelle céleste que j'ai accumulée durant ces deux mille dernières années, tu auras peut-être une chance de te réveiller! »
+Une voix grave émana de la tête de l'un des dragons dorés: « Ting Er... Laisse-moi sortir d'ici. Si tu épuises toute ton énergie spirituelle céleste accumulée durant plus de deux mille ans, tu ne te réveilleras peut-être plus jamais de cette vie! »

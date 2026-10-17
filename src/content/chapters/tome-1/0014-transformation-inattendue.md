@@ -8,7 +8,7 @@ slug: transformation-inattendue
 ---
 Wang Lin sentit une chaleur l'envahir le cœur. Depuis un mois, il devait s'habituer aux moqueries des gens. Mais maintenant qu'il était de retour chez lui, il ressentait toute la tendresse de ses parents.
 
-« Deuxième frère, Wang Lin est véritablement un disciple immortel. Votre sixième frère est aveugle et a laissé échapper quelques paroles dures; j'espère que tu ne le prendras pas trop à cœur. Tu me connais, j'ai la langue acérée mais le cœur tendre. Ce n'était que pour le bien de Wang Lin. »
+« Deuxième frère, Wang Lin est véritablement un disciple immortel. Votre sixième frère était aveugle à l'époque et a laissé échapper quelques paroles dures; j'espère que tu ne le prendras pas trop à cœur. Tu me connais, j'ai la langue acérée mais le cœur tendre. Ce n'était que pour le bien de Wang Lin. »
 
 « Belle-sœur, quand j'ai annoncé à ma fille que je ne l'avais pas promise en mariage, elle a paniqué et a affirmé qu'elle devait absolument épouser Tie Zhu de votre famille. Laissons ce mariage se conclure. »
 
@@ -22,9 +22,9 @@ Après cette journée animée, alors que le crépuscule tombait, tous les proche
 
 Cette nuit-là, ses parents l'interrogèrent sur sa vie au sein de la secte. Voyant l'espoir briller dans leurs yeux, il leur mentit pour la première fois. Il leur décrivit à quel point il était populaire et comment il pratiquait les techniques immortelles. Ses parents écoutaient avec émerveillement.
 
-Pour ses parents, peu importait la dureté de sa condition de disciple honorifique ou l'ampleur des moqueries; il endurait tout cela car, depuis son enfance, il ne les avait jamais vus aussi heureux.
+Pour ses parents, peu importait la dureté de sa condition de disciple honoraire ou l'ampleur des moqueries; il endurait tout cela car, depuis son enfance, il ne les avait jamais vus aussi heureux.
 
-« Ce n'est que pour dix ans, je l'endurai! » Wang Lin se jura intérieurement.
+« Ce n'est que pour dix ans, je l'endurerai! » Wang Lin se jura intérieurement.
 
 Wang Lin resta chez lui pour passer deux jours avec ses parents. Le troisième jour, ses parents et tous les villageois lui firent ses adieux. Il fixa le talisman immortel sur sa jambe et partit. Même à distance, il pouvait encore entendre les voix des villageois résonner.
 
@@ -40,7 +40,7 @@ Troublé et incapable d'en trouver la raison, sa curiosité envers la bille de p
 
 Dehors, le vent hurlait, le tonnerre grondait, les éclairs déchiraient le ciel et une pluie torrentielle s'abattait sur le monde. Les gouttes frappaient violemment contre la fenêtre. Wang Lin fut soudain tiré du sommeil par une bouffée d'air glacial. Il ouvrit les yeux et resta pétrifié.
 
-Les éclairs incessants illuminaient la pièce, désormais saturée d'une brume épaisse. La table, le sol et même les lits étaient trempés. Pourtant, à l'exception de la tache humide là où il rangeait la perle, Wang Lin était parfaitement sec. Il regarda Zhang Hu et vit que son corps était enveloppé d'une brume blanche. Ses vêtements étaient détrempés, son corps couvert de givre et ses dents claquaient sous l'effet du froid.
+Les éclairs incessants illuminaient la pièce, désormais saturée d'une brume épaisse. La table, le sol et même les lits étaient trempés. Pourtant, à l'exception de la tache humide là où il rangeait la perle, Wang Lin était parfaitement sec. Il regarda Zhang Hu et vit que son corps était enveloppé d'une brume blanche. Ses vêtements étaient détrempés, son corps couvert de givre, les yeux clos, le visage violacé, et ses dents claquaient sous l'effet du froid.
 
 « Zhang Hu! Zhang Hu! » Pris de panique, Wang Lin se redressa et secoua son compagnon. Mais Zhang Hu ne montrait aucun signe de réveil et sa respiration était devenue très faible.
 
@@ -60,8 +60,8 @@ Après un long moment, alors que l'orage faisait toujours rage à l'extérieur, 
 
 Le nombre de nuages sur sa surface était passé à sept!
 
-L'événement précédent avait décuplé sa curiosité, mais lui avait aussi insufflé une pointe de terreur. S'il ne s'était pas réveillé à temps, Zhang Hu serait mort gelé. Quant à la raison pour laquelle il n'avait pas été affecté, Wang Lin ne pouvait supputer qu'il était dû au fait qu'il avait bu beaucoup d'eau imprégnée de la rosée émanant de la perle.
+L'événement précédent avait décuplé sa curiosité, mais lui avait aussi insufflé une pointe de terreur. S'il ne s'était pas réveillé à temps, Zhang Hu serait mort gelé. Quant à la raison pour laquelle il n'avait pas été affecté, Wang Lin ne pouvait que l'attribuer au fait qu'il buvait souvent de l'eau de source et de la rosée dans lesquelles la perle avait trempé.
 
-Bien que Wang Lin soit fébrilement curieux de connaître le pouvoir des nuages sur cette pierre, il renonça à l'idée d'aller dehors pour laisser la perle absorber davantage d'eau; il craignait que la scène ne finisse par attirer l'attention de tous.
+Bien que Wang Lin soit fébrilement curieux de connaître le pouvoir des nuages sur cette pierre, il renonça à l'idée d'aller dehors pour laisser la perle absorber davantage d'eau de pluie; il craignait que la scène ne finisse par attirer l'attention de tous.
 
 Après avoir hésité un instant, il remit soigneusement la perle dans sa poche. Peu après, l'aube pointa. Alors que Wang Lin s'apprêtait à partir pour ses corvées, Zhang Hu bondit de son lit en hurlant: « De l'eau! De l'eau! La soif me tue! »

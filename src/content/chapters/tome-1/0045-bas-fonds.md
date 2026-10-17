@@ -8,9 +8,9 @@ slug: bas-fonds
 ---
 À ces mots, ses yeux s'illuminèrent et il se mit à crier:
 
-« Frères de la Secte Heng Yue, il existe un vieil adage: "Tuer une personne ne demande qu'un signe de tête". Mais je vous le demande: comment tuer quelqu'un peut-il être aussi satisfaisant que de le discréditer? En les humiliant ainsi, ils porteront leur ignominie pendant dix mille ans. Réfléchissez-y: lorsque vous affrontez un rival et que vous utilisez cela, même si vous ne l'emportez pas, vous en sortirez avec bien plus de prestige que lui! »
+« Frères de la Secte Heng Yue, il existe un vieil adage: "Tuer quelqu'un, ce n'est jamais qu'une tête qui touche le sol". Mais aujourd'hui je vous le dis: tuer quelqu'un peut-il être aussi satisfaisant que de le dégoûter? Le dégoûter, c'est lui laisser une puanteur qui le suivra pendant dix mille ans. Réfléchissez-y: lorsque vous affrontez un rival et que vous utilisez cela, même si vous ne l'emportez pas, vous en sortirez avec bien plus de prestige que lui! »
 
-« Ou bien, lors d'une fuite, si vous possédez cet art, il fera des merveilles. Si vous vous retrouvez dans une zone bondée, comment oserait-il encore vous poursuivre après une telle honte? »
+« Ou bien, lors d'une fuite, si vous possédez cet art, il fera des merveilles. Son corps couvert de cendre noire et exhalant une puanteur, si vous courez justement vers les endroits très fréquentés, comment aurait-il encore le front de vous poursuivre? »
 
 « De plus, si vous rencontrez un rival amoureux, cela peut s'avérer décisif. Héhé, si quelqu'un ose vous voler votre femme, utilisez ceci contre lui; il n'aura plus jamais sa chance, car elle ne voudra plus jamais approcher une telle puanteur! »
 
@@ -38,9 +38,9 @@ Dans un fracas, la bombe fétide explosa, noircissant le sol et libérant une od
 
 Les yeux de Wang Lin s'illuminèrent. Personne ne savait que son Sens Divin couvrait toute la zone. Lors de l'explosion, il avait détecté une fluctuation de puissance spirituelle émanant de Li Shan. C'en était de même lors du premier lancer. Wang Lin eut un sourire intérieur, mais ne le signala pas et continua d'observer.
 
-Li Shan déclara en souriant: « Alors, qu'en dites-vous? Ces bombes fétides sont vraiment puissantes, n'est-ce pas? Mais moi, Li Shan, suis un homme honnête, alors je vais vous dire la vérité: ce trésor n'explose pas systématiquement. Pour le faire exploser, il faut une certaine technique de lancer. Une fois que vous les aurez achetées, vous comprendrez par vous-mêmes, alors ne venez pas vous plaindre! »
+Li Shan déclara en souriant: « Alors, qu'en dites-vous? Ces bombes fétides sont vraiment puissantes, n'est-ce pas? Mais moi, Li Shan, suis un homme honnête, alors je vais vous dire la vérité: ce trésor n'explose pas systématiquement. Pour le faire exploser, il faut une certaine technique de lancer. Une fois que vous les aurez achetées, vous comprendrez par vous-mêmes, alors ne venez pas dire que je vous ai trompés quand elles n'exploseront pas! »
 
-Sun Hao s'approcha de Li Shan et lui murmura quelque chose. Ils s'écartèrent un instant et Li Shan sortit plusieurs objets. Après réflexion, il accepta d'échanger dix bombes fétides contre les siens.
+Sun Hao s'approcha de Li Shan et lui murmura quelque chose. Ils s'écartèrent un instant et Sun Hao sortit de nombreux objets. Li Shan, embarrassé, y réfléchit longuement, puis accepta d'échanger dix bombes fétides contre eux.
 
 Li Shan chuchota: « Normalement, vous n'obtenez que trois gratuites pour six achetées, mais comme vous êtes le premier client, je vous en offre une supplémentaire! »
 
@@ -50,9 +50,9 @@ En disant cela, Li Shan riait intérieurement: « Vous allez essayer plusieurs f
 
 Cependant, de nombreux disciples restaient prudents et n'achetaient rien.
 
-Après un moment, il ne restait plus que quelques bombes. Li Shan regarda avec fierté les disciples de la Secte Heng Yue en pensant: *« Bande d'idiots. Humph, si vous ne les utilisez pas lors de l'échange dans trois jours, vous aurez simplement été arnaqués par moi; mais si vous les utilisez, le spectacle sera mémorable. Ces bombes fétides sont entièrement sous mon contrôle. Personne d'autre ne pourrait les faire exploser, même avec un marteau! J'ai hâte d'être à l'échange dans trois jours. »*
+Après un moment, il ne restait plus que quelques bombes. Li Shan regarda avec fierté les disciples de la Secte Heng Yue en pensant: *« Bande d'idiots. Humph, si vous ne les utilisez pas lors de l'échange dans trois jours, vous aurez simplement été arnaqués par moi; mais si vous les utilisez, le spectacle sera mémorable. Ces bombes fétides sont entièrement sous mon contrôle. Personne d'autre ne pourrait les faire exploser, même en les frappant avec un poinçon! J'ai hâte d'être à l'échange dans trois jours. »*
 
-Son regard balaya les environs et il remarqua le léger sourire de Wang Lin. Il fut stupéfait. Ses yeux s'écarquillèrent et il dit: « Frère, pourquoi n'en achèteriez-vous pas quelques-unes pour vous amuser? Avec votre niveau de culture, elles vous conviendraient à merveille. Si quelqu'un vous importune, lancez-lui simplement une bombe! »
+Son regard balaya les environs et il remarqua le léger sourire de Wang Lin. Il fut stupéfait. Ses yeux s'écarquillèrent et il dit: « Junior frère, pourquoi n'en achèteriez-vous pas quelques-unes pour vous amuser? Avec votre niveau de culture, elles vous conviendraient à merveille. Si quelqu'un vous importune, lancez-lui simplement une bombe! »
 
 Wang Lin regarda Li Shan avec une expression moqueuse.
 
@@ -60,6 +60,6 @@ Li Shan fut surpris. Ce regard lui donna l'impression que Wang Lin avait percé 
 
 Wang Lin eut un léger sourire. Il hocha la tête et répondit: « D'accord, j'en prendrai deux, mais je n'ai pas de trésors. Seulement des talismans de la secte. »
 
-Li Shan hésita pour la première fois. Il s'assura bien que Wang Lin n'était qu'au 3ème niveau avant de se détendre et de sortir trois bombes fétides. Il sourit: « Frère, je vais vous faire plaisir et les accepter contre des talismans. Achetez-en deux, la troisième est offerte. Ces bombes fétides vous procureront une sensation extraordinaire, haha! »
+Li Shan hésita pour la première fois. Il s'assura bien que Wang Lin n'était qu'au 3ème niveau avant de se détendre et de sortir trois bombes fétides. Il sourit: « Junior frère, votre Senior frère vous accorde cette faveur: va pour les talismans. Achetez-en deux, la troisième est offerte. Ces bombes fétides vous procureront une sensation extraordinaire, haha! »
 
 Tout en parlant, il songea: *« Je n'ai pas menti quand j'ai dit que ce serait une sensation extraordinaire. Tant que tu garderas ces bombes sur toi, même si tu ne les utilises pas pendant l'échange, si jamais je te recroise, je te ferai découvrir ce qu'est cette sensation... Quelque chose dont tu te souviendras toute ta vie, haha! »*

@@ -10,27 +10,27 @@ Après avoir raccompagné Da Niu et son père, Wang Lin s'assit près du feu et 
 
 Il resta assis tranquillement dans la boutique, ramassa un morceau de bois et, sa main s'animant à nouveau, il se remit à sculpter.
 
-Le temps passa et trois autres années s'écoulèrent. La boutique de Da Niu avait presque doublé de volume et, comme le pensait sa mère, leurs affaires prospéraient. Cependant, avec ce succès, Da Niu disposait de moins de temps libre, car il devait travailler à la forge aux côtés de son père.
+Le temps passa et trois autres années s'écoulèrent. La boutique de Da Niu avait plus que doublé de taille et, comme le pensait sa mère, leurs affaires prospéraient. Cependant, avec ce succès, Da Niu disposait de moins de temps libre, car il devait travailler à la forge aux côtés de son père.
 
 Ce n'est qu'une fois la boutique fermée que Da Niu traînait son corps fatigué, une cruche de vin de fruits à la main, pour venir observer Wang Lin sculpter.
 
-Le corps de Da Niu, sans doute en raison de l'effort fourni à la forge, était devenu encore plus robuste. Le jeune homme de dix-sept ans ne ressentait aucune morsure du froid, malgré sa fine chemise.
+Le corps de Da Niu, sans doute en raison de l'effort fourni à la forge, était devenu encore plus robuste. Le jeune homme de dix-sept ans ne ressentait aucune morsure du froid, même en plein hiver, avec sa fine chemise.
 
 En revanche, les rides sur le visage de ses parents s'étaient accentuées avec le temps.
 
 L'apparence de Wang Lin avait également changé par rapport à celle d'il y a six ans. Il ne ressemblait plus à un jeune homme, mais à un homme d'âge mûr dont le visage était marqué par les rides.
 
-C'était un changement délibéré de la part de Wang Lin. Après tout, si quelqu'un n'avait absolument pas changé en six ans, cela aurait été une chose bien trop incroyable pour ces voisins honnêtes et bienveillants.
+C'était un changement délibéré de la part de Wang Lin, obtenu par magie. Après tout, si quelqu'un n'avait absolument pas changé en six ans, cela aurait été une chose bien trop incroyable pour ces voisins honnêtes et bienveillants.
 
-Au cours des trois dernières années, Xu Tao commença à venir plus fréquemment. Il venait chaque mois, apportant de l'or et de l'argent, avec l'intention d'attirer Wang Lin de son côté. Et à chaque fois, il insistait sur le fait que ces présents étaient offerts par le prince en signe de respect envers lui.
+Au cours des trois dernières années, Xu Tao commença à venir plus fréquemment. Il venait chaque mois, apportant de grandes quantités d'or, d'argent et de bon vin, avec l'intention manifeste d'attirer Wang Lin de son côté. Et parfois, il laissait entendre que ces présents étaient offerts par le prince en signe de respect envers lui.
 
 Wang Lin n'avait aucun intérêt pour ce prince. Il était venu dans la capitale avec un seul but: expérimenter la vie mortelle afin de réaliser une percée dans sa culture.
 
-Compte tenu de son niveau de culture, il n'avait aucune envie de s'impliquer dans les luttes de pouvoir des mortels.
+Compte tenu de son statut, il n'avait aucune envie de s'impliquer dans les luttes de pouvoir des mortels.
 
 À la fin de l'automne de cette année-là, le vent arracha les feuilles des saules bordant la rue, les faisant voler au loin et les séparant de leurs branches.
 
-On pouvait voir des feuilles joncher tout le pavé. Wang Lin sortit nonchalamment de la boutique, vêtu d'habits épais et coiffé d'un chapeau de cuir. Si, à cet instant, un membre des royaumes de Zhao ou de Chu passait par là, il serait incapable de reconnaître Wang Lin. Cet homme était celui qui avait semé le chaos dans tout le pays, celui qui avait tué des milliers de personnes et dont les mains étaient tachées de sang.
+On pouvait voir des feuilles joncher tout le pavé. Wang Lin sortit nonchalamment de la boutique, vêtu d'habits épais et coiffé d'un chapeau de cuir. Si, à cet instant, un membre des royaumes de Zhao ou de Chu passait par là, il serait incapable de reconnaître Wang Lin. Cet homme était celui qui avait dominé la scène, ce fléau qui avait tué d'innombrables personnes et dont les mains étaient tachées de sang.
 
 Même les cultivateurs qui l'avaient combattu ne pourraient pas l'identifier.
 
@@ -40,11 +40,11 @@ Après six années passées à se transformer en mortel, il l'était devenu tota
 
 Le seul détail qui le différenciait des simples mortels résidait dans ses yeux. Une distinction nette entre le noir et le blanc s'y dessinait, doublée d'une lueur subtile qui lui conférait un regard singulier.
 
-Au cours des trois dernières années, Wang Lin n'avait pas pratiqué sa culture une seule fois; la dernière substance rouge s'était inconsciemment condensée en une perle qu'il avait rangée dans son sac de rangement.
+Au cours des trois dernières années, Wang Lin n'avait pas médité ni pratiqué sa culture une seule fois; même la brume rouge autour de son corps s'était, dès il y a deux ans, condensée sans qu'il s'en aperçoive en une perle de sang qu'il avait rangée dans son sac de rangement.
 
 Il ouvrit la porte de la boutique et le vent glacial de l'automne lui fouetta le visage. Wang Lin resserra son col, referma la porte et s'éloigna.
 
-À ce moment précis, un jeune homme plutôt robuste sortit de la boutique d'en face, portant un seau de charbon brisé. En voyant Wang Lin, il lui adressa un sourire: « Oncle Wang, allez-vous encore voir le spectacle? »
+À ce moment précis, un jeune homme plutôt robuste sortit de la boutique d'en face, portant un seau de charbon de bois usagé. En voyant Wang Lin, il lui adressa un sourire: « Oncle Wang, allez-vous encore voir le spectacle? »
 
 Wang Lin se retourna et sourit: « Da Niu, apporte-moi une cruche de vin. »
 
@@ -58,7 +58,7 @@ Une à une, des sculptures de bois d'un réalisme saisissant prenaient forme ent
 
 Il se souvenait aussi de l'Oncle Wang disant qu'une fois devenu un grand homme, il reviendrait épouser sa femme. Cependant, durant ces six dernières années, Da Niu n'avait jamais vu la femme de l'Oncle Wang, alors il n'avait plus jamais posé la question.
 
-Da Niu poussa un soupir et retourna à la boutique. Lui aussi avait grandi; il était désormais le principal ouvrier de la forge. Même après la fermeture de l'atelier, il restait de nombreuses tâches à accomplir. L'habitude qu'il avait de regarder Wang Lin sculpter chaque jour ne pouvait plus se maintenir.
+Da Niu poussa un soupir et retourna à la boutique. Son père commençait lui aussi à vieillir; Da Niu était désormais le principal ouvrier de la forge. Même après la fermeture de l'atelier, il restait de nombreuses tâches à accomplir. L'habitude qu'il avait de regarder Wang Lin sculpter chaque jour ne pouvait plus se maintenir.
 
 Tous les quelques jours, il trouvait tout de même un moment pour accompagner ce solitaire Oncle Wang.
 
@@ -66,7 +66,7 @@ Une fraîcheur s'était glissée dans le vent de la fin de l'automne. Wang Lin m
 
 Une fois à l'intérieur, Wang Lin retira son chapeau et sourit: « Je n'ai pas d'argent pour vous donner de pourboire. Peu importe votre amabilité, cela ne servira à rien. »
 
-Le serveur sourit: « Ne dites pas de bêtises. Le tenancier a déjà précisé que la première table près de la fenêtre est votre place réservée. » Sur ce, il se dirigea rapidement vers une table, l'essaya avec sa serviette et s'inclina avant de partir.
+Le serveur sourit: « Ne dites pas de bêtises. Le tenancier a déjà précisé que la première table près de la fenêtre est votre place réservée. » Sur ce, il se dirigea rapidement vers une table, l'essuya d'un coup de serviette et s'inclina avant de partir.
 
 Wang Lin s'assit. Bientôt, le serveur apporta plusieurs plats et un petit brasero surmonté d'une marmite d'eau bouillante. Wang Lin y plaça la cruche de vin pour commencer à la réchauffer.
 
@@ -92,7 +92,7 @@ Durant l'année écoulée, il voyait Wang Lin venir chaque jour. Cela le rendait
 
 Alors que le regard de la jolie chanteuse balayait la foule sous les acclamations, une voix libertine s'éleva de l'extérieur: « Hé, cette petite merveille chante divinement! Elle m'a attiré depuis le nord de la ville! »
 
-À ces mots, un vieil homme vêtu d'une robe grise entra. Ses cheveux étaient en bataille, son visage couvert de contusions et une large empreinte de pas marquait sa poitrine.
+À ces mots, un vieil homme vêtu d'une robe grise entra. Ses cheveux étaient en bataille, son visage couvert de contusions et plusieurs grandes empreintes de pas marquaient le devant de sa robe, sur sa poitrine.
 
 Dès qu'il franchit le seuil, il se mit à crier. Le serveur fronça les sourcils: « D'où sort ce mendiant? Il n'y aura rien pour vous aujourd'hui! » Il s'avança pour le repousser.
 
@@ -100,11 +100,11 @@ Le vieillard le fixa et rétorqua: « Tu oses me toucher? Si tu me touches, je m
 
 Quand Wang Lin vit le vieil homme, l'étincelle qui n'avait pas brillé dans ses yeux depuis des années s'enflamma soudainement. Ce vieillard n'était pas n'importe qui: c'était celui qui lui avait soutiré un repas six ou sept ans auparavant.
 
-Le propriétaire de l'auberge, assis près de Wang Lin, s'approcha. Il fouilla dans ses poches, en sortit une pièce de bronze et la lança au vieillard: « Je vous ai donné de quoi payer, maintenant partez. Vous gâchez l'ambiance. »
+Le propriétaire de l'auberge, assis près de Wang Lin, s'approcha. Il fouilla dans ses poches, en sortit une pièce de bronze et la lança au vieillard: « Voilà votre argent, partez vite, quelle malchance. »
 
-Le vieil homme ramassa la pièce et la mordit. Il sourit au serveur: « C'est du vrai. Plus dur que l'or. Voyez-vous, votre patron sait comment faire. Humph, humph! » Il lança la pièce dans la main du serveur en ajoutant: « Une théière de thé! »
+Le vieil homme ramassa la pièce et la mordit, s'en mettant du vert-de-gris plein la bouche. Il sourit au serveur: « C'est du vrai. Plus dur que l'or. Voyez-vous, votre patron sait comment faire. Humph, humph! » Il lança la pièce dans la main du serveur en ajoutant: « Une théière de thé! »
 
-Puis, son regard balaya la salle. Ses yeux se posèrent sur Wang Lin et il s'approcha. Ce n'était pas qu'il l'eût reconnu, mais simplement parce que la seule place libre dans l'auberge était à côté de lui.
+Puis, son regard balaya la salle. Ses yeux se posèrent sur Wang Lin et il s'approcha. Ce n'était pas qu'il l'eût reconnu, mais simplement parce que, dans l'auberge, la seule table où il n'y avait qu'une personne était celle de Wang Lin.
 
 Le serveur fut stupéfait. Il regarda la pièce de bronze, puis le propriétaire. Il avait vu passer bien des mendiants, mais c'était la première fois qu'il en voyait un mordre une pièce pour vérifier sa valeur avant d'acheter du thé.
 

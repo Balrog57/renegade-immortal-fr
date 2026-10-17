@@ -10,7 +10,7 @@ Huang Long regarda les bouteilles et laissa échapper un reniflement. « L'eau d
 
 En entendant cela, Wang Lin fut transporté par l'enthousiasme. En sortant, il prit congé avec respect. Bien que son niveau de culture fût déjà élevé, sa seule et unique technique était la technique d'attraction.
 
-Une fois Wang Lin parti, Huang Long se tourna vers l'interlocuteur. Il s'inclina respectueusement et demanda: « Ancien Shangguan, pensez-vous que les paroles de Wang Lin soient vraies? Et comment devons-nous agir à son égard? »
+Une fois Wang Lin parti, Huang Long se retourna. Il s'inclina respectueusement et demanda: « Ancien Shangguan, pensez-vous que les paroles de Wang Lin soient vraies? Et comment devons-nous agir à son égard? »
 
 Un vieil homme chétif vêtu d'une robe bleue sortit dans la salle principale, le visage empreint d'une profonde sévérité. « Quelle part de vérité y a-t-il? Huang Long, ne vois-tu pas que ce petit gars n'a pas dit un seul mot de vrai? »
 
@@ -52,7 +52,7 @@ Sur ces mots, il prit une tasse sur la table de pierre du jardin et la tendit à
 
 L'expression de Wang Lin devint étrange. Le changement soudain d'attitude de Sun Dazhu le laissa un instant interdit.
 
-Voyant l'expression de son disciple, Sun Dazhu sourit maladroitement et dit, avec une sincérité feinte dans le regard: « Wang Lin, en tant que ton maître, je n'ai pas toujours été exemplaire et nous avons eu beaucoup de malentendus. »
+Voyant l'expression de son disciple, Sun Dazhu sourit maladroitement et dit, avec un regard sincère: « Wang Lin, en tant que ton maître, je n'ai pas toujours été exemplaire et nous avons eu beaucoup de malentendus. »
 
 Wang Lin ne prit pas la tasse. Il scruta le thé de son Sens Divin et y décela des fluctuations d'énergie spirituelle. Il déclara: « Ce disciple est fatigué, il ne boira donc pas ce thé. »
 
@@ -82,7 +82,7 @@ Sun Dazhu saisit la tasse et la but d'un trait. Puis, il jeta la tasse au sol et
 
 Les yeux de Wang Lin s'illuminèrent et son corps bondit. L'expression de Sun Dazhu changea et il tenta de reculer précipitamment, mais comment sa culture au 5ème niveau pouvait-elle rivaliser avec celle de Wang Lin?
 
-En un instant, il fut aux côtés de Sun Dazhu. Ses yeux brillèrent et il frappa violemment la poitrine de ce dernier. Avant que Sun Dazhu ne boive le thé, Wang Lin avait compris qu'il n'avait pas réellement bu le liquide, mais l'avait entouré d'une couche d'énergie spirituelle pour simuler l'ingestion.
+En un instant, il fut aux côtés de Sun Dazhu. Ses yeux brillèrent et il frappa violemment la poitrine de ce dernier. Lorsque Sun Dazhu avait bu le thé, Wang Lin avait compris qu'il n'avait pas réellement avalé le liquide, mais l'avait entouré d'une couche d'énergie spirituelle pour simuler l'ingestion.
 
 Sous la force du coup, l'énergie spirituelle de Sun Dazhu fut dispersée et le thé se dissipa brutalement à l'intérieur de son corps.
 
@@ -108,13 +108,13 @@ Les yeux de Wang Lin s'illuminèrent. « Quel est l'effet de cette herbe? »
 
 Une intention meurtrière traversa le regard de Wang Lin. « Pourquoi vouliez-vous que je la consomme? »
 
-« Dès que j'ai découvert que tu possédais ces gourdes, des doutes ont germé en moi, c'est pourquoi je t'ai pris comme disciple. À l'origine, je voulais te maintenir au premier niveau pour pouvoir utiliser la technique de recherche d'âme sur toi. Mais comme je t'avais déjà donné l'Herbe de Dispersion de l'Énergie Spirituelle, je pensais qu'il te faudrait plus de dix ans pour atteindre le premier niveau et j'avais abandonné cette idée. Lors de la compétition, tu as soudainement montré une force prodigieuse; j'ai alors pensé que tu devais posséder d'autres gourdes, voire d'autres secrets. Je voulais aussi augmenter ma propre culture, alors j'ai pensé te donner ce thé. »
+« Dès que j'ai découvert que tu possédais ces gourdes, des doutes ont germé en moi, c'est pourquoi je t'ai pris comme disciple. À l'origine, je voulais attendre que tu atteignes le premier niveau pour pouvoir utiliser la technique de recherche d'âme sur toi. Mais comme je t'avais déjà donné l'Herbe de Dispersion de l'Énergie Spirituelle, je pensais qu'il te faudrait plus de dix ans pour atteindre le premier niveau et j'avais abandonné cette idée. Lors de la compétition, tu as soudainement montré une force prodigieuse; j'ai alors pensé que tu devais posséder d'autres gourdes, voire d'autres secrets. Je voulais aussi augmenter ma propre culture, alors j'ai pensé te donner ce thé. »
 
 Wang Lin prit une profonde inspiration et demanda: « Qu'est-ce que l'Herbe de Dispersion de l'Énergie Spirituelle? De plus, avez-vous parlé de moi à quelqu'un d'autre? Et pourquoi n'avez-vous pas utilisé cette Herbe Nématode sur moi plus tôt? »
 
-« L'Herbe de Dispersion de l'Énergie Spirituelle sert à annihiler toute ta culture. Quant à toi, je n'en ai parlé à personne. Je ne voulais pas que d'autres me volent tes gourdes. Après cela, les choses ont changé trop brusquement; en parler maintenant ne ferait que me nuire, alors j'ai décidé d'agir. »
+« L'Herbe de Dispersion de l'Énergie Spirituelle est indispensable pour dissiper une culture; son effet est de disperser l'énergie spirituelle présente dans le corps. Quant à toi, je n'en ai parlé à personne. Je ne voulais pas que d'autres me volent tes gourdes. Après cela, les choses ont changé trop brusquement; en parler maintenant ne ferait que me nuire, alors j'ai décidé d'agir. »
 
-« Quant à l'Herbe Nématode à Trois Fils, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 100 % de chances de réussir. À l'origine, je voulais l'utiliser sur Lu Yunjie pour lui extorquer des pilules. »
+« Quant à l'Herbe Nématode à Trois Fils, je ne l'avais pas auparavant. Je l'ai obtenue d'un autre cultivateur, en échange de classiques de la secte que j'avais dérobés, lors de mon voyage hors de la montagne l'année dernière. Ce cultivateur a affirmé que si elle est utilisée sur un cultivateur inférieur à l'Établissement des Fondations, elle a 100 % de chances de réussir, et qu'en plus elle est incolore et inodore, donc difficile à déceler. À l'origine, je voulais l'utiliser sur Lu Yunjie pour lui soutirer des Pilules de Bonne Fortune. »
 
 Wang Lin devint furieux et ricana: « N'aviez-vous pas peur que je m'en aperçoive? »
 
@@ -128,4 +128,4 @@ Une lumière froide traversa les yeux de Wang Lin. Il demanda froidement: « Tou
 
 Wang Lin fixa le corps de Sun Dazhu. Il ressentit une émotion indescriptible. C'était la première fois qu'il tuait quelqu'un, et c'était son propre maître.
 
-Après une longue réflexion, Wang Lin emporta le corps de Sun Dazhu. Il sortit de la Secte Heng Yue, le visage de marbre, jusqu'à atteindre une montagne où il finit par précipiter le cadavre dans le vide.
+Après une longue réflexion, Wang Lin emporta le corps de Sun Dazhu. Il sortit de la Secte Heng Yue d'un air abattu, jusqu'à trouver un ravin de montagne où il finit par jeter le cadavre. Quant à la bourse de rangement de Sun Dazhu, il la garda: elle contenait encore quelques bonnes choses.

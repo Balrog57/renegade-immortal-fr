@@ -14,7 +14,7 @@ Les paroles « On peut voir une montagne comme une montagne, l'eau comme de l'ea
 
 Voir la vie comme la vie et la mort comme la mort n'était que la première strate du domaine de la vie et de la mort.
 
-Lorsqu'il était à l'Alliance des Quatre Sectes, il avait vu le pays entier être détruit par Xue Yu. Il avait vu le cultivateur au stade de la Formation de l'Âme mourir en tachant Xue Yu de son sang. Son cœur avait été ébranlé. C’était là le signe d'une percée imminente.
+Lorsqu'il était à l'Alliance des Quatre Sectes, il avait vu le pays entier être détruit par Xue Yu. Il avait vu le cultivateur au stade de la Formation de l'Âme qui lui avait offert une plume mourir en tachant Xue Yu de son sang. Son cœur avait été ébranlé. C’était là le signe d'une percée imminente.
 
 La vie et la mort sont séparées par un fil ténu. Certains sont manifestement morts, mais ils vivent désormais dans le cœur d'autrui. Certains sont manifestement vivants, mais commencent à mourir s'ils ne changent pas.
 
@@ -38,23 +38,23 @@ C'est comme si un récipient n'avait qu'une certaine capacité de liquide selon 
 
 À cet instant, Ling Tianhou vola rapidement vers la femme. Il tendit la main, visant les deux épées célestes.
 
-Zhou Yi regardait avec stupéfaction la femme qui chutait. Son esprit était totalement vide; aucune pensée ne traversait son cerveau. Cependant, l'action du vieil homme fut comme une décharge d'eau froide sur un feu ardent. Cela attisa sa rage.
+Zhou Yi regardait avec stupéfaction la femme qui chutait. Son esprit était totalement vide; aucune pensée ne traversait son cerveau. Cependant, l'action du vieil homme fut comme de l'eau glacée versée dans de l'huile bouillante. Cela attisa sa rage.
 
-Son corps bondit et commença à libérer une lumière dorée. L'image d'une épée apparut autour de lui alors qu'il chargeait.
+Son corps bondit et une lumière dorée jaillit de lui. Il se changea en une gigantesque image d'épée et fonça à la vitesse de l'éclair.
 
 Le ciel s'obscurcit à l'apparition de cette image d'épée, et la terre commença à se fissurer.
 
 L'expression du vieil homme changea. Il n'osa plus poursuivre les épées. Il sentait que dans cette émanation de lame résidait une puissance capable de tout anéantir.
 
-Sans hésiter, le vieil homme fit volte-face et poussa un rugissement. Il ferma les yeux et ouvrit les mains. Une épée apparut entre elles. Il la projeta vers Zhou Yi.
+Sans hésiter, le vieil homme fit volte-face et poussa un rugissement. Il joignit les mains puis les écarta: une nappe de lumière d'épée apparut devant lui. Il la projeta vers Zhou Yi.
 
 Bang!
 
-L'épée du vieil homme vola en éclats, et l'empreinte sur sa poitrine s'agrandit.
+La lumière d'épée du vieil homme s'effondra, il cracha du sang et l'empreinte sur sa poitrine s'agrandit.
 
-« Cette empreinte céleste est trop écrasante. Je suis blessé aujourd'hui et je ne peux pas utiliser toute ma puissance. J'ai déjà obtenu une épée céleste moi-même. Je m'en vais! » Le vieil homme recula et déchira l'espace à ses côtés. Une immense faille s'ouvrit soudainement dans le vide. De l'autre côté de la brèche se trouvait la Secte des Épées Da Lou. Il était sur le point de s'y engouffrer.
+« Cette empreinte céleste est trop écrasante. Je suis blessé aujourd'hui et je ne peux pas utiliser toute ma puissance. J'ai déjà obtenu une épée céleste moi-même. Je m'en vais! » Le vieil homme recula et déchira l'espace à ses côtés. Une immense faille s'ouvrit soudainement dans le vide. De l'autre côté de la brèche se trouvait la Secte de l'Épée Da Luo. Il était sur le point de s'y engouffrer.
 
-Mais à cet instant précis, l'épée que Zhou Yi avait invoquée devint encore plus rapide et fonça de toutes ses forces vers le vieil homme.
+Mais à cet instant précis, l'image d'épée en laquelle Zhou Yi s'était changé devint encore plus rapide et fonça de toutes ses forces vers le vieil homme.
 
 L'expression du vieil homme changea radicalement alors qu'il s'engouffrait précipitamment dans le portail. En entrant, il agita sa main droite et le Qilin qui reposait encore au sol leva enfin la tête. Il se transforma en un rayon de lumière pour rejoindre son maître.
 
@@ -62,11 +62,11 @@ La faille se referma rapidement, mais Zhou Yi réussit à s'y engouffrer juste a
 
 Tant qu'il n'aura pas tué le vieil homme, il ne reviendra pas!
 
-En poursuivant le vieil homme, Zhou Yi venait de déclencher un désastre pour la Secte des Épées Da Lou.
+En poursuivant le vieil homme, Zhou Yi venait de déclencher un désastre pour la Secte de l'Épée Da Luo.
 
 Tout cela s'était produit en quelques respirations à peine. Une fois la faille disparue, la centaine de cultivateurs de divers niveaux tournèrent leurs regards vers le cadavre féminin qui allait frapper le sol.
 
-Les deux épées aux côtés du corps firent chanceler l'assistance.
+Les deux épées aux côtés du corps firent respirer lourdement l'assistance.
 
 Pourtant, au moment où le cadavre allait toucher terre, elle et les deux épées pivotèrent soudainement pour voler vers Wang Lin dans un éclat de lumière blanche.
 
@@ -90,11 +90,11 @@ Un homme d'âge moyen en robe bleue s'avança à son tour. Il lança un regard m
 
 « Les sectes Hun Yuan et Démon Céleste ne sont que des tas de clowns. Ces deux épées célestes appartiennent à ma Secte de l'Éternité du Ciel et de la Terre! » Un rire tonitruant retentit au milieu de la foule avant qu'un homme ne charge vers Wang Lin.
 
-Ce mouvement déclencha une réaction en chaîne. Plus de cent cultivateurs se mirent à charger Wang Lin simultanément.
+Ce mouvement déclencha une réaction en chaîne. Près de cent cultivateurs se mirent à charger Wang Lin simultanément.
 
 Wang Lin fronça les sourcils. Le premier assaillant était déjà devant lui. C'était un homme très âgé aux cheveux gris, dont le regard trahissait une soif inextinguible pour les épées. Son niveau de culture était celui du stade intermédiaire de la Formation de l'Âme.
 
-Dès que le vieil homme fut à portée, les yeux de Wang Lin s'illuminèrent. Il savait qu'il ne pouvait pas battir en retraite; faire marche arrière maintenant le condamnerait. Il leva la main et pointa le vieillard. Son domaine de la vie et de la mort frappa.
+Dès que le vieil homme fut à portée, les yeux de Wang Lin s'illuminèrent. Il savait qu'il ne pouvait pas battre en retraite; faire marche arrière maintenant le condamnerait. Il leva la main et pointa le vieillard. Son domaine de la vie et de la mort frappa.
 
 Alors que l'homme approchait, son regard se fit soudainement grave. Le mouvement de Wang Lin n'avait provoqué aucune fluctuation d'énergie spirituelle, mais un domaine mystérieux s'abattit sur lui.
 
@@ -122,7 +122,7 @@ Cette peinture était en noir et blanc, d'une simplicité extrême, mais lorsque
 
 « Quel genre de domaine cet homme a-t-il utilisé pour atteindre la Formation de l'Âme? Pourquoi cette peinture en noir et blanc m'inspire-t-elle une telle terreur?! »
 
-« La réincarnation... C'est le cycle de la réincarnation de la vie et de la mort! »
+« La réincarnation... C'est le rouleau de la vie et de la mort de la réincarnation! »
 
 Bien que les couleurs soient rudimentaires, le noir représentait la mort et le blanc la vie.
 
@@ -142,7 +142,7 @@ Bang!
 
 La tête du vieil homme explosa dans un fracas de sang et de chair. Son corps s'effondra sur place.
 
-« Ma culture est au stade initial de la Formation de l'Âme, mais il y a un instant, mon domaine atteignait le stade intermédiaire. Maintenant que mon domaine de la vie et de la mort a atteint son second niveau, j'oserais même défier Papillon Rouge. Quant à vous... » Les yeux de Wang Lin brillaient d'une lumière mystérieuse tandis qu'il balayait la foule du regard.
+« Ma culture est au stade initial de la Formation de l'Âme, mais il y a un instant, mon domaine atteignait le stade intermédiaire. Maintenant que mon domaine de la vie et de la mort a atteint son second niveau, j'oserais même défier Papillon Rouge, au stade avancé de la Formation de l'Âme. Quant à vous... » Les yeux de Wang Lin brillaient d'une lumière mystérieuse tandis qu'il balayait la foule du regard.
 
 Ce seul coup d'œil plongea chacun dans la réflexion, mais leur avidité ne faiblit pas d'un iota.
 

@@ -28,7 +28,7 @@ Au moment même où il reculait, deux arcs de lumière apparurent là où il se 
 
 Le talisman de niveau Âme Naissante trembla violemment dans sa main avant de se réduire en poussière. Profitant de cette opportunité, Wang Lin recula promptement. Une sueur froide perla sur son front alors qu'il fixait la grande gueule qui se refermait. Son cœur battait la chamade.
 
-Cette créature, semblable à une faille spatiale, n'avait pas ouvert la bouche lorsque les pierres étaient passées, mais avait attendu son tour. Elle semblait avoir fait de Wang Lin sa cible.
+Cette créature, semblable à une faille spatiale, n'avait pas ouvert la bouche lorsque les pierres étaient passées, mais avait attendu qu'il passe juste après eux pour s'ouvrir brusquement. Elle semblait avoir fait de Wang Lin sa cible.
 
 Wang Lin réfléchit un instant. En regardant la distance qu'il restait à parcourir, il réalisa qu'il n'était qu'à mi-chemin. Un sourire amer lui échappa: ce talisman était le seul dont il disposait. Cela prouvait que la puissance de cette gueule surpassait l'attaque d'un cultivateur de niveau Âme Naissante.
 
@@ -46,17 +46,17 @@ Stupéfait, Wang Lin se recroquevilla et glissa sur le côté pour éviter l'imp
 
 Wang Lin esquissa un sourire amer. Toutes les pierres autour de lui avaient disparu. Bien qu'il possédât encore des trésors défensifs, ils seraient épuisés s'il rencontrait à nouveau de tels dangers. Plus inquiétant encore, Wang Lin craignait que s'il se retrouvait encerclé par ces gueules, sa mort serait inévitable.
 
-Il soupira et sortit de nouveaux trésors défensifs. Après les avoir activés, il déploya son sens divin et reprit sa progression prudente. Il observa la limite de cette zone calme. S'il volait à pleine vitesse, il pourrait traverser cet espace en quelques instants seulement. Cependant, s'il tentait cela, il risquait de se jeter tête la première dans la gueule d'une de ces créatures. À ce moment-là, même une fée ne pourrait le sauver.
+Il soupira et sortit de nouveaux trésors défensifs. Après les avoir activés, il déploya son sens divin et reprit sa progression prudente. Il observa la limite de cette zone calme. S'il volait à pleine vitesse, il pourrait traverser cet espace en quelques instants seulement. Cependant, s'il tentait cela, il risquait de se jeter tête la première dans la gueule d'une de ces créatures. À ce moment-là, même un immortel ne pourrait le sauver.
 
 Il prit une profonde inspiration et serra les dents en avançant lentement, son sens divin scrutant méticuleusement chaque recoin. Trois jours plus tard, Wang Lin était totalement épuisé et tous les trésors défensifs de son sac de rangement avaient été consumés.
 
 Durant ces trois jours, il avait frôlé la mort à maintes reprises. Une fois, la moitié de son corps s'était retrouvée dans une gueule; s'il n'était pas entré dans la perle défiant le ciel à temps, il serait déjà mort.
 
-Par chance, la perle défiant le ciel n'avait pas été engloutie par la créature, ce qui lui permit de ressortir sans être prisonnier de sa gueule. Toutefois, Wang Lin craignait désormais d'y pénétrer: si la perle elle-même était dévorée, même s'il survivait sur l'instant, il ne pourrait échapper à son destin une fois le temps écoulé à l'intérieur.
+Par chance, la perle défiant le ciel n'avait pas été engloutie par la créature, ce qui lui permit de ressortir sans être prisonnier de sa gueule. Toutefois, Wang Lin craignait désormais d'y pénétrer: si la perle elle-même était dévorée, même s'il ne mourait pas sur le moment, il ne pourrait échapper à la mort en ressortant.
 
 Voyant qu'il restait moins de 5 kilomètres, Wang Lin prit une grande inspiration et pressa le pas. Soudain, une gueule commença à s'ouvrir devant lui. Au moment où il allait esquiver, son sens divin lui hurla un danger imminent. Ce qu'il redoutait le plus se produisait.
 
-Des arcs de lumière apparurent tout autour de lui. Les créatures ouvraient toutes leurs gueules simultanément. Accablé par la frustration, Wang Lin fouilla frénétiquement dans son sac jusqu'à ce qu'il tombe sur un morceau de jade blanc d'apparence très ordinaire.
+Des arcs de lumière apparurent tout autour de lui. Les créatures ouvraient toutes leurs gueules simultanément. Accablé par la frustration, Wang Lin fouilla frénétiquement dans son sac jusqu'à ce qu'il tombe sur une tablette de jade d'apparence très ordinaire.
 
 C'était la formation défensive que Li Muwan lui avait offerte en cadeau de départ pour sa culture en isolement. Sans hésiter, Wang Lin lança le jade. Sa décision était prise: si la situation devenait désespérée, il n'aurait d'autre choix que d'entrer dans la perle défiant le ciel. Même si l'espace où se trouvait la perle finissait par être dévoré, c'était son ultime recours.
 
@@ -66,30 +66,30 @@ L'anneau de lumière continua de vaciller tandis que le dragon tournait autour d
 
 Tout au long du processus, le dragon continuait de rugir alors que sa silhouette devenait de plus en plus évanescente. Grâce à cette charge, Wang Lin parcourut les cinq derniers kilomètres sans s'arrêter. De nombreuses gueules s'ouvrirent sur son passage, mais elles furent toutes repoussées par le dragon vert qui l'entourait.
 
-Une fois la zone calme totalement quittée, le dragon était sur le point de se dissiper. Wang Lin envoya rapidement quelques sceaux, transformant le dragon en un gaz vert qu'il renvoya dans le jade blanc.
+Une fois la zone calme totalement quittée, le dragon était sur le point de se dissiper. Wang Lin envoya rapidement quelques sceaux, transformant le dragon en un gaz vert qu'il renvoya dans la tablette de jade.
 
-Wang Lin entendit un léger tintement. En baissant les yeux, il vit une petite fissure sur le jade. Son cœur se serra. Il l'examina avec son sens divin et, après avoir constaté qu'il n'était pas devenu inutile, il poussa un soupir de soulagement avant de le ranger soigneusement dans son sac. Il se retourna pour contempler la zone calme, le cœur encore tremblant.
+Wang Lin entendit un léger craquement. En baissant les yeux, il vit une petite fissure sur le jade. Son cœur se serra. Il l'examina avec son sens divin et, après avoir constaté qu'il n'était pas devenu inutile, il poussa un soupir de soulagement avant de le ranger soigneusement dans son sac. Il se retourna pour contempler la zone calme, le cœur encore tremblant.
 
-Après une réflexion, il leva la tête et sauta sur un pilier de pierre. Il l'écrasa d'un coup de pied pour le briser. Les fragments de pierre reformèrent l'anneau autour de Wang Lin alors qu'il s'élançait vers les hauteurs.
+Après un moment de silence, il leva la tête et, d'une légère impulsion, se posa sur un pilier de pierre conique. Le pilier trembla légèrement et se détacha en d'innombrables fragments que Wang Lin guida pour reformer un anneau autour de lui, puis il s'éleva vers les hauteurs.
 
-Après plusieurs jours, la vitesse de Wang Lin accrut encore. En quittant cette zone étrange, il avait l'impression d'être entré dans un autre monde. Il ne croisa plus ces créatures semblables à des failles spatiales, et ce qui était plus surprenant encore, c'est qu'il ne rencontra aucune créature puissante, pas même de dragon.
+Après plusieurs jours, la vitesse de Wang Lin accrut encore. En quittant cette zone étrange, il avait l'impression d'être entré dans un autre monde. Il ne croisa plus ces créatures semblables à des failles spatiales, et ce qui était plus surprenant encore, c'est qu'il ne rencontra aucune créature puissante, pas même une de ces bêtes au niveau d'un dragon, alors que sous la zone vide il percevait l'aura de telles créatures à chaque poignée de pas.
 
 Sa vitesse augmenta donc naturellement. Néanmoins, il ne se débarrassa pas des pierres qui l'entouraient; la prudence avant tout. Wang Lin était si précautionneux que, tant qu'il n'était pas certain à cent pour cent d'être en sécurité, il refusait de jeter ces rochers.
 
-À mesure qu'il gagnait en vitesse, sa destination approchait. Après un certain temps, Wang Lin remarqua que les piliers de pierre environnants étaient de la même taille que celui sur lequel il s'était appuyé à son entrée.
+À mesure qu'il gagnait en vitesse, sa destination approchait. Après un certain temps, Wang Lin remarqua que les piliers de pierre environnants avaient à peu près la même taille que ceux qu'il avait vus en entrant dans cet endroit.
 
 Ce vide était d'une immensité sans nom. Wang Lin ne croyait pas pouvoir localiser précisément l'anneau de lumière ovale; il ne pouvait donc qu'utiliser la taille des piliers pour estimer sa position.
 
 Un jour, alors qu'il se tenait au sommet d'un pilier en forme de cône, ses yeux s'illuminèrent. Il avait volé horizontalement parmi des piliers de cette dimension pendant très longtemps, et il venait enfin de repérer l'anneau de lumière ovale.
 
-Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il les avait accomplies, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé des trésors précieux, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de culture actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
+Dans le vide, au-dessus de lui, flottait un immense anneau de lumière ovale. Il ressentit une pointe de regret de ne pas avoir passé les épreuves. S'il avait réussi les quatre épreuves, il aurait pu pénétrer dans le corps de l'Ancien Dieu. Il y aurait certainement trouvé ce dont il avait besoin, mais après avoir survécu aux dangers de ce lieu, Wang Lin savait qu'avec son niveau de culture actuel, il n'aurait eu aucune chance de s'y maintenir en vie.
 
 Il poussa un soupir de regret et s'élança vers l'anneau de lumière. Cependant, au moment où il allait le toucher, des éclairs violets apparurent. Les décharges s'entrecroisèrent pour former un motif concave et rhombique.
 
-Wang Lin fut surpris. Il ne pouvait plus avancer; une force puissante semblait faire obstacle à sa progression. Ses yeux brillèrent alors qu'il fixait ce motif concave. Cette cavité était juste assez grande pour accueillir une pierre spirituelle de qualité supérieure.
+Wang Lin fut surpris. Il ne pouvait plus avancer; une force puissante semblait faire obstacle à sa progression. Ses yeux scintillèrent alors qu'il fixait ce motif concave, le cœur soudain lourd. Cette cavité était juste assez grande pour accueillir une pierre spirituelle de qualité supérieure.
 
 Il recula immédiatement. Au même instant, le motif disparut et les éclairs violets retournèrent au sein de l'anneau de lumière.
 
 Il tenta l'expérience plusieurs fois, et le motif réapparut à chaque tentative. Wang Lin commença à réfléchir. Ses yeux étincelèrent tandis qu'il observait la scène un long moment avant de faire demi-tour pour s'élever davantage.
 
-Il se souvint que cet endroit n'était que le passage vers la première épreuve. Tant qu'il se tiendrait au sommet d'un pilier de pierre, il pourrait franchir cette étape.
+Il se souvint que le Seigneur Démon des Six Désirs avait dit que cet endroit n'était que le passage vers la première épreuve. Il suffisait de s'asseoir bien droit sur un pilier de pierre et de suivre le sens de son déplacement pour franchir cette étape.

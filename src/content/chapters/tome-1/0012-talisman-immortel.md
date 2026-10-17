@@ -22,11 +22,11 @@ Mais il existait différents types de rosée. Celle qui apparaissait sur la perl
 
 Venait ensuite l'eau de source. Le sang et la sueur étaient les moins utiles; ils n'avaient presque aucun effet.
 
-Afin de ne pas attirer l'attention, il trouva quelques petites gourdes sauvages et les évida pour y recueillir une partie de la rosée.
+Afin de ne pas attirer l'attention, il trouva quelques petites gourdes sauvages et les évida pour y recueillir séparément les différentes sortes de rosée.
 
-Il ne les portait pas sur lui. Au lieu de cela, il les cachait séparément dans des endroits reculés. Il ne les sortait que lorsqu'il allait chercher de l'eau et ne les ramenait jamais à la secte.
+Il ne les portait pas sur lui. Au lieu de cela, il les enterrait profondément, chacune à un endroit différent, dans des lieux reculés. Il ne les sortait que lors de la collecte quotidienne et ne les ramenait jamais à la secte.
 
-Il emportait une gourde lors de son travail. Chaque fois qu'il se sentait fatigué, il buvait une gorgée et ressentait instantanément un regain d'énergie.
+Il emportait sur lui une gourde remplie d'eau de source. Chaque fois qu'il se sentait fatigué, il buvait une gorgée et ressentait instantanément un regain d'énergie.
 
 De plus, Wang Lin remarqua un phénomène étrange. Chaque fois que la rosée nocturne ou matinale apparaissait sur la perle de pierre, elle semblait couvrir la surface de multiples gouttes, mais lorsqu'il tentait de les collecter, il n'en obtenait qu'un dixième environ. Le reste s'évaporait.
 
@@ -34,13 +34,13 @@ Face à ce phénomène mystérieux, Wang Lin ne pouvait conclure que la perle ab
 
 Ce jour, au crépuscule, Wang Lin remplit les trois derniers réservoirs et dit au disciple vêtu de jaune qui méditait: « Frère Liu, je dois rentrer chez moi, je ne viendrai donc pas demain. »
 
-Le jeune homme, Liu, ouvrit les yeux, regarda Wang Lin, puis lâcha un reniflement méprisant.
+Le jeune homme, Liu, leva les yeux au ciel, jeta un regard à Wang Lin, puis émit un « hm » du nez.
 
-Wang Lin n'en fut pas perturbé. Il avait appris de Zhang Hu qu'un disciple honoraire pouvait rendre visite à sa famille trois fois par an. Il lui suffisait de demander la permission à l'Ancien Sun.
+Wang Lin n'en fut pas perturbé. Il avait appris de Zhang Hu qu'un disciple honoraire pouvait rendre visite à sa famille trois fois par an. Il lui suffisait de le demander à tout moment à un Ancien nommé Sun, et d'obtenir de lui un talisman immortel permettant d'aller et venir librement et de faire étalage des arts immortels de la secte.
 
 Wang Lin se souvint que l'anniversaire de son père approchait. Quoi qu'il en coûte, il devait y retourner. Une fois ses tâches terminées, il se dirigea vers l'Ancien responsable des disciples honoraires.
 
-La Secte Heng Yue comptait une cour principale, six académies et cinq annexes: le métal, le bois, l'eau, le feu et la terre; chacune possédant ses propres disciples honoraires. Les disciples intérieurs et les Anciens résidaient tous dans la cour principale. Il passait souvent devant eux lorsqu'il allait chercher de l'eau, les observant toujours avec une pointe d'envie. Arrivé sur place, il inspecta les environs avant de s'écrier: « Le disciple honoraire Wang Lin demande à voir l'Ancien Sun! »
+La Secte Heng Yue se divisait en une cour principale et cinq cours annexes, soit six cours en tout. Les cinq annexes correspondaient au métal, au bois, à l'eau, au feu et à la terre; chacune abritait ses propres disciples honoraires. Les disciples intérieurs et les Anciens résidaient pour la plupart dans la cour principale. Lorsqu'il allait chercher de l'eau, il avait déjà contemplé les lieux de loin, le cœur empli d'envie. Arrivé devant la cour principale, il inspecta les environs avant de s'écrier à voix haute: « Le disciple honoraire Wang Lin demande à voir l'Ancien Sun! »
 
 Un jeune homme vêtu de blanc s'avança d'un pas nonchalant. Il jeta un regard à Wang Lin et demanda avec morgue: « Tu es Wang Lin? »
 
@@ -50,11 +50,11 @@ Il savait déjà que les disciples de la Secte Heng Yue étaient classés selon 
 
 La bouche du jeune homme en blanc se crispa et il lança un regard glacial à Wang Lin avant de faire demi-tour pour regagner la cour. Wang Lin le suivit, le visage impassible.
 
-Après avoir traversé la cour, ils arrivèrent devant une demeure entourée de fleurs. Le jeune homme en blanc déclara d'un ton paresseux: « Maître Sun, un disciple honoraire vient vous voir. »
+Après avoir traversé la cour, ils arrivèrent devant une demeure entourée de fleurs. Le jeune homme en blanc déclara d'un ton paresseux: « Oncle-Maître Sun, un disciple honoraire vient vous voir. »
 
 Une fois sa phrase terminée, il se tint à l'écart.
 
-Une voix rauque s'éleva du jardin: « Tu peux partir. Disciple honoraire, entre. »
+Une voix âgée s'éleva du jardin: « Tu peux partir. Disciple honoraire, entre. »
 
 Le jeune homme en blanc eut un petit rire et s'en alla.
 
@@ -64,17 +64,17 @@ Une voix mécontente s'échappa d'une pièce située dans un coin du jardin: « 
 
 Wang Lin répondit promptement: « Le disciple Wang Lin vient saluer l'Ancien Sun. L'anniversaire de mon père est demain, ce disciple souhaite rentrer chez lui pour la visite. »
 
-La voix réprimanda: « Tu es Wang Lin? C'est donc toi. Humph, un aspirant immortel qui se soucie des affaires mondaines? De ton vivant, tu ne deviendras jamais un immortel! »
+La voix réprimanda: « Tu es Wang Lin? C'est donc toi. Humph, ceux qui cultivent l'immortalité doivent trancher leurs liens avec le monde mortel; attaché comme tu l'es aux affaires profanes, ne rêve pas d'entrer un jour dans la porte de l'immortalité! »
 
-Wang Lin fronça les sourcils et ne put s'empêcher de répliquer: « Le disciple n'a même pas encore pratiqué de technique immortelle, comment pourrait-il être sur la voie de l'immortalité? »
+Wang Lin fronça les sourcils et ne put s'empêcher de répliquer: « Le disciple n'a même pas encore pratiqué de technique immortelle, comment pourrait-il être un cultivateur d'immortalité? »
 
-L'Ancien marqua un silence avant de dire avec impatience: « Tu as trois jours, alors rentre vite. Voici un talisman immortel qui peut être utilisé deux fois. Il augmentera considérablement ta vitesse. » Sur ces mots, un morceau de papier jaune terne et d'apparence ordinaire flotta par la fenêtre et atterrit aux pieds de Wang Lin.
+L'Ancien marqua un silence avant de dire avec impatience: « Je t'accorde trois jours, va et reviens vite. Voici un talisman immortel qui peut être utilisé deux fois. Colle-le sur ta jambe, il augmentera considérablement ta vitesse. » Sur ces mots, un morceau de papier jaune terne et d'apparence ordinaire flotta par la fenêtre et atterrit aux pieds de Wang Lin.
 
 Wang Lin ramassa le talisman. Il savait par Zhang Hu que tous les disciples partant en visite familiale recevaient ce genre d'objet. Le but de la secte était simple: étaler ses techniques et ses trésors immortels afin d'attirer de nouveaux jeunes candidats.
 
 En réalité, ce talisman était de piètre qualité, mais son avantage résidait dans sa grande facilité d'utilisation. Il suffisait de le coller sur sa jambe pour que, pour un humain ordinaire, la vitesse fût nettement accrue.
 
-Toutefois, de nombreux disciples honoraires les collectionnaient car ils avaient entendu dire qu'ils pouvaient être échangés contre d'autres biens dans le monde extérieur. Beaucoup utilisaient le prétexte du retour en famille uniquement pour accumuler ces talismans.
+Toutefois, nombre de disciples intérieurs les collectionnaient avec passion, car on disait qu'ils pouvaient être échangés contre d'autres biens lors des foires d'échange du monde extérieur. Quant aux disciples honoraires, ils les considéraient comme de véritables trésors; certains n'osaient même pas les utiliser, et beaucoup prenaient le prétexte du retour en famille uniquement pour en accumuler.
 
 Après avoir quitté la cour, Wang Lin regagna sa chambre. Après avoir fait ses adieux à Zhang Hu, il commença sa descente de la montagne.
 

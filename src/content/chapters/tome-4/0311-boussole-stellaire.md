@@ -20,7 +20,7 @@ Dès qu'il toucha le sol, des vagues d'énergie glaciale pénétrèrent son corp
 
 Chi Hu sourit. « Nous allons avoir besoin de la technique de Papillon Rouge ici. Je vous prie de ne pas vous retenir. »
 
-Papillon Rouge ne répondit rien. Elle s'élança en avant tandis que Chi Hu adressait un sourire sardonique à Wang Lin.
+Papillon Rouge ne répondit rien. Elle s'élança en avant tandis que Chi Hu adressait un sourire d'autodérision à Wang Lin.
 
 Papillon Rouge volait à une vitesse fulgurante sur le glacier. Plus ils progressaient, plus la température chutait et plus la teinte du glacier s'assombrissait. Parfois, des vents glacials capables de transpercer les os surgissaient du lointain.
 

@@ -7,9 +7,9 @@ en: Chapter 343 - Country of Suzaku
 slug: pays-de-suzaku
 ---
 
-Après avoir terminé tout cela, D'un geste de la main droite, Wang Lin fit se contracter le bassin en un récipient. Son bras était désormais scellé à l'intérieur.
+Après avoir terminé tout cela, d'un geste de la main droite, Wang Lin fit se contracter le bassin en un récipient. Son bras était désormais scellé à l'intérieur.
 
-À cet instant précis, dans un lieu de Suzaku qui semblait issu d'une peinture, Papillon Rouge cultivait sur le sommet d'un lotus.
+À cet instant précis, dans un lieu de Suzaku qui semblait issu d'une peinture, Papillon Rouge cultivait, assise en tailleur et les yeux clos, sur une feuille de lotus au-dessus d'un étang.
 
 La zone était entourée d'eaux claires et bleues et d'une verdure luxuriante. Des bêtes spirituelles rôdaient même à proximité. Dans l'eau, quelques carpes aux moustaches très longues glissaient; leurs yeux brillaient d'une étincelle de vie, signe qu'elles avaient manifestement acquis une certaine intelligence.
 
@@ -41,11 +41,11 @@ Papillon Rouge ne répondit pas. Elle ferma les yeux pour concentrer son attenti
 
 À l'est de Suzaku se trouvait une montagne en forme d'oiseau, connue sous le nom de Mont Suzaku. Le Mont Suzaku était la terre sacrée de Suzaku; tout ce qui s'y passait devait recevoir leur approbation.
 
-Ce jour-là, un jeune homme vêtu de blanc arriva au pied de la montagne. Dans une position embarrassée, il fit les cent pas avant d'entamer l'ascension des marches. Devant un palais situé à mi-pente, le jeune homme s'agenouilla sur un genou et déclara: « Le disciple Feng Yushan sollicite une audience auprès de l'Ancien. »
+Ce jour-là, un jeune homme vêtu de blanc arriva au pied de la montagne. Dans une position embarrassée, il fit les cent pas avant d'entamer l'ascension des marches. Devant un palais situé à mi-pente, le jeune homme s'agenouilla sur un genou et déclara: « Le disciple Feng Yushan, diacre à la robe blanche, sollicite une audience auprès de l'Ancien. »
 
 Après un long moment, une voix émana du palais: « Que désires-tu? »
 
-« Le Mont Suzaku a ordonné au disciple d'envoyer une lettre de défi à Ceng Niu. Cependant, Ceng Niu l'a refusée et a repoussé l'échéance de dix ans. » Feng Yushan n'osait absolument pas mentir.
+« Le disciple avait reçu l'ordre d'aller en Chu remettre une lettre de défi à Ceng Niu. Cependant, Ceng Niu ne l'a pas acceptée et a repoussé l'échéance de dix ans. » Feng Yushan n'osait absolument pas mentir.
 
 La voix dans le palais répondit d'un ton sombre: « Hmph! Ceng Niu ne connaît vraiment pas sa place. Tu peux partir. Quelqu'un d'autre le fera venir ici. »
 
@@ -81,7 +81,7 @@ Wang Lin forma plusieurs sceaux de ses deux mains qu'il appliqua sur le piège �
 
 Wang Lin ne regarda pas le crapaud. Il tourna son attention vers le char de guerre. Sa main droite forma un sceau et pointa le char. Une brume noire apparut sur l'engin, et une paire d'yeux se devina à travers la vapeur. Un rugissement assourdissant jaillit du char tandis que l'esprit de la bête apparaissait.
 
-C'était l'esprit le plus faible des trois chars. Bien qu'il eût été scellé par Wang Lin, une fois libéré, il se fixa immédiatement sur lui. Sa tête possédait trois cornes, son corps était celui d'un bœuf et sa queue celle d'un dragon; on pouvait même distinguer un visage sur la queue.
+C'était le plus petit des esprits des trois chars. Bien qu'il eût été scellé par Wang Lin, une fois libéré, il se fixa immédiatement sur lui. Sa tête était triangulaire, son corps était celui d'un bœuf et sa queue celle d'un dragon; on pouvait même distinguer un visage sur la queue.
 
 Wang Lin le contempla calmement avant de laisser tomber une goutte de sang sur le piège à bêtes. Puis, il pointa l'esprit du char. Les symboles du piège tremblèrent soudainement et se transformèrent en un rayon de lumière qui commença à tournoyer autour de la créature.
 
@@ -91,7 +91,7 @@ Finalement, tous les symboles se stabilisèrent sur le corps de la créature. Ce
 
 Les symboles sur la bête brillèrent intensément, passant du doré au noir avant de s'engouffrer dans le piège à bêtes. Lorsque le dernier symbole disparut, une nouvelle créature apparut sur le bracelet, identique à l'esprit du char. Simultanément, le char de guerre se transforma en un rayon de lumière noire et fut aspiré par le piège.
 
-Wang Lin prit une profonde inspiration avant de frapper son sac de rangement et de disposer huit pierres spirituelles de qualité supérieure autour de lui. Le piège à bêtes vola rapidement vers lui et s'enroula autour de son poignet droit. Une force des milliers de fois plus puissante que celle subie avec le crapaud tonnerre commença soudainement à consommer son énergie spirituelle. Le corps de Wang Lin commença immédiatement à rétrécir, comme s'il se transformait en momie.
+Wang Lin prit une profonde inspiration avant de frapper son sac de rangement et de disposer huit pierres spirituelles de qualité supérieure autour de lui. Le piège à bêtes vola rapidement vers lui et s'enroula autour de son poignet droit. Une force d'innombrables fois plus puissante que celle subie avec le crapaud tonnerre commença soudainement à consommer son énergie spirituelle. Le corps de Wang Lin commença immédiatement à rétrécir, comme s'il se transformait en momie.
 
 Toutefois, son regard restait clair. Les huit pierres spirituelles autour de lui brillaient intensément; une quantité phénoménale d'énergie spirituelle pénétra son corps pour alimenter le piège à bêtes. Ce processus dura trois jours.
 

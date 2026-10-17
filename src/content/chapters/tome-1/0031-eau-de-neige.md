@@ -12,7 +12,7 @@ Wang Hao hésita avant de répondre: « Au moins deux cents. »
 
 « Autant? Pour quoi faire? » Wang Lin fut stupéfait. Il possédait effectivement deux cents talismanes, ayant reçu près de cinq cents pièces grâce à divers pots-de-vin.
 
-Wang Hao soupira et, le visage empreint d'amertume, déclara: « Frère Tie Zhu, dans deux mois se tiendra la compétition des disciples intérieurs. Bien que je puisse y participer, je n'ai aucune chance de gagner. Mais je refuse d'abandonner. Ce bâtard de Wang Zhuo a déjà atteint le premier niveau de Condensation de Qi et j'ai entendu dire qu'il tente désormais d'atteindre le second. »
+Wang Hao soupira et, le visage empreint d'amertume, déclara: « Frère Tie Zhu, dans deux mois se tiendra la compétition des disciples internes. Bien que je puisse y participer, je n'ai aucune chance de gagner. Mais je refuse d'abandonner. Ce bâtard de Wang Zhuo a déjà atteint le sommet du premier niveau de Condensation de Qi et j'ai entendu dire qu'il tente désormais d'atteindre le second. »
 
 « Comment peut-il cultiver si rapidement? » Wang Lin n'avait pas vu Wang Zhuo depuis un certain temps et en était surpris. Il semblait que le talent jouait un rôle primordial.
 
@@ -20,9 +20,9 @@ Wang Hao afficha une expression de colère et reprit: « C'est uniquement parce 
 
 Wang Lin hocha la tête et demanda: « Quel est le rapport avec ton emprunt de talismanes? »
 
-Wang Hao marmonna: « Il y a bien sûr un lien. Tu n'interagis pas beaucoup avec les autres, mais un mois avant la compétition, tous les disciples intérieurs organisent un petit marché d'échange. Là-bas, chacun expose ses trésors pour se préparer au combat final. Certains seniors qui y ont participé m'ont dit que lors de cet échange, tout peut être utilisé: épées volantes, trésors magiques, pilules, et bien plus encore. »
+Wang Hao marmonna: « Il y a bien sûr un lien. Tu n'interagis pas beaucoup avec les autres, mais un mois avant la compétition, tous les disciples internes organisent en secret un petit marché d'échange. Là-bas, chacun expose ses trésors pour se préparer au combat final. Certains seniors qui y ont participé m'ont dit que lors de cet échange, tout peut être utilisé: épées volantes, trésors magiques, pilules, et bien plus encore. »
 
-En entendant cela, le cœur de Wang Lin se mit à battre la chamade. Les épées volantes ou les trésors magiques ne l'intéressaient guère, mais les incantations pour les stades ultérieurs de la Condensation de Qi étaient cruciales pour lui. Pensant qu'il pourrait peut-être les obtenir lors de cet échange, il réfléchit un instant et demanda: « Les disciples intérieurs se font-ils autant confiance pour organiser de tels échanges? »
+En entendant cela, le cœur de Wang Lin se mit à battre la chamade. Les épées volantes ou les trésors magiques ne l'intéressaient guère, mais les incantations pour les stades ultérieurs de la Condensation de Qi étaient cruciales pour lui. Pensant qu'il pourrait peut-être les obtenir lors de cet échange, il réfléchit un instant et demanda: « Les disciples internes se font-ils autant confiance pour organiser de tels échanges? »
 
 Wang Hao rit et répondit: « Frère Tie Zhu, tu poses une question fondamentale. Il existe une règle durant cet échange, et c'est aussi la condition pour y participer: posséder une pilule de déguisement. Une fois la pilule consommée, à moins d'être au stade de l'Établissement des Fondations, personne ne peut reconnaître ton identité. »
 
@@ -62,7 +62,7 @@ Bien que tremper la perle mystérieuse dans la rosée soit la méthode optimale,
 
 D'un léger mouvement de la main, il activa la Technique d'Attraction. Des amas de neige se mirent à tourbillonner telle une traînée de dragon pour s'engouffrer dans une grande marmite située dans la pièce.
 
-Peu de temps après, Wang Lin avait rempli la moitié de la marmite. Il interrompit la technique et s'approcha du récipient. Il forma un sceau de la main droite et, après plus de dix tentatives, réussit enfin à créer une boule de feu de la taille d'un nourrisson. La chaleur intense dégagée par la flamme fit fondre la neige rapidement.
+Peu de temps après, Wang Lin avait rempli la moitié de la marmite. Il interrompit la technique et s'approcha du récipient. Il forma un sceau de la main droite et, après plus de dix tentatives, réussit enfin à créer une boule de feu de la taille du poing d'un nourrisson. La chaleur intense dégagée par la flamme fit fondre la neige rapidement.
 
 Une fois la neige totalement fondue, il essuya la sueur sur son front. L'usage successif de deux techniques l'avait épuisé.
 

@@ -8,7 +8,7 @@ slug: deuil-du-secte
 ---
 Huang Long toucha son sac de rangement et regarda vers la Montagne Heng Yue d'un air complexe. Dao Xu se tenait à ses côtés et déclara: « Chef de secte, un jour viendra où nous reprendrons la Montagne Heng Yue. »
 
-Huang Long eut un sourire amer et répondit: « L'Épée de la Lune Pourpre m'a été offerte par l'Ancêtre Liu lorsque je suis devenu le chef de secte. Je lui avais dit que tant que l'épée serait là, je serais là aussi... mais maintenant, hélas. »
+Huang Long eut un sourire amer et répondit: « L'Épée de Lune Pourpre m'a été offerte par l'Ancêtre Liu lorsque je suis devenu le chef de secte. Je lui avais dit que tant que l'épée serait là, je serais là aussi... mais maintenant, hélas. »
 
 L'Ancien au visage rouge, nommé Ma, déclara d'un ton sombre: « Chef de secte, la Secte Xuan Dao possédait un cultivateur de l'Âme Naissante. Ne pas l'affronter était la chose la plus logique à faire. Il n'y a aucune raison d'avoir des regrets pour ce genre de choses. Le monde de la culture a toujours été ainsi. À l'époque où la Secte Heng Yue était puissant, nous faisions la même chose. »
 
@@ -24,11 +24,11 @@ Wang Lin fronça les sourcils et répondit à Situ Nan: « Tuer des gens n'est p
 
 Situ Nan insista pour le pousser: « Qu'y a-t-il de si difficile? Je vais t'enseigner une technique, la technique des marionnettes. Tu pourras ainsi capturer quelqu'un et le transformer en une marionnette loyale. Qu'en dis-tu? De cette façon, tu pourras vivre sans aucun souci. »
 
-À peine Situ Nan eut-il fini de parler que le jeune homme gras du pavillon des épées s'approcha de Wang Lin et s'assit à ses côtés. Il esquissa un sourire narquois: « Grand frère aîné, je m'appelle Huang Dashan. À l'avenir, je vous prie de bien vouloir prendre soin de votre cadet. »
+À peine Situ Nan eut-il fini de parler que le jeune homme gras du pavillon des épées s'approcha de Wang Lin et s'assit à ses côtés. Il esquissa un sourire amer: « Grand frère aîné, je m'appelle Huang Dashan. À l'avenir, je vous prie de bien vouloir prendre soin de votre cadet. »
 
 Wang Lin jeta un coup d'œil vers lui, mais avant qu'il ne puisse répondre, le disciple vêtu de noir nommé Zhang intervint: « Huang Dashan, si tu as du temps à perdre, tu devrais plutôt cultiver au lieu de demander à quelqu'un de prendre soin de toi. »
 
-Huang Dashan eut un sourire en coin et répliqua: « La secte n'existe plus. Parmi les disciples intérieurs restants, le grand frère Wang Lin est le plus fort. Peu importe mes efforts de culture, je ne pourrai jamais l'égaler, alors autant être son subordonné. »
+Huang Dashan eut un sourire amer et répliqua: « La secte n'existe plus. Parmi les disciples intérieurs restants, le grand frère Wang Lin est le plus fort. Peu importe mes efforts de culture, je ne pourrai jamais l'égaler, alors autant être son subordonné. »
 
 Le frère Zhang se tourna vers Wang Lin. Il se remémora l'époque où il avait accompagné les trois disciples sur la montagne pour leurs tests d'entrée dans la secte. Il soupira secrètement: « Wang Lin, tes progrès sont véritablement inattendus. Je t'admire sincèrement. »
 
@@ -42,9 +42,9 @@ Lu Song laissa échapper un soupir. Il s'assit à côté de Wang Lin, lui tapota
 
 Puis, il adressa un sourire amer au frère Zhang et ajouta: « Zhang Dekun, ton entêtement est resté le même. À quoi bon cette promesse de dix ans alors que la secte n'existe même plus? Hélas. »
 
-Wang Lin regarda Lu Song. Il écarta l'épaule pour s'éloigner du contact et demanda: « L'ancien frère Lu Song n'est-il pas resté, lui non plus, à la Secte Xuan Dao? »
+Wang Lin regarda Lu Song. Il écarta l'épaule pour s'éloigner du contact et demanda: « Le grand frère Lu Song n'est-il pas resté, lui non plus, à la Secte Xuan Dao? »
 
-Lu Song secoua la tête: « Ne m'appelle pas "ancien frère". Selon les règles, c'est moi qui devrais t'appeler ainsi. Héhé, si j'étais resté là-bas, je n'aurais eu aucun avenir, car j'ai offensé trop de monde au sein de la Secte Xuan Dao. »
+Lu Song secoua la tête: « Ne m'appelle pas "grand frère". Selon les règles, c'est moi qui devrais t'appeler ainsi. Héhé, si j'étais resté là-bas, je n'aurais eu aucun avenir, car j'ai offensé trop de monde au sein de la Secte Xuan Dao. »
 
 Zhang Dekun déclara froidement: « Non seulement tu as offensé des gens de la Secte Xuan Dao, mais tu en as également offensé beaucoup au sein de la Secte Heng Yue. »
 

@@ -20,15 +20,15 @@ Peu après, une paire de mains gigantesques surgit des nuages pour les écarter.
 
 Lorsqu'il se manifesta, la première chose qu'il remarqua fut le jeune homme dans les airs. Il afficha une expression étrange, marmonna quelques mots pour lui-même, puis ignora l'adolescent. Il cria alors vers les cultivateurs de Zhao: « Trois mois ont passé. Le passage vers le champ de bataille étranger va s'ouvrir! »
 
-Sur ces mots, il projeta deux faisceaux de lumière noire depuis ses yeux. Ces deux rayons s'entrelacèrent pour former un cercle gigantesque dans le ciel.
+Sur ces mots, il projeta deux faisceaux de lumière noire depuis ses yeux. Ces deux rayons, tels deux immenses dragons-inondation, s'entrelacèrent, queue contre tête, pour former un cercle gigantesque dans le ciel.
 
 Dès l'apparition du cercle, la lumière sembla disparaître du firmament. Le cercle paraissait aspirer toute la clarté environnante, devenant l'unique source de lumière dans le ciel.
 
-Le géant agita la main et lança un rocher. À l'instant où la pierre apparut, elle explosa en mille morceaux qui se transformèrent en symboles étranges. Ces runes s'imprimèrent rapidement sur les bords du cercle. Toute l'énergie spirituelle de Zhao commença à converger avec précipitation vers le cercle.
+Le géant agita la main et lança un rocher. À l'instant où la pierre apparut, elle explosa en mille morceaux qui se transformèrent en symboles archaïques. Ces runes s'imprimèrent rapidement à l'intérieur du cercle. Toute l'énergie spirituelle de Zhao commença à converger avec précipitation vers le cercle.
 
-L'énergie spirituelle devint visible pour la première fois sous la forme d'un épais brouillard de puissance qui se rassemblait pour être absorbé par le cercle.
+L'énergie spirituelle devint visible pour la première fois sous la forme d'un épais brouillard spirituel qui, vague après vague, affluait sans fin de toutes parts pour être absorbé par le cercle.
 
-À mesure que le cercle absorbait l'énergie spirituelle, les symboles qui le bordaient brillaient de plus en plus intensément. Finalement, une fine membrane apparut au centre du cercle. Elle était presque transparente. On pouvait clairement distinguer qu'à l'intérieur de cette pellicule se trouvait un espace vide où flottaient des corps brisés, des trésors magiques et divers matériaux.
+À mesure que le cercle absorbait l'énergie spirituelle, les symboles du cercle brillaient de plus en plus intensément. Finalement, une fine membrane apparut au centre du cercle. Elle était presque transparente. On pouvait clairement distinguer qu'à l'intérieur de cette pellicule se trouvait un espace vide où flottaient des corps brisés, des trésors magiques et divers matériaux.
 
 Wang Lin se tenait actuellement dans l'ombre du passage. Il ne regardait pas le cercle, mais la taille de Teng Huayuan, car son sac de rangement noir y était suspendu.
 
@@ -36,11 +36,11 @@ Le changement soudain du ciel n'était pas prévu et avait perturbé ses plans, 
 
 Soudain, le géant se coupa le doigt et projeta une goutte de sang. La goutte fonça comme une météorite et vint frapper la fine membrane.
 
-Celle-ci fondit instantanément, tel de la neige sous l'effet d'une eau bouillante.
+Celle-ci fondit à vue d'œil, tel de la neige sous l'effet d'une eau bouillante.
 
-Le regard de Wang Lin devint glacial alors qu'il insufflait son énergie spirituelle dans le trésor qu'Adai lui avait confié et murmura: « Attaque! »
+Le regard de Wang Lin devint glacial alors qu'il insufflait son énergie spirituelle dans le trésor qu'Adai lui avait confié et se dit en silence: « Attaque! »
 
-Wang Lin avait étudié avec soin ce trésor magique durant ses deux mois de culture en porte close, et avait découvert que la forme de l'entité générée pouvait être modifiée. Après avoir absorbé sa puissance spirituelle, le trésor parvint même à capturer un fragment de la malédiction.
+Wang Lin avait étudié avec soin ce trésor magique durant ses deux mois de culture en porte close, et avait découvert que l'apparence de la personne qu'il faisait apparaître pouvait être modifiée selon ses désirs. Après avoir absorbé sa puissance spirituelle, le trésor parvint même à capturer un fragment de la malédiction.
 
 Le jeune homme dans les airs agita rapidement la main et un dragon violet jaillit de son corps. C'était comme si son propre corps s'était métamorphosé en un dragon violet colossal. Le dragon poussa un rugissement qui projeta d'immenses ondes sonores.
 
@@ -50,15 +50,15 @@ Le corps du dragon s'élança vers Teng Huayuan avec la rapidité de l'éclair. 
 
 Teng Huayuan recula précipitamment, se mordit la langue et cracha du sang. Son sang se transforma en plusieurs moustiques géants qui chargèrent pour tenter d'intercepter le dragon colossal.
 
-Aussitôt, Teng Huayuan frappa son sac de rangement et en sortit un drapeau de sept pieds de long. Dès l'apparition de l'objet, un vent glacial commença à souffler. Des milliers de visages apparurent sur le tissu. Leurs expressions étaient empreintes de douleur tandis qu'ils hurlaient comme des déments.
+Aussitôt, Teng Huayuan frappa son sac de rangement et en sortit un drapeau de sept pieds de long. Dès l'apparition de l'objet, un vent glacial commença à souffler. Des centaines, voire des milliers de visages apparurent sur le tissu. Leurs expressions étaient empreintes de douleur tandis qu'ils hurlaient comme des déments.
 
 Teng Huayuan agita la main droite pour projeter les visages contenus dans le drapeau. Un par un, ces têtes désincarnées chargèrent vers le dragon géant, leurs yeux suppliant pour que l'on leur accorde la mort.
 
-Lin Yi se frotta le menton en observant le drapeau et secoua la tête: « Ce drapeau d'âmes n'est pas suffisant. Avec seulement 30 000 âmes, il n'a même pas atteint le premier niveau de perfection. »
+Lin Yi se frotta le menton en observant le drapeau et secoua la tête: « Ce drapeau d'âmes n'est pas suffisant. Avec seulement un peu plus de 30 000 âmes, il n'a même pas atteint le premier niveau de perfection. »
 
 En entendant cela, Pu Nanzi acquiesça: « Ce que dit le seigneur messager est exact. Lorsque j'étais sur le champ de bataille étranger, j'ai vu un drapeau d'âmes possédant plus de dix millions d'âmes. Sa puissance était véritablement terrifiante. »
 
-Lin Yi eut un petit rire et secoua la tête: « Ce n'est là qu'un drapeau d'âmes partiellement achevé provenant d'un pays de culture de rang 4. La Secte de l'Affinement des Âmes, dans le pays de rang 5 de Pi Lu, possède un drapeau d'âmes comme trésor de secte. On raconte que le nombre d'âmes à l'intérieur de ce drapeau dépasse le milliard et qu'elles ont été collectées au fil des millénaires de l'histoire de la secte. »
+Lin Yi eut un petit rire et secoua la tête: « Ce n'est là qu'un drapeau d'âmes partiellement achevé provenant d'un pays de culture de rang 4. La Secte de l'Affinement des Âmes, dans le pays de rang 5 de Pi Lu, possède un drapeau d'âmes comme trésor de secte. On raconte que le nombre d'âmes à l'intérieur de ce drapeau dépasse le milliard et qu'il a fallu plusieurs milliers d'années pour le fabriquer. »
 
 Teng Huayuan agita son drapeau et les 30 000 âmes volèrent vers le dragon géant. En un clin d'œil, les âmes entourèrent la créature et pénétrèrent en elle, mais un phénomène étrange se produisit alors.
 

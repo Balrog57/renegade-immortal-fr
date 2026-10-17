@@ -90,17 +90,17 @@ Le cœur de Wang Lin trembla. Cette phrase fut comme une rafale qui balaya une g
 
 La mort, c'est mourir. Si une personne meurt, c'est la mort. Si le cœur meurt, alors il oublie...
 
-Les yeux confus de Mo Zhi s'emplirent de sagesse lorsqu'il observa les environs avant de pointer du doigt une flaque d'eau à l'extérieur de sa main droite. Il murmura: « L'eau qui tombe dans cette flaque aujourd'hui est la vie. Demain, quand il n'y aura plus de pluie, cette flaque sera la mort. Une eau morte est une eau sans vie et sans mouvement. »
+Les yeux confus de Mo Zhi s'emplirent de vide lorsqu'il observa les environs avant de pointer de sa main droite une flaque d'eau à l'extérieur. Il murmura: « L'eau qui tombe dans cette flaque aujourd'hui est la vie. Demain, quand il n'y aura plus de pluie, cette flaque sera la mort. Une eau morte est une eau sans vie et sans mouvement. »
 
-Puis sa main pointa à nouveau, cette fois vers les hommes près du feu. Le vide dans son regard devint encore plus profond et il dit: « Aujourd'hui, ils peuvent jouir de la vie, être en colère, être tristes ou être heureux. C'est cela, la vie. Demain, ils ne pourront plus jouir, ni être en colère, ni être tristes, ni être heureux; et ce sera la mort. »
+Puis sa main pointa à nouveau, cette fois vers les hommes près du feu. Le vide dans son regard devint encore plus profond et il dit: « Aujourd'hui, ils peuvent jouir de la vie, être en colère, être tristes ou être heureux. C'est cela, la vie. Demain, ils ne pourront plus jouir, ni être en colère, ni être tristes, ni être heureux, sans pouvoir échapper à la réincarnation; et ce sera la mort. »
 
-Sa main bougea soudainement pour désigner un tapis de prière. Il ajouta: « Ce sanctuaire était vivant quand la statue du dieu était là. Maintenant qu'elle est absente, il est mort! »
+Sa main bougea soudainement pour désigner le socle en forme de pétale. Il ajouta: « Ce sanctuaire était vivant quand la statue du dieu était là. Maintenant qu'elle est absente, il est mort! »
 
 Sur ces mots, il se leva, pointa le ciel et déclara: « Ces gouttes de pluie naissent dans le ciel et meurent sur terre. Ce qui se trouve entre les deux constitue leur vie. Je ne contemple pas cette pluie pour le ciel, la terre ou la pluie elle-même, mais pour la vie entière de la goutte... ce cycle de vie et de mort. »
 
 Wang Lin fut profondément touché. Il se leva et s'inclina respectueusement devant Mo Zhi.
 
-Mo Zhi esquissa un mince sourire. Puis, d'un pas, il quitta le sanctuaire tel une météorite. Sa voix ténue parvint de loin:
+Mo Zhi esquissa un mince sourire. Puis, d'un pas, il quitta le sanctuaire telle une météorite. Sa voix ténue parvint de loin:
 
 « Frère Da Niu, soit tu comprends, soit tu ne comprends pas... prends soin de toi. »
 
@@ -144,6 +144,6 @@ Bien que les domaines soient très proches en force lorsqu'ils atteignent leur p
 
 Par conséquent, au stade de la Formation de l'Âme, la puissance des cultivateurs varie énormément. Si l'un d'eux n'obtient qu'un domaine ordinaire, bien qu'il soit un dieu comparé aux cultivateurs de l'Âme Naissante, il restera à la traîne parmi ses pairs de la Formation de l'Âme.
 
-Si Wang Lin avait vraiment voulu atteindre rapidement le stade de la Formation de l'Âme, il aurait pu le faire en sculptant la première statue du cultivateur de la Formation de l'Âme de la Secte des Nuages Blancs. Cependant, ce domaine n'était pas le sien. Ce serait comme suivre les traces d'un autre. Même s'il avait atteint la Formation de l'Âme, il lui aurait été très difficile de progresser par la suite, avec une infime chance d'atteindre le stade de la Transformation de l'Âme.
+Si Wang Lin avait vraiment voulu atteindre rapidement le stade de la Formation de l'Âme, il aurait pu le faire en sculptant la première statue du cultivateur de la Formation de l'Âme de la Secte Nuage Blanc. Cependant, ce domaine n'était pas le sien. Ce serait comme suivre les traces d'un autre. Même s'il avait atteint la Formation de l'Âme, il lui aurait été très difficile de progresser par la suite, avec une infime chance d'atteindre le stade de la Transformation de l'Âme.
 
 Puisqu'il ne s'agissait pas d'un domaine qu'il avait forgé lui-même, il lui serait extrêmement ardu de le comprendre pleinement, sans parler de le transcender...

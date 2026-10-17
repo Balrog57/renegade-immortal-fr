@@ -20,41 +20,41 @@ Sans un mot, Wang Lin agita la main. Son énergie spirituelle circula dans tout 
 
 Des éclats d'énergie bleue flottèrent autour de lui. Une aura glaciale enveloppa son corps et une expression d'une froideur extrême apparut sur son visage.
 
-Les yeux de l'homme bleu s'illuminèrent. Il ouvrit la bouche et cracha un mot que Wang Lin put comprendre: « Force! ». Sur ce, il ferma le poing. Son bras brilla et s'élargit tandis qu'il lançait un coup de poing vers Wang Lin.
+Les yeux de l'homme bleu s'illuminèrent. Il ouvrit la bouche et cracha un mot que Wang Lin put comprendre: « Force! ». Sur ce, il ferma le poing. Des symboles étranges scintillèrent sur son bras et ses veines se gonflèrent; d'un pas immense, il s'élança et lança un coup de poing vers Wang Lin.
 
-Le regard de Wang Lin brilla d'un éclat vif. L'énergie spirituelle Yin à l'intérieur de son corps jaillit et forma un poing qui percuta celui de l'étranger en plein vol. Au moment de l'impact, l'homme bleu adopta une posture étrange: un pied ancré au sol, le corps penché vers la gauche, il commença à respirer selon un rythme singulier. Soudain, une rafale de vent tourbillonna autour de lui, prenant sa position de centre et balayant tous les rochers environnants, créant ainsi une zone dégagée autour d'eux.
+Le regard de Wang Lin brilla d'un éclat vif. L'énergie spirituelle Yin à l'intérieur de son corps jaillit et forma un poing qui percuta celui de l'étranger en plein vol. Au moment de l'impact, l'homme bleu adopta une posture étrange: un pied ancré au sol, le corps penché vers la gauche, il commença à respirer selon un rythme singulier. Soudain, un vent violent se leva et forma un tourbillon vacillant qui souffla au loin tous les rochers et toute l'herbe autour des deux hommes, créant ainsi une zone dégagée circulaire.
 
-Le visage de Wang Lin devint rouge et il recula involontairement de plus de dix mètres tout en fixant l'étranger.
+Le visage de Wang Lin rougit étrangement, l'espace d'un instant, et son corps recula malgré lui de plus de trois mètres. Il leva brusquement la tête et fixa l'étranger.
 
 Le cœur de l'homme bleu fut encore plus secoué que celui de Wang Lin. Il pouvait clairement sentir l'étrange énergie spirituelle Yin pénétrer son corps par le poing de Wang Lin. Cette énergie glaciale se propagea dans ses membres par vagues d'un froid absolu.
 
 Si ce n'était pour les étranges symboles tracés sur son corps, qui l'aidaient à contenir cette frigidité, tout son être aurait déjà été transformé en glace.
 
-En regardant sa main droite, complètement gelée, il fut horrifié de constater que tous les muscles et les os de son bras étaient devenus de la glace. Il fixa Wang Lin d'un visage livide et prononça un autre mot compréhensible: « Ji? »
+En regardant son bras droit, entièrement devenu un cristal bleu, il constata avec effroi que la chair de son bras avait été complètement transformée. Il fixa Wang Lin d'un visage livide et prononça un autre mot compréhensible: « Ji? »
 
 Wang Lin ne répondit rien. Ignorant la signification de « Ji », il se contenta de secouer la tête.
 
-L'homme bleu resta stupéfait. Il arracha un autre talisman, provoquant l'apparition d'un gaz blanc et vert. Une fois le gaz dissipé, son bras droit retrouva sa normalité, bien que Wang Lin ait pu voir qu'il tremblait encore.
+L'homme bleu resta stupéfait. De la main gauche, il arracha un autre talisman, provoquant l'apparition d'un gaz blanc et vert. Une fois le gaz dissipé, son bras droit retrouva sa normalité, bien que Wang Lin ait pu voir qu'il tremblait encore.
 
-Il lança un regard méprisant à Wang Lin et laissa échapper un reniflement. Il marmonna quelques paroles avant de finir par partir. Wang Lin observa l'étranger jusqu'à ce qu'il disparaisse, puis s'assit pour analyser le combat.
+Il jeta un regard à Wang Lin et laissa échapper un reniflement. Il poussa quelques cris incompréhensibles avant de s'éloigner rapidement. Wang Lin observa l'étranger jusqu'à ce qu'il disparaisse, puis s'assit pour analyser le combat.
 
 L'énergie contenue dans le coup de poing de l'homme était très étrange. Elle ne semblait pas être une énergie spirituelle ordinaire, mais un autre type de puissance.
 
 « Force? », se remémora-t-il le mot que l'étranger avait crié avant de frapper.
 
-Faisant abstraction du coup de poing reçu, Wang Lin était très satisfait de la puissance de son énergie spirituelle Yin. Il nomma ce type d'énergie capable de modifier la structure des choses: « l'énergie spirituelle Yin extrême ».
+Mis à part la force étrange de l'homme sauvage, Wang Lin était très satisfait de la puissance de son énergie spirituelle mutée, qu'il utilisait pour la première fois dans un vrai combat. Il nomma ce type d'énergie capable de modifier la structure des choses: « l'énergie spirituelle Yin extrême ».
 
 « Ji? », c'était ce que l'homme avait dit en découvrant sa puissance.
 
 Wang Lin murmura pour lui-même: « Il est temps de partir. Une fois que j'aurai atteint le cinquième niveau de la Méthode d'Ascension des Enfers, je devrai m'en aller. »
 
-« Je dois trouver des lieux au Yin extrême, absolument! », se dit-il. Wang Lin savait qu'il devait débusquer un Yin extrême car, pour franchir les niveaux supérieurs de sa méthode de culture, il lui faudrait une énergie Yin de qualité bien plus élevée.
+« Je dois trouver un lieu de Yin terrestre, absolument! », se dit-il. Wang Lin savait qu'il devait trouver un lieu de Yin terrestre car, à chaque niveau de la Méthode d'Ascension des Enfers, la difficulté de la percée augmentait; en ne comptant que sur sa force brute, le taux de réussite serait bien trop faible, et seul un lieu de Yin extrême de haute qualité pouvait l'améliorer.
 
 Bien que les ruines regorgent d'une énergie Yin dense, Wang Lin savait que l'énergie Yin ici n'était que d'une qualité dense de rang 10 environ. Elle ne pourrait atteindre au maximum qu'une qualité extrême de rang 1 ou 2.
 
 Il fallait savoir que parmi les énergies Yin célestes, terrestres, mystiques et infernales, la différence entre le mystique et l'infernal n'était pas grande, mais l'écart avec les énergies terrestres et célestes était abyssal. Une énergie Yin terrestre de bonne qualité de rang 1 équivalait à une énergie Yin mystique ou infernale de qualité extrême de rang 1.
 
-Quant à l'énergie Yin céleste, que l'on ne pouvait qu'espérer atteindre au rang 1, un rang ordinaire valait autant qu'une énergie mystique ou infernale de qualité extrême de rang 1.
+Quant au lieu de Yin céleste, que l'on peut rencontrer mais non chercher, même un simple rang 1 de qualité ordinaire avait l'efficacité d'une énergie mystique ou infernale de qualité extrême.
 
 Alors qu'il était plongé dans ses pensées, il leva la tête et vit que l'homme étrange revenait. Une fois de retour, ce dernier fit plusieurs signes à Wang Lin. L'étranger pointa les environs, prit une profonde inspiration, puis secoua vigoureusement la tête.
 
@@ -62,13 +62,13 @@ Puis, il pointa Wang Lin, puis lui-même, en multipliant les gestes. Wang Lin co
 
 L'homme se déplaçait avec une rapidité fulgurante. Très familier des lieux, il évitait tous les pièges et les fosses dangereuses du marécage.
 
-Il pénétra même dans une fissure du sol pour s'engouffrer dans des tunnels souterrains. Après un certain temps, Wang Lin fut surpris de constater qu'ils avaient déjà traversé la vaste zone marécageuse.
+Il pénétra même dans une fissure du sol pour s'engouffrer dans des tunnels souterrains. En ressortant, Wang Lin constata aussitôt que ce court trajet leur avait fait traverser un vaste marais, jonché d'ossements de bêtes à vous glacer le sang.
 
 Deux jours plus tard, ils atteignirent un coin désert des ruines. Durant ces deux jours, ils n'avaient marqué qu'une seule pause pour se reposer.
 
-À leur arrivée, Wang Lin remarqua une tour intacte à proximité. Au sommet de celle-ci trônait une immense perle de pierre.
+À leur arrivée, Wang Lin remarqua, non loin, une tour assez bien conservée. Au sommet de celle-ci trônait une immense perle de pierre.
 
-Les yeux de Wang Lin s'illuminèrent. Cette perle était presque identique à celle qu'il avait vue dans les ruines.
+Les yeux de Wang Lin s'illuminèrent. Cette perle était presque identique à celle qu'il avait vue à la lisière des ruines.
 
 L'homme étrange ne s'arrêta pas et grimpa au sommet de la tour. Il traça quelques sceaux et toucha la perle. Un rayon de lumière jaillit alors de la pierre vers le centre des ruines.
 
@@ -84,27 +84,27 @@ Lorsque la dernière perle fut activée — celle-là même que Wang Lin avait v
 
 Tout au long du trajet, Wang Lin avait calculé secrètement qu'il y avait huit de ces perles de pierre.
 
-L'homme étrange scruta le ciel avec une expression anxieuse. Les deux hommes se précipitèrent vers le centre de la cité sans aucun répit. Au crépuscule du quatrième jour, ils arrivèrent aux abords du cœur de la ville.
+L'homme étrange scruta le ciel avec une expression anxieuse. Les deux hommes se précipitèrent vers le centre de la cité sans aucun répit. Au crépuscule du quatrième jour, ils arrivèrent enfin au centre même de la ville.
 
-Les huit piliers de lumière convergeaient en ce point précis. L'homme étrange s'arrêta et s'inclina. Ses yeux brillaient de dévotion tandis qu'il entonnait des paroles mélodieuses.
+Les huit piliers de lumière venus de loin convergeaient en ce point précis. L'homme étrange s'arrêta et se prosterna de tout son corps. Ses yeux brillaient de dévotion tandis qu'il entonnait des paroles mélodieuses.
 
 À mesure que sa voix montait dans les aigus, la terre trembla et une statue de 330 mètres de haut surgit du sol. La statue s'éleva à mi-hauteur avant de se figer.
 
-Elle représentait un homme aux longs cheveux. L'homme avait un air singulier, un regard intelligent, et tenait une lance tout en scrutant l'horizon. Autour de lui s'enroulait un dragon dont la gueule était ouverte, comme prêt à attaquer. Les écailles du dragon étaient si détaillées qu'elles semblaient réelles.
+Elle représentait un homme aux longs cheveux. L'homme avait des traits antiques, un regard empreint de sagesse, et tenait une lance tout en scrutant l'horizon avec un air de dédain pour le monde. Autour de lui s'enroulait un dragon dont la gueule était ouverte, comme prêt à attaquer. Les écailles du dragon étaient si détaillées qu'elles semblaient réelles.
 
-Les huit rayons de lumière se rassemblèrent sur la statue et les yeux de celle-ci devinrent de plus en plus éclatants. Wang Lin eut l'impression que l'illusion de cet homme aux longs cheveux était douée de vie.
+Les huit rayons de lumière se rassemblèrent sur la statue et les yeux de celle-ci devinrent de plus en plus éclatants. Wang Lin eut même l'illusion que cet homme aux longs cheveux était vivant.
 
-Une fois la statue apparue, la dévotion dans les yeux de l'étranger s'intensifia. Il fit signe à Wang Lin et pointa d'un geste urgent la gueule du dragon.
+Une fois la statue apparue, la dévotion dans les yeux de l'étranger s'intensifia. Il fit signe à Wang Lin et pointa d'un geste pressant la tête du dragon.
 
 Wang Lin réfléchit un instant. Sans dire un mot, il bondit à plusieurs reprises pour atteindre la tête du dragon. Dès qu'il fut en haut, il sentit une puissante énergie Yin émaner de sous ses pieds.
 
-Il s'assit immédiatement et traça un sceau, faisant apparaître une lumière rouge. Celle-ci se divisa aussitôt en quatre éclats qui scintillèrent rapidement avant d'exploser. Wang Lin fut frappé de stupeur: il comprit que l'énergie de cet endroit avait atteint la limite de l'énergie Yin infernale. Elle était de qualité extrême.
+Il s'assit immédiatement et traça un sceau, faisant apparaître une lumière rouge. Celle-ci se divisa aussitôt en quatre, la lumière rouge atteignit son éclat maximal, puis, dans un bang, la boule de lumière se dissipa. Wang Lin fut saisi: il comprit que la qualité d'énergie Yin de cet endroit avait atteint la limite d'un lieu de Yin infernal: qualité extrême, rang 10!
 
-Surpris, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur la dizaine de mètres qui l'entouraient. De loin, on aurait dit qu'une sphère rouge était apparue pour envelopper la tête du dragon.
+Dans sa joyeuse surprise, il commença promptement à cultiver pour absorber cette énergie. Cependant, cette fois, le rayon d'aspiration n'était pas vaste, mais concentré sur la dizaine de mètres qui l'entouraient. De loin, on aurait dit qu'une sphère rouge était apparue pour envelopper la tête du dragon.
 
 Wang Lin resta assis ainsi pendant cinq jours.
 
-Durant ces cinq jours, l'homme étrange attendit, de plus en plus anxieux chaque jour. Il scrutait le ciel comme si quelque chose allait être attiré par la statue. Les neuf talismans sur son corps s'agitaient sans qu'un souffle de vent ne les touchât. De toute évidence, il était prêt à les arracher à tout instant.
+Durant ces cinq jours, l'homme étrange attendit, de plus en plus anxieux chaque jour. Il scrutait le ciel sans cesse, comme si l'apparition de la statue allait attirer quelque ennui. Les neuf talismans sur son corps s'agitaient sans qu'un souffle de vent ne les touchât. De toute évidence, il se tenait prêt à les arracher tous d'un coup à tout instant.
 
 La Mer de Qi finit par s'ouvrir le troisième jour et se reforma à l'aube du cinquième. Le cinquième niveau de la Méthode d'Ascension des Enfers était accompli!
 
@@ -116,12 +116,12 @@ Tout en contrôlant cette fusion, il observait sa propre énergie spirituelle. I
 
 Il ignorait que sa puissance spirituelle se rapprochait encore davantage du Royaume Ji.
 
-À cet instant précis, le monde bascula. Le ciel s'obscurcit et les nuages s'agitèrent comme si une main gigantesque les poussait. Une brume sombre s'accumula jusqu'à prendre la forme d'un cercueil.
+À cet instant précis, le monde bascula. La terre s'assombrit aussitôt et les nuages roulèrent comme remués par une main. Une brume noire surgit, se condensa peu à peu en un cercueil gigantesque et descendit lentement.
 
-Une silhouette illusoire apparut lentement au sommet du cercueil, son corps devenant progressivement plus tangible.
+Une silhouette illusoire apparut lentement au sommet du cercueil, son corps se solidifiant rapidement.
 
 Une voix rauque tomba du ciel:
 
-« Tu veux dire que l'Âme Naissante de Maître se cache à l'intérieur de la statue? »
+« Tu veux dire que l'Âme Naissante du Maître se cache à l'intérieur de la statue? »
 
 L'expression de l'homme étrange changea radicalement.

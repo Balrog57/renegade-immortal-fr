@@ -16,7 +16,7 @@ L'Ancien Ouyang toussa et s'exclama: « Ami Huang Long, voici Zhou Peng. C'est l
 
 Les yeux de Zhang Kuang s'illuminèrent. Il fit un bond et atterrit sur la scène avant de déclarer d'un ton pesant: « Quel gamin arrogant. Je vais te tester! »
 
-Zhou Peng laissa échapper un rire et répondit: « Toi? Tu sembles être au 6e niveau de Condensation de Qi, mais tu caches ta véritable force. En réalité, tu es au 8e niveau. Tu n'es pas assez fort. » Tandis qu'il parlait, une lueur froide traversa son regard. Il agita la main droite et, soudain, un serpent noir jaillit pour se métamorphoser en un python gigantesque.
+Zhou Peng laissa échapper un rire et répondit: « Toi? Tu sembles être au 6e niveau de Condensation de Qi, mais tu caches ta véritable force. En réalité, tu es au 8e niveau. Tu n'es pas assez fort. » Tandis qu'il parlait, une lueur froide traversa son regard. Il agita nonchalamment sa grande manche et, soudain, un serpent noir jaillit pour se métamorphoser en un python gigantesque.
 
 La tête massive de ce python fixa froidement le visage terrifié de Zhang Kuang. Elle entrouvrit sa gueule et aspira l'air, créant une force de succion inimaginable.
 
@@ -34,7 +34,7 @@ Le disciple en pourpre qui l'avait rattrapé affichait un regard d'horreur et re
 
 Le cœur de Huang Long était amer. Le disciple principal de la Secte Xuan Dao était tout simplement trop puissant. D'après ce qui venait de se passer, cet homme était au moins au 10e niveau. Il utilisait sûrement un talisman pour dissimuler son niveau de culture, rendant sa force réelle indéterminable.
 
-Puis, il observa les disciples internes environnants. Huang Long soupira. Même le disciple principal, qui côtoyait les anciens du stade de Formation du Noyau, n'avait guère de chance de l'emporter, car il n'était lui-même qu'au 10e niveau. S'il perdait ce combat, la Secte Heng Yue serait totalement anéantie!
+Puis, il observa les disciples internes environnants. Huang Long soupira. Aucun de ces disciples ne pouvait l'emporter à coup sûr. Même le disciple principal, qui s'entraînait auprès des anciens du stade de Formation du Noyau, n'était lui-même qu'au 10e niveau; il pouvait certes combattre, mais s'il perdait à son tour, la Secte Heng Yue serait totalement vaincue!
 
 Huang Long esquissa un sourire amer. « Très bien. Il semble que ma Secte Heng Yue n'ait plus aucun espoir. Dites rapidement aux deux Ancêtres ce que l'Ancien Ouyang a dit afin qu'ils puissent prendre une décision. Si ses paroles sont vraies, il n'y a plus aucun moyen de conserver le Pic Heng Yue. »
 

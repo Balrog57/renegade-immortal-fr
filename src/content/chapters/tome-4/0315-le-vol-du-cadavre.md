@@ -104,7 +104,7 @@ L'abdomen de Zhou Yi fut lacéré par la griffe, ouvrant une large plaie d'où j
 
 Privé du contrôle de son âme originelle, son corps s'effondra, le sang jaillissant tandis que son visage devint blanc comme du papier. Pour Ting Er, Zhou Yi était prêt à laisser son propre corps être détruit. Des milliers d'années de compagnonnage, leurs conversations quotidiennes et leurs moments partagés année après année défilèrent devant ses yeux, le faisant sombrer dans la folie.
 
-Ting Er était sa boussole sensible.
+Ting Er était son écaille sensible.
 
 L'âme originelle suivait comme l'éclair, mais à cet instant, le vieil homme sur le cercueil ouvrit soudainement les yeux. Il bondit et apparut devant Zhou Yi en éclatant de rire.
 

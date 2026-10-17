@@ -20,7 +20,7 @@ Bien que les deux fussent des cultivateurs au stade avancé de l'Âme Naissante 
 
 À moins d'acquérir une compréhension particulière, la seule voie consistait à atteindre pas à pas le sommet du stade avancé de l'Âme Naissante, pour ensuite tenter de percer vers la Formation de l'Âme.
 
-Depuis qu'ils suivaient Wang Lin, ils se sentaient extrêmement confiants quant à leur capacité à atteindre la Formation de l'Âme. Bien que les deux aient vécu plus longtemps que Li Muwan, la différence n'était pas grande. S'ils ne parvenaient pas à atteindre la Formation de l'Âme d'ici cent ans, ils mourraient.
+Depuis qu'ils suivaient Wang Lin, ils se sentaient extrêmement confiants quant à leur capacité à atteindre la Formation de l'Âme. Bien que leur durée de vie restante fût plus longue que celle de Li Muwan, la différence n'était pas grande. S'ils ne parvenaient pas à atteindre la Formation de l'Âme d'ici cent ans, ils mourraient.
 
 C'était l'une des raisons principales qui les poussaient à suivre Wang Lin avec une telle détermination.
 
@@ -64,13 +64,13 @@ L'expression de Lu Fei et Tie Yan changea instantanément. Ils reculèrent rapid
 
 « Asseyez-vous! » dit doucement Wang Lin avec un léger sourire.
 
-Le vieil homme regarda Li Muwan et sourit: « On dirait que la compagne cultivatrice a réussi. Je me demande combien de fils de flamme vous avez pu obtenir. »
+Le vieil homme regarda Li Muwan et sourit: « Depuis notre séparation d'alors, compagnon cultivateur, vous n'avez pas changé. Je me demande combien de fils de flamme vous avez pu obtenir. »
 
 Wang Lin fut stupéfait. Lors de leur rencontre passée, il portait un chapeau de paille pour ne pas révéler sa véritable identité. Le vieil homme devait posséder une méthode spéciale pour reconnaître Wang Lin d'un seul regard. Wang Lin sourit et répondit: « L'ouverture était trop étroite, je n'en ai donc pas obtenu beaucoup. »
 
 Le vieil homme acquiesça avant de poursuivre: « J'ai moi aussi été limité par l'ouverture et n'en ai pas eu beaucoup. Cependant, lors de ma visite il y a quelques années, j'ai trouvé un fil ancestral qui avait bien grandi. »
 
-Après avoir parlé, il fixa Wang Lin. Il se montrait extrêmement méfiant. S'il n'avait pas cultivé une technique secrète lui permettant d'identifier les individus par leur corps physique, il n'aurait jamais su que Wang Lin était ce cultivateur de la Formation de l'Âme au chapeau de paille.
+Après avoir parlé, il fixa Wang Lin. Il restait impassible, mais redoutait fortement Wang Lin. S'il n'avait pas cultivé une technique secrète lui permettant d'identifier les individus par leur silhouette, il n'aurait jamais su que Wang Lin était ce cultivateur de la Formation de l'Âme au chapeau de paille.
 
 À cet instant, le vieillard en pourpre se trouvait dans une position délicate. N'osant pas partir, il restait là, immobile.
 
@@ -96,7 +96,7 @@ Qiu Siping fut stupéfait. Même les yeux du vieil homme aux cheveux blancs s'an
 
 Qiu Siping observa attentivement Wang Lin. Plus il le scrutait, plus Wang Lin lui semblait familier, sans qu'il ne puisse mettre le doigt sur quoi que ce soit. Il demanda prudemment: « Le Senior connaît le junior? »
 
-Wang Lin sourit: « Cela fait si longtemps que je crains que vous n'ayez oublié. Si je n'avais pas entendu votre nom, j'en aurais fait autant. À l'époque, nous avions partagé les deux Âmes Naissantes, une pour chacun, ainsi que la carte. Vous vous en souvenez maintenant? »
+Wang Lin sourit: « Cela fait si longtemps que je crains que vous n'ayez oublié. Si je n'avais pas entendu votre nom, j'en aurais fait autant. À l'époque, nous avions partagé les deux Âmes Naissantes, une pour chacun, ainsi que la copie de la carte. Vous vous en souvenez maintenant? »
 
 Le visage de Qiu Siping se décomposa. Il prit une grande inspiration et s'exclama: « Wang Lin! Vous... vous avez atteint la Formation de l'Âme! »
 
@@ -118,7 +118,7 @@ Le vieil homme aux cheveux blancs rit: « J'ai été imprudent à l'époque; j'e
 
 Wang Lin sourit: « Une recette de pilule de rang 6! »
 
-L'expression du vieil homme devint complexe: « Pour n'importe quoi d'autre, je pourrais vous aider, mais cette recette de rang 6 est un objet que quelqu'un d'autre nous a chargé de vendre. »
+L'expression du vieil homme devint complexe: « Pour n'importe quoi d'autre, je pourrais décider de vous l'offrir, mais cette recette de rang 6 est un objet que quelqu'un d'autre nous a chargé de vendre. »
 
 Wang Lin secoua la tête: « Aucun problème! Si je ne peux pas l'obtenir par les enchères, je n'aurai qu'à la voler et en faire une copie! »
 
@@ -126,7 +126,7 @@ Le vieil homme aux cheveux blancs éclata de rire et resta silencieux.
 
 Au premier étage, de nombreuses pilules et trésors avaient déjà été vendus. Peu après, Xu Luo monta sur scène et s'écria: « L'article suivant est un trésor d'une valeur inestimable. Je suis certain que vous savez tous déjà qu'il s'agit d'une recette de pilule de rang 6! Cette recette n'a jamais été ouverte depuis son arrivée au Pavillon de Raffinage des Trésors. Elle porte encore le sceau de son propriétaire, comme vous pouvez le constater. »
 
-« Les pilules de rang 6 sont des créations que seul Suzaku peut produire, mais vous pouvez en faire autant si vous possédez la recette. Sa valeur est évidente, je n'en dirai pas plus. Notez un changement dans les règles: les offres doivent être faites en pierres d'esprit de haute qualité, mais nous acceptons également les trésors. Notre Pavillon en évaluera la valeur. »
+« Les pilules de rang 6 sont des créations que seul Suzaku peut produire, mais vous pouvez en faire autant si vous possédez la recette. Sa valeur est évidente, je n'en dirai pas plus. Notez un changement dans les règles: les offres doivent être faites en pierres spirituelles de haute qualité, mais nous acceptons également les trésors. Notre Pavillon en évaluera la valeur. »
 
 Un silence soudain s'abattit sur les trois étages. Beaucoup étaient venus pour cette recette. Rapidement, les enchères commencèrent à monter.
 
@@ -134,4 +134,4 @@ Li Muwan était nerveuse. Wang Lin lui tapota doucement la main. Son expression 
 
 Qiu Siping afficha un sourire amer. Il était également venu pour la recette et s'était bien préparé, mais il n'osait absolument pas enchérir.
 
-Bientôt, le prix atteignit les 10 000 pierres d'esprit de haute qualité. Un montant colossal.
+Bientôt, le prix atteignit les 10 000 pierres spirituelles de haute qualité. Un montant colossal.

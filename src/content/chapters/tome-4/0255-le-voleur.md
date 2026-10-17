@@ -28,7 +28,7 @@ Les deux entrèrent précipitamment. La porte se referma derrière eux sous l'ef
 
 À l'intérieur, les yeux des deux hommes s'illuminèrent en contemplant les diverses sculptures. Leur regard fut d'abord empreint de stupeur, mais cette surprise fut bientôt balayée par une cupidité infinie.
 
-— Tant de trésors magiques! souffla l'un des cultivateurs dans un souffle court. Il saisit une sculpture et l'examina. Son corps trembla et il la repoussa brusquement.
+— Tant de trésors magiques! souffla l'un des cultivateurs dans un souffle court. Il saisit une sculpture et l'examina. Son corps trembla et il faillit la laisser tomber.
 
 L'avidité dans ses yeux s'intensifia. D'un revers de main, il fit en sorte que toutes les sculptures des étagères soient aspirées dans son sac de rangement.
 
@@ -55,7 +55,7 @@ Pourtant, ce mortel venait d'apparaître silencieusement devant eux. C'était co
 Ajouté à la présence des trésors magiques, même pour des sots, il était devenu évident que l'homme face à eux était un senior avec lequel il ne fallait pas chercher querelle.
 
 Ils se regardèrent et s'inclinèrent respectueusement: 
-— Salutations, Senior. Ces juniors sont des disciples de la Secte Ciel Nuageux. Nous avons été impolis et espérons que le Senior nous pardonnera.
+— Salutations, Senior. Ces juniors sont des disciples de la Secte du Nuage Blanc. Nous avons été impolis et espérons que le Senior nous pardonnera.
 
 Wang Lin demanda simplement: 
 — Avez-vous 4 500 pièces d'or?
@@ -129,7 +129,7 @@ L'année dernière, Da Niu n'avait plus pu refuser les ordres de son père et av
 
 Bien que Da Niu ne vînt pas aussi souvent, sa jarre de vin de fruits quotidienne n'avait jamais manqué.
 
-Jouant avec ses feux d'artifice, Da Niu courut vers Wang Lin et s'assit sur le banc froid, sans semble guère importuné par la fraîcheur. Il adressa un clin d'œil à Wang Lin et dit: 
+Jouant avec ses feux d'artifice, Da Niu courut vers Wang Lin et s'assit sur le banc froid, sans sembler guère importuné par la fraîcheur. Il adressa un clin d'œil à Wang Lin et dit: 
 — Oncle Wang, j'ai entendu mon père dire il y a quelques jours que le marchand Lu, du côté est de la ville, voulait marier sa fille à toi. Pourquoi n'as-tu pas accepté? Je l'ai vue en secret et elle est très belle!
 
 Wang Lin sourit. Il frotta la tête de Da Niu et répondit: 

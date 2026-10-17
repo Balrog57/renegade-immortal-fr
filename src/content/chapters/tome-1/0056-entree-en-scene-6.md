@@ -8,7 +8,7 @@ slug: entree-en-scene-6
 ---
 Malheureusement pour lui, ses prières ne furent pas exaucées. Les yeux de Wang Lin brillèrent, puis sa technique d'attraction prit la forme d'une main qui saisit Yang Yi. Aussitôt, une bombe puante fut lancée dans les airs; elle décrivit un arc de cercle avant de s'écraser sur la tête de Yang Yi.
 
-Yang Yi sentit l'espace se resserrer autour de lui, comme si l'air fut aspiré et qu'une force invisible le pressait de tous côtés, l'immobilisant totalement. Il ne put que regarder la bombe puante fondre sur lui.
+Yang Yi sentit l'espace se resserrer autour de lui, comme si l'air était aspiré et qu'une force invisible le pressait de tous côtés, l'immobilisant totalement. Il ne put que regarder la bombe puante fondre sur lui.
 
 Dans un fracas, Yang Yi fut frappé par la bombe. Son visage devint livide et une odeur infecte émana de son corps.
 
@@ -30,13 +30,13 @@ Wang Lin fut stupéfait, mais un sourire étira ses lèvres. « Une technique an
 
 « Hmph, nul besoin de le nier. Votre Main de Capture du Dragon a déjà été perçue par mon oncle-maître! » Yang Yi descendit de l'estrade tandis que tous les disciples de la Secte Xuan Dao s'écartaient sur son passage. L'odeur émanant de son corps était tout simplement insoutenable.
 
-Le visage de l'Ancien Ouyang rougit légèrement. Il toussa et dit d'un ton raide: « Jeune Wang Lin, la technique que vous avez utilisée est bien la Main de Capture du Dragon. Ces techniques anciennes sont imprévisibles et puissantes. Je n'en avais entendu parler que dans de vieux textes. Je n'aurais jamais cru que la Secte Heng Yue possédait encore une technique perdue depuis des millénaires, héritée d'un puissant secte d'il y a cinq cents ans! »
+Le visage de l'Ancien Ouyang rougit légèrement. Il toussa et dit d'un ton raide: « Jeune Wang Lin, la technique que vous avez utilisée est bien la Main de Capture du Dragon. Ces techniques anciennes sont imprévisibles et puissantes. Je n'en avais entendu parler que dans de vieux textes. Je n'aurais jamais cru que la Secte Heng Yue possédait encore une technique perdue depuis des millénaires, héritée d'une puissante secte d'il y a cinq cents ans! »
 
 À force de discourir, il finit par s'en convaincre lui-même. Même si ce n'était pas la Main de Capture du Dragon, cela devait être une technique ancienne, faute de quoi une telle puissance aurait été inexplicable.
 
 Wang Lin était abasourdi. Il avait pratiqué cette technique d'attraction pendant plus de vingt ans dans le monde des rêves; sa puissance ne pouvait donc être dérisoire.
 
-Ce n'était là qu'un détail. L'essentiel était que ces combats permettaient à Wang Lin de mesurer sa force réelle. Situ Nan avait affirmé précédemment que Wang Lin se situait au milieu du stade de la circulation spirituelle, ce qui correspondait au 14e niveau de Condensation de Qi dans le pays de culture de Zhao. Cela signifiait qu'il était sur le point d'atteindre le sommet de la Condensation de Qi.
+Ce n'était là qu'un détail. L'essentiel était que ces combats permettaient à Wang Lin de mesurer sa force réelle. Situ Nan avait affirmé précédemment que Wang Lin se situait à la fausse perfection du stade de Mouvement Spirituel, ce qui correspondait au 14e niveau de Condensation de Qi dans le pays de culture de Zhao. Cela signifiait qu'il était sur le point d'atteindre le sommet de la Condensation de Qi.
 
 Quant à savoir pourquoi il avait l'impression d'être encore au 3e niveau, même Situ Nan ne parvenait pas à expliquer ce phénomène. Wang Lin avait un jour évoqué les propos du Frère Zhang sur la nécessité de couper ses liens mortels, mais Situ Nan, avec un dédain manifeste, lui avait répondu que cela n'existait pas. Ce n'était qu'une rumeur propagée par les jeunes de ces petits pays de culture. La culture était un acte défiant le ciel; ces futilités n'avaient aucune importance.
 

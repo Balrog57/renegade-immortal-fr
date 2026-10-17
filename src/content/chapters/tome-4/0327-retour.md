@@ -80,21 +80,21 @@ Quant à la boussole stellaire, Wang Lin constata qu'elle ne pouvait être utili
 
 « Il manque un angle à la boussole et un matériau essentiel. Je me demande si je pourrai l'utiliser à Suzaku une fois ces éléments réunis. Si tel est le cas, je pourrais même échapper aux cultivateurs de la Transformation de l'Âme. »
 
-« Et pourquoi Suzaku n'a-t-il pas encore mis ma tête à prix? » Tout en volant, Wang Lin sortit son chapeau de paille et le posa sur sa tête.
+« Et pourquoi Suzaku n'a-t-il pas encore mis ma tête à prix? C'est étrange. » Tout en volant, Wang Lin sortit son chapeau de paille et le posa sur sa tête.
 
-« Ce chapeau contient de nombreuses restrictions et formations que je ne parviens pas encore à activer. À mon retour à Chu, je devrai prendre le temps de l'étudier. De plus, avec les épées précieuses récupérées sur les disciples de la Secte de l'Épée Da Lou, je pourrai ajouter bien plus de restrictions à mon drapeau de restriction. Malheureusement, je n'en ai ramassé que trois. »
+« Ce chapeau contient de nombreuses restrictions et formations que je ne parviens pas encore à activer. À mon retour à Chu, je devrai prendre le temps de l'étudier. De plus, avec les épées précieuses récupérées sur les disciples de la Secte de l'Épée Da Luo, je pourrai ajouter bien plus de restrictions à mon drapeau de restriction. Malheureusement, je n'en ai ramassé que trois. »
 
-Wang Lin avait obtenu l'une de ces épées en tuant un disciple de la Secte de l'Épée Da Lou. Les deux autres, il les avait trouvées avec Chi Hu alors qu'ils collectaient des sacs de rangement dans le vide.
+Wang Lin avait obtenu l'une de ces épées en tuant un disciple de la Secte de l'Épée Da Luo. Les deux autres, il les avait trouvées avec Chi Hu alors qu'ils collectaient des sacs de rangement dans le vide.
 
 Il laissa échapper un sourire amer: « Entrer en culture isolée pour atteindre le milieu de la Formation de l'Âme, trouver les matériaux manquants pour la boussole stellaire, étudier le chapeau de paille et renforcer mon drapeau de restriction... Il y a tant de choses à accomplir... »
 
-Il ajouta dans ses pensées: « Il y a aussi Ta Sen, de la terre de l'Ancien Dieu. Des années ont passé, j'ignore jusqu'où sa culture l'a mené. Je dois acquérir une puissance suffisante pour me protéger avant qu'il ne puisse quitter cet endroit. »
+Il ajouta dans ses pensées: « Il y a aussi Tuo Sen, de la terre de l'Ancien Dieu. Des années ont passé, j'ignore jusqu'où sa culture l'a mené. Je dois acquérir une puissance suffisante pour me protéger avant qu'il ne puisse quitter cet endroit. »
 
-En pensant à Ta Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
+En pensant à Tuo Sen, Wang Lin ne put s'empêcher de songer à Tian Yunzi.
 
-« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi de la Secte de l'Épée Da Lou. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lors de mon arrivée. » Wang Lin fronça les sourcils.
+« Je n'aurais jamais cru rencontrer mon futur maître lors de ce voyage au Royaume Céleste. Le senior Tian Yunzi est l'ennemi de la Secte de l'Épée Da Luo. L'individu qui a combattu Chi Hu et qui pouvait utiliser le cristal d'intention meurtrière appartient également à la secte de Tian Yunzi; j'ignore seulement s'il est son disciple. Je me demande s'il me tiendra rigueur lorsque, ma culture suffisante, j'irai sur la planète Tian Yun. » Wang Lin fronça les sourcils.
 
-« Le vieillard de la Secte de l'Épée Da Lou est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
+« Le vieillard de la Secte de l'Épée Da Luo est trop puissant. Pourrait-il être un cultivateur Ascendant? Malheureusement, n'ayant jamais vu d'Ascendant, je ne peux spéculer. Cependant, d'après ses propos, il semble légèrement plus faible que Tian Yunzi. Quel est donc le niveau de culture de ce senior qui veut faire de moi son disciple honorifique pour cent ans? Je me demande si le senior Tian Yunzi m'a remarqué là-bas. »
 
 « Le bilan de ce voyage au Royaume Céleste est excellent. Seule la pagode contenant le corps féminin sera difficile à obtenir. Puisque j'ai déjà accepté la requête du senior Zhou Yi, je ne peux revenir sur ma parole, d'autant plus que j'ignore l'issue de la poursuite de ce vieillard par le senior Zhou Yi... » Tandis qu'il volait, une multitude de pensées traversaient son esprit.
 

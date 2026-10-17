@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 259 - Domain
 slug: domaine
 ---
-Wang Lin hésita un instant, puis demanda au vieil homme: « Aîné, allons-nous vraiment ainsi? »
+Wang Lin hésita un instant, puis demanda au vieil homme: « Senior, allons-nous vraiment ainsi? »
 
 Le vieil homme agita la main et fit apparaître deux chapeaux de paille. « Porte ceci. À moins que quelqu'un ne possède deux niveaux de culture au-dessus du tien, il ne pourra pas distinguer ton apparence. C'est un objet que j'ai conservé précieusement pendant longtemps. Une fois que tu en auras fini, tu devras me le rendre », dit-il.
 
@@ -40,7 +40,7 @@ Cette scène était bien plus majestueuse que ce que Wang Lin avait pu voir à C
 
 Wang Lin déploya son sens divin. Parmi ces présences, il compta plus de trente cultivateurs de l'Âme Naissante. Les cinq restants étaient au stade de la Formation de l'Âme.
 
-Il prit une profonde inspiration. Ce pays de culture de rang 4 était véritablement à la hauteur de son rang. Une secte, fût-elle petite, n'était pas de taille face aux puissances d'un tel pays. Il n'était pas exagéré de dire qu'une seule secte d'ici pouvait anéantir un pays de culture de rang 3.
+Il prit une profonde inspiration. Ce pays de culture de rang 4 était véritablement à la hauteur de son rang. Une seule secte d'ici, par sa taille comme par sa puissance, dépassait de loin n'importe quel pays de culture de rang 3. Il n'était pas exagéré de dire qu'une seule secte d'ici pouvait anéantir un pays de culture de rang 3.
 
 Une fois sortis, les cultivateurs se dispersèrent pour encercler Wang Lin et le vieil homme. Leurs visages étaient hostiles et ils projetèrent leurs sens divins pour les sonder.
 
@@ -48,7 +48,7 @@ Cependant, en un instant, plus de la moitié d'entre eux affichèrent la surpris
 
 Wang Lin sentit clairement que lorsque leurs sens divins balayaient leur position, les chapeaux de paille libéraient des torrents de lumière dorée. Cette lueur faisait fondre leurs sens divins comme de la glace au contact du feu.
 
-Quant au vieil homme, il forma un sceau et la lumière dorée prit la forme d'une paire d'ailes fantomatiques. En battant des ailes, elles balayèrent tous les sens divins qui tentaient de l'approcher.
+Quant au vieil homme, il forma un sceau et la lumière dorée prit la forme du spectre d'un grand Peng aux ailes d'or. D'un battement d'ailes, celui-ci balaya tous les sens divins qui tentaient de l'approcher.
 
 Soudain, quelques cultivateurs poussèrent des gémissements; leurs corps s'affaissèrent et leurs visages se décomposèrent.
 
@@ -62,7 +62,7 @@ Une pointe de crainte traversa le regard de l'homme d'âge moyen, mais la person
 
 Après avoir entendu ces mots, son regard se tourna vers Wang Lin. « Camarade cultivateur, ma Secte Nuage Blanc vous a-t-il offensé par le passé? »
 
-Wang Lin réfléchit un instant. Puis, sans dire un mot, il sortit une épée volante ordinaire de sa sacoche de rangement. Il la secoua légèrement pour y imprimer son sens divin, puis, dans un crépitement, l'épée se transforma en une petite sphère argentée.
+Wang Lin réfléchit un instant. Puis, sans dire un mot, il sortit une épée volante ordinaire de sa sacoche de rangement. Il la secoua légèrement pour y imprimer son sens divin, puis, dans un crépitement, l'épée fondit et se condensa en une sphère argentée de la taille d'un poing.
 
 « Puisque la Secte Nuage Blanc compte de nombreux cultivateurs de la Formation de l'Âme, je souhaite les défier tous. J'espère que vous pardonnerez mon intrusion. » Sur ces mots, il forma un sceau de la main droite et pointa la sphère argentée.
 
@@ -72,9 +72,9 @@ L'homme d'âge moyen afficha une prudence extrême, mais en voyant la sphère, i
 
 Dès qu'elle se manifesta, l'énergie se mua en un dragon pourpre. La sphère argentée s'immobilisa brusquement alors que Wang Lin changeait de technique et criait: « Mutation! »
 
-Soudain, la sphère commença à bouger étrangement et se transforma en une créature semblable à une tortue. C'était une bête que Wang Lin avait tuée dans la Mer des Diables: un Zhong Gu.
+Soudain, la sphère commença à bouger étrangement et se transforma en une créature semblable à une tortue. C'était une bête que Wang Lin avait tuée dans la Mer des Démons: un Zhong Gu.
 
-La bête Zhong Gu créée par la sphère prit soudain vie, révélant ses dents acérées dans un rugissement qui déchira le ciel, entamant un combat contre le dragon pourpre.
+La bête Zhong Gu créée par la sphère prit soudain vie, dévoilant ses longues dents acérées. Elle ouvrit grand la gueule pour pousser un rugissement silencieux, et des ondes d'air s'en échappèrent pour s'entremêler au dragon pourpre.
 
 L'homme d'âge moyen laissa échapper un reniflement froid, forma un sceau et tonna: « Scission! »
 
@@ -92,18 +92,18 @@ Le visage de l'homme d'âge moyen changea radicalement; le sentiment de terreur 
 
 À cet instant, le dragon restant, porté par une aura puissante et un rugissement strident, percuta le corps de Wang Lin. Ce dernier fut secoué. Il sentit une pression colossale pénétrer son être. Pourtant, une fois à l'intérieur, cette force devint comme un souffle léger; elle n'avait aucune puissance offensive et ne lui causait aucun mal physique.
 
-Mais dans ce vent léger résidait un sentiment de désespoir profond. Cette émotion se propagea sans fin en un clin d'œil au cœur de Wang Lin. Même son Âme Naissante ne put y échapper.
+Mais dans ce vent léger résidait une trace imperceptible d'insensibilité absolue. Ce sentiment se propagea sans fin en un clin d'œil au cœur de Wang Lin. Même son Âme Naissante ne put y échapper.
 
-Wang Lin comprit immédiatement que ce désespoir était la parcelle de domaine nichée au sein de la technique de l'homme d'âge moyen. Ce domaine agissait comme une divine rétribution contre laquelle il n'y avait aucun rempart.
+Wang Lin comprit immédiatement que cette insensibilité était la parcelle de domaine nichée au sein de la technique de l'homme d'âge moyen. Ce domaine était semblable à la puissance céleste: Wang Lin ne pouvait absolument pas lui résister.
 
 S'il avait utilisé le drapeau de restriction pour se protéger par des couches de restrictions antiques, ce sentiment n'aurait pas été aussi puissant. Après tout, face à des cultivateurs de la Formation de l'Âme, le drapeau était indispensable.
 
 Mais en voulant expérimenter le domaine, il s'était laissé sans défense. On pouvait dire qu'il se trouvait nu et désarmé face au domaine de ce cultivateur.
 
-Les yeux du vieil homme s'illuminèrent et il tendit la main droite. Soudain, un mince filet de gaz pourpre s'échappa du front de Wang Lin pour se condenser en une sphère dans la main du vieil homme, tandis que Wang Lin reprenait ses esprits.
+Les yeux du vieil homme s'illuminèrent et il tendit la main droite. Soudain, un mince filet de gaz pourpre s'échappa du sommet du crâne de Wang Lin pour se condenser en une sphère dans la main du vieil homme, tandis que Wang Lin reprenait ses esprits.
 
 Wang Lin ferma les yeux. À cet instant précis, il put pleinement ressentir le domaine de l'homme d'âge moyen. De telles opportunités étaient rarissimes et extrêmement précieuses.
 
-Le vieil homme malaxa la sphère pourpre avant de l'écraser. Le visage de l'homme d'âge moyen était livide; fixant le vieil homme, il déclara: « Je présume que l'Aîné est ici pour permettre à votre disciple d'expérimenter un domaine afin de percer le stade de la Formation de l'Âme. »
+Le vieil homme malaxa la sphère pourpre avant de l'écraser. Le visage de l'homme d'âge moyen était livide; fixant le vieil homme, il déclara: « Je présume que le Senior est ici pour permettre à votre disciple d'expérimenter un domaine afin de percer le stade de la Formation de l'Âme. »
 
 Le vieil homme esquissa un sourire malicieux. Il pointa du doigt la personne située à côté de l'homme d'âge moyen et dit: « Toi, viens ici. C'est ton tour. »

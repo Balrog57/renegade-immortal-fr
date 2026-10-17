@@ -34,7 +34,7 @@ Une magnifique femme vêtue de blanc apparut silencieusement. Sous ses pieds, un
 
 « Si le Royaume Céleste était encore intact, il me suffirait de vous jeter dans l'étang de purification céleste pour vous aider à récupérer. Mais maintenant que cela a disparu, une seule épée céleste de pluie est bien trop lente. »
 
-Une voix impuissante émanant de la masse pourpre sur le front du dragon demanda: « Ting Er, pourquoi fais-tu tout cela? Veux-tu gaspiller toute l'énergie spirituelle céleste que j'ai amassée pour toi? »
+Une voix impuissante émanant de la masse pourpre sur le front du dragon demanda: « Ting Er, pourquoi fais-tu tout cela? Veux-tu gaspiller toute l'énergie spirituelle céleste que tu as accumulée pendant tant d'années? »
 
 La femme en blanc répondit calmement: « Tu es un saint céleste couronné par moi. Si je refuse de te laisser mourir, tu ne peux pas mourir. De plus, je ne m'appelle pas Ting Er. »
 
@@ -56,15 +56,15 @@ Bang!
 
 Le sol éclata alors qu'un dragon doré surgissait des profondeurs. Dans son élan, la terre environnante commença à s'effondrer dans le vide. Une fois apparu, il s'entrelaça avec le dragon doré sous les pieds de la femme en blanc. Les deux dragons lancèrent des rugissements de joie, comme si deux vieux amis se retrouvaient.
 
-À cet instant, loin dans le vide, le vieil homme de la Secte Da Lou, assis sur un Qilin, ouvrit soudainement les yeux. Dès qu'il les ouvrit, une puissante créature du vide poussa un gémissement misérable et s'enfuit en panique.
+À cet instant, loin dans le vide, le vieil homme de la Secte de l'Épée Da Luo, assis sur un Qilin, ouvrit soudainement les yeux. Dès qu'il les ouvrit, une puissante créature du vide poussa un gémissement misérable et s'enfuit en panique.
 
-« Une autre épée céleste de pluie! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée. Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui: « Si les êtres célestes sont encore en vie, il me sera impossible de les obtenir avec ma culture actuelle... »
+« Une autre épée céleste de pluie! Il y en a cinq au total. L'une a été brisée autrefois, il en reste donc quatre! Deux des quatre sont apparues, mais j'ignore si cela suffira à éveiller l'esprit de l'épée. Si l'esprit de l'épée s'éveille, alors chaque esprit d'épée du royaume céleste répondra! » Le vieil homme afficha un sourire d'anticipation en touchant le Qilin sous lui: « Si les immortels d'autrefois étaient encore là, il me serait impossible d'obtenir les épées de pluie avec ma culture actuelle, mais maintenant... »
 
 Ses yeux pétillèrent tandis que le Qilin sous ses pieds s'animait avec plus de célérité. Après un instant, une expression de joie illumina son visage.
 
 « Ils ont réagi! »
 
-Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. La main de la femme prit la forme d'une fiole de jade lorsqu'elle déclara: « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments. Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi! »
+Les deux dragons dorés sous la femme en blanc continuaient de rugir tout en s'entremêlant. Ses deux mains formèrent un sceau en forme de vase précieux lorsqu'elle déclara: « Autrefois, le royaume céleste connut une catastrophe et l'esprit de l'épée céleste de pluie fut brisé en d'innombrables fragments. Ils se sont fusionnés en une multitude d'épées célestes, devenant des esprits d'épées brisés. Aujourd'hui, Zhou Yi, je te couronne nouvel esprit de l'épée. Esprit de l'épée, rassemble-toi! »
 
 À l'instant où elle eut fini de parler, chaque fragment du royaume céleste, qu'il fût habité ou non, se mit à trembler. Ce tremblement de terre n'était pas dû à un effondrement, et celui du ciel n'était pas causé par des failles spatiales.
 
@@ -72,7 +72,7 @@ Une à une, les épées célestes s'envolèrent des fragments, se reformant les 
 
 C'était le chant d'une épée!
 
-Un disciple de la Secte des Épées de Da Lou combattait alors quelqu'un pour lui dérober un trésor. En voyant la panique sur le visage de son adversaire, il ricana en abattant son arme. Cependant, son ricanement s'évanouit promptement, remplacé par la confusion. Des vagues d'hymnes d'épée l'assaillirent de toutes parts, envahissant ses oreilles.
+Un disciple de la Secte de l'Épée Da Luo combattait alors quelqu'un pour lui dérober un trésor. En voyant la panique sur le visage de son adversaire, il ricana en abattant son arme. Cependant, son ricanement s'évanouit promptement, remplacé par la confusion. Des vagues d'hymnes d'épée l'assaillirent de toutes parts, envahissant ses oreilles.
 
 Au moment où il portait son coup avec son épée précieuse, une série de craquements retentit et des fissures parcoururent l'arme. En un éclair, son trésor vola en éclats. Sur un autre fragment céleste, les épées volantes sous les pieds de certains cultivateurs se brisèrent instantanément en plein vol.
 
@@ -82,9 +82,9 @@ Une femme qui venait d'entrer dans le vortex pour atterrir sur un fragment enten
 
 L'épée se brise par honte!
 L'épée se brise pour nourrir l'âme!!
-L'épée se brise pour les dévots de l'épée!!!
+L'épée se brise pour la furie de l'épée!!!
 
-L'épée céleste de pluie possédait une nouvelle âme, et cette âme était Zhou Yi. L'esprit de l'épée céleste de pluie était revenu. Dix mille épées brisées, dix mille épées revenues, dix mille épées fusionnées en une seule!
+L'épée céleste de pluie possédait une nouvelle âme, et cette âme était Zhou Yi. L'esprit de l'épée céleste de pluie était revenu. Dix mille épées brisées ensemble, dix mille épées résonnant à l'unisson, dix mille épées fusionnées en une seule!
 
 Toutes les épées célestes du Royaume Céleste volèrent dans une seule direction. Quiconque osait leur barrer la route était tué! Si un homme se dressait devant elles, elles le tuaient. Si la terre faisait obstacle, elles la dévastaient. Si le ciel s'interposait, elles le déchiraient. Et si une bête les empêchait de passer, elles l'abattaient.
 

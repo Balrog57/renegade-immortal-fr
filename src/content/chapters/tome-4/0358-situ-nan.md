@@ -10,7 +10,7 @@ slug: situ-nan
 
 Le regard de cet homme était d'une grande vivacité et sa peau semblait glacée. Sa seule présence paraissait engendrer, dans un rayon de 330 mètres, une brise froide capable d'emporter toute chaleur.
 
-En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit: « Ceng Niu, remets-moi l'éventail à plumes. »
+En voyant Wang Lin sortir, un éclair de froideur traversa ses yeux. Il joignit les mains et dit: « Ceng Niu, remets-moi les trésors restants de l'éventail à plumes! »
 
 Wang Lin jeta un coup d'œil au jeune homme. Son niveau de culture était celui du milieu du stade de la Formation de l'Âme. Wang Lin sortit les deux plumes et les lança sur le côté. Les extrémités des plumes s'enfoncèrent dans une montagne voisine, tandis que leurs pointes dépassantes oscillaient doucement sous l'effet du vent.
 
@@ -26,7 +26,7 @@ Des fissures apparurent immédiatement sur les lames de glace qui finirent par t
 
 L'expression de Liao Fan resta calme. Il avait déjà entendu parler de la puissance de ce Ceng Niu. Sa mission ici n'était pas de récupérer un trésor, mais d'effectuer une reconnaissance.
 
-Une fois au sol, ses mains formèrent un sceau, son regard se fit glacial et il projeta le sceau en avant. Une lumière blanche émana soudainement de son corps pour former une illusion devant lui. Cette illusion n'était pas l'image de culture habituelle de Xue Yu, mais celle d'un vieil homme assis en position de lotus.
+Une fois au sol, ses mains formèrent un sceau, son regard se fit glacial et il projeta le sceau en avant. Une lumière blanche émana soudainement de son corps pour former une illusion devant lui. Cette illusion n'était pas celle de la fée des neiges que Wang Lin connaissait bien, mais celle d'un vieil homme assis en position de lotus.
 
 Une fois l'image du vieil homme créée, celui-ci ouvrit les yeux.
 
@@ -48,7 +48,7 @@ Douze symboles ornaient cette horloge. Ils représentaient les douze mois de Suz
 
 Il frappa l'horloge de la main gauche et elle se mit à tourner. Le symbole représentant le mois d'août commença à briller, puis l'une des petites lignes s'illumina également.
 
-« Nous sommes le 9 août. Ceng Niu, c'est le jour de ta mort! » Alors que Liao Fan achevait sa phrase, il lança l'horloge de bronze en l'air. Deux étranges griffes surgirent du bloc, chacune abritant une source de lumière dorée.
+« Nous sommes le 9 août. Ceng Niu, c'est le jour de ta mort! » Alors que Liao Fan achevait sa phrase, il lança l'horloge de bronze en l'air. Une énorme griffe spectrale surgit de l'horloge, abritant deux éclats de lumière dorée.
 
 L'expression de Wang Lin resta sereine. Sa main forma un sceau et pointa les deux cloches. Les deux cloches tournoyantes entrèrent soudainement en collision et volèrent en éclats.
 
@@ -62,9 +62,9 @@ Des ondes de choc apparurent sur son armure et le gaz fut affaibli.
 
 De nouvelles ondulations se produisirent et le gaz finit par disparaître.
 
-« Cette armure spirituelle sonore est en effet très utile! » Wang Lin sourit et regarda Liao Fan. Les griffes convergeaient désormais vers lui.
+« Cette armure spirituelle sonore est en effet très utile! » Wang Lin sourit et regarda Liao Fan. La griffe convergeait désormais vers lui.
 
-Wang Lin renifla, toucha son sac de rangement et en sortit l'épée céleste. D'un seul revers, il détruisit les griffes et une fissure apparut sur l'horloge de bronze.
+Wang Lin renifla, toucha son sac de rangement et en sortit l'épée céleste. D'un seul revers, il détruisit la griffe et une fissure apparut sur l'horloge de bronze.
 
 Liao Fan fut également frappé à la poitrine par cette attaque, ce qui le fit cracher du sang. Repoussé de plusieurs pas, le visage pâle, ses yeux révélèrent pourtant une pointe de joie alors qu'il riait: « Ceng Niu, prépare-toi à mourir! »
 
@@ -98,7 +98,7 @@ Cette aura se propagea avec frénésie et enveloppa Wang Lin. L'énergie glacial
 
 En percevant cette aura, le cœur de Wang Lin trembla et ses yeux s'illuminèrent. Il connaissait trop bien cette sensation. C'était exactement la même aura que celle issue de la culture de la Méthode d'Ascension des Enfers!
 
-Cependant, l'énergie froide émise par cette silhouette était des milliers de fois plus puissante que celle qu'il avait cultivée. Seule l'aura de Situ Nan, lorsqu'il avait utilisé son propre corps, égalait celle de cette créature.
+Cependant, l'énergie froide émise par cette silhouette était des milliers de fois plus puissante que celle qu'il avait cultivée. Seule l'aura de Situ Nan, lorsqu'il avait utilisé le corps de Wang Lin, égalait celle de cette créature.
 
 Il recula immédiatement, puis sa main droite forma un sceau et pointa vers l'avant. Soudain, la flamme bleue issue de la Méthode d'Ascension des Enfers, qu'il n'avait pas utilisée depuis une éternité, apparut au bout de son doigt.
 
@@ -116,7 +116,7 @@ Wang Lin sentit son cuir chevelu s'engourdir. Cette voix lui était trop famili�
 
 « Peu importe comment tu l'as obtenue, tu dois mourir! Je suis Situ Nan! » La silhouette chargea avec acharnement vers la pagode, visant la tête de Wang Lin. Ce dernier réprima le choc dans son cœur et hurla: « Recule! »
 
-Le domaine d'Ascendant de Zhou Yi jaillit soudainement de la pagode et la silhouette fut frappée par une force puissante, s'arrêtant à peine à une dizaine de centimètres de Wang Lin. La figure laissa échapper un rugissement de frustration avant d'être projetée en arrière.
+Une trace du sens divin d'Ascendant de Zhou Yi jaillit soudainement de la pagode et la silhouette fut frappée par une force puissante, s'arrêtant à peine à une dizaine de centimètres de Wang Lin. La figure laissa échapper un rugissement de frustration avant d'être projetée en arrière.
 
 Au moment où elle fut repoussée, le gaz noir disparut, ne laissant que le bras. Celui-ci s'empara de Liao Fan, stupéfait, et disparut.
 

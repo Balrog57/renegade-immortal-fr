@@ -22,7 +22,7 @@ Cette fois, en utilisant l'ancien réseau de transfert, Wang Lin ne sut s'il ét
 
 Ce son provenait de la pierre spirituelle de qualité supérieure.
 
-Ils retournèrent dans la vallée à Chu. Cet endroit n'avait pas changé depuis leur départ. Lu Fei et Tie Yan retournèrent là où ils étaient auparavant et continuèrent à cultiver afin de condenser l'énergie spirituelle dans leurs corps, espérant ainsi atteindre plus tôt le sommet du stade avancé de l'Âme Naissante.
+Ils retournèrent dans la vallée de Chu, près du Cimetière des Immortels. Cet endroit n'avait pas changé depuis leur départ. Lu Fei et Tie Yan s'arrêtèrent à 50 kilomètres de là et continuèrent à cultiver afin de condenser l'énergie spirituelle dans leurs corps, espérant ainsi atteindre plus tôt le sommet du stade avancé de l'Âme Naissante.
 
 La vie de Wang Lin retrouva son calme. Il continua à soigner le corps de Li Muwan tandis que celle-ci étudiait la recette de pilule de rang 6. De nombreux ingrédients étaient déjà éteints, elle avait donc pour tâche d'en trouver des substituts.
 
@@ -46,7 +46,7 @@ Durant ces deux années, Ouyang Zi avait tout oublié. Il était totalement abso
 
 Quant à Li Muwan, au cours de ces deux années, elle vieillissait lentement. Sa peau n'était plus d'un blanc immaculé; elle commençait à montrer des signes de grisaille.
 
-Deux ans d'entretien incessant du corps par l'injection d'énergie spirituelle n'avaient pu arrêter le cycle de la vie et de la mort dicté par les cieux.
+Deux ans d'entretien incessant du corps par l'injection d'énergie spirituelle n'avaient pu arrêter le cycle de la vie et de la mort dicté par les cieux. Chaque fois que Wang Lin voyait Li Muwan vieillir ainsi, son cœur se serrait comme sous la lame d'un couteau.
 
 La réticence dans les yeux de Li Muwan devint plus intense encore.
 
@@ -62,7 +62,7 @@ C'était un vin de fruits. Il n'en restait plus beaucoup dans le sac de Wang Lin
 
 « Une fois que l'oncle aura gagné beaucoup d'argent, il rentrera chez lui pour se marier. »
 
-Ces scènes du passé surgirent dans son esprit. Il finit le vin en quelques gorgées, puis leva la tête vers le ciel.
+Ces scènes du passé surgirent dans son esprit. Il finit le vin en quelques gorgées, puis leva la tête vers le ciel, le regard empli de détermination.
 
 À cet instant précis, un cri d'excitation retentit depuis la chambre d'Ouyang Zi. Peu après, ce dernier en sortit en courant. Surpris de voir Wang Lin sous la pluie, il s'approcha précipitamment: « Maître de la Secte, j'ai trouvé les substituts pour les trois derniers ingrédients! »
 
@@ -102,7 +102,7 @@ Surtout ceux possédant des domaines spéciaux; ils manifestaient une force anor
 
 Après son retour à Chu, Wang Lin se dirigea rapidement vers la vallée.
 
-À l'intérieur de la vallée, il déploya son sens divin et constata que Tie Yan et Lu Fei étaient tous deux 500 mètres plus proches de la pagode qu'auparavant. Leur niveau de culture avait légèrement progressé.
+À l'intérieur de la vallée, il déploya son sens divin et constata que Tie Yan et Lu Fei étaient tous deux capables de s'enfoncer d'environ 500 mètres dans le Cimetière des Immortels, sous une pression immense, pour condenser leur énergie spirituelle. Leur niveau de culture avait légèrement progressé.
 
 Wang Lin apparut devant la maison en pierre. Il ouvrit la porte et son corps fut parcouru d'un tremblement. Ce qu'il vit n'était que le dos de quelqu'un.
 
@@ -118,7 +118,7 @@ Wang Lin la regarda et, d'un ton solennel, répéta: « Tu ne mourras pas! »
 
 Li Muwan se mordit la lèvre inférieure et hocha doucement la tête. Elle s'appuya contre Wang Lin et ferma les yeux.
 
-Le retour de Wang Lin poussa Ouyang Zi à se consacrer corps et âme à la raffinage de la pilule de rang 6. Son vœu le plus cher était de réussir une telle prouesse; c'était comme si son âme s'en trouvait embrasée.
+Le retour de Wang Lin poussa Ouyang Zi à se consacrer corps et âme au raffinage de la pilule de rang 6. Son vœu le plus cher était de réussir une telle prouesse; c'était comme si son âme s'en trouvait embrasée.
 
 Presque tous les ingrédients de substitution avaient été choisis après de longues recherches. Il utilisa près de 1 000 composants pour remplacer les 137 originaux, en calculant scrupuleusement l'effet de chaque élément et le temps nécessaire à leur raffinage.
 

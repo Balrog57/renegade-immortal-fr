@@ -8,7 +8,7 @@ slug: la-cite-de-la-famille-teng
 ---
 Wang Lin examinait les trésors lorsqu'il entendit soudain un murmure derrière lui. Il projeta une lueur dorée dans son épée volante et se retourna. Zhang Hu ouvrit les yeux et, en voyant Wang Lin, fut saisi de stupeur. Il regarda autour de lui, aperçut l'épée volante et le fourreau entre les mains de Wang Lin, puis un air de joie illumina son visage lorsqu'il demanda: « Est-ce qu'il... est mort? »
 
-Wang Lin eut un léger rire et hocha la tête. « Oui. Zhang Hu, disais-tu que tu ne me connaissais pas à cause de lui? »
+Wang Lin eut un léger rire et hocha la tête. « Oui. Zhang Hu, si tu ne m'as pas reconnu tout à l'heure, c'est sans doute à cause de lui, n'est-ce pas? »
 
 Zhang Hu se toucha rapidement la poitrine. Après avoir réfléchi un instant, il répondit: « Il est bel et bien mort. Wang Lin, ce n'est pas l'endroit idéal pour discuter. Une fois que j'en aurai fini avec ces gens, nous pourrons rattraper le temps perdu. »
 
@@ -18,9 +18,9 @@ Les personnes aux alentours restèrent pétrifiées. Ce qu'elles venaient de voi
 
 Wang Lin fronça les sourcils. Alors qu'il s'apprêtait à intervenir, Zhang Hu fit un pas en avant et lança les boules de feu. Cependant, sa cible n'était pas le groupe de Liu San, mais celui des hommes en noir.
 
-Aux yeux du monde, la vie de ces mortels n'était que poussière. Sans aucune capacité de défense, les hommes en noir, y compris Song Xing, furent frappés par les flammes. Le plus étrange était que leurs corps ne furent pas réduits en cendres; au lieu de cela, plusieurs gouttes de sang doré se formèrent et furent aussitôt englouties par Zhang Hu.
+Face à une puissance absolue, le sort de ces mortels était celui de fourmis. Sans aucune capacité de riposte, les hommes en noir, y compris Song Xing, furent frappés par les flammes. Le plus étrange était que leurs corps ne furent pas réduits en cendres; au lieu de cela, plusieurs gouttes de sang doré se formèrent et furent aussitôt englouties par Zhang Hu.
 
-Le groupe de Liu San fut brûlé par la chaleur intense au point que leurs cheveux s'enroulèrent et leur peau craquela, mais aucun d'eux n'osa le moindre mouvement.
+Le groupe de Liu San fut brûlé par la chaleur intense au point que leurs cheveux et leurs poils roussirent et que leur peau se craquela, mais aucun d'eux n'osa le moindre mouvement.
 
 Voyant que Zhang Hu formait trois autres boules de feu, Wang Lin dit d'un ton grave: « Zhang Hu, ne tue plus personne. »
 
@@ -34,23 +34,23 @@ Wang Lin réfléchit un instant. Il fit un geste de la main et les six ou sept p
 
 Zhang Hu retira ses boules de feu et se tint silencieux sur le côté.
 
-Wang Lin sortit un morceau de jade de son sac de rangement; c'était celui qu'il avait obtenu de Zhang Kuang lors de l'échange avec Wang Hao. Il se souvenait vaguement qu'une technique y était inscrite, capable d'effacer la mémoire des gens.
+Wang Lin sortit un morceau de jade de son sac de rangement; c'était celui qu'il avait obtenu de Zhang Kuang, lors de l'échange auquel il avait participé avec Wang Hao à la Secte Heng Yue, et qui contenait toutes les formules de Condensation de Qi des niveaux 4 à 9. À l'époque, il l'avait parcouru une fois et se souvenait vaguement qu'on y trouvait une technique, la Technique de Formation de l'Âme, capable d'effacer la mémoire des gens.
 
-Après avoir soigneusement examiné le jade, il trouva la technique. Wang Lin la vérifia une fois, puis rangea l'objet. Ses yeux se mirent à briller d'un éclat bleu qui pénétra le regard de l'assemblée; les yeux des captifs devinrent eux aussi bleus avant qu'ils ne s'évanouissent et ne s'effondrent au sol.
+Après s'être concentré et avoir cherché avec soin, il trouva la mention de cette technique. Wang Lin y jeta un coup d'œil, puis rangea le jade. Une lueur bleue brilla dans ses yeux; le regard de tous devint soudain flou, puis des éclats bleus apparurent lentement dans leurs yeux. Longtemps après, la lueur bleue s'éteignit; les captifs, le visage hébété, s'effondrèrent au sol.
 
 Zhang Hu poussa un soupir discret. Il ouvrit la bouche pour dire quelque chose, mais finit par se taire.
 
-Une fois la technique achevée, Wang Lin regarda Zhang Hu et s'envola vers l'horizon. Zhang Hu soupira, cracha une sphère dorée sur laquelle il monta, et suivit Wang Lin.
+Une fois la technique achevée, Wang Lin regarda Zhang Hu et s'envola vers l'horizon. Zhang Hu inspira profondément, cracha une sphère dorée sur laquelle il monta, et suivit Wang Lin.
 
-Ils volèrent ainsi longtemps dans les airs. Zhang Hu finit par être essoufflé et se posa sur un sommet de montagne, tandis que Wang Lin descendait lentement du ciel.
+Les deux arcs-en-ciel filèrent longtemps dans les airs. Zhang Hu finit par être essoufflé et se posa sur un sommet de montagne, tandis que Wang Lin descendait lentement du ciel.
 
 Après avoir calmé sa respiration, Zhang Hu s'assit. Il sortit deux patates douces et en tendit une à Wang Lin. « Je les ai cuites. Goûte donc, » dit-il.
 
-Wang Lin prit la patate douce. Il eut l'impression de remonter dix ans en arrière, au moment de leur première rencontre.
+Wang Lin prit la patate douce. Il eut l'impression de remonter dix ans en arrière, au moment où deux adolescents avaient fait connaissance dans la chambre des disciples enregistrés de la Secte Heng Yue.
 
-« Quand j'ai quitté la Secte Heng Yue à l'époque, je ne suis pas rentré chez moi; j'ai erré, cherchant à rejoindre une autre secte de culture. Par chance, en consommant certaines herbes, j'ai réussi à atteindre le premier niveau de Condensation de Qi. Je dois cela au livret du blaireau. Après avoir rencontré Bai Zhan, celui-ci a décidé de m'épargner en voyant mon niveau. Au lieu de cela, il m'a pris comme disciple pour l'aider à collecter le sang des mortels. Il avait laissé un poison en moi afin de contrôler ma vie et ma mort. »
+« Quand j'ai quitté la Secte Heng Yue à l'époque, je ne suis pas rentré chez moi; j'ai erré, cherchant à rejoindre une autre secte de culture. Par chance, en consommant certaines herbes, j'ai réussi à atteindre sans m'en rendre compte le premier niveau de Condensation de Qi. Je dois cela au petit livret de la belette jaune. Ensuite, j'ai rencontré Bai Zhan, mon maître. Voyant que j'étais au premier niveau de Condensation de Qi, il n'a pas voulu me tuer. Au lieu de cela, il m'a pris comme disciple pour l'aider à collecter le sang des mortels. Ce Bai Zhan avait en outre implanté un poison en moi afin de tenir ma vie et ma mort entre ses mains. »
 
-« Avant, je ne voulais pas dire que je te connaissais parce qu'il rôdait dans les parages, mais heureusement, tu l'as tué. Cela a dissipé le poison dans mon corps et je suis enfin libre. » Zhang Hu prit une bouchée de patate douce tout en expliquant rapidement ce qui s'était passé durant ces dix dernières années.
+« Avant, je ne voulais pas dire que je te connaissais parce qu'il rôdait dans les parages, mais heureusement, tu l'as tué. À sa mort, le poison est mort lui aussi et je suis enfin libre. » Zhang Hu prit une bouchée de patate douce tout en expliquant rapidement ce qui s'était passé durant ces dix dernières années.
 
 Wang Lin fut profondément ému. Bien que le récit de Zhang Hu fût bref, l'expression de son compagnon trahissait la dureté de ces dix années de souffrance.
 

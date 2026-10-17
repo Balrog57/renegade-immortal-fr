@@ -38,7 +38,7 @@ Les deux hommes volèrent vers la cour est, mais n'osèrent pas s'en approcher d
 
 Wang Lin contemplait Li Muwan avec une expression grave. Après un moment, il serra les dents et sortit plusieurs pierres spirituelles de haute qualité qu'il disposa autour d'elle. Il commença ensuite à injecter de l'énergie spirituelle dans son corps.
 
-Le temps s'écoula rapidement. Trois jours plus tard, Wang Lin fronçait toujours les sourcils. Il avait transmis de l'énergie spirituelle à Li Muwan sans interruption depuis trois jours. S'il n'avait pas atteint le stade de la Formation de l'Âme, il aurait déjà épuisé ses réserves. Cependant, pour un cultivateur de la Formation de l'Âme, cela n'était pas une mince affaire.
+Le temps s'écoula rapidement. Trois jours plus tard, Wang Lin fronçait toujours les sourcils. Il avait transmis de l'énergie spirituelle à Li Muwan sans interruption depuis trois jours. S'il n'avait pas atteint le stade de la Formation de l'Âme, il aurait déjà épuisé ses réserves. Cependant, pour un cultivateur de la Formation de l'Âme, cela ne posait pas de difficulté.
 
 À un moment donné, les traits de Li Muwan commencèrent à reprendre quelques couleurs.
 
@@ -62,7 +62,7 @@ Après un long moment, Wang Lin porta délicatement Li Muwan jusqu'à son lit. I
 
 Une fois dehors, son expression s'assombrit instantanément.
 
-Sept personnes étaient assises à l'extérieur pour l'attendre. Outre Liu Fei et Song Qing, ainsi que les deux Grands Anciens au stade de l'Âme Naissante tardif, il y avait Ouyang Zi et deux autres anciens de l'Âme Naissante ayant atteint ce stade au cours des cent dernières années.
+Sept personnes étaient assises à l'extérieur pour l'attendre. Outre Liu Fei et Song Qing, ainsi que les deux Grands Anciens au stade de l'Âme Naissante tardif, il y avait Ouyang Zi et deux autres anciens de l'Âme Naissante au stade initial, promus au cours des cent dernières années.
 
 Dès que Wang Lin sortit, les sept hommes ouvrirent les yeux et se levèrent. Aucun n'osait respirer. Les souvenirs de ses actes passés les hantaient encore, et le voilà qui réapparaissait, plus puissant que jamais. À leurs yeux, Wang Lin était une figure terrifiante.
 
@@ -104,7 +104,7 @@ Une pointe d'intention meurtrière apparut dans les yeux de Lu Fei. Il regarda T
 
 Lu Fei laissa échapper un rire et acquiesça: « Très bien. Vous deux, suivez-moi. J'ai quelques conseils pour les cultivateurs de l'Âme Naissante. J'espère qu'ils vous seront utiles. »
 
-Les deux hommes, ravis, le suivirent promptement. Cependant, l'un d'eux marqua un temps d'arrêt, une lueur d'inquiétude dans les yeux. Lu Fei sourit et fit deux pas en avant. L'homme qui hésitait serra les dents et suivit Lu Fei vers la cour ouest.
+Les deux hommes, ravis, le suivirent promptement. Cependant, l'un d'eux marqua un temps d'arrêt, une lueur d'inquiétude dans les yeux. Liu Fei et les autres sourirent et firent deux pas en avant. L'homme qui hésitait serra les dents et suivit Lu Fei vers la cour ouest.
 
 Ces deux nouveaux anciens de l'Âme Naissante ne furent plus jamais revus après ce jour. Il n'y avait désormais que deux nouvelles marionnettes, entourées d'une brume noire, suivant Lu Fei...
 
@@ -114,9 +114,9 @@ En un clin d'œil, un mois passa.
 
 Durant ce mois, les souvenirs de tous les disciples de la Secte Ciel Nuageux furent effacés, laissant place à une curiosité générale quant à la raison pour laquelle le Maître de la secte s'était retiré en culture fermée.
 
-Liu Fei et Song Qing reprirent la gestion de la secte, qui retrouva progressivement sa gloire d'antan. De plus, profitant de la destruction de nombreuses autres sectes dans Chu, la Secte Ciel Nuageux étendit son influence de manière considérable.
+Liu Fei et Song Qing reprirent la gestion de la secte, qui retrouva progressivement sa gloire d'antan. De plus, profitant de la destruction de nombreuses autres sectes dans Chu, la Secte Ciel Nuageux redevint la première secte de Chu et son influence fut multipliée de manière considérable.
 
-Quant à Wang Lin, le deuxième jour suivant l'amélioration de Li Muwan, il l'emmena et quitta la secte. Lu Fei et Tie Yan les suivirent; ils avaient renoncé à leurs postes de Grands Anciens pour accompagner Wang Lin dans l'espoir d'atteindre la Formation de l'Âme.
+Quant à Wang Lin, le deuxième jour suivant le réveil de Li Muwan, il l'emmena et quitta la secte. Lu Fei et Tie Yan les suivirent; ils avaient renoncé à leurs postes de Grands Anciens pour accompagner Wang Lin dans l'espoir d'atteindre la Formation de l'Âme.
 
 Wang Lin et Li Muwan parcoururent une grande partie de Chu. Ils discutèrent et rirent tout au long du voyage. Li Muwan ressentait un bonheur inédit et était comblée. Elle resta constamment aux côtés de Wang Lin, tel une petite épouse dévouée.
 
@@ -128,4 +128,4 @@ Ce lieu était l'un des points d'accumulation de l'énergie Yin dans Chu. Wang L
 
 La pagode, faite de jade céleste, s'étendit instantanément dans les airs jusqu'à atteindre environ 330 mètres de hauteur. Dans un fracas, elle se posa au fond de la vallée, et un anneau de lumière se propagea soudainement tout autour d'elle.
 
-Le domaine ascendant de Zhou Yi couvrait désormais toute la zone, dans un rayon de 50 kilomètres.
+Une trace de la volonté de Zhou Yi, au niveau Ascendant, couvrait désormais toute la zone, dans un rayon de 50 kilomètres.

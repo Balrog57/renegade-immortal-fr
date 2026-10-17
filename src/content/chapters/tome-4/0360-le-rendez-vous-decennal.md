@@ -6,19 +6,19 @@ bookTitle: Clean Sweep
 en: Chapter 360 - The 10 year appointment
 slug: le-rendez-vous-decennal
 ---
-Zhou Ru était perchée sur le dos d'un tigre noir, une branche de saule à la main. Tout en frappant la tête du tigre avec la branche, elle jetait des regards furtifs vers Wang Lin.
+Zhou Ru était perchée sur le dos d'un tigre aux rayures noires, une branche de saule à la main. Tout en frappant la tête du tigre avec la branche, elle jetait des regards furtifs vers Wang Lin.
 
-Le tigre n'osait pas se fâcher et marchait autour de la montagne, la tête basse.
+Le tigre n'osait pas se fâcher et marchait dans la vallée, la tête basse.
 
-« Petit Blanc, regarde! » ordonna Zhou Ru en fixant l'animal.
+« Petit Blanc, lève la tête! » ordonna Zhou Ru en fixant l'animal.
 
 Le tigre poussa un grognement étouffé et leva obéissamment la tête.
 
-« Baisse-toi! »
+« Baisse la tête! »
 
 Le tigre baissa la tête.
 
-« Lève-toi! »
+« Lève la tête! »
 
 Elle répéta cela plus de dix fois, mais le tigre s'y était complètement habitué. Il n'espérait qu'une chose: que la petite ancêtre sur son dos soit satisfaite et qu'un jour, elle le libère, comme l'ours noir quelques temps auparavant.
 
@@ -48,7 +48,7 @@ Le regard de Wang Lin passa de Zhou Ru vers l'extérieur de la vallée. Après u
 
 Tie Yan sortit de sa culture. Il se leva et s'avança respectueusement devant Wang Lin.
 
-Wang Lin dit à Tie Yan: « Je dois me rendre à Suzaku. J'ignore combien de temps cela prendra, mais au plus huit ans. Pendant ce temps, prends soin de la petite Zhou Ru pour moi. »
+Wang Lin dit à Tie Yan: « Je dois me rendre à Suzaku. J'ignore combien de temps cela prendra, mais au plus huit ans. Pendant ce temps, prends soin de la petite Ru Er pour moi. »
 
 Zhou Ru ne regardait pas Wang Lin, mais ses oreilles tressaillirent. Elle attrapa immédiatement la fourrure sur la tête de Petit Blanc et s'exclama: « Mauvais oncle! Mauvais oncle! » À chaque répétition, elle tirait sur le pelage de l'animal.
 
@@ -60,7 +60,7 @@ Depuis qu'il avait suivi Wang Lin après avoir tout abandonné une fois de plus,
 
 Wang Lin acquiesça et dit: « Je vais laisser la pagode ici et ouvrir le domaine. Personne, hormis toi et Zhou Ru, ne pourra s'approcher à moins de cinquante kilomètres. Tu devras prendre grand soin de la petite Ru Er durant cette période. »
 
-Tie Yan hocha promptement la tête: « Soyez serein, Bienfaiteur; je m'assurerai que lady Ru Er soit en sécurité. »
+Tie Yan hocha promptement la tête: « Soyez serein, Bienfaiteur; je m'assurerai que Wan... lady Ru Er soit en sécurité. »
 
 Wang Lin réfléchit un instant, puis frappa son sac de rangement. Un rayon de lumière blanche en jaillit et se transforma en crapaud tonnerre.
 
@@ -72,13 +72,13 @@ Wang Lin s'accroupit et dit doucement: « Petite Ru Er, viens ici. »
 
 Zhou Ru fit la moue et ignora Wang Lin, mais après une courte réflexion, elle frappa la tête du tigre et tira la langue à Wang Lin. « Mauvais oncle! Tu pars jouer tout seul sans emmener la petite Ru Er! »
 
-Wang Lin sourit. Zhou Ru devenait de plus en plus espiègle à mesure qu'elle grandissait, ce qui était l'exact opposé de Li Muwan. S'il n'avait pas pu sentir clairement la présence de Li Muwan en elle, il se serait demandé s'il ne s'était pas trompé de personne.
+Wang Lin sourit. Zhou Ru devenait de plus en plus espiègle à mesure qu'elle grandissait, ce qui était l'exact opposé de Li Muwan. S'il n'avait pas pu sentir clairement l'Âme Naissante de Li Muwan en elle, il se serait demandé s'il ne s'était pas trompé de personne.
 
 Ces dernières années, toutes les bêtes puissantes des montagnes environnantes avaient été malmenées par elle. Cependant, elle ne faisait que les taquiner sans jamais les blesser. En réalité, elle demandait souvent à Wang Lin d'aider certains animaux blessés.
 
 Chaque fois que Wang Lin regardait Zhou Ru, son cœur se serrait. Pour la garder auprès de lui, il avait privé l'enfant de sa jeunesse et des jeux avec d'autres enfants. Elle n'avait pour compagnons que ces bêtes sauvages. Était-il trop égoïste?
 
-Cependant, ces pensées ne furent que passagères avant qu'il ne les écarte. Il n'était pas un homme désintéressé, et il ne se sentait pas à l'aise de laisser Zhou Ru avec d'autres. Ce n'est qu'en la gardant près de lui pouvait-il être certain que rien ne tournerait mal.
+Cependant, ces pensées ne furent que passagères avant qu'il ne les écarte. Il n'était pas un homme désintéressé, et il ne se sentait pas à l'aise de laisser Zhou Ru avec d'autres. Ce n'est qu'en la gardant près de lui qu'il pouvait être certain que rien ne tournerait mal.
 
 Wang Lin sourit: « Ru Er, sois sage. Oncle ne part que pour quelques jours. À mon retour, je t'attraperai un tigre encore plus grand. »
 
@@ -104,7 +104,7 @@ Wang Lin ordonna au crapaud tonnerre de protéger Zhou Ru. En guise de réponse,
 
 Wang Lin faisait entièrement confiance au crapaud tonnerre. Parfois, la vie en était ainsi: les bêtes étaient plus dignes de confiance que les hommes.
 
-En plus de tout cela, Wang Lin disposait d'une ultime ligne de défense: son corps original. Avec sa présence ici, tous les dangers seraient écartés.
+En plus de tout cela, Wang Lin disposait d'une ultime ligne de défense: son corps original. Il se trouvait au plus profond du sol, sous la pagode, et avec sa présence ici, tous les dangers seraient écartés.
 
 C'était la véritable raison pour laquelle il se sentait en sécurité en laissant Zhou Ru. Cependant, à moins d'y être contraint, il ne voulait pas révéler son corps original. C'était son véritable atout, plus profondément caché que tout ce qu'il possédait.
 

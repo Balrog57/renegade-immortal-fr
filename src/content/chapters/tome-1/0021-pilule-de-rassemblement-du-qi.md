@@ -10,7 +10,7 @@ Le dernier homme était un homme d'environ vingt-huit ou vingt-neuf ans au visag
 
 En entendant cela, Wang Zhuo éclata d'un rire sonore. « Tu m'as vraiment fait peur un instant. C'est donc ainsi que tu as intégré la secte. Même une fois ici, tu n'atteindras probablement jamais le premier niveau de Condensation de Qi. Pourquoi venir ici pour ne faire qu'entacher le nom de la famille Wang? »
 
-« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est davantage. La culture consiste déjà à défier les lois célestes; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix qui semblait toucher les cœurs.
+« Frère apprenti Wang, ce que vous dites est erroné. Si le talent est important, la persévérance l'est davantage. La culture consiste déjà à défier les lois célestes; si l'on manque de détermination, le talent n'est plus qu'une vaine promesse », déclara la jeune fille nommée Zhou d'une voix douce et mélodieuse.
 
 Alors qu'elle faisait quelques pas vers Wang Zhuo, la jeune fille nommée Xu ajouta: « Ce que le frère Wang dit n'est pas totalement faux pour autant. Ce Wang Lin a l'air si stupide... Il ne ressemble absolument pas à un cultivateur. »
 
@@ -18,9 +18,9 @@ Wang Lin esquissa un sourire. Il comprenait que les relations entre ces personne
 
 Le rire de Wang Lin irrita profondément Wang Zhuo. Il renifla et lâcha: « Wang Lin, je te conseille pour ton propre bien de quitter la Secte Heng Yue. Si tu refuses, sache que si tu ne meurs pas, tu finiras certainement mutilé lors du concours des disciples à la fin de l'année. »
 
-Wang Lin avait appris par Sun Dazhu qu'un concours de disciples se tiendrait en fin d'année, dont le vainqueur obtiendrait un trésor magique. La compétition se divisait en deux niveaux: l'un où tous les disciples de la secte s'affrontaient pour atteindre le sommet, et l'autre où les nouveaux disciples luttaient pour devenir les rois des novices.
+Wang Lin avait appris par Sun Dazhu qu'un concours, semblable à un examen, se tenait chaque année en fin d'année entre les disciples intérieurs, et que les meilleurs obtenaient un trésor magique. La compétition se divisait en deux niveaux: l'un où tous les disciples intérieurs s'affrontaient pour décrocher les dix premières places, et l'autre où les disciples recrutés dans l'année luttaient pour devenir les rois des novices.
 
-Wang Lin rétorqua avec désinvolture: « Ne t'en fais pas. Pourquoi te soucier de la vie ou de la mort d'un moins que rien comme moi? »
+Wang Lin rétorqua avec désinvolture: « Ne te donne pas cette peine. Que je sois estropié ou mort, qu'est-ce que cela peut bien te faire? »
 
 Wang Zhuo eut un rire glacial. « Je m'en soucie parce que nous sommes parents. Puisque tu refuses mes bonnes intentions, ne me reproche pas de ne pas t'épargner lors du concours. » Ses yeux brillèrent d'une lueur glaciale en achevant sa phrase.
 
@@ -38,13 +38,13 @@ Wang Zhuo en eut les joues rouges. Il la fixa du regard, incertain de savoir si 
 
 En entendant ces paroles, Wang Lin éclata de rire. « Wang Zhuo, il semble que je t'aie mal jugé. Tu es donc bienveillant envers moi. Moi, Wang Lin, je m'en souviendrai. Merci. »
 
-Alors qu'il parlait, la porte de la maison des pilules s'ouvrit. Un jeune homme au visage radieux en sortit: c'était Wang Hao.
+Alors qu'il parlait, la porte de la maison des pilules s'ouvrit. Un garçon robuste à l'air éveillé, vêtu d'une courte tunique, en sortit: c'était Wang Hao.
 
-Il toussa pour attirer l'attention de l'assemblée et dit d'un air souriant: « Les Pilules de Rassemblement du Qi sont encore dans le fourneau aujourd'hui. Une fois qu'elles seront prêtes, je vous ferai entrer un par un. »
+Il toussa bruyamment pour attirer l'attention de l'assemblée et dit d'un air satisfait de lui-même: « Les Pilules de Rassemblement du Qi sont encore dans le fourneau aujourd'hui. Attendez un peu: quand mon maître aura fini de les raffiner, je vous ferai entrer un par un. »
 
 Wang Zhuo fixa Wang Hao en serrant les dents, mais il ne pouvait se permettre de l'offenser pour le moment. Wang Hao était l'assistant du troisième Grand Frère Apprenti et gérait les affaires quotidiennes de la maison des pilules. Si Wang Hao se plaignait au troisième Grand Frère Apprenti, la dotation mensuelle de Wang Zhuo en serait considérablement réduite.
 
-Après avoir fini de parler, Wang Hao scruta les environs et fut surpris de voir Wang Lin. Il le tira sur le côté et lui dit: « Grand frère Tie Zhu, félicitations pour ton accession au rang de disciple intérieur. J'ai entendu parler de ce qui s'est passé. Je voulais venir te parler, mais les règles ici sont trop strictes. Je n'apprécie pas ce que les autres disent de toi. Une fois que tu maîtriseras quelques techniques, tu pourras te venger de tous ceux qui t'ont méprisé. »
+Après avoir fini de parler, Wang Hao scruta les environs et eut la joyeuse surprise d'apercevoir Wang Lin. Il le tira sur le côté et lui dit: « Grand frère Tie Zhu, félicitations pour ton accession au rang de disciple intérieur. J'ai entendu parler de ce qui s'est passé. Je voulais venir te parler, mais les règles ici sont trop strictes et on ne peut pas sortir facilement. Ne prête pas attention à ce que disent les autres. Une fois que tu auras maîtrisé les arts immortels, tu montreras à tous ceux qui t'ont méprisé de quoi tu es capable. »
 
 Le cœur de Wang Lin se réchauffa et il sourit: « Wang Hao, merci. »
 
@@ -68,6 +68,6 @@ Le temps s'écoula lentement et le ciel s'assombrit. Alors que la lune s'élevai
 
 Sur le plateau reposaient cinq fragments de pierre spirituelle de faible qualité et cinq pilules transparentes.
 
-Chacun sortit un par un après avoir reçu sa part. Wang Lin fut le dernier. Il sourit, joignit les mains en signe de respect envers Wang Hao, puis partit.
+Chacun s'avança à tour de rôle pour recevoir sa part. Wang Lin fut le dernier. Après avoir pris la sienne, il sourit, joignit les mains en signe de respect envers Wang Hao, puis partit.
 
 Il garda précieusement dans son cœur la bonté de Wang Hao: les trois pilules que ce dernier lui avait données étaient des Pilules de Rassemblement du Qi.

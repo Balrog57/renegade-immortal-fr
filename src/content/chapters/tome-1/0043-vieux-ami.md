@@ -24,15 +24,15 @@ Mais le mille-pattes devant lui était tout simplement trop colossal, et Wang Li
 
 Soudain, Wang Lin se remémora une méthode ancestrale pour obtenir du venin de mille-pattes: fabriquer une pilule que l'on donnait à manger à la créature. Une fois la pilule consommée, le mille-pattes recrachait son poison.
 
-Après réflexion, il fixa le monstre et se dirigea vers la maison des pilules. C'est là que se trouvaient les matériaux les plus précieux de la secte. De plus, il n'avait pas vu Wang Hao depuis quatre ans; ce serait l'occasion de prendre de ses nouvelles.
+Après réflexion, il fixa le monstre et se dirigea vers la maison des pilules. C'est là que se trouvaient les plantes médicinales les plus complètes de la secte. De plus, il n'avait pas vu Wang Hao depuis quatre ans; ce serait l'occasion de prendre de ses nouvelles.
 
 L'obscurité tombait déjà lorsque Wang Lin atteignit la maison des pilules et aperçut Wang Hao sortir prudemment par la porte latérale. En voyant Wang Lin, Wang Hao lui fit signe de se taire et de le suivre dehors.
 
-Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le troisième frère aîné contemplait le fourneau avec une expression grave.
+Wang Lin fut stupéfait. Il déploya son Sens Divin et découvrit que le troisième frère aîné jetait sans relâche diverses drogues dans le fourneau, avec une expression grave et concentrée.
 
 Après avoir marché un moment, Wang Hao s'aperçut que Wang Lin l'avait silencieusement suivi. Il saisit Wang Lin et s'enfuit en courant. Ce n'est qu'après avoir parcouru une certaine distance qu'il put enfin reprendre son souffle.
 
-Essoufflé, Wang Hao lança un regard méfiant vers la maison des pilules avant de demander avec une lueur d'espoir: « Wang Lin, j'ai entendu dire que tu avais suivi l'entraînement intensif il y a quatre ans. À quel niveau es-tu maintenant? »
+Essoufflé, Wang Hao demanda vivement, avec une pointe de fierté: « Wang Lin, j'ai entendu dire que tu avais suivi l'entraînement intensif il y a quatre ans. À quel niveau es-tu maintenant? »
 
 « Le troisième niveau... Tiens? » Wang Lin scanna Wang Hao avec son Sens Divin et constata que celui-ci était déjà au premier niveau, mais l'énergie spirituelle dans son corps était très étrange. L'énergie ne circulait pas normalement, elle suivait un chemin aberrant.
 

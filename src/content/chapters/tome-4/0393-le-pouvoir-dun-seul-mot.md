@@ -8,37 +8,37 @@ slug: le-pouvoir-dun-seul-mot
 ---
 Le regard de Wang Lin devint glacial. Il pointa du doigt son front et la perle défiant le ciel apparut.
 
-Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée à l'Ancien du mont Suzaku après son combat contre Papillon Rouge.
+Ses yeux s'illuminèrent et il frappa son sac de rangement, faisant apparaître un cristal de la taille d'un poing, scintillant d'une lueur verte. C'était la moitié de l'esprit de bois que Wang Lin avait dérobée sous le nez de l'Ancien du mont Suzaku pendant son combat contre Papillon Rouge.
 
 « Métal, bois, eau, feu et terre; la perle défiant le ciel ne manque plus que du métal et de la moitié de l'élément bois. Selon ce que Situ Nan a dit, une fois que les cinq éléments seront complets, elle pourra reconnaître un maître. Ce jour arrivera bientôt. » Wang Lin approcha le cristal d'élément bois vers la perle.
 
-Au moment où les deux se touchèrent, le cristal de bois disparut dans la perle défiant le ciel. Les feuilles de la perle commencèrent à s'agiter et à s'ouvrir une à une jusqu'à ce qu'elle atteigne sa complétion.
+Au moment où les deux se touchèrent, le cristal de bois disparut dans la perle défiant le ciel. Les motifs de feuilles de la perle se mirent à changer étrangement et à s'épanouir une à une jusqu'à ce qu'elle atteigne sa complétion.
 
-« Désormais, il ne me manque que l'élément métal! » Les yeux de Wang Lin étincelèrent alors qu'il tournait son regard vers Xue Yue. « L'élément métal peut attendre. Li Yuanfeng, je suis là! »
+« Désormais, il ne me manque que l'élément métal! » Les yeux de Wang Lin étincelèrent alors qu'il tournait son regard vers Xue Yu. « L'élément métal peut attendre. Li Yuanfeng, je suis là! »
 
-Il rangea la perle défiant le ciel, se posa sur la grenouille tonnerre et éclata de rire. « Vieux ami, allons-y! »
+Il rangea la perle défiant le ciel, se posa sur la crapaud tonnerre et éclata de rire. « Vieux ami, allons-y! »
 
-La grenouille tonnerre poussa un rugissement joyeux et frappa le sol, le faisant éclater. Elle s'élança vers le ciel telle une météorite.
+La crapaud tonnerre poussa un rugissement joyeux et frappa le sol, le faisant éclater. Elle s'élança vers le ciel telle une météorite.
 
-Wang Lin laissa échapper un rire et frappa son sac de rangement. Le moustique apparut en poussant un rugissement, puis sa bouche acérée se projeta vers la grenouille tonnerre.
+Wang Lin laissa échapper un rire et frappa son sac de rangement. Le moustique apparut en poussant un rugissement, puis sa bouche acérée se projeta vers la crapaud tonnerre.
 
-La grenouille tonnerre roula des yeux. Sa langue jaillit comme l'éclair et commença à jouer avec le moustique.
+La crapaud tonnerre roula des yeux. Sa langue jaillit comme l'éclair et commença à jouer avec le moustique.
 
-Assis sur le dos de la grenouille tonnerre, Wang Lin souriait en regardant les deux bêtes s'amuser. Il se tourna ensuite vers Xue Yue. Bien que son sourire soit toujours présent, il contenait désormais une pointe de froideur.
+Assis sur le dos de la crapaud tonnerre, Wang Lin souriait en regardant les deux bêtes s'amuser. Il se tourna ensuite vers Xue Yu. Bien que son sourire soit toujours présent, il contenait désormais une pointe de froideur.
 
-Xue Yue.
+Xue Yu.
 
 La terre autrefois verdoyante de l'Alliance des Quatre Sectes était maintenant entièrement blanche; elle s'était transformée en un champ de neige.
 
 Le soleil se reflétait sur la neige, créant un éblouissement puissant. Si l'on regardait trop longtemps, les yeux se rempliraient de larmes de douleur ou l'on risquait même de perdre la vue.
 
-Les mortels vivant à Xue Yue avaient leurs propres moyens de protéger leurs yeux. Après que Xue Yue fut devenu un pays de culture de rang 5, le monde mortel était naturellement devenu plus prospère.
+Les mortels vivant à Xue Yu avaient leurs propres moyens de protéger leurs yeux. Après que Xue Yu fut devenu un pays de culture de rang 5, le monde mortel était naturellement devenu plus prospère.
 
-Au centre de Xue Yue se dressait un palais de glace.
+Au centre de Xue Yu se dressait un palais de glace.
 
-C'était l'endroit le plus sacré de Xue Yue; c'est là que le seul cultivateur de Transformation de l'Âme du pays, Li Yuanfeng, pratiquait sa culture toute l'année.
+C'était l'endroit le plus sacré de Xue Yu; c'est là que le seul cultivateur de Transformation de l'Âme du pays, Li Yuanfeng, pratiquait sa culture toute l'année.
 
-Après avoir été blessé par la foudre de Sun Tai, il se remettait lentement. Il avait en effet atteint le stade de la Transformation de l'Âme par la force; c'était déjà une grande chance qu'il n'y ait pas laissé la vie.
+Après avoir été blessé par la foudre immortelle de Sun Tai, il se remettait lentement. Il avait en effet atteint le stade de la Transformation de l'Âme par la force et sa culture était instable; c'était déjà une grande chance que son royaume n'ait pas régressé.
 
 Plusieurs énormes blocs de glace l'entouraient, chacun émettant une énergie spirituelle céleste.
 
@@ -52,13 +52,13 @@ Après tout, il avait été blessé en tentant de tuer Ceng Niu, et tout cela po
 
 Il avait passé ces deux années à tenter de soigner ses blessures. Selon ses calculs, il lui faudrait encore une année pour s'en remettre complètement.
 
-Ce jour-là, aux confins de Xue Yue, une silhouette blanche pénétra lentement dans le pays. Il regarda Xue Yue d'un air nostalgique.
+Ce jour-là, aux confins de Xue Yu, une silhouette blanche pénétra lentement dans le pays. Il regarda Xue Yu d'un air nostalgique.
 
 « L'Alliance des Quatre Sectes... » Wang Lin laissa échapper un soupir et disparut au loin.
 
-La capitale de Xue Yue se trouvait là où siégeait autrefois la capitale de l'Alliance des Quatre Sectes. Dans cette ville, une rue contenait des décennies de souvenirs pour Wang Lin.
+La capitale de Xue Yu se trouvait là où siégeait autrefois la capitale de l'Alliance des Quatre Sectes. Dans cette ville, une rue contenait des décennies de souvenirs pour Wang Lin.
 
-En ce jour, sur cette même rue, Wang Lin apparut. En contemplant ce passage familier, il ne put s'empêcher de penser à la famille de Da Niu.
+En ce jour, sur cette même rue, Wang Lin apparut. En contemplant ce passage familier, il ne put s'empêcher de penser aux trois générations de père en fils de la famille de Da Niu.
 
 Après un long moment, ses yeux emplis de mélancolie, il repartit.
 
@@ -76,7 +76,7 @@ Deux années ne sont rien pour les cultivateurs. Réussir une telle progression 
 
 À cet instant précis, trois personnes apparurent entre Li Yuanfeng et Wang Lin. C'étaient tous des êtres très âgés: deux hommes et une femme.
 
-L'un des Anciens s'écria: « Tu as beaucoup de cran pour oser envahir le Palais de la Neige et de la Glace de mon Xue Yue! »
+L'un des Anciens s'écria: « Tu as beaucoup de cran pour oser envahir le Palais de la Neige et de la Glace de mon Xue Yu! »
 
 « Ceng Niu! » Les yeux de la vieille femme devinrent froids alors qu'elle fixait Wang Lin.
 
@@ -114,7 +114,7 @@ Wang Lin laissa échapper un ricanement et envoya un coup de poing contre les bl
 
 Bang! Bang!
 
-Une série d'explosions fracassantes résonna à travers tout Xue Yue.
+Une série d'explosions fracassantes résonna à travers tout Xue Yu.
 
 Les blocs de glace protégeant Li Yuanfeng se fissurèrent avant de voler en éclats. La puissante onde de choc provoqua également l'effondrement du reste du palais.
 
@@ -132,7 +132,7 @@ La marque descendant du ciel s'effondra instantanément, et l'onde de choc forç
 
 Wang Lin recula de trois pas. Chaque pas provoquait d'innombrables fissures dans le sol.
 
-Le combat entre les deux avait attiré l'attention de tout Xue Yue. Hormis le vieillard mort et les deux autres, les dix-sept survivants de la Formation de l'Âme se téléportaient frénétiquement vers le palais.
+Le combat entre les deux avait attiré l'attention de tout Xue Yu. Hormis le vieillard mort et les deux autres, les dix-sept survivants de la Formation de l'Âme se téléportaient frénétiquement vers le palais.
 
 Pour eux, Li Yuanfeng était le maître de secte de tout le pays. Tant qu'il vivait, ils étaient un pays de culture de rang 5. S'il mourait, ils ne pourraient pas produire d'autre cultivateur de Transformation de l'Âme de sitôt, ce qui signifierait inévitablement la chute du rang de leur nation.
 
@@ -158,6 +158,6 @@ Le pouvoir d'un seul mot!
 
 Wang Lin prit une profonde inspiration. La fusion de son corps original et de son avatar avait provoqué une mutation étrange, sans précédent.
 
-Lui, à cet instant, pouvait être considéré comme un dieu ancien à trois étoiles possédant une culture au stade intermédiaire de la Formation de l'Âme et contrôlant le domaine de la vie et de la mort. Ou bien, il pouvait être vu comme un cultivateur du stade intermédiaire de la Formation de l'Âme maîtrisant le domaine de la vie et de la mort tout en arborant le corps d'un dieu ancien à trois étoiles.
+Lui, à cet instant, pouvait être considéré comme un dieu ancien à trois étoiles possédant une culture au stade avancé de la Formation de l'Âme et contrôlant le domaine de la vie et de la mort. Ou bien, il pouvait être vu comme un cultivateur du stade avancé de la Formation de l'Âme maîtrisant le domaine de la vie et de la mort tout en arborant le corps d'un dieu ancien à trois étoiles.
 
 L'expression de Li Yuanfeng était extrêmement disgracieuse. Il fixa Wang Lin et, pour la première fois, le considéra véritablement comme son ennemi. Le pouvoir du mot que Wang Lin venait de prononcer n'était pas moins redoutable que celui d'un cultivateur de Transformation de l'Âme.

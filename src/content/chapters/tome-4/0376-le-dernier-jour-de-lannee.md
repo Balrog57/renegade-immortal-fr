@@ -10,7 +10,7 @@ Un rayon de lumière verte filait au-dessus de la partie orientale de la planèt
 
 Il était dans un état lamentable; trois marques de coups de poing marquaient son âme originelle, chacune émettant une lueur argentée.
 
-Cet individu était l'ancêtre du Clan des Démons Géants. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir en utilisant son âme originelle. Il n'avait même pas eu le temps de se soucier du sort de Wang Lin.
+Cet individu était l'ancêtre du Clan des Démons Géants. Gravement blessé par l'enfant démon de Sun Tai, il avait dû s'enfuir sous forme d'âme originelle, emportant son sac de rangement. Il n'avait même pas eu le temps de se soucier du sort de Wang Lin.
 
 Mais cet enfant démon était bien étrange; il ne prononçait jamais un mot et se contentait de le traquer sans relâche. Au cours des derniers mois, ils avaient presque fait le tour complet de la planète.
 
@@ -42,7 +42,7 @@ Xu Liguo afficha aussitôt un sourire mielleux et répondit: « Votre grand-pèr
 
 L'ancêtre fixa Xu Liguo du regard.
 
-Xu Liguo changea promptement d'expression et déclara: « Comment ces serviles esprits d'épée pourraient-ils se comparer à moi? Un homme sage sait quel maître suivre! »
+Xu Liguo se gifla aussitôt et déclara prudemment: « Comment ces esprits d'épée pourraient-ils se comparer à votre serviteur? Un homme sage sait quel maître suivre! »
 
 L'ancêtre du Clan des Démons Géants regarda Xu Liguo, puis lui projeta un rayon de lumière verte. Xu Liguo se mit immédiatement à hurler de douleur tout en dénigrant Wang Lin.
 
@@ -54,7 +54,7 @@ Le vieil homme fut très surpris, mais il ne le laissa paraître. Il décida d'a
 
 Xu Liguo afficha immédiatement un air reconnaissant. Il se tapota la poitrine et dit: « Monseigneur, ne vous inquiétez pas; j'ai toujours été loyal. Ce Wang Lin m'a maltraité, alors je me suis rebellé contre lui, mais monseigneur me traite si bien que je n'oserais jamais vous trahir. C'est mon serment: si je le romps, que dix mille démons percent mon cœur! »
 
-En voyant cela, l'humeur de l'ancêtre s'améliora. Xu Liguo poussa un soupir de soulagement et pensa secrètement: « Il semble que votre grand-père Xu Liguo soit un homme avisé. J'ignore quand ce démon viendra me sauver, je dois donc résister. Je vais d'abord me soumettre, puis je me vengerai de ce vieil homme plus tard. Moi, Xu Liguo, suis très loyal. Ce démon a été bon avec moi, comment pourrais-je le trahir? »
+En voyant cela, l'humeur de l'ancêtre s'améliora. Xu Liguo poussa un soupir de soulagement et pensa secrètement: « Il semble que votre grand-père Xu Liguo soit un homme avisé. J'ignore quand ce démon viendra me sauver, je ne dois donc pas faire le têtu. Je vais d'abord me soumettre, puis je me vengerai de ce vieil homme plus tard. Moi, Xu Liguo, suis très loyal. Ce démon a été bon avec moi, comment pourrais-je le trahir? »
 
 Les yeux de l'ancêtre s'illuminèrent. Il avait initialement voulu anéantir cet esprit d'épée pour le remplacer par le sien. Cependant, sans l'esprit originel, il ne pourrait pas utiliser toute la puissance de l'arme.
 
@@ -126,6 +126,6 @@ Ce dernier jour de l'année représentait la chute de Wang Lin, mais demain, le 
 
 Wang Lin chuchota: « C'est passé... »
 
-À cet instant, la silhouette magnifique d'une jeune fille vola lentement vers la Secte de l'Affinement de l'Âme dans la lumière du couchant.
+À cet instant, la silhouette gracieuse d'une femme vola lentement vers la Secte de l'Affinement de l'Âme dans la lumière du couchant.
 
 Le regard de Wang Lin se fixa intensément. « Cette personne... me semble familière... »

@@ -70,9 +70,9 @@ Un homme robuste vêtu de violet et portant un chapeau de paille marchait dans s
 
 Sa voix précéda son corps: « Dame Liu Mei, votre adversaire, c'est moi! »
 
-La femme en robe violette regarda l'homme corpulent et murmura: « Posséder le chapeau de paille de l'Oncle Martial Yunque signifie que vous êtes l'un des quatre candidats qu'il a choisis. Cependant, avec votre simple culture au stade intermédiaire de la Formation de l'Âme, vous ne pourrez pas m'arrêter. »
+La femme en robe violette regarda l'homme corpulent et murmura: « Posséder le chapeau de paille de l'Oncle Martial Yun Quezi signifie que vous êtes l'un des quatre candidats qu'il a choisis. Cependant, avec votre simple culture au stade intermédiaire de la Formation de l'Âme, vous ne pourrez pas m'arrêter. »
 
-L'homme robuste éclata de rire: « La culture de Dame Liu Mei est bien trop élevée pour moi, mais je ne peux ignorer les ordres du Senior Yunque. Que diriez-vous de partager un verre avec moi? Ainsi, je pourrai partir en disant que je n'ai pas désobéi aux ordres. »
+L'homme robuste éclata de rire: « La culture de Dame Liu Mei est bien trop élevée pour moi, mais je ne peux ignorer les ordres du Senior Yun Quezi. Que diriez-vous de partager un verre avec moi? Ainsi, je pourrai partir en disant que je n'ai pas désobéi aux ordres. »
 
 La femme ramena une mèche de cheveux derrière son oreille et esquissa un sourire magnifique. « Vous êtes une personne intéressante, mais vous devrez attendre que j'aie d'abord secouru l'ancêtre du Clan des Démons Géants; alors seulement, je boirai avec vous. »
 
@@ -86,7 +86,7 @@ La femme en robe violette marqua une nouvelle pause et fixa l'homme. Sous sa bea
 
 « Pour comprendre l'émotion entre maître et disciple, vous avez créé un concept à partir de votre intention, puis utilisé ce concept pour accepter un disciple. Aimer le disciple comme votre propre fils, lui témoigner de la bonté pour obtenir sa gratitude, et utiliser la tragédie pour atteindre le stade de la Formation de l'Âme. Tout ce que vous avez fait visait à vous immerger totalement dans cette relation maître-disciple. »
 
-« Le jour où il comprendra enfin son propre domaine et sera sur le point de franchir le stade de la Formation de l'Âme, ce sera le jour où il devra tuer son propre disciple. Non seulement il doit tuer le disciple qu'il aime comme un fils, mais il ne peut lui accorder une mort rapide; il doit le faire souffrir lentement. Ce n'est que ainsi que la douleur dans son propre cœur pourra croître assez pour utiliser cette tristesse afin d'atteindre la Formation de l'Âme. »
+« Le jour où il comprendra enfin son propre domaine et sera sur le point de franchir le stade de la Formation de l'Âme, ce sera le jour où il devra tuer son propre disciple. Non seulement il doit tuer le disciple qu'il aime comme un fils, mais il ne peut lui accorder une mort rapide; il doit le faire souffrir lentement. Ce n'est qu'ainsi que la douleur dans son propre cœur pourra croître assez pour utiliser cette tristesse afin d'atteindre la Formation de l'Âme. »
 
 « Cela semble empreint d'émotion, et pourtant c'est impitoyable, bien qu'une trace de sentiment y subsiste encore. Atteindre le stade de la Formation de l'Âme de cette manière n'est certainement pas chose aisée pour un être ordinaire. »
 
@@ -106,7 +106,7 @@ L'ancêtre du Clan des Démons Géants tenait cet éclair, mais comparé à lui,
 
 L'éclair rouge devint la seule chose visible dans le ciel. En descendant, l'ombre de la hache rouge se dessina au cœur de la foudre.
 
-Wang Lin observa l'éclair rouge qui fonçait sur lui. Ses yeux étaient calmes alors qu'il pointa l'arme vers l'avant et ordonna: « Drapeau d'âme, dévore! »
+Wang Lin observa l'éclair rouge qui fonçait sur lui. Ses yeux étaient calmes alors qu'il pointa du doigt vers l'avant et ordonna: « Drapeau d'âme, dévore! »
 
 Les milliards de fragments d'âmes s'élancèrent. Tandis que l'éclair rouge descendait, les douze fragments d'âme or violacé chargèrent à leur tour. Ils étaient aussi puissants que douze cultivateurs au stade de la Transformation de l'Âme. Leurs mains formèrent des sceaux alors qu'ils unissaient leurs forces pour activer un sortilège.
 

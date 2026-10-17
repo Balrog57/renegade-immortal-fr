@@ -48,13 +48,13 @@ Zhou Wutai ne se retourna même pas et ricana: « Avec votre niveau de culture �
 
 Un autre homme vêtu de noir dit calmement: « Pas nécessairement. Bien que nous ne soyons qu'au stade avancé de l'Âme Naissante, si nous utilisons une formation, à moins qu'il ne soit au stade de la Formation de l'Âme, il mourra. »
 
-Zhou Wutai eut un ricanement méprisant. Il agita ses manches et répondit: « Si vous voulez y aller, allez-y. Je ne vous en empêcherai pas. Mais cet homme possède une gravure des trois maîtres oncles, il doit donc cacher quelque chose de plus. Je ne cherche pas la mort. »
+Zhou Wutai eut un ricanement méprisant. Il agita ses manches et répondit: « Si vous voulez y aller, allez-y. Je ne vous en empêcherai pas. Mais cet homme possède les sculptures des trois anciens de la Secte des Nuages Blancs, surtout celle de l'Oncle-Maître Qing Song, il doit donc cacher quelque chose de plus. Je ne cherche pas la mort. »
 
 Les quatre hommes en noir réfléchirent un instant. Ils échangèrent un regard, puis se dirigèrent vers la boutique de Wang Lin sans dire un mot.
 
 Le sourire sur le visage de Zhou Wutai devint plus glacial encore. Il s'arrêta et se retourna, impatient de voir comment ces quatre arrogants tenteraient de vaincre un homme qui approchait du stade de la Formation de l'Âme.
 
-Ils pensaient que si Wang Lin voulait fuir, rien ne garantirait qu'ils puissent l'en empêcher. Leur raisonnement était le suivant: inutile de se créer des ennuis pour l'avenir.
+Ils ne réfléchissaient même pas que, si Wang Lin voulait fuir, ils n'avaient aucune certitude absolue de pouvoir le retenir; s'attirer ainsi des ennuis pour l'avenir sans raison était imprudent.
 
 Alors qu'ils s'élançaient rapidement vers la boutique, leur intention meurtrière s'intensifia brusquement.
 
@@ -84,7 +84,7 @@ Profitant de ce délai, le corps de Wang Lin bougea de manière étrange et éch
 
 Mais quand elle est dégainée, elle tue!
 
-Sa main droite bougea d'un mouvement qui semblait lent, mais qui fut en réalité fulgurant. Il pointa la tête de l'homme. Après un craquement sinistre, celui-ci cracha une bouchée de sang et mourut instantanément. Son Âme Naissante s'en échappa, tentant de fuir avec un visage terrifié.
+Sa main droite bougea d'un mouvement qui semblait lent, mais qui fut en réalité fulgurant. Il la plaqua sur la tête de l'homme. Après un craquement sinistre, celui-ci cracha une bouchée de sang et mourut instantanément. Son Âme Naissante s'en échappa, tentant de fuir avec un visage terrifié.
 
 Wang Lin ne daigna même pas un regard à la fuite; il se retourna et poussa un rugissement silencieux. Sous l'effet de ce cri, une fumée noire apparut au-dessus de sa tête. Sa forme de dévoreur d'âmes jaillit et engloutit immédiatement l'Âme Naissante qui tentait de s'enfuir.
 
@@ -100,7 +100,7 @@ Inconsciemment, il se mordit la langue et cracha du sang. Le sang toucha son par
 
 Les deux autres lancèrent également leurs trésors. Ils ignoraient qu'une épée froide ne sort pas facilement de son fourreau, mais qu'une fois sortie, elle tuera, puis continuera de tuer.
 
-Une pointe de dérision apparut dans les yeux de Wang Lin. Il ne daigna même pas regarder le serpent doré. Au lieu de cela, il frappa son sac de rangement et un petit drapeau apparut dans sa main. Soudain, le drapeau recouvrit la zone d'une fumée noire. Des dizaines de dragons de fumée surgirent et pulvérisèrent le serpent doré en mille morceaux.
+Une pointe de dérision apparut dans les yeux de Wang Lin. Il ne daigna même pas regarder le serpent doré. Au lieu de cela, il frappa son sac de rangement et un petit drapeau apparut dans sa main. Soudain, le drapeau recouvrit la zone d'une fumée noire. Des dizaines de traits d'énergie de restriction noire surgirent de la fumée et pulvérisèrent le serpent doré en mille morceaux.
 
 À cet instant, la neige s'écarta encore davantage, n'osant plus approcher. Simultanément, Wang Lin avança avec une douceur mortelle. Il atteignit rapidement l'homme au parapluie. Sa main droite saisit déjà la gorge de l'individu et, d'une pression ferme, lui brisa le cou.
 

@@ -10,7 +10,7 @@ Wang Lin volait à basse altitude près du fond de la mer, un drapeau à la main
 
 Après avoir discuté avec Sang Muya, Wang Lin apprit que tout ce qui se trouvait dans un rayon d'un million de kilomètres était considéré comme la périphérie extérieure de la Mer des Démons. D'innombrables sectes, grandes et petites, peuplaient cette zone, et la Secte de la Lutte contre le Mal en faisait partie.
 
-Le cultivateur au niveau le plus élevé de la secte était son chef, Liu Sen, l'ancêtre de Sang Muya. Il se situait au sommet du stade intermédiaire de la Formation du Noyau et jouissait d'une certaine renommée dans la région.
+Le cultivateur au niveau le plus élevé de la secte était son chef, Liu Sen, le grand-maître de Sang Muya. Il se situait au sommet du stade intermédiaire de la Formation du Noyau et jouissait d'une certaine renommée dans la région.
 
 La périphérie extérieure de la Mer des Démons manquait cruellement de ressources et ne possédait que très peu de veines spirituelles. On n'y trouvait que de rares cultivateurs de l'Âme Naissante, car beaucoup refusaient de s'installer dans cette zone; la plupart résidaient dans la section centrale de la Mer des Démons.
 
@@ -18,7 +18,7 @@ En plus de cela, Wang Lin apprit qu'il n'y avait aucune ossature de bête spirit
 
 Toutefois, Wang Lin parvint à obtenir des informations utiles. Au sein de la périphérie extérieure de la Mer des Démons existaient trois zones dangereuses. L'une d'elles, la Vallée des Cadavres, regorgeait d'ossements de bêtes. Si les sectes voisines avaient besoin de tels matériaux, elles s'y rendaient.
 
-La chose étrange était que, de temps à autre, les cadavres de nouvelles bêtes spirituelles apparaissaient dans la Vallée des Cadavres. Certaines de ces créatures étaient extrêmement puissantes de leur vivant. Personne n'expliquait comment elles apparaissaient là, et encore moins comment elles mouraient au sein de la vallée.
+La chose étrange était que, de temps à autre, les cadavres de nouvelles bêtes spirituelles apparaissaient dans la Vallée des Cadavres. Certaines de ces créatures étaient extrêmement puissantes de leur vivant et n'auraient jamais pu venir jusqu'ici, sans parler de la raison pour laquelle elles mouraient au sein de la vallée.
 
 Bien que la Vallée des Cadavres fût mystérieuse, tant que l'on ne pénétrait pas dans sa partie centrale, rien de dangereux ne se produisait généralement.
 
@@ -32,7 +32,7 @@ C'était la Vallée des Cadavres.
 
 Le brouillard y était très ténu et n'affectait pas la visibilité. Cependant, en pénétrant dans la vallée, Wang Lin sentit une énergie Yin dont la qualité différait radicalement de celle de l'extérieur.
 
-Wang Lin forma immédiatement un sceau et commença à incanter; des éclats de lumière se rassemblèrent devant lui pour former une sphère de lumière blanche. Aussitôt apparue, elle commença à changer de couleur jusqu'à ce qu'elle se stabilise dans une teinte bleue.
+Wang Lin forma immédiatement un sceau et commença à incanter; des points de lumière rouges se rassemblèrent devant lui pour former une sphère de lumière blanche. Aussitôt apparue, elle commença à changer de couleur jusqu'à ce qu'elle se stabilise dans une teinte bleue.
 
 Les yeux de Wang Lin s'illuminèrent. C'était la technique permettant de déterminer le type d'énergie Yin de la zone. Selon la couleur de la sphère, il saurait de laquelle des quatre énergies Yin il s'agissait: violet, bleu, argent ou rouge, représentant respectivement le Yin céleste, terrestre, mystérieux et jaune.
 
@@ -42,7 +42,7 @@ Wang Lin prit une profonde inspiration et pointa l'avant. La sphère de lumière
 
 Le Sens Divin de Wang Lin détecta plusieurs cultivateurs à l'intérieur de la Vallée des Cadavres, mais tous étaient concentrés sur la recherche d'ossements. Même s'ils se croisaient, ils se contentaient d'un signe de tête en passant.
 
-Wang Lin réfléchit un instant. Il n'y avait pas qu'une seule Vallée des Cadavres, mais d'innombrables vallées de tailles diverses. Il y avait moins de cultivateurs dans les profondeurs, ce qui signifiait qu'il y avait plus de chances d'y trouver des ossements.
+Wang Lin réfléchit un instant. Il n'y avait pas qu'une seule Vallée des Cadavres, mais d'innombrables vallées de tailles diverses. Plus on s'enfonçait, moins il y avait de cultivateurs et plus il y avait d'ossements.
 
 Après avoir traversé neuf vallées, les restes de bêtes devinrent bien plus nombreux. Certains étaient d'une taille terrifiante, occupant la majeure partie de l'espace.
 
@@ -56,7 +56,7 @@ Wang Lin ricana intérieurement en balayant les environs de son Sens Divin du Ro
 
 Après avoir réfléchi un moment, il collecta nonchalamment quelques ossements avant de passer à la dixième vallée. Lorsqu'il atteignit la treizième, la sphère de lumière se divisa en deux.
 
-Les yeux de Wang Lin brillèrent. Il comprit que cela signifiait que la qualité de l'énergie Yin avait dépassé le rang 10 ordinaire pour entrer dans le rang 1 de grande qualité. Des ondes Yin émanaient de la quatorzième vallée. Wang Lin sentit son corps se raidir.
+Les yeux de Wang Lin brillèrent. Il comprit que cela signifiait que la qualité de l'énergie Yin avait dépassé le rang 10 ordinaire pour entrer dans le rang 1 de grande qualité. Des vagues de froid émanaient de la quatorzième vallée. Wang Lin sentit son corps se raidir.
 
 Il regarda autour de lui et soupira. En vérité, c'était l'endroit idéal pour une culture en isolement. Cependant, bien que le lieu parût calme, s'il était considéré comme l'une des trois zones dangereuses, il devait receler des périls. Wang Lin n'osait pas s'immerger dans une culture de longue durée, quelles que soient les conditions. Tant qu'il ne comprendrait pas pleinement cet endroit, il n'y resterait pas plus longtemps que nécessaire.
 
@@ -72,7 +72,7 @@ Alors qu'il s'apprêtait à partir, un rugissement retentit au loin et un dragon
 
 L'expression de Wang Lin changea; il recula de quelques pas pour s'enfoncer sous terre. Son Sens Divin se déploya et se verrouilla sur le dragon géant.
 
-Le corps du dragon était colossal. À chacun de ses mouvements, il dégageait d'immenses rafales de vent. D'un seul bond, il franchit treize vallées pour pénétrer dans la quatorzième.
+Le corps du dragon était colossal. À chacun de ses mouvements, le vent et le tonnerre se déchaînaient tout autour. D'un seul bond, il franchit treize vallées pour pénétrer dans la quatorzième.
 
 Alors que le dragon passait au-dessus de Wang Lin, une quantité massive de sang frais tomba du ciel. Wang Lin leva les yeux et vit une plaie béante sur l'abdomen de la créature. La blessure couvrait près de la moitié de la longueur du corps.
 
@@ -82,7 +82,7 @@ Le dragon s'arrêta au-dessus de la quatorzième vallée, semblant indifférent 
 
 Les ossements des autres vallées furent réduits en poussière et repoussés par les ondes de choc.
 
-Wang Lin sentit que trois pieds de terre étaient arrachés au sol. Il était extrêmement stupéfait: ce dragon était probablement plus puissant qu'un cultivateur de l'Âme Naissante.
+Même enfoui sous terre, Wang Lin sentit que trois pieds de terre étaient arrachés au sol. Il était extrêmement stupéfait: ce dragon était probablement plus puissant qu'un cultivateur de l'Âme Naissante.
 
 Le rugissement dura une demi-heure avant que le regard du dragon ne s'éteigne. Utilisant ses dernières forces, il se fracassa contre la glace bleue du sol et s'y enfonça.
 
@@ -102,7 +102,7 @@ Habitués aux lieux, ils voyaient parfois des bêtes spirituelles mourir dans la
 
 Ils n'en avaient jamais entendu parler, et encore moins vu l'acte; pourtant, cet homme ne s'était pas contenté de le faire, il transportait un cadavre de dragon intact!
 
-Un corps complet qui ne pourrissait pas! À cet instant, la plupart des cultivateurs perdirent toute raison, leurs visages se muant en masques de cupidité.
+Un corps complet, pas encore pourri! À cet instant, la plupart des cultivateurs perdirent toute raison, leurs yeux rougeoyant de cupidité.
 
 Wang Lin sentit d'innombrables regards peser sur lui. Il laissa échapper un reniflement glacial, toucha le sol et utilisa sa technique d'évasion tellurique pour s'enfoncer sous terre avec le dragon tout entier.
 

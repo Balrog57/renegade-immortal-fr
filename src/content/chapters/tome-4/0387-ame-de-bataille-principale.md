@@ -26,7 +26,7 @@ C'était la partie la plus basse de la veine spirituelle. À 990 mètres sur la 
 
 Assis là, Wang Lin sentait la pression de l'énergie spirituelle environnante converger vers lui. Il prit une profonde inspiration et ferma lentement les yeux. Cette fois, il n'absorba aucune énergie spirituelle, mais utilisa la pression pour reformer rapidement son âme originelle.
 
-Le temps passa lentement. Xu Yun et Liu Wei se réveillèrent et réalisèrent qu'ils n'étaient pas sortis de la grotte; une idée leur vint alors. Après en avoir discuté un moment, ils creusèrent une petite cavité près de l'endroit où ils s'étaient réveillés et se mirent tranquillement à cultiver.
+Le temps passa lentement. Xu Yun et Liu Wei se réveillèrent et réalisèrent qu'elles n'étaient pas hors de la zone de la grotte; une idée leur vint alors. Après en avoir discuté un moment, elles creusèrent une petite cavité près de l'endroit où elles s'étaient réveillées et se mirent tranquillement à cultiver.
 
 Ce jour-là, alors que Wang Lin condensait son âme originelle avec acharnement en empruntant la pression spirituelle des veines environnantes, il ouvrit soudainement les yeux.
 
@@ -40,17 +40,17 @@ Les yeux de Wang Lin étincelèrent. Il déploya son Sens Divin et verrouilla le
 
 L'illusion recula prestement après le rugissement pour prendre rapidement forme.
 
-Wang Lin reconnut cet homme; c'était l'Ancien principal de la Montagne de l'Affinement de l'Âme, un cultivateur du stade avancé de l'Âme Naissante qui n'avait besoin que de comprendre son domaine pour atteindre le stade de la Formation de l'Âme.
+Wang Lin reconnut cet homme; c'était le vieil homme de la grande salle de pierre bleue, le Grand Ancien de la Montagne de l'Affinement de l'Âme, un cultivateur du stade avancé de l'Âme Naissante qui n'avait besoin que de comprendre son domaine pour atteindre le stade de la Formation de l'Âme.
 
 « Maudit soit-il! Ce drapeau de 100 000 âmes devient de plus en plus puissant. Quand serai-je enfin capable d'en affiner le drapeau avec ma vitesse de culture? » Le visage du vieil homme était sombre.
 
 La bête Qilin n'attaqua pas activement le vieil homme comme elle l'avait fait avec Wang Lin. Dans ses yeux assoiffés de sang, on devinait une pointe de dérision.
 
-« Animal maudit! » cria le vieil homme. « Les ancêtres ont décrété que le drapeau scellé sous les trois pics revient à celui qui en sera digne. Un jour, tu seras ma propriété! »
+« Animal maudit! » cria le vieil homme. « L'ancêtre fondateur a décrété que les trois drapeaux d'âmes scellés sous les trois pics reviennent à celui qui en sera digne. Un jour, tu seras ma propriété! »
 
 « *Roar!* » Le Qilin poussa un grognement et le mépris dans ses yeux s'accentua.
 
-« Hmph! » Le vieil homme frappa son sac de rangement et un faible drapeau doré apparut. Il agita l'objet et d'innombrables âmes en sortirent. En tête se trouvait une âme du stade avancé de l'Âme Naissante servant d'âme principale. Derrière elle se trouvaient plusieurs dizaines d'âmes des stades intermédiaire et initial de l'Âme Naissante, suivies d'une multitude d'autres âmes de divers niveaux de culture.
+« Hmph! » Le vieil homme frappa son sac de rangement et un drapeau d'un or pâle apparut. Il agita l'objet et d'innombrables âmes en sortirent. En tête se trouvait une âme du stade avancé de l'Âme Naissante servant d'âme principale. Derrière elle se trouvaient plusieurs dizaines d'âmes des stades intermédiaire et initial de l'Âme Naissante, suivies d'une multitude d'autres âmes de divers niveaux de culture.
 
 Le vieil homme hurla: « Dix mille âmes, dévorez! » Il pointa le drapeau vers le Qilin, et toutes les âmes poussèrent des rugissements en chargeant vers lui.
 
@@ -90,9 +90,9 @@ Mais soudain, un Sens Divin puissant descendit de toutes parts. L'expression du 
 
 « Cela doit être un ancêtre de la Formation de l'Âme qui sort d'une culture en méditation fermée. » Le vieil homme tremblait et s'exclama précipitamment: « Le disciple Wu Daoqi salue l'Ancêtre... »
 
-Alors que le puissant Sens Divin balayait les lieux, le troisième Qilin poussa un cri de douleur et fut capturé par un rayon de lumière noire. Il rugissait en se débattant pour s'en libérer.
+Alors que le puissant Sens Divin balayait les lieux, le troisième Qilin poussa un cri de douleur et fut enserré par des volutes de gaz noir. Il rugissait en se débattant pour s'en libérer.
 
-« Hmph! » Un reniflement glacial émana du vide, puis une main gigantesque surgit de la néant et tendit ses doigts vers le drapeau d'âmes doré.
+« Hmph! » Un reniflement glacial émana du vide, puis une main gigantesque surgit du néant et tendit ses doigts vers le drapeau d'âmes doré.
 
 À cet instant, le drapeau commença à s'agiter, et trois autres Qilin apparurent pour charger la main. Les yeux des trois créatures étaient féroces, mais une pointe de terreur y brillait.
 

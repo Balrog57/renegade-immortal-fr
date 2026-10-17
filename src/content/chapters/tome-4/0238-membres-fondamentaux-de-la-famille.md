@@ -8,7 +8,7 @@ slug: membres-fondamentaux-de-la-famille
 ---
 Wang Lin s'arrêta et tourna son regard vers l'origine de la voix. Au loin, il aperçut un homme d'âge moyen dans un recoin. L'homme, à l'allure affaiblie, fixa Wang Lin avec un regard empreint de nostalgie.
 
-Wang Lin eut le sentiment que cette personne lui était très familière. D'un pas, il se retrouva devant l'homme d'âge moyen. Il s'agenouilla et demanda: « Qu'avez-vous dit à l'instant? »
+Wang Lin eut le sentiment que cette personne lui était très familière. D'un pas, il se retrouva devant l'homme d'âge moyen. Il s'accroupit et demanda: « Qu'avez-vous dit à l'instant? »
 
 L'homme hésita un instant. Il esquissa un sourire amer et dit: « Senior, junior vous a confondu avec quelqu'un d'autre. Veuillez ne pas m'en tenir rigueur, Senior. »
 
@@ -42,11 +42,11 @@ L'homme d'âge moyen regarda avec envie le point de disparition de Wang Lin, une
 
 Serrant la fiole de jade dans sa main, il prit une profonde inspiration et s'éloigna lentement.
 
-Pendant que Wang Lin volait, il déploya son Sens Divin. Il nota que tous les membres de la famille Teng dans l'État de Zhao s'étaient mis en mouvement par divers moyens, tout comme il l'avait prédit.
+Pendant que Wang Lin volait, il déploya son Sens Divin. Il nota que tous les descendants de la lignée Teng dans le pays de Zhao avaient appris le massacre par divers canaux et que, exactement comme il l'avait prévu, tous migraient.
 
-Leur destination était la Cité de la Famille Teng.
+Leur destination était la Ville de la Famille Teng.
 
-Un regard cruel s'installa dans les yeux de Wang Lin. Il pensa: « Déplacez-vous autant que bon vous semble! Une fois que tout le monde aura rejoint la Cité de la Famille Teng, ce sera le jour où je rendrai visite à Teng Huayuan. »
+Un regard cruel s'installa dans les yeux de Wang Lin. Il pensa: « Déplacez-vous autant que bon vous semble! Une fois que tout le monde aura rejoint la Ville de la Famille Teng, ce sera le jour où je rendrai visite à Teng Huayuan. »
 
 La migration massive se poursuivait à travers tout Zhao. Cependant, sept personnes ne s'étaient toujours pas déplacées.
 
@@ -68,7 +68,7 @@ En conséquence, parmi les neuf membres fondamentaux, à l'exception d'un seul, 
 
 À travers ces défis, on pouvait mesurer à quel point le niveau de culture des membres fondamentaux de la famille Teng était élevé.
 
-Les sept points lumineux immobiles détectés par Wang Lin étaient tous des membres fondamentaux. Les deux autres avaient été rappelés à la Cité de la Famille Teng.
+Les sept points lumineux immobiles détectés par Wang Lin étaient tous des membres fondamentaux. Les deux autres avaient été rappelés à la Ville de la Famille Teng.
 
 Une lueur malveillante brilla dans les yeux de Wang Lin. Actuellement, tous les autres membres de la famille se dirigeaient vers la cité, conformément à ses plans. Ses cibles étaient ces sept-là.
 
@@ -76,7 +76,7 @@ Sept membres fondamentaux que la lignée Teng avait mis d'innombrables années �
 
 Ces sept devaient mourir!
 
-Une puissante intention meurtrière émana de Wang Lin alors qu'il fixait sa cible et volait lentement vers un dôme de sable au loin.
+Par une nuit sans lune et battue par le vent, propice au meurtre, une légère odeur de sang se répandit lentement dans le ciel. La silhouette de Wang Lin, pareille à un rakshasa venu réclamer des vies, vola lentement vers une étendue de dunes au loin.
 
 « Teng Neuf » était un nom, mais aussi un titre honorifique.
 
@@ -88,7 +88,7 @@ Après tout, il avait lui-même été l'un de ces membres envieux.
 
 Génie depuis l'enfance, il avait toujours rêvé de devenir un membre fondamental. Car c'était ainsi qu'il obtiendrait le soutien du clan, la reconnaissance des ancêtres et une chance d'atteindre le stade de l'Âme Naissante.
 
-Ayant grandi au sein de la famille Teng, il avait été témoin de leur froideur et de leur snobisme. Tout ce qu'il avait vécu durant son enfance avait endurci son cœur, le rendant prêt à tout pour obtenir le pouvoir.
+Ayant grandi dans une branche collatérale de la famille Teng, il avait été témoin de leur froideur et de leur snobisme. Tout ce qu'il avait vécu durant son enfance avait endurci son cœur, le rendant prêt à tout pour obtenir le pouvoir.
 
 Il en était arrivé au point que lorsqu'il apprit qu'il pouvait concourir pour l'un des neuf postes, la première personne qu'il tua fut son propre frère aîné, car celui-ci était un concurrent.
 
@@ -106,19 +106,19 @@ Sous cette chambre coulait une veine spirituelle. Bien qu'elle ne fût pas immen
 
 Des pilules? Teng Neuf n'en manquait jamais. S'il en réclamait, la famille Teng déploierait tous les moyens nécessaires pour lui en procurer.
 
-Des techniques? Il en possédait de nombreuses. Quelle que fût l'art qu'il désirait, la famille Teng se chargeait de l'obtenir.
+Des techniques? Il en possédait de nombreuses. Quelle que soit la technique d'une secte qu'il désirait voir, la famille Teng se chargeait de la lui procurer par tous les moyens.
 
 Des trésors magiques? Il en était pourvu, et chacun d'eux était un trésor de niveau Âme Naissante.
 
-Des femmes? Il n'en manquait pas non plus. À sa moindre requête, la famille Teng lui présentait une femme possédant au moins un certain niveau de culture.
+Des femmes? Il n'en manquait pas non plus. Dès qu'il en avait besoin, la famille Teng lui envoyait aussitôt d'innombrables femmes possédant un certain niveau de culture, pour qu'il les absorbe.
 
 Teng Neuf n'avait aucune inquiétude à se faire. C'était là le privilège d'un membre fondamental. Sa seule tâche était de cultiver, cultiver et encore cultiver!
 
-Le corps de Wang Lin flottait dans les airs. Grâce à son Sens Divin, il pouvait clairement percevoir la chambre cachée sous les dômes de sable. À l'intérieur se trouvait sa proie.
+Le corps de Wang Lin flottait dans les airs. Grâce à son Sens Divin, il pouvait clairement percevoir la chambre cachée sous les dunes de sable. À l'intérieur se trouvait sa proie.
 
 Cet homme était le premier membre de la famille Teng au stade de l'Âme Naissante qu'il avait rencontré, outre Teng Huayuan, et il dégageait également une puissante aura meurtrière.
 
-Cette aura ne pouvait s'acquérir sans avoir semé une multitude de cadavres. Bien qu'elle fût plusieurs niveaux en dessous de l'intention meurtrière de Wang Lin, elle était encore plus intense que celle de certains cultivateurs démoniaques de la Mer des Démons.
+Cette aura ne pouvait s'acquérir sans avoir traversé de multiples tribulations de massacres. Bien qu'elle fût plusieurs niveaux en dessous de l'intention meurtrière de Wang Lin, elle était encore plus intense que celle de certains cultivateurs démoniaques de la Mer des Démons.
 
 Wang Lin eut un léger sourire. Ce membre de la famille Teng ravissait son regard.
 

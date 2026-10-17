@@ -34,7 +34,7 @@ L'un des géants venait de réduire deux cultivateurs de Xue Yu en poussière, m
 
 Le plus étrange était que, malgré la chaleur intense du feu, celui-ci n'avait aucun effet sur la neige au sol.
 
-Une fois la formation de géants dans le ciel brisée, une tempête de neige encore plus violente jaillit des failles. La couche neigeuse devint d'une épaisseur accrue.
+Une fois la grande formation céleste brisée, une tempête de neige encore plus violente jaillit des failles. La couche neigeuse devint d'une épaisseur accrue.
 
 La femme vêtue de blanc n'était pas la seule à avoir apporté un puissant trésor magique. D'autres cultivateurs de Xue Yu, également préparés avec des trésors redoutables, apparurent.
 
@@ -90,7 +90,7 @@ Ne pouvant déployer toute sa puissance au sein de la neige, il lui fallut deux 
 
 À environ 13,2 kilomètres sous terre, Wang Lin s'arrêta. Son visage trahissait une inquiétude mêlée d'une pointe de surprise. Il remarqua qu'à 16,5 kilomètres de profondeur, quelqu'un avait réussi à creuser une grotte. Cette cavité semblait infinie; Wang Lin pressentit que cette grotte s'étendait sous toute l'Alliance des Quatre Sectes.
 
-Tous les 3,3 kilomètres à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ 33 mètres de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient une tête humaine ainsi que des corps de serpents.
+Tous les 3,3 kilomètres à l'intérieur de la grotte se trouvait une sculpture de glace. Chaque sculpture mesurait environ 33 mètres de haut et émettait une lueur étrange. Autre chose notable: toutes les sculptures étaient rigoureusement identiques. Leurs visages arboraient des expressions féroces, et elles possédaient une tête humaine ainsi qu'un corps de serpent.
 
 Wang Lin effectua un examen rapide et constata qu'il y avait une quantité immense de ces sculptures, et que leur disposition semblait avoir une signification précise.
 

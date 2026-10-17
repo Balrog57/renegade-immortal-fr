@@ -18,7 +18,7 @@ Le Royaume Céleste ressemblait à un miroir fracassé. Maintenant que toute l'�
 
 Alors que le corps de Wang Lin descendait à toute vitesse, les fragments semblaient devenir de plus en plus grands. Bientôt, il put constater qu'il atterrissait sur un fragment situé près de la bordure.
 
-Dès son arrivée, il frappa rapidement sa sacoche de rangement et une cloche de laiton apparut dans sa main. C'était l'un des trois trésors des anciens cultivateurs qu'il avait réussi à raffiner; ce trésor possédait la capacité de changer de taille pour piéger ses ennemis.
+Dès son arrivée, il frappa rapidement sa sacoche de rangement et une cloche de bronze apparut dans sa main. C'était l'un des trois trésors des anciens cultivateurs qu'il avait réussi à raffiner; ce trésor possédait la capacité de changer de taille pour piéger ses ennemis.
 
 Une fois au sol, Wang Lin regarda autour de lui et fut frappé de stupeur.
 
@@ -68,15 +68,15 @@ Son domaine de la vie et de la mort s'activa instantanément. Après un long mom
 
 Il sentait que l'empreinte conservait des vestiges de l'aura de son auteur, ce qu'il venait de ressentir physiquement. Cependant, plus il percevait cette force, plus il réalisait à quel point l'être qui en était l'auteur était puissant.
 
-Lorsqu'il se redressa, les yeux de Wang Lin brillèrent d'une lueur particulière. Il s'envola dans les airs et pressa sa main au même endroit. Après un long moment, il secoua la tête, fit le tour de l'empreinte et continua son exploration des ruines.
+Lorsqu'il se redressa, les yeux de Wang Lin brillèrent d'une lueur particulière. Il leva la main droite et l'abaissa dans le vide, au-dessus de l'empreinte. Après un long moment, il secoua la tête, fit le tour de l'empreinte et continua son exploration des ruines.
 
 Après plusieurs jours de marche, il tomba sur une stèle de pierre brisée sur laquelle quelques mots étaient gravés.
 
-« Offert par le cinquième Empereur Céleste de la Pluie à l'Érudit Céleste Tian Hua... »
+« Offert par le cinquième Roi Céleste de la Pluie à l'Érudit Céleste Tian Hua... »
 
-La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que l'empereur céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 50000 kilomètres, rendant la culture plusieurs fois plus efficace.
+La stèle indiquait approximativement que l'Érudit Céleste Tian Hua avait accompli un exploit grandiose, et que le roi céleste lui avait offert ces palais en guise de récompense. Les palais avaient été bâtis selon une formation capable d'attirer l'énergie spirituelle céleste sur un rayon de 50000 kilomètres, rendant la culture plusieurs fois plus efficace.
 
-Une fois sa lecture terminée, Wang Lin fut à nouveau ébranlé. Bien qu'il ignorât le rang exact d'un Érudit Céleste, celui-ci était certainement inférieur à celui d'un Empereur Céleste. Si un simple Érudit pouvait posséder un tel palais, à quoi ressemblait celui de l'Empereur?
+Une fois sa lecture terminée, Wang Lin fut à nouveau ébranlé. Bien qu'il ignorât le rang exact d'un Érudit Céleste, celui-ci était certainement inférieur à celui d'un Roi Céleste. Si un simple Érudit pouvait posséder un tel palais, à quoi ressemblait celui du Roi?
 
 Alors qu'il s'apprêtait à repartir, son regard s'illumina. Il se retourna brusquement pour fixer la stèle. Celle-ci semblait tout à fait ordinaire, sans rien d'extraordinaire.
 

@@ -30,7 +30,7 @@ Le corps de Wang Lin se figea. Il réfléchit un instant avant de poursuivre son
 
 Deux autres années passèrent rapidement.
 
-Ce jour-là, une épaisse masse de brouillard noir jaillit du gouffre géant menant à la nécropole immortelle. Ce brouillard noir perça le ciel.
+Ce jour-là, à la lisière du pays de Chu, sur la planète Suzaku, une épaisse masse de brouillard noir jaillit du gouffre géant menant au Cimetière des Immortels. Ce brouillard noir perça le ciel.
 
 La brume se mua en une plante très étrange aux feuilles immenses. D'innombrables tatouages recouvraient la plante, laquelle dégageait une aura singulière.
 
@@ -38,7 +38,7 @@ La brume se mua en une plante très étrange aux feuilles immenses. D'innombrabl
 
 Dès son apparition, la lumière dorée se transforma en un filet qui recouvrit la plante. Après une série de grondements sourds, elle parvint à la supprimer de force.
 
-« Mon clan s'est caché pendant des dizaines de milliers d'années, mais aujourd'hui, personne n'empêchera mon clan de reprendre la planète Fu Wen! » tonna une voix antique émanant des profondeurs de la nécropole immortelle, tandis qu'un vieil homme à l'apparence très ancienne sortait du gouffre.
+« Mon clan s'est caché pendant des dizaines de milliers d'années, mais aujourd'hui, personne n'empêchera mon clan de reprendre la planète Fu Wen! » tonna une voix antique émanant des profondeurs du Cimetière des Immortels, tandis qu'un vieil homme à l'apparence très ancienne sortait du gouffre.
 
 Aucun tatouage ne marquait le corps du vieillard, mais si l'on regardait de près, une plante scintillait sur son front. En y observant attentivement, on pouvait compter onze feuilles sur cette plante!
 
@@ -52,7 +52,7 @@ L'expression du vieil homme était calme lorsqu'il murmura: « Le premier Suzaku
 
 Les deux épées volantes commencèrent à trembler, puis réussirent à se libérer de la puissance du tatouage pour battre en retraite rapidement.
 
-« Retournez! » Les yeux du vieil homme étaient sereins, comme s'il avait percé tous les mystères. Il agita sa main droite et un rugissement capable de déchirer le ciel retentit. Peu après, d'innombrables tatouages apparurent dans l'air. Ils s'entrelacèrent pour former un motif si puissant qu'il semblait pouvoir fendre les cieux.
+« Revenez! » Les yeux du vieil homme étaient sereins, comme s'il avait percé tous les mystères. Il agita sa main droite et un rugissement capable de déchirer le ciel retentit. Peu après, d'innombrables tatouages apparurent dans l'air. Ils s'entrelacèrent pour former un motif si puissant qu'il semblait pouvoir fendre les cieux.
 
 Les deux épées cessèrent de lutter et foncèrent vers le vieil homme tel l'éclair.
 
@@ -70,7 +70,7 @@ Le vieil homme regarda la dernière épée volante dans le filet doré. Il prit 
 
 Mais l'épée semblait manquer de puissance pour résister. Après un instant, elle s'extirpa du filet doré et chargea vers le vieillard.
 
-« Ce vieux est un pécheur du Clan de l'Immortel Délaissé qui mérite la mort. Aujourd'hui, j'ai franchi le stade des 11 feuilles et ma douzième feuille commence à s'ouvrir, me plaçant un niveau au-dessus de ce que les cultivateurs nomment Ascendant. Cependant, mon talent est limité; je n'ai pu absorber pleinement la puissance pour franchir véritablement cette dernière étape. Je suis une honte pour les ancêtres et je ne suis pas digne de tous ces membres du clan qui sont morts pour me maintenir en vie... »
+« Ce vieux est un pécheur du Clan de l'Immortel Délaissé qui mérite la mort. Aujourd'hui, j'ai franchi le stade des 11 feuilles et ma douzième feuille commence à s'ouvrir, au-delà de ce que les cultivateurs nomment Ascendant. Cependant, mon talent est limité; je n'ai pu absorber pleinement la puissance pour franchir véritablement cette dernière étape. Je suis une honte pour les ancêtres et je ne suis pas digne de tous ces membres du clan qui sont morts pour me maintenir en vie... »
 
 La dernière épée volante fondit sur lui et le transperça juste entre les yeux.
 
@@ -88,7 +88,7 @@ Le corps du vieil homme fusionna lentement avec la plante géante avant de dispa
 
 À cet instant, les membres du Clan de l'Immortel Délaissé sortirent un à un du gouffre. Ils furent de plus en plus nombreux, et chacun d'eux s'inclina profondément devant la plante.
 
-Parmi eux se trouvait une femme portant un voile. Ses yeux, sous le tissu, étaient calmes.
+Parmi eux se trouvait une femme portant un voile violet. Ses yeux, sous le tissu, étaient calmes.
 
 « J'espère que tu ne me mens pas... Je veux que ce Qian Feng meure sans sépulture! »
 
@@ -106,13 +106,13 @@ Il le frappa de la main gauche et le jeton se divisa en deux, puis en quatre, et
 
 « En tant que Suzaku de la 14e génération, j'appelle tous les pays de culture! La seconde guerre contre le Clan de l'Immortel Délaissé commence! »
 
-Les jetons nuageux disparurent rapidement. Puis, un vieil homme sortit de sa longue retraite au Secteur du Jade Céleste, dans le pays de Suzaku.
+Les jetons nuageux disparurent rapidement. Puis, un vieil homme sortit de sa longue retraite à la Secte du Jade Céleste, dans le pays de Suzaku.
 
 Vêtu d'une robe noire et très maigre, ses yeux s'illuminèrent lorsqu'il tourna son regard vers le Cimetière des Immortels. Il murmura: « Les choses changent! »
 
-Ce vieillard était Chu Yunfei, l'ancêtre Ascendant du stade précoce que tout le Secteur du Jade Céleste respectait.
+Ce vieillard était Chu Yunfei, l'ancêtre Ascendant du stade précoce que toute la Secte du Jade Céleste respectait.
 
-Le Secteur de l'Âme Terrestre se trouvait dans la partie occidentale de Suzaku. Une grotte s'étendait profondément sous le secteur, et à l'intérieur y siégeait un homme d'âge moyen.
+La Secte de l'Âme Terrestre se trouvait dans la partie occidentale de Suzaku. Une grotte s'étendait profondément sous la secte, et à l'intérieur y siégeait un homme d'âge moyen.
 
 Soudain, cet homme ouvrit les yeux. Son regard portait une aura antique tandis qu'il soupirait: « Ce jour est enfin arrivé. Je n'arrive pas à croire que je sois entraîné là-dedans, ah! »
 

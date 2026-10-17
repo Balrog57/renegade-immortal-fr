@@ -12,19 +12,19 @@ Après l'avoir inspectée, Wang Lin l'avala sans la moindre hésitation. La gout
 
 De la même manière, si Wang Lin venait à mourir, Shang Guanmo mourrait également.
 
-L'essence de sang de l'âme est une sorte de restriction, mais bien plus directe. Bien que la conscience d'un individu puisse paraître solide, elle est en réalité extrêmement fragile. Si une personne détient trop de gouttes d'essence de sang de l'âme, cela plonge sa propre conscience dans un état de chaos, entraînant des conséquences inimaginables.
+Le sang d'essence d'âme est une sorte de restriction, mais bien plus directe. Bien que la conscience d'un individu puisse paraître solide, elle est en réalité extrêmement fragile. Si une personne détient trop de gouttes de sang d'essence d'âme, cela plonge sa propre conscience dans un état de chaos, entraînant des conséquences inimaginables.
 
-Par conséquent, s'emparer de l'essence de sang de l'âme d'autrui n'est qu'une mesure temporaire, et de nombreux cultivateurs évitent de le faire. Après tout, il existe des milliers de restrictions capables d'accomplir exactement la même chose.
+Par conséquent, s'emparer du sang d'essence d'âme d'autrui n'est qu'une mesure temporaire, et de nombreux cultivateurs évitent de le faire. Après tout, il existe des milliers de restrictions capables d'accomplir exactement la même chose.
 
-Il existe également un autre point crucial: l'essence de sang de l'âme ne peut être extraite que si le cultivateur consent volontairement à le faire. Autrement, à moins de posséder une technique d'une puissance absolue, il est impossible de la lui arracher par la force.
+Il existe également un autre point crucial: le sang d'essence d'âme ne peut être extrait que si le cultivateur consent volontairement à le faire. Autrement, à moins de posséder une technique d'une puissance absolue, il est impossible de la lui arracher par la force.
 
 Shang Guanmo était lui aussi acculé. Il savait que Wang Lin ne lui pardonnerait pas facilement et qu'il placerait probablement une restriction sur lui. S'il avait imploré Wang Lin de l'accepter comme disciple, c'était simplement pour offrir à ce dernier une raison de le laisser vivre.
 
-Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. Ce n'est qu'à ce moment-là qu'il fut contraint de livrer son essence de sang de l'âme. Ce n'est qu'après avoir vu Wang Lin l'accepter que son cœur finit par s'apaiser quelque peu.
+Mais il n'aurait jamais pu imaginer que cela ne ferait aucun effet à Wang Lin. Ce n'est qu'à ce moment-là qu'il fut contraint de livrer son sang d'essence d'âme. Ce n'est qu'après avoir vu Wang Lin l'accepter que son cœur finit par s'apaiser quelque peu.
 
 Wang Lin lui lança un regard glacial avant de se retourner et de dire froidement à Mu Nan: « Continue de montrer le chemin. »
 
-Après avoir tué le premier Ancien de la Secte de la Lutte contre le Mal, Wang Lin savait qu'il devrait les exterminer. S'il n'avait tué qu'un disciple, cela n'aurait été qu'un incident mineur, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
+Dès qu'il avait tué le premier Ancien de la Secte de la Lutte contre le Mal, Wang Lin avait compris que l'affaire ne s'arrangerait jamais. Si ce n'avaient été que des gens ordinaires de la secte, passe encore, mais puisqu'il avait tué un Ancien, ils viendraient certainement le traquer jusqu'au bout. Il n'était plus le jeune villageois naïf d'autrefois; il avait énormément grandi.
 
 Tout ce qui s'était produit après la mort de Teng Li avait beaucoup appris à Wang Lin. Puisqu'il en avait déjà tué un, autant en tuer dix. Puisqu'il en avait déjà tué dix, autant anéantir la Secte de la Lutte contre le Mal.
 
@@ -36,7 +36,7 @@ Quant à Shang Guanmo, il essuya la sueur froide qui perla sur son front et suiv
 
 « Un sortilège de mort... la technique qu'il a utilisée doit être un sortilège de mort! Maîtriser une technique aussi vile prouve qu'il n'est pas un homme ordinaire. » Shang Guanmo continuait d'évaluer Wang Lin du regard, l'observant secrètement.
 
-Li Muwan ressentit une émotion complexe. Elle n'aurait jamais cru que Wang Lin atteindrait réellement le stade de la Formation du Noyau. Il avait prouvé, tout au long de son parcours, qu'il tenait parole.
+Li Muwan ressentit une émotion complexe. Elle n'aurait jamais cru que Wang Lin atteindrait réellement le stade de la Formation du Noyau. Et tout au long du chemin, cela semblait confirmer ce qu'il avait dit en sortant de la grotte.
 
 « Contre les cultivateurs en dessous du stade de l'Âme Naissante, il est invincible. »
 
@@ -46,7 +46,7 @@ La Li Muwan d'avant ne faisait que cultiver ou raffiner des pilules. Chaque fois
 
 Grâce à son talent pour le raffinage de pilules et les formations, elle était chérie par les Anciens et très populaire au sein de sa secte. De nombreux prétendants de sa génération la courtisaient, mais aucun n'avait réussi à émouvoir son cœur.
 
-La première fois qu'elle avait rencontré Wang Lin, ils l'avaient pris pour Sun Youcai, ce qui avait créé un malentendu. En y repensant aujourd'hui, s'ils s'étaient vraiment affrontés à l'époque, même son frère n'aurait pas été de taille face à lui. Avec ce qu'elle comprenait désormais de Wang Lin, elle savait que s'ils avaient combattu, le seul résultat aurait été leur massacre par Wang Lin. Même elle, malgré sa beauté, aurait péri, car cela n'aurait eu aucun effet sur lui.
+La première fois qu'elle avait rencontré Wang Lin, elle l'avait pris pour Sun Youcai, ce qui avait failli créer un malentendu. En y repensant aujourd'hui, s'ils s'étaient vraiment affrontés à l'époque, même son frère n'aurait pas été de taille face à lui. Avec ce qu'elle comprenait désormais de Wang Lin, elle savait que s'ils avaient combattu, le seul résultat aurait été leur massacre par Wang Lin. Même elle, malgré sa beauté, aurait péri, car cela n'aurait eu aucun effet sur lui.
 
 « C'est un homme sans cœur... » Li Muwan observa Wang Lin en soupirant. Après toutes ces années, elle savait qu'il n'aurait aucune intention pervertie à son égard. Après tout, à ses yeux, elle n'était qu'un fourneau à pilules.
 
@@ -54,17 +54,17 @@ Une amertume envahit le cœur de Li Muwan. Cette amertume devint de plus en plus
 
 Le visage de Li Muwan devint encore plus pâle; elle mordit sa lèvre inférieure et hocha la tête.
 
-Un silence s'installa entre eux. Bientôt, les deux guides s'arrêtèrent brusquement. Leurs expressions étaient sombres et inquiétantes alors que les silhouettes de plus d'une centaine de cultivateurs émergèrent du brouillard devant eux. Chacun d'eux fixait le grand mot rouge « Punir » qui surplombait la tête de Wang Lin. La cupidité brillait dans leurs yeux, mais derrière cette convoitise se cachait une pointe de terreur.
+Un silence s'installa entre eux. Bientôt, les deux guides s'arrêtèrent brusquement. Leurs expressions étaient sombres et inquiétantes alors que les silhouettes de plus d'une centaine de cultivateurs émergèrent du brouillard devant eux. Chacun d'eux fixait le grand mot rouge « Punir » qui surplombait la tête de Wang Lin. La cupidité brillait dans leurs yeux, mais derrière cette convoitise se cachait une pointe de crainte.
 
 Wang Lin lança un regard glacial au groupe et déclara calmement: « Continuez à montrer le chemin. Si quelqu'un ose barrer notre route, tuez-le! »
 
-Shang Guanmo comprit que c'était sa chance de prouver sa valeur. Il s'élança et se posta devant Mu Nan et Mu Bei. Il leur adressa un sourire et lança: « Un groupe de moins que rien au stade de l'Établissement des Fondations. Écoutez bien: quiconque osera bloquer notre passage mourra! »
+Shang Guanmo comprit que c'était sa chance de prouver sa valeur. Il s'élança et se posta à côté de Mu Nan et Mu Bei. Il leur adressa un sourire et lança: « Un groupe de moins que rien au stade de l'Établissement des Fondations. Écoutez bien: quiconque osera bloquer notre passage mourra! »
 
-Alors qu'ils progressaient, tous les cultivateurs s'écartèrent. Aucun n'avait l'intention d'agir initialement; ils voulaient simplement voir quel genre d'individu avait activé l'Ordre de la Centaine de Jours du Massacre des Dix Mille Démons.
+Alors qu'ils progressaient, tous les cultivateurs s'écartèrent. Aucun n'avait l'intention d'agir initialement; ils voulaient simplement voir qui était visé par l'Ordre de mise à mort des Dix Mille Démons: Cent jours, dont on parlait dans les légendes.
 
 Les dix corps emportés par le tendon de dragon derrière Wang Lin firent frissonner l'assistance. Même s'ils avaient voulu agir, ils auraient hésité devant un tel spectacle.
 
-Cependant, la nouvelle de l'Ordre de la Centaine de Jours du Massacre des Dix Mille Démons s'était propagée trop vite. Bientôt, tout le monde dans un rayon d'un million de lieues autour de Nan Dou en fut informé et commença à se renseigner. Peu à peu, de plus en plus de cultivateurs apparurent dans le ciel.
+Cependant, la nouvelle de l'Ordre de mise à mort des Dix Mille Démons: Cent jours s'était propagée trop vite. Bientôt, tout le monde dans un rayon d'un million de lieues autour de Nan Dou en fut informé et commença à se renseigner. Peu à peu, de plus en plus de cultivateurs apparurent dans le ciel.
 
 En chemin, Wang Lin croisait régulièrement ces individus. En raison de cette affluence, leur vitesse était ralentie. Wang Lin perdit patience. Face à toute cette cupidité qu'il percevait dans leurs regards, il eut envie de tous les massacrer.
 
@@ -102,4 +102,4 @@ En seulement une demi-heure, la majorité des fuyards furent éliminés par l'é
 
 Plus de 1 000 cadavres étaient déjà entremêlés dans le tendon de dragon derrière lui. Le tendon ressemblait à une cape de mort flottant derrière Wang Lin.
 
-À ce moment précis, dans le brouillard à mille lieues de là, se tenaient sept ou huit vieux cultivateurs démoniaques. Aucun d'eux ne parla, mais l'effroi qui se lisait dans leurs yeux devenait de plus en plus manifeste.
+À ce moment précis, dans le brouillard à mille lieues de là, se tenaient sept ou huit vieux cultivateurs démoniaques. Aucun d'eux ne parlait; ils fixaient Wang Lin en fronçant les sourcils, et la méfiance dans leurs yeux devenait de plus en plus manifeste.

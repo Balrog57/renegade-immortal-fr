@@ -26,7 +26,7 @@ L'Esprit de la Terre était dans un état chaotique. En voyant Wang Lin, il ne l
 
 À ses yeux, Wang Lin n'était pas digne de l'inciter à la prudence.
 
-Dès son arrivée, il agita la main et une vague de puissance tellurique chargea vers Wang Lin. Au contact de cette force, Wang Lin sentit une douceur amère lui monter à la gorge et cracha du sang.
+Dès son arrivée, il agita la main et une vague de puissance tellurique chargea vers Wang Lin. Au contact de cette force, Wang Lin sentit un goût sucré lui monter à la gorge et cracha du sang.
 
 L'Âme Naissante en son corps trembla, manquant de s'effondrer.
 
@@ -66,7 +66,7 @@ Tout cela s'était déroulé avec une rapidité extrême. Ensuite, sans hésiter
 
 Le jeune homme fixa Wang Lin d'un regard glacial, mais sa main ne bougea pas. Après un moment, il se détourna et partit à son tour.
 
-Wang Lin vola pendant 2 500 kilomètres en restant sur ses gardes avant de s'arrêter. Ce n'est que lorsqu'il constata que le jeune homme ne le poursuivait pas qu'il laissa enfin échapper un soupir de soulagement.
+Wang Lin vola pendant 5 000 kilomètres en restant sur ses gardes avant de s'arrêter. Ce n'est que lorsqu'il constata que le jeune homme ne le poursuivait pas qu'il laissa enfin échapper un soupir de soulagement.
 
 Wang Lin avait pris d'énormes risques pour dérober cet Esprit de la Terre à autrui. Il décida de ne pas tenter d'obtenir les autres esprits élémentaires; ce serait trop périlleux. S'il avait commis la moindre erreur, il serait mort.
 
@@ -82,7 +82,7 @@ Une à une, les sculptures s'élevèrent à travers le sol enneigé. Si l'on obs
 
 Les sculptures commencèrent à briller alors qu'elles s'élançaient soudainement dans les airs. Toutes les sculptures de glace de l'Alliance des Quatre Sectes s'envolèrent à des vitesses inimaginables, et toutes les failles du ciel, excepté celle située au centre, disparurent.
 
-Peu après, une puissante aura bleu foncé émana de la faille centrale. Dès son apparition, elle se propagea rapidement, enveloppant un périmètre de 2 500 kilomètres.
+Peu après, une puissante aura bleu foncé émana de la faille centrale. Dès son apparition, elle se propagea rapidement, enveloppant un périmètre de 5 000 kilomètres.
 
 Certains cultivateurs de l'Alliance des Quatre Sectes ne purent esquiver assez vite et furent frappés par cette aura bleutée. Ils se figèrent instantanément, se transformant en sculptures de glace. Même leurs Âmes Naissantes furent totalement pétrifiées sur place.
 
@@ -108,7 +108,7 @@ L'aura bleu foncé n'eut aucun effet sur le dragon noir.
 
 Cependant, alors que le dragon noir fonçait sur la créature, une voix froide résonna de l'intérieur de la faille: « Noble messager, Suzaku a promis de nous aider une fois; je vous demande donc maintenant de tuer ce dragon noir. »
 
-Tandis que ces paroles s'élevaient, une femme en robe blanche, aux longs cheveux flottants, émergea de la faille. Cette femme était d'une grande grâce. Il ne semblait même pas émaner de froid de son corps, mais ses yeux révélaient une détermination sans faille.
+Tandis que ces paroles s'élevaient, une femme en robe blanche, aux longs cheveux noirs, émergea de la faille. Cette femme était d'une grande grâce. Il ne semblait même pas émaner de froid de son corps, mais ses yeux révélaient une détermination sans faille.
 
 Dès l'apparition de cette femme, n'importe quel imbécile aurait pu constater la différence abyssale entre elle et la femme précédente. C'était comme comparer la lune éclatante à une luciole.
 

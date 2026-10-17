@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 284 - Peeling the Top
 slug: eplucher-la-surface
 ---
-En vérité, il existe deux voies pour atteindre le stade de Formation de l'Âme. La première consiste à suivre les traces d'autrui et à copier son domaine. Cette méthode est bien plus aisée que la seconde, mais la difficulté réside dans le fait que peu de cultivateurs au stade de la Formation de l'Âme sont disposés à exposer leur domaine. Seuls les cultivateurs du sommet de l'Âme Naissante au sein des grandes sectes ont le privilège d'en contempler un.
+En vérité, il existe deux voies pour atteindre le stade de Formation de l'Âme. La première consiste à suivre les traces d'autrui et à copier son domaine. Cette méthode est bien plus aisée que la seconde, mais la difficulté réside dans le fait que peu de cultivateurs au stade de la Formation de l'Âme sont disposés à exposer leur domaine. Seuls les cultivateurs du sommet de l'Âme Naissante au sein de leur propre secte ont le privilège d'en contempler un.
 
 La seconde méthode consiste à s'appuyer entièrement sur soi-même pour tenter de comprendre les cieux et ainsi découvrir son propre domaine. Cette voie est extrêmement ardue. Elle exige une persévérance et une chance hors du commun pour réussir, mais une fois le propre domaine découvert, le cultivateur sera bien plus puissant que ceux ayant emprunté la première voie.
 
@@ -56,7 +56,7 @@ Assis en tailleur, Wang Lin examina les lieux. Des souvenirs familiers envahiren
 
 Dix jours plus tard, Wang Lin acheva l'ajustement de son corps. Sa main traça un sceau qu'il pressa contre sa poitrine. La couleur de son visage oscilla entre le rouge et le vert, avant que son corps ne se scinde en deux.
 
-Son corps original émergea de son avatar; il arborait une chevelure blanche retombant sur ses épaules, un visage glacial et une étoile violette dégageant une lueur maléfique.
+Son corps original émergea de son avatar; il arborait une chevelure blanche retombant sur ses épaules, un visage glacial et une marque en forme d'étoile entre les sourcils, dégageant une lueur maléfique.
 
 Le niveau de culture de ce corps original était toujours au stade avancé de la Formation du Noyau.
 
@@ -64,7 +64,7 @@ Son Royaume Ji n'ayant pas évolué, le niveau de culture de son corps original 
 
 Bien qu'il puisse porter son Royaume Ji au niveau de l'Âme Naissante lorsqu'il fusionnait avec son avatar, cela présentait des limitations et des inconvénients; ce n'était donc pas une solution viable à long terme.
 
-Quant à son avatar, il était sur le point d'atteindre le stade de la Formation de l'Âme. Après sa fusion avec le corps original, le seul défaut de cet avatar — ses trente années de vie restantes — avait disparu; il n'était désormais plus différent de son corps originel.
+Quant à son avatar, il était sur le point d'atteindre le stade de la Formation de l'Âme. Dès sa formation de l'Âme Naissante, le seul défaut de cet avatar — ses trente années de vie restantes — avait disparu; il n'était désormais plus différent de son corps originel.
 
 À cet instant précis, il s'apprêtait à atteindre la Formation de l'Âme, et si la fusion avec son corps original persistait, cela entraverait le processus de percée.
 
@@ -92,7 +92,7 @@ Cette puissance spirituelle se concentra au bout du doigt de l'avatar. Rapidemen
 
 Le corps original devint soudainement bien plus faible, mais son regard demeurait serein.
 
-Puis, des fragments d'énergie spirituelle s'extirpèrent de la chair et des os du corps original. Cette énergie se dirigea vers le dantian du corps et y forma lentement un anneau.
+Puis, des fragments d'énergie spirituelle s'extirpèrent de la chair et des os du corps original. Cette énergie se dirigea vers le dantian du corps et y forma lentement un anneau lumineux semblable à un pétale.
 
 C'était là la fondation d'un cultivateur, symbole même du stade de l'Établissement des Fondations.
 
@@ -126,4 +126,4 @@ L'avatar se concentrait sur l'intérieur, suivant la voie des Cieux.
 
 Tous deux étaient les corps de Wang Lin, sans aucune distinction, mais avant qu'il n'atteigne un certain point, ses deux corps ne pourraient rester fusionnés pendant une longue période.
 
-Cependant, une fois la fusion accomplie, sa puissance décuplerait.
+Cependant, une fois la fusion accomplie, sa puissance serait multipliée plusieurs fois.

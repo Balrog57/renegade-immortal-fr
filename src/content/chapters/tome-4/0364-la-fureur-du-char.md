@@ -26,7 +26,7 @@ La blessure à sa taille se referma rapidement pour finir par disparaître. Cepe
 
 Sans dire un mot, Wang Lin fit volte-face et s'enfuit. Ce fouet était bien trop dangereux. Si son âme originelle venait à être expulsée de nouveau et que son corps était détruit, il aurait perdu, même en cas de victoire.
 
-Papillon Rouge réapparut sur la tête du géant de glace et hurla: « Ceng Niu, je veux voir ce que tu as encore dans le ventre! »
+Le visage de Papillon Rouge apparut sur le front du géant de glace et elle hurla, les dents serrées: « Ceng Niu, je veux voir ce que tu as encore dans le ventre! »
 
 Le géant de glace, désormais plus petit, s'avéra bien plus agile qu'auparavant. Il se redressa en faisant trembler la terre et se lança à la poursuite de Wang Lin.
 
@@ -36,7 +36,7 @@ Tout en volant, il sortit rapidement une pilule et l'avala pour stabiliser son �
 
 L'expression de Papillon Rouge était glaciale. Elle détestait l'homme devant elle jusqu'à ses os. Si ce n'était pas pour le géant de glace, elle aurait été foudroyée par l'éclair rouge.
 
-« Ce Ceng Niu possédait un trésor capable d'invoquer la foudre de la rétribution divine. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le fouet de l'âme, le géant de glace ne pourra pas résister à deux assauts de la foudre de la rétribution divine », pensa Papillon Rouge, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
+« Ce Ceng Niu possédait un trésor capable d'invoquer la foudre de la rétribution divine. Cependant, je ne crois pas qu'il en possède deux, sinon il les aurait utilisés simultanément. Même avec le Fouet d'Âmes, le géant de glace ne pourra pas résister à deux assauts de la foudre de la rétribution divine », pensa Papillon Rouge, le regard sombre. Elle donna un ordre et le fouet apparut soudainement dans la main du géant.
 
 Papillon Rouge cria: « Ceng Niu, accepte ta mort! »
 
@@ -86,13 +86,13 @@ L'énergie de l'épée provoqua un bang sonique en fendant l'air pour percuter l
 
 *Bang!*
 
-Le géant de glace tituba et recula de plusieurs pas, une blessure béante sur le corps. Les yeux de Papillon Rouge étaient clos; elle concentrait toute sa volonté à réprimer la malédiction.
+Le géant de glace tituba et recula de plusieurs pas, une entaille d'épée sur la poitrine. Les yeux de Papillon Rouge étaient clos; elle concentrait toute sa volonté à réprimer la malédiction.
 
 Les yeux de Wang Lin s'illuminèrent. Il s'élança et frappa à nouveau.
 
 *Bang!*
 
-Après l'impact, le géant recula encore davantage. Papillon Rouge lutta pour ouvrir les yeux et fixa Wang Lin avec une férocité sauvage avant d'articuler un mot. Les yeux du géant de glace projetèrent alors une lueur démoniaque: Papillon Rouge avait renoncé au contrôle du géant pour consacrer toute sa puissance à la maîtrise de la malédiction.
+Après l'impact, le géant recula encore davantage. Papillon Rouge lutta pour ouvrir les yeux et fixa Wang Lin avec une férocité sauvage avant de murmurer une incantation. Les yeux du géant de glace projetèrent alors une lueur démoniaque: Papillon Rouge avait renoncé au contrôle du géant pour consacrer toute sa puissance à la maîtrise de la malédiction.
 
 Le corps du colosse s'anima. Il abattit son poing, et l'image du fouet apparut instantanément.
 

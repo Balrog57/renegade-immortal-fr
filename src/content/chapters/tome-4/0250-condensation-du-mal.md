@@ -18,7 +18,7 @@ En chevauchant, Wang Lin observa les mortels qui l'entouraient. Un sentiment qu'
 
 Si des cultivateurs puissants avaient été présents, ils auraient été stupéfaits de voir une épaisse brume rouge envelopper Wang Lin. Cette aura était extrêmement puissante; cependant, elle ne se diffusait pas vers l'extérieur, mais se condensait autour de lui.
 
-Loin des mortels, même la plupart des cultivateurs ne pourraient percevoir cette brume rouge. C’était l'aura meurtrière que Wang Lin avait acquise au cours de ses quatre cents ans de massacres. Après avoir fait partie de lui pendant si longtemps, elle s'était progressivement transformée en une aura d'hostilité. Finalement, à force de tuer et de subir des changements profonds, elle était devenue une aura maléfique capable de faire frissonner la peau du plus résistant des cultivateurs.
+Sans parler des mortels, même la plupart des cultivateurs ne pourraient percevoir cette brume rouge. C’était l'aura meurtrière que Wang Lin avait acquise au cours de ses quatre cents ans de massacres. Après avoir fait partie de lui pendant si longtemps, elle s'était progressivement transformée en une aura d'hostilité. Finalement, à force de tuer et de subir des changements profonds, elle était devenue une aura maléfique capable de faire frissonner la peau du plus résistant des cultivateurs.
 
 Lorsqu'on peut maîtriser cette aura maléfique, elle peut être utilisée telle une technique puissante, capable de faire plier l'ennemi sans combattre. De plus, en l'incorporant lors du raffinage d'un trésor magique, on en augmenterait grandement la puissance.
 
@@ -38,7 +38,7 @@ Certaines servantes descendirent pour préparer le dîner. Certaines jetèrent d
 
 Il n'était pas difficile de comprendre pourquoi les servantes l'observaient ainsi. À cet instant, il dégageait un charme indicible. Bien que ses traits fussent ordinaires, il possédait une aura d'une singularité absolue.
 
-Wang Lin s'assit, appuyé contre un grand arbre, observant le ciel qui s'obscurcissait lentement. Il éprouvait une paix de l'esprit qu'il n'avait pas connue depuis quatre cents ans.
+Wang Lin s'assit, appuyé contre un grand arbre, observant le ciel qui s'obscurcissait lentement. Il éprouvait une paix de l'esprit qu'il n'avait pas connue depuis quatre cents ans. Le ciel étoilé était resplendissant, chaque point de lumière éclairant la terre, mais Wang Lin savait que chacun de ces points était en réalité une planète.
 
 Cela provenait des souvenirs hérités du Dieu Ancien. À l'époque où Tu Si ne pouvait pas voyager parmi les étoiles, il contemplait souvent le ciel de la sorte.
 
@@ -46,7 +46,7 @@ Cette sérénité fit ressurgir l'énergie spirituelle dans le corps de Wang Lin
 
 La substance rouge se dissipait lentement sous l'effet de sa paix intérieure. Il savait que s'il continuait ainsi, elle disparaîtrait totalement d'ici quelques années.
 
-Wang Lin avait déjà remarqué cette substance par le passé, mais c’était la première fois qu’il la voyait aussi distinctement. Il savait qu'elle était le fruit de ses quatre cents ans de carnage. Bien qu'il sût que laisser cette brume se dissiper l'aiderait à atteindre le stade de la Séparation Spirituelle, il estimait que ce serait un certain gaspillage.
+Wang Lin avait déjà remarqué cette substance par le passé, mais c’était la première fois qu’il la voyait aussi distinctement. Il savait qu'elle était le fruit de ses quatre cents ans de carnage. Bien qu'il sût que laisser cette brume se dissiper l'aiderait à atteindre le stade de la Formation de l'Âme, il estimait que ce serait un certain gaspillage.
 
 Wang Lin réfléchit un instant. Après mûre réflexion, il commença à faire bouillir la substance rouge pour tenter de la condenser lentement. Cependant, après l'avoir réduite d'un dixième, Wang Lin ne parvint plus à la comprimer davantage, quels que soient ses efforts.
 
@@ -86,7 +86,7 @@ Lu Xing regarda la cruche vide au sol, puis celle, presque vide, que tenait Wang
 
 Wang Lin voulut instinctivement refuser, mais après réflexion, il acquiesça d'un signe de tête.
 
-Il suivit Lu Xing jusqu'au foyer. De nombreux artistes martiaux s'y trouvaient, riant et racontant des anecdotes amusantes. Lu Xing s'approcha et donna une tape amicale à l'homme qui parlait en le réprimandant sur un ton moqueur: « Wang Laowu, j'ai entendu parler de Xiao Taohong, de Qing Fen Lou, maintes fois. J'imagine qu'elle t'a bien servi. À notre retour, je vérifierai si tu ne vantes pas tes mérites! »
+Il suivit Lu Xing jusqu'au foyer. De nombreux artistes martiaux s'y trouvaient, riant et racontant des anecdotes amusantes. Lu Xing s'approcha et donna un coup de pied à l'homme qui parlait en le réprimandant sur un ton moqueur: « Wang Laowu, j'ai entendu parler de Xiao Taohong, de Qing Fen Lou, maintes fois. J'imagine qu'elle t'a bien servi. À notre retour, je vérifierai si tu ne vantes pas tes mérites! »
 
 L'homme nommé Wang s'écarta pour faire de la place à Lu Xing et Wang Lin en répondant: « Vas-y, de toute façon tu fais vite! Quand tu auras fini, j'aurai bien le temps d'y aller aussi! »
 

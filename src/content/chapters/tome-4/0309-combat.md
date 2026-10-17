@@ -18,7 +18,7 @@ Bang Bang Bang
 
 L'empreinte traversa les airs comme un éclair.
 
-La silhouette qui émergea de la formation était Wang Lin. Dès son apparition, il sentit le danger; il frappa aussitôt le sol du pied pour briser la formation et se protégea derrière un nuage de fumée verte tout en reculant. D'un revers de la main droite, il lança le piège à bêtes. Dans un rugissement, une boule de foudre surgit et fonça vers l'empreinte.
+La silhouette qui émergea de la formation était Wang Lin. Dès son apparition, il sentit le danger; il frappa aussitôt le sol du pied pour briser la formation et se changea en une traînée de fumée verte pour reculer. D'un revers de la main droite, il lança le piège à bêtes. Dans un sifflement strident, il se changea en crapaud de tonnerre qui cracha aussitôt une énorme boule de foudre, laquelle fonça vers l'empreinte.
 
 Simultanément, Wang Lin agita la main et le drapeau de restriction apparut dans sa paume. Une multitude de gaz de restriction jaillit en rugissant, dont le grondement porta à plus de dix kilomètres, tandis que Wang Lin, à l'intérieur, verrouillait son regard sur Papillon Rouge.
 
@@ -78,7 +78,7 @@ Le gaz de restriction gelé se libéra de la glace pour rejoindre le javelot, au
 
 Simultanément, sous le contrôle de Wang Lin, de plus en plus de gaz s'échappait du drapeau pour s'unir au javelot tandis qu'il transperçait la lumière bleue, rendant sa couleur encore plus sombre et féroce.
 
-« Ton maître est toujours vivant, et pourtant tu t'es vendue à Suzaku! Tu es infidèle! »
+« Ton maître est toujours vivant, et pourtant tu t'es vendue au Pays de Suzaku! Tu es infidèle! »
 
 Ce javelot était l'attaque la plus puissante que le drapeau de restriction pouvait déchaîner une fois pleinement accompli. Il utilisait toutes ses restrictions. Wang Lin descendit du ciel, entouré d'âmes errantes; la scène donnait l'impression que le firmament s'effondrait.
 
@@ -86,7 +86,7 @@ Le sol se mit à craqueler sous l'effet des fissures spatiales, conférant au ja
 
 La puissance combinée de l'effondrement du ciel et de la déchirure de la terre aurait tué sur le coup un cultivateur de la Formation de l'Âme au stade intermédiaire.
 
-« Tu es ingrate, injuste et infidèle! Quel genre de Dao cultives-tu donc?! Ton cœur Dao est instable! Je veux voir comment ton niveau de culture évoluera à l'avenir! »
+« Tu es ingrate, sans cœur, injuste et infidèle! Quel genre de Dao cultives-tu donc?! Ton cœur Dao est instable! Je veux voir comment ton niveau de culture évoluera à l'avenir! »
 
 Même Chi Hu recula involontairement de quelques pas, les yeux écarquillés par le choc. Il ne s'attendait pas à ce que Ceng Niu possède une technique aussi terrifiante.
 
@@ -98,7 +98,7 @@ Wang Lin avançait sans relâche tandis que Papillon Rouge ne faisait que recule
 
 L'intention de tuer embrasa les yeux de Papillon Rouge. En tant que génie de Xue Yu, elle n'avait jamais connu un moment aussi humiliant depuis sa naissance. Autrefois, dès qu'elle utilisait sa sculpture de glace, même des cultivateurs au stade avancé de la Formation de l'Âme fuyaient en panique.
 
-De plus, Suzaku lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
+De plus, le Pays de Suzaku lui accordait une attention particulière, ce qui l'avait rendue quelque peu orgueilleuse.
 
 Le javelot de Wang Lin la terrifiait. Ce n'était pas tant sa puissance brute, mais l'énergie mystérieuse qui le composait; elle ressemblait presque à un éclat de foudre de la Rétribution Divine!
 
@@ -132,8 +132,8 @@ Papillon Rouge resta silencieuse et lança le pétale de fleur qui vola lentemen
 
 Chi Hu cria: « Papillon Rouge! »
 
-Les yeux de Wang Lin s'illuminèrent; il frappa son sac de stockage et une autre bannière de restriction apparut aussitôt. La bannière quitta sa main pour s'élancer dans les airs.
+Les yeux de Wang Lin s'illuminèrent; il frappa son sac de stockage et un autre drapeau de restriction apparut aussitôt. Le drapeau quitta sa main pour s'élancer dans les airs.
 
 « Rétribution Divine! » À moins d'une nécessité absolue, Wang Lin ne souhaitait pas attirer la foudre de la rétribution divine. Un tel événement provoquerait inévitablement l'effondrement du fragment, et il ignorait s'il aurait la chance de s'en échapper cette fois-ci.
 
-La bannière de restriction s'éleva vers le ciel et se transforma en un nuage de brume noire qui enveloppa tout dans un rayon de 5 kilomètres.
+Le drapeau de restriction s'éleva vers le ciel et se transforma en un nuage de brume noire qui enveloppa tout dans un rayon de 5 kilomètres.

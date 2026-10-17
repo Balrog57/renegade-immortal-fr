@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 395 - The most talented person on planet Suzaku
 slug: lindividu-le-plus-talentueux-de-la-planete-suzaku
 ---
-À l'instant même où Wang Lin recula, les boules de glace restantes s'élancèrent vers lui et l'impacta violemment.
+À l'instant même où Wang Lin recula, les boules de glace restantes s'élancèrent vers lui et l'impactèrent violemment.
 
 Bang! Bang!
 
@@ -78,7 +78,7 @@ Wang Lin ne paniqua nullement et déclara calmement: « L'autodestruction d'un c
 
 Sur ces mots, il tendit sa main droite et une faille spatiale apparut. Des vagues de vent destructeur s'échappèrent de la brèche, mais elles n'eurent aucun effet sur Wang Lin.
 
-Li Yuanfeng commença à lutter. Bien qu'il fût d'une obstination farouche, il était né à Xue Yue et entretenait un attachement émotionnel profond envers sa patrie.
+Li Yuanfeng commença à lutter. Bien qu'il fût égoïste, il était né à Xue Yue et entretenait un attachement émotionnel profond envers sa patrie.
 
 Après un court instant, il esquissa un sourire amer. Il ignorait s'il parviendrait à blesser Ceng Niu, mais Xue Yue disparaîtrait indubitablement de la planète.
 
@@ -90,7 +90,7 @@ Li Yuanfeng ne résista pas et laissa échapper un soupir léger. Il embrassa un
 
 Wang Lin murmura: « Extraction de l'âme! »
 
-Le corps de Li Yuanfeng commença soudainement à rétrécir de façon spectaculaire. En un instant, il ne fut plus qu'un amas d'os.
+Le corps de Li Yuanfeng commença soudainement à rétrécir de façon spectaculaire. En un instant, il ne fut plus que peau et os.
 
 Une sphère de lumière pourpre et dorée s'échappa de son front.
 
@@ -98,13 +98,13 @@ Une sphère de lumière pourpre et dorée s'échappa de son front.
 
 Li Yuanfeng, un pilier d'une génération entière, venait de s'éteindre ainsi!
 
-Wang Lin réfléchit un instant avant de ramasser les deux bras encore prisonniers des cloches, puis il s'envola vers la stratosphère.
+Wang Lin réfléchit un instant avant de ramasser les deux bras encore prisonniers des cloches, puis il s'envola vers le ciel.
 
 Tous les cultivateurs au stade de la Formation de l'Âme avaient suivi le combat via leur Sens Divin. En voyant Li Yuanfeng périr, une vague d'indignation les submergea.
 
 Alors qu'il flottait dans les cieux, le Sens Divin de Wang Lin balaya Xue Yue pour diffuser un message impérieux:
 
-« À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yue, et aucune secte de culture ne pourra y subsister, sous peine de voir mon retour! »
+« À compter de ce jour, aucun cultivateur du stade de la Formation de l'Âme ou supérieur n'est autorisé à résider à Xue Yue, et aucune secte de culture ne pourra y subsister, sans quoi je reviendrai! »
 
 Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réincarnation du Cycle de la Vie et de la Mort apparut une fois de plus dans le ciel. Plus d'une dizaine de rayons de gaz gris jaillirent pour pénétrer le corps de chaque cultivateur de Formation de l'Âme présent à Xue Yue.
 
@@ -112,11 +112,11 @@ Le domaine de son âme originelle s'activa de nouveau et le Parchemin de la Réi
 
 D'un seul mot, la culture de tous les experts de la Formation de l'Âme fut verrouillée, tout comme Li Yuanfeng avait scellé celle de Wang Lin.
 
-Deux marques furent imprimées sur le front des cultivateurs: l'une claire et l'autre sombre, représentant la vie et la mort. Leur niveau de culture s'effondra brutalement.
+Deux marques furent imprimées sur le front des cultivateurs: l'une légère et l'autre profonde, représentant la vie et la mort. Leur niveau de culture s'effondra brutalement.
 
 Une fois sa tâche accomplie, Wang Lin frappa son sac de rangement et la bête moustique apparut pour l'emporter au loin.
 
-À la suite de ce combat, la nouvelle de la réapparition de Ceng Niu se propagea comme une traînée de poudre. Sa position de plus puissant être sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre; certains allaient même jusqu'à prétendre qu'il avait déjà atteint ce niveau.
+À la suite de ce combat, la nouvelle de la réapparition de Ceng Niu se propagea comme une traînée de poudre. Sa position de plus puissant être sous le stade de la Transformation de l'Âme était désormais gravée dans le marbre; beaucoup étaient même convaincus qu'il avait déjà atteint ce niveau.
 
 Nul ne doutait de sa puissance: il avait vaincu le cultivateur de Transformation de l'Âme Li Yuanfeng, scellé tous les experts de la Formation de l'Âme de Xue Yue et contraint un pays de culture de rang 5 à rétrograder au rang 3.
 
@@ -126,7 +126,7 @@ Ces événements laissèrent tous ceux qui en entendirent parler dans un état d
 
 À ses côtés, un homme se tenait respectueusement. Ce dernier avait le visage large et de grandes oreilles; si Wang Lin avait été présent, il l'aurait immédiatement reconnu.
 
-« Ce Ceng Niu est vraiment redoutable pour avoir terrassé un cultivateur de Transformation de l'Âme. Il n'est pas simple du tout; ce vieil homme avait vraiment vu juste à l'époque, haha! » Le vieillard se frotta le menton et dit à son compagnon: « Ceng Niu a aidé à transformer Xue Yue en un pays de rang 3, tu devrais lui rendre la pareille. Prends mon chapeau de paille et va affronter Liu Mei. Même si tu ne fais pas son poids, tu pourras au moins t'enfuir. Vérifie jusqu'à quel stade son Domaine de l'Indifférence aux Mille Émotions a progressé. »
+« Ce Ceng Niu est vraiment redoutable pour avoir terrassé un cultivateur de Transformation de l'Âme. Il n'est pas simple du tout; ce vieil homme avait vraiment vu juste à l'époque, haha! » Le vieillard se frotta le menton et dit à son compagnon: « Ceng Niu t'a aidé à faire de Xue Yue un pays de rang 3, tu devrais lui rendre la pareille. Prends mon chapeau de paille et va affronter Liu Mei. Même si tu ne fais pas son poids, tu pourras au moins t'enfuir. Vérifie jusqu'à quel stade son Domaine de l'Indifférence aux Mille Émotions a progressé. »
 
 L'homme aux grandes oreilles acquiesça respectueusement. Il tourna le regard vers Xue Yue, affichant une expression de mélancolie et de nostalgie.
 
@@ -140,7 +140,7 @@ Il prit une profonde inspiration et disparut.
 
 « La nouvelle du combat entre Ceng Niu et Li Yuanfeng a parcouru toute la planète Suzaku. Forcer un pays de rang 5 à devenir un pays de rang 3 est un événement majeur. Presque chaque cultivateur de la planète en est informé. »
 
-À cet instant, dans les montagnes reculées du Mont Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Ceng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan des Démons Géants, alors seulement, tu seras à peine digne d'être mon adversaire... »
+À cet instant, dans la zone interdite de l'arrière-montagne du Mont Suzaku, au pays de Suzaku, Qian Feng broya le jade de transmission sonore qu'il tenait en main. Ses yeux brillèrent et, après un silence, il murmura: « Ceng Niu... tuer Li Yuanfeng n'est rien. Ce n'était qu'un déchet qui avait atteint la Transformation de l'Âme par la force. Si tu parviens à terrasser l'ancêtre du Clan des Démons Géants, alors seulement, tu seras à peine digne d'être mon adversaire... »
 
 Derrière lui, Papillon Rouge se tenait silencieusement, le regard vide de toute vie.
 

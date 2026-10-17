@@ -10,9 +10,9 @@ Wang Lin passa la nuit à condenser l'aura maléfique qui l'entourait. Dans le s
 
 Peu à peu, le soleil s'éleva dans le ciel et le jour remplaça la nuit.
 
-Wang Lin ouvrit les yeux. Il regarda vers l'est et prit une profonde inspiration. Deux dragons de qi violets, invisibles aux yeux des mortels, pénétrèrent dans son corps. Les deux dragons de qi effectuèrent un cycle complet à travers lui avant d'en ressortir.
+Wang Lin ouvrit les yeux. Il regarda vers l'est et prit une profonde inspiration. Deux dragons de qi violets, invisibles aux yeux des mortels, pénétrèrent dans son corps par les narines. Les deux dragons de qi effectuèrent un cycle complet à travers lui avant d'être recrachés par sa bouche.
 
-Le cycle se poursuivit. Wang Lin sentait son corps d'une légèreté absolue, comme s'il pouvait s'élever et marcher directement vers le ciel.
+Le cycle se poursuivit. Wang Lin sentait son corps d'une légèreté absolue, comme s'il pouvait fouler le vide et s'élever tout droit.
 
 Ce genre de sensation était quelque chose que Wang Lin n'avait jamais éprouvé au cours des 400 dernières années. Il était évident qu'il ne pouvait ressentir cette aura céleste qu'en atteignant un certain état de sérénité mentale.
 
@@ -42,7 +42,7 @@ Tout en suivant le groupe, Wang Lin s'adapta progressivement et finit par se fon
 
 Wang Lin ne put s'empêcher de sourire amèrement en voyant l'éclat dans les yeux de la jeune fille. Il avait vu cet éclat dans les yeux de Li Muwan à maintes reprises, il savait donc exactement ce qui se passait.
 
-Toutefois, Wang Lin savait qu'il était peut-être trop vieux pour être son ancêtre, ce qui lui laissait un sentiment étrange au fond du cœur.
+Toutefois, Wang Lin songeait que, par son âge, il aurait pu être son ancêtre et bien au-delà, ce qui lui laissait un sentiment étrange au fond du cœur.
 
 Ce jour-là, la capitale apparut devant eux.
 
@@ -60,29 +60,29 @@ Wang Lin s'intéressa de près à ces étranges édifices. Alors que le groupe p
 
 Wang Lin caressa son cheval et demanda: « Frère Lu, que sont ces piliers noirs? »
 
-Lu Xing afficha un air d'envie et murmura: « Ce sont les piliers immortels. Cet endroit est la capitale de mon pays, elle est donc protégée par des immortels, ce qui explique leur présence. Le roi a recruté les meilleurs artisans du pays pour façonner ces neuf piliers selon les exigences des immortels. »
+Lu Xing afficha un air d'envie et murmura: « Ce sont les piliers immortels. Cet endroit est la capitale de mon pays, elle est donc protégée par des immortels, qui ont fait descendre un décret immortel. Le roi a rassemblé les artisans de tout le pays et, selon les exigences de ce décret, a fait ériger ces neuf piliers. »
 
 « Des piliers immortels... » L'expression de Wang Lin était singulière.
 
-« Des immortels vivent à l'intérieur! Mon père a lui-même vu des immortels s'envoler de ces piliers », ajouta Lu Xing d'une voix fière, comme si le fait que son père ait aperçu un immortel était un honneur qui lui rejaillissait.
+« Des immortels vivent à l'intérieur! Dans sa jeunesse, mon père a lui-même vu des immortels s'envoler de ces piliers », ajouta Lu Xing d'une voix fière, comme si le fait que son père ait aperçu un immortel était un honneur qui lui rejaillissait.
 
-S'il avait su que Wang Lin, avec qui il avait passé les sept derniers jours, était des milliers de fois plus puissant que les immortels que son ancêtre avait vus, quel effet cela aurait-il eu sur lui?
+S'il avait su que Wang Lin, avec qui il avait passé les sept derniers jours, était des centaines, voire des milliers de fois plus puissant que l'immortel que son ancêtre avait vu, quel effet cela aurait-il eu sur lui?
 
 Il faut dire que si le cultivateur aperçu par son ancêtre était présent, celui-ci devrait respectueusement appeler Wang Lin « Senior ».
 
 Wang Lin détourna le regard. Il sourit, mais resta silencieux.
 
-Sur un pont reliant les quartiers nord et sud de la capitale, Wang Lin prit congé du groupe de Lu Xing. Bien qu'ils ne se soient pas connus longtemps, Lu Xing s'était beaucoup attaché à lui. Il lui tapota la poitrine en lui assurant que s'il rencontrait le moindre problème, il pourrait venir le trouver pour obtenir de l'aide.
+Sur un pont reliant les quartiers nord et sud de la capitale, Wang Lin prit congé du groupe de Lu Xing. Bien qu'ils ne se soient pas connus longtemps, Lu Xing s'était beaucoup attaché à lui. Il se tapota la poitrine en lui assurant que s'il rencontrait le moindre problème, il pourrait venir le trouver pour obtenir de l'aide.
 
-Quant à Lao Er, qui avait dû céder son cheval à Wang Lin, il l'avait pleinement accepté après avoir tant bu avec lui. Il promit lui aussi que si quelqu'un s'en prenait à Wang Lin, il interviendrait en personne.
+Quant à Sun Laoer, qui avait dû céder son cheval à Wang Lin, il l'avait pleinement accepté après avoir tant bu avec lui. Il promit lui aussi que si quelqu'un s'en prenait à Wang Lin, il interviendrait en personne.
 
 Enfin, le vieil homme sortit de la calèche. Derrière lui se tenait une jeune dame portant un voile blanc sur la tête, accompagnée de la jolie servante.
 
 Voyant que Wang Lin s'apprêtait à partir, les yeux de la servante se remplirent de mélancolie.
 
-Le vieil homme discuta brièvement avec Wang Lin tandis que la dame voilée souriait. Elle ne prit pas part à la conversation. Après une révérence, elle se détourna et partit sans un mot.
+Le vieil homme discuta brièvement avec Wang Lin. La dame voilée ne s'avança pas ; elle fit seulement une légère révérence en direction de Wang Lin, resté à distance, puis, sans un mot, se détourna et remonta dans la calèche.
 
-La servante échangea quelques mots avec la dame, puis, saisissant une petite bourse, s'approcha de Wang Lin. Elle lui tendit l'objet en disant: « Ma maîtresse veut vous remercier. Il y a dix pièces d'or ici. C'est votre prix de consultation. »
+La servante échangea quelques mots avec la dame, puis, saisissant une bourse de soie glacée, s'approcha de Wang Lin. Elle lui tendit l'objet en disant: « Ma maîtresse veut vous remercier. Il y a dix pièces d'or ici. C'est votre prix de consultation. »
 
 Wang Lin ne refusa pas. Cela faisait plus de 400 ans qu'il n'avait pas touché la monnaie des mortels.
 
@@ -98,7 +98,7 @@ Bien que le niveau le plus élevé ne soit que d'environ la 12e ou la 13e couche
 
 Après réflexion, il repensa aux piliers noirs. Il devina qu'il s'agissait là d'une particularité des pays de culture de rang 4.
 
-Wang Lin déambula tranquillement dans les rues jusqu'en après-midi. Il était évident que certaines boutiques n'étaient pas destinées aux mortels, puisqu'elles vendaient des trésors magiques pour les cultivateurs. Des restrictions à l'entrée de ces magasins empêchaient les mortels d'y pénétrer. Les habitants de la capitale semblaient en avoir conscience, car aucun ne tentait d'entrer.
+Wang Lin déambula tranquillement dans les rues jusqu'en après-midi. Il était évident que certaines boutiques n'étaient pas destinées aux mortels, puisqu'elles vendaient des tablettes de jade, des trésors magiques et autres objets pour les cultivateurs. Des restrictions à l'entrée de ces magasins empêchaient les mortels d'y pénétrer. Les habitants de la capitale semblaient en avoir conscience, car aucun ne tentait d'entrer.
 
 En passant, Wang Lin entrait dans certaines boutiques pour les examiner. Soudain, alors qu'il sortait de l'une d'elles, des cris retentirent. Il regarda et vit un vieillard débraillé en train de se faire rouer de coups.
 
@@ -106,7 +106,7 @@ Les gémissements du vieil homme étaient incessants et sa voix était stridente
 
 Après avoir frappé le vieillard à plusieurs reprises, l'agresseur se redressa et cracha: « Vieux débris, ne reviens plus dans ma boutique! Je te tabasserai à chaque fois que tu oseras revenir. Tu es déjà si vieux et pourtant toujours aussi dépravé! » Sur ces mots, il cracha sur le vieil homme.
 
-Un homme d'âge moyen, debout près de Wang Lin, soupira: « Ce vieux fou se fait battre tous les jours juste pour voir les servantes changer de tenue. Est-ce que ça en vaut la peine? Ah! »
+Un homme d'âge moyen, debout près de Wang Lin, soupira: « Hélas, les mœurs se perdent. Ce vieux fou se fait battre presque tous les jours juste pour voir les femmes de la maison changer de tenue. Est-ce que ça en vaut la peine? Ah! »
 
 Wang Lin fut stupéfait. Il observa le vieil homme avant de se détourner pour partir.
 
@@ -114,15 +114,15 @@ Mais après seulement quelques pas, il se retourna et vit le vieillard marcher f
 
 Wang Lin s'écarta sur le côté, le regard devenu glacial.
 
-Le vieil homme passa devant lui sans s'arrêter, avant de faire volte-face soudainement. Son visage était empreint de surprise alors qu'il examinait attentivement Wang Lin: « Petit frère, je vois que tu es plein de talent et d'énergie. Tu ne sembles pas être un mortel! »
+Le vieil homme passa devant lui sans s'arrêter, avant de faire volte-face soudainement. Son visage était empreint de surprise alors qu'il examinait attentivement Wang Lin: « Petit frère, je vois que ton front est bien plein et qu'une lumière violette traverse ton corps. Tu n'es assurément pas un mortel! »
 
 Wang Lin fronça les sourcils. Avec son Sens Divin, il voyait aisément que cet homme n'était qu'un simple mortel sans aucune culture. Le corps du vieillard était également couvert de blessures, signes de mauvais traitements constants.
 
 N'ayant aucun intérêt pour cet individu, Wang Lin se détourna et s'en alla. Si ce vieil homme continuait à l'importuner, il n'hésiterait pas à l'envoyer en enfer.
 
-Le vieil homme afficha un air de pitié et secoua la tête: « S'il n'y a aucun moyen de vous donner des conseils, alors vous ne pourrez peut-être jamais atteindre le stade de la Formation de l'Âme. Soupir. »
+Le vieil homme afficha un air de pitié et secoua la tête: « Si personne ne te guide, tu ne pourras peut-être jamais atteindre le stade de la Formation de l'Âme de toute ta vie. Quel dommage. »
 
-Wang Lin s'arrêta net. Toute la pression contenue dans son corps fut brusquement libérée. Il se retourna et fixa le vieil homme: « Qui êtes-vous? » demanda-t-il.
+Wang Lin s'arrêta net. Toute l'aura de son corps se déchaîna soudain. Il se retourna lentement et fixa le vieil homme: « Qui êtes-vous? » demanda-t-il d'un ton glacial.
 
 Le vieillard ne ressentit aucun inconfort face à l'aura de Wang Lin. Il plaça ses mains derrière son dos, leva les yeux vers le ciel et, d'une voix empreinte de sagesse séculaire, répondit: « Tu n'as pas besoin de savoir qui je suis. Tu as juste besoin de savoir que je peux t'aider à atteindre la Formation de l'Âme. »
 
@@ -144,15 +144,15 @@ Wang Lin ne dit mot et se contenta de boire son vin. Son regard balaya le vieill
 
 Après un moment, Wang Lin finit par dire froidement: « Je vous écoute. »
 
-Le vieil homme saisit un morceau d'épaule de porc, prit une grande bouchée et répondit: « Attends... laisse-moi finir ce morceau. »
+Le vieil homme saisit un jarret de porc, prit une grande bouchée et répondit: « Attends... laisse-moi finir ce morceau. »
 
-Il dévora ensuite l'épaule de porc en quelques bouchées. Il laissa échapper un rot, se frotta le ventre et déclara: « Le stade de la Formation de l'Âme exige que l'on comprenne les cieux, mais je crois que tu as déjà compris cela. En plus de cela, tu dois former un domaine. Sais-tu ce qu'est un domaine? Petit gars, une fois que tu comprendras ce qu'est un domaine, tu ne seras plus loin de la Formation de l'Âme. Quant au domaine... nous en parlerons davantage après mon passage aux toilettes. » Le vieil homme se toucha soudainement le ventre et se leva, l'air maussade.
+Il dévora ensuite le jarret de porc en quelques bouchées. Il laissa échapper un rot, s'essuya les mains sur ses vêtements et déclara: « Le stade de la Formation de l'Âme exige que l'on comprenne les cieux, mais je crois que tu as déjà compris cela. En plus de cela, tu dois former un domaine. Sais-tu ce qu'est un domaine? Petit gars, une fois que tu comprendras ce qu'est un domaine, tu ne seras plus loin de la Formation de l'Âme. Quant au domaine... nous en parlerons davantage après mon passage aux toilettes. » Le vieil homme se toucha soudainement le ventre et se leva, l'air maussade.
 
 Craignant que Wang Lin ne le retienne, il lâcha un pet sonore. Une odeur fétide emplit la pièce.
 
 Le vieil homme esquissa un sourire embarrassé et quitta précipitamment les lieux.
 
-Wang Lin agita la main pour qu'une bourrasque de vent dissipe l'odeur. Simultanément, son Sens Divin se verrouilla sur le vieillard. Les actions de ce dernier étaient extrêmement suspectes, mais ses paroles concernant la Formation de l'Âme concordaient avec les connaissances de Wang Lin. C'étaient des choses qu'un mortel ne pouvait absolument pas savoir.
+Wang Lin agita la main pour qu'une légère brise dissipe l'odeur. Simultanément, son Sens Divin se verrouilla sur le vieillard. Les actions de ce dernier étaient extrêmement suspectes, mais ses paroles concernant la Formation de l'Âme concordaient avec les connaissances de Wang Lin. C'étaient des choses qu'un mortel ne pouvait absolument pas savoir.
 
 Le doute s'installa, une lueur froide brillant dans ses yeux alors qu'il se levait. Il remarqua le vieillard quitter le restaurant par la porte arrière pour se fondre rapidement dans la foule.
 
@@ -164,13 +164,13 @@ Alors qu'il marchait, le vieil homme s'arrêta soudainement pour observer un hom
 
 L'homme de robe violette se retourna, fronça les sourcils face au vieillard, puis décida de l'ignorer.
 
-Le vieil homme lança soudain: « Petit frère, je vois que tu es plein de talent et d'énergie. Tu ne sembles pas être un mortel! »
+Le vieil homme lança soudain: « Petit frère, je vois que ton front est bien plein et qu'une lumière violette traverse ton corps. Tu n'es assurément pas un mortel! »
 
 L'homme fut stupéfait. Il se retourna et fixa le vieillard d'un regard glacial.
 
 Le vieil homme eut un air de pitié et secoua la tête: « Malheureusement, sans guide pour t'orienter, tu n'atteindras peut-être jamais le stade de la Formation du Noyau. »
 
-Les yeux de l'homme s'illuminèrent et il demanda: « Qui diable êtes-vous? »
+Les yeux de l'homme brillèrent et il demanda d'une voix grave: « Qui êtes-vous? »
 
 Le vieil homme secoua la tête: « Ce que je suis n'est pas important. Et si nous trouvions un endroit pour nous détendre? Nous pourrons discuter pendant ce temps. »
 
@@ -182,7 +182,7 @@ Le plus intrigant restait cette capacité de l'homme à percer instantanément l
 
 Wang Lin suivit le vieillard tout l'après-midi, voulant découvrir son secret.
 
-En une après-midi, le vieillard avait escroqué quatre personnes, dont Wang Lin. Ce qui était fascinant, c'est qu'il ne réclamait que de la nourriture et du vin. Dans le pire des cas, il s'agissait d'une visite dans un bordel.
+En un après-midi, le vieillard avait escroqué quatre personnes, dont Wang Lin. Ce qui était fascinant, c'est qu'il ne réclamait que de la nourriture et du vin. Dans le pire des cas, il s'agissait d'une visite dans un bordel.
 
 Mais les trois autres, y compris l'homme en robe violette, n'avaient aucune intention de se venger. Il semblait que les paroles du vieillard possédaient une sorte de pouvoir magique sur eux.
 
@@ -200,4 +200,4 @@ Une fois les pensées sur le vieillard dissipées, Wang Lin réfléchit à nouve
 
 S'il voulait atteindre le stade de la Formation de l'Âme, il devait d'abord se transformer en mortel pour expérimenter la vie humaine et comprendre les cieux. C'était une méthode que Wang Lin avait conçue pour briser les limites de l'Âme Naissante. Il observa calmement la boutique, puis s'assit en tailleur dans la pièce arrière et commença à s'imprégner du monde des mortels.
 
-Le Wang Lin actuel était camouflé au sein de la capitale peuplée, entamant calmement sa compréhension des cieux, de la vie et de la mort. Il se préparait pleinement à franchir la frontière de l'Âme Naissante pour atteindre le stade de la Formation de l'Âme.
+Comme le dit l'adage, le petit ermite se cache dans la campagne, le grand ermite dans la cité. Le Wang Lin actuel était camouflé au sein de la capitale peuplée, entamant calmement sa compréhension des cieux, de la vie et du cycle des renaissances. Il se préparait pleinement à franchir la frontière de l'Âme Naissante pour atteindre le stade de la Formation de l'Âme.

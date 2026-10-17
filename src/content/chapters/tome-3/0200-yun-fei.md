@@ -6,9 +6,9 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 200 - Yun Fei
 slug: yun-fei
 ---
-Dans la Mer des Diables, parmi les étoiles brisées et chaotiques.
+Dans la Mer des Démons, parmi les Étoiles Brisées du Chaos.
 
-C'était un anneau formé de nombreuses planètes dévastées et gigantesques. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter de nombreux avatars possédant le même niveau de culture que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
+C'était un anneau formé de nombreuses planètes dévastées et gigantesques. Une force mystérieuse régnait en ce lieu. Que l'on veuille entrer ou sortir, il fallait affronter plusieurs copies possédant le même niveau de culture que soi. Seule la victoire permettait de franchir cet anneau mystérieux. Cet endroit était également extrêmement dangereux, ce qui explique pourquoi peu de gens s'y aventuraient.
 
 Deux épées de lumière fonçaient vers ce lieu, l'une suivant l'autre. L'épée de tête était nettement moins éclatante. À l'intérieur de la lumière se trouvait une jeune femme aux lèvres serrées et au visage pâle. Elle portait des vêtements rouge et vert; sa taille était fine et elle était d'une grande beauté.
 
@@ -16,19 +16,19 @@ Dans la lumière qui la suivait, un homme d'âge moyen au visage carré et aux s
 
 L'épée sous ses pieds était très stable. Il ne semblait pas fournir d'effort particulier dans cette poursuite. Tandis qu'il contemplait la femme, son regard se fit plus froid.
 
-Ces deux lueurs, l'une derrière l'autre, se rapprochaient rapidement de la cible. La jeune femme regarda les étoiles brisées et chaotiques qui se dressaient devant elle, et une idée lui traversa l'esprit. Elle fuyait depuis près d'un mois, et durant ce dernier mois, peu importe où elle allait, cet homme restait sur ses talons. Si elle n'avait pas utilisé la technique secrète de son maître pour s'échapper, elle aurait déjà été capturée.
+Ces deux lueurs, l'une derrière l'autre, se rapprochaient rapidement de la cible. La jeune femme regarda les Étoiles Brisées du Chaos qui se dressaient devant elle, et l'amertume monta dans son cœur. Elle fuyait depuis près d'un mois, et durant ce dernier mois, peu importe où elle allait, cet homme restait sur ses talons. Si elle n'avait pas utilisé la technique secrète de sa secte pour s'échapper, elle aurait déjà été capturée.
 
-Mais l'usage de cette technique secrète exigeait trop de puissance spirituelle. Après l'avoir employée à plusieurs reprises, elle ne pouvait plus se le permettre. Sous la pression, elle paniqua et ne fit plus attention à sa direction. Sans s'en rendre compte, elle avait abouti aux étoiles brisées et chaotiques.
+Mais l'usage de cette technique secrète exigeait trop de puissance spirituelle. Après l'avoir employée à plusieurs reprises, elle ne pouvait plus se le permettre. Sous la pression, elle paniqua et ne fit plus attention à sa direction. Sans s'en rendre compte, elle avait abouti aux Étoiles Brisées du Chaos.
 
 Lorsqu'elle s'en aperçut, elle voulut changer de trajectoire, mais c'est à cet instant que l'homme la rattrapa de nouveau. Impuissante, elle ne pouvait qu'avancer. Bientôt, les deux se rapprochèrent de plus en plus de l'anneau formé par les étoiles dévastées.
 
-Elle savait au fond d'elle que l'homme derrière elle ne déployait pas toute sa force; il jouait avec elle pour la contraindre à continuer d'avancer. Elle devait redoubler de prudence pour ne pas pénétrer dans l'anneau des étoiles brisées, mais la distance devenait de plus en plus courte.
+Elle savait au fond d'elle que l'homme derrière elle ne déployait pas toute sa force; il jouait avec elle pour la contraindre à continuer d'avancer. Il avait sûrement calculé qu'elle n'entrerait pas dans l'anneau des étoiles brisées; plus elle s'en approchait, plus la pression dans son cœur grandissait.
 
-Qian Kun la poursuivait avec désinvolture. Il n'avait qu'une idée en tête: l'objet qu'elle possédait. Si elle n'avait pas soudainement utilisé cette technique d'évasion à plusieurs reprises, il l'aurait déjà capturée; mais désormais, dans sa panique, elle se précipitait elle-même vers les étoiles brisées et chaotiques. C'était comme si le ciel lui-même l'aidait. En y pensant, son sourire s'élargit et devint plus glacial encore.
+Qian Kun la poursuivait avec désinvolture. Il n'avait qu'une idée en tête: l'objet qu'elle possédait. Si elle n'avait pas soudainement utilisé cette technique d'évasion à plusieurs reprises, il l'aurait déjà capturée; mais désormais, dans sa panique, elle se précipitait elle-même vers les Étoiles Brisées du Chaos. C'était comme si le ciel lui-même l'aidait. En y pensant, son sourire s'élargit et devint plus glacial encore.
 
-La voix sombre de Qian Kun résonna lentement: « Yun Fei, devant toi se trouvent les étoiles brisées et chaotiques. Dans la Mer des Diables, cet endroit est extrêmement dangereux. Jusqu'à présent, personne n'a jamais réussi à le traverser par simple chance. Veux-tu tenter l'expérience? »
+La voix sombre de Qian Kun résonna lentement: « Yun Fei, devant toi se trouvent les Étoiles Brisées du Chaos. Dans la Mer des Démons, cet endroit est extrêmement dangereux. Jusqu'à présent, personne n'a jamais réussi à le traverser par simple chance. Veux-tu tenter l'expérience? »
 
-Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à 16 mètres des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Aîné, junior est arrivée ici par accident. Pourquoi devez-vous absolument me tuer? »
+Le visage de la femme devint plus pâle et l'amertume dans son cœur s'intensifia. Lorsqu'elle fut à 16 mètres des étoiles brisées, elle s'arrêta brusquement et se retourna. Elle fixa Qian Kun d'un regard désespéré. Serrant les dents, elle dit: « Aîné, cette junior est une malheureuse; elle a eu la chance de s'échapper de là-bas. Pourquoi devez-vous absolument me tuer? »
 
 La bouche de Qian Kun eut un tressaillement. L'épée sous ses pieds s'immobilisa à 33 mètres de la femme. Il jeta un coup d'œil vers les étoiles brisées derrière elle, esquissa un sourire et dit: « Je n'agis que sur ordre. Tu devrais te blâmer d'avoir pris ce qui ne t'appartenait pas. »
 
@@ -36,19 +36,19 @@ La femme eut un rire amer. Elle sortit un morceau de jade de son sac de rangemen
 
 Le regard de Qian Kun se posa sur le jade. Son expression était empreinte d'avidité. Sa mission consistait à tuer cette femme et à récupérer le jade.
 
-Un sceau placé par le Palais Enchanté marquait ce morceau de jade. Qian Kun savait que même s'il s'en emparait, il ne pourrait pas l'utiliser; il ne pourrait que le restituer. Mais cette femme nommée Yun Fei, bien que son identité fût incertaine, pouvait lire ce jade, sans quoi elle n'aurait jamais eu la chance de le dérober.
+Un sceau placé par le Palais Enchanté marquait ce morceau de jade. Qian Kun savait que même s'il s'en emparait, il ne pourrait pas l'examiner; il ne pourrait que le remettre à ses supérieurs. Mais cette femme nommée Yun Fei, bien que son statut d'alors fût ambigu, pouvait lire ce jade, sans quoi elle n'aurait jamais eu la chance de le dérober.
 
-C'est précisément pour cette raison qu'il ne s'était pas contenté de la tuer, mais l'avait traquée de près.
+C'est précisément pour cette raison qu'il n'avait pas porté de coup mortel auparavant, mais la pressait pas à pas.
 
 Qian Kun déclara d'un ton sombre: « J'ignore si le fait de prendre ce jade affectera ou non le Palais Enchanté, je sais seulement que s'il m'appartient, il me sera extrêmement bénéfique. »
 
-La femme afficha un air audacieux. Elle dit: « Aîné, si vous avez quelque chose à dire, parlez franchement. Voulez-vous que je reproduise le contenu de ce morceau de jade? »
+Le visage de la femme prit une expression résolue. Elle dit: « Aîné, si vous avez quelque chose à dire, parlez franchement. Voulez-vous que je reproduise le contenu de ce morceau de jade? »
 
-Qian Kun ne répondit rien, mais une lueur de joie apparut dans ses yeux. Il savait déjà que cette Yun Fei était la successeure du célèbre Secte Qi Huang. Bien que la Secte Qi Huang ait été détruit par une force mystérieuse, cette femme avait réussi miraculeusement à s'échapper indemne.
+Qian Kun ne répondit rien, mais une lueur de joie apparut dans ses yeux. Il savait déjà que cette Yun Fei était la successeure de la célèbre Secte Qi Huang. Bien que la Secte Qi Huang ait été détruite en une nuit par une force mystérieuse, cette femme avait réussi miraculeusement à s'échapper indemne.
 
-Par la suite, la femme qui détenait ce jade contenant les recettes de pilules les plus précieuses de la Secte Qi Huang fut capturée par le Palais Enchanté et contrainte d'y servir comme concubine. Aujourd'hui, après de nombreuses années, elle avait enfin trouvé l'occasion de s'enfuir avec le jade.
+Par la suite, la femme qui détenait ce jade contenant les recettes de pilules les plus précieuses de la Secte Qi Huang fut capturée par les gens du Palais Enchanté. Endurant l'humiliation, elle devint l'une des concubines du maître du palais. Aujourd'hui, après de nombreuses années, elle avait enfin trouvé l'occasion de s'enfuir avec le jade.
 
-Qian Kun était au stade intermédiaire de la Formation du Noyau. Bien que la voie vers le stade avancé fût étroite, sa technique de culture était très limitée. Il craignait de ne jamais pouvoir franchir ce palier.
+Qian Kun était au stade intermédiaire de la Formation du Noyau. Bien qu'il ne fût plus séparé du stade avancé que par un fil, ses aptitudes étaient limitées et sa technique de culture n'était pas exceptionnelle. Il craignait de ne jamais pouvoir franchir ce palier.
 
 Mais s'il pouvait mettre la main sur ce jade et fabriquer des pilules grâce aux recettes qu'il contenait, il serait capable d'atteindre le stade avancé de la Formation du Noyau.
 
@@ -64,15 +64,15 @@ Yun Fei prit une profonde inspiration et déclara simplement: « Je demande à l
 
 Qian Kun eut un sourire glacial: « Quelle plaisanterie! Comment saurais-je si le jade que vous me remettez est authentique? Et si vous essayez de me tromper? »
 
-À cet instant, aucun des deux ne remarqua qu'au sein des étoiles brisées et chaotiques se trouvait une fissure d'environ 10 mètres de long, d'où émanaient des ondes d'énergie noire.
+À cet instant, aucun des deux ne remarqua qu'au sein des Étoiles Brisées du Chaos se trouvait une fissure d'environ 10 mètres de long, d'où émanaient des ondes d'énergie noire.
 
-Le visage de Yun Fei se durcit et elle s'apprêtait à parler, mais Qian Kun poursuivit: « Je n'ai pas de temps à perdre avec vous. Remettez-moi le jade et je vous laisserai vivre. Sinon, ne me reprochez pas mon impitoyabilité. Quant au jade, j'en ferai ma perte. » Sur ces mots, il commença à flotter lentement vers l'avant.
+Le visage de Yun Fei se durcit et elle s'apprêtait à parler, mais Qian Kun poursuivit: « Je n'ai pas de temps à perdre avec vous. Remettez-moi le jade et je vous laisserai vivre. Sinon, ne me reprochez pas mon impitoyabilité. Quant au jade, au pire je m'en passerai. » Sur ces mots, il commença à flotter lentement vers l'avant.
 
 La distance de 33 mètres pouvait être parcourue en un éclair, mais Qian Kun avançait avec lenteur, craignant qu'elle ne brise le jade par réflexe, ce qui lui ferait perdre tout espoir.
 
 Yun Fei serra la mâchoire. Elle jeta le jade sur le côté et s'enfuit rapidement pour échapper à Qian Kun.
 
-Soudain, Qian Kun fendit l'air comme l'éclair pour rattraper le jade. Une fois qu'il l'eut saisi, il le scruta avec son Sens Divin, s'en trouvant immédiatement transporté par l'excitation. Après avoir ri de façon démente, il repéra Yun Fei en pleine fuite. Ses yeux brillaient d'une intention malveillante alors qu'il la poursuivait à grands pas.
+Soudain, Qian Kun fendit l'air comme l'éclair pour rattraper le jade. Une fois qu'il l'eut saisi, il le scruta avec son Sens Divin, s'en trouvant immédiatement transporté par l'excitation. Après avoir ri de façon démente, il repéra Yun Fei en pleine fuite. Ses yeux brillaient d'une lueur lubrique et perverse alors qu'il la poursuivait à grands pas.
 
 Cette fois, sa vitesse était manifestement différente: elle était plusieurs fois supérieure à celle d'auparavant.
 
@@ -80,31 +80,31 @@ Bien que Yun Fei s'enfuit de toutes ses forces, elle surveillait secrètement le
 
 Mais bientôt, le désespoir la gagna. Qian Kun n'avait pas tenu sa promesse; il la poursuivait.
 
-Yun Fei ricana intérieurement: « Qian Kun, même si je meurs, si tu utilises ce jade pour raffiner des pilules, tu mourras tragiquement. Tout cela est de ta faute. » Puis elle soupira. Elle cessa de courir et décida d'arrêter son propre cœur.
+Yun Fei ricana intérieurement: « Qian Kun, même si je meurs, si tu utilises ce jade pour raffiner des pilules, tu mourras tragiquement. Tout cela est de ta faute. » Puis elle soupira. Elle cessa de courir, ferma les yeux et se prépara à arrêter son propre cœur.
 
-Voyant que Yun Fei avait cessé de fuir et semblait avoir renoncé à toute résistance, Qian Kun laissa échapper un grand rire et se précipita vers elle. Il lança: « Puisque vous m'avez donné ce jade, je vais vous laisser mourir dans le plaisir. Laissez-moi contempler ce corps pour voir ce qu'il a de si extraordinaire pour fasciner même un maître enchanté. Si vous me servez correctement, je pourrais peut-être même vous laisser vivre... »
+Voyant que Yun Fei avait cessé de fuir et semblait avoir renoncé à toute résistance, Qian Kun laissa échapper un grand rire et se précipita vers elle. Il lança: « Puisque vous êtes si raisonnable, je vais vous laisser mourir dans le plaisir. Laissez-moi contempler ce corps pour voir ce qu'il a de si extraordinaire pour fasciner même mon maître. Si vous me servez correctement, je pourrais peut-être même vous laisser vivre... »
 
-Alors que Qian Kun finissait sa phrase, ses yeux se fixèrent brusquement vers les étoiles brisées et chaotiques. Son regard fut saisi par l'étonnement, qui se mua rapidement en terreur.
+Alors que Qian Kun finissait sa phrase, ses yeux se fixèrent brusquement vers les Étoiles Brisées du Chaos. Son regard fut saisi par l'étonnement, qui se mua rapidement en terreur.
 
-Qian Kun s'interrompit soudainement. Yun Fei renonça à arrêter son cœur. Elle tourna les yeux vers les étoiles brisées et chaotiques. Sa mâchoire décrocha, le visage pétrifié par la stupeur.
+Qian Kun s'interrompit soudainement. Yun Fei renonça à arrêter son cœur. Elle tourna les yeux vers les Étoiles Brisées du Chaos. Sa mâchoire décrocha, le visage pétrifié par la stupeur.
 
 Elle vit qu'au sein de l'anneau des étoiles brisées, une fissure était apparue mystérieusement. La faille s'élargissait rapidement. En un clin d'œil, elle mesurait déjà plus de cent soixante mètres de large. La fissure formait un arc, semblable à la gueule d'une bête, provoquant un frisson glacial chez quiconque la contemplait.
 
-Dans la Mer des Diables, seules des fissures rouges apparaissaient entre les mers intérieure et extérieure; la présence d'une telle faille ici était donc hautement significative. Cette fissure ne se contentait pas de dégager une énergie noire, elle était aussi immense, contrairement aux petites fissures qui séparaient habituellement les deux mers.
+Dans la Mer des Démons, les mers intérieure et extérieure étaient séparées par une brume rouge et des fissures qui apparaissaient par intermittence; les fissures spatiales y avaient donc une signification immense et on n'en parlait qu'avec effroi. Mais même entre les deux mers, il ne s'agissait que de petites fissures.
 
-Mais devant Qian Kun et Yun Fei, la faille était d'une ampleur sans précédent. Dès son apparition, Qian Kun ressentit un picotement à la tête.
+Or celle qui se montrait maintenant devant Qian Kun et Yun Fei était d'une ampleur sans précédent. Dès son apparition, Qian Kun ressentit un picotement à la tête.
 
-Il eut l'instinct immédiat de renoncer à tuer Yun Fei pour s'enfuir de cet endroit. Mais alors que cette pensée l'effleurait, il la réprima aussitôt. Ses yeux brillèrent tandis qu'il fixait l'anneau des étoiles brisées et son cœur se calma. Grâce à la formation en place, peu importe la puissance de ce qui sortirait de la fissure, cela ne pourrait pas franchir l'anneau; il n'avait donc pas besoin de fuir.
+Il eut l'instinct immédiat de renoncer à tuer Yun Fei pour s'enfuir de cet endroit. Mais alors que cette pensée l'effleurait, il la réprima aussitôt. Ses yeux brillèrent tandis qu'il fixait l'anneau des étoiles brisées et son cœur se calma. Grâce à la barrière de l'anneau, peu importe la puissance de ce qui sortirait de la fissure, cela ne pourrait pas franchir l'anneau; il n'avait donc pas besoin de fuir.
 
-Simultanément, la fissure commença à croître davantage. Des vagues de lumière noire s'en échappèrent, accompagnées d'énergies étranges. Bientôt, un jeune homme vêtu d'une cape noire en sortit calmement.
+Soudain, la fissure cessa de s'étendre. Des lueurs noires étranges y scintillèrent, des souffles singuliers s'en échappèrent peu à peu, puis un jeune homme vêtu de noir en sortit, le visage calme.
 
-Ce personnage arborait une chevelure blanche qui flottait derrière lui, lui conférant un air antique, mais ses yeux trahissaient une cruauté implacable.
+Ce personnage arborait une chevelure blanche qui flottait derrière lui sans le moindre vent, lui conférant un air détaché du monde, mais ses yeux trahissaient une insensibilité; en y regardant de près, on y distinguait une lueur grise.
 
 Le détail le plus frappant était l'étoile pourpre sombre sur son front. Cette étoile diffusait une lueur violette, imprégnée d'une énergie démoniaque. Conjuguée à la lumière noire de la fissure derrière lui, il ressemblait à un démon surgissant tout droit des enfers.
 
 Le jeune homme ne se retourna même pas. D'un revers de la main droite, il fit se refermer rapidement la grande fissure. En un clin d'œil, celle-ci disparut totalement, ne laissant que le jeune homme au physique de dieu démon.
 
-Il resta en lévitation dans les airs. Ses yeux exprimèrent un certain regret alors qu'il scrutait l'anneau des étoiles brisées et repérait Qian Kun et Yun Fei.
+Il resta en lévitation dans les airs. Ses yeux exprimèrent une pointe d'émotion alors qu'il scrutait l'anneau des étoiles brisées et repérait Qian Kun et Yun Fei.
 
 Qian Kun fut saisi d'horreur dès l'instant où il vit le jeune homme sortir de la faille. Parce que l'anneau les séparait, il ne pouvait pas scanner le jeune homme avec son Sens Divin. Cependant, même si l'anneau n'avait pas existé, Qian Kun n'aurait jamais osé tenter cela.
 
@@ -112,7 +112,7 @@ Qian Kun fut saisi d'horreur dès l'instant où il vit le jeune homme sortir de 
 
 Dès lors, comment aurait-il osé l'offenser?
 
-Plus important encore, il avait l'impression d'avoir déjà vu cette scène quelque part, sans parvenir à s'en souvenir.
+Plus important encore, il avait l'impression d'avoir déjà entendu parler de cette scène quelque part, sans parvenir à s'en souvenir.
 
 Lorsque le jeune aux cheveux blancs posa son regard sur lui, même à travers les étoiles brisées, ses jambes flanchèrent et il eut envie de fuir, mais il se retint.
 
@@ -122,11 +122,11 @@ De plus, si le jeune homme ne pouvait pas sortir de l'anneau, il serait en sécu
 
 Pensant cela, Qian Kun s'arrêta brusquement et joignit les mains. Il dit respectueusement: « Ce junior est un disciple de la cinquième génération du Palais Enchanté du Roi Poison. Qian Kun salue l'Aîné. »
 
-Le cœur de Yun Fei était affaibli par sa récente expérience de mort imminente et par ce spectacle. Sa conclusion rejoignait celle de Qian Kun, mais elle se disait que si elle fuyait, Qian Kun la tuerait, alors qu'en restant, elle avait peut-être une chance de survivre.
+Mille pensées tourbillonnaient dans l'esprit de Yun Fei, qui venait de frôler la mort et assistait maintenant à ce spectacle saisissant. Sa conclusion rejoignait celle de Qian Kun, mais elle se disait que si elle fuyait, Qian Kun la tuerait, alors qu'en restant, elle avait peut-être une chance de survivre.
 
-Après réflexion, elle dit respectueusement: « Ce junior est Mo Yun de la Secte Qi Huang. Salutations, Aîné. »
+Après réflexion, elle dit respectueusement: « Ce junior est Mo Yun, disciple survivante de la Secte Qi Huang. Salutations, Aîné. »
 
-Le jeune aux cheveux blancs détourna le regard après un coup d'œil glacial. Il se tourna vers l'anneau des étoiles brisées et, après avoir réfléchi un instant, il ouvrit son sac de rangement, faisant apparaître une petite créature dans sa main.
+Le jeune aux cheveux blancs détourna le regard après un coup d'œil glacial. Il se tourna vers l'anneau des étoiles brisées et, après avoir réfléchi un instant, il tapota son sac de rangement, faisant apparaître dans sa main une petite créature de la taille d'une paume.
 
 La bête possédait trois paires d'ailes sur le dos. Ses yeux clairs lui donnaient un air presque doté d'une conscience psychique. Elle s'élança immédiatement vers l'avant.
 
@@ -138,15 +138,15 @@ Lorsque les deux créatures se rencontrèrent, elles poussèrent des cris stride
 
 Le jeune aux cheveux blancs fronça les sourcils. D'un geste de la main, le corps de la petite bête se mit à trembler. Elle se transforma en un petit tourbillon qui sortit de l'anneau pour atterrir sur l'épaule du jeune homme, avant de disparaître d'un nouveau mouvement de sa main.
 
-Ce jeune aux cheveux blancs était Wang Lin. Il avait utilisé la méthode laissée dans la mémoire du Dieu Antique pour ouvrir un tunnel et quitter le territoire de ce dernier.
+Ce jeune aux cheveux blancs était Wang Lin. Il avait utilisé la méthode laissée dans la mémoire de l'Ancien Dieu pour ouvrir un tunnel et quitter le territoire de ce dernier.
 
-En sortant du tunnel, il apparut à l'intérieur de l'anneau des étoiles brisées et chaotiques. Pour partir, il devait franchir cet anneau. D'après les conversations de Duanmu et des autres, il avait une idée de la nature de cette barrière.
+En sortant du tunnel, il apparut à l'intérieur de l'anneau des Étoiles Brisées du Chaos. Pour partir, il devait franchir cet anneau. D'après les conversations de Duanmu et des autres, il avait une idée de la nature de cette barrière.
 
-Il prévoyait d'utiliser la même méthode que pour son entrée, mais ce réseau de transfert était trop complexe; et dans les souvenirs du Dieu Antique, pour une raison inconnue, il n'y avait presque aucune information concernant les réseaux de transfert.
+Il prévoyait d'utiliser la même méthode que pour son entrée, mais ce réseau de transfert était trop complexe; et dans les souvenirs de l'Ancien Dieu, pour une raison inconnue, il n'y avait presque aucune information concernant les réseaux de transfert.
 
-Après réflexion, cela semblait logique. Avec la puissance des Dieux Antiques, il n'était pas nécessaire d'utiliser des réseaux de transfert pour voyager; ils pouvaient simplement ouvrir un trou noir et le traverser.
+Après réflexion, cela semblait logique. Avec la puissance des Anciens Dieux, il n'était pas nécessaire d'utiliser des réseaux de transfert pour voyager; ils pouvaient simplement ouvrir un trou noir et le traverser.
 
-Bien sûr, cela ne signifiait pas qu'aucune information sur les réseaux de transfert ne devait exister dans les souvenirs du Dieu Antique. Sinon, pourquoi ce réseau mystérieux existait-il dans le quatrième royaume?
+Bien sûr, cela ne signifiait pas qu'aucune information sur les réseaux de transfert ne devait exister dans les souvenirs de l'Ancien Dieu. Sinon, pourquoi ce réseau mystérieux existait-il à la quatrième épreuve du territoire de l'Ancien Dieu?
 
 Si c'était le cas, alors Wang Lin avait raison: l'héritage qu'il avait absorbé était incomplet.
 
@@ -154,7 +154,7 @@ Cependant, tout cela n'était que spéculation de la part de Wang Lin. Quant à 
 
 Wang Lin réfléchit un instant. Ses yeux brillèrent de détermination et il chargea vers l'anneau.
 
-Au moment où Wang Lin entra dans l'anneau, bien que Qian Kun gardât une expression calme, son cœur se crispa. Ce n'était pas la première fois qu'il voyait quelqu'un charger ainsi. Des années auparavant, il avait vu un expert de l'Âme Naissante du Lieu Enchanté s'élancer dans l'anneau. Cet homme était mort si tragiquement que même son Âme Naissante n'avait pu s'échapper et fut engloutie par la force mystérieuse.
+Au moment où Wang Lin entra dans l'anneau, bien que Qian Kun gardât une expression calme, son cœur se crispa. Ce n'était pas la première fois qu'il voyait quelqu'un charger ainsi. Des années auparavant, il avait vu un expert de l'Âme Naissante du Palais Enchanté s'élancer dans l'anneau. Cet homme était mort si tragiquement que même son Âme Naissante n'avait pu s'échapper et fut engloutie par la force mystérieuse.
 
 C'est pourquoi, en voyant Wang Lin charger, il concentra toute son attention.
 
@@ -164,11 +164,11 @@ Dès l'entrée de Wang Lin dans l'anneau, plusieurs fragments brisés entrèrent
 
 La copie afficha un sourire froid. Elle ouvrit son sac de rangement et une épée noire en sortit. Cette épée volante était étrange, parsemée de nombreuses pointes; c'était clairement l'épée venimeuse que Wang Lin avait raffinée dans le Chaudron du Roi Poison.
 
-Wang Lin scruta l'épée noire et fut impressionné par la puissance de cette force mystérieuse, capable de copier même des trésors magiques. Même la fissure créée par le Bossu Meng y était présente.
+Wang Lin scruta l'épée noire et fut impressionné par la puissance de cette force mystérieuse, capable de copier même des trésors magiques. Même la fissure laissée sur l'épée par le Bossu Meng démonisé y était présente.
 
 Cette fois, Wang Lin décida de ne pas combattre. Il était là uniquement pour explorer les lieux.
 
-Après que la copie eut sorti l'épée noire, elle poussa un rire sonore et l'arme vola vers Wang Lin. La bouche de Wang Lin eut un tressaillement. Il ouvrit son propre sac et sortit également l'épée noire.
+Après que la copie eut lancé l'épée noire, un sifflement retentit et l'arme fendit l'air vers Wang Lin. La bouche de Wang Lin eut un tressaillement. Il ouvrit son propre sac et sortit également l'épée noire.
 
 Immédiatement, deux épées identiques commencèrent à s'affronter.
 
@@ -186,7 +186,7 @@ Le cœur de Qian Kun faillit s'effondrer lorsque la copie explosa. Le rang de Wa
 
 Le regard de Yun Fei devint plus intense. Elle fixait Wang Lin, qui progressait dans l'anneau, cherchant comment lui demander de l'aide sans risquer d'être rejetée.
 
-Wang Lin avançait avec aisance, mais après n'avoir parcouru que cinq kilomètres, les fragments émit de nouveau une lumière blanche. Une fois la lueur dissipée, deux autres copies apparurent.
+Wang Lin avançait avec aisance, mais après n'avoir parcouru que cinq kilomètres, les fragments émirent de nouveau une lumière blanche. Une fois la lueur dissipée, deux autres copies apparurent.
 
 L'une sortit une épée volante tandis que l'autre déroula un parchemin.
 
@@ -196,6 +196,6 @@ Cependant, l'humeur de Wang Lin ne changea pas. Il resta froid et calme. Dès l'
 
 Cette fois, les deux copies n'utilisèrent pas immédiatement leur propre Royaume Ji, mais commencèrent rapidement à déployer leurs trésors.
 
-Les yeux de Wang Lin brillèrent. Sans aucune hésitation, il chargea les copies. Après avoir expérimenté avec son Royaume Ji, il voulait maintenant tester la puissance de son corps après avoir reçu l'héritage du Dieu Antique et avoir subi sa reconstruction.
+Les yeux de Wang Lin brillèrent. Sans aucune hésitation, il chargea les copies. Après avoir expérimenté avec son Royaume Ji, il voulait maintenant tester la puissance de son corps après avoir reçu l'héritage de l'Ancien Dieu et avoir subi sa reconstruction.
 
 Le corps issu de cette reconstruction serait-il aussi puissant que ce que ses souvenirs lui avaient montré?

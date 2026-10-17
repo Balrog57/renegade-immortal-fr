@@ -10,19 +10,19 @@ Plus de quarante disciples internes se tenaient dans la salle. On y trouvait des
 
 Juste devant eux siégeaient deux rangées de plus de dix Anciens, tous au visage impassible. Au centre trônait un homme d'une quarantaine d'années, vêtu d'une robe bleue, dont le regard était aussi vif que l'éclair. Il demanda: « Jeune frère Sun, est-ce là votre disciple? »
 
-Sun Dazhu afficha promptement un sourire de circonstance et répondit: « Grand frère Ancien, voici mon disciple, Wang Lin. Son entrée dans la secte est tardive, c'est pourquoi il ignore la signification du cinquième coup de cloche. »
+Sun Dazhu afficha promptement un sourire de circonstance et répondit: « Grand frère Chef de secte, voici mon disciple, Wang Lin. Son entrée dans la secte est tardive, c'est pourquoi il ignore la signification des cinq coups de cloche. »
 
 Un homme au visage rubicond, assis sur la droite, ricana: « Le disciple ressemble vraiment à son maître. Il est aussi stupide que vous l'étiez autrefois. »
 
-L'homme à ses côtés éclata de rire: « Tu exagères, mon frère. Le jeune frère Sun possédait au moins un certain talent, il était donc bien plus puissant que son disciple. »
+L'homme à ses côtés éclata de rire: « Tu exagères, mon frère. Le jeune frère Sun possédait au moins un certain talent, il valait donc bien mieux que son disciple. »
 
 Le visage de Sun Dazhu oscilla entre le rouge et le blanc pendant un instant. Il lança un regard sévère à Wang Lin, poussa un grognement mécontent et, ignorant le garçon, retourna s'asseoir.
 
-L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose: « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne de l'arrière-plan. Chacun recevra son propre lieu de culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. »
+L'homme en robe bleue fronça les sourcils. Il jeta un ultime regard sur Wang Lin avant de passer à autre chose: « Comme annoncé précédemment, ces quatre années d'entraînement intensif doivent porter leurs fruits. Nous devons impérativement l'emporter lors de la compétition contre la Secte Xuan Dao. À compter d'aujourd'hui, vous intégrerez la montagne de l'arrière-plan. Chacun aura son propre lieu de culture: retirez-vous-y en méditation fermée pour élever votre culture. Pour cette occasion, la secte mettra à votre disposition 10 000 pilules de rassemblement de Qi. Aucun d'entre vous n'est autorisé à quitter la montagne durant cette période. Vous l'avez bien retenu? »
 
 Tous les disciples internes répondirent d'une seule voix.
 
-L'homme en robe bleue acquiesça et poursuivit: « J'espère que dans quatre ans, l'un d'entre vous portera des vêtements violets. Un disciple vêtu de violet est un disciple central, bien plus important que les disciples internes. Enfin, laissez tomber, vous le comprendrez par vous-mêmes. À présent, partez tous vers la montagne de l'arrière-plan; quelqu'un vous conduira à votre terrain de culture. »
+L'homme en robe bleue acquiesça et poursuivit: « J'espère que dans quatre ans, l'un d'entre vous portera des vêtements violets. Un disciple vêtu de violet est un disciple central, bien plus important que les disciples internes. Enfin, laissez tomber, vous le comprendrez par vous-mêmes. Je vais maintenant vous envoyer à la montagne de l'arrière-plan; quelqu'un vous y attribuera votre lieu de culture. »
 
 Une fois son discours achevé, il agita ses manches et une lumière blanche en jaillit. Après avoir parcouru la salle d'un tour complet, il rugit: « Ouvrez! »
 
@@ -30,17 +30,17 @@ La lumière blanche s'élargit soudainement et engloutit rapidement tous les dis
 
 « Partez! » À la suite du commandement de l'homme en robe bleue, la lumière étincela et disparut de la salle principale.
 
-Wang Lin ressentit une douce chaleur envahir son corps. En un clin d'œil, il se retrouva au cœur d'une vallée. L'énergie spirituelle y était bien plus dense qu'en ailleurs. Le murmure de l'eau résonnait de toutes parts. Il balaya les environs du regard et aperçut les autres disciples internes qui discutaient entre eux.
+Wang Lin ressentit une douce chaleur envahir son corps. En un clin d'œil, il se retrouva au cœur d'une vallée. L'énergie spirituelle y était bien plus dense qu'en ailleurs. Le murmure de l'eau se faisait entendre au loin. Il balaya les environs du regard et vit que tous les autres disciples internes, l'air surpris, regardaient autour d'eux.
 
 Cette vallée était dépourvue de végétation. C'était une falaise percée de nombreux orifices, semblables à un nid d'abeilles. Certains de ces trous étaient obstrués par d'énormes rochers.
 
 Soudain, Wang Lin sentit qu'on l'observait. Il se retourna et vit Wang Zhuo lui adresser un sourire glacial.
 
-À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères et sœurs apprentis, voici la montagne de l'arrière-plan de la Secte Heng Yue. Pour être précis, ce n'est pas simplement l'arrière de la secte, mais un terrain de culture pour les disciples internes, édifié il y a 500 ans par plusieurs experts au stade de l'Âme Naissante. L'énergie spirituelle ici est bien plus dense qu'en temps normal. Puisque vous êtes ici, concentrez-vous sur votre culture; sinon, ne nous reprochez pas de vous expulser de la montagne. »
+À ce moment-là, un jeune homme émergea de l'un des orifices de la falaise. Vêtu de pourpre, il lança un regard froid à l'assemblée et déclara: « Chers frères cadets, voici la montagne de l'arrière-plan de la Secte Heng Yue. Même si on l'appelle ainsi, elle ne se trouve pas réellement derrière la montagne Heng Yue: c'est un terrain de culture pour les disciples internes, aménagé il y a 500 ans par plusieurs ancêtres fondateurs au stade de l'Âme Naissante unissant leurs forces. L'énergie spirituelle ici est bien plus dense qu'à l'extérieur. Puisque vous êtes ici, mettez à profit chaque instant pour cultiver et ne relâchez pas vos efforts; sinon, ne reprochez pas à votre frère aîné de vous jeter hors de la montagne. »
 
-Wang Lin reconnut ce disciple aux vêtements violets. C'était celui qui avait acheté son liquide d'énergie spirituelle. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était particulièrement imprévisible.
+Wang Lin reconnut ce disciple aux vêtements violets. C'était le second frère apprenti Zhang Kuang, celui qui lui avait pris son liquide d'énergie spirituelle en échange des incantations. La rumeur disait qu'il avait déjà atteint le sixième niveau de la Condensation de Qi et qu'il était insondable.
 
-Wang Lin baissa la tête. Il connaissait bien ce genre de manœuvres pour en avoir déjà fait les frais: quelques mots de ce genre l'avaient jadis plongé dans une situation périlleuse.
+Wang Lin baissa légèrement la tête. Il connaissait bien les manigances de Zhang Kuang pour en avoir déjà fait les frais: quelques mots de sa part l'avaient plongé, ce jour-là, dans une situation périlleuse.
 
 « Je possède les incantations pour le septième niveau et les niveaux inférieurs. Si vous atteignez ce stade sans posséder l'incantation, venez me voir. Après vérification, je vous la remettrai. Quant à votre lieu de pratique, choisissez n'importe quelle grotte qui n'est pas scellée. Voici des flacons de pilules de rassemblement de Qi. Chaque flacon contient 50 pilules et sera réapprovisionné une fois par an. » Sur ces mots, il agita la main et cinquante flacons blancs apparurent au sol.
 
@@ -56,9 +56,9 @@ Wang Lin promit rapidement d'obéir.
 
 « Cette falaise est trop haute pour toi, puisque tu n'es même pas au premier niveau. Je vais t'aider à monter. » Zhang Kuang agita ses manches. Une force invisible apparut sous les pieds de Wang Lin et le propulsa jusqu'à une grotte.
 
-Wang Lin remercia respectueusement Zhang Kuang. Mais une fois qu'il eut tourné le dos pour entrer dans la cavité, son visage s'assombrit brusquement. S'il n'avait pas déjà rencontré ce frère apprenti, il lui aurait été reconnaissant; mais connaissant sa véritable nature, il ne prit évidemment pas cette petite faveur à cœur.
+Wang Lin remercia respectueusement Zhang Kuang. Mais une fois qu'il eut tourné le dos pour entrer dans la cavité, son visage s'assombrit brusquement. S'il n'avait pas déjà rencontré ce frère apprenti, il l'aurait jugé affable; mais connaissant sa véritable nature, il ne prit évidemment pas cette petite faveur à cœur.
 
-La grotte n'était pas vaste. On n'y trouvait qu'un lit de pierre et un levier sur le mur. Wang Lin s'approcha et tira le levier. Soudain, un rugissement retentit tandis qu'un rocher gigantesque s'abattait pour sceller complètement l'entrée.
+La grotte n'était pas vaste. On n'y trouvait qu'un lit de pierre et un levier sur le mur. Wang Lin s'approcha et tira le levier. Soudain, un grondement retentit tandis qu'une immense paroi de pierre descendait lentement sur l'entrée, jusqu'à la sceller complètement dans un fracas.
 
 Après avoir soigneusement inspecté la grotte une nouvelle fois et n'ayant rien trouvé d'anormal, Wang Lin se montra très satisfait de l'endroit. Lorsqu'il cherchait Sun Dazhu, il souhaitait trouver un lieu pour cultiver en dehors de la secte. Bien qu'il eût été rejeté, la situation actuelle le menait vers un endroit qui se rapprochait fort de ses plans initiaux.
 

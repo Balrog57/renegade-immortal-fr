@@ -35,19 +35,19 @@ Chi Hu serra les poings en regardant vers la direction où Wang Lin s'était éc
 
 Wang Lin avait récupéré une partie de son énergie spirituelle grâce à l'aide de Chi Hu et l'utilisait pour fuir.
 
-Tout en volant, Wang Lin pointa du doigt cette zone et soupira. Il ignorait quelle formation les ennemis avaient déployée; il savait seulement qu'il ne pouvait ni déchirer l'espace ni se téléporter, et il sentait même que quelque chose l'empêchait d'entrer dans la perle défiant le ciel. Pour l'instant, il lui faudrait un certain temps avant de pouvoir y pénétrer.
+Tout en volant, Wang Lin posa un doigt entre ses sourcils pour essayer et soupira intérieurement. Il ignorait quelle formation les ennemis avaient déployée; il savait seulement qu'il ne pouvait ni déchirer l'espace ni se téléporter, et il sentait même que quelque chose l'empêchait d'entrer dans la perle défiant le ciel. Pour l'instant, il lui faudrait un certain temps avant de pouvoir y pénétrer.
 
 Cette formation était extrêmement mystérieuse. Non seulement Wang Lin ne pouvait pas se téléporter, mais l'ancêtre du Clan des Démons Géants qui l'avait mise en place en était également incapable.
 
-« L'épée céleste a été volée... Si je survit aujourd'hui, je dois la récupérer! » Une lueur de haine apparut dans les yeux de Wang Lin.
+« L'épée céleste a été volée... Si je survis aujourd'hui, je dois la récupérer! » Une lueur de haine apparut dans les yeux de Wang Lin.
 
 Cependant, à cet instant précis, l'homme d'âge moyen rattrapa Wang Lin et dit froidement: « Tu ne peux pas t'échapper. Je vais t'envoyer à la mort! »
 
 Il leva sa main droite et pressa son pouce. Une force puissante jaillit de son doigt, mais juste avant que cette force n'atteigne Wang Lin, un domaine puissant surgit également vers lui.
 
-Ce domaine exhalait un parfum, celui du thé. C'était l'idée de consacrer tous ses efforts à l'appréciation du thé, pour faire de lui le compagnon de toute une vie.
+Ce domaine exhalait un parfum, celui du thé. C'était l'idée de consacrer tous ses efforts à l'appréciation du thé, pour y comprendre la vie et faire du thé le compagnon de toute une vie.
 
-Le domaine de la Vie et de la Mort de Wang Lin apparut instantanément, mais face au domaine d'un cultivateur en stade de Transformation de l'Âme, il ne pouvait rivaliser. Il cracha davantage de sang et son âme originelle fut de nouveau endommagée.
+Le domaine de la Vie et de la Mort de Wang Lin apparut instantanément, mais face au domaine pleinement accompli d'un cultivateur en stade de Transformation de l'Âme, il ne pouvait rivaliser. Il cracha davantage de sang et son âme originelle fut de nouveau endommagée.
 
 Le corps de Wang Lin tomba du ciel.
 
@@ -63,9 +63,9 @@ Sur ces mots, il pointa Wang Lin du doigt, prêt à lui ôter la vie.
 
 Pourtant, au même instant, un coup de tonnerre retentit dans le ciel et une immense faille spatiale se déchira. Un cercueil noir et pourpre descendit des cieux.
 
-Un reniflement froid émana du cercueil: « La Formation Qiankun de Scellement Démoniaque... Si je ne connaissais pas déjà cette formation, il m'aurait été très difficile d'entrer. »
+Un reniflement froid émana du cercueil: « La Formation Qiankun de Scellement Démoniaque... Si je ne savais pas où se trouve l'œil de cette formation, il m'aurait été très difficile d'entrer. »
 
-Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Je dois dire que vous deux, vieux débris, n'avez-vous pas honte de devoir vous liguer pour tuer un simple junior en stade de Formation de l'Âme? »
+Un vieil homme vêtu d'une robe rouge fixa les trois individus en dessous de lui, les yeux brillants. En voyant l'ancêtre du Clan des Démons Géants et l'homme d'âge moyen, son visage s'assombrit et il jura: « Ceng Niu, n'as-tu rien de mieux à faire que de t'attirer des ennuis?! Dites-moi, vous deux, vieux débris, n'avez-vous pas honte de tuer un simple junior en stade de Formation de l'Âme? »
 
 « La Secte des Cadavres! » L'homme d'âge moyen retira son doigt. Ses yeux pétillèrent alors qu'il fixait le vieillard.
 
@@ -75,33 +75,33 @@ L'expression de Sun Tai était sombre alors qu'il observait l'homme d'âge moyen
 
 Sun Tai déclara: « Je vais emporter cet homme! »
 
-« Camarade cultivateur... » L'homme d'âge moyen de Xue Yue s'apprêta à intervenir.
+« Camarade cultivateur... » L'homme d'âge moyen de Xue Yu s'apprêta à intervenir.
 
 Sun Tai le coupa d'un cri: « Ferme ta sale gueule et dégage! Un simple cultivateur au début de la Transformation de l'Âme, et qui l'a atteint par la force en plus, n'a pas les compétences pour me parler! »
 
-Le visage de l'homme d'âge moyen passa du bleu au rouge. Depuis qu'il avait atteint le stade de Transformation de l'Âme, il était traité comme un souverain à Xue Yue. Même face à d'autres cultivateurs de son rang, aucun n'osait lui adresser la parole ainsi.
+Le visage de l'homme d'âge moyen passa du bleu au rouge. Depuis qu'il avait atteint le stade de Transformation de l'Âme, il était traité comme un souverain à Xue Yu. Même face à d'autres cultivateurs de son rang, aucun n'osait lui adresser la parole ainsi.
 
 Sun Tai renifla et tourna son regard vers l'ancêtre du Clan des Démons Géants.
 
 L'expression de ce dernier était lugubre. Après une courte réflexion, il secoua la tête et dit: « Non, cet homme doit mourir, et sa dépouille doit m'appartenir! »
 
-L'homme d'âge moyen de Xue Yue fut surpris. Il tourna la tête vers l'ancêtre; c'était la première fois qu'il exprimait le désir de récupérer le cadavre.
+L'homme d'âge moyen de Xue Yu fut surpris. Il tourna la tête vers l'ancêtre; c'était la première fois qu'il exprimait le désir de récupérer le cadavre.
 
 Sun Tai ricana: « Tu n'es pas membre de ma Secte des Cadavres. Quel intérêt aurais-tu pour un corps?! »
 
 L'ancêtre du Clan des Démons Géants fixa Sun Tai et trancha: « J'ai mes propres raisons! »
 
-Il en avait effectivement une. Même si l'homme de Xue Yue n'était pas venu le solliciter, il aurait agi secrètement pour tuer Wang Lin.
+Il en avait effectivement une. Même si l'homme de Xue Yu n'était pas venu le solliciter, il aurait agi secrètement pour tuer Wang Lin.
 
 Il savait que le vrai nom de Ceng Niu était Wang Lin!
 
-Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan qui s'était rendu sur un champ de bataille étranger il y a 500 ans!
+Récupérer la boussole stellaire n'était qu'un prétexte pour éliminer Wang Lin. La véritable raison résidait dans l'information rapportée par un membre du clan envoyé il y a 500 ans dans le pays de Zhao pour ouvrir le passage vers le champ de bataille étranger!
 
-« La perle défiant le ciel est un trésor que même l'Alliance des Cultivateurs convoite! Si mon Clan des Démons Géants l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter Suzaku et obtenir notre propre planète. Mon clan aurait alors la capacité de posséder des cultivateurs de niveau Ascendant. »
+« La perle défiant le ciel est un trésor que même l'Alliance des Cultivateurs convoite! Si mon Clan des Démons Géants l'obtient et la remet à l'Alliance, nous obtiendrons certainement le rang 6. Nous pourrons alors quitter la planète Suzaku et fonder la planète des Démons Géants. Ma branche des Démons Géants acquerrait alors la qualification d'un clan Ascendant. »
 
 « La perle défiant le ciel a été obtenue par ce Wang Lin! » Toutes ces pensées traversèrent son esprit. Il s'était fait une certitude: personne ne volerait Wang Lin aujourd'hui!
 
-L'année où le membre du clan avait rapporté la nouvelle, l'ancêtre l'avait immédiatement tué et avait soigneusement fouillé son âme. Ayant déterminé que l'information n'avait pas été divulguée et que très peu de gens étaient au courant, il avait décidé de ne pas massacrer tout le monde et de chercher secrètement Wang Lin.
+L'année où le membre du clan avait rapporté la nouvelle, l'ancêtre l'avait immédiatement tué et avait soigneusement fouillé son âme. Ayant déterminé que l'information n'avait pas été divulguée et que très peu de gens étaient au courant, de peur d'attirer l'attention, il avait décidé de ne pas massacrer tout le monde et de chercher secrètement Wang Lin.
 
 Cependant, malgré son immense pouvoir, Wang Lin semblait s'être évaporé, et Suzaku était bien trop vaste. Selon les informations recueillies, Wang Lin avait disparu dans une faille spatiale au sein du champ de bataille étranger.
 
@@ -115,11 +115,11 @@ L'ancêtre devint instantanément méfiant. Après quelques investigations, il d
 
 Il fut alors transporté par la joie, mais à cause de l'influence de Suzaku, il ne pouvait pas agir sans risquer de voir ses espoirs s'effondrer.
 
-Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
+Cependant, il avait bien tué l'autre personne au courant de cette affaire: un messager d'un pays de culture de rang 4, en poste dans le pays de Zhao. En fouillant son âme, l'ancêtre avait vu que le messager n'était pas certain de ses informations et ne les avait pas rapportées. Rassuré, il avait décidé d'attendre le moment opportun pour frapper Wang Lin.
 
-Un jour, Li Yuanfeng de Xue Yue était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait utilisé l'excuse de la récupération de la boussole stellaire pour s'approcher du prisonnier.
+Un jour, Li Yuanfeng de Xue Yu était venu lui demander de mettre en place une formation pour aider à tuer Wang Lin. Il avait immédiatement accepté, en exigeant de récupérer la boussole stellaire.
 
-Ainsi, même si Suzaku enquêtait, c'est Xue Yue qui subirait les répercussions, lui permettant de s'emparer secrètement de la perle défiant le ciel. Et même si Wang Lin mourait, il pourrait utiliser une technique secrète pour localiser l'objet.
+Ainsi, même si Suzaku enquêtait, c'est Xue Yu qui subirait les répercussions, lui permettant de s'emparer secrètement de la perle défiant le ciel. Et même si Wang Lin mourait, tant qu'il aurait le cadavre, il pourrait utiliser une technique secrète pour localiser l'objet.
 
 Les yeux de Sun Tai s'assombrirent. Il renifla et vola vers Wang Lin.
 

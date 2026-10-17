@@ -34,7 +34,7 @@ Puis il saisit une cruche de vin et but tout en attendant que Xu Tao reprenne co
 
 Quant au jeune cultivateur, il s'était enfui en panique. Ne se souciant guère d'alerter les mortels, il sortit son épée volante et s'élança vers l'est.
 
-À la périphérie est de la ville se trouvait un temple. Ce lieu était empreint d'une grande quiétude; devant lui s'étalait un étang parsemé de lotus et de fleurs roses en pleine floraison. Les feuilles de nénuphars, d'un vert éclatant, flottaient à la surface tandis que les poissons les effleuraient doucement, créant des ondulations apaisantes.
+À la périphérie est de la ville se trouvait un temple. Ce lieu était empreint d'une grande quiétude; devant lui s'étalait un étang parsemé de fleurs de lotus roses. Les feuilles de nénuphars, d'un vert éclatant, flottaient à la surface tandis que les poissons les effleuraient doucement, créant des ondulations apaisantes.
 
 Un chemin pavé descendait du temple, bordé de saules pleureurs. Lorsque le vent soufflait, le bruissement des feuilles créait un spectacle d'une grande beauté.
 
@@ -56,7 +56,7 @@ Le cultivateur pointa alors le crâne du doigt, le saisit et, sans un mot, l'enf
 
 Le cultivateur aux grandes oreilles agita sa main droite et dit d'une voix lente: « Raconte-moi ce qui s'est passé. »
 
-Le jeune cultivateur prit une profonde inspiration et raconta promptement les événements, en ajoutant de nombreux détails superflus. Il s'exprimait avec une assurance feinte tandis que le maître écoutait en silence. Les autres disciples ne dirent mot, mais leurs regards étaient empreints d'une étrange perplexité.
+Le jeune cultivateur prit une profonde inspiration et raconta promptement les événements, en ajoutant de nombreux détails superflus. Il s'exprimait avec aisance et de façon très vivante tandis que le maître écoutait en silence. Les autres disciples ne dirent mot, mais leurs regards étaient empreints d'une étrange perplexité.
 
 Bientôt, le récit prit fin. Les yeux du jeune homme brillaient de haine. « Maître, je lui ai déjà révélé votre nom, mais cet homme était d'une arrogance sans limite. Maître, quoi qu'il en coûte, nous devons lui donner une leçon! » ajouta-t-il.
 
@@ -64,11 +64,11 @@ L'expression du cultivateur aux grandes oreilles resta sereine alors qu'il fixai
 
 Le jeune homme hocha vigoureusement la tête: « Oui, Maître, c'est exact. Au début, je l'ai pris pour un simple mortel. »
 
-Une lueur singulière passa dans les yeux du maître. Loin de paraître en colère, il dit au jeune apprenti: « Accompagne-moi et montre-moi le chemin. Nul besoin d'utiliser de technique; nous irons à pied. »
+Une lueur singulière passa dans les yeux du maître. Sans que l'on pût lire ni joie ni colère sur son visage, il dit au jeune apprenti: « Accompagne-moi et montre-moi le chemin. Nul besoin d'utiliser de technique; nous irons à pied. »
 
 Le jeune cultivateur, ravi, guida promptement son maître hors du temple. Quant aux autres disciples, certains furent tentés de les suivre, mais devant le silence du Maître, ils hésitèrent. L'un d'eux soupira: « Le Maître gâte bien trop son jeune frère apprenti. »
 
-Un homme d'âge mûr esquissa un sourire amer et répondit lentement: « Ce n'est pas une première fois. Cela arrive trop souvent. Avec la sagesse du Maître, comment pourrait-il ne pas voir les mensonges dans les paroles de ce jeune frère? Le mieux est de ne pas nous en préoccuper. »
+Un homme d'âge mûr esquissa un sourire amer et répondit lentement: « Ce n'est pas la première fois. Il n'y a pas de quoi en être jaloux. Avec la sagesse du Maître, comment pourrait-il ne pas voir les mensonges dans les paroles de ce jeune frère? Le mieux est de ne pas nous en préoccuper. »
 
 « Avec le tempérament du jeune apprenti, il finira tôt ou tard par s'attirer de gros ennuis, hélas! » marmonna un autre.
 
@@ -84,7 +84,7 @@ Le premier intervenant reprit d'un ton désabusé: « Avec le Maître à ses cô
 
 Après quelques échanges, ils reprirent leur culture.
 
-En marchant, le jeune cultivateur se sentait transporté par la fierté. Il savait que son Maître avait toujours été indulgent envers lui, sans doute parce qu'il était son disciple personnel.
+En marchant, le jeune cultivateur se sentait transporté par la fierté. Il savait que son Maître avait toujours été indulgent envers lui, sans doute parce qu'il était son dernier disciple.
 
 Depuis son enfance, chaque fois qu'un problème surgissait, il suffisait d'en parler au Maître. Ce dernier l'emmenait alors et annihilait quiconque lui déplaisait. Durant toutes ces années, son Maître ne lui avait jamais opposé de refus.
 
@@ -100,7 +100,7 @@ Soudain, le cultivateur aux grandes oreilles s'arrêta net. Le jeune apprenti fi
 
 Une lueur de douceur passa dans les yeux du grand cultivateur qui, s'approchant, demanda doucement: « Combien coûte ce bonbon? »
 
-En voyant cet homme imposant, le marchand éprouva pour une raison inconnue un sentiment de sympathie et répondit: « Une seule pièce de cuivre suffira. »
+En voyant ce cultivateur, le marchand éprouva pour une raison inconnue un sentiment de sympathie et répondit: « Une seule pièce de cuivre suffira. »
 
 Le cultivateur aux grandes oreilles sourit, hocha la tête et sortit une pièce de cuivre. Après l'avoir donnée au vendeur, il examina attentivement les différentes douceurs et en choisit une.
 
@@ -108,7 +108,7 @@ Le jeune cultivateur fut stupéfait. C'était la première fois qu'il voyait son
 
 « Fu Er, quand je t'ai rencontré pour la première fois, tu te disputais avec une bande d'enfants pour des bonbons. Peut-être l'as-tu déjà oublié... » Les yeux du cultivateur aux grandes oreilles étaient empreints de regret.
 
-Le jeune homme fut saisi par l'émotion et ne put s'empêcher de repenser à son enfance amère. Sans son Maître, il serait sans doute déjà mort. Ses yeux devinrent légèrement rouges et il murmura: « Je n'ai pas oublié. C'est le Maître qui m'a tiré de là et qui m'a enseigné la culture. »
+Le jeune homme fut saisi par l'émotion et ne put s'empêcher de repenser à son enfance amère. Sans son Maître, il serait sans doute déjà mort. Ses yeux devinrent légèrement rouges et il murmura: « Je n'ai pas oublié. C'est le Maître qui m'a tiré de là et qui m'a enseigné les techniques magiques et les pouvoirs divins. »
 
 Le cultivateur aux grandes oreilles lui frotta la tête et dit: « Allons-y. Emmène-moi voir cet homme. »
 

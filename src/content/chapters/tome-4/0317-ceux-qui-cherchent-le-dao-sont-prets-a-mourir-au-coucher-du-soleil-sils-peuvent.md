@@ -10,7 +10,7 @@ Le bracelet libéra une immense quantité de lumière blanche qui se concentra p
 
 Ce vortex révéla un lieu semblable à un autel, situé à Suzaku.
 
-« Ceng Niu, je me souviendrai de toi! Oui, c'est bien toi!! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas! » La haine dans la voix de Papillon Rouge était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
+« Ceng Niu, je me souviendrai de toi! Oui, c'est bien toi!! C'est toi qui m'as forcée à sacrifier un niveau de culture pour utiliser ce bracelet. Je ne l'oublierai pas! On se reverra sur la planète Suzaku! » La haine dans la voix de Papillon Rouge était intense alors qu'elle reculait précipitamment pour s'élancer vers le trou noir.
 
 Le Bracelet de Paix Ouverte, outre ses capacités ordinaires, possédait une fonction supplémentaire: ouvrir un portail depuis le Royaume Céleste vers Suzaku afin de permettre à l'utilisateur de rentrer en toute sécurité.
 
@@ -46,7 +46,7 @@ La main droite de Wang Lin s'étira et s'abattit violemment sur Papillon Rouge.
 
 Alors que Papillon Rouge allait tenter de résister, l'onde de choc de l'explosion de l'ombre la frappa, lui arrachant un gémissement de douleur et une nouvelle bouffée de sang. C'est à cet instant que la main de Wang Lin l'atteignit.
 
-Wang Lin engageait tout ce qu'il possédait. Il ignorait totalement le risque d'endommager son corps en laissant son âme originelle s'en détacher. Cette attaque était empreinte d'une intention meurtrière absolue!
+Wang Lin engageait tout ce qu'il possédait. Il ignorait totalement le risque d'endommager son corps en laissant son âme originelle s'en détacher. Cette attaque était empreinte d'une once d'intention meurtrière!
 
 Papillon Rouge leva la main droite pour parer l'assaut. Un rayon de lumière blanche émana de son corps; cette lumière était extrêmement périlleuse pour les âmes originelles. Wang Lin sentit son âme originelle s'affaiblir à une vitesse fulgurante.
 
@@ -120,7 +120,7 @@ Zhou Yi leva la tête, regarda l'homme, puis se projeta soudainement vers lui. �
 
 L'ancien changea une nouvelle fois d'expression en esquivant de justesse.
 
-Il cria avec colère: « Zhou Yi, espèce de fou! Je t'ai même rendu le cadavre! Pourquoi ne t'es-tu pas encore dissipé?! Cet endroit doit contenir d'autres corps, va donc les chercher si tu le souhaites! Pourquoi me poursuis-tu encore?! »
+Il cria avec colère: « Zhou Yi, espèce de fou! Je t'ai même rendu le cadavre! Pourquoi me hantes-tu encore ainsi?! Cet endroit doit contenir d'autres corps, va donc les chercher si tu le souhaites! Pourquoi me poursuis-tu encore?! »
 
 Zhou Yi regarda tendrement la femme, embrassa son front et ferma les yeux. Lorsqu'il les rouvrit, ils n'étaient plus empreints d'amour, mais d'une clarté absolue. Des yeux aussi limpides ne devraient jamais habiter Zhou Yi.
 

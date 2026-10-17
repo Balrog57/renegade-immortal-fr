@@ -6,9 +6,9 @@ bookTitle: Clean Sweep
 en: Chapter 280 - Master
 slug: maitre
 ---
-Après un an de voyage, Wang Lin choisit une petite ville. Bien qu'il ne l'appréciait guère, la technique de sculpture sur glace avait véritablement captivé son attention.
+Après un an de voyage, Wang Lin choisit une petite ville. Bien qu'il n'appréciât guère ce pays, la technique permettant de transformer les sculptures de glace en marionnettes avait véritablement captivé son attention.
 
-Wang Lin était un sculpteur sur bois; s'il parvenait à maîtriser cette technique pour l'appliquer à ses œuvres, il disposerait d'une arme supplémentaire.
+Wang Lin était un sculpteur sur bois; s'il parvenait à maîtriser cette technique pour l'appliquer à ses œuvres, il disposerait d'un moyen de plus de sauver sa vie.
 
 En outre, une autre raison importante retenait Wang Lin en ces lieux. Les mortels d'ici semblaient dépourvus de toute étincelle de vie, ce qui était fort étrange. Wang Lin était convaincu qu'il acquerrait ici une meilleure compréhension de la mort.
 
@@ -24,7 +24,7 @@ Wang Lin avait déjà utilisé son pouvoir de dévoreur d'âmes pour s'approprie
 
 À travers les souvenirs de cet homme, Wang Lin apprit que le génie de Xue Yu se nommait Papillon Rouge et qu'elle était partie avec un cultivateur de Suzaku il y a quelques années.
 
-En même temps que les sept Grands Anciens partis, treize autres cultivateurs, plus âgés encore que ces derniers, s'étaient également éclipsés. Ils s'étaient rendus à Suzaku pour assister à la cérémonie d'investiture.
+En même temps que les sept Grands Anciens partis, treize autres cultivateurs, plus âgés encore que ces derniers, s'étaient également éclipsés. Ils s'étaient rendus à Suzaku pour subir la cérémonie d'investiture.
 
 La requête de Papillon Rouge pour rejoindre Suzaku consistait à faire de Xue Yu un pays de culture de rang 5 et à leur offrir un nouveau foyer. La seconde demande avait été satisfaite; il ne restait désormais que la première.
 
@@ -38,7 +38,7 @@ De plus, son niveau de culture resterait à jamais bloqué au stade initial de l
 
 Il n'y avait aucun moyen d'en changer l'issue. Ils ne disposeraient que de cent ans, et une fois ce délai passé, ils mourraient.
 
-Par conséquent, c'était aussi une chance pour ceux qui étaient bloqués au stade avancé de la Formation de l'Âme. Après tout, comme il ne leur restait plus beaucoup de temps à vivre, cela valait le coup de tenter le tout pour le tout.
+Par conséquent, c'était aussi une chance pour ceux dont la durée de vie touchait à sa fin. Après tout, comme il ne leur restait plus beaucoup de temps à vivre, cela valait le coup de tenter le tout pour le tout.
 
 Si l'un des treize réussissait, Suzaku accorderait à Xue Yu les privilèges d'un pays de culture de rang 5 pendant un siècle. Durant ces cent ans, l'un des sept Grands Anciens ayant suivi Papillon Rouge atteindrait la Transformation de l'Âme, consolidant ainsi leur statut de nation de rang 5.
 
@@ -48,7 +48,7 @@ Les cinq pays de culture de rang 4 environnants avaient tous accepté leur sort 
 
 Il s'agissait de règles imposées par l'Union de la Culture plutôt que par Suzaku. N'importe quel pays pouvait se rebeller, mais il ne pourrait rien changer, car le prix de la rébellion était l'anéantissement total.
 
-Wang Lin sortit de la tour de glace et aperçut deux cultivateurs au stade de l'Établissement des Fondations à l'extérieur. L'un était un homme, l'autre une femme. Dès qu'ils virent Wang Lin, ils s'agenouillèrent pour rendre hommage à leur maître.
+Wang Lin sortit de la tour de glace et aperçut deux cultivateurs au stade de l'Établissement des Fondations à l'extérieur. L'un était un homme, l'autre une femme. Dès qu'ils virent Wang Lin, ils saluèrent respectueusement leur maître.
 
 Wang Lin hocha silencieusement la tête.
 
@@ -58,7 +58,7 @@ Ce genre de choses était très rare entre maîtres et disciples dans les autres
 
 Mais dans cet étrange pays, c'était une pratique très courante. Selon les souvenirs du cultivateur, de nombreux autres membres de Xue Yu entretenaient des relations avec leurs disciples.
 
-Ces comportements étaient devenus si banaux que personne ne méprisait ceux qui s'y adonnaient. Ce cultivateur s'était même plaint un jour que, si le maître de Papillon Rouge n'avait pas été une femme, elle aurait elle aussi dû le servir.
+Ces comportements étaient devenus si banaux que personne ne méprisait ceux qui s'y adonnaient. Ce cultivateur avait même remarqué un jour, avec malveillance, que si le maître de Papillon Rouge n'avait pas été une femme, Papillon Rouge aurait sans doute elle aussi servi son maître.
 
 Wang Lin ne put qu'esquisser un sourire amer face à ce constat. Cela ne faisait qu'aggraver l'opinion qu'il avait de Xue Yu.
 
@@ -70,11 +70,11 @@ Les mains derrière le dos et d'une voix parfaitement neutre, Wang Lin demanda l
 
 Le second disciple répondit promptement: « Maître, deux d'entre eux viennent d'arriver. »
 
-Wang Lin acquiesça doucement et dit: « Sortez-les, et je verrai si vous avez progressé dans votre technique. » Wang Lin avait extrait une description très détaillée de la méthode des souvenirs du cultivateur. De son point de vue, cette technique, nommée Tactique du Cœur de Glace, était liée à l'essence même des cultivateurs de Xue Yu et s'avérait extrêmement complexe.
+Wang Lin acquiesça doucement et dit: « Sortez-les, et je verrai si vous avez progressé dans votre technique. » Wang Lin avait extrait une description très détaillée de la méthode des souvenirs du cultivateur. De son point de vue, cette technique, nommée Tactique du Cœur de Glace, reposait sur des techniques propres aux cultivateurs de Xue Yu et s'avérait fort ingénieuse.
 
 En plus de l'énergie spirituelle, les cultivateurs de Xue Yu absorbaient également l'énergie froide de la neige lors de leur pratique. Cette énergie était indispensable car elle leur permettait de quitter leur corps pour former des géants de glace lorsqu'ils atteindraient le stade de l'Âme Naissante.
 
-Cependant, cette technique comportait plusieurs niveaux et n'était pas facile à maîtriser. Le cultivateur que Wang Lin avait capturé n'en maîtrisait que les quatre premiers, et ce uniquement parce qu'il l'avait apprise en secret.
+Cependant, cette technique comportait plusieurs niveaux et n'était pas facile à maîtriser. Le cultivateur que Wang Lin avait capturé n'en maîtrisait que les quatre premiers, et ce uniquement parce que son oncle les lui avait transmis en secret.
 
 Le second disciple hocha rapidement la tête et sortit de son sac de rangement deux sculptures de glace d'environ dix mètres de haut. Les deux sculptures représentaient une créature au corps d'oiseau et à la tête humaine, d'apparence très féroce.
 
@@ -112,7 +112,7 @@ Il était évident que la production de cette sculpture de glace l'épuisait.
 
 Une fois la sculpture terminée, le second disciple prit une profonde inspiration, s'agenouilla devant l'œuvre et commença à murmurer une prière. Puis il se redressa, serra les dents et pointa du doigt le point de convergence des neuf veines.
 
-Dans un fracas sourd, le second disciple cracha du sang et fut projeté à plus de dix mètres de là. Quant à la sculpture de glace, les neuf veines s'agitèrent comme des serpents. Puis, deux d'entre elles se touchèrent et l'œuvre explosa en mille éclats de glace.
+Dans un fracas sourd, le second disciple cracha du sang et fut projeté à plus de trente mètres de là. Quant à la sculpture de glace, les neuf veines s'agitèrent comme des serpents. Puis, deux d'entre elles se touchèrent et l'œuvre explosa en mille éclats de glace.
 
 Le visage du disciple était livide; il dit honteusement: « Le disciple a encore échoué... »
 

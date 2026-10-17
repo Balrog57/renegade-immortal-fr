@@ -10,7 +10,7 @@ Le vieil homme frappa la tortue-dragon, laquelle poussa un rugissement qui fit v
 
 Bien que l'anneau fût silencieux, un vide d'une dizaine de mètres de profondeur s'y creusa et les débris furent écartés.
 
-Le vieil homme sauta sur le dos de la tortue-dragon. La créature prit une profonde inspiration, aspirant toute l'énergie spirituelle environnante dans sa gueule.
+Le vieil homme sauta sur la tête de la tortue-dragon. La créature prit une profonde inspiration, aspirant toute l'énergie spirituelle environnante dans sa gueule.
 
 Puis, la bête poussa un autre rugissement. Cette fois, une onde sonore visible apparut juste avant qu'elle ne percute l'anneau. Un tunnel large d'environ trois cents mètres se forma à l'intérieur de l'anneau et tous les débris furent réduits en poussière.
 
@@ -38,7 +38,7 @@ Les yeux de Wang Lin s'illuminèrent. Il ne se leva pas immédiatement, mais att
 
 Cette attente dura sept jours. Quant à la bête moustique, Wang Lin ne la remit pas dans son sac; au contraire, il la laissa errer librement. La créature venait originellement de la Mer des Démons et, étant de retour chez elle, elle était très détendue.
 
-Après sept jours, la silhouette de la tortue-dragon réapparut, le vieil homme assis sur son dos. À ses côtés, sept fines lueurs dorées se déplaçaient rapidement.
+Après sept jours, la silhouette de la tortue-dragon réapparut, le vieil homme assis sur son dos. À ses côtés, sept fines lignes dorées, semblables à des dragons, tournoyaient rapidement.
 
 Mais chaque fois qu'elles tentaient de s'échapper, un écran de lumière bloquait leur chemin.
 
@@ -64,7 +64,7 @@ Wang Lin fut surpris en voyant la ligne dorée si obéissante autour de son doig
 
 La moustique hésita avant de hocher doucement sa grosse tête, tout en laissant paraître une trace de crainte.
 
-Wang Lin activa l'aspect mort de son domaine pour entourer la ligne dorée. Une lumière jaillit autour de celle-ci, qui frissonna et s'estompa, devenue instable.
+Wang Lin activa l'aspect mort de son domaine pour entourer la ligne dorée. Une lumière jaillit autour de celle-ci, qui s'assombrit et perdit toute vigueur.
 
 La bête moustique afficha un visage joyeux alors que Wang Lin lui lançait la ligne dorée; les deux entrèrent en collision.
 
@@ -74,17 +74,17 @@ La créature poussa quelques gémissements misérables avant de s'effondrer au s
 
 Wang Lin observa la bête avec stupéfaction. Après trois heures, les convulsions cessèrent. Des bruits de craquements émanèrent de son corps tandis qu'elle grandissait.
 
-La bête moustique mesurait désormais près de cent mètres de long, semblable à une petite colline. Son proboscis était devenu encore plus long, lui donnant un aspect plus effrayant.
+La bête moustique mesurait désormais près de cent mètres de long, semblable à une petite colline. Sa trompe était devenue encore plus longue, lui donnant un aspect plus effrayant.
 
 En réalité, le Feu d'Aurore était un matériau de raffinement de trésors que seuls les cultivateurs de la Formation de l'Âme pouvaient manipuler, car il se nourrissait des Âmes Naissantes pour croître. Les bêtes fuyaient normalement ce feu.
 
-Mais cette bête moustique suivait Wang Lin depuis un certain temps et, après avoir dévoré tant de pilules, elle était passée d'une bête spirituelle de faible qualité à une bête de qualité moyenne, équivalente à un cultivateur au stade avancé de l'Âme Naissante.
+Mais cette bête moustique suivait Wang Lin depuis un certain temps et, après avoir dévoré tant de pilules, elle était passée d'une bête spirituelle de faible qualité à une bête de qualité moyenne, équivalente à un cultivateur au stade avancé de l'Âme Naissante, à la grande perfection.
 
-À l'origine, la moustique ne pouvait fusionner avec la ligne dorée, mais après avoir été affaiblie par le domaine de la mort de Wang Lin, elle put l'absorber et s'en trouver renforcée.
+À l'origine, la moustique ne pouvait fusionner avec la ligne dorée, mais après que le domaine de la mort de Wang Lin eut infiniment affaibli celle-ci, lui faisant perdre sa capacité de changement et donc sa vitalité, la bête put fusionner avec elle et sa constitution en fut transformée.
 
 Wang Lin se leva et tapota la bête. Celle-ci comprit immédiatement le signal et retourna dans son sac.
 
-Peu de temps après, Wang Lin traversa l'anneau des Étoiles Brisées du Chaos. Il pouvait désormais le franchir aisément; déjà au stade de la Formation du Noyau, il y allait et venait en toute liberté.
+Peu de temps après, Wang Lin traversa l'anneau des Étoiles Brisées du Chaos. Dès l'époque de la Formation du Noyau, il y allait et venait en toute liberté, sans parler de maintenant.
 
 Grâce à son domaine de la Vie et de la Mort, il parvenait à faire paraître son niveau de culture bien inférieur à sa réalité, ce qui rendait les clones créés très faibles.
 
@@ -92,17 +92,17 @@ Une fois l'anneau franchi, il ne s'arrêta pas et se dirigea rapidement vers l'e
 
 Il n'eut pas longtemps à attendre avant d'atteindre l'entrée. Juste avant qu'il n'y pénètre, la bête moustique sortit en volant. Elle tourna autour de Wang Lin quelques fois avant de rugir vers l'entrée, le regardant d'un air suppliant.
 
-Le sens divin de Wang Lin s'étendit et repéra une petite faille au loin. Une ligne dorée en émergea, dégageant une lumière éclatante.
+Le sens divin de Wang Lin s'étendit et repéra au loin, dans les airs, une petite faille spatiale de la taille d'un poing. Une ligne dorée en émergea, dégageant une lumière éclatante.
 
 En voyant cela, Wang Lin comprit et rit: « Quoi? Une seule ne suffisait donc pas? »
 
-La moustique hocha précipitamment la tête et tenta immédiatement de plaire à son maître en frottant son proboscis contre lui. Si quiconque avait vu cela, il aurait été terrifié, car peu accepteraient qu'une telle trompe les touche ainsi.
+La moustique hocha précipitamment la tête et tenta immédiatement de plaire à son maître en frottant sa trompe contre lui. Si quiconque avait vu cela, il aurait été terrifié, car peu accepteraient qu'une telle trompe les touche ainsi.
 
 Wang Lin sourit en observant la ligne dorée au loin: « Ne te presse pas. Laisse-moi d'abord sceller les environs avec des restrictions pour que personne ne nous dérange, puis je les rassemblerai pour toi. »
 
 Tout en parlant, ses mains s'activaient sans relâche, faisant apparaître de nombreuses restrictions. Celles-ci différaient grandement de celles qu'il utilisait au stade de l'Âme Naissante.
 
-Auparavant, il ne s'agissait que de puissantes restrictions; mais désormais, imprégnées de son domaine, leur puissance était décuplée.
+Auparavant, il ne s'agissait que de puissantes restrictions; mais désormais, imprégnées de son domaine, leur puissance était multipliée.
 
 Les restrictions se propagèrent rapidement et une vaste formation couvrant plusieurs centaines de kilomètres à la ronde prit forme.
 
@@ -118,7 +118,7 @@ Le domaine de la mort s'activa instantanément, faisant pâlir la lueur. Il la p
 
 Au même moment, la faille d'où émergeait la ligne commença à se rétracter. Voyant qu'elle allait disparaître, Wang Lin s'assit. Son âme originelle sortit et pénétra rapidement dans la faille.
 
-Dès que son âme y eut pénétré, ses yeux furent aveuglés par une lumière d'or. Il vit un corps gigantesque émettant un éclat aveuglant, au sein duquel d'innombrables lignes dorées s'agitaient.
+Dès que son âme y eut pénétré, ses yeux furent aveuglés par une lumière d'or. Il vit au loin un immense corps lumineux semblable à un soleil, autour duquel d'innombrables lignes dorées s'agitaient.
 
 Sans perdre un instant, Wang Lin en saisit une poignée et les stocka dans son âme originelle avant de ressortir précipitamment de la faille.
 
@@ -128,38 +128,38 @@ La créature afficha un air exalté, mais il y avait trop de lignes pour qu'elle
 
 Sur ce, son corps disparut. Lorsqu'il réapparut, il se trouvait à l'entrée des terres de l'Ancien Dieu. Après une profonde inspiration, ses yeux brillèrent; il serra les dents et prononça quelques mots dans la langue de l'Ancien Dieu tout en formant des sceaux manuels. Soudain, son corps devint flou et s'évanouit.
 
-Wang Lin apparut au sommet d'un pilier de pierre tournoyant dans le tunnel obscur et infini de la première épreuve.
+Wang Lin apparut sur un immense bloc de pierre conique en mouvement perpétuel dans le tunnel obscur et infini de la première épreuve.
 
-De retour ici, Wang Lin ressentait une certaine mélancolie, mais il était pressé. Il s'assit immédiatement, déploya plusieurs restrictions, puis sortit enfin la pierre à encre.
+De retour ici, Wang Lin ressentait une certaine mélancolie, mais il était pressé. Il s'assit immédiatement, déploya plusieurs restrictions, puis sortit enfin la pierre d'encre.
 
 Il prit une grande inspiration et commença à graver une restriction d'attaque après l'autre sur la pierre avec une rapidité fulgurante.
 
-Au fil du temps, les restrictions se multiplièrent sur la pierre à encre.
+Au fil du temps, les restrictions se multiplièrent sur la pierre d'encre.
 
-Une fois les étapes initiales franchies, il sortit un fanion spirituel. Après avoir fusionné les deux objets, il poursuivit son raffinage.
+Une fois les étapes initiales franchies, il sortit un drapeau de l'âme. Après avoir fusionné les deux objets, il poursuivit son raffinage.
 
 Le temps s'écoulait lentement. Wang Lin ne perdait pas une seconde; il affinait aussi vite que possible.
 
-Les restrictions se posèrent une à une sur le fanion et, après un temps indéterminé, il y en eut enfin 98. Il n'en manquait plus qu'une seule pour atteindre le premier stade de complétion.
+Les restrictions se posèrent une à une sur le drapeau et, après un temps indéterminé, il y en eut enfin 98. Il n'en manquait plus qu'une seule pour atteindre le premier stade de complétion.
 
-À ce moment, Wang Lin hésita. Si ses suppositions étaient erronées et que les éclairs de la divine rétribution frappaient, il serait très difficile de protéger ce fanion. S'il était endommagé, à moins d'en obtenir d'autres pierres à encre, il serait contraint d'utiliser le fanion de Li Muwan.
+À ce moment, Wang Lin hésita. Si ses suppositions étaient erronées et que les éclairs de la divine rétribution frappaient, il serait très difficile de protéger ce drapeau. S'il était endommagé, à moins d'en obtenir d'autres pierres d'encre, il serait contraint d'utiliser le drapeau de Li Muwan.
 
-S'il s'arrêtait maintenant, bien que le fanion de restriction soit faible, il ne se briserait pas; avec prudence, il pourrait encore servir.
+S'il s'arrêtait maintenant, bien que le drapeau de restriction soit faible, il ne se briserait pas; avec prudence, il pourrait encore servir.
 
-Après réflexion, ses yeux s'illuminèrent. Si ce fanion n'atteignait pas le premier stade de complétion, il serait trop faible pour être utile dans le royaume céleste des pluies.
+Après réflexion, ses yeux s'illuminèrent. Si ce drapeau n'atteignait pas le premier stade de complétion, il serait trop faible pour être utile dans le royaume céleste des pluies.
 
-Il serra les dents tandis que sa main droite traçait la dernière restriction pour la poser sur le fanion.
+Il serra les dents tandis que sa main droite traçait la dernière restriction pour la poser sur le drapeau.
 
-Soudain, l'objet trembla et des filaments de gaz noir s'en échappèrent, suivis d'une aura primitive. Wang Lin l'examina avec son sens divin et fut stupéfait. Il savait qu'un fanion de restriction purement offensif serait puissant, mais après une vérification rapide, il découvrit qu'il était plusieurs dizaines de fois plus fort qu'avant sa complétion.
+Soudain, l'objet trembla et des filaments de gaz noir s'en échappèrent, suivis d'une aura primitive. Wang Lin l'examina avec son sens divin et fut stupéfait. Il savait qu'un drapeau de restriction purement offensif serait puissant, mais après une vérification rapide, il découvrit qu'il était plusieurs dizaines de fois plus fort qu'avant sa complétion.
 
-En conséquence, ce fanion représentait une menace même pour les cultivateurs de la Formation de l'Âme.
+En conséquence, ce drapeau représentait une menace même pour les cultivateurs de la Formation de l'Âme.
 
-Toutes les restrictions s'étaient fusionnées en une seule; il pouvait désormais sacrifier neuf restrictions pour activer la capacité spirituelle du fanion.
+Toutes les restrictions s'étaient fusionnées en une seule; il pouvait désormais sacrifier neuf restrictions pour lancer une fois la technique de scellement de l'énergie spirituelle du drapeau.
 
-Cette capacité permettait de contraindre toute l'énergie spirituelle céleste, ainsi que celle présente dans les cultivateurs, créant une zone de vide spirituel. Ainsi, à moins de posséder une énergie spirituelle céleste, quiconque se trouvait dans son rayon d'action perdait temporairement sa capacité à contrôler l'énergie spirituelle.
+Cette technique permettait de contraindre toute l'énergie spirituelle céleste, ainsi que celle présente dans les cultivateurs, créant une zone de vide spirituel. Ainsi, à moins de posséder une énergie spirituelle céleste, quiconque se trouvait dans son rayon d'action perdait temporairement sa capacité à contrôler l'énergie spirituelle.
 
-Les yeux de Wang Lin brillèrent alors qu'il serrait le fanion. Sa confiance pour ce voyage vers le royaume céleste augmenta considérablement.
+Les yeux de Wang Lin brillèrent alors qu'il serrait le drapeau. Sa confiance pour ce voyage vers le royaume céleste augmenta considérablement.
 
-Quant aux éclairs de la divine rétribution, ils ne vinrent jamais. Wang Lin était exalté; il savait qu'il avait gagné son pari. Le corps de l'Ancien Dieu étant un royaume en soi, la rétribution divine n'avait pu percevoir la présence du fanion de restriction.
+Quant aux éclairs de la divine rétribution, ils ne vinrent jamais. Wang Lin était exalté; il savait qu'il avait gagné son pari. Le corps de l'Ancien Dieu étant un royaume en soi, la rétribution divine n'avait pu percevoir la présence du drapeau de restriction.
 
-Il prit une profonde inspiration et continua de placer des restrictions. Cependant, il ne put atteindre le second stade de complétion, faute de suffisamment de restrictions purement offensives. C'était là le facteur limitant majeur des fanions de restriction à attribut unique.
+Il prit une profonde inspiration et continua de placer des restrictions. Cependant, il ne put atteindre le second stade de complétion, faute de suffisamment de restrictions purement offensives. C'était là le facteur limitant majeur des drapeaux de restriction à attribut unique.

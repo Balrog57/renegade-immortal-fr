@@ -23,53 +23,53 @@ Sun Dazhu eut un petit rire. Il sourit et chuchota à Wang Lin: « Disciple, obs
 
 Wang Lin parcourut du regard les disciples internes en colère, puis posa les yeux sur Liu Feng. Une couche de brume enveloppait encore son corps, empêchant Wang Lin de discerner son niveau de culture.
 
-Liu Feng, debout sur l'estrade, déclara d'un ton calme: « Frère Zhao, puisque notre Ancien l'a décrété, je n'utiliserai que 50 % de ma puissance dans ce combat. »
+Liu Feng, debout sur l'estrade, déclara avec élégance, en riant doucement: « Frère Zhao, puisque notre Ancien l'a décrété, je n'utiliserai que 50 % de ma puissance dans ce combat. »
 
-Zhao Long était de taille moyenne. Son teint était sombre et sa carrure imposante; loin de l'allure d'un cultivateur, il ressemblait davantage à un guerrier du monde mortel.
+Zhao Long était de taille moyenne. Son teint était sombre et sa carrure robuste; loin de l'allure d'un cultivateur, il ressemblait davantage à un guerrier mortel d'une école d'arts martiaux.
 
-Il observa Liu Feng avec prudence. Joignant les mains, il dit: « Frère Liu, je vous en prie! » À peine eut-il fini de parler qu'il fit un pas en avant; aussitôt, des lotus blancs apparurent un à un autour de lui, flottant tout autour de son corps.
+Il observa Liu Feng avec prudence. Il salua, poing dans la paume, et dit: « Frère Liu, je vous en prie! » Cela dit, il frappa le sol du pied; aussitôt, des lotus d'un blanc laiteux surgirent un à un sous ses pieds, s'élevèrent rapidement dans les airs, grossirent aussitôt et tournoyèrent tout autour de son corps.
 
-Des éclats de qi d'épée émanèrent des lotus blancs. On pouvait entendre le sifflement du vent fouetter les vêtements de Zhao Long, bien qu'aucune brise ne soufflât.
+De fins filets de qi d'épée s'échappèrent des pétales de chaque lotus. À cet instant, les vêtements de Zhao Long se mirent à bouger d'eux-mêmes sans un souffle de vent, avec un bruit de claquement.
 
-Le chef de secte Huang Long sourit: « La lame de lotus de Zhao Long a déjà atteint le rang intermédiaire. Très bien. »
+Le chef de secte Huang Long sourit: « L'intention d'épée du lotus de Zhao Long a déjà la puissance du rang intermédiaire. Très bien. »
 
-L'Ancien au visage rouge déclara avec fierté sur le côté: « Haha, Chef de secte, Zhao Long est mon disciple préféré. Son talent est remarquable et il est très assidu. Cette lame de lotus est un art qu'il a lui-même sélectionné à la bibliothèque des écritures. En seulement cinq ans, il a déjà atteint le rang intermédiaire. »
+L'Ancien au visage rouge déclara avec fierté sur le côté: « Haha, grand frère chef de secte, Zhao Long est mon disciple préféré. Son talent est déjà bon, et plus remarquable encore, il s'entraîne avec une extrême assiduité. Ce qi d'épée du lotus est un art qu'il a lui-même sélectionné à la bibliothèque des écritures. Il le cultive depuis cinq ans et a enfin atteint le rang intermédiaire! »
 
-L'Ancien Xu sourit et s'adressa aux disciples environnants: « La lame de lotus est réputée pour sa puissance d'attaque. Vous, les disciples internes, devriez saisir cette occasion pour apprendre de lui. »
+L'Ancien Dao Xu sourit et s'adressa aux disciples environnants: « Le qi d'épée du lotus est réputé depuis toujours pour sa puissance d'attaque. Vous, les disciples internes, regardez bien et apprenez davantage; une telle occasion est précieuse, saisissez-la! »
 
-Wang Zhuo plissa les yeux. Sans laisser paraître ses pensées, il songea: « La lame de lotus? Humph, je la connais aussi. Donnez-moi cinq ans et je serai plus fort que lui. »
+Wang Zhuo plissa les yeux. Il acquiesça en apparence, mais songea: « Le qi d'épée du lotus? Humph, moi aussi, je le connais. Quand j'aurai cultivé cinq ans, je serai sûrement plus fort que lui. »
 
-« Le frère Zhao est d'ordinaire si discret. Je ne m'attendais pas à ce qu'il ait déjà atteint un tel niveau avec la lame de lotus », pensa Sun Hao, l'envie secrète le poussant à observer attentivement.
+« Le frère Zhao est d'ordinaire si discret. Je ne m'attendais pas à ce qu'il ait déjà poussé le qi d'épée du lotus à un tel niveau », pensa Sun Hao, l'envie secrète le poussant à observer attentivement.
 
-Sur l'estrade, Zhao Long s'écria: « Frère Liu, ma lame de lotus est extrêmement puissante. Soyez prudent! »
+Sur l'estrade, Zhao Long s'écria: « Frère Liu, mon qi d'épée du lotus est extrêmement puissant. Soyez prudent! »
 
-À cet instant, les lotus gravitant autour de Zhao Long se mirent à tourbillonner frénétiquement, et une pluie de qi d'épée s'abattit sur Liu Feng.
+À cet instant, les lotus gravitant autour de Zhao Long se mirent à tourbillonner frénétiquement, et des traits de qi d'épée bleu-vert, tels une pluie battante, fondirent à une vitesse extrême sur Liu Feng.
 
-L'expression de Liu Feng resta sereine. Il recula promptement, forma un signe de la main et cria: « Écran d'eau! » Aussitôt, le ciel s'obscurcit et des points lumineux apparurent: des gouttelettes d'eau.
+L'expression de Liu Feng resta sereine. Il recula promptement, ses deux mains formèrent rapidement des sceaux, et il lança à voix basse: « Écran d'eau! » Aussitôt, le ciel s'obscurcit un instant, puis des points de lumière cristalline apparurent de toutes parts: c'étaient des gouttelettes d'eau.
 
 Ces gouttes se rassemblèrent avec la rapidité de l'éclair devant Liu Feng pour former un écran aquatique qui scintillait de reflets arc-en-ciel, d'une beauté saisissante.
 
-L'Ancien Ouyang eut un léger sourire et dit aux disciples derrière lui: « La lame de lotus de la Secte Heng Yue est une technique très difficile à maîtriser. Retenez bien ceci: si vous faites face à cette technique, ne tentez pas de l'affronter de front, mais esquivez-la, à moins d'être comme Liu Feng, qui possède une racine spirituelle d'eau pure et peut ainsi contrôler l'élément à sa guise. »
+L'Ancien Ouyang eut un léger sourire et dit aux disciples derrière lui: « Le qi d'épée du lotus de la Secte Heng Yue est très difficile à maîtriser, surtout pour ce Zhao Long, qui l'a déjà poussé jusqu'au domaine de l'intention d'épée; sa puissance offensive est remarquable. Retenez bien ceci: si vous y faites face, ne tentez pas de l'affronter de force, mais cherchez à l'emporter par des détours, à moins d'être comme Liu Feng, qui possède une racine spirituelle d'eau unique et dont l'attribut eau, entre ciel et terre, obéit à la moindre pensée. »
 
-Tous les disciples acquiescèrent, exception faite d'un homme d'âge moyen au fond de la foule, dont le visage affichait un profond dédain.
+Tous les disciples acquiescèrent, exception faite d'un homme d'âge moyen au fond de la foule, dont le visage laissait voir un dédain à peine voilé.
 
 Sur l'estrade, le qi d'épée qui pleuvait sur Liu Feng percuta l'écran d'eau. Le visage de Zhao Long s'affaissa. Cet écran d'eau était bien trop singulier; dès que le qi d'épée entrait en contact avec lui, il se dissipait sans laisser de trace.
 
-Il fronça les sourcils et s'apprêta à réitérer sa technique, mais il vit Liu Feng esquisser un sourire. Ce dernier lança: « Frère Zhao, essayez donc de faire face à cette lame de lotus! »
+Il fronça les sourcils et s'apprêta à réitérer sa technique, mais, derrière l'écran d'eau, Liu Feng esquissa un étrange sourire et dit doucement: « Frère Zhao, c'est un manque de courtoisie que de ne pas rendre la pareille. Ce qi d'épée du lotus, essayez donc de le recevoir! »
 
-L'eau ondula et le qi d'épée jaillit de l'écran vers Zhao Long. Même technique, même qi d'épée.
+L'écran d'eau se mit à scintiller, des ondulations s'y formèrent, et le qi d'épée du lotus que Zhao Long venait de lancer jaillit aussitôt de l'écran, réfracté, vers lui. Même technique, même intention d'épée.
 
-Le visage de Zhao Long changea brusquement. Il recula précipitamment, mais le qi d'épée était trop rapide. Serrant les dents, il projeta des talismans jaunes de sa sacoche de rangement. Ces derniers s'illuminèrent sans flamme et se transformèrent en une brume noire.
+Le visage de Zhao Long changea brusquement. Il recula précipitamment, mais le qi d'épée était trop rapide. Serrant les dents, il projeta plus d'une dizaine de talismans immortels de son sac de rangement. À peine apparus, ces derniers s'illuminèrent d'une lueur jaune, s'embrasèrent d'eux-mêmes sans feu et se transformèrent en autant de brumes noires.
 
-Le qi d'épée frappa la brume noire et se dissipa. Celle-ci parvint à bloquer la majeure partie du qi avant de s'évanouir, mais quelques éclats passèrent à travers et percutèrent le corps de Zhao Long.
+Le qi d'épée frappa la brume noire et se dissipa. La brume noire fondit rapidement et parvint de justesse à dissoudre la majeure partie du qi avant de s'évanouir, mais quelques éclats subsistèrent, jaillirent de la brume et transpercèrent directement le corps de Zhao Long.
 
 Propulsé en l'air par la force du qi d'épée, Zhao Long cracha du sang durant sa trajectoire avant de s'écraser au sol. Après avoir lutté un moment, il ne parvint pas à se relever.
 
-De nombreux petits trous jonchaient son corps, mais aucun n'était assez grave pour menacer sa vie.
+Plusieurs petits trous le transperçaient de part en part, mais heureusement aucun n'avait touché un point vital et sa vie n'était pas en danger.
 
-Liu Feng affichait une expression empreinte de fierté. Il descendit de l'estrade et déclara: « Le disciple a écouté son maître et n'a utilisé que 50 % de sa puissance pour le reflet d'eau. »
+Liu Feng affichait une expression empreinte de fierté. Il se retourna, sauta de l'estrade et dit à l'Ancien Ouyang: « Ce disciple n'a heureusement pas failli à sa mission: il n'a utilisé que la moitié de la réflexion de l'écran d'eau. »
 
-L'Ancien au visage rouge se déplaça avec célérité. Son corps se changea en une brume rouge pour atterrir aux côtés de Zhao Long. Le visage sombre, il tapota plusieurs fois le corps de son disciple avant de lui administrer des pilules précieuses. Puis, il déclara: « Un excellent reflet d'écran d'eau. Seul un cultivateur du 8e niveau ou plus peut le briser. Mon disciple n'est pas encore assez fort, une défaite est donc normale! »
+L'Ancien au visage rouge se déplaça avec célérité. Son corps se changea en une brume rouge pour atterrir aux côtés de Zhao Long. Le visage sombre, il tapota plusieurs fois le corps de son disciple avant de lui administrer des pilules précieuses. Puis, il déclara d'une voix grave: « Quelle excellente réfraction de l'écran d'eau! Sans la force d'un 8e niveau de la Condensation de Qi ou plus, impossible de la briser. Mon disciple n'a pas encore perfectionné son art, une défaite est donc normale! »
 
 Un à un, les disciples de la Secte Xuan Dao laissèrent éclater leur joie en discutant entre eux.
 

@@ -14,7 +14,7 @@ La raison pour laquelle Wang Lin s'y intéressait était que Xu Liguo lui avait 
 
 Les paroles de Xu Liguo mirent Wang Lin sur ses gardes. Il connaissait très bien ce dernier car, d'une certaine manière, il l'avait lui-même créé.
 
-Xu Liguo possédait une intelligence que les âmes errantes n'avaient pas. Le fait qu'il fût un cultivateur de l'Âme Naissante devenu une âme errante y avait largement contribué. Par la suite, son intellect s'était lentement restauré jusqu'à ce qu'il devienne l'esprit d'épée démoniaque qu'il était aujourd'hui.
+Xu Liguo possédait une intelligence que les âmes errantes n'avaient pas. Le fait qu'il fût un cultivateur de l'Âme Naissante transformé en démon y avait largement contribué. Par la suite, son intellect s'était lentement restauré jusqu'à ce qu'il devienne l'esprit d'épée démoniaque qu'il était aujourd'hui.
 
 La personnalité de Xu Liguo était celle d'un poltron, mais il était en même temps très orgueilleux. Dans l'ensemble, cela faisait de lui un démon très complexe. Le fait qu'il supplie ainsi Wang Lin de libérer cette âme rendit ce dernier prudent.
 
@@ -42,7 +42,7 @@ Wang Lin laissa échapper un son de surprise et examina la roue de plus près. A
 
 Alors que la lumière verte brillait, Wang Lin ne ressentit aucune fluctuation d'énergie spirituelle provenant de la roue. Il réfléchit un instant avant d'envoyer un nouveau rayon d'énergie spirituelle.
 
-Son regard restait calme. Un étrange symbole, de la taille d'un ongle, apparut rapidement avant de disparaître. La lueur verte surgit de nouveau pour dissoudre l'énergie.
+Il ne quittait pas la roue des yeux. Un étrange symbole, dix fois plus petit qu'un ongle, apparut rapidement avant de disparaître. La lueur verte surgit de nouveau pour dissoudre l'énergie.
 
 « Intéressant! » Les yeux de Wang Lin s'illuminèrent.
 
@@ -60,7 +60,7 @@ Wang Lin regarda froidement Xu Liguo. Le corps de ce dernier tremblait et sembla
 
 Wang Lin ignora Xu Liguo et saisit la roue du trésor. De son pouce gauche, il pressa l'endroit où se trouvait l'étrange symbole.
 
-À cet instant, le symbole apparut et se mit à clignoter frénétiquement tandis que la roue émettait une lueur verte. Wang Lin grogna de douleur, mais il continua d'appuyer comme s'il brisait d'innombrables barrières, jusqu'à ce qu'il entre en contact direct avec le mécanisme interne.
+À cet instant, le symbole apparut et se mit à clignoter frénétiquement tandis que la roue émettait une lueur verte. Wang Lin grogna, mais il continua d'appuyer comme s'il brisait d'innombrables barrières, jusqu'à toucher directement la roue du trésor.
 
 Soudain, dans une série de craquements, d'innombrables fissures parcoururent la roue. Dans un fracas, le trésor vola en éclats.
 
@@ -84,7 +84,7 @@ Le corps de Xu Liguo trembla et ses yeux retrouvèrent immédiatement leur clart
 
 La femme se retourna et fixa Wang Lin un instant avant d'esquisser un magnifique sourire. À cet instant, tout le reste sembla s'effacer; son sourire était la seule chose qui subsistait.
 
-Ses cils tremblèrent légèrement et elle murmura, comme une plainte: « Quel être malveillant... Ce n'est pas que je voulais vous offenser... »
+Ses cils tremblèrent légèrement et elle murmura, comme une plainte: « Quel être cruel... Je ne vous ai pourtant pas offensé... »
 
 Sa voix recelait un pouvoir mystérieux. Lorsqu'elle atteignit les oreilles de Wang Lin, son cœur vacilla une fois de plus.
 

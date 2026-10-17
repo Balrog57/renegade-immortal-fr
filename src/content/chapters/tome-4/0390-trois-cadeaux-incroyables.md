@@ -8,21 +8,21 @@ slug: trois-cadeaux-incroyables
 ---
 Alors que la voix résonnait, une silhouette vêtue d'une robe bleue, les cheveux descendant jusqu'à la taille, émergea de l'un des anneaux de sang. D'un seul pas, il apparut devant l'assemblée. Sa robe était très ample et s'agitait à chacun de ses mouvements.
 
-Le visage de cet homme était gris et d'une grande vieillesse, mais ses yeux brillaient comme des étoiles. Il observa attentivement Wang Lin, puis fit un geste de la main.
+Le visage de cet homme était gris et d'une grande vieillesse, mais ses yeux brillaient comme une lune éclatante. Il observa attentivement Wang Lin, puis fit un geste de la main.
 
 « Vous neuf pouvez partir! »
 
-Ce geste dégageait une pression colossale. Les neuf cultivateurs au stade de la Formation de l'Âme s'inclinèrent respectueusement avant de disparaître.
+Ce geste dégageait une pression colossale. Les neuf cultivateurs au stade de la Formation de l'Âme répondirent respectueusement par l'affirmative avant d'être emportés et de disparaître.
 
 Les yeux de Wang Lin s'illuminèrent, révélant un désir de combat. Il ne parvenait pas à percer le niveau de culture du vieil homme, mais il était certain que celui-ci se trouvait au stade de la Transformation de l'Âme.
 
 « Petit ami Ceng Niu, ce vieux a attendu ce jour pendant deux ans! » Le vieil homme regarda Wang Lin avec une lueur mystérieuse dans le regard.
 
-Wang Lin reconnut immédiatement ces yeux; c'étaient les mêmes qu'hier. Il fut surpris que ce vieil homme le connaisse. Si Liu Mei avait pu le trouver, il n'était pas étonnant que l'ancêtre de la Transformation de l'Âme de la Secte du Raffinage de l'Âme le connaisse également.
+Wang Lin reconnut immédiatement ces yeux; c'étaient les mêmes qu'hier. Il ne fut pas surpris que ce vieil homme connaisse son identité. Si Liu Mei avait pu le trouver, il n'était pas étonnant que l'ancêtre de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme le connaisse également.
 
-« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami », dit-il, avant de pointer du doigt la Montagne du Raffinage de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte du Raffinage de l'Âme. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
+« Pour célébrer notre rencontre aujourd'hui, je vais d'abord offrir un petit cadeau au petit ami, nous parlerons en détail ensuite », dit-il, avant de pointer du doigt la Montagne de l'Affinement de l'Âme. Sa voix perdit sa douceur initiale pour se charger de pression et d'une intention meurtrière. « Junior Liu Mei, tu as dix respirations pour t'éloigner de plus de 5 000 km de ma Secte de l'Affinement de l'Âme. Si tu ne le fais pas, même si tu es la disciple de l'actuel Suzaku, je te tuerai quand même! Hors de ma vue! »
 
-La silhouette exquise de Liu Mei apparut au-dessus de la Montagne du Raffinage de l'Âme. Elle regarda le vieil homme avec une expression charmante et murmura: « Senior, junior a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
+La silhouette exquise de Liu Mei apparut au-dessus de la Montagne de l'Affinement de l'Âme. Elle regarda le vieil homme avec une expression charmante et murmura: « Senior, junior a reçu des ordres de mon maître et je ne vous ai pas offensé. Pourquoi agir ainsi… »
 
 L'expression de Wang Lin resta impassible, mais il commença rapidement à analyser la situation.
 
@@ -34,7 +34,7 @@ Liu Mei soupira. Elle mordit sa lèvre inférieure et dit: « Senior, si junior 
 
 Bien que ce drapeau ne fût qu'une illusion, une pression écrasante s'en dégageait. Pour la première fois, le visage de Liu Mei changea radicalement.
 
-« Le drapeau des mille millions d'âmes… » Elle fixa le vieil homme et serra les dents avant de disparaître pour quitter la Secte du Raffinage de l'Âme.
+« Le drapeau d'un milliard d'âmes… » Elle fixa le vieil homme et serra les dents avant de disparaître pour quitter la Secte de l'Affinement de l'Âme.
 
 Le vieil homme ne daigna même pas regarder où Liu Mei s'était rendue. Il se tourna vers Wang Lin, une lueur mystérieuse dans les yeux: « Petit ami Ceng Niu, comment as-tu trouvé ce petit cadeau? »
 
@@ -42,9 +42,9 @@ L'existence de Liu Mei était comme une épine dans le flanc de Wang Lin. En sa 
 
 Wang Lin eut un sourire amer. « Quel genre de petit cadeau est-ce là? Le Senior est prêt à offenser Suzaku; plutôt que d'en être heureux, cela m'effraie au plus haut point. »
 
-« Cet ancêtre de la Secte du Raffinage de l'Âme est très intéressant », pensa Wang Lin. Il était certain que Liu Mei avait reçu la permission de l'ancêtre pour entrer dans la secte, sans quoi elle n'aurait jamais pu y pénétrer.
+« Cet ancêtre de la Secte de l'Affinement de l'Âme est très intéressant », pensa Wang Lin. Il était certain que Liu Mei avait reçu la permission de l'ancêtre pour entrer dans la secte, sans quoi elle n'aurait jamais pu y pénétrer.
 
-Ce vieil homme ne l'avait pas expulsée auparavant; il avait choisi de le faire aujourd'hui, devant Wang Lin. C'était une manière de lui signifier que les liens entre la Secte du Raffinage de l'Âme et Suzaku étaient rompus, et que tout cela était pour lui.
+Ce vieil homme ne l'avait pas expulsée auparavant; il avait choisi de le faire aujourd'hui, devant Wang Lin. C'était une manière de lui signifier que les liens entre la Secte de l'Affinement de l'Âme et Suzaku étaient rompus, et que tout cela était pour lui.
 
 Ce n'était pas un petit cadeau!
 
@@ -80,9 +80,9 @@ Cette force contenait de l'énergie spirituelle céleste. Cela rappela à Wang L
 
 Après cinq respirations, la dernière marque de thé sur son visage disparut!
 
-À cet instant, un rire s'échappa de Wang Lin et ses yeux brillèrent comme le soleil à l'aurore. Son énergie spirituelle remplit soudainement son corps et son âme originelle atteignit chaque recoin de son être. Il ressentit une douleur lancinante dans tout son corps qui se mua rapidement en une sensation de bien-être, comme s'il avait été entravé pendant trop longtemps.
+À cet instant, un long cri s'échappa de la bouche de Wang Lin et ses yeux brillèrent comme un soleil surgissant dans la nuit noire. Son énergie spirituelle remplit soudainement son corps et son âme originelle atteignit chaque recoin de son être. Il ressentit des courbatures et de l'engourdissement dans tout son corps qui se muèrent rapidement en une sensation de bien-être, comme s'il avait été entravé pendant trop longtemps.
 
-Wang Lin laissa échapper un rire, et le sceau de Sun Tai s'effondra également.
+Wang Lin poussa un long cri, et le sceau de Sun Tai s'effondra également.
 
 Sa culture était revenue au stade intermédiaire de la Formation de l'Âme. En réalité, elle était même plus puissante qu'auparavant.
 
@@ -94,13 +94,13 @@ Wang Lin prit une profonde inspiration. Ayant recouvré sa culture, il dégageai
 
 Il comprit que si l'ancêtre de la Transformation de l'Âme était prêt à un tel déploiement de force, c'est qu'il attendait quelque chose en retour; il ne comprenait simplement pas de quoi un tel être aurait pu avoir besoin de sa part.
 
-« Bien! Ceng Niu, le dernier cadeau de ce vieux est d'élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. Quant à ton domaine, tu seras livré à toi-même; je ne peux rien y pour toi. » Sur ce, le vieil homme s'envola vers l'anneau de sang.
+« Bien! Ceng Niu, le dernier cadeau de ce vieux est d'élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. Quant à ton domaine, tu seras livré à toi-même; je ne peux rien faire pour toi. » Sur ce, le vieil homme s'envola vers l'anneau de sang.
 
 Wang Lin réfléchit un instant, puis le suivit sans mot dire.
 
 À l'extérieur de l'anneau de sang, le vieil homme tendit la main et le drapeau de plus de dix mètres réapparut. Cette fois encore, ce n'était qu'une illusion.
 
-« Voici le trésor principal de la Secte du Raffinage de l'Âme: le drapeau des mille millions d'âmes. C'est grâce à ce trésor que, bien que je ne sois qu'au stade avancé de la Transformation de l'Âme, j'ose affronter un cultivateur Ascendant. Je t'expliquerai pourquoi plus tard, mais tant que ce trésor existera, ma Secte du Raffinage de l'Âme ne mourra jamais. Cependant, si ce trésor est brisé, la secte est finie. Maintenant, je vais utiliser la force d'âme contenue dans ce drapeau pour élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. » Le vieil homme fixa Wang Lin d'un regard perçant et cria: « Assieds-toi en position du lotus! »
+« Voici le trésor principal de la Secte de l'Affinement de l'Âme: le drapeau d'un milliard d'âmes. C'est grâce à ce trésor que, bien que je ne sois qu'au stade avancé de la Transformation de l'Âme, j'ose affronter un cultivateur Ascendant. Je t'expliquerai pourquoi plus tard, mais tant que ce trésor existera, ma Secte de l'Affinement de l'Âme ne mourra jamais. Cependant, si ce trésor est brisé, la secte est finie. Maintenant, je vais utiliser la force d'âme contenue dans ce drapeau pour élever ton niveau de culture jusqu'au sommet du stade avancé de la Formation de l'Âme. » Le vieil homme fixa Wang Lin d'un regard perçant et cria: « Assieds-toi en position du lotus! »
 
 Wang Lin obéit sans hésitation. Si le vieil homme avait voulu l'attaquer, un être d'une telle puissance n'aurait pas eu besoin de tout ce cérémonial. Cependant, sa vigilance ne faiblit pas. S'il détectait le moindre signe suspect, il s'échapperait grâce à la boussole stellaire.
 
@@ -110,7 +110,7 @@ Ces dix fragments dégageaient tous des auras violettes et dorées empreintes d'
 
 « Pas étonnant qu'il puisse affronter des Ascendants avec ce drapeau… », pensa Wang Lin, commençant à comprendre.
 
-Le vieil homme murmura: « Petit ami Ceng Niu, toutes les âmes de la Transformation de l'Âme contenues dans ce drapeau sont des ancêtres de la Secte du Raffinage de l'Âme. Lorsqu'un ancêtre de la Transformation de l'Âme est sur le point de mourir, il abandonne son corps pour devenir un fragment d'âme ajouté au drapeau. N'oublie pas que lorsque je mourrai, tu devras toi aussi ajouter mon fragment d'âme dans le drapeau… »
+Le vieil homme murmura: « Petit ami Ceng Niu, toutes les âmes de la Transformation de l'Âme contenues dans ce drapeau sont des ancêtres de la Secte de l'Affinement de l'Âme. Lorsqu'un ancêtre de la Transformation de l'Âme est sur le point de mourir, il abandonne son corps et sa conscience, et accepte de bon gré de devenir un fragment d'âme sans conscience, offert en sacrifice au drapeau. N'oublie pas que lorsque je mourrai, tu devras toi aussi ajouter mon fragment d'âme dans le drapeau… »
 
 Cette dernière phrase, totalement imprévue, fit trembler le cœur de Wang Lin. Il comprenait désormais mieux la portée de ce qui se jouait.
 

@@ -50,7 +50,7 @@ Lorsque le bouchon fut retiré, une puissante aura d'énergie spirituelle s'en �
 
 L'Ancien Ouyang grogna. Il pesa la fiole dans sa main avant de déclarer: « Ami Huang Long, votre Secte Heng Yue possède un disciple exceptionnel. Adieu! »
 
-Il lança un dernier regard à Wang Lin et, après une courte réflexion, lui envoya un message mental: « Jeune-disciple Wang, je laisse passer cette affaire de poison, mais la Secte Heng Yue n'a plus d'ancêtres de l'Âme Naissante pour la protéger. Agis donc avec prudence! »
+Il lança un dernier regard à Wang Lin et, après une courte réflexion, lui envoya un message mental: « Neveu-disciple Wang, je laisse passer cette affaire de poison, mais la Secte Heng Yue n'a plus d'ancêtres de l'Âme Naissante pour la protéger. Reste donc à tes risques et périls! »
 
 Sur ces mots, il toucha le mille-pattes de mille pieds qui, lançant un regard noir à Wang Lin, s'envola vers le nord.
 
@@ -58,11 +58,11 @@ Sur ces mots, il toucha le mille-pattes de mille pieds qui, lançant un regard n
 
 Il resta stupéfait, son esprit résonnant encore des paroles de l'Ancien Ouyang. Quant au propriétaire de ce regard captivant, après l'avoir observé un instant, il ne lui accorda plus aucune attention.
 
-Une fois la Secte Xuan Dao parti, le silence retomba sur le Pic des Pins. Le regard de Huang Long balaya la zone. Un sourire aux lèvres, il déclara: « Aujourd'hui, l'échange est remporté par ma Secte Heng Yue! Tous les disciples intérieurs seront récompensés! Rendez-vous à la maison des pilules pour recevoir une fiole de pilules de rassemblement d'énergie spirituelle. Et vous tous, prenez exemple sur Wang Lin! »
+Une fois la Secte Xuan Dao partie, le silence retomba sur le Pic des Pins. Le regard de Huang Long balaya la zone. Un sourire aux lèvres, il déclara: « Aujourd'hui, l'échange est remporté par ma Secte Heng Yue! Tous les disciples intérieurs seront récompensés! Rendez-vous à la maison des pilules pour recevoir une fiole de pilules de rassemblement d'énergie spirituelle. Et vous tous, prenez exemple sur Wang Lin! »
 
 Les disciples intérieurs se mirent à acclamer un à un. Désormais, plus personne n'osait le traiter de déchet.
 
-Le cœur de Wang Zhuo était en plein chaos. Il dit à Xuan Dao: « Maître, le disciple souhaite entrer dans le passage de la vie et de la mort. Je ne me soucierai plus d'aucune autre affaire. »
+Le cœur de Wang Zhuo était en plein chaos. Il dit à Dao Xu: « Maître, le disciple souhaite entrer dans le passage de la vie et de la mort. Je ne me soucierai plus d'aucune autre affaire. »
 
 Dao Xu soupira. Wang Zhuo était son disciple préféré, et il n'ignorait rien des tensions entre lui et Wang Lin. Après avoir réfléchi, il hocha la tête: « Très bien. Profite de cette occasion pour te tenir à l'écart de Wang Lin également. »
 
@@ -70,4 +70,4 @@ Wang Zhuo esquissa un sourire amer mais garda le silence.
 
 Huang Long reprit la parole: « Vous pouvez tous partir. Wang Lin, viens avec moi. »
 
-Wang Lin acquiesça. Son regard parcourut la foule et se posa sur son troisième frère aîné, Lu Yun. Il dit: « Troisième frère aîné, attends un instant! »
+Wang Lin acquiesça. Son regard parcourut la foule et se posa sur son troisième frère aîné, Lu Yunjie. Il dit: « Troisième frère aîné, attends un instant! »

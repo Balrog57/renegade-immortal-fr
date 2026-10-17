@@ -76,7 +76,7 @@ La main géante fut finalement repoussée dans les nuages rouges et disparut. Ma
 
 Elle n'était plus une paume ouverte, mais un poing qui percuta le corps original. Dans un bang fracassant, d'innombrables parties du corps original furent endommagées alors qu'il chutait du ciel.
 
-La silhouette derrière le corps original semblait s'être éveillée. En redressant la tête, une force titanesque jaillit de son corps. La chute du corps original fut soudainement stoppée, et celui-ci vola vers le front de la silhouette.
+La silhouette derrière le corps original semblait s'être éveillée. En redressant la tête, une force titanesque jaillit de son corps. La chute du corps original fut soudainement stoppée, et celui-ci s'éleva de nouveau malgré lui pour se fondre dans le front de la silhouette.
 
 La main géante ignora la silhouette et fondit sur Wang Lin, qui s'était déjà éloigné.
 
@@ -116,7 +116,7 @@ Wang Lin saignait par tous ses orifices, mais il se mit à rire. Il riait sans s
 
 Les yeux froids des nuages rouges fixèrent Wang Lin, et le poing retomba.
 
-Wang Lin le bloqua encore une fois. Cette fois, de nombreuses parties de son corps se brisèrent et le sang jaillit de sa bouche et de son nez. Pourtant, son expression devint plus farouche encore alors qu'il riait face aux yeux dans les nuages: « J'ai cultivé le domaine de la vie et de la mort. Un jour, je ferai du cycle de réincarnation des cieux ma propriété! Alors, je ferai en sorte que ce cycle obéisse à mes ordres et que vous, simple illusion créée par lui, vous incliniez devant moi! »
+Wang Lin le bloqua encore une fois. Cette fois, de nombreuses parties de son corps se brisèrent et le sang jaillit de sa bouche et de son nez. Pourtant, son expression devint plus farouche encore alors qu'il riait face aux yeux dans les nuages: « Ce que je cultive, c'est la voie du cycle de réincarnation des cieux. Un jour, je prendrai la place de ce cycle! Alors, je ferai en sorte que ce cycle obéisse à mes ordres et que vous, simple illusion créée par lui, vous incliniez devant moi! »
 
 Le regard dans les nuages restait imperturbable, comme s'il observait un mortel désespéré débiter des absurdités.
 
@@ -134,7 +134,7 @@ L'œil gauche de cet être était semblable à la lune, et son œil droit à cel
 
 Le Wang Lin actuel n'était plus un simple cultivateur ni un Dieu Ancien, mais une combinaison inédite. Son corps possédait la puissance d'un Dieu Ancien, tout en étant porté par l'âme originelle d'un cultivateur.
 
-C'était l'union des méthodes de culture intérieure et extérieure. Wang Lin leva la tête. Derrière lui se tenait la silhouette redressée. Si l'on regardait de près, on pouvait voir une âme originelle de la taille d'un homme dans la poitrine de la figure. Des sortes de veines s'étendaient de cette âme à l'ensemble du corps de la silhouette.
+C'était l'union des méthodes de culture intérieure et extérieure. Wang Lin leva la tête. Derrière lui se tenait la silhouette redressée. Si l'on regardait de près, on pouvait voir une âme originelle plus grande qu'un homme dans la poitrine de la figure. Des sortes de veines s'étendaient de cette âme à l'ensemble du corps de la silhouette.
 
 Cette âme originelle était comme le cœur du Dieu Ancien.
 

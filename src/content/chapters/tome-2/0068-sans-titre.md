@@ -24,7 +24,7 @@ Une intention de meurtre sauvage envahit le regard de Wang Lin. C'était la prem
 
 Situ Nan s'exclama aussitôt: « C'est ça! Tue, tue, tue, tue-les tous! Tu es trop faible pour l'instant, mais si tu étais assez puissant, tu devrais massacrer ton chemin jusqu'à la Secte Xuan Dao et les exterminer. À l'époque, j'adorais faire ce genre de choses. »
 
-Pour la première fois, Wang Lin ne contesta pas les propos de Situ Nan. Il fit corps et poussière pour poursuivre Zhang Kuang.
+Pour la première fois, Wang Lin ne contesta pas les propos de Situ Nan. Il bondit à la poursuite de Zhang Kuang.
 
 Le pas de Zhang Kuang ralentit jusqu'à presque s'arrêter, mais finalement, il prit une grande inspiration, retrouva sa détermination et accéléra vers le village.
 
@@ -80,6 +80,6 @@ Situ Nan répondit calmement: « Il y en a un... mais... »
 
 Wang Lin fronça les sourcils et trancha d'un ton grave: « Si Zhou Peng s'échappe, je prendrai mes parents et nous partirons loin d'ici. Quant à la culture, j'abandonnerai tout pour vivre comme un simple mortel. »
 
-Situ Nan rétorqua aussitôt: « Pourquoi es-tu si pressé? Je prenais juste mon temps pour parler. Si j'étais le moi d'autrefois, je t'aurais tué d'une seule gifle pour ton manque de respect envers ton disciple! »
+Situ Nan rétorqua aussitôt: « Pourquoi es-tu si pressé? Je prenais juste mon temps pour parler. Si j'étais le moi d'autrefois, je t'aurais tué d'une seule gifle pour avoir été un disciple aussi irrespectueux! »
 
 « Quel disciple, espèce de vieux fou? Dépêche-toi! » Wang Lin était devenu si anxieux qu'il en perdit toute déférence.

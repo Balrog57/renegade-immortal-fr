@@ -52,7 +52,7 @@ Les deux autres Anciens se regardèrent, incapables de prononcer le moindre mot.
 
 Liu Feng lança à Wang Lin un regard profond. Il était secrètement soulagé de ne pas être monté sur scène, sous peine de subir le même sort, mais il ne comprenait pas pourquoi Wang Lin était traité de déchet dans la Secte Heng Yue alors qu'il était si fort. En observant les réactions des membres de la Secte Heng Yue, il semblait qu'ils ne jouaient pas la comédie. Était-ce vraiment parce que le senior Zhou Peng avait été imprudent? Peu importe son regard, Wang Lin n'était qu'au 3ème niveau.
 
-Tous les autres disciples partageaient les mêmes pensées que Liu Feng, s'en allant croire que le senior frère Zhou Peng avait simplement manqué de vigilance. Ils refusaient de croire qu'il avait véritablement été vaincu par Wang Lin.
+Tous les autres disciples partageaient les mêmes pensées que Liu Feng, croyant que le senior frère Zhou Peng avait simplement manqué de vigilance. Ils refusaient de croire qu'il avait véritablement été vaincu par Wang Lin.
 
 Le visage délicat de Liu Mei devint également instable. Ses pensées divergeaient de celles de la foule. Dès le premier jour, Wang Lin avait déjà attiré son attention, et à présent, elle l'observait avec un intérêt profond.
 

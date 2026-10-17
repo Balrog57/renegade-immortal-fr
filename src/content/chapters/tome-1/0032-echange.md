@@ -18,7 +18,7 @@ S'il s'agissait du premier niveau, neuf mois de culture avec une telle réserve 
 
 Le jour de la rencontre convenue avec Wang Hao était arrivé, et Wang Lin ne pénétra pas dans l'espace onirique. Vers minuit, la neige commença à tomber, et Wang Hao fit irruption dans le Sens Divin de Wang Lin.
 
-Peu après, Wang Hao frappa à la porte, sans toutefois entrer. Il lança précipitamment: « Le Maître a mis du temps à raffiner ses pilules, ce qui m'a retardé. Dépêche-toi, l'échange va bientôt commencer! »
+Peu après, Wang Hao frappa à la porte, sans toutefois entrer. Il lança précipitamment: « Le Maître a mis du temps à raffiner ses pilules, ce qui m'a retardé, et j'ai eu bien du mal à sortir. Dépêche-toi, l'échange va bientôt commencer! »
 
 Wang Hao se hâta vers le lieu de l'échange et Wang Lin le suivit promptement. Les deux marchèrent dans la neige, quittant les cours de la secte pour s'enfoncer dans les montagnes.
 
@@ -34,23 +34,23 @@ Wang Lin scruta Wang Hao avec son Sens Divin et perçut comme une barrière de b
 
 Les deux hommes progressèrent rapidement. Après quelques virages, ils débouchèrent sur une vaste étendue. L'espace était immense. Des dizaines de personnes s'y tenaient debout, enveloppées d'un brouillard noir semblable au leur, dans un silence pesant. Wang Lin et Wang Hao trouvèrent un espace vide et s'y immobilisèrent.
 
-Peu après, constatant que personne d'autre n'arrivait, un individu s'avança. Il toussa une fois, puis déclara d'une voix enrouée: « Le temps est venu. C'est moi qui préside l'échange cette fois-ci. Comme d'habitude, je commence. » Après avoir parlé, il sortit une petite épée argentée et ajouta: « Cette épée volante n'appartient pas à la secte. C'est une pièce que j'ai obtenue par mes propres moyens et elle est très puissante. Je n'en demande que 500 talismans. »
+Peu après, constatant que personne d'autre n'arrivait, un individu s'avança. Il toussa une fois, puis déclara d'une voix enrouée: « Le temps est venu. C'est encore moi qui préside l'échange. Les règles restent les mêmes, je commence. » Après avoir parlé, il sortit une petite épée argentée et ajouta: « Cette épée volante n'appartient pas à la secte. Je l'ai obtenue par hasard et sa puissance est honorable. Je n'en demande que 500 talismans. »
 
 Une rumeur parcourut l'assemblée au sujet de l'épée, puis quelqu'un s'avança et, sans un mot, remit 500 talismans pour conclure la transaction.
 
-Un autre prit la parole: « Je possède ce morceau de jade magique capable de déclencher trois fois une technique semblable à "Fendre la Terre". Je ne demande que 10 pilules de Rassemblement de Qi. » Il sortit le jade, l'agita d'un geste et le rengena.
+Un autre prit la parole: « Je possède ce talisman de jade de rang inférieur, capable de déclencher trois fois une technique semblable à "Fendre la Terre". Je ne demande que 10 pilules de Rassemblement de Qi. » Il sortit le jade, l'agita d'un geste et le rangea.
 
 Un homme non loin de Wang Lin s'exclama aussitôt: « Je l'échange! » Mais alors qu'il s'avançait, un autre se précipita: « J'offre 12 pilules pour ce jade! » Le premier hésita et fixa intensément le second sans dire mot; il sentait que 10 pilules étaient son maximum.
 
 Bientôt, les participants se succédèrent un à un, exhibant leurs trésors. La scène devint animée, particulièrement lorsque des disputes éclataient pour un objet précis: celui qui offrait la plus haute enchère l'emportait.
 
-« Je possède ici une technique qui, tant que vous êtes au-dessus du second niveau de Condensation de Qi, peut masquer votre culture pendant une courte période, à moins que la personne ne soit déjà au stade de l'Établissement des Fondations. Je sais bien que cet objet est peu utile. Je n'en demande que 10... non, 5 pilules de Rassemblement de Qi. » L'homme qui parlait semblait très hésitant.
+« Je possède ici une technique qui se pratique dès le second niveau de Condensation de Qi et peut masquer votre culture pendant une courte période, à moins que la personne ne soit déjà au stade de l'Établissement des Fondations. Je sais bien que cet objet est peu utile. Je n'en demande que 10... non, 5 pilules de Rassemblement de Qi. » L'homme qui parlait semblait très hésitant.
 
 L'assistance éclata de rire. Cette technique était effectivement dérisoire. Tous les disciples voulaient étaler leur puissance, car plus la culture était élevée, meilleur était le traitement. Qui serait assez ennuyeux pour vouloir dissimuler sa force? Si l'effet durait plus longtemps, cela aurait un intérêt, mais il ne s'agissait que d'une brève durée pour un coût de 5 pilules de Rassemblement de Qi.
 
 Voyant que personne n'était intéressé, l'homme soupira. Alors qu'il allait ranger son bien, Wang Lin interpella: « J'échange 5 pilules de Rassemblement de Qi contre cela. »
 
-L'homme au centre resta stupéfait. L'assistance, soudainement enthousiaste, se précipita pour l'échange.
+L'homme resta stupéfait, puis, ravi, s'empressa de venir conclure l'échange.
 
 En tenant l'objet contenant la technique, Wang Lin resta interdit. Il n'avait jamais vu une chose pareille. Il l'examina rapidement avec son Sens Divin et la méthode de la technique s'imprima aussitôt dans son esprit. Cet objet pouvait être inutile pour les autres, mais il était précieux pour lui, même si sa capacité à masquer la culture était limitée dans le temps.
 
@@ -60,8 +60,8 @@ Wang Hao s'enflamma aussitôt et cria: « 20 pilules de Rassemblement de Qi! »
 « 1000 talismans et une épée volante! »
 « 2000 talismans! »
 « 30 pilules de Rassemblement de Qi et 500 talismans! »
-« Un jade de compétence, une épée volante, 10 pilules de Rassemblement de Qi et 500 talismans! »
+« Un talisman de jade de rang inférieur, une épée volante, 10 pilules de Rassemblement de Qi et 500 talismans! »
 
 La foule hurlait ses offres. Il était évident que la pilule de Bonne Fortune était un objet d'une importance capitale. Wang Lin avait déjà entendu parler de cette pilule par l'intermédiaire de Wang Hao: une fois consommée, ses effets persistaient dans le corps pendant deux mois, durant lesquels la vitesse d'absorption de l'énergie spirituelle était multipliée par plusieurs. C'était le désir ultime de nombreux disciples internes, impatients de franchir le palier suivant de leur Condensation de Qi.
 
-Cette pilule était extrêmement précieuse, même au sein de la secte. Normalement, un disciple n'avait que deux occasions d'en obtenir une: lors de sa promotion au rang de tissu noir, il en recevait une, et lors de sa promotion au rang de tissu violet, il en recevait deux.
+Cette pilule était extrêmement précieuse, même au sein de la secte. Normalement, un disciple n'avait que deux occasions dans toute sa vie d'en obtenir: lors de sa promotion au rang noir, il en recevait une, et lors de sa promotion au rang violet, il en recevait deux.

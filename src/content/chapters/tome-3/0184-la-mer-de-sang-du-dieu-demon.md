@@ -34,7 +34,7 @@ Wang Lin rétracta son Sens Divin pour éviter toute attaque par ce biais et env
 
 « Cède le trésor de l'héritage... »
 
-L'Empereur Antique fut stupéfait. Même lorsqu'il était venu ici il y a mille ans, il n'avait jamais vu ces créatures communiquer par Sens Divin. Mais il réagit rapidement et répondit: « Se... Seniors, je ne sais pas de quel trésor de l'héritage vous parlez. »
+L'Empereur Antique fut stupéfait. Même lorsqu'il était venu ici il y a mille ans, il n'avait jamais vu ces créatures communiquer par Sens Divin. Mais il réagit rapidement et répondit: « Se... Senior, je ne sais pas de quel trésor de l'héritage vous parlez. »
 
 Après avoir parlé, une amertume lui serra le cœur. Depuis qu'il était devenu un expert en Formation de l'Âme, il n'avait plus eu à appeler personne « Senior ». En prononçant ce mot, il ressentit un profond dégoût de soi.
 
@@ -90,7 +90,7 @@ Cette fois, il ne chercha pas les autres, mais retourna là où son corps était
 
 Dans l'espace vide, le corps de l'Empereur Antique rétrécissait, son visage livide. Son Âme Naissante crachait sans cesse du Feu Originel pour empêcher les âmes errantes de le dévorer, mais il ne faisait que gagner du temps sans pouvoir les repousser.
 
-Même si son trésor magique salvateur n'avait pas été brisé, ou si sa culture était encore au stade intermédiaire de la Formation de l'Âme, il n'aurait tout de même pas pu faire face à tant d'âmes errantes tentant de le dévorer.
+Même si son trésor de vie n'avait pas été brisé, ou si sa culture était encore au stade intermédiaire de la Formation de l'Âme, il n'aurait tout de même pas pu faire face à tant d'âmes errantes tentant de le dévorer.
 
 Peu après le départ de Wang Lin, Bossu Meng arriva. Son corps se déplaçait telle une étoile filante. Il jeta un regard sur l'Empereur Antique et fronça les sourcils; l'odeur répugnante avait disparu. Alors qu'il s'apprêtait à la suivre, il s'arrêta brusquement et fixa l'Empereur Antique. Une pensée traversa son esprit.
 
@@ -140,7 +140,7 @@ Maintenant que les âmes errantes étaient inutiles contre Bossu Meng, Wang Lin 
 
 Wang Lin connaissait parfaitement ses limites. Bien qu'il ait eu l'avantage jusqu'ici, il savait que c'était uniquement parce qu'il pouvait emprunter une force extérieure.
 
-Si Bossu Meng avait été entouré par la tempête d'âmes errantes comme auparavant, Wang Lin n'aurait même pas eu autant de chances qu'un chien qui se noie.
+Si Bossu Meng n'avait pas été encerclé par les tornades à l'époque, Wang Lin n'aurait même pas eu l'occasion de frapper un chien qui se noie.
 
 Mais maintenant que cette force externe avait disparu et que les deux adversaires partaient sur un pied d'égalité, aussi courageux fût-il, il n'avait d'autre choix que de fuir immédiatement.
 
@@ -194,7 +194,7 @@ Aussitôt ses paroles prononcées, il chargea vers le nord-ouest, s'engouffrant 
 
 Le Seigneur Démon des Six Désirs fronça les sourcils. Alors qu'il analysait la situation, son visage pâlit soudainement. Il vit une météorite rouge sang foncer sur lui. En un clin d'œil, elle se trouvait déjà à mille pieds de lui. La silhouette démoniaque gigantesque de Bossu Meng venait d'apparaître.
 
-« Toi... Tu es le Bossu Meng? Tu... tu as consommé une pilule de Transformation de l'Âme? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Bossu Meng, qu'il était déjà au stade avancé de la Transformation de l'Âme, n'étant qu'à un pas du stade supérieur.
+« Toi... Tu es le Bossu Meng? Tu... tu as consommé une pilule de Transformation de l'Âme? » Les pupilles du Seigneur Démon des Six Désirs se rétractèrent. Il percevait, à la pression dégagée par Bossu Meng, qu'il était déjà au stade avancé de la Formation de l'Âme, n'étant qu'à un pas de la Transformation de l'Âme.
 
 La seule façon d'atteindre ce niveau de culture était de consommer une pilule de Transformation de l'Âme!
 
@@ -204,7 +204,7 @@ Bossu Meng fixa le Seigneur Démon des Six Désirs de ses grands yeux. L'individ
 
 Il balaya rapidement cette sensation de son esprit. Il esquissa un sourire cruel et déclara: « Mon nom n'est pas Bossu Meng, je suis le Dieu Démon Tu Si! »
 
-Tout en parlant, il balaya l'espace vide de sa main droite couverte d'épines osseuses, créant une immense déchirure. Dès que la faille apparut, des vagues de lumière rouge en jaillirent. Peu après, une silhouette écarlate haute de dix pieds émergea de la brèche.
+Tout en parlant, il balaya l'espace vide de sa main droite couverte d'épines osseuses, créant une immense déchirure. Dès que la faille apparut, des vagues de lumière rouge en jaillirent. Peu après, une silhouette écarlate haute de cent pieds émergea de la brèche.
 
 « Je te laisse cette personne. Je vais poursuivre le prochain! » lança Bossu Meng avant de s'envoler.
 

@@ -12,7 +12,7 @@ Il avait oublié son identité de cultivateur et ses quatre cents ans de massacr
 
 Chaque matin, Wang Lin se levait et ouvrait la porte de sa boutique avant de se mettre à sculpter. Son échoppe était déjà remplie d'innombrables œuvres de bois.
 
-Les commerçants voisins avaient progressivement découvert que la boutique où résidait Wang Lin avait changé de mains. Tous éprouvaient un profond respect pour ce jeune homme calme et élégant.
+Les commerçants voisins avaient progressivement découvert que la boutique où résidait Wang Lin avait changé de mains. Tous éprouvaient une grande sympathie pour ce jeune homme calme et élégant.
 
 Au fil du temps, Wang Lin commença à attirer des clients. Bien qu'ils ne puissent percevoir l'énergie spirituelle dans les sculptures, ils étaient frappés par la finesse de leur travail. Peu à peu, sa boutique acquit une certaine renommée dans la région.
 
@@ -53,7 +53,7 @@ Une demi-heure plus tard, Wang Lin pressa fermement le couteau là où devaient 
 
 La bête parut lever le regard vers le ciel. Ses yeux trahissaient une pointe de frustration et de crainte. Sa gueule était grande ouverte, comme si elle laissait échapper des vagues de rugissements silencieux. Une aura invisible, indétectable pour les mortels, s'en dégageait.
 
-Mais alors que cette aura se propageait, Wang Lin la toucha de la main droite et elle disparut aussitôt.
+Mais cette aura n'avait pas encore parcouru trois pouces que Wang Lin la toucha de la main droite et elle disparut aussitôt.
 
 Wang Lin prit une profonde inspiration et posa nonchalamment la sculpture sur une étagère. Au cours de l'année écoulée, il avait constaté qu'il ne pouvait sculpter que des bêtes spirituelles de qualité moyenne. Quant aux bêtes de haute qualité, quels que soient ses efforts, il ne parvenait jamais à les achever.
 
@@ -69,7 +69,7 @@ Wang Lin réfléchit un instant, leva les yeux vers le garçon et dit:
 — La sculpture exige de la compréhension. Si tu veux apprendre, tu devras m'observer pendant soixante ans. Après soixante ans, tu pourras sculpter par toi-même.
 
 Da Niu tira la langue et répliqua:
-— Soixante ans... Pourtant, j'ai vu le charpentier dans la partie sud de la ville. Il n'a que quarante ans et ses sculptures sont déjà très bonnes.
+— Soixante ans... Pourtant, j'ai vu le charpentier dans la partie sud de la ville. Il n'a que quarante et quelques années et ses sculptures sont déjà très bonnes.
 
 Wang Lin but une gorgée de vin et répondit simplement:
 — Je suis différent de lui.
@@ -85,7 +85,7 @@ Wang Lin n'en fut pas perturbé. Il prit un autre morceau de bois et commença �
 
 Le temps s'écoula lentement. Plus d'une heure plus tard, la porte de la boutique fut poussée. Da Niu entra joyeusement, suivi d'un jeune homme à l'allure très robuste. Ce dernier parcourut les sculptures du regard et ses yeux s'illuminèrent.
 
-Da Niu se faufila rapidement près de Wang Lin et murmura, par quelques gestes et un souffle:
+Da Niu se faufila rapidement près de Wang Lin et murmura rapidement en lui faisant des clins d'œil:
 — Ne les vendez pas trop cher!
 
 Puis, il se retourna brusquement et lança d'une voix forte:

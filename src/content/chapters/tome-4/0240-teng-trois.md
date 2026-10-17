@@ -10,13 +10,13 @@ Teng Trois ne paraissait pas jeune. Ses cheveux étaient déjà blancs et il sem
 
 Il était très beau. Sur son visage impeccable, ses yeux brillaient comme des gemmes noires.
 
-Teng Trois dit doucement: « Xiu Xiu, pour l'instant, la famille Teng fait face à un ennemi puissant et l'Ancêtre ne sortira pas. Toute cette situation est bien trop étrange. Une fois que tu auras atteint la ville de la famille Teng en toute sécurité, reste avec ta petite sœur et ne sors pas. »
+Teng Trois dit doucement: « Xiu Xiu, pour l'instant, la famille Teng fait face à un ennemi puissant et l'Ancêtre ne sortira pas. Toute cette situation est bien trop étrange. Une fois que tu auras atteint la Ville de la Famille Teng en toute sécurité, reste avec ta petite sœur et ne sors pas. »
 
-Teng Xiu Xiu était la fille de Teng Trois. La raison pour laquelle il avait quitté la chambre cachée était de protéger sa fille sur le chemin menant à la ville de la famille Teng.
+Teng Xiu Xiu était la fille de Teng Trois. La raison pour laquelle il avait quitté la chambre cachée était de protéger sa fille sur le chemin menant à la Ville de la Famille Teng.
 
 Teng Xiu Xiu hocha la tête.
 
-Teng Trois hésita un instant et reprit: « Si... si je ne peux échapper à la mort cette fois, alors oublie l'idée d'aller à la ville de la famille Teng pour retrouver ta petite sœur. Quitte immédiatement le pays de Zhao. Va aussi loin que possible. »
+Teng Trois hésita un instant et reprit: « Si... si je ne peux échapper à la mort cette fois, alors oublie l'idée d'aller à la Ville de la Famille Teng pour retrouver ta petite sœur. Quitte immédiatement le pays de Zhao. Va aussi loin que possible. »
 
 Wang Zhuo écoutait tout cela en silence sur le côté. Bien que son expression fût calme, il riait froidement dans son cœur.
 
@@ -44,7 +44,7 @@ En entendant cela, Teng Xiu Xiu se précipita pour saisir le bras de Wang Zhuo. 
 
 Le regard de Teng Trois resta froid, mais il laissa échapper un lent soupir avant de se détourner. L'expression de Teng Xiu Xiu ressemblait à celle de sa femme. Il ne voulait pas tuer Wang Zhuo pour ne pas infliger de douleur à sa fille.
 
-« Wang Zhuo, bien que la famille Teng ait exterminé les tiens, j'espère que tu n'infligeras aucun mal à Xiu Xiu. Vous deux... êtes un couple de cultivateurs, après tout. Même si vos parents ne peuvent être à vos côtés, ta femme sera avec toi pour le reste de ta vie. Wang Zhuo, agis avec sagesse. »
+« Wang Zhuo, bien que la famille Teng ait exterminé les tiens, j'espère que tu n'infligeras aucun mal à Xiu Xiu. Vous deux... êtes un couple de cultivateurs, après tout. Même si tes parents ne peuvent être à tes côtés, ta femme sera avec toi pour le reste de ta vie. Wang Zhuo, agis avec sagesse. »
 
 Wang Zhuo réfléchit un instant. Il regarda Teng Xiu Xiu d'un air complexe. Si ce jour venait un jour, lui-même ignorait ce qu'il ferait.
 
@@ -52,7 +52,7 @@ Teng Xiu Xiu regarda les deux hommes qui étaient les plus importants de sa vie 
 
 Bien que l'expression de Teng Trois fût restée de marbre, son envie de tuer s'intensifia considérablement. Si la famille Teng avait été stable, que Wang Zhuo vive ou meure n'aurait eu aucune importance, car il était certain qu'il ne saurait agir avec imprudence.
 
-Mais en ce moment, la famille Teng était en péril, et la situation était tout autre. Teng Trois prit une décision: une fois de retour à la ville de la famille Teng, il trouverait l'occasion d'éliminer Wang Zhuo.
+Mais en ce moment, la famille Teng était en péril, et la situation était tout autre. Teng Trois prit une décision: une fois de retour à la Ville de la Famille Teng, il trouverait l'occasion d'éliminer Wang Zhuo.
 
 Car il avait le pressentiment que si Wang Zhuo ne mourait pas, Teng Xiu Xiu resterait en danger.
 
@@ -86,7 +86,7 @@ C'est à cause de cette goutte de sang mortel que la puissance de l'épée s'en 
 
 S'il pouvait choisir sa fin, il souhaitait mourir aux côtés de cette épée.
 
-Il effleura doucement l'arme volante. C'était la dernière fois qu'il la purifiait avec son énergie spirituelle. Un regard déterminé éclaira son visage et, sans un mot, l'épée émit un bourdonnement avant de foncer vers le nuage céleste.
+Il effleura doucement l'arme volante. C'était la dernière fois qu'il la purifiait avec son énergie spirituelle. Un regard déterminé éclaira son visage et, sans un mot, l'épée émit un bourdonnement avant de foncer vers le nuage noir du ciel.
 
 Teng Trois bondit aussitôt pour suivre l'épée. Mobilisant toute l'énergie spirituelle de son corps, il s'élança telle une étoile filante vers la masse noire.
 
@@ -96,7 +96,7 @@ L'étoile filante traversa le ciel, pénétra le nuage noir et s'écrasa à cinq
 
 Les nuages sombres se rassemblèrent pour former une silhouette ressemblant à Wang Lin. Ce dernier observa pensif la direction où l'étoile était tombée.
 
-L'homme d'âge mûr chargea Wang Lin sans aucune crainte dans les yeux et périt face au Royaume de Ji de ce dernier. Cependant, au moment précis de sa mort, Wang Lin ressentit la profonde affliction de Teng Trois.
+L'homme d'âge mûr chargea Wang Lin sans aucune crainte dans les yeux et périt face au Royaume Ji de ce dernier. Cependant, au moment précis de sa mort, Wang Lin ressentit la profonde affliction de Teng Trois.
 
 Wang Lin resta pensif un long moment, mais il ne retira pas son âme, bien que cet homme eût fait un excellent démon. Il ne pensait pas qu'un membre de la famille Teng puisse chérir ses proches à ce point. Néanmoins, l'homme devait mourir; il n'aurait jamais dû naître au sein de la lignée des Teng.
 
@@ -106,7 +106,7 @@ Dans sa main, l'épée nommée Dao Yun brilla une ultime fois avant de se briser
 
 ***
 
-Ville de la famille Teng.
+Ville de la Famille Teng.
 
 Teng Huayuan se tenait au dernier étage de la demeure ancestrale des Teng, contemplant neuf morceaux de jade. Cinq d'entre eux étaient déjà brisés et, alors qu'il poussait un soupir, le jade représentant Teng Trois se fendit en deux.
 

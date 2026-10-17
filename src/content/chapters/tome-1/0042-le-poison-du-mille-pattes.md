@@ -26,7 +26,7 @@ Ce genre de comportement existait dans chaque secte, ce n'était donc pas un inc
 
 La jeune femme nommée Zhou, assise aux côtés de Wang Lin, fronça les sourcils. Elle lança un regard dégoûté à Wang Zhuo, puis murmura à l'oreille de Wang Lin: « Junior frère Wang Lin, si je n'étais pas venue, il ne t'aurait pas pris pour cible. Je... »
 
-Wang Lin secoua la tête. Wang Zhuo ne s'en prenait pas à lui depuis seulement quelques jours. Dès le premier jour de leur rencontre, Wang Zhuo s'était efforcé de le ridiculiser. Le reste de la secte le méprisait car il avait été accepté après une tentative de suicide, avant de devenir disciple intérieur grâce à l'Ancien Sun.
+Wang Lin secoua la tête. Wang Zhuo ne s'en prenait pas à lui depuis seulement quelques jours. Dès le premier jour de leur rencontre, Wang Zhuo s'était efforcé de le ridiculiser. Tous les disciples intérieurs le méprisaient à cause des rumeurs selon lesquelles il avait été admis dans la secte par un suicide et s'était attiré les faveurs des Anciens par des actes vils.
 
 Surtout, il n'était qu'au 3ème niveau de Condensation de Qi, ce qui faisait de lui le plus faible de tous ces disciples.
 
@@ -34,7 +34,7 @@ La puissance était la seule loi. Wang Lin jeta un regard vers le mille-pattes d
 
 Peu de temps après, Wang Zhuo désigna quelques disciples pour escorter les membres de la Secte Xuan Dao vers leurs chambres afin qu'ils puissent se reposer.
 
-Le disciple de la Secte Xuan Dao doté de racines spirituelles d'eau, nommé Liu, jeta un regard à Wang Lin avant de partir et lui dit doucement: « Vous devez être le frère Wang Lin. Le mille-pattes de notre Secte Xuan Dao est une créature sauvage. Lorsque tu le nourriras, ne t'approche pas trop près, sous peine d'être blessé. »
+Le disciple de la Secte Xuan Dao doté de racines spirituelles d'eau, nommé Liu, jeta un regard à Wang Lin avant de partir et lui dit doucement: « Tu dois être le junior frère Wang Lin. Le mille-pattes de notre Secte Xuan Dao est une créature sauvage. Lorsque tu le nourriras, ne t'approche pas trop près, sous peine d'être blessé. »
 
 Wang Zhuo lança un sourire glacial à Wang Lin, puis cessa de l'importuner. Bientôt, la foule se dispersa devant la salle principale.
 
@@ -42,11 +42,11 @@ La jeune femme nommée Zhou fronça les sourcils. Elle discuta encore un moment 
 
 Observant la zone désormais déserte, Wang Lin se leva et marcha vers le mille-pattes. Il s'arrêta à trente-trois mètres de la créature et examina attentivement la bête spirituelle.
 
-En y regardant de plus près, ce mille-pattes de mille pieds était un monstre colossal. Son corps était composé de multiples segments, et entre chaque section se trouvaient des anneaux hérissés d'épines pointant vers l'extérieur comme autant d'épées. De faibles taches noires parsemaient son corps, et sa tête arborait deux énormes pinces menaçantes.
+En y regardant de plus près, ce mille-pattes de mille pieds était un monstre colossal. Son corps était composé de multiples anneaux, chacun muni d'une paire de pattes d'un noir profond, serrées comme autant de lames tranchantes. Son corps segmenté comme un bambou laissait transparaître de faibles taches de lumière noire, et sa tête arborait deux énormes pinces menaçantes.
 
 De plus, ce qui attirait le plus l'attention était la paire de longues moustaches rouges qui ondulaient sans qu'aucun vent ne les agitât, telles deux serpents sveltes.
 
-Comme s'il avait senti le regard de Wang Lin, la créature ouvrit et ferma ses yeux, lui lançant un regard glacial. Wang Lin ressentit immédiatement une vague de froid le traverser.
+Comme s'il avait senti le regard de Wang Lin, la créature ouvrit ses yeux clos et lui lança un regard glacial. Wang Lin ressentit immédiatement une vague de froid le traverser.
 
 Son corps frissonna, mais le mouvement du pouvoir spirituel en lui dispersa aussitôt cette sensation glaciale.
 
@@ -58,7 +58,7 @@ En chemin, Wang Lin croisa certains disciples de la Secte Xuan Dao escortés par
 
 Une des jeunes femmes de la Secte Xuan Dao, d'une grande beauté avec un visage si délicat qu'il semblait pouvoir se briser au contact d'une goutte d'eau, rit: « Junior frère, tous ces petits animaux ne suffiront pas à nourrir le mille-pattes. Tu devrais plutôt chercher un gros serpent; c'est son mets préféré. »
 
-Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée et a dû tenter de se suicider, ce qui a contraint les Anciens à l'accepter comme disciple honorifique. »
+Un disciple de la secte intérieure profita de l'occasion pour s'attirer ses faveurs et lança: « Junior sœur Ouyang, ne parle pas à ce gamin, c'est un muet. Tu l'ignores peut-être, mais il n'est pas apte à la culture. Il a échoué à tous les tests d'entrée, mais il a fait un tel scandale, à la vie à la mort, que les Anciens, impuissants, ont fini par l'accepter comme disciple honorifique. »
 
 Wang Lin reconnut immédiatement l'interlocuteur: c'était Sun Hao, celui-là même qui s'était moqué de lui durant la période d'entraînement.
 

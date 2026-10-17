@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 368
 slug: grande-calamite
 ---
-Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Son visage était d'une extrême sévérité lorsqu'il se redressa, mais après avoir réfléchi un instant, il se rassoit.
+Quelque part dans un pays de culture de rang 1 à Suzaku, un vieil homme sale qui dévorait une cuisse de poulet toussa soudainement plusieurs fois et recracha la viande qu'il avait en bouche. Il leva la tête et regarda au loin en direction du pays de Suzaku. Son visage était sombre comme l'eau lorsqu'il se redressa pour partir, mais après avoir réfléchi un instant, il se rassit lentement.
 
 Son expression était particulièrement laide alors qu'il marmonnait pour lui-même: « Frère apprenti aîné, nous avons combattu tout au long de nos vies. Allons-nous continuer à nous battre même alors que nous sommes sur le point de mourir... J'ai perdu la bataille pour le titre de Suzaku à l'époque pour te laisser la victoire... Mais tu ne devrais pas aller trop loin! Puisque Wang Lin a pu revenir du Royaume Céleste, il est mon choisi! Si tu le ruines, je ruinerai Qian Feng! »
 
@@ -18,7 +18,7 @@ Wang Lin cultivait, les yeux fermés, assis sur la bête moustique. Après un lo
 
 « Mes blessures physiques vont bien, mais celles de mon âme sont problématiques. De plus, je ressens un sentiment de danger ici à Suzaku. Ce pressentiment est certainement fondé. »
 
-« Les blessures de Papillon Rouge étaient similaires aux miennes, mais elle a réalisé une percée. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant qu'elle ne sorte de sa culture en isolation, je crains de ne pas pouvoir me défendre contre elle. »
+« Les blessures de Papillon Rouge étaient similaires aux miennes, mais elle semble avoir compris quelque chose et percera certainement après sa culture en isolation. Si je ne parviens pas au stade avancé de la Formation de l'Âme avant notre prochaine rencontre, je crains de ne pas pouvoir me défendre contre elle. »
 
 Wang Lin était plongé dans ses pensées lorsque son expression changea soudainement. La moustique cessa de voler et regarda autour d'elle avec confusion.
 
@@ -124,13 +124,13 @@ Les yeux de l'homme d'âge moyen s'illuminèrent lorsqu'il vit le drapeau dans l
 
 De son point de vue, Ceng Niu était condamné. Il était impossible que deux cultivateurs de la Transformation de l'Âme ne parviennent pas à abattre un simple cultivateur de la Formation de l'Âme.
 
-Le visage de Wang Lin devint encore plus pâle et une pointe de désespoir envahit son cœur. Son corps original ne pourrait certainement pas arriver à temps. Même en faisant abstraction de la distance, son corps originel ne pourrait pas intervenir sans risquer une mort certaine.
+Le visage de Wang Lin devint encore plus pâle et une pointe de désespoir envahit son cœur. Son corps originel ne pourrait certainement pas arriver à temps. Même en faisant abstraction de la distance, son corps originel ne pourrait pas intervenir sans risquer une mort certaine.
 
 Il devait gagner du temps jusqu'à l'arrivée de Sun Tai. C'était sa seule issue!
 
 Cependant, l'usage du drapeau de restriction avait épuisé toute son énergie spirituelle. Il ne lui restait plus rien en réserve.
 
-L'homme d'âge moyen s'apprêtait à pointer à nouveau son doigt quand l'un des hommes en noir aux côtés de l'Ancien s'avança et dit respectueusement: « Ancêtre, permettez que ce junior tue cet individu pour venger mon honneur! »
+L'homme d'âge moyen s'apprêtait à pointer à nouveau son doigt quand l'un des hommes en noir aux côtés de l'Ancien s'avança et dit respectueusement: « Ancêtre, permettez que ce junior tue cet individu pour venger l'ancienne rancune! »
 
 L'homme d'âge moyen baissa la main et tourna son regard vers l'Ancien du Clan des Démons Géants.
 

@@ -8,37 +8,37 @@ slug: ancetre
 ---
 Après être retourné dans sa chambre, Wang Lin s'assit en tailleur sur son lit. Il déploya son sens divin et laissa une trace de celui-ci autour de sa pièce afin de détecter toute personne tentant de l'explorer avec son propre sens divin.
 
-Par la suite, il sortit le mystérieux joyau et commença à réfléchir. Il y a environ trois jours, tous les symboles gravés sur le joyau avaient disparu, remplacées par l'image d'une feuille.
+Par la suite, il sortit la mystérieuse perle et commença à réfléchir. Il y a environ trois jours, tous les symboles gravés sur la perle avaient disparu, remplacés par l'image d'une feuille.
 
-À ce sujet, Situ Nan avait déclaré que le Joyau Défiant le Ciel contenait suffisamment d'élément eau et qu'il avait désormais besoin de l'élément bois. Pour cette raison, il avait exhorté Wang Lin à plusieurs reprises à quitter la Secte Heng Yue pour se procurer des matériaux dotés de l'élément bois afin de remplir rapidement le joyau.
+À ce sujet, Situ Nan avait déclaré que la Perle Défiant le Ciel contenait suffisamment d'élément eau et qu'il avait désormais besoin de l'élément bois. Pour cette raison, il avait exhorté Wang Lin à plusieurs reprises à quitter la Secte Heng Yue pour se procurer des matériaux dotés de l'élément bois afin de remplir rapidement la perle.
 
 Wang Lin avait pris conscience de sa puissance actuelle. Il se trouvait au 14ème niveau de Condensation de Qi. Cependant, il était curieux de savoir pourquoi il n'avait besoin d'aucun chant pour progresser ainsi par la culture. Il soupçonnait que cela avait un lien avec Situ Nan.
 
-Tout en tenant le joyau, il entra dans l'espace de rêve. Au moment où il s'apprêtait à y pénétrer, il rangea rapidement l'objet.
+Tout en tenant la perle, il entra dans l'espace de rêve. Au moment où il s'apprêtait à y pénétrer, il rangea rapidement l'objet.
 
 Dès qu'il entra dans l'espace de rêve, Situ Nan dit avec mécontentement: « Pourquoi n'as-tu pas tué ces gens lors de la compétition plus tôt? Si c'était moi, j'aurais tué tous les mâles et aspiré toute l'essence des femelles, puis j'aurais utilisé ce centipède pour faire du vin. Ce serait très nutritif. Mais une chose que tu as faite et qui a plu à mes goûts, c'est d'avoir tué ce Sun Dazhu. Pas mal. Tout comme moi dans ma jeunesse. Wang Lin, souviens-toi que le monde de la culture est un endroit cruel. Les forts dévorent les faibles. Si tu persistes dans ta naïveté, je crains que tu ne vives pas longtemps. »
 
-Wang Lin réfléchit longuement. « Aîné, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations? Junior ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
+Wang Lin réfléchit longuement. « Senior, la prochaine étape doit-elle être la préparation à l'Établissement des Fondations? Junior ne connaît aucun chant pour accéder à l'Établissement des Fondations. »
 
 Situ Nan renifla et dit: « Je connais le chant, mais atteindre le stade de l'Établissement des Fondations est la véritable étape qui marque l'entrée dans le monde de la culture, et c'est extrêmement difficile. Tu devrais trouver un endroit isolé pour t'y retirer en méditation afin d'augmenter tes chances de percer. De plus, ton eau spirituelle et ton eau de neige ne suffiront plus. Lorsque tu entreras dans l'Établissement des Fondations, tu auras besoin de beaucoup d'énergie spirituelle; tu ferais mieux de préparer un peu de rosée spirituelle. »
 
 Wang Lin hocha la tête et dit: « La rosée est facile à obtenir. Cela demande simplement beaucoup de temps. »
 
-Situ Nan soupira et dit: « Le stade du Mouvement Spirituel, qui correspond également à la phase de Condensation de Qi, consiste à utiliser l'énergie spirituelle du ciel et de la terre pour raffiner le corps. Tout cela n'est que préparation pour l'Établissement des Fondations. À ce stade, tu peux déjà tenter de percer, mais je te recommande d'attendre d'atteindre le 15ème niveau. Ton talent n'est pas exceptionnel et, bien que j'aie utilisé ma propre essence pour t'aider ces dernières décennies, atteindre l'Établissement des Fondations est un acte défiant le ciel. Si j'avais encore mon corps, je serais à peine capable de t'aider à franchir cette étape, mais je ne peux pas faire grand-chose maintenant. »
+Situ Nan soupira et dit: « Le stade du Mouvement Spirituel, qui correspond également à la phase de Condensation de Qi, consiste à utiliser l'énergie spirituelle du ciel et de la terre pour raffiner le corps. Tout cela n'est que préparation pour l'Établissement des Fondations. À ce stade, tu peux déjà tenter de percer, mais je te recommande d'attendre d'atteindre le 15ème niveau. Ton talent n'est pas exceptionnel et, bien que j'aie utilisé l'essence de mon Âme Naissante pour te remodeler ces dernières décennies, une telle chose défie le ciel. Si j'avais encore mon corps, j'y parviendrais à peine; maintenant, je ne peux que rendre ton aptitude un peu meilleure, sans pouvoir la rendre parfaite. »
 
-« De plus, tes moyens d'attaque sont trop rudimentaires. Une seule technique ne suffira pas. Mais malheureusement, toutes les techniques que je possède exigent que tu sois au moins au stade de l'Établissement des Fondations pour les utiliser. Tu devrais rapidement atteindre ce stade afin que je puisse te transmettre la Méthode d'Ascension Souterraine. »
+« De plus, tes moyens d'attaque sont trop rudimentaires. Une seule technique ne suffira pas. Mais malheureusement, toutes les techniques que je possède exigent que tu sois au moins au stade de l'Établissement des Fondations pour les utiliser. Tu devrais rapidement atteindre ce stade afin que je puisse te transmettre la Méthode d'Ascension des Enfers. »
 
-Wang Lin fut stupéfait: « La Méthode d'Ascension Souterraine? »
+Wang Lin fut stupéfait: « La Méthode d'Ascension des Enfers? »
 
-Situ Nan dit fièrement: « Exactement. Hé hé, même dans mon pays d'origine, un pays de rang 6, c'est une méthode de qualité supérieure. Malheureusement, elle nécessite un lieu imprégné d'un grand élément Yin, sans quoi la culture sera trop lente, mais l'énergie spirituelle froide qu'elle génère est incroyablement puissante. Hmph, une fois que tu auras atteint le sommet de cette méthode, tu pourras même combattre des experts de pays de rang 7. C'est décidé. Demain, tu iras à la bibliothèque des écritures de cette petite secte pour voir ce qu'ils proposent, mais dès que tu atteindras l'Établissement des Fondations, tu devras pratiquer la Méthode d'Ascension Souterraine. »
+Situ Nan dit fièrement: « Exactement. Hé hé, même dans mon pays d'origine, un pays de rang 6, c'est une méthode de qualité supérieure. Malheureusement, elle nécessite un lieu imprégné d'un grand élément Yin, sans quoi la culture sera trop lente, mais l'énergie spirituelle froide qu'elle génère est incroyablement puissante. Hmph, une fois que tu auras atteint le sommet de cette méthode, tu pourras même combattre des experts de pays de rang 7. C'est décidé. Demain, tu iras à la bibliothèque des écritures de cette petite secte pour voir ce qu'ils proposent, mais dès que tu atteindras l'Établissement des Fondations, tu devras pratiquer la Méthode d'Ascension des Enfers. »
 
 Wang Lin réfléchit un instant et hocha la tête.
 
-« Aussi, Wang Lin, il est préférable que tu ne places pas le Joyau Défiant le Ciel dans ton sac de rangement. Garde-le le plus près possible de ta poitrine, afin que je puisse toujours communiquer avec toi lorsque tu n'es pas dans l'espace de rêve, et pour que tu puisses y entrer par mon intermédiaire. »
+« Aussi, Wang Lin, il est préférable que tu ne places pas la Perle Défiant le Ciel dans ton sac de rangement. Garde-la le plus près possible de ta poitrine, afin que je puisse toujours communiquer avec toi lorsque tu n'es pas dans l'espace de rêve, et pour que tu puisses y entrer par mon intermédiaire. »
 
 Le temps passa lentement tandis que Situ Nan parlait. Après deux jours passés dans l'espace de rêve, Wang Lin se réveilla.
 
-Il s'assit en tailleur, plaça le joyau contre sa poitrine, prit une gorgée de liquide spirituel et cultiva toute la nuit en silence. Le lendemain matin, Wang Lin ouvrit la porte. Son corps flotta dans les airs alors qu'il se dirigeait vers la salle principale.
+Il s'assit en tailleur, plaça la perle contre sa poitrine, prit une gorgée de liquide spirituel et cultiva toute la nuit en silence. Le lendemain matin, Wang Lin ouvrit la porte. Son corps flotta dans les airs alors qu'il se dirigeait vers la salle principale.
 
 Dès son arrivée dans la salle principale, Huang Long sortit et afficha un sourire bienveillant en voyant Wang Lin. Ce sourire était bien plus chaleureux que celui de la veille. Il dit: « Wang Lin, viens avec moi. »
 

@@ -40,7 +40,7 @@ L'homme en cyan leva la tête. Sans même regarder Wang Lin, il répondit: « Il
 
 Le vieil homme arqua un sourcil. Il agita la main et lança: « Balivernes! Avec moi ici, même si l'ancêtre de votre Secte Nuage Blanc, le vieux Bai Yun, venait en personne, je serais capable de le tenir en respect. » Sur ce, il lança un regard malicieux vers les profondeurs de la Secte Nuage Blanc.
 
-L'homme en cyan ne répondit plus et se tapota le front. Soudain, une ouverture noire apparut sur son front et une épée noire en sortit. L'épée se mua en un éclair et fendit l'air vers Wang Lin.
+L'homme en cyan ne répondit plus et se tapota le front. Soudain, une ouverture noire apparut sur son front et une épée volante de la taille d'une paume en jaillit. L'épée se mua en un éclair et fendit l'air vers Wang Lin.
 
 Sa vitesse était telle que Wang Lin ne pouvait absolument pas la parer. Son visage se décomposa. S'il avait possédé le drapeau de restriction, il aurait pu la bloquer, mais il n'aurait pas pu la contenir longtemps.
 
@@ -48,9 +48,9 @@ Cependant, Wang Lin n'avait pas peur. Bien qu'il ne puisse résister à l'épée
 
 Par exemple: face à cette épée volante, si Wang Lin libérait sa rétribution divine, l'homme en cyan serait contraint de rappeler son arme, faute de quoi ils s'entretueraient mutuellement.
 
-Lorsque l'épée volante arriva à environ trois mètres de Wang Lin, une vague soudaine d'intention meurtrière s'en dégagea. Au sein de cette intention résidait un fragment de domaine mystérieux. Ce domaine était très différent des deux précédents; il semblait porter une parcelle de la puissance céleste. Wang Lin remarqua immédiatement que son énergie spirituelle commençait à faiblir. Si son énergie spirituelle avait été remplacée par sa force vitale, sa vie aurait été instantanément drainée.
+Lorsque l'épée volante arriva à environ trois mètres de Wang Lin, une vague soudaine d'intention meurtrière s'en dégagea. Au sein de cette intention résidait un fragment de domaine mystérieux. Ce domaine était très différent des deux précédents; il semblait porter une parcelle de la puissance céleste. Wang Lin remarqua immédiatement que son énergie spirituelle commençait à faiblir. Si l'on comparait cette énergie spirituelle à quelque chose doté de force vitale, sous ce domaine, cette vitalité s'écoulait à toute vitesse.
 
-Ce étrange domaine provoqua un changement radical dans l'expression de Wang Lin. Pour l'instant, il n'affectait que son énergie spirituelle; s'il pouvait agir sur la durée de vie, ce serait une existence terrifiante défiant les cieux.
+Cet étrange domaine provoqua un changement radical dans l'expression de Wang Lin. Pour l'instant, il n'affectait que son énergie spirituelle; s'il pouvait agir sur la durée de vie, ce serait une existence terrifiante défiant les cieux.
 
 L'expression du cultivateur en cyan resta impassible alors qu'il agitait la main pour rappeler l'épée volante. L'arme disparut dans son front tandis qu'il disait lentement: « Mon domaine est le passage du temps. »
 
@@ -58,7 +58,7 @@ Les yeux du vieil homme se fixèrent sur l'homme en cyan. Grâce aux fluctuation
 
 Wang Lin fut soudain victime d'une profonde illusion. C'était comme si ce vieil homme avait été transfiguré en un instant. Si l'on lui avait dit que cet homme était un expert du pays de Suzaku, il ne s'en serait pas étonné.
 
-« Quel domaine prodigieux! Si tu parviens au stade d'Ascendant, ce domaine sera divin! Vous autres, prenez le jeton. Adieu! » Le vieil homme prit une profonde inspiration, son corps bougea et il apparut instantanément aux côtés de Wang Lin. Il saisit le garçon et ils disparurent. Lorsqu'ils réapparurent, ils se trouvaient dans un quartier abandonné de la capitale.
+« Quel domaine prodigieux! Si tu parviens au stade d'Ascendant, ce domaine défiera les cieux! Vous autres, prenez le jeton. Adieu! » Le vieil homme prit une profonde inspiration, son corps bougea et il apparut instantanément aux côtés de Wang Lin. Il saisit le garçon et ils disparurent. Lorsqu'ils réapparurent, ils se trouvaient dans un endroit isolé de la capitale.
 
 À leur retour, le vieil homme respirait lourdement et son visage était pâle, mais il restait empreint de fierté. Il regarda Wang Lin, attendant d'être loué.
 
@@ -84,17 +84,17 @@ Le vieil homme continua de parler un long moment avant de ranger enfin les jeton
 
 Wang Lin retourna directement à sa boutique et s'assit en tailleur près du foyer. L'environnement était plongé dans un silence absolu. Dans ce calme, les expériences vécues à travers les domaines défilèrent dans son esprit. Il s'immergea totalement dans ses souvenirs, tentant d'en saisir l'essence.
 
-Le domaine des émotions désespérées de l'homme d'âge moyen, le domaine du réconfort de la vieille femme et le domaine du passage du temps de l'homme en cyan flottaient dans son esprit. Après un certain temps, Wang Lin commença à comprendre: un domaine était une chose que l'on obtenait en percevant les lois célestes à travers ses propres expériences de vie.
+Le domaine de l'insensibilité de l'homme d'âge moyen, le domaine du confort de la vieille femme et le domaine du passage du temps de l'homme en cyan flottaient dans son esprit. Après un certain temps, Wang Lin commença à comprendre: un domaine était une chose que l'on obtenait en percevant les lois célestes à travers ses propres expériences de vie.
 
-Alors, quelle serait sa propre dimension? Wang Lin ferma les yeux. À cet instant, tout son être changea. Longtemps après, il ouvrit les yeux et saisit un couteau pour commencer à sculpter.
+Alors, quel serait son propre domaine? Wang Lin ferma les yeux. À cet instant, tout son être changea. Longtemps après, il ouvrit les yeux et saisit un couteau pour commencer à sculpter.
 
 Les copeaux de bois tombèrent au sol. Son couteau coulait avec la fluidité de l'eau, sans relâche. Graduellement, le morceau de bois prit la forme d'un homme formant un sceau d'une main.
 
-Le regard de Wang Lin devint d'une concentration absolue. À cet instant, rien ne pouvait troubler sa méditation. Ce que son esprit concevait et ce que ses yeux voyaient n'étaient que le domaine des émotions désespérées de l'homme d'âge moyen.
+Le regard de Wang Lin devint d'une concentration absolue. À cet instant, rien ne pouvait troubler sa méditation. Ce que son esprit concevait et ce que ses yeux voyaient n'étaient que le domaine de l'insensibilité de l'homme d'âge moyen.
 
-La quantité de copeaux au sol augmenta. La vitesse de la lame s'accéléra jusqu'à créer des images rémanentes. Après un long moment, la main droite de Wang Lin s'immobilisa soudainement. Le couteau dans sa main se brisa en deux. La lame vola jusque dans une étagère dans un bruit métallique.
+La quantité de copeaux au sol augmenta. La vitesse de la lame s'accéléra jusqu'à créer des images rémanentes. Après un long moment, la main droite de Wang Lin s'immobilisa soudainement. Le couteau dans sa main se brisa en deux. La pointe brisée de la lame fila dans un éclat de lumière, tournoya et se planta dans une étagère de bois avec un bourdonnement.
 
-Wang Lin n'y prêta aucune attention et observa la sculpture qu'il tenait. Elle était achevée. L'homme d'âge moyen semblait vivant; la sculpture contenait une parcelle du domaine des émotions désespérées, mais celle-ci ne se diffusait pas: elle était entièrement contenue au cœur de l'œuvre.
+Wang Lin n'y prêta aucune attention et observa la sculpture qu'il tenait. Elle était achevée. L'homme d'âge moyen semblait vivant; la sculpture contenait une aura d'insensibilité, mais celle-ci ne se diffusait pas: elle était entièrement contenue au cœur de l'œuvre.
 
 Wang Lin ferma lentement les yeux. Après l'avoir ressentie un long moment, il déposa délicatement la sculpture sur le sol.
 

@@ -18,13 +18,13 @@ Des fissures apparurent immédiatement sur le pétale, mais celui-ci ne se brisa
 
 Le regard de Papillon Rouge devint plus glacial encore tandis qu'elle arrachait un autre pétale. Elle le lança en avant et forma un sceau de la main gauche durant sa course. Puis, elle pointa du doigt le pétale qui grandit instantanément pour devenir gigantesque, tout en continuant sa trajectoire vers Wang Lin.
 
-Papillon Rouge ne s'arrêta pas là et arracha un nouveau pétale. Elle se mordit la langue et cracha une bouffée de sang. Le sang perla sur le pétale, faisant apparaître neuf symboles d'épée de sang. Neuf rayons d'énergie d'épée jaillirent alors, s'élançant vers Wang Lin.
+Papillon Rouge ne s'arrêta pas là et arracha un nouveau pétale. Elle se mordit la langue et cracha une bouffée de sang. Le sang tomba sur le pétale, y faisant apparaître des motifs de sang. En un éclair, il se mua en neuf longues épées rouges d'où jaillissaient des éclats d'épée, et les neuf épées s'élancèrent frénétiquement vers Wang Lin.
 
-« Trois pétales! Ceng Niu, je veux voir si tu es capable de survivre à cela! » Papillon Rouge frappa le géant de glace sur lequel elle se tenait. Le colosse poussa un rugissement et asséna un coup de poing juste derrière les neuf rayons d'énergie.
+« Trois pétales! Ceng Niu, je veux voir si tu es capable de survivre à cela! » Papillon Rouge frappa le géant de glace sur lequel elle se tenait. Le colosse poussa un rugissement et asséna un coup de poing juste derrière les épées volantes.
 
 À chaque pas du géant, une crevasse béante s'ouvrait dans le sol. D'innombrables arbres s'écroulèrent et les vibrations provoquèrent de multiples fractures dans la terre.
 
-Ceci pouvait être considéré comme l'un des combats les plus périlleux de la vie de Wang Lin. Il ne souhaitait utiliser son anneau de domptage des bêtes qu'en dernier recours. Après tout, nous étions à Suzaku; il y aurait forcément de nombreux témoins. Exposer trop de ses secrets ne serait pas une bonne chose pour lui.
+Ceci pouvait être considéré comme l'un des combats les plus périlleux de la vie de Wang Lin. Il ne souhaitait utiliser son anneau de domptage des bêtes qu'en dernier recours. Après tout, il se trouvait à Suzaku; il y aurait forcément de nombreux témoins. Exposer trop de ses secrets ne serait pas une bonne chose pour lui.
 
 Face au filet qui s'approchait, Wang Lin poussa un rugissement et manœuvra l'épée céleste avec frénésie, forçant ainsi une ouverture dans la toile.
 
@@ -32,15 +32,15 @@ Wang Lin s'engouffra rapidement par cette brèche et cracha un rayon de lumière
 
 Le sceau noir vacilla avant d'être enveloppé par le pétale, se transformant en une mare d'eau noire. Le visage de Wang Lin devint livide. Il profita de l'instant où le sceau immobilisa le pétale pour se téléporter à 330 mètres de là.
 
-À cet instant précis, les neuf rayons d'énergie d'épée arrivèrent silencieusement. Ils se déplaçaient avec la rapidité de l'éclair. Wang Lin toucha précipitamment son sac de rangement et deux cloches apparurent. Elles entrèrent en collision avec l'énergie d'épée, générant une onde sonore.
+À cet instant précis, les neuf épées rouges arrivèrent en sifflant, sans un bruit. Elles se déplaçaient avec la rapidité de l'éclair. Wang Lin toucha précipitamment son sac de rangement et deux cloches apparurent. Elles s'entrechoquèrent, générant une onde sonore.
 
-Les neuf rayons d'énergie marquèrent un temps d'arrêt sous l'effet de l'onde, avant de poursuivre leur course vers Wang Lin.
+Les neuf épées rouges marquèrent un temps d'arrêt sous l'effet de l'onde, avant de poursuivre leur course vers Wang Lin.
 
 Profitant de cette brève hésitation, les deux cloches se brisèrent et leurs fragments formèrent une armure autour de lui. Il poussa un rugissement et se téléporta à nouveau, chargeant cette fois directement vers Papillon Rouge.
 
 Cependant, au moment même où il réapparut, le poing du géant de glace surgit devant lui. Ce coup était bien plus rapide que le précédent et percuta le corps de Wang Lin en un éclair.
 
-Le corps de Wang Lin fut projeté violemment. Les neuf rayons d'énergie d'épée le transpercèrent alors qu'il volait dans les airs, avant que le pétale géant ne l'enveloppe rapidement, ne lui laissant aucune échappatoire.
+Le corps de Wang Lin fut projeté violemment. Les neuf épées le transpercèrent frénétiquement alors qu'il volait dans les airs, avant que le pétale géant ne l'enveloppe, ne laissant aucune fente.
 
 Une intention meurtrière envahit les yeux de Papillon Rouge qui hurla: « Ceng Niu, accepte ta mort! »
 
@@ -52,7 +52,7 @@ Le pétale fut fendu en deux et Wang Lin en sortit lentement.
 
 Le ruban qui retenait ses cheveux s'était rompu. Sa chevelure flottait dans les airs sans qu'aucun vent ne soufflât, et son regard était empreint d'une froideur intense. Il fixait Papillon Rouge comme s'il contemplait un cadavre.
 
-Son armure était criblée de fissures et, derrière lui, les neuf rayons d'énergie d'épée s'étaient tous brisés.
+Son armure de cloches était fissurée en de nombreux endroits et, derrière lui, les neuf épées rouges s'étaient toutes brisées.
 
 D'une voix basse, Wang Lin déclara lentement: « Papillon Rouge, la bataille ne fait que commencer. Ce qui vient de se passer n'était qu'un simple échauffement! »
 
@@ -94,7 +94,7 @@ Tous ceux qui observaient le combat à l'extérieur furent frappés de stupeur. 
 
 « Six retournent en un! » Papillon Rouge changea d'expression et pressa rapidement des sceaux. Les six femmes en rouge fusionnèrent avec elle, faisant apparaître derrière elle six magnifiques silhouettes rouges.
 
-Les nuages rouges saturaient le ciel. Wang Lin ricana et pointa le drapeau de restriction. Ce dernier se transforma instantanément en vagues de restrictions qui s'élancèrent vers Papillon Rouge.
+Les nuages rouges saturaient le ciel. Wang Lin ricana et pointa le drapeau de restriction. Ce dernier se transforma instantanément en flux de gaz de restriction qui s'élancèrent vers Papillon Rouge.
 
 À ce moment précis, dans un fracas assourdissant, tous les nuages rouges convergèrent pour laisser descendre un éclair rouge. Sa cible était précisément l'endroit où se trouvaient les restrictions.
 
@@ -148,4 +148,4 @@ Le géant ouvrit la bouche pour hurler, mais c'est la voix de Papillon Rouge qui
 
 Rapide! Trop rapide! Wang Lin fut incapable d'esquiver. Il cracha un flot de sang et son corps s'effondra. Cependant, son âme originelle fut expulsée de son enveloppe charnelle et s'envola au loin.
 
-Au même moment, l'énergie de l'épée frappa le géant de glace, affaiblissant considérablement son aura. Une blessure aussi large qu'un bras le traversa de part en part.
+Au même moment, l'énergie de l'épée frappa le géant de glace, affaiblissant considérablement son aura. Une énorme blessure, aussi large qu'un bras, apparut à sa taille et le traversa de part en part.

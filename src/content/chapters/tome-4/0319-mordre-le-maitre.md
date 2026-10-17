@@ -26,7 +26,7 @@ Les yeux de Wang Lin étaient empreints de choc. Il recula immédiatement. Il n'
 
 Seuls les yeux du vieil homme s'illuminèrent, avant qu'il ne semble se souvenir de quelque chose, son expression se muant en une peur profonde.
 
-« Épée de la Pluie Céleste, apparais! »
+« Épée de la Pluie, apparais! »
 
 Un rayon de lumière dorée jaillit des profondeurs sous leurs pieds. À mesure que la lueur dorée approchait, Wang Lin sentit une puissante intention d'épée fondre sur eux.
 
@@ -46,9 +46,9 @@ Sur l'un des fragments les plus centraux du Royaume Céleste, un érudit vêtu d
 
 Sur un fragment au nord-ouest du Royaume Céleste, un vieil homme en robe pourpre contemplait le ciel avec gravité. Après avoir réfléchi un instant, il fit un pas et s'envola vers le chant d'épée.
 
-« Est-ce l'Épée Céleste de la Pluie? Si ma Secte de l'Épée Da Lou l'obtient, notre puissance augmentera sans aucun doute de façon exponentielle. Je possède une bête céleste que je peux utiliser pour déposséder l'esprit de l'épée de son contrôle sur l'arme elle-même. »
+« Est-ce l'Épée Céleste de la Pluie? Si ma Secte de l'Épée Da Luo l'obtient, notre puissance augmentera sans aucun doute de façon exponentielle. Je possède une bête céleste que je peux utiliser pour déposséder l'esprit de l'épée de son contrôle sur l'arme elle-même. »
 
-Il s'élança et soudain, un qilin à deux cornes apparut dans les airs. Il monta sur la tête de la créature, qui expulsa deux courants d'air brûlant par ses naseaux. À l'instant même où ces flux jaillirent, le fragment céleste sur lequel il se trouvait s'effondra.
+Il s'élança et soudain, un qilin à deux cornes apparut dans les airs. Il monta sur la tête de la créature, qui expulsa deux souffles blancs par ses naseaux. À l'instant même où ces flux jaillirent, le fragment céleste sur lequel il se trouvait s'effondra.
 
 Une multitude de failles spatiales commencèrent à apparaître tandis que le sol s'écroulait. Le vide commença à dévorer le fragment, mais rien de tout cela n'affecta le vieil homme. Le qilin bondit dans l'une des failles et disparut.
 
@@ -72,7 +72,7 @@ Chi Hu eut un sourire amer. Il serra les dents tout en contrôlant la boussole p
 
 Les yeux de Sun Tai s'illuminèrent lorsqu'il dit à Wang Lin: « Ceng Niu, ce vide est extrêmement dangereux et cette boussole est trop endommagée pour parcourir une grande distance. Si tu acceptes de lever le sceau, je peux te promettre de te ramener sain et sauf à Suzaku. Qu'en dis-tu? »
 
-S'il avait appelé Wang Lin « maître », c'était uniquement parce que Zhou Yi était présent. Il devait au moins feindre son accord. Maintenant que Zhou Yi était mort, comment un cultivateur de la Transformation de l'Âme pourrait-il accepter de devenir un esclave? Hormis la mort, c'était la plus grande des disgrâces.
+S'il avait appelé Wang Lin « maître », c'était uniquement parce que Zhou Yi était présent. Il devait au moins feindre son accord. Maintenant que Zhou Yi était mort, comment un cultivateur au stade intermédiaire de la Transformation de l'Âme pourrait-il accepter de devenir un esclave? Hormis la mort, c'était la plus grande des disgrâces.
 
 Il aurait voulu tuer Wang Lin et le transformer en momie.
 
@@ -92,7 +92,7 @@ Wang Lin secoua la tête en souriant: « Je ne connais pas la technique pour lev
 
 Sun Tai se leva brusquement et fixa Wang Lin en déclarant mot pour mot: « Petit morveux, si tu refuses de trinquer à la victoire, tu boiras le vin amer de la défaite! Je suis l'Ancien principal de la Secte des Cadavres de Suzaku, un cultivateur de la Transformation de l'Âme. Je refuse de m'incliner devant quiconque, surtout devant un junior comme toi que je pourrais écraser d'un doigt! »
 
-« De plus, ne crois pas pouvoir me tuer par un simple ordre. Je peux te dire que je n'ai pas seulement trois âmes, mais une quatrième également. Cette quatrième âme se trouve dans le corps à l'intérieur du cercueil. Tu peux briser l'âme de ce corps, mais au moment où cela arrivera, ma quatrième âme te tuera. »
+« De plus, ne crois pas pouvoir me tuer par un simple ordre. Je peux te dire que je n'ai pas seulement trois âmes, mais une quatrième également. Cette quatrième âme se trouve dans le corps à l'intérieur du cercueil. Tu peux briser l'âme de mon corps actuel, mais au moment où cela arrivera, ma quatrième âme te tuera. »
 
 Wang Lin sourit, ayant compris quelque chose: « Si Senior dit tout cela, c'est qu'il y a un autre sens derrière vos paroles, au-delà de me demander de lever le sceau. Senior sait déjà que ce sceau n'est pas de mon ressort. »
 

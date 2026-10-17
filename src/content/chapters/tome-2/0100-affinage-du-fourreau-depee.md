@@ -6,43 +6,43 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 100 - Refining the Sword Sheath
 slug: affinage-du-fourreau-depee
 ---
-C'était une immense grotte dont les parois étaient percées d'innombrables petits orifices. Le sens divin de Wang Lin s'échappa par l'un de ces trous.
+C'était une immense grotte dont les parois étaient percées d'innombrables petits orifices. Le sens divin de Wang Lin avait pénétré par l'un de ces trous.
 
 Au centre de la pièce reposait un gigantesque cercueil. Il semblait tout à fait ordinaire, dépourvu de la moindre décoration, et pourtant, de puissantes ondes d'énergie Yin s'en dégageaient. Cette énergie se transformait en une brume blanche qui était aspirée par les multiples orifices de la paroi.
 
 Wang Lin hésita, observant le cercueil un long moment. Puis, il tenta de l'explorer avec son sens divin et, à sa grande surprise, celui-ci pénétra sans rencontrer la moindre résistance.
 
-Le cercueil était totalement vide, à l'exception d'une large ouverture d'où émanait l'énergie Yin.
+Le cercueil était totalement vide, à l'exception d'un grand trou rond au fond, d'où émanait l'énergie Yin.
 
-Cette énergie était si dense que les ondes de puissance empêchaient le sens divin de Wang Lin de voir clair.
+Cette énergie était si dense qu'elle formait des vagues successives qui empêchaient le sens divin de Wang Lin de s'enfoncer.
 
 Dans sa propre grotte, le regard de Wang Lin s'illumina d'une détermination farouche. Pour découvrir la source de cette énergie et comprendre pourquoi la perle pouvait l'absorber, il sortit la gourde de son sac de rangement et prit une petite gorgée sans l'ombre d'une hésitation.
 
-Malgré sa condition physique actuelle, Wang Lin ne put s'empêcher de frissonner. Il perdait rapidement connaissance et son corps s'engourdissait. Sans perdre un instant, il fit circuler l'énergie spirituelle dans ses méridiens pour absorber l'énergie Yin. À mesure qu'il l'absorbait, son sens divin gagnait en puissance. Porté par ce flux constant, son sens divin s'élança à nouveau vers le trou du cercueil.
+Malgré sa condition physique actuelle, Wang Lin ne put s'empêcher de frissonner. Tout son corps devint glacé, il perdit rapidement toute sensation et s'engourdit. Sans perdre un instant, il fit circuler son énergie spirituelle et, au rythme de sa respiration, son sens divin devint encore plus dense. Porté par ce flux constant, son sens divin, tel un poinçon, s'enfonça violemment dans le trou du cercueil.
 
-Son sens divin lutta au cœur de l'ouverture, et à plusieurs reprises, l'énergie Yin faillit le disperser. Lorsqu'il atteignit une profondeur d'environ mille trois cents mètres, l'énergie Yin forma un mur infranchissable.
+Son sens divin avança péniblement dans l'ouverture, et à plusieurs reprises, l'énergie Yin faillit le disperser. Lorsqu'il atteignit une profondeur d'environ mille trois cents mètres, l'énergie Yin devint dense à l'extrême et forma de nouveau une « porte ».
 
-Wang Lin serra les dents et prit une immense gorgée de liquide spirituel Yin. Il chargea pour percer ce rempart et fut pétrifié par ce qu'il découvrit.
+Wang Lin serra les dents et prit une immense gorgée de la rosée Yin. Puis son sens divin fonça d'un coup, enfonça la porte et entra; à cet instant, il fut stupéfait par ce qu'il découvrit.
 
-Un corps colossal flottait dans les airs. Si Wang Lin avait dû comparer sa propre stature à celle de ce géant, il n'aurait été que la taille d'un de ses doigts. Des plantes étranges, aux teintes vert pourpre, recouvraient l'immense dépouille. Ces végétaux bougeaient d'une manière singulière; le corps se rétractait visiblement avant de reprendre rapidement sa taille initiale. Au fil de ce cycle, les plantes pourpres libéraient frénétiquement de l'énergie Yin.
+Un cadavre d'homme nu, colossal, flottait dans les airs. Comparé à lui, Wang Lin n'aurait été que de la taille d'un de ses doigts. Des plantes d'un vert pourpre recouvraient l'immense dépouille. Ces végétaux bougeaient d'une manière singulière; le corps se rétractait visiblement avant de reprendre rapidement sa taille initiale. Au fil de ce cycle, les plantes pourpres libéraient frénétiquement de l'énergie Yin.
 
 Wang Lin était stupéfait. Il déploya son sens divin pour observer la scène et resta interdit. Ce corps avait été délibérément laissé là par quelqu'un: il servait de nutriment aux plantes vert pourpre.
 
-Il était désormais évident que si la Secte des Cadavres possédait cette énergie Yin, c'était grâce à ces végétaux.
+Il était désormais évident que si la Secte des Cadavres possédait une énergie Yin de qualité Terre Yin, la réponse se trouvait dans ces végétaux.
 
 Même l'évolution de la Perle Défiant le Ciel devait être liée à ces plantes. Wang Lin sentit que cet endroit était profondément anormal, car dès son entrée, un sentiment de danger l'avait envahi.
 
 Alors qu'il s'apprêtait à se retirer, une voix indistincte retentit.
 
-Wang Lin ne dit mot et tenta de rétracter son sens divin, mais il fut choqué de constater que l'énergie Yin de la pièce l'enfermait. Bientôt, la voix se rapprocha, jusqu'à ce qu'il puisse presque en saisir le sens.
+Wang Lin retira aussitôt son sens divin sans un mot, mais il fut choqué de constater que l'énergie Yin du lieu se mettait soudain à rouler et l'arrêtait. Bientôt, la voix se rapprocha, jusqu'à ce qu'il puisse presque en saisir le sens.
 
 « Sauvez-moi... »
 
-Wang Lin saisit la gourde avec détermination et vida le reste du liquide spirituel Yin. Son sens divin trembla alors qu'il s'engouffrait dans l'énergie Yin environnante. Une quantité massive d'énergie percuta son sens divin et se mêla à l'énergie Yin non absorbée dans son corps, forçant Wang Lin à cracher une bouchée de sang. Au moment où le sang fut expulsé, il était déjà solidifié par le gel.
+Wang Lin saisit la gourde avec détermination et vida le reste du liquide spirituel Yin. Son sens divin fut ébranlé et se jeta violemment dans l'énergie Yin environnante. Un froid inimaginable s'engouffra aussitôt dans son sens divin et se mêla au liquide Yin non digéré dans son corps; le visage de Wang Lin blêmit et il cracha une bouchée de sang. Au moment où le sang fut expulsé, il s'était déjà transformé en cristaux de glace.
 
-Malgré cela, son sens divin brisa l'obstacle et regagna promptement son corps. Il cracha encore du sang gelé, le visage marqué par la terreur.
+Malgré cela, son sens divin brisa l'obstacle et regagna promptement son corps en suivant le trou. Frissonnant, Wang Lin cracha encore plusieurs fois des cristaux de sang, le visage marqué par l'effroi.
 
-Il n'osa pas vérifier de nouveau et se mit immédiatement à cultiver pour réguler son organisme. Après un moment, il ouvrit les yeux et se mit à réfléchir en fixant les orifices dans la paroi.
+Il n'osa pas explorer de nouveau et se mit immédiatement à respirer pour apaiser l'énergie Yin dans son corps. Après un long moment, il ouvrit lentement les yeux, regarda les orifices dans la paroi avec une peur persistante et garda le silence.
 
 Le temps passa lentement et, en un clin d'œil, Wang Lin était déjà resté quatre jours à la Secte des Cadavres. Durant ces quatre jours, hormis l'exploration souterraine de son sens divin il y a trois jours, il ne s'était pas déplacé. Il avait passé tout ce temps à collecter du liquide spirituel Yin grâce à la perle. Au cours de cette période, la perle était passée de deux feuilles à trois.
 
@@ -50,7 +50,7 @@ Selon les calculs de Wang Lin, le nombre total de feuilles devrait être identiq
 
 Mais la Secte des Cadavres n'était pas un lieu où il pouvait s'attarder. Il décida d'explorer à nouveau cet endroit afin de trouver un moyen d'y introduire son corps physique. S'il parvenait à obtenir une partie de ces plantes, il était certain que la perle évoluerait bien plus vite.
 
-Cependant, le danger était immense. Même Wang Lin en doutait.
+Cependant, le danger était vraiment immense, et Wang Lin hésitait un peu.
 
 Après une longue réflexion, il renonça à s'y rendre en personne. Il comprit qu'avec son niveau de culture actuel, peu importe sa prudence, ses chances d'obtenir ces plantes vert pourpre étaient infimes et qu'il risquait surtout de perdre la vie. La situation était trop périlleuse.
 
@@ -58,7 +58,7 @@ Une fois sa décision prise, il frappa son sac de rangement, et un fourreau d'é
 
 Depuis qu'il avait obtenu ce fourreau après avoir dérobé les fondations de Teng Li, Wang Lin ne l'avait affiné qu'une seule fois. Bien qu'il n'ait pas réussi l'affinement complet, il en avait acquis un certain contrôle, sans pour autant obtenir de résultats probants: il n'avait pu faire s'insérer l'épée volante que sur trois cinquièmes de sa longueur.
 
-Wang Lin avait étudié ce fourreau maintes fois. Situ Nan lui avait même confié que cet objet était extrêmement étrange et qu'il avait plus de valeur que la petite épée volante ayant subi l'affinement par le sang.
+Wang Lin avait étudié ce fourreau maintes fois. Situ Nan lui avait même confié que cet objet était extrêmement étrange et qu'il avait plus de valeur que la petite épée verte ayant subi l'affinement par le sang.
 
 Les yeux de Wang Lin s'illuminèrent tandis qu'il murmurait: « Sun Hao disait qu'il avait trouvé cette épée et son fourreau dans une grotte antique, et qu'à l'exception de son maître, seuls ceux ayant atteint le stade de la Formation du Noyau pouvaient les affiner. Il y a part du vrai et part du faux dans ses propos. Ce n'est pas que l'affinement est impossible en dessous de la Formation du Noyau, c'est simplement que la quantité de temps et d'énergie spirituelle requise est démesurée. Une fois la Formation du Noyau atteinte, le feu du noyau réduit considérablement ce processus. Malheureusement, la technique d'affinement par le sang ne peut s'appliquer qu'à un seul objet. Si elle pouvait être utilisée sur les deux simultanément, tout serait bien plus simple. »
 
@@ -66,7 +66,7 @@ Wang Lin fixait le fourreau sans ciller. Pour accroître la puissance de son ép
 
 Toute l'énergie spirituelle de son corps était régie par ce noyau froid. Wang Lin l'avait étudié longuement, mais Situ Nan l'avait prévenu: un noyau froid était loin de constituer un véritable noyau et, à moins d'un dernier recours, il ne devait jamais quitter son corps. Car une fois extrait, le noyau froid finirait par se dissiper, l'obligeant à en former un nouveau.
 
-La première fois qu'il avait affiné le fourreau, il venait d'entrer dans le stade de l'Établissement des Fondations. Désormais, grâce à la Méthode d'Ascension des Enfers, non seulement la qualité de son énergie spirituelle s'était améliorée, mais sa quantité même avait considérablement augmenté. Étant au sommet du début du stade de l'Établissement des Fondations et n'étant qu'à un pas du stade intermédiaire, cette tentative serait bien plus aisée.
+La première fois qu'il avait affiné le fourreau, il venait d'entrer dans le stade de l'Établissement des Fondations. Désormais, grâce à la Méthode d'Ascension des Enfers, non seulement son énergie spirituelle avait muté, mais sa culture avait atteint le sommet du début du stade de l'Établissement des Fondations. Étant au sommet du début du stade de l'Établissement des Fondations et n'étant qu'à un pas du stade intermédiaire, cette tentative serait bien plus aisée.
 
 Fort de cette pensée, Wang Lin ouvrit la bouche et cracha une bouffée d'énergie spirituelle Yin. Dès que celle-ci toucha le fourreau, une couche de givre le recouvrit instantanément.
 
@@ -78,8 +78,8 @@ De larges gouttes de sueur perlèrent sur le front de Wang Lin, mais elles furen
 
 Le temps s'écoula. Après ce long périple de vibrations, la lumière bleue qui entourait le fourreau commença à vaciller. Lentement, une forme pentagonale se dessina sur la surface de l'objet.
 
-Voyant le motif apparaître, Wang Lin se détendit légèrement. Il cessa d'envoyer des rayons pour réguler son énergie spirituelle, pensif: « Ma culture est environ cinq fois plus puissante qu'auparavant. Situ Nan m'a enseigné une méthode consistant à forcer l'apparition de la formation sur le fourreau en utilisant mon énergie spirituelle. La dernière fois, il m'avait fallu 5 000 assauts avant que la formation n'apparaisse, et j'étais trop épuisé pour continuer. Cette fois, elle est apparue après seulement 1 000 rayons. Bien que ma culture ait progressé, je suis encore loin de la Formation du Noyau. Situ Nan disait qu'à ce stade, seuls quelques rayons suffiraient à faire surgir la formation. »
+Voyant le motif apparaître, Wang Lin se détendit légèrement. Il cessa d'envoyer des rayons pour réguler son énergie spirituelle, pensif: « Ma culture est environ cinq fois plus puissante qu'auparavant. Situ Nan m'a enseigné une méthode consistant à forcer l'apparition de la formation sur le fourreau en utilisant mon énergie spirituelle. La dernière fois, il m'avait fallu plus de 5 000 rayons avant que la formation n'apparaisse, et j'étais trop épuisé pour continuer. Cette fois, elle est apparue après seulement 1 000 rayons. Bien que ma culture ait beaucoup progressé, je suis encore bien loin de la Formation du Noyau. Situ Nan disait qu'à la Formation du Noyau, seuls quelques rayons suffiraient à faire surgir la formation. »
 
-Il prit une profonde inspiration. Sa main droite traça un sceau et pointa son abdomen. Son ventre se rétracta alors qu'une expression de douleur marquait ses traits. Sa main redescendit lentement de son abdomen et, lorsqu'il ouvrit la bouche, un orbe bleu de la taille du poing d'un nourrisson s'en échappa pour flotter dans l'air.
+Il prit une profonde inspiration. Sa main droite traça un sceau et toucha son bas-ventre; sa poitrine se contracta aussitôt et une expression de douleur marqua ses traits. Sa main droite remonta lentement depuis le bas-ventre et, lorsqu'il ouvrit la bouche, un noyau froid bleu de la taille du poing d'un nourrisson s'en échappa pour flotter dans l'air.
 
-Le visage de Wang Lin était livide. Après avoir tenté de reprendre son souffle, il pointa brusquement son noyau froid. Soudain, celui-ci fondit en une flaque de liquide bleu. Le teint de Wang Lin devint encore plus pâle; il n'y avait pas la moindre trace de sang, mais son expression se fit plus grave encore tandis qu'il guidait avec précaution le noyau fondu vers le fourreau d'épée.
+Le visage de Wang Lin était extrêmement pâle. Après avoir haleté un moment, il pointa aussitôt le noyau froid du doigt. Celui-ci fondit alors, à une vitesse visible à l'œil nu, en une flaque de liquide bleu. Le teint de Wang Lin devint encore plus pâle, sans la moindre couleur, mais son expression se fit grave tandis qu'il guidait avec précaution le liquide issu du noyau froid pour le laisser s'infiltrer lentement dans le fourreau.

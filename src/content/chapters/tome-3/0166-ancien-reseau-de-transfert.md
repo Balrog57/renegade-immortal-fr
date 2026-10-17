@@ -10,9 +10,9 @@ Mais dès que l'idée traversa son esprit, elle s'évanouit. Il soupira secrète
 
 À cet instant, son expression changea soudainement tandis qu'il levait la tête pour scruter l'horizon. Wang Lin remarqua immédiatement une fluctuation inhabituelle d'énergie spirituelle provenant du lointain. Cette fluctuation était très légère, mais empreinte d'une immense puissance.
 
-Il vit un érudit, vêtu d'une robe grise et portant un bandeau carré sur la tête, approcher de la distance. Le visage de cet homme était aussi blanc que la neige et une pointe de froideur se lisait dans ses yeux.
+Il vit un érudit d'âge mûr, vêtu d'une robe grise en toile de chanvre et portant un bandeau carré sur la tête, arriver de loin en flottant. Le visage de cet homme était aussi blanc que le jade et une lueur de froideur passait parfois dans ses yeux quand il les ouvrait et les refermait.
 
-Son corps oscillait comme un saule sous le vent alors qu'il descendait du ciel. D'un geste de la main, il dit calmement: « Duanmu Ji, mon bateau terrestre a-t-il été utile? »
+Son corps, léger comme un duvet de saule dans le vent, descendit du ciel. D'un coup de manche, il dit d'un ton calme: « Duanmu Ji, mon bateau terrestre a-t-il été utile? »
 
 Les pupilles de Wang Lin se contractèrent. Il n'était pas capable de percer le niveau de culture de cet homme, tout comme il ne pouvait sonder celui du Seigneur Démon des Huit Extrêmes. À voir comment il s'adressait au Seigneur Démon des Huit Extrêmes sur un pied d'égalité, leurs niveaux de culture devaient être similaires.
 
@@ -68,11 +68,11 @@ Duanmu marmonna: « Cette foutue formation est faite pour dévorer les pierres s
 
 Les yeux de Wang Qingyue brillèrent de nouveau tandis qu'il fixait l'objet et demandait: « Duanmu Ji, cette pierre de qualité supérieure provient-elle aussi... de cet endroit? »
 
-Tout en manipulant la formation, Duanmu Ji répondit d'un ton grincheux: « C'est exact. À l'époque, j'avais pu en obtenir trois; sans quoi, il serait impossible d'entrer là-bas. Seule cette ancienne formation peut nous y conduire. À l'époque, avec quelques vieux amis, nous avons fouillé des textes anciens et passé mille ans à chercher ce lieu. Nous avons ensuite utilisé une quantité massive de pierres spirituelles et de matériaux pour échanger quelques pierres de qualité supérieure auprès de Suzaku afin de pouvoir entrer. »
+Tout en manipulant la formation, Duanmu Ji répondit d'un ton grincheux: « C'est exact. À l'époque, j'avais pu en obtenir trois; sans quoi, il serait impossible d'entrer là-bas. Seule cette ancienne formation peut nous y conduire. À l'époque, avec quelques amis, nous avons suivi les indices laissés par des textes antiques et passé près de mille ans à chercher ce lieu. Nous avons ensuite utilisé une quantité massive de pierres spirituelles et de matériaux pour échanger quelques pierres de qualité supérieure auprès de Suzaku afin de pouvoir entrer. »
 
 Wang Qingyue fixa la pierre de qualité supérieure et dit: « Des pierres de qualité supérieure... ces pierres sont extrêmement rares sur cette planète. La rumeur prétend qu'elles constituent la principale monnaie d'échange entre les planètes. Si cet endroit recèle vraiment des pierres de qualité supérieure, alors même en l'absence de pilule de Transformation de l'Âme, l'exploration en vaut la peine. »
 
-Duanmu Ji fixa Wang Lin et grommela: « Ce réseau de transfert n'est pas ce que tu imagines. Il ne nous emmène pas directement là-bas, mais aux Étoiles Brisées du Chaos dans la Mer des Démons. Une fois sur place, nous rejoindrons quelques amis pour entrer ensemble. Autrement, le voyage par les airs serait trop long. Sans cent ans de vol, il serait impossible d'arriver à temps. Sans parler des dangers extérieurs aux Étoiles Brisées; le simple brouillard rouge entre les mers extérieure et intérieure est déjà bien assez périlleux. Avec nos niveaux de culture, la prudence suffit, mais ce gamin mourra à coup sûr. Sinon, pourquoi serais-je aussi gaspilleur d'utiliser une pierre de qualité supérieure pour s'y rendre? »
+Duanmu Ji fixa Wang Lin et grommela: « Ce réseau de transfert n'est pas ce que tu imagines. Il ne nous emmène pas directement là-bas, mais aux Étoiles Brisées du Chaos, dans la mer intérieure de la Mer des Démons. Une fois sur place, nous rejoindrons quelques amis et nous irons ensemble. Autrement, le voyage par les airs serait trop long. Sans cent ans de vol, il serait impossible d'arriver à temps. Sans parler des dangers extérieurs aux Étoiles Brisées; le simple brouillard rouge entre les mers extérieure et intérieure est déjà bien assez périlleux. Avec nos niveaux de culture, la prudence suffit, mais ce gamin mourra à coup sûr. Sinon, pourquoi serais-je aussi gaspilleur d'utiliser une pierre de qualité supérieure pour s'y rendre? »
 
 Duanmu Ji traça plusieurs sceaux et les projeta vers le réseau de transfert. La pierre de qualité supérieure au centre de la formation commença à luire. Peu après, les innombrables symboles s'illuminèrent tour à tour. Une fois que tous les symboles furent activés, la pierre de qualité supérieure vola en éclats.
 

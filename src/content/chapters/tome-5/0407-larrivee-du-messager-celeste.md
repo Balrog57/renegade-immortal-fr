@@ -16,7 +16,7 @@ Mais cela n'était qu'un aspect secondaire; dès que l'âme de Zhou Ru serait re
 
 À cet instant, l'Âme Naissante de Li Muwan ne serait pas encore totalement rétablie, et les lois célestes l'affecteraient alors de plein fouet.
 
-Le plan initial était différent. L'Âme Naissante de Li Muwan devait fusionner avec la chair du bébé. En procédant ainsi, son âme appartiendrait à l'enfant, lui permettant d'échapper efficacement aux lois des cieux.
+Le plan initial était différent. L'Âme Naissante de Li Muwan devait occuper la chair du bébé et, à mesure que celui-ci grandirait, faire naître peu à peu sa propre âme de Li Muwan, échappant ainsi aux cieux.
 
 Mais tout avait changé. À part le fait que Li Muwan dévore l'âme de Zhou Ru, rien d'autre ne pouvait résoudre cette situation.
 
@@ -26,9 +26,9 @@ Il n'y avait aucun doute dans son cœur quant à savoir qui était la priorité.
 
 Ce choix était d'une cruauté absolue et était tout aussi douloureux pour Wang Lin. Cependant, Wang Lin était un vieux monstre ayant cultivé pendant cinq cents ans. Après quatre années de lutte, son cœur était devenu aussi dur que l'acier.
 
-Wang Lin regarda Zhou Ru, qui méditait silencieusement sur un rocher au loin, et pensa: « Zhou Ru, je n'oublierai pas ta gratitude. Je ferai en sorte que ta famille prospère pendant dix générations. Ils régneront sur Chu... »
+Wang Lin regarda Zhou Ru, qui méditait silencieusement sur un rocher au loin, et pensa: « Zhou Ru, je saurai te rendre cette faveur. Je ferai en sorte que ta famille prospère pendant dix générations. Ils régneront sur Chu... »
 
-Comme si elle avait entendu Wang Lin, son corps trembla alors qu'elle se tournait vers lui. Des larmes perlaient au coin de ses yeux, mais un large sourire illuminait son visage.
+Comme si elle avait entendu Wang Lin, son corps trembla alors qu'elle se tournait vers lui. Des larmes perlaient au coin de ses yeux, mais un léger sourire se dessinait sur son visage.
 
 Ces deux dernières années s'écoulèrent lentement, jour après jour. Le jour où le messager céleste devait arriver approchait à grands pas.
 
@@ -36,7 +36,7 @@ Depuis son arrivée sur la Lune, Wang Lin n'était jamais retourné à Suzaku; i
 
 Le pays de Suzaku actuel était en proie aux flammes de la guerre.
 
-Le Clan de l'Immortel Délaissé s'était lancé à l'assaut, accompagné de quatre chamans à neuf feuilles — dont la puissance égalait celle des cultivateurs Ascendants — et avait entamé une guerre d'usure contre le pays de Suzaku.
+Le Clan de l'Immortel Délaissé s'était lancé à l'assaut, accompagné de quatre chamans de neuf feuilles ou plus — dont la puissance égalait celle des cultivateurs Ascendants — et avait entamé une guerre d'usure contre le pays de Suzaku.
 
 Simultanément, une succession de nouvelles fracassantes résonnait sur toute la planète Suzaku. La plupart de ces nouvelles portaient le même mot: « trahison ».
 
@@ -62,7 +62,7 @@ Quant à Petit Violet, ne comprenant rien à la situation, il se contentait de r
 
 Le Sens Divin de Wang Lin était constamment focalisé sur Zhou Ru afin de surveiller l'Âme Naissante de Li Muwan. Il maintenait également son corps en condition optimale pour pouvoir affronter le messager céleste à tout instant.
 
-Son corps originel faisait de même, profondément enfoui dans le noyau en fusion de la Lune. Il ne pouvait se permettre de perdre cette bataille contre le messager céleste.
+Son corps originel faisait de même, profondément enfoui dans le magma du sous-sol de la Lune. Il ne pouvait se permettre de perdre cette bataille contre le messager céleste.
 
 Pendant son sommeil, Zhou Ru parlait parfois. Elle disait encore parfois: « Oncle, j'ai peur! », mais ces paroles devenaient de moins en moins fréquentes.
 
@@ -119,7 +119,7 @@ Le visage de Wang Lin se fit grave. Cette fois, le messager céleste semblait s'
 
 Les deux mains géantes arrivèrent rapidement. L'une tendit l'assaut vers Wang Lin, l'autre vers son corps originel.
 
-Le corps originel poussa un rugissement et grandit instantanément pour devenir un géant de plus de trente mètres. Les trois étoiles violettes sur son front se mirent à tourner frénétiquement alors qu'il lançait un coup de poing.
+Le corps originel poussa un rugissement et grandit instantanément pour devenir un géant de plus de trente mètres. Les trois étoiles sur son front se mirent à tourner frénétiquement alors qu'il lançait un coup de poing.
 
 Bang!
 

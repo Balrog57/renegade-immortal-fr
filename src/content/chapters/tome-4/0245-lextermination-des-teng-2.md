@@ -14,15 +14,15 @@ Il avait attendu ce jour pendant quatre cents ans.
 
 À cinq mille kilomètres de la ville de la famille Teng, Wang Lin sauta de sa bête-moustique. Il lança un regard glacial sur la cité, puis, avec lenteur, il sortit le tendon de dragon et déposa chaque corps au sol.
 
-Lorsqu'un corps était intact, il en tranchait la tête. Il agissait avec célérité; ses gestes étaient nets et impitoyables.
+Il tranchait la tête de chaque corps d'un geste. Il agissait avec célérité; ses gestes étaient nets et impitoyables.
 
-Peu à peu, une pile de têtes s'accumula devant lui. Elles affichaient des expressions diverses, mais toutes partageaient un point commun: l'effroi et l'injustice sur chaque visage.
+Peu à peu, une pile de têtes s'accumula devant lui. Elles affichaient des expressions diverses, mais toutes partageaient un point commun: le refus de mourir et la peur, juste avant la mort.
 
 À mesure que les têtes s'empilaient, la haine qui imprégnait l'air s'intensifiait. Un vent glacial commença à souffler et le ciel sembla s'assombrir.
 
 Une immense tour de têtes humaines s'éleva progressivement. Cette structure n'était composée que de membres de la famille Teng. Quiconque en était témoin en aurait eu le sang glacé.
 
-Wang Lin déposa la dernière tête au sommet de l'édifice. D'un revers de main, il fit en sorte que la tour le suive tandis qu'il pénétrait lentement dans la restriction qui couvrait un rayon de cinq mille kilomètres autour de la ville Teng.
+Wang Lin déposa la dernière tête au sommet de l'édifice. D'un geste de la main droite, il fit s'élever dans les airs cette tour de plus d'un millier de têtes, qui le suivit tandis qu'il pénétrait lentement dans la restriction qui couvrait un rayon de cinq mille kilomètres autour de la ville Teng.
 
 « Teng Huayuan, je suis là, moi, Wang Lin! Aujourd'hui, personne ne sera laissé en vie! Je ne m'arrêterai pas avant de mourir! » Sa voix, chargée de haine, résonna vers la cité de la famille Teng.
 
@@ -30,7 +30,7 @@ Wang Lin déposa la dernière tête au sommet de l'édifice. D'un revers de main
 
 Presque simultanément, certains experts de la famille Teng remarquèrent l'immense tour de têtes. Peu à peu, de plus en plus de personnes aperçurent la structure, et la panique se propagea instantanément.
 
-Teng Huayuan se tenait sur le rempart intérieur, le visage sombre. À ses côtés se trouvaient quatre individus: les quatre derniers cultivateurs de l'Âme Naissante de la famille Teng.
+Teng Huayuan se tenait sur les remparts de la cité, le visage sombre. À ses côtés se trouvaient quatre individus: les quatre derniers cultivateurs de l'Âme Naissante de la famille Teng.
 
 Sur ordre de Teng Huayuan, les quatre disparurent. Lorsqu'ils réapparurent, ils se trouvaient déjà à trois cent trente mètres de Wang Lin. Ils sortirent précipitamment leurs trésors magiques pour les projeter contre lui.
 
@@ -68,11 +68,11 @@ Tout en parlant, sa main droite s'étira et se mua en une main gigantesque. Il b
 
 La tour de têtes gagna dix-neuf têtes supplémentaires.
 
-« Wang Lin! » Une immense intention meurtrière émana de Teng Huayuan. Il agita la main et un drapeau doré apparut dans sa paume. D'un mouvement sec, le drapeau libéra un gaz qui se mua en un crâne gigantesque. Le crâne poussa un rugissement et chargea vers Wang Lin.
+« Wang Lin! » Une immense intention meurtrière émana de Teng Huayuan. Il agita la main et un drapeau doré apparut dans sa paume. D'un mouvement sec, le drapeau libéra une brume dorée qui se mua en un crâne gigantesque. Le crâne poussa un rugissement et chargea vers Wang Lin.
 
 L'expression de Wang Lin resta imperturbable. Il frappa son sac de rangement et en sortit un drapeau d'âmes. En secouant le drapeau, des milliers d'âmes hurlantes s'en échappèrent.
 
-« Teng Huayuan, autrefois, vous m'avez menacé avec les âmes de ma famille. Aujourd'hui, je vous rends la pareille. Dévorer autant d'âmes que vous le souhaitez. Cela ne me brisera pas le cœur. » La voix de Wang Lin était monocorde, mais tandis qu'il parlait, il agita sa main droite et plus de cent membres de la famille Teng furent soulevés dans les airs.
+« Teng Huayuan, autrefois, vous m'avez menacé avec les âmes de ma famille. Aujourd'hui, je vous rends la pareille. Dévorez autant d'âmes que vous le souhaitez. Cela ne me brisera pas le cœur. » La voix de Wang Lin était monocorde, mais tandis qu'il parlait, il agita sa main droite et plus de cent membres de la famille Teng furent soulevés dans les airs.
 
 Peu importait leurs efforts, tout était vain. Cette fois, Teng Huayuan poussa un rugissement et fit tournoyer un étrange coup de vent pour tenter de briser la technique de Wang Lin.
 

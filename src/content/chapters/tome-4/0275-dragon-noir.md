@@ -12,7 +12,7 @@ Dans un rugissement tonnerre, toutes les déchirures situées dans un rayon de 1
 
 Des tours de glace descendirent du gouffre, l'une après l'autre.
 
-Les cultivateurs de Xue Yu différaient grandement de ceux des autres pays de culture. À l'instar du Clan des Démons Géants, ils ne possédaient pas de multiples sectes; chacun appartenait à une seule et unique entité.
+Les cultivateurs de Xue Yu différaient grandement de ceux des autres pays de culture. À l'instar du Clan des Démons Géants, ils ne possédaient pas de multiples sectes; ils formaient un seul et même clan.
 
 À Xue Yu, une fois qu'un cultivateur atteignait le stade de l'Âme Naissante, il pouvait manifester un géant de glace à partir de son Âme Naissante pour mener le combat. C'était là un symbole de son rang.
 
@@ -40,7 +40,7 @@ En un instant, il passa de l'état de vieillard flétri à celui d'un homme d'â
 
 Papillon Rouge, le génie de Xue Yu qui avait captivé l'attention de Suzaku, était un prodige absolu ayant réussi à atteindre le stade avancé de la Formation de l'Âme en seulement cent ans.
 
-Les yeux de la femme s'illuminèrent et elle répondit: « Ainsi, il s'agit du compagnon de culture Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
+Les yeux de la femme s'illuminèrent et elle répondit: « Ainsi, il s'agit de Zhou Yun, l'un des huit cultivateurs au stade avancé de la Formation de l'Âme de l'Alliance des Quatre Sectes. »
 
 Le sourcil de Zhou Yun se fronça. Cette femme avait répondu à sa question par une autre interrogation. Ce n'était manifestement pas ce qu'il attendait et, voyant qu'elle ne semblait guère vouloir lui répondre, son regard devint glacial et il agita sa manche.
 
@@ -66,11 +66,11 @@ Dès leur apparition, ces lueurs se relièrent entre elles pour projeter les omb
 
 À la vue de ces neuf figures, le visage de la femme vêtue de blanc se décomposa. Elle poussa un grognement de mépris, puis agita sa main droite pour faire apparaître un éventail composé de sept grandes plumes.
 
-Ses yeux brillèrent d'espoir. Elle agita l'éventail et l'une des plumes s'envola de son propre chef. Dès qu'elle quitta l'objet, la plume se mua en un nuage de fumée, et une silhouette colossale apparut soudainement. Bien que cette figure possédât des courbes féminines, elle n'était encore qu'une ombre.
+Son regard étincela. Elle agita l'éventail et l'une des plumes s'envola de son propre chef. Dès qu'elle quitta l'objet, la plume se mua en un nuage de fumée, et une silhouette colossale apparut soudainement. Bien que cette figure possédât des courbes féminines, elle n'était encore qu'une ombre.
 
 Elle laissa échapper un souffle léger, et les neuf silhouettes tremblèrent toutes en crachant des bouffées de sang, sans pour autant reculer d'un seul pas.
 
-Simultanément, les neuf figures poussèrent des rugissements alors que neuf domaines distincts chargeaient la femme.
+Simultanément, les neuf figures poussèrent ensemble un cri sourd, et neuf attaques imprégnées de domaines différents, telles des vagues furieuses, se ruèrent sur la femme.
 
 À cet instant, tous les cultivateurs de Xue Yu qui assistaient à la scène voulurent s'élancer pour venir en aide à leur égale, mais les combattants de l'Alliance des Quatre Sectes les en empêchèrent, car cela faisait partie de leur stratégie.
 
@@ -80,7 +80,7 @@ La mort du prodige de Xue Yu marquerait un tournant décisif dans cette guerre. 
 
 Lorsque les neuf assauts se déchaînèrent, de nombreux cultivateurs chargés de maintenir la formation périrent sur le coup. Ce furent eux qui absorbèrent une partie du contre-coup de l'attaque de la femme.
 
-Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail. Pourtant, elle s'était montrée trop confiante. Après avoir obtenu ce trésor dans un pays de culture de rang 5, personne ne pouvait l'égaler, si ce n'est sa jeune sœur de discipline qui était déjà bien au-delà d'elle.
+Si celle-ci osait flotter seule dans les airs, c'était grâce à cet éventail. Pourtant, elle s'était montrée trop confiante. Depuis qu'elle avait obtenu cet éventail précieux, fabriqué dans un pays de culture de rang 5, aucun cultivateur de la Formation de l'Âme ne pouvait l'égaler, hormis sa jeune sœur de discipline qui l'avait toujours dominée.
 
 Parmi les neuf figures, cinq se trouvaient au stade avancé de la Formation de l'Âme, tandis que les quatre autres maîtrisaient des domaines spéciaux. Personne ne pouvait survivre à une telle attaque, à moins d'avoir atteint le stade de la Transformation de l'Âme.
 
@@ -100,7 +100,7 @@ Cette femme n'était peut-être pas le véritable génie.
 
 La terre entière commença à trembler violemment au centre de l'Alliance des Quatre Sectes, dans la chaîne de montagnes du Nuage Céleste. Bien que recouverte de neige, la montagne fut secouée de tremblements si puissants que la couche neigeuse se détacha et que d'énormes blocs de glace éclatèrent. Rapidement, toute la chaîne de montagnes se mua en un dragon noir de 33 kilomètres de long.
 
-Alors que le dragon redressait la tête, la neige et la glace tombèrent de ses écailles, et il fixa les cultivateurs de Xue Yu d'un regard impérial.
+Alors que le dragon redressait la tête, la neige et la glace tombèrent de ses écailles, et ses immenses yeux de dragon se fixèrent sur les cultivateurs de Xue Yu.
 
 Sur la tête du dragon noir se tenait un homme. Wang Lin le reconnut: c'était le cultivateur aux grandes oreilles, Zhou Wutai.
 

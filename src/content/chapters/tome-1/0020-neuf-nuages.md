@@ -8,7 +8,7 @@ slug: neuf-nuages
 ---
 Wang Lin était également très heureux. Bien qu'il eût été chassé de la cour et que de nombreux disciples honoraires se fussent moqués de lui tout au long du mois, il avait énormément appris sur la culture. Il découvrit qu'il existait cinq étapes: la Condensation de Qi, l'Établissement des Fondations, la Formation du Noyau, l'Âme Naissante et la Formation de l'Âme.
 
-Au sein de la Secte Heng Yue, il n'y avait que deux experts au stade de la Formation du Noyau. Tous deux résidaient sur le sommet de la montagne, là où la concentration d'énergie spirituelle était la plus élevée. Ils restaient toujours en méditation recluse, s'entraînant sans jamais se soucier des affaires de la secte. Seules dix personnes dans toute la secte avaient atteint le stade de l'Établissement des Fondations. Elles occupaient les rangs les plus élevés et jouissaient de privilèges spéciaux, tels que l'usage de n'importe quel trésor magique à leur guise.
+Au sein de la Secte Heng Yue, il n'y avait que deux experts au stade de la Formation du Noyau. Tous deux résidaient sur la montagne arrière, là où la concentration d'énergie spirituelle était la plus élevée. Ils restaient toujours en méditation recluse, s'entraînant sans jamais intervenir, sauf pour les grandes affaires de la secte. Il n'y avait pas plus de dix personnes dans toute la secte au stade de l'Établissement des Fondations. Elles formaient l'ossature de la secte et jouissaient de privilèges, tels que l'usage à leur guise des pierres spirituelles et des trésors magiques.
 
 Hormis ces quelques individus, tous les autres étaient bloqués au stade de la Condensation de Qi. Même Sun Dazhu n'était qu'au cinquième niveau de la Condensation de Qi.
 
@@ -22,7 +22,7 @@ Bien qu'il n'eût encore aucune énergie spirituelle en lui, il était convaincu
 
 S'il les buvait, cela ne serait pas moins efficace que tout le mois de médicaments qu'il avait pris, et sans doute même meilleur. C'est pour cette raison qu'il ne regrettait pas d'avoir été chassé. Il était même ravi de ne plus être surveillé par Sun Dazhu.
 
-En tant que disciple interne, il n'était pas obligé de loger dans la cour principale; il pouvait s'installer dans l'une des cinq autres cours. Il choisit une demeure isolée, proche de la porte est de la cour.
+En tant que disciple interne, il n'était pas obligé de loger dans la cour principale; il pouvait s'installer dans l'une des cinq autres cours. Il choisit une demeure isolée dans la cour du Feu, proche de la porte est.
 
 Les disciples internes recevaient un traitement différent selon la couleur de leurs vêtements. Il avait appris auprès de Sun Dazhu au cours du mois écoulé que, le 10 de chaque mois, chaque disciple interne pouvait venir chercher un fragment de pierre spirituelle de bas grade ainsi qu'une Pilule de Rassemblement de Qi.
 
@@ -52,7 +52,7 @@ Il connaissait désormais très bien la secte. Après un moment de marche, il at
 
 Avant d'arriver, une voix familière lui parvint de loin.
 
-— Sœur apprentie Zhou, le Maître m'a permis de me retirer en méditation recluse pendant trois mois pour atteindre le premier niveau de Condensation de Qi, mais je n'ai cessé de penser à vous! Je n'ai pas pu apaiser mon cœur un seul instant! Je voulais atteindre ce premier niveau au plus vite, juste pour pouvoir vous voir. La nuit dernière, j'y suis enfin parvenu, alors je me suis précipité dans la montagne pour cueillir cette fleur pour vous. Regardez comme elle est belle! Un énorme serpent gardait la fleur, j'ai dû déployer force et courage pour l'obtenir. Regardez, mon coude est même blessé à cause de cela!
+— Sœur apprentie Zhou, le Maître m'a permis de me retirer en méditation recluse pendant trois mois pour atteindre le premier niveau de Condensation de Qi, mais je n'ai cessé de penser à vous! Je n'ai pas pu apaiser mon cœur un seul instant! Je voulais atteindre ce premier niveau au plus vite, juste pour pouvoir vous voir. La nuit dernière, j'y suis enfin parvenu, alors je me suis précipité dans la montagne pour cueillir cette fleur pour vous. Regardez comme elle est belle! Un énorme serpent gardait la fleur, j'ai eu toutes les peines du monde à le tuer. Regardez, mon bras est même blessé à cause de cela!
 
 Wang Lin fronça les sourcils et s'arrêta. Il ricana intérieurement et poursuivit son chemin.
 
@@ -68,6 +68,6 @@ L'une des jeunes filles sur le côté intervint:
 — Wang Lin? Ah, c'est donc toi qui es devenu disciple honoraire en tentant de te suicider, puis disciple interne en faisant la cour à l'Ancien Sun!
 Ses cheveux noirs et brillants étaient tressés en une longue natte. Elle avait des sourcils épais et de grands yeux noirs; elle était très jolie.
 
-Les deux autres affichaient un visage empreint de choc, leurs regards rivés sur Wang Lin. L'une des filles avait de grands yeux enfantins, soulignés par de magnifiques cils. Ses yeux ressemblaient à deux boules de cristal et brillaient d'un air curieux.
+Les deux autres affichaient un visage empreint de choc, leurs regards rivés sur Wang Lin. L'une des filles avait de grands yeux enfantins, soulignés par de magnifiques cils. Ses yeux ressemblaient à deux grains de raisin de cristal et scintillaient d'un vif intérêt.
 
 Le visage de Wang Lin resta impassible tandis qu'il inspectait les personnes devant lui. Dès qu'il entendit la voix de la jeune fille, il comprit qu'il s'agissait de celle qui s'était moquée de Wang Zhuo. Mais en l'observant, elle lui parut très familière. Après une réflexion attentive, il se souvint qu'elle avait été choisie lors de la sélection des disciples quelques mois auparavant. Une fois l'avoir reconnue, il en déduisit que l'autre devait être la sœur apprentie Zhou, à qui Wang Zhuo tentait d'offrir la fleur.

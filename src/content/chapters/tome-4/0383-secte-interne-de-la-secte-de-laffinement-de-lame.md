@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 383 - Inner Secte of the Soul Refining Secte
 slug: secte-interne-de-la-secte-de-laffinement-de-lame
 ---
-Le sortilège de la mort fut créé par d'anciens cultivateurs qui avaient étudié le Royaume du Ji. Bien qu'il fût difficile à cultiver, il était plus facile à contrôler que le Royaume du Ji, lequel était impossible à maîtriser.
+Le sortilège de la mort fut créé par d'anciens cultivateurs qui avaient étudié le Royaume Ji. Bien qu'il fût difficile à cultiver, il était plus facile à contrôler que le Royaume Ji, lequel était impossible à maîtriser.
 
 Une fois le sortilège accompli, il suffisait de prononcer le mot « meurs » pour que la personne ciblée s'éteigne instantanément.
 
@@ -20,9 +20,9 @@ La seconde, l'aura yin, est l'énergie yin issue des femmes. Cette aura yin cont
 
 Après avoir obtenu ces deux auras, le cultivateur doit les fusionner, puis combiner le résultat avec une troisième aura: l'aura du meurtre! Une fois les trois auras fusionnées, l'individu devra subir une épreuve avec seulement 10 % de chances de survie. Quiconque survivra pourra commencer à utiliser le sortilège de la mort. Mais dès lors qu'un cultivateur entreprend cette voie, il devra endurer une douleur inimaginable chaque jour et affronter un nouveau défi tous les trois ans, avec, pour chacun d'eux, seulement 10 % de chances de survie.
 
-Après avoir traversé plusieurs cycles, le sortilège de la mort atteint son premier stade de perfectionnement. Si l'on souhaite continuer sa culture, le risque de mourir augmente. Ce sortilège tente de simuler le Royaume du Ji.
+Après avoir traversé plusieurs cycles, le sortilège de la mort atteint son premier stade de perfectionnement. Si l'on souhaite continuer sa culture, le risque de mourir augmente. Ce sortilège tente de simuler le Royaume Ji.
 
-Cependant, il est bien plus faible que le Royaume du Ji et beaucoup plus dangereux à cultiver, ce qui le rend quelque peu pyrrhique. Bien que sa capacité offensive soit prodigieuse, le sortilège de la mort finit par devenir une technique perdue, car de moins en moins de personnes acceptent de la cultiver.
+Cependant, il est bien plus faible que le Royaume Ji et beaucoup plus dangereux à cultiver, ce qui le rend quelque peu pyrrhique. Bien que sa capacité offensive soit prodigieuse, le sortilège de la mort finit par devenir une technique perdue, car de moins en moins de personnes acceptent de la cultiver.
 
 Sima prononça le mot « meurs » et activa le sortilège de la mort. Une étrange fluctuation d'énergie spirituelle commença immédiatement à se propager du doigt qu'il pointait.
 
@@ -36,11 +36,11 @@ L'apparition de cette aura choqua Wang Lin. Si elle était apparue dans son corp
 
 Bien que cette aura du meurtre fût ténue, elle fusionna avec l'aura yin pour former une lame extrêmement tranchante qui chargea directement son âme originelle.
 
-Toutefois, avec la force de Wang Lin, il n'eut besoin que d'une seule pensée pour détruire ce pouvoir mystérieux. D'un simple élan mental, son âme originelle figea cette puissance occulte. Grâce à sa compréhension du Royaume du Ji, il fut capable de percer instantanément la nature du sortilège de la mort.
+Toutefois, avec la force de Wang Lin, il n'eut besoin que d'une seule pensée pour détruire ce pouvoir mystérieux. D'un simple élan mental, son âme originelle figea cette puissance occulte. Grâce à sa compréhension du Royaume Ji, il fut capable de percer instantanément la nature du sortilège de la mort.
 
-Bien que le sortilège de la mort fût puissant, il restait bien trop faible comparé au Royaume du Ji.
+Bien que le sortilège de la mort fût puissant, il restait bien trop faible comparé au Royaume Ji.
 
-Le Royaume du Ji était une mutation de la foudre de la divine rétribution; elle pouvait tuer instantanément des cultivateurs de même niveau.
+Le Royaume Ji était une mutation de la foudre de la divine rétribution; elle pouvait tuer instantanément des cultivateurs de même niveau.
 
 Ce sortilège de la mort était une technique capable de tuer d'un seul coup n'importe quel individu ayant un niveau de culture inférieur, mais il n'avait que très peu d'effet sur ceux dont le niveau était plus élevé.
 
@@ -48,7 +48,7 @@ Par exemple, si un cultivateur au stade intermédiaire de la Formation du Noyau 
 
 Cependant, face à un cultivateur au stade avancé de la Formation du Noyau, cette technique s'avérait peu utile et, si l'utilisateur manquait de prudence, il risquait de subir un contrecoup violent.
 
-Cela était bien trop dérisoire par rapport au Royaume du Ji.
+Cela était bien trop dérisoire par rapport au Royaume Ji.
 
 Wang Lin secoua légèrement la tête. Bien que ce sortilège fût mystérieux, il lui était inutile. D'une simple pensée, le pouvoir occulte du sortilège disparut de son corps.
 
@@ -92,9 +92,9 @@ Wang Lin se frotta le nez. Il ne s'en souvenait vraiment absolument pas.
 
 « Le patriarche Dun Tian? » Les yeux de Wang Lin s'illuminèrent.
 
-« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte de l'Affinement de l'Âme possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. »
+« Ce n'est pas un secret que je te cache maintenant, puisque tu vas devenir membre de la secte interne. Notre Secte de l'Affinement de l'Âme possède deux patriarches au stade de la Transformation de l'Âme; l'un d'eux est le patriarche Dun Tian. Vois-tu ces anneaux dorés? Derrière eux se trouvent encore deux anneaux de sang: ce sont les lieux de retraite des deux patriarches. »
 
-Wang Lin leva les yeux. Il pouvait distinguer une faible trace d'aura rouge sang derrière les neuf anneaux dorés.
+Wang Lin leva les yeux. Il pouvait distinguer une faible ombre rouge sang derrière les neuf anneaux dorés.
 
 Tout en discutant, ils arrivèrent à la Montagne de l'Affinement de l'Âme. Au sommet se dressait un hall fait de pierres verdoyantes. Wang Zhen dit: « Qing Mu, entre; l'Ancien s'occupera de tes formalités. »
 
@@ -124,7 +124,7 @@ En un clin d'œil, le vieil homme apparut devant Wang Lin. Son doigt fut aussi r
 
 Wang Lin ne chercha pas à esquiver. Au moment où le doigt le toucha, une énergie glaciale pénétra son corps, mais avec son âme originelle, il n'était nullement inquiet.
 
-Peu après, l'homme retira son doigt. Ses yeux n'étaient plus aussi froids. Il déclara: « Je suis le Grand Ancien de la Montagne de l'Affinement de l'Âme. Tu peux te rendre à la montagne latérale pour récupérer ton jeton et tes vêtements. Tu peux également te rendre à la bibliothèque de la Montagne de l'Affinement de l'Âme pour choisir une technique. Enfin, tu es libre d'ouvrir une grotte sur n'importe quelle partie de la montagne pour ta culture. »
+Peu après, l'homme retira son doigt. Ses yeux n'étaient plus aussi froids. Il déclara: « Je suis le Grand Ancien de la Montagne de l'Affinement de l'Âme. Tu peux te rendre au pavillon latéral pour récupérer ton jeton et tes vêtements. Tu peux également te rendre à la bibliothèque de la Montagne de l'Affinement de l'Âme pour choisir une technique. Enfin, tu es libre d'ouvrir une grotte sur n'importe quelle partie de la montagne pour ta culture. »
 
 « Il n'y a pas de maîtres au sein de la Secte de l'Affinement de l'Âme; chacun cultive par ses propres moyens. Si tu as des questions, tu pourras me les poser. Maintenant, va-t'en. »
 

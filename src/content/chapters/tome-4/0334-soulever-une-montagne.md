@@ -58,7 +58,7 @@ L'émergence de cette montagne fit trembler le sol violemment. Dans un rayon de 
 
 De plus en plus de cultivateurs arrivèrent progressivement, mais nul n'osait s'approcher. Ils observaient la scène à 500 kilomètres de distance, terrifiés.
 
-Wang Lin pointa la montagne et une grotte apparut soudainement en son centre. Après avoir manipulé l'espace, Wang Lin fit en sorte que la grotte soit exactement identique à celle d'autrefois.
+Wang Lin pointa la montagne et une grotte apparut soudainement en son centre. Sous le contrôle du sens divin de Wang Lin, la grotte devint exactement identique à celle d'autrefois.
 
 « Wan Er, la grotte n'a pas disparu! » Wang Lin se retourna vers Li Muwan.
 
@@ -70,9 +70,9 @@ Li Muwan rit: « Je t'ai attendu pendant trois ans à l'époque. Je ne m'attenda
 
 « Et aussi, quand tu es revenu, tu portais un dragon avec toi. Un dragon! J'ai toujours voulu savoir comment tu avais fait, mais tu étais si froid que j'avais trop peur de poser la question. » Li Muwan regarda tendrement Wang Lin.
 
-Wang Lin se frotta le nez en souriant intérieurement.
+Wang Lin se frotta le nez et sourit sans dire un mot.
 
-Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin prit Li Muwan par la main et ils volèrent vers la Cité des Rebelles Démoniaques.
+Après avoir passé trois jours dans la grotte, Li Muwan repartit à contrecœur. Wang Lin traça un sceau de la main droite et projeta une restriction sur la montagne, puis, prenant Li Muwan par la main, ils volèrent vers la Cité des Rebelles Démoniaques.
 
 Ce voyage dans la Mer des Diables avait rendu Wang Lin heureux; l'aura mortelle de Li Muwan avait nettement diminué.
 
@@ -92,7 +92,7 @@ Dans la plus grande pagode à trois étages de la Cité des Rebelles Démoniaque
 
 À l'arrivée du groupe de Wang Lin, deux disciples de l'Établissement des Fondations du Pavillon acceptèrent l'invitation et les conduisirent vers la grande salle.
 
-L'homme d'âge moyen qui avait précédemment vendu la recette à Wang Lin se trouvait également dans la salle. Il discutait avec quelques cultivateurs familiers, mais son expression changea brusquement lorsqu'il aperçut Wang Lin. Il salua rapidement ses compagnons et se dirigea vers lui. Il s'arrêta à 10 mètres de Wang Lin, s'inclina et dit respectueusement: « C'est un honneur pour moi que Senior soit venu. Senior, cet endroit est trop désordonné; permettez-moi de vous conduire au troisième étage. »
+L'homme d'âge moyen qui avait accueilli Wang Lin deux mois plus tôt, lorsqu'il avait acheté la recette, se trouvait également dans la salle. Il discutait avec quelques cultivateurs familiers, mais son expression changea brusquement lorsqu'il aperçut Wang Lin. Il salua rapidement ses compagnons et se dirigea vers lui. Il s'arrêta à 10 mètres de Wang Lin, s'inclina et dit respectueusement: « C'est un honneur pour moi que Senior soit venu. Senior, cet endroit est trop désordonné; permettez-moi de vous conduire au troisième étage. »
 
 Les cultivateurs environnants qui connaissaient cet homme furent stupéfaits. Ce dernier occupait une position très élevée au sein du Pavillon de Raffinage des Trésors et avait un avenir radieux. Il ne s'adressait ainsi à personne; c'était un spectacle rare. Tous les regards se tournèrent vers Wang Lin.
 

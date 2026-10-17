@@ -25,7 +25,7 @@ Après avoir utilisé une pierre spirituelle de qualité supérieure pour contre
 
 Il sentait que le vieil homme le poursuivait toujours et qu'il se rapprochait de plus en plus. Si la vitesse de la boussole stellaire n'avait pas dépassé l'imagination du vieillard, il aurait déjà été capturé.
 
-Wang Lin maudit: « Ce vieux fantôme ne renoncera donc jamais! » Cela faisait maintenant plus d'un mois qu'il fuyait. Il éprouvait le même sentiment que lorsqu'il était traqué comme un fugitif durant ses jours d'Établissement des Fondations.
+Wang Lin maudit: « Ce vieux fantôme ne renoncera donc jamais! » Cela faisait maintenant près d'un mois qu'il fuyait. Il éprouvait le même sentiment que lorsqu'il était traqué comme un fugitif durant ses jours d'Établissement des Fondations.
 
 S'il n'avait pas disposé de divers objets pour restaurer son énergie spirituelle, il aurait déjà été épuisé et capturé par le vieil homme. Cependant, peu importe le nombre de pilules en sa possession, elles finiraient inévitablement par s'épuiser. Le jour où il n'aurait plus de quoi restaurer l'énergie nécessaire au fonctionnement de la boussole stellaire, son seul destin serait la mort.
 
@@ -35,13 +35,13 @@ Le regard de Wang Lin s'anima et il contrôla la boussole stellaire pour poursui
 
 Le vieil homme poursuivait sa traque. Plus il avançait, plus il était stupéfait de voir que ce junior pouvait maintenir une telle vitesse pendant si longtemps. Bien que Wang Lin utilisât un trésor, celui-ci consommait tout de même de l'énergie spirituelle. Un junior capable de maîtriser un tel objet aussi longtemps, tout en portant la graine du tatouage en lui, était d'une rareté absolue.
 
-« Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple de Suzaku! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
+« Ce garçon doit être le disciple d'une grande secte là-haut, peut-être même un disciple du Pays de Suzaku! Je dois le raffiner pour en faire ma marionnette de tatouage; une fois renvoyé là-haut, son utilité sera immense! »
 
 Le Clan des Immortels Délaissés ne pouvait franchir le premier étage en raison d'un sceau imposé par Suzaku. Les seuls capables de sortir étaient les marionnettes de tatouage. Celui que Wang Lin avait rencontré auparavant n'était qu'une marionnette de rang inférieur. C'était la raison pour laquelle le Clan des Immortels Délaissés s'emparait des corps de cultivateurs décédés. Autrement, la Mer des Démons et tous les pays environnants auraient été anéantis par eux, et les membres du clan n'auraient pas eu à se battre entre eux pour l'obtention de bêtes.
 
 Les yeux du vieil homme projetèrent une lueur mystérieuse tandis qu'il continuait sa poursuite. Il eut un ricanement méprisant: « Ce junior doit posséder de nombreuses pilules, mais peu importe leur nombre, il finira par en manquer. Et lorsqu'il sera à bout, je le raffinerai en marionnette! »
 
-Le vide était d'une immensité extrême. Wang Lin volait en ligne droite depuis plus d'un mois sans voir la fin du voyage. Pour l'instant, tout semblait identique à l'endroit où il était entré: une obscurité totale, dépourvue de toute vie ou matière.
+Le vide était d'une immensité extrême. Wang Lin volait en ligne droite depuis un mois sans voir la fin du voyage. Pour l'instant, tout semblait identique à l'endroit où il était entré: une obscurité totale, dépourvue de toute vie ou matière.
 
 Ce jour-là, alors que Wang Lin pilotait encore la boussole stellaire pour s'échapper, la plante sur son front se mit soudainement à briller et tous les tatouages sur son corps commencèrent à s'agiter.
 

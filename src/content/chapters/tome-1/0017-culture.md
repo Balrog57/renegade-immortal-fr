@@ -24,7 +24,7 @@ La petite bourse grise ne semblait pas extraordinaire. Wang Lin la retourna au-d
 
 Le visage de Wang Lin s'illumina. Il saisit le livret et l'ouvrit avec enthousiasme. Sur la première page était inscrit: « Les trois étapes de la Condensation de Qi ».
 
-Il lut jusqu'à minuit à la lueur de la lampe à huile. En refermant l'ouvrage, il sentit qu'il avait acquis une meilleure compréhension de la culture. Ce livret détaillait les trois premières étapes de la concentration du Qi, considérées comme les plus fondamentales. Il y était mentionné qu'il existait au total quinze étapes de Condensation de Qi, et que ce n'est qu'après avoir atteint la troisième étape que l'on pouvait accéder aux méthodes des niveaux supérieurs.
+Il lut jusqu'à minuit à la lueur de la lampe à huile. En refermant l'ouvrage, il sentit qu'il avait acquis une meilleure compréhension de la culture. Ce livret détaillait les trois premières étapes de la Condensation de Qi, considérées comme les plus fondamentales. Il y était mentionné qu'il existait au total quinze étapes de Condensation de Qi, et que ce n'est qu'après avoir atteint la troisième étape que l'on pouvait accéder aux méthodes des niveaux supérieurs.
 
 La prétendue Condensation de Qi consistait à absorber l'énergie spirituelle du ciel et de la terre pour transformer le corps et bâtir les fondations de l'avenir.
 
@@ -46,11 +46,11 @@ Dehors, une brise légère portait des effluves médicinales. Il prit quelques i
 
 Mais ce n'était pas le moment d'agir avec précipitation. Il était très confiant quant à l'endroit où il avait caché la perle de pierre et les gourdes. Il avait parcouru la moitié de la montagne pour trouver un lieu isolé; même s'ils tombaient sur cet endroit, ils ne trouveraient pas son trésor.
 
-Il déambula dans le jardin d'herbes médicinales jusqu'à trouver un endroit dégagé. Wang Lin s'y assit et commença à cultiver. Après un moment, il eut l'impression que des fourmis rampaient dans son corps. Il fut stupéfait. Juste au moment où il allait poursuivre, son maître hurla: « Wang Lin, que fais-tu? Sors de là immédiatement! Je te préviens: ne cultive jamais dans le jardin d'herbes! »
+Il déambula dans le jardin d'herbes médicinales jusqu'à trouver un endroit dégagé. Wang Lin s'y assit et commença à cultiver. Après un moment, il sentit très faiblement comme des fourmis ramper dans son corps. Il fut stupéfait, puis ravi. Juste au moment où il allait poursuivre, son maître hurla: « Wang Lin, que fais-tu? Sors de là immédiatement! Je te préviens: ne cultive jamais dans le jardin d'herbes! »
 
 Wang Lin ouvrit les yeux et vit Sun Dazhu le fixer d'un air renfrogné. Il se leva silencieusement et quitta le jardin.
 
-Sun Dazhu lâcha un reniflement froid: « Tu sais vraiment comment trouver les meilleurs endroits. Je cultive mes herbes ici parce que c'est là que l'énergie spirituelle est la plus dense dans le jardin, et voilà que tu viens tout pomper. Si une seule de ces plantes meurt à cause de toi, même nos vies ne suffiraient pas à compenser la perte! »
+Sun Dazhu lâcha un reniflement froid: « Tu sais vraiment comment trouver les meilleurs endroits. Chez moi, c'est ce jardin d'herbes qui a l'énergie spirituelle la plus dense, et voilà que tu viens tout pomper. Si ces précieuses plantes meurent, ta petite vie ne suffirait pas à compenser la perte! »
 
 Wang Lin soutint le regard de Sun Dazhu et dit respectueusement: « Le disciple ne savait pas. Le disciple ne cultivera plus jamais ici. »
 

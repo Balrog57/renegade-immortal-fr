@@ -26,7 +26,7 @@ Il réfléchit un instant, laissa échapper un reniflement et, au lieu de recule
 
 Le vieil homme remarqua la manœuvre de Wang Lin. Son visage s'assombrit, mais il n'intervint pas.
 
-Quelques jours passèrent, et le vieil homme était hors de lui. Wang Lin avait maintenu la même distance tout ce temps. Il avait enduré cela longtemps, mais finit par se retourner brusquement en criant: « Tu es vraiment imprudent! »
+Quelques jours passèrent, et le vieil homme était hors de lui. Wang Lin avait maintenu la même distance tout ce temps. Il avait enduré cela longtemps, mais finit par se retourner brusquement en criant: « Tu cherches la mort! »
 
 Il se transforma en un rayon de lumière et se lança à la poursuite de Wang Lin.
 
@@ -64,7 +64,7 @@ Son expression changea brusquement et il tourna la tête vers la sortie. La dire
 
 « Senior, le junior va détruire la sortie pour que nous puissions rester ici pour toujours! Ne serait-ce pas amusant?! » La voix irritante de Wang Lin parvint aux oreilles du vieil homme.
 
-Le vieil homme poussa un rugissement et chargea soudainement. Sa haine envers Wang Lin avait atteint son paroxysme. Sans ce trésor, comment se serait-il retrouvé dans cette impasse où poursuivre était aussi risqué que de renoncer?
+Le vieil homme poussa un rugissement et chargea soudainement. Sa haine envers Wang Lin avait atteint son paroxysme. Sans ce trésor étrange, il l'aurait rattrapé depuis longtemps; comment se serait-il retrouvé dans cette impasse où poursuivre était aussi risqué que de renoncer?
 
 Wang Lin n'avait effectivement plus beaucoup de pilules, mais il possédait encore des pierres spirituelles de qualité supérieure. Grâce à elles, il était certain de pouvoir tenir face à la poursuite du vieil homme.
 
@@ -82,9 +82,9 @@ Le vieil homme cherchait des moyens d'attaquer la boussole stellaire, mais non s
 
 Quelques mois plus tard, Wang Lin avait épuisé toutes ses pilules et comptait désormais sur des pierres spirituelles de qualité supérieure pour restaurer son énergie spirituelle.
 
-Plus Wang Lin poursuivait, plus le vieil homme devenait impatient, ce qui l'incitait à attaquer davantage. Cependant, grâce à la boussole stellaire, tous ces assauts manquaient leur cible.
+Plus le vieil homme poursuivait, plus il devenait impatient, ce qui l'incitait à attaquer davantage. Cependant, grâce à la boussole stellaire, tous ces assauts manquaient leur cible.
 
-Si une seule des marques d'attaque touchait, même sans tuer, elle blesserait mortellement ce junior. Si elle atteignait le trésor, elle le briserait, lui permettant de tuer Wang Lin à sa guise.
+Si une seule des marques d'attaque touchait, elle tuerait ou blesserait gravement ce junior. Si elle atteignait le trésor, elle le briserait, lui permettant de tuer Wang Lin à sa guise.
 
 Hélas, la vitesse de la boussole stellaire ne faisait qu'augmenter, Wang Lin s'en étant davantage familiarisé au cours de ces huit mois.
 
@@ -94,7 +94,7 @@ La lance de l'étendard de restriction, ses gravures du domaine temporel, le sce
 
 Après tout, depuis le début de sa culture, il n'avait jamais été dans une situation où il pouvait utiliser ses trésors aussi librement.
 
-L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante via Xu Liguo, tant qu'elle se trouvait à moins de dix mètres de lui.
+L'épée céleste fut utilisée si souvent qu'il parvint à la contrôler comme une épée volante grâce à l'âme de Xu Liguo qu'elle renfermait, sans avoir besoin de la tenir, tant qu'elle se trouvait à moins de dix mètres de lui.
 
 Par conséquent, bien que la puissance de l'épée n'ait pas augmenté, elle était devenue bien plus agile. Tout cela grâce au vieil homme.
 

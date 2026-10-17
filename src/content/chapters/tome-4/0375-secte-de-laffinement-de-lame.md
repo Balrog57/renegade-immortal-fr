@@ -16,7 +16,7 @@ Les flocons de neige qui tombaient vers Wang Lin fondaient à près d'un mètre 
 
 Lorsque Wang Lin ouvrit les yeux, son regard était empreint d'une clarté nouvelle.
 
-« Dix pour cent des marques de thé ont disparu, le sceau s'est desserré et ma culture est revenue au début du stade de l'Établissement des Fondations. En conséquence, je serai à peine capable d'utiliser une partie des trésors contenus dans mon sac. Grâce à cela et à la bête moustique, tant que je ne rencontre aucun cultivateur de la Formation de l'Âme, je serai en sécurité. »
+« Dix pour cent des marques de thé ont disparu, le sceau s'est desserré et ma culture est revenue au début du stade de l'Établissement des Fondations. En conséquence, je serai à peine capable d'utiliser une partie des trésors contenus dans mon sac. Grâce à cela et à la bête moustique, tant que je ne rencontre aucun cultivateur de la Formation de l'Âme possédant un domaine, je serai en sécurité. »
 
 « Cependant, ce morceau de jade céleste est la limite que mon corps peut supporter pour le moment. Si j'en prends davantage, je crains que mon corps ne soit réduit en poussière par l'énergie spirituelle céleste avant même que le domaine et le sceau ne soient brisés. »
 
@@ -48,7 +48,7 @@ Devenir un disciple extérieur était très simple; il suffisait de payer suffis
 
 Plusieurs grandes montagnes entouraient la Secte de l'Affinement de l'Âme, offrant une énergie spirituelle plusieurs fois plus dense que la normale. C'est là que résidaient les disciples extérieurs. Bien qu'ils fussent des membres de la secte, ils ne faisaient en réalité que louer des grottes pour leur culture en échange de pierres spirituelles.
 
-Les méthodes de la Secte de l'Affinement de l'Âme étaient très étranges et rarement vues sur le continent de Suzaku; nul n'en connaissait la raison.
+Les méthodes de la Secte de l'Affinement de l'Âme étaient très étranges et rarement vues sur la planète Suzaku; peu de gens en connaissaient la véritable raison.
 
 C'est précisément ce qui avait attiré Wang Lin. La carte contenait des informations extrêmement détaillées sur la secte, et il était convaincu que la personne qui lui avait vendu le jade en avait été, un temps, un disciple extérieur.
 
@@ -74,7 +74,7 @@ Wang Lin soutint son regard avec déférence: « C'est précisément ce que le d
 
 Le vieil homme agita ses manches et déclara: « Tu arrives trop tard; la période d'admission des disciples extérieurs est depuis longtemps révolue. Rentre chez toi et reviens dans quelques années. » Sur ces mots, il s'apprêta à franchir l'entrée de la secte.
 
-Wang Lin ricana intérieurement mais garda un air respectueux. Simulant le désespoir, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce junior a trouvée il y a quelques années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
+Wang Lin ricana intérieurement mais garda un air respectueux. Affichant une expression peinée, il sortit une boîte scellée et dit: « Aîné, ceci est une épée volante que ce junior a trouvée il y a quelques années et qu'il n'a jamais osé utiliser. Je vous prie de l'accepter, Aîné. Ce disciple souhaite seulement devenir un disciple extérieur. »
 
 Wang Lin comprit aisément que cet homme n'était qu'au début du stade de la Formation du Noyau. Pour un cultivateur de ce niveau, l'épée qu'il présentait était une pièce de grande valeur.
 
@@ -110,7 +110,7 @@ Sur ces mots, le vieil homme s'envola vers l'horizon.
 
 L'homme d'âge moyen tourna son regard vers Wang Lin: « Quel est ton nom? »
 
-« Ce disciple se nomme Qian Mu », répondit respectueusement Wang Lin.
+« Ce disciple se nomme Qing Mu », répondit respectueusement Wang Lin.
 
 « La 1090e grotte de cette montagne te sera attribuée. Le coût est d'une pierre spirituelle de qualité moyenne par an. » L'homme lui lança un jeton noir.
 
@@ -120,9 +120,9 @@ Alors que Wang Lin s'apprêtait à s'éloigner, l'homme demanda soudain: « Qu'a
 
 Wang Lin répondit honnêtement: « Une épée volante qu'un aîné m'a offerte autrefois. »
 
-« Pas étonnant que Cheveux-Rouge ait été si joyeux! Qian Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu travailles dur, tu pourrais avoir une chance de devenir un disciple principal. » L'homme secoua la tête et retourna dans sa demeure.
+« Pas étonnant que Cheveux-Rouge ait été si joyeux! Qing Mu, bien que tu sois au stade de l'Établissement des Fondations, ne sois pas présomptueux. S'il n'y a pas beaucoup de cultivateurs de ce niveau parmi les disciples extérieurs, ils ne sont pas inexistants. Dans six mois, la compétition des disciples extérieurs commencera. Si tu travailles dur, tu pourrais avoir une chance de devenir un disciple principal. » L'homme secoua la tête et retourna dans sa demeure.
 
-À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte de l'Affinement de l'Âme depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
+À cet instant précis, à 25 kilomètres de là, Liu Mei observait la Secte de l'Affinement de l'Âme depuis le sommet d'une montagne. Elle tenait un morceau de jade qui lui avait été envoyé par l'Ancêtre via un messager un mois plus tôt. Bien qu'il ne puisse pas localiser précisément Ceng Niu, il réagirait si celui-ci se trouvait dans un rayon de 50 kilomètres.
 
 À cet instant, le jade émettait une lueur verte.
 

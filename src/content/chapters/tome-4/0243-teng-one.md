@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 243 - Teng Yi
 slug: teng-one
 ---
-Teng Yi ne chercha ni à esquiver ni à bloquer. Il se contenta de subir les attaques. Cependant, même Wang Lin ne pouvait tenir longtemps en déchaînant de tels assauts, particulièrement le Royaume Ji, qui endommageait sa propre Âme Naissante à chaque utilisation.
+Teng Yi ne chercha ni à esquiver ni à bloquer. Il se contenta de subir les attaques. Cependant, même Wang Lin ne pouvait tenir longtemps en déchaînant de tels assauts, particulièrement le sens divin du Royaume Ji, qui endommageait sa propre Âme Naissante à chaque utilisation.
 
 Le corps de Wang Lin disparut pour réapparaître cinquante kilomètres plus loin. Il sortit une fiole de jade et en vida tout le contenu dans sa bouche afin de restaurer son énergie spirituelle.
 
@@ -18,7 +18,7 @@ Le front couvert de sueur, il digéra rapidement les pilules qu'il venait d'ing�
 
 Soudain, l'énergie de l'épée jaillit du fourreau, formant une lame gigantesque qui s'abattit sur Teng Yi.
 
-L'homme chétif resta de nouveau stupéfait, laissant l'énergie de l'épée percuter son corps. Ce dernier ne put finalement plus résister à l'accumulation des dégâts et commença à s'effondrer.
+L'homme chétif eut de nouveau un regard hébété et, sans esquiver ni bloquer, laissa l'énergie de l'épée percuter son corps. Ce dernier ne put finalement plus résister à l'accumulation des dégâts et commença à s'effondrer.
 
 Mais alors que son corps était sur le point de se désagréger, il sembla soudainement réaliser quelque chose. Il lutta pour former un sceau de sa main gauche presque brisée et prononça un mot dont le son rappelait le frottement des os: « Condense! »
 
@@ -40,7 +40,7 @@ Cette explosion créa une immense bourrasque qui balaya la région. Une fois le 
 
 Les yeux de Wang Lin s'illuminèrent. Sans la moindre hésitation, il chargea au lieu de reculer. Il y avait quelque chose d'étrange dans ce sang.
 
-Voyant Wang Lin se précipiter vers lui, Teng Yi vola encore plus vite et tendit les mains. Wang Lin fit de même. Sous la force opposée des deux combattants, le sang doré se scinda en deux, chaque moitié flottant vers l'un d'eux.
+Voyant Wang Lin se précipiter vers lui, Teng Yi vola encore plus vite et tendit une main vers le sang. Wang Lin le saisit lui aussi à distance de sa grande main. Sous la force opposée des deux combattants, le sang doré se scinda en deux, chaque moitié flottant vers l'un d'eux.
 
 Après avoir saisi le sang doré, Teng Yi l'avala prestement. Puis, il fixa Wang Lin et chargea à nouveau contre lui.
 
@@ -48,31 +48,31 @@ Wang Lin s'empara du sang doré et s'enfuit sans un mot.
 
 Les deux volèrent très vite, l'un à la suite de l'autre. Wang Lin ne filait pas en ligne droite, mais décrivait des cercles autour du bassin de boue. Il avait toujours trouvé Teng Yi très étrange, et en voyant ce sang doré, il comprit enfin.
 
-Bien qu'il ignorât la nature exacte de ce sang, les souvenirs du Dieu Ancien contenaient quelque chose de similaire.
+Bien qu'il ignorât la nature exacte de ce sang, les souvenirs du Dieu Ancien Tu Si contenaient quelque chose de similaire.
 
 En vérité, ce sang doré n'avait rien d'exceptionnel en soi; il était simplement semblable au sang d'un Dieu Ancien, ou plus précisément, il contenait une trace du sang d'un Dieu Ancien.
 
 Hormis le moment où il avait reformé son corps, aucune des attaques de Teng Yi ne dégageait la moindre fluctuation d'énergie spirituelle. Ses coups étaient purement physiques.
 
-Cette méthode n'appartenait plus à un cultivateur. Cet homme était comme une marionnette qui ne connaissait que la force brute.
+Cette méthode n'appartenait plus à un cultivateur. Cet homme était comme une marionnette de cadavre desséché façonnée par raffinage, qui ne connaissait que la force brute.
 
-Teng Yi était également perplexe face aux techniques de Wang Lin, mais au milieu de cette confusion, une lueur de compréhension semblait poindre. Cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
+De plus, Teng Yi était rempli de perplexité face aux techniques de Wang Lin, mais au milieu de cette perplexité semblait aussi percer une lueur de compréhension. Wang Lin en conclut que cet homme devait avoir cultivé une technique extrêmement singulière pour devenir ainsi sous son influence.
 
 Il existait trop de méthodes dans le monde de la culture pour que Wang Lin les connaisse toutes, mais ses suppositions étaient très justes. La méthode que Teng Yi pratiquait ressemblait énormément à la façon dont les Dieux Anciens entraînaient leurs corps.
 
-Cette méthode n'appartenait pas à Zhao, mais au messager de la Tour Céleste.
+Cette méthode n'était pas originaire de Zhao, mais avait été apportée par le messager de la Tour Céleste.
 
-En cultivant cette voie, le sens divin et l'âme fusionnent avec le corps, ce qui expliquait pourquoi le Royaume Ji de Wang Lin avait perdu sa capacité de mise à mort instantanée.
+En cultivant cette voie, le sens divin et la mer de conscience cessent d'exister et se fondent dans tous les os du corps, ce qui expliquait pourquoi le Royaume Ji de Wang Lin avait perdu sa capacité de mise à mort instantanée.
 
 Wang Lin fixa le sang doré dans sa main, les yeux brillants. La méthode de culture de cet homme n'était pas celle d'une marionnette, mais une imitation de celle des Dieux Anciens.
 
 Une lueur froide traversa le regard de Wang Lin alors qu'il frappait sa sacoche pour invoquer un brouillard sombre. Ce dernier se transforma en deux marionnettes: deux marionnettes de l'Âme Naissante obtenues auprès d'un membre principal de la famille Teng.
 
-Wang Lin fit glisser son doigt droit et deux gouttes de sang tombèrent sur les marionnettes. Soudain, leurs yeux brillèrent d'un rouge éclatant alors qu'elles chargeaient Teng Yi.
+Wang Lin fit claquer son index droit et deux gouttes de sang tombèrent sur le front des marionnettes. Soudain, leurs yeux brillèrent d'une lueur rouge et, dans un rugissement, elles se jetèrent sur Teng Yi.
 
 Les marionnettes attaquèrent de leurs mains et de leurs pieds, tentant de contenir Teng Yi.
 
-Les yeux de Teng Yi émettent une lueur spectrale. Il forma un poing et frappa l'une des marionnettes, qui trembla avant de voler en éclats.
+Les yeux de Teng Yi émettaient une lueur spectrale. Il serra le poing et frappa la poitrine de l'une des marionnettes, qui trembla avant de voler en éclats.
 
 Bien que sa compagne ait été détruite, la marionnette restante ne faiblit pas et continua l'assaut.
 
@@ -84,40 +84,40 @@ En réalité, Wang Lin possédait de nombreuses techniques appartenant aux Dieux
 
 La technique qu'il employait ici était l'une des rares qui ne nécessitait pas cet héritage, exigeant seulement un peu de sang de Dieu Ancien. Dès qu'il eut vu le sang, Wang Lin avait décidé d'utiliser ce procédé.
 
-Tandis que l'incantation progressait, le sang doré commença à bouillonner et à émettre une vapeur blanche. À mesure que la vapeur s'échappait, le sang se condensa pour former un symbole étrange.
+Tandis que l'incantation progressait, le sang doré commença à bouillonner et à émettre une vapeur blanche. À mesure que la vapeur s'échappait, le sang, violemment comprimé, se transforma finalement en un symbole archaïque.
 
 Dès l'apparition du symbole, le ciel s'obscurcit et les nuages disparurent, laissant descendre un rayon de lumière dorée. Dans cette clarté, une figure gigantesque, composée purement d'énergie spirituelle, apparut.
 
-Cette silhouette était immense, sa tête touchant presque les cieux. En se solidifiant, elle puisa une quantité massive d'énergie dans les veines spirituelles de Zhao. Ce jour-là, les trois cinquièmes des veines spirituelles devinrent inutilisables.
+Cette silhouette était immense, sa tête touchant presque les cieux. En se solidifiant, elle puisa une quantité massive d'énergie dans les veines spirituelles de Zhao. Dès cet instant, trois cinquièmes des veines spirituelles de tout Zhao devinrent de simples montagnes ordinaires.
 
-Une quantité colossale d'énergie spirituelle s'assembla.
+L'énergie spirituelle qu'elles contenaient affluait à toute vitesse.
 
 Les deux cinquièmes restants perdirent également leur énergie progressivement, mais la quantité de sang utilisée était trop infime pour que le géant puisse prendre une forme physique; il resta dans un état illusoire.
 
 Le front de Wang Lin était trempé de sueur. L'usage de cette technique pesait lourdement sur son corps, et l'étoile violette sur son front scintillait frénétiquement. En même temps, Wang Lin lutta pour pointer sa main droite vers Teng Yi qui, sentant le danger, tentait de s'enfuir.
 
-Soudain, la figure hocha la tête et balaya d'un revers de main Teng Yi en pleine fuite. La main géante percuta l'homme. Sans même avoir le temps de réagir, Teng Yi disparut mystérieusement.
+Aussitôt, l'ombre illusoire hocha la tête et agita sa grande main. Sans un bruit, Teng Yi, qui s'était déjà enfui très loin, disparut de façon inexplicable, sans que son corps ait subi le moindre changement.
 
 Dans le sens divin de Wang Lin, la lueur représentant Teng Yi s'éteignit.
 
 Peu après, une goutte de sang doré apparut là où Teng Yi avait disparu. Wang Lin tendit la main et la goutte vola vers lui.
 
-Simultanément, l'immense figure s'inclina devant Wang Lin, s'avança vers le soleil couchant et disparut. Le symbole étrange formé par le sang doré s'évanouit également.
+Simultanément, l'immense ombre illusoire s'inclina légèrement devant Wang Lin, se retourna et marcha d'un pas vers l'horizon, puis s'effaça lentement. Le symbole formé par le sang doré se dissipa également peu à peu.
 
 À cet instant, tous les cultivateurs de l'Âme Naissante à Zhao remarquèrent la perturbation.
 
 Pu Nanzi, qui était en plein vol, s'arrêta net, son expression changeant radicalement. Il déploya précipitamment son sens divin pour vérifier.
 
-Au même moment, à la Tour Céleste au centre de Zhao, un homme gras ouvrit les yeux en pleine culture et fixa la direction de Wang Lin avec incrédulité.
+Au même moment, à la Tour Céleste au centre de Zhao, un homme d'âge moyen, légèrement corpulent, ouvrit les yeux en pleine méditation et fixa la direction de Wang Lin avec incrédulité.
 
-« Ceci... ceci est la Technique d'Ouverture du Ciel du Clan des Démons Géants! »
+« Ceci... ceci est la Technique Céleste du Clan des Démons Géants! »
 
-Quant à Wang Lin, il rangea soigneusement la goutte de sang doré dans sa sacoche et s'assit immédiatement en tailleur. Il sortit des fioles de jade et les vida dans sa bouche, activant rapidement la méthode du Dieu Ancien pour les digérer. La marionnette restante se tenait là, confuse, aux côtés de Wang Lin, prête à attaquer toute menace approchante.
+Quant à Wang Lin, il rangea soigneusement la goutte de sang doré dans sa sacoche et s'assit immédiatement en tailleur. Il sortit plusieurs fioles de pilules et les jeta une à une dans sa bouche, activant rapidement la Formule du Dieu Ancien pour les digérer. La marionnette restante se tenait là, hébétée, aux côtés de Wang Lin, prête à attaquer toute menace approchante.
 
 Un jour plus tard, Wang Lin ouvrit les yeux et prit une profonde inspiration. Sans toutes ces pilules, l'usage de la technique du Dieu Ancien lui aurait coûté au moins une quinzaine de jours de récupération.
 
 Il se leva et observa la marionnette qui avait subi quelques dommages. Selon les informations du jade, elle serait capable de s'auto-réparer; Wang Lin traça alors un sceau qu'il pressa sur le front de la marionnette, laquelle se mua en fumée pour retourner dans sa sacoche. Wang Lin regarda vers l'endroit où Teng Yi avait péri avec une expression complexe. La famille Teng était bien plus puissante qu'il ne l'avait imaginé. S'il ne parvenait pas à utiliser la technique du Dieu Ancien comme prévu, il devrait recourir à son ultime recours.
 
-La foudre de rétribution divine était une chose qu'il ne voulait absolument pas utiliser, car si il s'en servait maintenant, il y avait de fortes chances que sa vengeance soit interrompue prématurément.
+Le fil de rétribution divine était une chose qu'il ne voulait absolument pas utiliser, car s'il s'en servait, il y avait de fortes chances que son plan de vengeance soit finalement interrompu.
 
-Ce fragment de foudre de rétribution divine était ce que Wang Lin avait préparé pour faire face au messager à l'intérieur de la Tour Céleste.
+Ce fil de rétribution divine était ce que Wang Lin avait préparé pour affronter le messager supérieur de la Tour Céleste d'autrefois.

@@ -40,7 +40,7 @@ La seule chose qui importait réellement à ses yeux était Li Muwan.
 
 Le jour où l'Âme Naissante de Li Muwan s'éveillerait serait le jour où l'âme de Zhou Ru serait dévorée. Il n'y aurait aucune chance pour qu'elles survivent toutes les deux.
 
-S'il extrayait l'Âme Naissante de Li Muwan prématurément, il sauverait Zhou Ru, mais cela rendrait la survie de Li Muwan presque impossible.
+S'il extrayait l'Âme Naissante de Li Muwan prématurément, il sauverait Zhou Ru, mais Li Muwan, elle, ne pourrait échapper à la mort.
 
 Après tout, l'Âme Naissante de Li Muwan était plongée dans un profond sommeil et était encore en convalescence; si elle était extraite maintenant, elle s'évanouirait à jamais.
 
@@ -62,7 +62,7 @@ Choisir Li Muwan était une nécessité; toutefois, la question de savoir commen
 
 Zhou Ru était devenue de plus en plus silencieuse au fil des deux ans. Elle passait souvent de longues heures assise sur le dos de Petit Violet, avec Petit Blanc derrière eux, à contempler le ciel.
 
-Zhou Ru murmura un jour: « Petit Blanc, je sens la grande sœur en moi qui s'éveille lentement. Quand elle se réveillera enfin, je ne serai plus là... Après mon départ, tu devras être sage, Petit Blanc. Je demanderai à l'oncle de te ramener à la maison. Petit Blanc, quand je serai partie, penseras-tu à moi...? »
+Zhou Ru murmura un jour: « Petit Blanc, je sens la grande sœur en moi qui s'éveille lentement. Quand elle se réveillera enfin, je ne serai plus là... Après mon départ, tu devras être sage, Petit Blanc. Je demanderai à l'oncle de te ramener dans la forêt. Petit Blanc, quand je serai partie, penseras-tu à moi...? »
 
 Petit Blanc leva la tête pour regarder Zhou Ru. Ses yeux étaient empreints d'une émotion complexe.
 
@@ -82,7 +82,7 @@ Wang Lin était assis au sommet de la montagne. Bien qu'il semblât être en ple
 
 Il songea: « La volonté des cieux... Moi, Wang Lin, j'ai toujours résisté à la volonté des cieux, mais cette fois encore, je me suis laissé manipuler par elle... »
 
-L'appel de Zhou Ru monta d'en bas: « Oncle, oncle, pouvez-vous descendre? »
+L'appel de Zhou Ru monta d'en bas: « Oncle, oncle, peux-tu descendre? »
 
 Wang Lin baissa les yeux et regarda Zhou Ru avec une expression complexe. Il sauta de la montagne et atterrit à ses côtés.
 

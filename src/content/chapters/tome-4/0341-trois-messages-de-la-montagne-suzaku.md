@@ -10,7 +10,7 @@ Le messager était d'une rapidité fulgurante et arriva bientôt devant les six 
 
 Hormis le vieil homme Hu et l'homme au manteau noir, le cœur de chacun trembla et tous baissèrent la tête.
 
-« Il y a deux cultivateurs au stade de la Formation de l'Âme ici! » La lumière se dissipa, révélant un jeune homme à l'apparence élégante.
+« Il y a deux cultivateurs au stade de la Formation de l'Âme ici! » La lumière se dissipa, révélant un jeune homme vêtu de blanc, au visage d'une blancheur de jade et d'une beauté remarquable. Droit comme un pin, il se tenait là, d'une allure hors du commun. Sur sa robe blanche, quatre dragons d'or brodés dégageaient une aura légère et vivante.
 
 Bien que la femme accompagnant le vieil homme Hu gardât la tête baissée, ses joues s'empourprèrent légèrement. Cet homme était l'être le plus beau qu'elle eût jamais rencontré.
 
@@ -20,7 +20,7 @@ Le vieil homme comprit immédiatement que la culture de ce jeune homme se situai
 
 Le regard du jeune homme se posa sur la femme au voile blanc et il ordonna: « Retirez votre voile. »
 
-L'homme au manteau noir fit un pas en avant et déclara: « Seigneur messager, ma dame a reçu l'ordre du chef de la maison de ne point révéler son visage ainsi. J'espère que le seigneur messager saura comprendre. »
+L'homme au manteau noir fit un pas en avant et déclara: « Seigneur messager, ma dame est tenue, selon les préceptes de ses ancêtres, de ne point révéler son visage à la légère. J'espère que le seigneur messager saura comprendre. »
 
 Les yeux du jeune homme brillèrent d'un éclat singulier. Après une courte réflexion, il agita ses manches et s'envola.
 
@@ -86,13 +86,13 @@ Une série de craquements retentit au sein de cette main. Le front de Feng Yusha
 
 Une voix calme émana de la vallée: « La date! »
 
-Feng Yushan répondit précipitamment: « Dans trois mois, sur le mont Suzaku, au Temple du Paradis Occidental! »
+Feng Yushan répondit précipitamment: « Dans trois mois, sur l'Autel du Ciel de la Montagne de l'Ouest, au pays de Suzaku! »
 
 « Comment saviez-vous que j'étais ici? » Bien que la voix de Wang Lin fût sereine, elle laissait filtrer une pointe d'intention meurtrière.
 
 Feng Yushan répondit sans hésiter: « Je l'ignore réellement. Ce message provient du mont Suzaku. Si cela n'avait pas été eux, le maître de Papillon Rouge serait déjà venu vous chercher. Votre localisation leur a également été transmise par leurs soins. »
 
-À cet instant, l'expression du vieil homme Hu devint étrange. Il avait l'impression que cette voix lui était familière. Il se retourna vers Qiu Siping et vit que celle-ci était stupéfaite; il semblait qu'elle eût déjà deviné la même chose.
+À cet instant, l'expression du vieil homme Hu devint étrange. Il avait l'impression que cette voix lui était familière. Il se retourna vers Qiu Siping et vit que celui-ci était stupéfait; il semblait qu'il eût déjà deviné la même chose.
 
 Après un silence, la voix de Wang Lin résonna de nouveau dans la vallée: « Je n'ai pas le temps. »
 
@@ -106,7 +106,7 @@ La voix de Wang Lin s'éleva de la vallée: « Dites à Papillon Rouge que si el
 
 Feng Yushan réfléchit un instant, esquissa un sourire amer et joignit les mains. Il fit volte-face et disparut dans un rayon de lumière.
 
-« Vieux amis de la vallée, je vous en prie, entrez. » Sur ces mots, le domaine de Zhou Yi se dissipa.
+« Vieux amis hors de la vallée, je vous en prie, entrez. » Au moment où la voix de Wang Lin retentit, le sens divin de Zhou Yi qui couvrait un rayon de cinquante kilomètres se dissipa aussitôt.
 
 Le vieil homme Hu rit et pénétra dans la vallée. Derrière lui, la femme au voile blanc et son serviteur suivirent.
 
@@ -116,7 +116,7 @@ Au cœur de la vallée, le corps momifié s'anima à l'arrivée des six individu
 
 Wang Lin prit une profonde inspiration, se leva et esquissa un sourire. D'un geste de la main, il s'enveloppa d'une épaisse brume blanche. Une fois la brume dissipée, Wang Lin apparut devant eux, vêtu d'une robe blanche.
 
-Tout ce qui avait pu marquer son corps durant sa culture avait disparu.
+La poussière et la saleté déposées sur son corps par cette année de méditation avaient entièrement disparu.
 
 Wang Lin pointa le sol et, soudain, une table de pierre surgit de la terre, accompagnée de plusieurs chaises de pierre.
 
@@ -136,8 +136,8 @@ Wang Lin prit une tasse, en but une gorgée et sourit: « Les noms ne sont que d
 
 La femme au voile blanc ne quittait pas Wang Lin des yeux, le visage empreint d'une émotion complexe. Elle n'aurait jamais imaginé que le célèbre Ceng Niu fût cet homme.
 
-Wang Lin la regarda et dit: « Madame est toujours aussi belle qu'autrefois. Je présume que vous vous rendez au Cimetière des Immortels pour sauver votre père, puisque vous accompagnez l'honorable cultivateur Hu? »
+Wang Lin la regarda et dit: « Dix ans se sont écoulés depuis notre séparation, et Madame est toujours aussi belle qu'autrefois. Je présume que vous vous rendez au Cimetière des Immortels, puisque vous accompagnez l'honorable cultivateur Hu? »
 
 La femme voilée murmura: « En ce temps-là, cette humble personne ignorait l'identité de l'Aîné. J'espère que l'Aîné pardonnera ma rudesse passée. »
 
-Le nom de Ceng Niu résonnait avec force dans tout le mont Suzaku. Si le vieil homme Hu en avait été bouleversé, elle ne saurait l'être moins.
+Le nom de Ceng Niu résonnait avec force sur toute la Planète Suzaku. Si le vieil homme Hu en avait été bouleversé, elle ne saurait l'être moins.

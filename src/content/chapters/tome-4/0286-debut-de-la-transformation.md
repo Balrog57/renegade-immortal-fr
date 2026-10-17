@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 286 - Beginning Transformation
 slug: debut-de-la-transformation
 ---
-L'Âme Naissante flotta lentement vers le haut jusqu'à quitter complètement le corps de Wang Lin. Elle ouvrit également ses bras, maintenant la même posture que son corps physique.
+L'Âme Naissante flotta lentement vers le haut jusqu'à quitter complètement le corps de Wang Lin. Elle ouvrit également ses bras, maintenant la même posture que son corps physique, jusqu'aux sceaux de ses mains, tout à fait identiques.
 
 L'énergie spirituelle des cieux trouva soudainement une issue. Elle se rassembla rapidement autour de Wang Lin et forma un vortex gigantesque dans les montagnes arrières de la Secte Xuan Dao.
 
@@ -22,11 +22,11 @@ Lorsqu'un cultivateur atteint le stade de Formation de l'Âme, son Âme Naissant
 
 C'est une opportunité unique que chaque cultivateur reçoit lorsqu'il atteint ce niveau.
 
-L'apparition du trou noir fut la confirmation ultime pour tout cultivateur ayant étudié les récits anciens: il était certain que quelqu'un était en train d'atteindre le stade de Formation de l'Âme à Zhao.
+L'apparition du trou noir fut la confirmation ultime pour tous les cultivateurs de l'Âme Naissante de Zhao ayant étudié les récits anciens: il était certain que quelqu'un était en train d'atteindre le stade de Formation de l'Âme à Zhao.
 
 L'énergie spirituelle jaillit du trou noir tel un raz-de-marée et fut aspirée par le vortex. Elle subit alors une succession de transformations avant de pénétrer dans le corps de Wang Lin.
 
-L'Âme Naissante commença lentement à émettre une lumière arc-en-ciel. Cette lueur devint de plus en plus éclatante, jusqu'à recouvrir l'intégralité des montagnes arrières. Bientôt, tout la Secte Xuan Dao fut enveloppé par cette radiance multicolore.
+L'Âme Naissante commença lentement à émettre une lumière arc-en-ciel. Cette lueur devint de plus en plus éclatante, jusqu'à recouvrir l'intégralité des montagnes arrières. Bientôt, toute la Secte Xuan Dao fut enveloppée par cette radiance multicolore.
 
 À cet instant, les cultivateurs environnants furent saisis d'une excitation et d'une dévotion mêlées à une ferveur ardente.
 
@@ -70,15 +70,15 @@ L'intégralité de l'Âme Naissante passa de la transparence à une consistance 
 
 À ce stade, l'Âme Naissante ouvrit les yeux. Ils étaient dépourvus de toute émotion. Bien qu'ils ressemblassent à des yeux humains ordinaires, des vagues de froideur s'en dégageaient. Quiconque contemplait cette âme percevait une illusion: après avoir subi ces mutations, elle était devenue une existence mystérieuse surpassant les cultivateurs.
 
-Son regard semblait dirigé vers la terre, et quoi qu'elle observât, sa vue restait glaciale, comme si rien au monde ne pouvait susciter son intérêt.
+Son regard semblait surplomber la terre, et quoi qu'elle observât, sa vue restait glaciale, comme si rien au monde ne pouvait susciter son intérêt.
 
-L'aspect le plus crucial de la Formation de l'Âme est que l'Âme Naissante devient l'Âme Principale. Si l'Âme Principale subsiste, alors le corps sera éternel, à l'instar des lois célestes.
+L'aspect le plus crucial de la Formation de l'Âme est que l'Âme Naissante devient l'âme originelle. Si l'âme originelle subsiste, alors le corps sera éternel, à l'instar des lois célestes.
 
-À cet instant, grâce à l'immense énergie spirituelle reçue lors de son ascension, l'Âme Naissante de Wang Lin subit une mutation et se transforma en Âme Principale.
+À cet instant, grâce à l'immense énergie spirituelle reçue lors de son ascension, l'Âme Naissante de Wang Lin subit une mutation et se transforma en âme originelle.
 
-Si l'on compare une Âme Naissante à un enfant, l'Âme Principale est comparable à un adulte ayant acquis la capacité d'user du pouvoir des cieux. C'est ce qui rend les cultivateurs de la Formation de l'Âme si redoutables.
+Si l'on compare une Âme Naissante à un enfant, l'âme originelle est comparable à un adulte ayant acquis la capacité d'user du pouvoir des cieux. C'est ce qui rend les cultivateurs de la Formation de l'Âme si redoutables.
 
-Grâce à son Âme Principale, un cultivateur de la Formation de l'Âme peut insuffler la puissance de son domaine dans ses attaques. L'Âme Principale est forgée sur la base de l'Âme Naissante et transcendée par l'énergie spirituelle des cieux.
+Grâce à son âme originelle, un cultivateur de la Formation de l'Âme peut insuffler la puissance de son domaine dans ses attaques. L'âme originelle est forgée sur la base de l'Âme Naissante et transcendée par l'énergie spirituelle des cieux.
 
 C'est cette existence même qui rend les cultivateurs de la Formation de l'Âme bien plus puissants que ceux de l'Âme Naissante, tout comme les cultivateurs de l'Âme Naissante sont bien plus forts que ceux de la Formation du Noyau.
 
@@ -92,7 +92,7 @@ Selon les principes de la culture, nul ne peut recevoir d'aide extérieure pour 
 
 Cependant, atteindre ce stade est si ardu que des pilules capables de défier le ciel, telles que la Pilule d'Établissement des Fondations, furent créées. Aujourd'hui, après tant de temps, très peu de personnes parviennent à l'Établissement des Fondations sans l'aide d'une telle pilule.
 
-Bien que cela contrive les lois célestes, l'union de la culture a décrété que les cieux étaient morts et qu'il n'était donc plus nécessaire de les défier. Avec le passage des âges, les hommes en ont oublié l'importance.
+Bien que cela contrevienne aux lois célestes, l'union de la culture a décrété que les cieux étant morts, il était naturel de les défier. Avec le passage des âges, les hommes en ont oublié l'importance.
 
 Une fois l'Établissement des Fondations atteint, le corps devient plus apte à absorber l'énergie spirituelle et peut en contenir davantage. Pourtant, un nouveau goulot d'étranglement finit toujours par apparaître.
 
@@ -114,16 +114,16 @@ Le noyau se brise et l'Âme Naissante naît.
 
 On parle d'Âme "Naissante" parce que le mot yuan, qui signifie l'origine, est le premier caractère du Dao, aussi appelé xuan, source de toutes les voies.
 
-La rupture du noyau et la naissance de l'Âme Naissante constituent une transformation mystérieuse, semblable au premier souffle d'un nouveau-né dans le monde mortel.
+La rupture du noyau et la naissance de l'Âme Naissante constituent une transformation mystérieuse, calquée sur la grossesse et l'enfantement chez les mortels, selon l'ordre naturel des cieux.
 
-Le noyau est comme une mère enceinte; lorsqu'il se brise, il donne vie à un enfant.
+Le noyau est comme le réceptacle de dix mois de grossesse; une fois transformé, il donne naissance à une vie, que l'on appelle un nourrisson.
 
 C'est ainsi que l'expression Âme Naissante a été consacrée.
 
-La destruction du noyau et la naissance de l'Âme Naissante sont le symbole même de la renaissance.
+La destruction du noyau et la naissance de l'Âme Naissante sont le symbole même de la renaissance. Il en va de même pour la culture daoïste: le noyau se brise et un nourrisson du Dao naît, dans la quête de la vie perpétuelle et de la renaissance par la réincarnation.
 
 La quantité d'énergie spirituelle qu'une Âme Naissante peut absorber n'a plus rien à voir avec celle d'un simple noyau.
 
-Une fois l'Âme Naissante acquise, on possède la capacité d'échapper à la mort, de combattre les cieux et de marcher sur la voie qui défie le destin.
+Une fois l'Âme Naissante acquise, on possède la possibilité d'échapper au cycle des réincarnations, de combattre les cieux et de marcher sur la voie qui défie les cieux.
 
 Une fois que l'Âme Naissante atteint un certain stade, vient le temps de la Formation de l'Âme. Le talent requis pour ce niveau n'est pas si élevé, car ce que la Formation de l'Âme exige, c'est la compréhension profonde des cieux.

@@ -38,7 +38,7 @@ Voyant que Wang Lin l'ignorait, le vieil homme s'en trouva profondément irrité
 
 « C'est donc lui, un immortel? » Sous ce regard, Wang Lin sentit un frisson le parcourir. Son cœur s'emballa et son visage pâlit tandis qu'il fixait l'immortel.
 
-Le jeune homme à la peau sombre, voyant l'immortel, plaça ses mains le long de son pantalon dans une attitude respectueuse, ses yeux brillant d'un fanatisme manifeste. Seul Wang Zhuo jeta un regard désinvolte aux autres en reniflant avec mépris.
+Le jeune homme à la peau sombre, voyant l'immortel, plaça ses mains le long de son pantalon dans une attitude respectueuse, ses yeux brillant d'un fanatisme manifeste. Seul Wang Zhuo jeta un regard désinvolte à l'immortel en reniflant par le nez.
 
 Le père de Wang Zhuo s'avança précipitamment et dit respectueusement: « Immortel, ces trois-là sont les recommandations de la famille Wang. »
 
@@ -46,9 +46,9 @@ Le jeune homme hocha la tête puis demanda avec impatience: « Qui est Wang Zhuo
 
 Un éclair de joie traversa le visage du vieil homme, qui tira rapidement Wang Zhuo vers lui: « Immortel, voici mon fils, Wang Zhuo. »
 
-L'immortel observa Wang Zhuo intensément. Puis son visage s'illumina et il acquiesça: « Wang Zhuo est effectivement talentueux; il n'est pas étonnant que l'Oncle-Maître ait eu un penchant pour lui. »
+L'immortel observa Wang Zhuo intensément. Puis son visage s'illumina et il acquiesça: « Junior frère Wang a effectivement fort belle allure; il n'est pas étonnant que l'Oncle-Maître Dao Xu ait jeté son dévolu sur lui. »
 
-Wang Zhuo regarda fièrement Wang Lin et le jeune homme à l'air intelligent, puis déclara avec arrogance: « Bien sûr. Mes racines spirituelles pour la culture sont exceptionnelles, et l'Oncle-Maître n'a cessé de me louer. »
+Wang Zhuo regarda fièrement Wang Lin et le jeune homme à l'air intelligent, puis déclara avec arrogance: « Bien sûr. Mes racines spirituelles pour la culture sont exceptionnelles, et l'immortel Dao Xu n'a cessé de me louer. »
 
 Le jeune homme fronça les sourcils, mais cela ne dura qu'un instant. Il esquissa un léger sourire en direction de Wang Zhuo, agita ses manches, et emporta les trois jeunes sur l'arc-en-ciel avant de disparaître.
 
@@ -58,25 +58,25 @@ Wang Lin sentit son corps s'alléger, tandis que le vent fouettant son visage lu
 
 Au bout de quelques instants, la force du vent lui fit pleurer les yeux, qui devinrent rouges.
 
-« À moins que vous ne vouliez devenir aveugles, fermez les yeux », ordonna froidement le jeune homme. Le cœur de Wang Lin se serra et il ferma précipitamment les paupières, craignant de continuer à regarder.
+« À moins que vous ne vouliez devenir aveugles, fermez les yeux », ordonna froidement le jeune homme. Le cœur de Wang Lin se serra et il ferma précipitamment les paupières, n'osant plus regarder; son aspiration à la culture de l'immortalité n'en devint que plus forte.
 
 Après un certain temps, Wang Lin sentit que le jeune homme s'essoufflait et que sa vitesse diminuait. Puis, en un éclair, il entama une descente rapide. Juste avant l'impact, l'immortel relâcha son bras, laissant les trois jeunes tomber au sol.
 
-Heureusement, la chute ne fut pas brutale et ils se relevèrent rapidement. Devant Wang Lin s'étendait un paysage paradisiaque, composé de montagnes, de fleurs et d'une rivière; une scène véritablement idyllique.
+Heureusement, la chute ne fut pas brutale et ils se relevèrent rapidement. Devant Wang Lin s'étendait un lieu féerique, tel un paradis hors du monde, aux monts verdoyants et aux eaux claires, où chantaient les oiseaux et embaumaient les fleurs.
 
 Tout droit devant lui se dressait une montagne imposante, dont le sommet, drapé de nuages, dissimulait sa silhouette véritable. On pouvait entendre les échos des cris de bêtes sauvages. Un sentier de marches sinueuses serpentait le long de la paroi, tel un tableau vivant, évoquant l'atmosphère d'un autre monde.
 
 Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont argenté en forme de croissant de lune reliait ce sommet à une autre crête.
 
-Avec de telles beautés naturelles, cet endroit était véritablement digne d'abriter la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle était la puissance dominante du royaume et comptait plusieurs vieux monstres au stade de l'Âme Naissante. Cependant, avec le passage du temps, elle s'était rétrécie pour atteindre sa taille actuelle, ne parvenant plus qu'à maintenir une présence fragile dans le monde de la culture.
+Une telle grotte-paradis bénie était naturellement l'emplacement de la porte de montagne de la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle avait un temps dominé tout le monde de la culture du pays de Zhao, avec plusieurs vieux monstres au stade de l'Âme Naissante, et sa gloire était sans égale. Hélas, avec le passage du temps et après plusieurs bouleversements, la grande secte d'autrefois s'était rétrécie au point de n'avoir plus qu'une assise précaire dans le monde de la culture.
 
 Pourtant, pour les mortels vivant à proximité de la Secte Heng Yue, elle demeurait une entité légendaire et insaisissable.
 
-« Petit frère Zhang, sont-ce là les trois candidats recommandés par la famille Wang? » Un homme d'âge moyen, vêtu de noir et dégageant une aura immortelle, descendit en flottant du sommet de la montagne.
+« Junior frère Zhang, sont-ce là les trois jeunes recommandés par la famille Wang? » Un homme d'âge moyen, vêtu de noir et dégageant une aura immortelle, descendit en flottant du sommet de la montagne.
 
-Le jeune homme afficha un visage empreint de respect: « Troisième frère, ce sont bien les trois jeunes recommandés par la famille Wang. »
+Le jeune homme afficha un visage empreint de respect: « Troisième Senior frère, ce sont bien les trois jeunes recommandés par la famille Wang. »
 
-Le regard de l'homme d'âge moyen balaya le groupe, s'attardant plusieurs fois sur Wang Zhuo. Souriant, il dit: « Je sais que tu es sur le point de réaliser une percée. Je m'occuperai des tests, va te consacrer à ta culture. »
+Le regard de l'homme d'âge moyen balaya le groupe, s'attardant plusieurs fois sur Wang Zhuo. Souriant, il dit: « Le Patriarche sait que ta culture est à un moment crucial; il m'a chargé de conduire ce test. Va donc te consacrer à ta culture. »
 
 Le jeune homme acquiesça, puis son corps s'élança vers la montagne et disparut sans laisser de trace en un clin d'œil.
 

@@ -14,7 +14,7 @@ Cependant, il semblait qu'une seule ne suffirait pas; il en aurait besoin de plu
 
 Toutefois, en raison de la personnalité de Wang Lin, même s'il tenait absolument à l'obtenir, il ne l'achèterait pas lui-même si son prix devenait trop exorbitant.
 
-Wang Lin réfléchit un instant. Il frappa son sac de rangement et une sculpture en bois apparut dans sa main. C'était l'une des statues défectueuses qu'il avait fabriquées, contenant le domaine du temps. Elle portait les traces du domaine d'un cultivateur de la Formation de l'Âme, mais elle contenait la puissance d'un cultivateur au sommet du stade avancé de l'Âme Naissante.
+Wang Lin réfléchit un instant. Il frappa son sac de rangement et une sculpture en bois apparut dans sa main. C'était l'une des statues défectueuses qu'il avait fabriquées, contenant le domaine du temps. Elle portait les traces du domaine d'un cultivateur de la Formation de l'Âme, mais elle contenait la puissance d'un cultivateur au stade avancé de l'Âme Naissante.
 
 Elle contenait également plusieurs veines sanguines; cette sculpture en bois était donc semblable à une marionnette, sans limite quant au nombre de fois qu'elle pouvait être utilisée. Un tel trésor serait extrêmement précieux pour les cultivateurs de la Mer des Démons.
 
@@ -92,7 +92,7 @@ Bang!
 
 Le rayon d'énergie spirituelle frappa le parasol, provoquant de nombreuses fissures et faisant faiblir sa lueur. Le vieil homme fut projeté en arrière comme frappé par une force brutale. Il fut contraint de reculer de plusieurs pas, le visage empourpré. Il lui fallut un long moment pour retrouver son calme.
 
-Wang Lin n'avait aucune intention de le tuer. Son regard se porta sur la jeune fille. Celle-ci manifesta une pointe de terreur dans ses yeux. Elle sortit une boîte scellée et la tendit à Wang Lin.
+Wang Lin n'avait aucune intention de le tuer. Son regard se porta sur la jeune fille. Celle-ci manifesta une pointe de crainte dans ses yeux. Elle sortit une boîte scellée et la tendit à Wang Lin.
 
 Ce dernier saisit la boîte, l'ouvrit, l'examina avec son Sens Divin pour en faire une copie, puis renvoya le jade à la jeune fille en demandant: « Parlez. Pourquoi m'avez-vous attiré ici? »
 

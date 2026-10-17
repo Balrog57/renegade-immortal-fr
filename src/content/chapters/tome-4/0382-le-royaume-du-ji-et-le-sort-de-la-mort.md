@@ -22,7 +22,7 @@ Cependant, du point de vue de Wang Lin, bien que le pays Suzaku soit le dirigean
 
 « Je crains que Suzaku n'ait atteint sa fin... » Wang Lin leva la tête et regarda au loin, vers la direction où se trouvait le pays Suzaku.
 
-Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre plus d'une centaine d'arènes. Sur chaque arène, des dizaines de combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but: rejoindre la secte intérieure.
+Deux jours plus tard, la compétition de la secte extérieure commença. Les dizaines de milliers de disciples étaient répartis entre plus d'une centaine d'arènes. Sur chaque arène, plusieurs combats se déroulaient par jour. Parmi ces disciples de la secte extérieure se trouvaient des cultivateurs marginaux et des membres de familles de cultivateurs. Tous n'avaient qu'un seul but: rejoindre la secte intérieure.
 
 Il n'y avait qu'une seule règle: gagner. Ils se souciaient peu de la vie ou de la mort des autres disciples. Si vous en aviez la capacité, vous pouviez tous les tuer sans que cela ne les dérange.
 
@@ -50,9 +50,9 @@ Durant ces sept jours, quatre personnes parmi les disciples de la secte extérie
 
 Parmi elles se trouvait un vieil homme aux cheveux gris au stade avancé de la Formation du Noyau. Tous ceux qu'il croisait étaient tués par la même technique: il lui suffisait de pointer du doigt son adversaire, de prononcer le mot « meurs », et l'ennemi s'effondrait, mort.
 
-En voyant cette technique, Wang Lin pensa immédiatement au Royaume du Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il réalisa que ce sort différait du Royaume du Ji.
+En voyant cette technique, Wang Lin pensa immédiatement au Royaume Ji et fut frappé de stupeur. Cependant, en y regardant de plus près, il réalisa que ce sort différait du Royaume Ji.
 
-« Un sort de la mort? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume du Ji avait été confondu avec un tel sort; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de culture, c'était la première fois qu'il en voyait un.
+« Un sort de la mort? » Après réflexion, Wang Lin en devina le nom. Dans la Mer des Démons, son propre Royaume Ji avait été confondu avec un tel sort; c'est ainsi qu'il l'avait appris. Ce sort de la mort était extrêmement difficile à cultiver. En cinq cents ans de culture, c'était la première fois qu'il en voyait un.
 
 La deuxième personne était un jeune homme chétif et mince. Bien qu'il ne fût qu'au stade initial de la Formation du Noyau, il se comportait comme une bête sauvage. Il était capable de détecter le flux d'énergie spirituelle avant même que l'adversaire n'utilise une technique, lui permettant d'anticiper ses mouvements. Contre un adversaire plus fort, cela ne servirait pas à grand-chose, mais contre des gens de même niveau, c'était un avantage céleste. Wang Lin ne put s'empêcher d'apprécier ce talent; il eut même l'envie de le prendre comme disciple, avant de chasser rapidement cette idée.
 
@@ -80,11 +80,11 @@ L'affrontement entre le vieil homme maîtrisant le sort de la mort et le jeune h
 
 À ce stade, il ne restait plus que deux prétendants pour cette compétition de la secte extérieure: Wang Lin et le vieil homme nommé Sima. Le combat entre les deux débuta le lendemain.
 
-Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume du Ji.
+Sima se tenait sur l'arène, le regard sombre. Il avait cultivé ce sort de la mort pendant si longtemps pour ce jour précis. Une fois admis dans la secte intérieure, il aurait une chance de former son Âme Naissante. De plus, le drapeau de l'âme de la Secte de l'Affinement de l'Âme s'accorderait parfaitement avec son sortilège. Selon son maître, s'il cultivait les deux simultanément, sa puissance serait proche de celle du légendaire et disparu Royaume Ji.
 
 En pensant à son maître, ses yeux se remplirent d'un fanatisme dévorant. Son maître était capable de tuer n'importe quel cultivateur de l'Âme Naissante d'un seul mot: « meurs », et seuls quelques rares cultivateurs de la Formation de l'Âme pourraient espérer s'en échapper. Dans son esprit, son maître possédait la capacité de défier les vieux monstres de la Transformation de l'Âme.
 
-« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la culture, lorsque les anciens tentaient d'imiter le Royaume du Ji. La rumeur prétend que porter ce sort à son apogée permet d'acquérir un fragment de la puissance du Royaume du Ji. »
+« Le sort de la mort... À moins d'avoir un niveau de culture bien supérieur au vôtre, nul ne peut y résister. On raconte que ce sort provient du monde antique de la culture, lorsque les anciens tentaient d'imiter le Royaume Ji. La rumeur prétend que porter ce sort à son apogée permet d'acquérir un fragment de la puissance du Royaume Ji. »
 
 Les paroles de son maître résonnaient encore dans sa tête alors que Sima fixait son ultime adversaire. Il ne considérait pas le jeune homme nommé Qing Mu comme une menace. Une intention meurtrière traversa son regard et il tonna: « Meurs! »
 

@@ -12,25 +12,25 @@ La mère de Da Niu était morte de chagrin il y a sept ans. À présent, Da Niu 
 
 Cette scène était presque identique à celle de l'arrivée de Wang Lin, seule la génération avait changé.
 
-Mais cette routine ne dura pas. Il y a trois ans, le fils de Da Niu, nommé Xiao Niu, attira l'attention d'un cultivateur errant de la Secte des Nuages Blancs qui l'emmena comme disciple. Cette année-là, le voyageur lui donna également un nom: Wen Zhuo.
+Mais cette routine ne dura pas. Il y a trois ans, le fils de Da Niu, nommé Xiao Niu, attira l'attention d'un cultivateur errant de la Secte Nuage Blanc qui l'emmena comme disciple. Cette année-là, le voyageur lui donna également un nom: Wen Zhuo.
 
 Da Niu était extrêmement fier que son propre fils allait devenir un immortel. Il l'annonçait à quiconque croisait son chemin, et bientôt, tout le monde dans la rue était au courant.
 
-Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte des Nuages Blancs. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la culture et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
+Wang Lin n'était nullement surpris par le départ de Wen Zhuo auprès du cultivateur de la Secte Nuage Blanc. Il avait remarqué dès le plus jeune âge que Xiao Niu possédait un corps propice à la culture et que son talent surpassait déjà plusieurs fois celui de Wang Lin lorsqu'il avait commencé.
 
 Si Wang Lin l'avait aidé, c'était parce que la seule connexion qu'il entretenait dans toute la capitale était avec la famille de Da Niu. Par conséquent, il avait offert à Xiao Niu de nombreuses pilules pour transformer son corps, et le résultat était là.
 
-Le talent de Xiao Niu était devenu si exceptionnel qu'il n'était pas étonnant qu'il ait capté l'attention du cultivateur de la Secte des Nuages Blancs. Bien que ce dernier ne fût qu'au stade de la Formation du Noyau, Wang Lin avait observé qu'il était un homme bienveillant, très différent de son propre maître, Sun Dazhu.
+Le talent de Xiao Niu était devenu si exceptionnel qu'il n'était pas étonnant qu'il ait capté l'attention du cultivateur de la Secte Nuage Blanc. Bien que ce dernier ne fût qu'au stade de la Formation du Noyau, Wang Lin avait observé qu'il était un homme bienveillant, très différent de son propre maître, Sun Dazhu.
 
 Ainsi, Wang Lin n'intervint pas et laissa les choses suivre leur cours naturel. Il avait déjà fait tout ce qu'il pouvait. Quant à ce que deviendrait Wen Zhuo dans le futur, cela ne le concernait plus.
 
-Après le départ de Xiao Niu, Da Niu embaucha quelques ouvriers, brisant ainsi la règle de son père. Selon ce dernier, ce qu'ils vendaient était leur savoir-faire; si quelqu'un d'autre apprenait ce métier, ne serait-ce pas comme se donner un coup de pied dans le pied?
+Après le départ de Xiao Niu, Da Niu embaucha quelques ouvriers, brisant ainsi la règle de son père. Selon ce dernier, ce qu'ils vendaient était leur savoir-faire et il ne fallait jamais engager personne d'autre; si quelqu'un apprenait ce métier, ne serait-ce pas comme soulever une pierre pour se l'écraser sur le pied?
 
 Mais Da Niu n'avait semble-t-il pas écouté les conseils paternels. Une fois ses employés recrutés, il cessa de s'occuper de l'atelier pour reprendre sa vieille habitude: regarder Wang Lin sculpter chaque jour.
 
 La présence constante de Da Niu pour servir Wang Lin raviva en lui de vieux souvenirs.
 
-Peut-être parce qu'il avait vu Da Niu grandir, mais depuis la mort de sa mère, celui-ci venait chaque année au domicile de Wang Lin avec sa femme et de la nourriture. Da Niu semblait désormais considérer Wang Lin comme l'un de ses propres parents.
+Peut-être parce qu'il avait vu Da Niu grandir, mais depuis la mort de sa mère, celui-ci venait chaque Nouvel An au domicile de Wang Lin avec sa femme et le repas de réveillon. Da Niu semblait désormais considérer Wang Lin comme son propre père.
 
 La femme de Da Niu, la fille du marchand de l'atelier de couture, était une femme très intelligente. Voyant l'affection que son mari portait à Wang Lin, elle commença également à le traiter comme un aîné de sa propre famille.
 
@@ -44,11 +44,11 @@ Au fil des ans, Wang Lin commença à éprouver une véritable admiration pour l
 
 Peut-être était-ce parce qu'il avait tant vécu qu'il avait réalisé qu'il existait des êtres capables de le tuer d'un simple geste du doigt sans que personne ne s'en soucie. L'une des raisons pour lesquelles il témoignait un tel respect à Wang Lin était de vouloir l'attirer à ses côtés afin de s'assurer une vie paisible.
 
-Cet hiver-là, la neige tomba avec une intensité rare. En plus de trente ans de présence ici, Wang Lin n'avait jamais vu une telle tempête. La neige recouvrait toute la capitale; sur les toits et les arbres, elle s'accumulait jusqu'à atteindre la hauteur d'un enfant de quatre ou cinq ans.
+Cet hiver-là, la neige tomba avec une intensité rare. En plus de trente ans de présence ici, Wang Lin n'avait jamais vu une telle tempête. La neige recouvrait toute la capitale; sur les toits et les arbres, elle s'accumulait jusqu'à atteindre la hauteur d'un enfant de trois à cinq ans.
 
-De nombreux toits s'effondrèrent sous le poids de cette masse blanche. Les plus fragiles succombèrent au froid. Presque chaque matin, on trouvait un ou deux corps gelés dans les coins des rues.
+De nombreux toits s'effondrèrent sous le poids de cette masse blanche. Les mendiants et autres miséreux succombèrent au froid. Presque chaque matin, on trouvait un ou deux corps gelés dans les coins des rues.
 
-Cette neige était singulière. Certains habitants installés là depuis des générations se rassemblaient dans les restaurants pour s'échanger que l'on n'avait pas vu une telle chute depuis des centaines d'années.
+Cette neige était singulière. Certains habitants installés là depuis des générations se rassemblaient dans les auberges et les maisons de thé pour dire que l'on n'avait pas vu une telle chute depuis des centaines d'années.
 
 La neige continuait de tomber, effaçant lentement les traces de pas. Bientôt, chaque empreinte serait totalement dissimulée. Cela força de nombreuses boutiques de la capitale à fermer. La rue où résidait Wang Lin étant relativement isolée, après une seule journée de tempête, il était impossible de voir qui que ce soit dehors. Tout le monde restait caché chez soi, près du poêle, attendant que l'hiver passe.
 
@@ -58,13 +58,13 @@ C'était cette intention meurtrière qui provoquait la chute si rapide des temp�
 
 Cette neige ne provenait pas des nuages; elle apparaissait de nulle part, surgissant du vide céleste. Comment d'autres nuages auraient-ils pu être assez vastes pour couvrir toute l'Alliance des Quatre Sectes?
 
-Le troisième jour de cette étrange tempête, les neuf piliers de la capitale furent fendus en deux par des éclairs tombés du ciel. Les cultivateurs à l'intérieur n'eurent même pas le temps de s'échapper avant d'être foudroyés. Au même instant, chaque pilier similaire dans toutes les autres cités de l'Alliance fut détruit par la foudre céleste.
+Le troisième jour de cette étrange tempête, les neuf piliers de bois noir de la capitale, où des cultivateurs méditaient en permanence, furent fendus en deux par des éclairs tombés du ciel. Les cultivateurs à l'intérieur n'eurent même pas le temps de s'échapper avant d'être foudroyés. Au même instant, chaque pilier de bois noir similaire dans toutes les autres cités de l'Alliance fut détruit par la foudre céleste.
 
-Peu après, en plus de la neige, d'innombrables fragments de jade jaillirent des quatre points cardinaux du pays. Bien que ces éclats fussent extrêmement rapides, ils tombaient entre les mains de tout cultivateur au stade de l'Établissement des Fondations qu'ils croisaient.
+Peu après, en plus de la neige, d'innombrables fragments de jade jaillirent des quatre points cardinaux du pays. Bien que ces éclats fussent extrêmement rapides, ils tombaient entre les mains de tout cultivateur au stade de l'Établissement des Fondations ou au-delà qu'ils croisaient.
 
 L'un de ces fragments vola vers Wang Lin. D'un revers de main, il le rattrapa, même si l'objet avait déjà dépassé sa position.
 
-Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte des Nuages Blancs, la Secte du Bois Vert et la Secte de l'Âme Noire — appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
+Wang Lin tint le jade et, en y projetant son esprit, il entendit une voix sinistre: « Tous les cultivateurs de l'Alliance des Quatre Sectes, préparez-vous à la guerre! Les quatre sectes — la Secte de l'Encre d'Eau, la Secte Nuage Blanc, la Secte du Bois Vert et la Secte de l'Âme Noire — ouvrent grand leurs portes et appellent tous les cultivateurs errants, démoniaques et ascètes à se rassembler. Que ceux qui s'absentent en assument les conséquences! »
 
 Wang Lin réfléchit un instant avant de broyer le jade dans sa paume. Il disparut de sa boutique et, lorsqu'il réapparut, il planait déjà dans le ciel au-dessus de la capitale.
 

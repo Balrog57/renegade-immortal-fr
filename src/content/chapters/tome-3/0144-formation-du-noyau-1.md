@@ -10,9 +10,9 @@ Trois noyaux froids siégeaient dans sa tête, sa poitrine et son dantian. Il de
 
 L'étape suivante consisterait à faire descendre ce noyau fusionné pour qu'il s'unit à celui du dantian. Dès l'instant où les trois noyaux froids fusionneraient, une chance existait de voir naître un véritable noyau.
 
-Wang Lin restait assis en silence dans cette petite pièce de pierre saturée d'énergie Yin. Son regard était glacial, son sens divin imprégnait son corps et toute sa concentration était braquée sur le noyau froid situé dans sa tête.
+Wang Lin restait assis en silence dans cette petite pièce de pierre saturée d'énergie Yin. Les yeux clos, son sens divin rentré dans son corps, tout son esprit était plongé dans le Point Ancestral de son corps.
 
-Sa priorité absolue était de faire descendre ce noyau.
+La première chose à faire était de briser le Point Ancestral pour faire descendre le noyau froid.
 
 Wang Lin savait que fusionner ces trois noyaux serait ardu, mais après l'avoir expérimenté, il sentait que le mot « difficile » était un euphémisme. C’était une tâche d'une complexité inimaginable.
 
@@ -22,9 +22,9 @@ Pour cultiver la Méthode de l'Ascension des Enfers, les exigences consistaient 
 
 Après de multiples tentatives infructueuses, Wang Lin changea de tactique: il décida d'user lentement la barrière par érosion. Au fil du temps, la force qui le bloquait s'affaiblit considérablement.
 
-Toutefois, la douleur engendrée par cette lente érosion dépassait l'entendement. À chaque tentative, son corps tremblait et son front se couvrait de sueur; ses vêtements étaient restés secs depuis qu'il avait entamé ce processus.
+Toutefois, la douleur engendrée par cette lente érosion dépassait l'entendement. À chaque tentative, son corps tremblait et son front se couvrait de sueur; ses vêtements n'avaient jamais séché depuis qu'il s'était assis.
 
-Transformer trois noyaux en un seul exigeait une détermination sans faille. Mais la détermination n'était pas un trait qui manquait à Wang Lin. Même au sein de la Secte Heng Yue, sa volonté avait laissé deux traînées de sang sur le sentier menant au sommet de la montagne.
+Transformer trois noyaux en un seul exigeait une détermination sans faille. Mais la détermination n'était pas un trait qui manquait à Wang Lin. Lors de l'épreuve d'entrée de la Secte Heng Yue, sa volonté avait déjà frappé les esprits et laissé deux traînées de sang sur les marches de la montagne Heng Yue.
 
 S'il n'avait pas été freiné par son talent médiocre, il aurait sans nul doute été au centre de toutes les attentions et de tous les soins de la Secte Heng Yue. Mais tout cela était désormais vain avec la destruction de la secte.
 
@@ -36,13 +36,13 @@ Wang Lin prit une profonde inspiration et entreprit d'user la barrière devant l
 
 Trois mois supplémentaires s'écoulèrent avant que la barrière ne cède enfin. Au même instant, les deux noyaux froids entrèrent en collision. Wang Lin entendit un fracas alors qu'une énergie terrifiante déferlait dans tout son être.
 
-Son visage pâlit instantanément. Après un léger mouvement de sa gorge, il cracha une bouffée de sang. Dès qu'il toucha l'air, le sang se figea et frappa le mur, le recouvrant de cristaux de glace couleur pourpre.
+Son visage pâlit instantanément. Après un léger mouvement de sa gorge, il cracha une brume de sang. Dès qu'elle toucha l'air, le sang se changea en givre et se suspendit aux parois de la grotte, formant des plaques de cristaux de glace rouges.
 
 Après avoir recraché ce sang, il sortit rapidement huit pierres spirituelles de qualité inférieure qu'il réduisit en poussière. Cette poudre circula promptement autour de lui pour former un symbole étrange.
 
 Le symbole brilla faiblement avant de disparaître. Une épée volante noire apparut alors, fit le tour de Wang Lin et s'immobilisa devant lui. La silhouette du démon émergea lentement de la lame.
 
-Le démon fixa d'abord Wang Lin, hésitant sur la conduite à tenir. À cet instant précis, le sens divin implanté en lui s'activa; il perdit toute intention hostile envers Wang Lin et commença à le monter la garde avec docilité.
+Le démon fixa d'abord Wang Lin, hésitant sur la conduite à tenir. À cet instant précis, le sens divin implanté en lui s'activa; il perdit toute intention hostile envers Wang Lin et commença docilement à monter la garde autour de lui.
 
 Une fois cela accompli, le corps de Wang Lin s'effondra au sol. Il n'avait eu que le temps de placer une formation avant de perdre connaissance.
 
@@ -72,11 +72,11 @@ Wang Lin réfléchit intensément sans trouver de réponse. C'était un point qu
 
 « Comment puis-je rendre mon corps capable de supporter cette énergie Yin? » marmonna-t-il longuement avant de soupirer, son regard se posant sur le démon tapi dans le coin.
 
-Depuis le réveil de Wang Lin, le démon ne cessait de l'observer du coin de l'œil. Voyant que Wang Lin le regardait, il tressaillit et s'empressa de dire: « Je vous ai gardé la garde tout ce temps, j'étais toujours vigilant! »
+Depuis le réveil de Wang Lin, le démon ne cessait de l'observer du coin de l'œil. Voyant que Wang Lin le regardait, il tressaillit et s'empressa de dire: « J'ai monté la garde tout ce temps, sans le moindre relâchement! »
 
 Wang Lin saisit le démon, le projeta dans l'épée volante et quitta la pièce de pierre.
 
-En passant devant la chambre de Li Muwan, il la vit affalée sur une table, plongée dans un sommeil profond. Ses cheveux soyeux étaient attachés en queue de cheval, une mèche encadrant son visage tandis que le reste reposait derrière son oreille. Son visage était légèrement rubicond, doté d'un éclat semblable à celui de la lumière du soleil se reflétant sur la neige.
+En passant devant la chambre de Li Muwan, il la vit affalée sur une table, plongée dans un sommeil profond. Ses cheveux soyeux étaient relevés au hasard, quelques mèches retombant autour de ses oreilles. Son joli visage, légèrement rosé et sans fard, avait l'éclat de la lueur de l'aurore sur la neige.
 
 Sa robe violette lui donnait l'allure d'une peinture vivante qui ferait battre le cœur de n'importe quel homme. À cet instant, de fines volutes de fumée blanche s'échappaient du four à pilules à ses côtés, lui donnant l'apparence d'une fée émergeant d'un tableau.
 
@@ -84,7 +84,7 @@ Les décorations que Li Muwan avait ajoutées à sa chambre, comme les lianes ve
 
 Un léger parfum d'herbes émanait de la pièce. En le respirant, Wang Lin sentit son esprit s'éclaircir instantanément.
 
-Il observa la scène un long moment avant de détourner le regard vers l'autre chambre: la sienne. La moitié de la pièce était encombrée d'herbes et l'autre de divers matériaux, parmi lesquels se trouvait le crâne de dragon.
+Il observa la scène un long moment avant de détourner le regard vers la chambre suivante. La moitié de la pièce était plantée d'herbes et l'autre occupée par divers matériaux, parmi lesquels se trouvait une moitié du crâne de dragon.
 
 Le cadavre du dragon était trop imposant, particulièrement ses ossements. Il serait trop dommage de tout gaspiller pour la formation; Wang Lin était donc sorti une fois pour demander à Li Muwan d'en conserver une partie.
 
@@ -92,19 +92,19 @@ Après avoir donné cet ordre, il avait commencé la fusion des trois noyaux fro
 
 Alors qu'il observait, son cœur tressaillit et il se retourna. Li Muwan venait de se lever en bâillant et ouvrait la porte. Surprise de le voir, sa somnolence disparut d'un coup.
 
-Ces derniers jours, l'état d'esprit de Li Muwan avait évolué. Au début, elle restait sur ses gardes, craignant une attaque soudaine de Wang Lin, car les pratiquants du Sortilège de la Mort récoltaient souvent l'énergie Yin des femmes.
+Ces derniers jours, l'état d'esprit de Li Muwan avait évolué. Au début, elle restait sur ses gardes, craignant une attaque soudaine de Wang Lin, car les pratiquants du sort de la mort récoltaient souvent l'énergie Yin des femmes.
 
 Mais elle réalisa vite que ce Wang Lin passait presque tout son temps en entraînement à huis clos. Elle qui pensait autrefois que son frère était un cultivateur assidu, elle trouvait désormais que Wang Lin l'était véritablement.
 
-À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement? Dans ses souvenirs, la personne la plus jeune à avoir atteint l'Établissement des Fondations avait eu 17 ans, mais il lui avait fallu 30 années supplémentaires pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Huo Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Huo Fen d'un pays de culture de rang 2 à un rang 3.
+À ses yeux, Wang Lin était déjà au sommet du stade de l'Établissement des Fondations et n'était qu'à un pas de la Formation du Noyau. Pourtant, comment atteindre ce stade si facilement? Dans ses souvenirs, le cultivateur de Huo Fen ayant formé son noyau le plus vite en plusieurs milliers d'années avait atteint le sommet de l'Établissement des Fondations à 17 ans, mais il lui avait fallu 30 années pour atteindre la Formation du Noyau. Cette personne était l'ancêtre de Huo Fen, le premier à avoir atteint le stade de l'Âme Naissante et celui qui avait élevé Huo Fen d'un pays de culture de rang 2 à un rang 3.
 
-En regardant Wang Lin, elle pensait qu'il n'avait qu'une vingtaine d'années. Il lui semblait impossible qu'il puisse former son noyau en si peu de temps. Lorsque Wang Lin lui avait promis de la renvoyer chez elle une fois la Formation du Noyau atteinte, elle avait soupiré intérieurement. Elle pensait qu'il lui faudrait des décennies pour y parvenir et ressentit un certain mépris envers lui. S'il voulait la garder, il aurait dû le dire simplement plutôt que d'utiliser ce prétexte.
+En regardant Wang Lin, elle pensait qu'il n'avait qu'une vingtaine d'années. Il lui semblait impossible qu'il puisse former son noyau en si peu de temps. Lorsque Wang Lin lui avait promis de la renvoyer chez elle une fois la Formation du Noyau atteinte, elle avait soupiré intérieurement. Elle pensait qu'il lui faudrait des décennies, voire un siècle, pour y parvenir et ressentit un certain mépris envers lui. S'il voulait la garder, il aurait dû le dire simplement plutôt que d'utiliser ce prétexte.
 
-Après une courte réflexion, elle demanda: « Votre... votre culture a-t-elle atteint un goulot d'étranglement? » L'essence de son sang spirituel était entre ses mains; si jamais il avait des exigences déraisonnables, elle ne saurait comment réagir. Cette question l'obsédait depuis longtemps. Aujourd'hui, en voyant son froncement de sourcils, elle se souvint que le Sortilège de la Mort exigeait d'absorber l'énergie Yin des femmes. Selon ses calculs, cela faisait des mois qu'il n'avait tué personne ni touché aucune femme.
+Après une courte réflexion, elle demanda: « Votre... votre culture a-t-elle atteint un goulot d'étranglement? » L'essence de son sang spirituel était entre ses mains; si jamais il avait des exigences déraisonnables, elle ne saurait comment réagir. Cette question l'obsédait depuis longtemps. Aujourd'hui, en voyant son froncement de sourcils, elle se souvint que le sort de la mort exigeait d'absorber régulièrement les trois énergies, faute de quoi la technique stagnait et se heurtait facilement à un goulot d'étranglement. Selon ses calculs, cela faisait des mois qu'il n'avait tué personne ni touché aucune femme.
 
-Wang Lin ignora ses pensées et se contenta de hocher la tête.
+Wang Lin ignorait ce qu'elle pensait et se contenta de hocher la tête.
 
-Le cœur de Li Muwan manqua un battement. Elle recula de quelques pas, le visage blême. Elle lutta contre elle-même en mordant sa lèvre inférieure avant de lâcher: « Je... je n'ai promis que de vous aider à raffiner des pilules. Si... même si je devais mourir, je n'accepterais pas. »
+Le cœur de Li Muwan manqua un battement. Elle recula de quelques pas, le visage blême. Elle lutta contre elle-même en mordant sa lèvre inférieure avant de lâcher: « Je... je n'ai promis que de vous aider à raffiner des pilules. Si... même si je devais mourir, je n'accepterais pas. » Sa voix n'était qu'un sanglot, comme une plainte, comme des pleurs.
 
 Wang Lin fut pris de court par la réaction de Li Muwan. Il détourna le regard vers le crâne de dragon et demanda: « Pourquoi le crâne du dragon est-il de cette couleur? »
 
@@ -112,7 +112,7 @@ Elle mordit sa lèvre et répondit doucement: « Le corps du dragon est saturé 
 
 « Saturé de poison? » Wang Lin fut stupéfait et examina attentivement le crâne.
 
-« Avant de mourir, le corps d'un dragon se remplit d'un poison mortel. Une fois sa mort survenue, ce poison transforme son corps en un trésor unique. La partie la plus empoisonnée du dragon est sa moelle, mais c'est aussi sa partie la plus précieuse », expliqua Li Muwan d'une voix calme et au ton de plus en plus froid.
+« De son vivant, le corps d'un dragon renferme un poison violent, mais une fois mort, ce poison transforme son corps en un trésor suprême. Les livres anciens disent: « Vivant, le dragon est poison; mort, le dragon est trésor. » La partie la plus venimeuse du dragon est sa moelle, mais c'est aussi sa partie la plus précieuse », expliqua Li Muwan d'une voix calme et au ton de plus en plus froid.
 
 Wang Lin fixa silencieusement le crâne, l'esprit troublé. Il marmonna: « Un corps rempli de poison... pourquoi le dragon n'en est-il pas affecté lorsqu'il est vivant... » Une idée lui traversa l'esprit, mais elle disparut aussi vite qu'elle était apparue, le laissant de nouveau dans la confusion.
 
@@ -152,9 +152,9 @@ Il faut noter qu'une bête spirituelle de haute qualité équivaut à un cultiva
 
 Le dragon qui était mort était une bête spirituelle de qualité moyenne.
 
-Bien que les bêtes de feu aient disparu, l'énergie spirituelle résiduelle rendait toute culture impossible dans le pays. Ils ne pouvaient qu'attendre que cette énergie se dissipe avec le temps.
+Bien que le désastre des bêtes de feu fût écarté, Huo Fen ne pouvait pas se permettre le coût du nettoyage de l'énergie spirituelle brûlante qui restait sur son territoire. Le pays ne pouvait qu'attendre que le temps la neutralise peu à peu.
 
-La lutte contre Xuan Wu se poursuivait, mais les affrontements impliquant des centaines de personnes étaient devenus rares; la plupart des combats ne concernaient plus que quelques dizaines d'individus. Après avoir pris une partie de Xuan Wu, les cultivateurs de Huo Fen n'avaient plus la puissance nécessaire pour progresser davantage, et la situation se stabilisa.
+La lutte contre Xuan Wu se poursuivait, mais les affrontements de plus d'une centaine de personnes étaient devenus rares; la plupart des combats ne concernaient plus que quelques dizaines d'individus. Après avoir pris environ un tiers de Xuan Wu, les cultivateurs de l'Union de Huo Fen n'avaient plus la puissance nécessaire pour progresser davantage, et la situation se stabilisa.
 
 Quant au conflit entre les deux pays, il passa d'une guerre d'extermination à une sorte de terrain d'entraînement pour leurs disciples respectifs. C'était une amère ironie pour tous ceux qui étaient tombés au début du conflit.
 
@@ -174,7 +174,7 @@ Son corps était descendu à 7 979 mètres, émergeant dans un espace bleu fonc�
 
 Tous les os présents avaient été transformés en cristaux de glace bleue.
 
-Wang Lin s'assit au milieu de cette mer d'os et consacra un mois à rétablir son rythme cardiaque, deux mois à récupérer son sens divin et trois mois à ressentir les trois noyaux froids.
+Wang Lin s'assit au milieu de cette mer d'os pendant six mois: il consacra un mois à rétablir son rythme cardiaque, deux mois à récupérer son sens divin et trois mois à ressentir les trois noyaux froids.
 
 Par la suite, les noyaux froids du Point Ancestral et de la Mer de Qi entrèrent en collision, provoquant une déferlante d'énergie Yin puissante. Cependant, comparée à l'énergie Yin qui imprégnait déjà le corps de Wang Lin, cette vague semblait presque dérisoire.
 

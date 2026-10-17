@@ -36,7 +36,7 @@ Un cri retentit de l'avant: « Quatrième Ma, que fais-tu?! »
 
 « Patron, j'ai trouvé un arbre à billets! Si nous brisons les jambes de ce gamin laid, nous pourrons l'utiliser pour bloquer les chariots de la compagnie d'escorte Puissance Céleste sur la route. C'est bien mieux que d'utiliser nos propres frères! » L'homme massif marqué d'une cicatrice commanda à son cheval de charger.
 
-L'homme balafrire chargea, souleva Wang Lin et sourit: « Patron, regardez! »
+L'homme balafré chargea, souleva Wang Lin et sourit: « Patron, regardez! »
 
 Wang Lin avait les yeux clos. Il bouillonnait de rage; que quelques simples arts martiaux du monde mortel puissent l'humilier ainsi était insupportable.
 
@@ -50,7 +50,7 @@ En un clin d'œil, il ne restait plus que l'homme balafré et Wang Lin. Ce derni
 
 « Petit Six, prends le cheval de ton frère. » À peine eut-il fini de parler qu'un jeune homme svelte apparut pour emporter la monture.
 
-« Petit garnement, considère-toi malchanceux. » L'homme balafré afficha un sourire vicieux en reposant Wang Lin au sol. Il entrouvrit sa mâchoire, puis pressa du bout des doigts plusieurs points sur les épaules et les jambes de Wang Lin.
+« Petit garnement, considère-toi malchanceux. » L'homme balafré afficha un sourire vicieux en reposant Wang Lin au sol. Il lui disloqua la mâchoire, puis pressa du bout des doigts plusieurs points sur les épaules et les jambes de Wang Lin.
 
 Dans une série de craquements sinistres, les épaules et les jambes de Wang Lin furent brisées. Des vagues de douleur envahirent son corps et des perles de sueur inondèrent son front. Son regard se fixa sur l'homme balafré, gravant son visage dans sa mémoire.
 
@@ -68,11 +68,11 @@ Les convois reprirent leur marche, mais alors qu'ils passaient à l'endroit où 
 
 « Compagnie d'escorte Puissance Céleste, pensiez-vous que je ne vous pillerais pas si vous preniez le chemin détourné? Restez là pour moi! » Un cri puissant jaillit de la forêt alors que dix-huit hommes cruels en sortaient.
 
-À l'aide d'une torche, l'un d'eux mit à feu la pâte appliquée sur Wang Lin. Celle-ci se mua en un gaz qui enveloppa rapidement les chariots.
+Dès que les torches s'allumèrent, la pâte appliquée sur Wang Lin se dissolut et un gaz incolore et inodore se répandit, enveloppant rapidement tout le convoi.
 
 « Le Poison des Nuages de Feu! » hurla quelqu'un dans le convoi. Peu après, chaque membre de l'escorte sentit sa force s'évaporer de son corps.
 
-« C'est exact. C'est le poison spécial utilisé par les dix-huit Héros des Nuages de Feu! Héhé, ce poison affecte le sang et s'active par le feu. Aujourd'hui, aucun d'entre vous n'échappera à la mort! »
+« C'est exact. C'est le poison spécial utilisé par les dix-huit Héros des Nuages de Feu! Héhé, le sang éveille ce poison et le feu le déclenche. Aujourd'hui, aucun d'entre vous n'échappera à la mort! »
 
 Le massacre commença. En moins d'un quart d'heure, plus de la moitié de l'escorte fut massacrée.
 
@@ -80,19 +80,19 @@ Des cris successifs déchirèrent la nuit. Sous la lumière des torches, les dix
 
 « Haha, grand frère, il y avait même trois femmes! De quoi nous amuser une fois rentrés! » L'homme balafré trancha la tête d'un homme avant de s'emparer de l'une des femmes. Elle était jolie, mais son visage, déformé par les hurlements, était pâle et pétrifié par la peur.
 
-L'homme ricana. Il la malmença un instant avant de la jeter sur son dos, ignorant ses coups. Deux autres hommes s'approchèrent rapidement pour saisir les deux autres femmes en riant de la première. Bientôt, des chevaux surgirent du bord de la route.
+L'homme lui passa la main sur le corps avec un rire lubrique, puis la jeta sur son dos, ignorant ses coups. Deux autres hommes s'approchèrent rapidement pour saisir les deux autres femmes en riant de la première. Bientôt, des chevaux surgirent du bord de la route.
 
 L'homme colossal sortit une boîte et l'examina. Avec un air de satisfaction extrême, il s'écria: « Frères, en route! »
 
 Ils montèrent tous en selle, sur le point de partir avec les trois femmes en pleurs. L'homme balafré, la femme sur l'épaule, passa devant Wang Lin et lança: « Chef, ce gamin respire encore. Et si nous le gardions quelques jours pour le réutiliser? »
 
-Le chef acquiesça et partit prestement à cheval. L'homme balafré donna un coup de pied en Wang Lin pour qu'il soit récupéré par un autre bandit. Ils s'éloignèrent dans un tumulte de cris, laissant derrière eux des cadavres exhalant une puissante odeur de sang.
+Le chef acquiesça et partit prestement à cheval. L'homme balafré envoya Wang Lin en l'air d'un coup de pied et un autre bandit le rattrapa. Ils s'éloignèrent dans un tumulte de cris, laissant derrière eux des cadavres exhalant une puissante odeur de sang.
 
 Au lever du soleil, les dix-huit hommes atteignirent la moitié de la montagne. Un immense village s'y trouvait, arborant sur un panneau à l'entrée trois grands caractères:
 
 « Village des Nuages de Feu! »
 
-« Tout le monde est de retour! Ouvrez la porte! »
+« Le chef est de retour! Ouvrez la porte du village! »
 
 La porte du village s'ouvrit et les dix-huit hommes entrèrent rapidement. Bientôt, le village s'anima d'une effervescence sinistre. L'homme balafré qui portait la femme descendit de cheval: « Chef, je vais aller m'amuser un peu! » Il pénétra dans une maison, et bientôt, les cris déchirants d'une femme purent être entendus.
 
@@ -106,13 +106,13 @@ Wang Lin ouvrit les yeux, retrouvant soudainement toute sa lucidité.
 
 Un cri misérable retentit au loin, mais il n'atteignit la prison que sous la forme d'un écho ténu. Cependant, dans ce silence de mort, le cri semblait résonner éternellement.
 
-Après avoir perdu toute son énergie spirituelle et vu son âme originelle s'effondrer, Wang Lin ne sentait plus qu'il pouvait influencer le monde d'un simple regard comme autrefois. Bien que l'obscurité soit totale, il réalisa qu'il était enfermé dans un espace exigu. Ses bras étaient liés et son corps pendait dans l'eau glacée.
+Depuis que Wang Lin avait perdu toute son énergie spirituelle et que son âme originelle s'était effondrée, ses yeux ne pouvaient plus tout percer comme autrefois. Bien que l'obscurité soit totale, il réalisa qu'il était enfermé dans un espace exigu. Ses bras étaient liés et son corps pendait dans l'eau glacée.
 
-L'eau, dont il ne pouvait deviner la couleur, lui montait jusqu'au cou et dégageait une odeur fétide qui provoquait la nausée. Wang Lin releva précipitamment la tête pour respirer. Il se sentait comme scellé au fond d'un puits. Une fois les cris finis, le silence d'une tombe retomba sur les lieux.
+L'eau, dont il ne pouvait deviner la couleur, lui montait jusqu'au cou et dégageait une odeur fétide qui provoquait la nausée. L'eau était mouvante et de petites vagues venaient parfois lui éclabousser la bouche et le nez, et baigner ses blessures. Wang Lin retint son souffle et releva la tête. Il se sentait comme scellé au fond d'un puits. Une fois les cris finis, le silence d'une tombe retomba sur les lieux.
 
 « Il semble qu'un cultivateur ayant tout perdu soit encore plus misérable qu'un mortel... » Les yeux de Wang Lin étaient calmes. Une pointe de rage, née de sa frustration, était habilement dissimulée dans son regard.
 
-Le Wang Lin capable de mouvoir les cieux et de faire trembler la terre n'existait plus. Il avait perdu toute énergie spirituelle, son âme originelle s'était effondrée, et il ne possédait même pas la vigueur d'un mortel ordinaire. Il ne pouvait même plus ouvrir son sac de rangement, qu'il avait sans doute perdu au profit de ces brigands.
+Le Wang Lin capable d'appeler le vent et la pluie n'existait plus. Il avait perdu toute énergie spirituelle, son âme originelle s'était effondrée, et il ne possédait même pas la vigueur d'un mortel ordinaire. Il ne pouvait même plus ouvrir son sac de rangement, qu'il avait sans doute perdu au profit de ces brigands.
 
 À cet instant, la magnifique silhouette de Liu Mei survola le Village des Nuages de Feu. Elle ne baissa même pas les yeux, ignorant que l'homme qu'elle cherchait se trouvait précisément dans ce village.
 

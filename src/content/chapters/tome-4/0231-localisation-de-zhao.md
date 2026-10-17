@@ -12,7 +12,7 @@ La plupart de ces cultivateurs de l'Âme Naissante ne venaient pas de la ville; 
 
 Les trois jours passèrent et vint enfin le jour de l'échange secret. Ce matin-là, un cultivateur au stade de la Formation du Noyau s'approcha et remit poliment une invitation à Wang Lin, avant de le guider jusqu'à la boutique.
 
-Dès que le vieil homme de la boutique vit Wang Lin, il se montra extrêmement respectueux. Il guida soigneusement Wang Lin vers un mur, puis le frappa à plusieurs reprises. Aussitôt, les parois ondulèrent comme la surface d'une eau calme après qu'on y a jeté une pierre.
+Dès que le vieil homme de la boutique vit Wang Lin, il se montra extrêmement respectueux. Il guida soigneusement Wang Lin vers un mur, puis y lança un sortilège. Aussitôt, les parois ondulèrent comme la surface d'une eau calme après qu'on y a jeté une pierre.
 
 Après cela, il sortit une robe et la tendit à Wang Lin.
 
@@ -46,9 +46,9 @@ Malgré ses doutes, son expression demeura parfaitement sereine.
 
 Wang Lin attendit encore un moment. Lorsqu'aucun autre cultivateur n'apparut, un vieil homme assis au premier rang se leva. Il toussa et déclara: « Cet échange secret est organisé par trois villes, il y a donc plus de monde que d'habitude. Mais puisque chacun cherche quelque chose ici, je suis convaincu que vous trouverez votre bonheur. Je commence. » Sur ce, il sortit un sac de rangement et en fit jaillir plusieurs cœurs de bêtes et des trésors magiques.
 
-Les trésors libérèrent une immense quantité de puissance spirituelle, témoignant de leur valeur.
+Les trésors magiques laissaient transparaître un tranchant redoutable, signe d'un immense pouvoir.
 
-D'une voix lente, il reprit: « Ces cœurs proviennent de bêtes spirituelles de qualité moyenne. Comme vous le savez, ces bêtes possèdent une force équivalente à celle de cultivateurs au stade avancé de l'Âme Naissante. Ces trésors magiques sont tous façonnés à partir d'os de bêtes spirituelles de qualité moyenne, en particulier cette cloche. Je n'accepterai que des pierres spirituelles pour ces objets. »
+D'une voix lente, il reprit: « Ces cœurs proviennent de bêtes spirituelles de qualité moyenne. Comme vous le savez, ces bêtes possèdent une force équivalente à celle de cultivateurs au stade avancé de l'Âme Naissante. Ces trésors magiques sont tous façonnés à partir d'os de bêtes spirituelles de qualité moyenne, et leur puissance n'est pas mauvaise, en particulier cette cloche, fabriquée avec le tympan d'une bête Fuyi, aux effets remarquables. Je n'accepterai que des pierres spirituelles pour ces objets. »
 
 Les articles flottaient devant le vieil homme. Si quelqu'un était intéressé, il lui suffisait de tendre la main pour que l'objet s'envole directement vers lui. Personne ne craignait le vol lors de tels échanges; la pièce était protégée par de puissantes restrictions. Quiconque oserait voler et s'enfuir ne chercherait que la mort.
 
@@ -74,17 +74,17 @@ Le second type était constitué de tableaux de transfert ordinaires, bien plus 
 
 En conséquence, la consommation et la valeur des pierres spirituelles avaient augmenté.
 
-Après plusieurs transactions, ce fut au tour d'un cultivateur portant un imperméable. La tête basse, il dit d'une voix rauque: « Je n'ai pas grand-chose à vendre, seulement quelques textes anciens. Si certains confrères sont intéressés, nous pouvons échanger, mais en raison de la nature de ces textes, je ne peux vous permettre de les examiner de trop près. » Sur ce, il frappa son sac de rangement et sept ou huit morceaux de jade s'envolèrent.
+Après plusieurs transactions, ce fut au tour d'un cultivateur vêtu d'une robe de paille. La tête basse, il dit d'une voix rauque: « Je n'ai pas grand-chose à vendre, seulement quelques textes anciens. Si certains confrères sont intéressés, nous pouvons échanger, mais en raison de la nature de ces textes, je ne peux vous permettre de les examiner de trop près. » Sur ce, il frappa son sac de rangement et sept ou huit morceaux de jade s'envolèrent.
 
 Les couleurs de ces jades étaient très ternes et certains présentaient des fissures. Chacun dégageait une aura antique, témoignant de leur grand âge.
 
-Un bouclier de lumière verte entourait les jades; il était clair qu'il s'agissait d'une technique destinée à empêcher quiconque de sonder leur contenu.
+Un bouclier de lumière verte entourait les jades; il était clair qu'il s'agissait d'un trésor magique disposé par cet homme pour empêcher quiconque de les prendre afin de les examiner.
 
 « Ceci est un catalogue ancien des bêtes. Ceci est un texte secret du monde des anciens cultivateurs. Ceci est une recette de fabrication pour tableaux de transfert anciens. Et ceci... Je n'accepte que des cœurs de bêtes spirituelles de qualité moyenne. Cinq cœurs pour l'un d'eux. » Il attendit alors que les gens s'enquièrent des textes.
 
 Les occupants de la pièce froncèrent tous les sourcils. Même cinq jades contre un seul cœur de bête de qualité moyenne n'était pas une affaire avantageuse, comment l'inverse pourrait-il être vrai?
 
-En réalité, l'homme en imperméable soupira intérieurement. Il n'avait vraiment rien d'autre à vendre que ces jades, qu'il avait trouvés dans la grotte d'un ancien cultivateur. Ce dernier était très pauvre et ne possédait que ces fragments.
+En réalité, l'homme à la robe de paille soupira intérieurement. Il n'avait vraiment rien d'autre à vendre que ces jades, qu'il avait trouvés dans la grotte d'un ancien cultivateur. Ce dernier était très pauvre et ne possédait que ces fragments.
 
 La première fois qu'il avait tenté de les vendre, il n'avait pas fixé de prix trop élevé, mais après avoir été ignoré lors de nombreux échanges, il avait décidé de viser des prix exorbitants. Il pensait que ces objets étaient inutiles pour la plupart, mais que pour celui qui en désirait vraiment un, le prix n'aurait aucune importance.
 
@@ -94,13 +94,13 @@ Dès que Wang Lin entendit parler du jade contenant une recette de tableaux de t
 
 Sans un mot, il agita sa main droite et brisa le bouclier protégeant le jade contenant les informations sur les tableaux anciens pour s'en saisir.
 
-L'homme en imperméable fut stupéfait et son visage se crispa. Il savait que la lumière verte n'était pas particulièrement robuste, mais qu'elle ne pouvait être brisée si aisément par n'importe qui. Il pensait que même un cultivateur de l'Âme Naissante au stade intermédiaire ne pourrait la rompre avec une telle facilité; cela signifiait donc que cet homme était un cultivateur de l'Âme Naissante au stade avancé.
+L'homme à la robe de paille fut stupéfait et son visage se crispa. Il savait que la lumière verte n'était pas particulièrement robuste, mais qu'il serait lui-même incapable de la briser si aisément. Il pensait que même un cultivateur de l'Âme Naissante au stade intermédiaire ne pourrait la rompre avec une telle facilité; cela signifiait donc que cet homme était un cultivateur de l'Âme Naissante au stade avancé.
 
 Après avoir pris le jade, Wang Lin l'examina de son Sens Divin et le rangea. Simultanément, il sortit cinq cœurs de bêtes spirituelles de qualité moyenne.
 
-L'homme en imperméable empoigna rapidement les cœurs en poussant un soupir. Il ne s'attarda pas sur la brisure du bouclier de lumière. Après avoir attendu un moment et constaté que personne d'autre n'était intéressé, il rangea ses jades.
+L'homme à la robe de paille empoigna rapidement les cœurs en poussant un soupir. Il ne s'attarda pas sur la brisure du bouclier de lumière. Après avoir attendu un moment et constaté que personne d'autre n'était intéressé, il rangea ses jades.
 
-L'action de Wang Lin attira immédiatement l'attention de trois autres cultivateurs. L'un d'eux était l'érudit. Les deux autres portaient des capes; leurs yeux s'illuminèrent lorsqu'ils levèrent la tête.
+L'action de Wang Lin attira immédiatement l'attention de trois autres cultivateurs. L'un d'eux était l'érudit. Les deux autres portaient des robes de paille; leurs yeux s'illuminèrent lorsqu'ils levèrent la tête.
 
 Après un bref silence, un autre cultivateur s'avança pour présenter ses articles.
 
@@ -120,13 +120,13 @@ Wang Lin répondit calmement: « Oh? Et que me faudrait-il pour obtenir une tell
 
 L'érudit esquissa un sourire chaleureux et dit: « Vous devez être nouveau dans la Mer des Démons, permettez-moi de vous expliquer. Non seulement pour la Mer des Démons, mais pour n'importe quel pays de culture, une carte est primordiale. La planète Suzaku est tout simplement trop vaste; sans carte, on ne sait pas où l'on va. »
 
-« Quant à la Mer des Démons, c'est encore plus crucial. Une copie de la carte de la Mer des Démons coûterait 100 000 pierres spirituelles de haute qualité, et personne n'accepterait de pierres de faible ou moyenne qualité. Avec les trésors que vous présentez, ce n'est tout simplement pas suffisant. »
+« Quant à la Mer des Démons, c'est encore plus crucial. Une carte de la Mer des Démons, même de qualité inférieure, exigerait au minimum 100 000 pierres spirituelles de haute qualité. Quant aux cartes de qualité moyenne, voire supérieure, elles n'ont tout bonnement pas de prix sur le marché. Les objets que vous présentez ne suffisent tout simplement pas. »
 
-« Pour la carte de la planète Suzaku, c'est un objet qu'aucun individu ne peut posséder. Si vous le souhaitez, j'ai une carte de la Mer des Démons, mais elle est de faible qualité et comporte de nombreuses zones inexplorées. »
+« Quant à la carte de toute la planète Suzaku, aucun cultivateur seul ne peut la posséder. Si vous avez de quoi payer l'équivalent, j'ai bien une carte de la Mer des Démons, mais elle est de qualité inférieure et de nombreux endroits n'y sont pas très complets. »
 
-Wang Lin réfléchit un instant et demanda: « Cet érudit possède-t-il une carte générale des pays entourant la Mer des Démons? »
+Wang Lin réfléchit un instant et demanda: « Confrère, possédez-vous une carte à grande échelle incluant les pays de culture entourant la Mer des Démons? »
 
-L'érudit sourit prudemment en secouant la tête: « Je n'ai pas ce genre de carte. »
+L'érudit eut un sourire amer en secouant la tête: « Je n'ai pas ce genre de carte. »
 
 Un cultivateur vêtu d'une robe, assis dans un coin, s'exclama soudainement: « J'en ai une! » C'était l'un de ceux dont le regard s'était illuminé lors de l'intervention de Wang Lin.
 
@@ -140,9 +140,9 @@ Le prix de cette carte serait inimaginablement élevé.
 
 Wang Lin réfléchit. Actuellement, il possédait deux cartes: celle obtenue de Qiu Siping et celle du Temple du Dieu de la Guerre.
 
-La carte du Temple du Dieu de la Guerre ne contenait que des informations détaillées sur le pays et ses environs jusqu'à la mer extérieure de la Mer des Démons. Au-delà, comme la mer intérieure, les informations étaient très vagues et certains tableaux de transfert n'étaient même pas cartographiés.
+La carte de la femme en tenue de palais du Temple du Dieu de la Guerre était assez complète, mais elle s'arrêtait à la Mer des Démons. Le continent Xuan Wu, où se trouve le pays de Huo Fen, y était décrit avec le plus de détails; la périphérie extérieure de la Mer des Démons l'était un peu moins; et une fois dans la mer intérieure, il n'y avait plus que des indications approximatives, certains tableaux de transfert n'étant même pas marqués.
 
-Quant à la zone située au-delà de la Mer des Démons, il n'y avait aucune indication, hormis le tracé de quelques montagnes. En analysant sa carte, Wang Lin soupçonnait que Zhao se trouvait de l'autre côté, mais ce n'était qu'une conjecture. C'est pourquoi il n'avait pas agi immédiatement, préférant chercher une carte plus exhaustive.
+Quant au continent situé de l'autre côté de la Mer des Démons, on n'y voyait même pas d'indications approximatives, seulement le tracé de quelques montagnes. En analysant sa carte, Wang Lin soupçonnait que Zhao se trouvait de l'autre côté, mais ce n'était qu'une conjecture. C'est pourquoi il n'avait pas agi immédiatement, préférant chercher une carte plus exhaustive.
 
 Wang Lin demanda: « Que voulez-vous? »
 
@@ -152,19 +152,19 @@ Wang Lin le regarda et hocha la tête.
 
 Tout le monde comprit ce qui se passait et cessa de s'y intéresser, bien qu'ils fussent tous curieux de savoir avec quoi Wang Lin pourrait payer un objet aussi précieux.
 
-Une heure plus tard, l'échange secret prit fin et chacun partit. Wang Lin quitta la pièce et retira sa robe. Une belle servante l'attendait déjà.
+Une heure plus tard, l'échange secret prit fin et chacun partit. Wang Lin quitta la pièce et retira sa robe. Une cultivatrice au charme séduisant l'attendait déjà.
 
-En le voyant, elle dit respectueusement: « Aîné, mon maître souhaite vous rencontrer; il m'a chargé de vous accompagner. »
+En le voyant, elle s'avança et dit respectueusement: « Senior, mon maître dit avoir rendez-vous avec vous; il m'a chargée de vous conduire à lui. »
 
-Le cœur de Wang Lin tressaillit et il se fit plus vigilant, tout en gardant un visage impassible. Il observa la jeune femme: elle n'était pas vierge et n'était qu'au stade avancé de l'Établissement des Fondations. Cependant, sa puissance spirituelle était très faible; elle avait manifestement atteint ce niveau grâce à de nombreux médicaments.
+Le cœur de Wang Lin tressaillit et il se fit plus vigilant, tout en gardant un visage impassible. Il observa la jeune femme: elle n'était pas vierge et n'était qu'au stade avancé de l'Établissement des Fondations. Cependant, sa puissance spirituelle était épuisée; elle l'était manifestement à cause des fréquentes techniques de cueillette et de complément pratiquées sur elle.
 
-Wang Lin avait déjà quelques pressentiments sur la situation.
+Wang Lin en tira déjà une déduction: le cultivateur à la robe de paille excellait sûrement dans l'art de la cueillette et du complément.
 
-Guidé par la servante, Wang Lin arriva devant une résidence discrète au centre de la ville. Elle s'arrêta devant la porte et dit: « Aîné, je vous en prie, entrez. Je resterai ici pour assurer la garde. »
+Guidé par la servante, Wang Lin arriva devant une humble demeure discrète de la ville de Lian Mo. Elle s'arrêta devant la porte et dit: « Senior, je vous en prie, entrez. Je vous attendrai dehors. »
 
 Sans perdre de temps, Wang Lin entra, ayant déjà projeté son Sens Divin à l'intérieur.
 
-Il vit un vieil homme au nez crochu portant une chemise rouge, assis près d'une théière verte. En voyant entrer Wang Lin, le vieillard rit: « Asseyez-vous, confrère. C'est un thé de haute qualité du pays de Huo Fen. Je l'ai préparé spécialement pour recevoir mes amis. »
+Il vit un vieil homme au nez crochu portant une chemise rouge, assis près d'une théière verte. En voyant entrer Wang Lin, le vieillard rit: « Asseyez-vous, confrère. C'est un thé de flamme de haute qualité du pays de Huo Fen. Je l'ai préparé spécialement pour recevoir mes amis. »
 
 Wang Lin joignit les mains et s'assit face au vieil homme. Il ne daigna même pas regarder le thé, préférant examiner les lieux. Il comprit aisément que ce vieillard était au stade intermédiaire de l'Âme Naissante.
 
@@ -184,15 +184,15 @@ Le vieillard éclata de rire, mais pensa intérieurement: « Que veut-il dire pa
 
 Ne parvenant pas à cerner les pensées de Wang Lin, l'homme rit et dit: « Si l'occasion se présente, j'aimerais beaucoup rencontrer cet ami. »
 
-Sur ce, il frappa son sac de rangement et en sortit un autre sac, déclarant: « Confrère Wang, voici la carte dont je parlais. Je vais vous la présenter. Une fois que vous l'aurez examinée et que vous aurez constaté qu'elle ne présente aucun défaut, nous pourrons discuter de notre accord. »
+Sur ce, il frappa son sac de rangement et en sortit un jade, déclarant: « Confrère Wang, voici la carte dont je parlais. Je vais vous la présenter. Une fois que vous l'aurez examinée et que vous aurez constaté qu'elle ne présente aucun défaut, nous pourrons discuter de notre accord. »
 
 Le jade émit une douce lumière alors que le vieillard y injectait un peu de puissance spirituelle. Immédiatement, une carte gigantesque s'afficha devant Wang Lin.
 
-Cette carte était d'une précision extrême. Elle incluait même des descriptions détaillées du niveau de dégradation de chacun des anciens tableaux de transfert, ainsi que la situation de chaque zone et les noms de tous les cultivateurs de l'Âme Naissante ou de rang supérieur.
+Cette carte était d'une précision extrême. Elle incluait même des descriptions détaillées du niveau de dégradation de chacun des anciens tableaux de transfert, ainsi que des présentations des différentes puissances, sectes et familles de cultivation, et les noms de tous les cultivateurs de l'Âme Naissante ou de rang supérieur.
 
-Ces détails n'étaient pas le point principal, mais la carte indiquait aussi précisément les points de connexion de chaque ancien réseau de transfert. Ce seul aspect suffisait à faire s'envoler son prix.
+Ces détails n'étaient pas le point principal, mais, pour les anciens tableaux de transfert, la carte décrivait même assez en détail les directions vers lesquelles ils menaient. Ce seul aspect suffisait à faire s'envoler son prix.
 
-Ce qui excita encore plus Wang Lin fut la présence de détails sur la puissance de chaque pays, ainsi que des relevés précis sur l'emplacement des mines et des repaires de bêtes sauvages. Cette carte était d'une valeur inestimable.
+Ce qui excita encore plus Wang Lin fut la présence de brèves descriptions des puissances derrière chaque pays de culture, ainsi que des relevés assez détaillés sur l'emplacement des mines et des repaires de bêtes sauvages. Cette carte était d'une valeur inestimable.
 
 Mais si tout cela n'était pas assez tentant, ce qui suivit le choqua totalement: les environs de la Mer des Démons ne comprenaient pas seulement deux continents comme l'indiquait sa carte du Temple du Dieu de la Guerre, mais quatre.
 
@@ -212,13 +212,13 @@ Le vieillard serra les dents et répondit: « Si vous m'aidez à tuer une person
 
 Une lueur froide traversa les yeux de Wang Lin. Il interrogea: « Quel est le niveau de culture de cette cible? »
 
-L'homme répondit promptement: « Stade avancé de l'Âme Naissante, à un demi-pas de la Formation de l'Âme! »
+L'homme répondit promptement: « Stade avancé de l'Âme Naissante, Grande Perfection, le royaume du demi-dieu! »
 
 Wang Lin se leva et dit d'un ton calme: « Maintenant? Montrez-moi le chemin! »
 
 Le vieillard fut stupéfait. Après une hésitation, il finit par dire: « Très bien. Confrère Wang, suivez-moi. »
 
-En un clin d'œil, les deux quittèrent la ville de Lian Mo. À mille cinq cents kilomètres de là se trouvait un bassin. Peu après, ils arrivèrent sur place. Wang Lin déploya son Sens Divin et laissa échapper un ricanement intérieur. Il avait déjà compris que quelque chose clochait: le vieillard semblait trop bien le connaître, et la servante s'était immédiatement approchée d'eux à leur arrivée. Tout cela n'était qu'une machination.
+En un clin d'œil, les deux quittèrent la ville de Lian Mo. À mille cinq cents kilomètres de là se trouvait un bassin. Peu après, ils arrivèrent sur place. Wang Lin déploya son Sens Divin et laissa échapper un ricanement intérieur. Il avait déjà compris que quelque chose clochait: le vieillard semblait trop bien le connaître, et la jeune femme de la boutique s'était avancée vers lui dès qu'elle l'avait vu. Tout cela n'était qu'une machination.
 
 Wang Lin avait délibérément utilisé l'excuse de "l'ami portant le même nom" pour tester le vieillard et, grâce à son puissant Sens Divin, il avait remarqué que les émotions de ce dernier s'étaient troublées. Tout se confirmait exactement comme il l'avait prédit.
 
@@ -226,4 +226,4 @@ Sous le bassin, une formation dissimulait quatre cultivateurs de l'Âme Naissant
 
 Wang Lin déclara calmement: « Il est regrettable que l'homme chauve soit mort, sinon vous six auriez pu utiliser parfaitement la Formation d'Assassinat Inéluctable. »
 
-L'expression de l'homme au nez crochu changea brusquement. À cet instant précis, le domaine de Wang Lin s'activa. Le vieillard n'eut même pas le temps de briser le jade; il ne vit que la lumière rouge surgir devant lui.
+L'expression de l'homme au nez crochu changea brusquement. À cet instant précis, le Royaume Ji de Wang Lin s'activa. Le vieillard n'eut même pas le temps de briser le jade; il ne vit que des éclairs rouges devant lui.

@@ -10,11 +10,11 @@ Papillon Rouge cracha une bouchée de sang. Son âme originelle était endommag�
 
 L'âme originelle de Wang Lin regagna son corps et son visage devint livide. Bien que le duel des domaines semblât calme, il s'agissait de la phase la plus périlleuse de ce combat.
 
-Au moment où l'épée d'intelligence de Papillon Rouge l'avait frappé, son âme originelle avait été touchée. S'il n'avait pas été pour l'évolution de son domaine de la Vie et de la Mort lorsqu'il avait atteint le stade intermédiaire de la Formation de l'Âme, son âme originelle aurait été anéantie.
+Au moment où l'épée de la sagesse de Papillon Rouge l'avait frappé, son âme originelle avait été touchée. Sans l'approfondissement de son domaine de la Vie et de la Mort depuis qu'il avait atteint le stade intermédiaire de la Formation de l'Âme, son âme originelle aurait été anéantie.
 
 Même à cet instant, son domaine de la Vie et de la Mort n'était qu'un peu plus puissant que celui de Papillon Rouge. C'était parce que, comme elle l'avait affirmé, le cycle de la réincarnation céleste était, par essence, impitoyable.
 
-Cependant, il existait une frontière ténue entre l'impitoyabilité et l'absence d'émotion. En raison de cette nuance, Wang Lin l'avait emporté de justesse.
+Cependant, il existait une frontière ténue entre l'impitoyabilité et l'absence d'émotion, une différence d'un seul caractère, celle de l'inné et de l'acquis. En raison de cette nuance, Wang Lin l'avait emporté de justesse.
 
 En vérité, les batailles de domaines entre cultivateurs consistaient à prouver leurs voies respectives du Dao.
 
@@ -34,11 +34,11 @@ Boum!
 
 Le géant de glace poussa un rugissement et bondit dans les airs pour frapper Wang Lin. Cependant, la lance étant plus longue, elle s'élança vers le front du géant pour atteindre Papillon Rouge. La main du géant agrippa la lance.
 
-Pourtant, l'énergie de l'épée suivait immédiatement la lance, frappant sa cible sans aucune résistance.
+Pourtant, l'énergie de l'épée suivait immédiatement la lance, s'abattant avec fureur.
 
 Bang!
 
-Le géant poussa un cri de douleur et sa main gauche s'écrasa au sol alors que le gaz de restriction pénétrait son corps. Mais la lance n'avait pas touché Papillon Rouge; elle venait de transpercer la gorge du géant.
+Le géant poussa un cri de douleur et sa main gauche appuya vers le bas avant de lâcher prise malgré elle; la lance, avec le gaz de restriction, pénétra son corps. Mais elle n'avait pas touché Papillon Rouge; elle venait de transpercer le cou du géant.
 
 Boum!
 
@@ -48,23 +48,23 @@ Mais elle semblait avoir atteint une forme d'illumination et n'éprouvait plus l
 
 D'innombrables fissures apparurent sur le géant alors qu'il s'écrasait au sol. Toute la glace fondit, révélant un fouet d'un blanc pur.
 
-Papillon Rouge fit un geste de la main et le fouet d'âme vola vers elle.
+Papillon Rouge fit un geste de la main et le Fouet d'Âmes vola vers elle.
 
-Comment Wang Lin pouvait-il la laisser réussir? C'était un trésor qu'il devait s'approprier. La lance se transforma en une lueur noire qui enroula le fouet d'âme.
+Comment Wang Lin pouvait-il la laisser réussir? C'était un trésor qu'il devait s'approprier. La lance se transforma en une lueur noire qui enroula le Fouet d'Âmes.
 
 L'expression de Papillon Rouge changea et elle cria: « Oses-tu?! »
 
-« Pourquoi n'oserais-je pas! » rit Wang Lin tout en tirant le fouet d'âme vers lui. Il abattit son épée céleste sur Papillon Rouge pour l'empêcher de lutter pour le récupérer.
+« Pourquoi n'oserais-je pas! » rit Wang Lin tout en tirant le Fouet d'Âmes vers lui. Il abattit son épée céleste sur Papillon Rouge pour l'empêcher de lutter pour le récupérer.
 
-Le visage de Papillon Rouge était sombre. Après une brève réflexion, elle esquiva l'énergie de l'épée et lança un ricanement méprisant à Wang Lin.
+Le visage de Papillon Rouge était sombre. Après une brève hésitation, elle lâcha prise, recula pour esquiver l'énergie de l'épée et lança un ricanement méprisant à Wang Lin.
 
-« Ceng Niu, ce fouet d'âme porte un sceau posé par la Secte du Jade Céleste. Même si tu le voles, tu seras incapable de l'utiliser! »
+« Ceng Niu, ce Fouet d'Âmes porte un sceau posé par la Secte du Jade Céleste. Même si tu le voles, tu seras incapable de l'utiliser! »
 
 Alors qu'elle parlait, la ligne noire sur le front de Papillon Rouge s'estompa lentement jusqu'à disparaître sans laisser de trace.
 
 Son avatar de domaine ayant été détruit lors du combat, sa méthode pour atteindre la Transformation de l'Âme avec une relative facilité lui était désormais refusée. Mais l'illumination qu'elle avait acquise lui donnait la certitude qu'elle pourrait percer le stade de la Transformation de l'Âme par elle-même d'ici quelques décennies.
 
-Elle prit une profonde inspiration et quatre rayons de lumière apparurent soudainement autour d'elle. Lorsque la lumière se dissipa, quatre silhouettes se tenaient là.
+Elle prit une profonde inspiration et quatre rayons de lumière jaillirent de son corps pour se poster aux quatre points cardinaux. Lorsque la lumière se dissipa, quatre silhouettes se tenaient là.
 
 Esprit de métal, esprit de bois, esprit d'eau, esprit de feu!
 
@@ -72,9 +72,9 @@ Hormis l'esprit de terre, tous les autres esprits élémentaires étaient apparu
 
 C'était le trésor ultime de Papillon Rouge. C'était sa racine même, la source de son talent.
 
-Wang Lin scruta le fouet d'âme avec son sens divin. Ce qu'il vit lui glaça le sang. Un sceau puissant pesait sur l'objet, empêchant son sens divin de le pénétrer.
+Wang Lin scruta le Fouet d'Âmes avec son sens divin. Ce qu'il vit lui glaça le sang. Un sceau puissant pesait sur l'objet, empêchant son sens divin de le pénétrer.
 
-Wang Lin eut un ricanement méprisant. Il rangea le fouet d'âme dans son sac et fixa les quatre esprits élémentaires.
+Wang Lin eut un ricanement méprisant. Il rangea le Fouet d'Âmes dans son sac et fixa les quatre esprits élémentaires.
 
 Dans la bataille d'aujourd'hui, Wang Lin avait été lourdement blessé. Outre ses multiples blessures physiques, son âme originelle était endommagée. Ce fut un combat particulièrement éprouvant.
 
@@ -92,11 +92,11 @@ Wang Lin eut un ricanement intérieur. Autrefois, avant d'atteindre la Formation
 
 À cet instant, son regard était d'un calme olympien. Il frappa son sac de rangement et neuf sculptures apparurent.
 
-Ces neuf sculptures de bois contenaient toutes le domaine temporel. Hormis deux d'entre elles, les sept restantes étaient taillées dans le bois de l'arbre de la réincarnation. Ce matériau facilitait grandement l'activation du domaine temporel et en décuplait la puissance.
+Ces neuf sculptures de bois contenaient toutes le domaine temporel. Hormis deux d'entre elles, les sept restantes étaient taillées dans le bois de l'arbre de la réincarnation. Elles dégageaient un domaine encore plus puissant que celui de Qing Song d'autrefois.
 
 Wang Lin murmura doucement: « Temps! »
 
-Une onde de choc invisible se propagea soudainement, figeant les quatre esprits élémentaires un instant.
+Une onde de choc invisible se propagea soudainement, ralentissant un instant les quatre esprits élémentaires.
 
 La vitesse de Wang Lin était fulgurante. Il saisit immédiatement l'esprit de métal et, d'un seul pas, maîtrisa l'esprit de bois. Puis, ignorant les deux autres esprits, il se lança à la poursuite de Papillon Rouge.
 
@@ -132,7 +132,7 @@ Cette puissance était hors de sa portée, sans oublier qu'il était lourdement 
 
 « Ceng Niu, tu as gagné! Rends-toi à la Montagne Suzaku pour recevoir tes ordres et on s'occupera de toi. Après cela, tu seras un disciple invité de Suzaku. En tant que tel, Suzaku pourra t'accorder un vœu. Une fois ton choix fait, tu n'auras qu'à venir à la Montagne Suzaku pour l'exprimer. » Gong Sunpo saisit les trois esprits et les réintégra en Papillon Rouge.
 
-Cependant, alors que l'esprit de bois s'approchait, Wang Lin serra les dents, abattit son épée céleste et le trancha en deux. Il transforma rapidement la moitié de l'esprit de bois en un cristal qu'il rangea aussitôt dans son sac.
+Cependant, alors que l'esprit de bois s'approchait, Wang Lin serra les dents, abattit son épée céleste et le trancha en deux. Il transforma rapidement la moitié de l'esprit de bois en un cristal vert qu'il rangea aussitôt dans son sac.
 
 Après ce geste, il leva la tête vers Gong Sunpo.
 
@@ -142,9 +142,9 @@ Puis, pointant le ciel, il fit en sorte que l'esprit qui avait explosé se refor
 
 Le teint de Papillon Rouge revint et elle dit respectueusement: « Merci, Ancien. »
 
-Le regard de Gong Sunpo envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna: « Remets-moi le fouet d'âme! »
+Le regard de Gong Sunpo envers elle n'était pas bienveillant. Il tendit la main droite vers Wang Lin et ordonna: « Remets-moi le Fouet d'Âmes! »
 
-Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le fouet d'âme et le lui remit avec amertume.
+Wang Lin fixa l'homme et réfléchit un instant. Voyant que Gong Sunpo perdait patience, il poussa un soupir intérieur. Dans le monde de la culture, seule la force importait. Il sortit le Fouet d'Âmes et le lui remit avec amertume.
 
 Une fois le fouet saisi par Gong Sunpo, celui-ci pointa l'air de sa main droite, faisant apparaître une porte de lumière.
 

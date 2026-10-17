@@ -12,55 +12,55 @@ Le jeune homme n'agit pas avec précipitation; il observa les innombrables cadav
 
 Wang Lin esquissa un léger sourire et le poursuivit rapidement.
 
-Teng Nine parcourut cinq cents kilomètres d'une traite, mais ce sentiment de danger ne le quittait pas. Cette sensation lui donnait la chair de poule.
+Teng Neuf parcourut cinq cents kilomètres d'une traite, mais ce sentiment de danger ne le quittait pas. Cette sensation lui donnait la chair de poule.
 
-Ce pressentiment devint de plus en plus oppressant, jusqu'à ce que les yeux de Teng Nine s'illuminent enfin; il frappa son sac de rangement, en sortit une perle grise et la jeta derrière lui.
+Ce pressentiment devint de plus en plus oppressant, jusqu'à ce que les yeux de Teng Neuf s'illuminent enfin; il frappa son sac de rangement, en sortit une perle grise et la jeta derrière lui.
 
-Au moment où Wang Lin vit Teng Nine frapper son sac, il sortit le drapeau de restriction. Dix restrictions apparurent instantanément, formant un mur pour protéger Wang Lin.
+Au moment où Wang Lin vit Teng Neuf frapper son sac, il sortit le drapeau de restriction. Dix restrictions apparurent instantanément, formant un mur pour protéger Wang Lin.
 
 La perle percuta le mur de restrictions et explosa.
 
-Teng Nine ne laissa pas paraître de sourire de satisfaction; au contraire, ce sentiment de danger devint encore plus intense.
+Teng Neuf ne laissa pas paraître de sourire de satisfaction; au contraire, ce sentiment de danger devint encore plus intense.
 
 Alors qu'il s'enfuyait, il sentit soudain chaque poil de son corps se hérisser. Il esquiva sans hésiter et vit un éclair de foudre rouge passer à toute vitesse, le frôlant de peu.
 
-Les yeux de Teng Nine furent envahis par la terreur, car cette foudre rouge lui avait fait entrevoir une mort imminente. Il était convaincu que s'il n'avait pas esquivé cet éclair à cet instant précis, il serait déjà mort.
+Les yeux de Teng Neuf furent envahis par la terreur, car cette foudre rouge lui avait fait entrevoir une mort imminente. Il était convaincu que s'il n'avait pas esquivé cet éclair à cet instant précis, il serait déjà mort.
 
 Mais avant qu'il ne puisse se réjouir, des centaines de traînées de foudre rouge apparurent soudainement tout autour de lui, bloquant totalement son échappatoire.
 
-Le corps de Teng Nine se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Senior, ce junior est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
+Le corps de Teng Neuf se raidit; il n'osait plus continuer sa fuite. Il se tourna lentement vers Wang Lin et dit: « Senior, ce junior est prêt à vous servir et ne vous trahira jamais. Je suis prêt à vous donner mon sang d'âme pour prouver ma loyauté! »
 
-Wang Lin fixa Teng Nine et secoua lentement la tête. Sans dire un mot, il utilisa son sens divin pour faire rétrécir lentement la cage de foudre rouge qui entourait le jeune homme.
+Wang Lin fixa Teng Neuf et secoua lentement la tête. Sans dire un mot, il utilisa son sens divin pour faire rétrécir lentement la cage de foudre rouge qui entourait le jeune homme.
 
-Le front de Teng Nine était trempé de sueur. Il sortit d'innombrables trésors magiques et les projeta, mais peu importe le nombre d'objets lancés, aucun ne parvint à briser la foudre rouge. Le sens divin contenu dans chaque trésor se brisait dès qu'il touchait l'éclair écarlate.
+Le front de Teng Neuf était trempé de sueur. Il sortit d'innombrables trésors magiques et les projeta, mais peu importe le nombre d'objets lancés, aucun ne parvint à briser la foudre rouge. Le sens divin contenu dans chaque trésor se brisait dès qu'il touchait l'éclair écarlate.
 
 Chaque fois que le sens divin d'un trésor s'évanouissait, il ressentait une douleur fulgurante à la tête. Peu à peu, la terreur sur son visage s'intensifia.
 
 « Tu dois mourir parce que ton nom est Teng! » La voix de Wang Lin flotta doucement tandis qu'une légère intention meurtrière se dégageait de lui.
 
-Le corps de Teng Nine trembla. Ses yeux devinrent rouges et, dans un rugissement, il chargea contre la foudre rouge. Au moment où son corps toucha les éclairs, il ne mourut pas instantanément, mais sa silhouette parut soudainement très affaiblie.
+Le corps de Teng Neuf trembla. Ses yeux devinrent rouges et, dans un rugissement, il chargea contre la foudre rouge. Au moment où son corps toucha les éclairs, il ne mourut pas instantanément, mais sa silhouette parut soudainement très affaiblie.
 
 Comment Wang Lin aurait-il pu renoncer à tuer un si bon candidat pour devenir un démon? Il esquissa un sourire en songeant au plaisir qu'il prendrait à transformer les membres de la famille Teng en démons.
 
-Alors que la foudre rouge se refermait rapidement, l'esprit de Teng Nine s'effondra sous le poids du désespoir.
+Alors que la foudre rouge se refermait rapidement, l'esprit de Teng Neuf s'effondra sous le poids du désespoir.
 
-Ce sentiment devint d'une puissance absolue et, alors qu'il atteignait son apogée et que Teng Nine était sur le point de détruire sa propre âme, Wang Lin bougea. Il sauta de la bête moustique et traversa la foudre rouge. Sa main se referma violemment sur la gorge de Teng Nine.
+Ce sentiment devint d'une puissance absolue et, alors qu'il atteignait son apogée et que Teng Neuf était sur le point de détruire sa propre âme, Wang Lin bougea. Il sauta de la bête moustique et traversa la foudre rouge. Sa main se referma violemment sur la gorge de Teng Neuf.
 
-Dans un craquement sinistre, les yeux de Teng Nine faillirent sortir de leurs orbites; submergé par le désespoir, il rendit l'âme. Au moment précis de sa mort, la main gauche de Wang Lin forma un sceau étrange et le posa sur le front du défunt.
+Dans un craquement sinistre, les yeux de Teng Neuf faillirent sortir de leurs orbites; submergé par le désespoir, il rendit l'âme. Au moment précis de sa mort, la main gauche de Wang Lin forma un sceau étrange et le posa sur le front du défunt.
 
 « Je prends ton âme au nom du dévoreur d'âmes! »
 
-Un rayon de lumière rouge jaillit du front de Teng Nine. Il tenta de s'échapper, mais fut promptement capturé par Wang Lin et jeté dans le drapeau des âmes.
+Un rayon de lumière rouge jaillit du front de Teng Neuf. Il tenta de s'échapper, mais fut promptement capturé par Wang Lin et jeté dans le drapeau des âmes.
 
-Wang Lin laissa tomber le corps de Teng Nine sans ménagement et contempla le drapeau des âmes avec satisfaction. Il fallait admettre que Wang Lin rêvait d'une armée de démons, telle qu'il l'avait connue sur le champ de bataille étranger. Avec une telle armée, il aurait la puissance de fonder sa propre secte et ne craindrait personne, même des êtres ayant un niveau de culture supérieur au sien.
+Wang Lin laissa tomber le corps de Teng Neuf sans ménagement et contempla le drapeau des âmes avec satisfaction. Il fallait admettre que Wang Lin rêvait d'une armée de démons, telle qu'il l'avait connue sur le champ de bataille étranger. Avec une telle armée, il aurait la puissance de fonder sa propre secte et ne craindrait personne, même des êtres ayant un niveau de culture supérieur au sien.
 
-Le problème était que les âmes capables d'être transformées en démons étaient bien trop rares. En quatre cents ans, outre Teng Nine, il n'en avait trouvé que trois.
+Le problème était que les âmes capables d'être transformées en démons étaient bien trop rares. En quatre cents ans, outre Teng Neuf, il n'en avait trouvé que trois.
 
 Xu Liguo était un être artificiel, il présentait donc de nombreux défauts. S'il n'avait pas acquis une intelligence qui le distinguait des autres démons, Wang Lin l'aurait déjà tué pour nourrir ses créations.
 
 Wang Lin s'était montré très satisfait du deuxième démon dès le début, car il était féroce et puissant. Mais à mesure que sa propre culture progressait, le second démon ne parvint pas à suivre et perdit de sa superbe.
 
-Le troisième démon avait été créé à partir de l'esprit du singe; bien que puissant, il manquait de férocité.
+Le troisième démon avait été créé à partir de l'âme d'un singe spirituel; bien que puissant, il manquait de férocité.
 
 Ces trois démons étaient très éloignés de la vision qu'avait Wang Lin d'un démon, une vision forgée sur le champ de bataille étranger. Aucun des trois n'égalait la puissance et la sauvagerie des âmes errantes de ce lieu; aucun n'était donc un produit satisfaisant à ses yeux.
 
@@ -68,21 +68,21 @@ Cependant, les choses allaient changer. Si l'âme contenue dans le drapeau deven
 
 « Si les autres membres de la famille Teng ont la même nature, alors je devrai remercier Teng Huayuan de m'avoir formé de si parfaits candidats démons », murmura Wang Lin, les yeux brillants, avant de s'envoler vers sa prochaine destination.
 
-Grâce à son sens divin, il sentait que, hormis une personne située à la frontière de Zhao, tous s'étaient mis en mouvement. Ils voulaient clairement retourner à la Cité de la Famille Teng.
+Grâce à son sens divin, il sentait que, hormis une personne située à la frontière de Zhao, tous s'étaient mis en mouvement. Ils voulaient clairement retourner à la Ville de la Famille Teng.
 
-Si Wang Lin les avait rencontrés avant Teng Nine, il les aurait laissés rentrer pour les massacrer sur place. Mais après avoir découvert le potentiel de ce dernier, comment laisserait-il d'autres candidats aussi parfaits s'échapper? Bien que la bête moustique fût rapide, elle ne l'était pas assez pour Wang Lin. Il sortit une pilule, l'avala, sauta de sa monture et chargea vers sa prochaine cible.
+Si Wang Lin les avait rencontrés avant Teng Neuf, il les aurait laissés rentrer pour les massacrer sur place. Mais après avoir découvert le potentiel de ce dernier, comment laisserait-il d'autres candidats aussi parfaits s'échapper? Bien que la bête moustique fût rapide, elle ne l'était pas assez pour Wang Lin. Il sortit une pilule, l'avala, sauta de sa monture et chargea vers sa prochaine cible.
 
-Teng Huit volait tranquillement dans les airs. Son regard était calme et il ne ressentait aucune tension. En réalité, il n'avait guère envie de retourner à la Cité de la Famille Teng, mais les meurtres des derniers jours avaient plongé toute la lignée dans la panique.
+Teng Huit volait tranquillement dans les airs. Son regard était calme et il ne ressentait aucune tension. En réalité, il n'avait guère envie de retourner à la Ville de la Famille Teng, mais les meurtres des derniers jours avaient plongé toute la lignée dans la panique.
 
 Plus important encore, l'ancêtre de la famille Teng restait indifférent et n'avait pas quitté la cité; cette passivité rendait toute la situation d'autant plus étrange.
 
-C'était la raison pour laquelle Teng Huit retournait à la Cité de la Famille Teng: vérifier la situation par lui-même.
+C'était la raison pour laquelle Teng Huit retournait à la Ville de la Famille Teng: vérifier la situation par lui-même.
 
 En volant, il déployait son sens divin afin de pouvoir réagir au moindre mouvement d'un brin d'herbe. Pourtant, Teng Huit ne croyait pas que le tueur des membres de sa famille oserait l'affronter. Après tout, les membres les plus puissants exécutés n'étaient qu'au stade de la Formation du Noyau.
 
 Teng Huit était convaincu qu'il aurait pu tous les éliminer lui aussi. Après tout, il se trouvait au stade intermédiaire de l'Âme Naissante. Avec son niveau de culture, il pouvait parcourir le pays de Zhao à sa guise.
 
-Bien qu'il ne fût pas de taille face aux vieux monstres du stade tardif de l'Âme Naissante, il ne les craignait pas. Dans tout le royaume de Zhao, il n'avait peur que de deux personnes.
+Bien qu'il ne fût pas de taille face aux vieux monstres du stade tardif de l'Âme Naissante, il ne les craignait pas. Dans tout le pays de Zhao, il n'avait peur que de deux personnes.
 
 De ces deux-là, la première n'était pas Teng Huayuan, mais Teng Yi. Teng Huayuan n'arrivait qu'en seconde position. En fait, chaque fois qu'il pensait à Teng Yi, un frisson lui parcourait le corps.
 
@@ -118,7 +118,7 @@ Teng Six n'était plus un jeune homme. Il y a deux cents ans, il était déjà u
 
 Par la suite, bien qu'il eût subi une punition de la part de Teng Huayuan, il conserva son nom de Teng Six.
 
-Bien que son niveau de culture ne fût que celui de l'Âme Naissante, sa méthode lui permettait de transformer l'aura meurtrière. C'était grâce à cette capacité que Teng Huayuan lui avait permis de garder sa position.
+Bien que son niveau de culture ne fût que celui du stade intermédiaire de l'Âme Naissante, sa méthode lui permettait de transformer l'aura meurtrière. C'était grâce à cette capacité que Teng Huayuan lui avait permis de garder sa position.
 
 Mais aujourd'hui, la lignée des Teng Six allait s'éteindre. À partir de ce jour, il n'y aurait plus jamais d'autre Teng Six.
 
@@ -126,11 +126,11 @@ Teng Six se lécha les lèvres alors qu'il fendait l'air à toute vitesse. Sa ra
 
 Puisqu'il avait transformé toute l'aura meurtrière de son corps, il avait acquis une nouvelle capacité qui lui avait sauvé la vie à maintes reprises.
 
-Se fiant à ce pressentiment, il vola rapidement vers la Cité de la Famille Teng.
+Se fiant à ce pressentiment, il vola rapidement vers la Ville de la Famille Teng.
 
 Il ne croyait pas que son voyage serait paisible, même si la cité n'était qu'à cinq jours de trajet, car au fil de la route, le sentiment de danger ne cessait de croître.
 
-L'âme divine de Wang Lin était déjà verrouillée sur l'individu qui le précédait. Ce dernier se trouvait au stade intermédiaire de l'Âme Naissante. Wang Lin se lécha les lèvres en s'approchant de lui.
+Le sens divin de Wang Lin était déjà verrouillé sur l'individu qui le précédait. Ce dernier se trouvait au stade intermédiaire de l'Âme Naissante. Wang Lin se lécha les lèvres en s'approchant de lui.
 
 Alors qu'il volait, Teng Six sentit une intention meurtrière l'envelopper. Il maudit intérieurement son sort. S'il n'avait pas ressenti ce danger, il serait allé affronter cet adversaire. Mais là, il serra les dents et fit exploser ses deux pieds d'un coup. Grâce à cette explosion, le sang se transforma en une brume qui recouvrit son corps.
 
@@ -146,19 +146,19 @@ Après avoir tout préparé, Wang Lin prit une profonde inspiration et ferma les
 
 Soudain, ce nuage bougea et se propagea avec rapidité pour recouvrir l'intégralité du pays de Zhao. Ce nuage noir était l'âme dévoreuse de Wang Lin. Cette fois, elle quitta totalement son corps.
 
-Teng Wu était un homme d'âge moyen très séduisant; on pouvait dire qu'il ressemblait beaucoup à Teng Li autrefois. Il était accompagné de deux magnifiques cultivatrices. Tous trois volaient rapidement vers la Cité de la Famille Teng.
+Teng Cinq était un homme d'âge moyen très séduisant; on pouvait dire qu'il ressemblait beaucoup à Teng Li autrefois. Il était accompagné de deux magnifiques cultivatrices. Tous trois volaient rapidement vers la Ville de la Famille Teng.
 
-Voyant qu'ils approchaient de la limite des cinq mille kilomètres de la cité, Teng Wu poussa un soupir de soulagement. Mais à cet instant précis, le ciel s'obscurcit brusquement sous l'effet de nuages noirs.
+Voyant qu'ils approchaient de la limite des cinq mille kilomètres de la cité, Teng Cinq poussa un soupir de soulagement. Mais à cet instant précis, le ciel s'obscurcit brusquement sous l'effet de nuages noirs.
 
-Tandis que Teng Wu contemplait la scène, hébété, le nuage noir descendit rapidement pour l'encercler. Puis, il disparut, emportant avec lui l'âme et l'Âme Naissante de Teng Wu.
+Tandis que Teng Cinq contemplait la scène, hébété, le nuage noir descendit rapidement pour l'encercler. Puis, il disparut, emportant avec lui l'âme et l'Âme Naissante de Teng Cinq.
 
-Un cri de rage retentit depuis la Cité de la Famille Teng alors que Teng Huayuan s'en échappait comme un éclair. À l'instant d'avant, il avait senti la présence de Teng Wu, puis celle-ci s'était brusquement éteinte. Au même moment, il avait perçu une puissance capable de faire battre son cœur avec force.
+Un cri de rage retentit depuis la Ville de la Famille Teng alors que Teng Huayuan s'en échappait comme un éclair. À l'instant d'avant, il avait senti la présence de Teng Cinq, puis celle-ci s'était brusquement éteinte. Au même moment, il avait perçu une puissance capable de faire battre son cœur avec force.
 
 Alors que Teng Huayuan arrivait, le nuage noir dans le ciel bougea pour former un visage: celui de Wang Lin.
 
 Il regarda froidement Teng Huayuan, esquissa un sourire cruel et disparut.
 
-Le niveau de culture de Teng Four n'était pas élevé; il n'était qu'au stade initial de l'Âme Naissante, ayant reçu sa position de membre central de la famille il y a seulement vingt ans.
+Le niveau de culture de Teng Quatre n'était pas élevé; il n'était qu'au stade initial de l'Âme Naissante, ayant reçu sa position de membre central de la famille il y a seulement vingt ans.
 
 Actuellement, il planait sur une épée volante à toute allure. Il était accablé par le chagrin face aux membres de sa famille tombés au combat; l'un d'eux était son propre frère cadet.
 

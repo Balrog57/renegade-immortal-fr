@@ -56,7 +56,7 @@ Huang Long fronça les sourcils, s'apprêtant à lui demander quelle technique i
 
 « Je suis Pu Nanzi de la Secte Xuan Dao. Jeunes gens de la Secte Heng Yue, sortez vite pour me saluer! »
 
-Le visage de Huang Long changea brusquement. À cet instant, plus d'une dizaine de silhouettes surgirent des bâtiments environnants. Les deux figures en tête étaient les plus remarquables. L'une d'elles avait le teint rouge et un regard clair et perçant.
+Le visage de Huang Long changea brusquement. À cet instant, plus d'une dizaine de silhouettes surgirent des bâtiments environnants. Les deux figures en tête étaient les plus remarquables. L'un était un vieillard aux cheveux blancs et au visage d'enfant, au regard étincelant.
 
 À ses côtés se tenait une vieille femme au visage profondément ridé et à l'air lugubre. Elle lança un regard glacial à Huang Long et Wang Lin, puis fixa silencieusement le ciel.
 
@@ -66,32 +66,32 @@ Situ Nan dit d'un ton grave: « Wang Lin, il y a un cultivateur de l'Âme Naissa
 
 Wang Lin prit une profonde inspiration, l'esprit troublé.
 
-L'homme au visage rouge s'écria: « Senior Pu Nanzi, j'ignore pourquoi vous venez ainsi à la Secte Heng Yue. Veuillez nous en expliquer la raison! »
+Le vieillard aux cheveux blancs s'écria: « Senior Pu Nanzi, j'ignore pourquoi vous venez ainsi à la Secte Heng Yue. Veuillez nous en expliquer la raison! »
 
 Une silhouette imposante apparut dans les airs. Son visage était empreint de dignité et il déclara d'une voix grave: « Il y a 500 ans, j'aurais été intimidé par la formation défensive de la Secte Heng Yue, mais aujourd'hui, elle n'est que médiocre. Une fois cette formation brisée, je m'entretiendrai avec vous, les juniors. »
 
-Sur ce, il agita la main et une petite colline noire apparut. Cette colline se mit à mouvoir, créant des courants d'air qui se transformèrent rapidement en un gigantesque tourbillon. Ses deux mains formèrent des sceaux tandis que des incantations complexes s'échappaient de sa bouche.
+Sur ce, il agita la main et une petite colline noire apparut. Cette colline grandit aussitôt dans le vent et se changea en une montagne gigantesque. Ses deux mains formèrent des sceaux tandis que des incantations complexes s'échappaient de sa bouche.
 
-La colline géante s'abattit vers le sol. Un écran de lumière apparut entre le Pic des Pins et le Pic Heng Yue. Cet écran prit la forme d'une coupe concave pour protéger la Secte Heng Yue de l'impact.
+La montagne gigantesque s'abattit vers le sol. Un écran de lumière apparut entre le Pic des Pins et le Pic Heng Yue. Cet écran prit la forme d'un bol renversé pour protéger la Secte Heng Yue de l'impact.
 
-« Pas moins impressionnant que les grandes sectes d'il y a 500 ans. Cette formation défensive doit dissimuler des techniques avancées. Elle parvient à disperser la puissance du choc, mais je veux voir combien de mes attaques elle peut encaisser sans qu'une Âme Naissante ne soit là pour la maintenir. » Pu Nanzi laissa échapper un sourire glacial; sa main bougea rapidement pour former un autre tourbillon géant qui s'abattit à nouveau.
+« Pas moins impressionnant que les grandes sectes d'il y a 500 ans. Cette formation défensive doit dissimuler des techniques avancées. Elle parvient à disperser la puissance du choc, mais je veux voir combien de mes attaques elle peut encaisser sans qu'une Âme Naissante ne soit là pour la maintenir. » Pu Nanzi laissa échapper un sourire glacial; sa main bougea rapidement et fit tournoyer la montagne gigantesque, qui s'abattit à nouveau.
 
-Le visage de l'homme au teint rouge devint livide. Il balaya l'air devant lui, créant une faille spatiale. Il s'y engouffra rapidement, suivi par les autres.
+Le visage du vieillard aux cheveux blancs devint livide. Il balaya l'air devant lui, créant une faille spatiale. Il s'y engouffra rapidement, suivi par les autres.
 
 Huang Long murmura précipitamment: « Wang Lin, suis-moi de près! » Sur ce, son corps fendit l'air comme une flèche pour pénétrer dans la faille.
 
 Wang Lin fit un pas et les suivit de près.
 
-À cet instant, le tourbillon s'abattit à nouveau. Un rugissement tonnerre retentit lorsque la tornade percuta l'écran de lumière. Des éclats multicolores jaillirent de la barrière qui tenait tant bien que mal.
+À cet instant, la montagne s'abattit à nouveau. Un rugissement de tonnerre retentit lorsqu'elle percuta l'écran de lumière. Des éclats multicolores jaillirent de la barrière qui tenait tant bien que mal.
 
-Wang Lin traversa la faille et réapparut sur la plateforme du Pic des Pins. À cet instant, l'homme au visage rouge et la vieille femme étaient assis au sommet de l'un des huit piliers de jade blanc. Leurs mains traçaient divers sceaux tout en psalmodiant des incantations complexes.
+Wang Lin traversa la faille et réapparut sur la plateforme du Pic des Pins. À cet instant, le vieillard aux cheveux blancs et la vieille femme étaient assis au sommet de l'un des huit piliers de jade blanc. Leurs mains traçaient divers sceaux tout en psalmodiant des incantations complexes.
 
 Sur les six autres piliers de jade blanc siégeaient six autres Anciens de l'Établissement des Fondations. Leurs visages étaient empreints d'amertume et d'inquiétude.
 
-La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples internes ici. C'est le plus grand désastre que la Secte Heng Yue ait jamais connu. » Sur ces mots, elle expulsa une bouffée d'énergie essentielle dans le pilier de jade blanc.
+La vieille femme ordonna: « Huang Long, vite! Rassemble tous les disciples internes ici. C'est le plus grand désastre que la Secte Heng Yue ait connu en cinq cents ans. » Sur ces mots, elle expulsa une bouffée d'énergie du Noyau dans le pilier de jade blanc.
 
 Le corps de Huang Long trembla. Sans dire un mot, il s'élança vers le pont menant au Pic Heng Yue.
 
-« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la petite colline, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins.
+« Hmph. Elle a résisté à deux attaques. Que cette troisième attaque la brise! » Pu Nanzi laissa échapper un ricanement froid. Il projeta une bouffée d'énergie de l'Âme Naissante dans la montagne, qui grandit alors dix fois, obscurcissant le ciel au-dessus du Pic des Pins.
 
 Dans un fracas assourdissant, l'un des piliers de jade blanc se brisa. L'Ancien de l'Établissement des Fondations qui siégeait dessus saigna abondamment par tous les orifices et s'effondra au sol.

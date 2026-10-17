@@ -10,13 +10,13 @@ Le temps avait filé depuis qu'il était entré dans la Secte Heng Yue. Wang Lin
 
 L'espace de rêve pouvait être investi trois fois par jour. Chaque session durait environ cinquante heures, ce qui représentait un total d'environ six jours.
 
-Deux mois s'étaient écoulés dans le monde réel, mais il s'était cultivé pendant une année entière.
+Deux mois s'étaient écoulés dans le monde réel, mais il avait cultivé pendant une année entière.
 
-Wang Lin ne l'avait pas perçu auparavant, mais la culture était un processus extrêmement aride et monotone. Grâce à l'eau de source imprégnée d'énergie spirituelle, il n'avait plus besoin de se nourrir abondamment; son quotidien consistait désormais uniquement en sa culture.
+Wang Lin ne l'avait pas perçu auparavant, mais la culture était un processus extrêmement aride et monotone. Grâce à l'eau de source imprégnée d'énergie spirituelle, il n'avait même plus besoin de manger; son quotidien consistait désormais uniquement en sa culture.
 
 Il répétait la technique de respiration « une longue, trois courtes » tandis que l'énergie spirituelle pénétrait dans son corps. S'il n'avait pas eu les regards empreints d'espoir de ses parents qui lui revenaient sans cesse à l'esprit, il était certain qu'il n'aurait pu supporter cette culture aussi fastidieuse.
 
-Surtout lorsqu'il pensait que Wang Zhuo avait réussi à atteindre le premier niveau de la Condensation de Qi en seulement trois mois. Un sentiment d'insatisfaction ne cessait de poindre dans son cœur. Il sortait presque jamais de chez lui, totalement dévoué à sa culture.
+Surtout lorsqu'il pensait que Wang Zhuo avait réussi à atteindre le premier niveau de la Condensation de Qi en seulement trois mois. Un sentiment d'insatisfaction ne cessait de poindre dans son cœur. Il ne sortait presque jamais de chez lui, totalement dévoué à sa culture.
 
 Wang Lin était la risée de la Secte Heng Yue. Bien que beaucoup se moquaient de lui, rares étaient ceux qui lui prêtaient véritablement attention.
 
@@ -26,13 +26,13 @@ Grâce à ces circonstances, et au fait que Wang Lin dissimulait précieusement 
 
 Durant cette période, le nombre de fois où Wang Lin avait consommé l'eau de source était devenu incalculable. En somme, chaque fois qu'il sentait son corps manquer d'énergie spirituelle, il en buvait quelques grandes gorgées.
 
-Si Sun Dazhu l'avait su, son cœur se serait déchiré de douleur. Il aurait probablement tué ce disciple d'un seul revers de main. Dans toute la communauté des cultivateurs du pays de Zhao, qui d'autre pouvait cultiver ainsi, en s'abreuvant quotidiennement d'une eau de source saturée d'énergie spirituelle? Seuls quelques vieux monstres de sectes pourraient prétendre à de tels privilèges. Ils devraient s'emparer d'une montagne regorgeant d'énergie spirituelle pour obtenir des résultats comparables à ceux que l'eau de source apportait à Wang Lin.
+Si Sun Dazhu l'avait su, son cœur se serait déchiré de douleur. Il aurait probablement tué ce disciple d'un seul revers de main. Dans toute la communauté des cultivateurs du pays de Zhao, qui d'autre pouvait cultiver ainsi, en s'abreuvant quotidiennement d'une eau de source saturée d'énergie spirituelle? Seuls quelques vieux monstres de sectes pourraient prétendre à de tels privilèges. Ils devraient s'emparer de la grotte où l'énergie spirituelle est la plus dense de toute une montagne pour obtenir des résultats comparables à ceux que l'eau de source apportait à Wang Lin.
 
-L'énergie spirituelle occupait une place primordiale dans le cœur de tout cultivateur. Bien qu'il n'y eût pas d'abondance d'énergie spirituelle dans le pays de Zhao, celle-ci suffisait aux quelques sectes existantes. Si d'autres cultivateurs apprenaient comment Wang Lin utilisait cette ressource, leur cœur en mourrait de jalousie.
+L'énergie spirituelle occupait une place primordiale dans le cœur de tout cultivateur. Bien qu'il n'y eût pas d'abondance d'énergie spirituelle dans le pays de Zhao, celle-ci suffisait aux quelques sectes existantes. Si d'autres cultivateurs apprenaient comment Wang Lin utilisait cette ressource, ils auraient, comme son maître, le cœur brisé de douleur.
 
 Si l'eau de source de Wang Lin était utilisée pour la fabrication de pilules immortelles, elle augmenterait considérablement le taux de réussite. Bien que la confection de pilules dépende principalement des ingrédients, un surplus d'énergie spirituelle pouvait accomplir des miracles.
 
-Grâce au réservoir infini d'énergie spirituelle contenu dans la perle, la quantité d'énergie en l'intérieur du corps de Wang Lin augmentait sans cesse.
+Grâce à ce soutien en énergie spirituelle presque inépuisable, la quantité d'énergie à l'intérieur du corps de Wang Lin augmentait sans cesse.
 
 Aujourd'hui, alors qu'il cultivait dans l'espace de rêve, il pouvait clairement sentir l'énergie spirituelle circuler en lui. À chaque expiration, deux longs dragons blancs jaillissaient de ses narines.
 
@@ -60,13 +60,13 @@ Wang Lin ouvrit les yeux. Assis sur son lit, il réfléchit un instant avant d'o
 
 Il laissa échapper un sourire. Après avoir atteint le premier niveau de la Condensation de Qi, il pouvait ressentir l'énergie spirituelle du ciel et de la terre. Il prit une grande inspiration et réalisa soudain que son corps était collant, ce qui le fit rire. Les Trois Étapes de la Condensation de Qi mentionnaient qu'après avoir atteint ce premier niveau, les impuretés du corps étaient expulsées. C'était une étape nécessaire à la transformation physique.
 
-Wang Lin ouvrit sa porte. C'était l'après-midi. D'un pas vif, il sortit par la porte est et se rendit en aval. Il se déshabilla et sauta dans la rivière pour se laver. La crasse sombre était très grasse et mit longtemps à disparaître.
+Wang Lin ouvrit sa porte. C'était l'après-midi. D'un pas vif, il sortit par la porte est et se rendit à la source de la montagne, en aval. Il se déshabilla et sauta dans la rivière pour se laver. La crasse sombre était très grasse et mit longtemps à disparaître.
 
 Une fois propre, il s'allongea sur un rocher. Il se remémora une technique mentionnée dans les Trois Étapes de la Condensation de Qi.
 
 Elle présentait une technique immortelle appelée la Technique de l'Attraction. Elle était considérée comme l'une des techniques les plus élémentaires et pouvait être utilisée dès que le premier niveau de la Condensation de Qi était atteint.
 
-La Secte Heng Yue avait unifié le pays de Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple interne pouvait aller à la Bibliothèque des Écritures choisir librement parmi une multitude de méthodes, mais la plupart des Anciens recommandaient la culture de l'épée.
+La Secte Heng Yue avait unifié le pays de Zhao il y a cinq cents ans. Bien qu'elle ait décliné, elle possédait encore de nombreuses techniques immortelles. Chaque disciple interne pouvait aller à la Bibliothèque des Écritures choisir librement parmi une multitude de méthodes, mais la plupart des aînés conseillaient de choisir la voie de l'épée.
 
 La culture de l'épée consistait à concentrer toute sa pratique sur l'arme. Bien que le chemin de la culture soit plus difficile par la suite, cette voie était extrêmement puissante au début et facile à maîtriser. La Technique de l'Attraction constituait d'ailleurs la base pour contrôler les épées volantes.
 

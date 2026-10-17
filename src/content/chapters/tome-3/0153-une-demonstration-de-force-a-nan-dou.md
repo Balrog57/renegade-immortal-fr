@@ -6,29 +6,29 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 153 - A Show of Strength at Nan Dou
 slug: une-demonstration-de-force-a-nan-dou
 ---
-Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois sectes dirigeantes ou pour la Secte de la Lutte contre le Mal, on leur témoignait toujours le respect.
+Ces cultivateurs étaient tous au stade intermédiaire de la Formation du Noyau. En temps normal, ils ne se consacraient qu'à leur culture. Que ce soit pour les trois grandes sectes de la ville de Nan Dou ou pour la Secte de la Lutte contre le Mal, on leur témoignait toujours des égards.
 
 Si l'ordre de mise à mort n'était pas apparu, ces gens ne se seraient jamais manifestés.
 
-Un homme au teint rubicond mais à l'expression maléfique fixa Wang Lin. Ses pupilles se rétractèrent tandis qu'il disait d'une voix lente: « Nous devons agir rapidement. Si cela continue, nous attirerons inévitablement des cultivateurs de l'Âme Naissante. Même s'il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de Nan Dou, qu'en sera-t-il au-delà? Dès qu'un tel expert arrivera, nous n'aurons plus aucune chance de réussir. »
+Un vieillard aux cheveux blancs et au visage d'enfant, mais imprégné d'une aura maléfique, fixa Wang Lin. Ses pupilles se rétractèrent tandis qu'il disait d'une voix lente: « Nous devons agir rapidement. Si cela continue, nous attirerons inévitablement des cultivateurs de l'Âme Naissante. Même s'il n'y a aucun cultivateur de l'Âme Naissante dans un rayon d'un million de lieues autour de Nan Dou, qu'en sera-t-il au-delà? Dès qu'un tel expert arrivera, nous n'aurons plus aucune chance de réussir. »
 
-Un vieil homme, ayant vu Wang Lin tuer si aisément un cultivateur de la Formation du Noyau, ajouta lentement: « Cet individu n'est qu'au stade initial de la Formation du Noyau, mais pourquoi est-il si puissant? En voyant que le vieux démon Shang Guanmo est même prêt à devenir son disciple, même si nous tentions d'agir, nous ne pourrions probablement rien en tirer. »
+Un vieillard décharné, qui venait de voir Wang Lin tuer d'un geste un cultivateur du stade initial de la Formation du Noyau et lui arracher son noyau doré, ajouta, le cœur encore tremblant: « Cet individu n'est qu'au stade initial de la Formation du Noyau, mais pourquoi est-il si puissant? En voyant que le vieux démon Shang Guanmo est même prêt à devenir son disciple, même si nous tentions d'agir, nous ne pourrions probablement rien en tirer. »
 
-« Il y a aussi cette épée volante. Je n'ai jamais vu une épée capable de se téléporter auparavant. Cette arme doit être au moins un trésor de niveau Âme Naissante, voire de niveau Formation de l'Âme. Elle a déjà tué cent personnes. »
+« Il y a aussi cette épée volante. Je n'ai jamais vu une épée aussi étrange: elle peut se téléporter! C'est un pouvoir que seuls les cultivateurs de l'Âme Naissante maîtrisent. Cette arme doit être au moins un trésor de niveau Âme Naissante, voire de niveau Formation de l'Âme. Elle a déjà tué une centaine de cultivateurs d'un niveau inférieur. »
 
-« Hmph, n'avez-vous pas vu les dix corps qui étaient traînés derrière ce démon? C'étaient des Anciens de la Secte de la Lutte contre le Mal. Il peut massacrer des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité vous aveugle, c'est votre problème, mais je ne m'embarquerai pas dans ce chaos. Adieu! » L'un des cultivateurs jeta un regard chargé de terreur vers Wang Lin, puis, après avoir parlé, sortit un bateau et s'éclipsa rapidement.
+« Hmph, n'avez-vous pas remarqué les dix premiers corps attachés à la corde derrière ce démon? C'étaient des Anciens de la Secte de la Lutte contre le Mal. Il écrase des cultivateurs de la Formation du Noyau aussi facilement que des insectes. Si votre cupidité persiste, c'est votre affaire, mais moi, Ling, je ne m'en mêlerai absolument plus. Adieu! » L'un des cultivateurs, un homme d'une cinquantaine d'années, fixait de loin Wang Lin, qui venait de tuer plusieurs personnes avec une nonchalance déconcertante, avec une profonde méfiance. Après avoir parlé, il salua l'assemblée d'un poing dans la paume, recula précipitamment, tapa sur son sac de rangement, lança un bateau-navette, s'y assit et fila dans le ciel comme un météore vers le lointain.
 
-Les autres cultivateurs restèrent plongés dans leurs réflexions jusqu'à ce que l'un d'eux déclare soudainement: « Le messager de la mer intérieure va bientôt arriver. Je suis prêt à tuer cet homme pour sauver les économies de mes cent dernières années. Une fois cette pilule de culture en ma possession, je pourrai atteindre le stade avancé de la Formation du Noyau et protéger mes biens. »
+Les autres cultivateurs restèrent plongés dans leurs réflexions jusqu'à ce que l'un d'eux déclare soudainement: « Le messager de la mer intérieure va bientôt arriver. Cette fois, je ne me résignerai jamais à céder les économies de mes cent dernières années. C'est ma seule chance: si je tue cet homme et obtiens son noyau, une fois cette pilule de culture en ma possession, je pourrai atteindre le stade avancé de la Formation du Noyau et protéger mes biens. »
 
 Un vieil homme couvert de rides prit une profonde inspiration et murmura: « Il en est de même pour moi. Ma vie touchera à sa fin si je ne peux pas augmenter mon niveau de culture dans les dix prochaines années... cette fois, quoi qu'il arrive, je dois tenter ma chance! »
 
-Sur ces mots, son corps fendit l'air comme un éclair vers la position de Wang Lin, et les autres cultivateurs suivirent.
+Sur ces mots, son corps bougea et fila comme un éclair dans un grondement de vent et de tonnerre, droit vers la position de Wang Lin. Le cultivateur qui avait parlé auparavant frappa du pied et, transformé en lumière d'épée, le suivit de près.
 
-Les survivants restèrent silencieux, observant attentivement le duo. Ils avaient décidé que si les deux montraient ne serait-ce qu'une infime chance de victoire, ils attaqueraient tous ensemble; mais s'ils n'avaient aucune chance, ils s'enfuiraient pour ne pas faire de cet homme un ennemi.
+Les autres cultivateurs restèrent silencieux, mais leurs regards restaient rivés sur les deux hommes, observant l'évolution de la situation. Ils avaient décidé que si les deux montraient ne serait-ce qu'une infime chance de victoire, ils se jetteraient aussitôt à l'assaut; mais s'ils n'avaient aucun espoir, ils renonceraient résolument à faire de cet homme un ennemi.
 
-Wang Lin écarta le cultivateur de la Formation du Noyau déjà mort et saisit le noyau doré dans sa main. Il jeta un regard aux cultivateurs dispersés et ricana intérieurement. Il frappa le tendon de dragon et ordonna: « Sors. Pour aujourd'hui, tu peux dévorer autant que tu le souhaites. »
+Wang Lin repoussa le cultivateur de la Formation du Noyau déjà mort devant lui et jeta le noyau doré qu'il tenait dans son sac de rangement. Il jeta un regard aux nombreux cultivateurs dispersés autour de lui et ricana intérieurement. Il frappa le tendon de dragon derrière lui et dit calmement: « Sors. À partir d'aujourd'hui, tu peux dévorer autant que tu le souhaites. »
 
-Le démon qui résidait dans le tendon de dragon ne pouvait résister à l'attrait de toute cette nourriture délicieuse qui s'offrait à lui. Il n'osait toutefois pas sortir sans l'ordre de Wang Lin, mais en entendant ces paroles, il laissa échapper un rire et bondit hors du tendon. Révélant sa véritable forme, il se jeta sur un cultivateur de la Formation du Noyau en pleine fuite. Le corps de ce dernier se contracta avant de dépérir instantanément pour ne devenir qu'un squelette. Une brume rouge s'échappa de son crâne et le démon s'esclaffa: « Quel régal! Je peux enfin manger, je vais m'en donner à cœur joie! »
+Le démon qui résidait dans le tendon de dragon ne pouvait résister à l'attrait de toute cette nourriture délicieuse qui s'offrait à lui. Il n'osait toutefois pas sortir sans l'ordre de Wang Lin, mais en entendant ces paroles, il laissa échapper un rire et bondit hors du tendon. Révélant sa véritable forme, il se jeta sur un cultivateur de l'Établissement des Fondations qui fuyait éperdument. Le corps de ce dernier se contracta, puis dépérit rapidement pour ne devenir qu'un squelette. Une lumière rouge jaillit de son crâne et le démon s'esclaffa: « Quel régal! Je peux enfin manger, je vais m'en donner à cœur joie! »
 
 Wang Lin jeta un bref regard au démon avant de porter son attention sur Li Muwan. Le visage de celle-ci était pâle; elle fixait le démon en mordant sa lèvre inférieure. Elle ne savait pas ce que c'était, mais l'apparition de la créature l'avait terrassée de peur.
 
@@ -46,31 +46,31 @@ Cette bataille allait faire résonner le nom de Wang Lin dans toute la région d
 
 « Shang Guanmo, Mu Nan, Mu Bei, avez-vous assez vu? »
 
-La voix glaciale résonna dans l'esprit des trois hommes. Le corps de Shang Guanmo frissonna; il se concentra à nouveau et vola vers les deux cultivateurs qui approchaient. Son cœur était en plein chaos. Bien qu'il sût que ce monstre était puissant, il n'imaginait pas une telle force.
+La voix glaciale résonna dans l'esprit des trois hommes. Le corps de Shang Guanmo frissonna; il se ressaisit aussitôt et vola vers les deux cultivateurs qui approchaient. De grandes vagues se soulevaient dans son cœur. Bien qu'il sût que ce monstre était puissant, il n'imaginait pas une telle force: ce n'était pas une force ordinaire, mais une puissance céleste qui ignorait tous les sortilèges et tous les niveaux de culture.
 
-« Ce sort de mort... est véritablement terrifiant... si je ne meurs pas cette fois, je dois absolument essayer de le cultiver. Avec un tel pouvoir, je pourrais marcher avec arrogance dans la partie extérieure de la mer des démons. » Shang Guanmo prit une profonde inspiration, ne regrettant plus d'avoir cédé son essence de sang spirituel.
+« Ce sort de mort... est véritablement terrifiant... si je ne meurs pas cette fois, je dois absolument essayer de le cultiver. Avec un tel pouvoir, je pourrais marcher avec arrogance dans la partie extérieure de la Mer des Démons. » Shang Guanmo prit une profonde inspiration; pour la première fois, il ne regrettait plus d'avoir cédé son sang d'essence d'âme, et un sentiment complexe s'éleva en lui.
 
-Peu importe où l'on se trouve, les forts sont respectés. C'était particulièrement vrai dans la mer des démons.
+Peu importe où l'on se trouve, les forts sont respectés. C'était particulièrement vrai dans la Mer des Démons.
 
 Mu Nan et Mu Bei adoptèrent la même attitude que Shang Guanmo. Face à une telle puissance, la Secte de la Lutte contre le Mal n'avait aucune chance. S'ils voulaient vivre, ils devaient suivre ce redoutable démon. Les deux frères se regardèrent, serrèrent les dents et suivirent rapidement Shang Guanmo.
 
-Shang Guanmo aperçut l'un des adversaires et éclata de rire: « Ha ha! Si ce n'est pas le vieux Ouyang. Cela faisait longtemps que nous ne nous étions pas vus, retrouvons nos vieux souvenirs! » Il toucha immédiatement l'épée dans son dos. L'épée noire s'élança et chargea le vieil homme.
+Shang Guanmo aperçut l'un des adversaires et éclata de rire: « Ha ha! Si ce n'est pas le vieux Ouyang. Cela faisait longtemps que nous ne nous étions pas vus, retrouvons nos vieux souvenirs! » En même temps, d'un geste de la main droite, il fit sortir de son fourreau l'épée noire dans son dos, qui fila droit sur le vieil homme en laissant une traînée de lumière tranchante.
 
 Quant aux frères Mu, bien qu'ils fussent tous deux au stade initial de la Formation du Noyau, ils avaient l'habitude de combattre en duo. Malgré leur désavantage, ils parvenaient encore à tenir bon.
 
 Le regard de Wang Lin balaya les cultivateurs de la Formation du Noyau situés à mille lieues et ses yeux devinrent glacials. Les survivants s'étaient déjà enfuis au loin, souhaitant tous avoir une paire de jambes supplémentaire pour courir plus vite. La silhouette de Wang Lin était désormais gravée dans leurs cœurs et ne s'effacerait jamais.
 
-Parmi les quatre cultivateurs restés au stade intermédiaire de la Formation du Noyau à mille lieues de là, l'homme au teint rubicond secoua la tête. Il se retourna pour partir, mais ses pupilles se contractèrent soudainement.
+Parmi les quatre cultivateurs restés au stade intermédiaire de la Formation du Noyau à mille lieues de là, le vieillard aux cheveux blancs et au visage d'enfant, imprégné d'une aura maléfique, secoua la tête. Il se retourna pour partir, mais ses pupilles se contractèrent soudainement.
 
 Un homme et une femme se tenaient à 33 mètres derrière lui. Au-dessus de la tête de l'homme flottait le symbole rouge sang « Punir ». Les autres cultivateurs remarquèrent le danger et sortirent leurs trésors comme face à un ennemi redoutable, mais aucun n'osa passer à l'acte en premier.
 
 Wang Lin les scruta et ordonna froidement: « Fichez le camp! »
 
-Parmi les quatre, seul le vieil homme qui s'apprêtait à partir montra un regard de gratitude avant de s'éclipser rapidement. Les visages des trois autres passèrent du rouge au blanc alors qu'ils reculaient lentement. L'un d'eux grogna: « Ce qui s'est passé aujourd'hui... »
+Parmi les quatre, seul le vieillard décharné de tout à l'heure montra un regard de gratitude, rangea son trésor et s'éclipsa à toute vitesse. Les visages des trois autres passèrent du rouge au blanc alors qu'ils reculaient lentement. L'un d'eux grogna: « Ce qui s'est passé aujourd'hui... »
 
-Li Muwan soupira intérieurement: « Pourquoi ne partez-vous pas plus vite? À quoi bon dire ces paroles inutiles? » Effectivement, avant qu'il n'ait fini sa phrase, Wang Lin fronça les sourcils et agita la main. Son domaine Ji s'élança, et les yeux du cultivateur devinrent instantanément rouge sang. Il se prit la tête avant qu'elle n'explose dans un fracas sinistre, libérant un noyau doré ensanglanté qui vola directement dans la main de Wang Lin.
+Li Muwan soupira intérieurement: « Pourquoi ne partez-vous pas plus vite? À quoi bon dire ces paroles inutiles? » Effectivement, avant qu'il n'ait fini sa phrase, Wang Lin fronça les sourcils et agita la main. Son Sens Divin du Royaume Ji se déploya aussitôt, et les yeux du cultivateur devinrent instantanément rouge sang. Il se prit la tête avant qu'elle n'explose dans un fracas sinistre, libérant un noyau doré ensanglanté qui vola directement dans la main de Wang Lin.
 
-Les deux autres cultivateurs firent demi-tour et s'enfuirent sans dire un mot. Wang Lin les fixa, leur laissant une empreinte de son domaine Ji.
+Les deux autres cultivateurs firent demi-tour et s'enfuirent sans dire un mot. Wang Lin les fixa et projeta soudain son Sens Divin du Royaume Ji, laissant une marque sur chacun d'eux.
 
 À cet instant, le cultivateur qui combattait Shang Guanmo poussa un cri misérable et tenta de fuir. Mais alors qu'il s'échappait, l'épée cristalline du démon apparut soudainement devant lui. Le démon grogna: « Arrête de me voler! Celui-ci est à moi! À MOI! »
 

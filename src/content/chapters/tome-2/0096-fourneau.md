@@ -6,23 +6,23 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 96 - Furnace
 slug: fourneau
 ---
-Au moment où cette voix puissante retentit, le son se mua en un vent violent qui fit vaciller les boules de feu environnantes. Des échos tonnèrent dans la grotte, dégageant une sensation de châtiment divin.
+Au moment où cette voix puissante retentit, le son se mua en rafales de vent et de tonnerre, et les boules de feu sur les piliers de pierre alentour s'assombrirent de nouveau. Des échos tonnèrent dans la grotte, donnant l'illusion de la puissance céleste.
 
 Wang Lin prit une profonde inspiration. Il joignit les mains et dit respectueusement: « Salutations, Senior Ye. »
 
-La silhouette se solidifia lentement pour prendre l'apparence d'un homme d'une quarantaine d'années. C'était un homme très beau; ses yeux étincelaient comme des étoiles et sa peau était aussi lisse que le jade. Il regarda Wang Lin d'un visage impassible et dit: « Mu Rong, tu peux disposer. »
+La silhouette se solidifia lentement pour prendre l'apparence d'un homme d'une quarantaine d'années. C'était un homme très beau; ses sourcils étaient noirs comme la laque, ses yeux étincelaient comme des étoiles et son visage était pâle comme le jade. Il regarda Wang Lin d'un visage impassible et dit: « Mu Rong, tu peux disposer. »
 
 Mu Rong, qui était agenouillé au sol, se leva prestement, s'élança vers l'une des grottes et disparut sans laisser de trace.
 
-Ye Zizai agita sa main droite et un rideau de lumière apparut soudainement pour les envelopper. Il soupira avec une pointe de mélancolie: « Wang Lin, tu n'es pas un disciple de la Secte des Cadavres. Inutile de mentir. Mon frère cadet Wu Yu doit avoir rencontré des difficultés. Wang Lin, il n'y a personne d'autre ici, alors dis-moi la vérité. »
+Ye Zizai agita sa main droite et un rideau de lumière apparut soudainement pour les envelopper. Il soupira avec une pointe de mélancolie: « Wang Lin, tu n'es pas un disciple de la Secte des Cadavres. Inutile de te contraindre. Mon frère cadet Wu Yu doit avoir rencontré des difficultés. Wang Lin, il n'y a personne d'autre ici, alors dis-moi la vérité. »
 
-Wang Lin se redressa. Il y avait déjà réfléchi en chemin; il ne pourrait jamais tromper un cultivateur de l'Âme Naissante comme Ye Zizai, il décida donc de dire la vérité.
+Wang Lin se redressa. Il y avait déjà réfléchi avant de venir: l'affaire du disciple de Wu Yu ne pouvait absolument pas échapper à un expert de l'Âme Naissante comme Ye Zizai, il décida donc de dire la vérité.
 
-Après avoir mûrement réfléchi, Wang Lin raconta tout ce qui s'était passé dans les ruines.
+Après un instant de réflexion, Wang Lin raconta tout ce qu'il avait vu dans les ruines de la jungle.
 
 Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon frère cadet, comment une révolte de marionnette de stade intermédiaire de l'Âme Naissante pourrait-elle être aussi facile à gérer que tu le prétends? Même si j'y vais, je ne pourrai rien pour toi. »
 
-« Puisque tu as chargé Wang Lin de transmettre ce message, c'est que tu as d'autres intentions... » Sur ces mots, Ye Zizai déploya son sens divin et fut stupéfait. La méthode que cultivait ce Wang Lin était très proche de celle de la Secte des Cadavres; il était imprégné d'énergie Yin. Après un instant de réflexion, Ye Zizai comprit l'intention de Wu Yu.
+« Puisque tu as chargé Wang Lin de transmettre ce message, c'est que tu as d'autres intentions... » Sur ces mots, Ye Zizai déploya son sens divin et poussa soudain un léger murmure de surprise. La méthode que cultivait ce Wang Lin était très proche de celle de la Secte des Cadavres; il était imprégné d'énergie Yin. Après un instant de réflexion, Ye Zizai comprit l'intention de Wu Yu.
 
 C'était la manière dont Wu Yu envoyait un appel au secours tout en introduisant un disciple au sein de la secte. Après avoir scruté Wang Lin, il posa son regard sur Adai. Après une courte réflexion, il saisit parfaitement les intentions de Wu Yu: le corps d'Adai était fait pour pratiquer les méthodes de culture de la Secte des Cadavres.
 
@@ -30,13 +30,13 @@ Une fois son regard détourné, Ye Zizai demanda lentement à Wang Lin: « Est-c
 
 Wang Lin hocha la tête.
 
-Ye Zizai prit une profonde inspiration et déclara avec détermination: « Wang Lin, j'ai examiné ton énergie spirituelle et elle possède de fortes propriétés Yin. Si tu cultivais ici, tes progrès seraient bien plus aisés. Wang Lin, es-tu prêt à devenir un disciple de la Secte des Cadavres? »
+Ye Zizai prit une profonde inspiration et déclara avec détermination: « Wang Lin, j'ai examiné l'énergie spirituelle en toi: son attribut penche vers le froid et l'on peut dire qu'elle a la même origine que celle de ma Secte des Cadavres. Si tu cultivais ici, tu obtiendrais le double de résultats pour moitié moins d'efforts. Wang Lin, es-tu prêt à devenir un disciple de la Secte des Cadavres? »
 
 Wang Lin avait déjà anticipé ce qui pouvait arriver en chemin. Le recrutement de Ye Zizai était conforme à ses attentes; il répondit donc respectueusement: « Ce disciple est prêt. »
 
 Ye Zizai acquiesça et dit: « Très bien. Puisque tu as eu la chance de rencontrer mon frère cadet Wu Yu, autant devenir son véritable disciple. Désormais, tu es un disciple de la deuxième génération de la Secte des Cadavres. »
 
-Puis, il pointa Adai du doigt et ajouta: « Je vais emmener Adai avec moi. » Voyant l'hésitation de Wang Lin, il précisa: « Ne t'inquiète pas. Il entretient un lien si profond avec mon frère cadet que je n'oserais pas lui faire de mal. Je vais le prendre comme disciple personnel. »
+Puis, il pointa Adai du doigt et ajouta: « Je vais emmener Adai avec moi. » Voyant l'hésitation de Wang Lin, il précisa: « Ne t'inquiète pas. Il entretient un lien si profond avec mon frère cadet que je ne lui ferai aucun mal. Je vais le prendre comme disciple personnel. »
 
 Sur ces mots, il agita la main droite et lança un jade bleu foncé. Puis, il saisit Adai d'un geste brusque. Adai poussa un cri alors qu'ils disparaissaient dans les profondeurs des grottes.
 
@@ -52,13 +52,13 @@ Mu Rong regarda le jade dans la main de Wang Lin avec envie, esquissa un sourire
 
 « Regardez la couleur de mon jade. Le jade est l'unique marque d'identification dans la Secte des Cadavres. Le jade du Premier Ancêtre est vert, ceux des Ancêtres sont bleu foncé, les jades des Anciens sont bleu clair, et tous les disciples portent un jade blanc. »
 
-Wang Lin rangea son précieux et s'apprêtait à parler quand, soudain, les boules de feu sur le pilier scintillèrent, libérant une fumée verte.
+Wang Lin rangea son jade et s'apprêtait à parler quand, soudain, les boules de feu sur les piliers de pierre alentour vacillèrent à plusieurs reprises, et plusieurs fines volutes de fumée s'entrelacèrent pour former un filet de fumée verte.
 
 L'expression de Mu Rong changea. Il forma un sceau de la main et ordonna: « Rassemblement! »
 
 La fumée verte convergea rapidement vers Mu Rong et pénétra dans son front.
 
-Mu Rong ferma les yeux. Peu après, il les rouvrit et dit: « Ancêtre, le Premier Ancêtre Ye Zizai a préparé une chambre pour vous. Je vous y accompagnerai sous peu. »
+Mu Rong ferma les yeux. Peu après, il les rouvrit et dit: « Ancêtre, le Premier Ancêtre Ye Zizai a préparé une salle de culture pour vous. Je vous y conduis maintenant? »
 
 Wang Lin était très impressionné par les techniques de la Secte des Cadavres, comme cette méthode utilisant la fumée pour transmettre un message. Il se frotta le menton en hochant la tête.
 
@@ -72,25 +72,25 @@ Bien qu'on les qualifie de secte démoniaque, ce terme n'était pas aussi frappa
 
 Chaque disciple cultivait avec une ferveur obsessionnelle, contraint par les exigences cruelles de la secte. Si l'on n'atteignait pas le 10ème niveau de Condensation de Qi en 10 ans, l'Établissement des Fondations en 30 ans, ou la Formation du Noyau en 100 ans, on était transformé en marionnette de cadavre.
 
-Ce système impitoyable agissait comme un fouet, poussant les disciples à une culture frénétique. Chaque année, plusieurs d'entre eux étaient ainsi raffinés en marionnettes, sous le regard de tous leurs pairs. De même, chaque année, des disciples étaient envoyés pour trouver des mortels compatibles afin de remplacer ceux qui avaient péri.
+Ce système impitoyable agissait comme un fouet, poussant les disciples à une culture frénétique. Chaque année, plusieurs d'entre eux étaient ainsi raffinés en marionnettes, sous le regard de tous leurs pairs, qui y puisaient un avertissement. De même, chaque année, des disciples étaient envoyés pour trouver des mortels à l'excellente constitution et, par tous les moyens, les ramener à la secte afin de combler le nombre de disciples perdus.
 
 Ce n'était pas que les disciples ne souhaitaient pas se rebeller, mais tous les membres acceptés voyaient une partie de leur âme extraite et scellée dans un jade. Ces jades étaient divisés en quatre rangs: le jade vert du Premier Ancêtre pouvait contrôler n'importe quel disciple; le jade bleu foncé des Ancêtres avait un effet similaire, tout comme le jade bleu clair des Anciens.
 
-Sous ce contrôle omniprésent, nul n'osait la rébellion. Mu Rong précisa également à Wang Lin que cette secte n'était qu'une branche de la véritable Secte des Cadavres. Il avait déjà vu un messager provenant d'un pays de rang 5; même l'esclave de ce messager atteignait au moins le stade de l'Âme Naissante.
+Sous ce contrôle omniprésent, nul n'osait la rébellion. Mu Rong fit également comprendre à demi-mot à Wang Lin que la Secte des Cadavres était une immense organisation dont le pays de Zhao n'était qu'une branche. Il avait déjà vu un messager de la Secte des Cadavres d'un pays de rang 5 venu inspecter les lieux; même les serviteurs de ce messager avaient tous la culture de l'Âme Naissante.
 
 Plus Wang Lin écoutait, plus il était sidéré. Il se demandait pourquoi Ye Zizai n'avait pas scellé une partie de son âme dans le jade qu'il venait de lui remettre.
 
-Cette même interrogation traversa l'esprit de Ye Zizai lorsqu'il retourna dans sa propre grotte.
+La même question retentit, venue de l'intérieur du corps de Ye Zizai, lorsqu'il fut revenu dans la grotte la plus profonde du sous-sol.
 
 « Pourquoi n'as-tu pas scellé une partie de son âme dans le jade? » demanda une voix rauque, semblable au frottement de deux plaques de fer.
 
-Ye Zizai frappa le front d'Adai pour sceller ses sens. Puis, il se retourna et s'assit en tailleur sur le lit noir. Il pointa son propre front et son corps trembla alors qu'une figure illusoire apparaissait à ses côtés.
+Ye Zizai posa la main droite sur la tête d'Adai pour sceller ses cinq sens. Puis, il se retourna et s'assit en tailleur sur un lit de pierre noir. Il forma un sceau de la main droite et toucha son propre front; tout son corps trembla alors qu'une figure illusoire sortait lentement de lui.
 
 Cette figure était très floue; on ne pouvait distinguer ses traits. Elle flottait autour d'Adai, l'observant, avant de tendre la main vers le crâne du garçon.
 
-Ye Zizai fronça les sourcils. Il agita la main droite et cracha une bouffée de feu Yin bleu qui, en se matérialisant, forma un mur bloquant la main de l'entité.
+Ye Zizai fronça les sourcils. Il agita la main droite et cracha une bouffée de feu bleu de l'Âme Naissante qui, dès son apparition, se changea en un long arc lumineux et bloqua la griffe de l'entité.
 
-Ye Zizai dit froidement: « Luo Sha, cet homme est le disciple personnel de mon frère cadet. Tu ne peux pas lui faire de mal. »
+Ye Zizai dit froidement: « Luo Sha, cet Adai est l'héritier que mon frère cadet a désigné à demi-mot. Tu ne dois pas lui faire de mal! »
 
 La figure laissa échapper un rire. Flottant dans les airs, les bras croisés sur ses épaules, elle dit d'une voix aiguë: « Ye Zizai, toi et ton frère cadet n'êtes que des fourneaux pour nous. Ton frère est parti trop tôt, avant que le Seigneur Zi ne puisse s'éveiller, et maintenant il te lance un appel à l'aide. Il se jette vraiment dans la gueule du loup. Ye Zizai, puisque tu connais déjà sa position, pourquoi n'irais-tu pas aider Seigneur Zi à dévorer Wu Yu? »
 

@@ -116,13 +116,13 @@ Dans une ville située à 5 000 kilomètres au sud, se trouvait une importante c
 
 Ils avaient tous été rassemblés ici pour aider au déblaiement de la neige. Da Niu vivait dans l'une de ces demeures.
 
-Trente autres personnes partageaient la maison avec lui, rendant ce logement déjà exigu encore plus étouffant. Da Niu fixait le plafond d'un regard vide.
+Plus de trente autres personnes partageaient la pièce avec lui, rendant ce logement déjà exigu encore plus étouffant. Da Niu fixait le plafond d'un regard vide.
 
 Son fils, sa femme et, par-dessus tout, Wang Lin lui manquaient.
 
 Tout avait été balayé par cette neige.
 
-Avant ces tempêtes, il était un homme qui disposait de temps libre, un boutiquier qui avait quelques employés sous ses ordres. Son fils était entré dans une secte d'immortels et était devenu un immortel.
+Avant ces tempêtes, il était un homme largement à l'abri du besoin, un boutiquier qui possédait sa propre boutique et quelques employés sous ses ordres. Son fils était entré dans une secte d'immortels et était devenu un immortel.
 
 Dans cette rue, on pouvait dire qu'il menait une vie prospère.
 

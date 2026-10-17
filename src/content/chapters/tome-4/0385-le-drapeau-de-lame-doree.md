@@ -28,7 +28,7 @@ Les deux yeux fantomatiques furent remplis de colère et le brouillard s'agita. 
 
 Le rugissement pénétra l'âme de Wang Lin, et il ressentit immédiatement une douleur fulgurante émanant des fissures de son âme originelle. Wang Lin recula promptement, le visage sombre.
 
-À ce moment précis, le brouillard noir s'agita avec encore plus de violence et se rétracta rapidement. Toute la brume se condensa au centre. En un clin d'œil, le brouillard noir s'était mué en une bête.
+À ce moment précis, le brouillard noir s'agita avec encore plus de violence et se rétracta rapidement. Toute la brume se condensa au centre. En un clin d'œil, le brouillard noir s'était mué en une bête à deux cornes, dont tout le corps exhalait des filaments de brume noire.
 
 Dès l'apparition de la créature, Wang Lin put voir qu'un petit drapeau doré se trouvait à l'intérieur du brouillard. C'était de ce drapeau que procédait la brume noire.
 
@@ -62,15 +62,15 @@ Le temps passa rapidement. En un clin d'œil, plusieurs mois s'étaient écoulé
 
 Lorsqu'il était arrivé, la zone autour de la grotte de Wang Lin n'était que hautes herbes et désolation. Après tout, l'endroit qu'il avait choisi était trop reculé.
 
-Mais désormais, les herbes sauvages avaient disparu, et quelqu'un avait même planté des fleurs très parfumées à proximité. Tous les rochers avaient été dégagés et remplacés par de la pierre lisse et taillée. Quelques auvents de pierre étaient même dispersés aux alentours.
+Mais désormais, les herbes sauvages avaient disparu, et quelqu'un avait même planté des fleurs très parfumées à proximité. Tous les rochers avaient été dégagés et remplacés par des dalles de pierre bleue immaculées. Quelques pavillons étaient même disséminés aux alentours.
 
 Quelqu'un avait même aménagé un bassin au centre, où nageaient de petits poissons dorés qui créaient occasionnellement des ondulations.
 
 Cela conférait à l'endroit une aura de paradis céleste.
 
-Xu Yun et Liu Wei étaient assises sous l'un des auvents, une assiette de fruits devant elles. Elles discutaient tout en jetant parfois un regard vers l'entrée de la grotte.
+Xu Yun et Liu Wei étaient assises dans l'un des pavillons, une assiette de fruits devant elles. Elles discutaient tout en jetant parfois un regard vers l'entrée de la grotte.
 
-Le sourcil de Liu Wei tressaillit alors qu'elle demandait: « Sœur apprentie aînée Xu Yun, pensez-vous que lorsque le frère apprenti Qing Mu sortira, il nous détestera pour avoir fait tout cela sans sa permission? »
+Le sourcil de Liu Wei tressaillit alors qu'elle demandait: « Sœur apprentie aînée Xu Yun, pensez-vous que lorsque le frère aîné Qing Mu sortira, il nous détestera pour avoir fait tout cela sans sa permission? »
 
 Liu Wei était l'une des deux jeunes filles mentionnées plus tôt. Elle avait une petite silhouette et était d'une tête plus courte qu'Xu Yun, mais son corps était très beau et gracieux.
 
@@ -82,19 +82,19 @@ Xu Yun acquiesça: « Avec notre talent, tant que personne ne nous vole, nous po
 
 Liu Wei murmura: « Sœur apprentie, je suis toujours un peu inquiète car nous avons de plus en plus de visiteurs chaque jour. Si le frère aîné Qing Mu découvre que c'est nous qui sommes à l'origine de tout cela, il ne nous fera peut-être pas de cadeau. »
 
-« Il ne devrait pas... » Avant qu'Xu Yun n'ait pu terminer sa phrase, un rayon de lumière rouge descendit soudainement du sommet de la montagne pour atterrir devant l'entrée de la grotte. La lumière révéla un homme d'âge mûr très beau. Ses longs cheveux flottant au vent lui donnaient une allure céleste.
+« Il ne devrait pas... » Avant qu'Xu Yun n'ait pu terminer sa phrase, un arc-en-ciel descendit soudainement du sommet de la montagne et, en atterrissant devant l'entrée de la grotte, se mua en un homme d'âge mûr vêtu d'une robe grise, très beau. Ses longs cheveux flottant au vent lui donnaient une allure céleste.
 
 « Frère apprenti Qing Mu, je suis Guo Dongjian. J'espère que nous pouvons discuter. »
 
-Xu Yun se leva et dit: « Frère aîné Guo, je vous prie de repartir; le frère apprenti Qing Mu est toujours en culture de méditation fermée. »
+Xu Yun se leva et dit: « Frère aîné Guo, je vous prie de repartir; le frère aîné Qing Mu est toujours en culture de méditation fermée. »
 
 Guo Dongjian fronça les sourcils. Il se tourna vers Xu Yun et demanda: « Vous deux êtes les concubines de Qing Mu? »
 
-Le visage de Liu Wei devint rouge et elle resta muette. L'expression d'Xu Yun resta impassible alors qu'elle répondait: « Frère aîné, nous sommes effectivement les concubines du frère apprenti Qing Mu. »
+Le visage de Liu Wei devint rouge et elle resta muette. L'expression d'Xu Yun resta impassible alors qu'elle répondait: « Frère aîné, nous sommes effectivement les concubines du frère aîné Qing Mu. »
 
 Les yeux de Guo Dongjian devinrent glacials et il s'écria: « Quelles idioties! Vous pouvez bien vouloir tromper les autres, mais vous osez me tromper, moi?! Vous deux, dégagez! »
 
-Sur ce, il se retourna et leva la main. Un rayon d'énergie spirituelle jaillit de sa paume, prit la forme d'un dragon et chargea vers la grotte.
+Sur ce, il se retourna et leva la main. Un rayon d'énergie spirituelle jaillit de sa paume, prit la forme d'un dragon azuré et chargea vers la grotte.
 
 Dès l'apparition du dragon, le vent se mit à hurler. Lorsque le dragon percuta la porte de la grotte, la restriction sur la paroi clignota, stoppant l'assaut, et une main géante apparut simultanément. La main colossale saisit le dragon et le broya. La créature poussa un hurlement misérable avant de se briser en éclats.
 
@@ -112,7 +112,7 @@ Le visage de Guo Dongjian s'assombrit alors qu'il sortait un petit drapeau marqu
 
 Il marmonna en reculant de quelques pas: « Je possède aussi un drapeau aux mille âmes. Si tu gagnes, je te le remettrai! »
 
-Les fragments d'âmes autour de lui chargèrent soudainement Wang Lin. Certains étaient au stade de l'Établissement des Fondations, d'autres à celui de la Formation du Noyau. Il y en avait même un qui avait développé des membres et dégageait l'aura d'un cultivateur de l'Âme Naissante.
+Les fragments d'âmes autour de lui chargèrent soudainement Wang Lin. Certains étaient au stade de l'Établissement des Fondations, d'autres à celui de la Formation du Noyau. Il y en avait même un dont la tête avait poussé deux cornes et qui dégageait l'aura d'un cultivateur de l'Âme Naissante.
 
 Wang Lin resta impassible. Il pointa sa main droite et dit: « Vortex! »
 
@@ -126,4 +126,4 @@ Wang Lin regarda ce fragment, puis tourna son regard vers Guo Dongjian. « Où a
 
 Guo Dongjian soupira intérieurement. En voyant Wang Lin utiliser le vortex d'âmes, il avait déjà renoncé à toute résistance.
 
-« Frère apprenti Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé contre un drapeau aux 900 âmes ainsi que le manuel de production des drapeaux d'âmes de la Montagne de l'Extraction de l'Âme. »
+« Frère apprenti Qing Mu, félicitations pour être la troisième personne de la Montagne de l'Affinement de l'Âme à maîtriser le vortex d'âmes. Quant au fragment de l'Âme Naissante, je l'ai échangé avec Su Jinshi de la Montagne de l'Extraction de l'Âme contre un drapeau de cent âmes contenant neuf cents âmes. »

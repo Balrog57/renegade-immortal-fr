@@ -98,7 +98,7 @@ En voyant Wang Lin, elle éclata en sanglots et lui raconta ce qui s'était pass
 
 « Tiens ceci. Si cela arrive de nouveau, sonne simplement cette cloche. » Wang Lin sortit une clochette et la lui remit.
 
-Il s'agissait de celle que Qiu Siping lui avait donnée. Après l'avoir étudiée, Wang Lin réalisa qu'elle semblait provenir du même lieu que la cloche antique qu'il avait jadis possédée.
+Il s'agissait de l'une de celles obtenues de Qiu Siping. Après les avoir étudiées, Wang Lin réalisa qu'elles semblaient de même origine que la cloche antique de cultivateur qu'il possédait déjà.
 
 Grâce à ses recherches, il parvint à maîtriser certains usages de ces trois clochettes. Sa puissance le satisfaisait grandement.
 
@@ -120,7 +120,7 @@ Au cours de ces deux années, il l'avait emmenée une fois voir ses parents, mai
 
 Un jour, alors que Wang Lin était en pleine culture, il ouvrit les yeux et vit Zhou Ru sortir discrètement de la pagode, un bol de bouillie à la main. Elle lui tira la langue avant de courir vers lui: « Oncle, oncle, j'ai encore vu la grande sœur fée, mais elle ne veut toujours pas manger! »
 
-Lorsque Zhou Ru avait eu quatre ans, elle était montée en secret dans la pagode et avait découvert le cadavre féminin. Depuis lors, l'enfant ne cessait d'y penser et s'y rendait occasionnellement pour lui rendre visite.
+Lorsque Zhou Ru avait eu quatre ans, elle était montée en secret dans la pagode et avait découvert le cadavre féminin. Depuis lors, l'enfant ne cessait d'y penser et s'y rendait occasionnellement pour lui rendre visite, sans éprouver la moindre peur.
 
 Une fois, elle avait même tenté d'apporter la bouillie préparée par Wang Lin pour essayer de nourrir le corps.
 
@@ -128,7 +128,7 @@ Wang Lin ne savait plus s'il devait rire ou pleurer, mais il ne l'en empêcha pa
 
 Il avait pourtant tenté de lui expliquer sérieusement pourquoi on ne pouvait pas nourrir ce cadavre, mais Zhou Ru ne comprenait toujours pas pourquoi cette grande sœur en robe blanche passait son temps à dormir sans jamais manger.
 
-Wang Lin soupira: « Ta grande sœur fée ne mange pas, alors n'apporte plus de bouillie là-haut. » Il trouvait la situation quelque peu déconcertante. Zhou Ru appelait le cadavre sa "grande sœur", tout en l'appelant lui "oncle". Si un jour Zhou Yi revenait et entendait cela, quelle expression ferait-il?
+Wang Lin soupira: « Ta grande sœur fée ne mange pas, alors n'apporte plus de bouillie là-haut. » Il trouvait la situation quelque peu déconcertante. Zhou Ru appelait le cadavre sa "grande sœur", tout en l'appelant lui "oncle". Si un jour Zhou Yi revenait de l'étoile Da Luo et entendait cela, quelle expression ferait-il?
 
 « Elle n'aura pas faim? Si je ne mange pas pendant une journée, j'ai très faim! » La petite Zhou Ru le regarda de ses grands yeux et ajouta: « Je laisserai la bouillie à côté d'elle et elle pourra la manger à son réveil. Oncle n'a pas à s'inquiéter pour moi. »
 
@@ -140,7 +140,7 @@ Un an auparavant, de nombreux cultivateurs d'autres contrées étaient venus dé
 
 Au début, Wang Lin les ignorait totalement. Grâce au domaine de la pagode, ils ne pouvaient même pas s'approcher. Pourtant, ils persistaient et se montraient de plus en plus agressifs, espionnant depuis les montagnes environnantes et agitant leurs trésors magiques.
 
-Une nuit, alors que Zhou Ru dormait, elle fut réveillée par l'éclat d'un trésor magique. Terrifiée, elle s'était enfuie en pleurant.
+Une nuit, alors que Zhou Ru dormait, elle fut réveillée par le bruit d'un trésor magique. Terrifiée, elle s'était enfuie en pleurant.
 
 À ce moment-là, Wang Lin était sorti. Lorsqu'il revint, sept têtes ensanglantées trônaient sur les montagnes alentour. Depuis ce jour, personne n'osait plus faire le moindre bruit durant la nuit.
 
@@ -148,4 +148,4 @@ Cependant, les provocateurs ne cessèrent jamais de venir. Parmi eux se trouvaie
 
 Depuis qu'il avait commencé à tuer, il ne faisait aucun quartier. Chaque challenger qui osait approcher était exécuté. Les gens finirent par cesser de le défier, mais quelques rares individus apparaissaient encore occasionnellement.
 
-Une voix glaciale s'éleva des montagnes: « Ceng Niu, Liao Fen de Xue Ye est ici pour réclamer l'éventail à plumes! »
+Une voix glaciale s'éleva des montagnes: « Ceng Niu, Liao Fan de Xue Yu est ici pour réclamer les trésors restants de l'éventail à plumes! »

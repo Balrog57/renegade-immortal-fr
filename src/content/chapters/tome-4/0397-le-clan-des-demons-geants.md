@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 397 - Giant Demon Clan
 slug: le-clan-des-demons-geants
 ---
-L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte du Affinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau spirituel.
+L'âme originelle de Wang Lin émit une lumière dorée. Cette lueur provenait de l'activation de la technique de scellement de l'âme. Les douze âmes étaient les douze ancêtres de la Transformation de l'Âme de la Secte de l'Affinement de l'Âme qui avaient volontairement abandonné leur essence pour être scellées dans le drapeau spirituel.
 
 Avec ces douze fragments d'âmes de la Transformation de l'Âme, la puissance de ce drapeau était déjà suffisante pour ébranler les cieux.
 
@@ -20,9 +20,9 @@ Tout ce que Wang Lin voyait se trouvait à l'intérieur du drapeau de l'âme. Le
 
 L'âme originelle de Wang Lin s'avança et saisit le drapeau. Il sentit soudain son corps trembler, puis son âme originelle fut renvoyée dans son corps physique.
 
-Au sommet de la Montagne du Affinement de l'Âme, Wang Lin ouvrit les yeux. Rien ne semblait être devant lui, pourtant il pouvait sentir, au plus profond de lui, un drapeau pourpre et doré que son âme originelle était en train de raffiner.
+Au sommet de la Montagne de l'Affinement de l'Âme, Wang Lin ouvrit les yeux. Rien ne semblait être devant lui, pourtant il pouvait sentir, au plus profond de lui, un drapeau pourpre et doré que son âme originelle était en train de raffiner.
 
-« Ancêtre du Clan des Démons Géants, ceci sera une calamité dont vous aurez bien du mal à vous échapper! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte du Affinement de l'Âme.
+« Ancêtre du Clan des Démons Géants, ceci sera une calamité dont vous aurez bien du mal à vous échapper! » Les yeux de Wang Lin s'illuminèrent et il disparut de la Secte de l'Affinement de l'Âme.
 
 Après le départ de Wang Lin, un soupir s'éleva de l'anneau de sang où Du Tian pratiquait sa culture en méditation fermée.
 
@@ -32,9 +32,9 @@ Le Clan des Démons Géants.
 
 Le territoire du Clan des Démons Géants était vaste. Lorsqu'ils avaient migré depuis une autre planète, ils avaient conclu un accord avec celui qui occupait alors la fonction de Suzaku, et ce territoire leur avait été octroyé pour qu'ils puissent y prospérer.
 
-Au sein du Clan des Démons Géants se trouvaient douze Palais de Démons Géants. Les douze palais étaient identiques et d'une taille immense.
+Au sein du Clan des Démons Géants se trouvaient douze Palais de Démons Géants. Les douze palais étaient identiques et d'une taille immense, hauts d'environ 330 mètres.
 
-Depuis deux ans, lorsque l'ancêtre avait perdu son corps pour en posséder un autre, sa trace s'était perdue.
+Depuis deux ans, lorsque l'ancêtre avait perdu son corps pour en posséder un autre, plus personne au sein du clan ne savait où il se trouvait.
 
 Après tout, on est au plus bas de sa puissance lors d'une possession. C'est pourquoi l'ancêtre avait changé son lieu de culture secrète à trois reprises.
 
@@ -48,7 +48,7 @@ Ce jour-là, Chi Hu était assis dans le troisième palais, un morceau de jade �
 
 Chi Hu secoua amèrement la tête, les yeux perdus dans ses pensées.
 
-Wang Lin apparut à la lisière du Clan des Démons Géants. Il ne se pressait pas d'y pénétrer. Au lieu de cela, il créa une grotte à la frontière et commença à utiliser divers matériaux contenus dans son sac pour ériger une formation.
+Wang Lin apparut à la lisière du Clan des Démons Géants. Il ne se pressait pas d'y pénétrer. Au lieu de cela, il se rendit dans un vallon caché à la frontière et commença à utiliser divers matériaux contenus dans son sac pour ériger une formation.
 
 L'unique but de cette formation était de servir de balise.
 
@@ -110,7 +110,7 @@ Sous les ordres de l'Ancien, les centaines de membres entourant Wang Lin poussè
 
 L'aura qu'ils dégageaient était capable de briser les cieux!
 
-« Tuez! » rugit l'Ancien, tandis que des craquements tonnerre secouaient son corps. Il devint un géant de 33 mètres de haut et abattit une hache enveloppée d'une lumière pourpre sur Wang Lin.
+« Tuez! » rugit l'Ancien, tandis que des craquements tonnerre secouaient son corps. Il devint un géant de 33 mètres de haut et abattit une hache parcourue d'éclairs pourpres sur Wang Lin.
 
 « Tuez!!! » Les membres du clan environnants chargèrent Wang Lin dans un fracas de hurlements. Leurs cris fusionnèrent en une onde sonore qui accompagnait leur assaut.
 

@@ -10,7 +10,7 @@ slug: boussole
 
 Wang Lin laissa échapper un rire et continua d'avancer. « Vous finirez par découvrir ce sens caché par vous-même. Si, à la fin, vous ne le comprenez toujours pas, alors ce sera la fin de votre vie! »
 
-Sun Tai continuait de reculer. Cette fois, il se déplaça encore plus vite et s'éloigna rapidement. « Je ne me rabaisserai pas à traiter avec un junior comme vous. Si vous osez détruire ma troisième âme, vous verrez comment je me vengerai! »
+Sun Tai continuait de reculer. Cette fois, il se déplaça encore plus vite et s'éloigna rapidement. « Je ne me rabaisserai pas à traiter avec un junior comme vous. Si vous voulez détruire ma troisième âme, ne vous gênez pas, et voyez comment je résisterai! »
 
 Sur ce, il s'envola rapidement au loin et cessa de parler de piéger Wang Lin.
 
@@ -86,7 +86,7 @@ Wang Lin sourit, joignit ses mains et dit: « Merci! »
 
 Sans un mot, Chi Hu fit un geste de la main et la boussole stellaire revint vers lui. Il effaça son empreinte sur l'objet et le tendit à Wang Lin. « Frère Ceng, cette boussole stellaire est désormais la vôtre. »
 
-Wang Lin eut un léger sourire: « Je vais devoir demander à frère Chi Hu de me protéger. Je vais commencer la raffinage maintenant! »
+Wang Lin eut un léger sourire: « Je vais devoir demander à frère Chi Hu de me protéger. Je vais commencer le raffinage maintenant! »
 
 « Vous voulez que je vous protège? » Chi Hu fixa Wang Lin avec un regard sérieux. Après un long moment, il hocha la tête et dit: « Frère Ceng, moi, Chi Hu, je vous considère vraiment comme un ami, alors soyez sans crainte! »
 

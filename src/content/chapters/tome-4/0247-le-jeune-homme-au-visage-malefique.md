@@ -16,7 +16,7 @@ Le géant hocha la tête. Son regard balaya l'endroit désigné par Wang Lin et 
 
 L'expression de l'homme d'âge moyen changea soudainement lorsqu'il ressentit un immense sentiment de danger; il saisit alors Pu Nanzi, qui fixait le ciel d'un air hébété, et le plaça devant lui en guise de bouclier.
 
-Le corps de Pu Nanzi se transforma en poussière, tout comme la main droite de l'homme d'âge moyen.
+Le corps de Pu Nanzi se transforma en poussière sans un bruit, comme celui de Teng Yi, tout comme la main droite de l'homme d'âge moyen.
 
 L'homme laissa échapper un gémissement de douleur. Le visage pâle, il recula précipitamment. Simultanément, il plongea sa main gauche dans son sac de rangement et en sortit une pierre de jade. Sans la moindre hésitation, il la broya. Une lumière blanche jaillit du jade, l'enveloppa, puis il disparut sur le champ.
 
@@ -48,9 +48,9 @@ Après son départ, les villageois s'éveillèrent. Constatant qu'il faisait dé
 
 Wang Lin volait dans les airs. La bête moustique avait déjà été rangée. Il atteignit une falaise; c'était là qu'il était tombé autrefois.
 
-Contemplant la falaise, Wang Lin prit une profonde inspiration, puis fixa le ciel.
+Contemplant la falaise, Wang Lin prit une profonde inspiration, s'assit par terre, puis fixa le ciel d'un air absent.
 
-Tant de pensées l'assaillirent tandis que la scène d'il y a quatre cents ans se rejouait inlassablement dans son esprit.
+Tant de pensées l'assaillirent tandis que les scènes de ces quatre cents ans défilaient sans fin dans son esprit.
 
 Maintenant que la famille Teng était anéantie, il n'avait plus ce poids sur les épaules. Sa mentalité changea soudainement. Wang Lin comprit qu'il n'était plus un mortel et qu'il avait déjà emprunté la voie d'un cultivateur. Ce chemin était ardu et semé de dangers, mais il devait être déterminé à le poursuivre.
 
@@ -64,23 +64,23 @@ Il y avait aussi le vaste univers issu des souvenirs du Dieu Ancien, ainsi que l
 
 Wang Lin se redressa en regardant au loin, ses yeux brillant d'une lueur fantastique.
 
-À cet instant, son état d'esprit bascula. Il n'était plus ce petit garçon cherchant à venger le meurtre de ses parents. Sa vengeance étant accomplie, il allait désormais viser les sommets de la culture pour devenir un véritable immortel.
+À cet instant, son état d'esprit bascula. Enfant, il était entré dans le monde de la culture pour faire honneur à ses parents, puis, après leur mort, il avait dû cultiver pour obtenir la puissance nécessaire à sa vengeance. Désormais, sa vengeance accomplie, il allait poursuivre activement la voie immortelle, pour son propre rêve et pour devenir un véritable immortel.
 
 Wang Lin prit une profonde inspiration. Son corps s'élança et il sauta du précipice. Il atteignit la caverne de pierre où il avait jadis obtenu la Perle Défiant le Ciel, puis disparut soudainement.
 
-Secte Piao Miao. Gao Qiming était assis dans sa chambre face à un miroir de bronze. Son expression était extrêmement livide. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
+Secte Piao Miao. Gao Qiming était assis en tailleur dans sa chambre secrète de retraite, face à un miroir de bronze. Son expression était extrêmement livide. Deux cents ans auparavant, il avait pressenti qu'il allait subir une grande catastrophe. Cependant, ce désastre était si incertain qu'il ne pouvait en obtenir les détails précis avec son seul niveau de culture.
 
 Au fil du temps, le sentiment imminent de fin devint plus oppressant. Lorsque les membres de la famille Teng commencèrent à mourir, il fut soudainement capable de calculer sa durée de vie restante: il ne lui restait que dix jours. S'il ne mourait pas dans ce délai, la catastrophe frapperait l'ensemble de la Secte Piao Miao.
 
 Aujourd'hui était le dixième jour. Gao Qiming avait toujours cru en la Voie du Ciel, car c'était son propre chemin de culture. Il savait qu'il devait mourir aujourd'hui, sans quoi la secte serait en péril.
 
-C'est pourquoi il avait commencé à planifier sa propre mort quelques jours auparavant. À cet instant, il n'avait plus aucun regret. Il prit une profonde inspiration, embrassa son environnement d'un regard empreint de mélancolie, et frappa son front de la paume.
+C'est pourquoi il avait commencé, quelques jours auparavant, à régler les affaires de la secte pour l'après-lui. À cet instant, il n'avait plus aucun regret. Il prit une profonde inspiration, embrassa son environnement d'un regard empreint de mélancolie, et frappa son front de la paume.
 
 Le sang s'échappa du coin de sa bouche, sa vision se brouilla et l'éclat de ses yeux s'éteignit. À cet instant, il vit soudainement une scène remontant à quatre cents ans. C'était le moment où Teng Huayuan lui avait demandé de trouver la demeure de la famille d'un disciple de l'Établissement des Fondations.
 
 Une lueur de compréhension traversa son esprit, puis il ferma les yeux et rendit l'âme.
 
-Wang Lin observait Zhao depuis le bord d'une ancienne matrice de transfert. Il l'activa alors et disparut de la région.
+Dans une vallée, à l'extérieur d'une ancienne matrice de transfert, Wang Lin jeta un dernier regard à Zhao. Il activa alors la matrice et disparut de la région.
 
 Dix jours plus tard, un jeune homme au visage maléfique apparut près de la matrice. Il la contempla, puis s'y engouffra sans hésiter.
 
@@ -92,7 +92,7 @@ Son objectif était donc les anciennes matrices de transfert. Possédant une qua
 
 Une demi-lune plus tard, Wang Lin atteignit une ancienne matrice de transfert. Après l'avoir inspectée, il se tint au centre, sortit une pierre spirituelle de qualité supérieure et la plaça sur le dispositif. Mais à cet instant, un nuage sombre surgit brusquement. Les ténèbres se rassemblèrent pour former la silhouette du jeune homme au visage maléfique, qui fixa Wang Lin intensément.
 
-Le cœur de Wang Lin sombra. La vitesse de ce jeune homme était bien supérieure à ce qu'il avait imaginé. De plus, il était incapable de déterminer le niveau de culture de cet individu avec son Sens Divin. Il ressentit un danger extrême.
+Le cœur de Wang Lin sombra. La vitesse de ce jeune homme était supérieure de plusieurs fois à ce qu'il avait estimé. De plus, il était incapable de déterminer le niveau de culture de cet individu avec son Sens Divin. Il ressentit un danger extrême.
 
 Si l'on se contentait d'utiliser une pierre spirituelle pour activer la matrice, le transfert prenait normalement dix respirations. Cependant, face à cette crise, Wang Lin injecta désespérément son énergie spirituelle dans la matrice pour accélérer l'activation.
 
@@ -106,7 +106,7 @@ L'impact du Royaume Ji fit vaciller le Sens Divin un instant. À cet instant pr�
 
 En sortant de la matrice, il cracha violemment plusieurs bouffées de sang. L'Âme Naissante formée par son avatar avait rétréci et semblait sur le point de s'effondrer à tout moment. Mais sans s'arrêter, Wang Lin se déplaça avec célérité. Il disparut pour réapparaître cinquante kilomètres plus loin. Cependant, il ne chercha pas à fuir davantage; au lieu de cela, il sortit un fil rouge de son sac de rangement.
 
-Wang Lin savait que, peu importe ses efforts, il ne pourrait jamais échapper à la vitesse de cet individu. De plus, son Âme Naissante était trop endommagée. S'il continuait à courir, l'adversaire n'aurait même pas besoin d'agir: il mourrait de l'effondrement de son âme.
+Wang Lin savait que, peu importe ses efforts, il ne pourrait jamais échapper à la vitesse de cet individu. De plus, son Âme Naissante était trop endommagée. S'il continuait à courir, l'adversaire n'aurait même pas besoin d'agir: il mourrait de l'éclatement de son Âme Naissante.
 
 C'était là l'arme la plus puissante dont il disposait actuellement.
 

@@ -24,19 +24,19 @@ Même avec la volonté de Wang Lin, il ne put s'empêcher d'être enthousiasmé 
 
 « Il semble que mes capacités ne soient pas encore suffisantes. »
 
-En vérité, il était difficile de blâmer Wang Lin, car les pierres spirituelles de première qualité étaient si rares sur Suzaku. Elles n'étaient pas abondantes non plus sur la planète d'origine de la Secte Da Lou, mais ce dernier étant une ancienne secte vieille de dix mille ans, elle avait naturellement accumulé des stocks considérables.
+En vérité, il était difficile de blâmer Wang Lin, car les pierres spirituelles de première qualité étaient si rares sur Suzaku. Elles n'étaient pas abondantes non plus sur la planète d'origine de la Secte Da Luo, mais ce dernier étant une ancienne secte vieille de dix mille ans, elle avait naturellement accumulé des stocks considérables.
 
 Après avoir examiné le jade, il comprit parfaitement la situation.
 
-La Secte Da Lou avait découvert un total de 37 fragments dans le Royaume Céleste après l'avoir exploré à de nombreuses reprises. Ils avaient ensuite secrètement placé des tableaux de transfert sur chacun d'eux.
+La Secte Da Luo avait découvert un total de 37 fragments dans le Royaume Céleste après l'avoir exploré à de nombreuses reprises. Ils avaient ensuite secrètement placé des tableaux de transfert sur chacun d'eux.
 
 Cependant, ces tableaux étant construits au sein du Royaume Céleste, ils ne pouvaient pas être activés par des pierres spirituelles ordinaires. C'était aussi la raison pour laquelle le cultivateur à robe verte portait autant de pierres spirituelles de première qualité sur lui.
 
-Dès lors, Wang Lin comprit qu'un grand nombre de cultivateurs entrant dans le Royaume Céleste appartenaient à de grandes sectes comme la Secte Da Lou et disposaient de leurs propres tableaux de transfert installés partout. Seuls ceux qui venaient ici pour la première fois, ou les cultivateurs indépendants, volaient vers l'inconnu pour atterrir au hasard sur un fragment.
+Dès lors, Wang Lin comprit qu'un grand nombre de cultivateurs entrant dans le Royaume Céleste appartenaient à de grandes sectes comme la Secte Da Luo et disposaient de leurs propres tableaux de transfert installés partout. Seuls ceux qui venaient ici pour la première fois, ou les cultivateurs indépendants, volaient vers l'inconnu pour atterrir au hasard sur un fragment.
 
-Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda la marmite de retour. La fonction de cet objet était de permettre de retourner sur la planète d'origine. Ainsi, si Wang Lin l'utilisait, retournerait-il sur Suzaku ou à la Secte Da Lou?
+Les yeux de Wang Lin s'illuminèrent lorsqu'il regarda la marmite de retour. La fonction de cet objet était de permettre de retourner sur la planète d'origine. Ainsi, si Wang Lin l'utilisait, retournerait-il sur Suzaku ou à la Secte Da Luo?
 
-Wang Lin réfléchit un instant avant de la ranger, veillant scrupuleusement à la garder séparée de sa propre marmite de retour. S'il utilisait accidentellement la mauvaise et se retrouvait transporté à la Secte Da Lou, la situation serait extrêmement périlleuse.
+Wang Lin réfléchit un instant avant de la ranger, veillant scrupuleusement à la garder séparée de sa propre marmite de retour. S'il utilisait accidentellement la mauvaise et se retrouvait transporté à la Secte Da Luo, la situation serait extrêmement périlleuse.
 
 Une fois cela fait, Wang Lin projeta le jade qu'il tenait devant lui et le manipula avec son sens divin. Soudain, le jade se mit à briller alors qu'une formation dotée de deux encoches apparut. De toute évidence, ces deux encoches étaient destinées aux pierres spirituelles.
 
@@ -52,19 +52,19 @@ Sa main droite pointa l'un des fragments. L'image disparut, la formation s'activ
 
 Sur l'un des fragments à l'extrémité du Royaume Céleste, le vent était d'une violence extrême et une immense faille déchirait le ciel. Un vent glacial s'échappait de cette brèche pour envahir le fragment. C'était comme si le fragment entier était enveloppé par la puissance de la faille.
 
-Cet endroit ne possédait aucune montagne; il ressemblait à un désert. Ce lieu en possédait autrefois, avec ses montagnes et ses rivières, mais lors de l'effondrement du Royaume Céleste, le trésor d'un être céleste y était tombé, créant cette faille.
+Cet endroit ne possédait aucune montagne; il ressemblait à un désert. Ce lieu en possédait autrefois, avec ses montagnes et ses rivières, mais lors de la catastrophe, le trésor suprême d'un être céleste, l'épée immortelle Xuanfeng, y avait été précipité, déchirant l'espace et créant cette faille.
 
-Quant au trésor, il s'était brisé après avoir engendré la déchirure, se transformant en un vent violent qui balayait désormais le fragment.
+Quant à cette épée, elle s'était brisée à l'instant même où elle avait fendu l'espace, se transformant en un vent violent qui balayait désormais sans fin le fragment.
 
 À cet instant, au milieu de ce vent impétueux, une formation apparut dans le ciel. Elle formait un pilier de lumière qui bloquait le vent, mais le pilier tremblait violemment, comme s'il pouvait se briser à tout moment.
 
 La silhouette de Wang Lin apparut au sein de la formation. Il jeta un regard autour de lui et fronça les sourcils. Ce fragment était radicalement différent du précédent. Si celui-ci pouvait être considéré comme relativement intact, celui-ci était totalement dévasté.
 
-Logiquement, il n'y avait aucune raison pour que la Secte Da Lou place une formation ici. Wang Lin réfléchit un instant. Voyant la colonne de lumière vaciller dangereusement, il s'élança rapidement hors de la formation.
+Logiquement, il n'y avait aucune raison pour que la Secte Da Luo place une formation ici. Wang Lin réfléchit un instant. Voyant la colonne de lumière vaciller dangereusement, il s'élança rapidement hors de la formation.
 
 Dès l'instant où Wang Lin sortit du pilier, il sentit le vent tranchant comme des lames frapper son corps. Une fois qu'il eut quitté la formation, celle-ci se dissimula rapidement par une méthode spéciale.
 
-On n'entendait qu'un seul bruit: le hurlement du vent. On aurait dit le cri de millions de personnes. À mesure que Wang Lin descendait, le vacarme redoublait d'intensité.
+On n'entendait qu'un seul bruit: le gémissement du vent. On aurait dit d'innombrables silhouettes sanglotant tout autour. À mesure que Wang Lin descendait, le vacarme redoublait d'intensité.
 
 Lorsqu'il toucha le sable, il devint soudainement sur ses gardes. Il se retourna brusquement et vit que, parmi les hurlements du vent, des silhouettes noires apparaissaient une à une.
 
@@ -96,15 +96,15 @@ Cette question revint une fois de plus à l'esprit de Wang Lin. Après avoir mé
 
 Ces personnes s'éloignèrent de plus en plus, jusqu'à s'arrêter enfin en un lieu précis. Wang Lin observa de loin et nota soudain un changement de décor. Un bâtiment apparut brusquement. À l'intérieur, de nombreuses tables étaient dressées avec des fruits et du vin.
 
-Quelques individus étaient assis autour des tables, conversant entre eux. Par intermittence, ils agitaient les doigts et des techniques se manifestaient, comme s'ils débattaient d'un sujet crucial.
+Quelques individus à l'allure d'immortels étaient assis derrière les tables, conversant entre eux. Par intermittence, ils agitaient les doigts et des techniques se manifestaient, comme s'ils débattaient d'un sujet crucial.
 
 Wang Lin observa la scène, prêtant une attention particulière à toutes les techniques déployées. Il prit une profonde inspiration. Ces personnes n'utilisaient ni incantations ni sceaux; un simple mouvement de main suffisait à déclencher des sorts. C'était comme si le pouvoir des cieux résidait dans la paume de leurs mains, prêt à être manié à leur guise.
 
-L'un d'eux se leva soudainement et hurla avec colère après quelqu'un. Puis, sa main s'étira pour créer une gigantesque sphère de foudre violette. Il la pointa vers le haut, et l'orbe pourpre s'éleva lentement dans les cieux.
+L'un d'eux se leva soudainement et hurla avec colère après quelqu'un. Puis, d'un geste de la main, une sphère de foudre violette apparut. Il la désigna et la lança vers le haut; l'orbe pourpre sortit de la salle et s'éleva dans les cieux.
 
 Wang Lin suivit du regard la sphère de foudre, mais au même moment, le ciel limpide devint brusquement ténébreux. Des amas d'éclairs noirs se rassemblèrent pour former un poing qui percuta la sphère violette.
 
-La sphère explosa soudainement et le poing de foudre fondit sur elle sans ralentir.
+La sphère s'effondra aussitôt et le poing de foudre, sans le moindre ralentissement, s'abattit du ciel.
 
 L'expression des personnes à l'intérieur changea instantanément. Deux d'entre elles réagirent promptement en s'élançant dehors pour vérifier, mais le poing électrique avait déjà frappé.
 

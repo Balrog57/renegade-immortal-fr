@@ -28,7 +28,7 @@ Cependant, trois de ces étoiles semblaient scellées; elles étaient bien plus 
 
 « Cela... » En voyant cela, une pensée inconcevable traversa l'esprit de Wang Lin.
 
-« C'est là le véritable cycle de la réincarnation... »
+« Est-ce vraiment là la loi céleste du cycle de la réincarnation...? »
 
 Lorsqu'il avait vu l'Émissaire des Cieux pour la première fois, il n'avait pas posé de questions, mais après l'avoir revu, une pensée surgit soudainement: « Le cycle de la réincarnation est une loi céleste, elle devrait être éthérée... pourquoi un messager existerait-il? »
 
@@ -46,7 +46,7 @@ Ce fracas résonna à travers les cieux et la terre. Tout ce qui se trouvait dan
 
 Wang Lin vit clairement le sol, sur 5 000 kilomètres à la ronde, s'effondrer soudainement pour former un cratère gigantesque.
 
-Le seul endroit qui ne s'effondra pas fut le centre du gouffre où se trouvait Zhou Ru. Elle semblait désormais trôner au sommet d'une tour.
+Le seul endroit qui ne s'effondra pas fut le centre du gouffre où se trouvait Zhou Ru. Vu de loin, cet endroit ressemblait désormais à un immense pilier dressé seul.
 
 Le corps de Zhou Ru émettait une douce lumière blanche.
 
@@ -66,7 +66,7 @@ Une pointe de confusion apparut dans les yeux de l'Émissaire alors qu'il balan�
 
 La silhouette du dieu ancestral accéléra pour rattraper l'Émissaire et attaqua de nouveau.
 
-Le corps de Wang Lin revint rapidement sur les lieux. Alors qu'il léchait le sang au coin de ses lèvres, ses yeux s'emparent d'une intention de combat féroce. Lui et le dieu ancestral issu de son domaine combattirent l'Émissaire des Cieux.
+Le corps de Wang Lin revint rapidement sur les lieux. Alors qu'il léchait le sang au coin de ses lèvres, ses yeux s'emplirent d'une intention de combat. Lui et le dieu ancestral issu de son domaine combattirent l'Émissaire des Cieux.
 
 L'Émissaire était continuellement repoussé. Seules quatre étoiles brillaient sur son front, ce qui signifiait que sa puissance actuelle n'était que celle d'un dieu ancestral à quatre étoiles.
 
@@ -112,7 +112,7 @@ Une trace de tristesse marqua son visage. Elle regarda Wang Lin et murmura: « Z
 
 Une puissante force d'aspiration émana de la roue vers Li Muwan.
 
-Wang Lin leva soudainement la tête. Ses yeux devinrent d'une froideur extrême lorsqu'il déclara: « Sans ma permission, oublie que tu n'es même pas la véritable loi céleste; mais même si tu l'étais, ne pense pas pouvoir l'emporter! »
+Wang Lin leva soudainement la tête. Ses yeux devinrent d'une froideur extrême lorsqu'il déclara: « Sans ma permission, sans parler du fait que tu n'es pas la véritable loi céleste, même celle-ci ne pourrait pas l'emmener de mon vivant! »
 
 Il pointa son front et la Perle Défiant le Ciel apparut. D'un revers de main, il fit entrer l'Âme Naissante de Li Muwan dans la perle, laquelle retourna aussitôt à l'intérieur de son corps.
 
@@ -122,7 +122,7 @@ Wang Lin fixa le corps de Zhou Ru et éclata d'un rire fou. Son rire était impr
 
 « Moi, Wang Lin, j'ai combattu les cieux et j'ai défié deux fois le cycle de la réincarnation, mais je ne m'attendais pas à perdre face à la volonté céleste en fin de compte. La volonté céleste... la volonté céleste est cruelle! »
 
-Wang Lin pointa l'âme de Zhou Ru et la replaça dans son corps. Puis il s'élança dans les airs en riant follement, ne laissant derrière lui que l'écho de ses sanglots déchaînés.
+Wang Lin pointa l'âme de Zhou Ru et la replaça dans son corps. Puis il s'élança dans les airs en riant follement, ne laissant derrière lui que l'écho de son rire empli de tristesse.
 
 Après le départ de Wang Lin, Petit Blanc s'approcha prudemment. Il était initialement scellé par Wang Lin, mais lors du combat contre l'Émissaire des Cieux, le sceau s'était brisé, lui permettant de s'échapper. Ce n'est qu'après avoir vu Wang Lin partir qu'il osa approcher. Ses yeux étaient remplis de tristesse alors qu'il léchait le petit visage de Zhou Ru.
 
@@ -142,7 +142,7 @@ La pluie tombait avec fracas sur le sol. Elle s'écrasait sur son corps et coula
 
 « Moi, Wang Lin, j'ai passé ma vie sur le chemin du massacre et j'ai compris la loi céleste lorsque je suis devenu un mortel. Je voyais la vie comme la vie et la mort comme la mort. Cette pluie naît dans le ciel et meurt lorsqu'elle frappe la terre... »
 
-« Grâce à l'obsession de l'aîné Zhou Yi, la dépouille céleste s'est éveillée. Les émotions entre les deux — comment, si l'un vit, l'autre meurt, et si l'un meurt, l'autre vit — tout cela m'a permis de comprendre le sens de voir la vie non plus comme la vie, et la mort non plus comme la mort... »
+« Grâce à l'obsession de Senior Zhou Yi, la dépouille céleste s'est éveillée. Les émotions entre les deux — comment, si l'un vit, l'autre meurt, et si l'un meurt, l'autre vit — tout cela m'a permis de comprendre le sens de voir la vie non plus comme la vie, et la mort non plus comme la mort... »
 
 « Survivre à une catastrophe m'a permis de percevoir les mutations de l'existence. Zhou Ru oscillant entre la vie et la mort; la mort de Wan Er au cœur de la vie, et la vie au cœur de la mort. C'est la volonté céleste qui a finalement permis à moi, Wang Lin, de voir la vie toujours comme la vie et la mort toujours comme la mort! »
 
@@ -150,6 +150,6 @@ La pluie tombait avec fracas sur le sol. Elle s'écrasait sur son corps et coula
 
 « Cette pluie est née dans le ciel mais ne meurt pas en frappant la terre. Sur la terre, elle acquerra une nouvelle vie; elle aidera les plantes à croître avant de redevenir nuage. Ce changement, c'est la vie! »
 
-« Je ne peux me défaire de l'âme de mes parents ni de ton départ. En vérité, je n'ai pas été un fils exemplaire envers mes parents, et envers toi, j'ai toujours été négligent. Bien que cette émotion soit réelle, elle tenait davantage du devoir... car j'ai été ému... »
+« Je ne peux me défaire de l'âme de mes parents ni de ton départ. En vérité, je n'ai pas été un fils exemplaire envers mes parents, et envers toi, j'ai toujours été passif. Bien que cette émotion soit réelle, elle tenait davantage de la responsabilité... d'une émotion d'avoir été touché... »
 
 Les âmes des parents de Wang Lin jaillirent de son front. Elles le regardèrent tendrement avant de disparaître lentement. Elles ne moururent pas, mais entrèrent dans un autre royaume de l'existence.

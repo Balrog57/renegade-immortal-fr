@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 340 - Messenger of Suzaku
 slug: messager-de-suzaku
 ---
-Wang Lin vola jusqu'à la pagode et atterrit à ses côtés. Son corps original se sépara de lui, cracha un peu de sang, puis s'assit pour cultiver.
+Wang Lin vola jusqu'à la pagode et s'effondra à terre. Son corps original se sépara de lui, cracha un peu de sang, puis s'assit pour cultiver.
 
 Après une très longue attente, Wang Lin ouvrit les yeux. Il s'assit rapidement, sortit quelques pilules et commença à réguler l'énergie spirituelle dans son corps.
 
@@ -24,7 +24,7 @@ La blessure infligée au corps original était bien plus lourde que celle de Wan
 
 Wang Lin prit une profonde inspiration. Il frappa ensuite son sac de rangement et en sortit un jade. Après y avoir laissé un message, il le lança vers le ciel; l'objet disparut dans une traînée de lumière.
 
-Une fois cela fait, Wang Lin s'assit près de la pagode et activa un fragment du domaine de Zhou Yi. Dans un rayon de cinquante kilomètres, à moins qu'un cultivateur Ascendant ne se présente, nul autre ne pourrait l'approcher.
+Une fois cela fait, Wang Lin s'assit près de la pagode et libéra tout le fragment de pensée divine de Zhou Yi contenu dans la pagode. Dans un rayon de cinquante kilomètres, à moins qu'un cultivateur Ascendant ne se présente, nul autre ne pourrait l'approcher.
 
 C'est ainsi que Wang Lin ferma les yeux et soigna ses blessures en silence.
 
@@ -35,13 +35,13 @@ Les jours de neige, les flocons descendaient lentement, recouvrant tout d'un man
 
 Que ce soit de jour ou de nuit, sous la pluie ou la neige, le corps de Wang Lin restait immobile. Il ressemblait à un vieux moine mort; aucune trace de vitalité n'émanait de lui.
 
-Six mois après la bataille, le printemps revint. Dans l'ancienne demeure du vieux Zhou, au village d'Apricot, un bébé naquit. Elle s'appelait Zhou Ru.
+Six mois après la bataille, le printemps revint. Dans la maison du vieux Zhou, au village d'Apricot, un bébé naquit. Elle s'appelait Zhou Ru.
 
 Cette petite fille poussa des cris comme tous les nouveau-nés, mais personne ne savait que ce cri différait de celui d'un enfant ordinaire.
 
 Le corps de la fillette était très faible. Heureusement, le vieux Zhou était respecté au village d'Apricot et possédait un commerce, ce qui lui permettait de vivre mieux que la plupart des gens.
 
-Une grotte se trouvait dans la montagne à cinquante kilomètres du village d'Apricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yan et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan.
+Une grotte se trouvait dans la montagne à cinquante kilomètres du village d'Apricot. Tie Yan s'y cultivait depuis plus de six mois. Six mois auparavant, Tie Yan et Lu Fei avaient reçu le message de Wang Lin ordonnant à l'un d'eux de venir garder Li Muwan jusqu'à sa sortie de retraite.
 
 Après en avoir discuté, Tie Yan était venu. Son Sens Divin restait verrouillé sur le village à chaque instant tandis qu'il assurait une garde silencieuse.
 
@@ -55,13 +55,13 @@ En un clin d'œil, une année s'écoula. Zhou Ru avait désormais un an. Alors q
 
 Ce jour-là, un groupe de personnes sortit d'un réseau de transfert ordinaire à la lisière de Chu. Parmi eux se trouvait une femme portant un voile. Une trace de fatigue perçait dans son regard, mais ses yeux brillaient toujours comme des étoiles, capables de fasciner n'importe qui.
 
-Elle était suivie par un vieil homme vêtu d'un manteau noir usé, dont les yeux étaient ternes, comme s'il souffrait d'une maladie grave. Si Wang Lin les avait vus, il les aurait reconnus comme les deux individus ayant acheté la recette de pilule de rang 6.
+Elle était suivie par un vieil homme vêtu d'une veste de toile bleue, dont les yeux étaient ternes, comme s'il souffrait d'une maladie grave. Si Wang Lin les avait vus, il les aurait reconnus comme les deux individus ayant acheté la recette de pilule de rang 6.
 
 À leurs côtés se tenait un vieil homme aux cheveux blancs: c'était Hu, le cultivateur de Formation de l'Âme du Pavillon de Raffinage des Trésors. Derrière lui se trouvaient trois personnes, dont une que Wang Lin connaissait bien: Qiu Siping. Les deux autres étaient Xu Luo et une femme d'une grande beauté — celle-là même qui avait livré le jade violet.
 
 Une fois sortis du réseau de transfert, le vieil homme regarda vers le nord et déclara: « Bien que Chu ne soit pas la voie la plus rapide pour atteindre le Cimetière des Immortels, c'est plus simple que de passer par Zhou. »
 
-La femme voilée acquiesça: « Ce que dit l'Ancien est exact. Certes, traverser Chu prend plus de temps, mais il n'y a pas de points de contrôle comme dans Zhou, ce qui facilite grandement le voyage. »
+La femme voilée acquiesça: « Ce que dit le Senior est exact. Certes, traverser Chu prend plus de temps, mais il n'y a pas de points de contrôle comme dans Zhou, ce qui facilite grandement le voyage. »
 
 Le vieil homme nommé Hu s'élança en avant, et les autres le suivirent promptement.
 
@@ -75,7 +75,7 @@ L'Ancien Hu fut surpris: « Je n'étais pas revenu à Chu depuis plus de cent an
 
 Derrière lui, Xu Luo répondit respectueusement: « Ancêtre, ces dernières années, la Secte du Ciel Nuageux a dévoré plusieurs autres sectes et est officiellement devenue la première puissance de Chu. »
 
-L'Ancien Hu hocha la tête: « La Secte du Ciel Nuageux se spécialise dans l'alchimie, ils doivent donc posséder de nombreux cultivateurs de l'Âme Naissante. À notre retour du Cimetière des Immortels, rappelle-moi d'aller visiter leur secte pour solliciter quelques pilules! »
+L'Ancien Hu hocha la tête: « La Secte du Ciel Nuageux se spécialise dans l'alchimie, ils doivent donc posséder de nombreux cultivateurs de l'Âme Naissante. À notre retour du Cimetière des Immortels, pense à envoyer quelqu'un à leur secte pour solliciter quelques pilules! »
 
 Xu Luo esquissa un léger sourire. Il était certain que la Secte du Ciel Nuageux leur remettrait immédiatement des pilules pour garantir leur propre sécurité.
 
@@ -87,7 +87,7 @@ L'Ancien Hu se tourna brusquement vers la colonne lumineuse. Malgré son expéri
 
 Soudain, plusieurs dragons dorés apparurent autour du pilier et, bientôt, un jeune homme vêtu de blanc en sortit lentement. À l'instant où il émergea, les dragons poussèrent des rugissements si puissants que les six voyageurs purent les entendre distinctement malgré la distance.
 
-Peu après, les dragons dorés chargèrent le jeune homme. Au moment de l'impact imminent, ils se transformèrent en d'innombrables fils d'or qui vinrent broder les vêtements du jeune homme.
+Peu après, les dragons dorés chargèrent le jeune homme. Au moment de l'impact imminent, ils se transformèrent en broderies dorées en forme de dragon qui vinrent s'imprimer sur le bas des vêtements du jeune homme.
 
 « Un messager de Suzaku! » Le vieil homme afficha une expression d'effroi. Il comprit que quelque chose de colossal s'apprêtait à se produire à Chu. Pourquoi un messager de Suzaku descendrait-il dans un simple pays de culture de rang 3?
 
@@ -97,9 +97,9 @@ Qiu Siping, Xu Luo et la belle femme étaient tous sous le choc. Qiu Siping, par
 
 La belle femme prit une profonde inspiration et demanda doucement: « Ancêtre, pourquoi un messager de Suzaku est-il venu à Chu? »
 
-« Cher collègue Gong Sun, qu'en pensez-vous? » demanda l'Ancien Hu en se tournant vers le vieil homme au manteau noir.
+« Camarade cultivateur Gong Sun, qu'en pensez-vous? » demanda l'Ancien Hu en se tournant vers le vieil homme à la veste de toile bleue.
 
-Ce dernier répondit lentement: « Cher collègue Hu, je viens tout juste d'atteindre le stade de la Formation de l'Âme, je ne connais donc que peu de choses sur Suzaku. Cependant, je crois qu'un événement majeur se prépare. J'ignore ce que c'est, mais pourquoi un messager de Suzaku viendrait-il à Chu autrement? »
+Ce dernier répondit lentement: « Camarade cultivateur Hu, je viens tout juste d'atteindre le stade de la Formation de l'Âme, je ne connais donc que peu de choses sur Suzaku. Cependant, je crois qu'un événement majeur se prépare. J'ignore ce que c'est, mais pourquoi un messager de Suzaku viendrait-il à Chu autrement? »
 
 L'Ancien Hu pensa intérieurement: « Balivernes! » et reporta son regard sur le pilier de lumière.
 

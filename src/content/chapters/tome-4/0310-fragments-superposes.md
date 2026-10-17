@@ -14,7 +14,7 @@ Elle eut le pressentiment que si elle le laissait placer cette restriction, le d
 
 À cet instant, le visage de Chi Hu pâlit alors qu'il levait les yeux vers l'objet noir suspendu dans le ciel. Il soupira intérieurement: « Ce Ceng Niu n'a toujours pas utilisé toute sa puissance. Il semble que cet objet noir soit son véritable trésor de survie. »
 
-Chi Hu cria: « Compagne cultivatrice Papillon Rouge, vous êtes tous les deux mes invités. Si vous insistez pour continuer l'attaque, cela signifie que vous me manifestez votre hostilité! Je me rangerai naturellement aux côtés du frère Ceng pour riposter. De plus, si je survis pour revenir, je rapporterai sans faute tout ceci à Xi Zu! »
+Chi Hu cria: « Compagne cultivatrice Papillon Rouge, vous êtes tous les deux mes invités. Si vous insistez pour continuer l'attaque, cela me pousserait à l'injustice! Je me rangerai naturellement aux côtés du frère Ceng pour riposter. De plus, si je survis pour revenir, je rapporterai sans faute tout ceci à Xi Zu! »
 
 Sur ces mots, une illusion apparut derrière Chi Hu. Il s'agissait d'un géant de plus de trente mètres de haut qui fixait Papillon Rouge de ses yeux glacials.
 
@@ -44,7 +44,7 @@ Elle fixa Wang Lin et lança: « Ceng Niu, oses-tu me défier une fois que nous 
 
 Wang Lin rit: « Je serai ravi de t'accompagner! »
 
-Wang Lin écrasa la restriction dans sa main, et le brouillard noir se mua en un drapeau qui fut rangé dans son sac de stockage. Quant au crapaud tonnerre, il fut également mis de côté. Cependant, celui-ci était gravement blessé et paraissait très affaibli, ce qui accrut l'intention meurtrière dans le cœur de Wang Lin.
+Wang Lin écrasa la restriction dans sa main, et le brouillard noir se mua en un drapeau qui fut rangé dans son sac de stockage. Quant au crapaud de tonnerre, il fut également mis de côté. Cependant, celui-ci était gravement blessé et paraissait très affaibli, ce qui accrut l'intention meurtrière dans le cœur de Wang Lin.
 
 Papillon Rouge regarda profondément Wang Lin. Elle ne put s'empêcher d'admettre que cet homme avait la capacité de lutter contre elle.
 
@@ -56,9 +56,9 @@ Papillon Rouge ne daigna même pas regarder Wang Lin; elle se mua en un nuage ro
 
 Wang Lin afficha une expression moqueuse en les suivant.
 
-Il pensa secrètement: « En fin de compte, son esprit et son cœur sont trop instables. Bien que parvenir au stade avancé de la Formation de l'Âme en cent ans soit un véritable miracle, elle souffre encore de nombreux maux. Son cœur est trop faible. Ce n'est qu'une question de vitesse; quelle est la différence entre être devant ou derrière? »
+Il pensa secrètement: « En fin de compte, son esprit et son cœur sont trop instables. Bien qu'atteindre la Formation de l'Âme en cent ans soit un véritable miracle, elle souffre encore de nombreux maux. Son cœur est trop faible. Ce n'est qu'une question de vitesse; quelle est la différence entre être devant ou derrière? »
 
-« Si je la combat avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la rétribution divine, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
+« Si je la combats avec mon niveau de culture actuel, à moins d'utiliser le drapeau de restriction pour déclencher la foudre de la rétribution divine, je n'ai aucune chance de l'emporter. Mon domaine de la vie et de la mort peine à affecter un domaine impitoyable presque achevé. Cependant, si j'atteins le stade intermédiaire de la Formation de l'Âme, grâce au contrôle que j'aurai sur mon domaine, je serai en mesure de l'influencer. À ce moment-là, même sans déclencher la foudre divine, j'aurais 70 % de chances de la vaincre. »
 
 Le domaine de la vie et de la mort de Wang Lin était dérivé du cycle de la réincarnation des cieux, mais comme il n'était qu'au début de la Formation de l'Âme, il ne pouvait en déployer toute la puissance. Après tout, il venait à peine de commencer à comprendre les lois célestes.
 
@@ -106,7 +106,7 @@ Parmi les nombreux fragments du royaume céleste, au bord sud, se trouvait un fr
 
 Lorsque Wang Lin émergea de la formation dans le ciel, il fronça les sourcils. À l'inverse, Papillon Rouge affichait une expression de confort; cet environnement ne semblait pas seulement ne pas lui nuire, mais paraissait même lui être bénéfique.
 
-Chi Hu déclara solennellement: « Compagne cultivatrice Papillon Rouge, voici le chemin menant à la première couche du fragment, située à 150 000 kilomètres à l'est. C'est une terre de glace et nous aurons besoin de vos capacités pour repousser le froid. Une fois cette zone franchie, nous atteindrons le vide. Je possède une boussole stellaire pour nous éviter de nous perdre. Frère Ceng, ces âmes errantes que vous contrôlez seront très utiles dans le vide, alors ne vous retenez pas. Une fois le vide traversé, nous atteindrons le premier fragment. Après tout, il n'y a aucun réseau de transfert là-bas; c'est donc notre unique moyen de garantir notre arrivée. »
+Chi Hu déclara solennellement: « Compagne cultivatrice Papillon Rouge, voici le chemin menant au fragment de la première couche. Vers l'est, sur 150 000 kilomètres, s'étend une terre de glace vieille de dix mille ans et nous aurons besoin de vos capacités pour repousser le froid. Une fois cette zone franchie, nous atteindrons le vide. Je possède une boussole stellaire pour nous éviter de nous perdre. Frère Ceng, ces âmes errantes que vous contrôlez seront très utiles dans le vide, alors ne vous retenez pas. Une fois le vide traversé, nous atteindrons le premier fragment. Après tout, il n'y a aucun réseau de transfert là-bas; c'est donc notre unique moyen de garantir notre arrivée. »
 
 En entendant cela, Wang Lin comprit enfin que Chi Hu l'avait sollicité pour ses âmes errantes. Il semblait y avoir un obstacle que ces dernières pourraient franchir aisément.
 

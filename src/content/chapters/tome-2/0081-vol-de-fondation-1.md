@@ -34,19 +34,19 @@ Wang Lin déploya son sens divin et son visage changea soudainement. Une force m
 
 Sans dire un mot, le corps de Wang Lin recula brusquement. Il enveloppa son être de la technique d'attraction et son corps s'élança en arrière sur une centaine de mètres, tel une épée.
 
-« Qu'est-ce que c'est? Ta réaction a été plutôt rapide. » Une voix légèrement surprise retentit soudainement alors qu'un homme sortait de l'auberge. Ce dernier avait vingt-cinq ou vingt-six ans et portait une robe blanche ornée de motifs de vignes noires sur les poignets.
+« Qu'est-ce que c'est? Ta réaction a été plutôt rapide. » Une voix légèrement surprise retentit soudainement alors qu'un homme sortait de l'auberge. Ce dernier avait vingt-cinq ou vingt-six ans, des yeux brillants comme des étoiles et des sourcils en forme d'épée, et portait une robe blanche, blanche comme la neige, ornée d'une vigne noire brodée sur les poignets.
 
 Il regarda Wang Lin, qui s'éloignait rapidement. Il ricana et ordonna: « Teng Jia, Teng Yi, attendez le retour de Zhang Hu. Détruisez sa culture, puis jetez-le en prison pendant que je capture ce petit vaurien agile. »
 
-À l'instant où il prononça ces mots, deux ombres jaillirent à ses côtés. Il s'agissait de deux vieillards au visage ridé. L'un d'eux dit: « Monseigneur, ces deux personnes sont dans la ville de la Famille Teng. Cela va à l'encontre des règles. Si le chef demande... »
+À l'instant où il prononça ces mots, deux ombres jaillirent à ses côtés. Il s'agissait de deux vieillards au visage ridé. L'un d'eux dit d'une voix grave: « Jeune maître, ces deux personnes se trouvent tout de même dans la ville de la Famille Teng. Agir ainsi enfreint les règles établies par le vénérable patriarche. Si le patriarche demande... »
 
-L'homme en robe blanche fronça les sourcils et fixa Wang Lin. Il répliqua: « Si mon grand-père pose la question, dis simplement la vérité. Zhang Hu a reçu l'aide d'un étranger pour tuer son propre maître. Comment pourrais-je laisser de tels individus s'en tirer? »
+L'homme en robe blanche fronça les sourcils et fixa Wang Lin. Il répliqua: « Si mon arrière-grand-père pose la question, dis simplement la vérité. Zhang Hu s'est ligué avec un étranger pour tuer son propre maître, commettant un crime aussi monstrueux. Comment pourrais-je laisser ces deux-là s'en tirer? »
 
 Sur ces mots, il agita ses manches et son corps s'envola dans les airs pour poursuivre rapidement Wang Lin.
 
 Les deux vieillards jetèrent un regard au jeune homme avant de disparaître sans laisser de trace.
 
-Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « La ville de la Famille Teng impose une restriction sur le vol! Camarade cultivateur, arrêtez-vous, je vous prie! »
+Wang Lin déchaîna toute sa puissance et se poussa à ses limites pour fuir. Alors qu'il apercevait les murs de la ville, quelques ombres surgirent soudainement en criant: « Il est strictement interdit de voler dans la ville de la Famille Teng! Camarade cultivateur, arrêtez-vous! »
 
 Sans perdre un instant, Wang Lin sortit une gourde. Il n'avait pas le temps de se soucier de révéler le secret de l'eau spirituelle et prit une grande gorgée. L'énergie spirituelle emplit son corps, sa vitesse explosa et il fonça en avant.
 
@@ -60,17 +60,17 @@ Quant à Zhang Hu, Wang Lin ne pouvait qu'espérer le meilleur, lui-même étant
 
 Après avoir quitté la ville de la famille Teng, Wang Lin continua sa course vers le sud tandis que les disciples le talonnaient. Soudain, une lumière arc-en-ciel jaillit de la cité. La lueur dépassa tous les disciples de la famille Teng et frappa Wang Lin.
 
-Une épée volante gigantesque, presque irréelle, apparut et s'abattit sur lui. À cet instant, la foudre se rassembla en d'innombrables sphères qui tombèrent avec l'épée.
+Une épée volante gigantesque, presque matérialisée, apparut, chargée d'une intention meurtrière intense, et s'abattit du ciel. À cet instant, le ciel et la terre changèrent de couleur : d'innombrables sphères de foudre violettes se rassemblèrent dans le ciel et tombèrent avec l'épée.
 
-Le cuir chevelu de Wang Lin devint engourdi alors que Situ Nan criait: « C'est un trésor de niveau Âme Naissante! Wang Lin, rétracte immédiatement ton sens divin. Je vais te téléporter! »
+Le cuir chevelu de Wang Lin devint engourdi alors que Situ Nan criait: « C'est un trésor de niveau Âme Naissante! Wang Lin, rétracte immédiatement ton sens divin. Je vais te téléporter, je mise tout là-dessus! »
 
-Un éclat bleu se propagea rapidement depuis la poitrine de Wang Lin pour envelopper tout son corps. À l'instant précis où cela se produisit, l'épée géante s'écrasa. Le fracas du sol qui se brisait résonna tandis que les sphères de foudre tombaient, créant des ondes électriques dévastatrices.
+Un cristal bleu se propagea rapidement depuis la poitrine de Wang Lin pour envelopper tout son corps. À l'instant précis où cela se produisit, l'épée géante s'écrasa. Le sol se fendit en d'immenses crevasses dans un grondement, tandis que les sphères de foudre violettes tombaient, créant une nappe d'ondes électriques dévastatrices sur une vaste étendue.
 
 Le corps de Wang Lin disparut à l'impact de l'épée et réapparut près d'un kilomètre plus loin, avant de s'enfuir aussitôt.
 
 La voix de Situ Nan sonnait affaiblie alors qu'il réprimandait Wang Lin: « Ce petit bâtard a déjà atteint le stade tardif de l'Établissement des Fondations à un âge si précoce. Si tu étais au stade de l'Établissement des Fondations, je pourrais emprunter ton corps et utiliser certaines techniques. Mais actuellement, avec ton seul niveau de Condensation de Qi, peu importe mon aide, je ne peux espérer qu'éliminer un cultivateur de milieu de l'Établissement des Fondations. »
 
-Teng Li fronça les sourcils, puis sourit aussitôt. « Tu es le premier individu en dessous du stade de la Formation du Noyau à échapper à une attaque de ma part. »
+Teng Li fronça les sourcils, puis sourit aussitôt. « En dessous du stade de la Formation du Noyau, tu es le premier à échapper indemne à l'épée de Teng Li, moi. Ce qui m'étonne, c'est que tu possèdes en plus un trésor capable de téléportation. Ce trésor est à moi! »
 
 Wang Lin ne daigna même pas un regard en arrière alors qu'il s'échappait avec précipitation. Sa consommation d'énergie spirituelle était trop importante. Sans hésiter, il sortit une gourde et prit une longue gorgée pour relancer sa vitesse.
 

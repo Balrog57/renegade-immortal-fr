@@ -6,13 +6,13 @@ bookTitle: Clean Sweep
 en: Chapter 246 - Exterminating Teng (End)
 slug: lextermination-des-teng-fin
 ---
-Teng Huayuan frappa son sac de rangement, et une épée gigantesque en jaillit. L'arme semblait extrêmement antique. Il mordit le bout de sa langue et cracha un jet de sang frais. Bien que son corps parût s'affaiblir aussitôt, l'épée massive se mit à luire et fonça vers Wang Lin telle un éclair.
+Teng Huayuan frappa son sac de rangement, et une épée gigantesque d'environ dix pieds de long en jaillit. L'arme semblait extrêmement antique. Il mordit le bout de sa langue et cracha un jet de sang frais. Bien que son corps parût s'affaiblir aussitôt, l'épée massive se mit à luire et fonça vers Wang Lin telle un éclair.
 
 Les yeux de Wang Lin s'illuminèrent. À l'instant où l'épée géante apparut, son Royaume Ji entra en action. Une série d'éclairs rouges jaillit et encercla l'arme instantanément. Après une succession de craquements sinistres, la grande épée se brisa lentement. Finalement, le Royaume Ji fut épuisé et l'épée ne fut plus que poussière.
 
 Wang Lin plongea la main dans son sac de rangement et en sortit plusieurs Âmes Naissantes qu'il avait récupérées sur les membres de la famille Teng. Il les consomma pour restaurer rapidement l'énergie dépensée.
 
-Teng Huayuan fixa, abasourdi, l'endroit où l'épée avait disparu. Son apparence sembla soudainement vieillir de plusieurs décennies.
+Teng Huayuan fixa, abasourdi, l'endroit où l'épée avait disparu. Son apparence sembla soudainement vieillir.
 
 Wang Lin forma un sceau de sa main droite. Il le pressa contre son front, et les démons Xu Liguo et le troisième démon s'élancèrent rapidement. Sous les ordres de Wang Lin, ils poussèrent des rugissements excités et chargèrent les membres de la famille Teng.
 
@@ -38,7 +38,7 @@ Teng Huayuan afficha une haine profonde dans ses yeux en fixant Wang Lin, et dé
 
 « Gao Qiming! » Wang Lin fixa Teng Huayuan. Peu importait que l'homme mente ou non, ce nom était gravé dans sa mémoire.
 
-En regardant Teng Huayuan, le regard de Wang Lin se tourna soudainement vers l'horizon, empreint d'une intention meurtrière. Il agita la main et la restriction qui se contractait lentement commença brusquement à s'accélérer. Elle passa de cinq mille kilomètres de rayon à seulement quelques kilomètres en un instant. Durant ce processus, les victimes n'eurent même pas le temps de pousser un cri.
+En regardant Teng Huayuan, le regard de Wang Lin se tourna soudainement vers l'horizon, empreint d'une intention meurtrière. Il agita la main et la restriction qui se contractait lentement commença brusquement à s'accélérer. En un instant, elle se referma depuis cinq mille kilomètres de rayon jusque sur leurs corps. Durant ce processus, les victimes n'eurent même pas le temps de pousser un cri.
 
 Simultanément, les têtes volèrent une à une sous l'effet d'une force mystérieuse pour venir s'empiler sur la tour des têtes. Cette tour était désormais si haute qu'elle semblait toucher le ciel.
 
@@ -48,7 +48,7 @@ Au sol, le sang coulait comme une rivière et une odeur ferreuse et épaisse imp
 
 Tout en contemplant la scène avec stupeur, Teng Huayuan se mit soudain à rire. Son rire était empreint de douleur tandis que deux filets de sang coulaient le long de ses joues.
 
-Wang Lin observa calmement Teng Huayuan. Après un long silence, ce dernier prit une profonde inspiration et leva la tête vers Wang Lin. Sa voix, chargée d'indignation, tonna: « Bien, bien. Désormais, la rancœur entre votre famille Wang et ma famille Teng est effacée. J'ai exterminé votre famille et vous avez anéanti la mienne. C'est le karma, vraiment. Wang Lin, tu peux me tuer maintenant! »
+Wang Lin observa calmement Teng Huayuan. Après un long silence, ce dernier prit une profonde inspiration et leva la tête vers le ciel. Sa voix, chargée d'indignation, tonna: « Bien, bien. Désormais, la rancœur entre ta famille Wang et ma famille Teng est effacée. J'ai exterminé toute ta famille et tu as anéanti mon lignage. C'est le karma, vraiment. Wang Lin, tu peux me tuer maintenant! »
 
 Wang Lin leva sa main droite. Son doigt irradia une lumière dorée tandis qu'il concentrait l'énergie spirituelle de son corps à sa pointe.
 
@@ -62,17 +62,17 @@ S'il survivait aujourd'hui, il trouverait un moyen d'atteindre le stade de la Fo
 
 Cependant, il avait surestimé Pu Nanzi et sous-estimé Wang Lin. Le Sens Divin de Wang Lin était aussi puissant que celui d'un cultivateur au stade de la Formation de l'Âme. Comment aurait-il pu ne pas remarquer Pu Nanzi de si loin et le laisser l'interrompre?
 
-Au moment où Pu Nanzi apparut, Wang Lin projeta la lumière dorée de son doigt sur le front de Teng Huayuan et l'acheva.
+Au moment où Pu Nanzi apparut, Wang Lin projeta la lumière dorée de son doigt sur le front de Teng Huayuan et l'acheva. Ainsi mourut un homme d'ambition et de cruauté.
 
 C'était bien comme Teng Huayuan l'avait prédit; la querelle entre les familles Teng et Wang était terminée. La famille Teng était désormais totalement effacée de ce monde.
 
-La silhouette de Pu Nanzi apparut soudainement devant lui. Il regarda le sang qui inondait le sol, le cadavre de Teng Huayuan dont le visage avait esquissé une lueur d'espoir de vivre, et enfin la tour de têtes. Il ne put s'empêcher de frissonner.
+La silhouette de Pu Nanzi apparut soudainement devant lui. Il regarda le sang qui inondait le sol, le cadavre de Teng Huayuan dont les yeux venaient de s'allumer d'un désir de vivre, et enfin la tour de têtes. Il ne put s'empêcher de frissonner.
 
 Sans perdre un instant, il forma un sceau de sa main. Des faisceaux de lumière verte et rouge jaillirent de son sac de rangement.
 
 L'expression de Wang Lin resta sereine alors qu'il fixait Pu Nanzi: « Tu es en retard. »
 
-Pu Nanzi regarda Wang Lin, stupéfait. Après l'avoir scruté attentivement, il s'exclama: « Tu... tu es un disciple de la Secte Heng Yue! »
+Pu Nanzi regarda Wang Lin, stupéfait. Après l'avoir scruté attentivement, il s'exclama: « Tu... tu étais autrefois un disciple de la Secte Heng Yue! »
 
 Wang Lin fixa Pu Nanzi et, sans un mot, son Royaume Ji jaillit. Cependant, au moment où l'éclair rouge atteignit Pu Nanzi, les lumières verte et rouge formèrent un bouclier protecteur. Lorsque le Royaume Ji percuta la barrière, les deux lumières éclatèrent d'un vif éclat. Finalement, elles réussirent à bloquer l'attaque, mais leur intensité s'estompa considérablement.
 
@@ -102,19 +102,19 @@ L'expression de Wang Lin resta calme. L'apparition de cet homme faisait partie d
 
 S'il n'était pas au stade de la Formation de l'Âme, comment aurait-il pu détruire si aisément l'éclair du Royaume Ji?
 
-Le fait que cet homme sache pour la perle défiant le ciel faisait également partie des considérations de Wang Lin dans son plan de vengeance. C'est pourquoi, lors de son séjour à Zhao, il avait étendu son Sens Divin sur tout le pays. De cette façon, avec un Sens Divin de niveau Formation de l'Âme, personne ne pourrait l'identifier.
+Le fait que cet homme sache pour la perle défiant le ciel faisait également partie des considérations de Wang Lin dans son plan de vengeance. C'est pourquoi, lors de son séjour à Zhao, son Sens Divin avait constamment enveloppé tout son corps. De cette façon, avec un Sens Divin de niveau Formation de l'Âme, à moins de lui faire face de très près, personne ne pourrait distinguer son visage.
 
-Et personne ne pouvait le verrouiller par leur propre Sens Divin. C'est ce qui expliquait pourquoi ce messager n'était jamais sorti pour le traquer durant son massacre.
+Et personne ne pouvait le verrouiller par leur propre Sens Divin. C'est ce qui expliquait pourquoi ce messager n'était jamais sorti pour le traquer durant ces neuf jours de massacre.
 
 En réalité, l'homme d'âge moyen était perplexe ces derniers jours: peu importe la fréquence à laquelle il balayait Zhao avec son Sens Divin, il ne parvenait pas à débusquer celui qui exterminait les membres de la famille Teng.
 
 À moins que le Sens Divin de cette personne ne soit plus puissant que le sien, il était impossible de le détecter. Il faut dire que bien que son niveau de culture n'ait pas progressé en quatre cents ans, restant au début du stade de la Formation de l'Âme, nul à Zhao ne pouvait l'égaler.
 
-Il n'aurait jamais pu imaginer que, malgré un niveau de culture n'étant qu'au début de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Formation de l'Âme. Même le géant du Clan des Démons Géants de jadis, venu en personne, n'aurait pas pu trouver Wang Lin.
+Il n'aurait jamais pu imaginer que, malgré un niveau de culture n'étant que celui de l'Âme Naissante, le Sens Divin de Wang Lin soit aussi puissant que celui d'un cultivateur de la fin de la Formation de l'Âme. Même le géant du Clan des Démons Géants de jadis, venu en personne, n'aurait pas pu trouver Wang Lin.
 
 Une telle chose était extrêmement rare dans le monde de la culture. Après tout, Wang Lin était l'unique dévoreur d'âmes errant sous forme humaine.
 
-De plus, il y avait cet étrange éclair rouge. Bien que l'homme d'âge moyen ait fait mine de résister avec aisance, en vérité, l'éclair rouge avait pénétré son corps et endommagé son âme. Le dommage n'était pas immense, mais il l'avait tout de même rendu craintif.
+De plus, il y avait cet étrange éclair rouge. Bien que l'homme d'âge moyen ait fait mine de résister avec aisance, en vérité, l'éclair rouge avait pénétré son corps et endommagé son Sens Divin. Le dommage n'était pas immense, mais il l'avait tout de même rendu craintif.
 
 Voyant le messager apparaître, les yeux de Wang Lin brillèrent et, sans un mot, il sortit une goutte de sang.
 

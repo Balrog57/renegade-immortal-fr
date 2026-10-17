@@ -16,7 +16,7 @@ Cela prouvait que les Royaumes Ji, Dao et Shi avaient totalement disparu des pay
 
 Cette augmentation soudaine de la puissance de son énergie spirituelle renforça quelque peu la confiance de Wang Lin. En explorant l'énergie qui circulait en lui, il ressentit soudain une étrange sensation: il semblait y avoir une substance supplémentaire dans son énergie spirituelle.
 
-C'était comme si une matière mystérieuse imprégnait son énergie, et c'était précisément cette substance qui en avait décuplé la puissance.
+C'était comme si une matière mystérieuse imprégnait son énergie, et c'était précisément cette substance qui en avait soudainement accru la puissance.
 
 Auparavant, il ne l'avait pas remarquée car elle était peu présente dans son corps, mais sa quantité avait considérablement augmenté.
 
@@ -48,7 +48,7 @@ Même Wang Lin fut touché par la lumière bleue. Son corps se raidit, comme si 
 
 Plein d'incertitude, il observa le centre de l'explosion. Il n'était pas certain qu'il aurait survécu s'il avait été au cœur du choc.
 
-Il faut dire que ce grain cyan avait été affiné en utilisant uniquement les fils bleu foncé de son corps. Rien d'autre ne pouvait lui ressembler.
+Il faut dire que ce grain cyan avait été obtenu en comprimant sa propre énergie spirituelle pour n'en extraire que les fils bleu foncé; en comparaison, rien d'autre n'était du même niveau en matière de qualité.
 
 Wang Lin murmura pour lui-même: « Ce grain cyan est le meilleur trésor magique dont je dispose. »
 
@@ -62,11 +62,11 @@ Le regard brillant, il se remit sans un mot à l'affinage d'un autre grain.
 
 Trois jours plus tard, trois grains de riz flottaient devant Wang Lin. Son visage était empreint d'une grande gravité. Trois semblaient être sa limite. Ce n'était pas qu'il n'avait pas tenté d'en créer un quatrième, mais à chaque essai, l'un des trois précédents se dissipait. Après plusieurs expérimentations, Wang Lin renonça à cette idée.
 
-Après ces trois jours d'observation, il constata que bien que la puissance du grain fût immense, elle restait insuffisante pour blesser des cultivateurs de l'Âme Naissante.
+Après ces trois jours d'observation, il constata que bien que la puissance du grain fût immense, elle restait légèrement insuffisante face à des cultivateurs de l'Âme Naissante et n'atteignait pas l'effet espéré.
 
 S'il pouvait en lancer plusieurs dizaines, il aurait une chance, mais quoi qu'il fasse, Wang Lin ne parvenait pas à produire un quatrième grain. Après une longue réflexion, une idée lui vint: s'il parvenait à fusionner les trois grains en un seul, sa puissance augmenterait indéniablement, et comme il n'en posséderait plus qu'un, il pourrait alors en fabriquer davantage.
 
-Pensant ainsi, Wang Lin hésita un instant avant de dresser quelques formations défensives avec les rochers environnants. Puis, il sortit des talismans de protection qu'il avait dérobés, s'assit et plaça deux grains l'un contre l'autre.
+Pensant ainsi, Wang Lin hésita un instant avant de dresser quelques formations défensives simples avec des pierres brisées. Puis, il déploya plusieurs talismans de jade défensifs pris dans les sacs de rangement d'autres cultivateurs. Serrant fermement les dents, il se calma, concentra son esprit et fit lentement approcher deux grains l'un de l'autre.
 
 Le cœur de Wang Lin battait la chamade; il était prêt à s'enfuir à tout instant. Lentement, les deux grains se touchèrent.
 
@@ -76,7 +76,7 @@ Mais peu après, les deux grains fusionnèrent sans aucun bruit. Le nouveau grai
 
 Surpris, Wang Lin réfléchit un instant, puis entreprit de fusionner ce nouveau grain avec le dernier restant.
 
-Lorsque ces deux grains se touchèrent, un éclair cyan jaillit. L'expression de Wang Lin changea brusquement et il utilisa l'une des rares téléportations qui lui restaient pour disparaître de la pièce. À l'instant même où il disparut, la lumière cyan s'étendit et tout dans un rayon d'un kilomètre fut transformé en un monde de glace.
+Lorsque ces deux grains se touchèrent, un éclair cyan jaillit. L'expression de Wang Lin changea brusquement et il utilisa l'une des rares téléportations qui lui restaient pour disparaître sur place. À l'instant même où il disparut, la lumière cyan s'étendit et tout dans un rayon d'un kilomètre fut transformé en un monde de glace.
 
 Wang Lin réapparut à un kilomètre de là. Bien qu'il fût hors de portée de la lueur cyan, il sentait encore le froid lui remonter par les pieds.
 
@@ -94,6 +94,6 @@ Wang Lin était assis en tailleur sur le sol. Après un moment de culture, il ou
 
 Cette petite épée verte avait été raffinée avec son sang; ainsi, lorsque son énergie spirituelle avait changé, l'arme volante avait également acquis des attributs Ji.
 
-Alors qu'il s'apprêtait à utiliser sa nouvelle énergie pour raffiner l'épée, il s'interrompit brusquement. Il remarqua immédiatement plus d'une centaine de lueurs d'épées fonçant vers lui. Elles semblaient toutes poursuivre une seule et même personne.
+Alors qu'il s'apprêtait à utiliser sa nouvelle énergie pour raffiner l'épée, il s'interrompit brusquement. Son Sens Divin perçut aussitôt, à l'extérieur de sa demeure, environ une centaine de lueurs d'épées fonçant de toutes parts vers cet endroit. Elles semblaient toutes poursuivre une seule et même personne.
 
 Le visage de Wang Lin devint aussi froid que la glace tandis qu'il murmurait: « Serait-ce lui ? »

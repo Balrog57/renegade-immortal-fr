@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 249 - Turning Mortal
 slug: devenir-mortel
 ---
-Après être entré dans le pays de rang 4, Wang Lin ne volait plus; il marchait tel un mortel. Il observa les environs de ce lieu étranger et poussa un soupir.
+Après être entré dans le pays de rang 4, Wang Lin ne volait plus; il dissimula sa culture et marcha tel un mortel sur la route officielle. Il observa les environs de ce lieu étranger et poussa un soupir.
 
 Aucune méthode de culture ne peut aider à franchir l'étape de l'Âme Naissante pour atteindre celle de la Formation de l'Âme. Même les pilules sont inutiles, à moins de pouvoir trouver des remèdes de rang 6 ou supérieur.
 
@@ -18,23 +18,23 @@ Fort de ses quatre cents années d'expérience dans la culture et de ses confron
 
 Wang Lin avait longtemps arpenté le chemin du sang, mais tous ces massacres n'avaient rien à voir avec la compréhension des cieux. Il pressentait que s'il continuait sur cette voie, il ne serait jamais capable d'atteindre l'étape de la Formation de l'Âme.
 
-En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de l'Âme Naissante. Le Royaume Ji de son corps principal l'empêchait d'atteindre ce stade; seul son avatar avait atteint le début de l'Âme Naissante.
+En réalité, le véritable niveau de culture de Wang Lin n'était pas celui de l'Âme Naissante. Son corps principal, celui du Royaume Ji, restait toujours bloqué au goulot d'étranglement; seul son avatar avait atteint le début de l'Âme Naissante.
 
 Alors qu'il marchait sur la route, le corps de Wang Lin changea progressivement: son corps principal s'enfonça en lui pour sombrer dans un profond sommeil, tandis que son avatar se manifestait à l'extérieur.
 
 Wang Lin était arrivé à une certaine compréhension concernant son Royaume Ji; il ne chercherait donc plus à forcer le franchissement de ses blocages. Il ne dépendrait plus autant de ce domaine non plus. Désormais, il ne serait pour lui qu'un autre trésor magique.
 
-Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateurs de la Formation de l'Âme. Pour que ce trésor gagne en puissance, il aurait besoin de trésors célestes extrêmement rares, tel le Cristal Planétaire de Culture d'un pays de rang 6.
+Ses trésors magiques actuels étaient trop faibles pour blesser des cultivateurs de la Formation de l'Âme. Pour que ce trésor gagne en puissance, il aurait besoin de trésors célestes extrêmement rares, tel le Cristal de la Planète de Culture, trésor national d'un pays de rang 6.
 
-Après avoir renoncé à l'usage immédiat du Royaume Ji, Wang Lin décida d'utiliser son avatar pour suivre la voie d'un cultivateur. Si un jour son avatar atteignait le stade de la Transformation de l'Âme, il aurait peut-être une chance d'obtenir ce cristal. Une fois raffiné, cela lui donnerait peut-être l'opportunité de briser les limites de son Royaume Ji.
+Après avoir renoncé à l'usage immédiat du Royaume Ji, Wang Lin décida d'utiliser son avatar pour suivre la voie d'un cultivateur. Si un jour son avatar atteignait le stade de la Transformation de l'Âme, il aurait peut-être une chance d'obtenir ce cristal. Utilisé comme catalyseur, selon les dires de Na Duo, ce cristal lui donnerait peut-être l'opportunité de briser les limites de son Royaume Ji.
 
 Wang Lin prit une profonde inspiration et extirpa le Royaume Ji de sa conscience. Il comprenait que la chose la plus importante était d'acquérir une compréhension des cieux, mais il avait passé la majeure partie de sa vie sur la voie de la tuerie, une voie incomplète. S'il voulait comprendre les cieux, il devait recommencer depuis le commencement et devenir un mortel.
 
-Si l'on veut devenir un immortel, il faut d'abord redevenir un mortel.
+Pour atteindre la Formation de l'Âme, il faut d'abord se changer en mortel!
 
 Sans qu'il s'en rende compte, la mentalité de Wang Lin changea et il acquit un aperçu de cette vérité. Cependant, cet éclair de compréhension passa aussi vite qu'un éclair, et Wang Lin ne parvint pas à le saisir.
 
-Il réfléchit un moment, puis sourit. Sa culture disparut comme la neige qui fond au soleil. Après un instant, il n'avait plus rien d'autre qu'un simple mortel.
+Il réfléchit un moment, puis sourit. Sa culture disparut comme la neige qui fond. Après un instant, il ne différait plus en rien d'un simple mortel.
 
 Une lueur étrange brilla dans les yeux de Wang Lin alors qu'il saisissait une feuille de saule. Il la mit dans sa bouche pour en savourer le goût vert tout en poursuivant sa route.
 
@@ -44,7 +44,7 @@ En marchant, Wang Lin voyait les gens passer. Tous portaient des bagages, contra
 
 Après réflexion, il s'écarta du chemin, ramassa quelques brindilles et se fabriqua un panier. Il fit ensuite la récolte de diverses feuilles et herbes pour le remplir.
 
-Cela ne faisait que quelques heures qu'il marchait, et il avait déjà vu passer de nombreux arts martiaux du monde mortel montés à cheval. Aucun d'eux ne prêta attention à Wang Lin.
+Cela ne faisait que quelques heures qu'il marchait, et il avait déjà vu passer de nombreux guerriers mortels montés sur de grands chevaux. Aucun d'eux ne prêta attention à Wang Lin.
 
 Chaque passage de cavalerie soulevait un nuage de poussière, mais cela n'importait guère à Wang Lin. Il épousseta ses vêtements et reprit sa marche. Mais cette fois, il n'avait fait que quelques pas lorsqu'une voix cria derrière lui: « Écartez-vous! »
 
@@ -68,11 +68,11 @@ L'homme l'observa attentivement, sourit et dit: « Je m'appelle Lu Xing. Cette r
 
 Wang Lin ne chercha pas d'excuse et hocha la tête.
 
-L'homme sourit, joignit les mains et sauta sur son cheval. Soudain, le cheval poussa un cri, mais au lieu de s'élancer, il fit marche arrière. Wang Lin se retourna et vit qu'à cinq kilomètres derrière lui, une calèche avançait lentement.
+L'homme sourit, joignit les mains et sauta sur son cheval. Soudain, le cheval poussa un cri, mais au lieu de s'élancer, il fit marche arrière. Wang Lin se retourna et vit qu'à cinq kilomètres derrière lui, une file de calèches avançait lentement.
 
-Une heure plus tard, la calèche apparut derrière Wang Lin. Près d'une centaine de cavaliers gardaient le véhicule. Leurs yeux étaient vifs et leur port altier; il était évident qu'il s'agissait d'experts en arts martiaux.
+Une heure plus tard, la file de calèches apparut derrière Wang Lin. Près d'une centaine de cavaliers gardaient les véhicules. Leurs yeux étaient vifs et leur port altier; il était évident qu'il s'agissait d'experts en arts martiaux.
 
-Lu Xing se tenait près de la calèche, discutant avec quelqu'un à l'intérieur. La route n'étant pas large, Wang Lin se posta sur le bas-côté dès qu'il aperçut l'attelage.
+Lu Xing se tenait près d'une des calèches, discutant avec quelqu'un à l'intérieur. La route n'étant pas large, Wang Lin se posta sur le bas-côté dès qu'il aperçut l'attelage.
 
 Alors que la calèche passait, quatre cavaliers apparurent devant lui pour lui barrer la route. Lu Xing tourna les yeux vers Wang Lin, l'éclat de la curiosité brillant dans son regard. Il rapprocha son cheval de celui de Wang Lin, joignit les mains et demanda: « Jeune frère, aurais-tu des remèdes contre le mal du Vent Maléfique? »
 
@@ -80,7 +80,7 @@ Wang Lin comprit qu'on le prenait pour un médecin. Avec son tempérament habitu
 
 Réfléchissant ainsi, Wang Lin demanda: « Quelqu'un est-il souffrant? »
 
-L'homme hésita un instant avant de répondre: « Une servante est malade et nous sommes encore loin de la ville. Les médecins des environs ont tenté de lui administrer des médicaments, mais aucun n'a fonctionné. »
+L'homme hésita un instant avant de répondre: « Une servante est malade et nous sommes encore à sept jours de route de la capitale. Le médecin qui nous accompagne a prescrit des remèdes, mais ils n'ont apporté aucun soulagement. »
 
 Wang Lin jeta un coup d'œil à la calèche et dit: « Laissez-moi examiner la patiente. »
 
@@ -92,11 +92,11 @@ Lu Xing répondit promptement. Il descendit de cheval et dit: « Je vais devoir 
 
 Wang Lin suivit Lu Xing vers la calèche et s'apprêtait à monter quand le vieil homme à l'intérieur toussa. Lu Xing l'arrêta aussitôt: « Jeune frère, contente-toi de regarder d'ici. Inutile d'entrer. »
 
-Wang Lin fronça les sourcils. Grâce à son Sens Divin, il savait déjà qu'il y avait trois personnes dans la calèche. Outre le vieillard, il y avait deux belles dames. Il était clair qu'il s'agissait d'une maîtresse et de sa servante.
+Wang Lin fronça les sourcils. Grâce à son Sens Divin, il savait déjà qu'il y avait trois personnes dans la calèche. Outre le vieillard, il y avait deux jeunes filles. Il était clair qu'il s'agissait d'une maîtresse et de sa servante.
 
-La personne malade n'était pas la servante, mais la maîtresse. Grâce à son Sens Divin, Wang Lin voyait nettement que la dame ne souffrait pas de l'intrusion du Vent Maléfique, mais d'un gaz vert émanant de l'intérieur de son corps. Elle avait été empoisonnée.
+La personne malade n'était pas la servante, mais la maîtresse. Grâce à son Sens Divin, Wang Lin voyait nettement que la dame ne souffrait pas de l'intrusion du Vent Maléfique, mais d'un souffle vert présent dans le sang de son corps. Elle avait été empoisonnée.
 
-Wang Lin dit: « Tendez-moi sa main. »
+Wang Lin dit: « Tendez la main. »
 
 La dame hésita un instant avant de tendre la main. Wang Lin la tint un moment, puis la relâcha pour plonger la main dans son panier. Il en sortit une feuille et y fit circuler une fois son énergie spirituelle.
 
@@ -106,7 +106,7 @@ Lu Xing regarda la feuille avec une expression déconcertée. Peu importe commen
 
 Il s'apprêtait à jeter la feuille quand le rideau de la calèche se leva brusquement. Un vieil homme aux traits profondément ridés sortit et saisit l'objet. Après l'avoir scruté longuement, son expression changea radicalement: « Une feuille de saule centenaire! »
 
-Il prit une grande inspiration. Ses yeux étaient empreints d'incrédulité alors qu'il fixait Wang Lin et demanda respectueusement: « Y a-t-il un protocole particulier pour utiliser cette feuille? »
+Il prit une grande inspiration. Ses yeux étaient empreints d'incrédulité alors qu'il fixait Wang Lin et demanda respectueusement: « Y a-t-il des interdits à respecter en prenant cette feuille? »
 
 Wang Lin esquissa un sourire discret: « La manger crue suffit. »
 

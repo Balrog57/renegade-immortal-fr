@@ -6,35 +6,35 @@ bookTitle: The Mediocre Youth
 en: Chapter 23 - Tenth Cloud
 slug: le-dixieme-nuage
 ---
-Après un temps indéterminé, Wang Lin ouvrit les yeux et constata que l'obscurité régnait dehors. Il se leva de son lit et s'étira longuement. Son corps ne semblait pas avoir changé. Il sortit le bol en pierre qui reposait sous son lit et fut stupéfait: le dixième nuage était enfin apparu sur la perle.
+Après un temps indéterminé, Wang Lin ouvrit les yeux et constata que l'obscurité régnait dehors. Il se leva de son lit et s'étira longuement. Son corps ne semblait pas avoir changé. Il sortit le bol en pierre qui reposait sous son lit: il ne contenait plus une goutte de liquide. Il prit la perle, l'examina attentivement et, ravi, découvrit que le dixième nuage était enfin apparu à l'endroit qui était resté vide.
 
-Wang Lin était transporté par l'excitation. Fixant la perle, il se précipita hors de la maison. Il alla puiser de l'eau de source avant de revenir en hâte. Il plaça la perle de pierre dans l'eau et la remua vigoureusement.
+Wang Lin était transporté par l'excitation. Fixant la perle, il se précipita hors de la maison. Il alla puiser un grand bol d'eau de source avant de revenir en hâte. Il plaça la perle de pierre dans l'eau et la remua vigoureusement.
 
-Une fois cela fait, il but l'eau de source et la goûta un instant, mais aucun changement ne se produisit, contrairement aux fois précédentes. Le visage marqué par la déception, il observa la perle, puis tenta de la mordre, mais elle demeurait dure comme le roc.
+Une fois cela fait, il but l'eau de source et la goûta un instant, mais elle ne lui sembla pas différente de d'habitude. Perplexe, il observa longuement la perle, puis tenta de la mordre, mais elle demeurait dure comme le roc.
 
 Il alla jusqu'à presser une goutte de sang sur la pierre, sans que rien ne change.
 
-Hésitant, il serra les dents un long moment, puis saisit le bol en pierre et le fracassa contre la perle. Il était convaincu qu'une fois les dix nuages réunis, une métamorphose devait s'opérer.
+Hésitant, il serra les dents un long moment, puis saisit le bol en pierre et le fracassa contre la perle. Il se disait que, peut-être, une fois les dix nuages apparus, un changement se produirait à l'intérieur de la perle.
 
 Dans un fracas sourd, le bol de pierre se brisa. La main de Wang Lin en fut engourdie, mais la perle de pierre ne présentait aucune trace de dommage.
 
-Il tenta tout ce qui lui passait par l'esprit, mais la perle ne semblait montrer aucun signe de changement après l'apparition du dixième nuage. Le cœur serré par le désespoir, il la jeta sur le côté.
+Il tenta tout ce qui lui passait par l'esprit, mais la perle ne semblait montrer aucun signe de changement après l'apparition du dixième nuage. Le cœur meurtri d'avoir gaspillé deux gourdes de rosée, il la jeta de rage sur le côté.
 
-Quelque temps plus tard, il s'approcha malgré lui pour la ramasser. Après l'avoir fixée un instant, une somnolence l'envahit. Il fut interdit: il venait à peine de se réveiller, pourquoi éprouvait-il cette fatigue? Il se frotta les yeux et continua de contempler la perle.
+Quelque temps plus tard, il la ramassa de nouveau, refusant de s'avouer vaincu. Après l'avoir fixée un instant, une somnolence l'envahit. Il fut interdit: il venait à peine de se réveiller, pourquoi éprouvait-il cette fatigue? Il se frotta les yeux et continua de contempler la perle.
 
 Lentement, le sommeil devint irrésistible. La vision de la perle se brouilla progressivement avant qu'il ne s'effondre au sol, endormi, la perle toujours serrée dans sa main.
 
-Il fit un rêve. Dans ce songe, il atteignit un espace sans fin. Il n'y avait point d'étoiles, mais des corps lumineux l'entouraient de toutes parts. Bien qu'il fût en plein rêve, son esprit restait d'une clarté absolue. Il se demanda pourquoi il rêvait d'une telle chose.
+Il fit un rêve. Dans ce songe, il atteignit un espace sans fin. Il n'y avait ni soleil, ni lune, ni étoiles, mais d'innombrables corps lumineux l'entouraient de toutes parts. Bien qu'il fût en plein rêve, son esprit restait d'une clarté absolue. Il se demanda pourquoi il rêvait d'une telle chose.
 
 Wang Lin ne ressentait aucune anomalie physique dans ce lieu. Cependant, ignorant comment s'éveiller pour s'en échapper, il erra sans but dans cet univers infini pendant très longtemps.
 
-Après un temps indéfini, alors qu'il était épuisé, l'environnement se mit à trembler. Il eut l'impression que son corps allait être déchiqueté. Dans un cri, il ouvrit les yeux.
+Après un temps indéfini, alors qu'il était épuisé, l'environnement se mit à trembler. Il eut l'impression que son corps était déchiré par la douleur. Dans un gémissement, il ouvrit brusquement les yeux.
 
 Il regarda autour de lui et constata qu'il était toujours dans sa chambre. Wang Lin prit une profonde inspiration et essuya la sueur qui perlait sur son front. Il se réjouit que ce rêve étrange soit enfin terminé. Soudain, son expression changea radicalement. En regardant la perle, il remarqua que tous les nuages avaient disparu. À leur place, de petits caractères étaient inscrits sur la pierre.
 
-« Cela... » Wang Lin était pétrifié et s'approcha pour examiner de plus près. Les caractères étaient singuliers, d'une calligraphie inhabituelle. Ayant toujours aimé la lecture, il réfléchit longuement, tentant de déchiffrer ces signes en les comparant à ceux qu'il connaissait. Il parvint à en deviner quelques-uns.
+« Cela... » Wang Lin était pétrifié et s'approcha pour examiner de plus près. Les caractères étaient singuliers, d'une calligraphie inhabituelle. Ayant toujours aimé la lecture, il réfléchit longuement, tentant de déchiffrer ces signes en les comparant à ceux qu'il connaissait. Il parvint tant bien que mal à en deviner un peu le sens.
 
-Tenant la perle, Wang Lin murmura: « On dirait un nombre écrit en toutes lettres. Cela ne semble rien signifier de spécial. » Soudain, une pensée traversa son esprit et il se remémora son étrange songe.
+Tenant la perle, Wang Lin murmura: « Ce sont sans doute des chiffres, sans signification réelle. » Soudain, une pensée traversa son esprit et il se remémora son étrange songe.
 
 « Était-ce lié à la perle? » Wang Lin médita un instant, puis se coucha immédiatement pour tenter de s'endormir de force. Mais son énergie était trop vive; l'assoupissement lui échappait.
 
@@ -70,7 +70,7 @@ Deux heures, dix heures, vingt heures, quarante heures, cinquante heures!
 
 La sensation que son corps soit déchiré revint. Lorsque Wang Lin ouvrit les yeux, la lampe était sur le point de s'éteindre.
 
-« Dix fois plus de temps. Dix fois le temps passé dans le rêve! » Wang Lin se leva, fou de joie, serrant la perle contre lui.
+« Dix fois plus de temps. Dans le rêve, il s'écoule dix fois le temps de la réalité! » Wang Lin se leva, fou de joie, serrant la perle contre lui.
 
 Pour la première fois, il éprouva une véritable confiance en sa culture.
 

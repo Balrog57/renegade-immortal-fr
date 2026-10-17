@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 305 - Wandering Souls Show Their Might
 slug: les-ames-errantes-revelent-leur-puissance
 ---
-Des dizaines de milliers d'âmes errantes hurlaient en tourbillonnant autour de Wang Lin. Leurs regards glacials se posaient par intermittence sur les individus postés sur la plateforme.
+Plus de dix mille âmes errantes hurlaient en tourbillonnant autour de Wang Lin. Leurs regards glacials se posaient par intermittence sur les individus postés sur la plateforme.
 
 Ces âmes étaient de véritables âmes errantes issues du champ de bataille extraterrestre. Il avait déployé des efforts considérables pour contourner les lois de ce monde et réussir à les en extraire.
 
@@ -50,7 +50,7 @@ Les âmes errantes restantes cessèrent d'attaquer pour encercler Wang Lin, fixa
 
 L'homme au manteau gris maudit intérieurement, regrettant son impétuosité alors qu'il savait que les présents étaient l'élite de leurs planètes respectives et parfaitement préparés. Il n'aurait jamais imaginé que les créatures libérées par un adversaire aussi gravement blessé puissent être aussi redoutables. Si la culture de l'ennemi avait été à son apogée, il serait mort sur le coup.
 
-Voyant que ses flammes s'étouffaient et qu'une multitude de ces créatures mystérieuses rôdaient encore, l'homme serra les dents et agita la main. Un petit chaudron apparut alors devant lui. Son regard trahissait une profonde amertume alors qu'il s'apprêtait à l'utiliser pour fuir vers sa planète d'origine.
+Voyant que ses flammes s'étouffaient et qu'une multitude de ces créatures mystérieuses rôdaient encore, l'homme serra les dents et agita la main. Un petit chaudron apparut alors dans sa main. Son regard trahissait une profonde amertume alors qu'il s'apprêtait à l'utiliser pour fuir vers sa planète d'origine.
 
 Pourtant, au moment où il allait activer l'artefact, Wang Lin ouvrit brusquement les yeux et tendit la main. Le petit chaudron fut instantanément arraché à l'homme et vola vers Wang Lin.
 

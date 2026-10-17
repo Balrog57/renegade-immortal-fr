@@ -44,7 +44,7 @@ Ce n'est qu'une fois celui-ci parti que les yeux de l'homme d'âge moyen s'illum
 
 En un clin d'œil, il pénétra à l'intérieur de la grotte. Il l'inspecta un moment sans rien trouver d'anormal, puis se mit à réfléchir.
 
-« Étais-je trop paranoïaque? Était-il vraiment sur le point de faire une percée, ce qui expliquerait sa vitesse de culture si rapide? » L'homme d'âge moyen réfléchit encore un peu avant de sortir de la grotte. Il décida de porter une attention particulière à cet individu nommé Qian Mu.
+« Étais-je trop paranoïaque? Était-il vraiment sur le point de faire une percée, ce qui expliquerait sa vitesse de culture si rapide? » L'homme d'âge moyen réfléchit encore un peu avant de sortir de la grotte. Il décida de porter une attention particulière à cet individu nommé Qing Mu.
 
 Wang Lin vola le long de la montagne avec son jeton jusqu'à trouver la grotte 803. La taille de la grotte était identique à celle de la 1090, mais au centre se trouvait une petite formation.
 

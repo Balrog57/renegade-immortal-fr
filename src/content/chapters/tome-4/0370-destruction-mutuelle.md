@@ -18,7 +18,7 @@ Il était désormais éveillé et savait que Sun Tai n'avait aucune intention bi
 
 L'ancêtre du Clan des Démons Géants les poursuivait. D'un revers de sa hache gigantesque, il projeta une onde d'énergie tranchante. Dans un fracas assourdissant, l'espace devant Sun Tai explosa, engendrant d'innombrables micro-failles.
 
-Sun Tai jura. Il pointa le ciel et trois rayons de lumière verte s'envolèrent. Ces lueurs se transformèrent en trois corps qui chargèrent l'ancêtre du Clan des Démons Géants.
+Sun Tai jura. Il pointa le ciel et trois rayons de lumière verte s'envolèrent. Ces lueurs se transformèrent en trois cadavres momifiés qui chargèrent l'ancêtre du Clan des Démons Géants.
 
 Sun Tai hurla: « Explosez pour moi! »
 
@@ -30,7 +30,7 @@ Le visage de Sun Tai était dévoré par la fureur alors qu'il chargeait en avan
 
 L'ancêtre était extrêmement maussade. Il n'était qu'au début du stade de la Transformation de l'Âme. S'il n'avait pas bénéficié d'un corps puissant et de la force de sa lignée, il n'aurait jamais osé tenter de dérober quoi que ce soit à un cultivateur de stade intermédiaire de la Transformation de l'Âme. Cependant, Wang Lin était trop précieux pour son clan; il n'avait d'autre choix que de combattre.
 
-La paume gigantesque contenait une puissance dépassant de loin l'énergie spirituelle ordinaire. Les cultivateurs de la Transformation de l'Âme n'utilisaient pas l'énergie spirituelle du ciel et de la terre; ils avaient besoin d'énergie spirituelle céleste pour accroître leur niveau de culture.
+La paume gigantesque contenait une puissance dépassant de loin l'énergie spirituelle ordinaire. Les cultivateurs de la Transformation de l'Âme ne dépendaient plus entièrement de l'énergie spirituelle du ciel et de la terre; ils avaient besoin d'énergie spirituelle céleste pour accroître leur niveau de culture.
 
 Par conséquent, leurs attaques contenaient naturellement une part d'énergie spirituelle céleste dissimulée en leur sein.
 
@@ -62,7 +62,7 @@ Le corps de l'ancêtre du Clan des Démons Géants trembla et du sang perla au c
 
 Dans un fracas, un éclair noir déchira le ciel et fondit sur lui.
 
-Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète du Tonnerre Céleste pendant cent ans! Tu n'es qu'une simple branche du Clan des Démons Géants. Meurs! »
+Sun Tai hurla: « Mon domaine du tonnerre est le fruit d'un prix colossal, après avoir cultivé sur la planète du Tonnerre Céleste pendant cent ans! Tu n'es qu'un vulgaire bâtard du Clan des Démons Géants. Meurs! »
 
 Le visage de l'ancêtre s'assombrit en voyant l'éclair noir. Il poussa un rugissement, son corps grandissant de dix mètres, et frappa l'éclair descendant d'un coup de poing.
 
@@ -70,13 +70,13 @@ Boom!
 
 Un nouveau fracas retentit. L'éclair traversa le corps de l'ancêtre, le faisant pâlir instantanément. Plus de sang s'échappa de sa bouche alors qu'il fixait Sun Tai du regard.
 
-À cet instant, l'homme d'âge moyen de Xue Yue se téléporta silencieusement aux côtés de Wang Lin. Un sourire cruel étira ses lèvres alors qu'il levait la main pour achever le jeune homme.
+À cet instant, l'homme d'âge moyen de Xue Yu se téléporta silencieusement aux côtés de Wang Lin. Un sourire cruel étira ses lèvres alors qu'il levait la main pour achever le jeune homme.
 
 Wang Lin ouvrit soudainement les yeux, révélant un regard féroce. Il avait tenté de récupérer de l'énergie plus tôt, mais il découvrit que le domaine de cet homme et le sceau de Sun Tai s'étaient combinés pour former une barrière impénétrable. En conséquence, il ne pouvait absolument pas restaurer son énergie spirituelle. Même lorsqu'il ingérait des pilules, l'énergie se faisait absorber par les sceaux dès leur dissolution.
 
 La quantité d'énergie spirituelle dont il disposait était inférieure à celle d'un cultivateur de l'Établissement des Fondations; il n'était plus qu'au niveau d'un cultivateur de la 3e couche de Condensation de Qi, et son stock ne cessait de s'épuiser. Une fois vidé, il ne serait plus qu'un mortel, vulnérable à n'importe quel artiste martial.
 
-Son âme originelle était extrêmement affaiblie et risquait de s'effondrer à tout moment, l'empêchant même de quitter son corps. C'était la blessure la plus grave qu'il ait jamais subie, si l'on ne comptait l'épisode où il avait perdu son enveloppe physique.
+Son âme originelle était extrêmement affaiblie et risquait de s'effondrer à tout moment, l'empêchant même de quitter son corps. C'était la blessure la plus grave qu'il ait jamais subie, si l'on ne comptait l'épisode où son corps physique avait été pulvérisé par Teng Huayuan.
 
 L'homme d'âge moyen, les yeux brillants, s'apprêta à frapper de sa main droite.
 
@@ -84,7 +84,7 @@ Mais au moment précis où il allait agir, un éclair noir descendit du ciel. L'
 
 En un clin d'œil, l'éclair et l'homme disparurent à l'horizon.
 
-« Hmph, tu oses me chiper les restes sous mes yeux! » Sun Tai ricana en formant un nouveau sceau. Il comptait chasser l'ancêtre d'un coup, puis s'occuper définitivement de Wang Lin. Il comptait cette fois sceller complètement Wang Lin afin d'éviter que son âme originelle ne soit détruite.
+« Hmph, tu oses me chiper les restes sous mes yeux! » Sun Tai ricana en formant un nouveau sceau. Il comptait chasser l'ancêtre d'un coup, puis s'occuper définitivement de Wang Lin. Il avait décidé cette fois de sceller complètement Wang Lin afin d'épargner à sa propre âme originelle tout dommage.
 
 Les yeux de l'ancêtre du Clan des Démons Géants brillèrent d'une lueur mystérieuse. Il fixa Sun Tai et déclara: « Je vais emporter cet homme et je le rendrai dans sept jours! »
 
@@ -110,7 +110,7 @@ Le vortex tourna avec une violence inouïe et Sun Tai fut entraîné vers l'int�
 
 Le garçon ouvrit brusquement les yeux, révélant une lueur démoniaque. D'un seul pas, il se retrouva devant l'ancêtre du Clan des Démons Géants. Sa vitesse surpassait celle de la téléportation.
 
-L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice irruptionner en lui. Il cracha un flot de sang tandis que son âme originelle s'échappait précipitamment de son corps, emportant avec elle son sac de rangement. Son corps tomba, puis le garçon lui assena un coup de pied qui creusa un profond cratère dans sa poitrine.
+L'ancêtre vit le garçon percuter sa poitrine et sentit une force destructrice déferler en lui. Il cracha un flot de sang tandis que son âme originelle s'échappait précipitamment de son corps, emportant avec elle son sac de rangement. Son corps tomba, puis le garçon lui assena un coup de pied qui creusa un profond cratère dans sa poitrine.
 
 Cependant, Sun Tai avait déjà été happé par le vortex. Il poussa un cri de frustration et disparut lentement.
 

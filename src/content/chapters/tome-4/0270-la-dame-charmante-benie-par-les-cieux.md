@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 270 - The Lovely Lady Blessed By The Heavens
 slug: la-dame-charmante-benie-par-les-cieux
 ---
-Wang Lin réfléchit un instant aux inquiétudes de Zhou Wutai. Bien que l'Alliance des Quatre Sectes n'ait que peu de liens avec lui, il vivait dans cette rue depuis plus de trente ans.
+Wang Lin réfléchit un instant aux inquiétudes de Zhou Wutai. Bien que l'Alliance des Quatre Sectes ne fût pas sa terre natale, il vivait dans cette rue de la capitale depuis plus de trente ans.
 
 Il se tenait actuellement devant la boutique et contemplait la neige en laissant échapper un soupir.
 
@@ -14,9 +14,9 @@ La dernière information mentionnée par Zhou Wutai sur le jade était que, afin
 
 Au jour où le jade fut transmis, seul le groupe en route vers Suzaku n'était pas encore revenu.
 
-Cependant, leur absence plongea tout le monde au sein de l'Alliance des Quatre Sectes dans un silence pesant.
+Cependant, les réponses obtenues plongèrent tout le monde au sein de l'Alliance des Quatre Sectes dans un silence pesant.
 
-Tous les pays alliés de culture de rang 4 accueillirent l'Alliance des Quatre Sectes avec respect, mais aucun d'eux ne voulut parler de la guerre; ils se contentaient d'éluder le sujet. Certains allaient même jusqu'à éviter tout contact. Finalement, un autre pays, qui entretenait de très bonnes relations avec eux, leur annonça que les pays de culture de rang 5 avaient ordonné de ne pas s'impliquer dans cette affaire.
+Tous les pays alliés de culture de rang 4 accueillirent l'Alliance des Quatre Sectes avec respect, mais aucun d'eux ne voulut parler de la guerre; ils se contentaient d'éluder le sujet. Certains allaient même jusqu'à éviter tout contact. Finalement, un autre pays, qui entretenait de très bonnes relations avec eux, leur laissa entendre, par sympathie, que les pays de culture de rang 5 dont chacun relevait avaient ordonné de ne pas s'impliquer dans cette affaire.
 
 Quant au groupe qui s'était rendu dans le pays de culture de rang 5, leurs visages étaient encore plus sombres à leur retour. Le pays de culture de rang 5 leur avait signifié qu'il était inutile de leur remettre le Chaudron de Pluie, car ils n'apporteraient aucun soutien.
 
@@ -36,7 +36,7 @@ La raison pour laquelle Suzaku agissait ainsi était de tenter de franchir cet �
 
 À l'heure actuelle, Suzaku n'avait même pas satisfait la première exigence, elle accordait donc une attention toute particulière à la jeune génération talentueuse.
 
-Et le talent de cette femme de Xue Yu était déjà prodigieux. En conséquence, Suzaku avait pris de nombreuses mesures préparatoires.
+Et le talent de cette femme de Xue Yu était déjà prodigieux. En conséquence, Suzaku était résolue à l'obtenir à tout prix.
 
 Sa seule requête était que Xue Yu devienne un pays de culture de rang 5 et qu'ils puissent quitter cette terre désolée pour s'installer ailleurs sur la planète Suzaku.
 
@@ -54,13 +54,13 @@ Après avoir lu l'intégralité du jade transmis par Zhou Wutai, le cœur de Wan
 
 Il ressentit un grand regret en contemplant la rue et les boutiques désertes. Il y a quelques mois, la rue grouillait de monde et toutes les boutiques ouvraient tôt dans une effervescence constante. Mais à cause de la guerre entre les deux pays de culture, les mortels avaient été durement touchés.
 
-Wang Lin soupira. À cet instant, il éprouvait un profond regret. Les mortels étaient inférieurs aux fourmis aux yeux des cultivateurs, mais beaucoup oubliaient qu'ils avaient eux aussi été, autrefois, des êtres vivants.
+Wang Lin soupira. À cet instant, il éprouvait un profond regret. Les mortels étaient inférieurs aux fourmis aux yeux des cultivateurs, mais beaucoup oubliaient qu'eux-mêmes étaient autrefois issus du monde des mortels.
 
 Wang Lin n'avait aucun moyen d'empêcher cela et ne souhaitait pas s'en mêler. Les Lois du Ciel sont impitoyables et, après avoir expérimenté le domaine de la vie et de la mort, sa mentalité avait changé. Il regarda la rue et murmura doucement: « Il est temps de partir... une fois la dernière étape achevée, il sera temps de partir... »
 
 Sur ces mots, il secoua la tête. Il se détourna et referma doucement la porte de la boutique.
 
-Puis, les mains derrière le dos et vêtu d'un manteau épais, il s'éloigna. Lentement, sa silhouette se fondit dans la neige.
+Puis, les mains derrière le dos et vêtu d'un épais manteau ouaté et coiffé d'un bonnet de fourrure, il s'éloigna. Lentement, sa silhouette se fondit dans la neige.
 
 Le corps de Wang Lin semblait lent lorsqu'il se déplaçait dans les airs, mais en réalité, il allait très vite. En volant, il croisa d'innombrables cultivateurs dont les visages étaient tous empreints de tristesse. C'était comme si la neige était un rocher gigantesque pesant sur leurs cœurs.
 
@@ -96,7 +96,7 @@ Malheureusement, tenter de trouver ce type de bois dans cette neige revenait à 
 
 Dans le tourbillon, Wang Lin déploya son Sens Divin pour débusquer les branches dont il avait besoin. Après avoir récupéré tout ce qu'il pouvait, il sortit du tourbillon et appliqua la même technique sur la neige environnante.
 
-Peu à peu, à mesure que des tourbillons de cent mètres apparaissaient dans la neige, la quantité de bois dans le sac de stockage de Wang Lin augmentait. Cela dura sept jours.
+Peu à peu, à mesure que des tourbillons de cent mètres apparaissaient dans la neige, la quantité de bois dans le sac de rangement de Wang Lin augmentait. Cela dura sept jours.
 
 Durant ces sept jours, toute cette zone fut défrichée. Une fois qu'il eut obtenu suffisamment de bois, Wang Lin jeta un dernier regard sur les lieux, puis partit.
 

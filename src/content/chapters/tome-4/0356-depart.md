@@ -52,7 +52,7 @@ Une fois posé, il frappa l'air en direction de l'ouverture, provoquant l'ouvert
 
 Le corps originel s'assit en tailleur à l'extérieur et commença à méditer. Il ne pouvait entrer, car s'il le faisait, personne ne serait là pour guider Wang Lin vers la sortie.
 
-Pourtant, s'il n'entrait pas, il serait trop difficile de se retrouver. C'est pourquoi il ne les avait pas tués, préférant leur laisser des traces pour qu'ils puissent mener l'enquête.
+Pourtant, s'il n'entrait pas, il serait trop difficile de se retrouver. C'est pourquoi il ne les avait pas tués, préférant imprimer une marque en eux pour qu'ils partent à sa recherche.
 
 Dans le vide, Wang Lin était assis sur la boussole stellaire. Il ouvrit soudainement les yeux et murmura: « Alors, c'est ce qui s'est passé! »
 
@@ -98,7 +98,7 @@ Le corps originel semblait désormais recouvert d'un filet d'or. Les crevasses d
 
 Cette lueur devint de plus en plus vive jusqu'à ce qu'elle s'infiltre dans la chair et les os du corps originel pour y disparaître.
 
-L'expression du corps originel resta impassible, mais une pointe d'or traversa son regard. Le fruit de la réincarnation ayant été entièrement absorbé, sa vitesse d'absorption de l'énergie spirituelle fut multipliée d'innombrables fois.
+L'expression du corps originel resta impassible, mais une pointe d'or traversa son regard. Tous ses méridiens avaient disparu et, le fruit de la réincarnation ayant été entièrement absorbé, sa vitesse d'absorption de l'énergie spirituelle fut multipliée d'innombrables fois.
 
 Le corps originel pouvait enfin être considéré comme un véritable Dieu Ancien!
 
@@ -120,7 +120,7 @@ Le père de Zhou Ru, un homme robuste aux mains calleuses, regarda sa fille en s
 
 « Est-elle vraiment muette? » soupira le père.
 
-Ce jour-là, un vieil homme vêtu d'une robe de cultivateur pénétra dans le village. Le chef du village l'accueillit respectueusement et ordonna que tous les enfants de moins de six ans soient présentés.
+Ce jour-là, un vieil homme vêtu d'une robe daoïste pénétra dans le village. Quelques anciens du village l'accueillirent respectueusement et ordonnèrent que tous les enfants de moins de six ans soient présentés.
 
 Peu après, les dix-neuf enfants de moins de six ans arrivèrent au centre du village, accompagnés de leurs parents.
 
@@ -132,11 +132,11 @@ Le père de Zhou Ru secoua la tête: « Laisse-la essayer. Si elle est choisie, 
 
 La femme se mordit la lèvre sans rien ajouter.
 
-Le vieil homme en robe dégageait une certaine arrogance. Il était déjà impatient; il avait visité d'innombrables villages sans trouver une seule racine spirituelle. S'il n'avait pas été contraint par le règlement de sa secte — qui exigeait qu'un disciple parte à la recherche d'un talent tous les six ans — il ne se serait jamais donné cette peine.
+Le vieil homme en robe dégageait une certaine arrogance. Il était déjà impatient; il avait visité d'innombrables villages sans trouver une seule racine spirituelle. S'il n'avait pas été contraint par le règlement de sa secte — qui exigeait que tous les disciples descendent chercher un talent tous les six ans — il ne se serait jamais donné cette peine.
 
 Il était déjà venu dans ce village, il y a six et douze ans, sans succès.
 
-« J'ai trouvé un enfant doté d'une racine spirituelle au village de Liu il y a six ans. Je me demande si je trouverai quelqu'un ici. Si c'est le cas, je recevrai trois pierres spirituelles de qualité moyenne. » Le vieil homme inspectait les enfants un à un. Ses sourcils se fronçaient davantage et la déception sur son visage s'accentuait.
+« J'ai trouvé un enfant doté d'une racine spirituelle au village de Liu, juste devant, il y a six ans. Je me demande si j'en trouverai encore un en y retournant. Si c'est le cas, je recevrai trois pierres spirituelles de qualité moyenne. » Le vieil homme inspectait les enfants un à un. Ses sourcils se fronçaient davantage et la déception sur son visage s'accentuait.
 
 Soudain, son regard se fixa sur Zhou Ru. Il s'approcha d'elle avec célérité et pointa son front, le visage illuminé par la joie.
 

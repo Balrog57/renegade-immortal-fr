@@ -50,13 +50,13 @@ Il n'était pas certain que les membres de la Secte Xuan Dao viendraient tuer se
 
 Le temps passa lentement et, en un clin d'œil, Wang Lin séjourna à l'extérieur du village pendant un mois. Durant ce mois, il maintint son Sens Divin déployé en permanence. Un jour, une lueur froide traversa ses yeux. Il murmura: « Alors, ils sont finalement venus. »
 
-Deux éclats de sabre volèrent rapidement vers le village. Lorsqu'ils se posèrent, leurs silhouettes apparurent. L'un d'eux portait une cape noire couvrant tout son corps, rendant son identité impossible à distinguer, mais il dégageait une odeur répugnante.
+Deux lueurs d'épée volèrent rapidement vers le village. Lorsqu'ils se posèrent, leurs silhouettes apparurent. L'un d'eux portait une cape noire couvrant tout son corps, rendant son identité impossible à distinguer, mais il dégageait une odeur répugnante.
 
 Une voix empreinte de haine s'échappa de l'individu encapuchonné: « Zhang Kuang, les parents de Wang Lin vivent bien ici? »
 
 À ses côtés se tenait un jeune homme très beau, au regard perçant et aux traits masculins marqués, mais dont les yeux manquaient d'éclat, empreints d'une certaine avidité. Il murmura: « Senior frère, ce Wang Zhuo est vraiment méprisable. Je pensais qu'après s'être autant moqué de Wang Lin, il finirait par me dire où se trouvaient ses parents, mais il n'a pas ouvert la bouche. Heureusement, j'ai été assez malin pour vérifier les registres des disciples de la Secte Heng Yue et j'ai découvert qu'il venait de ce village, mais j'ignore quelle est sa maison. »
 
-Puis, il pensa: « Wang Lin, nous appartenions au même secteur autrefois, j'avais encore une certaine considération pour toi. Mais désormais, je suis un disciple de la Secte Xuan Dao. Peu importe, je dois m'emparer du trésor que tu possèdes. »
+Puis, il pensa: « Wang Lin, nous appartenions à la même secte autrefois, j'avais encore une certaine considération pour toi. Mais désormais, je suis un disciple de la Secte Xuan Dao. Peu importe, je dois m'emparer du trésor que tu possèdes. »
 
 L'homme enveloppé dans la cape noire était le disciple principal de la Secte Xuan Dao, Zhou Peng. Sa haine envers Wang Lin avait atteint son paroxysme; il aurait voulu dévorer la chair et boire le sang de ce dernier pour avoir ruiné sa réputation. Désormais, son corps était recouvert d'une poussière noire impossible à laver, l'obligeant à se dissimuler sous une cape sombre pour ne pas être reconnu.
 

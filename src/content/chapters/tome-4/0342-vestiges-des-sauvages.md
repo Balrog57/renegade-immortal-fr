@@ -56,7 +56,7 @@ Le vieil homme Hu éclata de rire: « Cultivatrice Zi Xin, ne me blâmez pas. Si
 
 En entendant parler de l'Arbre de Réincarnation, l'esprit de Wang Lin s'était mis en marche. En entendant les mots « Fruit de la Réincarnation », il en eut la certitude. Il réfléchit un instant puis demanda: « Est-ce ce fruit de la taille d'un poing qui change de couleur toutes les deux heures? »
 
-Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
+Les yeux du vieil homme Hu s'illuminèrent. Il dévisagea longuement Wang Lin avant de déclarer: « Frère Wang est vraiment très bien informé! C'est précisément ainsi que l'on identifie le fruit. Pour nous, cultivateurs de la Formation de l'Âme, c'est un trésor inestimable. S'il est consommé au stade avancé de la Formation de l'Âme, il augmente les chances d'atteindre le stade de la Transformation de l'Âme de plus de 30 %. Je ne l'ai vu que dans de vieux textes anciens. »
 
 Wang Lin réfléchit. D'après ses souvenirs d'Ancien Dieu, peu de fruits étaient réellement bénéfiques pour un jeune Ancien Dieu. En raison de la nature de leur corps, la plupart des fruits étaient inutiles. Même les fruits célestes ne pouvaient augmenter leur énergie spirituelle que très légèrement.
 
@@ -120,13 +120,13 @@ Ce bras était resté en excellent état. Une fine couche de glace le recouvrait
 
 « Suzaku n'est pas intervenue pour aider Papillon Rouge, mais a plutôt envoyé cette lettre de défi. C'est en effet étrange. » Wang Lin réfléchit longuement, sans parvenir à en trouver la raison.
 
-« Il semble qu'un combat contre Papillon Rouge soit inévitable, mais tant qu'elle n'aura pas atteint le stade de la Transformation de l'Âme, j'aurai une chance de vaincre », ricana Wang Lin. Il tendit la main et une chaise en pierre vola vers lui pour se poser devant lui.
+« Il semble qu'un combat contre Papillon Rouge soit inévitable, mais tant qu'elle n'aura pas atteint le stade de la Transformation de l'Âme, j'aurai une chance de vaincre. Ce bras amputé va maintenant servir », ricana Wang Lin. Il tendit la main et une chaise en pierre vola vers lui pour se poser devant lui.
 
 La chaise semblait prête à fondre, mais elle se métamorphosa en un bassin. Wang Lin y déposa le bras de Papillon Rouge, forma un sceau, et une lumière noire apparut sur sa main.
 
 Wang Lin pointa le bras, et la lumière noire y pénétra.
 
-Ensuite, il frappa son sac de rangement et en sortit plusieurs petites fioles. Ces flacons contenaient des substances qu'il avait acquises au cours des derniers siècles: du poison provenant d'une bête spirituelle.
+Ensuite, il frappa son sac de rangement et en sortit deux petites fioles de jade blanc. Ces flacons contenaient des substances qu'il avait acquises au cours des derniers siècles: du poison provenant d'une bête spirituelle.
 
 Il brisa les fioles et versa leur contenu. Un liquide rouge semblable à du sang s'en échappa et fusionna avec le bras.
 

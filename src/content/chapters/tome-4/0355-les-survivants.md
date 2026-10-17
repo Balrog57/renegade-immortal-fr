@@ -6,7 +6,7 @@ bookTitle: Clean Sweep
 en: Chapter 355 - Remaining people
 slug: les-survivants
 ---
-Wang Lin sentit la plante géante invoquée par le vieil homme alors qu'il se tenait au sommet de la boussole stellaire. Ses yeux s'illuminèrent, mais il ne chercha plus à harceler le vieil homme et préféra s'éloigner.
+Wang Lin sentit la plante géante invoquée par le vieil homme alors qu'il se tenait au sommet de la boussole stellaire. Il hésita, le regard vacillant, puis ne chercha plus à harceler le vieil homme et préféra s'éloigner.
 
 Il avait fait preuve d'une grande prudence tout ce temps. Il n'agissait que lorsqu'il était certain de sa propre sécurité.
 
@@ -18,9 +18,9 @@ Peu après son départ, le vieil homme ouvrit soudainement les yeux à l'intéri
 
 Il réfléchit un instant, puis utilisa l'esprit ancestral pour tenter de communiquer avec l'extérieur.
 
-Le plus terrifiant dans ce vide était de trouver une issue. Ce n'était pas un vide ordinaire où l'on pouvait s'échapper en déchirant simplement l'espace. Sans guidage venant de l'extérieur, on resterait piégé ici pour l'éternité.
+Le plus terrifiant dans ce vide était l'absence d'issue. Ce n'était pas un vide ordinaire où l'on pouvait s'échapper en déchirant simplement l'espace. Sans guidage venant de l'extérieur, on resterait piégé ici pour l'éternité.
 
-Après un long moment, une pointe de panique apparut dans les yeux du vieil homme. Il avait depuis longtemps oublié Wang Lin; ce qu'il désirait par-dessus tout à présent était d'envoyer un message à son clan à l'extérieur, afin qu'ils puissent ériger un signal pour lui servir de guide.
+Après un long moment, une pointe de panique apparut dans les yeux du vieil homme. Il avait depuis longtemps oublié Wang Lin; ce qu'il désirait par-dessus tout à présent était d'envoyer un message à son clan à l'extérieur, afin qu'ils déchirent l'espace à l'extérieur et laissent un guide pour lui permettre de retrouver son chemin.
 
 Wang Lin s'assit sur la boussole stellaire et vola durant une très longue période. Bien que le sentiment de danger derrière lui eût disparu, il demeura extrêmement prudent et continua de voler pendant plusieurs jours avant de finalement s'arrêter.
 
@@ -34,7 +34,7 @@ Wang Lin poussa un rugissement et afficha une expression de douleur. Les lignes 
 
 La plante mystérieuse réapparut. La perle défiant le ciel brilla d'une lueur verte et commença à l'absorber.
 
-Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Ce sort de la Secte des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
+Après un long moment, Wang Lin ouvrit les yeux et prit une profonde inspiration. Il regarda en arrière et dit: « Ce sort du Clan des Immortels Délaissés est trop étrange. Si je les rencontre à nouveau, je devrai être plus vigilant. »
 
 Il saisit la perle défiant le ciel pour l'examiner. Neuf feuilles s'étaient pleinement formées et la dixième était partiellement achevée.
 
@@ -48,17 +48,17 @@ Sans aide extérieure, il était extrêmement difficile de quitter ce lieu. Cepe
 
 Il s'assit sur la boussole et tenta lentement de ressentir son corps original.
 
-Dans le pays de Chu, à des milliers de kilomètres sous terre, une sphère de lumière violette brillait.
+Dans le pays de Chu, dans la vallée à l'extérieur du Cimetière des Immortels, à des milliers de kilomètres sous terre, une sphère de lumière violette brillait.
 
-À l'intérieur de cette lumière siégeait un jeune homme très beau. Il avait une chevelure rousse flamboyante, une peau au bronze éclatant et de minuscules fissures parcouraient tout son corps.
+À l'intérieur de cette lumière siégeait en tailleur un homme au visage sévère. Il avait une chevelure rousse flamboyante et le torse nu; sa peau, d'un bronze légèrement rugueux, était parcourue de minuscules fissures.
 
-Deux étoiles tournaient lentement sur le front de cet individu.
+Deux points d'étoile, disposés en yin-yang, tournaient lentement entre les sourcils de cet individu.
 
 À cet instant, le jeune homme ouvrit soudainement les yeux, dégageant une intention meurtrière. Après une courte réflexion, il se leva brusquement et sortit à la surface.
 
-Il frappa son sac de rangement et fut immédiatement vêtu de noir. Désormais, il ne ressemblait en rien à un autre cultivateur ordinaire.
+Il frappa son sac de rangement et fut immédiatement vêtu de noir. Désormais, il ne se distinguait en rien d'un cultivateur ordinaire.
 
-Cet homme pénétra dans la forêt du Cimetière des Immortels. Il s'arrêta en un point précis et frappa l'air du poing, provoquant l'apparition d'une faille spatiale circulaire.
+Cet homme pénétra dans la forêt du Cimetière des Immortels. Il s'arrêta au pied d'un arbre immense et frappa l'air du poing, provoquant l'apparition d'une faille spatiale circulaire.
 
 Après avoir attendu un instant, il secoua la tête et poursuivit sa route.
 
@@ -72,11 +72,11 @@ La partie nord de la forêt était recouverte de feuilles mortes qui bruissaient
 
 Dans le nord de la forêt du Cimetière des Immortels, un homme et une femme apparurent soudainement dans le ciel.
 
-La femme était d'une grande beauté, portant un voile blanc. L'homme était un vieillard vêtu d'une cape noire.
+La femme, à la silhouette gracieuse, portait un voile blanc. L'homme était un vieillard vêtu d'une robe bleu-vert.
 
 Alors qu'ils volaient, l'expression du vieil homme changea brusquement. Il saisit rapidement la femme et recula. Dans un fracas, des fissures apparurent à l'endroit même où ils se trouvaient un instant plus tôt.
 
-Au milieu de ces fractures se tenait un jeune homme magnifique aux cheveux roux. C'était le corps original de Wang Lin.
+Au milieu de ces fractures se tenait un homme aux cheveux roux et au visage sévère. C'était le corps original de Wang Lin.
 
 Son corps original fixa froidement les deux individus et lança un coup de poing de sa main droite.
 

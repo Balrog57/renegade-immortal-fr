@@ -16,7 +16,7 @@ Wang Lin retourna à la tour de glace, l'esprit tourmenté. Bien qu'il ait obten
 
 Cette question résonna dans l'esprit de Wang Lin.
 
-Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Neige et de la Glace. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
+Le cultivateur au stade de la Formation de l'Âme avancée de la Secte de l'Encre d'Eau utilisa le reste de sa culture pour s'élancer vers la statue de la fée des neiges du Temple Divin de la Glace et de la Neige. Tel un papillon de nuit se précipitant vers la flamme, il explosa contre la statue, laissant derrière lui une marque rouge indélébile.
 
 Dans cette explosion, plusieurs autres cultivateurs au stade de la Formation de l'Âme furent également tués.
 
@@ -54,7 +54,7 @@ C'est pourquoi les cultivateurs de Xue Yu sont tous impulsifs, dotés de personn
 
 Plus Wang Lin étudiait cette technique, plus il percevait son véritable caractère terrifiant. Elle ne pouvait absolument pas être considérée comme une voie juste; c'était indubitablement une voie déviante. Wang Lin sentait que cette méthode était très similaire à la culture du Seigneur Démon des Six Désirs.
 
-Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de neige par de pures veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
+Wang Lin n'avait aucune intention de pratiquer cette technique. Il se contenta de l'imiter en remplaçant les veines de neige par des veines de sang. Il utilisait le sang, en conjonction avec son domaine de la vie et de la mort, pour acquérir la capacité de contrôler ses sculptures.
 
 En un clin d'œil, Wang Lin passa trois ans dans cette petite ville. En ajoutant l'année passée à voyager, quatre ans s'étaient écoulés.
 
@@ -90,7 +90,7 @@ En partant, il laissa une parcelle d'énergie spirituelle dans le corps de la fe
 
 Da Niu ignorait encore que l'oncle Wang, qu'il avait toujours souhaité revoir, était venu lui rendre visite. Le seul regret de Da Niu à sa mort ne serait pas que Xiao Niu n'ait pas été là pour l'accompagner, mais qu'il n'ait jamais pu revoir l'oncle Wang qui l'avait vu grandir. Cet homme mystérieux qui tenait une boutique, pour qui il s'efforçait toujours d'attirer des clients, et qui avait réussi à vendre une sculpture pour dix pièces d'or.
 
-Il confia ces deux sculptures en bois à sa fille, et elles devinrent les trésors de la famille Zeng.
+À sa mort, il légua ces deux sculptures en bois à sa fille, et elles devinrent les trésors de la famille Zeng.
 
 Wang Lin vola vers Zhao. Il y a quarante ans, il parcourait ce même chemin alors qu'il venait d'atteindre le stade de l'Âme Naissante. Aujourd'hui, il empruntait la même route, mais cette fois, il était sur le point d'atteindre la Formation de l'Âme et choisissait un lieu pour accomplir sa percée.
 
@@ -98,7 +98,7 @@ Le Wang Lin d'autrefois et celui d'aujourd'hui étaient aussi différents que le
 
 Il traversa une succession de tableaux de transfert anciens. Ce jour-là, il se trouvait dans une contrée étrange où les nuages emplissaient le ciel et où la pluie commençait à tomber.
 
-L'averse redoubit d'intensité jusqu'à ressembler à un véritable déluge. Wang Lin leva les yeux vers le ciel. Cela faisait longtemps qu'il n'avait pas vu une pluie aussi torrentielle. Il ne put s'empêcher de repenser à l'époque où il partageait la même pièce que Zhang Hu, à la Secte Heng Yue. La pluie tombait alors violemment tandis que le tonnerre et les éclairs déchiraient le ciel.
+L'averse redoubla d'intensité jusqu'à ressembler à un véritable déluge. Wang Lin leva les yeux vers le ciel. Cela faisait longtemps qu'il n'avait pas vu une pluie aussi torrentielle. Il ne put s'empêcher de repenser à l'époque où il partageait la même pièce que Zhang Hu, à la Secte Heng Yue. La pluie tombait alors violemment tandis que le tonnerre et les éclairs déchiraient le ciel.
 
 À cet instant, des éclairs traversaient le firmament comme des serpents d'argent. C'était une vision magnifique.
 
@@ -108,13 +108,13 @@ Wang Lin marcha dans cette terre étrangère, abrité par son parapluie. Il ne l
 
 Le fracas de la pluie emplissait la forêt, conférant au paysage un certain charme, particulièrement au vieux temple que l'on apercevait au loin. Ce temple était manifestement désert. Sa peinture rouge d'origine avait terni et certaines parties étaient endommagées.
 
-Même les anneaux de cuivre sur la porte avaient rouillé, et des plaques de mousse verdâtre couvraient les flancs du bâtiment.
+Même les clous et les anneaux de cuivre de la porte avaient rouillé, avec une légère teinte verte sur leurs bords.
 
 Wang Lin n'avait pas vu beaucoup de temples dans sa vie.
 
-En contemplant l'édifice, il entra à l'intérieur. C'était un temple antique. Il n'y avait aucune statue de divinité à l'intérieur, seulement un tapis de prière à moitié replié.
+En contemplant l'édifice, il entra à l'intérieur. C'était un temple antique. Il n'y avait aucune statue de divinité à l'intérieur, seulement la moitié d'un socle en forme de pétale.
 
-Après avoir observé le temple, il tourna le regard vers la porte, puis revint à l'intérieur de l'édifice. Une fois sa contemplation terminée, il se tint au seuil pour admirer la pluie.
+Après avoir observé le temple, il tourna le regard vers la porte, puis revint à l'intérieur de l'édifice. Une fois sa contemplation terminée, il se tint près de la porte pour admirer la nuit pluvieuse, méditant sur une vague intuition insaisissable.
 
 Au bout d'un long moment, des cris retentirent au loin. Quelques hommes robustes, vêtus de capes imperméables, arrivèrent en criant.
 
@@ -126,7 +126,7 @@ En parlant, ils aperçurent Wang Lin à l'intérieur du temple. Ils s'arrêtère
 
 En passant devant lui, l'un d'eux fit un pas vers Wang Lin et sembla vouloir lui tapoter l'épaule de la main droite d'un geste en apparence anodin. Cependant, un autre membre du groupe laissa échapper un grognement et le poussa pour l'en empêcher.
 
-L'homme tourna la tête en émit un reniflement avant d'entrer discrètement dans le temple.
+L'homme tourna la tête et émit un reniflement avant d'entrer discrètement dans le temple.
 
 Les cinq hommes retirèrent leurs capes, allumèrent un feu, sortirent de la nourriture et commencèrent à discuter bruyamment. Pourtant, de temps à autre, leurs regards dérivaient vers Wang Lin.
 

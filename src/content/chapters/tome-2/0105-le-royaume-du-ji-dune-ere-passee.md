@@ -1,87 +1,87 @@
 ---
 n: 105
-title: "Le Royaume du Ji d'une Ère Passée"
+title: "Le Royaume Ji d'une Ère Passée"
 book: 2
 bookTitle: The Bloody Image of Cultivation
 en: Chapter 105 - Ji Realm of a Past Era
 slug: le-royaume-du-ji-dune-ere-passee
 ---
-Dans les temps anciens, le Ji, le Dao et le Shi étaient les trois royaumes d'énergie spirituelle les plus difficiles à appréhender. En termes de mystère, le Royaume du Ji ne pouvait rivaliser avec le Royaume du Dao. En termes d'imprévisibilité, il ne pouvait égaler le Royaume du Shi; toutefois, si un cultivateur du Royaume du Ji avait jamais existé dans l'Antiquité, il représentait une véritable catastrophe.
+Dans les temps anciens, le Ji, le Dao et le Shi étaient les trois royaumes d'énergie spirituelle les plus difficiles à appréhender. En termes de mystère, le Royaume Ji ne pouvait rivaliser avec le Royaume Dao. En termes d'imprévisibilité et d'étrangeté, il ne pouvait égaler le Royaume Shi; toutefois, dans l'Antiquité, l'apparition d'un cultivateur doté de l'énergie spirituelle du Royaume Ji était un véritable cataclysme.
 
-Bien que le Royaume du Ji ne soit pas aussi mystérieux que le Royaume du Dao ni aussi imprévisible que le Royaume du Shi, en termes de terreur pure, les deux autres ne pouvaient tout simplement pas être comparés au Ji. Un cultivateur atteignant le Royaume du Ji serait, sans l'ombre d'un doute, plusieurs fois plus froid et impitoyable que n'importe quel autre cultivateur de même niveau, et son énergie spirituelle basculerait entièrement vers les extrêmes.
+Bien que le Royaume Ji ne soit pas aussi mystérieux que le Royaume Dao ni aussi imprévisible que le Royaume Shi, en termes de terreur pure, les deux autres ne pouvaient tout simplement pas être comparés au Ji. Le Royaume Ji pousse toute chose à l'extrême: un cultivateur l'atteignant serait, sans l'ombre d'un doute, plusieurs fois plus froid et impitoyable que n'importe quel autre cultivateur de même niveau, et son énergie spirituelle basculerait entièrement vers les extrêmes.
 
-Par conséquent, le seul mot pour décrire le Royaume du Ji est « terrifiant ». Parmi les cultivateurs d'un même niveau, un expert du Royaume du Ji est invincible. Cependant, sa faiblesse est également flagrante: avec le Royaume du Ji, un cultivateur ne pourra jamais atteindre l'étape de la Formation de l'Âme. Le stade avancé de l'Âme Naissante constitue sa limite ultime.
+Par conséquent, le seul mot pour décrire le Royaume Ji est « terrifiant ». Parmi les cultivateurs d'un même niveau, un expert du Royaume Ji est invincible. Cependant, sa faiblesse est également flagrante: avec le Royaume Ji, un cultivateur ne pourra jamais atteindre l'étape de la Formation de l'Âme. Le stade avancé de l'Âme Naissante constitue sa limite ultime.
 
-Pourtant, un cultivateur du stade avancé de l'Âme Naissante doté du Royaume du Ji est un être avec lequel même un expert de la Formation de l'Âme ne voudrait pas s'attirer les foudres.
+Pourtant, un cultivateur du stade avancé de l'Âme Naissante doté du Royaume Ji est un être avec lequel même un expert de la Formation de l'Âme ne voudrait pas s'attirer les foudres.
 
-Si cela n'était là que tout, le Royaume du Ji ne serait pas considéré comme aussi terrifiant. Ce qui est véritablement effrayant, c'est qu'aux temps anciens, lorsqu'un cultivateur ayant dépassé la Transformation de l'Âme traversait ses épreuves, on découvrit qu'il possédait le Royaume du Ji.
+Si ce n'était que cela, le Royaume Ji ne serait pas considéré comme aussi terrifiant. Ce qui est véritablement effrayant, c'est qu'aux temps anciens, lorsqu'un cultivateur ayant dépassé la Transformation de l'Âme traversait ses épreuves, on découvrit qu'il possédait le Royaume Ji.
 
 Cette nouvelle provoqua un choc immense dans le monde antique de la culture et les plongea tous dans la terreur.
 
-Il faut dire que ce cultivateur ravagea le monde de la culture pendant trois mille ans. Durant ces trois millénaires, il régna tel un monarque sur l'univers des cultivateurs. Quiconque l'irritait voyait sa famille et sa secte être purement et simplement anéanties.
+Il faut dire que ce cultivateur ravagea le monde de la culture pendant plus de trois mille ans. Durant ces trois millénaires, il régna tel un monarque sur l'univers des cultivateurs. Quiconque l'irritait voyait sa famille et sa secte être purement et simplement anéanties.
 
-En ces trois mille années, le simple fait de prononcer son nom suffisait à faire frissonner les plus braves. Le nombre de cultivateurs tombés sous sa main dépasse l'entendement; certains prétendent même que la chute du monde antique de la culture tient, pour une large part, à ces trois millénaires de massacres.
+En ces trois mille années, le simple fait de prononcer son nom suffisait à faire frissonner les plus braves. Le nombre de cultivateurs tombés sous sa main dépasse l'entendement; certains prétendent même que la chute du monde antique de la culture tient, pour une large part, à ce personnage: sans ces trois millénaires durant lesquels d'innombrables sectes furent massacrées jusqu'à la dernière, le monde antique de la culture ne se serait pas désintégré d'un seul coup, sans la moindre résistance, face à la catastrophe soudaine.
 
-Le Royaume du Ji est une existence défiant les cieux. Non seulement il rend invincible lors d'un combat contre des cultivateurs de même niveau, mais l'énergie spirituelle infusée par le Ji permet de pousser les techniques à leur paroxysme. Tout cela est déjà écrasant, mais lorsque la seule faiblesse — l'impossibilité d'atteindre la Formation de l'Âme — est levée, l'apparition d'un cultivateur dépassant le stade de l'Âme Naissante et possédant le Royaume du Ji devient une véritable calamité.
+Le Royaume Ji est une existence défiant les cieux. Non seulement il rend invincible lors d'un combat contre des cultivateurs de même niveau, mais l'énergie spirituelle infusée par le Ji permet de pousser les techniques à leur paroxysme. Tout cela est déjà écrasant, mais lorsque la seule faiblesse — l'impossibilité d'atteindre la Formation de l'Âme — est levée, l'apparition d'un cultivateur dépassant le stade de la Formation de l'Âme et possédant le Royaume Ji devient une véritable calamité.
 
-C'est pourquoi, chaque fois qu'un cultivateur du Royaume du Ji surgit, il est traqué par tous les autres. Le monde antique considérait le Royaume du Ji comme une anomalie défiant véritablement l'ordre céleste.
+C'est pourquoi, chaque fois qu'un cultivateur du Royaume Ji surgit, il est traqué par tous les autres. Le monde antique considérait le Royaume Ji comme une anomalie défiant véritablement l'ordre céleste.
 
-Si la voie de la culture démoniaque est comparée à une bête féroce, face au Royaume du Ji, elle n'est qu'un animal domestique apprivoisé.
+Si la voie de la culture démoniaque est comparée au déluge et aux bêtes féroces, face au Royaume Ji, elle n'est qu'un animal domestique docile; ils ne sont absolument pas du même niveau.
 
-En réalité, dans les temps anciens, l'étude du Royaume du Ji ne s'interrompit jamais, mais on n'en aboutit finalement qu'à une compréhension superficielle.
+En réalité, dans les temps anciens, l'étude du Royaume Ji ne s'interrompit jamais, mais on n'en aboutit finalement qu'à une compréhension superficielle.
 
-Heureusement, une seule personne sembla capable de briser la limite de la Formation de l'Âme imposée par le Ji. Tous les successeurs du Royaume du Ji des générations suivantes restèrent bloqués au stade avancé de l'Âme Naissante.
+Heureusement, une seule personne sembla capable de briser la limite de la Formation de l'Âme imposée par le Ji. Tous les successeurs du Royaume Ji des générations suivantes restèrent bloqués au stade avancé de l'Âme Naissante.
 
-La plupart des archives concernant le Royaume du Ji se sont perdues au fil des âges. De nos jours, nul ne sait comment ce royaume est apparu ni comment l'obtenir.
+La plupart des archives concernant le Royaume Ji se sont perdues au fil des âges. De nos jours, nul ne sait comment ce royaume est apparu ni comment l'obtenir.
 
 On ne trouve que quelques descriptions dans les bibliothèques des très grandes sectes des pays de culture de haut rang.
 
-À une certaine époque de l'Antiquité, un génie de la culture naquit dans le pays de Gu Nie. En dix ans de pratique, il avait déjà atteint le stade de la Formation du Noyau, avant que sa secte ne soit anéantie par d'autres sectes. Cinq ans plus tard, un cultivateur mystérieux apparut et, en l'espace d'un mois, il massacra près de dix mille cultivateurs. Le ciel fut couvert de sang. Avec une culture n'atteignant que le stade initial de l'Âme Naissante, non seulement il pouvait aisément tuer ses pairs, mais il était même capable d'éliminer des experts de la Formation de l'Âme. Finalement, les sectes orthodoxes et démoniaques unirent leurs forces pour envoyer un expert de la Transformation de l'Âme qui finit par l'abattre.
+À une certaine époque de l'Antiquité, un génie de la culture naquit dans la Secte Ling Qiao du pays de Gu Nie. En dix ans de pratique, il avait déjà atteint le stade de la Formation du Noyau, avant que sa secte ne soit anéantie par d'autres sectes. Cinq ans plus tard, un cultivateur mystérieux apparut et, en l'espace d'un mois, il massacra près de dix mille cultivateurs. Le ciel fut couvert de sang. Avec une culture n'atteignant que le stade initial de l'Âme Naissante, non seulement il pouvait aisément tuer ses pairs, mais même les experts de la Formation de l'Âme ne parvenaient pas à lui résister. Finalement, les sectes orthodoxes et démoniaques unirent leurs forces pour envoyer un expert de la Transformation de l'Âme qui finit par l'abattre.
 
 Dans les temps anciens, le pays de Qing Shui fut détruit et le prince héritier du pays intégra une secte. Trente ans plus tard, il en sortit pour entamer un carnage sans précédent contre tous les cultivateurs. Peu importait qu'ils fussent hommes ou femmes, jeunes ou vieux, il les massacrait tous. En seulement sept jours, il ne restait plus aucun cultivateur dans le pays de Qing Shui. Même sa propre secte ne put y échapper.
 
-Le sang teignit le sol de Qing Shui en rouge pourpre. Alors que les pays de culture supérieure préparaient des experts pour l'éliminer, le sang de Qing Shui se mit à bouillir. Utilisant ce sang pour terrasser ses ennemis, il laissa un nom retentissant avant de disparaître mystérieusement. Certains pensent qu'il a franchi la tribulation céleste...
+Le sang teignit le sol de Qing Shui en rouge. Alors que les pays de culture supérieure préparaient des experts pour l'éliminer, la Mer de Sang de tout le pays de Qing Shui se mit à bouillonner. Tuant ses ennemis par le sang, il laissa un nom retentissant avant de disparaître mystérieusement. Certains pensent qu'il a franchi la tribulation céleste...
 
-Tous ces récits partagent un point commun: tous ces cultivateurs possédaient le Royaume du Ji.
+Tous ces récits partagent un point commun: tous ces cultivateurs possédaient le Royaume Ji.
 
-Quant à la manière dont ils l'avaient obtenu, nul ne le savait. Certains pensaient qu'ils avaient subi une mutation, d'autres croyaient qu'ils détenaient tous le même trésor magique. Grâce à l'héritage de ce trésor, quiconque en serait le possesseur obtiendrait le Royaume du Ji.
+Quant à la manière dont ils l'avaient obtenu, nul ne le savait. Certains pensaient qu'ils avaient connu un bouleversement majeur, d'autres croyaient qu'ils détenaient tous le même trésor magique. Grâce à l'héritage de ce trésor, quiconque en serait le possesseur obtiendrait le Royaume Ji.
 
 De multiples spéculations circulèrent, mais avec la disparition du monde antique de la culture, ces rumeurs s'éteignirent également.
 
-Nul ne savait qu'en cet instant précis, dans le pays de culture de rang 3 que fut Zhao — un pays auquel personne n'accordait vraiment d'importance — et dans un lieu reculé nommé la Vallée de Jue Ming, un cultivateur nommé Wang Lin marchait vers le véritable Royaume du Ji.
+Nul ne savait qu'en cet instant précis, dans le pays de culture de rang 3 que fut Zhao — un pays auquel personne n'accordait vraiment d'importance — et dans un lieu reculé nommé la Vallée Jue Ming, un cultivateur nommé Wang Lin marchait vers le véritable Royaume Ji.
 
-Si Teng Huayuan l'avait su, il n'aurait jamais accepté d'être le catalyseur de la naissance d'un cultivateur du Royaume du Ji.
+Si Teng Huayuan l'avait su, il n'aurait jamais accepté d'être le catalyseur de la naissance d'un cultivateur du Royaume Ji.
 
-Wang Lin était à demi agenouillé sur le sol. Tout ce qui se trouvait dans un rayon de plusieurs dizaines de mètres autour de lui avait été recouvert de glace, faisant de cet endroit une zone interdite. Sur sa poitrine, la perle défiant les cieux émettait une lueur noire inédite tout en flottant au-dessus de sa tête.
+Wang Lin était à demi agenouillé sur le sol. Tout ce qui se trouvait dans un rayon de plusieurs dizaines de mètres autour de lui avait été recouvert de glace, faisant de cet endroit une zone interdite. Sur sa poitrine, la Perle Défiant le Ciel émettait une lueur noire inédite tout en flottant au-dessus de sa tête.
 
 Teng Huayuan, utilisant le lien entre Wang Lin et sa famille, laissa un message dans son esprit:
-« Je t'attendrai à la sortie de la Vallée de Jue Ming... si tu n'apparais pas avant l'ouverture de la vallée, je détruirai le drapeau de l'âme et les âmes de ta famille disparaîtront à jamais. »
+« Je t'attendrai hors de la Vallée Jue Ming... le jour de l'ouverture de la vallée, si tu n'apparais pas, je détruirai le drapeau de l'âme et les âmes de ta famille disparaîtront à jamais. »
 
-Les deux cultivateurs masculins et la femme de la Secte Tian Dao finirent par les rattraper. Ils s'arrêtèrent brusquement à plusieurs dizaines de mètres, car la glace recouvrant le sol leur serra le cœur. Le jeune homme figé au milieu de la glace était particulièrement terrifiant. L'aura destructrice qu'il dégageait fit même frissonner le disciple en phase intermédiaire de l'Établissement des Fondations.
+Les deux cultivateurs masculins et la femme de la Secte Tian Dao finirent par le rattraper. Ils s'arrêtèrent brusquement à plusieurs dizaines de mètres, car la glace recouvrant le sol leur serra le cœur. Le jeune homme figé au milieu de la glace était particulièrement terrifiant. L'aura destructrice qu'il dégageait fit même frissonner le disciple en phase intermédiaire de l'Établissement des Fondations.
 
-Après une courte hésitation, le cultivateur de l'Établissement des Fondations prit une décision. Il agita la main et ordonna: « Repli! » Mais alors qu'il s'apprêtait à partir, la femme fixa la perle défiant les cieux au-dessus de la tête de Wang Lin et s'exclama: « Frère apprenti, cette perle me semble très familière... »
+Après une courte hésitation, le cultivateur de l'Établissement des Fondations prit une décision. Il agita la main et ordonna: « Repli! » Mais alors qu'il s'apprêtait à partir, la femme fixa la Perle Défiant le Ciel au-dessus de la tête de Wang Lin et s'exclama: « Frère aîné, cette perle me semble très familière... »
 
-L'autre homme ajouta: « C'est... c'est... c'est la perle dont l'Ancêtre nous a parlé! Attendez, non, les gravures sont différentes. La perle que l'Ancêtre nous a montrée représentait des nuages, mais celle-ci porte des feuilles. »
+L'autre homme ajouta: « C'est... c'est... c'est la perle dont le Premier Ancêtre nous a parlé! Attendez, non, les motifs sont différents. Sur le jade que le Premier Ancêtre nous a remis, c'étaient clairement des nuages qui étaient gravés, mais ici ce sont des feuilles. »
 
-Le cultivateur de l'Établissement des Fondations fut stupéfait. Il observa de plus près et devint immédiatement plus sérieux. Mais bientôt, la cupidité s'empara de son cœur. Hormis les gravures, tout le reste correspondait à la perle décrite par l'Ancien. L'idée du gain potentiel lui traversa soudain l'esprit.
+Le cultivateur de l'Établissement des Fondations fut stupéfait. Il observa de plus près et devint immédiatement plus sérieux. Mais bientôt, la cupidité s'empara de son cœur. Hormis les motifs, tout le reste, taille comprise, correspondait en tous points à la perle décrite sur le jade du Premier Ancêtre. La récompense promise pour cette perle lui revint aussitôt à l'esprit.
 
 « Quiconque la rapportera recevra un trésor magique de niveau Transformation de l'Âme, sa secte recevra dix cadavres raffinés de niveau Formation de l'Âme, et le rang de son pays sera élevé d'un échelon. »
 
 Le cultivateur décida avec détermination: « Peu importe si c'est la bonne ou non, nous devons nous en saisir. »
 
-La jeune femme sortit un jade de transmission vocale, prête à envoyer un message, mais le cultivateur l'arrêta et murmura: « Bien que cet individu soit étrange, si nous nous donnons tous les trois à fond, nous pouvons certainement le tuer. Si tu préviens d'autres personnes et qu'il s'avère que cette perle est bien celle de la légende, le mérite ne nous reviendra pas. À l'inverse, si nous nous trompons en faisant une scène, nous serons réprimandés. Es-tu stupide? »
+La jeune femme sortit un talisman de transmission vocale, prête à envoyer un message, mais le cultivateur l'arrêta et murmura: « Bien que cet individu soit étrange, si nous nous donnons tous les trois à fond, nous pouvons certainement le tuer. Si tu préviens d'autres personnes et qu'il s'avère que cette perle est bien celle de la légende, le mérite ne nous reviendra pas. À l'inverse, si nous nous trompons en faisant une scène, nous serons réprimandés. Es-tu stupide? »
 
-La jeune fille fut surprise. Elle hésita un instant, puis rangea son jade. Sans dire un mot, les trois sortirent leurs trésors magiques pour les utiliser.
+La jeune fille fut surprise. Elle hésita un instant, puis rangea son talisman. Sans dire un mot, les trois sortirent leurs trésors magiques pour les utiliser.
 
 Au même moment, Wang Lin ouvrit les yeux. Son regard n'était plus injecté de sang, mais sombre comme une eau dormante. Une immense intention meurtrière s'échappa de son corps. À mesure que cette intention se manifestait, l'énergie spirituelle en lui s'anima.
 
-Le premier effet du Royaume du Ji fit montre de sa puissance: contre des cultivateurs de même rang, le Royaume du Ji est invincible!
+Le premier effet du Royaume Ji fit montre de sa puissance: contre des cultivateurs de même rang, le Royaume Ji est invincible!
 
 Fixant les trois individus, Wang Lin agita la main d'un geste sombre. Dans un éclair de lumière bleue, la glace au sol se projeta et enveloppa instantanément les trois assaillants. Leurs expressions et leurs mouvements se figèrent net au moment où ils passaient à l'action.
 
-Wang Lin se redressa. Il tendit sa main droite pour récupérer la perle défiant les cieux. Après l'avoir replacée contre sa poitrine, il passa devant les trois hommes. Des fissures apparurent sur la glace qui les recouvrait; elle se brisa et les trois moururent instantanément.
+Wang Lin se redressa. Il tendit sa main droite pour récupérer la Perle Défiant le Ciel. Après l'avoir replacée contre sa poitrine, il passa devant les trois hommes. Des fissures apparurent sur la glace qui les recouvrait; elle se brisa et les trois moururent instantanément.
 
-Wang Lin progressait silencieusement dans la Vallée de Jue Ming lorsqu'une épée volante surgit soudainement devant lui. Un jeune homme apparut. Sans un mot, il pointa son doigt vers l'épée, qui fonça vers Wang Lin.
+Wang Lin progressait silencieusement dans la Vallée Jue Ming lorsqu'une épée volante surgit soudainement devant lui. Un jeune homme apparut. Sans un mot, il pointa son doigt vers l'épée, qui fonça vers Wang Lin.
 
 Wang Lin ne ralentit pas sa marche. Au moment où l'arme allait percer son corps, de la glace apparut devant l'épée et, en un clin d'œil, celle-ci fut pétrifiée. Le jeune homme, choqué, recula précipitamment. Il pensait que Wang Lin n'était qu'un solitaire au début de l'Établissement des Fondations et comptait le tuer pour lui voler ses trésors. Il ne s'attendait pas à ce que Wang Lin puisse détruire son épée sans même avoir à bouger.
 
@@ -97,16 +97,16 @@ La surprise fut générale. Avant que quiconque ne puisse réagir, Wang Lin éta
 
 À cet instant, la foule s'écarta tandis qu'un disciple en robe blanche joignit les mains: « De quelle secte venez-vous, cher compagnon de culture? Je suis Zhou Quan, disciple de la Secte Yuan Tian. »
 
-Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de cent mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon frère apprenti. Je ne t'oublierai pas! »
+Wang Lin l'ignora et poursuivit sa route. Peu à peu, les gens s'écartèrent sur son passage. Alors qu'il s'éloignait de plus de cent mètres de la foule, un jeune disciple d'une secte démoniaque le fixa et ricana intérieurement: « Tu as tué mon frère aîné de discipline. Je ne t'oublierai pas! »
 
 Wang Lin s'arrêta brusquement. Il sentit une intention meurtrière puissante émaner de derrière lui. Il se retourna et lança un regard glacial au disciple démoniaque. Sous ce regard, le disciple sentit son corps entier, de l'intérieur comme de l'extérieur, devenir aussi froid que la glace. Il baissa précipitamment la tête, n'osant plus croiser les yeux de Wang Lin.
 
-Chaque cultivateur qui croisait ce regard retenait son souffle. Ces yeux étaient totalement éteints, empreints d'une soif de sang pure. Quiconque les contemplait sentait son corps se glacer.
+Chaque cultivateur qui croisait ce regard retenait son souffle. Ces yeux étaient emplis d'un calme de mort, qui recelait une intention meurtrière inimaginable. Quiconque les contemplait sentait son corps se glacer.
 
 Après avoir observé le cultivateur un instant, Wang Lin se détourna et reprit sa marche. Une lueur verte jaillit alors sur la poitrine du disciple. Ce dernier cracha un sang qui se transforma en glace avant même de toucher le sol, puis s'effondra, pétrifié.
 
 Personne n'osait plus respirer profondément. Une fois Wang Lin éloigné, plus personne ne voulut combattre et tous se dispersèrent.
 
-C'est ainsi que Wang Lin traversa la Vallée de Jue Ming. Quiconque l'offensait était figé d'un simple geste de la main. Même les cultivateurs du stade avancé de l'Établissement des Fondations ne pouvaient résister. Après avoir tué quelques individus, tous finissaient par s'enfuir.
+C'est ainsi que Wang Lin traversa la Vallée Jue Ming. Quiconque l'offensait était figé d'un simple geste de la main. Même les cultivateurs du stade avancé de l'Établissement des Fondations ne pouvaient résister. Après avoir tué quelques individus, tous finissaient par s'enfuir.
 
 En trois jours, le nombre de cultivateurs tombés sous la main de Wang Lin devint incalculable.

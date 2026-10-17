@@ -12,7 +12,7 @@ Cet endroit était également considéré comme une zone morte. Si un cultivateu
 
 Cependant, s'ils cherchaient à forcer le passage à travers les Étoiles Brisées du Chaos, ils mourraient tous les dix. C'était l'un des lieux les plus dangereux de la Mer des Démons.
 
-La légende racontait que cet endroit existait avant même que les eaux de la Mer des Démons ne se transforment en brume. Au fil des éons, de nombreux cultivateurs tentèrent d'y pénétrer, mais furent contraints d'abandonner. Quant à ceux qui réussirent l'exploit d'entrer, ils ne revinrent jamais.
+La légende racontait que cet endroit existait avant même que les eaux de la Mer des Démons ne se transforment en brume. Au fil des éons, de nombreux cultivateurs tentèrent d'y pénétrer, mais furent contraints d'abandonner. Quant aux rares qui réussirent à traverser la zone des étoiles brisées, ils ne revinrent jamais.
 
 Même les pays de culture de rang 5 peinaient à y envoyer des hommes en raison du chaos régnant dans la zone. De plus, personne ne savait exactement ce qui s'y cachait; déployer de tels efforts pour n'y trouver que le néant n'en valait absolument pas la peine.
 
@@ -24,7 +24,7 @@ Dix ans plus tard, Suzaku envoya d'innombrables experts dans la Mer des Démons 
 
 En conséquence, cet endroit devint une zone interdite. Bien que l'effroi se soit estompé avec les âges, aucun cultivateur ne s'aventurait à moins de 5 000 kilomètres des lieux.
 
-Ce jour-là, dans une vallée obscure aux abords des Étoiles Brisées du Chaos, un vortex gigantesque apparut. Il s'étira jusqu'à ce qu'une brèche s'ouvre dans le sol. Un très ancien réseau de transfert commença alors à luire. Sa lueur gagna en intensité jusqu'à ce que trois silhouettes se matérialisent en son sein.
+Ce jour-là, dans une vallée obscure aux abords des Étoiles Brisées du Chaos, un vortex gigantesque apparut. Il grandit jusqu'à ce qu'une clairière apparaisse. Sur le sol, un très ancien réseau de transfert commença alors à luire. Sa lueur gagna en intensité jusqu'à ce que trois silhouettes se matérialisent en son sein.
 
 Dès l'instant où Wang Lin apparut dans le réseau de transfert, la première chose qu'il vit fut cette zone circulaire où des roches flottaient en suspension. Des pierres de tailles diverses, reliées par des filaments d'éclairs violets, se déplaçaient selon un mouvement circulaire.
 
@@ -38,7 +38,7 @@ Les yeux de Wang Qingyue pétillèrent; il se lécha les lèvres et déclara: «
 
 Wang Lin réfléchit un instant avant de demander à Duanmu Ji: « L'endroit dont vous parliez se trouve-t-il au cœur de ces Étoiles Brisées du Chaos? »
 
-Duanmu Ji hocha la tête en fixant les débris célestes. Une expression d'inquiétude marqua son visage lorsqu'il reprit: « Cette zone de roches brisées est imprégnée d'une force mystérieuse. Dès que vous y pénétrez, cette force s'insinue dans votre corps. Ces fragments utiliseront un pouvoir extraordinaire pour engendrer un avatar identique à vous-même. Cet avatar possédera un niveau de culture supérieur au vôtre. Peu importe la méthode utilisée pour réprimer votre propre culture, elle sera inefficace. Une fois l'avatar apparu, vous devrez le vaincre pour progresser de vingt-cinq kilomètres. Après ces vingt-cinq kilomètres, deux autres avatars surgiront. Seul en les terrassant tous pourrez-vous traverser les Étoiles Brisées du Chaos. »
+Duanmu Ji hocha la tête en fixant les débris célestes. Une expression d'inquiétude marqua son visage lorsqu'il reprit: « Cette zone de roches brisées est imprégnée d'une force mystérieuse. Dès que vous y pénétrez, cette force s'insinue dans votre corps. Ces fragments utiliseront un pouvoir extraordinaire pour engendrer un avatar identique à vous-même. Cet avatar possédera un niveau de culture supérieur d'un royaume au vôtre. Peu importe la méthode utilisée pour réprimer votre propre culture, elle sera inefficace. Une fois l'avatar apparu, vous devrez le vaincre pour progresser de vingt-cinq kilomètres. Après ces vingt-cinq kilomètres, deux autres avatars surgiront. Seul en les terrassant tous pourrez-vous traverser les Étoiles Brisées du Chaos. »
 
 Wang Lin leva la tête vers le ciel. Duanmu Ji sembla lire dans ses pensées et ajouta: « Bien que vous puissiez éviter les roches en volant au-dessus ou en dessous, les avatars apparaîtront tout de même, et il en surgira dix d'un coup. »
 
@@ -62,9 +62,9 @@ Duanmu Ji regarda Wang Lin, puis d'un geste de la main, il récupéra la marque 
 
 Wang Lin fut stupéfait: « Un Dieu Ancien? »
 
-« Un Dieu Ancien est une existence comparable aux anciens cultivateurs célestes, et même plus puissante à certains égards! » Ce n'était pas Duanmu Ji qui parlait, mais un vieil homme vêtu de noir qui venait soudainement d'apparaître à ses côtés.
+« Un Dieu Ancien est une existence comparable aux anciens immortels, et même plus puissante à certains égards! » Ce n'était pas Duanmu Ji qui parlait, mais un vieil homme vêtu de noir qui venait soudainement d'apparaître à ses côtés.
 
-Le vieil homme était grand et svelte. Sa longue barbe blanche flottait au gré du vent et son visage dégageait une aura d'immortalité. Tenant un fouet de cérémonie, il avait véritablement l'apparence d'un être transcendant. Il affichait une expression bienveillante en souriant à Wang Lin: « Jeune ami, la puissance des Dieux Anciens a déjà dépassé notre capacité de compréhension pour atteindre une limite inimaginable. Il faut dire que l'ère des Dieux Anciens est antérieure même au monde antique de la culture. »
+Le vieil homme était grand et svelte. Sa longue barbe blanche flottait au gré du vent et son visage dégageait une aura d'immortalité. Tenant un fouet de cérémonie, il avait véritablement l'apparence d'un être transcendant. Il affichait une expression bienveillante en souriant à Wang Lin: « Jeune ami, la puissance des Dieux Anciens a déjà dépassé notre capacité de compréhension pour atteindre une limite inimaginable. Sache que l'époque où vivaient les Dieux Anciens est encore plus reculée que la haute antiquité. »
 
 L'expression de Wang Lin resta sereine, mais il se montra extrêmement prudent intérieurement. Bien que cet homme parût amical, il avait le vague sentiment que son niveau de culture surpassait celui de Duanmu Ji.
 
@@ -74,21 +74,21 @@ Wang Lin était resté sur ses gardes durant tout l'échange. Lorsque le vieil h
 
 Une série de craquements stridents retentit alors que les talismans se brisaient les uns après les autres.
 
-Simultanément, Duanmu Ji fit un pas en avant pour s'interposer entre Wang Lin et le vieil homme. Un écran de lumière noire en demi-cercle apparut, neutralisant l'attaque du fouet. L'écran vacilla tandis que Duanmu Ji fixait le vieillard avec une gravité inédite. Il déclara fermement: « Ancien Empereur, ce jeune homme est crucial pour franchir le troisième royaume. Ne jouez pas avec le feu! »
+Simultanément, Duanmu Ji fit un pas en avant pour s'interposer entre Wang Lin et le vieil homme. Un écran de lumière noire en demi-cercle apparut, neutralisant l'attaque du fouet. L'écran vacilla tandis que Duanmu Ji fixait le vieillard avec une gravité inédite. Il déclara fermement: « Empereur Antique, ce jeune homme est crucial pour franchir le troisième royaume. Ne jouez pas avec le feu! »
 
-À ces mots, l'Ancien Empereur ne bougea pas, mais son sourire s'effaça lentement. Son aura céleste disparut totalement, laissant place à une présence bien plus terrifiante alors qu'il demandait calmement: « En es-tu certain? »
+À ces mots, l'Empereur Antique ne bougea pas, mais son sourire s'effaça lentement. Son aura céleste disparut totalement, laissant place à une présence bien plus terrifiante alors qu'il demandait calmement: « En es-tu certain? »
 
 Duanmu Ji acquiesça: « Il connaît le sort de mort! »
 
-L'Ancien Empereur jeta un dernier regard sur Wang Lin avant de se détourner. Il s'arrêta à trente pieds de là et observa silencieusement les Étoiles Brisées du Chaos.
+L'Empereur Antique jeta un dernier regard sur Wang Lin avant de se détourner. Il s'arrêta à trente pieds de là et observa silencieusement les Étoiles Brisées du Chaos.
 
-Le visage de Wang Lin était sombre. Cet Ancien Empereur était manifestement un fou: capable de parler avec une courtoisie feinte pour mieux attaquer l'instant d'après, révélant sa nature la plus abjecte.
+Le visage de Wang Lin était sombre. Cet Empereur Antique était manifestement un fou: capable de parler avec une courtoisie feinte pour mieux attaquer l'instant d'après, révélant sa nature la plus abjecte.
 
-Duanmu Ji se rapprocha de Wang Lin et lui envoya une transmission vocale: « Il s'appelle Gun Lan, mais nous l'appelons tous l'Ancien Empereur. Sa culture est si puissante que je n'ai aucune confiance en mes capacités pour l'affronter. Il feint la rectitude, mais il est d'une cruauté sans limite. Il a massacré d'innombrables êtres; c'est un pur dément. C'est un démon de grande renommée dans la Mer des Démons. »
+Duanmu Ji se rapprocha de Wang Lin et lui envoya une transmission vocale: « Il s'appelle Gu Lan, mais nous l'appelons tous l'Empereur Antique. Sa culture est si puissante que je n'ai aucune confiance en mes capacités pour l'affronter. Il feint la rectitude, mais il est d'une cruauté sans limite. Il a massacré d'innombrables êtres; c'est un pur dément. C'est un démon de grande renommée dans la Mer des Démons. »
 
-Wang Lin restait morose en observant l'Ancien Empereur, puis Wang Qingyue, qui s'amusait à lutter contre son propre avatar en laissant échapper des grognements assoiffés de sang. Il sentit son cœur se serrer.
+Wang Lin restait morose en observant l'Empereur Antique, puis Wang Qingyue, qui s'amusait à lutter contre son propre avatar en laissant échapper des grognements assoiffés de sang. Il sentit son cœur se serrer.
 
-L'Ancien Empereur était un fou, et ce Wang Qingyue était un dément. Seul Duanmu Ji semblait avoir les pieds sur terre.
+L'Empereur Antique était un fou, et ce Wang Qingyue était un dément. Seul Duanmu Ji semblait avoir les pieds sur terre.
 
 L'expression de Duanmu Ji changea légèrement alors qu'il murmurait: « Un autre arrive. »
 
@@ -106,4 +106,4 @@ Duanmu Ji rit et répondit: « Seigneur Démon des Six Désirs, je ne vous ai pa
 
 Wang Lin joignit les mains et répondit: « Je vous en remercie! »
 
-L'homme en rouge hocha la tête avant de détourner le regard vers Duanmu Ji: « Il ne manque plus que le Bossu Meng. J'ai entendu dire qu'il avait offensé le Clan des Démons Géants il y a trois cents ans et qu'il était pourchassé par dix démons de guerre. J'ignore s'il est encore en vie. »
+L'homme en rouge hocha la tête avant de détourner le regard vers Duanmu Ji: « Il ne manque plus que le Bossu Meng. J'ai entendu dire qu'il avait offensé le Clan des Démons Géants, d'un pays de culture de rang 4, il y a trois cents ans et qu'il était pourchassé par les dix grands démons de guerre du clan. J'ignore s'il est encore en vie. »

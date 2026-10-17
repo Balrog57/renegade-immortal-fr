@@ -6,9 +6,9 @@ bookTitle: The Mediocre Youth
 en: Chapter 6 - Insults
 slug: insultes
 ---
-Tie Zhu resta silencieux tandis que Wang Zhuo, d'un ton moqueur, lançait: « J'ai déjà dit que ce gamin n'avait aucun talent. Tout ce qu'il a fait, c'est faire honte à notre famille. J'ai réussi le premier test, alors je ne l'ai croisé que plus tard. Quelques jours après, j'ai appris qu'il avait échoué aux trois tests. Il aurait tout aussi bien fait de ne pas y aller. J'aurais préféré que ce soit le fils du quatrième oncle qui s'y présente. »
+Tie Zhu resta silencieux tandis que Wang Zhuo, d'un ton moqueur, lançait: « J'ai déjà dit que ce gamin n'avait aucun talent. Tout ce qu'il a fait, c'est faire honte à notre famille. J'ai été accepté dès le premier test, alors je n'ai pas vu ses essais suivants, mais j'ai entendu dire qu'il avait échoué aux trois tests. Il aurait tout aussi bien fait de ne pas y aller. J'aurais préféré que ce soit le fils du quatrième oncle qui s'y présente. »
 
-Le quatrième oncle de Tie Zhu fronça les sourcils et répliqua: « Wang Zhuo, même si tu es destiné à devenir un immortel, que sais-tu de ce que mon fils peut ou ne peut pas faire? Quelle audace! »
+Le quatrième oncle de Tie Zhu fronça les sourcils et répliqua: « Wang Zhuo, même si tu deviens un immortel, ne fais pas le fier devant moi. Que mon fils Hu Zi ait ou non l'étoffe, en quoi cela te regarde-t-il? Quel manque de respect envers tes aînés! »
 
 Un éclair de froideur passa dans les yeux de Wang Zhuo. Il laissa échapper un rire étouffé, mais ne dit mot.
 
@@ -22,25 +22,25 @@ Le père de Tie Zhu reprit ses esprits en comprenant l'état de détresse dans l
 
 Autour d'eux, les proches s'écartèrent rapidement de la famille de Tie Zhu. Ils se rassemblèrent comme pour assister à un spectacle, échangeant commérages et commentaires sur le drame qui se jouait sous leurs yeux.
 
-Le sixième oncle de Tie Zhu lança une pique: « Je savais bien que ce gamin n'avait aucun talent. Comment pouvait-il espérer rivaliser avec Wang Zhuo? »
+Le sixième oncle de Tie Zhu lança une pique: « Je savais bien que ce gamin n'avait aucun talent. Comment pouvait-il espérer rivaliser avec Wang Zhuo, le fils du frère aîné? Cette fois, la honte est complète. »
 
-« C'est tout à fait vrai, ajouta le troisième oncle de Tie Zhu d'un ton sarcastique. Puisque cela devait arriver, pourquoi faire comme s'il avait déjà été accepté? Quelle honte! Lao Er, tu es déjà si vieux, comment peux-tu encore agir de manière aussi stupide? Ce n'est pas pour rien que ton père ne t'a pas laissé de part d'héritage à l'époque. »
+« C'est tout à fait vrai, ajouta le troisième grand-oncle de Tie Zhu, le visage empreint de dégoût, d'un ton sarcastique. Puisque cela devait arriver, pourquoi faire comme s'il avait déjà été accepté? Quelle honte! Lao Er, tu es déjà si vieux, comment peux-tu encore agir de manière aussi stupide? Ce n'est pas pour rien que ton père ne t'a pas laissé de part d'héritage à l'époque. »
 
-« Si vous voulez mon avis, l'histoire prétendant que ce gamin a toujours été un prodige depuis son enfance est très probablement une invention, déclara le cinquième oncle, le visage renfrogné. C'était probablement parce que Lao Er, sachant qu'il était lui-même un raté, a tenté de sauver la réputation de son fils par le mensonge. Le voilà maintenant démasqué. »
+« Si vous voulez mon avis, l'histoire prétendant que ce gamin a toujours été un prodige depuis son enfance est très probablement une invention, déclara le cinquième oncle, qui s'était assis un instant plus tôt près du père de Tie Zhu et dont l'air obséquieux avait aussitôt disparu. C'était probablement parce que Lao Er, sachant qu'il n'arriverait à rien dans la vie, a couvert son fils d'éloges exagérés. Le voilà maintenant démasqué. »
 
-Une parente ricana: « Sur les trois enfants partis passer les tests, il est le seul à avoir échoué. Tie Zhu est l'enfant le plus médiocre de notre famille Wang. Deuxième belle-sœur, je disais plus tôt que tu avais de la chance avec ton mari, mais il semble que ta fortune ne fera que décliner pour le reste de ta vie. »
+Une parente ricana: « Sur les trois enfants partis passer les tests, il est le seul à avoir échoué. Tie Zhu est l'enfant le plus médiocre de notre famille Wang. Deuxième belle-sœur, je disais plus tôt que tu avais de la chance avec ton mari, mais à y regarder de plus près, ta vie en restera là, tu n'as pas cette chance. »
 
-La cinquième tante de Tie Zhu ajouta en ricanant: « N'est-ce pas? Quand je suis allée voir Tie Zhu il y a quelques jours, je me demandais déjà comment il pourrait un jour égaler Wang Hao ou Wang Zhuo. »
+La cinquième tante de Tie Zhu ajouta en ricanant: « N'est-ce pas? Quand je suis allée voir Tie Zhu il y a quelques jours, je me suis dit que ce gamin avait l'air benêt et que jamais il ne pourrait se comparer à Wang Hao ou à Wang Zhuo. Il n'y arrivera sûrement pas. »
 
 Une autre parente lança sans aucune pitié: « J'avais déjà compris que ce petit Tie Zhu n'avait aucun talent. Regardez ses parents; comment pourraient-ils engendrer quoi que ce soit de bon? Dans la famille Wang, seuls les enfants du frère aîné et du troisième frère valent quelque chose. Quant à Tie Zhu... bah, rien que son nom sonne comme celui d'un idiot. »
 
-« J'étais vraiment aveugle à l'époque, j'étais sur le point de pousser ma propre fille dans un gouffre! Heureusement que nous avons découvert avant qu'il ne soit choisi par les immortels. Ma fille m'aurait haï à jamais si je l'avais mariée à lui. Mère de Tie Zhu, oublions cette affaire. Puisque votre Tie Zhu ne deviendra pas un immortel, qui voudrait épouser sa fille? Ce n'est pas comme un crapaud qui prétendrait vouloir la chair d'un cygne! »
+« J'étais vraiment aveugle à l'époque, j'étais sur le point de pousser ma propre fille dans un gouffre! Heureusement que nous avons découvert avant qu'il ne soit choisi par les immortels. Ma fille m'aurait haï à jamais si je l'avais mariée à lui. Mère de Tie Zhu, oublions cette affaire. Puisque votre Tie Zhu ne deviendra pas un immortel, qui lui donnerait sa fille en mariage? Ce serait un crapaud qui veut manger de la chair de cygne, non? »
 
-En quelques instants, tous les proches s'étaient transformés en snobs, lançant une véritable pluie d'insultes sur la famille de Tie Zhu.
+En quelques instants, presque tous les proches s'étaient transformés en snobs, lançant une véritable pluie d'insultes sur la famille de Tie Zhu.
 
-La situation était à l'opposé total de la scène précédente; c'était le chaos. Certains parents allaient même jusqu'à réclamer le remboursement des cadeaux qu'ils avaient offerts. Voyant les visages pâles de ses parents, Tie Zhu serra les poings. L'accumulation de ces affronts lui donnait envie de mourir.
+La situation était à l'opposé total de la scène précédente, comme le ciel et la terre face aux flatteries d'avant. Certains parents allaient même jusqu'à réclamer le remboursement des cadeaux qu'ils avaient offerts. Voyant les visages pâles de ses parents, Tie Zhu serra les poings. L'accumulation de ces affronts lui donnait envie de mourir.
 
-Le père de Wang Zhuo rit intérieurement et ricana: « Lao Er, ne t'avais-je pas dit que pour devenir disciple d'un immortel, il faut avoir le destin de son côté? Comment pourrait-il y avoir la moindre chance sans posséder un talent comme celui de mon fils? Pourtant, tu as sérieusement cru que c'était possible. Voilà que tu pousses ton fils à bout! Était-ce vraiment nécessaire? »
+Le père de Wang Zhuo rit intérieurement et ricana: « Lao Er, ne t'avais-je pas dit que pour devenir disciple d'un immortel, il faut avoir le destin de son côté et que les exigences sont très strictes? Comment pourrait-il y avoir la moindre chance sans posséder un talent comme celui de mon fils? Pourtant, tu as sérieusement cru que c'était possible. Voilà que tu pousses ton fils à bout! Était-ce vraiment nécessaire? »
 
 Le père de Tie Zhu ne put plus contenir sa rage. Il hurla: « Wang Tianshan, tais-toi! À l'époque, sur son lit de mort, notre père m'avait laissé une part de l'héritage. Tu t'es ligué avec les autres pour me la voler, et maintenant tu oses m'insulter? Penses-tu vraiment que moi, Wang Tianshui, je vais subir cela en silence? »
 
@@ -50,10 +50,10 @@ Wang Tianshan marqua une pause avant de répondre: « Pourquoi ramener le passé
 
 Toutes les insultes lancées contre l'abattu Wang Lin étaient comme des épines transperçant son cœur. Il regarda froidement l'assemblée et grava leurs visages dans sa mémoire.
 
-« Toi... je te combattrai jusqu'à la mort! » Le père de Tie Zhu, hors de lui, saisit une chaise pour en faire une arme. Le quatrième oncle de Tie Zhu se précipita pour l'en empêcher, murmurant: « Frère, ne sois pas impulsif. Le frère aîné dispose de nombreux serviteurs. Écoute-moi, ne t'occupe pas de lui. »
+« Toi... je te combattrai jusqu'à la mort! » Le père de Tie Zhu, hors de lui, saisit un tabouret pour en faire une arme. Le quatrième oncle de Tie Zhu se précipita pour l'en empêcher, murmurant: « Frère, ne sois pas impulsif. Le frère aîné a beaucoup de serviteurs chez lui, tu risques d'y perdre. Je suis là, regarde-moi faire. »
 
-Le quatrième oncle lança un regard noir à Wang Tianshan et déclara: « Grand frère, est-ce là une façon de parler? Je n'en veux pas plus entendre. Si tu oses continuer d'insulter mon second frère, ne me reproche pas de ne plus tenir aux liens du sang. La famille Wang est peut-être grande, mais j'ai noué de nombreux contacts lors de mes voyages. Ne me pousse pas à tout brûler. »
+Le quatrième oncle lança un regard noir à Wang Tianshan et déclara: « Grand frère, est-ce là une façon de parler? Je n'en peux plus de t'entendre. Si tu oses encore insulter mon deuxième frère devant moi, ne me reproche pas de ne plus tenir aux liens fraternels. La famille Wang est peut-être grande, mais je me suis fait ces dernières années bien des amis dans le monde du jianghu. Gare à ne pas être réduits en cendres d'un seul incendie! »
 
 Wang Tianshan marmonna quelques mots, craignant encore l'influence de ce quatrième oncle bien introduit.
 
-« Lao Si, tes propos sont injustes, rétorqua le troisième oncle de la famille avec mécontentement. Nous n'avons pas tort de souligner que le fils de Lao Er manque de talent. Qu'y a-t-il de mal à ce que la génération aînée réprimande les plus jeunes? Tu es bien excessif! »
+« Lao Si, tes propos sont injustes, rétorqua le troisième grand-oncle, le plus âgé de la génération, avec mécontentement. Nous n'avons pas tort de souligner que le fils de Lao Er manque de talent. Qu'y a-t-il de mal à ce que la génération aînée réprimande les plus jeunes? Tu es bien excessif! »

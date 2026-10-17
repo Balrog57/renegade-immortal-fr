@@ -12,7 +12,7 @@ L'épée céleste laissa échapper un cri déchirant alors qu'un gaz noir envelo
 
 Bang!
 
-Le poing du géant percuta l'épée céleste et fut repoussé par l'onde de choc. Cependant, Xu Liguo poussa un faible gémissement avant que l'épée ne s'écraser au sol, plongeant dans un silence soudain.
+Le poing du géant percuta l'épée céleste et fut repoussé par l'onde de choc. Cependant, Xu Liguo poussa un faible gémissement avant que l'épée ne tombe au sol, plongeant dans un silence soudain.
 
 Les yeux du géant s'illuminèrent alors qu'il se rua à nouveau.
 
@@ -34,17 +34,17 @@ Le corps du géant trembla sous l'impact et de multiples fissures apparurent. De
 
 La bête spirituelle s'apprêtait à se retourner pour une nouvelle attaque quand Papillon Rouge ouvrit les yeux. La malédiction fut refoulée, ne laissant qu'une unique ligne noire sur son front.
 
-D'une voix pressante et empreinte d'obscurité, Papillon Rouge ordonna: « Flagellant des âmes! Révèle ta véritable forme! »
+D'une voix pressante et empreinte d'obscurité, Papillon Rouge ordonna: « Fouet d'Âmes! Révèle ta véritable forme! »
 
-Cette fois, un fouet d'un blanc pur apparut dans la main du géant de glace. Ce fouet n'était plus une illusion comme auparavant, mais une arme solide qui fouetta la bête spirituelle avec frénésie.
+Cette fois, un fouet d'un blanc pur apparut dans la main gauche du géant de glace. Ce fouet n'était plus une illusion comme auparavant, mais une arme solide qui fouetta la bête spirituelle avec frénésie.
 
-La douleur rendit la bête spirituelle encore plus enragée. Elle s'apprêtait à charger de nouveau lorsqu'elle poussa soudain un cri de douleur et se tourna vers le char de guerre. Après tout, elle n'était qu'un esprit limité par ce char. De plus, Wang Lin ne l'utilisait pas avec assez de vigueur pour qu'elle puisse déployer toute sa puissance; elle ressentait désormais l'appel irrésistible du char.
+La douleur rendit la bête spirituelle encore plus enragée. Elle s'apprêtait à charger de nouveau lorsqu'elle poussa soudain un cri de douleur et se tourna vers le char de guerre. Après tout, elle n'était qu'un esprit limité par ce char. De plus, Wang Lin ne la contrôlait pas de la bonne manière, si bien qu'elle ne pouvait déployer toute sa puissance; elle ressentait désormais l'appel irrésistible du char.
 
 La bête spirituelle poussa un rugissement de dépit vers le ciel avant de se transformer en gaz et de retourner dans le char de guerre.
 
 L'âme originelle de Wang Lin était réintégrée à son corps durant la lutte entre la bête spirituelle et le géant. Il avait également consommé des pilules pour récupérer et injecté de l'énergie spirituelle dans l'épée céleste afin de réveiller Xu Liguo. Muni de l'épée, il abattit un coup puissant.
 
-L'énergie d'épée de Wang Lin arriva avec rapidité. Le géant de glace poussa un rugissement et frappa cette énergie. Il se retourna, frappa le sol de son pied, provoquant une brèche, et s'enfuit promptement.
+L'énergie d'épée de Wang Lin arriva avec rapidité. Le géant de glace poussa un rugissement et frappa cette énergie. Il se retourna, frappa le sol de son pied, provoquant des fissures, et s'enfuit promptement.
 
 Poursuite!
 
@@ -54,23 +54,23 @@ Le visage de Papillon Rouge était sombre. La bataille d'aujourd'hui était bien
 
 En repensant au Royaume Céleste, lorsqu'elle avait déployé toute sa force pour l'éliminer, Ceng Niu ne pouvait que fuir, incapable de lui opposer la moindre résistance. Plus tard, elle n'avait été contrainte que parce qu'il possédait un trésor capable de faire s'effondrer le Royaume Céleste. Elle n'avait jamais considéré Wang Lin comme un adversaire de taille.
 
-Dans son cœur, ce Ceng Niu n'était pas son égal. Il était faible; un insecte, une simple pierre de passage pour les puissants.
+Dans son cœur, ce Ceng Niu n'était pas son égal. Il était faible; un insecte, un marchepied né pour se soumettre aux puissants.
 
-Elle avait tué de nombreux cultivateurs de la Formation de l'Âme comme Wang Lin lors de sa lutte contre l'Alliance des Quatre Sectes. Même à Suzaku, elle avait conservé cette mentalité.
+Elle avait tué de nombreux cultivateurs de la Formation de l'Âme comme Wang Lin lorsque l'Alliance des Quatre Sectes avait balayé les derniers survivants de ses ennemis. Même à Suzaku, elle avait conservé cette mentalité.
 
 C'était là sa fierté!
 
-Pourtant, cette fierté s'était effondrée lorsque Wang Lin lui avait saisi le bras. Elle ne supportait pas qu'un cultivateur aussi insignifiant ose l'attaquer par surprise. Sa haine envers Wang Lin avait atteint son paroxysme.
+Pourtant, cette fierté s'était effondrée lorsque Wang Lin lui avait tranché un bras. Elle ne supportait pas qu'un cultivateur aussi insignifiant ose l'attaquer par surprise. Sa haine envers Wang Lin avait atteint son paroxysme.
 
 Elle était résolue à le tuer pour restaurer l'intégrité de son cœur dao. Elle avait même sorti le trésor national de Xue Yu, le Dieu de Glace, pour l'anéantir.
 
-Même son frère aîné avait secrètement emprunté le trésor principal de la Secte du Jade Céleste, le Flagellant des Âmes, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Flagellant des Âmes. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
+Même son frère aîné avait secrètement emprunté le trésor principal de la Secte du Jade Céleste, le Fouet d'Âmes, afin de lui offrir et de gagner ses faveurs. À l'origine, elle n'avait pas voulu utiliser le Fouet d'Âmes. Elle pensait qu'avec le Dieu de Glace et son trésor personnel, tuer Ceng Niu serait aussi facile que de prendre un bonbon à un enfant.
 
-Cependant, ayant entendu tant de rumeurs sur le Flagellant des Âmes, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
+Cependant, ayant entendu tant de rumeurs sur le Fouet d'Âmes, elle avait été tentée et n'avait pas refusé l'offre. Elle l'avait caché dans le Dieu de Glace pour s'en servir comme d'une arme secrète.
 
 Mais à présent, après tant d'échanges, leur combat atteignait son point de rupture. Les trésors de ce Ceng Niu étaient infinis, bien au-delà de ce qu'elle avait pu concevoir.
 
-Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si Ceng Niu avait eu le pouvoir de la contrôler et que la bête continuait ses assauts, elle était certaine qu'elle aurait perdu sans le Flagellant des Âmes.
+Surtout cette bête spirituelle; elle était d'une férocité inouïe. Si la bête n'avait pas manqué de force sur la durée, elle était certaine que, face à ses assauts répétés, elle aurait perdu sans le Fouet d'Âmes.
 
 À présent, elle n'avait d'autre choix que de fuir. Le Dieu de Glace était extrêmement affaibli. Suite aux dommages subis, il ne mesurait plus que 6,6 mètres de haut. S'il rétrécissait davantage, il s'effondrerait totalement.
 
@@ -86,7 +86,7 @@ Un changement soudain survint.
 
 Elle poussa un cri et une rose apparut devant le géant de glace. Il n'y avait point de pétales, seulement deux étamines. Sans hésiter, l'âme originelle de Papillon Rouge s'échappa et se divisa en deux; une moitié pénétra les étamines.
 
-Les deux étamines fusionnèrent pour former une silhouette magnifique. La figure prit rapidement corps et révéla son apparence.
+Les deux étamines fusionnèrent pour former une silhouette magnifique, enveloppée d'une brume rouge. La figure prit rapidement corps et révéla son apparence.
 
 Un avatar ressemblant trait pour trait à Papillon Rouge apparut, avec la seule différence qu'il possédait tous ses membres.
 
@@ -98,21 +98,21 @@ Cet avatar était une entité qu'elle avait cultivée pour faciliter son passage
 
 Mais aujourd'hui, pour achever Wang Lin, le prix n'avait plus d'importance!
 
-Bien que cet avatar contînt une partie de son âme originelle, il ne possédait aucune énergie spirituelle. Il était entièrement imprégné de son domaine, qu'elle y avait infusé durant un long moment.
+Bien que cet avatar contînt une partie de son âme originelle, il ne possédait aucune énergie spirituelle. Il renfermait la compréhension du Dao céleste qu'elle avait acquise de toute sa vie : son domaine impitoyable s'y accumulait à un rythme démultiplié.
 
 Papillon Rouge et son avatar déclarèrent de concert: « Domaine impitoyable! »
 
 L'avatar s'élança rapidement, émettant une lumière multicolore.
 
-D'une voix suave et séduisante, l'avatar de Papillon Rouge déclara: « Attirer toutes les émotions du monde mortel pour ensuite, par la lame de l'intelligence, tout trancher. Voici le domaine impitoyable! »
+D'une voix suave et séduisante, l'avatar de Papillon Rouge déclara: « Attirer toutes les émotions du monde mortel pour ensuite, par l'épée de la sagesse, tout trancher. Voici le domaine impitoyable! »
 
 « Émotions, venez à moi... »
 
-La couleur du ciel changea brusquement et une puissance mystérieuse recouvrit la terre et les cieux. Sept orbes multicolores apparurent soudainement aux côtés de Papillon Rouge avant de foncer vers Wang Lin.
+La couleur du ciel changea brusquement et une puissance mystérieuse recouvrit la terre et les cieux. Des orbes de lumière aux sept couleurs se condensèrent soudainement autour de l'avatar de Papillon Rouge et flottèrent vers Wang Lin.
 
 « Amour filial! »
 
-Deux sphères de lumière éclatèrent pour former un homme et une femme. L'homme avait les cheveux blancs soigneusement taillés et la femme arborait un regard empreint d'affection.
+Deux sphères de lumière éclatèrent pour former un homme et une femme. L'homme avait les tempes blanchies et la femme arborait un regard empreint d'affection.
 
 « Amour! »
 
@@ -122,25 +122,25 @@ La silhouette de Li Muwan apparut dans l'orbe, fixant Wang Lin de ses yeux empli
 
 « Reconnaissance! » Les trois générations de Da Niu apparurent, fixant Wang Lin avec confusion. Il ouvrit la bouche pour parler, mais aucun son ne put sortir.
 
-Le corps de Wang Lin s'immobilisa et il s'assit en tailleur. Son âme originelle jaillit et proclama: « Sous le cycle de la réincarnation... Domaine de la vie et de la mort! »
+Le corps de Wang Lin s'immobilisa et il s'assit en tailleur. Son âme originelle jaillit et proclama: « Sous la réincarnation... Dao céleste de la vie et de la mort! »
 
-Le ciel fut soudainement déchiré par une paire de mains gigantesques, ouvrant une faille d'où surgit un immense parchemin noir et blanc.
+Le ciel fut soudainement déchiré par une main gigantesque, ouvrant une faille d'où surgit un immense parchemin noir et blanc.
 
 On y voyait des montagnes imposantes et des rivières impétueuses. Bien qu'ils semblassent immobiles, ils étaient en réalité animés de mouvement. Sous l'éclat du parchemin de la vie et de la mort, l'âme originelle de Wang Lin brillait. Une expression complexe traversa son visage alors qu'il contemplait les figures devant lui.
 
-L'avatar de Papillon Rouge tonna: « Épée de l'intelligence! »
+L'avatar de Papillon Rouge tonna: « Épée de la sagesse! »
 
-Une lame multicolore apparut devant elle.
+Une immense ombre d'épée aux sept couleurs apparut devant elle.
 
 « Tranchez! »
 
 Les parents de Wang Lin furent fauchés par l'épée, suivis peu après par Li Muwan. Da Niu et son fils furent abattus d'une paume par Teng Huayuan, qui disparut lui-même après un coup de lame.
 
-« Impitoyable! » Papillon Rouge et son avatar semblaient épuisés. Elle pointa alors Wang Lin du doigt.
+« Impitoyable! » L'avatar de Papillon Rouge semblait épuisé. Elle leva la main droite et pointa alors Wang Lin du doigt.
 
 L'âme originelle de Wang Lin vacilla et ses yeux s'assombrirent. Sa main droite se leva, désignant le parchemin de la vie et de la mort suspendu dans les cieux.
 
-Wang Lin murmura doucement: « Même une personne impitoyable ne peut échapper au cycle de la réincarnation... Comment les émotions du monde pourraient-elles être si aisément tranchées ou rejetées? Bien que l'épée de l'intelligence soit puissante, elle ne peut percer le cycle de la réincarnation! »
+Wang Lin murmura doucement: « Même une personne impitoyable ne peut échapper au cycle de la réincarnation... Comment les émotions du monde pourraient-elles être si aisément tranchées ou rejetées? Bien que l'épée de la sagesse soit longue, elle ne peut trancher le cycle de la réincarnation! »
 
 Un gaz noir et blanc fusionna pour engendrer la brume grise du cycle de la réincarnation. Cette brume s'échappa soudainement du parchemin sous la forme d'un doigt gigantesque et s'abattit sur l'avatar de Papillon Rouge.
 

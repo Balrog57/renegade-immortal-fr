@@ -24,7 +24,7 @@ Les trois pierres spirituelles de qualité supérieure étaient déjà devenues 
 
 C'était un squelette!
 
-À en juger par son apparence, il s'agissait d'une femme. Elle était clouée au fond du puits à l'aide de clous noirs.
+À en juger par son apparence, il s'agissait d'une femme. Elle était clouée au fond du puits, dans une posture étrange, à l'aide de clous noirs.
 
 « Utiliser trois pierres spirituelles de qualité supérieure pour sceller ce squelette... quel homme riche! » Wang Lin comprit immédiatement que cette formation servait au scellement.
 
@@ -78,7 +78,7 @@ Le scribe tremblait de tous ses membres en répondant: « I... Immortel, il y a 
 
 Wang Lin leva les yeux vers la montagne. Il y avait des traces d'effondrements passés, cet homme ne mentait donc pas.
 
-Tout devint clair: cette montagne avait été érigée pour sceller ce squelette. Puis, des années plus tard, un tremblement de terre avait ouvert une brèche dans le sceau, permettant au squelette de revoir la lumière du jour.
+Tout devint clair: cette montagne était, depuis d'innombrables années, le lieu où ce squelette était scellé. Puis, bien des années plus tard, un tremblement de terre avait ouvert une brèche dans le sceau, permettant au squelette de revoir la lumière du jour.
 
 Mais qui était-elle exactement?
 
@@ -102,7 +102,7 @@ La bête moustique continuait de garder Wang Lin, bien qu'elle regardât parfois
 
 Ce jour-là, Wang Lin ouvrit les yeux. Il frappa son sac de rangement, sortit cinq autres pierres spirituelles de qualité supérieure et les disposa autour de lui.
 
-Après un moment de réflexion, il toucha la marque de thé sur son front, le regard déterminé.
+Après un moment de réflexion, il toucha la marque de thé sur son visage, le regard déterminé.
 
 Sans un mot, il ferma les yeux et commença à absorber frénétiquement l'énergie spirituelle des huit pierres. À mesure que l'énergie s'accumulait autour de lui, il émit une lueur verte et un parfum rafraîchissant se propagea lentement.
 
@@ -110,7 +110,7 @@ Alors que l'énergie spirituelle qui entourait son corps augmentait, il activa l
 
 Wang Lin était tel une plaque métallique, tandis que l'énergie intérieure agissait comme un petit marteau et l'énergie extérieure comme un grand maillet. Les deux marteaux frappaient la plaque pour tenter de créer une brèche.
 
-Après des vagues d'assauts successifs, le visage de Wang Lin se crispa sous la douleur et la marque de thé sur son front émit une lueur sombre. Puis, la marque commença à bouger. De loin, on aurait dit qu'un réseau de runes était en rotation.
+Après des vagues d'assauts successifs, le visage de Wang Lin se crispa sous la douleur et la marque de thé sur son visage émit une lueur sombre. Puis, la marque commença à bouger. De loin, on aurait dit qu'un réseau de runes était en rotation.
 
 À chaque tour, une quantité massive d'énergie spirituelle était absorbée.
 

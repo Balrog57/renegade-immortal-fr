@@ -12,27 +12,27 @@ Le crapaud tonnerre fixait la bête moustique avec une expression provocatrice.
 
 Wang Lin esquissa un léger sourire et sauta du dos du crapaud tonnerre. Ignorant les deux bêtes qui se défiaient du regard, il se dirigea vers la pagode.
 
-Arrivé devant elle, il joignit les mains, prit une profonde inspiration et déclara: « Senior, le junior a été chargé par le senior Zhou Yi de veiller sur vous pendant mille ans. Le Cimetière des Immortels sera extrêmement dangereux; je souhaiterais donc demander au senior de me prêter une épée céleste. »
+Arrivé devant elle, il joignit les mains, prit une profonde inspiration et déclara: « Senior, le junior a été chargé par le senior Zhou Yi de veiller sur vous pendant mille ans. Le Cimetière des Immortels sera extrêmement dangereux et le junior n'a pas beaucoup de trésors magiques; je souhaiterais donc demander au senior de me prêter une épée céleste. J'espère que le senior voudra bien l'accepter. »
 
 Sur ce, Wang Lin s'inclina et pénétra dans la pagode.
 
-Au dernier étage, il aperçut le cadavre féminin vêtu de blanc. La femme reposait sur un lit de jade céleste, immobile. À ses côtés se trouvaient deux épées célestes, une grande et une petite, qui dégageaient des ondes d'énergie spirituelle céleste.
+Au dernier étage, il aperçut le cadavre féminin vêtu de blanc. La femme reposait sur un lit de jade céleste, immobile. À ses côtés se trouvaient deux épées célestes, une grande et une petite, qui dégageaient des ondes d'énergie d'épée.
 
 En observant ces deux armes, Wang Lin commença à réfléchir. Son regard était davantage attiré par la plus grande épée que par la petite.
 
-Dès le premier regard, il eut l'impression que cette grande épée lui était familière. Cependant, la situation était alors trop périlleuse pour qu'il puisse approfondir sa réflexion. Depuis son retour, il n'avait été que pour Li Muwan, et n'avait trouvé le temps de penser à rien d'autre.
+Dès qu'il l'avait aperçue pour la première fois dans le Royaume Céleste, il avait eu l'impression que cette grande épée lui était familière, comme s'il l'avait déjà vue quelque part. Cependant, la situation était alors trop périlleuse pour qu'il puisse approfondir sa réflexion. Après son retour sur la Planète Suzaku, il était resté auprès de Li Muwan et n'avait trouvé le temps de penser à rien d'autre.
 
 Maintenant qu'il l'examinait une fois tout terminé, ce sentiment de familiarité était encore plus prégnant.
 
 « Je dois avoir déjà vu cette épée quelque part... » Wang Lin médita longuement avant de tendre la main vers l'arme. Il ne ressentit aucune gêne en saisissant la grande épée céleste.
 
-Cette arme ne pouvait plus être qualifiée d'épée; elle ressemblait plutôt à une plaque rectangulaire.
+Cette arme ne pouvait plus être qualifiée d'épée; elle ressemblait plutôt à une planche de porte rectangulaire.
 
-« Une plaque? » Wang Lin fut stupéfait et se mit à réfléchir. Après un long moment, ses yeux s'illuminèrent et il s'écria: « Richesse! »
+« Une planche de porte? » Wang Lin fut stupéfait et se mit à réfléchir. Après un long moment, ses yeux s'illuminèrent et il s'écria: « Richesse! »
 
 C'était bien Richesse!
 
-Lorsqu'il était à la Secte Heng Yue, son maître lui avait donné un jeton pour choisir une épée volante. Celle qu'il avait choisie fut l'épée la plus ridicule de tout le pays de Zhao: Richesse!
+Lorsqu'il était à la Secte Heng Yue, avant l'arrivée de la Secte Xuan Dao, il avait pris le jade de son maître pour aller choisir une épée volante au Pavillon des Épées. Celle qu'il avait choisie fut l'épée réputée la plus extravagante de tout le pays de Zhao: Richesse!
 
 Wang Lin redescendit de la pagode, l'esprit confus. Il se tint à l'extérieur, fixant la grande épée.
 
@@ -44,7 +44,7 @@ En tenant l'épée, Wang Lin se remémora les deux gemmes géantes sur la garde 
 
 Même les glands de Richesse étaient faits de fragments d'or.
 
-Richesse avait disparu dans le vide lorsque le sac de rangement de Wang Lin fut détruit. Sans cette épée céleste, il ne se serait jamais souvenu de Richesse.
+Richesse avait disparu dans une fissure spatiale lorsque le sac de rangement de Wang Lin fut détruit. Sans cette épée céleste, il ne se serait jamais souvenu de Richesse.
 
 Pourtant, en la regardant à présent, outre les deux gemmes et les glands dorés, les deux épées étaient d'une similitude frappante.
 
@@ -54,7 +54,7 @@ Ce senior du pays Zhao n'était au maximum qu'un cultivateur de l'Âme Naissante
 
 Wang Lin se mit à réfléchir, tentant de se remémorer la vie de ce senior telle qu'elle était inscrite sur la plaque à côté de Richesse.
 
-Cet homme avait été considéré comme un bon à rien au sein de la Secte Heng Yue, mais il avait réussi à sauver la secte d'un grand désastre. Puis, il était mort en laissant cette grande épée à ses futurs disciples.
+Cet homme avait été considéré comme un bon à rien au sein de la Secte Heng Yue, mais il avait réussi à sauver la secte d'un grand désastre. Puis, il était mort, ne laissant que Richesse, déposée au Pavillon des Épées pour quiconque en aurait le destin.
 
 « Un homme totalement inutile a pu sauver la Secte Heng Yue... Je n'y avais pas prêté attention à l'époque, mais avec le recul, ce senior devait bien cacher un secret! » Les yeux de Wang Lin s'illuminèrent. Il reporta son regard sur l'épée céleste.
 
@@ -62,7 +62,7 @@ Cet homme avait été considéré comme un bon à rien au sein de la Secte Heng 
 
 « Sors, Xu Liguo! »
 
-Un pilier de fumée grise jaillit du sac et prit la forme de Xu Liguo. Une fois apparu, il se frappa la poitrine, l'air exalté.
+Un éclat noir jaillit du sac et prit la forme de Xu Liguo. Une fois apparu, il se frappa la poitrine, l'air exalté.
 
 Xu Liguo poussa quelques rugissements: « Je suis enfin sorti, haha... »
 
@@ -86,7 +86,7 @@ Puis, Wang Lin prit une inspiration, rangea le crapaud tonnerre et la bête mous
 
 Dans la maison de l'ancien Zhou, au village des Fleurs d'Abricot, une femme contemplait un bébé de genre féminin avec tendresse.
 
-« Ru Er, ton père est allé te chercher du ginseng pour fortifier ton corps. Je ne comprends pas ce qui arrive à cet enfant pour qu'elle soit si faible. »
+« Ru Er, ton père est allé au village des Zhang te chercher du ginseng pour fortifier ton corps. Je ne comprends pas ce qui arrive à cet enfant pour qu'elle soit si faible. »
 
 La femme berçait le bébé en chantant une chanson de leur village. La respiration de la petite fille était régulière; elle semblait déjà endormie.
 
@@ -106,9 +106,9 @@ Le regard de la petite fille vers Wang Lin n'était plus limpide, mais chargé d
 
 Le cœur de Wang Lin se serra en contemplant l'enfant.
 
-*Tu m'as offert une seule larme, et j'ai pu lire tout ce que ton cœur contenait...*
+*Tu m'as offert une seule larme, et j'ai vu tout l'océan de ton cœur...*
 
-Wang Lin resta ainsi de longues minutes à la regarder. Le temps passait, mais son regard, lui, ne quittait pas l'enfant.
+Wang Lin resta ainsi de longues minutes à la regarder. Le temps pouvait s'écouler et les années s'en aller, mais son regard, lui, ne quittait pas l'enfant.
 
 « Je reviendrai te chercher... » murmura doucement Wang Lin avant de s'éclipser.
 
@@ -120,9 +120,9 @@ Les sanglots cessèrent bientôt, mais la petite fille continuait de regarder ve
 
 Tie Yan était assis en tailleur dans la grotte, montant la garde auprès du bébé. Il s'était habitué à une culture en semi-retraite depuis un an. Il y a six mois, Lu Fei lui avait proposé de prendre la relève, mais il avait refusé.
 
-Depuis qu'il était entré dans le monde de la culture, Tie Yan n'avait rien vécu de semblable que durant cette dernière année. Chaque jour, il étendait son Sens Divin sur tout le village; il connaissait désormais chaque foyer et chaque habitant.
+Depuis qu'il était entré dans le monde de la culture, Tie Yan n'avait jamais rien vécu de semblable à cette dernière année. Chaque jour, il étendait son Sens Divin sur tout le village; il connaissait désormais chaque foyer et chaque habitant.
 
-Ce sentiment était singulier. En réalité, Tie Yan s'était récemment laissé porter par une forme de lâcher-prise pour s'immerger dans le monde mortel.
+Ce sentiment était singulier. En réalité, Tie Yan avait même renoncé à méditer ces derniers mois et passait ses journées plongé dans le monde des mortels.
 
 Wang Lin entra dans la grotte. En voyant Tie Yan, son regard se fit soudainement plus intense. Tie Yan se leva promptement pour saluer Wang Lin.
 
@@ -144,7 +144,7 @@ Dans la mer de sang située dans les terres de l'Ancien Dieu.
 
 L'aspect de la mer de sang avait radicalement changé. La plupart des piliers avaient disparu; seul celui sur lequel trônait Ta Sen subsistait.
 
-Moins de cent cultivateurs se trouvaient dans cette mer de sang. Chacun d'eux portait une marque rouge sur le front et tous cultivaient en silence. Parmi eux, beaucoup étaient familiers de Wang Lin, comme l'Empereur Antique.
+Moins de cent cultivateurs se trouvaient dans cette mer de sang. Chacun d'eux portait une fine ligne rouge entre les sourcils et tous cultivaient en silence. Parmi eux, beaucoup étaient familiers de Wang Lin, comme l'Empereur Antique.
 
 Ils dégageaient tous une aura démoniaque imprégnée d'une odeur de sang. Tandis qu'ils cultivaient, le fluide écarlate pénétrait lentement dans leurs corps.
 
@@ -154,4 +154,4 @@ Sur le pilier où siégeait Ta Sen se trouvait un homme aux longs cheveux rouges
 
 Cet homme aux cheveux rouges était Ta Sen, celui qui avait obtenu l'héritage de force de l'Ancien Dieu. Ses cheveux dissimulaient son visage, mais ses yeux, brûlants de haine, étaient visibles.
 
-« Wang Lin, la durée de vie du corps de l'Ancien Dieu approche de sa limite. Une fois ce moment venu, je pourrai m'échapper d'ici. Wang Lin, tu ferais mieux de ne pas mourir. Continue de garder cet héritage de connaissances en sécurité pour moi! »
+« Wang Lin, la durée de vie du corps de l'Ancien Dieu approche de sa limite. Une fois ce moment venu, je pourrai m'échapper d'ici. Wang Lin, tu ferais mieux de ne pas mourir. Continue de garder cet héritage des souvenirs en sécurité pour moi! »

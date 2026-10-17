@@ -88,7 +88,7 @@ Le Parchemin de la Réincarnation Vie et Mort!
 
 « Maintenant que mon corps originel et mon avatar ont fusionné, mon domaine a-t-il également changé...? » Wang Lin songea à l'image qui était apparue derrière son corps originel lors de son combat contre le Messager du Ciel.
 
-Son cœur manqua un battement, puis les trois étoiles apparurent rapidement sur son front et se mirent à tourner. Bientôt, une silhouette colossale se dessina lentement derrière lui.
+Une pensée lui traversa l'esprit, puis les trois étoiles apparurent rapidement sur son front et se mirent à tourner. Bientôt, une silhouette colossale se dessina lentement derrière lui.
 
 La tête de cette figure perçait les cieux tandis que ses pieds reposaient sur le sol. Dès qu'elle apparut, sa main s'étira pour saisir le parchemin.
 
@@ -114,7 +114,7 @@ Le visage de Li Yuanfeng était livide. Son corps tremblait tandis qu'il crachai
 
 « Tu n'es pas encore au stade avancé de la Formation de l'Âme... ton domaine a déjà atteint le stade de la Transformation de l'Âme... » La douleur se lisait sur le visage de Li Yuanfeng alors qu'il fixait Wang Lin, mais ses yeux étaient empreints de folie.
 
-« Énergie spirituelle céleste! » Li Yuanfeng décida d'ignorer les blessures qui le lacéraient pour user de l'énergie spirituelle céleste. Un petit fragment de jade céleste apparut dans sa main, et l'énergie céleste en son corps commença à circuler.
+« Énergie spirituelle céleste! » Li Yuanfeng décida d'ignorer les blessures qui le lacéraient pour user de l'énergie spirituelle céleste. Un petit cristal d'énergie spirituelle céleste apparut dans sa main, et l'énergie céleste en son corps commença à circuler.
 
 Être capable d'absorber et d'utiliser l'énergie spirituelle céleste était la norme pour un cultivateur de la Transformation de l'Âme.
 
@@ -124,7 +124,7 @@ L'expression de Wang Lin resta imperturbable. Il frappa son sac de rangement et 
 
 Au même moment, le drapeau des restrictions apparut également. D'un geste de la main, une multitude de restrictions furent projetées. De loin, Wang Lin semblait enveloppé par un tourbillon de gaz noir semblable à une tempête.
 
-Li Yuanfeng fixa Wang Lin et esquissa un sourire féroce. Sa main forma un sceau, faisant apparaître d'innombrables sphères de glace. C'était la technique la plus commune de Xue Yue; presque tout le monde la connaissait.
+Li Yuanfeng fixa Wang Lin et esquissa un sourire féroce. Sa main forma un sceau, faisant apparaître d'innombrables sphères de glace de la taille d'un poing. C'était la technique la plus commune de Xue Yue; presque tout le monde la connaissait.
 
 Mais ces sphères de glace contenaient le pouvoir de briser les cieux et la terre.
 

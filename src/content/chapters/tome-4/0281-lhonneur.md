@@ -16,7 +16,7 @@ Wang Lin pouvait deviner, à travers les souvenirs du cultivateur de Formation d
 
 Le frère aîné pouvait tout juste être considéré comme un génie. Il lui avait fallu moins de cent ans pour atteindre le sommet du stade d'Établissement des Fondations, et il ne lui restait plus qu'une étape avant la Formation du Noyau.
 
-Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier son frère aîné à la fille d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance.
+Toutefois, selon les souvenirs du cultivateur de Formation du Noyau, cette affection tenait surtout à l'apparence physique du disciple. Il projetait de marier son frère aîné à la disciple d'un autre cultivateur de fin de stade de Formation du Noyau afin de sceller une alliance.
 
 Après avoir parcouru cet aperçu de ses souvenirs, Wang Lin n'y prêta plus attention. L'épée approcha et s'arrêta devant la tour de glace. Le frère aîné s'agenouilla au sol et déclara d'une voix claire: « Ce disciple salue le Maître. Par chance, j'ai réussi à localiser la cachette des vestiges de l'Alliance des Quatre Sectes! »
 
@@ -58,7 +58,7 @@ Le regard de Wang Lin resta imperturbable. Sa main droite sembla pointer un poin
 
 Le domaine de la vie et de la mort se concentra soudainement sur le bout du doigt de Wang Lin. Ce simple geste contenait la Voie des Cieux et regorgeait de mystères.
 
-Un sifflement s'échappa des épées, qui commencèrent alors à graviter autour du doigt de Wang Lin. Elles émettaient une lueur tandis qu'elles subissaient une transformation; l'énergie spirituelle qu'elles dégageaient devint soudainement plusieurs fois plus puissante qu'auparavant.
+Un cri de surprise s'échappa des lueurs d'épées, qui commencèrent alors à graviter autour du doigt de Wang Lin. Elles émettaient une lueur tandis qu'elles subissaient une transformation; l'énergie spirituelle qu'elles dégageaient devint soudainement plusieurs fois plus puissante qu'auparavant.
 
 Cependant, le Sens Divin fut totalement annihilé par la puissance du domaine.
 
@@ -110,13 +110,13 @@ Au moment où Wang Lin fit volte-face, le vieillard regarda le flacon de pilules
 
 En saisissant l'éventail, l'expression de Wang Lin changea. Il avait un souvenir profond de cet objet. C'était celui qu'une femme utilisait lorsqu'elle était encerclée par la formation meurtrière de l'Alliance des Quatre Sectes. Il se souvenait qu'après sa mort, cet éventail avait été emporté par un cultivateur de fin de stade de Formation de l'Âme.
 
-Il se retourna et observa attentivement le vieillard. Cet homme était l'un des cultivateurs de la Formation de l'Âme qui se trouvait dans cette formation meurtrière autrefois.
+Il se retourna et observa attentivement le vieillard. Cet homme était l'un des cultivateurs de fin de stade de Formation de l'Âme qui se trouvaient dans cette formation meurtrière autrefois.
 
 Toute la gloire du passé n'était plus qu'un lointain souvenir...
 
 Wang Lin partit, l'esprit tourmenté. Les trois disciples n'osèrent mot dire et se contentèrent de le suivre en silence.
 
-Peu après le départ de Wang Lin, les deux autres sortirent de la montagne enneigée et regardèrent dans la direction où il avait disparu avant de s'éloigner à leur tour.
+Peu après le départ de Wang Lin, le vieillard et le jeune homme sortirent de la montagne enneigée et regardèrent dans la direction où il avait disparu avant de s'éloigner à leur tour.
 
 À la frontière, le vieillard frappa la formation pour créer une brèche. Il partagea la moitié des pilules avec le jeune homme. Puis, d'un regard empreint d'affection, il lui dit: « Pars. Tu devras compter sur toi-même à l'avenir, car ton maître ne peut plus te protéger. »
 
@@ -136,7 +136,7 @@ Celui qui tombe dans le feu doit être ce phénix immortel... Même si ses ailes
 
 Fermer une porte, c'est perdre un monde.
 Les souvenirs du passé seront désormais à jamais lointains.
-Le sable dans le vent ne remplit plus l'espace des rêves. Le gémissement de la puissante flûte n'est plus qu'un écho dans les terres désolées.
+Le sable dans le vent ne remplit plus l'espace des rêves. Le gémissement de la flûte qiang n'est plus qu'un écho dans les terres désolées.
 
 Fermer une porte, c'est couper un espace et un temps.
 La gloire du passé ne subsiste que dans les louanges des descendants.

@@ -68,7 +68,7 @@ L'Alliance des Quatre Sectes étant très vaste, non seulement l'armée s'activa
 
 Da Niu en faisait partie.
 
-Même les vieillards au crépuscule de leur vie n'étaient pas épargnés, mais sous les ordres du roi qui lui témoignait son respect, personne ne dérangea Wang Lin.
+Même les vieillards au crépuscule de leur vie n'étaient pas épargnés, mais sur la parole du prince qui lui témoignait toujours son respect, personne ne dérangea Wang Lin.
 
 Cette opération dura plusieurs mois. Da Niu avait déjà été envoyé vers le sud. La capitale entière — non, toutes les cités de l'Alliance des Quatre Sectes — étaient bien plus désertes. À moins d'occuper un poste important, presque tout le monde était dehors pour déblayer la neige.
 
@@ -86,7 +86,7 @@ Quelques jours plus tôt, le cultivateur aux grandes oreilles, Zhou Wutai, lui a
 
 Grâce au déblaiement massif effectué par la population, la couche de neige au sol avait diminué, laissant place à d'immenses montagnes de neige blanche. De plus, presque tous les cultivateurs de l'Alliance avaient été invités à participer à la bataille imminente.
 
-Cependant, Zhou Wutai avait également exprimé ses propres inquiétudes. Normalement, Xue Yu ne faisait pas tomber de neige pendant des mois; ils ne laissaient généralement tomber la neige que durant dix jours, avant de s'arrêter.
+Cependant, Zhou Wutai avait également exprimé ses propres inquiétudes. Normalement, Xue Yu ne faisait pas tomber de neige pendant des mois; ils ne laissaient généralement tomber la neige que dix jours au plus, après quoi ils attaquaient.
 
 En temps normal, lors des grands affrontements, les cultivateurs évitaient d'affecter le monde mortel. C'était une règle établie par le pays Suzaku. Mais aujourd'hui, quatre mois s'étaient écoulés et la neige ne cessait de tomber. Elle était simplement dissimulée par les formations.
 

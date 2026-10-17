@@ -22,9 +22,9 @@ Cependant, à cet instant précis, Wang Lin sortit de la boule de feu. Les flamm
 
 Stupéfait, le sauvage à trois feuilles recula promptement en se transformant en un éclair noir. Comment Wang Lin pouvait-il le laisser s'échapper? Il utilisa aussitôt une technique de téléportation pour tenter de le rattraper.
 
-Quant aux autres sauvages qui les attaquaient, ils avaient tous été tués par l'Ancien Hu d'un simple revers de manche.
+Quant aux autres sauvages qui les attaquaient, ils avaient tous été tués par le vieil homme Hu d'un simple revers de manche.
 
-Wang Lin revint, la tête du sauvage à trois feuilles à la main, et la jeta au sol. Il lança un regard froid à la femme au voile blanc et dit: « Confrère cultivateur Zi Xin, puisque vous avez pu identifier le rang de ce sauvage, veuillez nous révéler tout ce que vous savez. »
+Wang Lin revint, tenant le sauvage à trois feuilles, et le jeta au sol. Il lança un regard froid à la femme au voile blanc et dit: « Confrère cultivateur Zi Xin, puisque vous avez pu identifier le rang de ce sauvage, veuillez nous révéler tout ce que vous savez. »
 
 La femme au voile blanc hocha la tête et répondit: « Ce n'est pas que je ne voulais pas parler auparavant, mais depuis que je suis entrée ici, certains souvenirs me reviennent. Les sauvages de ce lieu sont différents des cultivateurs. Ils se divisent en deux types: les chamans et les guerriers. »
 
@@ -34,25 +34,25 @@ La femme au voile blanc hocha la tête et répondit: « Ce n'est pas que je ne v
 
 « Quant à ces tatouages, ils sont façonnés à partir du sang de bêtes démoniaques; ils acquièrent ainsi la puissance de ces créatures. »
 
-À cet instant, un bang sonique retentit au loin. Une lueur noire arriva rapidement et se mua en un visage gigantesque. Les yeux de ce visage se fixèrent aussitôt sur la tête gisant au sol.
+À cet instant, un bang sonique retentit au loin. Une lueur noire arriva rapidement et se mua en un visage gigantesque. Les yeux de ce visage se fixèrent aussitôt sur le sauvage gisant au sol.
 
-Puis, le visage aspira l'air et la tête commença à s'agiter comme si elle était animée par une vie propre. Rapidement, la tête fut engloutie par le visage.
+Puis le visage aspira violemment: les tatouages sur le corps du sauvage se mirent à ramper comme s'ils étaient vivants, s'échappèrent de son corps et furent aussitôt engloutis dans la bouche du visage géant.
 
-L'Ancien Hu grogna. Il s'apprêtait à intervenir quand son expression changea soudainement.
+Le vieil homme Hu grogna. Il s'apprêtait à intervenir quand son expression changea soudainement.
 
 Le visage de Wang Lin devint lui aussi très sombre. Au loin, cinq lueurs noires approchaient. Elles s'étaient également transformées en visages géants qui les fixaient froidement.
 
 La voix de la femme au voile blanc trembla: « Ce sont des chamans à cinq feuilles. Leur puissance équivaut à celle de cultivateurs au stade de la Formation de l'Âme... »
 
-« Tout le monde, séparez-vous et rejoignez l'entrée du troisième étage! L'accès se trouve à l'extrémité nord! » lança l'Ancien Hu très rapidement avant de saisir Xu Luo et la femme. Il s'enfuit prestement, suivi de près par Qiu Siping.
+« Tout le monde, séparez-vous et rejoignez l'entrée du troisième étage! L'accès se trouve à l'extrémité nord! » lança le vieil homme Hu très rapidement avant de saisir Xu Luo et la jeune fille. Il s'enfuit prestement, suivi de près par Qiu Siping.
 
 Wang Lin ne dit mot et partit dans la même direction.
 
 Voyant tout le monde fuir, les visages se dispersèrent pour les poursuivre. Celui qui traquait Wang Lin fut le premier à l'atteindre.
 
-Le regard de Wang Lin restait calme. Après avoir volé un moment, il s'arrêta et fit face au visage qui le poursuivait. Il frappa son sac de contenance et le drapeau de restriction apparut dans sa main. Il agita le drapeau, et un immense nuage de gaz de restriction enveloppa son corps.
+Le regard de Wang Lin restait calme. Après avoir volé un moment, il s'arrêta et fit face au visage qui le poursuivait. Il frappa son sac de rangement et le drapeau de restriction apparut dans sa main. Il agita le drapeau, et un immense nuage de gaz de restriction enveloppa son corps.
 
-Simultanément, la grenouille tonnerre sortit du sac, le ventre gonflé. Elle ouvrit la gueule vers le chaman sauvage et une boule de foudre jaillit dans un fracas tonitruant.
+Simultanément, le crapaud tonnerre sortit du sac, le ventre gonflé. Il ouvrit la gueule vers le chaman sauvage et une boule de foudre jaillit dans un fracas tonitruant.
 
 Les yeux du visage géant brillèrent d'une lueur mystérieuse tandis qu'une masse obscure se rassemblait devant lui, formant un bouclier colossal.
 
@@ -60,9 +60,9 @@ La boule de foudre percuta le bouclier.
 
 Bang!
 
-Le bouclier trembla et des fissures apparurent. Une masse noire supplémentaire se concentra rapidement sur la protection. Une fois la boule de lumière dissipée, la masse obscure se condensa davantage et un homme en sortit.
+Le bouclier trembla et des fissures apparurent. Une masse noire supplémentaire se concentra rapidement sur la protection. Une fois la boule de foudre dissipée, la masse obscure se condensa davantage et un homme en sortit.
 
-C'était un homme d'âge moyen dont les cheveux tombaient négligemment dans son dos. Plus de la moitié de son corps était recouvert de tatouages, mais ceux-ci ne reposaient pas directement sur sa peau; ils flottaient légèrement au-dessus de celle-ci. Les motifs semblaient très désordonnés, comme si plusieurs couches de tatouages avaient été superposées.
+C'était un homme d'âge moyen vêtu de peaux de bêtes, les cheveux noués négligemment derrière la tête. Plus de la moitié de son corps était recouvert de tatouages, mais ceux-ci ne reposaient pas directement sur sa peau; ils flottaient légèrement au-dessus de celle-ci. Les motifs semblaient très désordonnés, comme si plusieurs couches de tatouages avaient été superposées.
 
 Son visage subissait le même sort: la moitié de ses traits était couverte de tatouages.
 
@@ -88,9 +88,9 @@ Cette peau de bête commença à brûler rapidement, augmentant la vitesse des t
 
 Wang Lin demeurait serein. Il observait attentivement les tatouages. Ses yeux brillèrent de compréhension: « Ainsi, ces sauvages utilisent ces tatouages pour attaquer. Bien qu'il n'y ait aucune énergie spirituelle en eux, ils recèlent une autre puissance mystérieuse. »
 
-En voyant le sauvage lancer la peau de bête, une lueur meurtrière apparut dans les yeux de Wang Lin. Il frappa son sac de contenance et une gigantesque épée céleste apparut devant lui.
+En voyant le sauvage lancer la peau de bête, une lueur meurtrière apparut dans les yeux de Wang Lin. Il frappa son sac de rangement et une gigantesque épée céleste apparut devant lui.
 
-Il saisit l'épée, poussa un rugissement et la abattit avec force. Un bruit semblable à la déchirure du ciel retentit alors qu'un rayon de lumière noire s'abattait sur sa cible.
+Il saisit l'épée, poussa un rugissement et l'abattit avec force. Un bruit semblable à la déchirure du ciel retentit alors qu'un rayon de lumière noire s'abattait sur sa cible.
 
 L'expression de l'homme d'âge moyen changea radicalement; il agita précipitamment sa main pour faire revenir les tatouages, qui formèrent de nombreux boucliers.
 
@@ -100,19 +100,19 @@ L'homme poussa un cri. Sans hésiter, il se mua en une masse obscure qui prit la
 
 Mais la lumière noire atteignit tout de même la masse sombre. Un cri de douleur déchirant s'en échappa. La masse ralentit un instant avant de reprendre sa course effrénée.
 
-Les yeux de Wang Lin brillèrent, mais il ne le poursuivit pas. Son regard se tourna vers la grenouille tonnerre.
+Les yeux de Wang Lin brillèrent, mais il ne le poursuivit pas. Son regard se tourna vers le crapaud tonnerre.
 
 « La puissance de l'épée n'a pas suffi à l'achever. Cette attaque est de celles que la plupart des cultivateurs au stade avancé de la Formation de l'Âme ne pourraient parer sans un trésor défensif de haut rang. Ce sauvage à cinq feuilles est redoutable! »
 
-La grenouille tonnerre bondit dans les airs, son ventre se gonflant à nouveau. Elle cracha une boule de foudre vers la masse noire en fuite. Le projectile jaillit et percuta l'obscurité.
+Le crapaud tonnerre bondit dans les airs, son ventre se gonflant à nouveau. Il cracha une boule de foudre vers la masse noire en fuite. Le projectile jaillit et percuta l'obscurité.
 
 Bang!
 
 Un rugissement terrassant émana de la masse sombre. Celle-ci se dissipa, et le visage qu'elle abritait disparut également.
 
-Wang Lin atterrit aux côtés de la grenouille tonnerre. Une odeur de sang flottait là où l'explosion avait eu lieu; l'homme d'âge moyen avait été tué par la boule de foudre.
+Wang Lin atterrit aux côtés du crapaud tonnerre. Une odeur de sang flottait là où l'explosion avait eu lieu; l'homme d'âge moyen avait été tué par la boule de foudre.
 
-Après avoir réfléchi un instant, Wang Lin rangea la grenouille tonnerre. Il s'envola vers le nord, son sens divin déployé à son maximum. Plusieurs heures plus tard, son expression changea brusquement alors qu'il jetait un regard vers sa droite.
+Après avoir réfléchi un instant, Wang Lin rangea le crapaud tonnerre. Il s'envola vers le nord, son sens divin déployé à son maximum. Plusieurs heures plus tard, son expression changea brusquement alors qu'il jetait un regard vers sa droite.
 
 Il se rua aussitôt vers là-bas, tel une météorite.
 
@@ -142,10 +142,10 @@ Le jeune sauvage esquiva la boue et observa le dragon d'un air grave.
 
 Bientôt, le dragon faiblit. Peu après, d'innombrables tatouages sortirent de son corps pour reformer le vieil homme.
 
-C'était comme si le dragon avait donné naissance à l'homme. Une fois le dernier tatouage revenu en place, le vieillard sauta du dos de la créature et lui trancha la tête. Un flot de sang jaillit de la gorge du dragon.
+C'était comme si le dragon avait donné naissance à l'homme. Une fois le dernier tatouage revenu en place, le vieillard sauta du dos de la créature et lui entailla la tête. Un flot de sang jaillit de la blessure.
 
 Le jeune homme poussa un cri de joie et s'élança. En se couvrant de sang frais, ses propres tatouages s'animèrent comme s'ils étaient vivants.
 
-Peu après, le jeune homme s'assit pour cultiver, puis commença à tracer des motifs calqués sur ceux de son corps. Rapidement, les anciens tatouages furent remplacés par de nouveaux.
+Peu après, le jeune homme s'assit en tailleur et, la main droite trempée dans le sang du dragon, commença à tracer des motifs calqués sur ceux de son corps. Rapidement, les anciens tatouages furent remplacés par de nouveaux.
 
 En voyant cela, Wang Lin pensa soudainement à une personne.

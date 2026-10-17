@@ -10,7 +10,7 @@ Après le départ de Xu Tao, la vie de Wang Lin retrouva son calme. C'était com
 
 Wang Lin continuait de se lever tôt chaque jour pour ouvrir sa boutique et attendre que le fils de Da Niu lui apporte une cruche de vin. Il s'asseyait alors pour sculpter tout en buvant. Il avait vécu ainsi durant de nombreuses années, au point que ce mode de vie était gravé dans ses os.
 
-Il était désormais loin du chemin de la mort. C'était comme si l'homme d'autrefois et celui d'aujourd'hui étaient deux êtres totalement différents. Aucune intention meurtrière ne émanait plus de lui; il dégageait au contraire une aura sereine, celle d'un simple mortel.
+Il était désormais loin du chemin de la mort. C'était comme si l'homme d'autrefois et celui d'aujourd'hui étaient deux êtres totalement différents. Aucune intention meurtrière n'émanait plus de lui; il dégageait au contraire une aura sereine, celle d'un simple mortel.
 
 Wang Lin ignorait quel serait le domaine qu'il finirait par comprendre, mais il n'était pas pressé et contemplait calmement les lois du ciel.
 
@@ -54,7 +54,7 @@ Une autre femme se tenait sur le côté: la mère de Da Niu. Son cœur était ro
 
 Dès l'entrée de Wang Lin, tous affichèrent un air de respect. Dans cette rue, sa réputation n'était plus à faire.
 
-En voyant Wang Lin, la mère de Da Niu hocha doucement la tête, s'agenouilla et murmura: « La veuve Ceng Si salue le grand frère Wang. »
+En voyant Wang Lin, la mère de Da Niu hocha doucement la tête, s'agenouilla et murmura: « La veuve Ceng salue le grand frère Wang. »
 
 Wang Lin soupira et s'avança pour l'aider à se relever. On lui tendit ensuite de l'encens qu'il alluma avant de présenter ses respects.
 
@@ -84,7 +84,7 @@ Un déclic se produisit dans son esprit. Ses yeux émettaient une lumière inima
 
 Tandis qu'il s'élevait dans les airs, il vit d'innombrables mortels et, autour d'eux, cette même énergie mystérieuse. Il la percevait autour des fleurs, des arbres... elle était partout. Cette force émanait du ciel, et Wang Lin, inconsciemment, voulut en trouver la source.
 
-Il sentit son ascension s'accélérer; la capitale ne devint qu'un point minuscule, puis disparut, laissant place devant lui à une planète brunâtresse. Malheureusement, même à cette altitude, il n'avait pas encore trouvé l'origine de ce pouvoir. Il le ressentait jusque dans les étoiles; aucun lieu n'en était exempt.
+Il sentit son ascension s'accélérer; la capitale ne devint qu'un point minuscule, puis disparut, laissant place devant lui à une planète brunâtre. Malheureusement, même à cette altitude, il n'avait pas encore trouvé l'origine de ce pouvoir. Il le ressentait jusque dans les étoiles; aucun lieu n'en était exempt.
 
 La personnalité de Wang Lin était d'une ténacité extrême. Sans cela, il n'aurait pas passé quatre cents ans à retourner à Zhao pour se venger de la famille Teng. Outre cette obstination, il possédait une détermination sans faille. Il n'aurait jamais pu passer du statut de minuscule cultivateur à celui qu'il était aujourd'hui sans elle.
 
@@ -96,7 +96,7 @@ Son corps volait toujours plus haut, mais juste avant de s'éloigner trop de la 
 
 Wang Lin fut stupéfait, le regard chargé de confusion. Le vieil homme rit et, après l'avoir observé attentivement, cria: « Je m'appelle Tian Yunzi. Puisque nous nous sommes rencontrés, je vous propose un marché. Si vous parvenez à quitter cette planète de culture inutile pour venir me trouver sur la Planète Tian Yun, je ferai de vous mon disciple honorifique pour cent ans! »
 
-Sur ces mots, il pointa sa main droite et le corps de Wang Lin trembla. Il eut l'impression d'être percuté par une force colossale qui le renvoya brusquement vers la planète brune, en direction de la zone des Quatre Alliances.
+Sur ces mots, il pointa sa main droite et le corps de Wang Lin trembla. Il eut l'impression d'être percuté par une force colossale qui le renvoya brusquement vers la planète brune, en direction du territoire de l'Alliance des Quatre Sectes.
 
 La capitale, passée d'un minuscule point à la taille d'un ongle, reprit sa croissance rapide. Il fut presque instantanément ramené dans sa boutique.
 
@@ -108,7 +108,7 @@ Enfin, lorsqu'il retira ses doigts, la sculpture d'un vieil homme vêtu de cyan 
 
 Une fois terminé, il se rendit à l'arrière pour se laver, changea ses vêtements et retourna dans la boutique.
 
-Grâce à cette compréhension des cieux, le niveau de culture de Wang Lin était passé du milieu au sommet de la phase de l'Âme Naissante. Il n'était plus qu'à un souffle de la Formation de l'Âme.
+Grâce à cette compréhension des cieux, le niveau de culture de Wang Lin était passé du milieu de l'Âme Naissante au sommet de sa phase tardive. Il n'était plus qu'à un souffle de la Formation de l'Âme.
 
 Pourtant, en repensant à ce qui venait de se passer, il ne put s'empêcher d'éprouver une crainte. Sans l'intervention de ce vieil homme nommé Tian Yunzi, il se serait véritablement perdu dans sa quête de la source. Si cela était arrivé, la seule issue aurait été la mort.
 

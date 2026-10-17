@@ -40,7 +40,7 @@ Son hostilité envers Wang Lin s'atténua sensiblement. Être capable d'offrir u
 
 Toutefois, son plus grand dilemme résidait dans le choix. Après tout, le domaine qu'il tentait actuellement de comprendre était très éloigné de celui-ci; un conflit intérieur s'était donc installé.
 
-Après un long moment, il trembla légèrement avant de lever les yeux vers Wang Lin. Il laissa échapper un nouveau sourire amer: « Frère Wang, j'admets ma défaite! Alors, je t'en prie, donne-moi une autre obsession à affronter. Je ne veux plus de cette sculpture, et tu peux garder ce jade. Il contient une technique de Formation de l'Âme. »
+Après un long moment, il trembla légèrement avant de lever les yeux vers Wang Lin. Il laissa échapper un nouveau sourire amer: « Frère Wang, j'admets ma défaite! Alors, je t'en prie, cesse de me donner d'autres obsessions. Je ne veux plus de cette sculpture, et tu peux garder ce jade. Il contient une technique de Formation de l'Âme. »
 
 Une lueur étrange passa dans les yeux de Wang Lin tandis qu'il observait attentivement Zhou Wutai. Lorsqu'il lui avait offert la sculpture, il nourrissait bel et bien une intention cachée, mais Zhou Wutai l'avait immédiatement décelée et avait choisi de renoncer à l'expérience du Domaine du Temps qui Passe pour préserver son propre domaine actuel. Wang Lin rencontrait rarement des individus de cette trempe.
 
@@ -54,11 +54,11 @@ Les yeux de Zhou Wutai s'illuminèrent: « Exactement. Une intention de tuer imp
 
 L'expression de Wang Lin resta imperturbable, comme si tout cela ne le concernait pas. Il se contenta d'écouter en silence.
 
-Zhou Wutai reprit: « Plusieurs aînés de l'Alliance des Quatre Sectes sont sortis pour mener des investigations. À cinq mille kilomètres d'altitude, ils ont découvert une faille de transfert unilatérale provenant de cultivateurs de Xue Yue, dissimulée par des restrictions. »
+Zhou Wutai reprit: « Plusieurs aînés de l'Alliance des Quatre Sectes sont sortis pour mener des investigations. À cinq mille kilomètres d'altitude, ils ont découvert une faille de transfert unilatérale provenant de cultivateurs de Xue Yu, dissimulée par des restrictions. »
 
-« Des cultivateurs de Xue Yue? » C'était la première fois que Wang Lin entendait ce nom.
+« Des cultivateurs de Xue Yu? » C'était la première fois que Wang Lin entendait ce nom.
 
-Zhou Wutai prit une profonde inspiration: « Xue Yue est un autre pays de culture de rang 4. Ils se situent à la frontière nord du continent. Leur région est perpétuellement ensevelie sous la glace et la neige, et leur culture y est étroitement liée. Ainsi, chaque fois que Xue Yue attaque un autre pays, ils utilisent ces failles pour recouvrir d'abord le territoire de neige, avant de lancer l'assaut. »
+Zhou Wutai prit une profonde inspiration: « Xue Yu est un autre pays de culture de rang 4. Ils se situent à la frontière nord du continent. Leur région est perpétuellement ensevelie sous la glace et la neige, et leur culture y est étroitement liée. Ainsi, chaque fois que Xue Yu attaque un autre pays, ils utilisent ces failles pour recouvrir d'abord le territoire de neige, avant de lancer l'assaut. »
 
 Une fois son explication terminée, Zhou Wutai agita sa main droite, ouvrant la porte de la boutique. Il tendit la main et saisit une boule de neige. Puis, sa main gauche traça un sceau et une sphère de feu apparut, dégageant d'intenses vagues de chaleur.
 
@@ -68,7 +68,7 @@ Tout en parlant, il pressa la boule de neige contre celle de feu. Le feu vacilla
 
 Wang Lin fut immédiatement surpris; ce n'était pas ce à quoi il s'attendait.
 
-« Cette neige ne fond pas! Une fois que tout le territoire de l'Alliance des Quatre Sectes sera recouvert par cette neige, au point de former une vaste plaine blanche, c'est alors que Xue Yue attaquera! » La voix de Zhou Wutai devint encore plus lugubre.
+« Cette neige ne fond pas! Une fois que tout le territoire de l'Alliance des Quatre Sectes sera recouvert par cette neige, au point de former une vaste plaine blanche, c'est alors que Xue Yu attaquera! » La voix de Zhou Wutai devint encore plus lugubre.
 
 Wang Lin resta pensif, mais ne dit mot.
 
@@ -78,4 +78,4 @@ Wang Lin le regarda et répondit lentement: « Je ne suis qu'un modeste cultivat
 
 Zhou Wutai eut un sourire amer. Il secoua la tête: « Frère Wang, ne te sous-estime pas. Avec ton niveau actuel, il ne te faut que quelques années de plus. Une fois que tu auras atteint le stade de la Formation de l'Âme, l'Alliance des Quatre Sectes aura gagné un nouveau maître de la Formation de l'Âme. C'est la raison principale de ma venue aujourd'hui. »
 
-Wang Lin réfléchit un instant, puis demanda soudainement: « Pourquoi les cultivateurs de Xue Yue déclenchent-ils une guerre contre l'Alliance des Quatre Sectes? »
+Wang Lin réfléchit un instant, puis demanda soudainement: « Pourquoi les cultivateurs de Xue Yu déclenchent-ils une guerre contre l'Alliance des Quatre Sectes? »

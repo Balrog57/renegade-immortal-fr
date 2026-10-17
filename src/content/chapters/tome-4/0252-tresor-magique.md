@@ -14,19 +14,19 @@ Lorsqu'il revint, son sac de rangement contenait plusieurs grands arbres qu'il a
 
 Il en retira l'écorce et les transforma en blocs de bois. Wang Lin commença alors à se remémorer son enfance, l'époque où son père lui enseignait l'art de la sculpture.
 
-Ces souvenirs remplirent progressivement son esprit. Wang Lin réfléchit longuement, puis saisit un grand bloc de bois carré. D'un geste léger de la main, il divisa le bloc en dix morceaux.
+Ces souvenirs remplirent progressivement son esprit. Wang Lin réfléchit longuement, puis saisit un grand bloc de bois carré. D'un geste léger de la main, il divisa le bloc en dix morceaux. Il en prit un ; un burin apparut dans sa main droite sans qu'on sache quand et, comme son père autrefois, il se mit à graver le bois coup après coup.
 
-Au fil de sa progression, tandis qu'il sculptait, il sembla retrouver ce qu'il avait perdu quatre cents ans auparavant. À chaque coup de burin, il paraissait retourner à son enfance, au temps où il vivait dans ce petit village.
+Au fil de sa progression, tandis qu'il sculptait, il sembla retrouver vaguement l'affection familiale disparue depuis quatre cents ans. À chaque coup de burin, il paraissait retourner à son enfance, au temps où il vivait dans ce petit village.
 
 À cet instant, l'énergie spirituelle dans le corps de Wang Lin se mit en mouvement. Elle s'imprégna profondément dans la statue qu'il façonnait.
 
 Le temps s'écoula et la nuit revint alors que Wang Lin reprenait ses esprits. Il regarda le bloc de bois qu'il tenait entre ses mains: il s'était transformé en une sculpture. C'était celle d'un homme d'âge mûr au sourire bienveillant.
 
-L'homme portait une robe grossière et ses mains étaient marquées par des rides profondes.
+L'homme portait une robe grossière et ses mains étaient couvertes de fines marques rugueuses.
 
-Bien que cette sculpture fût rudimentaire, elle semblait animée de vie. Des ondes d'énergie spirituelle s'en dégageaient. En fixant l'œuvre, Wang Lin sentit une douleur lui transpercer le cœur.
+Bien que cette sculpture fût rudimentaire, elle semblait animée de vie. Des ondes d'énergie spirituelle s'en dégageaient. En fixant l'œuvre, Wang Lin sentit la tristesse lui monter au cœur.
 
-Sa main droite caressa doucement la sculpture tandis qu'il murmurait: « Père, ton fils te regrette amèrement... »
+Sa main droite caressa doucement la sculpture tandis qu'il murmurait: « Père, ton fils pense à toi... il pense tant à toi... »
 
 Après une longue méditation, Wang Lin écarta la sculpture sur le côté. Il saisit un autre morceau de bois et, avec ferveur, recommença à sculpter, trait après trait.
 
@@ -36,7 +36,7 @@ Dès que le soleil se leva, la sculpture sur laquelle travaillait Wang Lin prit 
 
 Il plaça les deux sculptures côte à côte et poussa un long soupir avant de saisir un nouveau morceau de bois pour entamer une nouvelle œuvre.
 
-Le temps passa lentement. Wang Lin sculptait sans relâche, ne s'accordant de repos que lorsqu'il atteignait l'épuisement extrême.
+Le temps passa lentement. Wang Lin sculptait sans relâche, ne méditant un peu que lorsqu'il était extrêmement fatigué.
 
 En un clin d'œil, un mois s'était écoulé. Les objets dans la boutique de Wang Lin s'étaient multipliés. Les étagères le long des murs regorgeaient de sculptures qui semblaient vivantes: hommes et femmes, jeunes et vieillards, tous représentés dans des poses variées.
 
@@ -46,7 +46,7 @@ Durant ce mois, Wang Lin n'avait reçu aucun client, mais cela ne le dérangeait
 
 Un jour, Wang Lin tenait une sculpture inachevée entre ses mains. Pour une raison inconnue, celle-ci dégageait une aura primordiale. Si un cultivateur de la Mer des Démons l'avait vue, il l'aurait immédiatement reconnue comme étant celle d'un dragon.
 
-Ce dragon était la première bête spirituelle que Wang Lin avait rencontrée lors de ses compagnonnages avec Li Muwan.
+Ce dragon était la première bête spirituelle que Wang Lin avait rencontrée lorsqu'il se trouvait avec Li Muwan dans la Mer des Démons.
 
 Alors qu'il sculptait, la cloche sonna et la porte fut poussée. Un garçon à l'allure robuste scruta l'intérieur avec attention.
 
@@ -56,7 +56,7 @@ Wang Lin esquissa un sourire et posa son œuvre. Il prit une sculpture sur l'une
 
 Le garçon qui se tenait devant lui ressemblait étrangement à ce Wang Hao de l'époque.
 
-Une fois la sculpture reçue, le garçon poussa un cri de joie. Il la serra contre lui comme un trésor et s'exclama d'une voix claire: « Merci, oncle! Je viens de l'atelier de ferronnerie en face. Au revoir! » Sur ces mots, il courut hors de la boutique en criant: « Maman! Regarde! L'oncle m'a donné ça! »
+Une fois la sculpture reçue, le garçon poussa un cri de joie. Il la serra contre lui comme un trésor et s'exclama d'une voix claire: « Merci, oncle! Je viens de l'atelier de ferronnerie en face. Au revoir! » Sur ces mots, il courut hors de la boutique en criant: « Papa! Maman! Regardez! L'oncle m'a donné ça! »
 
 Wang Lin se leva et se dirigea vers l'entrée. Il vit un homme et une femme sortir de l'échoppe d'en face. Les deux parents regardaient le garçon avec tendresse. L'homme prit la sculpture et ses yeux s'illuminèrent soudainement. Il s'approcha de Wang Lin en tenant l'objet et dit: « Jeune frère, les enfants ne savent pas apprécier la valeur des choses. Combien demandez-vous pour cette sculpture? »
 
@@ -68,13 +68,13 @@ Wang Lin sourit et acquiesça.
 
 L'homme reprit: « Jeune frère, si cela ne vous dérange pas, venez manger avec nous. Je prépare un vin de fruits maison bien meilleur que celui des restaurants. »
 
-Un sentiment étrange envahit le cœur de Wang Lin. C'était une sensation qu'il n'avait plus éprouvée depuis quatre cents ans. Après une courte hésitation, il accepta.
+Un sentiment étrange envahit le cœur de Wang Lin. C'était une sensation qu'il n'avait jamais éprouvée en quatre cents ans. Après une courte hésitation, il accepta.
 
 La mère du garçon était une femme d'une grande bonté. Bien que jeune, elle faisait preuve d'une patience et d'une douceur infinies. À les voir, Wang Lin comprit qu'il s'agissait d'une famille très heureuse. Leur enfant était adorable et les époux s'aimaient profondément.
 
 Dans l'atelier de ferronnerie, une table carrée était dressée avec quelques plats faits maison. Bien que Wang Lin n'ait plus besoin de se nourrir, il prit ses baguettes et mangea quelques bouchées.
 
-Tout en savourant le vin de fruits dont l'homme était si fier et ce repas chaleureux, l'esprit de Wang Lin devint plus calme qu'il ne l'avait été durant son voyage avec la caravane. L'énergie spirituelle dans son corps se mit à circuler d'une manière totalement inédite.
+Tout en savourant le vin de fruits dont l'homme était si fier et ce repas chaleureux, l'esprit de Wang Lin devint plus calme qu'il ne l'avait été durant son voyage avec la caravane. L'énergie spirituelle dans son corps se mit à circuler à une vitesse sans précédent.
 
 Ce vin était effectivement excellent, laissant une délicieuse persistance en bouche.
 
@@ -86,4 +86,4 @@ D'immenses quantités d'énergie spirituelle étaient concentrées dans chaque �
 
 Car la puissance de l'énergie spirituelle contenue dans ces sculptures n'était pas inférieure à celle de certains trésors magiques de bas grade. Certaines d'entre elles égalaient même la puissance de trésors magiques de qualité moyenne.
 
-Comment pouvait-on encore parler de simples sculptures sur bois? Il s'agissait manifestement de trésors magiques façonnés dans du bois mort.
+Comment pouvait-on encore parler de simples sculptures sur bois? Il s'agissait manifestement de trésors magiques de cultivateur, façonnés dans du bois pourri transmué en prodige.

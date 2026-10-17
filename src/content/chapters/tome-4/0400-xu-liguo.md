@@ -60,7 +60,7 @@ Se remémorant cela, il dit rapidement à Wang Lin: « Maître, ce vieux sac d'o
 
 Wang Lin acquiesça. Il se déplaça comme l'éclair, l'épée céleste à la main, pour poursuivre l'ancêtre du Clan des Démons Géants.
 
-L'ancêtre continuait de rugir. La majeure partie de sa rage était dirigée contre Xu Liguo. Durant ces deux dernières années, il avait traité ce dernier avec égard et lui avait même offert l'âme scellée de la convoitise, mais au final, Xu Liguo l'avait tout de même trahi.
+L'ancêtre continuait de rugir. La majeure partie de sa rage était dirigée contre Xu Liguo. Durant ces deux dernières années, il avait traité ce dernier avec égard et lui avait même offert l'âme scellée de la luxure, mais au final, Xu Liguo l'avait tout de même trahi.
 
 « Xu Liguo! Ce vieil homme va absolument te raffiner vivant! » Après ce cri, l'ancêtre accéléra encore davantage sa fuite.
 
@@ -96,9 +96,9 @@ Toutes les lances explosèrent dans un unique retentissement, créant une onde d
 
 Alors que l'onde approchait de Wang Lin, un drapeau d'âme s'élança. Ce n'était pas le drapeau aux un milliard d'âmes, mais le drapeau des mille âmes que Wang Lin avait lui-même raffiné. Cependant, avec Li Yuanfeng comme âme principale, il était devenu extrêmement puissant.
 
-D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envolèrent, menés par le fragment de l'âme de Li Yuanfeng. Les souvenirs de ce dernier avaient été effacés depuis longtemps par Wang Lin; il n'était désormais qu'une âme primaire obéissant aux ordres du propriétaire du drapeau.
+D'un mouvement de la bannière, plusieurs milliers de fragments d'âmes s'envolèrent, menés par le fragment de l'âme de Li Yuanfeng. Les souvenirs de ce dernier avaient été effacés depuis longtemps par Wang Lin; il n'était désormais que l'âme principale du drapeau, n'agissant que par instinct.
 
-« Détruisez! » Les yeux de Wang Lin devinrent glacials. Plus d'un millier de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
+« Détruisez! » Les yeux de Wang Lin devinrent glacials. Les milliers de fragments d'âmes poussèrent des gémissements fantomatiques. Sous le commandement de Li Yuanfeng, ils chargèrent tous la bête de flammes noires qui venait de s'extraire de l'onde de choc.
 
 Une fois cela fait, Wang Lin tourna son regard vers l'ancêtre du Clan des Démons Géants. Il ne croyait pas qu'un cultivateur au stade de la Transformation de l'Âme ne possède que ces quelques techniques. L'ancêtre devait cacher un atout majeur, et il y avait forcément une raison pour qu'il s'arrête en ce lieu précis.
 
@@ -114,6 +114,6 @@ L'ancêtre afficha un respect qu'il n'avait jamais montré auparavant. Il tendit
 
 Instantanément, des éclairs rouges jaillirent de l'arme et enveloppèrent le corps de l'ancêtre. Une aura puissante, totalement inédite jusqu'alors, émana de lui.
 
-« Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour forcer l'entrée de la Nécropole Immortelle. Là-bas, il terrassa deux Sauvages à neuf feuilles pour garantir au Clan des Démons Géants le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
+« Wang Lin, lorsque mon clan s'est établi sur cette planète, notre ancêtre fondateur utilisa cette hache pour fendre le ciel et la terre et se rendre chez le Clan de l'Immortel Délaissé. Là-bas, il tua deux chamans à neuf feuilles pour garantir au Clan des Démons Géants le droit de vivre ici! Aujourd'hui, bien que l'ancêtre fondateur soit toujours porté disparu, sa hache est toujours là! »
 
 Wang Lin observa la hache rouge dans la main de l'ancêtre. Il ne put s'empêcher de penser au corps qui reposait sous la Secte des Cadavres, à Zhao.

@@ -54,7 +54,7 @@ Wang Lin dit: « J'ai trouvé cet individu qui me suivait après mon entrée dan
 
 Le vieux Hu s'avança et pointa le front de la tête. Le tatouage commença à se concentrer lentement sur le front jusqu'à former l'image d'une demi-feuille.
 
-Le visage du vieux Hu était sombre lorsqu'il déclara: « Ce n'est pas un sauvage, mais un cultivateur qui a été raffiné par les sauvages. »
+Le visage du vieux Hu était sombre lorsqu'il déclara: « Ce n'est pas un sauvage, mais un cultivateur parasité et transformé par les sauvages. »
 
 « Oh? » Wang Lin observa la tête.
 
@@ -62,7 +62,7 @@ Xu Luo hésita avant de demander: « Ancêtre, comment le savez-vous? Est-ce à 
 
 Non seulement lui, mais tous les autres, à l'exception de la femme au voile blanc, affichaient un air confus.
 
-Le vieux Hu, d'un ton sérieux, pointa la feuille sur le front du cadavre: « Je n'ai jamais vu de véritable sauvage, mais j'ai lu des textes anciens stipulant que seuls ceux possédant au moins trois feuilles ont un sang assez pur pour être de véritables sauvages. Les autres sont issus du raffinage de cultivateurs. Cependant, même ce genre de sauvages ne devrait pas apparaître ici. Ils ne devraient commencer à se manifester qu'au deuxième étage. »
+Le vieux Hu, d'un ton sérieux, pointa la feuille sur le front du cadavre: « Je n'ai jamais vu de véritable sauvage, mais j'ai lu des textes anciens stipulant que seuls ceux possédant au moins trois feuilles ont un sang assez pur pour être de véritables sauvages. Les autres sont issus de cultivateurs parasités et transformés. Cependant, même ce genre de sauvages ne devrait pas apparaître ici. Ils ne devraient commencer à se manifester qu'au deuxième étage. »
 
 Une pression invisible pesait sur le cœur de chacun alors qu'ils fixaient la tête au sol.
 
@@ -92,9 +92,9 @@ Seuls Wang Lin, le vieux Hu et le vieil homme en robe noire demeuraient calmes.
 
 Quant à la femme au voile blanc, elle semblait être dans un état de transe depuis son arrivée, comme si elle se remémorait des souvenirs enfouis.
 
-Les sept voyageurs volèrent ainsi un certain temps avant que les yeux de Wang Lin ne s'illuminent soudainement. Il perçut quelque chose derrière eux: une lueur sombre les poursuivait. Lorsque cette lumière se rapprocha, elle se dissipa pour laisser place à un sauvage aux cheveux noirs, vêtu d'une peau de bête.
+Les sept voyageurs volèrent ainsi un certain temps avant que les yeux de Wang Lin ne s'illuminent soudainement. Il perçut quelque chose derrière eux: une lueur sombre les poursuivait. Lorsque cette lumière se rapprocha, elle se dissipa pour laisser place à un sauvage aux cheveux en désordre, vêtu d'une simple peau de bête.
 
-Des marques noires striaient les bras et les jambes du sauvage. Celui-ci tendit la main pour tenter de saisir Xu Luo.
+Des marques noires striaient les bras et les jambes du sauvage. Ses yeux brillaient d'une lueur rouge et il tendit la main pour tenter de saisir Xu Luo.
 
 Le visage de Xu Luo se décomposa. Il ouvrit la bouche et cracha un rayon de lumière contenant une épée volante qui fonça sur l'assaillant.
 
@@ -128,7 +128,7 @@ Pour Wang Lin, ces tatouages ressemblaient à des runes.
 
 Après avoir tué ce sauvage, Wang Lin découvrit deux feuilles sur son front. La force de cet individu équivalait à celle d'un cultivateur du stade avancé de la Formation du Noyau.
 
-Le deuxième étage du Cimetière des Immointels n'était guère différent du premier; l'obscurité y régnait toujours. Cependant, une aura s'en dégageait, provoquant un sentiment d'irritation profonde.
+Le deuxième étage du Cimetière des Immortels n'était guère différent du premier; l'obscurité y régnait toujours. Cependant, une aura s'en dégageait, provoquant un sentiment d'irritation profonde.
 
 Cette aura n'affectait pas Wang Lin, mais elle pesait lourdement sur Xu Luo et ses compagnons.
 
@@ -140,7 +140,7 @@ Au deuxième étage, ils apercevaient occasionnellement des ossements ou même d
 
 Alors qu'ils pénétraient dans ce niveau, Wang Lin fut surpris par une lueur sombre apparue à une trentaine de mètres d'eux. La lumière ne chercha pas à s'approcher, mais se mua en un sauvage.
 
-Ce dernier était très différent de ceux du premier étage. Plus d'un quart de son corps était couvert de tatouages noirs et floraux. Ses yeux n'étaient pas rouges mais d'une grande clarté; pourtant, si l'on regardait de près, on y percevait une lueur mystérieuse.
+Ce dernier était très différent de ceux du premier étage. Un quart de son corps était couvert de tatouages noirs et floraux. Ses yeux n'étaient pas rouges mais d'une grande clarté; pourtant, si l'on regardait de près, on y percevait une lueur mystérieuse.
 
 Ce sauvage n'appartenait pas au même type que ceux rencontrés précédemment. Les sauvages du premier étage, même celui à deux feuilles, avaient les yeux rouges et étaient totalement démentiels; ils attaquaient sans égard pour la différence de puissance.
 

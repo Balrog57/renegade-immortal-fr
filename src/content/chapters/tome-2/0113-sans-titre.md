@@ -8,27 +8,27 @@ slug: cultivation-vers-letablissement
 ---
 Situ Nan lui avait expliqué que durant l'étape de la Transformation de l'Âme, l'Âme Naissante se transforme et gagne en volume. Cependant, le corps ne grandit pas pour autant; l'Âme Naissante n'atteint cette taille que lorsqu'elle se trouve hors du corps.
 
-Wang Lin, assis en tailleur sur le sol, sortit sa calebasse, en prit une longue gorgée et commença à cultiver pour progresser vers le stade intermédiaire de l'Établissement des Fondations. S'il avait choisi cet endroit, c'était parce que Situ Nan lui avait affirmé que cela l'aiderait à récupérer.
+Wang Lin, assis en tailleur sur le sol, sortit sa gourde spirituelle, en prit une longue gorgée et commença à cultiver pour progresser vers le stade intermédiaire de l'Établissement des Fondations. S'il avait choisi cet endroit, c'était parce que Situ Nan lui avait affirmé que cela l'aiderait à récupérer.
 
-Le temps s'écoula lentement et, en un clin d'œil, l'échéance pour participer au champ de bataille étranger approcha. De nombreux cultivateurs étaient arrivés aux abords de la vallée de Jue Ming depuis un mois. Ils avaient tous élu les meilleurs emplacements pour surveiller l'unique issue de la vallée.
+Le temps s'écoula lentement et, en un clin d'œil, l'échéance pour participer au champ de bataille étranger approcha. De nombreux cultivateurs étaient arrivés aux abords de la Vallée Jue Ming depuis un mois. Certains avaient choisi les meilleurs emplacements pour surveiller, le regard brillant, l'unique issue de la vallée; d'autres flânaient dans les marchés des environs.
 
-À mesure que les effectifs augmentaient, les environs de la vallée de Jue Ming devenaient de plus en plus animés. Bien entendu, dès que des individus porteurs de griefs se croisaient, de violents affrontements éclataient.
+À mesure que les effectifs augmentaient, les environs de la Vallée Jue Ming devenaient de plus en plus animés. Bien entendu, dès que des individus porteurs de griefs se croisaient, de violents affrontements éclataient.
 
-Le champ de bataille étranger n'ouvrant ses portes que tous les cent ans, des bâtiments avaient été érigés dans un rayon de 500 kilomètres autour de la vallée de Jue Ming. Il faut dire que l'ouverture du champ de bataille rassemblait tous les plus grands cultivateurs de Zhao.
+Le champ de bataille étranger n'ouvrant ses portes que tous les cent ans, de nombreux marchés avaient vu le jour dans un rayon de 500 kilomètres autour de la Vallée Jue Ming. Il faut dire que l'ouverture du champ de bataille rassemblait la plus grande partie des cultivateurs de Zhao.
 
-À l'approche de l'événement, ces édifices se transformaient en la plus grande place de marché de Zhao. Tous les cultivateurs du royaume s'y rejoignaient, rendant les lieux extrêmement vibrants. On y trouvait une multitude de matériaux et de trésors magiques rares.
+Ces marchés devenaient alors la plus grande place d'échanges de Zhao, tenue tous les cent ans. Les cultivateurs de toutes les sectes s'y pressaient sans discontinuer, rendant les lieux extrêmement vibrants. On y trouvait une multitude de matériaux et de trésors magiques rares.
 
-Ce jour-là, d'innombrables cultivateurs s'étaient rassemblés devant la vallée de Jue Ming, venus de toutes les sectes de Zhao. Hormis les très grandes sectes qui disposaient de leurs propres zones, les autres formaient des groupes compacts. Le reste des gens appartenait à de petites familles, de petites sectes ou étaient des cultivateurs indépendants.
+Ce jour-là, d'innombrables cultivateurs s'étaient rassemblés devant la Vallée Jue Ming, venus de toutes les sectes de Zhao. Hormis les très grandes sectes qui disposaient de leurs propres zones, les autres formaient des groupes compacts. Le reste des gens appartenait à de petites familles, de petites sectes ou étaient des cultivateurs indépendants.
 
-Ces petites lignées et ces solitaires n'avaient pas le droit d'entrer dans le champ de bataille étranger. Ils se présentaient là dans l'espoir de profiter de l'occasion: chaque fois que le champ de bataille s'ouvrait, une immense quantité d'énergie spirituelle s'en échappait. En absorber ne serait-ce qu'un peu équivalait à plusieurs fois une journée ordinaire de culture.
+Ces petites lignées et ces solitaires n'avaient pas le droit d'entrer dans le champ de bataille étranger. Ils venaient seulement pour assister à l'événement: on racontait que chaque fois que le champ de bataille s'ouvrait, une immense quantité d'énergie spirituelle s'en échappait. En absorber ne serait-ce qu'un peu équivalait à plusieurs fois une journée ordinaire de culture.
 
-Voyant que la vallée de Jue Ming était sur le point de s'ouvrir, chacun trouva un endroit pour attendre l'instant fatidique.
+Voyant que la Vallée Jue Ming était sur le point de s'ouvrir, chacun trouva un endroit pour attendre l'instant fatidique.
 
 À midi ce jour-là, le ciel était d'un bleu limpide et le soleil trônait au zénith. La température montait progressivement. Malgré la chaleur accablante, aucun des cultivateurs présents ne semblait s'en soucier, car tous les regards étaient rivés sur l'issue de la vallée.
 
-Les cultivateurs expérimentés savaient que la vallée de Jue Ming s'ouvrirait précisément à midi.
+Les cultivateurs expérimentés savaient que la Vallée Jue Ming s'ouvrirait précisément à midi.
 
-Si l'on observait la vallée de Jue Ming depuis le ciel, on remarquerait qu'elle avait la forme d'une calebasse. L'embouchure de celle-ci constituait l'unique entrée. De chaque côté de l'ouverture se dressaient deux montagnes imposantes, et une formation octogonale gardait l'entrée.
+Si l'on observait la Vallée Jue Ming depuis le ciel, on remarquerait qu'elle avait la forme d'une calebasse. L'embouchure de celle-ci constituait l'unique sortie. Là se dressaient deux hauts pics, entre lesquels un sentier menait, au bout, à une immense formation octogonale.
 
 Soudain, la formation commença à briller.
 
@@ -36,29 +36,29 @@ Non loin de l'entrée, les cultivateurs au stade de l'Âme Naissante des sectes 
 
 L'éclat de la formation devint de plus en plus intense, puis huit silhouettes sortirent lentement.
 
-Un sentiment de déception envahit le regard de Teng Huayuan; de sa main droite, il sortit un drapeau. Il le serra fermement, et l'une des âmes qui y était logée disparut.
+Un sentiment de déception envahit le regard de Teng Huayuan; de sa main droite, il sortit un drapeau noir. Il le serra fermement, et l'une des âmes qui y étaient scellées fut anéantie.
 
-En voyant ces huit personnes émerger, les cultivateurs de la secte Jue Ming commencèrent à pointer du doigt en discutant.
+En voyant ces huit personnes émerger, les cultivateurs de Zhao présents hors de la Vallée Jue Ming commencèrent à pointer du doigt en discutant.
 
 « Ils sont sortis! Regardez, ils sont sortis! Normalement, les premiers à sortir sont ceux qui ont perdu leur jeton. Je me demande de quelle secte il s'agit. »
 
 « Quoi? Pourquoi y a-t-il autant de monde? Habituellement, la première secte qui en sort est celle qui compte le moins de membres. »
 
-« Ils sont là! Je vois Zhou You. Ce sont les disciples de la secte Piao Miao! »
+« Ils sont là! Je vois Zhou You. Ce sont les disciples de la Secte Piao Miao! »
 
-« La secte Piao Miao a perdu son jeton la dernière fois et elle le perd encore aujourd'hui... Il semble qu'une des plus grandes sectes orthodoxes ne soit pas si redoutable. Si ma secte Fu Tian y était allée, nous aurions probablement été plus performants. »
+« La Secte Piao Miao a perdu son jeton la dernière fois et elle le perd encore aujourd'hui... Il semble qu'une des plus grandes sectes orthodoxes ne soit pas si redoutable. Si ma Secte Fu Tian y était allée, nous aurions probablement été plus performants. »
 
-« Frère Zhang, l'homme le plus fort de ta secte n'est qu'au stade initial de la Formation du Noyau. La secte Piao Miao peut envoyer n'importe quel ancêtre et il raserait ta lignée. À mon avis, si la secte Piao Miao a échoué, c'est parce que les disciples des sectes démoniaques sont trop puissants. »
+« Frère Zhang, l'homme le plus fort de ta secte n'est qu'au stade initial de la Formation du Noyau. La Secte Piao Miao peut envoyer n'importe quel ancêtre et il raserait ta lignée. À mon avis, si la Secte Piao Miao a échoué, c'est parce que les disciples des sectes démoniaques sont trop puissants. »
 
-Parmi les huit meilleures sectes, à l'exception de la secte Jie Mie — dont le cultivateur d'Âme Naissante était décédé, entraînant leur disqualification —, tous les ancêtres au stade de l'Âme Naissante des sept autres sectes étaient présents.
+Parmi les huit grandes sectes des deux camps, à l'exception de la Secte Jie Mie — dont le cultivateur d'Âme Naissante était décédé, de sorte qu'elle n'avait obtenu aucun jeton et n'avait pas participé —, tous les ancêtres au stade de l'Âme Naissante des sept autres sectes étaient présents.
 
-Actuellement, le chef de la secte Piao Miao, Xin Hai, affichait un visage sombre tout en fixant silencieusement l'entrée.
+Actuellement, l'ancêtre de la Secte Piao Miao, Xin Hai, affichait un visage sombre tout en fixant silencieusement l'entrée.
 
-Les huit membres de la secte Piao Miao sortirent avec des expressions étranges. En voyant la foule et en entendant les rumeurs, leurs visages devinrent rouges de honte alors qu'ils s'avançaient, tête basse, vers Xin Hai.
+Les huit membres de la Secte Piao Miao sortirent avec des expressions étranges. En voyant la foule et en entendant les rumeurs, leurs visages devinrent rouges de honte alors qu'ils s'avançaient, tête basse, vers Xin Hai.
 
 Xin Hai faisait de son mieux pour contenir sa colère. Il avait consenti d'énormes sacrifices pour obtenir le droit d'entrer dans le champ de bataille étranger. Il avait envoyé un total de 25 disciples: trois au stade avancé et huit au stade intermédiaire de l'Établissement des Fondations. Bien que les autres disciples fussent tous au stade initial, il leur avait fourni de nombreux trésors magiques. Il était résolu à réussir cette fois, quoi qu'il en coûte, mais le constat était amer: sur 25 personnes, seuls huit avaient survécu.
 
-Tandis que Xin Hai observait ses huit disciples, l'ancêtre de la secte Yuan Tian, nommé Shangguan Yun, se tenait à proximité et se gaussait de lui. Il lança: « Frère Xin, ce n'est pas si grave d'avoir échoué à entrer dans le champ de bataille. Le nettoyage à l'intérieur est extrêmement périlleux. Normalement, un seul disciple sur dix en ressort vivant. Désormais, tu n'as plus à te soucier de tes disciples. Il ne faut attendre que cent ans pour le prochain cycle. »
+Tandis que Xin Hai observait ses huit disciples, l'ancêtre de la Secte Yuan Tian, nommé Shangguan Yun, se tenait à proximité et se gaussait de lui. Il lança: « Frère Xin, ce n'est pas si grave d'avoir échoué à entrer dans le champ de bataille. Le nettoyage à l'intérieur est extrêmement périlleux. Normalement, un seul disciple sur dix en ressort vivant. Désormais, tu n'as plus à te soucier de tes disciples. Il ne faut attendre que cent ans pour le prochain cycle. »
 
 Xin Hai ricana: « Frère Shangguan, inutile d'être sarcastique. Puisque j'ai perdu mon pari, je ne reviendrai pas sur notre accord. » Sur ces mots, il regarda ses huit disciples et demanda d'un ton lugubre: « Votre frère aîné est mort? »
 
@@ -70,8 +70,8 @@ Shangguan Yun ricana intérieurement, mais afficha une mine compatissante en sec
 
 Le visage de Xin Hai s'assombrit: « Tant de morts... Bien! Quelle secte les a massacrés? »
 
-Le premier disciple à genoux hésita. Xin Hai fit un geste de la main et une barrière enveloppa les disciples de la secte Piao Miao. Shangguan Yun leva la tête, moqueur en pensée.
+Le premier disciple à genoux hésita. Xin Hai fit un geste de la main et une barrière enveloppa les disciples de la Secte Piao Miao. Shangguan Yun leva la tête, moqueur en pensée.
 
-Après avoir bloqué le Sens Divin des autres, Xin Hai fit signe au disciple de parler, et celui-ci finit par tout déballer. En écoutant le récit, Xin Hai fut stupéfait et son regard se glaça. Après un silence, il laissa échapper un reniflement froid: « Restez derrière moi. Je dois voir qui est vraiment cet individu. » Sur ce, d'un revers de main, il fit disparaître la barrière.
+Après avoir bloqué le Sens Divin des autres, Xin Hai fit signe au disciple de parler, et celui-ci ouvrit la bouche et lui transmit tout rapidement par transmission vocale. En écoutant le récit, Xin Hai fut stupéfait et son regard se glaça. Après un silence, il laissa échapper un reniflement froid: « Restez derrière moi. Je dois voir qui est vraiment cet individu. » Sur ce, d'un revers de main, il fit disparaître la barrière.
 
-Shangguan Yun, sur le côté, demanda: « Pourquoi la cultivatrice Xu Mei n'est-elle pas là? »
+Shangguan Yun, sur le côté, demanda: « Pourquoi le compagnon de culture Xu Mei n'est-il pas là? »

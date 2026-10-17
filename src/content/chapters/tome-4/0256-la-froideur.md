@@ -24,7 +24,7 @@ Cette chaleur, au-delà de la simple sensation physique, réchauffait également
 
 Lentement, une tristesse envahit le regard de Wang Lin. Le froid apporté par la neige n'était rien pour lui, mais à cet instant précis, en voyant toutes les lumières briller dans les boutiques alors que la sienne était la seule plongée dans l'obscurité, une pointe de froideur s'installa dans son cœur.
 
-Ce froid n'était de rien qu'un feu ou une technique ne pourraient dissiper. Cette froideur provenait de la compréhension des cieux et était une étape indispensable pour éprouver la vie.
+Ce froid, aucun feu ne pouvait le chasser et aucune technique ne pouvait le combler. Cette froideur provenait de la compréhension des cieux et était une étape indispensable pour éprouver la vie.
 
 Pour devenir un immortel, il faut d'abord devenir mortel.
 
@@ -34,7 +34,7 @@ Cette solitude n'était rien comparée à ce qui l'attendait des années plus ta
 
 Wang Lin se mit à songer. Après un long moment, il se leva. Il semblait avoir vieilli de plusieurs années. Il ramassa lentement sa chaise, retourna dans sa boutique et ferma doucement la porte.
 
-Après un long moment, un feu s'alluma à l'intérieur. Bien que ce feu ressemblât à ceux des autres boutiques, celui-ci paraissait vide, comme si une profonde mélancolie s'y cachait.
+Après un long moment, un feu s'alluma à l'intérieur. Bien que ce feu ressemblât à ceux des autres boutiques, celui-ci n'était qu'une apparence, car il cachait en lui une profonde solitude.
 
 Wang Lin s'assit près de l'âtre. Il faisait très chaud dans la boutique, mais son cœur devint plus froid encore. Après avoir longuement médité, il sortit une sculpture en bois et la posa à ses côtés.
 
@@ -56,9 +56,9 @@ Mais ce sentiment différait de celui d'autrefois. Pour devenir un immortel, il 
 
 Chaque cultivateur de la Formation de l'Âme était puissant non seulement grâce à sa culture, mais aussi parce que son cœur abritait une infime parcelle d'émotion au plus profond de lui-même. Ils utilisaient ce fragment d'émotion pour franchir le stade de l'Âme Naissante et atteindre celui de la Formation de l'Âme.
 
-C'est grâce à cette émotion que Wang Lin ne rencontra aucune difficulté à devenir mortel et commença progressivement à ressentir la vie telle qu'elle est.
+C'est grâce à cette émotion que Wang Lin ne rencontra aucune difficulté à devenir mortel et commença progressivement à ressentir ce que ressentent les mortels.
 
-À cet instant, il était plongé dans ses pensées sur ses parents, vivant silencieusement ce sentiment. L'énergie spirituelle dans son corps commença à refluer sauvagement. Cette énergie s'échappa peu à peu de lui. Des éclats d'énergie spirituelle jaillirent de toutes les sculptures de la pièce et se mirent à tourbillonner avec l'aura de Wang Lin.
+À cet instant, il était plongé dans ses pensées sur ses parents, vivant silencieusement ce sentiment. L'énergie spirituelle dans son corps se remit à tourbillonner frénétiquement. Ce tourbillon s'échappa peu à peu de lui. Des éclats d'énergie spirituelle jaillirent de toutes les sculptures de la pièce et se mirent à tourbillonner avec l'aura de Wang Lin.
 
 Peu à peu, le vortex d'énergie spirituelle tourna plus vite encore et s'étendit au-delà de la boutique.
 
@@ -90,7 +90,7 @@ Les yeux de Wang Lin brillèrent de nostalgie et il répondit lentement: « C'es
 
 Da Niu fut frappé par la réponse et cessa d'interroger son hôte. Il s'approcha du panier et l'ouvrit. À l'intérieur se trouvaient trois assiettes de mets délicats et deux cruches de vin de fruits.
 
-Wang Lin jeta un coup d'œil et sourit discrètement en regardant le père de Da Niu. Il connaissait cet homme depuis longtemps, mais c'était la première fois qu'il le voyait ainsi. Il était évident que le père de Da Niu venait solliciter son aide, sans oser l'exprimer.
+Wang Lin jeta un coup d'œil et sourit discrètement en regardant le père de Da Niu. Depuis trois ans, il fréquentait souvent cet homme franc, mais c'était la première fois qu'il le voyait ainsi. Il était évident que le père de Da Niu venait solliciter son aide, sans oser l'exprimer.
 
 Wang Lin dit: « Frère Ceng, si vous avez quelque chose à dire, dites-le simplement. »
 
@@ -102,7 +102,7 @@ Le visage du père de Da Niu devint brusquement rouge et il réprimanda son fils
 
 Da Niu tira la langue et lança: « Puisque papa refuse de parler, je vais le faire. Maman veut acheter la boutique d'à côté pour agrandir la nôtre, mais elle n'a pas assez d'argent. »
 
-Le père de Da Niu soupira. Il regarda Wang Lin et dit avec impuissance: « Frère Wang, ma femme trouve que notre commerce est trop étroit et qu'il limite nos activités. Elle a vu que la boutique du vieux Li était à louer et elle veut l'occuper immédiatement. »
+Le père de Da Niu soupira. Il regarda Wang Lin et dit avec impuissance: « Frère Wang, votre belle-sœur répète toujours que notre boutique est trop petite et que, pour cette raison, peu de gens viennent acheter des outils en fer. Elle a vu que la boutique du vieux Li était à louer et nous avons songé à la prendre. »
 
 Wang Lin hocha sobrement la tête. Il prit la cruche de vin dans le panier, en but une gorgée, puis demanda: « De combien avez-vous besoin? »
 
@@ -110,11 +110,11 @@ Le père de Da Niu hésita encore: « La boutique est assez grande et nous devon
 
 Da Niu fit la moue et murmura: « Maman a clairement dit 80 pièces d'argent... » Avant qu'il n'ait pu finir, son père lui lança un nouveau regard noir.
 
-Wang Lin acquiesça. Sans dire un mot, il se leva et se rendit dans la pièce arrière. Il y trouva un panier rempli d'or et d'argent. Il prit négligemment quelques pièces d'or et les déposa devant le père de Da Niu.
+Wang Lin acquiesça. Sans dire un mot, il se leva et se rendit dans la pièce arrière. Il y trouva un panier rempli d'or et d'argent. Il prit négligemment un morceau d'or et le déposa devant le père de Da Niu.
 
-En voyant l'or, le père de Da Niu sursauta et s'exclama: « Je n'ai pas besoin de tant! Frère Wang, reprenez vite cela. Je ne veux emprunter que 30 pièces d'argent. » De son point de vue, il y avait au moins dix pièces d'or devant lui, bien plus que nécessaire.
+En voyant l'or, le père de Da Niu sursauta et s'exclama: « Je n'ai pas besoin de tant! Frère Wang, reprenez vite cela. Je ne veux emprunter que 30 pièces d'argent. » De son point de vue, ce morceau d'or faisait au moins dix pièces d'or, bien plus que nécessaire.
 
-Wang Lin reprit la cruche et sourit: « Frère Ceng, je ne vous prête pas cet argent. C'est le prix du vin. Désormais, j'aimerais acheter une cruche de votre vin de fruits chaque jour. Cet argent pour dix ans de vin en vaut la peine. »
+Wang Lin reprit la cruche et sourit: « Frère Ceng, je ne vous prête pas cet argent. C'est le prix du vin. Désormais, j'aimerais acheter une cruche de votre vin de fruits chaque jour. Votre vin de fruits n'est pas mauvais, et l'argent de dix ans de vin, cela en vaut la peine. »
 
 Le père de Da Niu marqua un temps d'arrêt, le visage illuminé par l'excitation. Il dit: « Frère Wang, ceci... »
 
@@ -128,4 +128,4 @@ Cette nuit-là, le père de Da Niu but énormément. Deux cruches furent manifes
 
 Finalement, le père de Da Niu s'effondra sous l'effet de l'alcool, mais sa main serrait fermement l'or tandis que Da Niu le raccompagnait.
 
-Avant de partir, Da Niu glissa à l'oreille de Wang Lin: « Oncle Wang, nous avons énormément de ce vin. Mon père interdit de le dire, mais en vérité, il y a de grandes jarres dans notre cave, et on dit qu'il y en a encore d'autres enfouies très profondément. Si mon père ne refusait pas de vendre la production, maman ne l'aurait pas envoyé ici pour emprunter de l'argent. »
+Avant de partir, Da Niu glissa à l'oreille de Wang Lin: « Oncle Wang, nous avons énormément de ce vin. Mon père interdit de le dire, mais en vérité, il y a plusieurs grandes jarres dans notre cave, héritées de nos ancêtres, et on dit qu'il y en a encore d'autres enfouies très profondément. Si mon père ne refusait pas catégoriquement de vendre ce vin, maman ne l'aurait pas envoyé ici pour emprunter de l'argent. »

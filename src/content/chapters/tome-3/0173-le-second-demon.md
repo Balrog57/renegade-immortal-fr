@@ -6,41 +6,41 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 173 - The second devil
 slug: le-second-demon
 ---
-Wang Lin ne souhaitait pas affronter tous ces ennemis d'un seul coup; il voulait les forcer à se disperser. En effet, sous la pluie d'épées, les petites bêtes se séparèrent une fois de plus. Wang Lin s'engouffra dans les interstices laissés par les créatures et atteignit l'extérieur de la tour. Il s'arrêta devant la porte et se retourna pour récupérer toutes les épées volantes qui revenaient vers lui.
+Wang Lin ne souhaitait pas affronter tous ces ennemis d'un seul coup; il voulait les forcer à se disperser. En effet, sous la pluie d'épées, les petites bêtes se séparèrent une fois de plus. Wang Lin s'engouffra dans les interstices laissés par les créatures et atteignit l'extérieur de la tour. Il s'arrêta devant la porte, et les centaines d'épées volantes firent un tour en l'air avant d'être toutes rangées dans son sac de rangement.
 
-Simultanément, il rappela le démon. Ce dernier était trop occupé à dévorer les sens divins des petites créatures et ignorait totalement Wang Lin. Un ricanement glacial s'échappa de la gorge de Wang Lin tandis que son Sens Divin du Royaume Ji se déployait.
+Simultanément, il rappela le démon. Ce dernier était trop occupé à dévorer les sens divins des petites créatures et ignorait totalement Wang Lin. Wang Lin laissa échapper un grognement froid tandis que le Sens Divin du Royaume Ji fulgurait dans ses yeux.
 
-Lorsque ce bruit atteignit les oreilles du démon, il en eut un frisson de terreur. Il n'osa plus continuer à dévorer les sens divins; il reforma son corps à partir du nuage de fumée noire et pénétra dans la tour aux côtés de Wang Lin. Tout en flottant autour de lui, il se sentit lésé. Il lança un dernier regard convoité sur les sens divins de ces bêtes avant de retourner dans le tendon de dragon.
+Lorsque ce bruit atteignit les oreilles du démon, il en eut un frisson de terreur. Il n'osa plus continuer à dévorer les sens divins; il reforma son corps à partir du nuage de fumée noire et pénétra dans la tour aux côtés de Wang Lin. Il flottait à ses côtés, plein de rancœur, et regardait avidement les sens divins de ces bêtes se disperser pour regagner chacun leur corps.
 
 Il ne comprenait pas ce qui pouvait passer par l'esprit de ce monstre pour laisser tous ces ennemis en vie et lui ordonner de revenir.
 
 L'expression de Wang Lin était extrêmement grave alors qu'il observait les petites créatures depuis l'intérieur de la tour noire. S'il avait empêché le démon de toutes les dévorer, c'était pour une raison précise. Après réflexion, il conclut que ces petites créatures se rassemblaient pour former ces immenses tornades. L'élément le plus abondant en ce lieu était justement ces tourbillons noirs.
 
-Cela signifiait qu'il y avait virtuellement un nombre illimité de ces petites créatures. Leur principal mode d'attaque reposait sur le sens divin et les ondes sonores. Bien que leurs assauts fussent assez puissants, leurs corps étaient d'une fragilité extrême.
+Cela signifiait que le nombre de ces petites créatures était inimaginable. Leurs attaques mêlaient le sens divin et les ondes sonores; en comparaison, leurs corps étaient d'une fragilité extrême.
 
-Par conséquent, détruire ces petites créatures était une tâche aisée, surtout pour quelqu'un comme Bossu Meng qui n'avait qu'à libérer un peu de poison. Cependant, Wang Lin ne pouvait oublier ce qu'il avait vu du sommet de la dernière tour noire: d'innombrables tornades noires se rassemblant en un seul point.
+Par conséquent, si ces petites créatures n'étaient pas nombreuses, elles sembleraient faciles à détruire, surtout pour quelqu'un comme Bossu Meng, qui n'avait qu'à répandre un peu de brume empoisonnée. Cependant, Wang Lin ne pouvait oublier ce qu'il avait vu il y a quelques jours depuis le sommet d'une tour noire: l'immensité sans fin des tornades noires se rassemblant à toute vitesse dans une seule direction.
 
 Un tel mouvement était intentionnel, ce qui signifiait que ces créatures possédaient un moyen de s'appeler les unes les autres. Lorsqu'un nombre trop important d'entre elles mourait, elles appelaient leurs semblables. S'il se retrouvait pris dans ce cycle vicieux, il finirait inévitablement par mourir. Il y avait tout simplement trop de tornades.
 
-De plus, s'il en tuait trop, elles pourraient attirer les tornades noires qui se dirigeaient vers Bossu Meng. Si cela arrivait, ce ne serait pas Meng qui lui ouvrirait la voie, mais Wang Lin qui devrait aider Meng en détournant l'attention des tourbillons.
+De plus, s'il en tuait trop, elles pourraient rappeler à elles les tornades noires qui avaient été attirées par Bossu Meng. Si cela arrivait, ce ne serait pas Meng qui lui ouvrirait la voie, mais Wang Lin qui devrait aider Meng en détournant l'attention des tourbillons.
 
 Lors de la bataille précédente, environ deux cents de ces créatures avaient été annihilées par Wang Lin et le démon. Ses yeux étincelèrent tandis qu'il fixait les petites bêtes à l'extérieur. Les créatures se regroupaient à nouveau pour former une tornade noire. Après avoir tournoyé plusieurs fois autour de la tour, elles cessèrent de s'intéresser à Wang Lin et poursuivirent leur progression.
 
 Une fois la tornade partie, Wang Lin poussa un soupir de soulagement. Simultanément, son cœur se glaça. Cette épreuve terrestre était très étrange; sa logique était l'exact opposé de la normale. Habituellement, lorsqu'on remarque que des créatures sont spécialisées dans les attaques de sens divin et sonores mais possèdent des corps faibles, la première réaction est de les exterminer le plus vite possible pour éviter d'en attirer davantage.
 
-Mais ici, une fois qu'un certain nombre de ces créatures étaient tuées et qu'elles commençaient à appeler au secours, à moins de posséder une culture divine, la seule issue restante était la mort.
+Mais ici, une fois qu'un certain nombre de ces créatures étaient tuées et qu'elles commençaient à appeler au secours, à moins de posséder une culture défiant le ciel, la seule issue restante était la mort.
 
-Wang Lin se mit en culture au sommet de la tour noire et scruta l'horizon, observant là où tous les tourbillons noirs convergeaient. Après avoir mûri sa réflexion, il décida de ne pas précipiter les choses et d'attendre à l'intérieur de la tour.
+Wang Lin s'assit en tailleur à l'intérieur de la tour noire et, après quelques respirations, fixa au loin la masse sombre des tornades qui continuaient de se déplacer vers un même point. Après un court silence, il décida de ne pas se presser de sortir et de rester dans la tour.
 
-Il tourna ensuite son regard vers le démon. Le visage de ce dernier était empreint de cupidité en voyant la tornade s'éloigner.
+Il jeta ensuite un regard au démon. Le visage de ce dernier était empreint de morosité, et il regardait avec regret la tornade s'éloigner, comme s'il ne pouvait s'en détacher.
 
 Sans donner d'explications, Wang Lin ordonna froidement: « Peu importe le nombre d'âmes que tu as dévorées; recrache la moitié pour moi. »
 
-Le démon hésita. S'il s'échappait à l'instant, ce monstre le poursuivrait-il? Il tâtonna un instant avant de fixer Wang Lin. Voyant le regard de ce dernier devenir hostile, il se mit rapidement à recracher une multitude d'âmes de ces petites bêtes.
+Le démon hésita. S'il s'échappait à l'instant, ce monstre le poursuivrait-il? Il hésita longuement, puis jeta un coup d'œil furtif à Wang Lin. Voyant son regard devenir hostile, il frissonna et se mit rapidement à recracher à grandes bouffées les âmes et les sens divins de ces petites bêtes.
 
 Après en avoir recraché vingt, il feignit la faiblesse. Il pensa secrètement: « Peu importe ta puissance, tu es obligé de manger ce que je rejette! Si tu es si doué, alors ne le mange pas! »
 
-Wang Lin ignorait les pensées du démon, mais en voyant l'orgueil sur son visage, il fut tenté de deviner. Cependant, cela ne l'intéressait guère. Toute son attention était focalisée sur les vingt âmes des petites créatures.
+Wang Lin ignorait les pensées du démon, mais en voyant l'orgueil furtif sur son visage, il en devina à peu près la teneur. Cependant, il ne prit pas la peine de s'en soucier. Toute son attention était focalisée sur les vingt âmes des petites créatures.
 
 Après les avoir examinées attentivement, il saisit les âmes et monta dans la tour. Une fois qu'il eut trouvé un étage de dimension adéquate, son Royaume Ji se déploya pour envelopper la zone.
 
@@ -52,15 +52,15 @@ Wang Lin observa avec soin ces âmes. Elles possédaient une force comparable à
 
 C'est grâce au succès du démon que l'idée de créer un second démon avait germé en lui. Il savait que sa principale faiblesse résidait dans son manque de trésors magiques. Même à présent, la seule arme qu'il pouvait utiliser était son épée volante; les autres étaient de trop faible qualité pour être utiles.
 
-Outre l'épée, il y avait le démon, qui s'était révélé fort utile précédemment. S'il ne l'avait pas utilisé contre cette épée de perception divine, la bataille aurait été bien plus ardue.
+Outre l'épée, il y avait le démon, qui s'était révélé fort utile précédemment. Tout à l'heure encore, s'il n'avait pas lancé le démon contre les sens divins, Wang Lin aurait dû dépenser bien plus d'efforts.
 
 Ses seuls autres trésors étaient le tendon de dragon et le parchemin. Cependant, l'aura émanant du parchemin était trop mystérieuse. Wang Lin décida qu'il ne l'utiliserait pas tant qu'il n'en aurait pas pleinement compris la nature.
 
-La clé pour élever un démon résidait dans la nature particulière de l'âme. L'âme du premier démon possédait le potentiel d'un cultivateur de l'Âme Naissante. Cela avait permis à Wang Lin de l'élever de telle sorte qu'il acquière certains attributs des âmes errantes. Toutefois, par rapport aux véritables âmes errantes du monde de la décomposition, les différences demeuraient nombreuses.
+La clé pour élever un démon résidait dans la nature particulière de l'âme. L'âme du premier démon possédait le potentiel d'un cultivateur de l'Âme Naissante. Cela avait permis à Wang Lin de l'élever de telle sorte qu'il acquière certains attributs des âmes errantes. Toutefois, par rapport aux véritables âmes errantes, capables de plonger le monde des êtres vivants dans le cataclysme, la différence demeurait considérable.
 
 Une véritable âme errante, quel que soit le niveau de culture de sa proie, pouvait dévorer l'âme et aspirer toute l'essence de la chair dès qu'elle s'y jetait. À moins de croiser un cultivateur extrêmement puissant capable de les anéantir, leurs seuls ennemis naturels étaient les dévoreurs d'âmes.
 
-Cependant, le démon Xu Liguo ne pouvait dévorer que des âmes de niveau de culture équivalent au sien. S'il tentait de s'attaquer à l'âme d'un cultivateur de l'Âme Naissante, il risquait d'être repoussé.
+Cependant, le démon Xu Liguo ne pouvait dévorer que des âmes de niveau de culture équivalent au sien. S'il tentait de s'attaquer à l'âme d'un cultivateur de l'Âme Naissante, sa dévoration pouvait échouer à tout moment.
 
 Ce qui fascinait Wang Lin, c'était la capacité de ces petites créatures à fusionner. C'était la première fois qu'il voyait des sens divins capables de se fondre pour en former un nouveau. Cette aptitude particulière lui donnait l'envie de s'en servir pour créer un démon.
 
@@ -72,7 +72,7 @@ Les yeux de Wang Lin brillèrent lorsqu'il récupéra une âme de l'un des drape
 
 Malheureusement, tout comme Xu Liguo autrefois, l'âme de la petite bête ne savait absolument pas comment dévorer; elle se contenta de contempler les environs avec perplexité. Mais Wang Lin n'était pas pressé. Ayant déjà élevé un démon, il savait que conférer à une âme des capacités proches de celles d'une âme errante prendrait du temps.
 
-Toutefois, cette première étape exigeait une certaine fermeté. Des éclairs rouges jaillirent des yeux de Wang Lin tandis que son Royaume Ji formait un filet autour de la petite créature, se refermant lentement sur elle.
+Toutefois, cette première étape exigeait qu'il lui donne lui-même une impulsion. Des éclairs rouges jaillirent des yeux de Wang Lin tandis que son Royaume Ji formait un filet autour de la petite créature, se refermant lentement sur elle.
 
 Sous la pression du filet, l'âme de la petite créature commença à s'agiter. Voyant qu'elle n'avait aucune issue, elle se dirigea vers l'autre âme.
 
@@ -82,11 +82,11 @@ Il fut surpris. Il pensait devoir déployer d'importants efforts pour forcer la 
 
 Sans un mot, Wang Lin retira le filet rouge, sortit une autre âme et la lança après y avoir apposé sa marque. Cette fois, la petite créature chargea et fusionna avec elle sans aucune intervention de sa part.
 
-Wang Lin fut désormais pleinement stimulé. Ses yeux s'illuminèrent et il pointa les drapeaux d'âmes à plusieurs reprises. Plus d'une douzaine d'âmes s'en échappèrent et, après avoir été marquées, furent projetées vers la cible.
+Wang Lin fut désormais pleinement stimulé. Ses yeux s'illuminèrent et il pointa les drapeaux d'âmes à plusieurs reprises. Plusieurs dizaines d'âmes s'en échappèrent et, après avoir été marquées, furent projetées vers la cible.
 
 À cet instant, l'âme de la petite créature se mit soudainement à bouger, percutant les âmes une à une. À chaque collision, elle fusionnait avec elles, gagnant en puissance avant de passer à la suivante.
 
-En moins d'une heure, la petite créature avait fini de fusionner avec plus d'une douzaine d'âmes. Elle semblait même sur le point de passer du stade initial de la Formation du Noyau au stade intermédiaire.
+En moins d'une heure, la petite créature avait fini de fusionner avec plusieurs dizaines d'âmes. Elle semblait même sur le point de passer du stade initial de la Formation du Noyau au stade intermédiaire.
 
 L'intérêt de Wang Lin décupla lorsqu'il saisit l'un des drapeaux et le secoua. Plus d'une centaine d'âmes s'en échappèrent. Après avoir marqué chacune d'elles, il les envoya vers la petite créature.
 
@@ -102,11 +102,11 @@ Les yeux de Wang Lin s'illuminèrent alors qu'il agitait le drapeau d'âmes. Les
 
 Le démon, resté en retrait, observait la scène, abasourdi. Il pensa secrètement: « Violent! Ce petit frère est bien trop violent! Je vais devoir redoubler d'efforts, sinon ce monstre finira par me servir de nourriture! » Le corps du démon trembla tandis qu'il reculait. Flottant dans les airs, il commença à digérer rapidement les âmes qu'il avait dévorées.
 
-Cette attente dura trois jours. Durant cette période, le brouillard rouge ne montra aucun changement. En plus de l'observer, Wang Lin vit passer d'innombrables tornades noires. L'une d'elles mesurait plus de 3,3 kilomètres de haut; c'était comme si la reine des tornades passait devant la tour noire.
+Cette attente dura trois jours. Durant cette période, le brouillard rouge ne montra aucun changement. En plus de l'observer, Wang Lin vit passer d'innombrables tornades noires. L'une d'elles mesurait environ 3,3 kilomètres de large; c'était comme si le roi des tornades passait devant la tour noire.
 
-Alors que la plus immense tornade approchait, elle marqua un temps d'arrêt tandis qu'une multitude de sens divins s'en déversaient. Leur cible n'était pas Wang Lin, mais le brouillard rouge.
+Alors que la plus immense tornade passait, elle marqua un léger temps d'arrêt tandis qu'une multitude de sens divins s'en déversaient. Leur cible n'était pas Wang Lin, mais le brouillard rouge.
 
-Cependant, dès que ces sens divins touchèrent la tour noire, ils furent repoussés. La tornade souveraine stagna un moment autour de la tour avant de reprendre sa route.
+Cependant, dès que ces sens divins touchèrent la tour noire, ils furent repoussés. Le roi des tornades resta un moment silencieux autour de la tour avant de s'éloigner lentement.
 
 Wang Lin sentit clairement qu'une fluctuation anormale s'était produite au sein du brouillard rouge lors de l'arrivée des sens divins de la tornade. Cela l'incita à observer le brouillard avec une vigilance accrue.
 
@@ -118,27 +118,27 @@ Ses actions étaient dictées par son expérience dans le monde de la glace, où
 
 Mais cette maudite épreuve terrestre fonctionnait à l'inverse. Cette pensée fit esquisser un sourire amer à Bossu Meng. Cependant, puisqu'il en était arrivé là, même s'il cessait de les attaquer, ces petites bêtes continueraient de le harceler par leurs ondes sonores et leurs attaques de sens divin.
 
-Finalement, la face démoniaque de Bossu Meng commença à poindre. Il renonça à se contenir et libéra d'immenses quantités de poison. En conséquence, les petites créatures appelèrent de l'aide sans relâche, au point que, bien qu'il fût protégé par une tour noire, la masse de créatures rassemblées finit par lui faire perdre la raison.
+Finalement, la face démoniaque de Bossu Meng commença à poindre. Il renonça à se contenir et libéra d'immenses quantités de poison. En conséquence, les petites créatures appelèrent des renforts de plus en plus fréquemment, si bien que, même après qu'il se fut réfugié dans une tour noire, la masse de créatures au-dehors, loin de diminuer, ne cessait de croître, au point de lui donner la chair de poule.
 
-Il se tenait là, observant les innombrables tornades noires. Le nombre de créatures ne cessait de croître à mesure qu'elles appelaient des renforts. Il avait tenté d'utiliser la tour comme bastion pour projeter son poison, mais la tour possédait une restriction puissante: si elle empêchait les créatures d'attaquer l'intérieur, elle interdisait aussi aux occupants de frapper l'extérieur.
+Il se tenait là, observant les innombrables tornades noires qui s'étendaient à perte de vue. Presque à chaque instant, le nombre de créatures augmentait. Il avait tenté d'utiliser la tour comme bastion pour projeter son poison, mais la tour possédait une restriction puissante: si elle empêchait les créatures d'attaquer l'intérieur, elle interdisait aussi aux occupants de frapper l'extérieur.
 
-Bossu Meng ignorait ce qui l'attendrait s'il quittait la tour. Il était certain qu'au moment de franchir le seuil, il recevrait la puissance combinée des sens divins et des ondes sonores de cent millions, voire un milliard de créatures.
+Bossu Meng n'avait aucune certitude de pouvoir quitter la tour. Il était persuadé qu'au moment de franchir le seuil, il recevrait la puissance combinée des sens divins et des ondes sonores de cent millions, voire un milliard de créatures.
 
 Même en tant que cultivateur de la Formation de l'Âme, capable de faire trembler dix millions de cultivateurs d'un seul pas, il était incapable de supporter une telle déferlante.
 
-Après réflexion, il toucha le crapaud sur son épaule avec une expression féroce. Sans un mot, il lui fit signe. Le crapaud sauta de son épaule et se mit à croasser.
+Après un long silence, il caressa le crapaud sur son épaule, une lueur cruelle sur le visage. Sans un mot, il le toucha du doigt. Le crapaud tomba de son épaule et, à plat ventre sur le sol, se mit à émettre des gargouillis.
 
-Le cœur de Bossu Meng se serra en regardant l'animal. Il soupira puis le rangea. Après un instant de réflexion, il sortit un python d'une trentaine de mètres de long. Sur la tête du serpent trônait une unique corne. Dès son apparition, l'air ambiant devint brûlant.
+Le cœur de Bossu Meng se serra en regardant l'animal. Il soupira puis le rangea de nouveau. Après un instant de réflexion, il sortit de son sac de rangement un python rouge de plus d'une trentaine de mètres de long. Sur la tête du serpent trônait une unique corne. Dès son apparition, l'air ambiant devint brûlant.
 
-« Si j'utilise le crapaud, je ne serai pas blessé, mais il mourra à coup sûr. Ce python à une corne est une bête spirituelle de qualité moyenne... Je pourrai encore l'utiliser, mais je subirai des dommages », marmonna Bossu Meng en se tranchant l'index avec le majeur pour en extraire une goutte de sang. Il entonna des incantations étranges et la goutte devint rapidement d'un blanc laiteux avant de se poser sur le front du python.
+« Si je le remplace par le crapaud, je ne serai pas blessé, mais il mourra à coup sûr. Hélas, ce python à corne rouge est au sommet du rang spirituel moyen; je peux bien l'utiliser à sa place, mais je crains d'être un peu blessé », marmonna Bossu Meng en faisant glisser son pouce sur son majeur, d'où jaillit une goutte de sang. Il entonna des incantations étranges et la goutte devint rapidement d'un blanc laiteux avant de se poser sur le front du python.
 
-Bossu Meng exécuta rapidement des sceaux, le visage empreint de gravité. Il pointa lentement son propre front et en retira un fil cristallin semblable à de la soie. Il pressa ensuite ce fil contre la tache blanche sur le front du serpent.
+Le visage grave, Bossu Meng fit changer ses sceaux à deux mains, les posa lentement sur son propre front, puis les écarta petit à petit: un fil cristallin brillant fut tiré de son front. Il l'apposa lentement sur la tache blanc laiteux au front du serpent.
 
 Après un long moment, Bossu Meng prit une profonde inspiration, se leva et jeta négligemment le python au sol. Dès qu'il toucha terre, l'animal s'enroula sur lui-même et resta immobile.
 
 Le regard de Bossu Meng devint féroce alors qu'il sortait de la tour sans hésiter. À son contact avec l'extérieur, les hurlements des tornades noires décuplèrent. Toutes les petites créatures fusionnèrent leurs sens divins pour déchaîner un torrent d'attaques sur lui.
 
-À cet instant, le ciel changea de couleur et les restrictions imposées au sommet de l'épreuve terrestre se mirent à trembler.
+À cet instant, le ciel changea de couleur et les restrictions imposées au sommet de l'épreuve terrestre se mirent à trembler dans un grondement de tonnerre.
 
 Bien que Wang Lin ne fût pas proche de ce lieu, il en ressentit la pression. Il ouvrit les yeux et regarda vers Bossu Meng.
 
@@ -146,9 +146,9 @@ Simultanément, une fluctuation anormale survint dans le brouillard rouge, déto
 
 Lorsque l'attaque massive de sens divin frappa, Bossu Meng ne chercha pas à l'esquiver mais agita ses manches. Une immense quantité de fumée noire s'en échappa. Cette fumée se rassembla pour former un nuage qui commença à se propager. Toute petite créature touchant ce nuage noir tombait du ciel en convulsant, son corps se transformant en fumée noire qui rejoignait le nuage.
 
-Dès qu'il eut fini de libérer la fumée, la série d'attaques puissantes de sens divin atteignit sa cible. Bossu Meng poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à être remplacé par le python à corne d'une trentaine de mètres de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
+Au même moment, la série d'attaques de sens divin, pleines d'une puissance capable de détruire le ciel et la terre, l'atteignit. Bossu Meng poussa un gémissement de douleur. Son corps devint de plus en plus illusoire jusqu'à se changer en un python à corne d'une trentaine de mètres de long. Le serpent se tortilla un instant avant d'être totalement désintégré par les attaques; même son noyau fut réduit en poussière.
 
-Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Bossu Meng. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est le plus redoutable de la Mer des Démons, et je l'ai utilisé en totalité. Je ne crois pas que je sois incapable de vous tuer tous! »
+Au même moment, l'image du python à l'intérieur de la tour devint floue et se transmuta en Bossu Meng. Son visage était livide et il cracha une bouchée de sang. Il afficha un sourire sanguinaire: « Mon poison destructeur du ciel est réputé le premier poison de la Mer des Démons, et je l'ai libéré en totalité. Je ne crois pas que je sois incapable d'anéantir toute votre race! »
 
 Le nuage noir recouvrait désormais toute la zone autour de la tour. Dès qu'il entrait en contact avec une tornade, celle-ci s'effondrait en une multitude de petites créatures qui, aussitôt, se transformaient en fumée noire pour nourrir le nuage. Par conséquent, ce dernier grandissait et s'étendait à une vitesse fulgurante.
 
@@ -166,7 +166,7 @@ La créature rouge apparut précisément dans la direction où Wang Lin s'était
 
 Cela prouvait l'incroyable rapidité du nouveau démon. Wang Lin resta calme; loin de paniquer, il gagna en sérénité. Ses yeux devinrent glacials tandis que son Sens Divin jaillissait derrière lui.
 
-Un cri déchirant retentit. Au moment où le démon apparut, il percuta de plein fouet le Sens Divin de Wang Lin. Incapable de l'esquiver à temps, le champ de force enveloppa son corps.
+Un cri déchirant retentit. Au moment où le démon apparut, il percuta de plein fouet le Sens Divin de Wang Lin. Incapable de l'esquiver à temps, le Sens Divin du Royaume Ji le transperça de part en part.
 
 Involontairement, la créature fut projetée dans les airs et se retrouva devant Wang Lin. Elle le regardait avec une expression terrifiée en poussant des cris misérables.
 

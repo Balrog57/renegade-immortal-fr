@@ -6,11 +6,11 @@ bookTitle: Clean Sweep
 en: Chapter 258 - Trashing Sects
 slug: demanteler-les-sectes
 ---
-Wang Lin esquissa un léger sourire et dit: « Aîné, nous ne nous sommes pas vus depuis six ans, et vous êtes toujours le même. »
+Wang Lin esquissa un léger sourire et dit: « Senior, nous ne nous sommes pas vus depuis sept ans, et vous êtes toujours le même. »
 
 L'expression étrange sur le visage du vieil homme devint encore plus singulière. Il fixa Wang Lin longuement avant de laisser échapper un soupir. Une pointe d'admiration brilla dans ses yeux lorsqu'il déclara: « Tu es devenu un mortel... tu es vraiment devenu un mortel! »
 
-Wang Lin prit la cruche sur le poêle, versa une coupe, la but et répondit: « Ce junior ne fait que lutter au sein du monde mortel. Comment pourrais-je être aussi détendu que l'Aîné, qui se plaît à jouer dans ce monde? »
+Wang Lin prit la cruche sur le poêle, versa une coupe, la but et répondit: « Ce junior ne fait que lutter au sein du monde mortel. Comment pourrais-je être aussi détendu que le Senior, qui se plaît à jouer dans ce monde? »
 
 Le vieil homme prit une profonde inspiration. Il saisit la cruche de vin, versa une coupe et dit: « J'ai vu beaucoup de cultivateurs au stade de la Formation de l'Âme, mais tu es le premier capable de se fondre parmi les mortels en seulement six ans. »
 
@@ -22,7 +22,7 @@ Wang Lin tourna la tête, prit une gorgée et demanda: « Qu'est-ce qu'un domain
 
 Le vieil homme s'apprêtait à répondre quand ses yeux s'égarèrent soudainement. Il dit: « Regarde, je suis déjà vieux. Quand j'ai faim, je ne me souviens de plus rien. »
 
-Wang Lin regarda le vieil homme avec sérieux et sourit: « Aîné, prenez tout votre temps pour profiter du spectacle. Ce junior s'en va. » Sur ce, il se leva et quitta l'auberge.
+Wang Lin regarda le vieil homme avec sérieux et sourit: « Senior, prenez tout votre temps pour profiter du spectacle. Ce junior s'en va. » Sur ce, il se leva et quitta l'auberge.
 
 Le vieil homme fut surpris. Soudain, ses yeux s'illuminèrent et il marmonna: « Intéressant. »
 
@@ -38,7 +38,7 @@ Wang Lin n'était nullement étonné par l'attitude du vieil homme. Il s'assit e
 
 Ces sculptures étaient toutes des œuvres inachevées.
 
-Dès que le vieil homme vit ces produits incomplets, son regard se fit grave. Il examina attentivement chacune d'elles avant de prendre une profonde inspiration. Puis, il tourna les yeux vers Wang Lin et dit lentement: « Je t'ai vraiment sous-estimé. Je n'aurais jamais cru que tu avais vécu de telles expériences. Tu n'aurais pas pu réaliser ces sculptures de cultivateurs de la Formation de l'Âme ou de Bêtes Désolées à moins de les avoir personnellement combattues. »
+Dès que le vieil homme vit ces produits incomplets, son regard se fit grave. Il examina attentivement chacune d'elles avant de prendre une profonde inspiration. Puis, il tourna les yeux vers Wang Lin et dit lentement: « Je t'ai vraiment sous-estimé. Je n'aurais jamais cru que tu avais vécu de telles expériences. Tu n'aurais pas pu réaliser ces sculptures de cultivateurs de la Formation de l'Âme ou de bêtes démoniaques à moins de les avoir personnellement combattues. »
 
 Wang Lin sourit légèrement. Il ne dit mot, se contentant de boire son vin en silence, comme si les paroles du vieil homme n'avaient aucun lien avec lui.
 
@@ -48,7 +48,7 @@ Wang Lin répondit d'un ton neutre: « Wang Lin. »
 
 Le vieil homme hocha la tête. D'un mouvement de sa main droite, son aura changea radicalement, passant de celle d'un vieillard à celle d'une présence impérieuse. Bien que son apparence n'ait pas changé et qu'aucune énergie spirituelle ne s'échappât de son corps, il devint soudainement extrêmement mystérieux et difficile à sonder.
 
-L'énergie spirituelle dans le corps de Wang Lin s'agita sous cette stimulation et ses yeux s'illuminèrent. À cet instant, Wang Lin fut incapable de percer le niveau de culture de ce vieil homme. La lueur disparut rapidement de son regard alors qu'il prenait une gorgée de vin et disait: « Aîné, ma modeste demeure ne peut supporter une telle puissance. Je vous prie de vous retenir. »
+L'énergie spirituelle dans le corps de Wang Lin s'agita sous cette stimulation et ses yeux s'illuminèrent. À cet instant, Wang Lin fut incapable de percer le niveau de culture de ce vieil homme. La lueur disparut rapidement de son regard alors qu'il prenait une gorgée de vin et disait: « Senior, ma modeste demeure ne peut supporter une telle puissance. Je vous prie de vous retenir. »
 
 Le vieil homme renifla: « Gamin, expérimente un peu. C'est cela, un domaine! »
 
@@ -112,8 +112,8 @@ Après un long moment, alors que le vieil homme reprenait son souffle, la fiert�
 
 Wang Lin répondit calmement: « Jamais. »
 
-« Après avoir vu ma puissance, tu ne lâches même pas un mot? » Les yeux du vieil homme s'écarquillèrent. C'était comme s'il avait déployé toute sa force pour offrir un banquet royal et que l'enfant n'avait montré aucune réaction.
+« Après avoir vu ma puissance, tu ne lâches même pas un mot? » Les yeux du vieil homme s'écarquillèrent. Il avait déployé toute sa force, jusqu'à celle qu'il réservait au bordel, et ce gamin n'avait montré aucune réaction.
 
-Wang Lin regarda le vieil homme avec une expression étrange et dit: « Le niveau de culture de l'Aîné est une chose que ce junior n'a jamais vue auparavant. Je vous admire! »
+Wang Lin regarda le vieil homme avec une expression étrange et dit: « Le niveau de culture du Senior est une chose que ce junior n'a jamais vue auparavant. Je vous admire! »
 
-Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation de 500 000 kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte Ciel Nuageux. Allons-y, ce vieux peut t'emmener démanteler cette secte! »
+Le vieil homme renifla et se vanta: « Si l'occasion se présente, je te donnerai la chance de vivre une téléportation de 500 000 kilomètres. » Sur ce, il pointa l'horizon du doigt et déclara: « Voilà la Secte Nuage Blanc. Allons-y, ce vieux peut t'emmener démanteler cette secte! »

@@ -36,7 +36,7 @@ L'un était glacial, l'autre brûlant!
 
 Le bassin froid contenait une eau glacée vieille de 30 000 ans provenant de la planète Givre Céleste. Suzaku avait payé un prix exorbitant pour l'obtenir.
 
-Le bassin de flammes contenait un feu millénaire vieux de 30 000 ans issu de la planète Origin Fire, dont le coût était identique à celui du bassin froid.
+Le bassin de flammes contenait un feu inextinguible vieux de 30 000 ans issu de la planète Feu Flamboyant, dont le coût était identique à celui du bassin froid.
 
 Autour de ces deux bassins se trouvaient 99 pierres spirituelles de qualité supérieure qui alimentaient deux formations distinctes, dégageant une quantité d'énergie spirituelle inimaginable.
 
@@ -56,17 +56,17 @@ Après un long silence, le vieil homme prononça lentement: « Qian Feng! »
 
 L'homme assis dans le bassin de flammes ouvrit les yeux. L'aura maléfique qui l'entourait s'intensifia. Il resta calme en voyant le vieillard et dit: « Qian Feng salue l'Ancêtre. »
 
-« Papillon Rouge est dans la chambre secrète. Va dévorer sa conscience et son domaine! » La voix du vieil homme était empreinte d'une immense antiquité.
+« Papillon Rouge est dans la chambre secrète. Va dévorer sa force spirituelle et son domaine! » La voix du vieil homme était empreinte d'une immense antiquité.
 
 Les yeux de l'homme brillèrent et il demanda: « Papillon Rouge? Mais elle est la fille céleste de Xue Yu... » En prononçant ces mots, il se lécha les lèvres avec un visage empreint de dédain.
 
-Le vieil homme répondit lentement: « Son domaine impitoyable a fait une percée lors de son combat contre Ceng Niu; il est sur le point d'atteindre sa première complétion, bien qu'elle ne s'en soit pas encore rendu compte. Une fois que tu l'auras dévorée, tu posséderas le domaine impitoyable! Par conséquent, tes chances d'atteindre le stade Ascendant augmenteront davantage. J'ai cherché cette fille pendant très longtemps. »
+Le vieil homme répondit lentement: « Son domaine impitoyable a fait une percée lors de son combat contre Ceng Niu; il est sur le point d'atteindre sa première complétion, bien qu'elle ne s'en soit pas encore rendu compte. Une fois que tu l'auras dévorée, tu posséderas le domaine impitoyable! Par conséquent, tes chances d'atteindre le stade Ascendant augmenteront davantage. J'ai cherché cette fille pendant de longues années avant de la trouver, puis je l'ai élevée jusqu'à aujourd'hui. »
 
 L'homme se leva. En faisant ce mouvement, une brume blanche s'échappa de son corps. Ses yeux affichèrent un regard malveillant tandis qu'il murmurait: « Ceng Niu... Je me demande s'il peut encaisser un seul coup utilisant seulement 10 % de ma culture avec son niveau actuel! »
 
 Le vieil homme soupira. « C'est un peu regrettable pour Papillon Rouge. Cette fille... Ah, je vieillis et je ne peux plus supporter certaines choses... Laisse tomber, vas-y. »
 
-L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est regrettable, mais le titre de Suzaku ne sera pas transmis à un étranger. Ce sera soit moi, soit ma sœur cadette! »
+L'homme esquissa un léger sourire: « Ancêtre, vous dites toujours que c'est regrettable, mais le titre de Suzaku ne sera pas transmis à un étranger. Ce sera soit moi, soit ma jeune sœur apprentie! »
 
 Sur ces mots, son corps s'estompa lentement jusqu'à disparaître.
 
@@ -96,7 +96,7 @@ Dans la grotte, le vieil homme soupira de nouveau.
 
 La femme dans le bassin froid ouvrit les yeux. Son regard était calme alors qu'elle fixait le vieil homme.
 
-Cette femme était Liu Mei, de la Secte Xuan Dao.
+Cette femme était Liu Mei, de la Secte Tian Dao.
 
 L'Ancien déclara: « Tu as créé mille avatars pour cultiver au sein de diverses sectes à travers différents pays afin de comprendre les lois célestes. L'un de ces avatars est allé à la Secte Xuan Dao, dans l'État de Zhao. Te souviens-tu de Wang Lin? Il était un disciple de la Secte Heng Yue! »
 
@@ -110,11 +110,11 @@ Aucun signe de choc ne passa dans les yeux de Liu Mei. Elle se contenta d'acquie
 
 Liu Mei resta pensive.
 
-Le vieil homme regarda Liu Mei et reprit: « Tu vas bientôt sortir de ta culture en ermitage. Ce Ceng Niu devrait arriver sous peu; va donc l'accueillir. Utilise toutes les méthodes possibles pour marquer son cœur dao. Sers-toi de cet homme comme d'un fourneau pour aider ton domaine à atteindre sa pleine complétion. Une fois que tu auras réussi, tu prendras le contrôle de son domaine de la vie et de la mort. Ainsi, tu auras plus de chances que Feng Er de revendiquer le titre de Suzaku! »
+Le vieil homme regarda Liu Mei et reprit: « Tu sors dès aujourd'hui de ta culture en ermitage. Ce Ceng Niu devrait arriver sous peu; entre en contact avec lui. Utilise toutes les méthodes possibles pour marquer son cœur dao. Sers-toi de cet homme comme d'un fourneau pour aider ton domaine à atteindre sa pleine complétion. Lorsque le fourneau se brisera, tu prendras le contrôle de son domaine de la vie et de la mort. Ainsi, tu auras plus de chances que Feng Er de revendiquer le titre de Suzaku! »
 
-Liu Mei soupira. Elle se mordit la lèvre inférieure et commença à méditer sur ses options.
+Liu Mei soupira. Elle se mordit la lèvre inférieure et se tut.
 
-« Oh? Tu hésites? » Les yeux du vieil homme brillèrent d'un rouge intense, conservant une dignité austère.
+« Oh? Tu ne veux pas? » Les yeux du vieil homme brillèrent d'un rouge intense, conservant une dignité austère.
 
 Liu Mei murmura: « La disciple obéit! »
 
@@ -136,7 +136,7 @@ C'était Liu Mei. Comparée à la première fois où Wang Lin l'avait rencontré
 
 « Marquer son cœur dao ne sera pas difficile... Cependant, est-ce vraiment la bonne voie... » Un air de confusion passa sur le visage de Liu Mei.
 
-À cet instant, le jeune homme au regard maléfique nommé Qian Feng entra en flottant dans la grotte, suivi de quelqu'un. Il s'agissait de Papillon Rouge.
+À cet instant, le jeune homme au regard maléfique nommé Qian Feng arriva en flottant depuis le lointain, suivi de quelqu'un. Il s'agissait de Papillon Rouge.
 
 Cependant, les yeux de Papillon Rouge étaient comme des trous noirs; elle ne présentait aucun signe de vie. Elle n'était plus qu'une marionnette.
 
@@ -148,11 +148,11 @@ Liu Mei hocha la tête et murmura: « Senior frère Qian Feng, la personne derri
 
 Qian Feng éclata de rire. « Papillon Rouge est déjà morte. Elle n'est plus que mon fourneau de concubine. Appelons-la simplement "Sans-Cœur". »
 
-Liu Mei observa attentivement Papillon Rouge jusqu'à ce qu'elle ne puisse plus supporter le spectacle. Elle savait que Papillon Rouge avait déjà perdu son domaine et son énergie vitale pour devenir l'automate de Qian Feng.
+Liu Mei observa attentivement Papillon Rouge, une lueur de compassion passa dans ses yeux, puis elle soupira et s'éloigna de l'entrée de la grotte. Elle savait que Papillon Rouge avait déjà perdu son domaine et son énergie vitale pour devenir l'automate de Qian Feng.
 
 Le fait qu'une beauté légendaire de cette génération ait subi un tel sort plongea Liu Mei dans la mélancolie. C'était la troisième personne dévorée par Qian Feng jusqu'à présent. À chaque fois qu'il dévorait quelqu'un, son niveau de culture augmentait.
 
-L'Ancêtre était devenu pressé de former le prochain Suzaku.
+L'Ancêtre était prêt à tout pour former le prochain Suzaku.
 
 Qian Feng fixa le dos de Liu Mei d'un regard malveillant et grommela: « Jeune sœur apprentie, un jour, tu deviendras ma concubine. Qu'en penses-tu, Sans-Cœur? »
 

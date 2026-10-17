@@ -56,7 +56,7 @@ Bien que son âme originelle se soit un peu rétablie, elle n'avait pas encore �
 
 Une lueur émergea de l'horizon alors que le soleil se levait, enveloppant la terre de chaleur. La lumière chassa les ténèbres. Tandis que les environs s'éclaircissaient progressivement, l'érudit d'âge moyen sortit de la secte intérieure.
 
-Neuf personnes le suivaient, toutes vêtues de robes rouges. Leurs âges variaient, mais elles avaient un point commun: elles étaient toutes entourées de grandes âmes vengeuses. De loin, à la lumière du soleil, on aurait dit qu'elles étaient enveloppées de flammes démoniaques s'élevant vers le ciel.
+Neuf personnes le suivaient, toutes vêtues de robes rouges. Leurs âges variaient, mais elles avaient un point commun: elles étaient toutes entourées de grandes âmes vengeuses. De loin, à la lumière du soleil, elles dégageaient des vapeurs violet-noir, comme des flammes démoniaques s'élevant vers le ciel.
 
 D'un air sombre, l'érudit d'âge moyen ordonna: « Divisez-vous en dix groupes pour l'inspection! »
 
@@ -116,7 +116,7 @@ Le cultivateur en robe rouge du troisième groupe pointa le front de Wang Lin, p
 
 Wang Lin se retira calmement sur le côté.
 
-À midi, plus de mille disciples avaient été inspectés. Plus de cent d'entre eux avaient été jetés au centre.
+À midi, les milliers de disciples de la secte extérieure avaient tous été inspectés. Plus de cent d'entre eux avaient été jetés au centre.
 
 L'homme d'âge moyen jeta la dernière personne au milieu et demanda: « Avez-vous trouvé quelque chose? »
 

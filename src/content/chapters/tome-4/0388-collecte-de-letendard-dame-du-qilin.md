@@ -17,7 +17,7 @@ Wang Lin fit un pas en avant et projeta sa lance.
 
 Bang!
 
-Après un fracas retentissant qui fit craqueler les veines spirituelles environnantes, Wang Lin recula d'un pas tandis que la sphère de lumière dorée se dissipait.
+Après un fracas retentissant qui fit craqueler les veines spirituelles environnantes, Wang Lin recula de deux pas tandis que la sphère de lumière dorée se dissipait.
 
 « Intéressant. Bien que le Qilin de Ling Tianhou fût vivant, il ne pouvait utiliser aucun sort car il avait perdu son héritage. Bien que ce fragment d'âme soit bien plus faible, lui peut lancer des sorts. Il possède manifestement encore les souvenirs de son héritage. »
 
@@ -25,7 +25,7 @@ Les yeux de Wang Lin s'illuminèrent. Il frappa son sac de rangement et deux clo
 
 Wang Lin eut un ricanement méprisant. Il bondit soudainement en avant, et la lance fendit l'air pour transpercer le Qilin. La créature poussa un rugissement, tandis que du gaz noir s'échappait de sa plaie, se transformant en fragments d'âme.
 
-Sans dire un mot, Wang Lin frappa son sac de rangement et sortit l'étendard d'âme. D'un geste de la main, il fit voler tous ces fragments vers son étendard. Le Qilin rugit et aspira immédiatement ces fragments d'âme à l'intérieur de son propre corps.
+Sans dire un mot, Wang Lin frappa son sac de rangement et sortit le drapeau d'âmes. D'un geste de la main, il fit voler tous ces fragments vers son drapeau. Le Qilin rugit et aspira immédiatement ces fragments d'âme à l'intérieur de son propre corps.
 
 Les yeux de Wang Lin brillèrent. Il actionna sa main droite et un vortex d'âmes apparut; il entama alors une lutte contre le Qilin pour s'emparer des fragments d'âme. Tandis que Wang Lin distrayait la créature, les deux cloches prirent instantanément de l'ampleur et se rapprochèrent du Qilin. Ce dernier expulsa deux jets de gaz noir qui se transformèrent en deux petits Qilins, lesquels bondirent sur les cloches.
 
@@ -37,7 +37,7 @@ Sur ces mots, les mains de Wang Lin s'activèrent avec célérité et une série
 
 Une fine couche de sueur commença à perler sur le front de Wang Lin alors qu'il projetait d'innombrables restrictions en quelques secondes seulement. Le rugissement du Qilin redoublait d'intensité, mais son corps commençait à ralentir, comme s'il sombrait dans l'eau.
 
-Les yeux de Wang Lin s'illuminèrent. Il toucha son sac de rangement et un petit drapeau en sortit. C'était le drapeau des restrictions. D'un mouvement de la bannière, d'innombrables lances noires se formèrent devant lui. Sous les ordres de Wang Lin, ces lances chargèrent le Qilin.
+Les yeux de Wang Lin s'illuminèrent. Il toucha son sac de rangement et un petit drapeau en sortit. C'était le drapeau des restrictions. D'un mouvement du drapeau, d'innombrables lances noires se formèrent devant lui. Sous les ordres de Wang Lin, ces lances chargèrent le Qilin.
 
 Simultanément, la main droite de Wang Lin ne cessa pas son œuvre; il continuait de créer des vortex d'âmes. Sa main bougeait avec la rapidité d'un spectre, engendrant un vortex après l'autre.
 
@@ -49,7 +49,7 @@ Plusieurs détonations retentirent lors de la collision entre les lances et les 
 
 Le Qilin poussa un rugissement puissant et se débattit avec acharnement, faisant éclater une à une les restrictions qui pesaient sur lui.
 
-Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà aussi fort qu'un cultivateur au stade tardif de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il atteindrait bientôt la puissance d'un cultivateur de la Transformation de l'Âme.
+Wang Lin fronça les sourcils. Il n'avait pas imaginé que ce corps illusoire formé par un fragment d'âme de Qilin puisse être aussi puissant. Ce Qilin était déjà presque aussi fort qu'un cultivateur au sommet du stade tardif de la Formation de l'Âme. S'il disposait de plus de temps pour croître, il atteindrait bientôt la puissance d'un cultivateur de la Transformation de l'Âme.
 
 Le regard de Wang Lin s'assombrit. Il leva la main droite et le piège à bêtes vola hors de sa main; il atterrit sur le côté et se transforma en Char de Guerre Divin. La bête avait considérablement faibli après son combat contre Papillon Rouge, mais dès qu'elle vit le Qilin, son corps trembla et ses yeux s'emplirent d'avidité.
 
@@ -65,15 +65,15 @@ Le Qilin n'était pas de taille face à la bête spirituelle. Toutes les restric
 
 Le corps du Qilin doré perdit sa consistance et devint plus évanescent. Regardant la bête spirituelle avec frustration, il laissa échapper de sourds grognements mais n'osa point avancer. Après tout, ce n'était qu'un fragment d'âme. À son apogée, il était plus fort que la bête spirituelle, mais à l'heure actuelle, il n'avait aucune chance.
 
-Une fois le Qilin repoussé, l'étendard d'âme doré se retrouva sans défense. Wang Lin apparut rapidement devant lui pour s'en saisir. Cependant, le Qilin doré poussa un rugissement de rage et se jeta sur Wang Lin. Ce dernier eut un sourire narquois; sa main droite s'étira et les chaînes du char de guerre disparurent instantanément.
+Une fois le Qilin repoussé, le drapeau d'âmes doré se retrouva sans défense. Wang Lin apparut rapidement devant lui pour s'en saisir. Cependant, le Qilin doré poussa un rugissement de rage et se jeta sur Wang Lin. Ce dernier eut un sourire narquois; sa main droite s'étira et les chaînes du char de guerre disparurent instantanément.
 
 Privée de ses entraves, la bête spirituelle poussa un cri de joie, ouvrit la gueule et attaqua le Qilin. Le Qilin poussa un rugissement frustré. Se sentant impuissant, il renonça à attaquer Wang Lin pour tenter de s'enfuir.
 
-La bête spirituelle se mit à sa poursuite. Une quantité massive de fragments d'âme s'échappait du Qilin et était absorbée par le vortex. Wang Lin saisit l'étendard d'âme doré. Dès qu'il le toucha, une aura glaciale pénétra son corps, le traversant plusieurs fois avant de se dissiper. Wang Lin afficha un visage de joie alors qu'il crachait un peu de sang d'essence d'âme que l'étendard absorba aussitôt.
+La bête spirituelle se mit à sa poursuite. Une quantité massive de fragments d'âme s'échappait du Qilin et était absorbée par le vortex. Wang Lin saisit le drapeau d'âmes doré. Dès qu'il le toucha, une aura glaciale pénétra son corps, le traversant plusieurs fois avant de se dissiper. Wang Lin afficha un visage de joie alors qu'il crachait un peu de sang d'essence d'âme que le drapeau absorba aussitôt.
 
-« Lève-toi! » cria Wang Lin en brandissant l'étendard.
+« Lève-toi! » cria Wang Lin en brandissant le drapeau.
 
-Une masse de gaz noir, de la taille d'un bras, jaillit de l'étendard doré et traversa toute la Montagne de l'Affinement de l'Âme. De loin, on pouvait voir ce nuage noir s'élancer dans le ciel au-dessus de la montagne avant de commencer à se propager.
+Une masse de gaz noir, de la taille d'un bras, jaillit de l'endroit où le drapeau doré était planté et traversa toute la Montagne de l'Affinement de l'Âme. De loin, on pouvait voir ce nuage noir s'élancer dans le ciel au-dessus de la montagne avant de commencer à se propager.
 
 À cet instant, tous les disciples de la Montagne de l'Affinement de l'Âme contemplaient le ciel, stupéfaits. Ils avaient déjà entendu les rugissements venant du sous-sol, mais ils étaient si puissants que personne n'avait osé aller vérifier.
 
@@ -81,9 +81,9 @@ Les anneaux dorés entre les trois montagnes commencèrent à trembler doucement
 
 Sur ces mots, il retourna vers l'anneau doré.
 
-Wang Lin, tenant fermement l'étendard d'âme doré, le secoua et ordonna: « Qilin d'âme primaire, reviens! »
+Wang Lin, tenant fermement le drapeau d'âmes doré, le secoua et ordonna: « Âme principale du Qilin, rentre! »
 
-En un clin d'œil, le Qilin qui avait été acculé par la bête spirituelle et failli être dévoré à plusieurs reprises poussa un rugissement et disparut dans l'étendard doré. Wang Lin sentit l'étendard trembler dans sa main; envahi par la satisfaction, il le rangea rapidement.
+En un clin d'œil, le Qilin qui avait été acculé par la bête spirituelle et failli être dévoré à plusieurs reprises poussa un rugissement et disparut dans le drapeau doré. Wang Lin sentit le drapeau trembler dans sa main; envahi par la satisfaction, il le rangea rapidement.
 
 La bête spirituelle était furieuse. Elle vouait déjà une haine profonde à Wang Lin et, parce qu'il lui avait volé la proie qu'elle s'apprêtait à dévorer, elle chargea vers lui. Bien que Wang Lin ne puisse pas véritablement contrôler la bête, il pouvait encore la sceller. Il pointa le char et d'innombrables chaînes apparurent pour l'immobiliser. Tandis que la bête rugissait de rage, elle fut lentement traînée dans le char, qui reprit sa forme de piège à bêtes.
 

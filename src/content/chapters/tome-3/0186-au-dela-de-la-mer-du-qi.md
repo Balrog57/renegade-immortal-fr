@@ -6,11 +6,11 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 186 - Beyond the Qi Sea
 slug: au-dela-de-la-mer-du-qi
 ---
-Wang Lin se précipita rapidement vers la sortie. En un instant, il atteignit la zone située à moins de 99 mètres du vortex de sortie.
+Le corps de Wang Lin, devenu une étoile filante, se précipita rapidement vers la sortie. En quelques souffles, il atteignit la zone située à moins de 99 mètres du vortex de sortie.
 
-Mais alors qu'il approchait, directement au-dessus de l'issue du troisième essai, une faille longue de milliers de pieds s'ouvrit, libérant une lueur rouge sang.
+Mais alors qu'il approchait, directement au-dessus de l'issue du troisième essai, une faille longue de milliers de pieds s'ouvrit, dans laquelle brillait une lumière rouge qui dégageait une odeur de sang.
 
-Wang Lin fut stupéfait, mais son visage resta impassible. Il renonça aussitôt à utiliser sur le tourbillon la technique que l'Empereur Ancestral lui avait transmise. Malgré l'apparition de la faille, il continua de charger vers le tourbillon. Des éclairs violets surgirent, l'aspirant dans les profondeurs du vortex.
+Wang Lin fut stupéfait, mais son visage resta impassible. Il renonça aussitôt à utiliser sur le tourbillon la technique que l'Empereur Antique lui avait transmise. Malgré l'apparition de la faille, il continua de charger vers le tourbillon. Des éclairs violets surgirent, l'aspirant dans les profondeurs du vortex.
 
 Au moment où il pénétra dans le vortex, Wang Lin vit clairement de grands démons émerger de la faille; leurs yeux brillaient d'une extase sauvage alors qu'ils se jetaient sur lui.
 
@@ -30,23 +30,21 @@ Sans perdre un instant, il se précipita près du dispositif, mais ne s'y engouf
 
 L'épée disparut aussitôt dans son sac. Ses mains tracèrent des cercles illusoires, puis il appliqua des restrictions sur ces épines.
 
-Une fois terminé, il pointa son doigt vers son front et cracha une bouffée de Qi doré. Le Qi se transforma en fils ténus qui s'insinuèrent dans les épines.
+Une fois terminé, il pointa son doigt vers son front et cracha une bouffée de Qi doré. Le Qi se transforma en fils ténus qui se fondirent dans les épines.
 
 Le corps entier des épines trembla et se mit à tourbillonner, entraîné par les cercles illusoires.
 
 Peu après, Wang Lin s'engagea sans hésiter dans le réseau de transfert. À l'instant où son corps y pénétra, un rayon de lumière rouge jaillit sur le côté pour recouvrir l'intégralité du dispositif.
 
-[Note du traducteur: Le réseau émet ceci]
-
-« Le temps nécessaire pour franchir le troisième essai a dépassé la limite prévue, mais vous avez obtenu le titre de Compréhenseur. Emplacement: au-delà de la Mer du Qi. »
+« Le temps mis pour franchir les trois premiers essais a dépassé la limite prévue, mais vous avez obtenu le titre de Compréhenseur. En conséquence, vous êtes envoyé au-delà de la Mer du Qi. »
 
 Sous les rayons fluctuants de la lumière rouge sang, le corps de Wang Lin commença à se distordre jusqu'à disparaître totalement. La lueur rouge finit par se dissiper, rendant à l'endroit son aspect normal.
 
-À cet instant précis, les cercles illusoires que Wang Lin avait laissés derrière lui se dispersèrent dans toutes les directions, créant des restrictions qui encerclèrent tout le réseau de transfert. Sous l'impulsion soudaine de ces cercles, les épines volèrent vers le dispositif, pénétrèrent les vaisseaux sanguins et y diffusèrent leur toxine.
+À cet instant précis, les cercles illusoires que Wang Lin avait laissés derrière lui se dispersèrent dans toutes les directions, se changeant en restrictions scintillant de sept couleurs qui encerclèrent tout le réseau de transfert. Sous l'impulsion soudaine de ces cercles, les épines volèrent vers le dispositif, pénétrèrent les vaisseaux sanguins et y diffusèrent leur toxine.
 
 En un instant, le réseau cessa d'émettre une lumière rouge pour projeter une lueur noire; toutefois, cette obscurité ne dura pas et la lueur redevint lentement rouge.
 
-Simultanément, à l'entrée du quatrième royaume, de nombreux démons de la Mer de Sang apparurent et accoururent vers le réseau de transfert.
+Simultanément, à l'entrée du quatrième essai, de nombreux démons de la Mer de Sang apparurent et accoururent vers le réseau de transfert.
 
 L'un des cultivateurs démons inspecta le dispositif et déclara: « Le réseau a été endommagé. Il faudra trois heures pour sa restauration. »
 
@@ -54,39 +52,39 @@ L'un des cultivateurs démons inspecta le dispositif et déclara: « Le réseau 
 
 « Dans trois heures, nous nous séparerons pour lancer les recherches. Cette fois, nous devons le capturer vivant. »
 
-Wang Lin eut la sensation que son âme et son corps étaient séparés. Peu après, il sentit clairement une force invisible l'entraîner vers un vortex. Durant tout ce processus, il eut l'impression que son corps s'évanouissait pour ne laisser place qu'à son sens divin.
+Wang Lin eut la sensation que sa chair et ses os se séparaient. Peu après, il sentit clairement une force invisible l'entraîner vers un vortex. Durant tout ce processus, il eut l'impression que son corps s'évanouissait pour ne laisser place qu'à son sens divin.
 
 Il ignorait combien de temps s'était écoulé. Soudain, la force qui l'entourait disparut et il reprit lentement le contrôle de son enveloppe physique. Lorsqu'il ouvrit les yeux, il découvrit un monde bleu.
 
 C'était un lieu des plus étranges. Le ciel était bleu, tout comme le sol. On aurait pu dire que ce monde n'avait pas de terre, mais seulement du ciel, car le sol n'était en réalité qu'un autre firmament.
 
-Wang Lin resta stupéfait un instant avant de retrouver son calme. Juste avant d'être transféré, il se souvenait que la voix avait mentionné une destination aux confins de la Mer du Qi.
+Wang Lin resta stupéfait un instant avant de retrouver son calme. Juste avant d'être transféré, il avait entendu la voix du réseau dire que, en raison de son statut de Compréhenseur, il était envoyé au-delà de la Mer du Qi.
 
-Grâce à cela, Wang Lin comprit qu'il se trouvait dans le quatrième royaume. Cependant, ce dernier ne présentait aucun obstacle; il ne servait que de zone de transfert.
+Grâce à cela, Wang Lin comprit que le réseau de transfert de tout à l'heure était le quatrième essai. Cependant, ce dernier ne présentait aucun obstacle; il ne servait que de transfert.
 
 Wang Lin en conclut qu'il était déjà entré dans le corps de l'Ancien Dieu, juste au-delà de la Mer du Qi.
 
 Il réfléchit un instant et soupira. Il n'aurait jamais cru être le premier parmi tous les cultivateurs à pénétrer dans la Terre de l'Ancien Dieu.
 
-Avant le troisième essai, Wang Lin nourrissait encore l'espoir d'atteindre ce lieu, mais désormais, il sentait que cet endroit n'était pas le paradis de trésors et de pilules immortelles décrit par Duanmu.
+Avant le troisième essai, Wang Lin nourrissait encore l'espoir d'atteindre ce lieu, mais désormais, il sentait que cet endroit n'était pas, comme l'avait dit Duanmu Ji, un lieu où les artefacts magiques jonchaient le sol et où l'on trouvait des pilules à chaque pas.
 
 Surtout après avoir vu ces démons tels que le Bossu Meng à la sortie du troisième essai; cela lui avait laissé un poids oppressant sur le cœur. Wang Lin pressentait qu'il venait d'entrer dans un lieu où il n'était pas censé mettre les pieds.
 
-En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le regardaient. Il était perspicace, et après analyse, il comprit que cela devait être lié aux paroles de cette immense âme qui ressemblait à un Dévoreur d'Âmes.
+En particulier l'extase pure et nue dans les yeux de ces démons lorsqu'ils le regardaient. Wang Lin était trop intelligent: il n'eut besoin que d'un peu d'analyse pour faire le lien avec le cri de cette puissante âme errante sur le point de devenir un dévoreur d'âmes.
 
-« Auparavant, seul le Bossu Meng était apparu, mais au moment de partir, ils sont surgis en grand nombre. Ils me traquent sûrement. Cela doit avoir un lien avec la prise de conscience par cette grande âme de mon identité de dévoreur d'âmes. »
+« Auparavant, seul le Bossu Meng était apparu, mais au moment de partir, ils ont surgi en grand nombre au même endroit. Ils me traquent sûrement. Cela doit avoir un lien avec la prise de conscience par cette grande âme de mon identité de dévoreur d'âmes. »
 
 Tandis qu'il réfléchissait, son corps continuait d'avancer sans relâche. Il sentait que ces démons n'abandonneraient pas si facilement et pourraient surgir devant lui à tout moment.
 
 Sa priorité était de quitter rapidement cette étrange Terre de l'Ancien Dieu.
 
-Wang Lin frappa son sac de rangement, et un morceau de jade en apparut. Il se concentra sur la pierre, et son expression devint troublée. Il rangea le jade et commença promptement à tracer des cercles illusoires avec ses mains.
+Wang Lin frappa son sac de rangement, et un morceau de jade en apparut. Il se concentra sur la pierre, et son expression devint troublée. Il rangea le jade et exécuta promptement une série de sceaux des deux mains.
 
-Le morceau de jade contenait les enchaînements de signes gestuels nécessaires pour créer un tunnel d'évasion, comme l'avait enseigné l'Empereur Ancestral. Il fallait exécuter plus de quatre cents signes avant de pouvoir ouvrir le passage.
+Le morceau de jade contenait les enchaînements de signes gestuels nécessaires pour créer un tunnel d'évasion, comme l'avait enseigné l'Empereur Antique. Il fallait exécuter plus de quatre cents signes avant de pouvoir ouvrir le passage.
 
-Wang Lin ne remarqua aucune anomalie après la première série. Il poursuivit jusqu'à la trente-quatrième série, moment où il s'arrêta, le visage blême.
+Wang Lin ne remarqua aucune anomalie après la première série. Il poursuivit jusqu'à la trente-quatrième série, moment où il s'arrêta, le visage sombre.
 
-Cette trente-quatrième série ressemblait aux autres, mais elle consommait en réalité de l'énergie spirituelle à l'insu de l'utilisateur, provoquant une fluctuation de son énergie.
+Cette trente-quatrième série ressemblait aux autres, mais en réalité, une fois exécutée, elle mettait en mouvement malgré lui l'énergie spirituelle de son corps, avec des fluctuations qui semblaient prêtes à jaillir.
 
 Wang Lin prit un instant pour réfléchir et passa à la trente-cinquième série. Il enchaîna rapidement toutes les séquences inscrites sur le jade, l'une après l'autre.
 
@@ -96,9 +94,9 @@ Au fur et à mesure qu'il effectuait les signes, l'énergie spirituelle dans son
 
 Les yeux de Wang Lin tremblèrent alors qu'il fixait l'endroit où le tourbillon s'était formé.
 
-« Quelle technique maléfique! » murmura-t-il avec un ricanement amer. Le vortex généré par cette technique tournait dans le sens inverse des aiguilles d'une montre, alors que tous les vortex de sortie tournaient dans le sens horaire.
+« Quelle technique maléfique! » murmura-t-il avec un sourire froid. Le vortex généré par cette technique tournait dans le sens inverse des aiguilles d'une montre, alors que tous les vortex de sortie tournaient dans le sens horaire.
 
-Sans une observation attentive, la différence passait inaperçue. Quant à savoir si l'usage de cette technique pouvait réellement créer une issue, Wang Lin n'en était pas certain. En revanche, il était sûr que si deux tourbillons se rencontraient, les conséquences seraient désastreuses.
+Sans une observation attentive, la différence passait inaperçue. Quant à savoir si, en exécutant cette technique à l'emplacement d'une sortie pour former un vortex inverse, il pourrait réellement quitter cet endroit, Wang Lin n'en était pas certain. En revanche, il était sûr que si deux tourbillons se rencontraient, les conséquences seraient désastreuses.
 
 Certes, il existait une chance que la sortie soit créée par la collision des deux vortex, mais en utilisant cette méthode, Wang Lin avait remarqué qu'à partir de la trente-quatrième série, son énergie spirituelle s'emballait. Plus il enchaînait les signes, plus elle fluctuait, jusqu'à atteindre un point critique lors de la dernière séquence.
 

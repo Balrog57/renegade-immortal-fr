@@ -6,17 +6,17 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 88 - The Strange Blue Skinned Person
 slug: letrange-personnage-a-la-peau-bleue
 ---
-Touchant son ventre, Wang Lin murmura: « Je comprends enfin pourquoi on appelle cela la Méthode d'Ascension vers le Royaume des Morts. »
+Touchant son ventre, Wang Lin murmura: « Je comprends enfin pourquoi on appelle cela la Méthode d'Ascension des Enfers. »
 
-La Méthode d'Ascension vers le Royaume des Morts plonge celui qui la pratique dans un état proche de la mort. On utilise cet état, à la frontière du monde souterrain, pour faciliter l'absorption de l'énergie Yin par le corps. Cependant, si une erreur est commise, on risque de basculer véritablement dans l'au-delà.
+La Méthode d'Ascension des Enfers plonge celui qui la pratique dans un état proche de la mort. On utilise cet état, à la frontière du monde souterrain, pour faciliter l'absorption de l'énergie Yin par le corps. Cependant, si une erreur est commise, on risque de basculer véritablement dans l'au-delà.
 
-En vérité, même dans un pays de rang 6, peu de gens ont le courage de pratiquer cette méthode. Situ Nan était l'un des rares à avoir réussi à la maîtriser. Même parmi tous les cultivateurs démoniaques des pays de rang 6, elle était encore considérée comme une technique singulière.
+En vérité, même dans un pays de rang 6, peu de gens ont le courage de pratiquer cette méthode. Situ Nan était l'un des rares à avoir réussi à la maîtriser. Dans la voie démoniaque des pays de rang 6, elle était d'ailleurs surnommée la « technique étrange ».
 
-La raison pour laquelle elle est jugée si étrange réside dans l'ampleur du changement qu'elle provoque. Pour certains, cette métamorphose est bénéfique au cultivateur; pour d'autres, elle signifie la mort.
+La raison pour laquelle elle est jugée si étrange tient au nombre de ses changements bizarres. Certains sont extrêmement bénéfiques au cultivateur; d'autres dissipent sa culture et lui coûtent la vie.
 
 Wang Lin commença à vivre dans les ruines. Chaque nuit, il pratiquait et absorbait l'énergie Yin. Un mois s'était écoulé.
 
-Durant ce mois, en plus de pratiquer la Méthode d'Ascension vers le Royaume des Morts, Wang Lin remarqua que la perle défiant le ciel pouvait produire du liquide spirituel ici. Cependant, la puissance contenue dans ce liquide n'était pas une puissance spirituelle, mais une puissance Yin.
+Durant ce mois, en plus de pratiquer la Méthode d'Ascension des Enfers, Wang Lin remarqua que la perle défiant le ciel pouvait produire du liquide spirituel ici. Cependant, la puissance contenue dans ce liquide n'était pas une puissance spirituelle, mais une puissance Yin.
 
 Par conséquent, Wang Lin acquit une meilleure compréhension de la perle.
 
@@ -24,11 +24,11 @@ Wang Lin commença à collecter le liquide spirituel Yin. C'était à minuit que
 
 Après avoir consommé ce liquide, il nota que bien qu'il contienne une grande quantité d'énergie Yin, il n'atteignait pas le même niveau que l'énergie spirituelle des liquides ordinaires.
 
-Si l'on comparait l'efficacité du liquide spirituel Yin à celle des liquides spirituels ordinaires, il n'atteignait que le niveau de l'eau de neige. Il était loin d'être un liquide spirituel pur.
+Si l'on comparait l'efficacité du liquide spirituel Yin à celle des liquides spirituels ordinaires, il n'atteignait que le niveau de l'eau de neige. Il était loin d'égaler le liquide spirituel.
 
-Wang Lin savait que, pour parler franchement, la Méthode d'Ascension vers le Royaume des Morts reposait entièrement sur la quantité d'énergie Yin que l'on pouvait absorber. Plus on en absorbait, plus on devenait puissant. En conséquence, Wang Lin pénétrait dans l'espace de la perle défiant le ciel pour pratiquer avec le liquide spirituel Yin durant la journée.
+Wang Lin savait que, pour parler franchement, la Méthode d'Ascension des Enfers reposait entièrement sur la quantité d'énergie Yin que l'on pouvait absorber. Plus on en absorbait, plus on devenait puissant. En conséquence, Wang Lin pénétrait dans l'espace de la perle défiant le ciel pour pratiquer avec le liquide spirituel Yin durant la journée, tandis que la nuit, il respirait dans sa pièce.
 
-Au fil du temps, Wang Lin commença à absorber de plus en plus d'énergie Yin. Chaque fois qu'il pratiquait, il se fondait lentement dans l'énergie Yin environnante. À chaque séance, son rythme cardiaque ralentissait jusqu'à devenir si faible qu'il semblait que son cœur s'était arrêté.
+Au fil du temps, l'énergie froide dans le corps de Wang Lin augmenta peu à peu. Chaque fois qu'il pratiquait, il se fondait lentement dans l'énergie Yin environnante. À chaque séance, son rythme cardiaque ralentissait jusqu'à devenir si faible qu'il semblait que son cœur s'était arrêté.
 
 Il y eut même quelques fois où ses battements faillirent s'interrompre totalement, mais il réussit à tenir bon.
 
@@ -36,17 +36,17 @@ Un matin, Wang Lin s'éveilla de sa transe. Il prit une profonde inspiration et 
 
 Soudain, il fixa la formation brumeuse environnante et afficha un air confus. D'un revers de manche, il ouvrit un passage dans la brume.
 
-En sortant de la formation, Wang Lin vit plusieurs traces profondes s'enfonçant dans les ruines. Il se souvenait qu'il y avait là des bêtes sauvages blessées qui n'avaient pas survécu en attendant le pilier de lumière.
+En sortant de la formation, Wang Lin vit sur le sol plusieurs longues traces qui s'enfonçaient dans les ruines. Il se souvenait que la veille, il y avait là plusieurs bêtes sauvages mortes de leurs blessures avant l'arrivée du pilier de lumière.
 
 Mais désormais, les cadavres des bêtes avaient disparu. Ils semblaient avoir été traînés vers les profondeurs des ruines.
 
-« Pourrait-il encore y avoir des gens dans ces ruines? » Une pensée glaciale traversa l'esprit de Wang Lin. Si cette personne était venue pour emporter les cadavres, comment n'avait-elle pas remarqué sa présence?
+« Pourrait-il encore y avoir des gens dans ces ruines? » Une pensée glaciale traversa l'esprit de Wang Lin. L'autre avait traîné les cadavres des bêtes la nuit dernière, et lui n'avait absolument rien remarqué?
 
 Le regard de Wang Lin se fit plus sérieux. Il inspecta rapidement les environs et constata qu'il n'y avait aucun signe d'attaque sur ses formations.
 
-Il se caressa le menton. Puis, son corps jaillit comme l'éclair dans la jungle et revint avec deux carcasses de bêtes. Après les avoir jetées sur le côté, il retourna vers sa formation et projeta une lumière blanche. La brume de la formation devint plus épaisse encore et un grondement sourd se fit entendre au sein du brouillard.
+Il se caressa le menton. Puis, sans rien laisser paraître, son corps s'élança comme l'éclair dans la jungle et revint peu après en tenant deux carcasses de bêtes. Après les avoir jetées sur le côté, il retourna dans sa formation, forma un sceau de la main droite et projeta une lumière blanche. La brume autour de lui devint plus épaisse encore et l'on y entendit par moments des bruits de vent et de tonnerre.
 
-Malgré cela, Wang Lin restait inquiet, comme si une ombre gigantesque planait sur lui. Après un long moment, il se calma et déploya son Sens Divin. Il but un peu de liquide spirituel Yin et commença à pratiquer tout en surveillant vigoureusement ses environs.
+Malgré cela, Wang Lin restait inquiet, comme si une ombre gigantesque planait sur lui. Après un long moment, il se calma et déploya son Sens Divin. Il but un peu de liquide spirituel Yin et commença à pratiquer en absorbant le Yin tout en restant sur ses gardes.
 
 La nuit tomba. Cette nuit-là, Wang Lin n'absorba aucune énergie Yin, préférant concentrer toute son attention sur ce qui l'entourait. Il déploya son Sens Divin à sa portée maximale, capable de ressentir le mouvement d'un brin d'herbe à environ trois cents mètres.
 
@@ -64,7 +64,7 @@ Ses yeux se fixèrent sur l'agitation de l'énergie Yin tandis qu'il observait l
 
 Il vit que, suite au trouble de l'énergie Yin, une silhouette apparut brusquement. La vitesse de cette silhouette était fulgurante. Le Sens Divin de Wang Lin n'aperçut qu'une ombre avant que les deux carcasses ne disparaissent.
 
-Wang Lin fut surpris. Lors de cette première apparition, il put distinguer la forme de l'intrus: une créature humanoïde à la peau bleue.
+Wang Lin en fut saisi d'effroi. Lors de cette première apparition, il put distinguer la forme de l'intrus: une créature humanoïde à la peau bleue.
 
 La peau de l'individu était couverte de symboles étranges. De plus, neuf papiers jaunes d'environ un centimètre et demi étaient apposés sur différentes parties de son corps. Cet étrange personnage surprit grandement Wang Lin.
 
@@ -82,7 +82,7 @@ Peu après, des bruits de pierres se brisant retentirent alors que les formation
 
 Wang Lin ouvrit la bouche et cracha une lumière verte. Dès son apparition, elle fendit l'air comme un éclair. Dans un fracas, la lumière verte frappa l'étranger, qui poussa un rugissement de colère. Une force puissante se propagea, projetant les pierres dans les airs avant de les réduire en poussière.
 
-Alors que la brume se dissipait rapidement, l'étranger repéra Wang Lin. Ses yeux étaient injectés de sang alors qu'il marchait vers lui.
+Alors que la brume se dissipait rapidement, l'étranger repéra Wang Lin. Ses yeux brillaient d'une soif de sang et il avança vers lui avec un rictus féroce.
 
 L'expression de Wang Lin resta impassible. Il fit un mouvement de la main droite et l'épée verte apparut derrière l'étranger. L'arme transperça le cœur de l'individu, faisant jaillir du sang bleu de sa poitrine.
 
@@ -90,25 +90,25 @@ Dès que le sang apparut, il se transforma en cristaux de glace avant de tomber 
 
 L'étranger poussa un gémissement de douleur et recula précipitamment de quelques pas, affichant une expression horrifiée.
 
-Le cœur de Wang Lin sombra. L'étranger, malgré l'attaque de l'épée volante, était encore capable de bouger. Une lueur froide passa dans ses yeux alors qu'il frappait son sac de rangement, faisant apparaître un ancien fourreau d'épée dans sa main.
+Le cœur de Wang Lin sombra. L'étranger, malgré l'attaque de l'épée volante, était encore capable de bouger. Une lueur froide passa dans ses yeux alors qu'il frappait son sac de rangement, et un fourreau d'épée d'allure antique et sobre s'en échappa.
 
 L'épée verte s'engouffra rapidement dans le fourreau sur environ deux cinquièmes de sa longueur. La lame changea brusquement de couleur, passant du vert au bleu, puis du bleu au noir. L'épée jaillit du fourreau et fendit l'air vers l'étranger avec rapidité.
 
-En voyant l'épée noire, l'étranger fut saisi d'effroi. Juste au moment où il allait reculer, la lame noire se précipita et lui transperça la poitrine. Une série d'explosions secoua le corps de l'individu, le projetant en arrière comme un cerf-volant à la ficelle rompue.
+En voyant l'épée noire, l'étranger fut saisi d'effroi. Juste au moment où il allait esquiver, la lame noire se précipita et lui transperça la poitrine. Une série d'explosions secoua le corps de l'individu, le projetant en arrière comme un cerf-volant à la ficelle rompue.
 
 Après avoir été tachée par le sang de l'étranger, l'épée volante resta coincée dans son corps. Malgré la volonté de Wang Lin, elle ne bougeait pas et avait même perdu sa capacité de téléportation.
 
 Choqué, l'intention meurtrière de Wang Lin s'intensifia. Il avait remarqué que, lorsque l'épée transperçait l'étranger, les étranges symboles sur son corps brillaient. L'individu avait manifestement utilisé une technique pour bloquer le coup.
 
-Sans un mot, il frappa son sac de rangement et sortit le talisman jaune obtenu de Zhang Hu. Soudain, les pupilles de Wang Lin se rétractèrent. Il vit le corps de l'étranger pivoter selon un angle inimaginable en plein vol avant de se poser sur un genou. Une large blessure béante sur sa poitrine projetait d'importantes quantités de sang bleu.
+Sans un mot, il frappa son sac de rangement et sortit le talisman de papier obtenu de Zhang Hu et se lança à sa poursuite. Soudain, les pupilles de Wang Lin se rétractèrent. Il vit le corps de l'étranger pivoter selon un angle inimaginable en plein vol avant de se poser sur un genou. Sur sa poitrine béait une blessure grosse comme un bol, d'où s'écoulaient d'importantes quantités de sang bleu.
 
 Les symboles sur son corps clignotaient de manière chaotique. Tandis qu'ils luisaient, sa blessure se refermait rapidement.
 
-Wang Lin ne cilla pas. Il cracha une bouffée de puissance spirituelle dans le talisman jaune. Ce dernier explosa en de violentes flammes noires qui frappèrent la zone blessée de l'étranger.
+Wang Lin ne cilla pas. Il cracha une bouffée d'énergie spirituelle et lança le talisman de papier. Celui-ci s'embrasa aussitôt et se changea en un trait de lumière noire dégageant une forte vague de chaleur, qui frappa de nouveau en un instant la plaie de l'étranger à la poitrine.
 
 L'individu poussa un cri de douleur alors que son corps était à nouveau transpercé.
 
-« Toujours pas mort! » Le cœur de Wang Lin s'effondra. Malgré de tels dégâts, il restait en vie. Ce qui rassura quelque peu Wang Lin fut qu'après l'impact du talisman, l'épée parvint à se libérer pour revenir à ses côtés.
+« Toujours pas mort! » Le cœur de Wang Lin s'effondra. Malgré de tels dégâts, il restait en vie. Ce qui rassura quelque peu Wang Lin fut qu'après l'attaque du talisman, l'épée collée au corps de l'étranger parvint enfin, dans un éclair de lumière noire, à se libérer et revint en tournoyant.
 
 Le regard de l'étranger trahissait une lutte désespérée. Soudain, il arracha l'un des neuf papiers jaunes. Au moment où le papier fut déchiré, un gaz vert jaillit de tout son corps et l'enveloppa complètement.
 
@@ -120,4 +120,4 @@ Les trois cinquièmes représentaient la limite de ce que Wang Lin pouvait accom
 
 Il fixa Wang Lin avec haine, bien qu'il ressente manifestement une grande crainte envers lui, principalement à cause de cette épée volante.
 
-« Qui es-tu? » Wang Lin n'attaqua pas immédiatement. L'autre possédait neuf talismans; l'utilisation de l'un d'eux lui permettait de se rétablir totalement d'un état proche de la mort. Cette bataille serait extrêmement longue pour Wang Lin s'il voulait l'emporter.
+« Qui es-tu? » Wang Lin n'attaqua pas immédiatement. L'autre portait neuf papiers jaunes, et en arracher un seul lui permettait de se rétablir d'un état proche de la mort. Dans ces conditions, ce combat ne pourrait certainement pas être tranché en peu de temps.

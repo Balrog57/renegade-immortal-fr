@@ -44,7 +44,7 @@ Plus important encore, avec le temps, il sentait une puissance terrifiante croî
 
 « Mauvais oncle, regarde comme Petit Blanc est maigre. Nous avons dû manger des fruits pendant des mois! » Elle regarda Wang Lin avec une profonde insatisfaction. Non seulement Petit Blanc, mais elle-même s'était considérablement affinée.
 
-Wang Lin se frotta le nez. Il avait effectivement oublié ce détail. Après tout, n'ayant pas eu besoin de manger depuis 400 ans, il en avait oublié que Zhou Ru, elle, avait toujours besoin de nourriture.
+Wang Lin se frotta le nez. Il avait effectivement oublié ce détail. Après tout, n'ayant presque plus mangé de nourriture mortelle depuis plus de 400 ans, il en avait oublié que Zhou Ru, elle, avait toujours besoin de manger.
 
 Heureusement, lorsqu'il avait envoyé Zhou Ru dans la pagode, il lui avait donné de nombreux fruits spirituels en guise de collation. De plus, l'énergie spirituelle céleste à l'intérieur de la tour était si dense que, tant qu'on ne l'absorbait pas directement, elle permettait de se passer de nourriture.
 
@@ -76,7 +76,7 @@ Des larmes coulèrent sur le visage de Zhou Ru alors qu'elle se mettait à pleur
 
 Wang Lin fixa Zhou Ru. Il resta incapable de prononcer un mot pendant un long moment avant de finir par dire: « La petite Ru Er n'est pas un monstre, non. »
 
-Zhou Ru se jeta dans les bras de Wang Lin. S'accrochant à ses vêtements, elle dit: « Oncle, je sens que la petite personne dans mon corps est comme... comme la grande sœur de mes rêves. C'est elle, cette petite personne. Oncle, la petite Ru Er a peur. Peux-tu la faire sortir... » Sa petite main serrait fermement les vêtements de Wang Lin, comme si celui-ci allait disparaître si elle lâchait prise. Elle avait peur... et c'était le seul moyen pour elle de se sentir en sécurité.
+Zhou Ru se jeta dans les bras de Wang Lin. S'accrochant à ses vêtements, elle dit: « Oncle, quand je rêve, je sens que la petite personne dans mon corps semble bouger, comme si... comme si la grande sœur de mes rêves était cette petite personne. Oncle, la petite Ru Er a peur. Peux-tu la faire sortir... » Sa petite main serrait fermement les vêtements de Wang Lin, comme si celui-ci allait disparaître si elle lâchait prise. Elle avait peur... et c'était le seul moyen pour elle de se sentir en sécurité.
 
 Le corps de Wang Lin trembla. À cet instant, il eut l'impression d'avoir été frappé par la foudre.
 
@@ -116,6 +116,6 @@ Le corps de Petit Blanc trembla tandis qu'il poussait un gémissement pitoyable 
 
 Tandis qu'ils volaient, les yeux de Zhou Ru restaient fixés sur Wang Lin. Retenant ses larmes, elle pensa intérieurement: « Oncle, la petite Ru Er a déjà 13 ans. Il y a des choses que je commence à comprendre. Tu es différent de grand-père Tie Yan. Quand tu me regardes, ce n'est pas moi que tu vois, mais la petite personne en moi. Grand-père Tie Yan n'était pas ainsi. Lui, il me regardait, moi... »
 
-« Je sais que lorsque tu m'as sauvée de ce mauvais cultivateur, ce n'était pas pour moi, mais pour la grande sœur qui est en moi... »
+« Je sais que lorsque tu m'as sauvée de ce mauvais daoïste, ce n'était pas pour moi, mais pour la grande sœur qui est en moi... »
 
 « La grande sœur que j'ai vue dans mes rêves est très jolie, mais je crois qu'en grandissant, je serai encore plus belle. Alors oncle, ne me quitte pas... »

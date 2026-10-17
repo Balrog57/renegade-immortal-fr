@@ -14,7 +14,7 @@ En vérité, des rumeurs circulaient selon lesquelles le Clan des Démons Géant
 
 Lorsque l'ancêtre utilisa sa culture de la Transformation de l'Âme pour revendiquer le statut de pays de culture de rang 5, la rumeur fut confirmée.
 
-Le Clan des Démons Géants n'était pas originaire de Suzaku; ils s'y étaient installés. Chi Hu était capable de lutter contre un expert du stade tardif de la Formation de l'Âme alors qu'il n'était qu'au stade intermédiaire de ce même niveau, ce qui témoignait de leur immense puissance.
+Le Clan des Démons Géants n'était pas originaire de Suzaku; ils avaient migré depuis l'extérieur de la planète, il y a d'innombrables années. Chi Hu était capable de lutter contre un expert du stade tardif de la Formation de l'Âme alors qu'il n'était qu'au stade intermédiaire de ce même niveau, ce qui témoignait de leur immense puissance.
 
 Le pouvoir inné du Clan des Démons Géants subit une mutation lorsqu'ils atteignent le stade de la Transformation de l'Âme. Le fait qu'un Ascendant de Suzaku se soit déplacé personnellement pour acter l'élévation du rang de leur pays démontrait l'ampleur de cette puissance.
 
@@ -50,7 +50,7 @@ Wang Lin apparut lentement sur l'autel, suivi par Feng Yushan. Ce dernier poussa
 
 Une autre personne se tenait sur l'autel aux côtés de Wang Lin et Feng Yushan.
 
-Cette femme portait une robe violette ornée d'un papillon pourpre sur un lys. Elle arborait un voile bleu, clair et transparent comme par enchantement. Son regard exhalait une profonde élégance, son nez était fin et ses lèvres étaient petites et rouges.
+Cette femme portait une robe violette ornée d'un papillon pourpre sur un lys. Elle arborait un voile bleu, clair et transparent comme par enchantement. Son regard paisible donnait une impression de quiétude, son nez était haut et droit et ses lèvres étaient fines et d'un rouge pâle.
 
 Elle se tenait là, silencieuse, le regard posé sur Wang Lin.
 
@@ -60,9 +60,9 @@ La femme hocha doucement sa jolie tête et demanda: « Est-ce bien le cultivateu
 
 Wang Lin observa la femme. Sa beauté ne l'intimidait guère. Il joignit les mains et répondit: « Je suis Ceng Niu. »
 
-« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte du Chemin de l'Immortel. Mon nom de famille est White et mon prénom est Snow. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
+« Cher cultivateur Ceng, cette jeune fille est une disciple de la Secte du Chemin de l'Immortel. Mon nom de famille est Blanc et mon prénom est Neige. » La femme sourit. Sa peau était aussi blanche que la neige et deux mèches de ses longs cheveux noirs, longs d'un mètre, retombaient sur sa poitrine. Le reste de sa chevelure était relevé en un chignon au sommet de sa tête.
 
-« Ma maîtresse m'a ordonné de vous attendre ici, afin de vous conduire jusqu'à elle. »
+« Mon maître m'a ordonné de vous attendre ici, afin de vous conduire jusqu'à lui. »
 
 L'expression de Wang Lin resta impassible. Il la regarda et demanda: « La Secte du Chemin de l'Immortel? »
 
@@ -86,15 +86,15 @@ Wang Lin détourna son regard de la vue sur Suzaku et secoua la tête: « Aucune
 
 Neige Blanche fut stupéfaite, mais elle sourit: « Le cultivateur Ceng n'a pas besoin de faire preuve de modestie. »
 
-Wang Lin ne prêta plus attention à la femme et observa attentivement le paysage en contrebas. Il mémorisa avec soin la configuration des lieux, car sa pierre de jade n'offrait qu'une description très vague de Suzaku.
+Wang Lin ne prêta plus attention à la femme et observa attentivement le paysage en contrebas. Il mémorisa avec soin la configuration des lieux, car sa tablette de jade cartographique n'offrait qu'une description très vague de Suzaku.
 
 Bien que Wang Lin soupçonnât secrètement que Suzaku tentait de le recruter comme disciple central, il restait sur ses gardes.
 
-Il réfléchit un instant et demanda: « Cher cultivatrice Neige Blanche, quelles sont les sectes présentes à Suzaku? »
+Il réfléchit un instant et demanda: « Chère cultivatrice Neige Blanche, quelles sont les sectes présentes à Suzaku? »
 
 La voix de Neige Blanche était mélodieuse. Après ses explications, Wang Lin eut une vision globale du pays.
 
-« La sœur cadette Papillon Rouge est une disciple de la Secte du Jade Céleste. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de sa maîtresse, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
+« La sœur cadette Papillon Rouge est une disciple de la Secte du Jade Céleste. » Sur ces mots, Neige Blanche soupira en regardant Ceng Niu. D'après ce qu'elle avait entendu de son maître, il semblait que le Mont Suzaku souhaitait que cet homme rejoigne sa secte après le combat.
 
 Le regard de Wang Lin resta calme et il garda le silence.
 
@@ -124,7 +124,7 @@ Peu de temps après, la grue pénétra dans une montagne dont la forme rappelait
 
 Wang Lin descendit de l'oiseau.
 
-Une fois au sol, Neige Blanche murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de ma maîtresse. Elle est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Ma maîtresse vous recevra lorsqu'elle sera prête. »
+Une fois au sol, Neige Blanche murmura: « Cher cultivateur Ceng, ceci n'est pas la Secte du Chemin de l'Immortel, mais la grotte immortelle personnelle de mon maître. Il est actuellement en pleine culture. Choisissez une chambre parmi les trois rangées du nord. Mon maître vous recevra lorsqu'il sera prêt. »
 
 Sur ces mots, elle joignit les mains devant Wang Lin et disparut parmi les habitations.
 
@@ -138,7 +138,7 @@ Tout avait été préparé pour lui dans la pièce. Wang Lin s'y assit et commen
 
 Depuis son entrée à Suzaku, il ressentait un sentiment de danger. Bien que ténu, il était bien réel. Wang Lin savait qu'avec son niveau actuel, de nombreuses personnes à Suzaku pouvaient l'abattre. N'importe quel cultivateur de la Transformation de l'Âme pouvait le tuer.
 
-L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que la maîtresse de Neige Blanche allait bientôt le recevoir.
+L'attitude de Suzaku à son égard lui semblait très étrange. Il était suspect que l'on lui ait envoyé quelqu'un pour l'accueillir, et il semblait que le maître de Neige Blanche allait bientôt le recevoir.
 
 Après avoir médité un moment, Wang Lin ferma les yeux et commença sa culture.
 

@@ -42,7 +42,7 @@ En un clin d'œil, une année s'écoula. Soit parce que les formations célestes
 
 L'ensemble de l'Alliance des Quatre Sectes était recouvert de blanc. Au cours de cette année, un grand nombre de mortels avaient péri. Bien que les cadavres ne soient pas toujours visibles, chaque pas s'effectuait entre la neige et les corps. Le monde mortel de l'Alliance des Quatre Sectes s'était transformé en une vaste tombe.
 
-En réalité, l'Alliance des Quatre Sectes s'était scindée en deux factions: l'une souhaitait se terrer pour attendre que l'orage passe, tandis que l'autre voulait combattre jusqu'au bout. Après tout, Xue Yu était également un pays de culture de rang 4.
+En réalité, l'Alliance des Quatre Sectes s'était scindée en deux factions: l'une souhaitait se terrer pour attendre que l'orage passe, tandis que l'autre voulait combattre jusqu'au bout. Après tout, les forces n'étaient pas inégales: Xue Yu n'était lui aussi qu'un pays de culture de rang 4.
 
 Un jour, une immense aura glaciale s'échappa des failles du ciel, et une jeune fille émergea de l'une d'elles, au centre de l'Alliance des Quatre Sectes.
 
@@ -60,7 +60,7 @@ Pendant ce temps, aucun des innombrables cultivateurs de l'Alliance ne fit acte 
 
 Peu à peu, les cultivateurs de Xue Yu se multiplièrent. Aucun ne prononça un mot. Leurs regards étaient tous braqués sur la jeune fille en blanc. Même ceux qui étaient loin ne quittaient pas la silhouette du regard.
 
-Les yeux de la jeune fille restèrent de glace alors qu'elle pointait le sol. Ce geste simple commanda à tous les cultivateurs de Xue Yu de descendre du ciel sous la forme de faisceaux de lumière blanche.
+Les yeux de la jeune fille restèrent de glace alors qu'elle pointait le sol. Ce geste simple suffit à déchaîner l'intention meurtrière de tous les cultivateurs de Xue Yu, qui descendirent du ciel sous la forme de faisceaux de lumière blanche.
 
 Le mouvement des premiers provoqua une réaction en chaîne: tous les membres de Xue Yu entamèrent leur descente.
 
@@ -72,7 +72,7 @@ En regardant de près ces géants, on pouvait apercevoir un cultivateur logé da
 
 Ces barbares antiques sortirent des piliers un à un et chargèrent les troupes de Xue Yu. Ils étaient légion, et chaque pas qu'ils faisaient semblait faire trembler la terre et le ciel.
 
-Tandis que ces barbares s'élançaient, un rugissement de colère retentit depuis le Nuage Blanc, à l'est.
+Tandis que ces barbares s'élançaient, un rugissement de colère retentit depuis la Secte du Nuage Blanc, à l'est.
 
 Un immense rocher noir flottait dans les airs. Sur ce bloc était retenu un vieil homme par neuf chaînes. Son visage était jaunâtre et son corps d'une maigreur extrême. Il exhalait une aura de mort et n'était couvert que par quelques lambeaux de tissu.
 
@@ -80,7 +80,7 @@ Ses cheveux étaient ébouriffés alors qu'il fixait les cultivateurs de Xue Yu 
 
 Peu après, un rugissement monta de la Secte de l'Encre d'Eau, au sud. Un colossal chaudron de bronze s'éleva lentement vers le ciel depuis la montagne arrière de la secte. D'innombrables sorts étaient gravés sur sa paroi, et une aura primitive s'en dégageait. Un vieil homme vêtu d'une robe rouge était assis au sommet du chaudron, observant le ciel avec calme.
 
-La Secte du Bois Vert, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire s'éleva dans les airs depuis la Secte du Bois Vert. La boue bouillonnait, et par intermittence, des visages éructant la souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
+La Secte du Bois Vert, à l'ouest, ne voulut pas non plus rester en retrait. Tandis que les rugissements venaient de l'est et du sud, une immense mare de boue noire s'éleva dans les airs depuis la Secte du Bois Vert. La boue bouillonnait, et par intermittence, des visages emplis de souffrance apparaissaient à sa surface. À l'apparition de cette substance, même la neige environnante sembla frémir.
 
 L'instant suivant, un jeune homme à l'allure fragile de la Secte de l'Âme Noire apparut au nord, accompagné par les cris nets et ordonnés d'une troupe de jeunes hommes. Il était d'une pâleur extrême, comme s'il sortait d'une longue maladie.
 
@@ -88,7 +88,7 @@ Alors que son corps flottait dans les airs, il agita la main droite pour invoque
 
 Ce pinceau d'apparence ordinaire flotta lentement vers la main du jeune homme. Dès qu'il le saisit, une couleur rouge et saine revint sur son visage.
 
-Comment l'Alliance des Quatre Sectes aurait-elle pu ne rien préparer durant ces années? En vérité, ils attendaient tous. Face à ce désastre capable de dévaster un pays, ils sortaient les derniers atouts de leurs sectes pour riposter.
+Comment l'Alliance des Quatre Sectes aurait-elle pu ne rien préparer durant cette année et plus? En vérité, ils attendaient tous. Face à ce désastre capable de dévaster un pays, ils sortaient les derniers atouts de leurs sectes pour riposter.
 
 Après tout, la majorité des cultivateurs de l'Alliance avaient grandi sur cette terre. Bien que leurs opinions fussent divisées à l'annonce de l'invasion de Xue Yu, ils s'étaient finalement unis pour combattre les envahisseurs. Ils ne voulaient pas devenir des chiens errants, ni être ceux qui sont incapables de protéger leur foyer.
 

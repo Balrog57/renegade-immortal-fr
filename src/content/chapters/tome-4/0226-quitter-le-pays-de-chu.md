@@ -8,7 +8,7 @@ slug: quitter-le-pays-de-chu
 ---
 L'un des vieux hommes agita ses manches sans dire un mot. Soudain, d'innombrables nuages sombres apparurent dans le ciel. Si l'on regardait attentivement les nuages, on remarquerait qu'ils étaient composés d'insectes de la taille du pouce. Tous ces insectes rassemblés ensemble faisaient sentir une odeur de poisson dans le vent.
 
-Les cultivateurs de l'Âme Naissante des autres sectes reconnurent immédiatement ce nuage noir comme l'un des trésors célèbres de Cheng Bailiang, un ancêtre de la Secte Ciel Nuageux: les Insectes d'Encre Violette.
+Les cultivateurs de l'Âme Naissante des autres sectes reconnurent immédiatement ce nuage noir comme l'un des trésors célèbres de Chen Bailiang, un ancêtre de la Secte Ciel Nuageux: les Insectes d'Encre Violette.
 
 Non seulement les Insectes d'Encre Violette contenaient un poison extrêmement mortel, mais leur carapace était également très épaisse. Les trésors ordinaires ne pourraient pas les blesser. Une fois entourés par eux, il ne leur faudrait que quelques respirations pour être complètement dévorés. Il ne resterait même pas vos os.
 
@@ -22,25 +22,25 @@ Au moment où les nuages noirs apparurent, Wang Lin jeta Liu Fei sur le côté. 
 
 Simultanément, le Royaume Ji de Wang Lin se manifesta. La puissante pression revint, faisant changer soudainement l'expression des cinq ancêtres de la Secte Ciel Nuageux. Ils sortirent rapidement divers trésors pour se protéger.
 
-Le Royaume Ji lança un éclair rouge qui perça les nuages noirs et chargea vers le front de Cheng Bailiang.
+Le Royaume Ji lança un éclair rouge qui perça les nuages noirs et chargea vers le front de Chen Bailiang.
 
-Cheng Bailiang était un cultivateur de l'Âme Naissante au stade avancé, il pouvait donc sentir que cet éclair rouge contenait la puissance nécessaire pour détruire tout ce qu'il touchait. Dans ce moment critique, son corps recula rapidement. Ses yeux s'écarquillèrent soudainement tandis que sa main formait des sceaux; son Âme Naissante apparut au-dessus de sa tête et commença également à former des sceaux.
+Chen Bailiang était un cultivateur de l'Âme Naissante au stade avancé, il pouvait donc sentir que cet éclair rouge contenait la puissance nécessaire pour détruire tout ce qu'il touchait. Dans ce moment critique, son corps recula rapidement. Ses yeux s'écarquillèrent soudainement tandis que sa main formait des sceaux; son Âme Naissante apparut au-dessus de sa tête et commença également à former des sceaux.
 
 Des couches de défenses furent érigées pour bloquer l'éclair rouge, mais celui-ci brisa chaque couche avec facilité.
 
-Cheng Bailiang n'hésita pas. Il mordit le bout de sa langue et cracha du sang. Son Âme Naissante expulsa de l'essence de l'Âme Naissante alors qu'il criait: « Bouclier de Sang! »
+Chen Bailiang n'hésita pas. Il mordit le bout de sa langue et cracha du sang. Son Âme Naissante expulsa de l'essence de l'Âme Naissante alors qu'il criait: « Bouclier de Sang! »
 
 Instantanément, le sang et l'essence de l'Âme Naissante fusionnèrent pour former une perle de sang. L'éclair rouge arriva en un éclair et pénétra dans la perle.
 
-Cheng Bailiang hurla: « Brise-Vide! » Ses cheveux blancs s'agitèrent sans vent et une faille spatiale apparut à côté de la perle de sang. Une lumière noire jaillit de la faille alors que la perle, ainsi que l'éclair rouge à l'intérieur, furent aspirés. Au moment où la perle entra dans la faille, celle-ci se referma.
+Chen Bailiang hurla: « Brise-Vide! » Ses cheveux blancs s'agitèrent sans vent et une faille spatiale apparut à côté de la perle de sang. Une lumière noire jaillit de la faille alors que la perle, ainsi que l'éclair rouge à l'intérieur, furent aspirés. Au moment où la perle entra dans la faille, celle-ci se referma.
 
-Le front de Cheng Bailiang était couvert de sueur froide. Il venait de frôler les portes de l'enfer pour faire demi-tour. S'il avait été plus lent, il serait mort.
+Le front de Chen Bailiang était couvert de sueur froide. Il venait de frôler les portes de l'enfer pour faire demi-tour. S'il avait été plus lent, il serait mort.
 
 Les quatre cultivateurs de l'Âme Naissante derrière lui montrèrent tous des signes de peur.
 
-Wang Lin ne dit toujours pas un mot en observant Cheng Bailiang. Il soupira secrètement. Les cultivateurs de l'Âme Naissante au stade avancé n'étaient pas comme les autres. C'était la première fois que son Royaume Ji était arrêté par quelqu'un.
+Wang Lin ne dit toujours pas un mot en observant Chen Bailiang. Il soupira secrètement. Les cultivateurs de l'Âme Naissante au stade avancé n'étaient pas comme les autres. C'était la première fois que son Royaume Ji était arrêté par quelqu'un.
 
-Cheng Bailiang prit une profonde inspiration. Son expression était sérieuse lorsqu'il dit d'une voix sombre: « Quel trésor puissant! Mais maintenant que le trésor a été envoyé dans la faille dimensionnelle, je veux voir quelles autres techniques vous possédez! Insectes d'Encre Violette, dévorez cette personne ainsi que cette salope! » Cheng Bailiang agita sa main droite et le nuage noir chargea immédiatement vers Wang Lin et Li Muwan.
+Chen Bailiang prit une profonde inspiration. Son expression était sérieuse lorsqu'il dit d'une voix sombre: « Quel trésor puissant! Mais maintenant que le trésor a été envoyé dans la faille dimensionnelle, je veux voir quelles autres techniques vous possédez! Insectes d'Encre Violette, dévorez cette personne ainsi que cette salope! » Chen Bailiang agita sa main droite et le nuage noir chargea immédiatement vers Wang Lin et Li Muwan.
 
 Li Muwan afficha une expression surprise. Elle toucha son sac de rangement et s'apprêtait à riposter lorsque Wang Lin dit: « Pas besoin. »
 
@@ -50,15 +50,15 @@ En même temps, le drapeau de restriction autour de Wang Lin s'étendit jusqu'à
 
 Des rayons de lumière de restriction brillaient constamment à l'intérieur. Peu importe à quel point ces insectes se débattaient, ils ne pouvaient échapper au drapeau.
 
-Le visage de Cheng Bailiang était pâle. Il fixa Wang Lin et dit mot pour mot: « Qui êtes-vous? Avec une telle capacité, je ne pense pas que vous fassiez cela pour une simple alchimiste. Veuillez nous révéler votre but. »
+Le visage de Chen Bailiang était pâle. Il fixa Wang Lin et dit mot pour mot: « Qui êtes-vous? Avec une telle capacité, je ne pense pas que vous fassiez cela pour une simple alchimiste. Veuillez nous révéler votre but. »
 
 Wang Lin répondit calmement: « Je veux la Secte Ciel Nuageux! »
 
-Cheng Bailiang laissa échapper un rire hystérique. Il dit d'un ton moqueur: « Vous êtes trop arrogant. Même si nous cinq ne pouvons pas résister à votre trésor d'éclair rouge, si nous faisons équipe, nous pourrons encore vous blesser sérieusement... »
+Chen Bailiang laissa échapper un rire hystérique. Il dit d'un ton moqueur: « Vous êtes trop arrogant. Même si nous cinq ne pouvons pas résister à votre trésor d'éclair rouge, si nous faisons équipe, nous pourrons encore vous blesser sérieusement... »
 
 Avant qu'il n'ait pu finir, Wang Lin leva la main et une ligne rouge apparut sur sa paume. À l'instant où cette lumière rouge jaillit, le ciel changea soudainement et des nuages rouges semblèrent se rassembler. Cette scène ressemblait étrangement à la foudre de la rétribution divine dans la Mer des Démons.
 
-Cheng Bailiang s'interrompit immédiatement. Il fixa la ligne rouge en inspirant une bouffée d'air froid. À cet instant, les quatre cultivateurs de l'Âme Naissante derrière lui se redressèrent et fixèrent la lumière rouge. L'un des ancêtres, un vieil homme aux allures féeriques, s'exclama soudain: « Ceci... ceci est cela... » Puis, il leva les yeux vers les nuages rouges dans le ciel, le visage horrifié.
+Chen Bailiang s'interrompit immédiatement. Il fixa la ligne rouge en inspirant une bouffée d'air froid. À cet instant, les quatre cultivateurs de l'Âme Naissante derrière lui s'avancèrent et fixèrent la lumière rouge. L'un des ancêtres, un vieil homme aux allures féeriques, s'exclama soudain: « Ceci... ceci est cela... » Puis, il leva les yeux vers les nuages rouges dans le ciel, le visage horrifié.
 
 L'expression de Wang Lin restait calme alors qu'il disait lentement: « C'est exact. Même avec mon niveau de culture, si vous cinq m'attaquez de front, même si je parvenais à en tuer quelques-uns, je serais gravement blessé. Mais si j'utilise ce trésor, le résultat sera différent. Il s'agit de la foudre de la rétribution divine. Je suis curieux de savoir si vous cinq réunis pouvez repousser cette foudre. »
 
@@ -74,23 +74,23 @@ Les cinq hommes levèrent les yeux, le visage paniqué.
 
 Alors qu'il lançait le fil rouge, le corps de Wang Lin s'élança, son Royaume Ji jaillissant à nouveau, suivi de près par le drapeau de restriction.
 
-L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Royaume Ji s'abattit sur Cheng Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de rétribution divine.
+L'expression des cinq cultivateurs de l'Âme Naissante changea brusquement. Ils tentèrent de reculer, mais ils furent d'un pas trop lents. Le Royaume Ji s'abattit sur Chen Bailiang et, cette fois, il n'eut pas le temps de résister. L'homme qui était pourtant toujours sur ses gardes laissa une faille dans sa défense lorsque Wang Lin lança la foudre de rétribution divine.
 
-Le visage de Cheng Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il put utiliser sa culture pour rediriger la destruction du Royaume Ji vers sa propre conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
+Le visage de Chen Bailiang devint livide et son regard se voila, mais en tant que cultivateur de l'Âme Naissante au stade avancé, il parvint, par la seule force de sa culture, à arrêter la destruction du Royaume Ji dans sa mer de conscience. Son corps s'effondra soudainement au sol et il commença à cultiver frénétiquement. Il ne pouvait plus se soucier de rien d'autre; s'il avait été plus lent, il serait mort. Même maintenant, il n'était pas sûr de pouvoir stopper la destruction de l'éclair rouge dans son âme.
 
-Song Qing et les autres anciens accoururent pour protéger Cheng Bailiang.
+Song Qing et les autres anciens accoururent pour protéger Chen Bailiang.
 
 Le drapeau de restriction suivit de près le Royaume Ji, atteignant un autre cultivateur de l'Âme Naissante avant de l'encercler.
 
-L'expression du cultivateur était sombre, mais tant qu'il n'était pas confronté à l'éclair rouge, il ne craignait rien outre mesure. Mais juste au moment où il allait s'extraire de l'obscurité, tout devint soudainement noir. Il réalisa qu'il venait d'entrer dans une sorte de restriction.
+L'expression du cultivateur était sombre, mais tant qu'il n'était pas confronté à l'éclair rouge, il ne craignait rien outre mesure. Mais juste au moment où il allait sortir du rideau noir, tout devint soudainement noir. Il réalisa qu'il venait d'entrer dans une sorte de restriction.
 
-Tout cela se produisit avec une rapidité fulgurante. Presque au même instant où Wang Lin lança la foudre divine, il attaqua Cheng Bailiang avec son Royaume Ji et piégea un autre cultivateur avec son drapeau.
+Tout cela se produisit avec une rapidité fulgurante. Presque au même instant où Wang Lin lança la foudre divine, il attaqua Chen Bailiang avec son Royaume Ji et piégea un autre cultivateur avec son drapeau.
 
 En conséquence, il ne restait plus que trois personnes.
 
 Wang Lin fit un geste vers la ligne rouge qui s'était élevée au ciel, et celle-ci revint dans sa main. Il fixa les trois cultivateurs de l'Âme Naissante au stade avancé et dit lentement: « Maintenant qu'il n'en reste que trois, même si vous faites équipe, je suis certain de pouvoir vous tuer un par un. »
 
-Les visages des trois ancêtres devinrent lugubres. L'un d'eux regarda Cheng Bailiang, immobile en pleine culture, et l'autre, piégé dans le drapeau de restriction. Son cœur ne put s'empêcher de sombrer.
+Les visages des trois ancêtres devinrent lugubres. L'un d'eux regarda Chen Bailiang, immobile en pleine culture, et l'autre, piégé dans le drapeau de restriction. Son cœur ne put s'empêcher de sombrer.
 
 Le regard de Wang Lin se glaça alors qu'il disait froidement: « Donnez-moi votre sang d'âme, ou sinon! »
 
@@ -100,19 +100,19 @@ Les yeux de Wang Lin brillèrent et il répondit doucement: « Je n'ai aucune ra
 
 Sur ces mots, Wang Lin pointa son front, et le démon Xu Liguo ainsi que le second démon apparurent. Une fois sortis, les deux démons tournèrent leurs regards vers les trois cultivateurs de l'Âme Naissante.
 
-Au même moment, Cheng Bailiang, qui tentait de cultiver au sol, s'écroula. Un ancêtre de la Secte Ciel Nuageux venait de mourir.
+Au même moment, Chen Bailiang, qui tentait de cultiver au sol, s'écroula. Un ancêtre de la Secte Ciel Nuageux venait de mourir.
 
 À sa mort, le visage des trois survivants se décomposa. L'un des ancêtres hésita un instant, puis dit avec amertume: « Si je vous donne mon sang d'âme, c'est la même chose que la mort. Autant prendre le risque et me battre. Ainsi, même si je meurs, je n'aurai aucun regret. »
 
 L'expression de Wang Lin resta calme: « Donnez-moi votre sang d'âme. Dans 500 ans, je vous le rendrai. »
 
-Le vieil homme sembla lutter intérieurement. Après un long moment, il soupira: « J'espère que vous tiendrez votre promesse. » Puis, regardant tristement ses compagnons, il pointa son front et une goutte de sang doré apparut. Une fois le sang reçu, Wang Lin se posa au sol en silence.
+Le vieil homme sembla lutter intérieurement. Après un long moment, il soupira: « J'espère que vous tiendrez votre promesse. » Puis, regardant tristement ses compagnons, il pointa son front et une goutte de sang doré apparut. Une fois le sang saisi par Wang Lin, le vieil homme se posa au sol en silence.
 
-Le vieil homme aux allures féeriques laissa échapper un sourire amer et regarda les autres ancêtres. L'un d'eux, voyant le corps de Cheng Bailiang, soupira: « Très bien! Très bien! » Il pointa son doigt vers son front et remit son sang d'âme. Il s'assit au sol et commença à cultiver les yeux fermés, délaissant tout le reste.
+Le vieil homme aux allures féeriques laissa échapper un sourire amer et regarda les autres ancêtres. L'un d'eux, voyant le corps de Chen Bailiang, soupira: « Soit! Soit! » Il pointa son doigt vers son front et remit son sang d'âme. Il s'assit au sol et commença à cultiver les yeux fermés, délaissant tout le reste.
 
 À ce stade, seul le vieil homme aux allures féeriques restait. Il réfléchit un instant, puis désigna la personne piégée dans le drapeau de restriction. Il dit avec un sourire amer: « Pourriez-vous s'il vous plaît ne pas tuer Yun Tianzi? »
 
-Wang Lin agita la main droite. Une fissure apparut immédiatement dans le drapeau et Yun Tianzi s'en échappa rapidement. Le visage de Yun Tianzi était sombre. Dès qu'il retrouva l'usage de la parole, il sentit que quelque chose n'allait pas. En regardant autour de lui, son expression changea radicalement.
+Wang Lin agita la main droite. Une fissure apparut immédiatement dans le drapeau et Yun Tianzi s'en échappa rapidement. Le visage de Yun Tianzi était sombre. À peine sorti, alors qu'il s'apprêtait à parler, il sentit que quelque chose n'allait pas. Après avoir observé attentivement les environs, son expression changea radicalement.
 
 Le vieil homme aux allures féeriques soupira et envoya rapidement une transmission vocale à Yun Tianzi. Ce dernier parut troublé en regardant le vieillard.
 
@@ -154,7 +154,7 @@ On pourrait dire qu'un dépassement au sein du Royaume Ji est une tâche impossi
 
 Lors des dernières étapes du processus de fusion, Wang Lin ne parvint pas à faire atteindre le stade de l'Âme Naissante à son corps principal. Dans un geste de désespoir, il força son avatar à se contracter jusqu'à ce qu'il s'installe dans le dantian de son corps principal en tant que substitut à l'Âme Naissante.
 
-Bien que cette méthode lui ait permis d'élever temporairement le niveau de culture de son corps principal au stade de l'Âme Naissante et de donner à son Royaume Ji la puissance de ce même stade, cela ne pouvait durer. Chaque fois qu'il utilisait son Royaume Ji, il épuisait une quantité massive de l'énergie originelle de son avatar et de sa propre perception divine.
+Bien que cette méthode lui ait permis d'élever temporairement le niveau de culture de son corps principal au stade de l'Âme Naissante et de donner à son Royaume Ji la puissance de ce même stade, cela ne pouvait durer. Chaque fois qu'il utilisait son Royaume Ji, il épuisait une quantité massive de la force d'Âme Naissante de son avatar et de sa propre perception divine.
 
 Le Royaume Ji n'était plus sa propre puissance mais agissait désormais comme un trésor. Pour utiliser un trésor, il fallait de la puissance spirituelle. Mais pour utiliser le Royaume Ji, il devait non seulement dépenser énormément de puissance spirituelle, mais aussi son sens divin et l'énergie de son Âme Naissante.
 
@@ -162,7 +162,7 @@ Bien que la situation fût frustrante, elle n'était pas sans avantages. Lors de
 
 Pour être précis, son niveau de culture se situait actuellement au sommet du début du stade de l'Âme Naissante, et le Royaume Ji constituait son dernier recours.
 
-Sans cela, la Secte Ciel Nuageux n'aurait pas d'avenir.
+S'il en avait été autrement, la Secte Ciel Nuageux ne serait pas dans l'état où elle se trouve aujourd'hui.
 
 L'usage répété du Royaume Ji avait consommé une grande partie de l'énergie de l'Âme Naissante, ce qui causait ses blessures actuelles. Après avoir réorganisé l'énergie spirituelle dans son corps et consommé plusieurs pilules, il finit par se stabiliser.
 
@@ -218,13 +218,13 @@ On pouvait dire que toute la Secte Ciel Nuageux était désormais entre les main
 
 Devant l'assemblée, il sortit les sangs d'âme et les remit à Li Muwan.
 
-Les quatre ancêtres furent surpris. Après avoir regardé Li Muwan, ils ne dirent mot dire. Quant à Song Qing et les anciens, ils se détendirent un peu; comparés à Wang Lin, ils trouvaient plus facile d'accepter Li Muwan, qui avait été une ancienne.
+Les quatre ancêtres furent surpris. Après avoir regardé Li Muwan, ils ne dirent mot. Quant à Song Qing et les anciens, ils se détendirent un peu; comparés à Wang Lin, ils trouvaient plus facile d'accepter Li Muwan, qui avait été une ancienne.
 
 Li Muwan réceptionna les sangs d'âme et regarda l'assemblée de la Secte Ciel Nuageux. Elle esquissa un doux sourire et dit délicatement: « Cette petite fille prendra soin de la Secte Ciel Nuageux pour son mari. J'espère que les aînés me traiteront avec bienveillance. Quatre ancêtres, votre statut est très noble, ne prenez donc pas cette affaire de sang d'âme à cœur. Dans 500 ans, Wan Er vous le rendra sans faute. J'espère que vous ne tiendrez pas rigueur de ces cinq siècles. Je fabriquerai même des pilules pour augmenter votre longévité en guise d'excuse. Bien que le raffinage soit difficile et les matériaux rares, j'en ferai une pour chacun de vous tous les 50 ans. Avec chaque pilule, votre espérance de vie augmentera de 50 ans. »
 
 L'expression du vieil homme aux allures féeriques changea. Il demanda d'une voix grave: « Augmenter la longévité? »
 
-Les trois autres levèrent également les sourcils. La longévité était une question capitale pour eux. Bien que des pilules de ce type existent, elles sont toutes de rang 6 et leur prix est exorbitant.
+Les trois autres levèrent également les sourcils. La longévité était une question capitale pour eux. Bien que des pilules de ce type existent, elles sont toutes au minimum de rang 6 et leur prix est exorbitant.
 
 « J'en ai cinq ici. Vous quatre pouvez les examiner. » Li Muwan sourit et sortit une bouteille. Elle versa les pilules et les tendit aux anciens.
 
@@ -232,7 +232,7 @@ Le vieil homme regarda les pilules, puis les deux autres ancêtres, avant que le
 
 Li Muwan sourit faiblement: « Je l'ai raffinée, mais mon mari a fourni les matériaux. » Ces pilules avaient été créées à partir de liquide spirituel.
 
-Yun Tianzi réfléchit un instant. Il regarda Wang Lin et s'exclama: « Très bien! Le fait que vous remettiez nos sangs d'âme à l'ancienne Li signifie que vous allez partir. Tant que nous avons ces pilules, nous garantissons sa sécurité pour 500 ans! »
+Yun Tianzi réfléchit un instant. Il regarda Wang Lin et s'exclama: « Très bien! Le fait que vous remettiez nos sangs d'âme à l'ancienne Li signifie que vous allez partir. Si vous nous fournissez ces pilules à temps, je garantis sa sécurité pendant 500 ans! »
 
 Wang Lin hocha la tête: « Très bien! »
 
@@ -252,7 +252,7 @@ Certes, ce n'était pas la seule raison. La principale était que leur sang d'â
 
 Peu après, chacun se dispersa.
 
-Une fois seul, Wang Lin prit une profonde inspiration: « Assieds-toi et cultive. Autrefois, ton essence a été endommagée, ce qui t'empêchait d'atteindre le stade de l'Âme Naissante. Je vais te donner un coup de pouce. »
+Une fois seul, Wang Lin prit une profonde inspiration: « Assieds-toi et cultive. Autrefois, ta durée de vie a été entamée, ce qui t'empêchait d'atteindre le stade de l'Âme Naissante. Je vais te donner un coup de pouce. »
 
 Li Muwan mordilla sa lèvre inférieure et s'assit en tailleur devant lui. La main droite de Wang Lin frappa son sac de rangement, faisant jaillir les six bouteilles de liquide spirituel restantes. Les flacons se brisèrent et le liquide se rassembla.
 
@@ -264,7 +264,7 @@ Après deux heures, Wang Lin eut terminé.
 
 Passant quelques mois supplémentaires à la Secte Ciel Nuageux, Wang Lin continua de collecter du liquide spirituel. Tout en reconstituant ses propres réserves, il en laissait également pour Li Muwan.
 
-De plus, les Insectes d'Encre Violette de Cheng Bailiang furent rangés dans un sac au cas où il en aurait besoin plus tard.
+De plus, les Insectes d'Encre Violette de Chen Bailiang furent rangés dans un sac au cas où il en aurait besoin plus tard.
 
 Par ailleurs, comme il avait donné le drapeau de restriction à Li Muwan, il décida de consacrer ces mois à la fabrication d'un nouveau drapeau avec l'une de ses deux pierres d'encre restantes. Cette fois, il choisit de créer un drapeau de restriction purement offensif.
 

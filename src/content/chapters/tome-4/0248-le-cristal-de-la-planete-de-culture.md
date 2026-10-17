@@ -10,7 +10,7 @@ Le jeune homme au regard maléfique fixa Wang Lin et dit lentement: « La rétri
 
 Wang Lin le dévisagea. Ce n'est que lorsque l'inconnu tourna son regard vers la rétribution divine et laissa paraître une expression de peur qu'il se détendit légèrement.
 
-Si le jeune homme s'était montré indifférent face à la rétribution divine, cela signifiait qu'il ne pouvait que se cacher dans l'espace de la perle défiant les cieux, ce qui n'était guère une option souhaitable.
+Si le jeune homme s'était montré indifférent face à la rétribution divine, cela signifiait que Wang Lin ne pourrait que se cacher dans l'espace de la perle défiant les cieux, ce qui n'était guère une option souhaitable.
 
 Le jeune homme au regard maléfique ressentait également une grande frustration. Il n'aurait jamais imaginé rencontrer la puissance d'une rétribution divine ici. S'il avait été à pleine puissance, cela n'aurait pas été un problème majeur; il aurait eu l'assurance de pouvoir détruire cette parcelle de rétribution divine.
 
@@ -72,7 +72,7 @@ Le jeune homme maléfique hésita un instant avant de demander: « Ne souhaites-
 
 Le corps de Wang Lin s'immobilisa et il fixa le jeune homme.
 
-L'homme hésita une nouvelle fois, soupira et dit: « Laisse tomber. Gamin, écoute bien. Le Royaume Ji est une puissance extrêmement extrême. Briser le goulot d'étranglement est très difficile, mais ce n'est pas impossible. »
+L'homme hésita une nouvelle fois, soupira et dit: « Laisse tomber. Gamin, écoute bien. Le Royaume Ji est une puissance extrême. Briser le goulot d'étranglement est très difficile, mais ce n'est pas impossible. »
 
 Wang Lin resta impassible, le regardant en silence.
 
@@ -90,7 +90,7 @@ Wang Lin prit une grande inspiration, les yeux tremblants devant cette lueur.
 
 Le jeune homme maléfique fit un geste de la main et la lumière disparut. Il regarda Wang Lin: « Le Royaume Ji se décline en de nombreuses formes. Quant à leur nombre exact, personne ne le sait vraiment. Les cultivateurs possédant un Royaume Ji sont rares au sein de l'Union de Culture, je suis donc incapable de déterminer les propriétés de ton propre Royaume Ji. Mais je sais que quel que soit son type, tous possèdent un goulot d'étranglement, et ces verrous sont extrêmement difficiles à briser. »
 
-« Je connais une méthode permettant au Royaume Ji de franchir ce stade: le Cristal de la Planète de Culture. Ce cristal est remis à chaque pays de culture de rang 6 lorsqu'il reçoit l'approbation de l'Union de Culture. Les vieux monstres de l'Union utilisent leurs pouvoirs défiant les cieux pour le façonner. C'est le trésor national d'un pays de culture de rang 6. Si un cultivateur de Royaume Ji parvient à l'obtenir et à le raffiner, il aura une chance de briser son goulot d'étranglement. »
+« Je connais une méthode permettant au Royaume Ji de franchir ce stade: le Cristal de la Planète de Culture. Ce cristal est remis à chaque pays de culture de rang 6 lorsqu'il reçoit l'approbation de l'Union de Culture. Lors de l'octroi du titre, plusieurs vieillards de l'Union offrent ensemble un sacrifice au ciel, et la majesté céleste manifeste alors sa puissance divine: le cristal se condense de lui-même. C'est le trésor national d'un pays de culture de rang 6. Si un cultivateur de Royaume Ji parvient à l'obtenir et à le raffiner, il aura une chance de briser son goulot d'étranglement. »
 
 Le visage de Wang Lin se crispa. Un trésor national d'un pays de culture de rang 6 était une chose hors de sa portée actuelle.
 

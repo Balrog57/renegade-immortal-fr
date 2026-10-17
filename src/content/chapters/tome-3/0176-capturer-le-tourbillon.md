@@ -6,7 +6,7 @@ bookTitle: Famous in the Sea of Devils
 en: Chapter 176 - Capturing the wind pack
 slug: capturer-le-tourbillon
 ---
-Lorsque Bossu Meng fut emporté par la tornade royale, il fut submergé par une vague de haine.
+Bossu Meng fut emporté par la tornade royale et disparut dans le tourbillon, submergé comme par une marée de haine.
 
 Le corps de Wang Lin se mua en un nuage de fumée alors qu'il s'échappait prestement du groupe de tornades. Quelques tourbillons isolés tentèrent de l'intercepter, comme ils l'avaient fait avec Bossu Meng.
 
@@ -14,11 +14,11 @@ Wang Lin eut un ricanement méprisant. Ses yeux demeuraient parfaitement calmes,
 
 Tout cela se passa trop vite pour que les autres tornades puissent réagir; et même si elles l'avaient pu, elles n'auraient pas été assez intelligentes pour comprendre le stratagème.
 
-Wang Lin resta au cœur de la tornade et fonça vers le vortex de la seconde épreuve. Au moment où il s'extirpa du tourbillon, il ordonna secrètement au second démon de prendre le contrôle d'une autre tornade.
+Wang Lin resta au cœur de la tornade et fonça vers le vortex de la seconde épreuve. Dès l'instant où il s'était extirpé de la tornade précédente, il avait secrètement ordonné au second démon d'entrer dans une tornade voisine pour s'emparer du commandement.
 
-S'il avait pu s'échapper aussi rapidement, c'était parce que, jusqu'à cet instant, tout s'était déroulé exactement comme prévu.
+À présent, tout allait de soi, et la fuite en était naturellement plus aisée.
 
-La créature royale balaya les environs du regard avant de se poser dans la tornade de Wang Lin. Elle afficha une expression confuse avant de lâcher un rugissement tonitruant. Toutes les tornades se mirent à pourchasser Wang Lin.
+La créature royale, au cœur de la tornade souveraine, balaya les environs de ses yeux glacés, et son regard se posa enfin sur la tornade de Wang Lin. Elle afficha une expression perplexe, mais très vite elle lâcha un cri strident, et toutes les tornades alentour se lancèrent à la poursuite de Wang Lin.
 
 Quant à la tornade royale, elle arborait une étrange expression sur son visage tandis qu'elle transportait Bossu Meng et disparaissait lentement dans la direction opposée.
 
@@ -30,7 +30,7 @@ Son Sens Divin du Royaume Ji voyageait à l'intérieur de l'épée volante. Ses 
 
 Grâce à la présence du Sens Divin du Royaume Ji et au tranchant de l'épée volante, en un clin d'œil, l'une des tornades que Wang Lin surveillait s'arrêta brusquement. Toutes les petites créatures à l'intérieur se dispersèrent soudainement, le visage empreint de confusion.
 
-Wang Lin ne marqua pas de pause. Sa main pointa rapidement et un rayon de lumière jaillit entre les tourbillons. Soudain, la majorité des grandes tornades que Wang Lin surveillait s'effondrèrent.
+Wang Lin ne marqua pas de pause. Il pointa rapidement ses deux mains dans le vide à plusieurs reprises, et des éclats cristallins ne cessèrent de fuser parmi les tourbillons qui le poursuivaient. Soudain, plus de la moitié des tornades que Wang Lin surveillait s'effondrèrent.
 
 À ce moment-là, il vit les sens divins derrière lui commencer à fusionner; il agita donc la main et l'épée cristalline revint vers lui en un éclair. Ce n'était pas que Wang Lin refusait le combat, mais ces petites créatures étaient désormais sur leurs gardes. Il avait réussi à les prendre par surprise auparavant, mais s'il continuait, l'épée volante serait bloquée par les sens divins fusionnés lorsqu'elle approcherait d'une tornade.
 
@@ -58,7 +58,7 @@ Dès qu'il ralentit, les tornades derrière lui réduisirent immédiatement la d
 
 La tornade dans laquelle se trouvait Wang Lin n'avait besoin que d'un seul souffle de temps à pleine vitesse pour atteindre le vortex. Cela signifiait qu'il faudrait un souffle de temps aux tornades pour le rattraper, et deux souffles de temps pour qu'elles entrent dans le vortex.
 
-Pendant le premier souffle de temps, Wang Lin sortit un objet de son sac de rangement. Lorsque l'attaque des sens divins arriva, il ne s'accéléra pas pour l'éviter, mais utilisa plutôt les petites créatures de sa tornade pour faire écran.
+Pendant le premier souffle de temps, Wang Lin sortit un objet de son sac de rangement. Lorsque l'attaque des sens divins frappa sa tornade, il ne s'accéléra pas cette fois, mais s'arrêta et résista avec les sens divins des petites créatures de sa tornade.
 
 En un seul souffle de temps, plus de la moitié des petites créatures dans la tornade de Wang Lin périrent.
 
@@ -74,21 +74,21 @@ Cependant, comment Wang Lin pouvait-il les laisser agir à leur guise? Il regard
 
 Tout en parlant, il injecta de l'énergie spirituelle dans l'objet qu'il avait sorti de son sac durant le premier souffle. Soudain, un anneau de lumière s'étendit et enveloppa toutes les tornades.
 
-Une image de dragon apparut et, sous le contrôle de Wang Lin, elle circula le long de l'anneau de lumière. À ce moment précis, des éclairs violets jaillirent du vortex. La foudre violette frappa Wang Lin et traversa son corps pour atteindre l'anneau de lumière. Le vortex les aspira alors rapidement tous ensemble.
+Un fantôme de Dragon Azure sortit de la tablette de jade et, sous le contrôle de Wang Lin, circula le long de l'anneau de lumière. À ce moment précis, sous l'effet de son entrée, des éclairs violets jaillirent du vortex. La foudre violette frappa Wang Lin et traversa son corps pour atteindre l'anneau de lumière. Le vortex les aspira alors rapidement tous ensemble.
 
 En un clin d'œil, Wang Lin et la quarantaine de tornades furent aspirés dans le vortex.
 
 À ce stade, le reste des tornades avait rattrapé leur retard, mais lorsqu'elles touchèrent le vortex, elles furent repoussées. De plus en plus de tourbillons s'assemblèrent, mais après avoir tenté longuement, ils ne parvinrent toujours pas à pénétrer dans le vortex. Après un certain temps, ils commencèrent lentement à se disperser.
 
-La première épreuve, l'épreuve de la terre, retrouva progressivement son calme. Dans un lieu inconnu de cette épreuve, Bossu Meng flottait dans les airs. Son corps n'était qu'un amas sanglant et ses yeux étaient emplis de confusion. Devant lui se trouvait le cadavre de la créature royale. L'os de doigt doré sur sa tête apparaissait lentement.
+La première épreuve, l'épreuve de la terre, retrouva progressivement son calme. Dans un lieu inconnu de cette épreuve, Bossu Meng flottait dans les airs. Son corps n'était qu'un amas sanglant et ses yeux étaient emplis de confusion. Devant lui se trouvait le corps de la créature royale, haut de plus de trente pieds. Sur son front, la moitié d'os de doigt doré scintillait rapidement et apparaissait lentement.
 
-Il pointait vers le front de Bossu Meng...
+Elle se posa sur le front de Bossu Meng...
 
-Quant à Wang Lin, après être sorti du vortex, il déploya rapidement son Sens Divin et fut stupéfait. L'endroit où il se trouvait était un monde gris, n'offrant rien d'autre qu'un pont de pierre noire.
+Quant à Wang Lin, après être sorti du vortex, il déploya rapidement son Sens Divin et fut stupéfait. L'endroit où il se trouvait était un monde gris et brumeux, n'offrant rien d'autre qu'un long pont en arche fait de blocs de pierre noire.
 
-Wang Lin rétracta son Sens Divin et regarda en arrière. La formation du dragon était toujours là, contenant plus de 40 tornades. Elles tentaient encore de s'échapper en percutant violemment les anneaux de lumière environnants.
+Wang Lin rétracta son Sens Divin et regarda en arrière. Son halo défensif du Dragon Azure était toujours là, contenant plus de 40 tornades qui tournoyaient frénétiquement en sifflant. Elles tentaient encore de s'échapper en percutant le halo environnant.
 
-À chaque collision, l'anneau devenait un peu plus terne. Wang Lin laissa échapper un ricanement froid en rangeant la formation du dragon. Dès que la formation disparut, les 40 tornades se dispersèrent.
+À chaque collision, le halo devenait un peu plus terne. Wang Lin laissa échapper un grognement froid et rangea la formation défensive. Dès que le halo et le fantôme du dragon disparurent, plus de 40 tornades se dispersèrent en rugissant.
 
 Simultanément, Wang Lin fit un geste de la main droite. Le second démon apparut rapidement et lança un rugissement de défi vers ces tornades.
 
@@ -100,4 +100,4 @@ Trois jours plus tard, Wang Lin regardait au loin, debout près du pont noir. Qu
 
 Les chefs de toutes ces tornades avaient fusionné avec le second démon. Cependant, par la force, Wang Lin les avait tous extirpés pour les placer dans un étendard d'âme, afin de créer d'autres démons à l'avenir.
 
-Il fit cela pour éviter de perdre le contrôle du second démon, car celui-ci s'était trop intimement fusionné avec eux.
+Il avait pris cette précaution pour empêcher le second démon de fusionner avec trop de chefs et d'échapper ainsi à son contrôle.

@@ -6,15 +6,15 @@ bookTitle: The Mediocre Youth
 en: Chapter 63 - Powerful
 slug: puissant
 ---
-« Brise-toi! Brise-toi! Brise-toi! » L'expression de Pu Nanzi devint grave. Ses mains s'agitaient inlassablement tandis que le gigantesque tourbillon s'abattait sur la montagne.
+« Brise-toi! Brise-toi! Brise-toi! » Le visage de Pu Nanzi se tordit de férocité. Ses mains s'agitaient frénétiquement tandis que la montagne gigantesque s'abattait sans cesse.
 
 Dans les villes et villages environnants, la terreur empêchait quiconque de sortir; chacun s'était réfugié dans son foyer. Les plus téméraires qui jetaient un regard par leurs fenêtres voyaient une montagne colossale flotter dans les airs, s'écrasant avec une violence constante.
 
 Un autre pilier de jade blanc se brisa et un autre ancien de l'Établissement des Fondations cracha une bouffée de sang avant de s'effondrer.
 
-Pu Nanzi sortit une calebasse violette. Ses mains tracèrent un sceau complexe tandis qu'il récitait des incantations mystérieuses. La calebasse trembla et un liquide rouge en jaillit. Dès son apparition, le liquide s'enflamma et enveloppa le tourbillon.
+Pu Nanzi sortit une calebasse violette. Ses mains tracèrent un sceau complexe tandis qu'il récitait des incantations mystérieuses. La calebasse trembla et un liquide rouge en jaillit. Dès son apparition, le liquide s'enflamma et enveloppa la montagne.
 
-« Brise-toi! » rugit Pu Nanzi en projetant le tourbillon enflammé vers le bas. Dans un fracas assourdissant, de nombreuses fissures apparurent sur l'écran de lumière et commencèrent à se propager.
+« Brise-toi! » rugit Pu Nanzi en projetant la montagne enflammée vers le bas. Dans un fracas assourdissant, de nombreuses fissures apparurent sur l'écran de lumière et commencèrent à se propager.
 
 Deux autres piliers de jade se brisèrent et deux autres anciens s'effondrèrent.
 
@@ -26,23 +26,23 @@ Le visage de Pu Nanzi était sombre alors qu'il planait dans les airs. La puissa
 
 Pour l'instant, cette formation ne pouvait que défendre sans pouvoir riposter, mais si un expert de l'Âme Naissante était présent, sa puissance serait terrifiante.
 
-Alors que l'ancien au visage rouge voyait ses subordonnés de l'Établissement des Fondations tomber les uns après les autres, son cœur saignait de douleur. Il cria: « Senior Pu Nanzi, votre Secte Xuan Dao a toujours entretenu de bonnes relations avec notre Secte Heng Yue. Voulez-vous vraiment nous anéantir? »
+Alors que le vieillard aux cheveux blancs voyait ses subordonnés de l'Établissement des Fondations tomber les uns après les autres, son cœur saignait de douleur. Il cria: « Senior Pu Nanzi, votre Secte Xuan Dao a toujours entretenu de bonnes relations avec notre Secte Heng Yue. Voulez-vous vraiment nous anéantir? »
 
-Pu Nanzi renifla et répondit: « Liu Wenju, il y a cinq cents ans, tu n'étais qu'un simple junior. Te voilà devenu un membre éminent de la Secte Heng Yue, ayant même atteint la Formation du Noyau. Il serait dommage de détruire cette formation. Si vous l'ouvriez de vous-mêmes, les choses seraient plus simples pour vous tous. »
+Pu Nanzi renifla et répondit: « Liu Wenju, il y a cinq cents ans, tu n'étais qu'un simple junior. Te voilà devenu le pilier de la Secte Heng Yue, ayant même atteint la Formation du Noyau; tu es aussi le descendant de vieilles connaissances. Il serait dommage de détruire cette formation. Si vous l'ouvriez de vous-mêmes, les choses seraient plus simples pour vous tous. »
 
 L'expert de la Formation du Noyau, Liu Wenju, hésita, quand soudain la vieille femme s'écria d'une voix colérique: « Senior Pu Nanzi, je ne peux pas obtempérer! »
 
-Pu Nanzi laissa échapper un rire dément. Son visage se crispa et il hurla: « Très bien! Formation défensive, brise-toi! » Sur ce, il agita la main et le gigantesque tourbillon s'éleva haut dans les airs. Son visage devint pourpre alors qu'il libérait davantage d'énergie de l'Âme Naissante, faisant grandir encore plus le tourbillon.
+Pu Nanzi laissa échapper un rire dément. Son visage se crispa et il hurla: « Très bien! Formation défensive, brise-toi! » Sur ce, il agita la main et la montagne gigantesque s'éleva haut dans les airs. Son visage rougit légèrement alors qu'il crachait une grande bouffée d'énergie de l'Âme Naissante, faisant grandir encore la montagne de plusieurs fois sa taille.
 
-« Descends! » Le sceau manuel de Pu Nanzi changea et il ordonna au tourbillon de s'abattre.
+« Descends! » Le sceau manuel de Pu Nanzi changea et il ordonna à la montagne de s'abattre.
 
-Le gigantesque tourbillon émit un bourdonnement sourd en exerçant une pression accrue.
+La montagne gigantesque émit un bourdonnement sourd et s'enfonça lentement de 3,3 cm.
 
 Dans un craquement sinistre, les fissures sur l'écran lumineux s'étendirent; un autre pilier blanc se brisa et un autre ancien de l'Établissement des Fondations s'effondra.
 
-Le tourbillon descendit encore de 3,3 cm, et le dernier ancien de l'Établissement des Fondations cracha un jet de sang avant de s'écrouler.
+La montagne descendit encore de 3,3 cm, et le dernier ancien de l'Établissement des Fondations cracha un jet de sang avant de s'écrouler.
 
-« Brise-toi! » Sur le cri de Pu Nanzi, le tourbillon s'abattit avec une force telle qu'il s'enfonça de près de 10 cm. Le pic de pin trembla. Dans un rugissement tonnerreux, la montagne entière s'enfonça de dizaines de mètres dans le sol.
+« Brise-toi! » Sur le cri de Pu Nanzi, la montagne s'abattit avec une force telle qu'elle s'enfonça de 10 cm. Le Pic des Pins trembla. Dans un grondement de tonnerre, des rochers dévalèrent et la poussière s'éleva; le pic entier s'enfonça de dizaines de mètres dans le sol.
 
 Le pont de pierre relié à la Secte Heng Yue se brisa en deux et bascula dans le précipice.
 
@@ -50,13 +50,13 @@ Simultanément, la formation défensive de la Secte Heng Yue ne put plus tenir; 
 
 Les deux derniers piliers de jade blanc se brisèrent, et Liu Wenju ainsi que la vieille femme tombèrent au sol, l'expression amère, incapables de dire un mot.
 
-Pu Nanzi laissa échapper un froid reniflement. Il redescendit lentement vers le sol tandis que le gigantesque tourbillon continuait de planer dans les airs, dégageant une pression écrasante.
+Pu Nanzi laissa échapper un froid reniflement. Il redescendit lentement vers le sol tandis que la montagne gigantesque continuait de planer dans les airs, dégageant une pression écrasante.
 
 Une fois au sol, il demanda d'un ton glacial: « Qui ici est Wang Lin? »
 
 Wang Lin s'était déjà replié dans la foule des disciples internes. Il n'aurait jamais imaginé que la première chose que cet expert de l'Âme Naissante ferait serait de le traquer lui.
 
-Tous les regards des disciples environnants se tournèrent vers lui. Pu Nanzi balaya le groupe du regard et ses yeux tombèrent sur Wang Lin. Il haussa un sourcil, comprenant qu'il s'agissait bien de lui. Auparavant, son cadet Ouyang avait mentionné Wang Lin à maintes reprises, affirmant que toutes leurs pertes étaient entièrement dues à ce dernier. Il voulait absolument le recruter.
+Tous les regards des disciples environnants se tournèrent vers lui. Pu Nanzi balaya le groupe du regard et ses yeux tombèrent sur Wang Lin. Il haussa un sourcil, comprenant qu'il s'agissait bien de lui. Auparavant, son neveu-disciple Ouyang avait mentionné Wang Lin à maintes reprises, affirmant que toutes leurs pertes étaient entièrement dues à ce dernier. Il voulait absolument le recruter.
 
 Pu Nanzi avait toujours convoité les terres de la Secte Heng Yue. Cette fois, il pensait qu'avec Zhou Peng, ils l'emporteraient sans avoir à recourir ouvertement à la force. Mais l'intervention de Wang Lin avait perturbé ses plans, le forçant à se montrer et à s'emparer du territoire par la contrainte.
 
@@ -64,19 +64,19 @@ D'un ton impérieux, Pu Nanzi demanda: « Tu es Wang Lin? »
 
 Wang Lin prit une profonde inspiration. Il joignit les mains et dit respectueusement: « Ce disciple est Wang Lin, et il salue le Senior Pu Nanzi. »
 
-Pu Nanzi hocha la tête. Il se tourna vers Liu Wenju et la vieille femme de la Formation du Noyau et déclara: « Les ancêtres de l'Âme Naissante de la Secte Heng Yue sont tous morts au combat dans un autre pays. Vous n'avez plus les moyens de conserver cette montagne de Heng Yue. Au lieu de laisser une autre secte vous la voler, pourquoi ne pas la céder à ma Secte Xuan Dao? »
+Pu Nanzi hocha la tête. Il se tourna vers Liu Wenju et la vieille femme de la Formation du Noyau et déclara: « Les ancêtres de l'Âme Naissante de la Secte Heng Yue sont tous morts lors de la bataille pour les étoiles de culture, hors du territoire. Vous n'avez plus les moyens de conserver cette montagne de Heng Yue. Au lieu de laisser une autre secte vous la voler, pourquoi ne pas la céder à ma Secte Xuan Dao? »
 
 Liu Wenju lança un regard amer à la vieille femme et dit: « Senior, je vous en prie, considérez les bonnes relations entre nos deux sectes et ne... »
 
 Sans laisser Liu Wenju terminer sa phrase, Pu Nanzi l'interrompit avec impatience: « Partez! Vous ne pouvez rien emporter! Si vous continuez à me harceler, je n'hésiterai pas à anéantir la secte tout entière! »
 
-La vieille femme, furieuse, s'apprêta à charger, mais Liu Wenju la retint. Il prit une grande inspiration et dit respectueusement: « Ce disciple obéit, mais cette montagne de Heng Yue appartient à notre secte depuis des millénaires et je n'ai pas le droit de l'aliéner. Je ne peux qu'accepter de la prêter. Si dans le futur... »
+La vieille femme, furieuse, s'apprêta à charger, mais Liu Wenju la retint. Il prit une grande inspiration et dit respectueusement: « Ce disciple obéit, mais cette montagne de Heng Yue est le siège de notre secte depuis mille ans et je n'ai pas le droit de l'aliéner. Je ne peux qu'accepter de la prêter. Si dans le futur... »
 
 Pu Nanzi ricana. Il l'interrompit une fois de plus: « Prêter? Très bien. Prêtez-la à ma Secte Xuan Dao pour cent mille ans. »
 
 Tous les disciples internes bouillonnaient de rage, mais nul n'osa l'exprimer. Ils se sentaient tous accablés et restèrent silencieux, certains commençant même à songer à leur propre sort.
 
-Le regard de Pu Nanzi balaya la zone et se posa sur Huang Long. Il dit: « Toi. Remets-moi ton Épée de Lune Pourpre. Mon cadet Ouyang la convoite. »
+Le regard de Pu Nanzi balaya la zone et se posa sur Huang Long. Il dit: « Toi. Remets-moi ton Épée de Lune Pourpre. Mon neveu-disciple Ouyang la convoite. »
 
 Huang Long endura l'humiliation et serra les poings. Il regarda Liu Wenju et la vieille femme. En voyant qu'ils attendaient son geste, il poussa un soupir, sortit l'épée et la jeta au sol.
 

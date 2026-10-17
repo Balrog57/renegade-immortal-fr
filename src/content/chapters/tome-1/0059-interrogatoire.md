@@ -54,7 +54,7 @@ Wang Lin hocha légèrement la tête. Après avoir jeté un dernier regard à Wa
 
 Wang Lin réfléchissait depuis tout à l'heure. Il comprenait parfaitement pourquoi le Maître de secte Huang Long voulait lui parler en privé. Peu de temps après, Huang Long conduisit Wang Lin dans la salle principale. Puis, il s'exclama soudainement: « Wang Lin, tu as vraiment un sacré culot! »
 
-L'expression de Wang Lin resta calme et il répondit: « Maître de secte, si vous avez quelque chose à me reprocher, dites-le simplement. »
+L'expression de Wang Lin resta calme et il répondit: « Maître de secte, si vous avez quelque chose à dire, dites-le simplement. »
 
 Huang Long grogna: « Lors de cet affrontement, quelle technique as-tu réellement utilisée? »
 
