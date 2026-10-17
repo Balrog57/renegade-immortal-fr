@@ -10,7 +10,7 @@ Chaque fois que le pouvoir de l'Ancien Dieu de Wang Lin atteignait le moment cri
 
 Cette douleur intense aurait suffi à rendre n'importe qui fou. Si Wang Lin avait été inconscient, cela n'aurait pas été si terrible, mais il avait repris connaissance depuis longtemps. Pourtant, à son réveil, son corps était saturé du sang de ce fou.
 
-Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Pas de Céleste » qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de l'Ordre Antique pouvait rivaliser avec lui en puissance.
+Ce sang était imprégné d'une puissance extrêmement pure. Wang Lin n'avait jamais vu une telle force de sa vie. Seul le sort « Ancien Dao, aucun Céleste » qu'il avait contemplé lorsqu'il siégeait sur le trône dans la Tombe de l'Ordre Antique pouvait rivaliser avec lui en puissance.
 
 Cependant, ce pouvoir ne pouvait être maîtrisé par Wang Lin. Il restait tapi au sein de son sang et circulait dans ses veines. Tandis qu'il entrait en conflit avec le pouvoir de l'Ancien Dieu, il fusionnait lentement avec les os et le sang de Wang Lin.
 
@@ -18,7 +18,7 @@ Les os étaient la source même du sang. Le sang du fou continuait de pénétrer
 
 La lignée d'un être réside dans sa moelle osseuse! Modifier la moelle, c'était modifier la lignée elle-même. Si l'opération réussissait, le sang qui circulerait en Wang Lin serait semblable à celui du fou: noble et pur!
 
-Wang Lin ressentait une sensation indescriptible émanant de cette noblesse; un sentiment capable de briser l'esprit de n'importe quel être! Il fut stupéfait de constater qu'à mesure que le sang inondait son corps, son âme originelle tremblait, comme si ce sang appartenait à une existence d'une noblesse inimaginable!
+Wang Lin ressentait une sensation indescriptible émanant de cette noblesse; un sentiment capable de faire se prosterner tous les êtres vivants! Il fut stupéfait de constater qu'à mesure que le sang inondait son corps, son âme originelle tremblait, comme si ce sang appartenait à une existence d'une noblesse inimaginable!
 
 Une existence au sommet de la hiérarchie des cultivateurs!
 
@@ -28,7 +28,7 @@ Bien qu'éveillé, Wang Lin était terrifié par ce sang, mais il percevait éga
 
 Les murmures du fou provoquaient des vagues monstrueuses dans l'esprit de Wang Lin.
 
-Cependant, Wang Lin ne pouvait approfondir ses réflexions en raison de la douleur atroce qui le torturait. La souffrance qu'il ressentait était plusieurs fois plus intense que lorsqu'il avait affronté l'épreuve de l'Ordre Antique!
+Cependant, Wang Lin ne pouvait approfondir ses réflexions en raison de la douleur atroce qui le torturait. La souffrance qu'il ressentait était plusieurs fois plus intense que lorsqu'il avait affronté jadis la Tribulation Stellaire de l'Ancien Dieu!
 
 Il ne pouvait ni bouger, ni même ouvrir les yeux. Son âme originelle était clouée sur place par le sang, le laissant totalement impuissant.
 
@@ -40,7 +40,7 @@ Il comprit également que l'arc, qui n'avait jamais reconnu de maître auparavan
 
 C'était comme si seule cette nouvelle lignée pouvait désormais être reconnue par l'arme comme son propriétaire!
 
-« Le sang de ce roi est très, très, très, très... Eh bien, je me souviens qu'une petite sorcière nommée Fei Fei m'avait emprunté quelque chose... » marmonna le fou pour lui-même, assis aux côtés de Wang Lin, les yeux emplis de confusion.
+« Le sang de ce roi est très, très, très, très... Eh bien, je me souviens qu'une petite sorcière nommée Fei Fei m'avait fait manger quelque chose... » marmonna le fou pour lui-même, assis aux côtés de Wang Lin, les yeux emplis de confusion.
 
 Après un long moment, il secoua la tête et retira son doigt de la bouche de Wang Lin. Il le porta ensuite à sa propre bouche et, après l'avoir léché, afficha une expression d'extase.
 
@@ -54,7 +54,7 @@ Alors qu'il grommelait, le fou sembla s'emporter. Il se leva et fit plusieurs fo
 
 « Si ce roi était dans ton état, il serait déjà guéri! Depuis combien d'années cela fait-il? Pourquoi dois-tu être aussi stupide?! »
 
-Le fou s'emportait de plus en plus. Après avoir donné quelques coups de pied, le visage rouge de colère, il commença à sauter sur le corps de Wang Lin. Il continuait de bondir et de hurler comme un aliéné... « Mon grand frère a dit que le sang de ma famille pouvait guérir toutes les blessures du monde! Ce roi t'en a tant donné, mais ton corps ne s'est toujours pas rétabli! Toi, toi, toi, toi!!! » Le fou bondit sur le côté et fixa Wang Lin, sa bouche ne cessant de s'agiter. « Ce roi refuse de croire que cela ne fonctionnera pas! Attends un peu! » murmura-t-il en levant la main droite pour frapper sa propre poitrine. Au moment de l'impact, une étrange marque apparut sur son torse.
+Le fou s'emportait de plus en plus. Après avoir donné quelques coups de pied, le visage rouge de colère, il commença à sauter sur le corps de Wang Lin. Il continuait de bondir et de hurler comme un aliéné; vu de loin, on aurait dit un singe furieux... « Mon grand frère a dit que le sang de mon clan pouvait guérir toutes les blessures du monde! Ce roi t'en a tant donné, mais ton corps ne s'est toujours pas rétabli! Toi, toi, toi, toi!!! » Le fou bondit sur le côté et fixa Wang Lin, sa bouche ne cessant de s'agiter. « Ce roi refuse de croire que cela ne fonctionnera pas! Attends un peu! » murmura-t-il en levant la main droite pour frapper sa propre poitrine. Au moment de l'impact, une étrange marque apparut sur sa main droite, qui s'écrasa contre son corps.
 
 Le corps du fou trembla et son visage devint écarlate. Il expulsa alors une bouchée de sang qui éclaboussa le corps de Wang Lin.
 
@@ -90,7 +90,7 @@ Cette quantité massive de sang, et plus particulièrement l'essence vitale, pro
 
 Néanmoins, parce que le pouvoir de l'Ordre Antique était opprimé, le sang versé pénétra directement dans ses os et se fondit avec sa moelle osseuse.
 
-Cette fusion ne se limita pas à de petites zones comme précédemment; elle fut instantanée et totale. Le corps de Wang Lin trembla et une multitude de points rouges apparurent sur toute sa peau. Des masses entières de son propre sang étaient mises en mouvement!
+Cette fusion ne se limita pas à de petites zones comme précédemment; elle fut instantanée et totale. Le corps de Wang Lin trembla et une multitude de points rouges apparurent sur toute sa peau. Son propre sang était violemment expulsé de son corps!
 
 À mesure que le sang fusionnait avec sa moelle, un sang nouveau était créé. Dès la naissance de ce sang nouveau, une aura de noblesse jaillit du corps de Wang Lin.
 
@@ -104,7 +104,7 @@ Ce feu doré contenait le Dao des Cieux, mais ce n'était pas un feu du Dao! Ave
 
 Au moment où le tonnerre et ses compagnons s'effondrèrent, un éclair de tonnerre doré jaillit dans l'œil droit clos de Wang Lin!
 
-L'or, tout n'était qu'or! Pourtant, cet éclat n'était pas profond, il était d'une grande clarté. Mais cela suffisait à terrifier quiconque connaissait le secret de cette teinte!
+L'or, tout n'était qu'or! Pourtant, cet éclat n'était pas profond, ce n'était qu'un or pâle. Mais cela suffisait à terrifier quiconque connaissait le secret de cette teinte!
 
 L'or, la couleur des êtres célestes! De véritables êtres célestes!
 

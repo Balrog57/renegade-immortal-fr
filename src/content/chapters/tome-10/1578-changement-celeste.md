@@ -64,7 +64,7 @@ Ces mots résonnèrent dans son esprit et fusionnèrent lentement avec le Champ 
 
 « La porte que les Quatre Sectes Divines ont découverte... Quelle sorte de porte est-ce... L'ancêtre de la Terre Déchue est-il au courant? »
 
-Wang Lin resta immobile un long moment, tentant de calmer le choc qui agitait son esprit. Il finit par repenser à la femme aux cheveux argentés et au cri déchirant qu'elle avait poussé en voyant la statue taoïste aux sept couleurs.
+Wang Lin resta immobile un long moment, tentant de calmer le choc qui agitait son esprit. Il finit par repenser à la femme en argent et aux paroles déchirantes qu'elle avait prononcées, terrifiée, en voyant la statue du Daoïste aux Sept Couleurs.
 
 « Je n'ai pas ouvert la porte... je n'ai pas ouvert la porte... » songea-t-il silencieusement.
 
@@ -75,7 +75,7 @@ Il rétracta lentement son sens divin jusqu'à ce qu'il soit de nouveau contenu 
 Wang Lin avait découvert trop de choses lors de ce retour sur la planète Suzaku. Ces révélations étaient accablantes et rendaient sa planète natale plus étrangère que jamais.
 
 « Le Papillon Rouge n'est pas mort... »
-« Le 19e niveau du Clan du Tatouage scellait la flèche Li Guang... »
+« Le 19e niveau du Clan du Tatouage scellait la flèche de Li Guang... »
 « Le Champ de Bataille Extérieur d'autrefois n'était qu'une zone restreinte, et il existe un monde bien plus vaste au-delà. Il s'avère que tout cela fait partie de la porte... »
 
 Wang Lin s'assit au sommet d'une montagne sur la planète Suzaku. Il faisait face au vent hurlant qui fouettait ses cheveux et ses vêtements, le regard tourmenté.
@@ -86,7 +86,7 @@ Un oiseau blanc battit précipitamment des ailes pour tenter d'échapper aux nua
 
 En voyant cela, Wang Lin plissa les yeux; il pressentait que quelque chose ne tournait pas rond.
 
-La pluie suivait le vent et n'était pas encore arrivée sur lui. La bourrasque transportait l'air humide vers Wang Lin, apportant avec elle la fraîcheur de l'averse. Il faisait glacial.
+La pluie suivait les nuages et n'était pas encore arrivée sur lui. La bourrasque transportait l'air humide vers Wang Lin, apportant avec elle la fraîcheur de l'averse. Il faisait glacial.
 
 C'était la pluie d'automne.
 
@@ -100,19 +100,19 @@ Les petits cailloux autour de lui auraient normalement dû être emportés par l
 
 Un coup de tonnerre éclata et plusieurs éclairs reliant le ciel et la terre déchirèrent l'horizon sous les yeux de Wang Lin. Ils illuminaient les nuages sombres, tels des serpents d'argent ou des marques incrustées dans le ciel.
 
-Observant les nuages noirs tourbillonnants, Wang Lin prit une profonde inspiration, envahi par un sentiment d'irritation inexplicable. Il fronça les sourcils et réprima les découvertes qu'il venait de faire sur la planète Suzaku. Pour l'instant, il devait accomplir son cycle de vie et de mort, son karma, et ses essences de vrai et de faux!
+Observant les nuages noirs tourbillonnants, Wang Lin prit une profonde inspiration, envahi par un sentiment d'irritation inexplicable. Il fronça les sourcils et réprima les découvertes qu'il venait de faire sur la planète Suzaku. Pour l'instant, il devait raffiner la force de rejet en lui et porter à leur plénitude ses essences de vie et de mort, de karma, et de vrai et de faux!
 
-Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour briser la Porte du Vide!
+Il affinerait ensuite l'épée d'essence de massacre que Qing Shui lui avait donnée et utiliserait ses six essences pour atteindre le Dao, briser la Porte du Vide et devenir un expert du troisième pas!
 
 Wang Lin se leva pour partir. Derrière lui, les nuages tourbillonnants s'engouffrèrent comme si un dieu du massacre se cachait en leur sein, le fixant du regard. Il voulait le dévorer et le détruire, tout comme l'oiseau.
 
-Les éclairs crissablèrent et vacillèrent. Alors que la pluie tombait, une intention meurtrière jaillit des nuages noirs. Cette intention surgit de manière brutale!
+Les éclairs s'entrecroisaient, tantôt vifs, tantôt faibles. Alors que la pluie tombait, une intention meurtrière jaillit des nuages noirs. Cette intention surgit de manière brutale!
 
 Le pied droit de Wang Lin, qui venait de se lever, s'immobilisa soudainement et tous les poils de son corps se hérissèrent. Un puissant sentiment de crise de vie ou de mort secoua son être alors qu'il fixait les nuages noirs. Son expression devint extrêmement grave.
 
 « Quelque chose ne va pas!! » Les trois images vues précédemment lui traversèrent l'esprit: l'oiseau qui mourait, la poussière qui ne dérivait pas et les cailloux qui ne bougeaient pas!
 
-Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans le Tombeau Ancien ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Papillon Rouge avait provoquée; c'était une épreuve que Wang Lin devait affronter!
+Cette crise de vie ou de mort surpassait tout ce qu'il avait ressenti dans la Tombe Antique ou lors de ses rencontres après son retour dans le Royaume Intérieur. C'était comparable à la calamité que Papillon Rouge avait provoquée; c'était une épreuve que Wang Lin devait affronter!
 
 Ce n'est qu'en survivant à cette calamité qu'il serait digne de continuer à vivre! Telle fut l'illumination qui le frappa au moment même où il vit les nuages noirs tourbillonner au loin!
 

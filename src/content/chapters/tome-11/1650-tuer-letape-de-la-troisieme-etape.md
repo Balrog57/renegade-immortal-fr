@@ -14,11 +14,11 @@ L'homme chauve ouvrit soudainement les yeux, révélant une lueur étrange. Il f
 
 « Seul dans le Royaume Intérieur mon Clan des Enfers a une chance de s'élever! Plus il y a de morts, plus l'aura de mort est puissante, sans compter ces esprits vivants... Si cela s'était produit dans le Système Stellaire Antique, tuer autant de personnes aurait entraîné la punition du Conseil Souverain. » L'homme afficha un sourire satisfait en agitant sa manche, et les 300 bulles explosèrent une à une.
 
-L'effondrement des bulles exposa les 300 cultivatrices du Rivière Invoquée à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
+L'effondrement des bulles exposa les 300 cultivatrices de la Rivière Invoquée à l'aura de mort. Leurs visages se tordirent de douleur et, une fois les bulles éclatées, leurs corps commencèrent lentement à dépérir.
 
 Des filaments de force vitale s'échappèrent de leurs orifices et se rassemblèrent autour d'elles pour former des ombres. Ces ombres étaient comme des âmes originelles; elles étaient l'exact reflet de leurs corps.
 
-L'expression de Zhou Zi Hong se crispa et son corps trembla. Sa vitalité quitta rapidement son enveloppe charnelle pour former une ombre à son image. L'ombre vitale de Zhou Zi Hong, tout comme les autres, vola vers l'homme chauve.
+L'expression de Zhou Zihong se crispa et son corps trembla. Sa vitalité quitta rapidement son enveloppe charnelle pour former une ombre à son image. L'ombre vitale de Zhou Zihong, tout comme les autres, vola vers l'homme chauve.
 
 « Délice de la Dévoration des Enfers! » rugit l'homme chauve en agitant la main. Les 300 ombres d'âmes originelles accélérèrent encore davantage pour converger vers lui.
 
@@ -36,11 +36,11 @@ L'autre partie n'avait émis qu'un simple reniflement, mais cela avait suffi à 
 
 Il n'avait même pas imaginé que ce cultivateur de la troisième étape ne provenait pas du Système Stellaire Antique, mais du Royaume Intérieur. Il savait que tous les cultivateurs du Royaume Intérieur s'étaient rassemblés à Luotian pour leur ultime lutte et qu'il était impossible qu'ils soient ici.
 
-Tandis qu'il paniquait, avant même d'avoir pu achever sa phrase, sa vision fut inondée d'une lumière blanche. Il leva les yeux vers la faille et vit un jeune homme vêtu de blanc traverser l'aura de mort.
+Tandis qu'il paniquait, avant même d'avoir pu achever sa phrase, sa vision fut inondée d'une lumière blanche. Il leva les yeux vers la faille et vit un homme vêtu de blanc, aux cheveux blancs, traverser l'aura de mort.
 
-L'expression du jeune homme était sombre, et derrière lui flottaient des milliers de têtes poussant des cris misérables. Ces hurlements firent trembler l'esprit de l'homme chauve et ses pupilles se rétractèrent. Il regarda l'homme en blanc et sentit une étrange familiarité.
+L'expression de l'homme était sombre, et derrière lui flottaient des milliers de têtes poussant des cris misérables. Ces hurlements firent trembler l'esprit de l'homme chauve et ses pupilles se rétractèrent. Il regarda l'homme en blanc et sentit une étrange familiarité.
 
-« Tu... Tu es... » L'esprit de l'homme chauve fut secoué. Après un instant de stupeur, l'aura familière du jeune homme lui permit de se souvenir d'un nom. Dès qu'il s'en souvint, il poussa un cri incontrôlable et recula frénétiquement en hurlant.
+« Tu... Tu es... » L'esprit de l'homme chauve fut secoué. Après un instant de stupeur, l'aura familière de cet homme lui permit de se souvenir d'un nom. Dès qu'il s'en souvint, il poussa un cri incontrôlable et recula frénétiquement en hurlant.
 
 « Membres du Clan des Enfers, fuyez vite cette planète! Vite, vite...! »
 
@@ -68,13 +68,13 @@ Flottant dans les airs, Wang Lin leva la main droite et pressa la terre. L'innom
 
 Finalement, cette aura de mort infinie se condensa dans la main droite de Wang Lin, incarnant la Mort elle-même. Elle forma une sphère de gaz tournant à une vitesse fulgurante.
 
-Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs du Rivière Invoquée.
+Alors que l'aura de mort était extraite par Wang Lin, la vie revint sur la planète. Les nombreuses bulles éclatèrent toutes, rendant leur liberté aux cultivateurs de la Rivière Invoquée.
 
 Wang Lin détourna son regard de la planète et s'élança vers le ciel, la sphère d'aura de mort à la main. Il écrasa sans pitié cette sphère, libérant une quantité monstrueuse d'aura de mort vers les cieux.
 
 « Puisque vous êtes venus, ne partez pas! » La voix de Wang Lin était glaciale alors qu'il fixait l'horizon où l'aura de mort s'envolait. L'espace se distordit et un homme d'âge moyen en sortit.
 
-Cet homme portait une robe taoïste et son expression était extrêmement grave. Ses mains formèrent un sceau et un bouclier de tortue apparut autour de lui. Le vortex d'aura de mort percuta le bouclier.
+Cet homme portait une robe taoïste et son expression était extrêmement grave. Ses mains formèrent un sceau et un bouclier de tortue d'environ 1 000 pieds apparut autour de lui. Le vortex d'aura de mort percuta le bouclier.
 
 Des grondements tonnantes retentirent et des fissures apparurent sur le bouclier tremblant. Cependant, celui-ci ne se brisa pas, mais fut repoussé avec l'homme d'âge moyen.
 

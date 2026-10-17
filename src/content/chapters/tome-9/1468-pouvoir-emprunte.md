@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1468 - Borrowed Power!!"
 slug: pouvoir-emprunte
 ---
-Il vit huit montagnes de cadavres à l'extérieur de cet octogone!
+Derrière ces dizaines de milliers de cultivateurs qui l'entouraient dans les huit directions, il vit huit montagnes de cadavres!
 
 Le sang sur ces innombrables corps s'était déjà desséché. Ils avaient été entassés pour former huit montagnes gigantesques. L'aura sinistre semblait plus intense encore alors que Wang Lin observait la scène.
 
@@ -16,15 +16,15 @@ Derrière les montagnes de cadavres se dressaient huit dragons colossaux longs d
 
 Les têtes des dragons étaient tournées vers la plateforme, comme s'ils rugissaient face à celui qui siégeait autrefois sur ce trône!
 
-D'innombrables chars de guerre gigantesques se trouvaient derrière les dragons. Ces chars, à l'aspect terrifiant et couverts d'épines, étaient maculés de taches de sang sombre; il était évident qu'ils avaient été les acteurs d'une bataille titanesque par le passé.
+D'innombrables chars de guerre gigantesques, de 10 000 pieds chacun, se trouvaient derrière les dragons. Ces chars, à l'aspect terrifiant et couverts d'épines, étaient maculés de taches de sang sombre; il était évident qu'ils avaient été les acteurs d'une bataille titanesque par le passé.
 
 D'innombrables cultivateurs sur des épées volantes flottaient derrière les chars de guerre. Bien que leurs corps se soient changés en pierre, ils restaient suspendus dans les airs, imprégnés d'une intention meurtrière.
 
-Derrière eux, on comptait pas moins de millions de cultivateurs. Ils conservaient l'attitude qu'ils avaient de leur vivant et semblaient vouloir charger avec une fureur démente.
+Derrière eux, on comptait pas moins de plusieurs centaines de milliers de cultivateurs. Ils conservaient l'attitude qu'ils avaient de leur vivant et semblaient vouloir charger avec une fureur démente.
 
 Le nombre de cultivateurs paraissait sans fin...
 
-Des centaines de silhouettes imposantes tournaient le dos à la plateforme. Elles agitaient les bras comme pour diriger quelque chose... Au loin, huit ombres aussi vastes que le palais semblèrent apparaître. Parmi la foule des cultivateurs, elles entamaient un massacre frénétique.
+Près d'une centaine de silhouettes imposantes tournaient le dos à la plateforme. Elles agitaient les bras comme pour chasser quelque chose... Au loin, huit ombres presque aussi hautes que le palais semblèrent apparaître. Face aux cultivateurs qui chargeaient vers elles, elles se livraient à un massacre frénétique.
 
 Plus Wang Lin voyait, plus il était stupéfait. Son regard se porta progressivement vers le trône, où il aperçut un cultivateur singulier.
 
@@ -107,8 +107,8 @@ L'homme corpulent du Clan du Loup Céleste s'agenouilla au sol. Son corps trembl
 
 Wang Lin semblait ne rien avoir remarqué. Son regard paraissait avoir transpercé Ling Dong et Zhou Jin pour porter plus loin. Dans ses yeux, les cultivateurs autour de la plateforme de pierre semblaient être revenus des millénaires en arrière.
 
-Massacrer le monde! Ce qui s'ébranla n'était pas les cultivateurs morts depuis longtemps autour de la plateforme, mais l'esprit de Wang Lin. Des scènes enfouies dans le temps apparurent devant ses yeux...
+Le carnage ébranlait les cieux! Ce qui s'ébranla n'était pas les cultivateurs morts depuis longtemps autour de la plateforme, mais l'esprit de Wang Lin. Des scènes enfouies dans le temps apparurent devant ses yeux...
 
 Un parapluie était déployé dans cette vision.
 
-Un scribe d'âge mûr se tenait sous le parapluie. Il observait en silence les innombrables cultivateurs qui se précipitaient vers l'avant. Il regardait également l'entité sur le trône, tout en pointant le doigt vers elle de sa main gauche!
+Un lettré d'âge mûr se tenait sous le parapluie. Il observait en silence les innombrables cultivateurs qui se précipitaient vers l'avant. Il regardait également l'entité sur le trône, tout en pointant le doigt vers elle de sa main gauche!

@@ -58,7 +58,7 @@ Wang Lin avait tué trois personnes d'un coup!
 
 Cependant, le massacre ne s'arrêta pas là. Bien que les six restants aient été témoins de cette scène, reculer signifierait la mort; ils devaient voler une plateforme. Ils serrèrent les dents et chargèrent la plateforme que Wang Lin venait de quitter.
 
-« Idiots qui cherchent la mort! » Les mots de Wang Lin étaient glacials. Si les six avaient pris la fuite, il les aurait laissés partir. Mais comme ils refusaient d'abandonner, Wang Lin fit un pas et pointa sa main droite trois fois. Instantanément, plus de dix millions de rayons d'énergie d'épée jaillirent de sa main. Ces rayons se divisèrent en trois sections et frappèrent les trois individus les plus rapides.
+« Idiots qui cherchent la mort! » Les mots de Wang Lin étaient glacials. Si les six avaient pris la fuite, il les aurait laissés partir. Mais comme ils refusaient d'abandonner, Wang Lin fit un pas et pointa sa main droite trois fois. Instantanément, dix millions de rayons d'énergie d'épée jaillirent de sa main. Ces rayons se divisèrent en trois sections et frappèrent les trois individus les plus rapides.
 
 Parmi les trois, il y avait deux hommes et une femme. Les rayons d'énergie étaient trop rapides et, en un clin d'œil, ils les atteignirent. L'un des hommes d'âge moyen afficha une expression féroce et courba son corps dans un mouvement étrange. Puis, sa main s'élança vers le vide et il la remonta brusquement alors que les rayons approchaient.
 
@@ -66,7 +66,7 @@ Un écran de lumière violette apparut devant l'homme pour bloquer l'assaut d'é
 
 Des grondements tonitruants résonnèrent; l'homme cracha du sang tout en étant repoussé. Les rayons d'énergie d'épée pénétrèrent rapidement son corps, faisant trembler sa stature avant qu'il ne s'effondre.
 
-Il y avait aussi la femme d'âge moyen qui tenta d'esquiver, le visage pâle. Bien que son niveau de culture ne fût pas élevé, elle était extrêmement rapide, sinon elle n'aurait pas été arrivée avant les autres.
+Il y avait aussi la femme d'âge moyen qui tenta d'esquiver, le visage pâle. Bien que son niveau de culture ne fût pas élevé, elle était extrêmement rapide, sinon elle n'aurait pas pu arriver avant les autres.
 
 Elle esquiva promptement en décalant son corps sur le côté. Un fracas retentit et son épaule droite explosa, mais elle avait échappé à la mort.
 
@@ -76,15 +76,15 @@ Sur les trois, l'un était mort et l'autre blessé. Le dernier était le vieil h
 
 Les rayons d'énergie pénétrèrent tous dans le corps de ce dernier et le déchirèrent en morceaux.
 
-Après avoir tué trois personnes, Wang Lin en tua trois autres en un clin d'œil. À cet instant, il ne restait plus que trois individus! Les vêtements blancs de Wang Lin étaient maculés de taches rouges. Il retomba sur la plateforme, fixa les trois survivants et dit froidement: « Dégagez! »
+Après avoir tué trois personnes, Wang Lin en tua trois autres en un clin d'œil. À cet instant, il ne restait plus que trois individus! Les vêtements de Wang Lin étaient d'un blanc immaculé, sans la moindre tache de sang. Il retomba sur la plateforme, fixa les trois survivants et dit froidement: « Dégagez! »
 
-La cultivatrice qui avait perdu son bras droit était d'une pâleur mortelle. Bien que la mort fût terrifiante, la peur qu'elle ressentait à cet instant était plus forte encore. Le jeune homme vêtu de blanc ressemblait à une montagne invincible!
+La cultivatrice qui avait perdu son bras droit était d'une pâleur mortelle. Bien que la mort fût terrifiante, la peur qu'elle ressentait à cet instant était plus forte encore. Ce cultivateur aux vêtements et aux cheveux blancs ressemblait à une montagne invincible!
 
 Elle ne voulait pas mourir; elle devait battre en retraite et tenter de voler une autre plateforme!
 
 Le vieil homme du quatrième stade du Fléau Céleste était également livide et recula sans hésiter. Quant au dernier, il possédait le niveau de culture le plus bas et était le plus lent, ce qui lui permit d'éviter l'attaque de Wang Lin. Terrifié, il prit la fuite rapidement.
 
-Des grondements tonitruants résonnèrent alors qu'une colonne de brouillard jaillissait dans les airs, faisant périr instantanément les six cultivateurs qui avaient foulé la plateforme.
+Des grondements tonitruants résonnèrent: sur une plateforme lointaine, une colonne de brume de 10 000 pieds jaillit et l'engloutit, faisant périr les six cultivateurs qui l'avaient foulée en même temps.
 
 Cela ne s'arrêta pas là. Une colonne de brume apparut sous une autre plateforme et la détruisit.
 
@@ -98,7 +98,7 @@ Outre cette jeune fille, cinq autres personnes attirèrent l'attention de Wang L
 
 La première était une femme aux longs cheveux, vêtue de blanc. Elle restait là, silencieuse, le regard porté au loin. Tout cultivateur s'approchant de sa plateforme poussait un cri déchirant; du sang noir coulait alors de leurs yeux et leur corps dégageait une vapeur noire, victimes d'un poison puissant.
 
-Une autre plateforme était occupée par un homme d'âge moyen. Il tenait une cruche de vin dans la main gauche et une épée de sept pieds dans la droite. « La langue ancienne dit... Trois coupes pour une promesse... » L'homme prit une gorgée de vin et agita négligemment sa main droite. Sans autre mouvement, son épée transperça le crâne d'un cultivateur qui se précipitait vers lui. Le sang jaillit du front de la victime et dessina la forme d'une fleur de prunier sur la plateforme.
+Une autre plateforme était occupée par un homme d'âge moyen. Il tenait une cruche de vin dans la main gauche et une épée de sept pieds dans la droite. « La langue ancienne dit... Trois coupes pour une promesse, les Cinq Monts en deviennent légers... » L'homme prit une gorgée de vin et agita négligemment sa main droite. Sans autre mouvement, son épée transperça le crâne d'un cultivateur qui se précipitait vers lui. Le sang jaillit du front de la victime et dessina la forme d'une fleur de prunier sur la plateforme.
 
 Il y avait plus de dix fleurs de prunier ensanglantées sur cette plateforme!
 

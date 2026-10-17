@@ -12,7 +12,7 @@ Le corps de Wang Lin, juste sous sa poitrine, fut saisi par la paume, et une dou
 
 Grande Désolation avait occupé l'avatar du Maître Dao Miao Yin et supprimait l'âme à l'intérieur. Il était assis sur la paume, l'expression sombre.
 
-Trois plateformes avaient également été entraînées par le bras. Il s'agissait clairement des trois plateformes appartenant à Wang Lin, Grande Désolation et Miao Yin! Les plateformes présentaient des dommages similaires, mais il était évident que le bras ne cherchait pas à les broyer.
+Trois plateformes avaient également été entraînées par le bras. Il s'agissait clairement des trois plateformes appartenant à Wang Lin, Grande Désolation et Miao Yin! Les plateformes n'avaient pas subi de gros dommages, seulement de nombreuses fissures, et il était évident que le bras ne cherchait pas à les broyer.
 
 Un éclat de froideur traversa les yeux de Grande Désolation. Puis, il leva la main droite et forma un sceau. Un gaz noir chargé d'un poison extrême se rassembla. Il laissa échapper un reniflement glacial et s'apprêtait à presser la paume géante lorsque Wang Lin prit soudain la parole.
 
@@ -32,7 +32,7 @@ Grande Désolation n'était pas un cultivateur ordinaire. Après avoir été ré
 
 « Que veux-tu dire? » Le visage de Grande Désolation se déforma, et les traits hideux de son corps originel commencèrent à apparaître sur l'avatar du Maître Dao Miao Yin.
 
-La grande main ne se referma pas complètement, laissant une vaste zone de terrain libre. Wang Lin recula jusqu'à une distance de 10 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miao Yin. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
+La grande main ne se referma pas complètement, laissant une vaste zone de terrain libre. Wang Lin recula jusqu'à une distance de 1 000 pieds de Grande Désolation et rangea ses propres plateformes ainsi que celles de Miao Yin. Bien que son visage fût pâle, ses yeux brillaient d'un éclat vif.
 
 Wang Lin dit lentement: « Ce junior a observé la trajectoire de cette main géante et en a déduit une hypothèse. Si je me trompe, nous pourrons travailler ensemble pour trouver un moyen de nous libérer, il ne sera pas trop tard... Cependant, si j'ai raison, l'apparition de cette main pourrait ne pas être une mauvaise chose pour nous! »
 
@@ -62,13 +62,13 @@ Il était impossible de décrire la puissance de cette projection. Elle fut si r
 
 Le bras décrivit un arc de cercle et, lorsqu'il atteignit sa limite, les cinq doigts s'ouvrirent. Wang Lin et Grande Désolation furent lancés comme des projectiles par ce géant dans les profondeurs de l'Ancien Tombeau!
 
-La force puissante du bras les propulsa avec une célérité dépassant celle des cultivateurs du troisième pas.
+La force puissante du bras les propulsa avec une célérité dépassant celle des cultivateurs du troisième niveau.
 
 Cette vitesse était excessive. Si Wang Lin n'avait pas possédé le corps d'un Dieu Ancien, son être aurait été broyé par la brume environnante! Bien que la brume fût informe, une fois qu'une certaine limite de vitesse est atteinte, cette substance insaisissable devient la chose la plus dure au monde!
 
 Des craquements retentirent dans son corps et du sang jaillit. Cependant, il perça la brume en un éclair pour être projeté dans les profondeurs de l'Ancien Tombeau. Wang Lin s'était déjà préparé à cela: au moment où le bras le projeta, il fut comme une flèche décochée d'un arc. Son énergie originelle forma des couches de défense autour de lui et son Bouclier de Lumière et d'Ombre apparut.
 
-Lorsqu'il fut projeté, il quitta sans ménagement la paume. Il avait emprunté la force de la projection pour utiliser sa propre puissance afin de se déplacer plus vite que Grande Désolation! Il dépassa ce dernier et disparut le premier dans la brume.
+Lorsqu'il fut projeté, il frappa violemment la paume du pied droit. Il avait emprunté la force de la projection, qu'il combina à sa propre force de rebond, afin de se déplacer plus vite que Grande Désolation! Il dépassa ce dernier et disparut le premier dans la brume.
 
 Si Wang Lin n'avait pas maîtrisé la loi de la force de la Tortue Noire, il n'aurait jamais osé une telle manœuvre. S'il n'avait pas pu contrôler la force de rebond, cela aurait détruit son corps!
 

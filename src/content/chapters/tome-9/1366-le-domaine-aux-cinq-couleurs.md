@@ -10,23 +10,23 @@ L'image se dissipa.
 
 Cependant, l'image de cette personne se retournant tout en parlant resta gravée dans l'esprit de Wang Lin, telle une empreinte indélébile!
 
-L'apparence de cet individu était inconnue de Wang Lin. Il était convaincu ne jamais l'avoir vu auparavant, mais... une lumière aux cinq couleurs scintillait dans son œil gauche. Wang Lin connaissait parfaitement cette lueur; il put la reconnaître d'un seul coup d'œil: c'était... le Domaine aux Cinq Couleurs!!!
+L'apparence de cet individu était inconnue de Wang Lin. Il était convaincu ne jamais l'avoir vu auparavant, mais... une lumière aux cinq couleurs scintillait dans son œil gauche. Wang Lin connaissait parfaitement cette lueur; il put la reconnaître d'un seul coup d'œil: c'était... un Royaume Ji!!!
 
-Le Domaine aux Cinq Couleurs!
+Le Royaume Ji aux Cinq Couleurs!
 
 Wang Lin ne l'avait vu qu'une seule fois, il y a bien longtemps, sur la planète Suzaku. Il appartenait à Na Duo, de la Planète des Cinq Éléments!
 
-À l'instant même où Wang Lin avait aperçu le Domaine aux Cinq Couleurs, il avait eu l'inexplicable sensation que celui-ci était identique à celui de Na Duo!
+À l'instant même où Wang Lin avait aperçu le Royaume Ji aux Cinq Couleurs dans l'œil de cet homme, il avait eu l'inexplicable sensation qu'il s'agissait très probablement de la même chose que celui de Na Duo!
 
-Sa rencontre avec Na Duo avait ouvert les portes du Domaine aux Cinq Couleurs pour Wang Lin. Il avait également découvert qu'il n'existait pas un seul, mais plusieurs types de Domaines aux Cinq Couleurs!
+Sa rencontre avec Na Duo avait ouvert à Wang Lin la porte de la compréhension de son propre Royaume Ji, et lui avait appris, pour la première fois, qu'il n'existait pas un seul type de Royaume Ji!
 
-Na Duo était l'un de ceux qui avaient traqué Situ Nan et qui s'était retrouvé à guérir, tel une momie, sur la planète Suzaku. Wang Lin lui avait dérobé son sac de contenance et, après que Wang Lin eut pris sa revanche à Zhao, cet homme l'avait rattrapé.
+Na Duo était l'un de ceux qui avaient traqué Situ Nan et qui s'était retrouvé à guérir ses blessures sous la forme d'un cadavre, sur la planète Suzaku. Wang Lin lui avait dérobé son sac de contenance et, après que Wang Lin eut pris sa revanche au pays de Zhao, cet homme l'avait rattrapé.
 
 Bien que l'image eût disparu, les yeux de Wang Lin brillèrent. Il semblait avoir découvert un immense secret!
 
-« La lumière dorée entourant cette personne devrait être le Lasseur d'Âmes. Conjugué à ce que le Grand Ancien a dit lors de notre combat... et avec le Domaine aux Cinq Couleurs de Na Duo... Se pourrait-il que ces mystérieux cultivateurs ne soient pas partis, mais se soient dirigés vers le Domaine Intérieur? »
+« La lumière dorée entourant cette personne devrait être le Fouet d'Âmes. Conjugué à ce que le Grand Ancien a dit lors de notre combat... et avec le Royaume Ji aux Cinq Couleurs de Na Duo... Se pourrait-il que ces mystérieux cultivateurs ne soient pas partis, mais se soient dirigés vers le Royaume Intérieur? »
 
-« Pour une raison inconnue, son Domaine aux Cinq Couleurs s'est retrouvé entre les mains de Na Duo! Même le Lasseur d'Âmes a été laissé derrière sur la planète Suzaku... »
+« Pour une raison inconnue, son Royaume Ji aux Cinq Couleurs s'est retrouvé entre les mains de Na Duo! Même le Fouet d'Âmes a été laissé derrière sur la planète Suzaku... »
 
 « Na Duo doit en savoir beaucoup à ce sujet... La Planète des Cinq Éléments... Na Duo! » Tandis que Wang Lin méditait silencieusement, ses yeux s'illuminèrent. Après un long moment, il prit une profonde inspiration et écarta ces pensées. Ce n'était pas le moment de s'y attarder.
 
@@ -34,11 +34,11 @@ Bien que l'image eût disparu, les yeux de Wang Lin brillèrent. Il semblait avo
 
 À chaque rotation, chaque pouce du corps de Wang Lin se remplissait de la puissance du tonnerre. À cet instant, il n'était plus un simple cultivateur, mais un éclair de tonnerre!
 
-Un éclair de tonnerre défiant les cieux!
+Un tonnerre qui refusait son destin et défiait les cieux!
 
-Sa culture subit alors un étrange changement. Une telle mutation ne s'était jamais produite, ni dans le Domaine Intérieur, ni dans le Domaine Extérieur! S'il s'était contenté d'utiliser ce pouvoir du tonnerre, il aurait pu franchir le stade intermédiaire du Briseur du Nirvana pour atteindre le stade avancé!
+Sa culture subit alors un étrange changement. Une telle mutation ne s'était jamais produite, ni dans le Royaume Intérieur, ni dans le Royaume Extérieur! S'il s'était contenté d'utiliser ce pouvoir du tonnerre, il aurait pu franchir le stade intermédiaire du Briseur du Nirvana pour atteindre le stade avancé!
 
-Cependant, s'il n'utilisait pas le tonnerre mais plutôt son propre domaine, le feu et son énergie originelle, Wang Lin restait au stade intermédiaire du Briseur du Nirvana.
+Cependant, s'il n'utilisait pas le tonnerre mais plutôt son propre domaine, le feu et l'énergie originelle du ciel et de la terre, Wang Lin restait au stade intermédiaire du Briseur du Nirvana.
 
 Cela était directement lié au fait qu'il possédait cinq essences dans son corps!
 
@@ -54,7 +54,7 @@ Le bruissement de la pluie créait des ondulations sur le sol jonché de feuille
 
 Le lien entre les secteurs ouest et nord de la ville était habituellement très animé. Par beau temps, même tard dans la nuit, les maisons closes et les casinos étaient toujours bondés.
 
-Pourtant, sous cette pluie battante, tout était devenu calme. Seuls les établissements se faisant passer pour des restaurants projetaient encore un peu de lumière.
+Pourtant, sous cette pluie battante, tout était devenu calme. Seules les enseignes de quelques auberges et restaurants, ouverts toute la journée, laissaient encore filtrer une faible lueur en oscillant dans le vent et la pluie.
 
 Wang Lin marcha lentement à travers le quartier ouest jusqu'à l'entrée d'un restaurant. Il n'y avait que deux ou trois clients à l'intérieur, et le serveur affichait un regard si léthargique qu'il semblait sur le point de s'endormir à tout instant.
 
@@ -104,7 +104,7 @@ Il tenait toujours l'âme originelle dans sa main gauche et, dès qu'il entra, i
 
 Wang Lin n'aurait pas pris le risque inutile de tuer l'Ancien en robe taoïste, mais il avait besoin de connaître la situation actuelle dans le Système Stellaire Antique. Il avait utilisé son tonnerre pour sectionner instantanément une partie de l'âme originelle du vieil homme afin d'en sonder la mémoire.
 
-« C'est bien ce que je craignais, le Système Stellaire Antique a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Antique, mais aussi le filet de recherche qu'ils avaient déployé.
+« C'est bien ce que je craignais, le Système Stellaire Antique a commencé des recherches minutieuses... Le Grand Maître Yun Luo du Conseil Souverain... Son sort est capable de calculer ma position... » Les yeux de Wang Lin brillèrent. Grâce à ces souvenirs, il apprit non seulement l'existence de la traque lancée par le Système Stellaire Antique, mais aussi tous les dispositifs qu'ils avaient déployés dans ce domaine stellaire.
 
 Avec un ricanement, Wang Lin agita la main et une âme originelle apparut dans sa paume. C'était celle du Grand Ancien du Clan du Tonnerre Dispersé. Ses yeux étaient clos et il était à l'agonie!
 

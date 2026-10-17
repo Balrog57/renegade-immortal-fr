@@ -36,15 +36,15 @@ Ce regard d'une sérénité glaciale fit trembler l'esprit de l'ancêtre!
 
 Dans un froid renâclement, la main droite de l'ancêtre s'abattit sur le corps de Liu Jinbiao. Le feu s'engouffra en lui, mais après que les flammes eurent balayé son corps, l'ancêtre fronça les sourcils.
 
-Liu Jinbiao ricana: « Petit Clan des Moineaux de Feu, vous m'attaquez par surprise alors que ce vieil homme est gravement blessé... Tout comme votre ancêtre, vous n'êtes que de simples clowns! »
+Liu Jinbiao ricana: « Petit Clan des Moineaux de Feu, vous m'attaquez par surprise alors que ce vieil homme est gravement blessé... Tout comme vos ancêtres, vous n'êtes que de simples clowns! »
 
-Les yeux de l'ancêtre s'illuminèrent et une partie de ses doutes se dissipa. En examinant le corps de Liu Jinbiao, il constata qu'il n'y avait pas eu une grande quantité de feu à l'intérieur. Bien que les paroles de Liu Jinbiao aient apaisé une partie de son scepticisme, ce n'était pas suffisant. Il agita la main droite et une blessure apparut sur la main droite de Liu Jinbiao, laissant couler une quantité importante de sang.
+Les yeux de l'ancêtre s'illuminèrent et une partie de ses doutes se dissipa. En examinant le corps de Liu Jinbiao, il constata qu'il n'y avait pas eu une grande quantité de feu à l'intérieur. Bien que les paroles de Liu Jinbiao aient apaisé une partie de son scepticisme, ce n'était pas suffisant. Il agita la main droite et une blessure apparut sur le bras droit de Liu Jinbiao, laissant couler une quantité importante de sang.
 
 L'ancêtre recueillit ce sang et le condensa en une sphère. Après l'avoir senti, la joie illumina son regard et, après une légère hésitation, il le dévora.
 
 Lorsque le sang atteignit son estomac, il se mua en une puissante force de feu qui explosa à l'intérieur de son corps. Une illusion apparut immédiatement derrière l'ancêtre du Clan des Moineaux de Feu.
 
-Un oiseau de feu colossal déploya ses ailes, et devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après un combat acharné, l'oiseau de feu dévora le Oiseau Vermillon.
+Un oiseau de feu colossal déploya ses ailes, et devant lui se trouvait un Oiseau Vermillon plus petit. Ce dernier semblait gravement blessé et flou. Après un combat acharné, l'oiseau de feu dévora l'Oiseau Vermillon.
 
 Une fois sa proie consommée, les flammes entourant l'oiseau de feu jaillirent et il commença à se métamorphoser, devenant de plus en plus semblable à l'Oiseau Vermillon originel.
 
@@ -100,7 +100,7 @@ Wang Lin la réceptionna et la rangea après l'avoir examinée. Il joignit les m
 
 « Veuillez parler, Ancêtre. Tant que le Junior en est capable, je m'exécuterai! » La voix de Wang Lin n'était pas forte, mais elle était empreinte d'une détermination inébranlable.
 
-Le visage du Vieux Oiseau Vermillon s'empourpra tandis qu'il posait sa canne et se frottait les mains. « Ton Oiseau Vermillon s'est éveillé quatre fois, et tu es déjà qualifié pour transmettre la marque du Oiseau Vermillon. Ce vieil homme espère que lorsque tu choisiras le septième Oiseau Vermillon... ceci... »
+Le visage du Vieux Oiseau Vermillon s'empourpra tandis qu'il posait sa canne et se frottait les mains. « Ton Oiseau Vermillon s'est éveillé quatre fois, et tu es déjà qualifié pour transmettre la marque de l'Oiseau Vermillon. Ce vieil homme espère que lorsque tu choisiras le septième Oiseau Vermillon... ceci... »
 
 Wang Lin regarda l'Ancien, attendant la suite.
 
@@ -110,7 +110,7 @@ Wang Lin fronça les sourcils, perplexe. Après réflexion, il hocha la tête: �
 
 « Ce vieil homme ne voulait pas dire ça... » L'Ancien se frotta les mains en serrant les dents. « Je veux dire que lorsque tu choisiras le septième, il ne doit pas être un individu trop volage. Hélas, pourquoi ne comprends-tu rien? Ta compréhension n'est-elle pas censée être élevée? Dois-je vraiment tout te dire explicitement... Très bien, choisis plutôt un enfant pour le septième Oiseau Vermillon, afin d'éviter que son Yang de l'âme originelle ne soit brisé, ce qui l'empêcherait de pratiquer la méthode de culture de ce vieil homme! Voilà, choisis un enfant, et la prochaine fois que tu viendras, amène-le ici! »
 
-« Et n'oublie pas de vérifier que son Yang d'âme originelle est intact! Ce n'est pas que je te réprimande, mais regarde-toi. Tu es si jeune, et pourtant tu n'atteins même pas mon niveau de culture. Sache qu'au fil des âges innombrables, pas un fragment du Yang de mon âme originelle ne s'est dissipé. Je ne comprends vraiment pas les juniors comme vous; qu'y a-t-il de si enviable dans la double culture? Ce vieil homme n'a jamais pratiqué la double culture avec personne, et pourtant je déborde d'énergie chaque jour, sans même parler du bonheur que cela procure! »
+« Et n'oublie pas de vérifier que son Yang d'âme originelle est intact! Ce n'est pas que je te réprimande, mais regarde-toi. Tu es si jeune, et pourtant tu n'as même pas autant de maîtrise de toi que moi. Sache qu'au fil des âges innombrables, pas un fragment du Yang de mon âme originelle ne s'est dissipé. Je ne comprends vraiment pas les juniors comme vous; qu'y a-t-il de si enviable dans la double culture? Ce vieil homme n'a jamais pratiqué la double culture avec personne, et pourtant je déborde d'énergie chaque jour, sans même parler du bonheur que cela procure! »
 
 Wang Lin resta interdit un instant, fixant le Vieux Oiseau Vermillon. Laissant sans voix, il ne put que hocher la tête avec un sourire amer.
 

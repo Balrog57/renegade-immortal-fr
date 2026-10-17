@@ -46,7 +46,7 @@ Le Céleste qui tenait la cultivatrice lâcha sa proie, le visage livide.
 
 Cette découverte soudaine fit naître la peur sur les visages des dizaines de Célestes. Ils ne pouvaient oublier la puissance de cette flèche lors de l'Ancien Royaume Céleste, trois ans plus tôt!
 
-C'est à cet instant que Situ Nan s'éveilla. Il leva la tête et, sans la moindre hésitation, sortit un jade. Ce jade lui avait été confié par Wang Lin lors de leur rencontre sur la planète Suzaku, lorsque Wang Lin lui avait parlé de l'Ancien Royaume Céleste. Wang Lin lui avait ordonné que si les Célestes apparaissaient et tentaient de massacrer les cultivateurs, il devait broyer ce jade!
+C'est à cet instant que Situ Nan s'éveilla. Il leva la tête et, sans la moindre hésitation, sortit un jade. Ce jade lui avait été confié par Wang Lin lors de leur rencontre sur la planète Suzaku, lorsque Wang Lin lui avait fait connaître la vérité sur le monde caverneux. Wang Lin lui avait ordonné que si les Célestes apparaissaient et tentaient de massacrer les cultivateurs, il devait broyer ce jade!
 
 Situ Nan sortit le jade et l'écrasa. Dès qu'il fut pulvérisé, l'aura de Wang Lin jaillit du fragment!
 
@@ -60,11 +60,11 @@ Le firmament se distordit et une silhouette blanche apparut. Cette silhouette é
 
 Avec ce rugissement, une intention meurtrière fulgurante se propagea, réveillant les souvenirs traumatiques de ces dizaines de Célestes. Ils poussèrent des cris et leurs visages pâlirent tandis qu'ils reculaient précipitamment. En un clin d'œil, ils quittèrent le nouveau Royaume Céleste.
 
-À l'extérieur du nouveau Royaume Céleste, parmi les douzaines de Célestes qui s'étaient retirés, se trouvait un vieil homme: le Dragon Azure. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
+À l'extérieur du nouveau Royaume Céleste, parmi les dizaines de Célestes arrivés à la suite des premiers, se trouvait un vieil homme: le Dragon Azure. Il affichait une expression sombre en observant ceux qui avaient forcé l'entrée du nouveau Royaume Céleste. Il laissa échapper un reniflement froid avant de faire un pas en avant et de joindre les mains en signe de respect.
 
 « Ce vieux n'a pas été assez strict et est arrivé trop tard. J'espère que, cher Compagnon Cultivateur, vous nous pardonnerez. Ce vieux vous donnera une explication! Heureusement, il n'y a eu aucune victime; alors, cher Compagnon, ne soyez pas en colère... Notre accord tient toujours. Nous, du Royaume Céleste Antique, ne tuerons pas un seul cultivateur du Royaume Intérieur! »
 
-Dans le Royaume Extérieur, Wang Lin ouvrit les yeux, révélant un regard glacial. Il s'était attendu à cela depuis longtemps, c'est pourquoi il avait laissé ce jade en lieu sûr. Voyant ces Célestes battre en retraite, il s'apprêtait à parler lorsqu'il tourna soudainement son regard vers lointain.
+Dans le Royaume Extérieur, Wang Lin ouvrit les yeux, révélant un regard glacial. Il s'était attendu à cela depuis longtemps, c'est pourquoi il avait laissé ce jade à l'époque. Voyant ces Célestes battre en retraite, il s'apprêtait à parler lorsqu'il tourna soudainement son regard vers le lointain.
 
 Sans hésiter, Wang Lin se leva et s'élança vers l'horizon!
 
@@ -72,9 +72,9 @@ L'Ancien Royaume Céleste était originellement unique avant d'être scindé en 
 
 Bien qu'une formation bloquât les bouleversements à l'intérieur du Royaume Intérieur, certains cultivateurs de la troisième étape du Royaume Extérieur en ressentirent tout de même les contrecoups. En particulier, le Souverain, dont les yeux se remplirent d'incrédulité lorsqu'il comprit soudainement ce que Wang Lin comptait faire!
 
-« C'est une catastrophe! Il va utiliser la puissance de la flèche pour détruire le Royaume Céleste Antique du Royaume Extérieur! Il... il est fou! Il a dû apprendre que cet endroit n'est qu'un monde caverne! » L'expression du Souverain changea radicalement avant qu'il ne s'élance à travers les étoiles.
+« C'est une catastrophe! Il va utiliser la puissance de ses deux arcs pour détruire le Royaume Céleste Antique du Royaume Extérieur! Il... il est fou! Il a dû apprendre que cet endroit n'est qu'un monde caverne! » L'expression du Souverain changea radicalement avant qu'il ne s'élance à travers les étoiles.
 
-À ce moment-là, non seulement le sien, mais aussi celui de tous les cultivateurs de la troisième étape observant Wang Lin se transformèrent. Ils comprirent tous simultanément l'intention du guerrier!
+À ce moment-là, non seulement le Souverain, mais aussi tous les cultivateurs de la troisième étape observant Wang Lin changèrent d'expression. Ils comprirent tous presque simultanément ce que Wang Lin comptait faire!
 
 Wang Lin se déplaçait à pleine vitesse. Depuis sa position, il ne lui fallait qu'un instant pour atteindre n'importe quel point du Système Stellaire Antique. Il disparut et, lorsqu'il réapparut, il se trouvait dans un domaine stellaire criblé de failles spatiales!
 
@@ -84,19 +84,19 @@ L'aura du Royaume Céleste Antique émanait de l'intérieur, suivie de rires dé
 
 Ces figures étaient également des anciens Célestes. Ils étaient tous des disciples de la Secte des Sept Dao, mais ils n'étaient plus loyaux au Souverain Céleste aux Sept Couleurs, mais aux concubines! Plus précisément, ils étaient dévoués à la partenaire de dao que le Souverain avait abandonnée pour sauver sa propre vie!
 
-Sans l'ordre de cette partenaire de dao, ils n'auraient pas suivi les commandements des sept concubines. On pourrait dire que c'était là la cause profonde de la grande guerre du monde caverne!
+Sans l'ordre de cette partenaire de dao, ils n'auraient pas suivi les commandements des sept concubines. On pourrait dire que c'était là l'une des causes profondes de la grande guerre du monde caverne!
 
 Ils étaient l'atout ultime dont disposaient les concubines impériales célestes. Lorsque tout le monde réalisa ce que Wang Lin allait accomplir, l'expression de la septième concubine changea brusquement et elle se précipita vers lui.
 
 Même la troisième concubine fut secouée et se rua rapidement sur place.
 
-Des rires démente résonnaient dans la faille alors que les figures dorées s'en échappaient. Cependant, tous ceux qui sortirent virent immédiatement le cultivateur aux cheveux blancs, vêtu de blanc, qui semblait les attendre les yeux clos!
+Des rires déments résonnaient dans la faille alors que les figures dorées s'en échappaient. Cependant, tous ceux qui sortirent virent immédiatement le cultivateur aux cheveux blancs, vêtu de blanc, qui semblait les attendre les yeux clos!
 
 Ils ne reconnurent pas Wang Lin. Bien qu'il possédât un certain niveau de culture, ils ne le considéraient pas comme une menace. Ils rirent sauvagement, l'excitation brillant dans leurs yeux.
 
 « Nous pouvons enfin sortir! »
 
-« Puisque nous sommes là, les quatre généraux doivent aussi être sortis. Tuez! Tuez-les pour obtenir le Tome du Dao et nous pourrons fonder une nouvelle Secte des Sept Dao! »
+« Puisque nous sommes là, les quatre généraux doivent aussi être sortis. Tuez! Tuez-les pour obtenir l'héritage du Dao et nous pourrons fonder une nouvelle Secte des Sept Dao! »
 
 « Non seulement nous devons les tuer, mais nous devons anéantir toute vie dans ce monde caverne. Ce n'est qu'ainsi que nous pourrons rouvrir cette caverne! »
 

@@ -14,7 +14,7 @@ Cette essence d'eau ne provenait pas du Général de l'Eau, mais de l'armure. C'
 
 « Je pensais qu'il possédait une méthode capable de briser le ciel, mais il n'est que si fort... S'il devait sortir, il l'aurait fait dès la formation de la sphère. Je présume qu'il doit maintenant ressentir le désespoir à l'intérieur! »
 
-« Wang Lin, il n'y a pas de querelle entre nous, et je ne souhaite vraiment pas te tuer, mais tu es un cultivateur du Monde des Grottes... Nous sommes différents de vous... Tu dois être venu ici avec un dessein précis... Le Monde des Grottes est en plein chaos actuellement, et plusieurs forces recherchent la troisième âme. Ton arrivée maintenant rend ton but évident. » Tandis que Na Duo méditait, son sourire s'accentuait.
+« Wang Lin, il n'y a pas de querelle entre nous, et je ne souhaite vraiment pas te tuer, mais tu es un cultivateur du Monde des Grottes... Nous sommes différents de vous... Tu dois être venu ici avec un dessein précis, sinon pourquoi n'arriver que maintenant... Le Monde des Grottes est en plein chaos actuellement, et plusieurs forces recherchent la troisième âme. Ton arrivée maintenant rend ton but évident. » Tandis que Na Duo méditait, son sourire s'accentuait.
 
 À l'intérieur de la tour également, le vieil homme en robe noire et ses compagnons fixaient le miroir. Les yeux du vieil homme étaient empreints d'excitation alors qu'il riait.
 
@@ -30,7 +30,7 @@ Même les deux cultivateurs à leurs côtés, qui étaient restés calmes jusqu'
 
 Simultanément, à l'extérieur de la tour, des acclamations incessantes retentissaient. Tous les disciples de la Secte Gui Yi regardaient le ciel avec exaltation. Ils contemplaient la sphère d'eau qui se contractait comme s'ils pouvaient déjà percevoir l'expression douloureuse de Wang Lin et entendre ses cris de détresse.
 
-Le Général de l'Eau était le plus enthousiaste. Il continuait de faire de grands gestes, et la sphère d'eau ne cessait de se condenser. La sphère mesurait désormais moins de 100 000 pieds de large et se rattachait encore plus vite. L'eau était trouble et des grondements en émanaient; c'était le son de l'eau qui se condensait, une mélodie céleste aux oreilles du Général de l'Eau.
+Le Général de l'Eau était le plus enthousiaste. Il continuait de faire de grands gestes, et la sphère d'eau ne cessait de se condenser. La sphère mesurait désormais moins de 100 000 pieds de large et se comprimait de plus en plus vite. L'eau était trouble et des grondements en émanaient; c'était le son de l'eau qui se condensait, une mélodie céleste aux oreilles du Général de l'Eau.
 
 « C'est trop lent. Je dois accélérer pour éviter tout accident! » Pour une raison inconnue, bien que le Général de l'Eau soit excité, il ressentit soudain un pressentiment terrifiant à mesure que la sphère rétrécissait. Ce sentiment surgit si brusquement qu'il en fut lui-même perplexe.
 

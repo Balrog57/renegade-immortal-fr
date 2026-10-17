@@ -74,13 +74,13 @@ Il déploya également son Sens Divin pour scanner les environs. Bien qu'il ne p
 
 À moins d'une situation désespérée, Wang Lin n'utiliserait ni Zhou Jin ni Ling Dong pour l'aider dans ses recherches. Cette Bête des Limbes n'était pas une cultivatrice et était extrêmement craintive. Dès qu'elle ressentirait la perturbation de son Sens Divin, elle s'enfuirait immédiatement.
 
-Qu'elle s'échappe ne serait pas un problème en soi, mais si elle devenait éthérée pour fuir, il lui serait alors très difficile de la retrouver! De plus, il ne souhaitait pas tuer cette bête, mais en faire son essence de vie d'Ancien Dieu!
+Qu'elle s'échappe ne serait pas un problème en soi, mais si elle devenait éthérée pour fuir, il lui serait alors très difficile de la retrouver! De plus, il ne souhaitait pas tuer cette bête, mais en faire son essence de vie de Dieu Ancien!
 
 Tout en avançant, l'expression de Wang Lin demeurait extrêmement grave. Chaque pas le faisait progresser de centaines de milliers de pieds. Il fendait constamment le brouillard, traquant la moindre trace de la Bête des Limbes.
 
 Le temps passait lentement, mais Wang Lin n'était nullement épuisé. Il était tel un chasseur traquant avec soin sa proie. Au cours de cette progression, de nombreuses bêtes féroces et étranges apparurent dans son Sens Divin. Cependant, quelle que soit leur férocité, dès que le Sens Divin de Wang Lin les balayait, elles tremblaient et n'osaient plus bouger. Elles n'osaient même pas émettre le moindre son.
 
-Dans la brume, une silhouette blanche fulgurait souvent, parcourant de vastes distances. Wang Lin explorait méticuleusement le domaine stellaire couvert par ce brouillard.
+Dans la brume, une silhouette blanche fulgurait souvent, parcourant de vastes distances. Wang Lin explorait méticuleusement le domaine stellaire couvert par ce brouillard, dont il avait déjà exploré deux à trois dixièmes.
 
 Aucun signe de la Bête des Limbes ne se manifestait. Depuis sa dernière apparition, elle semblait avoir disparu. L'expression de Wang Lin restait sérieuse et il ne montrait aucun signe d'impatience alors qu'il poursuivait sa quête.
 

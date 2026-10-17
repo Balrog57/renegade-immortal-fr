@@ -6,6 +6,8 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1481 - Yesterday and Today Will Have Clouds and Rain
 slug: hier-et-aujourdhui-seront-couverts-de-nuages-et-de-pluie
 ---
+Hier comme aujourd'hui, la pluie tombe sur Hengyun, emplit les ravins de la montagne, et un vieil ami est venu.
+
 Les gouttes de pluie tombaient sur la roche. Cependant, l'averse était précipitée et désordonnée; loin d'être joyeuse, elle semblait presque agacée.
 
 Heureusement, le vent balayait les gouttes, dissipant cette pointe d'irritation. Le grondement puissant de la pluie résonnait alors.
@@ -20,7 +22,7 @@ Wang Lin sourit au vieil homme sur la plateforme de pierre.
 
 « Maître! » Le vieil homme se leva et s'agenouilla, bouleversé. La pluie coulait sur son visage, se mêlant à ses larmes.
 
-Cela faisait 800 ans que Wang Lin était arrivé sur la planète Qing Ling, où il était venu chercher l'illumination et avait rencontré le disciple qu'il avait accepté à l'époque.
+Huit cents ans s'étaient écoulés depuis leur séparation. Wang Lin était de retour sur la planète Qing Ling, là où il avait autrefois cherché le Dao, et il revoyait le disciple honorifique qu'il avait accepté à l'époque.
 
 Xie Qing n'avait été qu'un bref passage dans la vie de Wang Lin, mais c'était grâce à lui que le domaine de Wang Lin avait pu atteindre sa perfection. En conséquence, un lien de karma s'était tissé entre eux, et il avait accepté Xie Qing pour disciple.
 
@@ -42,7 +44,7 @@ Même Xie Qing ignorait la raison de ce phénomène. Ne connaissant aucune méth
 
 « La culture de l'âme... » Wang Lin observa Xie Qing et réfléchit.
 
-Il détourna le regard vers la pluie qui tombait du ciel. L'eau était glaciale lorsqu'elle frappait son visage, et il murmura lentement: « Les cultivateurs immortels cherchent à devenir immortels et à vivre éternellement... Les cultivateurs de la Vérité cultivent pour rechercher la vérité... Les cultivateurs du Dao cherchent à trouver leur propre Dao... Et les cultivateurs de l'âme affinent leur âme afin que le monde devienne leur maître! »
+Il détourna le regard vers la pluie qui tombait du ciel. L'eau était glaciale lorsqu'elle frappait son visage, et il murmura lentement: « Les cultivateurs immortels cherchent à devenir immortels et à vivre éternellement... Les cultivateurs de la Vérité cherchent leur vrai moi et vivent libres, au-delà du monde... Les cultivateurs du Dao confirment l'origine et deviennent eux-mêmes le Dao... Et les cultivateurs de l'âme font entrer leur âme dans leur destin: le Ciel, la Terre, le souverain, les parents, le maître! »
 
 Agenouillé sur la plateforme, Xie Qing affichait un regard empreint de confusion et d'ignorance. La pluie redoubla d'intensité, ses vêtements mouillés collant à sa peau, ce qui le gênait. Encore troublé, il leva inconsciemment la main droite pour former un sceau qu'il avait lui-même conçu.
 
@@ -52,7 +54,7 @@ Wang Lin secoua la tête et murmura: « Tu n'as pas encore totalement renoncé a
 
 « Xie Qing, regarde cette montagne. A-t-elle jamais tenté d'arrêter la pluie? Regarde la rivière et l'océan. Ont-ils rejeté les précipitations? Regarde les arbres et tout ce qui nous entoure. Hormis les humains, quelle autre créature empêche la pluie de se poser sur elle? »
 
-« Puisque tu es un cultivateur de l'âme, pourquoi chérisses-tu encore cette peau? Retourne à l'origine. Peu de gens peuvent réellement le comprendre... Même mon Maître pensait que j'avais saisi ces quatre mots... Mais ce n'est qu'après avoir traversé tant d'épreuves et être retourné à Luotian que j'ai eu l'illumination... Retourner à l'origine, c'est devenir un avec les arbres, les montagnes et les rivières. C'est se libérer de toute limite pour ne faire qu'un avec le monde... Voilà ce que signifie véritablement retourner à l'origine! »
+« Puisque tu es un cultivateur de l'âme, pourquoi chérisses-tu encore cette peau? Retourne à l'origine. Peu de gens peuvent réellement le comprendre... Même moi, ton Maître, je m'étais cru autrefois en pleine compréhension de ces quatre mots... Mais ce n'est qu'après avoir traversé tant d'épreuves et être retourné à Luotian que j'ai eu l'illumination... Retourner à l'origine, c'est devenir un avec les arbres, les montagnes et les rivières. C'est se libérer de toute limite pour ne faire qu'un avec le monde... Voilà ce que signifie véritablement retourner à l'origine! »
 
 Le corps de Xie Qing frémit alors qu'une compréhension vague commençait à poindre en lui.
 
@@ -60,15 +62,15 @@ D'un revers de la main, Wang Lin dissipa le mince sort de Xie Qing. Sans cette p
 
 « Si tu te considères comme faisant partie de ce monde, si tu deviens les cieux et la terre, alors cette pluie est ton propre sang. Pourquoi l'arrêter? Le vent, la pluie, la neige, le tonnerre... tout ce qui compose la nature. Tu es eux, ils sont toi; comment pourraient-ils t'entraver? 800 ans, et tu n'as toujours pas percé l'illumination que je t'ai offerte... Quand tu pourras abandonner ta chair, oublier tous tes sorts et devenir une âme de Dao, alors tu pourras venir me trouver... »
 
-Wang Lin observa Xie Qing plongé dans sa réflexion. Il tendit la main vers le vide céleste. Le ciel changea de teinte et les nuages se dispersèrent. La pluie qui couvrait la moitié de la planète sembla s'animer et convergea de toutes parts.
+Wang Lin observa Xie Qing plongé dans sa réflexion. Il tendit la main vers le vide céleste. Le ciel changea de teinte, les vents et les nuages se renversèrent et d'épais nuages noirs grondèrent. La pluie qui couvrait près de la moitié de la planète sembla s'animer et convergea de toutes parts.
 
-En un éclair, cette pluie infinie se rassembla comme un océan pour fusionner en une gigantesque épée d'eau haute de plus de 100 000 pieds!
+En un éclair, cette pluie infinie se rassembla comme un océan pour fusionner en une gigantesque épée d'eau haute d'environ 100 000 pieds!
 
-D'un geste de la main, l'épée de pluie descendit du ciel et s'enfonça dans le sommet de la montagne, jusqu'à ce que trente pour cent de sa masse soit ancrée dans la roche. Plus de 60 000 à 70 000 pieds de la lame dépassaient encore, si imposante qu'on pouvait l'apercevoir de très loin!
+D'un geste de la main, l'épée de pluie descendit du ciel et s'enfonça dans le sommet de la montagne, jusqu'à ce que près de trente pour cent de sa masse soit ancrée dans la roche. Environ 60 000 à 70 000 pieds de la lame dépassaient encore, si imposante qu'on pouvait l'apercevoir de très loin!
 
 Une puissance colossale émanait de cette épée et enveloppait le monde, s'étendant de la planète Qing Ling jusqu'à l'espace profond!
 
-Au moment où l'épée prit forme, Wang Lin porta ses doigts entre ses sourcils. La puissance d'un Dieu Ancien jaillit de ses étoiles divines pour infuser l'arme, tandis que ses essences de tonnerre et de feu s'échappèrent de ses yeux pour s'y mêler!
+Au moment où l'épée prit forme, Wang Lin pointa deux doigts de sa main droite vers l'avant. Les étoiles du Dieu Ancien entre ses sourcils étincelèrent soudain et leur puissance infusa l'arme, tandis que les essences de tonnerre et de feu s'échappaient de ses yeux pour s'y mêler!
 
 Cette simple épée de pluie contenait désormais deux essences complètes ainsi que l'aura de combat ancestrale de Wang Lin. Bien que cette aura ne se soit pas propagée trop loin, elle fut suffisante pour ébranler tout le système stellaire de Luotian!
 
@@ -80,7 +82,7 @@ Wang Lin jeta un dernier regard vers Xie Qing avant de se détourner et de quitt
 
 Xie Qing fixa silencieusement l'endroit où Wang Lin s'était volatilisé. Il s'agenouilla alors et s'inclina trois fois avec respect.
 
-Le passé et le présent étaient parés de nuages et de pluie. Les gouttes d'eau ressemblaient à des mots. De vieux amis s'éloignent. Il y avait la pluie, il y avait un enfant agenouillé... Il y avait une dette de gratitude envers un maître.
+Hier comme aujourd'hui, la pluie tombe sur Hengyun; ses gouttes, tombées des neuf cieux, se sont changées en épée. Le vieil ami s'éloigne peu à peu. Il y avait la pluie pour l'accompagner, il y avait un disciple agenouillé... Il y avait une dette de gratitude.
 
 Sur la planète Qing Ling, le Clan Immortel Élu était parti depuis longtemps. Ils n'avaient laissé aucune trace, comme s'ils n'étaient jamais venus.
 
@@ -88,9 +90,9 @@ Wang Lin était parti.
 
 Il devait se rendre en quatre lieux pour accomplir quatre tâches à Luotian! Il venait de terminer la première. Alors qu'il traversait l'immensité des étoiles brillantes, le regard de Wang Lin se glaça et se remplit d'une intention meurtrière.
 
-« Ancêtre de la famille Xiang... Il est temps de régler les comptes du passé... » D'un revers de manche, il s'élança vers la planète de la famille Xiang, là où il avait presque perdu toute sa force vitale!
+« Ancêtre de la famille Xiang... Il est temps de régler les comptes du passé... » D'un revers de manche, il s'élança vers la planète de la famille Xiang, là où il avait perdu toute sa force vitale!
 
-Quelques heures après le départ de Wang Lin, une équipe d'une trentaine de cultivateurs volait vers la planète Qing Ling, menée par un homme d'âge moyen vêtu d'une robe de tonnerre.
+Quelques heures après le départ de Wang Lin, une équipe de plusieurs dizaines de cultivateurs volait vers la planète Qing Ling, menée par un homme d'âge moyen vêtu d'une robe de tonnerre.
 
 Ils appartenaient au Temple Céleste du Tonnerre. Ils avaient reçu l'ordre de trouver des planètes répondant aux critères de leur Ancêtre afin de former la légendaire Formation des Sept Calamités Stellaires!
 

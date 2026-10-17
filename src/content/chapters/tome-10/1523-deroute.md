@@ -12,13 +12,13 @@ Même la lutte entre Luotian et l'Alliance n'avait pas atteint une telle intensi
 
 Pourtant, au moment où Wang Lin prit la parole, le champ de bataille autour de lui sombra soudainement dans le silence!
 
-La puissance du corps de Wang Lin avait infligé un choc inimaginable aux dix mille cultivateurs qui l'assaillaient. Leurs yeux étaient empreints de terreur!
+La puissance du corps de Wang Lin avait infligé un choc inimaginable aux dizaines de milliers de cultivateurs qui l'assaillaient. Leurs yeux étaient empreints de terreur!
 
 Ils étaient terrifiés!
 
 Ils ne comprenaient pas quel genre de cultivateur pouvait posséder un corps aussi puissant. Sa force physique était effrayante! En un laps de temps si court, Wang Lin avait survécu à leurs attaques les plus frénétiques!
 
-En particulier, le vieil homme au bras brisé fut envahi par une peur infinie et n'hésita pas une seconde à battre en retraite. Cela entraîna la fuite désordonnée de ces dix mille cultivateurs!
+En particulier, le vieil homme au bras brisé fut envahi par une peur infinie et n'hésita pas une seconde à battre en retraite. Cela entraîna la fuite désordonnée de ces dizaines de milliers de cultivateurs!
 
 Leur retraite fit pousser des cris de joie chez les cultivateurs de la Mer des Nuages! Cette scène agissait comme une dose d'adrénaline injectée dans leurs veines!
 
@@ -28,11 +28,11 @@ Leur retraite fit pousser des cris de joie chez les cultivateurs de la Mer des N
 
 Alors qu'il émergeait des tourbillons, ses yeux étaient habités par une intention meurtrière monstrueuse. D'un revers de la main droite, il fit s'effondrer la tempête, la dispersant dans toutes les directions!
 
-Sur ces mots, Wang Lin fit un pas en avant. Des flammes éthérées et des éclairs jaillirent pour frapper les cultivateurs environnants!
+Sur ces mots, Wang Lin fit un pas en avant. Le Feu Éthéré et des éclairs jaillirent pour frapper les cultivateurs environnants!
 
 De nouveaux cris de détresse retentirent et la guerre reprit de plus belle!
 
-Au milieu du carnage incessant, Wang Lin était épuisé. Ses blessures étaient bien plus graves qu'elles n'en avaient l'air en surface. Les assauts des dix mille cultivateurs l'avaient déjà gravement endommagé. Même la vitesse de régénération d'un Dieu Ancien à 7 étoiles semblait incapable de suivre l'intensité du combat.
+Au milieu du carnage incessant, Wang Lin était épuisé. Ses blessures étaient bien plus graves qu'elles n'en avaient l'air en surface. Les assauts de ces dizaines de milliers de cultivateurs l'avaient déjà gravement endommagé. Même la vitesse de régénération d'un Dieu Ancien à 7 étoiles semblait incapable de suivre l'intensité du combat.
 
 Ses yeux étaient injectés de sang à force de tuer. Il savait que cette bataille était loin d'être terminée, mais il ne pouvait pas reculer!
 
@@ -40,7 +40,7 @@ Grâce à l'intervention de Wang Lin, le moral des cultivateurs de la Mer des Nu
 
 À ce moment précis, les 30 000 cultivateurs restants commencèrent tous à ériger une formation!
 
-Juste au moment où ils touchaient au but, les cultivateurs du Royaume Extérieur semblèrent comprendre qu'ils devaient se frayer un chemin pour empêcher la mise en place de la formation!
+Chaque fois qu'une formation était sur le point d'être posée, les cultivateurs du Royaume Extérieur semblaient le savoir à l'avance et se ruaient pour empêcher sa mise en place!
 
 Une fois pouvait être une coïncidence, deux fois aussi. Cependant, trois, quatre, cinq et six fois... ce n'était plus une coïncidence!
 
@@ -62,7 +62,7 @@ Chaque fois qu'une formation était sur le point d'être achevée, la femme poin
 
 Le regard de Wang Lin fut aussi fulgurant que la foudre lorsqu'il fixa Yun Luo au loin. Une intention meurtrière pure éclata dans ses yeux!
 
-Le Maître Hong Shan, qui affrontait cinq cultivateurs du troisième stade, leva également les yeux aux côtés de Wang Lin! Le Maître Hong Shan se trouvait au stade intermédiaire de l'Arcane Vide et n'était qu'à un pas du stade avancé. Il dominait largement ses cinq adversaires, mais il restait néanmoins entravé par le combat.
+Le Maître Hong Shan, qui affrontait cinq cultivateurs du troisième stade, leva également les yeux aux côtés de Wang Lin! Le Maître Hong Shan se trouvait au stade intermédiaire du Vide Arcanique et n'était qu'à un pas du stade avancé. Il dominait largement ses cinq adversaires, mais il restait néanmoins entravé par le combat.
 
 On pouvait dire que le Maître Hong Shan jouait un rôle crucial dans cette bataille. Il contenait tous les cultivateurs du troisième stade, à l'exception de celui du Palais de la Punition Céleste, qui était piégé par le jade du Seigneur du Royaume Scellé!
 
@@ -134,7 +134,7 @@ Le corps glacial ne laissa aucun répit au Maître Hong Shan. Tel un bloc de gla
 
 Ce revirement soudain ébranla tout le système stellaire. Si la Mer des Nuages ne recevait pas de renforts, elle était perdue!
 
-La troisième armée du Royaume Extérieur, composée de plus de 60 000 cultivateurs issus de dix clans, chargea vers la Formation de Scellement du Royaume!
+La troisième armée du Royaume Extérieur, composée de 60 000 cultivateurs issus de dix clans, chargea vers la Formation de Scellement du Royaume!
 
 Wang Lin observait la scène. Il réfléchit en silence et recula jusqu'à se placer devant les cultivateurs de la Mer des Nuages. Ses yeux brûlaient d'une intention de combat monstrueuse. Alors que le désespoir gagnait ses alliés, il lâcha un rugissement qui fit trembler les cieux!
 

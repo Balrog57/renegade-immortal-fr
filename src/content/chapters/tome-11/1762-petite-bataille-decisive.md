@@ -16,7 +16,7 @@ Un homme d'âge moyen portant une robe violette était assis sur une planète, c
 
 Tous les disciples de la Secte des Sept Dao remarquèrent l'encens, et tous se mirent en mouvement.
 
-Il y avait également la sixième et la troisième concubine qui étaient entrées dans le cœur de ce monde caverneux. Bien qu'elles fussent dans des mondes différents, elles remarquèrent toutes deux l'encens. Les yeux de la sixième concubine étaient empreints de ressentiment, car elle avait de justesse survécu à l'attaque de Wang Lin. Elle serra les dents et suivit l'odeur de l'encens.
+Il y avait également la sixième concubine et la troisième concubine, qui connaissait Wang Lin et était encore vierge, entrées dans le cœur de ce monde caverneux. Bien qu'elles fussent dans des mondes différents, elles remarquèrent toutes deux l'encens. Les yeux de la sixième concubine étaient empreints de ressentiment, car elle avait de justesse survécu à l'attaque de Wang Lin. Elle serra les dents et suivit l'odeur de l'encens.
 
 Quant à la troisième concubine, son expression était froide et son regard complexe. Elle hésita, ne sachant si elle devait partir ou non. Elle était venue ici avec un dessein bien différent de celui des autres. Elle voulait simplement rentrer chez elle!
 
@@ -36,7 +36,7 @@ Le Daoïste aux Sept Couleurs se retrouva là, face au néant. Au moment où la 
 
 Le Daoïste aux Sept Couleurs le nota également et fonça à pleine vitesse.
 
-L'avatar de Wang Lin était assis là, calme, tenant l'Arc Li Guang de sa main droite. La base de l'arc était enfoncée de trois pouces dans le sable.
+L'avatar de Wang Lin était assis là, calme, tenant l'Arc Li Guang de sa main droite. L'arc, courbé comme un croissant de lune, avait sa base enfoncée de trois pouces dans le sable.
 
 Tenant son arc, Wang Lin ferma les yeux. De loin, il ne ressemblait plus à un cultivateur, mais à un chasseur guettant sa proie.
 
@@ -68,7 +68,7 @@ Tout cela fit hésiter le Daoïste aux Sept Couleurs devant l'astre.
 
 Au moment où le Daoïste aux Sept Couleurs s'arrêta, Wang Lin ouvrit les yeux. Son regard était serein. Il leva sa main gauche et se frappa le front. Dans un éclat de lumière spectrale, Wang Lin libéra sa troisième âme.
 
-Wang Lin relâcha sa main et la troisième âme flotta hors de lui. Son aura n'était absolument pas contenue et se propagea violemment.
+Wang Lin relâcha sa main et la troisième âme flotta hors de lui, à 10 pieds au-dessus de sa tête. Son aura n'était absolument pas contenue et se propagea violemment.
 
 Pour les autres, l'attrait de cette troisième âme n'était pas aussi puissant que pour le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan. L'apparition de cette âme était comme si leurs espoirs et leurs rêves d'une vie entière se présentaient devant eux. Elle était à leur portée!
 
@@ -92,7 +92,7 @@ Face à eux tous, bien que le regard de Wang Lin fût calme, son cœur bouillonn
 
 Le monde trembla et la voûte céleste vira au rouge. Ce rouge n'était pas celui du sang, mais celui des flammes. Une mer de feu surgit de nulle part et enveloppa le monde. Des ondulations résonnèrent dans cet océan ardent tandis qu'une immense ombrelle antique apparaissait. L'ombrelle se détacha de la mer de feu céleste.
 
-Le manche de l'ombrelle, jusque-là invisible, réapparut tel un pilier soutenant le firmament.
+Les baleines de l'ombrelle, jusque-là invisibles, réapparurent, et le manche, qui soutenait presque le ciel, se dressa tel un pilier.
 
 La toile de l'ombrelle couvrit le ciel et bloqua toute voie de retraite!
 

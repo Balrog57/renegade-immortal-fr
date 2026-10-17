@@ -18,7 +18,7 @@ Les yeux de ce dernier s'écarquillèrent et, après avoir avalé sa salive, il 
 
 Wang Lin sortit encore quelques morceaux de nourriture séchée et les lui tendit. Il demanda doucement: « Comment vous appelez-vous? Pourquoi êtes-vous ici? Où est votre famille? »
 
-L'homme lui donna une explication indéchiffrable. Plus Wang Lin entrait en contact avec cet homme, plus ce sentiment s'intensifiait. C'était comme s'ils s'étaient déjà connus autrefois, et une pointe de culpabilité lui serra le cœur.
+L'homme lui donnait une sensation indescriptible. Plus Wang Lin entrait en contact avec cet homme, plus ce sentiment s'intensifiait. C'était comme s'ils s'étaient déjà connus autrefois, et une pointe de culpabilité lui serra le cœur.
 
 L'homme prit la nourriture séchée, prêt à manger, mais fut déstabilisé par les paroles de Wang Lin. Il commença alors à pleurer en contemplant ce qu'il tenait entre ses mains.
 

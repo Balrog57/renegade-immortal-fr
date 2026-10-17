@@ -82,7 +82,7 @@ Son corps devint flou sous l'effet du Dao du Vrai et du Faux, comme s'il pouvait
 
 C'était exactement comme le jeune homme l'avait dit: tout ce que Wang Lin avait fait relevait du Dao de la Tromperie! D'abord, il avait continué ses attaques, puis utilisé le sort « Arrêt » pour gagner du temps et déduire la situation.
 
-Cette déduction n'était pas la clé en soi, mais elle lui permit d'utiliser le Dao des Rêves pour s'immerger dans un état onirique. Grâce à cela, il avait pu se tromper lui-même une fois le sort « Arrêt » dissipé.
+Cette déduction n'était pas la clé en soi, mais elle lui permit d'utiliser le Dao du Rêve pour s'immerger dans un état onirique. Grâce à cela, il avait pu se tromper lui-même une fois le sort « Arrêt » dissipé.
 
 Wang Lin était sous l'emprise de sa propre tromperie durant ces impacts tragiques. C'était comme si son esprit s'était scindé en deux: l'un était le moi trompé qui continuait à combattre le jeune homme aux cheveux blancs, tandis que l'autre cherchait calmement l'opportunité de tuer!
 

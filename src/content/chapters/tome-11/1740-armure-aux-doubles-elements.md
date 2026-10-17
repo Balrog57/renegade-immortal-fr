@@ -82,7 +82,7 @@ Wang Lin possédait le lignage du Dao Antique, et rien au monde ne présentait u
 
 Ses essences jaillirent et s'engouffrèrent dans son bras droit, fusionnant avec son pouvoir du Dao Antique. Conjugué au fait que la main droite de Wang Lin appartenait à Ye Mo, la puissance de cette fusion atteignit un degré terrifiant. Bien que le vieil homme fût au stade intermédiaire du Vide Arcanique, comparer sa force à celle de Wang Lin était tout simplement dérisoire!
 
-D'une seule traction, le monde trembla et les deux fouets émitrent des sons stridents, comme s'ils allaient rompre. En un instant, le fouet fut arraché des mains du vieil homme, lui laissant une marque sanglante sur la paume!
+D'une seule traction, le monde trembla et les deux fouets émirent des sons stridents, comme s'ils allaient rompre. En un instant, le fouet fut arraché des mains du vieil homme, lui laissant une marque sanglante sur la paume!
 
 Dans un fracas, les deux armes furent projetées vers Wang Lin. Les yeux de ce dernier brillèrent et il chargea l'homme âgé.
 

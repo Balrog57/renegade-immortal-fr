@@ -22,7 +22,7 @@ Plus il s'enfonçait, plus la lumière verte se faisait dense. Finalement, elle 
 
 Le sens divin de Wang Lin se rétracta brusquement, et toute la partie qui avait pénétré la zone se condensa en une aiguille. Au moment où la lumière verte se refermait, son sens divin jaillit pour percuter violemment l'éclat verdâtre.
 
-Des grondements tonnants résonnèrent. Dans la grotte, Wang Lin avait toujours la main posée sur le front de la femme. Ses yeux étaient clos et son visage blême, tandis que du sang coulait du coin de sa bouche. Pourtant, il ne cessa pas d'ouvrir les yeux.
+Des grondements tonnants résonnèrent. Dans la grotte, Wang Lin avait toujours la main posée sur le front de la femme. Ses yeux étaient clos et son visage blême, tandis que du sang coulait du coin de sa bouche. Pourtant, ses yeux demeuraient clos.
 
 À l'intérieur de l'esprit de la femme, la majeure partie du sens divin de Wang Lin s'était dissipée au moment où il avait percé la lumière verte. Le reste du sens divin chargea dans les profondeurs de cette zone trouble.
 
@@ -40,7 +40,7 @@ Dans la grotte, Wang Lin ouvrit brusquement les yeux, profondément troublé. Il
 
 « C'est encore sept couleurs... » À la vue de cette figure, il pensa d'abord au Souverain! Cependant, il écarta immédiatement cette idée.
 
-Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier Wang Lin comme cette statue! Il avait déjà rencontré des cultivateurs du troisième pas; le niveau de culture du Maître Dao Bleu Rêve était très proche de celui du Souverain, et Wang Lin pouvait donc facilement faire la distinction.
+Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier Wang Lin comme cette statue! Il avait déjà rencontré des cultivateurs du troisième pas; le niveau de culture du Maître du Dao Rêve Bleu était très proche de celui du Souverain, et Wang Lin pouvait donc facilement faire la distinction.
 
 « Sept couleurs... Sept couleurs... Au cours de ma vie de culture, j'ai croisé ces sept couleurs maintes fois. L'Omniscient affectionne les sept couleurs, tout comme le Souverain. Il existe aussi des sorts aux sept couleurs... et le Royaume aux Sept Couleurs, là où se trouvait le fruit du Dao! »
 
@@ -48,7 +48,7 @@ Bien que le Souverain fût puissant, il n'était pas assez fort pour terrifier W
 
 « Il y a également ce gaz et cette lumière verts. Pourraient-ils faire partie de ces sept couleurs? » Wang Lin fronça les sourcils et, après un long moment, poussa un soupir. D'un revers de manche, il rangea la femme en argent dans son espace de stockage.
 
-« Cette affaire est bien trop insondable pour moi; il est inutile d'y songer pour l'instant. Je dois raffiner les trésors de Cupidité et obtenir l'essence du Clan du Faucon de Feu! » Après une courte réflexion, Wang Lin chassa l'image de la statue de son esprit. Il sortit plutôt les trésors de Cupidité pour les étudier et les raffiner.
+« Cette affaire est bien trop insondable pour moi; il est inutile d'y songer pour l'instant. Je dois raffiner les trésors de Cupidité et obtenir l'essence du Clan des Moineaux de Feu! » Après une courte réflexion, Wang Lin chassa l'image de la statue de son esprit. Il sortit plutôt les trésors de Cupidité pour les étudier et les raffiner.
 
 « Les 99 Épées de Cristal Creux! Cupidité les avait obtenues sur un rocher arborant la tête d'un ancien démon. Dans ses souvenirs, les yeux de cette tête ne portaient aucune étoile. Les 99 épées étaient maculées de sang et formaient une formation d'épées! » Wang Lin agita la main droite et les 99 épées l'entourèrent instantanément, chacune dégageant une puissante énergie glaciale.
 
@@ -108,16 +108,16 @@ La joie dans les yeux de Wang Lin s'intensifia. Il agita sa manche et sortit le 
 
 Dès l'apparition de la lance, une énergie démoniaque envahit la grotte, accompagnée de cris lugubres qui renforçaient son aspect féroce.
 
-« Un trésor d'ancien démon... Hélas, je ne possède pas d'avatar d'ancien démon. Si j'en avais un, je pourrais en manifester toute la puissance! »
+« Un trésor d'ancien diable... Hélas, je ne possède pas d'avatar d'ancien diable. Si j'en avais un, je pourrais en manifester toute la puissance! »
 
-« Un avatar d'ancien démon... Je pense que si je parviens à intégrer les trois clans, je pourrai retrouver la puissance de l'Ordre Antique!! » Wang Lin fixa la lance démoniaque, pensif.
+« Un avatar d'ancien diable... Je pense que si je parviens à intégrer les trois clans, je pourrai retrouver la puissance de l'Ordre Antique!! » Wang Lin fixa la lance démoniaque, pensif.
 
-« J'ai cultivé moi-même le corps d'ancien dieu. L'avatar d'ancien démon a été formé à partir d'un fragment d'âme et de l'adoration du clan de Treize, créant une puissance similaire aux Flammes Joss. Cela a persuadé l'ancien démon qu'il était moi, m'évitant ainsi un effort considérable pour l'intégrer à mon être... Quant à l'ancien démon, je pourrais peut-être en créer un! Et si je parviens à en capturer un, ce sera encore mieux! » Wang Lin médita tandis que sa main droite plongeait dans le vide, faisant apparaître la Bouteille d'Âme Démoniaque de Cupidité!
+« J'ai cultivé moi-même le corps d'ancien dieu. L'avatar d'ancien démon a été formé à partir d'un fragment d'âme et de l'adoration du clan de Treize, créant une puissance similaire aux Flammes Joss. Cela a persuadé l'ancien démon qu'il était moi, m'évitant ainsi un effort considérable pour l'intégrer à mon être... Quant à l'ancien diable, je pourrais peut-être en créer un! Et si je parviens à en capturer un, ce sera encore mieux! » Wang Lin médita tandis que sa main droite plongeait dans le vide, faisant apparaître la Bouteille d'Âme Démoniaque de Cupidité!
 
 Dès que la bouteille apparut, l'énergie démoniaque dans la grotte décupla et d'innombrables ombres démoniaques surgirent. Cette énergie enveloppa la planète entière.
 
 De loin, la planète du Clan des Scorpions Noirs fut drapée d'un voile de brouillard démoniaque. C'était un spectacle terrifiant!
 
-« Je ne peux pas former un corps démoniaque, mais je peux créer une âme démoniaque. Utiliser cette âme pour contrôler les trésors d'anciens démons augmenterait considérablement leur puissance. Si l'occasion se présente, je pourrais posséder un corps d'ancien démon et en faire mon troisième avatar! »
+« Je ne peux pas former un corps démoniaque, mais je peux créer une âme démoniaque. Utiliser cette âme pour contrôler les trésors d'anciens diables augmenterait considérablement leur puissance. Si l'occasion se présente, je pourrais posséder un corps d'ancien diable et en faire mon troisième avatar! »
 
 « Cependant... quelles sont mes chances de réussite... » Wang Lin fixa la Bouteille d'Âme Démoniaque, une hésitation perçant dans son regard.

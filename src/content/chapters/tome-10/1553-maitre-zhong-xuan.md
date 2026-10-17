@@ -10,7 +10,7 @@ L'expression du vieil homme à l'intérieur de la lumière blanche changea aprè
 
 « Tu es le Seigneur du Royaume Scellé? »
 
-Wang Lin tenait l'arc de la main gauche. La corde était initialement rompue, mais elle avait été restaurée après s'être fusionnée avec lui. Cependant, tendre cette corde revenait à tendre les propres tendons de Wang Lin!
+Wang Lin tenait l'arc de la main gauche. La corde était initialement rompue, mais elle avait été restaurée après s'être fusionnée avec sa lignée de sang. Cependant, tendre cette corde revenait à tendre les propres tendons de Wang Lin!
 
 Pourtant, Wang Lin ne se souciait guère des conséquences pour le moment. Bien qu'il fût aussi rusé qu'un démon, sa personnalité n'avait pas changé: une fois sa décision prise, il ne reculait devant rien! Il sauverait Qing Shui, quoi qu'il en coûte!
 
@@ -32,7 +32,7 @@ Ces trois figures étaient trois vieillards terrifiés. L'un d'eux était Maîtr
 
 Les deux autres étaient les deux Grands Anciens de l'Alliance!
 
-Les anciens tremblaient en regardant le vieil homme vêtu de blanc avec une crainte révérencieuse. Ils s'agenouillèrent et dirent: « Salutations, Grand Ancien. »
+Les anciens tremblaient en regardant le vieil homme vêtu de blanc avec une crainte révérencieuse. Ils s'agenouillèrent et dirent: « Salutations, Ancien suprême. »
 
 « Salutations, Maître. » Maître Zhong Xuan était extrêmement nerveux. Il était terrifié par les paroles de Wang Lin et cherchait désespérément quoi répondre.
 
@@ -40,7 +40,7 @@ Les anciens tremblaient en regardant le vieil homme vêtu de blanc avec une crai
 
 Cependant, Maître Long Pan lui lança un regard glacial, ce qui fit avaler ses mots à Maître Zhong Xuan. Son corps frissonna et il n'osa plus parler.
 
-« Tu es Zhang Xi... Lorsque tu t'es endormi, tu n'étais qu'un enfant sous ma tutelle. » Le regard de Maître Long Pan se posa sur le vieil homme à sa gauche.
+« Tu es Zhang Xi... Lorsque tu t'es endormi, tu étais l'enfant qui me servait. » Le regard de Maître Long Pan se posa sur le vieil homme à sa gauche.
 
 « C'est exact, ce junior est bien Zhang Xi! » Les yeux du vieillard brillaient d'excitation. Il ne s'attendait pas à ce que Maître Long Pan se souvienne de lui.
 
@@ -60,7 +60,7 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 « Maître, ayez pitié! Maître, ayez pitié! Il y a une raison à tout cela! Les cultivateurs du Royaume Extérieur ont envahi le monde et le Royaume Intérieur n'était pas de taille. Même si ce disciple avait résisté, cela aurait été vain!
 
-« Ce disciple devait protéger l'Alliance. Pour que l'Alliance survive, je devais conclure un accord avec le Royaume Extérieur... Le Conseil Souverain du Royaume Extérieur a promis de protéger l'Alliance!
+« Ce disciple devait protéger l'Alliance. Pour que l'Alliance survive, je devais conclure un accord avec le Royaume Extérieur... Le Conseil Souverain du Royaume Extérieur a promis de faire perdurer l'Alliance pendant dix mille ans!
 
 « Maître, vous dormiez, vous ignorez donc qu'il y a près de mille ans, Luotian a lancé une attaque contre l'Alliance. L'Alliance fut déchirée et seul son Quartier Général fut préservé. À cette époque, ce disciple a tenté de vous appeler, mais vous n'avez pas répondu...
 
@@ -80,7 +80,7 @@ Le visage de Maître Zhong Xuan devint livide et il recula instinctivement de qu
 
 Maître Long Pan connaissait trop bien son disciple. Il regarda Maître Zhong Xuan, blême, et entrevit fugacement le passé, avant même la création de l'Alliance. Un jeune garçon mendiant gravissait une montagne avec détermination. Il avait fallu dix-sept jours à l'enfant pour se présenter devant lui, couvert de sang.
 
-Tout cela n'était dû qu'à l'aspiration du corps à cultiver. Une rumeur dans sa ville natale disait que celui qui gravissait la montagne pourrait, s'il était destiné, contempler un immortel.
+Tout cela parce que l'enfant voulait cultiver pour devenir immortel. Une rumeur dans sa ville natale disait que celui qui gravissait la montagne pourrait, s'il était destiné, contempler un immortel.
 
 « Song Er, tu disais autrefois que ton plus grand souhait était de devenir riche et de retourner chez toi... » Maître Long Pan commença à se remémorer le passé, sa voix devenant progressivement douce.
 
@@ -100,7 +100,7 @@ L'expression de Maître Zhong Xuan changea radicalement et il recula comme un fo
 
 La tempête l'enveloppa mais ne le blessa pas. Au lieu de cela, elle le tira derrière Maître Long Pan, hors de portée de l'arc de Wang Lin.
 
-« Tu as commis un péché monstrueux et engendré la catastrophe. Tu n'as plus non plus le cœur d'un cultivateur du Royaume Intérieur... Cependant, tu es mon disciple... J'ai une responsabilité envers les fautes de mon disciple... Ton Maître t'emmènera expier tes crimes... » Maître Long Pan regarda l'étonné Maître Zhong Xuan, puis s'inclina vers Wang Lin.
+« Tu as commis un péché monstrueux et engendré la catastrophe. Tu n'as plus non plus le cœur d'un cultivateur du Royaume Intérieur... Cependant, tu es mon disciple... J'ai une responsabilité envers les fautes de mon disciple... Ton Maître expiera tes fautes à ta place... » Maître Long Pan regarda l'étonné Maître Zhong Xuan, puis s'inclina vers Wang Lin.
 
 « Seigneur du Royaume Scellé, j'assumerai la responsabilité de tous ses péchés! » Il leva sa main droite et frappa sa poitrine. Maître Long Pan cracha une gorgée d'énergie d'origine essentielle et son teint devint terne. La planète de culture sous ses pieds vira instantanément au gris. La végétation se fana, les montagnes s'effondrèrent, les rivières s'évaporèrent et les ravins s'élargirent. La planète entière fut déchirée!
 

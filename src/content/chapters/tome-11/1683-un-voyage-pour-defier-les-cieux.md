@@ -8,7 +8,7 @@ slug: un-voyage-pour-defier-les-cieux
 ---
 Le hurlement résonna à travers les étoiles, s'intensifiant de plus en plus. Sous le contrôle de Wang Lin, le vaste continent du Royaume Céleste du Vent s'élança.
 
-Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
+Après avoir récupéré la Rivière Invoquée, certains cultivateurs de celle-ci qui se trouvaient à Luotian étaient retournés dans leurs terres natales au cours des trois dernières années. Ils connaissaient bien ces lieux et pourraient mieux s'y rétablir.
 
 Le Royaume Céleste de la Foudre de la Rivière Invoquée était très différent des trois autres. Il était totalement ouvert, et dès que l'on pénétrait dans la partie nord de la Rivière Invoquée, on pouvait clairement apercevoir une rivière argentée et étincelante.
 
@@ -22,7 +22,7 @@ Le continent du Royaume Céleste du Vent s'arrêta lentement devant la rivière 
 
 La rivière contenait d'innombrables fragments minuscules dont les lueurs fusionnaient pour former cette éternelle rivière d'argent.
 
-Après avoir fait trois pas à l'intérieur du Royaume Céleste de la Foudre, Wang Lin en ressortit, l'air fatigué. Il agita la main et toute la rivière argentée trembla. Elle vola vers le continent du Royaume Céleste du Vent et commença à graviter lentement autour de lui.
+Le troisième jour après être entré dans le Royaume Céleste de la Foudre, Wang Lin en ressortit d'un pas, l'air fatigué. Il agita la main et toute la rivière argentée trembla. Elle vola vers le continent du Royaume Céleste du Vent et commença à graviter lentement autour de lui.
 
 En tournant, elle enveloppa le continent du Royaume Céleste du Vent. De loin, le spectacle était d'une beauté saisissante.
 
@@ -84,7 +84,7 @@ Sous cette lumière, le nouveau Royaume Céleste devint un royaume à part enti�
 
 Sous l'impact de son sang, la formation de la roue qui entourait le Royaume Intérieur s'activa soudainement. Une ombre de roue gigantesque apparut au-dessus du nouveau royaume, absorbant d'immenses quantités d'aura du Royaume Extérieur pour les injecter dans le nouveau Royaume Céleste.
 
-« Ce royaume est formé, mais il n'est qu'à un stade rudimentaire; toutefois, je n'ai plus à me soucier de son évolution future... Maintenant, la dernière tâche consiste à relier les âmes de toutes les planètes cultivatrices des quatre systèmes stellaires au nouveau Royaume Céleste. Ainsi, tous les mortels qui deviendront cultivateurs seront conduits vers le Royaume Céleste une fois qu'ils auront atteint le stade de la Formation de l'Âme! »
+« Ce royaume est formé, mais il n'est qu'à un stade rudimentaire; toutefois, je n'ai plus à me soucier de son évolution future... Maintenant, la dernière tâche consiste à relier les âmes de toutes les planètes cultivatrices des quatre systèmes stellaires au nouveau Royaume Céleste. Ainsi, tous les mortels qui deviendront cultivateurs seront conduits vers le Royaume Céleste lorsqu'ils franchiront le sommet de la Formation de l'Âme! »
 
 Wang Lin siégeait au-dessus de la roue illusoire qui flottait sur le continent.
 
@@ -100,7 +100,7 @@ Peut-être qu'un jour, après d'innombrables années, un enfant nommé Wang Lin 
 
 Au cours des quinze derniers jours, les dizaines de milliers de cultivateurs restants du Royaume Intérieur s'étaient déployés dans les quatre systèmes stellaires. Chacun recueillait une parcelle de l'âme d'une planète avant de passer à la suivante.
 
-Durant les trois derniers jours du mois, ces dizaines de milliers de cultivateurs revinrent un à un. Ils offrirent les fragments d'âmes planétaires qu'ils avaient collectés, et ces âmes fusionnèrent avec le nouveau Royaume Céleste.
+À l'antépénultième jour du dernier mois de ces trois ans, ces dizaines de milliers de cultivateurs revinrent un à un. Ils offrirent les fragments d'âmes planétaires qu'ils avaient collectés, et ces âmes fusionnèrent avec le nouveau Royaume Céleste.
 
 Lorsque le dernier cultivateur fut de retour, le nouveau Royaume Céleste contenait les âmes de toutes les planètes des quatre systèmes stellaires capables d'abriter la vie. Désormais, tout cultivateur qui apparaîtrait serait conduit vers ce nouveau Royaume Céleste dès qu'il atteindrait le stade de la Formation de l'Âme.
 

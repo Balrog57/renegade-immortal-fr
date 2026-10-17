@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1545 - Three Treasures
 slug: les-trois-tresors
 ---
-« Le monde extérieur est-il si beau? Les femmes du monde extérieur sont-elles aussi belles? Combien de personnes y a-t-il dans le monde extérieur? » Des hurlements puissants résonnaient depuis la zone où se cachait la Bête des Limbes.
+« Le monde extérieur est si beau! Les petites dames du monde extérieur sont si splendides! Il y a tant de monde dehors! » Des hurlements puissants résonnaient depuis la zone où se cachait la Bête des Limbes.
 
 Ce son était empreint d'une excitation refoulée pendant d'innombrables années. À cette voix répondait une silhouette sale et maigre qui continuait de rugir en s'agitant frénétiquement dans la zone.
 
@@ -60,9 +60,9 @@ En levant les yeux, le fou aperçut également la planète de culture. Il devint
 
 Le regard de Wang Lin balaya la planète. Il n'attira l'attention d'aucun cultivateur et put analyser clairement la situation.
 
-Il s'agissait d'une planète de culture de rang 7, divisée en des centaines de pays. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
+Il s'agissait d'une planète de culture de rang 7, divisée en près d'une centaine de pays. On y trouvait de nombreux cultivateurs, mais la plupart n'étaient qu'au premier stade. Il n'y avait guère de cultivateurs du second stade.
 
-En apparence, l'individu au niveau le plus élevé était un homme d'âge moyen au stade du Purificateur du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
+En apparence, l'individu au niveau le plus élevé était un cultivateur au stade du Purificateur du Nirvana. Cependant, au centre de la planète se trouvait une caverne où résidaient manifestement quatre vieux monstres en culture fermée.
 
 Le plus puissant parmi eux se trouvait au troisième stade du Fléau Céleste. Deux autres étaient au premier stade du Fléau Céleste, et le dernier se trouvait au stade du Briseur du Nirvana.
 
@@ -84,7 +84,7 @@ Il n'y aurait aucun problème si Wang Lin le trompait lui-même, mais il ne perm
 
 La colère fit briller les yeux du fou qui se mit à rugir. Il se débattit et utilisa une méthode inconnue pour se libérer de la lumière dorée, puis hurla après Wang Lin avec un air fier:
 
-« Bon sang, tu oses essayer de forcer ce roi?! Même mon grand frère ne peut pas me contrôler! Si ce roi veut aller jouer là-bas, il ira! Même si tu es le maître de ce roi, et alors? Humph, hmph, combien d'enseignants ce roi possède-t-il? Laisse-moi compter: un, deux, trois, huit... Peu importe, comment oses-tu me contraindre!
+« Bon sang, tu oses essayer de forcer ce roi?! Même mon grand frère ne peut pas me contrôler! Si ce roi veut aller jouer là-bas, il ira! Même si tu es le maître de ce roi, et alors? Humph, hmph, combien d'enseignants ce roi possède-t-il? Laisse-moi compter: un, trois, huit... Peu importe, comment oses-tu me contraindre!
 
 « Je vais aller jouer là-bas! » Le fou foudroya Wang Lin du regard et montra ses dents dans une expression féroce.
 

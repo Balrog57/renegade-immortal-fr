@@ -14,7 +14,7 @@ Même si les autres apprenaient son retour, cela n'avait aucune importance pour 
 
 Wang Lin avança avec assurance. Sa marche n'était ni rapide ni lente, mais chaque pas qu'il faisait lui permettait de franchir des distances incommensurables alors qu'il traversait ce système stellaire familier.
 
-Au loin, devant lui, un groupe d'une centaine de cultivateurs survolait le système stellaire. Ils tenaient des fils semblables à de la soie qui étaient enroulés autour d'une planète de culture.
+Au loin, devant lui, un groupe de près d'une centaine de cultivateurs survolait le système stellaire. Ils tenaient des fils semblables à de la soie qui étaient enroulés autour d'une planète de culture.
 
 Parmi ces cultivateurs se trouvait un homme d'âge mûr. Ses yeux brillaient comme des éclairs et il possédait une culture au sommet du Purificateur du Nirvana. Il dégageait une aura de majesté, particulièrement à travers son regard étincelant. Des arcs électriques crépitaient autour de lui, renforçant sa dignité.
 
@@ -26,7 +26,7 @@ La voix de cet homme d'âge mûr tonna comme le tonnerre, résonnant dans l'espr
 
 « Normalement, être envoyé en culture isolée est une punition, mais les préparatifs de bataille ont déjà commencé. Je ne veux pas subir une telle punition alors que la guerre est sur le point d'éclater! »
 
-« Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer des Nuages mène la marche. Beaucoup d'entre nous sont perplexes quant à cette direction, as-tu appris quoi que ce soit? »
+« Frère Zhan, j'ai entendu dire que les quatre grands systèmes stellaires se préparent pour la bataille, mais que la Mer des Nuages mène la marche. Beaucoup d'entre nous sont perplexes: de quel droit devrions-nous obéir aux ordres de la Mer des Nuages? As-tu appris quoi que ce soit? »
 
 Des rires éclatèrent. Chacun utilisait son énergie originelle pour tirer lentement la planète hors de son orbite. L'astre était progressivement entraîné vers l'avant.
 
@@ -60,13 +60,13 @@ Ce n'est que lorsque les cent cultivateurs eurent entraîné la planète devant 
 
 « La culture de cet individu n'est pas simple. À en juger par son allure, il ne semble pas venir de Luotian... »
 
-« Actuellement, la barrière entre les quatre systèmes stellaires est ouverte. Tant qu'ils connaissent le chemin, ils peuvent voyager à leur guise. Cet homme doit être issu d'un autre système stellaire. »
+« Actuellement, la barrière entre les quatre systèmes stellaires est ouverte. Tant qu'ils ont un laissez-passer, ils peuvent voyager à leur guise. Cet homme doit être issu d'un autre système stellaire. »
 
 Alors qu'ils s'éloignaient peu à peu, Zhan Konglie se retourna pour contempler l'homme en blanc qui l'observait toujours. Il fronça les sourcils.
 
 « Cet homme... me semble vaguement familier... »
 
-Wang Lin observa le groupe de cultivateurs puis fixa Zhan Konglie. Il se remémora le passé. Zhan Konglie paraissait plus âgé qu'autrefois. À l'époque, dans la piscine de tonnerre, Zhan Konglie possédait clairement un niveau de culture plus élevé. Pourtant, après avoir été ébranlé par la compréhension d'une parcelle de l'origine du tonnerre, il avait voulu devenir son serviteur. Wang Lin sourit en y repensant.
+Wang Lin observa le groupe de cultivateurs puis fixa Zhan Konglie. Il se remémora le passé. Zhan Konglie paraissait plus âgé qu'autrefois. À l'époque, dans la piscine de tonnerre, Zhan Konglie possédait clairement un niveau de culture légèrement plus élevé que le sien. Pourtant, lorsque Wang Lin, grâce à la puissance du tonnerre, avait compris une parcelle de l'origine, Zhan Konglie avait été saisi d'une sueur froide sous son regard, et l'avait même reconnu pour maître. Wang Lin sourit en y repensant.
 
 « Pouvoir revoir un vieil ami est une immense bénédiction... » Wang Lin sourit et s'enfonça dans la distance.
 
@@ -92,7 +92,7 @@ Zhan Konglie utilisa presque toute sa vitesse pour traverser le système stellai
 
 Zhan Konglie ne s'arrêta qu'après un long moment. Une expression amère marqua son visage.
 
-« Pourquoi ne m'as-tu pas appelé... » Il resta là, immobile, longtemps... Zhan Konglie s'inclina légèrement, puis repartit.
+« Pourquoi ne m'as-tu pas appelé... » Il resta là, immobile, longtemps... Le temps passa. Zhan Konglie s'inclina en silence vers le ciel étoilé devant lui, soupira, puis repartit.
 
 Système stellaire de Luotian. Dans ses profondeurs se trouvait un domaine stellaire presque vide. L'endroit était très désolé et les planètes de culture y étaient pauvres en énergie spirituelle. Pourtant, une petite planète de culture émettait une lueur douce.
 
@@ -108,7 +108,7 @@ Il était là, ainsi, depuis plus de 800 ans.
 
 Tout cela en raison des paroles de son Maître.
 
-« Dans toute ma vie, je n'ai jamais eu de disciples. Puisque ton illumination est une cause karmique que j'ai moi-même créée, je peux t'accepter comme disciple honorifique! Je te cède cette montagne pour un temps afin que tu puisses y cultiver. Je ne t'enseignerai aucun sort, je ne t'offrirai qu'une chance de compréhension! »
+« Dans toute ma vie, je n'ai jamais eu de disciples. Puisque ton Dao a un lien de cause à effet avec moi, je peux t'accepter comme disciple honorifique! Je te cède cette montagne pour un temps afin que tu puisses y cultiver. Je ne t'enseignerai aucun sort, je ne t'offrirai qu'une chance de compréhension! »
 
 Le vieil homme ouvrit lentement les yeux. Il ne regarda pas les trois cultivateurs de la Transformation de l'Âme devant lui, mais fixa silencieusement les nuages à l'horizon.
 

@@ -24,7 +24,7 @@ Au même instant, les bras et les jambes volèrent vers lui, se connectant au to
 
 Cette existence mystérieuse mesurait près de 10 000 pieds de haut; elle était telle un géant. Bien qu'elle fût sans tête, elle dégageait une aura féroce, et l'aura de Ye Mo enveloppait son corps.
 
-Le neuvième cercueil se brisa soudainement et une tête apparut. À cet instant, les mèches de cheveux qui s'étendaient depuis les cercueils commencèrent à se rassembler, formant un éventail au-dessus de la tête.
+Le neuvième cercueil se brisa soudainement et une tête apparut. À cet instant, les mèches de cheveux qui s'étendaient depuis les cercueils commencèrent à se rassembler, formant, derrière la tête, une chevelure déployée comme un éventail.
 
 La tête était celle d'un homme d'âge moyen aux yeux clos. Son apparence était ordinaire, mais pour une raison inconnue, il dégageait une majesté profonde. Le simple fait de croiser son regard aurait suffi à provoquer un choc.
 
@@ -56,7 +56,7 @@ Dans le Système Stellaire Antique, le Souverain observait toujours la scène av
 
 Toutefois, afin de forcer Wang Lin à révéler ses deux flèches, il l'avait sorti et confié aux cultivateurs de l'Ancien Système Stellaire pour qu'ils l'utilisent afin de l'éliminer.
 
-« Bien qu'il ne soit pas parfait, il lui en manque encore une... Mais ils ont tous hérité du pouvoir des Anciens et se sont entretués pour provoquer les changements du ciel. Cela pourrait créer des fissures dans la formation! » Les yeux du Souverain s'illuminèrent.
+« Bien qu'il ne soit pas parfait, il lui en manque encore une... Mais ils sont tous des héritiers de l'Ancien; en s'entretuant, ils provoqueront des changements célestes. Cela pourrait créer des fissures dans la formation! » Les yeux du Souverain s'illuminèrent.
 
 Au même moment, les neuf parties du corps de l'homme d'âge moyen se rassemblèrent et se condensèrent lentement. Au plus profond de Luotian, il existait une zone d'espace infinie. Il n'y avait aucune planète là-bas, pas même un soupçon de vie.
 

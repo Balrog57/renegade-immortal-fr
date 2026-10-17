@@ -26,13 +26,13 @@ Au moment même de cet effondrement, l'image à l'intérieur du vortex changea b
 
 Le ciel de ce monde était sombre, chargé de nuages. Il n'y avait ni éclairs ni tonnerre, mais une pluie battante tombait. C'était une vision saisissante!
 
-Au-dessus de la mer, des vagues monstrueuses déferlaient. Un bel homme d'âge moyen aux cheveux noirs, tenant une lance bleue, émergea des flots. Il s'éleva lentement au rythme des vagues!
+Au-dessus de la mer, des vagues monstrueuses déferlaient. Un bel homme d'âge moyen aux cheveux noirs, vêtu d'une armure bleue et tenant une lance bleue, émergea des flots. Il s'éleva lentement au rythme des vagues!
 
 « Le Général Céleste de l'Eau des Cinq Éléments!! C'est notre Seigneur Général de l'Eau de la Secte Gui Yi!! »
 
 « Le Seigneur Général de l'Eau est en culture isolée la plupart du temps. Maintenant qu'il est apparu, l'envahisseur ne pourra pas survivre à la formation d'eau!! »
 
-« Le Seigneur Général de l'Eau possède un corps spirituel d'eau complet; lorsqu'il se trouve dans la formation, sa puissance augmente considérablement. Cet envahisseur méprisable est mort! »
+« Le Seigneur Général de l'Eau possède un corps spirituel d'eau complet; il est l'esprit de la formation d'eau, et avec lui, la puissance de celle-ci sera doublée. Cet envahisseur méprisable est mort! »
 
 À l'apparition de l'homme d'âge moyen, les cultivateurs de la Secte Gui Yi environnants ressentirent une nouvelle force les envahir et devinrent exaltés.
 
@@ -46,7 +46,7 @@ Un vieil homme, situé au milieu de la phase de Purificateur du Nirvana, poussa 
 
 Une autre personne s'avança et rugit: « Il n'y a pas si longtemps, j'ai entendu parler d'une famille nommée Teng sur une planète de culture. Il a convoité un trésor de leur lignée et a massacré toute la famille, y compris les mortels. Ni les vieux ni les jeunes n'ont été épargnés, le sang coulait comme une rivière! »
 
-« Je sais aussi que notre estimé Ancien Na Duo a rencontré ce Wang Lin alors qu'il massacrait des mortels et abusait de cultivatrices. L'Ancien était intervenu mais ne l'avait pas tué, car sa culture était encore difficile. Cependant, au lieu d'être reconnaissant après l'augmentation fulgurante de son niveau, il massacre tout sur son chemin vers la planète des Cinq Éléments! Il prétend venir voir l'Ancien Na Duo, mais en réalité, il est ici pour détruire notre Secte Gui Yi!! »
+« Je sais aussi que notre estimé Ancien Na Duo a rencontré ce Wang Lin alors qu'il massacrait des mortels et abusait de cultivatrices. L'Ancien était intervenu mais ne l'avait pas tué, par égard pour la difficulté qu'avait eue ce cultivateur à progresser. Cependant, au lieu d'être reconnaissant après l'augmentation fulgurante de son niveau, il a fait irruption de force sur la planète des Cinq Éléments! Il prétend venir voir l'Ancien Na Duo, mais en réalité, il est ici pour détruire notre Secte Gui Yi!! »
 
 « Comment pouvons-nous laisser un être aussi sans vergogne et méprisable pénétrer sur la planète des Cinq Éléments! Ce cultivateur démoniaque doit être exécuté par tous. Le tuer, c'est sauver d'innombrables vies! Tout le monde, bien que nos niveaux de culture soient bas, nous sommes plus nombreux et il n'est qu'un seul homme! »
 
@@ -94,7 +94,7 @@ Cependant, à cet instant précis, une voix glaciale retentit derrière lui.
 
 « Je suis là. »
 
-L'expression du Général de l'Eau changea radicalement et il se retourna. Wang Lin surgit des eaux et sa main droite frappa le Général de l'Eau de plein fouet. Les essences et la puissance ancestrale de Wang Lin s'engouffrèrent dans le corps du général. Ses cinq organes s'effondrèrent, tous ses os furent brisés et sa chair fut presque arrachée à son squelette. Le Général de l'Eau cracha un flot de sang et fut projeté au loin par l'onde de choc!
+L'expression du Général de l'Eau changea radicalement et il se retourna. Wang Lin surgit des eaux et sa main droite frappa le Général de l'Eau de plein fouet. Une force d'essence et l'aura destructrice du Dao Antique s'engouffrèrent dans le corps du général. Ses cinq organes s'effondrèrent, tous ses os furent brisés et sa chair fut presque arrachée à son squelette. Le Général de l'Eau cracha un flot de sang et fut projeté au loin par l'onde de choc!
 
 Des bruits de craquements résonnèrent dans son corps et des fissures apparurent sur son armure. Pourtant, l'armure ne céda pas! Au contraire, une immense quantité de force vitale jaillit des fêlures, aidant le Général de l'Eau à se remettre de ses blessures mortelles.
 

@@ -22,7 +22,7 @@ Après un temps indéterminé, la confusion dans les yeux de Wang Lin se dissipa
 
 Heureusement, en tant qu'Ancien Dieu, la régénération de son corps physique était extrêmement puissante. C'était là une différence flagrante avec les cultivateurs ordinaires. Certaines blessures qui auraient nécessité un siècle de convalescence pour d'autres ne demanderaient que bien moins de temps à Wang Lin.
 
-« Wan Er, crois-moi, je viendrai personnellement te réveiller... Ensuite, avec Ping Er, nous pourrons vivre dans un village de montagne, quelque part où personne ne nous connaît, et passer une vie tranquille... Je veux aussi apprendre à Ping Er l'art de la sculpture, pour transmettre le métier de mon père... » murmura Wang Lin, soudain envahi par le mal du pays. Il désirait revoir le système stellaire de sa demeure. Bien que le Système Stellaire Antique fût vaste, il n'y ressentait aucun sentiment d'appartenance.
+« Wan Er, crois-moi, je viendrai personnellement te réveiller... Ensuite, avec Ping Er, nous pourrons vivre dans un village de montagne, quelque part où personne ne nous connaît, et passer une vie tranquille... Je veux aussi apprendre à Ping Er l'art de la sculpture sur bois, pour transmettre le métier de mon père... » murmura Wang Lin, soudain envahi par le mal du pays. Il désirait revoir le système stellaire de sa demeure. Bien que le Système Stellaire Antique fût vaste, il n'y ressentait aucun sentiment d'appartenance.
 
 Dans ce vaste système stellaire, l'horizon semblait infini. Les étoiles brillaient, mais n'émettaient aucune chaleur; seule régnait une sensation de froid glacial. Wang Lin ressentit un puissant sentiment de solitude au plus profond de son cœur.
 
@@ -48,13 +48,13 @@ Wang Lin murmura doucement: « Il est temps de rentrer à la maison... »
 
 Il existait un autre chemin vers chez lui, en dehors de la Formation du Domaine Scellé. C'était le jade que lui avait donné la femme mystérieuse dans la fissure spatiale de la région de rang 9 du Système Stellaire Mer des Nuages.
 
-À l'époque, cette femme avait affirmé qu'elle l'aiderait à explorer un lieu avant de lui remettre ce jade. Une fois utilisé, il serait renvoyé dans la fissure spatiale.
+À l'époque, cette femme avait affirmé avoir besoin de son aide pour explorer un lieu et lui avait remis ce jade, en précisant qu'une fois activé hors du royaume, il lui permettrait d'éviter la Formation du Domaine Scellé et de retourner dans la fissure spatiale.
 
 Wang Lin avait étudié le jade maintes fois. Il contenait de nombreuses restrictions, certaines qu'il ne parvenait même pas à percer. Il semblait que beaucoup d'entre elles n'étaient pas maîtrisables par les cultivateurs de ce monde; elles semblaient provenir d'un autre univers.
 
 Pourtant, Wang Lin était un grand maître des restrictions. Bien qu'il ne puisse pas tout comprendre, il pouvait affirmer que le jade avait 70 % de chances de le renvoyer dans cette fissure spatiale!
 
-Tenant le jade, Wang Lin ne l'ouvrit pas mais le rangea dans son espace de stockage. Une certaine quantité de puissance était nécessaire pour l'activer, mais cela était secondaire. Plus important encore, il ne souhaitait pas apparaître devant la femme mystérieuse dans son état actuel.
+Tenant le jade, Wang Lin ne l'ouvrit pas mais le rangea dans son espace de stockage. Une certaine quantité de puissance était nécessaire pour l'activer, mais cela était secondaire. Plus important encore, il ne souhaitait pas apparaître devant la femme mystérieuse, dont il ignorait si elle était amie ou ennemie, dans son état actuel.
 
 Après avoir réfléchi un instant, Wang Lin leva les yeux vers le ciel bleu et murmura pour lui-même:
 
@@ -62,7 +62,7 @@ Après avoir réfléchi un instant, Wang Lin leva les yeux vers le ciel bleu et 
 
 Après avoir gravement blessé l'homme d'âge moyen au sein de la flamme aux sept couleurs, celui-ci avait admis être le Souverain. Cependant, une fois calmé, Wang Lin ne pouvait s'empêcher de douter.
 
-La culture de cet homme était extrêmement puissante. Il avait pu repousser l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits », il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
+La culture de cet homme fluctuait, tantôt haute, tantôt basse. Il avait pu s'opposer à l'esprit originel de l'Oiseau Vermillon, utiliser la technique « Pêcher la Lune dans le Puits » et celle des Quatre Éléments, il connaissait le Maître Simo et savait qui était Wang Lin. Mis bout à bout, tous ces éléments pointaient vers le rusé Souverain.
 
 « Sa culture est liée au feu et il possède l'Oiseau Vermillon aux sept couleurs. Il devrait être le traître du troisième Oiseau Vermillon... Mais est-il vraiment le Souverain...? » La raison pour laquelle Wang Lin avait supposé que le troisième Oiseau Vermillon était le Souverain était que ce dernier demeurait la figure la plus mystérieuse du Système Stellaire Antique. Personne ne savait à quel clan il appartenait!
 
@@ -72,17 +72,17 @@ Tout cela menait Wang Lin à une conclusion logique. En combinant ces indices, i
 
 Cependant, après avoir vu le Souverain en personne, Wang Lin était devenu suspicieux.
 
-« Qing Lin a dit que l'essence du Souverain était l'essence de l'origine! Pourtant, cet homme n'a jamais utilisé la loi de l'origine... Plus important encore, le Souverain cultive depuis des dizaines de milliers d'années. Il est extrêmement rusé et a multiplié les complots contre le Royaume Intérieur. L'homme d'âge moyen qui prétendait être le Souverain ne semblait pas posséder une telle aura... C'était comme s'il n'était pas si puissant que cela... »
+« Qing Lin a dit que l'origine cultivée par le Souverain était la puissance primordiale! Pourtant, cet homme n'a jamais utilisé la moindre technique liée à la puissance primordiale... Plus important encore, le Souverain cultive depuis des dizaines de milliers d'années. Il est extrêmement rusé et a multiplié les complots contre le Royaume Intérieur. L'homme d'âge moyen qui prétendait être le Souverain ne semblait pas posséder une telle aura... C'était comme s'il n'était pas si puissant que cela... »
 
 Wang Lin fronça les sourcils. Après réflexion, il ne trouvait toujours pas de réponse. Il soupira et cessa d'y penser. Il sortit les quelques pilules restantes et les avala toutes, puis ferma les yeux pour se mettre en culture.
 
-Le vent d'automne soufflait et la silhouette de Wang Lin devint lentement floue, comme s'il fusionnait avec son environnement. Même si un cultivateur passait par là, il n'aurait pas remarqué qu'un être était assis au bord du lac.
+Le vent d'automne soufflait et la silhouette de Wang Lin devint lentement floue, comme s'il fusionnait avec son environnement. Même si un cultivateur passait par là, il n'aurait pas remarqué qu'un être était assis au bord de la rivière.
 
 Le temps s'écoula lentement. En un clin d'œil, trois jours passèrent. Les blessures de l'âme originelle de Wang Lin ne s'amélioraient pas, mais elles cessaient de s'aggraver. En revanche, la majeure partie de ses blessures physiques avait guéri.
 
 Sans même utiliser ses sorts, avec seulement son pouvoir d'Ancien Dieu à 6 étoiles, il se trouvait à environ 50 % de son apogée. Wang Lin savait qu'il était pressé par le temps. Il avait gravement blessé l'homme qu'il soupçonnait être le Souverain, ce qui devait provoquer une onde de choc massive dans le Système Stellaire Antique. Des gens devaient sûrement être à sa poursuite, sans compter la prime sur sa tête.
 
-Quant aux Terres Déchues, elles avaient déjà été scellées par d'autres. S'il s'y précipitait maintenant, il ne pourrait pas y entrer et tomberait droit dans un piège! C'était pour cela qu'il faisait tout son possible pour recouvrer sa culture.
+Quant aux Terres Déchues, elles avaient sans doute déjà été scellées par d'autres. S'il s'y précipitait maintenant, il ne pourrait pas y entrer et tomberait droit dans un piège! C'était pour cela qu'il faisait tout son possible pour recouvrer sa culture.
 
 Pourtant, ce jour-là, alors qu'il cultivait, Wang Lin ouvrit soudainement les yeux, révélant une lueur de froideur. Son cœur fut frappé par un choc étrange. C'était un sens de l'avertissement précoce qu'il avait développé en atteignant son niveau de culture actuel!
 

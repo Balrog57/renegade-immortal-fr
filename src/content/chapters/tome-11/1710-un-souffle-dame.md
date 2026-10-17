@@ -94,11 +94,11 @@ Le vieil homme agenouillé resta impassible et répondit:
 
 « Bien que l'Enseignant Impérial ait offert l'âme de cette femme à Votre Majesté, il ne peut la localiser lui-même. Cependant, cette femme sera d'une utilité capitale pour Votre Majesté à l'avenir. Grâce à elle, Votre Majesté pourra posséder un pays ancestral complet! »
 
-« Il a seulement dit à ce serviteur qu'il divinait l'avenir de mon ancien pays Dao et que son esprit était lié au monde souterrain. Il s'est rendu dans un lieu étrange qu'il n'avait jamais vu auparavant et a extrait son âme d'un fragment du Dao Céleste... »
+« Il a seulement dit à ce serviteur qu'il divinait l'avenir de mon ancien pays Dao et que son esprit s'était fondu dans l'insondable. Il a prélevé son âme dans un fragment d'âme du Dao Céleste, présent en un lieu étrange où il n'était jamais allé... »
 
 L'homme en robe royale réfléchit silencieusement un instant, puis contempla la perle rouge dans sa main, ses yeux brillant d'une lueur étrange.
 
-« Cette femme semble trop ordinaire pour que je lui accorde mon attention. Cependant, si elle est réellement ce que prétend l'Enseignant Impérial, alors je ferai d'elle mon impératrice! Continuez vos recherches parmi les Célestes. Si vous ne trouvez vraiment personne, trouvez une femme dans le pays ancestral capable de fusionner avec cette âme. »
+« Cette femme semble trop ordinaire pour que je lui accorde mon attention. Cependant, si elle est réellement ce que prétend l'Enseignant Impérial, alors je ferai d'elle mon impératrice! Continuez vos recherches parmi les Célestes. Si vous ne trouvez vraiment personne, choisissez parmi toutes les femmes de la terre du Dao Ancestral et voyez laquelle peut fusionner avec cette âme. »
 
 « À vos ordres! » Le vieil homme en noir se leva, prêt à partir. Il hésita un instant, puis après une longue réflexion, il joignit les mains pour reprendre la parole.
 

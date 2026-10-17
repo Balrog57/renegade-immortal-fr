@@ -12,15 +12,15 @@ En particulier, la manière dont l'ancêtre du Clan de l'Hirondelle de Feu avait
 
 Ce qui l'avait véritablement stupéfié était l'Estimé Nan Zhao. Le niveau de culture de l'Estimé Nan Zhao était similaire au sien, mais ce dernier avait fini par mourir tragiquement face à ce Seigneur du Royaume Scellé.
 
-Il découvrait Wang Lin pour la première fois, et il venait de le voir s'arrêter pour déchirer ce vortex qui tournait depuis des éons devant le Quartier Général de l'Alliance.
+Il découvrait Wang Lin pour la première fois, et il venait de le voir stopper d'un seul doigt, tout en le déchirant, ce vortex qui tournait depuis des éons devant le Quartier Général de l'Alliance.
 
 Cela lui donnait la chair de poule.
 
-Toutefois, il devait maintenir cette contenance; sinon, s'il révélait la moindre intention de battre en retraite, l'esprit de ces dizaines de milliers de cultivateurs pourrait s'effondrer instantanément.
+Toutefois, il devait maintenir cette contenance; sinon, s'il révélait la moindre intention de battre en retraite, l'esprit de ces dix mille et quelques cultivateurs pourrait s'effondrer instantanément.
 
 « Cette personne a emprunté l'esprit de formation autrefois; il est impossible que quelqu'un à son niveau de culture puisse tuer Nan Zhao! Aujourd'hui, s'il a pu stopper le vortex, c'est grâce à sa compréhension des restrictions. Ce vieil homme ne croit pas qu'il puisse faire quoi que ce soit sans la Hache Brise-Ciel! » L'Estimé Maître Tian Zhao retrouva son calme après avoir songé à ce qui se trouvait dans le Royaume aux Sept Couleurs. À cet instant, il agita sa large manche et les trois dragons noirs de Flammes Joss jaillirent vers Wang Lin.
 
-Les dizaines de milliers de cultivateurs du Royaume Extérieur étaient tous nerveux. L'apparition soudaine de Wang Lin les avait plongés dans une terreur indescriptible avant même qu'ils ne puissent reprendre leurs esprits. Ils n'osaient même pas opposer la moindre résistance.
+Les dix mille et quelques cultivateurs du Royaume Extérieur étaient tous nerveux. L'apparition soudaine de Wang Lin les avait plongés dans une terreur indescriptible avant même qu'ils ne puissent reprendre leurs esprits. Ils n'osaient même pas opposer la moindre résistance.
 
 Wang Lin leur avait laissé une impression indélébile autrefois. C'était un sentiment de folie capable de faire trembler leurs âmes, une aura de gloire et de puissance qui les faisait frémir de peur!
 
@@ -36,11 +36,11 @@ Le Maître Yan Leizi, situé derrière lui, vit ses pupilles se rétracter et se
 
 Cette puissance pouvait briser l'espace lui-même. Si la moindre étincelle de cette force l'atteignait, son corps et son âme originelle seraient anéantis. Il sentait que même si le Maître Lu Fu arrivait, celui-ci devrait se retirer rapidement. Le moindre relâchement entraînerait des blessures graves pour le Maître Lu Fu!
 
-Pourtant, ce n'était pas cette bourrasque qui terrifiait le Maître Lu Fu, c'était Wang Lin! Ce dernier restait imperturbable alors que ses vêtements et ses cheveux flottaient au vent. La tempête ne laissait aucune marque sur son visage.
+Pourtant, ce n'était pas cette bourrasque qui terrifiait le Maître Yan Leizi, c'était Wang Lin! Ce dernier restait imperturbable alors que ses vêtements et ses cheveux flottaient au vent. La tempête ne laissait aucune marque sur son visage.
 
 Il semblait que ce vent destructeur n'était pour lui qu'une légère brise.
 
-« Trois dragons noirs de Flammes Joss... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un cultivateur du Nirvana Vide, Wang Lin pourrait l'exterminer instantanément. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
+« Trois dragons noirs de Flammes Joss... » En observant les trois féroces dragons, une lueur de froideur passa dans les yeux de Wang Lin. Il ne pouvait utiliser que 20 % de sa puissance s'il ne voulait pas déclencher la force de rejet. Face à un grand expert du Nirvana Vide, Wang Lin pouvait l'emporter. Cependant, 20 % ne suffiraient pas pour tuer un cultivateur du Vide Spirituel, même au stade initial.
 
 Néanmoins, il avait des impératifs aujourd'hui. Sauver Qing Shui et obtenir l'esprit du Dao étaient des objectifs absolus. Wang Lin prit une décision.
 
@@ -70,19 +70,19 @@ Tandis qu'ils tremblaient, l'un des dragons noirs ne put supporter la pression e
 
 Les deux autres dragons poussèrent également des cris de détresse et crachèrent des quantités massives de sang. Tremblants, ils se recroquevillèrent et commencèrent à vénérer Wang Lin.
 
-Les dizaines de milliers de cultivateurs frappés par cette lumière dorée furent saisis d'une peur et d'une révérence indescriptibles. L'aura de Wang Lin les faisait tous frémir. Ils étaient comme des mortels face à un être céleste!
+Les dix mille et quelques cultivateurs frappés par cette lumière dorée furent saisis d'une peur et d'une révérence indescriptibles. L'aura de Wang Lin les faisait tous frémir. Ils étaient comme des mortels face à un être céleste!
 
 Une majesté invisible émanait de cette lueur. L'un des cultivateurs ne put plus supporter le choc; il cracha du sang et ses genoux fléchirent. C'était comme si une force colossale pesait sur lui. Il devait s'agenouiller; s'il ne se prosternait pas, son esprit s'effondrerait.
 
 Tout en crachant du sang, il s'agenouilla.
 
-Une multitude de cultivateurs du Royaume Extérieur firent de même. Ils crachèrent tous du sang et tombèrent à genoux. Puis des dizaines de milliers de cultivateurs s'agenouillèrent, aucun n'ayant la force de rester debout!
+Une multitude de cultivateurs du Royaume Extérieur firent de même. Ils crachèrent tous du sang et tombèrent à genoux. Autour d'eux, plus de dix mille cultivateurs s'agenouillèrent, aucun n'ayant la force de rester debout!
 
 C'était comme si une lignée extrêmement noble coulait dans les veines de Wang Lin et que tous les cultivateurs du monde devaient lui rendre hommage!
 
 Tant qu'on était un cultivateur, on ne pouvait résister à ce sentiment d'effroi sacré qui émanait de l'âme. À cet instant, ils semblèrent oublier la distinction entre les Royaumes Intérieur et Extérieur. Ils ne voyaient plus que Wang Lin, debout au-dessus d'eux tel un roi!
 
-Les dizaines de milliers de cultivateurs étaient agenouillés et les dragons noirs avaient été vaincus! Demandez aux Cieux qui contrôle la vie et la mort!
+Les dix mille et quelques cultivateurs étaient agenouillés et les dragons noirs avaient été vaincus! Demandez aux Cieux qui contrôle la vie et la mort!
 
 Wang Lin, l'expression sereine, marcha vers l'Estimé Maître Tian Zhao.
 

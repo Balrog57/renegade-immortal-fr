@@ -8,15 +8,15 @@ slug: la-cloche-doree
 ---
 Wang Lin secoua la tête. Son regard était d'un calme absolu. Le Shui Daozi était resté le même qu'auparavant, toujours au stade initial du Nirvana Vide. Mais son sortilège était encore plus faible qu'auparavant; il était évident qu'il ne s'était pas encore remis de ses blessures.
 
-« Te tuer maintenant ne demande aucun effort! » Wang Lin secoua la tête. À l'instant même où la lance se refermait sur lui, il serra le poing et lança un coup!
+« Te tuer dans cet état ne me procurerait aucune satisfaction! » Wang Lin secoua la tête. À l'instant même où la lance se refermait sur lui, il serra le poing et lança un coup!
 
-« Ce coup est pour ta trahison, au nom du Seigneur du Royaume Scellé! »
+« Ce coup, au nom du Seigneur du Royaume Scellé, brise la forme de tes disciples, esclave traître! »
 
 Un coup de poing d'une simplicité extrême, mais empreint d'une puissante assurance. Cette confiance émanait de son coup et donnait à Wang Lin l'apparence d'un dieu contrôlant la vie et la mort!
 
-Le coup partit et percuta la lance de flammes Joss du Shui Daozi. Le monde changea de couleur et la pointe de la lance commença à se fissurer. D'innombrables éclats volèrent en éclats tandis que le corps de l'arme tremblait violemment!
+Le coup partit et percuta la lance de flammes Joss du Shui Daozi. Le monde changea de couleur et la pointe de la lance commença à se fissurer. D'innombrables fragments minuscules se détachèrent tandis que le corps de l'arme tremblait violemment!
 
-Elle fut transpercée!
+Rien ne put l'arrêter, tel un bambou qui se fend!
 
 La lance entière vola en éclats, déclenchant une vague de hurlements déchirants. La majorité des âmes de flammes Joss périrent misérablement sous la force de ce coup. Du sang jaillit de la bouche du Shui Daozi et il fut projeté en arrière, sous le choc. Chaque pas qu'il faisait pour reculer faisait trembler le monde.
 
@@ -26,7 +26,7 @@ Son apparence juvénile commença instantanément à vieillir!
 
 « Impossible!! Impossible!! Quelle fortune as-tu donc acquise pour... pour obtenir une puissance aussi terrifiante?! »
 
-Après ses neuf pas de recul, le Shui Daozi ne put plus résister à la force monstrueuse du corps de Dieu Antique à 7 étoiles de Wang Lin. Il fut projeté en arrière et s'écrasa contre la montagne centrale!
+Après ses neuf pas de recul, le Shui Daozi ne put plus résister à la force monstrueuse du corps de Dieu Antique à 7 étoiles de Wang Lin. Il fut projeté en arrière et s'écrasa contre le milieu de l'un des cinq pics!
 
 La montagne trembla, parcourue de fissures semblables à une toile d'araignée, puis elle s'effondra!
 
@@ -38,11 +38,11 @@ De l'autre côté, le vieil homme en noir qui combattait l'Estimé Ling Dong fut
 
 Il y avait aussi l'homme d'âge moyen qui luttait contre Zhou Jin; il était terrifié. Zhou Jin était tout aussi puissant que lui, mais possédait bien plus de flammes Joss. En conséquence, il n'était pas de taille et fut contraint de battre en retraite, devant même utiliser des trésors pour résister.
 
-« Cela n'en vaut pas la peine, cela ne vaut pas le coup d'offenser quelqu'un capable de tenir des cultivateurs du troisième pas en esclavage avec le sort de Stase. Moi, Maître Bord-du-Vent, je devrai accepter une perte dans cette affaire! »
+« Ce n'est pas rentable, pas rentable du tout! Offenser un homme qui tient des cultivateurs du troisième pas en esclavage, tout cela pour le sort d'arrêt de l'esprit... Moi, Maître Bord-des-Nuages, je suis perdant dans cette affaire! »
 
 Une lueur d'intention meurtrière traversa le regard calme de Wang Lin. Il s'avança vers le Shui Daozi, prêt à asséner son second coup!
 
-À cet instant précis, le Shui Daozi essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Brise-Ciel pour détruire le Dao Cœur de Wang Lin. La Secte Fantôme ne semblait pas non plus se soucier de son offre concernant les disciples Yin et Yang et ne montrait aucun signe d'apparition. Le Shui Daozi leva les yeux et rugit:
+À cet instant précis, le Shui Daozi essuya le sang au coin de sa bouche et renonça à utiliser le Maître de la Secte Brise-Ciel pour détruire le Dao Cœur de Wang Lin. Le Saint Démon de la Secte Fantôme ne semblait pas non plus se soucier de ses centaines de millions de disciples et de leurs flammes Joss et ne montrait aucun signe d'intervention. Le Shui Daozi leva les yeux et rugit:
 
 « Tai Aluo!! »
 
@@ -58,7 +58,7 @@ Le corps de Wang Lin marqua un temps d'arrêt et il tourna le regard. Ce qu'il v
 
 « Un cultivateur de la Métamorphose... » Wang Lin ne dit rien, observant calmement l'homme aux pieds nus.
 
-« Je n'ai aucune intention de faire de vous un ennemi. Si vous levez mon sceau, je peux faire en sorte que toutes les bêtes à l'intérieur de la faille se battent pour le Royaume Intérieur! Je peux même tuer cette personne pour vous... » La voix de l'homme aux pieds nus était douce lorsqu'il parla.
+« Je n'ai aucune intention de faire de vous un ennemi. Si vous levez mon sceau, je peux mener tous les clans de la faille de la Mer des Nuages à combattre pour le Royaume Intérieur! Je peux même tuer cette personne pour vous... » La voix de l'homme aux pieds nus était douce lorsqu'il parla.
 
 L'expression du Shui Daozi changea.
 
@@ -68,7 +68,7 @@ L'expression du Shui Daozi changea.
 
 Vu de loin, le monde entier fut recouvert par l'ombre de ce poing. Les yeux du Shui Daozi étaient injectés de folie. Avec son niveau de culture, il pouvait clairement ressentir l'intention meurtrière et cette aura puissante qui faisait trembler son cœur.
 
-« Pouvoir d'essence: Dragon Céleste Yin et Yang! » rugit le Shui Daozi. Le visage pâle, ses mains formèrent rapidement des sceaux. À cet instant, un filament d'énergie d'essence noire et un filament d'énergie d'essence blanche apparurent. Ils jaillirent et se transformèrent en deux dragons géants entrelacés!
+« Pouvoir d'essence: Dragon Céleste Yin et Yang! » rugit le Shui Daozi. Le visage pâle, ses mains formèrent rapidement des sceaux. À cet instant, deux puissants flux d'énergie d'essence, l'un noir et l'autre blanc, apparurent. Ils jaillirent et se transformèrent en deux dragons géants entrelacés!
 
 Ces deux dragons rugirent et foncèrent vers le poing de Wang Lin! À ce moment-là, les yeux du Shui Daozi devinrent rouges et il cracha un flot de sang. Puis, d'un revers de manche, il fit apparaître d'innombrables fils autour de son corps!
 
@@ -126,4 +126,4 @@ Dans la région de rang 1 de la Mer des Nuages, l'expression de Maître Hong Sha
 
 Dans le Système Stellaire de l'Alliance, un rugissement fracassant retentit du côté de la Secte des Cadavres.
 
-« Un objet du Royaume Céleste Antique!! Cet objet était très faible avant de fusionner avec la Formation de Scellement du Royaume. Il ne doit surtout pas être détruit!! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Divine!
+« Un objet du Royaume Céleste Antique!! Cet objet semble être celui qui a fusionné avec la formation de scellement; avant cette fusion, il était extrêmement fragile. Il ne doit surtout pas être détruit!! » Le fantôme d'un vieil homme apparut rapidement et chargea vers la Secte Divine!

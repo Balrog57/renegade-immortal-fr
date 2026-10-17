@@ -22,11 +22,11 @@ Au même instant, des éclairs jaillirent de l'œil droit de Wang Lin, brillant 
 
 « Personne sous le troisième pas ne peut résister à un seul coup de cette épée! Puisque tu ne peux quitter ta terre natale, je te donne cette arme pour te protéger! Si quiconque ose te manquer de respect, tranche-le avec elle! » Wang Lin fit un geste de la main droite et l'épée vola vers le corps de Xi Zifeng, devenant son trésor de vie!
 
-« Ma... Maître fera une dernière chose pour toi... Tu as un Senior Frère sur la planète Qing Ling. Si tu as besoin d'aide, suis cette épée... Xi Zifeng... » Wang Lin regarda la femme devant lui.
+« Ma... Maître fera une dernière chose pour toi... Tu as un Senior Frère sur la planète Qing Ling. Si tu as besoin d'aide, présente cette épée pour t'identifier... Xi Zifeng... » Wang Lin regarda la femme devant lui.
 
 La femme mordit sa lèvre inférieure et leva silencieusement la tête vers lui. Leurs regards se rencontrèrent, et dans ses yeux résidaient huit cents ans d'un amour profondément enfoui... Wang Lin resta silencieux un instant, le regard empreint de gravité. Il poussa un soupir avant de se détourner et de s'éloigner.
 
-En observant le dos de Wang Lin s'éloigner peu à peu, la silhouette qui apparut dans l'esprit de Xi Zifeng fut celle de l'homme ayant utilisé le fragment effondré pour détruire tout ce qui se trouvait sur son passage.
+En observant le dos de Wang Lin s'éloigner peu à peu, les yeux de Xi Zifeng virent resurgir, dans le Royaume Céleste du Tonnerre, cette silhouette debout sur le continent de fragments en train de s'effondrer, qui ouvrait toutes les barrières.
 
 L'ombre qui avait entraîné tant de cultivateurs hors du Royaume Céleste du Tonnerre.
 
@@ -42,7 +42,7 @@ Il ne s'attarda pas sur l'intimité de Xi Zifeng, mais se souvint avec précisio
 
 Planète Yun Dong, domaine de la famille Zhao. La famille Zhao était la deuxième plus puissante de la planète. Bien qu'elle ne pût rivaliser avec les lignées possédant des héritages, elle demeurait extrêmement influente dans ce domaine stellaire.
 
-Le chef actuel de la famille Zhao possédait un haut niveau de culture. Il avait apporté d'immenses contributions lors de la guerre contre l'Alliance et avait reçu une pilule précieuse; il se trouvait désormais au stade intermédiaire du Nettoyage de Nirvana.
+Le chef actuel de la famille Zhao possédait un haut niveau de culture. Il avait apporté d'immenses contributions lors de la guerre contre l'Alliance et avait reçu une pilule précieuse; il se trouvait désormais au stade intermédiaire du Purificateur du Nirvana.
 
 Son statut sur la planète Yun Dong était immense et il jouissait du respect de tous. Cependant, peu savaient qu'il y a huit cents ans, il faisait partie de ceux qui avaient harcelé Xi Zifeng. Lorsque la famille Xi s'effondra, il avait secrètement tenté, par divers moyens, de capturer Xi Zifeng pour en faire son fourneau de culture.
 
@@ -50,13 +50,13 @@ Bien qu'un tiers fût intervenu, cet acte avait profondément blessé Xi Zifeng,
 
 Plus de huit cents ans avaient passé, et le chef des Zhao avait depuis longtemps oublié cet épisode. Il était assis dans le hall principal de sa demeure, tandis que les membres de son clan écoutaient ses enseignements sur le Dao.
 
-Pourtant, alors qu'il entamait sa troisième phrase, une aura monstrueuse et glaciale descendit du ciel pour envelopper la demeure des Zhao, plongeant tous les occupants dans la stupéfaction. Un rayon d'énergie d'épée fulgurant descendit à une vitesse inimaginable vers le hall principal, visant l'ancêtre de la famille Zhao, pétrifié de terreur!
+Pourtant, alors qu'il entamait sa troisième phrase, une aura monstrueuse et glaciale descendit du ciel pour envelopper la demeure des Zhao, plongeant tous les occupants dans la stupéfaction. Un rayon d'énergie d'épée fulgurant descendit à une vitesse inimaginable vers le hall principal, visant le chef de la famille Zhao, lui aussi pétrifié de terreur!
 
 Tout fut si rapide. En un éclair, l'énergie de l'épée perça le chef de la famille Zhao. Son corps s'effondra et son âme d'origine fut instantanément anéantie!
 
-Planète Tian Mu, famille Dong Lai. Le Grand Ancien était considéré comme l'homme le plus bienveillant de la lignée. Il avait atteint le sommet du stade Nettoyage de Nirvana il y a trois cents ans, avant de devenir jardinier. Il plantait des fleurs et des plantes étranges pour cultiver son cœur.
+Planète Tian Mu, famille Dong Lai. Le Grand Ancien était considéré comme l'homme le plus bienveillant de la lignée. Il avait atteint le sommet du stade Purificateur du Nirvana il y a trois cents ans, avant de devenir jardinier. Il plantait des fleurs et des plantes étranges pour cultiver son cœur.
 
-Peu de gens savaient qu'il y a huit cents ans, alors qu'il était un ami de la famille Xi et avant de devenir Grand Ancien, il avait contraint Xi Zifeng à altérer sa propre apparence et à lui remettre le dernier trésor laissé par son ancêtre.
+Peu de gens savaient qu'il y a huit cents ans, alors qu'il était un ami de la famille Xi et avant de devenir Grand Ancien, il avait contraint Xi Zifeng à lui remettre le dernier trésor laissé par son ancêtre, et à détruire son propre visage.
 
 À cet instant, il portait des haillons et tenait un arrosoir. Il s'occupait de ses fleurs comme un simple mortel. Derrière lui se tenaient trois hommes d'âge mûr, empreints de respect.
 
@@ -70,7 +70,7 @@ L'attaque fut trop rapide. L'homme eut à peine le temps de lever les yeux que l
 
 Seul l'arrosoir tomba au sol, intact.
 
-Planète Zi Miao, famille Lou. En tant qu'une des quatre grandes familles du domaine sud de Luotian, le jeune maître possédait une culture élevée. Soutenu par son clan, peu osaient le provoquer.
+Planète Zi Miao, famille Lu. En tant qu'une des quatre grandes familles du domaine sud de Luotian, le jeune maître possédait une culture élevée. Soutenu par son clan, peu osaient le provoquer.
 
 À ce moment précis, le jeune maître était en méditation profonde. Nu, il dominait une cultivatrice, poussant des rugissements bestiaux.
 
@@ -84,9 +84,9 @@ L'homme s'empara d'elle, prêt à l'utiliser pour sa culture avec une expression
 
 Après un fracas de tonnerre, ses yeux s'écarquillèrent et son corps s'effondra. Son sang macula la femme qui, soudainement, retrouva toute sa lucidité.
 
-Planète Shu Lou, famille Qian.
+Planète Shui Luo, famille Qian.
 Planète Brise-Ciel, famille Sun.
-Planète Xu Ling, famille Li.
+Planète Xun Ling, famille Li.
 
 Des éclairs d'énergie d'épée frappèrent tous ces lieux, exécutant ceux qui avaient autrefois humilié Xi Zifeng!
 
@@ -116,6 +116,6 @@ Il scruta les profondeurs de cette structure composée de centaines de planètes
 
 Sa marche n'était pas rapide, mais chaque pas faisait gronder le domaine stellaire comme un coup de tonnerre. Les pas de Wang Lin produisaient des sons monstrueux qui se propageaient dans toutes les directions.
 
-D'innombrables cultivateurs du Temple Céleste du Tonnerre pâlirent et battirent en retraite. Contrairement aux membres de la famille de la planète Dong Ling, dont les esprits étaient contrôlés et qui étaient prêts à mourir, ceux-ci fuyaient promptement. De loin, leur mouvement ressemblait à une marée descendante!
+D'innombrables cultivateurs du Temple Céleste du Tonnerre pâlirent et battirent en retraite. Contrairement aux membres de la famille de la planète Dong Lin, dont les esprits étaient contrôlés et qui étaient prêts à mourir, ceux-ci fuyaient promptement. De loin, leur mouvement ressemblait à une marée descendante!
 
-Alors que Wang Lin avançait, un rire strident retentit de la part de Maître Lu Fu, qui se trouvait au centre du vortex!
+Alors que Wang Lin avançait, un cri strident retentit de la bouche de Maître Lu Fu, qui se trouvait au centre du vortex!

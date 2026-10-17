@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1558 - Seven-Colored Figure!"
 slug: la-figure-aux-sept-couleurs
 ---
-Le corps de Qing Shui trembla violemment. Wang Lin extraya la vrille de sa poitrine sur plusieurs pouces. Une force d'aspiration émana de la blessure, retenant l'épine, et Wang Lin sentit cette aspiration le solliciter à son tour.
+Le corps de Qing Shui trembla violemment. Wang Lin extraya l'épine de sa poitrine sur plusieurs pouces. Une force d'aspiration émana de la blessure, retenant l'épine, et Wang Lin sentit cette aspiration le solliciter à son tour.
 
-Alors que Wang Lin tirait sur la vrille, une étrange aura passa de l'épine au cœur de Wang Lin. Son rythme cardiaque s'accéléra brutalement et le martèlement de son cœur se mit à résonner comme un fou.
+Alors que Wang Lin tirait sur l'épine, une étrange aura passa de l'épine au cœur de Wang Lin. Son rythme cardiaque s'accéléra brutalement et le martèlement de son cœur se mit à résonner comme un fou.
 
 Les battements devinrent si rapides qu'ils se transformèrent bientôt en une douleur intense qui envahit tout son corps.
 
-À cet instant précis, une voix fantomatique résonna derrière Wang Lin: « La première vrille scellait son cœur! »
+À cet instant précis, une voix fantomatique résonna derrière Wang Lin: « La première épine scellait son cœur! »
 
 Wang Lin s'arrêta net. Il n'avait remarqué la présence de personne auparavant; lorsqu'il entendit cette voix, ses pupilles se rétractèrent et il se retourna lentement.
 
@@ -22,79 +22,79 @@ Cependant, alors que Wang Lin regardait en arrière, le doigt aux sept couleurs 
 
 Bien que cette figure fût floue, son regard était d'une clarté limpide alors qu'elle fixait Wang Lin.
 
-Wang Lin réfléchit en silence tandis que ses étoiles de Dieu Ancien tournaient rapidement. Les étoiles de Démon Ancien dans son œil droit tournaient également avec frénésie. Sa main gauche forma un sceau tandis que sa main droite se détacha de la vrille.
+Wang Lin réfléchit en silence tandis que ses étoiles de Dieu Ancien tournaient rapidement. Les étoiles de Démon Ancien dans son œil droit tournaient également avec frénésie. Sa main gauche forma un sceau tandis que sa main droite se détacha de l'épine.
 
 La silhouette floue aux sept couleurs dit doucement: « Ne soyez pas nerveux, vous pouvez continuer à le sauver. Je ne vous arrêterai pas... »
 
 Wang Lin ne se détendit nullement. Il reconnut immédiatement que cette figure était la même qu'il avait aperçue dans l'image au sein de la brume sanguine.
 
-Wang Lin possédait de nombreuses connaissances sur les sept couleurs. Il détenait la statue aux sept couleurs, avait vu le taoïste aux sept couleurs raffiner un esprit de Dao, et avait également contemplé ce même taoïste dans l'illusion à l'intérieur de la tombe ancienne.
+Wang Lin possédait de nombreuses connaissances sur les sept couleurs. Il détenait la statue aux sept couleurs, avait vu le Daoïste aux sept couleurs raffiner un esprit de Dao, et avait également contemplé ce même Daoïste dans l'illusion à l'intérieur de la tombe ancienne.
 
-En observant cette silhouette indistincte, Wang Lin ne put déterminer s'il s'agissait de l'être qui lui avait fait frissonner les moelles. Cependant, l'aura que dégageait cette figure était d'un calme absolu.
+En observant cette silhouette indistincte, Wang Lin ne put déterminer s'il s'agissait de l'être qui lui avait engourdi le cuir chevelu. Cependant, l'aura que dégageait cette figure était d'un calme absolu.
 
 « Héritage ancien... Corps céleste immortel... Cinq essences... Vous cachez bien des secrets en vous. » La voix tranquille émanait toujours de la figure aux sept couleurs.
 
 « Qui êtes-vous, Votre Excellence? » Le cœur de Wang Lin trembla, mais son expression resta imperturbable. Si cette personne était réellement celle qu'il soupçonnait, il ne serait pas surpris qu'elle connaisse ses secrets.
 
-« Chacun de vos secrets pourrait être considéré comme une immense fortune par n'importe qui d'autre... Cependant, pour moi, ils sont inutiles pour le moment... » La silhouette aux sept couleurs secoua la tête. Elle désigna Qing Shui du regard tout en fixant Wang Lin: « Vous pouvez continuer, c'est l'opportunité que je vous offre. Si vous parvenez à le sauver, vous pourrez l'emporter. Si vous échouez, alors partez... C'est votre seule chance. »
+« Chacun de vos secrets pourrait être considéré comme une immense fortune par n'importe qui d'autre... Cependant, pour moi, ils sont inutiles pour le moment... » La silhouette aux sept couleurs secoua la tête. Elle leva la main droite pour désigner Qing Shui tout en fixant Wang Lin: « Vous pouvez continuer, c'est l'opportunité que je vous offre. Si vous parvenez à le sauver, vous pourrez l'emporter. Si vous échouez, alors partez... C'est votre seule chance. »
 
-La main droite de Wang Lin cessa de former le sceau et, sans se retourner, il saisit la vrille plantée dans la poitrine de Qing Shui. Dès qu'il la saisit, l'aura du cœur de Qing Shui l'enveloppa une fois de plus.
+La main droite de Wang Lin cessa de former le sceau et, sans se retourner, il saisit l'épine plantée dans la poitrine de Qing Shui. Dès qu'il la saisit, l'aura du cœur de Qing Shui l'enveloppa une fois de plus.
 
-Alors que cette aura se propageait autour de lui, Wang Lin ressentit une douleur atroce au cœur, mais il la réprima. Il tira lentement sur la vrille.
+Alors que cette aura se propageait autour de lui, Wang Lin ressentit une douleur atroce au cœur, mais il la réprima. Il tira lentement sur l'épine.
 
 Plus il tirait, plus la douleur devenait insoutenable, comme si une main tentait d'écraser son cœur! Heureusement, il possédait le corps d'un Dieu Ancien, doté d'une capacité de régénération prodigieuse. Tandis que l'intensité de la douleur l'assaillait, il se rétablissait déjà rapidement.
 
 La silhouette aux sept couleurs observa Wang Lin et dit lentement: « Le corps issu de l'héritage ancien est vraiment remarquable... Autrefois, Ye Mo dispersa 3 000 gouttes de sang pour préserver son héritage, et ce ne fut pas vain... »
 
-Lorsque la douleur atteignit son paroxysme, les yeux de Wang Lin s'illuminèrent et sa main droite arracha impitoyablement la première vrille! Qing Shui serra les dents et son corps trembla, mais il ne poussa aucun cri. Cependant, son visage, dissimulé sous ses cheveux ébouriffés, était tordu par la souffrance.
+Lorsque la douleur atteignit son paroxysme, les yeux de Wang Lin s'illuminèrent et sa main droite arracha impitoyablement la première épine! Qing Shui serra les dents et son corps trembla, mais il ne poussa aucun cri. Cependant, son visage, dissimulé sous ses cheveux ébouriffés, était tordu par la souffrance.
 
 Le sang recouvrit le corps de Qing Shui et, juste au moment où il allait jaillir, Wang Lin apposa rapidement un sceau sur la blessure. Le sceau brilla et le sang disparut lentement.
 
-Wang Lin réfléchit en silence alors que les forces de rejet rugissaient à l'intérieur de son propre corps. L'interaction entre les pouvoirs célestes et ceux du Dieu Ancien provoquait d'innombrables grondements sourds. Les vrilles situées à l'extérieur du corps de Wang Lin s'effondrèrent sous l'effet de cette force de rejet.
+Wang Lin réfléchit en silence alors que les forces de rejet rugissaient à l'intérieur de son propre corps. L'interaction entre les pouvoirs célestes et ceux du Dieu Ancien provoquait d'innombrables grondements sourds. Les épines situées à l'extérieur du corps de Wang Lin s'effondrèrent sous l'effet de cette force de rejet.
 
 Seules celles qui étaient profondément enfouies dans son être demeurèrent, comme si elles avaient pris racine.
 
-Au moment où le dos de la Tortue Noire de pierre se brisa et que les 100 000 vrilles furent projetées vers lui, il utilisa simultanément le Bouclier de Lumière et d'Ombre et la Bénédiction du Dieu Ancien. Tout cela restait dissimulé par les vrilles, invisible pour ceux qui se trouvaient à l'extérieur.
+Au moment où le dos de la Tortue Noire de pierre se brisa et que les 100 000 épines furent projetées vers lui, il utilisa simultanément le Bouclier de Lumière et d'Ombre et la Bénédiction du Dieu Ancien. Tout cela restait dissimulé par les épines, invisible pour ceux qui se trouvaient à l'extérieur.
 
 Pourtant, même ainsi, il ne put stopper l'assaut des épines, ne faisant que les retarder légèrement.
 
-Tandis que Wang Lin reprenait son souffle, la douleur dans son cœur s'estompa peu à peu. Il fixa la silhouette aux sept couleurs avant de saisir la vrille qui transperçait la gorge de Qing Shui.
+Tandis que Wang Lin reprenait son souffle, la douleur dans son cœur s'estompa peu à peu. Il fixa la silhouette aux sept couleurs avant de saisir l'épine qui transperçait la gorge de Qing Shui.
 
-« Cette deuxième vrille scelle ses muscles! »
+« Cette deuxième épine scelle ses muscles! »
 
 Les pupilles de Wang Lin se contractèrent légèrement et il demanda: « Je me demande ce que Votre Excellence entend par les 3 000 gouttes de sang de Ye Mo! »
 
-La figure aux sept couleurs sembla rire en secouant la tête: « Si vous parvenez à extraire trois vrilles, je pourrai vous révéler un secret sur les Anciens... » [1]
+La figure aux sept couleurs sembla rire en secouant la tête: « Si vous parvenez à extraire trois épines, je pourrai vous révéler un secret sur l'Ancien... »
 
-Wang Lin ne pouvait sonder les pensées de cette entité. Cet être avait déployé des efforts colossaux pour observer Qing Shui depuis sa naissance, afin de le maintenir dans un état de chagrin et de désespoir, mettant en place cette formation pour récolter l'essence du massacre.
+Wang Lin ne pouvait sonder les pensées de cette entité. Cet être avait déployé des efforts colossaux pour observer Qing Shui depuis sa naissance, afin de le maintenir dans un état de chagrin et de désespoir, mettant en place cette formation pour récolter l'Essence du Massacre.
 
 Pourtant, d'après ce que Wang Lin voyait et entendait, il semblait que la figure aux sept couleurs n'en ait cure. Cela renforçait les soupçons de Wang Lin.
 
 L'indifférence dans le ton de la silhouette ne semblait pas feinte; elle se moquait réellement de tout cela...
 
-« Pourquoi fait-il cela... » Tout en méditant, Wang Lin saisit la deuxième vrille dans la gorge de Qing Shui et tira. En l'extrayant, il eut la sensation que tous les muscles de son propre corps étaient étirés à l'infini. Il avait ressenti cette douleur lorsqu'il avait bandé son arc plus tôt; c'était une souffrance qu'il pouvait endurer.
+« Pourquoi fait-il cela... » Tout en méditant, Wang Lin saisit la deuxième épine dans la gorge de Qing Shui et tira. En l'extrayant, il eut la sensation que tous les muscles de son propre corps étaient étirés à l'infini. Il avait ressenti cette douleur lorsqu'il avait bandé son arc plus tôt; c'était une souffrance qu'il pouvait endurer.
 
-Wang Lin arracha sans pitié la deuxième vrille!
+Wang Lin arracha sans pitié la deuxième épine!
 
 Qing Shui serra les dents et laissa échapper un gémissement étouffé. La sueur trempait son corps alors qu'il subissait cette douleur inimaginable.
 
-Le visage de Wang Lin était livide tandis que sa main droite saisissait la troisième vrille sur le bras gauche de Qing Shui.
+Le visage de Wang Lin était livide tandis que sa main droite saisissait la troisième épine sur le bras gauche de Qing Shui.
 
-« Cette troisième vrille et la quatrième sur son bras droit scellent son Sens Divin! » déclara la figure aux sept couleurs d'une voix calme.
+« Cette troisième épine et la quatrième sur son bras droit scellent son Sens Divin! » déclara la figure aux sept couleurs d'une voix calme.
 
-Wang Lin poussa un rugissement en saisissant la troisième épine pour l'arracher. Son Sens Divin fut frappé par une force dévastatrice émanant de la vrille; il eut l'impression que son Sens Divin était gravement blessé après s'être déployé.
+Wang Lin poussa un rugissement en saisissant la troisième épine pour l'arracher. Son Sens Divin fut frappé par une force dévastatrice émanant de l'épine; il eut l'impression que son Sens Divin était gravement blessé après s'être déployé.
 
-Wang Lin cracha une bouffée de sang, puis arracha la troisième vrille avec une expression féroce. Sans hésiter, il saisit la quatrième vrille dans le bras droit de Qing Shui et tira violemment.
+Wang Lin cracha une bouffée de sang, puis arracha la troisième épine avec une expression féroce. Sans hésiter, il saisit la quatrième épine dans le bras droit de Qing Shui et tira violemment.
 
 Le Sens Divin meurtri de Wang Lin fut à nouveau percuté par cette force puissante. Son esprit tourbillonna et il cracha de nouveau du sang. La force de rejet dans son corps fit rage, provoquant des tremblements incessants.
 
 Le bras de Qing Shui retomba et il leva les yeux vers Wang Lin. Il semblait que son regard ne pouvait percevoir la figure aux sept couleurs, mais seulement Wang Lin. Son regard était empreint de tristesse, de soulagement et d'une pointe d'excitation.
 
-Wang Lin essuya le sang au coin de sa bouche et sourit à Qing Shui. Cependant, bientôt, ses yeux se plissèrent. Le regard de Qing Shui reflétait l'environnement de Wang Lin: il ne voyait que lui-même, mais la figure aux sept couleurs restait invisible pour lui.
+Wang Lin essuya le sang au coin de sa bouche et sourit à Qing Shui. Cependant, bientôt, ses yeux se plissèrent. Les pupilles de Qing Shui reflétaient tout ce qui entourait Wang Lin, mais celui-ci n'y voyait que sa propre silhouette, sans trace de la figure aux sept couleurs.
 
-« Il ne peut pas me voir... Seul toi peux me percevoir ici. Tu es un cultivateur spirituel très intéressant, tout comme ce petit cultivateur, Zhan, qui m'avait surpris. Toutes les exceptions créées ici... Si je n'étais pas certain que tu n'as rien à voir avec moi, je ne pourrais croire qu'une telle création puisse être aussi merveilleuse. » La figure aux sept couleurs soupira.
+« Il ne peut pas me voir... Seul toi peux me percevoir ici. Tu es un cultivateur spirituel très intéressant, tout comme ce petit cultivateur qui croyait en la source de la guerre et qui m'avait surpris autrefois. Toutes les exceptions créées ici... Si je n'étais pas certain que tu n'as rien à voir avec moi, je ne pourrais croire qu'une telle création puisse être aussi merveilleuse. » La figure aux sept couleurs soupira.
 
-« Il dit que je n'ai rien à voir avec lui... Que signifie cela? Cet homme nommé Zhan? Parle-t-il du défunt Zhan Kongli ou de... le Vieux Fantôme Zhan? » Wang Lin ne regarda pas la silhouette. Ses yeux brillèrent et il demanda lentement: « Que voulez-vous dire par les 3 000 gouttes de sang de Ye Mo? »
+« Il dit que je n'ai rien à voir avec lui... Que signifie cela? Croire en la source de la guerre? Parle-t-il du défunt Zhan Kongli ou du... Vieux Fantôme Zhan? » Wang Lin ne regarda pas la silhouette. Ses yeux brillèrent et il demanda lentement: « Que voulez-vous dire par les 3 000 gouttes de sang de Ye Mo? »
 
 La figure aux sept couleurs sourit en fixant Wang Lin. Elle commença à parler avec une pointe de nostalgie.
 

@@ -34,7 +34,7 @@ C'était la même montagne, mais celle-ci était baignée de soleil.
 
 Wang Lin se tenait au sommet de cette même montagne, mais celle-ci était entourée de nuages noirs tourbillonnants. Le tonnerre grondait et la pluie tombait à verse.
 
-Ce sort ressemblait à un vol commis envers les cieux! L'air de Wang Lin était sombre alors qu'il avançait d'un pas décidé pour charger à travers les nuages noirs tourbillonnants. Il quittait cette copie de la planète Suzaku!
+Un tel sort rivalisait avec l'œuvre même de la création! L'air de Wang Lin était sombre alors qu'il avançait d'un pas décidé pour charger à travers les nuages noirs tourbillonnants. Il quittait cette copie de la planète Suzaku!
 
 Dès qu'il en sortit, il vit une lumière éblouissante émaner du monde extérieur. Cette lumière bleue infinie semblait capable de percer le vide éternel.
 
@@ -44,9 +44,9 @@ Le sol n'était pas fait de terre, mais d'une surface d'eau calme. Sans la moind
 
 De loin, l'immense étendue où se trouvait Wang Lin ressemblait à un puits sans fond, un gouffre agrandi indéfiniment et sans aucune limite!
 
-Une voix éthérée descendit du ciel pour atteindre les oreilles de Wang Lin.
+« Wang Lin... » Une voix éthérée descendit soudain du ciel pour atteindre les oreilles de Wang Lin.
 
-Wang Lin réfléchit silencieusement en levant les yeux vers la voûte céleste. Ses pupilles se rétractèrent et il prit une profonde inspiration. Des craquements résonnèrent dans son corps tandis qu'il libérait une faible lueur dorée, activant ainsi sa pleine culture.
+Wang Lin garda le silence en levant les yeux vers la voûte céleste. Ses pupilles se rétractèrent et il prit une profonde inspiration. Des craquements résonnèrent dans son corps tandis qu'il libérait une faible lueur dorée, activant ainsi sa pleine culture.
 
 Dans le ciel azur, la lumière bleue se condensa lentement pour former une silhouette. Cet homme d'âge moyen, vêtu de bleu, regarda Wang Lin d'un regard complexe et poussa un soupir.
 
@@ -54,7 +54,7 @@ Wang Lin joignit les mains et dit calmement: « Wang Lin salue le Maître du Dao
 
 Le Maître du Dao Rêve Bleu observa silencieusement Wang Lin. Le temps passa lentement. Après un long moment, l'expression tourmentée dans ses yeux s'effaça pour laisser place à une résolution ferme, puis il prit la parole:
 
-« La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les cultivateurs du Vide Arcanique du Royaume Extérieur. Les concubines impériales célestes ont également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
+« La dernière fois que le Seigneur du Royaume Scellé est mort, je ne me suis pas impliqué... Cette fois non plus, je ne t'attaquerai pas. Ce monde a été formé par l'effort conjoint de tous les puissants du Vide Arcanique du Système d'Étoiles Anciennes. Les concubines impériales célestes ont également contribué à ce qu'il puisse briser le vide et te piéger ici sans que personne dans le Royaume Intérieur ne s'en aperçoive...
 
 « Ce monde ne peut subsister que trois heures... Durant ces trois heures, tu... trouveras difficile d'échapper à la mort!
 
@@ -72,11 +72,11 @@ Plus stupéfiant encore, ce dragon contenait des Flammes Joss chaotiques. À mes
 
 Les yeux de Wang Lin s'illuminèrent et son expression devint extrêmement sérieuse. À cet instant, il ne considérait plus sa propre vie ou sa mort. Cette fois, soit il survivrait, soit même en mourant, il triompherait!
 
-C'était la calamité du Seigneur du Royaume Scellé! Le précédent Seigneur était mort encerclé par de nombreux cultivateurs du troisième pas du Royaume Extérieur. Tel un cycle de réincarnation, cette calamité se manifestait aujourd'hui pour Wang Lin!
+C'était la calamité du Seigneur du Royaume Scellé! Le précédent Seigneur était mort encerclé et tué par plusieurs puissants du Système d'Étoiles Anciennes. Tel un cycle de réincarnation, cette calamité se manifestait aujourd'hui pour Wang Lin!
 
 Trois heures!
 
-Le dragon gris se rapprochait. Sans hésiter, Wang Lin fit un pas en avant et pointa le ciel. L'Appel du Vent surgit dans ce monde bleu et se divisa en treize dragons noirs d'une puissance extrême. Les treize dragons rugirent, révélant une lueur dorée ténue alors qu'ils fonçaient sur le dragon gris.
+Le dragon gris se rapprochait. Sans hésiter, Wang Lin fit un pas en avant et pointa le ciel. L'Appel du Vent surgit dans ce monde bleu et se divisa en treize dragons noirs d'une puissance extrême. Les treize dragons rugirent et soufflèrent un vent d'anéantissement teinté d'une lueur dorée ténue alors qu'ils fonçaient sur le dragon gris.
 
 « Une couleur dorée? » Les yeux du vieil homme aux robes grises se plissèrent.
 
@@ -88,7 +88,7 @@ Au moment même de ce mouvement, une ondulation résonna et une vieille femme à
 
 Cependant, ce qui l'accueillit fut le coup de poing de Wang Lin!
 
-Le poing et le doigt entrèrent en collision une fraction de seconde plus tard. Le corps de Wang Lin trembla et il cracha du sang tout en étant projeté sur le côté. La vieille femme frémit et l'ongle de son index droit se brisa. Un éclat de froideur traversa ses yeux alors qu'elle s'avançait vers lui.
+Le poing et le doigt entrèrent en collision à l'instant même. Le corps de Wang Lin trembla et il cracha du sang tout en étant projeté sur le côté. La vieille femme frémit et le bout de son index droit s'effondra en éclats. Un éclat de froideur traversa ses yeux alors qu'elle s'avançait vers lui.
 
 « Tu as quelques talents! »
 
@@ -104,7 +104,7 @@ Cependant, juste au moment où l'empreinte apparaissait, une énergie d'épée f
 
 Ce pic jaillit du vide vers Wang Lin, produisant des craquements sinistres sur son passage. Une courte épée bleue trônait à la pointe de la glace!
 
-Cette arme était trop rapide. Dès qu'elle apparut, Wang Lin utilisa l'Empreinte de l'Esprit Martial. La glace des cieux et de la terre fonça sur lui!
+Cette arme était trop rapide: elle surgit au moment précis où Wang Lin lançait l'Empreinte de l'Esprit de Guerre. Le givre des cieux et de la terre fonça sur lui!
 
 Une lumière infinie convergea autour de Wang Lin. Une ombre lumineuse gigantesque se forma autour de lui tandis que l'épée bleue approchait. L'épée percuta l'ombre de lumière.
 
@@ -112,7 +112,7 @@ Des bruits de fracture résonnèrent et le Bouclier de Lumière et d'Ombre se mu
 
 L'épée glaciale transperça la sculpture et fonça sur Wang Lin avec une intention meurtrière monstrueuse.
 
-Un bang assourdissant retentit et l'Empreinte de l'Esprit Martial de Wang Lin fut interrompue. Il cracha à nouveau du sang tandis que son corps était projeté en avant, poursuivi par le pic de glace.
+Un bang assourdissant retentit et l'Empreinte de l'Esprit de Guerre de Wang Lin fut interrompue. Il cracha à nouveau du sang tandis que son corps était projeté en avant, poursuivi par le pic de glace.
 
 L'expression de Wang Lin était sombre et un éclat de lumière sanguine jaillit de sa main. D'un geste, il projeta une épée de sang vers l'épée glaciale.
 
@@ -128,12 +128,12 @@ Un homme vêtu de blanc sortit lentement de l'ombre de l'épée brisée, le rega
 
 Wang Lin recula promptement. Bien que leur culture fût ici supprimée, résister à trois cultivateurs du stade intermédiaire du Vide Spirituel n'était pas une mince affaire!
 
-Tout en reculant, Wang Lin pointa le ciel. L'Empreinte de l'Esprit Martial interrompue réapparut. Ses yeux brillèrent d'un éclat doré, libérant une intense intention de combat.
+Tout en reculant, Wang Lin pointa le ciel. L'Empreinte de l'Esprit de Guerre interrompue réapparut. Ses yeux brillèrent d'un éclat doré, libérant une intense intention de combat.
 
 « Puisque vous voulez combattre, alors battons-nous!! » La voix de Wang Lin était calme. Plus le danger était grand, plus il devenait fou, mais son esprit, lui, devenait plus limpide. C'était un trait qu'il avait forgé au cours de ses deux mille ans de culture.
 
 À cet instant, il fit signe au ciel et le monde trembla sous l'éclat d'une lumière dorée. L'immense empreinte de paume, baignée d'un éclat d'or, descendit. Avant même qu'elle ne soit proche, une pression écrasante s'abattit sur les lieux.
 
-C'était l'Empreinte de l'Esprit Martial la plus authentique. Dans l'empreinte, les lignes de la paume étaient aussi visibles que des chaînes de montagnes alors qu'elle s'abattait avec fracas.
+C'était l'Empreinte de l'Esprit de Guerre la plus authentique. Dans l'empreinte, les lignes de la paume étaient aussi visibles que des chaînes de montagnes alors qu'elle s'abattait avec fracas.
 
-« Qu'est-ce que cette lumière dorée? Elle m'inspire un vague sentiment de terreur! » Le vieil homme en gris fixait avec effroi la lueur émanant de l'Empreinte de l'Esprit Martial.
+« Qu'est-ce que cette lumière dorée? Elle m'inspire un vague sentiment de terreur! » Le vieil homme en gris fixait avec effroi la lueur émanant de l'Empreinte de l'Esprit de Guerre.

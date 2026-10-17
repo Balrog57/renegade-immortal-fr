@@ -50,13 +50,13 @@ Si l'on reliait ces deux morceaux de tissu, ils auraient ressemblé à une poup�
 
 Dans leur chute, deux filaments furent extraits par le sort de Wang Lin. Ils s'entrelacèrent comme deux serpents pour former un vortex!
 
-« Guide des Enfers, passe! » Dans un rugissement, le vortex se mua en un trou noir. Cette obscurité était totale et nul ne savait vers où elle menait!
+« Que l'âme montre la voie, ouvre-toi! » Dans un rugissement, le vortex se mua en un trou noir. Cette obscurité était totale et nul ne savait vers où elle menait!
 
 Cependant, juste au moment où le trou noir apparut, le tatouage de tonnerre dans l'œil droit de Wang Lin étincela. Le Royaume Ji, scellé sous la forme d'un tonnerre accompagnateur, jaillit sans hésitation de son œil droit pour s'engouffrer dans le trou noir!
 
 Simultanément, l'essence du feu se précipita dans le vortex, suivant le tonnerre du Royaume Ji. Le tonnerre et le feu fusionnèrent dans leur course!
 
-Dans le Système d'Étoiles Anciennes, l'une des trois terres interdites du Conseil Souverain, un lieu qui n'existait pas dans l'espace ordinaire, se trouvait la terre sainte transmise de génération en génération par les ancêtres du Grand Maître Yun Luo!
+Dans le Système d'Étoiles Anciennes, l'une des trois terres interdites du Conseil Souverain, une faille spatiale qui n'existait pas dans le ciel étoilé, se trouvait la terre sainte transmise de génération en génération par les ancêtres du Grand Maître Yun Luo!
 
 Le lac était limpide et une île trônait en son centre. Elle était assise sous un pavillon sur l'île, vêtue de blanc, ses longs cheveux noirs cascadant sur ses épaules. Son visage était pâle et ses yeux clos. Au moment où son avatar fut tué par Wang Lin, son corps trembla et elle cracha une bouchée de sang!
 
@@ -80,7 +80,7 @@ Le tonnerre et le feu se mêlèrent. L'île tremblait violemment, comme si un ma
 
 « Troisième divination: le tonnerre céleste descend... Quatrième divination: la mer de feu brûle... Cinquième divination: l'île se disperse... » Le Grand Maître Yun Luo était assise sur un fragment de l'île au centre, le pavillon derrière elle diffusant une douce lumière. Elle cracha de nouveau du sang et son visage devint livide alors qu'elle regardait amèrement le monde autour d'elle.
 
-« Huitième divination de l'ancêtre, cinquième divination! »
+« Les divinations de l'ancêtre ont déjà atteint la cinquième! »
 
 À cet instant précis, le tonnerre du Royaume Ji se rapprocha du Grand Maître Yun Luo après avoir pulvérisé l'île. Il ressemblait à d'innombrables serpents de sang nageant dans l'air, offrant un spectacle terrifiant.
 
@@ -102,7 +102,7 @@ Son corps vola en éclats et se désintégra complètement; même son âme origi
 
 Sur le champ de bataille de la Mer des Nuages, Wang Lin se tenait là, brandissant la hache géante, son regard balayant les cultivateurs du Royaume Extérieur. Une lueur d'intention meurtrière brilla dans ses yeux!
 
-L'océan de poison rugissait à travers les étoiles et des dizaines de milliers de bêtes-moustiques hurlaient en déferlant avec lui, chargeant vers les cent mille cultivateurs du Royaume Extérieur!
+L'océan de poison rugissait à travers les étoiles et des dizaines de milliers de bêtes-moustiques hurlaient en déferlant avec lui, chargeant vers les plus de cent mille cultivateurs du Royaume Extérieur!
 
 Au loin, dans la Mer des Nuages, de grandes ondulations apparurent soudainement. À l'intérieur de ces ondes, une, deux, trois... plus de neuf cents planètes de culture jaillirent brusquement!
 

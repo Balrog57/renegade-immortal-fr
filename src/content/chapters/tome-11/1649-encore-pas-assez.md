@@ -44,7 +44,7 @@ Les yeux de Wang Lin prirent une teinte rougeâtre. Son Sens Divin se déploya e
 
 Cette aura dégageait une sensation de surprise; il semblait avoir été pris au dépourvu par le Sens Divin de Wang Lin. S'il s'était agi de l'époque précédant le Dao du Rêve, Wang Lin aurait peut-être froncé les sourcils, mais désormais, il ne daignerait même pas regarder cette personne.
 
-Cette aura appartenait à un cultivateur du stade avancé du Vide Spirituel, mais Wang Lin osait même tuer des cultivateurs du Vide Arcane; il n'avait donc nul besoin de prendre au sérieux un simple cultivateur du Vide Spirituel!
+Cette aura appartenait à un cultivateur du stade avancé du Vide Spirituel, mais Wang Lin osait même tuer des cultivateurs du Vide Arcanique; il n'avait donc nul besoin de prendre au sérieux un simple cultivateur du Vide Spirituel!
 
 D'un pas assuré, Wang Lin ignora l'aura du cultivateur du troisième niveau et arriva devant une planète. Cette dernière abritait des milliers de cultivateurs du Royaume Extérieur.
 
@@ -110,8 +110,8 @@ Il existait un clan dans le Système Stellaire Antique appelé le Clan des Enfer
 
 Le Clan des Enfers était un petit clan du Système Stellaire Antique. La plupart de ses membres s'étaient regroupés ici pour en faire leur nouveau foyer.
 
-D'innombrables bulles grises flottaient dans l'espace. Ces bulles contenaient des captifs du Royaume Intérieur, et la plupart étaient des femmes. L'une d'entre elles était Zhou Zi Hong!
+D'innombrables bulles grises flottaient dans l'espace. Ces bulles contenaient des captifs du Royaume Intérieur, et la plupart étaient des femmes. L'une d'entre elles était Zhou Zihong!
 
-Ses yeux étaient clos et elle était inconsciente, bien que ses vêtements fussent encore intacts.
+Ses yeux étaient clos et elle était inconsciente, le visage pâle, bien que ses vêtements fussent encore intacts.
 
-À cet instant précis, un grondement tonitruant ébranla la planète et une faille gigantesque se produisit. Une force aspirante apparut, entraînant environ trois cents bulles dans son sillage. Zhou Zi Hong faisait partie de celles-là.
+À cet instant précis, un grondement tonitruant ébranla la planète et une faille gigantesque se produisit. Une force aspirante apparut, entraînant trois cents bulles dans son sillage. Zhou Zihong faisait partie de celles-là.

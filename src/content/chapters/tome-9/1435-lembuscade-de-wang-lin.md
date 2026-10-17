@@ -14,7 +14,7 @@ Une lueur rouge traversa ses yeux tandis que les blessures de son âme originell
 
 À cet instant, les restrictions que Wang Lin avait laissées sur les six planètes entrèrent en éruption et l'une d'elles s'effondra. La puissance de la déflagration secoua tout le domaine stellaire!
 
-Il s'agissait d'une planète de culture abandonnée, mais elle regorgeait d'énergie spirituelle que le clan de l'Estimé Loup Céleste avait mis énormément d'efforts à obtenir. L'effondrement d'une telle planète ne pouvait être comparé à celui d'une planète déserte ordinaire.
+Ce n'était pas une planète de culture abandonnée: elle regorgeait d'énergie spirituelle et le clan de l'Estimé Loup Céleste avait mis énormément d'efforts à l'obtenir. L'effondrement d'une telle planète ne pouvait être comparé à celui d'une planète déserte ordinaire.
 
 Ce qui s'effondrait n'était pas seulement les montagnes et la terre, mais aussi la puissante énergie spirituelle! Des grondements tonitruants résonnèrent alors que la planète de culture était déchirée. L'impact colossal se mua en une tempête qui se propagea rapidement.
 
@@ -86,11 +86,11 @@ Ce qu'il craignait n'était pas la culture de Wang Lin, mais ces trésors infini
 
 Il ignorait que la véritable raison pour laquelle Wang Lin avait ciblé la jeune fille était qu'il avait reconnu la marque entre ses sourcils. Le pouvoir et la terreur que représentait cette marque avaient laissé une empreinte indélébile dans l'esprit de Wang Lin!
 
-Le Clan de l'Extermination des Sceaux! L'un des petits clans du Système Stellaire Antique! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
+Le Clan de l'Extermination des Sceaux! L'une des races rares du Système Stellaire Antique, dont les membres sont extrêmement peu nombreux! Avec cette femme, tous les sorts de Wang Lin auraient pu être scellés. Et une fois scellés, les conséquences auraient été imprévisibles!
 
 Du point de vue de Wang Lin, bien que son niveau de culture ne fût pas élevé, le danger qu'elle représentait n'était en rien inférieur à celui de cet homme du Nirvana Vide!
 
-« Quel homme impitoyable... » Un léger soupir s'échappa de l'homme costaud. La lumière revint progressivement dans les yeux de la jeune fille dont le front avait été transpercé par l'épée de sang.
+« Quel homme impitoyable... » Un léger soupir s'échappa de l'épaule de l'homme costaud. La lumière revint progressivement dans les yeux de la jeune fille dont le front avait été transpercé par l'épée de sang.
 
 La blessure entre ses sourcils se referma et cicatrisa rapidement, bien qu'une marque permanente y soit restée. La plaie à l'arrière de sa tête se rétablit également.
 
@@ -100,7 +100,7 @@ La jeune fille leva un doigt, essuya le sang sur la marque de son front et le po
 
 « Il sait probablement que je suis du Clan de l'Extermination des Sceaux... Tout ce piège a été tendu... juste pour me tuer!! » La jeune fille esquissa un sourire, mais il trahissait une peur qu'elle ne pouvait masquer.
 
-« Quelle ruse profonde. Une fois qu'il nous a identifiés comme ennemis, il s'est montré décisif et impitoyable. On ne provoque pas facilement ce genre d'individu... Nous avons sous-estimé sa force... Même Maître l'a sous-estimée... Si mon Clan de l'Extermination des Sceaux ne possédait pas le sort des Trois Âmes, je serais... morte. » La jeune fille serra les dents. Bien qu'elle paraisse calme, elle était habitée par la peur. En un instant, sans même avoir le temps de réfléchir, elle avait déjà passé la mort.
+« Quelle ruse profonde. Une fois qu'il nous a identifiés comme ennemis, il s'est montré décisif et impitoyable. On ne provoque pas facilement ce genre d'individu... Nous avons sous-estimé sa force... Même Maître l'a sous-estimée... Si mon Clan de l'Extermination des Sceaux ne possédait pas la vie aux Trois Âmes, je serais... morte. » La jeune fille serra les dents. Bien qu'elle paraisse calme, elle était habitée par la peur. En un instant, sans même avoir le temps de réfléchir, elle avait déjà passé la mort.
 
 C'était la première fois qu'elle vivait une telle expérience!
 
@@ -110,6 +110,6 @@ C'était la première fois qu'elle vivait une telle expérience!
 
 L'homme du clan de l'Estimé Loup Céleste déchira silencieusement le vide et s'y engouffra. Après son départ, la faille se referma lentement et le domaine stellaire retrouva son calme, ne laissant derrière lui que les planètes effondrées dont la tempête de débris continuait de se propager... La zone s'étendant de la faille jusqu'à la Tombe de l'Ordre Ancien était plongée dans un brouillard dense. Une puissance terrifiante régnait au sein de cette brume, et même les cultivateurs de la troisième étape n'oseraient s'y aventurer imprudemment.
 
-Ce brouillard couvrait une zone d'un million de kilomètres carrés, où se trouvaient de nombreux cultivateurs du Système Stellaire Antique.
+Ce brouillard s'étendait sur 100 000 kilomètres, et en périphérie se trouvaient de nombreux cultivateurs du Système Stellaire Antique.
 
 Personne n'avait remarqué qu'un bouleversement se préparait à l'intérieur de la Tombe de l'Ordre Ancien, dans la faille. Un instant plus tard, elle éclata, ébranlant tout le Système Stellaire Antique!

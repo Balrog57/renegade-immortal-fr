@@ -12,7 +12,7 @@ Il cherchait à découvrir l'avenir de la Secte de l'Affinement de l'Âme. Il vo
 
 Les neuf divinations lui donnèrent toutes une conclusion extrêmement absurde. Il ne le crut pas au début, mais après avoir obtenu le même résultat neuf fois, il fut contraint d'y croire.
 
-Toutes les divinations pointaient vers le pays de Zhao. Elles désignaient un pays spécifique et un érudit résidant dans ce comté!
+Toutes les divinations pointaient vers le pays de Zhao. Elles désignaient une ville de comté précise et un érudit résidant dans cette ville!
 
 En conséquence, il s'y rendit avec des attentes élevées mêlées à un sentiment d'absurdité. Après être arrivé dans ce pays, il passa quelques jours à interroger presque tous les érudits, mais il n'obtint aucune réponse satisfaisante.
 
@@ -106,11 +106,11 @@ Un rugissement retentit depuis la montagne principale et une silhouette apparut 
 
 « Senior Frère, qui est cette personne? » Alors qu'une voix ancienne résonnait, l'ombre noire se rapprocha. C'était également un homme d'âge moyen, dont le regard balaya Wang Lin.
 
-« Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta culture en méditation fermée. » Une émotion complexe traversa les yeux de Nian Tian lorsqu'il parla.
+« Dun Tian, cet homme est un érudit que j'ai invité ici. Tu es en pleine fusion avec le drapeau, ne te laisse pas distraire. Retourne rapidement à ta culture en méditation fermée. » Une lueur de soulagement traversa les yeux de Nian Tian lorsqu'il parla.
 
-Dun Tian sourit. Aux yeux de celui-ci, Wang Lin n'était qu'un simple mortel. Bien qu'il l'ait jeté un regard, il ne prit pas la peine de s'en souvenir. Il se retourna et disparut.
+Dun Tian sourit. Aux yeux de celui-ci, Wang Lin n'était qu'un simple mortel. Bien qu'il lui ait jeté un regard, il ne prit pas la peine de s'en souvenir. Il se retourna et disparut.
 
-Pourtant, en voyant Dun Tian, l'esprit de Wang Lin tourmenta comme s'il venait de se remémorer quelque chose. En regardant la silhouette de Dun Tian s'éloigner, deux filets de larmes commencèrent à couler de ses yeux pour une raison inconnue.
+Pourtant, en voyant Dun Tian, l'esprit de Wang Lin fut ébranlé comme s'il venait de se remémorer quelque chose. En regardant la silhouette de Dun Tian s'éloigner, deux filets de larmes commencèrent à couler de ses yeux pour une raison inconnue.
 
 À cet instant précis, un oiseau blanc survola la Secte de l'Affinement de l'Âme, poussant une série de cris en passant.
 

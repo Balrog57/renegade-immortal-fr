@@ -70,9 +70,9 @@ Cette formation était initialement composée de 999 planètes. Chaque planète 
 
 Cependant, à mesure que les planètes étaient anéanties et que les strates de lumière volaient en éclats, la puissance de la formation planétaire chutait rapidement.
 
-La femme en rose tourna la tête et murmura doucement: « Née cultivatrice du Royaume Intérieur pour mourir en tant qu'âme au sein même du Royaume Intérieur... C'est juste que mon cœur est un peu réticent... Je ne lui ai pas encore dit qui je suis... »
+La femme en rose tourna la tête et murmura doucement: « Née du Royaume Intérieur, je mourrai en tant qu'âme du Royaume Intérieur... C'est juste que mon cœur est un peu réticent... Je ne lui ai pas encore dit qui je suis... »
 
-Des dizaines de milliers de cultivateurs du Royaume Extérieur bombardaient la partie occidentale de la formation, et l'écran lumineux était sur le point de céder. Sur la planète, Xi Zihong se mordait la lèvre inférieure aux côtés des autres cultivateurs de Luotian. Zhang Conglie et Shengong Hu étaient également présents.
+Des dizaines de milliers de cultivateurs du Royaume Extérieur bombardaient la partie occidentale de la formation, et l'écran lumineux était sur le point de céder. Sur la planète, Xi Zifeng se mordait la lèvre inférieure aux côtés des autres cultivateurs de Luotian. Zhan Konglie et Shengong Hu étaient également présents.
 
 Le Maître Yan Leizi se trouvait parmi eux.
 
@@ -84,7 +84,7 @@ Ils n'étaient pas le premier groupe à choisir cette voie. Presque toutes les p
 
 Au loin, un fracas assourdissant retentit. Une autre planète s'effondra après la destruction de son bouclier lumineux.
 
-Soudain, un rire strident jaillit de la formation planétaire et un rayon de lumière verte fendit l'air vers l'armée du Royaume Extérieur. Dès l'apparition de cette lueur, des rires éclatèrent parmi les cultivateurs du Vide Arcanique. Le vieil homme qui avait participé à l'attaque contre Wang Lin entra en collision avec la lumière verte.
+Soudain, un cri strident jaillit de la formation planétaire et un rayon de lumière verte fendit l'air vers l'armée du Royaume Extérieur. Dès l'apparition de cette lueur, des rires éclatèrent parmi les cultivateurs du Vide Arcanique. Le vieil homme qui avait participé à l'attaque contre Wang Lin entra en collision avec la lumière verte.
 
 Dans un fracas de tonnerre, la lumière verte fut légèrement dispersée et recula de quelques pas. De l'autre côté, le vieil homme fut repoussé de mille pieds; ses yeux brillèrent d'un éclat sinistre. Dans un sourire narquois, il traça un sceau et une brume noire envahit la zone.
 
@@ -116,6 +116,6 @@ Le Maître Hong Shan regarda Qing Shui avec une profonde tristesse dans les yeux
 
 Qing Shui respirait péniblement sur l'autel, tandis que du sang noir coulait de sa bouche. Sa vision se brouillait et il lutta pour lever la tête vers une planète lointaine. C'était celle où se trouvait la femme en rose.
 
-« Est-ce elle...? Ce doit être elle... » Une lueur de tendresse passa dans les yeux de Qing Shui. Il l'avait remarqué il y a de nombreuses années, mais n'avait jamais pu le confirmer.
+« Est-ce elle...? Ce doit être elle... » Une lueur de tendresse passa dans les yeux de Qing Shui. Il l'avait remarqué il y a de nombreuses années, mais n'avait jamais cherché à le confirmer.
 
 À cet instant précis, la lumière entourant la planète de la femme en rose fut brisée par l'homme robuste utilisant le vent et la foudre. Ce dernier poussa un rire et chargea, suivi par des dizaines de milliers de cultivateurs.

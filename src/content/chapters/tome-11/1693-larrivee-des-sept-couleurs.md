@@ -8,7 +8,7 @@ slug: larrivee-des-sept-couleurs
 ---
 La bête lionnée sous eux deux trembla, affichant un regard d'horreur. Elle fut prise de convulsions et s'immobilisa soudainement.
 
-Une lumière aux sept couleurs brillait derrière lui avec l'éclat des étoiles. C'était comme si quelqu'un avait déchiré l'espace pour y injecter cette radiance chromatique.
+Une lumière aux sept couleurs brillait derrière eux avec l'éclat des étoiles. C'était comme si quelqu'un avait déchiré l'espace pour y injecter cette radiance chromatique.
 
 Les pupilles de Wang Lin se rétractèrent et il s'élança sans hésiter. En un éclair, il commença à progresser rapidement. Fan Shanlu fit de même, se déplaçant telle un magnifique papillon derrière lui.
 
@@ -54,11 +54,11 @@ Ce n'étaient pas du tout des oiseaux de feu; il s'agissait manifestement de neu
 
 Armée de cette lame, Fan Shanlu leva la tête et frappa les neuf oiseaux de feu. Le couteau se divisa en neuf segments qui jaillirent vers les oiseaux pour intercepter leur course!
 
-Profitant de ce répit, Wang Lin tendit sa main gauche et l'arc Li Guang apparut. Sa main droite saisit la corde. Dans un rugissement, la sueur perla sur son front et une lumière dorée brilla dans ses yeux alors qu'il bandait l'arc!
+Profitant de ce répit, Wang Lin tendit sa main gauche et l'arc Li Guang apparut. Sa main droite saisit la corde. Dans un rugissement, les veines de son front se gonflèrent et une lumière dorée brilla dans ses yeux alors qu'il bandait l'arc!
 
 Le calcul du Souverain n'était pas erroné: Wang Lin n'avait réellement la force de bander l'arc que deux fois. Cependant, ce que le Souverain ignorait, c'est que Wang Lin possédait une autre goutte de sang céleste!
 
-Cette goutte était celle que Xu Liguo et Liu Jinbiao avaient dérobée au fou et que Wang Lin avait fini par obtenir! Bien que cette goutte ne contînt qu'une puissance limitée, elle suffisait à faire échouer les calculs du Souverain!
+Cette goutte était celle que Xu Liguo et Liu Jinbiao avaient soutirée au fou par la ruse et que Wang Lin avait fini par prendre! Bien que cette goutte ne contînt qu'une puissance limitée, elle suffisait à faire échouer les calculs du Souverain!
 
 Dans un bourdonnement, l'arc Li Guang fut bandé et la flèche apparut. Dès son apparition, Wang Lin lâcha prise; la corde claqua violemment, propulsant le projectile.
 
@@ -84,30 +84,30 @@ Wang Lin ne le croyait pas, mais ce n'était pas le moment d'enquêter. Si cet h
 
 De son doigt jaillit un cristal aux sept couleurs qui fonça immédiatement sur le duo.
 
-Le projectile les atteignit en un instant, puis se dissipa en une lumière chromatique qui les enveloppa. Vu de loin, on aurait dit qu'ils étaient désormais prisonniers du cristal disparu!
+Le projectile les atteignit en un instant, puis se dissipa en une lumière chromatique qui, sur 100 000 pieds à la ronde, les enveloppa. Vu de loin, on aurait dit qu'ils étaient désormais prisonniers du cristal disparu!
 
 Soudain, le cristal se rétracta violemment. Des craquements retentirent et Wang Lin ressentit une douleur atroce. Une pression colossale pressait de toutes parts pour broyer son corps.
 
 Le visage de Fan Shanlu devint livide. Dans ce moment critique, sa main droite traça un sceau et l'empreinte aux sept couleurs réapparut devant elle. Elle cracha du sang qui vint maculer l'empreinte.
 
-« Sœur, aide-moi!! »
+« Sœur aînée, aide-moi!! »
 
 Sa voix était empreinte d'une immense douleur. À cet instant, les étoiles tremblèrent et une aura exotique surgit de nulle part! Sur le Continent Astral Immortel, il existait une terre glacée couverte de neige éternelle. Un froid si intense qu'il pouvait figer toute vie; même les cultivateurs peinaient à y survivre.
 
-Dans ce pays gelé, au sommet d'une montagne de glace, une femme était assise. Son apparence était le reflet exact de celle de Fan Shanlu!
+Dans ce pays gelé, à l'intérieur d'une montagne de glace, une femme était assise en tailleur. Son apparence était le reflet exact de celle de Fan Shanlu!
 
 Soudain, elle ouvrit les yeux et pointa l'espace entre ses sourcils.
 
 Un éclat de lumière aux sept couleurs jaillit de son front. Simultanément, dans le monde de la grotte, une explosion de lumière chromatique apparut également entre les sourcils de Fan Shanlu. C'était comme si une force extérieure s'était engouffrée en elle, faisant vibrer tout son être.
 
-Grâce à cette puissance, l'empreinte aux sept couleurs devant elle s'étendit soudainement pour atteindre des milliers, puis des dizaines de milliers, et enfin des centaines de milliers de pieds. Elle soutint le cristal qui se rétractait, provoquant l'effondrement soudain de ce dernier.
+Grâce à cette puissance, l'empreinte aux sept couleurs devant elle s'étendit soudainement pour atteindre mille pieds, puis dix mille pieds, et enfin des dizaines de milliers de pieds. Elle soutint le cristal qui se rétractait, provoquant l'effondrement soudain de ce dernier.
 
 Au moment où il cassa, l'immense empreinte aux sept couleurs fut projetée vers le Daoïste aux Sept Couleurs.
 
-« J'ai utilisé toute ma puissance, emmenez-moi! » Les yeux de Fan Shanlu s'assombrirent et Wang Lin la saisit. En un éclair, ils disparurent pour réapparaître à plus de 2 millions de kilomètres de là.
+« J'ai utilisé toute ma puissance, emmenez-moi! » Les yeux de Fan Shanlu s'assombrirent et Wang Lin la saisit. En un éclair, ils disparurent pour réapparaître à près de 2 millions de kilomètres de là.
 
 Devant lui se dressait un navire gigantesque, de la taille d'une cité mortelle. Entièrement pourpre, il imposait une allure majestueuse, entouré de couches de protection dégageant une pression écrasante.
 
 La voile du navire ondulait sans qu'aucun vent ne soufflât, arborant un visage fantomatique qui offrait un spectacle terrifiant! Wang Lin et Fan Shanlu se précipitèrent à travers les barrières protectrices. Le corps de Fan Shanlu émit une lueur qui permit de franchir les couches sans encombre.
 
-Dès qu'il eut posé le pied à terre, Wang Lin interpella Fan Shanlu: « Qui est-il, bordel?! » Cette question lui brûlait le cœur depuis bien trop longtemps!
+Dès qu'il eut posé le pied à terre, Wang Lin interpella Fan Shanlu: « Qui est-il, au juste?! » Cette question lui brûlait le cœur depuis bien trop longtemps!

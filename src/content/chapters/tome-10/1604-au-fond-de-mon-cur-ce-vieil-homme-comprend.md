@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1604 - In My Heart, This Old Man Understands
 slug: au-fond-de-mon-cur-ce-vieil-homme-comprend
 ---
-La calèche transporta les deux femmes ainsi que quelques cruches de vin hors de la ville de Su, sans que personne ne s'en aperçoive. Lentement, il se dirigea vers le domicile de Wang Lin.
+La calèche emporta le maître et son serviteur, tous deux âgés, ainsi que quelques cruches de vin, hors de la ville de Su, sans que personne ne s'en aperçoive. Lentement, elle s'éloigna sur la route officielle, en direction de chez eux.
 
 Ce n'est qu'au crépuscule que les deux femmes du bateau débarquèrent et marchèrent dans les rues de Su. Leurs apparences changèrent progressivement pour devenir très ordinaires.
 
@@ -30,9 +30,9 @@ Zhou Rui réfléchit silencieusement un instant avant de secouer doucement la t�
 
 « Attends-moi! » Après ces mots, le corps de Zhou Rui vacilla et elle s'élança dans les airs, filant au loin. Son action soudaine provoqua un tollé dans les environs. Les passants restèrent stupéfaits et incrédules, figés dans la stupeur avant de pouvoir réagir.
 
-« Un Immortel! »
+« Une Immortelle! »
 
-« C'était un Immortel! »
+« C'était une Immortelle! »
 
 Xu Fei regarda la silhouette de Zhou Rui et fronça légèrement les sourcils. Elle laissa échapper un léger soupir.
 
@@ -46,9 +46,9 @@ Il vit à nouveau l'oiseau blanc tournoyer dans le ciel et voler vers sa demeure
 
 Désormais plus âgé, son corps n'était plus aussi vigoureux que dans sa jeunesse. Après avoir passé un long moment dans cette calèche cahoteuse, il avait l'impression que ses os allaient se briser. Il était extrêmement fatigué.
 
-C'est ainsi qu'ils voyagèrent et se reposèrent tout au long de l'été. Quatre mois plus tard, à l'automne, Wang Lin et Grande Fortune entrèrent dans la région située sous le mont Heng Yue.
+C'est ainsi qu'ils voyagèrent et se reposèrent tout au long de l'été. Quatre mois plus tard, un midi d'automne, Wang Lin et Grande Fortune entrèrent dans la région située sous le mont Heng Yue, sous le soleil d'automne qui brillait en plein ciel.
 
-Lorsqu'il était parti, les bas-côtés étaient couverts de fleurs rouges et vertes. À son retour, la plupart des fleurs avaient flétri et les feuilles avaient jauni. Bien qu'elles ne soient pas encore toutes tombées, l'hiver n'était plus loin.
+Lorsqu'il était parti, les bas-côtés étaient couverts de fleurs rouges et vertes. À son retour, la plupart des fleurs avaient flétri et les feuilles avaient jauni. Bien que ce ne fût pas encore le moment de leur chute, il n'était plus très loin.
 
 « 28 ans... » Wang Lin regarda l'herbe et les arbres environnants, la vue brouillée par l'émotion. Il se souvenait qu'en partant, il n'était qu'un jeune homme; désormais, de retour, il approchait de la cinquantaine.
 
@@ -70,9 +70,9 @@ Wang Lin se redressa et contempla les sourires radieux de ses parents. Un sentim
 
 « Tie Zhu, quand repartiras-tu cette fois? » La mère de Wang Lin regarda son fils avec tendresse. Wang Lin était sa fierté.
 
-« Tu l'appelles encore Tie Zhu? Wang Lin est désormais le Grand Érudit de Zhao! Sais-tu ce que cela représente? Même l'Empereur doit lui témoigner du respect! Ne vois-tu pas comment le Seigneur de la province vient nous voir chaque année? » Le père de Wang Lin réprimanda sa femme du regard.
+« Tu l'appelles encore Tie Zhu? Wang Lin est désormais le Grand Érudit de Zhao! Sais-tu ce que cela représente? Même l'Empereur doit lui témoigner du respect! Ne vois-tu pas que le magistrat du district vient toujours nous voir ces dernières années? » Le père de Wang Lin réprimanda sa femme du regard.
 
-« Je ne partirai pas cette fois-ci. Tie Zhu restera pour s'occuper de vous deux. » Wang Lin regarda sa mère. Il vit ses cheveux blancs et les rides qui marquaient son visage.
+« Je ne partirai pas cette fois-ci. Tie Zhu restera pour s'occuper de vous deux jusqu'à la fin de vos jours. » Wang Lin regarda sa mère. Il vit ses cheveux blancs et les rides qui marquaient son visage.
 
 Le retour de Wang Lin provoqua une agitation sans précédent dans tout le village pendant quelques jours. Les voisins se précipitèrent, désireux d'apercevoir ce Grand Érudit de Zhao qui faisait leur fierté. Même les érudits et les fonctionnaires des villes voisines accoururent dès qu'ils apprirent la nouvelle, accompagnés des membres de la famille Wang.
 
@@ -92,7 +92,7 @@ Ainsi, Wang Lin regarda lentement le soleil se lever et se coucher dans sa ville
 
 Cinq ans plus tard, à l'automne de la 33e année depuis son départ, les feuilles mortes étaient emportées par le vent, bruissant sur le sol en cherchant leurs racines. Le père de Wang Lin était allongé sur son lit, serrant les mains de son fils. Ses yeux exprimaient de la réticence, mais ce qui frappait davantage, c'était un mélange de soulagement et de fierté.
 
-« Tie Zhu, la vie de ton père sera inoubliable grâce à toi... Ton père ne sait pas lire, mais j'ai trouvé des gens pour rassembler tes livres et me les lire tous. Tu disais que le cycle de la réincarnation est comme les quatre saisons. Ton père s'en souvient... » Le vieil homme sourit, mais sous ce sourire, sous cette fierté, Wang Lin percevait une profonde terreur.
+« Tie Zhu, la vie de ton père sera inoubliable grâce à toi... Ton père ne sait pas lire, mais j'ai trouvé des gens pour rassembler tes livres et me les lire tous. Tu disais que le cycle du Ciel et de la Terre, la naissance, la vieillesse, la maladie et la mort, sont comme les quatre saisons. Ton père s'en souvient... » Le vieil homme sourit, mais sous ce sourire, sous cette fierté, Wang Lin percevait une profonde terreur.
 
 Il avait peur de la mort, peur de ne plus voir ses proches, et craignait la solitude ainsi que l'inconnu qui accompagnent le trépas. Il s'agrippait à la main de Wang Lin comme à sa dernière racine, à la seule personne sur laquelle il pouvait encore compter. La lumière dans ses yeux faiblissait, empreinte d'impuissance.
 
@@ -100,7 +100,7 @@ Il avait peur de la mort, peur de ne plus voir ses proches, et craignait la soli
 
 « Père, tu m'as. N'aie pas peur, je suis là. Père, te souviens-tu du cadeau d'anniversaire que tu m'as fait? Ce petit cheval en bois... je l'ai retrouvé l'autre jour... Père... »
 
-Dans la cour, le grand arbre centenaire du village dégageait un sentiment de vieillesse antique. La plupart de ses feuilles avaient été emportées par le vent; il n'en restait qu'une seule, suspendue au bout d'une branche. Le vent la secoua, et elle sembla perdre ses dernières forces. Finalement, la feuille se détacha et tomba à l'intérieur de la demeure des Wang.
+Hors de la cour, le grand arbre centenaire du village dégageait un sentiment de vieillesse antique. La plupart de ses feuilles avaient été emportées par le vent; il n'en restait qu'une seule, suspendue au bout d'une branche. Le vent la secoua, et elle sembla perdre ses dernières forces. Finalement, la feuille se détacha et tomba sur le toit de la demeure des Wang.
 
 Le père de Wang Lin n'avait plus peur. Il ferma lentement les yeux. Son souffle s'arrêta et il rendit l'âme dans les bras de son fils.
 

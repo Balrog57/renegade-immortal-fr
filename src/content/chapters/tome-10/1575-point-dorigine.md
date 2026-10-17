@@ -20,7 +20,7 @@ Les yeux de Wang Lin étaient empreints de réflexion, mais après un long momen
 
 S'il n'avait pas quitté la planète Suzaku, il ne serait jamais allé dans les Terres des Esprits Démoniaques. Il n'aurait alors jamais utilisé la faille de ce lieu pour entrer dans Luotian. Et s'il n'était pas allé à Luotian, il n'aurait pu pénétrer dans la Bête des Limbes.
 
-S'il n'avait pas connu la Bête des Limbes, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été dévoré par elle lors de leur première bataille à la Mer des Nuages. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu l'ascendance céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
+S'il n'avait pas connu la Bête des Limbes, il n'aurait jamais eu l'idée d'en faire sa bête d'essence vitale. De ce fait, il n'aurait pas été avalé par elle pour se soigner lors de leur première bataille à la Mer des Nuages. Il n'aurait alors jamais rencontré le fou, et encore moins obtenu l'ascendance céleste. Naturellement, il n'aurait pas eu à composer avec cette force de rejet.
 
 Maintenant qu'il était revenu sur la planète Suzaku, il se retrouvait là où il avait fait ses premiers pas. Il était revenu au point d'origine.
 
@@ -30,7 +30,7 @@ Il était le seul au monde capable de briser ce sceau. Cette pensée laissait Wa
 
 Après un long moment, il secoua doucement la tête pour chasser ces pensées absurdes. Ses yeux brillèrent et il leva lentement sa main droite. Il n'utilisa ni énergie céleste ni énergie ancienne. Au lieu de cela, il contrôla la force de rejet pour qu'elle jaillisse de son index!
 
-L'instant d'après, Wang Lin ressentit une douleur fulgurante dans son corps. C'était comme un sabre souple qui s'insinuait tel une épine tordue; il traversa son bras droit, déchiquetant sa chair et son sang. Même ses os tremblèrent alors que la force de rejet se concentrait dans son index.
+L'instant d'après, Wang Lin ressentit une douleur fulgurante dans son corps. C'était comme une épée souple qui s'insinuait tel une épine tordue; il traversa son bras droit, déchiquetant sa chair et son sang. Même ses os tremblèrent alors que la force de rejet se concentrait dans son index.
 
 L'index de Wang Lin tremblait et une sueur abondante perla sur son front. Il lui fallut un moment pour reprendre son souffle, puis il utilisa sa grande force d'âme pour empêcher son doigt de vaciller sous l'intensité de la douleur.
 
@@ -48,7 +48,7 @@ Le sang coula du coin de sa bouche. Ses organes internes semblaient se tordre, s
 
 La déchirure entre son corps céleste et sa chair physique était comparable à l'arrachement de l'âme d'un être vivant. C'était une douleur indescriptible, que nul ne pouvait comprendre sans l'avoir vécue.
 
-Le temps passa lentement; en un éclair, sept minutes s'écoulèrent. La pièce n'était plus habitée que par le souffle rauque de Wang Lin.
+Le temps passa lentement; en un éclair, sept minutes s'écoulèrent. La pièce n'était plus habitée que par le souffle rauque de Wang Lin. Son index avait déjà tracé la majeure partie du tatouage; il n'en restait qu'un petit fragment.
 
 Ses yeux devinrent injectés de sang et les veines de sa main droite se gonflèrent de manière spectaculaire, offrant un spectacle terrifiant. Non seulement sa main, mais les veines de son visage étaient également saillantes, ondulant comme si la force de rejet menaçait d'éclater hors de son corps.
 
@@ -58,13 +58,13 @@ Wang Lin serra les dents et fixa son doigt. Il poursuivit son tracé avec une le
 
 C'était même bien plus éprouvant que cela!
 
-Ce tatouage ne pouvait être ouvert que par cette méthode. Si l'on n'utilisait que l'énergie céleste, on échouerait. Si l'on n'utilisait que l'énergie ancienne, on échouerait également. Et si l'on possédait l'une ou l'autre, on pourrait détruire et raffiner tout le lieu sans pour autant entamer le tatouage!
+Ce tatouage ne pouvait être ouvert que par cette méthode. Si l'on n'utilisait que l'énergie céleste, on échouerait. Si l'on n'utilisait que l'énergie ancienne, on échouerait également. Et si l'on ne possédait ni l'une ni l'autre, on aurait beau détruire et raffiner toute la planète Suzaku, on ne pourrait entamer le tatouage!
 
 Le temps s'étira. Wang Lin mit près de quinze minutes pour achever ce dernier fragment. Lorsqu'il eut terminé et que son doigt engourdi revint à sa position initiale, une puissante force de rejet jaillit du tatouage pour pénétrer dans sa main droite.
 
 Dans un fracas assourdissant, Wang Lin fut projeté en arrière. Une lumière émana de son corps et le Bouclier Lumière et Ombre s'activa, mais il ne tint que quelques respirations avant de se briser.
 
-Wang Lin cracha une gorgée de sang. À l'instant même où le bouclier s'effondra, le Fourneau Impérial apparut. Dans un bang, le Fourneau fut déformé par l'impact et repoussé vers l'étoile de Wang Lin.
+Wang Lin cracha une gorgée de sang. À l'instant même où le bouclier s'effondra, le Fourneau Impérial apparut. Dans un bang, le Fourneau fut déformé par l'impact et repoussé vers le point d'étoile entre les sourcils de Wang Lin.
 
 Grâce au Bouclier Lumière et Ombre et au Fourneau Impérial, la puissance du tatouage avait été considérablement affaiblie. Elle frappa son corps, faisant à nouveau couler le sang de sa bouche. Il fut projeté sur plusieurs centaines de pieds contre le mur. Des craquements retentirent alors que la paroi derrière lui commençait à se fissurer.
 

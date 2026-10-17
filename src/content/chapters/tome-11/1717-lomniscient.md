@@ -16,7 +16,7 @@ Après tout, dans le cœur de Wang Lin, le mystère qui entourait l'Omniscient �
 
 Le temps s'écoulait lentement. Wang Lin restait assis devant sa demeure, parfaitement immobile. Son esprit était totalement intégré à celui de l'Omniscient, lui donnant l'illusion d'être devenu le vieil homme lui-même.
 
-Ce n'était pas la première fois qu'il éprouvait ce sentiment. En réalité, il l'avait déjà vécu lorsqu'il faisait face aux dangers émanant de l'Omniscient. À mesure que l'intégration progressait, Wang Lin se calmait peu à peu; bien que ses yeux fussent clos, le Royaume Céleste se déployait dans son esprit. Tout ce qui existait dans les cieux était à sa portée; rien ne pouvait échapper à sa divination.
+Ce n'était pas la première fois qu'il éprouvait ce sentiment. En réalité, il l'avait déjà vécu lors de la crise de Shui Daozi. À mesure que l'intégration progressait, Wang Lin se calmait peu à peu; bien que ses yeux fussent clos, le Royaume Céleste se déployait dans son esprit. Tout ce qui existait dans les cieux était à sa portée; rien ne pouvait échapper à sa divination.
 
 Une telle sensation tendait l'esprit vers une expansion infinie.
 
@@ -32,25 +32,25 @@ Ses cheveux blancs ondulaient d'une manière singulière, lui conférant l'allur
 
 Ses yeux s'ouvrirent lentement, brillant d'un éclat intense. Le sourire au coin de sa bouche s'élargit encore, et son regard sembla percer le météore, les étoiles et le Royaume Céleste tout entier pour fixer la silhouette assise là-bas.
 
-« Tu es digne d'être le disciple de ce vieil homme... Tu ne peux échapper à mes mains... Plus ton niveau de culture sera élevé, plus tu aideras ce vieux renard. Plus je récolterai de bénéfices... »
+« Tu es digne d'être le disciple de ce vieil homme... Tu ne peux échapper à mes mains... Plus ton niveau de culture sera élevé, plus tu aideras ce vieil homme. Plus j'en retirerai de bénéfices... »
 
 « Oh? Sept essences... Bien, bien, bien! » L'Omniscient sourit et serra le poing droit. L'aura de l'essence karmique se propagea depuis son poing.
 
 C'était l'essence karmique, la véritable essence karmique!
 
-« La main gauche contrôle la vie et la main droite contrôle la mort... Ce vieux homme le sait aussi... » L'Omniscient posa sa main gauche sur son genou. Outre l'essence karmique, une seconde essence apparut dans ses mains: celle de la Vie et de la Mort!
+« La main gauche contrôle la vie et la main droite contrôle la mort... Ce vieil homme le sait aussi... » L'Omniscient posa sa main gauche sur son genou. Outre l'essence karmique, une seconde essence apparut dans ses mains: celle de la Vie et de la Mort!
 
 « Les yeux clos sont le faux, les yeux ouverts sont le vrai... » Tandis que l'Omniscient fermait et ouvrait les yeux, l'essence du Vrai et du Faux se manifesta.
 
 Plus stupéfiant encore, une flamme faisait rage dans l'œil gauche de l'Omniscient, tandis qu'un éclair jaillissait de son œil droit.
 
-« Je connais cela... Ce vieux homme possède aussi l'essence de la boucherie... » Entre les sourcils de l'Omniscient, un vortex diffus apparut. Un autre Omniscient se tenait là, à l'intérieur, vêtu d'une robe grise!
+« Je connais cela... Ce vieil homme possède aussi l'essence de la boucherie... » Entre les sourcils de l'Omniscient, un vortex diffus apparut. Un autre Omniscient se tenait là, à l'intérieur, vêtu d'une robe grise!
 
-« Très bien... Ce vieux homme a tout accepté, et maintenant, cette septième essence... » Les yeux de l'Omniscient s'illuminèrent et ses pupilles se couvrirent de lignes sanguines. En un laps de temps infime, ces lignes recouvrirent presque entièrement ses yeux, et des restrictions commencèrent à apparaître.
+« Très bien... Ce vieil homme a tout accepté, et maintenant, cette septième essence... » Les yeux de l'Omniscient s'illuminèrent et ses pupilles se couvrirent de lignes sanguines. En un laps de temps infime, ces lignes recouvrirent presque entièrement ses yeux, et des restrictions commencèrent à apparaître.
 
-Toutefois, il faudrait un certain temps pour que les restrictions contenues dans ses yeux fusionnent totalement avec les lignes sanguines. Il ne tarderait pas que l'Omniscient maîtrise l'essence complète de cette restriction.
+Toutefois, il faudrait un certain temps pour que les restrictions contenues dans ses yeux fusionnent totalement avec les lignes sanguines. Il ne faudrait pas longtemps pour que l'Omniscient maîtrise l'essence complète de cette restriction.
 
-« Les lignes sanguines dans les yeux deviennent les lois du monde et font de vous le monde lui-même... Disciple, tu surprends vraiment ton Maître. Personne n'avait jamais conçu une telle méthode auparavant... Très bien, tu es bel et bien digne d'être cet enfant défiant le ciel que j'ai passé d'innombrables années à diviner! »
+« Les lignes sanguines des yeux deviennent les règles du ciel et de la terre, et sa propre volonté devient la loi du ciel et de la terre... Disciple, tu surprends vraiment ton Maître. Personne n'avait jamais conçu une telle méthode auparavant... Très bien, tu es bel et bien digne d'être cet enfant défiant le ciel que j'ai passé d'innombrables années à diviner! »
 
 « Mon plan sera accompli grâce à toi, il sera enfin accompli! » L'Omniscient se lécha les lèvres, un regard d'excitation brillant dans ses yeux. Une telle expression était extrêmement rare chez lui!
 
@@ -100,7 +100,7 @@ La porte s'ouvrit silencieusement. Qing Lin apparut, vêtu d'une chemise bleue, 
 
 Bien que Qing Lin ait mentionné vouloir faire de Wang Lin son disciple, ce sujet n'avait plus jamais été abordé avec le temps. Le niveau de culture et le statut actuel de Wang Lin avaient naturellement poussé Qing Lin à changer sa façon de s'adresser à lui, témoignant ainsi du respect dû à un égal.
 
-« J'ai entendu dire que vous étiez réputé pour votre divination, Senior Qing Lin. Je sollicite votre aide pour une divination! » Wang Lin joignit les mains avec une expression solennelle.
+« J'ai entendu dire que vous étiez réputé pour votre divination, Senior Qing Lin. Je vous prie de veiller sur moi et de m'aider à effectuer une divination! » Wang Lin joignit les mains avec une expression solennelle.
 
 Voyant le sérieux de son interlocuteur, Qing Lin cessa immédiatement de sourire. Il répondit d'un ton grave: « Très bien, je ferai de mon mieux! Dites-moi ce qu'il en est. »
 

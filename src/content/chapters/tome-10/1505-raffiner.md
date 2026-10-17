@@ -10,9 +10,9 @@ Tout cela se produisit en un éclair. Dès que les Êtres Éclairés apparurent 
 
 Les caractères rouge sang étaient imprégnés d'une intention démente. Sous cette influence, les Êtres Éclairés semblèrent perdre la raison, leurs chants se muant en cris stridents. Comme s'ils étaient sous contrôle, ils pivotèrent rapidement pour former un vortex.
 
-Ce vortex dégageait une force destructrice qui se propageait dans toutes les directions. Wang Lin fut repoussé de trois pas. Juste au moment où il allait s'élancer, le parchemin taoïste de la tablette s'envola et fonça sur lui!
+Ce vortex dégageait une force destructrice qui se propageait dans toutes les directions. Wang Lin fut repoussé de trois pas. Juste au moment où il allait s'élancer, les écritures du Dao de la tablette s'envolèrent et foncèrent sur lui sous forme de runes!
 
-Le parchemin se rapprocha instantanément de Wang Lin. Ayant déjà exploré le Royaume aux Sept Couleurs, il savait à quel point cela était terrifiant. À mesure que l'écrit approchait, il commença à percevoir une voix ténue murmurant le contenu du parchemin taoïste!
+Les écritures se rapprochèrent instantanément de Wang Lin. Ayant déjà visité un Royaume aux Sept Couleurs, il savait à quel point elles étaient terrifiantes. À mesure que les inscriptions approchaient, il commença à percevoir une voix ténue murmurant le contenu des écritures du Dao!
 
 « Éclairé, prisonnier du Dao Céleste... » Tandis que le vortex tournait, l'intention démente se répandait avec fureur. À cet instant, parmi les quatre étoiles restantes de l'Âme de la Bête des Limbes, deux autres s'éteignirent.
 
@@ -22,17 +22,17 @@ Elle avait peur!
 
 La puissance du Royaume aux Sept Couleurs avait altéré sa personnalité, mais il était difficile d'oublier sa nature initialement timorée. De plus, le sceau sur son âme ne s'était pas dissipé, ce qui lui infligeait une peur indicible.
 
-Alors que le parchemin taoïste repoussait Wang Lin, la gigantesque Bête des Limbes utilisa son autre sort!
+Alors que les écritures du Dao repoussaient Wang Lin, la gigantesque Bête des Limbes utilisa son autre sort!
 
 Mode Éthéré!
 
-Le corps de la Bête des Limbes devint flou et, en l'espace de quelques milliers de pieds, elle disparut complètement! Les Êtres Éclairés, le vortex et le parchemin taoïste qui fonçait sur Wang Lin disparurent avec elle!
+Le corps de la Bête des Limbes devint flou et, en reculant d'à peine mille pieds, elle disparut complètement! Les Êtres Éclairés, le vortex et les runes des écritures du Dao qui fonçaient sur Wang Lin disparurent avec elle!
 
 Tout s'était volatilisé avec la Bête des Limbes!
 
 Les yeux de Wang Lin devinrent rouge sang et il poussa un rugissement de rage. Ling Dong, Zhou Jin, le Serpent aux yeux de lune et les Feuilles Anciennes se trouvaient tous à l'intérieur de la Bête des Limbes. Si elle s'échappait, le prix à payer serait trop lourd!
 
-La chasse à la Bête des Limbes avait pris un tournant imprévu suite à sa dévoration du Royaume aux Sept Couleurs. Bien que Wang Lin l'eût anticipé, il n'aurait jamais pu imaginer qu'un événement aussi absurde se produirait!
+La chasse à la Bête des Limbes avait pris un tournant imprévu suite à sa dévoration du Royaume aux Sept Couleurs. Bien que Wang Lin eût anticipé bien des choses, il n'aurait jamais pu imaginer qu'un événement aussi absurde se produirait!
 
 Un Royaume aux Sept Couleurs était apparu dans cette région brumeuse et avait été dévoré par la Bête des Limbes!
 
@@ -40,7 +40,7 @@ Un Royaume aux Sept Couleurs était apparu dans cette région brumeuse et avait 
 
 Instantanément, le tatouage de tonnerre jaillit de son œil droit pour recouvrir la zone environnante! Les neuf éclairs qui l'accompagnaient tournoyaient rapidement autour de lui.
 
-Le monde gronda et un tonnerre infini surgit de nulle part, formant un enfer de foudre!
+Le monde gronda et un tonnerre infini surgit de nulle part, formant un domaine de tonnerre!
 
 « Plus grand, plus grand, encore plus grand! » rugit Wang Lin avec une colère monstrueuse. L'essence du tonnerre jaillit de son corps et s'étendit avec rapidité!
 
@@ -70,7 +70,7 @@ Wang Lin percevait clairement que ses sceaux sur son corps et son âme se dissip
 
 Le tonnerre gronda et une flamme aux neuf couleurs jaillit de son œil gauche. Au même instant, un fantôme d'Oiseau Vermillon apparut derrière lui et poussa un cri perçant!
 
-L'apparition de l'Oiseau Vermillon signifiait que Wang Lin avait activé toute la chaleur contenue dans son corps. L'Oiseau Vermillon s'élança vers les 800 millions de pieds d'espace en contrebas.
+L'apparition de l'Oiseau Vermillon signifiait que Wang Lin avait déployé toute l'essence du feu contenue dans son corps. Après avoir fusionné avec la tempête de flammes aux neuf couleurs, l'Oiseau Vermillon s'élança vers les 800 millions de pieds d'espace en contrebas.
 
 En un éclair, le monde devint une mer de feu! Le tonnerre habitait le feu et le feu habitait le tonnerre. L'aura du Fourneau de l'Empereur commença à raffiner ces 800 millions de pieds de domaine stellaire!
 
@@ -92,7 +92,7 @@ Ce n'était pas un espace plat; il s'étendait des cieux les plus hauts jusqu'au
 
 La partie disparue révélait la Formation de Scellement du Royaume! Quant à la zone raffinée, elle devint un gouffre qui subsisterait une éternité dans Luotian!
 
-Tout en réfléchissant, Wang Lin agita sa main droite et des centaines de milliers de restrictions apparurent. Sa main gauche s'activait également, créant d'innombrables images rémanentes. Utilisant sa vitesse maximale, il multiplia les restrictions à l'infini!
+En silence, Wang Lin agita sa main droite et des centaines de milliers de restrictions apparurent. Sa main gauche s'activait également, créant d'innombrables images rémanentes. Utilisant sa vitesse maximale, il multiplia les restrictions à l'infini!
 
 Un puissant parapluie antique, capable de consumer le monde, surgit au-dessus de l'espace en cours de raffinage. Un sentiment de majesté infinie se propagea!
 
@@ -118,4 +118,4 @@ C’est à cet instant qu’un rugissement anxieux retentit. Le corps de la Bêt
 
 Dès son apparition, Wang Lin s'élança. Avant que la Bête des Limbes ne puisse ouvrir la gueule, sa main s'abattit lourdement sur le dernier fragment de sceau subsistant sur la tête de la créature.
 
-Des gémissements étouffés s'échappèrent de la gueule de la Bête des Limbes, qui resta close.
+Un rugissement étouffé retentit dans la gueule de la Bête des Limbes, qui resta close.

@@ -32,11 +32,11 @@ Lorsque la tempête temporelle arriva, le bouclier se forma et entra en collisio
 
 La grande silhouette lumineuse entourant Wang Lin vacilla violemment. Lors de l'impact, le flux temporel subissant Wang Lin fut multiplié par plusieurs!
 
-Si cela avait été n'importe qui d'autre, il aurait été extrêmement difficile de résister à un sort basé sur le temps. Cependant, Wang Lin avait également compris son propre sort temporel: c'était la deuxième technique qu'il créait dans sa vie, le Temps Fluide!
+Si cela avait été n'importe qui d'autre, il aurait été extrêmement difficile de résister à un sort basé sur le temps. Cependant, Wang Lin maîtrisait lui aussi la Restriction Temporelle et avait également compris son propre sort temporel: c'était la deuxième technique qu'il créait dans sa vie, le Temps Fluide!
 
 Au moment où le vortex temporel le percuta, Wang Lin agita la main droite. Le monde gronda et une immense porte de pierre apparut. Cette porte dégageait une aura désolée qui fusionna avec Wang Lin.
 
-De loin, Wang Lin semblait se tenir sur cette porte de pierre, enveloppé par le pouvoir du temps. Peu importe l'agitation du monde autour de lui, il demeurait immobile! Seuls ses cheveux flottaient au vent, lui conférant un aspect éthéré.
+De loin, Wang Lin semblait se tenir sur cette porte de pierre, enveloppé par le pouvoir du temps. Peu importe l'agitation du monde autour de lui, il demeurait immobile! Seuls ses cheveux et ses vêtements s'agitaient d'eux-mêmes, sans vent, lui conférant un aspect éthéré.
 
 Par ailleurs, à cet instant précis, le Bouclier d'Ombre et de Lumière brilla intensément et une force de réflexion commença à s'accumuler. L'expression de Maître Simo changea; sans aucune hésitation, il fit un pas en avant et abattit sa main!
 

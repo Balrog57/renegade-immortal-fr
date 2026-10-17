@@ -58,7 +58,7 @@ Des grondements tonitruants éclatèrent et les nuages s'étendant sur un millio
 
 Tandis qu'ils tournaient, d'innombrables silhouettes vagues apparurent au sein des nuées. Ces formes ressemblaient à des âmes et poussaient des cris de détresse. En un clin d'œil, ces spectres fantomatiques envahirent l'espace autour de Wang Lin. Rapidement, ils se précisèrent pour devenir des visages familiers.
 
-Il y avait ses parents, son quatrième oncle, Wang Zhou, Zhang Hu, Liu Mei et Li Muwan. Il y avait aussi Teng Li, Teng Yuan, ainsi que ceux qu'il considérait comme des ennemis, des amis ou des proches. Ils chargèrent Wang Lin de toutes parts.
+Il y avait ses parents, son quatrième oncle, Wang Zhuo, Zhang Hu, Liu Mei et Li Muwan. Il y avait aussi Teng Li, Teng Huayuan, ainsi que ceux qu'il considérait comme des ennemis, des amis ou des proches. Ils chargèrent Wang Lin de toutes parts.
 
 Alors qu'ils convergeaient, les nuages se remplirent de rugissements et d'appels empreints de douceur qui s'engouffrèrent dans l'esprit de Wang Lin.
 
@@ -90,7 +90,7 @@ Parmi elles, Qing Shui, ayant retrouvé ses souvenirs après son éveil, rugissa
 Parmi elles, Tuo Sen, maudissant les cieux avec arrogance...
 Et bien d'autres encore...
 
-On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan du Tonnerre Dispersé. Les cultivateurs tombés et Maître Esprit Dispersé lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
+On y trouvait aussi les innombrables âmes des 7 Millions de Mondes issues du Clan du Tonnerre Dispersé. Les cultivateurs tombés et le Daoïste Esprit Dispersé lui-même, poussant un rugissement de folie pure face à ce qu'il croyait être le ciel.
 
 Ces silhouettes surgies du Dao du Vrai et du Faux formaient une forme unique de rétribution divine. La rétribution des cieux ayant utilisé l'illusion contre Wang Lin, celui-ci lui répondit par la même arme, utilisant son propre Dao pour ériger cette réponse divine.
 

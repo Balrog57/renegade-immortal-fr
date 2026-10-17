@@ -16,15 +16,15 @@ Si Wang Lin n'avait pas été là, la Bête des Limbes se serait enfuie sans hé
 
 Le fou poussa un autre cri misérable et battit en retraite précipitamment. Pourtant, plus il reculait, plus la Bête des Limbes devenait sauvage. Elle était sur le point de l'encercler.
 
-Ses deux grandes moustaches s'agitaient violemment dans l'air, produisant des claquements secs. La Bête des Limbes était en proie à une grande excitation. Elle avait toujours été effrayée par le fou, alors que celui-ci n'avait jamais semblé craindre quoi que ce soit auparavant. Ce jeu rendait même son âme joyeuse.
+Ses deux grandes moustaches s'agitaient violemment dans l'air, produisant des claquements secs. La Bête des Limbes était en proie à une grande excitation. Toute sa vie, elle avait été mise en fuite par les autres et n'avait presque jamais goûté au plaisir d'effrayer quelqu'un. Ce jeu rendait même son âme joyeuse.
 
 Son rugissement s’intensifia tandis qu’elle se rapprochait. En raison de la proximité, l'une de ses moustaches balayant l'air frappa le fou. Ce dernier poussa un cri et recula plus vite encore.
 
 De même, parce que sa moustache l'avait touché, la Bête des Limbes trembla également. Elle recula légèrement pour maintenir une certaine distance avant de pousser de nouveaux rugissements féroces pour terroriser le fou.
 
-« Petite Rouge, vite, viens me sauver! Va te laisser manger pour qu'elle ne mange pas ce roi! Ce roi n'est pas bon à manger, AH! » Le fou tremblait, totalement terrifié.
+« Petit Rouge, vite, viens me sauver! Va te laisser manger pour qu'elle ne mange pas ce roi! Ce roi n'est pas bon à manger, AH! » Le fou tremblait, totalement terrifié.
 
-« Escorte! Escorte! Quel guerrier viendra m'escorter? » hurla le fou en reculant frénétiquement. Il tomba au sol et commença à ramper en arrière, l'air pitoyable. Cela témoignait de l'effroi que lui inspirait la Bête des Limbes.
+« Protégez le roi! Protégez le roi! Quel guerrier viendra protéger le roi? » hurla le fou en reculant frénétiquement. Il tomba au sol et commença à ramper en arrière, l'air pitoyable. Cela témoignait de l'effroi que lui inspirait la Bête des Limbes.
 
 Juste au moment où il sombrait dans le désespoir, Wang Lin fit un pas en avant et se dressa devant lui. À cet instant, le fou eut l’impression que Wang Lin était d'une puissance infinie!
 
@@ -32,7 +32,7 @@ Juste au moment où il sombrait dans le désespoir, Wang Lin fit un pas en avant
 
 Aux yeux du fou, Wang Lin était devenu l'unique pilier sur lequel il pouvait compter.
 
-« Ce roi vous récompensera! Ce roi vous donnera Petite Rouge, ce roi vous donnera Petite Argent, ce roi vous donnera cette petite fille aux sept couleurs. Le palais arrière de ce roi compte quarante mille beautés, je vous les donnerai toutes! »
+« Ce roi vous récompensera! Ce roi vous donnera Petit Rouge, ce roi vous donnera Petit Argent, ce roi vous donnera cette petite fille aux sept couleurs. Le palais arrière de ce roi compte quarante mille beautés, je vous les donnerai toutes! »
 
 Wang Lin ne répondit pas et leva la main droite. Il envoya un message spirituel qui fit sursauter la Bête des Limbes. Avec son intelligence limitée, elle ne comprit pas l'intention de Wang Lin et se mit à réfléchir d'un air hébété.
 
@@ -52,7 +52,7 @@ Le regard désolé de Wang Lin s'intensifia, mais il le dissimula habilement.
 
 « Cette bête est extrêmement puissante; même moi, je ne suis pas son égal. Elle aime manger les gens, surtout les vivants. Elle mâche lentement sa proie avant de la digérer. Si votre corps est fragile, ce n'est pas une mauvaise chose, car vous mourrez instantanément... »
 
-« Le plus terrifiant, ce sont ceux qui possèdent un corps indestructible; ils souffriront d'être mâchés et digérés pendant des milliers d'années jusqu'à la mort! » Wang Lin reculait rapidement en tenant le fou. Cependant, il ne s'éloignait jamais trop de la Bête des Limbes, maintenant une distance calculée. Elle était assez proche pour que ses moustaches frôlent presque l'homme.
+« Le plus terrifiant, ce sont ceux qui possèdent un corps indestructible; ils souffriront d'être mâchés et digérés pendant des milliers d'années jusqu'à la mort! » Wang Lin reculait rapidement en tenant le fou. Cependant, il ne parvenait pas à distancer la Bête des Limbes et ne gardait qu'une faible distance, si courte que les moustaches de la bête semblaient fouetter l'air juste devant eux.
 
 Cette proximité exerçait une pression immense sur le fou et lui infligeait une peur sans fin.
 
@@ -76,7 +76,7 @@ Sans hésiter, il récita le chant de l'Ombrelle Brûlante du Royaume et lui tra
 
 L'expression de Wang Lin resta imperturbable, mais son rythme cardiaque s'accéléra. Il mémorisa chaque détail sans rien omettre, confirmant les formules dans son esprit.
 
-Plus il vérifiait, plus il devenait sérieux. Ce chant était d'une précision extrême. C'était un sort du Grand Dao que même le maître du second Oiseau Vermillon ne pouvait enseigner et qu'il avait dû apprendre en secret.
+Plus il vérifiait, plus il devenait sérieux. Ce chant était d'une précision extrême. C'était un sort du Grand Dao que même le Maître de l'Oiseau Vermillon n'avait pu qu'apprendre en secret, sans jamais le maîtriser pleinement.
 
 Toutefois, ce sort du Dao n'était pas une chose que l'on apprenait instantanément; il exigerait de nombreuses années de culture en porte close et une profonde compréhension.
 

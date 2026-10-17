@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1478 - Returning Home!"
 slug: retour-au-foyer
 ---
-L'héritage de la mémoire de Tu Si l'avait accompagné pendant plus de 1 000 ans, mais désormais, il était inutile. Tu Si n'était qu'un Dieu Ancien au sommet de la 8ème étoile.
+L'héritage de la mémoire de Tu Si l'avait accompagné pendant plus de 1 000 ans, mais désormais, il était inutile. Tu Si n'était qu'un Dieu Antique au sommet de la 8ème étoile.
 
 La lumière formée par l'héritage de la mémoire apparut dans sa main. Il la contempla un instant avant de la projeter vers Tuo Sen.
 
@@ -42,7 +42,7 @@ Dans la partie nord du palais, il vit une ondulation dans l'espace. Celle-ci s'�
 
 Ce qui se trouvait derrière le filet ne pouvait voir l'intérieur du palais, mais Wang Lin distinguait clairement une immense silhouette noire derrière la toile illusoire!
 
-Cette ombre noire était de forme ovale et d'une taille colossale. D'innombrables tentacules ondulaient tandis que des quantités massives d'aura de Dieu Ancien jaillissaient de sa gueule pour attaquer le filet!
+Cette ombre noire était de forme ovale et d'une taille colossale. D'innombrables tentacules ondulaient tandis que des quantités massives d'aura de Dieu Antique jaillissaient de sa gueule pour attaquer le filet!
 
 C'était le Serpent Regardant la Lune!!
 
@@ -78,9 +78,9 @@ On pouvait dire que ces personnes étaient l'essence même des différents clans
 
 À cet instant, au sein de la neuvième carte, parmi les fluctuations infinies, Wang Lin émergea. Il se trouvait dans une zone distincte du palais, évitant ainsi la femme séduisante.
 
-Wang Lin n'accordait aucun intérêt aux cultivateurs présents dans la tombe. Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux, la Grande Désolation et les autres étaient des cultivateurs capables de faire trembler les cieux. Bien qu'ils aient été blessés par le rugissement, leur longévité de dizaines de milliers d'années leur avait permis de perfectionner leurs propres méthodes de survie.
+Wang Lin n'accordait aucun intérêt aux cultivateurs présents dans la tombe. Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux, la Grande Désolation et les autres avaient tous un niveau de culture insondable. Bien qu'ils aient été blessés par le rugissement, ils avaient survécu des dizaines de milliers d'années et possédaient assurément diverses techniques divines.
 
-Wang Lin n'avait pas l'idée folle de tous les massacrer comme il l'avait fait face au Souverain. Ce serait irréaliste et contraire à son plan actuel.
+Wang Lin n'avait pas l'idée folle de tous les massacrer comme lorsqu'il avait affronté le Souverain. Ce serait irréaliste et contraire à son plan actuel.
 
 La tombe antique était désormais scellée par Wang Lin. Ces personnes seraient piégées ici, incapables de repartir pendant longtemps. Cela suffisait amplement!
 
@@ -96,7 +96,7 @@ Une pression écrasante émana du pavillon, enveloppant toute la zone.
 
 Dès l'apparition du pavillon, tous les cultivateurs de la tombe le remarquèrent, en particulier Miao Yin, Neuf Cieux et la Grande Désolation.
 
-Wang Lin n'hésita pas. Dès que le Palais Terrestre fut invoqué, il le rangea dans son espace de stockage. Puis, il fit un pas en arrière.
+Wang Lin n'hésita pas. Dès que le Palais Terrestre fut invoqué, il le rangea dans son espace de stockage. Puis, il se retourna et fit un pas.
 
 Il disparut soudainement.
 
@@ -106,20 +106,20 @@ Tout était identique à son départ; le vortex flottant au-dessus du sol tourno
 
 Wang Lin s'approcha du vortex, plongé dans une réflexion silencieuse. Grâce à sa connexion avec la tombe antique, il savait que les survivants s'étaient tous précipités vers lui dès qu'il avait invoqué le Palais Terrestre. Certains des plus puissants l'avaient déjà repéré.
 
-Le regard de Wang Lin s'illumina et sa main droite traça un sceau. Il l'agita vers le ciel et le sceau disparut sans laisser de trace. À cet instant, la brume sous les neuf premières cartes rugit et des cris perçants retentirent, comme si d'innombrables âmes se cachaient en dessous!
+Le regard de Wang Lin s'illumina et sa main droite traça un sceau. Il l'agita vers le ciel et le sceau disparut sans laisser de trace. À cet instant, la brume sous les neuf cartes de la première couche rugit et des cris perçants retentirent, comme si d'innombrables âmes se cachaient en dessous!
 
 « Je vous laisserai un dernier cadeau avant de partir! » Le sceau de Wang Lin servait à ouvrir la deuxième couche!
 
 Alors qu'il s'apprêtait à entrer dans le vortex, il esquissa un sourire narquois. Au moment même où il disparut, sa main droite s'étendit et l'intégralité du territoire scellé s'évapora sans laisser de trace, emportant le vortex avec lui!
 
-Au moment où le territoire disparut, Miao Yin et ses compagnons arrivèrent sur les lieux. Mais ils étaient trop tard: il n'y avait plus rien devant eux!
+Au moment où le territoire disparut, Miao Yin et ses compagnons arrivèrent sur les lieux. Mais ils arrivaient trop tard: il n'y avait plus rien devant eux!
 
 Simultanément au départ de Wang Lin, Tuo Sen sembla prendre sa décision. Il prit l'héritage de la mémoire et le pressa entre ses sourcils!
 
-Dans le Royaume Intérieur, sous le Royaume Céleste du Tonnerre, à Luotian. À cet instant, une faille spatiale apparut silencieusement là où Cupidité avait disparu précédemment, et une silhouette blanche en sortit.
+Dans le Royaume Intérieur, sous le Royaume Céleste du Tonnerre, à la lisière du Système Stellaire de Luotian. À cet instant, une faille spatiale apparut silencieusement là où Cupidité avait disparu précédemment, et une silhouette blanche en sortit.
 
-Dès son apparition, une aura terrifiante jaillit de son corps, se transformant en une pression qui balaya tout Luotian. Cette puissance était telle qu'elle fit trembler chaque être vivant!
+Dès son apparition, une aura terrifiante jaillit de son corps, se transformant en une pression qui balaya tout le Système Stellaire de Luotian. Cette puissance était telle qu'elle fit trembler chaque être vivant!
 
-Maître Lu Fu fut le premier à ressentir cet impact! Il fut arraché à sa culture!
+Maître Lu Fu fut le premier à ressentir cet impact! Il fut arraché à sa méditation!
 
 « Ce n'est pas le Royaume Extérieur, mais Luotian dans le Royaume Intérieur... Il est temps de rentrer à la maison... » La silhouette blanche songea un instant, puis esquissa un sourire.

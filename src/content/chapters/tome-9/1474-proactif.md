@@ -54,9 +54,9 @@ S'il n'avait pas encore obtenu sa septième étoile, Wang Lin aurait attaqué sa
 
 « Vos étoiles de Dieu Antique se sont brisées à maintes reprises. Bien que vous ayez utilisé une méthode inconnue pour atteindre à nouveau les huit étoiles, elles ne sont pas aussi puissantes qu'auparavant. » Assis sur le trône, Wang Lin dominait la situation d'une aura impérieuse. Sa voix s'insinua lentement dans l'esprit de Tuo Sen.
 
-Tuo Sen réfléchissait en silence tout en régénérant rapidement son corps. Après avoir fui la planète Suzaku, il avait pris possession du corps de Tu Si. Le corps de Tu Si était celui d'un Dieu Antique royal ayant survécu durant des éons!
+Tuo Sen réfléchissait en silence tout en régénérant rapidement son corps. Après avoir fui la planète Suzaku, il avait pris possession du corps de Tu Si. Le corps de Tu Si était celui d'un Dieu Antique royal à huit étoiles ayant survécu durant des éons!
 
-Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une énergie de démon ancien tourbillonnait dans son œil droit. Cependant, l'héritage manquant d'énergie de démon ancien le rendait incomplet; ainsi, l'avatar de démon ancien ne pouvait pas pleinement prendre forme!
+Les sept étoiles entre les sourcils de Wang Lin tournaient rapidement, et une énergie de démon ancien tourbillonnait dans son œil droit, condensant l'étoile de démon ancien. Cependant, l'héritage manquant d'énergie de démon ancien le rendait incomplet; ainsi, l'étoile de démon ancien ne pouvait pas se condenser pleinement!
 
 À moins qu'il ne possède un avatar de démon ancien complet!
 

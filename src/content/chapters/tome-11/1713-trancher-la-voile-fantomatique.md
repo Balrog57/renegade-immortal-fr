@@ -44,23 +44,23 @@ Alors que les trois Wang Lin parlaient, les trois corps firent tous un pas en av
 
 Ses cheveux blancs dansaient alors qu'il ouvrait les yeux, flottant là, immobile. Il sentit la puissante vitalité couler dans son corps. Il y avait trois parties, et chacune était égale à lui-même à pleine puissance.
 
-« Le sortilège des Trois Vies est en effet mystérieux. Avec cela, j'aurai trois vies! » Wang Lin ouvrit les yeux, désormais empreints de détermination.
+« Le sortilège des Trois Vies est en effet mystérieux. Avec cela, j'aurai trois vies! » Wang Lin ouvrit les yeux, désormais empreints de confiance.
 
 Il leva sa main droite et l'âme d'une femme apparut. Cette femme était celle qui s'était cachée à l'intérieur du pavillon sanguin, une personne qu'il connaissait.
 
 « Notre rancune est effacée. Je vais te renvoyer dans le cycle de la réincarnation. Va en paix! » Wang Lin agita sa main droite et l'âme de la femme disparut sans laisser de trace.
 
-Wang Lin regarda les restes des trois autels avec des yeux emplis de pitié.
+Wang Lin regarda les restes des trois autels avec des yeux emplis de regret.
 
 « Mon âme et mon corps sont bien trop puissants. Les autels du Clan de l'Extermination des Sceaux n'ont pu supporter l'impact de ma transformation. Maintenant qu'ils se sont effondrés, il n'y aura plus jamais de sortilèges des Trois Vies... »
 
 Wang Lin secoua la tête. Ce qu'il avait divisé n'était pas seulement sa lignée du Dao Antique, mais aussi son avatar. On pouvait dire que tout avait été divisé en trois et qu'en conséquence, il possédait désormais trois vies.
 
-« Mon corps a obtenu la lignée du Dao Antique et mes corps de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantôme. Avec cela, je pourrais peut-être former ma septième essence!
+« Mon corps a obtenu la lignée du Dao Antique et mes corps de dieu antique, de démon antique et de diable antique ont atteint huit étoiles. Il est temps de partir... Cependant, avant de partir, je dois affiner la Voile Fantôme. Avec cela, je pourrais peut-être former ma septième essence!
 
 « Une fois que l'essence de restriction apparaîtra, mon niveau de culture passera du milieu du stade du Vide Spirituel au stade avancé du Vide Spirituel! Avec ma lignée du Dao Antique, je devrais être capable de combattre des cultivateurs du stade avancé du Vide Arcanique!
 
-« Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Arcanique! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantôme apparut.
+« Il y a aussi l'essence de la bataille. Autrefois, toute ma compréhension s'était transformée en étoile de la loi. J'aurai besoin d'un certain temps pour me réajuster, et si une autre essence pouvait naître, alors j'atteindrais le sommet du Vide Spirituel! » Wang Lin marmonna pour lui-même avant de s'asseoir. Il tendit sa main droite et la Voile Fantôme apparut.
 
 « L'essence de restriction n'est que secondaire. Plus important encore, puisque Fan Shanmeng a pu l'emprunter pour exécuter le sortilège d'illusion, cette voile doit contenir le sortilège du Dao de l'Illusion de la Secte de la Grande Âme...
 
@@ -74,7 +74,7 @@ Les yeux de Wang Lin s'illuminèrent tandis que divers plans complexes se dessin
 
 « Outre lui, il y a aussi le Vieux Fantôme Zhan; il cherche également la troisième âme. J'ignore quelle méthode il utilise... mais on ne peut pas le sous-estimer. Ils ont déclenché la guerre entre les Royaumes Intérieur et Extérieur pour trouver cette troisième âme. Maintenant que la guerre est terminée, ils utilisent peut-être encore ce moyen pour la rechercher...
 
-« À l'origine, ils n'étaient que deux à chercher, mais maintenant que les quatre généraux sont apparus, ils constituent une troisième force de recherche...
+« À l'origine, ils n'étaient que deux à chercher, mais maintenant que les quatre grands généraux du Royaume Céleste Antique et ces êtres célestes sont apparus, ils constituent une troisième force de recherche...
 
 « Il y a aussi cette autre puissance de la Planète des Cinq Éléments. Ils se cachent là depuis d'innombrables années et devraient bientôt se manifester...
 
@@ -108,7 +108,7 @@ Les restrictions apparurent une à une dans son esprit. Il devait d'abord déter
 
 Tandis que son Sens Divin se déployait avec précaution, la voile bougea sans vent entre les mains de Wang Lin. Le visage fantomatique devint plus féroce encore.
 
-Durant ces dix jours, Wang Lin resta immobile, consacrant toute son énergie à l'étude des restrictions. Des millions, des dizaines de millions, des centaines de millions et des milliards de restrictions défilèrent dans son esprit.
+Durant ces dix jours, Wang Lin resta immobile, consacrant toute son énergie à l'étude des restrictions. Un million, dix millions, des dizaines de millions de restrictions défilèrent dans son esprit.
 
 Ce ne fut qu'au dixième jour que Wang Lin leva lentement la tête, les yeux injectés de sang.
 

@@ -8,7 +8,7 @@ slug: sang-celeste-de-la-race-ancienne
 ---
 Les anciens dieux affrontaient les Trois Épreuves et les Sept Calamités, tout comme les anciens démons et les anciens diables. Chaque calamité était semblable à un nouveau commencement, et quiconque survivait voyait sa force considérablement accrue.
 
-Cependant, les Trois Épreuves et les Sept Calamités de Wang Lin étaient bien plus puissantes que celles des autres. Non seulement son ancien dieu avait atteint son apogée, mais ses corps d'ancien démon et d'ancien diable l'avaient également fait.
+Cependant, cette fois, les Trois Épreuves et les Sept Calamités de Wang Lin s'abattaient avec une violence bien plus grande que d'ordinaire: non seulement les calamités de l'ancien dieu approchaient, mais celles de l'ancien démon et de l'ancien diable survenaient elles aussi en un instant.
 
 La première épreuve des clans anciens comporte deux calamités. La deuxième épreuve comporte également deux calamités: la calamité divine et la calamité de l'âme. Wang Lin avait déjà passé les deux premières épreuves, et celle qui approchait était la plus redoutable des trois: la troisième épreuve, composée de trois calamités!
 
@@ -22,9 +22,9 @@ Ses cheveux blancs flottaient derrière lui de manière sinistre et des bruits d
 
 Ces dix ongles étaient d'un rouge violacé et paraissaient extrêmement démoniaques! L'énergie démoniaque autour de son corps se condensa en une armure pourpre. Il s'agissait d'une armure démoniaque que les membres du clan de l'ancien démon pouvaient créer une fois qu'ils atteignaient huit étoiles!
 
-Revêtu de cette armure, Wang Lin s'assit sur l'autel. L'ombre de l'Ancien se dissipa pour laisser place à une immense ombre d'ancien démon. Son corps entier brillait d'un vert éclatant et ses yeux projetaient une lumière étrange. Elle flottait derrière Wang Lin, dans une posture assise.
+Revêtu de cette armure, Wang Lin s'assit sur l'autel. L'ombre de l'Ancien se dissipa pour laisser place à une immense ombre d'ancien démon. Il avait une corne unique sur la tête, son corps entier était d'un vert éclatant et ses yeux projetaient une lumière étrange. Elle flottait derrière Wang Lin, dans une posture assise.
 
-Les cheveux de l'ancien démon ondulaient dans l'air; il mesurait des milliers de pieds de haut. De loin, sa chevelure ressemblait à de la fumée!
+Les cheveux de l'ancien démon ondulaient dans l'air et s'étendaient sur des milliers de pieds de long. De loin, sa chevelure ressemblait à de la fumée!
 
 À cet instant, même si quelqu'un le connaissant l'avait vu, il ne l'aurait pas reconnu immédiatement. Wang Lin ferma les yeux et fit lentement circuler la puissance de l'ancien démon dans son corps.
 
@@ -82,11 +82,11 @@ Un sentiment de puissance brute envahit l'esprit de Wang Lin. Il serra les poing
 
 La troisième épreuve des clans anciens, où les trois viendraient à la fois!
 
-Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités affrontées par les Êtres Anciens: la Bénédiction de l'Ancêtre Ancien!
+Cette troisième épreuve comportait trois calamités: la première étant le Sang Céleste de la Race Ancienne! La deuxième, les Trois Distractions du Dao Ancien! Et quant à la troisième, c'était la plus redoutable des calamités affrontées par les Êtres Anciens: la Bénédiction de l'Ancêtre Ancestral!
 
 Wang Lin ne connaissait pas tous les détails. Bien qu'il ait reçu l'héritage de Ye Mo, ses souvenirs étaient limités. Il savait seulement que pour affronter les deux dernières calamités, il devrait se rendre au temple ancien du Pays Ancien sur le Continent Astral Immortel.
 
-Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un événement grandiose était organisé dans tout le pays. Une cérémonie solennelle avait lieu! L'Ancien Dao Ye Mo avait traversé la dernière calamité dans le temple ancien. Il avait ensuite obtenu le titre d'Ancien Dao et était devenu l'un des piliers du Pays Ancien, admiré par des dizaines de millions de personnes. Même les célestes accordaient une importance capitale à cette ultime épreuve des clans anciens.
+Chaque fois qu'un membre du Pays Ancien atteignait la dernière calamité, un événement grandiose était organisé dans tout le pays. Une cérémonie solennelle avait lieu! L'Ancien Dao Ye Mo avait traversé la dernière calamité dans le temple ancien. Il avait ensuite obtenu le titre d'Ancien Dao et était devenu l'un des piliers du Pays Ancien, admiré par cent millions de personnes. Même les célestes accordaient une importance capitale à cette ultime épreuve des clans anciens.
 
 Alors que Wang Lin restait assis sur l'autel, son corps fut enveloppé par une aura d'Être Ancien encore plus puissante pour affronter la première calamité de la troisième épreuve. Une fois cette étape franchie, il deviendrait un véritable ancien dieu de huit étoiles!
 
@@ -94,13 +94,13 @@ Avec le pouvoir de huit étoiles issu des trois clans anciens, même sans sa cul
 
 Le Sang Céleste de la Race Ancienne, la calamité est arrivée!
 
-La soi-disant calamité du Sang Céleste exigeait que l'on condense toute la puissance des trois clans en une seule goutte de sang. Cette goutte était tout pour celui qui affrontait cette épreuve! Elle devait être utilisée pour percer les cieux et être offerte en sacrifice à la race ancienne. Une fois la reconnaissance de l'Ancêtre Ancien obtenue, peu importe où vous vous trouviez, une goutte de sang vous serait renvoyée.
+La soi-disant calamité du Sang Céleste exigeait que l'on condense toute la puissance des trois clans en une seule goutte de sang. Cette goutte était tout pour celui qui affrontait cette épreuve! Elle devait être utilisée pour percer les cieux et être offerte en sacrifice à la race ancienne. Une fois la reconnaissance de l'Ancêtre Ancestral obtenue, peu importe où vous vous trouviez, une goutte de sang vous serait renvoyée.
 
 Cette goutte fusionnerait avec celle formée par l'essence de la personne subissant la calamité. Une fois la fusion accomplie, le corps reconstruit posséderait la véritable lignée des Êtres Anciens! Cette lignée était l'égale de la lignée céleste!
 
-La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancien. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
+La difficulté de cette calamité ne résidait pas dans la douleur de condenser cette goutte, mais dans l'obtention de la reconnaissance de l'Ancêtre Ancestral. Ce n'était pas une chose à la portée de tous! Même avec cette reconnaissance, la quantité de sang reçue variait selon le degré de faveur accordé. Si elle était ordinaire, on ne recevait qu'une goutte; si elle était élevée, on pouvait en obtenir deux.
 
-L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, la personne ayant obtenu le plus avant lui n'avait récolté que huit gouttes! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Daos!
+L'Ancien Dao Ye Mo avait obtenu trois gouttes de sang lors de son épreuve. À travers les âges, le plus grand nombre obtenu avant lui par une seule personne était de huit gouttes! Cette personne était l'un des neuf soleils du Continent Astral Immortel, le Grand Empyréen Xuan Luo du Pays Ancien! C'était aussi lui qui avait combattu le Grand Empyréen Dao Yi pour obtenir ce fragment à l'extérieur de la Secte des Sept Daos!
 
 Wang Lin restait assis sur l'autel. Après une longue réflexion, il ferma les yeux et son aura ancienne se condensa à l'intérieur de son corps. Il entama la première étape de cette calamité: l'affinage de cette goutte de sang.
 

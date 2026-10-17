@@ -8,23 +8,23 @@ slug: lenvie-de-lempereur
 ---
 À travers les âges, parmi les trois clans du pays antique du Continent Astral Immortel, nul n'avait franchi cette étape! Cela était lié à l'environnement même dans lequel ils avaient grandi. Ils vivaient sous la protection des trois Grands Empyréens, selon les lois des trois empereurs, sous la lumière de leurs ancêtres.
 
-Ils admiraient l'Ancêtre Suprême avec une ferveur presque religieuse; il était leur ciel!
+Ils admiraient l'Ancêtre Ancestral avec une ferveur presque religieuse; il était leur ciel!
 
-Peu importe leur arrogance, ils n'osaient montrer le moindre manque de respect envers l'Ancêtre Suprême. C'était un sentiment inculqué dès la naissance. Tous ceux qui les entouraient étaient semblables.
+Peu importe leur arrogance, ils n'osaient montrer le moindre manque de respect envers l'Ancêtre Ancestral. C'était un sentiment inculqué dès la naissance. Tous ceux qui les entouraient étaient semblables.
 
 Même le Grand Empyréen Xuan Luo était ainsi. Cela témoignait de l'impact colossal de cette figure!
 
 Cependant, Wang Lin était différent. Il se déplaça tel un rayon de lumière pour converger vers le vortex en pleine dissipation. Sa silhouette dégageait une force inflexible, une tyrannie sans limites et une nature puissante et indomptable!
 
-S'il n'avait pas obtenu la reconnaissance de l'Ancêtre Suprême, cela n'aurait eu aucune importance, mais puisqu'il l'avait obtenue, il refusait de se contenter de quatre gouttes! Pourtant, la vision de Wang Lin était tout autre!
+S'il n'avait pas obtenu la reconnaissance de l'Ancêtre Ancestral, cela n'aurait eu aucune importance, mais puisqu'il l'avait obtenue, il refusait de se contenter de quatre gouttes! Pourtant, la vision de Wang Lin était tout autre!
 
 Cette soi-disant reconnaissance n'était qu'une manière d'identifier quelqu'un comme un descendant afin de lui transmettre votre lignée. Or, Wang Lin n'avait que faire de cette lignée!
 
 S'il le souhaitait, il pouvait obtenir la lignée céleste du fou. C'était une existence équivalente à la lignée ancienne!
 
-C'est pour cette raison que Wang Lin allait charger le vortex. Si ce prétendu Ancêtre Suprême ne lui donnait pas plus de sang, il forcerait ces quatre gouttes à sortir de son corps et renoncerait à son identité d'ancien. Il prendrait la lignée céleste, obtiendrait le Corps Céleste Immortel et deviendrait un être céleste!
+C'est pour cette raison que Wang Lin allait charger le vortex. Si ce prétendu Ancêtre Ancestral ne lui donnait pas plus de sang, il forcerait ces quatre gouttes à sortir de son corps et renoncerait à son identité d'ancien. Il prendrait la lignée céleste, obtiendrait le Corps Céleste Immortel et deviendrait un être céleste!
 
-« Vous me reconnaissez, mais je ne vous ai pas encore reconnu. Si vous voulez que j'accepte cette lignée, alors donnez-moi plus de sang et de pouvoir! » Wang Lin ne craignait point cet Ancêtre Suprême, il osait donc imposer ses conditions.
+« Vous me reconnaissez, mais je ne vous ai pas encore reconnu. Si vous voulez que j'accepte cette lignée, alors donnez-moi plus de sang et de pouvoir! » Wang Lin ne craignait point cet Ancêtre Ancestral, il osait donc imposer ses conditions.
 
 « Une fois qu'une lignée est reconnue, je ne la trahirai jamais, mais tenter de me faire accepter cela avec seulement quatre gouttes est bien trop dérisoire! » rugit Wang Lin en se précipitant vers le vortex.
 
@@ -42,7 +42,7 @@ L'image changea de nouveau. Après que le jeune homme en noir eut traversé de m
 
 « Vous pouvez le voir, c'est le moment où j'ai obtenu pour la première fois l'héritage de l'Ancien Dieu! » dit lentement Wang Lin, avant d'agiter à nouveau sa main droite. Les images défilèrent, révélant comment Wang Lin avait acquis son propre héritage d'Ancien Dieu.
 
-La séquence se poursuivit jusqu'à ce qu'il atteigne l'Ancienne Tombe. C'étaient les souvenirs de Wang Lin, et il les faisait apparaître au grand jour.
+La séquence se poursuivit jusqu'à ce qu'il atteigne la Tombe Antique. C'étaient les souvenirs de Wang Lin, et il les faisait apparaître au grand jour.
 
 « Puisque vous possédez un esprit, réfléchissez donc au nombre de gouttes de sang nécessaires pour que j'accepte votre lignée! Sinon, détruisez-moi, et je renoncerai à la lignée ancienne pour devenir un être céleste! » Les paroles de Wang Lin étaient glaciales. Dès qu'il eut fini de parler, l'aura autour de lui disparut soudainement pour se retirer dans le vortex.
 
@@ -88,13 +88,13 @@ Huit gouttes de sang! Même le Grand Empyréen Xuan Luo n'en avait obtenu que hu
 
 Les spectateurs étaient proches de la folie, fixant la statue avec effroi. L'homme en robe royale se lécha inconsciemment les lèvres, une lueur de froideur presque imperceptible traversant son regard.
 
-« Comment l'héritier de Ye Mo a-t-il pu obtenir une telle reconnaissance et recevoir huit gouttes de sang? Je suis le véritable descendant de l'Ancêtre Suprême, je possède la lignée royale. Je suis le plus grand génie du clan ancien après l'Oncle!! » L'homme en robe royale prit une profonde inspiration pour réprimer la jalousie qui lui rongeait le cœur. Il ne pouvait laisser le Grand Empyréen Xuan Luo voir son trouble.
+« Comment l'héritier de Ye Mo a-t-il pu obtenir une telle reconnaissance et recevoir huit gouttes de sang? Je suis le véritable descendant de l'Ancêtre Ancestral, je possède la lignée royale. Je suis le plus grand génie du clan ancien après l'Oncle!! » L'homme en robe royale prit une profonde inspiration pour réprimer la jalousie qui lui rongeait le cœur. Il ne pouvait laisser le Grand Empyréen Xuan Luo voir son trouble.
 
 Il dissimula son expression sombre sous un sourire. Tournant son visage vers le jeune homme aux cheveux noirs, il dit: « Félicitations, Oncle. Il semble que cet enfant devienne votre unique disciple. Peut-être qu'un jour, il surpassera l'Oncle et deviendra un nouveau Grand Empyréen pour le clan Dao. »
 
 Le cœur de l'homme en robe royale était sinistre. Bien que ses paroles semblassent élogieuses, elles étaient chargées de sous-entendus. Pourtant, son ton ne trahissait aucune fausseté, comme s'il parlait réellement avec joie. Il était difficile d'y déceler la moindre malveillance.
 
-Le jeune homme aux cheveux noirs resta impassible. Lui seul se retourna et lança un regard chargé de sens à l'homme en robe royale.
+Le jeune homme aux cheveux noirs resta impassible. Il se contenta de se retourner pour lancer un regard chargé de sens à l'homme en robe royale.
 
 Sous ce regard, l'homme en robe royale frissonna. Alors qu'il s'apprêtait à parler, un nouveau tumulte éclata! Il reporta les yeux sur la statue et son cœur rata un battement, son visage pâlissant instantanément.
 
@@ -106,7 +106,7 @@ Cependant, ce n'était pas la fin. Après la neuvième goutte, la lumière sangu
 
 « La dixième goutte!! Quelque chose qui ne s'est jamais produit depuis la nuit des temps, la dixième goutte!! »
 
-« Dix gouttes du sang de l'Ancêtre Suprême, c'est incroyable. Dix gouttes... cela ne signifie-t-il pas que cet homme est le véritable empereur du clan Dao?! »
+« Dix gouttes du sang de l'Ancêtre Ancestral, c'est incroyable. Dix gouttes... cela ne signifie-t-il pas que cet homme est le véritable empereur du clan Dao?! »
 
 « Même la famille royale n'a jamais obtenu dix gouttes. Qui est donc cet individu? Pourrait-il devenir le futur empereur de notre clan Dao?! »
 
@@ -114,11 +114,11 @@ L'homme en robe royale était livide, sur le point de perdre tout contrôle face
 
 Cette goutte n'était pas rouge, mais violette!! À l'instant où cette goutte de sang pourpre apparut, l'expression de l'homme en robe royale changea radicalement et il recula instinctivement de quelques pas. Ses yeux exprimaient plus de choc, d'horreur et d'incrédulité que jamais!
 
-« Le Sang de l'Âme de l'Ancêtre Suprême!! C'est... c'est du Sang de l'Âme!!! C'est impossible, impossible... »
+« Le Sang de l'Âme de l'Ancêtre Ancestral!! C'est... c'est du Sang de l'Âme!!! C'est impossible, impossible... »
 
-L'expression du Grand Empyréen changea elle aussi pour la première fois. Il fixa la goutte violette, le choc se lisant dans son regard. S'il n'avait pas été troublé par la neuvième goutte, il l'était totalement à cet instant précis.
+L'expression du Grand Empyréen changea elle aussi pour la première fois. Il fixa la goutte violette, le choc se lisant dans son regard. Même la neuvième goutte ne l'avait pas troublé, mais cette fois, ce sang violet le bouleversa.
 
-« Ancêtre Suprême... En envoyant une goutte de Sang de l'Âme, cela pourrait-il signifier quelque chose... Le Sang de l'Âme, ce Sang de l'Âme... À travers les âges, seules neuf gouttes de Sang de l'Âme sont apparues. Trois gouttes de Sang de l'Âme ont créé l'un des clans anciens... »
+« Ancêtre Ancestral... En envoyant une goutte de Sang de l'Âme, cela pourrait-il signifier quelque chose... Le Sang de l'Âme, ce Sang de l'Âme... À travers les âges, seules neuf gouttes de Sang de l'Âme sont apparues. Trois gouttes de Sang de l'Âme ont créé l'un des clans anciens... »
 
 « Neuf gouttes de Sang de l'Âme ont engendré les trois clans anciens actuels... »
 

@@ -42,11 +42,11 @@ Les expressions des quatre généraux changèrent brusquement. Ils peinaient à 
 
 « Qui a trouvé la troisième âme? Serait-ce le Daoïste aux Sept Couleurs?! » Sans hésiter, les quatre se précipitèrent vers l'origine de l'aura!
 
-Une autre silhouette était pourtant plus rapide qu'eux. Tandis qu'ils avançaient, cette forme passa devant eux comme un éclair. Il s'agissait du Vieux Fantôme Zhan. En cet instant, son expression était sombre et trahissait une peur latente. S'il ne trouvait pas la troisième âme le premier et que le Daoïste aux Sept Couleurs l'emportait, ce qui l'attendait n'était qu'une dévoraison douloureuse suivie de la mort.
+Une autre silhouette était pourtant plus rapide qu'eux. Tandis qu'ils avançaient, cette forme passa devant eux comme un éclair. Il s'agissait du Vieux Fantôme Zhan. En cet instant, son expression était sombre et trahissait une peur latente. S'il ne trouvait pas la troisième âme le premier et que le Daoïste aux Sept Couleurs l'emportait, ce qui l'attendait n'était qu'une dévoration douloureuse suivie de la mort.
 
 Malheureusement, le monde de la grotte était plongé dans le chaos; même en déployant son Sens Divin, il ne pouvait voir loin. Il ignorait s'il s'agissait de Wang Lin ou du Daoïste aux Sept Couleurs! Cependant, cette incertitude ne fit qu'accentuer sa terreur. Poussé par cette peur, il fonça comme un fou. À ce moment précis, la fuite n'était plus une option. Même si le Daoïste aux Sept Couleurs avait trouvé la troisième âme, il comptait riposter pendant que ce dernier la dévorerait!
 
-Alors que le Vieux Fantôme Zhan progressait, une ombre gigantesque apparut devant lui. Cette silhouette immense portait une cape de brouillard qui dissimulait son visage, ne laissant paraître que des yeux sombres et sinistres. Ses cheveux flottaient et son corps colossal recouvrait la majeure partie du ciel. Cette figure encercla le Vieux Fantôme Zhan. C'était l'une des trois âmes, celle qui détenait toute la compréhension du Dao!
+Alors que le Vieux Fantôme Zhan progressait, on vit clairement, à l'extérieur de l'arc-en-ciel que formait son corps, apparaître une ombre gigantesque. Cette silhouette immense portait une cape de brouillard qui dissimulait son visage, ne laissant paraître que des yeux sombres et sinistres. Ses cheveux flottaient et son corps colossal recouvrait la majeure partie du ciel. Cette figure se tenait hors du corps du Vieux Fantôme Zhan. Lui-même était l'une des trois âmes du Souverain Céleste aux Sept Couleurs, celle qui portait la compréhension!
 
 C'est à cet instant que le monde de la grotte connut un bouleversement sans précédent. Toute forme de vie commença à paniquer! Simultanément, cette force déchira l'Ancien Royaume Céleste dans le Royaume Extérieur que Wang Lin avait scellé. Bien que la majeure partie se soit effondrée, quelques disciples de la Secte des Sept Dao survécurent. Lorsque le sceau fut rompu, ils s'en échappèrent et, malgré leur choc, se précipitèrent vers Luotian sans hésiter!
 
@@ -66,7 +66,7 @@ Soudain, une voix puissante résonna dans l'esprit de Situ Nan et de Qing Shui. 
 
 « J'avais promis à Wang Lin de l'aider... Cet endroit étrange s'est ouvert, mais ne possédant pas le lignage d'un être céleste, je ne peux y pénétrer. Je dois emprunter vos âmes... Êtes-vous d'accord? »
 
-Le brouillard afflua de toutes les directions du monde de la grotte pour se rassembler dans le ciel!
+Les nuages de brume et les fragments de dalles affluèrent de toutes les directions du monde de la grotte pour converger vers Luotian!
 
 À ce moment précis, Wang Lin se tenait dans la vallée sur la planète de Luotian. Ses yeux étaient empreints de tristesse et de colère alors qu'il regardait son disciple Xie Qing l'appeler « Maître » une dernière fois avant de mourir avec un sourire! Il était furieux que les cieux s'acharnent ainsi contre lui!
 

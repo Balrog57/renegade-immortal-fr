@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1518 - Can’t Retreat !!"
 slug: pas-de-retraite-possible
 ---
-Le lieu de la première bataille contre le Royaume Intérieur était le Système d'Étoiles de la Mer des Nuages! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
+Le lieu de la première bataille contre le Royaume Intérieur était le Système Stellaire de la Mer des Nuages! L'endroit qu'ils s'apprêtaient à forcer se trouvait précisément là où Wang Lin passait!
 
 Les tremblements de la Formation de Scellement du Royaume se propageaient dans le Royaume Intérieur. Wang Lin vit clairement que le réseau qui constituait la formation devenait chaotique, comme si une force tentait de la transpercer!
 
@@ -30,7 +30,7 @@ C'était une guerre, et il n'y avait aucune moralité dans cette guerre!
 
 Il aurait pu partir à l'instant, mais il ne le pouvait pas!
 
-C'était une invasion, l'invasion de sa patrie. Pour son foyer, pour sa terre natale, pour la gloire des cultivateurs du Royaume Intérieur. Les yeux de Wang Lin étaient injectés de sang. Il avait tué toute sa vie pour lui-même, et ce n'est qu'au sein de la Secte de Dieu qu'il avait enfin ressenti la gloire d'être un cultivateur du Royaume Intérieur!
+C'était une invasion, l'invasion de sa patrie. Pour son foyer, pour sa terre natale, pour la gloire des cultivateurs du Royaume Intérieur. Les yeux de Wang Lin étaient injectés de sang. Il avait tué toute sa vie pour lui-même, et ce n'est que devant la Secte Divine qu'il avait enfin ressenti la gloire d'être un cultivateur du Royaume Intérieur!
 
 Cette guerre durerait un temps indéterminé. Peut-être mourrait-il, peut-être perdrait-il la chance de faire revivre Wan Er, mais en cet instant, il ne se battait pas pour lui-même, mais pour son foyer!
 
@@ -46,11 +46,11 @@ C'était pour le bien commun!
 
 Le feu de la guerre était déjà à sa porte, et s'il ne pensait qu'à ses propres gains et pertes, alors il ne méritait pas d'être appelé un homme! Ni un cultivateur!
 
-Son essence de massacre augmentait follement tandis que diverses émotions traversaient l'esprit de Wang Lin. Tuer ne suffisait pas; ce n'était pas là un massacre, mais une simple boucherie!
+Son essence de massacre augmentait follement tandis que diverses émotions traversaient l'esprit de Wang Lin. Tuer des centaines de millions de personnes pour soi-même ne méritait pas le nom de massacre; ce n'était que de la boucherie!
 
 Le véritable massacre consistait à tuer avec une raison. Résister farouchement pour un idéal, ou pour les gens et les choses que l'on veut protéger!
 
-Ce type de massacre était la source de cette essence! Ce n'était pas par luxure personnelle, pour voler autrui, ou pour tuer pour le simple plaisir de tuer!
+Ce type de massacre était la source de cette essence! Ce n'était pas par désir personnel, pour voler autrui, ou pour tuer pour le simple plaisir de tuer!
 
 À cet instant, Wang Lin atteignit l'éveil! Il agita sa main droite et dix millions de rayons d'énergie d'épée apparurent, volant vers la formation. Les estimés Ling Dong et Zhou Jin apparurent également. Qu'ils le veuillent ou non, ils devaient obéir à Wang Lin!
 
@@ -74,7 +74,7 @@ Ses longs cheveux blancs et sa robe flottante rendaient sa silhouette infiniment
 
 Un sentiment de gloire se propagea lentement depuis son corps, la gloire d'être un cultivateur du Royaume Intérieur!
 
-Aux yeux des cultivateurs du Royaume Extérieur, la Formation de Scellement du Royaume semblait se transformer en un puits gigantesque. Une force émanant du Système d'Étoiles Antique tentait de pêcher les âmes à l'intérieur de ce puits!
+Aux yeux des cultivateurs du Royaume Extérieur, la Formation de Scellement du Royaume semblait se transformer en un puits gigantesque. Une force émanant du Système Stellaire Antique tentait de pêcher les âmes à l'intérieur de ce puits!
 
 Tandis que le tonnerre résonnait, la formation trembla violemment et les esprits de la formation apparurent tous, prêts pour une contre-attaque. Cependant, à cet instant, une voix ancienne retentit depuis le palais noir géant!
 
@@ -92,7 +92,7 @@ Les grondements qui en résultèrent firent trembler les cieux. Lorsque l'épée
 
 Alors que l'épée et la lance s'affrontaient, un éclat violet surgit. Une lumière pourpre monstrueuse emplit les étoiles; les deux royaumes, intérieur et extérieur, purent la voir distinctement!
 
-Dans cette lumière pourpre, un fouet géant se forma. Lorsqu'il s'abattit dans un claquement sec, il fonça vers la corde du zither du Maître du Dao Rêve Bleu!
+Dans cette lumière pourpre, un fouet géant se forma. Lorsqu'il s'abattit dans un claquement sec, il fonça vers la corde de la cithare du Maître du Dao Rêve Bleu!
 
 Les deux forces convergèrent et entrèrent en collision violente!
 
@@ -114,13 +114,13 @@ Des grondements tonitruants retentirent. La Formation de Scellement du Royaume t
 
 La guerre avait commencé!!
 
-La Formation de Scellement du Royaume vibrait alors que les esprits de la formation apparaissaient un à un, bientôt tous ensemble. Cependant, au moment même où ils surgissaient, le pouvoir mystérieux provenant du Système d'Étoiles Antique forma une main et tira vers le haut!
+La Formation de Scellement du Royaume vibrait alors que les esprits de la formation apparaissaient un à un, bientôt tous ensemble. Cependant, au moment même où ils surgissaient, le pouvoir mystérieux provenant du Système Stellaire Antique forma une main et tira vers le haut!
 
 La Formation de Scellement du Royaume trembla, et l'âme née au sein de la formation depuis des dizaines de milliers d'années fut extraite. Cette âme était invisible, mais les cultivateurs extérieurs pouvaient ressentir son aura antique!
 
 L'âme était d'une taille colossale. Tandis qu'elle était tirée, il semblait que ce pouvoir mystérieux ne puisse la soutenir; elle ne parvint à la soulever que de quelques pieds avant de faiblir!
 
-Un soupir résonna à travers le Système d'Étoiles Antique. La force mystérieuse se déchira soudainement sur le côté! Un fracas de tonnerre retentit et une brèche fut déchirée dans l'âme!
+Un soupir résonna à travers le Système Stellaire Antique. La force mystérieuse se déchira soudainement sur le côté! Un fracas de tonnerre retentit et une brèche fut déchirée dans l'âme!
 
 Dès que cette brèche apparut, une fissure se forma sur la Formation de Scellement du Royaume!
 
@@ -130,11 +130,11 @@ L'apparition de cette fissure sembla stopper la formation. Au moment où celle-c
 
 Après ces mots, les cinq trésors combattant les cinq esprits de la formation tremblèrent simultanément!
 
-Dans la fissure spatiale imprégnée d'énergie spirituelle céleste du Système d'Étoiles Antique, un éclair de froideur passa dans les yeux de la femme d'âge moyen qui se tenait au sommet de la montagne. Ses mains formèrent un sceau et elle dit doucement: « Explose! »
+Dans la fissure spatiale imprégnée d'énergie spirituelle céleste du Système Stellaire Antique, un éclair de froideur passa dans les yeux de la femme d'âge moyen qui se tenait au sommet de la montagne. Ses mains formèrent un sceau et elle dit doucement: « Explose! »
 
 Dans le Clan de la Soie Bleue, au sommet du Mont Bleu, le Maître du Dao Rêve Bleu regarda l'épingle à cheveux avec stupeur. Il leva sa main droite, forma un sceau et dit, impuissant: « Explose! »
 
-Dans la partie extrême ouest du Système d'Étoiles Antique, sur les neuf planètes gelées, le garçon leva la main droite et murmura: « Explose! »
+Dans la partie extrême ouest du Système Stellaire Antique, sur les neuf planètes gelées, le garçon leva la main droite et murmura: « Explose! »
 
 Dans une fissure spatiale saturée d'énergie spirituelle céleste, une femme en rouge était assise sur un continent. Ses yeux brillèrent et elle esquissa un sourire qui n'en était pas un lorsqu'elle dit doucement: « Explose! »
 

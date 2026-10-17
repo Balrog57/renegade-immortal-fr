@@ -14,7 +14,7 @@ Wang Lin transforma sa compréhension du tonnerre et du feu en une graine, qu'il
 
 Le corps de Treize trembla. Lorsque la paume de Wang Lin se posa sur son front, une graine dorée apparut dans son esprit. Cette graine contenait l'intégralité de la compréhension que Wang Lin avait de ses essences de feu et de tonnerre. C'était l'aura du troisième niveau!
 
-Cette graine contenait également le lignage céleste de Wang Lin, ce qui expliquait sa couleur dorée!
+Cette graine contenait également la force immortelle du sang de Wang Lin, ce qui expliquait sa couleur dorée!
 
 Ce présent était comparable à un trésor céleste; il était assez précieux pour provoquer une catastrophe. Et pourtant, Wang Lin l'offrait à son premier disciple, Treize!
 
@@ -28,7 +28,7 @@ Wang Lin marchait silencieusement parmi les étoiles. Il était venu seul et par
 
 Il s'y était longuement accoutumé...
 
-Il n'absorba pas immédiatement la statue de l'ancien démon dans son œil gauche, préférant la garder dans son espace de stockage. Il pouvait encore maintenir la force de rejet dans son corps. Ce n'est qu'en l'absorbant au moment critique que la statue pourrait déployer toute sa puissance.
+Il n'absorba pas immédiatement la statue de l'ancien démon dans son œil gauche, préférant la garder dans son espace de stockage. Il pouvait encore contenir l'éruption de la force de rejet dans son corps. Ce n'est qu'en l'absorbant au moment critique que la statue pourrait déployer toute sa puissance.
 
 Wang Lin ne souhaitait pas l'absorber si cela pouvait être évité.
 
@@ -90,7 +90,7 @@ Sous l'impatience du fou, le trio atteignit le bord de la rue où se trouvait un
 
 Un réseau de transfert se trouvait dans l'arrière-boutique. Ce dispositif était rudimentaire et semblait avoir été installé récemment. Le fou, debout devant le réseau, hurla sur Xu Liguo.
 
-Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé une cultivatrice au stade du Yang Corporel. Elle avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, elle est particulièrement prudente. »
+Xu Liguo afficha un sourire mielleux et se frotta les mains: « Majesté, ce humble serviteur vous a trouvé une cultivatrice au stade du Yang Corporel. Elle avait refusé au départ, mais j'ai dû déployer de grands efforts pour la convaincre. Cependant, en raison de son statut noble, elle craint que cela se sache et doit donc être particulièrement prudente. »
 
 Le visage du fou était marqué par l'impatience et il pinça les lèvres. « Nous venons ici depuis tant de jours et nous n'avons pas réussi une seule fois! Si ce n'est pas un succès cette fois, ce Roi ne jouera plus! Ce n'est pas aussi amusant que tu le prétends; quel genre de divertissement ce Roi n'a-t-il pas déjà expérimenté? »
 

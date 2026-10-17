@@ -36,7 +36,7 @@ Pourtant, à cet instant, des paroles incroyables qui stupéfièrent tous les sp
 
 « J'admire le troisième Jeune Empereur pour son audace. Qu'il réussisse ou non importe peu; combien parmi vous oseraient agir ainsi? Vous parlez tous avec dédain, mais qui d'entre vous oserait s'avancer pour le défier comme lui? »
 
-Au début, les dix mille cultivateurs murmuraient dans le dos de Wang Lin, mais après les épreuves, une partie d'entre eux l'évoquait désormais avec respect!
+Au début, les dizaines de milliers de cultivateurs murmuraient dans le dos de Wang Lin, mais après les épreuves, une partie d'entre eux l'évoquait désormais avec respect!
 
 Les paroles de Wang Lin, et plus particulièrement son ultime commandement — « Viens » — témoignaient d'une confiance absolue!
 
@@ -74,7 +74,7 @@ Tout cela se produisit en un battement de paupière. Dès le début de son assau
 
 Les yeux de Wang Lin s'illuminèrent. Alors que les trois extinctions se refermaient sur lui, la tempête de feu éthéré tourbillonna violemment autour de lui!
 
-« Feu Éthéré multicolore, en mon nom, je t'ordonne de former l'Esprit du Feu! » La main de Wang Lin traça un sceau avant de s'élancer dans la tempête. Un grondement sourd retentit, suivi du rugissement d'un dragon.
+« Feu Éthéré aux neuf couleurs, en mon nom, je t'ordonne de former l'Esprit du Feu! » La main de Wang Lin traça un sceau avant de s'élancer dans la tempête. Un grondement sourd retentit, suivi du rugissement d'un dragon.
 
 Une tête de dragon gigantesque émergea du cœur de la tempête éthérée. Le dragon était rouge et poussa des rugissements fracassants en chargeant les fissures spatiales du ciel!
 
@@ -84,9 +84,9 @@ Un feu monstrueux emplit rapidement ces fractures, donnant au ciel un aspect d'u
 
 Peu après, les rugissements se succédèrent pour le troisième, le quatrième, le cinquième... jusqu'à ce que neuf dragons de feu soient apparus!
 
-Ces sept dragons jaillirent, dissipant la tempête de flammes! Wang Lin se tenait là, imperturbable. En comptant les deux premiers, neuf dragons de feu étaient désormais enroulés autour de lui. Entre ces créatures et le feu multicolore tourbillonnant dans son œil gauche, la scène était saisissante. Une aura puissante explosa du corps de Wang Lin.
+Ces sept dragons jaillirent, dissipant la tempête de flammes! Wang Lin se tenait là, imperturbable. En comptant les deux premiers, neuf dragons de feu étaient désormais enroulés autour de lui. Entre ces créatures et le feu aux neuf couleurs tourbillonnant dans son œil gauche, la scène était saisissante. Une aura puissante explosa du corps de Wang Lin.
 
-Les dix mille cultivateurs qui avaient reculé étaient tous stupéfaits. L'image de Wang Lin restait gravée au plus profond de leur esprit; ils ne pourraient jamais l'oublier!
+Les dizaines de milliers de cultivateurs qui avaient reculé étaient tous stupéfaits. L'image de Wang Lin restait gravée au plus profond de leur esprit; ils ne pourraient jamais l'oublier!
 
 « Quatrième Extinction, la Mort; Cinquième Extinction, le Temps; Sixième Extinction, le Vide; Septième Extinction, la Désolation; Huitième Extinction, la Réincarnation... Neuvième Extinction... Brise-Ciel! » L'expression de Maître Simo demeurait inchangée, dénuée de toute colère ou intention meurtrière. Son esprit restait serein; car face à quelqu'un maîtrisant le Feu Éthéré, la première règle est de garder l'esprit stable!
 
@@ -100,7 +100,7 @@ Peu après, la puissance du temps forma une lueur sous les pieds de Maître Simo
 
 Puis un vide indistinct l'enveloppa. Le tombeau sans fin et son corps furent drapés par ce néant, rendant sa silhouette floue pour les observateurs.
 
-Au cœur de ce trouble résidait une aura antique qui se mua en l'aura de la réincarnation. Il se rapprocha de Wang Lin, et en un instant, il ne fut plus qu'à cent pieds de lui. Lorsqu'il prononça les deux derniers mots, « Brise-Ciel », il n'était plus qu'à trois pieds du jeune homme. Il leva sa main droite et frappa avec une force implacable!
+Au cœur de ce trouble résidait une aura antique qui se mua en l'aura de la réincarnation. Il se rapprocha de Wang Lin, et en un instant, il ne fut plus qu'à cent pieds de lui. Lorsqu'il prononça les deux derniers mots, « Brise-Ciel », il n'était plus qu'à trente pieds du jeune homme. Il leva sa main droite et frappa avec une force implacable!
 
 « Neuf Extinctions du Brise-Ciel, Neuf Pas pour Éteindre le Ciel! » Le monde trembla. Au moment où la paume de Maître Simo descendit, toutes les illusions derrière lui s'effondrèrent en d'innombrables fragments. Ces débris se transformèrent en rivières de puissance qui affluèrent dans la paume droite du maître, laquelle se referma violemment!
 
@@ -108,17 +108,17 @@ Tout cela fut fulgurant. Les yeux de Wang Lin brillèrent; sa main droite prit l
 
 De loin, le spectacle était époustouflant!
 
-La paume de Maître Simo possédait le pouvoir de briser les cieux. En empruntant l'élan des neuf extinctions et en y ajoutant sa culture de la troisième étape, cette attaque pouvait annihiler toute forme de vie!
+La paume de Maître Simo possédait le pouvoir de briser les cieux. En empruntant l'élan des neuf extinctions et en y ajoutant sa culture de la troisième étape, cette attaque pouvait briser toute chose!
 
 Le doigt de Wang Lin semblait porter neuf têtes de dragons entrelacées; on aurait dit que ses propres membres étaient devenus le corps du dragon. Les neuf créatures rugissaient, enveloppées de flammes!
 
 En un éclair, le doigt de Wang Lin et la paume de Maître Simo entrèrent en collision. C'était l'affrontement entre la puissance du Brise-Ciel et le Feu Éthéré. Une collision de lois fondamentales!
 
-*Rumble, rumble, rumble, rumble!*
+*Boum, boum, boum, boum!*
 
-Des grondements violents secouèrent toute la Planète du Grand Empereur. Presque tous les dix mille cultivateurs crachèrent du sang, les oreilles bourdonnantes, et reculèrent avec angoisse.
+Des grondements violents secouèrent toute la Planète du Grand Empereur. Près de dix mille cultivateurs crachèrent du sang, les oreilles bourdonnantes, et reculèrent avec angoisse.
 
-Alors que le chaos résonnait, le corps de Wang Lin fut projeté en arrière. Il recula de plusieurs centaines de pieds, le visage marqué par une étrange teinte rouge. Il leva les yeux, le regard froid.
+Alors que le chaos résonnait, le corps de Wang Lin fut projeté en arrière. Il recula de mille pieds, le visage marqué par une étrange teinte rouge. Il leva les yeux, le regard froid.
 
 « Les cultivateurs de la troisième étape sont effectivement prodigieux! »
 

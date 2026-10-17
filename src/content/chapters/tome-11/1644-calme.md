@@ -62,7 +62,7 @@ Pourtant, Wang Lin réprima cette douleur intense, une intention meurtrière bri
 
 Le Général Tortue Noire, le plus proche de Wang Lin, fut frappé par la lumière dorée; il sembla sur le point de se changer en gaz. Un cri misérable suivit aussitôt.
 
-La goutte de sang doré s'échappa des sourcils de Wang Lin et fonça vers le Général Tortue Noire. Le sang pénétra ses mains et l'ombre de la Tortue derrière lui s'effondra. Il poussa un rugissement de douleur.
+La goutte de sang doré s'échappa des sourcils de Wang Lin et fonça vers le Général Tortue Noire. Le sang traversa son poing et l'ombre de la Tortue derrière lui s'effondra. Il poussa un rugissement de douleur.
 
 Le Général Tortue Noire cracha du sang et recula précipitamment. Son corps était enveloppé d'une fumée noire et son poing droit n'était plus qu'un amas sanglant. Ses yeux étaient pétris de peur alors qu'il fuyait.
 
@@ -96,7 +96,7 @@ Le Général Tigre Blanc poussa un cri et une immense quantité d'énergie céle
 
 Dans son rugissement, son aura explosa et une rune dorée apparut entre ses sourcils!
 
-« Dragon Azure, Tortue Noire, aidez-moi à ouvrir le sceau! Si nous ne devions pas d'abord restaurer notre cultivateur, nous ne serions pas repoussés par cette fourmi. Je vais le tuer! De quel droit ose-t-il repousser des Célestes comme nous? Il n'est qu'une vermine du monde inférieur! »
+« Dragon Azure, Tortue Noire, aidez-moi à ouvrir le sceau! Si nous ne devions pas d'abord restaurer notre cultivation, nous ne serions pas repoussés par cette fourmi. Je vais le tuer! De quel droit ose-t-il repousser des Célestes comme nous? Il n'est qu'une vermine du monde inférieur! »
 
 L'expression de Wang Lin resta impassible, bien qu'il fût blessé. Il avait presque succombé à l'attaque combinée des trois généraux; sans ses multiples techniques de secours, il aurait été gravement atteint.
 

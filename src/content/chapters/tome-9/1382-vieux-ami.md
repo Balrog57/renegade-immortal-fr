@@ -14,7 +14,7 @@ Les yeux de Wang Lin s'illuminèrent. Son expression ne changea pas, et son rega
 
 « Jeune Empereur? »
 
-Le messager arborait toujours ce sourire respectueux sur son visage et dit rapidement: « Le Grand Empereur a déjà transmis l'ordre au Pays Déchu. Vous êtes désormais le Jeune Empereur désigné par le Grand Empereur, et vous vous situez au-dessus des treize Anciens Déchus! »
+Le messager arborait toujours ce sourire respectueux sur son visage et dit rapidement: « Le Grand Empereur a déjà transmis l'ordre à la Terre Déchue. Vous êtes désormais le Jeune Empereur désigné par le Grand Empereur, et vous vous situez au-dessus des treize Anciens Déchus! »
 
 L'expression de Wang Lin resta neutre et il ne dit mot.
 
@@ -42,7 +42,7 @@ La planète de culture entière sombra dans le silence. De nombreux témoins ass
 
 Les membres du Clan du Dragon Blindé, pétris de peur, baissèrent la tête.
 
-« Un cultivateur du quatrième Fléau Céleste dans le Royaume Intérieur peut être au sommet de la hiérarchie, et même dans le Royaume Extérieur, il peut diriger un grand clan! Mais dans ce Pays Déchu, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
+« Un cultivateur du quatrième Fléau Céleste dans le Royaume Intérieur peut être au sommet de la hiérarchie, et même dans le Royaume Extérieur, il peut être Ancien d'un grand clan, à un rang élevé! Mais dans cette Terre Déchue, on avale une pilule empoisonnée et on meurt sans hésiter... Cela montre à quel point le Grand Empereur est puissant... La raison pour laquelle il a envoyé cette pilule au Patriarche du Dragon Blindé était de me donner un avertissement indirect. »
 
 La mort du Patriarche du Dragon Blindé signifiait que l'affaire était close. L'homme d'âge mûr sourit et joignit les mains devant Wang Lin: « Le Clan du Dragon Blindé ne peut rester sans chef. Je demande au Jeune Empereur de désigner un nouveau leader. »
 
@@ -62,13 +62,13 @@ Le jeune homme hocha rapidement la tête. Au-delà de ces trésors, même si Wan
 
 L'homme d'âge mûr joignit les mains et sourit à Wang Lin: « Jeune Empereur, je dois retourner faire mon rapport au Grand Empereur. » Sur ces mots, il sortit un jeton de jade et le remit respectueusement à Wang Lin.
 
-« Seigneur Jeune Empereur, le Grand Empereur vous confie ce jeton de jade. Il représente votre identité. Il équivaut à la présence même du Grand Empereur. Personne n'osera vous défier dans le Pays Déchu. »
+« Seigneur Jeune Empereur, le Grand Empereur vous confie ce jeton de jade. Il représente votre identité. Il équivaut à la présence même du Grand Empereur. Personne n'osera vous défier dans la Terre Déchue. »
 
 « Le Grand Empereur a également précisé que vous devrez assister à la sélection des Anciens Déchus dans trois mois. » Après avoir remis le jeton, le messager joignit les mains et disparut au loin.
 
 Wang Lin leva le jeton de jade et l'examina attentivement. Il était fait de matériaux très communs et ne portait qu'un seul mot: « Empereur ». Le caractère avait été tracé d'un seul trait, dégageant une aura antique, mais une force étrange émanait manifestement du mot.
 
-À l'extérieur du Pays Déchu, dans l'Ancien Système Stellaire. Lorsque l'avatar de Maître Simo mourut, son corps originel, situé au plus profond de la faille spatiale où il se trouvait, ouvrit les yeux.
+À l'extérieur de la Terre Déchue, dans l'Ancien Système Stellaire. Lorsque l'avatar de Maître Simo mourut, son corps originel, situé au plus profond de la faille spatiale où il se trouvait, ouvrit les yeux.
 
 Dès l'ouverture de ses paupières, une lumière vive jaillit comme un éclair traversant le vide. Des grondements tonitruants résonnèrent, comme si le vide lui-même allait s'effondrer!
 
@@ -78,7 +78,7 @@ Les vêtements de Maître Simo voltèrent et ses longs cheveux ondulaient. Ses y
 
 La mort de son avatar n'avait pas grand impact sur sa culture; il l'avait raffiné pour l'aider à progresser en cas de stagnation. Cependant, la perte de cet avatar anéantissait le plan sur lequel il travaillait depuis fort longtemps. En conséquence, c'était comme si des années d'efforts s'étaient évaporées.
 
-« Le Grand Empereur du Pays Déchu!!! » Maître Simo grinça des dents, l'expression féroce.
+« Le Grand Empereur de la Terre Déchue!!! » Maître Simo grinça des dents, l'expression féroce.
 
 « Il y a aussi ce jeune cultivateur de la foudre. Outre l'essence de la foudre, il possède également une trace d'essence de feu!! Et comment a-t-il pu connaître mon nom passé?! Se pourrait-il qu'il soit du Royaume Intérieur?! » Les yeux de Maître Simo s'illuminèrent alors qu'il leva sa main droite et l'abattit. Le vide gronda violemment et une déchirure s'ouvrit.
 
@@ -90,7 +90,7 @@ Des clous aux sept couleurs s'échappèrent de la brèche et flottèrent autour 
 
 « Les Clous Divins du Vide aux Sept Couleurs du Souverain, capables d'éliminer des cultivateurs de la troisième étape... Je ne suis pas de taille face au Grand Empereur, mais si le Conseil Souverain rassemble tous les cultivateurs de la troisième étape, nous devrions pouvoir l'abattre. Tout dépendra de la décision du Conseil! » Maître Simo agita la main droite et les clous disparurent. Il fit un pas en avant et s'évanouit sans laisser de trace.
 
-Un groupe de cultivateurs traversait le Pays Déchu. Ils étaient près de mille, aux niveaux de culture variés. Au centre se trouvaient une dizaine de cultivateurs de la deuxième étape entourant une personne.
+Un groupe de cultivateurs traversait la Terre Déchue. Ils étaient près de mille, aux niveaux de culture variés. Au centre se trouvaient une dizaine de cultivateurs de la deuxième étape entourant une personne.
 
 Cet homme portait des vêtements somptueux; c'était un vieillard dont l'apparence était ordinaire, mais l'expression extrêmement sombre.
 

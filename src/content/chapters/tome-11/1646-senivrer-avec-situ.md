@@ -16,7 +16,7 @@ Avant d'entrer dans l'Ancien Royaume Céleste, Wang Lin avait nourri de nombreus
 
 En contemplant l'espace devant lui, pour la première fois, celui-ci lui semblait éthéré, comme s'il n'existait pas.
 
-Wang Lin ne pouvait révéler aux autres que les Royaumes Intérieur et Extérieur n'étaient qu'une partie d'une grotte. Même s'il le disait, peu de gens le croiraient, et ceux qui le feraient sombreraient dans la folie.
+Wang Lin ne pouvait révéler aux autres que les Royaumes Intérieur et Extérieur n'étaient que la grotte d'un Souverain Céleste. Même s'il le disait, peu de gens le croiraient, et ceux qui le feraient sombreraient dans la folie.
 
 En observant ce système stellaire, Wang Lin médita en silence.
 
@@ -26,7 +26,7 @@ Lorsqu'ils virent apparaître la silhouette de Wang Lin, des acclamations éclat
 
 En écoutant leurs cris, Wang Lin sombra davantage dans ses pensées. Il ressentait une vague confusion.
 
-« Seigneur du Royaume Scellé... Le précédent Seigneur du Royaume Céleste n'était qu'un pion du Souverain Céleste. Il n'était pas originaire du Royaume Intérieur, il venait du Continent Astral Immortel et possédait la lignée d'un être céleste... Il n'était pas venu dans le Royaume Intérieur pour aider, mais pour mettre en place un plan au profit du Souverain Céleste... C'était un homme inflexible. Peut-être qu'au fil des ans, il a éprouvé de la compassion pour les habitants d'ici et que tout cela est arrivé... »
+« Seigneur du Royaume Scellé... Le précédent Seigneur du Royaume Scellé n'était qu'un pion du Souverain Céleste. Il n'était pas originaire du Royaume Intérieur, il venait du Continent Astral Immortel et possédait la lignée d'un être céleste... Il n'était pas venu dans le Royaume Intérieur pour aider, mais pour mettre en place un plan au profit du Souverain Céleste... C'était un homme inflexible. Peut-être qu'au fil des ans, il a éprouvé de la compassion pour les habitants d'ici et que tout cela est arrivé... »
 
 « Cependant, en fin de compte, il n'appartenait pas à ce lieu, il était un étranger... »
 
@@ -74,7 +74,7 @@ Wang Lin secoua la tête avec un sourire amer. Il saisit le vin et prit une long
 
 « Les cultivateurs n'ont pas besoin de trancher leurs émotions... Quand nous étions sur la planète Suzaku et que tu débutais ta culture, tu hésitais à quitter tes parents, tu refusais de rompre tes attachements terrestres. Tu ne voulais pas les couper... C'est ainsi que je t'avais répondu. »
 
-« Puisque tu ne peux pas et ne veux pas les trancher, tu ressentiras naturellement la douleur. Si tu étais mort, cela n'aurait plus d'importance, mais tu n'es pas mort. Tu as cultivé pendant plus de 2 000 ans pour atteindre ce niveau. Voilà pourquoi tu es confus, voilà pourquoi tu me demandes ce qu'est la longévité! »
+« Puisque tu ne peux pas et ne veux pas les trancher, tu ressentiras naturellement la douleur. Si tu étais mort, cela n'aurait plus d'importance, mais tu n'es pas mort. Tu as cultivé pendant plus de 2 000 ans pour atteindre ce niveau, jusqu'au sommet. Voilà pourquoi tu es confus, voilà pourquoi tu me demandes ce qu'est la longévité! »
 
 « La longévité, la longévité... il n'y a aucune véritable longévité dans cette vie. Ce qu'on appelle la longévité, c'est simplement s'autoriser à vivre plus longtemps, à devenir plus fort, à devenir assez libre pour que personne ne puisse plus te donner d'ordres. »
 
@@ -92,7 +92,7 @@ Situ Nan vida une cruche entière avant de la jeter brusquement et de hurler à 
 
 « Je voulais devenir plus fort pour survivre. Je refusais de mourir avant que Wan Er ne se réveille. Je voulais la reprendre au destin. Puis je suis devenu le Seigneur du Royaume Scellé. Ma renommée est née des batailles entre le Royaume Intérieur et le Royaume Extérieur. »
 
-« Je n'ai rien voulu de tout cela, ce n'est pas ce que je désire! Je ne voulais pas être le Seigneur du Royaume Scellé, et je ne le veux toujours pas! » Wang Lin regarda Situ et saisit une cruche. Il en but la moitié, laissant le vin couler au coin de sa bouche.
+« Je n'ai rien voulu de tout cela, ce n'est pas ce que je désire! Je ne voulais pas être le Seigneur du Royaume Scellé, et la culture me lasse toujours! » Wang Lin regarda Situ et saisit une cruche. Il en but la moitié, laissant le vin couler au coin de sa bouche.
 
 « Espèce d'idiot! » Situ Nan vit la confusion dans les yeux de Wang Lin et resta sans voix. Il poussa un soupir et commença à boire avec colère. « Puisque tu ne veux pas dire à ce vieil homme ce que tu as vu dans cette faille, alors je ne demanderai plus rien, d'accord? »
 
@@ -116,7 +116,7 @@ Wang Lin resta silencieux, le regard complexe. Il vida la cruche et la jeta sur 
 
 « Situ, si je te disais que les Royaumes Intérieur et Extérieur sont tous deux faux, qu'ils ne sont qu'une illusion... le croirais-tu? »
 
-« Si je te disais que toi et moi, ainsi que tous les cultivateurs que nous connaissons, ne vivons que dans une grotte... le croirais-tu? »
+« Si je te disais que toi et moi, ainsi que tous les cultivateurs que nous connaissons, ne vivons que dans une cage... le croirais-tu? »
 
 « Si je te disais que les voies de culture que nous pratiquons ont toutes été dictées par d'autres... le croirais-tu? »
 

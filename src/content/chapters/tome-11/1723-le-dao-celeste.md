@@ -8,11 +8,11 @@ slug: le-dao-celeste
 ---
 «...Le Dao Céleste!! » L'esprit de Wang Lin devint blanc. Ce qu'il avait découvert au sein du cycle de réincarnation de l'Omniscient était à peine croyable. Le Dao Céleste que tous cherchaient était en réalité... en fait, c'était l'Omniscient!
 
-En observant le jeune homme qui s'ajustait le visage d'un geste de la main, Wang Lin peinait à apaiser les vagues qui déferlaient dans son cœur. Il était tel un navire solitaire sur une mer déchaînée, ballotté par des flots incessants.
+En observant le jeune homme qui tirait sur la peau de son visage pour tenter de sourire, Wang Lin peinait à apaiser les vagues qui déferlaient dans son cœur. Il était tel un navire solitaire sur une mer déchaînée, ballotté par des flots incessants.
 
 Sous son regard, le jeune homme maintint son sourire et disparut au loin. Le système stellaire s'estompa et s'effondra progressivement devant Wang Lin, mais celui-ci restait pétrifié par le choc.
 
-À l'extérieur, dans la Rivière Invoquée, le visage de l'avatar de Wang Lin était livide. Des veines pulsaient et disparaissaient sur tout son visage.
+À l'extérieur, dans la Rivière Invoquée, le visage de l'avatar de Wang Lin était livide. Des nuances bleutées apparaissaient et disparaissaient par intermittence sur son visage.
 
 D'innombrables âmes des avatars de l'Omniscient pénétraient une à une dans l'avatar de Wang Lin, tentant de s'en emparer.
 
@@ -40,7 +40,7 @@ Une partie de la porte fut projetée loin, dans une région de l'espace qui devi
 
 La masse de fragments fusionna avec le vide, rendant l'espace instable et créant une faille spatiale. Les morceaux de la porte restèrent là, immuables pendant d'innombrables années.
 
-Après bien des années, un groupe issu des Quatre Sectes Divines, utilisant une méthode inconnue, vint à la recherche d'une planète de culture. Ils masquèrent l'instabilité et dissimulèrent cette faille spatiale en la reliant à la planète.
+Après bien des années, un groupe de cultivateurs des Quatre Sectes Divines, venus de l'extérieur du monde, arriva par une méthode particulière. Ils trouvèrent une planète de culture et la déplacèrent jusque-là. Ils masquèrent l'instabilité et dissimulèrent cette faille spatiale en la reliant à la planète.
 
 Ce groupe de cultivateurs finit par repartir. Avec le temps, la faille spatiale réapparaissait occasionnellement. Certains cultivateurs talentueux de la planète la découvrirent et s'en servirent. Elle devint finalement le Champ de Bataille Extérieur.
 
@@ -62,7 +62,7 @@ Ce fragment était flou, mais il était évident qu'il constituait le cœur de c
 
 En volant, le nuage de brume devint de plus en plus petit jusqu'à disparaître complètement. Il s'était entièrement condensé en ce fragment semi-circulaire et vola jusqu'à atterrir sur une planète de culture.
 
-Il n'y avait aucune vie sur cette planète, seulement une montagne isolée. Le fragment s'écrasa comme une météorite sur la montagne. Celle-ci s'effondra et le fragment pénétra profondément dans le cœur de la planète avant de s'immobiliser.
+Il n'y avait aucune vie sur cette planète, seulement une étendue de montagnes basses et dénudées. Le fragment s'écrasa comme une météorite sur l'une d'elles. Celle-ci s'effondra et le fragment pénétra profondément dans le cœur de la planète avant de s'immobiliser.
 
 Wang Lin fut témoin de tout cela. Il fixa le fragment semi-circulaire au sein de la planète. Des inscriptions anciennes y étaient gravées; il ressemblait à une moitié de compas!
 
@@ -80,7 +80,7 @@ Un instant plus tard, il ouvrit soudainement les paupières, et ses yeux brillè
 
 « Je suis le Dao Céleste... Je ne devrais pas avoir d'esprit, mais quand ce céleste a explosé, j'en ai absorbé une partie... J'ai absorbé une partie de son Sens Divin... J'ai acquis de l'intelligence... » murmura le jeune homme comme s'il venait de tout comprendre.
 
-En voyant cela, Wang Lin comprit beaucoup de choses. Il comprit pourquoi Lian Daofei était devenu un fou, et pourquoi le Lian Daofei qu'il avait vu dans le rêve du Daoïste aux Sept Couleurs était si arrogant et déraisonnable. Il semblait être une personne totalement différente du fou que Wang Lin connaissait.
+En voyant cela, Wang Lin comprit beaucoup de choses. Il comprit pourquoi Lian Daofei était devenu un fou, et pourquoi le Lian Daofei qu'il avait vu dans le rêve du Daoïste aux Sept Couleurs avait l'air si sinistre et arrogant, et aimait s'emparer des compagnons daoïstes qui lui plaisaient. Il semblait être une personne totalement différente du fou que Wang Lin connaissait.
 
 À cet instant, l'esprit de Wang Lin s'éclaircit.
 
@@ -102,7 +102,7 @@ Wang Lin ignora son départ et fixa le demi-compas. Il mémorisa chaque détail 
 
 Les plus de quatre-vingt-dix réincarnations de l'Omniscient prirent fin!
 
-Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit le Maître du Dao Rêve Bleu, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement submergé dans la Rivière Invoquée!
+Lorsque Wang Lin ferma les yeux, son rêve prit fin. Il ouvrit les paupières et vit le Maître du Dao Rêve Bleu, Qing Lin et le Maître Hong Shan. Il réalisa que son avatar était sur le point d'être totalement possédé dans la Rivière Invoquée!
 
 « J'ai trouvé son corps originel. Vous trois, seniors, n'avez pas besoin de m'accompagner. J'espère que vous pourrez m'aider à contrôler mon avatar pour me gagner du temps! » Wang Lin se leva et salua les trois seniors en joignant les mains. Puis, d'un pas décidé, il s'élança vers l'horizon.
 

@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1563 - The Third Dao Fruit!"
 slug: le-troisieme-fruit-du-dao
 ---
-Le Fruit du Dao était d'une transparence ténue, laissant entrevoir un jeune garçon couvert de rouge à l'intérieur. Le visage de l'enfant était marqué par la douleur. D'innombrables filaments étaient connectés à son corps, comme s'ils aspiraient ses nutriments.
+Le Fruit du Dao était d'une transparence ténue, laissant entrevoir un jeune garçon à l'intérieur, dont le corps irradiait une lueur rouge. Le visage de l'enfant était marqué par la douleur. D'innombrables filaments étaient connectés à son corps, comme s'ils aspiraient ses nutriments.
 
 Ce garçon était le corps originel du Maître Hong Shan. Mais ne possédant pas la Perle de Défiance Céleste pour absorber l'intention chaotique du Dao qu'il contenait, le seul dénouement possible était sa mort!
 

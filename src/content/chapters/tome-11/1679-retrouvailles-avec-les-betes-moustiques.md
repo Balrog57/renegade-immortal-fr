@@ -10,7 +10,7 @@ Li Qianmei finit par partir avec son père, Rêve Bleu. La cinquième concubine 
 
 Ils retourneraient au clan Soie Bleue pour y ramener toute leur lignée. Ils choisiraient ensuite une région dans le Royaume Intérieur pour en faire la nouvelle demeure du clan Soie Bleue.
 
-Avec le Maître du Dao Rêve Bleu présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Maître du Dao Rêve Bleu maintenant que son cœur de Dao n'était plus imparfait.
+Avec le Maître du Dao Rêve Bleu présent, bien qu'il fût blessé, il n'y aurait aucun danger à moins que le Souverain n'agisse personnellement. Même le Souverain n'oserait pas trop contraindre le Maître du Dao Rêve Bleu maintenant que son cœur de Dao n'était plus imparfait et qu'il se tenait au sommet du Vide Arcanique.
 
 En effet, le Maître du Dao Rêve Bleu pouvait entrer dans la Tribulation Arcane dès qu'il le souhaitait. Une fois la Tribulation Arcane commencée, même le Souverain devrait se retirer.
 
@@ -56,7 +56,7 @@ C'était comme si deux Wang Lin se superposaient, une superposition instable due
 
 Les silhouettes superposées se séparèrent et les craquements cessèrent. Le flou disparut et deux Wang Lin identiques se tenaient là!
 
-Celui qui était assis était le corps originel de Wang Lin. Celui qui portait les étoiles de l'Ancien Dieu, de l'Ancien Démon et de l'Ancien Diable, possédant l'héritage de l'Ancien! Celui qui se tenait debout était son corps de cultivateur!
+Celui qui était assis était le corps originel de Wang Lin. Celui qui unissait l'Ancien Dieu, l'Ancien Démon et l'Ancien Diable, possédant l'héritage du Dao Ancien! Celui qui se tenait debout était son corps de cultivateur!
 
 Il y eut une période où Wang Lin agissait toujours ainsi. Son corps originel cultivait tandis que son avatar sortait. De cette manière, il progressait sur les deux fronts simultanément.
 
@@ -92,17 +92,17 @@ Après un balayage de son Sens Divin, Wang Lin chargea sans hésitation, ses che
 
 Au cœur du Royaume Céleste du Vent se trouvait un continent où les vents étaient plus violents qu'ailleurs. Deux groupes de bêtes moustiques s'y trouvaient, s'entretuant dans une lutte acharnée.
 
-Chacun de ces deux groupes comptait des dizaines de milliers d'individus et, au fil du combat, les pertes s'accumulaient massivement. Cependant, tous ceux qui mouraient appartenaient au même groupe. L'autre groupe affichait des expressions sanguinaires, leurs gueules perçant les corps de leurs adversaires.
+Chacun de ces deux groupes comptait plus de dix mille individus et, au fil du combat, les pertes s'accumulaient massivement. Cependant, tous ceux qui mouraient appartenaient au même groupe. L'autre groupe affichait des expressions sanguinaires, leurs gueules perçant les corps de leurs adversaires.
 
 Ce groupe de bêtes moustiques était, en réalité, indemne!
 
-En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante de plus de mille pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
+En un instant, l'essaim qui subissait de lourdes pertes poussa des cris lugubres et se retira en déroute. Le groupe de moustiques féroces s'élança pour les encercler. Une bête moustique géante d'environ mille pieds de long, aussi imposante qu'une petite montagne, surgit d'un pic lointain.
 
-Dès son apparition, une pression écrasante se propagea. Elle paraissait féroce, dotée d'une trompe acérée de plus de cent pieds de long. Sa présence marquait l'arrivée d'un roi.
+Dès son apparition, une pression écrasante se propagea. Elle paraissait féroce, dotée d'une trompe acérée de plusieurs centaines de pieds de long. Sa présence marquait l'arrivée d'un roi.
 
-La bête géante se précipita sur le groupe en retraite. Elle ravagea tout sur son passage avec une férocité extrême. Des cris de détresse résonnèrent et, en quelques instants seulement, plusieurs milliers de moustiques périrent.
+La bête géante se précipita sur le groupe en retraite. Elle ravagea tout sur son passage avec une férocité extrême. Des cris de détresse résonnèrent et, en quelques instants seulement, plus d'un millier de moustiques périrent.
 
-Alors que l'essaim suivant la géante s'élançait, il ne fallut pas longtemps pour que les dizaines de milliers de moustiques restants soient tous exterminés. Pas un seul n'échappa à la mort!
+Alors que l'essaim suivant la géante s'élançait, il ne fallut pas longtemps pour que les près de dix mille moustiques restants soient tous exterminés. Pas un seul n'échappa à la mort!
 
 La bête géante était couverte du sang de ses congénères. Une tristesse se cachait dans ses yeux froids. Durant ces cent dernières années, elle avait toujours été triste car elle ne pouvait retrouver son maître; elle ne pouvait que tuer pour évacuer sa douleur. La bête laissa échapper un sifflement aigu. Ce n'était pas de l'excitation, mais un cri de deuil, semblable à celui d'un enfant abandonné pleurant vers les cieux!
 

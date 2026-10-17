@@ -16,9 +16,9 @@ Contemplant le Luotian au loin, Wang Lin constata qu'il avait accompli les quatr
 
 Wang Lin ne pouvait espérer davantage et s'enfonça dans l'immensité avec un soupir.
 
-Le royaume à l'intérieur de la Bête des Limbes était sans limites; un chaos capable de s'étendre ou de se contracter à sa guise. En cet instant, l'intérieur était chaotique, et le cultivateur au triste sort explorait ces entrailles depuis des centaines d'années... « Cette bête est vraiment patiente. Elle a attendu des siècles, mais finalement, je n'ai pas pu tenir plus longtemps et je suis parti. Cependant, après l'effondrement du Royaume aux Sept Couleurs, où diable ai-je atterri... »
+Le royaume à l'intérieur de la Bête des Limbes était sans limites; un chaos capable de s'étendre ou de se contracter à sa guise. En cet instant, l'intérieur était chaotique, et le cultivateur au triste sort explorait ces entrailles depuis des centaines d'années... « Cette bête est vraiment patiente. Elle m'a attendu des siècles, mais elle n'a pas pu tenir aussi longtemps que ce vieux Daoïste et elle est partie quand même. Seulement, après l'effondrement du Royaume aux Sept Couleurs, où diable suis-je donc... »
 
-Le cultivateur était confus et perplexe. Il songeait à cela depuis des centaines d'années... « Bon sang, de quel domaine stellaire s'agit-il? Je n'ai rencontré aucune créature vivante depuis des siècles. Pourrais-je être dans une faille spatiale? Je ne le crois pas! Il doit bien y avoir un moyen de sortir! » Le vieux cultivateur s'encourageait ainsi depuis des centaines d'années afin de préserver sa santé mentale tout en poursuivant ses recherches...
+Le cultivateur était confus et perplexe. Il songeait à cela depuis des centaines d'années... « Bon sang, de quel domaine stellaire s'agit-il? Je n'ai rencontré aucune créature vivante depuis des siècles. Pourrais-je être dans une faille spatiale? Je ne le crois pas! Il doit bien y avoir un moyen de sortir! » Le vieux Daoïste s'encourageait ainsi depuis des centaines d'années afin de préserver sa santé mentale tout en poursuivant ses recherches...
 
 Dans le Luotian, une planète maculée de sang flottait parmi les étoiles. Au milieu de la voûte céleste, cette planète émettait une lumière rouge monstrueuse qui illuminait toute la zone. On pouvait ressentir sa puissante aura sanguine même les yeux fermés.
 
@@ -50,7 +50,7 @@ L'ancien démon menait la marche, une trace de froideur dissimulée dans le rega
 
 Toute la planète sanglante trembla et une fissure gigantesque apparut!
 
-Cette brèche traversait l'astre tout entier, comme si quelqu'un taillait la planète avec un mot colossal. Tandis que des grondements tonitruants résonnaient, Wang Lin vit cette planète de sang se scinder en deux demi-sphères.
+Cette brèche traversait l'astre tout entier, comme si quelqu'un taillait la planète avec une épée tranchante. Tandis que des grondements tonitruants résonnaient, Wang Lin vit cette planète de sang se scinder en deux demi-sphères.
 
 Des filaments de sang couvraient l'espace entre les deux moitiés, assez denses pour troubler la vue. On pouvait distinguer, au milieu de ces lignes de sang infinies, une faille spatiale de cent pieds de long.
 
@@ -64,9 +64,9 @@ L'ancien démon hocha vivement la tête et avança prudemment. Les lignes de san
 
 Wang Lin suivit l'ancien démon avec lenteur.
 
-Ce dernier était extrêmement nerveux. Il savait que sa survie dépendait entièrement de cette épreuve. Les lignes de sang reculèrent progressivement jusqu'à ce qu'il ne soit plus qu'à cent pieds de la faille spatiale. Sa tension atteignait son paroxysme, mais il ne la laissa paraître.
+Ce dernier était extrêmement nerveux. Il savait que sa survie dépendait entièrement de cette épreuve. Les lignes de sang reculèrent progressivement jusqu'à ce qu'il arrive devant la faille spatiale de cent pieds. Sa tension atteignait son paroxysme, mais il ne la laissa paraître.
 
-L'ancien démon s'arrêta devant la faille et chuchota: « C'est ici, l'autel est à l'intérieur... » Il attendait. Il attendait que l'autre entre, qu'il entre lui-même, que Wang Lin l'accompagne, ou même qu'un esclave serve de sacrifice.
+L'ancien démon s'arrêta devant la faille et chuchota: « C'est ici, l'autel est à l'intérieur... » Il attendait. Il attendait que Wang Lin y entre seul, qu'il l'y laisse entrer, qu'il y entre avec lui, ou même qu'il y envoie l'un de ses serviteurs.
 
 Peu importe ce qui arriverait, tant que quelqu'un franchissait le seuil, il était certain de pouvoir s'échapper. En ce moment critique, la tension dans son esprit était si forte qu'il ne pouvait se permettre aucune faille.
 
@@ -104,14 +104,14 @@ Simultanément, la faille se referma et disparut promptement.
 
 « Il existe trois autels du Clan de l'Extermination du Sceau. Chacun peut être trouvé à l'intérieur d'un pavillon de sang. Il n'y en a qu'un ici, les deux autres sont perdus. J'espère que vous tiendrez votre promesse et me donnerez ma chance! » L'ancien démon sourit amèrement et ferma les yeux. Il ignorait l'étendue des connaissances de Wang Lin, mais à l'ultime instant, il n'avait pas eu le courage de risquer sa vie.
 
-Wang Lin agita la main droite et emprisonna l'ancien démon dans son espace de stockage. Il contempla ensuite silencieusement le pavillon rouge. Il en possédait un lui aussi... Après un moment de silence, Wang Lin le rangea et disparut parmi les étoiles d'un seul pas. L'esprit de Wang Lin était celui d'un démon; bien que l'ancien démon fût rusé, il ne faisait pas le poids. Les paroles et les actes de Wang Lin n'étaient que les pièces d'une bataille mentale dont l'ancien démon venait de sortir vaincu.
+Wang Lin agita la main droite et emprisonna l'ancien démon dans son espace de stockage. Il contempla ensuite silencieusement le pavillon rouge. Il en possédait un lui aussi... Après un moment de silence, Wang Lin le rangea et disparut parmi les étoiles d'un seul pas. L'esprit de Wang Lin était aussi retors que celui d'un démon; bien que l'ancien démon fût rusé et que Wang Lin n'en connût pas le fin mot, ses paroles sondeuses et les changements de son expression s'étaient mués en une bataille mentale, dont l'ancien démon était sorti vaincu.
 
 À la lisière du Système Stellaire de Luotian, là où il rejoint le Système Stellaire de la Mer des Nuages, Wang Lin apparut. Il observa le vide, maintenant que la barrière entre les deux systèmes avait disparu.
 
-« Shui Daozi! Je prendrai ma revanche sur le passé! »
+« Shui Daozi!! La haine d'autrefois, aujourd'hui Wang vient réclamer ton âme! »
 
 Monde Extérieur, Système Stellaire Antique.
 
 L'ordre du Conseil Souverain fut diffusé dans tout le système stellaire, vers chaque clan et chaque membre de l'univers antique!
 
-« Ceci est la volonté du Royaume Céleste Antique! Des dizaines de milliers d'années ont passé, et le pouvoir du Domaine Scellé s'est éveillé. La troisième bataille contre le Domaine Scellé va commencer. Que les différents clans du Système Stellaire Antique obéissent à l'ordre du Conseil Souverain: faites couler le Royaume Intérieur dans le sang! »
+« Ceci est la volonté du Royaume Céleste Antique! Des dizaines de milliers d'années ont passé, et le pouvoir du Royaume Scellé s'est de nouveau éveillé. La troisième bataille contre le Royaume Scellé va commencer. Que les différents clans du Système Stellaire Antique, dès aujourd'hui, obéissent à l'ordre du Conseil Souverain et se tiennent prêts: baignez le Royaume Scellé dans le sang! »

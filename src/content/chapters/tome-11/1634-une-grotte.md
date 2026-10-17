@@ -60,7 +60,7 @@ Dans son effondrement, un éclair déformé apparut devant Wang Lin. L'éclair a
 
 En contemplant cet éclair aux neuf couleurs scellé dans le soleil, Wang Lin revit vaguement l'éclair destructeur qui avait dévalé du ciel la première fois qu'il avait affronté la rétribution divine.
 
-« J'ai longtemps soupçonné que rien dans ce monde n'apparaissait sans raison... Même la rétribution divine ne surgit pas de elle-même. Elle est le fait d'une puissance étrange ou d'une existence puissante! »
+« J'ai longtemps soupçonné que rien dans ce monde n'apparaissait sans raison... Même la rétribution divine ne surgit pas d'elle-même. Elle est le fait d'une puissance étrange ou d'une existence puissante! »
 
 Tout en murmurant, Wang Lin tendit la main vers l'éclair aux neuf couleurs. Des grondements de tonnerre éclatèrent alors qu'il volait vers lui, et il le saisit dans sa main.
 
@@ -68,7 +68,7 @@ L'éclair continuait de se tordre, comme s'il refusait de se soumettre à Wang L
 
 Tenant l'éclair, Wang Lin hésita.
 
-« Je peux comprendre comment la rétribution divine a été créée... J'ai aussi une hypothèse. Mais est-ce seulement que je souhaite confirmer cette hypothèse... » Après un long moment, le regard de Wang Lin devint résolu. Son puissant Sens Divin se déploya et pénétra l'éclair qu'il tenait. Il voulait découvrir qui avait créé la rétribution divine.
+« Je peux comprendre comment la rétribution divine a été créée... J'ai aussi une hypothèse. Mais dois-je vraiment le savoir, dois-je vraiment confirmer cette hypothèse... » Après un long moment, le regard de Wang Lin devint résolu. Son puissant Sens Divin se déploya et pénétra l'éclair qu'il tenait. Il voulait découvrir qui avait créé la rétribution divine.
 
 À l'instant où son Sens Divin pénétra l'éclair, un fracas de tonnerre résonna dans son esprit. Sa vision devint floue, comme si le temps reculait de millions d'années!
 
@@ -100,7 +100,7 @@ L'image se dissipa et le Sens Divin de Wang Lin retourna en lui. Son corps tremb
 
 Wang Lin murmura: « J'aurais dû le deviner depuis longtemps... »
 
-« Grotte... Grotte... Le Vieux Fantôme Zhan avait dit que le Royaume Intérieur était la grotte intérieure. Cela aurait dû être une évidence, mais je refusais d'y croire... Comme l'Illustre Esprit Dispersé des 7 Millions de Mondes. Il a découvert le secret et a failli sombrer dans la folie... »
+« Grotte... Grotte... Le Vieux Fantôme Zhan avait dit que le Royaume Intérieur était la grotte intérieure. Cela aurait dû être une évidence, mais je refusais d'y croire... Comme le Daoïste Esprit Dispersé des 7 Millions de Mondes. Il a découvert le secret et a failli sombrer dans la folie... »
 
 « Grotte... Grotte... Ainsi, il s'avère que mon monde, les Royaumes Intérieur et Extérieur, n'est qu'une grotte appartenant à un puissant cultivateur du Continent Astral Immortel!!! »
 

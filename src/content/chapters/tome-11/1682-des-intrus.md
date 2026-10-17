@@ -20,15 +20,15 @@ Alors que Wang Lin atteignait le bord de la faille et s'apprêtait à partir, il
 
 « Au sein du Clan du Tonnerre Dispersé, j'ai appris qu'il y a bien longtemps, un groupe de personnes mystérieuses était apparu. Ils portaient des vêtements étranges et possédaient des sorts et des trésors sans précédent... Lorsque j'ai absorbé le tonnerre éternel, j'ai perçu sa mémoire et vu des images vagues de ce groupe... »
 
-« Il y avait aussi le Fouet de l'Âme. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait à Na Duo! »
+« Il y avait aussi le Fouet d'Âmes. Ce fouet était un trésor qui leur appartenait. J'avais envisagé de me rendre sur la Planète des Cinq Éléments pour trouver Na Duo! Le chef de ce groupe ressemblait à Na Duo! »
 
 « D'après les nouvelles du Clan du Tonnerre Dispersé, ces cultivateurs mystérieux venaient de l'extérieur du Système Stellaire Antique. Cependant, il n'y a rien au-delà, ils sont donc clairement des cultivateurs provenant du Continent Astral Immortel! » Les yeux de Wang Lin brillèrent d'un éclat vif et son esprit s'éclaircit alors qu'il poursuivait son analyse.
 
 Il n'avait pas entendu les paroles des membres de la Secte Gui Yi, mais à mesure qu'il réfléchissait, la vérité commençait à se dessiner. Une spéculation audacieuse surgit dans son cœur!
 
-« Le Souverain Céleste aux Sept Couleurs de la Secte des Sept Dao a conquis le Dao Céleste et a abandonné son partenaire de Dao. Il a scellé la Secte des Sept Dao pour méditer sur le Dao Céleste à l'intérieur de sa grotte. »
+« Le Souverain Céleste aux Sept Couleurs de la Secte des Sept Dao a conquis le Dao Céleste et a abandonné son partenaire de Dao. Il a scellé la Secte des Sept Dao pour méditer sur le Dao Céleste à l'intérieur de sa grotte, qu'il a aussi complètement scellée. »
 
-« Cependant, son comportement a éveillé les soupçons d'autrui. Un jour, un individu doté d'un talent prodigieux sur le Continent Astral Immortel a utilisé une méthode spéciale pour ouvrir un passage direct vers la grotte du Souverain Céleste aux Sept Couleurs! »
+« Cependant, son comportement a éveillé les soupçons d'autrui. Un jour, une autre secte du Continent Astral Immortel, dont l'un des membres possédait un talent prodigieux, a utilisé une méthode spéciale pour ouvrir un passage direct vers la grotte du Souverain Céleste aux Sept Couleurs! »
 
 « Ils sont arrivés par ce passage!! »
 
@@ -62,7 +62,7 @@ Après avoir scellé la faille, la main droite de Wang Lin s'agita si vite qu'el
 
 Une fois cela accompli, Wang Lin resta silencieux, pensif, mais une certaine inquiétude le taraudait. Il leva la main droite vers le vide et le monde trembla. La tête géante qu'il avait récupérée dans l'ancienne tombe pour cultiver les Feuilles Anciennes apparut soudainement.
 
-Il restait encore une grande quantité d'arbres séchés sur celle-ci, mais de nombreuses Feuilles Anciennes avaient poussé. Il y a trois ans, lorsque Wang Lin avait absorbé toutes ces statues ancestrales dans le Royaume Céleste Antique, il avait lentement infusé de la puissance ancestrale en ce lieu. Ces feuilles avaient grandi grâce à cela.
+Il restait encore une grande quantité d'arbres séchés sur celle-ci, mais de nombreuses Feuilles Anciennes avaient poussé. Il y a trois ans, lorsque Wang Lin avait absorbé la puissance des statues des trois clans anciens dans le Royaume Céleste Antique, il avait lentement infusé de la puissance ancestrale en ce lieu. Ces feuilles avaient grandi grâce à cela.
 
 D'un geste, quelques dizaines de feuilles anciennes complètes s'envolèrent des arbres pour atterrir dans la main de Wang Lin. Il agita la main et ces feuilles se posèrent sur la faille scellée, renforçant le sceau une fois de plus!
 
@@ -100,13 +100,10 @@ Des grondements tonitruants retentirent. Sous le contrôle de Wang Lin, il extir
 
 Le continent flottait là, émettant d'immenses quantités d'énergie céleste. Cette énergie était différente de celle du Continent Astral Immortel; elle avait été altérée par les Flammes Joss et constituait une énergie céleste propre au monde des grottes!
 
-Il y a fort longtemps, le Seigneur du Royaume Céleste avait créé ces quatre continents pour recueillir les Flammes Joss. En conséquence, les continents des quatre Royaumes Célestes étaient distincts des autres.
+Il y a fort longtemps, le Seigneur du Royaume Scellé avait créé ces quatre continents pour recueillir les Flammes Joss. En conséquence, les continents des quatre Royaumes Célestes étaient distincts des autres.
 
 Les bêtes moustiques présentes sur le continent étaient écrasées par la pression de Wang Lin; elles ne pouvaient s'envoler, mais seulement trembler en suivant le mouvement du continent.
 
 Les étoiles rugissaient tandis que Wang Lin restait assis sur le continent. Bien que ses yeux fussent clos, son Sens Divin dirigeait la masse pour qu'elle vole vers la Rivière Invoquée. Il se dirigeait vers le Royaume Céleste de la Foudre!
 
 Le Royaume Céleste de la Foudre était le seul qu'il n'avait pas encore visité. Cet endroit diffusait d'innombrables éclats lumineux créant un reflet magnifique.
-
-***
-1. La momie qui avait dérobé un sac de stockage à Wang Lin sur la planète Suzaku et qui était revenue pour le récupérer. C'est lui qui avait confié à Wang Lin que le cristal planétaire pourrait aider à briser les limites du Royaume Ji.

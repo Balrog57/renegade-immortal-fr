@@ -10,7 +10,7 @@ Le regard de Wang Lin devint sérieux alors qu'il fixait la brume devant lui. Ce
 
 « Intéressant… » murmura Wang Lin pour lui-même. Il regarda ensuite le symbole numérique qu'il avait pris sur elle. Il écarta la marque sur le côté et laissa la plateforme s'élancer vers l'avant. Après un long moment, il sortit une autre âme de diable ancien et la broya pour en extraire la puissance de diable ancien. Puis, il puisa davantage de puissance de démon ancien dans sa gourde et la fusionna avec sa propre puissance de dieu ancien. Sans hésiter, il porta ensuite sa main sur son propre front.
 
-Un fracas tonitruant retentit. Le visage de Wang Lin trembla et son énergie originelle circula à une vitesse fulgurante. Il pâlit, mais ses yeux s'illuminèrent. À cet instant, les trois puissances formèrent un vortex entre ses sourcils, et une douleur aiguë, comme si quelque chose le transperçait, envahit son corps.
+Un fracas tonitruant retentit. Le corps de Wang Lin trembla et son énergie originelle circula à une vitesse fulgurante. Il pâlit, mais ses yeux s'illuminèrent. À cet instant, les trois puissances formèrent un vortex entre ses sourcils, et une douleur aiguë, comme si quelque chose le transperçait, envahit son corps.
 
 Un instant plus tard, la douleur intense disparut, et un symbole numérique apparut entre ses sourcils!
 
@@ -42,7 +42,7 @@ C'était pour cette raison qu'il ne serait pas effacé comme la jeune fille du C
 
 « Tuer les autres pour obtenir leurs marques n'est pas la seule méthode. Je ne peux rivaliser avec ces vieux monstres et je manque de temps, mais j'ai un autre moyen! »
 
-Wang Lin sourit en fusionnant une fois de plus les pouvoirs des trois clans pour former cette puissance mystérieuse. Il pressa son front avec hésitation et, dès que le symbole apparut, il l'arracha aussitôt.
+Wang Lin sourit en fusionnant une fois de plus les pouvoirs des trois clans pour former cette puissance mystérieuse. Il pressa son front sans la moindre hésitation et, dès que le symbole apparut, il l'arracha aussitôt.
 
 1, 2, 10, 30… En un clin d'œil, Wang Lin créa près de cent symboles numériques en utilisant son propre corps, puis les fusionna avec la plateforme sous ses pieds.
 
@@ -66,9 +66,9 @@ Une autre partie de la carte apparut dans l'esprit de Wang Lin! Cependant, son a
 
 «...le palais terrestre est destiné aux âmes. Ce seigneur a tué trois Seigneurs Célestes et a emprisonné leurs âmes en son sein. J'avais initialement prévu de les raffiner pour en faire mes avatars, mais ceux qui viendront plus tard pourront s'en saisir. Toutefois, ces trois âmes sont extrêmement puissantes; si vous n'avez pas confiance en vous, ne les libérez pas... »
 
-« Ces trois âmes étaient des individus particulièrement cruels… »
+« Ces trois âmes, de leur vivant, étaient toutes des figures illustres… »
 
-La voix se dissipa. L'esprit de Wang Lin trembla: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également obtenu quelques indices concernant l'Épée Renhu.
+La voix se dissipa. L'esprit de Wang Lin trembla: il comprenait enfin ce que signifiait le palais terrestre mentionné la première fois! Il avait également obtenu quelques indices concernant l'Épée Renhe.
 
 Au moment où la plateforme de Wang Lin atteignit le rang 7, le Maître Démon Neuf Cieux, qui se trouvait dans la huitième carte et venait lui aussi d'atteindre le rang 7, se redressa. Il ouvrit les yeux et regarda en arrière.
 
@@ -84,13 +84,13 @@ Elle avait également remarqué cette scène étrange, mais ne parvenait pas à 
 
 Ce changement interrompit ses pensées.
 
-Un flux incessant d'air circulait dans la neuvième carte, forçant Tuo Sen à ralentir. L'expression féroce, il avança d'un pas.
+Dans la neuvième carte, les turbulences spatiales étaient denses et presque infinies, forçant Tuo Sen à ralentir. L'expression féroce, il avança d'un pas.
 
 « Maudit Tombeau de l'Ordre Antique, maudite Ordre Antique pour avoir rendu cet héritage aussi difficile à obtenir! Ye Mo de l'Ordre Antique, je suis l'un des membres de ton clan. Si tu ne me le donnes pas, à qui comptes-tu bien le donner… »
 
-Sur la plateforme de rang 1 située aux côtés de Tuo Sen, l'expression de la belle femme devint sérieuse. Elle n'avait plus rien de coquet et regarda derrière elle.
+Derrière Tuo Sen, sur une plateforme de rang 7, l'expression de la belle femme devint sérieuse. Elle n'avait plus rien de coquet et regarda derrière elle.
 
-« Un autre est apparu… Pourtant, il est loin de la neuvième carte. Je suis déjà dans la neuvième carte, et avec Tuo Sen pour me guider, je vais bien plus vite qu'eux… Les autres ne pourront peut-être pas entrer dans le palais terrestre, mais moi, si! De plus, Ye Mo n'a pas dit toute la vérité. Outre ces trois Seigneurs Célestes, il y a autre chose… Quelque chose que même ce vieux débris voudrait… » Une lueur de cupidité brilla dans ses yeux.
+« Un autre rang 7 est apparu… Pourtant, il est encore loin du rang 9. Je suis déjà dans la neuvième carte, et avec Tuo Sen pour détecter la direction, j'irai bien plus vite qu'eux… Ces trois Seigneurs Célestes du palais terrestre, les autres ne pourront peut-être pas les maîtriser, mais moi, j'en suis sûre! De plus, Ye Mo n'a pas dit toute la vérité. Outre ces trois Seigneurs Célestes, il y a autre chose… Quelque chose que même ce vieux débris voudrait… » Une lueur de cupidité brilla dans ses yeux.
 
 Nul n'aurait pu imaginer la méthode employée par Wang Lin pour augmenter le rang de sa plateforme. Wang Lin ne s'arrêta pas; il continua d'utiliser ce procédé pour former rune après rune.
 
@@ -104,7 +104,7 @@ Heureusement, Wang Lin avait obtenu plusieurs trésors de démons anciens depuis
 
 Cela suffisait tout juste à suivre le rythme auquel il forgeait les runes.
 
-Après plusieurs heures, le dernier trésor de démon ancien de Wang Lin vola en éclats. Il en extraisit la puissance et la fusionna avec ses puissances de dieu ancien et de démon ancien. Il créa une ultime rune qu'il plaça sur la plateforme. À cet instant, un éclat de lumière dorée jaillit et la plateforme grandit à nouveau!
+Après plusieurs heures, le dernier trésor de démon ancien de Wang Lin vola en éclats. Il en extirpa la puissance et la fusionna avec ses puissances de dieu ancien et de diable ancien. Il créa une ultime rune qu'il plaça sur la plateforme. À cet instant, un éclat de lumière dorée jaillit et la plateforme grandit à nouveau!
 
 La brume environnante recula comme en proie à la folie et toute la mer de brume fut agitée. La plateforme sous Wang Lin s'étendit et atteignit instantanément 80 000 pieds!
 

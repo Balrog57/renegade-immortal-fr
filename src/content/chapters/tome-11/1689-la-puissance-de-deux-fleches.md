@@ -48,7 +48,7 @@ Alors qu'elle fonçait, la flèche s'étendit jusqu'à atteindre des dizaines de
 
 Dans un fracas assourdissant, trois Célestes s'effondrèrent et moururent dans des cris misérables!
 
-Des grondements tonitruants continuèrent de résonner alors que les corps de trois autres Célestes tremblaient avant de s'écrouler. Juste au moment où leurs âmes originelles tentaient de s'échapper, elles se désintégrèrent. Ils furent détruits par ce monde des grottes qu'ils méprisaient tant!
+Des grondements tonitruants continuèrent de résonner alors que les corps de quatre autres Célestes tremblaient avant de s'écrouler. Juste au moment où leurs âmes originelles tentaient de s'échapper, elles se désintégrèrent. Ils furent détruits par ce monde des grottes qu'ils méprisaient tant!
 
 La flèche projeta une lumière dorée qui illumina tout le système stellaire et continua de se propager. Les grondements persistèrent et, en un clin d'œil, huit autres Célestes périrent.
 
@@ -84,7 +84,7 @@ Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux fonçaient à travers le
 
 « Ce vieil homme va extraire un fragment de ton âme pour alimenter la Lanterne Céleste pendant dix mille ans. Ce n'est qu'en écoutant tes souffrances durant dix mille ans que ma haine pourra s'éteindre! » La haine brûlait dans les yeux du Maître Démon Neuf Cieux.
 
-Wang Lin banda effectivement l'arc une seconde fois. C'était la première fois qu'il le faisait deux fois de suite. Cette fois, son front était couvert de sueur. La goutte de sang céleste doré entre ses sourcils s'estompait rapidement alors qu'il tendait l'arc jusqu'à sa pleine extension. La flèche qui avait été tirée dans le Royaume Céleste Antique était réapparue sur la corde!
+Wang Lin banda effectivement l'arc une seconde fois. C'était la première fois qu'il le faisait deux fois de suite. Cette fois, son front était couvert de sueur. La lueur dorée de la lignée céleste, fusionnée dans ses yeux, s'estompait rapidement alors qu'il tendait l'arc jusqu'à sa pleine extension. La flèche qui avait été tirée dans le Royaume Céleste Antique était réapparue sur la corde!
 
 Cette flèche était maculée de sang et dégageait une odeur ferreuse et écœurante!
 

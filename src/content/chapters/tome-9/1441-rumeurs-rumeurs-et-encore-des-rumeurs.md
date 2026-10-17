@@ -25,7 +25,7 @@ Bien que ce fût bref, l'élimination fut d'une cruauté extrême. Parmi des cen
 
 L'expression de Wang Lin demeura calme tandis qu'il s'asseyait pour cultiver. Il convertissait la chair et le sang qu'il avait absorbés afin de favoriser sa récupération. Il n'avait pas révélé trop de ses méthodes; son identité de cultivateur du Feu Éthéré, ses sorts puissants et ses divers trésors restaient secrets.
 
-Cet endroit était imprégné de danger et d'une étrange atmosphère. La menace ne provenait pas seulement de la tombe elle-même; de nombreux cultivateurs aux pouvoirs cachés rôdaient autour, dégageant une aura mystérieuse. Il devait donc faire preuve de sa puissance de la manière la plus efficace possible.
+Cet endroit était imprégné de danger et d'une étrange atmosphère. La menace ne provenait pas seulement de la tombe elle-même, mais aussi des cultivateurs alentour. Mieux valait donc rester un peu discret pour paraître insondable, et n'affirmer sa puissance qu'au besoin: c'était la méthode la plus efficace.
 
 Les cultivateurs sur les plateformes poussèrent secrètement des soupirs de soulagement et se mirent à cultiver. Cependant, une tension sous-jacente persistait et chacun observait attentivement ses voisins. Bien que la bataille précédente eût été courte, tout le monde avait prêté attention aux sorts utilisés par autrui.
 
@@ -45,7 +45,7 @@ La femme aux longs cheveux détourna lentement son regard pour ensuite fixer Wan
 
 Alors que chacun s'observait secrètement tout en se soignant, l'environnement commença peu à peu à se calmer. Même la mer de brouillard semblait s'apaiser. Après un bref instant de récupération, un cultivateur se leva et chargea vers le trésor situé devant la tête sur sa plateforme.
 
-Wang Lin ouvrit les yeux et tendit la main droite. Le drapeau de 30 pieds qui trônait devant la tête du démon antique vola vers lui. Il l'examina: c'était un trésor démoniaque ancien, mais sans prétention particulière. Wang Lin le rangea silencieusement et se leva.
+Wang Lin ouvrit les yeux et tendit la main droite. Le drapeau de 30 pieds qui trônait devant la tête du Dieu Ancien vola vers lui. Il l'examina: c'était un trésor de Dieu Ancien, mais qui n'avait rien d'exceptionnel. Wang Lin le rangea silencieusement et se leva.
 
 Cependant, à cet instant précis, un changement colossal survint!
 
@@ -55,7 +55,7 @@ Dans un mouvement brusque, elles commencèrent à s'enfoncer rapidement. Le chan
 
 Le vent hurlait autour des plateformes en chute libre. Une force de traction brutale s'abattit sur les corps des cultivateurs; on aurait dit que le sang allait être arraché de leurs veines sous l'effet de la descente rapide. Toutefois, ceux qui avaient survécu à la première vague de massacre étaient des individus puissants. Malgré la soudaineté du phénomène, aucun ne cria; ils se cramponnèrent à leur plateforme tout en plongeant.
 
-Le ciel s'éloignait de plus en plus. Les plateformes restantes ne devinrent bientôt plus que de petites taches noires dans leur champ de vision. Ces 28 plateformes engloutirent le brouillard en un éclair. La brume gronda et tourbillonna autour d'elles avant qu'elles ne soient totalement submergées.
+Le ciel s'éloignait de plus en plus. Les innombrables autres plateformes, dont la protection n'avait pas été levée, ne devinrent bientôt plus que de petites taches noires dans leur champ de vision. Ces 28 plateformes s'enfoncèrent en un éclair dans le brouillard. La brume gronda et tourbillonna autour d'elles avant de les submerger totalement.
 
 Le regard de Wang Lin se fit grave alors qu'il voyait le brouillard entourer sa plateforme. Il avait l'impression que son socle était tombé en enfer, entamant une descente sans fin. Après un temps indéterminé, un fracas assourdissant retentit et la chute cessa. Les environs étaient noyés dans une brume rendant toute visibilité impossible.
 
@@ -77,4 +77,4 @@ Les yeux de Wang Lin brillèrent. Il percevait des émotions oppressantes émana
 
 Les cultivateurs du Feu Éthéré étaient des êtres extrêmement mystérieux dans les Royaumes Intérieurs et Extérieurs, car très peu en avaient croisé. Cependant, ils jouissaient d'une réputation légendaire dans le Système Stellaire Antique! Comme ils n'avaient pas été vus depuis des dizaines de milliers d'années, des rumeurs s'étaient propagées, prétendant qu'ils étaient aussi puissants que des cultivateurs du troisième pas!
 
-Ces légendes habitaient le cœur des cultivateurs du Système Stellaire Antique. Tous les présents étaient puissants et connaissaient ces récits terrifiants: des rumeurs disant qu'un simple geste d'un cultivateur du Feu Éthéré pouvait réduire des milliers de personnes en cendres... Des rumeurs affirmant que son regard pouvait enflammer les sept émotions, ne laissant aucun survivant... Des rumeurs prétendant qu'ils étaient le cauchemar de leurs ennemis, capable de consumer l'adversaire en embrasant ses propres émotions... Des rumeurs selon lesquelles la colère d'un tel être pourrait embraser celle de tous, le laissant seul debout au sommet d'une montagne de cadavres... Rumeurs... Rumeurs... Encore des rumeurs... À l'exception de la jeune fille du Clan de l'Extermination des Sceaux, personne ici, pas même la femme en blanc, ne savait qu'un légendaire cultivateur du Feu Éthéré se cachait parmi eux... Car avant d'être utilisé, le Feu Éthéré est invisible...
+Ces légendes habitaient le cœur des cultivateurs du Système Stellaire Antique. Tous les présents étaient puissants et connaissaient ces récits terrifiants: des rumeurs disant qu'un simple geste d'un cultivateur du Feu Éthéré pouvait réduire des milliers de personnes en cendres... Des rumeurs affirmant que son regard pouvait enflammer les sept émotions, sans que personne puisse y résister... Des rumeurs prétendant qu'ils étaient le cauchemar de leurs ennemis, capable de consumer l'adversaire en embrasant ses propres émotions... Des rumeurs selon lesquelles la colère d'un tel être pourrait embraser celle de tous, le laissant seul debout au sommet d'une montagne de cadavres... Rumeurs... Rumeurs... Encore des rumeurs... À l'exception de la jeune fille du Clan de l'Extermination des Sceaux, personne ici, pas même la femme en blanc, ne savait qu'un légendaire cultivateur du Feu Éthéré se cachait parmi eux... Car avant d'être utilisé, le Feu Éthéré est invisible...

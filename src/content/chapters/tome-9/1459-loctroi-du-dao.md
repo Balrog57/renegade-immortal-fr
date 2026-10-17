@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1459 - Granting Dao
 slug: loctroi-du-dao
 ---
-« Il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique! L’Empereur Céleste Antique a attiré l’Ordre Antique ici… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser pour élever le Dao Céleste!
+« Il est fort probable que l’autre méthode envisagée par l’Empereur Céleste Antique soit liée à l’Ordre Antique! L’Empereur Céleste Antique a attiré l’Ordre Antique ici… Il a manigancé autour de l’Ordre Antique et même des trois clans. Il voulait les utiliser, à la place des esprits du Dao, pour nourrir le Dao Céleste!
 
 « Un être comme l’Empereur Céleste Antique n'agirait que s'il était sûr à 100 % de son coup, il a donc dû réussir… Cependant, comment le Dao Céleste a-t-il pu être détruit en fin de compte?
 
@@ -16,7 +16,7 @@ slug: loctroi-du-dao
 
 « Il y a aussi cette femme en argent qui a hurlé et s’est déchaînée après avoir vu la statue du taoïste aux sept couleurs. Elle ne cessait de répéter qu'elle n'avait pas ouvert la porte… Quelle était donc cette porte, et pourquoi le taoïste aux sept couleurs était-il si en colère qu'il en déclencha un massacre?
 
-« Cette porte, pourrait-elle être celle qui mène au Dao Céleste? Ou une porte scellant son ennemi? Ou… une porte vers un autre monde?
+« Cette porte, pourrait-elle être celle qui sert à nourrir le Dao Céleste? Ou une porte scellant son ennemi? Ou… une porte vers un autre monde?
 
 « Ou bien tout ce que j'ai supposé est faux… » Wang Lin fronça les sourcils; il ne pouvait analyser les choses qu'à ce point avec les indices dont il disposait. Il n'était lui-même pas certain de grand-chose.
 
@@ -64,11 +64,11 @@ Le chaos à l'intérieur du fourneau se dissipa et une mer noire apparut devant 
 
 « Affine! » Wang Lin pointa l'océan du doigt et la mer de poison sembla s'enflammer. Des rugissements étouffés retentirent et de grandes vagues formèrent des tourbillons qui rageaient violemment.
 
-« Cette mer est composée du poison de la Grande Désolation ainsi que des âmes de Flamme Joss du Maître Dao Miao Yin. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
+« Cette mer est composée du poison issu de l'étrange langue de la Grande Désolation ainsi que des âmes de Flamme Joss du Maître Dao Miao Yin. Une fois raffinée, elle deviendra un puissant trésor empoisonné! »
 
 L'expression de Wang Lin était calme tandis qu'il commençait le raffinage.
 
-L'océan à l'intérieur du Fourneau Impérial rugissait avec encore plus de violence. Les innombrables âmes de Flamme Joss poussaient des cris stridents, d'une dureté extrême. Heureusement, elles étaient contenues par le Fourneau Impérial; ainsi, lorsqu'elles atteignaient l'extérieur, leur intensité était bien amoindrie.
+L'océan à l'intérieur du Fourneau Impérial rugissait avec encore plus de violence. Les innombrables âmes de Flamme Joss poussaient des cris stridents, extrêmement perçants. Heureusement, elles étaient contenues par le Fourneau Impérial; ainsi, lorsqu'elles atteignaient l'extérieur, leur intensité était bien amoindrie.
 
 Des grondements tonitruants se succédèrent sans relâche et une épaisse brume noire flotta au-dessus de l'océan. Cette brume était l'océan qui, raffiné en gaz, commençait bientôt à remplir tout le Fourneau Impérial.
 
@@ -98,7 +98,7 @@ Tout en réfléchissant, Wang Lin projeta une parcelle de son Sens Divin dans le
 
 Une voix majestueuse résonna à l'intérieur du Fourneau Impérial. L'Estimé Ling Dong ouvrit les yeux, révélant ferveur et respect. Il s'élança alors au-dessus de l'océan.
 
-Il s'arrêta à cent pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave antique Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave! »
+Il s'arrêta à plusieurs centaines de pieds de Wang Lin et s'agenouilla dans les airs. « L'esclave antique Ling Dong salue le Maître. Je me demande si le Maître a une tâche à confier à cet esclave! »
 
 Le fantôme de Wang Lin fixa froidement l'Estimé Ling Dong. Après un long silence, il dit lentement: « Je vais te transmettre un sortilège. Je pense qu'avec ton niveau de culture, tu devrais être capable de l'apprendre rapidement. Grâce à lui, tu pourras absorber les Flammes Joss ici et atteindre la véritable troisième étape! »
 
@@ -112,7 +112,7 @@ Wang Lin leva la main droite et pointa l'avant. Un sceau fonça vers Ling Dong. 
 
 Wang Lin retira son regard. Il était extrêmement satisfait d'avoir assujetti l'Estimé Ling Dong. Avec le Fourneau Impérial et bien d'autres méthodes, il n'avait aucune crainte qu'il ne le trahisse.
 
-« Si je rencontre un autre cultivateur au début de la troisième étape, il ne sera pas difficile de les affronter avec Ling Dong à mes côtés... Si je peux capturer cette personne et raffiner un autre esclave antique... » Le Sens Divin de Wang Lin disparut du ciel pour retourner dans son corps.
+« Si je rencontre un autre expert de la troisième étape au début du Nirvana Vide, il ne sera pas difficile de les affronter avec Ling Dong à mes côtés... Si je peux capturer cette personne et raffiner un autre esclave antique... » Le Sens Divin de Wang Lin disparut du ciel pour retourner dans son corps.
 
 Au même moment, à l'extérieur, l'homme corpulent du Clan du Loup Céleste progressait sur sa plateforme de rang 5. Il se rapprochait inexorablement de cet endroit.
 

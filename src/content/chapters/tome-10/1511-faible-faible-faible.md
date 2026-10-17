@@ -8,7 +8,7 @@ slug: faible-faible-faible
 ---
 Au moment où le Shui Daozi agita la main, la montagne de l'image sembla perdre toute la puissance qui la soutenait. Elle commença sa chute, prête à écraser les membres de la Secte de l'Origine!
 
-Les cultivateurs vêtus de noir qui flottaient autour de la montagne restèrent de marbre, affichant des sourires cruels comme s'ils se délectaient de la mort tragique imminente des disciples de la Secte Origin.
+Les cultivateurs vêtus de noir qui flottaient autour de la montagne restèrent de marbre, affichant des sourires cruels comme s'ils se délectaient de la mort tragique imminente des disciples de la Secte de l'Origine.
 
 Cependant, à cet instant précis, une lueur sanglante teinta toute l'image de rouge.
 
@@ -28,7 +28,7 @@ Lors de son éclatement, d'innombrables rochers massifs furent projetés dans to
 
 L'épée de sang brilla une fois de plus. Sa vitesse était inimaginable. Dans un scintillement de lumière rouge, les rochers en chute furent pulvérisés de nouveau. Des vagues de cris déchirants retentirent lorsque les cultivateurs en noir découvrirent des trous ensanglantés dans leurs poitrines!
 
-Plusieurs d'entre eux virent des lignes de sang apparaître entre leurs sourcils: l'épée de sang avait tranché leurs corps et leurs têtes!
+Plusieurs d'entre eux virent des lignes de sang apparaître entre leurs sourcils: l'épée de sang avait transpercé leurs corps et leurs têtes!
 
 Un grondement de tonnerre résonna et le regard des cultivateurs en noir s'obscurcit. Ils chutèrent au sol, sans vie! Leurs âmes originelles n'avaient pu s'échapper de leurs corps et s'étaient effondrées!
 
@@ -48,11 +48,11 @@ L'épée de sang à ses côtés, Wang Lin avança vers le Shui Daozi stupéfait,
 
 Le monde trembla. Bien que Wang Lin ne fût pas un cultivateur du troisième pas, son corps était aussi puissant qu'un tel! Lorsqu'il leva la main, une paume gigantesque apparut dans le ciel!
 
-Cette paume couvrit l'horizon et descendit soudainement des cieux. Elle perça la montagne et fonça sur le Shui Daozi!
+Cette paume couvrit l'horizon et retomba soudainement derrière Wang Lin, traversant son corps pour fondre sur le Shui Daozi, sur les pics en contrebas!
 
 De loin, cette scène était inoubliable! Les cinq montagnes entourant le Shui Daozi ressemblaient à une paume, et elles entrèrent bientôt en collision avec l'illusion créée par Wang Lin!
 
-Le visage du Shui Daozi se décomposa. Alors que Wang Lin se rapprochait, ce dernier agita ses manches. Plusieurs clous aux sept couleurs apparurent et furent projetés vers Wang Lin!
+Le visage du Shui Daozi se tordit de férocité. Alors que Wang Lin s'approchait, il agita ses grandes manches. Plusieurs clous aux sept couleurs apparurent et furent projetés vers Wang Lin!
 
 « Petit bâtard, puisque tu cherches la mort, je vais exaucer ton vœu! » À cet instant, le Shui Daozi restait arrogant. Il agita la main, lançant plusieurs clous aux sept couleurs qui entrèrent en collision avec la paume de Wang Lin.
 
@@ -61,6 +61,8 @@ Des grondements tonnerreux secouèrent la planète entière et la paume illusoir
 Cependant, de la même manière, ces clous tremblèrent et furent balayés au loin!
 
 Tandis que la terre tremblait et que des débris s'effondraient des cinq pics, le Shui Daozi cracha une bouchée de sang et rugit avec terreur dans les yeux: « Zhou De!! »
+
+Il avait bien deviné que Wang Lin serait fort, mais il n'avait jamais imaginé qu'il le serait à ce point! La force d'une seule paume avait suffi à disperser les clous aux sept couleurs et à lui faire cracher du sang! Il n'avait même pas eu le temps de déployer ses autres atouts et se voyait contraint de demander de l'aide, à un prix très élevé!
 
 À la suite de ce cri, un rire résonna à travers le monde. Le ciel autrefois limpide fut soudainement englouti par les ténèbres. En un instant, le jour fit place à la nuit!
 
@@ -88,11 +90,11 @@ L'expression de Wang Lin resta sereine. Il ne jeta même pas un regard au vieil 
 
 Dès qu'il bougea, les étoiles du Dieu Antique de Wang Lin brillèrent et l'Estimé Ling Dong apparut dans un éclair violet. Sans hésiter, il chargea le vieil homme avec un sourire narquois. Il agita la main droite et le monde gronda, faisant apparaître une mer pourpre monstrueuse. D'innombrables âmes de flammes Joss hurlèrent tandis que la statue d'un dieu démon se manifestait, ses bras s'ouvrant largement!
 
-Un loup tonitruant apparut simultanément à Ling Dong. Le fantôme du loup de sang chargea depuis l'arrière de Zhou Jin vers les perles d'abaque!
+Un hurlement de loup à ébranler les cieux retentit presque en même temps que l'apparition de Ling Dong. Le corps de Zhou Jin se fondit dans un loup de sang long de plusieurs centaines de milliers de pieds, qui chargea vers les perles d'abaque derrière Wang Lin!
 
-« Loup, adore la lune! » Un rugissement glacial résonna, et le ciel sombre sembla être déchiré par la lune de sang qui illuminait la terre!
+« Meute de loups, saluez la lune! » Un rugissement glacial résonna, et le ciel sombre sembla être déchiré par la lune de sang qui illuminait la terre!
 
-Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes Joss. Le marais du vieil homme s'effondra et il cracha une bouchée d'énergie essentielle. Il se retira alors rapidement, les yeux écarquillés par le choc.
+Des grondements tonnerreux éclatèrent. Les sorts de l'homme en noir et de l'Estimé Ling Dong entrèrent en collision. Le vieil homme n'étant qu'un avatar, il ne pouvait absolument pas rivaliser avec l'Estimé Ling Dong en termes de flammes Joss. Le marais du vieil homme s'effondra et il cracha une bouchée d'énergie de l'âme originelle. Il se retira alors rapidement, les yeux écarquillés par le choc.
 
 « Qui es-tu?! »
 

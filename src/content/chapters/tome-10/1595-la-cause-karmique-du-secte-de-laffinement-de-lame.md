@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1595 - Soul Refining Secte’s Karmic Cause
 slug: la-cause-karmique-du-secte-de-laffinement-de-lame
 ---
-À cette époque, une multitude d'érudits venus des villages, des bourgs et des cités de tout le pays de Zhao se rendaient à la capitale pour l'examen impérial. Certains voyageaient seuls, comme Wang Lin, d'autres en groupes de trois ou cinq, se dirigeant vers les quarante-neuf capitales provinciales. Ce n'est qu'après avoir réussi cet examen qu'ils pourraient se rendre dans la ville de Su pour passer le second concours.
+À cette époque, une multitude d'érudits venus des villages, des bourgs et des cités de tout le pays de Zhao se rendaient aux lieux d'examen. Certains voyageaient seuls, comme Wang Lin, d'autres en groupes de trois ou cinq, se dirigeant vers les quarante-neuf chefs-lieux de comté où se trouvait leur lieu d'origine. Ce n'est qu'après y avoir obtenu un titre et être devenus lettrés qu'ils pourraient se rendre dans la ville de Su pour passer le second concours.
 
 La ville de Su était devenue célèbre grâce à un seul homme: Su Dao, le premier érudit du pays de Zhao. Son existence même avait fait de la ville de Su la capitale intellectuelle du pays.
 
@@ -92,7 +92,7 @@ Le vent lui-même s'effondra devant ce doigt et fut repoussé. La pluie suivit, 
 
 Toutefois, seule la pluie au-dessus de la ville s'était arrêtée. Sous la pression de cette volonté semblable à celle du Roi du Tonnerre, toute la pluie du pays de Zhao sembla suspendue. Le tonnerre se tut, les éclairs se brisèrent et les nuages sombres se dissipèrent.
 
-Dans le ciel de Zhao, des cultivateurs volaient, parmi lesquels Wang Zhuo, Xu Fei, Zhou Rui et leurs compagnons. Ils survolaient la pluie, mais furent tous saisis d'effroi à cet instant. Devant eux, un vieil homme apparut. Ce dernier se retourna, et une stupeur infinie envahit ses yeux.
+Dans le ciel de Zhao, des cultivateurs de la Secte Heng Yue volaient, parmi lesquels Wang Zhuo, Xu Fei, Zhou Rui et leurs compagnons. Ils survolaient la pluie, mais furent tous saisis d'effroi à cet instant. Devant eux, un vieil homme apparut. Ce dernier se retourna, et une stupeur infinie envahit ses yeux.
 
 « Cette aura... Par les dieux, quel est donc son niveau de culture?! »
 
@@ -100,7 +100,7 @@ Dans le ciel de Zhao, des cultivateurs volaient, parmi lesquels Wang Zhuo, Xu Fe
 
 Également dans le pays de Zhao, dans la ville de Teng, le monstre Âme Naissante de la famille Teng, Teng Huayuan, était en pleine culture. À cet instant, il ouvrit les yeux, saisi par une sensation terrifiante.
 
-Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel, le sourcil froncé. Il s'agissait de Huang Long, dont l'expression était devenue extrêmement grave. Sa main continuait de tracer des sceaux jusqu'à ce qu'elle se mette à trembler et que le sang ne perle de ses ongles. Ses yeux brillaient d'une lueur étrange, comme s'il n'osait croire à ce qu'il percevait.
+Au sommet de la Secte Heng Yue, un vieil homme en robe jaune contemplait le ciel, le sourcil froncé. Il s'agissait de Huang Long, dont l'expression était devenue extrêmement grave. Sa main droite effectuait des calculs divinatoires jusqu'à ce qu'elle se mette à trembler et que le sang ne perle de ses ongles. Ses yeux brillaient d'une lueur étrange, comme s'il n'osait croire à ce qu'il percevait.
 
 « C'est... Comment est-ce possible?! »
 
@@ -108,4 +108,4 @@ Dans un lieu lointain sur la planète Suzaku, se trouvait une secte puissante, c
 
 Un homme était assis au milieu de ce ciel chargé d'âmes. C'était un homme d'âge mûr, le frère aîné de Dun Tian.
 
-« Je ne parviens pas à la trouver... Ce vieil homme a pratiqué la divination trente-sept fois et n'a pas réussi une seule fois. Se pourrait-il que ma Secte de l'Affinement des Âmes n'ait vraiment plus aucun espoir... »
+« Je ne parviens pas à la trouver... Ce vieil homme a pratiqué la divination trente-sept fois et n'a pas réussi une seule fois. Se pourrait-il que ma Secte de l'Affinement de l'Âme n'ait vraiment plus aucun espoir... »

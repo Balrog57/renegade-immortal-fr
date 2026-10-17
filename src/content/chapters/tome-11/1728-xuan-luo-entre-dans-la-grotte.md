@@ -8,19 +8,19 @@ slug: xuan-luo-entre-dans-la-grotte
 ---
 Alors qu'il parlait, l'expression des quatre généraux changea. Même celle du Vieux Fantôme Zhan devint sérieuse alors qu'il fixait Wang Lin.
 
-C'était la première fois que Wang Lin mentionnait cette troisième âme dont tout le monde songeait!
+C'était la première fois que Wang Lin mentionnait cette troisième âme à laquelle tout le monde songeait!
 
 Les quatre généraux n'avaient jamais évoqué ce sujet devant lui. Pour eux, il s'agissait du secret le plus impénétrable du monde des grottes, une vérité que très peu d'êtres connaissaient!
 
-Cependant, avant qu'ils ne puissent se remettre du choc provoqué par les paroles de Wang Lin, la Hache Divisant le Ciel dans sa main s'agrandit rapidement. L'aura du Dao Antique en lui explosa.
+Cependant, avant qu'ils ne puissent se remettre du choc provoqué par les paroles de Wang Lin, la Hache Brise-Ciel dans sa main s'agrandit rapidement jusqu'à atteindre plusieurs centaines de pieds. L'aura du Dao Antique envahit son corps, qui grandit soudain un peu.
 
-La Hache Divisant le Ciel des anciens dieux fut imprégnée du pouvoir du Dao Antique de Wang Lin. Dans ce monde, nul n'était plus apte que lui à manier une telle arme. Wang Lin saisit la hache et frappa sans l'ombre d'une hésitation!
+La Hache Brise-Ciel des anciens dieux fut imprégnée du pouvoir du Dao Antique de Wang Lin. Dans ce monde, nul n'était plus apte que lui à manier une telle arme. Wang Lin saisit la hache et frappa sans l'ombre d'une hésitation!
 
 Tout se produisit en un instant. Au moment où la hache descendit, le système stellaire trembla et une ombre du Dao Antique apparut. Cette ombre, tenant elle aussi la hache, frappa de concert avec Wang Lin!
 
-Le général du Dragon Azure était le plus proche. Instantanément, sa lignée céleste s'éveilla et l'ombre d'un Dragon Azure se manifesta autour de lui. Il chargea vers la hache!
+Le général du Dragon Azure était le plus proche. Instantanément, sa lignée céleste s'éveilla et un Dragon Azure de 100 000 pieds de long se matérialisa autour de lui. Il chargea vers la hache en rugissant!
 
-Simultanément, la Tortue Noire, l'Oiseau Vermillon et le Tigre Blanc poussèrent tous des rugissements. Trois ombres gigantesques surgirent autour de Wang Lin. Le Tigre Blanc colossal, l'Oiseau Vermillon semblable à une flamme et la massive Tortue Noire aux traits telluriques se précipitèrent vers lui.
+Simultanément, la Tortue Noire, l'Oiseau Vermillon et le Tigre Blanc poussèrent tous des rugissements. Trois ombres gigantesques surgirent autour de Wang Lin. Le Tigre Blanc colossal, l'Oiseau Vermillon semblable à une flamme et la Tortue Noire soulevant d'immenses vagues de terre se précipitèrent vers lui.
 
 L'expression de Wang Lin demeura sereine. Il allait faire ressentir la douleur à ces anciens célestes et leur donner une leçon mémorable. Il ne chercha pas à esquiver, mais son pouvoir du Dao Antique satura son corps pour former le Corps Antique Immortel!
 
@@ -52,7 +52,7 @@ Les célestes furent envahis par la terreur et une douleur atroce ravagea leurs 
 
 « Wang Lin, je vais massacrer ton Royaume Céleste! » rugit le général du Dragon Azure, les yeux brûlants de rage. Pourtant, au-delà de la colère, il était frappé par l'incrédulité face aux méthodes et à la puissance physique phénoménale de Wang Lin.
 
-« Il semble que cette leçon de sang ne suffise pas! » Wang Lin recula pour se tenir sur le dos de la Bête des Limbes. Juste au moment où le Vieux Fantôme Zhan s'apprêtait à l'encercler, Wang Lin secoua le sang de sa main droite et tapota la bête.
+« Il semble que cette leçon de sang ne suffise pas! » Wang Lin recula pour se tenir sur le dos de la Bête des Limbes. Juste au moment où le Vieux Fantôme Zhan s'apprêtait à s'approcher, Wang Lin secoua le sang de sa main droite et tapota la bête.
 
 « Dévore ces gens. »
 
@@ -64,7 +64,7 @@ C’est à cet instant précis que l’esprit du général du Dragon Azure fut s
 
 « C'est... c'est... » Alors que les quatre généraux commençaient à céder à la terreur, la Bête des Limbes obéit à l'ordre de Wang Lin et ouvrit sa gueule pour dévorer!
 
-Si les étoiles constituaient le monde, alors le monde changea de couleur. Si la poussière était le vent, alors la poussière se dispersa! Une brume infinie apparut soudainement dans le système stellaire, exhalant une aura antique que chacun pouvait ressentir.
+Si le firmament était le ciel et la terre, alors le ciel et la terre changèrent de couleur. Si les étoiles étaient les vents et les nuages, alors les vents et les nuages se renversèrent! Une brume infinie apparut soudainement dans le système stellaire, exhalant une aura antique que chacun pouvait ressentir.
 
 Une puissante force d'aspiration surgit alors. Les soixante-dix ou quatre-vingts célestes restants autour des quatre généraux pâlirent tandis qu'ils étaient aspirés par ce tourbillon. Des cris de détresse résonnèrent alors que tous étaient engloutis par la Bête des Limbes.
 
@@ -76,18 +76,18 @@ Une fois le chaos passé, le système stellaire semblait inchangé et aucune tra
 
 « Le Dao Céleste!!! C'est le Dao Céleste!! » Le général du Dragon Azure tremblait, les yeux emplis d'une peur telle qu'il se sentait comme noyé par une marée montante. Il n'avait jamais été aussi terrifié, pas même lorsqu'il avait vu Wang Lin manier l'arc de Li Guang!
 
-« Le Dao Céleste... est en fait en toi... Ceci... ceci est... » Le plus rusé des généraux, la Tortue Noire, fut également ébranlé, et la peur dans ses yeux n'était pas moindre à celle du Dragon Azure. Il sentait que cette force d'aspiration aurait suffi à l'engloutir totalement.
+« Le Dao Céleste... est en fait en toi... Ceci... ceci est... » Le plus rusé des généraux, la Tortue Noire, fut également ébranlé, et la peur dans ses yeux n'était pas moindre que celle du Dragon Azure, elle était même plus profonde. Il sentait que cette force d'aspiration aurait suffi à l'engloutir totalement.
 
-Dans son esprit, ce qui dominait n'était plus seulement la terreur, mais le désespoir pur. Aux yeux de Wang Lin, il était devenu une existence terrifiante!
+Dans son esprit, ce qui dominait n'était plus seulement la terreur, mais surtout le désarroi. Aux yeux du général, Wang Lin était devenu une existence terrifiante qui dominait tout!
 
 Les généraux du Tigre Blanc et de l'Oiseau Vermillon restèrent pétrifiés, comme si un sort de paralysie les avait frappés.
 
 « J'ai en fait porté mon regard sur le Dao Céleste... »
 « Pas étonnant que je n'aie pu détecter son aura, pas étonnant... »
 
-Les pupilles du Vieux Fantôme Zhan se rétractèrent, révélant un choc inimaginable. L'âme aux sept couleurs en lui entra dans une rage folle et prit le contrôle de son corps. Son visage se déforma tandis qu'il se précipitait vers Wang Lin, les yeux écarquillés par l'effroi!
+Les pupilles du Vieux Fantôme Zhan se rétractèrent, révélant un choc inimaginable. L'âme aux sept couleurs en lui s'éleva soudain et prit le contrôle de son corps. Son visage se tordit et l'aura du Souverain Céleste aux Sept Couleurs l'envahit bientôt; il fixa Wang Lin, le regard plein de méfiance!
 
-S'ils n'étaient pas dans le monde des grottes, ils ne craindraient pas le Dao Céleste, mais ici, la donne était différente. Le Dao Céleste était la loi suprême de ce lieu!
+S'il n'était pas dans le monde des grottes, il ne craindrait pas le Dao Céleste, mais ici, la donne était différente. Le Dao Céleste était la loi suprême de ce lieu!
 
 Contrôler le Dao Céleste signifiait contrôler toute existence ici.
 
@@ -107,7 +107,7 @@ Wang Lin, assis sur la Bête des Limbes, flottait vers le Vide Brillant. Bien qu
 
 Également dans le Vide Brillant, un rayon de lumière aux sept couleurs traversait l'espace. Le Daoïste aux Sept Couleurs, tenant neuf sphères de sang de la taille d'un poing, volait vers l'avant.
 
-« Les Neuf Mystères Sanguins sont enfin complets. Avec cette force sanguine secrète, je peux pénétrer dans la réincarnation et trouver où la troisième âme s'est incarnée... Elle doit se trouver dans le Vide Brillant. »
+« Les Neuf Mystères Sanguins sont enfin complets. Avec cette force sanguine, je peux faire apparaître la voie de la réincarnation et retrouver la troisième âme qui s'y était réfugiée autrefois... Elle doit se trouver dans le Vide Brillant. »
 
 Sur le Continent Astral Immortel, dans une région appartenant aux célestes, se dressait un entrelacs de montagnes. La zone était couverte d'une forêt dense, tel un territoire sauvage et indompté.
 

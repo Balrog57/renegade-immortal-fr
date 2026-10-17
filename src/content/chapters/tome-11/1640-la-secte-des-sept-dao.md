@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1640 - Seven Dao Secte
 slug: la-secte-des-sept-dao
 ---
-Wang Lin retira son regard. Son Doigt de l'Immortel Antique pointait vers l'avant à plusieurs reprises et, à chaque impulsion, l'impact se dissipait un peu. Son index continuait de s'effondrer et de se régénérer jusqu'à ce qu'il finisse par déchirer une brèche dans l'onde de choc. Wang Lin en sortit alors.
+Wang Lin retira son regard. Son Ancien Doigt Immortel pointait vers l'avant à plusieurs reprises et, à chaque impulsion, l'impact se dissipait un peu. Enfin, son index trancha brusquement vers l'avant et, dans son cycle d'effondrement et de régénération, il finit par déchirer une brèche dans l'onde de choc. Wang Lin en sortit alors.
 
 Alors que l'onde de choc balayait tout sur son passage, tout ce qui se trouvait dans un rayon de millions de kilomètres fut transformé en un champ de ruines. Le grondement perdura longtemps avant de s'estomper lentement, ne devenant plus qu'un tonnerre sourd provenant du lointain.
 
@@ -20,9 +20,9 @@ Toutefois, ces souvenirs ne pouvaient être consultés par le Sens Divin; même 
 
 Les souvenirs d'un Céleste ne pouvaient être perçus que par quelqu'un possédant une lignée céleste. C'était une restriction occulte et, bien que Wang Lin appartînt à un clan ancien, il n'aurait pas pu y accéder.
 
-C'était une question de niveau: tout comme une fourmi, si elle obtenait les souvenirs d'un éléphant, elle serait incapable de les comprendre. Cependant, Wang Lin était différent. Il possédait la goutte dorée de sang céleste qui constituait son Corps Céleste Immortel. Même sur le Continent Astral Immortel, sa pureté était extrême!
+C'était une question de niveau: tout comme une fourmi, si elle obtenait les souvenirs d'un éléphant, elle serait incapable de les comprendre. Cependant, Wang Lin était différent. Il possédait la goutte dorée de sang céleste qui constituait son Corps Céleste Immortel. Même sur le Continent Astral Immortel, une pureté pareille était extrêmement rare!
 
-Grâce à ce sang, Wang Lin pouvait parcourir ces souvenirs aussi facilement que s'il lisait un livre.
+Grâce à ce sang, Wang Lin pouvait parcourir ces souvenirs aussi facilement que s'il lisait un livre. Dans un flot de lumière dorée, la goutte de sang doré jaillit d'entre ses sourcils; Wang Lin, tenant le cristal de mémoire, le pressa lentement contre son front.
 
 Dès qu'il ferma les yeux, il eut l'impression de pénétrer dans un monde onirique!
 
@@ -32,7 +32,7 @@ La chose la plus éblouissante sur ce continent était les neuf soleils dans le 
 
 En absorbant les souvenirs du vieil homme, Wang Lin découvrit, à travers la vision des neuf soleils, une légende antique.
 
-Cette légende affirmait que les neuf soleils du Continent Astral Immortel représentaient les neuf Grands Empereurs Célestes. Même le maître du vieil homme, l'être de la statue aux sept couleurs, n'avait pas atteint un tel niveau.
+Cette légende affirmait que les neuf soleils du Continent Astral Immortel étaient neuf palais célestes, qui représentaient les neuf Grands Souverains Célestes suprêmes de ce continent. Même le maître du vieil homme, l'être de la statue aux sept couleurs, n'avait pas atteint un tel niveau.
 
 La légende disait que neuf était la limite. On racontait que si un dixième soleil apparaissait, le Continent Astral Immortel subirait des calamités sans fin!
 
@@ -44,7 +44,7 @@ Sa culture était mystérieuse; il avait fondé sa propre secte et rassemblé un
 
 Avec le temps, le vieil homme finit par devenir l'un des Cent Soldats Célestes, un expert puissant de la Secte des Sept Dao!
 
-Il n'était surpassé que par l'Oiseau Vermillon, le Dragon Azure, le Tigre Blanc et la Tortue Noire. Son statut était immense, et il pouvait obtenir toutes les lois et pilules qu'il désirait.
+Il n'était surpassé que par l'Oiseau Vermillon, le Dragon Azure, le Tigre Blanc et la Tortue Noire. Son statut était immense, et il pouvait obtenir toutes les techniques de culture et pilules spirituelles qu'il désirait.
 
 Jusqu'au jour où...
 
@@ -64,15 +64,15 @@ Le Souverain Céleste aux Sept Couleurs ne mentionna jamais la disparition de sa
 
 Pourtant, Wang Lin vit une femme dans l'un de ces fragments. Elle portait une robe argentée et était l'une des servantes du Souverain Céleste.
 
-Wang Lin connaissait cette femme. En la voyant, il établit un lien clair avec le passé. Cette femme était la charogne femelle argentée dans l'espace de stockage de Wang Lin, celle qui avait eu peur de la statue aux sept couleurs!
+Wang Lin connaissait cette femme. En la voyant, il établit un lien clair avec le passé. Cette femme était le cadavre féminin à la robe argentée dans l'espace de stockage de Wang Lin, celle qui avait eu peur de la statue aux sept couleurs!
 
-Dans un autre fragment, Wang Lin vit le Souverain Céleste aux Sept Couleurs, également connu sous le nom d'Empereur Céleste Antique par les Royaumes Intérieurs. Il était identique à la statue aux sept couleurs!
+Dans un autre fragment, Wang Lin vit le Souverain Céleste aux Sept Couleurs, que les Royaumes Intérieurs et Extérieurs appelaient collectivement l'Empereur Céleste Antique, le Souverain Céleste Antique. Il était identique à la statue aux sept couleurs!
 
-Il avait conduit tout le monde dans la grotte et en avait scellé l'entrée et la sortie avant de partir pour une mission inconnue. Les concubines impériales, les soldats et les quatre généraux ignoraient ce que le Souverain Céleste entreprenait. Cependant, nul n'osait s'enquérir; tous se retirèrent en culture fermée, attendant d'être convoqués par leur maître.
+Il avait conduit tout le monde dans la grotte et en avait scellé l'entrée et la sortie avant de partir aussitôt, occupé dans la grotte à une tâche inconnue. Les concubines impériales, les soldats et les quatre généraux ignoraient ce que le Souverain Céleste entreprenait. Cependant, nul n'osait s'enquérir; tous se retirèrent en culture fermée, attendant d'être convoqués par leur maître.
 
-Jusqu'au jour où une voix lugubre résonna à l'extérieur de la grotte. Cette voix tira tout le monde de sa méditation.
+Jusqu'au jour où une voix lugubre résonna à l'extérieur de la grotte. Cette voix tira le vieil homme de sa respiration de culture.
 
-« Souverain du Dao aux Sept Couleurs, tu es allé jusqu'à abandonner ta propre partenaire pour obtenir un grand trésor. Tu as laissé des indices pour m'attirer ici. Cet Ancien veut voir quels genres de tours tu caches dans ta manche! »
+« Souverain du Dao aux Sept Couleurs, tu es allé jusqu'à abandonner ta propre partenaire pour obtenir un grand trésor. Tu as laissé des indices pour m'attirer ici, seul. Cet Ancien veut voir quels genres de tours tu caches dans ta manche! »
 
 Le vieil homme ne reconnut pas cette voix, mais elle dégageait une pression écrasante. Son esprit trembla et il ouvrit les yeux. Ce qu'il entendit ensuite lui glaça le sang!
 

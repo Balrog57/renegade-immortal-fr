@@ -38,7 +38,7 @@ Seul un vieil homme soupira en passant devant Xi Zifeng. Il sortit une fiole de 
 
 Xi Zifeng prit silencieusement les pilules, empreinte de gratitude. La fiole contenait des pilules précieuses capables d'accélérer sa convalescence. Au cours des 800 dernières années, sa famille et ses amis l'avaient moins aidée que ces personnes qui avaient été sauvées par Wang Lin dans le Royaume Céleste du Tonnerre. Sans eux, le chemin de Xi Zifeng aurait été bien plus ardu.
 
-« Pourquoi restes-tu là plantée? Viens ici et déplace cette planète. Un déchet reste un déchet; tu avais une belle réputation, mais tu as dû la détruire. Si tu avais accepté ma requête, tu n'en serais pas arrivée là aujourd'hui! » ricana l'homme d'âge moyen du Temple Céleste du Tonnerre.
+« Pourquoi restes-tu là plantée? Viens ici et déplace cette planète. Un déchet reste un déchet; tu avais un si beau visage, mais il a fallu que tu le détruises. Si tu avais accepté ma requête, tu n'en serais pas arrivée là aujourd'hui! » ricana l'homme d'âge moyen du Temple Céleste du Tonnerre.
 
 Le vieil homme qui lui avait donné les pilules ne put plus se retenir et répliqua: « Seigneur Messager, la compagne cultivatrice Xi Zi a également rejoint le Temple Céleste du Tonnerre. Bien que sa culture soit limitée, elle possède le même statut que nous. Elle a déjà dévié plusieurs planètes de leur trajectoire tout en étant blessée. Pourquoi la forcez-vous à continuer? Laissez-la se remettre un peu! »
 
@@ -50,7 +50,7 @@ Le vieil homme n'était qu'au stade initial du Scruteur du Nirvana; il ressentit
 
 « Vous savez aussi que la compagne cultivatrice Xi Zi l'aimait. Lorsqu'il était là, osiez-vous agir ainsi? »
 
-Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la compétition. À l'époque, cet homme n'était qu'au stade du Yang Corporel, mais il était déjà une existence qu'il admirait.
+Après ces paroles, l'homme d'âge moyen afficha un regard féroce et son esprit vacilla. Il savait parfaitement de qui il s'agissait. Il se souvenait encore de tout ce qui s'était passé lors de la compétition. À l'époque, lui n'était qu'au stade du Yang Corporel, et cet homme était déjà une existence qu'il devait regarder avec déférence.
 
 Il n'osait manifester aucun manque de respect devant lui. Cet homme s'était illustré lors de la guerre avec l'Alliance; il était devenu célèbre tant à Luotian qu'au sein de l'Alliance, et l'homme d'âge moyen devait admettre qu'il n'était qu'une fourmi face à lui.
 
@@ -62,7 +62,7 @@ Cette phrase plongea l'homme d'âge moyen dans une profonde réflexion. Après u
 
 Le vieil homme regarda l'homme d'âge moyen sans plus rien dire et rejoignit les cultivateurs en plein effort.
 
-Xi Zifeng restait plongée dans ses pensées. Elle abandonna sa guérison pour avancer. Serrant les dents, elle divisa un fil de son âme originelle en une traînée argentée pour se lier à la planète. Elle progressa lentement avec la foule, tirant sur le monde.
+Xi Zifeng restait silencieuse. Elle abandonna sa guérison pour avancer. Serrant les dents, elle divisa un fil de son âme originelle en une traînée argentée pour se lier à la planète. Elle progressa lentement avec la foule, tirant sur le monde.
 
 L'homme d'âge moyen menait la marche, l'expression sombre. Les paroles du vieil homme l'agitaient intérieurement.
 

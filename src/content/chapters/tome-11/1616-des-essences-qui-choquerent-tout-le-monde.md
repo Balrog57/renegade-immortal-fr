@@ -46,7 +46,7 @@ C'était l'Empreinte du Karma. Qu'il soit impossible de la voir distinctement é
 
 Le Maître Nan Yunzi était tout aussi sous le choc. Son niveau de culture était très élevé, et lorsqu'il ressentit les trois essences provenant de la Porte du Vide, son visage se décomposa. Son esprit vacilla tandis que son regard se verrouillait sur la Porte.
 
-« C'est vraiment une troisième essence! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation du troisième pas, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade Vide du Nirvana, il sera capable d'assassiner des cultivateurs Vide Spirituel! »
+« C'est vraiment une troisième essence! Dans ce vaste monde, il existe quelqu'un capable de résister à la tentation de la troisième étape, possédant la fortune et la compréhension nécessaires pour parachever trois essences. Une fois qu'il aura ouvert la Porte du Vide, même s'il n'est qu'au stade précoce du Vide du Nirvana, il sera capable d'assassiner des cultivateurs du stade précoce du Vide Spirituel! »
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu étaient tous stupéfaits. L'apparition soudaine de cette Porte du Vide les avait choqués deux fois de suite. Ils ignoraient s'il s'agissait d'une bénédiction ou d'un désastre.
 
@@ -104,7 +104,7 @@ L'esprit de tous les cultivateurs alentour trembla de manière incontrôlable. I
 
 Les yeux du Maître Nan Yunzi s'illuminèrent. Il ignorait quel camp déclenchait la Porte, mais il savait qu'il s'agissait d'une occasion unique dans une vie.
 
-« Brilliants cultivateurs du Vide, ne fixez pas la Porte, chargeons! » rugit le Maître Nan Yunzi, sa voix réveillant les milliers de cultivateurs du Royaume Intérieur. Il chargea vers le jeune homme en robe verte qui était resté pétrifié.
+« Cultivateurs du Vide Brillant, ne fixez pas la Porte, chargeons! » rugit le Maître Nan Yunzi, sa voix réveillant les milliers de cultivateurs du Royaume Intérieur. Il chargea vers le jeune homme en robe verte qui était resté pétrifié.
 
 Situ Nan, le Maître Long Pan et le Maître Lu Fu lancèrent également l'assaut. Ils engagèrent une bataille acharnée contre les cultivateurs du Royaume Extérieur tandis que le grondement de la Porte du Vide résonnait.
 

@@ -26,7 +26,7 @@ Ces lamentations étaient assourdissantes, à faire trembler la terre elle-même
 
 À cet instant précis, les vibrations sur la route devinrent plus violentes encore et plus de dix cavaliers surgirent au galop. Certains de ces hommes impitoyables portaient des vêtements en désordre, et leurs rires malveillants résonnaient dans l'air.
 
-« Haha! Je ne m'attendais pas à ce que ce petit village recèle autant de belles femmes. Si je n'avais pas eu la tâche du seigneur à accomplir, j'en aurais vraiment pris quelques-unes! »
+« Haha! Je ne m'attendais pas à ce que ce petit village recèle autant de belles femmes. Si je n'avais pas eu la mission du chef du gang à accomplir, j'en aurais vraiment pris quelques-unes! »
 
 « Oui, surtout cette mariée, elle était magnifique... »
 
@@ -52,11 +52,11 @@ Ce spectacle lui infligea une douleur si intense qu'il manqua de s'effondrer. To
 
 La plupart des maisons alentour avaient été réduites en cendres. Seul le luxueux palanquin était intact. Par comparaison avec les décombres, sa couleur éclatante était d'un contraste saisissant et tragique!
 
-Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là: c'était Tiger... À ses côtés se trouvait une femme. C'était la sœur de Tiger, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Le cadavre était en lambeaux et le sang s'écoulait de ses orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une bouchée de sang.
+Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescriptible, il pénétra dans la maison brûlée jouxtant le palanquin. Un corps gisait là: c'était Tiger... À ses côtés se trouvait le cadavre nu d'une femme. C'était la sœur de Tiger, Hong Hong... Le jeune homme faillit s'écrouler alors qu'il s'enfonçait plus profondément dans la pièce. Il vit sa... petite sœur... La demeure calcinée n'avait plus que quelques poutres debout, et un morceau de soie blanche, noué autour du cou d'un corps féminin misérable, pendait à l'une d'elles... Ses vêtements étaient en désordre et le sang s'écoulait de ses sept orifices. Ses yeux semblaient encore empreints de confusion, fixant l'horizon comme si elle attendait un être cher... En voyant cela, le jeune homme cracha une bouchée de sang.
 
 « Petite sœur! » Son cri déchirant résonna dans la nuit de ce village désolé et funeste! Il persista longtemps... « Ne pleure pas, Petite Lan, sois sage. Grand frère ne dormira plus. Je t'apporterai cette orchidée pourpre, d'accord? Alors, ne pleure plus. »
 
-« Petite Lan, c'est la centième fois que tu me demandes où sont partis Maman et Papa... Ne t'ai-je pas dit qu'ils étaient partis très loin... Ils te rattraperont, ils verront Lan Lan grandir, ils te verront te marier... Ne pleure pas... »
+« Petite Lan, voilà plusieurs centaines de fois que tu me demandes où sont partis Maman et Papa... Ne t'ai-je pas dit qu'ils étaient partis très loin... Ils nous regarderont de là-bas, ils verront Lan Lan grandir, ils te verront te marier... Ne pleure pas... »
 
 « Euh... Puisque tu n'aimes pas Tiger, alors laisse tomber. Grand frère ne court pas après la grande sœur de Tiger comme tu le prétends... »
 
@@ -66,7 +66,7 @@ Le jeune homme se mordit la lèvre inférieure. Tremblant d'une panique indescri
 
 Le jeune homme s'effondra en versant des larmes de sang. Ses yeux vides fixaient le corps de sa petite sœur.
 
-Quelques jours plus tard, après avoir enterré tous les défunts du village, il enterra sa sœur seule sur la montagne. C'était un sommet très élevé où fleurissaient de nombreuses orchidées pourpres. Assis au milieu de ce champ, on aurait pu contempler le monde entier... Sa petite sœur n'était pas morte de maltraitances, elle s'était pendue... Le jeune homme garda le morceau de soie blanche qui lui avait servi de lien. Un instant, il eut l'impression que l'âme de sa sœur résidait encore dans ce tissu.
+Quelques jours plus tard, après avoir enterré tous les défunts du village, il enterra sa sœur seule sur la montagne. C'était un sommet très élevé où fleurissaient de nombreuses orchidées pourpres. Assis au milieu de ce champ, on aurait pu contempler le monde entier... Sa petite sœur n'était pas morte sous ces outrages, elle s'était pendue... Le jeune homme garda le morceau de soie blanche qui lui avait servi de lien. Un instant, il eut l'impression que l'âme de sa sœur résidait encore dans ce tissu.
 
 En quittant le village, il se retourna et sortit la soie blanche. Une voix aussi cristalline qu'une cloche résonna alors à ses oreilles.
 
@@ -80,9 +80,9 @@ Le jeune homme se mordit la lèvre jusqu'au sang, laissant quelques gouttes tomb
 
 Le temps passa, et en un éclair, des décennies s'écoulèrent... Le talent du jeune homme dépassait tout ce qu'il avait pu imaginer. Bien qu'il ne fût pas le plus exceptionnel, il était néanmoins stupéfiant. Il avait rejoint la Secte Brise-Ciel et, porté par une détermination hors du commun, il devint le chef de la génération junior!
 
-Dans le fief du Gang des Chevaux, mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit anciens membres subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
+Dans le fief du Gang des Chevaux, plus de mille quatre cents membres furent massacrés en une seule nuit pluvieuse; aucun ne fut épargné... Même les chevaux furent abattus. Environ sept ou huit vieillards subirent les supplices les plus atroces avant de mourir. Leur douleur n'était pas celle d'une mort ordinaire; ils hurlèrent pendant près de quinze jours avant de rendre l'âme.
 
-Leurs âmes avaient été extraites et soumises à un raffinage cruel, les empêchant d'entrer dans le cycle de la réincarnation... Pourtant, Sima Mo ressentait toujours une douleur semblable à des aiguilles transperçant son cœur. Les coupables qui avaient agressé sa petite sœur étaient morts depuis bien longtemps. Grâce à la recherche d'âme, il avait découvert que ces derniers n'avaient pas vraiment souffert, et il refusait de laisser cela ainsi!
+Leurs âmes avaient été extraites et soumises à un raffinage cruel, les empêchant d'entrer dans le cycle de la réincarnation... Pourtant, Sima Mo ressentait toujours une douleur semblable à des aiguilles transperçant son cœur. Le principal coupable qui avait outragé sa petite sœur était mort de maladie des années auparavant. Grâce à la recherche d'âme, il avait découvert que ce dernier n'avait pas vraiment souffert avant de mourir, et il refusait de laisser cela ainsi!
 
 Après son retour à la secte, cent années supplémentaires passèrent... Sima Mo avait atteint le stade de l'Âme Naissante et était devenu le plus puissant de sa génération. Il attira l'attention du Maître de la Secte Brise-Ciel et fut accepté comme son disciple.
 
@@ -100,7 +100,7 @@ Une voix antique émana du monde et pénétra l'esprit de Sima Mo. « Non seulem
 
 L'esprit de Sima Mo trembla... « Viens avec ce vieil homme... Désormais, tu n'es plus le Sima Mo du Royaume Intérieur, mais le subordonné de ce vieil homme, celui du Souverain. Je te donne le nom de "Maître Simo"! »
 
-À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un clou situé entre ses sourcils se propagea progressivement pour occuper tout son front.
+À l'intérieur du Fourneau de l'Empereur, les yeux de Maître Simo se brouillèrent de larmes... Le feu de la taille d'un ongle situé entre ses sourcils se propagea progressivement pour occuper tout son front.
 
 À l'extérieur du Fourneau de l'Empereur, Wang Lin était assis au sommet de l'engin. Il ouvrit les yeux sous le regard des cultivateurs environnants. Son regard était empreint de confusion... Après un long moment, Wang Lin poussa un soupir et se leva. D'un geste de la main, il fit trembler le Fourneau de l'Empereur avant qu'il ne se dissipe.
 

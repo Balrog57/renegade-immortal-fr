@@ -38,7 +38,7 @@ Il sembla devenir sourd, ignorant totalement l'appel. Son corps se changea en un
 
 Le monde autour de lui se distordit dès qu'il franchit le seuil. Il disparut sans laisser de trace devant l'érudit d'âge moyen, s'enfonçant dans les entrailles de la Tombe de l'Ordre Ancien.
 
-Wang Lin n'était plus un enfant et ne se laissait pas guider par une simple curiosité. Il n'allait pas secourir un inconnu sans rien savoir de la situation. La femme qui ressemblait à cet érudit avait pu atteindre ce lieu par la force, ce qui signifiait que sa culture était terrifiante. Wang Lin ne souhaitait pas interagir avec une telle entité sans raison valable.
+Wang Lin n'était plus un enfant et ne se laissait pas guider par une simple curiosité. Il n'allait pas secourir un inconnu sans rien savoir de la situation. L'érudit d'âge moyen à l'allure de femme avait pu atteindre ce lieu par la force, ce qui signifiait que sa culture était terrifiante. Wang Lin ne souhaitait pas interagir avec une telle entité sans raison valable.
 
 Même si elle lui avait promis des bénéfices immenses en échange de son aide, il serait reparti sans hésiter. Son esprit était d'une clarté absolue à cet instant. Il ressentait une subtile différence entre l'homme qu'il était et celui qu'il était avant d'entrer dans la brume; un décalage qui lui insufflait un sentiment de danger.
 
@@ -58,17 +58,17 @@ Dès que la femme apparut, le brouillard s'engouffra en elle, et une marque tén
 
 Dans un soupir, la femme fit un pas et pénétra dans la faille menant à la Tombe de l'Ordre Ancien.
 
-À l'instant où elle disparut, la lumière se dissipa dans la brume. Le visage de l'érudit pâlit et il recula précipitamment en murmurant: « Je ne peux envoyer que mon avatar... Il y avait des traces de "Pêcher la Lune dans le Puits" sur le corps de ce petit Dieu Antique. À part lui, personne d'autre dans le Système Stellaire Antique ne peut utiliser ce sort... Ma Sœur Aînée et ma Huitième Sœur Cadette sont parties depuis des années. Ma Deuxième Sœur Aînée a déjà trouvé un partenaire. Même cette renarde, ma Quatrième Sœur Cadette, s'est donnée corps et âme pour dérober ce voyou de Tuo Sen... Ma Cinquième Sœur Cadette a pris ce corps et suit la même voie que le Maître du Dao Rêve Bleu... Si je ne trouve pas quelqu'un pour collaborer, je crains d'être laissé pour compte... » La silhouette de l'érudit s'éloigna de plus en plus.
+À l'instant où elle disparut, la lumière se dissipa dans la brume. Le visage de l'érudit pâlit et il recula précipitamment en murmurant: « Je ne peux envoyer que mon avatar... Il y avait des traces de "Pêcher la Lune dans le Puits" sur le corps de ce petit Dieu Antique. À part lui, personne d'autre dans le Système Stellaire Antique ne peut utiliser ce sort... Ma Sœur Aînée et ma Huitième Sœur Cadette ont disparu depuis des années. Ma Deuxième Sœur Aînée a déjà trouvé un partenaire. Même cette renarde, ma Quatrième Sœur Cadette, s'est donnée corps et âme pour dérober ce voyou de Tuo Sen... Ma Cinquième Sœur Cadette a pris ce corps et suit la même voie que le Maître du Dao Rêve Bleu... Si je ne trouve pas quelqu'un pour collaborer, je crains d'être laissé pour compte... » La silhouette de l'érudit s'éloigna de plus en plus.
 
 Alors qu'il était sur le point de quitter la brume, il s'arrêta brusquement et scruta l'horizon.
 
 Au loin, le brouillard bouillonnait et un rugissement déchira l'air. Une aura oppressante se propagea avec ce cri, empreint d'une pointe de folie.
 
-« Même si tu ne m'avais pas demandé, je serais venu de moi-même! Maudite femme, tais-toi, espèce de dieu! Tais-toi! Tais-toi! »
+« Même si tu ne m'avais pas demandé, je serais venu de moi-même! Toi, la femme, tais-toi devant ce dieu! Tais-toi! Tais-toi! »
 
 Un rire capable de déstabiliser les cœurs résonna au cœur du rugissement. Un rire chargé d'une tentation presque magique.
 
-« Je n'en parlerai plus, mais plus tu es folle, plus je t'apprécie... Être avec toi est bien plus divertissant qu'avec ce Souverain Céleste inutile... »
+« Je n'en parlerai plus, mais plus tu es fou furieux, plus je t'apprécie... Être avec toi est bien plus divertissant qu'avec ce Souverain Céleste inutile... »
 
 L'instant d'après, une silhouette gigantesque émergea de la brume. Elle était si immense qu'elle semblait être une planète de culture en soi, mais son corps rétrécissait rapidement à mesure qu'elle avançait.
 
@@ -82,7 +82,7 @@ L'érudit ricana et se retira loin sur le côté. Une voix glissa doucement vers
 
 « Hu Meizi, il est difficile de changer ta nature. Je pouvais sentir ton aura dégoûtante de très loin. »
 
-« Je ne saurais égaler la vertu de la Sainte de la Secte du Dao Céleste. Je parie que tu es encore vierge à ce jour. Tu as été capturée par le Souverain Céleste pour servir de fourneau. Cependant, ce vieux débris n'a pas eu la chance d'en profiter, et cela a profité à un autre. Je me demande bien qui l'emportera... » La voix séduisante ne semblait guère affectée, puis elle s'évanouit en même temps que la silhouette de Tuo Sen.
+« Je ne saurais égaler la vertu de la Sainte de la Secte du Dao Céleste. Je parie que tu es encore vierge à ce jour. Tu as été capturée par le Souverain Céleste et élevée pendant des années pour devenir un fourneau parfait. Cependant, ce vieux débris n'a pas eu la chance d'en profiter, et je me demande bien qui s'emparera de cet avantage un jour... » La voix séduisante ne semblait guère affectée, puis elle s'évanouit en même temps que la silhouette de Tuo Sen.
 
 Un éclair de froideur passa dans les yeux de l'érudit en robe blanche, qui s'éloigna dans un reniflement méprisant.
 
@@ -102,9 +102,9 @@ Tout cela se déroula en un éclair. À l'instant même où Wang Lin franchissai
 
 Le ciel était sombre et la terre n'était qu'un brouillard dense. Cette brume ressemblait à une mer insondable. Par moments, un immense trou noir semblait surgir, comme prêt à tout dévorer.
 
-D'innombrables plateformes flottaient dans les airs, chacune occupée par un individu. Ces plateformes s'étendaient à perte de vue.
+D'innombrables plateformes de pierre brisée flottaient dans les airs, chacune portant une tête posée dessus. Ces plateformes s'étendaient à perte de vue.
 
-Un homme d'âge moyen vêtu d'une robe taoïste reculait à toute vitesse. Le visage pâle, du sang coulait au coin de sa bouche. Il regarda Wang Lin avec une terreur pure dans les yeux.
+Un homme d'âge moyen vêtu d'une robe daoïste reculait à toute vitesse. Le visage pâle, du sang coulait au coin de sa bouche. Il regarda Wang Lin avec une terreur pure dans les yeux.
 
 C'était lui, l'assaillant!
 

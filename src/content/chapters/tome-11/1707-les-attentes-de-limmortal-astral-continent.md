@@ -36,7 +36,7 @@ Dès que les trois gouttes fusionnèrent, une aura antique se propagea. Cette go
 
 Aucun cultivateur dans tout le Monde des Grottes ne remarquerait cette aura, car elle appartenait à la Race Ancienne et non à un individu!
 
-Cette aura semblait appeler les membres de la Race Ancienne. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
+Cette aura avait pour but d'invoquer l'Ancêtre Ancestral. À mesure qu'elle se répandait, quiconque possédait une lignée ancienne dans le Monde des Grottes la ressentit, percevant une puissance émanant de son propre sang.
 
 Dans le Royaume Intérieur, le démon ancien de la Mer des Nuages, qui avait survécu à tant de batailles, ouvrit les yeux avec stupeur. Fixant l'horizon, il sentit cette aura et éprouva un instinct profond de vénération envers elle.
 
@@ -46,7 +46,7 @@ Dans la faille invisible entourant la planète effondrée Dong Lin, une femme, �
 
 Dans le Royaume Extérieur, au sein de la Tombe Ancienne, Tuo Sen n'était pas parti; il avait décidé de rester pour achever son héritage. Il se tenait là, les yeux clos.
 
-Wang Lin lui avait transmis l'héritage mémoriel qu'il avait toujours convoité. Après des années de fusion, était-il encore Tuo Sen, ou était-il devenu le réveillé Tu Si?
+Il avait reçu de Wang Lin les souvenirs de Tu Si. Après des années de fusion, était-il encore Tuo Sen, ou était-il devenu le réveillé Tu Si?
 
 Mais à cet instant, il ouvrit brusquement les yeux et ses pupilles se rétractèrent.
 
@@ -88,7 +88,7 @@ Ce dernier répondit lentement: « Le moment approche, vous êtes un peu tard. �
 
 Le jeune homme laissa échapper un reniflement froid.
 
-« Les trois empereurs: Ji, Dao et Shi. Vous êtes l'empereur du royaume de Dao; il y a des moments où vous n'avez pas besoin de leur accorder l'ombre d'une attention. Mais cet événement est majeur pour mon royaume, il est donc naturel qu'ils s'en inquiètent. »
+« Les trois empereurs: Ji, Dao et Shi. Vous êtes l'empereur du clan Dao; il y a des moments où vous n'avez pas besoin de leur accorder l'ombre d'une attention. Mais cet événement est majeur pour mon clan Dao, il est donc naturel qu'ils s'en inquiètent. »
 
 « Comme le dit mon oncle. » L'homme en robe royale changea alors son mode d'adresse. En entendant ce terme, l'expression du Grand Empyréen Xuan Luo s'adoucit légèrement.
 

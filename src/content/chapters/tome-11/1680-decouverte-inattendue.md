@@ -6,9 +6,9 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1680 - Unexpected Discovery
 slug: decouverte-inattendue
 ---
-Le vent hurla sur sa gauche et une ligne noire se précipita vers lui. Cette traînée sombre était composée de dizaines de milliers de bêtes moustiques, formant un spectacle saisissant.
+Le vent hurla sur sa gauche et une ligne noire se précipita vers lui. Cette traînée sombre était composée de plus de dix mille bêtes moustiques, formant un spectacle saisissant.
 
-À l'avant trônait la féroce bête moustique haute de plusieurs milliers de pieds. Ses yeux brillaient d'excitation et, dès qu'elle aperçut Wang Lin, son corps se mit à trembler.
+À l'avant trônait la féroce bête moustique d'environ mille pieds. Ses yeux brillaient d'excitation et, dès qu'elle aperçut Wang Lin, son corps se mit à trembler.
 
 Un rugissement strident retentit alors que la bête moustique chargeait, percutant de plein fouet Wang Lin. Le vent généré par ses mouvements cinglait le visage de ce dernier comme autant de lames.
 
@@ -24,7 +24,7 @@ Wang Lin était certes son maître, mais il était pour elle comme un parent. Ce
 
 Tout en se frottant contre lui, la créature laissa échapper un gémissement, comme si elle lui reprochait d'avoir mis tant de temps à venir la retrouver.
 
-Wang Lin rit, le cœur léger. En un éclair, il monta sur le dos du monstre et scruta l'horizon. Il vit des dizaines de milliers de bêtes moustiques l'entourer. Certaines semblaient connaître Wang Lin, mais celles qui avaient rejoint l'essaim plus tard le regardaient avec perplexité.
+Wang Lin rit, le cœur léger. En un éclair, il monta sur le dos du monstre et scruta l'horizon. Il vit plus de dix mille bêtes moustiques l'entourer. Certaines semblaient connaître Wang Lin, mais celles qui avaient rejoint l'essaim plus tard le regardaient avec perplexité.
 
 Le cœur de Wang Lin était rempli de joie après avoir retrouvé le roi moustique qui l'avait accompagné si longtemps. Il avait passé sa vie dans la solitude, n'ayant pour compagnons que quelques bêtes féroces, et cette créature avait été la plus fidèle à ses côtés.
 
@@ -34,7 +34,7 @@ Le roi moustique poussa un rugissement et afficha une expression fière. Son cri
 
 « Très bien, emmène-moi dans les profondeurs du Royaume Céleste du Vent! » sourit Wang Lin.
 
-Les yeux du roi moustique s'illuminèrent et il reprit sa course. En un éclair, il s'élança, suivi de près par les dizaines de milliers de bêtes moustiques qui formaient désormais une tempête de créatures fonçant vers l'avant.
+Les yeux du roi moustique s'illuminèrent et il reprit sa course. En un éclair, il s'élança, suivi de près par plus de dix mille bêtes moustiques qui formaient désormais une tempête de créatures fonçant vers l'avant.
 
 La vitesse du roi moustique était bien supérieure à celle d'autrefois. Tandis que Wang Lin se tenait sur son dos, il observa la scène avec attention, une lueur étrange dans le regard.
 
@@ -52,11 +52,11 @@ Wang Lin était déjà venu ici par le passé et il aperçut immédiatement l'é
 
 Sous le brouillard s'étendaient plusieurs continents, inchangés. Sur l'un d'eux se dressait autrefois une statue à forme humaine. Cependant, il n'en restait plus aucune trace aujourd'hui.
 
-Le cadavre d'une bête moustique haute de dix mille pieds gisait sur l'un des continents. Ses yeux étaient ouverts, mais sans aucune lueur, et une aura de mort imprégnait son corps.
+Le cadavre d'une bête moustique haute de plusieurs dizaines de milliers de pieds gisait sur l'un des continents. Ses yeux étaient ouverts, mais sans aucune lueur, et une aura de mort imprégnait son corps.
 
 En voyant cela, les yeux de Wang Lin se plissèrent.
 
-Le roi moustique guida Wang Lin à travers le brouillard pour atterrir aux côtés du cadavre. Il plongea sa gueule dans la carcasse et, tandis qu'il aspirait, son corps s'illumina d'une lueur dorée. Les dizaines de milliers de bêtes moustiques les entouraient, mais aucune n'osait s'approcher pour se nourrir.
+Le roi moustique guida Wang Lin à travers le brouillard pour atterrir aux côtés du cadavre. Il plongea sa gueule dans la carcasse et, tandis qu'il aspirait, son corps s'illumina d'une lueur dorée. Plus de dix mille bêtes moustiques les entouraient, mais aucune n'osait s'approcher pour se nourrir.
 
 Wang Lin descendit et se tint près du cadavre. Bien que la bête fût morte depuis de nombreuses années, son corps ne s'était pas décomposé; il paraissait simplement desséché, tout en conservant l'essence de la créature.
 
@@ -82,7 +82,7 @@ Que se cachait-il exactement derrière cette faille?
 
 C'était la première fois que Wang Lin l'observait de si près. En scrutant les environs, il remarqua une anomalie: les bords de la faille étaient déchiquetés, mais des marques indiquaient qu'ils avaient autrefois été connectés par endroits.
 
-Réfléchissant à voix haute, Wang Lin agita la main droite et un morceau de jade apparut dans sa paume. Il le serra, provoquant un craquement; le jade se fendit en deux, révélant des arêtes irrégulières le long de la fissure. Lorsqu'il réunit les deux morceaux, l'objet parut de nouveau complet. Wang Lin y injecta alors une partie de sa culture pour recoller les parties. Désormais, seules quelques fines fissures étaient visibles.
+Dans le silence, Wang Lin agita la main droite et un morceau de jade apparut dans sa paume. Il le serra, provoquant un craquement; le jade se fendit en deux, révélant des arêtes irrégulières le long de la fissure. Lorsqu'il réunit les deux morceaux, l'objet parut de nouveau complet. Wang Lin y injecta alors une partie de sa culture pour recoller les parties. Désormais, seules quelques fines fissures étaient visibles.
 
 Fixant le jade, ses yeux brillèrent et il le serra à nouveau. Le jade se brisa une seconde fois. Les parties recollées se détachèrent, mais de nouvelles arêtes se formèrent également.
 
@@ -102,7 +102,7 @@ En un seul coup d'œil, il fut pétrifié. Ses yeux brillèrent d'une intensité
 
 L'intérieur de la faille était un monde lumineux peuplé de grands ovales incandescents. Ces formes étaient d'innombrables œufs de bêtes moustiques! Ils remplissaient tout l'espace, attendant leur éclosion. On pouvait en compter des millions au premier regard.
 
-Plus on s'enfonçait, plus les œufs étaient nombreux et imposants. Certains mesuraient des milliers de pieds de diamètre, et les créatures à l'intérieur émettaient une lueur dorée. Elles avaient achevé leur formation et semblaient prêtes à éclore.
+Plus on s'enfonçait, plus les œufs étaient nombreux et imposants. Certains mesuraient mille pieds de diamètre, et les créatures à l'intérieur émettaient une lueur dorée. Elles avaient achevé leur formation et semblaient prêtes à éclore.
 
 Dès que la bête de Wang Lin entra, elle poussa un sifflement joyeux et se précipita vers une grappe d'œufs. Sa gueule immense plongea dans l'un d'eux pour en aspirer tout le contenu.
 

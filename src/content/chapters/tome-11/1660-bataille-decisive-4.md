@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1660 - Decisive Battle (4)
 slug: bataille-decisive-4
 ---
-Derrière Wang Lin s'étendaient plus de 100 000 têtes. Les hurlements misérables émanant de ces têtes se mêlaient aux bruits de massacre qui résonnaient sur le champ de bataille.
+Derrière Wang Lin s'étendaient près de 100 000 têtes. Les hurlements misérables émanant de ces têtes se mêlaient aux bruits de massacre qui résonnaient sur le champ de bataille.
 
 « La Formation de la Vie et de la Mort est achevée, et la Formation du Karma est brisée. Je vais en créer une nouvelle! » Wang Lin, toujours assis sur le Fourneau de l'Empereur, agita sa main droite. Cinquante mille têtes formèrent un vortex géant devant lui.
 
@@ -46,7 +46,7 @@ Le sang frais forma un fleuve qui déferla à travers le système stellaire.
 
 Les cultivateurs restants du Royaume Extérieur furent saisis d'une terreur extrême. Ils sombraient dans la folie, leurs esprits tremblant devant ce changement soudain. À cet instant, ils s'enfuirent tous dans des directions opposées!
 
-Face à une puissance qu'ils ne comprenaient pas, ils n'osaient ni résister et en étaient incapables!
+Face à une puissance qu'ils ne comprenaient pas, ils n'osaient pas résister et en étaient incapables!
 
 Même les deux cultivateurs du Vide Arcanique qui combattaient Qing Lin et ses compagnons furent terrifiés au plus haut point. La vieille femme et la dernière concubine impériale céleste battirent en retraite désespérément, parvenant enfin à se libérer de l'étau de Qing Lin. Leurs méthodes de culture étant hors du commun, elles s'échappèrent instantanément loin de là.
 
@@ -78,6 +78,6 @@ Wang Lin également cracha du sang. Cette roue formée par les trois grandes ess
 
 S'il n'y avait pas eu ces dizaines de milliers de cultivateurs du Royaume Intérieur, il n'aurait jamais pu faire tourner la roue d'essence. De même, si les trois autres cultivateurs du Vide Arcanique n'avaient pas été tués ou capturés par lui, ils auraient uni leurs forces pour résister, et il n'aurait pas pu obtenir l'aide nécessaire pour compléter le cycle de la roue.
 
-« Trois ans... Les trois dernières années! » Wang Lin était épuisé lorsqu'il se redressa du Fourneau de l'Empereur. Il prit le Four et la roue d'essence, puis s'envola vers l'horizon.
+« Trois ans... Les trois dernières années! » Wang Lin était épuisé lorsqu'il se redressa du Fourneau de l'Empereur. Il prit le Fourneau et la roue d'essence, puis s'envola vers l'horizon.
 
 « Vous tous, reposez-vous pendant trois ans. Je veillerai sur vous! »

@@ -10,7 +10,7 @@ La destruction de la formation ne signifiait pas que tout était terminé. Crée
 
 La Formation de Scellement du Royaume s'effondra, et l'aura du Système Stellaire Antique s'engouffra, enveloppant le Royaume Intérieur. Cette aura était inconnue, mais en même temps familière.
 
-À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques cultivateurs du troisième niveau avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, afin de rassembler ces flammes et faciliter leur culture!
+À une époque reculée, avant que la Formation de Scellement du Royaume n'apparaisse, le Royaume Intérieur et le Royaume Extérieur ne faisaient qu'un. D'innombrables mortels avaient respiré cette aura et d'innombrables cultivateurs s'en étaient nourris. Quelques grands puissants avaient emprunté cette aura pour créer leurs propres royaumes de Flammes Joss, ouvrant un monde pour accueillir le peuple des Flammes Joss, afin de rassembler ces flammes et de s'en servir pour leur culture!
 
 Cependant, après la mise en place de la Formation de Scellement du Royaume, toutes les Flammes Joss furent extraites du Royaume Intérieur jusqu'à ce qu'il n'en reste plus aucune. Cela créa un cycle vicieux pendant des dizaines de milliers d'années, au point que le Royaume Intérieur ne put plus jamais rivaliser avec le Royaume Extérieur.
 
@@ -20,7 +20,7 @@ Cette aura aussi étrangère que familière enveloppa les quatre grands système
 
 Des couches de filets de formation continuèrent de se désintégrer jusqu'à disparaître complètement. Durant ces heures, des grondements résonnèrent à travers l'espace.
 
-Alors que la formation s'effondrait, le son se propagea vers le Système Stellaire Antique, faisant trembler l'esprit des cultivateurs du Royaume Extérieur. Les plus puissants et quelques cultivateurs du troisième niveau s'élancèrent pour regarder en direction du Royaume Intérieur.
+Alors que la formation s'effondrait, le son se propagea vers le Système Stellaire Antique, faisant trembler l'esprit des cultivateurs du Royaume Extérieur. Les plus puissants et quelques grands puissants s'élancèrent pour regarder en direction du Royaume Intérieur.
 
 Bien qu'ils ne pussent pas voir précisément d'où ils venaient, ils sentaient clairement l'aura du Système Stellaire Antique affluer, comme si elle s'apprêtait à combler le vide du Royaume Intérieur.
 
@@ -28,7 +28,7 @@ On ignorait qui s'était élancé sous le choc, mais de plus en plus de cultivat
 
 Wang Lin se tenait parmi les étoiles et contemplait calmement la Formation de Scellement du Royaume qui s'était dissipée. Il sentit l'aura du Système Stellaire Antique, et ses yeux brillèrent d'un éclat vif.
 
-Après un long moment, il leva lentement sa main droite et fit un geste ample. Un son s'échappa de lui, résonnant à travers les quatre grands systèmes stellaires du Royaume Intérieur.
+Après un long moment, il leva lentement sa main droite et fit un geste ample. Un son s'échappa de lui, résonnant à travers les quatre grands systèmes stellaires du Royaume Intérieur et dans toutes les étoiles du Royaume Extérieur.
 
 Ce son ressemblait à un coup de tonnerre éternel, mais quiconque l'entendait pouvait percevoir clairement ses paroles!
 
@@ -36,11 +36,11 @@ Ce son ressemblait à un coup de tonnerre éternel, mais quiconque l'entendait p
 
 Alors que les paroles de Wang Lin se propageaient, il déploya ses bras. Le gigantesque disque des trois essences s'élança et se tint devant lui.
 
-Un bourdonnement retentit et le disque géant commença à croître et à s'étendre dans toutes les directions. Il passa de dix mille pieds à des millions, puis des dizaines de millions, jusqu'à devenir infini!
+Un bourdonnement retentit et le disque géant commença à croître et à s'étendre dans toutes les directions. Il passa de plus d'un million de pieds à des dizaines de millions, puis des centaines de millions, jusqu'à devenir infini!
 
 Il remplacerait la Formation de Scellement du Royaume pour devenir la nouvelle formation!
 
-Tandis qu'il se déployait, des grondements tonitruants secouaient l'espace. Alors que l'expansion se poursuivait, les yeux de Wang Lin révélèrent une lueur étrange. Il pointa le vide au-dessus de lui.
+Tandis qu'il se déployait, des grondements tonitruants secouaient l'espace. Alors que l'expansion se poursuivait, les yeux de Wang Lin révélèrent une lueur étrange. Il pointa un doigt vers les étoiles.
 
 « Tous les trésors détruits durant ces cent dernières années, et tous les esprits de trésors dissipés lors des guerres passées... Aujourd'hui, moi, Wang Lin, j'appelle vos esprits à surgir du vide et à entrer dans ma formation pour devenir éternels... »
 
@@ -52,11 +52,11 @@ Ces trésors étaient tous brisés; ils avaient déjà été détruits et s'éta
 
 En fusionnant avec lui, ils insufflèrent au disque en expansion une majesté puissante. Après que des millions d'esprits de trésors eurent fusionné avec lui, la roue dégagea une force vitale colossale.
 
-Les maîtres de tous ces trésors étaient morts et les esprits auraient dû disparaître. Cependant, un cycle de réincarnation régnait dans ce monde, et ces esprits de trésors s'étaient extirpés du cycle de la réincarnation. Ils apparurent de partout au sein des quatre grands systèmes stellaires pour fusionner avec le disque.
+Les maîtres de tous ces trésors étaient morts et les esprits auraient dû disparaître. Cependant, un cycle de réincarnation régnait dans ce monde, et ces esprits de trésors s'étaient extirpés du cycle de la réincarnation. Ils surgirent des anciens champs de bataille des quatre grands systèmes stellaires, sous forme de fleuves d'étoiles, pour fusionner avec le disque.
 
 À mesure qu'ils s'intégraient, le disque en rotation rapide acquit une sagesse extrême!
 
-« Toutes les planètes de culture innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil des millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
+« Toutes les planètes de culture innocentes qui se sont effondrées durant cette bataille, vous possédez tous des âmes et vos propres modes de vie singuliers. Pourtant, au fil des millions d'années, tant d'entre vous ont été brisés... Aujourd'hui, je vous appelle tous à entrer dans ma formation pour devenir éternels! Âmes des étoiles, vivez à jamais! » Les yeux de Wang Lin étaient empreints de tristesse lorsqu'il prononça ces mots d'une voix douce.
 
 Alors que ses paroles résonnaient, d'innombrables ombres illusoires de planètes apparurent à travers les quatre grands systèmes stellaires désormais vides.
 
@@ -66,7 +66,7 @@ Il y avait eu de nombreuses planètes de culture; elles étaient détruites depu
 
 Un hurlement déchira les quatre grands systèmes stellaires. Ces innombrables particules de poussière, ces météores et ces continents en lambeaux s'envolèrent avec les âmes des planètes vers le disque d'essence rotatif.
 
-À mesure de leur intégration, le disque d'essence prit une forme physique et dégagea une pression dépassant l'entendement de ce monde. Wang Lin agita la main et le disque continua de s'étendre. Il finit par envelopper le Sceau des Nuages et se propagea jusqu'à Luotian, couvrant intégralement la Rivière Invoquée et le Vide Brillant!
+À mesure de leur intégration, le disque d'essence prit une forme physique et dégagea une pression dépassant l'entendement de ce monde. Wang Lin agita la main et le disque continua de s'étendre. Il finit par envelopper la Mer des Nuages et se propagea jusqu'à Luotian, couvrant intégralement la Rivière Invoquée et le Vide Brillant!
 
 Les cultivateurs du Royaume Intérieur étaient transportés d'excitation en contemplant cette formation circulaire qui remplaçait la défaillante Formation de Scellement. Ils ressentaient un sentiment qu'ils avaient rarement éprouvé de toute leur vie.
 
@@ -90,7 +90,7 @@ De même, à Luotian, des centaines de milliers de fragments d'âmes furent sais
 
 Ces fragments d'âmes ne pouvaient entrer dans le cycle de la réincarnation ni renaître; ils étaient déjà morts. Un fragment d'âme n'est que le ressentiment généré après la mort. Sans un moyen de les rassembler, ils resteraient invisibles. Habituellement, les créatures qui absorbaient cette aura devenaient extrêmement cruelles.
 
-Le ressentiment affectait grandement les cultivateurs, particulièrement ceux dont le niveau de culture était faible. Leurs soi-disant âmes provenaient précisément de ces fragments!
+Le ressentiment affectait grandement les cultivateurs, particulièrement ceux dont le niveau de culture était faible. Leurs soi-disant démons intérieurs provenaient précisément de ces fragments!
 
 Alors que tous les fragments d'âmes des cultivateurs morts du Royaume Extérieur, issus de toutes les guerres passées, se rassemblaient dans la formation circulaire, des âmes commencèrent à apparaître autour du disque. Leurs bras poussaient l'immense roue et, grâce aux millions de fragments d'âmes, le disque commença à tourner.
 
@@ -100,4 +100,4 @@ Ce cycle durerait éternellement!
 
 « Royaume Intérieur, tous les aînés morts lors des guerres passées et mes compagnons cultivateurs. Aujourd'hui, moi, Wang Lin, je trouble le repos de vos âmes pour vous éveiller... Êtes-vous prêts à devenir l'esprit immortel de cette formation? À devenir des âmes qui seront vénérées par les générations futures de mes cultivateurs du Royaume Intérieur! »
 
-« Si vous le voulez tous, je vous appelle à venir! » Wang Lin joignit les mains vers les étoiles!
+« Si vous le voulez, je vous en prie humblement! » Wang Lin joignit le poing dans la paume et s'inclina vers les étoiles!

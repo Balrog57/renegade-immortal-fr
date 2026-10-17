@@ -30,7 +30,7 @@ Le corps entier de Wang Lin fut saisi d'un tressaillement. Une aura glaciale ém
 
 Le corps de Wang Lin tremblait, son visage empreint de confusion et de tourment. La scène gravée dans sa mémoire était indélébile. Dans ce souvenir, Li Guang tenait l'arc de la main gauche et tirait la corde de la droite. La flèche s'était ensuite élancée dans un hurlement monstrueux.
 
-Cette flèche avait déchiré le vide et brisé l'ancien sort. Elle avait traversé son crâne, emportant son œil gauche avant de disparaître parmi les étoiles.
+Cette flèche avait déchiré le ciel et brisé l'ancien sort. Elle avait traversé son corps, emportant son œil gauche avant de disparaître parmi les étoiles.
 
 Après un long moment, Wang Lin cracha une gorgée de sang. Son corps tremblait encore; il recula de quelques pas avant de s'asseoir pour cultiver. Il pratiqua durant une période indéterminée, puis finit par expirer un souffle vicié. Il ouvrit les yeux et contempla la flèche dans le ciel avec une expression complexe.
 
@@ -68,7 +68,7 @@ Au moment où la flèche perçait le firmament, l'intention meurtrière résidue
 
 Cette force ne s'effondra pas, mais se concentra à la pointe avant d'être absorbée par le sceau situé à l'extrémité de la flèche. Elle se transforma alors en anneaux qui furent projetés vers la terre en contrebas.
 
-Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, des dizaines de milliers de pieds. Cependant, plus ils progressaient, plus ils diminuaient en taille.
+Au départ, ces anneaux étaient aussi larges que la pointe de la flèche, des dizaines de milliers de pieds. Cependant, plus ils progressaient, plus ils diminuaient en taille, au point de ne plus mesurer qu'environ dix mille pieds en touchant le sol.
 
 Les anneaux transpercèrent la terre et rétrécirent à mesure qu'ils s'enfonçaient sous le sol. Finalement, l'anneau ne devint plus que de la taille d'un poing, ce qui correspondait à ce que Wang Lin avait vu sur la porte de pierre.
 
@@ -78,7 +78,7 @@ L'océan fut projeté dans les airs avant de se dissiper. Le bassin qui le conte
 
 D'innombrables créatures périrent tragiquement, leur chair s'évaporant. Peut-être n'eurent-elles même pas le temps de pousser un cri avant de mourir.
 
-Quant à la végétation, elle fut inutile: elle se changea en cendres et fut emportée par la tempête.
+Quant à la végétation, inutile d'en parler: elle se changea en cendres et fut emportée par la tempête.
 
 Il y eut aussi les cultivateurs qui auraient pu habiter ces lieux. Qu'il s'agisse d'un homme seul, d'une secte ou de multitudes... tous périrent dans cette bourrasque.
 

@@ -10,7 +10,7 @@ slug: etrange
 
 Qing Lin regarda l'endroit où Wang Lin avait disparu, l'inquiétude se lisant sur son visage.
 
-« Ne t'en fais pas. Cet Omniscient ne vivra pas longtemps après avoir osé comploter contre mon gendre. » Les yeux du Maître du Dao Rêve Bleu trahissaient une intention meurtrière. Il était partial: à ses yeux, Wang Lin était désormais comme son propre enfant. Bien qu'il parlât calmement, il était extrêmement en colère. D'un revers de manche, la lumière bleue l'enveloppa avant qu'il ne disparaisse de la montagne enneigée.
+« Ne t'en fais pas. Cet Omniscient ne vivra pas longtemps après avoir osé comploter contre mon gendre. » Les yeux du Maître du Dao Rêve Bleu trahissaient une intention meurtrière. Il était partial: à ses yeux, Wang Lin était désormais comme son propre neveu. Bien qu'il parlât calmement, il était extrêmement en colère. D'un revers de manche, la lumière bleue l'enveloppa avant qu'il ne disparaisse de la montagne enneigée.
 
 Les yeux de Qing Lin brillèrent d'un éclat vif et il s'élança à son tour vers le ciel. Avant de partir, son Sens Divin se propagea à travers tout le Royaume Céleste.
 
@@ -18,7 +18,7 @@ Les yeux de Qing Lin brillèrent d'un éclat vif et il s'élança à son tour ve
 
 L'aura du Maître Hong Shan explosa depuis le centre du Royaume Céleste. Il s'envola dans les cieux sans la moindre hésitation.
 
-Derrière lui, le Maître Nan Yunzi réfléchit un instant et choisit de rester. Après tout, les cultivateurs de la troisième étape étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
+Derrière lui, le Maître Nan Yunzi réfléchit un instant et choisit de rester. Après tout, les puissants étaient rares dans le Royaume Céleste; si tous partaient, ils se retrouveraient en position de faiblesse.
 
 Wang Lin jaillit de la rivière argentée entourant le Royaume Céleste pour se fondre dans le monde. Lorsqu'il réapparut, il se trouvait déjà dans la Rivière Invoquée. Bien qu'il parût calme, ses yeux étaient empreints d'une intention meurtrière. Beaucoup de choses restaient encore obscures, mais les paroles du Maître du Dao Rêve Bleu lui avaient fait comprendre une chose essentielle.
 
@@ -40,7 +40,7 @@ Un grondement de tonnerre résonna lorsque le poing de Wang Lin heurta le mété
 
 Une onde de choc destructrice se propagea, comme si son coup de poing avait percé l'espace lui-même.
 
-Dans un éclat de lumière aux sept couleurs, le corps de l'Omniscient apparut. Sa main traça un sceau et agita l'air, dissipant les flammes destructrices devant lui.
+Dans un éclat de lumière aux sept couleurs, le corps de l'Omniscient apparut. Sa main traça un sceau et agita l'air, dissipant les ondes destructrices devant lui.
 
 « Omniscient! » Wang Lin leva la tête et fixa l'homme du regard avant de faire un pas vers lui.
 
@@ -58,11 +58,11 @@ Le choc des deux essences de feu provoqua une onde de choc qui traversa tout le 
 
 Alors que le fracas tonnerre résonnait, les deux oiseaux vermillons s'effondrèrent pour redevenir deux masses de feu. L'une fonça sur l'Omniscient et l'autre submergea Wang Lin.
 
-Au moment même où les flammes qui recouvraient tout se dissipèrent, le tonnerre gronda là où se tenait l'Omniscient. La foudre convergea de toutes parts pour former un gigantesque dragon de tonnerre à neuf têtes!
+Au moment même où les flammes qui recouvraient tout s'effondraient, le tonnerre gronda là où se tenait l'Omniscient. La foudre convergea de toutes parts pour former un gigantesque dragon de tonnerre à neuf têtes!
 
 Ce dragon poussa un rugissement et chacune de ses neuf têtes libéra un éclair de foudre. Ces éclairs percèrent les restes du feu et se précipitèrent vers Wang Lin telle une divine rétribution.
 
-L'expression de Wang Lin était sombre. Familier avec l'essence du tonnerre, il chargea en avant. L'éclair dans son œil droit jaillit, le transformant en un gigantesque éclair de tonnerre éternel qui fonça sur le dragon à neuf têtes!
+L'expression de Wang Lin était sombre. Familier avec l'essence du tonnerre, il chargea en avant. L'éclair dans son œil droit jaillit, le transformant en un gigantesque foudre fendant le ciel qui fonça sur le dragon à neuf têtes!
 
 Les deux essences de tonnerre entrèrent en collision avant même que les flammes ne se soient dispersées. Le tonnerre rugit et le visage de Wang Lin pâlit, mais il ne recula pas. Il traversa la tempête électrique pour se retrouver à quelques centaines de pieds de l'Omniscient.
 
@@ -72,7 +72,7 @@ Wang Lin exécuta le même mouvement; ils formèrent chacun un poing avant de se
 
 Leurs corps tremblèrent simultanément. Le visage de l'Omniscient devint livide et il cracha une bouffée de sang. Bien que forcé de reculer, son regard demeurait serein.
 
-« Tes sorts, tes essences... tu connais tout ce que je sais... »
+« Tes sorts, tes essences, tout ce qui est à toi... je les maîtrise tous... »
 
 Wang Lin recula en fixant l'Omniscient. L'intention meurtrière dans ses yeux s'intensifia, et une multitude de lignes de sang apparurent dans son regard.
 
@@ -86,7 +86,7 @@ Wang Lin recula en fixant l'Omniscient. L'intention meurtrière dans ses yeux s'
 
 « Toi et moi ne faisons déjà plus qu'un, tu es mon avatar. Alors, peu importe si je te laisse me tuer... » L'Omniscient afficha un sourire étrange. Il laissa les innombrables lignes de sang le lacérer, et son corps s'effondra.
 
-À cet instant, l'aura de la mort d'une âme que seul Wang Lin pouvait percevoir jaillit du corps déchiqueté de l'Omniscient. Que Wang Lin le voulût ou non, elle vola vers lui et fusionna avec l'âme de l'avatar de l'Omniscient qu'il portait en lui, la renforçant ainsi.
+À cet instant, l'aura d'une âme que seul Wang Lin pouvait percevoir jaillit du corps déchiqueté de l'Omniscient. Que Wang Lin le voulût ou non, elle vola vers lui et fusionna avec l'âme de l'avatar de l'Omniscient qu'il portait en lui, la renforçant ainsi.
 
 Au moment où l'âme de l'avatar se fortifia, Wang Lin sentit immédiatement l'aura de l'Omniscient surgir dans une autre partie de la Rivière Invoquée!
 

@@ -6,11 +6,11 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1534 - Search
 slug: recherche
 ---
-Ce vortex géant aspirait la brume qui était propre à Wang Lin pour en faire un vortex de brouillard.
+Ce vortex géant aspirait la brume propre au Système Stellaire de la Mer des Nuages pour en faire une zone de brume tourbillonnante.
 
 Cette bataille fut un coup terrible porté au Royaume Extérieur. Elle permit aux cultivateurs du Royaume Extérieur, jusqu'alors en proie à la frénésie, de reprendre leurs esprits. Le Royaume Extérieur avait trop souffert lors de ce combat!
 
-Les membres de plus d'une douzaine de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan des Hirondelles de Feu était mort, l'estimé Nan Zhao était mort, et même le seigneur du Palais de la Punition Céleste avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
+Les membres de plusieurs dizaines de tribus périrent. Aucun survivant ne subsista parmi ceux qui étaient entrés dans le Royaume Intérieur… L'ancêtre du Clan des Hirondelles de Feu était mort, l'estimé Nan Zhao était mort, et même le seigneur du Palais de la Punition Céleste avait péri! Plus de 100 000 cultivateurs furent enterrés dans le Royaume Intérieur!
 
 L'ensemble du Système Stellaire Antique fut empreint de tristesse. Une tristesse intense qui se mua lentement en colère, une soif de vengeance!
 
@@ -40,9 +40,9 @@ Heureusement, les Sectes Divine, Démoniaque et Fantôme n'avaient pas révélé
 
 En raison de l'instabilité causée par cette bataille, toute la Mer des Nuages était devenue erratique. Des failles spatiales étaient apparues partout, rendant tout vol à travers la Mer des Nuages extrêmement périlleux.
 
-La Secte Démoniaque avait envoyé près de 70 % de ses cultivateurs pour stationner sur le site de la première bataille.
+La Secte Démoniaque avait envoyé près de 70 % de ses cultivateurs pour stationner en permanence à l'extérieur du site de la première bataille, la zone la plus vide de tout le royaume.
 
-Sans la Formation de Scellement du Royaume, l'endroit constituait désormais la porte d'entrée vers le Royaume Intérieur, bien que la zone fût saturée de tempêtes spatiales!
+Sans la Formation de Scellement du Royaume, une fois la tempête passée, l'endroit, malgré ses vortex et ses trous noirs, constituait désormais la porte d'entrée vers le Royaume Intérieur!
 
 La Secte Fantôme avait également envoyé une grande quantité de cultivateurs pour se poster ici. Quant à la Secte Divine, sous la direction de Mu Bingmei, elle avait mis en place des formations puissantes et établi un blocus en prévision de la seconde bataille qui allait bientôt éclater.
 
@@ -98,7 +98,7 @@ Mu Bingmei, qui était devenue la maîtresse de la Secte Divine grâce à une si
 
 Accablé par le chagrin, Situ Nan abandonna sa culture dans le Royaume Céleste de la Pluie pour se livrer silencieusement à la boisson. Il buvait avec excès et riait en levant les yeux vers le ciel. Pourtant, tout en riant, ses larmes coulaient inexorablement. Il but pendant trois jours, rit pendant trois jours et pleura pendant trois jours. Par la suite, il prit la décision de quitter le Royaume Céleste de la Pluie. Il allait retrouver son frère!
 
-Lorsqu'il partit, Zhou Ru était en larmes. À sa demande déterminée, elle partit avec Situ Nan… Da Tou et Lei Ji partirent deux jours après lui. Ils allaient chercher leur maître… Le premier à quitter le Royaume Céleste de la Pluie ne fut pas Situ Nan, mais Treize. Lorsqu'il apprit la situation, il partit sans hésiter, emportant la statue de Wang Lin!
+Lorsqu'il partit, Zhou Ru était en larmes. À sa demande déterminée, elle partit avec Situ Nan… Da Tou et Lei Ji partirent ensemble le lendemain de son départ. Ils allaient chercher leur maître… Le premier à quitter le Royaume Céleste de la Pluie ne fut pas Situ Nan, mais Treize. Lorsqu'il apprit la situation, il partit sans hésiter, emportant la statue de Wang Lin!
 
 Beaucoup cherchaient le Seigneur du Royaume Scellé Wang Lin, mais malgré leurs efforts, ils ne purent trouver la moindre piste…
 

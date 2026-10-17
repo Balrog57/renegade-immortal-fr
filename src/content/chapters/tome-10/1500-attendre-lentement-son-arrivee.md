@@ -10,7 +10,7 @@ Des sons de toux saccadés semblaient rompre le silence de la cour. Ce bruit ét
 
 Le vent hurlait, faisant vaciller violemment la lanterne qui tremblait comme si elle expirait son dernier souffle.
 
-Le vent agitait la lanterne comme s'il voulait s'engouffrer dans la cour pour emporter l'âme qui luttait... Tandis que la lanterne oscillait, on pouvait lire le mot « Soleil » inscrit sur sa paroi.
+Le vent agitait la lanterne comme s'il voulait s'engouffrer dans la cour pour emporter l'âme qui luttait... Tandis que la lanterne oscillait, on pouvait lire, tracé en cinabre rouge, le caractère « Sun » (孙) sur sa paroi.
 
 La famille Sun!
 
@@ -82,7 +82,7 @@ La vieille femme fut stupéfaite en entendant la voix de Wang Lin. Elle se retou
 
 « Je viens juste de revenir. Je passais par là et je voulais voir s'il restait encore des vieux amis. » Wang Lin s'assit en face de la vieille femme. Il la regarda comme on regarde un compagnon de longue date.
 
-Aux yeux de Wang Lin, son nom n'avait plus d'importance. Après tout, leur relation n'était pas celle d'un homme et d'une femme, mais celle de vieux amis. Qu'elle fût un homme ou une femme importait peu; tout cela n'était que des souvenirs.
+Aux yeux de Wang Lin, son sexe n'avait plus d'importance. Après tout, leur relation n'était pas celle d'un homme et d'une femme, mais celle de vieux amis. Qu'elle fût un homme ou une femme importait peu; tout cela n'était que des souvenirs.
 
 Cette nuit-là, Wang Lin était très heureux. Leurs paroles respectives résonnaient dans la cour. Bien que sa voix fût rauque, elle lui semblait toujours être le rire cristallin d'une cloche d'il y a mille ans.
 
@@ -125,3 +125,5 @@ Un bateau solitaire naviguait sur l'océan. Wang Lin se tenait sur ce frêle esq
 Wang Lin traversa la montagne, la rivière et l'océan. Il parcourut les plaines, les jungles et tout ce qu'il avait vu avec Wang Ping autrefois. Bien qu'il fût un Dieu Ancien à sept étoiles, bien qu'il fût célèbre dans le Royaume Extérieur, et même s'il allait bientôt ébranler le Royaume Intérieur par sa renommée...
 
 Il n'en demeurait pas moins un père... Un mortel qui regrettait son fils, Wang Ping... En pensant à son foyer, ses pensées devinrent mélancoliques. Il sentit l'âme de Wang Ping émaner de la Perle Défiant le Ciel. Les cheveux blancs et la silhouette solitaire. Wang Lin quitta ce lieu chargé de souvenirs inoubliables et disparut progressivement dans le lointain, ne laissant derrière lui qu'un soupir mélancolique.
+
+Ran Yun, comme son nom l'indique : « Ran » évoque la forme, l'idée du saule qui retombe, comme un nuage qui descend lentement à l'horizon avant de se dissiper... La vieillesse approche lentement...

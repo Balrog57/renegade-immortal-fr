@@ -10,11 +10,13 @@ Maître Lu Fu prit une profonde inspiration, et l'étonnement dans ses yeux s'in
 
 Cependant, ce choc disparut rapidement et les yeux de Maître Lu Fu s'illuminèrent. Un rictus méprisant étira alors ses lèvres.
 
-« Heureusement, il n'a pas encore atteint le troisième stade! Tant qu'il n'a pas franchi cette étape, je ne crois pas qu'il oserait défier ce vieil homme! Peu importe s'il possède deux essences, ce ne sont que de la mauvaise herbe. S'il ne me provoque pas, cela m'importe peu; mais s'il ose faire un pas de travers, ce vieil homme lui enseignera ce qu'est réellement l'existence d'un cultivateur du troisième stade au début du Vide du Nirvana! »
+« Heureusement, il n'a pas encore atteint le troisième stade! Tant qu'il n'a pas franchi cette étape, je ne crois pas qu'il oserait défier ce vieil homme! Peu importe s'il possède deux essences, ce n'est qu'une brute. S'il ne me provoque pas, cela m'importe peu; mais s'il ose faire un pas de travers, ce vieil homme lui enseignera ce qu'est réellement l'existence d'un cultivateur du troisième stade au début du Vide du Nirvana! »
 
-La planète Dong Ling, le lieu le plus mystérieux de Luotian! Wang Lin avait entendu parler de cet endroit par le passé.
+Sur ces mots, avec un ricanement froid, Maître Lu Fu s'éloigna d'un pas, sans avoir jeté un seul regard à Xie Qing, en contrebas. À ses yeux, tous les êtres vivants entre le ciel et la terre n'étaient que des fourmis, indignes d'un regard!
 
-Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale de Luotian. Même pour un cultivateur au stade de Briseur du Nirvana, il était extrêmement difficile de localiser la planète Dong Ling.
+La planète Dong Lin, le lieu le plus mystérieux de Luotian! Wang Lin avait entendu parler de cet endroit par le passé.
+
+Cette planète n'avait pas de position fixe et dérivait lentement dans la partie orientale de Luotian. Même pour un cultivateur au sommet du Briseur du Nirvana, sans jade de guidage, il était extrêmement difficile de localiser dans l'immensité des étoiles cette planète mouvante, la planète Dong Lin.
 
 Même en utilisant son Sens Divin, on ne pouvait la trouver en raison de la structure unique de la planète. La grande majorité des cultivateurs devait s'en remettre à la vue nue pour la débusquer.
 
@@ -22,15 +24,15 @@ Cependant, cela ne concernait pas Wang Lin!
 
 À cet instant, dans l'immensité de la partie orientale de Luotian, une planète de culture imposante flottait lentement. Des cratères étaient parsemés sur toute sa surface. La planète émettait une lueur jaune sombre et dégageait une pression écrasante.
 
-La planète Dong Ling!
+La planète Dong Lin!
 
 Elle n'était pas isolée; des dizaines de plus petites planètes de culture gravitaient autour d'elle, suivant son mouvement.
 
-Des éclairs de lumière de formation reliaient ces astres mineurs à la planète Dong Ling. De loin, l'ensemble ressemblait à un filet gigantesque!
+Des éclairs de lumière de formation reliaient ces astres mineurs à la planète Dong Lin. De loin, l'ensemble ressemblait à un filet gigantesque!
 
-À cet instant, les formations sur la planète Dong Ling étaient pleinement actives, provoquant des craquements qui résonnaient à travers tout le système stellaire.
+À cet instant, les formations sur la planète Dong Lin étaient pleinement actives, provoquant des craquements qui résonnaient à travers tout le système stellaire.
 
-On pouvait vaguement apercevoir des éclats de lumière d'épée sur ces dizaines de petites planètes. De nombreux cultivateurs y ajoutaient rapidement des formations afin de renforcer la puissance défensive de la planète Dong Ling.
+On pouvait vaguement apercevoir des éclats de lumière d'épée sur ces dizaines de petites planètes. De nombreux cultivateurs y ajoutaient rapidement des formations afin de renforcer la puissance défensive de la planète Dong Lin.
 
 L'atmosphère tendue était palpable à travers les expressions sombres de ces milliers de cultivateurs.
 
@@ -42,25 +44,25 @@ Pourtant, ils n'avaient plus le choix! Le représentant de la famille Xiang, Xia
 
 Wang Lin, dont la vitalité avait été dérobée par l'Ancêtre, était revenu avec une puissance suffisante pour inquiéter jusqu'à Maître Lu Fu!
 
-Cette nouvelle avait secoué toute la famille Xiang. Après un instant de réflexion, le chef actuel de la famille et le Grand Ancien émirent immédiatement l'Ordre de Sang de Dong Ling!
+Cette nouvelle avait secoué toute la famille Xiang. Après un instant de réflexion, le chef actuel de la famille et le Grand Ancien émirent immédiatement l'Ordre de Sang de Dong Lin!
 
-La famille Xiang était le véritable souverain secret de la planète Dong Ling, mais elle montrait rarement son visage. Même les cultivateurs de Luotian l'ignoraient, ne sachant que la présence de trois grandes familles sur la planète Dong Ling!
+La famille Xiang était le véritable souverain secret de la planète Dong Lin, mais elle montrait rarement son visage. Même les cultivateurs de Luotian l'ignoraient, ne sachant que la présence de trois grandes familles sur la planète Dong Lin!
 
 Les Xu, les Lu et les Liu!
 
-La famille Xu produisait de nombreux dieux de la destruction et était très célèbre. Le simple fait de prononcer leur nom suffisait à faire trembler les gens!
+La famille Xu produisait de nombreux dieux tueurs et était très célèbre. Le simple fait de prononcer leur nom suffisait à faire trembler les gens!
 
-Il y avait aussi la famille Lu. Bien que moins renommée que les Xu, elle excellait dans l'art des restrictions. Certes, ils ne possédaient pas l'héritage de l'une des quatre grandes restrictions antiques, comme la famille de Li Yuan, mais ils comptaient de nombreux génies versés dans cet art!
+Il y avait aussi la famille Lu. Bien que moins renommée que les Xu, elle excellait dans l'art des restrictions. Certes, ils ne possédaient pas l'héritage de l'une des quatre grandes restrictions antiques, comme la famille de Li Yuan, jadis aussi célèbre que la famille Xiang puis déclinée au fil des ans, mais ils comptaient de nombreux génies versés dans cet art!
 
-Toutes les formations de la planète Dong Ling avaient été posées par la famille Lu!
+Toutes les formations de la planète Dong Lin avaient été posées par la famille Lu!
 
-Enfin, la famille Liu s'était illustrée par le développement de trésors magiques. Leur Sortilège des Neuf Poupées de Sang était une fusion terrifiante de sorts et d'objets magiques. La rumeur disait que depuis sa création, il n'avait été utilisé qu'une seule fois.
+Enfin, la famille Liu s'était illustrée par le développement de trésors magiques. Leur Sortilège du Tournesol de Sang aux Neuf Vies était une fusion terrifiante de sorts et d'objets magiques. La rumeur disait que depuis sa création, il n'avait été utilisé qu'une seule fois.
 
-Cependant, lors de cet unique usage, il avait presque anéanti toute vie dans la partie orientale de Luotian, comme si l'apocalypse était survenue!
+Cependant, lors de cet unique usage, il avait plongé dans le malheur tous les êtres vivants de la partie orientale de Luotian, comme si c'était la fin du monde!
 
 Ces trois grandes familles se livraient des combats incessants, utilisant ces méthodes cruelles pour maintenir la vitalité de leurs lignées. Pourtant, seuls quelques vieux monstres savaient qu'en vérité, les Xu, les Lu et les Liu n'étaient que des branches de la famille Xiang!
 
-La famille Xiang était la plus puissante du système stellaire de Luotian! Elle pouvait rivaliser avec le Temple Céleste du Tonnerre, lequel serait même en position de faiblesse! Bien sûr, cela était entendu sans compter Maître Lu Fu.
+La famille Xiang était, parmi les familles de cultivateurs de Luotian héritées des temps antiques, la lignée la plus puissante! Elle pouvait rivaliser avec le Temple Céleste du Tonnerre, lequel serait même en position de faiblesse! Bien sûr, cela était entendu sans compter Maître Lu Fu.
 
 La famille Xiang était tel un béhémoth assoupi. Dès son réveil, elle ébranlerait tout le système stellaire de Luotian!
 
@@ -78,17 +80,17 @@ Cette famille de culture antique existait depuis bien avant l'effondrement du Ro
 
 Elle restait extrêmement discrète, et ses membres n'étaient pratiquement pas apparus au cours des dizaines de milliers d'années passées. Bien que Wang Lin fût présent à Luotian lorsque Maître Lu Fu déclencha la guerre, cette famille mystérieuse n'avait envoyé qu'un seul ordre et une seule personne.
 
-L'ordre consistait à octroyer les titres célestes. Il s'agissait du vieil homme qui avait tenté de sceller l'essence du Serpent aux yeux de lune: Maître Yi Mu.
+L'ordre consistait à conférer le titre d'Immortel véritable. La personne envoyée était le neuvième Ancien, celui qui avait cherché à s'emparer de l'essence lunaire dans le corps du Serpent aux yeux de lune: Maître Yi Mu.
 
-Les trois familles de la planète Dong Ling furent mobilisées sous l'Ordre de Sang de la famille Xiang. À cet instant, la planète entière était prête pour la guerre.
+Les trois familles de la planète Dong Lin furent mobilisées sous l'Ordre de Sang de la famille Xiang. À cet instant, la planète entière était prête pour la guerre.
 
-La terre était d'un rouge sombre, comme si elle avait été imbibée de sang depuis des temps immémoriaux. Une odeur de sang flottait ici depuis une éternité.
+Sur la planète principale de Dong Lin, à l'extrême ouest, la terre était d'un rouge sombre, comme si elle avait été imbibée de sang depuis des temps immémoriaux. Une odeur de sang flottait ici depuis une éternité.
 
-Peut-être à cause de cette effluve écœurante que toute la région dégageait une aura tyrannique.
+C'était peut-être à cause de cette odeur de sang si épaisse que tout, ici, dégageait une aura tyrannique.
 
-La partie orientale de la planète était un cimetière sans fin. D'innombrables membres, des os blanchâtres et de la chair putréfiée attiraient les vautours qui tournaient dans le ciel, certains picorant les restes en décomposition.
+L'extrême ouest de la planète n'était qu'un cimetière sans fin. D'innombrables membres, des os blanchâtres et de la chair putréfiée attiraient les vautours qui tournaient dans le ciel, certains picorant les restes en décomposition.
 
-Tout le secteur oriental était imprégné d'une aura de mort monstrueuse. Cette aura formait un immense vortex invisible capable de faire trembler l'esprit du plus robuste des cultivateurs.
+Toute l'extrême ouest était imprégnée d'une aura de mort monstrueuse. Cette aura formait un immense vortex invisible qui ébranlait l'esprit de tout cultivateur s'en approchant.
 
 D'innombrables âmes tourmentées poussaient des cris silencieux, chargés de ressentiment.
 
@@ -104,7 +106,7 @@ L'un d'eux joignit respectueusement les mains vers le sol et dit: « Ancêtre, t
 
 La voix du vieil homme pénétra la terre et résonna dans les profondeurs. Elle atteignit enfin une vaste cavité souterraine.
 
-À première vue, cette cavité semblait sans fin, n'étant constituée que d'une mer infinie de têtes! L'aura de mort y était des milliers de fois plus intense qu'en surface.
+À première vue, cette cavité semblait sans fin, n'étant constituée que d'une mer infinie de têtes! L'aura de mort y était d'innombrables fois plus intense qu'en surface.
 
 Au centre de cet océan de crânes se dressait une tour de têtes. Sur cette tour reposait un cercueil jaune terreux. Certaines parties du cercueil étaient en putréfaction, et un liquide épais et jaunâtre s'en écoulait. L'eau tombait goutte à goutte sur les têtes humaines, produisant des bruits de sifflement.
 
@@ -118,10 +120,10 @@ La terre trembla tandis que la voix de l'être dans le cercueil résonnait. Apr�
 
 Puisque l'Ancêtre avait déclaré qu'il n'y aurait pas de problème, alors rien ne pouvait mal tourner!
 
-Cependant, aucun d'eux, pas même l'Ancêtre de la famille Xiang, n'avait remarqué qu'une silhouette en blanc était apparue dans la région et se dirigeait vers la planète Dong Ling!
+Cependant, aucun d'eux, pas même l'Ancêtre de la famille Xiang, n'avait remarqué qu'une silhouette en blanc était apparue dans la région et se dirigeait vers la planète Dong Lin!
 
 Wang Lin était arrivé!
 
-Wang Lin contempla la planète Dong Ling, recouverte de formations, ainsi que les dizaines de petites planètes qui l'entouraient. Il se remémora l'époque où il était venu ici avec Qing Shui et Xiang Yundong, et tout l'espoir qu'il portait alors.
+Wang Lin contempla la planète Dong Lin, recouverte de formations, ainsi que les dizaines de petites planètes qui l'entouraient. Il se remémora l'époque où il était venu ici avec Qing Shui et Xiang Yundong, et tout l'espoir qu'il portait alors.
 
 Le regard de Wang Lin devint progressivement d'une froideur extrême!

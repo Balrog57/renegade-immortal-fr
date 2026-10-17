@@ -14,9 +14,9 @@ slug: controler-le-destin
 
 « Ce n'est pas étonnant qu'il ait dit que quelqu'un dans sa ville natale pourrait ressusciter Li Muwan, mais que lui ne le pouvait pas. Ce n'est pas étonnant... Ce n'est pas étonnant...
 
-« Si l’Estimé Esprit Dispersé peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Astral Immortel peuvent être puissants!
+« Si le Daoïste Esprit Dispersé peut sortir son peuple des 7 Millions de Mondes, alors moi, Wang Lin, je peux faire de même. Je veux voir à quel point les habitants du Continent Astral Immortel peuvent être puissants!
 
-« Quand je sortirai de cette grotte pour entrer dans le Continent Astral Immortel, je veux voir si je peux déclencher un bain de sang. Voir si moi, simple cultivateur né dans une grotte, je peux me hisser au-dessus de ces puissants cultivateurs du Continent Astral Immortel! » Wang Lin riait comme un fou. Il n'était pas surpris par ce qui s'était passé aujourd'hui, car il nourrissait des spéculations à ce sujet depuis un certain temps. Cependant, il ne voulait pas y croire, il refusait de l'admettre. Il s'était même menti à lui-même pour ne pas y penser.
+« Quand je sortirai de cette grotte pour entrer dans le Continent Astral Immortel, je veux voir si je peux déclencher un bain de sang. Voir si moi, simple cultivateur né dans une grotte, je peux faire plier les puissants cultivateurs du Continent Astral Immortel à mes pieds! » Wang Lin riait comme un fou. Il n'était pas surpris par ce qui s'était passé aujourd'hui, car il nourrissait des spéculations à ce sujet depuis un certain temps. Cependant, il ne voulait pas y croire, il refusait de l'admettre. Il s'était même menti à lui-même pour ne pas y penser.
 
 Pourtant, aujourd'hui, il avait tout vu clair. Qu'importe s'il connaissait la vérité? Il restait Wang Lin, il restait un cultivateur défiant le ciel. Il allait toujours ressusciter Li Muwan, et il allait toujours affronter le monde seul.
 
@@ -30,17 +30,17 @@ Sans marquer de pause, Wang Lin s'avança vers le troisième soleil. Un fracas d
 
 Après avoir brisé trois soleils consécutifs, Wang Lin s'élança en avant, riant comme un fou. Il leva la main droite et créa une paume géante qui s'abattit sur le quatrième soleil.
 
-Le quatrième soleil contenait quatre épées et dégageait une énergie de sabre terrifiante. Cependant, Wang Lin ne se souciait absolument pas de cette énergie!
+Le quatrième soleil contenait quatre épées et dégageait une énergie d'épée terrifiante. Cependant, Wang Lin ne se souciait absolument pas de cette énergie!
 
 Le cinquième soleil renfermait d'innombrables silhouettes illusoires. Ces figures fusionnaient pour former un flou indistinct. C'était la racine de la rétribution de l'illusion.
 
-Le sixième soleil contenait les auras de trois trésors. Il s'agissait des trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin en avait détruit deux, leurs auras s'étaient fusionnées.
+Le sixième soleil contenait les auras de trois trésors. Il s'agissait des trésors qui avaient été utilisés contre Wang Lin précédemment. Maintenant que Wang Lin les avait détruits, leurs auras s'étaient fusionnées.
 
 Le septième soleil contenait la force de l'âme des trois clans anciens. D'innombrables âmes de ces trois clans y étaient scellées. C'était la méthode ultime pour manipuler les messagers des cieux.
 
 En approchant du huitième soleil, Wang Lin ressentit l'aura de la rétribution de soi. Cette aura changeait si rapidement qu'il était difficile de la distinguer.
 
-Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Royaume Céleste Antique. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
+Après avoir brisé huit soleils d'affilée, un grondement tonitruant déchira l'Ancien Royaume Céleste. Ce fracas sourd fit trembler la terre, et les statues au sol vibrèrent également.
 
 Cependant, Wang Lin n'en avait cure. Son regard se posa sur le neuvième soleil. Il n'avait jamais vu la divine rétribution qui résidait dans ce neuvième soleil auparavant.
 
@@ -58,7 +58,7 @@ Le Sens Divin de Wang Lin pénétra dans les profondeurs du neuvième soleil. L'
 
 Il vit la vie d'innombrables mortels et de cultivateurs. Il vit les visages de nombreuses personnes qu'il ne connaissait pas. Ils portaient tous des vêtements antiques et étaient morts depuis très longtemps.
 
-Ce neuvième soleil contenait le destin de tous les êtres vivants apparus depuis la création de ce monde. C'était comme la réincarnation, c'était comme la loi. Cela transformait tout ce qui touchait à la chance et à l'opportunité pour tout réduire au seul destin.
+Ce neuvième soleil contenait le destin de tous les êtres vivants apparus depuis la création de ce monde. C'était comme la réincarnation, c'était comme la loi. Cela transformait tout ce qui touchait aux injustices et aux opportunités pour tout réduire au seul destin.
 
 Le neuvième soleil contenait le soi-disant Destin!
 

@@ -20,7 +20,7 @@ Zhan Xingye!
 
 Le Maître Lu Fu posa la tasse qu'il tenait. Ses yeux trahissaient un choc profond. Il avait rencontré Zhan Xingye par le passé. À cette époque, cet homme avait déjà atteint le sommet du Vide du Nirvana et était comparable aux cieux!
 
-Le Maître Lu Fu avait même reçu une bénédiction de Zhan Xingye, raison pour laquelle il avait inclus Lie Yunzi parmi les quatre disciples à qui il enseigna le sortilège du Dao. Au-delà de rendre cette faveur passée, il avait également l'intention de tisser des liens avec le disparu Zhan Xingye.
+Le Maître Lu Fu avait même reçu une faveur de Zhan Xingye, raison pour laquelle il avait inclus Lie Yunzi parmi les quatre disciples à qui il enseigna le sortilège du Dao. Au-delà de rendre cette faveur passée, il avait également l'intention de se lier d'amitié avec le disparu Zhan Xingye.
 
 Après avoir entendu les paroles de Wang Lin, il prit une profonde inspiration et resta plongé dans une méditation silencieuse.
 
@@ -38,7 +38,7 @@ Alors que Wang Lin évoquait le Royaume aux sept couleurs et mentionnait son hyp
 
 Le Maître Yan Leizi sentit son esprit vaciller. Ce que Wang Lin révélait sur le Royaume aux sept couleurs lui rappelait des événements terrifiants du passé.
 
-Le Maître Lu Fu, bouleversé, se leva soudainement. Il joignit les mains en signe de respect devant Wang Lin et dit: « Camarade cultivateur Wang, cette affaire est trop grave. L'existence même du Royaume aux sept couleurs représente un danger latent pour le Royaume Intérieur. Une fois que le Royaume Extérieur aura envahi nos terres, je crains que ce royaume n'apporte un désastre inimaginable à notre monde! »
+Le Maître Lu Fu, bouleversé, se leva soudainement. Il joignit les mains en signe de respect devant Wang Lin et dit: « Camarade cultivateur Wang, cette affaire est trop grave. L'existence même du Royaume aux sept couleurs est comme une tumeur parasite dans notre Royaume Intérieur. Une fois que le Royaume Extérieur aura envahi nos terres, je crains que ce royaume n'apporte un désastre inimaginable à notre monde! »
 
 « Absorber toute l'intention du Dao des cultivateurs de mon Royaume Intérieur... quelle méthode redoutable! Ce vieil homme doit immédiatement se rendre à la Secte Démoniaque dans la Mer des Nuages pour qu'ils mobilisent toutes les forces afin d'éliminer les six autres Royaumes aux sept couleurs! » L'expression du Maître Lu Fu était extrêmement grave. Il percevait clairement le péril imminent. Sans l'alerte de Wang Lin, cela aurait causé une catastrophe sans précédent lors de l'invasion du Royaume Extérieur!
 
@@ -80,15 +80,15 @@ Wang Lin réfléchit un instant et répondit: « C'est possible, mais mes mouvem
 
 Le Maître Yan Leizi n'avait presque jamais supplié quiconque de sa vie, et prononcer de telles paroles à celui qui était son junior autrefois rendait son expression tourmentée.
 
-Wang Lin observa le Maître Yan Leizi. Il se souvenait distinctement que dans le Royaume Céleste du Tonnerre, ce dernier avait combattu un Qing Shui blessé. Le Maître Yan Leizi avait également emprunté la bête de tonnerre de Wang Lin et utilisé une méthode puissante pour retrouver le Royaume Céleste du Tonnerre.
+Wang Lin observa le Maître Yan Leizi. Il se souvenait distinctement que dans le Royaume Céleste du Tonnerre, ce dernier avait combattu un Qing Shui blessé. Le Maître Yan Leizi avait également emprunté la bête de tonnerre de Wang Lin et d'un coup magistral, utilisé plus de la moitié du Royaume Céleste du Tonnerre comme trésor magique à raffiner.
 
-Wang Lin pesa le pour, puis dit lentement: « D'accord! »
+Wang Lin garda le silence un instant, puis dit lentement: « D'accord! »
 
 Une fois ses mots prononcés, il agita sa manche et disparut de la formation en un clin d'œil. Le Maître Yan Leizi et Lie Yunzi fixèrent l'endroit où Wang Lin avait disparu, les traits marqués par une émotion complexe.
 
 « On vieillit... On vieillit vraiment... » soupira le Maître Yan Leizi.
 
-« L'avenir du Royaume Intérieur appartient à ce monde... » murmura Lie Yunzi en secouant la tête. Les souvenirs de sa rencontre avec Wang Lin défilèrent dans son esprit.
+« L'avenir du Royaume Intérieur est son monde... » murmura Lie Yunzi en secouant la tête. Les souvenirs de sa rencontre avec Wang Lin défilèrent dans son esprit.
 
 Wang Lin traversa Luotian à une vitesse fulgurante. À chaque pas, il franchissait des distances incommensurables. Sur les quatre affaires qu'il devait régler à Luotian, trois étaient accomplies; il n'en restait plus qu'une!
 
@@ -96,13 +96,13 @@ Cette dernière affaire n'était ni une vengeance, ni la résolution d'un karma,
 
 Cette chose l'avait profondément stupéfié, et même en y pensant maintenant, il en ressentait encore le choc. À l'époque, il n'était pas qualifié pour l'obtenir, mais désormais, il possédait la force nécessaire pour la trouver et la capturer!
 
-Il allait la raffiner pour en faire son essence vitale de Dieu Antique!
+Il allait la raffiner pour en faire son essence vitale de Dieu Ancien!
 
-En vérité, lorsqu'il était encore un Dieu Antique de 6 étoiles, il aurait pu raffiner une bête pour en faire son essence vitale, mais il n'en avait jamais trouvé une qui soit à sa mesure. Il avait beaucoup aimé le Ji Qiong, mais faute de puissance, il n'avait pu l'obtenir.
+En vérité, lorsqu'il était encore un Dieu Ancien de 6 étoiles, il aurait pu raffiner une bête pour en faire son essence vitale, mais il n'en avait jamais trouvé une qui soit à sa mesure. Il avait beaucoup aimé le Ji Qiong, mais faute de puissance, il n'avait pu l'obtenir.
 
 Cependant, même le Ji Qiong pâlissait face à ce que Wang Lin visait désormais. Quant aux nombreuses bêtes féroces de la Mer des Nuages, même les créatures de rang 13 ne pouvaient captiver son attention!
 
-« Bien que je ne l'aie pas combattue, d'après ce que j'ai vu autrefois, elle doit être au troisième niveau! Même le Serpent aux yeux de lune ne pourra lui résister! Je dois obtenir cette bête! »
+« Bien que je ne l'aie pas combattue, d'après ce que j'ai vu autrefois, sa puissance est comparable à la troisième étape! Même le Serpent aux yeux de lune ne pourra lui résister! Je dois obtenir cette bête! »
 
 Alors qu'il progressait, une étincelle de soif de combat brillait dans ses yeux. Il était sur le point de charger vers le domaine stellaire où il l'avait aperçue, mais soudain, il s'arrêta net.
 

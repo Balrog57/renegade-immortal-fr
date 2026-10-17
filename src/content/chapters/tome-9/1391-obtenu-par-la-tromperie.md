@@ -18,7 +18,7 @@ Zhong Grand Rouge était extrêmement arrogant; il se déplaçait entre les deux
 
 Certains conserveraient leur statut, tandis que d'autres seraient remplacés.
 
-Cependant, Wang Lin n'y accordait guère d'importance. Ce qui l'importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan de l'Hirondelle de Feu grâce à cette élection des Anciens Délaissés.
+Cependant, Wang Lin n'y accordait guère d'importance. Ce qui lui importait, c'était la manière dont il pourrait atteindre son objectif auprès du Clan de l'Hirondelle de Feu grâce à cette élection des Anciens Délaissés.
 
 « L'appât est posé... » Les yeux de Wang Lin s'illuminèrent, puis il les ferma tandis que son Sens Divin se déployait. Son Sens Divin fusionna progressivement avec le monde, ne faisant plus qu'un avec lui.
 
@@ -64,19 +64,19 @@ Le visage de Liu Jinbiao s'illumina d'une joie éphémère avant de se figer ins
 
 « Oh? Alors dis-moi, quelle est ta compréhension de la tromperie? » L'index droit de Wang Lin continuait de tapoter doucement son genou. Bien que sa voix fût calme, ce geste rythmé faisait battre le cœur de Liu Jinbiao au même tempo.
 
-« La tromperie, en vérité, consiste à utiliser la vérité pour duper les gens! Il s'agit d'employer tous les moyens — notamment la crédibilité, l'incompréhension ou même le préjugé — pour atteindre un objectif précis. Si nécessaire, cela inclut le camouflage, au point de finir par croire soi-même à sa propre illusion. C'est ainsi que l'on peut duper autrui! » Liu Jinbiao surveillait Wang Lin avec prudence. En voyant ce dernier hocher la tête, il se détendit légèrement.
+« La tromperie, en vérité, n'est que l'art de faire tomber les gens dans le piège! Il s'agit d'employer tous les moyens — notamment la crédulité, l'incompréhension ou même le préjugé d'autrui — pour atteindre un objectif précis. Si nécessaire, cela inclut le camouflage, au point de croire soi-même entièrement à ses propres paroles; c'est alors seulement que l'on peut faire croire autrui! » Liu Jinbiao surveillait Wang Lin avec prudence. En voyant ce dernier hocher la tête, il se détendit légèrement.
 
-« L'art de la tromperie que j'étudie se divise en trois royaumes. Le premier royaume est celui de tromper les autres. Le deuxième est celui de se tromper soi-même. Le troisième est une forme d'illumination, comme voir une montagne pour ce qu'elle est, et ne plus la voir comme une simple montagne. Pour revenir à l'essentiel, cela revient au premier royaume! »
+« L'art de la tromperie que j'étudie se divise en trois royaumes. Le premier royaume est celui de tromper les autres. Le deuxième est celui de se tromper soi-même. Le troisième est une forme d'illumination, comme voir la montagne comme une montagne, puis ne plus la voir comme une montagne, et enfin revenir à la simplicité originelle, semblable au premier royaume: tromper les autres! »
 
 « Ces trois royaumes semblent simples, mais en réalité, la plupart des gens stagnent dans le premier. Ils ne croient même pas leurs propres paroles et se contentent de tromper pour la forme; leurs compétences sont dérisoires! » Liu Jinbiao se détendit un peu, tout en restant sur ses gardes.
 
 « Ce n'est qu'après avoir atteint une certaine compréhension que l'on peut accéder au deuxième royaume: celui de se tromper soi-même! Utiliser chaque méthode et chaque expérience de vie pour s'auto-illusionner jusqu'à ce que vous croyiez vous-même que la tromperie est la réalité! » Liu Jinbiao prit une profonde inspiration. Il semblait avoir oublié sa situation actuelle, devenu soudain très sérieux.
 
-« D'autres ont atteint ce royaume. Chaque fois que nous nous rencontrons, nous débattons du Dao et comparons nos compréhensions. »
+« Ceux de ma sorte qui atteignent ce deuxième royaume existent: au fil de mes voyages à travers le monde, j'ai rencontré bien des confrères. Chaque fois que nous nous rencontrons, nous débattons du Dao et comparons nos compréhensions. »
 
 « Cependant, la plupart des gens que j'ai croisés n'osaient pas s'aventurer trop loin dans le deuxième royaume. Après tout, ce stade est extrêmement dangereux pour nous! Le danger vient de nous-mêmes! Lorsqu'on se trompe totalement soi-même, on risque de s'égarer et d'oublier qui l'on est. On peut devenir un homme de bien, un scélérat, ou même un fou! »
 
-« Il y avait aussi des aînés qui se sont trop enfoncés dans ce deuxième royaume au point d'en oublier leur identité. Chaque fois que je pense à eux, mon cœur se serre de tristesse! »
+« Il y avait aussi des aînés qui se sont trop enfoncés dans ce deuxième royaume au point d'en oublier qu'ils étaient des escrocs. Chaque fois que je pense à eux, mon cœur se serre de tristesse! »
 
 « Lamentable, lamentable! » Liu Jinbiao, transporté par son propre discours, en oubliait sa condition de prisonnier. Il y avait une certaine noblesse dans ses paroles qui laissa Xu Liguo bouche bée. Ce dernier se moqua: « Ne serais-tu pas simplement un escroc? Tu en parles comme s'il s'agissait d'une culture... »
 
@@ -84,7 +84,7 @@ Xu Liguo n'eut pas le temps de finir sa phrase que Liu Jinbiao se redressa brusq
 
 « Comment un enfant ignorant pourrait-il comprendre le cœur de ce vieil homme? »
 
-« Dès l'âge de quatre ans, j'ai commencé à tromper, et je n'étais déjà plus un prodige à neuf ans. J'osais duper un cultivateur de l'Établissement des Fondations alors que je n'étais qu'un mortel! Après seize ans de pratique, je pouvais lire dans les cœurs d'un seul regard! Depuis lors, j'ai parcouru le ciel et la terre, cherchant les limites de l'art de la tromperie! »
+« Dès l'âge de quatre ans, j'ai commencé à tromper, et à neuf ans j'avais déjà la réputation d'un prodige. J'osais duper un cultivateur de l'Établissement des Fondations alors que je n'étais qu'un mortel! À partir de seize ans, je pouvais lire dans les cœurs d'un seul regard! Depuis lors, j'ai parcouru le ciel et la terre, cherchant les limites de l'art de la tromperie! »
 
 « Le monde est vaste, et la rumeur dit qu'il existe 3 000 grands Dao. Cependant, qui peut dire à ce vieil homme quels sont ces 3 000 grands Dao, et prouver que le Dao de la tromperie n'en fait pas partie?! »
 

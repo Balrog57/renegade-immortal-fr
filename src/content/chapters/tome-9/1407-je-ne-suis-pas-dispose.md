@@ -70,7 +70,7 @@ Après un long moment, il les rouvrit et murmura pour lui-même: « Je vais y je
 
 Le temps s'écoula lentement. Un jour, deux jours... En un clin d'œil, quatre jours passèrent.
 
-Durant ces quatre jours, Li Muwan ne revint pas. Wang Lin resta au sommet de la montagne, dans l'attente. Tout comme Li Muwan attendait son retour, il n'était accompagné que par les notes de la cithare.
+Durant ces quatre jours, Li Muwan ne revint pas. Wang Lin resta au sommet de la montagne, dans l'attente. Comme dans ses souvenirs, lorsque Li Muwan l'avait attendu au sein de la Secte du Ciel Nuageux, n'ayant pour compagnie que la musique mélancolique de la cithare, en espérant son retour.
 
 Wang Lin ne pratiqua aucune culture durant ces quatre jours, se contentant de contempler le ciel en attendant.
 
@@ -92,7 +92,7 @@ Surprise, Li Muwan caressa tendrement le pelage de la créature. Elle regarda Wa
 
 Une fois descendue, elle regarda en arrière et murmura: « Ce vieux monstre n'est probablement pas une mauvaise personne... »
 
-C'était la deuxième fois que Wang Lin raccompagnait Li Muwan, mais la réticence dans ses yeux était devenue plus forte encore.
+C'était la deuxième fois que Wang Lin raccompagnait Li Muwan, mais le regret de la voir partir dans ses yeux était devenu plus fort encore.
 
 À cet instant précis, le ciel entier se mit à gronder et changea de couleur. Les nuages s'agitèrent et un vortex gigantesque apparut.
 
@@ -110,7 +110,7 @@ Sur la Planète du Grand Empereur, le vieux Oiseau Vermillon craignait que l'âm
 
 « Je ne suis pas disposé! » Wang Lin leva la tête. Un feu brûlait dans ses yeux alors qu'il contemplait le vortex céleste.
 
-« Entrer dans cet endroit sous forme d'âme pour affiner mon essence, pour effacer la dernière trace de ma mortalité... Transformer cela en une force de combustion et faire naître l'âme. Cela sera intégré à mon être pour devenir une graine permettant au Oiseau Vermillon de s'éveiller une quatrième fois! »
+« Entrer dans cet endroit sous forme d'âme pour affiner mon essence, pour effacer la dernière trace de ma mortalité... Transformer cela en une force de combustion; puisque c'est une combustion de l'âme, les flammes de ce monde pourront se fondre dans mon âme et y semer une flamme d'âme impérissable, en offrande au quatrième éveil de l'Oiseau Vermillon! »
 
 « Pourtant, brûler mes sentiments de mortel comme prix est une chose que je ne peux faire! » Wang Lin leva les yeux vers le ciel.
 
@@ -134,4 +134,4 @@ Maître Simo cracha du sang et fut projeté en arrière de cent mille pieds.
 
 « Quel incident? Mon cadet va utiliser son karma pour allumer cet encens. Ce n'est pas une chose qu'un bâtard comme toi peut comprendre! »
 
-Après avoir porté ce coup, la colère du vieux Oiseau Vermillon s'apaisa et il pensa: « Le karma... le karma... Très bien. Ce gamin a le cran d'allumer le feu du karma. Le Premier Ancêtre disait que l'utilisation du feu d'âme immortel pour atteindre le Feu Éthéré n'était pas la méthode appropriée, mais c'était uniquement parce qu'allumer le feu du karma est extrêmement difficile. L'Ancêtre n'y était parvenu que grâce à l'aide de l'Empereur Céleste, voilà pourquoi il n'avait jamais laissé le choix à personne! Si cet enfant réussit, il sera le premier après le Premier Ancêtre! »
+Après avoir porté ce coup, la colère du vieux Oiseau Vermillon s'apaisa et il pensa: « Le karma... le karma... Très bien. Ce gamin a le cran d'allumer le feu du karma. Le Premier Ancêtre disait que l'utilisation du feu d'âme immortel pour atteindre le Feu Éthéré n'était pas la méthode appropriée, mais c'était uniquement parce qu'allumer le feu du karma est extrêmement difficile. L'Ancêtre n'y était parvenu que grâce à l'aide de l'Empereur Céleste, voilà pourquoi il n'autorisait aucun membre du clan à la choisir! Si cet enfant réussit, il sera le premier après le Premier Ancêtre! »

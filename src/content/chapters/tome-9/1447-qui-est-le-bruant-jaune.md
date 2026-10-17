@@ -12,13 +12,13 @@ Bien qu'il ne fût qu'au troisième niveau du Fléau Céleste, il était convain
 
 Cette fois, il complotait pour s'emparer d'un trésor convoité par l'Estimé Ling Dong; il devait donc redoubler de prudence.
 
-N'étant pas encore totalement serein après avoir simulé sa mort une première fois, il avait utilisé du jade pour immobiliser la restriction. Cela revenait à ouvrir la porte de la brume, s'exposant ainsi une fois de plus à la mort. Si quelqu'un d'autre avait été à sa place, il n'aurait pas laissé passer cette chance et se serait déjà précipité vers l'avant.
+Simuler sa mort une seule fois ne le rassurait pas; il avait donc d'abord utilisé les jades pour arrêter le fonctionnement de la restriction de la brume, ce qui revenait à en ouvrir la porte, avant de simuler sa mort une seconde fois. Si quelqu'un d'autre se trouvait ici, comme lui, cette personne ne laisserait pas passer cette chance et se précipiterait en avant.
 
 Dès qu'une personne apparaîtrait et pénétrerait dans la brume, il lancerait immédiatement une contre-attaque pour la piéger à l'intérieur.
 
 Cet homme avait une grande confiance en ses fausses morts. Jeune, il avait appris un sort capable de rendre sa mort extrêmement réaliste; même son âme originelle semblait s'effondrer, rendant toute distinction impossible pour autrui.
 
-De plus, il avait simulé une décomposition. Maintenant que l'érudit d'âge moyen était certain de son coup, il s'avança vers la brume rouge et agita la main. La brume recula, révélant neuf jades. Il pointa les pierres du doigt, provoquant l'effondrement de six d'entre elles, laissant échapper un gaz noir qui figea à nouveau la brume rouge.
+De plus, il avait simulé une décomposition. Maintenant que l'érudit d'âge moyen était certain de son coup, il s'avança vers la brume rouge et agita la main. La brume recula, révélant neuf jades. Il pointa les pierres du doigt, provoquant l'éclatement de six d'entre elles, qui se muèrent en cendres noires et se dissipèrent; la brume s'immobilisa de nouveau, comme figée.
 
 Parmi les neuf jades, six servaient uniquement à tuer et n'avaient aucun rapport avec le maintien de la restriction. Une pointe de fierté se dessina sur son visage alors qu'il pénétrait dans le portail formé par les trois jades restants.
 
@@ -40,7 +40,7 @@ Le sourire étrange était toujours là alors qu'il fixait le ciel... Son âme o
 
 Les restrictions lancées par l'homme au début auraient effectivement pu briser le mécanisme, mais lorsque ces innombrables flux se combinèrent, l'effet fut inverse. Loin de dissiper la brume rouge, elles l'avaient stimulée pour l'activer. Il avait ensuite emprunté la Flamme Joss de l'Estimé Ling Dong pour déclencher la brume, provoquant une explosion de puissance bien supérieure à la précédente afin de tuer ou de chasser tous les témoins.
 
-Pour éviter les soupçons, il avait pris le risque d'utiliser une méthode connue pour se cacher dans la brume. Il avait laissé échapper ce sourire misérable pour faire croire à sa mort.
+Pour éviter les soupçons, il avait pris le risque, par on ne sait quelle méthode, de se cacher dans la brume. Il avait poussé des cris déchirants pour que tous le croient mort.
 
 Il avait réussi à éliminer la plupart des présents et à chasser les autres. Il avait également fait en sorte que la brume rouge scelle toutes les failles spatiales, empêchant quiconque d'entrer par elles. Après toutes ses manigances, il était le seul survivant. Un tel acte demandait un courage immense. Wang Lin regarda le corps au sourire étrange et agita sa main droite. Le corps s'effrita en poussière et se dissipa.
 
@@ -58,7 +58,7 @@ Une fine ligne noire apparut au cœur de la brume rouge. Cette ligne noire, entr
 
 Après une observation attentive, les mains de Wang Lin formèrent rapidement des sceaux et une restriction apparut entre ses paumes. Il prit une profonde inspiration et poussa délicatement la restriction vers le vortex de brume rouge. Des craquements retentirent et la brume sembla absorber l'artifice de Wang Lin. La ligne noire devint plus nette. Les yeux de Wang Lin s'illuminèrent et, sans hésiter, il tendit la main pour saisir la ligne noire et l'extraire.
 
-Wang Lin tira la ligne noire comme on attrape un serpent, puis elle se dissipa. À cet instant, la brume rouge s'effondra telle de la neige sous l'effet d'une eau bouillante. De vastes pans de brouillard se dissipèrent, ouvrant un passage vers le centre de la plateforme. Les yeux de Wang Lin brillèrent un bref instant avant de reprendre leur calme habituel. Un élan de joie avait surgi, mais il le réprima aussitôt. Il s'apprêtait à s'élancer dans le passage.
+Wang Lin tira la ligne noire comme on attrape un serpent, puis elle se dissipa. À cet instant, la brume rouge s'effondra telle de la neige sous l'effet d'une eau bouillante. De vastes pans de brouillard se dissipèrent, ouvrant un passage vers le centre de la plateforme. « Il y a encore... » À l'apparition du passage, les pupilles de Wang Lin se contractèrent un bref instant avant de retrouver leur calme habituel. Un élan de joie avait surgi, mais il le réprima aussitôt. Il s'apprêtait à s'élancer dans le passage.
 
 « Arrête! » Au moment où Wang Lin allait charger, une voix glaciale déchira l'air.
 
@@ -70,7 +70,7 @@ Wang Lin s'arrêta et se retourna lentement. Son expression devint extrêmement 
 
 « Ce cadet... salue l'Estimé Ling Dong... » Wang Lin joignit les mains, prêt à reculer d'un pas.
 
-L'Estimé Ling Dong dit d'un ton sévère: « Si tu poses le pied à terre, ce vieil homme te tuera! »
+L'Estimé Ling Dong dit d'un ton sévère: « Si ton pied se pose, ce vieil homme te tuera! »
 
 « Le plan de l'Estimé Ling Dong était impeccable et parfaitement dissimulé. Ce cadet vous admire! » Wang Lin cessa tout mouvement, le visage empreint d'amertume, tout en réprimant la panique qui montait en lui.
 
@@ -86,6 +86,6 @@ L'expression de Wang Lin restait amère et immuable. Malgré ce regard soudain d
 
 « Ce vieil homme change d'avis, entre en premier! »
 
-Wang Lin fut stupéfait. Avant que la joie ne puisse poindre dans ses yeux, il la réprima, mais le vieil homme l'avait tout de même décelée. L'homme rit et entra sans hésitation, ignorant désormais Wang Lin. Il se déplaça comme un éclair pour atteindre le centre du passage. Cependant, à cet instant précis, un cri déchirant retentit: « Il reste encore quelque chose!!! »
+Wang Lin fut stupéfait. Avant que la joie ne puisse poindre dans ses yeux, il la réprima, mais le vieil homme l'avait tout de même décelée. L'homme rit et entra sans hésitation, ignorant désormais Wang Lin. Il se déplaça comme un éclair pour atteindre le centre du passage. Cependant, à cet instant précis, un cri déchirant retentit: « Il y a encore des restrictions!!! »
 
 Wang Lin leva brusquement les yeux, une lueur d'intention meurtrière brillant dans son regard.

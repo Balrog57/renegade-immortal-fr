@@ -42,7 +42,7 @@ Wang Lin avait ressenti une force vitale violente sous le sol et l'avait provoqu
 
 Avec son niveau de culture actuel, Wang Lin possédait même la puissance nécessaire pour combattre le Serpent aux yeux de lune de Luotian, et encore moins cette bête qui, bien que similaire, était bien plus faible!
 
-Même Ling Dong, qui approchait du troisième stade, était devenu son esclave. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin!
+Même Ling Dong, qui approchait du troisième niveau, était devenu son esclave. Cela témoignait de l'ascension fulgurante et de la force prodigieuse de Wang Lin!
 
 À cet instant, calme et imperturbable, Wang Lin plongea vers le bas tel un éclair. En un instant, il atteignit les bêtes tentaculaires. Alors qu'elles hurlaient, un feu aux neuf couleurs embrasa l'œil gauche de Wang Lin. D'un revers de main, une tempête de flammes jaillit et enveloppa les quatre créatures.
 
@@ -52,7 +52,7 @@ Des cris de douleur déchirèrent l'air tandis que le feu s'enfonçait profondé
 
 Soudain, une lumière violette violente jaillit parmi les hurlements. La tumeur cachée à l'intérieur se contracta jusqu'à se transformer en un rayon de lumière, tentant de s'échapper vers le ciel.
 
-Lorsqu'elle apparut, la forme de la tumeur fut révélée: une masse gigantesque entourée de nombreux tentacules, dégageant une odeur nauséabonde. Elle ressemblait trop au Serpent aux yeux de lune; si elle n'avait pas été dépourvue de toute puissance d'Ancien Dieu, Wang Lin aurait cru face à un spécimen muté!
+Lorsqu'elle apparut, la forme de la tumeur fut révélée: une masse gigantesque entourée de nombreux tentacules, dégageant une odeur nauséabonde. Elle ressemblait trop au Serpent aux yeux de lune; si elle n'avait pas été dépourvue de toute puissance d'Ancien Dieu, Wang Lin aurait cru avoir affaire à un spécimen muté!
 
 Le regard de Wang Lin se fit glacial tandis que le tatouage du tonnerre s'illumina dans son œil droit. En un clin d'œil, le ciel fut recouvert par un gigantesque vortex de foudre. Le tatouage du tonnerre prit l'apparence du firmament et s'abattit sur la tumeur.
 
@@ -60,13 +60,13 @@ Dans sa descente, d'innombrables éclairs frappèrent la créature.
 
 Après trois respirations, le tatouage du tonnerre encercla la tumeur. Les cris misérables ne devinrent plus qu'un écho lointain lorsque la tumeur s'effondra, ne laissant absolument rien derrière elle.
 
-Après avoir terrassé cette étrange tumeur, Wang Lin observa le crâne enfoui. Il descendit lentement et atterrit sur l'os. D'un geste de la main, il fit disparaître la terre environnante. En un instant, plus de la moitié de la forêt disparut.
+Après avoir terrassé cette étrange tumeur, Wang Lin observa le crâne enfoui. Il descendit lentement et atterrit sur l'os. D'un geste de la main, il fit disparaître la terre environnante. En un instant, près de la moitié de la forêt disparut.
 
 Le sol fut décapé couche après couche, révélant une tête gigantesque qui reposait là depuis des temps immémoriaux!
 
-Cette tête était d'une dimension phénoménale, et ce qui apparaissait n'en était que la moitié. Neuf marques stellaires ornaient le crâne, mais la neuvième et la deuxième étaient floues.
+Cette tête était d'une dimension phénoménale, et ce qui apparaissait n'en était que la moitié. Neuf marques stellaires ornaient le crâne, mais la neuvième était légèrement floue.
 
-« Un Ancien Dieu à 9 étoiles! » Les yeux de Wang Lin s'illuminèrent et il prit une profonde inspiration. C'était la première fois qu'il contemplait le cadavre d'un tel être. Il observa le crâne, plongé dans ses pensées. Il comprit immédiatement que la position de la statue avait servi à comprimer l'ensemble du crâne. Le but de la statue aux sept couleurs était de sceller la tête de cet Ancien Dieu à 9 étoiles. Une tristesse profonde envahit Wang Lin. Lui aussi était un Ancien Dieu, et en entrant dans cette tombe, il avait vu d'innombrables cadavres de ses semblables. La complexité de ces émotions fit déferler le chagrin dans son cœur.
+« Un Ancien Dieu à 9 étoiles! » Les yeux de Wang Lin s'illuminèrent et il prit une profonde inspiration. C'était la première fois qu'il contemplait le cadavre d'un tel être. Il observa le crâne, plongé dans ses pensées. Il comprit immédiatement que l'emplacement de la statue, situé au niveau du philtrum du crâne, avait servi à maîtriser l'ensemble de la tête depuis un seul point. Le but de la statue aux sept couleurs était de sceller la tête de cet Ancien Dieu à 9 étoiles. Une tristesse profonde envahit Wang Lin. Lui aussi était un Ancien Dieu, et en entrant dans cette tombe, il avait vu d'innombrables cadavres de ses semblables. La complexité de ces émotions fit déferler le chagrin dans son cœur.
 
 « Même les Anciens Dieux à 9 étoiles sont morts? » Wang Lin s'approcha lentement entre les sourcils de l'Ancien Dieu, s'accroupit et effleura les étoiles. Il ne restait que peu de puissance divine; la majeure partie s'était évanouie avec le passage des âges. En touchant l'os, il put aisément spéculer sur ce qui s'était produit: un Ancien Dieu colossal avait été tué par un cultivateur aux sept couleurs, puis décapité. Une statue aux sept couleurs avait été placée pour sceller la tête. Avec le temps, la poussière et la terre s'étaient accumulées, et pour une raison inconnue, des arbres avaient poussé, transformant l'endroit en forêt. Wang Lin fronça les sourcils, songeant silencieusement à cette scène.
 
@@ -74,19 +74,19 @@ Le pouvoir d'un Ancien Dieu à 9 étoiles était inimaginable et leur corps extr
 
 « Les Trois Épreuves et les Sept Calamités des Anciens Dieux... Il a été tué alors qu'il affrontait sa deuxième épreuve. » Wang Lin resta assis, contemplant le fragment d'os dans sa paume.
 
-« Quel est donc ce lieu nommé la Tombe de l'Ordre Antique? Qui l'a bâtie et quel en est l'objectif? » Il se remémora tout ce qu'il avait vécu depuis son entrée. L'Ancien Dieu restait un mystère insondable, même pour lui. Cependant, il se souvenait de la scène terrifiante aperçue via l'esprit du Dao.
+« Quel est donc ce lieu nommé la Tombe de l'Ordre Antique? Qui l'a bâtie et quel en est l'objectif? » Il se remémora tout ce qu'il avait vécu depuis son entrée. Ce tombeau restait un mystère insondable, même pour lui. Cependant, il se souvenait de la scène aperçue via l'esprit Dao, et de cette phrase qui avait ébranlé son âme.
 
-« Utiliser une pilule de Dao pour nourrir le Dao Céleste n'est pas une méthode efficace... Je dois trouver un autre moyen... pour faire croître plus rapidement le Dao Céleste que j'ai dérobé... » Les yeux de Wang Lin s'illuminèrent. Il réfléchissait toujours à cela. Il était clair que le cultivateur aux sept couleurs avait volé le Dao Céleste, mais où et à qui? Wang Lin n'en avait aucune idée. Sa seule priorité était de trouver une autre méthode pour accroître la puissance du Dao Céleste.
+« Utiliser une pilule de Dao pour nourrir le Dao Céleste n'est vraiment pas chose aisée... Je dois trouver un autre moyen... pour faire croître plus rapidement le Dao Céleste que j'ai dérobé... » Les yeux de Wang Lin s'illuminèrent. Il réfléchissait toujours à cela. Il était clair que le cultivateur aux sept couleurs avait volé le Dao Céleste, mais où et à qui? Wang Lin n'en avait aucune idée. Sa seule priorité était de trouver une autre méthode pour accroître la puissance du Dao Céleste.
 
 « Une autre méthode. » En regardant le crâne sous lui, une hypothèse audacieuse traversa son esprit.
 
-« Supposons que le cultivateur aux sept couleurs soit l'Empereur Céleste Antique. Avant d'obtenir la Perle Défiant le Ciel, il aurait volé le Dao Céleste et, pour une raison quelconque, aurait eu besoin de le fortifier. Constatant qu'il était trop difficile de le nourrir avec des esprits de Dao, il aurait tendu un piège! » Le regard de Wang Lin devint plus intense alors qu'il poursuivait son analyse. Il se souvenait que la première génération de l'Oiseau Vermillon avait mentionné des Anciens Dieux dans sa terre natale. Bien qu'ils ne fussent pas les souverains, ils avaient osé défier le Souverain du Monde.
+« Supposons que le cultivateur aux sept couleurs soit l'Empereur Céleste Antique. Avant d'obtenir la Perle Défiant le Ciel, il aurait volé le Dao Céleste et, pour une raison quelconque, aurait eu besoin de le fortifier. Constatant qu'il était trop difficile de le nourrir avec des esprits de Dao, il aurait tendu un piège! » Le regard de Wang Lin devint plus intense alors qu'il poursuivait son analyse. Il se souvenait que la première génération de l'Oiseau Vermillon avait mentionné des Anciens Dieux dans sa terre natale. Bien qu'ils ne fussent pas les souverains, ils pouvaient tenir tête, avec audace, même aux souverains de son monde.
 
 Le premier Oiseau Vermillon avait cité un nom: l'Ordre Antique Ye Mo.
 
 « Pourquoi "Ordre Antique" et non "Ancien Dieu Ye Mo", "Ancien Diable" ou "Ancien Démon"? Est-ce que ce titre permet de déterminer que Ye Mo n'était ni dieu, ni diable, ni démon, mais un membre de l'Ordre Antique? »
 
-« Lorsque j'ai atteint le stade Ascendant dans la Terre des Esprits Démoniaques, l'Ancien Démon Ta Jia avait affirmé que l'Ordre Antique constituait la première génération d'êtres défiant le ciel, et qu'ils avaient engendré la seconde génération. »
+« Lorsque j'ai atteint le stade Ascendant dans la Terre des Esprits Démoniaques, l'Ancien Démon Ta Jia avait affirmé que l'Ordre Antique constituait la première génération d'êtres défiant le ciel, qu'ils étaient morts en combattant le Dao Céleste, puis qu'ils avaient engendré trois clans, la seconde génération de cultivateurs combattant le Dao Céleste. »
 
 « Il y avait aussi ce messager des cieux apparu à la fin de la vie de Wan Er. C'était manifestement un Ancien Dieu scellé. Et il y eut ce messager dans le Clan du Tonnerre Dispersé. Quand je lui ai brisé le bras, il a percé ma véritable nature d'Ancien Dieu et m'a traité de "Traître du Dao de l'Extinction du Vide". » La respiration de Wang Lin devint saccadée; il commençait à entrevoir une vérité.
 

@@ -8,7 +8,7 @@ slug: lidentite-et-lorigine-de-la-statue-1
 ---
 « J'ai en fait oublié qu'il pouvait utiliser ce sort d'arrêt aussi impitoyable! » Une vague immense secoua le cœur de Cupidité, et la peur envahit ses yeux.
 
-« Ce nemesis est trop méprisable. Il possédait ce sort, mais ne l'a pas utilisé plus tôt; il a attendu que je déploie mon trésor le plus puissant pour éteindre mon dernier espoir! » Le corps et l'âme originelle de Cupidité étaient complètement figés. Il était incapable de bouger d'un iota et ne pouvait qu'observer Wang Lin se rapprocher.
+« Cet ennemi est trop méprisable. Il possédait ce sort, mais ne l'a pas utilisé plus tôt; il a attendu que je déploie mon trésor le plus puissant pour éteindre mon dernier espoir! » Le corps et l'âme originelle de Cupidité étaient complètement figés. Il était incapable de bouger d'un iota et ne pouvait qu'observer Wang Lin se rapprocher.
 
 La statue brisée n'émettait aucune aura et flottait silencieusement du côté droit de Cupidité.
 

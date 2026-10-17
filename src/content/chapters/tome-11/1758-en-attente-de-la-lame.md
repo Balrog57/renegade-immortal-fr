@@ -40,7 +40,7 @@ L'instant d'après, les deux se percutèrent!
 
 « Tuez! » Le général en armure blanche leva la tête et poussa un rugissement qui fit trembler les cieux!
 
-Wang Lin était différent. Il ne poussa aucun cri; son cheval noir bondit dans les airs tandis qu'il restait concentré. Il leva sa lame et l'abattit dans un arc de cercle imprégné de mort. L'éclat de la lame sembla se fondre dans la nuit elle-même, s'entrelaçant avec la lune de sang derrière lui.
+Wang Lin était différent. Il ne poussa aucun cri; son cheval noir bondit dans les airs dans le silence. Il leva sa lame et l'abattit dans un arc de cercle imprégné de mort. L'éclat de la lame sembla se fondre dans la nuit elle-même, s'entrelaçant avec la lune de sang derrière lui.
 
 Un seul mouvement fit changer la couleur du ciel et dispersa les nuages. Le firmament lui-même sembla s'effondrer pour se concentrer dans la lame de Wang Lin!
 
@@ -50,13 +50,13 @@ Lorsque le noir et le blanc entrèrent en collision, un fracas tonitruant ébran
 
 Alors que le grondement résonnait, la lame de Wang Lin heurta la lance. La lance se brisa et le tigre blanc poussa un hurlement déchirant. La lame de Wang Lin vola également en mille éclats.
 
-Leurs montures entrèrent en collision dans un fracas de tonnerre. Leurs têtes explosèrent et les deux animaux désintégrèrent, se transformant en gaz noir et blanc qui se dispersèrent dans toutes les directions.
+Leurs montures entrèrent en collision dans un fracas de tonnerre. Leurs têtes explosèrent et les deux animaux se désintégrèrent, se transformant en gaz noir et blanc qui se dispersèrent dans toutes les directions.
 
 Les armes étaient brisées et les chevaux morts!
 
 Les deux combattants sautèrent de leurs montures au même instant et, lors de leur choc, entamèrent un massacre. Des grondements sourds résonnèrent, semblant éternels. Un instant plus tard, un fracas encore plus violent retentit, comme si le monde allait se fendre en deux!
 
-Le Général Tigre Blanc dans les cieux frémit et cracha une bouchée de sang, mais son visage resta farouche. Le visage du général était impitoyable et, tout comme le Général Tigre Blanc, son intention meurtrière était monstrueuse!
+Le Général Tigre Blanc dans les cieux frémit et cracha une bouchée de sang, le visage pâle mais d'une férocité intacte. Le tigre blanc incarne la férocité; en tant que Général Tigre Blanc, son aura sanguinaire était effrayante!
 
 Cependant, après avoir craché son sang, il regarda Wang Lin avec effroi!
 
@@ -68,11 +68,11 @@ Dans le ciel, le corps originel de Wang Lin trembla également et son visage pâ
 
 « Moi, Tigre Blanc, je ne perds jamais. C'est la loi que j'ai instaurée: je ne perdrai jamais! » Le Général Tigre Blanc frappa sa poitrine du plat de la main droite et cracha une nouvelle bouchée de sang.
 
-Tandis que son sang se répandait au sol, l'armure du général en armure blanche s'effondra et il s'écroula, le corps jaillissant de sang. À cet instant, le sang du Général Tigre Blanc toucha le sol et fusionna avec le général en armure blanche. Ce dernier poussa un rugissement, se releva et ignora Wang Lin pour commencer à massacrer les soldats alentour.
+Tandis que son sang se répandait au sol, l'armure du général en armure blanche s'effondra et il fut projeté en arrière sur 10 000 pieds avant de s'écraser au sol, le corps jaillissant de sang. À cet instant, le sang du Général Tigre Blanc toucha le sol et fusionna avec le général en armure blanche. Ce dernier poussa un rugissement, se releva et ignora Wang Lin pour commencer à massacrer les soldats alentour.
 
 À chaque vie qu'il ôtait, ses blessures guérissaient légèrement et son armure brisée se reconstruisait!
 
-Wang Lin fut également repoussé par la collision, l'armure protégeant son corps s'effondrant sous le choc. Il recula de plus de 10 000 pieds.
+Wang Lin fut également repoussé par la collision, l'armure protégeant son corps s'effondrant sous le choc. Il recula de 10 000 pieds.
 
 À ce moment, le général en armure blanche massacrait les soldats sans distinction. Ces derniers se transformaient en gaz blanc pour fusionner avec lui.
 
@@ -98,26 +98,26 @@ Cette fois, même le casque se forma pour recouvrir la tête de Wang Lin. Seuls 
 
 Un rugissement de dragon résonna dans les cieux. Ce qui prit forme sous Wang Lin cette fois n'était pas un cheval, mais un dragon noir. Son corps de brume tournait autour de Wang Lin tout en poussant un cri de guerre face au général en armure blanche!
 
-Entendant ce rugissement, le général en armure blanche leva soudain les yeux. Sa main s'éleva vers le ciel et la lance se reforma tandis que les mille gouttes de sang fusionnaient dans son corps. En un éclair, le cheval blanc sous lui se métamorphosa en un tigre blanc gigantesque.
+Entendant ce rugissement, le général en armure blanche leva soudain les yeux. Sa main saisit le vide devant lui et la lance se reforma tandis que les mille gouttes de sang fusionnaient dans son corps. En un éclair, le cheval blanc sous lui se métamorphosa en un tigre blanc gigantesque.
 
 Chevauchant le tigre blanc, il brandit sa lance, une intention meurtrière démente brillant dans ses yeux. Le tigre bondit et s'élança sur Wang Lin!
 
-La main droite de Wang Lin s'éleva et une lame massive apparut. Tenant son arme, il médita en silence tandis que le dragon noir chargeait le tigre blanc!
+La main droite de Wang Lin s'éleva et une lame massive apparut. Tenant son arme, il garda le silence tandis que le dragon noir chargeait le tigre blanc!
 
 Cette bataille déciderait du vainqueur!
 
 Les deux camps entrèrent instantanément en collision. Le tigre et le dragon rugirent au cœur du combat. La planète entière trembla comme si elle allait s'effondrer.
 
-La lame de Wang Lin descendit et percuta la lance du général en armure blanche. Après une longue méditation, Wang Lin poussa un rugissement. Tandis qu'il criait, l'ombre du Dao Antique apparut derrière lui et descendit avec la lame.
+La lame de Wang Lin descendit et percuta la lance du général en armure blanche. Après un long silence, Wang Lin poussa un rugissement. Tandis qu'il criait, l'ombre du Dao Antique apparut derrière lui et descendit avec la lame.
 
-Le général tigre poussa un cri de désespoir alors que sa lance, son armure et le tigre blanc sous lui s'effondraient tous simultanément. Une traînée de sang fendit son front tandis que la lame de Wang Lin l'atteignait, et son corps vola en éclats!
+Le général en armure blanche poussa un cri de désespoir alors que sa lance, son armure et le tigre blanc sous lui s'effondraient tous simultanément. Une traînée de sang fendit son front tandis que la lame de Wang Lin l'atteignait, et son corps vola en éclats!
 
-Dans les cieux, le visage du Général Tigre devint livide. Il cracha du sang et son expression s'éteignit.
+Dans les cieux, le visage du Général Tigre Blanc devint livide. Il cracha du sang et son expression s'éteignit.
 
 « Désormais, tu es mon esclave! » Wang Lin se redressa soudainement, ses pupilles se rétractant. Il ressentit un puissant sentiment de danger imminent. Sans hésiter, il fit un pas en avant pour fusionner avec le corps formé par son Sens Divin.
 
 Il ouvrit la bouche et dévora l'aura du général en armure blanche déchu. Le corps de Wang Lin fut enveloppé d'un gaz noir qui se mua en une longue lame dans sa main. Il leva l'arme et fixa les cieux. Ses pupilles ne furent plus que des points minuscules alors qu'il concentrait toute sa puissance et la force de la loi dans son arme!
 
-Cette lame contiendrait la puissance suprême de ce monde! Cette lame briserait la loi que le Général Tigre avait instaurée ici! Cette lame serait une lame destructrice de mondes, forgée par l'aide même de la loi de ce monde!
+Cette lame contiendrait la puissance suprême de ce monde! Cette lame briserait la loi que le Général Tigre Blanc avait instaurée ici! Cette lame serait une lame anéantissant le ciel, façonnée grâce à la loi même de ce monde!
 
 Il attendait l'apparition de celui qui lui avait infligé ce sentiment de crise! Au même moment, la main gauche de Wang Lin traça un sceau et des flammes apparurent pour former un petit parapluie de feu, avant de disparaître de sa main.

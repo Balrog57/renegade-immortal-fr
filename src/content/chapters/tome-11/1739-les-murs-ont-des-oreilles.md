@@ -8,7 +8,7 @@ slug: les-murs-ont-des-oreilles
 ---
 Le ciel se déforma alors que la planète illusoire des Cinq Éléments s'effondrait. La voûte céleste semblait se briser en mille fragments qui se dispersaient dans toutes les directions.
 
-Sans l'intervention de ces trois-là, le renversement de la formation de la Roue Céleste à Neuf Cycles aurait tué tous les présents. Ce n'était pas par cruauté que Wang Lin agissait, mais il venait lui-même d'en subir les conséquences.
+Sans l'intervention de ces trois-là, le renversement de la Roue du Cœur aux Neuf Cycles aurait fait dépérir et mourir tous les cultivateurs de la Secte Gui Yi hors de la tour. Ce n'était pas par cruauté que Wang Lin agissait, mais il venait lui-même d'en subir les conséquences.
 
 Wang Lin apparut dans ce ciel distordu et observa calmement la planète. Il vit les centaines de cultivateurs inconscients, Na Duo, le vieil homme au bras droit brisé, ainsi que trois hommes d'âge moyen à l'aura sombre qui le fixaient.
 
@@ -92,9 +92,9 @@ Après être apparues, les étoiles se transformèrent en Ancien Dieu, Ancien D�
 
 L'expression du jeune homme était calme depuis le début, et elle le resta. Face à une telle sérénité, Wang Lin considéra que cet adversaire était extrêmement fort!
 
-Wang Lin ignorait que ce jeune homme nommé Yun Yifeng était très célèbre au sein de la Secte Gui Yi sur le Continent Astral Immortel. Il était classé troisième parmi les disciples de base!
+Wang Lin ignorait que ce jeune homme nommé Yun Yifeng était très célèbre au sein de la Secte Gui Yi sur le Continent Astral Immortel. Il était classé troisième parmi les disciples centraux!
 
-Il avait suivi son oncle dans le monde des grottes et, après d'innombrables années, il s'y était perfectionné pour y obtenir de grandes richesses. Une fois de retour sur le Continent Astral Immortel, il serait tel un fils glorieux du ciel, capable de briguer la première place parmi les disciples de base!
+Il avait suivi son oncle de secte et les autres dans le monde des grottes et, après d'innombrables années, il s'y était perfectionné pour y obtenir de grandes richesses. Une fois de retour sur le Continent Astral Immortel, il serait tel un fils glorieux du ciel, capable de briguer la première place parmi les disciples centraux!
 
 Avec son statut de premier disciple de la Secte Gui Yi, son nom se répandrait à travers les neuf sectes et les treize factions!
 
@@ -120,7 +120,7 @@ Au moment où la base de la tour s'effondrait, une voix ancienne mais puissante 
 
 Cette voix était semblable au tonnerre, mais surpassait tout fracas céleste. Le monde changea de teinte et la voix descendit telle une loi immuable.
 
-« Jeune barbare du Dao Antique, ton clan est le plus faible des trois clans antiques. Vous n'êtes que de simples sauvages. Même si votre chef de famille a précédé notre Secte Gui Yi, vous ne restez que de vulgaires barbares! » La voix, empreinte d'arrogance, s'abattit sur Wang Lin.
+« Jeune barbare du Dao Antique, ton clan est le plus faible des trois clans antiques. Vous n'êtes que de simples sauvages. Même si l'un de vos aînés venait ici, face à notre Secte Gui Yi, il ne serait qu'un vulgaire cultivateur sauvage! » La voix, empreinte d'arrogance, s'abattit sur Wang Lin.
 
 Avant même que Wang Lin ne puisse ressentir la moindre émotion, à l'extérieur de la planète, l'expression de Xuan Luo devint sombre. Personne n'avait jamais osé insulter son clan de la sorte; ce vieil homme du troisième étage était le premier!
 

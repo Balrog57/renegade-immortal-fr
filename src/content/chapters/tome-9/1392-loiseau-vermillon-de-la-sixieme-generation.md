@@ -10,9 +10,9 @@ slug: loiseau-vermillon-de-la-sixieme-generation
 
 « C'est ainsi que le vieil homme a atteint le second royaume de la tromperie. Ne trouvez-vous pas cela facile? Se tromper soi-même une fois est une chose, mais se tromper soi-même toute une vie en est une autre. Se tromper constamment affecterait votre âme originelle, et même vos souvenirs changeraient!
 
-« Même les puissants cultivateurs ayant atteint la deuxième étape ne peuvent retrouver leurs véritables souvenirs par la recherche d'âme, car tous les souvenirs réels se sont effondrés!
+« Même le cultivateur le plus puissant qui pratiquerait la recherche d'âme sur ceux de ma sorte ayant atteint le sommet du deuxième royaume n'en tirerait rien: il n'obtiendrait pas les véritables souvenirs, car ils se sont totalement effondrés!
 
-« Le second royaume consiste à se tromper soi-même! À son apogée, soit l'on se perd pour devenir quelqu'un d'autre, soit l'on renaît en se souvenant de qui l'on est. On peut alors franchir le second royaume et être capable de revenir à soi à tout moment. Une telle personne est rare, et elle atteindrait la troisième étape du retour à sa forme véritable!
+« Le second royaume consiste à se tromper soi-même! À son apogée, soit l'on se perd pour devenir quelqu'un d'autre, soit l'on renaît en se souvenant de qui l'on est. On peut alors franchir le second royaume et être capable de revenir à soi à tout moment. Une telle personne est rare, mais seule elle peut atteindre le troisième royaume, le retour à la simplicité originelle!
 
 « Si ce n'était pas parce que je me suis tellement appuyé sur le jade que mon cœur de Dao n'est pas assez fort, ce qui a entravé ma voie de la tromperie, alors même Seigneur Céleste ne pourrait pas me capturer si facilement!
 
@@ -22,7 +22,7 @@ Les yeux de Wang Lin s'illuminèrent et il dit lentement: « C'est plutôt inté
 
 Après avoir été réprimandé par Liu Jinbiao, Xu Liguo ne répliqua pas, mais réfléchit un instant. Son regard envers Liu Jinbiao changea avant qu'il ne joigne les mains et ne dise: « Les paroles du camarade cultivateur Jinbiao ont élargi mes horizons. Parmi les 3 000 grands Daos, il existe le Dao de la tromperie! Bien, bien, bien! Je veux savoir si le Dao que je recherche figure également parmi les 3 000 grands Daos! »
 
-Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Seigneur Xu. Tant que le Seigneur Xu ne maltraite pas trop ce humble serviteur, il sera satisfait. »
+Les yeux de Liu Jinbiao étaient remplis de joie, comme s'il était devenu une personne différente. La fierté et l'indifférence qu'il affichait auparavant s'étaient effondrées en un instant. Son dos était toujours voûté et une pointe de peur subsistait dans son regard. « Ce n'est qu'une simple compétence de tromperie, rien qui vaille la peine d'être mentionné devant Seigneur Xu. Tant que le Seigneur Xu ne maltraite pas trop cet humble serviteur, il sera satisfait. »
 
 Son changement fut si soudain qu'il surprit même Xu Liguo. Ce dernier jura intérieurement, ne sachant que dire.
 
@@ -68,9 +68,9 @@ Xu Liguo était totalement stupéfait. Il ne pouvait dire s'il s'agissait du mê
 
 « Ceci... Vous... » À peine Xu Liguo eut-il ouvert la bouche que Liu Jinbiao lui lança un regard glacial. Ce simple coup d'œil fit frissonner le cuir chevelu de Xu Liguo, qui recula inconsciemment de quelques pas.
 
-« Ce vieil homme est l'Empereur Divin Vermillon de la sixième génération! Je recherche l'Empereur Divin Vermillon de la quatrième génération. J'ai été gravement blessé par la Formation du Royaume Scellé lors de ma sortie du Royaume Intérieur! » déclara Liu Jinbiao, dégageant une majesté suprême. Une telle aura ne pouvait appartenir qu'à quelqu'un ayant occupé une position de pouvoir dominant la vie et la mort de dizaines de milliers d'êtres pendant des éons.
+« Ce vieil homme est l'Oiseau Vermillon de la sixième génération de la Secte Divine de l'Oiseau Vermillon! Je suis venu dans le Système Stellaire Antique à la recherche de l'Oiseau Vermillon de la quatrième génération. J'ai été blessé par une formation et je ne suis toujours pas remis de mes graves blessures! » déclara Liu Jinbiao, dégageant une majesté suprême. Une telle aura ne pouvait appartenir qu'à quelqu'un ayant occupé une position de pouvoir dominant la vie et la mort de dizaines de milliers d'êtres pendant des éons.
 
-À cet instant, il avait depuis longtemps oublié qu'il n'était qu'un escroc. Sa mémoire avait changé et il croyait fermement être l'Empereur Divin Vermillon de la sixième génération!
+À cet instant, il avait depuis longtemps oublié qu'il n'était qu'un escroc. Sa mémoire avait changé et il croyait fermement être le maître de la Secte Divine de l'Oiseau Vermillon, l'Oiseau Vermillon de la sixième génération!
 
 Même si un puissant cultivateur pratiquait une recherche d'âme sur lui, il ne trouverait aucune faille; tous les souvenirs obtenus seraient réels!
 
@@ -78,13 +78,13 @@ Liu Jinbiao s'avança froidement.
 
 À ce moment, la voix de Wang Lin retentit depuis la boule de feu bleue dans la grotte.
 
-« Xu Liguo, sers l'Empereur Divin Vermillon de la sixième génération et obéis à tous ses ordres. Si tu lui désobéis, j'effacerai ton existence! »
+« Xu Liguo, sers l'Oiseau Vermillon de la sixième génération et obéis à tous ses ordres. Si tu lui désobéis, j'effacerai ton existence! »
 
 Le corps de Xu Liguo trembla et il hocha précipitamment la tête avant de suivre Liu Jinbiao. Les restrictions de la grotte s'ouvrirent automatiquement, permettant aux deux de sortir.
 
 Hormis Liu Jinbiao, nul ne savait ce que Wang Lin lui avait inculqué durant ce mois... Une fois les deux partis, la boule de feu disparut progressivement pour retourner dans l'œil gauche de Wang Lin. Il restait assis calmement, une lueur d'intelligence brillant dans ses yeux.
 
-« Le second appât est posé... Clan du Souci-Feu, ne me décevez pas! »
+« Le second appât est posé... Clan de l'Hirondelle de Feu, ne me décevez pas! »
 
 Wang Lin esquissa un sourire narquois et agita la main, créant une déchirure vers son espace de stockage. Une statue en vola. C'était celle qu'il avait obtenue de Cupidité.
 

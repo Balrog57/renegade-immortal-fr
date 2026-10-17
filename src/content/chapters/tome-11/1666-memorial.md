@@ -20,7 +20,7 @@ Tandis que Wang Lin s'inclinait, il ne leva pas les yeux, maintenant sa posture 
 
 Des âmes illusoires émergèrent du système stellaire. Les premières à apparaître furent les anciens cultivateurs qui vivaient avant même l'existence des Royaumes Intérieur et Extérieur.
 
-Ils appartenaient à la première génération de vie sous le Royaume Céleste Antique. Ils avaient reçu les enseignements de ce royaume; ils étaient la première vague de vie consciente au sein de la grotte.
+Ils appartenaient à la première génération de vie sous le Royaume Céleste Antique. Ils avaient reçu les enseignements de ce royaume, qui leur avait transmis l'art de la cultivation immortelle; ils étaient la première génération d'êtres nés de l'évolution du Dao céleste.
 
 Leurs vêtements leur donnaient des airs de sauvages, mais l'aura qui émanait de leurs corps témoignait d'une profonde compréhension du monde. Lorsque la Formation de Scellement du Royaume apparut, ils furent saisis par la confusion et la peur. Tous tentèrent de s'échapper de la formation, mais tous périrent.
 
@@ -96,7 +96,7 @@ Simultanément, dans la Rivière Invoquée, sur un météore que même Wang Lin 
 
 Son expression était sereine. Il nota les âmes invoquées depuis les étoiles et médita en silence. Après un long moment, il sortit du météore et se tint là, contemplant l'innombrable procession.
 
-« Je devrais être le premier à retrouver la mémoire... Pourtant, j'étais aussi un cultivateur du Royaume Intérieur... Vous méritez tous une révérence de la part de ce vieil homme. » L'Omniscient soupira et, d'un mouvement de manche, s'inclina devant les étoiles.
+« Je devrais être, hormis ces deux-là, le premier à retrouver la mémoire... Pourtant, j'étais aussi un cultivateur du Royaume Intérieur... Vous méritez tous une révérence de la part de ce vieil homme. » L'Omniscient soupira et, d'un mouvement de manche, s'inclina devant les étoiles.
 
 Toujours dans la Rivière Invoquée, il y avait une personne que même l'Omniscient n'avait pas remarquée. C'était le jeune homme issu de la rétribution divine de Wang Lin, provenant de la faille menant au Royaume Céleste Antique.
 

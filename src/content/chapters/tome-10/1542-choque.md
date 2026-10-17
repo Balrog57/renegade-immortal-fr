@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1542 - Shocked!"
 slug: choque
 ---
-« Je l'ai déjà percé à jour, ce n'est pas la même chose », déclara Wang Lin d'une voix ferme en jetant un regard froid au fou. Une pointe de regret transparaissait dans son mépris.
+« J'ai déjà regardé, ce n'est pas le même sort », déclara Wang Lin d'une voix ferme en jetant un regard froid au fou. Une pointe de regret transparaissait dans son mépris.
 
 C’est cette nuance de regret qui fit monter les larmes aux yeux du fou, jusqu'à ce qu'il finisse par éclater en sanglots.
 
 En le voyant pleurer, Wang Lin ressentit une certaine compassion. Il se sentait tel un oncle tentant d'arracher un jouet des mains d'un enfant...
 
-« Peu importe, karma, karma... J'ai rencontré cette personne à l'intérieur de la Bête des Limbes. C'est elle qui m'a donné mon lignage céleste, et maintenant, je lui dérobe ses sorts par ce moyen. Je devrai tôt ou tard lui rendre la pareille... Les cultivateurs deviennent rarement fous, il doit donc y avoir une histoire tragique derrière lui. Moi, Wang Lin, n'oublie jamais ses bienfaiteurs! Je jure que dans le futur, toutes ses affaires m'appartiendront aussi! » Wang Lin regarda à nouveau le fou, mais cette fois, une lueur de douceur se cachait dans son regard.
+« Peu importe, karma, karma... J'ai rencontré cette personne à l'intérieur de la Bête des Limbes. C'est elle qui m'a donné mon lignage céleste, et maintenant, je lui dérobe ses sorts par ce moyen. Je devrai tôt ou tard lui rendre la pareille... Les cultivateurs deviennent rarement fous, il doit donc y avoir une histoire tragique derrière lui. Moi, Wang Lin, n'oublie jamais ses bienfaiteurs! Je jure que dans le futur, ses affaires seront aussi les miennes! » Wang Lin regarda à nouveau le fou, mais cette fois, une lueur de douceur se cachait dans son regard.
 
 « Ce roi n'a pas menti, ce roi a utilisé le même sort qu'auparavant. Ce sort s'appelle l'Empreinte de l'Esprit Guerrier. Mon grand frère l'a volé au Souverain Céleste Jumeau avant de me le transmettre... » Il semblait que le fou ne s'était pas lavé le visage depuis longtemps. Tandis que ses larmes coulaient, deux traînées de boue noire marquèrent son visage. Il essuya ses pleurs et fixa Wang Lin d'un regard chargé d'injustice avant de rugir:
 
@@ -60,9 +60,9 @@ Le fou, bien que fier, tourna soudain un regard méfiant vers Wang Lin.
 
 Le fou leva la tête et poussa un reniflement méprisant, adoptant une attitude hautaine. Il secoua la tête dans un soupir: « Apprendre trop de sorts Dao est une chose fort ennuyeuse. Ah, le talent de ce roi est tout simplement trop élevé. Puisque tu es si respectueux, je vais te montrer, mais il n'est pas question que je te les enseigne! »
 
-Après avoir parlé, le fou se leva et s'étira. Il leva fièrement la main droite, et soudain, le ciel s'obscurcit. Une lumière rouge éclatante jaillit et un immense parapluie apparut brusquement!
+Après avoir parlé, le fou se leva et s'étira. Il leva fièrement la main droite, et soudain, le ciel s'obscurcit. Une mer de feu rouge vif déferla en rugissant et un immense parapluie apparut brusquement!
 
-Ce parapluie utilisait la voûte céleste comme toile, et sa hampe était formée d'une mer de feu infinie! Un brasier destructeur se propagea dans toutes les directions, formant neuf graines de feu semblables à des ombrelles. Ces graines dégageaient une aura terrifiante.
+Ce parapluie utilisait la voûte céleste comme toile, et sa hampe était formée d'une mer de feu infinie! Un brasier destructeur se propagea dans toutes les directions, formant neuf flammes en forme d'ombrelle. Ces flammes dégageaient une aura terrifiante.
 
 Les pupilles de Wang Lin se rétractèrent. Il reconnut que ce sort était similaire à l'Ombrelle Brûlante du Royaume qu'il connaissait, mais la différence résidait dans l'exécution: lui devait ouvrir son parapluie pour l'utiliser, tandis que celui du fou était déjà déployé!
 

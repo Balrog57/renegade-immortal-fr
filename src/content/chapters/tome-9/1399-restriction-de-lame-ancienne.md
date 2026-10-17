@@ -24,11 +24,11 @@ Wang Lin se détourna. Sans un regard pour la femme ou Maître Simo, il s'enfon�
 
 Tout en progressant, le regard de Wang Lin devint vif. Ce qu'il avait infligé au Clan de River Creek et au Clan du Serpent de l'Âme n'était qu'un test destiné au Grand Empereur. Ce dernier était bien trop mystérieux; après lui avoir soudainement accordé de nombreux bénéfices, il ne pouvait s'empêcher de rester prudent.
 
-Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé suivait la même logique, tout comme celle des clans de River Creek et du Serpent de l'Âme. Ce n'était qu'en poussant sans cesse ses limites que Wang Lin pourrait découvrir la véritable nature de son interlocuteur!
+Pour déceler les desseins de l'autre partie, il devait la mettre à l'épreuve. La situation avec le Clan du Dragon Blindé, quelques mois auparavant, suivait la même logique, tout comme celle des clans de River Creek et du Serpent de l'Âme. Ce n'était qu'en poussant sans cesse ses limites que Wang Lin pourrait découvrir la véritable nature de son interlocuteur!
 
 « Il a dépouillé deux Anciens Délaissés de leurs titres, il m'a laissé choisir le patriarche du Clan du Dragon Blindé, et il m'a même permis de révoquer les droits de deux clans à participer à la Sélection des Anciens Délaissés. Tout cela dépasse ses propres limites... Peut-être que le Conseil des Déchus n'a aucune importance pour le Grand Empereur! » Wang Lin réfléchit un instant, les yeux brillants. Il lança soudain une directive au messager qui le suivait:
 
-« Le Patriarche du Clan du Scorpion Obscur est digne de confiance; j'ai l'intention de le nommer Ancien Déchu. »
+« Le Patriarche du Clan du Scorpion Obscur n'est pas mal; j'ai l'intention de le nommer Ancien Déchu. »
 
 Le messager fut surpris et hésita un instant. Le regard de Wang Lin balaya le serviteur, et ses pupilles se rétractèrent. Il pressentit vaguement que le messager utilisait une méthode spéciale pour transmettre un message à quelqu'un.
 
@@ -52,7 +52,7 @@ Seule la région du nord-ouest présentait une végétation plus clairsemée, r�
 
 « C'est l'emplacement de la Sélection des Anciens Délaissés », expliqua rapidement le messager lorsqu'il vit le regard de Wang Lin se fixer sur le nord-ouest.
 
-Après ses explications, le messager joignit les mains et dit: « Jeune Maître, j'ai reçu l'ordre de vous conduire ici. Je dois maintenant retourner chercher les autres cultivateurs. Si le Jeune Empereur n'a pas d'autres ordres, ce subordonné prend congé. »
+Après ses explications, le messager joignit les mains et dit: « Jeune Empereur, j'ai reçu l'ordre de vous conduire ici. Je dois maintenant retourner chercher les autres cultivateurs. Si le Jeune Empereur n'a pas d'autres ordres, ce subordonné prend congé. »
 
 Wang Lin n'avait pas l'intention de le retenir. Il joignit les mains à son tour: « Merci beaucoup! » La règle de conduite de Wang Lin avait toujours été de traiter autrui comme on le traitait lui-même. Puisque le messager s'était montré respectueux lors de leurs deux rencontres, il ne lui causerait aucun désagrément.
 
@@ -62,9 +62,9 @@ Une fois l'homme parti, Wang Lin eut l'impression d'être le seul être vivant s
 
 Lorsqu'il réapparut, il se trouvait à l'extérieur de l'arène. Cette enceinte de 500 kilomètres était d'une immensité inimaginable pour des mortels; il aurait fallu une journée entière de chevauchée rapide pour la traverser. Pour des cultivateurs, cependant, sa taille était tout à fait convenable.
 
-Aux abords des restrictions entourant l'arène, Wang Lin leva sa main droite et l'abaissa brusquement vers le sol. À cet instant, une force colossale fut aspirée depuis le vide pour se précipiter vers sa main. En un éclair, un objet semblable à une carapace de tortue se matérialisa devant lui.
+Aux abords des restrictions entourant l'arène, Wang Lin leva sa main droite et pressa brusquement dans le vide devant lui. À cet instant, une force colossale fut aspirée depuis le vide pour se précipiter vers sa main. En un éclair, un objet semblable à une carapace de tortue se matérialisa devant lui.
 
-D'innombrables tourbillons parcouraient les bords de cette carapace, tournant à une vitesse fulgurante. Lorsque la main droite de Wang Lin toucha l'objet, il ressentit soudain une puissance dévastatrice en émaner. Sa main devint engourdie et il fut repoussé de trois pas avant de pouvoir se stabiliser.
+D'innombrables tourbillons parcouraient les bords de cette carapace, passant rapidement du virtuel au réel. Lorsque la main droite de Wang Lin toucha l'objet, il ressentit soudain une puissance dévastatrice en émaner. Sa main devint engourdie et il fut repoussé de trois pas avant de pouvoir se stabiliser.
 
 Wang Lin perçut l'aura d'une âme ancienne dans ce renvoi de force.
 
@@ -92,7 +92,7 @@ Une aura antique se propagea sur toute la planète! La tortue était grise et se
 
 Ce cri fit trembler les cieux et déforma l'espace environnant. Le ciel changea de teinte tandis que des ondes sonores infinies résonnaient. La scène était absolument saisissante: la tortue géante rugissait vers le firmament, d'une férocité extrême. Son corps tout entier émanait une lueur grise alors qu'elle déployait ses quatre membres. Ses griffes acérées semblaient pouvoir déchirer le ciel lui-même!
 
-Plusieurs protubérances apparurent sur sa queue, laissant jaillir des pointes verdâtres qui recelaient manifestement un poison redoutable. Puis, une corne surgit de son front. Une aura aquatique se dégagea de la créature, donnant à Wang Lin l'illusion de contempler l'océan! C'était comme si l'endroit s'était métamorphosé en une mer infinie!
+Plusieurs protubérances apparurent sur sa queue, laissant jaillir des pointes verdâtres qui recelaient manifestement un poison redoutable. Puis, une corne surgit à moitié de son front. Une aura aquatique se dégagea de la créature, donnant à Wang Lin l'illusion de contempler l'océan! C'était comme si l'endroit s'était métamorphosé en une mer infinie!
 
 Wang Lin fit un geste de la main et le tatouage de tonnerre retourna dans son œil droit. Il n'avait pas l'intention d'attaquer l'arène; il avait simplement utilisé le tatouage pour forcer la restriction à s'activer pleinement.
 
@@ -102,4 +102,4 @@ Ayant atteint son but, Wang Lin se retira rapidement, un éclat étrange dans le
 
 Tandis que Wang Lin reculait, la tortue géante baissa la tête et son corps commença à se dissiper lentement. Un instant plus tard, tout revint à la normale.
 
-Parmi les quatre grandes restrictions, la Restriction de l'Âme Ancienne était la plus mystérieuse et avait disparu depuis des éons. Cependant, les rares indices subsistant indiquaient qu'elle était liée aux bêtes. Elle utilisait les âmes de créatures mythiques pour constituer le corps même de la restriction par des méthodes spéciales, ce qui la rendait extrêmement puissante!
+Parmi les quatre grandes restrictions, la Restriction de l'Âme Ancienne était la plus mystérieuse et avait disparu depuis des éons. Cependant, les rares indices subsistant indiquaient qu'elle était liée aux bêtes féroces. Elle emprisonnait l'âme et le corps de bêtes féroces pour constituer la restriction, avec diverses méthodes spéciales, ce qui la rendait extrêmement puissante!

@@ -8,7 +8,7 @@ slug: un-être-ancestral-a-huit-etoiles
 ---
 Les continents du Royaume Céleste du Vent avaient été pris par Wang Lin, mais le royaume existait toujours. Le passage que Wang Lin avait scellé était également toujours là.
 
-Au moment où cette aura se répandit, la porte au bout du passage trembla violemment. Cela permit à l'aura qui terrorisait le monde des grottes de s'infiltrer dans la Secte Gu Yi à travers cette porte.
+Au moment où cette aura se répandit, la porte au bout du passage trembla violemment. Elle ne put empêcher l'aura de se répandre, et l'aura qui terrorisait le monde des grottes s'infiltra par cette porte dans la Secte Gui Yi du Continent Astral Immortel.
 
 Dès que l'aura apparut, les expressions de tous les cultivateurs de la secte changèrent radicalement. Ceux possédant un haut niveau de culture furent saisis de choc et d'incrédulité!
 
@@ -18,7 +18,7 @@ Sur le Continent Astral Immortel, Fan Shanmeng, qui était assise à l'intérieu
 
 « C'est... C'est l'aura d'un Grand Empyréen!! »
 
-Sur le Continent Astral Immortel, parmi les neuf sectes et treize factions de l'Est, la première était la Secte du Soleil Violet! La puissance d'une seule de ses branches suffisait à balayer les huit autres sectes.
+Sur le Continent Astral Immortel, parmi les neuf sectes et treize factions de l'Est, la première était la Secte du Soleil Violet! La puissance de cette seule secte suffisait à balayer les huit autres sectes.
 
 C'était parce que l'un des légendaires Grands Empyréens était un membre de la Secte du Soleil Violet. L'un des neuf soleils du Continent Astral Immortel!
 
@@ -28,11 +28,11 @@ Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient 
 
 « Que tous vous me disiez ce qui se passe! »
 
-« Ils ont dit qu'ils allaient s'amuser dans le Royaume de la Ferme des Bêtes, mais... mais... » murmura l'un des Anciens, accablé d'impuissance.
+« Ils ont dit qu'ils allaient s'amuser dans le Domaine de la Ferme des Bêtes, mais... mais... » murmura l'un des Anciens, accablé d'impuissance.
 
 « S'amuser? L'aura d'un Grand Empyréen s'est propagée, comment cela pourrait-il encore être un jeu?! » rugit l'homme d'âge moyen, bien que ses yeux fussent également remplis de désespoir.
 
-« Nous ne pouvons pas ouvrir le Royaume de la Ferme des Bêtes. Ils l'ont scellé et refusent de nous laisser entrer... » Un autre vieil homme secoua amèrement la tête.
+« Nous ne pouvons pas ouvrir le Domaine de la Ferme des Bêtes. Ils l'ont scellé et refusent de nous laisser entrer... » Un autre vieil homme secoua amèrement la tête.
 
 « Aucune erreur n'est permise dans la réincarnation du Grand Empyréen. Ils sont encore en pleine croissance, il n'est pas idéal d'utiliser leur pouvoir de Grand Empyréen... Ces deux petits ancêtres, que font-elles donc? » L'homme d'âge moyen frappa du pied et toute la Secte du Soleil Violet trembla. Même le monde extérieur en fut ébranlé.
 
@@ -40,7 +40,7 @@ Cependant, ce Grand Empyréen était très mystérieux, et peu de gens savaient 
 
 Le soleil dans la main de Cupidité s'étendit rapidement jusqu'à atteindre la taille d'un homme. Les neuf oiseaux de feu poussèrent des cris déchirants en tentant de reculer, mais sous l'éclat de la lumière solaire, ils s'effondrèrent tous.
 
-Il y avait aussi le Daoïste aux Sept Couleurs, qui fut stupéfait un instant. Bien qu'il n'ait pas obtenu les souvenirs, certaines choses étaient gravées dans son âme. Même divisé en trois âmes, certains éléments ne pouvaient être effacés.
+Il y avait aussi le Daoïste aux Sept Couleurs, qui fut stupéfait un instant. Bien qu'il n'ait pas hérité de la totalité des souvenirs, certains étaient gravés dans son âme. Même divisé en trois âmes, ils ne pouvaient être effacés.
 
 Ce souvenir était la peur et le respect envers les neuf soleils du Continent Astral Immortel.
 
@@ -54,11 +54,11 @@ Non seulement lui, mais le Vieux Fantôme Zhan, qui suivait les quatre générau
 
 Cette aura terrifiante se propagea dans le Royaume Intérieur, le Royaume Extérieur et l'ensemble du monde des grottes. Elle balaya chaque planète et chaque être vivant qui s'y trouvait. À cet instant, le monde des grottes tout entier sombra dans la confusion.
 
-À ce moment-là, quiconque — qu'il fût une bête, un mortel ou un cultivateur — fut stimulé par l'aura du Grand Empyréen, réveillant des souvenirs oubliés il y a d'innombrables réincarnations...
+Parmi cette multitude d'êtres, peut-être une bête, peut-être un mortel, peut-être un cultivateur, avait l'âme stimulée par l'aura du Grand Empyréen, réveillant un souvenir oublié depuis d'innombrables réincarnations...
 
-Ces souvenirs n'auraient jamais refait surface, même après des dizaines de milliers d'années, sans la stimulation de l'aura du Grand Empyréen. Pourtant, par une pure coïncidence, ces souvenirs s'éveillèrent!
+Ce souvenir ne serait peut-être jamais revenu, même après cent millions d'années, sans la stimulation de l'aura du Grand Empyréen. Pourtant, par une pure coïncidence, ce souvenir s'éveilla lentement dans l'esprit d'un être vivant du monde des grottes!
 
-Et ces souvenirs qui s'éveillaient étaient la troisième âme!
+Et ce souvenir qui s'éveillait était la troisième âme du Daoïste aux Sept Couleurs!
 
 Dans la faille spatiale de la Mer des Nuages, le Daoïste aux Sept Couleurs s'échappa en panique. Il cracha du sang et disparut sans laisser de trace.
 
@@ -68,7 +68,7 @@ Sur l'autel, à l'intérieur de la faille, Wang Lin regarda avec stupeur le sole
 
 À travers la brèche, Wang Lin vit les deux fillettes à l'intérieur.
 
-« Oh, c'est toi... » L'une des petites filles du Royaume de la Ferme des Bêtes sembla apercevoir Wang Lin et afficha une expression joyeuse.
+« Oh, c'est toi... » L'une des petites filles du Domaine de la Ferme des Bêtes sembla apercevoir Wang Lin et afficha une expression joyeuse.
 
 « Han Han, regarde, c'est la personne dont je parlais. Il s'appelle aussi Wang Lin. »
 
@@ -88,13 +88,13 @@ L'espace était plongé dans un silence absolu et toute lumière s'était étein
 
 « Un jour, je deviendrai moi aussi un Grand Empyréen!! » Wang Lin ferma les yeux, puis les rouvrit un instant plus tard, le cœur apaisé.
 
-« Le Daoïste aux Sept Couleurs n'osera plus revenir ici. Ce sera l'endroit le plus sûr. Je dois comprendre l'essence de la restriction, fusionner ces neuf gouttes de sang, et ce bras... » Wang Lin regarda le membre qui mesurait plusieurs centaines de pieds de long.
+« Le Daoïste aux Sept Couleurs n'osera plus revenir ici. Ce sera l'endroit le plus sûr. Je dois comprendre l'essence de la restriction, fusionner ces huit gouttes de sang, et ce bras... » Wang Lin regarda le membre qui mesurait plus de cent pieds de long.
 
 « Si j'absorbe ce bras et que j'utilise le sortilège "Déchirer les Cieux", je me demande quelle part de la force de Ye Mo je pourrai déployer! » Les yeux de Wang Lin étincelèrent. Après s'être calmé, il pointa l'espace entre ses sourcils et les huit gouttes de sang s'envolèrent.
 
 Ces huit gouttes flottaient devant lui. Elles ne dégageaient aucune lumière, mais une puissante aura antique s'en échappait. Les sept étoiles de Dieu Antique de Wang Lin tournèrent rapidement pour former un vortex.
 
-Dans ses yeux droit et gauche, ses étoiles d'Ancien Démon et d'Ancien Diable apparurent également. L'allure actuelle de Wang Lin était extrêmement singulière.
+Dans ses yeux gauche et droit, ses étoiles d'Ancien Démon et d'Ancien Diable apparurent également. L'allure actuelle de Wang Lin était extrêmement singulière.
 
 « Le sang de Ye Mo contient toute la puissance des trois anciens clans... » Wang Lin saisit une goutte de sang et, après un instant de réflexion, la broya. Elle se divisa en sept parties qui furent absorbées par ses sept orifices.
 

@@ -8,7 +8,7 @@ slug: beau-reve-du-passe
 ---
 Cette femme était encore plus belle que Mu Bingmei. Bien qu'elle ne souriait pas, un seul de ses regards suffisait à faire battre le cœur des cultivateurs plus vite.
 
-L'énergie Yin se concentrait entre ses sourcils, ce qui la distinguait des autres femmes. Elle possédait son propre charme!
+Une allure martiale se lisait entre ses sourcils, ce qui la distinguait des autres femmes. Elle possédait son propre charme!
 
 Lorsqu'elle ouvrit les yeux, ceux-ci semblaient contenir les étoiles elles-mêmes. On ne pouvait s'empêcher de se perdre dans son regard.
 
@@ -66,7 +66,7 @@ Ces cicatrices ne pouvaient être effacées par des sorts ordinaires. Elle les a
 
 Son niveau de culture n'était pas très élevé, seulement Corporel Yang. Pourtant, son corps dégageait un profond sentiment d'épuisement et de confusion.
 
-Presque tous les membres de sa famille étaient morts lors de la guerre contre l'Alliance. Même l'ancêtre qu'elle aimait le plus avait été gravement blessé durant le conflit avant de mourir pour protéger une ancienne divinité près de la planète Suzaku afin de la sauver. Toute sa lignée s'était éteinte.
+Presque tous les membres de sa famille étaient morts lors de la guerre contre l'Alliance. Même l'ancêtre qu'elle aimait le plus avait été gravement blessé durant le conflit avant de périr pour la sauver, sur la terre des dieux anciens de la planète Suzaku de l'Alliance. Toute sa lignée s'était éteinte.
 
 Après la guerre, elle était retournée à Luotian, épuisée et blessée, pour découvrir que sa famille n'existait plus. Elle avait versé des larmes devant les ruines du foyer familial avant de partir en silence. Elle avait cultivé seule, errante et sans abri.
 
@@ -82,9 +82,9 @@ Elle n'avait pas oublié ses désirs passés. Elle voulait devenir comme l'ancê
 
 Cependant, ce souhait ne faisait que s'éloigner... Si ce n'était pour cette figure gravée dans son cœur, elle serait depuis longtemps devenue le « fourneau » de quelqu'un d'autre, sacrifiant son corps en échange de protection et du droit de continuer sa culture.
 
-Mais cette figure l'avait empêchée de s'humilier. Elle refusait de sombrer si bas. Bien que cet homme l'ait peut-être oubliée, ne se souvenant même plus de son nom, elle, elle se souvenait... Elle ne pouvait oublier cette silhouette menant les cultivateurs hors du Royaume Céleste du Tonnerre en plein effondrement... Elle ne pouvait oublier ce guerrier combattant les messagers du Temple Céleste du Tonnerre.
+Mais cette figure l'avait empêchée de s'humilier. Elle refusait de sombrer si bas. Bien que cet homme l'ait peut-être oubliée, ne se souvenant même plus de son nom, elle, elle se souvenait... Elle ne pouvait oublier cette silhouette menant les cultivateurs hors du Royaume Céleste du Tonnerre en plein effondrement... Elle ne pouvait oublier ce guerrier combattant les gens du Temple Céleste du Tonnerre qui gardaient la formation.
 
-Plus encore, elle ne pouvait oublier celui qui avait bouleversé Luotian pour devenir le Ciel du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
+Plus encore, elle ne pouvait oublier celui qui avait bouleversé Luotian pour devenir le Céleste du Tonnerre! Même si cet homme ignorait qu'elle se trouvait parmi les spectateurs, et même s'il ne connaissait pas la joie qu'elle ressentait... Au cours des huit cents dernières années, chaque fois qu'elle sombrait dans la tristesse, elle pensait à cette silhouette et puisait en elle le courage de continuer à lutter.
 
 Le passé était comme une fumée qui traversa rapidement son esprit. Bientôt, une planète de culture regorgeant d'énergie spirituelle apparut devant eux.
 
@@ -92,7 +92,7 @@ Le groupe s'arrêta aux abords de la planète. Le chef était un homme d'âge mo
 
 Les cultivateurs chérissent souvent leur enveloppe charnelle, car elle est la racine de la culture. Beaucoup cherchent des méthodes pour paraître jeunes; bien qu'ils ne soient pas immortels, ils s'acharnent à repousser le vieillissement.
 
-Il y avait beaucoup de gens aussi laids qu'elle. De plus, n'étant qu'une cultivatrice Corporel Yang sans aucun soutien familial, elle pouvait être maltraitée sans que personne ne s'en inquiète.
+Il y avait peu de gens aussi laids qu'elle. De plus, n'étant qu'une cultivatrice Corporel Yang sans aucun soutien familial, elle pouvait être maltraitée sans que personne ne s'en inquiète.
 
 « Xi Zifeng, utilise ton âme originelle pour dévier la trajectoire de cette planète. » Cet homme d'âge moyen était au milieu du stade Scruteur du Nirvana, et ses paroles portaient une autorité incontestable.
 

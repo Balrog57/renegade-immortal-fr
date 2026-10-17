@@ -24,19 +24,19 @@ L'aura de feu ne s'arrêta pas; elle se propagea lentement dans toutes les direc
 
 C'était là le pouvoir capable de dévaster un royaume!
 
-L'onde de choc destructrice créée par la collision entre le bec de l'Oiseau Vermillon et le Souverain heurta la puissance de l'aura de feu. D'innombrables grondements éclatèrent tandis que l'onde de choc s'effondrait et que le feu s'éteignait!
+L'onde de choc destructrice créée par la collision entre le bec de l'Oiseau Vermillon et le Souverain heurta la puissance de l'aura de feu. D'innombrables grondements éclatèrent tandis que l'onde de choc s'effondrait, anéantie par l'aura de feu!
 
-« L'Ancienne Ombrelle Brûlante du Royaume!! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait combattu l'esprit originel de l'Oiseau Vermillon et l'avait scellé avant même d'avoir vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlante du Royaume!
+« L'Ancienne Ombrelle Brûlante du Royaume!! » Le visage du Souverain était pâle. Il était gravement blessé, puis il avait commis une erreur de calcul avec "Pêcher la Lune dans le Puits". Après cela, il avait été gravement blessé par l'esprit originel de l'Oiseau Vermillon et l'avait scellé, puis il avait vu Wang Lin utiliser la terrifiante Ancienne Ombrelle Brûlante du Royaume!
 
-À cet instant, il était plus affaibli qu'auparavant! Avec une expression féroce, le Souverain forma un sceau et saisit l'étoffe sur son épaule. Dans un rugissement, il la tira violemment!
+À cet instant, il était plus affaibli qu'auparavant! Avec une expression féroce, le Souverain forma un sceau des deux mains, qu'il posa sur ses épaules. Dans un rugissement, il tira violemment vers l'extérieur!
 
 Une douleur intense envahit son corps alors qu'il arrachait l'armure qui avait déjà fusionné avec sa chair. L'armure émit une lueur grise et se transforma soudainement en une paume gigantesque!
 
-« Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, elle est amplement suffisante pour rivaliser avec une ombrelle fermée! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
+« Comment l'Ancienne Ombrelle Brûlante du Royaume pourrait-elle être si facile à ouvrir? Cette armure m'a été donnée par mon Maître, elle est amplement suffisante pour rivaliser avec une ombrelle pas encore entièrement ouverte! Paume de la Suppression Universelle! » rugit le Souverain, tandis que l'immense paume formée par l'armure fonçait sur Wang Lin!
 
 Elle était d'une rapidité extrême et semblait couvrir tout le ciel, égalant presque la taille du bec de l'Oiseau Vermillon. En balayant l'azur, elle s'apprêtait à percuter l'ombrelle antique.
 
-Des grondements tonitruants retentirent frénétiquement alors que le feu pénétrait la paume. Celle-ci se dissipait rapidement tout en bombardant l'ombrelle.
+Des grondements tonitruants retentirent frénétiquement alors que la paume transperçait le feu. Celle-ci se dissipait rapidement tout en bombardant l'ombrelle.
 
 Tout cela se produisit en un éclair. Alors que la paume se désintégrait, elle se rapprocha de l'ombrelle. Après avoir réduit sa taille de moitié, elle percuta l'ombrelle antique!
 
@@ -104,7 +104,7 @@ La puissance d'Ancien Dieu à l'intérieur de Wang Lin se précipita dans le gan
 
 Au loin, un Ancien Dieu de la taille d'une planète de culture surgit soudainement devant Wang Lin!
 
-Cet Ancien Dieu était illusoire et dégageait une aura antique. Son corps était couvert de blessures, témoignant de multiples batailles passées! Son visage faisait face à la paume et ses bras enveloppaient Wang Lin. Il protégeait Wang Lin avec son propre corps, tel un parent protégeant son enfant!
+Cet Ancien Dieu était illusoire et dégageait une aura antique. Son corps était couvert de blessures, témoignant de multiples batailles passées! Son dos faisait face à la paume et ses bras enveloppaient Wang Lin. Il protégeait Wang Lin avec son propre corps, tel un parent protégeant son enfant!
 
 Des vagues de chaleur envahirent le corps de Wang Lin. C'était comme être dans les bras d'un parent; même si le monde s'écroulait, le parent vous protégerait!
 

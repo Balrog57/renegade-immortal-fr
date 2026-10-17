@@ -14,7 +14,7 @@ Cette statue émit une lueur rouge démoniaque, comme si elle s'éveillait, et c
 
 Un jour, deux jours, trois jours... jusqu'au dixième jour.
 
-Peut-être le temps coulait-il différemment ici qu'à l'extérieur, mais Wang Lin eut le sentiment que dix jours s'étaient écoulés. Le sang ancien devant lui s'était lentement asséché, mais la statue du démon ancien à ses côtés semblait désormais aussi vaste que le ciel et la terre comparée à ce qu'elle était auparavant.
+Peut-être le temps coulait-il différemment ici qu'à l'extérieur, mais Wang Lin eut le sentiment que dix jours s'étaient écoulés. Le sang ancien devant lui s'était lentement asséché, mais la statue du démon ancien à ses côtés semblait avoir connu un bouleversement total en ces dix jours.
 
 Des étoiles de démons anciens commencèrent progressivement à apparaître dans son œil gauche!
 
@@ -22,7 +22,7 @@ Une, deux... cinq étoiles de démons anciens apparurent. La lueur rouge démoni
 
 Le onzième jour, le sang ancien se désintégra en fragments rouges qui flottèrent devant Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il agita sa main droite sans hésiter. Il attira immédiatement tous les fragments de sang dans sa paume, laquelle prit alors l'apparence d'une main ensanglantée d'un rouge sombre. Il regarda la statue du démon ancien et pressa sa paume entre les sourcils de celle-ci!
+Les yeux de Wang Lin s'illuminèrent et il agita sa main droite sans hésiter. Il attira immédiatement tous les fragments de sang dans sa paume, laquelle prit alors l'apparence d'une main ensanglantée d'un rouge sombre. Il regarda la statue du démon ancien et abattit sa paume sur le sommet du crâne de celle-ci!
 
 Un fracas de tonnerre retentit lors de l'impact. Tous les fragments de sang séché dans la main de Wang Lin furent absorbés par la statue. Cela provoqua la libération d'une quantité phénoménale d'énergie démoniaque qui hurla à travers le ciel.
 
@@ -74,7 +74,7 @@ La flèche géante trembla une fois de plus et se rétracta rapidement. Finaleme
 
 En tenant l'arme, les yeux de Wang Lin s'illuminèrent. Il aperçut quatre runes sur la flèche. Elles étaient fines, s'étirant sur toute sa longueur et dégageant une lueur ténue.
 
-« Ces quatre runes sont liées à l'âme et peuvent décupler la puissance du projectile! À l'époque, Li Guang utilisa cette flèche pour tirer l'œil gauche de Ye Mo... Je me demande quelles âmes il a bien pu utiliser. » Wang Lin réfléchit un instant avant de porter sa main gauche à son front. Ses étoiles de Dieu Ancien apparurent et le Fourneau Impérial s'éleva.
+« Ces quatre runes sont liées à l'âme et peuvent décupler la puissance du projectile! À l'époque, Li Guang utilisa cette flèche pour abattre l'œil gauche de Ye Mo... Je me demande quelles âmes il a bien pu utiliser. » Wang Lin réfléchit un instant avant de porter sa main gauche à son front. Ses étoiles de Dieu Ancien apparurent et le Fourneau Impérial s'éleva.
 
 Dès que le gigantesque Fourneau Impérial apparut, il se mit à tourner lentement. Wang Lin pouvait clairement distinguer les âmes de deux individus à l'intérieur du four!
 

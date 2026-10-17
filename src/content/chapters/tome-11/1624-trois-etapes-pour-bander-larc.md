@@ -8,7 +8,7 @@ slug: trois-etapes-pour-bander-larc
 ---
 Cependant, aujourd'hui, il avait rencontré Wang Lin, celui qui avait compris l'essence du vrai et du faux!
 
-Wang Lin ne prit même pas les yeux ouverts. Au moment où le noyau du Maître Céleste Dieu du Vide tenta de s'échapper, et que le jeune homme en robe verte se mit à battre en retraite avec terreur après avoir vu le Maître Céleste Dieu du Vide être déchiqueté, Wang Lin leva sa main droite vers ses sourcils.
+Wang Lin n'ouvrit même pas les yeux. Au moment où le noyau du Maître Céleste Dieu du Vide tenta de s'échapper, et que le jeune homme en robe verte se mit à battre en retraite avec terreur après avoir vu le Maître Céleste Dieu du Vide être déchiqueté, Wang Lin leva sa main droite vers ses sourcils.
 
 Sur ce geste, une lumière dorée infinie jaillit et une goutte de sang doré perla entre les sourcils de Wang Lin. Il la saisit de la main droite.
 
@@ -30,7 +30,7 @@ Il y avait aussi le jeune homme en robe verte. S'échappant avec précipitation 
 
 Il y avait également les dizaines de milliers de cultivateurs qui fuyaient autour de la planète Suzaku. Ils étaient partis plus tôt et n'avaient pas été témoins de ce qui se passait près de la planète, mais à cet instant précis, ils ressentirent l'appel de la mort au plus profond de leurs âmes.
 
-« Je vais reprendre le Vide Brillant avec sa flèche! » Wang Lin garda les yeux fermés. Sa voix était d'un calme absolu. Il tira sur la corde et une flèche illusoire à pointe arrondie commença à prendre forme. Bientôt, elle devint une véritable flèche.
+« Je vais reprendre le Vide Brillant avec sa flèche! » Wang Lin garda les yeux fermés. Sa voix était d'un calme absolu. Il tira sur la corde et une flèche illusoire dont la pointe formait un anneau commença à prendre forme. Bientôt, elle devint une véritable flèche.
 
 Dès que la flèche apparut, la main droite de Wang Lin se détendit. Au moment où il lâcha prise, un vrombissement retentit. L'espace lui-même sembla trembler et s'effondrer lorsque la corde frappa la flèche. Toute la force fut transférée et la flèche jaillit!
 
@@ -44,7 +44,7 @@ S'il mourait, la mort serait définitive!
 
 Sans avoir le temps de réfléchir, la flèche se rapprocha instantanément. Le jeune homme en robe verte poussa un rugissement de détresse. Ses mains formèrent un sceau et il cracha une quantité massive de sang, faisant fi de l'état de son corps. Il rassembla toute l'essence dont il disposait, conscient qu'il faisait face à la fin de sa vie.
 
-Il ouvrit son Royaume de la Flamme Joss et en extrayait toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des milliards de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
+Il ouvrit son Royaume de la Flamme Joss et en extraya toutes ses âmes de Flamme Joss. Celles-ci fusionnèrent avec son sang pour former des centaines de milliers, des millions de couches de glace. En un instant, il créa un bloc de glace aussi vaste qu'une planète.
 
 C'est à ce moment précis que la flèche arriva. Dès qu'elle toucha la glace, celle-ci se désintégra immédiatement. Au centre, les yeux du jeune homme étaient empreints de désespoir. Il avait sacrifié sa propre marque de clan pour obtenir assez de puissance afin de tenter de résister!
 
@@ -76,7 +76,7 @@ Il en fut de même partout dans le Vide Brillant. À mesure que les ondulations 
 
 À la frontière entre le Vide Brillant et la Mer des Nuages, l'avatar du Maître Céleste Dieu du Vide reconstitua son corps. Son expression était sombre et ses yeux brillaient de peur alors qu'il regardait devant lui.
 
-« Qui peut le tuer quand il possède cette flèche?! Damnation, sans elle, je ne serais au plus mal que blessé, et ce n'est pas impossible de l'abattre. C'est juste... c'est juste que... pourquoi doit-il avoir cet arc et cette flèche!?! »
+« Qui peut le tuer quand il possède cette flèche?! Damnation, sans elle, je ne serais au pire que blessé, et ce n'est pas impossible de l'abattre. C'est juste... c'est juste que... pourquoi doit-il avoir cet arc et cette flèche!?! »
 
 « Souverain, c'est vous qui lui avez offert cet arc autrefois. Vous avez commis une erreur monumentale! Avec un tel arc, qui dans le Royaume Intérieur ou Extérieur peut l'affronter?! »
 
@@ -104,6 +104,6 @@ Et pas seulement lui; les milliers de cultivateurs du Royaume Intérieur étaien
 
 Situ Nan éclata de rire en observant Wang Lin au cœur du vortex, les yeux brillants d'exaltation.
 
-« Gloire au Seigneur du Royaume Scellé! » On ne sut qui parla le premier, mais bientôt, tout le monde suivit. Des milliers de cultivateurs poussèrent des cris d'allégresse. Derrière eux, la statue de Wang Lin sur la planète Suzaku semblait lever les yeux vers le ciel, comme s'il contemplait les cieux tels des fourmis!
+« Gloire au Seigneur du Royaume Scellé! » On ne sut qui parla le premier, mais bientôt, tout le monde suivit. Des milliers de cultivateurs poussèrent des cris d'allégresse. Derrière eux, la statue de Wang Lin sur la planète Suzaku semblait lever les yeux vers le ciel, comme s'il regardait le ciel et la terre tels des fourmis!
 
 Cependant, seul Wang Lin savait que sa rétribution divine, sa rétribution divine de la troisième étape, était sur le point d'arriver!

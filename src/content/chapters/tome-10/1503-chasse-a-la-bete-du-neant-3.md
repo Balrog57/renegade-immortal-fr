@@ -14,7 +14,7 @@ Au moment où il se retourna, un rugissement étouffé jaillit de la gueule de l
 
 La Bête des Limbes n'avait pas ouvert la bouche depuis des dizaines de milliers d'années!
 
-Pour elle, une simple fente représentait des milliers de pieds de large. Dès qu'elle s'ouvrit, le rugissement qu'elle semblait contenir depuis des millénaires jaillit avec une fureur déchaînée!
+Pour elle, une simple fente représentait mille pieds de large. Dès qu'elle s'ouvrit, le rugissement qu'elle semblait contenir depuis des millénaires jaillit avec une fureur déchaînée!
 
 ROAR!!!
 
@@ -30,7 +30,7 @@ La gueule de la Bête des Limbes s'ouvrit encore davantage: 10 000 pieds, 30 000
 
 Au sein du brouillard, l'expression de Wang Lin devint sombre. La brume environnante se dispersa frénétiquement sous l'effet du rugissement de la Bête des Limbes. En regardant autour de lui, il ne restait plus trace de brouillard.
 
-Même son corps était repoussé par le rugissement de la créature, et des bruits de déchirement se faisaient entendre dans sa propre chair. S'il n'avait pas été un Dieu Ancien à 7 étoiles et qu'il n'était pas un cultivateur ordinaire, il se serait effondré sous la puissance de ce cri.
+Même son corps était repoussé par le rugissement de la créature, et des bruits de déchirement se faisaient entendre dans sa propre chair. S'il n'avait pas été un Dieu Ancien à 7 étoiles, un cultivateur ordinaire se serait certainement effondré sous la puissance de ce cri.
 
 Tout en reculant, il agita la main et plus de dix Feuilles Anciennes apparurent. Elles ne scellèrent pas la gueule de la Bête des Limbes, mais entourèrent Wang Lin pour le protéger.
 
@@ -110,7 +110,7 @@ Il contenait les pouvoirs de Ling Dong et de Zhou Jin; c'était la puissance com
 
 Le feu aux neuf couleurs dans son œil gauche brûla et devint une tempête de flammes qui se fondit également dans ce coup de poing!
 
-Cette attaque était infiniment proche de la puissance totale d'un cultivateur au sommet du stade Vide du Nirvana! Elle approchait du second vide, le Vide Spirituel!
+Cette attaque était infiniment proche de la puissance totale d'un cultivateur du troisième stade au sommet du Vide du Nirvana! Elle approchait du second vide, le Vide Spirituel!
 
 Le coup percuta la gueule fantôme dans un fracas assourdissant. La Bête des Limbes rugit, et la gueule fantôme trembla, montrant des signes d'effondrement.
 
@@ -120,7 +120,7 @@ L'Estimé Ling Dong disparut le premier, englouti dans le royaume mystérieux à
 
 Peu après, ce fut au tour de Zhou Jin. Il disparut sous la puissance de l'aspiration!
 
-Leur disparition offrit un temps précieux à Wang Lin, car leurs Flammes Joss avaient bloqué la gueule un court instant! Cela permit à Wang Lin de s'immobiliser à l'intérieur de la bouche de l'âme de la Bête des Limbes!
+Leur disparition offrit un temps précieux à Wang Lin, car leurs Flammes Joss avaient bloqué pendant quelques respirations le royaume du trou noir à l'intérieur de la bête! Cela permit à Wang Lin de s'immobiliser à l'intérieur de la bouche de l'âme de la Bête des Limbes!
 
 Cette gueule fantôme était son âme et le point focal du sceau!
 

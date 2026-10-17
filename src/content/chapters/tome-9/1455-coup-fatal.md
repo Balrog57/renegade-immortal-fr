@@ -22,9 +22,9 @@ Au moment où la Grande Désolation cracha son sang, son corps original à l'ext
 
 Dans l'Ancienne Tombe, la Grande Désolation agita la main et l'énorme empreinte de paume chargea le Maître Dao Miao Yin. À cet instant, les cinq doigts changèrent soudainement de forme.
 
-L'index se transforma en un centipède noir aux longues moustaches. Son corps se tordait de manière extrêmement hideuse. Une fois apparu, il laissa échapper un rugissement.
+L'index se transforma en un centipède noir de mille pieds aux longues moustaches. Son corps se tordait de manière extrêmement hideuse. Une fois apparu, il laissa échapper un rugissement.
 
-Les quatre autres doigts scintillèrent simultanément pour se transformer en un serpent noir à corne, une immense araignée noire et une queue de scorpion massive semblant capable de briser le vide.
+Les quatre autres doigts scintillèrent simultanément pour se transformer en un serpent noir de mille pieds à corne, une immense araignée noire et une queue de scorpion massive semblant capable de briser le vide.
 
 Le pouce devint un crapaud à l'apparence terrifiante, dont le dos était couvert de protubérances exsudant un poison inimaginable.
 
@@ -34,37 +34,37 @@ Son visage devint jaune et noir, comme s'il pourrissait, dégageant une odeur f�
 
 Son visage était couvert de cicatrices et trois aiguilles transperçaient ses lèvres. Sous sa chevelure ébouriffée, ses yeux projetaient un regard d'une froideur infinie!
 
-« Il y a 40 000 ans, ce vieil homme a raffiné les trois Grands Célestes de la Désolation en aiguilles pour sceller mes lèvres. Afin de vous tuer aujourd'hui, je vais vous faire comprendre pourquoi je devais les garder scellées! Trois Célestes, libérez-vous! » rugit la Grande Désolation. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
+« Il y a 40 000 ans, ce vieil homme a raffiné les trois Immortels de la Grande Désolation en aiguilles pour sceller mes lèvres. Afin de vous tuer aujourd'hui, je vais vous faire comprendre pourquoi je devais les garder scellées! Trois Immortels, libérez-vous! » rugit la Grande Désolation. Les trois aiguilles qui apparurent lorsqu'il retrouva sa forme originale transpercèrent ses lèvres et furent projetées vers l'avant.
 
-Elles se transformèrent en trois rayons de lumière noire fonçant vers le Maître Dao Miao Yin!
+Elles se transformèrent en trois rayons de lumière noire fonçant vers le Maître Dao Miao Yin! Au même moment, les lèvres de Grande Désolation s'entrouvrirent légèrement!
 
 Alors que le Maître Dao Miao Yin reculait, il agita la main et les grondements dans l'air s'intensifièrent. En quelques instants seulement, ce son supplanta tout le reste au monde.
 
 Un océan violet apparut également devant lui, accompagné du fracas des vagues!
 
-La fusion de l'essence sonore et aquatique sous la forme d'un océan engendra le rugissement des mers, la voix de l'océan céleste! Le son fut amplifié des milliers de fois jusqu'à devenir assez puissant pour briser les cieux. Ce bruit fit s'effondrer le sceau qui retenait cette terre!
+La fusion de l'essence sonore et aquatique sous la forme d'un océan engendra le rugissement des mers, la voix du ciel, de la terre et de la mer! Le son fut amplifié des milliers de fois jusqu'à devenir assez puissant pour briser les cieux. Ce bruit fit s'effondrer le sceau qui retenait cette terre!
 
 Même les quelque cent cultivateurs au sol ne purent l'éviter. Tandis que l'océan rugissait, ils poussèrent des cris déchirants alors que leurs corps s'effondraient un à un.
 
 La terre scellée se désintégra et s'effondra instantanément. De vastes quantités de brouillard affluèrent pour fusionner avec l'océan.
 
-Wang Lin réagit très vite. Dès que le Maître Dao Miao Yin utilisa son sort, il rassembla tous les insectes moustiques. Il avança ensuite pour lancer une attaque en tenaille sur le Maître Dao Miao Yin aux côtés de la Grande Désolation!
+Wang Lin réagit très vite. Dès que le Maître Dao Miao Yin utilisa son sort, il rassembla toutes les bêtes moustiques. Il avança ensuite pour lancer une attaque en tenaille sur le Maître Dao Miao Yin aux côtés de la Grande Désolation!
 
-À cet instant, il chargea Miao Yin tandis que des éclats de lumière scintillaient autour de lui pour contrer les ondes sonores. Le tonnerre et le feu dans ses yeux brillaient pour compenser la puissance du rugissement océanique.
+À cet instant, il chargea Miao Yin tandis que des éclats de lumière scintillaient autour de lui pour contrer les ondes sonores. Le tatouage de tonnerre en flammes se plaça devant lui pour annuler le rugissement de la mer.
 
-« Monde Océanique! Ouvrez-vous! » rugit Miao Yin, tandis qu'une gigantesque faille de plusieurs centaines de pieds apparaissait derrière lui!
+« Monde des Gens de la Mer! Ouvre-toi! » rugit Miao Yin, tandis qu'une gigantesque faille de plusieurs centaines de milliers de pieds apparaissait derrière lui!
 
-C'était l'espace à l'intérieur de la faille, mais sans aucune planète. À la place, un océan violet grouillait d'innombrables formes de vie: toutes étaient les âmes de Flamme Joss du Maître Dao Miao Yin!
+À l'intérieur de la faille s'étendait un ciel étoilé, mais sans aucune étoile de cultivation. À la place, un océan violet grouillait d'innombrables formes de vie: toutes étaient les Gens de la Mer de Flamme Joss du Maître Dao Miao Yin!
 
-Alors qu'il utilisait son sort, le Maître Dao Miao Yin tendit la main derrière lui, multipliant par dix la taille de la faille. Celle-ci devint sans limites et s'étendit rapidement à partir de cette terre scellée en ruines!
+Alors qu'il utilisait son sort, le Maître Dao Miao Yin déchira violemment la faille de ses deux mains derrière lui, multipliant par dix sa taille. Celle-ci devint sans limites et s'étendit rapidement à partir de cette terre scellée en ruines!
 
-Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de plusieurs centaines de pieds. Des centaines de millions d'âmes de Flamme Joss jaillirent de la faille vers la Grande Désolation qui approchait.
+Le fracas des vagues était apocalyptique. À l'intérieur de la faille, l'océan créa une lame de fond haute de 100 000 pieds. Des centaines de millions d'âmes de Flamme Joss jaillirent de la faille vers la Grande Désolation qui approchait.
 
 Tout cela se produisit en un éclair. L'océan violet entra en collision avec les cinq poisons de la Grande Désolation sous le rugissement assourdissant des mers.
 
 Des grondements tonitruants résonnèrent frénétiquement et la terre scellée vola en éclats, transformant l'endroit en un fragment de la mer de brouillard. Le brouillard fut repoussé dans toutes les directions.
 
-La silhouette de la Grande Désolation était sur le point d'être submergée par l'océan violet lorsqu'un sifflement retentit. Une lumière noirâtre jaillit des lèvres de la Grande Désolation.
+La silhouette de la Grande Désolation était sur le point d'être submergée par l'océan violet lorsqu'un sifflement retentit. Une lumière violet-noir jaillit des lèvres de la Grande Désolation.
 
 C'était une langue!
 
@@ -122,11 +122,11 @@ Pourtant, malgré cela, l’esclave ancien fut frappé par l'onde de choc après
 
 Le sang jaillit de la bouche de Wang Lin et un rugissement résonna à ses oreilles. Le choc provoqué par Miao Yin le repoussa violemment. Sentant une douleur lancinante dans son âme originelle, il cracha du sang.
 
-Cependant, juste après avoir reculé de quelques pas, Wang Lin se força à s'arrêter. Une lueur glaciale traversa ses yeux et il s'élança en avant. Ignorant Miao Yin qui était projeté en arrière, il agita sa main droite. Le Fourneau de l'Empereur apparut et encercla l'océan noir.
+Cependant, juste après avoir reculé de quelques pas, Wang Lin se força à s'arrêter. Une lueur glaciale traversa ses yeux et il s'élança en avant. Ignorant Miao Yin qui était projeté en arrière, il agita sa main droite. Le Fourneau Impérial s'agrandit soudain jusqu'à plusieurs centaines de milliers de pieds et engloutit l'océan noir.
 
-Cet océan avait été empoisonné, dégageant une odeur nauséabonde. Les innombrables âmes des Flammes de Joss avaient déjà été imprégnées de poison, devenant des âmes empoisonnées incapables d'offrir leurs flammes.
+Cet océan avait été empoisonné, dégageant une odeur nauséabonde. Les innombrables âmes des Flammes Joss avaient déjà été imprégnées de poison, devenant des âmes empoisonnées incapables d'offrir leurs flammes.
 
-Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Grande Désolation ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau de l'Empereur, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
+Toutefois, cet océan de poison était un trésor extrêmement rare pour Wang Lin. Il devait le dérober avant que Grande Désolation ne s'en empare. Après l'avoir raffiné en une seule goutte grâce au Fourneau Impérial, il contiendrait un poison capable de menacer les cultivateurs du troisième niveau.
 
 Quant à Grande Désolation, malgré ses paroles mielleuses, comment Wang Lin pouvait-il lui faire confiance? Ils ne collaboraient que par intérêt mutuel.
 
@@ -138,17 +138,17 @@ L’âme de Grande Désolation poursuivit rapidement le Maître Dao Miao Yin. So
 
 Si Wang Lin avait enfoncé totalement les aiguilles, Miao Yin n'aurait eu que peu de moyens de résister; mais la situation était désormais différente. Les deux entités se livraient un combat acharné avec leurs sens divins à l'intérieur du corps de Miao Yin.
 
-Grâce à ce délai, Wang Lin put s'emparer de l'océan empoisonné. Sans hésiter, il traça un sceau de la main et, dans un rugissement, projeta l'intégralité de l'océan dans le Fourneau de l'Empereur.
+Grâce à ce délai, Wang Lin put s'emparer de l'océan empoisonné. Sans hésiter, il traça un sceau de la main et, dans un rugissement, projeta l'intégralité de l'océan dans le Fourneau Impérial.
 
-Le Fourneau de l'Empereur abritait d'innombrables royaumes, mais avec le niveau de culture de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
+Le Fourneau Impérial abritait d'innombrables royaumes, mais avec le niveau de culture de Wang Lin, il ne pouvait en ouvrir que deux. D'un geste, il assigna un royaume à l'océan empoisonné et l'autre à l'esclave ancien.
 
-À cet instant, alors que le Maître Dao Miao Yin et Grande Désolation se disputaient le contrôle du corps, la faille menant au Royaume des Flammes de Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
+À cet instant, alors que le Maître Dao Miao Yin et Grande Désolation se disputaient le contrôle du corps, la faille menant au Royaume des Flammes Joss commença à se refermer rapidement. Elle était sur le point de disparaître totalement.
 
-Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Grande Désolation précisément pour obtenir les Flammes de Joss de Miao Yin.
+Comment Wang Lin pouvait-il laisser ce royaume s'évanouir? Il s'était allié à Grande Désolation précisément pour obtenir les Flammes Joss de Miao Yin.
 
-Il ne pourrait pas utiliser ces flammes lui-même, mais l’esclave ancien Ling Dong était à un demi-pas du troisième niveau. Tant qu'il obtiendrait assez de Flammes de Joss, il pourrait devenir un véritable cultivateur du troisième niveau.
+Il ne pourrait pas utiliser ces flammes lui-même, mais l’esclave ancien Ling Dong était à un demi-pas du troisième niveau. Tant qu'il obtiendrait assez de Flammes Joss, il pourrait devenir un véritable cultivateur du troisième niveau.
 
-Une lueur de folie brilla dans les yeux de Wang Lin alors qu'il se précipitait vers le Royaume des Flammes de Joss. À l'intérieur, un vaste océan violet, encore pur, abritait d'innombrables âmes de flammes.
+Une lueur de folie brilla dans les yeux de Wang Lin alors qu'il se précipitait vers le Royaume des Flammes Joss. À l'intérieur, un vaste océan violet, encore pur, abritait d'innombrables âmes de flammes.
 
 C'était le trésor que Miao Yin avait collecté et volé au fil des ans; c'était le fondement même de son statut de l'un des cinq grands maîtres!
 
@@ -168,27 +168,27 @@ Le bras fut si rapide qu'il percuta instantanément le Maître Dao Miao Yin, le 
 
 En un éclair, la paume géante fondit sur Wang Lin. Ses cinq doigts ressemblaient à cinq piliers soutenant le monde, retombant brutalement vers lui.
 
-L'impact fut si violent qu'il fit cracher du sang à Wang Lin, mais il refusait de céder. Ce qui le tourmentait n'était pas seulement la paume qui l'écrasait, mais le fait que la faille vers le Royaume des Flammes de Joss se trouvait à moins de 1 000 pieds.
+L'impact fut si violent qu'il fit cracher du sang à Wang Lin, mais il refusait de céder. Ce qui le tourmentait n'était pas seulement la paume qui l'écrasait, mais le fait que la faille vers le Royaume des Flammes Joss se trouvait à moins de 1 000 pieds.
 
-La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miao Yin avec Grande Désolation lui serait volée.
+La faille ne mesurait plus que 10 000 pieds de long et allait bientôt disparaître. Si elle venait à s'évanouir, sa récompense pour avoir blessé Miao Yin avec Grande Désolation serait réduite à néant.
 
 Wang Lin venait d'utiliser le sort salvateur contenu dans son gantelet de Dieu Ancien; il ne pouvait pas s'en servir immédiatement. De plus, chaque usage endommageait l'artefact jusqu'à sa destruction.
 
 Voyant la paume approcher, Wang Lin n'eut pas le temps de réfléchir. Il serra les dents et poussa un rugissement vers les cieux. Ses yeux brûlaient de détermination tandis que son corps grandissait. En un instant, il atteignit des milliers de pieds de haut: son corps de Dieu Ancien apparut!
 
-Cette croissance soudaine créa une distance de 2 000 pieds entre lui et la paume géante, effaçant ainsi les 1 000 pieds qui le séparaient du Royaume des Flammes de Joss.
+Cette croissance soudaine le fit dépasser de plus de 2 000 pieds au sein de la paume géante qui se refermait, effaçant ainsi les 1 000 pieds qui le séparaient du Royaume des Flammes Joss.
 
 « Scelle! »
 
 Wang Lin rugit et, d'un geste de la main, projeta les deux Feuilles Anciennes pour sceller les bords de la faille. Cela força l'ouverture rétrécissante à se figer un instant.
 
-Profitant de cette pause, la main droite de Wang Lin jaillit comme une météorite dans le royaume pour y saisir impitoyablement d'innombrables âmes de Flammes de Joss.
+Profitant de cette pause, la main droite de Wang Lin jaillit comme une météorite dans le royaume pour y saisir impitoyablement d'innombrables âmes de Flammes Joss.
 
-Simultanément, la main surgie du brouillard agrippa la poitrine de Wang Lin. La douleur envahit son corps; la puissance de cette main semblait vouloir l'écraser totalement.
+Simultanément, la main surgie du brouillard agrippa Wang Lin sous la poitrine. La douleur envahit son corps; la puissance de cette main semblait vouloir l'écraser totalement.
 
 Au moment où le bras saisit Wang Lin, il s'enfonça brusquement, tentant d'entraîner Wang Lin et Grande Désolation — qui venait de réussir sa possession — vers les profondeurs de la mer de brouillard.
 
-Le bras était trop puissant. Wang Lin n'avait aucune prise et son bras allait être arraché du Royaume des Flammes de Joss. Alors qu'il allait être englouti, sa main droite s'agrippa soudainement au bord droit de la faille scellée par les Feuilles Anciennes. Sa main gauche s'étendit pour saisir le bord gauche. Sa puissance de Dieu Ancien jaillit avec une intensité folle alors qu'il se cramponnait aux parois de la faille.
+Le bras était trop puissant. Wang Lin n'avait aucune prise et son bras allait être arraché du Royaume des Flammes Joss. Alors qu'il allait être englouti, sa main droite s'agrippa soudainement au bord droit de la faille scellée par les Feuilles Anciennes. Sa main gauche s'étendit pour saisir le bord gauche. Sa puissance de Dieu Ancien jaillit avec une intensité folle alors qu'il se cramponnait aux parois de la faille.
 
 La scène était proprement hallucinante. De loin, elle aurait terrifié n'importe quel témoin: un Dieu Ancien de plusieurs milliers de pieds de haut s'agrippant à une faille spatiale comme s'il s'agissait d'un simple fragment.
 
@@ -196,9 +196,9 @@ Sous sa poitrine, une paume géante maintenait son corps et le tirait violemment
 
 Tandis qu'il était halé, une douleur atroce le traversa, comme s'il allait être déchiré en deux. Un bruit de déchirement retentit alors que la faille s'élargissait sous la force de traction exercée sur Wang Lin.
 
-L'océan violet infini et les innombrables âmes des Flammes de Joss furent révélés lorsque la faille s'ouvrit davantage. Une lueur de folie dans les yeux de Wang Lin, il ouvrit la bouche et inspira de toutes ses forces.
+L'océan violet infini et les innombrables âmes des Flammes Joss furent révélés lorsque la faille s'ouvrit davantage. Une lueur de folie dans les yeux de Wang Lin, il ouvrit la bouche et inspira de toutes ses forces.
 
-Il n'avait plus le choix: il devait emporter autant de Flammes de Joss que possible. À chaque inspiration, des milliers d'âmes volaient vers lui.
+Il n'avait plus le choix: il devait emporter autant de Flammes Joss que possible. À chaque inspiration, des milliers d'âmes volaient vers lui.
 
 Le corps de Wang Lin était tel un gouffre sans fond aspirant ces âmes.
 
@@ -206,15 +206,15 @@ Il aspira 10 % des âmes en une seule fois, tandis que son corps sombrait de diz
 
 Cependant, ses mains agrippées au bord de la faille empêchaient celle-ci de se dissiper. Elle fut étirée sur des dizaines de milliers de pieds pendant que Wang Lin était entraîné vers le bas.
 
-« Fourneau de l'Empereur! »
+« Fourneau Impérial! »
 
-Au moment où la faille s'élargit, Wang Lin poussa un rugissement et la majeure partie du Fourneau de l'Empereur pénétra dans le Royaume des Flammes de Joss. Un royaume à l'intérieur du fourneau s'ouvrit et commença une absorption frénétique.
+Au moment où la faille s'élargit, Wang Lin poussa un rugissement et la majeure partie du Fourneau Impérial pénétra dans le Royaume des Flammes Joss. Un royaume à l'intérieur du fourneau s'ouvrit et commença une absorption frénétique.
 
 D'immenses quantités d'océan violet se précipitèrent dans le Fourneau, accompagnées d'innombrables âmes de flammes. Le Fourneau absorba ainsi 20 % supplémentaires du royaume du Maître Dao Miao Yin.
 
-Ces 20 % d'océan violet remplirent le Fourneau de l'Empereur, qui ne put plus rien absorber de plus.
+Ces 20 % d'océan violet remplirent le Fourneau Impérial, qui ne put plus rien absorber de plus.
 
-Tout se déroula en un instant. Wang Lin endura la douleur fulgurante dans son corps et finit par lâcher prise. Le Fourneau de l'Empereur se transforma alors en un rayon de lumière et disparut entre les sourcils de Wang Lin. Il récupéra également les deux Feuilles Anciennes.
+Tout se déroula en un instant. Wang Lin endura la douleur fulgurante dans son corps et finit par lâcher prise. Le Fourneau Impérial se transforma alors en un rayon de lumière et disparut entre les sourcils de Wang Lin. Il récupéra également les deux Feuilles Anciennes.
 
 Son corps fut rapidement entraîné vers le fond de la mer de brouillard par le bras géant. Le brouillard tourbillonnant se rassembla de toutes parts, comblant le vortex créé par le mouvement du bras.
 

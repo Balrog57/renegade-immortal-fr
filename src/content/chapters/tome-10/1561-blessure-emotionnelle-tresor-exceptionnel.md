@@ -12,7 +12,7 @@ slug: blessure-emotionnelle-tresor-exceptionnel
 
 « Que veut-il de mon Senior Frère Qing Shui?! » Les yeux de Wang Lin brillèrent. Plus il réfléchissait, plus il sentait que quelque chose clochait. Soudain, une pensée lui traversa l'esprit. Il se souvint de l'épine qui avait transpercé la tête de Qing Shui, mais qui était décalée de plusieurs pouces!
 
-« La zone entre les sourcils est le carrefour de la vie et de la mort, mais l'épine était décalée de plusieurs pouces. La figure aux sept couleurs a dit que cela ouvrirait la réincarnation... La réincarnation... La réincarnation est éthérée. Le but de cette figure serait-il de permettre au Senior Frère Qing Shui d'entrer dans le cycle de la réincarnation grâce à l'essence de massacre... Mais même ainsi, à quoi bon... »
+« Le sommet du crâne est le carrefour de la vie et de la mort, mais l'épine était décalée de plusieurs pouces. La figure aux sept couleurs a dit que cela ouvrirait la réincarnation... La réincarnation... La réincarnation est éthérée. Le but de cette figure serait-il de permettre au Senior Frère Qing Shui d'entrer dans le cycle de la réincarnation grâce à l'essence de massacre... Mais même ainsi, à quoi bon... »
 
 « Il y avait aussi cette remarque où il affirmait être certain que je n'avais aucun lien avec lui. Cela signifie-t-il qu'il existe un lien entre lui et le Senior Frère Qing Shui...? Si c'est le cas, quelle est cette connexion... » Plus Wang Lin réfléchissait, plus il avait l'impression de toucher au but, tout en restant dans le flou.
 
@@ -74,7 +74,7 @@ Il regarda la femme s'éloigner lentement à travers ses bras, comme si une forc
 
 Sa femme, Han Yan! Pour récupérer les appartenances de son épouse, il avait détruit tout le Royaume du Massacre. Son amour pour elle était son monde, sa joie, mais aussi la source de toute sa souffrance.
 
-Sa femme était apparue parce qu'il avait ouvert la Porte du Vide et complété son essence de massacre. Mais voyant qu'elle allait disparaître une fois de plus, il poussa un cri déchirant. Il s'élança en avant, voulant capturer l'âme de sa femme!
+Sa femme était apparue parce qu'il avait ouvert la Porte du Vide et complété son essence de massacre. Mais voyant qu'elle allait disparaître une fois de plus, elle dont l'image était gravée dans son cœur depuis des dizaines de milliers d'années, il poussa un cri déchirant. Il s'élança en avant, voulant capturer l'âme de sa femme!
 
 Même s'il n'atteignait pas la troisième étape, même s'il devait tout sacrifier, il garderait cette âme! Même si elle était incomplète, même s'il ne s'agissait que d'une faible projection créée par la Porte du Vide...
 

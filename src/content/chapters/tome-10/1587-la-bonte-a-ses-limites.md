@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1587 - Kindness Ends!"
 slug: la-bonte-a-ses-limites
 ---
-Lorsque l'ombre de sang jaillit du puits, une brèche béante apparut dans le sceau.
+Le sceau du Système Stellaire Antique, semblable à Pêcher la Lune dans le Puits, fut percuté par l'ombre de sang écarlate libérée du royaume souterrain, qui éclata de rire. Une brèche béante apparut dans le sceau.
 
 Dès que l'ouverture se forma, le monde infini commença à trembler. D'innombrables fissures se propagèrent depuis ce point central. De loin, le spectacle était terrifiant.
 
 Alors que les déchirures lacéraient le ciel, d'innombrables failles apparaissaient également à la surface de l'eau. Le monde entier tremblait violemment, comme s'il était sur le point de s'effondrer.
 
-Un fou surgit du ciel. Maître Âme Écarlate ne daigna même pas regarder en bas. Après avoir éventré le ciel, il éclata d'un rire avant de s'envoler.
+Un rire dément retentit depuis le ciel. Maître Âme Écarlate ne daigna même pas regarder en bas. Après avoir éventré le ciel, il éclata d'un rire avant de s'envoler.
 
 « Petit gamin, tu portes sur toi l'aura ancienne. Ce vieil homme devrait te tuer, mais puisque tu m'as libéré, nous sommes quittes. Haha, ce vieux fou est enfin libre! » La voix de Maître Âme Écarlate résonna, et nul ne pouvait l'empêcher de partir. Même le Souverain affichait une expression grave en regardant Maître Âme Écarlate disparaître peu à peu.
 
@@ -54,7 +54,9 @@ Ces pensées traversèrent l'esprit de Wang Lin alors qu'il fonçait vers la br�
 
 À l'instant même où le trou apparut, toute l'aura intérieure jaillit vers l'extérieur.
 
-Le monde, autrefois dissimulé, ne pouvait plus rester caché une fois cette brèche ouverte. Instantanément, elle fut ressentie par les divers cultivateurs du troisième niveau du Royaume Intérieur!
+C'était comme dans une maison de mortels plongée dans la nuit, toute noire à l'intérieur: le maître dormait et un voleur s'agitait dans l'ombre, quand soudain les lampes s'allumaient et éclairaient tout avec netteté.
+
+Ce lieu de mise à mort, autrefois dissimulé aux puissants du Royaume Intérieur, ne pouvait plus rester caché une fois cette brèche ouverte. Instantanément, elle fut ressentie par les divers cultivateurs du troisième niveau du Royaume Intérieur!
 
 Dans la Mer des Nuages, Maître Hong Shan était en train de raffiner le cultivateur du troisième niveau capturé dans le Royaume aux Sept Couleurs au sein de la Rivière Invoquée. Il venait de remarquer une anomalie dans l'âme lorsqu'il leva soudainement les yeux vers l'horizon. Son expression changea radicalement.
 

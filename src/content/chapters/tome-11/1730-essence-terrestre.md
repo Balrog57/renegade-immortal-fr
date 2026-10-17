@@ -6,15 +6,15 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1730 - Earth essence!"
 slug: essence-terrestre
 ---
-Parmi les quatre individus, il y avait un vieil homme vêtu d'une robe taoïste. Son visage était parsemé de taches brunes et, après avoir hésité un instant, il prit la parole d'une voix rauque: « Cette affaire... Devrions-nous en informer le Grand Ancien Na Duo? »
+Parmi les quatre individus, il y avait un vieil homme vêtu d'une robe taoïste. Son visage était parsemé de taches brunes et, après avoir hésité un instant, il prit la parole d'une voix rauque: « Cette affaire... Devrions-nous en informer l'Ancien Na Duo? »
 
 Il s'agissait de Yin Dongshen, celui qui redoutait le plus Wang Lin.
 
-Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils et dit lentement: « Je suggère également de ne pas provoquer ce Wang Lin avant d'en informer le Grand Ancien Na Duo. Sa réputation est immense, et depuis qu'il est venu nous rendre visite, si nous... »
+Le dernier à prendre la parole fut l'homme d'âge mûr. Il fronça les sourcils et dit lentement: « Je suggère également de ne pas provoquer ce Wang Lin avant d'en informer l'Ancien Na Duo. Sa réputation est immense, et depuis qu'il est venu nous rendre visite, si nous... »
 
 « Quand notre Secte Gui Yi a-t-elle jamais eu peur de qui que ce soit? Même si ce Wang Lin est célèbre, et alors? Même s'il était un dragon, il devrait encore se prosterner devant nous! » s'écria la femme d'âge mûr.
 
-Le vieil homme en robe noire agita sa manche et dit froidement: « Inutile de discuter, cet ancien a pris sa décision. De plus, cela ne signifie pas que le Grand Ancien Na Duo ignore tout de cette affaire. Puisqu'il n'est pas sorti, voyons quel genre de démon à trois têtes et six bras est ce Wang Lin! »
+Le vieil homme en robe noire agita sa manche et dit froidement: « Inutile de discuter, cet ancien a pris sa décision. De plus, cela ne signifie pas que l'Ancien Na Duo ignore tout de cette affaire. Puisqu'il ne l'a pas empêché, voyons quel genre de démon à trois têtes et six bras est ce Wang Lin! »
 
 D'un revers de manche, l'espace entre les quatre se déforma et un miroir apparut. Le miroir révélait Wang Lin, qui marchait vers l'intersection des cinq anneaux!
 
@@ -24,7 +24,7 @@ Si Wang Lin avait été là, il aurait immédiatement reconnu cette personne: c'
 
 Les années n'avaient laissé aucune trace sur le corps de Na Duo; il paraissait toujours identique à autrefois. Fixant le ciel, Na Duo esquissa un sourire.
 
-« À l'époque, il n'était qu'un simple cultivateur de l'Âme Naissante. Après seulement mille ans, il a atteint des sommets tels... Que même moi, je ne suis plus son égal. »
+« À l'époque, il n'était qu'un simple cultivateur de l'Âme Naissante. En un peu plus de mille ans, il a atteint des sommets tels... Que même moi, je ne suis plus son égal. »
 
 « Je ne suis pas non plus son égal, mais après tout, qu'importe? Nous ne sommes que leurs descendants; veiller sur ce lieu est amplement suffisant. » L'homme d'âge mûr assis face à Na Duo portait du violet. Il était très beau et, après avoir entendu les paroles de Na Duo, il rit.
 
@@ -36,7 +36,7 @@ L'homme d'âge mûr sourit également. Il regarda vers l'extérieur de la tour e
 
 À l'intérieur des cinq anneaux, Wang Lin avançait calmement. Les anneaux émettaient des hurlements tonitruants, mais rien de tout cela ne pouvait blesser Wang Lin.
 
-Son Corps du Dao Antique était extrêmement puissant; de simples sorts ne pourraient l'atteindre. Les cinq éléments continuaient de se manifester. Parfois, c'était un feu monstrueux, parfois une tempête de sable, tantôt une mer en furie couvrait le ciel, parfois des milliers de fragments de métal hurlaient, et parfois des arbres s'effondraient avec fracas.
+Son Corps du Dao Antique était extrêmement puissant; de simples sorts ne pourraient l'atteindre. Les cinq éléments continuaient de se manifester. Parfois, c'était un feu monstrueux, parfois une tempête de sable, tantôt une mer en furie couvrait le ciel, parfois des milliers de fragments de métal hurlaient, et parfois des esprits du bois se jetaient sur lui en grondant.
 
 Wang Lin ne ralentit pas sa marche. Il était venu sur la planète des Cinq Éléments pleinement préparé. Même si cet endroit était un repaire de tigres, il comptait bien tenter une percée!
 
@@ -68,7 +68,7 @@ La terre sous les pieds de Wang Lin trembla et ondula comme une vague, comme si 
 
 Des grondements tonitruants résonnaient à ses oreilles alors qu'il observait la scène avec un calme glacial.
 
-« Un simple esprit des cinq éléments, indigne d'être reconnu! » Wang Lin fit un pas en avant pour affronter l'un des visages. Alors que celui-ci rugissait, Wang Lin lui asséna un coup de poing.
+« Un simple esprit de formation des cinq éléments, ce Wang ne le prend même pas en considération! » Wang Lin fit un pas en avant pour affronter l'un des visages. Alors que celui-ci rugissait, Wang Lin lui asséna un coup de poing.
 
 Le visage s'effondra dans un fracas et une masse de terre vola autour de lui. Wang Lin bougea soudainement pour atteindre le second visage et lui porta un autre coup.
 
@@ -98,7 +98,7 @@ Elle s'était transformée en une simple poignée de terre!
 
 Cette petite masse dégageait une puissante aura spirituelle. C'était l'esprit de la formation terrestre!
 
-Les quatre restèrent silencieux, plongés dans leur réflexion, avant que le vieil homme en robe noire ne suffoque, les yeux emplis de terreur. Il regarda, hébété, Wang Lin tenir cette poignée de terre et la repousser d'un geste. Lorsque Wang Lin leva les yeux vers lui, l'homme poussa un cri involontaire.
+Les quatre restèrent silencieux, plongés dans leur réflexion, avant que le vieil homme en robe noire ne suffoque, les yeux emplis de terreur. Il regarda, hébété, Wang Lin refermer la main sur cette poignée de terre, qui disparut. Lorsque Wang Lin leva les yeux vers lui, l'homme poussa un cri involontaire.
 
 Il n'était pas le seul. Dès que le regard de Wang Lin balaya la zone, la femme et les deux autres sentirent leur cuir chevelu picoter. Ils reculèrent immédiatement.
 
@@ -112,7 +112,7 @@ L'homme d'âge mûr face à lui murmura: « S'il s'était contenté de briser la
 
 « Ce n'est rien, il reste encore quatre formations. Et après elles, les Neuf Cycles. Je veux voir comment il parviendra à les franchir! » Le regard de Na Duo devint froid. Lui et Wang Lin ne pouvaient être considérés comme des amis; au mieux, ils étaient des connaissances, et tout lien qu'ils avaient partagé s'était dissipé au fil des mille dernières années.
 
-À cet instant, personne dans le monde de la grotte ne remarqua qu'une lueur rouge sang était apparue dans le Vide Brillant. Cette lueur se mua en un jeune homme aux cheveux noirs.
+À cet instant, personne dans le Monde des Grottes ne remarqua qu'une lueur rouge sang était apparue dans le Vide Brillant. Cette lueur se mua en un jeune homme aux cheveux noirs.
 
 Vêtu d'une robe noire, le jeune homme scruta l'horizon et esquissa un sourire joyeux.
 

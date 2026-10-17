@@ -18,13 +18,13 @@ Grâce à un seul sort, Qing Shui avait reconnu Wang Lin comme un frère cadet d
 
 Bai Fan était un étranger pour Wang Lin et celui-ci ne le reconnaissait pas comme son maître. Cependant, dans son cœur, Wang Lin considérait Qing Shui comme son frère aîné... son frère pour la vie!
 
-La vie de Qing Shui avait été tragique; il n'avait connu que l'amertume. Sa femme était morte par sa main et tous ses proches avaient été massacrés par lui durant sa folie. Finalement, Bai Fan l'avait scellé. Le maître qu'il respectait était mort, mais le sceau l'avait maintenu en vie.
+La vie de Qing Shui avait été tragique; il n'avait connu que l'amertume. Sa femme était morte par sa main et tous ses proches avaient été massacrés par lui durant sa folie. Finalement, Bai Fan l'avait scellé, mais son maître, pris de pitié, avait conservé son âme : malgré le sceau, une chance de survie subsistait.
 
 Pourtant, cela n'avait fait qu'accentuer la douleur de Qing Shui. À mesure que ses souvenirs refaisaient surface, il sombra dans une folie totale.
 
 Fou de chagrin! Il avait connu la dévastation dès sa jeunesse. Prince du pays de Qing Shui, traqué par des assassins, il avait éveillé son Royaume Ji face au désespoir et à la tristesse. Puis, il était retourné dans son pays natal, animé d'une haine monstrueuse et d'une intention meurtrière sans égale!
 
-Cette nuit-là, des rivières de sang coulèrent dans le pays de Qing Shui! De nombreux cultivateurs périrent!
+Cette nuit-là, des rivières de sang coulèrent dans le pays de Qing Shui! Tous les cultivateurs périrent!
 
 Il avait obtenu sa vengeance, mais la joie s'était envolée de son existence. Il ne vivait plus que pour tuer, tuer et encore tuer! Son intention meurtrière était terrifiante et, à force de massacres, il finit par pénétrer dans le Royaume Céleste du Tonnerre!
 
@@ -54,7 +54,7 @@ Ayant appris que Qing Shui était encore en vie, Wang Lin n'avait plus de patien
 
 Des grondements tonitruants éclatèrent, puis le bras droit massif de la planète de culture s'effondra, projetant d'innombrables fragments dans toutes les directions.
 
-Wang Lin marqua une pause pour reprendre son souffle. À cet instant, le bras gauche de la planète fondit sur lui.
+Le corps de Wang Lin marqua une brève pause, mais retrouva aussitôt son état normal. À cet instant, le bras gauche de la planète fondit sur lui.
 
 « Dégage! » Un éclair doré jaillit des yeux de Wang Lin alors qu'il lançait son attaque. Un éclair de tonnerre doré, enveloppé de flammes d'or, percuta le bras gauche de la planète.
 
@@ -64,7 +64,7 @@ Rien ne semblait pouvoir arrêter Wang Lin ni sa détermination à sauver Qing S
 
 C'est alors que les yeux du vieil homme brillèrent. Il leva les mains, exécuta un sceau complexe, puis les referma avant de les ouvrir brusquement.
 
-Dès l'apparition du sceau, la planète entière trembla et le sol se déroba. D'innombrables montagnes s'effondrèrent tandis que deux immenses chaînes de montagnes s'élevaient lentement. De loin, ces deux reliefs paraissaient rectilignes et s'étendaient sur des dizaines de milliers de kilomètres, parallèles l'un à l'autre!
+Dès l'apparition du sceau, la planète entière trembla et le sol se déroba. D'innombrables montagnes s'effondrèrent tandis que deux immenses chaînes de montagnes s'élevaient lentement. De loin, ces deux reliefs paraissaient rectilignes et se dressaient, parallèles, à des dizaines de milliers de kilomètres l'une de l'autre!
 
 Ils ressemblaient à deux branches; si un parchemin avait été placé entre elles, on aurait dit une peinture déployée!
 
@@ -98,11 +98,11 @@ L'empreinte la plus authentique, activée par Wang Lin grâce à sa lignée cél
 
 Le corps céleste, semblable à une âme originelle logée dans le corps de Wang Lin, déversa une quantité massive d'énergie spirituelle céleste dans son bras droit. Cela permit à l'Empreinte de l'Esprit Guerrier d'être saturée d'une puissance divine!
 
-L'apparition d'une énergie aussi pure dans le Système Stellaire du Vide Brillant revenait à verser une goutte d'eau dans de l'huile bouillante: l'explosion était inévitable! Depuis la naissance du système, une telle pureté n'avait jamais été observée!
+L'apparition d'une énergie aussi pure dans le Système Stellaire du Vide Brillant revenait à verser une goutte d'huile bouillante dans de l'eau claire: l'explosion était inévitable! Depuis la naissance du système, une telle pureté n'avait jamais été observée!
 
-Dès que l'Empreinte apparut, cette énergie déclencha une onde de choc monstrueuse qui stupéfia de nombreuses personnes, les plongeant dans l'incrédulité!
+Dès que l'Empreinte apparut, cette énergie déclencha une onde de choc monstrueuse qui stupéfia quelques personnes, les plongeant dans l'incrédulité!
 
-Dans la Rivière Invoquée, bien qu'elle soit tombée dans le royaume extérieur, un jeune homme sans aucune marque entre les sourcils marchait d'un pas nonchalant.
+Dans la Rivière Invoquée, bien qu'elle soit tombée dans le royaume extérieur, dans les profondeurs du nord, un jeune homme sans aucune marque entre les sourcils marchait d'un pas nonchalant, calculant sur ses doigts.
 
 « Ah, où est passé cet endroit dont parlait Maître-Oncle Ma? Pourquoi est-ce si difficile à trouver... Il devrait être par ici, mais je ne vois toujours pas l'entrée... » murmura le jeune homme, avant que son expression ne change radicalement. Un tel changement n'était jamais apparu sur son visage depuis son arrivée dans le Royaume Intérieur!
 

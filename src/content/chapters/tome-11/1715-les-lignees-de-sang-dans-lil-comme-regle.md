@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1715 - Blood Lines in the Eye as the Rule
 slug: les-lignees-de-sang-dans-lil-comme-regle
 ---
-Qu'étaient les règles? Peu de gens s'en préoccupaient probablement. Et puis, quelle était la distinction avec les lois? C'était une question sur laquelle les hommes méditaient depuis des millions d'années sans jamais trouver de réponse.
+Qu'étaient les règles? Peu de gens, sans doute, pouvaient l'expliquer clairement. Et quelle était la distinction avec les lois? C'était une question sur laquelle les hommes méditaient depuis des millions d'années sans jamais trouver de réponse.
 
 C'était un sujet qui déconcertait même Wang Lin. Parfois, il pensait avoir enfin compris, mais la plupart du temps, il ne faisait que réfuter ses propres hypothèses.
 
 Règles, lois, formation du monde. Telle était l'actuelle spéculation de Wang Lin.
 
-Qu'étaient le ciel et la terre? Les cieux et la terre du monde des cavernes étaient le Dao Céleste. Qu'est-ce qui permettait à celui-ci de déterminer les règles et les lois de ce monde et d'en être l'origine?
+Qu'étaient le ciel et la terre? Les cieux et la terre du monde des cavernes étaient le Dao Céleste. Mais qu'était le Dao Céleste, que l'on dise « il », « elle » ou « cela », pour pouvoir déterminer les règles et les lois, et comment les avait-il fait naître?
 
 Wang Lin ne comprenait pas. Bien que son essence de la bataille ait formé une nouvelle loi, il ignorait encore sa véritable nature. Il savait seulement que, qu'il s'agisse de lois ou de règles, elles étaient intangibles. Cependant, si elles devenaient tangibles, elles se manifesteraient sous forme de lignes s'entremêlant autour de toute chose.
 
@@ -32,7 +32,7 @@ Au cours de ces jours de compréhension, il n'étudiait pas la différence entre
 
 Pour réussir, ces lignes devraient devenir une partie intégrante de son corps!
 
-Il avait ouvert le Voile Fantôme et, alors qu'il était entouré d'innombrables restrictions, une idée lui vint: utiliser les veines sanguines de ses yeux!
+Il avait tranché le Voile Fantôme d'un coup d'épée pour l'ouvrir et, à l'instant où il s'était retrouvé entouré d'innombrables restrictions, une idée lui vint: utiliser les veines sanguines de ses yeux!
 
 Les vaisseaux sanguins de ses yeux deviendraient les lignes des règles du monde. Après avoir fusionné avec toutes les restrictions, ses yeux deviendraient semblables au ciel et à la terre. Ses yeux seraient l'essence même de la restriction, et ses pensées deviendraient la volonté des règles de ce monde!
 
@@ -68,7 +68,7 @@ Wang Lin leva la main droite et saisit délicatement un élément invisible. Le 
 
 Au moment où il s'en saisit, un bloc de glace glaciale apparut au loin. Il surgit si soudainement qu'il figea instantanément la zone.
 
-Lorsque Wang Lin relâcha la ligne, la glace au loin se brisa et vola en éclats dans toutes les directions.
+Lorsque Wang Lin relâcha la ligne, la glace au loin se brisa et vola en éclats dans toutes les directions. Un immense bloc de glace fonça vers Wang Lin, mais se dissipa sans laisser de trace à cent pieds devant lui.
 
 L'expression de Wang Lin resta impassible tandis que sa main droite saisissait une autre ligne. Au loin, l'espace s'effondra soudainement pour former un trou noir. Ce dernier libéra une puissante force d'aspiration qui engloutit la poussière environnante.
 
@@ -76,7 +76,7 @@ Après un long moment, Wang Lin ferma les yeux. Lorsqu'il les rouvrit, sa main d
 
 Un œil, un Dao!
 
-Cette lignée sanguine était la synthèse de toutes les autres. Elle n'était pas verticale comme la pupille d'un python, mais horizontale, traversant la pupille de Wang Lin. La lumière rouge se propagea et se concentra à l'extrémité du doigt de Wang Lin. L'éclat devint de plus en plus intense jusqu'à devenir une lumière de restriction écarlate et fantomatique.
+Cette lignée sanguine était la synthèse de toutes les autres. Elle n'était pas verticale comme la pupille d'un python, mais horizontale, traversant la pupille de Wang Lin. La lumière rouge se propagea et se concentra à l'extrémité du doigt de Wang Lin. L'éclat devint de plus en plus intense et sa couleur passa de l'écarlate à la lumière spectrale d'une restriction.
 
 Après un long moment, Wang Lin abaissa sa main droite et pointa vers l'avant. Un éclat spectral jaillit et une longue épée commença lentement à prendre forme devant lui.
 
@@ -104,11 +104,11 @@ Wang Lin secoua la tête en silence. Il rangea le Voile Fantôme et s'éloigna.
 
 « Il reste encore beaucoup à faire, et il me faudra du temps pour étudier l'illusion sur cette voile... Cependant, il est temps de quitter cet endroit. » Les cheveux blancs de Wang Lin flottèrent alors qu'il quittait progressivement les lieux.
 
-Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint huit étoiles, il avait atteint le stade avancé du Vide Spirituel, il avait obtenu le Voile Fantôme pour commander le navire, et il avait même noué une alliance avec Fen Shanlu.
+Le voyage de Wang Lin fut fructueux. Ses corps du Dao Ancien avaient atteint huit étoiles, il avait atteint le stade avancé du Vide Spirituel, il avait obtenu le Voile Fantôme pour commander le navire, et il avait même noué une alliance avec Fan Shanlu.
 
-Plus important encore, il avait découvert une méthode pour rechercher la troisième âme.
+Plus important encore, il avait entrevu, chez le Daoïste aux Sept Couleurs, une méthode pour rechercher la troisième âme.
 
-Au même moment, sur le Continent Astral Immortel, au sein des terres célestes, une bataille rare faisait rage dans les cieux. Elle était si difficile à détecter que les cultivateurs en dessous n'avaient pas le niveau requis pour la percevoir. Pour la plupart d'entre eux, le ciel était simplement resté brumeux durant ce mois, avec un brouillard semblant tourbillonner sans fin.
+Au même moment, sur le Continent Astral Immortel, au sein des terres célestes, une bataille rare faisait rage dans les cieux. Elle était si difficile à détecter que les cultivateurs en dessous n'avaient pas le niveau requis pour la percevoir. Pour la plupart d'entre eux, le ciel était simplement resté brumeux durant ces derniers mois, avec un brouillard semblant tourbillonner sans fin.
 
 « Xuan Luo, tu es bien plus faible qu'autrefois. L'heure de ta réincarnation doit avoir sonné... Je ne sais pas si tu as trouvé un gardien. Si ce n'est pas le cas, je peux t'en offrir un. »
 

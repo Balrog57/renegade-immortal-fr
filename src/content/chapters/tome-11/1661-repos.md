@@ -16,11 +16,11 @@ Cette amulette avait été raffinée par son maître au moment de sa mort et fus
 
 Elle avait gardé ce trésor sur elle en permanence, mais même lorsque son avatar mourut, elle ne l'utilisa pas. Aujourd'hui, elle s'en était servie pour sauver sa vie.
 
-Quant à Wang Lin, à cet instant, son aura était instable. Bien qu'il possédât le corps de Dieu Ancien, il avait subi de graves blessures. Ces blessures provenaient du moment où il avait tué la concubine impériale céleste, dont il ignorait même le nom et le rang. Elles résultaient également de l'utilisation du Fourneau Impérial pour réprimer le vieil homme en noir et l'autre concubine impériale céleste.
+Quant à Wang Lin, à cet instant, son aura était instable. Bien qu'il possédât le corps de Dieu Ancien, il avait subi de graves blessures. Ces blessures provenaient du moment où il avait tué la concubine impériale céleste, dont il ignorait même le nom et le rang. Elles résultaient également de l'utilisation du Fourneau de l'Empereur pour réprimer le vieil homme en noir et l'autre concubine impériale céleste.
 
 Mais le pire fut la fusion des trois roues d'essence en une formation capable de modifier les lois mêmes du monde. La création de cette roue avait puisé dans la quasi-totalité de ses forces, et achever le quatrième tour l'avait laissé épuisé.
 
-Bien qu'il fût au stade intermédiaire du Vide Spirituel, une telle charge l'exténuait profondément.
+Bien que sa culture, une fois devenu un cultivateur du troisième niveau, fût montée d'un coup au stade intermédiaire du Vide Spirituel, une telle charge l'exténuait profondément.
 
 À présent, son visage était livide, dénué de tout sang, et il ne paraissait plus aussi puissant qu'auparavant. On aurait dit que la moindre brise pouvait le terrasser. Pourtant, son regard restait empreint d'une détermination froide.
 
@@ -34,13 +34,13 @@ Tout ceci n'était que la première étape.
 
 La véritable calamité atteindrait son apogée au cours des trois prochaines années, ou juste après. Cet événement pourrait anéantir totalement les Royaumes Intérieur et Extérieur.
 
-Après tout, du point de vue de ces êtres du Continent Astral Immortel, même si tous les habitants de la grotte mouraient, cela n'aurait aucune importance. Tant que le Dao Céleste subsisterait, des êtres sensibles apparaîtraient. Puis, après des millions d'années, d'innombrables formes de vie surgiraient, et parmi elles, des cultivateurs du troisième niveau lutteraient pour accroître leur puissance!
+Après tout, du point de vue de ces êtres du Continent Astral Immortel, même si tous les habitants de la grotte mouraient, cela n'aurait aucune importance. Tant que le Dao Céleste subsisterait, des êtres sensibles apparaîtraient. Puis, après cent millions d'années, d'innombrables formes de vie surgiraient, et parmi elles, des cultivateurs du troisième niveau lutteraient pour accroître leur puissance!
 
 Cependant, Wang Lin n'était pas disposé à laisser faire une telle chose. Il avait son propre plan, une idée folle. L'esprit ainsi occupé, il poussa la roue des trois essences à travers le système stellaire.
 
 Derrière lui, Mu Bingmei regarda la silhouette de Wang Lin s'éloigner et mordit sa lèvre inférieure. Ses yeux ne reflétaient plus de sentiments complexes, seulement une certaine confusion. Après un long moment, elle baissa la tête, tandis que les paroles de Wang Lin résonnaient encore en elle.
 
-« Bien qu'elle ne soit pas ma femme, elle est la mère de mon fils, Wang Ping... » Mu Bingmei leva son beau visage et la confusion dans ses yeux se dissipa, remplacée par une résolution farouche. Elle s'élança dans les airs telle un magnifique phénix bleu et partit à la poursuite de Wang Lin.
+« Bien qu'elle ne soit pas ma femme, elle est la mère de mon fils, Wang Ping... » Mu Bingmei leva son beau visage et la confusion dans ses yeux se dissipa, remplacée par une résolution farouche. Elle s'élança dans les airs tel un magnifique phénix bleu et partit à la poursuite de Wang Lin.
 
 Au loin, l'âme originelle de Qing Shui revint et il ouvrit les yeux. Il regarda la femme en rose à ses côtés, qui contemplait le départ de Wang Lin. Il poussa un soupir et dit lentement:
 
@@ -80,7 +80,7 @@ Sous la garde de Situ Nan et de ses compagnons, chacun choisit l'une des 19 plan
 
 Tout semblait s'apaiser et ces dizaines de milliers de cultivateurs commencèrent à se rétablir. Cependant, ils ne relâchèrent pas leur vigilance, car cette guerre n'était pas terminée.
 
-À cet instant, un quatrième rayon de lumière s'élança vers la direction où Wang Lin avait disparu. Une autre femme se trouvait dans ce rayon. C'était la cultivatrice du Vide Arcane de la Rivière Invoquée, la femme en violet!
+À cet instant, un quatrième rayon de lumière s'élança vers la direction où Wang Lin avait disparu. Une autre femme se trouvait dans ce rayon. C'était la cultivatrice du Vide Arcanique de la Rivière Invoquée, la femme en violet!
 
 Elle possédait une origine mystérieuse et, hormis quelques rares privilégiés du Royaume Intérieur, personne ne connaissait son identité. Pourtant, ses actions durant cette guerre lui avaient valu le respect de tous.
 

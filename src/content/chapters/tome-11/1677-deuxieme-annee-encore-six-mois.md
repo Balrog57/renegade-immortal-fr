@@ -54,13 +54,13 @@ Wang Lin s'extirpa avec peine de son choc. Il regarda Papillon Rouge et dit lent
 
 Wang Lin fronça les sourcils et observa attentivement Papillon Rouge. Il se remémora ce qui s'était passé à Luotian, lorsque Qing Shui se tenait devant elle. Wang Lin avait vu de loin qu'il bloquait une attaque pour la protéger.
 
-« Son frère aîné a mené une vie amère... Son clan a péri durant son enfance. Après cela, il est entré dans le Royaume Céleste et sa femme est morte... Il avait aussi une fille qui est entrée de nouveau et de nouveau dans le cycle de la réincarnation. Elle a probablement tout oublié du passé... S'il lui reste vraiment un parent, ce serait cette fille... » parla doucement Wang Lin.
+« Mon frère aîné a mené une vie amère... Son clan a péri durant son enfance. Après cela, il est entré dans le Royaume Céleste et sa femme est morte... Il avait aussi une fille qui est entrée de nouveau et de nouveau dans le cycle de la réincarnation. Elle a probablement tout oublié du passé... S'il lui reste vraiment un parent, ce serait cette fille... » parla doucement Wang Lin.
 
 Le corps de Papillon Rouge trembla et elle ferma les yeux.
 
 Après un long moment, elle les rouvrit, le regard troublé.
 
-« La fille possède une marque rouge brillante sur l'épaule gauche. Cette marque suivra la réincarnation sans jamais se dissiper... » Wang Lin lança un regard significatif à Papillon Rouge.
+« La fille possède une marque de naissance rouge sur l'épaule gauche. Cette marque suivra la réincarnation sans jamais se dissiper... » Wang Lin lança un regard significatif à Papillon Rouge.
 
 Papillon Rouge tituba de quelques pas en arrière et son visage devint instantanément livide.
 
@@ -90,13 +90,13 @@ Le Maître Dao Bleu Rêve sourit en regardant sa fille et dit doucement: « Tu p
 
 « Ainsi, il s'avère que tu es aussi au courant. » Le regard de Wang Lin croisa celui du Maître Dao Bleu Rêve.
 
-« Je devrais être la deuxième personne née dans la grotte à l'avoir découvert, après le Vieux Fantôme Zhan... » soupira le Maître Dao Bleu Rêve.
+« Je devrais être la deuxième personne née dans le Royaume Intérieur à l'avoir découvert, après le Vieux Fantôme Zhan... » soupira le Maître Dao Bleu Rêve.
 
-« Quand je l'ai appris à l'époque, j'ai trouvé cela extrêmement absurde et je ne l'aurais pas cru, mais la personne qui me l'a dit était ma femme. De plus, la cinquième concubine scellée dans le fourneau derrière vous... »
+« Quand je l'ai appris à l'époque, j'ai trouvé cela extrêmement absurde et je ne l'aurais pas cru, mais la personne qui me l'a dit était ma femme, qui est aussi la cinquième concubine scellée dans le fourneau derrière toi... »
 
 « J'ai dû croire ses paroles! » Le Maître Dao Bleu Rêve secoua amèrement la tête.
 
-« Lorsque les huit concubines du Souverain Céleste sont descendues sur ce monde, la cinquième concubine a perdu son corps pour prendre une forme spirituelle. Ma femme pouvait parfaitement fusionner avec son âme, elle fut donc possédée par la cinquième concubine. Cependant, celle-ci n'a pas détruit l'âme de ma femme, mais s'en est servie pour me forcer à accomplir diverses tâches. »
+« Lorsque les huit concubines du Souverain Céleste sont descendues dans le Royaume Extérieur, la cinquième concubine a perdu son corps pour prendre une forme spirituelle. Ma femme pouvait parfaitement fusionner avec son âme, elle fut donc possédée par la cinquième concubine. Cependant, celle-ci n'a pas détruit l'âme de ma femme, mais s'en est servie pour me forcer à accomplir diverses tâches. »
 
 « À l'origine, je n'avais pas l'intention d'intervenir durant votre calamité, mais elle a utilisé l'âme de ma femme pour m'y contraindre, alors j'ai dû agir... Je pourrais tuer la cinquième concubine, mais je ne le peux pas... »
 
@@ -118,11 +118,11 @@ Parmi ces trois éclats de lumière se trouvaient des personnes que Wang Lin con
 
 Ces trois individus étaient censés être restés piégés dans l'Ancienne Tombe, mais ils avaient été sauvés par le Souverain. Leur haine envers Wang Lin était monstrueuse, et ils étaient venus ici avec l'intention de l'assassiner!
 
-Nous étions au sixième mois de la deuxième année! Il restait encore un semestre avant que l'accord de Wang Lin avec les quatre grands généraux n'arrive à échéance.
+Deux ans et six mois s'étaient écoulés! Il restait encore un semestre avant que l'accord de Wang Lin avec les quatre grands généraux n'arrive à échéance.
 
 « Wang Lin, ce vieil homme sait que tu te méfies de moi, et même ma fille ne m'a pas fait confiance en tant que père pendant ta culture... Aujourd'hui, je ferai ce qu'un père se doit de faire! » Bien que le Maître Dao Bleu Rêve s'adressât à Wang Lin, ses yeux étaient empreints d'une affection paternelle envers Li Qianmei.
 
-D'un revers de manche, il fit un pas vers l'Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation.
+D'un revers de manche, il fit un pas vers le Royaume Extérieur. Son corps se changea en un rayon de lumière et il s'élança instantanément hors de la formation.
 
 « Miao Yin, Neuf Cieux, Grande Désolation, les trois vous, dégagez de là!! » Le Maître Dao Bleu Rêve poussa soudain un rugissement. Ce cri propagea une onde puissante à travers le système stellaire, créant une véritable tempête. Cela força Miao Yin et ses compagnons à s'arrêter!
 

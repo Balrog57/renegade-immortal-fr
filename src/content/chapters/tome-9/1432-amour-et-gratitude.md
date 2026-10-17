@@ -16,7 +16,7 @@ Cependant, cet impact se transforma en vagues qui déferlèrent dans le cerveau 
 
 « Cette affaire est en effet extrêmement difficile; même si je n'étais pas blessé, je n'aurais pas la capacité de ramener votre femme. Cependant, mon maître est un être d'un niveau comparable au Souverain Céleste Antique. Il est même célèbre dans le monde ancien!
 
-« Ce vieil homme sollicitera Maître pour vous et recherchera le royaume de l'âme. Il peut récolter d'innombrables âmes pour former un sceau de longévité. Non seulement votre femme pourra être ressuscitée, mais même votre fils unique pourra également renaître! »
+« Ce vieil homme sollicitera Maître pour vous. Il cherchera un monde de vivants, massacrera d'innombrables gens et prendra leurs âmes pour former un sceau de longévité. Non seulement votre femme pourra être ressuscitée, mais même votre fils unique pourra également renaître! »
 
 Wang Lin était complètement figé et son esprit bourdonnait. Il resta silencieux pendant un moment. Il était déjà gravement blessé et ne tenait plus qu'à un fil. Maintenant qu'il ne pouvait plus retenir ce dernier souffle, son corps trembla et il cracha du sang.
 
@@ -24,15 +24,15 @@ Wang Lin était complètement figé et son esprit bourdonnait. Il resta silencie
 
 Un tourment s'afficha dans les yeux de Wang Lin. Sa lutte intérieure n'avait jamais été aussi intense. Ni la proposition du Maître du Dao Rêve Bleu ni les paroles de la première génération de l'Oiseau Vermillon ne pouvaient être comparées! Aucune d'elles n'avait directement frappé le point le plus vulnérable de son cœur!
 
-Lorsque la proposition atteignit son cœur dao, l'impact fut comparable à celui de « Pêcher la Lune dans le Puits », et elle remonta jusqu'à l'âme de Wang Lin!
+Lorsque la proposition atteignit son cœur dao, l'impact fut comparable à celui de « Pêcher la Lune dans le Puits », et il repêcha l'âme de Wan Er au plus profond de Wang Lin!
 
 Pour ressusciter Li Muwan, Wang Lin était prêt à tout! À tout risquer!
 
 Lorsqu'il n'avait plus d'espoir, il aspirait à l'espoir. Désormais, l'espoir était là, et même s'il ne s'agissait que d'une lueur, elle pesait lourdement dans son cœur. Il luttait comme un fou.
 
-« Devenez le soldat de ce vieil homme, et vous serez une existence dépassant Maître Simo, Qing Shui et Qing Lin. Vous serez le plus puissant des soldats de la mort que j'aie jamais eu!
+« Devenez le soldat de ce vieil homme, et vous serez une existence dépassant Maître Simo, Qing Shui et Qing Lin. Vous serez le sommet des soldats de la mort les plus prometteurs que j'aie jamais eus!
 
-« Si vous acceptez, ce vieil homme vous donnera pour nom dao Maître Ling Shang!
+« Si vous acceptez, ce vieil homme vous donnera pour nom dao Maître Lin Shang!
 
 « N'avez-vous pas passé votre vie à essayer de ressusciter votre femme et votre enfant? Mon maître peut le faire. Si vous ne me croyez pas, je peux laisser Maître ressusciter votre femme d'abord, et une fois que vous serez réunis, il ne sera pas trop tard pour accepter! »
 
@@ -40,9 +40,9 @@ Le visage de Wang Lin était livide et le conflit dans son esprit atteignait un 
 
 « Accepte son offre, deviens le soldat du Souverain afin que Wan Er puisse être ressuscitée. Wang Lin, n'as-tu pas cultivé toute ta vie uniquement pour elle? »
 
-« Accepte son offre. 1 500 ans de séparation peuvent enfin prendre fin et Wang Ping pourra également être ramené. La réunion de ta famille n'est-elle pas ton plus grand rêve? »
+« Accepte son offre. Plus de 1 500 ans de séparation peuvent enfin prendre fin et Wang Ping pourra également être ramené. La réunion de ta famille n'est-elle pas ton plus grand rêve? »
 
-« Accepte son offre. Tu ne deviendras pas l'esclave du Souverain, tu devras simplement obéir à tous ses ordres. Compare ta liberté personnelle à la vie de Wan Er; laquelle est la plus importante? »
+« Accepte son offre. Ce n'est que devenir l'esclave du Souverain, devoir simplement obéir à tous ses ordres. Compare ta liberté personnelle à la vie de Wan Er; laquelle est la plus importante? »
 
 « Accepte son offre, deviens le second Maître Simo et deviens un esclave du Souverain. Trahis le Royaume Intérieur. Romps avec Situ Nan, Qing Shui et tous ceux que tu connaissais dans le Royaume Intérieur. À partir de maintenant, ils sont tes ennemis! »
 
@@ -54,7 +54,7 @@ Un sourire misérable se dessina sur le visage de Wang Lin, et une traînée de 
 
 Wan Er était son tout et sa seule faiblesse. Il n'autoriserait personne à lui nuire. Pour ressusciter Wan Er, Wang Lin pouvait renoncer à beaucoup de choses. Pour elle, il pouvait sacrifier sa vitalité. À cet instant, il était prêt à donner sa vie!
 
-Cependant, certaines choses étaient encore plus importantes que sa propre existence! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des émotions dont il ne pouvait se défaire!
+Cependant, certaines choses étaient encore plus importantes que sa propre existence! Le problème était qu'en cette vie, au-delà de l'amour, il y avait des dettes de gratitude dont il ne pouvait se défaire!
 
 « À partir de maintenant, je te confie la Secte de l'Affinement de l'Âme... » Sur la planète Suzaku, le maître de la Secte de l'Affinement de l'Âme, Dun Tian, avait transmis les trésors de sa secte à Wang Lin avant de s'éteindre. Après avoir déposé l'héritage sur ses épaules, Dun Tian avait fermé les yeux avec un sourire... Situ Nan avait renoncé à la chance de s'emparer de la Perle Défiant le Ciel pour accompagner Wang Lin pendant des centaines d'années. Il lui avait enseigné la culture depuis sa jeunesse. Un maître, un père, un frère et aussi un ami... Sans Situ, il n'y aurait pas de Wang Lin! Wang Lin avait un jour dit quelque chose sur Situ qui représentait toute la gratitude qu'il lui portait!
 
@@ -64,7 +64,7 @@ Zhou Yi avait été épris d'amour toute sa vie; rien ne pouvait effacer son obs
 
 « Moi, Zhou Yi, je ne veux faire qu'une seule chose dans ma vie: accompagner Qing Shuang jusqu'à la fin des temps... »
 
-Le frère Qing Shui avait un visage froid mais un cœur chaleureux. Une fois qu'il eut décidé que Wang Lin était le disciple de la lignée de Bai Fang, il fut prêt à tout pour s'assurer que personne ne lui fasse de mal!
+Le frère Qing Shui avait un visage froid mais un cœur chaleureux. Une fois qu'il eut décidé que Wang Lin était le disciple de la lignée de Bai Fan, il fut prêt à tout pour s'assurer que personne ne lui fasse de mal!
 
 « Puisqu'il est mon frère cadet, personne ne peut lui nuire. Si vous lui blessez ne serait-ce qu'un doigt, je vous réclamerai la vie! »
 

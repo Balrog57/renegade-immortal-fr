@@ -22,11 +22,11 @@ Les yeux de Maître Hong Shan étaient emplis de chagrin. Après un long moment,
 
 Qing Shui leva les yeux vers les étoiles lointaines et son regard devint glacial. Une aura d'essence meurtrière se dégagea de son corps et enveloppa la zone.
 
-« Je prendrai sa place... et je me posterai à la station de combat de la Mer des Nuages. » Qing Lin ferma les yeux et son visage changea progressivement. Finalement, il prit l'apparence de Wang Lin, adoptant même son tempérament froid.
+« Je prendrai sa place... et je me posterai à la station de combat de la Mer des Nuages. » Qing Shui ferma les yeux et son visage changea progressivement. Finalement, il prit l'apparence de Wang Lin, adoptant même son tempérament froid.
 
-Il renonça à retrouver sa fille et à sa liberté. Il choisit d'endosser l'identité de Wang Lin pour devenir un symbole à la station de combat de la Mer des Nuages.
+Qing Shui renonça à retrouver sa fille et à sa liberté. Il choisit d'endosser l'identité de Wang Lin pour devenir un symbole à la station de combat de la Mer des Nuages.
 
-« Junior Frère, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour obtenir ma vengeance! » Qing Lin ferma les yeux pour dissimuler sa douleur.
+« Junior Frère, je me vengerai pour toi... Quant à tous ceux qui sont impliqués dans cette affaire, si j'en ai la moindre chance, je ferai tout mon possible pour obtenir ma vengeance! » Qing Shui ferma les yeux pour dissimuler sa douleur.
 
 Beaucoup de ceux qui étaient présents savaient pertinemment que Wang Lin ne pouvait éviter cette calamité. Ils savaient que le Royaume Extérieur avait planifié cela depuis longtemps, agissant dans l'ombre pour échapper à leur détection et lancer son assaut.
 
@@ -82,16 +82,16 @@ Les yeux de Wang Lin brillèrent d'un éclat fulgurant, celui d'un homme au cré
 
 « Dao du Rêve... » Utilisant le peu de puissance qu'il lui restait, il invoqua le troisième sort original qu'il avait créé: le Dao du Rêve.
 
-En utilisant son propre Dao du Rêve pour rêver d'il y a des milliers d'années... Dans ce rêve, il accomplirait sa vie et sa mort, son karma, ainsi que ses essences de vérité et de faux!
+En utilisant son propre Dao du Rêve pour rêver d'il y a mille ans... Dans ce rêve, il porterait à leur plein accomplissement ses trois sources originelles: la vie et la mort, le karma, le vrai et le faux!
 
 Sa main droite retomba et Wang Lin ferma les yeux...
 
 « Petit frère, petit frère, réveille-toi... »
 
-« Hélas, comment peux-tu être si ivre? Je vais faire le ménage, s'il te plaît, réveille-toi... » Sur le bord de la route, dans un modeste restaurant, un serveur vêtu de vert poussait désespérément un jeune homme ivre sur sa table.
+« Hélas, comment peux-tu être si ivre? Mon auberge va bientôt fermer, réveille-toi vite... » Au bord de la route officielle, dans une modeste auberge, un serveur vêtu de vert poussait désespérément un jeune homme ivre sur sa table.
 
 « C'est vraiment un érudit, si ivre après seulement deux coupes! » Le serveur poussa plus fort.
 
-« Le ciel est une auberge pour tous les êtres vivants... Le temps est le flux des voyageurs qui passent... Et naître dans un rêve, quelle joie... ou la joie du rêve... Beau poème, beau poème! » Le jeune homme avait un regard embrumé par l'ivresse alors qu'il fixait le serveur en ricanant.
+« Le ciel et la terre sont l'auberge de tous les êtres... Le temps est le voyageur de cent générations... Et la vie flottante est comme un rêve, combien de joies... pour combien de joies... Haha, beau poème, beau poème! » Le jeune homme avait un regard embrumé par l'ivresse alors qu'il fixait le serveur en ricanant.
 
 « Hehe, laisse-moi te dire, j'ai rêvé... J'ai rêvé que j'étais un immortel... » Puis le jeune homme bascula au sol et se mit à ronfler.

@@ -12,7 +12,7 @@ La manière dont Wang Lin avait rassemblé avec désinvolture les flammes éparp
 
 Le dragon possédait lui aussi une essence de feu, mais elle était manifestement bien plus faible que celle de Wang Lin. Par conséquent, ce dragon de feu n'avait tout simplement pas le courage de l'affronter.
 
-Terrorisé, il prit la fuite précipitamment. Wang Lin observa calmement sa retraite. Il serra le poing droit et écrasa les flammes qu'il tenait en lui.
+Terrorisé, il prit la fuite précipitamment. Wang Lin observa calmement sa retraite. Il serra le poing droit et écrasa les flammes qu'il tenait dans sa main.
 
 Une onde de chaleur se propagea de la paume de Wang Lin dans toutes les directions. Ce dernier ne poursuivit pas la créature, mais traça simplement un sceau dans les airs.
 
@@ -34,7 +34,7 @@ Wang Lin dissipa le sceau de sa main droite et, en un clin d'œil, se tint au so
 
 Elle regarda au loin, vers la Secte du Dragon Céleste, et ses yeux se remplirent d'encore plus de larmes.
 
-« Allez, ma Secte du Dragon Céleste... Maudit soit ce destin, je n'aurais pas dû venir par ici... J'aurais dû aller ailleurs... »
+« Adieu, ma Secte du Dragon Céleste... Maudit soit ce destin, je n'aurais pas dû venir par ici... J'aurais dû aller ailleurs... »
 
 Wang Lin était assis sur la tête du dragon. Des vagues d'énergie brûlante émanaient de la créature et l'entouraient tandis qu'il scrutait l'horizon. Sa propre vision se trouvait même déformée par ces ondes de chaleur.
 
@@ -60,7 +60,7 @@ Wang Lin le fixa froidement en levant la main droite, où apparut l'aura d'un so
 
 « Avec votre intelligence, vous connaissez les effets du sort que je tiens dans ma main. Je vous le demande une dernière fois: venez-vous du Continent Astral Immortel? »
 
-L'horreur se lut dans les yeux de la créature, mais pour une raison obscure, elle jeta un regard vers les milliers de cultivateurs de la Secte du Dragon Céleste au loin. Elle serra les dents et secoua la tête.
+L'horreur se lut dans les yeux de la créature, mais pour une raison obscure, elle jeta un regard vers le millier et plus de cultivateurs de la Secte du Dragon Céleste au loin. Elle serra les dents et secoua la tête.
 
 Wang Lin fronça les sourcils. Il ne pouvait pas utiliser le sort de recherche d'âme pour l'instant. Ils étaient dans le Système Stellaire Antique, et les sens divins de plusieurs cultivateurs puissants rôdaient. S'il utilisait ce sort, il leur donnerait une occasion de l'attaquer.
 
@@ -70,7 +70,7 @@ Son regard se fit plus glacial encore. Wang Lin dissipa le sort de recherche d'�
 
 Cependant, juste au moment où il allait rompre le sort, les supplications du dragon de feu pénétrèrent son esprit.
 
-« Euh... Pouvez-vous me donner un peu de crédit... Vous voyez bien que mes disciples m'observent. Si vous faites preuve de clémence et coopérez avec moi, alors je coopérerai en retour et je vous dirai absolument tout, d'accord... »
+« Euh... Pouvez-vous me laisser sauver la face... Vous voyez bien que mes disciples m'observent. Si vous faites preuve de clémence et coopérez avec moi, alors je coopérerai en retour et je vous dirai absolument tout, d'accord... »
 
 Wang Lin fut surpris et afficha une expression singulière. Il observa le dragon de feu et, après un long silence, hocha la tête.
 
@@ -90,7 +90,7 @@ Avant qu'ils ne puissent réagir, le dragon de feu se tourna brusquement vers eu
 
 Bien qu'empreints de doute, les cultivateurs n'osèrent pas manifester leur incrédulité. Ils affichèrent tous des visages empreints d'admiration envers le dragon, puis se retirèrent respectueusement.
 
-Une fois la foule dispersée, l'aura majestueuse du dragon s'évapora. Il arborait une expression embarrassée et s'apprêtait à parler quand Wang Lin se repositionna sur sa tête. D'un revers de manche, Wang Lin fit descendre le dragon là où il siégeait auparavant.
+Une fois la foule dispersée, l'aura majestueuse du dragon s'évapora. Il arborait une expression embarrassée et s'apprêtait à parler quand Wang Lin avança d'un pas, se tint sur sa tête et, l'entraînant avec lui, revint à l'endroit des étoiles où il était assis en tailleur auparavant.
 
 « Maître, ce petit dragon vient bel et bien du Continent Astral Immortel. Si vous avez des questions, n'hésitez pas. Ce petit dragon promet de tout vous révéler! » Le dragon adopta un ton flatteur et envoya rapidement un message par son sens divin.
 
@@ -102,7 +102,7 @@ Une fois la foule dispersée, l'aura majestueuse du dragon s'évapora. Il arbora
 
 En entendant cela, les yeux de Wang Lin se rétrécirent. Il fixa le dragon pendant un long moment, jusqu'à ce que les écailles du dragon se hérissent et qu'il envoie un nouveau message:
 
-« Ce que je dis est vrai, euh... enfin, presque tout. Je ne suis pas venu par loyauté, mais mon ancien maître m'a forcé à venir ainsi... » parla prudemment le dragon de feu.
+« Ce que je dis est vrai, euh... enfin, presque tout. Je ne suis pas venu par loyauté, mais parce que mon ancien maître m'a chevauché pour venir ici... » parla prudemment le dragon de feu.
 
 « Quel est votre nom? » L'esprit de Wang Lin tressaillit. Il avait une intuition!
 
@@ -124,7 +124,7 @@ Non seulement le dragon sentit ses écailles se hérisser sous le regard de Wang
 
 « Ah? Vous connaissez mon maître? Lian Daofei était mon ancien maître... Il est bien regrettable qu'il soit mort... »
 
-« C'est certain! » Le cœur de Wang Lin continuait de trembler. Il cessa de poser des questions et rangea le dragon dans son espace de stockage. Il ne pouvait plus rien demander de plus.
+« Comme je le pensais! » Le cœur de Wang Lin continuait de trembler. Il cessa de poser des questions et rangea le dragon dans son espace de stockage. Il ne pouvait plus rien demander de plus.
 
 Le temps pressait; il devait garder les idées claires pour pouvoir mobiliser toute sa culture. Il se devait de rester calme!
 

@@ -12,11 +12,11 @@ Après dix respirations, le tatouage de tonnerre autour de Wang Lin brilla inten
 
 « Dans votre monde, vous l'appelez l'Ancien Empereur Céleste. À mon époque, on l'appelait l'Ancien Souverain Céleste... » répondit lentement le premier Oiseau Vermillon. Ses paroles étaient dépourvues de toute émotion.
 
-Cependant, à l'instant même où il finit de parler, le feu de la paume dans laquelle se trouvait Wang Lin s'intensifia de nouveau. Les flammes se transformèrent rapidement en un géant Oiseau Vermillon. Cet oiseau semblait très ancien, comme s'il avait vécu durant d'innombrables années. Il laissa échapper un cri lugubre avant de charger vers Wang Lin.
+Cependant, à l'instant même où il finit de parler, le feu de la paume dans laquelle se trouvait Wang Lin s'intensifia de nouveau. Les flammes se transformèrent rapidement en un géant Oiseau Vermillon. Cet oiseau semblait très ancien, comme s'il avait vécu durant d'innombrables années. Il poussa un cri à ébranler le ciel et la terre avant de charger vers Wang Lin.
 
 Onzième respiration!
 
-Les yeux de Wang Lin révélèrent une folie pure. Le tatouage de tonnerre qui contenait le feu s'étendit soudainement. Alors que l'Oiseau Vermillon se rapprochait, Wang Lin se redressa brusquement et poussa un cri de combat.
+Les yeux de Wang Lin révélèrent une folie pure. Le tatouage de tonnerre qui contenait le feu s'étendit soudainement. Alors que l'Oiseau Vermillon se rapprochait, Wang Lin se redressa brusquement et poussa de toutes ses forces vers le haut.
 
 En un instant, l'ancien Oiseau Vermillon percuta le tatouage de tonnerre dans un rugissement assourdissant qui résonna à travers le monde. Une puissante onde de choc se propagea dans toutes les directions.
 
@@ -28,7 +28,7 @@ Cette scène choqua tous les cultivateurs environnants. Les pupilles du vieil Oi
 
 Dès que son Sens Divin y pénétra, sa voix tonna à l'intérieur de l'Épreuve:
 
-« Ancêtre!!! Quel est le sens de tout cela!?! Ne pourrait-il pas être un membre de mon clan de l'Oiseau Vermillon?! Pourrait-il avoir été créé par quelqu'un d'autre?! »
+« Ancêtre!!! Quel est le sens de tout cela!?! Se pourrait-il qu'il ne soit pas un membre de mon clan de l'Oiseau Vermillon?! Se pourrait-il qu'il ait été créé par quelqu'un d'autre?! »
 
 « Toi, pars! » Une voix bourdonnante gronda, formant une force invisible qui frappa le Sens Divin du vieil Oiseau Vermillon, l'expulsant de force de l'Épreuve Céleste.
 
@@ -36,11 +36,11 @@ Dès que son Sens Divin y pénétra, sa voix tonna à l'intérieur de l'Épreuve
 
 Douzième respiration!
 
-Le tatouage de tonnerre s'effondra en d'innombrables fragments qui retournèrent dans l'œil de Wang Lin. Le feu de l'ancien Oiseau Vermillon se brisa, le projetant en arrière de plusieurs centaines de pieds.
+Le tatouage de tonnerre s'effondra en d'innombrables fragments qui retournèrent dans l'œil de Wang Lin. Le feu de l'ancien Oiseau Vermillon se figea un instant et l'oiseau recula de plusieurs centaines de pieds dans cet effondrement.
 
 Wang Lin agita la main droite et une faille vers son espace de stockage apparut. Dans un éclair de lumière sanguine, l'Épée de Sang surgit. Wang Lin la pointa férocement vers le ciel, et l'épée poursuivit l'Oiseau Vermillon.
 
-À cet instant précis, après avoir lancé l'épée, la main de Wang Lin forma un sceau. Il pointa le ciel et hurla: « Au nom de mon tonnerre céleste, condense le tonnerre infini des cieux pour ouvrir l'Ancien Royaume du Tonnerre! »
+À cet instant précis, après avoir lancé l'épée, la main de Wang Lin forma un sceau. Il pointa le ciel et hurla: « Au nom de mon tonnerre, condense à nouveau dix mille tatouages de tonnerre pour ouvrir l'Ancien Royaume du Tonnerre! »
 
 Treizième respiration!
 
@@ -48,7 +48,7 @@ Sa voix devint de plus en plus forte, jusqu'à devenir fracassante. Dès qu'il e
 
 Le monde trembla et commença à tourbillonner. Une gigantesque faille spatiale de 10 000 pieds de long s'ouvrit. Des rugissements incessants émanèrent de la brèche, où l'on pouvait apercevoir les corps colossaux de plusieurs anciens dragons du tonnerre s'agitant à l'intérieur.
 
-Ouvrir l'Ancien Royaume du Tonnerre était le sort de l'Ancien de la lignée du Clan du Tonnerre Dispersé. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
+Ouvrir l'Ancien Royaume du Tonnerre était le sort du Grand Ancien du Clan du Tonnerre Dispersé. Cependant, après avoir sondé l'âme de cet Ancien et grâce à son essence de tonnerre, Wang Lin pouvait également utiliser ce sort extrêmement puissant!
 
 Les dragons du tonnerre poussèrent des rugissements de colère en sortant de la faille spatiale. Mais à ce moment précis, la voix de la première génération de l'Oiseau Vermillon retentit:
 
@@ -74,7 +74,7 @@ Maître Simo plissa les yeux. Avec son niveau de culture, il percevait naturelle
 
 « On dirait qu'un autre accident vient de se produire. Ce petit bâtard a traversé tant d'épreuves dans ce test... Il vaudrait mieux qu'il meure ici et m'épargne bien des ennuis. »
 
-Le bâton d'encens céleste brûlait violemment et rapidement. Il ne restait plus que quelques dizaines de pieds!
+Le bâton d'encens céleste brûlait violemment et rapidement. Il ne restait plus que quelques centaines de pieds!
 
 Dans l'Épreuve Céleste, après la quinzième respiration, la paume située sous Wang Lin trembla et commença à bouger!
 
@@ -122,14 +122,14 @@ Wang Lin médita en silence alors que l'Oiseau Vermillon qu'il avait formé se d
 
 « C'est exact. Je n'ai trouvé aucune faille après avoir sondé son âme. Peu importe mon observation, aucun indice ne m'est apparu. Ce n'est qu'à la fin que j'ai découvert qu'il avait été créé par quelqu'un d'autre... » La haine imprégnait les paroles du premier Oiseau Vermillon.
 
-« En l'absence de bâton d'encens, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Oiseau Vermillon.
+« En l'absence de Flammes Joss, tu possèdes déjà cinq essences. Bien qu'elles viennent de se former, ce phénomène est rare. Cependant, ton chemin est erroné! » déclara lentement le premier Oiseau Vermillon.
 
-« Ton essence de tonnerre a formé la Porte du Vide, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte du Vide. Au fond de ton cœur, tu ne valorises même pas les cinq Afflictions Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte du Vide au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
+« Ton essence de tonnerre a formé la Porte du Vide, mais tu n'as pu l'ouvrir... Tu penses ne pas être assez fort, et c'est à la fois vrai et faux. Tu crois devoir attendre que ton essence de feu soit complète avant de tenter de nouveau d'ouvrir la Porte du Vide. Au fond de ton cœur, tu ne valorises même pas les cinq Fléaux Célestes. Tu ne veux pas les traverser; tu veux briser directement la Porte du Vide au sommet du stade Briseur du Nirvana! Si tu penses pouvoir y parvenir, tu te trompes! »
 
 Wang Lin fut stupéfait mais resta silencieux.
 
 Le premier Oiseau Vermillon soupira et ferma lentement les yeux. Sa voix résonna dans le monde:
 
-« Sais-tu pourquoi les humains ont cinq doigts à chaque main? À mon époque, il existait aussi les cinq Afflictions Célestes, mais on les appelait les Cinq Doigts Briseurs de Vide... La culture, la culture... en vérité, toi et moi ne cultivons qu'une main. La première étape est la paume, et la seconde est l'empreinte de la paume. L'empreinte est la Loi, et comme l'empreinte de chacun est unique, leurs Lois le sont aussi. »
+« Sais-tu pourquoi les humains ont cinq doigts à chaque main? À mon époque, il existait aussi les cinq Fléaux Célestes, mais on les appelait les Cinq Doigts Brise-Vide... La culture, la culture... en vérité, toi et moi ne cultivons qu'une main. La première étape est la paume, et la seconde est l'empreinte de la paume. L'empreinte est la Loi, et comme l'empreinte de chacun est unique, leurs Lois le sont aussi. »
 
-« Les Cinq Doigts Briseurs de Vide ou les cinq Afflictions Célestes sont les doigts de ta paume. Si tu veux couvrir le ciel de ta main, tu dois posséder les cinq doigts. Si tu comprends cela, tu le comprendras. Sinon, tu n'auras aucune chance de briser le vide. »
+« Les Cinq Doigts Brise-Vide ou les cinq Fléaux Célestes sont les doigts de ta paume. Si tu veux couvrir le ciel de ta main, tu dois posséder les cinq doigts. Si tu comprends cela, tu le comprendras. Sinon, tu n'auras aucune chance de briser le vide. »

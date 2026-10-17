@@ -10,13 +10,13 @@ Les chars étaient recouverts de peaux de bêtes inconnues. Au premier coup d'œ
 
 Des runes complexes, tracées d'un rouge vif, ornaient ces peaux. Elles scintillaient dans l'obscurité de l'espace, leur conférant un aspect encore plus étrange.
 
-Outre ces chars de guerre, des rugissements résonnaient au loin. Derrière les 100 000 cultivateurs, une gigantesque tablette de pierre était transportée par un millier de cultivateurs torse nu.
+Outre ces chars de guerre, des rugissements résonnaient au loin. Derrière les 100 000 cultivateurs, une gigantesque tablette de pierre était transportée par plusieurs milliers de cultivateurs torse nu.
 
 Ces tablettes de pierre mesuraient environ dix mille pieds de haut et dégageaient une aura ancestrale. Plus impressionnant encore étaient les neuf chaînes entourant la tablette: au bout de chaque chaîne pendait un cercueil.
 
 Chaque cercueil était haut de plusieurs milliers de pieds. De loin, l'ensemble ressemblait à une pieuvre, offrant un spectacle terrifiant.
 
-Telle était la nouvelle force que le Royaume Extérieur avait rassemblée. Ce serait la bataille décisive pour tuer Wang Lin et détruire cette formation!
+Telle était la nouvelle force que le Royaume Extérieur avait rassemblée. Ce serait la première bataille pour pulvériser la formation de la roue de Wang Lin!
 
 Le Royaume Extérieur avait perdu trop de cultivateurs; les forces réunies ici représentaient son ultime recours!
 
@@ -52,7 +52,7 @@ Une fois l'épée manifestée, les 100 000 âmes originelles s'y précipitèrent
 
 L'épée de 100 000 pieds, chargée des 100 000 âmes originelles et de toute la puissance des cinq cultivateurs de la troisième étape, se transforma, par ce sort antique, en une force capable de fendre les cieux qui s'abattit sur sa cible.
 
-De loin, la scène était époustouflante. L'épée géante commença à croître, passant de 100 000 pieds à une taille décuplée, puis infinie, avant de frapper la formation circulaire.
+De loin, la scène était époustouflante. L'épée géante commença à croître, passant de 100 000 pieds à des dizaines de fois cette taille, puis à une taille sans limite, avant de frapper la formation circulaire.
 
 Wang Lin fit un pas en avant pour se placer au cœur de la formation. Il observa calmement l'épée converger vers lui sans esquisser le moindre mouvement, laissant le monstrueux hurlement de l'arme l'assaillir.
 
@@ -92,13 +92,13 @@ Au loin, dans le Système Stellaire Antique, le Souverain observa la scène. Mal
 
 « Ce vieillard se moque éperdument de la vie des cultivateurs des grottes. Même moi, j'aurais du mal à contrer ce sort forgé par la force vitale de 100 000 hommes. Je veux voir si tu utiliseras ton arc ou non! »
 
-Wang Lin, debout au sein de la formation, contemplait l'aura émanant du rayon de lumière jailli du trou noir. Il avait déjà ressenti cette aura par le passé.
+Wang Lin, debout au sein de la formation, contemplait l'aura émanant du rayon de lumière jailli du trou noir. C'était une aura venue du Continent Astral Immortel, qu'il avait déjà ressentie par le passé.
 
 Le regard serein, il pointa vers le Royaume Extérieur.
 
 « Ombrelle Brûlante du Royaume, déploie-toi pour consumer le monde! » Dans le Royaume Extérieur, un gigantesque parasol de feu s'ouvrit. Dès son apparition, la lumière dorée fut repoussée par une flamme destructrice qui se propagea.
 
-« Dao aux sept couleurs, transmute les cieux et la terre! » Tandis que la lumière dorée et le feu rouge s'entrechoquaient, les paroles de Wang Lin résonnèrent. Des lueurs rouges, orangées, jaunes, vertes, bleues et indigo surgirent du vide pour former une Lance aux Sept Couleurs!
+« Dao aux sept couleurs, transmute les cieux et la terre! » Tandis que la lumière dorée et le feu rouge s'entrechoquaient, les paroles de Wang Lin résonnèrent. Des lueurs rouges, orangées, jaunes, vertes, azur, bleues et violettes surgirent du vide pour former une Lance aux Sept Couleurs!
 
 « Cette lumière antique a percé le ciel, je la briserai donc avec cette Lance aux Sept Couleurs. L'Ombrelle Brûlante du Royaume colmatera la brèche. Cette lumière a peut-être engendré toute vie, mais elle ne pourra pas m'effacer! » Le parasol et la Lance aux Sept Couleurs entrèrent en collision dans une explosion titanesque.
 

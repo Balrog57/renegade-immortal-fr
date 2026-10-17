@@ -22,19 +22,19 @@ En conséquence, bien que la force magnétique n'ait pas modifié la puissance i
 
 Wang Lin n'avait que peu de Feu Éthéré à sa naissance, mais s'il continuait à en absorber davantage, la puissance de son feu deviendrait terrifiante!
 
-Le brouillard magnétique jaillit rapidement du corps de Wang Lin et remplit l'Épreuve Terrestre en un instant. Un moment plus tard, il s'en échappa pour s'élever au-dessus de la Planète des Grands Empereurs.
+Le brouillard magnétique jaillit rapidement du corps de Wang Lin et remplit l'Épreuve Terrestre en un instant. Un moment plus tard, il s'en échappa pour s'élever au-dessus de la Planète du Grand Empereur.
 
-Ce brouillard magnétique infini se déversa dans le ciel de la Planète des Grands Empereurs, puis se propagea pour redevenir la force magnétique entourant la planète.
+Ce brouillard magnétique infini se déversa dans le ciel de la Planète du Grand Empereur, puis se propagea pour redevenir la force magnétique entourant la planète.
 
 Tout semblait inchangé, mais en y regardant de plus près, on pouvait percevoir une différence.
 
 Avant d'entrer dans la Perle Défiant le Ciel, le brouillard magnétique était destructeur et mortel. Désormais, il paraissait complet, comme s'il contenait la vie.
 
-Les dix mille cultivateurs contemplaient la scène avec stupéfaction. Alors qu'ils observaient la deuxième baguette d'encens libérer tout son brouillard magnétique, des craquements retentirent provenant de la géante tige d'encens à moitié consumée.
+Les dizaines de milliers de cultivateurs contemplaient la scène avec stupéfaction. Alors qu'ils observaient la deuxième baguette d'encens libérer tout son brouillard magnétique, des craquements retentirent provenant de la géante tige d'encens à moitié consumée.
 
 Ce bruit était perçant et pénétra les oreilles de chaque cultivateur. Des fissures apparurent sur l'encens et commencèrent à se propager jusqu'à recouvrir toute la structure.
 
-Dans un fracas soudain, la baguette d'encens de terre fut fendue en deux. La partie ardente glissa de la tortue géante pour s'écraser sur l'arène.
+Dans un fracas soudain, la baguette d'encens de terre fut fendue en deux. La partie ardente retomba en biais, transperça la tortue géante en dessous et s'écrasa sur l'arène.
 
 Un silence de mort s'installa.
 
@@ -52,13 +52,13 @@ Le Maître du Dao Miao Yin fixait l'encens de terre brisé. Ses yeux se plissèr
 
 « La Perle Défiant le Ciel... la Perle Défiant le Ciel... Je la veux! »
 
-Le Maître du Dao Rêve Bleu affichait une expression complexe; il détourna le regard et sombra dans une méditation silencieuse. À ses côtés, Li Qianmei baissa la tête, cachant ainsi son expression à tous.
+Le Maître du Dao Rêve Bleu affichait une expression complexe; il retira son regard et resta silencieux. À ses côtés, Li Qianmei baissa la tête, cachant ainsi son expression à tous.
 
 Le vieux de l'Oiseau Vermillon se gratta la tête avec un sourire amer.
 
-« Ce petit gars, qu'a-t-il donc fait... Le changement sur la Planète des Grands Empereurs est clairement lié à lui... Combien de secrets ce gamin cache-t-il? C'est incroyable, la première baguette s'est éteinte et la deuxième s'est brisée... Comment l'épreuve peut-elle continuer? Comment sera-t-elle évaluée? »
+« Ce petit gars, qu'a-t-il donc fait... Le changement sur la Planète du Grand Empereur est clairement lié à lui... Combien de secrets ce gamin cache-t-il? C'est incroyable, la première baguette s'est éteinte et la deuxième s'est brisée... Comment l'épreuve peut-elle continuer? Comment sera-t-elle évaluée? »
 
-Après un bref moment de silence, les dix mille cultivateurs environnants éclatèrent en un tumulte de voix.
+Après un bref moment de silence, les dizaines de milliers de cultivateurs environnants éclatèrent en un tumulte de voix.
 
 « La deuxième baguette d'encens s'est réellement fendue en deux! C'est... »
 
@@ -78,19 +78,19 @@ Après un long moment, Wang Lin regarda l'oiseau et inspira profondément. L'Ois
 
 Wang Lin expira un air vicié et leva les yeux vers le ciel. Un instant plus tard, au lieu de partir, il fit un pas en avant. Il parcourut des dizaines de milliers de kilomètres pour atteindre la lisière de l'Épreuve Terrestre, là où se trouvait la montagne dénuée de flammes.
 
-L'Oiseau Vermillon de la quatrième génération était assis silencieusement sur cette montagne vide. Participant lui aussi à l'épreuve, il avait clairement ressenti ce que Wang Lin venait de traverser, et il en était bouleversé.
+L'Oiseau Vermillon de la quatrième génération était assis silencieusement sur cette montagne vide. Se trouvant en ce lieu, il avait clairement ressenti ce que Wang Lin venait de traverser, et il en était bouleversé.
 
 Cependant, n'étant pas un être ordinaire, il réprima rapidement son choc et fixa silencieusement l'horizon.
 
-Devant lui, le monde se tordit et Wang Lin en émergea. Il apparut devant l'Oiseau Vermillon de la quatrième génération, plongé lui aussi dans une réflexion muette.
+Devant lui, le monde se tordit et Wang Lin en émergea. Il apparut à quelques dizaines de pieds de l'Oiseau Vermillon de la quatrième génération et resta là, silencieux lui aussi.
 
-L'Oiseau Vermillon de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après ton quatrième éveil, tu devras encore nourrir ton Feu Éthéré pendant un certain temps. Garde cela à l'esprit. »
+L'Oiseau Vermillon de la quatrième génération tourna son regard vers Wang Lin et murmura: « Après le quatrième éveil de l'Oiseau Vermillon, le Feu Éthéré doit encore être nourri pendant un certain temps. Garde cela à l'esprit. »
 
 Wang Lin afficha une expression complexe face à l'homme d'âge mûr devant lui. Il joignit les mains et demanda: « Le Senior est-il l'Oiseau Vermillon de la quatrième génération? »
 
 « Je le suis », répondit l'homme en hochant la tête.
 
-Wang Lin resta silencieux. Après un long moment, il murmura: « L'Oiseau Vermillon de la cinquième génération a beaucoup fait pour ce junior. Avant de mourir, il parlait de la façon dont il avait accompagné l'Oiseau Vermillon de la quatrième génération... »
+Wang Lin resta silencieux. Après un long moment, il murmura: « L'Oiseau Vermillon de la cinquième génération a beaucoup fait pour ce junior. Avant de mourir, il n'oubliait jamais d'avoir autrefois accompagné l'Oiseau Vermillon de la quatrième génération comme son petit serviteur chargé des remèdes... »
 
 Une tristesse traversa les yeux de l'homme d'âge mûr qui hocha la tête. Sa voix, empreinte de mélancolie, murmura: « Je sais... »
 
@@ -104,7 +104,7 @@ Cette statue était formée par le corps du vieux Dieu Empereur Vermillon après
 
 Wang Lin recula de quelques pas, s'agenouilla devant la statue et effectua trois prosternations. « Vieux Dieu Empereur Vermillon, ce disciple vous a ramené ici depuis la Secte Divine. Je vous ai conduit auprès de l'Oiseau Vermillon de la quatrième génération, votre foyer... Je ne pourrai jamais rendre tout ce que vous avez fait pour moi, mais ma promesse perdurera. »
 
-Une fois levé, Wang Lin regarda l'Oiseau Vermillon de la quatrième génération avec une expression complexe. Il joignit les mains et dit: « Merci, Senior, de m'avoir aidé autrefois. Le junior s'en va. » Sur un soupir, Wang Lin s'éloigna.
+Une fois levé, Wang Lin regarda l'Oiseau Vermillon de la quatrième génération avec une expression complexe. Il joignit les mains et dit: « Merci, Senior, de m'avoir aidé tout à l'heure. Le junior s'en va. » Sur un soupir, Wang Lin s'éloigna.
 
 Il pouvait accepter l'Oiseau Vermillon de la deuxième génération, mais il ne pouvait accepter celui de la quatrième... Si ce dernier n'était pas parti, le vieil Empereur aurait déjà accompli son quatrième éveil. Si ce dernier n'était pas parti, le vieil Empereur ne serait pas mort.
 
@@ -116,6 +116,6 @@ L'Oiseau Vermillon de la quatrième génération contemplait la dépouille de so
 
 « Au fil des ans, j'ai tenté de briser ce sceau, mais sans succès... Même l'ancêtre de la première génération n'a pu le lever... Je ne peux que rester dans l'Épreuve Terrestre, sans pouvoir faire un seul pas à l'extérieur... Si je partais, le sceau éclaterait, me faisant perdre la raison et me plongeant dans la folie... Lu Yun, ce n'est pas que ton maître ne voulait pas revenir, c'est qu'il ne le pouvait pas... » Les larmes de l'Oiseau Vermillon de la quatrième génération tombèrent sur la dépouille de son disciple, chargées d'une tristesse infinie, de souvenirs douloureux et d'un remords sans fin.
 
-« Pas seulement moi, mais l'Oiseau Vermillon de la deuxième génération porte aussi ce sceau en lui. Il peut le réprimer pour ne pas rester prisonnier de l'Épreuve Terrestre, mais il ne peut pas quitter les Terres Déchues... Les Terres Déchues... Les Terres Déchues... C'est là que mon Clan de l'Oiseau Vermillon est tombé... Soit nous sombrons dans la folie, soit nous tombons en disgrâce! » murmura amèrement l'Oiseau Vermillon de la quatrième génération, comme s'il expliquait son sort à son disciple... La silhouette de Wang Lin s'éloigna vers le ciel, de plus en plus ténue, jusqu'à disparaître totalement.
+« Pas seulement moi, mais l'Oiseau Vermillon de la deuxième génération porte aussi ce sceau en lui. Il peut le réprimer pour ne pas rester prisonnier de l'Épreuve Terrestre, mais il ne peut pas quitter les Terres Déchues... Les Terres Déchues... Les Terres Déchues... C'est là que mon Clan de l'Oiseau Vermillon est tombé... Soit nous périssons dans la folie, soit nous en sortons en renversant tout! » murmura amèrement l'Oiseau Vermillon de la quatrième génération, comme s'il expliquait son sort à son disciple... La silhouette de Wang Lin s'éloigna vers le ciel, de plus en plus ténue, jusqu'à disparaître totalement.
 
 À l'instant précis où sa silhouette s'effaça, les yeux clos sous l'encens humain s'ouvrirent brusquement!

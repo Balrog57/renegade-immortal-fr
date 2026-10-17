@@ -20,7 +20,7 @@ Cette porte n'était pas celle menant au Continent Astral Immortel, mais celle c
 
 Bien que ce fût la première fois qu'il voyait cette porte, elle ne lui était pas étrangère. Sur l'une des plaques qui la composaient, Wang Lin sentit l'aura du Champ de Bataille Extérieur de la planète Suzaku!
 
-Il avait déployé son Sens Divin et avait vu cette scène stupéfiante: un fragment d'une porte brisée!
+Il avait déployé son Sens Divin et avait vu cette scène stupéfiante: l'instant où la porte volait en éclats!
 
 Aujourd'hui, la porte de la caverne, autrefois brisée par le Dao Céleste, réapparaissait, provoquant une transformation radicale du monde de la grotte!
 
@@ -58,11 +58,11 @@ Wang Lin ne leur accorda aucun regard. Il baissa plutôt les yeux vers le corps 
 
 La vallée trembla et les orchidées d'automne s'animèrent lentement, recouvrant le corps de Xie Qing pour former une tombe fleurie.
 
-Dans un soupir, Wang Lin cueillit une orchidée et l'observa. D'un pas, il quitta la vallée pour s'élever dans les airs.
+Dans un soupir, Wang Lin cueillit un bouquet d'orchidées et l'observa. D'un pas, il quitta la vallée pour s'élever dans les airs.
 
-Il fit un autre pas et disparut du ciel pour charger dans l'espace. L'orchidée tomba lentement depuis les cieux, sans dévier de sa trajectoire, pour venir se poser délicatement sur le tombeau dans la vallée.
+Il fit un autre pas et disparut du ciel pour charger dans l'espace. Le bouquet d'orchidées tomba lentement depuis les cieux, sans dévier de sa trajectoire, pour venir se poser délicatement sur le tombeau dans la vallée.
 
-L'orchidée était d'une beauté pure, comme imprégnée de force vitale. En touchant le sol, elle émit un éclat fantomatique avant de tomber en cendres.
+Les orchidées étaient d'une beauté pure, comme imprégnées de force vitale. En touchant le sol, elles émirent un éclat fantomatique avant de tomber en cendres.
 
 À cet instant, une brise souffla et les cendres furent dispersées à travers la vallée.
 
@@ -98,7 +98,7 @@ Peu après l'arrivée du Souverain, plusieurs rayons de lumière percèrent le b
 
 L'une d'elles observa Wang Lin avec une expression complexe. C'était la troisième concubine, celle qui avait interagi avec lui dans la Tombe Antique!
 
-Les disciples de la Secte des Sept Dao, échappés de l'Ancien Royaume Céleste dans le Monde Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
+Les disciples de la Secte des Sept Dao, échappés de l'Ancien Royaume Céleste dans le Royaume Extérieur, arrivèrent avec les concubines. Ils encerclèrent la zone, les yeux rivés sur Wang Lin.
 
 Bientôt, Zi Xia arriva de la Rivière Invoquée. Après avoir inspecté les lieux, son regard tomba sur Wang Lin, encerclé, et une lueur meurtrière traversa ses yeux.
 

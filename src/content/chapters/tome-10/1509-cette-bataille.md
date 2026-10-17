@@ -14,7 +14,7 @@ Ce vieil homme portait une robe verte, son expression était sombre, et il étai
 
 Alors qu'il cultivait, il ouvrit soudainement les yeux et regarda devant lui. De la fumée apparut et se transforma en une grue de nuages.
 
-« Grand Vide de la Secte Fantôme, je suis prêt à offrir 500 millions de disciples Yin et Yang à la Secte Démon si vous passez à l'action! »
+« Grand Vide de la Secte Fantôme, je suis prêt à offrir 500 millions de disciples Yin et Yang au Saint Démon, en échange d'une intervention de votre Seigneur Saint Démon de la Secte Fantôme! »
 
 Au même moment, le sixième ensemble de jade du Shui Daozi déclencha une vague monstrueuse à l'intérieur du Royaume Intérieur!
 
@@ -52,13 +52,13 @@ Cette scène perturba Situ Nan. Dès qu'il ouvrit les yeux, il sembla entendre q
 
 « Bon sang, quel genre de bâtard ose dire que mon frère est un espion? J'ai donné la Perle Défiant le Ciel à ce petit gars; cela ne veut-il pas dire que je suis aussi un espion? Quel enfoiré a osé dire ça? Je ne vais pas le laisser faire! » Situ Nan se leva, furieux.
 
-Le regard de Qing Lin balaya Situ Nan et il tonna: « Assieds-toi! Le Maître s'en occupera! De plus, ce Shui Daozi n'est pas un bâtard, c'est l'esclave de mon Maître! »
+Le regard de Qing Lin balaya Situ Nan et il tonna: « Assieds-toi! Ton Maître s'en occupera! De plus, ce Shui Daozi n'est pas un bâtard, c'est l'esclave de mon Maître! »
 
-Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana: « Bien que tu sois mon Maître, il est mon frère. Je sais tout de lui. C'est moi qui l'ai aidé à gravir le chemin de la culture! Il t'a aidé à t'éveiller, et pourtant tu ne crois toujours pas en lui! »
+Situ Nan fixa Qing Lin, mais il ne fut pas ébranlé par ses paroles et ricana: « Bien que tu sois mon Maître, il est mon frère. Je sais tout de lui. C'est moi qui l'ai accompagné et ai grandi à ses côtés depuis ses débuts dans la culture! Il t'a aidé à t'éveiller, et pourtant tu ne crois toujours pas en lui! »
 
-« Ce n'est pas que le Maître ne croit pas... Mais ce Souverain... » Qing Lin affichait une expression complexe et, après un moment de silence, il envoya un message par Sens Divin dans le jeton de pluie.
+« Ce n'est pas que ton Maître ne croie pas... Mais ce Souverain... » Qing Lin affichait une expression complexe et, après un moment de silence, il envoya un message par Sens Divin dans le jeton de pluie.
 
-« Wang Lin est mon disciple. Qui ose lui faire du mal?! » Ce message de Sens Divin jaillit du Royaume Céleste de la Pluie et se propagea à travers toute l'Alliance, s'étendant sans fin.
+« Wang Lin est le disciple de cet Empereur Céleste. Qui ose lui faire du mal?! » Ce message de Sens Divin jaillit du Royaume Céleste de la Pluie et se propagea à travers toute l'Alliance, s'étendant sans fin.
 
 Dans la Mer des Nuages, dans la vallée où se trouvait l'homme en rouge, Maître Lu Fu était également présent. Il se tenait respectueusement aux côtés des membres de la Secte Démon.
 
@@ -76,7 +76,7 @@ Cependant, à cet instant précis, tout le monde dans la vallée entendit le mes
 
 La froideur dans les yeux de l'homme en rouge s'intensifia et il esquissa un sourire.
 
-« Moi, Maître Hong Shan, je ne voulais pas gaspiller sa culture avant la guerre... Mais puisqu'il court à sa perte... Eh! » L'homme en rouge regarda au loin, et le froid dans ses yeux fut lentement remplacé par de l'admiration.
+« Moi, Maître Hong Shan, j'avais pitié de sa culture et je ne voulais pas la détruire en ce moment... Mais puisqu'il court à sa perte... Eh! » L'homme en rouge regarda au loin, et le froid dans ses yeux fut lentement remplacé par de l'admiration.
 
 « Puisque ce petit gars est parti de lui-même, voyons quel est le jugement du Seigneur du Royaume Scellé... Après tout, ce sont leurs propres affaires internes! »
 
@@ -94,9 +94,9 @@ Au sein de la Secte Brise-Ciel, le maître de secte traîna son vieux corps et c
 
 Mu Bingmei tenait toujours ses promesses. Elle contempla la pilule pendant un long, très long moment...
 
-Sous les ordres de Shui Daozi, les disciples de la Secte Divine se rassemblèrent rapidement. Tous les réseaux de transfert furent ouverts pour leur permettre de regagner le secteur en peu de temps. Plus de 10 000 disciples s'étaient réunis!
+Sous les ordres de Shui Daozi, tous les cultivateurs de la Mer des Nuages se précipitèrent vers la Secte Divine. Les disciples de la Secte Divine ouvrirent tous les réseaux de transfert, et en peu de temps, plus de 10 000 cultivateurs s'étaient rassemblés dans le brouillard devant la Secte Divine!
 
-Ces 10 000 disciples formèrent la Formation de Destruction des Neuf Cieux, initialement préparée pour la bataille contre le Royaume Extérieur!
+Ces 10 000 cultivateurs, venus de toutes les sectes, se rassemblèrent et déployèrent aussitôt la Formation de Destruction des Neuf Cieux, initialement préparée pour la bataille contre le Royaume Extérieur!
 
 Dans le Système Stellaire de la Mer des Nuages, Wang Lin avança, un froid monstrueux dans les yeux. Il ignorait ce que Shui Daozi tramait, mais il avait clairement entendu le message de Sens Divin dans le sixième jade.
 
@@ -108,7 +108,7 @@ Wang Lin méditait tout en avançant, et l'intention de tuer qui s'accumulait en
 
 Il devait tuer Shui Daozi!
 
-Il n'avait aucune intention de le raffiner en baume. Certaines personnes ne méritaient pas d'être des esclaves; elles ne méritaient que la mort!
+Il n'avait aucune intention de le raffiner pour en faire un esclave. Certaines personnes ne méritaient pas d'être des esclaves; elles ne méritaient que la mort!
 
 Tout ce qui s'était produit, et tout ce que Li Qianmei avait fait pour lui, était dû à Shui Daozi! S'il ne s'était pas lancé à la poursuite de la Perle Défiant le Ciel de Wang Lin, rien de tout cela ne serait arrivé!
 
@@ -118,11 +118,11 @@ De loin, partout où Wang Lin passait, le monde devenait un désert de glace! Il
 
 Tout comme les neuf gouttes de sang qu'il avait condensées devant Maître Lu Fu, ces neuf gouttes contenaient le principe fondamental de la vie de Wang Lin!
 
-Il n'était ni un gentilhomme noble, ni un vilain sans vergogne. Il n'était ni droit et honnête, ni sournois et méprisable. Il était Wang Lin, et il ne souhaitait simplement rien faire dans ce monde qu'il ne puisse assumer!
+Il n'était ni un gentilhomme noble, ni un vilain sans vergogne. Il n'était ni droit et honnête, ni sournois et méprisable. Il était Wang Lin, et tout ce qu'il recherchait dans sa vie, c'était un cœur sans honte devant le ciel et la terre!
 
-Si quelqu'un osait défier ce principe, alors il tuerait! Tuer! Tuer!
+Si quelqu'un voulait souiller ce cœur, alors il tuerait! Tuer! Tuer!
 
-En traversant la Mer des Nuages, le givre continua de s'étendre jusqu'à atteindre 50 000, puis 100 000 pieds de large!
+En traversant la Mer des Nuages, le givre continua de s'étendre jusqu'à atteindre 100 000, puis 500 000, puis 1 000 000 de pieds de large!
 
 La glace était partout, pétrifiant le système stellaire. Wang Lin chargea vers les profondeurs de la Mer des Nuages, là où se trouvait la Secte Divine de rang 9!
 

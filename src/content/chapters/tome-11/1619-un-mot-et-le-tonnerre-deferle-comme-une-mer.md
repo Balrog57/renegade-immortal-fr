@@ -32,7 +32,7 @@ L'Empereur Divin Dragon Azure était particulièrement inquiet. Il connaissait W
 
 « Au moment le plus critique, j'utiliserai les trésors des Quatre Sectes Divines pour l'aider à briser la porte. »
 
-Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita vers la Porte du Vide. Comparée à cette dernière, la silhouette de Wang Lin paraissait minuscule. Pourtant, c'était ce petit être qui laissait tous les cultivateurs environnants sans voix, fascinés par son coup de poing tonitruant.
+Ignorant les pensées d'autrui, Wang Lin, enveloppé de tonnerre, se précipita vers la Porte du Vide. Comparée à cette dernière, la silhouette de Wang Lin paraissait minuscule. Pourtant, c'était ce petit être qui laissait les dizaines de milliers de cultivateurs alentour, repoussés par la puissance de la Porte du Vide, sans voix et l'esprit vide, fascinés par son coup de poing tonitruant.
 
 Wang Lin avait déjà frappé la Porte du Vide auparavant, mais il n'avait réussi qu'à l'entrouvrir d'un mince filet. Désormais, il maîtrisait six essences; bien qu'elles ne fussent pas encore fusionnées, son tonnerre était déjà plusieurs fois plus puissant qu'auparavant.
 
@@ -46,11 +46,11 @@ Tandis que les roulements de tonnerre continuaient de faire écho, la gigantesqu
 
 L'ensemble du Vide Brillant tremblait sans relâche. Les éclairs semblaient être extraits de chaque planète pour converger vers la planète Suzaku. Même des filaments de foudre traversaient l'espace.
 
-De nombreux cultivateurs du Royaume Extérieur se trouvaient dans le Vide Brillant, souvent en groupes de centaines ou de milliers pour traquer les derniers survivants du Royaume Intérieur. Tous furent ébranlés par ce grondement sourd. Ils ignoraient ce qui se passait, mais ils sentaient que tout le Vide Brillant était saturé de tonnerre!
+De nombreux cultivateurs du Royaume Extérieur se trouvaient dans le Vide Brillant, souvent en groupes de dizaines, de centaines ou de milliers pour traquer les derniers survivants du Vide Brillant. Tous furent ébranlés par ce grondement sourd. Ils ignoraient ce qui se passait, mais ils sentaient que tout le Vide Brillant était saturé de tonnerre!
 
 C'était comme si tout le tonnerre du monde avait retrouvé son roi après d'innombrables années de confusion. Le Roi du Tonnerre venait de pousser un rugissement et les appelait!
 
-Tout le tonnerre du Vide Brillant se connecta, semblant former un océan alors que des vagues de foudre déferlaient. Elles passèrent devant les planètes, balayèrent l'espace et emportèrent les cultivateurs du Royaume Extérieur sur leur passage.
+Tout le tonnerre du Vide Brillant se connecta, semblant former un océan alors que des vagues de foudre déferlaient. Elles passèrent devant les planètes, balayèrent l'espace et rugirent aux côtés des cultivateurs du Royaume Extérieur.
 
 « Que se passe-t-il?! »
 « Ceci... Que diable se passe-t-il?! »
@@ -68,7 +68,7 @@ Le désespoir inonda les yeux de Zhou Jin; il avait peine à croire ce qu'il voy
 
 Il vit une telle quantité de tonnerre qu'elle illuminait l'espace lui-même. La lumière était aveuglante alors que la tempête approchait.
 
-« Ceci... ceci est... » Le visage du jeune homme en robe verte devint livide. Bien qu'il fût un cultivateur du Vide Arcane de stade intermédiaire, son cuir chevelu s'engourdit face à ce déluge de tonnerre sans fin.
+« Ceci... ceci est... » Le visage du jeune homme en robe verte devint livide. Bien qu'il fût un cultivateur du Vide Arcane de stade initial, son cuir chevelu s'engourdit face à ce déluge de tonnerre sans fin.
 
 Il n'était pas le seul: même le Maître Céleste Dieu du Vide fut stupéfait un instant, l'incrédulité brillant dans ses yeux. Il ne s'attendait pas à ce que l'essence de tonnerre de Wang Lin possède une telle puissance.
 
@@ -78,13 +78,13 @@ Il n'était pas le seul: même le Maître Céleste Dieu du Vide fut stupéfait u
 
 Le Maître Céleste Dieu du Vide s'exclama: « Impossible! »
 
-Seule une chose pouvait faire perdre son sang-froid au Maître Céleste Dieu du Vide, l'un des Cinq Maîtres du Système Stellaire Antique! En déployant son Sens Divin, il vit le déluge de tonnerre converger inexorablement.
+Seule une chose pouvait faire perdre son sang-froid au Maître Céleste Dieu du Vide, l'un des Cinq Maîtres du Système Stellaire Antique! En balayant les environs de son Sens Divin, il vit surgir un tonnerre infini en provenance du système stellaire de la Mer des Nuages.
 
 Le Maître Céleste Dieu du Vide ne craignait pas que Wang Lin déclenche le tonnerre du Vide Brillant. Cependant, il n'avait pas prévu que le rugissement de Wang Lin déclencherait également la Mer des Nuages!
 
 Dans la Mer des Nuages, la situation était identique à celle du Vide Brillant. Des éclairs quittaient les continents comme s'ils répondaient à un appel ancestral, fonçant vers le Vide Brillant!
 
-Un grondement émanait également des rares nuages de la Mer des Nuages. D'innombrables éclairs jaillirent et se lièrent entre eux, franchissant la barrière du Vide Brillant pour s'en rapprocher.
+Un grondement émanait également des rares nuages de la Mer des Nuages. D'innombrables éclairs jaillirent et se lièrent entre eux, brisant la barrière qui les séparait du Vide Brillant pour s'y engouffrer.
 
 Mais ce n'était pas tout. Après que le rugissement de Wang Lin eut résonné à travers le Vide Brillant et la Mer des Nuages, il se propagea également dans la Rivière Invoquée. La foudre déchira l'obscurité spatiale. D'innombrables cultivateurs du Royaume Extérieur virent passer des météores de lumière ou des éclairs argentés serpentant à travers le ciel.
 
@@ -96,4 +96,4 @@ Alors que le tonnerre et la foudre de la Mer des Nuages, du Vide Brillant et de 
 
 Alors que l'appel de Wang Lin résonnait à travers tout Luotian, la barrière des systèmes stellaires se brisa. Le tonnerre ancien qui servait de porte au Royaume Céleste du Tonnerre, immobile depuis des éons, jaillit telle une rivière d'argent. Il fonça droit vers le Vide Brillant!
 
-Le Vide Brillant, Luotian, la Mer des Nuages et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin aux cheveux blancs, qui tenait la main levée vers les cieux!
+Le Vide Brillant, Luotian, la Mer des Nuages et la Rivière Invoquée... le tonnerre des quatre grands systèmes stellaires convergeait vers la planète Suzaku. Vers Wang Lin, vêtu de blanc, les longs cheveux flottant au vent, qui levait la main et poussait un long cri vers les cieux!

@@ -38,7 +38,7 @@ Après cela, il agita à nouveau sa manche et s'adressa avec arrogance au Clan d
 
 « Être témoin de l'usage des trésors de ce vieil homme est une chance inouïe dans votre existence. Mes trésors sont si puissants que peu peuvent les égaler. Assister au combat où ce vieil homme terrassera un cultivateur du Fléau Céleste est un événement que vous n'oublierez jamais! »
 
-La voix de Cupidité était empreinte d'une arrogance extrême. Il agita la main et neuf tablettes de pierre antiques apparurent, faisant changer les couleurs du ciel. D'un nouveau geste, 99 épées surgirent, dégageant une énergie de sabre monstrueuse.
+La voix de Cupidité était empreinte d'une arrogance extrême. Il agita la main et neuf tablettes de pierre antiques apparurent, faisant changer les couleurs du ciel. D'un nouveau geste, 99 épées surgirent, dégageant une énergie d'épée monstrueuse.
 
 Puis, il sembla semer une lumière verte. Lorsque cette lueur toucha le sol, la terre se mit à palpiter et une forêt dense se forma instantanément.
 

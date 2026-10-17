@@ -42,9 +42,9 @@ Le temps passa. Le quatrième, le cinquième et le sixième souffle du neuvième
 
 En particulier, l'homme en robe dorée était livide et murmurait des paroles incohérentes. Il ne pouvait croire ce qu'il voyait. Cela dépassait son imagination et ses attentes; dans son esprit, c'était une impossibilité absolue.
 
-Il n'appartenait pas au Monde des Grottes; il venait de la Secte Gui Yi, sur le Continent Astral Immortel. Il connaissait trop bien la terreur et la puissance de la Formation de la Roue Céleste aux Neuf Cycles. Cette formation était célèbre sur le Continent Astral Immortel!
+Il n'appartenait pas au Monde des Grottes; il venait de la Secte Gui Yi, sur le Continent Astral Immortel. Il connaissait trop bien la terreur et la puissance de la Roue du Cœur aux Neuf Cycles. Cette formation était célèbre sur le Continent Astral Immortel!
 
-Il n'aurait jamais pensé qu'un cultivateur d'un monde de grottes puisse montrer des signes de rupture de la formation en si peu de temps. Bien que la formation ici fût bien plus faible que celle du Continent Astral Immortel, il s'agissait bel et bien d'une véritable Formation de la Roue Céleste aux Neuf Cycles!
+Il n'aurait jamais pensé qu'un cultivateur d'un monde de grottes puisse montrer des signes de rupture de la formation en si peu de temps. Bien que la formation ici fût bien plus faible que celle du Continent Astral Immortel, il s'agissait bel et bien d'une véritable Roue du Cœur aux Neuf Cycles!
 
 « C'est impossible... Même s'il était capable de comprendre la formation, elle avait déjà atteint le neuvième cycle. Le temps est limité, il est impossible que son cœur s'apaise à temps durant ce neuvième cycle! » L'homme en robe dorée serra les poings et marmonna ces mots avec incrédulité.
 
@@ -54,9 +54,9 @@ Un tumulte s'empara de son esprit et il ressentit une terreur inexplicable enver
 
 À l'extérieur de la planète des Cinq Éléments, les yeux du Grand Empyréen Xuan Luo brillaient d'une lueur étrange alors qu'il observait Wang Lin. Cette lumière s'intensifiait sans cesse. Il avait été témoin de tout ce que Wang Lin avait accompli, et son propre cœur se mit à battre la chamade.
 
-« Puisqu'il ne pouvait pas s'apaiser instantanément, il a d'abord calmé son corps. Utilisant son corps comme ancre pour apaiser son âme. Puis il a utilisé son âme comme guide pour apaiser son âme originelle. Son âme originelle a ensuite saisi le cœur pour l'apaiser... »
+« Puisqu'il ne pouvait pas apaiser son cœur instantanément, il a pris le corps pour guide. Le corps, simple forme, s'apaise aisément; une fois le corps calme, il entraîne l'âme, qui se fixe avec lui. Ensuite, prenant l'âme et le corps pour source, il a bridé son âme originelle jusqu'à la calmer à son tour... »
 
-« Par extension du calme du corps, de l'âme et de l'âme originelle, le cœur finit naturellement par s'apaiser... Il est rare qu'un être conçoive une telle méthode en un temps si court! Une telle compréhension est exceptionnelle! »
+« Une fois le corps, l'âme et l'âme originelle apaisés, le cœur finit naturellement par s'apaiser... Concevoir une telle méthode en un temps si court est exceptionnel! Une telle réaction et une telle compréhension sont fort rares! »
 
 « Je prendrai cet enfant pour disciple! » Le Grand Empyréen Xuan Luo laissa éclater un enthousiasme qu'il n'avait pas montré depuis dix mille ans.
 
@@ -66,11 +66,11 @@ Le cœur de Wang Lin s'apaisa totalement à ce moment précis. Il se tenait là,
 
 Lorsque le neuvième souffle survint, la planète des Cinq Éléments cessa toute rotation et s'immobilisa totalement sous les yeux de Wang Lin!
 
-S'il l'avait voulu, il lui suffisait de faire un pas en avant pour sortir de la Formation de la Roue Céleste aux Neuf Cycles et fouler la planète, mais il ne le fit pas. Durant toute sa vie, après avoir subi une injustice, il avait toujours exigé son dû. Il avait failli mourir par l'épuisement de son énergie mentale à l'instant; s'il s'était contenté d'endurer, il n'aurait pas été Wang Lin!
+S'il l'avait voulu, il lui suffisait de faire un pas en avant pour sortir de la Roue du Cœur aux Neuf Cycles et fouler la planète, mais il ne le fit pas. Durant toute sa vie, après avoir subi une injustice, il avait toujours exigé son dû. Il avait failli mourir par l'épuisement de son énergie mentale à l'instant; s'il s'était contenté d'endurer, il n'aurait pas été Wang Lin!
 
-« Je ne connais pas le nom de cette formation, mais elle change tous les neuf souffles, et elle a maintenant changé neuf fois au total... Après chaque changement, elle tourne encore plus vite. On ne saurait donc pas se tromper en l'appelant la Roue Céleste aux Neuf Cycles. »
+« Je ne connais pas le nom de cette formation, mais elle change tous les neuf souffles, et elle a maintenant changé neuf fois au total... Chaque changement la fait tourner en vortex. L'appeler Neuf Changements du Cœur Tournant n'aurait donc rien d'exagéré. »
 
-« Comment une telle formation peut-elle tourner et s'arrêter à ta guise? » Une lueur de froideur traversa le regard de Wang Lin tandis qu'il pointait sa main droite vers la planète des Cinq Éléments. Puis, d'un geste, il dessina un cercle en sens inverse.
+« Cette formation, comment votre planète des Cinq Éléments pourrait-elle la faire tourner et l'arrêter à sa guise? » Une lueur de froideur traversa le regard de Wang Lin tandis qu'il pointait sa main droite vers la planète des Cinq Éléments. Puis, d'un geste, il dessina un cercle en sens inverse.
 
 « Si le cœur bouge, alors la planète bouge. Puisque mon cœur s'est inversé, cette planète s'inversera également. Vous vouliez tous me piéger dans cette formation? Voyez donc par vous-mêmes à quel point elle est merveilleuse! » La main droite de Wang Lin traça plusieurs cercles d'affilée.
 
@@ -94,7 +94,7 @@ Instantanément, la planète des Cinq Éléments dans leur champ de vision comme
 
 Le cœur bouge, alors la planète bouge!
 
-Cette scène soudaine provoqua un tumulte dans leurs cœurs et les voilà piégés dans la Roue Céleste du Cœur!
+Cette scène soudaine provoqua un tumulte dans leurs cœurs et les voilà piégés dans la Roue du Cœur aux Neuf Cycles!
 
 À leurs yeux, la rotation de la planète s'était déjà transformée en un vortex, et ce n'était pourtant que le huitième souffle du premier cycle!
 

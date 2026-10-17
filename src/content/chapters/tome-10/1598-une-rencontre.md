@@ -8,11 +8,11 @@ slug: une-rencontre
 ---
 Sur son lit de mort, il se remémora les paroles de l'érudit anonyme prononcées des centaines d'années auparavant. Ces mots semblaient hanter son esprit jusqu'à ce que sa vie s'éteigne et qu'il devienne l'une des âmes principales du drapeau des âmes.
 
-Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant toute la Secte de l'Affinement de l'Âme. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi les disciples de la Secte. Un homme d'apparence tout à fait ordinaire.
+Son sens divin se déploya une dernière fois à l'instant de son trépas, embrassant toute la Secte de l'Affinement de l'Âme. Il aperçut un homme qui s'était enfui d'un lieu lointain pour se fondre parmi la foule de ceux qui désiraient entrer dans la Secte. Un homme d'apparence tout à fait ordinaire.
 
 À cet instant, le sens divin de Nian Tian trembla comme jamais auparavant. Il fut stupéfait de découvrir que cet homme était l'érudit qu'il avait interrogé des siècles plus tôt!
 
-Emporté par la confusion et une conjecture inimaginable, son sens divin se dissipa. Son âme devint une partie du drapeau des âmes...
+Emporté par la confusion et une conjecture inimaginable, son sens divin se dissipa. Son Âme Naissante devint une âme du grand drapeau des âmes...
 
 Wang Lin fut ramené à la ville de Zhao et se tint près de l'arbre, à l'extérieur de la zone d'examen. Grande Fortune dormait encore là. Tout ce qui s'était produit semblait n'être qu'un rêve.
 
@@ -34,7 +34,7 @@ En voyant son nom, Wang Lin ne ressentit aucune excitation. Il consulta calmemen
 
 Ce qui exaltait tant Grande Fortune n'était pas la présence de Wang Lin au classement, mais bien cet argent.
 
-Ses expériences durant ce court mois avaient transformé Wang Lin sans qu'il s'en aperçoive — ou plutôt, on pourrait dire qu'il avait toujours dû être ainsi. Ces rêves persistaient chaque nuit, et il s'y était désormais habitué.
+Ses expériences durant ce peu plus d'un mois avaient transformé Wang Lin sans qu'il s'en aperçoive — ou plutôt, on pourrait dire qu'il avait toujours dû être ainsi. Ces rêves persistaient chaque nuit, et il s'y était désormais habitué.
 
 Sa mentalité avait évolué. Il ne se sentait plus égaré; la confusion et l'inquiétude face à l'échec de l'examen avaient disparu.
 
@@ -44,7 +44,7 @@ Rien n'avait d'importance, seul le cœur demeurait immuable. Son cœur était au
 
 L'aura d'un grand érudit se manifestait désormais sur lui. Parmi les innombrables lettrés, son dos droit et son regard serein le faisaient ressortir telle une perle.
 
-À l'instar des cultivateurs qui contemplent froidement leurs pairs!
+En tant qu'immortel, il contemplerait froidement les autres cultivateurs; en tant que mortel, il serait tout autant un génie parmi les hommes!
 
 « La vie est un rêve. Je ne souhaite pas m'éveiller de ce songe. » Tandis que de nombreux érudits célébraient ou sombraient dans la mélancolie, Wang Lin quitta la ville avec Grande Fortune.
 
@@ -84,7 +84,7 @@ Le Grand Érudit, Su Dao, avait aimé ce breuvage dès sa jeunesse, le consomman
 
 Le voyage de deux mois passa en un clin d'œil. Wang Lin et Grande Fortune voyageaient dans une humble calèche en direction de Su. Wang Lin buvait le vin acheté en chemin tout en observant le paysage. Parfois, ses rires émanant de son ivresse légère résonnaient dans l'habitacle.
 
-« Jeune Maître, ne buvez plus! La quantité que vous consommez est effrayante. Cela ne fait que deux mois, seulement deux mois! Regardez tout ce que vous avez déjà englouti! Presque toute notre argent est partie dans votre ivresse! » s'exclama Grande Fortune, exprimant son désespoir le plus total.
+« Jeune Maître, ne buvez plus! La quantité que vous consommez est effrayante. Cela ne fait que deux mois, seulement deux mois! Regardez tout ce que vous avez déjà englouti! Presque tout notre argent est parti dans votre ivresse! » s'exclama Grande Fortune, exprimant son désespoir le plus total.
 
 « Si vous continuez ainsi, même une fois arrivés à Su, il ne nous restera rien pour payer une auberge! Qui vous a dit de boire autant? » Les remontrances de Grande Fortune étaient devenues quotidiennes durant ce voyage.
 
@@ -112,7 +112,7 @@ Le crépuscule s'installait sur la ville de Su et la lune commençait à poindre
 
 « Jeune Maître, qui attendons-nous? » Grande Fortune jeta un regard furtif vers des femmes dansant sur une jonque. Il déglutit, les yeux brillants de convoitise.
 
-Wang Lin resta calme et murmura: « J'attends une personne de mon rêve. Elle viendra m'offrir un pichet de vin. Si elle se présente, cela confirmera l'une de mes conjectures. »
+Wang Lin resta calme et murmura: « J'attends une personne de mon rêve. Il viendra m'offrir un pichet de vin. S'il se présente, cela confirmera l'une de mes conjectures. »
 
 Regardant la cruche vide dans la main de Wang Lin, Grande Fortune demanda prudemment: « Nous allons rester plantés là à attendre? Peut-être devrions-nous d'abord chercher une auberge bon marché... » Il craignait par-dessus tout que Wang Lin ne l'envoie racheter du vin.
 

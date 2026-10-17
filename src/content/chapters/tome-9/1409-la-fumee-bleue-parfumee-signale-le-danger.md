@@ -46,7 +46,7 @@ Un Oiseau Vermillon apparut au cœur des flammes noires. L'oiseau était immense
 
 Le cri de l'Oiseau Vermillon résonna à travers le monde entier. Il pénétra l'Épreuve Humaine et se propagea depuis le bâton d'encens sur le dos de la tortue. Il ébranla la Planète du Grand Empereur tout entière!
 
-Le bel homme élégant attendait depuis plusieurs jours, mais il n'avait montré aucune impatience. Il venait de sortir une autre pêche et s'apprêtait à la manger quand son corps fut parcouru d'un tremblement. Il fixa le premier bâton d'encens!
+Le Maître du Dao Miao Yin, élégant comme un jeune homme, attendait depuis plusieurs jours, mais il n'avait montré aucune impatience. Il venait de sortir une autre pêche et s'apprêtait à la manger quand son corps fut parcouru d'un tremblement. Il fixa le premier bâton d'encens!
 
 Le cri du Oiseau Vermillon résonna aux quatre coins du monde!
 
@@ -58,7 +58,7 @@ Le cri de ce Oiseau Vermillon n'avait effectivement rien d'ordinaire. Il contena
 
 « Impossible! La Grande Maîtresse Yun Luo avait prévu que ce petit bâtard ferait face à une épreuve de vie ou de mort extrêmement difficile à surmonter! » L'expression du Maître Simo changea radicalement alors qu'il fixait le premier bâton d'encens.
 
-Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa main droite, dissimulée sous sa manche, s'agita avec une telle rapidité qu'elle créa des images rémanentes. Cependant, ses doigts tremblèrent et l'extrémité de ses ongles se déchira, laissant jaillir le sang. C'était comme si une force avait stoppé sa divination! Ou bien la situation actuelle de Wang Lin dépassait les capacités de son pouvoir divinatoire!
+Le visage de la Grande Maîtresse Yun Luo afficha également un choc profond. Sa main droite, dissimulée sous sa manche, s'agita avec une telle rapidité qu'elle créa des images rémanentes. Cependant, ses doigts tremblèrent et les empreintes de ses cinq doigts se déchirèrent, laissant jaillir le sang. C'était comme si une force avait stoppé sa divination! Ou bien la situation actuelle de Wang Lin dépassait les capacités de son pouvoir divinatoire!
 
 Le vieux Oiseau Vermillon laissa paraître une pointe d'excitation et éclata d'un rire. Ses yeux s'illuminèrent. En tant que deuxième génération de l'Oiseau Vermillon, il comprenait parfaitement ce cri. Rien qu'en l'entendant, il pouvait comprendre ce qui se jouait au sein de l'Épreuve Humaine!
 
@@ -106,7 +106,7 @@ La combustion était d'une intensité extrême. De loin, le feu paraissait monst
 
 Comparée aux deux autres bâtons d'encens, cette scène était proprement stupéfiante!
 
-Juste au moment où les dix mille cultivateurs pensaient que l'encens allait se consumer totalement, le feu s'interrompit brusquement.
+Juste au moment où les dizaines de milliers de cultivateurs pensaient que l'encens allait se consumer totalement, le feu s'interrompit brusquement.
 
 Cette pause sembla fusionner avec l'esprit de tous les cultivateurs environnants, faisant trembler leurs cœurs!
 
@@ -120,11 +120,11 @@ Le visage de la Grande Maîtresse Yun Luo était blême, et une ombre de mélanc
 
 « Neuf rétributions karmiques, venez! »
 
-Les neuf rétributions karmiques étaient le châtiment du feu du karma. La première génération de l'Oiseau Vermillon avait perdu la vie face à cette épreuve. Sans la protection de l'Empereur Céleste, il aurait péri.
+Les neuf rétributions karmiques étaient le châtiment du feu du karma. La première génération de l'Oiseau Vermillon avait failli perdre la vie face à cette épreuve. Sans la protection de l'Empereur Céleste, il aurait péri.
 
 À cet instant, Wang Lin allait affronter les neuf rétributions en tant que sixième génération de l'Oiseau Vermillon, sans personne pour le protéger!
 
-Des feux rouges, orangés, jaunes, verts, bleus, indigo et violets apparurent dans le monde, encadrés par le blanc et le noir. Ces neuf couleurs représentaient les neuf rétributions. Le cycle commençait et se terminait par le feu noir, formant une boucle parfaite.
+Des feux rouges, orangés, jaunes, verts, indigo, bleus et violets apparurent dans le monde, encadrés par le blanc et le noir. Ces neuf couleurs représentaient les neuf rétributions. Le cycle commençait et se terminait par le feu noir, formant une boucle parfaite.
 
 S'il parvenait à toutes les franchir, il pourrait enflammer le feu karmique, permettant ainsi à l'Oiseau Vermillon de s'éveiller pour la quatrième fois. Son feu corporel entrerait alors dans le domaine du Feu Éthéré!
 

@@ -22,7 +22,7 @@ C'était une planète imprégnée d'énergie spirituelle; même la planète Tian
 
 Ces cinq anneaux s'intersectaient, évoquant une fleur en pleine éclosion. De loin, la planète était d'une beauté saisissante.
 
-Les mortels étaient nombreux sur cette planète; on comptait probablement un milliard d'âmes. Ils menaient une vie paisible, épargnée par les guerres, ce qui était une rareté dans le Vide Brillant.
+Les mortels étaient nombreux sur cette planète; on comptait probablement plus d'un milliard d'âmes. Ils menaient une vie paisible, épargnée par les guerres, ce qui était une rareté dans le Vide Brillant.
 
 Il semblait que la richesse de l'énergie spirituelle protégeait les mortels de la maladie. La plupart possédaient des corps sains et une grande beauté. De plus, au fil des générations, de plus en plus de mortels dotés d'un talent pour la culture apparaissaient.
 
@@ -32,11 +32,11 @@ Il n'existait qu'une seule secte sur la Planète des Cinq Éléments: la Secte G
 
 Dans le Vide Brillant, la Planète des Cinq Éléments était une anomalie. Bien qu'elle fût située dans ce système stellaire, elle était difficile à débusquer. Sans les coordonnées exactes de l'Alliance de la Culture, il était presque impossible de la localiser. Même en utilisant son Sens Divin, on n'y percevait que le vide, tout comme pour la Bête des Limbes.
 
-C'est grâce à cela que la planète avait échappé aux deux guerres. Cependant, l'imprévu survient toujours. Lors de la guerre entre les Royaumes Intérieur et Extérieur, un groupe de cultivateurs du Royaume Extérieur pénétra accidentellement sur la planète. Ils n'en ressortirent jamais.
+C'est grâce à cela que la planète avait échappé aux deux guerres. Cependant, l'imprévu survient toujours. Lors de la guerre entre les Royaumes Intérieur et Extérieur, un groupe de plusieurs centaines de cultivateurs du Royaume Extérieur pénétra accidentellement sur la planète. Ils n'en ressortirent jamais.
 
 Telle était la Planète des Cinq Éléments: mystérieuse et insondable.
 
-Wang Lin possédait l'emplacement de la Planète des Cinq Éléments. Na Duo lui l'avait transmis autrefois en l'invitant sur sa planète. Wang Lin tenait le jade, déterminant avec précaution ses coordonnées.
+Wang Lin possédait l'emplacement de la Planète des Cinq Éléments. Na Duo le lui avait transmis autrefois en l'invitant sur sa planète. Wang Lin tenait le jade, déterminant avec précaution ses coordonnées.
 
 « L'invitation de Na Duo remonte à plus de 1 000 ans. Beaucoup de choses peuvent changer en un millénaire... » Le Sens Divin de Wang Lin se retira du jade. La Bête des Limbes flottait vers l'avant.
 
@@ -72,7 +72,7 @@ Wang Lin restait immobile devant les anneaux, attendant une réponse.
 
 Après un long moment, une voix rauque s'éleva de la planète, empreinte de choc, d'horreur et d'une terreur contenue.
 
-« L'Ancien Na Duo est en culture de méditation fermée et ne sortira pas. Nous n'avons aucun moyen de l'interrompre. Pourquoi le cherchez-vous? »
+« L'Ancien Na Duo est en culture de méditation fermée depuis mille ans, il ne s'occupe plus des affaires du monde et ne sortira pas. Nous n'avons aucun moyen de l'interrompre. Pourquoi le cherchez-vous? »
 
 Wang Lin réfléchit un instant puis secoua la tête. Il demanda doucement: « Qui êtes-vous? »
 
@@ -100,7 +100,7 @@ Au centre de ces neuf montagnes s'élevait une tour gigantesque. Plus haute enco
 
 À cet instant, des faisceaux de lumière jaillirent des trente premiers étages pour se rassembler. Chaque rayon représentait un cultivateur aux niveaux variés; la plupart étaient au premier stade de culture, et rares étaient ceux ayant atteint le second. Tous regardaient le ciel avec dédain.
 
-Peu après, près de cent autres cultivateurs émergèrent des étages suivants. Il s'agissait principalement de vieillards, pour la plupart au second stade. Ils occupaient calmement quatre des neuf pics et levaient les yeux vers le ciel, l'expression tout aussi méprisante.
+Peu après, près de cent autres cultivateurs émergèrent des étages suivants. Il s'agissait principalement de vieillards, pour la plupart au second stade. Ils occupaient calmement les neuf pics alentour et levaient les yeux vers le ciel, l'expression tout aussi méprisante.
 
 Ils ne croyaient pas qu'un être puisse franchir si aisément la formation de protection planétaire de la Secte Gui Yi!
 
@@ -108,4 +108,4 @@ Au sommet des dix derniers étages siégeaient quatre individus. L'un d'eux, vê
 
 « Qu'importe s'il s'agit de Wang Lin? Hormis l'âme de Sept-Couleurs, personne dans le Monde des Grottes ne nous fait peur! Même si j'entrais dans la Formation des Cinq Éléments, je ne tiendrais qu'un bâton d'encens avant d'être stoppé par l'épreuve du feu. Bien que sa culture soit supérieure à la mienne, il lui sera impossible de franchir les cinq épreuves! »
 
-À ses côtés, une femme d'âge moyen esquissa un rire strident et malicieux. « J'espère qu'il réussira les cinq épreuves pour activer la formation complète et déclencher le Cycle des Neuf Cycles des Cinq Éléments. Je veux voir combien de cycles il pourra endurer... »
+À ses côtés, une femme d'âge moyen esquissa un rire strident et malicieux. « J'espère qu'il réussira les cinq épreuves pour activer la formation complète et déclencher l'Art des Neuf Cycles de l'Unification des Cinq Éléments. Je veux voir combien de cycles il pourra endurer... »

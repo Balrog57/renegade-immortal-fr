@@ -8,9 +8,9 @@ slug: mon-cur-semeut
 ---
 Au moment où Wang Lin vit la planète tourner, au neuvième étage de la tour, l'expression sombre sur le visage du vieil homme en robe dorée disparut pour laisser place à un sourire.
 
-« La Roue Cœur des Neuf Cycles. Même sur le Continent Astral Immortel, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser! »
+« La Roue du Cœur aux Neuf Cycles. Même sur le Continent Astral Immortel, très peu de gens peuvent la briser. Le point central de cette formation est le cœur. Plus les battements du cœur s'accélèrent, plus elle devient difficile à briser! »
 
-« Vous avez dit que cet homme était très rusé et très intelligent. De nombreuses années ont passé, et non seulement il n'est pas mort, mais son niveau de culture a considérablement augmenté. Il doit avoir traversé de nombreuses situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'un démon! »
+« Vous avez dit que cet homme était très rusé et très intelligent dès la planète Suzaku. De nombreuses années ont passé, et non seulement il n'est pas mort, mais son niveau de culture a considérablement augmenté. Il doit avoir traversé de nombreuses situations de vie ou de mort, et son esprit a été affiné pour ressembler à celui d'un démon! »
 
 « Plus une personne est intelligente, plus il lui est difficile de s’en libérer! Ce n'est que le premier cycle; plus on avance, plus son potentiel destructeur est grand. Une fois qu'il atteindra les neuf cycles, il sera piégé là pour la vie, jusqu'à ce que son énergie mentale soit épuisée et qu'il meure! »
 
@@ -20,7 +20,7 @@ Le vieil homme en robe dorée rit et regarda son bras droit. Une pointe de cruau
 
 À l'extérieur de la planète, le Grand Empyréen Xuan Luo, qui observait la scène depuis le début, plissa les yeux.
 
-« La puissance de cette Roue Cœur des Neuf Cycles est moyenne, mais elle est difficile à briser pour ceux qui n'en comprennent pas la nature... Je crains que cet enfant ne puisse s'en sortir... Peu importe, je vais observer encore un peu. S'il est vraiment piégé, je le sauverai. »
+« La puissance de cette Roue du Cœur aux Neuf Cycles est moyenne, mais elle est difficile à briser pour ceux qui n'en comprennent pas la nature... Je crains que cet enfant ne puisse s'en sortir... Peu importe, je vais observer encore un peu. S'il est vraiment piégé, je le sauverai. »
 
 Le Grand Empyréen Xuan Luo secoua doucement la tête. Il ne s'attendait pas à ce que Wang Lin brise la célèbre formation de la Secte Gui Yi, mais une infime lueur d'espoir subsistait dans son cœur.
 
@@ -72,11 +72,11 @@ Mais dès que la folie surgit, la vitesse du vortex augmenta considérablement. 
 
 Au neuvième étage de la tour, le vieil homme en robe dorée rit en voyant cela. Ses yeux brillaient de cruauté et de joie. Il jeta un regard méprisant vers l'extérieur de la tour.
 
-« Il est déjà entré dans le cinquième cycle, il ne peut plus s'échapper. Même si j'y entrais, je ne pourrais plus pénétrer après le cinquième cycle. Il ne lui reste qu'à laisser sa formation épuiser son esprit et gaspiller toute sa force vitale! »
+« Il est déjà entré dans le cinquième cycle, il ne peut plus s'échapper. Même si j'y entrais moi-même, une fois au cinquième cycle, je ne pourrais absolument plus m'en échapper. Il ne peut que s'y épuiser l'esprit et laisser la rotation consumer toute sa longévité jusqu'à la mort! »
 
 « Cet homme veut s'introduire sur ma planète des Cinq Éléments? Il est bien trop arrogant! »
 
-Na Duo sourit également, mais une peur persistante demeurait dans ses yeux. Il ne comprenait pas la Roue Cœur des Neuf Cycles aussi bien que le vieil homme, mais il l'avait lui-même expérimentée il y a longtemps.
+Na Duo sourit également, mais une peur persistante demeurait dans ses yeux. Il ne comprenait pas la Roue du Cœur aux Neuf Cycles aussi bien que le vieil homme, mais il l'avait lui-même expérimentée il y a longtemps.
 
 Il connaissait parfaitement la terreur de cette formation. Il était tombé dans le coma lors du troisième cycle et n'avait été sauvé que par l'Ancêtre. Il lui avait fallu un temps considérable pour s'en remettre. Depuis, il ne ressentait envers cette formation qu'une crainte révérencielle.
 
@@ -84,13 +84,13 @@ Il connaissait parfaitement la terreur de cette formation. Il était tombé dans
 
 « Toujours pas aussi impressionnant que prévu. Même une faible attente peut se transformer en déception. Il est déjà rare qu'il tienne jusqu'au cinquième cycle... Je vais le laisser expérimenter encore un peu, et lorsqu'il atteindra le neuvième cycle, j'interviendrai. » Le Grand Empyréen Xuan Luo ressentait une certaine déception, mais il comprenait que s'il avait tenté de pénétrer cette célèbre formation sans préparation avant de devenir un Grand Empyréen, il aurait été dans un état similaire.
 
-Le visage de Wang Lin était d'une pâleur mortelle. À la neuvième respiration du neuvième cycle, il cracha du sang. Cela était dû à l'épuisement de son esprit. Son corps commença à tourner lentement, mais il parvint à stopper le mouvement par la force.
+Le visage de Wang Lin était d'une pâleur mortelle. À la neuvième respiration du cinquième cycle, il cracha du sang. Cela était dû à l'épuisement de son esprit. Son corps commença à tourner lentement, mais il parvint à stopper le mouvement par la force.
 
 Les veines de son visage saillirent, et l'irritation ainsi que la folie envahirent son esprit. Il fixa le vortex qui s'apprêtait à atteindre sa limite de rotation et resta immobile.
 
-Il savait que, qu'il le veuille ou non, le vortex serait toujours là.
+Il savait que, qu'il regarde ou non, le vortex serait toujours là.
 
-Il comprit que, qu'il y réfléchisse ou non, le vortex demeurerait! Il avait conscience que si son corps tournait avec la planète, son esprit serait aspiré à l'intérieur. Une fois son esprit totalement épuisé, seule la mort l'attendrait!
+Il comprit que, qu'il y pense ou non, le vortex demeurerait! Il avait conscience que si son corps tournait avec la planète, son esprit serait aspiré à l'intérieur. Une fois son esprit totalement épuisé, seule la mort l'attendrait!
 
 « Toutes les neuf respirations, la rotation de la planète augmente soudainement... » Wang Lin endura le vertige et la douleur tout en forçant son esprit à se calmer pour réfléchir.
 
@@ -112,4 +112,4 @@ De même, à l'extérieur de la planète, le Grand Empyréen Xuan Luo secouait l
 
 À l'intérieur de la formation, lorsque la première respiration du neuvième cycle arriva, Wang Lin ferma soudainement les yeux.
 
-« Mon cœur s’émeut... Mon cœur s'est ému! Mon cœur a été agité, et par conséquent, mon corps, mon âme et tout le reste, y compris la planète, sont en mouvement... Tout cela arrive parce que mon cœur n'est pas calme! » Les veines pulsantes dans les yeux de Wang Lin disparurent et la folie s'évanouit. Toute irritation s'effaça et son cœur devint aussi calme que l'eau d'un lac.
+« Mon cœur s’émeut... Mon cœur s'est ému! Mon cœur a été agité, et par conséquent, mon corps, mon âme et tout le reste, y compris la planète, sont en mouvement... Tout cela arrive parce que mon cœur n'est pas calme! » Les filaments de sang dans les yeux de Wang Lin disparurent et la folie s'évanouit. Toute irritation s'effaça et son cœur devint aussi calme que l'eau d'un lac.

@@ -10,7 +10,7 @@ slug: leffet-karmique-de-la-secte-du-raffinement-de-lame
 
 « Hein! » Ses yeux se plissèrent et ses mains formèrent un sceau. Il commença à diviner avec frénésie.
 
-« C'est... C'est... Ceci est... » L'expression de l'homme changeait à une vitesse fulgurante. Il consuma d'importantes quantités de force vitale et divina neuf fois, mais le résultat fut identique à chacune des neuf tentatives!
+« C'est... C'est... Ceci est... » L'expression de l'homme changeait à une vitesse fulgurante. Il consuma d'importantes quantités de durée de vie et de force vitale en divinant neuf fois d'affilée, mais les neuf résultats furent identiques!
 
 C'était un résultat incroyable, voire absurde, pour lui!
 
@@ -36,7 +36,7 @@ Les pensées de Wang Lin s'enfoncèrent dans son esprit à l'apparition du solei
 
 Il se massa le front et regarda Grande Fortune. En voyant le sourire de ce dernier, il se sentit heureux lui aussi.
 
-« Tu es puissant. C'est ton rêve qui a fait disparaître l'orage, d'accord? »
+« Tu es puissant. C'est toi qui, en rêve, es monté au palais céleste pour faire disparaître l'orage, d'accord? »
 
 Grande Fortune devint tout excité et se sentit encore plus fier.
 
@@ -48,7 +48,7 @@ Wang Lin ne voulait pas échouer; il ne pouvait supporter l'idée de voir l'expr
 
 Grande Fortune s'était ennuyé durant ces cinq jours. Très actif, il était sorti seul pendant que Wang Lin étudiait. Il avait erré dans la ville et avait progressivement fait des rencontres. Il avait même réussi à devenir encore plus avare.
 
-Le sixième jour, Wang Lin prit un bain et brûla un peu d'encens. Il enfila ensuite une robe blanche d'érudit et poussa un soupir de soulagement. Il mit son sac en bambou sur ses épaules et marcha vers le centre d'examen.
+Le sixième jour, Wang Lin prit un bain et brûla un peu d'encens. Il enfila ensuite une robe blanche d'érudit et poussa un soupir de soulagement. Grande Fortune mit le sac en bambou sur son dos, et ils quittèrent l'auberge pour marcher vers le centre d'examen.
 
 Il se dirigeait vers le troisième centre, situé à l'ouest de la ville. La rue était très animée et des étals bordaient les deux côtés de la route. Ces derniers avaient été installés tôt pour que les candidats puissent acheter de quoi manger.
 

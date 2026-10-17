@@ -58,9 +58,9 @@ Ils ne cultivaient pas, ils hurlaient de douleur! Leurs gémissements fusionnaie
 
 Ce hurlement ne pouvait être entendu hors du Royaume aux Sept Couleurs, mais il s'engouffrait directement dans l'esprit de quiconque se trouvait à l'intérieur. C'étaient les cris de lutte de 100 000 fantômes. Le son était si puissant qu'il pourrait ébranler le monde lui-même.
 
-Chaque cultivateur avait d'innombrables épines acérées lui transperçant le corps. Ils ne semblaient nullement être en pleine culture, mais plutôt avoir été forcés de maintenir cette position, les épines les emprisonnant!
+Chaque cultivateur avait plusieurs épines de pierre acérées lui transperçant le corps. Ils ne semblaient nullement être en pleine culture, mais plutôt avoir été forcés de maintenir cette position, les épines les emprisonnant!
 
-Chaque cultivateur gardait la tête levée, ses yeux évidés fixés vers le ciel tandis qu'il poussait des cris inconscients.
+Chaque cultivateur gardait la tête levée, ses yeux sans éclat fixés vers le ciel tandis qu'il poussait des cris inconscients.
 
 Le sang frais semblait couler sans fin des corps des cultivateurs le long des pentes, comme s'il ne pourrait jamais se tarir.
 
@@ -108,6 +108,6 @@ De là, il pouvait clairement voir que les 100 000 montagnes n'étaient pas reli
 
 On pourrait dire que ces montagnes n'étaient pas des montagnes du tout, mais les pointes de cette Tortue Noire incroyablement gigantesque!
 
-La Tortue Noire était assez vaste pour remplir tout le Royaume aux Sept Couleurs. Au sommet de la créature siégeait un homme d'âge moyen, dont le corps dégageait une aura antique. Tandis qu'il restait là, il n'émettait aucune trace de vie.
+La Tortue Noire était assez vaste pour remplir tout le Royaume aux Sept Couleurs. Sur la tête redoutable de la créature, au loin, siégeait un homme d'âge moyen, dont le corps dégageait une aura antique. Tandis qu'il restait là, il n'émettait aucune trace de vie.
 
 Son corps semblait fusionné avec la Tortue Noire, et une épine de trois pouces dépassait de sa tête. En regardant de plus près, on pouvait voir que l'épine transperçait l'intégralité de son corps, et que seuls trois pouces en dépassaient!

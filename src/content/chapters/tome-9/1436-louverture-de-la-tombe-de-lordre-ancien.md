@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1436 - Ancient Order Tomb Opens!"
 slug: louverture-de-la-tombe-de-lordre-ancien
 ---
-Un vortex tourbillonnant, chargé d'une aura de mort émanant de la Tombe de l'Ordre Ancien, jaillit violemment. Une rancœur dense s'échappait également des têtes de tous les anciens dieux, anciens démons et anciens diables disposés sur les plateformes de pierre à l'intérieur!
+Un vortex tourbillonnant, chargé d'une aura de mort émanant de la Tombe de l'Ordre Ancien, jaillit violemment. Une rancœur dense s'échappait également des têtes de tous les anciens dieux, anciens diables et anciens démons disposés sur les plateformes de pierre à l'intérieur!
 
 Ces énergies fusionnèrent, provoquant une tempête qui se déchaîna avec fureur, tentant de déchirer le brouillard environnant!
 
-Le dense brouillard qui remplissait l'espace d'un million de kilomètres autour de la faille fut repoussé par cette tempête. Un grondement tonitruant retentit, d'abord faible, puis s'intensifiant sans cesse jusqu'à faire trembler l'intégralité du domaine stellaire!
+Le dense brouillard qui s'étendait sur 100 000 kilomètres autour de la faille fut repoussé par cette tempête. Un grondement tonitruant retentit, d'abord faible, puis s'intensifiant sans cesse jusqu'à faire trembler l'intégralité du domaine stellaire!
 
 Le brouillard se mit à bouillonner comme s'il abritait un esprit, balayant les étoiles avec une rage infinie.
 
@@ -30,11 +30,11 @@ Des scènes similaires se reproduisirent partout à mesure que la brume progress
 
 Le brouillard continua de s'étendre violemment: 100 000 kilomètres, 300 000 kilomètres, 500 000 kilomètres, 1 000 000 de kilomètres... sans aucune pause!
 
-Deux millions, trois millions, cinq millions de kilomètres... jusqu'à dépasser les 10 millions, puis les 100 millions de kilomètres!
+Deux millions, trois millions, cinq millions de kilomètres... jusqu'à 10 millions, puis plusieurs dizaines de millions de kilomètres!
 
 Tandis que la tempête se propageait, de nombreux cultivateurs furent réduits en squelettes et en cendres... Tout cela se produisit en un instant; c'était une véritable calamité!
 
-Cependant, tous les cultivateurs capturés par le brouillard ne périrent pas. Environ un sur dix fut dévoré par la brume sans être blessé; au contraire, une vitalité infinie leur fut injectée, comme s'ils regagnaient des milliers d'années de jeunesse. Une étrange marque apparut également à côté de leurs marques de clan!
+Cependant, tous les cultivateurs capturés par le brouillard ne périrent pas. Environ un sur dix fut dévoré par la brume sans être blessé; au contraire, une vitalité infinie leur fut injectée, comme s'ils avaient rajeuni de mille ans. Une étrange marque apparut également à côté de la marque de leur front!
 
 Cette marque ressemblait à un chiffre!
 
@@ -74,11 +74,11 @@ Cependant, à cet instant précis, une marque numérique apparut entre ses sourc
 
 « Je comprends... Les cultivateurs de la troisième étape peuvent résister à cette force, mais le début du Nirvana Vide est le niveau de culture le plus élevé capable d'entrer dans la Tombe de l'Ordre Ancien! »
 
-Des scènes similaires se produisaient dans ce brouillard qui s'étendait sur des centaines de millions de kilomètres!
+Des scènes similaires se produisaient dans ce brouillard qui s'étendait sur des dizaines de millions de kilomètres!
 
 Dans la partie occidentale, une créature gigantesque de la taille d'une planète de culture se trouvait là: le Serpent aux yeux de lune! Sur son dos siégeait le vieil homme au tatouage Yin et Yang. Il observa la brume et ses yeux s'illuminèrent, car il avait lui aussi percé le mystère du brouillard. Sa main traça rapidement un sceau et pointa entre ses sourcils. Trois fragments de son âme originelle s'envolèrent!
 
-Ils chargèrent respectueusement Wudong Chan, Ji Xiantian et le Serpent aux yeux de lune.
+Elles s'engouffrèrent dans Wudong Chan, Ji Xiantian et le Serpent aux yeux de lune.
 
 Après cela, le visage du vieil homme pâlit et il se retira prestement. Il rugit: « Wudong Chan, Ji Xiantian et Serpent aux yeux de lune! Vous trois entrerez dans la Tombe de l'Ordre Ancien! »
 
@@ -94,7 +94,7 @@ Le corps du vieil homme trembla puis disparut dans la brume dans un cri déchira
 
 L'Illustre Grande Désolation, le visage livide, quitta la zone de brouillard.
 
-Les cultivateurs de la troisième étape utilisèrent tous leurs sorts, mais sans aucun effet. Le grondement du brouillard continuait de s'étendre, sans fin apparente!
+Les grands cultivateurs de la troisième étape déployèrent chacun leurs pouvoirs, qu'il serait trop long de détailler un à un. Le brouillard en ébullition, après s'être étendu sur des dizaines de millions de kilomètres, ne s'arrêta pas et se propagea de nouveau, sans fin apparente!
 
 À ce moment-là, Wang Lin sortit d'une distorsion spatiale. Il n'hésita pas à charger en avant, mais après seulement mille pieds, ses pupilles se rétractèrent. Il vit le brouillard avancer au loin comme une vague monstrueuse vers lui!
 
@@ -106,12 +106,12 @@ Cependant, une marque grise était dissimulée sur l'épaule de l'homme corpulen
 
 Dès son apparition, l'homme vit la tempête devant lui et son expression changea. Il sembla hésiter un instant, puis il chargea vers Wang Lin. Sa main droite traça un sceau tandis que des hurlements de loups résonnaient autour de lui.
 
-« Dao du Loup Extrême des Huit Directions! » rugit l'homme corpulent. L'espace gronda et huit loups géants de 10 000 pieds apparurent, chargeant tous vers Wang Lin.
+« Dao du Loup Extrême des Huit Directions! » rugit l'homme corpulent. L'espace gronda et huit loups spectraux de plusieurs dizaines de milliers de pieds apparurent, chargeant tous vers Wang Lin.
 
-Les yeux de Wang Lin s'illuminèrent et il fonça comme une météorite. Il était extrêmement rapide, mais le brouillard l'était plus encore. Arrivant en un éclair telle une vague de colère, la brume dévora immédiatement Wang Lin avant même qu'il ne puisse entrer en collision avec les huit loups.
+Les yeux de Wang Lin s'illuminèrent et il fonça comme une météorite. Il était extrêmement rapide, mais le brouillard l'était plus encore. Arrivant en un éclair telle une vague de colère, la brume dévora immédiatement Wang Lin puis, dans son élan, entra en collision avec les huit loups.
 
 *Grondement, grondement, grondement!* Les bruits d'effondrement furent étouffés par le grondement du brouillard, et les huit loups se désintégrèrent. La tempête rugit et dévora l'homme corpulent, faisant changer son expression.
 
-Cet homme ignorait la nature de ce brouillard étrange, mais il sentait la puissance qui s'en dégageait. Il battit en retraite rapidement, mais il était trop lent face à la brume, malgré son niveau au début du Nirvana Vide. À cet instant, une marque numérique apparut entre ses sourcils!
+Cet homme ignorait la nature de ce brouillard étrange, mais il sentait la puissance qui s'en dégageait. Il battit en retraite rapidement, mais il était trop lent face à la brume. Son niveau étant déjà celui du début du Nirvana Vide, il n'avait pas besoin d'être affaibli: une marque numérique apparut soudain entre ses sourcils!
 
 Cependant, un cri plaintif retentit de son épaule droite!

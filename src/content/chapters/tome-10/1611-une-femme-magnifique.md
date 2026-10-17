@@ -138,12 +138,12 @@ Cet endroit était un rêve, mais pas seulement un rêve. Il avait été façonn
 
 Durant ces plusieurs dizaines d'années, les Royaumes Intérieur et Extérieur se déchiraient comme l'eau et le feu. Le Royaume Extérieur avait propagé la nouvelle de la mort du Seigneur du Royaume Scellé et utilisait toute sa puissance pour envahir le Royaume Intérieur.
 
-La barrière que Qing Lin avait érigée en empruntant la puissance de l'Ancien Royaume Céleste s'était effondrée il y a plus de 30 ans. D'innombrables cultivateurs du Royaume Extérieur s'étaient précipités, et la bataille faisait rage sans relâche. Les deux camps subissaient de lourdes pertes et le ciel était saturé de sang. L'odeur de la mort était d'une densité inimaginable et les quatre grands systèmes stellaires étaient devenus un véritable enfer.
+La barrière que Qing Lin avait érigée en empruntant une puissance antique s'était effondrée il y a plus de 30 ans. D'innombrables cultivateurs du Royaume Extérieur s'étaient précipités, et la bataille faisait rage sans relâche. Les deux camps subissaient de lourdes pertes et le ciel était saturé de sang. L'odeur de la mort était d'une densité inimaginable et les quatre grands systèmes stellaires étaient devenus un véritable enfer.
 
-Alors que la situation devenait de plus en plus désespérée, les cultivateurs du troisième niveau du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer des Nuages. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
+Alors que la situation devenait de plus en plus désespérée, les nombreux grands puissants du Royaume Intérieur abandonnèrent la Rivière Invoquée et la Mer des Nuages. Ils concentrèrent leurs forces à Luotian et dans le Vide Brillant pour leur ultime lutte.
 
 Alors que l'agonie s'accentuait, la rumeur de la mort du Seigneur du Royaume Scellé s'enracina. Bien que Qing Shui se soit transformé en Wang Lin, il avait été gravement blessé par le Maître Céleste Dieu du Vide et avait failli mourir il y a plus de 10 ans.
 
 En conséquence, la nouvelle de la mort du Seigneur du Royaume Scellé ne pouvait plus être contenue. Elle infligea un coup irrémédiable aux cultivateurs du Royaume Intérieur.
 
-Il y a un mois, le Vide Brillant fut confronté à un choix déchirant. Devaient-ils abandonner et se replier vers Luotian pour la bataille finale, ou rester dans le fief du Seigneur du Royaume Scellé? Rester sur la planète Suzaku et se battre jusqu'à la mort?!
+Il y a un mois, le Vide Brillant fut confronté à un choix déchirant. Devaient-ils abandonner et se replier vers Luotian pour la bataille finale, ou rester dans la terre natale du Seigneur du Royaume Scellé? Rester aux abords de la planète Suzaku et se battre jusqu'à la mort?!

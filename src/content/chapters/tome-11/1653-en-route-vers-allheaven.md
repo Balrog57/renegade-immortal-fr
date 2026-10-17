@@ -26,15 +26,15 @@ Le grand temple qui avait commencé à prendre forme vacilla et se couvrit de fi
 
 Du sang coula du coin de la bouche du vieil homme et la terreur se lut dans ses yeux. Il lutta pour pousser un rugissement avant de bondir. Ses mains formèrent un sceau et un vent noir se rassembla autour de lui pour engendrer une gueule gigantesque qui fonça sur la roue. On aurait dit qu'il cherchait à dévorer la roue elle-même!
 
-Wang Lin ne pouvait résumer cette action que par deux mots:
+Wang Lin ne pouvait résumer cette action que par quatre caractères:
 
 Une démesure suicidaire!
 
 Ce vieil homme s'était surestimé en osant tenter de dévorer la Formation de la Vie et de la Mort de Wang Lin. Il n'en était absolument pas digne! Une lueur de froideur passa dans les yeux de Wang Lin, qui laissa échapper un reniflement méprisant.
 
-Alors que la roue tournait, le vieil homme fut enveloppé par le vent noir et la gueule s'ouvrit encore davantage. Elle atteignit plus de 100 000 pieds de hauteur et parvint tout juste à engloutir la roue de la vie et de la mort.
+Alors que la roue tournait, le vieil homme fut enveloppé par le vent noir et la gueule s'ouvrit encore davantage. Elle atteignit plusieurs millions de pieds de hauteur et parvint tout juste à engloutir la roue de la vie et de la mort.
 
-Le vieil homme n'avait pas d'autre choix; il savait qu'il ne pourrait s'échapper. Puisque la mort était inévitable, il jouait le tout pour le tout. S'il réussissait, non seulement il survivrait, mais sa renommée serait éternelle!
+Le vieil homme n'avait pas d'autre choix; il savait qu'il ne pourrait s'échapper. Puisque la mort était inévitable, il jouait le tout pour le tout. S'il réussissait, non seulement il survivrait, mais sa renommée retentirait dans le monde entier!
 
 Dans un rugissement monstrueux, la gueule géante formée par le vieil homme dévora la roue de la vie et de la mort. Cependant, à cet instant précis, un cri déchirant jaillit de l'intérieur de la bouche. Une force terrifiante en éclata; une force contenant la vie et la mort, imprégnée de la puissance de suppression.
 
@@ -48,7 +48,7 @@ Au fond de la fosse, le corps du vieil homme était couvert de blessures et ses 
 
 Cependant, à cet instant précis, Wang Lin agita sa manche et pointa le doigt vers le bas. La roue immobile dans le ciel descendit de neuf pouces!
 
-Neuf pour la rétribution divine. Cette pression brisa le monde!
+Neuf pour la calamité. En s'abattant, cette pression fit s'effondrer le ciel et la terre!
 
 Alors qu'elle descendait, le vieil homme qui luttait pour se relever cracha à nouveau du sang. Écrasé par la pression croissante, il n'avait plus la force de lutter et fut plaqué contre la terre.
 
@@ -66,7 +66,7 @@ Au moment même où le vieil homme rendit l'âme, tous les autres cultivateurs d
 
 Une fois toute vie éteinte, le continent s'effondra totalement. Chaque fragment tombant s'écrasait à nouveau jusqu'à devenir poussière!
 
-Même la moitié du continent qui avait pénétré dans la Formation de Scellement du Royaume ne put échapper à ce sort. Elle aussi se changea en une poussière évanouissant les étoiles!
+Même la moitié du continent qui avait pénétré dans la Formation de Scellement du Royaume ne put échapper à ce sort. Elle aussi se changea en poussière et disparut à jamais sous les étoiles!
 
 Dès que Wang Lin ouvrit les yeux, des milliers de têtes, y compris celle du vieil homme de la troisième étape, volèrent vers lui. Elles rejoignirent la nuée de dizaines de milliers de crânes qui le suivaient.
 
@@ -110,10 +110,10 @@ Hormis le Souverain, l'homme d'âge moyen décédé et le Maître Céleste Dieu 
 
 Avec la présence de ces cultivateurs du Vide Arcanique, les cultivateurs du Royaume Intérieur ne pouvaient même pas tenter de détruire la formation planétaire par destruction mutuelle. Ils n'avaient d'autre choix que de regarder les planètes être anéanties une à une.
 
-Outre ces experts, sept autres cultivateurs de la troisième étape étaient présents. Leurs niveaux variaient du Vide Nirvana au Vide Esprit. C'étaient eux qui menaient les assauts du Royaume Extérieur depuis sept directions différentes.
+Outre ces experts, sept autres cultivateurs de la troisième étape étaient présents. Leurs niveaux variaient du Vide du Nirvana au Vide Spirituel. C'étaient eux qui menaient les assauts du Royaume Extérieur depuis sept directions différentes.
 
 Ces grondements tonitruants résonnaient dans tout Luotian et secouaient l'esprit de chacun.
 
 En plus de ces sept individus, une femme se trouvait parmi le groupe des cultivateurs du Royaume Extérieur. Cette femme était d'une grande beauté et contemplait la formation planétaire d'un regard froid, mais une pointe d'inquiétude se cachait dans ses yeux.
 
-C'était le corps originel du Grande Maîtresse Yun Luo, qui avait perdu son avatar!
+C'était le corps originel de la Grande Maîtresse Yun Luo, qui avait perdu son avatar!

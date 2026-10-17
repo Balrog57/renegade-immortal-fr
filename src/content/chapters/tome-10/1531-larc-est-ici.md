@@ -12,7 +12,7 @@ Alors que la Formation de Scellement du Royaume tremblait, l'écart de 500 pieds
 
 Wang Lin était dans un état de concentration extrême et semblait avoir oublié tout ce qui l'entourait, excepté la flèche blanche. Tandis qu'il reculait, son corps se dissipait rapidement.
 
-Une douleur intense irradia entre ses sourcils; c'était comme si une paire de mains invisibles cherchait à lui déchirer le crâne. La flèche blanche hurla en traversant la Formation de Scellement du Royaume et se trouvait à moins de 10 000 pieds de Wang Lin!
+Une douleur intense irradia entre ses sourcils; c'était comme si une paire de mains invisibles cherchait à lui déchirer le crâne. La flèche blanche hurla en traversant la Formation de Scellement du Royaume et se trouvait à moins de 1 000 pieds de Wang Lin!
 
 Le hurlement de la flèche était d'une aiguité extrême. L'intention meurtrière contenue dans ce son fit pâlir les cultivateurs du Royaume Intérieur.
 
@@ -32,7 +32,7 @@ Chacun de ses pas couvrait plusieurs dizaines de pieds dans un grondement assour
 
 Le sang continuait de couler durant cette retraite de 10 000 pieds. Déjà blessé, il voyait son état s'aggraver.
 
-Des grondements tonitruants retentirent une fois de plus. Wang Lin pénétra dans la zone où les cultivateurs du Royaume Extérieur étaient scellés par les Feuilles Ancestrales. Dès qu'il y entra, une épaisse brume noire jaillit de son dos. Aussitôt qu'un cultivateur du Royaume Extérieur touchait cette brume, son corps se flétrissait, toute sa force vitale ayant été drainée par Wang Lin.
+Des grondements tonitruants retentirent une fois de plus. Wang Lin pénétra dans la zone où les cultivateurs du Royaume Extérieur étaient scellés par les Feuilles Anciennes. Dès qu'il y entra, une épaisse brume noire jaillit de son dos. Aussitôt qu'un cultivateur du Royaume Extérieur touchait cette brume, son corps se flétrissait, toute sa force vitale ayant été drainée par Wang Lin.
 
 Tout cela se produisit en un éclair. Alors que Wang Lin résistait à la flèche par ce moyen, l'homme en blanc situé à l'extérieur de la Formation de Scellement du Royaume prit un air sombre et banda à nouveau l'arc!
 
@@ -70,7 +70,7 @@ Lors de la deuxième, le feu destructeur de l'Ombrelle Brûlante du Royaume conv
 
 Lors de la troisième respiration, la brume noire derrière Wang Lin se répandit follement vers les cultivateurs du Royaume Extérieur. Au terme de ces trois respirations, la flèche percuta le feu destructeur fusionné avec le sang ancestral de Wang Lin. La flèche se désintégra strate après strate, mais l'impact resta terrifiant.
 
-Après sa désintégration, la flèche ne conservait que 20 % de sa puissance originelle. Elle perça le barrage formé par la main de Wang Lin et fonça vers l'espace entre ses sourcils. Durant ce processus, elle se désintégra encore davantage jusqu'à n'être plus qu'à trois pouces du front de Wang Lin, ne représentant que 10 % de sa taille initiale.
+Après sa désintégration, la flèche ne conservait que 20 % de sa taille originelle. Elle perça le barrage formé par la main de Wang Lin et fonça vers l'espace entre ses sourcils. Durant ce processus, elle se désintégra encore davantage jusqu'à n'être plus qu'à trois pouces du front de Wang Lin, ne représentant que 10 % de sa taille initiale.
 
 Un fracas tonitruant retentit lorsque le minuscule résidu de la flèche heurta l'entre-sourcils de Wang Lin.
 
@@ -120,7 +120,7 @@ Il attendait cette opportunité depuis un certain temps. En vérité, il était 
 
 Alors que le démon ancien à 9 étoiles s'approchait du cultivateur en blanc, celui-ci se retourna soudainement avec un sourire qui n'en était pas un.
 
-« Le gros poisson ne vient pas, mais un petit poisson arrive! »
+« Le petit poisson n'est pas venu, mais un gros poisson arrive! »
 
 Une pression invisible se propagea depuis le Système Stellaire Antique. Elle se mua en une empreinte de paume invisible qui pressa silencieusement vers le bas.
 
@@ -134,7 +134,7 @@ La paume serra impitoyablement, et l'avatar du démon ancien s'effondra en une m
 
 Une douce lumière émanait de l'arc, dégageant une attraction capable de rendre fou!
 
-« Le Maître a ordonné d'accorder au Royaume Intérieur trois chances de saisir cet arc. Pour chaque tentative, vous devrez sacrifier 30 % de nos cultivateurs du Royaume Extérieur! Le voulez-vous ou non? »
+« Le Maître a ordonné d'accorder au Royaume Intérieur trois chances de saisir cet arc. Pour chaque tentative, vous devrez renvoyer 30 % de nos cultivateurs du Royaume Extérieur encore en vie! Le voulez-vous ou non? »
 
 Une intention meurtrière brûlait dans les yeux de Wang Lin. S'il n'avait pas fait de la Bête des Limbes sa bête d'essence vitale, l'ouverture de l'ombrelle aurait consommé 90 % de sa force vitale. Cependant, même avec la Bête des Limbes, il ne pouvait agir ainsi fréquemment. Bien que cette dernière possédât une vitalité quasi infinie, elle ne pourrait jamais supporter la consommation démente de l'ombrelle antique.
 

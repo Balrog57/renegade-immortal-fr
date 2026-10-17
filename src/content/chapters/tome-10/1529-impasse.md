@@ -64,7 +64,7 @@ Les yeux des cultivateurs de Luotian, des cultivatrices de la Rivière Invoquée
 
 Les cultivateurs du Royaume Extérieur ainsi scellés furent plongés dans le désespoir alors que le massacre se poursuivait. S'ils avaient su ce qui leur attendait, ils n'auraient jamais osé poser le pied dans le Royaume Intérieur!
 
-Juste avant que les restrictions ne jaillissent de la main droite de Wang Lin, un soupir provient du Système d'Étoiles Anciennes. Puis, une explosion de lumière bleue accompagna ce soupir!
+Juste avant que les restrictions ne jaillissent de la main droite de Wang Lin, un soupir provint du Système d'Étoiles Anciennes. Puis, une explosion de lumière bleue accompagna ce soupir!
 
 Une silhouette émergea lentement de cette lueur azurée!
 
@@ -88,7 +88,7 @@ Le vacarme du carnage s'estompa lentement. Hormis le Maître Hong Shan et ses co
 
 Wang Lin avait déjà imposé le respect de son identité de Seigneur du Royaume Scellé auprès des cultivateurs du Royaume Intérieur. Bien que son niveau de culture ne fût pas aussi élevé que celui du Maître Hong Shan, il était, à leurs yeux, digne de ce titre!
 
-Wang Lin réfléchit en silence face à l'homme d'âge mûr, puis, un instant plus tard, il joignit les mains, le regard déterminé. Il agita la main droite et des millions de restrictions apparurent, se condensant pour former une gigantesque armature d'ombrelle!
+Wang Lin réfléchit en silence face à l'homme d'âge mûr, puis, un instant plus tard, il s'inclina profondément devant lui, le regard déterminé. Il agita la main droite et des millions de restrictions apparurent, se condensant pour former une gigantesque armature d'ombrelle!
 
 Dès que cette structure apparut, l'ombrelle se déploya lentement et l'Ombrelle Brûlante du Royaume surgit soudainement!
 

@@ -42,7 +42,7 @@ Wang Lin ne perdit pas une seconde en paroles. Son énergie originelle s'activa 
 
 Une folie désespérée brûlait sous la peur dans ses yeux. Il hurlait tandis que Wang Lin procédait à la recherche d'âme.
 
-« Tu as détruit la planète Dong Ling et massacré des dizaines de milliers de personnes! Tu as offensé la famille Dong Ling, tu vas mourir!!! Pas seulement toi, mais tous tes proches seront anéantis!! Comment oses-tu me tuer?! »
+« Tu as détruit la planète Dong Ling et massacré des dizaines de milliers de personnes! Tu as enfreint l'édit de la famille Dong Ling de jadis, tu vas mourir!!! Pas seulement toi, mais tous tes proches seront anéantis!! Comment oses-tu me tuer?! »
 
 « Trop bruyant! » L'expression de Wang Lin resta de marbre. Au moment où il parla, une force colossale s'engouffra dans le corps de l'ancêtre de la famille Xiang. Tout ce qui soutenait son corps s'effondra.
 
@@ -54,11 +54,11 @@ Des rayons de lumière dorée apparurent de nulle part et se propagèrent dans t
 
 Deux caractères anciens ornaient cette porte dorée. Ces deux mots formaient un nom!
 
-Le nom d'une famille qui existait dans Luotian et dans le Royaume Intérieur depuis bien trop longtemps!
+Le nom d'une famille qui existait dans Luotian depuis bien trop longtemps, bien avant que les quatre grands domaines stellaires ne soient séparés!
 
 Dong Ling!
 
-Dès l'apparition de la porte, une puissance écrasante s'en dégagea. La porte s'ouvrit lentement sous le regard de Wang Lin, laissant jaillir une lumière éclatante. Une ombre dorée gigantesque de dix mille pieds de haut sortit de l'ouverture!
+Dès l'apparition de la porte, une puissance écrasante s'en dégagea. La porte s'ouvrit lentement sous le regard de Wang Lin, laissant jaillir une lumière éclatante. Une ombre dorée gigantesque de plusieurs dizaines de milliers de pieds de haut sortit de l'ouverture!
 
 Cette silhouette étincelait intensément. À première vue, elle ressemblait à un géant en armure d'or. Son corps semblait d'une solidité absolue, comme s'il était réel!
 
@@ -122,4 +122,4 @@ Dès l'ouverture de ses paupières, des étoiles apparurent entre ses sourcils e
 
 Les deux cultivateurs en robes dorées pénétrèrent dans ce monde de glace et s'y précipitèrent. Ils flottèrent respectueusement au-dessus du continent où reposait la femme.
 
-Tout en réprimant leur excitation, ils s'exclamèrent à l'unisson: « Bienvenue de votre culture en ermitage, Ancien Shen! »
+Tout en réprimant leur excitation, ils s'exclamèrent à l'unisson: « Nous accueillons respectueusement votre sortie de retraite, Ancien Shen! »

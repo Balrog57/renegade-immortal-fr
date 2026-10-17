@@ -14,9 +14,9 @@ Dans la troisième carte, un groupe de plusieurs dizaines de cultivateurs était
 
 Ces dizaines de cultivateurs ne purent absolument rien esquiver. Ils ne purent que regarder le brouillard les balayer. Les grondements tonitruants du brouillard étouffèrent leurs cris de mort déchirants.
 
-Dans la quatrième carte, une plateforme ayant déjà atteint le rang 3 avançait à toute allure. Son occupant avait les yeux emplis de panique et jetait des coups d'œil derrière lui à intervalles réguliers.
+Dans la quatrième carte, une plateforme ayant déjà atteint le rang 3 avançait à toute allure. Son occupant, le visage pâle, avait les yeux emplis de panique et jetait des coups d'œil derrière lui à intervalles réguliers.
 
-Loin derrière lui, trois plateformes le poursuivaient, prêtes à s'emparer de la sienne. Cependant, le brouillard changea violemment de direction et percuta le cultivateur en fuite. La plateforme ne put opposer aucune résistance et fut dévorée par la brume.
+Loin derrière lui, trois plateformes le poursuivaient, prêtes à se partager ses runes. Cependant, le brouillard changea violemment de direction et percuta le cultivateur en fuite. La plateforme ne put opposer aucune résistance et fut dévorée par la brume.
 
 Ce changement soudain fit pâlir les trois poursuivants. Toutefois, la mer de brouillard fut plus rapide qu'eux et l'onde les balaya instantanément. Les trois poursuivants ainsi que leurs plateformes s'effondrèrent tous.
 
@@ -24,7 +24,7 @@ Des scènes similaires se produisirent partout dans la Tombe de l'Ordre Antique,
 
 Parce que trop de cultivateurs étaient morts dans la mer de brouillard, les runes clignotaient frénétiquement à l'intérieur de la brume. Les survivants commencèrent à s'en emparer comme des fous.
 
-Personne ne pouvait rivaliser avec Grande Désolation. Ses runes avaient déjà atteint un nombre considérable et, après en avoir dérobé quelques-unes de plus, une nouvelle plateforme de rang 5 vint de naître!
+Personne ne pouvait rivaliser avec Grande Désolation. Ses runes avaient déjà atteint un nombre considérable et, après en avoir dérobé quelques-unes de plus, une nouvelle plateforme de rang 5 venait de naître!
 
 Une fois devenue une plateforme de rang 5, il perçut les autres plateformes, et son expression changea.
 
@@ -44,9 +44,9 @@ Il était initialement très confiant quant au fait qu'il serait le premier à a
 
 « Je dois découvrir qui est cet individu! Le rang 8... le rang 8... Après l'avoir tué, mes chances augmenteront considérablement! »
 
-« Si je peux percer le secret de sa progression fulgurante, alors le palais terrestre de l'Ordre Antique Ye Mo appartiendra à ce vieux Mo Ping! »
+« Si je peux percer le secret de sa progression fulgurante, alors le palais terrestre de l'Ordre Antique Ye Mo appartiendra à ce vieillard! »
 
-Au-dessus de la mer de brouillard dans la huitième carte, la femme en blanc affichait également un visage extrêmement sombre. Sa plateforme s'arrêta et, un instant plus tard, elle laissa échapper un froid reniflement. Elle fit exactement la même chose qu'il et recula vers la plateforme de rang 8.
+Au-dessus de la mer de brouillard dans la huitième carte, la femme en blanc affichait également un visage extrêmement sombre. Sa plateforme s'arrêta et, un instant plus tard, elle laissa échapper un froid reniflement. Elle fit exactement la même chose que lui et recula vers la plateforme de rang 8.
 
 Elle savait pertinemment que si elle ne comprenait pas comment ce mystérieux individu avait pu augmenter le rang de sa plateforme aussi vite, il est fort probable que celui-ci atteigne le rang 9 dans quelques heures!
 
@@ -64,7 +64,7 @@ La huitième carte apparut dans l'esprit de Wang Lin. La majeure partie de la To
 
 À cet instant, la voix antique résonna pour la quatrième fois!
 
-« Le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront emprunter la voie de l'Ordre Antique... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Grande Désolation!
+« Des trois palais, Ciel, Terre et Homme, le palais céleste contient mon héritage. Une fois que la culture des membres de mon clan aura atteint ses limites, ils pourront recevoir l'héritage, retourner à l'Antique et accomplir le Dao... Ensuite, quittez ce monde et retournez vers le monde natal de ce seigneur, retrouvez son clan... » Lorsque la voix se dissipa, Wang Lin sentit avec une clarté accrue que trois plateformes de rang 7 convergeaient rapidement vers lui. Il sentit également qu'au niveau de la cinquième carte, une nouvelle plateforme de rang 5 venait de naître. Wang Lin devina immédiatement que l'occupant de cette plateforme était Grande Désolation!
 
 Au même moment, Grande Désolation se précipitait également vers lui.
 
@@ -90,7 +90,7 @@ Les autres perdaient un temps précieux à chercher leur chemin dans la huitièm
 
 « Je dois maintenant faire preuve de rapidité! » Sans hésiter ni perdre une seconde, Wang Lin s'assit sur la plateforme et se concentra pour percevoir la position des autres.
 
-Alors qu'il progressait, un grondement de tonnerre retentit. Il dépassa prestement les quatre poursuivants pour pénétrer dans la septième carte.
+Alors qu'il progressait, un grondement de tonnerre retentit. Il contourna prestement les quatre poursuivants, sortit de la sixième carte et pénétra dans la septième.
 
 Maître Démon des Neuf Cieux se trouvait également dans la septième carte, le visage extrêmement sombre. L'autre partie était comme un ver glissant qui esquivait habilement sa poursuite, comme s'il connaissait ses moindres mouvements.
 
@@ -114,6 +114,6 @@ Le brouillard gronda et une mer de feu surgit derrière Wang Lin. Un immense par
 
 « Parapluie, déploie-toi pour détruire le monde! » Wang Lin cracha un jet de sang qui s'enflamma aussitôt en volant vers l'artefact. Le parapluie commença à s'ouvrir; il s'était déployé à 20 %!
 
-Dès son ouverture, un feu capable de ravager des mondes jaillit et fondit vers le bas.
+Dès son ouverture, un feu capable de ravager des mondes jaillit et se rua dans toutes les directions.
 
-À cet instant, une plateforme apparut sur la gauche, portée par la silhouette du Maître Démon des Neuf Cieux. Sur la droite, une autre plateforme surgit. Les yeux de la femme en blanc étaient aussi vifs que l'éclair, mais lorsqu'elle aperçut Wang Lin, elle fut manifestement saisie de stupeur.
+À cet instant, une plateforme de 70 000 pieds apparut sur la gauche, la silhouette du Maître Démon des Neuf Cieux se devinant dans le brouillard. Sur la droite, une autre plateforme surgit. Les yeux de la femme en blanc étaient aussi vifs que l'éclair, mais lorsqu'elle aperçut Wang Lin, elle fut manifestement saisie de stupeur.

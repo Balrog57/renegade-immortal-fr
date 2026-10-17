@@ -30,7 +30,7 @@ La tempête dans le ciel gronda violemment et, alors que Wang Lin la fixait d'un
 
 L'individu qui recula vers la droite était Grande Désolation. Une lueur de froideur traversa ses yeux tandis qu'il riait: « Bien, il est digne d'être le descendant de ce vieil oiseau. Tu as même osé capturer la servante de l'un des cinq maîtres devant lui. Ce courage, cette détermination... tu es un talent remarquable! »
 
-« Je ne t'ai pas donné ce poison pour que tu t'en serves à vain pour te protéger! » sourit le vieil homme. Il avait remarqué que Wang Lin n'était pas ordinaire, et si les deux venaient à unir leurs forces...
+« Je ne t'ai pas donné cette armure de poison pour rien, afin de te protéger! » sourit le vieil homme. Il avait remarqué que Wang Lin n'était pas ordinaire, et si les deux venaient à unir leurs forces...
 
 L'homme sur la gauche était le jeune Maître Dao Miao Yin. Il surplombait Wang Lin depuis les airs et esquissa soudain un sourire.
 
@@ -42,9 +42,9 @@ Des effluves parfumées emplirent l'air; une seule bouffée suffisait à accél�
 
 « Vieux Poison de Grande Désolation, tu n'es pas mon égal dans cette tombe, et il est inutile de continuer ce combat. Puisque ce seigneur a volé ton esprit Dao, je vais te le rendre! »
 
-« Le différend entre nous est clos, tu peux partir maintenant. Qu'en dis-tu? » Une fois qu'il eut fini de parler, les yeux de Grande Désolation s'illuminèrent.
+« Le différend entre nous est clos, tu peux partir maintenant. Qu'en dis-tu? » Une fois qu'il eut fini de parler, le regard de Grande Désolation vacilla.
 
-Un éclair de froideur passa dans les yeux de Wang Lin. Cette phrase venait de renverser la situation!
+Un éclair de froideur passa dans les yeux de Wang Lin. Cette phrase venait de renverser la situation, et elle était venimeuse!
 
 Les cinq maîtres étaient extrêmement rusés; ayant tous cultivé pendant des dizaines de milliers d'années, aucun n'était fou! En un coup d'œil, il avait perçu la possibilité que Wang Lin et Grande Désolation fassent équipe. Il avait donc immédiatement offert l'esprit Dao pour briser net toute chance de cette alliance!
 
@@ -52,9 +52,9 @@ Les cinq maîtres étaient extrêmement rusés; ayant tous cultivé pendant des 
 
 Wang Lin ricana. S'il avait été à l'extérieur, il aurait immédiatement fui en rencontrant le Maître Dao Miao Yin, tant l'écart entre eux était immense. Cependant, ici, Wang Lin était certain de pouvoir tenir tête. Bien que le Maître Dao Miao Yin fût l'un des cinq maîtres, il ne pouvait manifester ici qu'une culture au début du stade Vide du Nirvana.
 
-Bien qu'il n'eût aucune chance de victoire, le Maître Dao Miao Yin devrait déployer d'immenses efforts pour le tuer.
+Bien que Wang Lin n'eût aucune chance de victoire, le Maître Dao Miao Yin devrait déployer d'immenses efforts pour le tuer.
 
-Toutefois, le fait le plus crucial était que Wang Lin possédait Gu Nizi!
+Toutefois, le fait le plus crucial était que Wang Lin possédait un esclave ancien!
 
 Grande Désolation plissa les yeux et réfléchit un instant. Il sourit et, sans même accorder un regard à Wang Lin, déclara: « Apporte l'esprit Dao, et ce vieil homme partira! »
 
@@ -62,25 +62,25 @@ Le Maître Dao Miao Yin ne répondit rien et se contenta de fixer Grande Désola
 
 « Ce vieil homme Grande Désolation jure par mes Flammes Joss qu'une fois l'esprit Dao obtenu, je partirai sans jamais revenir! » Grande Désolation semblait deviner ce que le Maître Dao Miao Yin attendait. Sans hésiter, il forma un sceau de la main droite, et une rune étrange s'en échappa.
 
-Prêter serment sur ses Flammes Joss était une méthode infaillible entre cultivateurs du troisième niveau. D'un geste de la main, il projeta la rune vers le Maître Dao Miao Yin.
+Prêter serment sur ses Flammes Joss, sous forme de rune de serment, était une méthode de contrainte à laquelle les cultivateurs du troisième niveau se fiaient plutôt entre eux. D'un geste de la main, il projeta la rune vers le Maître Dao Miao Yin.
 
 Après avoir saisi la rune, Miao Yin se détendit et lança la pilule qu'il tenait en main.
 
 Grande Désolation agita sa manche pour récupérer la pilule. Il sourit, jeta un regard à Wang Lin, puis s'envola au loin. Au moment même où il pénétrait dans une faille spatiale, Wang Lin jaillit soudainement dans les airs.
 
-Dès son envol, le tatouage de tonnerre apparut devant lui et il chargea le Maître Dao Miao Yin. Ce dernier laissa échapper un reniflement froid, le regard empreint de cruauté. La première règle face à un cultivateur du Feu Éthéré est de verrouiller ses émotions.
+Dès son envol, le tatouage de tonnerre, rongé de flammes, apparut devant lui et il chargea le Maître Dao Miao Yin. Ce dernier laissa échapper un reniflement froid, le regard empreint de cruauté. La première règle face à un cultivateur du Feu Éthéré est de verrouiller ses émotions.
 
 Sa main droite traça un sceau et il agita brusquement le bras. Des Flammes Joss apparurent, accompagnées de l'illusion d'une femme magnifique. Celle-ci, brandissant une épée de jade, frappa Wang Lin.
 
 L'énergie de l'épée était monstrueuse, comme si elle pouvait trancher cette terre scellée en deux. Elle fonça droit sur le tatouage de tonnerre!
 
-En un éclair, l'énergie de l'épée percuta le tatouage et un fracas de tonnerre résonna. L'attaque ne frappa pas de plein fouet le tatouage, mais se divisa en des milliers de filaments.
+En un éclair, l'énergie de l'épée percuta le tatouage et un fracas de tonnerre résonna. L'énergie de l'épée n'était pas unique: à l'instant où elle toucha le tatouage, elle se divisa en des milliers de filaments.
 
 Le tatouage de tonnerre s'effondra instantanément. Wang Lin cracha du sang et recula précipitamment. Paraissant affaibli, il semblait sur le point de battre en retraite.
 
-Le Maître Dao Miao Yin s'apprêtait à le poursuivre quand, soudain, un vent noir hurla derrière lui. Le monde derrière son dos se tordit brusquement et une ombre gigantesque surgit. L'ombre prit la forme d'une paume dégageant une odeur fétide qui fonça sur Miao Yin!
+Le Maître Dao Miao Yin s'apprêtait à le poursuivre quand, soudain, un vent noir hurla derrière lui. Le monde derrière son dos se tordit brusquement et une ombre gigantesque surgit. L'ombre prit la forme d'une paume dégageant d'infinis effluves fétides et gaz toxiques, qui fonça sur Miao Yin!
 
-La paume sombre apparut trop soudainement et se referma presque instantanément sur lui. Son expression changea et il renonça sans hésiter à poursuivre Wang Lin. Il forma un sceau et un nuage de brume violette apparut, d'où jaillit un bouclier antique.
+La paume sombre apparut trop soudainement et fut presque instantanément sur lui. Son expression changea et il renonça sans hésiter à poursuivre Wang Lin. Il forma un sceau et un nuage de brume violette apparut, d'où jaillit un bouclier antique.
 
 Un choc assourdissant retentit lorsque la paume sombre percuta le bouclier. Des craquements se firent entendre et d'innombrables fissures parcoururent l'objet, mais celui-ci ne céda pas. Il fut cependant repoussé avec violence contre le Maître Dao Miao Yin.
 
@@ -94,7 +94,7 @@ Cependant, alors qu'il se retirait, l'expression de faiblesse de Wang Lin dispar
 
 Le Maître Dao Miao Yin ne prêta aucune attention à Wang Lin. Le bouclier devant lui s'envola pour heurter la paume géante. La colère brûlait dans ses yeux lorsqu'il s'écria: « Vieux Poison de Grande Désolation, tu as rompu ta promesse! »
 
-« Quelle plaisanterie. Ce vieil homme a toujours tenu parole! Puisque tu as volé mon trésor une fois, il y aura une deuxième fois, une troisième... comment pourrais-je te laisser faire sans réagir? » Tout en riant, la silhouette de Grande Désolation vacilla à l'intérieur de l'empreinte de la paume sombre.
+« Quelle plaisanterie. Ce vieil homme ne tient ses promesses que selon les gens! Puisque tu as volé mon trésor une fois, il y aura une deuxième fois, une troisième... comment pourrais-je te laisser faire sans réagir? » Tout en riant, la silhouette de Grande Désolation, revenu sur ses pas, apparut à l'intérieur de l'empreinte de la paume sombre.
 
 « Ce jeune cultivateur est le descendant de ce vieil oiseau. Et ce vieil oiseau est mon seul ami proche, comment pourrais-je l'abandonner? Ton corps m'appartient! » Tandis qu'il parlait, Grande Désolation agita sa main droite. Les cinq ongles de la paume se détachèrent pour devenir cinq lames composées de gaz noir. Extrêmement tranchantes, elles fusèrent vers le Maître Dao Miao Yin.
 
@@ -102,11 +102,11 @@ Le Maître Dao Miao Yin recula promptement alors que l'épée de sang apparaissa
 
 Voyant les cinq ongles s'approcher, il concentra toute son attention sur la menace immédiate. Tandis qu'il injectait davantage de puissance dans son bouclier, une brume violette infinie apparut jusqu'à former un océan pourpre.
 
-« Jeune Wang Lin, dégage de mon chemin! Quand j'en aurai le temps, je te tuerai! » Tout en reculant, il agita la main gauche et une illusion surgit de l'océan violet. Cette figure mesurait mille pieds de haut, vêtue d'une armure pourpre. Brandissant un trident, elle s'élança avec des yeux brillants vers Wang Lin et l'épée de sang.
+« Junior Wang Lin, dégage de mon chemin! Quand j'en aurai le temps, je te tuerai! » Tout en reculant, il agita la main gauche et une illusion surgit de l'océan violet. Cette figure mesurait mille pieds de haut, vêtue d'une armure pourpre. Brandissant un trident, elle s'élança avec des yeux brillants vers Wang Lin et l'épée de sang.
 
 Le Maître Dao Miao Yin n'avait pas assisté au combat entre Wang Lin et le Maître Simo. Pressé de rejoindre la Tombe de l'Ordre Antique, il n'avait même pas cherché à savoir ce qui s'était passé sur la Planète du Grand Empereur.
 
-S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et n'aurait pas concentré toute son attention sur l'ennemi devant lui, car derrière ce dernier se trouvait un dieu de la destruction! Un dieu ancien qui avait raffiné l'estimé Ling Dong et dont la puissance avait prodigieusement augmenté!
+S'il avait été informé, il n'aurait jamais méprisé Wang Lin de la sorte, et n'aurait pas concentré toute son attention sur l'ennemi devant lui, car derrière ce dernier se trouvait un tueur d'immortels! Un dieu ancien qui avait raffiné l'estimé Ling Dong et dont la puissance avait prodigieusement augmenté!
 
 L'épée de sang hurla et percuta le trident dans un fracas violent. Presque rien au monde ne pouvait arrêter l'épée de sang. Elle transperça le trident ainsi que la figure, puis fonça droit sur le Maître Dao Miao Yin!
 

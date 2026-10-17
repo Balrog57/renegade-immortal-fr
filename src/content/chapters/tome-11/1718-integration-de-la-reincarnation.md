@@ -22,7 +22,7 @@ Qing Lin fut profondément ému par les paroles de Wang Lin. Il le comprenait et
 
 Wang Lin ne dit rien de plus et s'assit face à Qing Lin. Devant lui se trouvait l'âme de l'avatar de l'Omniscient. Il ferma les yeux et son esprit pénétra l'âme de l'avatar pour entamer la fusion.
 
-Sur le côté, les yeux de Qing Lin brillèrent tandis qu'il chassait toute distraction de son esprit. Son sens divin pénétra Wang Lin et sonda attentivement les environs. Ce faisant, Qing Lin trembla, ses yeux remplis d'incrédulité.
+Sur le côté, les yeux de Qing Lin brillèrent tandis qu'il chassait toute distraction de son esprit. Son sens divin pénétra Wang Lin et examina attentivement tout l'intérieur de son corps. Ce faisant, Qing Lin trembla, ses yeux remplis d'incrédulité.
 
 « Sept essences!! J'avais entendu dire qu'il en possédait six. Six est déjà inimaginable, mais maintenant il y en a sept!! Comment Wang Lin a-t-il pu cultiver pour obtenir sept essences? C'est... c'est tout simplement prodigieux! » Qing Lin prit une profonde inspiration, le regard chargé de choc face à Wang Lin.
 
@@ -30,7 +30,7 @@ Cependant, ce qui le stupéfia davantage fut que, lorsque son sens divin entra d
 
 L'aura émanant de cette lignée était très ancienne et semblait exister depuis l'aube du monde! Toute forme de vie devait s'incliner et trembler de peur et d'admiration devant elle.
 
-Cette aura était extrêmement tyrannique. Elle semblait capable d'effacer quiconque de la réincarnation elle-même si l'on osait lui manquer de respect!
+Cette aura était extrêmement tyrannique. Au moindre manque de respect, elle semblait capable de détruire toute la réincarnation et d'effacer la vie elle-même!
 
 Le visage de Qing Lin pâlit instantanément et il recula inconsciemment de quelques pas. Son regard envers Wang Lin n'était plus empreint de surprise, mais d'horreur.
 
@@ -64,25 +64,25 @@ Environ une demi-heure plus tard, après avoir poursuivi sa course, il fut stopp
 
 Une voix ancienne résonna dès que la lumière apparut.
 
-« Qing Lin... Ce n'est pas une affaire dans laquelle tu devrais te mêler. Dégage de là, vieux fou! » Sur ces mots, la lumière aux sept couleurs jaillit violemment. Elle se transforma en une lame qui s'abattit sur Qing Lin.
+« Qing Lin... Ce n'est pas une affaire dans laquelle tu devrais te mêler. Dégage de là! » Sur ces mots, la lumière aux sept couleurs jaillit violemment. Elle se transforma en une immense faux qui s'abattit sur Qing Lin.
 
-Cette lame occupait presque tout le domaine stellaire. Dans son mouvement, l'ensemble du domaine sembla trembler. Les yeux de Qing Lin se rétrécirent. Il cessa de bouger et ouvrit les bras après avoir formé un sceau.
+Cette faux occupait presque tout le domaine stellaire. Dans son mouvement, l'ensemble du domaine sembla trembler. Les yeux de Qing Lin se rétrécirent. Il cessa de bouger et ouvrit les bras après avoir formé un sceau.
 
-« Étoile, lune, soleil, triple protection lumineuse. Trois épées, ouvrez la rivière! » La lumière des étoiles, de la lune et du soleil convergea autour de Qing Lin pour former une barrière qui percuta la lame.
+« Étoile, lune, soleil, triple protection lumineuse. Trois épées, ouvrez la rivière! » La lumière des étoiles, de la lune et du soleil convergea autour de Qing Lin pour former une barrière qui percuta la faux.
 
-Des grondements tonitruants retentirent et la lame se brisa. Son effondrement fit trembler Qing Lin, qui disparut alors de ce domaine stellaire.
+Des grondements tonitruants retentirent et la faux se brisa. Son effondrement fit trembler Qing Lin, qui disparut alors de ce domaine stellaire.
 
 Dans le Royaume Céleste, sur la montagne enneigée, le mince fil entre les mains de Qing Lin se rompit. Il recula de quelques pas, le visage extrêmement pâle.
 
 Wang Lin fut également stupéfait, et le sort d'arrêt se dissipa. Il se sépara de la fusion et ouvrit les yeux.
 
-Qing Lin dit lentement: « Je n'ai jamais vu l'Omniscient, mais j'ai vu une lumière aux sept couleurs! Lors de votre fusion, une trace de votre essence de restriction s'est étendue vers la Rivière Invoquée sous l'effet d'une force mystérieuse. Je l'ai poursuivie, mais j'ai été intercepté par une lame aux sept couleurs. »
+Qing Lin dit lentement: « Je n'ai jamais vu l'Omniscient, mais j'ai vu une lumière aux sept couleurs! Lors de votre fusion, une trace de votre essence de restriction s'est étendue vers la Rivière Invoquée sous l'effet d'une force mystérieuse. Je l'ai suivie, mais le lien a été tranché par une faux aux sept couleurs. »
 
 « La Rivière Invoquée... » Un éclat de froideur passa dans les yeux de Wang Lin.
 
 « Si mon intuition est correcte, alors l'âme que vous tenez est votre lien avec lui. À travers son âme, il peut vous voler vos essences! Cette personne est véritablement incroyable d'avoir conçu une telle méthode, mais comment a-t-elle procédé? Comment pourrait-elle voler vos essences avec un simple avatar... »
 
-« Et il y a aussi une chose qui n'a aucun sens. Si elle vole réellement vos essences, pourquoi celles-ci n'ont-elles pas diminué... De plus, il y a quelque chose de singulier chez cet individu. Bien que ce sort ait semblé simple, il contenait en réalité la puissance du monde entier. Ce n'est pas une mince affaire », ajouta lentement Qing Lin après réflexion.
+« Et il y a aussi une chose qui n'a aucun sens. Si elle vole réellement vos essences, pourquoi celles-ci n'ont-elles pas diminué... De plus, il y a quelque chose de singulier chez cet individu. Bien que ce sort ait semblé simple, il mettait en réalité en mouvement la puissance de tout le ciel étoilé. Ce n'est pas une mince affaire », ajouta lentement Qing Lin après réflexion.
 
 L'intention meurtrière dans les yeux de Wang Lin s'intensifia. C'étaient des questions qu'il avait déjà méditées sans parvenir à les résoudre.
 
@@ -98,7 +98,7 @@ L'intention meurtrière dans les yeux de Wang Lin s'intensifia. C'étaient des q
 
 Le Maître du Dao Rêve Bleu atterrit sur la montagne et sourit à Qing Lin avant de tourner son regard vers Wang Lin, empreint de bienveillance.
 
-« J'ai entendu dire que ce sort provenait du Souverain. On dit qu'il s'agit de l'un des sorts du Souverain Céleste aux Sept Couleurs. Pourtant, même le Souverain Céleste aux Sept Couleurs n'a pas réussi à le maîtriser... »
+« J'ai entendu parler de ce sort par le Souverain. On dit qu'il s'agit de l'un des sorts du Souverain Céleste aux Sept Couleurs. Pourtant, même le Souverain Céleste aux Sept Couleurs n'a pas réussi à le maîtriser... »
 
 « La clé de ce sort est de traverser d'innombrables réincarnations et de considérer chaque existence comme une partie de soi-même. À la fin, elles se dévorent les unes les autres pour parachever l'art. Il existe d'autres aspects complexes, mais je n'ai jamais vu ce sort de mes propres yeux. »
 

@@ -124,8 +124,8 @@ La silhouette de Wang Lin demeurait immobile alors qu'il cultivait lentement pou
 
 En avançant, ils poussèrent tous un rugissement unanime.
 
-« Le Dragon Céleste révèle le Dao! Croyez mes paroles et évitez la catastrophe de la destruction du monde. Ne me croyez pas et tout périra... Le Dragon Céleste est puissant... Le Dragon Céleste est puissant... »
+« Le Dragon Céleste révèle le Dao! Croyez en mon Dao et évitez la catastrophe de la destruction du monde. Ne croyez pas en mon Dao et vous retournerez au néant avec tous les êtres... Le Dragon Céleste est puissant... Le Dragon Céleste est puissant... »
 
-« Le Dragon Céleste révèle le Dao, croyez en cet apôtre. Il nous mènera vers l'infini Royaume Céleste et nous rendra immortels... »
+« Le Dragon Céleste révèle le Dao, croyez et devenez disciples, nous vous mènerons vers le Royaume Céleste suprême, où vous serez immortels pour toujours... »
 
-À mesure que ces paroles se propageaient, des milliers d'autres cultivateurs suivirent les premiers centaines. Tous lançaient les mêmes rugissements.
+À mesure que ces paroles se propageaient, près d'un millier d'autres cultivateurs suivirent ces quelques centaines. Tous lançaient les mêmes rugissements.

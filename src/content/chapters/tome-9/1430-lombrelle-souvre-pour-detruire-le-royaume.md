@@ -14,7 +14,7 @@ La mer de feu s'éleva rapidement et un vortex gigantesque apparut au centre, ju
 
 Au moment où le trou noir apparut, un cri d'Oiseau Vermillon résonna soudainement à l'intérieur!
 
-Le cri de l'Oiseau Vermillon était assourdissant. À son apparition, Wang Lin ressentit un choc profond. Son quatrième Oiseau Vermillon éveillé se manifesta et témoigna son respect!
+Le cri de l'Oiseau Vermillon était assourdissant. À son apparition, Wang Lin ressentit un choc profond. Son Oiseau Vermillon, éveillé quatre fois, se manifesta et témoigna son respect!
 
 C'était comme si l'Oiseau Vermillon de Wang Lin ressentait une peur instinctive face à ce cri!
 
@@ -40,7 +40,7 @@ Dans sa descente, le feu bouillonnait!
 
 Sa vitesse était inimaginable. En plongeant, il piqua impitoyablement l'homme d'âge mûr! Durant ce processus, le ciel tout entier semblait s'être transformé en la tête de l'Oiseau Vermillon. Ses yeux étaient emplis de colère, et Wang Lin le reconnut instantanément. Il ressemblait énormément au premier Oiseau Vermillon!
 
-Le monde continuait de gronder. Le bec de l'Oiseau Vermillon descendit rapidement et, en un instant, atteignit les mille pieds de la flamme aux sept couleurs. Cela était comparable au doigt d'un Dieu Ancien, mais l'élan était bien plus puissant. Seul un Dieu Ancien adulte de 8 étoiles utilisant personnellement le sort pourrait égaler cela!
+Le monde continuait de gronder. Le bec de l'Oiseau Vermillon descendit rapidement et, en un instant, atteignit les mille pieds de la flamme aux sept couleurs. Cela était comparable au doigt d'un Dieu Ancien, mais l'élan était bien plus puissant. Seul un Dieu Ancien adulte d'au moins 8 étoiles utilisant personnellement le sort pourrait égaler cela!
 
 À l'intérieur de la flamme aux sept couleurs, l'homme d'âge mûr poussa un rugissement et agita la main. Les flammes autour de lui s'élancèrent vers le ciel pour former un autre Oiseau Vermillon qui fonça sur le bec descendant!
 
@@ -52,7 +52,7 @@ Ses paroles ébranlèrent le monde entier. Avec le mot « terre », une étendue
 
 Avec le mot « feu », la mer commença à brûler, recouverte d'une flamme aux sept couleurs. Enfin, avec le dernier mot, « vent », une rafale balaya les flammes.
 
-« Quatre Éléments!! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par la mer en furie!
+« Quatre Éléments!! » L'expression de l'homme était féroce alors qu'il projetait ses mains vers l'avant. Un vent puissant se précipita vers le bec de l'Oiseau Vermillon, suivi de près par les flammes, puis par la mer en furie!
 
 Après la flamme venait la mer déchaînée. Enfin, la terre traversa le corps de l'homme et chargea vers le ciel comme pour colmater le vortex.
 
@@ -88,7 +88,7 @@ La flamme aux sept couleurs percuta le bec de l'Oiseau Vermillon et le monde tre
 
 La deuxième onde de choc balaya le monde!
 
-Wang Lin termina la seconde série de sceaux. Des ramifications apparurent sur l'os de feu géant!
+Wang Lin termina la seconde série de sceaux. Des baleines d'ombrelle apparurent sur l'os de feu géant!
 
 Le troisième et le quatrième souffle passèrent instantanément. La mer se déchaîna contre le bec de l'Oiseau Vermillon, percutant celui-ci pour se transformer en une vapeur d'eau infinie. La pointe du bec se brisa, provoquant un cri de l'Oiseau Vermillon qui expulsa une bouffée d'air de son ventre!
 
@@ -118,7 +118,7 @@ Des grondements emplirent l'air tandis que l'esprit de bois tremblait. La paume 
 
 À cet instant, le neuvième souffle arriva et la main droite de Wang Lin acheva le dernier sceau. Ses mains étaient ensanglantées et presque incapables de bouger après avoir terminé ce dernier geste.
 
-Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Brûlante du Royaume!!
+Près de deux millions de sceaux entouraient le corps de Wang Lin. Une fois terminés, ils formèrent une tempête de feu et fusionnèrent avec l'armature d'os pour créer une gigantesque Ombrelle Brûlante du Royaume, pas encore ouverte!!
 
 « Ombrelle Brûlante du Royaume!! » Les yeux de Wang Lin étaient injectés de sang. Il utilisa le sort le plus puissant du clan de l'Oiseau Vermillon au moment précis où l'empreinte de la paume allait le frapper!
 

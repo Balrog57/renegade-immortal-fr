@@ -14,7 +14,7 @@ Dès qu'il fut sorti du vortex, il se retourna et leva la main droite. Le bras d
 
 Le vide fut lacéré, fendant le vortex en deux et provoquant son effondrement immédiat.
 
-Tout cela se produisit en un éclair. Wang Lin s'engouffra dans la faille créée par le sort du « Ciel Ondoyant » et disparut.
+Tout cela se produisit en un éclair. Wang Lin s'engouffra dans la faille créée par le sort « Déchirure du Ciel » et disparut.
 
 L'instant après sa disparition, un grognement froid retentit dans le vide. Des grondements tonnants résonnèrent tandis que le Daoïste aux Sept Couleurs sortait du vortex effondré.
 
@@ -52,7 +52,7 @@ Ce changement attira immédiatement l'attention du Daoïste aux Sept Couleurs. S
 
 « Oses-tu utiliser une si petite ruse contre ce seigneur? Ce Wang Lin veut simplement profiter de l'effondrement des barrières pour entraver ma poursuite, voire utiliser cette puissance pour me blesser! »
 
-« C'est une idée ingénieuse, certes, mais puisque je l'ai démasqué, il n'a aucune chance de réussir. » Les yeux du Daoïste aux Sept Couleurs brillèrent d'une lueur émeraude et sept couleurs. Il commença à renforcer la barrière entre les mondes.
+« C'est une idée ingénieuse, certes, mais puisque je l'ai démasqué, il n'a aucune chance de réussir. » Les yeux du Daoïste aux Sept Couleurs scintillèrent. Tout en poursuivant, il leva la main droite et une lumière aux sept couleurs se répandit; il commença à renforcer la barrière entre les mondes.
 
 Grâce à sa culture pour stabiliser la barrière, l'effet fut notable. Cependant, son visage resta sombre et il ne renforça la structure que secrètement, de sorte qu'on n'aperçut qu'un bref éclat de lumière multicolore.
 
@@ -74,7 +74,7 @@ L'attention du Daoïste aux Sept Couleurs était entièrement focalisée sur la 
 
 Suivant sa trace, la poursuite du Daoïste aux Sept Couleurs emprunta un itinéraire presque identique à celui de Wang Lin.
 
-Le temps s'écoulait lentement. En un instant, la durée d'un bâton d'encens s'écoula. Après avoir répété l'opération plus de cent fois, Wang Lin sortit du vortex pour entrer dans un système stellaire. C'était la première fois qu'il ne s'engouffrait pas immédiatement dans un autre monde.
+Le temps s'écoulait lentement. En un instant, la durée d'un bâton d'encens s'écoula. Après avoir répété l'opération près de cent fois, Wang Lin sortit du vortex pour entrer dans un système stellaire. C'était la première fois qu'il ne s'engouffrait pas immédiatement dans un autre monde.
 
 Il se déplaça très rapidement, vola à plus de cent mille pieds, puis se recroquevilla. Une lumière brilla et commença à se distordre. Un instant plus tard, une illusion enveloppa Wang Lin. Il avait disparu, remplacé par une planète d'apparence ordinaire.
 
@@ -104,8 +104,8 @@ Wang Lin était d'une intelligence redoutable, et il était bien difficile de le
 
 L'instabilité de la barrière entre les mondes était le premier piège. Wang Lin avait déduit que ce premier stratagème ne pourrait tromper ni le Daoïste aux Sept Couleurs ni le Vieux Fantôme Zhan, et il souhaitait qu'ils le découvrent.
 
-Une fois qu'ils auraient trouvé l'endroit, ils tomberaient inconsciemment dans le second piège. En pensant avoir percé les intentions de Wang Lin, ils baisseraient leur garde. Profitant de ce moment et du fait que la poursuite avait instauré un cycle répétitif, Wang Lin utiliserait la Voile Fantôme pour les plonger dans une illusion.
+Une fois qu'ils auraient découvert ce stratagème, ils tomberaient inconsciemment dans le second piège. En pensant avoir percé les intentions de Wang Lin, ils baisseraient leur garde. Profitant de ce moment et du fait que la poursuite avait instauré un cycle répétitif, Wang Lin utiliserait la Voile Fantôme pour les plonger dans une illusion.
 
-Le point crucial n'était ni l'effondrement de la barrière, ni l'illusion en soi, mais le fait que Wang Lin avait répété cette manœuvre plus de cent fois. Cela avait créé chez ses poursuivants des réflexes et des tendances subconscientes...
+Le point crucial n'était ni l'effondrement de la barrière, ni l'illusion en soi, mais le fait que Wang Lin avait répété cette manœuvre près de cent fois. Cela avait créé chez ses poursuivants des réflexes et des tendances subconscientes...
 
 C'étaient là les conditions nécessaires pour les piéger dans une illusion!

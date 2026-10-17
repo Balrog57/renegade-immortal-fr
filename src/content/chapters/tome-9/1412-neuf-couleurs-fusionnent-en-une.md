@@ -14,9 +14,9 @@ Ce sang contenait l'essence même du feu intérieur du dragon. Il était bien pl
 
 À l'intérieur de l'Épreuve Terrestre, le lotus de feu aux neuf couleurs flottait dans le ciel tandis que Wang Lin siégeait au-dessus. Derrière lui, l'Oiseau Vermillon aux neuf couleurs poussait des cris incessants; on percevait dans ses hurlements une lutte acharnée, comme s'il tentait désespérément de renaître.
 
-D'innombrables éclats de lumière se propageaient dans toutes les directions, et la mer de feu s'étendait à travers le Royaume Terrestre.
+D'innombrables éclats de lumière se propageaient dans toutes les directions, et la mer de feu s'étendait à travers l'Épreuve Terrestre.
 
-Le regard de Wang Lin était étincelant. Ses mains formèrent un sceau et un tatouage de feu apparut dans son œil. Ce feu aux neuf couleurs commença à pivoter à une vitesse vertigineuse, prenant l'apparence d'un vortex chromatique.
+Le regard de Wang Lin était étincelant. Ses mains formèrent un sceau et des flammes apparurent dans son œil gauche. Ce feu aux neuf couleurs commença à pivoter à une vitesse vertigineuse, prenant l'apparence d'un vortex chromatique.
 
 « Neuf couleurs, fusionnez en une! Quatrième éveil de l'Oiseau Vermillon! » L'esprit de Wang Lin était d'une clarté absolue; il avait déjà traversé trois éveils, et sa puissance ignée s'était démultipliée à chaque étape.
 
@@ -36,7 +36,7 @@ Le lotus de feu aux neuf couleurs sous Wang Lin libéra un flux infini de flamme
 
 Simultanément, l'immense Oiseau Vermillon aux neuf couleurs poussa un cri plus puissant que jamais. Ses hurlements déchirèrent les cieux et firent trembler toute l'Épreuve Terrestre.
 
-« Pas assez... il ne faut pas assez de feu! » Wang Lin leva les yeux et des flammes jaillirent de son corps. Le vortex aux neuf couleurs s'échappa de son œil gauche pour former autour de lui une tempête de feu multicolore, une bourrasque capable de consumer le monde entier.
+« Pas assez... il n'y a pas assez de feu! » Wang Lin leva les yeux et des flammes jaillirent de son corps. Le vortex aux neuf couleurs s'échappa de son œil gauche pour former autour de lui une tempête de feu multicolore, une bourrasque capable de consumer le monde entier.
 
 Le quatrième éveil de Wang Lin reposait sur la combustion de son obsession pour embraser le feu du karma. Par conséquent, l'exigence en combustible était décuplée.
 
@@ -64,7 +64,7 @@ Un Feu Éthéré commença à brûler dans l'Épreuve Terrestre. Ce feu ne déga
 
 En un instant, cette monstrueuse flamme éthérée enveloppa Wang Lin et pénétra rapidement dans l'Oiseau Vermillon aux neuf couleurs en pleine lutte.
 
-L'homme d'âge moyen était le maître de la cinquième génération, Lu Yun, lui-même quatrième génération de l'Oiseau Vermillon!
+L'homme d'âge moyen était le maître de Lu Yun, l'Oiseau Vermillon de la cinquième génération, et lui-même Oiseau Vermillon de la quatrième génération!
 
 Il avait éveillé son oiseau et atteint le royaume du Feu Éthéré. Dès que cette force fusionna avec l'Oiseau Vermillon de Wang Lin, une noble et majestueuse plainte retentit.
 

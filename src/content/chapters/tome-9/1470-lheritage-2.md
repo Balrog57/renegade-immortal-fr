@@ -22,7 +22,7 @@ En ce jour, une silhouette vêtue d'une robe taoïste aux sept couleurs apparut 
 
 « Je tiendrai ma promesse envers vous... Une fois que le Dao Céleste aura grandi, je renverrai cet arc à votre secte... » Le cultivateur aux sept couleurs prit l'arc prodigieux des mains de Li Guang. Cependant, à cet instant précis, son expression changea et il fit un pas en avant sans réfléchir. Il se déplaçait avec une rapidité fulgurante, atteignant ses limites!
 
-« Ancien Dao, Aucun Céleste! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
+« Dao Ancien, sans Céleste! » Alors que Wang Lin observait cette scène, ces mots résonnèrent soudainement dans son esprit. À cet instant, un changement indescriptible s'opéra en lui!
 
 Cette simple phrase, ces quatre mots épurés, firent une fois de plus changer l'expression du cultivateur aux sept couleurs.
 
@@ -106,7 +106,7 @@ Ling Dong n'hésita pas et se positionna du côté gauche de Wang Lin. Ses mains
 
 Les vêtements de l'estimé Ling Dong s'agitèrent sans qu'aucun vent ne soufflât, alors qu'une puissance colossale émanait du corps de Wang Lin. Son expression changea immédiatement et il serra les dents pour endurer le choc.
 
-Zhou Ji, du Clan du Loup Céleste, avait été frappé par le doigt de Wang Lin. Son visage était pâle et ses yeux trahissaient sa lutte. Cependant, plus il résistait, plus la rune d'ancien esclave clignotait entre ses sourcils.
+Zhou Jin, du Clan du Loup Céleste, avait été frappé par le doigt de Wang Lin. Son visage était pâle et ses yeux trahissaient sa lutte. Cependant, plus il résistait, plus la rune d'ancien esclave clignotait entre ses sourcils.
 
 Septième respiration!
 
@@ -128,7 +128,7 @@ Zhou Jin serra également les dents, le sang coulant de sa bouche, mais il resta
 
 Neuvième respiration! Le corps de Wang Lin continuait de trembler et la sueur inondait son front. Bien qu'il soit assisté par deux cultivateurs du troisième stade, le rejet du trône devenait de plus en plus intense, comme s'il allait le déchiqueter.
 
-Les auras du démon ancien et du dieu ancien rugissaient en lui comme des vagues déchaînées, cherchant à jaillir de son corps pour retourner au trône.
+Les auras du diable ancien et du dieu ancien rugissaient en lui comme des vagues déchaînées, cherchant à jaillir de son corps pour retourner au trône.
 
 Si elles retournaient là-bas, Wang Lin devrait alors obtenir l'héritage par la voie classique: traverser les deuxième et troisième couches pour atteindre le cœur de la tombe, affrontant d'innombrables périls.
 

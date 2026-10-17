@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1656 - Grand Eruption !!"
 slug: grande-eruption
 ---
-L'homme corpulent sourit en se rapprochant de Qing Shui et de sa fille. Les yeux de Qing Shui étaient voilés et sur le point de se fermer. À cet instant, il regarda au loin et, bien que sa vision fût floue, son esprit ressentit une aura familière.
+L'homme corpulent sourit en se rapprochant de Qing Shui et de sa fille. Les yeux de Qing Shui, ternes et sur le point de se fermer, s'ouvrirent soudain. Hagard, il regarda au loin et, bien que sa vision fût floue, son esprit ressentit une aura familière.
 
 Cette aura familière appartenait à son frère, à son frère cadet!
 
@@ -22,9 +22,9 @@ Dao Feishan, qui se trouvait à moins de cent pieds de Mu Bingmei, fut saisi d'e
 
 Il se retourna brusquement!
 
-Il y avait aussi cette autre planète de culture où se trouvaient d'innombrables personnes connaissant Wang Lin. Xi Zifeng, Zhan Conglie, Shengong Hu, Maître Yan Leizi, et bien d'autres encore! Tous regardaient au loin et virent la puissante flèche percer le vide!
+Il y avait aussi cette autre planète de culture où se trouvaient d'innombrables personnes connaissant Wang Lin. Xi Zifeng, Zhan Konglie, Shengong Hu, Maître Yan Leizi, et bien d'autres encore! Tous regardaient au loin et virent la puissante flèche percer le vide!
 
-C'était une flèche longue de plusieurs centaines de milliers de pieds, dotée du pouvoir de détruire les cieux eux-mêmes. La pointe de la flèche était circulaire; elle hurlait à travers l'espace, provoquant l'effondrement du vide sur son passage. Rien ne pouvait l'arrêter!
+C'était une flèche longue d'environ cent mille pieds, dotée du pouvoir de détruire les cieux eux-mêmes. La pointe de la flèche était circulaire; elle hurlait à travers l'espace, provoquant l'effondrement du vide sur son passage. Rien ne pouvait l'arrêter!
 
 Une silhouette se tenait à la pointe de la flèche. Un homme vêtu de blanc aux cheveux d'un blanc immaculé! On pouvait également distinguer faiblement deux roues gigantesques et immobiles suivant de près sa course.
 
@@ -46,7 +46,7 @@ En particulier, les cultivateurs du Vide Arcanique qui avaient participé à la 
 
 Tout cela se produisit en un instant. La flèche hurlait en fonçant sur sa cible. Chaque domaine stellaire qu'elle traversait s'effondrait, laissant derrière elle une immense faille qui subsisterait pour l'éternité!
 
-Cette faille s'étendait de la frontière jusqu'à la Mer des Nuages!
+Cette faille partait de la frontière avec la Mer des Nuages et s'étendait à l'infini!
 
 Cette flèche contenait la colère de Wang Lin et le carnage qu'il avait semé après avoir traversé le Vide Brillant, la Rivière Invoquée et la Mer des Nuages. Elle vola instantanément vers l'empreinte de paume située à l'extérieur du palais du Souverain.
 
@@ -54,7 +54,7 @@ C’était le combat de Wang Lin contre le Souverain!
 
 Tout se déroula plusieurs fois plus vite que l'éclair. Alors que tous étaient encore pétrifiés, la flèche percuta l'empreinte de paume descendante!
 
-À cet instant, tous les regards convergèrent. L'apparition de Wang Lin éclipsa toute autre lumière dans le monde. Tous les cultivateurs du Royaume Extérieur, et plus particulièrement ceux du troisième stade, durent porter leur attention sur lui!
+À cet instant, tous les regards convergèrent. L'apparition de Wang Lin éclipsa toute autre lumière dans le monde. Tous les cultivateurs du Royaume Extérieur, et plus particulièrement les grands puissants, durent porter leur attention sur lui!
 
 Sous leurs yeux ébahis, la flèche hurlante entra en collision avec l'empreinte de paume du Souverain!
 
@@ -82,7 +82,7 @@ Ce sang contenait une trace d'or et explosa instantanément avec la puissance d'
 
 « Dégage de là, petit serviteur aux empreintes! » La voix de Wang Lin résonna alors que la flèche percutait le soleil doré.
 
-Une puissante onde sonore se propagea. D'innombrables cultivateurs hurlèrent tandis que leurs tympans éclataient et que le sang jaillissait de leurs oreilles. Le soleil doré trembla violemment, mais il resta immobile malgré les efforts désespérés du Souverain qui poussait de ses deux mains. Il était repoussé à contre-cœur.
+Une puissante onde sonore se propagea. D'innombrables cultivateurs hurlèrent tandis que leurs tympans éclataient et que le sang jaillissait de leurs oreilles. Le soleil doré trembla violemment, mais il ne put avancer. Malgré les efforts désespérés du Souverain qui le poussait de ses deux mains, celui-ci reculait à contre-cœur.
 
 Finalement, un grondement monstrueux retentit et le soleil explosa dans un impact colossal. Cependant, au lieu de se disperser, la matière, sous la pression de la flèche, fut projetée de plein fouet vers le Souverain!
 
@@ -110,7 +110,7 @@ Cependant, le Souverain n'était pas totalement mort. Au moment où son corps fu
 
 Le Souverain ressuscité affichait un visage livide. Il n'hésita pas une seconde et recula dans la faille après avoir repris forme. Sa main droite s'étira derrière lui, provoquant l'effondrement de la faille.
 
-Sa fuite était d'une humilité désastreuse!
+Sa fuite était des plus piteuses!
 
 Le grondement persistait encore, et tandis que le son s'estompait, les centaines de milliers de cultivateurs restèrent silencieux. Tous leurs regards étaient rivés sur Wang Lin.
 

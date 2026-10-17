@@ -30,7 +30,7 @@ Xiang Yundong était plongé dans l'amertume; il contemplait ce spectacle, héb�
 
 Le chef de la famille Liu, les Anciens et près de dix mille cultivateurs tournaient tous leurs regards vers l'ouest. La famille Xu dans le sud en faisait autant, leurs yeux fixés sur l'ouest... Et même à l'ouest, les membres de la famille Xiang étaient identiques. On ignorait qui avait le premier détourné les yeux de l'ancêtre en retraite pour regarder vers l'horizon, mais bientôt, toute la famille Xiang fut tournée vers l'ouest!
 
-Ils attendaient un mot de leur ancêtre... Pour combattre ou pour fuir... Mais avant même qu'ils ne puissent entendre sa voix, une silhouette d'un blanc immaculé apparut sous la pluie.
+Ils attendaient un mot de leur ancêtre... Pour combattre ou pour se rendre... Mais avant même qu'ils ne puissent entendre sa voix, une silhouette d'un blanc immaculé apparut sous la pluie.
 
 La planète Dong Ling avait perdu toutes ses défenses face à Wang Lin. Il était apparu dans le ciel, et son regard était tel un éclair alors qu'il scrutait l'ouest!
 
@@ -42,9 +42,9 @@ Aussitôt qu'il eut parlé, les yeux des membres de la famille Xiang devinrent i
 
 Il en fut de même pour la famille Xu dans le sud. Près de dix mille cultivateurs sombrèrent dans la démence. Perdant tout sens des réalités, ils s'élancèrent dans les airs!
 
-Quant à la famille Liu à l'est, tous les cultivateurs invoquèrent leurs grands trésors. Des lueurs monstrueuses jaillirent vers le ciel comme des serpents d'argent, toutes dirigées vers Wang Lin! Les membres de la famille Liu se postèrent alors, entamant la formation de sceaux tandis que les incantations résonnaient en écho.
+Quant à la famille Liu à l'est, tous les cultivateurs invoquèrent leurs grands trésors. Des lueurs monstrueuses jaillirent vers le ciel comme des serpents d'argent, toutes dirigées vers Wang Lin! Les membres de la famille Liu s'assirent alors en tailleur, entamant la formation de sceaux tandis que les incantations résonnaient en écho.
 
-« Sortilège de la Poupée de Sang! » Le chant de près de dix mille cultivateurs fusionna en une voix unique qui s'éleva vers le ciel. Soudain, un étrange parfum floral émana de leurs corps!
+« Art du Tournesol de Sang! » Le chant de près de dix mille cultivateurs fusionna en une voix unique qui s'éleva vers le ciel. Soudain, un étrange parfum floral émana de leurs corps!
 
 À l'apparition de cette fragrance, un gigantesque tournesol jaune surgit du sol. Ses bords étaient dorés mais son centre était noir, parsemé de multiples grains semblables à des semences. Cependant, Wang Lin voyait clairement que ces grains étaient en réalité les têtes de ces dix mille cultivateurs!
 
@@ -66,7 +66,7 @@ Le fracas fut assourdissant. Les cheveux blancs de Wang Lin furent balayés par 
 
 Sous les grondements de tonnerre, le monde semblait se déchirer. Une immense faille apparut dans la terre sous les pieds de Wang Lin. Ce gouffre s'enfonça profondément dans la planète et, à cet instant précis, la partie orientale de Dong Ling se détacha du reste du globe!
 
-De loin, on pouvait voir une partie de la planète se fissurer et se séparer. Ce fragment colossal, chargé des cadavres des cultivateurs ayant utilisé le Sortilège de la Poupée de Sang, fut projeté dans l'immensité de l'espace. La planète Dong Ling était mutilée et commençait à s'effondrer à grande échelle!
+De loin, on pouvait voir une partie de la planète se fissurer et se séparer. Ce fragment colossal, chargé des cadavres des cultivateurs ayant utilisé l'Art du Tournesol de Sang, fut projeté dans l'immensité de l'espace. La planète Dong Ling était mutilée et commençait à s'effondrer à grande échelle!
 
 Le pilier de lumière disparut, emportant avec lui l'ombre sans tête... Wang Lin ne recula pas d'un seul pas avant que la menace ne soit dissipée, puis il retira lentement sa main droite.
 

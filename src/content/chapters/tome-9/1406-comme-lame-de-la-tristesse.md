@@ -18,7 +18,7 @@ Wang Lin resta figé sur place, les yeux rivés sur le bateau qui approchait. Il
 
 Le serviteur derrière lui avait la quarantaine; il inclina la tête en disant:
 
-« C'est bien, le poème du Jeune Maître est véritablement extraordinaire. À l'entendeur d'un humble serviteur, ce poème signifie que ce que les cieux possèdent est difficile à obtenir pour les hommes. Magnifique! »
+« C'est bien, le poème du Jeune Maître est véritablement extraordinaire. À l'entendeur d'un humble serviteur, un tel poème ne devrait exister qu'au ciel, et les hommes ont peine à en entendre de pareils. Magnifique, merveilleux! »
 
 Le jeune homme sourit, saisit un éventail et pointa le serviteur du doigt: « Foutaises, c'est manifestement un poème laissé par des anciens. À t'écouter, on croirait que je l'ai composé moi-même. »
 
@@ -32,7 +32,7 @@ Le corps du jeune homme frémit et son expression changea. Une pointe de surpris
 
 Le tumulte dans le cœur de Wang Lin s'apaisa progressivement et ses yeux brillèrent d'une lueur étrange. Il fit un pas en avant, flottant comme une feuille, avant de se poser sur le bateau.
 
-Les quatre serviteurs aux côtés du jeune homme furent tous stupéfaits; ils fixèrent Wang Lin avec incrédulité. Ce qui les choqua n'était pas le mouvement de Wang Lin, mais le fait qu'il ressemble exactement à leur jeune maître!
+Le serviteur d'une quarantaine d'années aux côtés du jeune homme écarquilla les yeux; il fixa Wang Lin avec incrédulité. Ce qui le choqua n'était pas le mouvement de Wang Lin, mais le fait qu'il ressemble exactement à son jeune maître!
 
 Une fois à bord, Wang Lin ne dit mot et s'assit en face du jeune homme.
 
@@ -76,7 +76,7 @@ Le jeune homme fut tout aussi stupéfait par l'apparition de cette cruche. Aprè
 
 « Senior est... un immortel? »
 
-Wang Lin tint sa coupe et murmura pour lui-même: « Tu as grandi dans un village de montagne. Ton père est Wang Tianhsui, le second fils de la famille, un charpentier... Ta mère est Zhou Yingsu, une femme de la famille Zhou ayant étudié quelques années dans une école privée. Quand tu étais enfant, elle t'a appris à lire et à écrire... »
+Wang Lin tint sa coupe et murmura pour lui-même: « Tu as grandi dans un village de montagne. Ton père est Wang Tianshui, le second fils de la famille, un charpentier... Ta mère est Zhou Yingsu, originaire du village de la famille Zhou, ayant étudié quelques années dans une école privée. Quand tu étais enfant, elle t'a appris à lire et à écrire... »
 
 Ces paroles tombèrent sur le jeune homme comme la foudre, le laissant pétrifié.
 
@@ -96,13 +96,13 @@ Wang Lin flottait dans les airs, observant la terre en contrebas. Cet endroit lu
 
 Wang Lin soupira, l'expression tourmentée.
 
-« Suis-je las de ma culture... Comment aurais-je pu engendrer un fantôme empruntant un chemin si différent... » Wang Lin médita en silence.
+« Suis-je las de la culture du Dao... Sinon, comment aurais-je pu faire surgir une âme illusoire ayant suivi une autre vie... » Wang Lin médita en silence.
 
-« Contrairement à ce qui s'est passé sur la planète Tian Yun, je sais qui je suis et je sais que tout ceci n'est qu'une illusion. Je sais que je suis entré ici avec mon âme, et je connais mon but... Je dois allumer l'Épreuve Humaine... » Wang Lin leva la tête, une pointe de mélancolie dans les yeux. Dès qu'il put voir le monde clairement, il comprit ce qu'était l'encens humain et comment l'allumer.
+« Contrairement à ce qui s'est passé sur la planète Tian Yun, je sais qui je suis et je sais que tout ceci n'est qu'une illusion. Je sais que je suis entré ici avec mon âme, et je connais mon but... Je dois allumer l'encens humain... » Wang Lin leva la tête, une pointe de mélancolie dans les yeux. Dès qu'il put voir le monde clairement, il comprit ce qu'était l'encens humain et comment l'allumer.
 
 S'il le voulait, il pourrait allumer la première baguette d'encens à cet instant même.
 
-« Cependant, je veux les regarder une dernière fois avant de l'allumer... Eux... Et elle... » Les yeux de Wang Lin trahirent une solitude et une tristesse profondes. Il savait que tout cela était illusoire, une création de l'Épreuve Humaine. Pourtant, il ne pouvait s'empêcher de vouloir contempler la seule chose que nul ne pouvait atteindre: son ultime limite... Elle.
+« Cependant, je veux les regarder une dernière fois avant de l'allumer... Eux... Et elle... » Les yeux de Wang Lin trahirent une solitude et une tristesse profondes. Il savait que tout cela était illusoire, une création de l'Épreuve Humaine. Pourtant, il ne pouvait s'empêcher de vouloir contempler celle que nul ne devait jamais toucher, son écaille inversée toute sa vie durant... Elle.
 
 « Juste un regard, et ensuite j'allumerai l'encens humain... » Wang Lin fit un pas en avant et disparut sans laisser de trace.
 
@@ -112,7 +112,7 @@ Le vent léger soufflait, faisant flotter les longs cheveux et les vêtements de
 
 Le vieux Oiseau Vermillon laissa poindre une pointe d'anxiété. En observant la silhouette, son inquiétude grandit.
 
-« Pourquoi est-il si lent... Compte tenu de son niveau de culture, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure, voire qu'il l'allume au premier souffle. Cela fait maintenant près d'une heure, soit la majeure partie d'une journée ici. Se pourrait-il qu'il n'ait pas passé assez de temps à cultiver pour tout percer, et que son âme refuse de partir? »
+« Pourquoi est-il si lent... Compte tenu de son niveau de culture, cet enfant aurait déjà dû allumer la première baguette. Je m'attendais à ce qu'il mette une demi-heure au plus pour l'allumer, puis qu'il ressorte en un souffle, le temps que l'encens se consume. Cela fait maintenant près d'une heure, soit la majeure partie d'une journée à l'intérieur. Se pourrait-il que, malgré des milliers d'années de culture, il refuse encore de tout percer à jour, et que son âme retourne vraiment vers sa patrie? »
 
 Le Maître Simo laissa échapper un rictus méprisant en fixant la silhouette sous l'encens. Il pensa: « Ce n'est que la première baguette et ce petit bâtard montre déjà des signes de faiblesse. Il n'a aucune chance de réussir les épreuves. Une fois qu'il aura échoué, le premier Jeune Empereur perdra toute dignité devant ces cultivateurs... »
 
@@ -128,6 +128,6 @@ Pays de Huo Fen, Secte Luo He.
 
 Dans l'atelier d'alchimie de la montagne arrière, une jeune fille vêtue d'une robe fleurie fronça les sourcils en fixant le fourneau à pilules fumant. Elle regarda la femme d'âge mûr, au visage renfrogné, assise près du foyer, et murmura: « Maîtresse, Wan Er a encore échoué... »
 
-La femme lança un regard sévère à la jeune fille. « Très bien, très bien, tu as toujours cet air si pitoyable. Va à la montagne médicinale cueillir de l'Herbe Lune. Je vais voir si je peux raffiner ces pilules à nouveau. »
+La femme lança un regard sévère à la jeune fille. « Très bien, très bien, tu as toujours cet air si pitoyable. Va à la montagne médicinale cueillir de l'Herbe de Lune d'Eau. Je vais voir si je peux raffiner ces pilules à nouveau. »
 
 La jeune fille tira la langue de façon espiègle et sortit rapidement de la salle d'alchimie, un sourire aux lèvres.

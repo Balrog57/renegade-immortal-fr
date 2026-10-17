@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: Li Guang's Bow
 slug: larc-de-li-quang
 ---
-Dao Ji Li Quang!
+Dao Yi Li Guang!
 
 L'arc qui abattit l'œil gauche de l'Ordre Antique!
 
 Un trésor surnaturel capable de faire trembler les cieux, considéré comme le summum de la création. Il avait même percé les puissants sorts taoïstes de l'Ordre Antique. Un arc redoutable qui lui avait arraché ses sentiments pour sa patrie et volé la moitié de ses souvenirs!
 
-Lorsque Wang Lin s'était assis sur le trône dans la tombe de l'Ordre Antique et qu'il était entré dans cet état onirique, il avait personnellement contemplé la puissance de l'arc Li Quang!
+Lorsque Wang Lin s'était assis sur le trône dans la tombe de l'Ordre Antique et qu'il était entré dans cet état onirique, il avait personnellement contemplé la puissance de l'arc Li Guang!
 
 Cette flèche suffisait à ébranler le monde. Aux yeux de Wang Lin, même la Formation de Scellement du Royaume s'effondrerait devant une telle puissance, sans aucune capacité de résistance!
 
@@ -50,11 +50,11 @@ Sous cette agonie, Wang Lin eut l'impression qu'un pieu lui transperçait le cr�
 
 La sueur perla sur le front de Wang Lin. Tout cela se produisit en un instant. Il se retourna pour observer le jeune homme en blanc bandant l'arc.
 
-En voyant cet arc, un rugissement monstrueux jaillit de son corps. Il fit volte-face et sa silhouette devint floue, comme s'il allait fusionner avec le monde!
+En voyant cet arc, un rugissement monstrueux jaillit de son corps. Il recula d'un pas et sa silhouette devint floue, comme s'il allait fusionner avec le monde!
 
 Simultanément, Wang Lin leva brusquement la main; ses sept étoiles antiques tournèrent frénétiquement avant de jaillir de son front. Les sept étoiles pivotèrent devant lui, dégageant une puissante aura d'Ancien Dieu!
 
-Alors que l'aura d'Ancien Dieu se répandait, le chef de l'Ordre Antique apparut instantanément devant Wang Lin!
+Alors que l'aura d'Ancien Dieu se répandait, la tête de l'Ordre Antique apparut instantanément devant Wang Lin!
 
 Tout cela se produisit en un éclair; Wang Lin avait tout préparé à la seconde même où il allait partir! Sa réaction fut si rapide que même le jeune homme en blanc fut stupéfait. Puis, une lueur de froideur traversa son regard.
 
@@ -74,4 +74,4 @@ Le rugissement de la flèche força Maître Hong Shan, Maître Nan Yunzi et les 
 
 « Cet arc!! »
 
-« Cet arc est entre ses mains!! » Un hurlement terrifiant résonna alors que la flèche fantôme blanche fonçait vers l'ouverture de la Formation de Scellement du Royaume. Dès qu'elle pénétra dans la brèche, la formation elle-même trembla. Ce n'était pas seulement une partie de la structure, mais l'intégralité de la Formation de Scellement du Royaume qui scellait le Domaine Intérieur tout entier qui se mit à vibrer violemment!
+« Cet arc est entre ses mains!! » Un hurlement terrifiant résonna alors que la flèche fantôme blanche fonçait vers l'ouverture de la Formation de Scellement du Royaume. Dès qu'elle pénétra dans la brèche, la formation elle-même trembla. Ce n'était pas seulement une partie de la structure, mais l'intégralité de la Formation de Scellement du Royaume qui scellait le Royaume Intérieur tout entier qui se mit à vibrer violemment!

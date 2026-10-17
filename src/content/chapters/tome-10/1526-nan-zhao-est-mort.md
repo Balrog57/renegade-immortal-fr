@@ -6,9 +6,9 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1526 - Nan Zhao Dies!"
 slug: nan-zhao-est-mort
 ---
-C'était là la véritable gloire du Seigneur du Royaume Scellé!
+C'était là le véritable cri de guerre, la véritable gloire du Seigneur du Royaume Scellé!
 
-Une sensation de supériorité, une aura qui faisait passer tous ceux qui se trouvaient devant lui pour de simples fourmis!
+Ou plutôt, c'était un souffle héroïque, la grandeur tragique de celui qui avance, fût-il seul contre des millions!
 
 Les innombrables cultivateurs envahisseurs devant Wang Lin reculèrent avec terreur. La vitesse de Wang Lin semblait atteindre ses limites; chaque pas qu'il posait déclenchait un grondement tonitruant qui ébranlait les étoiles!
 
@@ -22,7 +22,7 @@ Wang Lin avait accompli tout cela par sa propre force. Il avait remporté ce pre
 
 La mort du Shui Daozi ne comptait pour rien, ce n'était que l'assassinat d'un esclave. Cependant, la mort de l'ancêtre du Clan des Moineaux de Feu était différente. C'était un exploit guerrier majeur, celui d'avoir tué un général adverse!
 
-Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer des Nuages qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite lentement. Outre la peur, une forme d'admiration se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste les observaient!
+Ce fut la lueur la plus éclatante pour les cultivateurs de la Mer des Nuages qui avaient subi de lourdes pertes! Les 100 000 cultivateurs du Royaume Extérieur commencèrent à battre en retraite en silence. Outre la peur, une forme de crainte respectueuse se lisait dans leurs yeux. Même le garçon au regard froid et la concubine impériale céleste, les yeux étincelants, regardaient Wang Lin!
 
 Le rire tonitruant de Maître Hong Shan résonna soudainement!
 
@@ -92,11 +92,11 @@ Un cri déchirant retentit de l'intérieur de la masse toxique. Le corps évanes
 
 Ses yeux se remplirent d'une peur inimaginable et il recula comme un fou, cherchant désespérément à échapper à cet océan de poison.
 
-« Quel genre de poison est-ce là?! Même la Grande Désolation ne pourrait raffiner une telle chose!! » L'expression de l'Estimé Nan Zhao était pitoyable alors qu'il fuyait. Mais après n'avoir parcouru que quelques pieds, ses jambes se liquéfièrent en une eau sanglante. Même ses os fondirent!
+« Quel genre de poison est-ce là?! Même la Grande Désolation ne pourrait raffiner une telle chose!! » L'expression de l'Estimé Nan Zhao était pitoyable alors qu'il fuyait. Mais en un instant à peine, ses jambes se liquéfièrent en une eau sanglante. Même ses os fondirent!
 
 Des cris atroces, capables d'ébranler l'esprit, résonnèrent à travers les étoiles avant de devenir un cri de détresse terrifiant!
 
-« Sauvez-moi!! » Le bas du corps de l'Estimé Nan Zhao s'était totalement dissipé. Ses bras se liquéfièrent en eau de sang alors qu'il tentait de les lever. Même son torse se mit à fondre tandis que l'océan de poison l'enveloppait. Les cris cessèrent soudainement! L'océan de poison retourna vers Wang Lin avec l'âme de l'Estimé Nan Zhao — morte ou vivante, on l'ignorait — et fut emprisonnée dans le Fourneau Impérial de Wang Lin.
+« Sauvez-moi!! » Le bas du corps de l'Estimé Nan Zhao s'était totalement dissipé. Ses bras se liquéfièrent en eau de sang alors qu'il tentait de les lever. Même son torse se mit à fondre tandis que l'océan de poison l'enveloppait. Les cris cessèrent soudainement! L'océan de poison reflua vers Wang Lin avec tout ce qui restait de lui, et l'âme de l'Estimé Nan Zhao — morte ou vivante, on l'ignorait — fut emprisonnée par Wang Lin dans le Fourneau Impérial.
 
 Seuls les restes d'un cri misérable résonnaient encore aux oreilles des 100 000 cultivateurs. La peur dans leurs yeux atteignit son paroxysme! En particulier, le vieil homme en bleu qui avait fait un pas en avant s'arrêta net, terrifié. Lorsque Wang Lin lui jeta un regard glacial, une sueur froide perla sur le front du vieillard et il battit en retraite précipitamment.
 

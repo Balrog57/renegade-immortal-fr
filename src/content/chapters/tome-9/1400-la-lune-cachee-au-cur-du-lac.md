@@ -38,7 +38,7 @@ Wang Lin leva les yeux et, d'un seul pas, disparut. Il réapparut sur la partie 
 
 Assis là, Wang Lin fixait la terre grise dans sa main en fronçant les sourcils.
 
-« Cette terre semble ordinaire, mais j'ai le sentiment que quelque chose ne va pas... » Wang Lin réfléchit et ferma les yeux. Un souvenir remonta progressivement à son esprit: celui où il avait fait un demi-pas vers la porte de la Perle Défiant le Ciel. Il s'était alors transformé en chaos, flottant dans le vide avant de devenir une planète de culture.
+« Cette terre semble ordinaire, mais j'ai le sentiment que quelque chose ne va pas... » Wang Lin réfléchit et ferma les yeux. Un souvenir remonta progressivement à son esprit: celui où, lors d'une ouverture de la Perle Défiant le Ciel, il y avait engagé la moitié d'un pied. Il s'était alors transformé en chaos, flottant dans le vide avant de devenir une planète de culture.
 
 Wang Lin gardait une impression puissante de ce souvenir. C'était cette expérience qui lui avait permis d'acquérir une compréhension vague de bien des choses.
 

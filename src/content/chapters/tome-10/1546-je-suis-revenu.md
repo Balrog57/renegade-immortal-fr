@@ -42,7 +42,7 @@ Les deux affichaient des visages sombres et une intention cruelle. Le cultivateu
 
 Le feu fonça sur le vieil homme avec frénésie. Cet homme n'était autre que Maître Yan Leizi!
 
-Les yeux de Maître Yan Leizi étaient empreints de folie. Ses mains formèrent un sceau et il projeta un mouvement vers l'avant. Plus d'une douzaine de fragments apparurent, formant des barrières rotatives qui entrèrent en collision avec la mer de feu.
+Les yeux de Maître Yan Leizi étaient empreints de folie. Ses mains formèrent un sceau et il frappa vers l'arrière. Plus d'une douzaine de fragments apparurent, formant des barrières rotatives qui entrèrent en collision avec la mer de feu.
 
 Un fracas de tonnerre retentit et, tandis que l'impact se propageait, Maître Yan Leizi cracha du sang. Il utilisa l'énergie du choc pour charger follement vers l'avant. Les fragments derrière lui furent consumés par la mer de flammes et trois d'entre eux s'effondrèrent, mais les restants suivirent Maître Yan Leizi.
 
@@ -64,7 +64,7 @@ Toutefois, il était encore à une certaine distance de la limite de la zone. Ma
 
 « Le Seigneur du Royaume Scellé est déjà mort, vous le savez mieux que quiconque! S'il était vivant, pourquoi n'est-il pas apparu lors des deuxième et troisième batailles? Pourquoi n'est-il pas intervenu quand Maître Hong Shan était piégé? "Seigneur du Royaume Scellé"... ce n'est qu'un nom usurpé; aux yeux de ce vieil homme, il n'est qu'un enfant! » Les paroles du membre du Clan du Loup Céleste étaient tranchantes. Sa main droite traça un sceau et des poils verts poussèrent soudainement sur tout son bras droit!
 
-L'expression de Maître Yan Leizi s'assombrit alors qu'il reculait, mais il éclata d'un rire sauvage. Il pointa le cultivateur du Clan de l'Hirondelle de Feu du doigt et sourit férocement: « Ridicule? Il a tué l'ancêtre de votre clan en un instant et a abattu plus de 100 000 cultivateurs du Royaume Extérieur! Avez-vous entendu les cris de douleur de votre ancêtre avant qu'il ne meure?! »
+L'expression de Maître Yan Leizi s'assombrit alors qu'il reculait, mais il éclata d'un rire sauvage. Il pointa le cultivateur du Clan de l'Hirondelle de Feu du doigt et sourit férocement: « Ridicule? Il a tué l'ancêtre de votre clan en un instant devant plus de 100 000 cultivateurs du Royaume Extérieur! Avez-vous entendu les cris de douleur de votre ancêtre avant qu'il ne meure?! »
 
 L'intention meurtrière dans les yeux du cultivateur du Clan de l'Hirondelle de Feu devint monstrueuse. C'était la douleur même qui déchirait tout leur clan!
 

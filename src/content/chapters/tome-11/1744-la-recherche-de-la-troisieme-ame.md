@@ -12,7 +12,7 @@ Un seul regard valait mille ans.
 
 Cette nuit-là, la lune et les étoiles étaient dispersées, une nuit sans sommeil. Mais cette nuit, avec Li Muwan à ses côtés, le cœur de Wang Lin était calme car il n'était pas seul.
 
-Le vent soufflait, et tandis qu'il passait, le cœur de Wang Lin semblait s'envoler vers le cercueil. Il souleva les cheveux noirs de Li Muwan dans un souffle léger.
+Le vent passa : tout en soulevant les cheveux de Wang Lin, il souffla aussi sur le cercueil et fit onduler les cheveux noirs de Li Muwan endormie à l'intérieur, dans une douceur légère.
 
 Les cheveux noirs dans le cercueil semblaient vouloir s'élancer vers le ciel eux aussi, mais finalement, manquant de force, ils retombèrent doucement.
 
@@ -72,7 +72,7 @@ Le Vieux Fantôme Zhan suivait derrière. En fixant la bête, ses yeux brillère
 
 « Il semble que la troisième âme soit dans Luotian! J'ai passé le plus clair de mon temps dans Luotian. Si la troisième âme s'y trouve vraiment, alors ce sera une personne ou une bête... »
 
-De l'autre côté de Luotian se trouvait le Vide Brillant. Un nuage aux sept couleurs traversait rapidement le système stellaire. Le Daoïste aux Sept Couleurs fronça les sourcils en observant une goutte de sang cristallin dans sa main.
+De l'autre côté de Luotian se trouvait le Vide Brillant. Une lueur aux sept couleurs y roulait comme un nuage de brume. Devant ce nuage, le Daoïste aux Sept Couleurs fronçait les sourcils en observant une goutte de sang cristallin dans sa main.
 
 Il avait exploré tout le Vide Brillant, à l'exception de la planète des Cinq Éléments. Il avait inspecté chaque centimètre du système stellaire, chaque planète et chaque grain de poussière, mais n'avait trouvé aucun indice.
 
@@ -96,13 +96,13 @@ Avec une telle méthode, la troisième âme ne pourrait absolument pas se cacher
 
 Wang Lin, lui aussi, cherchait la troisième âme!
 
-Assis sur sa montagne, Wang Lin déployait son sens divin sur l'ensemble du Royaume Céleste. Il finit par trouver Qing Shui dans un pavillon de bois, perché sur une montagne de la partie nord-ouest du Royaume Céleste.
+Assis sur sa montagne, Wang Lin déployait son sens divin sur l'ensemble du Royaume Céleste. Il finit par trouver Qing Shui dans un pavillon de bois, au creux d'une vallée du nord-ouest du Royaume Céleste.
 
 Papillon Rouge se trouvait également là avec lui. Le père et la fille vivaient en paix.
 
 À cet instant, Qing Shui souriait à Papillon Rouge, lui prodiguant des conseils pour surmonter certaines difficultés dans sa culture. Elle était déjà très douée et apprenait rapidement.
 
-« La culture met l'accent sur les émotions et les idéaux. Les idéaux sont tout... Et... » Les yeux de Qing Shui s'illuminèrent soudainement et il leva les yeux vers le ciel. Une émotion complexe traversa son regard, puis, un instant plus tard, il se leva.
+« Celui qui suit la voie accorde de l'importance à l'intention et au cœur. Tout n'est que cœur... Et... » Les yeux de Qing Shui se figèrent soudainement et il leva les yeux vers le ciel. Une émotion complexe traversa son regard, puis, un instant plus tard, il se leva.
 
 « Papillon, continue ton entraînement seule. Ton père a une affaire urgente à régler. » Sur ces mots, Qing Shui fit un pas et se changea en une ombre qui disparut de la pièce.
 
@@ -122,7 +122,7 @@ Il murmura: « Fais-le. J'ignore quelle méthode tu vas employer, mais je ferai 
 
 « Je sais seulement que le Senior Frère Qing Shui est l'un des sept fragments. Quant aux six autres, je n'en ai aucune idée... Mais soyez rassuré, Senior Frère. Quoi qu'il arrive, je ne permettrai pas aux trois âmes de fusionner pour dévorer les sept fragments! »
 
-« Quand je trouverai la troisième âme, je la tuerai! » La main droite de Wang Lin pointa l'espace entre ses sourcils et la Voile Fantôme s'élança. Elle se déploya rapidement pour devenir un visage fantomatique gigantesque flottant au-dessus d'eux.
+« Quand je trouverai la troisième âme, je la tuerai, puis je prendrai son âme pour la sceller! » La main droite de Wang Lin pointa l'espace entre ses sourcils et la Voile Fantôme s'élança. Elle se déploya rapidement pour devenir un visage fantomatique gigantesque flottant au-dessus d'eux.
 
 Le visage spectral, d'apparence féroce, chargea vers Wang Lin et Qing Shui. Il ouvrit sa gueule et les dévora instantanément!
 

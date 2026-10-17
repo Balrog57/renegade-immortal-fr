@@ -38,7 +38,7 @@ Le monde changea radicalement!
 
 Un hurlement assourdissant déchira l'espace! Cette flèche était telle un rayon de mort projeté avec une fureur folle.
 
-Ce qui s'élança avec elle était l'âme de Wang Lin, son âme originelle et toute la puissance contenue dans son corps: son énergie ancienne, son héritage de lignée céleste, et tout le reste!
+Ce qui s'élança avec elle était l'âme de Wang Lin, son âme originelle et toute la puissance contenue dans son corps: son énergie ancienne, la puissance de sa lignée, et tout le reste!
 
 Au moment où la flèche s'envola, tous ces éléments se transformèrent en une fumée invisible pour être absorbés par le projectile.
 
@@ -52,7 +52,7 @@ Dès son départ, une profonde gorge se creusa dans l'eau calme. Cette entaille 
 
 Une immense fissure apparut même dans le ciel. Elle continua de se propager, semblant prête à briser cette extrêmement puissante formation meurtrière destinée à l'anéantir!
 
-Les quatre individus fuyaient avec terreur. Le Maître Céleste Dieu du Vide était le plus rapide et s'était déjà éloigné. Les deux concubines impériales célestes suivaient de près, leurs visages marqués par la douleur et le désespoir.
+Les quatre individus fuyaient avec terreur. Le Maître Céleste Dieu du Vide était le plus rapide et s'était déjà éloigné. Les deux concubines impériales célestes suivaient de près, le visage livide et le désespoir dans les yeux.
 
 L'homme en blanc possédait le niveau de culture et le statut les plus bas. Incapable de suivre la cadence, il prit du retard, se retrouvant ainsi comme la cible la plus proche de la flèche.
 
@@ -104,14 +104,14 @@ L'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Dieu d
 
 « Souverain, ce vieil homme a bloqué la flèche pour vous! Vous devrez me donner des explications! » Son rugissement funèbre résonna alors qu'il s'évanouissait totalement.
 
-Les seuls mots capables de décrire la puissance de cette flèche étaient « céleste »!
+Les seuls mots capables de décrire la puissance de cette flèche étaient « à ébranler le ciel et la terre »!
 
 Après avoir tué trois personnes, il ne restait plus beaucoup de force au projectile, mais il continuait de hurler vers le ciel. Il allait tenter de briser la voûte céleste pour libérer Wang Lin de sa calamité!
 
-Cependant, alors que la flèche s'approchait du firmament et que la lumière bleue commençait à vaciller, une silhouette sortit silencieusement de l'ombre. Cette personne portait une robe noire qui lui couvrait le visage. Une pression écrasante émanait de son corps, une puissance bien supérieure aux limites de culture de l'Arcane Vide autorisées dans cet espace scellé!
+Cependant, alors que la flèche s'approchait du firmament et que la lumière bleue commençait à vaciller, une silhouette sortit silencieusement de l'ombre. Cette personne portait une robe noire qui lui couvrait le visage. Une pression écrasante émanait de son corps, une puissance bien supérieure au stade intermédiaire du Vide Spirituel que ce sceau permettait dans cet espace!
 
 Il tendit sa main droite desséchée et saisit la flèche!
 
 Son corps trembla, puis il leva lentement la tête pour regarder Wang Lin. Il prit la parole d'une voix calme et rauque:
 
-« Le rugissement provenant du pouvoir emprunté au Tombeau Antique, bloquant les cultivateurs du Royaume Extérieur lors de la première bataille dans la Mer des Nuages... Wang Lin, nous nous rencontrons enfin... Ce vieil homme est le Souverain... »
+« Le rugissement provenant du pouvoir emprunté au Tombeau Antique, bloquant mon armée de cultivateurs antiques lors de la bataille de la Mer des Nuages... Wang Lin, nous nous rencontrons enfin... Ce vieil homme est le Souverain... »

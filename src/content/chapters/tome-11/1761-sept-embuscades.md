@@ -28,9 +28,9 @@ Il saisit une poignée de sable jaune et y décela une trace d'énergie spiritue
 
 « Je peux tendre une embuscade ici! » Les yeux de Wang Lin s'illuminèrent d'un éclat froid. Sa main droite traça des sceaux et d'innombrables restrictions apparurent pour former l'Ombrelle Brûlante du Royaume.
 
-Dès que l'ombrelle se manifesta, une vague de chaleur jaillit et se répandit dans le ciel. Les nuages se dispersèrent sous l'apparition de cette structure gigantesque. Une fois déployée, la canopée fusionna avec le mât de l'ombrelle, formant un pilier semblable à un axe reliant le ciel et la terre.
+Dès que l'ombrelle se manifesta, une vague de chaleur jaillit et se répandit dans le ciel. Les nuages se dispersèrent sous l'apparition de cette structure gigantesque. Une fois déployée, la canopée fusionna avec la voûte céleste et l'armature hérissée de l'ombrelle se dressa comme un pilier reliant le ciel et la terre.
 
-Wang Lin leva les yeux vers l'ombrelle incandescente et mordit sa langue pour en asperger l'objet de son sang. Le sang semblait s'enflammer tandis qu'il s'élevait vers les cieux. Des grondements tonitruants résonnèrent, puis l'ombrelle disparut lentement. Même le mât géant devint transparent jusqu'à ce qu'il ne reste plus aucune trace de lui.
+Wang Lin leva les yeux vers l'ombrelle incandescente et mordit sa langue pour en asperger l'objet de son sang. Le sang semblait s'enflammer tandis qu'il s'élevait vers les cieux. Des grondements tonitruants résonnèrent, puis l'ombrelle disparut lentement. Même la gigantesque armature devint transparente jusqu'à ce qu'il ne reste plus aucune trace d'elle.
 
 L'Ombrelle Brûlante du Royaume s'était fondue dans le vide, les rendant impossibles à distinguer. Cependant, quiconque pénétrerait sur cette planète serait enveloppé par les flammes.
 
@@ -44,7 +44,7 @@ L'Oiseau Vermillon était colossal; ses plumes caudales se déployèrent telles 
 
 Wang Lin ferma les yeux pour cultiver calmement un instant, puis les rouvrit brusquement. Ses mains formèrent des sceaux et il commença à murmurer. Un instant plus tard, une lumière aux sept couleurs jaillit de ses paumes. Cette lueur rappelait les sorts du Daoïste aux Sept Couleurs. Mais sous la maîtrise de Wang Lin, elle était encore plus éblouissante, recouvrant chaque parcelle de la planète.
 
-« Lance du Daoïste aux Sept Couleurs! » rugit Wang Lin en écartant les bras. Le ciel gronda alors que la lumière multicolore convergeait pour former une lance monumentale. Cette arme dégageait une aura terrifiante et émettait un chant sacré lors de son apparition, avant de foncer vers le sol et de se planter avec fracas à la droite de Wang Lin.
+« Lance du Daoïste aux Sept Couleurs! » rugit Wang Lin en écartant les bras. Le ciel gronda alors que la lumière multicolore convergeait pour former une lance monumentale. Cette arme dégageait une aura terrifiante et émettait un bourdonnement lors de son apparition, avant de foncer vers le sol et de se planter avec fracas à la droite de Wang Lin.
 
 C'était la deuxième embuscade!
 

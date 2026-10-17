@@ -8,7 +8,7 @@ slug: defi-de-lancien-dao
 ---
 La cinquième goutte, la sixième... jusqu’à ce que la neuvième goutte de sang jaillisse du vortex et fonce vers Wang Lin.
 
-Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il fixait les gouttes de sang qui volaient vers lui. Il ne chercha pas à l'esquiver et permit aux cinq premières gouttes de s'implanter entre ses sourcils. Elles semblèrent pénétrer à travers son corps.
+Les yeux de Wang Lin brillèrent d'un éclat vif alors qu'il fixait les gouttes de sang qui volaient vers lui. Il ne chercha pas à l'esquiver et permit aux cinq gouttes de s'implanter entre ses sourcils. Elles semblèrent pénétrer à travers son corps.
 
 Lors de la fusion de la cinquième goutte, un grondement de tonnerre émana du corps de Wang Lin et une force colossale jaillit du sang. Wang Lin ne put s'empêcher de reculer de quelques pas, le regard brillant. Cette sensation de puissance immense le poussa à serrer les poings.
 
@@ -22,9 +22,9 @@ La puissance du lignage ancien à l'intérieur de son corps augmentait rapidemen
 
 Les membres du clan ancien étaient semblables aux êtres célestes: plus leur lignage était puissant, plus leur identité était noble et plus ils pouvaient manifester de puissance.
 
-La fusion des sept gouttes rendit le lignage de Wang Lin second seulement après celui de l'Empereur de l'Ancien Dao. Il faut savoir que cet Empereur était un descendant de l'Empereur Ancien et possédait donc le lignage de l'Ancêtre Ancien. En conséquence, après avoir obtenu six gouttes de sang, il était devenu l'Empereur de l'Ancien Dao!
+La fusion des sept gouttes rendit le lignage de Wang Lin second seulement après celui de l'Empereur de l'Ancien Dao. Il faut savoir que cet Empereur était un descendant direct de l'Ancêtre Ancestral et possédait donc naturellement son lignage. En conséquence, après avoir obtenu six gouttes de sang, il était devenu l'Empereur de l'Ancien Dao!
 
-Cependant, Wang Lin ne possédait aucun lignage ancien et n'avait pas encore reçu de reconnaissance. Malgré cela, le lignage formé par sept gouttes pouvait rivaliser avec celui de l'Empereur, qui possédait déjà son propre lignage et avait obtenu six gouttes supplémentaires.
+Cependant, Wang Lin ne possédait aucun lignage ancien et n'avait pas encore reçu de reconnaissance. Pour cette raison, le lignage formé par sept gouttes ne pouvait pas encore rivaliser avec celui de l'Empereur, qui possédait déjà son propre lignage et avait obtenu six gouttes supplémentaires.
 
 La différence entre les deux était une question d'essence, semblable à celle entre un empereur et un citoyen ordinaire. Toutefois, cette distinction n'était pas immuable, et la huitième goutte vola vers Wang Lin. Dès qu'elle fusionna avec lui, le lignage devint encore plus pur et les grondements émanant de son corps s'intensifièrent. Des vagues de douleur jaillirent de sa moelle osseuse, le forçant à reculer et à trembler sans cesse.
 
@@ -38,13 +38,13 @@ Neuf gouttes de sang fusionnèrent avec les os de Wang Lin, transformant radical
 
 Cependant, ce n'était pas terminé. L'apparition du Sang de l'Âme baigna les environs d'une lumière pourpre. Ce sang violet possédait une force mystérieuse qui, dès son apparition, captiva toute l'attention de Wang Lin.
 
-Il observa la goutte pourpre. Un sentiment de nostalgie émanant de son propre sang envahit son être. Le Sang de l'Âme libéra un éclat pourpre monstrueux et s'imprima entre les sourcils de Wang Lin!
+Il observa la goutte pourpre. Un désir ardent issu de son propre lignage envahit son être. Le Sang de l'Âme libéra un éclat pourpre monstrueux et s'imprima entre les sourcils de Wang Lin!
 
 Elle ne fusionna pas avec son sang ni son lignage; cette goutte se fusionna avec l'âme de Wang Lin!
 
 La pureté de son lignage permettrait à Wang Lin de déchaîner une puissance ancienne, mais elle ne changerait pas son âme. En fin de compte, son âme resterait celle d'un membre du clan de l'Ancien Dao. Cependant, ce Sang de l'Âme pouvait transformer l'âme de Wang Lin, permettant à celle-ci de s'élever au-dessus des autres membres du clan!
 
-Cela lui permettrait de devenir une existence plus noble que cet Empereur! Ce serait comme s'il était devenu le quatrième fils de l'Ancêtre Ancien lui-même!
+Cela lui permettrait de devenir une existence plus noble que cet Empereur! Ce serait comme s'il était devenu le quatrième fils de l'Ancêtre Ancestral lui-même!
 
 Au moment où la goutte de Sang de l'Âme survola sa tête, Wang Lin fut stupéfait, les yeux emplis de confusion. Son corps recula jusqu'à ce qu'il s'allonge sur l'autel, s'appuyant contre le bras de Ye Mo.
 
@@ -52,7 +52,7 @@ Le vortex se dissipa lentement pour disparaître sans laisser de trace. Tout rev
 
 Toutes les bêtes féroces s'étaient cachées. Elles tremblaient, n'osant émettre le moindre bruit. Une pression semblait se propager dans ce calme étrange.
 
-Wang Lin était inconscient. S'il ne se réveillait pas, cet endroit resterait plongé dans le silence pendant des dizaines de milliers d'années. Aucun son ne jaillirait ici tant qu'il ne reprendrait pas connaissance. Cette pression émanait de son corps et se diffusait dans tout l'environnement.
+Wang Lin était inconscient. S'il ne se réveillait pas, cet endroit resterait plongé dans le silence pendant dix mille ans. Aucun son ne jaillirait ici tant qu'il ne reprendrait pas connaissance. Cette pression émanait de son corps et se diffusait dans tout l'environnement.
 
 Le corps original de Wang Lin dormait, tandis que son avatar flottait à l'extérieur de l'autel. L'avatar restait assis là, les yeux clos, parfaitement immobile.
 
@@ -60,17 +60,17 @@ Dans son sommeil, Wang Lin fit un rêve. Ce rêve différait du Dao des rêves; 
 
 C'était un homme d'apparence ordinaire. Son corps était immense, comme si les cieux et la terre n'étaient que poussière sous ses pieds. Il se tenait là, contemplant le monde avec une pointe de mépris.
 
-« Si je veux que ce ciel s'effondre, il s'effondrera. Si je veux que cette terre se brise, elle se brisera! Si je veux qu'un être meure, personne n'osera m'arrêter. Si je veux qu'aucun être céleste ne survive, qui osera les sauver?
+« Si je veux que ce ciel s'effondre, il s'effondrera. Si je veux que cette terre se brise, elle se brisera! Si je veux que tous les êtres périssent, nul n'osera ne pas périr! Si je veux que ce firmament soit sans êtres célestes, qui osera subsister?
 
-« Je suis un Ancien. Je suis né avant les cieux et la terre et j'ai survécu à l'aube du monde. Pourtant, avant moi, il y avait des êtres célestes. Ils voulaient faire de moi leur esclave; alors, laissez-moi détruire les êtres célestes!
+« Je suis un Ancien. Je suis né avant l'apparition des cieux et de la terre et j'existais avant l'ouverture de l'univers. Pourtant, avant moi, il y avait des êtres célestes. Ils voulaient faire de moi leur esclave; alors, laissez-moi détruire les êtres célestes!
 
 « Si j'échoue, toutes mes générations futures deviendront les ennemis des êtres célestes et jureront de purifier le monde de leur présence!
 
 « Mais vais-je perdre? Je ne perdrai jamais!
 
-« Neuf gouttes de Sang de l'Âme, je les donne à mes trois fils. Vous prendrez tous le commandement de mon peuple ancien. Attendez ma réincarnation, attendez que mon héritier apparaisse...
+« Neuf gouttes de Sang de l'Âme, je les donne à mes trois fils. Vous prendrez tous le commandement de mon peuple ancien. Au jour où les neuf courbes et les trois aspects paraîtront ensemble, attendez ma réincarnation, attendez que mon héritier apparaisse...
 
-« Obéir, c'est être mortel. Défiant, c'est être un être céleste. Défier les êtres célestes, c'est devenir un Ancien! »
+« Obéir, c'est rester mortel. Défier, c'est devenir un être céleste. Défier le ciel pour devenir céleste, puis défier les êtres célestes, c'est devenir un Ancien! »
 
 Le rêve prit fin alors que cet homme à l'apparence ordinaire prononçait ces paroles de choc. Même après avoir ouvert les yeux, ces mots résonnaient encore dans ses oreilles.
 

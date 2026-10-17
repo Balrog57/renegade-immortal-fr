@@ -18,7 +18,7 @@ Oubliez ce vieil homme, même Wang Lin possédait des dizaines de méthodes pour
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il fixait la surface du lac, tentant de se remémorer ce qu'il venait de voir. Il commença à méditer, le regard plongé dans les eaux.
 
-Voyant Wang Lin ainsi, le vieil homme fut d'autant plus ravi et ne le disturba pas. Il voulait tester la finesse de sa compréhension et voir si Wang Lin parviendrait à saisir le sens profond de cette technique.
+Voyant Wang Lin ainsi, le vieil homme fut d'autant plus ravi et ne le dérangea pas. Il voulait tester la finesse de sa compréhension et voir si Wang Lin parviendrait à saisir le sens profond de cette technique.
 
 « À l'époque où je l'ai apprise de l'Ancêtre, je n'avais pas pu en saisir la signification par moi-même. Même l'incroyable descendant de la quatrième génération de l'Oiseau Vermillon n'avait pu qu'en comprendre les contours, sans jamais en saisir le cœur. Ce n'est que lorsque l'Ancêtre nous l'eut expliqué que nous avons soudainement réalisé sa véritable essence. Voyons ce que fera la sixième génération. »
 
@@ -40,7 +40,7 @@ Cependant, en cet instant, alors que cette force de réaction se manifestait, le
 
 Des ondulations résonnèrent sur le lac, et d'autres se propagèrent depuis sa paume. Le lac était semblable à son cœur, et une onde venait de s'y déclencher.
 
-Il était différent des autres; Wang Lin était un Dieu Ancien. Ils ne possédaient pas de nombreux sorts, mais leurs corps étaient d'une puissance extrême. Un seul coup de poing suffisait à anéantir une planète cultivée. C'était là le cœur même de la force des Dieux Anciens!
+Il était différent des autres; Wang Lin était un Dieu Ancien. Chez les Dieux Anciens, outre leurs arts divins, ce qu'il y avait de plus puissant était la force du corps. Un seul coup de poing ouvrait le ciel et suffisait à anéantir une planète cultivée. C'était là le cœur même de la force des Dieux Anciens!
 
 C'est pour cette raison que la perception de la force chez Wang Lin différait radicalement de celle des cultivateurs dépendant de sorts ou de trésors.
 
@@ -62,29 +62,29 @@ Le vieil homme fut stupéfait.
 
 « Cette désintégration était un changement d'état permettant de transformer directement l'eau en vapeur! Bien que cela paraisse simple, cela contenait une force capable de secouer les cieux! »
 
-« Le pouvoir de modifier l'état des êtres vivants! » Tandis que Wang Lin parlait, son regard devint plus vif et son esprit s'éclaircit. Les idées affluaient en lui tandis qu'il rejouait mentalement le geste du vieil homme des dizaines de milliers de fois.
+« Le pouvoir de modifier l'état des êtres vivants! » Tandis que Wang Lin parlait, son regard devint plus vif et son esprit s'éclaircit. Les idées affluaient en lui tandis qu'il rejouait mentalement le geste du vieil homme des centaines, voire des milliers de fois.
 
-« C'est donc cela. La paume du Senior contenait cette loi. Un seul coup pourrait même provoquer l'effondrement d'une planète cultivée. Bien qu'il y aurait une force de réaction, celle-ci n'apparaîtrait qu'une fois la planète déjà détruite. »
+« C'est donc cela. La paume du Senior contenait cette loi. Un seul coup pourrait même provoquer l'effondrement d'une planète cultivée. Bien qu'il y aurait une force de réaction, au moment où cette force se transmettrait, la planète cultivée serait déjà incapable de la supporter et s'effondrerait. La force qui brise une planète cultivée, outre la sienne propre, emprunte aussi cette force de réaction! »
 
 « Cependant, l'eau est différente. On ne peut sous-estimer la ténacité de l'eau. Une fois accumulée en quantité suffisante, la puissance qu'elle peut supporter est phénoménale. Si le même coup frappait la mer, la force de réaction suffirait à faire imploser une personne! »
 
-Le vieux Oiseau Vermillon fixait Wang Lin, les yeux écarquillés. La crainte qu'il avait ressentie en découvrant les cinq essences du jeune homme refaisait surface.
+Le vieil Oiseau Vermillon fixait Wang Lin, les yeux écarquillés. La crainte qu'il avait ressentie en découvrant les cinq essences du jeune homme refaisait surface.
 
 « Une telle compréhension des lois célestes est une chose que je n'ai jamais vue auparavant. Cette clairvoyance est plus puissante que n'importe quel talent inné! L'obtention de ces essences n'était donc pas un coup de chance pour cet enfant! » Le vieil Oiseau Vermillon prit une profonde inspiration, son regard envers Wang Lin devenant encore plus étrange.
 
 À cet instant, il ignorait qu'une fois que Wang Lin aurait appris la Restriction de l'Âme Ancienne, il aurait la possibilité d'atteindre le sommet des restrictions, d'accéder au Royaume du Vide et d'obtenir l'essence du vide! Certes, cette chance était infime, mais elle existait.
 
-« Ce que le Senior tente d'enseigner au Junior est la manière d'utiliser cette force de réaction. Ainsi, lorsque je frappe, je peux emprunter cette force pour terrasser mon ennemi, car ma puissance s'en trouverait décuplée! Cela peut même modifier l'état des objets. Bien que ce ne soit pas un sortilège au sens strict, cette méthode peut être considérée comme tel! Le Senior souhaite que le Junior apprenne cela? » Les yeux de Wang Lin brillaient d'une joie intense. Un combat normal entre cultivateurs n'implique pas de coups de poing ou de pied, mais pour un Dieu Ancien comme lui, cela s'apparentait à un sortilège!
+« Ce que le Senior tente d'enseigner au Junior est la manière d'utiliser cette force de réaction. Ainsi, lorsque je frappe, je peux emprunter cette force pour terrasser mon ennemi, car ma puissance s'en trouverait décuplée! Cela peut même modifier l'état des objets. Bien que ce ne soit pas un sortilège au sens strict, cette méthode peut être considérée comme tel! Senior, ce que dit le Junior est-il juste? » Les yeux de Wang Lin brillaient d'une joie intense. Un combat normal entre cultivateurs n'implique pas de coups de poing ou de pied, mais pour un Dieu Ancien comme lui, cela s'apparentait à un sortilège!
 
 Dans les souvenirs divins de Wang Lin, une telle méthode d'utilisation de la force n'existait pas. Cette leçon du deuxième Oiseau Vermillon représentait énormément pour lui!
 
 Lorsqu'il repensa à son combat contre Tuo Sen, il était évident que ce dernier était bien plus fort. Leur affrontement n'avait été qu'un combat d'enfant contre un adulte! Il n'était pas exagéré de dire qu'il ne savait utiliser que la force brute des Dieux Anciens.
 
-Le vieux Oiseau Vermillon déglutit et soupira intérieurement. Ayant vécu si longtemps, il était devenu un vieil homme monstrueux et savait parfaitement jouer la comédie. Il dit lentement: « Bien, tout ce que tu as énoncé sont de simples vérités, précisément ce que je voulais te transmettre. »
+Le vieil Oiseau Vermillon déglutit et soupira intérieurement. Ayant vécu si longtemps, il était devenu un vieil homme monstrueux et savait parfaitement jouer la comédie. Il dit lentement: « Bien, tout ce que tu as énoncé sont de simples vérités, précisément ce que je voulais te transmettre. »
 
 Mais intérieurement, il fulminait: « Malédiction, je ne peux pas laisser ce gamin me démasquer. S'il découvre que ce vieil homme n'avait même pas pu comprendre cela à l'époque, toute ma dignité d'Ancien sera réduite à néant... Si j'avais su, je lui aurais transmis les sorts secrets du Tigre Blanc ou du Dragon Azure. Ces techniques ne sont pas destinées aux humains. Avec la compréhension de ce petit monstre, il devrait plutôt étudier ces choses-là. »
 
-Le vieil Oiseau Vermillion toussa sèchement pour changer de sujet. Ses yeux s'agrandirent et il déclara: « Très bien. Maintenant que tu as appris le sort secret, suis-moi pour l'épreuve. Une fois l'épreuve terminée, va utiliser la maîtrise de Simo pour démontrer ta puissance! »
+Le vieil Oiseau Vermillon toussa sèchement pour changer de sujet. Ses yeux s'agrandirent et il déclara: « Très bien. Maintenant que tu as appris le sort secret, suis-moi pour l'épreuve. Une fois l'épreuve terminée, va te servir de Maître Simo pour asseoir ton autorité! »
 
 D'un revers de manche, il les transforma tous deux en Flamme Éthérée avant de s'élancer vers le nord-ouest.
 
@@ -92,9 +92,9 @@ Wang Lin observa attentivement cette Flamme Éthérée et fut secrètement stup�
 
 « Cette Flamme Éthérée... Elle ne dégage aucune chaleur, et pourtant, elle donne l'illusion que mon âme est en train de brûler! »
 
-Grâce à la puissance de culture du vieux Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
+Grâce à la puissance de culture du vieil Oiseau Vermillon, Wang Lin fut transporté instantanément au-dessus de l'arène de la région nord-ouest. À cet instant, deux cultivateurs s'y affrontaient pour le titre d'Ancien.
 
-Dix mille cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
+Des dizaines de milliers de cultivateurs entouraient l'arène pour observer le combat, et plusieurs zones restaient désertées, car nul n'osait s'en approcher.
 
 L'un de ces lieux isolés était occupé par Maître Simo et le Grand Maître Yun Luo! Un autre abritait un père et sa fille enveloppés d'une lumière bleue!
 
@@ -102,6 +102,6 @@ Ailleurs, un homme seul, vêtu de vert, ressemblant à un jeune homme, était al
 
 Enfin, à un dernier endroit, un lézard géant était enroulé sur lui-même. La bête noire, d'apparence féroce, flottait dans les airs. Sur son dos siégeait un vieil homme vêtu de peaux de bêtes.
 
-Le visage de ce vieil homme était marqué par des cicatrices et des protubérances, et il portait des boucles d'oreilles de la taille d'un poing à chaque oreille. Ses lèvres étaient transpercées par quatre aiguilles rouges, comme pour sceller sa bouche!
+Le visage de ce vieil homme était criblé de creux et de marques de variole, et il portait des boucles d'oreilles noires de la taille d'un poing à chaque oreille. Ses lèvres étaient transpercées par quatre aiguilles rouges, comme pour sceller sa bouche!
 
 À cet instant précis, l'expression de ces spectateurs changea brusquement et tous levèrent les yeux vers le ciel!

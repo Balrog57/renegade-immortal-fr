@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1522 - Three Seals!"
 slug: trois-sceaux
 ---
-Des années plus tard, un cultivateur ayant participé à la première bataille du Sceau Nuageux passa d'un faible niveau de Scruteur du Nirvana à celui de cultivateur du Premier Ciel du Fléau Céleste. Il était désormais l'Ancien principal d'une petite secte dans la Mer des Nuages.
+Des années plus tard, un cultivateur ayant participé à la première bataille de la Mer des Nuages passa d'un faible niveau de Scruteur du Nirvana à celui de cultivateur du Premier Ciel du Fléau Céleste. Il était désormais l'Ancien principal d'une petite secte dans la Mer des Nuages.
 
 Il était qualifié pour enseigner le Dao et, lors de l'une de ses conférences, un disciple lui demanda ce qu'était la gloire!
 
@@ -34,11 +34,11 @@ Une lumière sanglante jaillit, et l'épée de sang enveloppa Wang Lin, fauchant
 
 Ces trois cultivateurs flottaient dans les airs. Leurs mains formèrent des sceaux et ils commencèrent à incanter!
 
-« En tant que descendant du Clan de l'Extermination par le Sceau, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute son énergie originelle! Scellement! »
+« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute son énergie originelle! Scellement! »
 
-« En tant que descendant du Clan de l'Extermination par le Sceau, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa vitalité! Scellement! »
+« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller toute sa vitalité! Scellement! »
 
-« En tant que descendant du Clan de l'Extermination par le Sceau, j'offre ma vie pour invoquer le sortilège du clan afin de sceller tout son corps! Scellement! »
+« En tant que descendant du Clan de l'Extermination des Sceaux, j'offre ma vie pour invoquer le sortilège du clan afin de sceller tout son corps! Scellement! »
 
 Alors que trois voix résonnaient simultanément, trois rayons de lumière jaillirent de leurs sourcils. Ces lumières portaient une pression infinie et foncèrent sur Wang Lin!
 
@@ -48,9 +48,9 @@ Il n'y avait aucune technique complexe, tout résidait dans le nombre d'envahiss
 
 Sur ce champ de bataille, tous les sorts devenaient rudimentaires: il ne fallait que tuer, tuer et encore tuer!
 
-Les trois sceaux du Clan de l'Extermination par le Sceau hurlèrent à travers l'espace et percutèrent instantanément Wang Lin. Les sceaux de ce clan étaient irrésistibles!
+Les trois sceaux du Clan de l'Extermination des Sceaux hurlèrent à travers l'espace et percutèrent instantanément Wang Lin. Les sceaux de ce clan étaient irrésistibles!
 
-Si leurs sceaux pouvaient être stoppés, le Clan de l'Extermination par le Sceau ne serait pas une puissance aussi redoutable!
+Si leurs sceaux pouvaient être stoppés, le Clan de l'Extermination des Sceaux ne serait pas une puissance aussi redoutable!
 
 Wang Lin poussa un rugissement. À l'instant où les trois sceaux arrivèrent, il projeta un coup de poing de la main droite. Le coup fendit l'air dans un hurlement et un immense poing fantomatique apparut. Il traversa les sceaux sans les affecter. Au moment précis où les trois sceaux atteignirent Wang Lin, le poing fantomatique percuta les trois figures violettes!
 
@@ -80,15 +80,15 @@ Le Grand Maître Yun Luo observait la scène à distance. Elle leva sa main droi
 
 « Il a massacré d'innombrables frères d'armes. C'est un puissant cultivateur du troisième niveau. Aujourd'hui, nous allons l'abattre et ébranler le Royaume Intérieur! »
 
-Wang Lin ayant perdu toute force, son corps ne pouvait plus flotter et commença à chuter. En un instant, dix mille cultivateurs se refermèrent sur lui avec une intention meurtrière monstrueuse. Ils projetèrent leurs trésors vers lui.
+Wang Lin ayant perdu toute force, son corps ne pouvait plus flotter et commença à chuter. En un instant, des dizaines de milliers de cultivateurs se refermèrent sur lui avec une intention meurtrière monstrueuse. Ils projetèrent leurs trésors vers lui.
 
 Dans un fracas de tonnerre, Wang Lin fut frappé par d'innombrables objets précieux. Bien qu'il n'ait plus sa culture, son corps restait puissant. Sous l'impact de ces assauts, il cracha du sang!
 
-« Clan de l'Extermination par le Sceau! » rugit Wang Lin alors que son énergie originelle scellée, sa vitalité et son pouvoir de Dieu Ancien tentaient de jaillir des sceaux pour briser l'emprise!
+« Clan de l'Extermination des Sceaux! » rugit Wang Lin alors que son énergie originelle scellée, sa vitalité et son pouvoir de Dieu Ancien tentaient de jaillir des sceaux pour briser l'emprise!
 
 Les grondements continuèrent tandis que des milliers d'épées volantes s'abattaient sur lui. Des bruits de craquements retentirent et Wang Lin cracha à nouveau du sang, mais un éclair de froideur passa dans ses yeux!
 
-Après cette pluie de trésors, les dix mille cultivateurs se rapprochèrent pour le bombarder de sorts. Un vieil homme du Royaume Extérieur s'avança. Il leva la main et poussa un rugissement:
+Après cette pluie de trésors, les dizaines de milliers de cultivateurs se rapprochèrent pour le bombarder de sorts. Un vieil homme du Royaume Extérieur s'avança. Il leva la main et poussa un rugissement:
 
 « Meurs! » Sa paume fendit l'air vers le front de Wang Lin et frappa violemment!
 
@@ -116,9 +116,9 @@ La force physique de Wang Lin ne fit pas que choquer le Royaume Extérieur; elle
 
 Une tempête rugissante fonça sur Wang Lin!
 
-À ce moment précis, l'expression du Grand Maître Yun Luo changea radicalement. Des fissures apparurent sur sa main droite qui pratiquait la divination, et le sang se mit à couler!
+À ce moment précis, l'expression du Grand Maître Yun Luo changea radicalement. Des fissures apparurent sur sa main droite qui formait les sceaux, et le sang se mit à couler!
 
-« C'est mauvais! On ne peut pas le tuer ainsi! » Elle s'apprêta à donner un ordre, mais elle fut trop tard!
+« C'est mauvais! On ne peut pas le tuer ainsi! » Elle s'apprêta à donner un ordre, mais elle arriva trop tard!
 
 Alors que la tempête formée par les sorts de dizaines de milliers de cultivateurs se refermait sur lui, un éclat de froideur brilla dans les yeux de Wang Lin. Il serra les dents et laissa la tempête l'atteindre!
 
@@ -126,7 +126,7 @@ Un fracas tonitruant retentit. Au cœur de cette tempête, le corps de Wang Lin 
 
 La tempête rugissait et continuait de bombarder le corps de Wang Lin. Cependant, il utilisa cette force extérieure pour briser le premier sceau!
 
-Dès que le sceau de l'énergie originelle s'effondra, Wang Lin leva la tête et fit un pas en avant. Il agita la main, faisant apparaître des Flammes Éthérées, tandis que des cris de douleur résonnaient.
+Dès que le sceau de l'énergie originelle s'effondra, Wang Lin leva la tête et fit un pas en avant. Il agita la main, faisant se répandre le Feu Éthéré, tandis que des cris de douleur résonnaient.
 
 Le deuxième sceau céda. Le visage de vieillard de Wang Lin redevint instantanément celui d'un jeune homme, et ses blessures se refermèrent à une vitesse fulgurante!
 

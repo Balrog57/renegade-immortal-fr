@@ -28,7 +28,7 @@ Les pensées de l'estimable Ling Dong étaient les plus simples. Il avait été 
 
 Wang Lin réfléchit un instant, puis hocha la tête.
 
-L'homme âgé de la Secte des Cadavres déclara lentement: « Ce vieil homme est Maître Nan Yunzi. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
+L'homme âgé de la Secte des Cadavres déclara lentement: « Ce vieil homme est Maître Nan Yunzi. À vrai dire, vous êtes vous aussi un cultivateur du Vide Brillant. J'ai appris par le camarade cultivateur Hong Shan que vous vous étiez rendu dans le Royaume Extérieur. Quelle est la puissance du Royaume Extérieur? »
 
 Le temps passa lentement et les cultivateurs de la Secte Divine se dispersèrent progressivement. La Mer des Nuages reprit ses intenses préparatifs de guerre.
 
@@ -78,13 +78,13 @@ Système Stellaire Antique, Clan de l'Âme Céleste. À cet instant, un rayon d'
 
 « Le Conseil Souverain convoque le Clan des Nuages Tai pour la première bataille contre le Royaume Intérieur! »
 
-« Le Conseil Souverain convoque les vestiges du Clan de l'Hirondelle de Feu pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
+« Le Conseil Souverain convoque les vestiges du Clan des Moineaux de Feu pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
 « Le Conseil Souverain convoque le Clan du Dragon Démon pour se rassembler dans la partie est de la Formation de Scellement du Royaume pour la première bataille contre le Royaume Intérieur! »
 
 Plus de dix clans du Système Stellaire Antique reçurent la convocation du Conseil Souverain simultanément, et tous se mirent en mouvement!
 
-« Ce vieil homme, Maître Dong Dizi du Conseil Souverain, supervisera la première bataille contre le Royaume Intérieur! »
+« Ce vieil homme, Maître Dong Dizi, vice-chef du Conseil Souverain, supervisera la première bataille contre le Royaume Intérieur! »
 
 « Ce vieil homme, l'estimable Nan Zhao, supervisera la bataille aux côtés du Maître Dong Dizi! »
 
@@ -92,7 +92,7 @@ Plus de dix clans du Système Stellaire Antique reçurent la convocation du Cons
 
 Cette dernière phrase résonna dans tout le Système Stellaire Antique, parvenant aux oreilles de chaque cultivateur. Cela plongea l'univers entier dans une fureur guerrière.
 
-« Forcez votre passage vers le Royaume Intérieur et massacrez tout être vivant à l'intérieur! Faites connaître la puissance du Système Stellaire Antique à ces fourmis du Royaume Intérieur! Montrez-leur leur véritable place! »
+« Forcez votre passage vers le Royaume Intérieur et massacrez tout être vivant à l'intérieur! Faites connaître la puissance du Dao céleste de l'Antique à ces fourmis du Royaume Intérieur! Que ces cultivateurs-fourmis comprennent le véritable sens de l'Antique! »
 
 « Les cultivateurs du Royaume Intérieur sont des fourmis extrêmement cruelles et sans espoir. Nous devons utiliser le massacre pour les éveiller à la vérité! »
 
@@ -102,19 +102,19 @@ Cette dernière phrase résonna dans tout le Système Stellaire Antique, parvena
 
 « Pillez tous les trésors. Seule la victoire importe. Dans cette bataille, tout ce que vous saisirez vous appartiendra! »
 
-« Réouvrez le classement du Système Stellaire Antique! Les 1 000 premiers recevront la fortune du Royaume Céleste Antique. Les 100 premiers deviendront les disciples des concubines célestes. Les 10 premiers pourront chacun contrôler un royaume! »
+« Réouvrez le classement du Système Stellaire Antique, dont les noms resteront gravés dix mille ans! Les 1 000 premiers recevront la fortune du Royaume Céleste Antique. Les 100 premiers deviendront les disciples des concubines célestes. Les 10 premiers pourront chacun contrôler un royaume! »
 
 « Pour les trois premiers, s'ils sont des cultivateurs du troisième pas, ils recevront chacun dix esprits taoïstes de rang 3! S'ils ne le sont pas, ils deviendront les disciples du Souverain! »
 
-« Conformément à l'accord antique, le premier classé pourra devenir le partenaire de culture de la princesse céleste et sera nommé Souverain Céleste! »
+« Selon le décret du Royaume Céleste Antique, le premier du classement final de cette bataille pourra devenir le partenaire de culture d'une concubine céleste et sera nommé Souverain Céleste! »
 
 Ces messages résonnèrent dans tout le Système Stellaire Antique, stimulant une soif de sang impitoyable. Des rugissements sourds éclatèrent au sein de chaque clan, faisant trembler l'univers! Pour ce Système Stellaire antique dispersé composé d'innombrables clans, la seule raison de combattre était le pillage!
 
 Pillez tout ce que vous désirez, tout ce dont vous avez besoin, et prenez toutes les cultivatrices que vous convoitez pour en faire vos fours de culture! Pillez! Pillez! Pillez!
 
-« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Il a massacré le Clan du Tonnerre Dispersé, détruit une branche du Clan de la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
+« Il existe un individu parmi les fourmis du Royaume Intérieur nommé Wang Lin. Par des moyens vils, il a massacré le Clan du Tonnerre Dispersé, détruit une branche du Clan de la Lune et tué d'innombrables cultivateurs du Royaume Extérieur! »
 
-« Lorsque le classement du Système Stellaire Antique sera ouvert, la liste noire du Royaume Intérieur le sera aussi. Quiconque tuera Wang Lin recevra le crédit pour avoir éliminé dix mille cultivateurs! »
+« Lorsque le classement du Système Stellaire Antique sera ouvert, la liste des cibles à abattre du Royaume Extérieur le sera aussi, et cet homme en occupe provisoirement la tête. Quiconque tuera Wang Lin recevra le crédit pour avoir éliminé dix mille cultivateurs! »
 
 « Tuez, tuez, tuez, tuez! »
 
@@ -122,11 +122,11 @@ Alors que les cris de guerre résonnaient dans le Royaume Extérieur, les treize
 
 Une marque se trouvait entre les sourcils de chaque individu. Au milieu de cette intention meurtrière, une aura étrange commença à poindre. Le sang de ces 90 000 cultivateurs se mit à bouillir, les rendant progressivement agités et déchaînés. Ils étaient comme des bêtes féroces affamées depuis trop longtemps, prêtes à tout dévorer!
 
-Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade de l'Espace Arcane!
+Quatre personnes flottaient au loin. À la tête du groupe se trouvait un vieil homme vêtu d'une robe taoïste. Ses yeux brillaient et la marque entre ses sourcils représentait un serpent noir! C'était Maître Dong Dizi! Bien qu'il ne fût pas l'un des cinq maîtres, il se situait au début du stade du Vide Arcane!
 
-À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! L'estimable Nan Zhao! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade de l'Esprit Vide — sa maîtrise des poisons était tout aussi célèbre!
+À ses côtés se tenait un jeune homme très beau, mais aux yeux étroits. Lorsqu'il les plissait, ils devenaient deux lignes dégageant une lueur froide. Une brume enveloppait son corps, lui donnant un aspect étrange, et la marque entre ses sourcils était une brume noire en rotation! L'estimable Nan Zhao! Bien que son niveau de culture ne fût pas aussi élevé que celui de Grande Désolation — étant seulement au début du stade du Vide Spirituel — sa maîtrise des poisons était tout aussi célèbre!
 
-Près d'eux se trouvait l'ancêtre lugubre du Clan de l'Hirondelle de Feu, fixant la formation avec une soif de sang démente!
+Près d'eux se trouvait l'ancêtre lugubre du Clan des Moineaux de Feu, fixant la formation avec une soif de sang démente!
 
 Devant les trois autres se tenait une femme vêtue de soie nuageuse, la tête baissée. C'était le Grand Maître Yun Luo. Ses mains s'activaient rapidement comme si elle pratiquait la divination, et une lueur d'inquiétude traversait son regard.
 

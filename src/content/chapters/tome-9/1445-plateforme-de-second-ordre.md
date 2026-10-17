@@ -22,11 +22,11 @@ Cependant, à cet instant précis, l'érudit d'âge moyen au troisième niveau d
 
 « Toi, viens ici! » Le vieil homme pointa du doigt l'un des cultivateurs aux côtés de Wang Lin. C'était un homme qui avait réussi à s'emparer d'une plateforme; sous le doigt accusateur du vieillard, son visage pâlit.
 
-Après une hésitation, il n'osa décliner l'ordre. Il s'avança et joignit les mains en signe de respect devant le vieil homme. « Ce junior salue l'Illustre Ling Dong! » dit-il respectueusement.
+Après une hésitation, il n'osa décliner l'ordre. Il s'avança et joignit les mains en signe de respect devant le vieil homme. « Ce junior salue l'Estimé Ling Dong! » dit-il respectueusement.
 
 « Oh? Tu connais donc ce vieil homme! » Le vieillard ne montra aucun signe de colère.
 
-Le cultivateur répondit promptement: « Le nom de l'Illustre Ling Dong est célèbre dans mon Système Stellaire Antique, il est donc naturel que ce junior le connaisse. »
+Le cultivateur répondit promptement: « Le nom de l'Estimé Ling Dong est célèbre dans mon Système Stellaire Antique, il est donc naturel que ce junior le connaisse. »
 
 « Va briser le sceau sur le dos de l'ancien dieu. Si tu parviens à en briser 10 %, je te laisserai la vie! » ordonna lentement le vieillard, mais ses paroles étaient empreintes d'une autorité irrésistible.
 
@@ -40,25 +40,25 @@ Alors que sa main allait frapper, un nouveau rugissement jaillit de la brume. Ce
 
 « Au moins de rang 6! Malheureusement, elle est protégée par une restriction! »
 
-« C'est la Restriction de l'Âme Antique! » Les yeux de l'érudit d'âge moyen au troisième niveau du Fléau Céleste s'illuminèrent. En parlant, un autre homme d'âge moyen parmi les sept restants plissa les yeux, comme s'il avait saisi un indice.
+« C'est la Restriction de l'Âme Ancienne! » Les yeux de l'érudit d'âge moyen au troisième niveau du Fléau Céleste s'illuminèrent. Parmi les sept qui l'entouraient, un vieillard en robe verte plissa les yeux, comme s'il avait lui aussi saisi un indice.
 
-L'Illustre Ling Dong observa la brume rouge sur la plateforme et déclara: « La Restriction de l'Âme Antique... Ce vieil homme ne connaît pas bien les restrictions. Quelle est votre confiance pour la briser? »
+L'Estimé Ling Dong observa la brume rouge sur la plateforme et déclara: « La Restriction de l'Âme Ancienne... Ce vieil homme ne connaît pas bien les restrictions. Quelle est votre confiance pour la briser? »
 
 L'érudit hésita un instant: « Eh bien... seulement 20 %... »
 
-L'Illustre Ling Dong fronça les sourcils: « 20 %! »
+L'Estimé Ling Dong fronça les sourcils: « 20 %! »
 
-Wang Lin observait la scène avec calme. Il avait remarqué la restriction sur la brume rouge dès son arrivée. Il s'agissait effectivement de la Restriction de l'Âme Antique, mais elle était entremêlée d'autres entraves. Ce ne serait pas une mince affaire! Il resta silencieux, voulant voir comment ces neuf individus tenteraient de la briser.
+Wang Lin observait la scène avec calme. Il avait remarqué la restriction sur la brume rouge dès son arrivée. Il s'agissait effectivement de la Restriction de l'Âme Ancienne, mais elle était entremêlée d'autres entraves. Ce ne serait pas une mince affaire! Il resta silencieux, voulant voir comment ces neuf individus tenteraient de la briser.
 
-Tandis que l'Illustre Ling Dong méditait, un vieil homme vêtu de vert s'avança. Il joignit les mains et dit: « Illustre Ling Dong, je suis assez confiant pour briser cette restriction, mais une fois celle-ci levée... » Il laissa sa phrase en suspens en fixant le vieillard.
+Tandis que l'Estimé Ling Dong méditait, un vieil homme vêtu de vert s'avança. Il joignit les mains et dit: « Estimé Ling Dong, je suis assez confiant pour briser cette restriction, mais une fois celle-ci levée... » Il laissa sa phrase en suspens en fixant le vieillard.
 
-L'Illustre Ling Dong répondit: « Si tu parviens à briser la restriction, tu pourras prétendre à tous les autres trésors, hormis l'esprit dao! De plus, tu pourras te saisir de la majeure partie des richesses que ces petits cultivateurs ont obtenues sur les plateformes. »
+L'Estimé Ling Dong répondit: « Si tu parviens à briser la restriction, tu pourras prétendre à tous les autres trésors, hormis l'esprit dao! De plus, tu pourras te saisir de la majeure partie des richesses que ces petits cultivateurs ont obtenues sur les plateformes. »
 
 Les yeux du vieil homme en vert pétillèrent d'extase: « Soyez assuré, ce vieux bonhomme étudie les restrictions depuis l'enfance. D'autres n'oseront peut-être pas l'affirmer, mais il n'est aucune restriction qu'il ne puisse briser! Même le collègue cultivateur Xiao Jing n'est pas mon égal! »
 
 Son regard se tourna vers l'érudit. Ce dernier esquissa un sourire et joignit les mains: « Ce que le Senior Gao affirme est exact; je ne suis qu'un novice comparé à vous, Senior. »
 
-Le vieil homme en vert éclata d'un rire fier: « Les restrictions sont l'essence même des formations. Je les étudie depuis près de 10 000 ans et j'en ai percé les mystères. J'ai développé une méthode capable de briser n'importe quelle restriction! De plus, la barrière dans cette brume n'est pas une Restriction de l'Âme Antique. Je me suis plongé dans cet art et je n'ai jamais entendu parler d'une telle chose! » Aussitôt, il chargea vers la brume rouge. À quelques dizaines de pieds, sa main droite traça un sceau qu'il projeta avec force, déclenchant des éclats de lumière de restriction.
+Le vieil homme en vert éclata d'un rire fier: « Les restrictions sont l'essence même des formations. Je les étudie depuis près de 10 000 ans et j'en ai percé les mystères. J'ai développé une méthode capable de briser n'importe quelle restriction! De plus, la barrière dans cette brume n'est pas une Restriction de l'Âme Ancienne. Je me suis plongé dans cet art et je n'ai jamais entendu parler d'une telle chose! » Aussitôt, il chargea vers la brume rouge. À quelques dizaines de pieds, sa main droite traça un sceau qu'il projeta avec force, déclenchant des éclats de lumière de restriction.
 
 L'instant d'après, une rune gigantesque apparut. Formée de pure énergie de restriction, elle brillait d'un éclat intense. Sa puissance semblait capable de défier la brume rouge, et les rugissements provenant de l'intérieur s'apaisèrent. Comme sous l'effet d'une bourrasque, la brume rouge recula légèrement.
 
@@ -68,16 +68,16 @@ Plus fier encore, le vieil homme pointa la rune en avant dans un rugissement. La
 
 Ses paroles inachevées se muèrent en un cri de douleur misérable qui résonna à travers le monde.
 
-Le visage de l'Illustre Ling Dong s'assombrit. Il n'aurait jamais imaginé qu'un homme si plein d'assurance puisse connaître un tel échec.
+Le visage de l'Estimé Ling Dong s'assombrit. Il n'aurait jamais imaginé qu'un homme si plein d'assurance puisse connaître un tel échec.
 
-Un gloussement s'éleva d'un cultivateur aux côtés de Wang Lin. C'était le cultivateur obèse. Son rire attira immédiatement l'attention de l'Illustre Ling Dong.
+Un gloussement s'éleva d'un cultivateur aux côtés de Wang Lin. C'était le cultivateur obèse. Son rire attira immédiatement l'attention de l'Estimé Ling Dong.
 
-L'obèse fit rapidement quelques pas devant Wang Lin et salua l'Illustre Ling Dong en joignant les mains. Un sourire aux lèvres, il dit: « Le junior Xu Fu salue l'Illustre Ling Dong. Ce junior est assez confiant pour briser la restriction. Je n'ai aucun lien avec les personnes présentes; nous avons simplement été envoyés ici ensemble! J'ai aussi un secret à confier au Senior. Parmi ce groupe, l'un d'entre eux est un Être Éthéré... »
+L'obèse fit rapidement quelques pas devant Wang Lin et salua l'Estimé Ling Dong en joignant les mains. Un sourire aux lèvres, il dit: « Le junior Xu Fu salue l'Estimé Ling Dong. Ce junior est assez confiant pour briser la restriction. Je n'ai aucun lien avec les personnes présentes; nous avons simplement été envoyés ici ensemble! J'ai aussi un secret à confier au Senior. Parmi ce groupe, l'un d'entre eux est un Éthé... »
 
-« Si tu parviens à briser la restriction de cette brume, je te laisserai la vie, je te donnerai des trésors et tu pourras me suivre! » coupa l'Illustre Ling Dong. Le secret ne l'intéressait guère; seul l'esprit dao comptait.
+« Si tu parviens à briser la restriction de cette brume, je te laisserai la vie, je te donnerai des trésors et tu pourras me suivre! » coupa l'Estimé Ling Dong. Le secret ne l'intéressait guère; seul l'esprit dao comptait.
 
 « Soyez assuré, j'observe cette brume depuis longtemps. Bien que je ne sois pas certain à 100 %, avec votre aide, Senior, ma confiance est de 70 %! » Ravi, le cultivateur obèse se retourna pour lancer un regard glacial à Wang Lin. Il esquissa un sourire méprisant et chargea vers la brume rouge. Il s'arrêta à cent pieds de distance, empreint de prudence. Ses mains manipulèrent rapidement un abaque qui finit par se briser, libérant les perles qui se transformèrent en un vortex de restriction. Puis, prenant une profonde inspiration, il chargea la brume.
 
-« Chercher la mort! » Wang Lin le regarda calmement, un ricanement intérieur aux lèvres. Il leva ensuite les yeux vers l'érudit au éventail et y décela un regard de dédain.
+« Chercher la mort! » Wang Lin le regarda calmement, un ricanement intérieur aux lèvres. Il leva ensuite les yeux vers l'érudit à l'éventail et y décela un regard de dédain.
 
 « Bien que cet homme ne soit qu'au troisième niveau du Fléau Céleste, sa capacité à côtoyer ces puissances prouve sa grande ruse! Peut-être convoite-t-il lui aussi ce qui se cache dans la brume... » L'esprit de Wang Lin était aussi sournois qu'un démon, et une restriction apparut silencieusement sous son pied...

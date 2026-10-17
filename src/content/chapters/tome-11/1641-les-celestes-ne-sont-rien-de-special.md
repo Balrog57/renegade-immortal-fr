@@ -34,7 +34,7 @@ Wang Lin reconnut très bien l'une de ces quatre auras; elle provenait de l'Oise
 
 Cette aura ressemblait à celle de l'ancêtre de l'Oiseau Vermillon. Wang Lin avait éprouvé la même sensation lorsqu'il avait vu la première génération de l'Oiseau Vermillon dans les Terres Déchues.
 
-« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de l'Oiseau Vermillon des Terres Déchues. Il était évident qu'il s'agissait d'un avatar!
+« Oiseau Vermillon... » Les yeux de Wang Lin se rétrécirent. L'aura de l'une des statues était presque identique à celle de la première génération de l'Oiseau Vermillon des Terres Déchues. Il était évident que l'une de ces deux auras appartenait à un avatar!
 
 « Général de l'Oiseau Vermillon du Souverain Céleste aux Sept Couleurs, viens me voir! » Wang Lin s'arrêta et flotta dans les airs en prononçant ces mots. Sa voix était calme et se propagea dans toutes les directions.
 
@@ -48,7 +48,7 @@ D'un seul pas, il quitta le vortex de la statue et chargea Wang Lin. Sa vitesse 
 
 Dans le champ de vision de Wang Lin, une ombre gigantesque, aussi vaste que le monde, apparut derrière le vieil homme. L'ombre représentait un tigre blanc colossal!
 
-Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade intermédiaire du Vide Arcane.
+Ce tigre géant avait un regard féroce et dégageait une pression capable de subjuguer le monde. Le vieil homme affichait une puissante culture du stade initial du Vide Arcane.
 
 L'expression de Wang Lin resta sereine tandis qu'il observait le vieillard. Sa main droite se crispa en un poing et il lança un coup vers lui. Lorsque les deux forces entrèrent en collision, un fracas tonitruant retentit, faisant trembler la terre.
 
@@ -70,7 +70,7 @@ Plus le regard de Wang Lin était serein, plus la pression exercée sur le vieil
 
 « À mes yeux, vous êtes tous comme des fourmis également! »
 
-L'expression du vieil homme devint encore plus sombre. Il n'était pas surpris que Wang Lin soit au courant, car il l'avait observé fouiller la mémoire de ce Céleste. Au départ, il avait ricané intérieurement; il connaissait parfaitement le Souverain Céleste et estimait que personne ne pourrait briser son sceau.
+L'expression du vieil homme devint encore plus sombre. Il n'était pas surpris que Wang Lin soit au courant, car il l'avait observé fouiller la mémoire de ce Céleste. Au départ, il avait ricané intérieurement; il connaissait parfaitement le sceau du Souverain Céleste et estimait que personne ne pourrait briser son sceau.
 
 Cependant, il n'aurait jamais pu imaginer que Wang Lin parviendrait réellement à briser le sceau, à accéder aux souvenirs du Soldat Céleste et à découvrir la vérité sur ce lieu.
 
@@ -80,4 +80,4 @@ Wang Lin ne prêta plus attention au vieil homme. Son regard se tourna vers le v
 
 « C'est la dernière fois que je le demande. Ne m'oblige pas à vous tuer et à fouiller votre âme! » Wang Lin resta là, imperturbable, les yeux fixés sur le ciel.
 
-Une pression invisible émana de son corps et enveloppa tout l'espace environnant.
+Une pression invisible émana de son corps et enveloppa tout l'espace environnant, formant une emprise impérieuse.

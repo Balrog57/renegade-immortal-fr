@@ -1,6 +1,6 @@
 ---
 n: 1618
-title: Briser la Porte signifie atteindre le troisième échelon
+title: Briser la Porte signifie atteindre la troisième étape
 book: 11
 bookTitle: Mysteries of the Ancient Era
 en: Chapter 1618 - Breaking the Gate Means Reaching the Third Step
@@ -56,7 +56,7 @@ Cela fit s'effondrer tout son calme.
 
 Alors que l'apparition de Wang Lin exaltait les cultivateurs du Royaume Intérieur, l'expression du Maître Céleste Dieu du Vide devint extrêmement sombre. Une intention meurtrière jaillit de ses yeux et il fit un pas vers Wang Lin, sous la Porte du Vide.
 
-« Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune junior qui n'a pas encore atteint le troisième échelon survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour le Maître Céleste Dieu du Vide, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
+« Petit enfant, tu n'es pas mort autrefois, mais tu mourras aujourd'hui! Ce vieil homme veut voir comment un jeune junior qui n'a pas encore atteint la troisième étape survivra face à moi. Autrefois, ce vieil homme n'avait pas réussi à prendre ton corps, mais puisque tu viens à moi, je m'en saisirai! » Ce qui s'était passé autrefois était une grande disgrâce pour le Maître Céleste Dieu du Vide, mais cela l'avait aussi profondément effrayé. Il craignait la flèche!
 
 Cependant, en tant que l'un des Cinq Maîtres, il ne pouvait pas simplement fuir sans combattre. Tandis qu'il parlait, il accéléra et se rapprocha instantanément de Wang Lin.
 
@@ -64,7 +64,7 @@ L'expression de Wang Lin demeura indifférente. Alors que le Maître Céleste Di
 
 Même les cieux auraient dû reculer devant une telle aura, et même les spectres auraient dû trembler. Même les lois du monde se distordaient devant elle. C'était une force appartenant aux humains, celle d'un grand érudit de l'humanité!
 
-Les cultivateurs étaient aussi des humains. Même s'ils atteignaient le troisième échelon, ils restaient humains!
+Les cultivateurs étaient aussi des humains. Même s'ils atteignaient la troisième étape, ils restaient humains!
 
 « Recule! » Le regard de Wang Lin se posa sur le Maître Céleste Dieu du Vide. Peu importe la puissance de l'ennemi, aux yeux de Wang Lin, le Maître Céleste n'était rien de plus qu'un mortel, pas différent d'une fourmi, d'un rocher, d'un arbre ou d'une herbe!
 
@@ -78,7 +78,7 @@ Le Maître Céleste Dieu du Vide était terrifié. Il n'osait croire ses yeux et
 
 Cette scène rendit le visage de Zhou Jin livide, ses yeux emplis de désespoir.
 
-Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement voulu s'avancer pour tuer Wang Lin, mais il se figea, son cœur dao devenant instable. Le sentiment que dégageait Wang Lin était identique à celui qu'il avait ressenti en rencontrant le grand érudit lorsqu'il n'était qu'un enfant, avant même de commencer sa culture.
+Le jeune homme aux robes vertes fut tout aussi frappé. Il avait initialement voulu s'avancer pour tuer Wang Lin, mais il se figea, son cœur dao devenant instable. Le sentiment que dégageait Wang Lin était identique à celui qu'il avait ressenti en rencontrant un grand érudit, du temps où il n'était qu'un candidat aux examens impériaux, avant de commencer sa culture.
 
 Si ces trois-là étaient ainsi affectés, il ne fallait même pas parler des dizaines de milliers de cultivateurs du Royaume Extérieur. Ils reculèrent tous devant les paroles de Wang Lin, le fixant avec une peur infinie.
 
@@ -90,21 +90,21 @@ Briser la Porte du Vide!
 
 Wang Lin leva la tête vers la Porte qui surplombait la scène. Il avait attendu ce jour pendant plus de 2 000 ans. Il avait trop longtemps attendu!
 
-Lorsqu'il avait commencé sa culture, il n'avait jamais pensé qu'il deviendrait un cultivateur du troisième échelon, mais ce jour était enfin là!
+Lorsqu'il avait commencé sa culture, il n'avait jamais pensé qu'il deviendrait un cultivateur de la troisième étape, mais ce jour était enfin là!
 
-C'était la deuxième fois que Wang Lin faisait face à la Porte du Vide. La première fois, lorsque son essence de tonnerre avait atteint sa perfection, il n'avait pas été capable de l'ouvrir. Cependant, aujourd'hui, Wang Lin était certain de pouvoir briser la porte et atteindre le troisième échelon!
+C'était la deuxième fois que Wang Lin faisait face à la Porte du Vide. La première fois, lorsque son essence de tonnerre avait atteint sa perfection, il n'avait pas été capable de l'ouvrir. Cependant, aujourd'hui, Wang Lin était certain de pouvoir briser la porte et atteindre la troisième étape!
 
 Les six essences apparurent sur sa main levée, formant une sphère de lumière tourbillonnante. Il l'écrasa pour qu'elles fusionnent avec son corps.
 
-Il s'élança vers le haut. Sous les yeux des dizaines de milliers de cultivateurs du Royaume Extérieur, des milliers de cultivateurs du Royaume Intérieur et de plusieurs experts du troisième échelon, Wang Lin chargea la Porte du Vide.
+Il s'élança vers le haut. Sous les yeux des dizaines de milliers de cultivateurs du Royaume Extérieur, des milliers de cultivateurs du Royaume Intérieur et de plusieurs experts de la troisième étape, Wang Lin chargea la Porte du Vide.
 
-Une fois la porte brisée, il serait un cultivateur du troisième échelon!
+Une fois la porte brisée, il serait un cultivateur de la troisième étape!
 
 Une fois la porte brisée, il pourrait agir selon ses désirs!
 
 Une fois la porte brisée, il serait qualifié pour connaître le secret ultime séparant les Royaumes Intérieur et Extérieur!
 
-Dans sa jeunesse, il manquait de talent et sa culture était laborieuse. Il avait surmonté le premier et le deuxième échelon. Aujourd'hui, il briserait la Porte du Vide sous les yeux de dizaines de milliers de cultivateurs pour atteindre le troisième échelon!
+Dans sa jeunesse, il manquait de talent et sa culture était laborieuse. Il avait surmonté la première et la deuxième étape. Aujourd'hui, il briserait la Porte du Vide sous les yeux de dizaines de milliers de cultivateurs pour atteindre la troisième étape!
 
 Wang Lin se souvenait clairement de l'attaque que Qing Shui avait utilisée avec l'essence de massacre contre la Porte du Vide; cette attaque qui avait fait s'effondrer un pan de la structure.
 

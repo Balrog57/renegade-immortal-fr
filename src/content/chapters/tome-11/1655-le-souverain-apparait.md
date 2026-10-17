@@ -12,7 +12,7 @@ Il avait tout perdu!
 
 Il ne permettrait pas de perdre la femme en rose devant lui. Qing Shui sentait l'aura de l'âme de sa fille émaner de cette femme!
 
-Cette aura plongea Qing Shui dans une immense excitation. Il riait comme un fou et ne cessait de contempler cette femme. Elle semblait être devenue la seule raison pour laquelle il continuait à vivre.
+Cette aura avait jadis plongé Qing Shui dans une immense excitation. Il avait ri comme un fou et avait contemplé cette femme d'innombrables fois. Elle semblait être devenue toute sa vie et son prolongement.
 
 Elle était tout pour lui!
 
@@ -40,7 +40,7 @@ Son niveau de culture n'était pas élevé, mais elle était une membre du Royau
 
 L'homme massif, porté par le vent et le tonnerre, esquissa un sourire méprisant et ignora les faibles cultivateurs du Royaume Intérieur. Au lieu de cela, sa main s'abattit impitoyablement vers le bas.
 
-Sous cette pression, le vent noir se transforma en une tempête mêlée d'innombrables éclairs. La bourrasque prit la forme d'un dragon de tonnerre noir qui fonça vers la terre!
+Sous cette pression, le vent noir se transforma en une tempête mêlée d'innombrables boules de foudre vertes. La bourrasque prit la forme d'un dragon de tonnerre noir long d'environ cent mille pieds qui fonça vers la terre en rugissant!
 
 La seule personne capable de lui barrer la route était la femme en rose!
 
@@ -56,7 +56,7 @@ Un rugissement sauvage jaillit de l'autel, empreint d'un pouvoir capable de bris
 
 Sa vitesse atteignit des sommets prodigieux. Il était possédé par la folie, et son essence de meurtre jaillissait de son corps en torrents. Le grondement du tonnerre fut tel que les combattants lointains furent forcés de lever les yeux.
 
-L'expression de l'homme massif se décomposa. Il connaissait Qing Shui et sa puissance redoutable; presque aucun cultivateur du Vide Nirvana ne pouvait lui faire face. À cet instant, il abandonna son assaut sur la planète et détourna le dragon de tonnerre noir pour se préparer à affronter Qing Shui.
+L'expression de l'homme massif se décomposa. Il connaissait Qing Shui et sa puissance redoutable; presque aucun cultivateur du Vide du Nirvana ne pouvait lui faire face. À cet instant, il abandonna son assaut sur la planète et détourna le dragon de tonnerre noir pour se préparer à affronter Qing Shui.
 
 Mais ce geste ne fit qu'exacerber la folie de Qing Shui jusqu'à un paroxysme inédit!
 
@@ -104,7 +104,7 @@ Sous les yeux de la multitude, une faille gigantesque s'ouvrit au-dessus de la f
 
 Ce palais était vénéré par d'innombrables cultivateurs du Royaume Extérieur. C'était leur temple sacré, le palais du Souverain!
 
-Le Souverain était entré dans le Royaume Intérieur sous sa forme originelle! Vêtu d'une robe noire, il se tenait au sommet de l'édifice. Son visage restait indistinct, mais on pouvait distinguer sa main desséchée. Cette main était aussi sèche qu'un os, et pourtant, elle dégageait une aura destructrice terrifiante!
+Le Souverain était entré pour la première fois dans le Royaume Intérieur sous sa forme originelle! Vêtu d'une robe noire, il se tenait au sommet de l'édifice. Son visage restait indistinct, mais on pouvait distinguer sa main desséchée. Cette main était aussi sèche qu'un os, et pourtant, elle dégageait une aura destructrice terrifiante!
 
 Après avoir levé la main, il pressa Maître Hong Shan, la femme de la Rivière Invoquée et Qing Lin!
 
@@ -120,6 +120,6 @@ Cependant, au moment le plus critique, un cri perçant retentit à la frontière
 
 Ce cri n'était pas l'œuvre d'un cultivateur; c'était une flèche!
 
-Une flèche chargée de destruction, de colère et de massacre! Un hurlement monstrueux résonna, étouffant le son provenant de la paume du Souverain. À cet instant, il supplança tout autre bruit au monde!
+Une flèche chargée de destruction, de colère et de massacre! Un hurlement monstrueux résonna, étouffant le son provenant de la paume du Souverain. À cet instant, il supplanta tout autre bruit au monde!
 
 Wang Lin était arrivé!

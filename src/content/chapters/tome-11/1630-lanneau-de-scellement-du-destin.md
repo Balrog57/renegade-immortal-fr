@@ -32,7 +32,7 @@ Ce trésor était un anneau doré. Dès son apparition, la clarté de la faille 
 
 À l'extérieur, Situ Nan et ses compagnons ressentirent cette pression et leurs cœurs tremblèrent. Ils eurent l'impression de faire face à la puissance infinie du firmament.
 
-L'expression du Maître Nan Yunzi changea et il recula instinctivement de plus de mille pieds. Si lui réagissait ainsi, il n'y avait pas question des autres. Les milliers de cultivateurs présents, y compris Situ Nan, battirent en retraite précipitamment.
+L'expression du Maître Nan Yunzi changea et il recula instinctivement de plusieurs milliers de pieds. Si lui réagissait ainsi, il n'y avait pas question des autres. Les milliers de cultivateurs présents, y compris Situ Nan, battirent en retraite précipitamment.
 
 Certains furent trop lents et furent frappés par la pression. Ils crachèrent de larges bouffées de sang, le visage blême, l'esprit percuté par un choc violent.
 
@@ -52,7 +52,7 @@ Simultanément, l'anneau doré fonça vers Wang Lin en libérant cette pression.
 
 En avançant, l'anneau se déploya d'une manière étrange, atteignant instantanément des milliers de pieds de large. Il se déplaçait à une vitesse inimaginable et enveloppa Wang Lin. Une fois autour de lui, il se rétracta brusquement.
 
-Une lueur singulière traversa le regard de Wang Lin. Il ne chercha ni à esquiver ni à se cacher, attendant simplement qu'il rétrécisse. En un éclair, l'anneau passa de milliers de pieds à seulement quelques pieds, formant un petit halo autour du front de Wang Lin. Il s'enfonça dans sa chair comme un sceau circulaire!
+Une lueur singulière traversa le regard de Wang Lin. Il ne chercha ni à esquiver ni à se cacher, attendant simplement qu'il rétrécisse. En un éclair, l'anneau passa de mille pieds à seulement quelques pieds, formant un petit halo autour du front de Wang Lin. Il s'enfonça dans sa chair comme un sceau circulaire!
 
 Ce sceau adhéra à la peau de Wang Lin. Il se resserra sur son front, puis une ondulation invisible se propagea dans tout son corps. Un anneau similaire apparut alors, scellant son âme originelle.
 
@@ -80,7 +80,7 @@ Tout cela se produisit en un instant; en un battement de cils, il avait déjà p
 
 « Ce trésor est inachevé... Quelqu'un l'a fusionné à la rétribution divine et utilise cette dernière pour le parfaire. Il est presque complet; peut-être dans 10 000 ans sera-t-il parfait... Intéressant, je semble commencer à comprendre la nature de la rétribution divine. » Wang Lin sourit.
 
-Cependant, à cet instant précis, le rugissement provenant de la faille devint plus clair, comme s'il résonnait à son oreille. Simultanément, une silhouette gigantesque émergea de l'interstice. Haute de milliers de pieds, elle dégageait l'aura d'un Dieu Ancien.
+Cependant, à cet instant précis, le rugissement provenant de la faille devint plus clair, comme s'il résonnait à son oreille. Simultanément, une silhouette gigantesque émergea de l'interstice. Haute de dix mille pieds, elle dégageait l'aura d'un Dieu Ancien.
 
 Dès qu'elle franchit la faille, sa stature fut révélée. C'était un Dieu Ancien! Ce dernier arborait huit étoiles tournant rapidement entre ses sourcils et affichait une expression féroce. Pourtant, ses yeux étaient vides, comme s'il avait perdu toute raison.
 

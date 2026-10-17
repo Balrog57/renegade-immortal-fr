@@ -32,15 +32,15 @@ Tandis que le tatouage de tonnerre grondait, il fonça sur Liu Jinbiao aux côt�
 
 La silhouette au cœur des flammes ne tenta pas d'arrêter Wang Lin.
 
-« Très bien... Ce seigneur voit en toi Qing Lin, Qing Shui, et même Sima Mo... Tu savais que j'étais ici et pourtant tu as osé venir. Ce vieux Oiseau Vermillon t'a sans doute donné ce courage... Ou peut-être pensais-tu que, étant gravement blessé depuis si longtemps, ton intention était de vérifier si je n'avais pas encore recouvré mes forces et... »
+« Très bien... Ce seigneur voit en toi Qing Lin, Qing Shui, et même Sima Mo... Tu savais que j'étais ici et pourtant tu as osé venir. Le vieil Oiseau Vermillon de la première génération t'a sans doute donné ce courage... Ou peut-être as-tu pensé que, gravement blessé, ce seigneur n'a jamais guéri au fil des ans, ce qui t'a donné l'envie de m'épier... »
 
 « C'est exact! » Une lueur d'intention meurtrière jaillit des yeux de Wang Lin alors que son visage se durcissait. Il fit un pas en avant et chargea la flamme aux sept couleurs. Le feu aux neuf couleurs de son œil gauche jaillit, formant un brasier éthéré qui bombarda les flammes septicolores.
 
-Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut sur l'essence du tonnerre, ouvrant un passage vers le Royaume du Tonnerre Ancien!
+Dans son œil droit, la foudre éclata tandis que le tatouage de tonnerre apparaissait. Les neuf éclairs accompagnateurs se métamorphosèrent en neuf anciens dragons de tonnerre. Une légère fissure apparut dans le tatouage de tonnerre, ouvrant un passage vers le Royaume du Tonnerre Ancien!
 
 Sa main gauche traça un sceau et pointa vers le ciel. Instantanément, un parfum d'herbe fraîche emplit le monde. Les fantômes d'innombrables arbres surgirent et l'esprit de la forêt antique se redressa. Il poussa un rugissement et bondit sur la flamme aux sept couleurs.
 
-Une lumière sanguine monstrueuse hurla et, d'un doigt pointé par Wang Lin, elle chargea les flammes septicolores.
+Une lumière sanguine monstrueuse hurla et, au doigt pointé de Wang Lin, une épée de sang chargea les flammes septicolores.
 
 Alors que Wang Lin scellait son geste, toute sa culture explosa, générant une onde de choc qui s'abattit sur la flamme aux sept couleurs!
 
@@ -88,7 +88,7 @@ L'esprit de Wang Lin se concentra.
 
 « Ce vieil homme trouvait que la lune dans le puits était magnifique, alors il en a voulu une. La voilà. » La silhouette retira sa main droite, tenant Wang Lin dans sa prise.
 
-« C'est vous! » La flamme aux sept couleurs brilla intensément et se propagea soudainement, révélant la silhouette ainsi que son véritable visage!
+« Celui-là, c'est toi! » La flamme aux sept couleurs brilla intensément et se propagea soudainement, révélant la silhouette ainsi que son véritable visage!
 
 Un homme d'âge moyen au teint pâle mais d'un calme absolu!
 
@@ -114,13 +114,13 @@ Wang Lin frissonna, le visage pâle, mais il ne flancha pas. Il leva la main dro
 
 Le monde trembla et, au moment où les paroles de Wang Lin résonnèrent, l'homme d'âge moyen se redressa brusquement. Ses yeux s'illuminèrent et une voix indifférente retentit:
 
-« Ce vieil homme t'a effectivement sous-estimé. Tu as tout préparé avant de venir ici. Tu as remplacé ton corps originel par une âme démoniaque... Bien, très bien! »
+« Ce vieil homme t'a effectivement sous-estimé. Tu as tout préparé avant de venir ici. Tu as remplacé ta propre âme par un fragment d'âme démoniaque... Bien, très bien! »
 
 Wang Lin resta silencieux. Avant de venir, il s'était fusionné avec l'âme de l'Omniscient et avait pratiqué la divination frénétiquement. Tout comme lors de son combat contre le Shui Daozi, il avait entrevu une vision floue.
 
 Cette scène était une crise de vie ou de mort impliquant l'âme!
 
-Wang Lin avait passé sa vie à affronter le danger et l'avait surmonté grâce à sa prudence constante. Puisqu'il osait comploter contre un Souverain gravement blessé, il devait être prêt. Il avait même prévu de multiples voies de repli. Pour s'assurer que rien ne tourne mal, il avait effacé la conscience de son ancienne âme démoniaque pour y substituer sa propre âme, permettant à cette dernière de devenir l'âme de son corps original!
+Wang Lin avait passé sa vie à affronter le danger et l'avait surmonté grâce à sa prudence constante. Puisqu'il osait comploter contre un Souverain gravement blessé, il devait être prêt. Il avait même prévu de multiples voies de repli. Pour s'assurer que rien ne tourne mal, il avait effacé la conscience de son ancienne âme démoniaque pour l'échanger avec sa propre âme, permettant à l'âme démoniaque de devenir l'âme de son corps original!
 
 Le sort *Pêcher la lune dans le puits* était d'une tyrannie absolue et sa puissance terrifiante. Cependant, l'âme qu'il avait pêchée était celle de l'ancien démon, et non celle de Wang Lin!
 

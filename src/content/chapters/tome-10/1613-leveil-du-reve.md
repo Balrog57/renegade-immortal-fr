@@ -36,7 +36,7 @@ Tant de choses restaient à accomplir. Tant de gens l'attendaient.
 
 « Attends-moi, Wan Er. Je viendrai te réveiller... »
 
-Les yeux du jeune homme en blanc étaient également remplis de réticence. Il se leva silencieusement et s'approcha de Li Muwan. Il s'agenouilla et embrassa son front, dissimulant sa douleur sous une profonde tristesse. Soudain, il se retourna et tendit la main vers le ciel. Un pichet de vin apparut dans sa main.
+Les yeux du jeune homme en blanc étaient également remplis de réticence. Il se leva silencieusement et s'approcha de Li Muwan. Il se pencha et embrassa son front, dissimulant sa douleur sous une profonde tristesse. Soudain, il se retourna et tendit la main vers le ciel. Un pichet de vin apparut dans sa main.
 
 Il le posa délicatement. Le jeune homme aux cheveux blancs soupira et fit un pas en avant. Sa silhouette se mua en un oiseau blanc et disparut progressivement.
 
@@ -46,9 +46,9 @@ Wang Lin médita en silence. Le temps ne passait pas, mais sa réflexion fut lon
 
 La cithare ne produisait aucun son, mais la musique emplissait le cœur de Wang Lin. Des vagues de chagrin déferlèrent en lui. Une chanson née d'un rêve doit s'achever; un cri de nostalgie inoubliable.
 
-« Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Huo Fen, aux abords de la Mer des Démons. Une chasse, une voix sombre résonna, et je baissai les yeux.
+« Cette année-là, cette année-là, nous nous sommes rencontrés dans le pays de Huo Fen, aux abords de la Mer des Démons. Une traque, une désolation, une voix qui appelait, et la solitude dans mon regard baissé.
 
-Les années passèrent, les cycles défilèrent, nous n'étions que deux grains de poussière aux extrémités de ce rêve. Après combien d'années nous sommes-nous enfin rencontrés pour ne faire que nous croiser dans un état de torpeur?
+Les années passèrent, les cycles défilèrent, nous étions aux deux extrémités de la poussière de ce rêve. Après combien d'années, chacun tâtonnant dans le monde des hommes, nous sommes-nous peut-être déjà rencontrés, pour ne faire que nous croiser sans le savoir, dans un état de torpeur?
 
 Au moment où nous nous sommes enfin trouvés, le rêve touchait à sa fin. Même si je suis réticent, même si je suis si réticent... »
 
@@ -86,9 +86,9 @@ Liu Mei se tenait au sommet d'une montagne. Une fois la montagne disparue, elle 
 
 Xu Fei et Zhou Rui volaient dans les airs. À cet instant, le temps s'arrêta et le vent se leva. Leurs corps se changèrent en cendres et furent emportés.
 
-Wang Zhou, vêtu d'une robe noire, se tenait sur le mont Heng Yue. Le vent souffla et son corps s'effondra.
+Wang Zhuo, vêtu d'une robe noire, se tenait sur le mont Heng Yue. Le vent souffla et son corps s'effondra.
 
-Il y eut aussi Hong Long, l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui: son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
+Il y eut aussi Huang Long, ainsi que l'ancêtre de la famille Teng, et les innombrables cultivateurs de Zhao. Même hors de Zhao, il y avait Zhou Wutai qui contemplait un jeune homme devant lui: son disciple. En regardant son disciple, Zhou Wutai disparut avec lui sous l'effet du vent.
 
 Il y eut aussi Yun Quezi, Dun Tian et Nian Tian de la Secte de l'Affinement de l'Âme, ainsi que Zhu Quezi. Que ce soit sur ce continent ou sur celui de l'autre côté de la mer, tous disparurent sans laisser de trace.
 
@@ -98,16 +98,16 @@ Les seuls qui n'avaient pas disparu étaient Wang Lin, en pleurs, et Grande Fort
 
 Dans ce monde, ils étaient les derniers.
 
-Alors que Li Muwan disparaissait, les larmes de Wang Lin tombèrent silencieusement dans le vide infini. Le tonnerre et la foudre dans le ciel formèrent un vortex gigantesque. À l'intérieur de ce tourbillon, au cœur d'une lumière rouge sang, siégeait le jeune homme aux cheveux blancs. Ses yeux étaient clos et des larmes s'en échappaient.
+Alors que Li Muwan disparaissait, les larmes de Wang Lin tombèrent silencieusement dans le vide infini. Le tonnerre et la foudre dans le ciel formèrent un vortex gigantesque. À l'intérieur de ce tourbillon, au cœur d'une lumière rouge sang, reposait le jeune homme aux cheveux blancs. Ses yeux étaient clos et des larmes s'en échappaient.
 
 Il ne voulait pas renoncer... Mais le rêve finirait inévitablement par prendre fin et il s'éveillerait. Ce moment viendrait tôt ou tard. Après avoir achevé sa rencontre avec lui-même et bu ce pichet de vin, le rêve vola en éclats.
 
-« Qu'est-ce qui est vrai ou faux... Lorsque moi, Wang Lin, j'ouvre les yeux, c'est la vérité. Quand je les ferme, c'est l'illusion... » Tandis qu'il disait cela, Wang Lin saisit la main droite de Grande Fortune, sa paume se superposant à l'empreinte dorée sur le poignet du petit. Il ferma lentement ses vieux yeux.
+« Qu'est-ce qui est vrai ou faux... Lorsque moi, Wang Lin, j'ouvre les yeux, c'est la vérité. Quand je les ferme, c'est l'illusion... » Tandis qu'il disait cela, Wang Lin saisit la main droite de Grande Fortune, sa paume se superposant à l'empreinte dorée sur le poignet de Grande Fortune. Il ferma lentement ses vieux yeux.
 
 Au moment où il les ferma, diverses scènes lui apparurent. Ces visions le rendaient incapable d'abandonner, mais finalement, elles se dissipèrent une à une. S'il voulait les retrouver, il ne pourrait que puiser dans ses souvenirs.
 
 Dans ces visions, il se vit, Li Muwan et Grande Fortune assis sur le bateau.
-Il vit un carrosse traversant la neige vers son village de montagne natal.
+Il vit un chariot traversant la neige vers son village de montagne natal.
 Il se vit, Li Muwan et lui, dans leur maison de la vallée. La musique d'une cithare résonnait, une mélodie joyeuse. Leurs regards croisés semblaient durer l'éternité. Lorsqu'on essayait de regarder à nouveau, tout devenait flou.
 Il se vit assis sur un rocher en montagne, contemplant les lois du ciel. Les cultivateurs dans un rayon de milliers de kilomètres l'adoraient. Parmi eux, il aperçut les larmes de Liu Mei.
 Il se vit pointant le ciel et rugissant près d'un volcan éteint. Il pouvait tout endurer, il pouvait tout utiliser pour s'auto-illusionner, mais il ne pouvait pas se mentir sur la rupture de son karma avec Li Muwan. Il pointa le ciel, l'oiseau blanc, en se questionnant lui-même:
@@ -120,7 +120,7 @@ Il se vit foudroyant du regard le cultivateur venu pour le tuer dans la ville de
 Il vit Su Dao et son enterrement. Il revit l'année où lui et Grande Fortune arrivèrent pour la première fois à Su, quand les feuilles de saule volaient dans l'air. Ils avaient loué un bateau pour attendre leur rencontre avec lui-même.
 
 Enfin, il vit une auberge au bord de la route royale. Sur une table, à l'intérieur, gisait un jeune homme ivre. Le serveur, le sourcil froncé, s'approcha pour le secouer.
-« Petit frère, réveille-toi... Ah, voilà un vrai érudit. À peine deux coupes et déjà ivre. Je dois nettoyer, dépêche-toi de te lever... »
+« Petit frère, réveille-toi... Ah, voilà un vrai érudit. À peine deux coupes et déjà ivre. Mon auberge va fermer, dépêche-toi de te lever... »
 Il vit le jeune homme ivre lever la tête et lâcher une phrase dans un petit rire:
 « Laisse-moi te dire, j'ai fait un rêve... J'ai rêvé que j'étais un immortel... »
 
@@ -129,6 +129,6 @@ Toutes les images se fragmentèrent en éclats flous dès qu'il prononça le mot
 Les yeux de Wang Lin se fermèrent totalement. À l'instant même, le ciel s'effondra. Tout dans le rêve se dissipa.
 Le rêve prit fin...
 
-Dans le vide obscur que le Vieux Fantôme Zhan appelait la couche murale de la grotte, un jeune homme aux cheveux blancs reposait dans une lumière couleur sang. Ses yeux s'ouvrièrent.
+Dans le vide obscur situé entre les Royaumes Intérieur et Extérieur, que le Vieux Fantôme Zhan appelait la couche murale de la grotte, un jeune homme aux cheveux blancs reposait dans une lumière couleur sang. Ses yeux s'ouvrirent.
 
-« Le destin vient du vide, et le vide doit exister... Je comprends. »
+« Le destin vient du vide, le vrai vide recèle l'existence merveilleuse... Je comprends. »

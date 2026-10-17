@@ -18,15 +18,15 @@ Ce papillon était d'une beauté sublime et restait gravé dans la mémoire de d
 
 Wang Lin se remémora le passé en reposant lentement son verre avant de regarder Zhou Wutai.
 
-Zhou Wutai leva les yeux vers Wang Lin et dit d'une voix lente: « Papillon Rouge appartenait au pays de Xue Yue… Le pays de Xue Yue a disparu au fil des âges, ce qui est lié à votre sceau… Les cultivateurs du pays de Xue Yue qui subsistent sont désormais dispersés parmi les neuf grandes sectes. »
+Zhou Wutai leva les yeux vers Wang Lin et dit d'une voix lente: « Papillon Rouge appartenait au pays de Xue Yu… Le pays de Xue Yu a disparu au fil des âges, ce qui est lié à ton sceau… Les cultivateurs du pays de Xue Yu qui subsistent sont désormais dispersés parmi les neuf grandes sectes. »
 
-« Cependant, après la dissolution du pays de Xue Yue, j'ai découvert une zone déserte là-bas… » L'expression de Zhou Wutai devint sérieuse et il prit une gorgée de vin.
+« Cependant, après la dissolution du pays de Xue Yu, j'ai découvert une zone déserte là-bas… » L'expression de Zhou Wutai devint sérieuse et il prit une gorgée de vin.
 
 « Te souviens-tu encore du maître de Papillon Rouge? Son maître avait autrefois prédit que Papillon Rouge ferait face à une calamité de vie ou de mort. Si elle parvenait à y survivre, son corps des cinq éléments serait complet… »
 
 Wang Lin hocha la tête.
 
-Zhou Wutai reprit calmement: « L'endroit que j'ai trouvé a été scellé par le maître de Papillon Rouge avant sa mort! Le niveau de culture de ce maître n'était pas élevé, c'est pourquoi une chose m'a déconcerté… Comment a-t-il pu mettre en place une formation aussi complexe? Dans cette formation se trouve une mèche de cheveux de Papillon Rouge. »
+Zhou Wutai reprit calmement: « L'endroit que j'ai trouvé a été scellé par le maître de Papillon Rouge avant sa mort! Le niveau de culture de ce maître n'était pas élevé, c'est pourquoi une chose m'a déconcerté… Comment a-t-elle pu mettre en place une formation aussi complexe? Dans cette formation se trouve une mèche de cheveux de Papillon Rouge. »
 
 « Quelle formation? » Wang Lin sentit une étrange sensation et ses yeux se plissèrent.
 
@@ -36,7 +36,7 @@ Wang Lin tourna son regard vers la tombe de ses parents. Son dessein en revenant
 
 Dans la partie nord de la planète Suzaku se dressait une chaîne de montagnes. Au cœur de celle-ci se trouvait une immense statue de Suzaku. C'était un vestige du passé qui servait de demeure à Zhou Wutai.
 
-L'espace se tordit lorsque Wang Lin et Zhou Wutai apparurent. Zhou Wutai guida les deux hommes à l'intérieur de la grande statue de Suzaku, où se trouvait une vaste demeure.
+L'espace se tordit lorsque Wang Lin et Zhou Wutai apparurent. Zhou Wutai le guida à l'intérieur de la grande statue de Suzaku, où se trouvait une vaste demeure.
 
 Dans l'une des pièces de pierre, Wang Lin aperçut la mystérieuse formation que Zhou Wutai avait déplacée ici!
 
@@ -56,17 +56,17 @@ Une lueur de déduction brilla dans les yeux de Wang Lin et, un instant plus tar
 
 Wang Lin réfléchit un instant, puis dit calmement: « C'est une matrice de transfert par division d'âme! »
 
-« Elle a dû être placée par un cultivateur au sommet du stade de Purificateur du Nirvana ou plus haut… Ce n'est pas quelque chose que le maître de Papillon Rouge aurait pu accomplir, à moins qu'il ne cachait son véritable niveau de culture… Cependant, si c'était le cas, ce qui est arrivé à Papillon Rouge par la suite resterait inexplicable. »
+« Elle a dû être placée par un cultivateur au sommet du stade de Purificateur du Nirvana ou plus haut… Ce n'est pas quelque chose que le maître de Papillon Rouge aurait pu accomplir, à moins qu'elle n'ait caché son véritable niveau de culture… Cependant, si c'était le cas, ce qui est arrivé à Papillon Rouge par la suite resterait inexplicable. »
 
 Les yeux de Wang Lin s'illuminèrent alors qu'il poursuivait son analyse: « Le rôle de cette matrice est de séparer une partie de l'âme en utilisant cette mèche de cheveux pour ensuite la transférer ailleurs. J'ignore où elle a été envoyée… Mais ce cheveu contient bien l'aura de Papillon Rouge. Peut-être que Papillon Rouge n'est pas réellement morte! »
 
 Cette révélation le surprit; il ne s'attendait pas à découvrir un tel secret sur la planète Suzaku.
 
-« À l'époque, le maître de Papillon Rouge avait prédit qu'elle affronterait une crise mortelle. Il savait probablement que cette épreuve était inévitable et a trouvé un moyen de mettre en place cette matrice. Il l'a installée ici avant que Papillon Rouge ne soit confrontée à sa calamité. Il a pris une partie de son âme pour l'envoyer ailleurs… Il voulait utiliser ce procédé pour offrir une chance de survie à Papillon Rouge... »
+« À l'époque, le maître de Papillon Rouge avait prédit qu'elle affronterait une crise mortelle. Elle savait probablement que cette épreuve était inévitable et a trouvé, d'une manière ou d'une autre, cette matrice. Avant que Papillon Rouge ne soit confrontée à sa calamité, elle a pris une partie de son âme pour l'envoyer ailleurs… Elle voulait utiliser ce procédé pour offrir une chance de survie à Papillon Rouge... »
 
 « Ainsi, même si Papillon Rouge est morte, grâce à cette parcelle d'âme, elle peut renaître et échapper à ce désastre! » Wang Lin se redressa et regarda Zhou Wutai.
 
-Zhou Wutai se mit à son tour à méditer. Après un long silence, il dit: « Après avoir trouvé la formation, j'ai consulté les archives des anciens seigneurs de la planète Suzaku. J'y ai découvert un secret: les cultivateurs du pays de Xue Yue étaient des étrangers, tout comme le clan des Démons Géants. »
+Zhou Wutai se mit à son tour à méditer. Après un long silence, il dit: « Après avoir trouvé la formation, j'ai consulté les archives des anciens seigneurs de la planète Suzaku. J'y ai découvert un secret: les cultivateurs du pays de Xue Yu étaient des étrangers, tout comme le clan des Démons Géants. »
 
 Wang Lin resta silencieux et quitta la pièce. Il se tint au sommet de la statue de Suzaku, son regard semblant transpercer le monde pour plonger dans l'immensité de l'espace.
 
@@ -120,4 +120,4 @@ C'était là que se trouvait la profonde cavité du Clan du Tatouage. L'endroit 
 
 Le secret qui se cachait dans la dix-neuvième couche tourmentait Wang Lin depuis longtemps.
 
-En un éclair, emportant avec lui le fou toujours loquace, Wang Lin vola vers ce gouffre gigantesque du clan de la Tatouage!
+En un éclair, emportant avec lui le fou toujours loquace, Wang Lin vola vers ce gouffre gigantesque du Clan du Tatouage!

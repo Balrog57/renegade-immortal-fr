@@ -8,7 +8,7 @@ slug: lame-demoniaque-royale
 ---
 L'ombre démoniaque était floue au début, mais elle se condensa bientôt pour prendre la forme d'un démon ancien. Six étoiles brillaient dans l'œil gauche de ce démon.
 
-Son corps, haut de milliers de pieds, dégageait une lumière démoniaque, et il laissa échapper un rugissement aux côtés du Dieu de Sang!
+Son corps, haut de près de mille pieds, dégageait une lumière démoniaque, et il laissa échapper un rugissement aux côtés du Dieu de Sang!
 
 L'expression de Wang Lin était calme alors que son regard perçait celui du Dieu de Sang pour fixer froidement le démon ancien.
 
@@ -40,7 +40,7 @@ Dès que son âme et sa chair furent déchirées, une vague d'énergie démoniaq
 
 Un démon ancien de mille pieds de haut apparut au sein du vortex. Six étoiles tournaient frénétiquement dans son œil gauche. Une odeur de sang et de décomposition émanait de son corps colossal.
 
-Un rugissement strident retentit alors que le corps millénaire du démon ancien reculait avec anxiété, le visage marqué par la panique. Il avait fusionné avec le Dieu de Sang il y a longtemps pour l'utiliser comme remède. Cette année-là, il avait clairement remarqué l'énergie de l'Ancien Dieu dans le corps de Wang Lin.
+Un rugissement strident retentit alors que le corps de mille pieds du démon ancien reculait avec anxiété, le visage marqué par la panique. Il avait fusionné avec le Dieu de Sang il y a longtemps pour l'utiliser comme remède. Cette année-là, il avait clairement remarqué l'énergie de l'Ancien Dieu dans le corps de Wang Lin.
 
 Bien que Wang Lin ne fût ici qu'en tant qu'avatar et que son corps original se trouvât dans l'Alliance, cela avait attiré l'attention du démon ancien. Il avait utilisé le Dieu de Sang pour ordonner à la famille Yao de capturer Wang Lin afin d'absorber l'énergie de l'Ancien Dieu contenue dans son âme!
 
@@ -52,7 +52,7 @@ Tout en reculant, il agita les mains et commença à incanter dans la langue de 
 
 Neuf fantômes de dragons démoniaques apparurent et chargèrent Wang Lin! Derrière eux, 99 drapeaux démoniaques surgirent, libérant une puissance maléfique colossale. Un démon résidait dans chaque drapeau, et ces grands démons se précipitèrent sur Wang Lin!
 
-Derrière les drapeaux, 999 gouttes de sang rouge sombre apparurent de nulle part pour pleuvoir sur Wang Lin! Chaque goutte contenait les hurlements d'innombrables âmes: celles des membres de la famille Yao, rassemblées pendant des dizaines de milliers d'années.
+Derrière les drapeaux, 999 gouttes de sang rouge sombre apparurent de nulle part pour pleuvoir sur Wang Lin! Chaque goutte contenait les hurlements d'innombrables âmes: celles des membres de la lignée de la famille Yao depuis dix mille ans, ainsi que de nombreuses âmes liées à leur sang.
 
 Après cette pluie de sang, 9 999 aiguilles noires surgirent. Chargées d'une énergie démoniaque et de toxines puissantes, elles foncèrent toutes vers Wang Lin!
 
@@ -66,7 +66,7 @@ Un coup de poing de l'Ordre Ancien capable de percer les cieux!
 
 Alors que ce coup partait, la tête de l'Ordre Ancien derrière Wang Lin se déforma pour fusionner avec son poing.
 
-Des grondements tonitruants résonnèrent à travers les étoiles. Le domaine stellaire entier sembla s'immobiliser. Ce puissant coup de poing fonça en avant sous le regard des dizaines de milliers de cultivateurs, de Maître Lu Fu, ainsi que de Maître Yan Leizi et Lie Yunzi!
+Des grondements tonitruants résonnèrent à travers les étoiles. Le domaine stellaire entier sembla s'immobiliser. Ce puissant coup de poing fonça en avant sous le regard des dizaines de milliers de cultivateurs, de Maître Lu Fu, ainsi que de Maître Yan Leizi et de Lie Yunzi, qui reculaient précipitamment!
 
 Les divers sorts lancés par le démon ancien s'effondrèrent tous dans un cri misérable!
 
@@ -78,13 +78,13 @@ Après avoir brisé les dragons, le coup entra en collision avec les 99 ombres d
 
 Juste après, les 999 gouttes de sang tombèrent comme des flèches, mais elles se fracassèrent contre le poing sans pouvoir l'arrêter!
 
-Tandis que le tonnerre grondait, le coup de poing de Wang Lin écrasa tout sur son passage. Les 9 999 aiguilles noires s'effondrèrent avant même d'avoir pu toucher le poing, et celui-ci atteignit enfin le démon ancien!
+Tandis que le tonnerre grondait, le coup de poing de Wang Lin écrasa tout sur son passage. Les 9 999 aiguilles noires approchèrent, mais avant même de toucher le poing, une force de rebond les renversa et elles refluèrent, suivant le coup de poing qui se retourna contre le démon ancien!
 
-Tout se déroula en un instant. Le démon ancien hurla en reculant et en croisant les bras. Sa tête se redressa brusquement, sa voix lugubre faisant trembler les cieux!
+Tout se déroula en un instant. Le démon ancien hurla en reculant, les mains jointes. Il les leva brusquement, sa voix lugubre faisant trembler les cieux!
 
 « Arme du clan royal, Lame Démoniaque. Enterrement Terrestre! »
 
-Alors que sa voix résonnait, un rayon de lumière pourpre apparut entre ses mains. Cette lumière dégageait une aura maléfique puissante et se mua en une lame gigantesque!
+Alors que sa voix résonnait, un rayon de lumière pourpre apparut entre ses mains. Cette lumière dégageait une aura maléfique puissante et se mua en une gigantesque faux!
 
 Cette lame était entièrement pourpre, exhalant une aura tranchante mêlée d'énergie démoniaque. Une étoile de démon ancien scintillait sur la lame.
 
@@ -112,7 +112,7 @@ Zhou Jin avait été contraint de se soumettre grâce à l'aura de l'Ordre Ancie
 
 Simultanément, le démon ancien à six étoiles trembla sous l'effet du geste de Wang Lin. C'était comme si ce dernier exerçait une puissante force d'aspiration contre laquelle le démon ne pouvait lutter. Rapidement, il fut aspiré vers Wang Lin. Dès que celui-ci eut rangé la lame, il lui saisit le cou!
 
-Bien que ce démon ancien mesurât des milliers de pieds de haut, son corps rétrécissait rapidement en volant vers Wang Lin, jusqu'à ce que la main de ce dernier encercle sa gorge.
+Bien que ce démon ancien mesurât mille pieds de haut, son corps rétrécissait rapidement en volant vers Wang Lin, jusqu'à ce que la main de ce dernier encercle sa gorge.
 
 Le démon ancien commença à hurler de terreur: « Ne me tue pas! Je connais un secret! Un secret choquant! Il est lié à la famille Yao. Si tu t'y rends, tu pourras recevoir un sort, un sort de trois vies! »
 
@@ -122,4 +122,4 @@ Les yeux de Wang Lin brillèrent, mais il ne prêta aucune attention au démon. 
 
 Maître Lu Fu réfléchit et dit: « En effet. Compagnon Cultivateur a capturé ce démon, mais ce vieil homme doit encore se préparer au combat, je ne vous accompagnerai donc pas! »
 
-Bien que Wang Lin possède deux cultivateurs de la troisième étape comme esclaves, Maître Lu Fu restait lui-même un cultivateur de la troisième étape. Il avait son propre prix et, malgré son choc, il était incapable de s'abaisser ainsi!
+Bien que Wang Lin possède deux cultivateurs de la troisième étape comme esclaves, Maître Lu Fu restait lui-même un cultivateur de la troisième étape. Il avait sa propre fierté et, malgré son choc, il était incapable de s'abaisser ainsi!

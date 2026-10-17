@@ -12,11 +12,11 @@ Il y avait une personne qui vous berçait quand vous n'étiez qu'un nourrisson. 
 
 Il y avait une personne qui s'inquiétait que vous mouilliez votre lit durant votre sommeil et craignait que vous n'attrapiez froid. Elle négligeait son propre repos, s'éveillant plusieurs fois par nuit pour vérifier si votre lit était sec.
 
-Il y avait une personne qui surmontait son épuisement pour se lever et vous préparer le petit-déjeuner, afin que vous ne manquiez de rien en grandissant et en étudiant.
+Il y avait une personne qui surmontait son épuisement pour se lever et vous préparer le petit-déjeuner, afin que vous n'ayez pas faim.
 
 Il y avait une personne qui ne mangeait que la tête et la queue du poisson après avoir appris que c'était ce que vous aimiez. Lorsque vous lui demandiez avec un sourire pourquoi elle ne mangeait pas le corps du poisson, elle souriait en retour et répondait qu'elle préférait la tête et la queue. Et vous la croyiez.
 
-Il y avait une personne qui recousait vos vêtements au fil de votre croissance. On pouvait voir quelques traces rouges sur les aiguilles, presque invisibles à vos yeux d'enfant.
+Il y avait une personne qui recousait vos vêtements au fil de votre croissance. Dans chaque point de couture, il y avait quelques taches d'un rouge vif, que vous aviez peine à voir.
 
 Il y avait une personne qui continuait de vous porter le même regard, même une fois adulte. Elle vous observait en silence, était silencieusement heureuse, souriait en silence jusqu'à ce qu'elle ferme enfin ses yeux fatigués.
 
@@ -52,7 +52,7 @@ Désormais, dans ce monde entier, il n'y aurait que sa silhouette solitaire cont
 
 Wang Lin garda la tombe pendant trois ans, jusqu'à ce que ses cheveux deviennent tout blancs. Son corps n'était plus droit mais légèrement voûté. Il dégageait une aura antique, imprégnée par les traces du temps.
 
-« 38 ans... » Des rides marquaient son visage. Il était devenu un vieil homme d'une soixantaine d'années.
+« 38 ans... » Des rides marquaient son visage. Il était devenu un vieil homme proche de soixante ans.
 
 Grande Fortune était encore plus âgé. S'appuyant sur une canne, il se tenait derrière Wang Lin. Il observa silencieusement son poignet droit et, après un long moment, hocha doucement la tête.
 
@@ -60,7 +60,7 @@ Grande Fortune était encore plus âgé. S'appuyant sur une canne, il se tenait 
 
 « Te souviens-tu encore de ce vieux temple... » Wang Lin se redressa et regarda Grande Fortune, qui semblait désormais incapable de marcher très longtemps.
 
-« Dans ce vieux temple, j'ai dit que je cherchais un serviteur et tu m'as suivi. » Un sourire apparut sur les lèvres de Wang Lin en regardant Grande Fortune. Durant ces 38 années, Grande Fortune l'avait accompagné à chaque pas.
+« Dans ce vieux temple, j'ai dit que je cherchais un serviteur et tu m'as suivi. » Un sourire apparut sur les lèvres de Wang Lin en regardant Grande Fortune. Durant ces plus de trente années, Grande Fortune l'avait accompagné à chaque pas.
 
 « Grande Fortune peut encore être ton serviteur! » Grande Fortune roula des yeux avec un sourire malicieux.
 
@@ -86,7 +86,7 @@ Elle s'arrêta en plein vol et observa Wang Lin qui s'éloignait. Ses sourcils s
 
 Le cultivateur surpris s'apprêta à la suivre.
 
-« Senior Frère, je souhaite être seule. » La voix de la femme, douce mais déterminée, résonna. Le cultivateur s'arrêta, hésita un instant, puis partit avec le reste du groupe, tout aussi étonné.
+« Senior Brother, je souhaite être seule. » La voix de la femme, douce mais déterminée, résonna. Le cultivateur s'arrêta, hésita un instant, puis partit avec le reste du groupe, tout aussi étonné.
 
 Wang Lin s'arrêta et se retourna. Il leva les yeux vers le ciel alors que le magnifique rayon de lumière se rapprochait. La lumière se stabilisa à cent pieds de lui et se mua en une femme sublime vêtue de pourpre.
 
@@ -114,11 +114,11 @@ Wang Lin resta calme et répondit lentement: « Ce vieil homme s'appelle Wang Li
 
 Wang Lin demanda doucement: « Je me demandais... quel est le nom de cette jeune femme? »
 
-La femme s'arrêta et se retourna. « Liu Mei. » Sous ses beaux yeux, elle esquissa un sourire si magnifique qu'il aurait pu faire manquer un battement de cœur à n'importe qui. Après une brève hésitation, elle sortit une pilule de son sac de rangement.
+La femme s'arrêta et se retourna. « Liu Mei, le "mei" de sourcil. » Sous ses beaux yeux, elle esquissa un sourire si magnifique qu'il aurait pu faire manquer un battement de cœur à n'importe qui. Après une brève hésitation, elle sortit une pilule de son sac de rangement.
 
-« Vous semblez affaibli, cette pilule pourra vous aider à préserver votre énergie. C'est le destin qui nous a réunis, ceci est donc mon cadeau pour vous. Adieu. » Liu Mei déposa la pilule. Des nuages apparurent sous ses pieds et elle s'élança dans les airs avec une grâce infinie.
+« Vous êtes âgé, cette pilule pourra vous aider à préserver votre énergie. C'est le destin qui nous a réunis, ceci est donc mon cadeau pour vous. Adieu. » Liu Mei déposa la pilule. Des nuages apparurent sous ses pieds et elle s'élança dans les airs avec une grâce infinie.
 
-« Est-ce une vie antérieure ou une réincarnation... ou un rêve... ou bien rien du tout... Liu Mei, Liu Mei... Cette femme de mon rêve qui m'a arraché à la douleur... » Wang Lin fixa la pilule. Il dissimula parfaitement ses pensées.
+« Est-ce une vie antérieure ou une réincarnation... ou un rêve... ou bien rien du tout... Liu Mei, Liu Mei... La vie de mon rêve, la femme qui m'a réveillé dans une douleur aiguë... » Wang Lin fixa la pilule. Il dissimula parfaitement ses pensées.
 
 Ce n'est que lorsque la femme fut loin que Wang Lin leva soudainement les yeux. Il utilisa toute sa force pour pousser un rugissement.
 

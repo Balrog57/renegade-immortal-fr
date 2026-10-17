@@ -22,11 +22,11 @@ Un hurlement résonna à travers le système stellaire et les yeux de l'avatar d
 
 En un instant, la Voile Fantôme se mit soudainement en mouvement et se transforma en un nuage gigantesque qui se contracta vers Wang Lin.
 
-De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensait, la majeure partie s'accumula entre les sourcils du corps original de Wang Lin, tandis qu'une partie se divisa pour recouvrir son avatar.
+De loin, cette scène était prodigieuse. Tandis que le grand nuage se condensait, la majeure partie s'accumula entre les sourcils du corps original de Wang Lin, tandis qu'une partie se divisa pour se répandre sur sa peau et recouvrir entièrement son corps.
 
 Le visage de l'avatar de Wang Lin pâlit légèrement et il retira son doigt du corps original. Il se retourna et s'inclina respectueusement vers les étoiles.
 
-« Senior Rêve Bleu, Senior Qing Lin et Senior Hong Shang. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
+« Senior Rêve Bleu, Senior Qing Lin et Senior Hong Shan. Mon corps original est ici, j'espère que vous pourrez aider à le protéger! »
 
 À l'instant où Wang Lin parla, un éclair de lumière bleue jaillit et le Maître du Dao Rêve Bleu apparut. Derrière lui, Qing Lin et le Maître Hong Shan suivirent silencieusement.
 
@@ -38,7 +38,7 @@ Wang Lin hocha la tête et joignit les mains en signe de respect envers les troi
 
 En progressant, cette goutte d'eau et cette poignée de terre apparurent dans sa main. Il rangea ces deux essences.
 
-« Mon corps original cherchera le corps originel de l'Omniscient; je dois aussi faire quelques préparatifs ici... Une fois qu'il sera anxieux, l'Omniscient invoquera probablement tous ses avatars d'un coup pour prendre le contrôle avant que je ne trouve son véritable corps. J'espère qu'il fera cela. » Wang Lin réfléchissait tout en survolant les étoiles. Sa main droite traça un sceau qu'il pressa contre sa poitrine.
+« Mon corps original cherchera le corps originel de l'Omniscient; je dois aussi faire quelques préparatifs ici... Une fois qu'il sera anxieux, l'Omniscient invoquera probablement tous ses avatars d'un coup pour l'emporter avant que je ne trouve son véritable corps. J'espère qu'il fera cela. » Wang Lin réfléchissait tout en survolant les étoiles. Sa main droite traça un sceau qu'il pressa contre sa poitrine.
 
 À ce moment, un changement s'opéra dans l'âme de Wang Lin. Par le passé, son âme était devenue une âme dévoreuse, capable de tout dévorer, y compris elle-même.
 
@@ -104,7 +104,7 @@ C'était là la méthode que Wang Lin avait conçue pour riposter!
 
 Ce qu'il vit, ce furent les étoiles. Il connaissait bien ce système stellaire: c'était la Rivière Invoquée. Il vit une météorite, et à l'intérieur de celle-ci se trouvait l'Omniscient! De l'autre côté siégeait un vieil homme plongé dans le coma. Ce vieil homme était Ling Tianhou!
 
-L'Omniscient affichait une expression douloureuse. Des traces de sang maculaient encore ses mains. Si les spéculations de Wang Lin étaient exactes, il s'agissait du sang du Dao Céleste altéré par l'Empereur Divin Dragon Azure!
+L'Omniscient affichait une expression douloureuse. Des traces de sang maculaient encore ses mains. Si les spéculations de Wang Lin étaient exactes, il s'agissait du sang du Dao Céleste modifié, qu'il avait arraché des mains de l'Empereur Divin Dragon Azure!
 
 La douleur sur le visage de l'Omniscient s'intensifia et, après un temps indéterminé, il poussa un rugissement. Ses yeux s'ouvrirent et des ombres clignotèrent frénétiquement sur son visage. Ces ombres étaient ses avatars!
 
@@ -112,8 +112,8 @@ Il regarda Ling Tianhou et ouvrit brusquement la bouche. Sa gueule s'étendit à
 
 Le temps sembla s'écouler sans fin. Un jour, après plusieurs centaines d'années, l'Omniscient rouvrit les yeux, toujours empreints de confusion.
 
-« Je suis encore réveillé... La puissance pour le prochain sommeil et l'éveil suivant est déjà préparée... C'est Wang Lin... »
+« Je me suis de nouveau éveillé... La puissance pour le prochain sommeil et l'éveil suivant est déjà préparée... C'est Wang Lin... »
 
 Bien que tout ce que Wang Lin voyait semblât durer une éternité, ce n'était qu'un instant.
 
-« Il a dévoré Ling Tianhou. Pourquoi dit-il qu'il est encore réveillé... Combien de fois l'Omniscient s'est-il éveillé? » Tout ce qui se trouvait devant Wang Lin disparut dès que l'Omniscient reprit conscience, mais bientôt, une nouvelle image apparut.
+« Il a dévoré Ling Tianhou. Pourquoi dit-il qu'il s'est de nouveau éveillé... Combien de fois l'Omniscient s'est-il éveillé? » Tout ce qui se trouvait devant Wang Lin disparut dès que l'Omniscient reprit conscience, mais bientôt, une nouvelle image apparut.

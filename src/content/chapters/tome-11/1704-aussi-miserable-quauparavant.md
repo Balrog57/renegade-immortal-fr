@@ -48,17 +48,17 @@ Les deux fillettes restèrent un instant interdites. Puis, la fille nommée Wa W
 
 Après ce coup, le calvaire de Cupidité commença.
 
-En repensant à tout ce qui s'était passé, des larmes perlèrent dans les yeux de Cupidité. Il regarda les deux fillettes avec une fierté mêlée de désespoir.
+En repensant à tout ce qui s'était passé, des larmes perlèrent dans les yeux de Cupidité. Le désespoir l'envahit en voyant les deux fillettes, les yeux grands ouverts, qui affichaient un air triomphant.
 
 Il ne pouvait pas les battre. À l'époque, un seul coup de pied avait failli ruiner sa culture. À ses yeux, ces deux petites filles étaient tout simplement trop terrifiantes.
 
 — Je parlerai... Je parlerai! La dernière fois, ce démon meurtrier, laid, sans vergogne et arrogant, Wang Lin, était dans le ventre du Serpent aux yeux de lune... » Le ventre de Cupidité semblait brûler alors qu'il commençait à s'exprimer.
 
-— Ce Wang Lin est trop méprisable! Comment peut-il être ainsi? » La petite fille en pourpre nommée Han Han fronça les sourcils et marmonna avec mécontentement.
+— Ce Wang Lin est trop méprisable! Comment peut-il être ainsi? » La petite fille en pourpre nommée Han Han fronça le nez et marmonna avec mécontentement.
 
 — Han Han, te souviens-tu de ce que je t'ai dit? Lorsque je suis sortie avec mon Maître pour cueillir des herbes, j'ai rencontré un sens divin extrêmement étrange. J'ai communiqué avec lui et il m'a dit que son nom était Wang Lin. »
 
-Alors que Cupidité racontait douloureusement son histoire dans le vaste espace de l'autel, Wang Lin cracha une nouvelle bouchée de sang et utilisa l'Évasion Sanguine, le visage livide.
+Alors que Cupidité racontait douloureusement son histoire, à l'extérieur de la faille, dans l'immense ciel étoilé où se trouvait l'autel, Wang Lin cracha une nouvelle bouchée de sang et utilisa l'Évasion Sanguine, le visage livide.
 
 Derrière lui, l'espace lui-même semblait s'embraser alors que neuf oiseaux de feu le poursuivaient. Une puissante vague de chaleur émanait de ces créatures. Derrière elles, le Daoïste aux Sept Couleurs avançait d'un pas décontracté, mais imprégné d'une intention meurtrière.
 
@@ -72,7 +72,7 @@ Le corps de Wang Lin continuait de se régénérer au fil de sa fuite. Mais plus
 
 Il se rapprochait de plus en plus de l'autel!
 
-Un instant plus tard, après une nouvelle téléportation, Wang Lin aperçut l'autel au loin. Ses yeux s'illuminèrent et il fonça vers lui tel un rayon de feu ardent.
+Un instant plus tard, après une nouvelle téléportation, Wang Lin aperçut au loin l'autel indiqué par la carte du talisman de jade. Ses yeux s'illuminèrent et il fonça vers lui tel un rayon de feu ardent.
 
 C'est à ce moment précis que Cupidité recula prudemment vers la faille, tandis que les deux fillettes débattaient du nom de « Wang Lin ». Fou de terreur, Cupidité se précipita vers la sortie.
 
@@ -100,9 +100,9 @@ Wang Lin s'assit sur l'autel et fixa les neuf soleils qui fonçaient sur lui. Il
 
 L'aura antique que dégageait ce bras lui était extrêmement familière. Wang Lin reconnut immédiatement qu'il s'agissait de l'un des bras de Ye Mo!
 
-« Ce bras pourrait-il être ma seule chance? » Sans hésiter, et sans même prendre le temps d'observer les alentours, il pressa ses mains sur ce bras. Si n'importe qui d'autre l'avait fait, il n'aurait pu fusionner avec lui, mais Wang Lin était différent. Il possédait un héritage antique authentique de Ye Mo. À cet instant, le bras émit une lueur éblouissante qui enveloppa complètement Wang Lin.
+« Ce bras pourrait-il être ma seule chance? » Sans hésiter, et sans même prendre le temps d'observer les alentours, il leva la main droite et la pressa sur ce bras. Si n'importe qui d'autre l'avait fait, il n'aurait pu fusionner avec lui, mais Wang Lin était différent. Il possédait un héritage antique authentique de Ye Mo. À cet instant, le bras émit une lueur éblouissante qui enveloppa complètement Wang Lin.
 
-Simultanément, Cupidité commença à sombrer dans ses rêves au milieu de la vague de chaleur. La moitié de son corps était déjà entrée dans la faille, mais il était trop tard pour y pénétrer totalement!
+Au même instant, Cupidité se mit à hurler au milieu de la vague de chaleur. La moitié de son corps était déjà entrée dans la faille, mais il était trop tard pour y pénétrer totalement!
 
 « 1 000 ans; 3 000 ans; 10 000 ans... Je raconterai des histoires pendant 10 000 ans! Deux petites ancêtres, sauvez-moi!!! »
 

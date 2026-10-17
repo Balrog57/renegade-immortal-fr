@@ -10,7 +10,7 @@ Wang Lin contemplait la gigantesque planète de culture tandis que les cultivate
 
 Tout en contenant cette force de rejet à l'intérieur de lui, Wang Lin observa la vaste planète de culture. Une restriction entourait l'astre. Ce devait être la seconde porte menant au Quartier Général de l'Alliance après le vortex!
 
-Cette restriction était extrêmement complexe; elle utilisait la douzaine de planètes environnantes pour former une formation créant une boucle. Cela donnait à la planète des propriétés similaires à celles d'un cultivateur, lui permettant ainsi de cultiver!
+Cette restriction était extrêmement complexe; elle utilisait les quelques dizaines de petites planètes environnantes pour former une formation créant une boucle. Cela donnait à la planète des propriétés similaires à celles d'un cultivateur, lui permettant ainsi de cultiver!
 
 Wang Lin n'avait jamais rien vu de tel, et ses yeux s'illuminèrent à cette découverte.
 
@@ -26,7 +26,7 @@ Après avoir fini de parler, Maître Yan Leizi sembla se souvenir de quelque cho
 
 La dernière aura semblait dormir...
 
-Les dizaines de milliers de cultivateurs agenouillés autour d'eux tremblaient, l'esprit dévoré par la peur. Ils n'avaient plus aucun contrôle sur leur destin; celui-ci appartenait désormais au Seigneur à la robe blanche du Royaume Scellé.
+Les quelque dix mille cultivateurs agenouillés autour d'eux tremblaient, l'esprit dévoré par la peur. Ils n'avaient plus aucun contrôle sur leur destin; celui-ci appartenait désormais au Seigneur à la robe blanche du Royaume Scellé.
 
 Les trois dragons noirs étaient également en proie aux tremblements, enroulés sur eux-mêmes; leurs yeux étaient emplis d'effroi. Même leurs rugissements s'étaient mués en gémissements.
 
@@ -66,7 +66,7 @@ Des cris déchirants résonnèrent à travers les étoiles. Même Maître Yan Le
 
 Observant cette scène avec une certaine satisfaction, il ressentit un respect encore plus profond pour la cruauté de Wang Lin.
 
-Ces dizaines de milliers de cultivateurs étaient impuissants. Le dragon noir, consumé par la peur et le désespoir, sembla presque perdre la raison lorsqu'il comprit que Wang Lin lui offrirait la vie. En moins de quinze minutes, il ne resta pratiquement plus aucun survivant du Royaume Extérieur!
+Ces quelque dix mille cultivateurs étaient impuissants. Le dragon noir, consumé par la peur et le désespoir, sembla presque perdre la raison lorsqu'il comprit que Wang Lin lui offrirait la vie. En moins de quinze minutes, aucun cultivateur du Royaume Extérieur ne resta en vie!
 
 Tous les cultivateurs furent dévorés, leurs âmes intégrant désormais le royaume des Flammes Joss au sein de l'animal. La chair et le sang de ces êtres fusionnèrent avec son corps, conférant au dragon une lueur pourpre!
 
@@ -90,7 +90,7 @@ Une lumière blanche jaillit de la planète géante. Cette clarté s'élança da
 
 Le corps éthéré du vieillard était lié à la planète; c'était comme si l'astre lui-même était son être!
 
-« Quiconque offense l'Alliance sera détruit! » Une voix antique émana de l'âme logée dans le vieil homme. Cette voix pénétra l'âme de Wang Lin ainsi que le corps de Maître Yan Leizi.
+« Quiconque offense mon Alliance verra son Dao s'éteindre, son âme se disperser, sa chair mourir et son corps être anéanti! » Une voix antique émana de l'âme logée dans le vieil homme. Cette voix pénétra l'âme de Wang Lin ainsi que le corps de Maître Yan Leizi.
 
 En voyant le vieillard aux cheveux blancs, les yeux de Maître Yan Leizi s'écarquillèrent et il s'exclama: « Maître Long Pan!!! »
 

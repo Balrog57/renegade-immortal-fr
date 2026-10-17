@@ -60,7 +60,7 @@ Lorsque les âmes des mortels entrèrent dans la formation, leur force permit à
 
 Le Royaume Intérieur était désormais 40 % plus vaste qu'auparavant. À cet instant, la roue sembla atteindre une limite et cessa de progresser. Une explosion de lumière se propagea, semblant s'étendre à l'infini. L'ensemble du Royaume Intérieur parut être enveloppé dans un cylindre de lumière!
 
-Le corps de Wang Lin fusionna avec la formation au niveau de la Mer des Nuages. Il s'assit et le Fourneau Impérial apparut devant lui. Il ferma les yeux et commença ses trois années de garde!
+Le corps de Wang Lin fusionna avec la formation au niveau de la Mer des Nuages, là où se trouvait auparavant la brèche. Il s'assit et le Fourneau Impérial apparut devant lui. Il ferma les yeux et commença ses trois années de garde!
 
 Ce bouleversement avait provoqué une expansion de 40 % du Royaume Intérieur. Les quatre systèmes stellaires s'étaient agrandis et d'innombrables planètes de culture, dépourvues de cultivateurs, étaient apparues dans le Royaume Intérieur.
 
@@ -72,7 +72,7 @@ Cependant, pour le Royaume Extérieur, ce fut un coup terrible. Jusqu'à présen
 
 L'expression du Souverain était sombre et une froideur glaciale émanait de son regard. Sa peur de Wang Lin surpassait celle de l'être qui l'avait contraint à quitter le Royaume Intérieur d'un simple rugissement.
 
-« Le Maître Miao Yun, le Seigneur Démon des Neuf Cieux et la Grande Désolation sont tous piégés dans l'Ancienne Tombe avec la quatrième concubine... Si ces quatre-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
+« Le Maître Dao Miao Yin, le Maître Démon Neuf Cieux et la Grande Désolation sont tous piégés dans l'Ancienne Tombe avec la quatrième concubine... Si ces quatre-là parviennent à sortir, ils pourraient être en mesure d'absorber ces tirs! » Le Souverain se leva, prêt à partir, puis s'arrêta. Ses yeux s'illuminèrent; il leva la main droite et un jade apparut.
 
 Il y déposa une parcelle de son Sens Divin, puis le lança. Le jade disparut sans laisser de trace.
 
@@ -118,4 +118,4 @@ Une formation invisible enveloppait cette zone. À moins de posséder le lignage
 
 Le Souverain se tint respectueusement sur l'un des fragments et s'inclina.
 
-« Ce disciple salue le Maître! »
+« Ce disciple sollicite une audience auprès du Maître! »

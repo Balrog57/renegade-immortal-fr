@@ -52,13 +52,13 @@ Un coup après l'autre!!
 
 Wang Lin s'acharnait comme un fou. Chaque impact faisait trembler la Tortue Noire plus violemment encore et élargissait les fissures!
 
-Alors que les poings de Wang Lin s'abattaient, ils émettaient une lumière dorée. Le feu et le tonnerre fusionnaient dans ses poings, décuplant leur pouvoir destructeur. En un éclair, Wang Lin lança plus de cent coups. Une brume de sang jaillit de son corps alors que la force de rejet intérieure explosait de toutes ses forces.
+Alors que les poings de Wang Lin s'abattaient, ils émettaient une lumière dorée. Le feu et le tonnerre fusionnaient dans ses poings, renforçant leur pouvoir destructeur. En un éclair, Wang Lin lança plusieurs centaines de coups. Une brume de sang jaillit de son corps alors que la force de rejet intérieure explosait de toutes ses forces.
 
 Cette douleur intense, Wang Lin la transformait en une forme de folie, une détermination farouche à sauver Qing Shui!
 
 Dans ce monde, seuls quelques individus pouvaient pousser Wang Lin à une telle extrémité, et Qing Shui était l'un d'entre eux!
 
-Alors que les centaines de coups pleuvaient, plus de la moitié du dos de la Tortue Noire s'effondra sans toutefois se briser complètement. Les veines sur le visage de Wang Lin gonflèrent alors qu'il s'élevait à dix mille pieds dans les airs. Il pointa ensuite le ciel du doigt.
+Alors que les centaines de coups pleuvaient, plus de la moitié du dos de la Tortue Noire s'effondra sans toutefois se briser complètement. Les veines sur le visage de Wang Lin gonflèrent alors qu'il s'élevait à plusieurs dizaines de milliers de pieds dans les airs. Il pointa ensuite le ciel du doigt.
 
 « Empreinte d'Esprit Guerrier! »
 

@@ -8,7 +8,7 @@ slug: ce-regard
 ---
 Une heure plus tard, l'image illusoire disparut sous les yeux de tous, devant le regard de Wang Lin. Tous les membres de l'équipage tremblaient encore et restaient silencieux.
 
-Ils ne pouvaient oublier ce qu'ils avaient vu au cœur de l'illusion, en particulier ces roches incandescentes qui s'étaient dispersées lors de l'éruption du volcan.
+Ils ne pouvaient oublier ce qu'ils avaient vu au cœur de l'illusion, en particulier ces roches incandescentes qui s'étaient dispersées lors de l'éruption du volcan, dont une grande partie semblait foncer droit vers eux, comme prête à jaillir de l'image pour s'abattre sur le navire.
 
 La scène était si saisissante qu'ils ne savaient plus distinguer le réel de l'imaginaire, mais ils comprirent qu'il s'agissait là de la colère de l'esprit marin.
 
@@ -50,7 +50,7 @@ Un adolescent de moins de vingt ans essuya la sueur de son visage et rugit: « N
 
 « Ne vous découragez pas, nous avons encore demain... » De plus en plus de marins se mirent à chanter au milieu du vent et des vagues. Leurs voix résonnaient ensemble, fusionnant en un chant de défi envers la mort!
 
-« N'abandonnez pas, nous avons encore la volonté... »
+« Ne vous soumettez pas, nous refusons encore de céder... »
 
 « Ne fermez pas les yeux, nous devons encore voir le soleil se lever... »
 
@@ -66,7 +66,7 @@ Leurs voix dégageaient du courage, un esprit indomptable, une soif de vivre et 
 
 La vie et la mort!
 
-Comme la montagne voit la vie comme la vie et la mort comme la mort; elle ne voit ni la vie comme la vie, ni la mort comme la mort. Mais finalement, après avoir tout compris, on voit la vie comme la vie et la mort toujours comme la mort!
+Comme la montagne, on voit la vie comme la vie et la mort comme la mort. Puis on ne voit plus la vie comme la vie, ni la mort comme la mort. Mais finalement, après avoir tout compris, on voit la vie comme la vie et la mort toujours comme la mort!
 
 Chacun éprouve une crainte envers la vie et la mort. C'est de cette peur que naissent deux chemins: l'un est celui de la soumission, l'autre celui du défi!
 
@@ -74,13 +74,13 @@ Se conformer à la vie et à la mort constitue le premier royaume de la vie et d
 
 Cependant, si cela se transforme en une volonté défiante, cela signifie voir la vie non comme la vie et la mort non comme la mort. C'était là le deuxième royaume!
 
-On disait souvent « percer le mystère de la vie et de la mort », mais en vérité, on ne peut pas percer ce mystère. Au mieux, on ne peut que voir la vie et la mort avec clarté!
+On disait souvent « percer le mystère de la vie et de la mort », mais en vérité, on ne peut pas percer ce mystère. Au mieux, on ne peut que prendre la vie et la mort à la légère!
 
-Avec cette volonté défiante, on peut ignorer la vie et la mort et dire: « La vie est joie, nul besoin de craindre la mort! » C'est une détermination à mourir, mais cela ne signifie pas pour autant que l'on a percé le mystère de la vie et de la mort!
+Avec cette volonté défiante, on peut mépriser la vie et la mort et dire: « Quelle joie y a-t-il à vivre, et que craindre de la mort? » C'est une détermination à mourir, mais cela ne signifie pas pour autant que l'on a percé le mystère de la vie et de la mort!
 
-Le troisième royaume, la vérité que Wang Lin recherchait, n'était pas non plus de voir à travers ou de transcender la vie et la mort. C'était une simple ligne de démarcation!
+Le troisième royaume, la vérité que Wang Lin recherchait, n'était pas non plus de voir à travers ou de transcender la vie et la mort. C'était une simple phrase!
 
-Cette ligne envahit l'esprit de Wang Lin, mais il ne pouvait la formuler. C'était comme si une barrière l'en empêchait.
+Cette phrase envahit l'esprit de Wang Lin, mais il ne pouvait la prononcer. C'était comme si une barrière l'en empêchait.
 
 Dans le fracas du vent et de la pluie, ces mots qui méprisaient la vie et la mort et ce refus de se soumettre résonnèrent jusqu'à ce que le tonnerre s'éteigne, que les éclairs disparaissent et que le vent et les vagues se calment. La nuit passa lentement et l'aube pointa. Les cris de ceux qui avaient survécu à cette épreuve de vie ou de mort résonnaient sur le navire.
 
@@ -88,7 +88,7 @@ Wang Lin les regarda et sourit. Il s'assit à la proue du navire et contempla le
 
 Au onzième mois de son voyage, le continent apparut à l'horizon. En le voyant, des cris de joie éclatèrent sur le bateau.
 
-Wang Lin fit ses adieux à l'équipage qu'il avait côtoyé pendant près d'un an. Il quitta le navire marchand pour débarquer sur ce continent inconnu.
+Wang Lin fit ses adieux à l'équipage qu'il avait côtoyé pendant près d'un an. Au crépuscule, emportant avec lui le chant des marins de cette nuit-là, il quitta le navire marchand pour débarquer sur ce continent inconnu.
 
 Il y avait ici de nombreux royaumes mortels, ainsi que de nombreuses sectes et des cultivateurs qu'il aurait pu reconnaître de ses rêves. Parmi ces pays, il y en avait un nommé Huo Fen.
 

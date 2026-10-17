@@ -22,6 +22,8 @@ Pourtant, ils ne cessaient de reculer… Peu de gens n'avaient pas peur de la mo
 
 L'échec de cette première bataille porterait un coup fatal au Royaume Intérieur, qui n'avait pas encore achevé ses préparatifs de guerre.
 
+Maître Nan Yunzi ne recula pas non plus. Il parlait peu de toute sa vie, mais tenait ses promesses. Le Seigneur du Royaume Scellé lui avait jadis rendu un grand service, qu'il voulait rembourser. Le Royaume Intérieur était son foyer, et il le protégerait. Il n'avait aucune raison, en tant que grand puissant au sommet du Royaume Intérieur, de battre en retraite… Dans le silence, une intention meurtrière s'éveilla dans les yeux de Nan Yunzi!
+
 Tandis que les cultivateurs de la Mer des Nuages reculaient frénétiquement, les cultivateurs du Royaume Extérieur se précipitèrent sur eux comme des loups sur un troupeau de moutons. Des cris déchirants résonnèrent et, sans gloire aucune, des milliers d'autres périrent!
 
 Il y avait une autre personne qui ne recula pas!
@@ -34,9 +36,9 @@ Chacun de ses pas provoquait des échos tonitruants. Wang Lin agita la main et l
 
 « Ouvre-toi, Royaume Antique du Tonnerre! »
 
-L'espace gronda et une immense faille spatiale s'ouvrit. Une aura ancienne en jaillit. Puis, une multitude de dragons de tonnerre antiques sortirent de la faille pour pénétrer dans le tatouage. Un tonnerre incessant tomba des cieux!
+L'espace gronda et une immense faille spatiale s'ouvrit. Une aura ancienne en jaillit. Puis, plusieurs dragons de tonnerre antiques sortirent la tête de la faille pour pénétrer dans le tatouage. Un tonnerre incessant tomba des cieux!
 
-Chaque éclair était plus épais de cent pieds, bombardant l'ennemi avec acharnement après que Wang Lin eut libéré son essence de tonnerre!
+Chaque éclair avait une épaisseur de cent pieds, bombardant l'ennemi avec acharnement après que Wang Lin eut libéré son essence de tonnerre!
 
 Une tempête de feu surgit de nulle part, formant un vortex gigantesque. Un Oiseau Vermillon s'y trouvait et fondit sur les cultivateurs du Royaume Extérieur en poussant un cri strident!
 
@@ -70,7 +72,7 @@ Les plaies couvraient tout son être!
 
 Pourtant, il était impossible de compter le nombre de cultivateurs du Royaume Extérieur qu'il avait terrassés, et Wang Lin ne cherchait pas à le faire. À cet instant, il ne trouvait aucune raison de partir… La requête du Seigneur du Royaume Scellé, tous ceux qu'il connaissait dans le Royaume Intérieur, son foyer natal, tout cela l'empêchait de battre en retraite… Les yeux de Wang Lin étaient rouges et le monde prit la couleur du sang. Au milieu de ce massacre incessant, un des cultivateurs de la Mer des Nuages qui fuyait s'arrêta.
 
-C'était un jeune homme, seulement au stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
+C'était un jeune homme, seulement au début du stade du Scruteur du Nirvana. Il avait eu la chance de survivre à cette bataille tragique. Il se retourna et fixa le dos de Wang Lin au loin. Il regarda Wang Lin charger contre les vagues infinies de cultivateurs, tel deux bras gigantesques bloquant une armée.
 
 « Les cultivateurs comme nous ne reculent jamais devant un combat… » murmura le jeune homme. L'éclat effondré montrait des signes de réveil.
 
@@ -104,7 +106,7 @@ Une pointe de tristesse brilla dans les yeux du Maître Nan Yunzi. Comment pouva
 
 L'expression de la femme en rouge qui combattait contre lui changea, et une rare trace de peur apparut dans son regard. Les souvenirs du passé affluèrent dans son esprit.
 
-Le visage du Maître Hong Shan restait calme, mais ses yeux trahissaient une pointe de nostalgie. C'était comme s'il était retourné dans le passé, à l'époque où il voyageait avec le Seigneur du Royaume Scellé. L'attachement aux vieilles idées du Seigneur du Domaine l'agaçait autrefois, mais ce dernier se contentait alors de secouer la tête en souriant en silence.
+Le visage du Maître Hong Shan restait calme, mais ses yeux trahissaient une pointe de nostalgie. C'était comme s'il était retourné dans le passé, à l'époque où il débattait du Dao avec le Seigneur du Royaume Scellé, tout juste arrivé et au caractère obstiné. La pédanterie de celui-ci l'avait alors poussé à le réprimander, mais le Seigneur du Royaume Scellé se contentait de sourire, secouant la tête sans un mot.
 
 Le garçon au regard froid entendit également cela, et une trace de peur apparut aussi dans ses yeux. La personne qu'il craignait le plus n'était pas le Souverain, ni les concubines impériales célestes, mais le Seigneur du Royaume Scellé!
 
@@ -112,7 +114,7 @@ Tandis que la voix ancienne résonnait, la Hache Brise-Ciel cessa de lutter et r
 
 Wang Lin bondit et saisit la Hache Brise-Ciel devant tout le monde!
 
-C'était une arme de Dieu Ancien, l'arme royale la plus puissante. C'était une hache qui fendait les cieux!
+C'était un artefact antique, l'arme la plus puissante de la lignée royale. C'était une hache qui fendait les cieux!
 
 Au moment où Wang Lin saisit l'arme, ses étoiles de Dieu Ancien tournèrent rapidement. Une aura similaire à celle qu'il avait ressentie lors de l'obtention de l'héritage de l'Ordre Ancien jaillit de son corps!
 

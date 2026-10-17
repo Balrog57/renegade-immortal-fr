@@ -47,7 +47,7 @@ Ces exclamations provoquèrent une agitation comparable à une tempête parmi le
 
 Leurs esprits devinrent totalement blancs. Ils en oublièrent jusqu'à leur propre pensée, restant là, prostrés dans la stupeur.
 
-Au loin, le ciel s'illumina et un nuage rouge fonça vers eux. En un instant, il fut sur place et une personne en sortit: un vieil homme vêtu d'une robe rouge. Son visage était pâle, mais il dégageait une majesté naturelle sans même paraître colérique. On pouvait deviner les traits de Zhou Wutai sur son visage marqué par l'âge.
+Au loin, le ciel s'illumina et un nuage rouge fonça vers eux. En un instant, il fut sur place et une personne en sortit: un vieil homme vêtu d'une robe rouge. Il avait les cheveux gris, mais son visage dégageait une majesté naturelle sans même paraître colérique. On pouvait deviner les traits de Zhou Wutai sur son visage marqué par l'âge.
 
 Ce vieil homme était le seigneur de la planète Suzaku, Zhou Wutai!
 
@@ -110,7 +110,7 @@ Wang Lin écoutait les récits de Zhou Wutai en buvant silencieusement, cruche a
 — Cela fait plus de mille ans que je veille ici... Je n'oublierai jamais ta silhouette au moment où tu as quitté la planète après m'avoir nommé son seigneur. À l'époque, je t'enviais, mais pas autant qu'aujourd'hui...
 
 Il prit une grande gorgée et la tristesse perça son regard.
-— Souviens-toi de mon disciple... Il est mort il y a de nombreuses années. Il faisait partie de mon domaine... Je lui avais promis de l'accompagner jusqu'à sa fin... Je l'ai enterré sur la planète Suzaku. Chaque fois que je voulais partir, j'allais le rejoindre pour boire silencieusement devant sa tombe.
+— Souviens-toi de mon disciple... Il est mort il y a de nombreuses années. Il était la source de mon état d'esprit pour la Formation de l'Âme... Je lui avais promis de l'accompagner jusqu'à sa fin... Je l'ai enterré sur la planète Suzaku. Chaque fois que je voulais partir, j'allais le rejoindre pour boire silencieusement devant sa tombe.
 
 Il baissa la tête.
 — Mon disciple aimait profondément son foyer, il ne voulait pas quitter sa terre natale...

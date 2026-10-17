@@ -8,7 +8,7 @@ slug: etat-du-jeu
 ---
 « Tu as instauré la loi... Qu'importe si j'y entre? » Le sens divin de Wang Lin s'était déjà étendu, recueillant divers indices sur la planète.
 
-La loi en ce lieu ressemblait fort à une partie d'échecs: il fallait séparer une portion de son sens divin pour en faire un soldat, tout en utilisant le corps d'un mortel pour affronter ce massacre de millions de combattants!
+La loi en ce lieu ressemblait fort à une partie d'échecs: il fallait séparer une portion de son sens divin pour en faire un soldat, tout en utilisant le corps d'un mortel pour affronter ce massacre d'un million de combattants!
 
 Leur culture serait totalement supprimée, les rendant incapables de l'utiliser.
 
@@ -62,7 +62,7 @@ Les yeux du général en armure blanche étaient empreints de froideur. Il point
 
 Wang Lin éclata de rire. Sur ce champ de bataille, le son du massacre emplissait l'univers. Les cris, les rugissements et tous ces bruits divers se mêlaient pour composer la musique la plus spectaculaire au monde!
 
-Devant cette mélodie, le sang bouillonnait. Wang Lin insuffla sa propre puissance dans sa lame et chargea. Bien qu'il portât l'armure d'un soldat ordinaire, il tranchait les soldats ennemis d'un seul coup à chaque mouvement!
+Devant cette mélodie, le sang bouillonnait. Wang Lin lécha le sang de sa lame et chargea. Bien qu'il portât l'armure d'un soldat ordinaire, il tranchait les soldats ennemis d'un seul coup à chaque mouvement!
 
 Chaque fois qu'il tuait un homme, celui-ci se transformait en un filet de gaz qui venait nourrir Wang Lin. Peu à peu, il fut entouré de filaments de brume noire, lui donnant l'apparence d'un dieu maléfique.
 
@@ -88,7 +88,7 @@ Après ce massacre, l'armure de Wang Lin enveloppait presque tout son corps; seu
 
 L'homme de la Planète des Cinq Éléments parvint également à tuer plusieurs adversaires en s'entourant d'une lumière dorée. Cette clarté recouvrait son corps pour former une armure de lumière, bien que celle-ci fût très rudimentaire et ne puisse rien comparer à l'armure de Wang Lin.
 
-En voyant cela, le Général Tigre Blanc ouvrit les yeux, le visage empreint d'une profonde amertume. Les veines de son front saillaient! Il prit une grande inspiration et referma les paupières.
+En voyant cela, le Général Tigre Blanc ouvrit les yeux, le visage extrêmement sombre. Les veines de son front saillaient! Il prit une grande inspiration et referma les paupières.
 
 Il se reconcentra sur le général issu de son sens divin; une nouvelle lance apparut. Il recula pour reprendre de la distance face à Wang Lin.
 
@@ -100,7 +100,7 @@ Il fonça droit sur le général en armure blanche!
 
 L'expression de ce dernier changea radicalement. Fixant Wang Lin qui approchait sur son cheval noir, il serra sa lance avec une force désespérée!
 
-Pendant ce temps, dans l'autre monde dévasté, le Daoïste aux Sept Couleurs était de marbre. Il avait traversé près de cent mondes sans toujours trouver trace de Wang Lin. Avec anxiété, il déchira l'espace pour s'y engouffrer.
+Pendant ce temps, dans l'autre monde dévasté, le Daoïste aux Sept Couleurs avait le visage sombre. Il avait traversé près de cent mondes sans toujours trouver trace de Wang Lin. Avec anxiété, il déchira l'espace pour s'y engouffrer.
 
 Soudain, son corps trembla et ses yeux s'illuminèrent de joie. Il avait senti l'aura de Wang Lin! Bien que cette aura ne fût pas dans ce monde précis, elle n'était pas loin. Il ouvrit une nouvelle déchirure spatiale et s'y précipita.
 

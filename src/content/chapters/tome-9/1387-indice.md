@@ -66,7 +66,7 @@ Lorsqu'il leva les yeux, Cupidité avait déjà disparu sans laisser de trace. L
 
 « Je commence à comprendre sa personnalité. À moins d'être poussé dans ses derniers retranchements, il sort rarement tous ses trésors d'un coup, contrairement à ce qu'il fit sur la planète de culture. Il ne les utilise généralement qu'un par un! »
 
-« Il cache aussi bien des secrets. Peu importe la manière dont il a obtenu ces trésors, la méthode qu'il a utilisée pour pénétrer dans le Système Stellaire Antique est une information que je dois absolument obtenir! » Wang Lin se pencha en avant et disparut soudainement.
+« Il cache aussi bien des secrets. Peu importe la manière dont il a obtenu ces trésors, la méthode qu'il a utilisée pour pénétrer dans le Système Stellaire Antique est une information que je dois absolument obtenir! » Wang Lin fit un pas en avant et disparut soudainement.
 
 Deux êtres volaient à travers l'espace, l'un fuyant et l'autre poursuivant, provoquant un grondement tonitruant à travers la Terre Déchue. Cela attira l'attention des habitants de la Terre Déchue, mais après avoir constaté la vitesse prodigieuse des deux individus, ils décidèrent de les ignorer.
 
@@ -80,7 +80,7 @@ Cette fiole était froide et dégageait une puissante énergie démoniaque. Des 
 
 Cupidité cracha du sang sur la fiole de jade et rugit: « Prêtez-moi 300 âmes démoniaques, et après avoir tué cet homme, j'offrirai les âmes de 30 000 créatures! »
 
-Dès que son sang toucha le jade, il fut absorbé. Simultanément, deux épines jaillirent de la fiole là où Cupidité la tenait. Elles transpercèrent son corps et commencèrent à pomper des quantités massives de sang.
+Dès que son sang toucha le jade, il fut absorbé. Simultanément, deux épines jaillirent de la fiole là où Cupidité la tenait. Elles lui transpercèrent les doigts et commencèrent à pomper des quantités massives de sang dans tout son corps.
 
 Tout cela se produisit en un instant. Une fois la fiole rassasiée par le sang, elle émit un soupir de satisfaction.
 
@@ -106,7 +106,7 @@ Il sentait clairement que le flux nuageux dans les yeux de ces âmes démoniaque
 
 « Ces 300 démons antiques ont été scellés par un puissant Ancien Dieu! » En un éclair, l'esprit de Wang Lin fut limpide. Alors que la tempête se rapprochait, des bruits de craquements résonnèrent dans son corps et il poussa un rugissement!
 
-ROAR!!
+RUGISSEMENT!!
 
 Ce n'était pas un cri issu d'un sortilège, mais le rugissement même d'un Ancien Dieu! Les étoiles entre les sourcils de Wang Lin tournèrent frénétiquement, injectant l'énergie de l'Ancien Dieu dans son corps pour créer ce rugissement capable de briser le ciel!
 

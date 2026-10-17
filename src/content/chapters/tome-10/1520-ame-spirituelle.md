@@ -30,25 +30,25 @@ Une arrogance et une majesté indicibles émanaient de son rire. Il contenait l'
 
 Il y avait aussi Maître Nan Yunzi. Cet homme était très mystérieux, et Wang Lin ne savait que peu de choses à son sujet. Cependant, en cet instant, ses yeux étaient froids et il arriva rapidement aux côtés de Maître Hong Shan!
 
-Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan des Moineaux de Feu, mais de l'Estimé Nan Zhao, qui se trouvait au stade de l'Âme Spirituelle!
+Tout cela se produisit en un instant. Dès l'arrivée des cultivateurs de la Mer des Nuages, Wang Lin fut confronté à une crise majeure. Ce danger ne provenait pas de l'ancêtre du Clan des Moineaux de Feu, mais de l'Estimé Nan Zhao, qui se trouvait au stade du Vide Spirituel!
 
-Les écarts entre les quatre Royaumes du Néant sont immenses. Non seulement un cultivateur de l'Âme Spirituelle peut utiliser davantage de Flammes Joss, mais il peut également utiliser ces flammes pour former sa propre âme!
+Les écarts entre les quatre Royaumes du Vide sont immenses. Non seulement un cultivateur du Vide Spirituel peut utiliser davantage de Flammes Joss, mais il peut également utiliser ces flammes pour former sa propre âme!
 
-En vérité, le pouvoir des Flammes Joss est également appelé Pouvoir Nirvana dans le premier Royaume du Néant!
+En vérité, le pouvoir des Flammes Joss est également appelé Pouvoir Nirvana dans le premier Royaume du Vide!
 
 Le Pouvoir Nirvana, la puissance du nirvana, est infini et engendre ainsi d'innombrables Flammes Joss! Un cultivateur du Nirvana contrôle le Pouvoir Nirvana à l'intérieur de ces flammes pour exécuter divers sorts capables de faire trembler les cieux!
 
-L'Âme Spirituelle. Ce stade est une évolution de l'âme. Tout cultivateur atteignant ce niveau subit une mutation où son âme fusionne avec son âme originelle. Cette dernière ne peut plus être appelée âme originelle; elle devient une Âme Spirituelle!
+Le Vide Spirituel. Ce stade est une évolution de l'âme. Tout cultivateur atteignant ce niveau subit une mutation où son âme fusionne avec son âme originelle. Cette dernière ne peut plus être appelée âme originelle; elle devient une Âme Spirituelle!
 
 De même, le royaume des Flammes Joss fusionne avec leur âme pour ne faire qu'un avec elle! Bien sûr, certains cultivateurs, comme Miao Yin, ne procèdent pas ainsi pour des raisons particulières. C'est grâce à cela que Wang Lin et Grande Désolation avaient eu la grande chance de dérober une partie de ses Flammes Joss!
 
-Par conséquent, dans le corps des cultivateurs de l'Âme Spirituelle, le Pouvoir Nirvana se transforme en une force spirituelle!
+Par conséquent, dans le corps des cultivateurs du Vide Spirituel, le Pouvoir Nirvana se transforme en une force spirituelle!
 
 Cette force est très différente de l'énergie spirituelle des cultivateurs du premier pas. Elle implique la conversion des Flammes Joss en Pouvoir Nirvana, puis leur fusion avec la volonté, pour enfin transformer l'âme originelle en un monde propre à soi. Les âmes des Flammes Joss deviennent alors les résidents de ce monde, et c'est elles qui donnent naissance à cette force spirituelle!
 
-En d'autres termes, chaque cultivateur de l'Âme Spirituelle est comme un monde! Ils sont chacun leur propre univers distinct!
+En d'autres termes, chaque cultivateur du Vide Spirituel est comme un monde! Ils sont chacun leur propre univers distinct!
 
-Un coup porté par un cultivateur de l'Âme Spirituelle, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Estimé Nan Zhao puisse paraître simple, elle contenait toute sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
+Un coup porté par un cultivateur du Vide Spirituel, même au début de ce stade, n'est pas une chose qu'un cultivateur du Nirvana peut supporter. Bien que l'attaque de l'Estimé Nan Zhao puisse paraître simple, elle contenait toute sa force spirituelle. Une seule paume était comme un monde entier s'écrasant sur vous!
 
 À cet instant, l'Estimé Nan Zhao sembla disparaître des yeux de Wang Lin. Tout, y compris la formation et tous les cultivateurs, parut s'évanouir sans laisser de trace!
 
@@ -62,11 +62,11 @@ Ce monde était sans limites, et la multitude de ces êtres en noir était terri
 
 C'étaient les âmes des Flammes Joss de l'Estimé Nan Zhao, et cet endroit était son Royaume des Flammes Joss!
 
-L'attaque d'un cultivateur de l'Âme Spirituelle peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que les Flammes Joss sont générées!
+L'attaque d'un cultivateur du Vide Spirituel peut entraîner sa cible dans son propre Royaume des Flammes Joss. Ce royaume est fusionné avec l'âme du cultivateur, et c'est là que les Flammes Joss sont générées!
 
-Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade de l'Âme Spirituelle. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
+Wang Lin était sous le choc. Après tout, il ne connaissait pas grand-chose aux cultivateurs du troisième pas, et encore moins au stade du Vide Spirituel. Même Ling Dong ou Zhou Jin n'en savaient pas beaucoup à ce sujet. À moins de le vivre personnellement, personne ne pouvait l'expliquer!
 
-Wang Lin ressentit même une pointe de mépris envers les cultivateurs de l'Âme Spirituelle dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Rêve Bleu et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
+Wang Lin ressentit même une pointe de mépris envers les cultivateurs du Vide Spirituel dans son cœur. Après tout, dans le Royaume Extérieur, il avait rencontré le Maître du Dao Rêve Bleu et combattu le Souverain! Il avait même fait équipe avec Grande Désolation!
 
 Cependant, en cet instant, ce mépris disparut sans laisser de trace. Wang Lin comprit!
 

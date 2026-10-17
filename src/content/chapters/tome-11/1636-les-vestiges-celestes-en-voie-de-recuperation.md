@@ -12,7 +12,7 @@ Lorsque son Sens Divin revint du neuvième soleil, il ouvrit les yeux. L'éclat 
 
 « Pourquoi le destin de Situ Nan et de Qing Shui n'existe-t-il pas ici... Ne font-ils pas partie de cette grotte... » La confusion dans les yeux de Wang Lin s'intensifia.
 
-Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait vu Qing Shui et le Daoïste aux Sept Couleurs. Il avait perçu toute la vie de Qing Shui, et le regard étrange du Daoïste aux Sept Couleurs lui semblait encore d'une vivacité frappante.
+Il se souvint du Royaume aux Sept Couleurs, dans le Vide Brillant, où il avait vu Qing Shui et le Daoïste aux Sept Couleurs. Il avait vu que toute la vie de Qing Shui était observée par le regard du Daoïste aux Sept Couleurs, et ce regard étrange lui semblait encore d'une vivacité frappante.
 
 « Ce regard pourrait expliquer vaguement pourquoi le destin de Qing Shui ne se trouve pas dans le neuvième soleil... Quant à Situ... Je sais beaucoup de choses sur lui... Son talent est prodigieux, et chaque fois que je le vois, son niveau de culture a considérablement augmenté... Serait-ce la raison pour laquelle son destin n'est pas dans le neuvième soleil? » Wang Lin méditait silencieusement en contemplant la terre en contrebas. Il pressentait quelque chose, mais ces pensées restaient voilées par une brume qu'il ne parvenait pas à percer.
 
@@ -46,7 +46,7 @@ Wang Lin se posa au sommet d'une statue de Dieu Ancien. Ses cheveux blancs flott
 
 Ce Dieu Ancien était déjà mort, mais une puissance étrange subsistait en lui. C'était cette force qui permettait à la statue de s'éveiller à tout instant pour devenir une marionnette dépourvue de conscience, agissant comme un messager des cieux.
 
-« Les trois clans anciens sont devenus les gardiens de cette grotte. Pathétique, pitoyable, odieux! » Wang Lin secoua la tête et frappa la statue de son pied droit. Au moment où il s'élança dans les airs, un grondement de tonnerre émana de l'autel. D'innombrables fissures se propagèrent depuis l'endroit où il avait frappé, recouvrant instantanément la statue.
+« Les trois clans anciens sont devenus les gardiens de cette grotte. Pathétique, pitoyable, odieux! » Wang Lin secoua la tête et frappa la statue de son pied droit. Au moment où il s'élança dans les airs, un grondement de tonnerre émana de la statue. D'innombrables fissures se propagèrent depuis l'endroit où il avait frappé, recouvrant instantanément la statue.
 
 Dans un fracas assourdissant, la statue s'effondra en une multitude de fragments qui se dispersèrent sur le sol.
 
@@ -74,7 +74,7 @@ C'était le plus haut niveau de Dieu Ancien que Wang Lin ait jamais vu. Devant c
 
 Ses yeux ouverts exprimaient un regret profond. Quiconque croisait son regard avait l'impression d'entendre son rugissement de colère résonner depuis des millénaires.
 
-Face à la statue, Wang Lin réfléchit un instant. Il joignit les mains puis les agita vers l'œuvre monumentale. D'innombrables fissures apparurent silencieusement avant de recouvrir rapidement toute la structure. Un fracas de tonnerre retentit alors que la statue commençait à s'écrouler.
+Face à la statue, Wang Lin réfléchit un instant. Il salua en joignant le poing dans la paume, puis agita soudain la main droite vers l'œuvre monumentale. D'innombrables fissures apparurent silencieusement avant de recouvrir rapidement toute la structure. Un fracas de tonnerre retentit alors que la statue commençait à s'écrouler.
 
 Cependant, au moment même de son effondrement, un vortex apparut et se mit à tourbillonner avec rapidité au centre des neuf étoiles entre les sourcils de la statue.
 

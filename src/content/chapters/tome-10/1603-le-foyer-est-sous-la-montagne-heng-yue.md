@@ -20,7 +20,7 @@ Alors que le premier jeune homme reculait, un second s'avança. Son niveau de cu
 
 Il fit un pas en avant et posa ses mains sur le dos de son compagnon de secte. Il leva les yeux vers Wang Lin et Grande Fortune, les seuls à être encore debout!
 
-À cet instant, il entrevit faiblement une aura émanant de Wang Lin qui le fit frémir. Cette aura était si puissante qu'un simple regard suffit à envahir son esprit d'innombrables pensées complexes. Elle semblait prête à briser sa raison et à le forcer à cracher un flot de sang.
+À cet instant, il entrevit faiblement une aura émanant de Wang Lin qui le fit frémir. Cette aura était si puissante qu'un simple regard suffit à envahir son esprit d'innombrables pensées complexes. Elle semblait prête à briser son esprit et lui fit cracher une gorgée de sang.
 
 « J'ai compris le monde, alors qu'importe si je vois les immortels comme des fourmis? Oubliez ces deux-là; même si tous les immortels de la planète Suzaku venaient ici, qu'adviendrait-il? » Wang Lin leva les yeux, et des éclairs semblaient briller dans son regard. Ses longs cheveux flottaient au vent tandis qu'il buvait une gorgée de vin.
 
@@ -70,7 +70,7 @@ Non seulement durant ces huit ans, mais il avait fait de même pendant les vingt
 
 Au total, vingt-huit ans, vingt-huit changements entre le printemps et l'automne. Pourtant, alors que le bateau passait sous le pont, cette personne n'était toujours pas arrivée.
 
-« Maître, qu'attendez-vous donc... » Grande Fortune était toujours en bonne santé, mais il était devenu plus taciturne. Il regardait souvent son poignet droit d'un air absent, tentant de se souvenir de quelque chose qu'il ne parvenait toujours pas à saisir.
+« Maître, qu'attendez-vous donc... » Grande Fortune était toujours en bonne santé, mais sa pingrerie s'était encore aggravée. Il regardait souvent son poignet droit d'un air absent, tentant de se souvenir de quelque chose qu'il ne parvenait toujours pas à saisir.
 
 Le visage de Wang Lin s'était marqué par l'âge et il leva les yeux vers le ciel. D'une voix rauque, il parla lentement: « J'attends moi-même... J'attends de me rencontrer. »
 
@@ -134,6 +134,6 @@ Assis sur le bateau, Wang Lin murmura doucement à Grande Fortune:
 
 « Sous la montagne Heng Yue. » Le bateau accosta sur la rive et Wang Lin ainsi que Grande Fortune descendirent. Il jeta un dernier regard vers la rivière et vers la ville de Su, là où ils avaient vécu pendant vingt-huit ans.
 
-Lorsqu'ils étaient arrivés, les feuilles de saule commençaient à peine à tomber. Il y avait quelques cruches de vin, une charrette, et eux deux.
+Lorsqu'ils étaient arrivés, c'était la saison où les feuilles de saule voltigeaient. Il y avait quelques cruches de vin, une charrette, et eux deux.
 
 Lorsqu'ils partaient, il en était de même.

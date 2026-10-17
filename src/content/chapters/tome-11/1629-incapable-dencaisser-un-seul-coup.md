@@ -22,7 +22,7 @@ Lorsqu'il fut à moins de 100 000 pieds de la brèche, une lumière aveuglante e
 
 Tandis que l'éclat resplendissait, un objet flotta lentement hors de la faille. C'était un pinceau à queue de cheval d'apparence très ordinaire, ne mesurant que sept pouces de long. Il possédait un manche en bois violet et des poils blancs pour le pinceau. Les 3 000 poils symbolisaient les 3 000 Grands Daos.
 
-Cet objet s'échappa lentement de la faille et agita doucement vers Wang Lin. Les 3 000 poils bougèrent sans qu'aucun vent ne soit présent, puis se dispersèrent. Une ondulation invisible se propagea à partir du pinceau.
+Cet objet s'échappa lentement de la faille et l'agita doucement vers Wang Lin. Les 3 000 poils bougèrent sans qu'aucun vent ne soit présent, puis se dispersèrent. Une ondulation invisible se propagea à partir du pinceau.
 
 À l'écho de cette onde, les pas de Wang Lin marquèrent un léger temps d'arrêt et ses yeux brillèrent intensément. Puis, il reprit sa marche sans la moindre hésitation, fonçant comme une météore vers le pinceau qui venait de sortir de la faille.
 
@@ -52,7 +52,7 @@ Peut-être que quelques-uns, ou même une centaine, n'auraient posé aucun probl
 
 Par conséquent, sa puissance était suffisante pour ébranler le monde.
 
-Cette énergie céleste n'était pas l'énergie spirituelle céleste des Royaumes Célestes du Royaume Intérieur, mais la véritable énergie céleste, semblable à cette goutte de sang doré. S'il n'avait pas rencontré le fou et obtenu le Corps Immortel Céleste, il n'aurait pas pu reconnaître l'énergie céleste utilisée pour créer ces 3 000 sorts.
+Cette énergie céleste n'était pas l'énergie spirituelle céleste des Royaumes Célestes du Royaume Intérieur, mais la véritable énergie céleste, semblable à cette goutte de sang doré. S'il n'avait pas rencontré le fou et obtenu le Corps Céleste Immortel, il n'aurait pas pu reconnaître l'énergie céleste utilisée pour créer ces 3 000 sorts.
 
 À cet instant, il la sentit immédiatement, ce qui fit se rétracter ses pupilles. Il fixa les 3 000 sorts qui convergeaient vers lui, et une intention meurtrière embrasa son regard.
 
@@ -80,15 +80,15 @@ La seule chose qui subsistait au milieu des nuages était la pagode dorée à ne
 
 Maître Nan Yunzi et ses compagnons, restés à l'extérieur de la couverture nuageuse, tremblaient face à ce silence. Tandis qu'il fixait les nuages, Maître Nan Yunzi devint anxieux.
 
-Situ Nan méditait en silence, pressentant qu'un malheur allait se produire. Sans dire un mot, il s'apprêtait à charger dans les nuages. Cependant, au moment où il fit un mouvement, Maître Nan Yunzi leva la main pour l'arrêter.
+Situ Nan resta silencieux, pressentant qu'un malheur allait se produire. Sans dire un mot, il s'apprêtait à charger dans les nuages. Cependant, au moment où il fit un mouvement, Maître Nan Yunzi leva la main pour l'arrêter.
 
-« Maître des Nuages du Sud! Vous ne m'en empêcherez pas!!! » Situ Nan se retourna brusquement, les yeux injectés de folie. Il fixa son maître alors qu'il parlait, ses paroles chargées d'une intention meurtrière monstrueuse.
+« Nan Yunzi!! Vous ne m'en empêcherez pas!!! » Situ Nan se retourna brusquement, les yeux injectés de folie. Il fixa son maître alors qu'il parlait, ses paroles chargées d'une intention meurtrière monstrueuse.
 
 Il savait qu'il n'était pas de taille face à Maître Nan Yunzi, mais à cet instant, il sentait que Wang Lin était en danger. Vu le tempérament de Situ Nan, même si son maître, Qing Lin, avait été présent, il aurait attaqué sans hésiter.
 
 Maître Nan Yunzi ne prêta aucune attention aux paroles de Situ Nan. Il réfléchit un instant, puis parla d'un ton grave:
 
-« Le Seigneur du Royaume Scellé subit une rétribution divine, nous ne devons pas interférer... Si vous forcez le passage, non seulement vous ne l'aiderez pas, mais vous le distragerez également. »
+« Le Seigneur du Royaume Scellé subit une rétribution divine, nous ne devons pas interférer... Si vous forcez le passage, non seulement vous ne l'aiderez pas, mais vous le distrairez également. »
 
 Le regard de Situ Nan se posa sur les nuages et il serra les poings. Après un court instant de réflexion, sa voix rauque résonna:
 

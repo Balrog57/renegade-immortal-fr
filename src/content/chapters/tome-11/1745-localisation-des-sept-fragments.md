@@ -8,13 +8,13 @@ slug: localisation-des-sept-fragments
 ---
 C'était similaire à la manière dont il était entré dans l'illusion du Daoïste aux Sept Couleurs, mais cette fois, Qing Shui servait de guide. Wang Lin utilisait la Voile Fantôme pour pénétrer dans l'illusion afin de découvrir la vérité sur ce passé antique.
 
-À l'intérieur de cette illusion, le ciel était rouge sang et la terre l'était tout autant, comme si elle avait été trempée dans le sang. L'odeur du sang était si épaisse que, dès l'apparition de Wang Lin, il ressentit une sensation d'étouffement dans sa poitrine. C'était comme si un rocher immense pesait sur son torse, rendant chaque respiration difficile.
+À l'intérieur de cette illusion, le ciel était rouge sang et la terre était brune, comme si elle avait été trempée dans le sang. L'odeur du sang était si épaisse que, dès l'apparition de Wang Lin, il ressentit une sensation d'étouffement dans sa poitrine. C'était comme si un rocher immense pesait sur son torse, rendant chaque respiration difficile.
 
 En regardant autour de lui, Wang Lin vit des restes de corps joncher le sol. Des cadavres étaient partout, mais très peu étaient intacts.
 
 Certains yeux affichaient encore la terreur précédant la mort. On pouvait même y deviner les silhouettes vagues qui s'y étaient imprimées par l'effroi.
 
-C'était un palais mortel. Normalement, cet endroit aurait dû être radieux, mais il était désormais couvert de sang, transformé en un palais de mort.
+C'était un palais impérial du monde mortel. Normalement, cet endroit aurait dû être d'une splendeur dorée, mais il était désormais couvert de sang, transformé en un palais de mort.
 
 Un fracas tonitruant retentit au loin. Tandis qu'un immense nuage de poussière se dispersait, Wang Lin vit un palais s'effondrer dans le lointain. Un homme couvert de sang tenait un autre homme vêtu d'une robe royale. Son regard était glacial et il était enveloppé d'une intention meurtrière démente.
 
@@ -22,7 +22,7 @@ Un fracas tonitruant retentit au loin. Tandis qu'un immense nuage de poussière 
 
 Au même instant, d'innombrables rayons d'énergie d'épée convergèrent vers eux. Des centaines de cultivateurs anciens arrivaient en masse au-dessus du palais.
 
-Cependant, alors qu'ils approchaient, l'homme leva soudainement les yeux, révélant un regard démoniaque et écarlate. Une lumière rouge jaillit de ses pupilles pour se transformer en un éclair de foudre pourpre. Elle fendit le ciel et transperça tous les cultivateurs.
+Cependant, alors qu'ils approchaient, l'homme leva soudainement les yeux, révélant un regard démoniaque et écarlate. Une lumière rouge jaillit de ses pupilles pour se transformer en un éclair de foudre rouge. Elle fendit le ciel et transperça tous les cultivateurs.
 
 En un instant seulement, ces centaines de cultivateurs tremblèrent avant de s'effondrer, sans vie.
 
@@ -30,13 +30,13 @@ En un instant seulement, ces centaines de cultivateurs tremblèrent avant de s'e
 
 « Ce n'est que la première illusion, celle du pays de Qing Shui... » Wang Lin traversa les flaques de sang qui jonchaient le sol pour marcher vers l'homme.
 
-Le sang teintait la terre de pourpre et chaque goutte éparpillée portait la haine de Qing Shui. Cette essence était si dense qu'elle semblait impossible à laver.
+Le sang teintait la terre de rouge et chaque goutte éparpillée portait la haine de Qing Shui. Cette essence était si dense qu'elle semblait impossible à laver.
 
-« Si les cieux tentent de m'arrêter, je tuerai les cieux! Si les célestiels tentent de m'arrêter, je tuerai les célestiels!! » Qing Shui leva les yeux vers la voûte céleste alors que les centaines de cultivateurs s'écroulaient autour de lui. Son visage était empreint d'une intention meurtrière absolue.
+« Si les cieux tentent de m'arrêter, je tuerai les cieux! Si les immortels tentent de m'arrêter, je tuerai les immortels!! » Qing Shui leva les yeux vers la voûte céleste alors que les centaines de cultivateurs s'écroulaient autour de lui. Son visage était empreint d'une intention meurtrière absolue.
 
-« Je veux que le monde soit recouvert de rivières de sang! Je veux que le monde paie le prix et subisse ma calamité de massacre! » La voix de Qing Shui résonna à travers le monde, révélant la folie qui habitait son cœur.
+« Je veux que le monde soit recouvert de rivières de sang! Je veux que tous les êtres qui m'ont fait défaut subissent, de réincarnation en réincarnation, la calamité du massacre! » La voix de Qing Shui résonna à travers le monde, révélant la folie qui habitait son cœur.
 
-En s'approchant, Wang Lin contempla le dos de Qing Shui, maculé de sang. Sa silhouette dégageait une tristesse et une solitude infinies. Bien que sa vengeance fût accomplie, il n'y avait aucune joie, seulement du chagrin, de la douleur, ainsi que la haine et l'épuisement de celui qui a trop vécu!
+En s'approchant, Wang Lin contempla le dos de Qing Shui, maculé de sang, comme s'il voyait sa propre image d'autrefois dans la famille Teng. Sa silhouette dégageait une tristesse et une solitude infinies. Bien que sa vengeance fût accomplie, il n'y avait aucune joie, seulement du chagrin, de la douleur, ainsi que la lassitude et la haine envers le ciel, la terre et tous les êtres vivants!
 
 Wang Lin dit doucement: « Senior Frère... »
 
@@ -76,13 +76,13 @@ Ce visage poussa un rugissement silencieux et les dévora tous deux.
 
 Au moment où ils furent engloutis, le cœur de Wang Lin et de Qing Shui tressaillit. Un vortex colossal apparut, entraînant leurs âmes et leurs Sens Divins dans les profondeurs du passé antique!
 
-Le monde était en plein chaos; c'était le noyau de la grotte, le centre même de ce monde caverneux où se trouvait la porte menant vers l'extérieur!
+Le monde était en plein chaos; c'était le noyau de la grotte, le centre même de ce monde caverneux où se trouvait la porte de la grotte menant au Continent Astral Immortel!
 
 À cet instant précis, dans cette zone centrale, le Dao Céleste ouvrit sa gueule et dévora Lian Daofei. Des grondements de tonnerre éclatèrent, et c'est à ce moment que Wang Lin fit son apparition.
 
 La scène ressemblait trait pour trait à l'illusion du Daoïste aux Sept Couleurs!
 
-Le rugissement furieux de Lian Daofei retentit alors que le Dao Céleste était déchiré et subissait de graves blessures. Simultanément, le Souverain Céleste aux Sept Couleurs affichait une expression de douleur alors que son corps s'effondrait!
+Le rugissement furieux de Lian Daofei retentit alors que le Dao Céleste était déchiré et subissait de graves blessures. Simultanément, le Souverain Céleste aux Sept Couleurs affichait une expression de tristesse alors que son corps s'effondrait!
 
 Son corps fut littéralement lacéré; son âme originelle et son esprit se mêlèrent avant d'exploser en trois âmes et sept fragments qui se dispersèrent dans toutes les directions!
 
@@ -116,6 +116,6 @@ Il y avait également un quatrième fragment!
 
 Ce quatrième fragment était jaune et sa lumière était si éclatante qu'elle pouvait illuminer un système stellaire entier, rivalisant presque avec les trois âmes. Le jaune représentait la chance. Cette âme deviendrait quelqu'un doté d'une fortune défiant les cieux, à faire envier au monde entier!
 
-Cette personne serait comme une créature façonnée par les cieux eux-mêmes. Partout où elle irait, les trésors viendraient à elle. Chaque fois qu'elle croiserait un ennemi, celui-ci finirait probablement par se suicider de lui-même.
+Cette personne serait comme une créature façonnée par les cieux eux-mêmes. Partout où elle irait, les trésors viendraient à elle. Chaque fois qu'elle croiserait un ennemi, celui-ci mourrait le plus souvent de mort subite, de lui-même.
 
 Alors que le quatrième fragment d'âme, celui de la Chance, était sur le point de disparaître dans le cycle de la réincarnation, Wang Lin aperçut la silhouette vague de Cupidité...

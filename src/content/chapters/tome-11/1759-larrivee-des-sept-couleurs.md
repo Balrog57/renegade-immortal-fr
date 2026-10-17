@@ -28,17 +28,17 @@ Dès son entrée, le Daoïste aux Sept Couleurs perçut clairement l'aura de Wan
 
 « Wang Lin, ce seigneur t'a trouvé. Je veux voir comment tu vas échapper à ma poigne cette fois! »
 
-À cet instant précis, sur la troisième planète, Wang Lin ouvrit soudainement les yeux et la lame dans sa main émit une lueur monstrueuse. Il poussa un rugissement, bondit vers le ciel et porta un tranchant d'une puissance absolue!
+À cet instant précis, sur la troisième planète, Wang Lin ouvrit soudainement les yeux et la lame dans sa main émit une lueur monstrueuse. Il poussa un rugissement, bondit vers le ciel et asséna son coup de lame le plus puissant!
 
 Après son assaut, il recula promptement.
 
-Une énergie de lame gigantesque surgit dans le ciel. Elle absorba la tempête entourant Wang Lin, son armure ainsi que tous les soldats formés par la Loi. Cette énergie de lame détruisit instantanément la Loi que le Tigre Blanc avait érigée!
+Une énergie de lame gigantesque surgit dans le ciel. Elle absorba la tempête entourant Wang Lin, son armure ainsi que tous les soldats issus de l'échiquier en contrebas. Cette énergie de lame détruisit instantanément la Loi que le Tigre Blanc avait érigée!
 
 Le Général Tigre Blanc cracha du sang et son expression se voila d'ombre.
 
 L'énergie de la lame s'élança vers le ciel et disparut. Lorsqu'elle réapparut, elle se trouvait précisément là où se tenait le Daoïste aux Sept Couleurs. Tout s'était passé à une vitesse fulgurante. À l'instant même où le Daoïste arrivait, Wang Lin frappait déjà.
 
-L'énergie de la lame perça le vide et s'étendit sur plus de 100 000 pieds. Elle n'avait plus rien de corporel, mais paraissait d'une densité absolue alors qu'elle fonçait sur le Daoïste aux Sept Couleurs!
+L'énergie de la lame perça le vide et s'étendit sur plus de 100 000 pieds. Elle ne paraissait plus illusoire mais bien tangible alors qu'elle fonçait sur le Daoïste aux Sept Couleurs!
 
 Cette énergie était façonnée par la Loi locale et fusionnée avec l'intégralité de la culture de Wang Lin. Manier une telle lame revenait à utiliser toute la puissance d'un monde dévasté pour assassiner un être!
 
@@ -48,7 +48,7 @@ Les pupilles du Daoïste aux Sept Couleurs se contractèrent. Malgré son niveau
 
 Cependant, sur ces trois occasions, deux s'étaient produites lors de la traque de Wang Lin. La première fois dans la fissure de la Mer des Nuages, et la seconde était celle-ci, au sein de ce monde en ruines!
 
-« Emprunter la Loi de ce lieu pour forger cette lame... Ce Wang Lin a su concevoir cela en un temps si court. Une telle sagesse est rare! Cependant, plus il est intelligent, plus il mérite de mourir! » Le Daoïste aux Sept Couleurs savait qu'en présence du Vieux Fantôme Zhan, il ne pouvait se permettre d'être blessé. Il agita sa manche et une lumière septicolore commença à scintiller. La lumière se condensa en un lotus aux sept couleurs doté de sept pétales, chacun arborant l'une des sept teintes. Le lotus épanouit devant lui.
+« Emprunter la Loi de ce lieu pour forger cette lame... Ce Wang Lin a su concevoir cela en un temps si court. Une telle sagesse est rare! Cependant, plus il est intelligent, plus il mérite de mourir! » Le Daoïste aux Sept Couleurs savait qu'en présence du Vieux Fantôme Zhan, il ne pouvait se permettre d'être blessé. Il agita sa manche et une lumière septicolore commença à scintiller. La lumière se condensa en un lotus aux sept couleurs doté de sept pétales, chacun arborant l'une des sept teintes. Le lotus s'épanouit devant lui.
 
 « Lotus Daoïste aux Sept Couleurs, que le lotus rassemble les troupes! » Dès que le Daoïste parla, il s'immergea dans le lotus. Les pétales se rétractèrent pour envelopper son corps.
 
@@ -70,7 +70,7 @@ La troisième planète gronda, de larges ravines lacérèrent sa surface et le c
 
 Le sol rugit et d'immenses masses rocheuses furent projetées dans les airs. C'était l'apocalypse!
 
-Du sang coula du coin de la bouche de Wang Lin et il afficha une expression de dénuement. Le Daoïste aux Sept Couleurs était trop puissant! Sans hésiter, il battit en retraite et un vortex apparut derrière lui. Alors qu'il s'y engouffrait, un rugissement fit vibrer tout le système stellaire.
+Du sang coula du coin de la bouche de Wang Lin et il afficha une expression d'impuissance. Le Daoïste aux Sept Couleurs était trop puissant! Sans hésiter, il battit en retraite et un vortex apparut derrière lui. Alors qu'il s'y engouffrait, un rugissement fit vibrer tout le système stellaire.
 
 Le bourgeon de lotus surgit soudainement au-dessus de la troisième planète en pleine décomposition et s'ouvrit, révélant le Daoïste aux Sept Couleurs assis à l'intérieur!
 
@@ -84,7 +84,7 @@ Alors que le Daoïste pointait son doigt, les cinq pétales restants de la plate
 
 Le Daoïste aux Sept Couleurs bondit dans les airs et poursuivit Wang Lin, suivant la course des cinq couleurs.
 
-À ce moment-là, le corps de Wang Lin fusionnait déjà avec le vortex et il était sur le point de s'échapper. Cependant, l'attaque du Daoïste avait combiné sa puissance à l'effondrement de la troisième planète. Les cinq pétales se refermèrent, et un sentiment de vie ou de mort envahit le cœur de Wang Lin.
+À ce moment-là, le corps de Wang Lin fusionnait déjà avec le vortex et il était sur le point de s'échapper. Cependant, l'attaque du Daoïste avait combiné la force de sa culture de la Tribulation du Vide à l'effondrement de la troisième planète. Les cinq pétales se refermèrent, et un sentiment de vie ou de mort envahit le cœur de Wang Lin.
 
 Pourtant, puisque Wang Lin avait osé rester pour lancer cet assaut, il était évidemment préparé. Bien qu'il agisse parfois par impulsion, chaque mouvement qu'il posait avait un dessein. Alors que les pétales se refermaient sur lui, sa main gauche tendit vers le vide et une mer de feu l'enveloppa. Elle prit la forme d'un immense parapluie flamboyant.
 

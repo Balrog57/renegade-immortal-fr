@@ -44,7 +44,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Senior Maître Nan Yunzi fut gravement blessé par le Souverain et s'est retiré en culture fermée. À ce jour, il ne montre aucun signe de sortie!
 
-« La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les cultivateurs de la troisième étape de la Rivière Invoquée pour les ralentir, nous ne parvinons pas à stopper l'avancée de l'armée du Royaume Extérieur!
+« La seconde bataille affecta les quatre grands systèmes stellaires. Au moment le plus critique, l'Empereur Céleste Qing Lin quitta le Royaume Céleste de la Pluie pour mener les combats. Même avec les cultivateurs de la troisième étape de la Rivière Invoquée pour les ralentir, nous ne parvenions pas à stopper l'avancée de l'armée du Royaume Extérieur!
 
 « Le Royaume Extérieur possède bien plus de cultivateurs de la troisième étape que notre Royaume Intérieur. En fin de compte, l'Empereur Céleste Qing Lin utilisa un ancien sort céleste invoquant une lumière antique pour sceller la connexion entre les Royaumes aux Sept Couleurs et le Royaume Extérieur. Cela permit de sceller les passages pour une courte période, nous permettant de survivre de justesse à la seconde bataille!
 
@@ -56,7 +56,7 @@ Tout cela se produisit en un éclair. Pour Wang Lin, tuer ces deux petits cultiv
 
 « Nous sommes maintenant dans la neuvième année suivant la troisième bataille. Selon les calculs de Maître Hong Shan, il ne faudra pas longtemps avant que le Royaume Extérieur ne brise la lumière antique. Ils entreront alors pour unir leurs forces aux deux Royaumes aux Sept Couleurs restants. Le Royaume Intérieur est en péril! »
 
-Maître Yan Leizi expliqua rapidement à Wang Lin tout ce qui s'était passé. Il avait été gravement blessé lors de la troisième bataille et son niveau de culture avait chuté. Autrement, il n'aurait pas été traqué par deux cultivateurs du Nirvana Shatter.
+Maître Yan Leizi expliqua rapidement à Wang Lin tout ce qui s'était passé. Il avait été gravement blessé lors de la troisième bataille et son niveau de culture avait chuté. Autrement, il n'aurait pas été traqué par deux cultivateurs du Briseur du Nirvana.
 
 Après avoir exposé ces faits avec ferveur, il cracha une bouchée de sang et parut extrêmement sinistre. Ses blessures se rouvrirent et il semblait toucher à sa fin.
 
@@ -74,7 +74,7 @@ Wang Lin médita silencieusement, une lueur de froideur dans les yeux. Il ne s'�
 
 « Pourquoi es-tu ici? » L'intention meurtrière de Wang Lin fit s'échapper inconsciemment la lumière dorée. Lorsqu'elle toucha Maître Yan Leizi, il se sentit comme une fourmi face à un dieu; Wang Lin était pour lui comme les cieux eux-mêmes. Il avait depuis longtemps pressenti que Wang Lin était devenu encore plus puissant qu'auparavant.
 
-« Le Seigneur du Royaume Scellé a dit que vous viendriez... Je... je ne croyais pas que vous étiez mort, et j'ai deviné que vous surgiriez ici dès votre réapparition. Alors, je suis venu ici de nombreuses fois au fil des ans...
+« Autrefois, Seigneur du Royaume Scellé, vous aviez dit que vous viendriez ici... Je... je ne croyais pas que vous étiez mort, et j'ai deviné que vous surgiriez ici dès votre réapparition. Alors, je suis venu ici de nombreuses fois au fil des ans...
 
 « De plus, j'ai reçu l'ordre de Maître Hong Shan d'observer ce lieu. Si quoi que ce soit arrive au Royaume aux Sept Couleurs, je dois le signaler. » Maître Yan Leizi se montrait extrêmement respectueux et n'osait croiser le regard de Wang Lin. Cette lumière dorée lui inspirait une crainte révérencielle.
 

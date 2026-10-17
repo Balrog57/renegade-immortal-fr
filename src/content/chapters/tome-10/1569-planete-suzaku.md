@@ -88,7 +88,7 @@ Après ses paroles, mis à part le vieillard, l'expression des deux jeunes homme
 
 Les trois disciples lancèrent des regards venimeux au fou. Les deux jeunes hommes, en particulier, étaient furieux.
 
-Le fou pinça les lèvres, affichant un air de grievance tout en marmonnant: « Si vous ne voulez pas le dire, tant pis. Pourquoi me regarder ainsi... Ce Roi demandait simplement leurs noms. »
+Le fou pinça les lèvres, affichant une mine vexée tout en marmonnant: « Si vous ne voulez pas le dire, tant pis. Pourquoi me regarder ainsi... Ce Roi demandait simplement leurs noms. »
 
 L'expression de Wang Lin resta neutre tandis qu'il tapotait l'épaule du fou. Il ne chercha pas à contourner la planète Suzaku, mais entra directement par la formation.
 

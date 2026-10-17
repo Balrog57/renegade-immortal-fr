@@ -42,7 +42,7 @@ Chaque goutte de rosée était un monde à part entière!
 
 Les yeux de Wang Lin s'illuminèrent. Un secret concernant la grotte était dissimulé au sein de la troisième âme. C'était un secret dont les étrangers ignoraient tout. Que l'on oublie le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan qui n'avaient aucun souvenir, même les quatre généraux et les concubines ne le savaient pas. C'était l'atout ultime que le Souverain Céleste aux Sept Couleurs avait laissé dans le monde de la grotte!
 
-Si Lian Daofei n'était pas apparu si soudainement et n'avait pas été déjà gravement blessé, le Souverain Céleste aux Sept Couleurs n'aurait jamais eu besoin d'invoquer le Dao Céleste pour dévorer Lian Daofei. Le résultat de cette guerre aurait été totalement différent.
+Si Lian Daofei n'était pas apparu si soudainement, alors que le Souverain Céleste aux Sept Couleurs était grièvement blessé et en retraite, celui-ci aurait eu le temps d'activer cet atout et n'aurait jamais eu besoin d'invoquer le Dao Céleste pour dévorer Lian Daofei. Le résultat de cette guerre aurait été totalement différent.
 
 C'est grâce à ce secret que Wang Lin avait l'assurance de commencer sa chasse ici! Et pour utiliser cet atout, il lui fallait éliminer suffisamment de cibles sur place!
 
@@ -74,7 +74,7 @@ La compréhension de Wang Lin restait incomplète car sa fusion avec la troisiè
 
 Sa silhouette parut parmi les neuf planètes du ciel. Il se déplaça rapidement entre elles comme s'il cherchait quelque chose, mais sans succès immédiat.
 
-Le temps passa lentement. Wang Lin était entré il y a une demi-heure, et avec le temps qu'il avait passé à placer ses restrictions, le délai touchait à sa fin. Debout sur la neuvième planète, Wang Lin fronça les sourcils.
+Le temps passa lentement. Wang Lin était entré une demi-heure avant les autres, et après le temps qu'il avait passé à placer ses restrictions, il ne lui en restait plus beaucoup. Debout sur la neuvième planète, Wang Lin fronça les sourcils.
 
 « La troisième âme n'a aucun souvenir de l'établissement des lois. Il semble que le Souverain Céleste aux Sept Couleurs n'ait eu qu'à déployer son sens divin pour modifier les lois du troisième type de monde... » Un instant plus tard, le sens divin de Wang Lin balaya la zone à plusieurs reprises. Soudain, ses yeux se plissèrent.
 
@@ -84,7 +84,7 @@ Wang Lin disparut brusquement. Lorsqu'il réapparut sur la cinquième planète, 
 
 « Serait-ce ici... » Son sens divin se verrouilla sur la montagne. Pourtant, malgré ses vérifications, celle-ci semblait parfaitement ordinaire.
 
-« Je le saurai bien assez tôt! Je suis le premier venu dans ce monde, et j'établis la loi pour supprimer toutes les lignées célestes! » Wang Lin projeta un message vers la montagne. À l'instant où il fut transmis, le monde gronda et la planète trembla violemment, comme si elle allait s'effondrer.
+« Je le saurai bien assez tôt! Je suis le premier venu dans ce monde, et j'établis la loi qui interdit toutes les lignées célestes! » Wang Lin projeta un message vers la montagne. À l'instant où il fut transmis, le monde gronda et la planète trembla violemment, comme si elle allait s'effondrer.
 
 Une loi cachée sembla vouloir se manifester, mais juste au moment où elle allait prendre forme, un fracas retentit et tout redevint calme. Wang Lin resta en suspension, le front plissé.
 

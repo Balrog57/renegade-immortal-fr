@@ -68,7 +68,7 @@ Il sourit et agita sa main droite, libérant son aura de culture. Le tatouage de
 
 « Sortilège Dao, Fusion! Que tout dans ce monde — sorts, trésors, puissance, lois — fusionne pour moi! » Le sortilège de Dao du Maître du Dao Rêve Bleu était extrêmement puissant et s'avérait d'une aide précieuse pour Wang Lin.
 
-À cet instant, grâce au feu et au sortilège, les 10 000 pilules commençaient à être assimilées. La température des flammes ne cessait de croître.
+À cet instant, grâce au feu et au sortilège, les 10 000 pilules commençaient à fusionner peu à peu. La température des flammes ne cessait de croître.
 
 Une pilule dorée, de la taille d'un clou, apparut dans l'océan de feu! Finalement, Wang Lin tendit la main droite et toute la chaleur fut aspirée par la pilule.
 

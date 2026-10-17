@@ -90,7 +90,7 @@ Après quelques respirations, ses yeux se plissèrent soudainement!
 
 Simultanément, Wang Lin forma un sceau. Ses essences de Vie et de Mort, de Vrai et de Faux, ainsi que son essence Karmique, s'envolèrent toutes. Elles fusionnèrent dans le vortex, l'agrandissant encore davantage.
 
-Enfin, l'essence de Massacre apparut. Dès qu'elle pénétra dans la mêlée, le vortex gronda et changea de forme sous la volonté de Wang Lin. Il finit par prendre la forme d'une corne!
+Enfin, l'essence de Massacre apparut. Dès qu'elle pénétra dans le vortex, celui-ci gronda et changea de forme sous la volonté de Wang Lin. Il finit par prendre la forme d'une corne!
 
 Wang Lin avait utilisé ses six essences pour façonner cette corne capable d'amplifier sa voix. Les essences tournoyant à l'intérieur pourraient multiplier le son produit par un nombre incalculable de fois!
 

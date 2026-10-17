@@ -24,9 +24,9 @@ Il était fort probable que sa propre chair soit consumée avant même qu'il ne 
 
 Le regard de Wang Lin devint progressivement plus froid alors qu'il fixait l'homme. Une pointe d'intention meurtrière brillait dans ses yeux.
 
-Le cultivateur obèse était couvert de sueur et son cœur battait la chamade. Il avait l'impression qu'un feu brûlait à l'intérieur de son corps. La bouche sèche, il agita précipitamment la main droite pour sortir une balance. Il la tendit rapidement en disant amèrement: « Ce petit a effectivement dit cela, et j'espère que le Compagnon Cultivateur pourra me pardonner. Voici ce que j'ai obtenu sur la plateforme; j'espère que le Compagnon Cultivateur l'acceptera comme excuse. »
+Le cultivateur obèse était couvert de sueur et son cœur battait la chamade. Il avait l'impression qu'un feu brûlait à l'intérieur de son corps. La bouche sèche, il agita précipitamment la main droite pour sortir une écaille grande comme une paume. Il la tendit rapidement en disant amèrement: « Ce petit a effectivement dit cela, et j'espère que le Compagnon Cultivateur pourra me pardonner. Voici ce que j'ai obtenu sur la plateforme; j'espère que le Compagnon Cultivateur l'acceptera comme excuse. »
 
-La main droite de Wang Lin s'étendit et la balance atterrit dans sa paume. Il l'examina un instant avant de la repousser. Puis, son regard quitta le cultivateur obèse pour se poser sur une autre personne.
+La main droite de Wang Lin s'étendit et l'écaille atterrit dans sa paume. Il l'examina un instant avant de la repousser. Puis, son regard quitta le cultivateur obèse pour se poser sur une autre personne.
 
 « Vous avez dit que si je tuais une bête supplémentaire, je mourrais ici. Je vais vous donner cette chance! » Les paroles de Wang Lin étaient glaciales.
 

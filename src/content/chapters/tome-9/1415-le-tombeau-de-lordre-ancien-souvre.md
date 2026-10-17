@@ -8,9 +8,9 @@ slug: le-tombeau-de-lordre-ancien-souvre
 ---
 Au moment où Wang Lin ouvrit les yeux, le feu aux neuf couleurs dans son œil gauche devint éthéré et tourbillonna rapidement. Cela lui conférait un aspect extrêmement étrange!
 
-Dès qu'il ouvrit les yeux, un Feu Éthéré jaillit de son corps. Ce Feu Éthéré était assourdissant et se propagea dans toutes les directions.
+Dès qu'il ouvrit les yeux, un Feu Éthéré jaillit de son corps. Ce Feu Éthéré bouleversait le ciel et la terre et se propagea dans toutes les directions.
 
-Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle et commencèrent à flotter. Il retira sa main du premier bâton d'encens et observa les alentours!
+Les cheveux de Wang Lin s'agitèrent sans qu'aucun vent ne souffle et commencèrent à flotter, et ses vêtements se mirent à danser. Il retira sa main du premier bâton d'encens et observa les alentours!
 
 La Grande Maîtresse Yun Luo fixait toujours Wang Lin, et lorsqu'il ouvrit les yeux, elle vit clairement son œil gauche. Ses yeux s'écarquillèrent, ses pupilles se rétractèrent et une peur monstrueuse envahit son regard.
 
@@ -20,11 +20,11 @@ Son corps trembla et elle commença à reculer. C'était comme si des millions d
 
 L'œil gauche de cette silhouette floue abritait un vortex aux neuf couleurs!
 
-Le Maître Simo fixa Wang Lin et réfléchit silencieusement.
+Le Maître Simo fixa Wang Lin sans un mot.
 
 Le Maître du Dao Miao Yin regarda également Wang Lin. Une lueur étrange brillait dans ses yeux et il esquissa un rictus presque imperceptible.
 
-Le vieil Oiseau Vermillon se leva dans un rire, le cœur léger. Cependant, au vu de tout ce qui venait de se passer, Wang Lin l'avait une fois de plus stupéfié, en plus de posséder les cinq essences!
+Le vieil Oiseau Vermillon se leva dans un rire, le cœur léger. Cependant, au vu de tout ce qui venait de se passer, Wang Lin, en plus de l'affaire des cinq essences, lui avait une fois de plus fait une agréable surprise!
 
 Le vieil Oiseau Vermillon rit de bon cœur: « Tu as brûlé le feu karmique aux neuf couleurs pour déclencher le quatrième éveil et entrer dans le royaume du Feu Éthéré. Bien, très bien! »
 
@@ -44,15 +44,15 @@ Le vieil Oiseau Vermillon sourit de plus belle, puis d'un geste de la main, il p
 
 Le dragon était mourant, ayant perdu la quasi-totalité de son sang. En entendant cela, ses yeux s'illuminèrent et il poussa un rugissement tout en luttant pour s'envoler loin d'ici. Il disparut à l'horizon.
 
-« L'épreuve n'est pas terminée. Quelqu'un vous attend au dernier bâton d'encens céleste. Allez-y! » Le vieil Oiseau Vermillon lança un regard chargé de sens à Wang Lin.
+« L'épreuve n'est pas terminée. Quelqu'un t'attend au dernier bâton d'encens céleste. Vas-y! » Le vieil Oiseau Vermillon lança un regard chargé de sens à Wang Lin.
 
-« Le bâton d'encens humain s'est éteint et le bâton d'encens terrestre s'est brisé, mais le bâton d'encens céleste ne s'éteindra ni ne se brisera. Ce bâton est gardé par l'Ancêtre de la première génération lui-même, et ce qui y est testé est le potentiel! Plus vous pourrez le maintenir longtemps, plus votre potentiel sera grand... Ce vieil homme a tenu 12 respirations et la quatrième génération en a tenu 14... Je veux savoir combien de temps tu tiendras! Si tu parviens à m'étonner à nouveau, ce vieil homme t'offrira la restriction contenue dans le corps de cet idiot de dragon. Avec elle, tu pourras facilement retrouver l'endroit où il s'est enfui. »
+« Le bâton d'encens humain s'est éteint et le bâton d'encens terrestre s'est brisé, mais le bâton d'encens céleste ne s'éteindra ni ne se brisera. Ce bâton est gardé par l'Ancêtre de la première génération lui-même, et ce qui y est testé est le potentiel! Plus vous pourrez le maintenir longtemps, plus votre potentiel sera grand... Ce vieil homme a tenu 12 respirations et la quatrième génération en a tenu 14... Je veux savoir combien de temps tu tiendras! Si tu parviens à m'étonner à nouveau, ce vieil homme t'offrira la méthode de la restriction placée dans le corps de cet idiot de dragon. Avec cette restriction, tu pourras facilement le retrouver une fois qu'il se sera échappé des Terres Déchues. »
 
-« Avec le dragon comme garde, ce vieil homme sera serein une fois que tu seras parti. » Les paroles du vieil Oiseau Vermillon résonnèrent dans l'esprit de Wang Lin. Lui seul pouvait les entendre.
+« Avec ce dragon pour te protéger, ce vieil homme sera serein quand tu quitteras cet endroit. » Les paroles du vieil Oiseau Vermillon résonnèrent dans l'esprit de Wang Lin. Lui seul pouvait les entendre.
 
 Wang Lin acquiesça et regarda dans la direction où le dragon s'était envolé. Le dragon, qui venait de quitter la Planète du Grand Empereur, était transporté d'excitation.
 
-« Libre, enfin libre! Roar! Ce vieux dragon est enfin libéré des griffes du démon. Après tant d'années, tant d'années! » Des larmes perlaient dans les yeux du dragon. Il ignorait qu'il avait été trompé par l'Oiseau Vermillon de la première génération et qu'il venait simplement d'être offert par celui de la deuxième... Wang Lin détourna le regard. Il ne regarda plus la foule, mais fixa le bâton d'encens céleste. Après une courte réflexion, il prit une profonde inspiration et posa sa main sur l'encens.
+« Libre, enfin libre! Grooar! Ce vieux dragon est enfin libéré des griffes du démon. Après tant d'années, tant d'années! » Des larmes perlaient dans les yeux du dragon. Il ignorait qu'il avait été trompé par l'Oiseau Vermillon de la première génération et puis directement offert par celui de la deuxième... Wang Lin détourna le regard. Il ne regarda plus la foule, mais fixa le bâton d'encens céleste. Après une courte réflexion, il prit une profonde inspiration et posa sa main sur l'encens.
 
 « Ancêtre Oiseau Vermillon de la première génération... L'Ancêtre du Clan de l'Oiseau Vermillon... L'un des quatre grands généraux sous les ordres du Souverain Céleste Ancien... Un tel être doit connaître de nombreux secrets... »
 
@@ -60,7 +60,7 @@ Wang Lin acquiesça et regarda dans la direction où le dragon s'était envolé.
 
 « Puisque le Clan de l'Oiseau Vermillon a perduré jusqu'à aujourd'hui, je présume que les Clans du Dragon Azure, de la Tortue Noire et du Tigre Blanc sont également vivants. Où sont-ils... »
 
-« Le Souverain Céleste Ancien est-il la même personne que l'Empereur Céleste Ancien, le Seigneur du Royaume Scellé, mentionné? Si ce n'est pas le cas, quelle est leur relation... »
+« Le Souverain Céleste Ancien est-il la même personne que l'Empereur Céleste Ancien mentionné par le Seigneur du Royaume Scellé? Si ce n'est pas le cas, quelle est leur relation... »
 
 Tout en réfléchissant, Wang Lin ferma les yeux.
 
@@ -72,7 +72,7 @@ Ses yeux étaient clos et un feu aux neuf couleurs brûlait entre ses sourcils.
 
 La main droite de la statue s'avança et sa paume s'ouvrit. La silhouette de Wang Lin fut enveloppée par un éclat de lumière et il apparut au creux de la paume.
 
-Dans le Système Stellaire Antique, au sein d'un domaine stellaire paisible, des ondulations se firent entendre. Ces ondes ressemblaient à des vagues et se propageaient lentement dans toutes les directions. Peu après, un rayon de lumière fantomatique traversa l'espace.
+Dans le Système Stellaire Antique, au sein d'un domaine stellaire paisible, des ondulations se firent entendre. Ces ondes ressemblaient à des vagues et se propageaient lentement dans toutes les directions. Peu avant, un rayon de lumière fantomatique traversa l'espace.
 
 Avant que cette lumière ne passe, il y avait là une planète abandonnée. Aucun être vivant n'y résidait et elle ne possédait aucune énergie spirituelle; elle était considérée comme une planète stérile.
 

@@ -8,7 +8,7 @@ slug: impossible-de-se-tromper
 ---
 Le Souverain apparut à un instant précis. Il surgit au moment même où Wang Lin décochait sa deuxième flèche. Le Souverain avait déjà le sentiment qu'il devait tuer Wang Lin!
 
-Compte tenu de son niveau de culture, il était déjà entré dans le stade du Tribulant Arcanique; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave, même les êtres les plus puissants devaient lui témoigner un certain respect.
+Compte tenu de son niveau de culture, il était déjà entré dans le stade de la Tribulation Arcane; ainsi, hormis quelques individus exceptionnels, personne n'était son adversaire! Quant à son statut, bien qu'il ne fût qu'un esclave, même les êtres les plus puissants devaient lui témoigner un certain respect.
 
 Dans ce monde caverneux, il était le chef des Cinq Maîtres du Royaume Céleste Antique. Il avait joui d'un rang prestigieux durant d'innombrables années et était vénéré comme un dieu par une multitude de cultivateurs. Il était habitué à dominer les autres.
 
@@ -40,7 +40,7 @@ Cet incident passait encore pour un accident. Bien que le Souverain se sentît f
 
 Pourtant, cela ne s'arrêta pas là. Il y eut une troisième rencontre entre lui et Wang Lin. Il avait chargé son disciple d'apporter l'Arc Li Guang dans le Royaume Intérieur pour attirer le Vieux Fantôme Zhan. Les deux combattirent, mais l'arc finit entre les mains de Wang Lin. Ce qui le plongea dans l'amertume fut que Wang Lin réussit, par la suite, à mettre la main sur la flèche.
 
-Pourtant, même à ce moment-là, le Souverain ne se souciait guère de Wang Lin. Il pensait toujours que ces incidents n'étaient que des coïncidences. Même si Wang Lin possédait l'arc et la flèche, il ne pourrait pas les utiliser en raison de sa lignée. Tant que le Souverain voudrait tuer Wang Lin, ce serait aussi simple que de retourner sa paume!
+Pourtant, même à ce moment-là, le Souverain ne se souciait guère de Wang Lin. Il pensait toujours que ces incidents n'étaient que des coïncidences. Même si Wang Lin possédait l'arc et la flèche, il ne pourrait pas en déployer toute la puissance en raison de sa lignée. Tant que le Souverain voudrait tuer Wang Lin, ce serait aussi simple que de retourner sa paume!
 
 Puis vint la quatrième rencontre, où lui et de nombreux autres cultivateurs du troisième stade du Royaume Extérieur utilisèrent « Pêcher la Lune dans le Puits » pour attirer Wang Lin dans un monde illusoire afin de l'éliminer!
 
@@ -58,7 +58,7 @@ Wang Lin était comme une épine dans le cœur du Souverain. Chaque fois qu'il p
 
 « Cette fois, il est impossible de se tromper! » Le Souverain apparut à 100 000 pieds de Wang Lin. Il fixa ce dernier, agita ses manches et s'élança vers lui.
 
-Sa culture du Tribulant Arcanique se déploya, faisant trembler l'espace lui-même sous l'effet d'une ondulation invisible. Wang Lin resta calme, mais fut contraint de reculer.
+Sa culture de la Tribulation Arcane se déploya, faisant trembler l'espace lui-même sous l'effet d'une ondulation invisible. Wang Lin resta calme, mais fut contraint de reculer.
 
 Le Souverain n'était pas un adversaire que Wang Lin pouvait affronter de front. Tandis que la puissance du Souverain éclatait, Wang Lin ressemblait à une feuille solitaire bravant la fureur de l'océan. Il continua sa retraite.
 
@@ -74,9 +74,9 @@ Il aurait été très difficile pour quiconque d'autre de le calculer avec une t
 
 Les yeux du Souverain étaient injectés de sang derrière son intention meurtrière. Alors qu'il avançait, le monde gronda, les étoiles vacillèrent et des ondes infinies se propagèrent dans toutes les directions.
 
-« Je ne peux pas me tromper, il mourra certainement. Si je ne parviens pas à l'éliminer, ce vieil homme changera son nom pour porter celui de sa famille! » La volonté du Souverain de tuer Wang Lin avait atteint un paroxysme, le rendant presque fou. À cet instant, il surgit derrière Wang Lin et frappa violemment de la paume.
+« Je ne peux pas me tromper, il mourra certainement. Si je ne parviens pas à l'éliminer, ce vieil homme changera son nom pour porter celui de sa famille! » La volonté du Souverain de tuer Wang Lin avait atteint un paroxysme, le rendant presque fou. À cet instant, il surgit devant Wang Lin et frappa violemment de la paume.
 
-« Meurs, petit insolent! » Il ne prit même pas la peine de parler à Wang Lin. Dès qu'il attaqua, il utilisa son sort le plus puissant. En réalité, malgré sa certitude, il restait vaguement inquiet. Il craignait que s'il engageait la conversation avec Wang Lin, un accident ne puisse réellement se produire.
+« Va mourir pour ce vieil homme! » Il ne prit même pas la peine de parler à Wang Lin. Dès qu'il attaqua, il utilisa son sort le plus puissant. En réalité, malgré sa certitude, il restait vaguement inquiet. Il craignait que s'il engageait la conversation avec Wang Lin, un accident ne puisse réellement se produire.
 
 De plus, cette frappe de la paume n'était qu'un moyen de tester les capacités de Wang Lin. Après tout, le Souverain avait déjà subi les « accidents » de Wang Lin à plusieurs reprises...
 
@@ -86,9 +86,9 @@ Puis, elle fonça sur Wang Lin dans un grondement sourd.
 
 Le visage de Wang Lin était pâle, mais ses yeux ne montraient aucune alarme. L'apparition du Souverain n'était pas une surprise pour lui. En fait, si le Souverain n'était pas apparu, Wang Lin aurait dû réfléchir plus prudemment.
 
-Alors que l'empreinte de la paume se refermait sur lui, Wang Lin leva la main droite. Les étoiles divines anciennes entre ses sourcils, ainsi que celles dans ses yeux gauche et droit, brillèrent toutes intensément. Une puissance antique s'accumula dans son corps pour se condenser sur son index droit!
+Alors que l'empreinte de la paume se refermait sur lui, Wang Lin leva la main droite. Les étoiles divines anciennes entre ses sourcils, ainsi que les étoiles démoniaques de ses yeux gauche et droit, brillèrent toutes intensément. Une puissance antique s'accumula dans son corps pour se condenser sur son index droit!
 
-S'inspirant du Corps Céleste Immortel, ce sort était une création propre à Wang Lin: le Doigt de l'Immortel Antique!
+S'inspirant du Corps Céleste Immortel, ce sort était une création propre à Wang Lin: l'Ancien Doigt Immortel!
 
 Au moment où il pointa vers l'avant, une explosion de lumière verte jaillit du corps de Wang Lin. C'était le Bouclier Azure. Puis, une immense ombre lumineuse apparut derrière lui: le Bouclier d'Ombre et de Lumière!
 

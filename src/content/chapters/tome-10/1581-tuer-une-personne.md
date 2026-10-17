@@ -18,7 +18,7 @@ Bien qu'ils ne fussent ici que sous forme de projections et que leurs corps orig
 
 « Le précédent Seigneur du Royaume Scellé était extrêmement difficile à tuer. Je ne m'attendais pas à ce que cette génération soit tout aussi redoutable! » La vieille femme en noir prit une profonde inspiration et fixa Wang Lin avec une puissante intention meurtrière, avant de battre en retraite rapidement.
 
-L'Ombrelle Brûlante du Royaume était un sort qui ne devrait pas exister dans ce monde. Wang Lin ne le maîtrisait pas encore totalement, la quantité de vitalité consommée était donc prodigieuse.
+L'Ombrelle Brûlante du Royaume était un sort qui n'appartenait pas à ce royaume. Wang Lin ne le maîtrisait pas encore totalement, la quantité de vitalité consommée était donc prodigieuse.
 
 La mer de feu émanant du parapluie puisait dans sa force vitale, faisant vieillir son visage à vue d'œil. Cependant, la froideur dans ses yeux ne faiblit pas; elle s'intensifia au contraire.
 
@@ -38,7 +38,7 @@ Dans ce monde semblable à un puits, alors que l'aura glaciale se répandait, de
 
 L'immense masse de glace émit des filaments d'énergie froide qui affrontèrent la mer de feu, faisant trembler l'univers entier.
 
-Un motif de flocon de neige de cent pieds de large apparut dans le ciel, là où se trouvait l'ancien parapluie. Le firmament gronda, puis fut totalement figé!
+Un motif de flocon de neige de plusieurs dizaines de milliers de pieds de large apparut dans le ciel, là où se trouvait l'ancien parapluie. Le firmament gronda, puis fut totalement figé!
 
 Le ciel était gelé!
 
@@ -52,7 +52,7 @@ Ces flocons blancs s'assemblèrent pour former une tempête autour de l'artifice
 
 Des craquements résonnèrent et les flammes furent pétrifiées. Le parapluie lui-même devint une sculpture de glace!
 
-D'innombrables stalactites se formèrent à partir de l'âme fondue sous le parapluie, diffusant une lumière froide et infinie. Des colonnes de glace montaient de la terre et descendaient du ciel pour rejoindre l'objet gelé. C'était un spectacle saisissant.
+D'innombrables stalactites se formèrent à partir des flocons fondus sous le parapluie, diffusant une lumière froide et infinie. Des colonnes de glace montaient de la terre et descendaient du ciel pour rejoindre l'objet gelé. C'était un spectacle saisissant.
 
 L'homme poussa un grand soupir et les deux autres fugitifs s'arrêtèrent également. Pourtant, à ce moment précis, les yeux de Wang Lin s'illuminèrent; il pointa le parapluie gelé du doigt. Après avoir sacrifié une part colossale de sa vitalité, des grondements sourds émanèrent de l'objet.
 
@@ -90,7 +90,7 @@ Dans la salle du Système Stellaire Antique, le vieil homme en robe grise était
 
 Dans le monde du puits, le dernier souffle de feu de l'ancien parapluie balaya l'homme en blanc. Celui-ci fut enveloppé d'une masse de glace qui, sous l'assaut des flammes, fondait et se reformait sans cesse autour de lui.
 
-Il fut projeté en arrière et s'arrêta à plusieurs centaines de pieds de là. Tandis que les couches de glace se reconstituaient, elles formèrent un sceau emprisonnant le feu.
+Il fut projeté en arrière et s'arrêta à plusieurs dizaines de milliers de pieds de là. Tandis que les couches de glace se reconstituaient, elles formèrent un sceau emprisonnant le feu.
 
 Le visage de Wang Lin avait considérablement vieilli. Il avait sacrifié trop de vitalité pour utiliser l'Ombrelle Brûlante du Royaume; sans cela, une telle puissance n'aurait pas été possible. La force de rejet interne faisait trembler tout son corps.
 
@@ -102,7 +102,7 @@ Cependant, alors qu'il s'approchait de l'homme en blanc, ses pupilles se rétrac
 
 C'était une femme à la silhouette floue, mais dont le regard dégageait un froid glacial. Elle leva sa main semblable à du jade, étira ses doigts et pressa Wang Lin.
 
-« Dao des Cinq Enterrements Célestes! Premièrement, les reins. Reins, pourrissez et déchirez! » La voix de la femme était douce, mais tandis qu'elle parlait, son auriculaire se plia pour toucher sa paume.
+« Dao Immortel des Cinq Organes! Premièrement, les reins. Les reins déclinent et sont blessés! » La voix de la femme était douce, mais tandis qu'elle parlait, son auriculaire se plia pour toucher sa paume.
 
 Le corps de Wang Lin trembla. Il sentit une force étrange envelopper le monde. À mesure que cette force se propageait, ses reins furent frappés par une douleur indescriptible!
 

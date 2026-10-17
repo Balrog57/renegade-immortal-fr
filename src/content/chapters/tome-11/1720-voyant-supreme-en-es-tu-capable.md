@@ -20,7 +20,7 @@ La bataille contre l'Omniscient exigerait souvent de la ruse!
 
 « En apparence, il s'agirait d'une possession... Cependant, connaissant la fourberie de l'Omniscient, il pourrait avoir une tout autre intention! » Les yeux de Wang Lin s'illuminèrent tandis qu'il contemplait le monde devant lui.
 
-« L'Omniscient a réussi sans effort à copier toutes les essences que j'ai mis des millénaires à obtenir au prix de multiples vies ou de mort. Comment cela peut-il être si facile? »
+« L'Omniscient a réussi sans effort à copier toutes les essences que j'ai mis plus d'un millier d'années à obtenir, après d'innombrables épreuves entre la vie et la mort. Comment cela peut-il être si facile? »
 
 « Je ne crois pas qu'il puisse parfaitement s'approprier toutes mes essences, c'est impossible! » Wang Lin chargea alors vers l'aura de l'Omniscient!
 
@@ -38,7 +38,7 @@ Le feu, le tonnerre et le karma. Les collisions de ces essences rejouaient dans 
 
 « Aucun indice... » Wang Lin fronça les sourcils et s'arrêta brusquement. Ses yeux brillèrent intensément alors qu'il se plongeait dans ses pensées. Un instant plus tard, son regard devint résolu et il disparut en un éclair.
 
-Dans une autre partie de la Rivière Invoquée, parmi les décombres, l'Omniscient était assis sur un météore, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
+Dans une autre partie de la Rivière Invoquée, parmi les décombres, l'Omniscient était assis en tailleur sur un fragment de roche, le regard porté vers l'avant. Il arborait toujours ce sourire énigmatique.
 
 « Cette fois, il est arrivé un peu tard... Disciple, comparé à ton Maître, tu es encore bien jeune. »
 
@@ -56,7 +56,7 @@ Les yeux de l'Omniscient se plissèrent. Le comportement de Wang Lin éveillait 
 
 « Tu es certes digne d'être mon disciple pour avoir su retrouver ton calme si vite. Puisque tu demandes des essences à ton Maître, quel mal y aurait-il à t'en donner une... » L'Omniscient leva la main droite et pointa l'espace entre ses sourcils. Lorsqu'il retira son doigt, une goutte d'eau cristalline apparut.
 
-« Voici l'essence de l'eau que ton Maître a obtenue il y a fort longtemps auprès d'un être puissant. Ce n'est qu'une trace, trop ténue pour aider quiconque à franchir la troisième étape. Je la possède depuis longtemps. Aujourd'hui, je te l'offre. Si tu parviens à la comprendre pleinement et à faire naître l'essence de l'eau, alors ton Maître te remerciera. » Après avoir parlé, l'Omniscient agita la main droite, et la goutte d'eau vola vers Wang Lin pour flotter devant lui.
+« Voici l'essence de l'eau que ton Maître a obtenue il y a fort longtemps sur quelqu'un d'autre. Ce n'est qu'une trace, trop ténue pour aider quiconque à franchir la troisième étape. Je la possède depuis longtemps. Aujourd'hui, je te l'offre. Si tu parviens à la comprendre pleinement et à faire naître l'essence de l'eau, alors ton Maître te remerciera. » Après avoir parlé, l'Omniscient agita la main droite, et la goutte d'eau vola vers Wang Lin pour flotter devant son front.
 
 « Encore? » Wang Lin regarda la goutte d'eau et sourit.
 
@@ -76,7 +76,7 @@ L'expression de l'Omniscient devint immédiatement sombre. L'action de Wang Lin 
 
 Wang Lin sourit calmement et dit d'une voix posée: « Omniscient, je te le demande: même si tu peux voler mes essences et mes souvenirs, peux-tu sceller mon lignage du Dao Antique? »
 
-« Si tu parviens à manifester ne serait-ce qu'une once de la puissance de ton lignage, alors je me rendrai immédiatement et je serai à ta merci. Mais que pourrais-tu faire ensuite? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
+« Si tu parviens à manifester ne serait-ce qu'un seul sort divin de mon lignage du Dao Antique, alors je me rendrai immédiatement et je serai à ta merci. Mais que pourrais-tu faire ensuite? En es-tu capable? » Wang Lin afficha un regard de mépris souverain.
 
 « Oses-tu? »
 

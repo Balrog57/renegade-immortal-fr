@@ -36,15 +36,15 @@ Wang Lin regarda le Fruit du Dao et fronça les sourcils. La silhouette aux sept
 
 Rien de tout cela ne pouvait être fait sans raison; il devait y avoir un piège!
 
-Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques pouces entre les sourcils de Qing Shui!
+Wang Lin réfléchit silencieusement avant de détourner son regard du Fruit du Dao. Il fixa la huitième épine, située à quelques pouces du sommet du crâne de Qing Shui!
 
 Wang Lin percevait les deux autres épines, mais elles ne seraient pas simples à retirer.
 
 Prenant une profonde inspiration, la main droite de Wang Lin s'éleva lentement vers la tête de Qing Shui. Cette fois, il agissait avec une lenteur et un sérieux bien plus grands que lors de ses actions précédentes.
 
-Cette huitième épine se trouvait au niveau de la tête, au carrefour de la vie et de la mort. S'il avait été parfaitement centré entre les sourcils de Qing Shui, cela aurait eu du sens, mais il était décalé de quelques pouces, ce qui troublait Wang Lin.
+Cette huitième épine se trouvait au niveau de la tête, au carrefour de la vie et de la mort. S'il avait été planté exactement au centre du sommet du crâne de Qing Shui, cela aurait eu du sens, mais il était décalé de quelques pouces, ce qui troublait Wang Lin.
 
-« Cette huitième épine n'est pas une simple épine, mais quelque chose placé là pour briser son cycle de réincarnation... » La silhouette aux sept couleurs semblait sourire en observant la main de Wang Lin se refermer lentement sur l'objet.
+« Cette huitième épine n'est pas une simple épine, mais quelque chose placé là pour ouvrir sa réincarnation... » La silhouette aux sept couleurs semblait sourire en observant la main de Wang Lin se refermer lentement sur l'objet.
 
 La main de Wang Lin marqua un temps d'arrêt lorsqu'elle fut à un pouce de l'épine. Celle-ci était différente des sept autres. Bien qu'elles fussent toutes incrustées dans le corps de Qing Shui, la plupart des autres épines ne dépassaient que légèrement. En revanche, cette huitième épine était presque entièrement enfouie, avec seulement deux pouces à l'extérieur.
 
@@ -92,7 +92,7 @@ Le choc se lisait dans les yeux de Wang Lin alors que son corps quittait progres
 
 Alors qu'il s'éloignait, il posa une dernière question: « Êtes-vous le Souverain Céleste?! »
 
-« Je le suis, et je ne le suis pas non plus... » La voix ténue résonna. Wang Lin réapparut à l'intérieur du Système Stellaire de la Brillance Vide, puis la faille menant au Royaume aux Sept Couleurs disparut lentement.
+« Je le suis, et je ne le suis pas non plus... » La voix ténue résonna. Wang Lin réapparut à l'intérieur du Système Stellaire du Vide Brillant, puis la faille menant au Royaume aux Sept Couleurs disparut lentement.
 
 Son corps retrouva sa liberté, mais ce qui venait de se passer laissa une empreinte profonde en lui. Il semblait vaguement comprendre quelque chose, mais cela ne faisait qu'accroître sa confusion.
 

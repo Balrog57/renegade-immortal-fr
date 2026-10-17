@@ -6,25 +6,27 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1378 - A Generation of Masters
 slug: une-generation-de-maitres
 ---
-L'expression du Maître Simo changea et il se leva soudainement. Ses yeux, tels des éclairs de tonnerre, scrutaient l'horizon. Son regard semblait capable de percer toutes les barrières; il s'étendit au loin jusqu'à distinguer Wang Lin, debout, la silhouette droite sur le sommet de la montagne.
+L'expression du Maître Simo changea et il se leva soudainement. Ses yeux, tels des éclairs de tonnerre, scrutaient l'horizon. Son regard semblait capable de percer toutes les barrières; il s'étendit au loin jusqu'à distinguer Wang Lin, debout, la silhouette droite sur le sommet d'une montagne au centre de la planète, le regard tourné vers lui.
 
-« Je l'avais sous-estimé! Cependant, face à un pouvoir absolu, tout cela est inutile! » ricana le Maître Simo avant de s'avancer et de disparaître sans laisser de trace.
+« J'ai sous-estimé son esprit! Cependant, face à un pouvoir absolu, tout cela est inutile! » ricana le Maître Simo avant de s'avancer et de disparaître sans laisser de trace.
 
 Seul resta le duo père et fils du Clan du Dragon Blindé, les traits sombres.
 
 « Père, la culture de ce cultivateur est élevée et il n'est pas simple... Il se cachait ici, et nous... » murmura le jeune maître du Clan du Dragon Blindé.
 
-Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan du Tonnerre Dispersé et tué leur Grand Ancien. Puis, il fut traqué par le Conseil Souverain et a scellé 100 000 cultivateurs! »
+Le Patriarche du Clan du Dragon Blindé répondit d'un ton lugubre: « Bien sûr qu'il n'est pas quelqu'un d'ordinaire... Si je ne me trompe pas, c'est lui qui a anéanti le Clan du Tonnerre Dispersé et tué leur Grand Ancien. Puis il a éliminé des dizaines de milliers de cultivateurs avant de s'enfuir, et il est recherché par le Conseil Souverain par un ordre du Système Stellaire Antique! »
 
 « Quoi?! » Le jeune maître du Clan du Dragon Blindé fut stupéfait, son expression changeant radicalement.
 
-« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici? Si sa culture n'était pas si puissante, comment ton père pourrait-il l'aider? Après tout, celui qui a détruit le Clan du Tonnerre Dispersé n'est pas un cultivateur du troisième pas, sinon pourquoi aiderais-je le Maître Simo? »
+« Sinon, pourquoi un cultivateur du troisième pas comme le Maître Simo viendrait-il ici? Si sa culture n'était pas si profonde, ton père ne l'aiderait jamais. Mais en comparaison, celui qui a détruit le Clan du Tonnerre Dispersé n'est après tout pas un cultivateur du troisième pas; je ne peux donc qu'aider le Maître Simo! »
 
 Le jeune maître du Clan du Dragon Blindé réfléchit un instant, puis dit doucement: « Si le Senior Simo réussit, tout ira bien, mais si... »
 
 « Il n'y a aucune possibilité! Même s'il ne meurt pas, il sera gravement blessé. Il fera tout son possible pour s'enfuir et guérir, et il ne pourra guère nous affronter. Et même s'il venait chercher des ennuis, je ferai en sorte qu'il ne reparte jamais! »
 
 « Ton père est, après tout, le neuvième Ancien Déchu et un représentant du Conseil Déchu. Il n'osera pas! » Le Patriarche du Clan du Dragon Blindé, l'air fier, agita sa manche et partit.
+
+Face aux grands événements, garder son calme!
 
 L'expression de Wang Lin était calme, ne laissant paraître aucune émotion alors qu'il levait les yeux vers le ciel. Les mains derrière le dos, sa robe blanche flottait au gré du vent. De loin, il ressemblait à un être céleste!
 
@@ -38,13 +40,13 @@ Cependant, dans ce monde, tant dans le Royaume Intérieur que dans le Royaume Ex
 
 Il osait affronter les cieux, lutter contre le destin et combattre le Dao!
 
-C'était Wang Lin! Le Dao Céleste voulait lui voler la vie de Li Muwan, mais il avait tout risqué pour une chance de survie. Il avait condensé les Flammes Joss avant de les abandonner, ne comptant que sur ses cinq essences pour déclencher la Grande Porte du Vide. Il avait emprunté un sentier antique dont presque plus personne ne se souvenait!
+C'était Wang Lin! Il avait arraché la vie de Li Muwan au Dao Céleste, jouant une chance de survie au cœur du danger. Il possédait le royaume capable de condenser les Flammes Joss mais avait renoncé à s'élever par une force extérieure, ne comptant que sur ses cinq essences pour déclencher la Grande Porte du Vide. Il avait emprunté un chemin vers le Dao que bien peu avaient foulé depuis toujours!
 
-Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel pour sortir de leur prison! Il avait tué le Grand Ancien du Clan du Tonnerre Dispersé malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour traverser l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
+Il avait conduit le peuple des 7 Millions de Mondes à briser le ciel et la terre pour retourner dans l'espace stellaire! Il avait tué le Grand Ancien du Clan du Tonnerre Dispersé malgré un niveau de culture inférieur! Il avait utilisé sa propre puissance pour venir dans l'Ancien Système Stellaire afin de ramener Li Qianmei chez elle!
 
-Il avait semé le chaos dans l'Ancien Système Stellaire et était traqué par l'ensemble de ce dernier. Avec tout ce qu'il avait accompli, même Qing Shuang[1] ne pouvait que soupirer, sachant qu'elle n'était pas son égale.
+Il avait semé le chaos dans l'Ancien Système Stellaire et était traqué par l'ensemble de ce dernier. Avec tout ce qu'il avait accompli, même Qing Lin d'autrefois ne pouvait que soupirer, sachant qu'il n'était pas son égal.
 
-C'était Wang Lin! Il parcourait le monde non pas en quête d'immortalité, mais pour vivre sans regrets et n'avoir rien à se reprocher!
+C'était Wang Lin! Il parcourait le monde sans chercher à laisser son nom pour l'éternité, mais pour vivre sans rien se reprocher dans son cœur et sans regrets!
 
 L'énergie de l'épée emplissait le monde; il ne manquait qu'un seul rayon pour atteindre les 40 millions. Les nuages se dissipèrent, et à cet instant précis, il était impossible de dire si le monde contenait l'énergie de l'épée ou si l'énergie de l'épée contenait un monde!
 
@@ -62,7 +64,7 @@ Il semblait que le Maître Simo avait puisé la puissance des cieux pour former 
 
 « Tu parles beaucoup pour rien! » L'expression de Wang Lin resta impassible et, à l'approche du Maître Simo, ses mains formèrent un sceau.
 
-« Effondrement des Montagnes! » À cet instant, des volcans illusoires apparurent autour de Wang Lin! Avec son niveau de culture actuel, il était bien plus puissant qu'au temps où Qing Shui était encore blessé.
+« Effondrement des Montagnes! » À cet instant, des volcans illusoires apparurent autour de Wang Lin! Avec son niveau de culture actuel, cette technique d'Effondrement des Montagnes dépassait celle de Qing Shui, alors encore blessé.
 
 Les volcans surgissaient un à un. Leurs grondements créaient une onde de choc terrifiante qui se propageait à perte de vue.
 
@@ -70,7 +72,7 @@ Wang Lin était entouré de volcans. Son visage était serein, mais ses yeux br�
 
 L'expression du Maître Simo devint sérieuse. Il n'oserait pas sous-estimer la puissance de quelqu'un capable de déclencher la Porte du Vide sans aucune Flamme Joss. À cet instant, il forma un sceau et fit un geste: le vortex autour de lui jaillit pour charger Wang Lin!
 
-Simultanément, le doigt de Wang Lin, pointé vers le ciel, fondit impitoyablement vers le bas!
+Simultanément, la main droite de Wang Lin, levée vers le ciel, s'abattit impitoyablement vers le bas!
 
 « Montagne, premier effondrement! » Alors que la voix de Wang Lin résonnait, les volcans se mirent à gronder. Une fumée noire s'en échappa, obscurcissant le ciel, et entra en collision avec le vortex.
 
@@ -88,9 +90,9 @@ Cependant, bien que ce volcan parût extrêmement réel, il n'avait pas d'âme; 
 
 À cet instant, Wang Lin bondit dans les airs et tendit sa main droite vers la terre. Il hurla: « Puisque ce volcan est dépourvu d'âme, je vais lui en donner une! Extrayez les âmes de toutes les montagnes de cette planète!! »
 
-Sous l'ordre de Wang Lin, la planète de culture trembla et la terre gronda comme si un dragon s'agitait dans les profondeurs. Une montagne s'effondra instantanément en un amas de roche, comme si ses fondations mêmes avaient cédé d'un coup!
+Sous l'ordre de Wang Lin, la planète de culture trembla et la terre gronda comme si un dragon s'agitait dans les profondeurs. Sur la planète, les montagnes tremblèrent et certaines s'effondrèrent instantanément en un amas de roches, comme privées de la colonne vertébrale qui les faisait tenir debout!
 
-Leurs âmes, leurs piliers, tout fut extrait par Wang Lin!
+Car leur colonne vertébrale, leur âme de montagne, tout fut extrait par Wang Lin en un instant!
 
 Les montagnes s'écroulaient les unes après les autres à mesure que leurs âmes étaient arrachées. Ces âmes montagneuses s'envolèrent pour se rassembler instantanément dans la main de Wang Lin!
 
@@ -120,12 +122,8 @@ Ce blanc ressemblait à une toile de peinture! D'innombrables ombres y dessinaie
 
 « Je suis le pinceau, un seul trait pour briser le ciel. Accomplissez mon Dao Briseur de Ciel! » Le Maître Simo agita sa main droite telle un pinceau. Le monde se métamorphosa sous ses mouvements, comme s'il façonnait son propre univers!
 
-Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Tout cela lui avait permis de découvrir un sort célèbre de la Secte Briseur de Ciel: le Dao Briseur de Ciel!
+Les pupilles de Wang Lin se rétractèrent. Lorsqu'il avait discuté du Dao avec Li Qianmei, ils avaient également abordé la question des sorts, et il avait récupéré le jade de Sima Mo. Il s'était aussi rendu dans la grotte de Sima Mo au sein du Royaume aux Sept Couleurs. Tout cela lui avait permis de savoir qu'il existait au sein de la Secte Briseur de Ciel une technique divine nommée le Dao Briseur de Ciel!
 
-Seuls le Maître de Secte et le Grand Ancien pouvaient l'apprendre! Il était d'une puissance incommensurable!
+Seuls les Maîtres de Secte successifs et le disciple aîné pouvaient la pratiquer! Il était d'une puissance incommensurable!
 
 « Maître Simo... Maître Simo... Se pourrait-il qu'il soit... »
-
-***
-
-1. La fille de l'Empereur Céleste Qing Lin, alias la charogne réanimée.

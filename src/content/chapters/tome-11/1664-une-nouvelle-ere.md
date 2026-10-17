@@ -54,7 +54,7 @@ Cette ombre était l'esprit du trésor de la Hache de la Fente Céleste. Elle fo
 
 Le corps de dix mille pieds de Wang Lin semblait n'être qu'un adolescent face à un homme dans la force de l'âge; il paraissait ne pas avoir de chance de résister. Pourtant, Wang Lin fixa les yeux de l'ombre qui fonçait sur lui et poussa un rugissement.
 
-« Tu oses?! Je suis un Dieu Ancestral Royal et je possède l'héritage des Anciens. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, une tête géante de Dieu Ancestral apparut et rugit en chœur avec lui!
+« Tu oses?! Je suis un Dieu Ancestral Royal et je possède l'héritage du Dao Ancien. Tu veux me dévorer? Tu cherches la mort! » Derrière Wang Lin, la tête géante du Dao Ancien apparut et rugit en chœur avec lui!
 
 Ce fut comme si un ouragan surgissait du vide pour frapper l'ombre de la Hache de la Fente Céleste. L'ombre poussa un cri de terreur et recula précipitamment. Son corps fut déchiré, mais se reforma rapidement.
 
@@ -68,7 +68,7 @@ La Hache de la Fente Céleste s'était soumise. Cette fois, il avait soumis l'ar
 
 Armé de cette hache gigantesque, ses cheveux blancs flottaient au vent. À cet instant, Wang Lin ne différait en rien de sa statue sur la planète Suzaku!
 
-D'un geste de la main droite, il fit se transformer la Hache de la Fente Céleste en une multitude de particules de lumière dorée qui disparurent parmi les étoiles de Dieu Ancestral.
+D'un geste de la main droite, il fit se transformer la Hache de la Fente Céleste en une multitude de particules de lumière dorée qui s'enfoncèrent entre les sourcils de Wang Lin et disparurent.
 
 Wang Lin contempla la Formation de Scellement du Royaume qui s'effondrait, une lueur étrange dans le regard. Ce dernier esprit était le plus puissant, et l'ancien Seigneur du Royaume Scellé s'était intégré à lui pour contrôler la formation.
 
@@ -108,7 +108,7 @@ En cet instant, Luotian et la Mer des Nuages étaient enfin libres!
 
 Après des dizaines de milliers d'années, la barrière entre le Royaume Intérieur et le Royaume Extérieur avait disparu; ils ne faisaient plus qu'un! La Formation de Scellement du Royaume, qui semblait avoir toujours existé et qui était transmise de génération en génération, s'était effondrée et avait disparu!
 
-Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler la Flamme Joss s'était évanouie. À Luotian, tous les cultivateurs du troisième niveau affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
+Sans la Formation de Scellement du Royaume, la force mystérieuse qui empêchait le Royaume Intérieur de rassembler la Flamme Joss s'était évanouie. À Luotian, tous les grands puissants affichèrent des visages empreints d'excitation. Même Qing Lin ne fit pas exception.
 
 Wang Lin avait détruit la Formation de Scellement du Royaume!
 

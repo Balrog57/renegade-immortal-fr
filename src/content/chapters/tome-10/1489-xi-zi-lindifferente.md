@@ -22,13 +22,13 @@ L'homme d'âge moyen devant lui frissonnait, le regard empli de désespoir. Inco
 
 Ce fut comme s'il entendait le monde entier s'effondrer autour de lui.
 
-« C'est lui! Si ce n'était pas pour lui, il n'aurait pas forcé la cultivatrice Xi Zi, et son âme originelle ne serait pas si gravement blessée! » Le vieil homme pointa du doigt l'homme d'âge moyen qui était à genoux.
+« C'est lui! Si, ces derniers temps, il n'avait pas tourmenté à maintes reprises la cultivatrice Xi Zi, son âme originelle ne serait jamais si gravement blessée! » Le vieil homme pointa du doigt l'homme d'âge moyen qui était à genoux.
 
-Poussé par une peur intense, l'homme parvint à trouver le courage de se relever brusquement. Il recula tout en paraissant anxieux et rugit: « Zhou Cong Yun, tu me calomnies! En tant que messager du Temple Céleste du Tonnerre, j'ai le droit d'ordonner à chacun d'entre vous de déplacer la planète, et vous devez tous obéir à mes commandements. Comment oses-tu m'insulter ainsi? Quelles sont tes intentions? »
+Poussé par une peur intense, l'homme parvint à trouver le courage de se relever brusquement. Il recula tout en paraissant anxieux et rugit: « Zhou Cong Yun, tu me calomnies! En tant que messager du Temple Céleste du Tonnerre, j'ai le droit d'exiger de chacun d'entre vous qu'il suive mes ordres. Comment oses-tu m'insulter ainsi? Quelles sont tes intentions? »
 
 « Senior, n'écoutez pas les calomnies de cet homme! J'ai tout fait pour aider Luotian à se préparer au combat. Je n'ai absolument pas forcé la cultivatrice Xi Zi. Je connais même la cultivatrice Xi Zi, alors comment pourrais-je... » L'homme d'âge moyen recula rapidement jusqu'à une distance de plus de mille pieds.
 
-Wang Lin observa l'homme qui fuyait avec le même regard glacial qu'il avait posé sur la destruction de la planète Dong Ling. Ayant traversé tant d'épreuves, il comprit immédiatement la vérité d'un simple coup d'œil.
+Wang Lin observa l'homme qui fuyait avec le même regard glacial qu'il avait eu en détruisant les derniers membres de la famille Xiang de la planète Dong Lin. Ayant traversé tant d'épreuves, il comprit immédiatement la vérité d'un simple coup d'œil.
 
 « Tourmenter une femme faible... tu mérites la mort! » Plus Xi Zifeng baissait la tête et reculait, plus elle touchait Wang Lin.
 
@@ -70,7 +70,7 @@ La pilule dégageait de puissantes fluctuations d'énergie originelle. Sa simple
 
 À l'intérieur de Luotian, sur une planète à moitié abandonnée, la neige tombait du ciel, recouvrant la terre d'un manteau blanc. Dans la partie septentrionale de la planète se dressait une montagne enneigée.
 
-Xi Zifeng se tenait au sommet. Le visage pâle, elle avait réprimé ses larmes par la force de sa volonté tandis qu'elle méditait en silence.
+Xi Zifeng se tenait au sommet. Le visage pâle, elle avait réprimé ses larmes par la force de sa volonté et restait silencieuse.
 
 Devant elle, Wang Lin la regardait avec une expression complexe. Il soupira et agita la main droite. Une force douce pénétra son corps pour atteindre son âme originelle. En un instant, ses blessures furent guéries.
 

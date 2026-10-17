@@ -20,7 +20,7 @@ Les deux forces entrèrent à nouveau en collision, provoquant des sons monstrue
 
 Pourtant, la gigantesque empreinte palmaire ne se désintégra pas, bien qu’elle se fût légèrement dissipée et ne fût plus aussi solide qu'auparavant. L'empreinte hurla alors qu'elle retombait sur Wang Lin.
 
-Les yeux de Wang Lin étaient emplis de folie. La puissance du Souverain n'était pas en dehors de ses espérances; c’était là la force d'un cultivateur au stade Arcane Tribulant. Alors que l'empreinte se rapprochait, le feu dans son œil gauche et le tonnerre dans son œil droit jaillirent. Les trois essences éthérées et l'essence de boucherie grondèrent. Les six essences de son corps formèrent six épées illusoires.
+Les yeux de Wang Lin étaient emplis de folie. La puissance du Souverain n'était pas en dehors de ses espérances; c’était là la force d'un cultivateur au stade de la Tribulation Arcane. Alors que l'empreinte se rapprochait, le feu dans son œil gauche et le tonnerre dans son œil droit jaillirent. Les trois essences éthérées et l'essence de boucherie grondèrent. Les six essences de son corps formèrent six épées illusoires.
 
 D’un seul mouvement, ces six épées furent projetées vers l’empreinte palmaire. Wang Lin serra les dents et, au lieu de reculer, il chargea en avant.
 
@@ -48,7 +48,7 @@ Wang Lin fut projeté en arrière. Il cracha des quantités massives de sang et 
 
 C'était comme si tout ce qui l'avait précédé n'était qu'une simple mise en scène!
 
-« C'est là la puissance d'un cultivateur Vide Arcanique au sommet ayant atteint le stade Arcane Tribulant. Sans l'Arc de Li Guang, je ne peux rivaliser... » Wang Lin tituba tandis qu'une douleur fulgurante l'assaillait. Son âme originelle avait été endommagée par l'onde de choc du rebond.
+« C'est là la puissance d'un cultivateur Vide Arcanique au sommet ayant atteint le stade de la Tribulation Arcane. Sans l'Arc de Li Guang, je ne peux rivaliser... » Wang Lin tituba tandis qu'une douleur fulgurante l'assaillait. Son âme originelle avait été endommagée par l'onde de choc du rebond.
 
 Tout s’était passé très vite. Bien que l'empreinte se fût dissipée, le Souverain éclata d'un rire tonitruant. Il était enfin certain que Wang Lin n'avait plus la force de tirer l'arc une troisième fois. N'ayant plus aucune inquiétude, il marcha vers Wang Lin avec un sourire cruel.
 
@@ -56,17 +56,17 @@ Tout s’était passé très vite. Bien que l'empreinte se fût dissipée, le So
 
 Alors que le Souverain allait l'atteindre, des hurlements résonnèrent au loin. Des ondulations se propagèrent et la septième concubine sortit, l'expression sombre. Au même moment, le Maître Dao Miao Yin et le Maître Démon Neuf Cieux arrivèrent d'une autre direction vers Wang Lin.
 
-Trois des Cinq Maîtres de l'Ancien Système Stellaire et la septième concubine impériale céleste. Chacun d'eux pouvait ébranler les Royaumes Intérieur et Extérieur, mais en cet instant, ils s'étaient tous unis pour tuer Wang Lin!
+Trois des Cinq Maîtres du Système Stellaire Antique et la septième concubine impériale céleste. Chacun d'eux pouvait ébranler les Royaumes Intérieur et Extérieur, mais en cet instant, ils s'étaient tous unis pour tuer Wang Lin!
 
 Voyant ces quatre adversaires apparaître, le regard de Wang Lin se glaça. Il attendait justement leur arrivée! Ce n’était qu’à ce prix qu’il pourrait accomplir la première étape de son plan!
 
-Détruire l'Ancien Système Stellaire du Royaume Extérieur et semer le chaos dans le monde des grottes afin que les puissances ne soient plus en équilibre. C'était la première phase du dessein de Wang Lin, même s'il savait pertinemment que cela le laisserait piégé dans l'Ancien Système Stellaire, traqué comme une proie.
+Détruire le Royaume Céleste Antique du Royaume Extérieur et semer le chaos dans le monde des grottes afin que les puissances ne soient plus en équilibre. C'était la première phase du dessein de Wang Lin, même s'il savait pertinemment que cela le laisserait piégé dans le Système Stellaire Antique, traqué comme une proie.
 
 Ses yeux brillèrent. Alors que le Souverain était sur le point de le rejoindre, Wang Lin s'arrêta brusquement. Sa main gauche s'avança et l'Arc de Li Guang apparut soudainement entre ses mains!
 
 À l'instant où l'Arc de Li Guang se manifesta, l'expression du Souverain changea radicalement. Il s'arrêta par réflexe et recula même de plus de 1 000 pieds. Ses yeux étaient empreints de choc et d'incrédulité!
 
-« Impossible! Tu n'as la puissance que pour deux tirs, je ne peux me tromper, c'est impossible! Tu ne fais que sortir l'arc pour nous ridiculiser. Tu ne peux pas bander cet arc! » Le Souverain refusait de l'admettre. Il ne pouvait supporter que ses plans échouent encore et encore. Un tel coup était mortel pour lui; il menaçait de briser sa confiance et d'ébranler son Dao!
+« Impossible! Tu n'as la puissance que pour deux tirs, je ne peux me tromper, c'est impossible! Tu ne fais que sortir l'arc pour nous leurrer. Tu ne peux pas bander cet arc! » Le Souverain refusait de l'admettre. Il ne pouvait supporter que ses plans échouent encore et encore. Un tel coup était mortel pour lui; il menaçait de briser sa confiance et d'ébranler son Dao!
 
 À ce moment, non seulement le Souverain recula, mais même la septième concubine s'immobilisa. Le Maître Dao Miao Yin et le Maître Démon Neuf Cieux cessèrent également leur progression, leurs visages marquant une profonde stupeur.
 
@@ -78,7 +78,7 @@ Un bourdonnement retentit. Ce son magnifique terrifia le Souverain. Le souvenir 
 
 « Impossible! C'est absolument impossible! Même si tu parviens à bander l'arc, tu ne possèdes pas l'énergie céleste nécessaire pour faire apparaître la flèche... » Le Souverain recula, le visage livide de terreur.
 
-Pourtant, à cet instant précis, une lumière spectrale jaillit sur l'arc tendu par Wang Lin, et la flèche qui réprime toute vie apparut!
+Pourtant, à cet instant précis, une lumière spectrale jaillit sur l'arc tendu par Wang Lin, et la flèche qui terrifiait tous les êtres apparut!
 
 Tenant l'arc, il verrouilla le Souverain et les autres assaillants. Il leva sa main gauche et pointa la flèche vers le Souverain!
 
@@ -92,7 +92,7 @@ Simultanément, un soleil rouge éclatant apparut au sein de ce domaine entouré
 
 Le Souverain était devenu fou. En avançant, il frappa son propre front de la main. Une perle osseuse de la taille d'un poing jaillit soudainement de son crâne. Cette perle grise émettait une lueur blanche et, dès son apparition, la puissance du Souverain décupla. Il chargea alors de front vers Wang Lin.
 
-« Je vais te faire croire, je vais te forcer à t'en souvenir! » Wang Lin ferma ses yeux froids pour que les autres ne voient pas l'éclat doré de son regard. Il tira davantage sur la corde avec sa main droite afin d'augmenter la tension, puis il relâcha brusquement!
+« Je vais te faire croire, je vais te forcer à t'en souvenir! » Wang Lin ferma ses yeux froids pour que les autres ne voient pas l'éclat doré de son regard. Bandant l'arc grâce à son sens divin, il tira davantage sur la corde avec sa main droite afin d'augmenter la tension, puis il relâcha brusquement!
 
 Au moment du lâcher, la flèche jaillit telle un rayon de lumière capable de briser le firmament!
 

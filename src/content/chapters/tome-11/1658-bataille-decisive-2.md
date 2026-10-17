@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1658 - Decisive Battle (2)
 slug: bataille-decisive-2
 ---
-« Cultivateurs du Royaume Extérieur, vous avez envahi mon Royaume Intérieur pendant cent ans et fauché d'innombrables vies... Et maintenant, vous assiégez ce lieu. Puisque vous refusez de partir et que vous êtes tous si déterminés à tuer, alors nul n'a besoin de repartir vivant. Aujourd'hui est la bataille décisive! » Tandis que Wang Lin parlait, il leva la main droite et pointa le ciel. Un grondement tonitruant résonna et une immense roue immobile apparut.
+« Cultivateurs du Royaume Extérieur, vous avez envahi mon Royaume Intérieur pendant cent ans et fauché d'innombrables vies... Et maintenant, vous assiégez ce lieu. Puisque vous refusez d'abandonner et que vous avez déclenché ce massacre, alors aucun d'entre vous ne repartira. Aujourd'hui est la bataille décisive! » Tandis que Wang Lin parlait, il leva la main droite et pointa le ciel. Un grondement tonitruant résonna et une immense roue immobile apparut.
 
 « Tuez! » Wang Lin poussa un rugissement et chargea en avant.
 
@@ -14,13 +14,13 @@ Au cri de Wang Lin, les cultivateurs restants du Royaume Intérieur furent saisi
 
 « Tuez! »
 
-Parmi ceux qui s'élancèrent avec eux figuraient Qing Lin, Maître Hong Shan, la femme en violet du Rivière Invoquée, ainsi que Mu Bingmei, la Secte Divine, et d'innombrables cultivateurs du Royaume Intérieur poussés à leurs derniers retranchements.
+Parmi ceux qui s'élancèrent avec eux figuraient Qing Lin, Maître Hong Shan, la femme en violet de la Rivière Invoquée, ainsi que Mu Bingmei, la Secte Divine, et d'innombrables cultivateurs du Royaume Intérieur poussés à leurs derniers retranchements.
 
 Il restait moins de 80 000 membres du Royaume Intérieur, mais ces 80 000 âmes ne craignaient pas la mort. Sous le rugissement de Wang Lin, ils devinrent fous de rage!
 
-« Formation de Vie et de Mort, opprime toute vie! » Wang Lin pointa le ciel et la roue immobile commença à tourner. Tandis qu'elle pivotait lentement, une force de suppression monstrueuse se propagea et s'abattit sur les dizaines de milliers de cultivateurs du Royaume Extérieur!
+« Formation de Vie et de Mort, opprime toute vie! » Wang Lin pointa le ciel et la roue immobile commença à tourner. Tandis qu'elle pivotait lentement, une force de suppression monstrueuse se propagea et s'abattit sur les centaines de milliers de cultivateurs du Royaume Extérieur!
 
-Un fracas assourdissant retentit et des dizaines de milliers de cultivateurs du Royaume Extérieur crachèrent du sang sous la pression. Certains explosèrent purement et simplement.
+Un fracas assourdissant retentit et, parmi les centaines de milliers de cultivateurs du Royaume Extérieur, des dizaines de milliers crachèrent du sang sous la pression. Certains explosèrent purement et simplement.
 
 Cependant, les cultivateurs du Royaume Extérieur étaient bien trop nombreux. Après une brève panique, ils parvinrent à pousser des rugissements de défi. Ils résistèrent à la suppression et entamèrent une bataille à mort contre les cultivateurs du Royaume Intérieur!
 
@@ -100,7 +100,7 @@ Dès que l'incantation fut prononcée, une lune ensanglantée apparut, et son om
 
 Un fracas assourdissant retentit lors de leur collision. Leurs sorts s'entrechoquèrent, mais le corps de la concubine fut projeté en arrière. Son visage était d'une pâleur mortelle et elle cracha du sang.
 
-Wang Lin recula également, toussant du sang lui aussi. Cependant, il ne fit que quelques pas en arrière avant de charger à nouveau. Il leva la main droite dans un rugissement: l'Empreinte de l'Esprit de la Guerre apparut.
+Wang Lin recula également, toussant du sang lui aussi. Cependant, il ne fit que quelques pas en arrière avant de charger à nouveau. Il leva la main droite dans un rugissement: l'Empreinte de l'Esprit Guerrier apparut.
 
 L'empreinte d'une paume géante fonça sur la concubine dès son apparition.
 

@@ -24,7 +24,7 @@ Simultanément, la femme aux robes noires agita calmement sa main. Ses ongles s'
 
 L'homme au regard froid fixa l'Empreinte de l'Esprit de Guerre qui descendait et mordit sa main droite pour en faire jaillir le sang. Il traça rapidement un sceau avec son sang, lequel se figea instantanément. Puis, il lança le sceau.
 
-Les cieux et la terre tremblèrent. C'était la collision de sorts entre cultivateurs du troisième pas. L'Empreinte de l'Esprit de Guerre de Wang Lin percuta la masse de terre monstrueuse.
+Les cieux et la terre tremblèrent. C'était la collision de grandes techniques divines. L'Empreinte de l'Esprit de Guerre de Wang Lin percuta la masse de terre monstrueuse.
 
 Des grondements tonitruants résonnèrent et la terre recouvrit entièrement la paume dorée. Au même instant, les neuf ongles transpercèrent la terre pour viser l'empreinte.
 
@@ -62,11 +62,11 @@ Profitant de l'instant où le Fourneau Impérial bloqua l'assaut, Wang Lin laiss
 
 Tout s'était passé trop vite. À peine quelques respirations s'étaient-elles écoulées depuis le début de l'assaut que Wang Lin avait déjà traversé d'innombrables situations de vie ou de mort. Il n'avait pu utiliser ni la plupart de ses sorts, ni ses trésors magiques; même son Empreinte de l'Esprit de Guerre avait été interrompue.
 
-Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyait pas que seuls trois individus cherchaient sa perte. Le tuer maintenant ressemblait à la chute du précédent Seigneur du Royaume Scellé: une manœuvre massive orchestrée par l'ensemble du Royaume Extérieur.
+Wang Lin devait diviser sa conscience pour surveiller ses environs. Il ne croyait pas que seuls trois individus cherchaient sa perte. Le tuer maintenant ressemblait à la chute du précédent Seigneur du Royaume Scellé: une manœuvre massive orchestrée par tout le Système d'Étoiles Anciennes au-delà du royaume.
 
 Le Souverain n'était toujours pas apparu!
 
-Les concubines célestes impériales n'avaient pas encore attaqué!
+Les concubines impériales célestes n'avaient pas encore agi!
 
 C'était le plus grand danger que Wang Lin ait jamais affronté dans sa vie! C'était une calamité mortelle!
 

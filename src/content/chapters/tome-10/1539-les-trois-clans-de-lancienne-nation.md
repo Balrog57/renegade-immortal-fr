@@ -92,8 +92,8 @@ Instantanément, les six étoiles pénétrèrent dans l'œil droit de Wang Lin p
 
 Au moment où les étoiles entrèrent en lui, Wang Lin prit une profonde inspiration. Sa main forma un sceau et son corps trembla. Les sept étoiles dorées d'Ancien Dieu entre ses sourcils brillèrent intensément. Des rayons de lumière dorée semblèrent pénétrer dans son œil droit avant de fusionner rapidement avec les six étoiles démoniaques!
 
-Le fou, qui s'était reculé, observa la scène. Il se frotta les yeux en marmonnant: « Utiliser l'Ancien Dieu comme corps et le Démon Antique comme avatar... C'est ainsi que se forment les trois clans de l'Ancienne Nation... »
+Le fou, qui s'était reculé, observa la scène. Il se frotta les yeux en marmonnant: « Prendre l'Ancien Dieu pour racine et l'Ancien Démon pour branche... C'est la lignée de l'Ordre Antique, l'un des trois grands clans royaux de l'Ancienne Nation... »
 
-« Les trois clans de l'Ancienne Nation. Le pays Ji a le démon pour racine, le pays Shi a le diable pour racine... Étrange, il est clairement un membre de mon clan céleste et il possède le corps immortel que seul mon grand frère et moi possédons. Comment un cultivateur de l'Ancienne Nation peut-il en avoir un? Étrange, si étrange... Hmph! Quel insolent a osé donner un corps céleste immortel à un cultivateur de l'Ancienne Nation?! Si mon grand frère apprenait cela, il serait hors de lui! »
+« Les trois grands clans de l'Ancienne Nation: le Ji Gu a le démon pour racine, le Shi Gu a le diable pour racine... Étrange, il est clairement un membre de mon clan céleste et il possède le corps immortel que seul mon grand frère et moi possédons. Comment un cultivateur de l'Ancienne Nation peut-il en avoir un? Étrange, si étrange... Hmph! Quel insolent a osé donner un corps céleste immortel à un cultivateur de l'Ancienne Nation?! Si mon grand frère apprenait cela, il serait hors de lui! »
 
 « Cela ne peut durer, ce roi doit découvrir quel salaud ose être aussi audacieux! » Le fou devint soudain très sérieux.

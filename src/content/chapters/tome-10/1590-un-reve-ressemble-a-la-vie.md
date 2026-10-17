@@ -8,7 +8,7 @@ slug: un-reve-ressemble-a-la-vie
 ---
 Les premiers rayons du soleil se répandaient doucement sur la terre. Le ciel était pur et des nuages légers comme des plumes parsemaient l'horizon. À l'aube, lorsque la lumière frappait les nuages, une faible lueur orangée s'en dégageait. De loin, on aurait dit un monde onirique.
 
-Des volutes de fumée s'élevaient et le bruit des aboiements provenait de l'auberge au coin de la rue. Tout cela semblait naturel, comme si chaque chose était à sa juste place.
+Des volutes de fumée s'élevaient et le bruit des aboiements provenait de l'auberge au bord de la route officielle. Tout cela semblait naturel, comme si chaque chose était à sa juste place.
 
 Les quelques chiens de la boutique jouaient entre eux, courant partout en remuant la queue.
 
@@ -32,7 +32,7 @@ Alors que les chevaux passaient et que la chambre tremblait, le jeune homme ouvr
 
 Avec un sourire amer, il se redressa en s'appuyant sur le bord de son lit, la tête douloureuse. Il tituba jusqu'à la table et se versa une tasse de thé froid. Ce n'est qu'après avoir bu qu'il se sentit un peu mieux.
 
-« Il faudra que je fasse attention à ne plus m'enivrer à l'avenir. J'ai perdu connaissance hier soir. Si je n'avais perdu que mon argent, ce ne serait rien, mais si je perdais la vie... » Le jeune homme soupira et but encore quelques gorgées de thé froid.
+« Il faudra que je fasse attention à ne plus m'enivrer à l'avenir. J'ai perdu connaissance hier soir. Si j'étais tombé sur des malfaiteurs, perdre mon argent ne serait rien, mais si l'on m'ôtait la vie... » Le jeune homme soupira et but encore quelques gorgées de thé froid.
 
 À cet instant précis, on frappa à la porte et la voix du serveur résonna.
 
@@ -44,7 +44,7 @@ Le jeune homme se leva brusquement. Il s'était levé trop vite et le vertige le
 
 La porte s'ouvrit dans un grincement et le serveur entra avec la bouilloire. Après avoir rempli le bassin d'eau chaude, il tourna un regard souriant vers le jeune homme.
 
-« Cela fait trois jours que je travaille ici, et je n'ai jamais vu personne s'enivrer avec notre vin de riz après seulement deux coupes. Hier soir, peu importe mes efforts, vous ne vous réveilliez pas; j'ai dû vous monter ici pour vous reposer. Le petit frère n'est pas doué pour l'alcool, il va falloir s'entraîner. J'ai entendu dire que tous les officiels de la capitale peuvent boire mille coupes sans tomber. »
+« Cela fait trois ans que je travaille ici, et je n'ai jamais vu personne s'enivrer avec notre vin de riz après seulement deux coupes. Hier soir, peu importe mes efforts, vous ne vous réveilliez pas; j'ai dû vous monter ici pour vous reposer. Le petit frère n'est pas doué pour l'alcool, il va falloir s'entraîner. J'ai entendu dire que tous les officiels de la capitale peuvent boire mille coupes sans tomber. »
 
 Le visage du jeune homme devint légèrement rouge et ses yeux se remplirent de gratitude. Il se leva et joignit les mains en signe de respect. « Merci, mon frère, pour votre sollicitude. Je ne sais pas ce qui m'est arrivé non plus. La première coupe allait bien, mais dès que la seconde a atteint mon estomac, je me suis effondré, ivre mort. »
 
@@ -56,7 +56,7 @@ Il ouvrit la fenêtre, laissant entrer une brise fraîche et la lumière éclata
 
 Le jeune homme resta près de la fenêtre, observant l'extérieur tout en murmurant pour lui-même: « Après m'être enivré hier soir, j'ai vraiment fait un rêve. Ce rêve était très étrange, et je n'en ai rien oublié... »
 
-« Il était si réaliste qu'il était presque impossible de le distinguer de la réalité... Tout a commencé il y a trois ans, quand mon quatrième oncle est arrivé. J'ai rejoint la Secte Heng Yue... Hehe, c'était fascinant, mais le rêve semblait inachevé; je ne me souviens que du moment où j'ai intégré la Secte Heng Yue. La Secte Heng Yue... Comment une telle secte pourrait-elle exister? Comment peut-il y avoir des immortels? Les lettrés comme moi ne croient pas au pouvoir des esprits, ce ne sont que des rumeurs pour tromper les gens. » Le jeune homme secoua la tête et fixa la tasse sur la table. Son cœur d'enfant se manifesta lorsqu'il exécuta un geste de mémoire pour pointer la coupe du doigt.
+« Il était si réaliste qu'il était presque impossible de le distinguer de la réalité... Tout a commencé il y a trois ans, quand mon quatrième oncle est arrivé. J'ai rejoint la Secte Heng Yue... Hehe, c'était fascinant, mais le rêve semblait inachevé; je ne me souviens que du moment où j'ai intégré la Secte Heng Yue. La Secte Heng Yue... Comment une telle secte pourrait-elle exister? Comment peut-il y avoir des immortels? Les lettrés comme moi ne croient pas au pouvoir des esprits, ce ne sont que des rumeurs pour tromper les gens. » Le jeune homme secoua la tête et fixa la tasse sur la table. Son cœur d'enfant se manifesta soudain: il leva la main droite et forma un sceau, tel qu'il s'en souvenait, puis pointa la tasse du doigt.
 
 « Sortilège d'attraction! » sourit-il en pointant l'objet.
 
@@ -74,11 +74,11 @@ La lumière douce enveloppait son corps, emplissant le jeune homme d'une chaleur
 
 Ses vêtements propres et sa tenue soignée respiraient la vitalité. En marchant sur la route officielle, il regardait devant lui, apercevant au loin la capitale du pays de Zhao.
 
-« Wang Lin, tu vas y arriver! Une fois que j'aurai mon titre, je viendrai chercher mes parents dans le village pour les mettre à l'abri et les servir jusqu'à leur vieillesse, afin qu'ils connaissent enfin le bonheur. » Le jeune homme prit une profonde inspiration et reprit sa marche.
+« Wang Lin, tu vas y arriver! Une fois que j'aurai mon titre, je viendrai chercher mes parents dans le village pour les servir jusqu'à leur vieillesse, afin qu'ils connaissent enfin le bonheur. » Le jeune homme prit une profonde inspiration et reprit sa marche.
 
 La brise printanière soufflait, lui apportant le parfum des fleurs. Les vêtements de Wang Lin flottaient au vent tandis qu'il s'éloignait peu à peu de l'auberge.
 
-Le bruit des aboiements se perdit dans le vent et s'évanouit vers un lieu inconnu.
+Seule sa voix récitant des vers se dispersa dans le vent, emportée vers un lieu inconnu, avant de s'estomper peu à peu autour de lui.
 
 Un jeune homme de dix-huit ou dix-neuf ans ignore souvent ce que signifie la fatigue. Tandis qu'il progressait sur la route, les yeux vifs, Wang Lin s'arrêtait de temps à autre pour contempler les montagnes et les forêts environnantes avec un plaisir manifeste.
 
@@ -98,7 +98,7 @@ De loin, la montagne et les nuages semblaient livrer bataille: la montagne cherc
 
 Tenant le parapluie de la main droite, Wang Lin observa la montagne lointaine que les nuages ne parvenaient pas à occulter. Il regarda la pluie tomber sur la terre, sur les feuilles, sur la surface de la rivière créant des ondulations, et sur les embarcations.
 
-« Le vieil adage dit: "Les nuages noirs sont comme de l'encre couvrant les montagnes, la pluie blanche saute comme des perles dans le bateau"... Il s'avère que c'est vrai. » Wang Lin contempla ce spectacle et rit.
+« Le vieil adage dit: "Les nuages noirs, tel de l'encre renversée, ne cachent pas la montagne; la pluie blanche, en perles qui rebondissent, tombe pêle-mêle dans le bateau"... Il s'avère que c'est vrai. » Wang Lin contempla ce spectacle et rit.
 
 « Un érudit comme vous est-il devenu idiot? Vous voyez la pluie tomber sur mon bateau et vous osez encore rire. C'est vraiment exaspérant! » Une voix cristalline provient d'une embarcation proche de la rive. À la proue du bateau se tenait une jolie jeune fille tenant un parapluie. Elle affichait un visage sombre en fixant Wang Lin, tandis que sa main de jade le pointait du doigt.
 

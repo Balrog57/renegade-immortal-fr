@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1388 - Don’t Be Afraid!"
 slug: nayez-pas-peur
 ---
-« Nemesis... Il est ma nemesis! Même mes trésors sont contrés! » hurla Cupidité en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
+« Némésis... Il est ma némésis! Même mes trésors sont contrés! » hurla Cupidité en reculant précipitamment. Voyant Wang Lin se rapprocher, il jeta sans ménagement la bouteille de jade dans une autre direction!
 
 Il avait déjà fait cela auparavant... Depuis son arrivée dans le Système Stellaire Antique, chaque fois qu'il repensait à ce qui s'était passé, son cœur lui faisait une douleur atroce. Il avait juré de ne plus jamais sacrifier un trésor pour créer une diversion lors d'une fuite. À ses yeux, perdre un trésor était pire que la mort.
 
@@ -16,9 +16,9 @@ S'il avait su tout cela, il en aurait certainement recraché du sang, mourant pr
 
 « Ce vieil homme a eu une chance insolente, d'immenses opportunités, et est favorisé par le Ciel lui-même. Béni par les cieux à l'âge de huit ans, j'ai déterré une essence jaune de 500 ans que j'ai dévorée. À 13 ans, je suis tombé d'une falaise pour atterrir aux côtés d'un Fruit Vermillon de 500 ans. À 18 ans, alors que j'atteignais le stade de l'Établissement des Fondations, j'ai obtenu le dragon de tonnerre ancien! Au stade de la Formation du Noyau, en combattant un ennemi puissant contre lequel je n'avais aucune chance, un fourneau géant est tombé du ciel et l'a écrasé à mort!
 
-« Après cela, mon chemin fut toujours semé de succès. La Peinture des Montagnes et des Rivières, l'âme de la montagne, l'aiguille d'âme, tout cela a été obtenu sans encombre. Seul le temps m'a fait défaut, lorsque j'ai poursuivi la Perle Défiant le Ciel!
+« Après cela, mon chemin fut toujours semé de succès. La Peinture des Montagnes et des Rivières, l'âme de la montagne, l'aiguille d'âme, tout cela a été obtenu sans encombre. Seule ma quête de la Perle Défiant le Ciel ne s'est pas déroulée sans encombre!
 
-« Puis j'ai rencontré cette nemesis qui a dérobé tous mes trésors et tout ce pour quoi j'avais tant lutté. Pourtant, j'ai eu de la chance et je ne suis pas mort. Au contraire, j'ai trouvé encore plus de trésors lors de mes aventures et je suis devenu puissant. Mais ce maudit Wang Lin ne m'a pas lâché et est venu jusqu'ici, dans le Système Stellaire Antique! »
+« Puis j'ai rencontré cette némésis qui a dérobé tous mes trésors et tout ce pour quoi j'avais tant lutté. Pourtant, j'ai eu de la chance et je ne suis pas mort. Au contraire, j'ai trouvé encore plus de trésors lors de mes aventures et je suis devenu puissant. Mais ce maudit Wang Lin ne m'a pas lâché et est venu jusqu'ici, dans le Système Stellaire Antique! »
 
 Tandis que Cupidité se remémorait sa vie, son visage était empreint de chagrin et d'indignation. Il continuait pourtant de fuir.
 
@@ -48,7 +48,7 @@ Quant à Cupidité, qui venait de lui offrir cette chance inouïe, plus Wang Lin
 
 « Un fantôme me hante! Un fantôme me hante! » Cupidité ressentait une douleur lancinante dans sa poitrine, comme si des aiguilles le transperçaient sans cesse. Cette souffrance venait du spectacle de ses trésors se faisant dérober sous ses yeux.
 
-« Il a volé les Épées Starling, les Tablettes de Protection Osseuse, le Fourneau Impérial, la Lance du Démon de Brume, et il n'a même pas laissé l'Esprit d'Arbre Antique! Même la Feuille d'Arrêt Antique et la Bouteille de l'Âme Démoniaque ont été prises de force. La moitié de mes trésors lui appartiennent désormais, et ce maudit Wang Lin ne me lâchera pas! Il ne s'arrêtera que lorsqu'il aura tout pris! » Plus Cupidité y pensait, plus il sombrait dans la tristesse et l'indignation. La colère montant en lui, il serra les dents et décida de cesser sa fuite. Il se retourna et fixa violemment Wang Lin.
+« Il a volé les Épées Fu Jing, les Tablettes de Protection Osseuse, le Fourneau Impérial, la Lance du Démon de Brume, et il n'a même pas laissé l'Esprit d'Arbre Antique! Même la Feuille d'Arrêt Antique et la Bouteille de l'Âme Démoniaque ont été prises de force. La moitié de mes trésors lui appartiennent désormais, et ce maudit Wang Lin ne me lâchera pas! Il ne s'arrêtera que lorsqu'il aura tout pris! » Plus Cupidité y pensait, plus il sombrait dans la tristesse et l'indignation. La colère montant en lui, il serra les dents et décida de cesser sa fuite. Il se retourna et fixa violemment Wang Lin.
 
 « Ce vieil homme ne fuira plus! Je vais tout donner pour te combattre! » Les yeux de Cupidité étaient injectés de sang. C'était un être cruel ayant semé la mort sur son passage. S'il n'avait pas été terrifié par Wang Lin, et si la fissure dans son cœur Dao ne faisait pas de ce dernier son pire cauchemar, il n'aurait jamais fui ainsi, finissant dans un état aussi pitoyable.
 
@@ -92,7 +92,7 @@ Cette lumière éblouissante se mua en une épée de sang antique de 1 000 pieds
 
 Tenant l'épée, alors que le loup n'était plus qu'à moins de 100 pieds, Wang Lin abattit sa main droite!
 
-L'épée de sang descendit brusquement et son éclat s'étendit sur 10 000 pieds. De loin, on aurait dit que Wang Lin ne maniait pas une épée, mais un fouet de lumière sanguine. L'arme percuta le loup démonique.
+L'épée de sang descendit brusquement et son éclat s'étendit sur 100 000 pieds. De loin, on aurait dit que Wang Lin ne maniait pas une épée, mais un fouet de lumière sanguine. L'arme percuta le loup démonique.
 
 Un fracas assourdissant retentit lorsque la lumière rouge sang frappa la tête de la bête. Le loup poussa un cri de détresse alors qu'une large fissure fendait son crâne!
 

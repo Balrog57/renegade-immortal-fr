@@ -8,11 +8,11 @@ slug: la-seconde-bataille-destinee-2
 ---
 Des grondements tonitruants résonnèrent lorsque le poing de Wang Lin et celui de Tuo Sen entrèrent en collision. Au même instant, les deux ombres de Tu Si percutèrent également le vide!
 
-Ce fut comme si le vide du palais se déchirait. Des fracas de tonnerre retentirent alors que l'ombre de Tu Si appartenant à Tuo Sen vacillait. Son bras droit s'effondra et il fut repoussé de quatre pas, avant que l'ombre de Tu Si à l'apparence féroce ne se brise.
+Ce fut comme si le vide du palais se déchirait. Des fracas de tonnerre retentirent alors que l'ombre de Tu Si appartenant à Tuo Sen vacillait. Son bras droit s'effondra et il fut repoussé de quatre pas, chacun de dix mille pieds, avant que l'ombre de Tu Si à l'apparence féroce ne se brise.
 
 L'ombre de Tu Si empreinte de sagesse trembla également, son bras gauche se fracassant. Il fut repoussé de trois pas et d'innombrables fissures ténues parcoururent son corps avant qu'il ne vole en éclats.
 
-La collision des deux ombres de dieux anciens créa une force capable de briser les cieux. Une immense fissure apparut dans le palais, formant un gouffre colossal entre les deux dieux anciens!
+La collision des deux ombres de Dieux Antiques créa une force capable de briser les cieux. Une immense fissure apparut dans le palais, formant un gouffre colossal entre les deux Dieux Antiques!
 
 Tandis que les grondements tonitruants résonnaient au cœur de cette bataille du destin, le coup de Tuo Sen percuta Wang Lin. Lorsque leurs poings se rencontrèrent, les yeux de ce dernier brillèrent. D'innombrables ondulations apparurent entre leurs mains! Chaque onde recelait une force terrifiante!
 
@@ -38,7 +38,7 @@ Le tonnerre gronda et du sang jaillit du coin de la bouche de Wang Lin. Des craq
 
 Du sang jaillit également du coin de la bouche de Tuo Sen. Étant suspendu dans les airs, il ne pouvait pas utiliser le trône pour canaliser la force. Il recula de milliers de pieds et se rapprocha du filet illusoire!
 
-« Rafraîchissant! Rien que par cette lutte de puissance, tu es effectivement qualifié pour te nommer Dieu Ancien, Wang Lin! » La femme charmante avait utilisé une méthode inconnue pour reconstruire son corps, puis s'était servie de son lien avec Tuo Sen pour le localiser. Elle était désormais le témoin direct de leur combat!
+« Rafraîchissant! Rien que par cette lutte de puissance, tu es effectivement qualifié pour te nommer Dieu Antique, Wang Lin! » La femme charmante avait utilisé une méthode inconnue pour reconstruire son corps, puis s'était servie de son lien avec Tuo Sen pour le localiser. Elle était désormais le témoin direct de leur combat!
 
 Son expression changea et une intention meurtrière embrasa son regard. Elle chargea alors vers le filet illusoire, déterminée à aider Tuo Sen à tuer Wang Lin!
 
@@ -56,39 +56,39 @@ Le regard de Tuo Sen devint glacial. Il ricana et envoya un coup de poing vers l
 
 « Tu n'es qu'un jouet du Souverain Céleste, et pourtant tu oses comploter contre moi? Dégage! » La tempête générée par le coup de Tuo Sen se précipita vers le filet illusoire, forçant la concubine déjà blessée à battre en retraite.
 
-Tuo Sen saisit le filet illusoire et le tira. Sa puissance de Dieu Ancien déversa dans le filet, le scellant à nouveau pour empêcher la femme charmante d'entrer!
+Tuo Sen saisit le filet illusoire et le tira. Sa puissance de Dieu Antique déversa dans le filet, le scellant à nouveau pour empêcher la femme charmante d'entrer!
 
 Tout cela se produisit en un instant. Puis Tuo Sen se retourna et fixa Wang Lin.
 
 « Désormais, plus personne ne pourra perturber notre combat! »
 
-Bien qu'une grande partie de la plateforme de pierre se soit effondrée, le temps s'écoulait lentement. Nous étions au 39e souffle, et la force de rejet atteignait les limites de Wang Lin. Malgré la puissance de régénération de son corps de Dieu Ancien à 7 étoiles et ses deux essences compensant l'impact, il peinait à tenir bon.
+Bien qu'une grande partie de la plateforme de pierre se soit effondrée, le temps s'écoulait lentement. Nous étions au 39e souffle, et la force de rejet atteignait les limites de Wang Lin. Malgré la puissance de régénération de son corps de Dieu Antique à 7 étoiles et ses deux essences compensant l'impact, il peinait à tenir bon.
 
 S'il continuait ainsi, son corps s'effondrerait une fois de plus et il mourrait!
 
 Alors que la force de rejet devenait plus féroce, l'aura d'héritage déferla également. Wang Lin l'absorba avec frénésie, et le cyclone représentant la huitième étoile devint de plus en plus distinct!
 
-Le corps de démon antique qui n'avait pas été détruit reposait à ses côtés. Tandis que l'énergie démoniaque y affluait, les première, deuxième, troisième et quatrième étoiles de démon antique apparurent dans son œil droit!
+Le corps de démon ancien qui n'avait pas été détruit reposait à ses côtés. Tandis que l'énergie démoniaque y affluait, les deuxième, troisième et quatrième étoiles de démon ancien apparurent dans son œil droit!
 
 Alors que Wang Lin continuait d'absorber l'aura d'héritage par la force, du sang jaillit de son œil gauche, lui infligeant une douleur atroce!
 
-Parce que Li Guang avait arraché l'œil gauche de Ye Mo, l'héritage de l'Ordre Antique était incomplet. Plus Wang Lin absorbait d'aura, plus la douleur dans son œil gauche s'intensifiait!
+Parce que Li Guang avait abattu d'une flèche l'œil gauche de Ye Mo, l'héritage de l'Ordre Antique était incomplet. Plus Wang Lin absorbait d'aura, plus la douleur dans son œil gauche s'intensifiait!
 
 C'était comme s'il devenait Ye Mo et que son propre œil gauche se désintégrait! Sa vision se brouillait rapidement, comme s'il était en train de perdre l'usage de cet œil!
 
 Wang Lin pouvait très bien sacrifier un simple œil!
 
-Cependant, l'œil gauche que Li Guang avait emporté contenait la moitié des souvenirs de Ye Mo et sa nostalgie pour sa terre natale. À mesure que la douleur s'intensifiait, ses propres souvenirs semblaient se déchirer. Mille ans de vie, ses souvenirs de Li Muwan, de son foyer, de la planète Suzaku et de tous ceux qui lui étaient chers étaient sur le point de lui être arrachés!
+Cependant, l'œil gauche que Li Guang avait abattu d'une flèche contenait la moitié des souvenirs de Ye Mo et sa nostalgie pour sa terre natale. À mesure que la douleur s'intensifiait, ses propres souvenirs semblaient se déchirer. Mille ans de vie, ses souvenirs de Li Muwan, de son foyer, de la planète Suzaku et de tous ceux qui lui étaient chers étaient sur le point de lui être arrachés!
 
 « Rends-moi mon œil gauche!! » Tandis qu'il absorbait l'aura d'héritage, ce rugissement résonna dans son esprit!
 
 C'est à cet instant précis que Tuo Sen scella le filet illusoire. Ses yeux brûlaient de soif de combat alors qu'il marchait vers Wang Lin. Sa main droite s'éleva vers le ciel et le monde trembla lorsqu'une lance de mille pieds apparut dans sa paume!
 
-Le trésor royal de Dieu Ancien appartenant à Tu Si: la Lance Tueuse de Dieux!
+Le trésor royal de Dieu Antique appartenant à Tu Si: la Lance Tueuse de Dieux!
 
 Rugissant, Tuo Sen se cambra en arrière, tenant fermement l'arme. Toute la force de son corps convergea vers la Lance Tueuse de Dieux, qu'il projeta alors vers Wang Lin.
 
-La lance libéra une lumière aveuglante et une aura de Dieu Ancien colossale. Telle un éclair fendant le monde, elle fonça sur Wang Lin!
+La lance libéra une lumière aveuglante et une aura de Dieu Antique colossale. Telle un éclair fendant le monde, elle fonça sur Wang Lin!
 
 Le sang coulait toujours de l'œil gauche de Wang Lin, créant une scène tragique. Alors que la Lance Tueuse de Dieux approchait, Wang Lin leva la tête. Sa vision était floue et les souvenirs déchirés dans son esprit faisaient gonfler les veines de son visage.
 
@@ -100,9 +100,9 @@ La force de rejet s'engouffra soudainement dans le corps de Wang Lin. Il ferma l
 
 Il lança avec précaution un coup de poing de sa main gauche. Le vide devant lui se distordit et d'innombrables ondulations commencèrent à se propager depuis lui comme point central!
 
-La huitième étoile autour de ses sept étoiles commença soudainement à se condenser, et le cyclone se forma rapidement! Bien que la formation du cyclone soit loin de constituer l'étoile elle-même, c'était comme poser les fondations pour un cultivateur. Ce n'est qu'avec une telle base qu'il aurait une chance de devenir un Dieu Ancien à 8 étoiles dans le futur.
+La huitième étoile autour de ses sept étoiles commença soudainement à se condenser, et le cyclone se forma rapidement! Bien que la formation du cyclone soit loin de constituer l'étoile elle-même, c'était comme poser les fondations pour un cultivateur. Ce n'est qu'avec une telle base qu'il aurait une chance de devenir un Dieu Antique à 8 étoiles dans le futur.
 
-La naissance de toute étoile nécessite la formation d'un cyclone, lequel doit ensuite absorber suffisamment de puissance de Dieu Ancien pour que l'astre prenne forme!
+La naissance de toute étoile nécessite la formation d'un cyclone, lequel doit ensuite absorber suffisamment de puissance de Dieu Antique pour que l'astre prenne forme!
 
 La Lance Tueuse de Dieux était extrêmement rapide et n'était plus qu'à moins de cent pieds. Les cheveux de Wang Lin furent projetés en arrière par le vent, et les innombrables fragments de la plateforme effondrée furent emportés!
 

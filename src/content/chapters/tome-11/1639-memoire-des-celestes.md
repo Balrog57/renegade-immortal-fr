@@ -26,11 +26,11 @@ Cependant, avant qu'elle ne se déploie complètement, Wang Lin la comprima, pro
 
 Grâce à cette force, la capacité de régénération de Wang Lin avait atteint un degré effrayant, mais il n'en était pas satisfait. Selon ses analyses, ce niveau de récupération ne suffirait pas à briser la barrière de trois pouces protégeant le corps de l'homme d'âge moyen!
 
-Dans un rugissement, Wang Lin concentra toute sa puissance ancestrale dans son index droit. Son doigt dégageait une aura si terrifiante qu'elle aurait pu ébranler le Royaume Céleste Ancestral.
+Dans un rugissement, Wang Lin concentra toute sa puissance ancestrale dans son index droit. Son doigt dégageait une aura si terrifiante qu'elle aurait pu ébranler le Royaume Céleste Antique.
 
 Avec une telle aura, ce doigt pouvait être considéré comme un doigt immortel!
 
-C'était le septième sort originel qu'il avait compris durant son chemin du Dao onirique: l'Ancien Doigt Immortel!
+C'était le septième sort que, en dehors des sorts originels, il avait compris par lui-même durant son chemin du Dao onirique: l'Ancien Doigt Immortel!
 
 L'Ancien Doigt Immortel condensait la puissance des trois clans ancestraux en un seul point. Tout en possédant une force offensive dévastatrice, il dotait également l'utilisateur d'une capacité de régénération phénoménale.
 
@@ -56,11 +56,11 @@ En un instant, son doigt s'effondra cent mille, un million, dix millions de fois
 
 C'était l'Ancien Doigt Immortel!
 
-Cette capacité de récupération ne pouvait plus être classée comme un simple sort; c'était quelque chose qui ne devrait pas exister dans ce monde! Plus il progressait, plus la désintégration était effroyable. Lorsque le doigt de Wang Lin fut presque à trois pouces du front de l'homme d'âge moyen, le taux d'effondrement devint indescriptible.
+Cette capacité de récupération ne pouvait plus être classée comme un simple sort; c'était quelque chose qui ne devrait pas exister dans ce monde! Plus il progressait, plus la désintégration était effroyable. Lorsque le doigt de Wang Lin fut entièrement entré dans les trois pouces, touchant presque le front de l'homme d'âge moyen, le taux d'effondrement devint indescriptible.
 
 Finalement, le taux de régénération de Wang Lin surpassa celui de l'effondrement et son doigt fut totalement restauré. Ignorant la force destructrice qui tentait de le briser, il frappa entre les sourcils de l'homme d'âge moyen.
 
-Un grondement tonitruant traversa le corps du vieil homme. Il contenait une puissance capable de pulvériser une planète, jaillissant simultanément du doigt de Wang Lin et de l'homme d'âge moyen.
+Un grondement tonitruant balaya l'esprit du vieil homme. Il contenait une puissance capable de pulvériser une planète, jaillissant simultanément du doigt de Wang Lin et de l'homme d'âge moyen.
 
 Des fracas de tonnerre secouèrent les environs. Le brouillard entourant l'âme originelle de Wang Lin se dissipa et le vacarme fit également s'effondrer l'esprit du vieil homme. Ce choc affecta son corps, qui commença à lui aussi à se désagréger.
 
@@ -76,17 +76,17 @@ C'était un plan parfaitement calculé, mais malheureusement, l'adversaire étai
 
 « Arrêt! »
 
-D'un seul mot, le cristal en pleine désintégration se figea. À ce moment précis, le Sens Divin de Wang Lin balaya le cristal de mémoire, puis s'engouffra hors de l'esprit défaillant du vieil homme pour retourner dans son propre corps.
+D'un seul mot, le cristal en pleine désintégration se figea. À ce moment précis, l'âme originelle de Wang Lin enveloppa le cristal de mémoire, puis s'engouffra hors de l'esprit défaillant du vieil homme pour retourner dans son propre corps.
 
 Dès que son âme originelle fut de retour en lui, il retira sa main droite du front de l'homme qui hurlait de douleur et recula de plusieurs pas. Tandis qu'il se retirait, le cri misérable du vieil homme atteignit un paroxysme. Des grondements sourds émanèrent de son corps alors qu'il commençait à s'effondrer de l'intérieur. La puissance issue de son esprit détruisit sa conscience, tua son âme originelle, broya ses os, déchira sa chair et explosa vers l'extérieur.
 
 Le corps du vieil homme fut déchiré par l'énergie qui en jaillissait; alors que sa chair et son sang se dispersaient, une onde de choc puissante se propagea dans toutes les directions.
 
-L'impact brisa les statues environnantes que Wang Lin n'avait pas encore détruites. Certaines abritaient des Célestes en hibernation, mais ils n'eurent même pas le temps d'ouvrir les yeux que l'onde de choc les tuait dans leur sommeil.
+L'impact brisa les statues environnantes que Wang Lin n'avait pas encore détruites. Certaines abritaient des Célestes en convalescence, mais ils n'eurent même pas le temps d'ouvrir les yeux que l'onde de choc les tuait dans leur sommeil.
 
 Cette onde était la collision entre la puissance ancestrale et la puissance céleste de Wang Lin, incluant également la force du sceau de l'homme aux sept couleurs. Cette force destructrice était assez puissante pour ébranler le monde.
 
-Au moment où le corps du vieil homme explosa, au plus profond du Royaume Céleste Ancestral, là où se dressaient les quatre statues imposantes, le Tigre Blanc laissa échapper un rugissement empreint d'incrédulité, de choc et de terreur.
+Au moment où le corps du vieil homme explosa, au plus profond du Royaume Céleste Antique, là où se dressaient les quatre statues imposantes, le Tigre Blanc laissa échapper un rugissement empreint d'incrédulité, de choc et de terreur.
 
 « Ceci... Ceci est impossible! Comment a-t-il fait? Comment a-t-il pu briser le sceau du Souverain Céleste? Les trois pouces de ce sceau possèdent assez de puissance pour tout détruire; il est impossible de les endommager. Tout sort se désintègre devant lui! »
 
@@ -98,7 +98,7 @@ Les trois autres étaient également sous le choc.
 
 « Lui... il n'est qu'une fourmi d'un royaume inférieur, et pourtant il a réussi à le briser! » Dans l'autre statue, la Tortue Noire sortit, les yeux écarquillés par l'horreur et l'incrédulité. S'il ne l'avait pas constaté de son propre Sens Divin, il n'aurait jamais cru cela réel!
 
-« Cet enfant n'est pas ordinaire... Nous devons modifier nos plans à son égard. Le fait qu'il puisse briser le sceau du Souverain Céleste signifie qu'il possède un sort stupéfiant. Un tel pouvoir pourrait même ébranler le Continent des Immortels Célestes! » Un vieil homme sortit du vortex de la troisième statue. Il scruta l'horizon et eut le souffle coupé.
+« Cet enfant n'est pas ordinaire... Nous devons modifier nos plans à son égard. Le fait qu'il puisse briser le sceau du Souverain Céleste signifie qu'il possède un sort stupéfiant. Un tel pouvoir pourrait même ébranler le Continent Astral Immortel! » Un vieil homme sortit du vortex de la troisième statue. Il scruta l'horizon et eut le souffle coupé.
 
 L'Oiseau Vermillon resta silencieux. Il contemplait le monde à l'intérieur du vortex, son expression changeant sans cesse.
 

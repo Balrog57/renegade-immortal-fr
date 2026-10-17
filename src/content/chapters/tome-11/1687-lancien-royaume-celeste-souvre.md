@@ -32,7 +32,7 @@ Sur une planète sauvage et inhabitée, dépourvue d'hommes mais peuplée de nom
 
 La petite bête qui n'était pas encore morte en oublia de se débattre; elle leva la tête, pétrifiée.
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Le son était tellurique et, au huitième souffle, il devint presque démentiel, créant d'innombrables ondes qui résonnèrent à travers les quatre systèmes stellaires. À ce moment, on aurait dit que d'innombrables créatures de l'Ancien Royaume Céleste rugissaient; leur cri était ce grondement!
 

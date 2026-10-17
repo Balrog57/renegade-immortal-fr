@@ -8,13 +8,13 @@ slug: zi-xia
 ---
 « C'est elle... » Wang Lin ricana, une intention meurtrière envahissant son regard.
 
-Le vortex commença à disparaître un instant plus tard, et la silhouette floue à l'intérieur devint claire. C'était une femme vêtue d'une longue robe violette aux cheveux bleus. Elle était d'une beauté saisissante; si un mortel l'avait vue, il en aurait été instantanément charmé.
+Le vortex commença à disparaître un instant plus tard, et la silhouette floue à l'intérieur devint claire. C'était une femme vêtue d'une longue robe violette aux longs cheveux noirs flottant au vent. Elle était d'une beauté saisissante; si un mortel l'avait vue, il en aurait été instantanément charmé.
 
 Même les cultivateurs auraient été tentés de la prendre pour leur propre fourneau de culture.
 
-Cette femme était Zi Xia, de la Rivière Invoquée, la septième concubine! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même tenté de donner des ordres à Wang Lin. S'il n'avait pas eu à se soucier de son Arc Li Guang, elle aurait tenté de le tuer sur-le-champ.
+Cette femme était Zi Xia, de la Rivière Invoquée, la septième concubine! Contrairement à ses sœurs, elle était extrêmement loyale envers le Souverain Céleste aux Sept Couleurs et avait même réprimandé Wang Lin. Si elle n'avait pas craint son Arc Li Guang, après avoir senti que les pensées de Wang Lin différaient des siennes, elle aurait voulu le tuer.
 
-Cette femme n'était pas faible. Avant que Wang Lin ne maîtrise l'essence de la restriction, ce combat aurait été ardu; il n'aurait eu d'autre crainte que son Arc Li Guang. Cependant, maintenant qu'il possédait l'essence de la restriction, que sa lignée du Dao Antique était plus puissante et qu'il disposait du bras droit de Ye Mo ainsi que de la loi qu'il avait établie, la situation était totalement inversée. Même sans l'Arc Li Guang, il avait le pouvoir de tuer cette septième concubine!
+Cette femme n'était pas faible. Avant que Wang Lin ne maîtrise l'essence de la restriction, ce combat aurait été ardu; mais avec l'Arc Li Guang en main, elle le redoutait fortement. Cependant, maintenant qu'il possédait l'essence de la restriction, que sa lignée du Dao Antique était plus puissante et qu'il disposait du bras droit de Ye Mo ainsi que de la loi qu'il avait établie, la situation était totalement inversée. Même sans l'Arc Li Guang, il avait le pouvoir de tuer cette septième concubine!
 
 « Le Senior Qing Lin a dit autrefois que le Cercueil d'Évitement du Ciel lui appartenait... Cette femme est une concubine impériale céleste, elle doit donc connaître certains secrets de cet endroit... » Les yeux de Wang Lin s'illuminèrent et il agita sa main droite. L'épée de sang s'élança, et d'un pas, il disparut.
 

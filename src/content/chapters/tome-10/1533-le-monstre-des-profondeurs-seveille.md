@@ -52,7 +52,7 @@ Il était inutile de mentionner les cultivateurs présents; y compris Wang Lin, 
 
 « Si cet arc reconnaît un maître, il est un trésor. Sinon, il exigera votre force vitale pour être utilisé et sera extrêmement faible! Si l'un d'entre vous le désire, vous pouvez vous en servir pour jouer! » Sa voix résonna puis se dissipa lentement.
 
-Tout cela se produisit en un instant. La corde se rompit, la Formation de Scellement du Royaume s'effondra et d'innombrables vies furent fauchées. La corde semblait avoir libéré toute sa puissance, et le fragment brisé suivit la trajectoire de l'arc que le Vieux Fantôme Zhan avait projeté dans le Royaume Intérieur. Il se dirigeait droit sur Wang Lin!
+Tout cela se produisit en un instant. La corde se rompit, la Formation de Scellement du Royaume s'effondra et d'innombrables vies furent fauchées. La corde semblait avoir libéré toute sa puissance, et l'arc à la corde brisée, que le Vieux Fantôme Zhan avait projeté dans le Royaume Intérieur, se dirigeait droit sur Wang Lin!
 
 Était-ce une coïncidence ou non?
 
@@ -78,7 +78,7 @@ Sa vision se brouilla. Le prix pour obtenir cet arc était trop lourd. Alors qu'
 
 Pour contrôler cet arc, il fallait lui offrir sa propre force vitale. Autrement, même en le tenant, on ne pourrait jamais le bander!
 
-Tandis que Wang Lin ressentait l'aura obstinée de l'arc, la douleur intense le fit cracher du sang. Seul son buste subsistait. Hormis lors de son entrée dans la Tombe de l'Ordre Antique, une telle blessure était inouïe.
+Tandis que Wang Lin ressentait l'aura obstinée de l'arc, la douleur intense le fit cracher du sang. Seul son buste subsistait. Hormis lors de son entrée dans la Tombe de l'Ordre Antique, une telle blessure était rare.
 
 La Bête des Limbes dormait depuis qu'il avait dévoré la tempête dorée, mais il restait lié à Wang Lin. Cette douleur atroce pénétra son esprit et provoqua le réveil de la Bête des Limbes à cet instant même!
 
@@ -100,7 +100,7 @@ Tous les cultivateurs du Royaume Intérieur furent évacués par le Maître Hong
 
 Quant à Wang Lin, ils voulaient le sauver, mais il se trouvait précisément là où la tempête dorée avait été expulsée; la puissance destructrice leur interdisait toute approche.
 
-Les vénérables Ling Dong et Zhou Jin durent également battre en retraite face à l'éruption de la tempête dorée!
+L'Estimé Ling Dong et Zhou Jin durent également battre en retraite face à l'éruption de la tempête dorée!
 
 Alors que la tempête se propageait, la Formation de Scellement du Royaume s'effondra à grande échelle. Le jade se dissipa rapidement, se répandant dans toute la formation. Lorsque le jade disparut, le seigneur du Palais de la Punition Céleste fut libéré. Cependant, sitôt libre, il fut dévoré par la tempête dorée. Il n'eut même pas le temps de crier que son âme originelle, les Flammes Joss, et tout ce qui l'entourait disparurent.
 
@@ -110,8 +110,8 @@ Au cœur de cette tempête, la Formation de Scellement du Royaume s'effondra, l'
 
 La tempête dorée se propagea jusqu'à un certain point avant de libérer une déflagration qui résonna dans les deux Royaumes, avant d'exploser totalement!
 
-Une fois la tempête passée, le premier champ de bataille s'était transformé en un trou noir gigantesque s'étendant sur des milliers de lieues, obstruant l'ouverture de la Formation de Scellement du Royaume.
+Une fois la tempête passée, le premier champ de bataille s'était transformé en un trou noir gigantesque envahissant le ciel étoilé à perte de vue, obstruant l'ouverture de la Formation de Scellement du Royaume.
 
 Après avoir recraché la tempête dorée, la Bête des Limbes avait ouvert sa gueule pour dévorer Wang Lin et l'arc. Alors que la force destructrice commençait à se propager, il s'était transformé en une graine de moutarde avant de disparaître.
 
-Des grondements tonitruants continuaient de sourdre du trou noir qui scellait l'ouverture entre les Royaumes Intérieur et Extérieur. Ce son allait persister pendant dix, cent, mille, voire des dizaines de milliers d'années, sans montrer le moindre signe de dissipation... La première bataille s'achevait de la manière la plus bizarre qui soit...
+Des grondements tonitruants continuaient de sourdre du trou noir qui scellait l'ouverture entre les Royaumes Intérieur et Extérieur. Ce son allait persister pendant dix, cent, mille, dix mille ans, sans montrer le moindre signe de dissipation... La première bataille s'achevait de la manière la plus bizarre qui soit...

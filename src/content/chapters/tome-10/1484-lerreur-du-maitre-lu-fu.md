@@ -20,13 +20,13 @@ En un éclair, le rideau de lumière s'intensifia pour atteindre mille couches, 
 
 La lueur du rideau perça l'espace et se propagea dans toutes les directions. Elle inonda la partie orientale de Luotian. Même les trois autres domaines purent apercevoir cette lumière puissante à l'est!
 
-Tout Luotian fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, toutes les planètes de culture et l'armée de cultivateurs en mouvement virent tous cette lumière jaillir de l'est!
+Tout Luotian fut stupéfait par ce spectacle. Les groupes de cultivateurs déplaçant les planètes, tous les clans de cultivation et l'armée de cultivateurs en migration virent tous cette lumière jaillir de l'est! Même s'ils ne pouvaient distinguer les bouleversements de ce lointain endroit, ils voyaient cette lumière venir de l'immensité!
 
 Dans une zone éloignée de la planète Dong Ling, là où se déroulaient les préparatifs principaux de Luotian, plus de 600 planètes s'étaient rassemblées pour former la formation. Au plus profond du vortex, le Maître Lu Fu regardait au loin.
 
 À ses côtés, le Maître Yan Leizi, le Dieu du Sang et Lie Yunzi étaient pâles. Ils ressentaient la lumière infinie émanant de la planète Dong Ling.
 
-« La planète Dong Ling existe depuis des temps immémoriaux. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
+« La formation de la planète Dong Ling nous vient de l'Antiquité. Des rumeurs disent que la famille Lu a entretenu un esprit de formation pendant des dizaines de milliers d'années. Une fois activée et les esprits invoqués, sa puissance serait terrifiante. Je me demande si Wang Lin pourra la briser... »
 
 « J'ignore comment sa culture a pu atteindre un niveau aussi effrayant. Cependant, il faudra du temps pour percer la formation de la planète Dong Ling... »
 
@@ -68,7 +68,7 @@ En un éclair, le poing géant percuta les 99 millions de couches de lumière.
 
 Le rideau de lumière gronda et brilla d'un éclat aveuglant sous l'impact. Des grondements tonitruants résonnèrent à travers tout le domaine stellaire!
 
-Sans la moindre résistance, les couches du rideau s'effondrèrent! Plus de 30 millions de couches, 60 millions, 80 millions, 90 millions... C'était comme si le poing avait frappé la surface de l'eau pour s'y enfoncer brutalement. La formation se brisa et se désintégra rapidement!
+Sans la moindre résistance, les couches du rideau s'effondrèrent! Plus de 90 millions de couches, 80 millions, 60 millions, 30 millions... C'était comme si le poing avait frappé la surface de l'eau pour s'y enfoncer brutalement. La formation se brisa et se désintégra rapidement!
 
 Les strates du rideau continuaient de s'écrouler, incapables d'arrêter le coup. En une seule respiration, le poing traversa les 99 millions de couches!
 
@@ -90,7 +90,7 @@ De nombreux cultivateurs furent déchiquetés lors de l'effondrement des planèt
 
 Le coup de poing de Wang Lin chargea à travers le vortex et fonça vers la planète Dong Ling!
 
-Alors que son poing avançait, les douze planètes restantes tentèrent de s'opposer à lui, mais elles s'effondrèrent une à une!
+Alors que son poing avançait, les dix et quelques planètes restantes, entraînées par la formation, se jetèrent toutes ensemble sur lui, mais elles s'effondrèrent une à une à son contact!
 
 Voyant que le poing de Wang Lin allait s'abattre sur la planète Dong Ling, un cri lugubre monta du clan Lu, dans la partie nord de l'astre. Les près de dix mille cultivateurs crachèrent tous du sang vers les quelques dizaines de vieillards au centre. Les corps de ces derniers commencèrent immédiatement à gonfler.
 
@@ -116,7 +116,7 @@ Avant que la pluie de sang n'atteigne le sol, le coup de poing de Wang Lin la tr
 
 La planète entière trembla et la terre, dans le nord, s'effondra strate après strate. Les près de dix mille cultivateurs périrent tous. Un gouffre gigantesque, large de plusieurs centaines de milliers de pieds, apparut!
 
-Le trou atteignit 60 % de la circonférence de la planète Dong Ling. Le gouffre était d'un noir absolu et exhalait une odeur de sang. La planète Dong Ling tressaillit. Bien qu'elle n'explosât pas, des tsunamis encore plus puissants furent déclenchés. L'océan fut projeté dans les airs, la moitié tombant dans le gouffre, tandis que l'autre moitié retombait comme une pluie sur la planète!
+Le trou s'enfonçait dans la planète Dong Ling sur 60 % de sa profondeur. Le gouffre était d'un noir absolu et exhalait une odeur de sang. La planète Dong Ling tressaillit. Bien qu'elle n'explosât pas, des tsunamis encore plus puissants furent déclenchés. L'océan fut projeté dans les airs, la plus grande partie tombant dans le gouffre, tandis que le reste retombait comme une pluie sur la planète!
 
 Bientôt, le fond du gouffre créé par le coup de Wang Lin devint un océan qui se remplissait lentement... Vu d'en haut, l'empreinte du poing était flagrante; elle ressemblait exactement à celle d'un mortel frappant dans la boue!
 

@@ -6,9 +6,9 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1621 - Ten Thousand Void Bone Gate
 slug: la-porte-des-dix-mille-os-du-vide
 ---
-Il n'absorba pas la puissance, et il n'envisagea même pas de le faire. Pour l'instant, il voulait que la Porte du Vide entre en éruption afin que sa culture augmente considérablement après avoir atteint la troisième étape!
+Il ne la nourrit pas, et n'avait pas même le temps d'y songer. Ce qu'il voulait, c'était que la Porte du Vide entre en éruption afin que sa culture augmente considérablement après avoir atteint la troisième étape!
 
-S'il absorbait la puissance de la Porte du Vide dès maintenant, il deviendrait immédiatement un cultivateur du Nirvana du Vide au stade intermédiaire. Cependant, il ne le souhaitait pas; ce n'était là que deux essences.
+S'il absorbait la puissance de la Porte du Vide dès maintenant, il deviendrait immédiatement un cultivateur du Vide du Nirvana au stade intermédiaire. Cependant, il ne le souhaitait pas; ce n'était là que deux essences.
 
 Alors que Wang Lin pointait du doigt, un rugissement furieux sembla émaner du vortex formé par l'effondrement de la Porte du Vide. Tandis que le vortex tournait avec rapidité, la troisième Porte du Vide apparut!
 
@@ -20,21 +20,21 @@ Trois Portes du Vide apparurent simultanément dans le monde. De loin, ce specta
 
 « Trois Portes du Vide! »
 
-« Il... Que diable fait-il? Après avoir déployé tant d'efforts pour ouvrir la Porte du Vide... »
+« Il... Que diable veut-il faire? Il enchaîne ainsi les assauts contre des Portes du Vide qui mettent déjà en difficulté les cultivateurs du troisième stade... Il... »
 
 « Même parmi les Cinq Maîtres du Système Stellaire Antique, je n'ai jamais entendu parler de quelqu'un capable de faire une telle chose... Le Seigneur du Royaume Scellé... Le Seigneur du Royaume Scellé... »
 
 L'expression de Wang Lin restait calme alors qu'il contemplait les trois Portes du Vide. Il fit un pas en avant et chargea comme une météorite vers elles, sous les yeux de tous.
 
-« Kar... » Tandis que Wang Lin s'élançait, sa main droite s'étira, les doigts écartés en une paume ouverte. Au moment où il se referma sur la porte, sa main droite pressa violemment.
+« Cause... » Tandis que Wang Lin s'élançait, sa main droite s'étira, les doigts écartés en une paume ouverte. Au moment où il se referma sur la porte, sa main droite pressa violemment.
 
-« Ma... » Au moment où sa main s'abattit, sa voix résonna et finit par former le dernier mot!
+« Effet... » Au moment où sa main s'abattit, sa voix résonna et finit par former le dernier mot!
 
-« Imprimer... »
+« Empreinte... »
 
 L'Empreinte Karmique. Wang Lin avait passé plus de 70 ans dans le Dao du Rêve à comprendre cela à travers le karma. C'était son cinquième sortilège originel.
 
-Dès qu'il prononça « imprimer », sa main droite s'abattit sur la troisième Porte du Vide et une lueur glaciale passa dans ses yeux. Ses doigts se crispèrent avec force et, dans un fracas assourdissant, sa main se referma en un poing.
+Dès qu'il prononça « empreinte », sa main droite s'abattit sur la troisième Porte du Vide et une lueur glaciale passa dans ses yeux. Ses doigts se crispèrent avec force et, dans un fracas assourdissant, sa main se referma en un poing.
 
 C'était comme si cette prise avait saisi le karma même du monde. La main droite de Wang Lin se retira de la porte.
 
@@ -44,7 +44,7 @@ Au moment où il leva sa main droite, un grondement sourd émana de la troisièm
 
 La troisième Porte du Vide s'effondra!
 
-Au moment même de cet effondrement, le rire de Wang Lin retentit et l'essence karmique enveloppa son corps. L'aura autour de lui augmenta prodigieusement, passant du stade intermédiaire au stade avancé du Nirvana du Vide!
+Au moment même de cet effondrement, le rire de Wang Lin retentit et l'essence karmique enveloppa son corps. L'aura autour de lui augmenta prodigieusement, passant du stade intermédiaire au stade avancé du Vide du Nirvana!
 
 Depuis les temps anciens, nul n'avait jamais accompli un tel exploit tout en brisant la Porte du Vide!
 
@@ -62,7 +62,7 @@ Alors que Wang Lin rugissait, ses mains semblaient contenir le pouvoir même de 
 
 La quatrième Porte du Vide s'effondra!
 
-À l'instant où cette porte céda, l'aura de Wang Lin explosa de nouveau. Elle passa du stade avancé au sommet du Nirvana du Vide. Il se tenait désormais au faîte du Nirvana du Vide!
+À l'instant où cette porte céda, l'aura de Wang Lin explosa de nouveau. Elle passa du stade avancé au sommet du Vide du Nirvana. Il se tenait désormais au faîte du Vide du Nirvana!
 
 Une fissure était sur le point d'apparaître entre ses sourcils. L'intérieur de la faille était noir, comme s'il contenait un autre monde!
 
@@ -112,6 +112,6 @@ Près de dix mille personnes ne purent même pas pousser un cri avant de mourir 
 
 « Ceci... c'est... Cette apparence, cette porte d'os blancs... Serait-ce la légendaire Porte des Dix Mille Os du Vide? » Le Maître Céleste Dieu du Vide regarda ce crâne colossal et une horreur sans fin envahit ses yeux.
 
-« La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre immense à franchir. Les êtres capables de déclencher cette porte sont extrêmement rares, mais tant qu'ils survivent, ils deviendront assurément de puissants maîtres à l'avenir! »
+« La concubine impériale céleste disait que la Porte des Dix Mille Os du Vide était un gouffre céleste de sa terre natale. Là-bas, les êtres capables de déclencher cette porte sont extrêmement rares, mais s'ils ne meurent pas prématurément, ils deviendront assurément de puissants maîtres à l'avenir! »
 
 « La Porte des Dix Mille Os du Vide... L'ancien Seigneur du Royaume Scellé disait que quiconque parviendrait à déclencher cette porte pour atteindre la troisième étape aurait un avenir inimaginable. Il affirmait que cette porte d'os n'appartenait pas à ce monde... mais était un signe des cieux provenant de sa terre natale! » Le Maître Nan Yunzi contemplait l'étrange porte d'os, les yeux écarquillés par l'incrédulité.

@@ -16,7 +16,7 @@ L'expression de la femme demeurait indifférente et ses yeux semblaient contenir
 
 La froideur de sa voix s'estompa légèrement alors qu'elle contemplait l'enfant dans ses bras: « Tout le monde dit que Monsieur a percé les secrets du monde, comprend le karma, est indifférent à la vie et à la mort, et marche entre le vrai et le faux. Pourriez-vous offrir à cet enfant sa propre voie? »
 
-« Les deux parents de cet enfant sont morts à sa naissance. Je ne faisais que passer lorsque je l'ai vue; elle était déjà raide, à l'agonie. Par pitié, j'ai regardé de plus près et j'ai découvert qu'elle possédait un talent exceptionnel. Elle porte en elle l'aura des cinq éléments. Si elle survit, elle sera un soleil pour la planète Suzaku! »
+« Les deux parents de cet enfant sont morts à sa naissance. Je ne faisais que passer lorsque je l'ai vue dans la neige; elle était déjà raide, à l'agonie. Par pitié, j'ai regardé de plus près et j'ai découvert qu'elle possédait un talent exceptionnel. Elle porte en elle l'aura des cinq éléments. Si elle survit, elle sera un soleil pour la planète Suzaku! »
 
 « Cependant, sa vie sera semée d'embûches. Je suis douée en divination et j'ai prédit que cet enfant ferait face à une grande calamité. Puisque je l'ai rencontrée, je me suis impliquée et je deviendrai celle qui l'aidera à surmonter cette épreuve. »
 
@@ -32,7 +32,7 @@ Wang Lin regarda le bébé et dit doucement: « Laisse-moi la prendre. »
 
 La femme hésita un instant avant de confier l'enfant à Wang Lin. Il prit le bébé et la contempla.
 
-C'était une petite fille. Bien qu'elle pleurât, elle était très adorable. Il semblait y avoir un point rouge imprimé sur son âme.
+C'était une petite fille. Bien qu'elle pleurât, elle était très adorable. Un point rouge se trouvait entre ses sourcils, comme imprimé sur son âme.
 
 Les larmes coulaient de ses yeux, mouillant la couverture qui l'enveloppait.
 
@@ -90,7 +90,7 @@ Wang Lin observa la scène et son corps trembla violemment.
 
 À la surface de la mer, vers l'est, parmi les brumes du ciel, une image illusoire apparut.
 
-L'image représentait le cratère d'un volcan en pleine éruption. La montagne tremblait et deux immenses fissures, semblables à deux dragons entrelacés, se dessinaient. C'était un présage.
+L'image représentait le cratère d'un volcan en pleine éruption. La montagne tremblait et deux immenses fissures, semblables à deux dragons entrelacés, se dessinaient, comme une marque.
 
 Une lave infinie jaillissait et des colonnes de fumée s'élevaient, recouvrant le ciel de la vision.
 
@@ -104,7 +104,7 @@ Tandis que Wang Lin fixait ce monde illusoire, son esprit vacillait.
 
 « Esprit de la mer, ne sois pas en colère... Esprit de la mer, ne sois pas en colère... » Les mortels tremblaient et s'agenouillaient devant cette vision incompréhensible. Leurs cœurs étaient saisis d'effroi. Bien que ce ne fût pas la première fois qu'ils voyaient de tels phénomènes, ils restaient terrifiés.
 
-Les légendes anciennes racontaient que si quelqu'un apercevait une illusion en mer, c'était que l'esprit des océans était irrité et qu'il s'apprêtait à punir toute vie marine...
+Les légendes anciennes racontaient que si quelqu'un apercevait une illusion en mer, c'était que l'esprit des océans était irrité et qu'il s'apprêtait à punir tous les êtres qui vivent de la mer...
 
 Wang Lin, plongé dans sa contemplation, ne vit pas les mortels se relever pour jeter de lourdes cargaisons à la mer, tentant ainsi d'offrir un sacrifice pour apaiser la colère de l'esprit.
 

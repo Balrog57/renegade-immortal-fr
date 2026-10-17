@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1674 - Tearing the Heavens!!"
 slug: dechirer-les-cieux
 ---
-Les cheveux de l'homme d'âge moyen qui se faisait appeler l'enfant de Ye Mo flottaient dans l'air alors qu'il se tenait là. À chacun de ses mouvements, les trois ombres des anciens clans rugissaient sans relâche et chargeaient Wang Lin.
+Les cheveux de l'homme d'âge moyen qui se faisait appeler l'enfant de Ye Mo flottaient dans l'air alors que son corps de 10 000 pieds se dressait dans l'espace étoilé. Tandis qu'il agitait les bras, les trois ombres des anciens clans rugissaient sans relâche et chargeaient Wang Lin.
 
 Derrière ces trois membres des anciens clans se dressait l'ombre du corps gigantesque de Ye Mo qui, à cet instant précis, marchait vers Wang Lin.
 
@@ -38,7 +38,7 @@ L'enfant de Ye Mo lui rendit son regard avec une intention meurtrière monstrueu
 
 À cet instant, il leva la tête, l'intention de combat embrasant ses yeux. Il fit un pas en avant, mais sans reformer d'illusoires corps, il s'élança vers le vide et pointa l'espace devant lui.
 
-« Étoiles, devenez les cieux! » rugit l'enfant de Ye Mo. Aussitôt, l'espace à l'extérieur de la formation circulaire se distordit. C'était comme si une puissance colossale avait surgi pour bouleverser le Royaume Intérieur.
+« Étoiles, devenez les cieux! » rugit l'enfant de Ye Mo. Aussitôt, l'espace à l'extérieur de la formation circulaire se distordit. C'était comme si une puissance colossale avait surgi pour troubler cette région stellaire.
 
 Les yeux de Wang Lin se rétrécirent. Cette étrange distorsion spatiale le choqua profondément et lui donna un pressentiment funeste, faisant dresser les poils de son corps.
 
@@ -46,7 +46,7 @@ Wang Lin connaissait trop bien ce sentiment; il l'avait accompagné durant la ma
 
 Un petit bouclier se trouvait au cœur de cette lumière. Ce bouclier avait été restauré et, bien qu'il ne fût pas indestructible, il contenait un sortilège nommé Rêve des Temps Anciens!
 
-Autrefois, avec le faible niveau de culture de Wang Lin, l'usage du Rêve des Temps Anciens suffisait à tuer un cultivateur du Fléau Céleste. Aujourd'hui, grâce à ses recherches, il avait réussi à le transformer en utilisant le Dao du Rêve.
+Autrefois, avec le faible niveau de culture de Wang Lin, l'usage du Rêve des Temps Anciens suffisait à tuer un cultivateur du Fléau Céleste. Aujourd'hui, utilisé avec son aura antique, il possédait une puissance suprême. De plus, grâce à ses recherches, il avait réussi à le transformer en utilisant le Dao du Rêve.
 
 Le bouclier de lumière verte en main, la puissance ancienne de Wang Lin jaillit de son corps pour pénétrer le bouclier, invoquant ainsi le sortilège.
 
@@ -78,11 +78,11 @@ Alors que le pied géant s'abattait sur lui, l'enfant de Ye Mo poussa un cri et 
 
 Après avoir fendu ce pied colossal, l'enfant de Ye Mo se retourna et fixa Wang Lin au loin. Il chargea vers lui tout en déchirant les couches du ciel. Le monde gronda et de vastes failles apparurent partout. Chaque ombre des trois anciens clans qui tentait de lui barrer la route fut fendue en deux par cette force capable de lacérer le firmament!
 
-L'enfant de Ye Mo était inarrêtable lorsqu'il utilisait ce sort; c'était comme si tout être vivant sur son passage était condamné à être mis en pièces. Le Rêve des Temps Anciens ne put absolument rien stopper. Son rugissement, empreint de folie, perçait les sièges successifs des anciens clans. Il se fraya un chemin sanglant et se retrouva à moins de 1 000 pieds de Wang Lin.
+L'enfant de Ye Mo était inarrêtable lorsqu'il utilisait ce sort; c'était comme si tout être vivant sur son passage était condamné à être mis en pièces. Le Rêve des Temps Anciens ne put absolument rien stopper. Son rugissement, empreint de folie, perçait les encerclements successifs des trois anciens clans. Il se fraya un chemin sanglant et se retrouva à moins de 1 000 pieds de Wang Lin.
 
-Les yeux de Wang Lin étaient emplis d'une intention de combat solennelle. Alors que l'enfant de Ye Mo approchait, il leva la main droite pour former une paume et la pressa vers le bas.
+Les yeux de Wang Lin étaient emplis d'une intention de combat solennelle. Alors que l'enfant de Ye Mo approchait, il leva la main droite pour former une paume et frappa vers l'avant.
 
-Alors que cette paume descendait, l'enfant de Ye Mo rugit. La paume de Wang Lin était semblable aux cieux, mais l'adversaire utilisa le sort Déchirer les Cieux pour tenter de la briser.
+Alors que cette paume s'abattait, l'enfant de Ye Mo rugit. La paume de Wang Lin était semblable aux cieux, mais l'adversaire utilisa le sort Déchirer les Cieux pour tenter de la briser.
 
 La main droite de Wang Lin frappa et ses doigts se serrèrent en un poing, faisant apparaître l'Empreinte du Karma. Son poing extirpa une aura invisible de la main de l'enfant de Ye Mo. Wang Lin écrasa cette aura, ce qui fit hésiter l'adversaire un instant, mais celui-ci continua de déchirer Wang Lin. Ce dernier ressentit une douleur fulgurante entre ses sourcils, comme si deux mains gigantesques tentaient de le scinder en deux!
 

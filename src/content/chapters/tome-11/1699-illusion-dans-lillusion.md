@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1699 - Illusion Within Illusion!"
 slug: illusion-dans-lillusion
 ---
-« Que faites-vous?! » Les yeux de la femme s’écarquillèrent, pétris de choc. En un clin d'œil, elle recula de plusieurs milliers de pieds. Sa main traça un sceau et une lumière aux sept couleurs enveloppa son corps, tandis que sept longs sabres apparurent et tournèrent autour d'elle en rotation.
+« Que faites-vous?! » Les yeux de la femme s’écarquillèrent, pétris de choc. En un clin d'œil, elle recula de plusieurs milliers de pieds. Sa main traça un sceau et une lumière aux sept couleurs enveloppa son corps, tandis que sept longues épées apparurent et tournèrent autour d'elle en rotation.
 
 Une ombre gigantesque se manifesta derrière elle: une fleur aux sept couleurs qui s'épanouissait de manière démoniaque, exhalant un parfum enivrant.
 
-L'expression de Wang Lin resta imperturbable. Il se tint là, immobile, observant le Daoïste aux Sept Couleurs qui émergeait du troisième niveau. L'air indifférent, ce dernier leva la main droite. Un soleil radieux apparut au creux de sa paume!
+L'expression de Wang Lin resta imperturbable. Il se tint là, immobile, observant le Daoïste aux Sept Couleurs qui émergeait du troisième niveau. L'air indifférent, ce dernier garda le silence et leva la main droite; le quatrième pont gronda et trembla. Un soleil radieux apparut au creux de sa paume!
 
-Le soleil n'était pas grand, il n'avait que la taille de sa main. Pourtant, la lumière et la chaleur qu'il dégageait étaient dignes d'un véritable astre.
+Le soleil n'était pas grand, il n'avait que la taille de sa main. Pourtant, la lumière et la chaleur qu'il dégageait étaient dignes d'un véritable astre tenu dans sa main. Il le lança d'un geste vers l'avant et le soleil fonça en rugissant sur Wang Lin.
 
 Les cheveux de Wang Lin commencèrent aussitôt à brûler et une douleur fulgurante envahit son corps. Son visage se crispa sous l'intensité de la souffrance, comme si sa chair allait fondre sous l'éclat solaire.
 
@@ -42,7 +42,7 @@ Wang Lin se leva silencieusement et agita la main droite. L'ombre antique se dis
 
 « L'arrivée du Daoïste aux Sept Couleurs était une illusion. Il nous a peut-être réellement poursuivis, mais il n'est jamais apparu devant nous. » Le regard de Wang Lin restait rivé sur le visage fantomatique de la voile.
 
-« Vous deux, sœurs, êtes très intéressantes. Vous pensez que tout échappe à vos calculs. Vous m'avez attiré ici par une menace de lumière et d'ombre pour me contraindre à remettre le Serment de Sang... Votre sœur aînée est encore plus brillante. Dès mon entrée ici, elle a créé un monde d'illusions. Elle a engendré la poursuite du Daoïste aux Sept Couleurs pour nous mener là.
+« Vous deux, sœurs, êtes très intéressantes. Vous pensez que tout n'est que le fruit de vos calculs. Vous m'avez attiré ici par une menace de lumière et d'ombre pour me contraindre à remettre le Serment de Sang... Votre sœur aînée est encore plus brillante. Dès mon entrée ici, elle a créé un monde d'illusions. Elle a engendré la poursuite du Daoïste aux Sept Couleurs pour nous mener là.
 
 « Puis, elle est même allée plus loin en agissant dans votre dos. Alors que je m'apprêtais à étudier les restrictions, elle a créé une illusion dans l'illusion, de sorte que je ne puisse pas la percer. Dans cette illusion imbriquée, elle a failli me forcer à remettre le Serment de Sang...
 
@@ -50,9 +50,9 @@ Wang Lin se leva silencieusement et agita la main droite. L'ombre antique se dis
 
 Le visage de Fan Shanlu était d'une pâleur mortelle tandis qu'elle repensait méticuleusement à chaque événement. Son expression devint progressivement sombre. Elle était certaine que les paroles de Wang Lin étaient vraies: elle était bel et bien tombée dans l'illusion de sa sœur!
 
-« Pour que votre sœur possède un sort d'illusion aussi puissant, je présume que la Secte des Âmes est célèbre pour ses sorts d'illusion sur le Continent Astral Immortel. Des illusions, toujours des illusions... » Wang Lin prit une profonde inspiration.
+« Pour que votre sœur possède un sort d'illusion aussi puissant, je présume que la Secte de la Grande Âme est célèbre pour ses sorts d'illusion sur le Continent Astral Immortel. Des illusions, toujours des illusions... » Wang Lin prit une profonde inspiration.
 
-Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard complexe: « La Secte des Âmes est en effet renommé pour ses sorts d'illusion. Tout le monde n'est pas apte à les apprendre. Ma sœur possède ce talent et a déjà atteint le stade de la double illusion!
+Fan Shanlu réfléchit un instant, puis parla d'une voix douce, le regard complexe: « La Secte de la Grande Âme est en effet renommée pour ses sorts d'illusion. Tout le monde n'est pas apte à les apprendre. Ma sœur possède ce talent et a déjà atteint le stade de la double illusion!
 
 « L'illusion dans l'illusion dont vous parliez était la double illusion. Un pas de plus, et ce serait la triple illusion; nous n'aurions alors pu nous en échapper. »
 

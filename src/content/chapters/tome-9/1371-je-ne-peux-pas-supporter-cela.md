@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1371 - I Can’t Endure It
 slug: je-ne-peux-pas-supporter-cela
 ---
-« Maître, je suis de retour. Les pilules sont les articles les plus chers ici, bien plus que les trésors. Il existe également un type de marionnette très prisé. Bien qu'elle ne soit pas très puissante, elle est très populaire: il suffit d'y imprimer son sens divin pour pouvoir la contrôler à volonté! »
+« Maître, je suis de retour. Les pilules sont les articles les plus chers ici, bien plus que les trésors. Il existe également un type de marionnette très prisé. Ces marionnettes ont des niveaux de culture variés, mais elles sont très populaires: il suffit d'y imprimer son sens divin pour pouvoir la contrôler à volonté! »
 
 Zhong Grand Rouge s'exprimait avec un grand enthousiasme.
 
@@ -70,7 +70,7 @@ Les yeux du vieillard se rétrécirent soudainement alors qu'il examinait l'obje
 
 « C'est une pilule de haute qualité! Elle convient parfaitement à ma culture et elle est extrêmement rare! Petit Frère Zhong, ceci... »
 
-Zhong Grand Rouge rit et joignit les mains: « Ce n'est rien, ce genre de pilule est inutile pour le Maître. Je vois que vous êtes au stade intermédiaire de la Formation de l'Âme depuis longtemps, j'imagine que cette pilule vous sera utile. Acceptez-la simplement. »
+Zhong Grand Rouge rit et joignit les mains: « Ce n'est rien, ce genre de pilule est inutile pour le Maître. Je vois que vous êtes au stade avancé de la Formation de l'Âme depuis longtemps, j'imagine que cette pilule vous sera utile. Acceptez-la simplement. »
 
 Le vieil homme prit une profonde inspiration et, abandonnant toute politesse, rangea rapidement les pilules. Il regarda Zhong Grand Rouge et murmura: « Petit Frère Zhong, le niveau de culture de ton maître... pourrait-il être... » L'homme hésita avant de poursuivre: « Pourrait-il être au stade Yin et Yang? »
 
@@ -96,7 +96,7 @@ Voyant Zhong Grand Rouge acquiescer, le vieillard réfléchit un instant avant d
 
 Il prit la tête du cortège et ils s'élancèrent au loin.
 
-Il y avait une ville en ruine dans la zone ouest de la planète. Elle semblait délabrée, avec des murs brisés par endroits, mais elle était extrêmement animée, parcourue par une multitude de cultivateurs.
+Il y avait une ville en ruine dans la zone ouest de la planète, entourée d'un désert. Elle semblait délabrée, avec des murs brisés par endroits, mais elle était extrêmement animée, parcourue par une multitude de cultivateurs.
 
 Le vieillard connaissait manifestement bien les lieux. Il mena Zhong Grand Rouge vers un bâtiment relativement intact et ils s'y introduisirent prudemment.
 
@@ -106,7 +106,7 @@ Les silhouettes de Zhong Grand Rouge et du vieillard furent remarquées par beau
 
 Dès qu'ils pénétrèrent dans la salle, le corps de Zhong Grand Rouge trembla sous l'effet d'une énergie froide émanant de toutes parts. Sa culture étant insuffisante pour y résister, l'énergie pénétra immédiatement en lui. Ce fut comme si un marteau géant s'abattait sur son cœur; il cracha aussitôt une bouchée de sang.
 
-Le vieil homme s'en sortait mieux, mais son visage était pâle. Il s'agenouilla rapidement et dit: « Nos intentions sont nobles, juniors, nous souhaitons simplement acheter une marionnette. »
+Le vieil homme s'en sortait mieux, mais son visage était pâle. Il s'agenouilla rapidement et dit: « Nous, vos juniors, n'avons aucune mauvaise intention, nous souhaitons simplement acheter une marionnette. »
 
 La salle était immense et une statue trônait au centre. C'était une sculpture sombre représentant un scorpion, la queue dressée, dégageant une aura glaciale. L'énergie froide qui avait fait cracher du sang à Zhong Grand Rouge provenait de ce scorpion.
 
@@ -122,7 +122,7 @@ L'expression de l'homme d'âge moyen ne changea pas alors qu'il tendait la main.
 
 « C'est une pilule d'âme! » Le regard de l'homme retomba sur Zhong Grand Rouge, puis il demanda lentement: « En as-tu d'autres? »
 
-Zhong Grand Rouge eut un sourire amer: « Il n'y en a qu'une seule. » Sans attendre la question suivante, il sortit la seconde pilule.
+Zhong Grand Rouge eut un sourire amer: « Il m'en reste une. » Sans attendre la question suivante, il sortit la seconde pilule.
 
 Tenant les deux pilules, l'homme d'âge moyen continua de jauger Zhong Grand Rouge. Après un long moment, il détourna le regard. Il se disait que cet individu avait dû avoir une chance insolente; ces pilules étaient rares, et en posséder deux était déjà considérable.
 
@@ -136,7 +136,7 @@ Ce n'est qu'une fois parti que Zhong Grand Rouge et le vieillard échangèrent u
 
 Il récupéra rapidement la marionnette et partit avec le vieil homme maigre.
 
-Quant à l'homme d'âge moyen, après être entré dans le temple, il s'enfonça sous terre. Un autre monde se cachait là: une tour souterraine dont la salle n'était que le sommet. C'était le deuxième étage, où trônait également une statue de scorpion, sur laquelle un jeune homme était assis.
+Quant à l'homme d'âge moyen, après avoir pénétré au fond de la salle, il s'enfonça sous terre. Un autre monde se cachait là: une tour souterraine dont la salle n'était que le sommet. C'était le deuxième étage, où trônait également une statue de scorpion, sur laquelle un jeune homme était assis.
 
 Le jeune homme semblait absorber la puissance de la statue pendant sa culture. À l'arrivée de l'homme d'âge moyen, il ouvrit les yeux.
 
@@ -178,7 +178,7 @@ Zhong Grand Rouge réfléchit longuement avant de lui relater l'événement. Voy
 
 Voyant le silence de Wang Lin, et sentant son expression devenir encore plus menaçante, son cœur trembla. Il murmura: « Le Maître s'est enfui vers la Terre Déchue pour échapper à ses poursuivants. Ce petit peut endurer... »
 
-Avant qu'il n'ait fini, le reniflement froid de Wang Lin et la pâleur de son visage le coupèrent net.
+Avant qu'il n'ait fini, le reniflement froid de Wang Lin le coupa net, et son visage devint encore plus pâle.
 
 « Quelle méthode empoisonnée. Peu importe le temps que tu passeras en culture fermée, tu ne t'en remettras pas facilement. Cette personne a brisé la trajectoire de ta culture et a laissé une empreinte de sens divin... »
 
@@ -214,7 +214,7 @@ Trois respirations passèrent en un éclair et la main droite de Wang Lin s'abat
 
 Ce spectacle de foudre infinie choqua le cœur de tous ceux qui fuyaient. Dans un fracas assourdissant, la terre trembla violemment et le filet de foudre s'écrasa. La ville entière s'effondra; même la tour fut pulvérisée, transformant la cité en un champ de ruines.
 
-D'innombrables fissures, profondes de plus de mille pieds, se creusèrent!
+D'innombrables fissures s'ouvrirent dans la terre, qui s'enfonça profondément de mille pieds!
 
 Cela fit apparaître la tour cachée sous terre, révélant plus de la moitié de sa structure! Le sommet étant déjà détruit, le vieil homme nommé Zhang regarda le ciel. En voyant Zhong Grand Rouge, son esprit vacilla.
 

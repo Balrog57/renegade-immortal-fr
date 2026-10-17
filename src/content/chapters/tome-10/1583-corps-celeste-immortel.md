@@ -10,19 +10,19 @@ Ce sort de divination était similaire à celui que possédait l'Omniscient, mai
 
 Dès leur apparition, les cercles noirs commencèrent à s'infecter. Le corps de Wang Lin trembla et il eut la sensation que la mort approchait.
 
-« Je prédis que votre corps pourrira au premier souffle! » La femme sourit en regardant Wang Lin.
+« Je prédis que ton corps pourrira au premier souffle! » La femme sourit en regardant Wang Lin.
 
 Les nombreux cercles noirs qui recouvraient le corps de Wang Lin pénétrèrent profondément en lui, jusqu'à ce que ses os soient visibles. Même ses os devinrent noirs et commencèrent à se briser.
 
 La musique de la harpe devint encore plus pressante et fusionna avec les paroles douces de la femme. Elle s'engouffra dans les cercles noirs infectés et déchira son corps.
 
-« Je prédis que vos os s'effondreront au deuxième souffle! »
+« Je prédis que tes os s'effondreront au deuxième souffle! »
 
 Des craquements retentirent dans le corps de Wang Lin, et d'innombrables fissures apparurent sur ses os noircis. Les fractures se propagèrent jusqu'à ce que même son crâne subisse le même sort!
 
 Si son corps était transparent, on verrait clairement que tous ses os étaient sur le point de s'effondrer sous l'extension des fissures noires. Certaines parties s'étaient déjà brisées.
 
-La douleur infligée ici n'était pas moins intense que celle qu'il avait ressentie lors du sort des Cinq Enterrements de la première concubine impériale céleste. Tandis que Wang Lin reculait, toute sa force vitale se dissipait rapidement et il marchait lentement vers la mort.
+La douleur infligée ici n'était pas moins intense que celle qu'il avait ressentie lors du sort des Cinq Organes de la première concubine impériale céleste. Tandis que Wang Lin reculait, toute sa force vitale se dissipait rapidement et il marchait lentement vers la mort.
 
 Il était déjà gravement blessé et parvenait à peine à réprimer la force de rejet qui faisait rage dans son corps. Ses cinq organes internes avaient disparu, et désormais, sous l'effet du sort de divination, il touchait à sa fin.
 
@@ -72,7 +72,7 @@ Elle avait pressenti que l'apparence originale de Wang Lin lui semblait familiè
 
 « Corps Céleste Immortel!! » La femme sursauta et recula par réflexe, les yeux emplis de peur.
 
-« Vous... Vous possédez réellement le Corps Céleste Immortel. Le Corps Céleste Immortel que tous les êtres célestes vénèrent! Vous n'êtes pas un cultivateur natif d'ici, vous... Qui êtes-vous donc et quel est votre lien avec l'Empereur du Ciel Céleste?! » La femme était ébranlée par les mutations de Wang Lin. Son esprit vacillait comme si d'innombrables éclairs célestes avaient explosé en elle.
+« Tu... Tu possèdes réellement le Corps Céleste Immortel. Le Corps Céleste Immortel devant lequel tous les immortels se prosternent! Tu n'es pas un cultivateur natif d'ici, tu... Qui es-tu donc et quel est ton lien avec l'Empereur du Ciel Céleste?! » La femme était ébranlée par les mutations de Wang Lin. Son esprit vacillait comme si d'innombrables éclairs célestes avaient explosé en elle.
 
 « Je ne peux pas... je ne peux pas le tuer!! » Ce changement lui inspirait une peur extrême, bien plus intense que lorsqu'elle avait affronté le Souverain Céleste.
 
@@ -116,7 +116,7 @@ Cependant, au moment même où Wang Lin utilisait ces deux sorts et que son corp
 
 Il était impossible de dire si cette silhouette était un homme ou une femme, jeune ou vieille. Son corps était enveloppé d'une brume vague qui dérivait vers l'extérieur.
 
-« Ce vieil homme est l'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Porte du Vide! » Une voix erratique résonna alors qu'il levait la main pour frapper violemment dans le dos de Wang Lin, juste après sa reformation.
+« Ce vieil homme est l'un des cinq maîtres du Système Stellaire Antique, le Maître Céleste Dieu du Vide! » Une voix erratique résonna alors qu'il levait la main pour frapper violemment dans le dos de Wang Lin, juste après sa reformation.
 
 Le corps de Wang Lin trembla violemment et il cracha une gorgée de sang doré. Il fut projeté vers la planète Suzaku et s'y écrasa avec fracas.
 

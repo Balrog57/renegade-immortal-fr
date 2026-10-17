@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1662 - Eight Imperial Concubine
 slug: huitieme-concubine-imperiale
 ---
-Debout devant la brèche de la Formation de Scellement du Royaume, Wang Lin regarda la cultivatrice venue des Rivières Invoquées. La femme froide s'arrêta à cent pieds de lui.
+Debout devant la brèche de la Formation de Scellement du Royaume, Wang Lin regarda la cultivatrice venue de la Rivière Invoquée. La femme froide s'arrêta à cent pieds de lui.
 
 Elle était d'une grande beauté; bien qu'inférieure à Mu Bingmei, elle n'en demeurait pas moins éblouissante. Debout là, sa robe violette flottait au vent, lui donnant l'allure d'une immortelle céleste.
 
@@ -14,7 +14,7 @@ Son visage pâle accentuait sa splendeur, lui conférant un air de fragilité m�
 
 La femme en violet et Wang Lin se contemplèrent. Après un long moment, la femme finit par dire d'une voix glaciale: « Zi Xia. » Sa voix semblait un peu rauque, comme si elle n'avait pas parlé depuis une éternité.
 
-« Seriez-vous l'Empereur Céleste Xi Xia du Royaume Céleste de la Foudre? » Wang Lin avait vaguement deviné son identité. Il joignit les mains en signe de respect.
+« Seriez-vous l'Empereur Céleste Zi Xia du Royaume Céleste de la Foudre? » Wang Lin avait vaguement deviné son identité. Il joignit les mains en signe de respect.
 
 Zi Xia réfléchit un instant, puis déclara froidement: « Remets-moi la concubine impériale céleste que tu as scellée. »
 
@@ -34,7 +34,7 @@ La troisième concubine était cette femme froide qui avait interagi avec Wang L
 
 Quant à la deuxième concubine, elle entretenait les liens les plus étroits avec le Royaume Extérieur. D'après les indices glanés lors de leurs échanges, il semblait qu'elle avait collaboré avec le Souverain, avant de mourir entre ses mains.
 
-Il y avait aussi la cinquième concubine, scellée à l'intérieur du Fourneau Impérial de Wang Lin, qu'il ne parvenait pas à raffiner complètement.
+Il y avait aussi la cinquième concubine, scellée à l'intérieur du Fourneau de l'Empereur de Wang Lin, qu'il ne parvenait pas à raffiner complètement.
 
 Si les dires de Zi Xia étaient exacts, celle qui s'était échappée était la sixième concubine! Par conséquent, il ne restait que deux des huit concubines que Wang Lin n'avait pas encore rencontrées.
 
@@ -64,7 +64,7 @@ Les yeux de Zi Xia se plissèrent à son tour. Elle sentait vaguement qu'elle s'
 
 À ses yeux, Wang Lin n'agissait que par devoir envers son titre de Seigneur du Royaume Scellé. L'ancien Seigneur aurait dû tout lui avoir transmis. Wang Lin aurait dû être un homme appartenant au Souverain Céleste!
 
-C'est pourquoi elle s'était présentée à lui pour lui donner ces ordres, même après qu'il ait manifesté une puissance qui l'avait terrassée. Elle n'avait jamais imaginé qu'il refuserait. Après tout, elle était une concubine du Souverain Céleste, et leur but était identique: éveiller le Souverain!
+C'est pourquoi elle s'était présentée à lui pour lui donner ces ordres, même après qu'il ait manifesté une puissance qui l'avait sidérée. Elle n'avait jamais imaginé qu'il refuserait. Après tout, elle était une concubine du Souverain Céleste, et leur but était identique: éveiller le Souverain!
 
 Une fois le Souverain Céleste réveillé, tous deux jouiraient de bénéfices immenses!
 
@@ -82,7 +82,7 @@ La femme pâlit mortellement et recula de plusieurs pas, son expression changean
 
 « Puisque tu sais tout cela, pourquoi ne pas t'allier à moi? Nous pourrions faire équipe pour éveiller le Souverain Céleste. Une fois qu'il sera réveillé, il nous accordera une fortune inestimable... »
 
-« Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte des Sept Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde; il est des dizaines de milliers de fois plus vaste que ce monde de caverne et bien plus magnifique... »
+« Le Souverain Céleste aux Sept Couleurs est considéré comme puissant même sur le Continent Astral Immortel. Une fois éveillé, je pourrai lui demander de faire de toi son disciple. Tu pourras alors quitter cette grotte, rejoindre la Secte des Sept Dao et obtenir l'identité d'un cultivateur du Continent Astral Immortel. Le Continent Astral Immortel est le véritable monde; il vaut bien plus de dix mille fois ce monde de caverne... »
 
 « Nous en tirerons tout le mérite. Le Souverain Céleste t'accordera une culture puissante pour que tu puisses prendre ta place sur le Continent Astral Immortel. Tu y acquerras même une certaine renommée. Cet endroit est le véritable Royaume Céleste. Même ton niveau de culture augmentera considérablement... »
 

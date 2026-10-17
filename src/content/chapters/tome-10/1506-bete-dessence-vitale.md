@@ -12,7 +12,7 @@ En un éclair, le sceau émit une lumière éclatante. Non seulement il se refor
 
 Alors que la Bête des Limbes s'apprêtait à ouvrir sa gueule, Wang Lin poussa un rugissement vers les cieux. Ses yeux étaient injectés de sang tandis qu'il tendait la main vers le firmament!
 
-Un fouet gigantesque de plusieurs dizaines de milliers de pieds de long apparut dans ce domaine stellaire raffiné! Lorsque Wang Lin saisit l'arme, des craquements assourdissants firent écho à travers l'espace. Le fouet grandit jusqu'à atteindre des centaines de milliers de pieds de long!
+Un fouet gigantesque de plusieurs centaines de milliers de pieds de long apparut dans ce domaine stellaire raffiné! Lorsque Wang Lin saisit l'arme, des craquements assourdissants firent écho à travers l'espace. Le fouet grandit jusqu'à atteindre plusieurs millions de pieds de long!
 
 De loin, ce fouet semblait aussi immense que la Bête des Limbes elle-même. La scène de cette danse parmi les étoiles était absolument prodigieuse!
 
@@ -24,7 +24,7 @@ Lorsque le Fléau de l'Âme frappa la Bête des Limbes, un fracas tonnerre reten
 
 Wang Lin ne s'arrêta pas là. Le Fléau de l'Âme semblait imprégné de la folie de Wang Lin, et il frappa huit fois de plus!
 
-En comptant le coup initial, cela faisait un total de neuf assauts. Des grondements de tonnerre résonnèrent et la Bête des Limbes ne put plus contenir la force des coups. La timidité qui caractérisait sa nature réapparut dans ses yeux et son âme fut violemment expulsée de son corps!
+En comptant le coup initial, cela faisait un total de neuf assauts. Des grondements de tonnerre résonnèrent et la Bête des Limbes ne put plus contenir la force des coups. La timidité qui caractérisait sa nature réapparut dans ses yeux et son âme émergea soudain de son corps!
 
 Cependant, cette âme n'était que la partie émergée de l'iceberg. Bien que la Bête des Limbes fût terrifiée, elle comprit qu'elle traversait une crise mortelle et lutta pour ramener son âme dans son corps!
 
@@ -66,9 +66,9 @@ Après cet effort, Wang Lin recula de mille pieds, le visage rougi. Tout s'étai
 
 Une fois en retrait, il lança un regard froid à la Bête des Limbes désormais prisonnière des trois sceaux!
 
-« Aujourd'hui, en tant que Dieu Ancien à sept étoiles royal, fort de mon héritage de l'Ordre Ancien, je déclare cette bête pour ma bête d'essence vitale! »
+« En ce jour faste, en tant que Dieu Ancien à sept étoiles royal, fort de mon héritage de l'Ordre Ancien, je te scelle pour devenir ma bête d'essence vitale! »
 
-« Bête des Limbes, deviens ma bête d'essence vitale! » Wang Lin leva la main droite et pointa la créature.
+« Bête des Limbes, accepte le sceau! » Wang Lin leva la main droite et pointa la créature.
 
 Le corps de la Bête des Limbes trembla violemment alors que les trois sceaux s'activaient simultanément, une lueur spectrale brillant autour d'elle. La lutte dans ses yeux s'estompa progressivement pour laisser place à une forme de docilité.
 
@@ -84,9 +84,9 @@ La vitalité provenant de la Bête des Limbes était d'une puissance extrême. E
 
 Un Dieu Ancien de 60 000 pieds de haut apparut parmi les étoiles!
 
-Wang Lin serra son immense poing et scruta l'horizon. Sa puissance de Dieu Ancien circulait dans tout son être, et cette vitalité décuplée le remplissait de confiance.
+Wang Lin serra son immense poing et le leva devant ses yeux. Sa puissance de Dieu Ancien circulait dans tout son être, et cette vitalité décuplée le remplissait de confiance.
 
-« Il n'est pas étonnant que les souvenirs de Tu Si affirment qu'il faut posséder une bête d'essence vitale et donner naissance à un Serpent aux yeux de lune pour être véritablement considéré comme un Dieu Ancien... Bien que je ne possède aucun Serpent aux yeux de lune, cette seule bête d'essence vitale suffit déjà à porter mon corps à ce niveau! »
+« Il n'est pas étonnant que les souvenirs de Tu Si affirment qu'il faut posséder une bête d'essence vitale et donner naissance à un Serpent aux yeux de lune pour être véritablement considéré comme un Dieu Ancien... Bien qu'aucun Serpent aux yeux de lune ne soit encore apparu en moi, cette seule bête d'essence vitale suffit déjà à porter mon corps à ce niveau! »
 
 Les yeux de Wang Lin s'illuminèrent et son corps de 60 000 pieds se rétracta rapidement. Dans un concert de craquements, il reprit la taille d'un cultivateur ordinaire. Cependant, son apparence avait radicalement changé!
 
@@ -102,11 +102,11 @@ Après Ling Dong, ce fut au tour de Zhou Jin et des Feuilles Anciennes d'être r
 
 Enfin, le gigantesque Serpent aux yeux de lune apparut. La gueule de la Bête des Limbes continua de s'élargir jusqu'à ressembler à un trou noir titanesque, avant de recracher le serpent. Ce dernier grandit rapidement pour retrouver sa taille initiale.
 
-Wang Lin remit Zhou Jin et Ling Dong dans le Fourneau Impérial avant de le ranger dans sa première étoile. Il rangea ensuite tout le reste et fronça les sourcils en observant la Bête des Limbes.
+Wang Lin remit Zhou Jin et Ling Dong dans le Fourneau de l'Empereur avant de le ranger dans sa première étoile. Il rangea ensuite tout le reste et fronça les sourcils en observant la Bête des Limbes.
 
 « Les souvenirs de cette bête sont un chaos total... Lors de sa faim, elle a aspiré trop violemment en dévorant le Royaume aux Sept Couleurs. Elle a brisé certaines barrières et a dévoré ce qu'elle n'aurait pas dû... C'est tout simplement trop étrange... Comment a-t-elle pu dévorer un Fruit du Dao... » Wang Lin posa sa main droite sur la bête tout en méditant.
 
-Le corps de la Bête des Limbes trembla et une lumière aux sept couleurs jaillit de sa gueule. Celle-ci s'ouvrit lentement, laissant flotter un fruit orange d'une centaine de pieds de large... Un Fruit du Dao!
+Le corps de la Bête des Limbes trembla et une lumière aux sept couleurs jaillit de sa gueule. Celle-ci s'ouvrit lentement, laissant flotter un fruit orange de plusieurs centaines de pieds de large... Un Fruit du Dao!
 
 L'aura de l'intention du Dao se propagea avec l'apparition du fruit. En fixant ce fruit orangé, les yeux de Wang Lin brillèrent d'un éclat nouveau.
 

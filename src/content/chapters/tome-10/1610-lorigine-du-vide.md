@@ -14,7 +14,7 @@ Cette année-là, Wang Lin approchait de ses quatre-vingts ans.
 
 Outre le pays de Huo Fen, il existait encore d'autres nations sur ce continent, mais Wang Lin n'y allait pas. Le pays de Huo Fen serait le dernier lieu qu'il visiterait.
 
-Ici, dans la montagne surplombant la secte de Li Muwan, se trouvait une maison en ruine. Elle avait été construite il y a une éternité et plus personne n'y vivait.
+Ici, dans la montagne surplombant la secte de Li Muwan, se trouvait une maison en ruine. Elle avait été construite par un gardien de la montagne à une époque oubliée et plus personne n'y vivait.
 
 Wang Lin commença à résider ici.
 
@@ -44,7 +44,7 @@ Ils s'asseyaient calmement aux côtés de Wang Lin, comme s'ils cherchaient le D
 
 Année après année, toujours plus de cultivateurs affluèrent de Huo Fen et de toutes les directions, venant de diverses sectes, comme si quelque chose les appelait au plus profond de leur cœur.
 
-Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux avait même franchi les cieux pour atteindre le stade d'Ascendant. Mais peu importait leur niveau de culture, ils n'existaient pas aux yeux de Wang Lin.
+Parmi ces cultivateurs, certains n'avaient même pas atteint le stade de l'Établissement des Fondations, d'autres étaient au stade de la Transformation de l'Âme, et l'un d'eux était même venu en marchant dans le vide, sa culture ayant déjà atteint le stade d'Ascendant. Mais peu importait leur niveau de culture, ils n'existaient pas aux yeux de Wang Lin.
 
 Quel que soit leur rang, ils devaient simplement trouver une place sur la montagne. L'espace étant limité, il n'y avait point de lutte pour les places. Tous restaient assis en silence pour écouter Wang Lin, qui ne parlait peut-être qu'une fois par an.
 
@@ -64,27 +64,27 @@ La femme froide tenait un bébé, une petite fille qui semblait ne jamais grandi
 
 L'alliance des quatre pays, Zhou Wutai, et tous les visages familiers de Wang Lin étaient arrivés.
 
-Yun Quezie conservait son apparence négligée lorsqu'il s'assit au loin.
+Yun Quezi conservait son apparence négligée lorsqu'il s'assit au loin.
 
-Teng Huayuan, Huang Long, Xu Fei, Zhou Rui, même Wang Zhou, et bien d'autres que Wang Lin ne connaissait pas, furent présents. Ils s'installèrent à distance et tournaient leurs regards vers lui.
+Teng Huayuan, Huang Long, Xu Fei, Zhou Rui, même Wang Zhuo, et bien d'autres encore, furent présents. Ils s'installèrent à distance et tournaient leurs regards vers lui.
 
-Enfin, même Zhu Quezi brisa le vide pour arriver. Il médita longuement au-dessus de Wang Lin avant de trouver un espace libre pour s'asseoir.
+Enfin, même Zhu Quezi brisa le vide pour arriver. Il demeura longuement silencieux au-dessus de Wang Lin avant de trouver un espace libre pour s'asseoir.
 
 « Ma rencontre avec Liu Mei et la création de notre karma n'étaient que le fruit du destin karmique... »
 
 « Le lien entre moi et la Secte de l'Affinement de l'Âme est également une affaire de destin karmique. »
 
-« Qu'il s'agisse de Papillon Rouge ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde, tout demeure réel. Destin, destin, destin... »
+« Qu'il s'agisse de Papillon Rouge ou de tout le reste dans ce monde, le karma est ainsi fait. Même dans ce monde de rêve, il en va de même. Destin, destin, destin... »
 
-« Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant: l'homme et la femme sont la cause, leur union est le destin, et l'enfant qu'ils donnent naissance est l'effet. » Wang Lin sourit et soupira doucement.
+« Ce destin est une force externe. Par son interférence, il crée une cause karmique qui, en se combinant, forme un effet karmique. Tel un homme et une femme engendrant un enfant: l'homme et la femme sont la cause, leur union est le destin, et l'enfant qui naît d'eux est l'effet. » Wang Lin sourit et soupira doucement.
 
-À cet instant, une personne sortit de la secte située sur la montagne. Elle était restée la même, vêtue d'une robe blanche et d'un châle de soie verte sur les épaules, affichant une expression empreinte de douceur. C'était Li Muwan.
+À cet instant, une personne sortit de la secte située sur la montagne. Elle était restée la même, vêtue d'une robe blanche, ses cheveux noirs sur les épaules, affichant une expression empreinte de douceur. C'était Li Muwan.
 
 « Viens. » Wang Lin semblait plus vieux encore, mais une aura céleste et terrestre émanait de son corps. C'était comme s'il était devenu le Ciel et la Terre au fil de ses années de compréhension.
 
 Il tendit sa main droite et appela Li Muwan. Le regard de Wang Lin était empreint d'une immense tendresse, et même sa voix trahissait une pointe de nostalgie.
 
-Les yeux de Li Muwan étaient emplis de confusion, mais un sentiment surgit de son cœur, une sensation si familière qu'elle fit vibrer l'âme de Wang Lin. Cette familiarité semblait gravée dans son être, capable de traverser les cycles de la réincarnation.
+Les yeux de Li Muwan étaient emplis de confusion, mais un sentiment surgit de son cœur, une sensation indicible qui lui faisait trouver Wang Lin très, très familier. Cette familiarité semblait gravée dans son âme et jusque dans ses os, capable de traverser les cycles de la réincarnation.
 
 Même après des milliers ou des dizaines de milliers de cycles, même en buvant des milliers ou des dizaines de milliers de bols de la soupe d'oubli de Grand-mère Meng [1], elle ne l'oublierait pas! Pourtant, un sceau semblait entraver ses souvenirs, comme pour les séparer à jamais.
 

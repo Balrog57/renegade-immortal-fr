@@ -30,7 +30,7 @@ Qing Shui resta silencieux; lui seul comprenait ce qu'il avait découvert et app
 
 Wang Lin ne répondit rien, mais hocha la tête.
 
-« Si un jour je meurs, et que mon corps est encore intact, prends-le et enterre-moi dans ma ville natale. Ne laisse aucun nom sur la pierre tombale; une sépulture anonyme sera la meilleure pour moi... » Qing Shui leva les yeux vers le ciel.
+« Si un jour je meurs, et que mon corps est encore intact, prends-le et enterre-moi dans ma ville natale. Ne laisse aucun nom sur la pierre tombale; un simple lopin de terre sera le meilleur lieu de repos pour moi... » Qing Shui leva les yeux vers le ciel.
 
 Wang Lin réfléchit en silence. Après un long moment, il demanda: « Et s'il n'y a plus de ville natale...? »
 
@@ -50,9 +50,9 @@ Qing Shui ferma les yeux. Paraissant un peu solitaire, il demanda doucement: « 
 
 « J'ai un fils... » Une tristesse monta dans les yeux de Wang Lin. Il but le reste du vin de sang de dragon. Le liquide n'était plus épicé dans son estomac, mais s'était transformé en une douleur lancinante.
 
-« J'ai une fille... » Qing Shui ouvrit les yeux, laissant transparaître une nostalgie amère. « Cependant, je ne peux pas la trouver... Peut-être n'est-elle plus de ce monde et est-elle partie pour toujours. » Qing Shui se remémora ce passé douloureux. Au moment où il avait repris ses esprits en tenant le corps de sa femme, une petite fille d'environ sept ou huit ans hurlait au loin parmi les débris ensanglantés. Elle tenait une grue morte et fixait lui et sa mère de ses yeux vides.
+« J'ai une fille... » Qing Shui ouvrit les yeux, laissant transparaître une nostalgie amère. « Cependant, je ne peux pas la trouver... Peut-être n'est-elle plus de ce monde et est-elle partie pour toujours. » Qing Shui se remémora ce passé douloureux. Au moment où il avait repris ses esprits et hurlait de douleur en tenant le corps de sa femme, une petite fille d'environ sept ou huit ans se tenait au loin parmi les débris ensanglantés. Elle tenait une grue morte et fixait lui et sa mère de ses yeux vides.
 
-« Peut-être est-elle déjà entrée dans la réincarnation et est devenue une autre personne. Cependant, j'ai laissé une marque rouge sur son épaule à sa naissance, et cette marque restera toujours avec elle. Si tu vois une telle enfant, prends soin d'elle pour moi... »
+« Peut-être est-elle déjà entrée dans la réincarnation et est devenue une autre personne. Cependant, j'ai laissé une marque rouge sur son épaule gauche à sa naissance, et cette marque restera toujours avec elle. Si tu vois une telle enfant, prends soin d'elle pour moi... »
 
 Le portail fantôme dans le ciel disparut complètement.
 

@@ -18,23 +18,23 @@ Tout cela se produisit en un instant. Wang Lin ne cessa pas sa retraite et charg
 
 Un éclair d'intention meurtrière brilla dans les yeux de l'Estimé Nan Zhao, qui s'apprêtait à le poursuivre. Cependant, il entendit un reniflement glacial et Maître Hong Shan fit irruption. L'Estimé Nan Zhao sentit sa vision se brouiller et s'empourprer. Son expression changea radicalement et il recula aussitôt, ne prêtant plus attention à Wang Lin!
 
-« Ce vieil homme n'a pas tué depuis des dizaines de milliers d'années, vous avez donc peut-être oublié d'où ce vieux tire son nom taoïste! » Maître Hong Shan agita la main et une lumière rouge infinie apparut!
+« Ce vieil homme n'a pas tué depuis des dizaines de milliers d'années, vous avez donc peut-être oublié d'où ce vieux tire son nom daoïste! » Maître Hong Shan agita la main et une lumière rouge infinie apparut!
 
 Ces lueurs rouges ne provenaient pas du lointain, mais des corps mêmes des cultivateurs du Royaume Extérieur. C'était comme si leur sang brillait à travers leur chair!
 
-La lumière sanguine perça le corps de plusieurs cultivateurs, donnant l'impression qu'ils portaient des chemises rouge vif! Une chemise rouge sang apparut même sur le corps de l'Estimé Nan Zhao!
+La lumière sanguine perça le corps de plusieurs milliers de cultivateurs, donnant l'impression qu'ils portaient des chemises rouge vif! Une chemise rouge sang apparut même sur le corps de l'Estimé Nan Zhao!
 
 Ces chemises n'étaient pas des vêtements!
 
 Mais le spectacle restait terrifiant!
 
-Des grondements tonitruants éclatèrent. Dès que les chemises rouges apparurent, des cris déchirants retentirent. Le sang de ces mille cultivateurs fut expulsé de leurs corps par une force étrange!
+Des grondements tonitruants éclatèrent. Dès que les chemises rouges apparurent, des cris déchirants retentirent. Le sang de ces milliers de cultivateurs fut expulsé de leurs corps par une force étrange!
 
 Le sang était extirpé de chaque pore de leur peau!
 
-Leurs hurlements étaient empreints d'une douleur sans fin. Désormais, ces mille cultivateurs portaient véritablement des chemises rouges!
+Leurs hurlements étaient empreints d'une douleur sans fin. Désormais, ces milliers de cultivateurs portaient véritablement des chemises rouges!
 
-À l'instant même où les chemises rouges se formèrent, elles se rétractèrent brusquement. Tandis que leurs cris de détresse résonnaient, ces mille cultivateurs se transformèrent rapidement en momies et périrent!
+À l'instant même où les chemises rouges se formèrent, elles se rétractèrent brusquement. Tandis que leurs cris de détresse résonnaient, ces milliers de cultivateurs se transformèrent rapidement en momies et périrent!
 
 Leurs âmes originelles étaient emprisonnées dans leurs corps, incapables de s'échapper. À leur mort, l'énergie de la mort s'engouffra dans leurs âmes originelles, les transformant en morts-vivants!
 
@@ -78,7 +78,7 @@ Wang Lin envoya immédiatement un message tout en reculant pour se soigner. Ling
 
 « Vous deux, protégez ce vieil homme! » Maître Nan Yunzi ne parla pas davantage; après cet ordre, il avança vers la Formation de Scellement du Royaume. Ses mains tracèrent rapidement des sceaux et une multitude de restrictions volèrent vers la formation!
 
-Le Grand Maître Yun Luo se trouvait dans le Royaume Extérieur, encerclée par plus de 100 000 cultivateurs. Ses pupilles se rétractèrent. Elle ne s'attendait pas à ce que l'accident de la Formation de Scellement du Royaume cause de telles pertes dès leur entrée!
+Le Grand Maître Yun Luo se trouvait dans le Royaume Extérieur, protégée par plus de 100 000 cultivateurs. Ses pupilles se rétractèrent. Elle ne s'attendait pas à ce que l'accident de la Formation de Scellement du Royaume cause de telles pertes dès leur entrée!
 
 La Hache Brise-Ciel était le problème majeur. Désormais sans obstacle, elle fauchait les cultivateurs. Sa trajectoire était visible de loin, et à chaque coup, 5 000 cultivateurs mouraient misérablement!
 
@@ -86,11 +86,11 @@ Le Grand Maître Yun Luo leva la main, pointa la hache et dit doucement: « En s
 
 « Palais du Châtiment Céleste, Clan des Épées, Coup Briseur d'Âme, arrêtez cette hache! » Alors que sa voix résonnait, les cultivateurs vêtus de noir autour du Palais du Châtiment Céleste levèrent tous les yeux. Ils chargèrent la Hache Brise-Ciel sans l'ombre d'une hésitation!
 
-Alors que la hache retombait une fois de plus, près d'un millier de cultivateurs apparurent silencieusement. Ils exécutèrent tous le même mouvement et une épée fantomatique noire sembla se matérialiser alors qu'ils s'élançaient en avant!
+Alors que la hache retombait une fois de plus, plusieurs milliers de cultivateurs apparurent silencieusement. Ils exécutèrent tous le même mouvement et une épée fantomatique noire sembla se matérialiser alors qu'ils s'élançaient en avant!
 
-Un millier de rayons d'énergie d'épée convergèrent pour frapper la hache!
+Des milliers de rayons d'énergie d'épée convergèrent pour frapper la hache!
 
-Des grondements tonitruants éclatèrent et la hache marqua un temps d'arrêt. L'énergie d'épée se brisa, faisant cracher du sang aux mille cultivateurs. Cependant, ils ne s'arrêtèrent pas là. Ils agitèrent leur main gauche, fusionnant leur sang avec leurs lames pour projeter des rayons d'énergie imprégnés de sang!
+Des grondements tonitruants éclatèrent et la hache marqua un temps d'arrêt. L'énergie d'épée se brisa, faisant cracher du sang à ces milliers de cultivateurs. Cependant, ils ne s'arrêtèrent pas là. Ils agitèrent leur main gauche, fusionnant leur sang avec leurs lames pour projeter des rayons d'énergie imprégnés de sang!
 
 Les yeux du Grand Maître Yun Luo s'illuminèrent en regardant Wang Lin au loin. Sa main de jade traça un sceau et pointa vers lui!
 
@@ -114,7 +114,7 @@ Plus loin, un homme d'âge mûr de la Mer des Nuages était couvert de blessures
 
 Pourtant, il chargea en riant, comme s'il ignorait la douleur. Il verrouilla sa cible, un cultivateur du Royaume Extérieur, et au moment de l'impact, son corps explosa, créant une onde de choc puissante pour l'emporter avec lui dans la mort!
 
-Encore plus loin, un cultivateur du Royaume Extérieur au troisième niveau de la Calamité Céleste se déplaçait comme l'éclair. À chaque passage, des masses de cultivateurs de la Mer des Nuages périssaient!
+Encore plus loin, un cultivateur du Royaume Extérieur au troisième niveau du Fléau Céleste se déplaçait comme l'éclair. À chaque passage, des masses de cultivateurs de la Mer des Nuages périssaient!
 
 Au milieu de ce chaos, il semblait invincible. Il apparut devant un cultivateur de la Mer des Nuages et plongea sa main dans sa poitrine. Il en extirpa le cœur avec un sourire cruel.
 

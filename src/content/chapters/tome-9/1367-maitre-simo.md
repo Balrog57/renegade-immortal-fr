@@ -38,29 +38,29 @@ Cependant, ces cultivateurs étaient très avisés et comprirent immédiatement 
 
 « Peu importe que ce soit l'individu qui a massacré le Clan du Tonnerre Dispersé ou non, celui qui se cache ici doit avoir des intentions cachées! » Le vieil homme de niveau Briseur du Nirvana affichait une expression lugubre. Ses yeux s'illuminèrent et il s'élança au loin, suivi par les autres.
 
-Non seulement lui, mais le vieillard en robe taoïste dont le Sens Divin avait été scindé était sur le point de partir lorsqu'il se retourna soudainement. Un éclat étrange brilla dans son regard; sans dire un mot, il fit volte-face et lança une recherche minutieuse avec son Sens Divin.
+Non seulement lui, mais le vieillard en robe taoïste dont l'âme originelle avait été scindée était sur le point de partir lorsqu'il se retourna soudainement. Un éclat étrange brilla dans son regard; sans dire un mot, il fit volte-face et lança une recherche minutieuse avec son Sens Divin.
 
-De même, dans la partie ouest de la planète, un groupe de cultivateurs vêtus de blanc avait fouillé toute la région sans rien trouver. Juste au moment où ils s'apprêtaient à partir, l'expression du chef, un homme d'âge moyen, changea et il prit brusquement la direction opposée.
+De même, dans la partie ouest de la planète, un groupe de cultivateurs vêtus de blanc avait fouillé toute la région sans rien trouver. Juste au moment où ils s'apprêtaient à partir, l'expression du chef, un homme d'âge moyen, changea et il changea brusquement de direction sans hésiter.
 
-Dans un domaine stellaire brumeux du Système des Anciennes Étoiles vivait l'un des grands clans anciens, le Clan Brumeux. Au cœur de ce domaine se trouvait une planète bleue abritant un lac aussi calme qu'un miroir. C'était un spectacle d'une grande beauté.
+Dans un domaine stellaire brumeux du Système Stellaire Antique vivait l'un des grands clans du Système Stellaire Antique, le Clan Brumeux. Au cœur de ce domaine se trouvait une planète bleue abritant un lac aussi calme qu'un miroir. C'était un spectacle d'une grande beauté.
 
 Une île trônait au centre du lac, sur laquelle étaient édifiés deux ou trois pavillons élégants. Ils étaient entourés d'une profusion de fleurs exhalant un parfum agréable. Le vent créait des rides à la surface de l'eau et transportait la fragrance des fleurs au loin.
 
-Une femme en noir était assise devant le pavillon. Un voile de soie verte drapait sa tête, et le vent faisait flotter ses cheveux. Son visage étant dissimulé par la soie, il était impossible de le distinguer. Ses mains ressemblaient au jade, et une sphère d'eau dégageant des vapeurs gravitait au-dessus du lac.
+Une femme en noir était assise devant le pavillon. Ses cheveux noirs lui tombaient jusqu'à la taille, et le vent en faisait flotter quelques mèches. Son visage étant dissimulé par sa chevelure, il était impossible de le distinguer. Ses mains ressemblaient au jade, et devant elle, une sphère formée d'eau du lac tournait lentement en exhalant de fines vapeurs.
 
 Cette sphère semblait imprégnée de chaos et de lumière. Son intérieur tourbillonnait et se distordait jusqu'à ce que la silhouette d'un homme en blanc, dégageant une aura de solitude, apparaisse!
 
 À mesure que la sphère s'agitait, la silhouette devenait plus nette. En y regardant de plus près, c'était Wang Lin!
 
-À cet instant précis, les yeux de la femme en noir s'illuminèrent derrière son voile de soie. La sphère d'eau explosa en un rideau de pluie.
+À cet instant précis, les yeux de la femme en noir s'illuminèrent sous sa chevelure. La sphère d'eau explosa en un rideau de pluie.
 
-Ce rideau révéla un domaine stellaire, et dans ce dernier ne figurait qu'une seule planète de culture!
+Ce rideau révéla un ciel étoilé, et dans ce dernier ne figurait qu'une seule planète de culture!
 
 La femme en noir déclara doucement: « Informe les anciens du Conseil Souverain que Yun Luo a trouvé celui qui a détruit le Clan du Tonnerre Dispersé. Il est ici! »
 
 À peine eut-elle fini de parler que trois silhouettes apparurent vaguement et saluèrent la femme avant de disparaître.
 
-Peu de temps après, tous les cultivateurs du Système des Anciennes Étoiles gravitant autour de la planète de Wang Lin reçurent les ordres du Conseil Souverain et commencèrent à se rassembler.
+Peu de temps après, tous les cultivateurs du Système Stellaire Antique gravitant autour de la planète de Wang Lin reçurent les ordres du Conseil Souverain et commencèrent à se rassembler.
 
 Simultanément, au sein d'une faille spatiale, se trouvait un abîme. Cet endroit était plongé dans l'obscurité perpétuelle et saturé d'une énergie glaciale. Tout être vivant aspiré par ce gouffre périssait instantanément.
 
@@ -78,13 +78,13 @@ La lueur rouge illumina tout, révélant au centre un morceau de papier couleur 
 
 « Maître Simo, voici les ordres du Conseil Souverain! Capturez celui qui a détruit le Clan du Tonnerre Dispersé pour obtenir un esprit dao de rang 6 en récompense! Tuez-le, et vous n'obtiendrez qu'un esprit dao de rang 9! » Une voix lugubre résonna depuis le papier ensanglanté.
 
-Cet homme d'âge moyen était l'un des cultivateurs du troisième stade qui traquaient Tuo Sen lorsque Wang Lin entra dans le Système des Anciennes Étoiles!
+Cet homme d'âge moyen était l'un des trois cultivateurs du troisième stade qui traquaient Tuo Sen lorsque Wang Lin entra dans le Système Stellaire Antique!
 
 Maître Simo!
 
 Les yeux de Maître Simo s'illuminèrent et sa main droite se tendit vers le parchemin. Il broya le papier, puis une vapeur rouge pénétra dans son bras.
 
-« Cette affaire est simple, mon avatar suffira. » Une fois ses paroles prononcées, il ferma les yeux et une illusion sortit de son corps. Cet avatar était son portrait craché, mais sa culture n'était pas au troisième stade, mais au cinquième: le Fléau Céleste!
+« Cette affaire est simple, mon avatar suffira. » Une fois ses paroles prononcées, il ferma les yeux et une illusion sortit de son corps. Cet avatar était son portrait craché, mais sa culture n'était pas au troisième stade, mais au cinquième niveau du Fléau Céleste!
 
 L'avatar fit un pas en avant et disparut de la faille spatiale.
 
@@ -94,7 +94,7 @@ Le premier qu'il raffina fut le Tonnerre Spirituel. Il en possédait déjà une 
 
 En conséquence, son Tonnerre Spirituel devint extrêmement puissant! Il gravitait lentement autour de l'âme originelle de Wang Lin. À chaque rotation, son âme originelle grandissait et son niveau de culture augmentait légèrement.
 
-Sa culture du tonnerre progressait vers le sommet du stade Briseur du Nirvana! Atteindre ce stade en 10 000 ans était déjà une prouesse, alors de s'en surpasser était encore plus complexe. Le temps de culture de Wang Lin ne pouvait tout simplement pas rivaliser avec celui de ces vieux monstres. Il avait compté sur le fruit dao pour atteindre le stade Briseur du Nirvana, puis sur le tonnerre.
+Sa culture du tonnerre progressait vers le sommet du stade Briseur du Nirvana! Le Briseur du Nirvana, parmi les trois royaumes de la deuxième étape, était difficile à atteindre sans 10 000 ans de culture, sans parler de le dépasser. Le temps de culture de Wang Lin ne pouvait tout simplement pas rivaliser avec celui de ces vieux monstres. Il avait compté sur le fruit dao pour atteindre le stade Briseur du Nirvana, puis sur le tonnerre.
 
 Toutefois, malgré cela, son niveau de culture ne pouvait progresser que très peu... à moins de compléter les neuf types de tonnerre!
 
@@ -104,7 +104,7 @@ Cependant, Wang Lin ignorait s'il pourrait accéder au troisième stade une fois
 
 Le temps s'écoulait lentement. En un clin d'œil, une journée entière passa!
 
-Durant cette journée, toujours plus de cultivateurs du Système des Anciennes Étoiles s'étaient rassemblés: pas moins de 100 000 individus! De nombreux experts puissants étaient présents, tandis que très peu de faibles avaient été envoyés.
+Durant cette journée, toujours plus de cultivateurs du Système Stellaire Antique s'étaient rassemblés: pas moins de plusieurs dizaines de milliers d'individus! De nombreux experts puissants étaient présents, tandis que très peu de faibles avaient été envoyés.
 
 La planète de culture entière avait été fouillée avec acharnement par ces cultivateurs. La recherche avait retourné la planète de fond en comble!
 

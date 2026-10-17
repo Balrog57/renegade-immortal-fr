@@ -16,7 +16,7 @@ Bien que ces respirations semblassent ne durer qu'un instant, elles parurent des
 
 La puissante force de rejet agissait telle une tempête, augmentant en intensité à chaque souffle, comme si elle voulait briser le corps de Wang Lin. Du sang s'échappait du coin de sa bouche, les veines de son visage étaient gonflées et son cœur martelait sa poitrine selon un rythme singulier.
 
-Un rugissement qui tenait presque du sifflement s'échappait de la bouche et des narines de Wang Lin. Son énergie originelle fonctionnait à son paroxysme à l'intérieur de son corps. Même son corps de Dieu Antique ressentait une douleur insupportable.
+Un rugissement qui tenait presque du sifflement s'échappait de la bouche et des narines de Wang Lin. Son énergie originelle fonctionnait à son paroxysme à l'intérieur de son corps. Même son corps de Dieu Ancien ressentait une douleur insupportable.
 
 C'était comme si ses méridiens allaient exploser s'il continuait ainsi. Son corps même risquait de voler en éclats pour ne devenir qu'un amas de chair!
 
@@ -24,13 +24,13 @@ Tout en rugissant, Wang Lin n'avait qu'une seule idée en tête: il ne pouvait p
 
 S'il abandonnait et était éjecté du siège, il renoncerait à cette opportunité unique dans une vie. Wang Lin ne permettrait pas qu'une telle chose arrive!
 
-Les six étoiles du Dieu Antique tournaient rapidement, tandis que la septième étoile pivotait lentement, devenant de plus en plus nette. Une lumière éclatante émanait de cette septième étoile, la rendant d'autant plus éblouissante!
+Les six étoiles du Dieu Ancien tournaient rapidement, tandis que la septième étoile pivotait lentement, devenant de plus en plus nette. Une lumière éclatante émanait de cette septième étoile, la rendant d'autant plus éblouissante!
 
 Un vortex d'énergie démoniaque tournait à l'intérieur de son œil droit, et une ancienne étoile démoniaque scintillait. Lors de la treizième respiration, une vague étoile démoniaque antique apparut dans son œil droit!
 
 C'était la première étoile démoniaque antique. Bien qu'elle fût encore floue, elle prouvait que Wang Lin résistait à la force de rejet du trône!
 
-Cependant, le prix à payer pour cette treizième respiration était immense. Des bruits de craquements résonnèrent et les chairs sous sa taille ne purent plus supporter la force. Une quantité massive de sang recouvrit le trône, puis les chair sous sa taille explosèrent, révélant ses os blancs!
+Cependant, le prix à payer pour cette treizième respiration était immense. Des bruits de craquements résonnèrent et les chairs sous sa taille ne purent plus supporter la force. Une quantité massive de sang recouvrit le trône, puis les chairs sous sa taille explosèrent, révélant ses os blancs!
 
 Cette douleur était monstrueuse; ce n'était pas une épreuve qu'un être ordinaire aurait pu endurer. La seule idée de cette souffrance suffisait à faire frissonner!
 
@@ -76,7 +76,7 @@ Le corps de Wang Lin gronda tandis que cette aura s'engouffrait en lui. La septi
 
 Il ne semblait manquer que trois respirations pour qu'elle apparaisse totalement!
 
-Un Dieu Antique à sept étoiles était sur le point de naître!
+Un Dieu Ancien à sept étoiles était sur le point de naître!
 
 Le rugissement de Tuo Sen devint plus net et le réseau illusoire sembla atteindre ses limites. Il se rapprochait sans cesse de Wang Lin. En un éclair, il n'était plus qu'à moins de 10 000 pieds!
 
@@ -86,11 +86,11 @@ Le corps de Tuo Sen continuait de s'étendre pour atteindre des dizaines de mill
 
 Tuo Sen ne remarqua pas l'existence de Wang Lin dans ses rugissements. Une excitation sauvage se lisait sur son visage féroce.
 
-« Maudit Ordre Antique, cet héritage appartient à ce Dieu. Dans ce système stellaire, nul autre que ce Dieu n'est qualifié pour le recevoir. Pourtant, vous dressez tous ces obstacles! Êtes-vous devenus stupides?! »
+« Maudit Ordre Ancien, cet héritage appartient à ce Dieu. Dans ce système stellaire, nul autre que ce Dieu n'est qualifié pour le recevoir. Pourtant, vous dressez tous ces obstacles! Êtes-vous devenus stupides?! »
 
-Les yeux de Wang Lin étaient injectés de sang. À cet instant, sa moitié inférieure s'était effondrée et il ne lui restait que le haut du corps. Cependant, Wang Lin s'en moquait. Tant qu'il pouvait conserver l'aura en lui et devenir un Dieu Antique à sept étoiles, tout pourrait être restauré!
+Les yeux de Wang Lin étaient injectés de sang. À cet instant, sa moitié inférieure s'était effondrée et il ne lui restait que le haut du corps. Cependant, Wang Lin s'en moquait. Tant qu'il pouvait conserver l'aura en lui et devenir un Dieu Ancien à sept étoiles, tout pourrait être restauré!
 
-La capacité de régénération d'un Dieu Antique à sept étoiles était bien plus puissante que celle d'un Dieu Antique à six étoiles!
+La capacité de régénération d'un Dieu Ancien à sept étoiles était bien plus puissante que celle d'un Dieu Ancien à six étoiles!
 
 Dix-septième respiration!
 
@@ -98,7 +98,7 @@ La force de rejet, déjà cent fois supérieure, augmenta soudainement encore. B
 
 Cette force colossale jaillit directement vers l'extérieur. Le corps de Wang Lin trembla et il cracha une importante quantité de sang. Son expression devint féroce, comme s'il avait sombré dans la démence!
 
-« Puisque l'Ordre Antique Ye Mo a pu siéger sur ce trône, pourquoi moi, Wang Lin, ne le pourrais-je pas? Je siégerai ici!! Essayez donc de m'en empêcher!! »
+« Puisque l'Ordre Ancien Ye Mo a pu siéger sur ce trône, pourquoi moi, Wang Lin, ne le pourrais-je pas? Je siégerai ici!! Essayez donc de m'en empêcher!! »
 
 La force de rejet était comme un tsunami déferlant sur le corps de Wang Lin, et elle s'engouffra également dans les fantômes invoqués par Ling Dong et Zhou Jin. Cette force inimaginable frappa les statues, les faisant trembler avant qu'elles ne volent en éclats. Ling Dong cracha du sang et fut projeté hors de la plateforme!
 
@@ -112,15 +112,15 @@ Bien que ces respirations paraissent lentes, tout se déroula en un instant! Jus
 
 À cet instant, le rugissement de Tuo Sen résonna violemment. Le réseau illusoire géant ne put plus supporter la pression et commença à s'effondrer. Tuo Sen était sur le point de surgir, à moins de 5 000 pieds de Wang Lin!
 
-Lors de la dix-septième respiration, la force de rejet avait été multipliée par cent; désormais, elle augmentait encore davantage, rendant toute résistance impossible pour Wang Lin. La septième étoile tournait frénétiquement; sa majeure partie était formée. Il ne manquait plus que deux respirations pour qu'elle soit complète!
+Dès la dix-septième respiration, la force de rejet avait atteint plusieurs centaines de fois sa puissance; désormais, elle augmentait encore de plusieurs fois, rendant toute résistance impossible pour Wang Lin. La septième étoile tournait frénétiquement; sa majeure partie était formée. Il ne manquait plus que deux respirations pour qu'elle soit complète!
 
-Précisément à cet instant, la main droite de Wang Lin se leva brusquement. Il saisit un corps de Dieu Antique pétrifié et le projeta vers le réseau illusoire que Tuo Sen était en train de briser!
+Précisément à cet instant, la main droite de Wang Lin se leva brusquement. Il saisit un corps de Dieu Ancien pétrifié et le projeta vers le réseau illusoire que Tuo Sen était en train de briser!
 
-Des grondements tonitruants éclatèrent. Tandis que la force de rejet jaillissait du corps de Wang Lin, le corps de Dieu Antique pétrifié percuta le réseau illusoire. Il s'écrasa contre la tête géante de Tuo Sen alors que ce dernier surgissait avec une excitation indescriptible!
+Des grondements tonitruants éclatèrent. Tandis que la force de rejet jaillissait du corps de Wang Lin, le corps de Dieu Ancien pétrifié percuta le réseau illusoire. Il s'écrasa contre la tête géante de Tuo Sen alors que ce dernier surgissait avec une excitation indescriptible!
 
-Au moment même où Wang Lin lançait la statue, l'inimaginable force de rejet se précipita dans son bras droit et s'engouffra dans le corps de Dieu Antique pétrifié projeté vers Tuo Sen!
+Au moment même où Wang Lin lançait la statue, l'inimaginable force de rejet se précipita dans son bras droit et s'engouffra dans le corps de Dieu Ancien pétrifié projeté vers Tuo Sen!
 
-Cette force était si puissante que le bras droit de Wang Lin ne put plus la contenir. Aussitôt la statue lancée, son bras droit s'effondra. Cependant, la force de rejet avait trouvé une issue: le corps de Dieu Antique pétrifié vola comme une flèche et percuta la tête de Tuo Sen!
+Cette force était si puissante que le bras droit de Wang Lin ne put plus la contenir. Aussitôt la statue lancée, son bras droit s'effondra. Cependant, la force de rejet avait trouvé une issue: le corps de Dieu Ancien pétrifié vola comme une flèche et percuta la tête de Tuo Sen!
 
 Un cri plaintif s'échappa de la bouche de Tuo Sen. Puis, un fracas de tonnerre émana de son corps alors qu'il crachait du sang, projeté en arrière par l'impact!
 

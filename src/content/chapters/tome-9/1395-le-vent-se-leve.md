@@ -12,11 +12,11 @@ Un instant plus tard, les yeux de Wang Lin étaient empreints de détermination 
 
 Peu après, une brume noire s'échappa de la Bouteille d'Âme Démoniaque. Des âmes démoniaques ancestrales luttaient au sein de cette brume et chargèrent Wang Lin sans attendre.
 
-L'expression de Wang Lin demeura calme. Alors que les âmes démoniaques se précipitaient vers lui, il agita la main et une bourrasque de vent balaya les entités; elles se retrouvèrent toutes piégées dans sa paume.
+L'expression de Wang Lin demeura calme. Alors que les âmes démoniaques se précipitaient vers lui, il agita les deux mains et une bourrasque de vent balaya les entités; elles se retrouvèrent toutes piégées dans sa paume.
 
 « Sort du Dao, fusion! » La voix de Wang Lin était sereine, mais empreinte d'une profonde froideur.
 
-Alors que ses paroles résonnaient, une lueur étrange brilla dans ses yeux et il utilisa immédiatement le sort du Dao du Maître Bleu Rêve. Des bruits de craquements éclatèrent et les âmes démoniaques se mirent à nouveau à pousser des cris déchirants. Elles cherchaient à s'échapper, mais les mains de Wang Lin étaient telles une prison céleste dont elles ne pouvaient s'extirper!
+Alors que ses paroles résonnaient, une lueur étrange brilla dans ses yeux et il utilisa immédiatement le sort du Dao de fusion du Maître du Dao Rêve Bleu. Des bruits de craquements éclatèrent et les âmes démoniaques se mirent à nouveau à pousser des cris déchirants. Elles cherchaient à s'échapper, mais les mains de Wang Lin étaient telles une prison céleste dont elles ne pouvaient s'extirper!
 
 Wang Lin ferma les yeux et concentra son esprit sur la fusion. Sous l'effet du sort du Dao, d'innombrables démons fusionnaient entre eux. Le temps s'écoulait lentement, et en un clin d'œil, sept jours s'étaient écoulés.
 
@@ -46,19 +46,19 @@ Cependant, ce brasier ne dura pas longtemps. Il se dissipa après huit minutes, 
 
 Peu importe leur activité, au moment où la planète s'embrasa, ils furent tous frappés de stupeur. Le feu logé en eux jaillit hors de leurs corps sans qu'ils puissent le contrôler.
 
-Leurs flammes commencèrent à converger vers cette planète abandonnée, comme si elles étaient appelées!
+Leurs flammes se prosternèrent vaguement en direction de cette planète abandonnée, comme si elles étaient appelées!
 
-Ce phénomène étrange stupéfia tous les cultivateurs du feu! En particulier, les membres du Clan des Faucons de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un faucon de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien!
+Ce phénomène étrange stupéfia tous les cultivateurs du feu! En particulier, les membres du Clan des Moineaux de Feu ressentirent une sensation bien plus intense que les autres. L'Ancien qui avait commercé avec Wang Lin était en pleine culture quand le feu en son sein apparut soudainement pour se transformer en un moineau de feu. L'oiseau déploya ses ailes comme s'il allait s'envoler, provoquant un immense trouble chez l'Ancien!
 
-Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Faucons de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle des pilules!
+Cet événement attira l'attention des cultivateurs du feu des Terres Déchues. L'Ancien du Clan des Moineaux de Feu quitta précipitamment sa culture pour se rendre sur la planète abandonnée avec quelques membres de son clan. Cependant, malgré ses recherches, il ne trouva rien. Il sentit pourtant une trace d'essence identique à celle des pilules!
 
-Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan des Faucons de Feu!
+Par ailleurs, durant ces jours, un événement qui ébranla tout le clan se produisit au sein du Clan des Moineaux de Feu!
 
 Les trois personnes qui avaient escorté la goutte de sang depuis les Terres Déchues l'avaient remise. Elles attendaient ensuite d'être convoquées à nouveau, anxieuses de savoir si cela attirerait l'attention du clan.
 
-Dans le vaste domaine étoilé occupé par le Clan des Faucons de Feu, sur la planète principale, de gigantesques statues de faucons de feu étaient dispersées; l'une d'elles culminait presque jusqu'au ciel.
+Dans le vaste domaine étoilé occupé par le Clan des Moineaux de Feu, sur la planète principale, de gigantesques statues de moineaux de feu étaient dispersées; l'une d'elles, entièrement embrasée, culminait presque jusqu'au ciel.
 
-Sous cette statue se trouvait une salle où siégeait un vieil homme. Son visage était rouge et embrasé par les flammes. C'était le patriarche du Clan des Faucons de Feu!
+Sous cette statue se trouvait une salle où siégeait un vieil homme. Son visage était rouge et embrasé par les flammes. C'était le patriarche du Clan des Moineaux de Feu!
 
 Une goutte de sang brûlante flottait devant lui. Il la fixait, le regard chargé de stupeur.
 
@@ -90,7 +90,7 @@ Le visage du vieil homme était trempé de sueur; il se lécha les lèvres et mu
 
 L'expression de l'homme d'âge moyen resta imperturbable, comme si rien ne pouvait altérer son visage. L'indifférence dans ses yeux persistait, créant un contraste saisissant avec le feu qui les habitait, ce qui lui conférait une apparence encore plus singulière.
 
-« Tu échoues même sur une affaire aussi mineure. Je ne suis pas satisfait d'un patriarche comme toi! Présente la goutte de sang et retire-toi. Punis-toi selon la troisième loi du clan. »
+« Une affaire aussi mineure suffit à te faire perdre tes moyens. Je ne suis pas satisfait d'un patriarche comme toi! Présente la goutte de sang et retire-toi. Punis-toi selon la troisième loi du clan. »
 
 Le visage du vieil homme pâlit instantanément. Il voulut protester, mais dès qu'il croisa le regard de l'Ancêtre dans la mer de feu violet, il hocha la tête. D'un geste de la main droite, il fit apparaître la goutte de sang brûlante, puis baissa la tête et s'en alla.
 
@@ -102,7 +102,7 @@ L'homme d'âge moyen tendit négligemment la main pour saisir la goutte de sang 
 
 « C'est exact, l'essence contenue dans ce sang ne peut être trompeuse, c'est bien le Sang de l'Oiseau Vermillon!! L'Oiseau Vermillon!! » L'homme d'âge moyen était transporté par l'excitation et tendit sa main gauche vers le vide.
 
-Le patriarche des Faucons de Feu s'apprêtait à quitter les profondeurs, le visage empreint de remords. Il poussa un soupir lorsqu'un grondement retentit soudain derrière lui. Il se retourna et ses pupilles se rétractèrent lorsqu'une gigantesque paume de feu le saisit.
+Le patriarche des Moineaux de Feu s'apprêtait à quitter les profondeurs, le visage empreint de remords. Il poussa un soupir lorsqu'un grondement retentit soudain derrière lui. Il se retourna et ses pupilles se rétractèrent lorsqu'une gigantesque paume de feu le saisit.
 
 En un éclair, la main ramena le vieil homme au bord de la mer de flammes violettes.
 
@@ -112,4 +112,4 @@ En entendant cela, l'homme d'âge moyen éclata de rire. L'extase brillait dans 
 
 « Bien, bien, bien! Tu es digne d'avoir été choisi par moi pour être le patriarche du clan, excellent travail!! Envoie immédiatement tous les membres du clan pour trouver la source de ce sang dans les Terres Déchues, coûte que coûte!! »
 
-Le patriarche des Faucons de Feu hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta: « Il ne m'est pas commode de me rendre dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège! »
+Le patriarche des Moineaux de Feu hocha rapidement la tête et s'apprêta à partir. Les yeux de l'homme d'âge moyen s'illuminèrent tandis qu'il réprimait son excitation. Il ajouta: « Il ne m'est pas commode de me rendre dans les Terres Déchues, je vous attendrai donc à l'extérieur pour vous accueillir. De plus, soyez prudents une fois sur place et vérifiez s'il ne s'agit pas d'un piège! »

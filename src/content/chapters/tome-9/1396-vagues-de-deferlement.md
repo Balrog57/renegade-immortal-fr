@@ -8,7 +8,7 @@ slug: vagues-de-deferlement
 ---
 La planète des Scorpions Noirs était toujours enveloppée d'une couche d'énergie démoniaque. De loin, elle paraissait extrêmement étrange, et même les créatures de la planète en étaient affectées.
 
-Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et commença toutes à se condenser vers un point unique!
+Ce jour-là, il ne restait que six jours avant la Sélection des Anciens Délaissés, et l'énergie démoniaque qui drapait la planète commença à changer. Cette énergie gronda bruyamment et se contracta rapidement, affluant en masse vers l'intérieur de la planète!
 
 Ce changement soudain attira l'attention du Clan des Scorpions Noirs et du Clan de l'Évasion Nuageuse. Alors qu'ils déployaient leur Sens Divin pour observer, ils remarquèrent que la dense énergie démoniaque convergeait toute vers la grotte de Wang Lin!
 
@@ -18,9 +18,9 @@ En un instant, toute l'énergie démoniaque disparut, aspirée dans la demeure d
 
 Le vortex tournait avec frénésie et se contractait rapidement. Tout cela se produisit en un éclair, si vite que personne ne put réagir!
 
-À mesure que l'énergie démoniaque s'accumulait dans la grotte, une épaisse couche de brouillard, impénétrable pour le Sens Divin, se forma. Ce brouillard continuait de se condenser rapidement. Wang Lin était assis au cœur de cette brume, et devant lui flottait une petite silhouette rouge.
+À mesure que l'énergie démoniaque s'accumulait dans la grotte, une épaisse couche de brouillard, impénétrable pour le Sens Divin, se forma. Ce brouillard continuait de se condenser rapidement. Wang Lin était assis au cœur de cette brume, et devant lui flottait une petite silhouette rouge sombre.
 
-Cette petite créature était floue, semblable à une âme originelle. Elle ressemblait davantage à une âme et présentait une ressemblance frappante avec Wang Lin. À ceci près qu'elle dégageait une aura de folie et se montrait féroce.
+Cette petite créature était floue, semblable à une âme originelle. Elle ressemblait davantage à une âme et présentait une ressemblance frappante avec Wang Lin. À ceci près qu'elle dégageait une aura de cruauté et de folie et se montrait féroce.
 
 À cet instant, la petite silhouette ouvrit la bouche et commença à dévorer le brouillard démoniaque! Après un moment, toute la brume fut consumée par l'être minuscule.
 
@@ -44,7 +44,7 @@ Le regard de Wang Lin était glacial lorsqu'il dit lentement: « Un seul souffle
 
 La petite âme démoniaque frissonna et se prosterna rapidement, comme si elle implorait la pitié.
 
-Wang Lin leva sa main droite vers le vide. La Lance du Démon de Brume apparut soudainement, pointée vers l'âme démoniaque. L'âme démoniaque et l'esprit de Wang Lin étant liés, elle afficha un regard d'hésitation.
+Wang Lin leva sa main droite vers le vide. La Lance du Démon de Brume apparut soudainement devant lui, puis il désigna l'âme démoniaque. L'âme démoniaque et l'esprit de Wang Lin étant liés, elle afficha un regard d'hésitation.
 
 Wang Lin laissa échapper un froid reniflement.
 
@@ -64,7 +64,7 @@ Une âme démoniaque supplémentaire apparut aux côtés de l'âme originelle de
 
 L'expression de Wang Lin était sereine, mais une pointe de joie régnait dans son cœur. L'avatar démoniaque n'était pas encore complet, mais il avait pris forme. Après l'avoir affiné encore plusieurs fois, il pourrait devenir un véritable avatar!
 
-« Je me demande si je pourrai retrouver la forme originelle de l'Ordre Ancien une fois que mes avatars de Dieu Ancien, de Démon et de Diable auront fusionné comme je l'espère! » Wang Lin se lécha les lèvres et agita la main droite. Deux trésors apparurent immédiatement devant lui.
+« Je me demande si je pourrai retrouver la forme originelle de l'Ordre Ancien une fois que mes avatars de Dieu Ancien, de Diable et de Démon auront fusionné comme je l'espère! » Wang Lin se lécha les lèvres et agita la main droite. Deux trésors apparurent immédiatement devant lui.
 
 Une feuille jaune et un arbre scellé!
 
@@ -122,4 +122,4 @@ Un vieil homme vêtu d'une robe blanche se tenait là. Son apparence était extr
 
 Derrière lui se tenaient trois personnes qui ressemblaient à des serviteurs. Si Wang Lin les avait vus, il les aurait trouvés extrêmement familiers!
 
-Yi Muzi, Wudo Chan... et le déjà défunt... Ji Xiantian!
+Yi Muzi, Wu Dongchan... et le déjà défunt... Ji Xiantian!

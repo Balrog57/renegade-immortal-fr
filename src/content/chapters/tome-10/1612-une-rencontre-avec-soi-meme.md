@@ -14,7 +14,7 @@ Seules deux traces laissées par le passage du chariot étaient visibles. Le cra
 
 Le long du chemin, on pouvait apercevoir une auberge. Elle était ensevelie sous une épaisse couche de neige blanche; elle paraissait désolée et personne n'y habitait.
 
-Plus de la moitié de l'édifice s'était effondrée il y a plus de dix ans, blessant nombre de ses occupants. Le propriétaire s'était attiré les foudres des autorités et était mort en prison. Quant au serveur, il était parti; on ignorait où il se trouvait ou s'il était encore en vie.
+Plus de la moitié de l'édifice s'était effondrée il y a plus de dix ans, blessant quelques-uns de ses occupants. Le propriétaire s'était attiré les foudres des autorités et était mort en prison. Quant au serveur, il était parti; on ignorait où il se trouvait ou s'il était encore en vie.
 
 Au fil du temps, l'auberge qui avait autrefois rendu ivre le grand érudit de Zhao n'était plus qu'une ruine.
 
@@ -50,7 +50,7 @@ Il s'appelait Grande Fortune.
 
 Il avait attendu ici pendant trente-cinq ans. Il se souvenait encore du jour où Wang Lin lui avait dit d'attendre son retour.
 
-« Il a dit qu'il n'y aurait pas de trente-huitième année, alors il devrait bientôt être de retour... » Grande Fortune semblait épuisé et se leva avec l'aide de sa canne. Juste au moment où il allait se retirer, les deux grands chiens, trop paresseux pour bouger, commencèrent à gémir.
+« Il a dit qu'il n'y aurait pas de trente-huitième année, alors il devrait bientôt être de retour... » Grande Fortune semblait épuisé et se leva avec l'aide de sa canne. Juste au moment où il allait se retirer, les deux grands chiens, si gelés qu'ils n'aboyaient plus, commencèrent à gémir.
 
 Le bruit d'un chariot écrasant la neige parvint faiblement du lointain jusqu'à s'arrêter devant la cour. La porte du véhicule s'ouvrit et Wang Lin en sortit, faisant face au vent et aux flocons.
 
@@ -100,7 +100,7 @@ Les jours se succédèrent. Plusieurs mois passèrent, le printemps de Su s'éva
 
 C'était juin de la soixante-quinzième année. Les feuilles de saule volaient à nouveau alors que Wang Lin, assis à la proue du bateau, buvait son vin d'osmanthus.
 
-« Le monde est une auberge pour tous les êtres vivants... Le temps est l'hôte des âges... La frontière entre la vie et la mort n'est qu'un réveil... d'un rêve... » Wang Lin rit tandis que le bateau dérivait sur la rivière. Un pont de pierre se dressait devant lui, mais il était désert. Seul un oiseau blanc planait au-dessus de l'édifice.
+« Le ciel et la terre ne sont que l'auberge des dix mille êtres... Le temps n'est que le voyageur de passage de cent générations... Et cette vie flottante est comme un rêve, combien de joies nous apporte-t-elle... » Wang Lin rit tandis que le bateau dérivait sur la rivière. Un pont de pierre se dressait devant lui, mais il était désert. Seul un oiseau blanc planait au-dessus de l'édifice.
 
 Cet oiseau ne s'était pas manifesté depuis fort longtemps. Désormais, il décrivait des cercles autour du pont. Les rues environnantes devinrent floues; c'était comme si le monde entier perdait sa netteté à cet instant précis.
 

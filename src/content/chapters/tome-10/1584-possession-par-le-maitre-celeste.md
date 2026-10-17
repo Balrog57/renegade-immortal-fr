@@ -12,7 +12,7 @@ La montagne s'effondra et les roches volèrent en éclats sous l'impact de Wang 
 
 Des grondements tonitruants résonnèrent alors que Wang Lin perçait les profondeurs de la planète Suzaku, son corps s'effondrant et se reformant sans cesse. Il traversa ainsi les cavernes du Clan du Tatouage.
 
-Bien que cette planète Suzaku ait été extraite par la « Pêche au Trésor » du Souverain, elle demeurait la planète Suzaku. Hormis l'absence de toute forme de vie, tout le reste était intact!
+Bien que cette planète Suzaku ait été extraite par la technique « Pêcher la Lune dans le Puits » du Souverain, elle demeurait la planète Suzaku. Hormis l'absence de toute forme de vie, tout le reste était intact!
 
 Les cavernes du Clan du Tatouage étaient toujours là!
 
@@ -20,11 +20,11 @@ En perçant les profondeurs, Wang Lin traversa la terre et apparut dans la 18e c
 
 Tout ici était resté identique à son départ. L'un des murs s'était effondré, et par l'ouverture se dévoilait le Champ de Bataille Extérieur!
 
-La Pêche au Trésor était un phénomène extrêmement étrange, car elle avait également extrait le Champ de Bataille Extérieur. Bien qu'il ne s'agisse que d'une projection, les innombrables âmes errantes et les corps sans vie étaient toujours présents!
+Pêcher la Lune dans le Puits était un sort extrêmement étrange, car il avait également extrait le Champ de Bataille Extérieur. Bien qu'il ne s'agisse que d'une projection, les innombrables âmes errantes et les corps sans vie étaient toujours présents!
 
 Le corps de Wang Lin s'écrasa dans la 18e couche avec fracas, et il recracha du sang une fois de plus. Son corps était enveloppé d'une lumière dorée, et la douleur était telle qu'il aurait pu perdre connaissance. Cependant, il serra les dents et endura chaque effondrement de sa structure.
 
-L'une des cinq puissances, le Maître Céleste Dieu du Vide, déchaîna une paume chargée d'une aura puissante. Elle frappa le dos de Wang Lin, provoquant une instabilité flagrante dans son corps immortel.
+L'un des cinq maîtres, le Maître Céleste Dieu du Vide, déchaîna une paume chargée d'une aura puissante. Elle frappa le dos de Wang Lin, provoquant une instabilité flagrante dans son corps immortel.
 
 Le corps immortel de Wang Lin n'était pas parfait. Alors que sa forme continuait de se reconstruire, il lutta pour tenter de se redresser.
 
@@ -60,7 +60,7 @@ Quelques êtres, également dévoreurs d'âmes, furent lentement intégrés à c
 
 Des grondements tonitruants éclatèrent alors que la puissante tempête d'âmes errantes jaillissait de la brèche de la 18e couche!
 
-C'était la première fois qu'elles quittaient le Champ de Bataille Extérieur. C'était la première fois qu'elles chargeaient sans être entravées par cette étrange loi. Bien que le Souverain les ait extraites avec la Pêche au Trésor, même lui n'avait pu extraire la loi mystérieuse qui scellait le Champ de Bataille Extérieur.
+C'était la première fois qu'elles quittaient le Champ de Bataille Extérieur. C'était la première fois qu'elles chargeaient sans être entravées par cette étrange loi. Bien que le Souverain les ait extraites avec Pêcher la Lune dans le Puits, même lui n'avait pu extraire la loi mystérieuse qui scellait le Champ de Bataille Extérieur.
 
 Par conséquent, ces âmes errantes pouvaient désormais se mouvoir sans aucune restriction. Leur rugissement exalté balaya la planète Suzaku.
 
@@ -84,7 +84,7 @@ Le corps de Wang Lin trembla et s'effondra à nouveau. Cet effondrement se propa
 
 D'immenses nuages de brume se dispersèrent tandis que les âmes errantes faisaient rage. Le phénomène perdura jusqu'à ce que la brume se reforme pour reconstituer le corps du Maître Céleste Dieu du Vide!
 
-Ses yeux étaient empreints de regret lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, l'impératrice céleste presque couverte par la Lune Noire afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
+Ses yeux étaient empreints de regret lorsqu'il poussa un rugissement et chargea à nouveau. Simultanément, la concubine impériale céleste presque couverte par la Lune Noire afficha un regard glacial et fit un pas en avant. L'homme en blanc s'approcha également, chargé d'une puissante intention meurtrière.
 
 Cependant, à cet instant précis, le corps de Wang Lin se reforma grâce aux innombrables âmes errantes. Désormais, il ne s'effondrerait plus pendant un certain temps. Ses yeux brillèrent intensément alors qu'il fixait le Maître Céleste Dieu du Vide qui fonçait sur lui.
 
@@ -104,9 +104,9 @@ Des décharges d'énergie de flèche enveloppèrent les environs et une aura ant
 
 « Ce vieil homme ne s'implique pas! » Tout en battant en retraite, le Maître Céleste Dieu du Vide sortit un jade, mais celui-ci ne réagit pas!
 
-Les deux impératrices célestes connaissaient l'arc et la flèche bien mieux que lui. La femme entourée par la Lune Noire fut prise de panique et battit en retraite précipitamment.
+Les deux concubines impériales célestes connaissaient l'arc et la flèche bien mieux que lui. La femme entourée par la Lune Noire fut prise de panique et battit en retraite précipitamment.
 
-L'autre impératrice céleste pâlit, perdant toute la fierté qu'elle affichait auparavant. Devant la flèche de Wang Lin, elle recula désespérément et brisa également son jade, mais sans aucun résultat.
+L'autre concubine impériale céleste pâlit, perdant toute la fierté qu'elle affichait auparavant. Devant la flèche de Wang Lin, elle recula désespérément et brisa également son jade, mais sans aucun résultat.
 
 Lorsque cet arc fut bandé, les cieux et la terre changèrent de couleur!
 

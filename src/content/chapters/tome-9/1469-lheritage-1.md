@@ -40,9 +40,9 @@ Lorsque le coup partit, l'image illusoire au sein du monde trembla. Dans la scè
 
 Des bruits de craquements résonnèrent et ces milliers de cultivateurs crachèrent du sang. Une étrange distorsion se forma autour d'eux, et leurs corps furent aspirés par elle. Contre toute attente, ils se rangèrent proprement en quatre colonnes!
 
-Ce phénomène ne se produisit pas qu'à cet endroit. Dans les huit directions entourant la plateforme, les dix mille cultivateurs de front crachèrent du sang et s'alignèrent selon cette étrange formation!
+Ce phénomène ne se produisit pas qu'à cet endroit. Dans les huit directions entourant la plateforme, les dizaines de milliers de cultivateurs de front crachèrent du sang et s'alignèrent selon cette étrange formation!
 
-Une aura de mort emplit la zone. Tous les cultivateurs ainsi alignés virent leur culture, leur âme originelle et toute trace de vie volater en éclats!
+Une aura de mort emplit la zone. Tous les cultivateurs ainsi alignés virent leurs organes internes, leur âme originelle et toute trace de vie voler en éclats!
 
 Le poing de Wang Lin s'arrêta dans les airs et se détendit lentement pour devenir une paume tandis qu'il retirait son bras. Puis, il fit un geste désinvolte de la main.
 
@@ -70,7 +70,7 @@ Les huit dragons géants conservèrent leur posture de combat, flottant immobile
 
 Non seulement eux, mais tous les cultivateurs touchés par les ondulations subirent le même sort. Leur force vitale se changea en aura de mort, entraînant leur décès immédiat!
 
-« Dieu, Démon, Diable, Dao Ancien sans Cieux! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
+« Dieu, Démon, Diable, Dao Ancien sans Céleste! » murmura Wang Lin en transformant sa main en paume pour pousser doucement vers l'avant. Les étoiles anciennes entre ses sourcils tournèrent rapidement, passant soudainement de six à neuf étoiles. Les douze étoiles dans ses yeux passèrent également de douze à dix-huit!
 
 Dieu Ancien à 9 étoiles!
 Démon Ancien à 9 étoiles!
@@ -86,19 +86,19 @@ Une fois apparue, la tête ouvrit la bouche et expira un souffle violent. Ce ven
 
 La puissance de l'Ordre Ancien et la lumière septicolore entrèrent en collision, faisant trembler le monde. C'est alors qu'un rugissement monstrueux retentit!
 
-Derrière l'homme au parapluie, le cultivateur aux yeux clos tenait soudain un grand arc marqué de neuf sceaux. L'arc était fait d'os, gravé de motifs de lune et d'étoiles. Sa corde, faite d'un matériau inconnu, exhalait une aura ancestrale.
+Derrière l'homme au parapluie, le cultivateur aux yeux clos tenait soudain un grand arc marqué de neuf sceaux. L'arc était fait d'os, le soleil et la lune gravés à une extrémité, le ciel étoilé imprimé à l'autre. Sa corde, faite d'un matériau inconnu, exhalait une aura ancestrale.
 
 L'archer en noir tendit la corde, lui donnant la forme d'une pleine lune. Une longue flèche sombre, ornée de neuf plumes, apparut dans l'arc.
 
 Cette flèche était marquée par les stigmates du combat, comme si elle avait traversé d'innombrables batailles et terrassé des myriades de cultivateurs. Une intention meurtrière écrasante s'en dégageait.
 
-Les yeux clos, il banda l'arc et relâcha la corde!
+Les yeux clos, il banda l'arc; en relâchant la corde, il ouvrit les yeux!
 
 En un éclair, la flèche fendit l'air avec une impulsion indescriptible. Le monde trembla et une fissure gigantesque se creusa dans le sol, suivant sa trajectoire!
 
 La flèche brisa tout sur son passage. Un grondement tonitruant couvrit tous les autres sons tandis qu'elle perçait le vide.
 
-Elle traversa l'ombrelle, l'aura destructrice de la tête géante et pénétra tout ce qui existait dans ce monde. C'était comme si ni les cieux, ni le temps, rien ne pouvait l'arrêter!
+Elle traversa la lumière septicolore de l'homme au parapluie, le souffle destructeur exhalé par la tête géante et tout ce qui existait. C'était comme si ni le firmament, ni le temps, rien ne pouvait l'arrêter!
 
 Le choc provoqua une onde de choc puissante. La flèche transperça l'aura de l'Ordre Ancien et s'abattit sur l'œil gauche de la tête colossale!
 
@@ -108,11 +108,11 @@ On pouvait distinctement voir un œil gauche ensanglanté au bout de la flèche 
 
 Une douleur intense déferla sur l'esprit de Wang Lin telle une marée, comme si elle cherchait à lui arracher ses propres souvenirs. Le sang coula de son œil gauche et les neuf étoiles démoniaques anciennes qu'il avait empruntées s'effondrèrent soudainement.
 
-« Dao Shot Li Guang a visé mon œil gauche. Mon œil gauche contenait la moitié de mes souvenirs et mes pensées pour ma terre natale... »
+« Dao Ji Li Guang a abattu mon œil gauche. Mon œil gauche contenait la moitié de mes souvenirs et mes pensées pour ma terre natale... »
 
-La voix qu'il avait entendue auparavant résonna de nouveau dans son esprit. Sous l'effet de cette douleur atroce, il sembla s'oublier lui-même pour devenir totalement l'Ancien Ye Mo!
+La voix qu'il avait entendue auparavant résonna de nouveau dans son esprit. Sous l'effet de cette douleur atroce, il sembla s'oublier lui-même pour devenir totalement l'Ordre Ancien Ye Mo!
 
-« Rendez-moi mon œil gauche! » rugit-il. Tandis que son cri résonnait, l'aura de la tête se précipita en avant. L'ombrelle se brisa et l'aura frappa l'homme au parapluie septicolore. Celui-ci afficha un sourire amer alors que son corps perdait toute vitalité pour se transformer en pierre. Même l'ombrelle fut pétrifiée.
+« Rendez-moi mon œil gauche! » rugit-il. Tandis que son cri résonnait, l'aura de la tête se précipita en avant. La technique septicolore s'effondra et l'aura frappa l'homme au parapluie. Celui-ci afficha un sourire amer alors que son corps perdait toute vitalité pour se transformer en pierre. Même l'ombrelle fut pétrifiée.
 
 L'aura balaya ensuite l'homme d'âge moyen pour atteindre l'archer derrière lui. Ce dernier médita en silence et ferma les yeux. Son corps se changea instantanément en pierre, figeant sa pose de vie.
 

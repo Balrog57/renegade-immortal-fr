@@ -50,7 +50,7 @@ Un grondement de tonnerre retentit et, un instant plus tard, tout disparut.
 
 Le Daoïste aux Sept Couleurs ferma les yeux, on ignorait à quoi il songeait. Après un long moment, il les rouvrit lentement et regarda l'endroit où Wang Lin s'était volatilisé, le regard empreint de nostalgie.
 
-« L'Empreinte de Jade aux Sept Couleurs... je crois que c'est ainsi qu'elle s'appelle... Malheureusement, je ne possède que le sort, pas le souvenir... Cependant, cela ne suffira pas pour m'échapper. L'Arc de Li Guang a terminé sa mission, il est temps de le récupérer. » Le Daoïste aux Sept Couleurs leva la tête et s'avança, disparaissant sans laisser de trace.
+« L'Empreinte de Jade aux Sept Couleurs... je crois que c'est ainsi qu'elle s'appelle... Malheureusement, je ne possède que le sort, pas le souvenir... Cependant, vouloir s'enfuir devant moi, c'est impossible. L'Arc de Li Guang a terminé sa mission, il est temps de le récupérer. » Le Daoïste aux Sept Couleurs leva la tête et s'avança, disparaissant sans laisser de trace.
 
 Seuls le Souverain et la septième concubine restèrent là, tous deux sous le choc de l'apparition de cette main et de l'identité de son propriétaire.
 
@@ -72,11 +72,11 @@ Au moment où il émergea, le trou noir se résorba en une pluie d'étincelles l
 
 L'extrême beauté ouvrit les yeux, laissant paraître une pointe d'épuisement. Elle observa Wang Lin et, après un long silence, secoua la tête avec un soupir.
 
-« Lors de notre séparation, votre niveau de culture était bien bas. Je n'aurais jamais pensé que vous atteindriez un tel niveau aujourd'hui... Je craignais que vous n'ayez oublié notre accord, mais quand j'ai reçu votre message via le jade, j'ai su que ce n'était pas le cas. »
+« Lors de notre séparation, votre niveau de culture était bien bas. Je n'aurais jamais pensé que vous atteindriez un tel niveau aujourd'hui... Je craignais que vous n'ayez oublié notre accord, mais quand j'ai reçu, il y a un an, votre message via le jade, j'ai su que ce n'était pas le cas. »
 
 « Vous m'avez aidé à m'échapper autrefois, il serait naturel que je ne l'oublie pas. Cependant, en raison de certains événements, je suis arrivé tard. » Wang Lin sourit et regarda le lion géant qui galopait. Il décida de s'asseoir.
 
-Lorsqu'il avait décidé de se rendre dans le Système Stellaire Antique pour détruire l'Ancien Royaume Céleste, il avait déjà réfléchi à un moyen de fuite. Wang Lin savait que ce voyage ne serait pas sans encombre. Dès qu'il aurait tiré deux flèches avec l'arc, le Souverain agirait. Même si Wang Lin disposait de plus de deux tirs — contrairement à ce que pensait le Souverain — le Royaume Extérieur était le domaine du Daoïste aux Sept Couleurs. Une fois cet homme apparu, la fuite deviendrait périlleuse.
+Lorsqu'il avait décidé de se rendre dans le Système Stellaire Antique pour détruire le Royaume Céleste Antique, il avait déjà réfléchi à un moyen de fuite. Wang Lin savait que ce voyage ne serait pas sans encombre. Dès qu'il aurait tiré deux flèches avec l'arc, le Souverain agirait. Même si Wang Lin disposait de plus de deux tirs — contrairement à ce que pensait le Souverain — le Royaume Extérieur était le domaine du Daoïste aux Sept Couleurs. Une fois cet homme apparu, la fuite deviendrait périlleuse.
 
 C'est pourquoi, alors qu'il cultivait sur la formation circulaire un an auparavant, il avait utilisé le jade pour communiquer avec cette femme à qui il n'avait pas parlé depuis longtemps. Ils avaient conclu un accord.
 
@@ -98,7 +98,7 @@ La femme poursuivit d'une voix douce:
 
 Wang Lin réfléchit silencieusement, écoutant ses paroles.
 
-« Cependant, ce n'est pas impossible. Lorsque vous rejoindrez le Continent Astral Immortel, vous devrez payer un prix exorbitant et subir la sentence de la Loi Astrale Immortelle. J'en sais peu sur ce sujet, mais on dit que seul en atteignant le stade du Tribulant Arcanique dans le monde caverneux pourriez-vous espérer y survivre. Cependant, je peux également vous aider pour cela! » dit la femme en fixant Wang Lin.
+« Cependant, ce n'est pas impossible. Lorsque vous rejoindrez le Continent Astral Immortel, vous devrez payer un prix exorbitant et subir la sentence de la Loi Astrale Immortelle. J'en sais peu sur ce sujet, mais on dit que seul en atteignant le stade de la Tribulation du Vide dans le monde caverneux pourriez-vous espérer y survivre. Cependant, je peux également vous aider pour cela! » dit la femme en fixant Wang Lin.
 
 « Je vous écoute », répondit Wang Lin d'un ton calme, sans la moindre émotion apparente. En voyant cela, la femme ne put s'empêcher de manifester une pointe d'admiration.
 
@@ -106,7 +106,7 @@ Après un moment de réflexion, elle ajouta soudainement: « Ma sœur aînée n'
 
 Les yeux de Wang Lin se plissèrent, mais il garda le silence.
 
-« Elle n'est pas ici, elle est dans le Continent Astral Immortel! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte des Sept Dao sera à vous! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte des Sept Dao, mais des disciples de cœur de la Secte de la Grande Âme. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
+« Elle n'est pas ici, elle est dans le Continent Astral Immortel! Obtenir une secte là-bas est extrêmement difficile, mais si vous tuez le Souverain Céleste aux Sept Couleurs, la Secte des Sept Dao sera à vous! Ma sœur et moi n'en voulons pas. En réalité, nous ne sommes pas membres de la Secte des Sept Dao, mais des disciples de cœur de la Secte de la Grande Âme, l'une des neuf sectes et treize portes de l'est du Continent Astral Immortel. À l'époque, nous étions aveugles et avons suivi le Souverain Céleste aux Sept Couleurs... » La femme serra les dents, le visage marqué par la rancœur.
 
 « Même après avoir pris possession de la Secte des Sept Dao, si vous souhaitez poursuivre votre culture, nous pourrons vous introduire dans la Secte de la Grande Âme! Quant à la sentence liée à votre entrée sur le Continent Astral Immortel, je demanderai à ma sœur d'en référer à Maître. Si Maître vous accueille personnellement sur le Continent Astral Immortel, la sentence sera atténuée. »
 

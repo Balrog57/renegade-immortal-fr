@@ -110,6 +110,6 @@ Ces neuf restrictions mesuraient des dizaines de milliers de pieds de haut, tell
 
 Cependant, au moment même où ces neuf restrictions se stabilisaient, l'une d'entre elles s'effondra soudainement en une multitude de fragments qui se dispersèrent dans toutes les directions.
 
-Peu après, les autres restrictions se brisèrent également. Ce changement brutal prit Wang Lin au dépourvu. Il leva rapidement la main droite et pointa son œil droit.
+Aussitôt, plusieurs autres restrictions se brisèrent également. Ce changement brutal prit Wang Lin au dépourvu. Il leva rapidement la main droite et pointa son œil droit.
 
 Soudain, l'œil droit de Wang Lin cracha du sang et une pupille gigantesque apparut au sein du brouillard sanguin. Cette pupille était parcourue d'innombrables lignes rouges!

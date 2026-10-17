@@ -98,7 +98,7 @@ La Hache Brise-Ciel frappa soudainement le sol. Près de 5 000 cultivateurs fure
 
 Zhou Jin réfléchit silencieusement, affichant une expression complexe, mais il attaqua tout de même sans hésiter. Ling Dong, quant à lui, était de marbre. Les paroles de l'adversaire n'étaient pas en mesure de provoquer la moindre fluctuation dans son esprit!
 
-La Grand Maître Yun Lou s'était avancée dans la formation. Lorsqu'elle vit Wang Lin, la peur envahit ses yeux. Elle leva sa main semblable au jade et hurla: « Tuez Wang Lin!! »
+La Grande Maîtresse Yun Luo s'était avancée dans la formation. Lorsqu'elle vit Wang Lin, la peur envahit ses yeux. Elle leva sa main semblable au jade et hurla: « Tuez Wang Lin!! »
 
 L'ancêtre du Clan des Moineaux de Feu se retourna soudainement avec une expression féroce. Il ignora carrément la Hache Brise-Ciel et fonça sur Wang Lin!
 
@@ -124,7 +124,7 @@ Les yeux de l'Estimé Nan Zhao s'illuminèrent. Sans utiliser de sort, il leva s
 
 Wang Lin se retourna brusquement. Ses pupilles se rétractèrent et il recula rapidement tout en levant la main droite.
 
-À ce moment précis, dans la Mer des Nuages au loin, le monde se déforma. Maître Hong Shan et Maître Sud Ciel apparurent. Ils libérèrent une intention meurtrière et se rapprochèrent à toute vitesse!
+À ce moment précis, dans la Mer des Nuages au loin, le monde se déforma. Maître Hong Shan et Maître Nan Yunzi apparurent. Ils libérèrent une intention meurtrière et se rapprochèrent à toute vitesse!
 
 De faibles rugissements provinrent des étoiles derrière eux!
 

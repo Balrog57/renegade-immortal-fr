@@ -34,9 +34,9 @@ L'expression du fou s'illumina d'excitation. Il se leva brusquement et s'exclama
 
 Wang Lin s'assit de son côté et sourit doucement. « Je peux t'emmener dehors, mais je dois connaître le sort de Dao le plus puissant que tu connaisses. »
 
-« Le Dao de la Disparition Céleste... » À peine eut-il fini sa phrase que le fou se couvrit précipitamment la bouche en secouant la tête.
+« Les Neuf Dao Ultimes Immortels... Même mon grand frère n'a réussi à explorer que le septième Dao Ultime... » À peine eut-il fini sa phrase que le fou se couvrit précipitamment la bouche en secouant la tête.
 
-« Je ne peux pas en dire les détails exacts. Il y a un serment en moi, et si je parle, je subirai le châtiment! » Le fou retira sa main, mais sans la baisser pour autant. Il se pinça le nez tout en fixant Wang Lin.
+« Je ne peux pas en dire les détails exacts. Il y a un serment en moi, et si je parle, je subirai le châtiment! » Le fou retira sa main, mais sans la baisser pour autant. Il se curait le nez tout en fixant Wang Lin.
 
 Rien ne laissait croire que ses paroles étaient vraies.
 
@@ -112,17 +112,17 @@ Le fou attrapa le jade, l'examina avec son Sens Divin, puis sauta de joie dans l
 
 « Amusant, c'est vraiment amusant! » Excité, le fou multiplia les gestes. Il fit voler des dizaines de pierres qui tournaient autour de lui. Il tournait lui-même avec elles jusqu'à en avoir le vertige, mais ses rires ne s'arrêtaient pas.
 
-Trouvant cela insuffisant, il courut plus loin et s'élança dans les airs. Il pointa le vide et la terre en dessous de lui gronda. Des milliers de rochers furent projetés dans le ciel.
+Trouvant cela insuffisant, il courut plus loin et s'élança dans les airs. Il pointa le vide et la terre en dessous de lui gronda. Des centaines, voire des milliers de rochers furent projetés dans le ciel.
 
 Trois jours passèrent en un éclair. Wang Lin ouvrit les yeux, dissimulant progressivement la lueur dorée qui émanait de son regard. À moins d'observer de très près, on ne pouvait la remarquer.
 
 Il regarda au loin et fronça les sourcils, secouant la tête avec un sourire amer.
 
-Il vit le fou rire avec une fureur joyeuse. Il avait des dizaines de milliers de rochers à ses côtés, tels des soldats, faisant face à des dizaines de milliers d'autres rochers agissant comme des ennemis.
+Il vit le fou rire avec une fureur joyeuse. Il avait plus de dix mille rochers à ses côtés, tels des soldats, faisant face à plus de dix mille autres rochers agissant comme des ennemis.
 
 Il manipulait ces masses de pierre pour les faire s'entrechoquer dans les airs, simulant une bataille rangée.
 
-« Petite fille aux sept couleurs, obéiras-tu à ce roi? Ce roi possède une armée de dizaines de milliers d'hommes! Si tu n'écoutes pas, ce roi sera en colère! » Après avoir rugi, il courut vers le camp adverse, ondulant des hanches avec une expression charmante et délicate.
+« Petite fille aux sept couleurs, obéiras-tu à ce roi? Ce roi possède une armée de plus de dix mille hommes! Si tu n'écoutes pas, ce roi sera en colère! » Après avoir rugi, il courut vers le camp adverse, ondulant des hanches avec une expression charmante et délicate.
 
 « Espèce de pervers, si tu as du cran, viens donc! »
 

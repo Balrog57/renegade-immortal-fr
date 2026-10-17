@@ -12,11 +12,11 @@ Des bruits de craquement retentirent dans le corps du vieil homme, et son expres
 
 Après un instant de souffrance intense, le sort de « Arrêt » qui pesait sur le vieil homme se dissipa légèrement. Ce dernier laissa échapper un cri misérable.
 
-Il voulait se libérer de l'emprise de Wang Lin, mais peu importaient ses efforts, la main droite de Wang Lin demeurait aussi stable qu'une montagne, clouant la tête du vieil homme au sol. Il n'avait aucune chance de s'échapper.
+Il voulait se libérer de l'emprise de Wang Lin, mais peu importaient ses efforts, la main droite de Wang Lin demeurait aussi stable qu'une montagne, serrant fermement le sommet du crâne du vieil homme. Il n'avait aucune chance de s'échapper.
 
 Ce rugissement de détresse fit perler la sueur sur tout le corps du vieil homme. Le désespoir se lut dans ses yeux et son visage devint livide.
 
-« Tu as commis le crime de tuer un être céleste, tu vas mourir! Je suis un Soldat Céleste au service du Seigneur Souverain, je porte le sang des cieux! Si tu me tues aujourd'hui, il te fera payer ton crime! »
+« Tu as commis le crime de tuer un être céleste, tu vas mourir! Je suis un Soldat Céleste au service du Souverain Céleste, je porte le sang des cieux! Si tu me tues aujourd'hui, il te fera payer ton crime! »
 
 « Quelle foutaise! » L'expression de Wang Lin resta calme tandis que sa main droite se resserrait, son sens divin s'engouffrant avec force dans l'esprit du vieil homme. Wang Lin voulait lui dérober ses souvenirs.
 
@@ -26,17 +26,17 @@ Les environs étaient plongés dans un silence absolu, comme si tel était l'ét
 
 « Oiseau Vermillon, la culture de ton descendant n'est pas faible, mais il fait preuve d'une arrogance déplacée en voulant fouiller la mémoire d'un Soldat Céleste. Bien qu'ils ne soient pas aussi puissants que nous, ils possèdent toujours le lignage céleste. Comment une simple fourmi pourrait-elle espérer sonder leurs souvenirs? » Une voix empreinte de moquerie résonna.
 
-« Il a franchi la troisième étape et brisé la rétribution divine pour parvenir jusqu'ici. Il a même brisé le neuvième soleil et repris possession de son propre destin. Cet exploit est incroyable, et il l'a accompli. Tigre Blanc, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose...? » Une voix froide et antique émana d'une autre statue.
+« Il a franchi la troisième étape et brisé la rétribution divine pour parvenir jusqu'ici. Il a même retiré son propre destin du neuvième soleil. Cet exploit est incroyable, et il l'a accompli. Tigre Blanc, tu te moques de lui, mais si tu étais un cultivateur du royaume inférieur, aurais-tu pu faire une telle chose...? » Une voix froide et antique émana d'une autre statue.
 
-« Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Seigneur Souverain. C'est une chance immense dont ma Secte aux Sept Dao pourrait profiter. Je ne suis pas surpris par le fait que cette petite fourmi puisse blesser gravement un Soldat Céleste en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Seigneur Souverain! »
+« Si c'était moi, cela ne signifie pas que je serais incapable de le faire! Nous, les êtres célestes, portons sur nos souvenirs des sceaux imposés par le Souverain Céleste. C'est une chance immense que seuls les disciples centraux de ma Secte des Sept Dao peuvent recevoir. Je ne suis pas surpris par le fait que cette petite fourmi puisse terrasser un Soldat Céleste gravement blessé et en convalescence, mais je suis certain qu'il trouvera sa propre mort s'il tente de briser le sceau du Souverain Céleste! »
 
-« Assez, pourquoi vous disputez-vous? Oiseau Vermillon, ton descendant est effectivement un peu trop arrogant. Et s'il venait à mourir à cause du sceau du Seigneur Souverain? Cela aurait-il un impact sur ton plan? » Une troisième voix s'éleva de la troisième statue.
+« Assez, pourquoi vous disputez-vous? Oiseau Vermillon, ton descendant est effectivement un peu trop arrogant. Et s'il venait à mourir à cause du sceau du Souverain Céleste? Cela aurait-il un impact sur ton plan? » Une troisième voix s'éleva de la troisième statue.
 
-Après une courte réflexion, la voix de Oiseau Vermillon résonna: « Il ne faisait pas partie de mon plan initial. Je suis surpris qu'il soit le premier à arriver ici... »
+Après une courte réflexion, la voix d'Oiseau Vermillon résonna: « Il ne faisait pas partie de mon plan initial. Je suis surpris qu'il soit le premier à arriver ici... »
 
-« Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Seigneur Souverain est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins de quinze minutes... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
+« Cet enfant n'est pas ordinaire; il est le premier cultivateur défiant les cieux à atteindre la troisième étape. Malheureusement, il est un cultivateur du royaume inférieur. S'il venait du Continent Astral Immortel, il serait déjà célèbre! Cependant, il ne devrait pas tenter de fouiller l'âme de ce Soldat Céleste. Le sceau du Souverain Céleste est une chose que même nous ne pourrions briser, même en joignant nos forces. Je crains qu'il ne meure en moins de quinze minutes... Quel dommage, c'est regrettable... » Une quatrième voix, empreinte de regret, émana de la dernière statue.
 
-Leurs voix se dissipèrent peu à peu et le silence revint. Même Oiseau Vermillon poussa un soupir intérieur. Il connaissait Wang Lin, mais il ne pensait pas que celui-ci pourrait briser le sceau du Seigneur Souverain.
+Leurs voix se dissipèrent peu à peu et le silence revint. Même Oiseau Vermillon poussa un soupir intérieur. Il connaissait Wang Lin, mais il ne pensait pas que celui-ci pourrait briser le sceau du Souverain Céleste.
 
 Le sens divin du vieil homme avait déjà formé son propre royaume, entouré d'une épaisse couche de brouillard qui empêchait le sens divin de Wang Lin de pénétrer.
 
@@ -44,29 +44,29 @@ Ce n'était pas la première fois que Wang Lin faisait face à une telle situati
 
 Aujourd'hui, Wang Lin retrouvait ce brouillard épais au sein du sens divin de ce vieil homme. Il marqua une pause, puis son sens divin commença à se rassembler à l'extérieur de la brume. Rapidement, la silhouette de Wang Lin apparut devant le brouillard.
 
-C'était une scène bizarre. À l'extérieur, dans l'Ancien Royaume Céleste, Wang Lin avait les yeux clos et sa main droite pressait le front du vieil homme tremblant.
+C'était une scène bizarre. À l'extérieur, dans l'Ancien Royaume Céleste, Wang Lin avait les yeux clos et sa main droite pressait le sommet du crâne du vieil homme tremblant.
 
 Pourtant, à l'intérieur du sens divin de Wang Lin, son âme originelle se trouvait dans l'esprit du vieil homme. Son apparence y était identique: l'âme originelle de Wang Lin portait une robe blanche et avait les cheveux blancs.
 
 Il se tenait là, observant le brouillard tourbillonnant devant lui. Cette brume dégageait une pression colossale agissant comme un sceau, capable d'interrompre tout sort de recherche d'âme.
 
-« La femme en argent possède un tel sceau, et ce vieil homme aussi. Intéressant... il semble que chaque être céleste sous les ordres du Seigneur Souverain porte ce sceau. »
+« La femme en argent possède un tel sceau, et ce vieil homme aussi. Intéressant... il semble que chaque être céleste sous les ordres du Souverain Céleste porte ce sceau. »
 
 Les yeux de Wang Lin s'illuminèrent d'un éclat vif. Autrefois, sa culture était insuffisante et il avait dû renoncer face à ce brouillard. Au-delà de son niveau de culture, une autre raison l'avait retenu: peu importait qu'il réussisse ou non à percer la brume, cela aurait causé un préjudice immense à la femme en argent.
 
 Cependant, Wang Lin n'éprouvait aucune trace de culpabilité envers le vieil homme. Il n'y avait aucune haine entre eux, et les péchés du vieil homme ne justifiaient pas la mort. Si Wang Lin n'avait pas découvert que les Royaumes Intérieur et Extérieur n'étaient qu'une vaste grotte, il ne l'aurait pas tué!
 
-Mais désormais, Wang Lin avait tout compris. Une haine indescriptible l'habitait envers le Seigneur Souverain et tous les êtres célestes qui lui étaient soumis! Plus particulièrement, la disparition du destin de Li Muwan avait porté cette haine à son paroxysme.
+Mais désormais, Wang Lin avait tout compris. Une haine indescriptible l'habitait envers le Souverain Céleste et tous les êtres célestes qui lui étaient soumis! Plus particulièrement, la disparition du destin de Li Muwan avait porté cette haine à son paroxysme.
 
 Avec un reniflement froid, Wang Lin s'avança vers le brouillard au sein de l'esprit du vieil homme. Sa silhouette fendit l'air telle une météorite pour se rapprocher de la brume. Il agita sa main droite et une tempête se déchaîna contre le brouillard.
 
 La tempête écarta les volutes de brume et, en un clin d'œil, une ouverture apparut devant lui. Dès que l'ouverture se forma, Wang Lin fit un pas en avant et disparut dans la brume.
 
-À l'intérieur du brouillard, Wang Lin progressa rapidement; la brume devant lui s'écartait de lui-même, traçant un passage. Il pénétrait peu à peu dans les profondeurs de ce voile.
+À l'intérieur du brouillard, Wang Lin progressa rapidement; la brume devant lui s'écartait d'elle-même, traçant un passage. Il pénétrait peu à peu dans les profondeurs de ce voile.
 
 Alors qu'il atteignait les tréfonds de la brume, une lumière aux sept couleurs jaillit devant lui. Cette lueur était extrêmement éblouissante dans la pénombre du brouillard, obligeant Wang Lin à plisser les yeux.
 
-En regardant plus attentivement, il aperçut un homme d'âge moyen agenouillé dans les profondeurs, baigné par cette lumière septicolore.
+En regardant plus attentivement, il aperçut un homme d'âge moyen assis en tailleur dans les profondeurs, baigné par cette lumière septicolore.
 
 L'homme avait les yeux clos et son corps était enveloppé par ces reflets colorés. Il dégageait une pression monstrueuse, capable de faire trembler tous les êtres vivants et de les clouer sur place.
 
@@ -76,7 +76,7 @@ C'était la deuxième fois que Wang Lin voyait cet homme. Après une brève réf
 
 Cet homme était lui-même un sceau, une barrière empêchant quiconque de sonder la mémoire des êtres célestes sous ses ordres!
 
-L'empreinte palmaire convergea instantanément vers l'homme agenouillé pour le traverser. Cependant, au moment même où elle le touchait, elle s'effondra silencieusement. La scène était d'une étrangeté absolue: si l'on regardait de près, on aurait vu que l'empreinte n'avait même pas atteint l'homme, mais s'était désintégrée à trois pouces de lui.
+L'empreinte palmaire convergea instantanément vers l'homme assis en tailleur pour le traverser. Cependant, au moment même où elle le touchait, elle s'effondra silencieusement. La scène était d'une étrangeté absolue: si l'on regardait de près, on aurait vu que l'empreinte n'avait même pas atteint l'homme, mais s'était désintégrée à trois pouces de lui.
 
 Les yeux de Wang Lin se rétrécirent. Dès que l'empreinte se brisa, il pointa son doigt vers l'avant. Un souffle d'air jaillit de son doigt vers l'homme d'âge moyen. Cette fois encore, Wang Lin observa attentivement et vit le souffle disparaître silencieusement à trois pouces de sa cible.
 

@@ -12,7 +12,7 @@ Il regarda Wang Lin et joignit les mains.
 
 « Merci, Seigneur du Royaume Scellé! » Il leva la tête et se tourna vers le Seigneur du Palais de la Punition Céleste. Ses yeux brillaient de sagesse.
 
-« Qing Jiuyan, même en brûlant ta culture, tu ne pourras pas t'échapper. Tu ne mourras pas; ce vieil homme te transformera en marionnette de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
+« Qin Jiuyan, même en brûlant ta culture, tu ne pourras pas t'échapper. Tu ne mourras pas; ce vieil homme te transformera en marionnette de sang et tu deviendras une aide précieuse pour mon Royaume Intérieur! » Après avoir parlé, le Maître Hong Shan se changea en une ombre rouge et chargea en avant.
 
 Le vieil homme en noir était livide. Bien qu'il fût un cultivateur du troisième niveau, il restait un cultivateur, et il était impuissant face à quatre adversaires. Alors que le Maître Hong Shan se rapprochait, le vieil homme en noir recula rapidement.
 
@@ -28,7 +28,7 @@ Cette bataille ne laissait place à aucun suspense. Le Royaume aux Sept Couleurs
 
 Grâce à l'aide du Maître Hong Shan, l'âme ardente du Maître Long Pan cessa de brûler. Il repartit avec son disciple, le Maître Zhong Xuan, pour attendre silencieusement la prochaine bataille contre le Royaume Extérieur.
 
-Le Maître Hong Shan invita Wang Lin dans la Mer des Nuages et utilisa le nom du Seigneur du Royaume Scellé pour enflammer l'esprit combatif des cultivateurs du Royaume Intérieur. Puis, il mena ces derniers à mener la contre-attaque finale.
+Le Maître Hong Shan invita Wang Lin sur la Plateforme de Guerre de la Mer des Nuages afin que, sous le nom de Seigneur du Royaume Scellé, il devienne l'âme de la guerre à venir, entraîne les cultivateurs du Royaume Intérieur et mène la contre-attaque finale.
 
 Wang Lin ne s'y rendit pas, car il avait obtenu trois Fruits du Dao. Le plus important pour lui était désormais de parachever ses trois voies avant que la force de rejet à l'intérieur de son corps n'explose. Il devait briser la porte du vide et accomplir son Dao!
 
@@ -42,11 +42,11 @@ L'évasion du Maître Hong Shan apporta la joie au Royaume Intérieur. La repris
 
 La mort de l'Illustre Maître Tian Zhao, l'arrivée du Maître Long Pan et la capture du Seigneur du Palais de la Punition Céleste ravivèrent la confiance du Royaume Intérieur.
 
-Il n'y avait plus de Royaumes aux Sept Couleurs dans le Royaume Intérieur. Après des décennies de guerre, les cultivateurs restants étaient tous des guerriers aguerris. Ils devaient se battre car, en cas d'échec, la seule issue restante serait la mort.
+Il n'y avait plus de Royaumes aux Sept Couleurs dans le Royaume Intérieur, et plus aucune faille. Surtout après des décennies de guerre, les cultivateurs restants étaient tous des guerriers aguerris. Ils devaient se battre car, en cas d'échec, la seule issue restante serait la mort.
 
 La nouvelle répandue par le Maître Hong Shan selon laquelle le Seigneur du Royaume Scellé était de retour eut l'impact le plus puissant! Cela poussa les cultivateurs du Royaume Intérieur à redresser la tête, et la flamme de la bataille dans leurs cœurs devint plus intense encore.
 
-Dans le Royaume du Vide Brillant, il existait un lieu près de la frontière entre la Mer des Nuages et Tout-Ciel. Cet endroit s'était rapidement transformé en une vaste zone commerciale.
+Dans le Royaume du Vide Brillant, il existait un lieu près des jonctions avec la Mer des Nuages, la Rivière Invoquée et Luotian. Cet endroit s'était peu à peu transformé en une vaste zone commerciale.
 
 De nombreuses planètes semblables étaient apparues aux confins des quatre grands systèmes stellaires. De nombreux cultivateurs des quatre systèmes s'y rassemblaient pour échanger les ressources dont ils avaient besoin.
 
@@ -54,11 +54,11 @@ Cela entraînait une lente fusion des quatre systèmes stellaires.
 
 À ce moment précis, sur cette planète du Vide Brillant nommée Un Esprit, se trouvaient des cultivateurs des quatre systèmes. Le va-et-vient incessant rendait l'endroit extrêmement animé.
 
-Les femmes cultivatrices de la Rivière Invoquée étaient les plus célèbres. Bien que beaucoup d'entre elles fussent mortes, nombre d'entre elles avaient acquis une grande renommée lors de cette contre-attaque.
+Les femmes cultivatrices de la Rivière Invoquée étaient les plus célèbres. Bien que beaucoup d'entre elles fussent mortes, nombre d'entre elles avaient réussi à briser l'encerclement lors de cette contre-attaque d'alors.
 
 Bien que la Rivière Invoquée ne fût que récemment reconquise, un grand nombre de ses femmes cultivatrices y étaient retournées. La Rivière Invoquée montrait des signes de renaissance.
 
-La Rivière Invoquée comptait le plus grand nombre de femmes cultivatrices, et toutes étaient magnifiques. Le parfum qu'elles dégageaient incitait les hommes célibataires des trois autres systèmes à faire tout leur possible pour trouver un partenaire Dao qui les accompagnerait pour le reste de leur vie.
+La Rivière Invoquée comptait le plus grand nombre de femmes cultivatrices, et toutes étaient magnifiques. Le parfum qu'elles dégageaient incitait les hommes célibataires des trois autres systèmes à faire tout leur possible pour trouver un partenaire Dao qui les accompagnerait pour le reste de leur vie, ou du moins une compagne d'un passage.
 
 Avec la présence des femmes de la Rivière Invoquée, la ville devint encore plus vivante.
 
@@ -116,7 +116,7 @@ La femme en violet semblait peu habituée à une telle attention et ses joues ro
 
 « Senior Sœur Zhou, dites-nous tout vite! » pressa la jeune femme en rose.
 
-« À cette époque, il s'appelait Ma Liang... Il n'était alors qu'au stade de l'Établissement des Fondations, et il était très froid et impitoyable... Il était revenu du Champ de Bataille Extérieur vers le pays de Hu Fen. S'il était vraiment le Seigneur du Royaume Scellé, lui et Li Muwan auraient dû se rencontrer là-bas... Li Muwan était ma meilleure amie... » La femme en violet semblait incertaine dans ses propos.
+« À cette époque, il s'appelait Ma Liang... Il n'était alors qu'au stade de l'Établissement des Fondations, et il était très froid et impitoyable... Il était revenu du Champ de Bataille Extérieur vers le pays de Huo Fen en même temps que nous. S'il était vraiment le Seigneur du Royaume Scellé, lui et Li Muwan auraient dû se rencontrer là-bas... Li Muwan était ma meilleure amie... » La femme en violet semblait incertaine dans ses propos.
 
 Les cultivateurs environnants écoutaient avec gravité. De tels récits venant d'un cultivateur de Suzaku étaient extrêmement rares.
 

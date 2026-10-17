@@ -30,7 +30,7 @@ Maître Lu Fu joignit les mains devant l'estimé Ling Dong. Bien que Ling Dong f
 
 À ces mots, Maître Lu Fu prit une profonde inspiration. En voyant le loup sanguinaire derrière Zhou Jin, ses soupçons se confirmèrent. Il avait entendu dire qu'il existait un clan dans le Royaume Extérieur qui servait le Loup Céleste! C'était la continuation de ce clan depuis les temps anciens.
 
-Les membres de ce clan étaient liés au loup et, grâce à leur longue lignée, ils possédaient de riches Flammes de Joss, permettant ainsi l'apparition de cultivateurs du troisième niveau! En entendant le nom de Zhou Jin, Maître Lu Fu fut certain de son identité!
+Les membres de ce clan étaient liés au loup et, grâce à leur longue lignée, ils possédaient de riches Flammes Joss, permettant ainsi l'apparition de cultivateurs du troisième niveau! En entendant le nom de Zhou Jin, Maître Lu Fu fut certain de son identité!
 
 « Ce Wang Lin est réellement allé dans le Royaume Extérieur! Il a réduit deux ancêtres en esclavage. Ceci... » Maître Lu Fu regarda Wang Lin et son regard changea. Lui-même était un cultivateur du troisième niveau et savait à quel point il était difficile de soumettre quelqu'un de sa trempe!
 
@@ -46,11 +46,11 @@ Toute la morosité qui l'habitait disparut et il joignit les mains. « Le camara
 
 « Je viens tout juste d'en revenir. » Wang Lin remarqua le changement d'attitude de Maître Lu Fu. Ce n'était pas un homme déraisonnable et il n'y avait aucune rancune entre eux. Bien qu'il fût plus fort et possédât deux serviteurs du troisième niveau, il ne ferait preuve d'aucune arrogance; il préférait traiter les autres avec politesse.
 
-« Bien, très bien! Plus tôt, la Secte Démoniaque de la Mer des Nuages a émis un ordre. Conformément à l'accord conclu avec le Seigneur du Royaume Scellé, un message a été transmis aux quatre systèmes stellaires: le Royaume Extérieur montre à nouveau des signes d'invasion de notre monde! Plusieurs cultivateurs du troisième niveau du Royaume Intérieur ont collaboré pour ouvrir la barrière entre les quatre grands systèmes stellaires, ils ne sont donc plus séparés!
+« Bien, très bien! Plus tôt, dans le système stellaire de la Mer des Nuages, la Secte des Démons et la Secte de Dieu ont émis simultanément un ordre scellé. Conformément à l'édit posthume du Seigneur du Royaume Scellé, un message a été transmis aux quatre systèmes stellaires: le Royaume Extérieur montre à nouveau des signes d'invasion de notre monde! Plusieurs cultivateurs du troisième niveau du Royaume Intérieur ont collaboré pour ouvrir la barrière entre les quatre grands systèmes stellaires, ils ne sont donc plus séparés!
 
-« Les quatre grands systèmes stellaires se préparent désormais à la bataille contre le Royaume Extérieur! Ce vieil homme déteste le Royaume Extérieur de toutes ses fibres. Lors de la première invasion, ce vieil homme n'était qu'un petit seigneur céleste et avait personnellement assisté à cette bataille tragique... Puisque le camarade cultivateur revient tout juste du Royaume Extérieur, vous devez avoir une connaissance approfondie de celui-ci. Ces seules informations nous permettront de comprendre les changements survenus dans le Royaume Extérieur au cours des dizaines de milliers d'années! »
+« Les quatre grands systèmes stellaires se préparent désormais à la bataille contre le Royaume Extérieur! Ce vieil homme déteste le Royaume Extérieur de toutes ses fibres. Lors de la première invasion, ce vieil homme n'était qu'un petit seigneur céleste du Royaume Céleste du Tonnerre et avait personnellement assisté à cette bataille tragique... Puisque le camarade cultivateur revient tout juste du Royaume Extérieur, vous devez avoir une connaissance approfondie de celui-ci. Ces seules informations nous permettront de comprendre les changements survenus dans le Royaume Extérieur au cours des dizaines de milliers d'années! »
 
-La plupart des cultivateurs du Royaume Intérieur ignoraient l'existence de la Formation de Scellement du Royaume. Seule une infime minorité en était informée, mais ils n'osaient pas sortir. Durant des millénaires, toutes les informations avaient été bloquées, ce qui serait fatal pour la guerre imminente!
+La plupart des cultivateurs du Royaume Intérieur ignoraient l'existence de la Formation de Scellement du Royaume. Seule une infime minorité en était informée, mais ils n'osaient pas sortir. Durant des dizaines de milliers d'années, toutes les informations avaient été bloquées, ce qui serait fatal pour la guerre imminente!
 
 Les paroles de Maître Lu Fu dissipèrent toute tension et Wang Lin rit.
 
@@ -60,7 +60,7 @@ Wang Lin sourit et dit: « J'ai effectivement quelques informations sur le Royau
 
 Il semblait avoir oublié qu'il n'allait pas raccompagner Wang Lin.
 
-Wang Lin rangea l'ancien démon qu'il tenait en main, puis réfléchit un instant.
+Wang Lin rangea le démon ancien qu'il tenait en main, puis réfléchit un instant.
 
 Ce changement soudain stupéfia les dizaines de milliers de cultivateurs environnants. Même Maître Yan Leizi et Lie Yunzi furent déconcertés, incapables de réagir immédiatement. Cependant, étant des êtres puissants, ils comprirent que Maître Lu Fu était sincèrement ravi. Ils devinèrent également ses intentions.
 
@@ -88,7 +88,7 @@ Maître Yan Leizi et Lie Yunzi se tenaient respectueusement sur le côté, obser
 
 Les dizaines de milliers de cultivateurs environnants s'approchèrent lentement, mais ils se dispersèrent sur ordre de Maître Yan Leizi pour retourner à la mise en place de la formation.
 
-Les deux hommes s'assirent dans le pavillon. Zhou Jin et Ling Dong furent également invités par Maître Lu Fu, et des célestes leur servirent du vin. Maître Lu Fu prit une coupe et rit: « Oublions les désagréments passés avec ce breuvage! » Il but la coupe d'un trait.
+Les deux hommes s'assirent dans le pavillon. Zhou Jin et Ling Dong furent également invités par Maître Lu Fu, et des célestes leur servirent du vin. Maître Lu Fu prit une coupe et rit: « Nous sommes après tout de vieilles connaissances. Oublions les désagréments passés avec ce breuvage! » Il but la coupe d'un trait.
 
 Wang Lin saisit sa propre coupe et l'examina avec son Sens Divin avant de boire. Ses yeux s'illuminèrent. Ce vin n'était pas piquant, mais lorsqu'il descendit dans sa gorge, il fut comme du feu. Une chaleur envahit son corps et un parfum délicieux emplit sa bouche.
 

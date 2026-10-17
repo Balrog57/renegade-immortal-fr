@@ -16,7 +16,7 @@ Allumer le feu karmique, créer un brasier par la seule force de sa pensée. Non
 
 Le Feu Éthéré, source de tous les feux du monde. Qu'il s'agisse du feu de la jalousie, de la colère, de la folie ou d'autres émotions, tout pouvait être utilisé par ceux qui avaient atteint le royaume du Feu Éthéré!
 
-Les cultivateurs capables d'atteindre le Feu Éthéré étaient d'une puissance redoutable. Même s'ils n'égalaient pas la force d'un cultivateur du troisième niveau, les cultivateurs de ce même niveau devaient néanmoins se méfier d'eux! Face à un tel expert, il était impossible de laisser paraître la moindre émotion, car la plus infime fluctuation sentimentale pouvait être exploitée par l'ennemi pour vous tuer!
+Les cultivateurs capables d'atteindre le Feu Éthéré étaient d'une puissance redoutable. Même s'ils n'égalaient pas la force d'un cultivateur de la troisième étape, ces derniers devaient néanmoins se méfier d'eux! Face à un tel expert, il était impossible de laisser paraître la moindre émotion, car la plus infime fluctuation sentimentale pouvait être exploitée par l'ennemi pour vous tuer!
 
 C'était une technique terrifiante. Il faut admettre que tous les êtres vivants possèdent des émotions. Peu importe l'indifférence d'un individu ou sa capacité à les dissimuler, les émotions résident toujours en lui.
 
@@ -24,9 +24,9 @@ Même le désir ardent du Maître du Dao Rêve Bleu pour sa femme et sa fille po
 
 La véritable terreur d'un cultivateur du Feu Éthéré ne résidait pas dans les duels singuliers, mais dans les batailles de groupe!
 
-Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs du troisième niveau savaient qu'il était extrêmement difficile de briser la Porte du Vide en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte du Vide avec lui s'avérait encore plus ardu!
+Un cultivateur du Feu Éthéré pouvait s'opposer à des milliers d'adversaires... Les cultivateurs de la troisième étape savaient qu'il était extrêmement difficile de briser la Porte du Vide en tant que cultivateur du tonnerre. Le tonnerre étant une force contrôlée par les Cieux, tenter de briser la Porte du Vide avec lui s'avérait encore plus ardu!
 
-L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao, on pourrait alors l'utiliser pour consumer la Porte du Vide et ainsi devenir un cultivateur du troisième niveau!
+L'essence du feu faisait partie des cinq éléments. Ce n'est qu'en devenant un Feu Éthéré que celle-ci pouvait s'affranchir de ces cinq éléments. Si elle parvenait à évoluer davantage en feu Dao, on pourrait alors l'utiliser pour consumer la Porte du Vide et ainsi devenir un cultivateur de la troisième étape!
 
 Le regard de Wang Lin était calme. Le Feu Éthéré était difficile à obtenir en raison de la graine de feu nécessaire au quatrième éveil de l'Oiseau Vermillon! Cependant, n'étant pas disposé à brûler ce monde, il devait choisir la voie la plus exigeante.
 
@@ -40,7 +40,7 @@ Wang Lin prit une profonde inspiration et ferma les yeux. À cet instant, une fl
 
 Les observateurs extérieurs ne pouvaient voir cette flamme, mais la douleur de son âme en proie aux flammes fit trembler Wang Lin lui-même. Il serra les dents et endura la combustion de son âme et de ses obsessions jusqu'à l'autodestruction.
 
-« J'entrerai dans le Dao avec cette obsession, et même la divine rétribution ne m'arrêtera pas! » Wang Lin redressa soudainement la tête et ouvrit les yeux. La flamme brûlait avec éclat en lui, bien que personne à l'extérieur ne pût la voir.
+« J'entrerai dans le Dao avec cette obsession, et même la rétribution divine ne pourra me détruire. Qui pourrait m'arrêter?! » Wang Lin redressa soudainement la tête et ouvrit les yeux. La flamme brûlait avec éclat en lui, bien que personne à l'extérieur ne pût la voir.
 
 Le temps s'écoulait lentement au sein de l'Épreuve Humaine. La fréquence des visites de Li Muwan au sommet de la montagne avait progressivement augmenté. Chaque fois que Wang Lin la voyait, le brasier dans son âme gagnait en intensité, mais il ne laissait rien paraître. La douceur dans ses yeux était aussi profonde qu'un lac.
 
@@ -60,7 +60,7 @@ C'était comme si deux mille ans s'étaient abattus sur Wang Lin pendant que son
 
 Le vortex effondré réapparut dans le ciel. Le vieil Oiseau Vermillon était revenu, poussé par l'inquiétude. Ses paroles étaient empreintes de sollicitude.
 
-Wang Lin serra les dents, son esprit déjà embrumé. La douleur intense agissait comme une marée qui menaçait de l'engloutir. Cette souffrance était des dizaines de fois plus puissante que tout ce que Wang Lin avait connu jusqu'alors!
+Wang Lin serra les dents, son esprit déjà embrumé. La douleur intense agissait comme une marée qui menaçait de l'engloutir. Cette souffrance était bien plus puissante que tout ce que Wang Lin avait connu jusqu'alors!
 
 Seule la calamité de l'Ancien Dieu, où son corps s'effondrait et se reformait sans cesse, lui avait infligé une douleur comparable. Pourtant, il existait une différence fondamentale entre ces deux tourments.
 
@@ -74,11 +74,11 @@ Seule la calamité de l'Ancien Dieu, où son corps s'effondrait et se reformait 
 
 Wang Lin ne répondit pas. À cet instant, sa conscience n'était plus qu'un brouillard. La douleur se mua en souvenirs qui défilèrent à travers son âme.
 
-Sa première rencontre avec Li Muwan... la Mer des Diables... la Secte Ciel Nuageux... sa mort... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans son cercueil.
+Sa première rencontre avec Li Muwan... la Mer des Démons... la Secte du Ciel Nuageux... la beauté réduite à des ossements desséchés... jusqu'à ce qu'elle ne devienne qu'un cadavre endormi dans son cercueil.
 
 Tous ces souvenirs brûlaient au plus profond de son être.
 
-« Cela fait bien assez longtemps. Si tu persistes, ta vie est en danger. Puisque tu refuses de te détacher de ce monde, alors même si tu finis par me haïr, je détruirai ce monde pour toi! » Tandis que les paroles du vieil Oiseau Vermillon résonnaient, une mer de feu surgit soudainement du vortex. Les flammes se propagèrent dans toutes les directions et, en un clin d'œil, enveloppèrent le monde. Elles s'apprêtaient à descendre pour tout consumer!
+« Cela fait bien assez longtemps. Si tu persistes, ta vie est en danger. Puisque tu refuses de te détacher de ce monde, alors même si tu devais ensuite me traiter avec indifférence, je détruirai ce monde pour toi! » Tandis que les paroles du vieil Oiseau Vermillon résonnaient, une mer de feu surgit soudainement du vortex. Les flammes se propagèrent dans toutes les directions et, en un clin d'œil, enveloppèrent le monde. Elles s'apprêtaient à descendre pour tout consumer!
 
 À cet instant précis, Li Muwan apparut au sommet de la montagne. Haletante, elle venait d'atteindre le sommet. Elle ne voyait pas le brasier, mais dans la vision trouble de Wang Lin, il pouvait voir cette mer de feu tenter d'engloutir Li Muwan telle une gueule béante!
 
@@ -92,15 +92,15 @@ Li Muwan fut stupéfaite. Alors qu'il l'enlaçait, Wang Lin se tourna vers le ci
 
 « Ancêtre, j'ai cultivé toute ma vie pour elle seule! Même si ce n'est qu'une illusion, ce Junior refuse de la blesser, et encore moins de la détruire! » Wang Lin regarda le ciel, des larmes coulant sur ses joues pour venir mouiller Li Muwan dans ses bras. Ses larmes brûlantes semblèrent pénétrer le cœur de la jeune femme, dont les yeux se remplirent de confusion.
 
-Au moment où Wang Lin prononça ces mots, le feu dans son âme explosa, devenant des dizaines de fois plus puissant qu'auparavant!
+Au moment où Wang Lin prononça ces mots, le feu dans son âme explosa, devenant incomparablement plus puissant qu'auparavant!
 
 Une volute de feu noir apparut au sein de ce brasier. Ce feu noir modifia les couleurs du monde et supprima totalement la flamme bleue qui brûlait dans l'âme de Wang Lin.
 
-« Le feu karmique! » Le vieil Oiseau Vermillon eut un haut-le-cœur et poussa un soupir.
+« Le feu karmique! » Le vieil Oiseau Vermillon inspira brusquement, puis poussa un long soupir.
 
-« Maintenant que ton obsession s'est muée en feu karmique, personne ne pourra t'arrêter, hormis le premier Ancêtre. Laisse tomber... Puisque tu l'as choisi, laisse tomber... » La voix du vieil Oiseau Vermillon s'estompa progressivement, la mer de feu se dissipa et le vortex s'effondra.
+« Maintenant que ton obsession s'est muée en feu karmique, personne ne peut empêcher le feu karmique de te consumer, hormis le premier Ancêtre. Laisse tomber... Puisque tu l'as choisi, laisse tomber... » La voix du vieil Oiseau Vermillon s'estompa progressivement, la mer de feu se dissipa et le vortex s'effondra.
 
-Le feu noir envahit instantanément le corps de Wang Lin, supplantant la flamme bleue. En un instant, plus de 80 % du feu bleu était devenu noir.
+Le feu noir envahit instantanément le corps de Wang Lin, supplantant la flamme bleue. En un instant, près de 80 % du feu bleu était devenu noir.
 
 Une douleur atroce émanant de son âme fit trembler tout son être. La souffrance devint des milliers de fois plus intense qu'auparavant. Son âme était en train d'être rapidement anéantie.
 

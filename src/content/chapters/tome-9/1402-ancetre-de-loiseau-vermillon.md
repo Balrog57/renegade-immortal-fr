@@ -10,7 +10,7 @@ Le vieil homme marmonna un instant, puis regarda Wang Lin avec haine tout en sec
 
 « Puisque le Yang de son âme originelle est brisé, non seulement il ne pourra pas cultiver le sortilège de ce vieil homme, mais il lui sera bien plus difficile d'atteindre le royaume du Feu Éthéré que ceux dont le Yang est intact. Malheureux, malheureux! » Le vieil homme soupira en observant Wang Lin qui était en pleine culture. Cependant, alors qu'il le regardait, ses yeux s'écarquillèrent soudainement et il s'exclama:
 
-« Quelque chose ne va pas... Le corps de ce petit gars... C'est... » Les yeux du vieil homme s'agrandirent et il s'approcha de Wang Lin. Une pointe d'excitation et d'incrédulité brillait dans son regard. Il décida simplement de poser son doigt sur le front de Wang Lin.
+« Quelque chose ne va pas... Le corps de ce petit gars... C'est... » Les yeux du vieil homme s'agrandirent et il s'approcha de Wang Lin. Une pointe d'excitation et d'incrédulité brillait dans son regard. Il décida simplement de poser sa paume sur le front de Wang Lin.
 
 Il ne blessa pas Wang Lin, mais une force mystérieuse pénétra dans son corps.
 
@@ -22,7 +22,7 @@ C'était l'essence de feu de Wang Lin!
 
 En voyant cette essence de feu, l'expression du vieil homme ne changea pas; c'était comme s'il s'y attendait déjà.
 
-Après l'essence de feu, une autre lumière émana du front de Wang Lin. Cette lumière était tonitruante et d'une brillance extrême. Le tonnerre gronda et des éclairs jaillirent du front de Wang Lin! Dès que cette foudre apparut, elle forma un tatouage, tandis que neuf éclairs compagnes tournaient autour d'elle, dégageant une force terrifiante!
+Après l'essence de feu, une autre lumière émana du front de Wang Lin. Cette lumière était tonitruante et d'une brillance extrême. Le tonnerre gronda et des éclairs jaillirent du front de Wang Lin! Dès que cette foudre apparut, elle forma un tatouage, tandis que neuf fins éclairs tournaient autour d'elle, dégageant une force terrifiante!
 
 Le ciel changea de couleur et les nuages se dispersèrent. L'essence de la foudre était extrêmement puissante!
 
@@ -34,7 +34,7 @@ Cependant, à cet instant précis, une autre lueur jaillit du front de Wang Lin.
 
 « C'est ça, c'est ce que j'ai vu auparavant. Le corps de ce petit gars... »
 
-Une autre lueur apparut et une lumière noire et blanche brilla sur le front de Wang Lin. Le monde trembla et une longue rivière illusoire apparut dans le ciel! Cette rivière était la Rivière des Enfers, formée par l'essence de vie et de mort de Wang Lin! La rivière balaya le ciel en formant un cercle parfait, reliant sa tête à sa queue. L'intérieur était embrumé et une aura de vie et de mort en jaillissait.
+Une autre lueur apparut et une lumière noire et blanche brilla sur le front de Wang Lin. Le monde trembla et une longue rivière illusoire apparut dans le ciel! Cette rivière était la Rivière des Enfers, formée par l'essence de vie et de mort de Wang Lin! La rivière balaya le ciel et sa tête rejoignit sa queue. L'intérieur était embrumé et une aura de vie et de mort en jaillissait.
 
 C'était la troisième essence de Wang Lin, née de son domaine de la vie et de la mort!
 
@@ -42,11 +42,11 @@ Le vieil homme afficha une excitation inimaginable; une joie qu'il n'avait pas r
 
 Avant qu'il n'ait pu finir sa phrase, il fut saisi d'un sursaut. Une autre lumière jaillit du front de Wang Lin et un symbole Yin et Yang illusoire s'en échappa. Ce symbole contenait le karma. Lorsqu'il apparut, il sembla déchirer le monde. Le ciel et la terre parurent se confondre, créant un cycle karmique.
 
-Heureusement, aucun autre cultivateur ne se trouvait à proximité. Autrement, ils auraient été entraînés à l'intérieur et leurs démons intérieurs auraient éclaté, les rendant incapables de s'échapper! Toute la causalité qu'ils avaient semée serait devenue un effet karmique venant les détruire!
+Heureusement, aucun autre cultivateur ne se trouvait à proximité. Autrement, ils auraient été aussitôt enlacés par cette force karmique et auraient sombré dans leurs démons intérieurs, incapables de s'en extraire! Toute la causalité qu'ils avaient semée serait devenue un effet karmique venant les détruire, et ils auraient péri corps et âme en un instant!
 
 « Il y en a encore d'autres!! » Le vieil homme était totalement stupéfait, son expression empreinte de choc.
 
-« Quatre essences... Ceci... Comment cet enfant a-t-il pu cultiver pour obtenir quatre essences? C'est trop déraison... » Les pupilles du vieil homme se rétractèrent à nouveau et il s'interrompit brusquement car une autre lueur jaillit du front de Wang Lin.
+« Quatre essences... Ceci... Comment cet enfant a-t-il pu cultiver pour obtenir quatre essences? C'est trop anormal... » Les pupilles du vieil homme se rétractèrent à nouveau et il s'interrompit brusquement car une autre lueur jaillit du front de Wang Lin.
 
 Cette fois, la lumière était extrêmement bizarre; elle semblait présente tout en étant absente, alternant constamment entre le vrai et le faux. Des images réelles et illusoires commencèrent à apparaître, rendant toute distinction impossible au premier coup d'œil.
 
@@ -76,24 +76,24 @@ Le vieil homme rit et secoua la tête. « Ce vieil homme n'est pas l'Oiseau Verm
 
 Wang Lin resta silencieux un moment, puis demanda avec hésitation: « Êtes-vous le Grand Empereur? »
 
-« Je suis comme toi, un Jeune Empereur! » Le vieil homme sourit. Voyant Wang Lin plongé dans ses pensées, il expliqua: « Ce vieil homme et le petit de la quatrième génération sommes tous deux des Jeunes Empereurs! Quant au Grand Empereur, ce n'est qu'un nom utilisé par les étrangers. Pour le clan de l'Oiseau Vermillon, il n'a qu'un seul nom: l'Ancêtre de l'Oiseau Vermillon de la première génération! Il est également l'un des quatre généraux les plus puissants sous l'ancien Empereur Céleste! »
+« Je suis comme toi, un Jeune Empereur! » Le vieil homme sourit. Voyant Wang Lin plongé dans ses pensées, il expliqua: « Ce vieil homme et le petit de la quatrième génération, nous sommes tous deux des Jeunes Empereurs! Quant au Grand Empereur, ce n'est qu'un nom utilisé par les étrangers. Pour le clan de l'Oiseau Vermillon, il n'a qu'un seul nom: l'Ancêtre de l'Oiseau Vermillon de la première génération! Il est également l'un des quatre généraux les plus puissants sous l'ancien Empereur Céleste! »
 
 L'esprit de Wang Lin trembla et il leva soudainement les yeux.
 
-Le vieil homme sourit: « Pour les détails, tu les connaîtras une fois que tu auras passé l'Épreuve Divine de l'Oiseau Vermillon. Cette épreuve est nécessaire, et pour toi, elle pourrait être une chance inouïe de percer vers le royaume du Feu Éthéré. Cependant, elle est extrêmement difficile, alors ne te laisse pas écraser par la pression. » Le vieil homme regarda vers le nord-ouest. Après une courte réflexion, il ajouta avec une pointe d'insatisfaction:
+Le vieil homme sourit: « Pour les détails, tu les connaîtras une fois que tu auras passé l'épreuve. Cette épreuve est nécessaire, et pour toi, elle pourrait être une chance inouïe de percer vers le royaume du Feu Éthéré. Cependant, elle est extrêmement difficile, alors ne te laisse pas écraser par la pression. » Le vieil homme regarda vers le nord-ouest. Après une courte réflexion, il ajouta avec une pointe d'insatisfaction:
 
-« Pourquoi n'as-tu pas accepté le défi du Maître Simo? Les membres de mon clan ne craignent pas les combats! Une fois l'épreuve tentée, libère ta puissance et affronte-le. Ceux qui sont invités ici ne pourront rien te faire! La sélection des Anciens Délaissés n'est qu'un jeu d'enfant. La raison principale d'inviter autant de cultivateurs de la troisième étape est de leur faire savoir qu'un nouveau Jeune Empereur est apparu dans les Terres Déchus!
+« Pourquoi n'as-tu pas accepté le défi du Maître Simo? Les membres de mon clan ne craignent pas les combats! Une fois l'épreuve tentée, libère ta puissance et affronte-le. Ceux qui sont invités ici ne pourront rien te faire! La sélection des Anciens Délaissés n'est qu'un jeu d'enfant. La raison principale d'inviter autant de cultivateurs de la troisième étape est de leur faire savoir qu'un nouveau Jeune Empereur est apparu dans les Terres Déchues!
 
-« Tu es un membre de mon clan, peu importe que tu viennes du Royaume Intérieur ou non! Si tu quittes cet endroit, je ne pourrai pas te protéger, mais tant que tu seras ici, je veux voir qui oserait t'approcher! Rappelle-toi, mon clan doit être tyrannique et partial. Nous devons l'être pour avoir une place dans ce vieux monde chaotique. C'est ainsi que l'on impose le respect et la crainte! Au lieu de te cacher, montre ta puissance! Ce Maître Simo est ta cible. Qu'importe qu'il soit un cultivateur de la troisième étape? Utilise-le pour démontrer ta force! »
+« Tu es un membre de mon clan, peu importe que tu viennes du Royaume Intérieur ou non! Si tu quittes cet endroit, je ne pourrai pas te protéger, mais tant que tu seras ici, je veux voir qui oserait t'approcher! Rappelle-toi, mon clan doit être tyrannique et partial. Nous devons l'être pour avoir une place dans ce monde chaotique. C'est ainsi que l'on impose le respect et la crainte! Au lieu de te cacher, montre ta puissance! Ce Maître Simo est ta cible. Qu'importe qu'il soit un cultivateur de la troisième étape? Utilise-le pour démontrer ta force! »
 
 Les paroles du vieil homme étaient d'une tyrannie absolue. Wang Lin réfléchit un instant avant de hocher la tête, une lueur froide dans le regard.
 
-Voyant l'expression de Wang Lin, le vieil homme fut extrêmement satisfait. Il regarda le lac et songea: « Bois ce sang de dragon pour l'épreuve. Tu ne peux pas cultiver ma méthode, mais puisque nous nous sommes rencontrés, je dois te donner quelque chose... Faisons ceci: ce vieil homme va te transmettre un sort secret du clan! »
+Voyant l'expression de Wang Lin, le vieil homme fut extrêmement satisfait. Il regarda le lac et songea: « Cette cruche de vin de sang de dragon, bois-la avec discernement pendant l'épreuve. Tu ne peux pas cultiver ma méthode, mais puisque nous nous sommes rencontrés, je dois te donner quelque chose... Faisons ceci: ce vieil homme va te transmettre un sort secret du clan! »
 
 Lorsqu'il prononça ces mots, son expression devint très étrange.
 
 « Puisque tu es un membre de mon clan, il n'y a aucun mal à te le dire. Mon clan n'a jamais possédé de soi-disant "sorts secrets". Ces sorts ont en réalité été volés aux clans du Dragon Azure, du Tigre Blanc et de la Tortue Noire, à l'époque où l'Ancêtre pouvait encore se mouvoir! Après les avoir rapportés, il les a nommés les sorts secrets du clan!
 
-« Parmi les trois clans, celui de la Tortue Noire est le plus puissant. J'ai examiné ton corps auparavant et j'ai découvert que tu étais devenu, d'une manière ou d'une autre, un Dieu Ancien. La puissance des Dieux Anciens devrait rendre ce sort encore plus redoutable! Ce n'est pas vraiment un sort, mais une méthode pour manipuler la force. Observe attentivement! »
+« Parmi les trois clans, celui de la Tortue Noire a la plus grande force. J'ai examiné ton corps auparavant et j'ai découvert que tu étais devenu, d'une manière ou d'une autre, un Dieu Ancien. La puissance des Dieux Anciens devrait rendre ce sort encore plus redoutable! Ce n'est pas vraiment un sort, mais une méthode pour manipuler la force. Observe attentivement! »
 
 Après avoir parlé, le vieil homme s'avança vers le lac. Il leva la main et fit un geste vers l'eau! Sa paume créa une dépression dans l'élément liquide, mais juste au moment où cette onde se formait, il frappa violemment la surface de l'eau.

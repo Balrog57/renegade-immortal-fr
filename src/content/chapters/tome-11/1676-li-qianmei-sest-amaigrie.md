@@ -20,7 +20,7 @@ Ses beaux yeux fixèrent Wang Lin, puis, avec un sourire, elle ajouta: « Avant 
 
 Wang Lin réfléchit silencieusement un instant, puis hocha la tête.
 
-À cet instant, il semblait n'y avoir rien d'autre à dire entre eux. Tandis que Wang Lin méditait, la femme en rose se tut également. Le système stellaire était plongé dans un calme absolu. En l'absence des cultivateurs du Royaume Extérieur, on pouvait parfois contempler l'éclat des étoiles lointaines.
+À cet instant, il semblait n'y avoir rien d'autre à dire entre eux. Tandis que Wang Lin méditait, la femme en rose se tut également. Le système stellaire était plongé dans un calme absolu. En l'absence des cultivateurs du Royaume Extérieur, on pouvait parfois apercevoir l'éclat de lointaines nébuleuses.
 
 Leur faible lueur était magnifique dans ce ciel étoilé. Accompagnés par les astres et la lumière stellaire, un sentiment inexplicable naquit entre l'homme et la femme.
 
@@ -30,7 +30,7 @@ Wang Lin ne la regarda pas. Il fixa le Royaume Intérieur et dit calmement: « P
 
 « Ainsi, tu le savais déjà. » La femme en rose ferma les yeux.
 
-« C'est Zhou Wutai qui me l'a rappelé. Il a trouvé une formation à Xue Yue qui contenait une mèche de tes cheveux. Il semble que tu aies échappé à ce désastre en utilisant cette formation. » Cette vision apparut dans l'esprit de Wang Lin.
+« C'est Zhou Wutai qui me l'a rappelé. Il a trouvé une formation à Xue Yu qui contenait une mèche de tes cheveux. Il semble que tu aies échappé à ce désastre en utilisant cette formation. » Cette vision apparut dans l'esprit de Wang Lin.
 
 Cette femme en rose était bien Papillon Rouge!
 
@@ -54,9 +54,9 @@ Wang Lin accepta la cruche et en prit une gorgée.
 
 « Tout cela appartient au passé désormais, mais tu t'en souviens encore. » Wang Lin sourit amèrement, ne sachant que dire.
 
-« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Gan Feng... En parlant de cela, merci de m'avoir libérée dans la Tombe de Suzaku. » Évoquant le passé, Papillon Rouge laissa échapper un soupir.
+« Bien sûr que je m'en souviens. Si je n'avais pas été gravement blessée, je n'aurais pas été sous le contrôle de Qian Feng... En parlant de cela, merci de m'avoir libérée dans la Tombe de Suzaku. » Évoquant le passé, Papillon Rouge laissa échapper un soupir.
 
-« Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yue pour trouver la rose bleue, et je l'ai trouvée. » Papillon Rouge était la femme qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
+« Il n'y a plus de haine profonde entre nous, tout est derrière nous. Tu m'as demandé d'aller à Xue Yu pour trouver la rose bleue, et je l'ai trouvée. » Papillon Rouge était la femme qui lui avait laissé l'impression la plus profonde après Li Muwan et Liu Mei.
 
 Sa silhouette semblable à un papillon rouge, cette femme si fière, était difficile à oublier. Elle avait atteint le stade de la Formation de l'Âme en seulement cent ans; elle était une femme bénie!
 
@@ -66,9 +66,9 @@ Le temps passa lentement. En un clin d'œil, trois jours s'écoulèrent. Wang Li
 
 Cette sensation était chaleureuse, très réconfortante.
 
-« Plus tard, lors de la bataille entre l'Omni-Ciel et l'Alliance, je t'ai vu... Mais tu ne m'as plus reconnue. » Papillon Rouge regarda Wang Lin. Elle l'avait vu sur la planète Suzaku et avait observé sa lumière devenir toujours plus éclatante. Cette lumière s'était propagée lentement jusqu'à envelopper les Royaumes Intérieur et Extérieur.
+« Plus tard, lors de la bataille entre Luotian et l'Alliance, je t'ai vu... Mais tu ne m'as plus reconnue. » Papillon Rouge regarda Wang Lin. Elle l'avait vu sur la planète Suzaku et avait observé sa lumière devenir toujours plus éclatante. Cette lumière s'était propagée lentement jusqu'à envelopper les Royaumes Intérieur et Extérieur.
 
-Papillon Rouge éprouvait également de l'admiration pour Wang Lin. Il n'y avait personne qu'elle ait jamais aimé dans sa vie, si ce n'est lui. Pourtant, leurs sentiments n'étaient pas de l'amour, mais une connexion inexplicable dont elle ignorait la nature.
+Papillon Rouge éprouvait également de l'admiration pour Wang Lin. Il n'y avait personne qu'elle ait jamais admiré dans sa vie, si ce n'est lui. Pourtant, leurs sentiments n'étaient pas de l'amour, mais une connexion inexplicable dont elle ignorait la nature.
 
 Peut-être était-ce comme le vin: avec le temps, un sentiment familier s'était développé.
 
@@ -92,7 +92,7 @@ Son expression était terne et elle n'avait plus l'allure d'autrefois. Lorsqu'el
 
 Dans ce monde, hormis Li Muwan, Wang Lin se souvenait de Liu Mei grâce à Wang Ping, et de Papillon Rouge en raison de leur karma. Li Qianmei, elle, représentait une rencontre magnifique et inoubliable.
 
-Ils s'étaient connus à travers trois questions et une quête éternelle qui les menait l'un vers l'autre. Ce que Li Qianmei avait dit autrefois resterait gravé à jamais dans le cœur de Wang Lin:
+Ils s'étaient connus à travers trois questions et une poursuite sans regret qui les avait fait se rencontrer encore et encore. Ce que Li Qianmei avait dit autrefois resterait gravé à jamais dans le cœur de Wang Lin:
 
 « S'il advenait un jour que je ne sois plus là, te souviendras-tu encore qu'une femme nommée Li Qianmei a existé dans ta vie...? »
 
@@ -122,11 +122,11 @@ Sans hésiter, le Maître Dao entra avec Li Qianmei. Il apparut devant Wang Lin 
 
 Wang Lin regarda le vieil homme. Il sourit en acceptant la cruche, puis la posa sur le côté.
 
-Le Maître Dao prit lui-même une cruche et en but une gorgée. Il reprit lentement: « Dans toute ma vie, je me suis rarement trompé sur une personne. Pourtant, en ce qui te concerne, j'admets t'avoir sous-estimé à chaque fois... Dans la formation d'illusion, je devais jouer un rôle. Une partie pour moi-même et une autre pour ma fille... À l'époque, j'étais convaincu que malgré ton excellence, si tu ne rompais pas tes liens avec le Royaume Intérieur, tu ne serais pas digne d'être mon gendre... »
+Le Maître Dao prit lui-même une cruche et en but une gorgée. Il reprit lentement: « Dans toute ma vie, je me suis rarement trompé sur une personne. Pourtant, en ce qui te concerne, j'admets t'avoir sous-estimé à chaque fois... Dans la formation d'illusion, je n'ai pas eu d'autre choix que d'intervenir: d'une part pour moi-même, d'autre part pour ma fille... À l'époque, j'étais convaincu que malgré ton excellence, si tu ne rompais pas tes liens avec le Royaume Intérieur, tu ne serais pas digne d'être mon gendre... »
 
 « Je n'imaginais pas que tu atteindrais un tel niveau de culture... Donne-moi la cinquième concubine et deviens mon gendre! À partir de maintenant, je prendrai le Clan de la Soie Bleue pour rejoindre le Royaume Intérieur! »
 
-« J'utiliserai mes vieux os pour balayer le chemin devant toi! » Le Maître Dao Bleu Rêve prit une grande gorgée de vin et annonça la décision qu'il avait mûrie durant neuf mois.
+« J'utiliserai mes vieux os pour balayer le chemin devant toi! » Le Maître Dao Bleu Rêve prit une grande gorgée de vin et annonça la décision qu'il avait mûrie durant un an et neuf mois.
 
 Le corps de Li Qianmei trembla et elle se tourna vers son père. Durant tout le trajet, celui-ci n'avait pas prononcé un mot. Elle savait que son père était l'un des Cinq Maîtres du Système Stellaire Antique. Avec une telle identité et une telle culture, il ne prononçait pas ces mots uniquement pour sa mère...
 

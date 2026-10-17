@@ -16,7 +16,7 @@ Cette bataille fut d'une férocité extrême. Sept Couleurs étant déjà bless�
 
 Finalement, Lian Daofei fut gravement blessé et dévoré par le Dao Céleste, disparaissant ainsi sans laisser de trace. Cependant, en raison de son Corps Céleste Immortel, il ne peut mourir; il devrait donc toujours se trouver dans ce monde caverneux.
 
-« Cependant, le Dao Céleste fut lui aussi gravement blessé et mourut. D'innombrables gouttes de son sang se dispersèrent à travers le monde avant de finir par s'évaporer. Pourtant, le fait que la vie continue de naître dans ce monde caverneux signifie que le Dao Céleste n'est pas mort!
+« Cependant, le Dao Céleste fut lui aussi gravement blessé et moribond. D'innombrables gouttes de son sang se dispersèrent à travers le monde avant de finir par s'évaporer. Pourtant, le fait que la vie continue de naître dans ce monde caverneux signifie que le Dao Céleste n'est pas mort!
 
 « Le corps de Sept Couleurs s'est effondré et s'est divisé en trois âmes principales. L'une d'elles contient tous ses sorts et ses techniques du Dao, devenant celui qui se trouve à l'extérieur de ce vaisseau en ce moment même.
 
@@ -24,7 +24,7 @@ Finalement, Lian Daofei fut gravement blessé et dévoré par le Dao Céleste, d
 
 « La dernière âme contient tous les souvenirs de Sept Couleurs, y compris la manière d'invoquer le Dao Céleste et l'endroit où il a caché le secret obtenu grâce à ce fragment.
 
-« Cette dernière âme ne possède ni essence ni sorts, et même aujourd'hui, personne n'ignore où elle se trouve. Elle peut être un cultivateur, un mortel ou une bête féroce... À travers d'innombrables cycles de réincarnation, il se peut qu'elle ait elle-même oublié qui elle était, son souvenir demeurant encore en sommeil.
+« Cette dernière âme ne possède ni essence ni sorts, et même aujourd'hui, personne ne sait où elle se trouve. Elle peut être un cultivateur, un mortel ou une bête féroce... À travers d'innombrables cycles de réincarnation, il se peut qu'elle ait elle-même oublié qui elle était, son souvenir demeurant encore en sommeil.
 
 « L'âme qui a hérité de tous les sorts est le Daoïste des Sept Couleurs à l'extérieur. Il est le plus puissant, et il a contraint plusieurs concubines à travailler pour lui. Il a même pris le jeune serviteur de Lian Daofei pour le placer sous ses ordres avant de s'établir dans le Royaume Extérieur. Il cherche la troisième âme depuis toutes ces années...
 
@@ -106,7 +106,7 @@ Wang Lin resta plongé dans ses pensées un long moment, levant les yeux vers la
 
 « Sept Couleurs était ainsi autrefois; je l'ai aidé à capturer de nombreuses cultivatrices. Outre ma petite sœur, je l'ai aidé à trouver la plupart de ses huit concubines...
 
-« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous obtiendrez de ce fragment du Domaine d'Or Immémorial, nous pourrons régner sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
+« Avec l'aide de mon Maître, une fois que nous pratiquerons ensemble, nos âmes fusionneront et nos niveaux de culture augmenteront. Grâce au trésor que vous obtiendrez de ce fragment du Domaine Divin Immémorial, nous pourrons régner sans entrave sur le Continent Astral Immortel. C'est bien mieux que d'être coincé dans un simple monde caverneux! » La femme sourit tandis que ses paroles flottaient lentement vers Wang Lin.
 
 Wang Lin calma son cœur et regarda la femme. Pour une raison quelconque, il songea à une expérience passée.
 

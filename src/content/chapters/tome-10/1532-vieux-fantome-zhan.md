@@ -18,7 +18,7 @@ Quant au jeune homme au regard froid et aux autres, ils restèrent silencieux, p
 
 « Quoi? Aucun autre cultivateur du Royaume Intérieur n'ose s'emparer de cet arc? » Le disciple principal du Souverain secoua la tête en observant les cultivateurs du Royaume Intérieur.
 
-L'ouverture de la Formation de Scellement du Royaume avait retrouvé ses cent pieds de large et les bords de la formation étaient sur le point de se refermer totalement. Cependant, alors qu'elle ne mesurait plus que soixante-dix pieds, la paume gigantesque qui s'était effondrée réapparut soudainement pour saisir la Formation de Scellement du Royaume. Des grondements tonitruants résonnèrent tandis qu'elle déployait une force colossale pour déchirer l'ouverture. La brèche, qui avait presque cicatrisé, fut violemment élargie sur plusieurs milliers de pieds.
+L'ouverture de la Formation de Scellement du Royaume avait retrouvé ses cent pieds de large et les bords de la formation étaient sur le point de se refermer totalement. Cependant, alors qu'elle ne mesurait plus que soixante-dix pieds, la paume gigantesque apparue plus tôt dans le Système Stellaire Antique réapparut soudainement pour saisir la Formation de Scellement du Royaume. Des grondements tonitruants résonnèrent tandis qu'elle déployait une force colossale pour déchirer l'ouverture. La brèche, qui avait presque cicatrisé, fut violemment élargie sur plusieurs milliers de pieds.
 
 Le fracas était assourdissant et une pression irrésistible émanait de cette main. Maître Hong Shan et ses compagnons furent terrassés par cette force et reculèrent précipitamment!
 
@@ -32,7 +32,7 @@ Rêve Pourpre de la Rivière Invoquée, la belle femme d'âge mûr, Maître Lu F
 
 Sur l'ordre de Wang Lin, l'Estimé Ling Dong et Zhou Jin lancèrent également leurs sorts. On pourrait dire que tous les cultivateurs du troisième niveau du Royaume Intérieur avaient uni leurs forces pour engendrer cette tempête.
 
-Les étoiles de l'Ancien Dieu de Wang Lin tournèrent rapidement et il agita sa main droite. La tête de l'Ancien Dieu apparut soudainement, se transformant en un poing colossal enveloppé de feu et de tonnerre. Dans un fracas de tonnerre, ce coup fusionna avec la tempête pour créer l'assaut le plus puissant du Royaume Intérieur, projeté vers la paume!
+Les étoiles de l'Ancien Dieu de Wang Lin tournèrent rapidement et il agita sa main droite. La tête de l'Ordre Antique apparut soudainement, se transformant en un poing colossal enveloppé de feu et de tonnerre. Dans un fracas de tonnerre, ce coup fusionna avec la tempête pour créer l'assaut le plus puissant du Royaume Intérieur, projeté vers la paume!
 
 En un éclair, l'attaque la plus redoutable du Royaume Intérieur percuta la paume. Au moment de l'impact, une énergie démoniaque puissante jaillit du Royaume Intérieur pour former le démon ancien à neuf étoiles. Ses yeux brûlaient de haine tandis qu'il ouvrait la bouche pour cracher une énergie démoniaque qui se mua en un immense dragon démoniaque fonçant vers l'avant.
 
@@ -82,7 +82,7 @@ Sa main droite levée pressa la quatrième planète de culture. Un grondement to
 
 Les cinquième, sixième, septième et huitième planètes arrivèrent toutes simultanément. À leur approche de l'ombre noire, elles explosèrent toutes en même temps, créant un impact indescriptible qui se propagea à travers le Système Stellaire Antique.
 
-Une vague de chaleur déferla dans les profondeurs du système. Au passage de cette onde, le ciel étoilé se brisa. L'ombre noire fut repoussée et cracha une bouchée de sang, comme si son corps menaçait de se déchirer!
+Une vague de chaleur déferla dans les profondeurs du système. Au passage de cette onde, le ciel étoilé se brisa. L'ombre noire fut repoussée et cracha une bouffée d'énergie de son âme d'origine, comme si son corps menaçait de se déchirer!
 
 « Tu n'es pas mort?! » Une voix rauque et empreinte de choc s'échappa de l'homme en noir.
 
@@ -104,6 +104,6 @@ Le mot « Bataille » provoqua l'effondrement du croissant de lune!
 
 « Les gens savent seulement qu'il a utilisé la puissance d'un rugissement pour vous expulser, mais ils ignorent l'avertissement contenu dans ce cri. Si tu oses faire un seul pas dans le Royaume Intérieur, tu mourras sans aucun doute! »
 
-« Tu es aussi timide qu'une souris. Petit serviteur en forme de paume, oses-tu te prétendre 'Souverain'? Hormis les membres de la famille Li, personne d'autre ne peut la reconnaître comme son maître. Puisque tu l'as utilisée comme appât, ce vieil homme l'accepte! » La voix de la silhouette floue était calme tandis qu'il avançait vers l'arc qui flottait là.
+« Tu es aussi timide qu'une souris. Petit Serviteur à l'Empreinte de Paume, oses-tu te prétendre 'Souverain'? Hormis les membres de la famille Li, personne d'autre ne peut la reconnaître comme son maître. Puisque tu l'as utilisée comme appât, ce vieil homme l'accepte à sa place! » La voix de la silhouette floue était calme tandis qu'il avançait vers l'arc qui flottait là.
 
 « Vieux Fantôme Zhan!! Tu n'es donc pas mort!! » L'ombre noire leva la tête. Le haut de sa robe était en lambeaux, révélant enfin son visage!

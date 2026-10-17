@@ -8,7 +8,7 @@ slug: les-qualifications-pour-pretendre-a-la-suprematie
 ---
 Le brouillard fut frappé par la lumière bleue et s'effondra instantanément. La bouche illusoire disparut à l'instant même où elle était apparue.
 
-Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière le Maître du Dao Rêve Bleu et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher!
+Le visage de l'Omniscient était pâle et ses yeux étaient empreints d'incrédulité. Il regarda au loin, le regard chargé de choc! Derrière le Maître du Dao Rêve Bleu et son groupe, il vit Wang Lin, vêtu de blanc, s'approcher à grands pas, ses cheveux blancs flottant au vent!
 
 Une moitié de boussole se trouvait dans la main droite de Wang Lin!
 
@@ -16,7 +16,7 @@ Cette boussole paraissait très ordinaire, dénuée de toute aura, mais lorsque 
 
 « C'est... C'est impossible, tu ne peux pas trouver mon corps originel. Tu... Et alors si tu as trouvé mon corps originel? Je me suis éveillé 99 fois, je suis le Dao Céleste! » L'Omniscient fixa Wang Lin et pointa le ciel du doigt.
 
-« Un seul corps pour le ciel, toute la matière du monde, revenez à moi! » rugit l'Omniscient. Le brouillard autour de lui commença à tourbillonner et à s'élever. L'espace lui-même trembla et une gueule géante apparut.
+« Le Dao Céleste ne fait qu'un, toutes choses et le firmament, revenez à moi! » rugit l'Omniscient. Le brouillard autour de lui commença à tourbillonner et à s'élever. L'espace lui-même trembla et une gueule géante apparut.
 
 Cette bouche était floue, mais elle dévora immédiatement tout sur son passage!
 
@@ -28,7 +28,7 @@ Cela fit changer l'expression de l'Omniscient une fois de plus!
 
 L'Omniscient resta silencieux un instant pour réfléchir, puis une intention meurtrière embrasa son regard alors qu'il fixait Wang Lin. Il chargea sans l'ombre d'une hésitation!
 
-« Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Devant moi, tu n'es qu'une fourmi, tu n'es pas l'âme de Sept-Couleurs. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
+« Mes 3 000 avatars ont fusionné. Même si je ne suis pas totalement éveillé, je possède l'aura du Dao Céleste. Tous les êtres issus du Dao Céleste ne sont que des fourmis devant moi, et tu n'es pas l'âme de Sept-Couleurs. Même si tu détiens mon corps originel, je peux te tuer en un instant! »
 
 L'Omniscient se changea en une ombre et fondit sur Wang Lin. Cependant, à cet instant, un éclat de lumière bleue apparut devant lui et le Maître du Dao Rêve Bleu s'avança. D'un revers de manche, il frappa l'Omniscient.
 
@@ -80,7 +80,7 @@ La fusion des 3 000 âmes était parfaite et ne pouvait être séparée. Cependa
 
 Elles hurlaient toutes simultanément!
 
-« Qui diable es-tu?! Tu n'es ni les trois âmes, ni les sept fragments de Sept-Couleurs. Tu n'es qu'un mortel issu de ma propre grotte. Tu ne peux pas faire ça, je refuse d'y croire!!! »
+« Qui diable es-tu?! Tu n'es ni les trois âmes, ni les sept fragments de Sept-Couleurs. Tu n'es qu'un mortel du monde caverneux que j'ai fait naître. Tu ne peux pas faire ça, je refuse d'y croire!!! »
 
 « Tu n'es qu'une partie du Dao Céleste, mais moi, je suis le maître du Dao Céleste... » Wang Lin regarda les 2 999 âmes qui rugissaient de concert. Ces âmes étaient habitées par la folie, la confusion, ainsi que par la douleur et l'incrédulité.
 
@@ -92,7 +92,7 @@ Lorsqu'elle apparut, la Bête des Limbes semblait léthargique. Comme il y avait
 
 « Le maître du Dao Céleste? La Bête des Limbes... C'est la Bête des Limbes... Cette bête a-t-elle été formée par l'autre amas de brouillard qui s'est séparé de moi? » Toutes les âmes de l'Omniscient contemplèrent la Bête des Limbes avec effroi.
 
-Il connaissait naturellement la Bête des Limbes, mais son corps avait été scindé par Lian Daofei, qui avait fait exploser sa propre âme originelle. Au fil des éons, il avait perdu tout contact avec son autre moitié. Autrement, il n'aurait pas eu recours à cette méthode de 99 éveils pour reprendre le contrôle de la réincarnation et retrouver l'autre partie de son corps.
+Il connaissait naturellement la Bête des Limbes, mais son corps avait été scindé par Lian Daofei, qui avait fait exploser son propre Sens Divin. Au fil des éons, il avait perdu tout contact avec son autre moitié. Autrement, il n'aurait pas eu recours à cette méthode de 99 éveils pour reprendre le contrôle de la réincarnation et retrouver l'autre partie de son corps.
 
 « Le jeu est terminé, Omniscient », dit lentement Wang Lin, puis il leva sa main droite tenant la moitié de la boussole. Il projeta la boussole directement dans la gueule de la Bête des Limbes.
 
@@ -104,10 +104,12 @@ Le Maître du Dao Rêve Bleu et ses compagnons voulurent les poursuivre, mais Wa
 
 La Bête des Limbes ouvrit soudainement sa gueule et chargea. À l'instant même, les 2 999 âmes furent enveloppées par une force d'aspiration colossale. Elles hurlèrent toutes en étant aspirées dans la gueule béante de la bête!
 
-« Senior Rêve Bleu, Qing Lin et Senior Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à l'Senior Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
+« Senior Rêve Bleu, Senior Qing Lin et Senior Hong Shan, je dois reformer mon avatar de cultivateur, je ne retournerai donc pas au Royaume Céleste avec vous. Une fois mes affaires réglées, je vous rejoindrai là-bas. Dites à Senior Frère Qing Shui qu'il est préférable qu'il ne sorte pas durant cette période et que j'aurai besoin de son aide à mon retour. »
 
 Wang Lin joignit les mains en signe de respect envers les trois, paraissant encore plus las. Il s'assit sur le dos de la Bête des Limbes et disparut lentement dans le lointain.
 
 Les yeux de la Bête des Limbes étaient d'une cruauté absolue. C'était le même regard qu'elle avait eu lorsqu'elle dévora Lian Daofei; un regard extrêmement terrifiant.
 
 Avec la présence de la Bête des Limbes, Wang Lin ne craignait plus personne dans le monde de la grotte! C'est à cet instant précis qu'il obtint la qualification pour prétendre à la suprématie!
+
+Ce cerf à chasser était la troisième âme!

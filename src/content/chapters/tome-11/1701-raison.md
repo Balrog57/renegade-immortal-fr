@@ -60,7 +60,7 @@ Wang Lin observa l'homme au loin avec une expression étrange. Il avait entendu 
 
 Après un moment de réflexion, les yeux de Wang Lin s'illuminèrent.
 
-« Serait-ce une illusion au sein d'une autre illusion... » Un instant plus tard, Wang Lin avança avec précaution vers le Daoïste aux Sept Couleurs. Il atteignit bientôt le pied de la montagne, se trouvant à 1 000 pieds de lui.
+« Serait-ce une illusion au sein d'une autre illusion... » Un instant plus tard, Wang Lin avança avec précaution vers le Daoïste aux Sept Couleurs. Il atteignit bientôt le pied de la montagne, se trouvant à 10 000 pieds de lui.
 
 Fixant le Daoïste, le regard de Wang Lin devint résolu. Sa main droite plongea dans son espace de stockage pour en extraire la voile au visage fantomatique. Bien qu'il n'en connaisse pas encore toutes les propriétés et qu'il ne l'ait pas totalement raffinée, il y avait déjà fusionné son Sens Divin.
 
@@ -70,33 +70,33 @@ L'âme originelle de Wang Lin quitta son corps pour pénétrer dans la voile. Ce
 
 À cet instant, la vision de Wang Lin s'obscurcit brusquement. Les yeux du Daoïste aux Sept Couleurs agissaient comme des trous noirs et l'aspirèrent immédiatement.
 
-« Entrez! » ordonna Wang Lin, tandis qu'un grondement tonitruant suivi d'un rire fou et familier lui parvenait aux oreilles.
+« Je suis entré! » La pensée de Wang Lin venait à peine de naître qu'un grondement tonitruant, suivi d'un rire fou et familier, lui parvint aux oreilles.
 
 L'obscurité devant lui sembla être déchirée par une force mystérieuse, révélant un lieu jonché de pagodes effondrées. Parmi les ruines de ces édifices imposants, on pouvait deviner ce qui fut autrefois une secte.
 
 Ce rire familier appartenait à un homme d'âge moyen aux longs cheveux, vêtu d'une robe grise. Cet homme était beau, mais ses yeux étaient froids; il dégageait une fierté telle qu'elle pouvait être ressentie au plus profond du cœur de chacun.
 
-Soudain, il leva la main droite face à une pagode géante. Alors qu'il s'apprêtait à la briser, l'édifice s'effondra et une lumière aux sept couleurs en jaillit. Un homme ivre de rage en sortit!
+Soudain, il leva la main droite face à une pagode géante. Alors qu'il s'apprêtait à la briser, un sourd grondement retentit de l'intérieur et l'édifice s'effondra et une lumière aux sept couleurs en jaillit. Un homme ivre de rage en sortit!
 
 En voyant cet individu, Wang Lin prit une profonde inspiration. Cet homme était le portrait craché de la statue conservée dans son espace de stockage: c'était le Souverain Céleste aux Sept Couleurs!
 
 Bien que l'apparence de cet homme d'âge moyen fût différente de ce qu'il avait connu, son rire et sa voix frappèrent Wang Lin de plein fouet. Il reconnut immédiatement le fou!
 
-Un dragon rouge écarlate flottait derrière le fou, poussant un rugissement arrogant. À ses côtés se tenait un adolescent chauve portant un manteau.
+Un dragon rouge écarlate flottait derrière le fou, poussant un rugissement arrogant. À ses côtés se tenait un adolescent chauve, vêtu d'une veste de toile bleu-vert à la manière d'un petit serviteur.
 
 Le corps du jeune homme semblait frêle, mais il affichait une expression féroce alors qu'il livrait combat. Wang Lin reconnut son adversaire: c'était le Général Dragon Azure!
 
-En observant les alentours, il comprit que l'endroit était un champ de bataille d'un chaos extrême. Trois des quatre généraux étaient présents, et les huit concubines aussi!
+En observant les alentours, il comprit que l'endroit était un champ de bataille d'un chaos extrême. Les trois autres généraux étaient également présents, et les huit concubines aussi!
 
 Des fracas de tonnerre résonnaient tandis que la terre s'effondrait. Des pans entiers de terrain s'écroulaient et d'innombrables déchirures spatiales apparaissaient dans le ciel. Des rafales de vent glacial balayaient les lieux, figeant la terre.
 
 Wang Lin était stupéfait par ce spectacle. Après un instant de choc, le fou et le Souverain Céleste aux Sept Couleurs entrèrent en collision dans un fracas assourdissant. Le Souverain Céleste fut projeté en arrière et cracha du sang. Son visage, marqué par la douleur et la folie, se crispa dans un rugissement violent.
 
-« Fan Shanmeng, Fan Shanlu, pourquoi m'avez-vous trahi?! N'ai-je pas été bon envers vous? Pourquoi?! Est-ce seulement parce que j'ai obtenu ce fragment que vous avez oublié les dizaines de milliers d'années passées ensemble?! »
+« Fan Shanmeng, Fan Shanlu, pourquoi m'avez-vous trahi?! N'ai-je pas été bon envers vous? Pourquoi?! Est-ce seulement parce que j'ai obtenu ce fragment que vous avez oublié les dix mille ans passés ensemble?! »
 
 « Fan Shanmeng, sors de là! »
 
-« Vous m'avez tendu une embuscade lors du voyage de retour, pourtant je vous ai laissé partir sans vous tuer. Savez-vous combien mon cœur en a souffert? Le savez-vous?! Et maintenant, vous amenez un étranger pour me supprimer, espèce de salope!!! Et toi, Lian Daofei, avec ton statut noble et tes innombrables partenaires taoïstes... Tu as jeté ton dévolu sur cette traînée il y a des années, crois-tu que je ne l'ai pas vu?! » hurla le Souverain Céleste aux Sept Couleurs, les yeux injectés de folie.
+« Vous m'avez attaqué par surprise en chemin, pourtant je vous ai laissé partir sans vous tuer. Savez-vous combien mon cœur en a souffert? Le savez-vous?! Et maintenant, vous amenez un étranger pour me supprimer, espèce de salope!!! Et toi, Lian Daofei, avec ton statut noble et tes innombrables partenaires taoïstes... Tu as jeté ton dévolu sur cette traînée il y a des années, crois-tu que je ne l'ai pas vu?! » hurla le Souverain Céleste aux Sept Couleurs, les yeux injectés de folie.
 
 Le fou, ou plus précisément Lian Daofei, affichait un air d'une immense fierté. Après avoir entendu ces accusations, il secoua la tête avec un sourire méprisant:
 
@@ -108,14 +108,14 @@ Cet œil était dépourvu de toute émotion, d'une indifférence absolue. Il fix
 
 À l'instant où l'œil se ferma, l'expression de Lian Daofei changea radicalement.
 
-« La Voie Céleste!! »
+« Le Dao Céleste!! »
 
 « Que vous tous mouriez pour ce seigneur! » Le Souverain Céleste aux Sept Couleurs aboya tandis que le monde tremblait. Un gaz noir se propagea, occultant la vision de Wang Lin.
 
 Des cris déchirants résonnèrent et une aura si puissante qu'elle fit frémir Wang Lin enveloppa son esprit.
 
-Lian Daofei fut gravement blessé par ce gaz noir avant d'être dévoré par la Voie Céleste. Le corps du Souverain Céleste aux Sept Couleurs vola en éclats et se dispersa en trois parties qui s'envolèrent dans des directions opposées.
+Lian Daofei fut gravement blessé par ce gaz noir avant d'être dévoré par le Dao Céleste. Le corps du Souverain Céleste aux Sept Couleurs vola en éclats et se dispersa en trois parties qui s'envolèrent dans des directions opposées.
 
-Une partie était le Daoïste aux Sept Couleurs, une autre était son essence, et la dernière portait l'intégralité de ses souvenirs, filant vers lointain horizon.
+Une partie était le Daoïste aux Sept Couleurs, une autre était son essence, et la dernière portait l'intégralité de ses souvenirs, filant vers l'horizon lointain.
 
 À cet instant précis, le Daoïste aux Sept Couleurs — qui constituait la première âme — s'envola à la suite de la troisième. L'esprit de Wang Lin devint soudainement limpide; il comprit alors pourquoi le Daoïste aux Sept Couleurs avait choisi de rester piégé dans cette illusion plutôt que d'en sortir!

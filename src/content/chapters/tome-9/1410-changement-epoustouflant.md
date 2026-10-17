@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1410 - Shocking Change
 slug: changement-epoustouflant
 ---
-Le feu rouge sang emplissait le ciel de l'Essai Humain. Il forma une puissante vague de chaleur qui déferla sur Wang Lin. La puissance contenue dans ce brasier était suffisante pour consumer les cieux eux-mêmes.
+Le feu rouge sang emplissait le ciel de l'Épreuve Humaine. Il forma une puissante vague de chaleur qui déferla sur Wang Lin. La puissance contenue dans ce brasier était suffisante pour consumer les cieux eux-mêmes.
 
 Wang Lin se trouvait au cœur des flammes, debout sur le dos du Vermillon Noir. Il ressentait la température cuisante du feu rouge sang et, lorsque la vague de chaleur l'encercla, il éprouva la douleur atroce d'être brûlé.
 
@@ -30,7 +30,7 @@ Tout cela se produisit en un éclair, et le feu rouge disparut du ciel. Cependan
 
 Ce corps était formé par l'âme de Wang Lin et, à cet instant, le feu rouge brûlait au cœur même de son âme.
 
-Sur la Planète du Grand Empereur, le premier bâton d'encens sur la tortue géante brûlait avec frénésie. Sous les yeux de tous, la fumée noire s'échappant du premier bâton devint soudainement rouge. Cette fumée pourpre était monstrueuse et illumina toute la planète.
+Sur la Planète du Grand Empereur, le premier bâton d'encens sur la tortue géante brûlait avec frénésie. Sous les yeux de tous, la fumée noire s'échappant du premier bâton devint soudainement rouge. Cette fumée rouge était monstrueuse et illumina toute la planète.
 
 Les cultivateurs environnants laissèrent échapper un halètement et reculèrent instinctivement.
 
@@ -40,7 +40,7 @@ Simultanément, la combustion du premier bâton d'encens s'interrompit brusqueme
 
 Le vieil Oiseau Vermillon fixait le premier bâton d'encens avec inquiétude dans les yeux.
 
-À l'intérieur de l'Essai Humain, Wang Lin avait dévoré tout le feu rouge. Il avait l'impression que des dizaines de milliers de coups de tonnerre explosaient simultanément dans son corps. La douleur intense lui donnait la sensation qu'il allait se désintégrer.
+À l'intérieur de l'Épreuve Humaine, Wang Lin avait dévoré tout le feu rouge. Il avait l'impression qu'un million de foudres de feu explosaient simultanément dans son corps. La douleur intense lui donnait la sensation qu'il allait se désintégrer.
 
 Wang Lin poussa un rugissement et agita la main. L'Oiseau Vermillon à moitié rouge se précipita vers lui et ils fusionnèrent instantanément en un seul être.
 
@@ -58,7 +58,7 @@ Trois couleurs de feu étaient apparues simultanément! Trois châtiments frappa
 
 C'était là la véritable terreur des neuf châtiments karmiques. Ce n'était pas comme la tribulation divine, qui laissait une lueur d'espoir et un répit entre chaque assaut. C'était un châtiment destructeur, conçu pour tuer dès son apparition!
 
-Les trois châtiments couvraient le ciel de l'Essai Humain. À l'extérieur, le premier bâton d'encens réagissait pour refléter la situation: des fumées orange, jaune et verte s'élevaient en tourbillons au-dessus du bâton.
+Les trois châtiments couvraient le ciel de l'Épreuve Humaine. À l'extérieur, le premier bâton d'encens réagissait pour refléter la situation: des fumées orange, jaune et verte s'élevaient en tourbillons au-dessus du bâton.
 
 « Le premier châtiment n'est pas encore passé, et les châtiments orange, jaune et vert arrivent de concert. Comment... comment est-il censé survivre à cela?! » L'expression du vieil Oiseau Vermillon changea radicalement. C'était la première fois qu'il observait les neuf châtiments karmiques, et il ne s'attendait pas à une telle férocité.
 
@@ -70,7 +70,7 @@ La Grande Maîtresse Yun Luo se détendit également. Les blessures sur ses doig
 
 Le Maître du Dao Rêve Bleu soupira doucement et dit avec calme: « Je vais l'aider, sois rassurée. Cependant, j'ai le sentiment qu'il parviendra à surmonter cette calamité. »
 
-Dans l'Essai Humain, le corps de Wang Lin émettait toujours une lueur rouge et ses yeux brillaient d'une lutte acharnée contre le destin!
+Dans l'Épreuve Humaine, le corps de Wang Lin émettait toujours une lueur rouge et ses yeux brillaient d'une lutte acharnée contre le destin!
 
 « Trois des neuf châtiments sont apparus en même temps. Bien, bien, bien! Je veux voir comment ces trois forces vont tenter de détruire mon âme! » Loin de céder à la douleur, il éclata de rire. Il réprima les souffrances qui déchiraient son corps, agita les bras et inspira une nouvelle fois.
 
@@ -78,7 +78,7 @@ Dans l'Essai Humain, le corps de Wang Lin émettait toujours une lueur rouge et 
 
 Un orgueil indicible, une attitude inexplicable face à la vie, une noblesse transcendante envers le ciel et le Dao céleste, et une quête insaisissable pour une simple pensée... Tout cela fusionnait dans le rire de Wang Lin pour former un son défiant les lois du destin!
 
-Alors que son rire résonnait, deux mille ans de culture défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. L'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, la nuit de pluie où on lui avait arraché sa famille... Toutes ces scènes traversèrent son esprit.
+Alors que son rire résonnait, deux mille ans de culture défilèrent devant ses yeux. Tandis que ses souvenirs affluaient, l'image de ses parents surgit dans son cœur. L'amertume de retourner dans sa ville natale, le fait d'être agenouillé devant les tombes des siens, les pleurs de nostalgie pour les siens lors de la nuit d'orage et de pluie... Toutes ces scènes traversèrent son esprit.
 
 Tandis que ces souvenirs refaisaient surface, le feu orange se précipita dans le corps de Wang Lin, croisant la route de la lumière rouge.
 

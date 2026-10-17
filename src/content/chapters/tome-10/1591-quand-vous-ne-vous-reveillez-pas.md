@@ -60,11 +60,11 @@ Bien que ses paroles fussent légères, elles perçèrent l'averse et se propag�
 
 Wang Lin esquissa un sourire amer et hocha la tête en ramassant son sac en bambou. Il prit son ombrelle et marcha sur le sentier boueux vers la rive.
 
-L'eau et la terre s'étaient mêlées pour ne former qu'une masse informe. À chacun de ses pas, la boue souillait le bas de son pantalon. La pluie avait rendu le sol glissant et la berge était escarpée. En marchant vers la rive, Wang Lin trébucha et manqua de tomber.
+L'eau et la terre s'étaient mêlées pour ne former qu'une masse informe. À chacun de ses pas, la boue souillait l'ourlet de sa robe. La pluie avait rendu le sol glissant et la berge était escarpée. En marchant vers la rive, Wang Lin trébucha et manqua de tomber.
 
 Un parfum délicat lui parvint au nez et, alors que son corps basculait, il fut soutenu par une silhouette gracieuse. C'était la jeune femme en violet. D'un mouvement léger, elle prit son élan et effectua un saut gracieux vers le bateau, emportant Wang Lin avec elle.
 
-« Merci infiniment, Madame. » Wang Lin se tenait debout sur le bateau, le visage rouge vif.
+« Merci infiniment, Mademoiselle. » Wang Lin se tenait debout sur le bateau, le visage rouge vif.
 
 « Monsieur, ne soyez pas si formel. Je vous en prie, asseyez-vous. » La jeune femme en violet relâcha sa prise et s'assit avec un petit rire. La jeune fille en vert rangea son ombrelle, s'installa aux côtés de son aînée et commença à observer Wang Lin.
 
@@ -102,7 +102,7 @@ En observant la scène, Wang Lin fut soudainement saisi d'une transe.
 
 Dans cette nuit noire sur la rivière silencieuse, il semblait que ce bateau était la seule chose subsistant au monde. Les deux magnifiques jeunes filles à bord lui donnaient l'impression que rien de tout cela n'était réel.
 
-Le corps de Wang Lin se refroidit durant son état de transe. Sa vision se brouilla et une somnolence l'envahit, mais il lutta pour rester conscient. S'appuyant contre la paroi, il murmura lentement: « Vous vous appelez respectivement sœur cadette et sœur aînée... Mademoiselle Zhou vous a également porté à bord d'un bond... Vous devez être des expertes en arts martiaux. »
+Le corps de Wang Lin se refroidit durant son état de transe. Sa vision se brouilla et une somnolence l'envahit, mais il lutta pour rester conscient. S'appuyant contre la paroi, il murmura lentement: « Vous vous appelez respectivement sœur cadette et sœur aînée... Mademoiselle Zhou m'a également porté à bord d'un bond... Vous devez être des expertes en arts martiaux. »
 
 « Nous ne sommes pas des gens du monde des arts martiaux. Vous êtes vraiment intéressant, l'érudit. Nous sommes des êtres qui cultivent vers l'immortalité, de véritables immortels... » La voix devint indistincte, semblant s'éloigner de plus en plus à mesure que la somnolence de Wang Lin progressait.
 
@@ -122,4 +122,4 @@ Un instant plus tard, la jeune femme en violet secoua la tête et soupira. « La
 
 « Une vie antérieure? » La jeune fille en vert rit en levant les yeux vers le ciel nocturne.
 
-« Senior Sister, il est temps. Nous devons rejoindre Wang Zhuo. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »
+« Senior Sister, il est temps. Nous devons rejoindre Wang Zhuo et les autres. Cette fois, le Maître de la Secte a détecté une lumière dorée provenant de l'Est et a prédit la naissance d'un trésor. De nombreuses sectes pourraient se mettre en quête. Bien que nos niveaux de culture ne soient pas assez élevés pour y participer, ce sera une expérience enrichissante. »

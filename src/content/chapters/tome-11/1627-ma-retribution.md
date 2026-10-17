@@ -56,7 +56,7 @@ Pourtant, cela ne fit pas bouger le Vieux Fantôme Zhan. Il regardait calmement 
 
 Mais alors qu'il allait faire un pas, il s'exclama et se retourna brusquement. Ses yeux déçus brillèrent soudain d'un éclat vif.
 
-Au plus profond de la brume, les cheveux blancs de Wang Lin s'agitèrent sans vent. L'éclair vert disparut pour laisser place à une foudre gigantesque, chargée d'une puissance destructrice, qui entama sa descente. Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il se trouvait directement sous l'éclair vert.
+Au plus profond de la brume, les cheveux blancs de Wang Lin s'agitèrent sans vent. L'éclair rouge se dissipa brusquement, et la foudre verte, gigantesque, chargée de destruction et d'une aura étrangère, entama sa descente. Wang Lin fit un pas et disparut. Lorsqu'il réapparut, il se trouvait directement sous l'éclair vert.
 
 Sa main droite s'éleva et pressa doucement l'immense éclair de foudre verte.
 
@@ -80,7 +80,7 @@ Alors que Wang Lin se tenait au milieu des résidus de la foudre, sa silhouette 
 
 Un instant plus tard, un éclair de rétribution rouge apparut de nulle part à sa gauche et fonça vers le vortex. Puis un deuxième, un troisième... D'innombrables éclairs surgirent autour de Wang Lin, prenant le centre de la scène pour bombarder le vortex.
 
-En un clin d'œil, la zone occupée par Wang Lin devint un véritable champ de mines. Les éclairs passèrent de dizaines à des centaines, puis à des dizaines de milliers de projectiles lancés avec fureur.
+En un clin d'œil, la zone occupée par Wang Lin devint un véritable domaine de tonnerre. Les éclairs passèrent de dizaines à des centaines, puis à des dizaines de milliers de projectiles lancés avec fureur.
 
 Dix Mille Éclairs de Rétribution pour punir la rétribution divine!
 
@@ -90,7 +90,7 @@ Un fracas capable de briser les cieux résonna alors que la rétribution de Wang
 
 Cependant, au moment même où il s'évanouissait, une immense faille apparut là où se trouvait le vortex. Cette déchirure mesurait des centaines de milliers de pieds de long et exhalait des grondements tonitruants. Un gigantesque palais quadrangulaire, semblable à un autel, en émergea lentement.
 
-À son apparition, les grondements devinrent encore plus nets. En un instant, la moitié de l'autel fut révélée, montrant ses quatre angles. Wang Lin aperçut une silhouette vague assise au centre, entourée de quatre épées plantées dans l'autel.
+À son apparition, les grondements devinrent encore plus nets. En un instant, la moitié de l'autel fut révélée, montrant deux de ses angles. Wang Lin aperçut une silhouette vague assise au centre, entourée de quatre épées plantées dans l'autel.
 
 « Par mon intention, déclenche la rétribution du feu et consume les cieux et la terre! » Le tatouage de feu sur l'œil gauche de Wang Lin brilla, et une flamme menaçante se propagea autour de lui, formant des flammes dévastatrices.
 
@@ -100,7 +100,7 @@ Le feu se propageait par la seule pensée de Wang Lin. À cet instant, la mer de
 
 En un éclair, même les nuages environnants semblèrent embrasés. La faille céleste fut totalement engloutie par les flammes. Ce n'était plus le fracas du tonnerre, mais le crépitement incessant du brasier qui fusionnait en une seule rumeur. Une onde de chaleur se propagea dans toutes les directions.
 
-Un éclat de froideur traversa le regard de Wang Lin. Il agita ses manches et fit un pas en avant. Il apparut au cœur de la mer de feu, près de la faille, à proximité de l'un des quatre angles de l'autel. Puis il leva sa main droite et s'apprêta à écraser la silhouette vague assise sur l'autel.
+Un éclat de froideur traversa le regard de Wang Lin. Il agita ses manches et fit un pas en avant. Il apparut au cœur de la mer de feu, près de la faille, à côté de l'autel à moitié sorti. Puis il leva sa main droite et s'apprêta à écraser la silhouette vague assise sur l'autel.
 
 Alors qu'il descendait sa main, celle-ci se referma en un poing puissant, comme s'il saisissait quelque chose d'invisible.
 

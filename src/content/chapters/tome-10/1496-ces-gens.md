@@ -14,13 +14,13 @@ Il savait qu'il avait commis une erreur monumentale! Une erreur fatale: il avait
 
 Ce jugement avait changé lorsqu'il vit l'épée de pluie sur la planète Qing Ling. Maître Lu Fu crut alors avoir percé le niveau de culture de Wang Lin et se détendit un peu.
 
-Cependant, quand Wang Lin brisa la formation en huit respirations sur la planète Dong Ling, il réalisa l'erreur de son jugement. Il avait élevé le statut de Wang Lin au rang de son égal, mais il restait convaincu qu'avec ses divers trésors, Wang Lin aurait du mal à l'affronter!
+Cependant, quand Wang Lin brisa la formation en huit respirations sur la planète Dong Lin, il réalisa l'erreur de son jugement. Il avait élevé le statut de Wang Lin au rang de son égal, mais il restait convaincu qu'avec ses divers trésors, Wang Lin aurait du mal à l'affronter!
 
 Ce n'est que lorsque Wang Lin poussa un rugissement hors de la formation que Maître Lu Fu commença à considérer ce dernier comme légèrement supérieur à lui. Pourtant, même à ce moment-là, il ne croyait pas que Wang Lin soit capable de le blesser sérieusement!
 
 Grâce à ses multiples trésors, au mieux, ils seraient d'égal à égal! Personne n'aurait l'avantage sur l'autre!
 
-Lorsque le Défi Littéraire fut interrompu, le calme olympien de Wang Lin exerça une pression immense sur Maître Lu Fu. Dès qu'il décida de combattre, il fit apparaître le fantôme du Royaume Céleste du Vent et déclencha même la formation planétaire!
+Lorsque la Bataille Littéraire fut interrompue, le calme olympien de Wang Lin exerça une pression immense sur Maître Lu Fu. Dès qu'il décida de combattre, il fit apparaître le fantôme du Royaume Céleste du Vent et déclencha même la formation planétaire!
 
 Il pensait à l'origine que même si Wang Lin était un soupçon au-dessus de lui, il pourrait toujours le forcer à battre en retraite. Cependant, lors de l'apparition de Ling Dong, Maître Lu Fu fut terrifié de constater qu'il s'était encore trompé!
 
@@ -58,7 +58,7 @@ Les yeux de Lie Yunzi étaient également emplis de confusion. Il fixait le vide
 
 N'importe quel cultivateur de la deuxième étape du Royaume Intérieur aurait perdu la raison face à un tel spectacle. Deux cultivateurs de la troisième étape en tant qu'esclaves... c'était terrifiant!
 
-Le cœur du Dieu Sanguin battait la chamade et le désespoir emplissait son regard. Il n'aurait jamais pu imaginer une telle éventualité. Même Maître Lu Fu avait été contraint de reculer. Le monde était vaste, mais en cet instant, il avait l'impression d'être dans une cage!
+Le cœur du Dieu de Sang battait la chamade et le désespoir emplissait son regard. Il n'aurait jamais pu imaginer une telle éventualité. Même Maître Lu Fu avait été contraint de reculer. Le monde était vaste, mais en cet instant, il avait l'impression d'être dans une cage!
 
 À l'instant même où Zhou Jin et Ling Dong apparurent, leurs auras de la troisième étape balayèrent Luotian et s'engouffrèrent dans les trois autres systèmes stellaires!
 
@@ -80,17 +80,17 @@ Devant lui, le maître de la Secte des Démons et divers Anciens étaient agenou
 
 Ce dernier ouvrit soudainement les yeux. L'aura choquante qui jaillissait de son corps se rétracta immédiatement, réprimée jusqu'à disparaître totalement.
 
-Il regarda ensuite au loin et, après un long moment, dit lentement: « Cet enfant est celui que le Seigneur du Royaume Scellé a trouvé à l'intérieur du jade... Ce petit gars est plutôt doué... »
+Il regarda ensuite au loin et, après un long moment, dit lentement: « Cet enfant est donc celui sur qui s'est reposé ce pédant de Seigneur du Royaume Scellé?... Un très bon petit gars... »
 
 Dans le système stellaire de l'Alliance, dans le royaume céleste scellé de la Pluie, Qing Lin se remettait depuis des centaines d'années. Il ouvrit soudain les yeux, une pointe de doute et de choc dans le regard, en scrutant l'horizon.
 
-Devant lui siégeait Situ Nan, frappé d'admiration. À cet instant, ce dernier ouvrit également les yeux. Son regard s'illumina avant de se remplir de confusion.
+Devant lui siégeait Situ Nan, au visage grave. À cet instant, ce dernier ouvrit également les yeux. Son regard s'illumina avant de se remplir de confusion.
 
 Il y avait une statue de pierre dans le royaume céleste de la Pluie. Cette statue trônait sur le plus haut sommet du royaume. Une seule personne était assise au pied de cette montagne depuis des centaines d'années: un homme d'âge moyen portant un manteau noir et de longs cheveux sombres. Il était constamment enveloppé d'une aura de froid et d'une intention meurtrière.
 
 L'expression glaciale de cet homme était presque identique à celle que Wang Lin arborait à ses débuts!
 
-Il avait personnellement créé sa terre interdite, et même Situ Nan n'était pas autorisé à s'y aventurer. Même la fille de Qing Lin, Qing Shui, ainsi que Zhou Zi, n'étaient pas autorisées à monter ici!
+Il avait personnellement créé sa terre interdite, et même Situ Nan n'était pas autorisé à s'y aventurer. Même la fille de Qing Lin, Qing Shui, ainsi que Zhou Yi, n'étaient pas autorisées à monter ici!
 
 Même si Qing Lin venait, cet homme en noir oserait l'attaquer!
 
@@ -108,22 +108,22 @@ Au pied de la montagne se trouvait une demeure, et un homme en vert se tenait da
 
 Bien que son corps fût présent, il ressemblait à un corps spirituel, dépourvu de consistance physique.
 
-Debout dans la cour, il leva les yeux vers le sommet de la montagne. Une pointe d'adoration se manifesta sur son visage, sans l'ombre d'un regret dans ses yeux... Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais briser ce monde! »
+Debout dans la cour, il leva les yeux vers le sommet de la montagne. Ses yeux laissaient voir une passion vieille de milliers d'années, sans l'ombre d'un regret... Dans le quartier général scellé du système stellaire de l'Alliance, une voix colérique et lugubre hurlait depuis des centaines d'années... « Tuez! Tuez! Tuez! Je vais exterminer tout être vivant dans ce monde. Je vais briser ce monde! »
 
-Dans le système stellaire de l'Alliance, là où se trouvait la Secte des Cadavres effondrée, un regard semblant pouvoir se matérialiser se tourna vers Luotian.
+Dans le système stellaire de l'Alliance, là où se trouve la Secte des Cadavres, un regard semblant pouvoir se matérialiser, capable de faire s'effondrer les étoiles, se tourna vers Luotian.
 
 « La promesse du Seigneur du Royaume Scellé... serait-ce lui...? »
 
-Dans le système stellaire de Luotian, au cœur de la magnifique formation planétaire, Wang Lin regarda calmement Maître Lu Fu. Il ne chercha pas à l'humilier, mais passa lentement devant lui pour se diriger vers le stupéfait Dieu Sanguin.
+Dans le système stellaire de Luotian, au cœur de la magnifique formation planétaire, Wang Lin regarda calmement Maître Lu Fu. Il ne chercha pas à l'humilier, mais passa lentement devant lui pour se diriger vers le stupéfait Dieu de Sang.
 
 Le visage de Maître Lu Fu était livide; il laissa Wang Lin passer sans chercher à l'arrêter. Son expression complexe trahissait une profonde amertume.
 
 Maître Lu Fu avait autrefois aidé Wang Lin dans la Terre de l'Ancien Dieu. Même si cet acte n'avait été qu'un simple caprice, comme un mortel aidant une fourmi à traverser une rivière, Wang Lin ne l'oublierait pas.
 
-C'est pourquoi Wang Lin avait accepté le Défi Littéraire sans intention de lui faire perdre la face. En agissant ainsi, il lui témoignait encore du respect; autrement, il n'aurait pas consenti à tout ce déploiement.
+C'est pourquoi Wang Lin avait accepté la Bataille Littéraire sans intention de lui faire perdre la face. En agissant ainsi, il lui témoignait encore du respect; autrement, il n'aurait pas consenti à tout ce déploiement.
 
-Il avait initialement prévu d'utiliser le Défi Littéraire pour offrir à Maître Lu Fu une porte de sortie honorable. Cependant, l'obstination de Maître Lu Fu finit par lasser Wang Lin. Il avait alors convoqué Ling Dong et Zhou Jin afin de lui infliger un choc inimaginable!
+Il avait initialement prévu d'utiliser la Bataille Littéraire pour offrir à Maître Lu Fu une porte de sortie honorable. Cependant, l'obstination de Maître Lu Fu finit par lasser Wang Lin. Il avait alors convoqué Ling Dong et Zhou Jin afin de lui infliger un choc inimaginable!
 
-Wang Lin dépassa l'amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face au Dieu Sanguin.
+Wang Lin dépassa l'amer Maître Lu Fu et s'avança lentement dans le vortex. Il se retrouva face au Dieu de Sang.
 
-Le visage du Dieu Sanguin était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque gigantesque derrière lui!
+Le visage du Dieu de Sang était blême, et dès que Wang Lin fut là, il poussa un cri strident. Ses mains formèrent un sceau, tentant une ultime lutte avant la mort. Il recula précipitamment en agitant ses manches, faisant apparaître une ombre démoniaque gigantesque derrière lui!

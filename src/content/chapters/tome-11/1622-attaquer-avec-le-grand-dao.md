@@ -46,7 +46,7 @@ Des grondements tonitruants résonnèrent à travers les étoiles. La gigantesqu
 
 C'était la sixième porte!
 
-Il avait fait exploser six Portes du Vide simultanément! Plus aucune force ne pouvait désormais empêcher Wang Lin d'atteindre le troisième niveau!
+Il avait fait exploser six Portes du Vide consécutivement! Plus aucune force ne pouvait désormais empêcher Wang Lin d'atteindre le troisième niveau!
 
 Au moment où la porte vola en éclats, un vortex infiniment vaste apparut. Une vague de puissance provenant de la Porte du Vide, immense comme l'océan, déferla et s'engouffra dans le corps de Wang Lin.
 
@@ -62,17 +62,17 @@ Désormais, Wang Lin était un cultivateur du troisième niveau!
 
 Les craquements dans son corps, les rugissements incessants dans son esprit et la sensation d'un confort extrême étaient comme les signes d'une métamorphose. Tout son être était en pleine évolution!
 
-La première étape de la culture, de la Condensation de Qi à l'Ascendant, permettait au corps du cultivateur de renaître. Ensuite, lorsqu'ils atteignaient le stade du Scruteur du Nirvana, ils pouvaient absorber l'énergie originelle!
+La première étape de la culture, de la Condensation de Qi à l'Ascendant, arrachait le corps du cultivateur à la condition mortelle. Lorsqu'ils atteignaient le stade du Scruteur du Nirvana, ils accomplissaient leur première renaissance et pouvaient absorber l'énergie originelle du monde!
 
 Le troisième niveau était la seconde renaissance d'un cultivateur. Son corps s'étendait à l'infini, ne faisant plus qu'un avec le monde lui-même.
 
 Cette étape était extrêmement transcendante car elle consumait le talent du cultivateur. Pour les cultivateurs du troisième niveau, le talent n'existait plus; il n'y avait que la compréhension!
 
-Les six essences continuaient de fusionner. Lorsque les essences de tonnerre et de feu se rejoignirent, le niveau de Wang Lin grimpa du stade initial au stade intermédiaire de Vide Nirvana!
+Les six essences continuaient de fusionner. Lorsque les essences de tonnerre et de feu se rejoignirent, le niveau de Wang Lin grimpa du stade initial au stade intermédiaire du Vide du Nirvana!
 
-Lorsque l'essence karmique s'y mêla, son niveau atteignit le stade avancé de Vide Nirvana!
+Lorsque l'essence karmique s'y mêla, son niveau atteignit le stade avancé du Vide du Nirvana!
 
-Enfin, lorsque la vie et la mort suivirent et que les essences du vrai et du faux fusionnèrent, le niveau de Wang Lin franchit le sommet du Vide Nirvana pour atteindre le stade initial de Vide Spirituel!
+Enfin, lorsque la vie et la mort suivirent et que les essences du vrai et du faux fusionnèrent, le niveau de Wang Lin franchit le sommet du Vide du Nirvana pour atteindre le stade initial de Vide Spirituel!
 
 La culture de Wang Lin continuait de croître, et la pression qui s'en dégageait attira l'attention de tous. Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide qui, dans un rugissement, se précipita en avant.
 
@@ -84,7 +84,7 @@ La Porte du Vide étant présente auparavant, il n'avait pu attaquer, mais maint
 
 Le jeune homme en robe verte partageait cette pensée. Il était déjà en train de battre en retraite lorsqu'il vit le Maître Céleste Dieu du Vide agir. Il serra les dents, les yeux injectés de sang, enveloppa son corps d'une glace infinie et chargea Wang Lin.
 
-Il y avait aussi Zhou Jin, terrifié au plus haut point. Cependant, il demeurait un cultivateur du troisième niveau et l'ancêtre du Clan du Loup de Sang. Avec une expression désespérée, il poussa un rugissement et un loup de sang de plusieurs dizaines de milliers de pieds apparut.
+Il y avait aussi Zhou Jin, terrifié au plus haut point. Cependant, il demeurait un cultivateur du troisième niveau et l'ancêtre du clan du Loup Céleste. Avec une expression désespérée, il poussa un rugissement et un loup de sang de plusieurs dizaines de milliers de pieds apparut.
 
 Ces mouvements poussèrent le Maître Nan Yunzi et ses compagnons à se précipiter en avant, faisant fi de leurs blessures. Pourtant, à cet instant, une voix douce résonna dans leurs oreilles comme une brise printanière.
 
@@ -96,9 +96,9 @@ Wang Lin utilisait la puissance de la Porte pour fusionner la sixième essence, 
 
 « Arrêtez! »
 
-Ce sort n'était utilisable qu'après avoir atteint le troisième niveau et absorbé la puissance de la Porte du Vide. Le monde changea, comme si les étoiles elles-mêmes avaient été figées.
+Ce sort, il l'employait en tant que cultivateur du Vide Spirituel et grand puissant du troisième niveau, alors qu'il absorbait la puissance de la Porte du Vide et fusionnait ses essences. Le monde changea, comme si les étoiles elles-mêmes avaient été figées.
 
-Wang Lin avait également insufflé dans ce sort d'immobilisation l'intention chaotique des trois Fruits du Dao restée inutilisée.
+Wang Lin avait également insufflé dans ce sort d'immobilisation les intentions dao résiduelles, non digérées, des trois Fruits du Dao qu'il avait avalés dans le Dao du Rêve.
 
 Sous l'effet, le corps de Zhou Jin trembla et il fut incapable de faire le moindre pas. Le jeune homme en robe verte sentit une intention dao infinie le clouer sur place.
 

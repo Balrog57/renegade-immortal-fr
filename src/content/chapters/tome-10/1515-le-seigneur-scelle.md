@@ -74,7 +74,7 @@ Elle sourit, mais ce sourire était empreint de mort... « Je sais que tu m'as t
 
 « Je sais qu'il n'y aura rien entre nous. À cause de l'existence de Ping Er, nous ne pourrons être que les plus familiers des étrangers... Je sais... Je sais... »
 
-« Je n'étais pas obligée de prendre cette pilule, mais je suis fatiguée... La destruction du Vide Brillant, la destruction de mon foyer. Je suis la seule survivante, et je ne peux plus le supporter... Même si ma culture se rétablit, et alors? Et alors si je suis la Sainte de la Lumière... Je veux juste voir mon enfant, mais je ne peux pas... »
+« Je n'étais pas obligée de prendre cette pilule, mais je suis fatiguée... La destruction du Vide Brillant, la destruction de mon foyer. Je suis la seule survivante, et je ne peux plus le supporter... Même si ma culture se rétablit, et alors? Et alors si je suis la Sainte... Je veux juste voir mon enfant, mais je ne peux pas... »
 
 « Notre relation est un destin funeste, une épine dans ton cœur... Tu ne le diras pas, mais je le sais... »
 

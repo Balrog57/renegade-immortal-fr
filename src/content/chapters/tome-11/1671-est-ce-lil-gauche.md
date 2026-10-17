@@ -22,7 +22,7 @@ Ce dernier était un homme d'âge moyen dont l'âme originelle était déjà ble
 
 La Bête des Limbes était également stupéfaite, la confusion se lisant dans ses yeux. Elle se demandait encore où elle se trouvait en observant les innombrables cultivateurs du Royaume Extérieur qui la fixaient. Elle vit les dizaines de bêtes féroces ancestrales qui reculaient, lesquelles lui semblèrent extrêmement terrifiantes.
 
-Sa nature timide refusa d'obéir et son corps trembla inconsciemment. Ce tremblement fit vibrer le système stellaire tout entier, propageant une onde à travers la zone.
+Sa timidité éclata aussitôt et son corps trembla inconsciemment. Ce tremblement fit vibrer le système stellaire tout entier, propageant une onde à travers la zone.
 
 C’est alors qu’elle aperçut le cultivateur qui n'était qu'à dix pieds d'elle. Elle se figea.
 
@@ -68,7 +68,7 @@ La gueule de la Bête des Limbes se referma lentement sous les yeux terrifiés d
 
 Elle n'aimait pas manger ces bêtes féroces ancestrales... Elles n'étaient pas savoureuses, elles étaient terrifiantes.
 
-Les cultivateurs du Royaume Extérieur étaient pétrifiés lorsque Wang Lin ordonna à la Bête des Limbes de revenir. Celle-ci n'hésita pas une seconde et retourna auprès de lui. Ce revirement l'avait tellement effrayée que son corps en était devenu mou. Elle avait besoin d'un long repos pour calmer son cœur qui battait violemment.
+Les cultivateurs du Royaume Extérieur étaient pétrifiés lorsque Wang Lin ordonna à la Bête des Limbes de revenir. Celle-ci n'hésita pas une seconde, se changea en graine de moutarde et se dissipa pour regagner l'espace entre ses sourcils. Cette sortie l'avait tellement effrayée que son corps en était devenu mou. Elle avait besoin d'un long repos pour calmer son cœur qui battait violemment.
 
 La lumière ancienne, invoquée par le sacrifice de 100 000 âmes originelles et des dizaines de chars de bêtes féroces, fut entièrement détruite devant la formation circulaire. Cependant, les cultivateurs du Royaume Extérieur possédaient encore un dernier atout: la gigantesque tablette de pierre enserrée de chaînes et les neuf cercueils qui y étaient attachés.
 
@@ -76,7 +76,7 @@ Alors que les cultivateurs du Royaume Extérieur étaient encore sous le choc de
 
 Dès que les couvercles brisèrent, de longs cheveux noirs se déployèrent hors des cercueils comme des mauvaises herbes. En un clin d'œil, cette chevelure noire envahit l'espace interstellaire.
 
-« Dieu Empereur Ancien qui as gardé mon Système Stellaire Antique pendant d'innombrables années, ton corps fut divisé en neuf parties. Aujourd'hui, les neuf reviendront à l'unité. J'invoque ton âme immortelle pour détruire cette formation et tuer cet homme! » Les cinq cultivateurs du troisième stade s'agenouillèrent et s'inclinèrent simultanément. Ils mordirent la pointe de leur langue et crachèrent leur sang essentiel, lequel fut immédiatement absorbé par les neuf cercueils recouverts de cheveux.
+« Dieu Empereur Ancien qui as gardé les étoiles de mon Royaume Extérieur pendant d'innombrables années, ton corps fut divisé en neuf parties. Aujourd'hui, les neuf reviendront à l'unité. J'invoque ton âme immortelle pour détruire cette formation et tuer cet homme! » Les cinq cultivateurs du troisième stade s'agenouillèrent et s'inclinèrent simultanément. Ils mordirent la pointe de leur langue et crachèrent leur sang essentiel, lequel fut immédiatement absorbé par les neuf cercueils recouverts de cheveux.
 
 Les dizaines de milliers d'autres cultivateurs du Royaume Extérieur firent de même, offrant leur propre sang essentiel aux cercueils. Une fois le sang absorbé, un grondement tonitruant secoua le système stellaire et les neuf cercueils explosèrent l'un après l'autre.
 

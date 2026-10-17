@@ -90,7 +90,7 @@ Une fois ce gaz gris pénétré en lui, l'instant de tristesse fut balayé par u
 
 Sa tête oscillait, son visage était marqué par la douleur et ses yeux devinrent encore plus rouges.
 
-Lorsque l'impact eut repoussé les cheveux de Qing Shui, Wang Lin vit clairement qu'une autre épine se trouvait à trois pouces de la zone entre les sourcils de l'homme. La dixième épine!
+Lorsque l'impact eut repoussé les cheveux de Qing Shui, Wang Lin vit clairement qu'une autre épine se trouvait à trois pouces à droite du sommet de son crâne. La dixième épine!
 
 Cette pointe était dissimulée dans la chevelure, rendant sa découverte extrêmement difficile.
 

@@ -8,11 +8,11 @@ slug: tempete-doree
 ---
 Cependant, tout cela était trop tard!
 
-Le Shui Daozi avait invoqué l'ancien être céleste et avait reçu la cloche dorée grâce à un sort secret impliquant l'utilisation de la carapace de tortue qu'il avait obtenue du Seigneur du Royaume Scellé. L'aura de l'Ancien Royaume Céleste n'était perceptible que par lui lorsqu'il invoquait cet être antique.
+Le Shui Daozi avait invoqué l'ancien être céleste et avait reçu la cloche dorée grâce à un sort secret transmis par le Seigneur du Royaume Scellé, et avec la carapace de tortue qu'il portait sur lui. L'aura de l'Ancien Royaume Céleste n'était perceptible que par lui lorsqu'il invoquait cet être antique.
 
 Par conséquent, tout le monde fut stupéfait lorsqu'il sortit la cloche pour contrer le coup de poing de Wang Lin!
 
-Même Maître Hong Shan et ses compagnons voulurent se précipiter, mais ils étaient trop tard pour l'arrêter!
+Même Maître Hong Shan et ses compagnons voulurent se précipiter, mais ils ne pouvaient plus l'arrêter!
 
 Les yeux de Wang Lin se rétrécirent. L'apparition de cette énergie spirituelle céleste extrêmement riche et la présence de la Formation de Scellement du Royaume rendirent son expression grave. Bien qu'il n'en connût pas la nature exacte, sa sagesse lui permit de deviner immédiatement certaines choses.
 
@@ -24,7 +24,7 @@ Tandis qu'il rugissait, la cloche dorée, qui n'avait pas été endommagée, tre
 
 D'innombrables fissures apparurent sur la cloche dorée et, alors que l'aura destructrice se répandait, elle explosa!
 
-La cloche issue de l'Ancien Royaume Céleste, capable de contenir le Royaume Extérieur pendant cent ans, s'effondra soudainement!
+La cloche issue de l'Ancien Royaume Céleste, capable de gagner cent ans de répit pour le Royaume Intérieur, s'effondra soudainement!
 
 Le Shui Daozi était devenu fou. Son rire dément et tordu résonna. Une tempête dorée, née de l'effondrement de la cloche, se forma et fonça vers Wang Lin!
 
@@ -32,7 +32,7 @@ Bien que la cloche fût fragile, la puissance qu'elle renfermait était inimagin
 
 Cependant, en cet instant, le Shui Daozi utilisait toute cette puissance pour attaquer Wang Lin!
 
-Si cette force explosait, oubliez Wang Lin: même le cultivateur en noir, Zhou De; l'homme d'âge moyen, Bord-des-Nuages; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer des Nuages seraient détruits!
+Si cette force explosait, oubliez Wang Lin: même le vieil homme en noir, Zhou De; l'homme d'âge moyen, Bord-des-Nuages; l'Estimé Ling Dong; Zhou Jin; toute la Secte Divine et l'intégralité du Système Stellaire de la Mer des Nuages seraient détruits!
 
 Personne ne survivrait. Seul le propriétaire de la cloche dorée, le Shui Daozi, pourrait rester indemne!
 
@@ -66,11 +66,11 @@ Ling Dong et Zhou Jin arrivèrent également sous les ordres de Wang Lin. Six cu
 
 « Wang Lin, tu veux ma mort, mais tu as entraîné toute la Mer des Nuages dans ta chute. Même si tu survis d'une manière ou d'une autre, je veux voir si ton cœur de Dao restera sans faille! Je veux voir comment tu pourras rester dans le Royaume Intérieur!! Tu es le pécheur éternel du Royaume Intérieur!! »
 
-Les cultivateurs de la Souillure Céleste de la Secte Démoniaque apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force!
+Des dizaines de cultivateurs de la Souillure Céleste de la Secte Démon apparurent. Leurs visages étaient pâles alors qu'ils s'apprêtaient à engager toute leur force!
 
 Au sein même de la Secte Divine, les Anciens qui étaient du côté du Shui Daozi se précipitèrent pour tenter désespérément d'empêcher l'explosion de la tempête dorée!
 
-Il y avait aussi Ta Aluo, flottant là, dont l'expression changea radicalement lorsqu'il pressa sa main pour résister à la tempête!
+Il y avait aussi Tai Aluo, flottant là, dont l'expression changea radicalement lorsqu'il pressa sa main pour résister à la tempête!
 
 À cet instant, le monde se distordit et les membres de la Secte Fantôme arrivèrent. L'Estimé Grand Vide de la Secte Fantôme affichait une expression sombre et rejoignit immédiatement les autres pour contenir la tempête.
 

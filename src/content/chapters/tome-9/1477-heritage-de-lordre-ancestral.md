@@ -26,7 +26,7 @@ La lance tremblait violemment. Outre la lutte contre le Dao Démoniaque, ce trem
 
 Ces ondes se propagèrent dans toutes les directions et chargèrent la Lance Tueuse de Dieux. Des strates de runes apparurent sur l'arme, clignotant violemment; il semblait qu'elles allaient se détacher de la lance sous l'effet des vibrations.
 
-La Lance Tueuse de Dieux était le trésor royal d'Ancien Dieu le plus puissant que Tu Si ait possédé. Tuo Sen étant celui qui se rapprochait le plus de Tu Si, la puissance qu'il pouvait déployer avec n'était que légèrement inférieure à celle de ce dernier!
+La Lance Tueuse de Dieux était le trésor royal de Dieu Antique le plus puissant que Tu Si ait possédé. Tuo Sen étant celui qui se rapprochait le plus de Tu Si, la puissance qu'il pouvait déployer avec elle n'était que légèrement inférieure à celle de ce dernier!
 
 Lorsque le doigt de Wang Lin toucha la Lance Tueuse de Dieux, il sentit une force indescriptible se précipiter dans son doigt. Celui-ci semblait sur le point de se briser, tandis qu'une puissance déchaînée faisait rage à l'intérieur de son corps.
 
@@ -52,15 +52,15 @@ Alors que son cœur maintenait cette cadence, une connexion mystérieuse se form
 
 Ces souvenirs étaient un chaos indescriptible, déferlant comme un déluge, sans égard pour la capacité de Wang Lin à les supporter!
 
-Il eut l'impression que son âme était en train d'être déchirée; c'était plus douloureux que le premier essai. Face à cette agonie, Wang Lin poussa un rugissement plaintif.
+Il eut l'impression que son âme était en train d'être déchirée; c'était d'innombrables fois plus douloureux que la première épreuve, jadis. Face à cette agonie, Wang Lin poussa un rugissement plaintif.
 
-Le cœur de la troisième couche se mit à battre encore plus vite jusqu'à ce que les pulsations fusionnent. Le cœur de Wang Lin s'aligna sur lui. Si l'on pouvait voir à travers le corps d'Ancien Dieu de Wang Lin, on aurait vu son cœur battre si rapidement qu'il semblait sur le point d'exploser. Des torrents de sang jaillirent de ses vaisseaux, teintant les environs de rouge.
+Le cœur de la troisième couche se mit à battre encore plus vite jusqu'à ce que les pulsations fusionnent. Le cœur de Wang Lin s'aligna sur lui. Si l'on pouvait voir à travers le corps de Dieu Antique de Wang Lin, on aurait vu son cœur battre si rapidement qu'il semblait sur le point d'exploser. Des torrents de sang jaillirent de ses vaisseaux, teintant les environs de rouge.
 
 Tout cela se produisit en un éclair.
 
 Alors que le cœur de la troisième couche battait violemment, un soupir sembla résonner dans l'esprit de Wang Lin. L'ultime décharge de force du cœur chargea vers son esprit!
 
-Wang Lin cracha du sang et d'innombrables fissures apparurent sur son cœur. Son visage prit une expression féroce et, alors qu'il rugissait, la silhouette de l'Ancien Dieu Tu Si apparut derrière lui!
+Wang Lin cracha du sang et d'innombrables fissures apparurent sur son cœur. Son visage prit une expression féroce et, alors qu'il rugissait, la silhouette du Dieu Antique Tu Si apparut derrière lui!
 
 Cette silhouette était elle aussi empreinte de douleur, comme si elle se débattait!
 
@@ -84,7 +84,7 @@ L'éclat sanglant jaillit. Il insuffla dans l'épée la force de la plateforme b
 
 L'arme vola vers la Lance Tueuse de Dieux!
 
-Un grondement tonitruant secoua les cieux et la terre. L'épée de sang et la Lance Tueuse de Dieux entrèrent en collision. L'épée frappa la pointe de la lance et la trancha comme si elle coupait du bambou. L'impact choc et la netteté de l'épée de sang fendirent la Lance Tueuse de Dieux en deux!
+Un grondement tonitruant secoua les cieux et la terre. L'épée de sang et la Lance Tueuse de Dieux entrèrent en collision. L'épée frappa la pointe de la lance et la trancha comme si elle coupait du bambou. La violence de l'impact et le tranchant de l'épée de sang fendirent la Lance Tueuse de Dieux en deux!
 
 La lumière sanglante traversa la lance et s'enfonça dans le corps de Tuo Sen telle une flèche. Elle pénétra sa poitrine comme si rien ne pouvait l'arrêter, pour ressortir par son dos. Tuo Sen poussa un cri déchirant!
 
@@ -94,19 +94,19 @@ Tuo Sen cracha du sang, son corps étant repoussé de plusieurs milliers de pied
 
 Le cyclone qui devait constituer la huitième étoile passa d'un état flou à une forme solide alors qu'il absorbait l'aura de l'héritage! Il venait de compléter le processus le plus difficile: la formation du cyclone de la huitième étoile!
 
-Cela offrait à Wang Lin une base solide pour devenir un Ancien Dieu à 8 étoiles! Sans ce cyclone, il lui aurait été extrêmement difficile d'atteindre ce stade; il lui aurait fallu des dizaines de milliers d'années pour accumuler assez de puissance, faute de quoi il aurait échoué!
+Cela offrait à Wang Lin une base solide pour devenir un Dieu Antique à 8 étoiles! Sans ce cyclone, il lui aurait été extrêmement difficile d'atteindre ce stade; il lui aurait fallu des dizaines de milliers d'années pour accumuler assez de puissance, faute de quoi il aurait échoué!
 
-Un Ancien Dieu à 8 étoiles: le corps le plus puissant après celui des dieux à neuf étoiles. Comment cela pouvait-il être si facile?
+Un Dieu Antique à 8 étoiles: le corps le plus puissant après celui des dieux à neuf étoiles. Comment cela pouvait-il être si facile?
 
-Alors que la puissance jaillissant de la troisième couche se précipitait vers lui, Wang Lin pressa sa main droite sur l'Ancien Démon, provoquant son tremblement. Les pierres s'effondrèrent et son corps perdit sa dureté rocheuse. Simultanément, des étoiles d'Ancien Démon apparurent dans son œil droit!
+Alors que la puissance jaillissant de la troisième couche se précipitait vers lui, Wang Lin pressa sa main droite sur le démon ancien, provoquant son tremblement. Les pierres s'effondrèrent et son corps perdit sa dureté rocheuse. Simultanément, des étoiles de démon ancien apparurent dans son œil droit!
 
-La cinquième et la sixième étoile d'Ancien Démon surgirent soudainement!
+La cinquième et la sixième étoile de démon ancien surgirent soudainement!
 
 Tout cela se produisit en un éclair. L'œil gauche de Wang Lin était presque aveugle. Une douleur intense ne venait pas seulement de son œil, mais aussi de son cœur. Du sang frais coulait de sa cavité oculaire gauche.
 
 S'il continuait, il deviendrait totalement aveugle d'un œil et perdrait la moitié de ses souvenirs!
 
-Oublier ses parents, oublier ses proches, oublier sa ville natale, oublier tout... Ce n'était pas une option pour Wang Lin. Il poussa un rugissement déchirant et, pour la première fois, il se redressa!
+Oublier ses parents, oublier ses proches, oublier sa terre natale, oublier tout... Ce n'était pas une option pour Wang Lin. Il poussa un rugissement déchirant et, pour la première fois, il se redressa!
 
 Il quitta le siège!
 
@@ -116,4 +116,4 @@ Le palais retomba dans un silence de mort. Seules deux respirations rauques cont
 
 Wang Lin ferma les yeux, et la tête gigantesque qui avait remplacé Tu Si disparut lentement. Après un long moment, il retrouva son calme et ouvrit les yeux.
 
-« Désormais, je ne suis plus un Ancien Dieu issu de l'héritage de Tu Si... Je suis... un Ordre Ancien! » Wang Lin retira sa main droite de l'Ancien Démon et pointa entre ses sourcils. Il extraya lentement l'héritage mémoriel qu'il avait obtenu dans la Terre de l'Ancien Dieu!
+« Désormais, je ne suis plus un Dieu Antique issu de l'héritage de Tu Si... Je suis... l'Ordre Antique! » Wang Lin retira sa main droite du démon ancien et pointa entre ses sourcils. Il extirpa lentement l'héritage mémoriel qu'il avait obtenu dans la Terre du Dieu Antique!

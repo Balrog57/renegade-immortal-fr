@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1508 - Despicable !!"
 slug: meprisable
 ---
-Dans la Secte Divine de la Mer des Nuages, l'Ancien en chef, le Shui Daozi, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
+Dans le domaine stellaire de la Mer des Nuages, au sein de la Secte Divine de rang 9, l'Ancien en chef, le Shui Daozi, était assis au sommet de la plus haute montagne de la planète. Il avait l'apparence d'un enfant, mais une lueur de froideur glaçait son regard.
 
 Quatre montagnes l'entouraient. Si l'on observait la scène depuis les cieux, on aurait l'impression que ces cinq sommets étaient tels cinq doigts perçant le firmament!
 
@@ -32,7 +32,7 @@ Tenant un jade, une intention meurtrière jaillit des yeux du Shui Daozi.
 
 Il leva le second jade. Son expression devint féroce et il projeta un message par son Sens Divin.
 
-« Ordre de la Secte Divine: toutes les sectes de rang 7 doivent impérativement capturer tous les membres de la Secte de l'Origine. Par mon ordre, chaque membre de la Secte de l'Origine doit être exécuté; aucun ne doit survivre! »
+« Ordre de la Secte Divine: toutes les sectes filiales de rang 7 doivent se rendre sans délai à la Secte de l'Origine, capturer tous ses membres et les envoyer à la Secte Divine. Dès que j'aurai donné l'ordre de scellement, toute la Secte de l'Origine sera exécutée; aucun ne doit survivre! »
 
 Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le Shui Daozi ne s'arrêta pas là. Il saisit le troisième jade.
 
@@ -40,11 +40,11 @@ Le jade imprégné de son intention meurtrière se fondit dans le monde. Mais le
 
 Il agita la main droite et le troisième jade disparut.
 
-« Maître de la Secte Brise-Ciel, viens voir ce vieil homme et je te donnerai la mort. Si tu ne viens pas, la Secte Brise-Ciel sera anéantie! »
+« Maître de la Secte Brise-Ciel, viens vite à la Secte Divine: devant ce vieil homme, je t'accorderai la mort. Si tu ne viens pas, la Secte Brise-Ciel sera anéantie! »
 
 Le quatrième jade fusionna avec l'univers.
 
-« Tai Eluo, en tant que roi des bêtes féroces, tu as déjà pris forme humaine. Tu fus scellé il y a d'innombrables années. Je peux lever le sceau que le Seigneur du Royaume Scellé a posé sur toi, mais tu devras tuer une personne! »
+« Tai Aluo, en tant que roi des bêtes féroces, tu as déjà pris forme humaine. Tu fus scellé il y a d'innombrables années. Je peux lever le sceau que le Seigneur du Royaume Scellé a posé sur toi, te permettant de retourner dans ta patrie, mais tu devras tuer une personne! »
 
 Le cinquième jade se désintégra pour fusionner avec le vide, emportant un soupçon de la volonté du Shui Daozi.
 
@@ -52,7 +52,7 @@ Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Shui Daozi s'
 
 « Mer des Nuages, Rivière Invoquée, Luotian et l'Alliance. Ce vieil homme est l'Ancien en chef de la Secte Divine et le serviteur du Seigneur du Royaume Scellé. Depuis des dizaines de milliers d'années, j'ai veillé sur la Secte Divine et j'ai accompli de grands mérites lors de la seconde guerre contre le Royaume Extérieur!
 
-« Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également dérobé le trésor de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Démon, mais il ne pourra échapper à ce vieil homme!
+« Aujourd'hui, ce vieil homme a reçu des informations précises: un cultivateur de l'Alliance nommé Wang Lin est un pion du Souverain du Royaume Extérieur! Cet individu s'est bien caché et a également obtenu le trésor suprême de mon maître issu du Royaume Céleste Antique, la Perle Défiant le Ciel. Il a séduit la Secte Démon, mais il ne pourra échapper à ce vieil homme!
 
 « Il est revenu du Royaume Extérieur avec l'intention de semer le chaos dans le Royaume Intérieur; c'est un espion pour l'armée envahissante!
 
@@ -60,7 +60,7 @@ Après avoir lancé ces cinq ordres consécutifs, l'inquiétude du Shui Daozi s'
 
 « Celui qui l'exécutera obtiendra la Perle Défiant le Ciel!
 
-« Celui qui le tuera résoudra une calamité pour notre Royaume Intérieur!
+« Celui qui le tuera sera un héros de notre Royaume Intérieur!
 
 « Celui qui éliminera cet individu deviendra le Maître de ma Secte Divine!!
 
@@ -86,7 +86,7 @@ Cette carapace exhalait une aura antique et était saturée d'une énergie spiri
 
 Des rugissements tonnèrent dans le ciel de sang, et un regard émergea du vortex. Il fixa lentement la carapace que le Shui Daozi présentait.
 
-« Cultivateur du royaume inférieur, cette tortue est bel et bien un trésor du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume; cela pourra stopper l'invasion pendant cent ans... Cent ans devraient suffire pour que plusieurs émissaires s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux!
+« Cultivateur du royaume inférieur, cette tortue est bel et bien un trésor du Seigneur du Royaume Scellé. Je t'accorderai un trésor. Prends ceci et fusionne-le avec la Formation de Scellement du Royaume; cela pourra retarder l'invasion extérieure de cent ans... Cent ans devraient suffire pour que plusieurs émissaires s'éveillent, il n'y aura donc aucun problème... » Tandis que ces paroles majestueuses résonnaient depuis le vortex, un trésor doré descendit des cieux!
 
 C'était une cloche, une cloche d'or!!
 
@@ -102,7 +102,7 @@ La teinte sanglante du ciel se dissipa peu à peu, retrouvant son aspect normal.
 
 « Une fois Wang Lin éliminé, je pourrai échanger cette cloche contre de grands mérites. Le Souverain me comblera de Flammes Joss infinies! » Quant à fusionner la cloche avec la Formation de Scellement du Royaume pour gagner cent ans, le Shui Daozi n'en avait jamais eu l'intention!!
 
-Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste de la Foudre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant était aspiré et piégé en son sein.
+Dans le Système Stellaire de la Rivière Invoquée, sous le Royaume Céleste de la Foudre, se trouvait un immense vortex. Ce vortex existait depuis des éons et constituait une terre interdite au sein de la Rivière Invoquée. Tout cultivateur s'en approchant voyait toute sa force primordiale aspirée et mourait piégé en son sein.
 
 Au plus profond du vortex se nichait une planète de culture. Cette dernière, de petite taille, était entièrement noire.
 
@@ -112,7 +112,7 @@ L'homme arborait une expression hideuse, son visage marqué par de nombreuses pu
 
 Soudain, l'homme ouvrit les yeux, révélant un regard froid et indifférent. À cet instant, une fumée apparut devant lui et prit la forme d'une grue de nuage.
 
-« Appel au Compagnon Cultivateur Zhou De. Je suis prêt à vous offrir un esprit dao de rang 6 si vous m'aidez une fois! »
+« Appel au Compagnon Cultivateur Zhou De de la Rivière Invoquée. Je suis prêt à vous offrir un esprit dao de rang 6 si vous m'aidez une fois! »
 
 La voix du Shui Daozi émana de la grue et résonna dans toute la planète.
 
@@ -130,11 +130,11 @@ L'homme roula les yeux et dit d'un ton embarrassé: « Ce n'est pas un beau jade
 
 Le prêteur fronça les sourcils. Alors qu'il s'apprêtait à parler, son expression changea brusquement et il tourna la tête vers l'extérieur.
 
-« Douze pièces d'argent! » Les yeux de l'homme s'illuminèrent. Il sortit douze pièces pour les remettre au client stupéfait. Une fois celui-ci parti, il pointa le vide du doigt.
+« Dix pièces d'argent! » Les yeux de l'homme s'illuminèrent. Il sortit dix pièces pour les remettre au client stupéfait. Une fois celui-ci parti, il pointa le vide du doigt.
 
 Une grue de nuage apparut devant lui.
 
-« Appel au Compagnon Cultivateur Maître Bord-des-Nuages. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Shui Daozi résonna dans l'esprit de l'homme.
+« Appel au Compagnon Cultivateur Maître Bord-des-Nuages de la Rivière Invoquée. Je vous offrirai le Sort d'Arrêt du Seigneur du Royaume Scellé si vous m'aidez une fois! » La voix du Shui Daozi résonna dans l'esprit de l'homme.
 
 L'œil de ce dernier brilla tandis qu'il se frottait le menton, plongé dans sa réflexion.
 

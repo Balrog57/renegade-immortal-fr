@@ -24,13 +24,13 @@ Sur la quatrième carte, le brouillard bouillonnait, produisant des sons semblab
 
 Un homme corpulent se tenait sur cette plateforme. Son buste dégageait une impression de puissance brute, et une ombre de loup géant semblait rugir derrière lui.
 
-La plateforme était recouverte de sang séché et son corps présentait plusieurs blessures. C'était le cultivateur du troisième stade du Clan du Loup Céleste qui l'avait rejoint en poursuivant Wang Lin!
+La plateforme était recouverte de sang séché et son corps présentait plusieurs blessures. C'était le cultivateur du troisième niveau du Clan du Loup Céleste qui était entré dans ce tombeau en poursuivant Wang Lin!
 
 Alors que la plateforme avançait à vive allure, son expression restait sérieuse. Cependant, ses yeux s'illuminèrent et sa main droite traça un sceau. Lorsqu'il pressa sa main contre la plateforme, des grondements résonnèrent dans son esprit.
 
 Un instant plus tard, son visage devint extrêmement sombre.
 
-« Une autre plateforme de rang 5 est apparue! Je me demande de quel cultivateur du troisième stade il s'agit... »
+« Une autre plateforme de rang 5 est apparue! Je me demande de quel cultivateur du troisième niveau il s'agit... »
 
 Au plus profond de la mer de brouillard flottaient d'innombrables plateformes scellées. Au-dessus d'elles, une plateforme de 50 000 pieds fendait rapidement la brume.
 
@@ -44,7 +44,7 @@ Plus profondément encore dans le Tombeau Ancien que tous les autres, se trouvai
 
 Un rugissement retentit alors qu'une silhouette de plusieurs centaines de pieds avançait comme une brute. Sa progression n'était pas rapide; le courant d'air incessant percutait sans relâche son corps, lui infligeant de constantes blessures qui le faisaient rugir de colère.
 
-Derrière cette silhouette se trouvait une plateforme de plus de 10 000 pieds de large. Une femme en rose y était assise. Elle possédait un charme tel qu'elle aurait pu captiver les cœurs et les esprits les plus fermes.
+Derrière cette silhouette flottait une plateforme de 70 000 pieds. Une femme en rose y était assise. Elle possédait un charme tel qu'elle aurait pu captiver les cœurs et les esprits les plus fermes.
 
 « Grand frère Tuo Sen doit se dépêcher. Que cette petite sœur puisse pénétrer dans les profondeurs du tombeau dépend entièrement de toi, Grand frère. » La femme en rose porta une main à sa bouche pour sourire. Ses beaux yeux pétillaient de séduction et sa voix était langoureuse; l'entendre suffisait à provoquer un frisson au fond du cœur.
 
@@ -60,13 +60,13 @@ Le duo disparut progressivement au loin, ne laissant derrière lui que l'écho p
 
 Sur la cinquième carte, Wang Lin était pensif. Il s'apprêtait à retirer son Sens Divin de la plateforme lorsqu'une voix antique commença à résonner dans son esprit.
 
-« Obtenir la plateforme de rang 5 signifie que tu peux ouvrir la porte de la réincarnation et devenir l'un de ceux capables de recevoir mon héritage... Le rang 9 est le rang ultime. Si l'on appartient à mon clan, on peut franchir la porte de la réincarnation pour chercher mon héritage. Sinon, on ne peut que rejoindre mon enfer... Ce seigneur... Ye Mo... »
+« Obtenir la plateforme de rang 5 signifie que tu peux ouvrir la porte de la réincarnation et devenir l'un de ceux capables de recevoir mon héritage... Le rang 9 est le rang ultime. Si l'on appartient à mon clan, on peut franchir la porte de la réincarnation pour chercher mon héritage. Sinon, le premier à atteindre le rang 9 pourra emporter mon enfer... Ce seigneur... Ye Mo... »
 
 Cette voix résonna dans l'esprit de Wang Lin. À l'instant même où elle s'estompait, l'esprit de Wang Lin sembla fusionner avec le Tombeau Ancien. À ses côtés, il pouvait clairement percevoir quatre auras ténues!
 
-« L'Ordre Ancien Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par l'Oiseau Vermillon de la première génération! Il se souvenait parfaitement des paroles de celui-ci:
+« L'Ordre Antique Ye Mo... » L'esprit de Wang Lin fut secoué. C'était la deuxième fois qu'il entendait ce nom. La première fois, c'était par l'Oiseau Vermillon de la première génération! Il se souvenait parfaitement des paroles de celui-ci:
 
-« Ce vieil homme ne connaît pas grand-chose à la culture des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Ancien ne fût pas aussi puissant que le Souverain Céleste Ancien, ce dernier le craignait néanmoins... »
+« Ce vieil homme ne connaît pas grand-chose à la culture des Dieux Anciens, mais à mon époque, le pouvoir des Dieux Anciens faisait trembler les cieux. À l'époque, bien que Ye Mo de l'Ordre Antique ne figurât pas parmi les Souverains Célestes, sa culture suffisait à faire redouter de lui un Souverain Céleste... »
 
 Wang Lin médita longuement, puis ses yeux brillèrent d'un éclat vif.
 
@@ -74,9 +74,9 @@ Avec toute la ruse qui le caractérisait, il comprit naturellement que ces quatr
 
 « Je peux sentir leur présence après avoir obtenu une plateforme de rang 5; ils ont donc manifestement senti la mienne aussi... »
 
-« Ce Tombeau de l'Ordre Ancien est extrêmement étrange. Où se trouve cet enfer mentionné par la voix... »
+« Cette Tombe de l'Ordre Antique est extrêmement étrange. Où se trouve cet enfer mentionné par la voix... »
 
-Après réflexion, les yeux de Wang Lin s'illuminèrent et il réprima les fluctuations causées par la voix. Il scruta la plateforme sous ses pieds. Il en était désormais certain: dans le Tombeau de l'Ordre Ancien, les plateformes étaient la clé!
+Après réflexion, les yeux de Wang Lin s'illuminèrent et il réprima les fluctuations causées par la voix. Il scruta la plateforme sous ses pieds. Il en était désormais certain: dans la Tombe de l'Ordre Antique, les plateformes étaient la clé!
 
 « Selon cette voix, je dois faire atteindre à ma plateforme le rang 9 avant tous les autres... » Wang Lin regarda vers les profondeurs du brouillard. Selon la carte, c'était là que se trouvait la forêt mystérieuse.
 

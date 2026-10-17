@@ -8,7 +8,7 @@ slug: la-puissance-dun-rugissement
 ---
 Dans la neuvième carte, l'avatar de Maître Démon des Neuf Cieux se déplaçait également à toute allure à travers le tombeau. Bien que Wang Lin ait fait le premier pas, il n'était pas inquiet, car son corps originel se trouvait déjà dans le tombeau.
 
-« Voler! Même si tu voles tout, tu ne pourras pas quitter ce tombeau antique vivant! » Un éclair de froideur traversa les yeux de Maître Démon des Neuf Cieux. Cependant, à cet instant, un rugissement retentit depuis le vide et les turbulences autour de lui se dissipèrent.
+« Voler! Même si tu voles tout, tu ne pourras pas quitter ce tombeau antique vivant! » Un éclair de froideur traversa les yeux de Maître Démon des Neuf Cieux. Cependant, à cet instant, le vide devant lui se mit à rouler dans un grondement et les turbulences autour de lui se dissipèrent.
 
 En un éclair, un puissant Sens Divin balaya son corps avant de s'étendre au loin.
 
@@ -38,7 +38,7 @@ Cependant, au moment où sa main droite toucha l'onde, il ressentit une force co
 
 « Qui êtes-vous, Votre Excellence?! »
 
-Nul ne lui répondit, et le Sens Divin continua sa progression. Elle traversa la septième carte, la sixième, la cinquième... Dans la deuxième carte, le corps originel de Maître Démon des Neuf Cieux et Miao Yin avançaient calmement. Ils franchissaient des distances incommensurables en un seul pas.
+Nul ne lui répondit, et le Sens Divin continua sa progression. Elle traversa la septième carte, la sixième, la cinquième... Dans la quatrième carte, le corps originel de Maître Démon des Neuf Cieux et Miao Yin avançaient calmement. Ils franchissaient des distances incommensurables en un seul pas.
 
 Soudain, l'expression de Maître Démon des Neuf Cieux changea.
 
@@ -128,7 +128,7 @@ La puissance de ce cri fit changer les couleurs du monde et ébranla l'éternit�
 
 Des tempêtes obscurcirent le ciel; Tuo Sen cracha du sang et fut projeté en arrière. Il leva son bras pour se protéger, mais la chair de la moitié de son corps se désintégra instantanément, révélant les os blancs en dessous.
 
-Le corps d'un Dieu Ancestral Royal à 8 étoiles venait de s'effondrer!
+Le corps d'un Dieu Ancien Royal à 8 étoiles venait de s'effondrer!
 
 Le rugissement sortit de la bouche de Wang Lin et fit trembler tout le tombeau antique. L'avatar de Maître Démon des Neuf Cieux s'écroula sans pouvoir opposer la moindre résistance. La quatrième Concubine Impériale Céleste cracha du sang. Elle agita sa main pour déployer la soie qui lui avait permis d'échapper au danger précédent, une étoffe offerte par l'Ancien Souverain Céleste!
 

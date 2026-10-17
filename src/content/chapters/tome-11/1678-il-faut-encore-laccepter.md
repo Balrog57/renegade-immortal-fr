@@ -6,11 +6,11 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1678 - Still Should Accept It
 slug: il-faut-encore-laccepter
 ---
-Assis au centre de la formation circulaire, Wang Lin observait l'extérieur. Miao Yin et ses compagnons n'étaient pas partis; ils pensaient qu'en unissant leurs forces, ils pourraient faire face à Rêve Bleu.
+Assis au centre de la formation circulaire, Wang Lin observait l'extérieur. Miao Yin et ses compagnons n'étaient pas partis; ils pensaient qu'en unissant leurs forces, ils pourraient faire face à Bleu Rêve.
 
 Li Qianmei affichait une expression nerveuse en regardant son père lutter contre les trois adversaires. L'inquiétude se lisait dans ses yeux.
 
-Hors de la formation, le système stellaire tremblait. Rêve Bleu combattait seul et restait d'un calme olympien. À chaque attaque, il libérait une lumière bleue qui se transformait en puissants sorts.
+Hors de la formation, le système stellaire tremblait. Bleu Rêve combattait seul et restait d'un calme olympien. À chaque attaque, il libérait une lumière bleue qui se transformait en puissants sorts.
 
 Après avoir observé un instant, Wang Lin ferma les yeux et cessa de prêter attention à tout cela.
 
@@ -22,13 +22,13 @@ Il devait maîtriser cette technique et en devenir expert. Wang Lin l'avait pers
 
 Quant à l'intégration des huit gouttes de sang pour accroître son pouvoir ancestral, cela exigerait encore plus de temps. L'environnement actuel ne permettant pas à Wang Lin de s'y immerger pleinement, il avait repoussé cette étape.
 
-Trois jours passèrent en un éclair. Wang Lin sembla percevoir quelque chose et ouvrit les yeux. L'espace extérieur à la formation était en lambeaux, criblé de nombreux trous noirs créés par le combat entre Rêve Bleu et les autres.
+Trois jours passèrent en un éclair. Wang Lin sembla percevoir quelque chose et ouvrit les yeux. L'espace extérieur à la formation était en lambeaux, criblé de nombreux trous noirs créés par le combat entre Bleu Rêve et les autres.
 
 D'innombrables âmes de flammes de Joss mortes flottaient parmi les étoiles, telles une fumée invisible dérivant lentement dans l'obscurité.
 
-Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataille. Il ne vit pas l'autre arbre, mais il vit Rêve Bleu pénétrer dans le cercle de la formation pour arriver devant lui.
+Après quelques coups d'œil, Wang Lin put ressentir la férocité de la bataille. Il ne vit pas les trois adversaires, mais il vit Bleu Rêve pénétrer dans le cercle de la formation pour arriver devant lui.
 
-Le Maître du Dao Rêve Bleu paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
+Le Maître Dao Bleu Rêve paraissait épuisé. Il semblait que même pour lui, affronter les trois d'entre eux n'était pas une mince affaire.
 
 « Miao Yin est gravement blessé, au point qu'il ne pourra pas retrouver son niveau de culture maximal avant cent ans. Son niveau a chuté au stade Vide Spirituel; la prochaine fois que vous le croiserez, vous pourrez le tuer! »
 
@@ -42,39 +42,39 @@ Wang Lin réfléchit silencieusement et, après un long moment, prit la parole d
 
 « J'ai déjà une femme pour toute une vie... »
 
-Le Maître du Dao Rêve Bleu ouvrit les yeux et fixa Wang Lin, le visage assombri.
+Le Maître Dao Bleu Rêve ouvrit les yeux et fixa Wang Lin, le visage assombri.
 
 « Même avec mon aide, tu ne changeras pas d'avis... Ce vieux ne te demande pas d'abandonner ta femme, mais de faire une promesse à ma fille! »
 
-« Cela ne devrait pas être difficile pour toi! Si ce n'était pour ma fille, même si tu avais atteint le stade Vide Spirituel et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du stade Vide Arcanique, tu ne représenterais rien à mes yeux. »
+« Cela ne devrait pas être difficile pour toi! Si ce n'était pour ma fille, même si tu avais atteint le stade Vide Spirituel et possédais l'héritage ancestral, même si tu pouvais tuer des cultivateurs du début du stade Vide Arcanique, tu ne représenterais rien à mes yeux. »
 
-« Tu aurais pu brandir l'arc Li Guang pour terrasser ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Soie Bleue dans le Royaume Intérieur! »
+« Tu peux très bien tirer l'Arc de Li Guang pour abattre ces vieux os! Mais même si je meurs, je n'emmènerai pas mon clan Soie Bleue dans le Royaume Intérieur! »
 
-« Moi, Rêve Bleu, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
+« Moi, Bleu Rêve, suis né dans le Système Stellaire Antique. Je suis l'un des Cinq Maîtres de ce système. Penses-tu que je mentirais à un junior comme toi? Qu'as-tu pour que je veuille te tromper? Ce vieux a cultivé pendant d'innombrables années, je ne m'abaisserais pas à cela! »
 
 « La Perle Défiant le Ciel est entre tes mains. Si j'avais été avide, je l'aurais prise depuis longtemps! Tu n'avais même pas atteint la troisième étape à l'époque; si ce vieux avait voulu te tuer, il l'aurait fait bien plus tôt. Si ce n'était pour ce qui lie Qianmei et toi, pourquoi aurais-je attendu jusqu'ici? »
 
-« La question entre toi et la Souveraine, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Soie Bleue, et personne ne pourrait me forcer à prendre part à cette guerre. Il est probable qu'on me doive même des faveurs si je rejoins leur camp! »
+« La question entre toi et le Souverain, la bataille entre les Royaumes Intérieur et Extérieur, ainsi que le conflit entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan... Je pourrais simplement protéger mon clan Soie Bleue, et personne ne pourrait me forcer à prendre part à cette guerre. Il est même probable qu'on chercherait à me rallier par des faveurs! »
 
-« Pourtant, j'ai tout abandonné juste pour que tu fasses une promesse à ma fille. Wang Lin, ne me pousse pas à aller trop loin! » Rêve Bleu fixa Wang Lin, la colère brillant dans ses yeux.
+« Pourtant, j'ai tout abandonné juste pour que tu fasses une promesse à ma fille. Wang Lin, ne me pousse pas à aller trop loin! » Bleu Rêve fixa Wang Lin, la colère brillant dans ses yeux.
 
 Tout ce qu'il avait accompli, il le disait vrai: tout était pour sa fille.
 
 Li Qianmei versa des larmes. Elle comprenait enfin ce que son père avait fait pour elle, tout ce qu'il avait sacrifié...
 
-Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe de respect devant le Maître du Dao Rêve Bleu.
+Wang Lin afficha un regard tourmenté. Il se leva et joignit les mains en signe de respect devant le Maître Dao Bleu Rêve.
 
 « Ce Junior ne doute pas de ce que le Senior a accompli... »
 
-« Ne dis rien de plus, tu... » Le Maître du Dao Rêve Bleu vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
+« Ne dis rien de plus, tu... » Le Maître Dao Bleu Rêve vit les larmes de Li Qianmei et son cœur s'adoucit. Il fixa Wang Lin et avala ses paroles.
 
-« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de culture de ma fille! C'est ma limite. Wang Lin, choisis sagement! » L'expression du Maître du Dao Rêve Bleu était glaciale.
+« Ce vieux peut faire un pas en arrière. Je veux que tu me fasses une promesse. Si ta femme ressuscite, alors toi et ma fille deviendrez frère et sœur; mais si ta femme ne peut finalement pas être ressuscitée, tu deviendras le partenaire de culture de ma fille! C'est ma limite. Wang Lin, choisis sagement! » L'expression du Maître Dao Bleu Rêve était glaciale.
 
 Wang Lin songea en silence. Il se leva et regarda au loin. Après un long moment, ses yeux étaient empreints de confusion alors que son regard dérivait vers Li Qianmei. Il vit ses larmes et la façon dont elle baissait la tête pour fuir son regard.
 
-« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Soie Bleue! » Le Maître du Dao Rêve Bleu se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
+« Tu... Laisse tomber, ce vieux ne veut pas de réponse immédiate. Réfléchis-y et reviens me trouver au sein du clan Soie Bleue! » Le Maître Dao Bleu Rêve se leva, décidant de ne plus cultiver ici. En voyant la tristesse dans le regard de sa fille, il ressentit un pincement au cœur. Il était venu avec l'espoir que tout s'arrangerait et que Wang Lin accepterait, mais cela se terminait ainsi.
 
-« Papa, partons... » Li Qianmei essuya ses larmes et se leva doucement pour rejoindre le Maître du Dao Rêve Bleu.
+« Papa, partons... » Li Qianmei essuya ses larmes et se leva doucement pour rejoindre le Maître Dao Bleu Rêve.
 
 « Papa, avant, Meng Er ne comprenait pas, mais maintenant je comprends. Rentrons à la maison... Une fois rentrés, ne repartons plus jamais... » Li Qianmei prit la main de son père et sentit sa chaleur. Elle regarda Wang Lin et sourit.
 
@@ -98,7 +98,7 @@ Ce rouleau contenait le tableau de paysages « S'oublier dans ce monde ». Wang 
 
 Il ne pouvait plus offrir ce présent avec la même sérénité qu'autrefois à la femme qui se tenait devant lui.
 
-Le Maître du Dao Rêve Bleu observa la scène, et la colère dans ses yeux fit place à la tristesse. Il regarda Li Qianmei et comprit que le cœur de sa fille était mort.
+Le Maître Dao Bleu Rêve observa la scène, et la colère dans ses yeux fit place à la tristesse. Il regarda Li Qianmei et comprit que le cœur de sa fille était mort.
 
 Son cœur était brisé.
 
@@ -110,7 +110,7 @@ Voir le père de son propre enfant faire ses adieux à une autre femme infligeai
 
 Elle serra doucement Wang Lin dans ses bras, et ses pleurs mouillèrent sa robe blanche.
 
-« Si tu ne m'aimes pas, pourquoi m'as-tu sauvée dans la Mer des Nuages... N'aurait-il pas été préférable que je meure avec un espoir, pour rester gravée dans ta mémoire... Wang Lin, tu... tu ne comprends rien aux sentiments... » murmura Li Qianmei à son oreille avant de se détacher. Elle tendit la main vers le tableau pour partir.
+« Si tu ne m'aimes pas, pourquoi m'as-tu sauvée dans la Mer des Nuages... N'aurait-il pas été préférable que je meure avec un espoir, pour rester gravée dans ta mémoire... Wang Lin... un bienfait n'est pas de l'amour... » murmura Li Qianmei à son oreille avant de se détacher. Elle tendit la main vers le tableau pour partir.
 
 Cependant, ses mains s'immobilisèrent brusquement car Wang Lin serrait fermement l'œuvre.
 

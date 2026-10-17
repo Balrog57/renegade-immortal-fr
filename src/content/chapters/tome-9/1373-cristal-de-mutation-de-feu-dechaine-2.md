@@ -8,7 +8,7 @@ slug: cristal-de-mutation-de-feu-dechaine-2
 ---
 L'esprit du vieil homme trembla et son visage se crispa sous l'effet d'une douleur accrue. Il cracha un nouveau jet de sang et battit en retraite précipitamment, les yeux emplis d'incrédulité.
 
-« Le Fléau du Quatrième Ciel!!! C'est là la puissance d'une culture au stade du Fléau du Quatrième Ciel! Maudit soit, comment mon Clan du Scorpion Noir a-t-il pu offenser un vieux monstre pareil?! » Juste au moment où le vieil homme allait s'enfuir, Wang Lin tendit la main vers lui.
+« Le Quatrième Ciel du Fléau Céleste!!! C'est là la puissance d'une culture au stade du Quatrième Ciel du Fléau Céleste! Maudit soit, comment mon Clan du Scorpion Noir a-t-il pu offenser un vieux monstre pareil?! » Juste au moment où le vieil homme allait s'enfuir, Wang Lin tendit la main vers lui.
 
 Le vieil homme sentit immédiatement l'énergie originelle jaillir avec une fureur folle autour de lui. C'était comme si cette énergie avait formé une cage invisible se refermant sur lui de toutes parts.
 
@@ -34,7 +34,7 @@ Son corps fut projeté en arrière dans un arc de cercle et, tout en crachant du
 
 L'index de Wang Lin était toujours pointé vers le front de l'âme originelle du vieil homme lorsqu'il dit lentement: « Vas-tu encore essayer de fuir? »
 
-« Rien que l'aura de son doigt suffit à forcer mon âme originelle à sortir de mon corps et à m'infliger de graves blessures. Si j'avais été touché par ce doigt, je serais mort instantanément! Cet homme... cet homme n'est certainement pas seulement au stade du Fléau du Quatrième Ciel!! » Le vieil homme tremblait et secouait la tête. Il avait presque perdu la raison, et la puissance contenue dans ce doigt lui ôtait toute volonté de résister. Ce doigt n'avait même pas encore touché l'espace entre ses sourcils, mais cela le terrifiait d'autant plus.
+« Rien que l'aura de son doigt suffit à forcer mon âme originelle à sortir de mon corps et à m'infliger de graves blessures. Si j'avais été touché par ce doigt, je serais mort instantanément! Cet homme... cet homme n'est certainement pas seulement au stade du Quatrième Ciel du Fléau Céleste!! » Le vieil homme tremblait et secouait la tête. Il avait presque perdu la raison, et la puissance contenue dans ce doigt lui ôtait toute volonté de résister. Ce doigt n'avait même pas encore touché l'espace entre ses sourcils, mais cela le terrifiait d'autant plus.
 
 « Désormais, votre Clan du Scorpion Noir m'appartient et obéira à tous mes ordres. Sinon, j'anéantirai votre clan tout entier! » Wang Lin retira son index et regarda froidement l'âme originelle du vieil homme.
 

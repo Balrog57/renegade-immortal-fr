@@ -22,7 +22,7 @@ Tandis qu'il méditait, le temps s'écoulait lentement. Le seul son qui semblait
 
 Le monde changea brusquement et des exclamations de stupeur s'élevèrent parmi les cultivateurs choqués. Ce qui apparut devant le groupe de vingt-cinq personnes était une tombe scellée depuis des dizaines de milliers d'années, un lieu que nul n'avait jamais foulé auparavant!
 
-Cette zone s'étendait sur des centaines de pieds et était saturée de failles spatiales, lesquelles formaient une cage emprisonnant l'espace.
+Cette zone s'étendait sur des millions de pieds, et tout son pourtour n'était que failles spatiales distordues, formant une immense cage qui la scellait entièrement.
 
 Les plateformes du groupe de Wang Lin émergèrent de l'une de ces failles. Le monde qui s'offrait à eux était baigné d'une lumière rouge!
 
@@ -62,11 +62,11 @@ Un cultivateur extrêmement corpulent agita son boulier et dit avec un sourire n
 
 « Tue une seule proie de trop et tu mourras ici! Personne ne pourra te sauver! » lança froidement un homme mince vêtu de noir en s'avançant.
 
-L'homme en pourpre, escorté d'un poisson féroce, rugit: « Bien que ce compagnon soit puissant, si tu nous provoques, retire-toi de notre groupe et va affronter la mort. Si tu ne pars pas, ce seigneur fera hurler ton cadavre! »
+L'homme en pourpre, escorté d'un poisson féroce, rugit: « Bien que ce compagnon soit puissant, si tu provoques la colère de tous, retire-toi de notre groupe et va affronter la mort. Si tu ne pars pas, ce seigneur fera rouler ton cadavre! »
 
-La voix lugubre d'une vieille femme en vert, le corps couvert de pus, résonna: « Ce compagnon est bien trop téméraire. La fortune ici est à la portée de tous. Mais si ta cupidité devient excessive, même ce vieux corps ne te laissera aucun répit. Si tu deviens trop gourmand, je te tuerai moi-même. Peu importe ta puissance, tu périras si tu ne sais pas obéir! »
+La voix lugubre d'une vieille femme en vert, le visage couvert de pustules, résonna: « Ce compagnon est bien trop téméraire. La fortune ici est à la portée de tous. Mais si ta cupidité devient excessive, même cette vieille femme ne pourra plus le supporter. Si tu deviens trop gourmand, je te tuerai moi-même. Peu importe ta puissance, tu périras si tu ne sais pas obéir! »
 
-« Bien que vous soyez puissants, vous ne savez vraiment pas comment agir. Gaspiller votre culture de la sorte est d'une stupidité sans nom... Hélas, quel dommage! Qu'un être aussi avide existe dans ce monde. Te crois-tu un cultivateur du troisième pas? » L'homme d'âge moyen tenant une cruche blanche à sa gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
+« Ta culture est élevée, mais agir avec si peu de mesure, gaspiller ta culture et y laisser la vie est d'une stupidité sans nom... Hélas, quel dommage! Qu'un être aussi avide et stupide existe dans ce monde. Te crois-tu un cultivateur du troisième pas? » L'homme d'âge moyen tenant une cruche de vin dans la main gauche secoua la tête. Il prit une gorgée, puis chargea les bêtes féroces.
 
 Ces paroles étaient chargées d'une intention meurtrière évidente. La majorité des cultivateurs étaient mécontents. Outre ceux qui s'exprimaient, tous les autres dégageaient une volonté de tuer; ils étaient prêts au massacre.
 
@@ -92,7 +92,7 @@ Des grondements tonitruants résonnèrent alors que les bêtes brûlaient, se tr
 
 Le brasier continua de s'étendre, et la majorité des bêtes devint partie intégrante de cette mer de feu... Toute cette force vitale infinie convergeait vers lui. Son âme originelle absorbait tout, et ses blessures guérissaient à une vitesse dépassant l'imagination.
 
-1 000, 3 000, 8 000, 10 003... Une quantité phénoménale de force vitale pénétrait son corps en un éclair. De plus en plus de bêtes étaient consumées par le Feu Éthéré!
+1 000, 3 000, 8 000, 13 000... Une quantité phénoménale de force vitale pénétrait son corps en un éclair. De plus en plus de bêtes étaient consumées par le Feu Éthéré!
 
 Tandis que cette énergie affluait, les blessures de Wang Lin furent totalement comblées!!
 
@@ -106,7 +106,7 @@ Si simple, si prodigieux!
 
 « Un cultivateur du Feu Éthéré!!! »
 « C'est un cultivateur du Feu Éthéré! Comment est-ce possible?! »
-« Ce cultivateur légendaire dont on dit qu'il n'apparaît que tous les dizaines de milliers d'années... Il est réellement un cultivateur du Feu Éthéré!! »
+« Ce cultivateur légendaire dont on dit qu'il n'apparaît que toutes les dizaines de milliers d'années... Il est réellement un cultivateur du Feu Éthéré!! »
 « D'un simple geste, il a massacré des dizaines de milliers de bêtes en un instant. Une telle culture... Je... j'allais vraiment tenter de le tuer... »
 
 Un cultivateur légendaire du Feu Éthéré venait de faire son apparition dans ce lieu scellé avec son feu unique! En voyant cela, une onde de choc immense déferla sur les cultivateurs environnants!

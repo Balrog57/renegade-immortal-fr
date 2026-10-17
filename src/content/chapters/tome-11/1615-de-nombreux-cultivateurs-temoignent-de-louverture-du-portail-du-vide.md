@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1615 - Many Cultivators Witness the Void Gate
 slug: de-nombreux-cultivateurs-temoignent-de-louverture-du-portail-du-vide
 ---
-L'Empreinte du Karma. Avec la main ouverte de Wang Lin comme cause karmique du ciel et sa paume fermée comme effet karmique du ciel, le processus deviendrait le destin karmique! La puissance du destin karmique externe formerait alors l'Empreinte du Karma.
+L'Empreinte du Karma. Avec la main ouverte de Wang Lin comme cause du ciel et de la terre et sa paume fermée comme effet de la destruction du monde, le processus de fermeture de la main serait le destin! La force externe de ce destin formerait alors l'Empreinte du Karma.
 
 Bien que Wang Lin ne fasse qu'en comprendre les principes, sa puissance était extrêmement terrifiante.
 
@@ -16,7 +16,7 @@ Dès l'apparition de cette empreinte, elle serait assez puissante pour précipit
 
 C'était un sortilège Dao!
 
-Wang Lin regarda sa main droite. Tandis qu'il ouvrait la paume, l'aura d'un grand érudit se propagea de son corps. Cette présence pouvait terrifier les fantômes et les dieux, et elle suffisait à repousser les cultivateurs du Vide Nirvana.
+Wang Lin regarda sa main droite. Tandis qu'il ouvrait la paume, l'aura d'un grand érudit se propagea de son corps. Cette présence pouvait terrifier les fantômes et les dieux, et elle suffisait à repousser les cultivateurs du Vide du Nirvana.
 
 Grâce à cette aura, Wang Lin avait saisi la vérité du monde; il était le monde lui-même!
 
@@ -24,9 +24,9 @@ D'un geste de la main droite, les yeux de Wang Lin révélèrent une lueur étra
 
 Cette empreinte n'était pas seulement le quatrième sortilège original de Wang Lin, mais aussi le signe que son essence karmique était complète.
 
-L'Empreinte du Karma intersecta ses essences de tonnerre et de feu, formant un anneau. L'aura d'un cultivateur du troisième pas éclata soudainement avec une intensité décuplée.
+L'Empreinte du Karma intersecta ses essences de tonnerre et de feu, formant un anneau. L'aura d'un cultivateur de la troisième étape éclata soudainement avec une intensité décuplée.
 
-Les trois essences étaient complètes. Même si un cultivateur au sommet du Vide Nirvana se trouvait ici, il lui serait difficile de bloquer une attaque à pleine puissance de Wang Lin! Bien qu'il soit ardu de compléter les essences, une fois accomplies, elles deviennent d'une puissance phénoménale!
+Les trois essences étaient complètes. Même si un cultivateur au sommet du Vide du Nirvana se trouvait ici, il lui serait difficile de bloquer une attaque à pleine puissance de Wang Lin! Bien qu'il soit ardu de compléter les essences, une fois accomplies, elles deviennent d'une puissance phénoménale!
 
 Au moment où les trois essences se formèrent, un grondement sourd résonna, comme s'il provenait de l'au-delà du vide.
 
@@ -48,7 +48,7 @@ La statue du Seigneur du Royaume Scellé se dressait telle une montagne. Les cul
 
 Situ Nan était également présent. Il aurait dû partir pour Luotian avec Qing Lin, mais il était revenu en hâte. C'était la planète Suzaku, c'était la terre natale de son frère, c'était là que Wang Lin avait disparu. Lui, Situ Nan, ne pouvait accepter de partir seul.
 
-« Et alors si je meurs? » sourit Situ Nan, ses cheveux blancs flottant au vent alors qu'il chargeait les cultivateurs du Royaume Extérieur dans sa robe pourpre. Au fil des ans, grâce à l'enseignement attentif de Qing Lin et à son talent prodigieux, il avait ouvert le Portail du Vide avec l'aide de ce dernier et était devenu un cultivateur du troisième pas il y a 30 ans!
+« Et alors si je meurs? » sourit Situ Nan, ses cheveux blancs flottant au vent alors qu'il chargeait les cultivateurs du Royaume Extérieur dans sa robe pourpre. Au fil des ans, grâce à l'enseignement attentif de Qing Lin et à son talent prodigieux, il avait ouvert la Porte du Vide avec l'aide de ce dernier et était devenu un cultivateur de la troisième étape il y a 30 ans!
 
 Aux côtés de Situ Nan, Treize, Da Tou et les autres étaient restés également. Bien que leurs niveaux de culture ne fussent pas assez élevés, ils s'étaient considérablement renforcés au fil des batailles. Malgré leurs blessures, ils dégageaient une intention meurtrière monstrueuse.
 
@@ -68,11 +68,11 @@ Aujourd'hui, il avait amené de nombreux Anciens de la Secte des Quatre Divinit�
 
 L'Empereur Divin du Dragon Azure avait disparu avec la Secte des Quatre Divinités. Puis, quelques décennies plus tard, il était soudainement réapparu avec elle pour engager une lutte de vie ou de mort contre le Royaume Extérieur.
 
-Son niveau de culture était déjà très élevé par le passé. Au fil des ans, bien qu'il n'ait pas atteint le troisième pas, il avait atteint le sommet du cinquième Ciel Fléau.
+Son niveau de culture était déjà très élevé par le passé. Au fil des ans, bien qu'il n'ait pas atteint la troisième étape, il avait atteint le sommet du cinquième Fléau Céleste.
 
 En comptant ces individus, moins de 8 000 cultivateurs protégeaient la planète Suzaku contre des dizaines de milliers de combattants du Royaume Extérieur. Pourtant, ces 8 000 hommes avaient tenu tête pendant plusieurs mois!
 
-Des grondements continuaient de résonner à travers les étoiles et l'espace autour de la planète Suzaku était imprégné d'une odeur de sang. L'armée des dizaines de milliers de cultivateurs se resserrait. Parmi eux ne comptaient que trois cultivateurs du troisième pas.
+Des grondements continuaient de résonner à travers les étoiles et l'espace autour de la planète Suzaku était imprégné d'une odeur de sang. L'armée des dizaines de milliers de cultivateurs se resserrait. Parmi eux ne comptaient que trois cultivateurs de la troisième étape.
 
 L'un d'eux était un jeune homme en vert à l'expression glaciale. À chaque attaque, la glace envahissait la zone. Si Wang Lin avait été là, il l'aurait reconnu comme l'un de ceux qui l'avaient attaqué.
 
@@ -80,7 +80,7 @@ Il y avait aussi Zhou Jin, du clan du Loup Céleste. Après la disparition de Wa
 
 Parmi les deux, Zhou Jin possédait le niveau de culture le plus bas. Il affrontait le Maître Lu Fu sur le flanc gauche de la planète Suzaku. D'innombrables sorts s'entrechoquaient et, de loin, on pouvait voir un loup de sang géant tentant d'engloutir le Maître Lu Fu, sans y parvenir.
 
-Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade intermédiaire du Vide Arcane. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
+Le jeune homme en vert ayant maîtrisé l'essence de la glace possédait un niveau de culture extrêmement élevé. Il combattait avec son corps original, qui se situait au stade précoce du Vide Arcane. Seul, il parvenait à repousser le Maître Long Pan et Situ Nan.
 
 C'était la bataille ultime du Vide Brillant. Tout le Vide Brillant était tombé, à l'exception de ce lieu. Seule la planète Suzaku subsistait!
 
@@ -114,7 +114,7 @@ Les pupilles du Maître Long Pan se rétractèrent, l'inquiétude se lisant sur 
 
 Le Maître Lu Fu fut également stupéfait et recula précipitamment. En contemplant la gigantesque Porte du Vide, le désespoir se lut dans ses yeux.
 
-« Est-il vraiment si facile pour les cultivateurs du Royaume Extérieur d'atteindre le troisième pas, de voir leur essence s'accomplir sur ce champ de bataille...? »
+« Est-il vraiment si facile pour les cultivateurs du Royaume Extérieur d'atteindre la troisième étape, de voir leur essence s'accomplir sur ce champ de bataille...? »
 
 Zhou Jin fut lui aussi bouleversé. Son visage se décomposa tandis qu'il fixait la Porte du Vide. Cette aura familière manqua de lui faire perdre la raison.
 
@@ -122,8 +122,8 @@ Zhou Jin fut lui aussi bouleversé. Son visage se décomposa tandis qu'il fixait
 
 Le jeune homme en robe verte plissa les yeux dès l'apparition de la Porte du Vide.
 
-« Je veux voir lequel de ces cultivateurs du Royaume Intérieur a achevé son essence. Je veux que cette personne meure immédiatement après avoir atteint le troisième pas! »
+« Je veux voir lequel de ces cultivateurs du Royaume Intérieur a achevé son essence. Je veux que cette personne meure immédiatement après avoir atteint la troisième étape! »
 
-Si de tels cultivateurs du troisième pas étaient ainsi affectés, qu'en était-il des autres? Tous fixaient la Porte du Vide avec effroi.
+Si de tels cultivateurs de la troisième étape étaient ainsi affectés, qu'en était-il des autres? Tous fixaient la Porte du Vide avec effroi.
 
-Ils ne pouvaient imaginer comment quelqu'un pouvait déclencher la Porte du Vide dans une telle situation. Que ce soit dans le Royaume Intérieur ou Extérieur, l'apparition de la Porte du Vide était un événement sacré. Cela signifiait que quelqu'un s'apprêtait à devenir un cultivateur du troisième pas.
+Ils ne pouvaient imaginer comment quelqu'un pouvait déclencher la Porte du Vide dans une telle situation. Que ce soit dans le Royaume Intérieur ou Extérieur, l'apparition de la Porte du Vide était un événement sacré. Cela signifiait que quelqu'un s'apprêtait à devenir un cultivateur de la troisième étape.

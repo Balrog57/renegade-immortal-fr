@@ -88,7 +88,7 @@ Le fou avait dit un jour que sa terre natale s'appelait le « Continent des Immo
 
 Wang Lin médita en silence et comprit vaguement certaines choses. Il était sur le point de découvrir un secret capable de faire trembler les cieux concernant les Royaumes Intérieur et Extérieur. Cependant, une fine barrière l'empêchait encore d'achever sa réflexion.
 
-« Continent des Immortels Célestes, Daoïste aux Sept Couleurs, Qing Shui, le Fou, le Souverain, le Vieux Fantôme Zhan, l'élévation du Dao céleste... la Perle Défiant le Ciel... Et aussi ce que le Vieux Fantôme Zhan a dit au Souverain: "la grotte intérieure"... Il y a un fil qui relie toutes ces choses. J'ignore ce qu'il est, mais une fois connecté, cela révélera le secret terrifiant des Royaumes Intérieur et Extérieur! »
+« Continent des Immortels Célestes, Daoïste aux Sept Couleurs, Qing Shui, le Fou, le Souverain, le Vieux Fantôme Zhan, l'élévation du Dao céleste... la Perle Défiant le Ciel... l'ancien domaine immortel... Et aussi ce que le Vieux Fantôme Zhan a dit au Souverain: "la grotte intérieure"... Il y a un fil qui relie toutes ces choses. J'ignore ce qu'il est, mais une fois connecté, cela révélera le secret terrifiant des Royaumes Intérieur et Extérieur! »
 
 « Peut-être que le moi d'avant le Dao du Rêve n'était pas qualifié pour le savoir, mais maintenant, je le suis! » Un éclat de froideur apparut dans les yeux de Wang Lin et il marcha vers le vortex menant à la planète Suzaku.
 
@@ -98,11 +98,11 @@ Dans le Vide Brillant, à l'extérieur de la planète Suzaku, la Porte du Vide q
 
 La Porte du Vide était là, mais la personne capable de la briser ne s'était pas encore manifestée. Elle dégageait une aura suffocante que même les cultivateurs du Royaume Extérieur comme le Maître Céleste Dieu du Vide pouvaient ressentir.
 
-« Bon sang, il y a réellement six essences. Même le Souverain ne pourrait rien faire de tel. Si cette personne parvient à briser la porte, même s'il n'est qu'au début du stade Nirvana du Vide, il pourra combattre des cultivateurs du Vide Arcanique et franchir rapidement les royaumes du vide! »
+« Bon sang, il y a réellement six essences. Même le Souverain ne pourrait rien faire de tel. Si cette personne parvient à briser la porte, même s'il n'est qu'au stade précoce du Vide du Nirvana, il pourra combattre des cultivateurs du stade précoce du Vide Arcane et franchir rapidement les royaumes du vide! »
 
 « Si cette personne est un cultivateur du Royaume Intérieur, elle doit être éliminée! » Une intention meurtrière traversa les yeux du Maître Céleste Dieu du Vide. Il ne regarda plus la Porte du Vide qui l'effrayait et s'avança vers la planète Suzaku.
 
-Bien qu'il ne fût ici qu'avec un avatar, celui-ci se trouvait au début du stade Vide Arcanique. Alors qu'il approchait de la formation entourant la planète Suzaku, il leva sa main droite qui se transforma en une brume violette. Cette brume s'étendit rapidement et fonça sur la formation.
+Bien qu'il ne fût ici qu'avec un avatar, celui-ci se trouvait au stade précoce du Vide Arcane. Alors qu'il approchait de la formation entourant la planète Suzaku, il leva son bras droit tout entier, qui se transforma en une brume violette. Cette brume s'étendit rapidement et fonça sur la formation.
 
 Des grondements tonitruants retentirent, et la formation qui avait tenu plusieurs mois et qui était sur le point de s'effondrer vola en éclats. Tandis que les fragments se dispersaient, la planète Suzaku se retrouva sans protection.
 

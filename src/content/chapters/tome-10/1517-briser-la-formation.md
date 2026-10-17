@@ -8,11 +8,11 @@ slug: briser-la-formation
 ---
 Maître Dong Dizi sourit, mais il balaya cette idée d'un revers de cœur. Il contempla l'armée de 90 000 cultivateurs et ressentit une intention meurtrière aussi féroce que démente. Il ne put s'empêcher de laisser poindre une expression cruelle.
 
-« Nul besoin de pitié. L'intention meurtrière de ces loups est déjà monstrueuse, comment pourrais-je les en empêcher? Quant à ce petit cultivateur, Wang Lin, il n'est au plus qu'au stade de la Tribulation Céleste. Il a simplement eu un peu de chance pour accomplir ce qu'il a fait. Le tuer sera trop facile; nul besoin d'en faire tout un plat!
+« Ce n'est que de la pitié de femme! L'intention meurtrière de ces gaillards est déjà monstrueuse, comment pourrait-on les empêcher de tuer? Quant à ce petit cultivateur, Wang Lin, il n'est au plus qu'au stade de la Tribulation Céleste. Il a simplement eu un peu de chance pour accomplir ce qu'il a fait. Le tuer sera trop facile; nul besoin d'en faire tout un plat!
 
 Le but principal de cette première bataille est de tuer et de piller. Le second est de déployer le réseau de transfert. Enfin, il s'agira d'éliminer ce petit cultivateur, Wang Lin, en chemin! »
 
-Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, Maître Nan Zhao, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
+Alors qu'il songeait à cela, Maître Dong Dizi tourna soudainement son regard vers l'horizon. Au même instant, l'estimable Nan Zhao, l'ancêtre du Clan des Moineaux de Feu et le Grand Maître Yun Luo fixèrent tous également le lointain.
 
 Une pression écrasante se propagea depuis un grondement sourd, étouffant instantanément les rugissements furieux des 90 000 cultivateurs. Ce son assourdissant attira rapidement tous les regards vers la source du fracas.
 
@@ -30,7 +30,7 @@ Un hurlement d'intention meurtrière enveloppa tout le domaine stellaire!
 
 « La rumeur dit que chaque membre du Clan de l'Épée possède un pouvoir terrifiant. Ils cultivent également le Coup Perçant l'Âme, une technique d'une puissance incroyable! »
 
-« Le Clan de l'Épée est apparu. Il doit s'agir du Palais de la Punition Céleste du Conseil Souverain! Je ne m'attendais pas à ce que le Souverain mobilise l'un des quatre palais dès la première bataille! »
+« Le Clan de l'Épée est apparu. Il doit s'agir du Palais de la Punition Céleste du Conseil Souverain! Je ne m'attendais pas à ce que le Conseil Souverain mobilise l'un des quatre palais dès la première bataille! »
 
 Le grand palais noir s'approcha lentement, propageant une pression de plus en plus pesante. Les 90 000 cultivateurs s'inclinèrent tous face à l'édifice.
 
@@ -48,7 +48,7 @@ L'épée mesurait sept pieds de long pour trois pouces de large, et sa lame éta
 
 On pouvait clairement voir de nombreux royaumes de Flammes Joss à l'intérieur de cette distorsion, où résidaient d'innombrables Âmes de Flammes Joss. Elles y siégeaient, offrant leurs flammes sacrées.
 
-Dans l'Ancien Système Stellaire, il existait un monde qui n'aurait pas dû exister, niché au sein d'une faille spatiale créée par accident.
+Dans l'Ancien Système Stellaire, il existait un monde qui n'aurait pas dû exister, niché au sein d'une faille spatiale qui avait été ouverte.
 
 Cet endroit était imprégné d'énergie spirituelle céleste. On y trouvait une montagne céleste dont le sommet se perdait dans les nuages. Une femme se tenait sur ce pic.
 

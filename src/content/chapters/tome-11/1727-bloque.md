@@ -10,7 +10,7 @@ Après avoir dévoré l'Omniscient, la Bête des Limbes était devenue le Dao C�
 
 Si elle se trouvait à l'extérieur du monde caverneux, le Dao Céleste présenterait certaines failles, mais à l'intérieur du monde caverneux, il était absolu!
 
-À l'époque, même Lian Daofei n'avait pas été capable de détecter le Dao Céleste avant d'être dévoré. Bien que la Bête des Limbes ait séjourné dans la Mer des Nuages depuis longtemps, même le Vieux Fantôme Zhan ne l'avait pas remarquée.
+À l'époque, même Lian Daofei n'avait pas été capable de détecter le Dao Céleste avant d'être dévoré. Bien que la Bête des Limbes se trouvât à présent dans la Mer des Nuages, même le Vieux Fantôme Zhan ne l'avait pas remarquée.
 
 Quant aux quatre généraux, ils ne l'avaient pas non plus perçue.
 
@@ -60,7 +60,7 @@ Cependant, à cet instant précis, Wang Lin laissa échapper une exclamation ét
 
 Peu de temps après, plus de cent rayons de lumière apparurent à l'horizon, se dirigeant vers lui.
 
-Les quatre personnes en tête portaient une gourde au-dessus de leurs têtes. Celle-ci dégageait un gaz vert semblable à une tempête.
+Au-dessus des têtes des quatre personnes en tête flottait une gourde géante. Celle-ci dégageait un gaz vert semblable à une tempête.
 
 L'expression de Wang Lin resta calme alors qu'il siégeait sur le dos de la Bête des Limbes. Il observa froidement les rayons de lumière qui approchaient, sans leur accorder la moindre attention.
 
@@ -106,7 +106,7 @@ Wang Lin fronça les sourcils, fixa froidement l'autre et, après un long silenc
 
 Simultanément, la Tortue Noire s'avança également pour se positionner à sa gauche. Le général de l'Oiseau Vermillon hésita un instant, mais décida tout de même de bloquer la voie de retraite de Wang Lin.
 
-Peu après, les cent et un anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Limbes.
+Peu après, la centaine d'anciens êtres célestes se rapprochèrent silencieusement, encerclant Wang Lin et la Bête des Limbes.
 
 « Compagnon de Culture Wang Lin, j'ai parfaitement respecté notre accord, il n'est donc pas nécessaire de nuire à nos relations. Sinon, quelque chose pourrait arriver à votre petit Royaume Céleste », dit le général de la Tortue Noire d'un ton sombre.
 
@@ -126,4 +126,4 @@ Dans sa jeunesse, il avait souvent emprunté le pouvoir d'autrui pour faire pres
 
 « Même si vous refusez de nous la prêter, puisque nous sommes tous amis, je ne vous bloquerai pas naturellement. Cependant, il pourrait y avoir un problème avec notre coopération passée. Il ne reste plus beaucoup de cultivateurs dans le monde caverneux », ajouta lentement le général du Dragon Azure avec un sourire.
 
-« Au lieu de chercher la troisième âme, vous venez me chercher des ennuis! On dirait que la douleur passée n'était pas assez profonde. Très bien, aujourd'hui, je vais vous faire ressentir une douleur telle qu'elle sera gravée dans vos os! » L'expression de Wang Lin était de marbre alors qu'il se redressait. Sa main gauche s'élança vers le vide et la Hache Divisant le Ciel apparut!
+« Au lieu de chercher la troisième âme, vous venez me chercher des ennuis! On dirait que la douleur passée n'était pas assez profonde. Très bien, aujourd'hui, je vais vous faire ressentir une douleur telle qu'elle sera gravée dans vos os! » L'expression de Wang Lin était de marbre alors qu'il se redressait. Sa main gauche s'élança vers le vide et la Hache Brise-Ciel apparut!

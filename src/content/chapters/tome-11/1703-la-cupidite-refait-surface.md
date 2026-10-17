@@ -20,7 +20,7 @@ Sous ses yeux, il vit la troisième âme percer la Rivière Invoquée et se diri
 
 Un rugissement tonitruant retentit à ses oreilles. D'abord faible, il monta brusquement en intensité pour devenir le seul son perceptible par le Daoïste aux Sept Couleurs!
 
-ROAR!!
+GRRAAAH!!
 
 Sous ce rugissement, tout ce qui se trouvait devant le Daoïste aux Sept Couleurs sembla être déchiré par une force colossale. C'était comme si on cherchait à l'arracher de cette deuxième illusion!
 
@@ -50,7 +50,7 @@ Le Daoïste aux Sept Couleurs s'élança à la poursuite de Wang Lin, animé d'u
 
 Bien que très loin, Wang Lin entendit ce rugissement colérique. Le visage pâle, il cracha du sang sans attendre et utilisa l'Évasion Sanguine pour fuir!
 
-« Inutile. Même si je n'avais pas détruit sa chance de trouver la troisième âme, il aurait eu de mauvaises intentions en me poursuivant jusqu'ici! » Bien que son regard fût éteint, Wang Lin ne regrettait pas son geste.
+« Sottises! Même si je n'avais pas détruit sa chance de trouver la troisième âme, il aurait eu de mauvaises intentions en me poursuivant jusqu'ici! » Bien que son regard fût éteint, Wang Lin ne regrettait pas son geste.
 
 Il fallait le faire. S'il n'avait pas brisé le plan du Daoïste aux Sept Couleurs pour se rendre à l'autel, il n'aurait fait que retarder sa propre mort.
 
@@ -66,7 +66,7 @@ Alors qu'il fuyait, l'espace derrière lui trembla; il sentait la présence du D
 
 Non seulement il avait pesé le gain potentiel face au risque, mais il avait également utilisé l'âme de l'Omniscient pour diviner l'avenir. Il avait découvert que l'autel représentait la voie de la survie!
 
-Fan Shan avait mentionné que cette faille spatiale dans la Mer des Nuages s'était ouverte lors de la bataille où Lian Daofei fut dévoré par le Ciel et où le Souverain Céleste aux Sept Couleurs fut brisé.
+Fan Shanlu avait mentionné que cette faille spatiale dans la Mer des Nuages s'était ouverte lors de la bataille où Lian Daofei fut dévoré par le Dao Céleste et où le Souverain Céleste aux Sept Couleurs fut brisé.
 
 Elle avait aussi précisé que cet endroit était relié à un espace mystérieux, ce qui expliquait l'apparition de tant de bêtes féroces.
 
@@ -78,7 +78,7 @@ Si l'autel restait en place, c'était parce qu'un de ses coins semblait connect�
 
 L'espace auquel il était lié n'était pas intact; on y trouvait également plusieurs failles spatiales dont provenait la lumière.
 
-C'était comme si une flèche avait transpercé un morceau de papier mais s'y était coincée: il y avait naturellement une ouverture là où l'obscurité pénétrait le papier.
+C'était comme si une fléchette avait transpercé un morceau de papier mais s'y était coincée: il y avait naturellement une ouverture là où l'obscurité pénétrait le papier.
 
 Des éclats d'aura d'un Être Ancien émanaient de l'autel, mais ils ne se propageaient pas très loin, comme si une force invisible les contenait.
 

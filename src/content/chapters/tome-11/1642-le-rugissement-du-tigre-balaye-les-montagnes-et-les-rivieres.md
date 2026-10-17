@@ -6,13 +6,13 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1642 - Tiger Roar Sweeps the Mountains and Rivers
 slug: le-rugissement-du-tigre-balaye-les-montagnes-et-les-rivieres
 ---
-Le vieil homme au Tigre Blanc afficha un regard glacial. L'attitude de Wang Lin le mettait profondément mal à l'aise. Il était arrivé à une étape critique de sa guérison et, en raison des lois régissant ce processus, il ne pouvait utiliser une culture dépassant le stade initial du Vide Arcane. S'il s'y risquait, cela lui causerait des problèmes à l'avenir.
+Le vieil homme au Tigre Blanc afficha un regard glacial. L'attitude de Wang Lin le mettait profondément mal à l'aise. Il était arrivé à une étape critique de sa guérison et, en raison de la technique de guérison employée, et pour ne laisser aucune séquelle, il ne pouvait utiliser une culture dépassant le stade initial du Vide Arcane. S'il s'y risquait, cela lui causerait des problèmes à l'avenir.
 
 Il pensait initialement que cette puissance serait suffisante pour tuer Wang Lin.
 
 Cependant, l'attaque de Wang Lin avait été extrêmement étrange et avait fait trembler l'esprit du vieil homme au Tigre Blanc. Elle lui donnait l'impression de ne pas pouvoir percer la véritable force de Wang Lin.
 
-De plus, Wang Lin avait brisé le sceau du Souverain Céleste, ce qui inspirait au Tigre Blanc une forme d'effroi et de peur. Pourtant, il cultivait en tant que divinité céleste depuis des éternités et ne se laisserait pas déstabiliser par les simples paroles de Wang Lin. Son orgueil lui interdisait tout recul.
+De plus, Wang Lin avait brisé le sceau du Souverain Céleste, ce qui inspirait au Tigre Blanc une forme d'effroi et de peur. Pourtant, il cultivait la voie immortelle depuis de nombreuses années et ne se laisserait pas déstabiliser par les simples paroles de Wang Lin. Son orgueil lui interdisait tout recul.
 
 Il était un être céleste et, à ses yeux, peu importe la puissance de Wang Lin, celui-ci n'était qu'une fourmi d'un royaume inférieur. Plus Wang Lin restait calme, plus le vieil homme au Tigre Blanc ressentait de pression et de colère.
 
@@ -22,13 +22,13 @@ Dans un rugissement, les yeux du vieil homme au Tigre Blanc libérèrent une lum
 
 Tout en rugissant, le vieil homme fit un pas en avant et chargea vers Wang Lin. Sa main droite traça un sceau alors qu'il pointait vers le ciel dans un cri puissant.
 
-« Et si je te force à obéir?! Si tu peux encaisser trois de mes sorts, alors seulement tu auras le droit de nous parler! » La voix du vieil homme tonna, et un grondement fracassant résonna à travers l'Ancien Royaume Céleste. Ce cri généra d'innombrables échos étouffés, donnant l'impression que ce n'était pas un seul homme qui rugissait, mais une multitude de voix.
+« Et si je te force à obéir?! Si tu peux encaisser trois de mes sorts, alors seulement tu auras le droit de nous parler! » La voix du vieil homme tonna, et un grondement fracassant résonna à travers le Royaume Céleste Antique. Ce cri généra d'innombrables échos étouffés, donnant l'impression que ce n'était pas un seul homme qui rugissait, mais une multitude de voix.
 
 Ce rugissement secoua les cieux et créa un impact si violent que la terre en trembla.
 
 « Premier Style: Le Rugissement du Tigre Balaye les Montagnes et les Rivières! » Le vieil homme agita ses manches et un monstrueux Tigre Blanc apparut derrière lui. Cette créature était d'une puissance colossale, ses yeux brillant d'un éclat blanc alors qu'elle fixait Wang Lin avant de pousser un rugissement capable de briser le firmament!
 
-Ce cri ébranla le ciel. L'azur de l'Ancien Royaume Céleste sembla sur le point de s'effondrer. Des écailles semblables à celles d'un poisson apparurent dans la voûte céleste avant de tomber, créant des fissures irrégulières dans l'espace.
+Ce cri ébranla le ciel. L'azur du Royaume Céleste Antique sembla sur le point de s'effondrer. Des écailles semblables à celles d'un poisson apparurent dans la voûte céleste avant de tomber, créant des fissures irrégulières dans l'espace.
 
 La terre derrière Wang Lin trembla violemment. Un vent impétueux rugissait et le sol montrait des signes d'effondrement sous l'effet des secousses croissantes. La terre semblait soudainement s'être ramollie, et les grondements se propageaient sans fin dans toutes les directions.
 
@@ -46,7 +46,7 @@ S'il n'avait pas possédé le corps d'un Dieu Ancien, sa forme physique se serai
 
 Ce rugissement de tigre contenait une pression qui n'avait rien à envier à la puissance des cieux. Aux yeux de Wang Lin, cette force avait brisé toute limite et semblait capable de dévorer toute forme de vie!
 
-C'était l'Ancien Royaume Céleste, le cœur de cette grotte. Si cela s'était produit ailleurs, dans le Royaume Intérieur ou Extérieur, le ciel aurait changé de couleur. D'innombrables planètes et l'espace lui-même se seraient effondrés. Bien des cultivateurs auraient péri sous ce rugissement!
+C'était le Royaume Céleste Antique, le cœur de cette grotte. Si cela s'était produit ailleurs, dans le Royaume Intérieur ou Extérieur, le ciel aurait changé de couleur. D'innombrables planètes et l'espace lui-même se seraient effondrés. Bien des cultivateurs auraient péri sous ce rugissement!
 
 Pourtant, Wang Lin ne recula pas face au vent et aux grondements. Il resta calme et ferma les yeux. Dès qu'il les ferma, le monde entier devint une illusion.
 
@@ -68,7 +68,7 @@ Le vieil homme au Tigre Blanc poussa un cri et fit un pas en avant. Il se dépla
 
 En un instant, il fut sur lui. Il agita la main droite et une lumière dorée se concentra dans sa paume, formant une lame de lumière!
 
-Cette lame mesurait dix pieds de haut. Le vieil homme la brandit et, dans son élan, abattit un coup féroce vers la tête de Wang Lin!
+Cette lame mesurait dix pieds de long. Le vieil homme la brandit et, dans son élan, abattit un coup féroce vers la tête de Wang Lin!
 
 Ce mouvement rendit le rugissement du tigre encore plus intense. Le ciel changea de teinte et les vents redoublèrent de violence. La lame frappa Wang Lin, qui gardait les yeux clos. Il n'y eut aucune résistance; la lame sembla traverser Wang Lin sans l'atteindre!
 
@@ -76,7 +76,7 @@ Un son strident retentit lorsque la lame fendant le ciel fendit la silhouette de
 
 « L'essence du Vrai et du Faux!! C'est l'essence du Vrai et du Faux!! Maudit soit, les sept lois imposées par le Souverain Céleste empêchaient la naissance des essences éthérées. Si ce n'était pas parce qu'il était gravement blessé et avait dû retirer ces sept lois, cet homme n'aurait jamais eu la chance de comprendre une telle essence! »
 
-Les yeux du vieil homme étaient empreints de choc, mais il refusait d'abandonner. Il fit tournoyer sa lame des milliers de fois. Des hurlements aigus ne cessaient de résonner, mais la silhouette de Wang Lin demeurait une illusion. La lame traversait son corps sans que rien ne change.
+Les yeux du vieil homme étaient empreints de choc, mais il refusait d'abandonner. Il abattit sa lame des centaines, voire un millier de fois en un instant. Des hurlements aigus ne cessaient de résonner, mais la silhouette de Wang Lin demeurait une illusion. La lame traversait son corps sans que rien ne change.
 
 Alors que le vieil homme portait son ultime assaut, Wang Lin ouvrit les yeux et demanda simplement: « As-tu fini de frapper? »
 
@@ -86,11 +86,11 @@ Ce coup était léger, presque sans force, comme s'il ne possédait aucun pouvoi
 
 « Ceci... ceci est... » Il voulut reculer davantage pour échapper à la main de Wang Lin, mais il était trop tard. Lorsque la paume de Wang Lin se stabilisa, une lueur glaciale passa dans ses yeux. Ses doigts se crispèrent et il retira sa main d'un coup sec.
 
-Un grondement monstrueux retentit et le vieil homme cracha du sang. Son corps fut projeté en arrière comme un cerf-volant dont on aurait coupé la ficelle. Cependant, une vapeur blanche fut arrachée au vieil homme pour venir se rassembler dans la main de Wang Lin.
+Un grondement monstrueux retentit et le vieil homme cracha du sang. Son corps fut projeté en arrière comme un cerf-volant dont on aurait coupé la ficelle. Cependant, une lueur blanche fut arrachée au vieil homme pour venir se rassembler dans la main de Wang Lin.
 
 « Le Karma!! C'est l'essence karmique!! Tu possèdes donc deux essences éthérées!! »
 
-Wang Lin lança un regard froid au vieil homme au Tigre Blanc. Le rugissement du tigre résonnait encore à ses oreilles. Dans un froid renâclement, Wang Lin ne poursuivit pas son assaut mais écrasa la vapeur blanche dans sa paume. Le vieil homme au Tigre Blanc trembla, cracha de nouveau du sang et s'enfuit à une vitesse encore plus grande.
+Wang Lin lança un regard froid au vieil homme au Tigre Blanc. Le rugissement du tigre résonnait encore à ses oreilles. Dans un froid renâclement, Wang Lin ne poursuivit pas son assaut mais écrasa la lueur blanche dans sa paume. Le vieil homme au Tigre Blanc trembla, cracha de nouveau du sang et s'enfuit à une vitesse encore plus grande.
 
 « Tu m'as accueilli avec ton rugissement de tigre, je vais donc te rendre la pareille! » Les yeux de Wang Lin s'illuminèrent et il plaça sa main droite entre ses sourcils. Ses étoiles de Dieu Ancien apparurent, tout comme les étoiles logées dans son œil gauche et son œil droit. Une tête antique surgit derrière lui.
 

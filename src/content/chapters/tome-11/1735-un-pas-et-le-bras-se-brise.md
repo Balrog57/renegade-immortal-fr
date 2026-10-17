@@ -24,7 +24,7 @@ Désormais, cette goutte de l'univers était comparable au dragon de tonnerre an
 
 C'était ce qui excitait le plus Wang Lin. Rien n'est gratuit sans labeur; tout doit s'obtenir étape par étape.
 
-Quant à l'esprit de la terre, Wang Lin l'avait absorbé de la formation terrestre, mais cela était loin d'être suffisant pour former la graine de la terre. Peut-être que si quelqu'un possédait une armure de terre capable de révéler l'essence de la terre pour qu'il puisse la comprendre, une graine pourrait alors apparaître.
+Quant à l'esprit de la terre, Wang Lin l'avait absorbé de la formation terrestre, mais cela était loin d'être suffisant pour former la graine de la terre. À moins que quelqu'un, comme le Général de l'Eau, ne lui offre de la même manière la compréhension de la troisième étape de l'essence de la terre contenue dans sa propre armure, et que des centaines de cultivateurs coopèrent, toutes les conditions étant réunies, une graine pourrait peut-être alors apparaître.
 
 Une telle chose ne pouvait être que souhaitée, et non forcée. Wang Lin le comprenait parfaitement.
 
@@ -80,7 +80,7 @@ Cet effondrement fut trop brusque. Lorsque la formation d'eau s'écroula, une pr
 
 Des ondulations résonnèrent derrière l'armure et un vortex apparut. Un bras desséché émergea du vortex et tendit vers l'armure. Au même moment, une voix grinçante et séculaire s'échappa du vortex, frappant directement l'esprit de Wang Lin.
 
-« Ce n'est pas quelque chose que tu peux posséder, dégage de là, vieil homme! »
+« Ce n'est pas quelque chose que tu peux posséder, dégage de devant ce vieillard! »
 
 Wang Lin ne fut pas totalement pris au dépourvu par ce changement soudain. Le pas qu'il avait amorcé avant l'effondrement de la formation lui permit d'atteindre sa vitesse maximale instantanément!
 
@@ -96,7 +96,7 @@ Et il l'écrasa sans la moindre pitié!
 
 Tout cela se produisit en un instant, trop vite pour que quiconque puisse battre en retraite. Le pied droit de Wang Lin se déplaça comme la foudre, chargé du pouvoir de la Voie Antique lorsqu'il descendit.
 
-La vieille voix s'exclama et le bras changea brusquement de direction. Il tenta de former un sort pour se défendre, mais l'entité ne s'attendait manifestement pas à ce que Wang Lin réagisse avec une telle rapidité et une telle férocité. La main droite de Wang Lin s'abattit impitoyablement sur le bras.
+La vieille voix s'exclama et le bras changea brusquement de direction. Il tenta de former un sort pour se défendre, mais l'entité ne s'attendait manifestement pas à ce que Wang Lin réagisse avec une telle rapidité et une telle férocité. Le pied droit de Wang Lin s'abattit impitoyablement sur le bras.
 
 Dans un fracas assourdissant, on entendit le bruit d'os qui volaient en éclats. Le bras se tordit et gonfla instantanément. Il se rétracta rapidement dans le vortex, mais il explosa en projetant du sang partout.
 

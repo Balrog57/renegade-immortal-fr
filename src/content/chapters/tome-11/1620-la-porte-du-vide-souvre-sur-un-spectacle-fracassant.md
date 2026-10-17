@@ -24,7 +24,7 @@ Il utilisait la totalité du tonnerre des Royaumes Intérieur et Extérieur pour
 
 Avant Wang Lin, nul ne pouvait le faire. Après Wang Lin, il était également destiné que nul ne puisse le faire!
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Les grondements incessants se poursuivirent tandis que des filaments de tonnerre et d'éclairs s'abattaient sur la Porte du Vide. Ce tonnerre infini était comme une armée entière cherchant à terrasser la Porte du Vide!
 
@@ -96,7 +96,7 @@ Wang Lin ne faisait pas cela par simple caprice, mais il avait observé la Porte
 
 S'il voulait fusionner ses six essences, il aurait besoin d'une quantité inimaginable de l'énergie de la Porte du Vide. Wang Lin ignorait la nature exacte de cette force, mais il savait que la puissance de la Porte était la clé pour les cultivateurs souhaitant atteindre le troisième stade.
 
-C'était comparable à l'établissement des fondations lors du raffinage!
+C'était comparable au Raffinage du Qi et à l'Établissement des Fondations!
 
 Par conséquent, il devait passer par là!
 
@@ -108,7 +108,7 @@ Lorsque la Porte du Vide apparut pour la seconde fois, les yeux de Wang Lin s'il
 
 Il était impossible de décrire la splendeur de ce spectacle. C'était une scène que bien des cultivateurs ne verraient jamais de leur vivant.
 
-La mer de feu incessante se rua contre la Porte du Vide alors qu'elle se refermait. Des grondements tonitruants résonnèrent tandis que les flammes déchaînées encerclaient complètement la Porte. Tandis que l'onde de chaleur se propageait, la Porte du Vide s'effondra une fois de plus!
+La mer de feu incessante se rua contre la Porte du Vide. Des grondements tonitruants résonnèrent tandis que les flammes déchaînées encerclaient complètement la Porte. Tandis que l'onde de chaleur se propageait, la Porte du Vide s'effondra une fois de plus!
 
 Cet effondrement ne produisit aucun débris, car tous les fragments furent réduits en cendres par le feu!
 

@@ -12,7 +12,7 @@ Alors qu'elle s'apprêtait à s'éloigner, la jeune fille en violet hésita un i
 
 « Senior Sister, allons-y », fit la voix de la jeune fille, résonnant à travers la pluie.
 
-La jeune fille regarda le corps tremblant de Wang Lin, recroquevillé dans un coin, et s'approcha silencieusement. Sa main de jade effleura son sac de rangement, et un manteau épais apparut dans sa main. Elle couvrit doucement Wang Lin et murmura:
+La jeune fille en violet regarda le corps tremblant de Wang Lin, recroquevillé dans un coin, et s'approcha silencieusement. Sa main de jade effleura son sac de rangement, et un manteau épais apparut dans sa main. Elle couvrit doucement Wang Lin et murmura:
 
 « Est-ce vraiment une vie passée… » La jeune fille soupira, puis partit.
 
@@ -28,7 +28,7 @@ Le bruit de la pluie frappant la coque persistait, mais Wang Lin faisait un doux
 
 Le manteau qui enveloppait son corps dégageait un léger parfum qui lui chatouillait les narines et l'entraînait dans ses songes.
 
-« Xu Fei… Senior Sister Zhou Si… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc!
+« Xu Fei… Senior Sister Zhou… Wang Zhuo… Wang Hao… Zhang Hu… » murmura Wang Lin dans son sommeil. Si les deux jeunes filles ne s'étaient pas éloignées et avaient entendu ces paroles, elles auraient été sous le choc!
 
 Mais désormais, elles ne pouvaient plus l'entendre.
 
@@ -50,13 +50,13 @@ La nuit dernière ressemblait à un rêve. Les silhouettes magnifiques de ces de
 
 « Était-ce une illusion… » Confus, Wang Lin observa le manteau qui le couvrait. Il appartenait manifestement à une jeune fille. Il reprit peu à peu ses esprits.
 
-Pourtant, dans son esprit, outre les silhouettes des deux jeunes filles, ce rêve était d'un réalisme extrême. Il les avait vues dans ce songe.
+Pourtant, dans son esprit, outre les silhouettes des deux jeunes filles, ce rêve était d'un réalisme extrême. Il était retourné à la Secte Heng Yue et, là-bas, il avait vu les deux jeunes filles.
 
 Tout cela plongeait Wang Lin dans un grand désarroi. La bougie s'était éteinte depuis un moment, rendant l'intérieur de l'abri à peine visible.
 
 Après un long moment, Wang Lin sortit de l'abri et contempla le monde embrumé. Les environs étaient si flous qu'il ne pouvait voir loin. Le vent soufflait; bien que froid, il lui permettait de respirer l'odeur de la terre humide. Il prit une profonde inspiration.
 
-« Était-ce vraiment un rêve… » Wang Lin se tenait à la proue. Depuis l'arrêt de la pluie, le silence était absolu. Un silence tel qu'il semblait être le seul être vivant au monde.
+« Se pourrait-il qu'on rêve la nuit de ce à quoi l'on pense le jour… » Wang Lin se tenait à la proue. Depuis l'arrêt de la pluie, le silence était absolu. Un silence tel qu'il semblait être le seul être vivant au monde.
 
 En regardant autour de lui, Wang Lin sentit une vague de solitude envahir son corps pour une raison inconnue. Tandis qu'il contemplait le ciel sombre, ce sentiment devint plus oppressant encore.
 
@@ -80,7 +80,7 @@ L'endroit était d'un calme absolu, seul le murmure de l'aspiration rompait le s
 
 Dans son état second, il vit un jeune homme vêtu de blanc, aux cheveux blancs, marchant silencieusement parmi les étoiles. Sa silhouette dégageait également une profonde mélancolie.
 
-Il voyait tant de choses, et les larmes continuaient de couler de ses yeux. Cette tristesse venait de son âme et de ce monde. C'était comme si le monde était son âme, son rêve. À cet instant, il retrouvait ce sentiment familier de silence et d'isolement.
+Il voyait tant de choses, et les larmes continuaient de couler de ses yeux. Cette tristesse venait de son âme et de ce monde. C'était comme si le monde était son âme, son rêve. À cet instant, dans ce rêve, il retrouvait, au cœur de ce silence et de cette solitude familiers, une trace de la blessure laissée en ce lieu.
 
 Sous le ciel sombre, Wang Lin contempla l'eau pendant un temps interminable…
 

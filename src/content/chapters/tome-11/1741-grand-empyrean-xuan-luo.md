@@ -32,15 +32,15 @@ Il y avait également les trois hommes d'âge moyen des cinquième au septième 
 
 Après un long moment, le vieil homme nommé Ma demanda soudainement: « Qu'en pensez-vous? » Bien que ses paroles ne s'adressent à personne en particulier, seul Yun Yifeng prit la parole après une réflexion silencieuse.
 
-« Ce disciple ne croit pas que la Voie Céleste puisse nous dévorer! L'oncle a trouvé des indices concernant la Voie Céleste, et je les ai recherchés durant toutes ces années. Bien que je n'aie rien découvert, j'ai quelques spéculations. »
+« Ce disciple ne croit pas que le Dao Céleste puisse nous dévorer! L'oncle a trouvé des indices concernant le Dao Céleste, et je les ai recherchés durant toutes ces années. Bien que je n'aie rien découvert, j'ai quelques spéculations. »
 
-« La Voie Céleste a été divisée. Bien que cet enfant en soit devenu le maître, elle est incomplète! Et si cette Voie Céleste incomplète peut dévorer tous les êtres vivants, elle ne peut pas dévorer ceux qui possèdent une culture puissante! »
+« Le Dao Céleste a été divisé. Bien que cet enfant en soit devenu le maître, il est incomplet! Et si ce Dao Céleste incomplet peut peut-être dévorer tous les êtres vivants, il ne peut pas dévorer ceux qui possèdent une culture puissante! »
 
-« Il doit être venu ici parce qu'il a découvert, par quelque moyen que ce soit, que nous venions de l'extérieur du monde des cavernes. L'instant est crucial pour trouver la troisième âme, et cela doit l'inquiéter. Ainsi, il est venu nous forcer à sortir de notre cachette; maintenant qu'il sait tout de nous, il peut déployer ses plans! »
+« Il doit être venu ici parce qu'il a découvert, par quelque moyen que ce soit, que nous venions de l'extérieur du monde des cavernes. L'instant est crucial pour trouver la troisième âme, et il doit craindre notre puissance. Ainsi, il est venu nous forcer à sortir de notre cachette; maintenant qu'il sait tout de nous, il peut déployer ses plans! »
 
 « Bien sûr, ce ne sont que les suppositions de ce disciple. Si c'est réellement la raison de sa venue, il est vraiment redoutable. »
 
-« C'est sans doute cela. Hormis la Voie Céleste, il doit avoir un plan de secours pour oser venir ici avec une telle sérénité! » Les yeux du vieil homme nommé Ma s'illuminèrent et il détourna son regard du ciel. Il scruta l'assemblée d'un air lugubre avant de s'apprêter à retourner dans la tour.
+« C'est sans doute cela. Hormis le Dao Céleste, il doit avoir un plan de secours pour oser venir ici avec une telle sérénité! » Les yeux du vieil homme nommé Ma s'illuminèrent et il détourna son regard du ciel. Il scruta l'assemblée d'un air lugubre avant de s'apprêter à retourner dans la tour.
 
 Cependant, à cet instant précis, une voix calme résonna sur toute la planète des Cinq Éléments.
 
@@ -68,7 +68,7 @@ Tout se déroula avec une rapidité fulgurante, sous une pression écrasante qui
 
 La silhouette vague agita doucement sa main droite et des grondements de tonnerre retentirent. La puissante armure aux doubles éléments de la Secte Gui Yi vola en éclats comme un simple morceau de papier avant de se dissiper.
 
-« C'est vous qui l'avez dit! » La silhouette rapprocha le vieil homme et le fixa froidement.
+« Est-ce vous qui l'avez dit?! » La silhouette rapprocha le vieil homme et le fixa froidement.
 
 Cette scène fit trembler les jambes du vieil homme nommé Ma. Et il n'était pas le seul; Yun Yifeng était dans le même état!
 

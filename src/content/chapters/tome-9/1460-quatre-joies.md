@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1460 - Four Joy
 slug: quatre-joies
 ---
-L'estimé Ling Dong reçut le sortilège de la Voie de la Fusion de Wang Lin! Puis son corps trembla et il sombra progressivement au fond de l'océan. Il était extrêmement talentueux; sans cela, il n'aurait pas pu atteindre le demi-pas du troisième stade.
+L'Estimé Ling Dong reçut le sortilège de la Voie de la Fusion de Wang Lin! Puis son corps trembla et il sombra progressivement au fond de l'océan. Il était extrêmement talentueux; sans cela, il n'aurait pas pu atteindre le demi-pas du troisième stade.
 
-L'estimé Ling Dong avait parfaitement assimilé le sortilège après plusieurs heures. Bien que sa compréhension ne fût pas aussi profonde que celle de Wang Lin, elle était suffisante pour faire face à ces âmes de Flamme Joss qui étaient privées de maître.
+L'Estimé Ling Dong avait parfaitement assimilé le sortilège après plusieurs heures. Bien que sa compréhension ne fût pas aussi profonde que celle de Wang Lin, elle était suffisante pour faire face à ces âmes de Flamme Joss qui étaient privées de maître.
 
-L'océan à l'intérieur du Fourneau Impérial tourbillonnait violemment jusqu'à former un vortex gigantesque. Au centre se trouvait l'estimé Ling Dong. Ses yeux émettaient une lueur mystérieuse alors qu'il utilisait le sortilège de la Voie que Wang Lin lui avait transmis pour fusionner avec les âmes de Flamme Joss.
+L'océan à l'intérieur du Fourneau Impérial tourbillonnait violemment jusqu'à former un vortex gigantesque. Au centre se trouvait l'Estimé Ling Dong. Ses yeux émettaient une lueur mystérieuse alors qu'il utilisait le sortilège de la Voie que Wang Lin lui avait transmis pour fusionner avec les âmes de Flamme Joss.
 
 Wang Lin était toujours assis à l'extérieur du Fourneau Impérial, continuant d'utiliser son pouvoir de Dieu Ancien pour nourrir ces dix-neuf arbres. Désormais, les arbres ne semblaient plus desséchés.
 
@@ -78,7 +78,9 @@ Le risque de mort était très élevé et, depuis longtemps, l'autel du clan ava
 
 Et parce que la marque de clan leur était gravée, ils ne mouraient pas en perdant ladite marque, et même leur niveau de culture n'en subissait pas le déclin. Ils cessaient simplement d'appartenir au Clan de l'Extermination des Sceaux.
 
-Ce qui était remarquable chez ce clan, outre son étrange sortilège de scellement, était son incroyable sortilège des trois vies. Ce pouvoir pouvait être extrait et utilisé sur autrui.
+Ce qui était remarquable chez ce clan, outre son étrange sortilège de scellement, était son incroyable sortilège des trois vies. Ce pouvoir pouvait être arraché par autrui et utilisé sur lui-même.
+
+C'était précisément dans cette intention que le Maître Dao Miao Yin s'était donné tant de mal pour trouver un membre du Clan de l'Extermination des Sceaux et en faire sa servante. Cependant, la méthode pour obtenir le sortilège des trois vies était trop ardue: il fallait se rendre à l'autel du clan, avec peu de chances de succès, et un échec provoquerait un contrecoup. De plus, l'autel avait disparu depuis trop longtemps; l'affaire avait donc toujours été repoussée.
 
 Après avoir examiné la marque du clan, Wang Lin la rangea silencieusement. Quant à la jeune fille, il n'avait pas l'intention de la tuer. Il n'y avait aucune haine entre eux et il avait déjà pris sa marque. Une fois sorti du Tombeau de l'Ordre Ancien, il la libérerait.
 
@@ -94,7 +96,7 @@ L'arbre cessa d'absorber le pouvoir de Dieu Ancien et dépérissait lentement ju
 
 Wang Lin commença à froncer les sourcils. À cet instant, les feuilles des dix-huit autres arbres commencèrent également à tomber. Il semblait que l'issue serait la même. Si cela continuait, tout le temps et toute la puissance de Dieu Ancien consacrés par Wang Lin seraient vains!
 
-« Pourquoi est-ce ainsi... Pourrais-je avoir mal jugé... Feuille Ancienne... Feuille Ancienne... Ancien... Feuille... » Les yeux de Wang Lin s'illuminèrent comme s'il venait de percevoir quelque chose.
+« Pourquoi est-ce ainsi... Pourrais-je avoir mal jugé... Feuille Ancienne... Feuille Ancienne... Ancien... Souffle... » Les yeux de Wang Lin s'illuminèrent comme s'il venait de percevoir quelque chose.
 
 Il se leva brusquement et fixa les dix-huit arbres devant lui. Il prit une profonde inspiration, puis souffla. Une rafale de vent chargée de son souffle hurla vers les arbres.
 
@@ -104,14 +106,14 @@ Les yeux de Wang Lin étaient empreints de joie et sa main droite s'élança ver
 
 Des Feuilles Anciennes!
 
-La première joie ne fut pas interrompue par la seconde. L'océan de poison à l'intérieur du Fourneau Impérial s'était dissipé pour se transformer en neuf gouttes de poison qui choqueraient même la Grande Désolation!
+La joie n'était pas encore retombée qu'une autre survint. L'océan de poison à l'intérieur du Fourneau Impérial s'était dissipé pour se transformer en neuf gouttes de poison qui choqueraient même la Grande Désolation!
 
-Chaque goutte était saturée d'innombrables âmes de Flamme Joss et de poison céleste!
+Chaque goutte était saturée d'innombrables âmes de Flamme Joss et du poison suprême du ciel et de la terre!
 
-La troisième joie survint! Dans l'autre dimension du Fourneau Impérial, l'estimé Ling Dong avait absorbé toutes les âmes de Flamme Joss de la mer pourpre et avait enfin franchi le demi-pas crucial! Il était devenu un véritable cultivateur du troisième stade! Le vortex tourna rapidement et l'estimé Ling Dong en jaillit. Ses yeux brillaient d'excitation et une aura puissante jaillissait de lui!
+La troisième joie survint! Dans l'autre dimension du Fourneau Impérial, l'Estimé Ling Dong avait fusionné quarante pour cent des âmes de Flamme Joss de la mer pourpre et avait enfin franchi le demi-pas crucial! Il était devenu un véritable cultivateur du troisième stade! Le vortex tourna rapidement et l'Estimé Ling Dong en jaillit. Ses yeux brillaient d'excitation et une aura puissante jaillissait de lui!
 
 D'innombrables Flammes Joss apparaissaient autour de Ling Dong telles des rubans illusoires. C'était là une caractéristique distinctive des cultivateurs du troisième stade!
 
 Après la troisième joie vint la quatrième!
 
-Des grondements tonitruants résonnèrent dans le ciel au-dessus de la forêt. Une plateforme de 50 000 pieds de large émergea de la distorsion céleste. Un homme corpulent se tenait sur la plateforme. Il fut stupéfait de voir Wang Lin ici!
+Des grondements tonitruants résonnèrent dans le ciel au-dessus de la forêt. Une plateforme de 50 000 pieds de large émergea à moitié de la distorsion céleste. Un homme corpulent se tenait sur la plateforme. Il fut stupéfait de voir Wang Lin ici!

@@ -48,7 +48,7 @@ Le vent souffla et l'odeur du sang persista longtemps dans l'air.
 
 La voix venue du vide ne réapparut plus jamais. Le doigt retourna dans le vortex et disparut sans laisser de trace, comme si rien ne s'était produit.
 
-La planète de culture était plongée dans un silence de mort. Les anciens du Clan des Moineaux de Feu fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
+La planète de culture était plongée dans un silence de mort. Le vieil homme du Clan des Moineaux de Feu et les siens fixaient la scène, hébétés. Ils étaient terrifiés et frappés d'incrédulité.
 
 Le visage du jeune maître du Clan du Dragon Blindé était extrêmement disgracieux, marqué par la panique et le regret. Il recula nerveusement pour se poster aux côtés de son père.
 
@@ -74,7 +74,7 @@ Le visage du jeune maître du Clan du Dragon Blindé devint livide alors qu'il r
 
 Le Patriarche du Dragon Blindé sentit son cœur sombrer, regrettant amèrement d'avoir supposé que Wang Lin ne chercherait pas trouble après son combat. Bien que choqué, lorsqu'il songea aux blessures que Wang Lin avait subies, il prit un air féroce.
 
-« Tous les cultivateurs de la deuxième étape du Clan du Dragon Blindé, empêchez quiconque d'entrer dans le clan! » Alors que sa voix puissante résonnait, plus de dix cultivateurs de la deuxième étape s'élancèrent pour barrer la route à Wang Lin.
+« Tous les cultivateurs de la deuxième étape du Clan du Dragon Blindé, empêchez quiconque d'entrer dans le clan! » Alors que sa voix puissante résonnait, près de dix cultivateurs de la deuxième étape s'élancèrent pour barrer la route à Wang Lin.
 
 Cependant, à cet instant précis, le monde trembla et une météorite de tonnerre surgit. Wang Lin apparut devant le Clan du Dragon Blindé. Alors que ces cultivateurs prenaient leur envol, Wang Lin pressa sa main impitoyablement vers le bas!
 

@@ -52,13 +52,13 @@ L'homme vêtu de peau de bête ferma les yeux, ignorant tout le reste. C'était 
 
 Le lézard géant sous lui expulsa deux jets d'air chaud et referma ses yeux froids.
 
-Alors que les dix mille cultivateurs entourant la tortue géante regardaient Wang Lin foncer vers le premier bâton d'encens, diverses pensées traversèrent leurs esprits.
+Alors que les dizaines de milliers de cultivateurs entourant la tortue géante regardaient Wang Lin foncer vers le premier bâton d'encens, diverses pensées traversèrent leurs esprits.
 
 « Humph, cet homme a vraiment de la chance d'avoir attiré l'attention du premier Jeune Empereur. Cependant, cette épreuve est extrêmement difficile. Je suis certain qu'il échouera! »
 
 « Le Premier Ancien des Terres Déchues n'a même pas osé tenter de revendiquer le titre de Jeune Empereur bien qu'il soit au cinquième Fléau Céleste. Bien que cet homme ait obtenu les faveurs du Grand Empereur et du premier Jeune Empereur, il est hors de question qu'il réussisse. »
 
-Wang Lin arriva aux côtés du premier bâton d'encens sous le regard des dix mille cultivateurs de l'arène et se posa sur la carapace de la tortue. Comparée au bâton d'encens, la silhouette de Wang Lin paraissait véritablement insignifiante.
+Wang Lin arriva aux côtés du premier bâton d'encens sous le regard des dizaines de milliers de cultivateurs de l'arène et se posa sur la carapace de la tortue. Comparée au bâton d'encens, la silhouette de Wang Lin paraissait véritablement insignifiante.
 
 Ce bâton géant ressemblait à une montagne. Il dégageait un parfum subtil qui, pour quiconque le respirait, éveillait l'esprit.
 
@@ -80,8 +80,8 @@ Pourtant, tout cela restait trouble et semblait étrangement déconnecté de lui
 
 Un grand navire dérivait lentement sur l'eau, et un jeune homme y tenait une coupe de vin. Quelques chanteuses dansaient sur le pont tandis que des serviteurs se tenaient derrière lui.
 
-Parmi les éclats de rire, s'élevèrent ces paroles douces mais arrogantes: « Le monde est une auberge pour tous les êtres vivants. Le temps est l'hôte des âges. La frontière entre la vie et la mort n'est qu'un réveil d'un rêve! »
+Parmi les éclats de rire, s'élevèrent ces paroles douces mais arrogantes: « Le ciel et la terre sont l'auberge de tous les êtres; le temps est le voyageur de passage de cent générations. Et la vie flottante est comme un rêve: combien de joies en reste-t-il... et pour combien de joies vit-on! »
 
-Le jeune homme leva sa coupe et prit une gorgée! Depuis que Wang Lin était arrivé ici, tout ce qui l'entourait était flou. Cependant, à cet instant précis, l'apparence du jeune homme devint limpide, créant un contraste saisissant avec son environnement!
+Le jeune homme leva sa coupe et la vida d'un trait! Depuis que Wang Lin était arrivé ici, tout ce qui l'entourait était flou. Cependant, à cet instant précis, l'apparence du jeune homme devint limpide, créant un contraste saisissant avec son environnement!
 
 Cela fit sursauter Wang Lin sur place, et son esprit vacilla comme si le monde se déchirait. L'apparence de ce jeune homme lui était terriblement familière, c'était presque...

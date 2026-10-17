@@ -18,7 +18,7 @@ Quatre de ses cinq organes internes s'étaient dissipés, tranchant ainsi sa for
 
 « Le cinquième est le cœur. Sans cœur, il n'y a point de Dao! » La femme regarda calmement Wang Lin. Son pouce se replia lentement et sa main se referma en un poing.
 
-Une fois son poing formé, elle lança avec une douceur feinte un coup vers Wang Lin.
+Une fois son poing formé, elle lança doucement un coup vers Wang Lin.
 
 Wang Lin ressentit une douleur fulgurante dans la poitrine. Son cœur cessa de battre et commença à se pétrifier lentement. En un clin d'œil, il se changea en pierre! Avec son cœur pétrifié, la douleur qu'il éprouvait était indescriptible. Même Wang Lin ne put s'empêcher de pousser un cri déchirant.
 
@@ -26,7 +26,7 @@ Des grondements de tonnerre résonnèrent lorsque la femme porta son coup. La po
 
 « Concubine Impériale Céleste! » Dans un fracas, Wang Lin percuta la surface de l'eau mais ne coula pas. Il endura la douleur tandis que sa main droite frappait la surface, lui permettant de rebondir vers le haut.
 
-Il tenta d'entrer dans la fissure de la Mer des Nuages en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête des Limbes, mais un sceau l'en empêchait; il ne parvenait pas à ressentir la créature.
+Il tenta d'entrer dans la fissure de la Mer des Nuages en utilisant le jade que la femme mystérieuse lui avait donné, mais cela fut sans effet. Il essaya d'invoquer la Bête des Limbes, mais ce lieu scellé recelait une force qu'il ne pouvait briser; il ne parvenait pas à ressentir la créature.
 
 « Tu n'as aucune voie de survie, tu ne peux t'échapper! Mais si tu t'agenouilles et me supplies, je pourrais peut-être t'accorder une chance de vivre », dit doucement la femme en sortant de la glace pour marcher vers Wang Lin.
 
@@ -38,7 +38,7 @@ Le visage de Wang Lin était livide alors qu'il reculait de quelques pas supplé
 
 La femme avait déjà aperçu la lumière dorée de Wang Lin. En la revoyant, ses magnifiques pupilles se rétractèrent et un profond doute s'éleva dans son cœur, mais elle ne dit mot. Elle fit un pas en avant, accélérant encore sa cadence. Elle leva ensuite sa main droite et la pressa une fois de plus vers Wang Lin.
 
-Le ciel gronda et treize dragons noirs émettant une lueur dorée apparurent en poussant des hurlements. Puis, une pluie dorée commença à tomber. Chaque goutte de pluie contenait une âme ayant péri pour Wang Lin!
+Le ciel gronda et treize dragons noirs émettant une lueur dorée apparurent en poussant des hurlements. Puis, une pluie dorée commença à tomber. Chaque goutte de pluie contenait une âme morte de la main de Wang Lin!
 
 En tombant, la pluie créa un Monde de Vent et de Pluie. Bien que beaucoup d'âmes se soient dissipées, une multitude subsistait encore. Toutes se précipitèrent vers cette femme.
 
@@ -102,13 +102,13 @@ La musique de la harpe résonna à travers le monde. À mesure qu'elle progressa
 
 Le rythme devint plus pressant et pénétra l'esprit de Wang Lin, lui donnant l'impression que des ondulations invisibles le bombardaient. Cela le repoussa de plusieurs milliers de pieds et provoqua des saignements par tous ses orifices!
 
-« La musique de ma harpe est une chose que seul l'ancien souverain céleste pouvait entendre. Pour que tu puisses l'entendre aujourd'hui, tu peux sourire en mourant. Écoute mon chant: *Enterré dans les Enfers*... » La voix de la femme était calme, tandis que sa main sur la harpe s'agitait de plus en plus vite.
+« La musique de ma harpe, jadis le Souverain Céleste l'a entendue. Pour que tu aies la chance de l'entendre aujourd'hui, tu peux sourire en mourant. Écoute mon chant: *Enterré dans les Enfers*... » La voix de la femme était calme, tandis que sa main sur la harpe s'agitait de plus en plus vite.
 
 La musique emplissait le monde, mais Wang Lin avait l'impression que des pensées démoniaques envahissaient son esprit. Ces innombrables pensées voulaient lui déchirer le cœur. Wang Lin esquissa un sourire misérable alors que le sang coulait de sa bouche, puis il se mit à rire.
 
 « Quel magnifique *Enterré dans les Enfers*! » Tout en riant, Wang Lin se retourna et une lueur sanglante jaillit. L'épée de sang sombre apparut et hurla dans les airs.
 
-Instantanément, une autre femme sortit silencieusement derrière Wang Lin. À l'instant même où elle apparut, l'épée de sang fonça sur elle.
+Instantanément, une autre femme, vêtue de violet, sortit silencieusement derrière Wang Lin. À l'instant même où elle apparut, l'épée de sang fonça sur elle.
 
 Elle n'était pas surprise que Wang Lin puisse la trouver. S'il n'en avait pas été capable, il ne serait pas digne qu'ils aient élaboré ce plan pour le tuer.
 

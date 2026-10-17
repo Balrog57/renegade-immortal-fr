@@ -58,7 +58,7 @@ Des ondulations parcoururent l'espace au-dessus de l'autel et un vortex gigantes
 
 Cette poussée fit trembler l'esprit de Wang Lin. Cette force était plus puissante que la puissance du ciel, plus puissante que toute pression qu'il avait jamais affrontée!
 
-Oubliez-le lui, même Sept-Couleurs aurait été expulsé de cet autel!
+Sans parler de lui, même le Daoïste aux Sept Couleurs aurait été chassé de force de cet autel!
 
 Wang Lin sentit la goutte de sang de son corps original brûler, libérant une lueur sanguine qui semblait communiquer avec le vortex.
 
@@ -72,7 +72,7 @@ Une douleur indicible résonna dans sa conscience. Bien qu'il n'ait pas de corps
 
 C'est à ce moment que la deuxième goutte de sang jaillit du vortex et fusionna avec Wang Lin. La douleur dans sa conscience décupla, mais il ne pouvait émettre aucun rugissement; il ne pouvait qu'endurer!
 
-Peu après, la troisième goutte s'envola du vortex et fusionna avec lui. Cela fit s'étendre la goutte de sang de Wang Lin jusqu'à atteindre trois pieds de large, et l'ombre d'un corps nu commença à se condenser!
+Peu après, la troisième goutte s'envola du vortex et fusionna avec lui. Cela fit s'étendre la goutte de sang de Wang Lin jusqu'à atteindre trente pieds de large, et l'ombre d'un corps nu commença à se condenser!
 
 Ce corps avait une chevelure blanche. C'était Wang Lin!
 
@@ -94,7 +94,7 @@ Il ne pouvait pas non plus se comparer au Grand Empyréen Xuan Luo, l'un des neu
 
 Sa seule force résidait dans sa ténacité, son caractère inflexible et son refus viscéral d'être assujetti. À travers d'innombrables luttes entre la vie et la mort, il était passé du statut de simple mortel vulnérable à celui qu'il était devenu. Avec le recul, un tel parcours était proprement stupéfiant.
 
-Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'empereur et les anciens du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empyréen, ils ne rencontraient que rarement le péril de la mort.
+Tandis que Wang Lin affrontait des combats acharnés pour obtenir ses ressources, l'homme en robe royale et de nombreux cultivateurs du pays ancien du Continent Astral Immortel cultivaient dans la paix. Sous la protection du Grand Empyréen, ils ne rencontraient que rarement le péril de la mort.
 
 Tandis que Wang Lin luttait pour sa survie, l'homme en robe royale était escorté par d'innombrables serviteurs durant sa culture. Quoi qu'il désire, son clan le lui apportait sur un plateau.
 
@@ -110,7 +110,7 @@ Rien d'autre que pour sa volonté indomptable, cette volonté qui défiait les c
 
 Il était différent de tous les anciens du Continent Astral Immortel. Il avait survécu dans le monde des cavernes et, au fond de lui, il n'avait jamais respecté l'Ancêtre Ancestral. Il ne vouait aucun culte à une existence aussi éthérée; il ne croyait qu'en sa propre force!
 
-C'était un concept que personne sur le Continent Astral Immortel, pas même le Grand Empyréen Xuan Luo, ne pouvait concevoir. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
+Sur ce point, personne sur le Continent Astral Immortel, pas même le Grand Empyréen Xuan Luo, ne pouvait lui être comparé. Même ce dernier conservait un immense respect pour l'existence de cet ancêtre.
 
 Mais Wang Lin était différent!
 

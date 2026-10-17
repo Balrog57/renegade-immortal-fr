@@ -8,7 +8,7 @@ slug: indice-terrifiant
 ---
 Le cri déchirant fut étouffé par les grondements. La jeune fille qui s'était cachée sur l'épaule droite du colosse et qui s'apprêtait à attaquer Wang Lin par surprise fut forcée de se dévoiler!
 
-Peu importe le niveau de culture de chacun, tous devaient subir l'épreuve du brouillard provenant du Tombe de l'Ordre Ancien. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette petite fille du Clan de l'Extermination des Sceaux!
+Peu importe le niveau de culture de chacun, tous devaient subir l'épreuve du brouillard provenant de la Tombe de l'Ordre Ancien. Même les cultivateurs de la troisième étape devaient y faire face, sans parler de cette simple femme du Clan de l'Extermination des Sceaux!
 
 Dès qu'elle apparut, son corps trembla violemment. Sa chair se flétrit rapidement et fut instantanément corrodée par le brouillard jusqu'à ce qu'il ne reste plus qu'un squelette!
 
@@ -16,7 +16,7 @@ La femme était morte une fois de plus dans ce brouillard!
 
 Cependant, au moment même de sa mort, le squelette ne se dissipa pas; une lumière grise en émana. La chair commença à repousser sur les os et, en seulement quelques respirations, la jeune fille qui venait de mourir renaquit!
 
-La peur brillait dans ses yeux. En un laps de temps si court, elle avait été tuée par le stratagème de Wang Lin. Elle ressentait encore de la gratitude lorsqu'elle fut frappée par ce brouillard et mourut sans pouvoir opposer la moindre résistance.
+La peur brillait dans ses yeux. En un laps de temps si court, elle avait été tuée par le stratagème de Wang Lin. Elle se réjouissait encore d'avoir survécu lorsqu'elle fut frappée par ce brouillard et mourut sans pouvoir opposer la moindre résistance.
 
 Sur ses trois vies, elle en avait déjà utilisé deux!
 
@@ -28,7 +28,7 @@ Le visage de la jeune fille pâlit instantanément et elle recula précipitammen
 
 À peine son corps s'était-il reformé que le brouillard se précipita en elle avant qu'elle ne puisse s'éloigner davantage. Le désespoir envahit ses yeux. Son Clan de l'Extermination des Sceaux possédait presque des corps immortels, mais en cet instant, la peur de la mort l'assaillait!
 
-Tout cela se produisit en un éclair. La jeune fille fut de nouveau encerclée par le brouillard. Elle désespéra tandis que la brume traversait son corps une fois de plus. Pourtant, non seulement elle ne mourut pas, mais une vitalité infinie afflua dans ses veines et forma un chiffre à côté de sa marque clanique!
+Tout cela se produisit en un éclair. La jeune fille fut de nouveau encerclée par le brouillard. Elle désespéra tandis que la brume traversait son corps une fois de plus. Pourtant, non seulement elle ne mourut pas, mais une vitalité infinie naquit en elle, afflua entre ses sourcils et y forma un chiffre!
 
 En cet instant fugace, la jeune fille avait traversé la vie et la mort, et une sueur froide trempait ses vêtements. Avant qu'elle ne retrouve ses esprits, la force d'aspiration l'enveloppa. Elle se débattit avec terreur alors qu'elle était aspirée dans les profondeurs du brouillard.
 
@@ -36,7 +36,7 @@ Il y avait aussi le colosse de l'Estimé Clan du Loup Céleste. Il avait été a
 
 Wang Lin vit clairement toute la scène. Ses yeux s'illuminèrent, et le spectacle de cette mort suivie d'une résurrection ébranla son esprit!
 
-« Je l'ai déjà tuée une fois, et ce étrange brouillard l'a tuée à nouveau, mais elle n'est toujours pas morte!! Le Clan de l'Extermination des Sceaux est... un peu trop puissant! »
+« Je l'ai déjà tuée une fois, et cet étrange brouillard l'a tuée à nouveau, mais elle n'est toujours pas morte!! Le Clan de l'Extermination des Sceaux est... un peu trop puissant! »
 
 « Cependant, son expression tout à l'heure n'était pas feinte; ce regard de désespoir révélait ses pensées. Si cette femme meurt une nouvelle fois, elle ne pourra plus revenir! » Wang Lin était observateur et intelligent, il ne lui fut pas difficile de déduire cela.
 
@@ -50,11 +50,11 @@ Aucun chiffre n'étant apparu entre ses sourcils, il ne fut pas entraîné par l
 
 Son regard devint de plus en plus intense. En se remémorant les marques numériques et sa position actuelle, ses pupilles se contractèrent.
 
-« Cette marque numérique, les étrangers ne peuvent la comprendre, mais c'est clairement le langage des Dieux Antiques! Se pourrait-il que cet endroit soit celui d'où est sorti Cupidité du Tombe de l'Ordre Ancien? » Le cœur de Wang Lin battait la chamade et ses yeux pétillèrent. Il regarda soudainement vers la direction où la jeune fille et le colosse avaient été aspirés.
+« Cette marque numérique, les étrangers ne peuvent la comprendre, mais c'est clairement le langage des Dieux Antiques! Se pourrait-il que ce soit la direction dont parlait Cupidité, celle par laquelle il a quitté la Tombe de l'Ordre Ancien? » Le cœur de Wang Lin battait la chamade et ses yeux pétillèrent. Il regarda soudainement vers la direction où la jeune fille et le colosse avaient été aspirés.
 
 « Pas étonnant qu'aucun langage de Dieu Antique ne soit apparu entre mes sourcils... Pas étonnant que la brume ait pénétré mon corps pour se transformer en puissance de Dieu Antique... Le chiffre sur le colosse était 14... Celui de la jeune fille était 29... » Wang Lin se lécha les lèvres, pensif.
 
-« Cet endroit est périlleux, et le Tombe de l'Ordre Ancien l'est encore plus... Dois-je y aller ou non! »
+« Cet endroit est périlleux, et la Tombe de l'Ordre Ancien l'est encore plus... Dois-je y aller ou non! »
 
 Après trois respirations, le regard de Wang Lin devint déterminé. Sa personnalité avait toujours été ainsi: déceler le profit au cœur du danger! S'il renonçait cette fois, qui sait quand il s'ouvrirait à nouveau? Il n'aurait peut-être jamais d'autre chance!
 
@@ -62,7 +62,7 @@ Ses yeux brillèrent d'un éclat indifférent alors qu'il avançait prudemment v
 
 Plus le danger était grand, plus les opportunités et la fortune étaient présentes!
 
-« Le Tombe de l'Ordre Ancien... laissez-moi découvrir quels dangers terrifiants et quelles richesses s'y cachent! En tant que Dieu Antique, cet endroit me profitera bien plus qu'à quiconque! »
+« La Tombe de l'Ordre Ancien... laissez-moi découvrir quels dangers terrifiants et quelles richesses s'y cachent! En tant que Dieu Antique, cet endroit me profitera bien plus qu'à quiconque! »
 
 Wang Lin se déplaça avec l'agilité d'un poisson et chargea en avant. Il décida résolument de ne pas absorber ce brouillard chargé de mort et de ressentiment. Bien qu'il puisse le renforcer, il savait que s'il l'absorbait, son esprit ne lui appartiendrait plus. Il serait asservi par l'aura de mort et de ressentiment tel une marionnette vivante!
 
@@ -76,7 +76,7 @@ Tout cela semblait être des idées propres qui lui étaient venues spontanémen
 
 Cependant, après avoir échappé au Clan des Moineaux de Feu, alors que Wang Lin commençait à douter que l'homme d'âge moyen fût réellement le Souverain, un doute terrifiant l'avait saisi... Un doute qui lui avait glacé le sang!
 
-« Pourquoi ferais-je une chose aussi insensée et aurais-je une idée aussi folle... » À peine avait-il commencé à douter que la pensée se dissipa aussitôt, balayée par d'autres préoccupations. Cela l'avait presque fait oublier ce doute surgit lorsqu'il remettait en question l'identité du Souverain.
+« Pourquoi ferais-je une chose aussi insensée et aurais-je une idée aussi folle... » À peine avait-il commencé à douter que la pensée se dissipa aussitôt, balayée par d'autres préoccupations. Cela l'avait presque fait oublier ce doute surgi lorsqu'il remettait en question l'identité du Souverain.
 
 Pourtant, après être entré dans le brouillard, son esprit devint soudainement limpide. C'était comme si la brume constituait un monde différent de l'extérieur. Comme si une puissance inconnue s'était abattue sur Wang Lin et était désormais bloquée par le brouillard!
 
@@ -86,7 +86,7 @@ Il se retourna brusquement pour fixer le brouillard tourbillonnant derrière lui
 
 Après un long moment, Wang Lin détourna les yeux, une pointe de peur dans le regard. En repensant à tout ce qui s'était produit depuis son arrivée dans le Système Stellaire Antique, il sentait clairement qu'une puissance le contrôlait.
 
-Après réflexion, la peur dans ses yeux fut remplacée par une froide détermination. Il médita longuement et conclut que l'entrée dans le Tombe de l'Ordre Ancien était une décision prise après une analyse minutieuse; cette idée n'était pas apparue sans raison. Il se retourna alors pour s'enfoncer dans les profondeurs du brouillard.
+Après réflexion, la peur dans ses yeux fut remplacée par une froide détermination. Il médita longuement et conclut que l'entrée dans la Tombe de l'Ordre Ancien était une décision prise après une analyse minutieuse; cette idée n'était pas apparue sans raison. Il se retourna alors pour s'enfoncer dans les profondeurs du brouillard.
 
 Il accéléra encore, devenant un rayon de lumière. En approchant, il vit des cultivateurs luttant alors qu'ils étaient aspirés à ses côtés.
 
@@ -94,32 +94,32 @@ Tous ces êtres portaient une marque numérique entre les sourcils!
 
 « 37, 45, 71... » Wang Lin se rapprocha progressivement du centre et aperçut la terrifiante faille!
 
-Le monde à l'intérieur de la faille ne contenait pas de brouillard mais était rempli de distorsions. Malgré ces déformations, Wang Lin distinguait nettement les têtes féroces sur ces plateformes flottantes!!
+Le monde à l'intérieur de la faille ne contenait pas de brouillard mais était rempli de distorsions. Malgré ces déformations, Wang Lin distinguait nettement les têtes féroces sur ces fragments de pierre flottants!!
 
-Le Tombe de l'Ordre Ancien!
+La Tombe de l'Ordre Ancien!
 
 Les yeux de Wang Lin s'illuminèrent et il était sur le point de franchir la faille. À cet instant précis, le brouillard environnant gronda. Wang Lin se retourna et ses pupilles se contractèrent.
 
 Tandis que la brume derrière lui tourbillonnait, une silhouette apparut lentement. C'était un scribe d'âge moyen au visage très beau, presque féminin! Cependant, son teint était si pâle qu'il était évident qu'il avait eu beaucoup de mal à atteindre cet endroit.
 
-Neuf statues étranges entouraient son corps. Chaque statue affichait une expression différente. Elles encerclaient l'érudit aux traits fins et dégageaient une lueur jaune qui lui avait permis d'arriver jusqu'ici!
+Neuf statues étranges et chauves entouraient son corps. Chacune affichait une expression différente: colère, joie, tristesse, etc. Elles encerclaient l'érudit aux traits fins et dégageaient une lueur jaune qui lui avait permis d'arriver jusqu'ici!
 
-L'érudit ne portait aucune marque numérique entre les sourcils non plus! Lorsqu'il vit Wang Lin, son visage fatigué trahit un choc immense. Bien que Wang Lin paraisse normal, une onde de choc secoua le cœur du scribe. Il savait à quel point le brouillard était puissant, et pourtant, cet homme était arrivé ici. Sans dire un mot, Wang Lin se retourna pour s'apprêter à entrer dans le Tombe de l'Ordre Ancien!
+L'érudit ne portait aucune marque numérique entre les sourcils non plus! Lorsqu'il vit Wang Lin, son visage fatigué trahit sa surprise. Wang Lin gardait un visage impassible, mais son cœur était agité de grandes vagues. Il savait à quel point le brouillard était puissant, et pourtant, cet homme était arrivé ici. Sans dire un mot, Wang Lin se retourna et fit un pas vers la faille pour entrer dans la Tombe de l'Ordre Ancien!
 
 « Cher compagnon cultivateur, pourriez-vous m'aider? » Une voix féminine très agréable s'échappa de l'érudit.
 
 Dans le Système Stellaire Antique, au sein d'un domaine stellaire sans fin, un palais gigantesque flottait parmi les étoiles. Ce domaine semblait caché, impossible à débusquer.
 
-Le palais était sombre; seuls quelques chandeliers brûlaient, produisant de légers crépitements.
+Le palais était sombre; seules quelques flammes de bougie brûlaient, produisant de légers crépitements.
 
-À la lueur des flammes, on pouvait distinguer faiblement un puits rempli d'eau. L'eau agissait comme un miroir, reflétant trois groupes de chandeliers, rendant impossible la distinction entre le réel et le faux.
+À la lueur des flammes, on pouvait distinguer faiblement un puits rempli d'eau. L'eau agissait comme un miroir, reflétant trois flammes de bougie, rendant impossible la distinction entre le réel et le faux.
 
-Une silhouette enveloppée d'une robe noire cachant son apparence se tenait silencieusement près du puits. Dans l'eau, on voyait le reflet des trois groupes de chandeliers et une silhouette aux cheveux blancs.
+Une silhouette enveloppée d'une robe noire cachant son apparence se tenait silencieusement près du puits. Dans l'eau, on voyait le reflet des trois flammes de bougie et une silhouette aux cheveux blancs.
 
 Cette silhouette était... Wang Lin!
 
-La silhouette de Wang Lin était entourée par les trois chandeliers comme s'il était scellé!
+La silhouette de Wang Lin était entourée par les trois flammes de bougie comme s'il était scellé!
 
 Cependant, juste au moment où Wang Lin pénétra dans le brouillard, des ondulations apparurent à la surface du puits. Cette force semblait ne pas appartenir à ce monde et, tandis que les rides se propageaient, la silhouette de Wang Lin se dissipa progressivement.
 
-« Le Tombe de l'Ordre Ancien s'est soudainement ouvert, perturbant le plan de ce vieil homme... Quel dommage... Quel dommage... Pêcher la Lune dans le Puits, il n'en manquait que très peu... » murmura l'individu caché sous la robe noire d'une voix rauque. Il leva sa main droite, révélant des doigts secs et graciles, et pointa la surface de l'eau.
+« La Tombe de l'Ordre Ancien s'est soudainement ouverte, perturbant le plan de ce vieil homme... Quel dommage... Quel dommage... Pêcher la Lune dans le Puits, il n'en manquait que très peu... » murmura l'individu caché sous la robe noire d'une voix rauque. Il leva sa main droite, révélant des doigts secs et graciles, ainsi qu'un ongle long et légèrement recourbé, et toucha la surface de l'eau.

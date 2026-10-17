@@ -22,7 +22,7 @@ Même les cultivateurs du troisième niveau reculèrent avec effroi. Pourtant, l
 
 « Avec une telle bête à ses côtés, même sans être un cultivateur du troisième niveau, on suffirait à devenir célèbre! » Les autres cultivateurs des Sectes des Fantômes et des Démons contemplaient tous la Bête des Limbes. Bien qu'ils fussent horrifiés par elle, la créature exerçait également sur eux une attraction irrésistible!
 
-« Une bête d'essence vitale! Ce Wang Lin a réellement réussi à apprivoiser cette bête... Le choix du Seigneur du Royaume Scellé n'était pas erroné... » Maître Hong Shan observa le vieil homme de la Secte des Cadavres.
+« Une bête d'essence vitale! Ce Wang Lin a réellement réussi à apprivoiser cette bête... Le choix du Seigneur du Royaume Scellé n'était pas erroné... » Maître Hong Shan échangea un regard avec le vieil homme de la Secte des Cadavres.
 
 Tandis que tous reculaient, seul Wang Lin fit un pas en avant et posa doucement sa main droite sur la Bête des Limbes. La peur dans les yeux de la créature disparut progressivement. Elle ressentait une grande chaleur auprès de Wang Lin, et l'essentiel de son effroi s'estompa.
 

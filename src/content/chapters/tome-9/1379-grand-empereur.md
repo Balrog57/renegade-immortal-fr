@@ -50,9 +50,9 @@ Tout cela se produisit en un instant. En un clin d'œil, le doigt chargé de 40 
 
 Lorsqu'il se matérialisa à nouveau, une scène extrêmement étrange se déroulait devant lui!
 
-Il y avait un autre ciel au-dessus du ciel et une autre terre sous la terre. Le Déchirure du Ciel créait un autre monde servant de prison. Il pouvait également fusionner avec l'ennemi; briser la peinture revenait donc à briser le monde lui-même pour les anéantir!
+Il y avait un autre ciel sous le ciel et une autre terre au-dessus de la terre. Le Dao Briseur de Ciel créait un autre monde servant de prison. Il pouvait également fusionner avec l'ennemi; briser la peinture revenait donc à briser le monde lui-même pour les anéantir!
 
-Wang Lin était désormais encerclé par le monde formé par le Déchirure du Ciel et ne pouvait plus en sortir!
+Wang Lin était désormais encerclé par le monde formé par le Dao Briseur de Ciel et ne pouvait plus en sortir!
 
 L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il ouvrit brusquement les bras, avant de les refermer aussitôt en rugissant: « Brisez les cieux! »
 
@@ -60,13 +60,13 @@ L'expression de Maître Simo devint féroce. Ses mains formèrent un sceau et il
 
 À cet instant précis, tous les cultivateurs sur la planète de culture furent ébranlés. Le vieil homme du Clan des Moineaux de Feu et ses compagnons observaient la bataille depuis longtemps grâce à leur Sens Divin. En voyant la scène se dérouler, la peur envahit son regard et une expression complexe marqua son visage.
 
-« Cet homme va mourir sans aucun doute! Le Déchirure du Ciel est véritablement digne de son nom! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a échangé les pilules est donc évidente! »
+« Cet homme va mourir sans aucun doute! Le Dao Briseur de Ciel est véritablement digne de son nom! Maître Simo... Maître Simo... Je ne m'attendais pas à ce qu'il vienne. L'identité de la personne qui m'a vendu les pilules est donc évidente! »
 
 « Malheureusement, j'ignore d'où provient le sang contenu dans ces pilules de l'âme! » Le vieil homme du Clan des Moineaux de Feu secoua la tête. Il avait déjà conclu que Wang Lin était condamné.
 
 Dans la terre sainte du Clan du Dragon Blindé, le jeune maître avait également déployé son Sens Divin pour observer et finit par se détendre un peu.
 
-« Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Simo. Le Déchirure du Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
+« Cet homme est très puissant, mais hélas, il ne peut échapper au sort de Maître Simo. Le Dao Briseur de Ciel est prodigieux, capable de créer son propre monde pour l'anéantir! »
 
 Le Patriarche du Clan du Dragon Blindé détourna également son regard du ciel et se calma légèrement.
 
@@ -86,7 +86,7 @@ La tempête d'énergie qui l'entourait dégageait une aura destructrice et propu
 
 Les 40 millions de rayons commencèrent à marteler la peinture, provoquant des grondements incessants à travers le monde.
 
-« Brisez-vous! » La voix de Wang Lin était rauque alors que la douleur l'assaillait par vagues. Il cracha du sang et son expression devint féroce. Il agita sa main droite et les rayons d'énergie d'épée devinrent encore plus violents. Dans un fracas de tonnerre, le monde formé par le Déchirure du Ciel vola en éclats!
+« Brisez-vous! » La voix de Wang Lin était rauque alors que la douleur l'assaillait par vagues. Il cracha du sang et son expression devint féroce. Il agita sa main droite et les rayons d'énergie d'épée devinrent encore plus violents. Dans un fracas de tonnerre, le monde formé par le Dao Briseur de Ciel vola en éclats!
 
 Le monde s'effondra et se transforma en une onde de choc qui balaya toute la planète!
 

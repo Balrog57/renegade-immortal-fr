@@ -8,7 +8,7 @@ slug: le-corps-du-clan-celeste-immortel
 ---
 Bien que l'essence de tonnerre de Wang Lin ait atteint sa perfection, elle demeurait encore incomplète! Cependant, grâce à la puissance de son nouveau sang, cette imperfection disparut et son tonnerre devint soudainement... un tonnerre céleste! Un véritable tonnerre céleste!
 
-Le feu doré dans son œil gauche n'était qu'à l'état éthéré et était encore loin de devenir un feu du Dao. Pourtant, alors que la puissance de son nouveau sang affluait, le feu évolua soudainement pour devenir un Feu Éthéré surpassant tout autre feu!
+Le feu doré dans son œil gauche n'était qu'à l'état éthéré et était encore loin de devenir un feu du Dao. Pourtant, alors que la puissance de son nouveau sang affluait, le feu évolua soudainement pour devenir un feu céleste, d'un niveau surpassant tout autre feu!
 
 Un véritable feu céleste!
 
@@ -38,11 +38,11 @@ Deux forces totalement opposées continuaient de se bombarder mutuellement. Bien
 
 Au cours de ce processus instable, sa partie inférieure du corps alternait entre une récupération rapide et une destruction fulgurante. Son âme originelle était également lucide, mais emprisonnée!
 
-Si cela persistait, Wang Lin deviendrait un mort-vivant, ou serait raffiné pour devenir un trésor céleste!
+Si cela persistait, Wang Lin deviendrait un mort-vivant, ou serait raffiné pour devenir un trésor suprême du ciel et de la terre!
 
 Ce trésor serait une chose que l'Ordre Antique et les Célestes pourraient tous deux utiliser!
 
-À cet instant, il devait faire un choix. Il devait choisir entre son héritage précédent de l'Ordre Antique et renoncer à cette fortune stupéfiante, ou choisir cette nouvelle fortune et abandonner l'héritage de l'Ordre Antique qui l'avait accompagné durant la majeure partie de sa vie!
+À cet instant, il devait faire un choix. Il devait choisir entre son héritage précédent de l'Ordre Antique et renoncer à cette fortune stupéfiante, ou choisir cette nouvelle fortune et abandonner l'héritage de l'Ordre Antique qui l'avait accompagné durant des milliers d'années!
 
 C'était un dilemme déchirant. Même si Wang Lin voulait choisir, il en était incapable. Son âme originelle ne pouvait plus bouger, car elle s'était, dans une certaine mesure, séparée de son corps!
 
@@ -50,15 +50,15 @@ C'était un dilemme déchirant. Même si Wang Lin voulait choisir, il en était 
 
 Après un instant, l'excitation sur le visage du fou s'estompa pour laisser place à une colère infinie!
 
-« Espèce de salaud!! Tu ne t'es toujours pas rétabli!! Le sang de ce vieux fou... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah!!! Tout ce sang que je t'ai donné suffirait à obtenir ce poussin aux sept couleurs!! Si mon grand frère savait, il deviendrait fou, ah!! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
+« Espèce de salaud!! Tu ne t'es toujours pas rétabli!! Mon sang... ah, ce sang pourrait être échangé contre tant de choses. Tant de sang, ah!!! Tout ce sang que je t'ai donné suffirait à convaincre cette petite beauté aux sept couleurs de se rallier à ce roi!! Si mon grand frère savait, il deviendrait fou, ah!! » Le fou bondit et saisit l'épaule de Wang Lin, commençant à le secouer frénétiquement.
 
-« Rends-moi mon sang!! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Petit Yu, sors cet homme et tranche-lui la tête!! »
+« Rends-moi mon sang!! Tu as pris le sang de ce roi mais tu ne t'es toujours pas remis. Tu essaies de m'exaspérer. Petite Rouge, sors cet homme et tranche-lui la tête!! »
 
 Le fou rugit, toujours ivre de colère. Il fixa Wang Lin et lui mordit directement l'épaule, avant de pousser un grognement semblable à celui d'un chien enragé.
 
 « Ce roi va te mordre à mort, te mordre à mort!! » Après s'être agité un moment, le fou respirait bruyamment. Ses yeux étaient injectés de sang et son expression devint féroce. Il fixa Wang Lin, relâcha sa morsure, puis se couvrit la bouche en laissant échapper des gémissements de douleur.
 
-« Je déteste les cultivateurs de la Nation Antique, leurs corps sont trop durs. Les dents de ce roi vont me tuer!! Petit Rouge, va chez la famille Zhou chercher cette... cette chose, j'ai oublié son nom. Vite, vas-y! S'ils refusent de donner, dis-leur que mon grand frère viendra le voler demain! »
+« Je déteste les cultivateurs de la Nation Ancienne, leurs corps sont trop durs. Les dents de ce roi vont me tuer!! Petite Rouge, va chez la famille Zhou Xing chercher cette... cette chose, j'ai oublié son nom. Vite, vas-y! S'ils refusent de donner, dis-leur que mon grand frère viendra le voler demain! »
 
 Le fou s'éloigna en marmonnant et en gémissant de douleur. Puis il se retourna pour fixer Wang Lin, montrant à nouveau des signes de folie imminente.
 
@@ -86,26 +86,26 @@ Pourtant, une personne qui sombre dans la folie par pur divertissement est absol
 
 « Comment ce roi aurait-il pu oublier les Trois Sceaux des Ancêtres Célestes? Haha, les Trois Sceaux des Ancêtres Célestes. Oui, c'est bien ça! » Le fou sentait son sang bouillir. Il regardait Wang Lin en ricanant, avant qu'une lueur de confusion ne traverse son regard.
 
-« Quelque chose cloche... Il me semble que mon grand frère a dit que même si je mourais, je ne pourrais donner les Trois Sceaux des Ancêtres Célestes à personne n'appartenant à mon clan céleste... Il m'a même forcé à le jurer. Je peux donner de petites quantités de sang aux gens, mais les Trois Sceaux ne peuvent pas être donnés à d'autres? » Le fou commença à hésiter et à regarder Wang Lin avec mépris.
+« Quelque chose cloche... Il me semble que mon grand frère a dit que même si je mourais, je ne pourrais donner les Trois Sceaux des Ancêtres Célestes à personne n'appartenant à mon clan céleste... Il m'a même forcé à le jurer. Je peux donner de petites quantités de sang aux gens, mais les Trois Sceaux ne peuvent pas être donnés à d'autres? » Le fou commença à hésiter et baissa les yeux sur Wang Lin.
 
 « Ce n'est peut-être pas ça. Peut-être que mon grand frère a dit que les Trois Sceaux pouvaient être donnés à quiconque. Laquelle est la bonne? » Le fou fronça les sourcils et frappa sa propre tête de sa main droite. Plus il frappait, plus il s'embrouillait.
 
-« Ce roi doit écouter les paroles de mon grand frère. L'image peut être donnée aux autres, c'est vrai, elle peut être donnée ainsi! » Le fou hocha solennellement la tête.
+« Ce roi doit écouter les paroles de mon grand frère. Les Sceaux peuvent être transmis aux autres, c'est vrai, ils peuvent l'être! » Le fou hocha solennellement la tête.
 
-« C'est exact, même Petit Rouge a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
+« C'est exact, même Petite Rouge a dit que ma mémoire était excellente et qu'elle ne pouvait pas se tromper. » Le fou redevint excité après avoir murmuré pour lui-même. Il se lécha les lèvres, puis forma rapidement quelques sceaux manuels. La planète de culture entière trembla, tout comme le corps du fou qui s'agitait violemment.
 
 Le glyphe circulaire qui était apparu sur la plaie de son bras gauche se manifesta progressivement entre ses sourcils!
 
-« Que les cieux et la terre s'ouvrent, que les ancêtres descendent. Les trois sceaux forgent l'immortalité pour toutes les générations! Le premier sceau invoque les cieux! Le deuxième sceau invoque le Dao! Le troisième sceau invoque... Qu'est-ce qu'il invoque? Petit Rouge, que fait le troisième sceau? » Le fou se figea et secoua la tête.
+« Au commencement du ciel et de la terre, l'Ancêtre Céleste descend ici-bas; trois sceaux changent les mondes et font l'âge d'or de notre clan céleste pour dix mille générations! Le premier sceau change le ciel! Le deuxième sceau change le Dao! Le troisième sceau change... Qu'est-ce qu'il change? Petite Rouge, que change le troisième sceau? » Le fou se figea et secoua la tête.
 
 « Oublié... Maudit soit-il, la mémoire de ce roi est trop bonne, je m'en souviendrai absolument! » murmura-t-il en frappant l'espace entre ses sourcils de sa main droite. Une aura jaillit, suivie d'une force indescriptiblement puissante qui emplit le monde à l'intérieur de la Bête des Limbes!
 
 Dans un rugissement, la main droite du fou s'avança comme pour arracher le sceau entre ses propres sourcils. Il le pressa ensuite contre les étoiles divines antiques de Wang Lin!
 
-« Trois Sceaux des Ancêtres Célestes, puissance du corps immortel du clan céleste! » Au moment où la main du fou percuta Wang Lin, une puissance inimaginable jaillit du corps de ce dernier. Son corps fut projeté vers sa tête et entra en collision avec la main droite du fou.
+« Trois Sceaux des Ancêtres Célestes, formez le corps impérissable de mon clan céleste! » Au moment où la main du fou percuta Wang Lin, une puissance inimaginable jaillit du corps de ce dernier. Elle reflua vers l'espace entre ses sourcils et entra en collision avec la main droite du fou.
 
-Des grondements tonitruants résonnèrent. Le fou cracha une bouchée de sang et fut projeté au loin. Lorsqu'il retomba, il semblait confus et marmonna: « Il me semble que je me souviens... Cela ne peut pas être enseigné... Particulièrement pas aux trois membres du clan de l'Ordre Antique, car cela causerait bien des ennuis... Hé, pourquoi ce roi s'inquiète-t-il? Ce roi n'a rien enseigné. La mémoire de ce roi est excellente, et je ne lui ai certainement rien appris... » En pensant ainsi, ses yeux roulèrent et il perdit connaissance.
+Des grondements tonitruants résonnèrent. Le fou cracha une bouchée de sang et fut projeté au loin. Lorsqu'il retomba, il semblait confus et marmonna: « Il me semble que je me souviens... Cela ne peut pas être enseigné... Particulièrement pas aux trois grands clans de la Nation Ancienne, car cela causerait bien des ennuis... Hé, pourquoi ce roi s'inquiète-t-il? Ce roi n'a rien enseigné. La mémoire de ce roi est excellente, et je ne lui ai certainement rien appris... » En pensant ainsi, ses yeux roulèrent et il perdit connaissance.
 
-Le corps de Wang Lin trembla et ses paupières furent agités de spasmes rapides. Son esprit rugissait; il sentait distinctement le mouvement du fou. Au moment précis où l'homme avait pressé sa main, Wang Lin sentit la puissance de l'Ordre Antique qu'il avait réprimée éclater comme si elle était devenue folle.
+Le corps de Wang Lin trembla et ses paupières furent agités de spasmes rapides. Son esprit rugissait; il sentait distinctement le mouvement du fou. Au moment précis où l'homme avait pressé sa main, Wang Lin sentit la puissance de l'Ordre Antique qui avait été réprimée éclater comme si elle était devenue folle.
 
 « Espèce de fou!! » Wang Lin ouvrit soudain les yeux!

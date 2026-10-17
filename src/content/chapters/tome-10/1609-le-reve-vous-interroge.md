@@ -16,7 +16,7 @@ Wang Lin la fixa, stupéfait, jusqu'à ce qu'elle disparaisse de sa vue. Un dern
 
 Wang Lin ferma les yeux. Après un long moment, il laissa échapper un soupir.
 
-« Dans toute ma vie, tous ceux que j'ai rencontrés portaient en eux une pointe de familiarité... Zhou Rui était ainsi, Xu Fei était ainsi, Liu Mei était ainsi... »
+« Dans toute ma vie, tous ceux que j'ai rencontrés dans mes rêves portaient en eux une pointe de familiarité... Zhou Rui était ainsi, Xu Fei était ainsi, Liu Mei était ainsi... »
 
 « Depuis dix-neuf ans que j'ai quitté Zhao, tous les cultivateurs que j'ai vus dans mon rêve m'ont inspiré ce même sentiment... »
 
@@ -50,7 +50,7 @@ Face à elle, Wang Lin ne pouvait plus se mentir ni occulter ce qu'il avait comp
 
 « Si le moi d'aujourd'hui est un rêve et que le moi cultivateur dans ce rêve est la vie réelle, alors le moi qui dort veut-il que Li Muwan m'oublie dans le rêve à cause de sa propre douleur... »
 
-« Est-ce tout cela pour l'avenir, pour le prochain cycle de réincarnation, ou pour le monde éveillé, où elle n'aura plus à endurer la douleur de l'attente, ne devra plus survivre en tant qu'Âme Naissante brisée, et ne vivra plus la vie d'un mort-vivant pendant plus de deux mille ans? »
+« Est-ce tout cela pour l'avenir, pour le prochain cycle de réincarnation, ou pour le monde éveillé, où elle n'aura plus à endurer la douleur de l'attente, ne verra plus, impuissante, sa durée de vie s'épuiser, et ne vivra plus la vie d'un mort-vivant pendant plus de deux mille ans? »
 
 « Pour qu'elle soit heureuse avant de me rencontrer, afin qu'elle puisse vivre paisiblement sa vie? Elle aura peut-être un autre partenaire de Dao, mais il n'y aura plus de cultivateur nommé Wang Lin pour la faire attendre... »
 
@@ -60,7 +60,7 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Wang Lin, vas-tu vraiment faire cela... Es-tu vraiment prêt à la laisser t'oublier? Veux-tu vraiment que l'autre "toi" rompe ce karma qui t'accompagne depuis plus de deux mille ans? » La voix de Wang Lin était lugubre.
 
-« J'ai traversé tant d'épreuves, et tout gravitait autour du karma. Karma... karma... Wang Lin, tu ne peux pas le voir clair! Même si tu cultives pour le restant de tes jours, même si ta culture est phénoménale, même si tu es le maître du monde, tu ne comprendras toujours pas ce qu'est le karma! »
+« J'ai traversé tant d'épreuves, et tout gravitait autour du karma. Karma... karma... Wang Lin, tu ne peux pas le voir clair! Même si tu cultives pour le restant de tes jours, même si ta culture est phénoménale, même si tu es le Seigneur du Royaume Scellé, tu ne comprendras toujours pas ce qu'est le karma! »
 
 « Tu as dévoré trois Fruits Dao et es revenu deux mille ans en arrière grâce à ton Sort du Dao du Rêve. Tu as utilisé tes propres pensées, l'intention complexe du Dao et la puissance de ton sort pour créer ce monde à partir de ta mémoire! » Wang Lin tituba et s'assit sur un rocher. Ses cheveux étaient ébouriffés, comme s'il avait perdu la raison.
 
@@ -80,7 +80,7 @@ Plus il comprenait, plus il percevait la nature du monde. Percevoir à travers l
 
 « Avant ton Dao du Rêve, tu as entendu parler de Papillon Rouge, alors tu as intégré son histoire à ton rêve. Tu as utilisé ton rêve pour parachever un cycle de karma. »
 
-« Tu savais pour Nian Tian et la Secte de l'Affinement de l'Âme, alors tu as pensé que tu devais aussi accomplir ce karma. Crois-tu que je l'ignore? Au début, je ne savais pas, j'étais confus, mais au moment où j'ai rencontré le fou et vu la lueur émaner de son poignet droit lorsque le feu s'est éteint, j'ai su! »
+« Tu savais pour Nian Tian et la Secte de l'Affinement de l'Âme, alors tu as pensé que tu devais aussi accomplir ce karma. Crois-tu que je l'ignore? Au début, je ne savais pas, j'étais confus, mais au moment où j'ai rencontré le fou, à l'instant où le feu de camp s'est éteint, quand j'ai vu l'empreinte de main sur le poignet droit du fou, j'ai su! »
 
 « Je me suis menti, je ne m'étais pas laissé trop réfléchir. Pourtant, plus de cinquante ans ont passé, et je me suis menti pendant plus de cinquante ans. Aujourd'hui, je refuse de continuer ce mensonge! »
 
@@ -94,7 +94,7 @@ Alors qu'il hurlait, le monde trembla; un tonnerre infini résonna et des éclai
 
 À l'instant où la colère céleste éclata, un vortex gigantesque apparut dans le firmament. Il tournait avec une telle force qu'il semblait prêt à déchirer la réalité même. Un vide sans fin se forma au centre du tourbillon.
 
-Dans ce vide infini, brillait une lueur rouge. Au sein de cette lumière reposaient deux corps aux yeux clos. L'un d'eux luttait pour ouvrir les paupières, comme si le rugissement de Wang Lin avait percuté son âme et provoquait son éveil.
+Dans ce vide infini, brillait une lueur rouge. Au sein de cette lumière reposaient deux cadavres aux yeux clos. L'un d'eux, aux cheveux blancs, luttait pour ouvrir les paupières, comme si le rugissement de Wang Lin avait percuté son âme et provoquait son éveil.
 
 « Tu ne peux pas le trancher! » La main droite de Wang Lin pointa vers le vortex céleste. Ses cheveux blancs flottaient au vent tandis qu'une puissante déferlante d'énergie jaillissait vers les cieux.
 

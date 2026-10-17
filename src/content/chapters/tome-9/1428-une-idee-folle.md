@@ -46,7 +46,7 @@ La voix sembla réfléchir en silence, tandis qu'une aura invisible se propageai
 
 Il venait de s'éveiller brutalement sous l'effet de la terreur!
 
-« J'ai enfin réussi! J'ai été trop loin! » Liu Jinbiao sentit sa bouche se dessécher et ses yeux s'emplir de panique. Il hurla sauvagement intérieurement: « Avoir un cultivateur du troisième niveau comme esclave... qui est donc cet être? Ce Wang Lin m'a dit de venir ici en prétendant pouvoir me sauver, mais même s'il venait, je crains qu'il ne meure aussi... »
+« J'ai joué trop gros! Cette fois, j'ai joué trop gros! » Liu Jinbiao sentit sa bouche se dessécher et ses yeux s'emplir de panique. Il hurla sauvagement intérieurement: « Avoir un cultivateur du troisième niveau comme esclave... qui est donc cet être? Ce Wang Lin m'a dit de venir ici en prétendant pouvoir me sauver, mais même s'il venait, je crains qu'il ne meure aussi... »
 
 Après un long moment de silence, la voix floue retentit de nouveau derrière la porte.
 
@@ -82,7 +82,7 @@ Le corps de Liu Jinbiao frissonnait. Il ressentait une pression suffocante éman
 
 « Tu n'es pas le sixième descendant de l'Oiseau Vermillon... » La voix floue résonna, pesant lourdement sur l'esprit de Liu Jinbiao. Son cuir chevelu picota et il perdit toute contenance.
 
-Liu Jinbiao s'effondra à genoux, les yeux inondés d'une peur intense. Sans hésiter, il implora immédiatement: « Seigneur Céleste, pardonnez-moi! Seigneur Céleste, je vous en supplie... Le Junior Liu Jinbiao n'est qu'un simple cultivateur et a été contraint de venir ici par autrui. Si je n'étais pas venu, j'aurais déjà péri. J'espère que le Seigneur Céleste aura pitié. Ce humble serviteur est prêt à tout pour vous servir... »
+Liu Jinbiao s'effondra à genoux, les yeux inondés d'une peur intense. Sans hésiter, il implora immédiatement: « Seigneur Céleste, pardonnez-moi! Seigneur Céleste, je vous en supplie... Le Junior Liu Jinbiao n'est qu'un simple cultivateur et a été contraint de venir ici par autrui. Si je n'étais pas venu, j'aurais déjà péri. J'espère que le Seigneur Céleste aura pitié. Cet humble serviteur est prêt à tout pour vous servir... »
 
 La voix floue l'interrompit: « Cependant, il y a quelque chose qui m'intéresse sur ton corps... » Quelques-unes des innombrables ramifications s'animèrent et s'enroulèrent autour de Liu Jinbiao. En un éclair, elles percèrent sa chair pour commencer à l'absorber, arrachant à Liu Jinbiao des hurlements de douleur.
 
@@ -102,9 +102,9 @@ Sur la Planète de l'Empereur, Wang Lin ferma les yeux et scruta l'intérieur du
 
 Quelqu'un était en train de se soigner dans la terre sacrée du Clan des Moineaux de Feu. Avant de venir dans les Terres Déchues, il n'en était pas certain, mais après avoir parlé au premier descendant de l'Oiseau Vermillon, il en avait la certitude: quelqu'un se trouvait à l'intérieur!
 
-S'il avait renoncé à son plan autrefois, il n'aurait peut-être pas été impossible pour Liu Jinbiao de revenir même après sa capture, mais une idée folle venait de germer dans le cœur de Wang Lin!
+S'il avait renoncé à son plan à ce moment-là et laissé Liu Jinbiao et les autres revenir, cela n'aurait pas été impossible, mais une idée folle venait de germer dans le cœur de Wang Lin!
 
-Le premier descendant de l'Oiseau Vermillon avait mentionné que la personne se soignant là était probablement le traître, le troisième Oiseau Vermillon, et qu'il éprouvait une haine profonde pour cet individu. S'il n'avait pas été piégé dans les Terres Déchues, il aurait massacré son chemin jusqu'au traître!
+Le premier descendant de l'Oiseau Vermillon avait mentionné que la personne se soignant là était probablement le traître, le troisième Oiseau Vermillon, et qu'il éprouvait une haine profonde pour cet individu. S'il n'avait pas été incapable de quitter le monde de Tian Fang, il aurait massacré son chemin jusqu'au traître!
 
 Bien qu'il ne l'ait pas explicitement dit, il avait fait savoir à Wang Lin qu'il pourrait aider son plan et lui permettre d'entrer dans la terre sacrée du Clan des Moineaux de Feu. Il lui avait également offert une plume d'Oiseau Vermillon en présent.
 
@@ -114,9 +114,9 @@ Plus important encore, le traître, le troisième Oiseau Vermillon, possédait u
 
 Une certitude de 70 % suffisait pour décider d'entreprendre un acte capable de secouer les cieux! Alors, imaginez avec 90 %! Une fois cela accompli, il quitterait le Système Stellaire Antique pour retourner dans le Royaume Intérieur!
 
-« Il a été blessé par le premier descendant de l'Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en culture isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire le royaume céleste utilisé pour générer les Flammes de Joss, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé. »
+« Il a été blessé par le premier descendant de l'Oiseau Vermillon, puis par ce rugissement mystérieux dans le Royaume Intérieur. Finalement, il a été contraint de se retirer en culture isolée pour guérir pendant des dizaines de milliers d'années. Pourtant, il a secrètement orchestré les événements! Sa fille est entrée dans le Royaume Intérieur pour séduire Qing Lin, détruire la force des Flammes de Joss des quatre grands royaumes immortels du Seigneur du Royaume Scellé, et a combiné les forces de plusieurs individus pour briser le corps du Seigneur du Royaume Scellé, le menant au bord de la mort. »
 
-« Il a tout mis en œuvre pour tenter les personnes ayant attiré son attention dans le Royaume Intérieur, comme Sima Mo ou Qing Lin, et si je ne me trompe pas, la folie de Qing Shui doit aussi être liée à cet homme! Il a même utilisé la malveillance de l'implantation du Dao... Tout cela est de sa main. Maintenant qu'il est gravement blessé, je dois saisir cette opportunité! » Une lueur de folie apparut dans les yeux de Wang Lin. Ce qu'il prévoyait de faire était déjà insensé en soi!
+« Il a tout mis en œuvre pour tenter les personnes ayant attiré son attention dans le Royaume Intérieur, comme Sima Mo ou Qing Lin, et si je ne me trompe pas, la folie de Qing Shui doit aussi être liée à cet homme! Plus malveillant encore, il a voulu implanter le Dao... Tout cela est de sa main. Maintenant qu'il est gravement blessé, je dois saisir cette opportunité! » Une lueur de folie apparut dans les yeux de Wang Lin. Ce qu'il prévoyait de faire était déjà insensé en soi!
 
 La lumière de la formation clignota frénétiquement et des grondements tonitruants retentirent. La formation tourna jusqu'à former un vortex qui, dans un fracas assourdissant, disparut de la Planète de l'Empereur. La silhouette de Wang Lin s'évanouit avec elle!
 

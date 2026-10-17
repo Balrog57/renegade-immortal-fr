@@ -36,7 +36,7 @@ Le Royaume Intérieur ne pouvait être comparé au Royaume Extérieur. Si deux c
 
 C'est ainsi que fut formé le Pacte de la Bataille Littéraire!
 
-« La première bataille est celle du raffinage. Vous sortirez des matériaux pour raffiner un trésor. Ce trésor servira pour la première épreuve! Si vous n'êtes pas doué pour les armes, affiner une pilule convient parfaitement! Même le raffinage de l'âme est acceptable! »
+« La première bataille est celle du raffinage. Vous raffinerez un trésor avec les matériaux trouvés sur place. Ce trésor servira pour la première épreuve! Si vous n'êtes pas doué pour les armes, affiner une pilule convient parfaitement! Même le raffinage de l'âme est acceptable! »
 
 « La deuxième sera la bataille de l'intention du Dao! »
 

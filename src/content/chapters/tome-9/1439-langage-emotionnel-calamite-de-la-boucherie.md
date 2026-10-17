@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1439 - Emotional Language, Slaughter Calamity
 slug: langage-emotionnel-calamite-de-la-boucherie
 ---
-Wang Lin avait toujours été décisif. Comment pouvait-il laisser passer une attaque alors qu'on l'avait ciblé dès son arrivée? La Tombe de l'Ordre Ancien était déjà périlleuse, et il ne pouvait compter que sur sa propre force. S'il montrait la moindre faiblesse, il serait assiégé par les autres.
+Wang Lin avait un caractère rancunier, qui lui faisait rendre la moindre offense. Comment pouvait-il laisser passer une attaque alors qu'on l'avait ciblé dès son arrivée? La Tombe de l'Ordre Ancien était déjà périlleuse, et il ne pouvait compter que sur sa propre force. S'il montrait la moindre faiblesse, il serait assiégé par les autres.
 
 Par conséquent, il devait se montrer impitoyable pour affirmer sa puissance!
 
@@ -62,7 +62,7 @@ Derrière l'une des plateformes flottantes au loin, une jeune fille en rouge obs
 
 Elle avait été séparée de l'homme robuste de l'Estimé Clan du Loup Céleste. Ce dernier avait été envoyé dans une zone inconnue, tandis que la jeune fille avait été projetée au même endroit que Wang Lin.
 
-L'expression de Wang Lin restait calme alors qu'il faisait un pas en avant. Il arriva bientôt devant une plateforme flottante haute de 10 000 pieds. Une tête gigantesque trônait sur la plateforme, les yeux ouverts, empreints de colère et de regret. Un immense trou béait entre ses sourcils; sa marque avait été arrachée par quelqu'un.
+L'expression de Wang Lin restait calme alors qu'il faisait un pas en avant. Il arriva bientôt devant une plateforme flottante d'environ 10 000 pieds de large. Une tête gigantesque trônait sur la plateforme, les yeux ouverts, empreints de colère et de regret. Un immense trou béait entre ses sourcils; sa marque avait été arrachée par quelqu'un.
 
 Pourtant, sans même avoir besoin d'examiner la marque, Wang Lin sentit que cette tête appartenait à un Dieu Ancien!
 
@@ -70,7 +70,7 @@ Un drapeau de 30 pieds était planté dans le sol devant la tête. Il ne bougeai
 
 En s'approchant, Wang Lin ressentit une force de rejet. Une barrière protectrice empêchait quiconque d'entrer.
 
-Tandis qu'il observait, son expression changea et il leva les yeux vers le ciel. Un éclat de lumière jaillit et une autre personne fut téléportée. Après avoir vu l'attaque sournoise contre Wang Lin échouer et son assaillant périr, les dizaines de cultivateurs restés dans le ciel devinrent craintifs. Ils n'osaient plus tenter d'attaques surprises.
+Tandis qu'il observait, son expression changea et il leva les yeux vers le ciel. Un éclat de lumière jaillit et une autre personne fut téléportée. Après avoir vu l'attaque sournoise contre Wang Lin échouer et son assaillant périr, la dizaine de cultivateurs restés dans le ciel devinrent craintifs. Ils n'osaient plus tenter d'attaques surprises.
 
 Une femme en blanc apparut. Ses cheveux noirs cascadaient sur ses épaules jusqu'en dessous de sa taille. Son visage était magnifique mais d'une froideur extrême.
 
@@ -86,11 +86,11 @@ Le monde entier ressemblait à une chambre secrète dont la fenêtre aurait ét�
 
 La Tombe de l'Ordre Ancien était close!
 
-À l'instant même où la faille se referma, Wang Lin ressentit soudain un puissant sentiment de danger. Une colonne de brume jaillit brusquement du bas. Un cultivateur ne réagit pas assez vite et fut frappé par le courant. Il poussa un cri déchirant tandis que sa marque, située entre ses sourcils, s'envolait sur le côté.
+À l'instant même où la faille se referma, Wang Lin ressentit soudain un puissant sentiment de danger. Une colonne de brume jaillit brusquement du bas. Un cultivateur ne réagit pas assez vite et fut frappé par le courant. Il poussa un cri déchirant et mourut aussitôt, tandis que la marque numérotée entre ses sourcils se changeait en une rune scintillante qui s'envolait sur le côté.
 
 Ce changement soudain provoqua un tollé parmi les centaines de cultivateurs présents. Certaines plateformes flottantes portant des têtes perdirent leur force protectrice!
 
-Au total, 99 plateformes perdirent leur protection, et plus d'une douzaine de colonnes de brouillard jaillirent vers le ciel. Des cris de détresse résonnèrent alors que les marques entre les sourcils des victimes s'envolaient.
+Au total, 99 plateformes perdirent leur protection, et des dizaines de colonnes de brouillard jaillirent vers le ciel. Tous les cultivateurs qu'elles touchaient périssaient dans des cris atroces, et les marques entre leurs sourcils se changeaient en runes flottant dans les airs.
 
 Une colonne de brouillard fonça également vers Wang Lin. Elle était trop rapide et se rapprocha instantanément à moins de cent pieds de lui. Sans hésiter, Wang Lin bondit sur une plateforme dont la force protectrice avait disparu.
 
@@ -100,9 +100,9 @@ Wang Lin n'était pas le seul à être avisé. Alors qu'il cherchait refuge sur 
 
 Cependant, il n'y avait que 99 plateformes sans protection, les autres étant toujours protégées. Comme il y avait des centaines de plateformes en tout, il était inévitable que plusieurs personnes tentent d'en occuper une seule.
 
-Wang Lin vit clairement deux individus atteindre une plateforme et, alors qu'ils pensaient être en sécurité, une colonne de brouillard de plus de 10 000 pieds de large jaillit. La brume engloutit la plateforme entière, la tête de démon antique et les deux cultivateurs. Ils disparurent sans laisser de trace... Cette force détruirait n'importe quel cultivateur, et même un cultivateur du troisième pas mourrait face à une telle puissance!
+Wang Lin vit clairement deux individus atteindre une plateforme et, alors qu'ils pensaient être en sécurité, une colonne de brouillard de 10 000 pieds de large jaillit. La brume engloutit la plateforme entière, la tête de démon antique et les deux cultivateurs. Ils disparurent sans laisser de trace... Cette force détruirait n'importe quel cultivateur, et même un cultivateur du troisième pas mourrait face à une telle puissance!
 
-Cela ne se produisit pas qu'une seule fois. Dans la panique, plus de 50 plateformes virent arriver plus de deux personnes simultanément. Le monde trembla alors que des colonnes de brume de 10 000 pieds s'élançaient vers le ciel. Cette scène terrifia les survivants!
+Cela ne se produisit pas qu'une seule fois. Dans la panique, plus de 50 plateformes virent arriver au moins deux personnes simultanément. Le monde trembla alors que des colonnes de brume de 10 000 pieds s'élançaient vers le ciel. Cette scène terrifia les survivants!
 
 Les pupilles de Wang Lin se contractèrent et, sans hésiter, ses mains formèrent un sceau. Il agita la main et une aura jaillit de son corps, enveloppant la plateforme de 10 000 pieds pour en interdire l'accès à quiconque!
 
@@ -112,4 +112,6 @@ Pour survivre, il fallait voler et être rapide. Sinon, si deux personnes atteig
 
 À cet instant précis, plus de dix cultivateurs chargèrent Wang Lin, les yeux injectés de sang!
 
-C'était la vie ou la mort, au prix de la vie d'autrui.
+Soit vivre, soit mourir ensemble.
+
+Telle la douce promesse d'amants, mais ici, elle était quelque peu déplacée.

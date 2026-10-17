@@ -32,9 +32,9 @@ Des propos similaires résonnaient partout dans le pays de Zhao. Plus on s'appro
 
 Au cœur de la ville de Su, les portes du manoir des Su restaient ouvertes toute la journée. Elles ne se fermeraient pas avant dix ans.
 
-Wang Lin était assis calmement dans la cour, buvant du vin d'osmanthus tout en observant froidement la centaine d'érudits devant lui. Cela faisait quatre mois qu'il avait annoncé ses dix années de conférences. Plus de mille personnes s'étaient déjà présentées au manoir.
+Wang Lin était assis calmement dans la cour, buvant du vin d'osmanthus tout en observant froidement les centaines d'érudits devant lui. Cela faisait quatre mois qu'il avait annoncé ses dix années de conférences. Plus de mille personnes s'étaient déjà présentées au manoir.
 
-Aujourd'hui, cent autres arrivants remplissaient la cour. Certains se tenaient devant la porte, tandis qu'un peu plus loin, d'innombrables calèches attendaient, abritant des vieillards.
+Aujourd'hui, plusieurs centaines d'autres arrivants remplissaient la cour. Certains se tenaient devant la porte, tandis qu'un peu plus loin, d'innombrables calèches attendaient, abritant des vieillards.
 
 Au fil du temps, de plus en plus d'érudits venus des quatre coins de Zhao accouraient vers la ville de Su.
 
@@ -42,9 +42,9 @@ Au fil du temps, de plus en plus d'érudits venus des quatre coins de Zhao accou
 
 « Je ne saisis pas le sens des changements des quatre saisons. J'espère que Monsieur pourra m'éclairer. » L'homme regarda Wang Lin et joignit légèrement les mains.
 
-« Vous êtes né au printemps, vous avez grandi en été, vous avez vieilli en automne et vous mourrez en hiver. Vous m'interrogez sur le printemps, l'été, l'automne et l'hiver, mais à mes yeux, vous ne faites que vieillir et mourir de maladie! » Wang Lin prit une gorgée de vin.
+« Vous êtes né au printemps, vous avez grandi en été, vous tombez malade et vieillissez en automne, vous fermez les yeux en hiver. Vous m'interrogez sur le printemps, l'été, l'automne et l'hiver, mais à mes yeux, ce sont la naissance, la vieillesse, la maladie et la mort! » Wang Lin prit une gorgée de vin.
 
-L'homme d'âge mûr fut déconcerté par cette réponse et demanda, hébété: « Mais alors, pourquoi vieillit-on et meurt-on de maladie? »
+L'homme d'âge mûr fut déconcerté par cette réponse et demanda, hébété: « Mais alors, pourquoi y a-t-il la naissance, la vieillesse, la maladie et la mort? »
 
 Wang Lin répondit avec nonchalance: « Parce que vous êtes encore en vie. »
 
@@ -54,7 +54,7 @@ L'homme resta figé un long moment, mais l'incompréhension ne quitta pas son re
 
 « Je souhaite poser une question, Monsieur. Je suis un érudit de grand talent; dans ma ville natale, nul ne peut me surpasser. Pourtant, pourquoi les autres réussissent-ils tandis qu'après trente ans, je n'ai rien accompli? » Un vieil homme accablé joignit les mains vers Wang Lin.
 
-« Le pays de Zhao possède des montagnes hautes et basses. Les plus hautes pourraient ne jamais atteindre leur sommet, tandis que les plus basses pourraient abriter une veine spirituelle. Vous ne comparez que la hauteur des monts; pourquoi ne vous contentez-vous pas de les voir comme de simples montagnes? Raccompagnez l'invité! »
+« Le pays de Zhao possède des montagnes hautes et basses. Une haute montagne ne forme pas forcément un pic, et une basse montagne peut fort bien former une chaîne. Vous ne comparez que la hauteur des monts; pourquoi ne pas élargir votre regard? Hautes ou basses, ce ne sont que des montagnes. Raccompagnez l'invité! »
 
 Un murmure de stupeur parcourut la foule. Les innombrables érudits étaient sous le choc et commençaient à méditer ses paroles.
 
@@ -62,17 +62,17 @@ Un jeune homme, incapable de se faufiler dans la cour, cria: « Je demande à Mo
 
 « Bonne question! » Wang Lin se leva et monta les marches, un pichet de vin à la main, jusqu'au point le plus élevé. En contemplant la foule en contrebas, une aura inhabituelle émanait de lui. Le monde semblait s'agiter autour de lui; il voyait au loin une marée humaine qui continuait d'affluer.
 
-Toute la ville paraissait être en mouvement. Presque tous les érudits venus dans la région étaient là, aux côtés de ceux qui l'avaient déjà contesté. Le regard de Wang Lin se posa sur un restaurant au loin. Il y vit un homme d'âge mûr assis à une table.
+Toute la ville paraissait être en mouvement. Tous les érudits venus jusque-là étaient présents, à l'exception de ceux qui l'avaient déjà interrogé les mois précédents. Le regard de Wang Lin se posa sur un restaurant au loin. Il y vit un homme d'âge mûr assis à une table.
 
 Cet homme portait des robes coûteuses et dégageait une autorité naturelle sans même paraître en colère. Entouré de nombreux gardes du corps, il fixait froidement le manoir des Su. Son regard croisa celui de Wang Lin, debout sur les hautes marches.
 
 En observant Wang Lin, les yeux de l'homme s'assombrirent. Il eut l'impression de contempler le Su Dao d'autrefois.
 
-À ses côtés siégeaient deux jeunes gens vêtus de robes taoïstes, les yeux clos et l'expression sereine.
+À ses côtés siégeaient deux jeunes gens vêtus de robes daoïstes, les yeux clos et l'expression sereine.
 
-« Su Dao est mort, et il mourra aussi. Le pays de Zhao n'a pas besoin d'un Grand Érudit! Cependant, il ne peut pas mourir sous notre regard de mortels. Je vous en prie, deux Immortels, aidez-nous. Je ferai tout mon possible pour satisfaire vos exigences. »
+« Su Dao est mort, et il mourra aussi. Le pays de Zhao n'a pas besoin d'un Grand Érudit! Cependant, il ne peut pas mourir de la main de simples mortels comme nous. Je vous en prie, deux Immortels, aidez-moi. Je ferai tout mon possible pour satisfaire vos exigences. »
 
-L'un des jeunes hommes, l'air arrogant, déclara lentement: « Simple mortel, s'il doit mourir, il mourra. »
+L'un des jeunes hommes, l'air arrogant, déclara lentement: « Simple mortel, si tu veux sa mort, il mourra. »
 
 Wang Lin but une gorgée de vin et afficha un sourire désinvolte. Il regarda le jeune homme qui avait posé la question.
 
@@ -94,7 +94,7 @@ Tandis que les érudits continuaient de poser leurs questions, Wang Lin poursuiv
 
 Pourtant, malgré les départs, le nombre de visiteurs ne cessait de croître.
 
-« Monsieur, concernant l'ancien dicton "les mots anciens sont parés de nuages"... Er Gen l'a entendu au début d'une chanson... » Avant que l'érudit n'ait pu achever sa phrase, Wang Lin l'interrompit.
+« Monsieur, un ancien dicton dit: "Quand l'oreille trouve sa place, la cithare commence à chanter librement"... » Avant que l'érudit n'ait pu achever sa phrase, Wang Lin l'interrompit.
 
 « J'ai oublié les textes anciens pour comprendre la vérité du monde et forger mes propres pensées. J'ai oublié ces choses, ne me posez plus de questions! »
 
@@ -120,7 +120,7 @@ Wang Lin connaissait cet homme: c'était Su Yi, le premier disciple de Su Dao, d
 « C'est réellement un Immortel! »
 « Wang Lin a insulté les Immortels, et voilà qu'un Immortel vient le punir. Il l'a bien cherché! »
 
-Le rayon de lumière se rapprochait, porté par une lueur d'épée glaciale. Le jeune homme en robe taoïste maniait son arme avec un mépris souverain. Après un balayage rapide des environs, il se rua sur Wang Lin.
+Le rayon de lumière se rapprochait, porté par une lueur d'épée glaciale. Le jeune homme en robe daoïste maniait son arme avec un mépris souverain. Après un balayage rapide des environs, il se rua sur Wang Lin.
 
 Au moment où le jeune homme s'apprêtait à frapper, Wang Lin laissa échapper un rugissement dénué de toute peur.
 
@@ -128,4 +128,4 @@ Au moment où le jeune homme s'apprêtait à frapper, Wang Lin laissa échapper 
 
 Ce bouleversement soudain pétrifia les érudits agenouillés. Au loin, dans le restaurant, le visage de l'homme d'âge mûr devint instantanément livide.
 
-« Impossible!! » s'exclama le second jeune homme en robe taoïste. Ses yeux s'ouvrirent brusquement, empreints d'incrédulité et de terreur.
+« Impossible!! » s'exclama le second jeune homme en robe daoïste. Ses yeux s'ouvrirent brusquement, empreints d'incrédulité et de terreur.

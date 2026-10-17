@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1657 - Decisive Battle (1)
 slug: bataille-decisive-1
 ---
-Le corps de Dao Feishan trembla. Ce regard avait fait vaciller son esprit. Il avait entendu parler de Wang Lin, mais n'avait jamais considéré ce dernier comme une menace. Après avoir appris que le Souverain et les autres avaient dû piéger Wang Lin pour l'éliminer, il pensait qu'ils faisaient tout un plat de rien du tout.
+Le corps de Dao Feishan trembla. Ce regard avait fait vaciller son esprit. Il avait entendu parler de Wang Lin, mais n'avait jamais considéré ce dernier comme une menace. Après avoir appris que le Souverain et les autres avaient jadis éliminé Wang Lin au moyen d'une formation illusoire, il pensait qu'ils faisaient tout un plat de rien du tout.
 
 Cependant, ce n'est qu'à cet instant qu'il réalisa à quel point Wang Lin était terrifiant. Il avait suffi d'une seule flèche pour tuer le Souverain, une chose qu'il peinait encore à concevoir. La peur monta en lui jusqu'à son paroxysme.
 
@@ -36,9 +36,9 @@ C'était comme si Dao Feishan s'était offert de lui-même pour que Wang Lin lui
 
 Un grondement tonitruant retentit, suivi d'un cri déchirant. Ce n'est qu'alors que les cultivateurs environnants réagirent.
 
-Une fois Dao Feishan percuté au sol, Wang Lin le projeta de nouveau dans les airs. Les yeux du jeune homme s'illuminèrent. Comme il l'avait affirmé, Mu Bingmei n'était pas son amante, mais elle était la mère de Wang Ping. Ce Dao Feishan avait osé nourrir des intentions viles à son égard, et c'était un affront que Wang Lin ne tolérerait jamais!
+Une fois Dao Feishan percuté au sol, Wang Lin le projeta de nouveau dans les airs. Une lueur meurtrière traversa les yeux du jeune homme. Comme il l'avait affirmé, Mu Bingmei n'était pas son amante, mais elle était la mère de Wang Ping. Ce Dao Feishan avait osé nourrir des intentions viles à son égard, et c'était un affront que Wang Lin ne tolérerait jamais!
 
-Il bondit et se rapprocha instantanément de Dao Feishan. Sa main droite pointa vers la poitrine du coupable, et une puissance fulgurante déferla dans le corps de ce dernier. Cette énergie frappa la main droite de Dao Feishan, qui explosa en un amas informe de chair et de sang.
+Il bondit et se rapprocha instantanément de Dao Feishan. Sa main droite pointa vers la poitrine du coupable, et une puissance fulgurante déferla dans le corps de ce dernier. Cette énergie fila droit vers le bras droit de Dao Feishan, qui explosa en un amas informe de chair et de sang.
 
 Sans marquer de pause, Wang Lin pointa à nouveau. Un fracas de tonnerre résonna et le bras gauche de Dao Feishan s'effondra.
 
@@ -78,7 +78,7 @@ Sous l'effet de ce mouvement, la tempête de sang s'effondra et le tonnerre qu'e
 
 La puissance du vent et du tonnerre ne put résister à une seule attaque de Wang Lin. Une fois la tempête balayée, il fit un pas en avant pour se tenir aux côtés de l'homme robuste, désormais plongé dans le désespoir.
 
-Il leva sa main droite et forma une épée avec son index, qu'il pointa négligemment vers le cou de l'homme!
+Il leva sa main droite et forma une épée avec deux doigts, qu'il pointa négligemment vers le cou de l'homme!
 
 — En punition pour avoir blessé mon frère aîné, je veux que tu subisses la plus grande douleur au monde! D'un geste, le cou de l'homme commença à gonfler. Le sang dans son corps s'agita violemment, aspiré par le doigt de Wang Lin.
 
@@ -110,4 +110,4 @@ Alors que ces sept filaments se dissipaient, bien que le regard de Qing Shui fû
 
 Après avoir expulsé le poison du corps de Qing Shui, Wang Lin injecta la boule de brume qu'il avait extraite de l'homme robuste dans le corps de ce dernier.
 
-— En absorbant ceci, la guérison de mon frère aîné pourra s'accélérer! Wang Lin jeta un coup d'œil à la femme en rose qui se tenait aux côtés de Qing Shui et le fixait avec stupeur, puis il leva les yeux vers le ciel.
+— En absorbant ceci, la guérison de mon frère aîné pourra s'accélérer! Wang Lin jeta un coup d'œil à la femme en rose qui se tenait aux côtés de Qing Shui et le fixait avec stupeur, puis il se retourna et s'avança vers le ciel étoilé.

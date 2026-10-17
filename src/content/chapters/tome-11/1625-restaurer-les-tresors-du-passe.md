@@ -34,7 +34,7 @@ Sous cet afflux massif, l'épée du vrai et du faux prit forme.
 
 La sixième épée fut celle de massacre. Ce n'était pas l'épée que Qing Shui avait donnée à Wang Lin, mais une arme qu'il forgea avec sa propre essence de massacre. Une fois cette sixième épée formée, le vortex commença à se dissiper de manière irréversible.
 
-La puissance de la Porte du Vide était extrêmement mystérieuse. Elle ne permettait pas seulement aux cultivateurs de fusionner avec leur essence pour subir une métamorphose semblable à celle de l'Établissement des Fondations; elle pouvait également forger une arme à partir de leur essence. Wang Lin ignorait d'où venait cette arme, et bien moins ce qu'elle était réellement.
+La puissance de la Porte du Vide était extrêmement mystérieuse. Elle ne permettait pas seulement aux cultivateurs de fusionner avec leur essence pour subir une métamorphose semblable à celle de l'Établissement des Fondations; elle pouvait également forger une arme à partir de leur essence. Wang Lin ignorait d'où venait cette force, et bien moins ce qu'elle était réellement.
 
 Il savait toutefois que ce pouvoir mystérieux de la Porte du Vide était extrêmement rare. Un cultivateur ne pouvait probablement le rencontrer qu'une seule fois dans sa vie. Une fois disparu, il n'y aurait plus jamais d'autre chance.
 
@@ -48,7 +48,7 @@ Wang Lin avait compris le sort « Arrêt » après avoir atteint la troisième �
 
 D'un seul mot, un grondement de tonnerre jaillit du vortex. Pour les cultivateurs environnants, ces bruits ressemblaient à des rugissements de colère.
 
-Depuis des temps immémoriaux, tous les cultivateurs ressentaient une crainte révérencieuse envers la Porte du Vide. L'ancien Seigneur du Domaine Scellé était le même. Seul Wang Lin oserait utiliser le sort « Arrêt » sur le vortex de la Porte du Vide!
+Depuis des temps immémoriaux, tous les cultivateurs ressentaient une crainte révérencieuse envers la Porte du Vide. L'ancien Seigneur du Royaume Scellé était le même. Seul Wang Lin oserait utiliser le sort « Arrêt » sur le vortex de la Porte du Vide!
 
 Si c'était avant le Dao des Rêves, Wang Lin ne l'aurait peut-être pas fait, mais après avoir atteint le Dao des Rêves, il possédait l'aura d'un grand érudit. Il avait compris la vérité du monde et pouvait contempler les cieux, la terre et tous les êtres vivants comme de simples fourmis. Ce n'était pas de l'arrogance, mais une forme d'égalité. Que quelque chose existe ou non dans ce monde n'avait plus d'importance.
 
@@ -100,7 +100,7 @@ Tandis que le fragment vert continuait d'absorber la puissance de la Porte du Vi
 
 Voyant la puissance de la Porte du Vide décliner et le vortex sur le point de s'évanouir, Wang Lin leva la main droite. Les six épées d'essence volèrent vers le vortex, créant un impact monstrueux.
 
-C'étaient des trésors forgés par l'essence de Wang Lin; chaque attaque représentait la puissance totale d'un cultivateur du troisième niveau.
+C'étaient des trésors forgés par l'essence de Wang Lin; chaque attaque représentait la puissance totale d'un puissant de la troisième étape.
 
 Alors que les grondements résonnaient, le vortex se déforma. Wang Lin ouvrit la bouche et inspira. Utilisant sa nature d'Âme Dévorante, il aspira encore davantage de puissance de la Porte du Vide qui ne lui appartenait pas.
 

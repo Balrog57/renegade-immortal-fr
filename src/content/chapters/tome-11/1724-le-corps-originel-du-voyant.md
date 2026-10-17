@@ -26,9 +26,9 @@ Dans le Vide Brillant, une immense faille surgit de nulle part. Le puissant corp
 
 Peu après, Wang Lin ouvrit soudainement les yeux et s'élança vers l'horizon.
 
-Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé de son Dao du Rêve.
+Il ne s'était écoulé que quelques respirations depuis qu'il s'était éveillé du cycle de réincarnation de l'Omniscient, dans la Rivière Invoquée.
 
-Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes les âmes des avatars de l'Omniscient arrivèrent à destination. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
+Alors que Wang Lin traversait les failles, dans la Rivière Invoquée, toutes les âmes de l'Omniscient venues des quatre grands systèmes stellaires arrivèrent autour de l'avatar de Wang Lin. Dès que la dernière âme pénétra dans l'avatar de Wang Lin, celui-ci ouvrit brusquement les yeux.
 
 Son regard était empreint de lutte et de douleur. L'âme de l'Omniscient était en train de prendre le contrôle de son esprit et de son corps. En raison du sortilège d'Intégration de la Réincarnation, il était impossible pour quiconque d'interférer avec cette possession.
 
@@ -36,7 +36,7 @@ Une lueur bleue enveloppa l'avatar de Wang Lin. Le Maître du Dao Rêve Bleu se 
 
 « Wang Lin, serais-tu plus rapide que ce vieil homme? » La lutte dans les yeux de Wang Lin devint plus intense encore; son corps tremblait et ses veines gonflaient. Des paroles antiques s'échappèrent de sa bouche, étranges et imprégnées d'un sentiment de décrépitude.
 
-Au moment où l'avatar de Wang Lin parla, son œil droit se déforma pour laisser place à une ombre. Il tourna la tête vers le Maître du Dao Rêve Bleu et ses compagnons d'un mouvement de la main droite, affichant un sourire méprisant.
+Au moment où l'avatar de Wang Lin parla, la distorsion de son œil droit se dissipa, remplacée par une lueur spectrale. Il tourna la tête et regarda de son œil droit le Maître du Dao Rêve Bleu et ses compagnons, un sourire méprisant au coin des lèvres.
 
 « Vous trois n'êtes pas faibles. Puisque vous voulez m'empêcher de partir, je vais vous laisser assister à mon 99e éveil! » L'œil gauche de l'avatar de Wang Lin tressaillit avant de se calmer lentement, dégageant une lueur spectrale. Il s'assit et ferma les yeux.
 
@@ -48,13 +48,13 @@ Les rivières s'étaient asséchées depuis longtemps et les passages étaient e
 
 À première vue, un brouillard sombre enveloppait la planète. Ce brouillard était chargé d'une quantité telle de poison qu'un mortel pourrirait et mourrait instantanément en le respirant. Même des cultivateurs auraient à froncer les sourcils face à une telle toxicité.
 
-Aucune énergie spirituelle ne flottait ici. Par conséquent, aucun cultivateur ne s'y aventurait. Même les cultivateurs du poison évitaient les lieux, car la toxicité seule n'était pas le problème; c'était surtout l'odeur de putréfaction émanant des corps qui était insupportable.
+Aucune énergie spirituelle ne flottait ici. Par conséquent, aucun cultivateur ne s'y aventurait. Même les cultivateurs du poison évitaient les lieux, car le poison de la brume n'était pas violent pour un cultivateur; s'ils fronçaient les sourcils, c'était à cause de l'odeur de putréfaction de cadavres qui s'en dégageait.
 
 Cette planète abandonnée était hideuse et nauséabonde. Bien que tout ici semblât différent de ce que Wang Lin avait vu lors des cycles de réincarnation, l'aura était exactement la même!
 
 Cette aura était l'âme de cette planète. Autrefois, cette âme venait de naître; aujourd'hui, elle était mourante, mais Wang Lin pouvait encore la reconnaître!
 
-En voyant cette planète, Wang Lin se précipita et traversa l'atmosphère ténue pour atterrir sur un continent.
+En voyant cette planète, Wang Lin se précipita et traversa la fragile couche de vents célestes de la planète pour atterrir sur son sol désertique.
 
 Dès son arrivée, le brouillard entourant la planète fut repoussé comme par une violente rafale de vent. C'était comme si un voile était levé, révélant la réalité du monde.
 
@@ -86,11 +86,11 @@ Cette possession s'apparentait à une dévoration, mais différait de ses métho
 
 Bien que ses yeux fussent clos, son corps fusionnait rapidement. Cette fusion constituait son sommeil, et une fois achevée, il s'éveillerait!
 
-C'était son 99e éveil. Une fois éveillé, il pourrait retrouver l'autre amas de brouillard qui lui avait été séparé. En fusionnant avec lui, il pourrait reprendre le contrôle du destin lui-même!
+C'était son 99e éveil. Une fois éveillé, il pourrait retrouver l'autre amas de brouillard qui lui avait été séparé. En fusionnant avec lui, il pourrait reprendre le contrôle de la réincarnation!
 
 À ce moment-là, il deviendrait un Dao Céleste extraordinaire, doté d'une conscience et d'une sagesse dépassant celles de n'importe quel autre être!
 
-Il connaîtrait les sorts et pourrait croître sans dépendre des autres! Ce ne serait pas exagérer de dire qu'une fois le contrôle du destin acquis, les innombrables vies nées dans le monde caverneux lui appartiendraient. Si la vie était manipulée par un Dao Céleste dépourvu de conscience, cela ne poserait pas de problème. Mais si ce Dao Céleste possédait sa propre volonté, ce serait terrifiant!
+Il connaîtrait les sorts et pourrait croître sans dépendre des autres! Ce ne serait pas exagérer de dire qu'une fois la réincarnation reprise en main et le Dao Céleste devenu complet, le destin des innombrables vies nées dans le monde caverneux serait entre ses mains. Si la vie était manipulée par un Dao Céleste dépourvu de conscience, cela ne poserait pas de problème. Mais si ce Dao Céleste possédait sa propre volonté, ce serait terrifiant!
 
 S'il le désirait, il pourrait même dévorer tout ce qui émanait du Dao Céleste. À ce stade, la seule chose qu'il resterait serait ce qui n'est pas né ici: les trois âmes et sept fragments, ainsi que les habitants du Continent Astral Immortel!
 
@@ -112,7 +112,7 @@ Qing Lin et le Maître Hong Shan se rapprochèrent également.
 
 Les yeux de l'Omniscient s'illuminèrent et il agita sa manche. Il ouvrit la bouche pour inspirer. Le monde trembla comme s'il s'inversait, et un brouillard infini envahit le système stellaire, occultant toute vision.
 
-Pourtant, au moment où le brouillard se matérialisait et qu'une gueule illusoire surgissait pour dévorer les trois prétendants, une explosion de lumière bleue jaillit. Une aura d'une puissance inouïe jaillit de la lumière et percuta la gueule monstrueuse.
+Pourtant, au moment où le brouillard se matérialisait et qu'une gueule illusoire surgissait pour dévorer les trois cultivateurs, une explosion de lumière bleue jaillit. Une aura d'une puissance inouïe jaillit de la lumière et percuta la gueule monstrueuse.
 
 Au même instant, une voix glaciale chargée d'intentions meurtrières retentit au loin!
 

@@ -10,7 +10,9 @@ Wang Lin n'avait créé que trois sorts en deux mille ans de culture. Nuit Bris�
 
 Même avec le niveau de culture actuel de Wang Lin, s'il voulait utiliser Nuit Brisée par la force, il devrait altérer l'espace et la planète autour de lui pour atteindre le moment opportun de la journée. Il devait faire preuve d'une prudence extrême en procédant ainsi.
 
-Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps est tout et il est invisible; il est comparable aux cieux.
+Quant à Temps Fluide, bien qu'elle fût inférieure à Nuit Brisée en termes de puissance, la loi du temps était une force à laquelle on ne pouvait résister. Le temps existe en toute chose et il est invisible; il est comparable aux cieux.
+
+Briser la nuit du ciel et de la terre, faire couler la lumière des années, revenir en rêve au Dao antique...
 
 Le troisième sort de Wang Lin fut compris après qu'il eut été gravement blessé lors de son combat contre le Shui Daozi. À la frontière de la mort, Wang Lin était entré dans le mystérieux Domaine du Dao à l'intérieur de la Perle Défiant le Ciel. Même aujourd'hui, il n'était pas certain de ce qu'était réellement ce Domaine du Dao!
 
@@ -40,7 +42,7 @@ Ce faux souvenir existerait éternellement dans l'esprit de la victime et devien
 
 Ce souffle d'air s'échappant de la bouche de Wang Lin était son essence de Dao, qui pénétra dans le Fourneau de l'Empereur... Le Maître Simo regarda l'ombre derrière lui et fut frappé de stupeur. Cette ombre l'avait accompagné pendant des dizaines de milliers d'années et faisait partie intégrante de sa vie. Pourtant, cette silhouette n'avait jamais prononcé un seul mot!
 
-Elle... aurait dû être morte. Une douleur intense lui lacéra le cœur... Le rouleau de soie blanche était un objet qu'elle portait, et ce sang avait été recraché par le Maître Simo sous le coup de son propre chagrin et de son indignation... Le corps du Maître Simo trembla et son expression se mua en entendant ces mots. Il resta pétrifié sur place, oubliant totalement l'os de bête qu'il tenait, oubliant même de poser sa paume dessus.
+Elle... aurait dû être morte. C'était le point le plus douloureux de son cœur, celui qui le transperçait... Le ruban de soie blanche était la corde avec laquelle elle s'était pendue, et la tache de sang en fleur de prunier était la gorgée de sang de nostalgie recrachée par le Maître Simo dans son chagrin et son indignation... Le corps du Maître Simo trembla et son expression se mua en entendant ces mots. Il resta pétrifié sur place, oubliant totalement l'os de bête qu'il tenait, oubliant même de poser sa paume dessus.
 
 La flamme de la taille d'un ongle entre ses sourcils brilla avec une violence accrue!
 
@@ -70,11 +72,11 @@ Elle fixa le garçon et s'exclama bruyamment: « Grand Frère, est-ce que tu m'�
 
 Le visage du garçon devint rouge et il rit, changeant de sujet pour la distraire. Peu après, les deux rirent ensemble en poursuivant leur chemin.
 
-Le temps passa encore une fois et la jeunesse s'envola... « Grand Frère, la Grande Sœur Hong Hong a quelqu'un qu'elle aime. Toi... » La jeune fille avait maintenant seize ans et épanouissait comme une fleur magnifique.
+Le temps passa encore une fois et la jeunesse s'envola... « Grand Frère, la Grande Sœur Hong Hong a quelqu'un qu'elle aime. Toi... » La jeune fille avait maintenant seize ans et s'épanouissait comme une fleur magnifique.
 
 À cet instant, elle regarda le jeune homme frêle devant elle et parla doucement.
 
-Le corps du jeune homme était mince; il n'était pas grand et son teint était un peu sombre, comme s'il était souffrant. Cependant, ses yeux brillaient comme une étincelle dans le cœur d'une jeune fille.
+Le corps du jeune homme était mince; il n'était pas grand et son teint était un peu sombre, comme s'il était souffrant. Cependant, ses yeux brillaient comme une étincelle qui existerait éternellement dans le cœur de la jeune fille.
 
 Au fil des ans, la jeune fille avait compris que même si son frère ne le disait jamais, il avait été très bon envers elle. Dès qu'elle désirait quelque chose, son frère faisait tout son possible pour l'obtenir.
 

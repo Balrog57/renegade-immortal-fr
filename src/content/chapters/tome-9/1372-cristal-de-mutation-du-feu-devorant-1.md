@@ -48,7 +48,7 @@ L'expression de Wang Lin resta impassible. Alors que la lumière fantomatique se
 
 La lumière fantomatique scintilla violemment dans cette main surgie de nulle part, révélant une perle pourpre qui irradiait une intensité croissante.
 
-« Perle du Scorpion Sombre, effondre-toi! » Un rugissement résonna et une aura destructrice émana de la perle en rotation. Juste avant qu'elle n'explose, la main droite de Wang Lin l'écrasa impitoyablement.
+« Perle du Scorpion Noir, effondre-toi! » Un rugissement résonna et une aura destructrice émana de la perle en rotation. Juste avant qu'elle n'explose, la main droite de Wang Lin l'écrasa impitoyablement.
 
 Dans un fracas violent, la perle vola en éclats, libérant sa puissance dévastatrice et pulvérisant cet étage de la tour.
 
@@ -56,7 +56,7 @@ Le jeune maître se retira parmi la poussière, le visage pâle, mais ses yeux �
 
 « Cette perle est assez intéressante », lança la voix indifférente de Wang Lin depuis les décombres. Sa silhouette intacte émergea lentement de la fumée.
 
-À son apparition, le jeune homme afficha un regard d'incrédulité. Son cuir chevelu était engourdi et il en perdit presque la raison. Il connaissait parfaitement la puissance de cette perle du Scorpion Sombre. L'explosion aurait suffi à blesser gravement un cultivateur Scruteur du Nirvana, mais cet homme venait de l'encaisser d'une simple pression de la main sans subir le moindre dommage. La seule pensée de cet acte fit trembler le jeune homme.
+À son apparition, le jeune homme afficha un regard d'incrédulité. Son cuir chevelu était engourdi et il en perdit presque la raison. Il connaissait parfaitement la puissance de cette perle du Scorpion Noir. L'explosion aurait suffi à blesser gravement un cultivateur Scruteur du Nirvana, mais cet homme venait de l'encaisser d'une simple pression de la main sans subir le moindre dommage. La seule pensée de cet acte fit trembler le jeune homme.
 
 Terrifié, il s'apprêtait à fuir quand Wang Lin agita la main droite. Un filet électrique apparut et encercla le jeune homme. Le filet se rétracta immédiatement, suivi du cri de celui-ci. Il perdit toute capacité de résistance, comme scellé dans les airs, et se retrouva suspendu.
 
@@ -64,7 +64,7 @@ Sans même accorder un regard au jeune homme, Wang Lin frappa à nouveau le sol 
 
 « Ils sont vraiment comme des scorpions qui aiment se tapir dans l'obscurité souterraine, refusant toujours de paraître malgré tout cela... » murmura calmement Wang Lin en progressant vers l'étage suivant.
 
-Ainsi continua Wang Lin, descendant étage après étage. Des cris lugubres résonnaient à mesure que d'autres membres du Clan du Scorpion Sombre étaient scellés et projetés dans les airs. Ils étaient désormais des dizaines.
+Ainsi continua Wang Lin, descendant étage après étage. Des cris lugubres résonnaient à mesure que d'autres membres du Clan du Scorpion Noir étaient scellés et projetés dans les airs. Ils étaient désormais des dizaines.
 
 « Votre Excellence est allée trop loin!!! » Alors que Wang Lin poursuivait sa descente, un rugissement soudain jaillit des profondeurs de la tour.
 
@@ -98,7 +98,7 @@ Il portait également une marque de scorpion entre les sourcils, mais comparée 
 
 Ces quatre queues pendaient, dissimulant son visage et lui donnant un air terrifiant. Cependant, à cet instant, il était livide et cracha une gorgée de sang. Il leva soudainement les yeux, le regard empreint d'une lueur féroce, avant de charger Wang Lin.
 
-« Bien que mon Clan du Scorpion Sombre ne soit qu'un petit clan, il est l'un des 372 clans reconnus par la Terre Déchue. Si vous agissez contre moi aujourd'hui, vous vous ferez l'ennemi de toute la Terre Déchue! »
+« Bien que mon Clan du Scorpion Noir ne soit qu'un petit clan, il est l'un des 372 clans reconnus par la Terre Déchue. Si vous agissez contre moi aujourd'hui, vous vous ferez l'ennemi de toute la Terre Déchue! »
 
 « Si tel est le cas, l'Empereur de la Terre Déchue ne vous épargnera certainement pas! »
 

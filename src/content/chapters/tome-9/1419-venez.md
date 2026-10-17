@@ -20,11 +20,11 @@ Si quitter ce monde signifiait devenir un être céleste, alors les paroles de W
 
 Après avoir médité un instant, le premier Oiseau Vermillon laissa échapper un soupir.
 
-« Peut-être as-tu raison... Peu importe, tu réussiras l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
+« Peut-être as-tu raison... Peu importe, tu as réussi l'Épreuve Céleste... Je sais que tu as laissé une goutte de sang de Oiseau Vermillon sur une planète abandonnée pour attirer le Clan des Moineaux de Feu... Ton véritable but est l'essence de feu du Clan des Moineaux de Feu... Ton Oiseau Vermillon s'est éveillé quatre fois et tu as donné naissance au Feu Éthéré. Si tu parviens à dévorer l'essence de feu laissée par le traître, le troisième Oiseau Vermillon, ton essence de feu augmentera considérablement!
 
-« Bien que ce traître fût une imposture, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se laisser quelques mesures de sécurité pour se protéger.
+« Bien que ce traître ait été fabriqué par quelqu'un, c'était la personne la plus talentueuse que j'aie jamais vue. Bien que je l'aie gravement blessé, sa culture était puissante et son esprit rusé. Il a dû se laisser quelques mesures de sécurité pour se protéger.
 
-« Ce vieil homme soupçonne également qu'il possède une autre identité dans le Système d'Étoiles Anciennes. Cependant, je suis incapable de quitter cet endroit, je ne peux donc pas enquêter. Si tu as des projets concernant le Clan des Moineaux de Feu, méfie-toi du traître... Il pourrait être en culture fermée dans la terre sainte du clan... S'il est vraiment là-bas, alors je te donnerai cet objet condensé à partir de mon propre Feu Éternel de Oiseau Vermillon. Avec cela, même si tu rencontres le troisième Oiseau Vermillon, tu pourras sauver ta vie... Et si j'ai tort, prends ceci comme une arme pour te protéger! »
+« Ce vieil homme soupçonne également qu'il possède une autre identité dans le Système Stellaire Antique. Cependant, je suis incapable de quitter cet endroit, je ne peux donc pas enquêter. Si tu as des projets concernant le Clan des Moineaux de Feu, méfie-toi du traître... Il pourrait être en culture fermée dans la terre sainte du clan... S'il est vraiment là-bas, alors je te donnerai cet objet condensé à partir de mon propre Feu Éternel de Oiseau Vermillon. Avec cela, même si tu rencontres le troisième Oiseau Vermillon, tu pourras sauver ta vie... Et si j'ai tort, prends ceci comme une arme pour te protéger! »
 
 Alors que le premier Oiseau Vermillon parlait, le feu aux neuf couleurs entre ses sourcils brilla. Il se condensa en une plume de neuf couleurs qui vola lentement vers Wang Lin.
 
@@ -76,7 +76,7 @@ Sous leurs yeux, le feu de l'encens descendit rapidement et dévora Wang Lin. L'
 
 « Peu importe si sa culture est monstrueuse, il a échoué à cette épreuve. Je veux voir comment le premier Jeune Empereur va le sauver. »
 
-Les cultivateurs environnants étaient en plein tumulte. Maître Simo prit une profonde inspiration et la joie apparut dans ses yeux. Cependant, sitôt apparue, cette joie s'évanouit pour laisser place à un désespoir sans fin.
+Les cultivateurs environnants étaient en plein tumulte. Maître Simo prit une profonde inspiration et la joie apparut dans ses yeux. Cependant, sitôt apparue, cette joie s'évanouit pour laisser place à une noirceur sans fin.
 
 La main droite de la Grande Maîtresse Yun Luo fut de nouveau ensanglantée alors qu'elle était interrompue une fois de plus. Cette fois, ce n'était pas une force étrange qui l'avait stoppée, mais un regard indifférent émanant de l'encens en flammes!
 
@@ -100,15 +100,15 @@ Pour la plupart des cultivateurs, cette sensation ne dura qu'un instant lors du 
 
 Wang Lin s'apprêtait à déployer sa puissance!
 
-Un simple coup d'œil avait suffi à faire trembler le cœur des dix mille cultivateurs alentour. La panique se lut dans leurs yeux et ils baissèrent tous la tête, n'osant plus regarder Wang Lin.
+Un simple coup d'œil avait suffi à faire trembler le cœur des dizaines de milliers de cultivateurs alentour. La panique se lut dans leurs yeux et ils baissèrent tous la tête, n'osant plus regarder Wang Lin.
 
 En particulier, ceux qui s'étaient montrés irrespectueux ou qui avaient médit sur lui devinrent livides. Ils sentaient clairement que, d'une simple pensée, Wang Lin pourrait réduire leurs corps en poussière et transformer leurs âmes originelles en cendres!
 
 Le regard de Wang Lin balaya ces cultivateurs un par un. Peu importe leur niveau de culture, Wang Lin percevait le Feu Éthéré émanant d'eux. Plus leurs émotions fluctuaient, plus le feu devenait intense!
 
-Une puissance sauvage brilla dans les yeux de Wang Lin. Une pointe d'intention meurtrière apparut alors qu'il agitait la main, faisant trembler le monde. Le Feu Éthéré jaillit des corps de tous les cultivateurs environnants. Ce feu dégageait une chaleur incandescente qui fit naître l'effroi dans leurs yeux.
+Une puissante sensation envahit l'esprit de Wang Lin. Une pointe d'intention meurtrière apparut sur son visage alors qu'il agitait la main, faisant trembler le monde. Le Feu Éthéré jaillit des corps de tous les cultivateurs environnants. Ce feu dégageait une chaleur incandescente qui fit naître l'effroi dans leurs yeux.
 
-En un instant, le feu éthéré qui s'était allumé au sein des dix mille cultivateurs s'échappa de leurs corps pour converger vers Wang Lin, toujours perché sur le dos de la tortue géante.
+En un instant, le feu éthéré qui s'était allumé au sein des dizaines de milliers de cultivateurs s'échappa de leurs corps pour converger vers Wang Lin, toujours perché sur le dos de la tortue géante.
 
 La scène était proprement stupéfiante. Le monstrueux Feu Éthéré ressemblait à de la fumée, se transformant en un immense vortex qui fut absorbé par Wang Lin. Les flammes l'enveloppèrent, formant une tempête de feu titanesque!
 

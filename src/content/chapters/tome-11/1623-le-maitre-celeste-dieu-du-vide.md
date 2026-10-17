@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: Chapter 1623 - Heaven Master Void God
 slug: le-maitre-celeste-dieu-du-vide
 ---
-« Mon essence est le karma. Ma paume est la cause karmique, et mon poing fermé est l'effet karmique... Puisqu'il n'a pas été facile pour vous d'atteindre votre niveau de culture, je ne vous tuerai pas aujourd'hui. Je vais saisir votre essence et la sceller pendant mille ans; maintenant, quittez le champ de bataille! » Les yeux de Wang Lin semblaient contenir les cieux et la terre. Une aura puissante jaillit de son corps et percuta le regard du jeune homme aux robes vertes.
+« L'essence aussi est karma: la paume ouverte est la cause, le poing fermé est l'effet... Puisqu'il n'a pas été facile pour vous d'atteindre votre niveau de culture, je ne vous tuerai pas aujourd'hui. Je vais saisir votre essence et la sceller pendant mille ans; maintenant, quittez le champ de bataille! » Les yeux de Wang Lin semblaient contenir les cieux et la terre. Une aura puissante jaillit de son corps et percuta le regard du jeune homme aux robes vertes.
 
 Le jeune homme trembla et son esprit fut assailli de grondements. Il cracha de nouveau du sang, et d'un revers de manche, Wang Lin le força à reculer de plus de 10 000 pieds. Ses yeux étaient ternis, empreints d'une terreur monstrueuse.
 
@@ -24,11 +24,11 @@ Son cœur tremblait de réticence alors qu'il battait en retraite. Il songeait q
 
 Tout cela se produisit en un instant. Wang Lin avait repoussé le jeune homme, puis il se tourna vers le Maître Céleste Dieu du Vide, qui était ralenti par le sort d'Arrêt et débordant d'intentions meurtrières.
 
-« Règlementons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa le Maître Céleste Dieu du Vide et s'avança vers lui.
+« Réglons ce qui s'est passé autrefois. » Le regard de Wang Lin était glacial, bien qu'il restât serein. Il fixa le Maître Céleste Dieu du Vide et s'avança vers lui.
 
-« Dao du Vide des Myriades de Nuages Rouges! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables flammes de joss jaillirent, créant une multitude de nuages rouges incandescents. Des statues gigantesques émergèrent de ces nuages pourpres.
+« Dao du Vide des Myriades de Nuages Rouges! » Le Maître Céleste Dieu du Vide laissa échapper un rugissement et ses mains formèrent un sceau. D'un geste, il ouvrit une immense faille derrière lui. D'innombrables âmes d'encens jaillirent, grimaçantes, soulevant une multitude de nuages rouges incandescents. Dix mille statues gigantesques et floues émergèrent de ces nuages.
 
-« Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse plus bouger d'un pouce! » rugit le Maître Céleste Dieu du Vide en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
+« Écrasez cet homme! Plongez-le dans la réincarnation du monde! Laissez-le tomber dans l'abîme parmi les étoiles afin que son âme ne puisse jamais s'en échapper d'un pouce! » rugit le Maître Céleste Dieu du Vide en pointant le doigt. Les statues s'illuminèrent et s'abattirent sur Wang Lin, comme pour l'ensevelir sous la voûte étoilée.
 
 À cet instant, un vortex gigantesque apparut sous les pieds de Wang Lin. Ce vortex, issu d'un sort, laissait jaillir d'innombrables fantômes qui poussaient des cris lugubres en étendant leurs corps pour encercler Wang Lin, tentant de l'aspirer dans les profondeurs.
 
@@ -44,7 +44,7 @@ Au loin, l'homme aux robes vertes s'arrêta un instant et lutta pour se retourne
 
 Wang Lin resta imperturbable. Alors que les dix mille statues s'abattaient sur lui, il ferma les yeux et fit un pas en avant. Sa démarche n'était pas rapide, pourtant des centaines de statues se refermèrent sur lui.
 
-Cependant, au moment de l'impact, elles traversèrent son corps comme s'il était une illusion, ou peut-être étaient-ce les statues elles-mêmes qui étaient devenues immatérielles. Les grondements tonnerreux continuèrent de résonner derrière Wang Lin, alors que les statues devenaient transparentes en approchant de lui.
+Cependant, au moment de l'impact, elles traversèrent son corps comme s'il était une illusion, ou peut-être étaient-ce les statues elles-mêmes qui étaient devenues immatérielles. Les grondements tonitruants continuèrent de résonner derrière Wang Lin, alors que les statues devenaient transparentes en approchant de lui.
 
 Les pupilles du Maître Céleste Dieu du Vide se rétractèrent de stupeur.
 
@@ -54,7 +54,7 @@ Bien que ses pas ne semblassent pas rapides, Wang Lin atteignit instantanément 
 
 Sa main gauche représentait la vie, sa main droite la mort. La paume de Wang Lin s'abattit, entourée d'un gaz noir. Bien que son coup ne touche que le vide, l'expression du Maître Céleste Dieu du Vide changea radicalement.
 
-Il sentit clairement que la paume de Wang Lin charriait l'aura de la mort. Lors de l'impact, une absence totale de vie sembla envahir le domaine stellaire environnant, comme si cette zone était devenue un royaume de néant. Dès lors, d'innombrables fissures apparurent dans l'espace et s'effondrèrent, libérant une aura de mort infinie.
+Il sentit clairement que la paume de Wang Lin charriait l'aura de la mort. Lors de l'impact, une absence totale de vie sembla envahir le domaine stellaire environnant, comme si cette zone était devenue un domaine de mort. Dès lors, d'innombrables fissures apparurent dans l'espace et s'effondrèrent, libérant une aura de mort infinie.
 
 Le corps du Maître Céleste Dieu du Vide fut projeté en arrière de plusieurs centaines de pieds dans un fracas assourdissant. Alors qu'il relevait la tête, Wang Lin le pointa du doigt.
 
@@ -66,7 +66,7 @@ Mais Wang Lin ne lui laisserait pas une telle chance. En un instant, il se retro
 
 « Tonnerre! »
 
-L'index droit de Wang Lin sembla se muer en un éclair éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième pas.
+L'index droit de Wang Lin sembla se muer en un éclair éternel. Ce tonnerre destructeur portait la puissance de tous les éclairs des Royaumes Intérieur et Extérieur, une force capable d'annihiler des cultivateurs du troisième niveau.
 
 Bien que le Maître Céleste Dieu du Vide fût l'un des Cinq Maîtres et possédât une culture extrêmement élevée, ce n'était là qu'un de ses avatars, situé seulement au début du stade Vide Arcane. Par conséquent, cette puissance de tonnerre pouvait encore le blesser!
 

@@ -6,9 +6,9 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1479 - The Allheaven Star System That is Preparing for War
 slug: le-systeme-stellaire-dallheaven-en-preparation-de-guerre
 ---
-L'atmosphère était tendue dans le système stellaire de Luotian. Dans la partie nord-ouest de Luotian, une formation magnifique composée de 439 planètes se dressait avec majesté. De nombreux cultivateurs se tenaient à l'extérieur de la formation, déposant des sceaux pour en renforcer la structure.
+L'atmosphère était tendue dans le système stellaire de Luotian. Dans la partie nord-ouest de Luotian, une formation magnifique composée de 439 planètes se dressait avec majesté. De nombreux cultivateurs allaient et venaient à l'extérieur de la formation, consolidant sans cesse sa puissance et y apposant des sceaux.
 
-Plus loin encore, des rayons de lumière rouge rugissaient tandis qu'innombrables cultivateurs, agissant sous les ordres, sélectionnaient de vastes quantités de planètes propices à la culture, lesquelles étaient entraînées ici par la force.
+Plus loin encore, des arcs de lumière rugissaient tandis qu'innombrables cultivateurs, par groupes et sous les ordres de leurs chefs, sélectionnaient de vastes quantités de planètes propices à la culture, lesquelles étaient entraînées ici par la force.
 
 Au cœur de cette formation planétaire flottait un nuage de brume. Cette brume n'était pas dense, et l'on pouvait clairement distinguer un vieil homme assis en son sein.
 
@@ -16,7 +16,7 @@ Ce vieil homme portait une robe taoïste et dégageait une aura de majesté sans
 
 Ce vieil homme était un cultivateur du troisième niveau de Luotian. Un cultivateur du stade initial du Vide du Nirvana: Maître Lu Fu!
 
-En tant que rare expert du troisième niveau au sein du Royaume Intérieur, le statut de Maître Lu Fu était extrêmement élevé. Tous les autres cultivateurs n'étaient que des fourmis à ses yeux!
+En tant qu'expert du troisième niveau, extrêmement rare dans ce monde et que l'on ne croise qu'une fois en plusieurs dizaines de milliers d'années, Maître Lu Fu valait presque un dieu immortel, et son statut était extrêmement élevé. Tous les autres cultivateurs n'étaient que des fourmis à ses yeux!
 
 On pouvait dire que Maître Lu Fu était le gardien de l'ensemble du système stellaire de Luotian et l'artisan véritable de la guerre lancée contre le système stellaire de l'Alliance. Seul Tuo Sen l'avait contraint à fuir dans un état pitoyable.
 
@@ -38,7 +38,7 @@ Maître Lu Fu n'était pas le seul au sein de ce vortex planétaire. Quatre Anci
 
 Si Wang Lin avait été là, il les aurait tous reconnus!
 
-Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao qui avait traqué Wang Lin avant d'être arrêté par le Dieu de Sang, Qing Shui!
+Maître Yan Leizi du Temple Céleste du Tonnerre; Lie Yunzi, qui avait été gravement blessé par Wang Wei; l'ancêtre de la famille Yao, le Dieu de Sang, qui avait traqué Wang Lin avant d'être arrêté par Qing Shui, puis s'était remis de ses graves blessures dans l'Alliance!
 
 Outre ces trois-là, le dernier était Xiang Yundong!
 
@@ -60,7 +60,7 @@ Les yeux de Maître Lu Fu brillaient d'une lueur vive. Il avait toujours été p
 
 Par conséquent, ses actions étaient devenues d'une prudence extrême. La pression qu'il venait de ressentir était assez puissante pour l'ébranler. En cet instant, alors que la situation restait obscure, il refusait de s'y exposer lui-même. Après une courte réflexion, il ordonna: « Vous quatre, configurez le Miroir de Luotian. Ce vieil homme veut voir qui est cette personne et pourquoi elle a débarqué à Luotian! »
 
-Maître Yan Leizi et les autres acquiescèrent respectueusement en tentant de reprendre leur calme. Ils se déplacèrent rapidement vers les quatre coins pour s'asseoir, leurs mains formant promptement des sceaux. Ce sort était une technique que Maître Lu Fu leur avait transmise pour qu'ils la pratiquent; ils en maîtrisaient désormais presque parfaitement l'usage.
+Maître Yan Leizi et les autres acquiescèrent respectueusement, l'esprit encore ébranlé, et agirent sans hésiter. Ils se déplacèrent rapidement vers les quatre coins pour s'asseoir, leurs mains formant promptement des sceaux. Ce sort était une technique que Maître Lu Fu leur avait transmise pour qu'ils la pratiquent; ils l'avaient désormais portée à la perfection.
 
 Alors que leurs mains traçaient les sceaux, une lumière blanche jaillit. Cette clarté devint de plus en plus intense entre les quatre hommes. Un instant plus tard, un miroir blanc apparut!
 
@@ -74,7 +74,7 @@ Wang Lin avançait lentement dans le système stellaire de Luotian. Tout lui sem
 
 « Déguerpissez! »
 
-Aussitôt qu'il eut prononcé ces mots, le tatouage de tonnerre jaillit de son œil et le monde trembla. Le sceau perça le vide et disparut!
+Aussitôt qu'il eut prononcé ces mots, le tatouage de tonnerre jaillit de son œil et le monde trembla. Le tatouage perça le vide et disparut, on ne sut où!
 
 Au moment même où le miroir révélait cette silhouette aux cheveux blancs, les paroles de Wang Lin résonnèrent dans leurs oreilles.
 
@@ -88,15 +88,15 @@ Maître Yan Leizi cracha du sang et se retira précipitamment. Ses yeux étaient
 
 « Wang Lin!!! C'est Wang Lin!!! » Il avait clairement vu ses cheveux blancs et sa robe blanche. Il ne pourrait jamais oublier la silhouette de Wang Lin!
 
-Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui avait le plus interagi avec Wang Lin, notamment lors de leur dernière rencontre où il avait été acculé par ce dernier. Ce souvenir était gravé dans son esprit!
+Lie Yunzi cracha également du sang en reculant, terrifié. Il était celui qui avait le plus interagi avec Wang Lin, notamment lors de leur dernière rencontre à la Secte de l'Oiseau Vermillon, où il avait été acculé par ce dernier. Ce souvenir était gravé dans son esprit!
 
 Il réalisa immédiatement que l'homme en blanc était Wang Lin. Il resta abasourdi, incapable de prononcer un seul mot!
 
-« Wang Lin!! C'est lui!! » Le visage du Dieu de Sang devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui aurait dû mourir si Qing Shui n'était pas intervenu — puisse dégager une pression capable de le faire trembler!
+« Wang Lin!! C'est lui!! » Le visage du Dieu de Sang devint livide, son cœur battait la chamade et il battit en retraite. Il ne pouvait croire ce qu'il venait de voir. Il n'aurait jamais imaginé que cette petite fourmi qu'il avait autrefois traquée — et qui serait mort de sa main si Qing Shui ne l'avait pas arrêté — puisse dégager une pression capable de le faire trembler!
 
-Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. Il possédait la culture la plus faible ici. À cet instant, le tonnerre issu de l'âme originelle de Wang Lin avait laissé, comme prévu, une profonde fissure dans son cœur dao.
+Il y avait aussi Xiang Yundong, de la famille Xiang. Son visage était livide. Il possédait la culture la plus faible ici. À cet instant, la puissance du tonnerre émanant mystérieusement de Wang Lin avait envahi son âme originelle et, contre toute attente, laissé une profonde fissure dans son cœur dao.
 
-« Wang Lin!! » Les yeux de Xiang Yundong étaient emplis de panique. Il repensa aussitôt à la façon dont son ancêtre avait drainé la majeure partie de la force vitale de Wang Lin sous prétexte de soigner sa femme. Par conséquent, une rancune profonde les liait!
+« Wang Lin!! » Les yeux de Xiang Yundong étaient emplis de panique. Il repensa aussitôt à la façon dont son ancêtre avait drainé la totalité de la force vitale de Wang Lin sous prétexte de soigner sa femme. Par conséquent, une rancune profonde les liait!
 
 À l'origine, la famille Xiang ne s'en souciait guère. Peu importe la puissance de Wang Lin, face à la famille Xiang, c'était comme frapper un rocher avec un œuf. De plus, l'ancêtre de la famille Xiang était en méditation fermée depuis des dizaines de milliers d'années; sa simple présence dissuadait quiconque de les provoquer.
 
@@ -110,12 +110,12 @@ Un éclair de complexité traversa le regard de Maître Lu Fu, puis il s'enfonç
 
 Alors que ces paroles pénétraient leurs esprits, ils restèrent plongés dans une méditation silencieuse.
 
-Les yeux de Maître Yan Leizi s'illuminèrent et il se calma progressivement. Il se demanda s'il avait maltraité Wang Lin; au contraire, il l'avait même un peu aidé. Il se sentait confiant, bien qu'une pointe de choc persistât dans son esprit.
+Les yeux de Maître Yan Leizi s'illuminèrent et il se calma progressivement. Il s'avoua n'avoir rien fait d'excessif envers Wang Lin, auquel il avait même rendu quelques menus services. Il se sentit peu à peu rassuré, bien qu'une pointe de choc persistât dans son esprit.
 
 L'expression de Lie Yunzi changea à maintes reprises avant qu'il ne laisse échapper un long soupir.
 
 Les plus nerveux restaient le Dieu de Sang et Xiang Yundong.
 
-Un instant plus tard, Xiang Yundong joignit les mains devant Maître Lu Fu et lança un regard complexe aux trois autres. Il brûlait d'envie de transmettre cette nouvelle à sa famille au plus vite afin qu'ils puissent se préparer. Wang Lin était un être contre lequel même l'ancêtre de Luotian, Maître Lu Fu, osait à peine combattre; comment leur famille Xiang pourrait-elle faire face? La seule pensée le plongeait dans l'effroi.
+Un instant plus tard, Xiang Yundong joignit respectueusement les mains en direction de l'endroit où Maître Lu Fu avait disparu, lança un regard complexe aux trois autres, puis se détourna et s'éloigna en hâte. Il brûlait d'envie de transmettre cette nouvelle à sa famille au plus vite afin qu'ils puissent se préparer. Wang Lin était un être contre lequel même l'ancêtre de Luotian, Maître Lu Fu, n'était pas sûr de pouvoir vaincre; comment leur famille Xiang pourrait-elle faire face? La seule pensée le plongeait dans l'effroi.
 
 Quant au Dieu de Sang, après avoir longuement réfléchi, il se rassit. Il... n'osait pas partir!

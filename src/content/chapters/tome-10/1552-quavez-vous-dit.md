@@ -30,7 +30,7 @@ Bouleversé, il se leva lentement. Ses yeux s'illuminèrent comme s'il comptait 
 
 Son regard pouvait transpercer le monde, les Royaumes Intérieur et Extérieur, mais à cet instant précis, il ne parvenait pas à trouver l'être qui lui avait inspiré ce sentiment!
 
-« Serait-ce un descendant royal céleste? » Le Vieux Fantôme Zhan était sous le choc et prit une profonde inspiration. Il ne retrouva son calme qu'après un long moment. Il savait que si le lignage d'un véritable Céleste était extrêmement pur et noble, il permettrait de ressentir l'énergie spirituelle céleste sans pour autant pouvoir en localiser la source!
+« Serait-ce un Royal Céleste? » Le Vieux Fantôme Zhan était sous le choc et prit une profonde inspiration. Il ne retrouva son calme qu'après un long moment. Il savait que si le lignage d'un véritable Céleste était extrêmement pur et noble, il permettrait de ressentir l'énergie spirituelle céleste sans pour autant pouvoir en localiser la source!
 
 C'était un sortilège mystérieux, un sortilège de lignage!
 
@@ -46,11 +46,11 @@ Pour être plus précis, c'était un monde qui se superposait au Royaume Intéri
 
 C'était une peinture cachée dans une autre peinture. Il fallait déchirer la première pour pouvoir entrevoir la vérité qu'elle recelait.
 
-D'innombrables statues d'anciens dieux, de démons et de diables anciens parsemaient cette zone. C'était l'endroit que Wang Lin avait traversé lors de sa rétribution divine, et c'était aussi le lieu d'origine du jeune homme de la Rivière Invoquée.
+D'innombrables statues d'anciens dieux, de monstres et de démons anciens parsemaient cette zone. C'était l'endroit que Wang Lin avait traversé lors de sa Tribulation, et c'était aussi le lieu d'origine du jeune homme de la Rivière Invoquée.
 
 C'était ce fameux Royaume Céleste Antique qui, selon les rumeurs du Royaume Intérieur, avait disparu...
 
-Près de 10 000 statues étaient dispersées dans cette région. À l'entrée, quatre statues se dressaient, bien plus imposantes que les autres.
+Plus de 10 000 statues étaient dispersées dans cette région. Tout au fond, quatre statues se dressaient, bien plus imposantes que les autres.
 
 L'ancien dieu ne portait aucune étoile divine entre ses sourcils; il semblait qu'elles avaient été absorbées. En regardant de plus près, on découvrait un creux profond au milieu de son front.
 
@@ -58,7 +58,7 @@ Une silhouette enveloppée d'une lumière dorée était assise à l'intérieur d
 
 Les trois autres statues principales étaient identiques.
 
-« Énergie spirituelle céleste... Quelle puissance... Si Maître pouvait la saisir, cela accélérerait son éveil et restaurerait sa mémoire! » murmura la silhouette dorée dans la première statue avant de lever la main droite pour tenter d'atteindre l'ancien dieu. Mais dès qu'il fit ce geste, une force étrange émanant de l'ancien dieu se rassembla entre les sourcils pour former un sceau mystérieux.
+« Énergie spirituelle céleste... Quelle puissance... Si Maître pouvait la saisir, cela accélérerait son éveil et restaurerait sa mémoire! » murmura la silhouette dorée dans la première statue avant de lever la main droite pour tenter de sortir du creux de l'ancien dieu. Mais dès qu'il fit ce geste, une force étrange émanant de l'ancien dieu se rassembla entre les sourcils pour former un sceau mystérieux.
 
 La main droite de la silhouette dorée heurta le sceau et fut violemment repoussée. Un rugissement de colère jaillit du creux.
 
@@ -76,21 +76,21 @@ Système stellaire du Vide Brillant, Quartier Général de l'Alliance. La main d
 
 L'expression de Wang Lin était calme, mais son sérieux était palpable. Lorsque Maître Long Pan venait de s'éveiller, il n'était qu'au stade du Nirvana Vide, ce qui avait permis à Wang Lin de lui briser les deux bras.
 
-Cependant, avec l'apparition de la Peinture des Montagnes et des Rivières, Maître Long Pan, fusionné avec la planète, dégageait désormais l'aura puissante d'un cultivateur au milieu du stade Spirituel Vide!
+Cependant, avec l'apparition de la Peinture des Montagnes et des Rivières, Maître Long Pan, fusionné avec la planète, dégageait désormais l'aura puissante d'un cultivateur au milieu du stade Vide Spirituel!
 
-Grâce aux Flammes de Joss provenant de la peinture, son aura s'était encore plus solidifiée et rendue tangible!
+Grâce aux Flammes Joss provenant de la peinture, son aura s'était encore plus solidifiée et rendue tangible!
 
-Wang Lin n'était pas surpris que Maître Long Pan soit un cultivateur de la troisième étape doté des Flammes de Joss. Il était le maître de Maître Zhong Xuan et avait vécu avant l'effondrement du Royaume Céleste. Il appartenait à la même génération que l'ancien Seigneur du Royaume Scellé.
+Wang Lin n'était pas surpris que Maître Long Pan soit un cultivateur de la troisième étape doté des Flammes Joss. Il était le maître de Maître Zhong Xuan et avait vécu avant l'effondrement du Royaume Céleste. Il appartenait à la même génération que l'ancien Seigneur du Royaume Scellé.
 
-Avant l'effondrement des quatre grands Royaumes Célestes, ces derniers servaient à produire les Flammes de Joss. Maître Long Pan avait dû obtenir une immense fortune à cette époque.
+Avant l'effondrement des quatre grands Royaumes Célestes, ces derniers servaient à produire les Flammes Joss. Maître Long Pan avait dû obtenir une immense fortune à cette époque.
 
-Bien qu'on ignorât quand il avait dû fusionner avec la planète, il devait être extrêmement puissant!
+Bien qu'on ignorât pour quelle raison contraignante il avait choisi de fusionner avec la planète, il devait être extrêmement puissant!
 
-« Milieu du stade Spirituel Vide... » Wang Lin songea en silence, ses yeux brillant d'une lueur intense. Bien qu'il semblât avoir aisément tué l'estimé Maître Tian Zhao, il avait en réalité déployé toute sa puissance tout en ignorant les conséquences de la force de rejet.
+« Milieu du stade Vide Spirituel... » Wang Lin songea en silence, ses yeux brillant d'une lueur intense. Bien qu'il semblât avoir aisément tué l'estimé Maître Tian Zhao, il avait en réalité déployé toute sa puissance tout en ignorant les conséquences de la force de rejet.
 
 C'était déjà sa limite! Les répercussions étaient graves et le rejet était extrêmement difficile à réprimer. Il déferlait dans son corps, lui donnant l'impression que sa structure même allait s'effondrer. Bien que cela fût invisible pour autrui, Wang Lin endurait une douleur atroce.
 
-Face à un cultivateur du milieu du stade Spirituel Vide, Wang Lin n'avait aucune certitude de victoire. C'est pourquoi il avait tout risqué en utilisant l'Empreinte de l'Esprit Guerrier!
+Face à un cultivateur du milieu du stade Vide Spirituel, Wang Lin n'avait aucune certitude de victoire. C'est pourquoi il avait tout risqué en utilisant l'Empreinte de l'Esprit Guerrier!
 
 C'était la deuxième fois que Wang Lin utilisait toute sa force sans se soucier de la force de rejet. Toute l'énergie spirituelle céleste en lui avait explosé, et le rejet ravageait son organisme. Sous ses vêtements, ses veines étaient gonflées et saillantes.
 
@@ -114,13 +114,13 @@ Quant à l'Empreinte de l'Esprit Guerrier, elle frappa la Peinture des Montagnes
 
 Cependant, la Peinture des Montagnes et des Rivières était dotée d'un mystère insondable. Dès que les reliefs s'effondrèrent, ils furent instantanément redessinés sur la toile. Simultanément, une empreinte de paume géante apparut et sembla analyser l'Empreinte de l'Esprit Guerrier. Un instant plus tard, elle prit forme et percuta celle de Wang Lin.
 
-Les grondements tonitruants résonnèrent et le monde vacilla. L'aura de l'homme à l'intérieur de la planète sembla croître de nouveau, révélant la puissance terrifiante d'un cultivateur au sommet du milieu du stade Spirituel Vide!
+Les grondements tonitruants résonnèrent et le monde vacilla. L'aura de l'homme à l'intérieur de la planète sembla croître de nouveau, révélant la puissance terrifiante d'un cultivateur au sommet du milieu du stade Vide Spirituel!
 
-« Quiconque attaquera l'Alliance sera anéanti! » Une voix antique retentit, et la Peinture des Montagnes et des Rivières déchirée se rétablit promptement. Elle se déploya pour descendre vers Wang Lin.
+« Quiconque offense mon Alliance verra son Dao s'éteindre, son âme se disperser, sa chair mourir et son corps être anéanti! » Une voix antique retentit, et la Peinture des Montagnes et des Rivières déchirée se rétablit promptement. Elle se déploya pour descendre vers Wang Lin.
 
 Wang Lin eut un sourire colérique et fixa l'homme dans la lumière blanche. Il agita sa main droite et un arc surgit de son corps!
 
-« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. La Mer des Nuages a failli être rayée de la carte, la Rivière Invoquée est tombée, Luotian déploie tous ses efforts et le Vide Brillant est à l'agonie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
+« À quoi sert votre Alliance? Le Royaume Extérieur a envahi les terres et le Royaume Intérieur a subi de lourdes pertes. Les cultivateurs de la Mer des Nuages ont péri en grand nombre, la Rivière Invoquée est tombée, Luotian est prêt à mourir et le Vide Brillant lutte pour sa survie! Pourtant, votre propre disciple est devenu un subalterne du Royaume Extérieur et votre Alliance a été occupée par ce même Royaume! Sans compter qu'un Royaume aux Sept Couleurs se cache ici!
 
 Je suis l'actuel Seigneur du Royaume Scellé. Je suis venu pour détruire le Royaume aux Sept Couleurs, sauver mon Senior Frère Qing Shui et massacrer les cultivateurs du Royaume Extérieur. De quel droit m'interdisez-vous de faire cela?! »
 

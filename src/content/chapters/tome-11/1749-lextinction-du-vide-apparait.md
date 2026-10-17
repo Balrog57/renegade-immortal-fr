@@ -8,7 +8,7 @@ slug: lextinction-du-vide-apparait
 ---
 Dans la partie orientale du vaste Système Stellaire de Luotian se trouvait une planète. Bien que cette planète possédât de l'énergie spirituelle, celle-ci n'était pas dense; c'était une planète de culture ordinaire.
 
-Après les deux guerres, il ne restait plus beaucoup de cultivateurs sur ce monde. Seuls des cultivateurs de l'Établissement des Fondations et de la Formation du Noyau subsistaient. La plupart des sectes avaient été abandonnées.
+Après tant de grandes guerres, il ne restait plus beaucoup de cultivateurs sur ce monde. Seuls des cultivateurs de l'Établissement des Fondations et de la Formation du Noyau subsistaient. La plupart des sectes avaient été abandonnées.
 
 C'était l'automne. Le vent automnal soufflait, faisant tourbillonner les feuilles mortes et jaunies dans le ciel. Une vallée s'étendait entre les montagnes.
 
@@ -16,7 +16,7 @@ La vallée était remplie d'orchidées d'automne. Ce genre d'orchidée ne fleuri
 
 Chaque automne, les orchidées de la vallée étaient magnifiques, mais elles ne fleurissaient que durant moins d'une saison avant l'arrivée de l'hiver. Toutes se flétrissaient jusqu'à ce que la neige les recouvre. Elles disparaissaient dans le froid hivernal pour ne renaître qu'au gré du vent d'automne de l'année suivante.
 
-À présent, la fin de l'automne approchait. Les orchidées de la vallée étaient en pleine floraison, révélant leurs derniers éclats de beauté de l'année.
+À présent, ce n'était pas encore la fin de l'automne. Les orchidées de la vallée étaient en pleine floraison, révélant leurs derniers éclats de beauté de l'année.
 
 Au cœur des orchidées se trouvait une demeure. Cette maison était très délabrée et semblait vide depuis fort longtemps. Peut-être que des milliers d'années auparavant, quelqu'un avait vécu ici avant de mourir parmi les orchidées.
 
@@ -26,7 +26,7 @@ Le vent d'automne balayait la vallée, faisant osciller les fleurs. La brise car
 
 Quelques feuilles jaunes flottèrent silencieusement vers la vallée devant lui. À cet instant, elles occultèrent la vue des orchidées.
 
-Le vieil homme poussa un soupir et leva la tête. Il fut soudain pris d'une violente quinte de toux qui dura longtemps avant qu'il ne se calme. Il observa les feuilles mortes d'un regard étrange, les yeux empreints de regret.
+Le vieil homme poussa un soupir et leva la tête. Il fut soudain pris d'une violente quinte de toux qui dura longtemps avant qu'il ne se calme, son visage étrangement rouge. Il observa les feuilles mortes d'un regard étrange, les yeux empreints de regret.
 
 « L'automne est arrivé... Ces orchidées n'ont plus beaucoup de temps. Bientôt, elles se faneront et mourront... Ce n'est que l'année prochaine qu'elles fleuriront à nouveau, mais je ne serai plus là pour contempler leur éclosion... » Le vieil homme secoua la tête et leva la main. Il observa sa paume et y vit une étrange marque en forme d'orchidée qui émettait des éclats de lumière.
 
@@ -40,7 +40,7 @@ Le vent d'automne emporta ces feuilles vers le ciel, loin de la vallée. Cependa
 
 Wang Lin se tenait là, vêtu de blanc.
 
-Le vieil homme baissa la tête et se retourna lentement. Il regarda Wang Lin avec un regard complexe, mêlant amertume et calme, mais un profond respect se cachait au fond de ses yeux. Après un long moment, il s'agenouilla lentement et murmura:
+Le vieil homme baissa la tête, se leva lentement et se retourna. Il regarda Wang Lin avec un regard complexe, mêlant amertume et calme, mais un profond respect se cachait au fond de ses yeux. Après un long moment, il s'agenouilla lentement et murmura:
 
 « Le disciple Xie Qing salue son Maître... »
 
@@ -60,19 +60,19 @@ Xie Qing, agenouillé là, dit doucement: « La troisième âme du Souverain Cé
 
 « Maître, c'est le destin du Souverain Céleste aux Sept Couleurs. C'est mon destin, je ne peux y échapper. »
 
-« Même entrer dans le cycle de la réincarnation ne servira à rien... La troisième âme s'est enfuie pendant tant d'années, mais voici la fin... Cette troisième âme n'a que des souvenirs; elle n'a ni Sens Divin, ni âme originelle, ni sorts. Bien que l'âme soit puissante, elle n'a aucune capacité de protection. »
+« Même entrer dans le cycle de la réincarnation ne servira à rien... La troisième âme s'est enfuie pendant tant d'années, mais voici la fin... Cette troisième âme n'a que des souvenirs; elle n'a ni pouvoirs divins, ni compréhension. Bien que l'âme soit puissante, elle n'a aucune capacité de protection. »
 
 « Plutôt que d'être dévorée par autrui, je préfère la donner au Maître... » murmura amèrement Xie Qing.
 
 Wang Lin réfléchit en silence, le cœur transpercé par une douleur lancinante. Bien qu'il fût debout, il avait l'impression d'être entré dans une zone de froid extrême. Le gel pénétrait ses os et faisait souffrir tout son corps.
 
-Plus tôt, il avait dit à Qing Shui qu'il tuerait la troisième âme pour assurer sa sécurité, mais comment pourrait-il le faire maintenant? Ce ne serait pas tenir une promesse, ce serait assassiner son propre enfant!
+Plus tôt, il avait dit à Qing Shui qu'il tuerait la troisième âme pour assurer sa sécurité, mais comment pourrait-il le faire maintenant? Ce n'était pas une pitié de femme, c'était le choix de tuer son propre enfant!
 
 Le souvenir de Xie Qing surgit dans l'esprit de Wang Lin. Bien qu'enfouis au plus profond de lui, ces souvenirs étaient si clairs à cet instant; comment pourrait-il les oublier?
 
 Wang Lin attachait de l'importance aux liens!
 
-« Maître, le Disciple a tout préparé... Si je ne meurs pas une fois découvert, les deux autres âmes fusionneront et les sept fragments reviendront automatiquement. Bien que je sente que cinq des sept ont été complètement séparés, les deux restants reviendront... Je sens aussi que ces deux-là sont très importants pour le Maître. Si je ne meurs pas, la troisième âme n'apparaîtra pas. Si je ne meurs pas, ils mourront... »
+« Maître, le Disciple a tout préparé... Si je ne meurs pas, une fois que je serai fusionné par les deux autres âmes, les sept fragments reviendront automatiquement. Bien que je sente que cinq des sept ont été complètement séparés, les deux restants se rassembleront... Je sens aussi que ces deux-là sont des personnes extrêmement importantes pour le Maître. Si je ne meurs pas, la troisième âme n'apparaîtra pas. Si je ne meurs pas, ils mourront... »
 
 « Si je ne meurs pas, les trois âmes du Souverain Céleste aux Sept Couleurs fusionneront en une seule et le Maître mourra... » Xie Qing regarda Wang Lin, les yeux brillants.
 
@@ -80,7 +80,7 @@ Wang Lin attachait de l'importance aux liens!
 
 « À ce moment-là, la troisième âme s'éveillera complètement après mon décès. Elle ouvrira le cœur du monde caverneux, s'y rendra et en ouvrira la porte. Le Maître pourra alors quitter le monde caverneux... »
 
-« Les deux autres sceaux sont des préparatifs pour le Maître. En empruntant la force qui s'engouffrera une fois la porte ouverte, le Maître pourra utiliser cette puissance et la combiner avec ces deux sceaux pour sceller la première et la deuxième âme! »
+« Les deux autres sceaux sont des préparatifs pour le Maître. Au moment où la porte du monde caverneux menant au Continent Astral Immortel sera poussée, en empruntant la force du Continent Astral Immortel qui s'engouffrera soudain, le Maître pourra utiliser cette puissance et la combiner avec ces deux sceaux pour sceller la première et la deuxième âme! »
 
 « Alors, tout s'apaisera... » Tandis qu'il parlait, Xie Qing commença à tousser. Il cracha une bouffée de sang qui éclaboussa les orchidées devant lui. Le rouge macula les fleurs, créant un spectacle saisissant.
 
@@ -106,7 +106,7 @@ Tandis que Xie Qing regardait Wang Lin, des larmes coulèrent sur ses joues. Il 
 
 Grâce au sceau de Xie Qing, la troisième âme ne pouvait entrer dans le cycle de la réincarnation. Les souvenirs se dissipèrent rapidement et, une fois l'effacement complet, Xie Qing disparaîtrait à jamais.
 
-« Ce n'est pas la fin! » Wang Lin, consumé par la rage, baissa soudain la tête. C'était une colère dirigée contre le monde entier. Il fit un pas en avant pour rejoindre Xie Qing. D'un geste de la main, il attrapa la troisième âme.
+« Ce n'est pas la dernière fois! » Wang Lin, consumé par la rage, baissa soudain la tête. C'était une colère dirigée contre le monde entier. Il fit un pas en avant pour rejoindre Xie Qing. D'un geste de la main, il attrapa la troisième âme.
 
 Au moment où il la saisit, l'âme s'éveilla totalement. La planète trembla violemment et le ciel entra en tumulte. Les quatre grands systèmes stellaires furent ébranlés!
 

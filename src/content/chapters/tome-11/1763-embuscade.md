@@ -6,7 +6,7 @@ bookTitle: Mysteries of the Ancient Era
 en: "Chapter 1763 - Ambushed!"
 slug: embuscade
 ---
-« 80 %! » La limite de Wang Lin était de 80 %, et dès qu'il prononça ces mots, son visage devint livide. La force vitale de son corps s'épuisa rapidement et ses traits vieillirent prématurément.
+« Fermeture à 80 %! » La limite de Wang Lin était de 80 %, et dès qu'il prononça ces mots, son visage devint livide. La force vitale de son corps s'épuisa rapidement et ses traits vieillirent prématurément.
 
 Au même instant, le parapluie se referma brusquement. Des cris déchirants résonnèrent; on ignorait combien de personnes venaient de périr.
 
@@ -32,13 +32,13 @@ La lance percuta instantanément le lotus. Au moment de la collision, les cinq p
 
 Le Daoïste aux Sept Couleurs, l'air sombre, apparut enfin. D'un geste vif de la main droite, il fit apparaître une Lance Septicolore identique qui vint heurter celle de Wang Lin.
 
-*Rumble, rumble, rumble, rumble!*
+*Boum, boum, boum, boum!*
 
 Un fracas assourdissant, capable de briser le ciel, retentit. La collision des deux lances déclencha une onde de choc massive. C'est précisément à ce moment que la troisième embuscade de Wang Lin se déclencha!
 
-Alors que l'impact se dissipait, le corps originel de Wang Lin apparut. Les étoiles entre ses sourcils et dans ses yeux tournèrent jusqu'à former un vortex. L'ombre du Dao Antique surgit derrière lui. Son corps original grandit jusqu'à atteindre 10 000 pieds de haut avant de fusionner avec l'ombre. Il leva la Hache Brise-Ciel et, alors que les lances s'entrechoquaient, il abattit son arme.
+Alors que l'impact se dissipait, le corps originel de Wang Lin apparut. Les étoiles entre ses sourcils et dans ses yeux tournèrent jusqu'à former un vortex. L'ombre du Dao Antique surgit derrière lui. Son corps original grandit jusqu'à atteindre 10 000 pieds de haut avant de fusionner avec l'ombre. Il leva la Hache Brise-Ciel et, alors que les lances s'effondraient, il abattit son arme.
 
-Dans un mouvement violent, la Hache Brise-Ciel vola vers le Daoïste aux Sept Couleurs. À cet instant précis, le Vieux Fantôme Zhan sortit de sa retraite.
+Dans un mouvement violent, la Hache Brise-Ciel vola vers le Daoïste aux Sept Couleurs. À cet instant précis, le Vieux Fantôme Zhan sortit de la mer de feu, derrière le Daoïste aux Sept Couleurs.
 
 Les yeux du Vieux Fantôme Zhan s'illuminèrent d'avidité. Tandis que le corps originel de Wang Lin maniait la hache, il chargea vers la troisième âme avant même que Wang Lin ne puisse réagir!
 
@@ -50,7 +50,7 @@ Le Vieux Fantôme Zhan s'immobilisa brusquement, le regard empreint de confusion
 
 Cette illusion pouvait piéger jusqu'au Daoïste aux Sept Couleurs, le Vieux Fantôme Zhan ne pouvait donc l'esquiver non plus. Une fois dévoré par ce visage fantomatique, il se laissa tomber assis, son expression oscillant de façon erratique.
 
-Simultanément, la hache de Wang Lin convergeait vers le Daoïste aux Sept Couleurs, et le sifflement de l'arme déchirant le vide résonna. Wang Lin savait que ce coup ne pourrait blesser le Daoïste, il se contenta donc de chercher à détruire son arme!
+Simultanément, la hache de Wang Lin convergeait vers le Daoïste aux Sept Couleurs, et le sifflement de l'arme déchirant le vide résonna. Wang Lin savait que ce coup ne pourrait blesser le Daoïste, il préféra donc briser son arme!
 
 La Hache Brise-Ciel vola en éclats, libérant une force destructrice colossale. Le corps originel de Wang Lin s'effondra sous l'impact et le sang gicla partout. Cependant, grâce à son Corps Immortel Antique, ses tissus se régénérèrent rapidement alors qu'il reculait vers son avatar. Lorsqu'il fusionna avec ce dernier, il était déjà totalement rétabli.
 
@@ -70,9 +70,9 @@ Le visage de la Tortue Noire pâlit tandis qu'il scrutait les environs. Se remé
 
 Le sentiment du Général Oiseau Vermillon était plus complexe, incapable de réprimer le choc qui secouait son cœur.
 
-La sixième concubine, elle aussi, venait à peine d'échapper à la mer de feu, blessée. En découvrant cette scène terrifiante, sa peur pour Wang Lin refit surface.
+La sixième concubine, elle aussi, venait à peine d'échapper à la mer de feu, blessée. En découvrant cette scène terrifiante, sa peur de Wang Lin refit surface.
 
-En réalité, Wang Lin avait déjà utilisé cinq de ses sept pièges et était lui-même blessé. Son avatar comme son corps originel étaient gravement éprouvés. S'il n'avait pas tenu bon par la seule force de sa volonté, il aurait déjà sombré dans l'inconscience.
+En réalité, Wang Lin était déjà exténué et couvert de blessures. Son avatar comme son corps originel étaient gravement éprouvés. S'il n'avait pas tenu bon par la seule force de sa volonté, il aurait déjà sombré dans l'inconscience.
 
 Il était arrivé le premier pour tendre une embuscade, mais il se trouvait pourtant dans cet état critique. Cela ne faisait que souligner la puissance phénoménale du Daoïste aux Sept Couleurs!
 
@@ -80,7 +80,7 @@ L'intention meurtrière du Daoïste envers Wang Lin atteignit son paroxysme. Il 
 
 Le visage de Wang Lin était pâle, mais ses yeux demeuraient calmes. Alors que l'adversaire convergeait, Wang Lin maintenait toujours l'arc Li Guang dans sa main droite et pointait le Daoïste de la gauche.
 
-« Dao Céleste, dévore le monde! » À cet instant, le monde trembla et une faille gigantesque s'ouvrit devant le Daoïste aux Sept Couleurs. De loin, cette déchirure ressemblait à une gueule béante!
+« Dao Céleste des Limbes, dévore le ciel et la terre! » À cet instant, le monde trembla et une faille gigantesque s'ouvrit devant le Daoïste aux Sept Couleurs. De loin, cette déchirure ressemblait à une gueule béante!
 
 La Bête des Limbes apparut, ouvrant soudainement les yeux pour révéler une froideur et une cruauté sans nom. Alors que le Daoïste s'approchait, elle dévora!
 
@@ -90,7 +90,7 @@ Même une partie de la mer de feu suspendue dans le ciel fut dévorée par la cr
 
 L'expression des trois généraux changea radicalement; ils renforcèrent leur corps pour résister à l'aspiration. Cependant, la sixième concubine ne put lutter contre la force de succion et fut aspirée dans la gueule de la Bête des Limbes en hurlant.
 
-Le Souverain était totalement déconcerté. Il fixait la Bête des Limbes, le visage livide. Lorsqu'il l'avait vue pour la première fois, il avait eu des pressentiments; la scène de son maître se faisant dévorer était un souvenir indélébile. À l'époque, l'expression stupide de la bête l'avait fait hésiter, mais devant ces yeux froids et impitoyables, le Souverain n'hésita pas une seconde à battre en retraite.
+Le Souverain était totalement déconcerté. Il fixait la Bête des Limbes, le visage livide. Lorsqu'il l'avait vue pour la première fois, il avait eu des pressentiments; la scène de son maître se faisant dévorer était un souvenir indélébile. À l'époque, l'expression de la bête l'avait fait hésiter, mais devant ces yeux froids et impitoyables, le Souverain n'hésita pas une seconde à battre en retraite.
 
 Le visage du Daoïste aux Sept Couleurs se décomposa et il s'arrêta net, fixant la Bête des Limbes avec un choc immense.
 

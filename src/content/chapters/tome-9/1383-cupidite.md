@@ -56,9 +56,9 @@ Mais en plus de ses sorts et de ses richesses, Cupidité avait une autre particu
 
 Cela était dû au sortilège logé en lui!
 
-Cupidité pratiquait un sort inconnu qui laissait derrière lui, partout où il passait, une odeur nauséabonde persistante.
+Cupidité pratiquait un sort inconnu qui laissait derrière lui, partout où il passait, une odeur nauséabonde persistante, perceptible de très loin.
 
-À cet instant, les dix cultivateurs entourant Cupidité sentaient également cette puanteur presque insupportable. Cependant, ils n'osaient rien dire et demeuraient respectueux.
+À cet instant, la dizaine de cultivateurs entourant Cupidité sentaient également cette puanteur presque insupportable. Cependant, ils n'osaient rien dire et demeuraient respectueux.
 
 Ils progressèrent rapidement et repérèrent bientôt la planète où se trouvait le Clan du Scorpion Noir. Les yeux de Cupidité s'illuminèrent en fixant la planète de culture au loin; une lueur d'excitation brillait dans son regard.
 
@@ -84,9 +84,9 @@ Il n'en connaissait pas la raison lui-même, mais chaque fois qu'il pensait à W
 
 « Mon ennemi de toujours! Sur la planète Suzaku, la Perle Défiant le Ciel que je convoitais lui a été prise... Dans la Terre de l'Esprit Démoniaque, mon niveau de culture était clairement supérieur, et pourtant il a fini par dévorer mon ancien dragon de tonnerre... Mon dragon de tonnerre! Il m'accompagnait depuis mon enfance; si je l'avais encore, j'aurais pu fusionner avec lui pour devenir un cultivateur du tonnerre! »
 
-« Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis, après avoir souffert aux mains du Serpent aux yeux de lune, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais! »
+« Ensuite, j'ai été contraint par l'Omniscient et les autres de me rendre à Luotian pour traquer Wang Lin. Puis ce maudit Serpent aux yeux de lune m'a avalé jusque dans ses voies excrétrices et, tandis que je souffrais le martyre, j'ai croisé Wang Lin! Il m'a pris mon fourneau, ma Peinture Montagne et Rivière, tout ce que je possédais! »
 
-« Puis, juste au moment où je m'apprêtais à échapper au Serpent aux yeux de lune, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture! » Cupidité se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
+« Puis, juste au moment où je m'apprêtais à sortir de la gueule du Serpent aux yeux de lune, il m'a intercepté et j'ai failli mourir de mes blessures. Heureusement, le ciel n'est pas aveugle et j'ai fini par m'échapper. J'ai réussi à atterrir sur une planète de culture! » Cupidité se remémorait son passé, et ses rencontres avec Wang Lin restaient particulièrement douloureuses.
 
 Il avait passé sa vie à chercher des trésors, mais ce n'est qu'en affrontant Wang Lin qu'il avait tout perdu et frôlé la mort. C'était un cauchemar dont il ne pouvait se défaire.
 
@@ -96,7 +96,7 @@ Cupidité ricana. Il ne pensait pas qu'une telle pensée puisse devenir réalit�
 
 « Ce Clan de l'Évasion Nuageuse possède un trésor capable d'éliminer le sortilège en mon corps. Cependant, je ne peux pas me l'approprier; je vais rester au sein du clan jusqu'à ce que je l'aie suffisamment étudié. Ensuite, je pourrai aller où bon me semble. Le monde est vaste, je ne le recroiserai certainement pas. »
 
-« Maintenant que j'ai compris 80 % de ce trésor et qu'il ne me manque que le légendaire Cadavre de Scorpion Ancien du Clan du Scorpion Noir, je suis sûr à 90 % de pouvoir me débarrasser de ce sortilège! » Tout en méditant ainsi, Cupidité ressentait une certaine mélancolie en repensant à tout ce qu'il avait traversé.
+« Maintenant que j'ai compris 70 à 80 % de ce trésor et qu'il ne me manque que le légendaire Cadavre de Scorpion de Dix Mille Ans du Clan du Scorpion Noir, je suis sûr à 90 % de pouvoir me débarrasser de ce sortilège! » Tout en méditant ainsi, Cupidité ressentait une certaine mélancolie en repensant à tout ce qu'il avait traversé.
 
 « Mes trésors passés... Il est vraiment mon ennemi juré. Heureusement que ce vieil homme se trouve dans le Royaume Extérieur; il n'y a aucun moyen que je le rencontre. Sinon, je crains qu'il ne me dérobe à nouveau tous mes trésors... » La peur de Wang Lin chez Cupidité était née des cauchemars qu'il avait vécus. Bien que son niveau de culture fût plus élevé désormais, il ne parvenait toujours pas à évacuer cette terreur.
 

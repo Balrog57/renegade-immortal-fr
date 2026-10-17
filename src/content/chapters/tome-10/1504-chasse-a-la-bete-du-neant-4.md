@@ -38,7 +38,7 @@ La septième étoile brilla intensément!!
 
 Les sept étoiles dans la bouche spirituelle de la Bête des Limbes brillèrent de mille feux et, dans leur rotation, le sceau de l'âme fut achevé!
 
-Le royaume extérieur, le sceau de l'âme et le sceau interne; Wang Lin en avait complété deux et n'en avait besoin que d'un seul de plus! Une fois que les étoiles de l'Ancien Dieu eurent terminé le sceau, elles retournèrent vers Wang Lin.
+Le sceau extérieur, le sceau de l'âme et le sceau intérieur; Wang Lin en avait complété deux et n'en avait besoin que d'un seul de plus! Une fois que les sept étoiles de l'Ancien Dieu eurent terminé le sceau, elles laissèrent leur empreinte et retournèrent entre les sourcils de Wang Lin.
 
 Cependant, à ce moment précis, un changement stupéfiant se produisit!
 
@@ -60,15 +60,15 @@ Ce changement soudain dépassait les prévisions de Wang Lin. Il n'aurait jamais
 
 Sept couleurs, sept couleurs!!
 
-La lumière aux sept couleurs clignota rapidement et devint encore plus puissante. Des phantoms commencèrent à flotter hors de la gueule de la Bête des Limbes!
+La lumière aux sept couleurs clignota rapidement et devint encore plus puissante. Des silhouettes illusoires commencèrent à flotter hors de la gueule de la Bête des Limbes!
 
-« Éveillé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Attends le chemin de la culture... » Un murmure émana des phantoms qui flottaient hors de la gueule de la Bête des Limbes.
+« Éclairé, prisonnier du Dao céleste, tous les êtres sensibles doivent endurer d'incommensurables calamités. Une seule pensée suffit pour quitter la profonde prison. Attends le chemin de la culture... » Un murmure émana des silhouettes illusoires qui flottaient hors de la gueule de la Bête des Limbes.
 
-« Éveillé, toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échappe à la volonté du ciel et obtiens le chemin de la vie. Attends le chemin de la culture... »
+« Éclairé, toute vie doit marcher éternellement vers l'avant et résoudre l'ère moderne. Échappe à la volonté du ciel et obtiens le chemin de la vie. Attends le chemin de la culture... »
 
-« Éveillé, scelle la volonté des cieux. Grave les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attends le chemin de la culture... » De plus en plus de silhouettes apparurent autour de la Bête des Limbes, finissant par encercler toute la zone!
+« Éclairé, scelle la volonté des cieux. Grave les jours sombres. Toute vie ignore le véritable Dao. L'abîme amer déforme éternellement le véritable Dao. Attends le chemin de la culture... » De plus en plus de silhouettes apparurent autour de la Bête des Limbes, finissant par encercler toute la zone!
 
-« Les Éveillés!!! » Les yeux de Wang Lin s'illuminèrent et il comprit vaguement quelque chose.
+« Les Êtres Éclairés!!! » Les yeux de Wang Lin s'illuminèrent et il comprit vaguement quelque chose.
 
 Il comprit pourquoi la Bête des Limbes ne s'était pas échappée et pourquoi sa personnalité avait été inversée!
 
@@ -80,7 +80,7 @@ Il comprit pourquoi une lumière aux sept couleurs jaillirait de son âme après
 
 « Elle a en fait dévoré un Royaume aux Sept Couleurs au cours des mille dernières années!!! » Wang Lin était sous le choc et n'osait pas le croire.
 
-Son intuition n'était pas erronée. En vérité, après l'apparition de Wang Lin, la Bête des Limbes errait dans la brume. Elle était timide et, bien qu'extrêmement puissante, la moindre bête féroce pouvait l'effrayer.
+Son intuition n'était pas erronée. En vérité, après le bref passage de Wang Lin, la Bête des Limbes errait dans la brume. Elle était timide et, bien qu'extrêmement puissante, la moindre bête féroce pouvait l'effrayer.
 
 Cependant, elle avait manifestement oublié la pression émanant de son corps, celle-là même qui empêchait toute bête ou cultivateur de s'approcher. Partout où elle passait, les bêtes environnantes se dispersaient.
 
@@ -92,7 +92,7 @@ Après un temps indéterminé, une gigantesque faille spatiale apparut devant el
 
 À ce moment précis, une silhouette embarrassée sortit de la faille. Les vêtements de cet homme étaient en lambeaux et, avant même d'avoir pu observer son environnement, il se mit à rire comme un fou.
 
-« Je suis enfin sorti. Je suis enfin sorti de cet endroit maudit. Ce vieil homme est enfin libre... » Cependant, il s'interrompit brusquement. L'homme avait manifestement aperçu la gigantesque Bête des Limbes devant lui et ressentit sa pression terrifiante.
+« Je suis enfin sorti. Je suis enfin sorti de cet endroit maudit. Ce vieux Daoïste est enfin libre... » Cependant, il s'interrompit brusquement. L'homme avait manifestement aperçu la gigantesque Bête des Limbes devant lui et ressentit sa pression terrifiante.
 
 Cette apparition surprit également la Bête des Limbes. L'homme et la bête se fixèrent un court instant avant que des gouttes de sueur froide ne perlent sur le front de l'humain. Son visage pâlit et il poussa un cri déchirant!
 
@@ -110,20 +110,20 @@ Elle resta ainsi dans l'indécision pendant cent ans, fixant la faille comme si 
 
 Après un siècle, elle ne comprenait toujours pas comment la faille était apparue ni ce qu'elle représentait. Cependant, les sept couleurs lui procuraient un immense bonheur; elle refusait donc de partir et demeurait dans son état second.
 
-Pourtant, après une douzaine d'années supplémentaires, un autre incident survint... Les yeux de la Bête des Limbes étaient larges de milliers de pieds, et l'un d'eux se trouvait à moins de dix pieds de la faille spatiale... C'était comme si elle voulait voir ce qui se cachait à l'intérieur.
+Pourtant, après dix années supplémentaires, un autre incident survint... Les yeux de la Bête des Limbes étaient larges de milliers de pieds, et l'un d'eux se trouvait à moins de dix pieds de la faille spatiale... C'était comme si elle voulait voir ce qui se cachait à l'intérieur.
 
 L'homme sorti de la faille semblait avoir lutté pendant cent ans avant de trouver enfin le courage de passer prudemment sa tête.
 
 Ses cheveux étaient ébouriffés et son corps décharné; il paraissait extrêmement misérable. La Bête des Limbes étant trop proche, sa vision était floue, mais dès que celle-ci s'éclaircit, son visage devint livide et il poussa une nouvelle fois ce cri de désespoir!
 
-« Toi... Tu es encore là!! Tu as attendu ici pendant cent ans!! » hurla l'homme en reculant précipitamment dans le Royaume aux Sept Couleurs.
+« Toi... Tu es encore là!! Maudit ciel, tu as attendu ici pendant cent ans!! » hurla l'homme en reculant précipitamment dans le Royaume aux Sept Couleurs.
 
-Ce changement soudain effraya à nouveau la Bête des Limbes. Toutefois, sa mémoire semblait s'être affinée, car elle ne recula que de cent mille pieds. Elle attendit longtemps et, voyant que rien ne sortait plus de la faille, elle ne put plus résister à son attirance pour la lumière aux sept couleurs. Elle se rapprocha prudemment et continua de fixer la faille avec confusion.
+Ce changement soudain effraya à nouveau la Bête des Limbes. Toutefois, sa mémoire semblait s'être affinée, car elle ne recula que de plusieurs centaines de milliers de pieds. Elle attendit longtemps et, voyant que rien ne sortait plus de la faille, elle ne put plus résister à son attirance pour la lumière aux sept couleurs. Elle se rapprocha prudemment et continua de fixer la faille avec confusion.
 
 Le temps passa lentement: 200 ans, 300 ans... 500 ans... Jusqu'au jour où la Bête des Limbes ressentit la faim, mais refusa de partir. Après avoir réfléchi un instant, elle ouvrit la gueule et dévora la faille aux sept couleurs!
 
 Une force d'aspiration surgit, et l'espace même dans lequel résidait le Royaume aux Sept Couleurs fut englouti dans le royaume intérieur de la Bête des Limbes.
 
-Bien que Wang Lin n'eût pas assisté à tout le processus, il pouvait en deviner les étapes et le résultat. Alors que les murmures des Éveillés émanaient de l'intérieur de la créature, un grondement jaillit de sa gueule et une gigantesque tablette de pierre apparut!
+Bien que Wang Lin n'eût pas assisté à tout le processus, il pouvait en deviner les étapes et le résultat. Alors que les murmures des Êtres Éclairés émanaient de l'intérieur de la créature, un grondement jaillit de sa gueule et une gigantesque tablette de pierre apparut!
 
 Du sang écarlate avait servi à graver des sections de scriptures du Dao sur cette tablette de pierre!

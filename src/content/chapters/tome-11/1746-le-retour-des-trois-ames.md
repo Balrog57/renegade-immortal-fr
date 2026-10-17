@@ -14,9 +14,9 @@ Cette âme était enveloppée d'une lumière verte et peu éclatante. Elle s'eff
 
 Le sixième fragment était indigo. Cette lumière indigo dégageait deux sentiments contraires: l'un était doux comme l'eau, l'autre était froid comme la glace!
 
-Ce fragment indigo était façonné par l'amour que le Souverain Céleste avait éprouvé. Bien qu'il eût eu de nombreuses concubines, il n'avait eu qu'une seule partenaire de Dao: Fang Shanmeng.
+Ce fragment indigo était façonné par l'amour que le Souverain Céleste avait éprouvé. Bien qu'il eût eu de nombreuses concubines, il n'avait eu qu'une seule partenaire de Dao: Fan Shanmeng.
 
-Le sixième fragment contenait ses sentiments complexes envers l'amour. Il aimait Fang Shanmeng, mais la détestait aussi. À cause de cet amour et de cette haine mêlés, cette sixième âme était différente des autres.
+Le sixième fragment contenait ses sentiments complexes envers l'amour. Il aimait Fan Shanmeng, mais la détestait aussi. À cause de cet amour et de cette haine mêlés, cette sixième âme était différente des autres.
 
 Le sixième fragment n'était pas un homme, mais une femme!
 
@@ -28,7 +28,7 @@ Le visage de Wang Lin devint livide. Il reconnut cette silhouette. Il n'osait cr
 
 Mu Bingmei était à l'intersection de la douceur et de l'indifférence. Sa vie, peu importe le nombre de ses réincarnations, restait identique! Sa relation avec Wang Lin ne pouvait être décrite que comme complexe et... complexe!
 
-Les sept fragments se séparèrent pour devenir des âmes individuelles. Bien qu'ils fussent liés entre eux, les connexions étaient très faibles. À moins que les trois âmes ne fusionnent, les sept fragments resteraient séparés et continueraient de se réincarner comme tous les autres.
+Les sept fragments se séparèrent pour devenir des âmes individuelles. Bien qu'ils fussent liés entre eux, les connexions étaient très faibles, presque imperceptibles. Tant que les trois âmes ne fusionnaient pas, les sept fragments ne disparaîtraient jamais et se réincarneraient simplement, comme les gens ordinaires, millénaire après millénaire.
 
 Le septième fragment était violet, une couleur extrême. Ce septième esprit représentait la colère et la folie du Souverain Céleste aux Sept Couleurs lors de son effondrement, ainsi que son refus de céder!
 
@@ -66,7 +66,7 @@ La troisième âme traversa la Rivière Invoquée et atteignit le Vide Brillant.
 
 Wang Lin la suivait, utilisant toute sa vitesse pour espérer la rattraper. Il observa la troisième âme, mais elle était nuageuse, dépourvue de toute silhouette intérieure. Elle était manifestement différente des deux autres âmes; avant de se réincarner, elle n'avait aucune apparence!
 
-La troisième âme marqua un temps d'arrêt devant une planète abandonnée. Cependant, finalement, elle ne choisit pas cet endroit et passa son chemin.
+La troisième âme marqua un temps d'arrêt devant une planète sauvage. Cependant, finalement, elle ne choisit pas cet endroit et passa son chemin.
 
 Après un temps indéterminé, Wang Lin suivait toujours la troisième âme. Après avoir fait le tour du Vide Brillant, celle-ci accéléra soudainement et fonça vers la Mer des Nuages!
 
@@ -76,7 +76,7 @@ Pourtant, en y réfléchissant, un frisson soudain parcourut le cœur de Wang Li
 
 « Cette troisième âme a tourné autour du Vide Brillant comme si elle cherchait quelque chose... Ou peut-être savait-elle que le Daoïste aux Sept Couleurs la chercherait des millénaires plus tard, et qu'elle s'était donc intentionnellement attardée dans le Vide Brillant... » Wang Lin secoua la tête. Il trouvait cette idée tout simplement trop absurde.
 
-La troisième âme vola vers l'arrière de la Mer des Nuages et pénétra sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
+La troisième âme vola vers la Mer des Nuages de l'époque future et disparut en un éclair sur une planète sauvage! Wang Lin arriva et fixa l'astre du regard.
 
 Le temps passa. Un jour donné, la planète s'effondra et se dispersa dans toutes les directions. Des nuées de poussière se répandirent, enveloppant le lieu. Sur l'un des fragments, un python mourut et un rayon de lumière s'élança vers le système stellaire.
 
@@ -102,7 +102,7 @@ Cette troisième âme devint un mortel sur la planète Suzaku. Ce mortel ne prat
 
 Son nom était Su Dao!
 
-Wang Lin ne se vit pas lui-même, mais le choc qui secoua son esprit fut comparable à une vague monstrueuse! Il ignorait pourquoi cet homme était apparu dans son propre chemin de Dao. Il ignorait pourquoi Su Dao l'avait accepté comme disciple dans son chemin de Dao onirique.
+Wang Lin ne se vit pas lui-même, mais le choc qui secoua son esprit fut comparable à une vague monstrueuse! Il ignorait pourquoi cet homme existait dans le Dao du Rêve. Il ignorait pourquoi, dans le Dao du Rêve, Su Dao l'avait accepté comme disciple.
 
 C'était comme s'il existait un cycle de karma entre eux! Cependant, Wang Lin ne parvenait pas à trouver la cause karmique; il n'en voyait que l'effet.
 
@@ -124,4 +124,4 @@ Wang Lin regarda la troisième âme se réincarner des centaines de fois. Lors d
 
 C'était comme si elle s'était réincarnée des centaines de fois pour attendre ce pêcheur, pour attendre cet appât!
 
-« Nei Zi est sur le point d'accoucher. Aujourd'hui, je vais juste attraper celui-là et rentrer à la maison! »
+« Ma femme est sur le point d'accoucher. Aujourd'hui, je n'attrape que celui-là et je rentre à la maison! »

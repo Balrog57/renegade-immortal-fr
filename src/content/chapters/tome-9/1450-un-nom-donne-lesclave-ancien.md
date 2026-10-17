@@ -52,7 +52,7 @@ Wang Lin attendait ce moment précis. Dès que cette confusion apparut, une lueu
 
 Devant lui agenouillé se trouvait un homme d'âge moyen. Cet homme était Ling Dong.
 
-« Le vrai nom de Maître est... Wang Lin! »
+« Le vrai nom de ton maître n'est pas celui que tu connais, mais... Wang Lin! »
 
 « Wang Lin... » L'homme fut stupéfait. Ce nom lui était familier.
 
@@ -62,7 +62,7 @@ Dans le Système des Étoiles Anciennes, un vieil homme fuyait précipitamment. 
 
 Les trois poursuivants se rapprochèrent soudainement, leurs sorts se transformant en trois dragons. Alors que les créatures approchaient, le vieil homme afficha un sourire misérable. Il avait décidé de s'autodétruire pour les emporter avec lui.
 
-À cet instant précis, une douce lumière apparut dans le vide et balaya les trois poursuivants. Ces derniers crachèrent du sang et reculèrent, terrifiés.
+À cet instant précis, une douce lumière s'éleva dans le ciel étoilé et une main immense et illusoire apparut; d'un geste, elle balaya les trois poursuivants. Ces derniers crachèrent du sang et reculèrent, terrifiés.
 
 « La personne qui vous a sauvés est Wang Lin! »
 

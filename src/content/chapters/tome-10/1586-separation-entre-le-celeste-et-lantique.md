@@ -10,13 +10,13 @@ Wang Lin leva la tête et regarda l'homme en robe noire. Comment aurait-il pu ou
 
 Le chef des cinq maîtres du Système Stellaire Antique. Un être d'une ruse infinie qui avait comploté contre le ciel et la terre!
 
-Qu'il s'agisse du meurtre de l'ancien Seigneur du Royaume Scellé, de la destruction des quatre Royaumes Célestes, des manigances contre l'Empereur Céleste Qing Lin, de la mise en place du Clan du Tatouage pour traquer la flèche de Li Guang, de la trahison du Shui Daozi, de la chute du Maître Simo, de la mort de l'ancêtre de la famille Zhan ou de tant d'autres événements, l'ombre du Souverain planait sur chacun d'eux!
+Qu'il s'agisse du meurtre de l'ancien Seigneur du Royaume Scellé, de la destruction des quatre Royaumes Célestes, des manigances contre l'Empereur Céleste Qing Lin, de la mise en place du Clan du Tatouage pour traquer la flèche de Li Guang, de la trahison du Shui Daozi, de la reddition du Maître Simo, de la mort de l'ancêtre de la famille Zhan ou de tant d'autres événements, l'ombre du Souverain planait sur chacun d'eux!
 
 Dans le Système Stellaire Antique, Wang Lin avait eu ce pressentiment diffus que son esprit était manipulé. Avec le recul, il devait s'agir là aussi d'un acte du Souverain.
 
 Dans la mémoire de Wang Lin, il restait un sort qu'il ne pouvait effacer: Pêcher la Lune dans le Puits!
 
-Il avait vu ce sort lorsqu'il affrontait le troisième Oiseau Vermillon, qu'il soupçonnait être le Souverain. En voyant l'eau, il avait craint que cette calamité ne soit elle aussi un « Pêcher la Lune dans le Puits »!
+Il avait vu ce sort dans le Clan des Moineaux de Feu, chez celui qu'il soupçonnait d'être une incarnation du Souverain. Lors de cette calamité, en voyant la terre telle la surface d'un puits, il avait déjà acquis une certitude profonde: cet endroit aussi n'était qu'un « Pêcher la Lune dans le Puits »!
 
 Et ce qui avait été pêché, c’était la planète Suzaku et Wang Lin lui-même!
 
@@ -24,7 +24,7 @@ Et ce qui avait été pêché, c’était la planète Suzaku et Wang Lin lui-mê
 
 La concubine impériale céleste qui n'avait pas péri se tenait hébétée entre eux deux. Elle recula de quelques pas, plongée dans le silence.
 
-L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Rêve Bleu n'avait pas eu pitié de vous, vous seriez déjà devenu le pion de ce vieil homme. » Il serra ensuite l'arc avec nonchalance, et la flèche trembla avant de se dissiper dans sa main.
+L'homme en robe noire sembla sourire et dit d'une voix rauque: « Si Rêve Bleu n'avait pas eu pitié de vous, vous seriez déjà devenu le pion de ce vieil homme. » Il referma ensuite la main droite, et la flèche trembla avant de se dissiper dans sa main.
 
 Il redoutait la puissance de cette flèche, c'est pourquoi il avait retardé son apparition. Il avait attendu que Wang Lin utilise l'arme pour se révéler.
 
@@ -46,7 +46,7 @@ Soudain, le ciel bleu disparut sans laisser de trace, remplacé par une lumière
 
 L'astre apparut et resta suspendu. L'aura de la Loi d'Origine se propagea. Tandis que l'éclat solaire jaillissait, la silhouette du Souverain devint sombre; à chacun de ses pas, des halos se mirent à graviter autour de lui.
 
-« Hormis cette flèche, vous n'avez plus rien pour vous opposer à moi... Au commencement était la lumière, et cette lumière est l'une des essences que ce vieil homme a maîtrisées. Essence de la Loi d'Origine... sous le pouvoir de la Loi d'Origine, vos pouvoirs antiques et célestes seront séparés! » La voix du Souverain résonna avec une antiquité profonde, tandis que toute la lumière du monde convergeait pour former un pilier de feu sur Wang Lin.
+« Hormis cette flèche, vous n'avez plus rien pour vous opposer à moi... Au commencement était la lumière, et cette lumière est l'une des essences que ce vieil homme a maîtrisées. Essence de la Loi d'Origine... sous le pouvoir de la Loi d'Origine, vos pouvoirs antiques et célestes seront séparés! » La voix du Souverain résonna avec une antiquité profonde, tandis que toute la lumière du monde convergeait pour former un pilier de lumière sur Wang Lin.
 
 Wang Lin ne pouvait résister à une telle puissance absolue. Une douleur fulgurante déchira son corps alors que la lumière l'enveloppait; elle était aussi brûlante qu'un soleil. Wang Lin sentit la Loi d'Origine familière consumer tout en lui, y compris les âmes errantes.
 
@@ -64,7 +64,7 @@ Il lui restait encore un atout qu'il n'avait pas utilisé!
 
 Cet atout était sans doute hors de son contrôle, mais à cet instant, Wang Lin s'en moquait. Il attendait le moment crucial, attendant que le Souverain se rapproche. Peut-être alors cet atout pourrait-il tout changer!
 
-La silhouette noire ne montra aucune émotion face au regard intense de Wang Lin. Son index droit s'étira lentement avec les quatre autres doigts pour former une paume. Tandis que la Loi d'Origine forçait la séparation des pouvoirs antiques et célestes, il s'avança de plus en plus vers Wang Lin, sa main tendue vers lui.
+La silhouette noire ne montra aucune émotion face au regard intense de Wang Lin. Il rétracta son index droit et déploya lentement les quatre autres doigts pour former une paume complète. Tandis que la Loi d'Origine forçait la séparation des pouvoirs antiques et célestes, il s'avança de plus en plus vers Wang Lin, sa main tendue vers lui.
 
 « Pêcher la Lune dans le Puits! » En tendant la main, son reflet à la surface de l'eau fit de même vers Wang Lin.
 
@@ -82,7 +82,7 @@ De loin, la scène était terrifiante. Le sang doré qui jaillissait du corps de
 
 C'était comme une âme. Wang Lin semblait avoir été scindé en deux, et cette figure de lumière dorée se détacha lentement de son corps. Elle flottait à quelques centimètres au-dessus de lui, alors que les derniers filaments de lumière les reliant s'amenuisaient!
 
-Lorsque la silhouette dorée s'élança, les étoiles du Dieu Antique apparurent chez Wang Lin, mais sans aucune lueur d'or. Même les étoiles du Démon Antique dans son œil droit avaient perdu leur éclat doré!
+Lorsque la silhouette dorée s'élança, les étoiles du Dieu Antique entre les sourcils de Wang Lin changèrent, et n'avaient plus aucune lueur d'or. Même les étoiles du Démon Antique dans son œil droit avaient perdu leur éclat doré!
 
 Les yeux de l'homme en robe noire s'illuminèrent et il tendit la main sans merci. Le dernier lien de lumière se brisa. La lignée céleste de Wang Lin était désormais totalement séparée de son corps!
 
@@ -98,7 +98,7 @@ Le Souverain perdait rarement son sang-froid; seul ce sang pouvait provoquer une
 
 À cet instant, le Souverain fit un pas en avant, sa main droite tendue vers la goutte dorée.
 
-Mais au moment où il allait la saisir, un regard d'une froideur monstrueuse s'illumina dans les yeux de Wang Lin. Il mordit le bout de sa langue et cracha une bouffée de son sang antique comme une flèche. Cela ouvrit son espace de stockage et un palais noir s'en échappa!
+Mais au moment où il allait la saisir, un regard d'une froideur monstrueuse s'illumina dans les yeux de Wang Lin. Il mordit le bout de sa langue et cracha une bouffée de son sang antique, qui se mua en lame de sang. Cela ouvrit son espace de stockage et un palais noir s'en échappa!
 
 Dès l'apparition du palais, le monde s'obscurcit; le sang antique de Wang Lin atterrit sur l'une des fenêtres, la teintant de pourpre.
 

@@ -72,7 +72,7 @@ Une froideur cachée perçait dans le regard de Fan Shanmeng. Elle devait obteni
 
 « Cette affaire est ridicule. Je veux voir comment il compte s'y prendre. S'il échoue et refuse toujours de me donner son Serment de Sang, j'aurai d'autres moyens de le traiter! » Une froideur glaciale se cachait dans les yeux de Fan Shanmeng, mais elle afficha un sourire empreint de douceur en regardant Wang Lin.
 
-Alors que le Sens Divin de Wang Lin se déployait, les étoiles de l'Ancien entre ses sourcils apparurent, formant un vortex. Les étoiles démoniaques et diaboliques dans ses yeux gauche et droit surgirent également. Le pouvoir des trois anciens clans fusionna pour engendrer une puissance primordiale unique. Une ombre de l'Ancien se matérialisa soudainement autour de Wang Lin.
+Alors que le Sens Divin de Wang Lin se déployait, les étoiles de l'Ancien entre ses sourcils apparurent, formant un vortex. Les étoiles démoniaques et diaboliques dans ses yeux gauche et droit surgirent également. Le pouvoir des trois anciens clans fusionna pour former la puissance de l'Ancien. Une ombre de l'Ancien se matérialisa soudainement autour de Wang Lin.
 
 Cette ombre antique enveloppa immédiatement Wang Lin et prit place à ses côtés. De loin, le spectacle était saisissant.
 
@@ -106,4 +106,4 @@ Ces restrictions étaient toutes distinctes et si densément compactées qu'elle
 
 L'expression de Wang Lin resta imperturbable alors qu'il pointait l'une des restrictions. Des processus de déduction commencèrent à briller dans ses yeux.
 
-« Ce pont n'est que la périphérie du navire, et pourtant il contient des dizaines de milliers de restrictions. Trois jours seront effectivement un peu courts... »
+« Ce pont n'est que la périphérie du navire, et pourtant il renferme une multitude de restrictions en tout genre. Trois jours seront effectivement un peu courts... »

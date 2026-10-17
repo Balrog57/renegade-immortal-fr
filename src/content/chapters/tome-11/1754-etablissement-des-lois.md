@@ -8,7 +8,7 @@ slug: etablissement-des-lois
 ---
 Peu de temps après, les quatre généraux et les disciples de la Secte des Sept Dao firent leur entrée, suivis des concubines célestes. En entrant, tous affichaient des expressions complexes.
 
-L'un des êtres célestes originaires du Continent Astral Immortel laissa échapper un soupir et s'avança. Il n'activa aucune des restrictions en présence tandis qu'il se rapprochait du fourneau.
+L'un des êtres célestes originaires de l'Ancien Royaume Céleste laissa échapper un soupir et s'avança. Il n'activa aucune des restrictions en présence tandis qu'il se rapprochait du fourneau.
 
 Derrière lui, les autres observaient les ruines en contrebas. Certains plissèrent les yeux et s'arrêtèrent.
 
@@ -42,11 +42,11 @@ Au sommet de la montagne, les yeux de Wang Lin brillaient intensément.
 
 Grâce à la vélocité de l'épée et à la puissance du sort de Wang Lin, elle atteignit une vitesse de Déformation Spatiale. En un éclair, elle apparut sous le vieil homme.
 
-Le vieil homme paniqua. Tandis qu'il tombait, les effets de la chute atmosphérique se manifestèrent et des craquements retentirent dans son corps.
+Le vieil homme paniqua. Tandis qu'il tombait, sa vitesse de chute engendra dans le ciel étoilé une sorte de vent violent qui se rua sur son corps, et des craquements retentirent en lui.
 
-Réprimant une terreur qu'il n'avait jamais ressentie auparavant, il agita la main. Un fouet apparut, vola sous ses pieds et le souleva.
+Réprimant une terreur qu'il n'avait jamais ressentie auparavant, il agita la main. Un chasse-mouches apparut, vola sous ses pieds et le souleva.
 
-Le visage du vieil homme était d'une pâleur mortelle. Même à cet instant, il ne comprenait pas pourquoi il avait perdu l'usage du vol. Mais avant qu'il ne puisse réfléchir, un éclat de lumière sanglante surgit. Alors même que le fouet le maintenait en l'air, l'épée le transperça entre les yeux!
+Le visage du vieil homme était d'une pâleur mortelle. Même à cet instant, il ne comprenait pas pourquoi il avait perdu l'usage du vol. Mais avant qu'il ne puisse réfléchir, un éclat de lumière sanglante surgit. Alors même que le chasse-mouches le maintenait en l'air, l'épée le transperça entre les yeux!
 
 Le vieil homme cracha une gorgée de sang et une quantité massive de sang jaillit de ses sourcils. Son corps trembla puis s'effondra instantanément. Même son âme originelle fut brisée par l'épée; il mourut sur le coup!
 
@@ -62,7 +62,7 @@ L'épée de sang revint près de Wang Lin en bourdonnant. Wang Lin abaissa ses m
 
 « Si personne ne vient dans les sept jours, je devrai passer à un autre monde. »
 
-À ce moment, tout le monde était arrivé à la première fleur et aux 300 gouttes de rosée. Wang Lin attendait que le prochain occupant pénètre dans ce monde.
+À ce moment, tous ceux qui étaient entrés se trouvaient dans les 300 gouttes de rosée de la première fleur, au cœur de la grotte. Wang Lin guettait dans ses 300 mondes détruits le deuxième à pénétrer dans son monde de rosée.
 
 Le temps s'écoulait lentement. En un éclair, cinq jours passèrent. Durant cette période, Wang Lin resta immergé dans sa troisième âme, tentant d'en absorber davantage de souvenirs.
 
@@ -98,7 +98,7 @@ Son timing fut parfait. Juste au moment où les trois inspectaient les environs 
 
 Un autre fut éclaboussé par le sang de son compagnon de secte. Mais alors qu'il s'apprêtait à battre en retraite, terrifié, sa vision fut obscurcie par une silhouette blanche. Le doigt de Wang Lin atteignit son entre-sourcils et son corps s'effondra.
 
-Tout cela se produisit avec une rapidité fulgurante. En un clin d'œil, deux des trois cibles étaient mortes! Le cultivateur du début du Nirvana Vide n'hésita pas à reculer. Simultanément, il tendit la main derrière lui pour saisir un bâton d'encens, s'apprêtant à l'allumer.
+Tout cela se produisit avec une rapidité fulgurante. En un clin d'œil, deux des trois cibles étaient mortes! Le cultivateur du début du Nirvana Vide n'hésita pas à reculer. Simultanément, d'un geste de la main droite dans le vide, il saisit un bâton d'encens, s'apprêtant à l'allumer.
 
 Cependant, à cet instant précis, il poussa un cri. Avant même de pouvoir embraser l'encens, il commença soudainement à chuter. Son expression se décomposa violemment!
 

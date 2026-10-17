@@ -6,13 +6,13 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1606 - A Guest From Xue Yue
 slug: un-invite-de-xue-yue
 ---
-Wang Lin ignorait si ses paroles auraient la moindre utilité, et il était lui-même plongé dans la confusion. Après un long moment, il ramassa la pilule. Un instant plus tard, il poussa un soupir et s'éloigna.
+Wang Lin ignorait si ses paroles auraient la moindre utilité, et il était lui-même plongé dans la confusion. Après un long moment, il ramassa la pilule et la rangea contre sa poitrine. Il poussa un soupir et s'éloigna.
 
 Il marcha seul sur la planète Suzaku. Sans jamais rester en un même lieu, il traversa d'innombrables montagnes et rivières, porté par sa compréhension du monde. Il voyagea de pays en pays.
 
 Les années passèrent, et Wang Lin dévora cette pilule. Elle lui insuffla une énergie infinie et la force nécessaire pour accomplir son souhait de parcourir le monde.
 
-En chemin, il croisa d'innombrables visages étranges. Certains étaient bienveillants, d'autres féroces, certains confus et d'autres obstinés.
+En chemin, il dormait au pied des montagnes et se reposait au bord des rivières; il croisa d'innombrables visages étranges. Certains étaient bienveillants, d'autres féroces, certains confus et d'autres obstinés.
 
 Il rencontra des brigands et des bandits, mais à chaque fois, il lui suffisait de rester immobile pour qu'ils ressentent l'aura puissante qui émanait de lui. Wang Lin pouvait effrayer les cultivateurs, alors ne parlons même pas des mortels.
 
@@ -22,11 +22,11 @@ Il visita tant de cités et vit tant de gens. Il pénétra même dans de nombreu
 
 Il croisa bien des souverains jouissant d'un statut prestigieux, mais à ses yeux, tous se valaient. Il n'y avait aucune différence.
 
-Ce n'est pas qu'il y eût des hommes désireux de lui ôter la vie, mais quiconque nourrissait une telle intention finissait par reculer avec crainte devant lui.
+Ce n'est pas qu'il n'y eût personne désireux de lui ôter la vie, mais quiconque nourrissait une telle intention finissait par reculer avec crainte devant lui.
 
 Dans le pays de Wu, au cœur d'un palais entouré de milliers de soldats, l'empereur, capable de faire bouger son armée d'un seul ordre, voulut que Wang Lin demeure pour devenir le Grand Érudit du pays. Mais finalement, Wang Lin sourit, secoua la tête et partit. Le tonnerre gronda dans le ciel et les nuages changèrent de couleur; les milliers de soldats n'osèrent entraver sa route. Une fois qu'il fut parti, tous joignirent les mains en signe de respect vers lui.
 
-Dans le pays du Soleil, l'empereur et ses innombrables sujets suivirent Wang Lin sur des milliers de kilomètres pour lui faire ses adieux.
+Dans le pays de Sun, l'empereur et ses innombrables sujets suivirent Wang Lin sur des milliers de kilomètres pour lui faire ses adieux.
 
 Dans le pays du Chien Céleste, où régnaient d'innombrables êtres malveillants, la présence de Wang Lin finit par réformer des dizaines de milliers de personnes lors de son départ.
 
@@ -46,7 +46,7 @@ Même au sein du monde de la culture, le nom du mortel Grand Érudit Wang Lin se
 
 « Qu'ils soient immortels ou mortels, tous sont des êtres de loisir... » Wang Lin laissait derrière lui des paroles de sagesse partout où il allait.
 
-Parmi les cultivateurs, beaucoup venaient à sa rencontre pour acquérir un éclairage et comprendre le monde. Ils finirent par former leurs propres domaines et atteignirent le stade de la Formation de l'Âme. Même ceux qui étaient déjà au stade de la Formation de l'Âme ou au-delà venaient lui parler et restaient bouleversés par ses paroles.
+Parmi les cultivateurs, beaucoup venaient à sa rencontre pour acquérir un éclairage et comprendre le monde. Ils comprenaient le Ciel et la Terre, saisissaient la conception profonde de leur voie et pouvaient espérer atteindre la Formation de l'Âme. Même ceux qui étaient déjà au stade de la Formation de l'Âme ou au-delà venaient lui parler et restaient bouleversés par ses paroles.
 
 Une année, deux années... le temps s'écoulait, et en un clin d'œil, douze ans s'étaient écoulés.
 
@@ -66,11 +66,11 @@ Près de lui se trouvait une petite chaise où siégeait un garçon d'environ se
 
 Wang Lin resta un instant interdit avant de hocher la tête avec un sourire. Il entra dans la forge, la chaleur ambiante faisant fondre une grande partie de la neige sur ses vêtements.
 
-« Femme, apporte un peu de bon vin chaud! » L'homme enfila une veste. Voyant que Wang Lin était âgé, il l'aida à s'asseoir et prit place à ses côtés. Il sourit: « Senior n'est pas du coin? »
+« Xiu Niang, apporte un peu de vin bien chaud! » L'homme enfila une veste. Voyant que Wang Lin était âgé, il l'aida à s'asseoir et prit place à ses côtés. Il sourit: « Senior n'est pas du coin? »
 
 Wang Lin observa la boutique et dit doucement: « Je suis venu ici autrefois. En passant par ici de nouveau, j'ai voulu jeter un coup d'œil. »
 
-Le garçon regarda Wang Lin avec curiosité. À l'appel de sa mère, il se leva et courut vers eux. Peu après, une femme d'âge moyen apparut, tenant une cruche de vin. Elle avait l'air vertueuse et versa une coupe pour Wang Lin, les yeux empreints de compassion.
+Le garçon regarda Wang Lin avec curiosité. À l'appel de sa mère, il se leva et courut la rejoindre à l'intérieur. Peu après, il réapparut avec une femme d'âge moyen qui tenait une cruche de vin. Elle avait l'air vertueuse et versa une coupe pour Wang Lin, les yeux empreints de compassion.
 
 « Senior, le temps est froid, buvez un peu de vin pour vous réchauffer. Êtes-vous venu chercher des proches? »
 
@@ -80,7 +80,7 @@ Wang Lin sourit sans répondre. Il prit la coupe et but d'un trait.
 
 Le feu de la forge brûlait avec force, créant un contraste saisissant avec la neige extérieure et repoussant la morsure du froid. Wang Lin resta là, buvant le vin des Ceng, incapable de dire s'il était encore dans un rêve.
 
-Après un long moment, alors que la chute de neige s'allégeait, Wang Lin se leva pour prendre congé. L'homme, touché par sa présence, lui offrit un peu de vin pour le réchauffer durant son trajet.
+Après un long moment, alors que la chute de neige s'allégeait, Wang Lin se leva pour prendre congé. L'homme, prenant pitié de son grand âge, lui offrit une cruche de vin pour le réchauffer durant son trajet.
 
 Quand Wang Lin sortit, l'obscurité était tombée, mais la blancheur de la neige rendait le sol lumineux, lui permettant de voir loin. Tandis qu'il marchait, la lumière de la forge disparut derrière lui; il s'éloigna, sa silhouette étirée par la lueur lunaire.
 
@@ -94,7 +94,7 @@ La pluie devint si dense qu'elle formait des lignes verticales, rendant le monde
 
 Au moment où il ferma les paupières, la silhouette d'une femme s'approcha de la distance. Elle semblait enveloppée d'une aura glaciale. À mesure qu'elle avançait, des craquements résonnèrent et la pluie se changea en glace. Elle portait un bébé, enveloppé dans une épaisse couverture. Aucune goutte ne touchait l'enfant, qui dormait paisiblement.
 
-La femme s'arrêta devant le pavillon. Bien qu'âgée, son visage restait beau et délicat, mais son aura glaciale dégageait une puissante intention de tuer.
+La femme s'arrêta devant le pavillon. Bien qu'entrée dans l'âge mûr, son visage restait beau et délicat, mais son aura glaciale dégageait une puissante intention de tuer.
 
 « Êtes-vous le Grand Érudit Wang Lin? »
 

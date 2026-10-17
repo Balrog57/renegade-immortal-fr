@@ -14,13 +14,13 @@ Par conséquent, il n'avait nul besoin de Flammes Joss au troisième stade; il l
 
 De même, son corps ne possédait pas de domaine de Flammes Joss comme les cultivateurs Vide Spirituel ordinaires. Il n'était pas nécessaire de fusionner un tel domaine avec son corps pour atteindre un état de perfection.
 
-Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa culture qu'il pouvait terrasser des cultivateurs Vide Arcanique du premier stade alors qu'il n'était qu'au milieu du stade Vide Spirituel!
+Le corps de Wang Lin était celui d'un Dieu Ancien, ce qui transcendait la perfection elle-même. C'est grâce à la combinaison de sa puissance de Dieu Ancien et de sa culture qu'il pouvait tuer des cultivateurs Vide Arcanique du premier stade alors qu'il n'était qu'au milieu du stade Vide Spirituel!
 
 Wang Lin osait même affronter des cultivateurs Vide Arcanique du stade intermédiaire. Bien qu'il fût difficile de prédire l'issue du combat, il leur serait extrêmement ardu de le tuer!
 
 Le chemin menant au troisième stade emprunté par Wang Lin différait radicalement de celui des autres cultivateurs. Même le Souverain Céleste aux Sept Couleurs suivait une voie distincte. Bien que ce dernier ait eu besoin de Flammes Joss, les flammes qu'il absorbait n'étaient pas toxiques.
 
-Ce n'était pas que personne n'avait suivi la voie de Wang Lin, c'était simplement qu'elle était extrêmement difficile. C'était un sentier sans égal, débordant de possibilités infinies. S'il voulait devenir un cultivateur Vide Arcanique, il lui faudrait obtenir et parachever encore quelques essences!
+Ce n'était pas que personne n'avait suivi la voie de Wang Lin, c'était simplement qu'elle était extrêmement difficile. Le bout de ce chemin était sans fin et il était d'une rudesse extrême. S'il voulait devenir un cultivateur Vide Arcanique, il lui faudrait obtenir et parachever encore quelques essences!
 
 Lorsque d'autres atteignaient le troisième stade, il était presque impossible de compléter une autre essence. Mais pour Wang Lin, la situation était bien différente. Il pouvait encore obtenir une septième, une huitième, une neuvième et même une dixième essence.
 
@@ -38,7 +38,7 @@ Même un être aussi puissant que le Souverain n'avait traversé que trois Tribu
 
 Le Maître du Dao Rêve Bleu n'avait même pas surmonté la première et stagnait au sommet du Vide Arcanique. Il ne craignait pas la mort, mais il avait encore des choses à accomplir et ne pouvait supporter le regret de l'échec.
 
-Au cours des dizaines de milliers d'années, de nombreux talents étaient nés dans les Royaumes Intérieur et Extérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalté!
+Au cours d'innombrables centaines de millions d'années, de nombreux talents étaient nés dans les Royaumes Intérieur et Extérieur. Certains avaient atteint le troisième stade, mais à ce jour, une seule personne avait traversé huit Tribulations Arcanes tout en conservant son identité de cultivateur de grotte. Une seule de plus, et il aurait pu être considéré comme un Exalté!
 
 Il s'agissait du Vieux Fantôme Zhan! À l'époque, il avait échoué à sa cinquième Tribulation Arcane et aurait dû mourir; le Souverain le savait. Cependant, ce que le Souverain ignorait, c'est que le Vieux Fantôme Zhan avait obtenu une immense fortune céleste!
 
@@ -48,13 +48,13 @@ Ceux qui atteignaient le stade de la Tribulation du Vide sur le Continent Astral
 
 Le Souverain Céleste aux Sept Couleurs était un Exalté de la Tribulation du Vide, bien que son niveau ne fût pas au sommet, mais au stade intermédiaire!
 
-Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte des Sept Daos!
+Bien qu'il ne fût qu'au stade intermédiaire, cela lui avait permis d'acquérir une certaine renommée sur le Continent Astral Immortel et de fonder sa propre secte: la Secte des Sept Dao!
 
 Wang Lin ignorait tout de cela, et à cet instant, il n'avait pas le temps d'y songer. Il ouvrit les yeux et se leva, contemplant les étoiles. Il n'était pas grand, mais l'aura qu'il dégageait laissait croire qu'il pouvait soutenir la voûte céleste. Le dos tourné vers le Royaume Intérieur, il inspirait un sentiment de sécurité semblable à la Bénédiction Ancienne.
 
 Le regard empreint de calme, il avança. D'un pas, il se posa sur la mourante Formation de Scellement du Royaume. La formation trembla et laissa paraître une lumière bien plus faible qu'auparavant.
 
-Tout en réfléchissant, Wang Lin leva le pied droit et l'écrasa au sol. Dans un fracas assourdissant, toute la Formation de Scellement du Royaume trembla et sa structure immense, semblable à un filet, se manifesta. La formation se révéla à travers tout le Royaume Intérieur!
+En silence, Wang Lin leva le pied droit et l'écrasa au sol. Dans un fracas assourdissant, toute la Formation de Scellement du Royaume trembla et sa structure immense, semblable à un filet, se manifesta. La formation se révéla à travers tout le Royaume Intérieur!
 
 Même les dizaines de milliers de cultivateurs en convalescence à Luotian ouvrirent les yeux pour contempler la Formation de Scellement du Royaume!
 
@@ -82,13 +82,13 @@ Six grondements, six karmas et six coups de poing. La formation commença imméd
 
 Une lumière rouge sang apparut devant Wang Lin; toute la formation semblait irradier une lueur sanguine. Un hurlement douloureux, capable de faire basculer le monde, retentit. La Masse Météorique aux Neuf Têtes surgit soudainement dans ce cri. La masse trembla et du sang noir s'écoula de ses têtes. Cependant, après avoir quitté la formation, elle se brisa et disparut devant Wang Lin.
 
-Après la masse météoritique, une vague de chaleur déferla et un gigantesque catapult de feu apparut. D'innombrables cultivateurs des deux royaumes étaient morts à cause de lui, la plupart étant issus du Royaume Intérieur!
+Après la masse météoritique, une vague de chaleur déferla et une gigantesque catapulte de feu apparut. D'innombrables cultivateurs des deux royaumes étaient morts à cause de lui, la plupart étant issus du Royaume Intérieur!
 
-À cet instant, le catapult fut extirpé puis rapidement réduit en brume, avant de se dissiper totalement.
+À cet instant, la catapulte fut extirpée puis rapidement réduite en brume, avant de se dissiper totalement.
 
-Après le catapult, une lumière dorée jaillit et une lame d'or apparut. Puis vint une lumière violette monstrueuse: un fouet géant de couleur pourpre surgit. Il était couvert de runes et se tordait comme un python!
+Après la catapulte, une lumière dorée jaillit et une lame d'or apparut. Puis vint une lumière violette monstrueuse: un fouet géant de couleur pourpre surgit. Il était couvert de runes et se tordait comme un python!
 
-Après le fouet, la formation trembla et une aura antique se fit sentir. Une massue de loup géante apparut, couverte d'épines. D'innombrables fantômes agités tourbillonnaient autour d'elle, témoignant du massacre qu'elle avait perpétré autrefois.
+Après le fouet, la formation trembla et une aura antique se fit sentir. Une gigantesque massue à dents de loup apparut, couverte d'épines. D'innombrables fantômes agités tourbillonnaient autour d'elle, témoignant du massacre qu'elle avait perpétré autrefois.
 
 Cependant, dès que ces esprits de formation apparurent, ils explosèrent tous. Ils disparurent à jamais de ce monde, s'effaçant de la Formation de Scellement du Royaume!
 

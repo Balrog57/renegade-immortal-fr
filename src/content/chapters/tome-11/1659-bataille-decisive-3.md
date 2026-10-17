@@ -32,7 +32,7 @@ Alors que Wang Lin achevait la concubine impériale céleste, le massacre entre 
 
 Wang Lin recula tout en crachant du sang. Tandis qu'il tentait secrètement de se stabiliser, il ressentit soudain un péril imminent. Il esquiva l'attaque et se retourna pour voir passer un rayon d'énergie d'épée. Ce dernier balaya les étoiles et déchira l'espace en une immense faille spatiale.
 
-Le vieil homme en noir, qui représentait une menace de mort pour Wang Lin, avait profité de sa blessure pour lancer une attaque surprise. Armé d'une épée, il projeta un rayon d'énergie vers lui.
+Le vieil homme en noir, un autre maître du Vide Arcanique qui avait participé jadis à l'encerclement de Wang Lin, avait profité de sa blessure pour lancer une attaque surprise. Armé d'une épée, il projeta un rayon d'énergie vers lui.
 
 « Il est blessé, c'est la meilleure occasion de l'éliminer! »
 
@@ -42,7 +42,7 @@ Le brouillard issu de son corps se propagea et enveloppa les cultivateurs du Roy
 
 L'intention meurtrière dans les yeux du vieil homme en noir s'intensifia alors qu'il poursuivait Wang Lin.
 
-La brume dans laquelle Wang Lin s'était transformé se rétracta rapidement, emportant avec elle tous les cultivateurs du Royaume Extérieur qu'elle avait englobés. En quelques respirations à peine, des dizaines de milliers de cultivateurs périrent.
+La brume dans laquelle Wang Lin s'était transformé se rétracta rapidement, emportant avec elle tous les cultivateurs du Royaume Extérieur qu'elle avait englobés. En quelques respirations à peine, plus de dix mille cultivateurs périrent.
 
 À cet instant, le vieil homme en noir accéléra encore la cadence. D'un seul pas, il atteignit la brume de Wang Lin. Il leva alors son épée et frappa sans aucune pitié.
 
@@ -92,7 +92,7 @@ Plus loin encore, la femme en violet de la Rivière Invoquée se déchaînait te
 
 Une vieille femme du Vide Arcanique du Royaume Extérieur lui faisait face! La dernière des trois concubines impériales célestes affrontait Maître Hong Shan. Ce dernier n'était manifestement pas de taille, mais il parvenait tant bien que mal à la contenir.
 
-Au loin, une multitude de cultivateurs du Royaume Intérieur périrent, mais plus de 100 000 cultivateurs du Royaume Extérieur avaient déjà été massacrés. Les rumeurs de la boucherie résonnaient dans tout Luotian.
+Au loin, une multitude de cultivateurs du Royaume Intérieur périrent, mais plus de 100 000 cultivateurs du Royaume Extérieur avaient déjà été massacrés. Les rugissements et les cris du massacre résonnaient dans tout Luotian.
 
 Wang Lin se retourna soudainement, les yeux injectés de folie. Si les cultivateurs du Vide Arcanique du Royaume Extérieur ne mouraient pas, cette bataille ne prendrait jamais fin. Tandis qu'il pivotait, ses étoiles de Dieu Antique brillèrent et le Fourneau de l'Empereur apparut. Dès son apparition, il s'étendit pour recouvrir toute la zone environnante, englobant la concubine impériale céleste et le vieil homme en noir.
 
@@ -114,6 +114,6 @@ La sueur perla sur le front de Wang Lin alors qu'il siégeait au sommet du Fourn
 
 Les trois compagnons acquiescèrent d'un signe de tête. Ils commencèrent à unir leurs forces pour contenir les deux derniers cultivateurs du Vide Arcanique afin d'empêcher toute interruption dans le travail de Wang Lin.
 
-Les mains de Wang Lin formaient un sceau, ses yeux brûlant de folie. Cette bataille n'était qu'un jeu entre le Taoïste aux Sept Couleurs et le Vieux Fantôme Zhan; cette guerre était un moyen pour eux d'atteindre un but précis.
+Les mains de Wang Lin formaient un sceau, ses yeux brûlant de folie. Cette bataille n'était qu'un jeu entre le Daoïste aux Sept Couleurs et le Vieux Fantôme Zhan; cette guerre était un moyen pour eux d'atteindre un but précis.
 
-Dès lors, Wang Lin ne se souciait plus de massacrer tous les cultivateurs du Royaume Extérieur pour clore ce conflit. Il voulait découvrir ce que ces deux êtres cherchaient réellement!
+Dès lors, Wang Lin n'hésiterait pas à laisser périr tous les cultivateurs du Royaume Extérieur pour mettre fin à ce conflit. Il voulait découvrir ce que ces deux êtres cherchaient réellement!

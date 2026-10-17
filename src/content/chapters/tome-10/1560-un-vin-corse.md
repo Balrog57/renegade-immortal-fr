@@ -76,7 +76,7 @@ Leurs rires étaient empreints d'une joie pure. Il était rare qu'ils puissent r
 
 « Allez, retire la dernière épine! » Posant la cruche, les yeux de Qing Shui brillèrent d'un éclat tel que Wang Lin eut l'impression de retrouver le Qing Shui de jadis.
 
-Wang Lin observa les veines saillantes sur le corps de son compagnon et dit lentement: « La dernière épine a pénétré tous vos vaisseaux sanguins! Je crains qu'elle ne soit la plus longue! »
+Wang Lin observa les veines saillantes sur le corps de son compagnon et dit lentement: « La dernière épine a pénétré tous tes vaisseaux sanguins! Je crains qu'elle ne soit la plus longue! »
 
 « Je me souviens qu'elle est entrée par ici. » Qing Shui leva la main droite pour désigner sa poitrine, là où battait son cœur. En pointant l'endroit, une plaie sanglante s'ouvrit, révélant les vaisseaux bleutés à l'intérieur.
 

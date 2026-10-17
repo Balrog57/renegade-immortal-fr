@@ -20,7 +20,7 @@ La femme portait des vêtements simples, qui ne parvenaient toutefois pas à dis
 
 Elle semblait fatiguée, une main soutenant le panier tandis que l'autre reposait sur sa hanche. Elle essuya la sueur de son front tout en scrutant la porte, attendant le retour de son époux.
 
-L'après-midi était bien avancé et la lumière du soleil était éblouissante. Peu après, des pas se firent entendre dans la forêt de bambous, et le sourire de la femme s'élargit.
+C'était l'après-midi et la lumière du soleil n'était pas éblouissante. Peu après, des pas se firent entendre dans la forêt de bambous, et le sourire de la femme s'élargit.
 
 « Su Er, j'ai pêché un poisson pour toi. » Les pas s'arrêtèrent devant l'entrée et la porte de bambou fut poussée. L'homme entra en souriant, tenant le récipient.
 
@@ -42,9 +42,9 @@ Dehors, l'homme restait calme en contemplant la pluie, mais ses poings serrés t
 
 Le temps s'écoulait lentement. La voix de la femme devenait de plus en plus faible, ce qui lui infligeait une douleur toujours plus vive. Pourtant, son expression ne changeait pas; au contraire, ses yeux s'illuminèrent alors qu'il fixait le ciel obscurci par l'orage.
 
-« Moi, Xie Dongming, j'étudie depuis mon enfance. Je suis resté intègre et concentré sur mes études. Durant ma carrière, j'ai travaillé pour aider le peuple, et en partant, je n'ai laissé aucune rancœur derrière moi. En mes maigres trente-trois années de vie, je n'ai jamais rien fait dont je puisse avoir honte!
+« Moi, Xie Dongming, j'étudie depuis mon enfance. J'ai compris la raison des choses et connu toutes choses. Durant ma carrière, j'ai travaillé pour aider le peuple, et en partant, je n'ai laissé aucune rancœur derrière moi. En mes maigres trente-trois années de vie, je n'ai jamais rien fait dont je puisse avoir honte!
 
-« Ciel, maintenant que mon enfant est sur le point de naître, pourquoi rends-tu les choses si difficiles pour Nei Zi?! » La main droite de la femme frappa le mur de bambou. Le sang coula de son doigt et tomba au sol avant d'être emporté par la pluie.
+« Ciel, maintenant que mon enfant est sur le point de naître, pourquoi rends-tu les choses si difficiles pour ma femme?! » La main droite de l'homme frappa le mur de bambou. Le sang coula de son doigt et tomba au sol avant d'être emporté par la pluie.
 
 Au moment même où le sang se mêla à l'eau, un coup de tonnerre déchira le ciel. Simultanément, le cri d'un nouveau-né retentit dans la pièce, et tout le corps de l'homme trembla. Son calme fit place à une excitation fébrile et il se retourna brusquement. La porte s'ouvrit sur la sage-femme qui, couverte de sueur mais arborant un sourire bienveillant, tenait un bébé dans ses bras.
 
@@ -70,7 +70,7 @@ Il avait eu une vague intuition auparavant, et elle était désormais confirmée
 
 La bouche de Wang Lin s'entrouvrit comme s'il voulait parler, mais les mots lui manquaient. Son esprit était en plein chaos.
 
-Lorsqu'il avait commencé à traquer la troisième âme, il avait envisagé diverses possibilités: des mortels, des cultivateurs ou même des bêtes féroces, mais il n'avait jamais imaginé que ce serait Xie Qing!
+Lorsqu'il avait commencé à traquer la troisième âme, il avait envisagé diverses possibilités: des mortels, des cultivateurs, des bêtes féroces ou même des plantes, mais il n'avait jamais imaginé que ce serait Xie Qing!
 
 C'était en réalité son disciple!
 
@@ -84,7 +84,7 @@ Wang Lin n'oublierait jamais qu'il s'était perdu ici, plongé dans la confusion
 
 Il avait questionné tous ceux qu'il pouvait, jusqu'à ce qu'il interroge Xie Qing. C'était aussi Xie Qing qui lui avait apporté compréhension et illumination.
 
-Il ne pouvait pas non plus oublier ce moment où il était assis au sommet de la montagne pour cultiver, et que Xie Qing, déjà âgé, avait gravi la pente, insistant pour apprendre le Dao à ses côtés!
+Il ne pouvait pas non plus oublier ce moment où il était assis au sommet de la montagne pour cultiver, et que Xie Qing, déjà âgé, avait gravi la pente de son corps mortel et s'était agenouillé devant lui, cherchant le Dao de tout son cœur!
 
 « Je pensais avoir tout compris des relations humaines et avoir atteint l'illumination dans le monde académique. J'avais fait de mon devoir celui de civiliser le monde. Cependant, au crépuscule de ma vie, j'ai soudainement eu une révélation: je suis un poisson dans l'eau... »
 
@@ -100,9 +100,9 @@ Pourquoi avait-il rencontré Su Dao, et pourquoi ce dernier l'avait-il guidé po
 
 « À l'époque, j'avais involontairement donné des conseils à Xie Qing et je l'avais pris pour disciple. Il était la troisième âme du Souverain Céleste aux Sept Couleurs. Cela a créé un lien entre nous; c'est là la cause karmique!
 
-« C'est aussi pour cette raison que Su Dao est apparu dans mon Dao de rêve...
+« C'est aussi pour cette raison que Su Dao est apparu dans mon Dao du Rêve...
 
-« En réalité, il est mon disciple, et dans le Dao de rêve, j'étais son disciple. Cela formait un cycle de karma! J'aurais dû y penser... » Wang Lin fit un pas. À l'instant où son pied toucha le sol, le monde trembla. Le ciel se brisa et la terre s'effondra comme si un dragon s'agitait dans les profondeurs. Tout se dissipa, ne laissant que la maison et la lumière douce et joyeuse qui en émanait.
+« En réalité, il est mon disciple, et dans le Dao du Rêve, j'étais son disciple. Cela formait un cycle de karma! J'aurais dû y penser... » Wang Lin fit un pas. À l'instant où son pied toucha le sol, le monde trembla. Le ciel se brisa et la terre s'effondra comme si un dragon s'agitait dans les profondeurs. Tout se dissipa, ne laissant que la maison et la lumière douce et joyeuse qui en émanait.
 
 Wang Lin fit un deuxième pas de recul. Dès que son pied toucha le sol, la demeure se déforma et d'innombrables ombres apparurent. Il devint impossible de savoir si c'était la maison ou le corps qui bougeaient, alors qu'ils devenaient progressivement flous, dévorés par les ténèbres.
 

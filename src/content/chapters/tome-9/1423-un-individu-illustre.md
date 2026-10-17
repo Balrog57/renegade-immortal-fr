@@ -6,11 +6,11 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1423 - Illustrious Individual
 slug: un-individu-illustre
 ---
-La lance de brouillard, entourée par l'âme du démon ancien, était d'une rapidité telle qu'elle encercla instantanément Maître Simo, faisant se contracter ses pupilles. Il s'attendait déjà à ce que Wang Lin soit fort, mais il n'aurait jamais imaginé une telle puissance!
+La lance de brouillard, entourée par l'âme du démon ancien, était d'une rapidité telle qu'elle fut instantanément sur Maître Simo, faisant se contracter ses pupilles. Il s'attendait déjà à ce que Wang Lin soit fort, mais il n'aurait jamais imaginé une telle puissance!
 
 « Cet enfant n'a pas encore atteint le troisième niveau, et pourtant il peut déjà lutter contre moi. S'il brise la Porte du Vide, je ne ferai plus du tout le poids. Il connaît également mon passé, il est donc évidemment issu du Royaume Intérieur! »
 
-« Cet homme doit mourir... Malheureusement, je ne peux pas l'éliminer tant que nous sommes sur la Planète de l'Empereur! »
+« Cet homme doit mourir... Malheureusement, je ne peux pas l'éliminer tant que nous sommes sur la Planète du Grand Empereur! »
 
 Maître Simo ne recula pas; au contraire, une lueur de froideur traversa son regard. Cependant, à l'instant même où il la laissa paraître, son expression changea. Il cracha un jet de sang et fut contraint de battre en retraite.
 
@@ -88,7 +88,7 @@ Tandis qu'il bombardait l'enceinte de l'intérieur, une température toujours pl
 
 Les yeux de Maître Simo s'illuminèrent et il tourna soudain la tête. Ce qu'il vit fit basculer son expression!
 
-Une multitude d'âmes illusoires apparurent autour de lui. Ces âmes étaient gigantesques; il s'agissait de démons anciens et de diables anciens! Leur nombre était immense, et leurs cris lugubres lacérèrent l'esprit de Maître Simo, faisant se contracter ses pupilles.
+Une multitude d'âmes illusoires apparurent autour de lui. Ces âmes étaient gigantesques; il s'agissait de démons anciens et de monstres anciens! Leur nombre était immense, et leurs cris lugubres lacérèrent l'esprit de Maître Simo, faisant se contracter ses pupilles.
 
 Ces âmes illusoires encerclèrent Maître Simo, et leurs lamentations devinrent plus intenses encore!
 
@@ -98,7 +98,7 @@ L'âme du démon ancien qui combattait la femme de la brume rouge bougea et fusi
 
 La brume rouge se rétracta, laissant la femme au voile blanc se tenir silencieusement aux côtés de Maître Simo. Son apparence restait invisible, mais la touche de tendresse qu'elle dégageait était manifeste.
 
-Maître Simo détourna le regard et leva les yeux avec mépris. Il lança froidement: « Ce petit bâtard possède bien des trésors, mais s'il pense pouvoir me piéger, il fait preuve d'une arrogance sans nom! » Il laissa échapper un ricanement glacial et agita sa main droite en rugissant: « Clous Divins du Vide aux Sept Couleurs! »
+Maître Simo retira son regard et fixa froidement le haut du fourneau. Il lança d'une voix glaciale: « Ce petit bâtard possède bien des trésors, mais s'il pense pouvoir me piéger, il fait preuve d'une arrogance sans nom! » Il laissa échapper un ricanement glacial et agita sa main droite en rugissant: « Clous Divins du Vide aux Sept Couleurs! »
 
 À l'instant où il parla, vingt-neuf rayons de lumière septicolore apparurent devant lui. La clarté chromatique emplit le fourneau. Les âmes environnantes reculèrent, comme terrifiées par ces vingt-neuf clous!
 
@@ -120,7 +120,7 @@ Tenant la bouteille, Wang Lin mordit le bout de sa langue et cracha son sang de 
 
 Une énergie démoniaque jaillit de la bouteille. Des ombres de démons anciens s'en échappèrent et, après avoir absorbé le sang de Wang Lin, elles se précipitèrent dans le Fourneau de l'Empereur!
 
-À l'intérieur du fourneau, les yeux de Maître Simo étaient injectés de folie. Sa main droite plongea dans le vide et un objet apparut dans sa poigne: un os de bête. Cet os n'était pas grand, environ trois pieds de large, et portait une empreinte de paume distincte!
+À l'intérieur du fourneau, les yeux de Maître Simo étaient injectés de folie. Sa main droite plongea dans le vide et un objet apparut dans sa poigne: un os de bête. Cet os n'était pas grand, un peu moins de trois pieds, et portait une empreinte de paume distincte!
 
 Cette marque était profondément gravée dans l'os; on pouvait même y distinguer les détails de la main!
 
@@ -136,6 +136,6 @@ La main droite de Maître Simo trembla et une lutte intérieure se lut dans ses 
 
 « Nous pouvons lui rendre notre culture... Rentrons à la maison... D'accord... »
 
-À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie: la Nuit Brisée, le Temps Fluide... et enfin, le sortilège dao qu'il avait compris dans le Royaume Dao, au sein du Lit Défiant le Ciel!
+À cet instant, à l'extérieur du Fourneau de l'Empereur, les yeux de Wang Lin brillèrent d'une lumière étrange. Ses mains formèrent des sceaux et il expira profondément. Ce souffle invisible retomba sur le Fourneau de l'Empereur avant de s'évanouir... « Sortilège Dao... Dao du Rêve... » Wang Lin avait créé trois sorts dans sa vie: la Nuit Brisée, le Temps Fluide... et enfin, le premier sortilège dao de sa vie, qu'il avait compris dans le Royaume Dao, au sein de la Perle Défiant le Ciel!
 
 Le Dao du Rêve!

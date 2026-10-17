@@ -8,7 +8,7 @@ slug: assumer-ses-responsabilites
 ---
 Wang Lin sourit amèrement et regarda Situ Nan, stupéfait. Il ramassa ensuite une cruche de vin par terre et en but une longue gorgée.
 
-« C'est ce que j'ai appris de la mémoire de cet être céleste... Tu connais le Seigneur du Royaume Scellé? Pas moi, mais le précédent. Il venait du Royaume Céleste Antique, il n'appartient pas à cet endroit...
+« C'est ce que j'ai appris de la mémoire de cet être céleste... Tu connais le Seigneur du Royaume Scellé? Pas moi, mais le précédent. Il venait de l'Ancien Royaume Céleste, il n'appartient pas à cet endroit...
 
 Et ces concubines impériales célestes que j'ai rencontrées dans le Système Stellaire Antique, ainsi que ce mystérieux Daoïste aux Sept Couleurs...
 
@@ -84,7 +84,7 @@ Je n'avais jamais réfléchi à cela, mais aujourd'hui, j'y pense. Je comprends 
 
 Auparavant, je n'avais ni cette détermination ni cette responsabilité, mais après aujourd'hui, je les aurai! C'est peut-être là mon Dao, ma destination finale... » Wang Lin but le reste du vin et projeta la cruche du haut de la montagne. Elle décrivit une courbe dans les airs avant de disparaître de son champ de vision.
 
-À cet instant, le ciel s'obscurcit. Le soleil se couche à l'ouest et se lève à l'est. En se retournant vers le Mont Nan, on entend le cri des oiseaux qui s'éparpillent. Le monde des mortels est coupé par les nuages!
+À cet instant, le ciel s'obscurcit. Le soleil couchant descend à l'ouest tandis que la haie de l'est se dresse. En se retournant, on aperçoit le Mont Nan; les oiseaux se dispersent et se rassemblent, et leurs cris reviennent. Le monde des mortels est coupé par les nuages!
 
 « Je vais tuer le Souverain Céleste! Si je le tue, je pourrai nous rendre notre liberté. Le tuer, et les nuages se déchireront! Mais avant cela, Situ, je vais garder la frontière pendant trois ans! »
 

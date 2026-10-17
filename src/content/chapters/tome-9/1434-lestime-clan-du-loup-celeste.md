@@ -16,17 +16,17 @@ L'aura émanant de cette main contenait des Flammes Joss. Celui qui cherchait à
 
 Cette aura, particulièrement tyrannique, fondit sur Wang Lin.
 
-Sans la moindre hésitation, Wang Lin fit volte-face. D'un revers de main, il fit apparaître un clou dans sa paume! Ce clou était d'un noir profond et dégageait une lueur sinistre, d'où s'échappaient même des hurlements plaintifs.
+Sans la moindre hésitation, Wang Lin fit volte-face. D'un revers de main, il fit apparaître un ongle dans sa paume! Cet ongle était d'un noir profond et dégageait une lueur sinistre, d'où s'échappaient même des hurlements plaintifs.
 
-Ce clou lui avait été offert par le vieil homme en raison du Vieux Oiseau Vermillon!
+Cet ongle, un poison violent, lui avait été offert par le vieil homme en raison du Vieux Oiseau Vermillon!
 
-Wang Lin lança le clou sans attendre. En un battement de cils, l'objet se transforma en une bourrasque de vent noir et percuta la paume géante.
+Wang Lin lança l'ongle sans attendre. En un battement de cils, l'objet se transforma en une bourrasque de vent noir et percuta la paume géante.
 
-Un fracas tonitruant retentit lorsque le clou pénétra la main avant de s'effondrer. Dans sa chute, il se répandit sur toute la paume telle une tache d'encre, s'étendant inexorablement vers l'avant-bras.
+Un fracas tonitruant retentit lorsque l'ongle pénétra la main avant de s'effondrer. Dans sa chute, il se répandit sur toute la paume telle une tache d'encre, s'étendant inexorablement vers l'avant-bras.
 
 Tandis que soufflait un vent d'automne, le bras trembla puis se dissipa en cendres noires.
 
-La puissance du clou dépassait les espérances de Wang Lin. Bien que la paume se soit évanouie, l'aura tyrannique le frappa de plein fouet. Wang Lin cracha un jet de sang et, d'un geste violent, projeta l'Ancienne Feuille comme une météorite vers la faille spatiale!
+La puissance de l'ongle dépassait les espérances de Wang Lin. Bien que la paume se soit évanouie, l'aura tyrannique le frappa de plein fouet. Wang Lin cracha un jet de sang et, d'un geste violent, projeta l'Ancienne Feuille comme une météorite vers la faille spatiale!
 
 « Scelle! »
 
@@ -56,7 +56,7 @@ Elle portait également un marquage entre les sourcils. C'était un signe extrê
 
 Dans le Royaume aux Sept Couleurs, Wang Lin avait affronté un vieil homme de ce clan qui l'avait plongé dans une crise mortelle. Ce sort Dao était encore gravé dans sa mémoire!
 
-Cette jeune fille n'avait pas encore atteint le troisième pas et se trouvait au troisième Fléau Céleste. Tenant une boussole, elle s'inclina respectueusement avant de lever les yeux avec un sourire: « Directement à l'est, à 197 845 kilomètres! Cependant, votre bras droit est empoisonné et votre puissance de combat a diminué de 30 %. Sans mon aide, ce poison sera difficile à extirper. »
+Cette jeune fille n'avait pas encore atteint le troisième pas et se trouvait au troisième Fléau Céleste. Tenant une boussole, elle baissa la tête pour la manipuler quelques instants, puis leva les yeux avec un sourire: « Directement à l'est, à 197 845 kilomètres! Cependant, votre bras droit est empoisonné et votre puissance de combat a diminué de 30 %. Sans mon aide, ce poison sera difficile à extirper. »
 
 L'homme massif laissa échapper un grognement froid et fit un pas en avant. Le monde et la planète abandonnée tremblèrent sous son poids; la terre s'effondra et se déchira en un instant!
 
@@ -88,7 +88,7 @@ L'homme massif lança un regard froid à la jeune fille. Bien qu'il fût au troi
 
 L'homme resta silencieux, fixant froidement la demoiselle.
 
-« Très bien, je parlerai. Mais une fois qu'il sera capturé, vous devrez me laisser lui prendre quelque chose. En échange, le Dao Souverain vous récompensera d'un esprit Dao de rang 6. » Elle cligna des yeux avec un sourire malicieux.
+« Très bien, je parlerai. Mais une fois qu'il sera capturé, vous devrez me laisser lui prendre quelque chose. En échange, le Maître du Dao vous récompensera d'un esprit Dao de rang 6. » Elle cligna des yeux avec un sourire malicieux.
 
 L'homme médita un instant en silence. Sans mot dire, il fit un pas en avant.
 

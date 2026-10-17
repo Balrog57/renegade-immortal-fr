@@ -6,13 +6,13 @@ bookTitle: Peak of the Cloud Sea
 en: Chapter 1375 - First Encounter With Fire Sparrow
 slug: première-rencontre-avec-letourneau-de-feu
 ---
-« Maître, le membre du Conseil des Déchus le plus proche est le neuvième ancien, qui est également le chef du Clan du Dragon Blindé. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan du Scorpion Noir en ouvrant la voie.
+« Maître, la planète de culture d'un ancien du Conseil des Déchus la plus proche est la planète principale du neuvième ancien, le Clan du Dragon Blindé. Il y a de nombreux cultivateurs là-bas et c'est très chaotique », dit l'ancien du Clan du Scorpion Noir en ouvrant la voie.
 
 Tout au long du voyage, Wang Lin parla peu tandis que tous deux survolaient rapidement le domaine stellaire.
 
 L'esprit de Wang Lin était encore hanté par ce qu'il avait aperçu à l'intérieur de la marionnette. Il semblait avoir acquis une certaine compréhension, mais un voile de brouillard l'empêchait d'y voir clair.
 
-« Bien que le Clan du Dragon Blindé soit également un petit clan, il compte plus de 1 000 membres. Le chef du clan est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect. »
+« Bien que le Clan du Dragon Blindé soit également un petit clan, il compte plusieurs milliers de membres. Le chef du clan, le neuvième ancien, est au quatrième niveau du Fléau Céleste, et lorsqu'il utilise son sort d'Armure de Dragon, aucun cultivateur ordinaire ne peut briser sa protection. Le neuvième ancien est également célèbre au sein du Conseil des Déchus; un petit clan comme le mien n'oserait jamais leur manquer de respect. »
 
 L'ancien du Scorpion Noir rapporta à Wang Lin tout ce qu'il savait sur le Clan du Dragon Blindé.
 
@@ -64,7 +64,7 @@ Maître Simo sourit, les yeux brillants, tandis qu'il regardait au loin. Une sil
 
 Maître Simo rit à son tour et joignit les mains: « Camarade cultivateur Sun, cela fait quelques siècles que nous ne nous sommes pas croisés. Je viens vous importuner de nouveau. »
 
-« Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort face au troisième niveau du Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
+« Comment la venue d'un Senior pourrait-elle être une nuisance? Nous nous connaissons depuis longtemps. Sans vos conseils, Senior Simo, je serais déjà mort au troisième niveau du Fléau Céleste. Senior Simo, veuillez me suivre dans ma grotte! » rit le vieil homme. Il était le neuvième Ancien Déchu et, d'ordinaire, ne se souciait guère des affaires mondaines. Il était en culture fermée lorsqu'il reçut le message de Maître Simo et sortit immédiatement.
 
 Les deux discutèrent tout en s'approchant de la planète, leurs silhouettes s'estompant peu à peu.
 
@@ -78,7 +78,7 @@ Ces cristaux pourraient l'aider lors de son quatrième éveil. En absorber une g
 
 Cependant, après avoir aperçu Maître Simo, Wang Lin changea d'avis. Puisque l'adversaire le traquait jusqu'ici, la fuite serait difficile. Mais Wang Lin n'avait aucune intention de fuir; il prévoyait de combattre ici même!
 
-« Celui qui me chasse n'a pas attaqué par prudence. Il est venu ici pour trouver un prétexte pour m'éliminer... Puisqu'il a des réserves, c'est une chance pour moi... Et puisqu'il ne montre qu'une culture de cinquième niveau du Fléau Céleste, cela signifie soit qu'il refuse de révéler sa véritable stature de cultivateur du troisième pas, soit qu'il n'est ici que sous forme d'avatar... »
+« Celui qui me chasse n'a pas attaqué par prudence. Il est venu ici pour trouver un prétexte pour m'éliminer... Puisqu'il a des réserves, c'est une chance pour moi... Et puisqu'il ne montre qu'une culture de cinquième niveau du Fléau Céleste, cela signifie soit qu'il refuse de révéler sa véritable puissance de cultivateur du troisième pas, soit qu'il n'est ici que sous forme d'avatar... »
 
 « Si ce n'est vraiment qu'un avatar qui me poursuit, alors je laisserai cet avatar périr pour servir d'exemple! Bien que ce ne soit qu'une projection, je dois me préparer. Après tout, un ennemi du cinquième niveau du Fléau Céleste n'est pas une proie facile, et bien que mon essence de tonnerre soit complète, la prudence reste de mise! »
 
@@ -114,6 +114,6 @@ L'individu portait une robe rouge flamboyant et avait les cheveux blancs en bata
 
 Une marque de feu trônait entre ses sourcils! Elle était si vive qu'elle paraissait réellement ardente. Lorsqu'il atteignit le second étage, son regard croisa celui de Wang Lin.
 
-« Cultivateur, laissez cet ancien se saisir des Cristaux de Mutation de Feu Déchaîné. »
+« Camarade cultivateur, il vaut mieux céder les Cristaux de Mutation de Feu Déchaîné à cet ancien. »
 
 Wang Lin esquissa un sourire.

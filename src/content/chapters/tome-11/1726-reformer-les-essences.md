@@ -58,7 +58,7 @@ Au moment même où son corps original fermait les yeux, ceux de son avatar s'ou
 
 « Essence du feu que j'ai comprise et qui fut dispersée dans le vide, reviens! »
 
-Dès qu'il prononça ces mots, des graines de feu commencèrent à apparaître autour de la Bête des Limbes. De plus en plus de graines surgissaient; de loin, on aurait dit que le système stellaire était en flammes. Une mer de feu s'étendait à travers les étoiles!
+Dès qu'il prononça ces mots, de petites flammes commencèrent à apparaître autour de la Bête des Limbes. De plus en plus de flammes surgissaient; de loin, on aurait dit que le système stellaire était en flammes. Une mer de feu s'étendait à travers les étoiles!
 
 Cette mer de feu se mua en un anneau tourbillonnant autour de Wang Lin. Un feu infini convergeait depuis tout le système stellaire, tel une immense vague en perpétuel mouvement.
 
@@ -78,7 +78,7 @@ Bientôt, tout le tonnerre se dissipa devant son œil droit. La marque du tonner
 
 Deux essences: le feu dans son œil gauche et le tonnerre dans son œil droit!
 
-« Les essences éthérées que j'ai comprises dans mon Dao de rêve. Elles contiennent les domaines et les Grands Daos que j'ai accomplis au cours de ma vie. Bien qu'ils se soient tous dissipés, je peux encore les invoquer... La première essence éthérée à revenir sera la Vie et la Mort! »
+« Les essences éthérées que j'ai comprises durant mon millénaire de Dao du rêve. Elles contiennent les domaines et les Grands Daos que j'ai accomplis au cours de ma vie. Bien qu'ils se soient tous dissipés, je peux encore les invoquer... La première essence éthérée à revenir sera la Vie et la Mort! »
 
 Wang Lin murmura et ouvrit les mains.
 

@@ -10,7 +10,7 @@ Wang Lin arracha la voile au visage spectral. Il l'examina attentivement; le vis
 
 La raison pour laquelle Fan Shanmeng avait pu utiliser son Illusion Véritable de l'Âme et atteindre un niveau d'illusion double, alors qu'elle se trouvait loin sur le Continent Astral Immortel, résidait dans cette voile.
 
-Wang Lin se souvenait parfaitement de la façon dont il avait contemplé ce visage spectral avant de mettre fin à l'illusion dans l'illusion. Après cela, il s'était retrouvé totalement piégé jusqu'à ce qu'il brise le sort; et lorsqu'il avait rouvert les yeux, il fixait toujours ce même visage.
+Wang Lin se souvenait parfaitement de la façon dont il avait contemplé ce visage spectral avant d'entrer dans l'illusion dans l'illusion. Après cela, il s'était retrouvé totalement piégé jusqu'à ce qu'il brise le sort; et lorsqu'il avait rouvert les yeux, il fixait toujours ce même visage.
 
 Tout semblait s'être produit dans cette illusion à l'instant précis où Wang Lin avait posé son regard sur le visage spectral.
 
@@ -22,7 +22,7 @@ Sur le côté, Fan Shanlu réfléchit silencieusement un instant avant de décla
 
 Fan Shanlu ouvrit la bouche comme pour dire quelque chose, mais finit par rester silencieuse. Elle se tint là, immobile, l'expression complexe.
 
-« Vous n'avez pas besoin de quitter ce navire. Je peux partir avec vous. Quand j'en aurai besoin, je vous appellerai pour que vous me le rapportiez. L'autel ancien dont vous avez parlé lorsque nous étions dans l'illusion se trouve-t-il sur ce navire? » demanda Wang Lin, une pointe de froideur dans le regard.
+« Vous n'avez pas besoin de quitter ce navire. Je peux vous le confier. Quand j'en aurai besoin, je lancerai un appel. L'autel ancien dont vous avez parlé lorsque nous étions dans l'illusion se trouve-t-il sur ce navire? » demanda Wang Lin, une pointe de froideur dans le regard.
 
 Fan Shanlu réfléchit longuement avant de secouer la tête. Elle leva la main et un jade vola vers Wang Lin. Il le rattrapa et découvrit qu'une carte se trouvait à l'intérieur.
 
@@ -34,9 +34,9 @@ Wang Lin réfléchit un instant, puis joignit les mains en signe de respect enve
 
 « Ma sœur aînée est si désespérée de se venger que même moi, j'ai été utilisée... Nous pouvons coopérer, et je ferai de mon mieux pour vous aider. Je n'ai qu'une seule requête: lorsque vous ouvrirez la porte du Continent Astral Immortel, emmenez-moi avec vous... Je veux rentrer chez moi... »
 
-« Il est très difficile d'ouvrir cette grotte. Seule la troisième âme possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans le palais céleste du Souverain Céleste aux Sept Couleurs... »
+« Il est très difficile d'ouvrir cette grotte. Seule la troisième âme possède les souvenirs et sait où se trouve le Dao Céleste. Ce n'est qu'en invoquant le Dao Céleste que vous pourrez entrer dans la demeure du Souverain Céleste, dans le monde de la grotte de la Secte des Sept Dao... »
 
-« Le palais céleste fut le théâtre de la grande guerre d'autrefois. Bien qu'il soit en ruines, il s'y trouve une porte qui mène au Continent Astral Immortel. Ouvrir cette porte revient à ouvrir la grotte. »
+« La demeure du Souverain Céleste fut le théâtre de la grande guerre d'autrefois. Bien qu'elle soit en ruines, il s'y trouve une porte qui mène au Continent Astral Immortel. Ouvrir cette porte revient à ouvrir la grotte. »
 
 Wang Lin s'arrêta. Après un moment de réflexion, il se tourna vers la mélancolique Fan Shanlu et hocha la tête.
 
@@ -78,7 +78,7 @@ Après plusieurs heures, Wang Lin s'arrêta brusquement et son expression change
 
 Cependant, juste avant de s'éclipser, il laissa échapper un cri de surprise et fixa l'horizon, le visage oscillant entre plusieurs émotions.
 
-Son Sens Divin percevait une silhouette assise là, immobile, à des centaines de milliers de kilomètres de distance, parmi les cadavres d'innombrables bêtes féroces. L'expression de cette silhouette passait de la confusion au ressentiment, de l'étonnement à l'excitation.
+Son Sens Divin percevait une silhouette assise là, immobile, à des centaines de milliers de kilomètres de distance, parmi les cadavres d'innombrables bêtes féroces. L'expression de cette silhouette passait tantôt par la complexité, tantôt par la confusion, tantôt par une tristesse mêlée d'excitation.
 
 C'était le Daoïste aux Sept Couleurs!
 
@@ -98,7 +98,7 @@ Après sept ou huit minutes de lutte intérieure, une lueur froide traversa le r
 
 Le sol était jonché de cadavres de bêtes féroces. Wang Lin se tint sur l'un d'eux et observa la scène, ses yeux commençant à briller.
 
-« Ces bêtes ne sont pas mortes depuis longtemps... » Wang Lin fixa le Daoïste au loin. Il leva la main droite et le cadavre d'une bête de cent pieds de long s'éleva dans les airs. D'un geste, il projeta la carcasse vers le Daoïste aux Sept Couleurs.
+« Ces bêtes ne sont pas mortes depuis longtemps... » Wang Lin fixa le Daoïste au loin. Il leva la main droite et le cadavre d'une bête de plusieurs centaines de pieds de long s'éleva dans les airs. D'un geste, il projeta la carcasse vers le Daoïste aux Sept Couleurs.
 
 Wang Lin se pencha légèrement en arrière, observant le cadavre qui volait jusqu'à atteindre la limite des 1 000 pieds autour de l'expert.
 

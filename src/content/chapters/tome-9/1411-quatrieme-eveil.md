@@ -22,9 +22,9 @@ Wang Lin avait brisé le ciel de l'Épreuve Humaine et était apparu dans une co
 
 Alors que Wang Lin surgissait de ce gouffre, des flammes jaillirent de son corps. La terre entière fut illuminée par ce brasier.
 
-À la lisière de ces terres se dressait une montagne aride, au sommet de laquelle siégeait un homme. Il semblait d'âge moyen et une marque illusoire de Oiseau Vermillon trônait entre ses sourcils.
+À la lisière de ces terres se dressait une montagne aride, au sommet de laquelle siégeait un homme. Il semblait d'âge moyen, vêtu d'une robe de lettré et coiffé d'un foulard carré, et une marque illusoire de Oiseau Vermillon trônait entre ses sourcils.
 
-Il cultivait comme s'il n'avait pas bougé depuis des dizaines de milliers d'années. Cependant, à cet instant, il ouvrit les yeux et une lueur étrange y traversa.
+Il cultivait comme s'il n'avait pas bougé depuis dix mille ans. Cependant, à cet instant, il ouvrit les yeux et une lueur étrange y traversa.
 
 « L'aura d'un membre du clan... »
 
@@ -66,7 +66,7 @@ Les yeux de l'homme d'âge moyen se rétrécirent et il se redressa brusquement,
 
 Le Sens Divin du vieux Oiseau Vermillon parvint sur les lieux, mais dès qu'il effleura la force mystérieuse, il fut projeté hors de l'Épreuve Terrestre.
 
-Le Sens Divin du Maître du Dao Rêve Bleu suivit, mais au contact de cette étrange puissance, des éclairs bleus jaillirent et il fut lui aussi expulsé de l'épreuve.
+Le Sens Divin du Maître du Dao Rêve Bleu suivit, mais au contact de cette étrange puissance, des lueurs bleues clignotèrent et il fut lui aussi expulsé de l'épreuve.
 
 Sur la Planète des Grands Empereurs, la main droite du vieux Oiseau Vermillon fut violemment projetée en l'air. Ses yeux étaient empreints d'incrédulité et il recula inconsciemment de plusieurs pas.
 
@@ -80,7 +80,7 @@ Maître Simo observait la scène, stupéfait. Il avait vu les deux puissances s'
 
 L'expression de la Grande Maîtresse Yun Luo devint plus sombre encore et ses mains s'activèrent avec précipitation. Elle sentait qu'elle était sur le point de percer les secrets qui se jouaient là.
 
-Le Maître du Dao Miao Yun se leva de son nuage, le regard brillant.
+Le Maître du Dao Miao Yin se leva de son nuage, le regard brillant.
 
 « Ce que Shui Daozi disait était vrai! »
 
@@ -100,7 +100,7 @@ Le monde semblait avoir perdu toute couleur, à l'exception des sept teintes ent
 
 Cela ressemblait à une peinture de paysage, où ce contraste n'insufflait qu'un sentiment d'infinies désolations.
 
-La dernière rétribution des neuf karmas descendait!
+Les deux dernières rétributions des neuf karmas descendaient!
 
 Le blanc représentait le ciel et le noir la terre. Ils formèrent deux feux extrêmes qui convergèrent vers Wang Lin. C'était comme si le ciel et la terre s'écrasaient pour anéantir la tempête de feu septicolore et Wang Lin qui se trouvait en son sein.
 

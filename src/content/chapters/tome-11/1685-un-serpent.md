@@ -10,7 +10,7 @@ Une gigantesque plateforme de pierres spirituelles se dressait entre ces deux gr
 
 Wang Lin avait cultivé pendant de nombreuses années et n'avait que rarement vu des pierres spirituelles aussi massives. Bien que ces pierres ne lui fussent plus d'aucune utilité désormais, son expression devint encore plus étrange en les voyant.
 
-Un dragon rouge était enroulé sur la plateforme. Ce dragon n'était pas de taille imposante; il se prélassait paresseusement tandis que des milliers de cultivateurs le portaient. Parfois, il arrachait un morceau de la pierre spirituelle et le jetait dans sa gueule. Il le mâchonnait avant de l'avaler, affichant une expression de pur contentement.
+Un dragon rouge était enroulé sur la plateforme. Ce dragon n'était pas de taille imposante; il se prélassait paresseusement tandis que des centaines de cultivateurs le portaient. Parfois, il arrachait un morceau de la pierre spirituelle et le jetait dans sa gueule. Il le mâchonnait avant de l'avaler, affichant une expression de pur contentement.
 
 « Le Dragon Céleste est puissant... Le Dragon Céleste révèle le Dao... » Les rugissements des cultivateurs rendaient le dragon encore plus satisfait.
 
@@ -18,7 +18,7 @@ Un dragon rouge était enroulé sur la plateforme. Ce dragon n'était pas de tai
 
 « Deux petites filles-dragons sous la Montagne des Neiges Volantes, connaissez-vous l'ardeur de mes sentiments pour vous? Vos longues moustaches, vos corps merveilleux et vos yeux séduisants... » Le dragon rouge semblait transporté par une joie excessive et se mit à fredonner.
 
-Simultanément, sa queue battait la pierre spirituelle en rythme. Les milliers de cultivateurs qui l'entouraient ne pouvaient que contempler le dragon avec impuissance. Pour eux, sa voix était trop mélodieuse et dépourvue de tout goût. Chaque fois qu'il chantait ainsi, ils n'avaient d'autre choix que de rugir bruyamment pour couvrir son chant terrifiant.
+Simultanément, sa queue battait la pierre spirituelle en rythme. Le millier de cultivateurs et plus qui l'entouraient ne pouvaient que contempler le dragon avec impuissance. Pour eux, sa voix était trop mélodieuse et dépourvue de tout goût. Chaque fois qu'il chantait ainsi, ils n'avaient d'autre choix que de rugir bruyamment pour couvrir son chant terrifiant.
 
 « Le Dragon Céleste révèle le Dao... Le Dragon Céleste est puissant... »
 
@@ -26,7 +26,7 @@ Ce dragon rouge était le dragon de feu qui avait failli être vidé de son sang
 
 Désormais, des centaines d'années s'étaient écoulées. Juste au moment où Wang Lin allait totalement oublier cette affaire, ce pitoyable dragon de feu réapparut dans son Sens Divin.
 
-Alors que les milliers de cultivateurs arrivaient avec le dragon, tous les Sens Divins des cultivateurs de la troisième étape rassemblés autour de Wang Lin se déplacèrent, suivant le regard de ce dernier.
+Alors que plus d'un millier de cultivateurs arrivaient avec le dragon, tous les Sens Divins des cultivateurs de la troisième étape rassemblés autour de Wang Lin se déplacèrent, suivant le regard de ce dernier.
 
 Le dragon de feu mâchonnait toujours ses pierres spirituelles et chantait fièrement. Cependant, à cet instant précis, il trembla. Le bruit de mastication et le chant s'arrêtèrent net.
 
@@ -42,7 +42,7 @@ Il avait suivi ce chemin plus de dix fois sans jamais rencontrer le moindre dang
 
 Normalement, lorsqu'il rencontrait un cultivateur plus faible que lui, ce dragon déployait sa puissance pour effrayer l'inconnu et l'obliger à rejoindre docilement sa Secte du Dragon Céleste.
 
-Cependant, aujourd'hui, il n'aurait jamais pu imaginer qu'il tomberait nez à nez avec une telle concentration de Sens Divins en plein milieu de son voyage. Ces Sens Divins le faisaient trembler; certains étaient si puissants qu'ils lui donnaient l'impression d'avaler des litres de salive de dragon.
+Cependant, aujourd'hui, il n'aurait jamais pu imaginer qu'il tomberait nez à nez avec une telle concentration de Sens Divins en plein milieu de son voyage. Ces Sens Divins le faisaient trembler; certains étaient si puissants qu'ils lui faisaient avaler coup sur coup de grandes gorgées de salive de dragon.
 
 Son cœur de dragon battait la chamade. Le dragon rouge s'arracha à la pierre spirituelle, prêt à fuir. Cependant, voyant la panique et la confusion de ses disciples, il hésita un instant avant de réprimer sa peur. Il se posa prudemment sur la plateforme en pierre spirituelle et se racla la gorge de manière sèche.
 
@@ -50,7 +50,7 @@ Son cœur de dragon battait la chamade. Le dragon rouge s'arracha à la pierre s
 
 En entendant cela, bien que les cultivateurs environnants fussent encore perplexes, ils obéirent à l'ordre du dragon. Ils portèrent la gigantesque plateforme de pierre spirituelle et entreprirent un lent repli.
 
-Toutefois, la pierre étant trop massive, leur progression était très lente. Le dragon rouge était extrêmement anxieux; il percevait une forme de cupidité émanant de ces Sens Divins. Il fut désespéré de constater qu'au fur et à mesure que la pierre reculait, les Sens Divins continuaient de le suivre, verrouillés sur lui.
+Toutefois, la pierre étant trop massive, leur progression était très lente. Le dragon rouge était extrêmement anxieux; il sentait une chaleur brûlante dans ces Sens Divins qui s'étaient concentrés sur lui. Il fut désespéré de constater qu'au fur et à mesure que la pierre reculait, les Sens Divins continuaient de le suivre, verrouillés sur lui.
 
 « Maudit soit! Dépêchez-vous, tous autant que vous êtes! Si vous êtes trop lents, ce dragon vous dévorera tous! » Après cela, semblant toujours inquiet, il ajouta précipitamment: « Ma marmite de pilules est très précieuse... »
 
@@ -66,13 +66,13 @@ Il poussa un grand soupir de soulagement et prit une décision: une fois rentré
 
 Les cultivateurs environnants étaient toujours sous le choc, ignorant ce qui venait de se passer. On ne savait pas qui avait initié cela, mais pour complaire au dragon de feu, ils se mirent soudainement à rugir de toutes leurs forces.
 
-« Le Dragon Céleste révèle le Dao! Croyez mes paroles et évitez la catastrophe de la destruction du monde... »
+« Le Dragon Céleste révèle le Dao! Croyez en mon Dao et évitez la catastrophe de la destruction du monde. Le Dragon Céleste est puissant... »
 
-« Le Dragon Céleste révèle le Dao! Croyez en cet apôtre! Il nous mènera vers l'infini Royaume Céleste pour devenir immortels. Le Dragon Céleste est puissant... »
+« Le Dragon Céleste révèle le Dao! Croyez et devenez disciples, nous vous mènerons vers le Royaume Céleste suprême. Le Dragon Céleste est puissant... »
 
 À l'instant où les chants commencèrent, un puissant Sens Divin surgit derrière eux. Ce Sens Divin dégageait une pression si écrasante qu'elle faillit faire perdre connaissance au dragon de feu.
 
-« Puissant... Quelle puissance!! Vous tous, taisez-vous! » rugit le dragon, presque en larmes. Il pensait avoir échappé au désastre, mais il n'avait pas prévu que les acclamations de ces gens attireraient un Sens Divin capable de le faire trembler ainsi.
+« Puissant... puissant, mon œil!! Vous tous, taisez-vous! » rugit le dragon, presque en larmes. Il pensait avoir échappé au désastre, mais il n'avait pas prévu que les acclamations de ces gens attireraient un Sens Divin capable de le faire trembler ainsi.
 
 Il avait inventé ces phrases lui-même et aimait s'en entendre parler. Mais désormais, ces mots le menaient droit à sa tombe, ce qui fit pousser au dragon de feu un rugissement misérable.
 
@@ -82,7 +82,7 @@ Après avoir poussé ce cri, il se retourna précipitamment. Il s'inclina, les m
 
 « Hehe, hehe, je ne viendrai pas perturber votre réunion, mes chers Seniors. Vous êtes tous occupés, ne faites donc aucun cas de moi. Je m'en vais tout seul... Ne vous donnez pas la peine de m'escorter... » Le dragon de feu tremblait et abandonna même la plateforme en pierre spirituelle pour s'enfuir avec anxiété.
 
-Cependant, alors qu'il battait en retraite, il s'arrêta net. Cette fois, il était véritablement sur le point de pleurer: une silhouette aux cheveux blancs apparut devant lui. Wang Lin sortit de l'ombre et regarda le dragon de feu avec un sourire qui n'en était pas un.
+Cependant, alors qu'il battait en retraite, il s'arrêta net. Cette fois, il était véritablement sur le point de pleurer: une silhouette aux cheveux blancs apparut devant lui. Wang Lin fit un pas en avant et regarda le dragon de feu avec un sourire qui n'en était pas un.
 
 « C'est vous!! » Le dragon de feu vit Wang Lin et fut pétrifié. Il y avait une raison pour laquelle la deuxième génération de l'Oiseau Vermillon l'avait traité de « dragon idiot ». En voyant Wang Lin, il se souvint de la faiblesse passée de ce dernier et en oublia totalement le Sens Divin qui le faisait trembler.
 
@@ -96,4 +96,4 @@ Wang Lin sortit des flammes et tout le brasier vacillant s'immobilisa. Les flamm
 
 « Dragon de feu... » Wang Lin arborait toujours ce sourire qui n'en était pas un en contemplant la créature.
 
-« Je... Je ne suis vraiment qu'un serpent... » Le dragon de feu tremblait, ayant perdu toute trace de folie. Il ne pensait plus qu'à l'aura terrifiante que dégageait Wang Lin.
+« Je... Je ne suis vraiment qu'un serpent... » Le dragon de feu tremblait, n'étant plus aussi stupide. Il ne pensait plus qu'à l'aura terrifiante que dégageait Wang Lin.

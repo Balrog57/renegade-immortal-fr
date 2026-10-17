@@ -54,7 +54,7 @@ La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l
 
 « Le premier groupe contient 999 sceaux, le deuxième en compte 9 999, et les troisième et quatrième groupes en comptent chacun 990 000!
 
-« Vous devez former tous ces sceaux en l'espace de neuf respirations. Chaque sceau doit contenir l'énergie Yang de votre âme originelle. Ensuite, avec une incantation spéciale, vous pourrez déployer le sort le plus puissant du Clan du Oiseau Vermillon: le Parapluie du Royaume Brûlant!
+« Vous devez former tous ces sceaux en l'espace de neuf respirations. Chaque sceau doit contenir l'énergie Yang de votre âme originelle, ainsi que la puissance de toute votre culture. Ensuite, avec une incantation spéciale, vous pourrez déployer le sort le plus puissant du Clan de l'Oiseau Vermillon: le Parapluie du Royaume Brûlant!
 
 « Si la moindre erreur est commise lors de la formation des sceaux, les conséquences seront inimaginables. Même avec ma culture au stade intermédiaire du Vide Arcanique, je serais gravement blessé. Si un cultivateur n'appartenant pas à l'élément feu commettait une erreur, il mourrait probablement!
 
@@ -64,7 +64,7 @@ La respiration du vieux Oiseau Vermillon devint rauque. Il était évident que l
 
 « À l'époque, l'Ancien Souverain Céleste ouvrit l'ombrelle huit fois pour détruire un royaume! Même lui n'osa pas l'ouvrir une neuvième fois! L'ancêtre est au début du stade de la Tribulation du Vide et ne peut l'ouvrir que cinq fois! Quant à ce vieil homme, grâce à l'intégrité de l'énergie Yang de mon âme originelle après des dizaines de milliers d'années, je peux utiliser ma propre Yang pour l'ouvrir deux fois au stade intermédiaire du Vide Arcanique!
 
-« Je ne devrais pas vous transmettre ce sort, car il est trop dangereux et la moindre erreur mènerait au désastre! L'ancêtre a également dit que le sort était incomplet, car l'Ancien Empereur Céleste l'a secrètement appris d'un tiers; mais comme votre compréhension est très élevée, vous pourrez décider par vous-même! »
+« Je ne devrais pas vous transmettre ce sort, car il est trop dangereux et la moindre erreur mènerait au désastre! L'ancêtre a également dit que le sort était incomplet, car l'Ancien Empereur Céleste l'aurait, semble-t-il, secrètement appris d'un tiers; mais comme votre compréhension est très élevée, vous pourrez décider par vous-même! »
 
 Les paroles du vieux Oiseau Vermillon résonnaient tandis que Wang Lin fixait l'ombrelle dans le ciel. Son esprit était bouleversé!
 
@@ -78,7 +78,7 @@ La respiration du vieux Oiseau Vermillon s'accéléra encore. Il agita la main e
 
 Il fallut sept minutes avant que la tempête ne s'évanouisse totalement. La Planète de l'Empereur retrouva peu à peu son état normal et les distorsions s'estompèrent lentement.
 
-Bien que ce phénomène n'ait pas duré longtemps, il avait laissé Wang Lin le teint livide et le regard étincelant. Bien que le sort n'ait pas été pleinement activé, Wang Lin en avait perçu l'essence. Son cœur battait la chamade.
+Bien que ce phénomène n'ait pas duré longtemps, il avait laissé Wang Lin le cuir chevelu hérissé et le regard étincelant. Bien que le sort n'ait pas été pleinement activé, Wang Lin en avait perçu l'essence. Son cœur battait la chamade.
 
 Le vieux Oiseau Vermillon ne se détendit qu'une fois le monde revenu à la normale. Il agita la main et une tablette de jade vola du vide vers Wang Lin.
 
@@ -102,7 +102,7 @@ Si ces paroles étaient vraies, leur portée était terrifiante.
 
 « Que vaut mon niveau de culture actuel... Quelle est la taille de ce monde? Qu'y a-t-il au-delà de ce monde... » Après un moment, Wang Lin prit une profonde inspiration et une détermination farouche remplit son regard.
 
-Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. Au contraire, cela attisa la volonté défiante qui brûlait dans son cœur!
+Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. Au contraire, cela attisa la volonté défiante qui brûlait dans son cœur, tout comme les paroles qu'il avait dites auparavant au premier Oiseau Vermillon!
 
 « Je le peux aussi! »
 
@@ -110,11 +110,11 @@ Plus il en apprenait, plus il se sentait petit, mais Wang Lin ne renonça pas. A
 
 « Pourquoi moi, Wang Lin, ne pourrais-je pas en être capable! »
 
-Dans ce monde, certains choisissaient d'être mortels, d'autres devenaient des êtres célestes, et d'autres restaient subalternes. Tout était inégal. Il y avait de grandes injustices dans ce monde, mais il était aussi extrêmement juste!
+Dans ce monde, certains étaient mortels, d'autres devenaient des immortels, certains étaient des inférieurs et d'autres des supérieurs. Tout était inégal. Il y avait de grandes injustices dans ce monde, mais il était aussi extrêmement juste!
 
 « Puisque quelqu'un a pu créer un tel sort et atteindre un niveau de culture inimaginable, alors moi, Wang Lin, je peux faire de même! Bien que mon talent soit limité, cela ne sera pas la pierre qui me fera trébucher! »
 
-« Aujourd'hui, j'ai appris le sort du Royaume Brûlant, créé par un autre et volé plus tard par l'Ancien Empereur Céleste. À l'avenir... je veux que ce soient les autres qui apprennent mes sorts! » L'expression de Wang Lin était empreinte d'une volonté de fer. Il ne rugit pas, il ne pleura pas; seules ses paroles silencieuses résonnèrent dans son cœur!
+« Aujourd'hui, j'ai appris le sort du Royaume Brûlant, créé par un autre et volé plus tard par l'Ancien Empereur Céleste. À l'avenir... je veux que ce soient les autres qui apprennent mes sorts! » L'expression de Wang Lin était empreinte d'une volonté de fer. Il ne poussa pas de long cri, il ne hurla pas; seules ses paroles silencieuses résonnèrent dans son cœur!
 
 Peut-être était-ce là sa véritable ambition!
 

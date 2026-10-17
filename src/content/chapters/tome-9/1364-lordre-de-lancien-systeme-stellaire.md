@@ -10,7 +10,7 @@ Des nuages noirs couvraient le ciel, déchirant la lumière du soleil tandis qu'
 
 À l'intérieur des maisons, les habitants entendaient distinctement la pluie marteler leurs plafonds. L'eau ruisselait le long des corniches, formant de véritables rideaux liquides.
 
-Les branches chargées de feuilles frémissaient sous l'assaut de l'averse, s'unissant aux cascades qui dégoulinaient des portes.
+Les grappes de feuilles suspendues sous les corniches bruissaient sous l'averse, et l'eau qui en ruisselait se fondait dans les rideaux de pluie des toits.
 
 La terre semblait avoir été aride durant une éternité. À chaque goutte tombant du ciel, d'importantes quantités de poussière étaient soulevées, mais avant même de pouvoir s'élever, elles étaient immédiatement écrasées par la pluie et se fondaient dans les flaques de boue.
 
@@ -50,9 +50,9 @@ Les pupilles de l'homme qui protégeait la femme se rétractèrent et il joignit
 
 La femme esquissa un sourire gracieux et répondit doucement: « La petite sœur salue le Grand Frère Zhou. »
 
-Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna les yeux pour fixer l'homme en bleu. Il déclara froidement: « Le Clan du Tonnerre Dispersé a été anéanti. Leur Grand Ancien a été vaincu et est porté disparu. Tout cela a été confirmé par le Conseil Souverain. Ils ont émis l'Ordre de l'Ancien Système Stellaire pour informer tous les clans! Cet appel urgent sert à transmettre l'annonce du Conseil Souverain. »
+Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna les yeux pour fixer l'homme en bleu. Il déclara froidement: « Le Clan du Tonnerre Dispersé a été anéanti. Leur Grand Ancien a été vaincu et est porté disparu. Tout cela a été confirmé par le Conseil Souverain. Ils ont émis l'Ordre du Système Stellaire Antique pour informer tous les clans! Cet appel urgent sert à transmettre l'annonce du Conseil Souverain. »
 
-« Le Grand Maître Yun Luo du Conseil Souverain a utilisé un grand sort de divination pour identifier l'apparence et l'empreinte d'âme originelle de celui qui a détruit le Clan du Tonnerre Dispersé. L'Ordre de Mort de l'Ancien Système Stellaire a été diffusé! »
+« Le Grand Maître Yun Luo du Conseil Souverain a utilisé un grand sort de divination pour identifier l'apparence et l'empreinte de sens divin de celui qui a détruit le Clan du Tonnerre Dispersé. L'Ordre de Mort du Système Stellaire Antique a été diffusé! »
 
 « Cette affaire est d'une telle importance que je crains que même des gens comme nous ne devions participer aux recherches. Même cette planète de culture doit être fouillée minutieusement. Prenez garde à vous! »
 
@@ -62,13 +62,13 @@ Le jeune homme nommé Zhou afficha une expression complexe lorsqu'il détourna l
 
 « De plus, le Clan du Tonnerre Dispersé comptait des centaines de milliers de membres et de nombreux cultivateurs puissants. Comment ont-ils pu être exterminés ainsi?! »
 
-« Le Clan du Tonnerre Dispersé possédait également l'Éternel Éclair, une relique existant depuis des temps immémoriaux. Cette affaire... cette affaire... »
+« Le Clan du Tonnerre Dispersé possédait également l'éclair éternel, une relique existant depuis des temps immémoriaux. Cette affaire... cette affaire... »
 
-Le jeune homme en noir s'apprêtait à partir, mais il se retourna et ajouta froidement: « Ce n'est pas encore confirmé, mais le Conseil Souverain affirme que l'Éternel Éclair a été dévoré par cet individu! Pour le moment, tout l'Ancien Système Stellaire est en alerte. Le Conseil Souverain a même dépêché un Ancien pour traquer cette personne! »
+Le jeune homme en noir s'apprêtait à partir, mais il se retourna et ajouta froidement: « Ce n'est pas encore confirmé, mais le Conseil Souverain affirme que l'éclair éternel a été dévoré par cet individu! Pour le moment, tout le Système Stellaire Antique est en alerte. Le Conseil Souverain a même dépêché un Ancien pour traquer cette personne! »
 
 Sous les nuages où tombait la pluie, Wang Lin détourna lentement le regard. Ses yeux étaient calmes alors qu'il s'asseyait et regardait sur le côté.
 
-Une lueur passa dans son regard et il murmura: « On m'a découvert si vite... Le Conseil Souverain. Je dois affiner ce dernier dragon de tonnerre ancien au plus vite, puis fusionner avec l'Éternel Éclair! »
+Une lueur passa dans son regard et il murmura: « On m'a découvert si vite... Le Conseil Souverain. Je dois affiner ce dernier dragon de tonnerre ancien au plus vite, puis fusionner avec l'éclair éternel! »
 
 Wang Lin médita en silence, les yeux clos. La flamme monstrueuse nichée dans son âme originelle était en train d'affiner le dernier dragon de tonnerre ancien.
 
@@ -78,9 +78,9 @@ Même à midi, aucun rayon de soleil ne parvenait à percer la couche nuageuse. 
 
 À cet instant précis, les huit dragons de tonnerre anciens avaient tous été dévorés par Wang Lin, devenant une partie intégrante de lui. Son âme originelle grandit alors de manière prodigieuse. Les flammes se dissipèrent, remplacées par un tonnerre infini.
 
-L'essence du tonnerre commença à croître à une vitesse phénoménale! L'âme originelle de Wang Lin changea lentement de forme, passant de celle d'un dragon de tonnerre ancien à celle d'un éclair de foudre!
+Parmi les cinq essences de son corps, l'essence du tonnerre se mit à gonfler follement, à croître sans cesse, à ébranler le ciel et la terre! L'âme originelle de Wang Lin changea lentement de forme, passant de celle d'un dragon de tonnerre ancien à celle d'un éclair de foudre!
 
-Un éclair de foudre reliant les cieux et la terre. La tête de Wang Lin était le ciel et ses pieds étaient la terre. Cet éclair était désormais identique à celui du Clan du Tonnerre Dispersé: éternel!
+Un éclair de foudre reliant le ciel et la terre de son corps. La tête de Wang Lin était le ciel et ses pieds étaient la terre. Cet éclair était désormais identique à celui du Clan du Tonnerre Dispersé: éternel!
 
 Dès que cet éclair prit sa forme définitive, les nuages grondèrent et une pluie encore plus dense s'abattit. Le tonnerre semblait avoir perdu toute raison, rugissant avec une violence inouïe.
 
@@ -96,18 +96,18 @@ L'un des vieillards répondit: « Peut-être sommes-nous simplement trop inquiet
 
 « Hélas, même un grand clan comme le Clan du Tonnerre Dispersé a été anéanti et son Grand Ancien tué. En écoutant ce tonnerre, je ne peux m'empêcher de pressentir une anomalie, mais je me trompe peut-être. » Le vieillard au stade Briseur du Nirvana secoua la tête et se tut.
 
-« Peu importe qui est cette personne. Puisque l'Ordre de Mort de l'Ancien Système Stellaire a été émis, dès que ses traces seront trouvées, il sera sans aucun doute condamné! »
+« Peu importe qui est cette personne. Puisque l'Ordre de Mort du Système Stellaire Antique a été émis, dès que ses traces seront trouvées, il sera sans aucun doute condamné! »
 
 Dans la partie orientale de la planète se dressait une immense chaîne de montagnes. C'était là que se trouvait le Clan Zhen Yan. Contrairement au Clan du Tonnerre Dispersé, le Clan Zhen Yan n'était qu'une petite secte occupant une seule planète de culture, à l'instar des sectes du Royaume Intérieur.
 
 À cet instant, au sein du Clan Zhen Yan, un homme aux cheveux blancs se tenait au sommet d'une montagne. Il paraissait très vieux et fixait l'horizon. Après un long moment, il murmura: « Pourquoi ai-je l'impression qu'une calamité est sur le point de frapper... »
 
-Wang Lin savait que le temps pressait. Après avoir dévoré les huit dragons de tonnerre anciens, il libéra l'Éternel Éclair. Dès sa libération, ce dernier tenta de s'extirper du corps de Wang Lin.
+Wang Lin savait que le temps pressait. Après avoir dévoré les huit dragons de tonnerre anciens, il libéra l'éclair éternel. Dès sa libération, ce dernier tenta de s'extirper du corps de Wang Lin.
 
-Cependant, juste au moment où il allait bouger, l'âme originelle de Wang Lin, devenue un éclair de foudre, se précipita sur l'Éternel Éclair et commença à le dévorer frénétiquement!
+Cependant, juste au moment où il allait bouger, l'âme originelle de Wang Lin, devenue un éclair de foudre, se précipita sur l'éclair éternel et commença à le dévorer frénétiquement!
 
-L'Éternel Éclair se débattit avec acharnement. Une volonté résidait en lui, semblable à celle d'un cultivateur, et elle engagea une lutte mortelle contre Wang Lin!
+L'éclair éternel se débattit avec acharnement. Une volonté résidait en lui, semblable à celle d'un cultivateur, et elle engagea une lutte mortelle contre Wang Lin!
 
-« Fusionne avec moi et deviens une partie de mon essence du tonnerre. Permets à mon essence d'atteindre la perfection et, avec les formes de tonnerre qui l'accompagnent, augmente mon niveau de culture! » Le sens divin de Wang Lin balaya tout comme une tempête, brisant chaque once de résistance opposée par l'Éternel Éclair.
+« Fusionne avec moi et deviens une part de mon âme originelle. Permets à ma source du Dao du tonnerre d'atteindre la grande perfection et, avec les tonnerres qui l'accompagnent, de percer le firmament et d'accroître mon niveau de culture! » Le sens divin de Wang Lin balaya tout comme une tempête, brisant chaque once de résistance opposée par l'éclair éternel.
 
-« Sortilège du Dao... Fusionne! » L'œil droit de Wang Lin s'illumina et les deux essences de tonnerre distinctes dans ses yeux commencèrent à pivoter. Son regard dégageait alors une aura démoniaque!
+« Sortilège du Dao... Fusionne! » L'œil droit de Wang Lin s'illumina et les deux empreintes distinctes de sources de foudre dans sa pupille droite commencèrent à pivoter. Son regard dégageait alors une aura démoniaque!

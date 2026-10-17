@@ -8,7 +8,7 @@ slug: la-pointe-de-lepee-qui-penetre-le-continent-astral-immortel
 ---
 Le sens divin de Wang Lin lui permettait de tout percevoir dans cet endroit mystérieux. Ce lieu n'était pas très vaste, mais ressemblait à un long et étroit passage!
 
-Les parois du conduit étaient austères et parsemées de zones dégradées, donnant l'impression que le passage pouvait s'effondrer à tout instant.
+Les parois du conduit étaient fragiles et parsemées de zones dégradées, donnant l'impression que le passage pouvait s'effondrer à tout instant.
 
 Une extrémité du passage se trouvait là où se tenait Wang Lin, tandis que l'autre s'enfonçait dans les profondeurs. Même le sens divin de Wang Lin ne pouvait s'y étendre; il n'arrivait qu'à distinguer vaguement une porte de pierre gigantesque!
 
@@ -52,7 +52,7 @@ L'épée fut repoussée contre les parois jusqu'à atteindre une distance de 500
 
 « Si mon corps original était ici, bien que parcourir ces 500 pieds soit difficile, je pourrais atteindre la porte en utilisant un sort immortel! Cependant, si je partais maintenant pour fusionner avec mon corps original, cela me ferait perdre trop de temps... »
 
-Une lueur de froideur traversa le regard de Wang Lin. Durant toute sa vie de culture, il n'avait jamais plié le genou devant une quelconque force. À cet instant, il laissa échapper un reniflement glacial et ses yeux formèrent un sceau. Le tonnerre dans son œil gauche éclata, libérant son essence de tonnerre.
+Une lueur de froideur traversa le regard de Wang Lin. Durant toute sa vie de culture, il n'avait jamais plié le genou devant une quelconque force. À cet instant, il laissa échapper un reniflement glacial et ses mains formèrent un sceau. Le tonnerre dans son œil gauche éclata, libérant son essence de tonnerre.
 
 Simultanément, le feu dans son œil droit rugit, révélant une flamme ardente.
 
@@ -74,7 +74,7 @@ Au moment où l'épée transperça le talisman et pénétra la porte, l'âme ori
 
 C'était l'aura du Continent Astral Immortel, l'endroit que son sens divin avait exploré juste après la fin de son Dao de Rêve!
 
-Le Continent Astral Immortel, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs du troisième pas avaient besoin d'un temps infini pour le traverser.
+Le Continent Astral Immortel, un monde existant depuis des éons. Sa taille équivalait à celle d'innombrables Royaumes Intérieurs et Extérieurs. Même les cultivateurs du troisième pas avaient souvent besoin de très longtemps pour le traverser.
 
 Le Continent Astral Immortel était réputé pour être l'endroit le plus spectaculaire de l'univers!
 
@@ -88,29 +88,29 @@ Un vaste groupe de palais trônait sur cette colline. Il s'agissait d'une branch
 
 Cette secte était comparable à la Secte des Sept Dao; elle ne pouvait être considérée comme une grande puissance!
 
-À cet instant précis, sur la place principale de cette branche, une horloge géante de 10 000 pieds de haut flottait dans les airs. Elle paraissait majestueuse à distance.
+À cet instant précis, sur la place principale de cette branche, une cloche géante de 10 000 pieds de haut flottait dans les airs. Elle paraissait majestueuse à distance.
 
-Cependant, soudain, l'horloge trembla et un bourdonnement qui résonna à travers toute la secte en émana. Plusieurs rayons de lumière jaillirent immédiatement des palais environnants.
+Cependant, soudain, la cloche trembla et un bourdonnement qui résonna à travers toute la secte en émana. Plusieurs rayons de lumière jaillirent immédiatement des palais environnants.
 
-Lorsqu'ils arrivèrent, une lumière rouge sang, terrifiante, jaillit de l'horloge. Dès son apparition, elle irradia intensément.
+Lorsqu'ils arrivèrent, une lumière rouge sang, terrifiante, jaillit de la cloche. Dès son apparition, elle irradia intensément.
 
 C'était comme si cette lumière avait quitté le Continent Astral Immortel depuis bien trop longtemps, mais qu'en ce jour, elle revenait enfin!
 
-Une pointe d'épée écarlate apparut au cœur de la lueur sanglante! Elle avait transpercé l'horloge sur trois pouces, et c'était d'elle que provenait cette lumière choquante!
+Une pointe d'épée écarlate apparut au cœur de la lueur sanglante! Elle avait transpercé la cloche sur trois pouces, et c'était d'elle que provenait cette lumière choquante!
 
 « L'épée de Ye Mo!! » L'un des éclats de lumière arriva plus vite que les autres et se rapprocha instantanément. C'était un homme d'âge moyen vêtu d'une robe étrange. Ses yeux brillaient, dégageant la puissance de son apogée de culture Vide Arcanique.
 
-Une trace de pouvoir Arcane Tribulant émanait de sa culture Vide Arcanique. Il était évident que cet homme avait déjà surmonté un nombre inconnu de Tribulations Arcanes!
+Une trace de la force de la Tribulation Arcane émanait de sa culture Vide Arcanique. Il était évident que cet homme avait déjà surmonté un nombre inconnu de Tribulations Arcanes!
 
-Alors qu'il s'approchait, les autres rayons de lumière arrivèrent, révélant huit personnes. Tous se tenaient sous l'horloge, fixant la pointe de l'épée qui l'avait transpercée avec des regards perplexes!
+Alors qu'il s'approchait, les autres rayons de lumière arrivèrent, révélant huit personnes. Tous se tenaient sous la cloche, fixant la pointe de l'épée qui l'avait transpercée avec des regards perplexes!
 
-Sous leurs yeux, la pointe de l'épée se rétracta lentement et la lumière rouge disparut de l'horloge, ne laissant derrière elle qu'une marque qui resterait gravée pour l'éternité!
+Sous leurs yeux, la pointe de l'épée se rétracta lentement et la lumière rouge disparut de la cloche, ne laissant derrière elle qu'une marque qui resterait gravée pour l'éternité!
 
-Chacun réfléchissait en silence, fixant froidement l'horloge. Le silence était total.
+Chacun réfléchissait en silence, fixant froidement la cloche. Le silence était total.
 
-L'un d'eux finit par dire lentement: « Frère aîné, devrions-nous ouvrir cette Horloge des Pilules de l'Est... »
+L'un d'eux finit par dire lentement: « Frère aîné, Chef de Secte, devrions-nous ouvrir cette Cloche des Pilules de l'Est... »
 
-« Pas besoin pour le moment. Avant que le Frère Ma ne parte avec quelques disciples, il a dit que cette horloge ne devait pas être ouverte. Il reviendra de lui-même! »
+« Pas besoin pour le moment. Avant que le Frère Ma ne parte avec quelques disciples, il a dit que cette cloche ne devait pas être ouverte. Il reviendra de lui-même! »
 
 « L'épée de sang de Ye Mo! Il semble que la rumeur disant que Ye Mo a été attiré dans la grotte de la Secte des Sept Dao soit vraie! »
 

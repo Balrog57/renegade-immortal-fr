@@ -28,7 +28,7 @@ Quant aux cultivateurs du Royaume Extérieur, bien qu'ils fussent plus nombreux,
 
 En conséquence, ce fut une véritable déroute! Le rugissement de Wang Lin fut comme un coup de tonnerre qui brisa les derniers restes de résistance dans le cœur des cultivateurs du Royaume Extérieur!
 
-« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nan Zhao est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Et vous serez les prochains! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le sol!
+« L'ancêtre du Clan des Moineaux de Feu est mort! Le cultivateur de la troisième étape Nan Zhao est mort! Le Grand Maître Yun Luo du Conseil Souverain est mort! Le prochain, c'est toi! » Les yeux de Wang Lin étaient injectés de sang alors qu'il avançait en brandissant sa hache. Des grondements tonitruants faisaient vibrer l'air et les cadavres jonchaient le sol!
 
 Le Maître Nan Yunzi combattait la concubine impériale céleste quand, à cet instant, la jeune femme de la Rivière Invoquée, vêtue comme un homme, s'approcha, entourée d'éclairs crépitants.
 
@@ -40,7 +40,7 @@ Le Maître Nan Yunzi sourit et se retira, détournant son regard de la concubine
 
 La femme au visage de savante resta calme et déclara d'une voix douce: « Ma sœur sera bientôt là, patientez encore un instant. »
 
-Quant au Maître Hong Shan, la belle femme d'âge mûr et le Maître Lu Fu, ils rejoignirent la bataille, allégeant ainsi le fardeau du Maître Hong Shan. Cependant, le jeune homme au regard froid devint sombre.
+Du côté du Maître Hong Shan, la belle femme d'âge mûr de la Rivière Invoquée et le Maître Lu Fu rejoignirent la bataille, allégeant quelque peu le fardeau du Maître Hong Shan. Cependant, le garçon au regard froid devint sombre.
 
 L'assaut combiné de Luotian et de la Rivière Invoquée infligea des pertes encore plus lourdes à l'armée du Royaume Extérieur déjà en déroute. Les cris déchirants de l'agonie semblaient résonner pour l'éternité!
 
@@ -66,7 +66,7 @@ C'était la contre-attaque!
 
 Tout comme les cultivateurs de la Mer des Nuages avaient été massacrés, les forces du Royaume Intérieur lançaient leur ultime offensive dans cette bataille tragique! Sous le choc des troupes de Luotian et de la Rivière Invoquée, le Royaume Extérieur subissait des pertes toujours plus lourdes. Les bêtes moustiques et l'océan de poison agissaient comme une tempête dévorant tout ce qu'elle touchait. Sur les quelque 100 000 cultivateurs du Royaume Extérieur venus, moins de 80 000 subsistaient encore!
 
-C'est alors que la troisième armée du Système d'Étoiles Anciennes arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Néant Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
+C'est alors que la troisième armée du Système d'Étoiles Anciennes arriva. Elle apparut aux abords de la Formation de Scellement du Royaume et s'apprêtait à forcer le passage! Deux cultivateurs de la troisième étape, au stade intermédiaire du Nirvana Vide, menaient la marche. Ils s'apprêtaient à faire entrer près de 50 000 hommes. Si ces renforts arrivaient, les troupes en déroute retrouveraient la volonté de lutter!
 
 Bien que cette troisième armée n'ait pas encore franchi la formation, ses seuls rugissements suffirent à faire hésiter la troupe du Royaume Extérieur qui s'enfuiait.
 
@@ -74,7 +74,7 @@ Une lueur glaciale traversa le regard de Wang Lin alors qu'il continuait son mas
 
 « Tant que je serai là, à moins que je ne meure, personne ne pourra poser le pied dans le Royaume Intérieur! »
 
-Alors qu'il parlait, des craquements retentirent dans son corps. Sa stature s'étendit instantanément pour révéler sa forme de Dieu Antique à 7 étoiles! Son corps colossal de dizaines de milliers de pieds de haut était assez immense pour terrifier n'importe quel cultivateur!
+Alors qu'il parlait, des craquements retentirent dans son corps. Sa stature s'étendit instantanément pour révéler sa forme de Dieu Ancien à 7 étoiles! Son corps colossal de 10 000 pieds de haut était assez immense pour terrifier n'importe quel cultivateur!
 
 À l'extérieur de la formation, la troisième armée du Royaume Extérieur chargea. Ignorant la puissance de Wang Lin, et malgré l'aspect monstrueux de ce dernier, la peur ne les atteignait pas. Ils étaient mus par la cupidité et la folie, se précipitant vers lui comme une nuée de sauterelles!
 
@@ -86,4 +86,4 @@ L'expression des cultivateurs de la troisième étape changea radicalement, mais
 
 « TUEZ! » Wang Lin poussa un troisième rugissement. Il leva la Hache Brise-Ciel au-dessus de sa tête, la saisissant à deux mains, puis l'abattit avec une violence inouïe!
 
-Lors de ce coup, les sept étoiles divines antiques entre ses sourcils grondèrent comme si elles allaient exploser. Il engageait toute la puissance de son corps de Dieu Antique! Par ce coup, Wang Lin brisa le dernier vestige de confiance des cultivateurs du Royaume Extérieur! Et par ce coup, la Hache Brise-Ciel vola hors des mains de Wang Lin!
+Lors de ce coup, les sept étoiles de Dieu Ancien entre ses sourcils grondèrent comme si elles allaient exploser. Il engageait toute la puissance de Dieu Ancien de son corps! Par ce coup, Wang Lin brisa le dernier vestige de confiance des cultivateurs du Royaume Extérieur! Et par ce coup, la Hache Brise-Ciel vola hors des mains de Wang Lin!

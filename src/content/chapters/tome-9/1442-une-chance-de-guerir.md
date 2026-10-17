@@ -8,7 +8,7 @@ slug: une-chance-de-guerir
 ---
 Des milliers de bêtes humanoïdes ne semblaient pas si impressionnantes en apparence, mais si vous les aviez vues de vos propres yeux, surgissant du brouillard en poussant des hurlements stridents, le spectacle aurait été terrifiant. Leurs expressions féroces, leur vitesse fulgurante et leur apparence monstrueuse leur conféraient un élan redoutable.
 
-Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs mené par Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés: les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur du Nirvana.
+Comparé à ces milliers de bêtes, le groupe de vingt-cinq cultivateurs dont faisait partie Wang Lin ressemblait à un minuscule esquif en plein océan, susceptible d'être englouti à tout instant. Ces créatures humanoïdes possédaient des niveaux de culture variés: les plus puissantes atteignaient le troisième niveau du Fléau Céleste, tandis que les plus faibles culminaient au sommet du Briseur du Nirvana.
 
 Individuellement, elles n'étaient pas si redoutables, mais leur nombre et leur vitesse étrange les rendaient difficiles à affronter. Bien que la tâche fût périlleuse, les cultivateurs présents n'étaient pas de faibles esprits. À cet instant, tous commencèrent à lancer des sorts et à déployer leurs trésors. La bataille était engagée.
 
@@ -38,7 +38,7 @@ Soudain, un éclair blanc jaillit: Wang Lin surgit comme un coup de tonnerre. Da
 
 « Chaque fois qu'une bête est tuée avant de pouvoir s'autodétruire, une vague de force vitale pénètre dans son corps. Non seulement cela soigne ses blessures, mais c'est comme si l'on pratiquait la culture pendant plusieurs mois! »
 
-Cependant, le constat était amer: plus de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan de l'Extermination des Sceaux qui tremblait de peur, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin!
+Cependant, le constat était amer: près de mille bêtes avaient déjà été éliminées par Wang Lin et 30 % s'étaient autodétruites. Les mille restantes formaient un groupe compact. Tel un éclair, Wang Lin chargea ce groupe avant quiconque. Derrière lui, à l'exception de la femme du Clan de l'Extermination des Sceaux qui n'osait pas quitter sa plateforme, et de la femme en blanc qui restait indifférente, tous les autres cultivateurs lancèrent leur assaut. Pour eux, ces bêtes étaient devenues des pilules précieuses qu'il fallait s'approprier avant Wang Lin!
 
 « Camarade en robe blanche, puisque nous sommes venus ensemble, nous ne pouvons vous laisser affronter ces mille bêtes seul. Rejoignez-nous! »
 « Camarade, ne soyez pas si pressé. Il y a près de mille bêtes; si elles s'autodétruisent toutes, la puissance sera dévastatrice. Soyons prudents! »

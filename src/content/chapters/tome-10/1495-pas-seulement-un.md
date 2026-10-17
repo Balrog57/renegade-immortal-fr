@@ -60,7 +60,7 @@ La voix de Maître Lu Fu pénétra les oreilles de tous les cultivateurs de Luot
 
 « Cependant, même si ce vieil homme n'est pas votre rival, je suis certain de pouvoir encore livrer bataille! Ce vieil homme est très talentueux; sans ce manque de Flammes Joss, ma culture aurait depuis longtemps atteint le milieu ou la fin du Vide du Nirvana! »
 
-« Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné de nombreux trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura plusieurs fois plus puissante que précédemment, balayant les étoiles.
+« Bien que ma culture soit limitée par l'absence de Flammes Joss, j'ai raffiné plusieurs trésors au cours des dizaines de milliers d'années passées! Avec la puissance de la formation planétaire, cela suffira encore à vous combattre! » La voix de Maître Lu Fu résonna tandis qu'il agitait sa manche. La formation planétaire libéra une aura des dizaines de fois plus puissante que précédemment, balayant les étoiles.
 
 Des grondements tonitruants éclatèrent de toutes parts. Les cultivateurs qui avaient été choqués par l'apparition de Ling Dong poussèrent à nouveau des rugissements fervents.
 
@@ -96,9 +96,9 @@ Maître Lu Fu avait retrouvé son courage après le choc provoqué par Ling Dong
 
 Mais un changement soudain survint!!
 
-Wang Lin regarda calmement Maître Lu Fu qui s'approchait à toute vitesse. Il fronça les sourcils et prononça lentement: « Ancien Esclave, Zhou Jin! »
+Wang Lin regarda calmement Maître Lu Fu qui s'approchait à toute vitesse. Il fronça les sourcils et prononça lentement: « Esclave Antique, Zhou Jin! »
 
-Un hurlement de loup terrifiant jaillit du Four Impérial et résonna à travers les étoiles. Le domaine stellaire trembla alors que la silhouette de Zhou Jin sortait du Four Impérial!
+Un hurlement de loup terrifiant jaillit du Fourneau de l'Empereur et résonna à travers les étoiles. Le domaine stellaire trembla alors que la silhouette de Zhou Jin sortait du Fourneau de l'Empereur!
 
 À l'instant même où il apparut, l'aura d'un cultivateur du troisième pas se manifesta!
 
@@ -118,11 +118,11 @@ L'épée possédait un esprit, et celui-ci poussa un cri misérable. L'esprit, g
 
 Derrière Maître Lu Fu se trouvait également le Royaume Céleste du Vent. Ces célestes chargeaient Wang Lin lorsque Zhou Jin et Ling Dong apparurent. Les deux hommes firent un pas en avant simultanément, et la puissance des Flammes Joss résonna.
 
-Des dizaines de milliers de collisions invisibles éclatèrent instantanément. Les ombres des célestes furent balayées comme par une bourrasque de vent!
+Des millions de collisions invisibles éclatèrent instantanément. Les ombres des célestes furent balayées comme par une bourrasque de vent!
 
 Même le fantôme du Royaume Céleste du Vent s'effondra sous la pression écrasante de Zhou Jin et Ling Dong!
 
-Rumble, rumble, rumble, rumble!
+Boum, boum, boum, boum!
 
 Le Royaume Céleste du Vent fut déchiré et dissipé, ne laissant derrière lui que Maître Lu Fu, plus terrifié encore qu'auparavant!
 

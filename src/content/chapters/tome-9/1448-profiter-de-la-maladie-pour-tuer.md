@@ -26,7 +26,7 @@ Alors que sa voix résonnait, l'océan contenu dans la peinture déferla avec fu
 
 Des grondements tonitruants éclatèrent et d'immenses volutes de gaz blanc jaillirent dans les airs. La tempête de feu de Wang Lin s'effondra et le feu chromatique fut repoussé. L'océan entier s'était évaporé, ne laissant que la montagne! Wang Lin cracha du sang et fut repoussé de plusieurs pas, mais son expression restait féroce, empreinte d'une pointe de folie.
 
-Il ne pouvait laisser cet homme partir! Il allait tuer un puissant cultivateur à un demi-pas du troisième stade. « Esprit de la montagne! » L'Estimé Ling Dong était à moins de trente pieds de sortir du brouillard et il ignora l'esprit dao de feu derrière lui. Il agita sa main droite et la montagne chargea vers Wang Lin. « Recule! » La voix de l'Estimé Ling Dong fit trembler le monde.
+Il ne pouvait laisser cet homme partir! Il allait tuer un puissant cultivateur à un demi-pas du troisième stade. « La montagne descend! » L'Estimé Ling Dong était à moins de trente pieds de sortir du brouillard et il ignora l'esprit dao de feu derrière lui. Il agita sa main droite et la montagne chargea vers Wang Lin. « Recule! » La voix de l'Estimé Ling Dong fit trembler le monde.
 
 Le feu brûlait dans l'œil gauche de Wang Lin et le tonnerre fulgurait dans son œil droit. Les deux forces convergèrent entre ses sourcils pour former un éclair de tonnerre ardent. Il fut projeté vers la montagne semblable à une météorite.
 
@@ -44,9 +44,9 @@ L'Estimé Ling Dong poussa un cri déchirant alors que le feu consumait son êtr
 
 En un instant, une immense faille spatiale apparut devant lui, libérant une énergie démoniaque infinie. Tandis que la faille s'ouvrait, Wang Lin sortit l'Ancienne Feuille pour tenter de la sceller.
 
-Cependant, à cet instant précis, une seconde Ancienne Feuille jaillit de la main de l'Estimé Ling Dong. Les deux feuilles entrèrent en collision et furent projetées sur le côté. Sans l'intervention de l'Ancienne Feuille, une gigantesque statue noire surgit de la faille. Cette statue était identique à celle invoquée précédemment, mais encore plus réaliste. Ses bras étaient croisés et, dès son apparition, ils se mirent à trembler.
+Cependant, à cet instant précis, une seconde Ancienne Feuille jaillit de la main de l'Estimé Ling Dong. Les deux feuilles entrèrent en collision et furent projetées sur le côté. Sans l'intervention de l'Ancienne Feuille, une gigantesque statue noire surgit de la faille. Cette statue était identique à celle invoquée précédemment, mais encore plus solide. Ses bras étaient croisés et, dès son apparition, ils se mirent à trembler.
 
-Les bras croisés se desserrèrent brusquement et une force destructrice colossale s'élança vers Wang Lin. Cette puissance fit ressentir un danger imminent à Wang Lin, lui donnant l'impression que son corps de Dieu Ancien allait être mis en pièces. Face au péril, il n'hésita pas et leva la main droite: le gant du Dieu Ancien apparut dans sa paume. « Bénédiction Ancienne! »
+Les bras croisés se desserrèrent brusquement et une force destructrice colossale s'élança vers Wang Lin. Cette puissance fit ressentir un danger imminent à Wang Lin, lui donnant l'impression que son corps de Dieu Ancien allait être mis en pièces. Face au péril, il n'hésita pas et leva la main droite: le gantelet du Dieu Ancien apparut dans sa paume. « Bénédiction Ancienne! »
 
 En un éclair, l'ombre du gigantesque Dieu Ancien se matérialisa devant Wang Lin. Ce corps couvert de cicatrices encaissa l'attaque de son dos. Ses bras entourèrent Wang Lin pour le protéger.
 
@@ -58,4 +58,4 @@ Dès que les jades furent retirés, la brume rouge reprit vie. Elle s'agita fré
 
 « Non! » L'Estimé Ling Dong tenta une ultime sortie tandis que l'esprit dao de rang 4 se rapprochait. Un éclair de froideur passa dans les yeux de Wang Lin alors qu'il levait la main droite pour pointer l'Estimé Ling Dong, déjà à moitié dévoré par le brouillard.
 
-« Arrête! »
+« Fige! »

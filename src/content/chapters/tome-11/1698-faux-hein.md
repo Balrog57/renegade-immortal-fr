@@ -14,7 +14,7 @@ Une lueur de froideur passa dans les yeux de Fan Shanmeng et son regard s'illumi
 
 À cet instant, Fan Shanmeng plongea à travers le premier pont pour pénétrer la deuxième couche.
 
-Au moment où elle entra, une lumière aux sept couleurs enveloppa tout le Vaisseau du Démon de l'Âme. Le Daoïste aux Sept Couleurs atterrit sur le pont.
+Au moment où elle entra, une lumière aux sept couleurs enveloppa tout le Navire Démon des Âmes. Le Daoïste aux Sept Couleurs atterrit sur le pont.
 
 Dès que le Daoïste aux Sept Couleurs eut touché terre, Wang Lin, qui se trouvait à la troisième couche, ouvrit soudainement les yeux et leva la tête. Il restait calme, une lueur dorée brillant dans son regard.
 
@@ -28,7 +28,7 @@ Dès que les restrictions du premier pont se stabilisèrent, la lumière aux sep
 
 À ce moment-là, Fan Shanmeng était déjà entrée dans la troisième couche, et son expression changea radicalement. Réalisant l'action de Wang Lin, elle se précipita immédiatement à ses côtés.
 
-« Que faites-vous?! Voulez-vous mourir? Même en unissant nos forces, nous ne sommes pas de taille face au premier esprit! Vous avez ouvert la première couche pour le laisser entrer!! »
+« Que faites-vous?! Voulez-vous mourir? Même en unissant nos forces, nous ne sommes pas de taille face à la première âme! Vous avez ouvert la première couche pour le laisser entrer!! »
 
 Une lueur glaciale traversa les yeux de Wang Lin qui répondit calmement: « Si vous continuez à faire autant de bruit, j'ouvrirai la deuxième couche et je le laisserai descendre! »
 
@@ -36,7 +36,7 @@ Une lueur glaciale traversa les yeux de Wang Lin qui répondit calmement: « Si 
 
 « Puisque vous pouvez lever la barrière autour du vaisseau et lui épargner tant d'efforts, pourquoi ne pourrais-je pas ouvrir la première couche pour qu'il se rende directement à la deuxième?
 
-« Il n'y a aucune haine profonde entre lui et moi. S'il veut l'Arc de Li Guang, je lui donnerai, mais vous n'êtes pas la même chose. Si vous voulez rester en sécurité, alors taisez-vous! » La voix de Wang Lin tonna, faisant instantanément pâlir le visage de Fan Shanmeng.
+« Il n'y a aucune haine profonde entre lui et moi. S'il veut l'Arc de Li Guang, je lui donnerai, mais pour vous, c'est différent. Si vous voulez rester en sécurité, alors taisez-vous! » La voix de Wang Lin tonna, faisant instantanément pâlir le visage de Fan Shanmeng.
 
 « Non seulement vous devez vous taire, mais cessez aussi vos petites manœuvres. Si vous persistez dans votre entêtement, ne me reprochez pas d'ouvrir la deuxième couche et de laisser le Daoïste aux Sept Couleurs descendre ici! » Wang Lin la regarda froidement.
 
@@ -84,7 +84,7 @@ Peu après, le corps de Wang Lin descendit de la troisième couche pour atteindr
 
 Au moment où il pénétra dans la quatrième couche, Fan Shanmeng le suivit.
 
-Une épaisse brume remplissait la quatrième couche du Vaisseau du Démon de l'Âme. Ce brouillard entravait à la fois le Sens Divin et la vue.
+Une épaisse brume remplissait la quatrième couche du Navire Démon des Âmes. Ce brouillard entravait à la fois le Sens Divin et la vue.
 
 « Il brise la deuxième couche... Même si j'essaie de l'arrêter, je ne pourrai le retarder que deux heures au maximum. Même s'il comprend la troisième couche, il ne lui faudra qu'une heure pour la briser!
 

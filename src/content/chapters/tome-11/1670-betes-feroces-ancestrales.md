@@ -14,7 +14,7 @@ Un sentiment de passion irradia de Wang Lin. Alors qu'il pointait l'ennemi, la g
 
 Dans son rugissement, la Lance aux Sept Couleurs chargea vers la lumière antique émanant du vortex formé par cent mille âmes!
 
-Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde; elle appartenait au Souverain Céleste aux Sept Couleurs de la Secte des Sept Dao!
+Dès que la lance apparut, les étoiles tremblèrent et une lueur septicolore brilla de mille feux. Une aura puissante se dégageait de l'arme. Cette lance n'appartenait pas à ce monde de la grotte; c'était un sort divin du Continent Astral Immortel, la technique du Souverain Céleste aux Sept Couleurs de la Secte des Sept Dao!
 
 Ce sort était un secret jalousement gardé par le Souverain Céleste aux Sept Couleurs, et il était presque impossible pour des étrangers de l'apprendre. Seul un fou aurait pu utiliser son identité pour dérober une telle technique.
 
@@ -30,7 +30,7 @@ Alors que le fracas résonnait, le système stellaire trembla, ébranlant jusqu'
 
 Sous l'effet de ces grondements, la lumière antique du vortex fut déchirée et s'effondra. La Lance aux Sept Couleurs qui l'avait percutée se désintégra simultanément. L'éclat fut aveuglant, puis, l'instant d'après, toute lumière disparut.
 
-Au même moment, l'Ombrelle Brûlante du Royaume commença à pivoter et un feu destructeur s'en dégagea. Finalement, les flammes jaillirent de l'ombre du parapluie vers le vortex antique qui avait perdu sa luminosité.
+Au même moment, l'Ombrelle Brûlante du Royaume commença à pivoter et un feu destructeur s'en dégagea. Finalement, entourée de ces flammes, la gigantesque ombrelle fonça vers le vortex qui avait perdu la lumière antique.
 
 Bien que la lumière du vortex se soit effondrée, le vortex lui-même subsistait. Il semblait qu'une nouvelle clarté était sur le point d'en jaillir.
 
@@ -66,7 +66,7 @@ Alors qu'il hurlait, des dizaines de chars féroces, recouverts de peaux de bêt
 
 Ces dizaines de chars étaient semblables au sixième esprit de la Formation de Scellement du Royaume, cette catapulte lanceuse de feu. Cependant, ils ne projetaient pas de flammes, mais leur férocité n'en était pas moins redoutable.
 
-Ces chars étaient des trésors appartenant au Conseil Souverain. Chacun avait nécessité d'innombrables ressources pour être raffiné et, surtout, chacun exigeait l'âme d'une bête féroce ancestale.
+Ces chars étaient des trésors appartenant au Conseil Souverain. Chacun avait nécessité d'innombrables ressources pour être raffiné et, surtout, chacun exigeait l'âme d'une bête féroce ancestrale.
 
 Bien que ces bêtes aient été nées dans cette grotte, leurs ancêtres avaient été transportés ici depuis le Continent Astral Immortel par le Souverain Céleste aux Sept Couleurs.
 
@@ -98,7 +98,7 @@ C'était comme si la rune apparue sur la formation agissait comme une attraction
 
 Au moment où le dragon chargea, une étrange bête féroce ressemblant à une sphère ouvrit les yeux et s'élança avec une agressivité sauvage.
 
-Simultanément, presque toutes les bêtes féroces sur les chars restants poussèrent des rugissements et jaillirent, y compris de nombreux Ji Qiong.
+Simultanément, presque toutes les bêtes féroces sur les chars restants poussèrent des rugissements et jaillirent, y compris le Ji Qiong aux multiples têtes.
 
 Dans un fracas assourdissant, le dragon frappa la formation le premier, provoquant une déformation massive. Les innombrables âmes d'esclaves qui soutenaient la roue poussèrent des cris déchirants, certains s'effondrant instantanément.
 

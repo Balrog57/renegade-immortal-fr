@@ -6,31 +6,31 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1491 - Call One Fellow Cultivator
 slug: appeler-un-compagnon-cultivateur
 ---
-Ce rire était assourdissant et, lorsqu'il s'échappa du vortex, il balaya Wang Lin de toutes parts. Ce dernier s'arrêta brusquement.
+Ce cri strident était assourdissant et, lorsqu'il s'échappa du vortex, il balaya Wang Lin de toutes parts. Ce dernier s'arrêta brusquement.
 
 Le rugissement tonitruant se propagea dans toutes les directions!
 
 C'était la première confrontation entre Maître Lu Fu et Wang Lin! Bien qu'aucun des deux n'ait attaqué directement, l'un cherchait à progresser tandis que l'autre tentait de bloquer sa route. Une bataille s'engagea au-dessus de la formation!
 
-Ce simple rire contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas. Ce rire fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
+Ce simple cri strident contenait toute la puissance de culture de Maître Lu Fu, un cultivateur du troisième pas. Ce cri fit trembler le domaine stellaire au point qu'il sembla sur le point de s'effondrer. D'innombrables fissures spatiales apparurent et chargèrent vers Wang Lin comme des épées acérées!
 
-C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau du Fléau Céleste, son corps aurait été déchiré par ce rire et son âme originelle aurait été anéantie!
+C'était comme si une bourrasque puissante s'abattait sur lui. La véritable force de Maître Lu Fu était révélée: si Wang Lin avait été un cultivateur du cinquième niveau du Fléau Céleste, son corps aurait été déchiré par ce cri et son âme originelle aurait été anéantie!
 
-Même d'autres cultivateurs du troisième pas au stade initial du Vide du Nirvana seraient incapables de poursuivre leur progression après avoir résisté à un tel éclat de rire!
+Même d'autres cultivateurs du troisième pas au stade initial du Vide du Nirvana seraient incapables de poursuivre leur progression après avoir subi un tel cri strident!
 
 Cependant, Wang Lin n'avait pas encore atteint le troisième pas. Il était devenu un dieu antique à sept étoiles grâce à l'héritage de l'Ordre Antique; il pouvait donc résister à la puissance d'un cultivateur du troisième pas en s'appuyant sur la force de son corps!
 
-La vigueur de sa chair avait atteint un niveau terrifiant. En entendant le rire de Maître Lu Fu, les yeux de Wang Lin s'illuminèrent!
+La vigueur de sa chair avait atteint un niveau terrifiant. En entendant le cri strident de Maître Lu Fu, les yeux de Wang Lin s'illuminèrent!
 
-« Dans ce monde, aucun rire ne peut égaler le rugissement d'un dieu antique, et plus encore celui de l'Ordre Antique! Peu importe que vous soyez au troisième pas! » Les sept étoiles divines antiques entre les sourcils de Wang Lin tournèrent rapidement. Sous leur rotation, la puissance du dieu antique emplit son corps, et la gigantesque tête de l'Ordre Antique apparut de toutes pièces.
+« Dans ce monde, aucun cri ne peut égaler le rugissement d'un dieu antique, et plus encore celui de l'Ordre Antique! Peu importe que vous soyez au troisième pas! » Les sept étoiles divines antiques entre les sourcils de Wang Lin tournèrent rapidement. Sous leur rotation, la puissance du dieu antique emplit son corps, et la gigantesque tête de l'Ordre Antique apparut de toutes pièces.
 
 Dès que la tête se manifesta, Wang Lin ouvrit la bouche et laissa échapper un rugissement assourdissant vers le vortex à l'intérieur de la formation!
 
-ROAR!!
+GRAAAH!!
 
-Ce rugissement se propagea instantanément, écrasant le rire de Maître Lu Fu. Il forma une onde sonore monstrueuse qui balaya tout sur son passage!
+Ce rugissement se propagea instantanément, écrasant le cri strident de Maître Lu Fu. Il forma une onde sonore monstrueuse qui balaya tout sur son passage!
 
-Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse dans la tombe antique qui avait blessé d'innombrables cultivateurs du troisième pas et chassé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin était empreint d'un momentum phénoménal!
+Il ne pouvait rivaliser avec le rugissement de cette existence mystérieuse dans la tombe antique qui avait blessé d'innombrables cultivateurs du troisième pas et chassé le Souverain. Cependant, le rugissement de l'Ordre Antique de Wang Lin avait malgré tout acquis une ampleur phénoménale!
 
 Le grondement fit trembler l'espace entre Wang Lin et Maître Lu Fu. C'était comme si les deux hommes s'étaient lancé des attaques invisibles. Le domaine stellaire vacilla et les innombrables cultivateurs environnants crachèrent du sang, reculant frénétiquement une fois de plus.
 
@@ -38,7 +38,7 @@ Au plus profond du vortex de la formation, Maître Yan Leizi et ses compagnons �
 
 Maître Lu Fu, assis devant eux, vit son expression changer. Il sentit clairement un impact inimaginable se précipiter vers lui, une force voulant détruire tout ce qui lui résistait.
 
-Son rire fut immédiatement balayé par le rugissement de l'Ordre Antique. Les vêtements de Maître Lu Fu flottèrent violemment sous la pression. Bien que son visage soit resté impassible, une lueur de froideur passa dans ses yeux.
+Son cri fut immédiatement balayé par le rugissement de l'Ordre Antique. Les vêtements de Maître Lu Fu flottèrent violemment sous la pression. Bien que son visage soit resté impassible, une lueur de froideur passa dans ses yeux.
 
 Toutefois, derrière cette froideur, il ne put dissimuler une pointe de choc!
 
@@ -60,7 +60,7 @@ Lie Yunzi était le plus faible d'entre eux et avait été gravement blessé. Bi
 
 La terreur se lut dans ses yeux et, tout comme Maître Yan Leizi, il contempla Wang Lin. Le Wang Lin actuel était un étranger absolu; le fossé avec le garçon de ses souvenirs était trop immense!
 
-« Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de bataille? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse me sauver! Il... il est devenu si puissant!! »
+« Atteindre un tel niveau de culture en seulement quelques centaines d'années... aurait-il pu comprendre tous les parchemins de bataille? Heureusement, notre haine n'est pas profonde et je lui avais donné tous les parchemins à l'époque. Sinon, je crains que même Maître Lu Fu ne puisse l'arrêter aujourd'hui! Il... il est devenu si puissant!! »
 
 Dieu de Sang ressentait une terreur encore plus vive. Son cuir chevelu picotait et il était presque terrifié à en perdre la raison! Il savait qu'il avait trop offensé Wang Lin. En voyant l'homme de ses propres yeux et en subissant le choc du rugissement, il ne put s'empêcher de trembler.
 

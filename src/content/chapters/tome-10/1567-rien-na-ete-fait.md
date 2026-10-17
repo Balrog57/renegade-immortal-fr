@@ -46,7 +46,7 @@ Face au rugissement du fou, l'expression de Liu Jinbiao resta de marbre. Il dit:
 
 « Votre Majesté est ici depuis 13 jours au total. J'ai dépensé 730 000 pierres spirituelles et 9 850 000 pièces d'argent. Majesté, voulez-vous que je vous présente le détail? » Liu Jinbiao resta imperturbable et présenta son rapport avec précision.
 
-Les yeux du fou s'écarquillèrent. Sa mémoire était quelque peu embrumée. Durant ces dix jours passés, il avait eu l'impression de ne guère rien dépenser. C'était simplement qu'à chaque fois qu'il trouvait quelque chose d'amusant ou de délicieux, il demandait à Xu Liguo et Liu Jinbiao de s'en occuper.
+Les yeux du fou s'écarquillèrent. Sa mémoire était quelque peu embrumée. Durant ces dix et quelques jours, il avait eu l'impression de ne guère rien dépenser. C'était simplement qu'à chaque fois qu'il trouvait quelque chose d'amusant ou de délicieux, il demandait à Xu Liguo et Liu Jinbiao de s'en occuper.
 
 À l'instant où il entendit l'énumération des frais, une sueur froide perla sur son front.
 
@@ -54,7 +54,7 @@ Les yeux du fou s'écarquillèrent. Sa mémoire était quelque peu embrumée. Du
 
 « C'est vrai! Allez chercher Petite Rouge, haha! Allez la trouver! Comment ce roi pourrait-il être avare? Ce roi n'est pas du tout avare... Il vaut mieux que vous alliez voir Petite Rouge, elle détient tous les biens de ce roi », répondit le fou en essuyant machinalement sa sueur d'un geste de tête approbateur.
 
-« Majesté est un être généreux, vous ne me feriez pas dépenser tout cela pour rien. Quant aux pierres spirituelles et à l'argent, bien qu'ils soient mes économies de plus de mille ans, considérez-les comme mon cadeau au roi. Il n'est pas nécessaire de chercher Petite Rouge », conclut Liu Jinbiao en secouant la tête avec un soupir. Il cessa de parler et se posta sur le côté, fixant le mur de pierre avec un air profondément affligé.
+« Majesté est un être généreux, vous ne me feriez pas dépenser tout cela pour rien. Quant aux pierres spirituelles et à l'argent, bien qu'ils soient mes économies de plusieurs milliers d'années, considérez-les comme mon cadeau au roi. Il n'est pas nécessaire de chercher Petite Rouge », conclut Liu Jinbiao en secouant la tête avec un soupir. Il cessa de parler et se posta sur le côté, fixant le mur de pierre avec un air profondément affligé.
 
 Voyant Liu Jinbiao dans cet état, le fou se frotta le nez, le cœur serré par une pointe de culpabilité. Il se gratta la tête, puis mordit l'extrémité de son doigt pour en extraire une goutte de sang qu'il tendit à Liu Jinbiao.
 
@@ -72,23 +72,23 @@ En entendant cela, le fou oublia instantanément sa peine. Il se leva avec entho
 
 Xu Liguo esquissa un sourire espiègle. Il regardait le fou comme s'il contemplait un trésor en mouvement. Avec Liu Jinbiao, il guida le maniaque vers les profondeurs de la grotte.
 
-Une pièce se trouvait au fond, dont l'entrée était occultée par un rideau. On pouvait y deviner une silhouette assise à l'intérieur.
+Une pièce se trouvait au fond, dont l'entrée était occultée par un écran de lumière sombre. On pouvait y deviner une silhouette assise à l'intérieur.
 
 Arrivé devant la porte, Xu Liguo prit un air malicieux et chuchota: « Majesté, la petite fille vous attend à l'intérieur, allez-y vite. Nous deux, nous monterons la garde dehors. »
 
 Le fou afficha une mine triomphante en poussant quelques rugissements de joie. Juste avant d'entrer, il se retourna vers Xu Liguo et demanda avec un sérieux solennel: « Est-ce vraiment aussi amusant que tu le prétends? »
 
-Xu Liguo lui tapa sur la poitrine en hochant la tête: « Ce petit serviteur ne ment jamais. Vous le saurez bien assez tôt, Majesté. »
+Xu Liguo se frappa la poitrine en hochant la tête: « Ce petit serviteur ne ment jamais. Vous le saurez bien assez tôt, Majesté. »
 
 Les yeux du fou brillèrent d'excitation alors qu'il pénétrait dans la pièce. Il aperçut immédiatement un jeune homme vêtu de noir, assis non loin de là, d'une grande beauté.
 
 « Haha, petite fille, dis à ce roi ton nom! Ce roi te récompensera! »
 
-Le jeune homme fronça les sourcils et répondit froidement: « Ce pauvre taoïste se nomme Fan Huazi. »
+Le jeune homme fronça les sourcils et répondit froidement: « Ce pauvre Daoïste se nomme Fa Huazi. »
 
-À l'extérieur de la pièce, Xu Liguo se frotta les mains, visiblement exalté. Il sourit à Liu Jinbiao: « Vieux Liu, ton stratagème est excellent. La douzaine de réseaux de transfert précédents nous ont déjà rapporté une fortune en sang. Sois tranquille, selon notre accord, nous partagerons le butin à 7 pour 3! »
+À l'extérieur de la pièce, Xu Liguo se frotta les mains, visiblement exalté. Il sourit à Liu Jinbiao: « Vieux Liu, ton stratagème est excellent. Les dizaines de réseaux de transfert précédents nous ont déjà rapporté une fortune en sang. Sois tranquille, selon notre accord, nous partagerons le butin à 7 pour 3! »
 
-Liu Jinbiao sourit en secouant la tête: « Ce n'est pas un stratagème. Ce vieil homme n'a jamais trompé de fou. Les précédents étaient tous des cultivateurs de haut niveau, extrêmement rusés. Pour les duper, il me fallait une machination sans faille. »
+Liu Jinbiao sourit en secouant la tête: « Ce n'est pas un stratagème. Parmi ceux que ce vieil homme a trompés autrefois, il n'y avait aucun fou. C'étaient tous des cultivateurs de haut niveau, extrêmement rusés. Pour les duper, il me fallait une machination sans faille. »
 
 « Quant à ce fou, son esprit est d'une simplicité enfantine. Les ruses complexes sont inutiles contre lui; ce serait comme jouer de la harpe pour un bœuf. Cette fois, j'ai utilisé la méthode la plus simple. Bien que la faille soit évidente, elle est redoutablement efficace. »
 
@@ -98,13 +98,13 @@ Xu Liguo rit et acquiesça: « Nous devons nous dépêcher. Nous avons encore pl
 
 En rencontrant Xu Liguo et Liu Jinbiao, les deux groupes échangèrent des sourires. Xu Liguo se précipita vers la porte et poussa un cri déchirant.
 
-« Majesté, c'est une catastrophe! Le partenaire de Fan Huazi est arrivé! » Tout en parlant, il cracha une bouffée d'essence vitale, l'air totalement accablé, avant de s'effondrer sur le côté.
+« Majesté, c'est une catastrophe! Le partenaire de Fa Huazi est arrivé! » Tout en parlant, il cracha une bouffée d'essence vitale, l'air totalement accablé, avant de s'effondrer sur le côté.
 
 Liu Jinbiao se frappa la poitrine de la main droite et cracha du sang.
 
-La cultivatrice laissa échapper un reniflement méprisant. Accompagnée de ses dix compagnons, elle déchira violemment le rideau.
+La cultivatrice laissa échapper un reniflement méprisant. Accompagnée de ses dix compagnons, elle déchira violemment l'écran de lumière.
 
-Derrière le rideau, le fou était assis face à Fan Huazi. Il resta pétrifié en découvrant la troupe de cultivateurs qui faisait irruption.
+Derrière l'écran, le fou était assis face à Fa Huazi. Il resta pétrifié en découvrant la troupe de cultivateurs qui faisait irruption.
 
 « Vous... Que comptez-vous faire? Ce roi... Ce roi... » Les yeux du fou étaient emplis de terreur. Il ne comprenait toujours pas ce qui lui arrivait.
 

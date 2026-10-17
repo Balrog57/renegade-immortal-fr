@@ -6,7 +6,7 @@ bookTitle: Peak of the Cloud Sea
 en: "Chapter 1413 - Change To The Heaven Defying Bead!"
 slug: changement-vers-la-perle-defiant-le-ciel
 ---
-Au moment où l'Oiseau Vermillon traversait son quatrième éveil, tout le feu de l'Essai Terrestre commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de l'Oiseau Vermillon.
+Au moment où l'Oiseau Vermillon traversait son quatrième éveil, tout le feu de l'Épreuve Terrestre commença à converger de toutes parts. En un clin d'œil, il fusionna intégralement dans le corps de l'Oiseau Vermillon.
 
 Les fragments du lotus de feu aux neuf couleurs formèrent une armure multicolore autour de l'Oiseau Vermillon. Puis la mer de feu déferla et, en un instant, fut entièrement absorbée par lui.
 
@@ -18,7 +18,7 @@ C'était un moment extrêmement critique pour Wang Lin!
 
 Cependant, à cet instant précis, un changement stupéfiant que Wang Lin n'aurait pu prédire se produisit!
 
-Les 10 000 cultivateurs fixaient tous l'encens terrestre, mais seuls quelques-uns remarquèrent le bouleversement choquant qui s'opérait dans le brouillard magnétique entourant la Planète du Grand Empereur. La force magnétique faisait tourbillonner le brouillard, et des grondements sourds résonnaient en son sein.
+Les dizaines de milliers de cultivateurs fixaient tous l'encens terrestre, mais seuls quelques-uns remarquèrent le bouleversement choquant qui s'opérait dans le brouillard magnétique entourant la Planète du Grand Empereur. La force magnétique faisait tourbillonner le brouillard, et des grondements sourds résonnaient en son sein.
 
 La Planète du Grand Empereur avait la forme d'une barre et, normalement, sa rotation était très difficile à détecter. Pourtant, à cet instant, la planète entière trembla et le ciel changea de couleur. Les cultivateurs environnants eurent l'impression que la terre vacillait et que le ciel s'effondrait!
 
@@ -50,9 +50,9 @@ Alors que ce cri résonnait, à l'instant de sa mort, la silhouette floue sembla
 
 Ce regard devint son cauchemar!
 
-La Grande Maîtresse Yun Luo cracha de nouveau du sang et recula de plusieurs centaines de pieds. Elle n'avait jamais ressenti une telle terreur auparavant.
+La Grande Maîtresse Yun Luo cracha de nouveau du sang et recula de plusieurs dizaines de pieds. Elle n'avait jamais ressenti une telle terreur auparavant.
 
-Le Maître du Dao Miao Yin bondit également, dissipant le nuage sous ses pieds. Il saisit son éventail et, alors que son sens divin se déployait, son expression changea instantanément.
+Le Maître du Dao Miao Yin bondit également, dissipant le nuage sous ses pieds, qui se changea en un éventail qu'il saisit. Quand son sens divin se déploya, son expression changea instantanément.
 
 Il n'était pas le seul; les yeux du Maître du Dao Rêve Bleu se rétrécirent également. D'un geste de la main droite, il enveloppa sa fille d'une lumière bleue, son regard rivé sur le ciel déjà chaotique.
 
@@ -62,13 +62,13 @@ L'expression du vieil Oiseau Vermillon devint extrêmement grave alors qu'il lev
 
 Même le vieil homme sur le lézard, qui était resté les yeux clos tout ce temps, ouvrit soudainement les yeux, frappé de stupeur.
 
-Si ces experts réagissaient ainsi, que dire des 10 000 cultivateurs environnants? Ils se dispersèrent, l'esprit envahi par la peur. Ils sentaient la terre trembler et la Planète du Grand Empereur pivoter rapidement. Bien sûr, ils tournaient avec elle.
+Si ces experts réagissaient ainsi, que dire des dizaines de milliers de cultivateurs environnants? Ils se dispersèrent, l'esprit envahi par la peur. Ils sentaient la terre trembler et la Planète du Grand Empereur pivoter rapidement. Bien sûr, ils tournaient avec elle.
 
 Sur l'arène, la tortue géante leva la tête et poussa un rugissement strident.
 
 Davantage de brouillard magnétique apparut dans le ciel. Ce brouillard forma un vortex céleste sous les yeux de tous avant de s'abattre sur la tortue géante de l'arène!
 
-Les 10 000 cultivateurs alentour fuirent, le regard empli d'effroi.
+Les dizaines de milliers de cultivateurs alentour fuirent, le regard empli d'effroi.
 
 Seul le vieil Oiseau Vermillon et sa compagnie restèrent immobiles, fixant le vortex magnétique imminent.
 
@@ -88,9 +88,9 @@ Le Maître du Dao Miao Yin fixait également l'encens terrestre. Son esprit trem
 
 À l'intérieur de l'encens terrestre, Wang Lin était au moment crucial de la transformation de son feu en Feu Éthéré. Cependant, la Perle Défiant le Ciel, nichée en lui, entra soudainement en éruption d'énergie primordiale.
 
-L'expression de Wang Lin changea; il sentit l'Essai Terrestre trembler comme s'il tournait à toute vitesse. Mais étant lui-même à l'intérieur de l'essai, il lui était difficile de juger la situation immédiatement.
+L'expression de Wang Lin changea; il sentit l'Épreuve Terrestre trembler comme si elle tournait à toute vitesse. Mais étant lui-même à l'intérieur de l'épreuve, il lui était difficile de juger la situation immédiatement.
 
-À cet instant, le ciel de l'Essai Terrestre fut remplacé par le brouillard. Ce brouillard, chargé d'une puissante force magnétique, recouvrit tout le firmament avant de se ruer sur Wang Lin!
+À cet instant, le ciel de l'Épreuve Terrestre fut remplacé par le brouillard. Ce brouillard, chargé d'une puissante force magnétique, recouvrit tout le firmament avant de se ruer sur Wang Lin!
 
 Wang Lin ne pouvait absolument pas esquiver. La force magnétique infinie s'engouffra dans son corps pour atteindre la Perle Défiant le Ciel! La perle apparut sur sa poitrine, telle un cyclone dévorant sans relâche la force magnétique.
 
@@ -104,7 +104,7 @@ C'était une boussole géante!
 
 Cette boussole était immense, comparable à l'espace lui-même! Sur celle-ci, une grande aiguille tournait lentement. Une lumière émanait de l'aiguille et se perdait dans l'inconnu.
 
-Au centre de la boussole se trouvait un socle abritant une perle géante. Cette perle était... la Perle Défiant le Ciel!
+Au centre de la boussole était incrustée une perle géante. Cette perle était... la Perle Défiant le Ciel!
 
 Au moment même où ces images imprégnaient l'esprit de Wang Lin, une illusion stupéfiante frappa également les esprits autour de la Planète du Grand Empereur!
 
@@ -124,7 +124,7 @@ En un éclair, la lumière spectrale atteignit l'extrémité du sud-ouest. C'ét
 
 La lumière spectrale percuta de plein fouet la Formation du Royaume Scellé. La formation sembla bouillir tandis que tous les esprits des trésors apparurent. Puis, la lumière se dissipa. On ignorait si elle avait fusionné avec la formation ou si elle l'avait transpercée.
 
-L'illusion de la boussole autour de la Planète du Grand Empereur se dissipa lentement et la planète cessa de tourner, retrouvant son état initial. À l'intérieur de l'Essai Terrestre, la Perle Défiant le Ciel en Wang Lin absorba les dernières traces de force magnétique. Puis, une quantité infinie de force magnétique jaillit de la perle, comme si elle recrachait tout ce qu'elle avait dévoré.
+L'illusion de la boussole autour de la Planète du Grand Empereur se dissipa lentement et la planète cessa de tourner, retrouvant son état initial. À l'intérieur de l'Épreuve Terrestre, la Perle Défiant le Ciel en Wang Lin absorba les dernières traces de force magnétique. Puis, une quantité infinie de force magnétique jaillit de la perle, comme si elle recrachait tout ce qu'elle avait dévoré.
 
 Le corps de Wang Lin était devenu comme un tamis alors que l'immense masse de brouillard magnétique entrait en éruption hors de lui. L'Oiseau Vermillon, qui se trouvait au moment critique de sa transition du feu corporel vers le Feu Éthéré, fut le premier à subir le choc de cette force.
 

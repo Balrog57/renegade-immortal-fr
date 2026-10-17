@@ -18,7 +18,7 @@ Cette volonté effleura légèrement Wang Lin avant de se retirer immédiatement
 
 Alors que la volonté s'estompait, une voix faible et antique résonna aux oreilles de Wang Lin:
 
-« Tout a été créé par moi, nous attendons votre dû... »
+« Toutes choses sont issues de moi, j'attends que tu me rendes ton dû... »
 
 Une fois la voix dissipée, une puissance encore plus grande jaillit du vortex pour pénétrer dans le gant de l'Ancien Dieu. Cela permit au gant de recouvrer rapidement ses forces.
 
@@ -36,7 +36,7 @@ Ces trois marques représentaient le karma au centre, la vie et la mort à gauch
 
 Quant à l'essence de massacre, elle avait fusionné avec son âme!
 
-Le troisième pas! Il avait véritablement atteint le stade intermédiaire du Vide Spirituel, faisant de lui un cultivateur du troisième niveau! Il ferma les yeux pour observer silencieusement son corps. Après un long moment, il les rouvrit et vit qu'une marque étrange était apparue sur sa main droite.
+Le troisième pas! Il avait véritablement atteint le stade intermédiaire du Vide Spirituel, faisant de lui un puissant du ciel et de la terre! Il ferma les yeux pour observer silencieusement son corps. Après un long moment, il les rouvrit et vit qu'une marque étrange était apparue sur sa main droite.
 
 Il n'était pas étranger à cette marque; c'était la sixième porte qu'il avait brisée. La Porte des Dix Mille Os du Vide!
 
@@ -80,9 +80,9 @@ Chacun resta plongé dans une réflexion silencieuse.
 
 Plus loin encore, de l'autre côté des nuages, un vieil homme vêtu de pourpre sortit. Il affichait une expression solennelle en observant les nuages tourbillonnants, ses yeux émettant une lumière mystérieuse.
 
-« Quelle puissante énergie de flèche! Il a réellement trouvé cette flèche! Quand je l'ai rencontré autrefois, il n'avait même pas atteint le troisième niveau. Je ne m'attendais pas à ce qu'il possède six essences... »
+« Quelle puissante énergie de flèche! Il a réellement trouvé cette flèche! Quand je l'ai rencontré autrefois, il n'avait même pas atteint la troisième étape. Je ne m'attendais pas à ce qu'il possède six essences... »
 
-« Six essences... Une seule essence suffit pour devenir un cultivateur du troisième niveau. Avec six essences, la culture de cet enfant a sauté les étapes du Vide Nirvana pour atteindre le stade intermédiaire du Vide Spirituel... »
+« Six essences... Une seule essence suffit pour devenir un puissant. Avec six essences, la culture de cet enfant a sauté les étapes du Vide Nirvana pour atteindre le stade intermédiaire du Vide Spirituel... »
 
 « Avec une telle culture et cette flèche... » Ce vieil homme était le Vieux Fantôme Zhan. Il réfléchit un instant et observa les nuages d'un regard étrange et inexplicable.
 
@@ -92,7 +92,7 @@ Cette porte était identique à celle de la paume de Wang Lin; elles étaient to
 
 « Se pourrait-il qu'il soit le troisième... » Le Vieux Fantôme Zhan fronça les sourcils.
 
-Dans l'Ancien Système Stellaire, un palais flottait au milieu du vide infini. Le palais était sombre et dérivait dans l'obscurité, semblant fusionner avec le néant lui-même.
+Dans le Système Stellaire Antique, un palais flottait au milieu du vide infini. Le palais était sombre et dérivait dans l'obscurité, semblant fusionner avec le néant lui-même.
 
 Plusieurs chandeliers brûlaient à l'intérieur du palais. Des crépitements résonnaient tandis que les flammes vacillaient. La lumière était faible, mais certaines choses étaient à peine perceptibles.
 

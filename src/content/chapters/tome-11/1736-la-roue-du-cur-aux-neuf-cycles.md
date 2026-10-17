@@ -16,7 +16,7 @@ Wang Lin recula de trois pas et retira sa main droite. Son expression ne changea
 
 Le vortex s'effondra sous l'impact et explosa en une multitude de fragments cristallins, disparaissant sans laisser de trace.
 
-Sur la planète des Cinq Éléments, le neuvième étage de la tour irradiait une lueur dorée. À l'intérieur siégeait un vieil homme vêtu d'une tunique dorée ornée de motifs d'un réalisme saisissant.
+Sur la planète des Cinq Éléments, le neuvième étage de la tour irradiait une lueur dorée. À l'intérieur siégeait un vieil homme vêtu d'une tunique dorée ornée sur la poitrine de motifs des Cinq Éléments d'un réalisme saisissant.
 
 À cet instant, le vieil homme trembla et cracha un flot de sang. Sa main droite était meurtrie, sombre, et tordue selon un angle anormal; elle était manifestement brisée.
 
@@ -24,7 +24,7 @@ D'importantes quantités de sang s'écoulaient de son bras droit pour perler sur
 
 « Un membre du Clan Ancien... la puissance de son corps appartient au Clan du Dao Ancien! Il ne semble pas être un descendant issu des 3 000 gouttes de sang de Ye Mo; un descendant de Ye Mo ne pourrait être aussi puissant que lui! Cette personne n'est probablement pas de cette grotte, elle provient du Continent Astral Immortel! Maudit soit, quelqu'un d'autre est ici en plus de ma Secte Gui Yi! » Les pupilles du vieil homme se rétractèrent et ses yeux se remplirent de douleur. Il regarda sa main droite avec horreur.
 
-« Quel coup vicieux... Si ce n'était pas pour l'armure, mon bras aurait été broyé et mon corps aurait même explosé... »
+« Quel coup de pied vicieux... Si ce n'était pas pour l'armure, mon bras aurait été broyé et mon corps aurait même explosé... »
 
 Le visage du vieil homme était extrêmement sombre. Tourné vers l'extérieur de la tour, il rugit: « Na Duo, viens me voir! »
 
@@ -94,7 +94,7 @@ C'était un hymne des épées! Toutes les lames chantaient à l'unisson!
 
 Le métal n'est pas comme le bois. Le bois peut être souple, c'est pourquoi Wang Lin avait laissé une chance au bois qui avait acquis une conscience de choisir. Mais le métal est différent: il reste toujours droit et ne plie jamais!
 
-À cet instant, l'hymne des épées résonna et toutes les lames furent projetées. Des millions d'épées volèrent vers Wang Lin.
+À cet instant, l'hymne des épées résonna et toutes les lames furent projetées. Dix mille épées volèrent vers Wang Lin, visant son cœur.
 
 Des grondements tonitruants éclatèrent, et ces sons violents devinrent la seule réalité existante, persistant un long moment.
 
@@ -108,9 +108,9 @@ Na Duo hésita et demanda: « Ancêtre, notre formation la plus puissante, la Ro
 
 « La Roue du Cœur aux Neuf Cycles... neuf respirations pour un cycle. Plus le cœur bat vite, plus elle tourne... Il est difficile de le dire. Cette formation peut être aussi complexe que simple. C'est l'une des formations de protection de la Secte Gui Yi sur le Continent Astral Immortel.
 
-« Bien que cette formation ne déploie que 40 % de sa puissance, tant qu'il ne parvient pas à percer son mystère et qu'elle tourne ne serait-ce qu'un peu, il ne pourra pas la briser!
+« Bien que cette formation ne déploie que 40 % de sa puissance, tant qu'il ne parvient pas à percer son mystère dès le début et que la roue du cœur tourne ne serait-ce qu'un peu, il ne pourra pas briser cette formation!
 
-« Tout dépendra de la capacité de son cœur à rester calme! » murmura l'Ancien, ses paroles demeurant énigmatiques. Na Duo écouta sans trop comprendre, mais n'osa poser d'autres questions. Il se contenta de scruter le ciel au-delà de la tour.
+« Tout dépend de son cœur: va-t-il s'agiter ou non! » murmura l'Ancien, ses paroles demeurant énigmatiques. Na Duo écouta sans trop comprendre, mais n'osa poser d'autres questions. Il se contenta de scruter le ciel au-delà de la tour.
 
 À l'intérieur de la formation, un fracas tonitruant retentit et la formation métallique s'effondra. Wang Lin en sortit, capable de voir désormais la planète des Cinq Éléments non loin de lui!
 

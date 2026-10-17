@@ -6,7 +6,7 @@ bookTitle: Rampage Through the Inner Realm
 en: "Chapter 1494 - Ling Dong Appears !"
 slug: ling-dong-apparait
 ---
-« Osez-vous accepter le combat d'intention Dao? » L'expression du Maître Lu Fu était sombre et sa voix résonna à travers les étoiles.
+« Osez-vous accepter le deuxième combat d'intention Dao? » L'expression du Maître Lu Fu était sombre et sa voix résonna à travers les étoiles.
 
 « J'en ai assez de cette Bataille Littéraire. » Wang Lin secoua la tête et son regard se posa sur le Dieu de Sang au visage pâle qui se tenait derrière le Maître Lu Fu. Il comptait contourner le Maître Lu Fu pour capturer directement le Dieu de Sang!
 
@@ -102,7 +102,7 @@ Il comprit enfin pourquoi Wang Lin était si calme face à ses sorts, pourquoi i
 
 Ce qui le terrifiait par-dessus tout, c'étaient les Flammes Joss infinies qui émanaient de la faille spatiale au-dessus de l'Estimé Ling Dong. Une telle quantité de Flammes Joss dépassait tout ce qu'il pouvait imaginer!
 
-« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape?! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Si un tel être existait, il n'y avait même plus besoin de parler des autres.
+« Ceci... autant de Flammes Joss... Qui est ce cultivateur de la troisième étape?! Je connais tous les cultivateurs de la troisième étape du Royaume Intérieur, et aucun ne ressemble à cela. Il... » L'expression du Maître Lu Fu se décomposa. Lui-même était dans cet état, alors que dire des autres.
 
 Le Maître Yan Leizi fut stupéfait au sein du vortex. Tout le choc qu'il avait ressenti durant ses dizaines de milliers d'années de culture ne valait pas celui que Wang Lin venait de lui infliger. La force de Wang Lin le terrifiait déjà, mais il n'avait jamais imaginé qu'il possédât un esclave!
 
@@ -116,7 +116,7 @@ Même dans le Royaume Extérieur, une telle nouvelle provoquerait une onde de ch
 
 Même si on avait dit au Maître Yan Leizi que Luotian s'effondrerait, il n'en serait pas moins bouleversé!
 
-L'apparition de l'Estimé Ling Dong, cette force mystérieuse, cette pression qui faisait trembler l'espace, cette aura qui terrifiait les cultivateurs, cette puissance plus grande encore que celle de l'ancêtre de Luotian, et l'expression du Maître Lu Fu révélaient tout!
+L'apparition de l'Estimé Ling Dong, cette force mystérieuse, cette pression qui faisait trembler l'espace, cette aura qui terrifiait les cultivateurs, cette puissance presque égale à celle de l'ancêtre de Luotian, voire un peu supérieure, et l'expression du Maître Lu Fu révélaient tout!
 
 Cet homme était un cultivateur de la troisième étape!
 

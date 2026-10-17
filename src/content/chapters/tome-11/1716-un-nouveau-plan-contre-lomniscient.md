@@ -104,7 +104,7 @@ Bien entendu, il existait des méthodes spéciales inconnues; des secrets que m�
 
 Hormis les anciens êtres célestes menés par les quatre généraux, le Vieux Fantôme Zhan ne bougeait pas d'un iota. Son Sens Divin restait focalisé sur les quatre généraux, observant leurs recherches.
 
-Il ne cachait nullement ses intentions, et bien que les quatre généraux l'aient senti, ils s'en moquaient étrangement. Il semblait qu'ils entretenaient une certaine relation avec le Vieux Fantôme Zhan, peu leur importait d'être surveillés.
+Il ne cachait nullement ses intentions, et bien que les quatre généraux l'aient senti, ils s'en moquaient étrangement. Ils semblaient avoir un appui sur lequel compter, et peu leur importait d'être surveillés.
 
 Quant au Daoïste aux Sept Couleurs, après avoir quitté la Mer des Nuages, il avait convoqué le Souverain et ses concubines. Ils s'étaient précipités dans le Royaume Intérieur, en direction du Vide Brillant, pour entamer des recherches minutieuses.
 

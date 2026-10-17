@@ -6,9 +6,9 @@ bookTitle: Rampage Through the Inner Realm
 en: Chapter 1599 - Su Dao
 slug: su-dao
 ---
-« Le monde est une auberge pour tous les êtres vivants... Le temps est l'invité des âges... La frontière entre la vie et la mort n'est qu'un réveil d'un rêve! »
+« Le monde est une auberge pour tous les êtres vivants... Le temps est l'invité des âges... Et la vie fugace est semblable à un rêve... combien de joies nous offre-t-elle... et pour combien de joies? »
 
-La ville de Su laissa derrière elle la saison de la renaissance de juin pour entrer dans celle de l'éclosion des fleurs. Les feuilles de saule qui voltigeaient dans le ciel semblaient vouloir emporter avec elles le passage du temps.
+En juin, la ville de Su laissa derrière elle la saison où tout renaît pour entrer dans le mois où les fleurs s'épanouissent en mille couleurs. Les feuilles de saule qui voltigeaient dans le ciel semblaient vouloir emporter avec elles le passage du temps.
 
 Les feuilles de saule emplissaient le ciel comme de la neige; c'était une scène d'une grande beauté. Elles ressemblaient à des flocons estivaux dérivant dans les airs. Si le vent soufflait plus fort, elles s'agitaient davantage, semblant dépourvues de racines. Bien que magnifiques, elles dégageaient aussi une pointe de mélancolie.
 
@@ -28,9 +28,9 @@ La feuille de saule tombée dans la main du jeune homme marqua un temps d'arrêt
 
 Sur la rive se trouvait une forêt de pêchers en fleurs. Tandis que les feuilles de saule s'éloignaient, les pétales de pêcher tombaient dans la rivière, créant des ondulations successives.
 
-« Les saules fous dansent avec le vent, les légères fleurs de pêcher flottent au fil de l'eau. » Wang Lin but une gorgée de vin et son rire résonna.
+« Les saules fous dansent avec le vent, les légères fleurs de pêcher flottent au fil de l'eau. » Wang Lin vida d'un trait le vin qu'il tenait et son rire résonna.
 
-Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient également sur le bateau. L'une jouait de la cithare tandis que les deux autres chantaient et dansaient. La barque dérivait le long de la rivière, franchissant un pont de pierre, pour s'éloigner paisiblement vers l'horizon.
+Outre le batelier et ces deux hommes, trois magnifiques femmes se trouvaient également sur le bateau. L'une jouait de la cithare tandis que les deux autres chantaient et dansaient. La barque dérivait le long de la rivière, passant sous les ponts de pierre qui enjambaient la rivière, accompagnée des feuilles de saule, pour s'éloigner paisiblement vers l'horizon.
 
 « Grande Fortune, apporte le vin! » Wang Lin se retourna vers l'homme d'âge mûr en riant.
 
@@ -60,7 +60,7 @@ On ignorait depuis combien de temps Wang Lin était assis devant l'instrument av
 
 Même Grande Fortune était pétrifié. Il buvait des gorgées de vin les unes après les autres, oubliant sa douleur pour fixer son poignet droit.
 
-Li Muwan avait joué cette chanson. Et une autre mélodie, dotée du même charme, venait de la femme aveugle de la Terre des Esprits Démoniaques.
+Cette musique était celle que Li Muwan jouait jadis. Ce n'était pas la même mélodie, mais elle avait le même charme, et il l'avait aussi entendue entre les mains de la femme aveugle de la Terre des Esprits Démoniaques.
 
 À cet instant, des larmes coulèrent lentement des yeux clos de Wang Lin. Ses larmes tombèrent sur la cithare, semblant fusionner avec la chanson pour se disperser dans la musique.
 
@@ -76,7 +76,7 @@ Su Dao afficha un regard ému en observant le bateau s'éloigner. Il vit Wang Li
 
 Le vieil homme derrière Su Dao soupira également. Si Wang Lin l'avait vu, il l'aurait reconnu comme le vieillard qui l'avait observé rédiger son examen jusqu'au bout.
 
-« Cet étudiant ne s'attendait pas à ce qu'il puisse jouer de la cithare. En voyant sa copie, j'avais senti que cet enfant n'était pas commun. En venant vous voir, je l'ai aperçu sur ce bateau; j'ai donc pensé qu'il serait bon de vous l'emmener pour que vous le voyiez, Monsieur. » Le vieil homme s'inclina respectueusement.
+« Cet étudiant ne s'attendait pas à ce qu'il puisse jouer de la cithare. En voyant sa copie, j'avais senti que cet enfant n'était pas commun. Il y a quelques jours, en venant vous rendre visite, j'ai vu ce jeune homme se promener en bateau; j'ai donc prié Monsieur de venir ici le voir. » Le vieil homme s'inclina respectueusement.
 
 Le bateau s'éloigna et la musique de la cithare finit par s'estomper. À ce moment, Su Dao sourit. Il fit quelques pas sur le pont et interpella la barque en contrebas:
 
@@ -90,7 +90,7 @@ La nuit était tombée et la pleine lune trônait dans le ciel. Dans l'obscurit�
 
 Wang Lin avait attendu plus d'un mois. Il attendait cette scène qui l'avait poussé à s'éveiller dans la confusion et à passer ses journées à boire du vin. Dans ce rêve, il avait vu son autre moi apparaître sur le pont de la ville de Su. Pourtant, au lieu de rencontrer son double, il était tombé sur ce vieil homme.
 
-« C'est inexplicable... Je connais la Secte de l'Affinement de l'Âme. Je peux même deviner que celui qui y apparaîtra dans des centaines d'années est mon moi du rêve... J'ai eu une illumination, mais ne l'ai-je pas vu ici? » Les yeux de Wang Lin étaient emplis de confusion. Il ne comprenait plus rien; il se sentait lui-même s'effacer.
+« C'est inexplicable... Je connais la Secte de l'Affinement de l'Âme. Je peux même deviner que celui qui y apparaîtra dans des centaines d'années est mon moi du rêve... J'avais déjà tout compris, mais pourquoi ne le vois-je pas ici? » Les yeux de Wang Lin étaient emplis de confusion. Il ne comprenait plus rien; il se sentait lui-même s'effacer.
 
 Tandis que Wang Lin restait plongé dans son incertitude, le bateau s'éloignait de plus en plus. Voyant qu'il ne répondait pas, le vieillard sourit et cria de nouveau:
 

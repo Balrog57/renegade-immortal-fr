@@ -8,7 +8,7 @@ slug: un-peu-sans-scrupules
 ---
 Le regard de Wang Lin devint sérieux alors qu'il fixait la paume géante dans le ciel. Elle semblait surgir du néant, et des ondulations se propageaient depuis son centre. Chaque trait de cette paume était d'une clarté extrême. On aurait dit une véritable main et non une illusion!
 
-Cette empreinte ressemblait énormément à l'Empreinte de l'Esprit Guerrier que Wang Lin connaissait, mais elle présentait des différences subtiles. L'Empreinte de l'Esprit Guerrier qu'il maîtrisait était une paume massive sans contours précis. Dès son apparition, elle absorbait une quantité colossale d'énergie originelle pour grandir démesurément. Elle possédait un pouvoir terrifiant, mais n'était pas facile à contrôler. À mesure que l'Empreinte grandissait et absorbait davantage de puissance, il finissait inévitablement par en perdre le contrôle.
+Cette empreinte ressemblait énormément à l'Empreinte de l'Esprit Guerrier que Wang Lin connaissait, mais elle présentait des différences subtiles. L'Empreinte de l'Esprit Guerrier qu'il maîtrisait était une paume massive sans contours précis. Dès son apparition, elle absorbait une quantité colossale de la puissance du ciel et de la terre pour grandir démesurément. Elle possédait un pouvoir terrifiant, mais n'était pas facile à contrôler. À mesure que l'Empreinte grandissait et absorbait davantage de puissance, il finissait inévitablement par en perdre le contrôle.
 
 Wang Lin savait que cela était dû au fait qu'il n'avait pas obtenu l'héritage complet, mais qu'il n'avait appris la technique qu'en l'observant. La véritable Empreinte de l'Esprit Guerrier utilisée par le Shui Daozi ne présentait pas ce défaut.
 
@@ -32,7 +32,7 @@ Le fou afficha un mépris manifeste, pointant Wang Lin du doigt en montrant ses 
 
 « À l'époque, qui, qui, qui voulait me voler mes secrets, mais je l'ai démasqué. Hmph, ce roi est très malin, tu ne pourras même pas me tromper. »
 
-Sans un mot, Wang Lin leva la main droite vers le ciel et pressa le vide. Le firmament gronda et une empreinte de paume diffuse apparut. Dès son apparition, elle commença à absorber frénétiquement l'énergie originelle. L'empreinte devint progressivement plus nette avant de s'abattre violemment vers le sol.
+Sans un mot, Wang Lin leva la main droite vers le ciel et pressa le vide. Le firmament gronda et une empreinte de paume diffuse apparut. Dès son apparition, elle commença à absorber frénétiquement la puissance du ciel et de la terre environnante. L'empreinte devint progressivement plus nette avant de s'abattre violemment vers le sol.
 
 À mesure que la paume descendait, une pression écrasante s'installa et le vent se mit à hurler. La terre trembla et une gigantesque faille s'ouvrit à la surface de la planète.
 
@@ -78,7 +78,7 @@ Ce simple choc suffit à ranimer l'excitation du fou. Il poussa un rugissement e
 
 Les yeux de Wang Lin s'illuminèrent; il comprenait le sort de plus en plus vite. Au fil du temps, l'empreinte devenait de plus en plus nette dans son esprit, gravée profondément dans sa conscience. La technique devenait de plus en plus profonde.
 
-Sept heures, huit heures... Jusqu'à ce que, neuf heures plus tard, le fou aux yeux rouges pousse un ultime rugissement et lance une dernière Empreinte de l'Esprit Guerrier. La terre trembla. Après neuf heures d'effort, la marque était enfin presque aussi profonde que celle de Wang Lin.
+Quatre heures, cinq heures... Jusqu'à ce que, sept heures plus tard, le fou aux yeux rouges pousse un ultime rugissement et lance une dernière Empreinte de l'Esprit Guerrier. La terre trembla. Après sept heures d'effort, la marque était enfin presque aussi profonde que celle de Wang Lin.
 
 Épuisé, le fou commença à ramper sur le sol, mais il tourna toujours son regard vers Wang Lin pour hurler d'une voix rauque: « Alors? Qu'en dis-tu? Le sort de ce roi n'est-il pas le plus puissant?! »
 
@@ -96,6 +96,6 @@ En voyant ce dédain, la colère du fou explosa. Il fixa Wang Lin et rugit:
 
 Le fou resta pétrifié un instant. Son visage devint rouge cramoisi et il se précipita vers lui: « Non! Ce roi n'a pas fait ça! » hurla-t-il.
 
-Wang Lin écarquilla les yeux et dit froidement: « Le sort que vous avez utilisé depuis tout à l'heure n'est plus le même qu'au début. N'essayez pas de me tromper! »
+Wang Lin ouvrit les yeux et dit froidement: « Le sort que vous avez utilisé depuis tout à l'heure n'est plus le même qu'au début. N'essayez pas de me tromper! »
 
 « Tu m'accuses faussement, ce roi a utilisé le même sort! Je ne peux pas me tromper! Va donc regarder de plus près, regarde bien! Ce roi ne t'a pas menti... » Le fou devenait anxieux, les yeux embrumés de larmes. Il se sentait profondément lésé. Il avait lutté pendant des heures pour en arriver là, et on venait de le traiter de menteur.

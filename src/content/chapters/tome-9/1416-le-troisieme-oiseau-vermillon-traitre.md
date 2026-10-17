@@ -8,7 +8,7 @@ slug: le-troisieme-oiseau-vermillon-traitre
 ---
 À l'intérieur de l'Épreuve Céleste, Wang Lin fixa la statue géante et ses yeux s'illuminèrent.
 
-Cette statue était bien trop étrange; peu importe comment Wang Lin la regardait, elle ne ressemblait pas à un être humain. Elle semblait plutôt avoir été façonnée à partir d'un Oiseau Vermillon.
+Cette statue était bien trop étrange; peu importe comment Wang Lin la regardait, elle ne ressemblait pas à un cultivateur. Elle semblait plutôt avoir été façonnée à partir d'un Oiseau Vermillon.
 
 Après avoir médité un instant, Wang Lin joignit les mains devant la statue et s'inclina. Il dit: « Le disciple de la sixième génération de l'Oiseau Vermillon salue l'Ancêtre. »
 
@@ -36,21 +36,21 @@ Un cultivateur était assis au fond de l'abîme, sous les eaux infinies. Il para
 
 À l'instant même où la Tombe de l'Ordre Antique s'ouvrit et que la tempête se forma, le vieil homme ouvrit les yeux. Son regard était profond, comme si ses yeux étaient l'océan lui-même.
 
-« Quelque chose ne va pas! » Les yeux du vieil homme s'illuminèrent. Après un instant de réflexion, une pointe d'hésitation y apparut. « Il est impossible d'agir contre la Perle Défiant le Ciel sur la Planète de l'Empereur Suprême, je m'en occuperai plus tard... Avatar, reviens vite vérifier cette tempête; vois ce qu'elle est! »
+« Quelque chose ne va pas! » Les yeux du vieil homme s'illuminèrent. Après un instant de réflexion, une pointe d'hésitation y apparut. « Il est impossible d'agir contre la Perle Défiant le Ciel sur la Planète du Grand Empereur, je m'en occuperai plus tard... Avatar, reviens vite vérifier cette tempête; vois ce qu'elle est! »
 
-Ce vieil homme était l'un des cinq maîtres, le corps original du Maître Dao Miao Yin. Le jeune homme sur la Planète de l'Empereur Suprême n'était que l'un de ses trois avatars principaux!
+Ce vieil homme était l'un des cinq maîtres, le corps original du Maître du Dao Miao Yin. Le jeune homme sur la Planète du Grand Empereur n'était que l'un de ses trois avatars principaux!
 
-Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture, s'approchait lentement. Le vieil homme assis sur son dos, marqué du tatouage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement pour scruter l'horizon avec une lueur étrange.
+Au même moment, à l'extérieur des Terres Déchues, une bête gigantesque et ovoïde, de la taille d'une planète de culture et agitant d'innombrables tentacules, s'approchait lentement. Le vieil homme assis sur son dos, au visage Yin et Yang, avait les yeux clos, mais il les ouvrit soudainement, se leva d'un bond et scruta l'horizon avec une lueur étrange.
 
 « C'est... » Avant qu'il ne puisse finir sa réflexion, le serpent aux yeux de lune sous lui trembla soudainement et fixa le lointain. Des éclats de peur et d'excitation brillèrent dans ses yeux alors qu'il ouvrait la gueule pour pousser un rugissement fracassant.
 
-Le vieil homme au tatouage Yin et Yang hésita un instant avant de changer de direction, guidant le serpent aux yeux de lune vers la localisation de la Tombe de l'Ordre Antique.
+Le vieil homme au visage Yin et Yang hésita un instant avant de changer de direction, guidant le serpent aux yeux de lune vers la localisation de la Tombe de l'Ordre Antique.
 
-Sur la Planète de l'Empereur Suprême, tous les regards étaient tournés vers l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
+Sur la Planète du Grand Empereur, tous les regards étaient tournés vers l'encens céleste quand l'expression du jeune homme changea brusquement. Sans hésiter, il joignit les mains devant le Vieux Oiseau Vermillon et sourit: « Amis, j'ai une autre affaire à régler, je ne resterai donc pas pour la cérémonie. Adieu! »
 
-Sur ces mots, il fit un pas en arrière. Son corps se changea en éclats de lumière et disparut. Ce changement soudain stupéfia l'assistance, et les visages de tous les cultivateurs du troisième niveau se crispèrent.
+Sur ces mots, il se retourna et fit un pas dans le vide. Son corps se changea en éclats de lumière et disparut. Ce changement soudain stupéfia l'assistance, et les visages de tous les cultivateurs du troisième niveau se crispèrent.
 
-Les yeux du Maître du Dao Rêve Bleu se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis, s'adressant à Li Qianmei, il soupira et agita sa manche; une lumière bleue enveloppa les deux êtres avant qu'ils ne disparaissent.
+Les yeux du Maître du Dao Rêve Bleu se rétrécirent tandis qu'il levait le regard. Après une courte réflexion, il salua le Vieux Oiseau Vermillon: « Cette affaire est étrange, je dois aller vérifier. » Puis il jeta un regard à Li Qianmei à ses côtés, soupira intérieurement et agita sa grande manche; une lumière bleue enveloppa le père et la fille avant qu'ils ne disparaissent.
 
 Il y avait aussi le vieil homme assis sur le lézard; ses yeux brillaient d'une lueur singulière. Sa bouche, scellée par une aiguille, tressaillit, puis il salua le Vieux Oiseau Vermillon sans prononcer un mot. Sa main droite frappa le lézard qui s'élança dans un sifflement.
 
@@ -72,13 +72,13 @@ Quelle sorte d'épreuve était-ce? Ce feu tentait de raffiner son âme!
 
 Wang Lin sentait clairement que si son Oiseau Vermillon n'avait pas connu son quatrième éveil et si le Feu Éthéré n'était pas apparu dans son corps, son âme aurait été réduite en cendres après seulement trois respirations.
 
-Sur la Planète de l'Empereur Suprême, son corps commença à trembler et de grosses perles de sueur roulèrent sur son front. Cependant, dès qu'elles apparaissaient, elles se transformaient en brume. Son corps était tel un morceau de fer incandescent sur le point d'être détruit par la chaleur intérieure!
+Sur la Planète du Grand Empereur, son corps commença à trembler et de grosses perles de sueur roulèrent sur son front. Cependant, dès qu'elles apparaissaient, elles se transformaient en brume. Son corps était tel un morceau de fer incandescent sur le point d'être détruit par la chaleur intérieure!
 
 Dans l'Épreuve Céleste, le visage de Wang Lin était livide. Son expression n'était plus respectueuse, elle était devenue féroce. Il poussa un rugissement, sa main traçant un sceau, tandis qu'un feu aux neuf couleurs jaillissait de son œil gauche. Puis, ce même feu déferla de tout son corps. Il utilisait le feu pour résister au feu!
 
 Des grondements tonitruants résonnèrent dans la paume géante. Quatre respirations, cinq respirations!
 
-Sur la Planète de l'Empereur Suprême, les cultivateurs fixaient le corps de Wang Lin. À cet instant, il était entouré d'une brume formée par sa propre sueur. À la cinquième respiration, la brume se dissipa. L'encens céleste marqua une pause alors qu'il avait déjà brûlé la moitié de sa longueur.
+Sur la Planète du Grand Empereur, les cultivateurs fixaient le corps de Wang Lin. À cet instant, il était entouré d'une brume formée par sa propre sueur. À la cinquième respiration, la brume se dissipa. L'encens céleste marqua une pause alors qu'il avait déjà brûlé la moitié de sa longueur.
 
 Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan de l'Oiseau Vermillon réside dans le Système Stellaire Antique, alors pourquoi le Clan des Moineaux de Feu existe-t-il? »
 
@@ -86,7 +86,7 @@ Après avoir tenu cinq respirations, Wang Lin rugit immédiatement: « Le Clan d
 
 Le feu autour de Wang Lin redoubla d'intensité. Le brasier de l'Ancêtre se transforma en une tempête de flammes. Emporté par l'orage, le feu aux neuf couleurs entourant Wang Lin s'effondra. Une douleur atroce le submergea alors qu'il recrachait une bouffée d'énergie de son âme. Son visage devint instantanément blême comme la mort.
 
-La blessure infligée à son âme atteignit son corps physique. Sur la Planète de l'Empereur Suprême, son corps trembla et du sang jaillit du coin de sa bouche. Cependant, avant même qu'il ne puisse toucher le sol, il fut réduit en cendres et se dissipa en une fumée noire.
+La blessure infligée à son âme atteignit son corps physique. Sur la Planète du Grand Empereur, son corps trembla et du sang jaillit du coin de sa bouche. Cependant, avant même qu'il ne puisse toucher le sol, il fut réduit en cendres et se dissipa en une fumée noire.
 
 Témoin de cette scène, le Vieux Oiseau Vermillon prit un air grave et son expression devint extrêmement sombre.
 

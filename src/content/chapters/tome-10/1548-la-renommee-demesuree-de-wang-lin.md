@@ -16,9 +16,9 @@ Un vortex gigantesque tournait silencieusement devant Wang Lin. À chaque rotati
 
 En contemplant ce gouffre cyclonique, Wang Lin se remémora le passé. À l'époque, il n'avait pu pénétrer en ces lieux, ou du moins, il n'en était pas qualifié.
 
-C'était le sommet du Système Stellaire de l'Espace Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Culture!
+C'était le sommet du Système Stellaire du Vide Brillant, à l'époque où il n'était qu'un simple cultivateur sur la planète Suzaku. Le siège de l'Alliance de Culture!
 
-L'Alliance de Culture d'autrefois régnait sur le Système Stellaire de l'Espace Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et à l'intervention de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
+L'Alliance de Culture d'autrefois régnait sur le Système Stellaire du Vide Brillant, et son pouvoir s'étendait à travers tout le système! Cependant, suite à la bataille contre Luotian et à l'intervention de Qing Shui, l'Alliance s'était effondrée. Le siège s'était alors scellé de l'intérieur.
 
 Wang Lin se tenait là, observant le quartier général de l'Alliance en murmurant des paroles que lui seul pouvait entendre.
 
@@ -30,11 +30,11 @@ Le vortex trembla et cessa peu à peu de tourner! Cette scène fit écarquiller 
 
 En tant qu'ancien de l'Alliance de Culture, il savait que ce vortex constituait le premier sceau, et par extension, la première porte de l'Alliance!
 
-Ce vortex de scellement provenait du monde ancien de la culture. Il avait été acquis par l'Alliance lors de l'effondrement du Royaume Céleste de la Pluie. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême!
+Ce vortex de scellement provenait du monde ancien de la culture. Il avait été acquis par les membres de l'Alliance dans le Royaume Céleste de la Pluie d'autrefois. Plus tard, il fut renforcé par d'autres pour devenir une formation d'une puissance extrême!
 
 Une fois activé, il ne s'arrêtait jamais; il puisait constamment dans l'énergie du monde pour accroître sa force!
 
-Bien que les cultivateurs du Royaume Intérieur aient été dispersés dans les divers Royaumes aux Sept Couleurs, il restait un grand nombre de cultivateurs, ainsi que Maître Lu Fu et un cultivateur de la troisième étape de la Rivière Invoquée. Même eux n'avaient pu que ralentir le vortex, sans jamais parvenir à l'arrêter.
+Lors de la bataille d'il y a dix ans, bien que les cultivateurs du Royaume Intérieur se fussent répartis entre les divers Royaumes aux Sept Couleurs, nombre d'entre eux étaient tout de même venus ici. Même avec Maître Lu Fu et un grand cultivateur de la Rivière Invoquée agissant en même temps, ils n'avaient pu que ralentir le vortex, sans jamais parvenir à l'arrêter.
 
 Lorsque Maître Yan Leizi vit que le geste désinvolte de Wang Lin avait provoqué un grondement tel que le vortex semblait sur le point de céder, il fut terrifié.
 
@@ -48,7 +48,7 @@ L'expression de Wang Lin resta impassible. Après avoir stoppé le vortex d'un g
 
 « Haha, le calme régnait depuis tant d'années, quelqu'un tente enfin une intrusion. Ce vieil homme veut voir combien de prétendants sont venus! »
 
-À leur apparition, ces individus affichaient des visages empreints de meurtriers, mais plus flagrante encore était leur soif de sang. Ils n'avaient pas combattu depuis longtemps, et l'intention de tuer, jusqu'alors réprimée, éclata soudainement. La tentative d'intrusion les avait galvanisés.
+À leur apparition, ces individus affichaient des visages empreints de cruauté, mais plus flagrante encore était leur soif de sang. Ils n'avaient pas combattu depuis longtemps, et l'intention de tuer, jusqu'alors réprimée, éclata soudainement. La tentative d'intrusion les avait galvanisés.
 
 En un instant, des milliers de cultivateurs jaillirent du vortex. Une aura féroce explosa et des rugissements secouèrent les cieux.
 
@@ -94,7 +94,7 @@ Un fracas tonitruant retentit, l'espace lui-même trembla sous les craquements. 
 
 L'espace commença à se désagréger, et alors qu'il s'écroulait, Wang Lin agita sa main droite. Une lumière dorée jaillit, formant une tempête de lumière qui balaya toute la zone. C'était comme si un vent puissant venait de lever un voile!
 
-Les milliers de cultivateurs qui avaient chargé péri lamentablement sous cette tempête dorée. Ils furent incapables de riposter.
+Les milliers de cultivateurs qui avaient chargé périrent lamentablement sous cette tempête dorée. Ils furent incapables de riposter.
 
 Une fois le voile levé, l'espace devint clair et le siège de l'Alliance de Culture fut révélé!
 
@@ -102,11 +102,11 @@ C'était une planète de culture gigantesque, entourée d'innombrables planètes
 
 Alors qu'il suivait Wang Lin, Maître Yan Leizi observait tout cela avec haine dans les yeux. Il fixa la planète géante et pointa du doigt: « Seigneur du Royaume Scellé, c'est là que se trouve le hall principal de l'Alliance de Culture. Maître Zhong Xuan est là-bas! »
 
-Simultanément, des bruits de bruissement surgirent de toutes parts. Des dizaines de milliers de cultivateurs du Royaume Extérieur jaillirent de la planète. Mais lorsqu'ils aperçurent Wang Lin, leur intention meurtrière monstrueuse s'évanouit et leurs expressions changèrent radicalement!
+Simultanément, des bruits de bruissement surgirent de toutes parts. Plus de dix mille cultivateurs du Royaume Extérieur jaillirent de la planète. Mais lorsqu'ils aperçurent Wang Lin, leur intention meurtrière monstrueuse s'évanouit et leurs expressions changèrent radicalement!
 
 Ils avaient reconnu Wang Lin!
 
-Maître Yan Leizi fut nerveux sous le regard de ces dizaines de milliers d'individus, mais en voyant Wang Lin, il se détendit. L'expression sereine de ce dernier montrait que tout cela n'avait aucune importance pour lui.
+Maître Yan Leizi fut nerveux sous le regard de ces dix mille et quelques individus, mais en voyant Wang Lin, il se détendit. L'expression sereine de ce dernier montrait que tout cela n'avait aucune importance pour lui.
 
 « Le Seigneur du Royaume Scellé? » Un ricanement s'éleva de la planète géante, puis une brume noire apparut de nulle part. Un vieil homme vêtu de noir en sortit. À son apparition, tous les cultivateurs du Royaume Extérieur furent galvanisés.
 
@@ -114,10 +114,10 @@ Maître Yan Leizi s'exclama rapidement: « C'est l'Estimé Maître Tian Zhao! »
 
 Le regard indifférent de Wang Lin se posa sur le vieil homme en noir, puis il fit un pas en avant. À cet instant, le vieil homme sourit. Ses mains formèrent un sceau et une énergie de Flamme Joss infinie apparut.
 
-« Et alors s'il est le Seigneur du Royaume Scellé? Regardez tous comment ce vieil homme va l'abattre! Une fois qu'il sera mort, je serai classé premier dans le classement du Système Stellaire Antique! » Le vieil homme en noir ricana et avança à son tour. Il agita ses manches et les Flammes Joss prirent la forme de trois dragons noirs couverts d'épines, semblables à trois fouets sombres!
+« Et alors s'il est le Seigneur du Royaume Scellé? Regardez tous comment ce vieil homme va l'abattre! Une fois qu'il sera mort, je serai classé premier dans le classement du Système Stellaire Antique! » Le vieil homme en noir ricana et avança à son tour. Il agita ses manches et les Flammes Joss prirent la forme de trois dragons noirs monstrueux de centaines de milliers de pieds de long, couverts d'épines et dotés d'une corne unique, semblables à trois fouets sombres!
 
 Le pouvoir spirituel propre aux cultivateurs du Vide Spirituel se propagea, accompagné d'un murmure étrange. Les trois dragons noirs ouvrirent leurs gueules, révélant trois Royaumes de Flamme Joss abritant d'innombrables disciples de la Flamme Joss. Ces flammes s'engouffrèrent dans les dragons noirs, les transformant en trois véritables dragons de Flamme Joss!
 
 C'était l'atout maître de l'Estimé Maître Tian Zhao, une technique célèbre dans tout le Système Stellaire Antique. Ces dragons n'étaient pas des illusions; il avait bravé de multiples dangers pour capturer ces dragons réels dans une terre mystérieuse!
 
-Après les avoir affinés pendant des dizaines de milliers d'années, l'Estimé Maître Tian Zhao avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses âmes de Flamme Joss!
+Après les avoir affinés pendant dix mille ans, l'Estimé Maître Tian Zhao avait réussi à soumettre ces trois dragons noirs pour qu'ils lui vouent un culte et deviennent ses âmes de Flamme Joss!

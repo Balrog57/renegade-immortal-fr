@@ -96,7 +96,7 @@ Wang Lin ouvrit les yeux et lança un regard nonchalant au vieil homme. Un souri
 
 La femme hocha la tête rapidement, prit les trois pilules et descendit précipitamment à l'étage inférieur. Le pavillon retomba dans le silence, tandis que le vieil homme du Clan des Moineaux de Feu restait plongé dans ses pensées. Nul ne savait ce qu'il méditait.
 
-Wang Lin n'était pas pressé. Un instant plus tard, des pas résonnèrent et la femme remonta, suivie par un homme d'âge moyen. Ce dernier portait une robe taoïste et dégageait une pression imposante sans pour autant manifester de colère. La femme charmante le suivait avec un profond respect.
+Wang Lin n'était pas pressé. Un instant plus tard, des pas résonnèrent et la femme remonta, suivie par un homme d'âge moyen. Ce dernier portait une robe daoïste et dégageait une pression imposante sans pour autant manifester de colère. La femme charmante le suivait avec un profond respect.
 
 Dès l'apparition de l'homme, le Patriarche du Scorpion Noir, resté derrière Wang Lin, s'approcha de lui et murmura: « Le jeune maître du Clan du Dragon Blindé. Étrange, il jouit d'un statut très élevé et se montre rarement ici. »
 

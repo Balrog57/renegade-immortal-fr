@@ -36,7 +36,7 @@ Cependant, la plupart du temps, il buvait seul. Le vin épicé coulait dans sa g
 
 « Cette bonté est une dette que je ne pourrai jamais rembourser... Wan Er... Je ne veux plus aimer dans cette vie, car ton départ m'a fait connaître le prix de l'amour... Je ne peux pas le supporter. »
 
-Il y a plus de 2 000 ans, en ce jour même, un cri à l'aide empreint d'un désir de vengeance avait pénétré le cœur de Wang Lin. Cette voix était très douce, impuissante, et elle aurait fait naître la pitié chez quiconque l'aurait entendue...
+Il y a plus de 2 000 ans, en ce jour même, à l'extérieur de la Mer des Démons, un cri à l'aide avait pénétré l'esprit de Wang Lin, alors rempli de vengeance. Cette voix était très douce, impuissante, et elle aurait fait naître la pitié chez quiconque l'aurait entendue...
 
 Cette voix avait poussé Wang Lin à s'arrêter et à se retourner. Il avait alors aperçu une silhouette inconnue, mais dont il se souviendrait pour le reste de sa vie.
 
@@ -64,7 +64,7 @@ Wang Lin jeta la cruche et pointa son doigt droit vers l'espace entre ses sourci
 
 Xuan Luo médita silencieusement, l'expression complexe. Ayant une intuition, il soupira et pointa la brume entourant Wang Lin. Son Sens Divin pénétra dans le brouillard.
 
-« Wang Lin, ce n'est pas que ce vieil homme ne puisse te déranger, mais j'ai besoin de tout comprendre de toi. Je ne cherche pas seulement un disciple unique; j'ai besoin de quelqu'un qui protégera ma réincarnation et gardera mon Clan du Dao Antique, une personne d'une importance capitale! » Xuan Luo ferma les yeux.
+« Wang Lin, ce n'est pas que ce vieil homme ne puisse te déranger, mais j'ai besoin de tout comprendre de toi. Celui que je choisis sera mon unique disciple et, plus encore, la personne la plus importante, celle qui protégera ma réincarnation et gardera mon Clan du Dao Antique! » Xuan Luo ferma les yeux.
 
 Dès qu'il eut les paupières closes, son esprit pénétra dans le monde onirique où se trouvait Wang Lin. Il ressentit la tristesse qui émanait de ce monde!
 
@@ -88,7 +88,7 @@ Cependant, avant qu'elle ne finisse sa phrase, elle fut frappée de stupeur: Wan
 
 « Toi... » Alors que Li Muwan allait parler, le jeune homme au loin eut un sourire glacial. Il avait vu Wang Lin, certes, mais il s'en moquait éperdument. Il leva la main droite et huit épées volantes apparurent autour de lui, fonçant sur Wang Lin comme un tourbillon.
 
-Wang Lin regarda Li Muwan et la rattrapa instinctivement de sa main droite. Les yeux de celle-ci étaient emplis de honte tandis que Wang Lin fixait le jeune homme lascif derrière les huit épées.
+Wang Lin regarda Li Muwan et la prit tout naturellement dans ses bras de sa main droite. Les yeux de celle-ci étaient emplis de honte tandis que Wang Lin fixait le jeune homme lascif derrière les huit épées.
 
 D'un simple regard, les huit épées volantes se distordirent et s'effondrèrent instantanément. Quant au jeune homme, dès qu'il croisa le regard de Wang Lin, son cœur tressaillit et il cracha du sang. Avant même que la peur ne puisse se lire dans ses yeux, son corps fut déchiré par une force invisible.
 
@@ -98,7 +98,7 @@ Soudain, tout devint silencieux. Li Muwan resta stupéfaite, oubliant même de l
 
 Voyant l'état de Li Muwan, Wang Lin ressentit un pincement au cœur et desserra doucement sa prise.
 
-« Je m'appelle Wang Lin. » À ces mots, Li Muwan recula brusquement de plus de mille pieds. Elle marqua une pause, le regardant avec timidité, puis s'inclina devant lui avant de partir précipitamment.
+« Je m'appelle Wang Lin. » À ces mots, Li Muwan recula brusquement de plus de mille pieds. Elle marqua une pause, le regardant avec timidité, puis s'inclina devant lui pour le remercier avant de partir précipitamment.
 
 En observant la silhouette manifestement effrayée de Li Muwan, Wang Lin afficha un sourire heureux. Cependant, l'amertume et la tristesse dissimulées sous ce sourire restaient invisibles pour autrui.
 
@@ -108,6 +108,6 @@ Au loin, le Grand Empyréen Xuan Luo avait tout observé en silence, et son prop
 
 Wang Lin resta là, le sourire aux lèvres, jusqu'à ce que la silhouette de Li Muwan disparaisse. Il ferma ensuite lentement les yeux et tout son environnement s'évanouit. Lorsqu'il rouvrit les paupières, il était de retour dans le Royaume Céleste, sur la montagne, contemplant Li Muwan qui dormait à l'intérieur du cercueil.
 
-Le ciel n'était plus bleu; la nuit était tombée. Une pleine lune onirique trônait dans le firmament. Et là, semblaient marcher lentement ensemble deux silhouettes devant elle.
+Le ciel n'était plus bleu; la nuit était tombée. Une pleine lune onirique trônait dans le firmament. Et à l'intérieur, deux silhouettes semblaient marcher lentement l'une vers l'autre.
 
 C'étaient les formes d'un homme et d'une femme.

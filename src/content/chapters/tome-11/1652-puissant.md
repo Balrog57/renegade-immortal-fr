@@ -12,9 +12,9 @@ Il ne s'était pas rendu directement à Luotian. Il ne pouvait pas renverser cet
 
 Il devait réfléchir à la manière de tenir bon pendant trois ans.
 
-Dans trois ans, lorsque les habitants du Royaume Céleste Antique sortiraient, il devrait encore aller détruire le Royaume Céleste Antique du Monde Extérieur. Tout cela nécessitait l'Arc Li Guang, et il n'avait pas assez d'énergie céleste pour utiliser l'arc à maintes reprises!
+Dans trois ans, lorsque les habitants du Royaume Céleste Antique sortiraient, il devrait encore aller détruire le Royaume Céleste Antique du Royaume Extérieur. Tout cela nécessitait l'Arc Li Guang, et il n'avait pas assez d'énergie céleste pour utiliser l'arc à maintes reprises!
 
-Par conséquent, connaissant le danger qui résidait à Luotian, il choisit de ne pas s'y rendre en massacrant tout sur son passage. Il allait d'abord décimer les cultivateurs du Monde Extérieur dans les autres systèmes stellaires. Il avait besoin de leurs têtes et de leurs âmes originelles pour achever la formation la plus puissante!
+Par conséquent, connaissant le danger qui résidait à Luotian, il choisit de ne pas s'y rendre immédiatement. Il allait d'abord décimer les cultivateurs du Royaume Extérieur dans les autres systèmes stellaires. Il avait besoin de leurs têtes et de leurs âmes originelles pour achever la formation la plus puissante!
 
 Alors que Wang Lin avançait, il passa devant de nombreux continents. À mesure que la mort se répandait, le nombre de têtes derrière lui dépassa les 50 000!
 
@@ -28,11 +28,11 @@ Le regard de Wang Lin était grave alors que ses mains traçaient rapidement des
 
 Les deux vortex représentant la vie et la mort se superposèrent et fusionnèrent instantanément en un seul!
 
-Cela provoqua des grondements tonitruants qui firent trembler l'espace lui-même. Le vortex fusionné tourna rapidement et s'étendit. 10 000 pieds, 100 000 pieds, plus d'un million de pieds!
+Cela provoqua des grondements tonitruants qui firent trembler l'espace lui-même. Le vortex fusionné tourna rapidement et s'étendit. 1 000 pieds, 10 000 pieds, 100 000 pieds, plus d'un million de pieds!
 
 Ce vortex géant tournait au-dessus de Wang Lin, et l'espace semblait pivoter avec lui.
 
-« Formation de la Vie et de la Mort, manifestez-vous! » Wang Lin mordit le bout de sa langue et cracha son sang essentiel du troisième niveau. Le sang se transforma en brume et fusionna avec le vortex.
+« Formation de la Vie et de la Mort, manifestez-vous! » Wang Lin mordit le bout de sa langue et cracha son sang essentiel de la troisième étape. Le sang se transforma en brume et fusionna avec le vortex.
 
 Lors de la fusion, des craquements retentirent et le vortex géant cessa de tourner. Non seulement il s'arrêta, mais il commença à se solidifier.
 
@@ -46,25 +46,25 @@ Wang Lin bondit et se tint au sommet de la roue. Celle-ci ne tourna pas mais s'�
 
 Il allait tuer. Il voulait encore plus de têtes et d'âmes originelles pour former la seconde formation: la Formation du Karma!
 
-Il traversa rapidement les continents qui s'effondraient sur son passage. Tous les cultivateurs du Monde Extérieur périrent et leurs têtes furent récupérées par Wang Lin. Désormais, une multitude de têtes le suivait!
+Il traversa rapidement les continents qui s'effondraient sur son passage. Tous les cultivateurs du Royaume Extérieur périrent et leurs têtes furent récupérées par Wang Lin. Désormais, une multitude de têtes le suivait!
 
-C'était l'incarnation de la mort. L'odeur du sang autour de lui était si forte qu'on aurait dit qu'une pluie de sang allait s'abattre. Après avoir massacré des milliers de cultivateurs du Monde Extérieur sur un continent, il fit un pas en avant.
+C'était l'incarnation de la mort. L'odeur du sang autour de lui était si forte qu'on aurait dit qu'une pluie de sang allait s'abattre. Il avait les yeux rouges et le massacre emplissait tout son être. Après avoir massacré des milliers de cultivateurs du Royaume Extérieur sur un continent, il fit un pas en avant.
 
-Le nombre de têtes derrière Wang Lin atteignit progressivement des dizaines de milliers, mais son massacre ne faisait que commencer. Il agita la main droite et leva la paume. Des grondements tonitruants résonnèrent et de nombreux cultivateurs du Monde Extérieur sur le continent devant lui tentèrent de fuir. Cependant, leurs corps tremblèrent et leur sang jaillit de toutes parts avant que leurs têtes ne volent vers Wang Lin.
+Le nombre de têtes derrière Wang Lin atteignit progressivement des dizaines de milliers, mais son massacre ne faisait que commencer. Il agita la main droite et leva la paume. Des grondements tonitruants résonnèrent et de nombreux cultivateurs du Royaume Extérieur sur le continent devant lui tentèrent de fuir. Cependant, leurs corps tremblèrent et leur sang jaillit de toutes parts avant que leurs têtes ne volent vers Wang Lin.
 
-Cela ne prit pas longtemps. Tandis qu'il balayait le système stellaire, de plus en plus de cultivateurs du Monde Extérieur mouraient. Un instant plus tard, une planète géante apparut devant lui. Cette planète était recouverte d'algues. Dès son arrivée, l'aura d'un cultivateur du troisième niveau jaillit de la planète.
+Cela ne prit pas longtemps. Tandis qu'il balayait le système stellaire, de plus en plus de cultivateurs du Royaume Extérieur mouraient. Un instant plus tard, une planète géante apparut devant lui. Cette planète était recouverte d'algues. Dès son arrivée, l'aura d'un cultivateur du troisième niveau jaillit de la planète.
 
 C'était là que se trouvait la femme. Lorsqu'elle remarqua Wang Lin, elle n'osa pas attaquer prématurément mais ne trouva aucun moyen de s'échapper. Elle ne pouvait qu'attendre que Wang Lin arrive pour l'affronter en utilisant cette planète!
 
-La planète était entièrement sous son contrôle grâce à ses âmes de Flamme Joss. Bien qu'elle ne pût vaincre Wang Lin ici, elle pouvait atteindre son apogée de puissance!
+La planète était entièrement sous son contrôle grâce à ses âmes de Flamme Joss. Bien qu'elle n'eût aucune certitude de vaincre Wang Lin ici, elle pouvait atteindre son apogée de puissance!
 
-Un bruit strident retentit sur la planète dès que Wang Lin arriva. À ce signal, les algues commencèrent à croître follement. Elles atteignirent 10 000 pieds, 100 000 pieds, un million, voire dix millions de pieds de long. Et elles continuaient de s'étendre!
+Un bruit strident retentit sur la planète dès que Wang Lin arriva. À ce signal, les algues commencèrent à croître follement. Elles atteignirent 1 000 pieds, 10 000 pieds, 100 000 pieds, un million, voire dix millions de pieds de long. Et elles continuaient de s'étendre!
 
 En un éclair, la planète de culture subit une métamorphose sans précédent.
 
 Alors que les algues infinies grandissaient, la planète se transforma en une tête! Les algues qui continuaient de croître étaient les longs cheveux de ce visage!
 
-Les fleurs sur la planète éclosent et la belle femme révéla son visage. Son murmure enveloppa la planète, modifiant ses montagnes et ses rivières.
+Le bourgeon de la fleur sur la planète s'ouvrit et la belle femme révéla son visage. Son murmure enveloppa la planète, modifiant ses montagnes et ses rivières.
 
 Certaines montagnes tombèrent tandis que d'autres s'élevaient. Certaines rivières se tarirent et d'autres surgirent de nulle part! En conséquence, la planète changea radicalement pour devenir une tête géante!
 
@@ -74,11 +74,11 @@ La gigantesque planète de culture était devenue sa tête. Son visage était d'
 
 Un pic montagneux formait son nez, des montagnes ses sourcils, des canyons ses lèvres et les océans ses yeux. Tout cela témoignait de la puissance phénoménale de son sortilège.
 
-Les yeux de Wang Lin s'illuminèrent. À cet instant précis, les sourcils de la tête de la femme tremblèrent. Ce tremblement des cils n'était autre que l'effondrement de montagnes sur la planète. Puis, soudainement, la femme ouvrit les yeux.
+Les yeux de Wang Lin s'illuminèrent. À cet instant précis, les cils de la tête de la femme tremblèrent. Ce tremblement des cils n'était autre que l'effondrement de montagnes sur la planète. Puis, soudainement, la femme ouvrit les yeux.
 
 Un regard impitoyable fixa Wang Lin, et un cri capable d'anéantir le vide jaillit de sa bouche!
 
-« Ce sort est passablement bon, mais ta culture est trop faible! » La main droite de Wang Lin s'élança vers le vide devant lui et une lumière sanglante enveloppa la zone. L'épée de sang apparut comme surgie du néant. Un feu jaillit de son œil gauche et un éclair illumina son œil droit. Entre ses sourcils, la vie et la mort, le karma, le vrai et le faux se manifestèrent. Tous fusionnèrent dans l'épée de sang qui trônait devant lui!
+« Ce sort est passablement bon, mais ta culture est trop faible! » La main droite de Wang Lin s'élança vers le vide devant lui et une lumière sanglante enveloppa la zone. L'épée de sang apparut comme surgie du néant. Un feu jaillit de son œil gauche et un éclair illumina son œil droit. Entre ses sourcils, la vie et la mort, le karma, le vrai et le faux se manifestèrent. Tous, avec la force de destruction du stade intermédiaire du Vide Spirituel, fusionnèrent dans l'épée de sang qu'il tenait dans sa main droite!
 
 L'épée émit un son monstrueux, comme si elle était transportée par une excitation extrême. C'était comme si elle avait été affamée durant des années et qu'elle pouvait enfin déchaîner sa faim!
 
@@ -94,13 +94,13 @@ En un instant, la tête de la femme fut arrachée à la planète pour atterrir d
 
 Ce n'est que bien après son départ que la planète se fendit complètement et vola en éclats.
 
-Le cauchemar des cultivateurs du Monde Extérieur dans la Mer des Nuages touchait à sa fin. Wang Lin surgissait partout où son Sens Divin avait balayé, et aucun cultivateur du Monde Extérieur ne pouvait échapper à la mort!
+Le cauchemar des cultivateurs du Royaume Extérieur dans la Mer des Nuages touchait à sa fin. Wang Lin surgissait partout où son Sens Divin avait balayé, et aucun cultivateur du Royaume Extérieur ne pouvait échapper à la mort!
 
 Rien ne pouvait empêcher Wang Lin de laisser derrière lui une traînée de sang alors qu'il progressait, emportant les têtes contenant des âmes originelles scellées. Bientôt, le nombre de têtes derrière lui atteignit 50 000!
 
-Après avoir recueilli les têtes de tous les cultivateurs du Monde Extérieur, à l'exception de ceux protégés par la brume, une lueur froide traversa les yeux de Wang Lin. Il regarda au loin. C'était là que se trouvait l'ouverture vers le Monde Extérieur, entourée de brouillard.
+Après avoir recueilli les têtes de tous les cultivateurs du Royaume Extérieur, à l'exception de ceux protégés par la brume, une lueur froide traversa les yeux de Wang Lin. Il regarda au loin. C'était là que se trouvait l'ouverture vers le Royaume Extérieur, entourée de brouillard.
 
-Un continent flottait en ces lieux et avançait rapidement. Des milliers de cultivateurs poussaient ce continent vers la brèche du Monde Extérieur. Lorsque Wang Lin observa la scène, plus de la moitié étaient déjà passés dans le Monde Extérieur.
+Un continent flottait en ces lieux et avançait rapidement. Des milliers de cultivateurs poussaient ce continent vers la brèche du Royaume Extérieur. Lorsque Wang Lin observa la scène, la moitié du continent avait déjà pénétré dans le Royaume Extérieur.
 
 « Vouloir fuir? Trop tard! » Wang Lin agita la main droite et la roue de la vie et de la mort qui trônait sous lui s'élança. Elle déchira le vide et fonça vers le dernier continent dans la brume.
 

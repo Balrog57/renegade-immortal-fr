@@ -8,7 +8,7 @@ slug: sortilege-des-trois-vies
 ---
 Depuis son arrivée à l'autel, Wang Lin n'avait pas eu le temps d'observer les lieux. La majeure partie de son attention était portée sur le bras posé sur l'autel. Bien qu'il fût très prudent et qu'il eût scanné cet autel avec son Sens Divin, il n'y avait rien trouvé d'anormal.
 
-Cependant, après avoir absorbé le sang ainsi que le Sang de l'Âme, et suite aux ondulations causées par le sort Déchirure du Ciel, le voile recouvrant l'autel commençait à se lever. Les yeux de Wang Lin brillèrent.
+Cependant, après avoir absorbé le sang ancestral, surtout le Sang de l'Âme, puis le bras droit de Ye Mo, et suite aux ondulations causées par le sort Déchirure du Ciel, le voile recouvrant l'autel commençait à se lever. Les yeux de Wang Lin brillèrent.
 
 « Pourquoi cet autel apparaît-il ici, et pourquoi le bras droit de Ye Mo est-il là... » Songea Wang Lin tout en examinant attentivement l'autel.
 
@@ -28,7 +28,7 @@ Tandis que l'autel tremblait violemment, de fines fissures apparurent à sa surf
 
 Wang Lin devint prudent. Ses mains formèrent de nouveaux sceaux pour créer encore plus de restrictions. Celles-ci entourèrent l'autel avant de se poser lentement une à une sur sa surface. Cela provoqua des tremblements plus intenses encore, faisant chuter davantage de débris.
 
-Après la durée d'un bâton d'encens, une épaisse couche de débris s'était détachée, et un nuage de poussière semblait entourer l'autel. Celui-ci avait perdu environ un tiers de sa circonférence, et les fissures sur sa surface s'étaient multipliées.
+Après la durée d'un demi-bâton d'encens, une épaisse couche de débris s'était détachée, et un nuage de poussière semblait entourer l'autel. Celui-ci avait perdu environ un tiers de sa circonférence, et les fissures sur sa surface s'étaient multipliées.
 
 « La bizarrerie de cet autel réside probablement dans ce qu'il contient... Mais une force étrange m'empêche de voir l'intérieur avec mon Sens Divin. » Wang Lin fixa l'autel et créa un million de restrictions supplémentaires. Les innombrables barrières s'abattirent sur l'autel, faisant tomber encore plus de couches jusqu'à ce qu'il ne reste que la moitié de sa taille d'origine.
 
@@ -40,7 +40,7 @@ Cependant, juste au moment où les restrictions approchaient, une autre lumière
 
 Tout cela se produisit en un clin d'œil; la lumière rouge avait annihilé toutes les restrictions, comme si elles étaient des ennemies naturelles!
 
-Wang Lin fixa l'autel, désormais réduit de plus de moitié et entouré de cette aura pourpre. Son regard brillait d'une intensité singulière.
+Wang Lin fixa l'autel, désormais réduit de plus de moitié et entouré de cette lueur rouge. Son regard brillait d'une intensité singulière.
 
 « Cette lumière rouge me semble très familière... Cet autel pourrait-il être... » Le cœur de Wang Lin tressaillit. Dès que la lueur rouge se propagea vers lui, il tendit sa main droite pour l'agripper.
 
@@ -74,7 +74,7 @@ Une femme était autrefois entrée dans le Pavillon de Sang, une personne que Wa
 
 Les trois autels flottaient devant lui, et les lueurs rouges qu'ils émettaient commencèrent à s'entremêler. Il était évident qu'ils étaient attirés l'un par l'autre!
 
-Wang Lin avait appris la méthode de culture du Sortilège des Trois Vies auprès de cette femme du Clan de l'Extermination des Sceaux dans la Tombe Antique. Après une courte réflexion, il s'assit.
+Wang Lin avait appris la méthode de culture du Sortilège des Trois Vies dans les souvenirs de cette femme du Clan de l'Extermination des Sceaux, dans la Tombe Antique. Après une courte réflexion, il s'assit.
 
 « Le Sortilège des Trois Vies du Clan de l'Extermination des Sceaux est dangereux à apprendre... Cependant, comparés aux bénéfices, les risques en valent la peine! » La main droite de Wang Lin plongea vers le vide. Un emblème de clan émettant une lueur spectrale apparut dans sa paume.
 
@@ -84,7 +84,7 @@ Fixant l'emblème, Wang Lin le pressa entre ses sourcils. Une sensation de brûl
 
 Cette douleur était insignifiante pour Wang Lin. Il resta calme, mordit le bout de sa langue et cracha une gorgée de sang.
 
-« Par la marque du Clan de l'Extermination des Sceaux, j'active cet autel et invoque l'esprit ancestral scellé du clan! Transforme-toi en lame de sceau pour trancher trois âmes, trois âmes originelles, trois corps! »
+« Par la marque du Clan de l'Extermination des Sceaux, j'active cet autel et invoque l'esprit ancestral du clan, qui perdure entre ciel et terre! Transforme-toi en lame de sceau pour trancher trois âmes, trois âmes originelles, trois corps! »
 
 Dès que la voix de Wang Lin résonna, le sang qu'il avait craché se condensa et commença à onduler frénétiquement devant lui. Puis, les trois autels libérèrent une lumière rouge aveuglante qui fut absorbée par le sang.
 
@@ -102,6 +102,6 @@ Son corps trembla violemment et son visage pâlit. Une douleur inimaginable l'en
 
 Cependant, au moment où la lame tranchait Wang Lin, elle sembla incapable de supporter la puissance de l'âme de celui-ci et s'effondra! Sur les trois lames superposées, il n'en resta que deux!
 
-L'âme de Wang Lin avait fusionné avec le Sang de l'Âme de l'Ancêtre Ancestral pour devenir une Âme Dao Ancienne; comment une simple lame pouvait-elle trancher son âme? Si ce n'était pas parce que l'âme de Wang Lin était formée par son sang essentiel, la lame n'aurait pu le blesser du tout.
+L'âme de Wang Lin avait fusionné avec le Sang de l'Âme de l'Ancêtre Ancestral pour devenir une Âme Dao Ancienne; comment une simple lame pouvait-elle trancher son âme? Si ce n'était pas parce que la lame était formée de son sang essentiel, elle n'aurait pu blesser l'âme de Wang Lin du tout.
 
 Bien qu'elle eût réussi à diviser l'âme de Wang Lin en trois, la lame ne put résister à la force de recul de son âme. Elle se dissipa à jamais, incapable d'être invoquée de nouveau.

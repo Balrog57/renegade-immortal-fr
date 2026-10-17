@@ -28,7 +28,7 @@ Le temps passa lentement. En un clin d'œil, trois heures s'étaient écoulées.
 
 Le regard de Fan Shanmeng devint progressivement plus froid. En fixant Wang Lin, son choc initial s'était dissipé. Elle voyait que ce dernier semblait être entré dans un goulot d'étranglement, puisqu'il n'avait pas bougé depuis trois heures.
 
-« Comment ce Navire Démon de l'Âme peut-il être si facile à aborder? Plus tôt, lorsqu'il a ouvert la restriction protégeant le pont, il avait déjà atteint ses limites. Il est futile de tenter de percer les mystères de ce navire. Wang Lin, ah, Wang Lin, tu es bien trop arrogant! » Fan Shanmeng resta calme, dissimulant tout le mépris qui bouillonnait dans son cœur.
+« Comment ce Navire Démon des Âmes peut-il être si facile à aborder? Plus tôt, lorsqu'il a ouvert la restriction protégeant le pont, il avait déjà atteint ses limites. Il est futile de tenter de percer les mystères de ce navire. Wang Lin, ah, Wang Lin, tu es bien trop arrogant! » Fan Shanmeng resta calme, dissimulant tout le mépris qui bouillonnait dans son cœur.
 
 « Cher Camarade Cultivateur Wang Lin, trois heures se sont écoulées. Si vous vous rendez à l'autel maintenant, il pourrait encore être temps... » Les paroles de Fan Shanmeng résonnèrent avec une pointe d'inquiétude.
 
@@ -54,13 +54,13 @@ Wang Lin agita de nouveau sa main droite et des grondements tonitruants éclatè
 
 En l'espace de quelques respirations seulement, plus aucune restriction ne subsistait dans un rayon de plusieurs milliers de pieds autour de Wang Lin. La tempête finit par se diviser pour que chaque restriction retrouve sa place initiale. Le choc de Fan Shanmeng ne faisait que commencer.
 
-« Je me suis embarrassée devant le Cher Camarade. » Wang Lin esquissa un léger sourire.
+« Veuillez excuser cette piètre démonstration, Cher Camarade. » Wang Lin esquissa un léger sourire.
 
 Fan Shanmeng prit une grande inspiration et força un sourire en hochant la tête. « La compréhension des restrictions du Cher Camarade est en effet extraordinaire. Cependant, il y a des dizaines de millions de restrictions sur ce pont, et vous n'en avez compris qu'un pour cent. C’est rare... mais... »
 
 Wang Lin leva sa main droite, tenant la Restriction d'Annihilation, et ses yeux s'illuminèrent. Cela coupa court aux paroles de Fan Shanmeng. Wang Lin agita la main et la Restriction d'Annihilation se propagea sur tout le pont.
 
-Des grondements tonitruants retentirent tandis que toutes les Restrictions d'Annihilation du pont tremblaient et s'effondraient. Sur les dizaines de millions de sceaux présents, des millions étaient des Restrictions d'Annihilation. Elles s'écroulèrent toutes, faisant vibrer violemment le Navire Démon de l'Âme.
+Des grondements tonitruants retentirent tandis que toutes les Restrictions d'Annihilation du pont tremblaient et s'effondraient. Sur les dizaines de millions de sceaux présents, des millions étaient des Restrictions d'Annihilation. Elles s'écroulèrent toutes, faisant vibrer violemment le Navire Démon des Âmes.
 
 Simultanément, la Restriction de Vie et de Mort et la Restriction du Temps apparurent dans la main droite de Wang Lin. Il balaya l'ensemble du pont et, en moins de quinze minutes, d'innombrables restrictions s'effondrèrent, remplissant l'air de gaz noir.
 
@@ -76,23 +76,23 @@ Les yeux de Wang Lin brillaient d'un éclat intense. Il leva sa main droite et q
 
 Briser les protections du pont n'était pas difficile pour lui, mais son but était d'apprendre la Restriction de l'Âme Ancienne. Wang Lin avait passé ces cinq heures à étudier une seule restriction, et comprendre celle-ci revenait à assimiler la Restriction de l'Âme Ancienne elle-même!
 
-Après tout, Wang Lin n'ignorait rien de cette technique, puisqu'il avait étudié celle obtenue dans les Terres Déchues. Cependant, bien que celle-ci parût complète, elle présentait des défauts qui entravaient son illumination.
+Après tout, Wang Lin n'ignorait pas tout de cette technique, puisqu'il avait étudié celle obtenue dans les Terres Déchues. Cependant, bien que celle-ci parût complète, elle présentait des défauts qui entravaient son illumination.
 
 Mais la Restriction de l'Âme Ancienne présente sur ce pont était différente: elle était parfaite!
 
-L'actuel Wang Lin n'était plus le jeune homme de la montagne des restrictions qui ne pratiquait la discipline que depuis quelques années. Il était désormais un cultivateur du stade intermédiaire du Vide Spirituel, et avec sa compréhension des sceaux, cinq heures suffisaient pour tout percer!
+L'actuel Wang Lin n'était plus le jeune homme de la montagne des restrictions qui ne pratiquait la discipline que depuis quelques années. Il était désormais un cultivateur du stade intermédiaire du Vide Spirituel, détenant six grandes essences, et avec sa compréhension des sceaux, cinq heures suffisaient pour tout percer!
 
 Wang Lin se leva et agita la main. Dans un fracas de tonnerre, toutes les restrictions restantes sur le pont s'effondrèrent, incluant des Restrictions de l'Âme Ancienne et d'autres sceaux mystérieux qu'il n'avait jamais vus.
 
 Il n'avait pas le temps d'étudier ces nouveaux types de restrictions; il se contenta de les observer brièvement pour les mémoriser avant de les détruire par la force.
 
-Cette méthode pouvait affaiblir la puissance globale des protections du pont, mais elle permettait à Wang Lin de forcer l'accès au Navire Démon de l'Âme en un temps record!
+Cette méthode pouvait affaiblir la puissance globale des protections du pont, mais elle permettait à Wang Lin de forcer l'accès au Navire Démon des Âmes en un temps record!
 
 Après le fracas des explosions, Wang Lin prit le contrôle de toutes les restrictions du pont sous le regard horrifié de Fan Shanmeng. Il était désormais le maître du pont. Ses yeux brillaient d'une lueur étrange lorsqu'il fixa la femme.
 
 « Ce navire possède neuf couches. Ce pont est la première, et il y en a huit autres en dessous! Cher Camarade, vous aviez dit que si je brisais les restrictions de ce navire, vous me le donneriez? »
 
-Le visage de Fan Shanmeng devint livide. Dès que la première couche du Navire Démon de l'Âme fut brisée, elle réalisa qu'elle avait perdu son emprise sur le vaisseau. Désormais, il semblait que ce trésor ait deux maîtres!
+Le visage de Fan Shanmeng devint livide. Dès que la première couche du Navire Démon des Âmes fut brisée, elle réalisa qu'elle avait perdu son emprise sur le vaisseau. Désormais, il semblait que ce trésor ait deux maîtres!
 
 Elle n'aurait jamais imaginé qu'un tel bouleversement puisse survenir en seulement cinq heures.
 
@@ -100,10 +100,10 @@ Voyant qu'elle ne répondait pas, Wang Lin secoua la tête avec un sourire. Son 
 
 Fixant l'endroit où Wang Lin s'était volatilisé, une pointe de froideur s'installa dans les yeux de Fan Shanmeng.
 
-« Et alors, s'il a franchi une couche? Les restrictions deviennent plus ardues à mesure que l'on descend en profondeur. Je ne crois pas qu'un simple cultivateur comme lui puisse contrôler ce Navire Démon de l'Âme! »
+« Et alors, s'il a franchi une couche? Les restrictions deviennent plus ardues à mesure que l'on descend en profondeur. Je ne crois pas qu'un simple cultivateur comme lui puisse contrôler ce Navire Démon des Âmes! »
 
 Le temps s'écoulait. Une heure, deux heures, trois heures... En un clin d'œil, sept heures s'étaient écoulées. Une journée entière semblait être passée en un instant. À l'extérieur, la lumière aux sept couleurs devenait plus éblouissante et le navire tremblait de plus en plus violemment, la majeure partie de la barrière extérieure ayant été brisée par le Daoïste aux Sept Couleurs.
 
-Alors que la septième heure touchait à sa fin, une aura phénoménale émana de la deuxième couche. Le Navire Démon de l'Âme trembla avec une violence inouïe.
+Alors que la septième heure touchait à sa fin, une aura phénoménale émana de la deuxième couche. Le Navire Démon des Âmes trembla avec une violence inouïe.
 
-« Impossible! » s'exclama Fan Shanmeng en se levant brusquement. Le choc dans ses yeux était indélébile. Une partie de son contrôle sur le navire venait de lui être arrachée. Auparavant, incapable d'y amener son corps physique, elle n'utilisait que 30 % de la puissance du vaisseau; désormais, avec l'emprise croissante de Wang Lin, elle ne possédait plus qu'un contrôle à peine supérieur au sien.
+« Impossible! » s'exclama Fan Shanmeng en se levant brusquement. Le choc dans ses yeux était indélébile. Une partie de son contrôle sur le navire venait de lui être arrachée. Auparavant, incapable d'y amener son corps physique, elle ne déployait même pas 30 % de la puissance du vaisseau; désormais, avec l'emprise croissante de Wang Lin, elle ne possédait plus qu'un contrôle à peine supérieur au sien.

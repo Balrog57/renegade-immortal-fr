@@ -20,15 +20,15 @@ De loin, la terre semblait être recouverte d'un océan de moustiques!
 
 Wang Lin avait observé le sang dans la rivière auparavant; il pouvait favoriser la croissance des bêtes féroces. Si les cent mille moustiques absorbaient tout ce sang, leur puissance de combat augmenterait considérablement!
 
-Voyant les bêtes moustiques s'étendre et devenir plus féroces après avoir bu le sang, Wang Lin ne leur prêta plus attention. Il se retourna pour contempler les restes de l'Ancien Dieu, de l'Ancien Démon et de l'Ancien Démon!
+Voyant les bêtes moustiques s'étendre et devenir plus féroces après avoir bu le sang, Wang Lin ne leur prêta plus attention. Il se retourna pour contempler les restes de l'Ancien Dieu, de l'Ancien Démon et de l'Ancien Diable!
 
 Les trois clans de l'Ordre Antique. Ces trois-là étaient totalement morts, ne laissant derrière eux que leurs corps.
 
-La main droite de Wang Lin toucha le corps de l'Ancien Démon. Tandis que son énergie originelle y circulait, il murmura pour lui-même: « Si je pouvais trouver le corps d'un Ancien Démon qui n'est pas encore totalement éteint... peut-être mon avatar d'Ancien Démon serait-il enfin complet! »
+La main droite de Wang Lin toucha le corps de l'Ancien Diable. Tandis que son énergie originelle y circulait, il murmura pour lui-même: « Si je pouvais trouver le corps d'un Ancien Diable qui n'est pas encore totalement éteint... peut-être mon avatar d'Ancien Diable serait-il enfin complet! »
 
 Une demi-heure plus tard, les rivières étaient complètement asséchées, sans qu'une seule goutte de sang ne subsistât. Wang Lin semblait avoir tout pris. Même la plateforme qui reposait sur le dos de l'Ancien Dieu avait été récupérée et rangée dans son espace de stockage.
 
-Après être revenu à la plateforme de rang 3 qu'il avait dérobée à l'Estimé Ling Dong, Wang Lin agita la main. Les cent mille bêtes moustiques, ayant toutes grandi d'un cran, l'encerclèrent, offrant un spectacle saisissant.
+Après être revenu à la plateforme de rang 3 qu'il avait dérobée à l'estimé Ling Dong, Wang Lin agita la main. Les cent mille bêtes moustiques, dont le corps avait plus que doublé de volume, l'encerclèrent, offrant un spectacle saisissant.
 
 Son regard perça la nuée de moustiques pour se poser sur les trois membres de l'Ordre Antique. Ils étaient restés figés dans la même posture durant des années sans compter.
 
@@ -80,7 +80,7 @@ La plateforme privée de ses runes trembla puis rétrécit jusqu'à s'effondrer 
 
 Wang Lin possédait désormais plus de 900 runes sur sa plateforme. Le violet était si sombre qu'il paraissait presque noir; elle commençait déjà à montrer des signes d'évolution vers le rang 4.
 
-« Toujours au rang 3. Je me demande ce qu'il manque pour atteindre le rang 4... Ce ne doit plus être loin... » Wang Lin cessa de prêter attention à ces cultivateurs et s'envola rapidement!
+« 600 runes font le rang 3; je ne sais pas combien il en faut pour le rang 4... Ce ne doit plus être loin... » Wang Lin cessa de prêter attention à ces cultivateurs et s'envola rapidement!
 
 Les moustiques qui encerclaient les survivants passèrent devant eux pour regagner le côté de Wang Lin, disparaissant peu à peu dans la distance.
 
@@ -128,4 +128,4 @@ En dessous d'eux, près de cent cultivateurs s'entretuaient. La jeune femme du C
 
 « Vieux Poison de la Grande Désolation, tu n'es venu qu'avec une parcelle de ton âme, tandis que je suis venue avec mon avatar; tu ne fais pas le poids. Une fois que j'aurai tué cette partie de ton âme, oseras-tu encore te rendre dans la Mer du Son? Ridicule, tout cela est ridicule! »
 
-« Ton caractère est exécrable, et à part ce vieil oiseau incapable de quitter la Terre Déchue, personne n'est ton ami. Il n'y a personne ici pour t'aider. Pourquoi t'obstines-tu à vouloir voler l'esprit Dao de ce maître? »
+« Ton caractère est étrange, et à part ce vieil oiseau incapable de quitter la Terre Déchue, tu n'as aucun autre ami dans le Système des Étoiles Anciennes. Dans cette tombe, personne n'est là pour t'aider non plus. Avec quoi viendrais-tu me disputer l'esprit Dao? »
