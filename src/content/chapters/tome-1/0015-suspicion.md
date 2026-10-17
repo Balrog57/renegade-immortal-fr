@@ -22,7 +22,7 @@ Wang Lin était stupéfait; il connaissait très bien ce visage. C'était exacte
 
 « Frère Liu, mes parents vont bien. Ne vous en faites pas », répondit prudemment Wang Lin, incertain des intentions de l'homme.
 
-Le disciple Liu reprit chaleureusement, en bombant le torse: « Mon frère, à partir de maintenant, tu n'as plus besoin de te lever si tôt. Ton grand frère plaisantait avec toi en te disant de remplir dix cuves par jour, mais tu m'as pris au sérieux. Désormais, une seule cuve par jour suffira. Même si tu ne finis pas à temps, tu pourras aller manger dès que le repas sera servi. Et si quelqu'un t'importune, n'hésite pas à citer le nom de ton grand frère, ça marche! »
+Le disciple Liu reprit chaleureusement, en bombant le torse: « Mon frère, à partir de maintenant, tu n'as plus besoin de te lever si tôt. Ton grand frère plaisantait avec toi en te disant de remplir dix jarres par jour, mais tu m'as pris au sérieux. Désormais, une seule jarre par jour suffira. Même si tu ne finis pas à temps, tu pourras aller manger dès que le repas sera servi. Et si quelqu'un t'importune, n'hésite pas à citer le nom de ton grand frère, ça marche! »
 
 Wang Lin eut un regard étrange. Il demanda avec hésitation: « Grand frère, y a-t-il une affaire que tu souhaiterais me voir traiter? »
 

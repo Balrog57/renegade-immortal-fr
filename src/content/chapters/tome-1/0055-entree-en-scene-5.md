@@ -18,7 +18,7 @@ Quant aux disciples de la Secte Heng Yue, ils avaient totalement oublié le term
 
 « Où est passée toute votre audace? Envoyez quelqu'un rapidement pour que notre frère aîné Wang lui donne une leçon, et nous verrons si vous osez encore faire les fiers! »
 
-« Liu Feng, tu te montrais si fort tout à l'heure. Sors de là! Osas-tu affronter mon frère aîné? »
+« Liu Feng, tu te montrais si fort tout à l'heure. Sors de là! Oses-tu affronter mon frère aîné? »
 
 « Il ne reste que des moins que rien dans la Secte Xuan Dao. Aucun d'eux n'ose sortir. Le frère Wang est invincible! »
 

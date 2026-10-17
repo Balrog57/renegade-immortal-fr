@@ -14,7 +14,7 @@ L'homme d'âge moyen tenta rapidement d'apaiser les tensions: « Il n'est pas n�
 
 Le vieillard en robe répliqua: « Et si les autres jeunes suivent son exemple, que ferons-nous? »
 
-L'homme d'âge moyen eut un petit rire: « C'est une tâche facile. Nous en tirerons une leçon. À l'avenir, lorsque nous refuserons des candidats, nous leur inculquerons, par une technique de Formation de l'Âme, l'idée de ne pas se suicider, et le problème sera résolu. Quant à ce Wang Lin, puisque l'affaire est déjà si importante, autant l'accepter comme disciple. Un disciple de plus ne changera rien. »
+L'homme d'âge moyen eut un petit rire: « C'est une tâche facile. Nous en tirerons une leçon. À l'avenir, lorsque nous refuserons des candidats, nous leur inculquerons, par une technique de Formation de l'Âme, l'idée de ne pas se suicider, et le problème sera résolu. Quant à ce Wang Lin, puisque l'affaire est déjà si importante, autant l'accepter. Après tout, un simple disciple honoraire de plus ne changera rien. »
 
 Hormis l'Ancien Li, deux autres anciens regardèrent l'homme d'âge moyen d'un regard lourd de sens, sans dire un mot.
 

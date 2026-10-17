@@ -34,7 +34,7 @@ La cinquième tante de Tie Zhu ajouta en ricanant: « N'est-ce pas? Quand je sui
 
 Une autre parente lança sans aucune pitié: « J'avais déjà compris que ce petit Tie Zhu n'avait aucun talent. Regardez ses parents; comment pourraient-ils engendrer quoi que ce soit de bon? Dans la famille Wang, seuls les enfants du frère aîné et du troisième frère valent quelque chose. Quant à Tie Zhu... bah, rien que son nom sonne comme celui d'un idiot. »
 
-« J'étais vraiment aveugle à l'époque, j'étais sur le point de pousser ma propre fille dans un gouffre! Heureusement que nous avons découvert avant qu'il ne soit choisi par les immortels. Ma fille m'aurait haï à jamais si je l'avais mariée à lui. Mère de Tie Zhu, oublions cette affaire. Puisque votre Tie Zhu ne deviendra pas un immortel, qui lui donnerait sa fille en mariage? Ce serait un crapaud qui veut manger de la chair de cygne, non? »
+« J'étais vraiment aveugle tout à l'heure, j'étais sur le point de pousser ma propre fille dans un gouffre de feu! Heureusement que Tie Zhu n'a pas été choisi par les immortels, sinon ma fille m'en voudrait toute sa vie. Mère de Tie Zhu, oublions cette affaire. Puisque votre Tie Zhu ne deviendra pas un immortel, qui lui donnerait sa fille en mariage? Ce serait un crapaud qui veut manger de la chair de cygne, non? »
 
 En quelques instants, presque tous les proches s'étaient transformés en snobs, lançant une véritable pluie d'insultes sur la famille de Tie Zhu.
 

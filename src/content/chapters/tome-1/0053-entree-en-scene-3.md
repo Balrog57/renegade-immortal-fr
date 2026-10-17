@@ -14,7 +14,7 @@ La force d'attraction de Wang Lin fut déployée à nouveau. Le python émit un 
 
 Dès qu'il eut touché le sol, il chargea de nouveau sur l'estrade. Ses cheveux étaient complètement en désordre. Ignorant le sang au coin de sa bouche, il déchira ses vêtements et retira le talisman jaune collé sur sa poitrine. Sa culture augmenta soudainement et ses cheveux flottèrent dans les airs d'une manière étrange.
 
-« Wang Lin!!! Ce n'est pas juste! Je n'utilisais pas ma véritable force! Battons-nous— »
+« Wang Lin!!! Ça ne compte pas! Je n'utilisais pas ma véritable force! Battons-nous— »
 
 Wang Lin était désormais confiant en sa propre puissance. Sans attendre Zhou Peng, il utilisa de nouveau sa technique d'attraction pour le balayer.
 
@@ -40,7 +40,7 @@ L'esprit de Wang Zhuo finit par s'éclaircir. Il n'était plus sur un nuage, mai
 
 Les yeux de la femme nommée Zhou brillèrent. Elle était désormais convaincue que Wang Lin cachait sa véritable force. Elle se souvint du moment où elle pensait qu'il n'était encore qu'au troisième niveau et qu'elle lui avait tenu des propos si chargés d'émotion. Son visage devint rouge. Elle pensa: « Ce Wang Lin est vraiment... il est déjà si puissant, mais il m'a menti en prétendant n'être qu'au troisième niveau. Plus tard, je devrai obtenir des explications de sa part! Humph! »
 
-La femme nommée Xu cligna des yeux à plusieurs reprises en fixant Wang Lin, puis regarda Wang Zhuo et pensa: « Comment peut-il se comparer au frère Wang Zhuo? C'était le moment pour le frère Wang Zhuo de briller, mais ce Wang Lin est trop fort! Il a réussi à expulser le disciple principal d'une autre secte de l'estrade d'une seule claque, et ce non pas une, mais trois fois. Il a vraiment fait décharger notre frustration. »
+La femme nommée Xu cligna des yeux à plusieurs reprises en fixant Wang Lin, puis regarda Wang Zhuo et pensa: « Comment peut-il se comparer au frère Wang Zhuo? C'était le moment pour le frère Wang Zhuo de briller, mais ce Wang Lin est trop fort! Il a réussi à expulser le disciple principal d'une autre secte de l'estrade d'une seule claque, et ce non pas une, mais trois fois. Il a vraiment évacué toute notre frustration. »
 
 L'un des disciples intérieurs rit secrètement en observant les disciples alentour: « Ce Wang Lin s'est avéré feindre la faiblesse pour mieux surprendre ses adversaires, tel un porc déguisé pour dévorer un tigre. Trop rusé. Heureusement, je ne l'ai jamais raillé, sinon cela aurait été déplorable. Hehe, je vais pouvoir assister au spectacle de tous ceux qui l'ont tant critiqué. »
 

@@ -38,7 +38,7 @@ Le soleil se leva le troisième jour. Au loin, Wang Lin distinguait à peine la 
 
 Wang Lin laissa échapper un petit rire amer. Son corps bascula sur les marches et sa conscience s'éteignit complètement.
 
-L'homme d'âge moyen vêtu de noir, vu trois jours plus tôt, se tenait au sommet de la montagne. Il contemplait Wang Lin à moins de cinquante mètres, le regard impitoyable.
+L'homme d'âge moyen vêtu de noir, vu trois jours plus tôt, se tenait au sommet de la montagne. Il contemplait Wang Lin à moins de trente-trois mètres, le regard impitoyable.
 
 Quelques disciples de la Secte Heng Yue descendirent rapidement de la cime et, chemin faisant, emmenèrent tous les jeunes qui persévéraient encore jusqu'en haut de la montagne, où on leur fit tous avaler des médicaments.
 

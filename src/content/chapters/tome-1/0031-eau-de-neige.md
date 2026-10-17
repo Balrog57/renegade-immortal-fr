@@ -46,7 +46,7 @@ Cependant, il ne possédait rien de valeur, et tous ses talismanes seraient cons
 
 Grâce à la pilule, son identité resterait secrète.
 
-Une fois sa décision prise, Wang Lin cessa d'y penser. Comme il ne pouvait pas encore accéder à l'espace de rêve, il commença à pratiquer la Technique d'Attraction sur les gros rochers de la cour des tâches.
+Une fois sa décision prise, Wang Lin cessa d'y penser. Comme il ne pouvait pas encore accéder à l'espace de rêve, il commença à pratiquer la Technique d'Attraction sur les gros rochers de la maison des corvées.
 
 Il avait déjà pratiqué cette technique plus de dix mille fois dans l'espace de rêve et était devenu de plus en plus habile. S'il l'utilisait sur une gourde, son taux de réussite était de dix sur dix. Désormais, dans sa vie quotidienne, il pouvait saisir de petits objets d'un simple mouvement de la main.
 
@@ -72,4 +72,4 @@ Il comprenait désormais parfaitement le fonctionnement de la perle: la laisser 
 
 Il prit une gorgée de l'eau, ferma les yeux et examina attentivement la modification de l'énergie spirituelle en son sein. Un instant plus tard, il ouvrit les yeux et murmura: « L'effet est bien supérieur à celui de l'eau de source, bien qu'encore inférieur à la rosée. C'est utilisable! »
 
-Il sortit immédiatement une multitude de gourdes, toutes celles qu'il avait collectées dans les montagnes. Après avoir travaillé durant toute la nuit, la neige de sa cour avait disparu, ayant servi à remplir une partie de ses gourdes d'eau spirituelle.
+Il sortit immédiatement une multitude de gourdes, toutes celles qu'il avait collectées dans les montagnes au cours de ce dernier semestre. Après avoir travaillé durant toute la nuit, la neige de sa cour avait disparu, ayant servi à remplir une partie de ses gourdes d'eau spirituelle.

@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 77 - Old Man Jimo
 slug: le-vieux-jimo
 ---
-Wang Lin fronça les sourcils. Juste au moment où il allait récupérer le fouet, une petite épée rouge jaillit de l'épée fantomatique. L'épée rouge fendit l'air à une vitesse plusieurs fois supérieure à celle de son corps principal.
+Wang Lin fronça les sourcils. Juste au moment où il allait récupérer le fouet, une petite épée rouge jaillit de l'épée fantomatique. L'épée rouge fendit l'air à une vitesse supérieure à celle de son corps principal.
 
 Le fouet se divisa rapidement en deux, se transformant à nouveau en morceaux de bois qui chutèrent du ciel.
 
@@ -14,7 +14,7 @@ L'homme d'âge moyen afficha un regard meurtrier. D'un retournement de la main d
 
 Wang Lin fronça les sourcils. Il saisit Zhang Hu et le projeta en arrière, puis recula précipitamment.
 
-L'épée volante fonçait sur lui à toute allure. Une illusion apparut à la pointe de l'arme: tel un éclair, l'épée surgit soudainement devant Wang Lin.
+L'épée volante fonçait sur lui à toute allure. Une illusion apparut à la pointe de l'arme: tel un éclair, l'illusion de l'épée surgit soudainement devant Wang Lin.
 
 L'expression de Wang Lin changea. Il agita la main et un morceau de jade apparut dans sa paume. Le jade brilla et un écran de lumière bleue se manifesta pour bloquer l'épée. La lame frappa violemment et l'écran de lumière commença à se fissurer; il ne tiendrait pas longtemps.
 
@@ -38,7 +38,7 @@ L'expression de Wang Lin resta de marbre. Il fixa froidement l'homme d'âge moye
 
 Les pupilles de l'homme d'âge moyen se rétractèrent. Il hésita un instant, puis serra les dents et sortit deux orbes dorés qu'il projeta vers l'épée volante.
 
-L'épée, désormais noire, était parsemée de taches dorées étincelantes. Elle effectua une rotation avant de foncer sur Wang Lin, tandis que plusieurs tourbillons noirs apparaissaient à sa suite.
+L'épée, désormais noire, était parsemée de taches dorées étincelantes. Elle effectua une rotation avant de foncer sur Wang Lin, tandis que plusieurs tourbillons noirs apparaissaient autour d'elle.
 
 La froideur dans le regard de Wang Lin s'intensifia. Il ne prêta même pas attention à l'épée, se contentant de pointer le jade antique devant lui. Les symboles dorés s'illuminèrent soudainement et jaillirent du jade pour s'aligner: ils étaient au nombre de neuf.
 

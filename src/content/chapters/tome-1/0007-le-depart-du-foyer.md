@@ -6,7 +6,7 @@ bookTitle: The Mediocre Youth
 en: The Letter Left Behind
 slug: le-depart-du-foyer
 ---
-« C'est exact! Quatrième frère, tu as cédé ta place au deuxième frère, et nous trouvons que cela n'en valait pas la peine pour toi. Ce que Wang Zhuo a dit est vrai, ton Hu Zi vaut sûrement mieux que Tie Zhu. Il se peut qu'il ait réellement été choisi par les immortels. » Le cinquième frère de Tie Zhu ajouta cela sur le côté.
+« C'est exact! Quatrième frère, tu as cédé ta place au deuxième frère, et nous trouvons que cela n'en valait pas la peine pour toi. Ce que Wang Zhuo a dit est vrai, ton Hu Zi vaut sûrement mieux que Tie Zhu. Il se peut qu'il ait réellement été choisi par les immortels. » Le cinquième oncle de Tie Zhu ajouta cela sur le côté.
 
 Wang Zhuo, arborant un sourire suffisant, se gaussait: « Leur famille s'est attirée tout cela elle-même. Mon père et moi les avions pourtant prévenus. Toute cette famille a un caractère d'âne, ils sont têtus. Maintenant, ils se heurtent à un mur: à qui la faute? »
 
@@ -68,4 +68,4 @@ La paroi de la falaise était couverte d'une multitude de branches. Le corps de 
 
 Wang Lin perdit tout contrôle de son corps alors que cette force l'aspirait. Avant même de comprendre ce qui lui arrivait, il se retrouva à l'intérieur d'une grotte creusée dans la paroi de la falaise. Plaqué contre le mur, étourdi, il eut l'impression d'être pris dans un vent furieux qui l'aspirait sans relâche vers l'arrière; après un long moment, cette force disparut enfin et il tomba du mur.
 
-Il lui fallut beaucoup de temps pour reprendre ses esprits. En luttant pour se redresser, Tie Zhu remarqua que ses vêtements étaient en lambeaux et que son corps était couvert d'écorchures dues aux branches. Une douleur fulgurante irradia de son bras droit enflé. De grosses gouttes de sueur coulaient sur lui, collant à sa peau. Wang Lin toucha son bras, incapable de dire si les os étaient brisés. Cette blessure avait certainement été causée par l'impact contre la paroi.
+Il lui fallut beaucoup de temps pour reprendre ses esprits. En luttant pour se redresser, Tie Zhu remarqua que ses vêtements étaient en lambeaux et que son corps était couvert d'écorchures dues aux branches. Une douleur fulgurante irradia de son bras droit enflé. De grosses gouttes de sueur coulaient sur lui. Wang Lin toucha son bras, incapable de dire si les os étaient brisés. Cette blessure avait certainement été causée par l'impact contre la paroi.

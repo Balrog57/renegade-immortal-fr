@@ -82,7 +82,7 @@ Aussitôt, une petite silhouette dégageant une lueur violette jaillit du sommet
 
 Le motif redescendit lentement du ciel pour s'imprimer sur le front de la petite silhouette.
 
-Ce dernier esquissa un sourire sinistre et déclara: « Quiconque tue un membre de ma famille Teng sera maudit par moi, Teng Huayuan! »
+La petite silhouette esquissa un sourire sinistre et déclara: « Quiconque tue un membre de ma famille Teng sera maudit par moi, Teng Huayuan! »
 
 À l'intérieur de la cavité de l'arbre, quatre sphères flottaient devant Wang Lin. Sans un mot, il lança quelques sceaux vers les restes de Teng Li, et de petits points de lumière cristallins s'en échappèrent un à un.
 

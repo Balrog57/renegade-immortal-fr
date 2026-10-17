@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 94 - Corpse Yin Secte (3)
 slug: secte-des-cadavres-3
 ---
-Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte des Cadavres pour demander à mon frère de discipline, Ye Zizai, de venir me sauver. »
+Wu Yu afficha une expression suppliante et dit rapidement: « Je ne peux pas quitter cet endroit, mais j'aimerais vous demander d'aller à la Secte des Cadavres pour demander à mon frère aîné de discipline, Ye Zizai, de venir me sauver. »
 
 L'expression de Wang Lin demeura imperturbable. « Avez-vous un moyen pour que je puisse partir sans être remarqué par la marionnette cadavérique? » demanda-t-il.
 

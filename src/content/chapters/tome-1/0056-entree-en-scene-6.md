@@ -10,7 +10,7 @@ Malheureusement pour lui, ses prières ne furent pas exaucées. Les yeux de Wang
 
 Yang Yi sentit l'espace se resserrer autour de lui, comme si l'air était aspiré et qu'une force invisible le pressait de tous côtés, l'immobilisant totalement. Il ne put que regarder la bombe puante fondre sur lui.
 
-Dans un fracas, Yang Yi fut frappé par la bombe. Son visage devint livide et une odeur infecte émana de son corps.
+Dans un fracas, Yang Yi fut frappé par la bombe. Son visage entier devint noir et une odeur infecte émana de son corps.
 
 Il n'avait cure de son teint ou de l'odeur qui le parasitait; son visage était déformé par l'horreur. Sentant la force de compression faiblir légèrement, il mobilisa toute la puissance de son corps pour se libérer. Son cœur battait à tout rompre tandis qu'il pensait: « Cette Main de Capture du Dragon est trop puissante. Je vais perdre quoi qu'il arrive. Très bien, allons-y à fond! »
 

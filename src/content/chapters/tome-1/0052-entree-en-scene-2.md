@@ -56,7 +56,7 @@ Tous les autres disciples partageaient les mêmes pensées que Liu Feng, croyant
 
 Le visage délicat de Liu Mei devint également instable. Ses pensées divergeaient de celles de la foule. Dès le premier jour, Wang Lin avait déjà attiré son attention, et à présent, elle l'observait avec un intérêt profond.
 
-Parmi tous les témoins choqués, Li Shan était sans doute le troisième plus terrifié. Son corps se dérobait et il s'effondra au sol en gémissant: « C'est fini, tout est fini! Je lui ai vendu la bombe puante et il l'a utilisée contre le senior frère martial! Le senior frère a perdu si vite qu'il doit déjà réfléchir à comment me punir! »
+Parmi tous les témoins choqués, Li Shan était sans doute la troisième personne la plus choquée. Son corps se dérobait et il s'effondra au sol en gémissant: « C'est fini, tout est fini! Je lui ai vendu la bombe puante et il l'a utilisée contre le senior frère martial! Le senior frère a perdu si vite qu'il doit déjà réfléchir à comment me punir! »
 
 « Li Shan, Li Shan, pourquoi n'as-tu pas compris que Wang Lin faisait semblant d'être un porc pour mieux dévorer le tigre? Wang Lin, tu es trop méprisable, trop honteux, trop sinistre! Cette fois, tu m'as vraiment mis dans une position inextricable... comment pourrai-je rester à la Secte Xuan Dao? Le senior frère ne me pardonnera jamais! »
 

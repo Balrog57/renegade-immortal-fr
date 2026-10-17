@@ -24,7 +24,7 @@ Bien que Wang Lin eût le sentiment d'avoir atteint ses limites, le troisième n
 
 Cela laissa Wang Lin très surpris, mais peu importaient ses réflexions, il ne parvenait pas à trouver d'explication.
 
-Aujourd'hui, toute l'eau de fonte avait été épuisée. Il ne lui restait plus qu'une seule gourde d'énergie spirituelle liquide. Cette gourde l'accompagnait depuis longtemps; c'était l'une des trois que Wang Lin avait enterrées dans les montagnes. Il en avait utilisé deux pour faire apparaître le dixième nuage sur la perle et, se remémorant qu'il avait failli mourir lors de sa dernière gorgée, il s'en montrait très prudent et la gardait précieusement dans son sac de rangement.
+Aujourd'hui, toute l'eau de fonte avait été épuisée. Il ne lui restait plus qu'une seule gourde d'énergie spirituelle liquide. Cette gourde l'accompagnait depuis longtemps; c'était l'une des trois que Wang Lin avait enterrées dans les montagnes. Il en avait utilisé deux pour faire apparaître le dixième nuage sur la perle et, se remémorant qu'une seule gorgée avait failli le tuer, il s'en montrait très prudent et la gardait précieusement dans son sac de rangement.
 
 Après une légère hésitation, Wang Lin ne sortit pas cette gourde. D'après ses calculs, la quantité d'énergie spirituelle contenue dans ce récipient avait déjà atteint un stade terrifiant. Ayant déjà été averti par le passé, il valait mieux se montrer prudent. Il pourrait toujours l'utiliser une fois qu'il aurait atteint un niveau de Condensation de Qi supérieur.
 

@@ -42,11 +42,11 @@ Il s'agissait de Liu San, le chef du service d'escorte Puissante à Tian Shui. B
 
 Mais cette fois, la marchandise précieuse à transporter était trop délicate à manier et la distance beaucoup trop longue. C'est pourquoi leur employeur l'avait sollicité.
 
-Liu San était un homme franc et généreux qui aimait se faire des amis de toutes sortes; pour les convois qu'il escortait, les hommes de la forêt verte lui accordaient presque toujours quelque égard. Il était actuellement à cheval, les yeux mi-clos, fort satisfait en son for intérieur. Le chargement avait déjà été livré et, bien qu'ils eussent croisé en chemin quelques petits brigands aveugles, tout s'était soldé par plus de peur que de mal. La situation la plus périlleuse avait été la rencontre avec des amis des Dix Ligues de Lülin: ils avaient déployé un grand dispositif, mais en le voyant, ils avaient dû renoncer, ce qui le remplissait de fierté.
+Liu San était un homme franc et généreux qui aimait se faire des amis de toutes sortes; pour les convois qu'il escortait, les hommes de la forêt verte lui accordaient presque toujours quelque égard. Il était actuellement à cheval, les yeux mi-clos, fort satisfait en son for intérieur. Le chargement avait déjà été livré et, bien qu'ils eussent croisé en chemin quelques petits brigands aveugles, tout s'était soldé par plus de peur que de mal. La situation la plus périlleuse avait été la rencontre avec des amis des Dix Ligues de la Forêt Verte: ils avaient déployé un grand dispositif, mais en le voyant, ils avaient dû renoncer, ce qui le remplissait de fierté.
 
 Il ferma presque les yeux et se détendit un peu. La cité de Tian Shui était toute proche; cette mission confiée par leur employeur pouvait donc être considérée comme accomplie.
 
-Sur un cheval à la droite de Liu San siégeait un jeune homme vigoureux. Il rit et demanda: « Chef, maintenant que nous avons livré ce chargement en toute sécurité, combien de dixièmes pensez-vous que notre employeur nous accordera une fois rentrés? »
+Sur un cheval à côté de Liu San était assis un jeune homme vigoureux. Il rit et demanda: « Chef, maintenant que nous avons livré ce chargement en toute sécurité, combien de dixièmes pensez-vous que notre employeur nous accordera une fois rentrés? »
 
 Un homme au visage sombre, qui se tenait près du jeune homme, s'approcha aussi en riant: « Chef, ce chargement est si précieux qu'il devrait bien nous revenir au moins un dixième, non? »
 

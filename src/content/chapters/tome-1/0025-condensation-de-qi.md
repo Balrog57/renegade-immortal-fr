@@ -18,7 +18,7 @@ Il répétait la technique de respiration « une longue, trois courtes » tandis
 
 Surtout lorsqu'il pensait que Wang Zhuo avait réussi à atteindre le premier niveau de la Condensation de Qi en seulement trois mois. Un sentiment d'insatisfaction ne cessait de poindre dans son cœur. Il ne sortait presque jamais de chez lui, totalement dévoué à sa culture.
 
-Wang Lin était la risée de la Secte Heng Yue. Bien que beaucoup se moquaient de lui, rares étaient ceux qui lui prêtaient véritablement attention.
+Wang Lin était la risée de la Secte Heng Yue. Bien que beaucoup soient jaloux de lui, rares étaient ceux qui lui prêtaient véritablement attention.
 
 Sun Dazhu avait presque oublié l'existence de Wang Lin. Chaque fois qu'une pensée pour ce dernier traversait son esprit, il en devenait furieux et s'efforçait de la chasser aussitôt.
 
@@ -34,7 +34,7 @@ Si l'eau de source de Wang Lin était utilisée pour la fabrication de pilules i
 
 Grâce à ce soutien en énergie spirituelle presque inépuisable, la quantité d'énergie à l'intérieur du corps de Wang Lin augmentait sans cesse.
 
-Aujourd'hui, alors qu'il cultivait dans l'espace de rêve, il pouvait clairement sentir l'énergie spirituelle circuler en lui. À chaque expiration, deux longs dragons blancs jaillissaient de ses narines.
+Aujourd'hui, alors qu'il cultivait dans l'espace de rêve, il pouvait clairement sentir l'énergie spirituelle circuler en lui. À chaque expiration, deux longs dragons blancs jaillissaient de sa bouche et de son nez.
 
 Une sensation d'insectes rampant sous sa peau surgit. C'était comme si une eau lavait chaque parcelle de son être. Un liquide noir à l'odeur fétide s'exsudait de ses pores.
 

@@ -68,4 +68,4 @@ Certains disciples d'un niveau de culture plus élevé ne pouvaient pas, eux non
 
 En courant, Wang Lin continuait d'ajouter des talismans sur ses jambes. La vitesse conférée par ces talismans s'accumulait; ainsi, avec quelques dizaines d'entre eux, il regagna rapidement la cour de la secte.
 
-L'homme en pourpre était celui qu'il craignait le plus. Il ne retourna pas immédiatement à sa maison des tâches, mais se réfugia dans une pièce vide. Ce n'est qu'au lever du jour, lorsque son déguisement disparut, que Wang Lin quitta prudemment les lieux. Heureusement, sur le chemin du retour, il ne remarqua rien d'anormal.
+L'homme en pourpre était celui qu'il craignait le plus. Il ne retourna pas immédiatement à sa maison des corvées, mais se réfugia dans une pièce vide. Ce n'est qu'au lever du jour, lorsque son déguisement disparut, que Wang Lin quitta prudemment les lieux. Heureusement, sur le chemin du retour, il ne remarqua rien d'anormal.

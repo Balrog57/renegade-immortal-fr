@@ -28,7 +28,7 @@ L'Ancien Sun, perché sur un arbre à proximité, maudit: « Ce petit bâtard...
 
 Après le départ de Wang Lin, l'Ancien Sun avait immédiatement commencé à le suivre, espérant découvrir où celui-ci avait trouvé la première gourde. Cependant, il ne s'attendait pas à ce que Wang Lin s'assoie simplement pour commencer à cultiver.
 
-L'énergie spirituelle ici était plus dense que dans sa chambre, bien qu'elle fût moins concentrée que dans le jardin d'herbes. Selon sa compréhension, la Condensation de Qi consistait simplement en la quantité d'énergie spirituelle contenue dans le corps. Bien qu'il ne puisse en absorber qu'une infime partie à la fois pour le moment, cela n'était qu'une question de temps.
+L'énergie spirituelle ici était plus dense que dans sa chambre, bien qu'elle fût moins concentrée que dans le jardin d'herbes. Wang Lin, après mûre réflexion, jugeait que la Condensation de Qi se résumait simplement à la quantité d'énergie spirituelle contenue dans le corps. Bien qu'il ne puisse en absorber qu'une infime partie à chaque fois, faute de talent, il pouvait le compenser avec le temps.
 
 Les suppositions de Wang Lin étaient justes. La Condensation de Qi consistait à faire pénétrer l'énergie spirituelle dans le corps afin d'établir des fondations solides pour l'avenir.
 
@@ -62,4 +62,4 @@ Wang Lin tendit immédiatement et respectueusement la gourde à l'Ancien: « Ma�
 
 Sun Dazhu manqua de perdre son sang-froid, mais il parvint à l'étouffer pour esquisser un sourire forcé. Il prit la gourde et la jeta sur le côté sans même y regarder, puis lança à Wang Lin: « La gourde que je veux est celle qui est imprégnée d'énergie spirituelle, comme la première! Pourquoi voudrais-je une gourde quelconque? »
 
-Il ne put contenir sa colère et finit par hurler ces derniers mots. Il avait gaspillé une journée entière à suivre ce gamin, pour finalement être dupé et l'aider à choisir et tester de simples gourdes ordinaires.
+Il ne put contenir sa colère et finit par hurler ces derniers mots. Il avait gaspillé une journée entière à suivre ce gamin, pour finalement être dupé, et il avait même eu la sottise de cueillir lui-même quelques gourdes ordinaires.

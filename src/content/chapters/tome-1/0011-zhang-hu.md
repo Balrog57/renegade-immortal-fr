@@ -8,7 +8,7 @@ slug: zhang-hu
 ---
 « La Belette? » Wang Lin était stupéfait. La première personne à laquelle il avait pensé et qui pouvait correspondre à cette description était le disciple vêtu de jaune qui s'était moqué de lui, mais il n'en était pas certain.
 
-« Ah? Tu ne l'as pas vu? C'est lui qui est chargé d'organiser le travail des disciples. C'est aussi un disciple honoraire, mais on lui a accordé le droit de commencer sa culture. Vêtu de jaune, il n'a vraiment pas l'air d'un brave homme. Nous l'appelons tous la Belette », expliqua Zhang Hu tout en buvant de l'eau.
+« Ah? Tu ne l'as pas vu? C'est lui qui est chargé d'organiser le travail des disciples. C'est aussi un disciple honoraire, mais on lui a accordé le droit de commencer sa culture. Vêtu de jaune, il n'a vraiment pas l'air d'un brave homme, on dirait un louveteau. En privé, nous l'appelons tous la Belette », expliqua Zhang Hu tout en buvant de l'eau.
 
 Wang Lin prit une bouchée de patate douce, puis dit: « Je sais de qui il s'agit, je l'ai vu aujourd'hui. Il m'a ordonné de rapporter dix jarres d'eau par jour dès demain, sans quoi je n'aurai aucune nourriture. »
 
@@ -42,7 +42,7 @@ Bien que l'effet fût inférieur à celui de la rosée, Wang Lin était transpor
 
 Après avoir bu ce demi-seau d'eau, ses muscles n'étaient plus endoloris et il se sentait plein d'énergie. Il reprit rapidement sa tâche de porteur d'eau.
 
-Cette nuit-là, il trempa la perle dans un autre demi-seau d'eau avant de la boire. Pour éviter tout soupçon, il revint avec un air épuisé sur le visage.
+Ce jour-là, il remplit une jarre et demie. Il trempa la perle dans un autre demi-seau d'eau avant de la boire. Pour éviter tout soupçon, il revint avec un air épuisé sur le visage.
 
 Peu de temps après, Zhang Hu revint, l'expression toujours marquée par la fatigue du labeur. Les deux discutèrent un moment et Zhang Hu demanda timidement deux morceaux de patate douce. Il les mangea et s'endormit sur son lit.
 

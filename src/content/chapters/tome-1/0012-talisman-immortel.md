@@ -28,11 +28,11 @@ Il ne les portait pas sur lui. Au lieu de cela, il les enterrait profondément, 
 
 Il emportait sur lui une gourde remplie d'eau de source. Chaque fois qu'il se sentait fatigué, il buvait une gorgée et ressentait instantanément un regain d'énergie.
 
-De plus, Wang Lin remarqua un phénomène étrange. Chaque fois que la rosée nocturne ou matinale apparaissait sur la perle de pierre, elle semblait couvrir la surface de multiples gouttes, mais lorsqu'il tentait de les collecter, il n'en obtenait qu'un dixième environ. Le reste s'évaporait.
+De plus, Wang Lin remarqua un phénomène étrange. Chaque fois que la rosée nocturne ou matinale apparaissait sur la perle de pierre, elle semblait couvrir la surface de multiples gouttes, mais lorsqu'il tentait de les collecter, plus de la moitié disparaissait mystérieusement et il n'en restait, au mieux, pas même un dixième.
 
 Face à ce phénomène mystérieux, Wang Lin ne pouvait conclure que la perle absorbait la rosée. Bien que son explication fût un peu absurde, il ne parvenait vraiment pas à envisager d'autre possibilité.
 
-Ce jour, au crépuscule, Wang Lin remplit les trois derniers réservoirs et dit au disciple vêtu de jaune qui méditait: « Frère Liu, je dois rentrer chez moi, je ne viendrai donc pas demain. »
+Ce jour, au crépuscule, Wang Lin remplit les trois dernières jarres et dit au disciple vêtu de jaune qui méditait: « Frère Liu, je dois rentrer chez moi, je ne viendrai donc pas demain. »
 
 Le jeune homme, Liu, leva les yeux au ciel, jeta un regard à Wang Lin, puis émit un « hm » du nez.
 

@@ -10,7 +10,7 @@ L'épée géante balaya le ciel et toutes les sphères de foudre la suivirent; d
 
 Situ Nan n'attendit pas que Wang Lin lui donne ses instructions; après avoir juré à plusieurs reprises, il les téléporta instantanément à nouveau, à environ trois kilomètres de là.
 
-Teng Li fronça les sourcils. Il laissa échapper un grognement et agita sa main droite. L'épée volante suivit son mouvement et se lança à la poursuite de Wang Lin.
+Teng Li fronça les sourcils. Il laissa échapper un grognement et agita sa main droite. L'épée volante fit aussitôt demi-tour et se posa sous ses pieds, l'emportant à la poursuite de Wang Lin.
 
 Deux rayons arc-en-ciel se succédèrent dans le ciel. Les disciples de la famille Teng tentèrent de les suivre un moment avant d'abandonner, incapables de maintenir la cadence.
 
@@ -22,7 +22,7 @@ Plus Wang Lin se comportait ainsi, plus l'intention meurtrière de Teng Li grand
 
 Il était un proche ami du disciple aîné du vieil homme Jimo, Chen Zhong. Il y a quelques jours, il avait reçu un message vocal de la part de Chen Zhong lui demandant de traquer deux individus. L'un d'eux était Zhang Hu, le disciple du cinquième disciple du vieil homme Jimo.
 
-Zhang Hu avait sollicité une aide extérieure pour assassiner son maître et, au moment de la mort de ce dernier, le vieil homme Jimo l'avait détecté. Ce que Zhang Hu ignorait, c'est qu'en plus du poison, le vieil homme Jimo utilisait une technique secrète pour contrôler ses disciples de l'intérieur. Grâce à elle, il avait tout vu. Dans un accès de rage, le vieil homme Jimo avait utilisé cette technique pour prédire la position de Zhang Hu et avait envoyé son disciple aîné, Chen Zhong, pour traquer les deux complices.
+Zhang Hu avait sollicité une aide extérieure pour assassiner son maître et, au moment de la mort de ce dernier, le vieil homme Jimo l'avait détecté. Ce que Zhang Hu ignorait, c'est qu'en plus du poison dans son corps, il portait en lui une technique secrète que le vieil homme Jimo utilisait pour contrôler ses disciples. Grâce à elle, il avait tout vu. Dans un accès de rage, le vieil homme Jimo avait utilisé cette technique pour prédire la position de Zhang Hu et avait envoyé son disciple aîné, Chen Zhong, pour traquer les deux complices.
 
 Chen Zhong étant très loin, il avait envoyé un message à Teng Li pour solliciter son aide.
 
@@ -42,9 +42,9 @@ Au moment où la sphère de foudre toucha la lumière verte, elle explosa.
 
 Teng Li la regarda avec dédain avant de détourner les yeux. À cet instant précis, un éclair vert jaillit à dix mètres devant lui. La lumière percuta Teng Li de plein fouet. Ses vêtements furent instantanément pulvérisés, révélant une armure étincelante.
 
-Une fois stoppée par l'armure, la lumière verte cligna et disparut sans laisser de trace.
+Une fois stoppée par l'armure, la lumière verte fit demi-tour dans un éclair et disparut sans laisser de trace.
 
-Wang Lin poussa un soupir secret, empreint de regret. L'épée verte réapparut dans sa main alors qu'il poursuivait sa fuite.
+Wang Lin soupira intérieurement, plein de regret. D'un geste de la main droite, la petite épée verte réapparut entre ses deux doigts alors qu'il poursuivait sa fuite.
 
 Des perles de sueur apparurent sur le front de Teng Li. Ce qui venait de se passer était d'une dangerosité extrême. Même avec sa culture au stade avancé de l'Établissement des Fondations, s'il avait été touché, il aurait été gravement blessé. De plus, la lumière émanant de cette épée prouvait qu'il ne s'agissait pas d'un simple trésor. Il devinait que s'il avait été atteint, il serait mort sur le coup.
 
@@ -54,7 +54,7 @@ Trois jours plus tard, dans un désert. Le visage couvert de poussière, Wang Li
 
 Situ Nan dit d'une voix extrêmement faible: « Gamin, ce vieil homme ne tiendra plus longtemps. J'ai trop utilisé la téléportation ces trois derniers jours et mon essence d'Âme Naissante est gravement épuisée. »
 
-Wang Lin tourna la tête, le regard chargé d'intentions meurtrières, et dit froidement: « Il a encore rattrapé notre trace. » Il effleura son sac de rangement et l'épée verte apparut dans sa main.
+Wang Lin tourna la tête, le regard chargé d'intentions meurtrières, et dit froidement: « Il revient à la charge. » Il effleura son sac de rangement et l'épée verte apparut dans sa main.
 
 La couleur de l'épée était terne et elle présentait quelques éraflures. Durant ces trois jours, Wang Lin l'avait utilisée à maintes reprises, mais comme Teng Li était désormais sur ses gardes, il lui était difficile de lancer une attaque surprise. De plus, l'épée de Wang Lin ne pouvait entamer l'armure de Teng Li d'un pouce.
 
@@ -82,7 +82,7 @@ Teng Li se tenait à l'extérieur de la forêt. Ses yeux étaient glacials, mais
 
 Après une courte réflexion, Teng Li prit sa décision. Les trésors de Wang Lin étaient tels qu'il était déterminé à les faire siens.
 
-De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes. D'innombrables insectes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs couvraient le sol et diverses espèces de bêtes habitaient la région. L'odeur de la décomposition des feuilles et des carcasses, s'accumulant au fil du temps, s'était changée en miasmes capables de tuer sans laisser de trace.
+De nombreux arbres séculaires s'élançaient vers le ciel, chargés de feuillage. Le sol était recouvert d'une couche de feuilles mortes. D'innombrables insectes venimeux rampaient sur la terre et des serpents glissaient rapidement entre les débris végétaux. Des arbres millénaires parsemaient le paysage. Une multitude de fleurs et de plantes rares couvraient le sol et d'innombrables bêtes étranges et oiseaux de proie s'entre-déchiraient chaque fois qu'ils se croisaient. L'odeur de la décomposition des feuilles et des carcasses, s'accumulant au fil du temps, s'était changée en miasmes capables de tuer sans laisser de trace.
 
 Cet endroit était plongé dans la brume toute l'année. Des arbres étranges croissaient jusqu'à atteindre les cieux, et des bêtes aussi puissantes que des cultivateurs de niveau Âme Naissante y résidaient. Le moindre manque de prudence pouvait y coûter la vie.
 

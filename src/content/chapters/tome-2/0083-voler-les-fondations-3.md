@@ -40,7 +40,7 @@ Teng Li regarda ses cheveux coupés par la petite épée verte et hurla de toute
 
 Wang Lin courait à travers la jungle quand son visage devint soudainement rouge et qu'il cracha une bouchée de sang. L'épée verte venait d'apparaître à ses côtés. Il ressentit une douleur au cœur en voyant les nouvelles égratignures sur l'arme. Une lueur froide passa dans ses yeux tandis qu'il continuait sa course.
 
-Tard dans la nuit, cinq jours après le début de leur traque, Wang Lin et Teng Li parcouraient toujours la jungle. Ils étaient désormais entrés dans les profondeurs de la forêt quand, soudain, Wang Lin s'arrêta.
+Cinq jours plus tard, tard dans la nuit, Wang Lin et Teng Li parcouraient toujours la jungle. Ils étaient désormais entrés dans les profondeurs de la forêt quand, soudain, Wang Lin s'arrêta.
 
 Situ Nan dit rapidement: « Gamin, tu l'as remarqué aussi? Il y a une fluctuation spirituelle très puissante au nord-ouest d'ici. Va voir ce qui s'y passe. » Ces derniers jours, il était resté sur le qui-vive, utilisant tout son savoir pour aider Wang Lin à éviter danger après danger.
 
@@ -74,9 +74,9 @@ Wang Lin recula avec prudence et s'éloigna rapidement, sans même ciller. Une l
 
 L'épée volante de Teng Li tournait autour de lui, écartant tout obstacle sur sa route. Il remarqua soudain quelque chose et sourit. Pointant un doigt vers l'avant, il projeta son épée.
 
-L'ombre de Wang Lin était désormais à portée de vue. Teng Li se réjouit en inspectant les environs. Cependant, les mouvements de Wang Lin le mirent sur ses gardes. Il ricana: « Pourquoi ne fuis-tu pas? »
+La silhouette de Wang Lin était désormais à portée de vue. Teng Li eut soudain un pressentiment et inspecta les environs d'un regard soupçonneux, sans rien remarquer d'anormal. Cependant, les mouvements de Wang Lin le mirent sur ses gardes. Il ricana: « Pourquoi ne fuis-tu pas? »
 
-Wang Lin pointa l'avant avec son index droit et l'épée volante verte apparut. D'un geste de la main, il la projeta en avant. Puis, il sortit un morceau de jade sur lequel il cracha une bouffée d'énergie spirituelle.
+Wang Lin pointa l'avant avec son index droit et l'épée volante verte apparut. D'un geste de la main, il la projeta en avant. En même temps, il tapota son sac de rangement et un morceau de jade en jaillit; Wang Lin forma un sceau des deux mains et cracha une bouffée d'énergie spirituelle sur le jade.
 
 Soudain, quatre caractères dorés s'illuminèrent sur le jade.
 
@@ -84,7 +84,7 @@ Teng Li eut un sourire carnassier. Il se mordit le doigt et projeta une goutte d
 
 Dès que la grande épée se manifesta, elle dégagea une aura glaciale tandis que Teng Li l'abattait avec force.
 
-La petite épée de Wang Lin se téléporta pour surgir derrière Teng Li. Juste avant que le coup ne porte son effet, Teng Li tapota son sac de rangement; une petite cloche en jaillit, grossit instantanément, devint semi-transparente et le recouvrit.
+La petite épée de Wang Lin se téléporta pour surgir derrière Teng Li. Alors qu'elle allait le transpercer, Teng Li tapota son sac de rangement; une petite cloche en jaillit, grossit instantanément, devint semi-transparente et le recouvrit.
 
 La petite épée verte frappa la cloche, provoquant des ondes de choc à sa surface.
 

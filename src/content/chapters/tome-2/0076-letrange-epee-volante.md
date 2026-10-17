@@ -26,7 +26,7 @@ Dans une série de bruissements, le jeune homme au regard glacial émergea de la
 
 Dès qu'ils aperçurent le jeune homme, les hommes en noir s'inclinèrent respectueusement: « Nous saluons le chef! »
 
-Le jeune homme ne daigna même pas regarder Song Xing, qui crachait du sang, mais il fixa Wang Lin et dit: « La personne que je connaissais n'aurait absolument pas pu changer à ce point en dix ans! Qui es-tu exactement? »
+Le jeune homme ne daigna même pas regarder Song Xing, qui crachait du sang, mais il fixa Wang Lin et dit: « La personne que je connaissais n'aurait absolument pas pu rester sans le moindre changement d'apparence en dix ans! Qui es-tu exactement? »
 
 Wang Lin regarda le jeune homme sans dire un mot. Au lieu de cela, il sortit un papier jaune de son sac de rangement.
 
@@ -52,7 +52,7 @@ L'homme sourit et dit à Wang Lin: « Camarade cultivateur, connais-tu mon disci
 
 Le visage de Wang Lin ne trahit aucune émotion. Il répondit: « Et qu'est-ce que cela changerait que je le connaisse ou non? »
 
-L'homme d'âge moyen fut déconcerté. Il observa Wang Lin un instant, puis sourit soudainement. « Peu importe. Bien que tu ne sois qu'au 8e niveau, si je bois ton sang, cela augmentera tout de même un peu ma culture. »
+L'homme d'âge moyen fut déconcerté. Il observa Wang Lin un instant, puis sourit soudainement. « Peu importe. Bien que tu ne sois qu'au 8e niveau, si je bois ton sang, cela augmentera tout de même pas mal ma culture. »
 
 Le visage de Zhang Hu changea brusquement. Il se précipita devant son maître et s'écria: « Maître, cette personne est mon ami d'enfance. Je vous en prie... épargnez-le! »
 

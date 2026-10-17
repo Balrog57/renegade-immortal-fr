@@ -66,7 +66,7 @@ Heureusement, la chute ne fut pas brutale et ils se relevèrent rapidement. Deva
 
 Tout droit devant lui se dressait une montagne imposante, dont le sommet, drapé de nuages, dissimulait sa silhouette véritable. On pouvait entendre les échos des cris de bêtes sauvages. Un sentier de marches sinueuses serpentait le long de la paroi, tel un tableau vivant, évoquant l'atmosphère d'un autre monde.
 
-Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont argenté en forme de croissant de lune reliait ce sommet à une autre crête.
+Au loin, sur la cime, se trouvait une salle majestueuse. Bien qu'enveloppée par les brumes, la lumière éclatante qui s'en dégageait inspirait la dévotion. À côté de la salle, un pont de pierre en forme de croissant de lune reliait ce sommet à une autre crête.
 
 Une telle grotte-paradis bénie était naturellement l'emplacement de la porte de montagne de la Secte Heng Yue. Cette dernière était l'une des rares sectes de culture du pays de Zhao. Il y a cinq cents ans, elle avait un temps dominé tout le monde de la culture du pays de Zhao, avec plusieurs vieux monstres au stade de l'Âme Naissante, et sa gloire était sans égale. Hélas, avec le passage du temps et après plusieurs bouleversements, la grande secte d'autrefois s'était rétrécie au point de n'avoir plus qu'une assise précaire dans le monde de la culture.
 

@@ -30,7 +30,7 @@ La jeune femme nommée Zhou hésita un instant, puis renonça également. Quant 
 
 Wang Hao, très affaibli, esquissa un sourire amer et dit à Wang Lin: « Frère Tie Zhu, je ne vais nulle part. Je compte rentrer chez moi pour aider mon père. Ne t'inquiète pas, frère Tie Zhu, je prendrai soin de ta famille. »
 
-Wang Lin remarqua alors que Wang Hao n'avait plus aucune trace de cultivation. « Wang Hao, où est passé ton niveau de culture? » demanda-t-il. Wang Hao eut un rire amer et secoua la tête: « Ne me pose pas la question, c'est une longue histoire. »
+Wang Lin remarqua alors que Wang Hao n'avait plus aucune trace de culture. « Wang Hao, où est passé ton niveau de culture? » demanda-t-il. Wang Hao eut un rire amer et secoua la tête: « Ne me pose pas la question, c'est une longue histoire. »
 
 Wang Lin hésita. Il portait trop de secrets et, s'il rejoignait la Secte Xuan Dao, les dangers seraient trop imprévisibles. Après une réflexion, il se mit en mouvement.
 

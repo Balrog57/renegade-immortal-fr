@@ -42,7 +42,7 @@ Il se souvint que la dernière fois, c'était en fixant la perle qu'il s'était 
 
 L'espace infini réapparut. Le regard de Wang Lin devint pensif. Cette fois, il ne vagabonda pas; il se mit à sauter de haut en bas de manière répétée.
 
-Au fil du temps, ses bonds devinrent de plus en plus hauts. Au début, il ne s'élevait que de quelques centimètres, mais bientôt il atteignit près de 1,65 mètre, puis plus de 3,3 mètres. Lorsque son corps fut totalement exténué, la sensation de déchirure revint.
+Au fil du temps, ses bonds devinrent de plus en plus hauts. Il finit par atteindre près de 1,65 mètre. Lorsque son corps fut totalement exténué, la sensation de déchirure revint.
 
 Puis, il se réveilla.
 
@@ -66,7 +66,7 @@ Wang Lin la remplit promptement. Il fixa la perle et retourna dans le rêve.
 
 Cette fois, il ne pratiqua pas de sauts, mais s'assit en tailleur sur le sol pour compter les heures.
 
-Deux heures, dix heures, vingt heures, quarante heures, cinquante heures!
+Une heure, deux heures, dix heures, vingt heures, cinquante heures!
 
 La sensation que son corps soit déchiré revint. Lorsque Wang Lin ouvrit les yeux, la lampe était sur le point de s'éteindre.
 
@@ -74,4 +74,4 @@ La sensation que son corps soit déchiré revint. Lorsque Wang Lin ouvrit les ye
 
 Pour la première fois, il éprouva une véritable confiance en sa culture.
 
-Le soleil était déjà haut dans le ciel. Wang Lin calma son cœur exalté et ne commença pas immédiatement à utiliser la perle pour cultiver. Il craignait que si quelqu'un le surprenait à l'utiliser au matin, il ne puisse plus la conserver. Il remit donc la perle dans sa sacoche de rangement et quitta la pièce.
+Le soleil était déjà haut dans le ciel. Wang Lin calma son cœur exalté et ne commença pas immédiatement à utiliser la perle pour cultiver. Il craignait que si quelqu'un le surprenait à l'utiliser en plein jour, il ne puisse plus la conserver. Il remit donc la perle dans son sac de rangement et quitta la pièce.

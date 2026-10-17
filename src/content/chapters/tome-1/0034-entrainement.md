@@ -16,9 +16,9 @@ Quant à la compétition des nouveaux venus, puisqu'il n'y avait qu'une poignée
 
 En ce qui concernait les disciples honoraires, ils se montraient encore plus hostiles les uns envers les autres. La compétition pour devenir disciple interne représentait une chance unique de changer de destin; chacun s'y préparait donc en secret.
 
-Cette atmosphère tendue n'avait aucun rapport avec Wang Lin. En plus de sa culture, il pratiquait également la technique d'attraction. La veille de la fin du mois, il quitta la maison des tâches pour se rendre directement à la cour principale.
+Cette atmosphère tendue n'avait aucun rapport avec Wang Lin. En plus de sa culture, il pratiquait également la technique d'attraction. La veille de la fin du mois, il quitta la maison des corvées pour se rendre directement à la cour principale.
 
-Il activa la technique permettant de dissimuler son niveau de culture. L'énergie spirituelle dans son corps se transforma rapidement pour donner l'illusion qu'il n'avait pas encore atteint la première couche de Condensation de Qi. Il jugeait la maison des tâches, avec tant de monde et de regards indiscrets, impropre à la culture; il cherchait donc un prétexte pour s'isoler dans un endroit calme.
+Il activa la technique permettant de dissimuler son niveau de culture. L'énergie spirituelle dans son corps se transforma rapidement pour donner l'illusion qu'il n'avait pas encore atteint la première couche de Condensation de Qi. Il jugeait la maison des corvées, avec tant de monde et de regards indiscrets, impropre à la culture; il cherchait donc un prétexte pour s'isoler dans un endroit calme.
 
 Arrivé à la cour principale, il entra et, peu après, se posta devant le jardin d'herbes de Sun Dazhu pour dire respectueusement: « Le disciple Wang Lin demande à rencontrer son maître. »
 
@@ -46,7 +46,7 @@ Sun Dazhu refusa d'un ton sec: « Partir de la montagne? C'est impossible. J'ai 
 
 Wang Lin poussa un soupir intérieur. Il semblait qu'un entraînement à l'extérieur de la secte ne serait pas possible. Voyant que le ton de Sun Dazhu n'était guère amical, il hocha la tête et prit congé.
 
-De retour à la maison des tâches, Wang Lin réfléchit un moment. Puisqu'il ne pouvait pas s'entraîner hors de la secte, autant profiter de cet entraînement intensif pour cultiver sérieusement.
+De retour à la maison des corvées, Wang Lin réfléchit un moment. Puisqu'il ne pouvait pas s'entraîner hors de la secte, autant profiter de cet entraînement intensif pour cultiver sérieusement.
 
 Le lendemain, la compétition commença dans une ambiance très animée. Wang Lin n'y participa pas; il utilisa ce temps pour cultiver et consolider ses fondations au sein de la deuxième couche.
 
@@ -54,7 +54,7 @@ Au cours des jours suivants, les rumeurs parmi les disciples honoraires appriren
 
 Une semaine plus tard, au matin, une cloche retentit dans toute la secte. Elle sonna cinq fois, signal indiquant que tous les disciples internes devaient se rassembler promptement devant la salle principale.
 
-Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lorsque Sun Dazhu, furieux, fracassa la porte de la maison des tâches pour le réveiller qu'il en prit connaissance. Il rangea rapidement sa perle et ouvrit la porte de sa salle d'entraînement secrète, pour se retrouver face au visage de rage de Sun Dazhu qui hurlait: « Wang Lin, es-tu sourd? N'as-tu pas entendu la cloche? Disciple indigne! Tous les disciples internes participant à l'entraînement intensif sont déjà là, sauf toi! Tu me fais perdre la face devant mes frères apprentis! Toi... tu me rends fou! »
+Wang Lin ne pouvait entendre la cloche depuis l'espace de rêve. Ce n'est que lorsque Sun Dazhu, furieux, fracassa la porte de la maison des corvées pour le réveiller qu'il en prit connaissance. Il rangea rapidement sa perle et ouvrit la porte de sa salle d'entraînement secrète, pour se retrouver face au visage de rage de Sun Dazhu qui hurlait: « Wang Lin, es-tu sourd? N'as-tu pas entendu la cloche? Disciple indigne! Tous les disciples internes participant à l'entraînement intensif sont déjà là, sauf toi! Tu me fais perdre la face devant mes frères apprentis! Toi... tu me rends fou! »
 
 Wang Lin haussa un sourcil et resta silencieux.
 

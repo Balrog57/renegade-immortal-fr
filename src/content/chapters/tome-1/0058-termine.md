@@ -20,7 +20,7 @@ Deux mains gigantesques émettant une lumière blanche apparurent. Des tourbillo
 
 L'une des mains colossales saisit le cou du mille-pattes, tandis que l'autre s'élevait pour intercepter l'épée descendante.
 
-La trajectoire de l'épée ralentit jusqu'à être stoppée net en plein vol. Le visage de l'Ancien Ouyang devint livide, empreint d'une profonde horreur.
+La trajectoire de l'épée ralentit jusqu'à être stoppée net en plein vol. Le visage de l'Ancien Ouyang devint tout rouge, empreint d'une profonde horreur.
 
 Les deux autres anciens serrèrent les dents. Faisant fi de leur statut, l'un d'eux cracha une lumière multicolore qui se mua en un ruban chatoyant, fonçant vers Wang Lin. Simultanément, l'autre ancien lança un morceau de jade, déclenchant l'apparition de huit boules de feu spectrales qui s'élancèrent vers le jeune homme.
 

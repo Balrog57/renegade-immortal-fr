@@ -8,7 +8,7 @@ slug: pensees-malveillantes
 ---
 En réfléchissant aux trois techniques, l'esprit de Wang Lin s'enflamma d'excitation. Tentant de manifester la technique de la Boule de Feu, il forma le sceau de sa main. Cependant, loin de produire du feu, pas même une étincelle n'apparut. Après un long moment, il fronça les sourcils et réessaya.
 
-Il se heurta, encore et encore, à l'échec. Il ne parvint à produire qu'une unique étincelle en tout ce temps.
+Il se heurta, encore et encore, à l'échec. Il ne parvint à produire qu'une unique étincelle en tout ce temps, qui se dissipa aussitôt.
 
 Wang Lin eut un rire amer. « Le talent... c'est toujours une question de talent! » Il tenta ensuite la technique de la Fissure de la Terre sur un rocher voisin. Bien que le résultat fût supérieur à celui de la Boule de Feu, la fissure n'avait pas plus de la taille de son petit doigt. Ce genre de technique pouvait bien tromper des mortels, mais dans une véritable bataille, elle était inutile.
 

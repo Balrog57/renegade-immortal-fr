@@ -20,7 +20,7 @@ Sa mère prenait grand soin de lui. On pouvait dire qu'il avait grandi bercé pa
 
 Plus il lisait, plus sa réflexion s'approfondissait. Il aspirait à découvrir le monde au-delà du village. Tie Zhu leva la tête et regarda l'horizon de la route. Après un soupir, il referma son livre, se leva et rentra chez lui.
 
-Son père était assis dans la cour. Tenant sa pipe, il prit une profonde inspiration et demanda: « Tie Zhu, comment avancent tes études? », alors que le garçon franchissait le seuil.
+Son père était assis dans la cour. Tenant sa pipe, il en tira une profonde bouffée et demanda: « Tie Zhu, comment avancent tes études? », alors que le garçon franchissait le seuil.
 
 Tie Zhu marmonna quelques mots en passant. Son père secoua les cendres de sa pipe, se leva et déclara: « Tie Zhu, tu dois étudier avec sérieux. L'examen du district aura lieu l'année prochaine. Ton avenir dépendra entièrement de ce résultat. Ne finis pas comme moi, à passer toute ma vie dans un simple village. »
 
@@ -70,7 +70,7 @@ L'homme sourit et hocha la tête: « Deuxième frère, c'est bien cette secte im
 
 La mère de Tie Zhu, ravie, balbutia: « Quatrième frère, c'est... c'est... »
 
-L'homme frotta la tête de Tie Zhu et conclut: « Deuxième frère, belle-sœur, ne nous en faisons pas. Laissons Tie Zhu essayer; s'il est accepté, ce sera sa fortune. »
+L'homme frotta la tête de Tie Zhu et conclut: « Deuxième frère, belle-sœur, je crois que c'est décidé. Laissons Tie Zhu essayer; s'il est accepté, ce sera sa fortune. »
 
 Confus, Tie Zhu regarda ses parents et son oncle, incapable de saisir l'importance de l'échange. « Des immortels? Que sont les immortels? » demanda-t-il d'une voix hésitante.
 
@@ -96,7 +96,7 @@ L'attente dans son regard était bien plus profonde que lorsqu'il espérait simp
 
 Au village, rien ne restait secret, pas même le nombre de petits qu'une chienne mettait au monde. La nouvelle se répandit comme une traînée de poudre dès que la mère de Tie Zhu en parla, et tous les voisins vinrent rendre visite. Les regards portés sur Tie Zhu avaient changé: certains étaient empreints d'envie, d'autres de jalousie.
 
-« La famille Wang a engendré un fils prodigue. Il va devenir disciple de la Secte Heng Yue! »
+« La famille Wang a engendré un bon garçon. Il a été pris comme disciple par la Secte Heng Yue! »
 « J'ai vu ce petit Tie Zhu grandir! Il était déjà brillant enfant. Devenir un disciple de la Secte Heng Yue... quel avenir prometteur! »
 « Tie Zhu, tu as un talent immense! Quand tu auras réussi, n'oublie pas de revenir nous voir! »
 
@@ -104,7 +104,7 @@ Ces conversations inondaient les oreilles de Tie Zhu, comme s'il était déjà m
 
 Dès que Tie Zhu marchait seul, les villageois l'interrogeaient avec passion. Certains allaient jusqu'à dire à leurs enfants de prendre Tie Zhu pour modèle.
 
-Une demi-lune passa rapidement. La nouvelle de son admission imminente avait déjà fait le tour des environs. Les villageois venaient les voir, apportant chacun des cadeaux. Les parents de Tie Zhu ne pouvaient refuser, mais prévoyaient déjà des présents en retour. Le père déclarait: « Notre fils sera un immortel demain, il ne peut se permettre d'avoir des dettes envers personne. Nous préparerons des cadeaux pour chaque visiteur. »
+Une demi-lune passa rapidement. La nouvelle de son admission imminente avait déjà fait le tour des environs. Les villageois des alentours venaient les féliciter, surtout pour voir Tie Zhu, apportant chacun des cadeaux. Les parents de Tie Zhu ne pouvaient refuser, mais prévoyaient déjà des présents en retour. Le père déclarait: « Notre fils sera un immortel plus tard, il ne peut se permettre d'avoir des dettes envers personne. Nous préparerons des cadeaux pour chaque visiteur. »
 
 Bientôt, la famille Wang apprit que le quatrième oncle avait cédé sa propre place de recommandation à Tie Zhu. Un à un, les proches vinrent le féliciter.
 
@@ -116,7 +116,7 @@ Une fois les invitations envoyées à la majeure partie de la famille Wang, l'af
 
 Le père de Tie Zhu avait conduit sa femme et son fils à l'entrée du village pour accueillir personnellement chaque parent et présenter chaque parenté à Tie Zhu.
 
-« Voici ton troisième grand-père. Quand ton père a été banni de la famille, il t'a secrètement beaucoup aidé. Tie Zhu, n'oublie jamais de lui rendre sa gratitude », dit le père en épaulant un vieillard aux cheveux blancs.
+« Voici ton troisième grand-père. Quand j'ai quitté la famille, il m'a secrètement beaucoup aidé. Tie Zhu, n'oublie jamais de lui rendre sa gratitude », dit le père en épaulant un vieillard aux cheveux blancs.
 
 Tie Zhu hocha vivement la tête. Le vieil homme regarda l'enfant et dit: « Deuxième frère, le temps passe si vite. Ton fils est déjà si grand! Son avenir sera bien plus radieux que le tien. »
 

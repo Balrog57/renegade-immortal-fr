@@ -15,7 +15,7 @@ Zhang Hu acquiesça: « Oui. Chaque mois, une grande foire est organisée et tou
 
 Wang Lin hocha la tête avec un sourire: « Quoi? Tu ne souhaites pas que je t'accompagne? Je ne possède guère de pierres spirituelles, je compte donc sur toi. »
 
-La famille Teng était une lignée de cultivateurs très célèbre dans le nord du pays de Zhao. L'ancêtre fondateur, Teng Huayuan, avait atteint le stade de l'Âme Naissante au cours des 500 dernières années, ce qui lui permettait de ne pas participer aux guerres des royaumes de rang 4. Il était également conseiller invité de la Vallée de Wu Feng, ce qui lui conférait un statut très élevé.
+La famille Teng était une lignée de cultivateurs très célèbre dans le nord du pays de Zhao. L'ancêtre fondateur, Teng Huayuan, avait atteint le stade de l'Âme Naissante au cours des 500 dernières années, ce qui lui permettait de ne pas participer aux guerres extérieures des royaumes de rang 4 et plus. Il était également conseiller invité de la Vallée de Wu Feng, ce qui lui conférait un statut très élevé.
 
 Grâce à un ancêtre tel que lui, personne n'osait défier la famille Teng, bien qu'elle ne fût pas une grande secte. La foire aux échanges de la famille Teng offrait une plateforme idéale pour le commerce entre cultivateurs. Au début de chaque mois, la ville de la famille Teng était en pleine effervescence.
 

@@ -32,7 +32,7 @@ Simultanément, il leva sa main gauche et pointa Wang Lin. Sa grande épée fré
 
 Il jouait sa chance: misait-il sur le fait que l'épée volante de Wang Lin le poignarderait d'abord, ou que sa grande épée trancherait Wang Lin en deux? Si Wang Lin utilisait la téléportation pour s'échapper, il perdrait le contrôle de son épée volante, offrant ainsi à Teng Li le temps de fuir. Il était déjà presque à bout de forces; s'il restait plus longtemps, il creuserait sa propre tombe.
 
-Situ Nan hurla: « Fou! Tu es complètement fou! » Sans attendre Wang Lin, Situ Nan décida de les téléporter. Au moment même où la lueur bleue apparaissait, Wang Lin cria: « Ce n'est pas encore le moment de se téléporter! Arrête! »
+Situ Nan hurla: « Fou! Tu es complètement fou! » Sans tenir compte de l'opposition de Wang Lin, Situ Nan voulut les téléporter. Au moment même où la lueur bleue apparaissait, Wang Lin cria: « Ce n'est pas encore le moment de se téléporter! Arrête! »
 
 Un regard féroce s'empara de son visage. Sans accorder un regard à la grande épée, il contrôla sa petite épée pour contourner les couches défensives et la fit surgir devant Teng Li.
 
@@ -50,7 +50,7 @@ Tout cela s'était produit en un éclair, si rapidement que le zombie n'avait m�
 
 Toutes les boules de foudre qui fonçaient vers le zombie se dissipèrent. Même la grande épée se rétracta pour devenir une petite lame argentée avant de tomber dans la faille du sol.
 
-Wang Lin saisit la sculpture de glace et recula lentement, tout en pointant l'épée volante verte vers le zombie.
+Wang Lin saisit la sculpture de glace et recula rapidement, tout en pointant l'épée volante verte vers le zombie.
 
 Le zombie fixa Wang Lin et poussa un cri. Il s'apprêtait à charger quand son regard fut attiré par la faille au sol. Profitant de cet instant d'hésitation, Wang Lin s'était déjà éloigné de près d'un kilomètre et avait disparu via une téléportation.
 

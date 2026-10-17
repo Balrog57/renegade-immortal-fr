@@ -16,7 +16,7 @@ Après y avoir passé une journée entière, toute l'énergie spirituelle conten
 
 Cette fois-ci était différente. Bien qu'elle se dispersât toujours, une infime parcelle subsistait dans son corps. Certes, la quantité était dérisoire, mais ces résultats renforçaient considérablement la confiance de Wang Lin. Après avoir réfléchi un long moment, il ne parvint pas à comprendre l'origine de cette différence; il ne pouvait donc que spéculer qu'elle était due à la mystérieuse perle de pierre.
 
-Comme il ne pouvait quitter le rêve de sa propre volonté pour aller chercher davantage d'eau de source, il fut contraint de continuer à cultiver pendant une longue période. Il finit par réaliser qu'il existait une distinction fondamentale entre l'espace du rêve et le monde extérieur. À l'extérieur, bien qu'il eût cultivé pendant plus d'un mois, il se sentait toujours rafraîchi et apaisé après sa pratique.
+Comme il ne pouvait quitter le rêve de sa propre volonté pour aller chercher davantage d'eau de source, il fut contraint de continuer à cultiver pendant une longue période. Il finit par réaliser qu'il existait une distinction fondamentale entre l'espace du rêve et le monde extérieur. À l'extérieur, bien qu'il n'eût pas la sensation de l'énergie spirituelle pénétrant en lui comme des fourmis grimpantes, il avait constaté, après un mois de persévérance, que chaque séance le laissait rafraîchi et apaisé.
 
 Ici, cependant, une fois l'énergie spirituelle de l'eau de source épuisée, il ne ressentait aucune sensation de fraîcheur ou de confort. Au contraire, à force de cultiver, il se sentait essoufflé.
 
@@ -48,9 +48,9 @@ Suivant cette logique, il existait des restrictions sur l'accès à cet espace o
 
 Une fois ce problème résolu, Wang Lin commença à préparer ses tests pour déterminer ce qu'il pouvait emporter dans le rêve. Il finit par rassembler divers objets, dont trois gourdes: l'une contenait un reste de rosée, la seconde était vide, et la troisième était pleine d'eau de source.
 
-Il glissa même un morceau de bol en pierre brisé dans sa poche. De plus, il sortit une patate douce et un morceau de tissu de son sac de rangement et les attacha à son corps avant de s'enfoncer de nouveau dans le rêve.
+Il glissa même un morceau de bol en pierre brisé dans sa poche. De plus, il sortit une patate douce et des vêtements de son paquetage et les attacha à son corps avant de s'enfoncer de nouveau dans le rêve.
 
-Dans l'espace du rêve, Wang Lin vérifia promptement son corps. La patate douce, le morceau de bol en pierre et le tissu étaient bien là, mais les trois gourdes et son sac de rangement avaient disparu.
+Dans l'espace du rêve, Wang Lin vérifia promptement son corps. La patate douce, les vêtements et le morceau de bol en pierre étaient bien là, mais les trois gourdes et son sac de rangement avaient disparu.
 
 Il en conclut sans aucun doute que ce royaume onirique était dépourvu d'énergie spirituelle; par conséquent, tout objet ordinaire — c'est-à-dire tout objet ne contenant aucune énergie spirituelle — pouvait y être introduit.
 
@@ -66,7 +66,7 @@ Il comprenait désormais qu'on ne pouvait pas faire entrer d'objets contenant de
 
 Après cinquante heures, il quitta précipitamment sa chambre et explora la montagne jusqu'à ce qu'il trouve quelques courges sauvages qu'il ramena chez lui.
 
-Il était convaincu que les trois gourdes précédentes n'avaient pu entrer dans l'espace du rêve parce qu'elles avaient été trempées si longtemps dans l'eau spirituelle que l'énergie en était fusionnée.
+Il était convaincu que les trois gourdes précédentes n'avaient pu entrer dans l'espace du rêve parce qu'elles avaient contenu de la rosée si longtemps qu'elles renfermaient elles-mêmes une certaine énergie spirituelle.
 
 Désormais, il remplissait ces courges fraîchement cueillies avec de l'eau de source enrichie. Il pourrait ainsi tromper l'espace du rêve pour les y faire pénétrer.
 
@@ -74,7 +74,7 @@ Cinq heures plus tard, Wang Lin entra dans l'espace du rêve, quatre courges sur
 
 Il les ouvrit et vit que l'eau était toujours à l'intérieur. Il en but une gorgée et s'aperçut qu'elle était encore chargée d'énergie spirituelle. Sans dire un mot, Wang Lin prit plusieurs grandes gorgées et commença sa culture.
 
-Chaque fois que l'énergie spirituelle se dissipait de son corps, il buvait davantage d'eau de source. Bientôt, des filaments d'énergie commencèrent à s'accumuler en lui, le rapprochant du premier niveau de Condensation de Qi.
+Chaque fois que l'énergie spirituelle se dissipait de son corps, il buvait davantage d'eau de source. Bientôt, des filaments d'énergie commencèrent à s'accumuler en lui, modifiant lentement sa constitution et le rapprochant du premier niveau de Condensation de Qi.
 
 Les lumières environnantes recommencèrent silencieusement à pénétrer dans son être.
 

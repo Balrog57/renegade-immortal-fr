@@ -6,7 +6,7 @@ bookTitle: The Bloody Image of Cultivation
 en: Chapter 70 - Returning Home
 slug: retour-au-foyer
 ---
-Trois jours plus tard, Wang Lin sortit de la grotte, couvert de sueur. Zhou Peng le suivit, les yeux embrumés par l'émotion.
+Trois jours plus tard, Wang Lin sortit de la grotte, couvert de sueur. Zhou Peng le suivit, les yeux embrumés.
 
 « Zhou Peng, retourne à la Secte Xuan Dao. Suis mes instructions et élimine tous ceux qui chercheront à me nuire. Ensuite, protège mes parents. » La voix de Wang Lin était glaciale, empreinte d'une soif de sang.
 

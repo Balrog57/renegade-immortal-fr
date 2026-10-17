@@ -20,7 +20,7 @@ Deux autres piliers de jade se brisèrent et deux autres anciens s'effondrèrent
 
 Sur les huit piliers blancs, il n'en restait plus que quatre. Hormis les deux anciens de la Formation du Noyau, les visages des deux anciens de l'Établissement des Fondations étaient livides et leurs corps tremblaient; ils avaient manifestement atteint leurs limites.
 
-Huang Long avait déjà rassemblé tous les disciples internes. Leurs visages étaient empreints de choc et de terreur. Wang Hao figurait également parmi eux. Son teint restait pâle et il était très affaibli. En voyant Wang Lin, il s'approcha de lui et fixa le ciel, hébété, incapable de prononcer un mot.
+Huang Long avait déjà rassemblé tous les disciples internes. Leurs visages étaient empreints de choc et de terreur. Wang Lin était parmi eux et regardait Pu Nanzi dans le ciel, hébété, le cœur saisi d'effroi. Wang Hao figurait également parmi eux. Son teint restait pâle et il était très affaibli. En voyant Wang Lin, il poussa un léger soupir et s'approcha de lui.
 
 Le visage de Pu Nanzi était sombre alors qu'il planait dans les airs. La puissance de cette formation défensive dépassait ses attentes. Il savait que la formation n'était pas à son plein potentiel; si un cultivateur de l'Âme Naissante en avait le contrôle, elle serait bien plus redoutable.
 
@@ -78,6 +78,6 @@ Tous les disciples internes bouillonnaient de rage, mais nul n'osa l'exprimer. I
 
 Le regard de Pu Nanzi balaya la zone et se posa sur Huang Long. Il dit: « Toi. Remets-moi ton Épée de Lune Pourpre. Mon neveu-disciple Ouyang la convoite. »
 
-Huang Long endura l'humiliation et serra les poings. Il regarda Liu Wenju et la vieille femme. En voyant qu'ils attendaient son geste, il poussa un soupir, sortit l'épée et la jeta au sol.
+Huang Long endura l'humiliation et serra les poings. Il regarda Liu Wenju et la vieille femme. En constatant que ni l'un ni l'autre ne disait mot, il poussa un soupir résigné, sortit l'épée et la jeta au sol.
 
 Pu Nanzi tendit sa main droite et l'Épée de Lune Pourpre vola vers lui. Au moment où l'arme entra dans sa paume, une brume pourpre s'en échappa et prit la forme d'un dragon gigantesque.

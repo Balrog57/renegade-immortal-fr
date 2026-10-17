@@ -46,7 +46,7 @@ Wang Lin ignorait que les médicaments qu'il avait ingérés n'engendraient qu'u
 
 De plus, au moment crucial, l'Herbe de Dispersion du Qi l'empêchait de condenser avec succès l'énergie spirituelle.
 
-Mais en buvant cette rosée, dont l'énergie spirituelle surpassait largement celle des médicaments — bien au-delà de ce que son talent lui faisait perdre — il avait créé un déséquilibre. S'il s'était contenté de cultiver normalement, l'énergie se serait dissipée avec le temps; mais là, sa culture agissait comme de l'huile versée sur un brasier, faisant bondir son énergie spirituelle de manière incontrôlable.
+Mais en buvant cette rosée, dont l'énergie spirituelle surpassait largement celle des médicaments — bien au-delà de ce que son talent lui faisait perdre — il avait créé un déséquilibre. S'il n'avait pas pratiqué la respiration, l'énergie se serait dissipée avec le temps; mais en la pratiquant, sa culture agissait comme de l'huile versée sur un brasier, faisant bondir son énergie spirituelle de manière incontrôlable.
 
 Il comprit qu'il avait commis une erreur tragique, mais il était impuissant. Il ne pouvait que regarder ses vaisseaux s'étirer dangereusement. Alors que la tension atteignait son paroxysme, une idée jaillit. Sans perdre un instant, il serra les dents et entama une culture utilisant la technique inverse: une inspiration courte suivie de trois expirations longues.
 

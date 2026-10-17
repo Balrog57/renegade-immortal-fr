@@ -20,7 +20,7 @@ Wang Lin se redressa. Il y avait déjà réfléchi avant de venir: l'affaire du 
 
 Après un instant de réflexion, Wang Lin raconta tout ce qu'il avait vu dans les ruines de la jungle.
 
-Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon frère cadet, comment une révolte de marionnette de stade intermédiaire de l'Âme Naissante pourrait-elle être aussi facile à gérer que tu le prétends? Même si j'y vais, je ne pourrai rien pour toi. »
+Ye Zizai écouta en silence, sans dire un mot. Une fois le récit terminé, il soupira, ferma les yeux et pensa: « Ce que dit ce Wang Lin doit être vrai. Lorsque mon frère Wu Yu est parti, il avait mentionné que sa marionnette de cadavre était sur le point d'évoluer, et les propos de Wang Lin concordent avec sa personnalité. Une marionnette de cadavre qui se rebelle... Hélas, mon frère cadet, comment une révolte de marionnette du stade intermédiaire de l'Établissement des Fondations pourrait-elle être aussi facile à gérer que tu le prétends? Même si j'y vais, je ne pourrai rien pour toi. »
 
 « Puisque tu as chargé Wang Lin de transmettre ce message, c'est que tu as d'autres intentions... » Sur ces mots, Ye Zizai déploya son sens divin et poussa soudain un léger murmure de surprise. La méthode que cultivait ce Wang Lin était très proche de celle de la Secte des Cadavres; il était imprégné d'énergie Yin. Après un instant de réflexion, Ye Zizai comprit l'intention de Wu Yu.
 
@@ -96,6 +96,6 @@ La figure laissa échapper un rire. Flottant dans les airs, les bras croisés su
 
 Le visage de Ye Zizai était sombre. Il fixa la figure et ricana: « Avant de me dévorer complètement, ne crois pas que j'écouterai tes ordres. Quant au Seigneur Zi, je n'irai aider ni lui, ni mon frère cadet. Que Seigneur Zi parvienne ou non à dévorer mon frère dépendra uniquement de lui-même. »
 
-La figure poussa un rire sinistre. Cela semblait l'indifférer: « Si tu refuses d'y aller, je ne te forcerai pas. Mais la prochaine vague de corps a été préparée par un pays de rang 5. Cette fois, il y en aura dix. Choisis ton fourneau avec soin. N'oublie pas que tu n'es qu'un disciple extérieur de la Secte des Cadavres. Et qu'as-tu prévu de faire de ce gamin d'Adai? »
+La figure poussa un rire sinistre. Cela semblait l'indifférer: « Si tu refuses d'y aller, je ne te forcerai pas. Mais la prochaine vague d'entités de sens divin a été préparée par un pays de rang 5. Cette fois, il y en aura dix. Choisis ton fourneau avec soin. N'oublie pas que tu n'es qu'un disciple extérieur de la Secte des Cadavres. Et qu'as-tu prévu de faire de ce gamin d'Adai? »
 
 Ye Zizai réfléchit un instant et poussa un soupir secret. Il y a 400 ans, il était entré dans la secte et, grâce à son talent, avait atteint le stade de l'Âme Naissante en quatre siècles. Mais au moment même où il y parvenait, sa marionnette de cadavre avait acquis une conscience propre et avait commencé à le dévorer. Ce processus était extrêmement lent, ce qui lui avait permis d'apprendre certains des secrets de la Secte des Cadavres.

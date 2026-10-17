@@ -70,4 +70,4 @@ Wang Lin s'apprêtait à répliquer, quand soudain il tourna la tête et vit Wan
 
 Le disciple aux racines spirituelles d'eau hésita et dit: « Frère Wang Zhuo, c'est un peu déplacé. La nature de ce mille-pattes est sauvage. Si un étranger tente de la nourrir, il pourrait être en danger. »
 
-Wang Zhuo répondit avec une expression feinte de douceur: « Ne t'inquiète pas, frère Liu. Comment un cultivateur pourrait-il reculer devant le danger? Vous êtes nos invités; ces corvées doivent nous incomber, à nous, la Secte Heng Yue. »
+Wang Zhuo répondit avec une expression douce: « Ne t'inquiète pas, frère Liu. Comment un cultivateur pourrait-il reculer devant le danger? Vous êtes nos invités; ces corvées doivent nous incomber, à nous, la Secte Heng Yue. »

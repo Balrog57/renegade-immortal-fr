@@ -56,7 +56,7 @@ Le regard de Wang Lin était électrique et tout son corps débordait d'une puis
 
 Ses yeux brillèrent. Il tendit le doigt de la main droite et le fourreau, rangé dans son sac de rangement, s'éleva lentement dans les airs tandis qu'il murmurait: « Après trois ans de raffinage, ce fourreau m'appartient presque entièrement. Utilisé avec l'épée volante, son effet doit être redoutable. »
 
-Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea: « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a trois ans pour m'aider à échapper à Teng Li. Il s'est encore davantage affaibli lorsqu'il a lancé, pendant ma retraite, le sort qui masque la malédiction. Il dort depuis plus de deux ans et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Le plus important à présent est de trouver un lieu d'énergie Yin extrême pour la pratiquer. »
+Après avoir rangé l'épée et son fourreau, il réfléchit un instant. Puis, touchant la perle sur sa poitrine, il songea: « Situ Nan a épuisé trop d'essence d'Âme Naissante il y a trois ans. Il s'est encore davantage affaibli lorsqu'il a lancé, pendant ma retraite, le sort qui masque la malédiction. Il dort depuis plus de deux ans et j'ignore quand il s'éveillera. Heureusement, j'ai déjà mémorisé la Méthode d'Ascension des Enfers. Le plus important à présent est de trouver un lieu d'énergie Yin extrême pour la pratiquer. »
 
 Ayant pris sa décision, Wang Lin prit une profonde inspiration et déploya son Sens Divin. Il se dirigea soudainement vers le nord jusqu'à atteindre une rivière, où il se débarrassa de toute la terre noire qui recouvrait son corps. Une fois propre, il se sentit revigoré.
 

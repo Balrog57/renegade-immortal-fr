@@ -13,7 +13,7 @@ Teng Huayuan progressait méticuleusement à travers la jungle, son sens divin d
 
 L'expression de Teng Huayuan changea brusquement. Sans réfléchir, il recula précipitamment de quelques pas et scruta les environs.
 
-Il ne vit qu'un brouillard sombre s'avancer depuis le lointain, entouré de vents éerieux. Une main desséchée surgit de cette brume noire et tendit les doigts vers lui.
+Il ne vit qu'un brouillard sombre s'avancer depuis le lointain, entouré de vents sinistres. Une main desséchée surgit de cette brume noire et tendit les doigts vers lui.
 
 Teng Huayuan sonda le brouillard avec son sens divin et fut saisi par la terreur. Le niveau de culture de cet individu était celui du stade intermédiaire de l'Âme Naissante, ce qui le força à reculer de nouveau.
 
@@ -93,13 +93,13 @@ Qualité normale: rang 4, 6, 8, 10. Bonne qualité: rang 1, 3, 6, 10... et franc
 
 Wang Lin afficha un sourire de satisfaction. Il déploya son sens divin et comprit que la supériorité de l'énergie Yin ici était liée aux cavités du sol. Il pouvait voir des filaments d'énergie s'échapper de ces trous pour se mêler à l'énergie environnante.
 
-Au fil du temps, la lumière rouge brilla encore plus fort, atteignant le rang 2 Dense. À minuit, elle avait atteint le rang 5 Dense. Wang Lin n'hésita plus et commença immédiatement sa culture.
+Au fil du temps, la lumière rouge brilla encore plus fort, atteignant le rang 2 Dense. À minuit, elle avait atteint le rang 5 Dense. Wang Lin n'hésita plus et commença immédiatement à inspirer et expirer l'énergie Yin selon une méthode de respiration particulière.
 
 Alors que de plus en plus d'énergie Yin s'accumulait dans sa poitrine, il nota une différence fondamentale: la pureté de l'énergie était des dizaines de fois supérieure à celle qu'il avait connue auparavant. Un changement de qualité entraîne un changement de quantité; cela signifiait que ce qui exigeait auparavant des dizaines de fois plus de temps ne demandait désormais que le temps normal.
 
 Bientôt, l'énergie Yin dans sa poitrine commença à tourbillonner. À mesure que le vortex s'accélérait, le phénomène inattendu survenu la dernière fois se répéta. L'énergie Yin dans un rayon de 330 mètres autour de Wang Lin fluctua et se précipita vers lui.
 
-Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit jusqu'à atteindre un rayon de 3 300 mètres. La portée continua de croître: 3 960 mètres, 4 620 mètres, 4 950 mètres... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si elle était manipulée, s'engouffrant vers Wang Lin pour être dévorée.
+Le tourbillon dans sa poitrine, en absorbant davantage d'énergie, grandit jusqu'à atteindre un rayon de 3 300 mètres. La portée continua de croître: 3 960 mètres, 4 620 mètres, 4 950 mètres... Dans un rayon de cinq kilomètres, l'énergie Yin se déplaçait comme si des esprits ou des créatures la poussaient dans l'ombre, s'engouffrant dans l'immense gouffre pour être dévorée par Wang Lin.
 
 Alors que le vortex dans sa poitrine devenait colossal, il sentit qu'il perdait le contrôle. Conscient de ses limites, il dirigea cette énergie pour attaquer de toutes ses forces sa Mer de Qi et commencer la percée. Le tourbillon d'énergie Yin agissait comme une pointe rotative, frappant inlassablement la Mer de Qi pour l'ouvrir. Lentement, celle-ci montra des signes de rupture.
 

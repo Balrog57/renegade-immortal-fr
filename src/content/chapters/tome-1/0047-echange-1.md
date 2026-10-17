@@ -50,7 +50,7 @@ Dès l'arrivée, une aura majestueuse émana des piliers de jade et se transform
 
 Derrière lui, tous les disciples de la Secte Xuan Dao furent frappés de stupeur. À cet instant, l'intention meurtrière leur donna l'impression d'être sur un champ de bataille. Ils se sentirent presque écrasés par cette pression, jusqu'à ce que l'Ancien Ouyang la disperse.
 
-« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre fondateur. Dans un rayon de trois cent trente mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Ses deux mains changèrent de sceaux tandis qu'il récitait une formule, et de douces gerbes de lumière jaillirent des piliers de jade blanc. Comme repoussés par deux grandes mains, les nuages qui couvraient le Pic des Pins se dissipèrent rapidement. L'intention meurtrière disparut également.
+« Camarade cultivateur Ouyang, il s'agit d'un trésor créé personnellement par notre ancêtre. Dans un rayon de trois cent trente mètres autour des piliers de jade blanc, tout disciple n'appartenant pas à la Secte Heng Yue sera soumis à une intention meurtrière. Je présume que l'Ancien Ouyang comprend cela, alors veuillez nous excuser », dit Huang Long d'un visage calme. Ses deux mains changèrent de sceaux tandis qu'il récitait une formule, et de douces gerbes de lumière jaillirent des piliers de jade blanc. Comme repoussés par deux grandes mains, les nuages qui couvraient le Pic des Pins se dissipèrent rapidement. L'intention meurtrière disparut également.
 
 Derrière lui, tous les disciples internes piaffaient d'impatience.
 

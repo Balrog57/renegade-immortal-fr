@@ -18,7 +18,7 @@ Les personnes aux alentours restèrent pétrifiées. Ce qu'elles venaient de voi
 
 Wang Lin fronça les sourcils. Alors qu'il s'apprêtait à intervenir, Zhang Hu fit un pas en avant et lança les boules de feu. Cependant, sa cible n'était pas le groupe de Liu San, mais celui des hommes en noir.
 
-Face à une puissance absolue, le sort de ces mortels était celui de fourmis. Sans aucune capacité de riposte, les hommes en noir, y compris Song Xing, furent frappés par les flammes. Le plus étrange était que leurs corps ne furent pas réduits en cendres; au lieu de cela, plusieurs gouttes de sang doré se formèrent et furent aussitôt englouties par Zhang Hu.
+Face à une puissance absolue, le sort de ces mortels était celui de fourmis. Sans aucune capacité de riposte, les hommes en noir, y compris Song Xing, furent frappés par les flammes et réduits à néant en un instant. Le plus étrange était que plusieurs gouttes de sang doré ne se dissipèrent pas avec les cadavres; elles s'élevèrent dans les airs et furent aussitôt englouties par Zhang Hu.
 
 Le groupe de Liu San fut brûlé par la chaleur intense au point que leurs cheveux et leurs poils roussirent et que leur peau se craquela, mais aucun d'eux n'osa le moindre mouvement.
 
@@ -48,13 +48,13 @@ Après avoir calmé sa respiration, Zhang Hu s'assit. Il sortit deux patates dou
 
 Wang Lin prit la patate douce. Il eut l'impression de remonter dix ans en arrière, au moment où deux adolescents avaient fait connaissance dans la chambre des disciples enregistrés de la Secte Heng Yue.
 
-« Quand j'ai quitté la Secte Heng Yue à l'époque, je ne suis pas rentré chez moi; j'ai erré, cherchant à rejoindre une autre secte de culture. Par chance, en consommant certaines herbes, j'ai réussi à atteindre sans m'en rendre compte le premier niveau de Condensation de Qi. Je dois cela au petit livret de la belette jaune. Ensuite, j'ai rencontré Bai Zhan, mon maître. Voyant que j'étais au premier niveau de Condensation de Qi, il n'a pas voulu me tuer. Au lieu de cela, il m'a pris comme disciple pour l'aider à collecter le sang des mortels. Ce Bai Zhan avait en outre implanté un poison en moi afin de tenir ma vie et ma mort entre ses mains. »
+« Quand j'ai quitté la Secte Heng Yue à l'époque, je ne suis pas rentré chez moi; j'ai erré, cherchant à rejoindre une autre secte de culture. Par chance, en avalant une herbe spirituelle, j'ai réussi à atteindre sans m'en rendre compte le premier niveau de Condensation de Qi. Je dois cela au petit livret de la belette jaune. Ensuite, j'ai rencontré Bai Zhan, mon maître. Voyant que j'étais au premier niveau de Condensation de Qi, il n'a pas voulu me tuer. Au lieu de cela, il m'a pris comme disciple pour l'aider à collecter le sang des mortels. Ce Bai Zhan avait en outre implanté un poison en moi afin de tenir ma vie et ma mort entre ses mains. »
 
 « Avant, je ne voulais pas dire que je te connaissais parce qu'il rôdait dans les parages, mais heureusement, tu l'as tué. À sa mort, le poison est mort lui aussi et je suis enfin libre. » Zhang Hu prit une bouchée de patate douce tout en expliquant rapidement ce qui s'était passé durant ces dix dernières années.
 
 Wang Lin fut profondément ému. Bien que le récit de Zhang Hu fût bref, l'expression de son compagnon trahissait la dureté de ces dix années de souffrance.
 
-Un regard d'envie passa sur le visage de Zhang Hu lorsqu'il dit: « Wang Lin, nous ne nous sommes pas vus depuis dix ans. En voyant que tu as pu tuer mon maître, tu dois avoir atteint l'Établissement des Fondations. L'épée volante de mon maître est extrêmement puissante. Il disait n'en utiliser que les deux cinquièmes, et pourtant, personne en dessous de l'Établissement des Fondations ne pouvait rivaliser avec lui. »
+Un regard d'envie passa sur le visage de Zhang Hu lorsqu'il dit: « Wang Lin, nous ne nous sommes pas vus depuis presque dix ans. En voyant que tu as pu tuer mon maître, tu dois avoir atteint l'Établissement des Fondations. L'épée volante de mon maître est extrêmement puissante. Il disait n'en utiliser que les deux cinquièmes, et pourtant, personne en dessous de l'Établissement des Fondations ne pouvait rivaliser avec lui. »
 
 Wang Lin secoua la tête. « Je n'ai pas encore atteint l'Établissement des Fondations. Sais-tu d'où vient cette épée volante? »
 
